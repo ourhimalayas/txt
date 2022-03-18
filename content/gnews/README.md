@@ -15,28 +15,28 @@
 
 ---
 
-### [曾庆红大秘](/content/gnews/1/README.md)
+### [【G时新闻】梅迪卡营救中心成为该营地国际救援会议中心](/content/gnews/1/README.md)
+ ` G-时新闻`
+
+### [曾庆红不是一般人，俄乌开战世界将会大变](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [习二一定会打台湾，习想把美国干倒](/content/gnews/2/README.md)
+### [俄乌开战曾庆红说共产党输了输的很惨](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [普大帝和习二最放不下的是国家权力和家人（二）](/content/gnews/3/README.md)
+### [曾庆红对中国未来两年的判断](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [普大帝和习二最放不下的是国家权力和家人（一）](/content/gnews/4/README.md)
+### [曾庆红大秘](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [普大帝邪恶的智囊大师瓦里克2](/content/gnews/5/README.md)
+### [习二一定会打台湾，习想把美国干倒](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [普大帝跟习二每天通2-3次电话](/content/gnews/6/README.md)
+### [普大帝和习二最放不下的是国家权力和家人（二）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [乌战争的结果大局已定](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [共产党和俄罗斯异曲同工之处](/content/gnews/8/README.md)
+### [普大帝和习二最放不下的是国家权力和家人（一）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
 ### [郭文贵精品视频-新中国联邦法治基金创造历史的奇迹](/content/gnews/9/README.md)
@@ -57,67 +57,67 @@
 ### [关于25至44岁人群死亡增加的惊人发现](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [全球疫情疫苗数据更新（新的一波疫情已经开始）](/content/gnews/15/README.md)
+### [新中国联邦援乌营地摄制组越来越专业](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/16/README.md)
+### [全球疫情疫苗数据更新（新的一波疫情已经开始）](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【 G时新闻 】五名在美华人因监视威胁反共华人被美国司法部起诉](/content/gnews/17/README.md)
+### [【 G时新闻 】五名在美华人因监视威胁反共华人被美国司法部起诉](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [援乌营地消息：波兰最美药剂师](/content/gnews/18/README.md)
+### [援乌营地消息：波兰最美药剂师](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年3月上旬发生的国际重要事件](/content/gnews/19/README.md)
+### [2022年3月上旬发生的国际重要事件](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [《避风港HAVEN》直播内容精选（第二十一集· 上 ）](/content/gnews/20/README.md)
+### [《避风港HAVEN》直播内容精选（第二十一集· 上 ）](/content/gnews/21/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [基辅遭受了三起单独的袭击](/content/gnews/21/README.md)
+### [基辅遭受了三起单独的袭击](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美追加对乌军事援助称“普京永远无法获胜”](/content/gnews/22/README.md)
+### [美追加对乌军事援助称“普京永远无法获胜”](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [五月花简报（03/17/2022）](/content/gnews/23/README.md)
+### [五月花简报（03/17/2022）](/content/gnews/24/README.md)
  ` mayflowertranslate`
 
-### [七哥采访妮可](/content/gnews/24/README.md)
+### [七哥采访妮可](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/25/README.md)
+### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/26/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/27/README.md)
+### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|让爱在战火中流淌—盘古七星救援帐篷一瞥](/content/gnews/28/README.md)
+### [有声|让爱在战火中流淌—盘古七星救援帐篷一瞥](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [华为证实加保守党领候选人为孟晚舟案提供协助](/content/gnews/29/README.md)
+### [华为证实加保守党领候选人为孟晚舟案提供协助](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [《避风港HAVEN》直播内容精选（第二十集 ·下）](/content/gnews/30/README.md)
+### [《避风港HAVEN》直播内容精选（第二十集 ·下）](/content/gnews/31/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [拜登周五将与习近平通话](/content/gnews/31/README.md)
+### [拜登周五将与习近平通话](/content/gnews/32/README.md)
  ` Shuizhuyu`
 
-### [【转】截至3.17 俄乌战事汇总（1）](/content/gnews/32/README.md)
+### [【转】截至3.17 俄乌战事汇总（1）](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [土耳其要求普京与泽连斯基会面以推进俄乌停火](/content/gnews/33/README.md)
+### [土耳其要求普京与泽连斯基会面以推进俄乌停火](/content/gnews/34/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022/03/17 英喜时事速递](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳政府向关键矿产项目投巨资，以摆脱对中共国的依赖](/content/gnews/35/README.md)
+### [2022/03/17 英喜时事速递](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [新西兰财经G乐部2022年3月17日:财经新闻整理](/content/gnews/36/README.md)

@@ -2,8 +2,8 @@
 ---
 
 
-## 普大帝跟习二每天通2-3次电话
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182984/)
+## 习二一定会打台湾，习想把美国干倒
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2183012/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

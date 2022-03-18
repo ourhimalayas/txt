@@ -2,20 +2,21 @@
 ---
 
 
-## 曾庆红大秘
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2183013/)
+## 【G时新闻】梅迪卡营救中心成为该营地国际救援会议中心
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2183034/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+播报：加拿大温哥华扬帆农场 – yuyu
+视频制作：加拿大温哥华扬帆农场 – 文所未闻
 
-*发布：陶子*
+据文贵先生盖特报道，3月14日清早，法治基金梅迪卡营救中心250m²的大帐篷里迎来了负责该营地整个营救任务的工作团队在这里召开集体工作会议。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这是由联合国和国际红十字会及无国界救援者等组织发起的救援基地负责人会议。与会人员约为30人，包括新中国联邦救援团队代表在内的，梅迪卡口岸所有义工组织的成员代表。他们统一集中到这里，讨论整个营地的系统化管理和互相之间的协同配合。
+
+法治基金梅迪卡营救中心为来自世界各地的国际救援人员，在艰苦的战争环境中提供了一个非常难得的、温暖舒适的工作环境。新中国联邦更表示：如果局势变化需要，可以搭建更大的帐篷，全力配合国际组织需要。
+
+编辑发稿：青青
+
+视频链接：https://gettr.com/post/p10chvoa916
 
  
 
