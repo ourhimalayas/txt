@@ -2,27 +2,23 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2187246/)
+## 民调显示加拿大人认为北约应军事干预俄罗斯入侵乌克兰
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2187339/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-3.jpg)
+加拿大温哥华扬帆农场-文莱, 文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-91.jpg)图片来源：多伦多城市报
+据加拿大《多伦多太阳报》3月15日报道，一项新的民意调查显示，近四分之三的加拿大人认为，随着俄罗斯在乌克兰的侵略升级，北约盟国应准备进行军事干预。
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月16晚](https://gnews.org/zh-hans/2177664/)
+该在线调查涉及到1515名加拿大人和1002名美国人。据悉， 64%的人说乌克兰和俄罗斯之间的冲突将持续多年。65%的加拿大人说，政府应该对俄罗斯实施更严厉的制裁。同时，大约四分之三的民调参与者认为当前局势有可能导致第三次世界大战。
 
-音频处理：Fei797
-发稿：Fei797
+该民意调查显示，大约三分之二的加拿大人认为应该允许乌克兰加入北约。根据《北大西洋公约》第5条，对一个北约国家的攻击被认为是对所有北约国家的攻击，它们都必须帮助恢复安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+参考链接：https://torontosun.com/news/national/canadians-believe-nato-should-prepare-to-fight-russias-invasion-of-ukraine-survey
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+编辑、上传：月亮之上
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,31 @@
 ---
 
 
-## 乌克兰总统呼吁美国更多行动
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2187138/)
+## 班农先生称消灭中共别无选择
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2187281/)
 
-作者：加拿大温哥华扬帆农场-文所未闻
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月15日，郭文贵先生盖特转发了一则战斗室视频。班农先生在联线法内尔上尉时表示，除了灭掉北京的中共政权外，美国已经别无选择。 法内尔上尉完全同意班农的看法。他说中共视美国为战略竞争对手，妄图消灭美国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-18-上午11.45.06.png)
+所以，美国无法与一个想要摧毁自己的敌人谈判。美国要么保护自己，并彻底消灭敌人，或者被敌人所消灭。多年来，中共用蓝金黄手段渗透到美国社会的方方面面，以致于让很多人相信中共国在崛起，美国在衰落。法内尔说，这种看法是错误的，美国还有许多选项来改变现状，但前提是消灭中共。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2033.png)图片来源：CNN
+参考链接：[班农先生：除了灭掉中共以外，我们还有其它选择吗？](https://www.gettr.com/post/p101qmt770f)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-据加拿大自由媒体《后千禧年》3月16日报道，当天上午乌克兰总统泽伦斯基在美国国会发表了演讲，泽伦斯基呼吁美国更多地帮助乌克兰，并直接呼吁拜登成为 “世界领袖”。
+编辑：宁文静
+总编：宁文静
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-据悉，当泽伦斯基出现在国会的屏幕上时，国会议员起立欢呼，众议院议长南希-佩洛西称他为”勇敢的领导”。在演讲中，泽伦斯基说表示，八年来乌克兰一直在抵制俄罗斯的侵略，而乌克兰从未放弃。现在乌克兰国家的命运正在被决定。他呼吁美国国会采取更大的行动来支持和保护乌克兰。
-
-由于北约和美国一直避免与俄罗斯的直接冲突而导致第三世界大战， 拜登政府一再表示，他们不会支持在乌克兰上空设立 “禁飞区”。但是，短视的政治家们殊不知，第三次世界大战已经开始，俄罗斯对乌克兰的入侵，中共国在中东正在酝酿的各种冲突，以及蓄谋已久对台湾的武力进攻，都清楚的表明 — 第三次世界大战已经开始。
-
-* * *
-
-原文链接：https://thepostmillennial.com/breaking-zelensky-begs-congress-for-a-no-fly-zone
-
-采编：文莱， 编撰：文所未闻， 编辑发稿：硫酸羟氯喹64
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
