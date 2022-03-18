@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 7:46 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-乌克兰救援每日汇报
+![img](https://media.gettr.com/group6/origin/2022/03/18/19/513dca5b-e6c4-afa5-b121-6e4f2c9050d8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@torontofarmen 3/18/2022 3:04 AM (UTC)`
+
+Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Ukraine, an unusually large tent was erected<br/>Equipped with pole heaters, diesel generators, charging stations, Starlink WiFi<br/>There, women and children seeking shelter will find food, water, daily necessities<br/>And the comforting aroma of freshly brewed coffee<br/>Despite the threat of war, the harassment from mainstream media and the hindrance from CCP<br/>Our resolve, action and rescue will carry on<br/>Regardless of race, nationality or political views<br/>For the belief in the path to the righteousness<br/>Until the destruction of the CCP<br/>We shall never rest<br/><br/>#新中国联邦人<br/>乌克兰救援：<br/>穹顶大帐篷，充电、供暖、星链Wi-Fi，<br/>热水食物日用品，更有现磨咖啡的馥郁惬怀；<br/>病毒肆虐，主媒捣乱，中共使坏，<br/>岂是行动的羁绊；<br/>无关肤色、国家和党派，<br/>何况那避乱他乡的万名童孩。<br/>正道主义情怀，我们绝无懈怠，<br/>只为消灭中共这万恶的根源！
+![img](https://media.gettr.com/group8/origin/2022/03/18/03/44ddba4a-a03e-b4dc-393e-2fc75bd854d2/out.jpg)
+
+---
+
 `@miles 3/18/2022 5:01 PM (UTC)`
 
 
@@ -140,20 +156,6 @@
 
 3/17/2022 Miles Guo: Zeng Qinghong is going to take off earlier to return to Beijing, what does that mean? The CCP members who are in support of invading Taiwan are idiots. Zeng Qinghong's advice to the people around him is to stay home for two years, don’t get infected by the virus, and that the most important thing is to make sure the family members are healthy, meaning that the CCP will be finished in two years.<br/><br/>3/17/2022 文贵直播：曾庆红提前起驾回京，这意味着啥？党内支持打台湾的比猪还蠢；曾庆红对身边人的忠告是在家躲两年、活着不染毒、家人健康最重要，意思就是共产党过两年就完蛋了<br/>
 ![img](https://media.gettr.com/group41/getter/2022/03/18/02/e12a7086-582f-9f43-092d-7e6a96145c74/out.jpg)
-
----
-
-`@miles 3/18/2022 1:55 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
-![img](https://media.gettr.com/group25/origin/2022/03/18/01/a3cf3d3a-78ce-934a-7567-58a16093c946/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/18/2022 1:27 AM (UTC)`
-
-3/17/2022 Miles Guo: The West has realized that they should seize the overseas state-owned assets of the CCP ASAP. Changpeng Zhao will be finished, but the Himalaya Coin will be the cleanest and greatest digital currency. Many Hong Kong people have bought the Himalaya Coin recently. Xi daydreams that the COVID vaccine disaster and worldwide financial collapse will bring the CCP its best moment, which, however, will become Xi’s nightmare.<br/><br/>3/17/2022 文贵直播：西方意识到要尽快查封中共在海外的国有资产；赵长鹏会完蛋，喜币将成为全世界最伟大、最干净的币，最近港人大量买喜币；习幻想疫苗灾难和世界金融崩溃将带来中共最美好的时刻，但这却会成为他的噩梦<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/18/01/a74a1afb-04ae-95e3-3fde-5e4630a070c5/out.jpg)
 
 ---
 

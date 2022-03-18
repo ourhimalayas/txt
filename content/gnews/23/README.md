@@ -2,44 +2,33 @@
 ---
 
 
-## 韩国船只向朝鲜巡逻艇鸣枪示警
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2187382/)
+## 援乌营地：战友波兰租车公司老板Peter
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2187553/)
 
-***评论：**朝鲜问题的实质也是因为有中共在其背后的资金支持，驱使他不失时机地窜出来刷一下存在感。中共是一切灾难的根源，醒醒吧，全世界爱好和平的人们，只有消灭中共才能拯救全人类。*
+**作者、编辑：Candy**
+**视频提供：小小酥**
 
-据《Washington Examiner》记者：Christopher Hutton，2022年3月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2039-e1647620226691.png)图片来源：网络
-一艘韩国海军舰艇在朝鲜巡逻艇突破其边界后向其鸣枪示警。
+波兰出租汽车公司老板Peter，我们已经从视频里或者战友们的口中知道得太多了！只是他一换衣服就不敢确认了，因为外国人的相貌在我们中国人的眼里，看起来没太大区别，而且他在这个视频里显得魁武多了。
 
-韩国人据官员报道，周二上午，这艘朝鲜船只越过朝韩边界后，韩国海军舰艇开火。事件发生的同一天，韩国当局扣留了第二艘越过边境的朝鲜船只。
+我们新中国联邦的援乌战友，在3月初刚到达波兰梅迪卡国际救援中心时需要租车，就打了一个汽车出租公司的电话。该公司的老板Peter听到我们战友说明来意后，二话没说，马上加入到我们新中国联邦志愿者的行列。
 
-根据韩国参谋长联席会议的一份声明，据报道在追赶第二艘的朝鲜巡逻艇在韩国鸣枪示警后朝鲜船只立即撤退。
-
-韩国海军将被扣船带到附近的码头。据韩国联合通讯社报道，该船七名船员中有六名穿着军装。
-
-虽然两国之间的小规模冲突并不少见，但这是自两国于 2018 年签署缓和紧张局势的军事协议以来，朝鲜军舰首次越过既定边界，退休的韩国中将 Chun In-bum告诉美国之音。“这是一个接触然后离开的事件。”
-
-该事件与周二韩国大选同时发生。虽然朝鲜试图在其南部邻国选举的同时引发政治紧张局势，但全认为这次海上事件可能是巧合。
-
-最近几周，朝鲜增加了军事活动。该国在过去两周内测试了两枚弹道导弹，并声称对其间谍卫星进行了“重要”测试。
-
-文章来源：[https://www.washingtonexaminer.com/news/south-korean-vessel-fired-warning-shot-at-north-korean-patrol-boat](https://www.washingtonexaminer.com/news/south-korean-vessel-fired-warning-shot-at-north-korean-patrol-boat)
-
-翻译：洛杉矶盘古农场 – Raul
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – Wendy
-
-编辑：洛杉矶盘古农场 – Wendy
-
-发布：洛杉矶盘古农场 – 子萍
+因此，Peter开车带着战友们从购买所需物品，到跑州、市、地方政府部门申请拍摄执照，有时还主动独自驾车购买发电机、制暖设备等所用的汽油、柴油、液化气等。郭先生第一次在大直播的视频里见到Peter的时候，就高兴地说：Peter兄弟永远是我们新中国联邦人的战友，要好好照顾！
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![Image](https://media.discordapp.net/attachments/950448401529577502/954204910340157471/IMAGE_2022-03-17_222919.jpg?width=207&amp;height=369)Peter和战友们一起安装暖炉。
+图片来源：煤油灯
+
+这不，通过小小酥战友的镜头，我们又看到了Peter刚刚接前线的战友回来，而且他一直负责我们战友的往来接送任务。
+
+感谢您，我们在援乌战斗中结识的真正战友，国际友人，Peter !
+
+***发布：Candy***
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

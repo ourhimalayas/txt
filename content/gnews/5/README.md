@@ -2,55 +2,36 @@
 ---
 
 
-## 女人寻求帮助寻找失散多年的亲生母亲
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2187917/)
+## 中共国的疫情封锁令全球经济充满不确定性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
 
-作者：Pat Taney
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_0Z14Y00.jpg)
-列治文山一位华人女子50多年前被收养，长大后找到了在多伦多的生母，但是因为到香港工作，她与生母失去联系，现在她希望寻找生母重新建立联系，她认为生母就住在多伦多的某个地方，恳求网友帮助。
+作者: 纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
 
-Tammy Chang的故事始于50多年前的哈利法克斯，那是她出生的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
 
-她说，我的本名是Mae Fong Lem，出生后被蒙特利尔的一个家庭收养。早在1990年代初期，她就找到了住在多伦多唐人街附近的生母。
+当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
 
-“我来多伦多见了她几次，她很高兴，那时候她说她一直想着我，但不知道如何能找到我。”
 
-母女见面时间很简短，谈话也很简短。
 
-Chang说，当我们第一次见面时，双方都有点不自然，因为这有点令人意外。我从来不知道她的名字，只知道她的婚姓是Hung，她的娘家姓是Lem。
+相关链接:
 
-母亲在那之后给她写了信，寄到她在蒙特利尔的家中。母亲说那是她在加拿大27年来写的第一封信。
+[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
 
-但后来，Chang搬家但没有告诉她的母亲，这是她最大的遗憾。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-Chang说，我搬到香港工作，却忘记通知母亲。她说这对母亲来说一定是令人心碎的。母亲一定认为我在责怪她，但我想让她知道我从未想过这件事。
+编辑: 飞虹
 
-Chang于2018年搬到列治文山。从那时起，她尝试拨打她母亲唯一的电话号码，但该号码已不再是母亲持有。她聘请了一名私家侦探，甚至到唐人街附近分发了她母亲的照片，但到目前为止，还没有可靠的线索。
+校正/发稿：Petite abeille
 
-无奈之下她求助媒体帮忙。
-
-Chang说她的母亲现在已经86岁了。她可能在某个老人院里。作为父母，现在我知道自己的母亲可能痛苦，这就是我必须找到她的原因。
-
-如果您认为您有任何信息可以帮助Chang，您可以拨打她电话：647 655-4282。你也可以给她发电子邮件：[\[email protected\]](/cdn-cgi/l/email-protection)
-
-来源:
-https://toronto.citynews.ca/2022/03/16/speakers-corner-woman-seeks-mother/
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

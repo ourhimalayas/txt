@@ -2,33 +2,48 @@
 ---
 
 
-## 有声|俄罗斯曾要求中国支持入侵乌克兰
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2187708/)
+## CBC标志性的电视节目《Family Feud Canada》今年回归
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2187870/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-RTBF综合报导，据《金融时报》、《华盛顿邮报》和《纽约时报》等一些“盎格鲁-撒克逊”媒体援引未具名的美国官员的话称，莫斯科曾向北京要求军事和经济支持入侵乌克兰。目前尚不清楚中国对此有何反应。
+作者：BlogTo
+翻译：KK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_134620307.jpg)
+CBC标志性的电视节目《Family Feud Canada》今年回归，目前开启报名，寻找“加拿大最有活力的家庭”。如果你愿意挑战游戏节目，你可能有机会赢$30,000奖金并在国家电视台上大放异彩。
 
-中国驻华盛顿大使馆发言人一如既往否认此言论。不过中共政府一直不谴责也不赞同俄罗斯的侵略。
+据报道，《Family Feud Canada》节目由多伦多喜剧演员Gerry Dee主持，于2019年12月推出，为年满18岁的加拿大人提供高达30,000元的奖金。
 
-中国总理李克强呼吁各方保持克制以避免人道主义灾难，但他也公开反对对俄罗斯实施国际制裁。中共对俄罗斯的直接支持将使中国与包括欧盟和美国在内的乌克兰支持者发生冲突。
+现已向今年的参赛者开放申请，虽然没有截止日期，但制作人敦促人们尽快申请。
 
-这些信息是在美国国家安全顾问杰克·沙利文和中国最高外交政策官员杨洁篪定于周一在罗马举行会晤之前发布的。
+申请网址：
 
-文字版原文：[俄罗斯曾要求中国支持入侵乌克兰](https://gnews.org/zh-hans/2175342/)
+[https://www.cbc.ca/television/familyfeud/here-s-how-to-apply-to-be-on-family-feud-canada-1.5183063](https://www.cbc.ca/television/familyfeud/here-s-how-to-apply-to-be-on-family-feud-canada-1.5183063)
 
-音频处理：Fei797
-发稿：Fei797
+候选人需要提交三到五分钟长的视频，通过虚拟试镜。制片人正在寻找能够代表他们家乡的杰出和自豪的家庭。试镜包括舞蹈、歌唱和大胆的服装秀。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+成功的申请者将获接到电话通知，然后是模拟游戏。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《Family Feud Canada》有望于今年9月在多伦多开始录制节目。制作人将联系从试镜中选出的人参加节目。
+
+去年，多伦多一家超市的老板和他的表兄弟们竞争。虽然他们没有获胜，但他们很享受这次经历。
+
+超市老板Mario Masellis告诉blogTO说，在国家电视台上和我的表兄弟一起做这件事非常令人兴奋。
+
+来源：https://www.blogto.com/film/2022/03/family-feud-canada-popular-gameshow-and-win-30000/
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

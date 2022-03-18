@@ -2,47 +2,53 @@
 ---
 
 
-## CBC标志性的电视节目《Family Feud Canada》今年回归
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2187870/)
+## 白宫表示美国缺乏针对新冠病毒浪潮的测试和治疗方法
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2187930/)
 
-作者：BlogTo
-翻译：KK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_134620307.jpg)
-CBC标志性的电视节目《Family Feud Canada》今年回归，目前开启报名，寻找“加拿大最有活力的家庭”。如果你愿意挑战游戏节目，你可能有机会赢$30,000奖金并在国家电视台上大放异彩。
+评语：***白宫为应对中共病毒COVID-19的资金即将枯竭，希望他们能够早日病毒溯源，为因病毒不幸染病和死亡的人们讨还公道。***
 
-据报道，《Family Feud Canada》节目由多伦多喜剧演员Gerry Dee主持，于2019年12月推出，为年满18岁的加拿大人提供高达30,000元的奖金。
+据《Washington Examiner》记者 Cassidy Morrison2022年3月15日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2059.png)
+拜登政府警告说，国会未能通过额外资金，将严重阻碍该国应对新的 COVID-19 病毒变体的能力。
+COVID-19 测试、疗法和疫苗由联邦政府承担，但白宫周二表示，这三者的分发可能需要突然结束或缩减。高级政府官员告诉记者，用于研发变异特异性疫苗和更多治疗方法的资金也在枯竭。
 
-现已向今年的参赛者开放申请，虽然没有截止日期，但制作人敦促人们尽快申请。
+“正如政府警告的那样，现在无法为这些努力提供资金将产生严重后果，因为我们将没有能力应对未来的激增。白宫周二在一份声明中说，一旦我们处于激增状态，等待提供资金将为时已晚。
 
-申请网址：
+政府官员还警告说，如果政府卫生官员建议更广泛的人群接种第四剂 COVID-19 疫苗，该国的疫苗供应将会紧张。已经鼓励12 岁及以上的免疫功能低下的人进行第四次注射。白宫表示，疫苗的总供应量足以让免疫系统较弱的人群获得额外的剂量，但不是普通人群。
 
-[https://www.cbc.ca/television/familyfeud/here-s-how-to-apply-to-be-on-family-feud-canada-1.5183063](https://www.cbc.ca/television/familyfeud/here-s-how-to-apply-to-be-on-family-feud-canada-1.5183063)
+国内的测试生产规模已经足够扩大，政府官员预计将有足够的产能持续到 6 月。他们还表示，美国目前有足够的辉瑞抗病毒治疗药物来执行政府的“测试治疗”计划，这将使人们在病毒检测呈阳性后立即获得这些药片。但政府只购买了 2000 万剂，没有钱购买更多。
 
-候选人需要提交三到五分钟长的视频，通过虚拟试镜。制片人正在寻找能够代表他们家乡的杰出和自豪的家庭。试镜包括舞蹈、歌唱和大胆的服装秀。
+拜登政府因去年未能在美国食品和药物管理局批准治疗之前订购数百万剂辉瑞药丸而受到批评。批评人士说，拜登错过了囤积抗病毒药物的关键机会，在 omicron 激增之前，这种药物在试验中显示出前景，并有望在去年秋天获得授权。大约需要六个月才能完成的药丸制造终于开始迎头赶上。到目前为止，在 omicron 激增开始显示出消退迹象的几周后，已经有大约 700 万个疗程的治疗被送到了各州。
 
-成功的申请者将获接到电话通知，然后是模拟游戏。
+在去年底开始的 omicron 激增期间，可靠的快速测试也非常难以找到。当人们能够获得一包两个测试时，他们必须自掏腰包支付约 24 美元，并通过保险公司报销的过程。去年初，当疫苗首次广泛使用时，测试的生产量急剧下降。除了激增之间的平静之外，这还导致对测试的需求急剧下降。从那时起，快速测试的生产和可用性有了显着提高。拜登政府今年开始每月免费向家庭运送四次测试，但这些测试是在 omicron 激增之后才到达的。
 
-《Family Feud Canada》有望于今年9月在多伦多开始录制节目。制作人将联系从试镜中选出的人参加节目。
+政府还警告说，在辉瑞的抗病毒药物上市之前，单克隆抗体治疗的供应严重紧张，这是高危人群避免重病的最佳机会。政府官员表示，从下周开始，各州的治疗分配将减少 30%。这些治疗方法中只有两种，一种来自葛兰素史克和 Vir Biotechnology，另一种来自礼来公司，已被发现可有效保护高危人群免于因 omicron 变体而患上重病。1 月份，美国政府在确定它们对 omicron 无效后从市场上撤下了另外两种治疗方法，使得全国各地的医疗保健提供者争先恐后地获得足够的有效单克隆抗体治疗供应。
 
-去年，多伦多一家超市的老板和他的表兄弟们竞争。虽然他们没有获胜，但他们很享受这次经历。
+白宫最初要求国会投入 300 亿美元用于支持国家疫苗、治疗剂和测试的供应，但共和党人拒绝了提供更多资金的请求，因为这笔资金不会得到支付。白宫将这一要求削减至 225 亿美元，但最终，国会将缩减的 156 亿美元用于大流行病资金分配。然而，上周，当该党自己的成员不同意如何支付这笔费用时，批准额外支出以应对 COVID-19 的可能性急剧下降。
 
-超市老板Mario Masellis告诉blogTO说，在国家电视台上和我的表兄弟一起做这件事非常令人兴奋。
+立法者曾计划重新利用分配给各州的超过 80 亿美元未使用的大流行资金，这一提议引发了一些反对联邦政府收回各州所需资金的民主党人的愤怒。
 
-来源：https://www.blogto.com/film/2022/03/family-feud-canada-popular-gameshow-and-win-30000/
+官员们说，政府几周来一直在告诉立法者，资金正在枯竭，但无济于事。上周，白宫新闻秘书 Jen Psaki 表示，资金短缺的影响“非常可怕”。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-2.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+公共卫生专家还警告说，由于国会已经放弃了白宫对大流行病提供数十亿资金的要求，因此 COVID-19 抗病毒药物、测试和其他治疗药物即将短缺。
 
-**关注我们**
+“国会需要像以前一样将其视为一项投资，以确保我们有能力。每当我们认为我们理解它时，这种病毒就愚弄了我们，”美国公共卫生协会执行主任乔治·本杰明说。“鉴于对我们社会的数万亿美元的影响，我认为他们要求的金额是没有根据的。”
 
-Discord 账号
+能够大幅降低高危感染者住院机会的抗病毒治疗供应非常少，而且在接下来的几个月内，随着生产的增加，这种治疗将持续存在。辉瑞公司以 Paxlovid 名义销售的抗病毒治疗疗程非常有效。只要在感染早期服用，它就可以将因严重疾病住院的风险降低约 90%。然而，供应限制意味着并非每个可以从这些药丸中受益的人都能得到它们。
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+文章观点仅代表作者个人，与Gnews平台无关。
 
-Gettr 账号
+文章来源：[**https://www.washingtonexaminer.com/policy/us-lacks-tests-and-therapeutics-for-covid-19-wave-white-house-says**](https://www.washingtonexaminer.com/policy/us-lacks-tests-and-therapeutics-for-covid-19-wave-white-house-says)
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 傻小子
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
