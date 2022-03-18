@@ -2,37 +2,13 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月17日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2183429/)
+## 韩国单日新增中共病毒超62万例 再创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2183601/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-13.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p10jlzy180e](https://gettr.com/post/p10jlzy180e)
-访谈：[https://gettr.com/post/p10k6w347a8](https://gettr.com/post/p10k6w347a8)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
-
-**更多资讯，更多关注**
-
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://www.gettr.com/user/gnews)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220318-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

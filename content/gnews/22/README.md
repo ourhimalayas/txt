@@ -2,28 +2,25 @@
 ---
 
 
-## 新中国联邦援乌营地摄制组越来越专业
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182704/)
+## 【 G时新闻 】俄罗斯即将掀起大规模债务违约潮
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2182763/)
 
-**作者、编辑：Candy**
-**摄影：煤油灯（网名）**
+播报：加拿大温哥华扬帆农场 – yuyu
 
-在此非常感谢加拿大的煤油灯战友，通过他的照相机为我们展示了新中国联邦和法治基金，驻波兰梅迪卡国际人道主义救援中心营地、我们的摄制组的工作环境和工作情况。摄制组由明道战友负责，小组成员来自新中国联邦在全球的各个农场，有两个机位，才三、五个人。他们冒着被中共病毒感染的风险，在寒冷的天气里，捕捉着营地上的焦点。负责二号机位的扬帆农场的亦珊战友，为了保证随时与后方连线，必须一直站在机位旁，只有必须离开机位时才找其他战友临时帮一下忙。
+视频制作：加拿大温哥华扬帆农场 – 文所未闻
 
-自从明道和战友们一起开始安装调试了星链Wi-Fi，天气较好的时候，信号相对稳定很多。为前、后方的及时连线、传递信息起到了不可估量的作用。但在温度太低的情况下，尤其是零摄氏度以下时，计算机、充电器、充电宝不能正常工作，或者其它原因导致信号不稳，中断连线等情况发生。
+据加拿大《金融邮报》3月15日报道，自俄罗斯上月发起侵乌战争以来，该国经济迅速下滑、货币开始崩溃，其债务被评估机构降至垃圾级别。
 
-从图片中可以看出，虽然战友们是首次合作，但他们分工协作得特别出色，也表现得越来越专业，为观众们传递了非常丰富的前线资讯。
-![此图像的alt属性为空；文件名为摄制组2.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%91%84%E5%88%B6%E7%BB%842.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/Nicole.jpg)
-在此衷心地向战斗在救援营地的战友们说一声：你们辛苦了，注意防疫、保重身体！愿战争早日结束，热爱和平的人们早日返回家园！
+据悉，俄政府表示其所有债务都将偿还，但因被国际社会制裁而无法使用美元支付，该国政府及其所属公司（包括俄罗斯天然气工业股份公司、卢克石油公司和俄罗斯储蓄银行）所欠的约1500亿美元外币债务将出现违约潮。
 
-***发布：Candy***
+报道称，该违约浪潮将给多家国际货币投资管理公司带来噩梦，包括贝莱德公司和太平洋投资管理公司。其影响可能波及养老基金、教育基金等投资组合。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+视频链接：[https://gettr.com/post/p10d87v7afa](https://gettr.com/post/p10d87v7afa)
 
+发稿：野草
+
+————————————————————————————————————
+![](https://assets.gnews.org/wp-content/uploads/2022/03/加载内容.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

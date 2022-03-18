@@ -2,55 +2,28 @@
 ---
 
 
-## 战地英雄钢琴勇士
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2183805/)
+## 日本联合G7国家经济制裁俄罗斯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2183915/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在这战火纷飞的年代，
-一架钢琴在战乱的难民营地，
-在四面寒风里高傲的挺立着，
-那优美的十指飞跃在冰冷的键子上，
-每一天都在飘出悠扬的琴声，
-为那些逃离战火的人们送去温暖，
-抚慰疲惫，甘甜心田。
-善良正义的钢琴师，
-带着阳光、帅气，优雅，
-用一颗滚烫的心，
-敲出一首首动人旋律，
-演绎出世人热爱和平的坚定信念。
-钢琴师对新中国联邦的勇敢表以最崇高的敬意，
-一曲灭共的雪，
-如流水潺潺流入心扉，
-心意相通，真情流露，
-音乐没有国界，
-消灭邪恶中共是世界和平的必须，
-战火摧残了乌克兰，
-战火摧残不了爱和温暖，
-你是一个英雄，
-你是硝烟弥漫中亮丽的色彩，
-不一样的面孔，却有一样的心，
-在寒冷的冬天，
-传递着温柔，传送着温暖，
-天籁之音，美丽声音，
-为失去家园的人们带来希望，
-爱是无坚不摧的灵魂粮食，
-愿世界再无战争！
+采编： 加拿大温哥华杨帆农场 – 青青
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-71.jpg)
+编译撰稿： 加拿大温哥华杨帆农场 – 文莱
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-52-2.jpg)图片来源：CNN
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据【京都新闻】3月16日报道，日本首相岸田文雄当天表示，将联合欧美剥夺俄罗斯贸易的最惠国待遇，以惩罚该国对乌克兰发起的侵略战争。
+
+报道称，最惠国地位使俄罗斯在许多关键产品上获得了最佳的贸易条件。尽管G7成员国将取消对俄罗斯贸易的优惠待遇，并对该国产品征收更高的关税，但由于大部分能源或稀有金属资源均为免关税产品，所以此举仍不能实质削弱俄罗斯的能源贸易。
+
+此外，俄乌战争的影响已扩展至印太地区，而中共即将攻打台湾的计划更加剧了台海地区的紧张局势。由于中俄之间曾达成的全天候战略伙伴关系，因此，习近平当局的一举一动都在欧美及其盟国的密切监视之下。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源： [Japan to revoke Russia’s “most favored nation” status over Ukraine (kyodonews.net)](https://english.kyodonews.net/news/2022/03/2f6fbf6da2af-update1-japan-to-revoke-russias-most-favored-nation-status-over-ukraine.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
