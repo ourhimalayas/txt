@@ -2,42 +2,23 @@
 ---
 
 
-## 俄罗斯战俘表示他们不愿参加侵略战争
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2188060/)
+## 媒体呼吁启动问责机制，质询特鲁多援引《紧急状态法》
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188126/)
 
-作者: 纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-台媒3月16日报道，近日美国CNN电台记者，在取得乌克兰内政部许可后，采访了3名俄军战俘。战俘们纷纷表示，他们并不想参加这场侵略战争。
+加拿大温哥华扬帆农场-薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-117.png)图片来源：torontosun.com
+[多伦多太阳报]14日发表社论阐述了对特鲁多2月14日援引对付卡车司机和平抗议进行问责的必要性。依照法律，在法案启用60天后，需要一个委员会对引入该法的理由和该法的使用情况进行调查。特鲁多绝无可能躲避问责，他必须在委员会面前作出回答。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-2.jpg)
+自由车队反强制疫苗，已被不同背景、各行各业的加拿大人视为具有更广泛的意义。许多法律专家认为没有必要引入《紧急状态法》对付抗议活动，援引该法案不能轻率行事，但自由党就这么做了。他们许多宏大的主张几乎未经审查就付诸实施。在无任何法院令，也不管指控的罪名或目标，随意冻结银行账户。一如特鲁多在蓝万灵事件的做派那样，这种超党派做法破坏了加拿大的法治，不能让特鲁多不当使用该法案开先例。
 
-图片来源网络
+调查特鲁多这么做的理由以及证明这一行为的主张，不应被看作小事一桩，这是一个重要的真相和问责机制。
 
-据悉，该采访是由1名CNN记者对3名俄军战俘的形式进行的，乌克兰安全部门也没有派员在场限制和监督。一名叫马辛克的被俘飞行员表示，在普京下令入侵乌克兰的前一天，他才收到秘密作战令，而俄军摧毁和平的城市是犯罪行为。他还透露了其所属的攻击机编队，所使用的都是类似于二战时期的传统炸弹，这恰好证实了美国及北约对俄军使用传统炸弹，误伤平民机率会大幅上升的担忧。
+资料链接：[EDITORIAL: Don’t forget about Emergencies Act inquiry](https://torontosun.com/opinion/editorials/editorial-dont-forget-about-emergencies-act-inquiry)
 
-一位名叫弗拉迪米尔的军官表示，俄罗斯政府欺骗他们说，来乌克兰是为了解放平民。但是他却要告诉俄罗斯军人，请放下武器离开这里，因为每个乌克兰人都只要和平。他还表示当回国的时候，就会起身反抗普京政府。另一名叫阿列克谢的飞行员说，轰炸目标的决定权不在他们，而是俄军上层下达的命令。
+* * *
 
-在另一场记者会中，有数名被俘俄军士兵自述参战过程。一名炮兵称他们的部队陷入沼泽后丢弃装备逃跑，步行数日遭遇乌军而投降。另一名士兵则称，开战后他们就知道了俄军并不是所谓的“维和部队”，但是也不能掉头，因为后面有专门负责枪决逃兵的督战队。当他意识到他的作战目标是非军事目标时，就选择了投降。
+编辑、上传：月亮之上
 
-
-
-相关链接:
-
-[https://news.ltn.com.tw/news/world/breakingnews/3860991](https://news.ltn.com.tw/news/world/breakingnews/3860991)
-
-
-
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

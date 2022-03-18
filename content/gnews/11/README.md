@@ -2,54 +2,36 @@
 ---
 
 
-## 白宫表示美国缺乏针对新冠病毒浪潮的测试和治疗方法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2187930/)
+## 中共国的疫情封锁令全球经济充满不确定性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
 
-评语：***白宫为应对中共病毒COVID-19的资金即将枯竭，希望他们能够早日病毒溯源，为因病毒不幸染病和死亡的人们讨还公道。***
+作者: 纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
 
-据《Washington Examiner》记者 Cassidy Morrison2022年3月15日报道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2059.png)
-拜登政府警告说，国会未能通过额外资金，将严重阻碍该国应对新的 COVID-19 病毒变体的能力。
-COVID-19 测试、疗法和疫苗由联邦政府承担，但白宫周二表示，这三者的分发可能需要突然结束或缩减。高级政府官员告诉记者，用于研发变异特异性疫苗和更多治疗方法的资金也在枯竭。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
 
-“正如政府警告的那样，现在无法为这些努力提供资金将产生严重后果，因为我们将没有能力应对未来的激增。白宫周二在一份声明中说，一旦我们处于激增状态，等待提供资金将为时已晚。
+当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
 
-政府官员还警告说，如果政府卫生官员建议更广泛的人群接种第四剂 COVID-19 疫苗，该国的疫苗供应将会紧张。已经鼓励12 岁及以上的免疫功能低下的人进行第四次注射。白宫表示，疫苗的总供应量足以让免疫系统较弱的人群获得额外的剂量，但不是普通人群。
 
-国内的测试生产规模已经足够扩大，政府官员预计将有足够的产能持续到 6 月。他们还表示，美国目前有足够的辉瑞抗病毒治疗药物来执行政府的“测试治疗”计划，这将使人们在病毒检测呈阳性后立即获得这些药片。但政府只购买了 2000 万剂，没有钱购买更多。
 
-拜登政府因去年未能在美国食品和药物管理局批准治疗之前订购数百万剂辉瑞药丸而受到批评。批评人士说，拜登错过了囤积抗病毒药物的关键机会，在 omicron 激增之前，这种药物在试验中显示出前景，并有望在去年秋天获得授权。大约需要六个月才能完成的药丸制造终于开始迎头赶上。到目前为止，在 omicron 激增开始显示出消退迹象的几周后，已经有大约 700 万个疗程的治疗被送到了各州。
+相关链接:
 
-在去年底开始的 omicron 激增期间，可靠的快速测试也非常难以找到。当人们能够获得一包两个测试时，他们必须自掏腰包支付约 24 美元，并通过保险公司报销的过程。去年初，当疫苗首次广泛使用时，测试的生产量急剧下降。除了激增之间的平静之外，这还导致对测试的需求急剧下降。从那时起，快速测试的生产和可用性有了显着提高。拜登政府今年开始每月免费向家庭运送四次测试，但这些测试是在 omicron 激增之后才到达的。
+[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
 
-政府还警告说，在辉瑞的抗病毒药物上市之前，单克隆抗体治疗的供应严重紧张，这是高危人群避免重病的最佳机会。政府官员表示，从下周开始，各州的治疗分配将减少 30%。这些治疗方法中只有两种，一种来自葛兰素史克和 Vir Biotechnology，另一种来自礼来公司，已被发现可有效保护高危人群免于因 omicron 变体而患上重病。1 月份，美国政府在确定它们对 omicron 无效后从市场上撤下了另外两种治疗方法，使得全国各地的医疗保健提供者争先恐后地获得足够的有效单克隆抗体治疗供应。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-白宫最初要求国会投入 300 亿美元用于支持国家疫苗、治疗剂和测试的供应，但共和党人拒绝了提供更多资金的请求，因为这笔资金不会得到支付。白宫将这一要求削减至 225 亿美元，但最终，国会将缩减的 156 亿美元用于大流行病资金分配。然而，上周，当该党自己的成员不同意如何支付这笔费用时，批准额外支出以应对 COVID-19 的可能性急剧下降。
+编辑: 飞虹
 
-立法者曾计划重新利用分配给各州的超过 80 亿美元未使用的大流行资金，这一提议引发了一些反对联邦政府收回各州所需资金的民主党人的愤怒。
+校正/发稿：Petite abeille
 
-官员们说，政府几周来一直在告诉立法者，资金正在枯竭，但无济于事。上周，白宫新闻秘书 Jen Psaki 表示，资金短缺的影响“非常可怕”。
-
-公共卫生专家还警告说，由于国会已经放弃了白宫对大流行病提供数十亿资金的要求，因此 COVID-19 抗病毒药物、测试和其他治疗药物即将短缺。
-
-“国会需要像以前一样将其视为一项投资，以确保我们有能力。每当我们认为我们理解它时，这种病毒就愚弄了我们，”美国公共卫生协会执行主任乔治·本杰明说。“鉴于对我们社会的数万亿美元的影响，我认为他们要求的金额是没有根据的。”
-
-能够大幅降低高危感染者住院机会的抗病毒治疗供应非常少，而且在接下来的几个月内，随着生产的增加，这种治疗将持续存在。辉瑞公司以 Paxlovid 名义销售的抗病毒治疗疗程非常有效。只要在感染早期服用，它就可以将因严重疾病住院的风险降低约 90%。然而，供应限制意味着并非每个可以从这些药丸中受益的人都能得到它们。
-
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源：[**https://www.washingtonexaminer.com/policy/us-lacks-tests-and-therapeutics-for-covid-19-wave-white-house-says**](https://www.washingtonexaminer.com/policy/us-lacks-tests-and-therapeutics-for-covid-19-wave-white-house-says)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 傻小子
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

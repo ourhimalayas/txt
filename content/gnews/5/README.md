@@ -2,27 +2,35 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月17日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188026/)
+## 拜登严厉批评普京为 &#8220;杀人的独裁者 &#8220;
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2188068/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/NFSC-3.jpg)
+翻译：天天
 
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](https://gnews.org/zh-hans/2182377/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5AA5DB1D-0CC2-41A2-8213-BA7EBD5199D7.jpg)图片来自原文视频截图
 
-音频处理：Fei797
-发稿：Fei797
+17日，美国总统拜登用：“杀人的独裁者”等称呼严厉批评了普京总统。 美国认为俄罗斯的侵略行径构成“战争罪”的观点不断强化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+拜登总统称：“（普京总统）是一个杀人的独裁者。让我们一起反对策动对乌克兰人民的不道德战争的真凶。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+前几天，拜登总统批评普京总统的措词不断强硬，直呼其为“战争罪犯。”
+
+17日，美国国务卿布林肯曾表示，美国将考虑支持ICC（国际刑事法院=International Criminal Court）启动调查（俄罗斯的入侵）是否构成“战争罪”。
+
+国务卿布林肯称“故意以平民为目标就是战争罪。”
+
+同时，白宫宣布，拜登总统和中共国国家主席习近平将于18日就乌克兰局势等问题进行电话会谈。 这是自俄罗斯入侵乌克兰以来美中两国领导人的首次会谈。
+
+**参考资料：**[news.goo.ne.jp][バイデン氏「人殺しの独裁者」プーチン氏を厳しく批判](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022031802822638.html)
+
+* * *
+
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-11.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
