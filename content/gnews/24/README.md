@@ -2,24 +2,89 @@
 ---
 
 
-## 中日财经爆┃去年全球半导体材料市场营收暴增至640亿美元，创历史新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2183723/)
+## 参议员卢比奥：中共国100%站在 普京后面
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2183750/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1949.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=PEC5cDse7EJTbM&amp;imgdii=KTlOz9r5ZMrYxM)
-SEMI (国际半导体产业协会)于今(17)日公布最新半导体材料市场报告(Materials Market Data Subscription, MMDS)中指出，2021年全球半导体材料市场营收成长15.9%，达到643亿美元，超越2020年创下的555亿美元纪录，再缔新猷。
+参议员马可.卢比奥： 毫不怀疑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 站在哪一边 他们100%站在 普京 [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 后面 他们宁愿世界不知道这一点，但这不会阻止他们尽可能多地帮助他（普京）
 
-2021年晶圆制造材料与封装材料营收分别达到404亿美元和239亿美元，较前一年增长15.5%和16.5%。其中，晶圆制造材料市场以矽片（silicon）、湿化学品（wet chemical）、化学机械研磨（CMP）及光罩（photomask）等部门表现最为强势；封装材料市场成长则主要由有机基板（organic substrate）、导线架（lead frames）及打线接合（bonding wire）等部门所带动。
 
-SEMI全球行销长暨台湾区总裁曹世纶表示，2021年全球半导体材料市场惊人的成长主要来自对晶片的强劲需求及业界产能扩大。随着数字转型步伐持续加速，电子产品出现历史罕见的大量需求，于去年调查范围内各地区皆有两位数或极高的个位数成长。台湾因为拥有大规模晶圆代工和封装基地，已连续12年成为全球最大半导体材料消费市场，总金额达147亿美元。年度增长率则是中共国最为亮眼，排名第二；韩国则继续稳居半导体材料第三大消费国。而供应端，全球晶圆代工市场的64%份额都在台湾，其中大部分都被台积电占据。台积电这一家企业就占据了全球过半的晶圆代工市场。
 
-台湾在半导体材料制造和消费市场均占据主导地位，在中共国对台湾的威胁持续升级的情况下，台湾半导体产业将面临严峻考验，直接威胁世界芯片产业链的安全。台湾被中共占领，意味着欧美日将失去最为重要的产业依托，会出现产业大倒退，文贵先生也在大直播中多次强调，中共攻台日即为死亡时，欧美日必将参战。
+> Have ZERO doubt about whose side [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on 
+> 
+> They are 100% behind [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> They would prefer the world not know this, but that will not stop them from helping him as much as they can
+> — Marco Rubio (@marcorubio) [March 17, 2022](https://twitter.com/marcorubio/status/1504587222015569920?ref_src=twsrc%5Etfw)
 
-信息来源： [SEMI：去年全球半導體材料市場營收破640億美元　再創歷史新高](https://finance.ettoday.net/news/2210307)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+
+前国务卿迈克.蓬佩奥： 我担心拜登总统 [@POTUS](https://twitter.com/POTUS) 不会回答 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军费预算的增加，而是喋喋不休地将包容性作为我们军队的最高目标，这是建立一支不基于卓越和作战能力、而以政治灌输军队的准则 【转蓬佩奥发表在华盛顿时报文章：美国未来的安全态势必须阻止独裁统治的进军】
+
+
+
+> I fear that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) won't answer the increase in China’s military budget, but prattle about inclusivity as our military’s highest purpose, which is code for creating a military not based upon excellence & warfighting capacity but political indoctrination.[https://t.co/3HQOy8YGyk](https://t.co/3HQOy8YGyk)
+> — Mike Pompeo (@mikepompeo) [March 17, 2022](https://twitter.com/mikepompeo/status/1504579612822671361?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克尓·麦考尔(众议院军事委员会资深成员）: [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 原本预计在三到四天内接管乌克兰，但 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 人民的反抗意志却出乎所有人的意料。 这就是为什么我一直在敦促拜登总统[@POTUS](https://twitter.com/POTUS) 帮助促成将 S-300 等远程防空系统运送到乌克兰。 时间就是生命。 【附麦考尔议员接受福克斯采访视频】
+
+
+
+> Putin was expected to take over Ukraine in three to four days, but will of the Ukrainian people have defied all expectations. That’s why I’ve been urging [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to help facilitate the transfer of longer-range air defense systems like the S-300 to Ukraine. Time is of the essence. [pic.twitter.com/cTWlKP6ps3](https://t.co/cTWlKP6ps3)
+> — Michael McCaul (@RepMcCaul) [March 17, 2022](https://twitter.com/RepMcCaul/status/1504523255633354755?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔提出了《保护我们的药品供应链免受中共国侵害法案》，该法案将结束美国在药品制造方面对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。 从作者@mikeginsberg98 的文章阅读更多关于此法案的信息：（附文章链接） 【图片中内容： “#中共 曾经威胁过一次，要从美国扣留救生药物，如果我们认为他们不会再尝试这样做，那我们就是疯子。 国会需要一个积极的计划来保护我们关键的药品供应链并结束我们对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。这是国家安全的当务之急，对许多美国人来说，是生死攸关的问题，” -加拉格尔议员说。】
+
+
+
+> Rep. Gallagher introduced the Protecting our Pharmaceutical Supply Chain from China Act, which would end U.S. dependence on China for pharmaceutical manufacturing.
+> 
+> Read more about his bill from [@mikeginsberg98](https://twitter.com/mikeginsberg98?ref_src=twsrc%5Etfw) here: [https://t.co/XqtBLkWyr7](https://t.co/XqtBLkWyr7) [pic.twitter.com/FLcavWnyqm](https://t.co/FLcavWnyqm)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 17, 2022](https://twitter.com/RepGallagher/status/1504535164805955587?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 亨特·拜登的笔记本电脑始终是真实的，但主流媒体和大科技公司却禁止人们谈论它。 【转纽约邮报报道：《纽约时报》的（最新）报道证实了亨特·拜登臭名昭著的笔记本电脑的存在】
+
+
+
+> Hunter Biden’s laptop was always real, but the mainstream media and big tech silenced you for talking about it anyway. [pic.twitter.com/GYxA7Oyrme](https://t.co/GYxA7Oyrme)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 17, 2022](https://twitter.com/MarshaBlackburn/status/1504538136017317893?ref_src=twsrc%5Etfw)
+
+
+
+美国务卿安东尼·布林肯： 我们不仅目睹了克里姆林宫领导的对 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 人民的残酷、暴力攻击，我们还目睹了一场真相与暴政的战争。 正如施瓦辛格[@Schwarzenegger](https://gettr.com/user/Schwarzenegger) 解释的那样，我们不责怪俄罗斯人民，(但) 我们需要你知道你的政府对你隐瞒了什么。 【转斯瓦辛格的推文：我爱俄罗斯人民。 这就是为什么我必须告诉你们真相。请观看和分享。（附视频）】
+
+
+
+> We are not just witnessing a brutal, violent Kremlin-led attack on the Ukrainian people, we are witnessing a war of the truth vs. tyranny. As [@Schwarzenegger](https://twitter.com/Schwarzenegger?ref_src=twsrc%5Etfw) explains, we do not blame the people of Russia, and we need you to know what your government is hiding from you. [https://t.co/QK8zhwsOnR](https://t.co/QK8zhwsOnR)
+> — Secretary Antony Blinken (@SecBlinken) [March 17, 2022](https://twitter.com/SecBlinken/status/1504534544761995266?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 内幕专栏：太平洋将军誓言美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对台湾的任何攻击将会作出强烈反应； 美国米格战斗机可以帮助乌克兰； 海军在朝鲜附近进行航母行动 【附专栏链接】
+
+
+
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Pacific general vows strong US response to any Chinese attack on Taiwan; US MiGs could help Ukraine; Navy conducts carrier ops near North Korea [https://t.co/Pc7c4elsqp](https://t.co/Pc7c4elsqp)
+> — Bill Gertz (@BillGertz) [March 17, 2022](https://twitter.com/BillGertz/status/1504514611692855296?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 拜登害怕普京。这就是我们陷入困境的原因。 拜登的团队正在编造借口，不给乌克兰提供自卫的关键武器。他们在扯皮防御性武器和进攻性武器。事实上，乌克兰使用的所有武器都是为了自卫。
+
+
+
+> Biden is scared of Putin. That's what got us into this mess.
+> 
+> Biden's team is making up excuses not to give Ukraine key weapons to defend themselves. They talk about defensive weapons vs. offensive weapons. In truth, all the weapons Ukraine is using are to defend itself. [pic.twitter.com/ISCTurZA7C](https://t.co/ISCTurZA7C)
+> — Ted Cruz (@tedcruz) [March 18, 2022](https://twitter.com/tedcruz/status/1504637461271511040?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
