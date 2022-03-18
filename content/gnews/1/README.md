@@ -2,20 +2,30 @@
 ---
 
 
-## 七哥專門給習二把脈
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184266/)
+## 特斯拉上海超级工厂因受中共当局防疫干扰被迫关停
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2184307/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-94.jpg)
+特斯拉上海超级工厂（图片来自网络）
 
-*发布：陶子*
+鉴于近期中共病毒疫情四起，中共政府对国内大部分地区采取了更为严格的防疫措施。大量民众被禁锢家中，众多工厂遭到关停。就连特斯拉在上海的工厂也未能幸免。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据《希望之声》3月18日报道，受防疫要求影响，特斯拉在上海的工厂被要求暂停生产，这或将对企业的供应链产生严重影响。
+
+特斯拉上海超级工厂是其主要工厂之一。根据中共国乘用协会的数据，该工厂在2月份交付了超过5.6万辆汽车，其中有超过3.3万辆是用于出口。
+
+自今年3月以来，包括上海在内的中共国多个省市都在进行大规模检测，办公场所也成为重点排查区。本周，特斯拉宣布，上海工厂的生产暂停两天。
+
+特斯拉在其发布的声明中表示，目前企业正在配合政府要求，进行核酸检测等措施，并将尽最大努力保障生产。
+
+《华尔街日报》的报道指出，北京（中共）对疫情的控制，可能会导致投资者的高度不安。工厂的大面积关闭，以及贸易可能受到的干扰，都不利于金融市场的发展。
+
+新闻链接：
+
+[https://www.soundofhope.org/post/604034](https://www.soundofhope.org/post/604034)
+
+* * *
 
  
 

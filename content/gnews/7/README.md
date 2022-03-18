@@ -2,8 +2,8 @@
 ---
 
 
-## 习二的疯狂想法：人民币国际化征服美欧
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184219/)
+## 为了钱什么都不要
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184244/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

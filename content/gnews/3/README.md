@@ -2,20 +2,30 @@
 ---
 
 
-## 为了钱什么都不要
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184244/)
+## 西方制裁重创俄罗斯经济 普京被迫承认遭到重大打击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2184275/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+**作者:  **青衣
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-202.jpg)
+（图片来自网络）
 
-*发布：陶子*
+俄罗斯总统普京无视美欧等西方国家的一再警告，悍然发动对乌克兰的侵略战争。普京或许赌的是西方国家不会团结一致对俄祭出最严厉制裁，然而普京误判了。如今，普京不得不承认，西方制裁已重创俄罗斯经济。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据《希望之声》3月18日报道，俄罗斯总统普京在与政府官员举行视频会议前发表讲话，承认西方的制裁已经对俄罗斯经济造成重大打击。
+
+普京表示，来自外界的制裁是“新的现实”，政府因此需要进行深层次结构改革。他还指出，俄罗斯将要进行的改革并不容易，会导致通货膨胀和失业率“暂时”上升。
+
+普京在讲话中虽然宣称西方的经济闪电战已经“失败”，但他同时也承认外界可能将会进一步增加施压的力度。
+
+《华尔街日报》在3月17日的报道中指出，目前外界制裁的影响，已经让俄罗斯承受了巨大的后果：物价迅速飞涨；银行提不出钱；工厂被迫关闭，失业率飙升，卢布严重贬值……一系列的冲击不仅导致俄罗斯通胀失控，并且俄政府还面临债务违约的风险。
+
+普京虽声称将采取一系列措施来缓解制裁带来的冲击， 但外界普遍认为，如果普京不停止侵乌战争，制裁的冲击风暴将会来得更为猛烈，而俄罗斯经济将会彻底崩塌。
+
+新闻链接：
+
+[https://www.soundofhope.org/post/604013](https://www.soundofhope.org/post/604013)
+
+* * *
 
  
 

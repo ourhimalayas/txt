@@ -2,25 +2,20 @@
 ---
 
 
-## 视频|在新中国联邦援助下，乌克兰夫妇顺利抵达美国
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184160/)
+## 视频|欧盟通过数字货币监管新草案
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184169/)
 
 制作：香草山视频部
 
-一周前，乌克兰夫妇Lidiia 和 Volodymyr，乘坐新中国联邦和法治基金的救援大巴，从乌克兰利沃夫安全抵达波兰克拉科夫。3月15日，在前线战友的陪同下，他们完成入境美国需要的新冠PCR检测。16日，在新中国联邦、法治基金和全体救援团队的帮助下，这对夫妇顺利搭上飞往美国纽约的航班。在随后的采访中，Lidiia表示希望能回到热爱的故乡，重建家园。
+3月14日，欧盟议会的经济和货币事务委员会以31票赞成、4票反对、24票弃权，通过了数字货币市场监管的框架草案。该草案包含数字货币的发行和交易，并承诺通过成员国之间的有效许可证，来确保相关企业在成员国之间全面通行。此外，协议中还包括一系列打击市场操纵、洗钱、恐怖主义融资和其他犯罪活动的措施。
+这是欧盟具有里程碑意义的一个框架草案，它预示欧盟数字货币全面监管法案正在快速完善。
 
-视频链接：https://gettr.com/post/p10ei0xac53
-
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+发稿：文敬
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
