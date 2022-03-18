@@ -2,45 +2,31 @@
 ---
 
 
-## 4月1日起入境加拿大 无需出示病毒测试证明
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2184754/)
+## 中共国房地产巨头阳光城境内境外债同时违约
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2184877/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-加拿大广播公司新闻获悉，加拿大联邦政府将于周四宣布，将在本月底前结束对完全接种疫苗的旅行者的入境前 中共病毒测试要求。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-116.png)
+据《大纪元》3月18日报道，中共国房地产巨头阳光城集团股份有限公司的境内境外债同时出现实质性违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-205.jpg)（图片来自AFP）
+据报道，中国建设银行3月16日发布公告，阳光城集团股份有限公司（简称“阳光城”）规模6亿人民币的中期票据“20阳光城MTN001”3月15日到期应付，但发行人未能按期足额支付利息或兑付本金，构成实质性违约。
 
-知情人士证实，加拿大正在取消机场和陆路过境点的检测要求。卫生、交通和旅游部长将于周四上午举行新闻发布会，宣布边境措施的变化。
+与此同时，阳光城控股股东福建阳光集团有限公司（简称“阳光集团”）公告，存续金额1.06亿美元的境外债券“YANGOG 12.5 02/20/22”本息实质违约，存续金额3亿美金的“YANGOG 12.5 01/04/24”利息实质违约，应付利息金额1875万美元。
 
-目前，进入该国的旅客必须在飞行或抵达边境之前出示抗原或分子检测阴性的证明。
+另据《中国基金报》报导，未来一年内，阳光城几乎每个月都有债券到期，控股股东阳光集团情况也类似，而且到期日更为集中。由于前述两只境外债券违约很可能触发其它离岸融资项目的加速偿还，3月11日阳光集团称正在评估资产和预期现金流，制定整体重组计划。
 
-消息人士称，对完全接种疫苗的旅行者的检测要求将在 4 月 1 日之前取消。
+然而，阳光城在回复深交所问询函中称，公司可动用资金占账面资金比例不足1%，现金已经枯竭。
 
-此举是在疫情大流行两年后开始的，随着旅行人数的不断增加，各省和地区结束了涉及疫苗护照、聚会和口罩的限制。
+另外，在美元债方面，3月18日本金2276万美元的“SUNSHI 10 1/4 03/18/22”也到期。目前阳光城存续美元债一共有8笔，合计规模22.18亿美元。
 
-消息人士称，联邦政府将继续对抵达加拿大的旅客进行随机测试，以识别和追踪变异毒株。
-
-周三，加拿大总理特鲁多在安大略省艾利斯顿发言称，没有明确检测制度何时结束，但建议将取消更多的病毒限制措施。
-
-麦克马斯特大学传染病专家兼副教授表示，取消检测是明智之举，因为一旦奥米炕波及加拿大，这种疾病就会非常普遍，以至于在边境进行的检测基本上变得毫无意义。
+此前，阳光城2月7日已发布公告，因净利润大幅亏损，该公司主体信用等级被东方金诚国际信用评估有限公司下调评级展望为负面。
 
 参考链接：
+[https://www.epochtimes.com/b5/22/3/17/n13654087.htm](https://www.epochtimes.com/b5/22/3/17/n13654087.htm)
 
-- [Federal government to end pre-arrival COVID testing for travellers entering Canada](https://www.cbc.ca/news/politics/federal-government-to-drop-pre-departure-testing-1.6386763)
+总编：老孙
+校对发布：爱放飞
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

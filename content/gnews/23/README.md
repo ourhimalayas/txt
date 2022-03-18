@@ -2,43 +2,27 @@
 ---
 
 
-## 不惧中共武力威胁，台湾将继续捍卫其主权和民主
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2184884/)
+## 中共将死的鸭子嘴硬
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185291/)
 
-翻译：li yan li
-编辑：文泓
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-38.jpg)
+图片来源于网络
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-76.png)图片来源：雅典娜设计组
+俄罗斯外交部发言人扎哈罗娃当地时间17日在记者会上对此痛批。她说，沙利文发表的此类言论“蛮横无理”，应该将这些言论视为“华盛顿帝国主义和霸权野心的又一体现”，以及“试图干涉主权国家内政和随意采取违背国际关系体系准则的非法限制措施的又一体现”。扎哈罗娃还表示，“能够威胁像俄罗斯和中国这种大国的沙利文还未出生呢。这是近年来美国政治精英典型的蛮横无理的行为，我再无法用其他语言形容这一行为。只是好为人师的腔调如今已经被美国高官的威胁所取代，这些威胁已不足为奇，但让人感到愤怒。最主要的是，这些威胁导致无法与他们继续通过以前的模式进行对话。”报道称，扎哈罗娃还称，中俄关系具有独立价值和强大内生动力，不受国际风云变幻影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-30.jpg)
+[图片来源](https://baijiahao.baidu.com/s?id=1727554894866222470&amp;wfr=spider&amp;for=pc)：
 
+中国外交部发言人赵立坚表示，中方在乌克兰问题上的立场是一贯的、明确的。中方始终本着客观公正态度，根据事情本身的是非曲直，独立自主地作出判断，表明主张。在乌克兰问题上，任何抹杀中方努力、歪曲中方意图、造谣抹黑中国的虚假信息，目的都是转嫁矛盾、挑动对抗、借机渔利，既不负责，也不道德。赵立坚还表示，制裁从来不是解决问题的有效途径。中方反对美方任何形式的单边制裁和“长臂管辖”，将坚决维护中国企业和个人的合法权益。
 
-3月17日，据天空新闻报道，台湾外交部长吴钊燮说，习近平的统一意图将导致中共国对台湾和印度洋-太平洋其他地区“施加他们的威权观点”。吴钊燮对中共国试图（武力）统一台湾这个东亚国家发出了严重警告。
+普习二人的态度全权由这个两个外交部的丑恶嘴脸展现的淋漓尽致，中共一贯的嘴硬，全世界都在谴责和惩罚俄罗斯时，中共还在含沙射影的表达，虚张声势的态度在为墙内的老百姓树立所谓的大国形象，中共维护中国人和企业的利益。当乌克兰战争爆发了20多天，中共的外交部和俄罗斯的外交部都是嘴最硬，说着最硬的话，干着最龌龊的事，这两个独裁的国家政府必将被扫进历史的垃圾堆。
 
-在接受天空新闻的独家采访时吴钊燮先生说，无论中共国的军事力量多么强大，台湾将继续捍卫其主权和民主。
+消息来源：[**能威胁俄中这种大国的沙利文还没出生呢！**](https://baijiahao.baidu.com/s?id=1727554894866222470&amp;wfr=spider&amp;for=pc)
 
-这位台湾的外交部长说，中共国希望通过所谓“统一中国”来改变“国际秩序”。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
 
-面对这个挑战，台湾必须非常坚定地抵制威权主义的扩张，台湾将非常努力地战斗，不仅要保护台湾的主权，还要保护台湾的自由民主的生活方式。
-
-外交部长承认习近平和他的官员“不断谈论统一”，并说台湾已受到了实质的军事胁迫。
-
-他说：“有一个指标，就是中共不断空中入侵我们的防空识别区（ADIZ），仅去年一年，他们就有近1000架次的飞机侵入我们的防空识别区，这非常具有威胁性。”
-
-“除此之外，中共PLA越来越强大的海军部队，他们一直在台湾周围进行演习，还针对台湾部署相当数量的导弹。”
-
-针对这些军事活动，吴先生承认台湾需要做好准备，并已开始与“志同道合的国家”就中共国的威胁和台湾建立最佳防御进行对话。
-
-外交部长说，台湾有责任有决心保护台湾的主权、民主和领土。
-
-新闻链接：[Taiwan Foreign Minister Joseph Wu says Chinese President Xi Jinping wants to ‘change the international order’](https://www.skynews.com.au/world-news/china/taiwan-foreign-minister-joseph-wu-says-chinese-president-xi-jinping-wants-to-change-the-international-order/news-story/1f7065871e15f0e0d41eca0c4d7e66fe)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
