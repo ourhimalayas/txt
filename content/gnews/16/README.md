@@ -2,27 +2,42 @@
 ---
 
 
-## 新中国联邦援乌营地摄制组越来越专业
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182704/)
+## 新中国联邦乌克兰救援行动在乌克兰的救援中心引起了国际关注
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2182783/)
 
-**作者、编辑：Candy**
-**摄影：煤油灯（网名）**
+PR Free新闻网站3月17日消息，**总部设在纽约的非盈利组织、新中国联邦乌克兰救援行动，在波兰梅迪卡边境的国际难民救援中心引起了世界的关注。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/255994_220317004708-073373-1-e1647556178524.jpg)
+随着俄罗斯对乌克兰的非法入侵，数以百万计的难民正试图逃离乌克兰。
 
-在此非常感谢加拿大的煤油灯战友，通过他的照相机为我们展示了新中国联邦和法治基金，驻波兰梅迪卡国际人道主义救援中心营地、我们的摄制组的工作环境和工作情况。摄制组由明道战友负责，小组成员来自新中国联邦在全球的各个农场，有两个机位，才三、五个人。他们冒着被中共病毒感染的风险，在寒冷的天气里，捕捉着营地上的焦点。负责二号机位的扬帆农场的亦珊战友，为了保证随时与后方连线，必须一直站在机位旁，只有必须离开机位时才找其他战友临时帮一下忙。
+据报道，**一支由数百名新中国联邦志愿者和32辆救援巴士的特殊救援队伍，代表着法治基金(ROLF)和新中国联邦(NFSC)，在波兰边境的梅迪卡国际难民救援中心，该中心每天24小时对外开放**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/UKRAIN-RESCUE-1.png)
+**截至2022年3月16日，他们已经解救了1625名难民**，其中包括乌克兰妇女、儿童、美国人和来自许多国家的人。
 
-自从明道和战友们一起开始安装调试了星链Wi-Fi，天气较好的时候，信号相对稳定很多。为前、后方的及时连线、传递信息起到了不可估量的作用。但在温度太低的情况下，尤其是零摄氏度以下时，计算机、充电器、充电宝不能正常工作，或者其它原因导致信号不稳，中断连线等情况发生。
+报道称，**新中国联邦救援队为难民和国际志愿者组织的成员搭建了一个巨大的难民帐篷。**2022年3月14日，**首届国际救援大会在新中国联邦和法治基金搭建的舒适的人道主义救援帐篷中举行。**会议为有系统地协调梅迪卡难民营的国际救援任务奠定了基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/国际救援组织开会-2.png)
+一名新中国联邦志愿者Nicole在接受波兰当地媒体采访时说，**我们致力于打倒中国共产党，因为中国共产党是全球所有灾难的根源。**
 
-从图片中可以看出，虽然战友们是首次合作，但他们分工协作得特别出色，也表现得越来越专业，为观众们传递了非常丰富的前线资讯。
-![此图像的alt属性为空；文件名为摄制组2.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%91%84%E5%88%B6%E7%BB%842.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/Nicole.jpg)
-在此衷心地向战斗在救援营地的战友们说一声：你们辛苦了，注意防疫、保重身体！愿战争早日结束，热爱和平的人们早日返回家园！
+报道指出，在梅迪卡救援中心工作的**新中国联邦志愿者不是来自中国共产党统治下的中国人。他们是来自民主世界爱好和平的人**，**代表着新中国联邦（NFSC）和法治基金（ROLF）。**
 
-***发布：Candy***
+新中国联邦完全对立于中国共产党，有承诺和决心打倒邪恶的中共，拯救数十亿生活在其统治下、没有人权、平等和民主的中国人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/l0b7rhe6ddqspwr7btlr-1.jpg)
+法治基金会的使命是通过人道主义援助和民主支持，把中国人民从邪恶的中共的镇压中解放出来。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+报道中称，**新中国联邦志愿者向世界展示了中国人民无条件的爱和人道主义新形象。中共从不尊重生命，**正因为如此，当代中国人民在关键时刻挺身而出，用相互理解、尊重和信任与世界联系起来，帮助有需要的人，支持失去家园的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/euairxatud6skzojodya-1.jpg)
+新中国联邦志愿者小Sarah在她的社交媒体中写道**”“我们新中国联邦人和乌克兰人民站在一起，因为我们热爱和平和尊重人权，”**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj-1-1.png)
+小编评论：
+
+**新中国联邦的善行义举已经得到全世界人民的认可，只要是本着客观公正，支持正义立场的新闻媒体，都应该会报道我们的正义行动。**
+
+**新中国联邦人在乌克兰救援行动中**，为全世界的中国人乃至亚洲人树立了一个有口皆碑的正义形象，并且赢得全世界的尊重。
+
+新中国联邦法制基金的行为与邪恶中共支持侵略，对同胞和身处战区的难民毫无怜悯之心和冷血，形成了巨大反差。毫无疑问，**我们在这条特殊的战线上对中共形成巨大威胁，并给其带来巨大打击。**
+
+新闻来源链接：
+
+[https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html](https://www.prfree.org/news-new-york-based-non-profit-ukraine-rescue-operation-catches-attention-at-the-international-refugee-rescue-center-at-the-medyka-border-of-poland-1068530.html)
 
  
 

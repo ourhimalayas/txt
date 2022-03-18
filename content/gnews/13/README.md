@@ -2,25 +2,21 @@
 ---
 
 
-## 【 G时新闻 】俄罗斯即将掀起大规模债务违约潮
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2182763/)
+## 救援遇到的困难和机遇
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2183035/)
 
-播报：加拿大温哥华扬帆农场 – yuyu
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-视频制作：加拿大温哥华扬帆农场 – 文所未闻
+*发布：陶子*
 
-据加拿大《金融邮报》3月15日报道，自俄罗斯上月发起侵乌战争以来，该国经济迅速下滑、货币开始崩溃，其债务被评估机构降至垃圾级别。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-据悉，俄政府表示其所有债务都将偿还，但因被国际社会制裁而无法使用美元支付，该国政府及其所属公司（包括俄罗斯天然气工业股份公司、卢克石油公司和俄罗斯储蓄银行）所欠的约1500亿美元外币债务将出现违约潮。
-
-报道称，该违约浪潮将给多家国际货币投资管理公司带来噩梦，包括贝莱德公司和太平洋投资管理公司。其影响可能波及养老基金、教育基金等投资组合。
-
-视频链接：[https://gettr.com/post/p10d87v7afa](https://gettr.com/post/p10d87v7afa)
-
-发稿：野草
-
-————————————————————————————————————
-![](https://assets.gnews.org/wp-content/uploads/2022/03/加载内容.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

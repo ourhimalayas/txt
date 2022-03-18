@@ -2,30 +2,16 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月17日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2182377/)
+## 五月花简报（03/17/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2182434/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
+编辑：波士顿五月花—-冲天一怒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-17.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/03/183746CB-C7B1-48EC-849E-A7A676FDDFC3.jpeg)
 
-视频参看：
-[2022.03.17 《NFSC新闻》](https://gettr.com/streaming/p10gf3o9d08)
-[2022.03.17早《NFSC新闻访谈》](https://gettr.com/streaming/p10gzlwbcdc)
+*发布：思澈*
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场NFSC-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场NFSC-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

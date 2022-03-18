@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 1:27 AM (UTC)`
+
+3/17/2022 Miles Guo: The West has realized that they should seize the overseas state-owned assets of the CCP ASAP. Changpeng Zhao will be finished, but the Himalaya Coin will be the cleanest and greatest digital currency. Many Hong Kong people have bought the Himalaya Coin recently. Xi daydreams that the COVID vaccine disaster and worldwide financial collapse will bring the CCP its best moment, which, however, will become Xi’s nightmare.<br/><br/>3/17/2022 文贵直播：西方意识到要尽快查封中共在海外的国有资产；赵长鹏会完蛋，喜币将成为全世界最伟大、最干净的币，最近港人大量买喜币；习幻想疫苗灾难和世界金融崩溃将带来中共最美好的时刻，但这却会成为他的噩梦<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/18/01/a74a1afb-04ae-95e3-3fde-5e4630a070c5/out.jpg)
+
+---
+
 `@miles 3/18/2022 12:49 AM (UTC)`
 
 3/17/2022 Miles Guo: It is recommended that the US pass legislation after this May to demand all the information about the virus from the CCP, otherwise the US should impose economic sanctions on the CCP as it did on Russia and seize the CCP's assets overseas.<br/><br/>3/17/2022 文贵直播：建议美国在今年五月份以后通过立法要求中共提供所有关于病毒的信息，否则将像对待俄罗斯一样对中共进行经济制裁，并查封中共在海外的资产<br/>
@@ -150,13 +157,6 @@ It is common knowledge that Putin fights Ukraine, and Xi Jinping fights Taiwan.E
 
 Chinese Communist Party Again Deliberately Undermines NFSC Rescue<br/>中国共产党再次蓄意破坏新中国联邦救援行动
 ![img](https://media.gettr.com/group23/origin/2022/03/17/13/e02e81d8-3c6d-ab38-cae0-1e295ddb9dda/out.jpg)
-
----
-
-`@miles 3/17/2022 1:44 PM (UTC)`
-
-3/15/2022 Miles Guo: Hong Kong, as an international financial city, used to show to the world that Chinese people deserve democracy, rule of law and freedom; however, the Chinese Communist Party completely turned Hong Kong into a dead city by: (1)  symbolically dispatching PLA in Hong Kong, (2) taking over Hong Kong Stock Exchange, and (3) taking over HK Legislative Council<br/><br/>3/15/2022 文贵直播：香港曾向世界展示中国人有能力拥有民主、法治和自由，但中共通过以下三件事：1）解放军要象征性进驻；2）拿下香港交易所；3）拿下香港立法委，彻底把香港变成死港<br/>
-![img](https://media.gettr.com/group23/getter/2022/03/17/05/6b63af54-d906-425d-3006-c9d47b19140a/out.jpg)
 
 ---
 
