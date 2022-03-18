@@ -2,16 +2,13 @@
 ---
 
 
-## 20220317郭文贵大直播 ：乌克兰人民的英勇战斗征服了全世界
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184792/)
+## 【乌克兰救援】新中国联邦和法治基金的救援大巴从乌克兰救人到波兰
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2184850/)
 
-作者：东京樱花团小视频组
+【乌克兰救援】03/13/2022 我们新中国联邦和法治基金的救援大巴从乌克兰救了很多人到波兰，包括小至3天大的新生婴儿和从被俄罗斯军队包围的东北战区撤离的难民。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

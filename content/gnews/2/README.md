@@ -2,26 +2,22 @@
 ---
 
 
-## 中日财经爆┃平安保险利润暴跌29% 创次贷危机以来最大降幅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185182/)
+## 中共将死的鸭子嘴硬
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185291/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-35.jpg)
-[图片来源](https://www.google.com/search?q=%E5%B9%B3%E5%AE%89%E4%BF%9D%E9%99%A9&amp;tbm=isch&amp;ved=2ahUKEwiaubLzp8_2AhUx67sIHSP5ArAQ2-cCegQIABAA&amp;oq=%E5%B9%B3%E5%AE%89%E4%BF%9D%E9%99%A9&amp;gs_lcp=CgNpbWcQAzIHCCMQ7wMQJzIFCAAQgAQyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBhQAFgAYLoOaABwAHgAgAFRiAFRkgEBMZgBAKoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=HUw0Ytq2HLHW7_UPo_KLgAs&amp;bih=568&amp;biw=1349&amp;hl=zh-CN#imgrc=NQHX_Enep9sN-M&amp;imgdii=nkbOCO3woyoflM)
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-38.jpg)
+图片来源于网络
 
-3月17日，平安保险公布 2021年全年财务业绩报告显示，净利润暴跌29%至人民币1016亿元，为2008年以来最大降幅。
+俄罗斯外交部发言人扎哈罗娃当地时间17日在记者会上对此痛批。她说，沙利文发表的此类言论“蛮横无理”，应该将这些言论视为“华盛顿帝国主义和霸权野心的又一体现”，以及“试图干涉主权国家内政和随意采取违背国际关系体系准则的非法限制措施的又一体现”。扎哈罗娃还表示，“能够威胁像俄罗斯和中国这种大国的沙利文还未出生呢。这是近年来美国政治精英典型的蛮横无理的行为，我再无法用其他语言形容这一行为。只是好为人师的腔调如今已经被美国高官的威胁所取代，这些威胁已不足为奇，但让人感到愤怒。最主要的是，这些威胁导致无法与他们继续通过以前的模式进行对话。”报道称，扎哈罗娃还称，中俄关系具有独立价值和强大内生动力，不受国际风云变幻影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-30.jpg)
+[图片来源](https://baijiahao.baidu.com/s?id=1727554894866222470&amp;wfr=spider&amp;for=pc)：
 
-保费收入低迷，寿险保费收入同比下降4.1%至4903亿元，非寿险保费收入同比下降5.5%至2700亿元。
+中国外交部发言人赵立坚表示，中方在乌克兰问题上的立场是一贯的、明确的。中方始终本着客观公正态度，根据事情本身的是非曲直，独立自主地作出判断，表明主张。在乌克兰问题上，任何抹杀中方努力、歪曲中方意图、造谣抹黑中国的虚假信息，目的都是转嫁矛盾、挑动对抗、借机渔利，既不负责，也不道德。赵立坚还表示，制裁从来不是解决问题的有效途径。中方反对美方任何形式的单边制裁和“长臂管辖”，将坚决维护中国企业和个人的合法权益。
 
-据该公司称，“2009年，各国复杂严峻的经济形势以及中共病毒（新冠病毒Covid-19）感染的再度扩大，增加了人们收入前景的不确定性。”
+普习二人的态度全权由这个两个外交部的丑恶嘴脸展现的淋漓尽致，中共一贯的嘴硬，全世界都在谴责和惩罚俄罗斯时，中共还在含沙射影的表达，虚张声势的态度在为墙内的老百姓树立所谓的大国形象，中共维护中国人和企业的利益。当乌克兰战争爆发了20多天，中共的外交部和俄罗斯的外交部都是嘴最硬，说着最硬的话，干着最龌龊的事，这两个独裁的国家政府必将被扫进历史的垃圾堆。
 
-保险销售人员减少，新增寿险和医疗险销售额下降23.6%至379亿元。预计未来销售人员数量将进一步减少。
-
-截至去年，投资华夏幸福房地产开发的敞口为540亿元人民币。
-
-有分析人士指出，平安保险在房地产领域的敞口要大得多，市场低估了它。
-
-消息来源:**[中国平安保険、通期は29％減益　保険料収入が低迷](https://jp.reuters.com/article/ping-an-ins-results-idJPKCN2LF0E0)**
+消息来源：[**能威胁俄中这种大国的沙利文还没出生呢！**](https://baijiahao.baidu.com/s?id=1727554894866222470&amp;wfr=spider&amp;for=pc)
 
 编辑：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
