@@ -2,42 +2,28 @@
 ---
 
 
-## 亚裔在纽约无故遇袭，嫌犯被控仇恨犯罪
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2184844/)
+## 莫德纳首席执行官疫情间卖出4亿美元自家股
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2185759/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国纽约州Yonkers市一名67岁亚裔女子被不认识的男子Tammel Esco尾随跟踪并趁其不备暴力殴打。
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-01-17t094714z1195135065rc2i0s9m2y44062992.jpg)小小瓶的冠病疫苗，让班塞尔成为大大的亿万富豪。（路透社）
+（早报讯）生产冠病疫苗的美国药厂莫德纳（Moderna）首席执行官班塞尔（Stephane Bancel），过去两年多的冠病疫情期间，总共出售了超过4亿美元的莫德纳股票，肯定晋升为亿万富豪行列。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-100.png)
+根据莫德纳过去呈报给美国证券交易委员会（SEC）的文件显示，从2020年1月到现在，班塞尔就已经减持了总值达4亿零800万美元的莫德纳股票。
 
-美国纽约再传亚裔女性被仇恨攻击事件，一名67岁亚裔妇女11日傍晚返家时，在公寓前遭到陌生男子狂揍猛踹、拳打脚踢超过125下，还被骂「亚洲婊子」等脏话，所幸妇人伤势稳定，男子也被逮捕。
+美国消费者新闻与商业频道（CNBC）引述，高管薪酬数据公司Equilar也独立验证了班塞尔的股票交易，证实班塞尔的股票出售过程是符合2018年SEC采用的10b5-1条规。
 
-根据公寓的监视器画面，亚裔女子推开公寓1楼大门、推着推车进入大厅，当她拿出钥匙准备进门时，身材高大的非裔男子艾斯科突然从后头闯入大厅，举起右手重重地往女子的后脑打去，女子瞬间瘫软倒地，接着他两手左右开弓，一共揍了妇人125拳，外加7记猛踹，之后还向倒地的受害者吐痰。
+根据该报告，莫德纳的股价在冠病疫苗成功问市之后就开始飙升。班塞尔也就因此已经成为了亿万富翁。而且以截至今年3月1日的公司股权报告来计算，单单班塞尔持有的剩余股票的净值，估计就已经超过53亿美元。
 
-纽约州韦斯切斯特郡（Westchester County）检察官表示，妇人被打到脑出血、骨折，脸部破裂，头部及脸上也多处挫伤，所幸送医后伤势稳定。
+班塞尔在去年即将结束前，也曾以每股243.42美元的平均价格，总共出售了1万股莫德纳股票。单是这项局内人交易总值达243万4200美元。
 
-艾斯科在攻击事件后已被捕，13日他被控二级伤害及二级谋杀未遂等罪名，不过昨14日韦斯切斯特郡地区检察官又加重他的罪名，将两项指控提升至仇恨犯罪（hate crime）。
+在2020年1月之前，莫德纳股价一直都是在20美元的区域波动的。当疫情扩大之后，因为莫德纳的疫苗受到广泛接受，其股价更是一度飚高到2021年9月份的月450美元。该股隔夜闭市报168.26美元，跌1.10美元。
 
-扬克斯市警察局说艾斯科前科累累，先前已经被逮捕过14次，还有多项被定罪的纪录，先前犯过的罪行包括刺伤别人等。 同栋公寓的住户沙巴杰（Sken Shabaj）形容受害妇人人缘佳，是个非常、非常好的人，有2名女儿，丈夫已经过世，生前是邮差。
+参考连结：[https://www.zaobao.com.sg/realtime/world/story20220318-1253499](https://www.zaobao.com.sg/realtime/world/story20220318-1253499)
 
-参考链接：
+审核校对：Barry Jack
+上传排版：F
 
-- [Yonkers man hit with hate crime in ‘appalling’ attack on Asian woman](https://nypost.com/2022/03/14/yonkers-man-hit-with-hate-crime-in-attack-on-asian-woman/)
-- [Man arrested in violent hate-crime beating of Asian woman in Yonkers](https://www.youtube.com/watch?v=H0KWPqUBGUQ)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

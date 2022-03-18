@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 1:29 PM (UTC)`
+
+<br/>3月18号：尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！
+![img](https://media.gettr.com/group3/getter/2022/03/18/13/167b1ce9-c068-bb4a-60d3-ff40d5a788f8/out.jpg)
+
+---
+
 `@miles 3/18/2022 12:59 PM (UTC)`
 
 2022.03.18 早《新中国联邦新闻访谈》俄罗斯和乌克兰 三大不可能；习一定会打台湾；若中共支持俄罗斯侵略，将为此付出代价；中共所谓“清零“政策，疫情情况；俄乌战争，西方国家真正在乎：经济、权力
@@ -147,13 +154,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-17
 ![img](https://media.gettr.com/group4/origin/2022/03/17/21/169404ec-fb6a-687b-a00d-381216c435b5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/17/2022 9:57 PM (UTC)`
-
-3/17/2022 Miles Guo: Here is the key intelligence I received this morning. The US and Europe are very likely to unfreeze Putin's personal assets, guarantee his personal safety, and refrain from personal attacks on Putin in exchange for a truce. Putin has taken his girlfriend and sons back to Russia, and it is possible that Putin will withdraw his troops.<br/><br/>3/17/2022 文贵直播：文贵今早获得了重要情报，美欧或将通过解封普京个人资产、保证其安全以及不进行个人攻击来换取停战；普京已将其女朋友和儿子接回俄罗斯，普京有可能撤军<br/>
-![img](https://media.gettr.com/group44/getter/2022/03/17/21/42225730-78c7-48f2-1788-82af2f1b86d8/out.jpg)
 
 ---
 
