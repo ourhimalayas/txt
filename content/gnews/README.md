@@ -15,68 +15,68 @@
 
 ---
 
-### [有声|中共持续扰台 入侵野心人尽皆知](/content/gnews/1/README.md)
+### [DC大中华时事：习称尽快遏制疫情扩散蔓延势头](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【G时新闻】加拿大通货膨胀将创30年之最](/content/gnews/2/README.md)
+ ` G-时新闻`
+
+### [有声|弹钢琴的英雄传递爱与温柔](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照](/content/gnews/2/README.md)
+### [有声|中共持续扰台 入侵野心人尽皆知](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜习通话 美国警告中共支持俄罗斯将面临制裁](/content/gnews/3/README.md)
+### [拜习通话 美国警告中共支持俄罗斯将面临制裁](/content/gnews/6/README.md)
  ` 蓝莲花农场`
 
-### [凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见](/content/gnews/4/README.md)
+### [凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国致力加强台湾不对称作战能力](/content/gnews/5/README.md)
+### [美国致力加强台湾不对称作战能力](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [3/18/2022 文贵盖特：中共支持俄罗斯打乌克兰让美国人不舒服了，但是对不起，我们是新中国联邦人，共产党不能代表我们中国人；中共有今天也是拜华尔街所赐，但最终港币、人民币一定会成冥纸](/content/gnews/6/README.md)
+### [3/18/2022 文贵盖特：中共支持俄罗斯打乌克兰让美国人不舒服了，但是对不起，我们是新中国联邦人，共产党不能代表我们中国人；中共有今天也是拜华尔街所赐，但最终港币、人民币一定会成冥纸](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵精品视频-政治经济金融策略的大师也是行动的巨人](/content/gnews/7/README.md)
+### [郭文贵精品视频-政治经济金融策略的大师也是行动的巨人](/content/gnews/10/README.md)
  ` cindy`
 
-### [文•贵天成——文贵先生谈“G-News”（五）](/content/gnews/8/README.md)
+### [文•贵天成——文贵先生谈“G-News”（五）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [3/18/2022 文贵盖特：战友们要万分小心中共病毒！香港绝大多数人是打了3针疫苗后染上了混合型病毒；新中国联邦乌克兰救援前线经常出现中共驻波兰大使馆派的人，他们是来放毒的吗？](/content/gnews/9/README.md)
+### [3/18/2022 文贵盖特：战友们要万分小心中共病毒！香港绝大多数人是打了3针疫苗后染上了混合型病毒；新中国联邦乌克兰救援前线经常出现中共驻波兰大使馆派的人，他们是来放毒的吗？](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [Nicole对Newsweek 《新闻周刊》驻波兰记者Renata Kim的采访](/content/gnews/10/README.md)
+### [Nicole对Newsweek 《新闻周刊》驻波兰记者Renata Kim的采访](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [海牙国际法院裁定俄罗斯应立即停止对乌克兰的军事行动](/content/gnews/11/README.md)
+### [海牙国际法院裁定俄罗斯应立即停止对乌克兰的军事行动](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|乌克兰中国留学生亲述新中国联邦救援经历](/content/gnews/12/README.md)
+### [有声|乌克兰中国留学生亲述新中国联邦救援经历](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [我们在这里提供帮助](/content/gnews/13/README.md)
+### [我们在这里提供帮助](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文•贵天成——文贵先生谈“G-News”（四）](/content/gnews/14/README.md)
+### [文•贵天成——文贵先生谈“G-News”（四）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【粤语配音】2022年3月18日：我们很快就会在盘古龙头相聚](/content/gnews/15/README.md)
- ` MOS香港部`
-
-### [文•贵天成——文贵先生谈“G-News”（三）](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [五月花简报（03/18/2022）](/content/gnews/17/README.md)
+### [五月花简报（03/18/2022）](/content/gnews/18/README.md)
  ` mayflowertranslate`
 
-### [【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果](/content/gnews/18/README.md)
+### [【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美参议员决力拿掉福奇的乌纱帽](/content/gnews/19/README.md)
+### [美参议员决力拿掉福奇的乌纱帽](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [53万枚布制口罩库存“消失” 厚生劳动大臣谢罪](/content/gnews/20/README.md)
+### [53万枚布制口罩库存“消失” 厚生劳动大臣谢罪](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [被蒙住双眼的军人&#8212;-俄罗斯大兵的囧境](/content/gnews/21/README.md)
- ` XINYUAN`
 
 ### [都是临时工干的 河北警察顺手牵羊做核酸](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

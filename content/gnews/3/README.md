@@ -2,39 +2,91 @@
 ---
 
 
-## 拜习通话 美国警告中共支持俄罗斯将面临制裁
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2188785/)
+## 有声|弹钢琴的英雄传递爱与温柔
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188822/)
 
-翻译：冰糖葫芦喵
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+你是一个英雄
 
-编辑与校对：冰糖葫芦喵、灭共文明
+在难民营里
 
-《路透社》华盛顿/北京3月18日报道，**周五，美国总统拜登警告中共主席习近平，如果中共向俄罗斯入侵乌克兰提供物质支持，将面临后果。与此同时，双方都强调需要通过外交途径解决危机。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/拜习通话-e1647644263802.jpg)美东时间3月18日，拜习通话（图片来源：法新社）
-在例行新闻发布会上，当被问及中共是否会面临贸易关税或制裁时，普萨基表示:”制裁当然是一种手段。”
+弹着钢琴
 
-报道称，**在这通电话之际，美国和中共之间的分歧正在加深。拜登在电话中详细介绍了美国及其盟友为回应入侵乌克兰所做的努力，包括让俄罗斯付出代价。**
+优雅，从容
 
-白宫在一份声明中说:“拜登描述了如果中共向俄罗斯提供物质支持的影响和后果，因为俄罗斯对乌克兰城市和平民进行了野蛮的攻击。”
+一曲灭共的雪
 
-一位美国高级官员说，**拜登传达了北京将面临的后果不仅来自美国，而且来自更广泛的世界。**
+你让泪水横流
 
-周四，美国国务卿布林肯表示，华盛顿对**中共考虑直接向俄罗斯提供用于乌克兰的军事装备**感到担忧。北京方面对此予以否认。华盛顿还担心，**中共可能会帮助俄罗斯绕过西方的经济制裁。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/拜习通话卜林昆.jpg)美东时间3月18日，华盛顿与北京视频通话（图片来源：网络）
-**俄罗斯入侵乌克兰已经进入第四周，导致数百名平民死亡，城市地区沦为废墟，数百万人逃离乌克兰，引发了一场人道主义危机。**
+眼睛朦胧
 
-据报道，**俄乌战争使得本就紧张的美中关系，达到了数十年来最最严重的程度。**
+无国界的音乐
 
-在此之前，**一艘中共航空母舰于周五驶过敏感的台湾海峡。**美国阿利·伯克(Arleigh Burke)导弹驱逐舰拉尔夫·约翰逊号(USS Ralph Johnson)至少部分跟踪了这艘航母的路线。
+在寒风中
 
-报道指出，**截至目前，中共拒绝谴责俄罗斯在乌克兰的行动，也拒绝称其为入侵。**
+漂流
 
-新闻来源链接：
+爱和激情
 
-[After Biden-Xi call, U.S. warns China it could face sanctions if it backs Russia in Ukraine | Reuters](https://www.reuters.com/world/china/biden-xi-set-clash-over-putins-war-ukraine-2022-03-18/)
+有了共鸣
 
+心与心
 
+距离更近
 
+战火摧残人们
+
+琴声让人不再
+
+冰冷
+
+你是一个英雄
+
+有着不一样的面孔
+
+信仰没有不同
+
+在寒冷的冬天
+
+传递同样的爱和温柔
+
+请侵略者也来倾听
+
+这天籁之音
+
+一起放下暴虐和残忍
+
+一起来欣赏
+
+这美丽声音
+
+你是一个英雄
+
+用你美丽音乐
+
+传递爱与温柔
+
+在这个战火纷飞年代
+
+送上温情温暖
+
+找回失去家园人们 的心灵
+
+文字版原文：[弹钢琴的英雄传递爱与温柔](https://gnews.org/zh-hans/2180056/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

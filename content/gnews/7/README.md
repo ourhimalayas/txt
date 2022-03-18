@@ -2,31 +2,93 @@
 ---
 
 
-## 郭文贵精品视频-政治经济金融策略的大师也是行动的巨人
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2188730/)
+## 凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2188769/)
 
-撰稿：澳喜cindy
+Kevin Durant (NY NETS basketball player)
+凯文·杜兰特（纽约网队篮球球员）
 
-郭先生不是理论上的巨人行动上的 侏儒。他不仅仅是政治、经济、金融领域理论上的策略大师，更是在这些领域推动世界向着和平、稳定、团结、友爱的方向发展的践行者。
+That’s ridiculous. I don’t understand at all
+这是太荒谬了， 我完全不明白
 
-从俄乌战争未发生前，他就在大直播中给战友们讲述即将到来的邪恶五国要挑起世界大战，让战友们开智，明是非，识大局，做好心理准备。不仅如此，他同时已经开始筹划：一旦俄乌开战，我们新中国联邦人应该为被害的乌克兰人做些什么？
+I mean, as few people in our arena unvax, right?
+我的意思是，因为我们的运动馆只有很少的人没有接种疫苗，对吧？
 
-郭先生最让我们佩服的就是他做每件事都未雨绸缪，提早很多时间就有周全的准备，并且是高起点、与众不同的、令人出乎预料的结果。比如这场俄乌战争人道救援的大行动，如果没有早早的准备，就不会在俄乌战争到来刚刚几天，就筹备好了这么繁杂的事务。推进的速度之快、规模之大、涉及到的人之多、救助的人之多、筹备的资金之巨大、战地的物资之充沛、之优良都是在世界其他 专业救援组织之上。
+like they lifted all that out in our arena, right?
+就像他们解除了我们的运动馆的疫苗政策，对吧？
 
-特别是郭先生用心良苦的培养出了这么多的善良、爱好和平、坚持正义、为真不破高境界、高水准的媒体工作战友。这么多世界各国的新中国联邦的战友们积极踊跃不怕病毒的威胁及不长眼睛的炮弹轰炸的危险，不辞劳苦马上奔赴前线。
+So it was the… I don’t get it
+所以它是……我不明白
 
-郭先生在2年前就创造了GTV、Gnews平台，给无数战友一个施展才华、锻炼的机会，才有今天无数战友能娴熟的做出杰出的、能与专业的媒体比肩的文宣作品和专业水准的视频。
+the second mandate
+第二个疫苗强制
 
-“瓦文萨是帮助波兰人推翻共产主义的领导人，郭先生就是中国的瓦文萨！”说的多好啊！
+that says he can come in but can’t play
+就是说他（欧文）能进入室内但是不能参加比赛
 
-郭先生为了保证良好的通讯，把他的好朋友马斯克的Starlink的网络系统也加入进来，并给它的用户名选的很有创意的“New Federal State of China”，密码就是“takedownccp”。
+Kevin Durant
+凯文·杜兰特
 
-这是非常重要非常重要的环节。没有良好的信号，就不可能把那么多的前线真实感人的故事让大家看到、知道。没有良好的通讯系统，救人的信息就不能及时畅通的传递，灾区的难民就不能如此之快速的逃离危险的地方。这个很有创意的星链wifi 的user name 和password。它让每位不了解爆料革命运动，不了解新中国联邦的人，一旦使用这个wifi，就会印在他们脑海里的字：“新中国联邦”、“打倒中国共产党”。从而让全世界热爱和平、民主、文明社会的人们知道：世界上有这样一群人为了世界的和平，不被邪恶的中共为轴心的恶势力搅乱世界的安宁，他们冒着生命危险，到乌克兰战区抢救无辜的孩子、老人、母亲。他们是新中国联邦人，他们是一群爱好和平的天使，他们的目标就是要消灭中国共产党，让全世界得安宁。
+Yeah, I don’t get it, just feels like at this point now
+是呀，我不明白，只是觉得现在在这点上
 
-感恩智慧的郭先生！感恩无私奉献的新中国联邦的战友们！
+somebody is trying to make a statement or point to flex their authority
+某人正试图发表声明或展示他们的权威
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
+But, you know, everybody out here looking for attention
+但是，你知道，这里的每个人都在寻求关注
+
+and that’s what I felt like the mayor wants right now some attention
+这就是我觉得市长现在想要得到一些关注
+
+you know, but he’ll figure it out, so he’d better
+你知道，但他（欧文）会弄清楚的，所以他最好
+
+but it just didn’t make any sense like his unvax people in this building already
+但它只是没有任何意义，就像在这栋楼里已经有了未打疫苗的人一样
+
+We got a guy who can come into the building
+我们让未打疫苗的人可以进入大楼里
+
+and interfering our safety, I don’t get it
+并干扰我们的安全，我不明白
+
+So yeah, we’re all confused
+所以，是的，我们都很困惑
+
+Pretty much everybody in the world is confused at this point early on in the season
+在赛季初的这个时候，世界上几乎每个人都感到困惑
+
+You know, people didn’t understand what was going on
+你知道，人们不明白发生了什么
+
+But now just the stupid
+但现在真的是愚蠢的政策
+
+so hopefully, Eric, you you got to figure this out
+所以希望, 埃里克，你必须弄清楚这一点
+
+原视频链接[https://twitter.com/nypost/status/1503154961668059136?s=24](https://twitter.com/nypost/status/1503154961668059136?s=24)
+
+Date:03/16/2022
+原视频标题:Kevin Durant sounds off on NYC Mayor Eric Adams and the vaccine mandate
+凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
+原视频日期：2022/03/14
+原视频链接https://twitter.com/nypost/status/1503154961668059136?s=24
+任务编号：KE456(4018)
+视频时间段 : 0:00-1:03
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 11:44 PM (UTC)`
+
+3月18号：尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！
+![img](https://media.gettr.com/group23/getter/2022/03/18/23/58ecf673-22f1-70b5-05ad-5350ef3d5ad5/out.jpg)
+
+---
+
 `@miles 3/18/2022 11:00 PM (UTC)`
 
 ❤️【Ukraine Rescue】March 17, 2022—Kraków, Poland<br/>💦 At 2 am on March 17, the frontline rescue team greeted three rescue buses from Lviv carrying 190 Ukrainian refugees.<br/>💦 Although it was late at night, the spirit and state of our fellow fighters from D.C. and Canada were still very good. They held banners of the New Federal State of China and Rule of Law Foundation to express our support for Ukrainian refugees.<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>❤️【乌克兰救援】2022/03/17—波兰克拉科夫<br/>💦 3月17日凌晨2点，前线救援团队迎接了三辆来自利沃夫载有190位乌克兰难民的救援大巴。<br/>💦 尽管已是深夜，但是来自DC和加拿大战友们的精神面貌和状态依旧非常棒，他们手持新中国联邦和法治基金的横幅，表达我们对乌克兰难民的支持。
@@ -148,13 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 【Ukrainian Rescue】03/12/22 The Ukrainian reporter of TBN, the world's largest Christian TV network, is interviewed by us at the big tent of the NFSC and ROLF. She supports the NFSC to take down communism and wishes Chinese people to get freedom. She also thanks ROLF for sending so many volunteers to help the people of Ukraine.<br/><br/>【乌克兰救援】03/12/22 全球最大基督教电视台TBN的乌克兰记者在新中国联邦和法治基金的大帐篷接受我们的采访，表示支持新中国联邦消灭共产主义，祝愿中国人获得自由，并感谢法治基金派出这么多义工帮助乌克兰人民。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group12/getter/2022/03/18/10/24cd1868-e567-955d-cb20-69b1805547e7/out.jpg)
-
----
-
-`@miles 3/18/2022 6:57 AM (UTC)`
-
-3/17/2022 Miles Guo: Zeng Qinghong told people from his hometown in Jiangxi to hoard grain and focus on developing agriculture and suggested that people around him sell the stocks in Communist China and Hong Kong. Zeng Qinghong said the biggest winner of the Russia-Ukraine war would be the US, while the CCP has lost quickly and badly. Zeng also predicted that Wang Qishan would be finished due to Chen Feng.<br/><br/>3/17/2022 文贵直播: 曾庆红叫江西老家的人囤粮、抓农业，并暗示身边人卖掉中共国和香港的股票；曾庆红说俄乌战争的最大赢家是美国，中共却输得又快又惨；曾预测王岐山会栽在陈峰手里<br/>
-![img](https://media.gettr.com/group36/getter/2022/03/18/06/f3cae7e4-ecf6-2c2a-47c9-a3ca1abf39c1/out.jpg)
 
 ---
 
