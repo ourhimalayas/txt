@@ -2,27 +2,33 @@
 ---
 
 
-## 美在波兰部署陆基神盾系统
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2186747/)
+## 2022.3.16/17日乌克兰救援快报摘要
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2186853/)
 
-**撰稿：日本东京方舟农场  北极**
+作者：纽约香草山教育部 Naughty(文行), 银河系农场 骄子, 香草山农场教育部
+ saner三二
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月16/17日，乌克兰救援快报的信息汇总如下。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-64.jpg)
+近日有陌生华裔女性面孔在救助点频繁出现，对方自称来自台湾的自由媒体，但行迹可疑，引起战友们的警觉。另外，救助点附近的宣传易拉宝也被人故意损坏。目前救助站已经加强了巡逻，并向法治基金申请加强了安保措施。
 
-据中央社3月18日报道，随着乌克兰战事恶化，波兰即将部署美国陆基神盾导弹防御系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-204.png)部署在罗马尼亚的美国陆基“宙斯盾”系统。（图片来自网络）
-华府表示，在附近城镇雷兹科沃（Redzikowo）部署的神盾系统将于今年开始运作，目的是捍卫西方国家，对抗来自伊朗等国家发射的弹道导弹。
+在硬件设施方面，救助站已经启用新的商用咖啡机，价格6000欧，每小时可以制作124杯现磨咖啡，可谓是咖啡机里的法拉利，一经启用就大受欢迎。救助站还配置了用来保持恒温的加热设备，体积不大，但功率超强，一台就可以维持500平米的供暖，一共配置了两台，可使整个帐篷里都非常温暖。
 
-据悉，该工程2016 年5月13日动工，是部署在欧洲的第二套神盾系统。
+战争进行到第21天，许多家养宠物也随主人颠沛流离。有志愿者提供宠物专用的小箱子和宠物粮食。除了随主人继续前往下一个目的地外，还有一些宠物无法携带，只能委托波兰志愿者妥善安顿至新的主人家。
 
-而在此前一天，美军在罗马尼亚部署类似系统，当时官方名称为“陆基神盾系统“（Aegis Ashore）。
-
-俄罗斯总统普京（Vladimir Putin）曾反对上述导弹防御部署，称其目的不是单纯防御，而是针对俄罗斯。
+另据小小酥战友介绍，他们在前往当地一家药店采购医用物资时，该药店的波兰女药剂师得知战友们正在对乌克兰难民进行人道救援，就主动免费赠送了一箱医用消毒酒精。得道多助，新中国联邦救援团队的战友们通过在前线的一举一动，树立了友好、温暖、无私、维护和平的新中国人形象，赢得了世界的尊重。
 
 参考链接：
-1.[https://www.cna.com.tw/news/aopl/202203180262.aspx](https://www.cna.com.tw/news/aopl/202203180262.aspx)
-2.[https://www.bbc.com/zhongwen/simp/world/2016/05/160512\_romania\_us\_missile\_defence](https://www.bbc.com/zhongwen/simp/world/2016/05/160512_romania_us_missile_defence)
+1. [Watch MILES GUO live on GETTR新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-16](https://gettr.com/post/p10dcsm4ddd)
+2. [2022.03.18早 《新中国联邦新闻》](https://gnews.org/zh-hans/2186737/)
+3. [3月17日 波兰 梅蒂卡](https://gettr.com/post/p10fohxba34)
 
-总编：青城道姑
-校对发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编/编辑/审核：宁文静
+校正/发稿：Fei797
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
