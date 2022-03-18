@@ -2,34 +2,30 @@
 ---
 
 
-## 中日财经爆┃中共国地产高收益债近四分之一已违约
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185042/)
+## 中日财经爆┃平安保险利润暴跌29% 创次贷危机以来最大降幅
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185182/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-62.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fspider20220124%2F504%2Fw892h412%2F20220124%2F9934-eb1740e7ab35461b0a08e94859e94938.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fmoney%2Fbond%2F2022-01-24%2Fdoc-ikyakumy2372347.shtml&amp;tbnid=0D-RMU2y9sz7cM&amp;vet=12ahUKEwjT-6Keo8_2AhVRnRoKHebUCbYQMygfegUIARDlAQ..i&amp;docid=ibpkSBP_PkHBTM&amp;w=892&amp;h=412&amp;q=%E5%9C%B0%E4%BA%A7%E9%AB%98%E6%94%B6%E7%9B%8A%E5%80%BA&amp;ved=2ahUKEwjT-6Keo8_2AhVRnRoKHebUCbYQMygfegUIARDlAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-35.jpg)
+[图片来源](https://www.google.com/search?q=%E5%B9%B3%E5%AE%89%E4%BF%9D%E9%99%A9&amp;tbm=isch&amp;ved=2ahUKEwiaubLzp8_2AhUx67sIHSP5ArAQ2-cCegQIABAA&amp;oq=%E5%B9%B3%E5%AE%89%E4%BF%9D%E9%99%A9&amp;gs_lcp=CgNpbWcQAzIHCCMQ7wMQJzIFCAAQgAQyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBhQAFgAYLoOaABwAHgAgAFRiAFRkgEBMZgBAKoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=HUw0Ytq2HLHW7_UPo_KLgAs&amp;bih=568&amp;biw=1349&amp;hl=zh-CN#imgrc=NQHX_Enep9sN-M&amp;imgdii=nkbOCO3woyoflM)
 
-高盛3月18日在一份报告中披露，今年早些时候，中共国房地产公司发行的高收益债券的未偿余额中有近四分之一出现违约。
+3月17日，平安保险公布 2021年全年财务业绩报告显示，净利润暴跌29%至人民币1016亿元，为2008年以来最大降幅。
 
-自年初以来的违约率估计为5.5%，但房地产公司正在交换债券以避免违约，据说这使房地产行业的情况看起来比实际情况要好。
+保费收入低迷，寿险保费收入同比下降4.1%至4903亿元，非寿险保费收入同比下降5.5%至2700亿元。
 
-“如果我们将所有已交换或延期还款的发行人债券视为违约，违约率（从年初开始）将上升至 23.4%。”分析师称。
+据该公司称，“2009年，各国复杂严峻的经济形势以及中共病毒（新冠病毒Covid-19）感染的再度扩大，增加了人们收入前景的不确定性。”
 
-今年房地产行业的违约率预计为19%。看涨预测为 10.5%，看跌预测为 31.6%。
+保险销售人员减少，新增寿险和医疗险销售额下降23.6%至379亿元。预计未来销售人员数量将进一步减少。
 
-在今年早些时候达到最终赎回日期的房地产公司债券中，31%已赎回或展期，26%已违约，42%已清偿。
+截至去年，投资华夏幸福房地产开发的敞口为540亿元人民币。
 
-4 月债券超过 23 亿美元，6 月、7 月和 8 月债券超过 30 亿美元，未来可能会发生更多的债券交换和违约。
+有分析人士指出，平安保险在房地产领域的敞口要大得多，市场低估了它。
 
-消息来源:
-
-#### [中国不動産会社の高利回り債、デフォルト率23.4％＝ゴールドマン](https://jp.reuters.com/article/china-property-debt-defaults-idJPL3N2VL10L?il=0)
+消息来源:**[中国平安保険、通期は29％減益　保険料収入が低迷](https://jp.reuters.com/article/ping-an-ins-results-idJPKCN2LF0E0)**
 
 编辑：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
 
 
  
