@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句就：音乐让你知道人应该如何活着
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2188410/)
+## 七哥金句：跟“俄罗斯”三个字连在一起的都将是灾难
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2188498/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.11-七哥金句-1.jpg)
 发布：枫叶红了
 
 **更多资讯，请关注：****

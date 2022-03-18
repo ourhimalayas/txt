@@ -2,24 +2,26 @@
 ---
 
 
-## 有声|中共国疫情“大跃进“ 香港黑暗时刻将至
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188266/)
+## 有声|中共推广石油人民币企图逃脱制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188384/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在此前的大直播中，准确地预测香港恒生指数的起伏。3月16，郭先生发布盖特视频表示，恒生指数将抹平香港的百年基业，香港强积金也将因此化为泡影。针对近日深圳地震，香港震感强烈一事，郭先生爆料，早在1988年，中共已分析，香港将在2010-2035年间发生地震。香港建筑不设防震系统，一旦发生地震，对香港将是毁灭性的灾难。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1964.png)图片来自：https://media-cldnry.s-nbcnews.com
-在国内，中共强力执行的“清零“政策，将导致大规模的人道灾难，甚至是大劫难。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月16日，据相关媒体报道，在近期与沙特阿拉伯进行的谈判中，中共正在试图使用人民币作为部分石油销售和定价的结算币种。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-5.jpeg)
+报道提及，作为世界上最大的石油进口国和石油生产国，中共和沙特阿拉伯之间的谈判可能会破坏美元和欧元在此类交易中的主导地位。同时，有关人员也表示，中共此举意在扩大人民币在全球商品交易中的影响力。
 
-中共欺骗国民，置人民生死于不顾，而新中国联邦将让中国人在自由、民主、法治的社会里，享受安全、健康的生活。（请播放视频，视频时长3‘11“）
+对此，郭文贵先生早先曾在直播中预警称，中共一直妄图在中东操纵战争，为此，其一定会将霍尔木兹海峡的石油运输路线切段，用以此报复美国对俄罗斯入侵乌克兰的经济制裁。在此种情况下，一旦世界的石油供应出现问题，以其为锚的美元地位就会动摇。
+
+但大多分析师认为，鉴于中共人民币有限的兑换性和流通性，其想替代美元和欧元成为国际主导货币的可能性接近于零。
 
 
 
-文字版原文：[中共国疫情“大跃进“ 香港黑暗时刻将至](https://gnews.org/zh-hans/2184449/)
+文字版原文：[中共推广石油人民币企图逃脱制裁](https://gnews.org/zh-hans/2181295/)
 
 音频处理：Tom Li
 发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

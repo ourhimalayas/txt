@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 9:54 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-大巴救援实况转播
+![img](https://media.gettr.com/group23/origin/2022/03/18/21/34684353-8d18-0cbc-a9f4-549e92cef763/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/18/2022 8:41 PM (UTC)`
 
 3月18号：太搞笑……太真实了……【七哥您好! 这鹅(俄)爹如此不堪一击，让粉红们很伤心啊。🙏🙏🙏🙏】
@@ -149,13 +156,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 【Ukraine Rescue】03/16/2022 Newsweek correspondent in Poland Renata Kim expresses her gratitude to the New Federal State of China and the Rule of Law Foundation of providing humanitarian aid to Ukrainian people, wishing the New Federal State of China to overthrow the Chinese Communist Party dictatorship as soon as possible<br/><br/>【乌克兰救援】03/16/2022 Newsweek 《新闻周刊》驻波兰记者莉娜塔·金感谢法治基金和新中国联邦对乌克兰的人道救援，并祝愿新中国联邦早日推翻中共独裁政权
 ![img](https://media.gettr.com/group28/getter/2022/03/18/03/5d8ae016-afcb-7cfe-6c98-50fae5a2d35b/out.jpg)
-
----
-
-`@miles 3/18/2022 2:55 AM (UTC)`
-
-【Ukraine Rescue】03/16/2022 ZET, the second largest radio station in Poland, interviewed Nicole, after knowing the philosophy of the Rule of Law Foundation and New Federal State of China,  tweeted on their Twitter account that "the Chinese Communist Party does not represent the Chinese". <br/><br/>【乌克兰救援】03/16/2022 波兰第二大广播电台ZET 采访妮可， 了解了新中国联邦和法治基金的理念后深表敬意， 并在他们的推特账号上报道了“中共不代表中国人“
-![img](https://media.gettr.com/group18/getter/2022/03/18/02/1918962d-c017-158d-6e15-78c6c8abd456/out.jpg)
 
 ---
 

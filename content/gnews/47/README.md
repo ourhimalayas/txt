@@ -2,47 +2,88 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月17日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2181809/)
+## 参议员卢比奥：中共国100%站在 普京后面
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2183750/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FODSMYKaUAASUC6.jpg)
-正文
+参议员马可.卢比奥： 毫不怀疑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click) 站在哪一边 他们100%站在 普京 [#Putin](https://twitter.com/hashtag/Putin?src=hashtag_click) 后面 他们宁愿世界不知道这一点，但这不会阻止他们尽可能多地帮助他（普京）
 
-**1、刘鹤主持中共国务院金融委会议研究当前形势**
-![img](https://media.gettr.com/group49/origin/2022/03/17/05/c30e67fc-b4fb-3a4f-5838-a88200465b70/e212748a76f3a9f18cfde89272318aef_500x0.png)
-会议强调：有关部门要切实承担起自身职责，积极出台对市场有利的政策，慎重出台收缩性政策。对市场关注的热点问题要及时回应。凡是对资本市场产生重大影响的政策，应事先与金融管理部门协调，保持政策预期的稳定和一致性。国务院金融委将根据党中央、国务院的要求，加大协调和沟通力度，必要时进行问责。金融机构必须从大局出发，坚定支持实体经济发展。欢迎长期机构投资者增加持股比例。链接：[http://www.csrc.gov.cn/csrc/c100028/c2093820/content.shtml](http://www.csrc.gov.cn/csrc/c100028/c2093820/content.shtml)
 
-**2、六部委齐发声！A股反击，港股、中概股见证历史**
-![img](https://media.gettr.com/group25/origin/2022/03/17/05/7d378281-560d-f7eb-7dda-e0a36ed91639/16e2dd14fa27cc01df429ebb047d4d57_500x0.png)
-周三（3月16日），A股港股中概股集体大涨，沪指收盘大涨3.48%，创业板指涨超5%。港股恒生指数涨9.08%，恒生科技指数涨22.2%，创史上最大单日涨幅。中概股最高涨超80%。3月16日，国务院金融稳定发展委员会召开专题会议，研究当前经济形势和资本市场问题。随后，央行、银保监会、证监会迅速开会和发文表态。房地产、中概股、货币政策等均被提及。
 
-财经G评：翻译成人话就是—中共国家力量干预市场，2007年美国次贷危机证明—国家干预市场的做法没有用！多空力量不是靠吹出来的！短期上涨一般都靠忽悠，中共2015年以来到现在的熊市给出了答案！
+> Have ZERO doubt about whose side [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on 
+> 
+> They are 100% behind [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> They would prefer the world not know this, but that will not stop them from helping him as much as they can
+> — Marco Rubio (@marcorubio) [March 17, 2022](https://twitter.com/marcorubio/status/1504587222015569920?ref_src=twsrc%5Etfw)
 
-链接：[https://finance.sina.com.cn/stock/marketresearch/2022-03-17/doc-imcwiwss6497787.shtml](https://finance.sina.com.cn/stock/marketresearch/2022-03-17/doc-imcwiwss6497787.shtml)
 
-**3、美联储宣布加息25个基点 并暗示将采取更激进利率路径阻击通胀**
-![img](https://media.gettr.com/group26/origin/2022/03/17/05/b9ac6ffa-c31f-73f1-7ed5-6c9a183ffecc/2bb4bb4a52039ab3a3a719acdb119737_500x0.png)
-路透华盛顿3月16日 – 美国联邦储备委员会(美联储/FED)周三宣布自2018年来首次加息，并制定了一项激进的计划，希望明年将借贷成本推至限制性水平，美联储出人意料地预计，在今年剩下的六次政策会议上，每次都会加息25个基点，这将使联邦基金利率目标区间在2022年底达到1.75%-2.00%。到明年年底，政策利率预计将达到2.80%，高于政策制定者现在认为的会减缓经济增长的2.40%的水平。
 
-链接：[https://cn.reuters.com/article/wrapup-fed-0316-idCNKCS2LE02Y](https://cn.reuters.com/article/wrapup-fed-0316-idCNKCS2LE02Y)
+前国务卿迈克.蓬佩奥： 我担心拜登总统 [@POTUS](https://twitter.com/POTUS) 不会回答 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军费预算的增加，而是喋喋不休地将包容性作为我们军队的最高目标，这是建立一支不基于卓越和作战能力、而以政治灌输军队的准则 【转蓬佩奥发表在华盛顿时报文章：美国未来的安全态势必须阻止独裁统治的进军】
 
-**4、富力地产预计无法按期兑付，19.5亿“16富力04”拟推进债券展期**
-![img](https://media.gettr.com/group45/origin/2022/03/17/06/d4e21e1f-d851-8e29-325a-4a24e9bfccdb/1fca4c5026ee1c395795b2261e8ad973_500x0.png)
-3月17日 – 虽然中共金融委日前表态支持房企化解风险，但民企面临的短期忧虑不减。陷入流动性困境的房地产商–广州富力[2777.HK](https://cn.reuters.com/companies/2777.HK)周三晚间称，公司预计无法在4月7日“16富力04”债到期前，筹措到足额兑付资金，拟于近期与债券持有人就债券展期事宜进行沟通。本次涉及的债券“16富力04”债券余额19.5亿元人民币，当期利率6.7%，将于2022年4月7日到期兑付。
 
-链接： https://cn.reuters.com/article/r-f-properties-0317-thur-idCNKCS2LE0C7?il=0
 
-**5、乌克兰的 Zelenskyy 将虚拟资产法案签署为法律，使加密合法化**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FODSMYKaUAASUC6-1.jpg)
-乌克兰在与俄罗斯的战争期间收到了 1 亿美元的加密货币捐款。乌克兰总统 Volodymyr Zelenskyy 将该国的加密货币合法化，签署了一项关于虚拟资产的法案，以支持该国防御俄罗斯入侵的数字资产捐赠热潮。数字化转型部周三在一份声明中表示，该法律确定了虚拟资产的法律地位、分类、所有权和监管机构，并为加密服务提供商设定了注册要求。该市场将由乌克兰国家证券和股票市场委员会监管。数字部在推文中表示，交易所将能够合法运营，银行将为它们开设账户。
+> I fear that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) won't answer the increase in China’s military budget, but prattle about inclusivity as our military’s highest purpose, which is code for creating a military not based upon excellence & warfighting capacity but political indoctrination.[https://t.co/3HQOy8YGyk](https://t.co/3HQOy8YGyk)
+> — Mike Pompeo (@mikepompeo) [March 17, 2022](https://twitter.com/mikepompeo/status/1504579612822671361?ref_src=twsrc%5Etfw)
 
-财经G评：俄乌战争开始—世界接受数字货币；俄乌战争之中—俄罗斯民众逃往数字货币；战争之后—乌克兰将拥抱数字货币！
-链接： [https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/](https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/)
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-上传排版：文勇
+众议员迈克尓·麦考尔(众议院军事委员会资深成员）: [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 原本预计在三到四天内接管乌克兰，但 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 人民的反抗意志却出乎所有人的意料。 这就是为什么我一直在敦促拜登总统[@POTUS](https://twitter.com/POTUS) 帮助促成将 S-300 等远程防空系统运送到乌克兰。 时间就是生命。 【附麦考尔议员接受福克斯采访视频】
+
+
+
+> Putin was expected to take over Ukraine in three to four days, but will of the Ukrainian people have defied all expectations. That’s why I’ve been urging [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to help facilitate the transfer of longer-range air defense systems like the S-300 to Ukraine. Time is of the essence. [pic.twitter.com/cTWlKP6ps3](https://t.co/cTWlKP6ps3)
+> — Michael McCaul (@RepMcCaul) [March 17, 2022](https://twitter.com/RepMcCaul/status/1504523255633354755?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔提出了《保护我们的药品供应链免受中共国侵害法案》，该法案将结束美国在药品制造方面对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。 从作者@mikeginsberg98 的文章阅读更多关于此法案的信息：（附文章链接） 【图片中内容： “#中共 曾经威胁过一次，要从美国扣留救生药物，如果我们认为他们不会再尝试这样做，那我们就是疯子。 国会需要一个积极的计划来保护我们关键的药品供应链并结束我们对 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的依赖。这是国家安全的当务之急，对许多美国人来说，是生死攸关的问题，” -加拉格尔议员说。】
+
+
+
+> Rep. Gallagher introduced the Protecting our Pharmaceutical Supply Chain from China Act, which would end U.S. dependence on China for pharmaceutical manufacturing.
+> 
+> Read more about his bill from [@mikeginsberg98](https://twitter.com/mikeginsberg98?ref_src=twsrc%5Etfw) here: [https://t.co/XqtBLkWyr7](https://t.co/XqtBLkWyr7) [pic.twitter.com/FLcavWnyqm](https://t.co/FLcavWnyqm)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 17, 2022](https://twitter.com/RepGallagher/status/1504535164805955587?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎.布莱克本： 亨特·拜登的笔记本电脑始终是真实的，但主流媒体和大科技公司却禁止人们谈论它。 【转纽约邮报报道：《纽约时报》的（最新）报道证实了亨特·拜登臭名昭著的笔记本电脑的存在】
+
+
+
+> Hunter Biden’s laptop was always real, but the mainstream media and big tech silenced you for talking about it anyway. [pic.twitter.com/GYxA7Oyrme](https://t.co/GYxA7Oyrme)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 17, 2022](https://twitter.com/MarshaBlackburn/status/1504538136017317893?ref_src=twsrc%5Etfw)
+
+
+
+美国务卿安东尼·布林肯： 我们不仅目睹了克里姆林宫领导的对 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 人民的残酷、暴力攻击，我们还目睹了一场真相与暴政的战争。 正如施瓦辛格[@Schwarzenegger](https://gettr.com/user/Schwarzenegger) 解释的那样，我们不责怪俄罗斯人民，(但) 我们需要你知道你的政府对你隐瞒了什么。 【转斯瓦辛格的推文：我爱俄罗斯人民。 这就是为什么我必须告诉你们真相。请观看和分享。（附视频）】
+
+
+
+> We are not just witnessing a brutal, violent Kremlin-led attack on the Ukrainian people, we are witnessing a war of the truth vs. tyranny. As [@Schwarzenegger](https://twitter.com/Schwarzenegger?ref_src=twsrc%5Etfw) explains, we do not blame the people of Russia, and we need you to know what your government is hiding from you. [https://t.co/QK8zhwsOnR](https://t.co/QK8zhwsOnR)
+> — Secretary Antony Blinken (@SecBlinken) [March 17, 2022](https://twitter.com/SecBlinken/status/1504534544761995266?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： 本周华盛顿时报 [@WashTimes](https://twitter.com/WashTimes) 内幕专栏：太平洋将军誓言美国对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对台湾的任何攻击将会作出强烈反应； 美国米格战斗机可以帮助乌克兰； 海军在朝鲜附近进行航母行动 【附专栏链接】
+
+
+
+> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Pacific general vows strong US response to any Chinese attack on Taiwan; US MiGs could help Ukraine; Navy conducts carrier ops near North Korea [https://t.co/Pc7c4elsqp](https://t.co/Pc7c4elsqp)
+> — Bill Gertz (@BillGertz) [March 17, 2022](https://twitter.com/BillGertz/status/1504514611692855296?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 拜登害怕普京。这就是我们陷入困境的原因。 拜登的团队正在编造借口，不给乌克兰提供自卫的关键武器。他们在扯皮防御性武器和进攻性武器。事实上，乌克兰使用的所有武器都是为了自卫。
+
+
+
+> Biden is scared of Putin. That's what got us into this mess.
+> 
+> Biden's team is making up excuses not to give Ukraine key weapons to defend themselves. They talk about defensive weapons vs. offensive weapons. In truth, all the weapons Ukraine is using are to defend itself. [pic.twitter.com/ISCTurZA7C](https://t.co/ISCTurZA7C)
+> — Ted Cruz (@tedcruz) [March 18, 2022](https://twitter.com/tedcruz/status/1504637461271511040?ref_src=twsrc%5Etfw)
+
+
 
  
 
