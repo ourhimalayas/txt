@@ -2,21 +2,24 @@
 ---
 
 
-## 灭共第三道大门 &#8211; 中共武力攻台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2184508/)
+## 日本官房长官呼吁“日本志愿兵”立即从乌克兰撤离
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2184527/)
 
-编辑/总编: 雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
-中共病毒在香港肆虐，吉林、深圳等省市相继宣布封城。郭文贵先生在3月15日的大直播中表示，中共房地产将从黑龙江、吉林起，自北向南逐步崩塌。中共国金融随之土崩瓦解。而中共的城镇化建设，将引发中共国能源、电力、供应链、粮食等危机爆发。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1965.png)
-为转移内部矛盾和国民的视线，中共将做出疯狂的决定–攻打台湾。而中共武力攻台之日，将标志着灭共的第三道大门正式打开。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-199.png)
+（图片源自本文链接）
 
-视频链接：[3/15/2022 文贵直播](https://gettr.com/post/p10fysv022a)
+日本雅虎网站3月18日消息：在18日的新闻发布会上，内阁官房长官松野博一强调，针对外国媒体关于一名据信是“日本志愿兵”的男子进入乌克兰的报道，我们已经向乌克兰全境发出了疏散警告，日本公民应该立即撤离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/47F634B3-F481-4E0A-9342-F6AFEF11909F.jpeg)
+关于是否与这位男性有过接触的提问，松野博一只说他不会就每一个报道作出个别答复。
 
-校稿/上传：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-5.png)
+信息来源：[「日本人義勇兵」直ちに退避を　ウクライナの海外報道巡り（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5ec738053d931e27dad04e063b3d091671f88654)
+
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
