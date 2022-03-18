@@ -2,27 +2,22 @@
 ---
 
 
-## 有声|NFSC新闻、G|TV新闻访谈简报|2022年3月14日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2183847/)
+## 俄军炸毁马立波剧院！乌克兰前州长：130人获救
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2184014/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3570066-PH.jpg)图片来源：三立新闻网
 
+俄罗斯军队持续对乌克兰境内进行轰炸，乌克兰顿内茨克（Donetsk）前州长塔鲁塔今天表示，马立波市（Mariupol）一座戏剧院遭到轰炸后，躲在当中避难的民众陆续离开这座建筑物，至少130人获救。
 
-文字版原文：[NFSC新闻、G|TV新闻访谈简报|2022年3月14日早](https://gnews.org/zh-hans/2164724/)
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1086947)
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+撰稿/发布：一叶知秋
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
