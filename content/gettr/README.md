@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 4:37 PM (UTC)`
+
+3月18号：刚开完会！这会儿特别想直播，特别特别想和战友聊聊天。https://gettr.com/post/p10lj6qf5fe
+![img](https://media.gettr.com/group14/getter/2022/03/18/16/5646a5c7-49f7-9d10-7989-93c81cf4e016/835043809d5d6a9b5ffb6e640b2224f5.jpg)
+
+---
+
 `@miles 3/18/2022 3:24 PM (UTC)`
 
 ❤️【Ukraine Rescue】March 16, 2022—Kraków, Poland<br/>💦At 2 am on March 16, the frontline rescue team greeted three rescue buses carrying 182 Ukrainian refugees and evacuated them to a local railway station or hotels arranged by Rule of Law Foundation.<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>❤️【乌克兰救援】2022/03/16—波兰克拉科夫<br/>💦3月16日凌晨2点，前线救援团队迎接了三辆载有182位乌克兰难民的救援大巴，并顺利将他们疏散到当地的火车站或者法治基金安排的酒店。<br/><br/>💥💥💥24-Hour Emergency Rescue Support Team Contact: <br/>💌💌💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️☎️☎️Phone (Call or Text): <br/>+1 720-657-6776 OR <br/>+1 719-224-4232 OR<br/>+48 508-532-712 OR <br/>+48 508-531-518
@@ -147,13 +154,6 @@
 
 3/17/2022 Miles Guo: It is recommended that the US pass legislation after this May to demand all the information about the virus from the CCP, otherwise the US should impose economic sanctions on the CCP as it did on Russia and seize the CCP's assets overseas.<br/><br/>3/17/2022 文贵直播：建议美国在今年五月份以后通过立法要求中共提供所有关于病毒的信息，否则将像对待俄罗斯一样对中共进行经济制裁，并查封中共在海外的资产<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/18/00/2b02ae0b-081c-e99e-2620-1c33e63a75e0/out.jpg)
-
----
-
-`@miles 3/17/2022 11:39 PM (UTC)`
-
-2022.03.17《The Fringe》 Episode 149
-![img](https://media.gettr.com/group49/origin/2022/03/17/23/e8dd9d88-401c-c7d7-b86f-7bb92d417788/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
