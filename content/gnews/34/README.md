@@ -2,33 +2,31 @@
 ---
 
 
-## 有声|蓬佩奥呼吁承认台湾主权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2181594/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2182377/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美国媒体3月9消息，前国务卿彭培奥先生在接受采访时表示，随着俄罗斯入侵乌克兰，我们目睹了一个独裁者完全不顾和平或邻国的主权，入侵一个自由的主权国家，为民主国家敲响了警钟。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
-彭培奥先生认为，俄罗斯入侵乌克兰的行为提醒我们需要表明对台湾主权的立场，以使习近平充分了解美与台的关系。 中共一直试图将台湾置于其控制之下，这一野心近年来变得更加强大。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
 
-蓬佩奥最后强调，如果中共能够以武力夺取台湾，它就可能控制全球市场的先进芯片制造市场。这对美国及其盟友来说将是灾难性的。同样，保证台湾经济自由不受中共的控制，对美国和全世界未来的繁荣至关重要。
+视频参看：
+[2022.03.17 《NFSC新闻》](https://gettr.com/streaming/p10gf3o9d08)
+[2022.03.17早《NFSC新闻访谈》](https://gettr.com/streaming/p10gzlwbcdc)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-
-文字版原文：[蓬佩奥呼吁承认台湾主权](https://gnews.org/zh-hans/2151625/)
-
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[纽约香草山农场NFSC-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场NFSC-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

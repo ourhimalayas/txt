@@ -45,83 +45,83 @@
 ### [【G时新闻】2022年3月17日文贵先生直播](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [泄露录音：前NIH老大曾以失业威胁民众强推COVID疫苗](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|摒弃口炮，学会尊重，永远的修行](/content/gnews/12/README.md)
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年3月14日早](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [参议员卢比奥：中共国100%站在 普京后面](/content/gnews/13/README.md)
+### [有声|喜马拉雅币一周分析与总结（3月7日-3月13日）](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [有声|NFSC新闻、G|TV新闻访谈简报|2022年3月13日早](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|联合国安理会：不知道乌克兰生物武器计划](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [有声|喜币在轰轰烈烈地引领数字货币的未来](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [泄露录音：前NIH老大曾以失业威胁民众强推COVID疫苗](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [参议员卢比奥：中共国100%站在 普京后面](/content/gnews/17/README.md)
  ` 美国政要直译推`
 
-### [中日财经爆┃去年全球半导体材料市场营收暴增至640亿美元，创历史新高](/content/gnews/14/README.md)
+### [中日财经爆┃去年全球半导体材料市场营收暴增至640亿美元，创历史新高](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美联邦通信委员会撤销更多中共国电信运营商的运营许可](/content/gnews/15/README.md)
+### [美联邦通信委员会撤销更多中共国电信运营商的运营许可](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [韩国单日新增中共病毒超62万例 再创新高](/content/gnews/16/README.md)
+### [韩国单日新增中共病毒超62万例 再创新高](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [尖端电子干扰武器护台 共军看得到打不到](/content/gnews/17/README.md)
+### [尖端电子干扰武器护台 共军看得到打不到](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯正在摧毁哈尔科夫](/content/gnews/18/README.md)
+### [俄罗斯正在摧毁哈尔科夫](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月17日晚](/content/gnews/19/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月17日晚](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [加拿大疫苗伤害赔偿计划准备就绪](/content/gnews/20/README.md)
+### [加拿大疫苗伤害赔偿计划准备就绪](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [《避风港HAVEN》直播内容精选（第二十一集· 下 ）](/content/gnews/21/README.md)
+### [《避风港HAVEN》直播内容精选（第二十一集· 下 ）](/content/gnews/25/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [【 G时新闻 】俄罗斯即将掀起大规模债务违约潮](/content/gnews/22/README.md)
+### [【 G时新闻 】俄罗斯即将掀起大规模债务违约潮](/content/gnews/26/README.md)
  ` G-时新闻`
 
-### [【每日聚焦】俄乌战争3月17日简要](/content/gnews/23/README.md)
+### [【每日聚焦】俄乌战争3月17日简要](/content/gnews/27/README.md)
  ` 蓝莲花农场`
 
-### [新中国联邦援乌营地摄制组越来越专业](/content/gnews/24/README.md)
+### [新中国联邦援乌营地摄制组越来越专业](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/25/README.md)
+### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [援乌营地消息：波兰最美药剂师](/content/gnews/26/README.md)
+### [援乌营地消息：波兰最美药剂师](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [基辅遭受了三起单独的袭击](/content/gnews/27/README.md)
+### [基辅遭受了三起单独的袭击](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [七哥采访妮可](/content/gnews/28/README.md)
+### [七哥采访妮可](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/29/README.md)
+### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/30/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/31/README.md)
+### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰财经G乐部2022年3月17日:财经新闻整理](/content/gnews/32/README.md)
+### [新西兰财经G乐部2022年3月17日:财经新闻整理](/content/gnews/36/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [有声|七哥直播重点之一](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [有声|蓬佩奥呼吁承认台湾主权](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [有声|数字货币最新进展](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [有声|通过向联合国安理会撒谎，俄罗斯再次向自己开枪](/content/gnews/36/README.md)
- ` MOSREC`
 
 ### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

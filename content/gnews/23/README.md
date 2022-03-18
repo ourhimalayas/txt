@@ -2,34 +2,36 @@
 ---
 
 
-## 【每日聚焦】俄乌战争3月17日简要
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2182737/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月17日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2183429/)
 
-编撰与校对：文斌
+作者：香草山翻译部
 
-1、乌克兰总参谋部：**俄罗斯正在组建更多的营级战术小组（BTG）**，但是因为缺少新鲜的兵员补偿，只能把战斗中受损的部队重新整编，军官的缺失则从其军校学生招募，即便这样，要快速形成强大的战斗力还有一定困难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
-2、基辅军管会主任说，**过去几天在基辅拘留了100多名涉嫌破坏分子；**而**乌克兰**在基辅西边的Bucha上空再一次**击中俄罗斯Ka-52直升机**，迫使其后退；俄军昨天对日托米尔地区的Malyn镇进行了空袭。
 
-3、基辅东边的布罗瓦里区，疏散公民的工作已经开始。
 
-4、来自明尼苏达州的68岁美国公民今晨在切尔尼戈夫的**俄军炮击中丧生**；而在3月16日，俄罗斯军队**对切尔尼戈夫的炮击造成53人死亡。**
 
-5、乌克兰军方在哈尔科夫州Kamiyanka村附近摧毁了俄罗斯大型车队。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-13.png)
+校对：Stay文苑
 
-6、**在Izyum区和市内发生激烈交火**，南部的Rubizhne、Popasna和Sieverodonetsk一夜之间遭到猛烈炮击，**Rubizhne超过27间房屋受损**。
+编辑：Stay文苑
 
-7、马里乌波尔市戏剧院下的避难所现在已经安全开放，人们正在疏散，战斗继续。
+发稿：Stay文苑
 
-8、Zaporizhiye核电站附近的电力线受损，由于战斗激烈，现在无法进行维修。
+新闻：[https://gettr.com/post/p10jlzy180e](https://gettr.com/post/p10jlzy180e)
+访谈：[https://gettr.com/post/p10k6w347a8](https://gettr.com/post/p10k6w347a8)
 
-9、**南部前线的战斗仍在继续，乌克兰军队重新控制赫尔松地区的Posad-Pokrovske村；**3月16日由@Planet拍摄的卫星图像提供了赫尔松空军基地被袭击后的图片，显示10架直升机可能在袭击中被摧毁，另外3架可能因损坏而无法使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
 
-10、**俄罗斯舰艇炮击敖德萨海岸，**乌克兰敖德萨地区行政当局负责人表示，这些只是俄军的心理压力，而在敖德萨附近的俄罗斯军舰短期内不会实施所谓的登陆行动。
+**更多资讯，更多关注**
 
-11、**英国军事情报认为俄罗斯对乌克兰的入侵在各条战线上都急剧放缓；**而乌克兰国防部长说，乌克兰成功地反击并且让俄罗斯无法建立空中优势，新的军援将让乌克兰军队用起来更加有效。
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://www.gettr.com/user/gnews)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
 
-发布：冰糖葫芦喵
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
  
 
