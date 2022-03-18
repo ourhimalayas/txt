@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 10:21 AM (UTC)`
+
+【Ukrainian Rescue】03/12/22 The Ukrainian reporter of TBN, the world's largest Christian TV network, is interviewed by us at the big tent of the NFSC and ROLF. She supports the NFSC to take down communism and wishes Chinese people to get freedom. She also thanks ROLF for sending so many volunteers to help the people of Ukraine.<br/><br/>【乌克兰救援】03/12/22 全球最大基督教电视台TBN的乌克兰记者在新中国联邦和法治基金的大帐篷接受我们的采访，表示支持新中国联邦消灭共产主义，祝愿中国人获得自由，并感谢法治基金派出这么多义工帮助乌克兰人民。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group12/getter/2022/03/18/10/24cd1868-e567-955d-cb20-69b1805547e7/out.jpg)
+
+---
+
 `@miles 3/18/2022 6:57 AM (UTC)`
 
 3/17/2022 Miles Guo: Zeng Qinghong told people from his hometown in Jiangxi to hoard grain and focus on developing agriculture and suggested that people around him sell the stocks in Communist China and Hong Kong. Zeng Qinghong said the biggest winner of the Russia-Ukraine war would be the US, while the CCP has lost quickly and badly. Zeng also predicted that Wang Qishan would be finished due to Chen Feng.<br/><br/>3/17/2022 文贵直播: 曾庆红叫江西老家的人囤粮、抓农业，并暗示身边人卖掉中共国和香港的股票；曾庆红说俄乌战争的最大赢家是美国，中共却输得又快又惨；曾预测王岐山会栽在陈峰手里<br/>
@@ -147,13 +154,6 @@ This is a local pharmacy in Poland. NFSC volunteers come here often to purchase 
 
 ❤️❤️The ROLF & NFSC will do everything they can to help Ukraine refugees leave the battlefield, and bring warmth and comfort to the rescued people who were injured in the war.<br/><br/>⚠️⚠️When the Chinese Communist Party supported Putin of Russia in launching this unjust war, the New Federal State of China unconditionally rescued Chinese compatriots and Ukrainian women and children.<br/><br/>💥💥We the NEW CHINESE people, are taking down the evil Chinese Communist Party. The CCP is the root cause of global disasters. Taking down the CCP is the only way to save humanity!<br/><br/>❤️❤️法治基金和新中国联邦会竭尽所能帮助难民离开乌克兰战区，给战争中受到伤害的被救援民众带去温暖和抚慰。<br/><br/>⚠️⚠️在中共用老百姓的民脂民膏无条件地支持俄罗斯普京发动这场不义之战的时候，新中国联邦在无条件地救助华人同胞以及乌克兰的妇女和儿童。<br/><br/>💥💥我们是消灭邪恶中共的新中国人！中共是全世界灾难的根源，只有消灭中共才能拯救全人类！
 ![img](https://media.gettr.com/group28/origin/2022/03/17/18/62a96a0c-ee34-ec17-3850-904c2d7af7c7/out.jpg)
-
----
-
-`@miles 3/17/2022 4:36 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
-![img](https://media.gettr.com/group30/origin/2022/03/17/16/b925dc25-5c92-1f43-22f3-9b9da81b3d80/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
