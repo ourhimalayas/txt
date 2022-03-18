@@ -2,21 +2,24 @@
 ---
 
 
-## 俄乌战争让供应链雪上加霜
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184257/)
+## 中日财经爆|SBA披露俄罗斯在瑞士藏钱2130亿美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2184376/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03181.png)[图片来源](https://global-world-news.com/russians-have-up-to/)
+路透社3月17日报导，瑞士银行家协会(Swiss Bankers Association)估计，瑞士的秘密银行持有多达2,130亿美元的俄罗斯财富。
 
-*发布：陶子*
+该协会估计，这些银行在离岸账户中持有1,500亿至2,000亿瑞郎(2,130亿美元)的俄罗斯客户资金。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这表明俄罗斯富人与瑞士银行的业务范围远比几家金融公司开始详述的资产负债表上的风险敞口要大得多。瑞士是世界上最大的离岸财富中心。
 
+瑞士银行家协会的披露对瑞士来说是罕见的，以前的许多透明度要求都是石沉大海。在俄罗斯上个月入侵乌克兰之后，瑞士采取了不寻常的举措，针对俄罗斯资金实施欧盟的制裁措施。
+
+消息来源：[俄罗斯人在瑞士秘密银行拥有多达2,130亿美元海外资金](https://www.reuters.com/article/ukraine-crisis-swiss-banks-idCNL6S2VK08Z)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

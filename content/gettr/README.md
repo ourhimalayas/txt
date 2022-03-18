@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 6:22 AM (UTC)`
+
+3/17/2022 Miles Guo: Putin was condemned by the US as a war criminal yesterday. Whoever is in cahoots with Putin will be finished together with him. As the entire world is resenting the Chinese people because of the world’s hatred of Putin, Mao Zedong, and Xi Jinping, citizens of the New Federal State of China have come onto the world’s political stage with a magnificent humanitarian image, proving that we are totally different from the CCP!<br/><br/>3/17/2022 文贵直播：普京昨天被美国正式定为战犯，凡是和他沆瀣一气的都会完蛋！在全世界因憎恨普京、毛泽东、习近平而迁怒于中国人的时候，新中国联邦人以华丽的人道主义形象走上世界政治舞台，证明我们和中共完全不一样！<br/>
+![img](https://media.gettr.com/group7/getter/2022/03/18/06/894a59d6-b97a-a359-0ec4-b3ac5c4ed5bf/out.jpg)
+
+---
+
 `@miles 3/18/2022 5:25 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月17日第13天当日救援统计：<br/>巴士救援难民：47人<br/>Medyka救援站接待：约470人<br/>巴士发车：1次<br/><br/>累计救援总计：<br/>巴士救援难民：1672人<br/>Medyka救援站接待：约6186人<br/>巴士发车：33次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation report <br/><br/>Day 13 - Date: March 17, 2022 :<br/><br/>Refugees Rescued by Bus: 47 people<br/>Medyka Rescue Station Reception: about 470 people<br/>Bus Departure: 1 time<br/><br/>Total：<br/>Refugees Rescued by Bus: 1672 people<br/>Medyka Rescue Station Reception: about 6186 people<br/>Bus Departures: 33 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -148,13 +155,6 @@ This is a local pharmacy in Poland. NFSC volunteers come here often to purchase 
 
 ![img](https://media.gettr.com/group15/origin/2022/03/17/15/36b24681-009a-9b8d-1085-0442356dd003/ae87f6a22a61491d1f18bb7eaaf7209e.jpg)
 > `@miles 3/17/2022 3:43 PM (UTC)`<br/>💥 March 15, 2022    #Krakow，Poland <br/>📍 At 1 am, the rescue members from Canada joined the rescue team to greet rescue buses. Fellow fighters prepared the banner of NFSC & ROLF to welcome nearly 150 Ukrainian refugees in Kraków, Poland. <br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/><br/>📍 We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party  #CCP≠Chinese<br/><br/>#法治基金 #新中国联邦 #乌克兰救援<br/>2022年3月15日   波兰— #克拉科夫 Kraków <br/>📍凌晨1点，来自加拿大的战友加入了迎接三辆救援大巴的队伍，战友们准备了新中国联邦和法治基金的横幅迎接近150位乌克兰难民。<br/> <br/>📍我们是消灭邪恶中国共产党的新中国人！
-![img](https://media.gettr.com/group5/origin/2022/03/17/15/fa322675-f538-dc58-2fe0-485f0a89a4d8/out.jpg)
-
----
-
-`@miles 3/17/2022 3:43 PM (UTC)`
-
-💥 March 15, 2022    #Krakow，Poland <br/>📍 At 1 am, the rescue members from Canada joined the rescue team to greet rescue buses. Fellow fighters prepared the banner of NFSC & ROLF to welcome nearly 150 Ukrainian refugees in Kraków, Poland. <br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/><br/>📍 We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party  #CCP≠Chinese<br/><br/>#法治基金 #新中国联邦 #乌克兰救援<br/>2022年3月15日   波兰— #克拉科夫 Kraków <br/>📍凌晨1点，来自加拿大的战友加入了迎接三辆救援大巴的队伍，战友们准备了新中国联邦和法治基金的横幅迎接近150位乌克兰难民。<br/> <br/>📍我们是消灭邪恶中国共产党的新中国人！
 ![img](https://media.gettr.com/group5/origin/2022/03/17/15/fa322675-f538-dc58-2fe0-485f0a89a4d8/out.jpg)
 
 ---

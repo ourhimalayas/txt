@@ -2,20 +2,20 @@
 ---
 
 
-## 视频|欧盟通过数字货币监管新草案
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2184169/)
+## 七哥專門給習二把脈
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184266/)
 
-制作：香草山视频部
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-3月14日，欧盟议会的经济和货币事务委员会以31票赞成、4票反对、24票弃权，通过了数字货币市场监管的框架草案。该草案包含数字货币的发行和交易，并承诺通过成员国之间的有效许可证，来确保相关企业在成员国之间全面通行。此外，协议中还包括一系列打击市场操纵、洗钱、恐怖主义融资和其他犯罪活动的措施。
-这是欧盟具有里程碑意义的一个框架草案，它预示欧盟数字货币全面监管法案正在快速完善。
+*发布：陶子*
 
-发稿：文敬
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
