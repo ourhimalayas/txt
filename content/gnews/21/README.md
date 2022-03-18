@@ -2,8 +2,8 @@
 ---
 
 
-## 20220317郭文贵大直播 ： 中共为征服全世界等待疫苗灾难的到来
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184813/)
+## 20220317郭文贵大直播 ：新中国联邦华丽地以人道主义形象走向了世界的政治舞台
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184919/)
 
 作者：东京樱花团小视频组
 

@@ -2,20 +2,18 @@
 ---
 
 
-## 樱花头条┃乌克兰总统最近讲话
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185208/)
+## 樱花头条┃美国驻伊拉克领事馆被短程弹道导弹击中
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2185398/)
 
 撰稿：东京樱花团/樱花传媒
 
-乌克兰总统最近讲话
+美国驻伊拉克埃尔比勒的一个领事馆被短程弹道导弹击中—是否和中共最近在中东的行动有关？
 
-我们已经到了一个战略转折点, 我们已经朝着我们的目标和胜利迈进了
-
-信息来源：[https://gettr.com/post/pzsbl928bd](https://gettr.com/post/pzsbl928bd)
+信息来源：[https://gettr.com/post/pzrypm8e39](https://gettr.com/post/pzrypm8e39)
 
 编辑：东京樱花团/asket
 发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-3.jpg)
 
 
  

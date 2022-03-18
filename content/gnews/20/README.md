@@ -2,8 +2,8 @@
 ---
 
 
-## 20220317郭文贵大直播 ：中共绝望不干死美国必被美国消灭
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184832/)
+## 20220315郭文贵大直播 ：七哥谈琅琊榜复仇，及目前体制内的新中国联邦势力
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2184971/)
 
 作者：东京樱花团小视频组
 

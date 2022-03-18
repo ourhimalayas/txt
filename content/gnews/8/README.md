@@ -2,20 +2,36 @@
 ---
 
 
-## 习近平在等待五月份的疫苗灾难
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2185216/)
+## 匿名者黑进经营乌克兰核电站的俄罗斯公司
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2185423/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-9.jpg)
-3月17日大直播中，郭先生提到由于习近平本人要热烈地维护自己的家天下统治，他非常希望美国能够同意他千秋万代，以此作为交换，他就不打台湾。然而习近平共产党政府的独裁统治对于美国来说是原则性问题，无法退步。
+编译：wenwu
 
-近日香港恒生指数暴跌至2万点以下，中共病毒疫苗灾难，尤其更让共产党恐惧的是房地产崩盘，且一旦西方开始制裁，共产党必死无疑。习近平遂发动九千万党员仇恨美国，非要决出个你死我活。近些年来中共经济的腾飞都仰仗于加入WTO，融入全球化，为了打垮美国和美元，共产党策划了一带一路，大搞人民币国际化，打通海陆石油和物资通道。然而事与愿违，共产党目前的实力和国力，根本无法和任何海洋国家抗衡。美国更由于得天独厚的地理条件轻松就能成为大赢家。习近平一直在等待五月份疫苗灾难的到来，供应链问题会比想象中严重，同时会带来难民危机。用中共病毒疫苗灾难把永远强大的美国拖垮是共产党的策略，习近平认为三到四月是很好的时机，最迟不超过五月，一旦这些连锁危机开始，习近平就会动手了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1995-edited.png)taiwannews.com.tw
 
-撰稿、发布：银河系农场—-骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0313_Handflag17x24cm2-2.png)
-欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+匿名者组织入侵了一家俄罗斯在乌克兰经营的核电站（目前被认为是被俄军扣押）的网站，并在黑损了网站后获得了数千兆位元组的数据，以及将其泄露给公众。
+
+匿名者组织的一名代表于周日（13日）告知：该组织已经入侵了俄罗斯国有原子能公司 Rosatom 的网站；俄罗斯军队夺取了乌克兰扎波罗热（Zaporizhzhya）核电站的控制权，该核电站的一栋建筑在战斗中被烧毁，引起全球对潜在核事故的关注。
+
+乌克兰周六（12日）通知国际原子能机构（IAEA），俄罗斯正计划完全控制 Rosatom 管理下的核电厂。尽管俄罗斯否认了这一指控，但据乌克兰国营核能公司 Energoato m称，Rosatom 的官员周五（11日）已抵达扎波罗热，并声称该厂现在是他们公司的一部分。
+
+另外，匿名者代表告知：Rosatom 已经“为乌克兰所有”，并包括与 Rosatom、俄罗斯核电站运营商 Rosenergoatom 以及全俄核电站运营研究所（VNIIAES）的链接。在这三个网站上分别添加了一个带有”FCKPTN”（操普京）字母的新 html 页面。
+
+最后，该集体还发誓要分享“几千兆位元组的数据”和有关公司的安全细节；在周二（15日），从 Rosatom 的网站上发布了第一批 124 兆位元组的数据。
+
+当被问及何种数据被盗时，匿名者代表说，它们是 Rosatom 网路的文件样本，数据库的用户表，以及内部网路用户的证书。截至周二，只有 Rosatom 的主页是可见的；网站的其他部分是无法被访问的。
+
+（文章仅代表作者观点与GNEWS无关）
+
+新闻来源：[taiwannews.com.tw][Anonymous hacks into Russian firm running Ukrainian nuclear plant](https://www.taiwannews.com.tw/en/news/4474025)
 
 * * *
+
+审核：文乐
+校对：花羽
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-1.jpeg)
 
  
 
