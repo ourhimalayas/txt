@@ -2,8 +2,8 @@
 ---
 
 
-## 共产党与人斗理论的变态邪恶
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182960/)
+## 普大帝邪恶的智囊大师瓦里克2
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2182986/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
