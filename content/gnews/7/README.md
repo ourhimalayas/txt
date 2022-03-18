@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：希望大家找到音乐的钥匙和密码
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2188463/)
+## 七哥金句：没打疫苗是你最正确的决定
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2188562/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.11-七哥金句-4.jpg)
 发布：枫叶红了
 
 **更多资讯，请关注：****

@@ -2,50 +2,37 @@
 ---
 
 
-## 对喜联储的一大利好消息❗️❗️ 乌克兰在与俄罗斯的战争中将加密货币合法化
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2185690/)
+## 乌方表示停火协议达成妥协还需要时间
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2185839/)
 
-翻译编辑：波士顿五月花—-思澈
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-乌克兰在与俄罗斯的战争中收到了1亿美元的加密货币捐款
+整理：等风来
+编辑：围剿维尼熊
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2284A905-28B5-401D-B173-5D1D2AF5483A.jpeg)
-
-乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）使该国的加密货币合法化，签署了一项关于虚拟资产的法案，在数字资产捐赠的狂热中支持该国对俄罗斯入侵的防御。
-数字化转型部在周三的一份声明中说，该法律确定了虚拟资产的法律地位、分类、所有权和监管机构，并为加密货币服务提供商设定了注册要求。
-该市场将由乌克兰国家证券和股票市场委员会监管。数字化部在一条推文中说，交易所将能够合法运营，银行将为其开设账户。
-根据2月17日的政府公告，该国家机构的任务是 “制定和推行虚拟资产领域的政策；确定虚拟资产的流通秩序；向虚拟资产服务提供商发放许可证；并在该领域进行监督和金融监测。
-在过去三周里，乌克兰已经收到了至少1亿美元的加密货币捐款，这些人希望支持其国防并帮助资助人道主义工作。
-在泽伦斯基拒绝了2021年9月批准的早期版本后，该法案于2月17日通过了议会。
-声明说，财政部正在努力修订该国的税法和民法，以全面启动虚拟资产的市场。
-
-点评：这对HCOIN 是一大利好消息，又一个主权国家将加密货币合法化，如同郭文贵先生所说喜币将以其独特优势成为数字货币的王者，因为它是唯一。跟着爆料革命，加入新中国联邦成为先知先觉者，预知世界风云变幻，拥有喜币保财致富。
-
-素材链接：[https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/](https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/)
-
-*发布：思澈*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/298281F3-3344-4113-8DE3-7B89F52D58AB.jpg)图片来源：网易
 
 
+根据NHK3月18日报道，俄罗斯军队正在加强对首都基辅的包围。与此同时，俄军还对南部海滨城市敖德萨近郊的城镇发动了进攻，黑海沿岸的战斗也趋于激化。
 
+此外，在东部的马里乌波尔，包括儿童在内的众多市民避难的一座剧场遭到袭击。
 
+俄乌停火谈判仍以在线方式持续进行。俄外交部发言人扎哈罗娃17日说，双方正在探讨军事、政治以及人道方面的问题。在谈判中，俄罗斯强烈要求乌克兰保持中立。
 
+不过，乌克兰代表团成员、乌克兰总统办公室顾问波多利亚克表示，双方分歧依然严重，估计要达成妥协还需要数日到一周半左右的时间。
 
+美国等国担心俄罗斯会在乌克兰使用生物武器或化学武器，对此加强了警戒。
 
+参考链接：[黑海沿岸战斗也趋激化 俄乌谈判仍在继续](https://www3.nhk.or.jp/nhkworld/zh/news/355374/)
 
+*发布：tianzhihuan*
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

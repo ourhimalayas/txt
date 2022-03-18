@@ -2,58 +2,36 @@
 ---
 
 
-## 蓬佩奥表示，台湾需强有力支持来抵制胆大妄为的中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2187856/)
+## 中共国的疫情封锁令全球经济充满不确定性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Mike-Pompeo-700x420-1.jpg)2021 年 10 月 12 日，美国前国务卿迈克·蓬佩奥在以色列耶路撒冷的一次会议上发表讲话。（Amir Levy摄/ 盖蒂图片社）
-《大纪元时报》2022年3月17日报道，
+作者: 纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
 
-中共对台湾构成的威胁越来越大，因此要求我们重新思考美国在印太地区的角色，并展示对台湾外交和军事的支持，以防止中共统治者因西方大国最近的战略失败而变得越来越胆大妄为。这来自于美国前国务卿迈克·蓬佩奥(Mike Pompeo)在 3 月 16 日的传统基金会活动上发表的讲话。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
 
-蓬佩奥强调，当世界将注意力集中在乌克兰危机上时，美国及其盟友不要被短视所迷惑，忽视自治的台湾所面临的日益加剧的危险，这一点至关重要。
-
-他说：“我们需要确保我们继续关注那些会带来下一个风险，下一个对人类尊严、我们的文明和我们的生活方式带来巨大挑战的事情。”
-
-在一个多星期前访问台湾后，蓬佩奥表示，他很清楚，要确保台湾能够抵御外部威胁，需要世界承认台湾作为一个主权国家的身份。
-
-仅有少数国家在外交上承认台湾是一个国家，而包括美国在内的大多数国家都与该岛保持着非官方联系。中国共产党认为这个自治岛屿是其领土的一部分，必要时可以用武力夺取。
-
-“它不是中共国的一部分。如果它成为中共国的一部分，这将不是统一，这将是破坏一个独立国家主权的侵略性行动，而且会持续很长时间。但在中共的胁迫威胁下，西方已经改变了这一立场，”蓬佩奥说。
-
-“因此，西方国家领导人都没有准备好表明台湾是一个独立主权国家的简单事实。我们需要保护台湾的主权。现在是美国这样做的时候了。”
-
-蓬佩奥发表讲话的同一天，有报道称台湾外交部长拒绝对一份据称由俄罗斯情报部门成员泄露的文件的真实性发表评论，该文件声称中共国领导人习近平计划在年底前入侵台湾。
-
-蓬佩奥分析说，美国从阿富汗的混乱撤兵无疑使习近平更加胆大妄为，许多人认为这是近年来最糟糕的外交政策失败之一。他说，在2月24日俄罗斯入侵乌克兰之前的几个月里，西方国家在如何应对乌克兰面临日益严重的威胁时的犹豫不决，进一步鼓励了这位中共国领导人。“只有在乌克兰遭受巨大苦难和破坏之后，我们西方才团结起来，”蓬佩奥说。
-
-蓬佩奥认为，进一步增加台湾作为入侵目标的吸引力在于该岛的繁荣，他将台湾描述为世界上少数几个在大流行病的动荡中实现了五年以上持续经济增长的国家之一。“我们需要确保准备战斗和保卫国家的台湾人民拥有他们需要的工具和资源，”蓬佩奥说。
-
-**简评**：
-独裁者的疯狂是西方民主社会的人所难以想象的。在俄罗斯入侵乌克兰之前，西方政治家想必收到许多情报证明普京即将攻打乌克兰，而动作却是迟缓的。尽管后面针对俄罗斯的制裁一个比一个严重，然而战争到今天已经约23天，俄罗斯的战斗机仍旧盘踞在乌克兰的上空，肆意轰炸夺取姓名。
-
-普京停了么？没有。与其同盟的习近平怕了么？一定也没有。美国国务卿布林肯先生说，中共已经站在了历史错误的一边。美国前国务卿蓬佩奥先生表示，习皇帝看到的是西方在俄乌问题上的迟疑，吸取了俄罗斯进攻的失败，变得更加胆大妄为。全世界现在都盯着台海局势，无论习皇帝打不打台湾，世界都已经认定其一定会打台湾。
-
-台湾现在需要的是如乌克兰一样的自保实力和坚决保台的内心。而从西方文明国家在台湾问题上的不同态度上可以发现，郭文贵先生与新中国联邦、爆料革命的所有战友唯真不破坚持五年来的对中共邪恶的揭露，撕下来了其伪装多年的画皮，使其完全陷入失信的状态。连朝鲜领导人金正恩都清楚，中共是整个世界的威胁，世界灭共已成大势。
-
-新闻链接：[Taiwan Needs Strong Support to Resist Chinese Regime Emboldened by Western Policy Errors: Pompeo](https://www.theepochtimes.com/taiwan-needs-strong-support-to-resist-chinese-regime-emboldened-by-western-policy-errors-pompeo_4344242.html)
-
-*翻译/简评：milkcat*
-
-*校对：村民彼得潘*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
 
 
 
+相关链接:
+
+[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
+
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑: 飞虹
+
+校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

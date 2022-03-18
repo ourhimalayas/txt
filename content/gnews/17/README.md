@@ -2,34 +2,45 @@
 ---
 
 
-## 拜登严厉批评普京为 &#8220;杀人的独裁者 &#8220;
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2188068/)
+## 有声|俄罗斯封杀BBC新闻网
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188435/)
 
-翻译：天天
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3 月 16 日（路透社）——俄罗斯当局周三封锁了英国 BBC 的网站，外交部发言人扎哈罗娃在 Telegram 帖子中表示，这只是俄罗斯对西方发动信息战的开始，莫斯科将对西方媒体采取更多报复措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-202.png)
+英国广播公司的俄罗斯服务网站也被封锁。该网站发布了一段视频，指导俄罗斯人如何通过 VPN 和应用程序继续访问媒体。 它呼吁读者下载 BBC 应用程序并在社交媒体平台上关注新闻网站。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5AA5DB1D-0CC2-41A2-8213-BA7EBD5199D7.jpg)图片来自原文视频截图
+俄罗斯周三还阻止了对至少 31 个其他媒体网站的访问，在总统普京向乌克兰派遣军队后，俄罗斯网络镇压急剧升级。
 
-17日，美国总统拜登用：“杀人的独裁者”等称呼严厉批评了普京总统。 美国认为俄罗斯的侵略行径构成“战争罪”的观点不断强化。
+法新社无法从国内访问 30 多家俄罗斯和外国媒体，这些网站都被俄罗斯列入了封锁名单。
 
-拜登总统称：“（普京总统）是一个杀人的独裁者。让我们一起反对策动对乌克兰人民的不道德战争的真凶。”
+位于以色列的两家俄语媒体9 TV Channel Israel 和 Vesti Israel也被封锁。
 
-前几天，拜登总统批评普京总统的措词不断强硬，直呼其为“战争罪犯。”
+覆盖俄罗斯北高加索地区的独立媒体网站也无法访问，乌克兰和爱沙尼亚的媒体网站也是如此。
 
-17日，美国国务卿布林肯曾表示，美国将考虑支持ICC（国际刑事法院=International Criminal Court）启动调查（俄罗斯的入侵）是否构成“战争罪”。
+据报道，自从俄罗斯入侵乌克兰以来，俄罗斯限制访问越来越多的独立媒体，并阻止访问全球社交媒体巨头 Facebook、Twitter 和 Instagram。
 
-国务卿布林肯称“故意以平民为目标就是战争罪。”
 
-同时，白宫宣布，拜登总统和中共国国家主席习近平将于18日就乌克兰局势等问题进行电话会谈。 这是自俄罗斯入侵乌克兰以来美中两国领导人的首次会谈。
 
-**参考资料：**[news.goo.ne.jp][バイデン氏「人殺しの独裁者」プーチン氏を厳しく批判](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022031802822638.html)
+文字版原文：[俄罗斯封杀BBC新闻网](https://gnews.org/zh-hans/2184755/)
 
-* * *
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-*审核：BryanW*
-*校对：宫米叶*
-*发稿：信心的选择*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-11.jpeg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

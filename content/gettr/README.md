@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 10:01 PM (UTC)`
+
+3月18号：这是我看过．穿G FASHION 这个佛教系列最美的🙏🙏🙏太棒了。【郭先生 Ashlee Simpson 穿我们的佛系裤子啦 她是Jessica Simpson 的妹妹 <br/><br/>https://instagram.com/stories/gfashion/2796911936138618649?utm_source=ig_story_item_share&utm_medium=copy_link】
+
+---
+
 `@miles 3/18/2022 9:54 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-大巴救援实况转播
@@ -149,13 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 3/17/2022 Miles Guo: Citizens of the New Federal State of China are using the NFSC coffee to deliver their messages from the bottom of their hearts to the refugees suffering from the war that we understand them, we love them, we are here for them, and we stick together!<br/><br/>3/17/2022 文贵直播: 新中国联邦人通过现磨的NFSC咖啡向饱受战火煎熬的难民们传递心声，我们懂你们、爱你们，我们为你们付出，我们在一起！<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/18/05/27e3bd0f-9379-7646-b661-beca2c11c5da/out.jpg)
-
----
-
-`@miles 3/18/2022 3:06 AM (UTC)`
-
-【Ukraine Rescue】03/16/2022 Newsweek correspondent in Poland Renata Kim expresses her gratitude to the New Federal State of China and the Rule of Law Foundation of providing humanitarian aid to Ukrainian people, wishing the New Federal State of China to overthrow the Chinese Communist Party dictatorship as soon as possible<br/><br/>【乌克兰救援】03/16/2022 Newsweek 《新闻周刊》驻波兰记者莉娜塔·金感谢法治基金和新中国联邦对乌克兰的人道救援，并祝愿新中国联邦早日推翻中共独裁政权
-![img](https://media.gettr.com/group28/getter/2022/03/18/03/5d8ae016-afcb-7cfe-6c98-50fae5a2d35b/out.jpg)
 
 ---
 

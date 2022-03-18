@@ -2,41 +2,27 @@
 ---
 
 
-## 有声|世界粮食危机迫在眉睫
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188403/)
+## 美参议员决力拿掉福奇的乌纱帽
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188539/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-俄罗斯化肥和煤炭亿万富翁安德鲁-梅利尼琴科（Andrei Melnichenko）周一表示，除非停止乌克兰战争，否则全球粮食危机迫在眉睫，因为化肥价格飙升得太快，许多农民再也负担不起购买化肥。
+作者：加拿大温哥华扬帆农场-薇文
 
-自俄总统普京于2月24日下令入侵乌克兰以来，俄罗斯国内已经发生了很多起大规模的反战游行。几位俄罗斯最富有的商人也公开呼吁和平，其中包括米哈伊尔-弗里德曼、皮奥特-阿文（Pyotr Aven）和奥列格-德里帕斯卡（Oleg Deripaska）。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-60.jpg)
-50岁的梅利尼琴科是俄罗斯最大的化肥生产商之一EuroChem的创始人，他在其发言人通过电子邮件发送的一份声明中告诉路透社，”这场危机的受害者之一将是农业和粮食。
-
-俄罗斯的化肥产量占世界产量的13%，随着美国和西方世界对俄罗斯的制裁，化肥价格将飙涨，从而导致农民负担不起化肥，粮食减产，食品价格飙升。这会使得已经被COVID-19打乱的粮食供应链更加窘迫。
-
-郭文贵先生多次在他的直播中表明，当粮食危机出现时，被邪恶中共狭持的14亿老百姓将是最大受害者，到时候连草都不一定有的吃。
+- ![Sen. Rand Paul](https://d.newsweek.com/en/full/2002147/sen-rand-paul.jpg?w=790&amp;f=674e90a10bf52e9b2cfa871e833acf93)图片来源：Newsweek
 
 
+美国[新闻周刊]15日报道，肯塔基州参议员兰德·保罗近日提出了一项修正案，目的是要拿掉戴在安东尼·福奇头上近40年的乌纱帽。他希望通过修正案，把福奇目前的国家过敏和传染病研究所（NIAID）主任职位分解为三个独立职位。旨在建立问责和监督机制。
 
-文字版原文：[世界粮食危机迫在眉睫](https://gnews.org/zh-hans/2153745/)
+保罗参议员称福奇为 “首席独裁者”。他认为不能让某个人掌握唯一的权力，为数百万美国人做决定。福奇在NIAID主任这一职位上的权力，已被很大程度地滥用，他应该对冠状病毒大流行期间许多失败和错误信息负责。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+该修正案将设立三个新的主任职位：国家过敏性疾病研究所、国家传染病研究所和国家免疫学疾病研究所。一个由纳税人资助的国家公职，建立问责和监督制度十分必要。修正案要求三个新的主任职位由美国总统任命并由参议院确认，任期是五年。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻链接：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[Dr. Fauci Foe Rand Paul Takes Steps to Eliminate ‘Dictator-in-Chief’ Job](https://www.newsweek.com/dr-fauci-foe-rand-paul-takes-steps-eliminate-dictator-chief-job-1688371)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编译撰稿：薇文， 编辑发稿：硫酸羟氯喹64
 
  
 
