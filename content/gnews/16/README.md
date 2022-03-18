@@ -2,51 +2,27 @@
 ---
 
 
-## 全球疫情疫苗数据更新（新的一波疫情已经开始）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182669/)
+## 新中国联邦援乌营地摄制组越来越专业
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182704/)
 
-整理：枳实
-美工：精灵蓝
+**作者、编辑：Candy**
+**摄影：煤油灯（网名）**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
+在此非常感谢加拿大的煤油灯战友，通过他的照相机为我们展示了新中国联邦和法治基金，驻波兰梅迪卡国际人道主义救援中心营地、我们的摄制组的工作环境和工作情况。摄制组由明道战友负责，小组成员来自新中国联邦在全球的各个农场，有两个机位，才三、五个人。他们冒着被中共病毒感染的风险，在寒冷的天气里，捕捉着营地上的焦点。负责二号机位的扬帆农场的亦珊战友，为了保证随时与后方连线，必须一直站在机位旁，只有必须离开机位时才找其他战友临时帮一下忙。
 
+自从明道和战友们一起开始安装调试了星链Wi-Fi，天气较好的时候，信号相对稳定很多。为前、后方的及时连线、传递信息起到了不可估量的作用。但在温度太低的情况下，尤其是零摄氏度以下时，计算机、充电器、充电宝不能正常工作，或者其它原因导致信号不稳，中断连线等情况发生。
 
-雅典娜疫情更新（2022年 3月17日）
+从图片中可以看出，虽然战友们是首次合作，但他们分工协作得特别出色，也表现得越来越专业，为观众们传递了非常丰富的前线资讯。
+![此图像的alt属性为空；文件名为摄制组2.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%91%84%E5%88%B6%E7%BB%842.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组5.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组9.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/摄制组1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/Nicole.jpg)
+在此衷心地向战斗在救援营地的战友们说一声：你们辛苦了，注意防疫、保重身体！愿战争早日结束，热爱和平的人们早日返回家园！
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+***发布：Candy***
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/90F_189VA3FOQRJF1NKY.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-195.png)
-**各国疫情的比较**
-
-澳洲的疫情几天来连日增长。从下图中的各国每日新增病例（每百万人口）曲线比较中可以看出全球范围内很多国家的新一波疫情已经开始。比较韩国和香港，在一周前香港和韩国的疫情曲线基本上是同步暴增。可是香港却忽然莫名其妙的陡降，郭先生上次直播提到过，香港的疫情数字完全是假的，这样就说得通了。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ANDXCXE_6D1LZM.png)
-[2022年3月17日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月17日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

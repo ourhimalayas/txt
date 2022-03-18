@@ -2,8 +2,8 @@
 ---
 
 
-## 普大帝和习二最放不下的是国家权力和家人（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2183010/)
+## 俄乌开战曾庆红说共产党输了输的很惨
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2183022/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,74 +2,51 @@
 ---
 
 
-## 随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2182668/)
+## 全球疫情疫苗数据更新（新的一波疫情已经开始）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182669/)
 
-作者：艾米·吉本斯（Amy Gibbons）
-发布日期：2022年3月14日
-新闻来源：独立报（INDEPENDENT）
-翻译：文虓Bobby
+整理：枳实
+美工：精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1934.png)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/6-68.png)图片：雅典娜农场设计组 精灵蓝
 
-鲍里斯·约翰逊表示，在波兰边境附近的一个军事基地遭到袭击后，英国将“寻求更多选项来加强乌克兰的自卫（能力）”。
 
-英国宣布将为21名严重患病的乌克兰儿童提供癌症治疗，英国人被敦促向逃离战争的人们开放家园。
+雅典娜疫情更新（2022年 3月17日）
 
-孩子们和他们的直系亲属于周日晚上从波兰抵达，在被送往NHS医院继续治疗之前，他们将接受评估。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-卫生大臣萨伊德·贾维德(Sajid Javid)在宣布他们抵达时表示:“我很自豪，英国为这些乌克兰儿童提供了挽救生命的医疗护理，他们在接受治疗的同时，因俄罗斯入侵而被迫离开自己的国家。”
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/90F_189VA3FOQRJF1NKY.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-195.png)
+**各国疫情的比较**
 
-这些孩子是在俄罗斯袭击乌克兰西部亚沃里夫附近的一个军事训练基地后抵达的，该基地距离乌克兰与北约成员国波兰的边境不到15英里(24公里)。
+澳洲的疫情几天来连日增长。从下图中的各国每日新增病例（每百万人口）曲线比较中可以看出全球范围内很多国家的新一波疫情已经开始。比较韩国和香港，在一周前香港和韩国的疫情曲线基本上是同步暴增。可是香港却忽然莫名其妙的陡降，郭先生上次直播提到过，香港的疫情数字完全是假的，这样就说得通了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ANDXCXE_6D1LZM.png)
+[2022年3月17日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月17日改进.pdf)
 
-周日，在与乌克兰总统弗拉基米尔·泽伦斯基的通话中，约翰逊“表示，英国将继续寻求更多的选项来加强乌克兰的自卫（能力），与合作伙伴合作，包括周二在伦敦举行的联合远征军演习(JEF)会议”，唐宁街10号的一位发言人说。
+数据来源：
 
-来自丹麦、芬兰、爱沙尼亚、冰岛、拉脱维亚、立陶宛、荷兰、瑞典和挪威的代表将参加北欧安全联盟峰会。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-约翰逊表示，俄罗斯总统弗拉基米尔•普京(Vladimir Putin)的“野蛮行为”“不仅考验着乌克兰，也考验着全人类”。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-希望在英国为难民提供庇护的人们，可以从周一开始，通过政府的新人道主义计划，打算资助乌克兰人的英国公民可以进行注册登记。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-英国财政大臣迈克尔·戈夫表示，将于周五开始将英国人和逃离战争的人进行匹配，同时他预计第一批采用新路线的难民将在本周末抵达英国。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-保守党议员丹尼·克鲁格告诉BBC，该计划将为乌克兰难民提供“朋友”和支持。
+[covidlive.com.au](https://covidlive.com.au/)
 
-“当一个家庭到来时，他们真正需要的往往是朋友。他们需要有人把他们介绍到这个地区，带他们去教堂，或者告诉他们托儿所在哪里。”
+[Booster shot gap to be slashed to four months and then down to three](https://www.news.com.au/lifestyle/health/health-problems/booster-shot-period-to-be-slashed-to-four-and-three-months-as-omicron-fight-ramps-up/news-story/005b2aabba44f2e2b72dac7aa019611d)
 
-“这些服务不是地方议会最能提供的，但在需要专业支持的地方，特别是需要咨询或就业培训的地方，我们就需要专业服务。”
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-与此同时，英国将向乌克兰提供500多台便携式发电机，为包括医院和庇护所在内的基本服务提供能源。
+发布：tianzhihuan
 
-约翰逊表示，他们将帮助缓解目前困扰该国的电力短缺问题。
-
-唐宁街表示，在与泽伦斯基通话期间，这些人还“谴责了布伦特•雷诺(Brent Renaud)和无数无辜乌克兰人被屠杀，以及德尼普罗鲁德(Dniprorudne)和梅利托波尔(Melitopol)市长被绑架”。
-
-据周日报道，在乌克兰首都基辅附近，俄罗斯军队向雷诺的车辆开火，雷诺这位著名的美国电影制片人被杀。
-
-泽伦斯基指控俄罗斯绑架乌克兰南部港口城市梅利托波尔的市长。
-
-乌克兰外交部长德米特罗·库勒巴(Dmytro Kuleba)周日在推特上表示，“俄罗斯战犯”“绑架了另一名民选的乌克兰市长，即德尼普罗鲁德(Dniprorudne Yevhen Matveyev)市长”。
-
-外交大臣利兹·特拉斯在与乌克兰外长库勒巴交谈后表示，英国“正在尽我们所能提供支持，包括防御性武器和人道主义援助”。
-
-库勒巴表示，两人讨论了“对俄罗斯实施更多制裁的下一步行动”。
-
-他在推特上写道:“必须加大压力，直到俄罗斯停止其无意义的侵略和野蛮的战争罪行。感谢英国加大对乌克兰的支持。”
-
-约翰逊正准备本周与北欧和波罗的海国家的领导人举行一系列会晤，寻求增强欧洲在俄罗斯入侵乌克兰后的恢复能力。
-
-唐宁街10号表示，在本周于伦敦举行的俄罗斯经济论坛(JEF)峰会上，他将敦促各国领导人共同努力，确保不再有更多国家成为普京侵略的受害者。
-
-周一晚上，约翰逊将在其乡间官邸契克斯(Chequers)招待这群人共进晚餐。
-
-该联盟将于周二在伦敦举行会议，之后首相将与芬兰和瑞典的领导人在下午于唐宁街会面。
-
-***原文链接：***
-
-[https://www.independent.co.uk/news/uk/ukraine-children-cancer-uk-refugee-scheme-b2035123.html](https://www.independent.co.uk/news/uk/ukraine-children-cancer-uk-refugee-scheme-b2035123.html)
-
-**审核校对：玫瑰天空
-上传排版：V在途中**
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

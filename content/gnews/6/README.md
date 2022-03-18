@@ -2,8 +2,8 @@
 ---
 
 
-## 习二一定会打台湾，习想把美国干倒
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2183012/)
+## 曾庆红不是一般人，俄乌开战世界将会大变
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2183033/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
