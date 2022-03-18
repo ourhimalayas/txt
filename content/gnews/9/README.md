@@ -2,35 +2,46 @@
 ---
 
 
-## 拜登严厉批评普京为 &#8220;杀人的独裁者 &#8220;
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2188068/)
+## 美考虑支援乌克兰“弹簧刀”无人机
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2188109/)
 
-翻译：天天
+作者: MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+拜登政府正在考虑向乌克兰援助由美国制造的最新型无人机“弹簧刀”(Switchblade)，可以在数英里外精准攻击敌人甚至是摧毁装甲车辆、火炮，若拜登同意援助，将成为乌克兰军力的重大升级。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5AA5DB1D-0CC2-41A2-8213-BA7EBD5199D7.jpg)图片来自原文视频截图
+![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-3.jpg)图片来源网络
 
-17日，美国总统拜登用：“杀人的独裁者”等称呼严厉批评了普京总统。 美国认为俄罗斯的侵略行径构成“战争罪”的观点不断强化。
+拜登预计于周三讨论是否在援助乌克兰的计画中新增弹簧刀无人机，此种无人机是美最新研发的滞空型导弹 (loitering missiles)。
 
-拜登总统称：“（普京总统）是一个杀人的独裁者。让我们一起反对策动对乌克兰人民的不道德战争的真凶。”
+此无人机是由加州公司AeroVironment制造，并卖给美国国防部。有两个型号，分别是Switchblade 300以及600，300是用来精准打击地面作战人员，而600则是用来摧毁装甲车辆或是火炮。
 
-前几天，拜登总统批评普京总统的措词不断强硬，直呼其为“战争罪犯。”
+在去年12月，AeroVironment公司展示了300，但是美国政府禁止他们公开600。而英国也是唯一得到美国政府授权可以购买这批武器的国家，据情报指出，有人说美国有在阿富汗战争中使用过此无人机，但美国政府否认。
 
-17日，美国国务卿布林肯曾表示，美国将考虑支持ICC（国际刑事法院=International Criminal Court）启动调查（俄罗斯的入侵）是否构成“战争罪”。
+无人机本身是“自动智能炸弹”，在上面可以装备摄影镜头、导向系统和炸药。它们透过编程自动打击数英里外的目标，并且可以围绕目标待命，直到时机成熟。该公司表示，600可以飞行40分钟，飞行距离最长可达 50 英里(约80公里)。
 
-国务卿布林肯称“故意以平民为目标就是战争罪。”
+Switchblade无人机是一次性武器，因此被称为「神风无人机」，且成本不高；据估计，300 的成本低至6,000 美元 。
 
-同时，白宫宣布，拜登总统和中共国国家主席习近平将于18日就乌克兰局势等问题进行电话会谈。 这是自俄罗斯入侵乌克兰以来美中两国领导人的首次会谈。
+无人机可以在几分钟内设定好并开始使用，Switchblade的飞行速度比乌克兰一直用来对付俄罗斯的土耳其无人机 Bayraktar TB2无人机快得多，据推测，它们能够贯穿俄罗斯部队参差不齐的防空系统 。
 
-**参考资料：**[news.goo.ne.jp][バイデン氏「人殺しの独裁者」プーチン氏を厳しく批判](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022031802822638.html)
+但目前能否交予乌克兰还有几个问题需要评估，包含美国还有多少的武器储备以及制造的数量，以及若交予乌克兰需要多少的时间培训乌军让他们在战场中使用。
 
-* * *
 
-*审核：BryanW*
-*校对：宫米叶*
-*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-11.jpeg)
+相关链接:
 
+[https://www.nbcnews.com/politics/national-security/ukraine-asks-biden-admin-armed-drones-jamming-gear-surface-air-missile-rcna20197](https://www.nbcnews.com/politics/national-security/ukraine-asks-biden-admin-armed-drones-jamming-gear-surface-air-missile-rcna20197)
+
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑/校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

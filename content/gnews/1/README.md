@@ -2,37 +2,43 @@
 ---
 
 
-## 有声|中共国疫情“大跃进“ 香港黑暗时刻将至
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188266/)
+## 拜登在与中共国国家主席的电话中发出警告
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2188347/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在此前的大直播中，准确地预测香港恒生指数的起伏。3月16，郭先生发布盖特视频表示，恒生指数将抹平香港的百年基业，香港强积金也将因此化为泡影。针对近日深圳地震，香港震感强烈一事，郭先生爆料，早在1988年，中共已分析，香港将在2010-2035年间发生地震。香港建筑不设防震系统，一旦发生地震，对香港将是毁灭性的灾难。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1964.png)图片来自：https://media-cldnry.s-nbcnews.com
-在国内，中共强力执行的“清零“政策，将导致大规模的人道灾难，甚至是大劫难。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-中共欺骗国民，置人民生死于不顾，而新中国联邦将让中国人在自由、民主、法治的社会里，享受安全、健康的生活。（请播放视频，视频时长3‘11“）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/US-China.jpg)
 
 
+图片来源：美联社
 
-文字版原文：[中共国疫情“大跃进“ 香港黑暗时刻将至](https://gnews.org/zh-hans/2184449/)
+全世界都在关注中共国：北京对俄罗斯对乌克兰的战争有何反应？周五，美国总统拜登四个月来首次与中共国国家主席习近平通话。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+周五，美国总统乔·拜登与中共国国家元首和党的领导人习近平通了近两个小时的电话，时间异常长。这是白宫在欧洲中部时间下午 2:03 至下午 3:53 宣布的内容。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这是两人自 2021 年 11 月虚拟美中峰会以来的首次对话。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+当然，俄罗斯对乌克兰的侵略战争。美国和欧盟正在向中共国施压，要求其与莫斯科保持距离。美国一再警告中共国用自己的供应来缓冲西方制裁俄罗斯的影响。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+到目前为止，中共国并没有明确谴责这场战争，这与国际社会几乎所有国家都不同。战争开始前不久，2月初，中共国和俄罗斯在一份联合声明中宣布，他们的伙伴关系“没有国界”。中共国希望继续积极开展贸易，并争取在全球发挥领导作用。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+据中共国官方媒体报道，习近平说，没有人会对像乌克兰这样的冲突感兴趣。 “我们不希望看到像乌克兰危机这样的事情，”习近平在电话中说。美中两国应“承担起国际责任，为世界和平与安宁作出努力”。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+这些都是众所周知的声明，几乎没有新闻价值。中共国仍然没有谴责这场战争，也没有呼吁普京结束流血事件。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+美国政府代表周五表示，美国花了几个小时才向公众介绍电话的术语：“直接、实质性和详细”是谈话内容。白宫表示，拜登解释了为防止和应对俄罗斯入侵所做的努力，例如制裁。他还提到了政府和私营部门的一致反应。
+
+在台湾问题上，拜登提到了现状的重要性以及他对台海挑衅的担忧。在接下来的日子里，可能会更多地了解顶级电话的内容。
+
+欧亚集团智库的政治学家伊恩·布雷默（Ian Bremmer）周五写道，中共国对中立的承诺，即不提供武器或规避制裁的承诺，应该是电话会议的最低限度的结果。
+
+美国政府表示担心中共国可能提供军事装备帮助俄罗斯入侵。 白宫后来说，拜登在电话中描述了“中共国向俄罗斯提供物质支持对乌克兰城市和平民的野蛮袭击的影响和后果”。
+
+这表明，如果发生这种情况，拜登是在威胁对中共国制裁。 中共国暗示它对战争持中立态度。 到目前为止，它与俄罗斯进行了贸易，就像与乌克兰进行了贸易一样。 西方的制裁可以让中共国从更便宜的俄罗斯能源供应中获益。
+
+🔗 [https://www.welt.de/politik/ausland/article237641839/Ukraine-Krieg-Im-Telefonat-mit-Chinas-Praesident-spricht-Biden-eine-Warnung-aus.html](https://www.welt.de/politik/ausland/article237641839/Ukraine-Krieg-Im-Telefonat-mit-Chinas-Praesident-spricht-Biden-eine-Warnung-aus.html)
+
+编辑发表： Shuizhuyu
 
  
 
