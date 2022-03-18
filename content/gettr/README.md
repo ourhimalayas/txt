@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 6:57 AM (UTC)`
+
+3/17/2022 Miles Guo: Zeng Qinghong told people from his hometown in Jiangxi to hoard grain and focus on developing agriculture and suggested that people around him sell the stocks in Communist China and Hong Kong. Zeng Qinghong said the biggest winner of the Russia-Ukraine war would be the US, while the CCP has lost quickly and badly. Zeng also predicted that Wang Qishan would be finished due to Chen Feng.<br/><br/>3/17/2022 文贵直播: 曾庆红叫江西老家的人囤粮、抓农业，并暗示身边人卖掉中共国和香港的股票；曾庆红说俄乌战争的最大赢家是美国，中共却输得又快又惨；曾预测王岐山会栽在陈峰手里<br/>
+![img](https://media.gettr.com/group36/getter/2022/03/18/06/f3cae7e4-ecf6-2c2a-47c9-a3ca1abf39c1/out.jpg)
+
+---
+
 `@miles 3/18/2022 6:22 AM (UTC)`
 
 3/17/2022 Miles Guo: Putin was condemned by the US as a war criminal yesterday. Whoever is in cahoots with Putin will be finished together with him. As the entire world is resenting the Chinese people because of the world’s hatred of Putin, Mao Zedong, and Xi Jinping, citizens of the New Federal State of China have come onto the world’s political stage with a magnificent humanitarian image, proving that we are totally different from the CCP!<br/><br/>3/17/2022 文贵直播：普京昨天被美国正式定为战犯，凡是和他沆瀣一气的都会完蛋！在全世界因憎恨普京、毛泽东、习近平而迁怒于中国人的时候，新中国联邦人以华丽的人道主义形象走上世界政治舞台，证明我们和中共完全不一样！<br/>
@@ -147,15 +154,6 @@ This is a local pharmacy in Poland. NFSC volunteers come here often to purchase 
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
 ![img](https://media.gettr.com/group30/origin/2022/03/17/16/b925dc25-5c92-1f43-22f3-9b9da81b3d80/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/17/2022 3:45 PM (UTC)`
-
-
-![img](https://media.gettr.com/group15/origin/2022/03/17/15/36b24681-009a-9b8d-1085-0442356dd003/ae87f6a22a61491d1f18bb7eaaf7209e.jpg)
-> `@miles 3/17/2022 3:43 PM (UTC)`<br/>💥 March 15, 2022    #Krakow，Poland <br/>📍 At 1 am, the rescue members from Canada joined the rescue team to greet rescue buses. Fellow fighters prepared the banner of NFSC & ROLF to welcome nearly 150 Ukrainian refugees in Kraków, Poland. <br/>#NFSCrescue #ROLFrescue #ukrainehelp <br/><br/>📍 We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party  #CCP≠Chinese<br/><br/>#法治基金 #新中国联邦 #乌克兰救援<br/>2022年3月15日   波兰— #克拉科夫 Kraków <br/>📍凌晨1点，来自加拿大的战友加入了迎接三辆救援大巴的队伍，战友们准备了新中国联邦和法治基金的横幅迎接近150位乌克兰难民。<br/> <br/>📍我们是消灭邪恶中国共产党的新中国人！
-![img](https://media.gettr.com/group5/origin/2022/03/17/15/fa322675-f538-dc58-2fe0-485f0a89a4d8/out.jpg)
 
 ---
 

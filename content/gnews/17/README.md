@@ -2,8 +2,8 @@
 ---
 
 
-## 为了钱什么都不要
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184244/)
+## 俄乌战争让供应链雪上加霜
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2184257/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
