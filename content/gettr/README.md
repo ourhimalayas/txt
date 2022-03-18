@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 2:54 PM (UTC)`
+
+叶钊颖-郝海东-飞飞 《大实话·第十四场》： “战争害人 战友救人 CCP是一切灾难的根源 只有灭共才能拯救人类 新中国联邦人会战斗到底。”   2022-03-18
+![img](https://media.gettr.com/group3/origin/2022/03/18/14/283b8700-6b03-6777-4e66-9ff795e2a42c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/18/2022 2:21 PM (UTC)`
 
 【Ukraine Rescue】03/18/2022 Peter, the owner of the Polish Car rental company, has been participating as a volunteer in the rescue operations of the New Federal State of China.<br/><br/>【乌克兰救援】03/18/2022 波兰租车公司老板Peter一直作为志愿者参加新中国联邦的救援行动。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 2022.03.17 NFSC News   11-year-old boy fled Ukraine alone and reunited with family in Slovakia； Two Fox War Correspondents Killed in an Attack in Ukraine
 ![img](https://media.gettr.com/group27/origin/2022/03/17/22/b7f4a98c-5d25-ab8a-103b-191f0636937f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/17/2022 10:55 PM (UTC)`
-
-3/17/2022 Miles Guo: What kind of scheme did Wang Huning plot for Xi Jinping? Xi is waiting for the outbreak of the COVID vaccine disasters in May, when the US will be facing an influx of refugees from all over the world. Xi wants to take down the US with COVID vaccine catastrophe and refugee crisis<br/><br/>3/17/2022 文贵直播：习近平在王沪宁的撺掇下打的是什么算盘？习在等待5月美国爆发疫苗灾难，赌的是到时候全世界的难民都会涌入美国，习打算用疫苗灾难和难民潮打倒美国<br/>
-![img](https://media.gettr.com/group16/getter/2022/03/17/22/a4101fab-c5ad-afc6-3814-a3e2235716b5/out.jpg)
 
 ---
 

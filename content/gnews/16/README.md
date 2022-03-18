@@ -2,24 +2,27 @@
 ---
 
 
-## 戳破「不打平民」谎言　乌国43间医院遭无情战火轰炸
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2186633/)
+## 救援基地收到波兰志愿者的热汤现烤面包
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2186737/)
 
-根据WHO最新统计，俄罗斯入侵乌克兰以来，已经攻击了43所医疗设施，造成至少12人死亡，其中最惨烈的就是9日遭轰炸的马立波3号妇幼医院，而CNN还原事情经过发现，俄罗斯事前和事后都持续指控医院没有病患，而是被改装成军事基地，但实际逃出的伤者却几乎都是孕妇和孩童。
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月16日，在梅迪卡新中国联邦的救援基地，波兰志愿者亲自烤好香气扑鼻的新鲜面包，送到大帐篷来。波兰志愿者说，难民们连日的颠簸，路途中只能吃些方便食品，而新鲜的面包太难得，希望能给他们的胃些许抚慰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-100.jpg)
+除了新鲜面包，当地志愿者们还送来了三大箱热气腾腾的汤，有甜菜汤、蘑菇汤等。当然，大帐篷里还有为难民、各国志愿者和媒体工作人员提供的NFSC现磨咖啡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3572889-PH-1.jpg)图片来源：CNN
+志愿者们不约而同地选择将物资送到新中国联邦的大帐篷内。这份信任来自前线战友们的辛勤付出和唯真不破。
 
+参考链接：[2022.03.18早 《新中国联邦新闻》](https://gettr.com/streaming/p10lzsj28f3)
 
-简评：当权力控制了媒体，真相永远是掩盖的，不打平民的谎言鬼才会相信，战争受伤害最深的永远都是平民，独裁者关心的永远是战争的胜负，从不会在乎平民的死伤！戳破谎言很简单，消灭独裁需要全球正义力量的行动！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1087240)
+总编：宁文静
+编辑: Ivy001
+审核：宁文静
+校正/发稿：Fei797
 
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
