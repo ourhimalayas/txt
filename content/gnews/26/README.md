@@ -2,31 +2,30 @@
 ---
 
 
-## 援乌营地消息：波兰最美药剂师
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2182563/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2182377/)
 
-**作者：小小酥
-编辑：Candy**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
-*编者按：作者是工作在新中国联邦和法治基金驻波兰梅迪卡国际人道主义救援中心、援乌难民的志愿者，来自喜马拉雅蓝莲花农场。波兰当地时间3月17日发来信息如下：*
-视频来源：小小酥
-当我们新中国联邦团结一致在做正义的事情的时候，所有人都会在帮助。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这是一位波兰的药剂师，笑容非常甜美。我们经常去她所在的药店给前线战友们购买医务物资，一来一去我们也熟悉了起来。她也知道了我们的来意，也知道我们是来帮助乌克兰人民的。
+视频参看：
+[2022.03.17 《NFSC新闻》](https://gettr.com/streaming/p10gf3o9d08)
+[2022.03.17早《NFSC新闻访谈》](https://gettr.com/streaming/p10gzlwbcdc)
 
-今天早晨我们去取医用物资的时候，小姐姐说要免费送给我们一箱子医用消毒酒精，这正是我们现在所需要的，也正好是我们今天想去定购的货物！万佛万神都在帮助我们新中国联邦，想啥来啥！
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-让我们一起来感谢这位波兰最美药剂师！我们一定会以胜利而结束这场战争！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美女药剂师.png)图片来源：小小酥
-*我们后方的战友们祝战斗在前线的勇士们，注意安全，防疫抗毒，保健身体，平安回家！*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
 
-***发布：candy***
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，更多关注**
+[纽约香草山农场NFSC-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场NFSC-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,36 +2,52 @@
 ---
 
 
-## 美追加对乌军事援助称“普京永远无法获胜”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2182533/)
+## 有声|七哥直播重点之一
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2181595/)
 
-**撰稿：文舞两道**
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+新中国联邦我们在乎什么，
+我们要最终就是靠结果，
+我们千万别在乎什么主流媒体，
+什么政府跟什么国际机构？
+就是他们带来的人类灾难，
+一个又一个，包括我们中国人的灾难。
 
-3月16日，美拜登总统签署总统令，决定向乌克兰追加提供总额8亿美元的军事援助，并将提供无人机和防空导弹系统。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1927.png)图片来源：[NHK](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
-拜登总统在现场表示，“我们支持为自由而战，这是美国和全世界的基本原则，普京永远无法获胜”。拜登总统说，“为防止飞机和直升机袭击平民并保卫乌克兰领空”，我们还将为乌克兰提供无人机和防空系统。
+新中国联邦会带给人类一个新的生存模式——正道主义，
+我们要成为没有苗的不分种族，不分颜色，
+不分宗教的新的人类，
+叫新人类、新中国联邦。
+兄弟姐妹们要珍惜没有苗、还有币，
+我们在全世界救援，还有无数的战友在加入，
+现在的救援是1,000万欧元，
+接下来我们救援大概在5,000万欧元左右，
+也就是4亿人民币，我们救援不计成本，
+救援花的钱，未来都会晒在网上，
+战友们解决不了的钱，
+七哥都会在国际上、基金、金融组织上都会解决，
+而且我们永远不会向任何人伸手，
+这是人类上前所未有。
+新中国联邦带来一个新的人类未来的生存模式，
+叫正道主义，
+有正义、有品位、勇敢、无私奉献，是中国人的真颜色！
 
-据白宫称，此次军事援助将包括800个防空导弹系统“毒刺”和100架无人机。
 
-乌克兰总统泽连斯基呼吁在乌克兰上空建立禁飞区，并提供战斗机以抵御俄罗斯军机的轰炸和导弹袭击。美国否认了直接与俄罗斯发生军事冲突的可能性。
 
-另一方面，在平民伤亡不断增加的情况下，加强乌克兰的防空能力已成为当务之急。现在美国在紧盯俄罗斯的同时，尽可能的为乌克兰提供军事支援，拜登总统说，在为乌克兰提供远程防空系统的同时，将尽力与同盟国、友好国一起提供更多的武器和装备”。并表示在各国的协助下将进一步加强对乌克兰的军事援助。
+文字版原文：[七哥直播重点之一](https://gnews.org/zh-hans/2153883/)
 
-此外，拜登总统对记者说，普金是“战犯”，这是拜登总统首次使用“战犯”一词严厉的指责普金。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-白宫发言人萨基在新闻发布会上说，“这是总统在看到独裁者杀害公民，袭击医院、孕妇和记者的残暴行径后发表的言论”。并表示，国际法院正在调查俄罗斯的行为是否构成战争罪。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-信息来源：[NHK：米 ウクライナに追加軍事支援 「プーチンを絶対に勝たせない」](https://www3.nhk.or.jp/news/html/20220317/k10013536971000.html?utm_int=news-international_contents_list-items_007)
-
-**编辑：MQ**
-
-**发布：歪桑の幽霓控**
-
-20220317
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

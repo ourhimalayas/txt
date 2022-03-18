@@ -2,27 +2,51 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月16日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2183520/)
+## 美联邦通信委员会撤销更多中共国电信运营商的运营许可
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2183719/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/NFSC-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16475713531.png)COVID-19 大流行凸显了为美国人提供可靠、快速和负担得起的宽带连接以进行日常事务（例如访问远程工作）的重要性。盖蒂图片社
+美国媒体CNET于2022年３月17日报道,美国联邦通信委员会(FCC)[禁止另外两家中资电信公司](https://www.fcc.gov/document/fcc-revokes-pacific-networks-comnets-telecom-service-authority)在美国市场运营，因为仍旧担心与中共政府有联系的公司可能对国家安全构成威胁。
 
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月16日早](https://gnews.org/zh-hans/2175931/)
+在周三的4-0投票中，该机构禁止“太平洋网络”(Pacific Networks)及其全资子公司“信通”(ComNet)向美国客户提供国内和国际服务。此举是联邦通信委员会为防范来自中共国通信网络的潜在间谍活动而采取的一系列行动中的最新举措。今年1月，联邦通信委员会撤销了中国联通在美国运营的授权，去年中国电信美洲公司也被采取了同样的措施。并且还禁止来自华为和中兴通讯的电信设备。
 
-音频处理：Fei797
-发稿：Fei797
+该机构周三的投票是美国政府为打击中共国在美国电信领域的作用所做的重大努力的一部分，因为人们担心与中共政府关系密切的中共国公司的设备或服务可能被用来收集情报和监视美国人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+此举再次表明，拜登总统正在对中共采取与其前任川普总统类似的强硬政策，后者提出禁止使用中共国公司的5G无线技术。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+多年来，国家安全机构一直警告使用华为和中兴等中共国公司的设备以及让中共国电信服务商在美国运营的危险性。国会山的政客们也已经拉响了警报。
+
+联邦通信委员会主席杰西卡·罗森沃塞尔(Jessica Rosenworcel)表示，该机构的行动是确保美国人信任美国通信网络安全的更大努力的一部分。
+
+“通信网络依赖于信任。”她说，“这就是为什么在过去一年中，联邦通信委员会将通过一系列支持网络安全的举措来增加信任作为优先事项。”
+
+中共官员长期以来一直否认有关国有企业在美国被用于从事间谍活动的指控。他们说，没有证据支持美国的说法，禁令是一种扼杀来自中共国公司的竞争的策略。
+
+简评:
+
+先不谈美国为何制裁这些中资背景的电信服务商，先问一下为何中资的电信企业可以去美国提供服务，而美国及世界其他国家的电信企业却不可以在中共国境内开展业务。一些无耻之徒会说这是为了国家安全，但实际上这是中共政权的几个家族在为垄断整个中共国市场、最大限度地控制网络信息、封锁真相阻挡传播而狡辩。
+
+早在2017年爆料革命的发起人郭文贵先生就向世界警告过，中共对外采取“蓝”、“金”、“黄”战略，首当其冲的“蓝”就是网络控制，对网络数据信息的窃取与搜集，蓝金黄三者互相配合以达到搞死搞乱搞弱美国的险恶目的，美国的倒下即是整个西方世界自二战以来创建的文明秩序的倒下。今年才将这些中共背景的电信企业排除出去，一方面是美国被严重渗透，导致每一个步骤的推进都极其艰难。另一方面是西方资本主义世界对资本的贪婪，导致它们迟迟不忍对中共控制的企业下手。当然，这种对资本的贪婪最终会让美国付出惨痛的代价。还有一个原因就是美国的法治，美国法律制度的严谨，导致剥离这些中共企业变得漫长，联邦通信委员会肯定是要掌握充足的证据才能做出将具有中共背景的中资企业踢出美国市场的决定。
+
+对美国社会来说，这种去中共化的做法肯定会有阵痛，但却是短暂的，而如果不彻底和邪恶的中共政权彻底切割，却会将整个美国和世界置于灭亡的边缘。
+
+新闻链接:[https://www.cnet.com/news/fcc-asks-for-public-input-on-eliminating-digital-redlining/](https://www.cnet.com/news/fcc-asks-for-public-input-on-eliminating-digital-redlining/)
+
+翻译/简评:親愛的瑪嘉烈
+
+PR: Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,13 +2,11 @@
 ---
 
 
-## 日本对俄罗斯进行追加制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2183599/)
+## 3/17/2022 文贵直播：党内支持打台湾的比猪还蠢；曾庆红对身边人的忠告是在家躲两年、活着不染毒、家人健康最重要，意思就是共产党过两年就完蛋了
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2183789/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3._18-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
