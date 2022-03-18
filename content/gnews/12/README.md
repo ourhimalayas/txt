@@ -2,25 +2,26 @@
 ---
 
 
-## 拜习通话之前山东舰穿越台湾海峡
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2187065/)
+## 乌克兰总统呼吁美国更多行动
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2187138/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/H5VBF3C2NZLJZK35U7FIA57YWU.jpg)
-3月18日，在美国拜登总统和中共习近平进行视讯通话的前几个小时，中共一艘航空母舰驶过敏感地带台湾海峡。
+作者：加拿大温哥华扬帆农场-文所未闻
 
-知情人士透露，中共航空母舰驶近中共城市厦门正对面的台湾领土金门岛。一名民用航空乘客拍到了美国航空母舰CV-17和中共山东驱逐舰，美国CV-17跟踪了山东舰一段时间，山东舰甲板没有飞机。台湾和美国并未透露关于此事的更多细节。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2033.png)图片来源：CNN
 
-由于山东舰此前活动时间集中在晚上，此次却在白天活动，台湾认为这非常具有挑衅讯息。鉴于俄乌局势的影响，中共对台湾的侵略时刻都会发生。中共外交部发言人赵立坚却说在中美两国通话之前发生这样的事情是正常的，不要太敏感。
 
-撰稿、发布：银河系农场—-骄子
+据加拿大自由媒体《后千禧年》3月16日报道，当天上午乌克兰总统泽伦斯基在美国国会发表了演讲，泽伦斯基呼吁美国更多地帮助乌克兰，并直接呼吁拜登成为 “世界领袖”。
 
-reference：
+据悉，当泽伦斯基出现在国会的屏幕上时，国会议员起立欢呼，众议院议长南希-佩洛西称他为”勇敢的领导”。在演讲中，泽伦斯基说表示，八年来乌克兰一直在抵制俄罗斯的侵略，而乌克兰从未放弃。现在乌克兰国家的命运正在被决定。他呼吁美国国会采取更大的行动来支持和保护乌克兰。
 
-[https://www.reuters.com/world/china/exclusive-china-sails-carrier-through-taiwan-strait-hours-before-biden-xi-call-2022-03-18/](https://www.reuters.com/world/china/exclusive-china-sails-carrier-through-taiwan-strait-hours-before-biden-xi-call-2022-03-18/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/slogan1_画板-1.png)
-欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
- 
+由于北约和美国一直避免与俄罗斯的直接冲突而导致第三世界大战， 拜登政府一再表示，他们不会支持在乌克兰上空设立 “禁飞区”。但是，短视的政治家们殊不知，第三次世界大战已经开始，俄罗斯对乌克兰的入侵，中共国在中东正在酝酿的各种冲突，以及蓄谋已久对台湾的武力进攻，都清楚的表明 — 第三次世界大战已经开始。
+
+* * *
+
+原文链接：https://thepostmillennial.com/breaking-zelensky-begs-congress-for-a-no-fly-zone
+
+采编：文莱， 编撰：文所未闻， 编辑发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
