@@ -2,30 +2,16 @@
 ---
 
 
-## 【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2188623/)
+## 【粤语配音】2022年3月18日：我们很快就会在盘古龙头相聚
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2188667/)
 
-#### 翻译/撰稿：zzballack
+紐約香草山-香港部
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2074.png)图片来源：福克斯新闻网
-据《布雷特巴特新闻网》（Breitbart News）和《每日传讯 》(The Daily Caller) 3月18日报道，在俄罗斯继续升级其在乌克兰的战争之际，美国总统乔·拜登（Joe Biden）本周五（3月18日）与中共领导人习近平进行了视频通话。
+说实在话，这个世界上最快乐的，就是跟战友们聊点心里话，我跟你们要唠叨唠叨的话，我对着你们战友说说话，我的心里真的老痛快了，可痛快了，后来我现在我真是发现，我最大的收获，就是我发现我有倾诉心声的战友，这是其中之一。
 
-这次通话持续了110分钟，拜登向中共施压，要求其不要在经济或军事上援助莫斯科。
+另外一个，我看到共产党真是完蛋了，好消息太多，据我所知，为啥我今天兴奋？从早到晚就知道，美国给共产党准备了一堆毒药，而且共产党毫不犹豫地，在桌子上摆了108种药，其中可能三分之一是毒药，共产党都是选择最毒的药去吃，你挡都挡不住，这是七哥特别高兴。
 
-通话结束数小时后，白宫在一份解读中说：“这次会谈的重点是俄罗斯对乌克兰的无端入侵。拜登总统概述了美国和我们的盟国以及合作伙伴对这场危机的看法，并详细介绍了我们为防止和应对入侵所做的努力，包括让俄罗斯付出代价。”
-
-白宫补充说，拜登在与习近平的通话中谈到，在俄罗斯对乌克兰的城市和平民进行野蛮攻击时，如果中共向俄罗斯提供物质支持将面临后果。拜登还强调了支持通过外交途径解决危机，保持沟通渠道开放，以应对中美两国之间的竞争。
-
-在台湾问题上，拜登重申美国的对台政策保持不变，并继续反对“对现状的任何单方面改变”。
-
-*责编：白夜*
-
-新闻来源：[Joe Biden Warns Xi Jinping of ‘Consequences’ if China Supports Russia](https://www.breitbart.com/politics/2022/03/18/joe-biden-tries-to-further-isolate-russia-in-110-minute-video-call-with-xi-jinping/)
-
-[Biden Warns China Of ‘Consequences’ Should It Aid Russian Invasion Of Ukraine](https://dailycaller.com/2022/03/18/joe-biden-china-call-consequences-aids-russia-invasion-ukraine/)
-
-
+乌克兰这边，最后大家一定记住，乌克兰可能是中国人最需要珍惜的朋友了，乌克兰和台湾，因为乌克兰，共产党真的是完的会决决的完蛋，会完的非常得很，非常的干净，我们会很快地在盘古龙头相聚。
 
  
 

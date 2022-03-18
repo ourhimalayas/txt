@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 10:23 PM (UTC)`
+
+3/18/2022 MIles Guo’s GETTR: Fellow fighters, please be very careful of the CCP virus! Most people in Hong Kong were infected with deltacron after receiving three COVID jabs. People from the CCP embassy in Poland are often seen on the front line of the NFSC & ROLF Ukraine rescue operation. Are they here to release the virus?<br/><br/>3/18/2022 文贵盖特：战友们要万分小心中共病毒！香港绝大多数人是打了3针疫苗后染上了混合型病毒；新中国联邦乌克兰救援前线经常出现中共驻波兰大使馆派的人，他们是来放毒的吗？<br/>
+![img](https://media.gettr.com/group36/getter/2022/03/18/22/e336a57b-1dda-4550-88de-bf2f80a0e201/out.jpg)
+
+---
+
+`@miles 3/18/2022 10:21 PM (UTC)`
+
+3/18/2022 Miles Guo’s GETTR: Some Americans are complaining to us as the CCP is supporting Russia in its war against Ukraine. We feel sorry for that, but we are citizens of the New Federal State of China. We are different from the CCP, which cannot represent us Chinese. Also, it is Wall Street that has helped with the rise of the CCP. However, HK dollars and Renminbi will for sure end up being joss paper.<br/><br/>3/18/2022 文贵盖特：中共支持俄罗斯打乌克兰让美国人不舒服了，但是对不起，我们是新中国联邦人，共产党不能代表我们中国人；中共有今天也是拜华尔街所赐，但最终港币、人民币一定会成冥纸
+![img](https://media.gettr.com/group15/getter/2022/03/18/22/7c6e1570-a074-2ec3-b340-ad114dcd0760/out.jpg)
+
+---
+
 `@miles 3/18/2022 10:01 PM (UTC)`
 
 3月18号：这是我看过．穿G FASHION 这个佛教系列最美的🙏🙏🙏太棒了。【郭先生 Ashlee Simpson 穿我们的佛系裤子啦 她是Jessica Simpson 的妹妹 <br/><br/>https://instagram.com/stories/gfashion/2796911936138618649?utm_source=ig_story_item_share&utm_medium=copy_link】
@@ -141,20 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 3/17/2022 Miles Guo: Putin was condemned by the US as a war criminal yesterday. Whoever is in cahoots with Putin will be finished together with him. As the entire world is resenting the Chinese people because of the world’s hatred of Putin, Mao Zedong, and Xi Jinping, citizens of the New Federal State of China have come onto the world’s political stage with a magnificent humanitarian image, proving that we are totally different from the CCP!<br/><br/>3/17/2022 文贵直播：普京昨天被美国正式定为战犯，凡是和他沆瀣一气的都会完蛋！在全世界因憎恨普京、毛泽东、习近平而迁怒于中国人的时候，新中国联邦人以华丽的人道主义形象走上世界政治舞台，证明我们和中共完全不一样！<br/>
 ![img](https://media.gettr.com/group7/getter/2022/03/18/06/894a59d6-b97a-a359-0ec4-b3ac5c4ed5bf/out.jpg)
-
----
-
-`@miles 3/18/2022 5:25 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月17日第13天当日救援统计：<br/>巴士救援难民：47人<br/>Medyka救援站接待：约470人<br/>巴士发车：1次<br/><br/>累计救援总计：<br/>巴士救援难民：1672人<br/>Medyka救援站接待：约6186人<br/>巴士发车：33次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation report <br/><br/>Day 13 - Date: March 17, 2022 :<br/><br/>Refugees Rescued by Bus: 47 people<br/>Medyka Rescue Station Reception: about 470 people<br/>Bus Departure: 1 time<br/><br/>Total：<br/>Refugees Rescued by Bus: 1672 people<br/>Medyka Rescue Station Reception: about 6186 people<br/>Bus Departures: 33 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group18/getter/2022/03/18/05/eef23e76-3184-a352-1618-e37a5b40596a/eac50922e0b7326d62e1f2a855dbcb24.jpg)
-
----
-
-`@miles 3/18/2022 5:16 AM (UTC)`
-
-3/17/2022 Miles Guo: Citizens of the New Federal State of China are using the NFSC coffee to deliver their messages from the bottom of their hearts to the refugees suffering from the war that we understand them, we love them, we are here for them, and we stick together!<br/><br/>3/17/2022 文贵直播: 新中国联邦人通过现磨的NFSC咖啡向饱受战火煎熬的难民们传递心声，我们懂你们、爱你们，我们为你们付出，我们在一起！<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/18/05/27e3bd0f-9379-7646-b661-beca2c11c5da/out.jpg)
 
 ---
 
