@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 2:49 AM (UTC)`
+
+3/17/2022 Miles Guo: Zeng Qinghong is going to take off earlier to return to Beijing, what does that mean? The CCP members who are in support of invading Taiwan are idiots. Zeng Qinghong's advice to the people around him is to stay home for two years, don’t get infected by the virus, and that the most important thing is to make sure the family members are healthy, meaning that the CCP will be finished in two years.<br/><br/>3/17/2022 文贵直播：曾庆红提前起驾回京，这意味着啥？党内支持打台湾的比猪还蠢；曾庆红对身边人的忠告是在家躲两年、活着不染毒、家人健康最重要，意思就是共产党过两年就完蛋了<br/>
+![img](https://media.gettr.com/group41/getter/2022/03/18/02/e12a7086-582f-9f43-092d-7e6a96145c74/out.jpg)
+
+---
+
 `@miles 3/18/2022 1:55 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
@@ -150,13 +157,6 @@ It is common knowledge that Putin fights Ukraine, and Xi Jinping fights Taiwan.E
 `@miles 3/17/2022 2:23 PM (UTC)`
 
 中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰<br/><br/> https://gnews.org/zh-hans/2178748/
-
----
-
-`@miles 3/17/2022 1:51 PM (UTC)`
-
-3/15/2022 Miles Guo: The Hang Seng Index is a bubble completely made up by the CCP. It is the enterprises under the CCP’s control that are manipulating the financial market in Hong Kong. The recent plunge of the China concepts stock is unprecedented in the history of humanity. The Hang Seng Index dropping below 20,000 means that the international financial scam launched by the CCP can no longer continue.<br/><br/>3/15/2022 文贵直播：恒生指数都是中共兑的水，中共控制的企业在操纵着香港金融市场；最近中概股的大跌在人类上前所未有；恒生跌破2万点说明中共在香港的国际金融骗局玩不下去了<br/>
-![img](https://media.gettr.com/group38/getter/2022/03/17/13/02d3f827-97a2-522e-bd0d-7d2cfc9f12fb/out.jpg)
 
 ---
 
