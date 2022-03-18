@@ -2,25 +2,37 @@
 ---
 
 
-## 拜登将参加北约峰会讨论俄乌战争
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188628/)
+## 有声|乌克兰中国留学生亲述新中国联邦救援经历
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188682/)
 
-作者：加拿大温哥华扬帆农场-重生之鹰
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月15日，两位乌克兰中国留学生接受新中国联邦采访，亲述俄乌战争爆发后，在新中国联邦、治基金的帮助下，逃离基辅来到波兰的经历，感恩新中国联邦、法制基金的救助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1967.png)
+据两位留学生所述，在第一声爆炸之前，没有人相信会发生战争。而在战争持续几天后，他们意识到必须自救。通过微信朋友圈，他们看到新中国联邦、法制基金的救援信息，并立即打通了救援电话。他们采纳了新中国联邦战友建议的救援路径，顺利逃离基辅，到达利沃夫。而后，他们乘坐新中国联邦的大巴，到达波兰边境小镇热舒夫，随后抵达克拉利夫的酒店。一路上，他们得到救援团队暖心的关怀。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2075.png)图片来源：TPM
+与中共置同胞性命于不顾形成强烈的对比，新中国联邦在战争爆发后，第一时间对同胞展开的救援行动，使两位获救留学生无限感慨。
 
 
-据白宫新闻秘书珍·帕莎其称，美国总统将参加定于3月24日召开的北约“特别”峰会，将“讨论针对俄罗斯对乌克兰无明不白的攻击所采取的持续威慑和防御措施，并重申对北约盟国的坚定承诺”。
 
-北约秘书长斯托尔滕贝格周二下午也在推特上表示：“我们将解决俄罗斯入侵乌克兰的问题，我们对乌克兰的坚定支持，并进一步加强北约的威慑和防御。在这个关键时刻，北美和欧洲必须继续站在一起。”
+文字版原文：[乌克兰中国留学生亲述新中国联邦救援经历](https://gnews.org/zh-hans/2184512/)
 
-此外，拜登还将参加预定的欧洲理事会峰会，讨论“对乌克兰的共同关切，包括跨大西洋努力让俄罗斯付出经济代价，为受暴力影响的人提供人道主义支持，以及解决与冲突有关的其他挑战。”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-新闻链接：[https://thepostmillennial.com/biden-brussels-nato-summit-russia-ukraine](https://thepostmillennial.com/biden-brussels-nato-summit-russia-ukraine)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编译撰稿：重生之鹰， 编辑发稿：硫酸羟氯喹64
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,25 +2,21 @@
 ---
 
 
-## 中日财经爆┃中共房地产和就业危机叠加：多地建筑业清退超龄农民工
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2188488/)
+## 53万枚布制口罩库存“消失” 厚生劳动大臣谢罪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2188525/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://p3.toutiaoimg.com/large/tos-cn-i-qvj2lq49k0/4a908046f477402393099ff72ab66ef0&amp;imgrefurl=https://www.zhdate.com/news_image/629322.html&amp;tbnid=JVQWUKE7_ixtEM&amp;vet=12ahUKEwipo9XF9M_2AhX8UfUHHWX1AFsQMyglegUIARD3AQ..i&amp;docid=BY-vA_VsFndIlM&amp;w=640&amp;h=427&amp;itg=1&amp;q=%E5%BB%BA%E7%AD%91%E5%86%9C%E6%B0%91%E5%B7%A5&amp;ved=2ahUKEwipo9XF9M_2AhX8UfUHHWX1AFsQMyglegUIARD3AQ)
-据工人日报3月18日报道，上海、天津和湖北等多个地区发布建筑业清退令，全面清理“超龄”农民工。
+撰稿：东京樱花团丨向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2070.png)[*图片来源*](https://news.tbs.co.jp/newseye/tbs_newseye6008522.html)
+3月18日在参议院预算委员会上，厚生劳动大臣后藤茂之表示，政府大量库存的、约有53万个布制口罩“安倍的口罩”已经发放出去却没有被记录在案。后藤大臣道歉说，“尽管工作不得不匆忙进行，但库存数量上出现了差距非常遗憾。”
 
-据报道，上海市住建委、市人社局和市总工会共同发文，明确规定禁止18周岁以下、60周岁以上男性及50周岁以上女性三类人员进入施工现场从事建筑施工作业。
+立宪民主党的田岛麻衣子指出：“当从记录的采购数量中减去分配数量时，与库存数量不符，大约有530,000件记录不符。”另一方面，后藤先生解释说，“实际库存量比计算出的库存量少约53万件，这是一个事实。当时为了第一时间把口罩送到国民手里，每天在全国各地的工作基地运送、打包、分配大量口罩，而在工作过程中，推测是运送的数量并没有计算造成的。”审计委员会的一位负责人也指出，“并非所有分配次数的记录都被准确保存”。
 
-作为曾经是中共经济三驾马车的房地产，一度解决了广大农民工的进城就业问题。但近年来，随着中共经济急转直下，大学生毕业即失业的问题愈演愈烈。
+厚生劳动省当时的计划是向希望得到的个人和团体免费分发约 8272 万个布口罩。后藤先生说：“我们希望确保这项分发工作得到彻底的管理，以防止这种情况发生。”
 
-中共教育部公布的数据显示，2022届高校毕业生总规模预计突破1000万人，高校毕业生人数将达到1076万人，同比增加167万人，再创历史新高。
+信息来源：[**アベノマスク  53万枚「消える」  記録と在庫数合わず  厚労相陳謝**](https://news.yahoo.co.jp/articles/c545244eb65d3e8407dbf01edcca907ded4a9741)
 
-当前，中共房地产正在普遍经历债务违约、欠薪停工等乱局，另一方面，中共又面临大量新增的高校毕业生，对于中共而言，清退所谓的超龄农民工无关乎福利关怀，仅仅是病急乱投医而已。
-
-信息来源：[多地发布建筑业清退令，超龄农民工路在何方？](http://www.news.cn/politics/2022-03/18/c_1128482611.htm)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 

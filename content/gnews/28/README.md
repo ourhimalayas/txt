@@ -2,57 +2,36 @@
 ---
 
 
-## 接种疫苗的12岁女孩在睡梦中死于心脏病
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2187905/)
+## 中共国的疫情封锁令全球经济充满不确定性
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
 
-翻译       意大利达芬奇农场          小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-18-alle-16.31.50.png)图片来源：eventiavversinews.it
-皮埃特拉•伯劳考皮奥•阿格古伊拉( Piettra Procopio Aguiar )在睡觉时死于癫痫发作和心脏病发作。皮埃特拉的母亲希拉•伯劳考皮奥(Sheila Procopio )在社交媒体上宣布女儿死亡。从她的帖子可以看出，希拉仍然无法相信女儿突然悲惨的死亡。
+作者: 纽约香草山 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
 
-“ 我们还不知道发生了什么！皮埃特拉一直是一个健康的孩子， 她从未有过我们所知道的任何神经或心脏问题。”希拉写道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
 
-“她可能在睡觉时癫痫发作， 心脏病发作，但这些只是假设。30天报告出来以后，我们会知道到底发生了什么，”她补充道。
+当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
 
-以下是皮埃特拉母亲所写：
 
-她走了……但并不是永远……
 
-我的舞者、同伴、知心朋友、那个鼓励我的人，我的太阳、我的力量、我的空气、我的生命……
+相关链接:
 
-我无法呼吸、我的心好痛……好痛……
+[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
 
-皮埃特拉就像彩虹宝贝一样来到我们的身边、在痛失双胞胎后，她给我们带来了欢乐！
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-多么快乐！
+编辑: 飞虹
 
-她很可爱，对每个人都很友善，她与每个人都打招呼。
+校正/发稿：Petite abeille
 
-她是一个特别的女孩，她醒来时唱着歌，总是很快乐。
-
-每个提到她的人都在谈论她的阳光，她的笑容，她的甜美……她是如此……
-
-这有多么难，我们多么想念她。我们多痛苦、我多么想念她的亲吻和拥抱……
-
-我们与她的告别是：“ 晚安妈妈，祝福你，你与上帝同眠， 我爱你。”
-
-第二天早上， 当我跟她告别去上班，我去吻她， 她冰冷、僵硬、毫无生气……
-
-上帝呀， 这是我一生中经历的最大痛苦，我多么希望这一切都被删除。
-
-我祈求上帝赋予我承受这一切的力量……支持我的家人……我不想质疑上帝，为什么会发生这一切……
-
-我只想感谢皮埃特拉的生命，我与她度过的每一天……我只与她待了几天……我本想与她待更长的时间……
-
-但要感谢这一礼物，这的的确确是一份礼物，她是在我生日那一天出现在我们的生活，问能为我们做什么，问我们是否都好，她亲吻并拥抱我们。
-
-哦！我的小女儿，我们多么想你！
-
-一位网民问希拉她的女儿是否接种了疫苗， 她回答道：“ 是的， 我们应该等待报告结果。”
-
-原文链接：[https://www.eventiavversinews.it/12-anni-muore-a-causa-di-un-attacco-di-cuore-nel-sonno-indagini-in-corso-per-stabilire-il-legame-con-il-vaccino/](https://www.eventiavversinews.it/12-anni-muore-a-causa-di-un-attacco-di-cuore-nel-sonno-indagini-in-corso-per-stabilire-il-legame-con-il-vaccino/)
-
-编辑、上传： Xiao   baige
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

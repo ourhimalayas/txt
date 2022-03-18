@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 11:00 PM (UTC)`
+
+❤️【Ukraine Rescue】March 17, 2022—Kraków, Poland<br/>💦 At 2 am on March 17, the frontline rescue team greeted three rescue buses from Lviv carrying 190 Ukrainian refugees.<br/>💦 Although it was late at night, the spirit and state of our fellow fighters from D.C. and Canada were still very good. They held banners of the New Federal State of China and Rule of Law Foundation to express our support for Ukrainian refugees.<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>❤️【乌克兰救援】2022/03/17—波兰克拉科夫<br/>💦 3月17日凌晨2点，前线救援团队迎接了三辆来自利沃夫载有190位乌克兰难民的救援大巴。<br/>💦 尽管已是深夜，但是来自DC和加拿大战友们的精神面貌和状态依旧非常棒，他们手持新中国联邦和法治基金的横幅，表达我们对乌克兰难民的支持。
+![img](https://media.gettr.com/group48/origin/2022/03/18/23/015c13f1-2027-c68e-6c36-9eb1cebb732c/out.jpg)
+
+---
+
 `@miles 3/18/2022 10:23 PM (UTC)`
 
 3/18/2022 MIles Guo’s GETTR: Fellow fighters, please be very careful of the CCP virus! Most people in Hong Kong were infected with deltacron after receiving three COVID jabs. People from the CCP embassy in Poland are often seen on the front line of the NFSC & ROLF Ukraine rescue operation. Are they here to release the virus?<br/><br/>3/18/2022 文贵盖特：战友们要万分小心中共病毒！香港绝大多数人是打了3针疫苗后染上了混合型病毒；新中国联邦乌克兰救援前线经常出现中共驻波兰大使馆派的人，他们是来放毒的吗？<br/>
@@ -148,13 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 3/17/2022 Miles Guo: Zeng Qinghong told people from his hometown in Jiangxi to hoard grain and focus on developing agriculture and suggested that people around him sell the stocks in Communist China and Hong Kong. Zeng Qinghong said the biggest winner of the Russia-Ukraine war would be the US, while the CCP has lost quickly and badly. Zeng also predicted that Wang Qishan would be finished due to Chen Feng.<br/><br/>3/17/2022 文贵直播: 曾庆红叫江西老家的人囤粮、抓农业，并暗示身边人卖掉中共国和香港的股票；曾庆红说俄乌战争的最大赢家是美国，中共却输得又快又惨；曾预测王岐山会栽在陈峰手里<br/>
 ![img](https://media.gettr.com/group36/getter/2022/03/18/06/f3cae7e4-ecf6-2c2a-47c9-a3ca1abf39c1/out.jpg)
-
----
-
-`@miles 3/18/2022 6:22 AM (UTC)`
-
-3/17/2022 Miles Guo: Putin was condemned by the US as a war criminal yesterday. Whoever is in cahoots with Putin will be finished together with him. As the entire world is resenting the Chinese people because of the world’s hatred of Putin, Mao Zedong, and Xi Jinping, citizens of the New Federal State of China have come onto the world’s political stage with a magnificent humanitarian image, proving that we are totally different from the CCP!<br/><br/>3/17/2022 文贵直播：普京昨天被美国正式定为战犯，凡是和他沆瀣一气的都会完蛋！在全世界因憎恨普京、毛泽东、习近平而迁怒于中国人的时候，新中国联邦人以华丽的人道主义形象走上世界政治舞台，证明我们和中共完全不一样！<br/>
-![img](https://media.gettr.com/group7/getter/2022/03/18/06/894a59d6-b97a-a359-0ec4-b3ac5c4ed5bf/out.jpg)
 
 ---
 

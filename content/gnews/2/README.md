@@ -2,25 +2,27 @@
 ---
 
 
-## 海牙国际法院裁定俄罗斯应立即停止对乌克兰的军事行动
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188686/)
+## 美国致力加强台湾不对称作战能力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188747/)
 
-作者：加拿大温哥华扬帆农场-晨熹
+作者：加拿大温哥华扬帆农场-文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2077.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2078.png)图片来源：TWN
 
 
-据英国卫报3月16日报道， 海牙国际法院以13票对2票裁定一项临时命令“俄罗斯应立即暂停其2022年2月24日在乌克兰境内开始的军事行动”。 法庭上只有俄罗斯和中共国法官对该命令投了反对票。
+据台湾媒体【台湾英文新闻】3月16日报道，美国国防部日前已通知国会可能需要向台湾再次出售武器，而此次交易可能不是飞机和舰艇等传统武器，而是有助于台湾提高不对称作战能力的物品，如与作战训练、后勤和战场管理相关的精确弹药和装备。
 
-该命令是针对俄罗斯声称乌克兰军队在卢甘斯克和顿涅茨克地区实施种族灭绝，并以此为理由发动战争所作出的紧急裁决。法官说海牙法院没有看到任何证据支持克里姆林宫为战争辩护。因此法院认为乌克兰有合理的权利不受俄罗斯军事行动的影响。
+据悉，美国国防与安全研究说【INDSR】高级分析师认为，美国在蔡英文总统执政期间，迄今已售出18种武器，其中16种有助于台湾的不对称作战能力，同时也表明台湾和美国之间达成默契，即在符合台湾当前的防御资源的前提下，增强台湾的不对称能力并达到最大的防御能力。
 
-根据《联合国宪章》，国际法院的裁决具有约束力，它虽然没有执行手段，但却对普京发动战争的借口提供了权威性反驳。
+此外，中共内部的国防军政治军事作战概念部的研究员表示，美国对台军售是美国致力于帮助台湾自卫的标志，也是向地区盟国发出加强安全合作以抵抗中共军队的信息。
 
-新闻来源：[https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine](https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine)
+链接：
+
+[Analysts expect next US arms sale to bolster Taiwan’s asymmetric defense | Taiwan News | 2022-03-16 20:44:00](https://www.taiwannews.com.tw/en/news/4475628)
 
 * * *
 
-采编：风云小哥， 编译撰稿：晨熹，编辑发稿：硫酸羟氯喹64
+采编：青青，编译撰稿：文莱，编辑发稿：硫酸羟氯喹64
 
  
 
