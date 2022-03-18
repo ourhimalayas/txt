@@ -2,28 +2,19 @@
 ---
 
 
-## 中共国的疫情封锁令全球经济充满不确定性
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
+## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月17日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188026/)
 
-作者: 纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/NFSC-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
+文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](https://gnews.org/zh-hans/2182377/)
 
-当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
+音频处理：Fei797
+发稿：Fei797
 
-
-
-相关链接:
-
-[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
-
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑: 飞虹
-
-校正/发稿：Petite abeille
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
