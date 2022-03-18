@@ -2,8 +2,8 @@
 ---
 
 
-## 泽连斯基在美国国会发表演讲：我们想要禁飞区的要求过分了吗？
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2183298/)
+## Nathan Schweikart 從波蘭前往烏克蘭，幫助他的未婚婦離開利沃夫。他告訴新唐人記者，這座城市感覺陰沉、寂寞，但人們充滿希望。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2183331/)
 
 作者:东京樱花团小视频组
 
@@ -13,8 +13,6 @@
 
 * * *
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

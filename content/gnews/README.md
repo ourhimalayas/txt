@@ -15,113 +15,113 @@
 
 ---
 
-### [秘翻在线：普京指责倾向西方的俄罗斯人是祖国的叛徒](/content/gnews/1/README.md)
+### [大直播后记：俄乌战争改变人类格局](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰总统请求美国给予更多支持](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [秘翻在线：普京指责倾向西方的俄罗斯人是祖国的叛徒](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌之战，中共买单](/content/gnews/2/README.md)
+### [俄乌之战，中共买单](/content/gnews/4/README.md)
  ` 银河勇气之星`
 
-### [美众议院压倒性通过法案 中止与俄国、白俄正常贸易关系](/content/gnews/3/README.md)
- ` 蓝莲花农场`
-
-### [Nathan Schweikart 從波蘭前往烏克蘭，幫助他的未婚婦離開利沃夫。他告訴新唐人記者，這座城市感覺陰沉、寂寞，但人們充滿希望。](/content/gnews/4/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|新中国联邦国际救援队进入乌克兰境内救援](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [大直播后记：俄乌战争事实，自强赢得帮助](/content/gnews/6/README.md)
+### [大直播后记：俄乌战争新中国联邦是最大受益者](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [中共国的Omicron浪潮威胁到全球供应链](/content/gnews/7/README.md)
+### [有声|共产党再次蓄意破坏新中国联邦救援行动](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [美众议院压倒性通过法案 中止与俄国、白俄正常贸易关系](/content/gnews/7/README.md)
+ ` 蓝莲花农场`
+
+### [Nathan Schweikart 從波蘭前往烏克蘭，幫助他的未婚婦離開利沃夫。他告訴新唐人記者，這座城市感覺陰沉、寂寞，但人們充滿希望。](/content/gnews/8/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|新中国联邦国际救援队进入乌克兰境内救援](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [大直播后记：俄乌战争事实，自强赢得帮助](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [中共国的Omicron浪潮威胁到全球供应链](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泽连斯基在美国国会发表演讲：我们想要禁飞区的要求过分了吗？](/content/gnews/8/README.md)
+### [泽连斯基在美国国会发表演讲：我们想要禁飞区的要求过分了吗？](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|独裁者之死—卡扎菲](/content/gnews/9/README.md)
+### [有声|独裁者之死—卡扎菲](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [大直播后记：中共救恒生指数](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [3/17/2022 文贵直播：建议美国在今年五月份以后通过立法要求中共提供所有关于病毒的信息，否则将像对待俄罗斯一样对中共进行经济制裁，并查封中共在海外的资产](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [美参议员再次提出依法解雇福奇](/content/gnews/12/README.md)
+### [加拿大疫苗伤害赔偿计划准备就绪](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|新中国联邦救援信息：](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [大直播后记：习太阳打算一头走到黑](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大疫苗伤害赔偿计划准备就绪](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [新中国联邦乌克兰救援行动在乌克兰的救援中心引起了国际关注](/content/gnews/16/README.md)
+### [新中国联邦乌克兰救援行动在乌克兰的救援中心引起了国际关注](/content/gnews/15/README.md)
  ` 蓝莲花农场`
 
-### [《避风港HAVEN》直播内容精选（第二十一集· 下 ）](/content/gnews/17/README.md)
+### [《避风港HAVEN》直播内容精选（第二十一集· 下 ）](/content/gnews/16/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [【 G时新闻 】俄罗斯即将掀起大规模债务违约潮](/content/gnews/18/README.md)
+### [【 G时新闻 】俄罗斯即将掀起大规模债务违约潮](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [【每日聚焦】俄乌战争3月17日简要](/content/gnews/19/README.md)
+### [【每日聚焦】俄乌战争3月17日简要](/content/gnews/18/README.md)
  ` 蓝莲花农场`
 
-### [关于25至44岁人群死亡增加的惊人发现](/content/gnews/20/README.md)
+### [关于25至44岁人群死亡增加的惊人发现](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [新中国联邦援乌营地摄制组越来越专业](/content/gnews/21/README.md)
+### [新中国联邦援乌营地摄制组越来越专业](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/22/README.md)
+### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [援乌营地消息：波兰最美药剂师](/content/gnews/23/README.md)
+### [援乌营地消息：波兰最美药剂师](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年3月上旬发生的国际重要事件](/content/gnews/24/README.md)
+### [2022年3月上旬发生的国际重要事件](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [基辅遭受了三起单独的袭击](/content/gnews/25/README.md)
+### [基辅遭受了三起单独的袭击](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美追加对乌军事援助称“普京永远无法获胜”](/content/gnews/26/README.md)
+### [美追加对乌军事援助称“普京永远无法获胜”](/content/gnews/25/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [五月花简报（03/17/2022）](/content/gnews/27/README.md)
+### [五月花简报（03/17/2022）](/content/gnews/26/README.md)
  ` mayflowertranslate`
 
-### [七哥采访妮可](/content/gnews/28/README.md)
+### [七哥采访妮可](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/29/README.md)
+### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/30/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月17日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/31/README.md)
+### [论中国共产党极权统治下人们的平庸之恶](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [华为证实加保守党领候选人为孟晚舟案提供协助](/content/gnews/32/README.md)
+### [华为证实加保守党领候选人为孟晚舟案提供协助](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [拜登周五将与习近平通话](/content/gnews/33/README.md)
+### [拜登周五将与习近平通话](/content/gnews/32/README.md)
  ` Shuizhuyu`
 
-### [土耳其要求普京与泽连斯基会面以推进俄乌停火](/content/gnews/34/README.md)
+### [土耳其要求普京与泽连斯基会面以推进俄乌停火](/content/gnews/33/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022/03/17 英喜时事速递](/content/gnews/35/README.md)
+### [2022/03/17 英喜时事速递](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新西兰财经G乐部2022年3月17日:财经新闻整理](/content/gnews/36/README.md)
+### [新西兰财经G乐部2022年3月17日:财经新闻整理](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [有声|克劳斯·施瓦布的大重置注定要失败](/content/gnews/36/README.md)
+ ` MOSREC`
 
 ### [樱花时政┃美司法部起诉五名中共特工](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
