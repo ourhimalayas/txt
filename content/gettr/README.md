@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 1:55 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-最前线跟踪报道
+![img](https://media.gettr.com/group25/origin/2022/03/18/01/a3cf3d3a-78ce-934a-7567-58a16093c946/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/18/2022 1:27 AM (UTC)`
 
 3/17/2022 Miles Guo: The West has realized that they should seize the overseas state-owned assets of the CCP ASAP. Changpeng Zhao will be finished, but the Himalaya Coin will be the cleanest and greatest digital currency. Many Hong Kong people have bought the Himalaya Coin recently. Xi daydreams that the COVID vaccine disaster and worldwide financial collapse will bring the CCP its best moment, which, however, will become Xi’s nightmare.<br/><br/>3/17/2022 文贵直播：西方意识到要尽快查封中共在海外的国有资产；赵长鹏会完蛋，喜币将成为全世界最伟大、最干净的币，最近港人大量买喜币；习幻想疫苗灾难和世界金融崩溃将带来中共最美好的时刻，但这却会成为他的噩梦<br/>
@@ -150,13 +157,6 @@ It is common knowledge that Putin fights Ukraine, and Xi Jinping fights Taiwan.E
 
 3/15/2022 Miles Guo: The Hang Seng Index is a bubble completely made up by the CCP. It is the enterprises under the CCP’s control that are manipulating the financial market in Hong Kong. The recent plunge of the China concepts stock is unprecedented in the history of humanity. The Hang Seng Index dropping below 20,000 means that the international financial scam launched by the CCP can no longer continue.<br/><br/>3/15/2022 文贵直播：恒生指数都是中共兑的水，中共控制的企业在操纵着香港金融市场；最近中概股的大跌在人类上前所未有；恒生跌破2万点说明中共在香港的国际金融骗局玩不下去了<br/>
 ![img](https://media.gettr.com/group38/getter/2022/03/17/13/02d3f827-97a2-522e-bd0d-7d2cfc9f12fb/out.jpg)
-
----
-
-`@miles 3/17/2022 1:49 PM (UTC)`
-
-Chinese Communist Party Again Deliberately Undermines NFSC Rescue<br/>中国共产党再次蓄意破坏新中国联邦救援行动
-![img](https://media.gettr.com/group23/origin/2022/03/17/13/e02e81d8-3c6d-ab38-cae0-1e295ddb9dda/out.jpg)
 
 ---
 
