@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/18/2022 3:06 AM (UTC)`
+
+【Ukraine Rescue】03/16/2022 Newsweek correspondent in Poland Renata Kim expresses her gratitude to the New Federal State of China and the Rule of Law Foundation of providing humanitarian aid to Ukrainian people, wishing the New Federal State of China to overthrow the Chinese Communist Party dictatorship as soon as possible<br/><br/>【乌克兰救援】03/16/2022 Newsweek 《新闻周刊》驻波兰记者莉娜塔·金感谢法治基金和新中国联邦对乌克兰的人道救援，并祝愿新中国联邦早日推翻中共独裁政权
+![img](https://media.gettr.com/group28/getter/2022/03/18/03/5d8ae016-afcb-7cfe-6c98-50fae5a2d35b/out.jpg)
+
+---
+
+`@miles 3/18/2022 2:55 AM (UTC)`
+
+【Ukraine Rescue】03/16/2022 ZET, the second largest radio station in Poland, interviewed Nicole, after knowing the philosophy of the Rule of Law Foundation and New Federal State of China,  tweeted on their Twitter account that "the Chinese Communist Party does not represent the Chinese". <br/><br/>【乌克兰救援】03/16/2022 波兰第二大广播电台ZET 采访妮可， 了解了新中国联邦和法治基金的理念后深表敬意， 并在他们的推特账号上报道了“中共不代表中国人“
+![img](https://media.gettr.com/group18/getter/2022/03/18/02/1918962d-c017-158d-6e15-78c6c8abd456/out.jpg)
+
+---
+
 `@miles 3/18/2022 2:49 AM (UTC)`
 
 3/17/2022 Miles Guo: Zeng Qinghong is going to take off earlier to return to Beijing, what does that mean? The CCP members who are in support of invading Taiwan are idiots. Zeng Qinghong's advice to the people around him is to stay home for two years, don’t get infected by the virus, and that the most important thing is to make sure the family members are healthy, meaning that the CCP will be finished in two years.<br/><br/>3/17/2022 文贵直播：曾庆红提前起驾回京，这意味着啥？党内支持打台湾的比猪还蠢；曾庆红对身边人的忠告是在家躲两年、活着不染毒、家人健康最重要，意思就是共产党过两年就完蛋了<br/>
@@ -144,19 +158,6 @@ This is a local pharmacy in Poland. NFSC volunteers come here often to purchase 
 ![img](https://media.gettr.com/group39/origin/2022/03/17/15/cf33330d-91e6-83c6-317a-b249dcb8d3b7/839ebe8f1fd85b986446c05efc8f5a9d.jpg)
 > `@miles 3/13/2022 10:23 PM (UTC)`<br/>❤️In Kraków, Poland at 1 am on March 13,  the NFSC & ROLF Ukraine Rescue team greeted two rescue buses carrying 118 people (including a 3-day infant) , prepared hot coffee and food when greeting the buses, helped the refugees with their luggage, and led them to the train station. #NFSCrescue #ROLFrescue<br/><br/>📍We are the NEW CHINESE people who are taking down the EVIL Chinese Communist Party! #CCP≠Chinese<br/><br/>❤️法治基金和新中国联邦救援队于3月13日凌晨1点，在波兰克拉科夫迎接2辆载有118人（包括一个3个月大的婴儿）的救援大巴，在迎接大巴时准备了热咖啡和食物，帮难民们拿行李，引领她们去火车站。<br/><br/>📍我们是消灭邪恶中国共产党的新中国人 <br/><br/>💥24-Hour Emergency Rescue Support Team Contact: <br/>💌Email: UkraineRescue01@protonmail.com OR UkraineRescue02@protonmail.com <br/>☎️Phone (Call or Text): <br/>+1 720-657-6776 OR +1 719-224-4232 OR<br/>+48 508-532-712 OR +48 508-531-518
 ![img](https://media.gettr.com/group32/origin/2022/03/13/22/866b6238-615d-298c-bc3d-f27c318d45aa/out.jpg)
-
----
-
-`@miles 3/17/2022 2:27 PM (UTC)`
-
-It is common knowledge that Putin fights Ukraine, and Xi Jinping fights Taiwan.Even the volunteers who accidentally met Medica's comrades from the rescue front knew about it.Putin's attack on Ukraine was allbacked by the Chinese Communist Party (CCP),which instead imported large quantities of Russian wheat when the world was imposing military sanctions on Russia. At the same time, the CCP's running dogs are voicing their solidarity with Putin <br/>and saying that they want to marry Ukrainian beauties.<br/>The running dogs are CCP's network united war team.<br/>普京打乌克兰，习近平打台湾，这是路人皆知的事情。连梅迪卡救援前线的战友在路上 偶遇的志愿者都知道。普京攻打乌克兰的背后都是共产党的支持，在全世界都在对俄罗斯实施军事制裁的时候，共产党反而大量进口俄罗斯小麦。同时国内小粉红一片声援普京的声音，还口口声声个个都要娶乌克兰美女。小粉红是共产党的网络统战部队，如果没有一声号令怎么一下子有那么多此类言论。
-![img](https://media.gettr.com/group21/origin/2022/03/17/14/8f6216bb-a330-294b-c465-64966b7af827/out.jpg)
-
----
-
-`@miles 3/17/2022 2:23 PM (UTC)`
-
-中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰<br/><br/> https://gnews.org/zh-hans/2178748/
 
 ---
 
