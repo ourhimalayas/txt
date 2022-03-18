@@ -2,37 +2,24 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月17日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2183429/)
+## 尖端电子干扰武器护台 共军看得到打不到
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2183594/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1947.png)（图片来源于本文链接）
+此次乌克兰军方的电子战压制力强大，上百架俄国军机遭击落，成为台军借鉴之一。据CNN报导，俄国军机每天升空约200架次，除了乌方有效使用美国提供的可携式“刺针”防空导弹发挥关键防御力量，更有号称“基辅之鬼”的超强乌克兰飞行员利用电战能力，一人就击落十架俄军战机的辉煌战绩。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
+知情人士透露，中科院自主开发的“外挂式战机电战荚舱”，就是在增强台军IDF经国战机电战干扰及侦搜系统能力，大幅提升台军防电战效能。电战荚舱可外挂在战机上，例如幻象2000挂载的电战荚舱呈长条状，因外型而被昵称为“法国面包”。
 
+虽然有的电战荚舱内建于机体电战系统，但根据不同用途都几乎可用来电子侦测支援、导航、追踪及标定、电子反制，甚至具有多波段雷达讯号处理能力，可直接对敌人的雷达干扰，让对方武器无法有效锁定而失效，形同看得到却打不到，进而大幅提高战机存活率。
 
+此外，为了有效命中敌军要塞，中科院另以“鹏舆专案”为名，建立共军犯台重要军政指挥机构、军备阵地的“高精度地貌模型”，全面更新飞弹攻击资料库，锁定范围涵盖共军中部及东部战区及指管中心，提高飞弹打击精准度。
 
+信息来源：[尖端武器護台！國軍戰機空戰開「外掛」　敵人看得到打不到](https://www.ettoday.net/news/20220317/2210539.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-13.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p10jlzy180e](https://gettr.com/post/p10jlzy180e)
-访谈：[https://gettr.com/post/p10k6w347a8](https://gettr.com/post/p10k6w347a8)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
-
-**更多资讯，更多关注**
-
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://www.gettr.com/user/gnews)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
