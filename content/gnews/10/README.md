@@ -2,48 +2,41 @@
 ---
 
 
-## Moderna要求对所有成年人进行第二次Covid强化针注射的紧急批准
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2190066/)
+## 澳大利亚威胁对支持俄罗斯的中共国进行制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2190206/)
 
-作者：纽约香草山农场 – 四季
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+翻译：liyanli
+编辑：jocozoner
 
-
-
-
-
-据[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)3月17日的报道，就在辉瑞公司周二要求FDA批准为65岁以上的成年人提供第二个中共病毒加强针之际，Moderna公司周四晚些时候表示，它已经要求美国食品和药物管理局紧急授权为所有成年人提供中共病毒疫苗的第二次强化针剂，这一要求比辉瑞公司和BioNTech公司本周提出的注射要求要广泛得多。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-93.jpg)图片来源：[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)
-
-这一请求可能会加剧目前正在进行的最新一轮科学辩论，即面对新的变种，美国使用最多的两种疫苗的保护期有多长。
-
-联邦卫生官员表示，他们担心本秋季为之前Moderna和辉瑞公司授权的加强型疫苗的效力会减弱。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2004.png)图片来源：雅典娜设计组
 
 
+**堪培拉警告称，澳洲将与盟国“步调一致”地采取行动，对北京可能给予莫斯科的任何军事支持进行惩罚。**
 
-**更多资讯，更多关注**
+澳大利亚总理斯科特·莫里森日前在一次例行记者会上表示，如果中共国支持俄罗斯对乌克兰的攻击，则将面临一系列后果。他认为中共国这种举动是“可憎的”，同时暗示将对北京实施新的国际制裁。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+会上有记者提问，中共国拒绝谴责俄罗斯的入侵，这种行为是否会受到惩罚。对此，莫里森总理表示，澳大利亚将与盟国一道对中共国进行制裁。“在这些问题上，我们将与合作伙伴及盟友步调一致。美国已就此发表了一些非常明确的声明，我们支持这些声明。”他还呼吁全世界应切实采取行动，尽快结束俄罗斯在乌克兰所进行的暴力侵略行为。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+莫里森还认为，北京必须“非常透明”地公开他们与莫斯科的关系，这其中包括“在这场全球危机中，向他们（俄罗斯）提供经济援助”，以及“（中俄两国可能）讨论了（中共国）对俄罗斯的军事援助相关事宜”。而对于后一种行为，莫里森称这是一种非常可憎的行为。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+美国国家安全顾问杰克·沙利文上周日在罗马与中共国外交官杨洁篪会晤前表示：“我们不会允许这种情况继续下去，不会允许俄罗斯逃脱现有的经济制裁，从任何国家或地区获得援助。”
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+尽管已有报道称中俄现正谈判，中方表示愿意提供援助，但北京方面拒绝了这一指责，认为这些都是“虚假信息”。
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+新闻链接：[Australia threatens China with sanctions for backing Russia](https://www.rt.com/news/552113-australia-threatens-china-russia/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+2022年3月16日澳大利亚总理记者会的原文链接：[Doorstop – Burswood,WA, Prime Minister](https://www.pm.gov.au/media/doorstop-burswood-wa)
 
+发布：tianzhihuan
 
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

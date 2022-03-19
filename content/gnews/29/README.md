@@ -2,28 +2,37 @@
 ---
 
 
-## 在俄罗斯避免违约后 全球股市上涨金价下跌
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2189231/)
+## “中国已经站在历史的错误一边”并正在损害其声誉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2189502/)
 
-翻译：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2093.png)Getty图片
+《布赖特巴特》2022年3月17日报道，在周三公布的周二NPR的采访中，国务卿安东尼·布林肯回答了一个问题，即如果必须这样做的话，美国是否可以像孤立俄罗斯那样孤立中国。他说，在乌克兰的冲突中“中国已经站在了历史的错误一边”。如果中国向俄罗斯提供物质支持，“那就更糟了， 这是我们在非常仔细地观察的东西。 但我认为这在全球范围内对中国的声誉造成了真正的损害”。
 
-编辑与校对：冰糖葫芦喵
+主持人史蒂夫·英斯基普（Steve Inskeep） 问道， “如果中国在一定程度上帮助俄罗斯，美国及其欧洲盟友是否有能力像孤立俄罗斯那样孤立中国？”
 
-《路透社》纽约3月18日报道，**因交易商对俄罗斯政府支付公债，全球股市周五收高。因在美国开加息周期开始后，对避险金属的需求所有缓解，而金价下跌。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/股市收高-e1647654447813.jpg)
-据报道，**俄罗斯财政部周四宣布，已为本周到期的两笔美元计价主权债券支付1.17亿美元的息票。**这一偿付平息了投资者的担忧，他们担心俄罗斯主权债务违约可能会扰乱本已紧张的市场。
+布林肯回应说：“哦，当谈到乌克兰和俄罗斯的入侵时，中国已经站在了历史的错误一边。中国没有强烈反对它，这与中国一再重申《联合国宪章》的神圣性和包括国家主权在内的基本原则完全不符。因此，我们期待中国大声地、非常清楚地说出来。其次，当然，如果中国真的在这方面以某种方式向俄罗斯提供物质支持，那就更糟了。这是我们非常仔细地观察的东西。但我认为这对中国在亚洲、欧洲、非洲和世界其他地区的声誉造成了真正的损害，对此中国必须引起高度重视。”
 
-Harris Financial Group执行合伙人Jamie Cox表示，**如果西方政府当初不允许用冻结资金支付俄罗斯主权债券的息票，**我们可能会陷入全球经济违约的境地。其结果是**，对全球金融体系的一些最严重的影响被推迟到未来——这是好事。**
+简评:
 
-Cox补充道，在美联储可能的利率走势之前，科技股经历了如此深的抛售，现在我们正处于缓解性反弹之中。现在他们基本上消除了所有有关利率的不确定性，科技股可以重新定价。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/COX.jpg)Harris Financial Group执行合伙人Jamie Cox（图片来源：网络）
-截至收盘，周五，道琼斯工业平均指数上涨0.8%，至34,754.93点；标准普尔500指数上涨1.17%，至4,463.12点；纳斯达克综合指数上涨2.05%，至13,893.84点。
+美国的态度表明了它认识到中共和俄罗斯结成了邪恶的轴心国，但美国在尽最大努力，通过接触和喊话，希望分化中俄，争取能够减少北约和欧盟的压力，减少乌克兰平民的死伤。进而能对中俄分而治之，各个击破。
+我们新中国联邦人是CCP的克星，我们支持美国的努力。中共政权无论是和普京绑在一起，一条道走进火葬场，还是躲躲闪闪打太极，假装中立继续欺骗世界人民，但是他们的宿命，因为俄乌战争和中共病毒及疫苗的灾难，再也无力回天了。
 
-新闻来源链接：
+新闻链接: [https://www.breitbart.com/clips/2022/03/17/blinken-on-ability-to-isolate-china-chinas-already-on-the-wrong-side-of-history-and-is-hurting-its-reputation/](https://www.breitbart.com/clips/2022/03/17/blinken-on-ability-to-isolate-china-chinas-already-on-the-wrong-side-of-history-and-is-hurting-its-reputation/)
 
-[Global equities rise, gold falls after Russia avoids default | Reuters](https://www.reuters.com/business/global-markets-wrapup-1pix-2022-03-18/)
+翻译/简评: Sima（正道主义）
+
+PR:感恩
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
