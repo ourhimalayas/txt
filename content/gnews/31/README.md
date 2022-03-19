@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】战地钢琴家Davide Martello已然成为了爆料革命的战友
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192329/)
+## 俄罗斯入侵前后的乌克兰街景对比
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192582/)
 
-【乌克兰救援】03/17/2022 战地钢琴家Davide Martello已然成为了爆料革命的战友。当他来新中国联邦救援营地时，有我们的志愿者给他播放了郭文贵先生的《沧海一声啸》，于是他用钢琴演绎了这首灭共歌曲
+03/17/2022 这就是俄罗斯的入侵已经重塑了乌克兰。繁荣的城市变成了废墟，房屋被毁，医院成为目标并被夷为平地。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

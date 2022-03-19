@@ -2,29 +2,35 @@
 ---
 
 
-## 俄侵乌战争损兵折将 白俄边境城市挤满死伤俄军
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2191816/)
+## 新罕布什尔州批准使用伊维菌素治疗疫情
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
+报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
 
-3月19日，有外媒体报导称，自俄罗斯入侵乌克兰以来，俄军对阵亡人数讳莫如深，但俄国士兵遗体已占满白俄罗斯边界城市莫济里的太平间  。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-5.png)（图片来自网络）
-
-据中央社援引自由欧洲电台/自由电台的报道称，俄罗斯军人的遗体已经占满白俄罗斯南部城市莫济里（Mazyr）的太平间。莫济里距离乌克兰边界仅60公里，这里一所医院的走廊和病房充斥负伤军人的哀嚎声。
-
-莫济里市的一位目击者说，市内唯一的太平间在本月3日就堆满了尸体。另有一位要求匿名的白俄罗斯戈麦州地区医院员工透露，截至本月13日，已有2500多具军人遗体从戈麦州以火车或飞机被送回俄罗斯。
-
-还有一名居民透漏，他看到许多「黑色袋子」从军用救护车被搬上俄国火车车厢，莫济里火车站的旅客看到这么多尸体被搬上火车，大为吃惊。有人开始录像，之后军方逮住他们，然后命令他们删除影片。莫济里市最大医院的一名医生表示，有人把火车站的影片上传到网络后，搬运尸体的工作就改到夜里进行，以免引人注意。
-
-报道称，俄罗斯官方仅在本月2日公布过俄军伤亡人数，俄国国防部当时称，共有498名士兵死亡，1597人负伤。
+有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
 
 参考链接：
-[https://www.cna.com.tw/news/aopl/202203190193.aspx](https://www.cna.com.tw/news/aopl/202203190193.aspx)
+1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
+2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
 
-总编：青城道姑
-校对发布：Linda
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
+编辑：Irene木木
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
