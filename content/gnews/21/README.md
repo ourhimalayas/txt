@@ -2,48 +2,25 @@
 ---
 
 
-## 港股急跌，共匪内部矛盾加速齐奥塞斯库效应到来
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190676/)
+## 美国指俄富豪和Aeroflot的飞机违反制裁措施
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2190847/)
 
-作者：纽约磐石农场—在远方
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/files-us-russia-conflict-aviation-ukrain45161882.jpg)美国商务部说，俄罗斯国际航空公司使用的波音737和777飞机违反美国的制裁措施。（法新社）
+（早报讯）美国表示，俄罗斯亿万富豪阿布拉莫维奇和俄罗斯国际航空公司（Aeroflot）的飞机违反了美国对俄罗斯入侵乌克兰的制裁措施。
 
+法新社报道，美国本月早些时候宣布禁止美国制造的飞机或采用25%美国零件的飞机，未经授权进入俄罗斯。美国商务部周五（3月18日）表示，有几架飞机违反了这项制裁措施。
 
+其中包括阿布拉莫维奇（Roman Abramovich）的一架湾流G650ER私人飞机，还有俄罗斯国际航空公司使用的波音737和777飞机。
 
+美国商务部说，制裁的目的是要这些飞机停飞，为这些飞机提供任何服务包括加油都将违反美国规定，可能面临罚款和监禁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+美国商务部长雷蒙多在一份声明中说：“我们发布这份名单是为了让全世界都注意到——我们不会允许俄罗斯和白罗斯的公司和寡头违反我们的法律，逍遥法外。”
 
+参考连结：[https://www.zaobao.com/realtime/world/story20220319-1253858](https://www.zaobao.com/realtime/world/story20220319-1253858)
 
-在3月15日的文贵大直播中，郭先生表示，香港恒生指数跌破2万点，其中仍有60%～70%由中共控制，其余只有5000亿美元左右。而港币与美元挂钩的最低限，不能少于5000亿美元，否则就意味着香港政府破产。跌到18000点，意味着港币失去了和美元挂钩的GDP基础。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/195620.png)
-虽然中共意图再给香港经济继续兑水，但当前习近平的身体、中共的体制和经济都出了大问题。香港经济崩塌，中共会用2000亿美元继续硬撑。但当彻底崩溃的时候，会导致广东一万多亿美元的GDP垮掉，这才是共产党真正的噩梦。
-
-由于中共新老常委中60%至70%在广东都有利益，由此引发的斗争将加剧内讧，军队可能会起义。
-
-参考来源：
-
-[https://www.gettr.com/post/p10e2h39142](https://www.gettr.com/post/p10e2h39142)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-53.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-
-
-
+审核校对：Barry Jack
+上传排版：F
 
  
 

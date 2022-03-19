@@ -2,31 +2,48 @@
 ---
 
 
-## 乌控俄战车含德国博世零件
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2190631/)
+## 港股急跌，共匪内部矛盾加速齐奥塞斯库效应到来
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190676/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：纽约磐石农场—在远方
 
-据中央社3月19日报道，乌克兰声称在俄罗斯军用车辆中发现德国博世集团（Bosch）产品，该公司已停止向俄罗斯交付卡车零件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-4.png)汽车零件供应商博世集团（Bosch）表示，公司已停止向俄罗斯顾客交付卡车零件（图片来自网络）
 
-乌克兰外交部长库列巴（Dmytro Kuleba）13日在德国第一电视台（ARD）的谈话节目上说，乌克兰军人最近掳获俄罗斯的步兵战车，里面有博世制造的零件。
 
-德国有关当局立即对此展开调查，因博世可能违反出口规定。这项出口限制是西方对俄罗斯2014年吞并乌克兰克里米亚地区而祭出的制裁，规定欧盟（EU）的企业禁止向俄罗斯供应“军民两用”商品。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
 
-博世集团回应说，公司对库列巴的指控严肃看待，已展开全面性审查。
 
-据报道，耶鲁大学公布了一份自俄罗斯入侵乌克兰以来，已经离开和仍留在俄罗斯的跨国公司名单。耶鲁大学的这两份名单保持每日更新，截至3月15日，已有380个全球品牌宣布退出俄罗斯市场。
+在3月15日的文贵大直播中，郭先生表示，香港恒生指数跌破2万点，其中仍有60%～70%由中共控制，其余只有5000亿美元左右。而港币与美元挂钩的最低限，不能少于5000亿美元，否则就意味着香港政府破产。跌到18000点，意味着港币失去了和美元挂钩的GDP基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/195620.png)
+虽然中共意图再给香港经济继续兑水，但当前习近平的身体、中共的体制和经济都出了大问题。香港经济崩塌，中共会用2000亿美元继续硬撑。但当彻底崩溃的时候，会导致广东一万多亿美元的GDP垮掉，这才是共产党真正的噩梦。
 
-根据该名单，选择继续留在俄罗斯的一些西方知名的大型国际公司有博世（Bosch）、赛百味（Subway）和倍耐力（Pirelli）等。
+由于中共新老常委中60%至70%在广东都有利益，由此引发的斗争将加剧内讧，军队可能会起义。
 
-参考链接：
-1.[https://www.cna.com.tw/news/aopl/202203190047.aspx](https://www.cna.com.tw/news/aopl/202203190047.aspx)
-2.[https://gnews.org/zh-hans/2180617/](https://gnews.org/zh-hans/2180617/)
+参考来源：
 
-总编：青城道姑
-校对发布：Linda
+[https://www.gettr.com/post/p10e2h39142](https://www.gettr.com/post/p10e2h39142)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-53.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+
+
+
 
  
 
