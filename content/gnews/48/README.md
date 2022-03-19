@@ -2,51 +2,81 @@
 ---
 
 
-## 对喜联储的一大利好消息❗️❗️ 乌克兰在与俄罗斯的战争中将加密货币合法化
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2185690/)
+## 朗诵佳作欣赏《答案在风中飘荡》
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2183803/)
 
-翻译编辑：波士顿五月花—-思澈
+# 
 
-乌克兰在与俄罗斯的战争中收到了1亿美元的加密货币捐款
+视频编辑/字幕：文朗
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2284A905-28B5-401D-B173-5D1D2AF5483A.jpeg)
+**鲍勃·迪伦（Bob Dylan）**是美国创作歌手，艺术家和作家，在流行音乐界和文化界的影响已超过50年。他的大多数著名作品都来自1960年代的反抗民谣，也被广泛认为是当时国新兴的反叛文化的代言人。他的部分早期作品成为了当时美国民权反战运动的圣歌，例如《答案在风中飘荡》（*Blowing in the Wind*）。
 
-乌克兰总统沃洛基米尔-泽伦斯基（Volodymyr Zelenskyy）使该国的加密货币合法化，签署了一项关于虚拟资产的法案，在数字资产捐赠的狂热中支持该国对俄罗斯入侵的防御。
-数字化转型部在周三的一份声明中说，该法律确定了虚拟资产的法律地位、分类、所有权和监管机构，并为加密货币服务提供商设定了注册要求。
-该市场将由乌克兰国家证券和股票市场委员会监管。数字化部在一条推文中说，交易所将能够合法运营，银行将为其开设账户。
-根据2月17日的政府公告，该国家机构的任务是 “制定和推行虚拟资产领域的政策；确定虚拟资产的流通秩序；向虚拟资产服务提供商发放许可证；并在该领域进行监督和金融监测。
-在过去三周里，乌克兰已经收到了至少1亿美元的加密货币捐款，这些人希望支持其国防并帮助资助人道主义工作。
-在泽伦斯基拒绝了2021年9月批准的早期版本后，该法案于2月17日通过了议会。
-声明说，财政部正在努力修订该国的税法和民法，以全面启动虚拟资产的市场。
+尽管它被描述为一首抗议歌曲，仍引起了一系列关于和平，战争和自由的责问。叠句“我的友人啊，答案在空中飘荡”被描述为“不可理喻、模棱两可的是：或许答案如此显而易见，就在你的脸上，又或许答案如风般无形，难以明了”
 
-点评：这对HCOIN 是一大利好消息，又一个主权国家将加密货币合法化，如同郭文贵先生所说喜币将以其独特优势成为数字货币的王者，因为它是唯一。跟着爆料革命，加入新中国联邦成为先知先觉者，预知世界风云变幻，拥有喜币保财致富。
+一如我们目前的状况：自2019年新冠病毒横行，疫苗被全球各国执政者统一化一的坚决推行着！大量质疑的声音被强权压制。郭文贵先生不顾一切的大声疾呼： 疫苗没用，疫苗有毒！ 除了我们新中国联邦人坚定相信文贵先生的警告外，世人却大多是嘲笑的，不信的和装聋作哑的，一如圣经里的教导：
 
-素材链接：[https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/](https://www.coindesk.com/policy/2022/03/16/ukraines-zelensky-signs-virtual-assets-bill-into-law-legalizing-crypto/)
+**耶和华对我说： 人子啊，你住在叛逆的人当中。他们有眼睛卻视而不见，有耳朵却听而不闻，因为他们是叛逆的人。**以西結书 12:1-2
 
-*发布：思澈*
+在《答案在风中飘荡》中，迪伦引用以上经文并改编成“一个人究竟得有几只耳朵 ……？”和“人究竟能多少次转过头去/假装什么也没有看见？”
 
+**醒来吧，善良单纯的人们：睁开你的眼睛，打开你的耳朵，让圣灵带领你的心去听，去看，去想，不要再让答案飘荡在空中了！**
 
+**请欣赏战友文朗的朗诵：**
 
+**《答案在风中飘荡》（*Blowing in the Wind*），创作者：鲍勃.迪伦 (Bob Dylan)**
 
+How many roads must a man walk down 人究竟要经过多少旅程
 
+Before you call him a man? 才能够蜕变成男子汉
 
+how many seas must a white dove sail 白鸽要经过多久的翱翔
 
+Before she sleeps in the sand? 才能够重返地面安息
 
+how many times must the cannon balls fly 炮弹要历经过多少次飞越
 
+Before they are forever banned? 才能换来和平
 
+The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
 
+The answer is blowing in the wind. 答案在风中飘荡
 
+How many years can a mountain exist 高山矗立了多少年
 
+Before it’s washed to the sea? 才是沧海桑田
 
+how many years can some people exist 受苦的人被囚禁多少年
 
+Before they’re allowed to be free? 才有重获自由的感觉
 
+how many times can a man turn his head, 一个人可以几度回首
 
+Pretending he just doesn’t see? 却只是假装视而不见
 
+The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
 
+The answer is blowing in the wind. 答案在风中飘荡
 
+How many times must a man look up 人要抬头多少次
 
+Before he can see the sky? 才能望见苍穹
 
+how many ears must one man have 人要靠多少只耳朵
 
+Before he can hear people cry? 才能听见他人的呐喊
+
+how many deaths will it take till he knows 生命要经过多少的牺牲
+
+That too many people have died? 才会了解活着的可贵
+
+The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
+
+The answer is blowing in the wind. 答案在风中飘荡
+
+撰稿人：Gloria
+视频/字幕：文朗
+配乐/朗诵：文朗
+![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

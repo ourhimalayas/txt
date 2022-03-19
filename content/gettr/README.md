@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 12:15 AM (UTC)`
+
+
+![img](https://media.gettr.com/group15/origin/2022/03/19/00/2a3c5ed6-81e4-5c07-741d-769a0e1a764d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/19/2022 12:14 AM (UTC)`
+
+3/18/2022 Miles Guo’s GETTR: The CCP is hacking my fellow fighters and me and used forged materials from DuoWei News as evidence in court. The supply chains are in big trouble! Supply chain companies can't sustain due to high fuel prices, and the Middle East oil transportation industry is short of labor. The only way to solve all the problems is to take down the CCP.<br/><br/>3/18/2022 文贵盖特：中共用黑客大肆攻击文贵和战友，并且拿多维网伪造的材料作为呈堂证供；供应链出了大问题！供应链企业因高油价难以为继，中东原油运输业缺劳动力；唯有灭共才能解决所有问题<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/19/00/3fa1cd10-e5da-7889-a788-cefb951feb36/out.jpg)
+
+---
+
 `@miles 3/18/2022 11:44 PM (UTC)`
 
 3月18号：尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！
@@ -141,20 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 2022.03.18早 《新中国联邦新闻》救援基地“儿童角”为孩子带来天真笑容  著名战地音乐家演奏新中国联邦国歌
 ![img](https://media.gettr.com/group20/origin/2022/02/20/13/fe2d495c-6274-6a1a-c376-9a1515a9ca57/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/18/2022 11:55 AM (UTC)`
-
-3月17日，《新闻周刊》驻波兰华沙记者Renata Kim来到了新中国联邦驻梅迪卡（Medyka）的难民救助中心，并对我们的志愿者进行了采访。以下是其对新中国联邦救援行动的报道：<br/> <br/>华裔反共人士为乌克兰提供救援服务<br/> <br/>梅迪卡最大的帐篷是由来自新中国联邦（NFSC）和法治基金（ROLF）的中国人搭建的，在这里你不仅可以享用到新鲜烤制的糕点，还能饮用到机器现磨的咖啡，这无疑为人们带来了温暖。对于儿童来说，帐篷的角落里还设有一个游戏角。<br/>“我们希望在孩子们忙于玩耍的时候，能让疲惫的母亲们能休息一会儿” -- 来自纽约的年轻中国志愿者妮可解释到。<br/><br/>搭建帐篷的费用是由上述两个组织的成员从世界各地捐赠的。他们致力于铲除北京的共产主义政权，因为在他们看来，北京（中共）是世界上所有邪恶的根源，而现在，他们也投身到难民救助的行列之中。<br/><br/>“我们对这些难民深表同情。一切都会好起来，我们会为打造一个民主、自由的中国而奋斗”--妮可说到，并邀请我们去喝咖啡。<br/><br/>“你会暖和起来的” --她鼓励道，而她的朋友很快就为我们准备好了一杯上好的热拿铁咖啡，并深深地鞠了一躬。与此同时，另一名志愿者正在对我们的谈话进行现场报道。<br/><br/>“这是给我们的支持者的，让他们知道我们在行动”--她解释说。<br/><br/>烧烤的香味在边境口岸飘荡，在缓缓落下的暮色中，意大利钢琴家弹奏着《想象》，悠扬的琴声带来了一种超现实的感受。他也来到梅迪卡，以某种方式提供帮助。他为难民演奏的音乐，使他们忘记战争，至少是暂时的。<br/><br/> 原文：https://www.newsweek.pl/polska/spoleczenstwo/wojna-w-ukrainie-wloski-pianista-gra-dla-uchodzcow-imagine-amerykanin-smazy-im/vyf4qsn
-![img](https://media.gettr.com/group47/getter/2022/03/18/11/a5ba2ecb-4114-b268-77a6-deee4f928f61/eb54042f847a8dca1f67278130af2972.jpg)
-
----
-
-`@miles 3/18/2022 10:21 AM (UTC)`
-
-【Ukrainian Rescue】03/12/22 The Ukrainian reporter of TBN, the world's largest Christian TV network, is interviewed by us at the big tent of the NFSC and ROLF. She supports the NFSC to take down communism and wishes Chinese people to get freedom. She also thanks ROLF for sending so many volunteers to help the people of Ukraine.<br/><br/>【乌克兰救援】03/12/22 全球最大基督教电视台TBN的乌克兰记者在新中国联邦和法治基金的大帐篷接受我们的采访，表示支持新中国联邦消灭共产主义，祝愿中国人获得自由，并感谢法治基金派出这么多义工帮助乌克兰人民。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group12/getter/2022/03/18/10/24cd1868-e567-955d-cb20-69b1805547e7/out.jpg)
 
 ---
 
