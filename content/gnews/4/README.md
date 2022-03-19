@@ -2,31 +2,26 @@
 ---
 
 
-## 有声｜乌克兰表示 仅拆除爆炸物就需要数年时间
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2190401/)
+## 乌克兰军事指挥部称俄罗斯几乎用完了所有的Kalibr和Iskander导弹
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2190533/)
 
-By:**秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-29.jpg)
 
-**2022-03-19**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-225.png)图片来源 AP Photo/Rodrigo Abd
-[据美联社3月18日报道，乌克兰内政部长杰尼斯·莫纳斯特尔斯基周五表示，在俄罗斯入侵后，仅拆除未爆弹药就需要数年时间。](https://apnews.com/article/russia-ukraine-covid-health-business-europe-c9a22012d500295c67fd75048a05587b)
+图片来自原文
 
-[莫纳斯特尔斯基在被围困的首都基辅对美联社发表讲话称，一旦战争结束，将需要西方援助来应对这项艰巨的任务。](https://apnews.com/article/russia-ukraine-covid-health-business-europe-c9a22012d500295c67fd75048a05587b)
+据乌克兰武装部队总参谋部报告说，自俄罗斯军队全面入侵乌克兰以来，俄罗斯军队在行动的二十几天里几乎用完了所有的”伊斯坎德 “（Iskander）短程弹道飞弹和”卡利布 “（Kalibr）3M-54“口径”海基巡航导弹。
 
-[莫纳斯提尔斯基还表示，大量已经投向乌克兰的炮弹中，很大一部分没有爆炸，它们仍留在瓦砾下或土地中，构成了极大威胁。排除它们需要数年，而不是数月。](https://apnews.com/article/russia-ukraine-covid-health-business-europe-c9a22012d500295c67fd75048a05587b)
+乌克兰总参谋部说，俄军在各个方向上被乌克兰军队阻止。并且，俄军在后勤方面存在重大问题，继续遭受严重损失。俄军已经失去了进攻的潜力。
 
-[除了这些未触发的俄制炮弹，乌克兰军队还在桥梁、机场和其他关键基础设施处埋设地雷，以防止俄罗斯人使用它们。](https://apnews.com/article/russia-ukraine-covid-health-business-europe-c9a22012d500295c67fd75048a05587b)
+目前，俄军继续使用低精度武器轰炸基础设施和大城市的住宅区。并对关键的军事和民用基础设施进行空袭。摧毁了机场、军事单位、油库、加油站、教堂、学校和医院。使用大炮、多管火箭发射器系统和弹道导弹对居民区进行炮击。
 
-[莫纳斯提尔斯基告诉美联社称，我们无法从所有领土上清除地雷，因此希望我们的国际合作伙伴以及来自欧盟和美国的同事准备专家组，对遭受炮击的战斗区域和设施进行排雷。](https://apnews.com/article/russia-ukraine-covid-health-business-europe-c9a22012d500295c67fd75048a05587b)
+俄罗斯入侵乌克兰已经进入第22天，到目前为止，克里姆林宫仍然否认对乌克兰发动征服战争，仅称其为 “去军事化或去纳粹化”的”特别行动”。普京还否认对乌克兰平民的攻击，尽管世界各国的媒体记录了大量相反的证据。
 
-[莫纳斯提尔斯基指出，另一个最大的挑战是处理 由俄罗斯轰炸所造成的火灾。他说，在不断的炮击中，处理火灾的人员和设备极度短缺。](https://apnews.com/article/russia-ukraine-covid-health-business-europe-c9a22012d500295c67fd75048a05587b)
+新闻来源链接：[https://uawire.org/ukrainian-military-command-russia-has-used-up-almost-all-of-its-kalibr-and-iskander-missiles-since-the-beginning-of-invasion](https://uawire.org/ukrainian-military-command-russia-has-used-up-almost-all-of-its-kalibr-and-iskander-missiles-since-the-beginning-of-invasion)
 
-秘翻新闻 文洋 编译报道
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
