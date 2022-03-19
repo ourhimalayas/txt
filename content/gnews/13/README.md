@@ -2,56 +2,46 @@
 ---
 
 
-## 沙特可能接受以人民币结算石油贸易
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190565/)
+## 新罕布什尔州众议院投票允许伊维菌素的非处方销售
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2190610/)
 
-作者：MOS—柳是多水土透
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-30.jpg)
 
+图片来自原文
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+新罕布什尔州众议院3月16日（周三），以183-159票通过了一项法案，允许该州的药剂师在没有处方的情况下，在柜台配发伊维菌素。
 
+HB 1022法案还阻止了新罕布什尔州医疗许可委员会对开具该药物的医生进行处罚。26个州正在权衡类似的法律以保护医生。
 
-华尔街日报3月15日援引知情人士的话称，沙特阿拉伯正考虑使用人民币而不是美元来向中共国出售部分石油。报道认为，此举将削弱美元在全球石油市场的主导地位，并影响其作为储备货币的价值。
+伊维菌素被列入世界卫生组织的基本药物清单。它已被安全地用于孕妇、儿童和婴儿。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fc00893ea9e6747a793f2e23179e4dbc.png.jpeg)图源网络
+伊维菌素是一种抗寄生虫药，但在实验室的细胞培养中，它已显示出破坏21种病毒的能力，包括萨斯（SARS-CoV-2）、中共病毒（COVID-19）的病因。
 
-北京与利雅德就此议题的协商，断断续续已有数年之久。但由于拜登政府的安全政策，此进程正在加速。中共与沙特的关系近年来不断增强，沙特出口石油的25%以上由中共购买，并且在沙特弹道导弹和其它项目上提供支持。
+伊维菌素已被证明能够加速中共病毒患者的恢复，部分是通过抑制炎症和保护器官免受损伤。这一途径也降低了住院和死亡的风险。综合分析显示，死亡率的平均下降幅度为75%至83%。
 
-中共在2018年推出了以人民币计价的美元合同，但迄今为止未能在国际原油市场挑战美元地位。全球80%的石油以美元交易，沙特则是从1974年以来一直都在用美元交易石油，当时美国向沙特提供安全保证，以换取沙特对石油美元体系的忠诚。
+但到目前为止，美国食品和药物管理局（CDC）无视医疗证据，没有授权使用伊维菌素来治疗或预防中共病毒（COVID-19），并在其网站上公布了旨在劝阻人们使用该药物治疗COVID的文件。
 
-近年来，从也门冲突再到记者卡舒吉遇害，美国不断地试图同沙特拉开距离。本届美国总统拜登更是在竞选期间直言沙特王储应该被视为“被抛弃的人”，因为他被指控参与杀害卡舒吉。
+伊维菌素是由默克公司开发和销售的。威廉-C-坎贝尔博士和大村聪教授因发现和开发阿维菌素而被授予2015年诺贝尔医学生理学奖，后来被修改为伊维菌素。
 
-沙特对美国对其干预也门内战缺乏支持感到愤怒，对拜登政府试图与伊朗就其核项目达成协议感到不安，还对美国去年突然从阿富汗撤军感到震惊，因为他们担心美国无法履行对沙特的安全承诺。
+《美国治疗学杂志》上的一项元分析显示，伊维菌素在预防使用时平均减少86%的感染。最近的一项研究表明，预防性使用伊维菌素可使死亡率降低90%。
 
-由于川普总统的能源独立政策，美国由石油进口国变为净输出国，从沙特购买的原油也逐年递减。与之对应，中共国是世界上最大的原油进口国，他们向沙特提供了许多有利可图的激励措施，一名熟悉谈判的沙特官员表示：“中共一直在向沙特提供一切你能想象得到的东西。”
+参加前线中共病毒重症监护联盟的10名医生称伊维菌素是 “医学史上最安全、低成本和广泛使用的药物之一”。
 
-一名美国高级官员评论称，沙特以人民币向中共国出售石油的想法“极不稳定且咄咄逼人”，且“可能性不大”。这位官员表示，过去两国之间出现紧张局势时，沙特曾提出过这个想法。
+一些医生推测，如果羟基氯喹和伊维菌素等再利用药物在大流行病开始时得到更深入的探讨和推广，而不是被压制，那么数以万计的死亡是可以避免的。
 
-参考来源：
+备注：
 
-1. [Saudi Arabia may accept yuan instead of dollars for Chinese oil sales: report](https://justthenews.com/government/diplomacy/saudi-arabia-may-accept-yuan-instead-dollars-chinese-oil-sales-report)
-2. [Saudi Arabia Considers Accepting Yuan Instead of Dollars for Chinese Oil Sales](https://www.wsj.com/articles/saudi-arabia-considers-accepting-yuan-instead-of-dollars-for-chinese-oil-sales-11647351541)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-52.jpg)
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- 疫苗：是指新冠疫苗
+- 中共病毒：是指新冠病毒Covid-19
+- Covid疫苗本身就是随时爆发的病毒
+- 我们不反疫苗，只针对假疫苗
+- 我们不反科学，只针对反人类
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+新闻来源链接：[https://childrenshealthdefense.org/defender/new-hampshire-allow-over-the-counter-sale-ivermectin/](https://childrenshealthdefense.org/defender/new-hampshire-allow-over-the-counter-sale-ivermectin/)
 
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 

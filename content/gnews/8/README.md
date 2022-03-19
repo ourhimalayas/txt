@@ -2,51 +2,48 @@
 ---
 
 
-## 继续宽松支持房地产行业，与美勾兑中概股逃出升天？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2190609/)
+## 港股急跌，共匪内部矛盾加速齐奥塞斯库效应到来
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190676/)
 
-翻译：文扬
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/UXCAK4MU7N3BQSYHQI.png)图片来源：自由时报 & 雅典娜设计组
+作者：纽约磐石农场—在远方
 
 
-本周三下午，对于连续第三天处于自由落体状态的中国股市，中共政府向投资者抛出了一根救命稻草。
 
-中共官媒新华社发表的一份声明称，**习近平的最高金融政策顾问将寻求稳定资本市场并支持房地产和科技行业。**该指令是在由刘鹤主持的国务院金融稳定与发展委员会的一次特别会议上发布。
 
-虽然没有关于政府将采取什么措施来实现其承诺的具体细节，但影响是立竿见影的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
 
-同一时间，香港和大陆市场股市开始反弹，部分扭转了因中共病毒疫情爆发、乌克兰战争、美国对中国科技股（中概股）的打击以及地产债务暴雷打击投资者信心而造成的数十亿美元损失。
 
-这次是中共当局一次罕见的干预，自2015年以来，中共当局从未如此明目张胆地进行干预，当时（2015年）北京在市场损失了三分之一的价值后实际上关闭了交易市场。
+在3月15日的文贵大直播中，郭先生表示，香港恒生指数跌破2万点，其中仍有60%～70%由中共控制，其余只有5000亿美元左右。而港币与美元挂钩的最低限，不能少于5000亿美元，否则就意味着香港政府破产。跌到18000点，意味着港币失去了和美元挂钩的GDP基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/195620.png)
+虽然中共意图再给香港经济继续兑水，但当前习近平的身体、中共的体制和经济都出了大问题。香港经济崩塌，中共会用2000亿美元继续硬撑。但当彻底崩溃的时候，会导致广东一万多亿美元的GDP垮掉，这才是共产党真正的噩梦。
 
-对投资者说，似乎发出了一个强有力的信息，有助于恢复对中国股市日益减少的信心，因为几个月来的监管重磅消息和对中国领导人不再关心资本市场的日益担忧拖垮了中国股市。
+由于中共新老常委中60%至70%在广东都有利益，由此引发的斗争将加剧内讧，军队可能会起义。
 
-总部设在北京的研究机构龙洲经讯（Gavekal Dragonomics）的中国研究主任安德鲁·巴特森说：“本周在香港和其他市场上市的中国离岸股票的动荡市场行动，暴露了外国投资者对中国的市场如同惊弓之鸟。”
+参考来源：
 
-当然，信息起到了作用。香港的恒生指数当天跳涨超过8%，而上海综合指数上涨3.4%。
+[https://www.gettr.com/post/p10e2h39142](https://www.gettr.com/post/p10e2h39142)
 
-**然而，急剧的波动也凸显了中国股市对一个目前由意识形态和国家安全而非市场力量所驱动的政权的行政指令的依赖性。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-53.jpg)
 
-新华社对会议的解读强调，需要采取“具体行动”来支持第一季度的经济。重要的是，**它说中国政府正在与美国监管机构取得进展，这些机构一直威胁要将一些在美国上市的中国公司除名或禁止上市。**
+编辑/校对/发稿：兰兰
 
-分析人士称，银行监管机构和财政部的后续声明也提供了一些保证，他们将寻求稳定房地产价格。实施房产税改革试点项目的计划也被取消了，如此便意味着中共国将继续宽松银根支持房地产行业行业。
+**更多资讯，更多关注**
 
-尽管如此，中共国每天的中共病毒感染率不断上升，周五报告的感染病例为4130，封城信息不绝于耳，第一大城市上海基本处于半封闭状态。拜登总统已经明确告知，中共国支持俄罗斯入侵乌克兰需要承担后果。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-现在新华社还居然指望与美国勾兑，让中概股逃出升天。行政调控改变不了经济大势，试看中共国假擀面杖还能撑多久？
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-原文链接： [China intervenes in a tumultuous week (afr.com)](https://www.afr.com/world/asia/china-intervenes-in-a-tumultuous-week-20220318-p5a5xh)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-发布：tianzhihuan
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+
+
+
 
  
 
