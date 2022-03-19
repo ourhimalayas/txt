@@ -2,27 +2,91 @@
 ---
 
 
-## 【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2188796/)
+## 有声|弹钢琴的英雄传递爱与温柔
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188822/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2079.png)   图片来源：卫报
-据《布雷特巴特新闻网》（Breitbart News）3月18日报道，英国广电监管机构—通讯管理局（Ofcom）3月18日宣布，俄罗斯国资电视频道“今日俄罗斯”（RT）在英国的广播执照被吊销，并立即生效。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+你是一个英雄
 
-在欧盟要求法国和卢森堡的卫星供应商禁止播放RT电视台后，本月早些时候它已在英国停播，但直到今天才被吊销执照。
+在难民营里
 
-Ofcom声称，由于俄罗斯最近实施的媒体法将有效地“将任何偏离俄罗斯官方新闻叙事的独立新闻，特别是有关入侵乌克兰的新闻定为犯罪”，因此RT电视台将不太可能遵从英国的公正性原则，所以它不适合在英国运营。
+弹着钢琴
 
-Ofcom的首席执行官梅拉妮·道斯 (Melanie Dawes)女士在一份声明中说：“在我们英国，表达自由是我们强烈捍卫的东西，对广播公司采取行动的标准理应设得很高。经过独立的监管程序，我们今天发现，RT电视台已不适合在英国持有许可证。因此，我们吊销了它的英国广播执照。”
+优雅，从容
 
-Ofcom说，在作出吊销执照的同时，英国正针对“RT的新闻及其俄军侵乌时事报导应有的公正性”进行29项调查。
+一曲灭共的雪
 
-自俄罗斯入侵乌克兰以来，大科技公司在整个欧洲开展了针对俄罗斯媒体的审查运动。在过去几周，脸书、微软、谷歌和Tiktok等科技公司在欧盟的授意下，对RT电视台和俄罗斯卫星通讯社新闻（Sputnik News）采取了不同程度的封锁行动。
+你让泪水横流
 
-*责编：白夜*
+眼睛朦胧
 
-新闻来源：[UK Media Regulator Revokes Broadcasting Licence of Russia’s RT News](https://www.breitbart.com/europe/2022/03/18/uk-media-regulator-revokes-russias-rt-broadcasting-licence/)
+无国界的音乐
 
+在寒风中
+
+漂流
+
+爱和激情
+
+有了共鸣
+
+心与心
+
+距离更近
+
+战火摧残人们
+
+琴声让人不再
+
+冰冷
+
+你是一个英雄
+
+有着不一样的面孔
+
+信仰没有不同
+
+在寒冷的冬天
+
+传递同样的爱和温柔
+
+请侵略者也来倾听
+
+这天籁之音
+
+一起放下暴虐和残忍
+
+一起来欣赏
+
+这美丽声音
+
+你是一个英雄
+
+用你美丽音乐
+
+传递爱与温柔
+
+在这个战火纷飞年代
+
+送上温情温暖
+
+找回失去家园人们 的心灵
+
+文字版原文：[弹钢琴的英雄传递爱与温柔](https://gnews.org/zh-hans/2180056/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

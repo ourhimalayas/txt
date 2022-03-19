@@ -15,77 +15,77 @@
 
 ---
 
-### [3/18/2022 文贵直播：太多好消息了，中国共产党专门捡美国给它准备的最毒的毒药吃；乌克兰和台湾会是我们中国人最值得珍惜的朋友，中共会死在乌克兰事件上，我们会很快在盘古相聚](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [郭文贵先生2022年3月18日盖特视频（二）（2分49秒）全文字版](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [传美国拜登政府相信中共会支持俄罗斯](/content/gnews/2/README.md)
+### [俄乌开战以来 超过400家企业已撤出俄罗斯](/content/gnews/2/README.md)
  ` 蓝莲花农场`
 
-### [救援前線：梅迪卡營地長長的難民隊伍](/content/gnews/3/README.md)
+### [3/18/2022 文贵直播：太多好消息了，中国共产党专门捡美国给它准备的最毒的毒药吃；乌克兰和台湾会是我们中国人最值得珍惜的朋友，中共会死在乌克兰事件上，我们会很快在盘古相聚](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [传美国拜登政府相信中共会支持俄罗斯](/content/gnews/4/README.md)
+ ` 蓝莲花农场`
+
+### [救援前線：梅迪卡營地長長的難民隊伍](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记：中国人心坏到极点了](/content/gnews/4/README.md)
+### [大直播后记：中国人心坏到极点了](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [美国工厂产出激增至4个月来的最高增幅](/content/gnews/5/README.md)
+### [美国工厂产出激增至4个月来的最高增幅](/content/gnews/7/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [普京可能会找台阶收手停止入侵乌克兰，习近平闷头攻台待时机](/content/gnews/6/README.md)
+### [普京可能会找台阶收手停止入侵乌克兰，习近平闷头攻台待时机](/content/gnews/8/README.md)
  ` YALUN 亚伦`
 
-### [3/18/2022 文贵盖特：中共用黑客大肆攻击文贵和战友，并且拿多维网伪造的材料作为呈堂证供，供应链出了大问题](/content/gnews/7/README.md)
+### [3/18/2022 文贵盖特：中共用黑客大肆攻击文贵和战友，并且拿多维网伪造的材料作为呈堂证供，供应链出了大问题](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [新中国联邦以人道主义救援闪亮国际政治舞台](/content/gnews/8/README.md)
+### [新中国联邦以人道主义救援闪亮国际政治舞台](/content/gnews/10/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [大直播后记：关于台湾大牛的问题](/content/gnews/9/README.md)
+### [大直播后记：关于台湾大牛的问题](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [日本开始接受没有担保人的乌克兰人](/content/gnews/10/README.md)
+### [日本开始接受没有担保人的乌克兰人](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [救援前线：梅迪卡营地长长的难民队伍](/content/gnews/11/README.md)
+### [救援前线：梅迪卡营地长长的难民队伍](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马里乌波尔危机加剧 美国警告中共不要协助俄罗斯入侵](/content/gnews/12/README.md)
+### [马里乌波尔危机加剧 美国警告中共不要协助俄罗斯入侵](/content/gnews/14/README.md)
  ` 蓝莲花农场`
 
-### [DC大中华时事：习称尽快遏制疫情扩散蔓延势头](/content/gnews/13/README.md)
+### [DC大中华时事：习称尽快遏制疫情扩散蔓延势头](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [参议员布莱克本： 如果习近平向俄提供军事支持,美国和国际社会应切断与中共国的联系](/content/gnews/14/README.md)
+### [参议员布莱克本： 如果习近平向俄提供军事支持,美国和国际社会应切断与中共国的联系](/content/gnews/16/README.md)
  ` 美国政要直译推`
 
-### [【G时新闻】加拿大通货膨胀将创30年之最](/content/gnews/15/README.md)
+### [【G时新闻】加拿大通货膨胀将创30年之最](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [有声|弹钢琴的英雄传递爱与温柔](/content/gnews/16/README.md)
+### [有声|弹钢琴的英雄传递爱与温柔](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|中共持续扰台 入侵野心人尽皆知](/content/gnews/17/README.md)
+### [有声|中共持续扰台 入侵野心人尽皆知](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照](/content/gnews/18/README.md)
+### [【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜习通话 美国警告中共支持俄罗斯将面临制裁](/content/gnews/19/README.md)
+### [拜习通话 美国警告中共支持俄罗斯将面临制裁](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见](/content/gnews/20/README.md)
+### [凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国致力加强台湾不对称作战能力](/content/gnews/21/README.md)
+### [美国致力加强台湾不对称作战能力](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [3/18/2022 文贵盖特：中共支持俄罗斯打乌克兰让美国人不舒服了，但是对不起，我们是新中国联邦人，共产党不能代表我们中国人；中共有今天也是拜华尔街所赐，但最终港币、人民币一定会成冥纸](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵精品视频-政治经济金融策略的大师也是行动的巨人](/content/gnews/23/README.md)
+### [郭文贵精品视频-政治经济金融策略的大师也是行动的巨人](/content/gnews/24/README.md)
  ` cindy`
-
-### [Nicole对Newsweek 《新闻周刊》驻波兰记者Renata Kim的采访](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [有声|乌克兰中国留学生亲述新中国联邦救援经历](/content/gnews/25/README.md)
  ` MOSREC`
@@ -141,26 +141,26 @@
 ### [新西兰财经G乐部2022年3月18日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [速报┃泽伦斯基在日本国会的演讲已决定于6月23日举行](/content/gnews/43/README.md)
+### [樱花头条┃提防中共 亚太国家纷纷增购武器](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花头条┃提防中共 亚太国家纷纷增购武器](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌方表示停火协议达成妥协还需要时间](/content/gnews/45/README.md)
- ` 墨尔本雅典娜农场`
-
-### [瑞士银行家协会披露俄罗斯客户在瑞士存放约2000亿美元](/content/gnews/46/README.md)
- ` 墨尔本雅典娜农场`
-
-### [人间地狱：三十万人被困马里乌波尔（Mariupol）“活”于俄军炮轰之下](/content/gnews/47/README.md)
+### [人间地狱：三十万人被困马里乌波尔（Mariupol）“活”于俄军炮轰之下](/content/gnews/44/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [朗诵佳作欣赏《答案在风中飘荡》](/content/gnews/48/README.md)
+### [前桥水CEO呼吁向中共追讨芬太尼&#8221;赔偿金&#8221;](/content/gnews/45/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [布拉格堡80多名美军因“突然”“无法解释”的原因死亡（1/2）](/content/gnews/46/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [朗诵佳作欣赏《答案在风中飘荡》](/content/gnews/47/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [参议员卢比奥：中共国100%站在 普京后面](/content/gnews/49/README.md)
+### [参议员卢比奥：中共国100%站在 普京后面](/content/gnews/48/README.md)
  ` 美国政要直译推`
+
+### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/49/README.md)
+ ` 喜马拉雅农场新西兰站`
 
 ### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/50/README.md)
  ` 秘密翻譯組G-Translators`
