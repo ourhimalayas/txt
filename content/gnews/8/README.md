@@ -2,28 +2,30 @@
 ---
 
 
-## 美国支援乌克兰“弹簧刀”无人机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2191482/)
+## 樱花深度报道┃中俄友谊是否如他们领导人说的那样无上限？（四）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2191506/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月16日，美国媒体消息，总统拜登当天宣布对乌克兰增加军事援助，包括100架外号“弹簧刀”的小型无人机。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-40-scaled.jpg)
-这款无人机2.7公斤重，61公分长，轻巧、精准，可以装进一个后背包，由步兵操作，轰炸几十英里外的地面目标。每架成本不到6000美元。另外，这款无人机以直接撞击目标的方式引爆小型弹头，又称为神风无人机。
+编译：东京樱花团/Hopkins
 
-报导称，美国送这款武器给乌克兰，代表西方对乌克兰的军事援助已进入一个新阶段。
+【编者按】在俄罗斯入侵乌克兰前不到一个月，习近平与普京签署了一份联合声明，宣布“两国友谊无止境”。俄罗斯领导人普京对一个他大大低估的国家乌克兰发动了一场战争时，他的误判越来越清楚。乌克兰的勇敢抵抗和西方世界的经济制裁，是对俄罗斯领导人的羞辱——或者更糟糕的结局是，普京将被赶下台。这对于希望在 2022 年底获得第三个中共总书记任期的习近平来说，今年是高风险的一年，因为违反了中共内部权力交接规则。他不想被看到正在支持一个失败者。中俄友谊是否还是“坚如磐石”？本文作了精彩的分析。本文原文发表于《经济学家》2022年3月17日中国专栏上，原文题目是：“[China’s friendship with Russia has boundaries, despite what their leaders say](https://www.economist.com/china/chinas-friendship-with-russia-has-boundaries-despite-what-their-leaders-say/21808197)”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2134.png)
+即便如此，中国共产党确实从战争中看到了国内的政治利益：它助长了党所喜欢的民族主义情绪。中国官员一直在用反美言论煽动这一点，并支持普京关于乌克兰是西方纳粹傀儡的说法。官方媒体和民族主义网站将俄罗斯描述为中国长期以来遭受的西方欺凌的受害者。国家电视台和中国外交部重复并放大了俄罗斯的虚假信息，尤其是围绕着乌克兰实验室，这些实验室据称是五角大楼控制的险恶的生物武器研究中心。在网上，对乌克兰的同情表达经常被审查员删除。其中包括在北京残奥会上对乌克兰运动员的友好采访，该采访在吸引了太多关注后消失了。
 
-链接：
+当被要求描述中国的战略目标时，十几个驻北京大使馆的外交官几乎一致同意。他们说，中国希望建立一个围绕势力范围的世界秩序，中国控制亚洲，俄罗斯对欧洲的安全安排行使否决权，而美国则被推回自己的海岸。如果俄罗斯在乌克兰的战争帮助建立了这样的秩序，正合他们的意愿。但中国主要的兴趣在于自己的崛起，以及是否会被美国阻挠。在他们看来，主要的全球竞争是在崛起的中国和衰落的美国之间，美国的种族主义和恶意打压阻碍了亚洲巨人的崛起。
 
-- [U.S. sending Switchblade drones to Ukraine in $800 million package](https://www.politico.com/news/2022/03/16/us-sends-switchblade-drones-to-ukraine-00017836)
+对于外国对中国在乌克兰问题上的立场的恐惧，北京的官员们用大张旗鼓的咆哮和花言巧语来回应。美国是咆哮的对象，学者和政府顾问宣称，这场战争暴露了乔·拜登（Joe Biden）总统的弱点以及他对普京核武库的恐惧。他们预测制裁不会改变俄罗斯的意愿——这是中国非常感兴趣的一点，中国知道如果入侵台湾，它将面临类似的惩罚。
 
+相比之下，拥有中国希望进入的市场和技术的欧洲政府，尤其是德国和法国，正成为魅力攻势的目标。欧洲人被告知，美国希望从战争中获利，而欧洲则为石油和天然气价格飙升以及大量乌克兰难民付出代价。中国官员和学者传达的信息是，欧洲人是时候从美国寻求更多自主权并加深与中国的关系了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+实际上，中国从俄罗斯的孤立中获得的收益将超过任何其他国家。作为民族主义强人，习近平和普京可能有着共同的纽带，他们都感到受到美国的围攻。两人都痴迷于民主反对运动的威胁，谴责从香港到莫斯科的抗议活动是美国控制的颜色革命。但不久之后，俄罗斯领导人就对日益依赖中国保持高度警惕，中国是一个经济和人口比俄罗斯多十倍的邻国。
 
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（未完待续）
+
+信息来源：[China’s friendship with Russia has boundaries, despite what their leaders say](https://www.economist.com/china/chinas-friendship-with-russia-has-boundaries-despite-what-their-leaders-say/21808197)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

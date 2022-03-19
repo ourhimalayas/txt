@@ -2,22 +2,38 @@
 ---
 
 
-## 53万枚布制口罩库存“消失” 厚生劳动大臣谢罪
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2188525/)
+## 有声|乌克兰中国留学生亲述新中国联邦救援经历
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188682/)
 
-撰稿：东京樱花团丨向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2070.png)[*图片来源*](https://news.tbs.co.jp/newseye/tbs_newseye6008522.html)
-3月18日在参议院预算委员会上，厚生劳动大臣后藤茂之表示，政府大量库存的、约有53万个布制口罩“安倍的口罩”已经发放出去却没有被记录在案。后藤大臣道歉说，“尽管工作不得不匆忙进行，但库存数量上出现了差距非常遗憾。”
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月15日，两位乌克兰中国留学生接受新中国联邦采访，亲述俄乌战争爆发后，在新中国联邦、治基金的帮助下，逃离基辅来到波兰的经历，感恩新中国联邦、法制基金的救助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1967.png)
+据两位留学生所述，在第一声爆炸之前，没有人相信会发生战争。而在战争持续几天后，他们意识到必须自救。通过微信朋友圈，他们看到新中国联邦、法制基金的救援信息，并立即打通了救援电话。他们采纳了新中国联邦战友建议的救援路径，顺利逃离基辅，到达利沃夫。而后，他们乘坐新中国联邦的大巴，到达波兰边境小镇热舒夫，随后抵达克拉利夫的酒店。一路上，他们得到救援团队暖心的关怀。
 
-立宪民主党的田岛麻衣子指出：“当从记录的采购数量中减去分配数量时，与库存数量不符，大约有530,000件记录不符。”另一方面，后藤先生解释说，“实际库存量比计算出的库存量少约53万件，这是一个事实。当时为了第一时间把口罩送到国民手里，每天在全国各地的工作基地运送、打包、分配大量口罩，而在工作过程中，推测是运送的数量并没有计算造成的。”审计委员会的一位负责人也指出，“并非所有分配次数的记录都被准确保存”。
+与中共置同胞性命于不顾形成强烈的对比，新中国联邦在战争爆发后，第一时间对同胞展开的救援行动，使两位获救留学生无限感慨。
 
-厚生劳动省当时的计划是向希望得到的个人和团体免费分发约 8272 万个布口罩。后藤先生说：“我们希望确保这项分发工作得到彻底的管理，以防止这种情况发生。”
 
-信息来源：[**アベノマスク  53万枚「消える」  記録と在庫数合わず  厚労相陳謝**](https://news.yahoo.co.jp/articles/c545244eb65d3e8407dbf01edcca907ded4a9741)
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+文字版原文：[乌克兰中国留学生亲述新中国联邦救援经历](https://gnews.org/zh-hans/2184512/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

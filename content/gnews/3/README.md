@@ -2,61 +2,33 @@
 ---
 
 
-## 普习帝梦碎(续)
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2191580/)
+## 有医生证实刺突蛋白会诱发与新冠病毒相同的疾病
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2191605/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2550.jpg)
+By：喜国公民
+视频来自网络
+瑞安·科尔医生是梅奥诊所认证的解剖病理学家，临床病理学家，有多年的免疫学研究经验。他在近期的一次演讲时指出了新冠疫苗的作用机制和刺突蛋白的工作原理。
 
-各位看官来来来
-我把故事都讲完
-众所瞩目拜习会
-近平同志活稀泥
-支不支持俄罗斯
-不说支持不拒绝
-模棱两可想干啥
-先把时间拖一拖
-普帝着急要上火
-又一中将把命失
-北约上空有飞机
-原来来自俄罗斯
-哈罗哈罗普大帝
-不做回应只装死
-末日来临心头惧
-习帝习帝快救我
-惊慌失措习帝忙
-毒药摆在桌面上
-一百零八种
-随便选几样
-普帝习帝背靠背
-抱团取暖梦已殇
-乌克兰的战场
-注定
-要把尔等埋葬
-这可真是———
-机关算尽太聪明
-不顾人伦不顾亲
-生灵涂炭无悲悯
-反而培上尔狗命
-下到地府要忏悔
-肯请阎王多留情
-阎王假装没听见
-喝令小鬼用重刑
-用——重——刑！
+人们在注射新冠疫苗时，是把一个基因序列注入到身体中，产生刺突蛋白并在血液中循环，落在身体的各个器官中。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+科尔医生在动物身上做了实验，他发现当动物被注射了这种基因序列以后，刺突蛋白诱发了与新冠病毒相同的疾病。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+同样的肺部疾病，同样的血管疾病，同样的心脏疾病，同样的脑部疾病。他认为刺突蛋白就是毒素。人类不应该向体内注射毒素。
 
+在人类注射新冠疫苗后，刺突蛋白会使人体的免疫系统攻击自己的组织，尤其对心脏造成损伤。因为心脏不会自愈，一旦心脏细胞受损，损伤是永久的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+刺突蛋白对肾脏，肝脏和生殖系统的睾丸和卵巢的损害也是如此。辉瑞公司的文件中清楚地指出，新冠疫苗在大鼠身上的试验表明，它们的生育能力下降了16%。
+
+在实验室里看到的是，这些疫苗会破坏人体的免疫系统，使其不能控制其他病毒的入侵，不能杀死体内的癌细胞。 在科尔医生的实验室里，他看到在过去的六个月里，子宫癌的发病率增加了10到20倍。
+
+目前，卫生部门对很多在赛场上猝死的运动员不进行尸检，媒体封杀因注射新冠疫苗而产生的副作用或死亡的现象，科尔医生对此深表不安。
+
+消息来源：[Pathologist Summary Of What These Jabs Do To The Brain And Other Organs](https://rumble.com/vvg3y9-pathologist-summary-of-what-these-jabs-do-to-the-brain-and-other-organs.html)
+
+*审核：喜国公民*
+
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

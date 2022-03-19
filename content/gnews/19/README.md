@@ -2,10 +2,10 @@
 ---
 
 
-## 现在沙特认为美元的霸主地位正摇摇欲坠
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191332/)
+## 俄罗斯军队正试图 “把乌克兰人饿死”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191351/)
 
-03/15/2022 班农战斗室：沙特现在认为美元霸主地位正在摇摇欲坠 他们似乎想给美元以致命一击
+03/17/2022 天空新闻：俄对乌克兰首都基辅周围食品储存设施的多次袭击表明，俄军队正尝试让乌克兰人民饿死的新策略
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

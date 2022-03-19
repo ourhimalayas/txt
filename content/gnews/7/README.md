@@ -2,27 +2,67 @@
 ---
 
 
-## 英国将在波兰部署最新中程导弹防御系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2191483/)
+## 致才旺罗布战友
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2191532/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山教育部-蓝之灵（hortênsia)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-国外媒体3月17日报道，英国国防部长华莱士在华沙宣布，英国将在波兰部署其最新的中程导弹防御系统——“天空之刃”。该系统有能力击中以光速移动的网球大小的目标。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-32-scaled.jpg)
-华莱士表示，自从普京入侵乌克兰后，与乌克兰接壤的波兰最有可能成为俄罗斯未来袭击的目标。波兰是北约盟邦，也是历史悠久的英国盟友。因此英国要支持波兰。天空之刃系统将帮助波兰保卫其领空免受俄罗斯武器的攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2556.jpg)
 
-不过，英国并未透露，这套系统何时部署，以及将部署多久。
+孩子
+你没有离开
+你的歌声
+永远流淌在
+蓝色的天
+和
+绿色的地之间
+永远流淌在
+新中国联邦人心间
+孩子
+你的爱
+有人会替你延续
+把你想唱的歌儿
+重复传唱
+一遍又一遍
+替你完成
+未了情怀
+生生不息
+直到永远
+孩子
+你没有离开
+你的仇恨
+有人替你散开
+消灭共产党
+解放你族人
+让你灵魂
+安息平静
+孩子
+你没有离开
+嘹亮的歌声
+在岁与岁更替间
+重复着千遍万遍
+你的灵与魂
+永远与我们
+同在
+新中国联邦天空
+有无数个
+才旺罗布新星
+升起
+延续你的魂
+和
+你的灵
 
-链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-- [Britain to Deploy Missile Defense System in Poland](https://www.thedefensepost.com/2022/03/17/britain-missile-system-poland/)
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 

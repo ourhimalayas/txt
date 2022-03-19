@@ -2,37 +2,89 @@
 ---
 
 
-## 有声|乌克兰中国留学生亲述新中国联邦救援经历
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188682/)
+## 参议员布莱克本： 如果习近平向俄提供军事支持,美国和国际社会应切断与中共国的联系
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2188846/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月15日，两位乌克兰中国留学生接受新中国联邦采访，亲述俄乌战争爆发后，在新中国联邦、治基金的帮助下，逃离基辅来到波兰的经历，感恩新中国联邦、法制基金的救助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1967.png)
-据两位留学生所述，在第一声爆炸之前，没有人相信会发生战争。而在战争持续几天后，他们意识到必须自救。通过微信朋友圈，他们看到新中国联邦、法制基金的救援信息，并立即打通了救援电话。他们采纳了新中国联邦战友建议的救援路径，顺利逃离基辅，到达利沃夫。而后，他们乘坐新中国联邦的大巴，到达波兰边境小镇热舒夫，随后抵达克拉利夫的酒店。一路上，他们得到救援团队暖心的关怀。
-
-与中共置同胞性命于不顾形成强烈的对比，新中国联邦在战争爆发后，第一时间对同胞展开的救援行动，使两位获救留学生无限感慨。
+**参议员玛莎.布莱克本**： 
+如果 [#习近平](https://twitter.com/hashtag/习近平?src=hashtag_click) 向 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 提供军事支持，美国和国际社会应该切断 [#共产中国](https://twitter.com/hashtag/共产中国?src=hashtag_click) 的联系。对俄罗斯的所有制裁 (也) 都应施加在中共国身上。
 
 
 
-文字版原文：[乌克兰中国留学生亲述新中国联邦救援经历](https://gnews.org/zh-hans/2184512/)
+> If Xi provides military support to Russia, the USA and international community should cut off Communist China. All sanctions against Russia should be placed on China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 18, 2022](https://twitter.com/MarshaBlackburn/status/1504930598514798597?ref_src=twsrc%5Etfw)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**参议员马可·卢比奥**： 
+我不认为 (习希望乌和平)，我知道 [#习近平](https://gettr.com/hashtag/%23习近平) 在撒谎
+ [#中共国](https://gettr.com/hashtag/%23中共国) 正在主要方面帮助 [#俄罗斯](https://gettr.com/hashtag/%23俄罗斯) 对 [#乌克兰](https://gettr.com/hashtag/%23乌克兰) 的犯罪入侵 
+为什么西方如此难以理解莫斯科、德黑兰和 [#北京](https://gettr.com/hashtag/%23北京) 的这些人一直在撒谎
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+【转cnbc报道：拜登和习近平都希望乌克兰和平，但中共国不会责怪俄罗斯 
+ 关键点： 
+– 周五早上，乔·拜登总统与中共国家主席习近平进行了近两个小时的谈话，主要是关于俄罗斯入侵乌克兰。 
+– 莫斯科已要求北京为其战争提供援助，而拜登的目标是向习近平说明，如果习近平同意这一请求，等待中国的负面后果。 
+– 拜登和习近平都同意为乌克兰的和平而努力，但在谁应对俄罗斯入侵负责的问题上存在严重分歧。 
+– 习近平暗示美国已经迫使普京出手—— 这与莫斯科最喜欢的谈话要点之一相呼应。】
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> I don’t think, I KNOW [#Xi](https://twitter.com/hashtag/Xi?src=hash&amp;ref_src=twsrc%5Etfw) is lying[#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is helping [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) in major ways with the criminal invasion of [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> Why is it so hard for the west to understand that these people in Moscow,Tehran & Beijing lie all the time about everything [https://t.co/ka0owosJAb](https://t.co/ka0owosJAb)
+> — Marco Rubio (@marcorubio) [March 18, 2022](https://twitter.com/marcorubio/status/1504906891117408264?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·沃尔茨**： 
+习主席和 [#中共](https://twitter.com/hashtag/中共?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 将在乌克兰危机中扮演双重角色。 一方面，他们希望获得俄罗斯的矿产、石油和天然气，但归根结底，他们还需要能接触到美元和欧盟经济。 请看我对 [#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 将如何与 [#俄罗斯](https://twitter.com/hashtag/俄罗斯?src=hashtag_click) 打交道的想法 
+【附沃尔茨接受福克斯新闻采访，俄罗斯军队在乌克兰进一步推进】
+
+
+
+> Chairman Xi & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) will play both sides of the Ukraine crisis. On the one side, they want access to Russia’s minerals, oil, and gas, but at the end of the day, they also need access to the U.S. dollar & EU economy. See my thoughts on how China will deal with Russia below 👇 [pic.twitter.com/IOtqZNSWsF](https://t.co/IOtqZNSWsF)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 18, 2022](https://twitter.com/michaelgwaltz/status/1504897355224604674?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·加拉格尔新闻办公室**： 
+众议员加拉格尔：如果 [#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 向俄罗斯提供军事援助，“我认为我们有机会达成两党共识，同时对俄罗斯和中共国采取强硬态度。” 
+【附视频：加拉格尔议员接受福克斯新闻采访，谈俄罗斯入侵乌克兰战争升级】
+
+
+
+> Rep. Gallagher: If China provides military assistance to Russia, "I think we have an opportunity to forge a bipartisan consensus that gets very tough on Russia and China simultaneously." [pic.twitter.com/d1tKb7U5Zq](https://t.co/d1tKb7U5Zq)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 18, 2022](https://twitter.com/RepGallagher/status/1504849878362599424?ref_src=twsrc%5Etfw)
+
+
+
+**美国国会中国问题委员会**： 
+新的国务院[@StateDept](https://twitter.com/StateDept)《西藏互惠进入法》报告发现，[#中共](https://twitter.com/hashtag/中共?src=hashtag_click) 当局在 2021 年“系统地阻碍”美国外交官、官员、记者和游客前往中国 [#西藏](https://twitter.com/hashtag/西藏?src=hashtag_click) 地区的旅行 
+【附美国务院官网：向国会提交关于进入西藏地区的报告：2018 年《西藏互惠进入法》第 4 节（8 U.S.C. 1182 笔记）】
+
+该报告称，由于美国驻成都领事馆的报复性关闭，[#西藏](https://twitter.com/hashtag/西藏?src=hashtag_click)[#Tibet](https://twitter.com/hashtag/Tibet?src=hashtag_click) 的访问受到影响，因为在美国务院[@StateDept](https://twitter.com/StateDept) 于 2020 年关闭中共国驻休斯敦领事馆后，中国官员尚未批准任何美国大使馆前往西藏自治区的旅行。
+
+
+
+> New [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) Reciprocal Access to [#Tibet](https://twitter.com/hashtag/Tibet?src=hash&amp;ref_src=twsrc%5Etfw) Act report finds that Chinese authorities “systematically impeded” travel to Tibetan areas in the PRC for U.S. diplomats and officials, journalists, and tourists in 2021 [https://t.co/pcb7asQbwO](https://t.co/pcb7asQbwO)
+> — China Commission (@CECCgov) [March 18, 2022](https://twitter.com/CECCgov/status/1504907245582176263?ref_src=twsrc%5Etfw)
+
+
+
+**众议员帕特·法伦**： 
+[#中共国](https://twitter.com/hashtag/中共国?src=hashtag_click) 正在将其军事足迹扩展到我们的后院。 在本周的众议院军事委员会共和党[@HASCRepublicans](https://twitter.com/HASCRepublicans) 听证会上，我有机会向美国非洲司令部 (AFRICOM) 询问这种情况所构成的威胁。 
+【附听证会视频，谈到 [#中共](https://twitter.com/hashtag/中共?src=hashtag_click) 用一带一路债务陷阱的手段在非洲扩充势力范围】
+
+
+
+> China is expanding their military footprint into our backyard.
+> 
+> In this week’s [@HASCRepublicans](https://twitter.com/HASCRepublicans?ref_src=twsrc%5Etfw) hearing, I had the opportunity to ask AFRICOM about the threat this poses. [pic.twitter.com/DmmouXPkWO](https://t.co/DmmouXPkWO)
+> — Rep. Pat Fallon (@RepPatFallon) [March 18, 2022](https://twitter.com/RepPatFallon/status/1504899924961411078?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
