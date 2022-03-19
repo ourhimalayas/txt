@@ -2,12 +2,18 @@
 ---
 
 
-## 拜登将在与习近平的会谈中‘评估’中方的立场
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192087/)
+## 2022年3月19日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2192147/)
 
-03/17/2022 美国总统拜登本周五(03/18)将与中共国家主席习近平通话，讨论持续的经济竞争和俄罗斯对乌克兰的战争。白宫新闻秘书Jen Psaki将这次通话描述为‘评估’中共国对俄罗斯支持的机会。
+制作：DT新闻组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0489.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
 
  
 

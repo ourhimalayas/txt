@@ -2,10 +2,10 @@
 ---
 
 
-## 人贩子成了乌克兰难民妇女儿童的新威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192056/)
+## 俄罗斯吹哨人声称中共计划在今年秋季入侵台湾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192102/)
 
-03/18/2022 随着大量难民逃离乌克兰，乌克兰儿童联盟的联合执行董事Tatiana Kotlyarenko说，妇女和儿童正成为边境贩运者觊觎的目标。这不是潜在危机，已有实际案例发生。
+03/17/2022 白邦瑞：“除非我们得到一个涉及俄罗斯和乌克兰的和平协议，否则将会给北京的鹰派提供一个入侵台湾的机会。”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
