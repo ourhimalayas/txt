@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 6:38 PM (UTC)`
+
+
+![img](https://media.gettr.com/group13/origin/2022/03/19/18/b92d4b55-d1af-c110-39ab-485eacf0a82f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/19/2022 6:26 PM (UTC)`
+
+It is freezing cold on the Polish border, and people who have just escaped from the bombing become homeless. The New Federal State of China (NFSC) provided warm tents, freshly brewed coffee, soft blankets and sincere greetings. In the midst of the relentless war, the people of the NFSC demonstrated that there is love in the world, and that faith and love unite every peace-loving soul in the world.<br/><br/>在波蘭邊境上，剛逃離炮火的人們，流離失所，天寒地凍。我們新中國聯邦提供了溫暖的帐篷，可口的咖啡，柔軟的毛毯，真摯的問候。在無情的炮火中，新中國聯邦人以實際行動體現了人間有情，與普世價值共同，信仰和愛聯繫世界每一個熱愛和平正義的人。
+![img](https://media.gettr.com/group26/origin/2022/03/19/18/e6dfb540-a4bc-15ed-59cb-5e1e8b075201/out.jpg)
+
+---
+
 `@miles 3/19/2022 5:20 PM (UTC)`
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
@@ -141,20 +155,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 【Ukraine Rescue】 03/16/22 NFSC & ROLF volunteer Wengeqixiong said the Ukrainian people showed that Ukraine is a nation with dignity that deserves respect. They are not like us. The 1.4 billion Chinese people are living like dogs and pigs under the brainwashing system of the Chinese Communist Party.<br/><br/>【乌克兰救援】 03/16/22 新中国联邦和法治基金救援行动站长文戈七雄战友谈到对乌克兰民族的感受时表示，乌克兰人是值得我们尊重的民族，他们是有尊严的。不像我们，14亿中国的老百姓是在这个共产党的这种洗脑的体制下，生活的猪狗不如。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group9/getter/2022/03/19/03/6eabe5d4-5aa2-abf2-0370-b1e03a2f4d63/out.jpg)
-
----
-
-`@miles 3/19/2022 3:35 AM (UTC)`
-
-3/17/2022 Miles Guo: The three scenarios that can never happen in the Russia-Ukraine war are Putin surrenders, turns against the CCP, and wages a nuclear war. The US is using its past military technologies and equipment to help Ukraine beat down the Russian troops.<br/><br/>3/17/2022 文贵直播：俄乌战争中绝不可能发生的三件事 - 普京投降、对中共反戈一击和打核战；美国用过往的军事技术和装备帮乌克兰把俄军打趴下
-![img](https://media.gettr.com/group31/getter/2022/03/19/03/67e5e971-91f9-225b-c931-1e5c45183996/out.jpg)
-
----
-
-`@miles 3/19/2022 3:33 AM (UTC)`
-
-3/17/2022 Miles Guo: Yury Kovalchuk is Putin’s “Wang Huning”, and Putin is his loyalist student. Yury Kovalchuk advised Putin to put an end to the Russia-Ukraine war. If Putin did that, then the downfall of the CCP may be postponed. However, the world’s political landscape has already been completely changed.<br/><br/>3/17/2022 文贵直播：科瓦利丘克是普京的“王沪宁”，普京是他最忠实的学生；科瓦利丘克建议普京在俄乌战争上收手；如果普京真的收手，中共灭亡可能会被推迟，但世界政治格局已彻底改变<br/>
-![img](https://media.gettr.com/group6/getter/2022/03/19/03/d2a1ffac-f0b1-c65d-2657-5481e9f7dcb6/out.jpg)
 
 ---
 
