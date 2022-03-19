@@ -2,36 +2,28 @@
 ---
 
 
-## 中共国的疫情封锁令全球经济充满不确定性
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
+## 俄罗斯电视台编辑举牌反战，引发辞职潮
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2188455/)
 
-作者: 纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
+**撰稿：文舞两道**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
+俄罗斯国家第一电视台女编辑玛丽娜，日前冲进当地收视率最高的新闻直播现场，举牌反对战争，抗议俄罗斯入侵乌克兰。玛丽娜的律师18日在SNS上透露，玛丽娜已向电视台提交了辞呈。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2068.png)图片来源：[NHK](https://www3.nhk.or.jp/news/html/20220318/k10013539511000.html?utm_int=news-international_contents_list-items_001)
+玛丽娜的行动引起俄罗斯媒体圈高层以及资深记者的离职潮。据报导，玛丽娜抗议被捕后，她的同事、第一电视台驻欧洲记者詹娜跟着递出辞呈以表达对战争的不满。同时另一家国营电视台“NTV”的当家主播莉莉亚，和资历超过30年的记者瓦迪姆也相继离职；莉莉亚曾受到普京亲自表扬，而她在个人社群媒体发出“拒绝战争”信息后，宣布已经离开俄罗斯。
 
-当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
+更早之前就辞去职务的倍受瞩目的《今日俄罗斯》前总编辑玛利亚表示，“我真的认为我们现在正处于核战争的边缘”。普金发动侵略乌克兰战争，已经严重摧毁俄罗斯的声誉，也让俄罗斯的经济崩溃，陷入无法挽回的境地。
 
+还有更多俄国媒体员工辞职表达不满。乌克兰总统泽伦斯基也呼吁俄罗斯官方传媒的工作人员最好尽快辞职，否则恐将成为“为战争罪辩护”的同类，遭国际法庭审判。
 
+**信息来源：**[NHK: 番組中に反戦訴えたロシア国営テレビ職員 辞表を提出](https://www3.nhk.or.jp/news/html/20220318/k10013539511000.html?utm_int=news-international_contents_list-items_001)
 
-相关链接:
+**校对：MQ**
 
-[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
+**发布：MQ**
 
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑: 飞虹
-
-校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

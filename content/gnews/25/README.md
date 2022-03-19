@@ -2,38 +2,33 @@
 ---
 
 
-## 有声|乌克兰中国留学生亲述新中国联邦救援经历
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188682/)
+## 【G时新闻】加拿大通货膨胀将创30年之最
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2188844/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月15日，两位乌克兰中国留学生接受新中国联邦采访，亲述俄乌战争爆发后，在新中国联邦、治基金的帮助下，逃离基辅来到波兰的经历，感恩新中国联邦、法制基金的救助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1967.png)
-据两位留学生所述，在第一声爆炸之前，没有人相信会发生战争。而在战争持续几天后，他们意识到必须自救。通过微信朋友圈，他们看到新中国联邦、法制基金的救援信息，并立即打通了救援电话。他们采纳了新中国联邦战友建议的救援路径，顺利逃离基辅，到达利沃夫。而后，他们乘坐新中国联邦的大巴，到达波兰边境小镇热舒夫，随后抵达克拉利夫的酒店。一路上，他们得到救援团队暖心的关怀。
+播报：加拿大温哥华扬帆农场 – 文广
 
-与中共置同胞性命于不顾形成强烈的对比，新中国联邦在战争爆发后，第一时间对同胞展开的救援行动，使两位获救留学生无限感慨。
+视频制作：加拿大温哥华扬帆农场 – GraceIshan
 
+加拿大网媒《True North》3月16日报道，在加拿大统计局发布月度消费者价格指数报告之前，经济学家警告如果通胀水平达到30年高点，物价将更为昂贵。与去年相比，价格预计将上升5.5%至6%。
 
+由于俄乌战争带来的行业压力，整个加拿大燃油价格近期创历史新高，大温地区汽油每升超过2美元，多伦多每升超过1.67美元；杂货价格也在飙升，运输和化肥的高成本让农民不得不把差价转嫁给消费者；而政府新的边境措施则进一步提高了卡车运输成本，食品公司的原料价格则在去年飙升了80%。
 
-文字版原文：[乌克兰中国留学生亲述新中国联邦救援经历](https://gnews.org/zh-hans/2184512/)
+即使不考虑上述汽油和食品成本，加拿大通胀指数仍为3.5%，经济学家称这是加拿大人几十年来看到的最高增长率之一。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+病毒、疫苗、战争、通胀、崩盘……CCP是万恶之源，只有铲除CCP，才是解决一切问题的根本！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+视频链接：https://www.gettr.com/post/p10oluw2701
+发稿：文莱
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+* * *
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

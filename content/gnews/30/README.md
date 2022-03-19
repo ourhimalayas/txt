@@ -2,26 +2,31 @@
 ---
 
 
-## 中日财经爆┃中共房地产和就业危机叠加：多地建筑业清退超龄农民工
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2188488/)
+## 【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2188623/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://p3.toutiaoimg.com/large/tos-cn-i-qvj2lq49k0/4a908046f477402393099ff72ab66ef0&amp;imgrefurl=https://www.zhdate.com/news_image/629322.html&amp;tbnid=JVQWUKE7_ixtEM&amp;vet=12ahUKEwipo9XF9M_2AhX8UfUHHWX1AFsQMyglegUIARD3AQ..i&amp;docid=BY-vA_VsFndIlM&amp;w=640&amp;h=427&amp;itg=1&amp;q=%E5%BB%BA%E7%AD%91%E5%86%9C%E6%B0%91%E5%B7%A5&amp;ved=2ahUKEwipo9XF9M_2AhX8UfUHHWX1AFsQMyglegUIARD3AQ)
-据工人日报3月18日报道，上海、天津和湖北等多个地区发布建筑业清退令，全面清理“超龄”农民工。
+#### 翻译/撰稿：zzballack
 
-据报道，上海市住建委、市人社局和市总工会共同发文，明确规定禁止18周岁以下、60周岁以上男性及50周岁以上女性三类人员进入施工现场从事建筑施工作业。
+#### 校对：白夜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2074.png)图片来源：福克斯新闻网
+据《布雷特巴特新闻网》（Breitbart News）和《每日传讯 》(The Daily Caller) 3月18日报道，在俄罗斯继续升级其在乌克兰的战争之际，美国总统乔·拜登（Joe Biden）本周五（3月18日）与中共领导人习近平进行了视频通话。
 
-作为曾经是中共经济三驾马车的房地产，一度解决了广大农民工的进城就业问题。但近年来，随着中共经济急转直下，大学生毕业即失业的问题愈演愈烈。
+这次通话持续了110分钟，拜登向中共施压，要求其不要在经济或军事上援助莫斯科。
 
-中共教育部公布的数据显示，2022届高校毕业生总规模预计突破1000万人，高校毕业生人数将达到1076万人，同比增加167万人，再创历史新高。
+通话结束数小时后，白宫在一份解读中说：“这次会谈的重点是俄罗斯对乌克兰的无端入侵。拜登总统概述了美国和我们的盟国以及合作伙伴对这场危机的看法，并详细介绍了我们为防止和应对入侵所做的努力，包括让俄罗斯付出代价。”
 
-当前，中共房地产正在普遍经历债务违约、欠薪停工等乱局，另一方面，中共又面临大量新增的高校毕业生，对于中共而言，清退所谓的超龄农民工无关乎福利关怀，仅仅是病急乱投医而已。
+白宫补充说，拜登在与习近平的通话中谈到，在俄罗斯对乌克兰的城市和平民进行野蛮攻击时，如果中共向俄罗斯提供物质支持将面临后果。拜登还强调了支持通过外交途径解决危机，保持沟通渠道开放，以应对中美两国之间的竞争。
 
-信息来源：[多地发布建筑业清退令，超龄农民工路在何方？](http://www.news.cn/politics/2022-03/18/c_1128482611.htm)
+在台湾问题上，拜登重申美国的对台政策保持不变，并继续反对“对现状的任何单方面改变”。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+*责编：白夜*
+
+新闻来源：[Joe Biden Warns Xi Jinping of ‘Consequences’ if China Supports Russia](https://www.breitbart.com/politics/2022/03/18/joe-biden-tries-to-further-isolate-russia-in-110-minute-video-call-with-xi-jinping/)
+
+[Biden Warns China Of ‘Consequences’ Should It Aid Russian Invasion Of Ukraine](https://dailycaller.com/2022/03/18/joe-biden-china-call-consequences-aids-russia-invasion-ukraine/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

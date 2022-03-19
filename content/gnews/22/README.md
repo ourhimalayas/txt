@@ -2,93 +2,39 @@
 ---
 
 
-## 凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2188769/)
+## 马里乌波尔危机加剧 美国警告中共不要协助俄罗斯入侵
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2188852/)
 
-Kevin Durant (NY NETS basketball player)
-凯文·杜兰特（纽约网队篮球球员）
+翻译：冰糖葫芦喵
 
-That’s ridiculous. I don’t understand at all
-这是太荒谬了， 我完全不明白
 
-I mean, as few people in our arena unvax, right?
-我的意思是，因为我们的运动馆只有很少的人没有接种疫苗，对吧？
 
-like they lifted all that out in our arena, right?
-就像他们解除了我们的运动馆的疫苗政策，对吧？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
 
-So it was the… I don’t get it
-所以它是……我不明白
 
-the second mandate
-第二个疫苗强制
 
-that says he can come in but can’t play
-就是说他（欧文）能进入室内但是不能参加比赛
+编辑与校对：冰糖葫芦喵
 
-Kevin Durant
-凯文·杜兰特
+《路透社》乌克兰基辅/利沃夫3月18日报道，**周五，美国再次警告中共不要协助莫斯科入侵，令民众对大规模平民伤亡的担忧加剧。俄罗斯在乌克兰的推进已基本停滞，其军队已将居民区夷为平地**，**但在乌克兰的激烈抵抗下受挫**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/马里乌波尔-e1647646477285.jpg)马里乌波尔一名当地居民走过亲俄部队的坦克。（图片来源：路透社）
+据报道，**俄罗斯周五表示，其军队在乌克兰港口马里乌波尔“收紧绳索”。**周五，导弹落在了利沃夫附近，利沃夫是一个西部城市，数千人在那里避难。
 
-Yeah, I don’t get it, just feels like at this point now
-是呀，我不明白，只是觉得现在在这点上
+报道称，**在遭受猛烈轰炸的马里乌波尔，官员们估计该市80%的房屋已被毁，1,000人可能仍被困在一个被毁剧院下面的临时防空洞中。**
 
-somebody is trying to make a statement or point to flex their authority
-某人正试图发表声明或展示他们的权威
+官员们表示，**近5000名乌克兰人周五从马里乌波尔疏散，**居民们报告说，他们逃离这座城市时，**在路边看到了尸体。**
 
-But, you know, everybody out here looking for attention
-但是，你知道，这里的每个人都在寻求关注
+马里乌波尔一家电视台的首席执行官、尼克·奥西琴科(Nick Osychenko)表示，当他带着六口家人逃离这座城市的时候，我们很小心，我们遮住孩子的眼睛，不想让孩子们看到尸体。他还说，这个逃亡过程实在太可怕了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/马里乌波尔尸体-e1647646766977.jpg)乌里马波尔平民丧生未能安葬只能挖壕沟掩埋（图片来源:美联社）
+报道称，**乌克兰称已从马里乌波尔剧院地下室救出130人，该剧院在两天前被俄罗斯的袭击夷为平地。**
 
-and that’s what I felt like the mayor wants right now some attention
-这就是我觉得市长现在想要得到一些关注
+马里乌波尔市长向BBC证实，**战斗已经蔓延到市中心，大约40万人被困在那里已经超过两周，为了躲避轰炸，电力、供暖和供水都被切断。**
 
-you know, but he’ll figure it out, so he’d better
-你知道，但他（欧文）会弄清楚的，所以他最好
+据报道，一位马里乌波尔地方长官说，近几天来，**大约有3.5万人设法离开该市，很多人步行或乘坐私家车，但几乎持续不断的炮击阻止人道主义援助进入。**
 
-but it just didn’t make any sense like his unvax people in this building already
-但它只是没有任何意义，就像在这栋楼里已经有了未打疫苗的人一样
+新闻来源链接：
 
-We got a guy who can come into the building
-我们让未打疫苗的人可以进入大楼里
-
-and interfering our safety, I don’t get it
-并干扰我们的安全，我不明白
-
-So yeah, we’re all confused
-所以，是的，我们都很困惑
-
-Pretty much everybody in the world is confused at this point early on in the season
-在赛季初的这个时候，世界上几乎每个人都感到困惑
-
-You know, people didn’t understand what was going on
-你知道，人们不明白发生了什么
-
-But now just the stupid
-但现在真的是愚蠢的政策
-
-so hopefully, Eric, you you got to figure this out
-所以希望, 埃里克，你必须弄清楚这一点
-
-原视频链接[https://twitter.com/nypost/status/1503154961668059136?s=24](https://twitter.com/nypost/status/1503154961668059136?s=24)
-
-Date:03/16/2022
-原视频标题:Kevin Durant sounds off on NYC Mayor Eric Adams and the vaccine mandate
-凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
-原视频日期：2022/03/14
-原视频链接https://twitter.com/nypost/status/1503154961668059136?s=24
-任务编号：KE456(4018)
-视频时间段 : 0:00-1:03
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[U.S. warns China not to fuel Russia’s assault on Ukraine as fears for Mariupol grow | Reuters](https://www.reuters.com/world/europe/russian-sanctions-over-ukraine-grow-biden-talk-xi-2022-03-18/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

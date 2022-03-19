@@ -2,91 +2,23 @@
 ---
 
 
-## 有声|弹钢琴的英雄传递爱与温柔
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188822/)
+## 新中国联邦以人道主义救援闪亮国际政治舞台
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188965/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-你是一个英雄
+作者：加拿大温哥华扬帆农场-晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2081.png)
+据3月17日文贵先生大直播爆料，法治基金乌克兰救援行动已经让新中国联邦和世界上最大的国际救援会、国际战争前线救援组织、无国界记者等无数个NGO组织建立了可信赖的、非官方的、支持与合作的关系。
 
-在难民营里
+新中国联邦曾尝试过与多个国际组织开展合作，中共出于恐惧，拼命蓝金黄进行阻止。
 
-弹着钢琴
+但是法治基金组织的本次乌克兰救援行动及救援中战友们的卓越表现，却迅速让新中国联邦以华丽的人道主义形象，亮相国际政治舞台，开始了与中共真正意义上，同级别对手间的较量。
 
-优雅，从容
+新闻来源：[https://gettr.com/post/p10l4ay1173](https://gettr.com/post/p10l4ay1173)
 
-一曲灭共的雪
+* * *
 
-你让泪水横流
+撰稿：晨熹， 编辑发稿：硫酸羟氯喹64
 
-眼睛朦胧
-
-无国界的音乐
-
-在寒风中
-
-漂流
-
-爱和激情
-
-有了共鸣
-
-心与心
-
-距离更近
-
-战火摧残人们
-
-琴声让人不再
-
-冰冷
-
-你是一个英雄
-
-有着不一样的面孔
-
-信仰没有不同
-
-在寒冷的冬天
-
-传递同样的爱和温柔
-
-请侵略者也来倾听
-
-这天籁之音
-
-一起放下暴虐和残忍
-
-一起来欣赏
-
-这美丽声音
-
-你是一个英雄
-
-用你美丽音乐
-
-传递爱与温柔
-
-在这个战火纷飞年代
-
-送上温情温暖
-
-找回失去家园人们 的心灵
-
-文字版原文：[弹钢琴的英雄传递爱与温柔](https://gnews.org/zh-hans/2180056/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,81 +2,45 @@
 ---
 
 
-## 朗诵佳作欣赏《答案在风中飘荡》
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2183803/)
+## 布拉格堡80多名美军因“突然”“无法解释”的原因死亡（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2185501/)
 
-# 
+翻译：Jenny Ball
 
-视频编辑/字幕：文朗
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1996.png)图片来源：naturalnews.com
 
-**鲍勃·迪伦（Bob Dylan）**是美国创作歌手，艺术家和作家，在流行音乐界和文化界的影响已超过50年。他的大多数著名作品都来自1960年代的反抗民谣，也被广泛认为是当时国新兴的反叛文化的代言人。他的部分早期作品成为了当时美国民权反战运动的圣歌，例如《答案在风中飘荡》（*Blowing in the Wind*）。
+《自然新闻》 – 布拉格堡是世界上最大的军事设施之一，拥有大约 54,000 名军事人员，包括特种部队、空降兵团和联合特种作战司令部。在短短 18 个月内，布拉格堡因“突然”和“无法解释”的原因失去了 80 多名士兵。据官员称，其中 33 人的死亡原因“未确定”。布拉格堡无法解释为什么数十名士兵死在自己的铺位上。
 
-尽管它被描述为一首抗议歌曲，仍引起了一系列关于和平，战争和自由的责问。叠句“我的友人啊，答案在空中飘荡”被描述为“不可理喻、模棱两可的是：或许答案如此显而易见，就在你的脸上，又或许答案如风般无形，难以明了”
+在18个月期间，三名布拉格堡士兵在海外战斗中丧生。这意味着驻扎在布拉格堡的士兵，**在国内意外死亡的可能性是在海外战斗中的 ****27 ****倍！**
 
-一如我们目前的状况：自2019年新冠病毒横行，疫苗被全球各国执政者统一化一的坚决推行着！大量质疑的声音被强权压制。郭文贵先生不顾一切的大声疾呼： 疫苗没用，疫苗有毒！ 除了我们新中国联邦人坚定相信文贵先生的警告外，世人却大多是嘲笑的，不信的和装聋作哑的，一如圣经里的教导：
+在数十人被发现死在他们的铺位上之后，**布拉格堡停止报告士兵死亡**
 
-**耶和华对我说： 人子啊，你住在叛逆的人当中。他们有眼睛卻视而不见，有耳朵却听而不闻，因为他们是叛逆的人。**以西結书 12:1-2
+滚石杂志的调查记者塞斯·哈普（Seth Harp）一直在调查这种医学异常现象。 2022 年 2 月 9 日，塞斯报告了截至 2021 年 6 月的 18 个月内，布拉格堡有 83 名士兵死亡。布拉格堡在 2021 年 6 月之后停止报告死亡人数，但尸体继续堆积。在 83 起“突然和意外”死亡事件中，有 11 起被确定为自然原因。
 
-在《答案在风中飘荡》中，迪伦引用以上经文并改编成“一个人究竟得有几只耳朵 ……？”和“人究竟能多少次转过头去/假装什么也没有看见？”
+哈普写道：“自 2020 年初以来，布拉格堡的士兵一直在他们的军营中‘反应迟钝’，这令人不安，其中包括迦勒·史密瑟，特伦斯·萨拉查、杰米·博格、约书亚·戴蒙德、马修·迪斯尼、米克尔·鲁比诺、迈克尔·汉密尔顿、以及许多其他未列出姓名的人。”
 
-**醒来吧，善良单纯的人们：睁开你的眼睛，打开你的耳朵，让圣灵带领你的心去听，去看，去想，不要再让答案飘荡在空中了！**
+约书亚·戴蒙和马修·迪斯尼的死亡与毒品有关，两人在 2021 年 6 月的同一天被发现死亡，就在空降军士长马丁·阿塞维多（ Martin Acevedo III） 因贩运可卡因被捕两周后。
 
-**请欣赏战友文朗的朗诵：**
+毒品只是问题的一小部分。 2021 年 1 月，陆军上尉罗伯特·莱瑟姆突然死于“明显的心脏病发作”。这位 32 岁的球员此前身体状况良好。一顶名叫卡尔文·洛克沃德的绿色贝雷帽，因“突然的、意想不到的医疗事件”去世，这位38岁的老兵身体状况也很好。
 
-**《答案在风中飘荡》（*Blowing in the Wind*），创作者：鲍勃.迪伦 (Bob Dylan)**
+根据塞斯的说法，**另外****9****名年轻且健康的士兵被发现在他们的铺位上“反应迟钝**”。美国陆军和布拉格堡拒绝调查或报告死亡人数激增的情况，借口不尊重士兵及其家人。布拉格堡可能存在严重的毒品问题吗？这些死亡是否表明自杀和过量服用的人数激增？
 
-How many roads must a man walk down 人究竟要经过多少旅程
+军队继续受到伤害士兵身心的命令的攻击。疫苗要求破坏战备状态，同时将最强大、最健康的自由战士从队伍中驱逐出去。
 
-Before you call him a man? 才能够蜕变成男子汉
+**军队医疗数据库爆炸式增长，****2021 ****年医疗问题增加 ****1,000%**
 
-how many seas must a white dove sail 白鸽要经过多久的翱翔
+军事卫生系统于 2020 年 12 月 14 日开始给军人接种刺突蛋白 mRNA 疫苗。从那时起，军队已经接种了超过 **640 ****万**剂疫苗，**为 ****90.1%** 的现役军人完全接种了两剂方案。这些生物武器注射在“意外”和未确定的死亡起着什么作用？为什么布拉格堡没有以前安全？那时不带口罩、不测试，也没有疫苗规定。
 
-Before she sleeps in the sand? 才能够重返地面安息
+未完待续
 
-how many times must the cannon balls fly 炮弹要历经过多少次飞越
+素材链接：[naturalnews.com] [Fort Bragg lost over 80 soldiers from “sudden” and “unexplained” causes, and stopped reporting on the deaths after June 2021](https://www.naturalnews.com/2022-03-15-fort-bragg-lost-over-80-soldiers-unexplained-causes.html)
 
-Before they are forever banned? 才能换来和平
+* * *
 
-The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
-
-The answer is blowing in the wind. 答案在风中飘荡
-
-How many years can a mountain exist 高山矗立了多少年
-
-Before it’s washed to the sea? 才是沧海桑田
-
-how many years can some people exist 受苦的人被囚禁多少年
-
-Before they’re allowed to be free? 才有重获自由的感觉
-
-how many times can a man turn his head, 一个人可以几度回首
-
-Pretending he just doesn’t see? 却只是假装视而不见
-
-The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
-
-The answer is blowing in the wind. 答案在风中飘荡
-
-How many times must a man look up 人要抬头多少次
-
-Before he can see the sky? 才能望见苍穹
-
-how many ears must one man have 人要靠多少只耳朵
-
-Before he can hear people cry? 才能听见他人的呐喊
-
-how many deaths will it take till he knows 生命要经过多少的牺牲
-
-That too many people have died? 才会了解活着的可贵
-
-The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
-
-The answer is blowing in the wind. 答案在风中飘荡
-
-撰稿人：Gloria
-视频/字幕：文朗
-配乐/朗诵：文朗
-![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+*审核：文乐
+校对：花羽
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
