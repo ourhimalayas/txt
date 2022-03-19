@@ -2,12 +2,21 @@
 ---
 
 
-## 人贩子成了乌克兰难民妇女儿童的新威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192056/)
+## 乌克兰宣布将开通10条人道走廊 救援物资将送抵部分城市
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2192132/)
 
-03/18/2022 随着大量难民逃离乌克兰，乌克兰儿童联盟的联合执行董事Tatiana Kotlyarenko说，妇女和儿童正成为边境贩运者觊觎的目标。这不是潜在危机，已有实际案例发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8beb110f-4311-40c6-895a-11d143f4ab32.jpg)图片来源：民视新闻网
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+俄罗斯入侵乌克兰已经24天，世界各国对俄罗斯祭出各项制裁，并谴责俄罗斯总统普京的侵略行为。今天乌克兰宣布将会开通10条人道走廊，其中包括马里乌波尔、南部赫尔松等地，另外人道救援物资也将送往部分城市。
+
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022319W0155)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
