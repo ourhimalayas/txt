@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 12:09 PM (UTC)`
+
+3月19号：尊敬的战友们好中共内战．外战的大戏即将开始！
+![img](https://media.gettr.com/group43/getter/2022/03/19/12/a62237f5-3d95-a2ba-3ebf-6f70fb31c129/out.jpg)
+
+---
+
 `@miles 3/19/2022 11:15 AM (UTC)`
 
 3月19号：尊敬的战友们好，请大家务必严肃认真的防止．共产党病毒．祝大家周末愉快……【在香港，新冠疫情激增，我们的棺材用完了。 请从我们的错误中吸取教训 】https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates
@@ -148,13 +155,6 @@
 
 3/18/2022 MIles Guo’s GETTR: Fellow fighters, please be very careful of the CCP virus! Most people in Hong Kong were infected with deltacron after receiving three COVID jabs. People from the CCP embassy in Poland are often seen on the front line of the NFSC & ROLF Ukraine rescue operation. Are they here to release the virus?<br/><br/>3/18/2022 文贵盖特：战友们要万分小心中共病毒！香港绝大多数人是打了3针疫苗后染上了混合型病毒；新中国联邦乌克兰救援前线经常出现中共驻波兰大使馆派的人，他们是来放毒的吗？<br/>
 ![img](https://media.gettr.com/group36/getter/2022/03/18/22/e336a57b-1dda-4550-88de-bf2f80a0e201/out.jpg)
-
----
-
-`@miles 3/18/2022 10:21 PM (UTC)`
-
-3/18/2022 Miles Guo’s GETTR: Some Americans are complaining to us as the CCP is supporting Russia in its war against Ukraine. We feel sorry for that, but we are citizens of the New Federal State of China. We are different from the CCP, which cannot represent us Chinese. Also, it is Wall Street that has helped with the rise of the CCP. However, HK dollars and Renminbi will for sure end up being joss paper.<br/><br/>3/18/2022 文贵盖特：中共支持俄罗斯打乌克兰让美国人不舒服了，但是对不起，我们是新中国联邦人，共产党不能代表我们中国人；中共有今天也是拜华尔街所赐，但最终港币、人民币一定会成冥纸
-![img](https://media.gettr.com/group15/getter/2022/03/18/22/7c6e1570-a074-2ec3-b340-ad114dcd0760/out.jpg)
 
 ---
 

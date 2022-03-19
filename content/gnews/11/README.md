@@ -2,30 +2,39 @@
 ---
 
 
-## 面对制裁 俄罗斯无奈应对
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2191481/)
+## 樱花数据分析┃英格兰：三针接种者感染风险持续上升，成为最易感染人群！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2191606/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月11日，国外媒体报道，一些俄罗斯人为了躲避制裁，为自己的财富寻求一个安全的避风港，正在使用加密货币投资阿联酋的房地产，还有一些人则希望利用那里的公司将他们的虚拟货币转换成硬通货，并藏匿在迪拜。为此，阿联酋的加密货币公司收到了大量变卖数十亿美元虚拟货币的请求。
+撰稿：东京樱花团/TV
+制图：东京樱花团/chuansang
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-33-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：三针接种者感染风险持续上升，成为最易感染人群！.png)
 
-迪拜是海湾地区的金融和商业中心，也是一个日益壮大的加密货币中心，长期以来一直吸引着世界上的超级富豪。俄乌战争爆发以来，阿联酋拒绝在西方盟友和俄罗斯之间站队，这向俄罗斯人表明，他们的钱在迪拜是安全的。
+英格兰第三周至第九周疫苗监督报告数据[1]，统计了不同接种状况的每百万人感染人数。由其数据计算出的感染风险显示，三针接种者不仅更容易感染，而且感染风险每周持续上升。第九周的报告中，30～69岁人群的感染风险已达未接种者的3倍以上（见图1）。
 
-同时，俄罗斯发动战争引起的西方盟友制裁已经对俄罗斯产生了方方面面的影响。3月15日，评级机构惠誉国际曾表示，俄罗斯威胁用卢布支付美元债券，将可能导致实质性的主权违约。如果发生，将是布尔什维克革命以来俄罗斯的第一次国际债务违约。3月16日，俄财政部长表示，已经对到期美元债券利息支付进行了处理，付款指令也已发送给通常处理此类交易的美国银行，但由于存在现金无法通过的风险，无法保证投资者能收到。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：三针接种者感染风险持续上升，成为最易感染人群！2.png)
 
-链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：三针接种者感染风险持续上升，成为最易感染人群！3.png)
 
-- [EXCLUSIVE Russians liquidating crypto in the UAE as they seek safe havens](https://www.politico.com/news/2022/03/16/us-sends-switchblade-drones-to-ukraine-00017836)
+我们按之前的估算方式[2]，计算出了第九周报告中两针接种者的感染风险。结果表明，三针感染者的感染风险已整体超过两针接种者，成为最易感染人群（见图3）。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：三针接种者感染风险持续上升，成为最易感染人群！4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+这个结果与我们之前在丹麦疫情数据观察到的结果一致[3]。 接种次数越多，越容易感染。这个现象近一步证明了，随着接种次数增加，人体的免疫系统遭到了进一步破坏。 反复接种疫苗会最终导致“获得性免疫缺陷”（AIDS，艾滋病），这种可能性越来越大。
 
-总编/编辑：飞虹
-审核：木木
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（注：本文为《樱花数据分析》第十九期）
+
+数据来源：
+
+[\[1\]COVID-19 vaccine weekly surveillance reports (weeks 39 to 11, 2021 to 2022)](https://www.gov.uk/government/publications/covid-19-vaccine-weekly-surveillance-reports)
+
+[\[2\]樱花数据分析┃日本：非病毒原因死亡增加5万余人，罪在疫苗？](https://gnews.org/zh-hans/2081405/)
+
+[\[3\]樱花数据分析┃三针接种者成最易感染人群 丹麦政府下架感染数据](https://gnews.org/zh-hans/2078590/)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

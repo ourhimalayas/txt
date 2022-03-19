@@ -2,28 +2,33 @@
 ---
 
 
-## 美国支援乌克兰“弹簧刀”无人机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2191482/)
+## “援俄后果严重”美国总统警告中共国主席—关于入侵乌克兰的电话会谈
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2191648/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月16日，美国媒体消息，总统拜登当天宣布对乌克兰增加军事援助，包括100架外号“弹簧刀”的小型无人机。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-40-scaled.jpg)
-这款无人机2.7公斤重，61公分长，轻巧、精准，可以装进一个后背包，由步兵操作，轰炸几十英里外的地面目标。每架成本不到6000美元。另外，这款无人机以直接撞击目标的方式引爆小型弹头，又称为神风无人机。
+翻译：zicoround
 
-报导称，美国送这款武器给乌克兰，代表西方对乌克兰的军事援助已进入一个新阶段。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2136-edited.png)news.goo.ne.jp
 
-链接：
+美国总统拜登和中共国国家主席习近平于3月18日通过视频电话进行了会谈。据白宫声明，拜登在会谈中对习近平发出警告，说明了中共国如果向继续侵略乌克兰的俄罗斯提供支持将会带来的”后果”，并阐述了美国的反制措施。美国会继续紧盯中共国的行动。
 
-- [U.S. sending Switchblade drones to Ukraine in $800 million package](https://www.politico.com/news/2022/03/16/us-sends-switchblade-drones-to-ukraine-00017836)
+自2月24日俄入侵乌克兰以来，美中领导人间首次直接会谈。会谈持续约1小时50分钟，除乌克兰局势外，他们还讨论了台湾问题和管控美中竞争的措施等议题。
 
+会谈后，一位美国高级官员明确表示，拜登已向习近平表明了对俄罗斯的“物质支持”的“意义和后果”。 关于“后果”的范围，拜登说，不仅会影响美中关系，也波及“更广泛的世界”，暗示美欧日本可能会对中共国采取统一的应对措施。对此，总统发言人萨基在会谈后的记者会上说，“制裁也是其一”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+然而，据一位美国高级官员称，拜登未向习近平提出“具体要求”。他还说，将“观察中国的决定”，美国政府打算继续警惕中方是否真地走出支持俄罗斯步骤。
 
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+另一方面，据中共国外交部称，习近平表示“需要为世界和平与稳定做出努力”，呼吁改善中美关系、合作协调乌克兰局势。他还避免谴责俄罗斯，并重申对制裁表示异议，“无差别地实施制裁，受苦的是老百姓”，但未提到对俄的支援。
+
+原址：【news.goo.ne.jp】[バイデン氏、習氏に警告＝対ロ支援けん制、制裁示唆―ウクライナ侵攻後初会談・米中首脳](https://news.goo.ne.jp/article/jiji/world/jiji-220319X884.html)
+
+* * *
+
+审核：BryanW 
+校对：天天
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-11.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

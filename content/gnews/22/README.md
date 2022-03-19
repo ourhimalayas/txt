@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登称普京为“战争罪犯”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191239/)
+## 乌克兰武装部队在哈尔科夫外伏击俄军车的瞬间
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191386/)
 
-03/16/2022 美国总统拜登在白宫活动中称俄罗斯总统普京为“战争罪犯”
+03/16/2022 一名乌克兰议员3月16日分享的视频显示，一辆满载俄罗斯军队的车辆在乌克兰俄罗斯边境附近的科扎查罗潘行驶时，被乌克兰的火力拦截并冲出道路。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

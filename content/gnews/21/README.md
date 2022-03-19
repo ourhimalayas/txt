@@ -2,10 +2,10 @@
 ---
 
 
-## 现在沙特认为美元的霸主地位正摇摇欲坠
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191332/)
+## 基恩将军认为俄罗斯在乌克兰的受挫不会阻止中共对台湾的图谋
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191417/)
 
-03/15/2022 班农战斗室：沙特现在认为美元霸主地位正在摇摇欲坠 他们似乎想给美元以致命一击
+03/17/2022 基恩将军认为俄罗斯在乌克兰的受挫不会阻止中共对台湾的图谋
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

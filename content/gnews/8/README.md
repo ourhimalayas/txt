@@ -2,30 +2,55 @@
 ---
 
 
-## 樱花深度报道┃中俄友谊是否如他们领导人说的那样无上限？（四）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2191506/)
+## 英国研究人员最终承认核酸(PCR)测试有问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2191711/)
 
-编译：东京樱花团/Hopkins
+#### 整理/编辑：小红帽
 
-【编者按】在俄罗斯入侵乌克兰前不到一个月，习近平与普京签署了一份联合声明，宣布“两国友谊无止境”。俄罗斯领导人普京对一个他大大低估的国家乌克兰发动了一场战争时，他的误判越来越清楚。乌克兰的勇敢抵抗和西方世界的经济制裁，是对俄罗斯领导人的羞辱——或者更糟糕的结局是，普京将被赶下台。这对于希望在 2022 年底获得第三个中共总书记任期的习近平来说，今年是高风险的一年，因为违反了中共内部权力交接规则。他不想被看到正在支持一个失败者。中俄友谊是否还是“坚如磐石”？本文作了精彩的分析。本文原文发表于《经济学家》2022年3月17日中国专栏上，原文题目是：“[China’s friendship with Russia has boundaries, despite what their leaders say](https://www.economist.com/china/chinas-friendship-with-russia-has-boundaries-despite-what-their-leaders-say/21808197)”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2134.png)
-即便如此，中国共产党确实从战争中看到了国内的政治利益：它助长了党所喜欢的民族主义情绪。中国官员一直在用反美言论煽动这一点，并支持普京关于乌克兰是西方纳粹傀儡的说法。官方媒体和民族主义网站将俄罗斯描述为中国长期以来遭受的西方欺凌的受害者。国家电视台和中国外交部重复并放大了俄罗斯的虚假信息，尤其是围绕着乌克兰实验室，这些实验室据称是五角大楼控制的险恶的生物武器研究中心。在网上，对乌克兰的同情表达经常被审查员删除。其中包括在北京残奥会上对乌克兰运动员的友好采访，该采访在吸引了太多关注后消失了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/pcr_test.jpg)图片来源：www.gavi.org
 
-当被要求描述中国的战略目标时，十几个驻北京大使馆的外交官几乎一致同意。他们说，中国希望建立一个围绕势力范围的世界秩序，中国控制亚洲，俄罗斯对欧洲的安全安排行使否决权，而美国则被推回自己的海岸。如果俄罗斯在乌克兰的战争帮助建立了这样的秩序，正合他们的意愿。但中国主要的兴趣在于自己的崛起，以及是否会被美国阻挠。在他们看来，主要的全球竞争是在崛起的中国和衰落的美国之间，美国的种族主义和恶意打压阻碍了亚洲巨人的崛起。
 
-对于外国对中国在乌克兰问题上的立场的恐惧，北京的官员们用大张旗鼓的咆哮和花言巧语来回应。美国是咆哮的对象，学者和政府顾问宣称，这场战争暴露了乔·拜登（Joe Biden）总统的弱点以及他对普京核武库的恐惧。他们预测制裁不会改变俄罗斯的意愿——这是中国非常感兴趣的一点，中国知道如果入侵台湾，它将面临类似的惩罚。
+研究人员研究了新冠病毒（COVID-19）背后的科学原理，以及为什么[政府认可的测试和授权是有缺陷的。](https://www.dailymail.co.uk/health/article-10606107/Did-flawed-tests-convince-Covid-worse-really-was.html)
 
-相比之下，拥有中国希望进入的市场和技术的欧洲政府，尤其是德国和法国，正成为魅力攻势的目标。欧洲人被告知，美国希望从战争中获利，而欧洲则为石油和天然气价格飙升以及大量乌克兰难民付出代价。中国官员和学者传达的信息是，欧洲人是时候从美国寻求更多自主权并加深与中国的关系了。
+自2020年以来，用于诊断新冠病毒的核酸（PCR）测试自发布以来一直存在争议。一些人提出，已经进行了数百万次的棉签检测到了普通感冒和流感，并认为它是新冠病毒。其他人认为他们只是检查到了根本没有被感染的人。
 
-实际上，中国从俄罗斯的孤立中获得的收益将超过任何其他国家。作为民族主义强人，习近平和普京可能有着共同的纽带，他们都感到受到美国的围攻。两人都痴迷于民主反对运动的威胁，谴责从香港到莫斯科的抗议活动是美国控制的颜色革命。但不久之后，俄罗斯领导人就对日益依赖中国保持高度警惕，中国是一个经济和人口比俄罗斯多十倍的邻国。
+一个名为Collateral Global的研究慈善机构以及牛津大学的学者认为，在所有新冠病毒阳性病例中，多达三分之一的病例可能没有传染性。
 
-（未完待续）
+牛津大学的科学家们将英国的测试项目描述为“混乱和浪费”，该项目每月花费20亿英镑（26.3亿美元）。
 
-信息来源：[China’s friendship with Russia has boundaries, despite what their leaders say](https://www.economist.com/china/chinas-friendship-with-russia-has-boundaries-despite-what-their-leaders-say/21808197)
+今天，核酸检测只在病人进入医院或其他临床环境时，以及在弱势人群中提供。核酸检测仍将用于跟踪新冠病毒在社区的传播，如果出现复发，那么数字将决定政策。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+核酸测试的有效性很复杂，目前还远未达成共识。Collateral Global的数字存在争议。其他人表示，虽然非感染性阳性确实扭曲了数字，但影响很小。尽管如此，其他人仍然认为核酸检测在对抗新冠病毒中发挥了重要作用。
+
+**核酸****测试是如何工作的？**
+
+核酸测试检测从鼻子和喉咙采集的样本中的微小新冠病毒RNA片段。拭子在实验室中被处理和分析，以提取其遗传物质。由于拭子上有如此微量的RNA，它需要在机器中进行扩增才能被检测到。这是通过重复加热和冷却的循环来完成的，这将鼓励该材料进行自我复制。循环进行的次数越多，机器就越有可能检测到该病毒。
+
+这种技术已被用于检测非冠状病毒，如艾滋病毒和肝炎。有时，它也被用于犯罪现场取证，以寻找DNA。从本质上讲，该测试非常善于弄清基遗传密码是否在存在。
+
+然而，这对新冠病毒来说是不一样的。问题是，病毒的死亡片段可能会停留长达90天，从而增加了出现假阳性结果的机会。
+
+专家认为，那些新冠病毒检测结果呈阳性但无症状或几乎不受影响的人传播病毒的可能性较小，但世界上许多政府仍然命令他们进行隔离。
+
+另一个担忧是这些测试是如何进行的。由于政府希望每天进行超过10万次测试，所以将检测工作外包。
+
+2021年，随着核酸测试规模的进一步扩大，更多的核酸测试外包给私营企业。核酸测试不再是标准化，许多人说测试已经成为一种赚钱的活动。
+
+新闻来源：
+
+1. [After YEARS of insisting they work, researchers FINALLY acknowledge PCR tests are faulty](https://www.naturalnews.com/2022-03-18-researchers-finally-acknowledged-pcr-tests-are-faulty.html)
+2. [Did flawed PCR tests convince us Covid was worse than it really was? Britain’s entire response was based on results – but one scientist says they should have been axed a year ago](https://www.dailymail.co.uk/health/article-10606107/Did-flawed-tests-convince-Covid-worse-really-was.html)
+
+
+发布：Frank2021
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

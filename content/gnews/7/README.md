@@ -2,68 +2,23 @@
 ---
 
 
-## 致才旺罗布战友
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2191532/)
+## 加拿大疫苗伤害赔偿计划准备就绪
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2191713/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2556.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-孩子
-你没有离开
-你的歌声
-永远流淌在
-蓝色的天
-和
-绿色的地之间
-永远流淌在
-新中国联邦人心间
-孩子
-你的爱
-有人会替你延续
-把你想唱的歌儿
-重复传唱
-一遍又一遍
-替你完成
-未了情怀
-生生不息
-直到永远
-孩子
-你没有离开
-你的仇恨
-有人替你散开
-消灭共产党
-解放你族人
-让你灵魂
-安息平静
-孩子
-你没有离开
-嘹亮的歌声
-在岁与岁更替间
-重复着千遍万遍
-你的灵与魂
-永远与我们
-同在
-新中国联邦天空
-有无数个
-才旺罗布新星
-升起
-延续你的魂
-和
-你的灵
+据加拿大[真北方]3月17日报道，联邦政府针对“新冠病毒”疫苗所造成的伤亡进行赔偿的预算计划已准备就绪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+加拿大卫生部近日对此表示：虽然政府计划在该巨额预算的前五年拨款7500万加元，但由于对该疫苗的长期副作用尚不清楚，因此随着时间的推移，总成本最终将取决于该国所出现的索赔案例总数和赔偿的实际金额。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+据悉，目前约3240万加拿大人至少接种了一剂新冠病毒疫苗。官方数据表明，自该国推广疫苗接种以来，已出现了大量包括瘫痪，流产，肾损伤和心肌炎等重大疾病的副作用及相关死亡案例。
 
+此外，心肌炎的高发病率已迫使当局停止对12 至 29 岁的男性的疫苗接种，并称目前无法确定将有多少疫苗伤害的赔偿要求。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+编辑： 平民正道    发布：平民正道
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

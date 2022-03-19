@@ -2,22 +2,30 @@
 ---
 
 
-## 中共国累计接种毒疫苗超32亿剂次
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2191451/)
+## 面对制裁 俄罗斯无奈应对
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2191481/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2129.png)[图片来源](https://gnews.org/wp-admin/post-new.php?lang=zh-hans&amp;admin_bar=1#imgrc=7X6vdxlPXPAGtM&amp;imgdii=iyz7TnQrLFgpEM)
-3月19日每日经济报报道，国务院联防联控机制举行新闻发布会。国家卫健委新闻发言人米锋介绍，截至3月18日，全国累计报告中共病毒（新冠病毒Covid-19）疫苗32亿1871.6万剂次，完成全程接种的人数为12亿3970.6万人。
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月11日，国外媒体报道，一些俄罗斯人为了躲避制裁，为自己的财富寻求一个安全的避风港，正在使用加密货币投资阿联酋的房地产，还有一些人则希望利用那里的公司将他们的虚拟货币转换成硬通货，并藏匿在迪拜。为此，阿联酋的加密货币公司收到了大量变卖数十亿美元虚拟货币的请求。
 
-中共病毒是血液和呼吸系统传播的病毒，中共病毒疫苗就是通过注射传播的血液病毒，打一针毒疫苗就像是打一针艾滋病毒针一样，刺突蛋白里包含艾滋病基因片段，毒疫苗没有通过动物试验。在动物试验阶段，所有动物100%死亡，试验老鼠2个月内100%死亡，然后试验猴子，也是100%死亡，打完疫苗之后它随着血液扩散到全身，最后到达微细血管，微细血管本身就很狭窄，刺突蛋白诱发免疫系统攻击血管壁细胞，导致微细血管进一步变窄和阻塞，无法输送携氧红血球，组织缺氧、发炎、坏死，平均每人二针的剂量。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-33-scaled.jpg)
 
-中共一边放毒致使国人感染人数创三年新高，一边大规模在国内接种毒疫苗，中共独裁者在不明真相各种胁迫和宣传下让国人签下“自愿承诺书”，没有任何人任何政府机构或单位来为此负责，毒疫苗灾年将随时可能爆发，愿国人都能醒来看清中共掩盖病毒和所谓的疫苗接种的流氓杀人本质。
+迪拜是海湾地区的金融和商业中心，也是一个日益壮大的加密货币中心，长期以来一直吸引着世界上的超级富豪。俄乌战争爆发以来，阿联酋拒绝在西方盟友和俄罗斯之间站队，这向俄罗斯人表明，他们的钱在迪拜是安全的。
 
-信息源：[【国家卫健委：我国超12.397亿人完成疫苗全程接种】](https://me.mbd.baidu.com/r/D4CPxyF2qQ?f=cp&amp;rs=3323430426&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=e0ac200bc402b1c2&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+同时，俄罗斯发动战争引起的西方盟友制裁已经对俄罗斯产生了方方面面的影响。3月15日，评级机构惠誉国际曾表示，俄罗斯威胁用卢布支付美元债券，将可能导致实质性的主权违约。如果发生，将是布尔什维克革命以来俄罗斯的第一次国际债务违约。3月16日，俄财政部长表示，已经对到期美元债券利息支付进行了处理，付款指令也已发送给通常处理此类交易的美国银行，但由于存在现金无法通过的风险，无法保证投资者能收到。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
+链接：
+
+- [EXCLUSIVE Russians liquidating crypto in the UAE as they seek safe havens](https://www.politico.com/news/2022/03/16/us-sends-switchblade-drones-to-ukraine-00017836)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编/编辑：飞虹
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
