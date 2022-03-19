@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 2:34 AM (UTC)`
+
+
+![img](https://media.gettr.com/group31/origin/2022/03/17/02/3ad0cf32-fbb6-1c03-6313-609c184c52cd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/19/2022 1:14 AM (UTC)`
 
 2022.03.18 晚《新中国联邦新闻访谈》习近平等待5月份疫苗灾难；FBI抓美民运大佬，实为中共特务；俄罗斯曝习近平今秋攻台
@@ -148,13 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 【Ukraine Rescue】03/18/2022 Peter, the owner of the Polish Car rental company, has been participating as a volunteer in the rescue operations of the New Federal State of China.<br/><br/>【乌克兰救援】03/18/2022 波兰租车公司老板Peter一直作为志愿者参加新中国联邦的救援行动。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group42/getter/2022/03/18/14/76fca205-e0b8-ba66-1b44-fa3a70674752/out.jpg)
-
----
-
-`@miles 3/18/2022 2:16 PM (UTC)`
-
-【Ukraine Rescue】03/17/22 Italian war-zone pianist Davide Martello has become a fellow fighter of the Whistleblowers’ Movement. When he comes to the NFSC rescue center, one of our volunteers plays him Mr. Miles Guo’s  ‘A Roar of The Vast Sea’,  then he performs this song with his piano. <br/> <br/>【乌克兰救援】03/17/22 战地钢琴家Davide Martello已然成为了爆料革命的战友。当他来新中国联邦救援营地时，有我们的志愿者给他播放了郭文贵先生的歌曲《沧海一声啸》，于是他用钢琴演绎了这首灭共歌曲。<br/><br/>
-![img](https://media.gettr.com/group19/getter/2022/03/18/14/9817ae46-5650-6682-3574-c3cc065d31e5/out.jpg)
 
 ---
 
