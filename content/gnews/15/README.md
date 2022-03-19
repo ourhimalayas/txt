@@ -2,10 +2,10 @@
 ---
 
 
-## 人贩子成了乌克兰难民妇女儿童的新威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192056/)
+## 【乌克兰救援】波兰租车公司老板Peter一直作为志愿者参加新中国联邦的救援行动
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192385/)
 
-03/18/2022 随着大量难民逃离乌克兰，乌克兰儿童联盟的联合执行董事Tatiana Kotlyarenko说，妇女和儿童正成为边境贩运者觊觎的目标。这不是潜在危机，已有实际案例发生。
+【乌克兰救援】03/18/2022 波兰租车公司老板Peter一直作为志愿者参加新中国联邦的救援行动
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

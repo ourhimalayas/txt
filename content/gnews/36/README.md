@@ -2,30 +2,34 @@
 ---
 
 
-## 樱花时政┃中共在美搞“跨国镇压” 破坏司法影响选举
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2190067/)
+## 前线救援中心吸引全球目光
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2190117/)
 
-**撰稿：东京樱花团/Calvin**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/46742776-10E1-4241-8215-61B961BED900.jpeg)[**图片来源**](https://www.theepochtimes.com/chinese-secret-police-targeted-us-army-vet-on-american-soil-attempted-to-interfere-in-election-doj_4341794.html%3E)
-根据司法部（DOJ）3月16日解封的三起新的刑事案件，中共秘密警察及其特工正在美国领土上跟踪、骚扰、恐吓和密谋对民主活动家和中国持不同政见者实施暴力。 这些秘密警察的秘密行动包括干涉国会选举的阴谋，暗中试图逮捕中共的敌人，以及监视反共活动家的行动。
+作者：纽约磐石农 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月18日，据郭文贵先生分享的一则盖特视频显示，全球最大的基督教电视台TBN驻乌克兰记者早先接受了法治基金前线救援队员Nicole的采访。当中，这位记者表示，她支持新中国联邦消灭中共的行动，也感谢所有帮助乌克兰难民的救援义工。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-19-at-9.13.01-PM.png)
+该记者提到，作为一名乌克兰人，她深知共产主义限制了民众的言论自由和生活方式。虽然乌克兰脱离共产主义的初始过程非常艰难，但乌克兰民众却赢得了光明的未来。而对于以新中国联邦战友为代表的新中国人而言，自由一定会重新回到中国老百姓的手中。
 
-负责国家安全的助理司法部长马修·奥尔森在新闻发布会上谈到中共政权的官方名称时说：“这些案件暴露了中共政府压制美国境内不同声音的企图。并且让世人看到了中共如何试图跟踪、恐吓和压制那些反对他们的人。”
+这位记者也特意感谢了新中国联邦和法治基金在救援行动中所做的一切，尤其在梅蒂卡救援点的所见所闻让她明白，为祖国而战的乌克兰人民并不孤单。
 
-据司法部称，在2021年1月至2022年3月的另一起案件中，刘凡、马修·齐布里斯和孙强据称对居住在美国的中国持不同政见者和民主活动家进行了骚扰和恐吓活动。
+此前一天，《新闻周刊》驻华沙的记者雷娜塔-金女士也来到了新中国联邦在梅蒂卡的难民救助中心，并对前线志愿者进行了采访报道。
 
-该运动涉及收集关于持不同政见者的贬损信息，以便在公众眼中羞辱或以其他方式诋毁他们。
+据了解，雷娜塔女士在这篇名为《华裔反共人士为乌克兰提供救援服务》的文章中指出，梅蒂卡救援基地内最大的帐篷是由来自新中国联邦和法治基金的中国人所搭建的；这里的难民通过新鲜烤制的糕点和现磨咖啡再度体会到了家的温暖，儿童们则在游戏角尽情嬉戏。
 
-负责美国国家安全的助理司法部长奥尔森说：“对美国的司法部来说，捍卫美国机构和价值观免受这些威胁是美国国家安全的当务之急。这种“跨国镇压”是中国共产党试图破坏我们的民主、经济和机构的一系列策略的一部分。这种”跨国镇压“与美国的价值观是完全对立。当这种镇压违反我们的美国法律时，我们绝对不会对此有任何的容忍。”
+雷娜塔女士也着重强调，这里的义工们都是致力于铲除中国共产党的中国人：因为中共是当今世界所有邪恶与灾难的根源，所以他们正在为打造一个自由、民主的新中国而奋斗。
 
-中共在美国的渗透之深，竟然可以运用特工在美国明目张胆地进行犯罪和绑架威胁，这令人感到恐怖。
+参考链接：
 
-[信息来源](https://www.theepochtimes.com/chinese-secret-police-targeted-us-army-vet-on-american-soil-attempted-to-interfere-in-election-doj_4341794.html%3E)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+1. [3月17日，《新闻周刊》驻波兰华沙记者…..](https://www.gettr.com/post/p10mblefef2)
+2. [【乌克兰救援】03/12/22 全球最大基督教电视台…..](https://www.gettr.com/post/p10l2k5189c)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
