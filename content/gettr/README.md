@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 12:46 PM (UTC)`
+
+【Ukraine Rescue】03/19/2022  David tells the thrilling story of how security guard of the NFSC rescue operation discovered and caught a Russian spy who had infiltrated the rescue bus.<br/><br/>【乌克兰救援】03/19/2022  大卫讲述新中国联邦救援行动的安保人员是如何发现并抓住混入救援大巴的俄罗斯间谍的惊险经历。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group20/getter/2022/03/19/12/c5b32e89-53c4-63bd-a5f8-5db579f1013c/out.jpg)
+
+---
+
 `@miles 3/19/2022 12:30 PM (UTC)`
 
 2022.03.19 早 《新中国联邦新闻》前线救援中心吸引全球目光； 战友前线救援 践行健身健心
@@ -148,13 +155,6 @@
 
 3月18号：尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！
 ![img](https://media.gettr.com/group23/getter/2022/03/18/23/58ecf673-22f1-70b5-05ad-5350ef3d5ad5/out.jpg)
-
----
-
-`@miles 3/18/2022 11:00 PM (UTC)`
-
-❤️【Ukraine Rescue】March 17, 2022—Kraków, Poland<br/>💦 At 2 am on March 17, the frontline rescue team greeted three rescue buses from Lviv carrying 190 Ukrainian refugees.<br/>💦 Although it was late at night, the spirit and state of our fellow fighters from D.C. and Canada were still very good. They held banners of the New Federal State of China and Rule of Law Foundation to express our support for Ukrainian refugees.<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>❤️【乌克兰救援】2022/03/17—波兰克拉科夫<br/>💦 3月17日凌晨2点，前线救援团队迎接了三辆来自利沃夫载有190位乌克兰难民的救援大巴。<br/>💦 尽管已是深夜，但是来自DC和加拿大战友们的精神面貌和状态依旧非常棒，他们手持新中国联邦和法治基金的横幅，表达我们对乌克兰难民的支持。
-![img](https://media.gettr.com/group48/origin/2022/03/18/23/015c13f1-2027-c68e-6c36-9eb1cebb732c/out.jpg)
 
 ---
 
