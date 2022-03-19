@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 1:23 PM (UTC)`
+
+【Ukraine Rescue】03/18/2022 David: I learned that some Asian faces showed up here were all sent by the CCP and claiming them as press from Taiwan, or Japanese or Korean. We must ensure the safety and security of our fellow fighters at the frontline and our Medyka site, and we should also demonstrate our professionalism to the world to gain their recognition to the New Federal State of China and Rule of Law Foundation.<br/><br/>【乌克兰救援】03/18/2022 大卫：我们已经发现有中共派来的亚洲面孔的人，自称是台湾媒体，或是日本，韩国人，我们应当保证前線戰友梅迪卡营地的安保和安全，向世界展示我们的专业化，赢得世界对新中国联邦和法治基金的认可<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group4/getter/2022/03/19/13/16b0a94b-1997-512b-6404-2478e79617ec/out.jpg)
+
+---
+
+`@miles 3/19/2022 1:10 PM (UTC)`
+
+2022.03.19 早《新中国联邦新闻访谈》国内各“阶级”出路
+![img](https://media.gettr.com/group28/origin/2022/03/19/13/8aaee504-7d96-fc70-c2ff-9bed728c5b59/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/19/2022 12:46 PM (UTC)`
 
 【Ukraine Rescue】03/19/2022  David tells the thrilling story of how security guard of the NFSC rescue operation discovered and caught a Russian spy who had infiltrated the rescue bus.<br/><br/>【乌克兰救援】03/19/2022  大卫讲述新中国联邦救援行动的安保人员是如何发现并抓住混入救援大巴的俄罗斯间谍的惊险经历。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -141,20 +155,6 @@
 
 
 ![img](https://media.gettr.com/group15/origin/2022/03/19/00/2a3c5ed6-81e4-5c07-741d-769a0e1a764d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 12:14 AM (UTC)`
-
-3/18/2022 Miles Guo’s GETTR: The CCP is hacking my fellow fighters and me and used forged materials from DuoWei News as evidence in court. The supply chains are in big trouble! Supply chain companies can't sustain due to high fuel prices, and the Middle East oil transportation industry is short of labor. The only way to solve all the problems is to take down the CCP.<br/><br/>3/18/2022 文贵盖特：中共用黑客大肆攻击文贵和战友，并且拿多维网伪造的材料作为呈堂证供；供应链出了大问题！供应链企业因高油价难以为继，中东原油运输业缺劳动力；唯有灭共才能解决所有问题<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/19/00/3fa1cd10-e5da-7889-a788-cefb951feb36/out.jpg)
-
----
-
-`@miles 3/18/2022 11:44 PM (UTC)`
-
-3月18号：尊敬的战友们好，你们健身了吗？看到共产党今天如何自寻死路了吗？一切都已经开始！
-![img](https://media.gettr.com/group23/getter/2022/03/18/23/58ecf673-22f1-70b5-05ad-5350ef3d5ad5/out.jpg)
 
 ---
 
