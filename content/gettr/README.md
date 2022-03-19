@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 12:38 AM (UTC)`
+
+2022.03.18 晚 《新中国联邦新闻》波兰记者祝新中国联邦早日推翻中共政权； 新中国联邦正式走向世界政治舞台
+![img](https://media.gettr.com/group47/origin/2022/03/19/00/fe21098f-f673-0dad-22df-3481f3fa9c59/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/19/2022 12:38 AM (UTC)`
+
+2022.03.18 晚 《新中国联邦新闻》波兰记者祝新中国联邦早日推翻中共政权； 新中国联邦正式走向世界政治舞台
+![img](https://media.gettr.com/group47/origin/2022/03/19/00/fe21098f-f673-0dad-22df-3481f3fa9c59/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/19/2022 12:15 AM (UTC)`
 
 
@@ -141,20 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 <br/>3月18号：尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！
 ![img](https://media.gettr.com/group3/getter/2022/03/18/13/167b1ce9-c068-bb4a-60d3-ff40d5a788f8/out.jpg)
-
----
-
-`@miles 3/18/2022 12:59 PM (UTC)`
-
-2022.03.18 早《新中国联邦新闻访谈》俄罗斯和乌克兰 三大不可能；习一定会打台湾；若中共支持俄罗斯侵略，将为此付出代价；中共所谓“清零“政策，疫情情况；俄乌战争，西方国家真正在乎：经济、权力
-![img](https://media.gettr.com/group32/origin/2022/03/18/12/850e9d98-b0e1-0617-bc59-c74b13fe44d8/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/18/2022 12:29 PM (UTC)`
-
-2022.03.18早 《新中国联邦新闻》救援基地“儿童角”为孩子带来天真笑容  著名战地音乐家演奏新中国联邦国歌
-![img](https://media.gettr.com/group20/origin/2022/02/20/13/fe2d495c-6274-6a1a-c376-9a1515a9ca57/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
