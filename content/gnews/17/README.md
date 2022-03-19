@@ -2,93 +2,31 @@
 ---
 
 
-## 凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2188769/)
+## 有声|中共持续扰台 入侵野心人尽皆知
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188805/)
 
-Kevin Durant (NY NETS basketball player)
-凯文·杜兰特（纽约网队篮球球员）
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月16日，据台湾国防部当天晚间公布的“实时军事动态”显示，中共解放军的1架“运-8”电子侦查机于当天进入台湾西南防空识别区，且一路绕行整个台湾南部空域。而就在本周一，中共军队还派出了1架“运-8”远距离支援干扰机、5架“歼-16”战机、7架“歼-10”战机和1架无人机在台湾西南领空活动。
 
-That’s ridiculous. I don’t understand at all
-这是太荒谬了， 我完全不明白
+而据波兰梅蒂卡救援前线当天传回的消息称，当地一位热心的德国志愿者在与救援团队的交谈中提到，如果中共习近平发动战争，其对象一定是台湾。
 
-I mean, as few people in our arena unvax, right?
-我的意思是，因为我们的运动馆只有很少的人没有接种疫苗，对吧？
+早先，郭文贵先生曾在直播中多次向世界发出密集的警告称，中共将在北京冬奥委会后对台湾动手。近期，郭先生又反复预警表示，台海危机已经迫在眉睫，且战争已是箭在弦上，一触即发。为了对应眼下的紧迫现况，台湾政府和人民一定要谨慎地防备并积极地应对，从而尽可能降低即将到来的人道灾难。
 
-like they lifted all that out in our arena, right?
-就像他们解除了我们的运动馆的疫苗政策，对吧？
+文字版原文：[中共持续扰台 入侵野心人尽皆知](https://gnews.org/zh-hans/2181231/)
 
-So it was the… I don’t get it
-所以它是……我不明白
+音频处理：Fei797
+发稿：Fei797
 
-the second mandate
-第二个疫苗强制
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-that says he can come in but can’t play
-就是说他（欧文）能进入室内但是不能参加比赛
-
-Kevin Durant
-凯文·杜兰特
-
-Yeah, I don’t get it, just feels like at this point now
-是呀，我不明白，只是觉得现在在这点上
-
-somebody is trying to make a statement or point to flex their authority
-某人正试图发表声明或展示他们的权威
-
-But, you know, everybody out here looking for attention
-但是，你知道，这里的每个人都在寻求关注
-
-and that’s what I felt like the mayor wants right now some attention
-这就是我觉得市长现在想要得到一些关注
-
-you know, but he’ll figure it out, so he’d better
-你知道，但他（欧文）会弄清楚的，所以他最好
-
-but it just didn’t make any sense like his unvax people in this building already
-但它只是没有任何意义，就像在这栋楼里已经有了未打疫苗的人一样
-
-We got a guy who can come into the building
-我们让未打疫苗的人可以进入大楼里
-
-and interfering our safety, I don’t get it
-并干扰我们的安全，我不明白
-
-So yeah, we’re all confused
-所以，是的，我们都很困惑
-
-Pretty much everybody in the world is confused at this point early on in the season
-在赛季初的这个时候，世界上几乎每个人都感到困惑
-
-You know, people didn’t understand what was going on
-你知道，人们不明白发生了什么
-
-But now just the stupid
-但现在真的是愚蠢的政策
-
-so hopefully, Eric, you you got to figure this out
-所以希望, 埃里克，你必须弄清楚这一点
-
-原视频链接[https://twitter.com/nypost/status/1503154961668059136?s=24](https://twitter.com/nypost/status/1503154961668059136?s=24)
-
-Date:03/16/2022
-原视频标题:Kevin Durant sounds off on NYC Mayor Eric Adams and the vaccine mandate
-凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
-原视频日期：2022/03/14
-原视频链接https://twitter.com/nypost/status/1503154961668059136?s=24
-任务编号：KE456(4018)
-视频时间段 : 0:00-1:03
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

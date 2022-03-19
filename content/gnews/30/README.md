@@ -2,28 +2,26 @@
 ---
 
 
-## 俄罗斯电视台编辑举牌反战，引发辞职潮
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2188455/)
+## 中日财经爆┃中共房地产和就业危机叠加：多地建筑业清退超龄农民工
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2188488/)
 
-**撰稿：文舞两道**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://p3.toutiaoimg.com/large/tos-cn-i-qvj2lq49k0/4a908046f477402393099ff72ab66ef0&amp;imgrefurl=https://www.zhdate.com/news_image/629322.html&amp;tbnid=JVQWUKE7_ixtEM&amp;vet=12ahUKEwipo9XF9M_2AhX8UfUHHWX1AFsQMyglegUIARD3AQ..i&amp;docid=BY-vA_VsFndIlM&amp;w=640&amp;h=427&amp;itg=1&amp;q=%E5%BB%BA%E7%AD%91%E5%86%9C%E6%B0%91%E5%B7%A5&amp;ved=2ahUKEwipo9XF9M_2AhX8UfUHHWX1AFsQMyglegUIARD3AQ)
+据工人日报3月18日报道，上海、天津和湖北等多个地区发布建筑业清退令，全面清理“超龄”农民工。
 
-俄罗斯国家第一电视台女编辑玛丽娜，日前冲进当地收视率最高的新闻直播现场，举牌反对战争，抗议俄罗斯入侵乌克兰。玛丽娜的律师18日在SNS上透露，玛丽娜已向电视台提交了辞呈。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2068.png)图片来源：[NHK](https://www3.nhk.or.jp/news/html/20220318/k10013539511000.html?utm_int=news-international_contents_list-items_001)
-玛丽娜的行动引起俄罗斯媒体圈高层以及资深记者的离职潮。据报导，玛丽娜抗议被捕后，她的同事、第一电视台驻欧洲记者詹娜跟着递出辞呈以表达对战争的不满。同时另一家国营电视台“NTV”的当家主播莉莉亚，和资历超过30年的记者瓦迪姆也相继离职；莉莉亚曾受到普京亲自表扬，而她在个人社群媒体发出“拒绝战争”信息后，宣布已经离开俄罗斯。
+据报道，上海市住建委、市人社局和市总工会共同发文，明确规定禁止18周岁以下、60周岁以上男性及50周岁以上女性三类人员进入施工现场从事建筑施工作业。
 
-更早之前就辞去职务的倍受瞩目的《今日俄罗斯》前总编辑玛利亚表示，“我真的认为我们现在正处于核战争的边缘”。普金发动侵略乌克兰战争，已经严重摧毁俄罗斯的声誉，也让俄罗斯的经济崩溃，陷入无法挽回的境地。
+作为曾经是中共经济三驾马车的房地产，一度解决了广大农民工的进城就业问题。但近年来，随着中共经济急转直下，大学生毕业即失业的问题愈演愈烈。
 
-还有更多俄国媒体员工辞职表达不满。乌克兰总统泽伦斯基也呼吁俄罗斯官方传媒的工作人员最好尽快辞职，否则恐将成为“为战争罪辩护”的同类，遭国际法庭审判。
+中共教育部公布的数据显示，2022届高校毕业生总规模预计突破1000万人，高校毕业生人数将达到1076万人，同比增加167万人，再创历史新高。
 
-**信息来源：**[NHK: 番組中に反戦訴えたロシア国営テレビ職員 辞表を提出](https://www3.nhk.or.jp/news/html/20220318/k10013539511000.html?utm_int=news-international_contents_list-items_001)
+当前，中共房地产正在普遍经历债务违约、欠薪停工等乱局，另一方面，中共又面临大量新增的高校毕业生，对于中共而言，清退所谓的超龄农民工无关乎福利关怀，仅仅是病急乱投医而已。
 
-**校对：MQ**
+信息来源：[多地发布建筑业清退令，超龄农民工路在何方？](http://www.news.cn/politics/2022-03/18/c_1128482611.htm)
 
-**发布：MQ**
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

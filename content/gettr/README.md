@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 1:14 AM (UTC)`
+
+2022.03.18 晚《新中国联邦新闻访谈》习近平等待5月份疫苗灾难；FBI抓美民运大佬，实为中共特务；俄罗斯曝习近平今秋攻台
+![img](https://media.gettr.com/group11/origin/2022/03/19/01/5d2fb57b-50c8-5084-18b5-b8d3ec893e98/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/19/2022 12:38 AM (UTC)`
 
 2022.03.18 晚 《新中国联邦新闻》波兰记者祝新中国联邦早日推翻中共政权； 新中国联邦正式走向世界政治舞台
@@ -148,13 +155,6 @@ Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Uk
 
 【Ukraine Rescue】03/17/22 Italian war-zone pianist Davide Martello has become a fellow fighter of the Whistleblowers’ Movement. When he comes to the NFSC rescue center, one of our volunteers plays him Mr. Miles Guo’s  ‘A Roar of The Vast Sea’,  then he performs this song with his piano. <br/> <br/>【乌克兰救援】03/17/22 战地钢琴家Davide Martello已然成为了爆料革命的战友。当他来新中国联邦救援营地时，有我们的志愿者给他播放了郭文贵先生的歌曲《沧海一声啸》，于是他用钢琴演绎了这首灭共歌曲。<br/><br/>
 ![img](https://media.gettr.com/group19/getter/2022/03/18/14/9817ae46-5650-6682-3574-c3cc065d31e5/out.jpg)
-
----
-
-`@miles 3/18/2022 1:29 PM (UTC)`
-
-<br/>3月18号：尊敬的战友们好……共产党和俄罗斯的生死相依的关系什么时候完球蛋！世界的经济危机什么时候是最坏的时候？香港病毒的感染率，和死亡率．成了世界之谜！
-![img](https://media.gettr.com/group3/getter/2022/03/18/13/167b1ce9-c068-bb4a-60d3-ff40d5a788f8/out.jpg)
 
 ---
 
