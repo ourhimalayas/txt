@@ -2,25 +2,31 @@
 ---
 
 
-## 乌克兰军事指挥部称俄罗斯几乎用完了所有的Kalibr和Iskander导弹
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2190533/)
+## 乌控俄战车含德国博世零件
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2190631/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-29.jpg)
+**撰稿：日本东京方舟农场 北极**
 
-图片来自原文
+据中央社3月19日报道，乌克兰声称在俄罗斯军用车辆中发现德国博世集团（Bosch）产品，该公司已停止向俄罗斯交付卡车零件。
 
-据乌克兰武装部队总参谋部报告说，自俄罗斯军队全面入侵乌克兰以来，俄罗斯军队在行动的二十几天里几乎用完了所有的”伊斯坎德 “（Iskander）短程弹道飞弹和”卡利布 “（Kalibr）3M-54“口径”海基巡航导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-4.png)汽车零件供应商博世集团（Bosch）表示，公司已停止向俄罗斯顾客交付卡车零件（图片来自网络）
 
-乌克兰总参谋部说，俄军在各个方向上被乌克兰军队阻止。并且，俄军在后勤方面存在重大问题，继续遭受严重损失。俄军已经失去了进攻的潜力。
+乌克兰外交部长库列巴（Dmytro Kuleba）13日在德国第一电视台（ARD）的谈话节目上说，乌克兰军人最近掳获俄罗斯的步兵战车，里面有博世制造的零件。
 
-目前，俄军继续使用低精度武器轰炸基础设施和大城市的住宅区。并对关键的军事和民用基础设施进行空袭。摧毁了机场、军事单位、油库、加油站、教堂、学校和医院。使用大炮、多管火箭发射器系统和弹道导弹对居民区进行炮击。
+德国有关当局立即对此展开调查，因博世可能违反出口规定。这项出口限制是西方对俄罗斯2014年吞并乌克兰克里米亚地区而祭出的制裁，规定欧盟（EU）的企业禁止向俄罗斯供应“军民两用”商品。
 
-俄罗斯入侵乌克兰已经进入第22天，到目前为止，克里姆林宫仍然否认对乌克兰发动征服战争，仅称其为 “去军事化或去纳粹化”的”特别行动”。普京还否认对乌克兰平民的攻击，尽管世界各国的媒体记录了大量相反的证据。
+博世集团回应说，公司对库列巴的指控严肃看待，已展开全面性审查。
 
-新闻来源链接：[https://uawire.org/ukrainian-military-command-russia-has-used-up-almost-all-of-its-kalibr-and-iskander-missiles-since-the-beginning-of-invasion](https://uawire.org/ukrainian-military-command-russia-has-used-up-almost-all-of-its-kalibr-and-iskander-missiles-since-the-beginning-of-invasion)
+据报道，耶鲁大学公布了一份自俄罗斯入侵乌克兰以来，已经离开和仍留在俄罗斯的跨国公司名单。耶鲁大学的这两份名单保持每日更新，截至3月15日，已有380个全球品牌宣布退出俄罗斯市场。
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+根据该名单，选择继续留在俄罗斯的一些西方知名的大型国际公司有博世（Bosch）、赛百味（Subway）和倍耐力（Pirelli）等。
+
+参考链接：
+1.[https://www.cna.com.tw/news/aopl/202203190047.aspx](https://www.cna.com.tw/news/aopl/202203190047.aspx)
+2.[https://gnews.org/zh-hans/2180617/](https://gnews.org/zh-hans/2180617/)
+
+总编：青城道姑
+校对发布：Linda
 
  
 
