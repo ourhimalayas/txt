@@ -2,16 +2,23 @@
 ---
 
 
-## 前驻联合国大使说美国应该对中共国表明帮助俄罗斯的后果
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2189679/)
+## 波兰记者祝新中国联邦早日推翻中共政权
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2189810/)
 
-视频来源: [https://www.youtube.com/watch?v=3kYxg\_Z2NB0](https://www.youtube.com/watch?v=3kYxg_Z2NB0)
+撰稿:飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
+3月16日，《新闻周刊》驻波兰记者莉娜塔·金参观了新中国联邦在梅迪卡的救援中心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2095.png)
+Nicole战友向她介绍了我们新中国联邦与中共的不同，介绍了法治基金和新中国联邦的性质，我们来到此地进行人道救援的目的，以及我们可以提供的各种设备、物资、服务。
 
-* * *
+莉娜塔不仅表示了惊讶、感动和感谢，称自己没有想到在战争中会接收到来自世界的援助，这非常令人感动。同时，她祝愿新中国联邦早日推翻中共独裁政权，称自己会为这一使命祈祷。
 
-*翻译/字幕：Rock小哥
-编辑/发布：霹雳鼠年*
+链接：[https://gettr.com/post/p10kkosc86b](https://gettr.com/post/p10kkosc86b)
 
+总编: 飞虹
+
+校稿/上传：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

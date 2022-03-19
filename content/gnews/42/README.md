@@ -2,36 +2,29 @@
 ---
 
 
-## 中共国的疫情封锁令全球经济充满不确定性
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2187996/)
+## 演奏《灭共的雪》的战地钢琴家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2188186/)
 
-作者: 纽约香草山 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月15日，据外媒报道，中共国从南到北的疫情封锁政策，加上俄乌战争、创历史的通胀以及量化宽松的投资措施的结束，使全球的经济复苏蒙上了阴影。
+作者、编辑：Candy
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/18-03-2022-1.jpg)图片来源网络
+在波兰梅迪卡国际人道主义救援中心、新中国联邦和法治基金营地的大帐篷前，每天傍晚时分，你都可以看到这位钢琴家开始演奏一些曲目，其中一些是著名的反战作品。
 
-当天，石油现货价格回到每桶100美元以下。纽约石油期货下跌6.4%，将过去一周的跌幅扩大到22%以上。上周，油价自金融危机以来首次超过每桶130美元，反映出人们预期战争带来的供应冲击可能是持久的。同时，四处扩散的中共国疫情并未结束，也使市场遭受了重大打击。 对全球供应链状况的担忧和对中共国经济状况的质疑，已造成中共国股市近期的大幅下跌。人们对世界终于越过疫情走向经济复苏及增长产生了怀疑。在以外贸出口为主的城市，比如深圳，很多工厂被迫停工，加剧了供应短缺，并推动了价格上涨。”不确定性 “已经成为一个热门词汇。
+他说，他不懂政治，但他反对战争。所以，在Nicole为他提供了郭先生演唱的新歌《灭共的雪》之后，一天晚上，他在篝火旁精彩、完整地演奏了这首曲子。看，David弹钢琴时有多投入！不用看琴谱，可以想象：音乐就在他心里，而从手指尖自然流出，而且弹得铿锵有力，如同一位战场上的士兵在英勇奋战，所向披靡！他用他的琴声准确、完美地诠释了这首灭共歌曲。
+视频来源：救援前线电报群叶扑
+前几天，他开始搬到新中国联邦营地独有的篝火旁，与我们的战友们熟络起来。Nicole也曾采访过他，他还带着他的那只总想从他的肩膀跳下去的猫。他告诉大家：他叫David，因为我们的帐篷前比较平又宽敞，还有一天都不间断的篝火，很暖和。他曾去世界上几个战地演奏钢琴，因为他反对战争，他希望通过音乐呼吁和平，同时表达他的反战心声。从他那架带着轱辘、遍体斑驳的钢琴，可以想象他的琴跟着他曾转战过多少阵地，演奏过多少场。
 
+Nicole向他介绍了我们新中国联邦、法治基金来此的目的：是为了援助遭受俄国入侵的乌克兰人民。我们是以消灭中共为目标、要在中国实现人手一票的民主、自由、法治的新中国联邦人，在法治基金提供经济支持的一个群体。中共是这场战争的幕后黑手，是一切罪恶的根源。只有铲除中共，才能拯救全人类。
+![Image](https://media.discordapp.net/attachments/950448401529577502/953739976493908038/image0.jpg?width=564&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/954204764609060894/IMAGE_2022-03-17_222854.jpg?width=656&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/954204707356811264/IMAGE_2022-03-17_222839.jpg?width=656&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/954204707096760360/IMAGE_2022-03-17_222837.jpg?width=656&amp;height=369)以上图片来源：救援前线电报群煤油灯（网名）![](https://assets.gnews.org/wp-content/uploads/2022/03/钢琴家5-2.png)3月18日波兰时间的上午战地钢琴家David’s 就出现在了营地。傍晚他完成了今天的演奏，将钢琴装车准备离开。图片来源：救援前线电报群扬帆农场清平世界（网名）
+在这场俄乌战争中，战争狂人、独裁统治者利用自己手中的权力，丧心病狂地炮轰核电厂，摧毁医院、学校等公共设施，向无辜的平民百姓开火进行无区别轰炸。但乌克兰人民不会屈服，他们正在奋力抵抗。全球热爱和平的人们也在各方面援助乌克兰军队、援助难民，甚至用自己手中的乐器、自己的歌声、媒体互联网作为武器，去谴责罪犯、大声疾呼：停止战争，还我和平！
 
+***发布：Candy***
 
-相关链接:
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-[https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw](https://www.wsj.com/articles/china-covid-19-lockdowns-rattle-oil-markets-add-to-uncertainty-11647382006?mod=e2tw)
-
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑: 飞虹
-
-校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
