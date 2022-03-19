@@ -2,34 +2,10 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月18日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2189404/)
+## 3/17/2022 文贵直播：西方在俄乌战争中关心的是钱、经济和权力；习近平不在乎死多少中国人，他眼里的中国人猪狗不如，习的清零政策毫无人性
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2189617/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-14.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p10pvkx9770](https://gettr.com/post/p10pvkx9770)
-访谈：[https://gettr.com/post/p10ptfo6b21](https://gettr.com/post/p10ptfo6b21)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
-
-**更多资讯，更多关注**
-
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+秘密翻译组-北美组
 
  
 

@@ -2,11 +2,23 @@
 ---
 
 
-## 3/17/2022 文贵直播：西方在俄乌战争中关心的是钱、经济和权力；习近平不在乎死多少中国人，他眼里的中国人猪狗不如，习的清零政策毫无人性
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2189617/)
+## 波兰记者祝新中国联邦早日推翻中共政权
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2189810/)
 
-秘密翻译组-北美组
+撰稿:飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
+3月16日，《新闻周刊》驻波兰记者莉娜塔·金参观了新中国联邦在梅迪卡的救援中心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2095.png)
+Nicole战友向她介绍了我们新中国联邦与中共的不同，介绍了法治基金和新中国联邦的性质，我们来到此地进行人道救援的目的，以及我们可以提供的各种设备、物资、服务。
 
+莉娜塔不仅表示了惊讶、感动和感谢，称自己没有想到在战争中会接收到来自世界的援助，这非常令人感动。同时，她祝愿新中国联邦早日推翻中共独裁政权，称自己会为这一使命祈祷。
+
+链接：[https://gettr.com/post/p10kkosc86b](https://gettr.com/post/p10kkosc86b)
+
+总编: 飞虹
+
+校稿/上传：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

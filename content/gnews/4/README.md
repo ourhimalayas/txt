@@ -2,41 +2,37 @@
 ---
 
 
-## 大屠杀幸存者指 COVID 暴政堪比纳粹政策
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2189843/)
+## 美国扣押李宁产品因其使用朝鲜劳工
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2189988/)
 
-素材翻译： Jenny Ball
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-221.png)图片来自网络
+《CNN》近日报道，在美国海关和边境保护局（CBP）表示调查表明中国运动服装巨头在其供应链中使用朝鲜劳工后，美国当局将扣留李宁的商品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2100-edited.png)travelwild / Shutterstock.com
+CBP 周二宣布，从本周开始，该公司的商品将在美国所有港口被扣留。
 
-《生活新闻》(LifeSiteNews) – 一名大屠杀幸存者将 COVID-19 限制与纳粹德国的政策相对比。
+该机构在一份声明中说：“除非进口商提供明确和令人信服的证据，证明他们的商品不是由罪犯劳工、强迫劳工或契约劳工生产的，否则此类商品将无权进入。”
 
-3月9日在接受《反叛新闻》（Rebel News）采访时，大屠杀幸存者，人类研究保护联盟主席维拉·沙拉夫（Vera Sharav），将COVID 限制，特别是对未接种疫苗者的限制，与二战前和二战期间纳粹领导的针对犹太人的非人化运动相对比。
+“如果公司未能在这段时间内提供明确和令人信服的证据，商品可能会被扣押和没收。”
 
-“纳粹使用了犹太人[作为]传染病传播者的恐慌[策略]，这正是现在对未接种疫苗的人的指责，说他们是病毒的传播者，但事实并非如此，” 沙拉夫在接受 《反叛新闻》记者德雷亚·汉弗莱（Drea Humphrey） 的 36 分钟采访时表示。
+总部位于北京的李宁没有立即回应置评请求。
 
-当沙拉夫被驱逐出罗马尼亚的家并被赶到乌克兰的集中营时，她才三岁半。她的父亲死于传染病。1944年，她的母亲通过一个孤儿组织设法赎回了她，她被送回了罗马尼亚。
+该公司是中国最大的运动服装和运动鞋制造商之一，市值约为 1333 亿港元（170 亿美元）。
 
-大屠杀幸存者解释说，在那段时间里她有一次不听话，拒绝听从政府当局的命令，那挽救了她的生命，对她来说是“一个很大的启迪”。
+它由同名体操冠军于 1990 年创立，大约 10 年前进入美国市场，理由是希望进入“迄今为止世界上最大的体育用品市场”。
 
-与当前情况相比，她呼吁更多人不要遵守“政府”施加的 COVID 限制命令。
+李宁还与NBA球星沙奎尔·奥尼尔和德维恩·韦德签订了代言协议，引起了轰动。
 
-“我希望大多数人不再服从，因为服从……你在让独裁者发展壮大。人们不服从，他们就无法做到这一点，”她说道。
+个人认为美国之前对于中共国使用朝鲜劳工一事心知肚明，但之前因为勾兑太深就睁一只眼闭一只眼。而现在中美脱钩箭在弦上，美国会对中共连出重拳，所以发生这件事也就不奇怪了。
 
-沙拉夫坚持认为，对未接种疫苗的人施加限制是不合理的，因为已证明实验性 COVID 疫苗在阻止 COVID-19 传播方面效率低下；接种疫苗的人仍然能够传播和感染这种疾病。
+参考链接：
 
-正如沙拉夫在她的采访中指出的那样，疫苗接种率最高的国家的病例、住院和死亡人数也更高，这已是显而易见的事实。
+[https://edition.cnn.com/2022/03/16/business/li-ning-us-alleged-north-korean-labor-intl-hnk/index.html](https://edition.cnn.com/2022/03/16/business/li-ning-us-alleged-north-korean-labor-intl-hnk/index.html)
 
-素材链接：【lifesitenews.com】[Holocaust survivor draws parallel between COVID tyranny and Nazi policies](https://www.lifesitenews.com/news/holocaust-survivor-draws-parallel-between-covid-tyranny-and-nazi-policies/)
+*编辑：金生水*
 
-* * *
-
-审核：文乐
-校对：信心满满
-发布：花羽
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-11.jpeg)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
