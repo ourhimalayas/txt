@@ -2,26 +2,48 @@
 ---
 
 
-## 俄军轰炸公寓致使乌克兰“国宝级”女星身亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2190564/)
+## 港股急跌，共匪内部矛盾加速齐奥塞斯库效应到来
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190676/)
 
-**撰稿：日本东京方舟农场  子辰**
+作者：纽约磐石农场—在远方
 
-据大纪元3月19日报道，乌克兰著名女演员67岁的欧克姗‧史维兹（Oksana Shvets）因居住的公寓遭俄军袭击而中弹身亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-215.jpg)（图片来自大纪元）
 
-67岁的欧克姗‧史维兹在乌克兰家喻户晓，曾获得乌克兰最高艺术荣誉奖，她被封为“乌克兰荣誉艺术家”，相当于国宝级巨星。
 
-17日，欧克姗‧史维兹生前所属的“基辅青年剧团”在官方脸书发文证实，欧克姗‧史维兹日前在公寓住宅内遭到俄罗斯军队炮弹袭击，当场被炸死。文中说，史维兹的去世是乌克兰“无法挽回的悲伤”，并痛批俄军是“攻击我们土地的敌人，罪不可赦”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
 
-此外，10天前同样因战争阵亡的帕夏‧李（Pasha Lee），也是乌克兰的知名演员和电视节目主持人。据了解当时俄罗斯军队针对基辅附近的小镇进行猛烈攻击时，他自告奋勇帮助伊尔平（Irpen）的居民从家里逃出，生前怀里还抱着受伤的民众，并将自己的防弹背心给小孩穿上，噩耗同样令各界十分惋惜。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/3/18/n13656647.htm](https://www.epochtimes.com/gb/22/3/18/n13656647.htm)
+在3月15日的文贵大直播中，郭先生表示，香港恒生指数跌破2万点，其中仍有60%～70%由中共控制，其余只有5000亿美元左右。而港币与美元挂钩的最低限，不能少于5000亿美元，否则就意味着香港政府破产。跌到18000点，意味着港币失去了和美元挂钩的GDP基础。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/195620.png)
+虽然中共意图再给香港经济继续兑水，但当前习近平的身体、中共的体制和经济都出了大问题。香港经济崩塌，中共会用2000亿美元继续硬撑。但当彻底崩溃的时候，会导致广东一万多亿美元的GDP垮掉，这才是共产党真正的噩梦。
 
-总编：青城道姑
-校对发布：爱放飞
+由于中共新老常委中60%至70%在广东都有利益，由此引发的斗争将加剧内讧，军队可能会起义。
+
+参考来源：
+
+[https://www.gettr.com/post/p10e2h39142](https://www.gettr.com/post/p10e2h39142)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-53.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+
+
+
 
  
 

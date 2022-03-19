@@ -2,48 +2,23 @@
 ---
 
 
-## 港股急跌，共匪内部矛盾加速齐奥塞斯库效应到来
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190676/)
+## 视频|救援基地收到波兰志愿者的热汤现烤面包
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2190865/)
 
-作者：纽约磐石农场—在远方
+制作：香草山视频部
 
+当地时间3月16日，在梅迪卡新中国联邦的救援基地，波兰志愿者亲自烤好香气扑鼻的新鲜面包，送到大帐篷来。波兰志愿者说，难民们连日的颠簸，路途中只能吃些方便食品，而新鲜的面包太难得，希望能给他们的胃些许抚慰。
 
+除了新鲜面包，当地志愿者们还送来了三大箱热气腾腾的汤，有甜菜汤、蘑菇汤等。当然，大帐篷里还有为难民、各国志愿者和媒体工作人员提供的NFSC现磨咖啡。
 
+志愿者们不约而同地选择将物资送到新中国联邦的大帐篷内。这份信任来自前线战友们的辛勤付出和唯真不破。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-
-
-在3月15日的文贵大直播中，郭先生表示，香港恒生指数跌破2万点，其中仍有60%～70%由中共控制，其余只有5000亿美元左右。而港币与美元挂钩的最低限，不能少于5000亿美元，否则就意味着香港政府破产。跌到18000点，意味着港币失去了和美元挂钩的GDP基础。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/195620.png)
-虽然中共意图再给香港经济继续兑水，但当前习近平的身体、中共的体制和经济都出了大问题。香港经济崩塌，中共会用2000亿美元继续硬撑。但当彻底崩溃的时候，会导致广东一万多亿美元的GDP垮掉，这才是共产党真正的噩梦。
-
-由于中共新老常委中60%至70%在广东都有利益，由此引发的斗争将加剧内讧，军队可能会起义。
-
-参考来源：
-
-[https://www.gettr.com/post/p10e2h39142](https://www.gettr.com/post/p10e2h39142)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-53.jpg)
-
-编辑/校对/发稿：兰兰
+发稿：林礼
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-
-
-
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
