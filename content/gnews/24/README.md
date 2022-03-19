@@ -2,23 +2,40 @@
 ---
 
 
-## First EU bank to access the Beijing Stock Exchange
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2192814/)
+## 美国官员透露，俄罗斯要求中共国向其提供军事装备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2192820/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-105.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F44451497_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E5%25BE%25B7%25E6%2584%258F%25E5%25BF%2597%25E9%2593%25B6%25E8%25A1%258C%25E6%25B2%25A1%25E6%259C%2589%25E5%2587%25BA%25E8%25B7%25AF%25E5%2590%2597%2Fa-47149256&amp;tbnid=_A8FwWCnPyCnSM&amp;vet=12ahUKEwij9cyYtdL2AhWJCOwKHTRIACAQMygCegUIARCpAQ..i&amp;docid=ZJ5UTOfK01oFQM&amp;w=700&amp;h=394&amp;q=%E5%BE%B7%E6%84%8F%E5%BF%97%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwij9cyYtdL2AhWJCOwKHTRIACAQMygCegUIARCpAQ)
+***评论：**发起战争，协助发动战争的人都是“战犯”。*
 
-Deutsche Bank (China) Co., Ltd. announced that it has successfully connected to the Beijing branch of China Securities Depository and Clearing Corporation (CSRC), becoming the first EU bank to support Qualified Foreign Investors (QFIs) to trade stocks on the Beijing Stock Exchange.
+据《华盛顿邮报》作者David L. Stern, Ellen Francis, Gerry Shih, Isabelle Khurshudyan, Paulina Firozi, Hannah Knowles, Ellen Nakashima和Karen DeYoung 联合报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2145-e1647705169731.png)图片来源：原文视频截图
+美国官员说，俄罗斯要求中共向其提供军事装备。
 
-resource：
+熟悉此事的美国官员告诉《华盛顿邮报》，自俄罗斯开始入侵乌克兰以来的几周内，俄罗斯向中共寻求军事装备和援助。
 
-[首家欧盟银行接入北京证券交易所](https://www.thepaper.cn/newsDetail_forward_17162951)
+这些官员因为这个问题的敏感性而不愿透露姓名，他们没有描述要求提供何种武器装备，也不知道他们是否知道中共如何回应。白宫国家安全顾问杰克-沙利文(Jake Sullivan)告诉CNN，政府正在“直接、私下地与北京沟通，如果中共努力协助俄罗斯逃避制裁，绝对会有后果”。
 
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+乌克兰官员表示，周一将继续与俄罗斯进行谈判。总统顾问Mykhailo Podolyak周日表示，与俄罗斯“开始进行建设性的会谈”，并预测在几天内会有“一些具体的结果”。
 
+俄罗斯周日将战斗推向了北约联盟成员，因为导弹袭击了距离波兰边境约15英里的一个军事设施，造成至少35人死亡，134人受伤。利沃夫附近的亚沃洛夫军事演习场也被称为国际维持和平与安全中心，多年来一直是北约部队和乌克兰人的演习场所，最近在2月份还有美国人到场。
+
+文章来源：[https://www.washingtonpost.com/world/2022/03/13/russia-ukraine-war-news-live-updates/](https://www.washingtonpost.com/world/2022/03/13/russia-ukraine-war-news-live-updates/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机（大树）
+
+评论：洛杉矶盘古农场 – 轰炸机（大树）
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
