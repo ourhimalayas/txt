@@ -2,26 +2,30 @@
 ---
 
 
-## 樱花FM|中日财经爆:优衣库停止在俄罗斯所有50家门店的运营
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2192930/)
+## 中共会因乌克兰战争而灭亡
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2192996/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-20.png)
-“优衣库”母公司迅销（FAST RETAILING）3月10日宣布，将暂时停止在俄罗斯所有50家门店的运营。由于反对俄罗斯入侵乌克兰，海外服装巨头纷纷退出俄罗斯业务，引起了关注。
+##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2147.png)
+据3月18日文贵先生盖特直播透露，美国已为中共准备了一堆毒药，中共则一定会选择其中最毒的一种吃掉，任谁都挡不住。中共会因乌克兰战争而彻底灭亡，并且会被消灭的非常狠、非常干净。而乌克兰和台湾将会成为中国人最需要珍惜的朋友。
 
-迅销公司于2010年在莫斯科开设了第一家“优衣库”店，进入俄罗斯。目前，它拥有欧洲最多的门店。在截至2021年8月的财年合并财务报表中，俄罗斯业务领跑优衣库欧洲业务，销售额和利润均有显着增长。
+文贵先生还透露，中共在俄乌战争问题上，一定会选择坚决与俄罗斯站在一起，这是中共十八大以来一贯的政策。中共“坚决消灭美帝”的决心是很明确的，绝不会因任何问题而改变。
 
-迅销表示：“由于目前围绕纠纷的形势变化，以及继续经营面临的种种困难，我们决定暂停业务。”
+稍早有媒体报道，本周包括拜登和习近平在内的美中高阶官员已经先后两次会面，但均以双方未能达成一致意见，会谈宣告失败而告终。尽管美国曾一再警告中共，将为支持俄罗斯武装入侵乌克兰承担严重后果。
 
-迅销公司是日本的零售控股公司。持有的品牌包括知名的UNIQLO(优衣库)，以及ASPESI、Comptoir des Cotonniers、Foot Park、National Standard，GU等。是世界第三大休闲服公司，同时是亚洲最大的服装公司。
+原文链接：[https://gettr.com/post/p10na9gd4b9](https://gettr.com/post/p10na9gd4b9)
 
-文字版原文：[中日财经爆┃优衣库停止在俄罗斯所有50家门店的运营](https://gnews.org/zh-hans/2143106/)
+编辑/上传 – 文永
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

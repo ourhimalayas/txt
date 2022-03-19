@@ -2,20 +2,28 @@
 ---
 
 
-## CCP State Internet Information Office to launch actions on network regulation
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2192865/)
+## 樱花FM|中日财经爆:日本烟草停止俄罗斯市场经营活动
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2192953/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-73.png)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp5.itc.cn%2Fq_70%2Fimages03%2F20220317%2Ff5a3eefb55614fd58c843c4d42645af4.png&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F530572451_116132&amp;tbnid=8ZfBi_ZnvLh7wM&amp;vet=12ahUKEwi6qZ7jtdL2AhVRh_0HHWDMDhMQMygBegUIARDOAQ..i&amp;docid=OFVTfkfWvzmSxM&amp;w=1440&amp;h=810&amp;q=%E6%B8%85%E6%9C%97%E2%80%9D%E8%A1%8C%E5%8A%A8%202022&amp;ved=2ahUKEwi6qZ7jtdL2AhVRh_0HHWDMDhMQMygBegUIARDOAQ)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-1-7.png)
+日本烟草公司（JT）3月10日宣布，将暂停在俄罗斯市场的新投资和营销活动。俄罗斯的烟草生产也可能暂停。
 
-The Information Office of the State Council of the CCP held a press conference on March 17 at 3 p.m. on the 2022 “Qinglang” series of special actions, saying it would launch the Qinglang actions (i.e. network rectification action). According to Sheng Ronghua, deputy director of the State Internet Information Office of the CCP, the action focuses on the wide range of impact and harm to carry out rectification, including 10 key tasks, including livestream, short video, the Internet rewards, application information, etc.
+JT 在俄罗斯拥有四家工厂，员工约4,000人。当地雇员的就业将得到维持。
 
-resource: [剑指乱象，2022年“清朗”行动十大重点任务公布](https://www.thepaper.cn/newsDetail_forward_17162768)
+JT表示，“俄罗斯市场的营商环境空前严峻，预计对未来业务的影响将是多方面的。”
 
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+日本烟草产业株式会社（Japan Tobacco Inc.），简称JT，是日本最大的烟草制造企业，世界第三大烟草制造商，为日经225指数成份股之一。
+
+在俄罗斯销售的所有烟草产品中，有15%是由日本烟草公司的国际业务分公司日本烟草国际公司制造。日本烟草国际公司的这些产品中，有99%出产于公司位于俄罗斯圣彼得堡的Petro烟厂。
+
+文字版原文：
+
+[中日财经爆┃日本烟草停止俄罗斯市场经营活动](https://gnews.org/zh-hans/2143113/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
 
 
  

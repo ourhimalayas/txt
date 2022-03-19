@@ -2,26 +2,40 @@
 ---
 
 
-## 法国敞开国门接收大量乌克兰难民
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2192818/)
+## 美国官员透露，俄罗斯要求中共国向其提供军事装备
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2192820/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2146.png)图片来源：美国之音
-据《国家脉动》3月18日报道，来自乌克兰的密集移民潮据说是欧洲几十年来最快的一次。现在有报道称，多达30%的来自乌克兰的入境者是其他国籍的移民，其中许多人来自非洲和中东。
+***评论：**发起战争，协助发动战争的人都是“战犯”。*
 
-报道说，法国是向乌克兰难民开放边境的众多国家之一，已宣布欢迎多达10万人的到来。该国不要求来自乌克兰的难民持有入境签证，且最近通过了一项对乌克兰人的庇护计划，允许他们在该国停留至少一年而无需签证。总统马克龙（Emmanuel Macron）说：“法国和所有其他欧洲国家一样，将尽其所能帮助乌克兰人民，也欢迎来自这个国家的难民。”
+据《华盛顿邮报》作者David L. Stern, Ellen Francis, Gerry Shih, Isabelle Khurshudyan, Paulina Firozi, Hannah Knowles, Ellen Nakashima和Karen DeYoung 联合报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2145-e1647705169731.png)图片来源：原文视频截图
+美国官员说，俄罗斯要求中共向其提供军事装备。
 
-法国总理卡斯特（Jean Castex）最近透露，自俄罗斯2月24日入侵以来，目前已有约5000人抵达该国，而且来自乌克兰难民的数量正在“迅速增加”。
+熟悉此事的美国官员告诉《华盛顿邮报》，自俄罗斯开始入侵乌克兰以来的几周内，俄罗斯向中共寻求军事装备和援助。
 
-现在，根据报道，法国当局正在确认的许多新抵达者并非乌克兰人。据《混音新闻》（Remix News）和《费加罗报》（Le Figaro）报道，“7.5%的人是阿尔及利亚国籍，3.5%的人分别来自象牙海岸和摩洛哥……印度人和吉尔吉斯斯坦人位列第二，各占2.5%，而其他抵达者的国籍包括刚果民主共和国、喀麦隆、巴基斯坦、尼日利亚和中国”。
+这些官员因为这个问题的敏感性而不愿透露姓名，他们没有描述要求提供何种武器装备，也不知道他们是否知道中共如何回应。白宫国家安全顾问杰克-沙利文(Jake Sullivan)告诉CNN，政府正在“直接、私下地与北京沟通，如果中共努力协助俄罗斯逃避制裁，绝对会有后果”。
 
-报道披露，联合国难民事务署坚持要求各国不要“歧视任何个人或群体”，并“继续保持开通所有逃难者的入境通道”。欧洲各国的邻国一直为难民开放边界，迄今为止，大约有300万人逃离了乌克兰。
+乌克兰官员表示，周一将继续与俄罗斯进行谈判。总统顾问Mykhailo Podolyak周日表示，与俄罗斯“开始进行建设性的会谈”，并预测在几天内会有“一些具体的结果”。
 
-*责编：白夜*
+俄罗斯周日将战斗推向了北约联盟成员，因为导弹袭击了距离波兰边境约15英里的一个军事设施，造成至少35人死亡，134人受伤。利沃夫附近的亚沃洛夫军事演习场也被称为国际维持和平与安全中心，多年来一直是北约部队和乌克兰人的演习场所，最近在2月份还有美国人到场。
 
-**新闻来源**
+文章来源：[https://www.washingtonpost.com/world/2022/03/13/russia-ukraine-war-news-live-updates/](https://www.washingtonpost.com/world/2022/03/13/russia-ukraine-war-news-live-updates/)
 
-[One Third of ‘Ukrainian Refugees’ Arriving in France Are Not Ukrainian](https://thenationalpulse.com/2022/03/18/one-third-of-ukrainian-refugees-arriving-in-france-are-not-ukrainian/)
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机（大树）
+
+评论：洛杉矶盘古农场 – 轰炸机（大树）
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
