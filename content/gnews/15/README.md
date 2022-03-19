@@ -2,23 +2,100 @@
 ---
 
 
-## 樱花FM|北京开始吹“未接种疫苗”的风
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2193512/)
+## 喜马拉雅的约定
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2193519/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-3-8.png)
-3月12日，在北京市中共病毒（新冠病毒Covid-19）疫情防控工作新闻发布会上介绍，3月11日16时至12日16时，北京市新增本土感染者3例。门头沟区、顺义区、朝阳区各1例。另据顺义区副区长冯江全介绍，顺义区新增的一确诊病例因禁忌症未接种新冠疫苗，曾于3月8日乘坐私家车前往故宫博物院游览。
+作者：香草山教育部 — 蓝之灵(Hortensia)
 
-中共公然在老百姓的比较关注的疫情权威发布会上，直接说出该确诊者因禁忌未接种疫苗，这种含沙射影的表述，目的在于提醒那些未接种疫苗的人，未来会面临诸多风险和相关性责任，在威胁和恐吓那些未接种的人赶快接种疫苗。穷途末路的中共，还要在濒临灭忙之际带走更多的无辜百姓。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-疫苗到底有没有用，我们都心知肚明，中共的伎俩我们要揭穿唤醒更多的人不要打疫苗。
 
-文字版原文：[北京开始吹“未接种疫苗”的风](https://gnews.org/zh-hans/2152138/)
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2558.jpg)
 
+我和喜马拉雅有一个约定
+
+消灭共产党是今生使命
+
+即使要献奉青春生命
+
+我的歌声
+
+依然要穿透历史车轮
+
+消灭中共
+
+消灭中共
+
+让我的族人
+
+从此不再恐惧惊恐
+
+当太阳又一次照亮天空
+
+又一次承诺
+
+定会实现我们的约定
+
+请智慧先祖赋予我勇气
+
+请喜马拉雅神灵
+
+保佑我步伐坚定
+
+即使要失去年轻生命
+
+我的歌声
+
+依然要穿透时空
+
+消灭中共
+
+消灭中共
+
+这是我和喜马拉雅的约定
+
+如果我不幸失去生命
+
+请战友们
+
+回到家乡的那一天
+
+告诉我往生魂灵
+
+你们
+
+已经
+
+消灭了中共
+
+完成使命
+
+实现了
+
+我们和喜马拉雅的约定
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-48.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

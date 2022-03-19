@@ -2,32 +2,28 @@
 ---
 
 
-## 普京在入侵乌克兰战争已投入75%的军事力量
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193706/)
+## 前线快报&#8212;-3月16日凌晨2点，前线救援团队迎接了182位乌难民
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2193747/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2153.png)
-据［极限新闻］3月17日报道，俄罗斯普京在其发起对乌克兰的侵略战争中已投入了大约75%的军事力量。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Bild1.png)
+视频链接：[https://gettr.com/post/p10ngdz8cee](https://gettr.com/post/p10ngdz8cee)
 
-报道援引了前美国陆军欧洲司令霍奇斯中将近日的一份分析报告：俄罗斯已投入其75%的“营级战斗小组”参战，但在守军激烈抵抗下俄军的攻势处于停滞状态。每天向乌克兰的平民和军事目标发射数十枚导弹和火箭的同时，俄军也面临军人、装甲车及飞机的损失。
+3月16日 俄乌战争第21天，波兰—克拉科夫Kraków。
 
-报告还透露，俄罗斯将在4月份再征召13万兵力投入战场。与乌克兰侨民纷纷赶回国参加抵抗相比，许多俄罗斯人正在离开家乡以避免被普京绑上战车。
+当日凌晨2点，前线救援团队在波兰克拉科夫迎接了三辆载有182位乌克兰难民的救援大巴，并顺利将他们疏散到当地的火车站或者法治基金安排的酒店。
 
-原文链接：
+在严酷的战争面前，瞬间的温暖带来了片刻安宁。
 
-[https://www.newsmax.com/newsfront/pentagon-putin-military-forces/2022/03/17/id/1061654/](https://www.newsmax.com/newsfront/pentagon-putin-military-forces/2022/03/17/id/1061654/)
+新中国联邦、法治基金、法治社会与国际救援组织合作，无偿帮助华人同胞、乌克兰公民、美国公民等撤离乌克兰战区。根据求助者的护照及签证情况，撤离地点为美国和其他安全中转国。请有需要的全球民众与新中国联邦24小时紧急救援客服联系。
 
-编辑/上传 – 文永
+🆘24小时救援客服热线（电话/短信）：
 
-* * *
++1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+Telegram： t.me/UkraineRescue
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+邮箱： [\[email protected\]](/cdn-cgi/l/email-protection#84d1eff6e5edeae1d6e1f7e7f1e1b4b5c4f4f6ebf0ebeae9e5ede8aae7ebe9) 或 [\[email protected\]](/cdn-cgi/l/email-protection#47122c35262e29221522342432227775073735283328292a262e2b6924282a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

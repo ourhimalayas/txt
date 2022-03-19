@@ -2,30 +2,26 @@
 ---
 
 
-## 新中国联邦和乌克兰人民在一起
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193617/)
+## 沙特外长会见乌克兰总统特使
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2193663/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2152.png)
-据文贵先生盖特报道，3月12日全球最大基督教电视台TBN的乌克兰记者在新中国联邦和法治基金梅迪卡营救中心接受了尼蔻的采访。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-乌克兰记者和尼蔻分享了自己对共产主义的深刻认识，以及乌克兰脱离共产主义的艰难过程和自己曾经的心路历程。她告诉尼蔻一定要坚信上帝会帮助我们，只要保持内心的坚定和纯洁，然后就会付诸行动。她知道我们不等同于中共，感谢我们为乌克兰人民所作的一切，也真诚的祝愿我们中国人能够早日获得自由。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1138.jpg)
 
-尼蔻告诉她，只要乌克兰人需要，我们新中国联邦就会在这里。请她一定要让家人和朋友知道，乌克兰人不孤单，我们新中国联邦和乌克兰人民在一起。
 
-原文链接：[https://gettr.com/post/p10l2k5189c](https://gettr.com/post/p10l2k5189c)
+图片来源：路透社
 
-编辑/上传 – 文永
+据沙特国家通讯社（SPA）周六报道，沙特外交大臣费萨尔·本·法尔汉·阿勒沙特亲王在利雅得会见了乌克兰总统特使贝克图姆·罗斯塔姆。
 
-* * *
+两人讨论了乌克兰危机，强调沙特王国支持减少升级、保护平民、寻求谈判政治解决方案和国际努力以政治方式解决危机。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+简评： 今天， 沙特外长会见了乌克兰总统特使， 这个消息我个人认为是个极好信号。 在沙特王子希望与中共国用人民币结算石油贸易的时候， 全世界都认为不可思议的， 因为石油是美元计价的， 而中共国又是支持俄罗斯对乌克兰的入侵的。 就在这个节骨眼上，出现这样的镜头， 会不会人民币结算石油的梦想已经破灭了呢。 明天3月20日， 听听郭先生的会不会解读这个内幕呢。 期待的很。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+🔗 [https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/](https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
