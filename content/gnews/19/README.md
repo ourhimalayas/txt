@@ -2,29 +2,34 @@
 ---
 
 
-## 在俄罗斯避免违约后 全球股市上涨金价下跌
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2189231/)
+## 【G时新闻】瑞士银行公开俄罗斯富豪资产 价值达2000亿瑞郎
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2189251/)
 
-翻译：冰糖葫芦喵
+主播：加拿大温哥华扬帆农场 –文广
 
-编辑与校对：冰糖葫芦喵
+视频制作：加拿大温哥华扬帆农场 – GraceIshan
 
-《路透社》纽约3月18日报道，**因交易商对俄罗斯政府支付公债，全球股市周五收高。因在美国开加息周期开始后，对避险金属的需求所有缓解，而金价下跌。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/股市收高-e1647654447813.jpg)
-据报道，**俄罗斯财政部周四宣布，已为本周到期的两笔美元计价主权债券支付1.17亿美元的息票。**这一偿付平息了投资者的担忧，他们担心俄罗斯主权债务违约可能会扰乱本已紧张的市场。
+3月18日，瑞士银行家协会（Swiss Bankers Association）对外公开，俄罗斯富豪在瑞士银行存放的资产价值达2000亿瑞郎。
 
-Harris Financial Group执行合伙人Jamie Cox表示，**如果西方政府当初不允许用冻结资金支付俄罗斯主权债券的息票，**我们可能会陷入全球经济违约的境地。其结果是**，对全球金融体系的一些最严重的影响被推迟到未来——这是好事。**
+据《自由时报》报导，瑞士银行家协会总裁Marcel Rohner 在记者会上公布了俄罗斯富豪藏于瑞士银行的资产金额，估计总价值介于1500至2000亿瑞郎之间，此外，Rohner表示被银行冻结的确切金额将晚些时候公布。
 
-Cox补充道，在美联储可能的利率走势之前，科技股经历了如此深的抛售，现在我们正处于缓解性反弹之中。现在他们基本上消除了所有有关利率的不确定性，科技股可以重新定价。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/COX.jpg)Harris Financial Group执行合伙人Jamie Cox（图片来源：网络）
-截至收盘，周五，道琼斯工业平均指数上涨0.8%，至34,754.93点；标准普尔500指数上涨1.17%，至4,463.12点；纳斯达克综合指数上涨2.05%，至13,893.84点。
+报导称，由于俄罗斯2月底非法入侵了乌克兰，因而瑞士政府加入了欧盟对俄罗斯的第一轮经济制裁，被列入制裁名单的俄罗斯客户将不能再从其瑞士银行的账户上提款，存款金额也不能超过10万瑞郎。
 
-新闻来源链接：
+瑞士社会民主党联合主席Mattea Meyer呼吁，瑞士政府应掐断普京及与之关系密切的俄罗斯富豪的资金来源，他强调，这些资金被用于战争，瑞士必须尽一切可能关闭资金源头。
 
-[Global equities rise, gold falls after Russia avoids default | Reuters](https://www.reuters.com/business/global-markets-wrapup-1pix-2022-03-18/)
+视频连接：https://www.gettr.com/post/p10o7tndec1
 
+编辑/上传：兴旺 青青
 
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

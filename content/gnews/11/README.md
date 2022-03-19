@@ -2,37 +2,25 @@
 ---
 
 
-## “中国已经站在历史的错误一边”并正在损害其声誉
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2189502/)
+## 台湾总统府：中共应承担应尽国际责任 制止俄罗斯侵乌克兰
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2189523/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2093.png)Getty图片
-《布赖特巴特》2022年3月17日报道，在周三公布的周二NPR的采访中，国务卿安东尼·布林肯回答了一个问题，即如果必须这样做的话，美国是否可以像孤立俄罗斯那样孤立中国。他说，在乌克兰的冲突中“中国已经站在了历史的错误一边”。如果中国向俄罗斯提供物质支持，“那就更糟了， 这是我们在非常仔细地观察的东西。 但我认为这在全球范围内对中国的声誉造成了真正的损害”。
+美国总统拜登与中共国家主席习近平通话，拜登提到对北京在台海胁迫与挑衅行为的担忧。总统府发言人张惇涵今天表示，我们注意到美国拜登总统重申对台湾的承诺，并强调维护台海和平稳定的重要性。我们感谢美国对台海安全的重视及对台湾的坚定支持。
 
-主持人史蒂夫·英斯基普（Steve Inskeep） 问道， “如果中国在一定程度上帮助俄罗斯，美国及其欧洲盟友是否有能力像孤立俄罗斯那样孤立中国？”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/164765823466606_P16377399.png)图片来源：联合新闻网
 
-布林肯回应说：“哦，当谈到乌克兰和俄罗斯的入侵时，中国已经站在了历史的错误一边。中国没有强烈反对它，这与中国一再重申《联合国宪章》的神圣性和包括国家主权在内的基本原则完全不符。因此，我们期待中国大声地、非常清楚地说出来。其次，当然，如果中国真的在这方面以某种方式向俄罗斯提供物质支持，那就更糟了。这是我们非常仔细地观察的东西。但我认为这对中国在亚洲、欧洲、非洲和世界其他地区的声誉造成了真正的损害，对此中国必须引起高度重视。”
+张惇涵表示，台海及印太区域的和平稳定，是区域内各方的共同责任，也是国际社会的共同期待。盼中共国作为区域的一员，也应负起共同责任。
 
-简评:
+简评：台湾的地理位置可谓牵一发而动全身，在中美两大国博弈中夹缝生存的台湾如今到了最紧要的关头，卧榻之边岂容他人酣睡，让中共熄灭侵略的野心很难，但同时还有丝毫的寄盼，一步错生灵涂炭。只有强大的美国可以庇佑台湾，愿台湾能平安渡过此劫，在国际社会的共同协力下，灭共！止战！
 
-美国的态度表明了它认识到中共和俄罗斯结成了邪恶的轴心国，但美国在尽最大努力，通过接触和喊话，希望分化中俄，争取能够减少北约和欧盟的压力，减少乌克兰平民的死伤。进而能对中俄分而治之，各个击破。
-我们新中国联邦人是CCP的克星，我们支持美国的努力。中共政权无论是和普京绑在一起，一条道走进火葬场，还是躲躲闪闪打太极，假装中立继续欺骗世界人民，但是他们的宿命，因为俄乌战争和中共病毒及疫苗的灾难，再也无力回天了。
+新闻来源：[联合新闻网](https://udn.com/news/story/6656/6175990)
 
-新闻链接: [https://www.breitbart.com/clips/2022/03/17/blinken-on-ability-to-isolate-china-chinas-already-on-the-wrong-side-of-history-and-is-hurting-its-reputation/](https://www.breitbart.com/clips/2022/03/17/blinken-on-ability-to-isolate-china-chinas-already-on-the-wrong-side-of-history-and-is-hurting-its-reputation/)
+撰稿/发布：一叶知秋
 
-翻译/简评: Sima（正道主义）
-
-PR:感恩
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

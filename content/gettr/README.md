@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 3:51 AM (UTC)`
+
+【Ukraine Rescue】 03/16/22 NFSC & ROLF volunteer Wengeqixiong said the Ukrainian people showed that Ukraine is a nation with dignity that deserves respect. They are not like us. The 1.4 billion Chinese people are living like dogs and pigs under the brainwashing system of the Chinese Communist Party.<br/><br/>【乌克兰救援】 03/16/22 新中国联邦和法治基金救援行动站长文戈七雄战友谈到对乌克兰民族的感受时表示，乌克兰人是值得我们尊重的民族，他们是有尊严的。不像我们，14亿中国的老百姓是在这个共产党的这种洗脑的体制下，生活的猪狗不如。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group9/getter/2022/03/19/03/6eabe5d4-5aa2-abf2-0370-b1e03a2f4d63/out.jpg)
+
+---
+
 `@miles 3/19/2022 3:35 AM (UTC)`
 
 3/17/2022 Miles Guo: The three scenarios that can never happen in the Russia-Ukraine war are Putin surrenders, turns against the CCP, and wages a nuclear war. The US is using its past military technologies and equipment to help Ukraine beat down the Russian troops.<br/><br/>3/17/2022 文贵直播：俄乌战争中绝不可能发生的三件事 - 普京投降、对中共反戈一击和打核战；美国用过往的军事技术和装备帮乌克兰把俄军打趴下
@@ -148,13 +155,6 @@
 
 Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Ukraine, an unusually large tent was erected<br/>Equipped with pole heaters, diesel generators, charging stations, Starlink WiFi<br/>There, women and children seeking shelter will find food, water, daily necessities<br/>And the comforting aroma of freshly brewed coffee<br/>Despite the threat of war, the harassment from mainstream media and the hindrance from CCP<br/>Our resolve, action and rescue will carry on<br/>Regardless of race, nationality or political views<br/>For the belief in the path to the righteousness<br/>Until the destruction of the CCP<br/>We shall never rest<br/><br/>#新中国联邦人<br/>乌克兰救援：<br/>穹顶大帐篷，充电、供暖、星链Wi-Fi，<br/>热水食物日用品，更有现磨咖啡的馥郁惬怀；<br/>病毒肆虐，主媒捣乱，中共使坏，<br/>岂是行动的羁绊；<br/>无关肤色、国家和党派，<br/>何况那避乱他乡的万名童孩。<br/>正道主义情怀，我们绝无懈怠，<br/>只为消灭中共这万恶的根源！
 ![img](https://media.gettr.com/group8/origin/2022/03/18/03/44ddba4a-a03e-b4dc-393e-2fc75bd854d2/out.jpg)
-
----
-
-`@miles 3/18/2022 5:01 PM (UTC)`
-
-
-![img](https://media.gettr.com/group17/liveorigin/2022/03/18/17/664263a7-51fd-5d16-2dc8-f520f7515b5e/db77deaeeaadf94601c75dae84bb7948.jpg)
 
 ---
 
