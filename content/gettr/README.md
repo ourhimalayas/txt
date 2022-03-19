@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 1:28 PM (UTC)`
+
+【Ukraine Rescue】03/18/2022 David introduces the NFSC Rescue Operation will focus more efforts on the frontline in Medyka to better enhance security and services. Our shuttle bus service is suspended for the time being and will resume if needed in the future.<br/><br/>【乌克兰救援】03/18/22 大卫介绍新中国联邦救援行动会将更多的力量集中到前线梅迪卡，以便更好的提升安保和服务工作。救援大巴车暂停，根据情况重启。
+![img](https://media.gettr.com/group36/getter/2022/03/19/13/f3814818-007a-a8ff-b6a6-563fa2389e8e/out.jpg)
+
+---
+
 `@miles 3/19/2022 1:23 PM (UTC)`
 
 【Ukraine Rescue】03/18/2022 David: I learned that some Asian faces showed up here were all sent by the CCP and claiming them as press from Taiwan, or Japanese or Korean. We must ensure the safety and security of our fellow fighters at the frontline and our Medyka site, and we should also demonstrate our professionalism to the world to gain their recognition to the New Federal State of China and Rule of Law Foundation.<br/><br/>【乌克兰救援】03/18/2022 大卫：我们已经发现有中共派来的亚洲面孔的人，自称是台湾媒体，或是日本，韩国人，我们应当保证前線戰友梅迪卡营地的安保和安全，向世界展示我们的专业化，赢得世界对新中国联邦和法治基金的认可<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -148,13 +155,6 @@
 
 2022.03.18 晚 《新中国联邦新闻》波兰记者祝新中国联邦早日推翻中共政权； 新中国联邦正式走向世界政治舞台
 ![img](https://media.gettr.com/group47/origin/2022/03/19/00/fe21098f-f673-0dad-22df-3481f3fa9c59/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 12:15 AM (UTC)`
-
-
-![img](https://media.gettr.com/group15/origin/2022/03/19/00/2a3c5ed6-81e4-5c07-741d-769a0e1a764d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
