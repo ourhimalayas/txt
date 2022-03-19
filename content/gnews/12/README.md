@@ -2,27 +2,22 @@
 ---
 
 
-## 视频|前常委曾庆红预感中共末日将至
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2190188/)
+## 太空探索公司今晚将发射53颗星链卫星
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2190219/)
 
-制作：香草山视频部
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-130.jpg)
+图片来源：https://bbs.wenxuecity.com/
 
-郭先生揭秘说，曾庆红曾经告诉前去拜访他的人，要抓好农业并安全储存粮食，做好中长期打算，因为只有活着才能搞好经济。另一位福建的金融家拜访曾庆红，在其暗示下迅速抛空所有大陆和香港的股票，保住了资产。
+美联社3月18日报道，伊隆·马斯克的太空探索技术公司(SpaceX)计划周五晚上在佛罗里达发射53个星链卫星，这个时间点是在公司成立20周年后仅仅几天。
 
-对于中共内斗，曾表示，陈峰打着王岐山的旗号，到处不停地圈地、圈钱，并把盗国资产转移到海外，参与完全不成熟的国际政治，王岐山早晚要栽在陈峰手中。
+公司旨在于晚上东部时间11:23pm在佛州卡纳维拉尔角复合体40号航天站通过猎鹰9号运载火箭发射航天器，起飞时间是瞬间的，意味着有任何问题的话都会延长一天到周六晚上。
 
-对于俄乌战争，曾庆红则明确地哀叹道，美国会是最大的赢家，而中共将彻底输掉这场国际游戏。
+马斯克和SpaceX已经分次将星链终端交了给乌克兰政府以抵抗来自俄罗斯的侵略。
 
-发稿：Daxia
+乌克兰副总统周五发推说政府已经收到几个星链终端了传递，允许他们从超过2000个星链获得高速上网。当俄罗斯封住了英特网，乌克兰变得更加融入世界，感谢马斯克。同时波兰的石油天然气公司也将终端给到了乌克兰。目前的天气有30%的可能含影响发射。
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+#### 新闻来源： [SpaceX aims for late night Starlink launch](https://www.upi.com/Science_News/2022/03/18/SpaceX-Starlink-Florida-launch/1631647632222/)
 
  
 

@@ -2,27 +2,45 @@
 ---
 
 
-## 前常委曾庆红预感中共末日将至
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2190241/)
+## 中共大厦将倾征兆明显—四大欠
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190289/)
 
-撰稿：纽约磐石农场—在远方
+作者：纽约香草山农场教育部-马克文、朱丽叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
+近日，根据文贵大直播连续爆料，中共大厦将倾，征兆明显，总结为四大欠：
 
-在3月17日的大直播中，郭文贵先生表示，中共前常委曾庆红精准地看清了国际国内形势，预感到中共将迅速惨败。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2097.png)
-郭先生揭秘说，曾庆红曾经告诉前去拜访他的人，要抓好农业并安全储存粮食，做好中长期打算，因为只有活着才能搞好经济。另一位福建的金融家拜访曾庆红，在其暗示下迅速抛空所有大陆和香港的股票，保住了资产。
+ 1）国库欠银：国内公务员发不出工资，国际上穷兵黩武。近期，北京市政府，无钱向公务员开支，向国库求助。大陆能全额发放公务员工资的地区，寥寥无几，同时中共发动世界大战，向俄输送巨额战争费用。体制早已腐朽溃烂，败迹明显。
 
-对于中共内斗，曾表示，陈峰打着王岐山的旗号，到处不停地圈地、圈钱，并把盗国资产转移到海外，参与完全不成熟的国际政治，王岐山早晚要栽在陈峰手中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-79.png)
 
-对于俄乌战争，曾庆红则明确地哀叹道，美国会是最大的赢家，而中共将彻底输掉这场国际游戏。
+2）人口欠壮：养老金难以承担。 中共新规定，提倡三孩政策。除老龄化原因之外，更重要的理由是：中共难以承受养老保险的巨大经济压力。
 
-链接：[3/17/2022 文贵直播](https://www.gettr.com/post/p10l90940cb)
+3）经济欠涨：因病毒疫情，经济接近崩溃。 疫情以来，中共以各种理由，打击中小企业，摧垮民营经济，导致，经济只跌不涨。经济瘫痪之兆明显。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1EA879DF-7724-4FF4-9043-FD7159BE9981.jpeg)
+4）民生欠安：病毒疫苗搅得民不聊生。 疫情以来，百姓被强制打疫苗，天天做核算，把疫情变成控制百姓的武器，百姓生活被严重干扰，自由被全部剥夺。
 
-编辑/总编/审核：飞虹
+中共归根到底，是把百姓当成鱼肉，无民心的体现。人间正道是沧桑，中共难支，征兆明显，大厦将倾，国将不国。
 
-校正/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
+资料链接:[https://gettr.com/post/p1051m93814](https://gettr.com/post/p1051m93814)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
+
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
