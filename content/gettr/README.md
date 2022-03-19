@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 4:44 AM (UTC)`
+
+3/17/2022 Miles Guo: The Russia-Ukraine war is the rivalry of comprehensive strengths between nations. “Xi the Sun” and “Putin the Great” are more selfish than the ordinary people. Xi and Putin are willing to sacrifice the lives of tens of millions of people, provoke wars, or even destroy the world only to preserve the privileges of their families and keep themselves alive.<br/><br/>3/17/2022 文贵直播: 俄乌战争是国与国之间综合实力的较量；习太阳和普京大帝比普通老百姓更加自私，他们不惜牺牲千万人的生命，挑起战争甚至毁灭世界，只为维护自己家族的特权和让自己活着！<br/>
+![img](https://media.gettr.com/group20/getter/2022/03/19/04/848119c8-c6ca-0fc6-e92c-30587ec28ec7/out.jpg)
+
+---
+
 `@miles 3/19/2022 3:51 AM (UTC)`
 
 【Ukraine Rescue】 03/16/22 NFSC & ROLF volunteer Wengeqixiong said the Ukrainian people showed that Ukraine is a nation with dignity that deserves respect. They are not like us. The 1.4 billion Chinese people are living like dogs and pigs under the brainwashing system of the Chinese Communist Party.<br/><br/>【乌克兰救援】 03/16/22 新中国联邦和法治基金救援行动站长文戈七雄战友谈到对乌克兰民族的感受时表示，乌克兰人是值得我们尊重的民族，他们是有尊严的。不像我们，14亿中国的老百姓是在这个共产党的这种洗脑的体制下，生活的猪狗不如。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -146,15 +153,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动-乌克兰救援每日汇报
 ![img](https://media.gettr.com/group6/origin/2022/03/18/19/513dca5b-e6c4-afa5-b121-6e4f2c9050d8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@torontofarmen 3/18/2022 3:04 AM (UTC)`
-
-Helping hands from the NFSC for the Ukrainians!<br/>At Medyka, the boarder of Ukraine, an unusually large tent was erected<br/>Equipped with pole heaters, diesel generators, charging stations, Starlink WiFi<br/>There, women and children seeking shelter will find food, water, daily necessities<br/>And the comforting aroma of freshly brewed coffee<br/>Despite the threat of war, the harassment from mainstream media and the hindrance from CCP<br/>Our resolve, action and rescue will carry on<br/>Regardless of race, nationality or political views<br/>For the belief in the path to the righteousness<br/>Until the destruction of the CCP<br/>We shall never rest<br/><br/>#新中国联邦人<br/>乌克兰救援：<br/>穹顶大帐篷，充电、供暖、星链Wi-Fi，<br/>热水食物日用品，更有现磨咖啡的馥郁惬怀；<br/>病毒肆虐，主媒捣乱，中共使坏，<br/>岂是行动的羁绊；<br/>无关肤色、国家和党派，<br/>何况那避乱他乡的万名童孩。<br/>正道主义情怀，我们绝无懈怠，<br/>只为消灭中共这万恶的根源！
-![img](https://media.gettr.com/group8/origin/2022/03/18/03/44ddba4a-a03e-b4dc-393e-2fc75bd854d2/out.jpg)
 
 ---
 

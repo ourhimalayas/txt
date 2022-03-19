@@ -2,79 +2,43 @@
 ---
 
 
-## Coinbase 钱包推出 Coinbase Pay 并宣布与 Solana (SOL) 兼容
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2189886/)
+## 中国演员邓伦因逃税被罚款1.06亿元
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2190060/)
 
-翻译：香草山商业部——文锤
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-223.png)图片来自网络
+《海峡时报》近日报道，根据上海税务机关周二（3 月 15 日）发布的一份报告，中国著名演员邓伦因逃税被罚款 1.06 亿元人民币（2270 万新元）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+参演了神话爱情剧《香蜜沉沉烬如霜》的29岁邓伦在微博上道歉，他在这个平台有4000万粉丝。
 
+他写道：“我已经反省了自己的行为，理解自己错误的严重性。我接受税务机关的一切决定，对后果负责，今后继续努力。”
 
+据有关部门称，2019年至2020年，邓虚报、偷逃个人所得税4766万元，同期少缴个人所得税1399万元。
 
+报道称，他主动补缴税款4455万元，并主动承认其他涉税不法行为。
 
+上海税务机关在另一份报告中表示，他们怀疑邓存在偷税漏税的行为，并敦促他改正，但他的做法并不令人满意。他被责令支付1.06亿元罚款、滞纳金和未缴税款。
 
-Coinbase 的数字钱包 Coinbase Pay通过集成 Solana 以及它的 SOL 和 SPL 代币为其添加了一个字符串。此外，钱包用户现在可以直接从浏览器扩展购买加密货币。随着用户数量的不断增长以及其对 EVM 兼容区块链之外的多链支持，Coinbase Pay 很可能使 MetaMask 钱包黯然失色。
+这位演员在微博和短视频平台抖音上的个人账户以及他工作室的社交媒体账户后来被暂停并无法使用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/blob-1.jpg)图片来源于网络
+据中国娱乐新闻媒体报道，邓的名字也已从他在一些流媒体网站上主演的电视剧中删除，包括《爱的灰烬》、《因为有你》（2016 年）和《甜梦》（2018 年）。
 
-Coinbase 钱包现在集成了 Solana
+一些品牌也急忙跟他解约。化妆产品公司L’Oreal 和家电公司云米等企业结束了与他的伙伴关系。
 
-Coinbase 的数字钱包Coinbase Wallet的 Google Chrome 扩展现在与Solana (SOL)区块链生态系统兼容。因此，它现在允许存储 Solana 自己的 SOL 和 SPL 代币。
+他不是中国第一个备受瞩目的逃税名人。
 
-根据新闻稿，这是 Solana 在 Coinbase 上实施的第一阶段，预计将添加更多工具。例如，钱包将在未来集成用户与 Solana App 交互的可能性，甚至可以直接管理他们从扩展中收集的不可替代币(NFT)。
+2021年12月，中国最大的直播女卖主薇娅被罚款13.4亿元。 2018 年 10 月，一线女演员范冰冰在神秘消失三个月后，也被罚款约 8.8 亿元人民币。
 
-将 SPL 代币添加到 Coinbase Pay是钱包上与以太坊区块链不兼容的代币的首次集成，这与 Avalanche、Polygon 或 BNB 链等已经支持的网络不同。
+为啥能逃这么多，还有那么多人，税务和银行系统都有漏洞？中共国的大数据不是很厉害吗？可见失去造血能力的中共国在经济方面已经走入存量博弈时代，所以开始拿明星网红开刀了，中共不灭，人人自危！
 
-还应该注意的是，对于已经拥有 Solflare 或 Phantom 等 Solana 区块链固有钱包的 Solana 用户，只需导入其恢复短语即可将其直接转移到 Coinbase Pay。
+参考链接：
 
-“今天的更新使您可以更轻松地跨更多网络跟踪所有加密货币，而无需同时管理多个钱包应用程序。”- Coinbase 新闻稿
+[https://www.straitstimes.com/life/entertainment/chinese-actor-deng-lun-fined-227-million-for-tax-evasion](https://www.straitstimes.com/life/entertainment/chinese-actor-deng-lun-fined-227-million-for-tax-evasion)
 
-Coinbase Pay拥有 1300 万用户和多链兼容性，是著名的 MetaMask 钱包的直接竞争对手，后者专门支持与 EVM 兼容的区块链，因此不包括 Solana。
+*编辑：金生水*
 
-并行推出 Coinbase Pay
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-121.png)图片来源于网络
-
-Coinbase Wallet 的第二个重要公告：现在可以通过Coinbase Pay 直接从浏览器扩展购买加密货币。
-
-通过 Coinbase 钱包浏览器扩展使用 Coinbase Pay 付款
-
-根据 Coinbase 的说法，这个新工具旨在简化用户的生活，避免他们不得不通过多次操作来为他们的投资组合提供加密货币。事实上，在那之前，有必要从专门的购买平台购买加密货币，然后将资金转移到所需钱包的地址。
-
-对于新用户，只需将他们的 Coinbase 钱包链接到 Coinbase 网站（需要事先注册）。完成此步骤后，他们将直接从扩展程序中选择他们希望购买的加密货币、交易金额，并完成交易。
-
-应该赞赏这样的措施，因为确实，购买加密货币并将其转移到钱包的许多步骤可能会让新手感到困惑，以至于妨碍更多人使用。
-
-**原文作者：Maximilien Prué**
-
-**原文阅读：**
-
-**[Coinbase Wallet lance Coinbase Pay et annonce sa compatibilité avec Solana (SOL) (cryptoast.fr)](https://cryptoast.fr/coinbase-wallet-coinbase-pay-compatibilite-solana/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-6.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
