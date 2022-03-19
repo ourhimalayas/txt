@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 2:16 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月18日第14天当日救援统计：<br/>巴士救援难民：166人<br/>Medyka救援站接待：约200人<br/>巴士发车：3次<br/><br/>累计救援总计：<br/>巴士救援难民：1838人<br/>Medyka救援站接待：约6386人<br/>巴士发车：36次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 14 - Date: March 18, 2022 :<br/><br/>Refugees Rescued by Bus: 166 people<br/>Medyka Rescue Station Reception: about 200 people<br/>Bus Departures: 3 times<br/><br/>Total：<br/>Refugees Rescued by Bus: 1838 people<br/>Medyka Rescue Station Reception: about 6386 people<br/>Bus Departures: 36 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group42/getter/2022/03/19/14/eda93f33-eb40-1cc7-bfd0-703b6500018b/b751192956d4bdecd9d64f41d3e18494.jpg)
+
+---
+
 `@miles 3/19/2022 2:05 PM (UTC)`
 
 【Ukraine Rescue 】03/13/2022  Voice of America journalist Kalyl Bentwila is interviewed by our volunteers. He says that Western countries, the United Nations, and international organizations should support the NFSC and work with Mr. Guo to take down the Chinese Communist Party and change China into a better and more humane society. He is proud of Mr. Guo and the Whistleblowers’ Movement.<br/><br/>【乌克兰救援】03/13/2022  美国之音的记者（Voice of America) 名叫Kalyl Bentwila，他在直播的时候接受了我们义工的采访。他表示，西方国家、联合国、和国际组织都应该支持新中国联邦，跟郭先生一起推翻中国共产党，改变中国，把中国变成一个更加美好和人性化的社会。 他为郭先生和爆料革命感到骄傲。<br/> <br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -148,13 +155,6 @@
 
 
 ![img](https://media.gettr.com/group31/origin/2022/03/17/02/3ad0cf32-fbb6-1c03-6313-609c184c52cd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 1:14 AM (UTC)`
-
-2022.03.18 晚《新中国联邦新闻访谈》习近平等待5月份疫苗灾难；FBI抓美民运大佬，实为中共特务；俄罗斯曝习近平今秋攻台
-![img](https://media.gettr.com/group11/origin/2022/03/19/01/5d2fb57b-50c8-5084-18b5-b8d3ec893e98/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

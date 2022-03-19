@@ -2,12 +2,18 @@
 ---
 
 
-## 人贩子成了乌克兰难民妇女儿童的新威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192056/)
+## 2022年3月19日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2192147/)
 
-03/18/2022 随着大量难民逃离乌克兰，乌克兰儿童联盟的联合执行董事Tatiana Kotlyarenko说，妇女和儿童正成为边境贩运者觊觎的目标。这不是潜在危机，已有实际案例发生。
+制作：DT新闻组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0489.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
 
  
 

@@ -2,44 +2,25 @@
 ---
 
 
-## 2022年3月17日七哥直播要点
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2191755/)
+## 香港中共病毒大爆发：棺材和停尸房间已用尽
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2191858/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-30.png)
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-20.36.23.png)
+近日香港中共病毒大爆发，港共政府采取清零政策，关闭了商店和街头抗议活动。
 
-郭文贵先生：
+香港目前的剧院、博物馆、学校、健身房和图书馆全部都关闭了，迫使人们患上了幽闭恐惧症。港共政府还在推行中共病毒疫苗接种，但目前无论是哪一种方式，全封闭隔离或者是接种中共病毒疫苗，并没有控制中共病毒大感染，甚至因为这两项措施导致了更多的死亡。
 
-这个世界上让你生存的不是粮食，真不是黄金，而是你提前预知灾难的能力和你处理灾难的准备，这才是爆料革命的核心。
+中共病毒大流行之前，香港人争取自由，走上街头的抗议活动频繁发生。共产党最开始就要要用中共病毒来压制香港，杀害香港人的。自中共病毒大流行以来，不允许在公共场合聚集超过4个人。目前无论是在香港本地，或者想要离开香港的人都要接受严苛的中共病毒政策，包括隔离和清零政策。香港目前的死亡率是世界上最高的，棺材和停尸房间已经用尽，死去的人的尸体胡乱堆积在医院的病房。
 
-我们要包容万千，不能有宗教分别，不能有党派分别，不能有种族分别，不能有贫贱高低分别。
+撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/slogan_画板-1-副本-1.png)
+欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-我们谁都不在乎，我们谁都不再懦弱，不是任何一个种族任何一个人随便就可以欺负我们，我们有一个新中国联邦在背后，谁都别想碰我们。
-
-我们在全世界联合国的国际救援组织下，我们会安排新中国联邦由法治基金，法治社会主导的到乌克兰战场的救助我们的同胞，还有美国朋友和所有其他国家的能救的人。
-
-中共啥时救过人？中共一直都是只毁人。
-
-灭共的新中国联邦人在全世界上独立的、没任何政治背景的、没有政治诉求的、没有条件的在救人，特别在全世界正酝酿着的排华、反华、辱华的时刻，干干净净的新中国联邦人得到了世界的尊重，不但给中国人脸上贴金，连整个亚裔人的脸上都有自豪，我们新中国联邦就是要灭共的！
-
-- 参考链接[http://Watch MILES GUO live on GETTR 2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](http://Watch%20MILES%20GUO%20live%20on%20GETTR%202022年3月17日%20文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向)
+* * *
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-65.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
-
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

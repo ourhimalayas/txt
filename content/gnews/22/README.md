@@ -2,13 +2,16 @@
 ---
 
 
-## 现在沙特认为美元的霸主地位正摇摇欲坠
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191332/)
+## 20220317郭文贵大直播 ：中国的自然资源已被共产党摧毁殆尽
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2191670/)
 
-03/15/2022 班农战斗室：沙特现在认为美元霸主地位正在摇摇欲坠 他们似乎想给美元以致命一击
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
