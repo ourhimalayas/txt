@@ -2,28 +2,33 @@
 ---
 
 
-## 美国支援乌克兰“弹簧刀”无人机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2191482/)
+## 东欧4国家驱逐俄罗斯外交官
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2191729/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月16日，美国媒体消息，总统拜登当天宣布对乌克兰增加军事援助，包括100架外号“弹簧刀”的小型无人机。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-40-scaled.jpg)
-这款无人机2.7公斤重，61公分长，轻巧、精准，可以装进一个后背包，由步兵操作，轰炸几十英里外的地面目标。每架成本不到6000美元。另外，这款无人机以直接撞击目标的方式引爆小型弹头，又称为神风无人机。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-报导称，美国送这款武器给乌克兰，代表西方对乌克兰的军事援助已进入一个新阶段。
+据《大纪元》3月19日报道，由于俄罗斯入侵乌克兰，爱沙尼亚、拉脱维亚、立陶宛和保加利亚等前苏联阵营国家，驱逐俄罗斯外交官，藉此给予俄罗斯政府更大的压力。
 
-链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-22.jpg)（图片来自网络）
 
-- [U.S. sending Switchblade drones to Ukraine in $800 million package](https://www.politico.com/news/2022/03/16/us-sends-switchblade-drones-to-ukraine-00017836)
+据悉，爱沙尼亚外交部18日表示，3名俄罗斯外交官违反《维也纳外交关系公约》（Vienna Convention on Diplomatic Relations），这三人都直接、积极地破坏了爱沙尼亚的安全，并为俄罗斯的军事行动进行辩护宣传。因此，将3名俄罗斯外交官列为“不受欢迎人物”（persona non grata），限期72小时离境。
 
+同时，拉脱维亚外长林科维奇（Edgars Rinkevics）也表示，该国驱逐了3名俄国外交官，因为他们从事了“违背他们外交地位的活动”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+立陶宛外交部则在一份声明中说，立陶宛已驱逐了4名俄罗斯外交官。该机构表示，“做出这样的决定是为了声援乌克兰，乌克兰一直面临俄罗斯前所未有的军事入侵”。
 
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此外，保加利亚政府也宣布10名俄罗斯外交官为不受欢迎人物。这些外交官同样被要求在72小时内离境。
+
+据了解，外交官若被列为“不受欢迎人物”，可能失去外交豁免权的保护。
+
+此前，这4个国家都先后表示支持乌克兰，谴责俄罗斯的侵略行为。
+
+参考链接：
+[https://www.epochtimes.com/b5/22/3/19/n13657592.htm](https://www.epochtimes.com/b5/22/3/19/n13657592.htm)
+
+总编：青城道姑
+校对发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
