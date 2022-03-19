@@ -2,37 +2,26 @@
 ---
 
 
-## 有声|乌克兰中国留学生亲述新中国联邦救援经历
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188682/)
+## 【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2188796/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月15日，两位乌克兰中国留学生接受新中国联邦采访，亲述俄乌战争爆发后，在新中国联邦、治基金的帮助下，逃离基辅来到波兰的经历，感恩新中国联邦、法制基金的救助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1967.png)
-据两位留学生所述，在第一声爆炸之前，没有人相信会发生战争。而在战争持续几天后，他们意识到必须自救。通过微信朋友圈，他们看到新中国联邦、法制基金的救援信息，并立即打通了救援电话。他们采纳了新中国联邦战友建议的救援路径，顺利逃离基辅，到达利沃夫。而后，他们乘坐新中国联邦的大巴，到达波兰边境小镇热舒夫，随后抵达克拉利夫的酒店。一路上，他们得到救援团队暖心的关怀。
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2079.png)   图片来源：卫报
+据《布雷特巴特新闻网》（Breitbart News）3月18日报道，英国广电监管机构—通讯管理局（Ofcom）3月18日宣布，俄罗斯国资电视频道“今日俄罗斯”（RT）在英国的广播执照被吊销，并立即生效。
 
-与中共置同胞性命于不顾形成强烈的对比，新中国联邦在战争爆发后，第一时间对同胞展开的救援行动，使两位获救留学生无限感慨。
+在欧盟要求法国和卢森堡的卫星供应商禁止播放RT电视台后，本月早些时候它已在英国停播，但直到今天才被吊销执照。
 
+Ofcom声称，由于俄罗斯最近实施的媒体法将有效地“将任何偏离俄罗斯官方新闻叙事的独立新闻，特别是有关入侵乌克兰的新闻定为犯罪”，因此RT电视台将不太可能遵从英国的公正性原则，所以它不适合在英国运营。
 
+Ofcom的首席执行官梅拉妮·道斯 (Melanie Dawes)女士在一份声明中说：“在我们英国，表达自由是我们强烈捍卫的东西，对广播公司采取行动的标准理应设得很高。经过独立的监管程序，我们今天发现，RT电视台已不适合在英国持有许可证。因此，我们吊销了它的英国广播执照。”
 
-文字版原文：[乌克兰中国留学生亲述新中国联邦救援经历](https://gnews.org/zh-hans/2184512/)
+Ofcom说，在作出吊销执照的同时，英国正针对“RT的新闻及其俄军侵乌时事报导应有的公正性”进行29项调查。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+自俄罗斯入侵乌克兰以来，大科技公司在整个欧洲开展了针对俄罗斯媒体的审查运动。在过去几周，脸书、微软、谷歌和Tiktok等科技公司在欧盟的授意下，对RT电视台和俄罗斯卫星通讯社新闻（Sputnik News）采取了不同程度的封锁行动。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*责编：白夜*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[UK Media Regulator Revokes Broadcasting Licence of Russia’s RT News](https://www.breitbart.com/europe/2022/03/18/uk-media-regulator-revokes-russias-rt-broadcasting-licence/)
 
  
 

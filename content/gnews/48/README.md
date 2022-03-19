@@ -2,81 +2,125 @@
 ---
 
 
-## 朗诵佳作欣赏《答案在风中飘荡》
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2183803/)
+## 人间地狱：三十万人被困马里乌波尔（Mariupol）“活”于俄军炮轰之下
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2185600/)
 
-# 
+翻 译：尚劲哥 
+原文作者：Asami Terajima
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Mariupol.jpeg)*A man warms his hands near a stove in Mariupol, a southeastern city in Ukraine besieged by relentless Russian attacks. Hiding under heavy Russian bombardment, Mariupol residents have been sheltering in freezing basements mostly cut off from electricity and access to clean water. (Evgeniy Maloletka)*
+当Mariupol(马里乌波尔) 记者Artem Popov 谈起他的家乡，声音就像梗在了喉咙里。
 
-视频编辑/字幕：文朗
+乌克兰东南部海港城市马里乌波尔是俄罗斯侵略军对乌克兰残酷战争的最前线。Popov 说，在城市周围走动，会很危险，因为每一天，俄军的飞机都会对城市的平民区进行轰炸。
 
-**鲍勃·迪伦（Bob Dylan）**是美国创作歌手，艺术家和作家，在流行音乐界和文化界的影响已超过50年。他的大多数著名作品都来自1960年代的反抗民谣，也被广泛认为是当时国新兴的反叛文化的代言人。他的部分早期作品成为了当时美国民权反战运动的圣歌，例如《答案在风中飘荡》（*Blowing in the Wind*）。
+“眼泪不会在马里乌波尔停止”， 他对基辅独立报说，每一天，对于战争恐惧和伤痛的泪水，都在每一个居民的心里流淌。
 
-尽管它被描述为一首抗议歌曲，仍引起了一系列关于和平，战争和自由的责问。叠句“我的友人啊，答案在空中飘荡”被描述为“不可理喻、模棱两可的是：或许答案如此显而易见，就在你的脸上，又或许答案如风般无形，难以明了”
+在3月8日逃离之前，这位三十岁的乌克兰人，全部人生在这里度过，他说，这里曾经是一个繁华的港口城市，拥有从著名清真寺到海滩等众多旅游景点，如今它就像是在末日电影里，因为几乎所有的城市街道都被炸毁了。
 
-一如我们目前的状况：自2019年新冠病毒横行，疫苗被全球各国执政者统一化一的坚决推行着！大量质疑的声音被强权压制。郭文贵先生不顾一切的大声疾呼： 疫苗没用，疫苗有毒！ 除了我们新中国联邦人坚定相信文贵先生的警告外，世人却大多是嘲笑的，不信的和装聋作哑的，一如圣经里的教导：
+一直看着它令人恐怖。
 
-**耶和华对我说： 人子啊，你住在叛逆的人当中。他们有眼睛卻视而不见，有耳朵却听而不闻，因为他们是叛逆的人。**以西結书 12:1-2
+我的邻居，朋友，亲戚，熟人，和我生活中美好回忆的地方都被炮火摧毁了。
 
-在《答案在风中飘荡》中，迪伦引用以上经文并改编成“一个人究竟得有几只耳朵 ……？”和“人究竟能多少次转过头去/假装什么也没有看见？”
+自从俄罗斯2月24日全面入侵以来，被围困的马里乌波尔遭受了最严重的苦难，俄罗斯军队在3月2日有效的包围了这座城市，之后就一直进行猛烈轰炸。
 
-**醒来吧，善良单纯的人们：睁开你的眼睛，打开你的耳朵，让圣灵带领你的心去听，去看，去想，不要再让答案飘荡在空中了！**
+在战前，马里乌波尔的总人口超过40万，根据乌克兰副总理Iryna Vereshchuk消息，截至3月14日，这座被围困的城市仍有大约300000名平民，外交部长说，这包括3000新生儿，他们缺乏药物和食物。在3月14日，15日两天，情况出现过改善，当时有超过20000人能够撤离。
 
-**请欣赏战友文朗的朗诵：**
+其他人仍然被困在城中，无电无水无气，两周前俄军围攻以来，这座城市的互联网和移动网络已经关闭，该市的消息只能通过一些偶然的联系人和一些留在马里乌波尔的国际摄影师获得。
 
-**《答案在风中飘荡》（*Blowing in the Wind*），创作者：鲍勃.迪伦 (Bob Dylan)**
+人们被迫在冰冷的地下室挨饿受冻，以躲避俄军无差别的轰炸。
 
-How many roads must a man walk down 人究竟要经过多少旅程
+俄罗斯不断打破商定的将平民撤离马里乌波尔，并将救灾物资送入被围困地区的停火协议，关键物资正变得危险的稀缺，一周前，杂货店和药店要么缺货，要么被洗劫一空。
 
-Before you call him a man? 才能够蜕变成男子汉
+国际红十字委员会警告说，如果不立即确保马里乌波尔居民的安全和人道主义救援，他们将会面临“最坏的情况”。
 
-how many seas must a white dove sail 白鸽要经过多久的翱翔
+乌克兰总统泽连斯基3月16日表示，与克里姆林宫的和谈开始听起来“更加现实”，但需要更多时间来确保谈判结果符合基辅的利益，泽连斯基的顾问 Mykhailo Podolyak 表示，谈判非常困难，但肯定有“妥协的余地”，并补充说与俄罗斯的停火谈判将在今天继续进行。
 
-Before she sleeps in the sand? 才能够重返地面安息
+此前与俄罗斯的停火谈判并未取得基辅所希望的结果，莫斯科提出了前往俄罗斯或其盟友白俄罗斯的平民疏散路线，泽连斯基认为这是完全不道德的。
 
-how many times must the cannon balls fly 炮弹要历经过多少次飞越
+据乌克兰总统办公室顾问Oleksiy Arestovych称，自俄罗斯全面入侵以来，马里乌波尔已有包括儿童在内的2500多人丧生，他说实际数字可能更高，因为在俄罗斯不断轰炸下无法统计真实的数字，俄罗斯人正在摧毁这座城市。
 
-Before they are forever banned? 才能换来和平
+##### 人间地狱
 
-The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
+一动不动的尸体躺在街道上，在猛烈的轰炸下，紧急服务部门已经很难收集遇难者的尸体，那些被收集起来的死者被匆匆的埋进万人坑中。
 
-The answer is blowing in the wind. 答案在风中飘荡
+马里乌波尔当局报告说，由于食物和水严重短缺，当地居民一直在砍柴做饭，并在零度以下的严寒中取暖，那些生活在该市轰炸最严重的地区已经沦为使用家中现已废弃的散热器或食用融化的雪。
 
-How many years can a mountain exist 高山矗立了多少年
+一些人在被毁坏的房屋废墟中寻找可以食用的东西。
 
-Before it’s washed to the sea? 才是沧海桑田
+马里乌波尔居民Maksym Svetlov 在俄罗斯全面入侵开始前离开了这座城市，但他仍有亲戚在城里，他说：每一个小时的炮击都会使情况变得更糟。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/mariupol-photo-2.jpeg)*City workers bury dead bodies in a mass grave on the outskirts of Mariupol, Ukraine on March 9, 2022 as people cannot bury their bodies due to continued heavy shelling by Russian forces. (Evgeniy Maloletka)*
+“俄罗斯军队不断炮击该市的各个部分，包括市中心的中央人行道，炮击几乎每30分钟发生一次，平民离开避难所很危险”
 
-how many years can some people exist 受苦的人被囚禁多少年
+人们甚至不能出去取水，因为他们害怕出去了就再也回不来了。
 
-Before they’re allowed to be free? 才有重获自由的感觉
+据密切关注马里乌波尔的国际组织“无国界医生”称，许多家庭的基本用品已经用完，小孩子更容易受到健康状况恶化的影响。
 
-how many times can a man turn his head, 一个人可以几度回首
+与成人不同，儿童的身体无法承受食物和水摄入量的大幅波动，这会让他们面临脱水的高危险，总统泽连斯基说，一名6岁女孩于3月8日在马里乌波尔死于脱水，她独自咽下了最后一口气，这个女孩的母亲早些时候遭到俄军的炮击，已经身亡。顿涅茨克州（Donetsk Oblast）州长Pavlo Kyrylenko 说。
 
-Pretending he just doesn’t see? 却只是假装视而不见
+无国界医生说，马里乌波尔的居民也因为缺少药物而死亡，来自该市的消息称，马里乌波尔已经没有药物了，尤其是针对糖尿病和癌症患者的药物。
 
-The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
+##### 为什么是马里乌波尔？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-98.jpg)
+马里乌波尔对于俄罗斯具有重要的战略意义，因为它位于被吞并的克里米亚半岛（Crimean Peninsula）和俄罗斯占领的乌克兰东部地区之间的亚速海(Azov Sea)沿岸。
 
-The answer is blowing in the wind. 答案在风中飘荡
+如果俄罗斯占领马里乌波尔，并将这两个领土连接起来，它将切断乌克兰与亚速海的联系。
 
-How many times must a man look up 人要抬头多少次
+3 月 14 日，俄罗斯官方媒体援引了被吞并的克里米亚半岛亲克里姆林宫领导层消息，称在顿巴斯（Donbas）和克里米亚之间建立了一条陆上走廊，但这尚未得到证实。
 
-Before he can see the sky? 才能望见苍穹
+美国Georgetown University 安全与新兴技术中心分析副主任Rita Konaev 表示，马里乌波尔的局势是典型的俄罗斯攻城战战术，随着战争进入新阶段，这种战术很可能会蔓延开来。
 
-how many ears must one man have 人要靠多少只耳朵
+克里姆林宫部队已经开始实施残酷的围攻战术，他们使用集束弹药和轰炸民用基础设施对乌克兰的主要城市发动袭击。 这种策略类似于俄罗斯独裁者普京在叙利亚和车臣的无情军事行动，他的军队在那里将城市夷为平地。
 
-Before he can hear people cry? 才能听见他人的呐喊
+Volnovakha 是顿涅茨克州的一座拥有 21,000 人的城市，位于马里乌波尔以北 60 公里处，遭受了数日的轰炸，城市大部分被摧毁。 俄罗斯军队于 3 月 12 日占领了 Volnovakha，这是他们向马里乌波尔推进的战略要地。
 
-how many deaths will it take till he knows 生命要经过多少的牺牲
+顿涅茨克州州长Pavlo Kyrylenko 3月15日说，俄罗斯军队进入马里乌波尔郊区的一家医院，将病人和医务人员劫持为人质。
 
-That too many people have died? 才会了解活着的可贵
+“俄罗斯人将 400 人从附近的房屋赶到医院，禁止他们离开，”他描述道。
 
-The answer, my friend, is blowing in the wind, 我的朋友 答案在风中飘荡
+Rita Konaev 本月早些时候告诉美国Vox​​ 新闻网，普京剧本中的残酷战略是通过严重破坏城市基础设施，让城市产生大量流离失所的难民来打击乌克兰抵抗的斗志，迫使其投降。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/evgeniy.maloletka_Mariupol_9.03.jpg)*Ukrainian emergency workers carry an injured pregnant woman from a maternity hospital that was damaged by Russian shelling in Mariupol, Donetsk Oblast on March 9, 2022. The mother and her unborn baby died on March 13, 2022. (Evgeniy Maloletka)*
+#####    侥幸逃离者的愧疚
 
-The answer is blowing in the wind. 答案在风中飘荡
+马里乌波尔居民Diana Berg因离开她在马里乌波尔的家而感到内疚。
 
-撰稿人：Gloria
-视频/字幕：文朗
-配乐/朗诵：文朗
-![](https://assets.gnews.org/wp-content/uploads/2022/01/磐石discord.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/01/b3df4b36-df11-4361-a8f5-6c7e5f9da569.jpg)
+“这是幸存者的内疚，”这位 41 岁的居民告诉基辅独立报。
+
+她说，虽然她来自Donetsk，那里自 2014 年以来被亲俄罗斯势力占领，但Berg在马里乌波尔有家的感觉，这就是他们一直待到 3 月 3 日的原因。
+
+但随着“地狱”般的日子继续在被包围的马里乌波尔，一直在帮助当地人的女活动家Berg 开始与丈夫一起寻找逃生路线，以便能够将亲友带到安全的地方。 她说，如果他们预先知道会发生什么，很多人会离开这座城市，但情况出乎意料地恶化了。
+
+由于炮击，他们的逃离计划未能实施，这对夫妇被迫独自离开。 他们抛下一切，穿过俄罗斯军事纵队和莫斯科控制的检查站，拼命逃离。
+
+她的许多亲人，包括她年长的亲戚和密友，仍被困在马里乌波尔。 她说，她最后一次收到他们的消息是一周前，她不知道他们现在的情况如何。 和城市里的很多其他人一样，Berg的家人当时只能对她说几句话，因为他们正在努力节省手机电池。
+
+Berg说，她“非常渴望”听到家人的回音。
+
+##### 寻找亲人
+
+对于那些亲戚或朋友仍被困在马里乌波尔的人来说，每一天都是痛苦的。
+
+“马里乌波尔！ 请让我知道有关我亲戚的任何信息，”一位女士在 Facebook （脸书）小组中写道，该小组致力于在马里乌波尔寻找失踪的亲人。
+
+“我的儿子 Yan Ivanovich Leliv、孙子 Nazar Pozhidaev（10 岁）和他的母亲 Ksenia Pozhidaeva，” 她发布在脸书的照片上写道。
+
+为寻找被困在受灾地区的亲人或朋友，脸书上创建的在线群组每天都会收到数百个请求。 一个名为“马里乌波尔市群（Group of Mariupol City）”的群组，是帮助人们查找自己所爱的人相关信息的众多群组之一。
+
+虽然他们不太可能通过这个小组了解他们的亲戚的情况，但有些人可能会因此感到安慰，因为会有评论说他们所爱的人的位置没有受到攻击。那些设法与亲人联系的人，会感谢使用手机网络偶尔更新的评论者。
+
+一些评论写着“我的亲戚告诉我，他们在外面做饭”，而另一些评论则说“你问的那条街已经不存在了，对不起。”
+
+Poltava居民 Natasha Yaremenko 是寻找在马里乌波尔亲戚的人之一。 她最后一次听到她姐姐的消息几乎是两周前。 当时她被告知“没有电、水或热”，她的姐姐从那时起就再没有音讯。
+
+“我只是想要听到一点消息——她还活着，而且很好，”Yaremenko 告诉基辅独立报。
+
+（注：译者在译这篇文章时，心情非常的沉重，在文中，我们看到了战争的残酷，就在3月16日，俄罗斯战犯普京的侵略军轰炸了马里乌波尔的一家大剧院，当时那里有多达1000人，这是赤裸裸的屠杀！没有战争是正义的，祈祷战争能快点停下来，马里乌波尔的万人坑才会少很多很多的白骨，30万生灵，也才得以有生还的可能，上天保佑！）
+
+援引链接：
+
+**[300,000 people trapped in besieged Mariupol face living hell](https://kyivindependent.com/national/300000-people-trapped-in-besieged-mariupol-face-living-hell/)**
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,155 +15,155 @@
 
 ---
 
-### [日本政府正式决定不再延长防疫重点措施](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [有预测表明汽油价格将进一步上涨](/content/gnews/1/README.md)
+ ` 澳喜农场`
 
-### [有声|疫苗致美国千禧一代超额死亡率增加84%](/content/gnews/2/README.md)
+### [欧洲联系澳洲煤炭企业来取代俄罗斯的供应](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [有声|4月1日起入境加拿大 无需出示病毒测试证明](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [在俄罗斯避免违约后 全球股市上涨金价下跌](/content/gnews/3/README.md)
- ` 蓝莲花农场`
+### [台湾举行军事演习，然而当地人不希望发生战争](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中日财经爆┃中朝恢复货运列车贸易总额大幅增加](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [业界警告，“负担不起”的油价，7澳元咖啡和更昂贵的度假](/content/gnews/5/README.md)
+ ` 澳喜农场`
 
-### [有声|欧盟通过数字货币监管新草案](/content/gnews/5/README.md)
- ` MOSREC`
+### [普京怒喷反战的俄国人为“人渣和叛徒”](/content/gnews/6/README.md)
+ ` 澳喜农场`
 
-### [香港第五波疫情2个月确诊人数超一百万 死亡近5千人](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [云南一职业院校17岁学生实习遭“劳累病死”](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生2022年3月18日盖特视频（二）（2分49秒）全文字版](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|宝宝出生刚三天](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [有声|美参议院决议支持调查普京政府的战争罪](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [俄乌开战以来 超过400家企业已撤出俄罗斯](/content/gnews/11/README.md)
- ` 蓝莲花农场`
-
-### [3/18/2022 文贵直播：太多好消息了，中国共产党专门捡美国给它准备的最毒的毒药吃；乌克兰和台湾会是我们中国人最值得珍惜的朋友，中共会死在乌克兰事件上，我们会很快在盘古相聚](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
-
-### [传美国拜登政府相信中共会支持俄罗斯](/content/gnews/13/README.md)
- ` 蓝莲花农场`
-
-### [大直播后记：中国人心坏到极点了](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [美国工厂产出激增至4个月来的最高增幅](/content/gnews/15/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [普京可能会找台阶收手停止入侵乌克兰，习近平闷头攻台待时机](/content/gnews/16/README.md)
- ` YALUN 亚伦`
-
-### [3/18/2022 文贵盖特：中共用黑客大肆攻击文贵和战友，并且拿多维网伪造的材料作为呈堂证供，供应链出了大问题](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [新中国联邦以人道主义救援闪亮国际政治舞台](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [大直播后记：关于台湾大牛的问题](/content/gnews/19/README.md)
- ` 雅典娜GNotes`
-
-### [日本开始接受没有担保人的乌克兰人](/content/gnews/20/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [救援前线：梅迪卡营地长长的难民队伍](/content/gnews/21/README.md)
+### [雅典娜时报-第237期](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [马里乌波尔危机加剧 美国警告中共不要协助俄罗斯入侵](/content/gnews/22/README.md)
- ` 蓝莲花农场`
+### [日本政府正式决定不再延长防疫重点措施](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：习称尽快遏制疫情扩散蔓延势头](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [参议员布莱克本： 如果习近平向俄提供军事支持,美国和国际社会应切断与中共国的联系](/content/gnews/24/README.md)
- ` 美国政要直译推`
-
-### [【G时新闻】加拿大通货膨胀将创30年之最](/content/gnews/25/README.md)
- ` G-时新闻`
-
-### [【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜习通话 美国警告中共支持俄罗斯将面临制裁](/content/gnews/27/README.md)
- ` 蓝莲花农场`
-
-### [美国致力加强台湾不对称作战能力](/content/gnews/28/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [有声|乌克兰中国留学生亲述新中国联邦救援经历](/content/gnews/29/README.md)
+### [有声|疫苗致美国千禧一代超额死亡率增加84%](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
+### [在俄罗斯避免违约后 全球股市上涨金价下跌](/content/gnews/10/README.md)
+ ` 蓝莲花农场`
 
-### [美参议员决力拿掉福奇的乌纱帽](/content/gnews/31/README.md)
+### [中日财经爆┃中朝恢复货运列车贸易总额大幅增加](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|欧盟通过数字货币监管新草案](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [香港第五波疫情2个月确诊人数超一百万 死亡近5千人](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [云南一职业院校17岁学生实习遭“劳累病死”](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|宝宝出生刚三天](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [有声|美参议院决议支持调查普京政府的战争罪](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [3/18/2022 文贵直播：太多好消息了，中国共产党专门捡美国给它准备的最毒的毒药吃；乌克兰和台湾会是我们中国人最值得珍惜的朋友，中共会死在乌克兰事件上，我们会很快在盘古相聚](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
+
+### [传美国拜登政府相信中共会支持俄罗斯](/content/gnews/18/README.md)
+ ` 蓝莲花农场`
+
+### [救援前線：梅迪卡營地長長的難民隊伍](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [大直播后记：中国人心坏到极点了](/content/gnews/20/README.md)
+ ` 雅典娜GNotes`
+
+### [美国工厂产出激增至4个月来的最高增幅](/content/gnews/21/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [普京可能会找台阶收手停止入侵乌克兰，习近平闷头攻台待时机](/content/gnews/22/README.md)
+ ` YALUN 亚伦`
+
+### [新中国联邦以人道主义救援闪亮国际政治舞台](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [53万枚布制口罩库存“消失” 厚生劳动大臣谢罪](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [大直播后记：关于台湾大牛的问题](/content/gnews/24/README.md)
+ ` 雅典娜GNotes`
 
-### [都是临时工干的 河北警察顺手牵羊做核酸](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [日本开始接受没有担保人的乌克兰人](/content/gnews/25/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [锁链下的呻吟](/content/gnews/34/README.md)
- ` 秘密翻译组-原创组`
+### [救援前线：梅迪卡营地长长的难民队伍](/content/gnews/26/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [俄罗斯电视台编辑举牌反战，引发辞职潮](/content/gnews/35/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [马里乌波尔危机加剧 美国警告中共不要协助俄罗斯入侵](/content/gnews/27/README.md)
+ ` 蓝莲花农场`
 
-### [【G时新闻】中共国动用预备役军人应对疫情失控](/content/gnews/36/README.md)
- ` G-时新闻`
-
-### [瑞士银行与西方一致参与对俄罗斯及其富裕公民的严厉制裁](/content/gnews/37/README.md)
- ` 秘密翻译组-原创组`
-
-### [中共国的疫情封锁令全球经济充满不确定性](/content/gnews/38/README.md)
- ` GTV News Talk`
-
-### [逃离的乌克兰富豪返回国家与总统为伍](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日裔美国女星福原诚司在遭受袭击后呼吁停止亚裔仇恨](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [3/18/2022国际财经快讯：奥地利储备银行研究可能退出俄罗斯；澳大利亚制裁与采矿业有联系的俄罗斯亿万富翁](/content/gnews/41/README.md)
- ` 秘密翻译组金融团队`
-
-### [参议员斯科特公开信：与中共国在经济上完全彻底脱钩](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新西兰财经G乐部2022年3月18日:财经新闻整理](/content/gnews/43/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [樱花头条┃提防中共 亚太国家纷纷增购武器](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [人间地狱：三十万人被困马里乌波尔（Mariupol）“活”于俄军炮轰之下](/content/gnews/45/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [前桥水CEO呼吁向中共追讨芬太尼&#8221;赔偿金&#8221;](/content/gnews/46/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [布拉格堡80多名美军因“突然”“无法解释”的原因死亡（1/2）](/content/gnews/47/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [朗诵佳作欣赏《答案在风中飘荡》](/content/gnews/48/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [参议员卢比奥：中共国100%站在 普京后面](/content/gnews/49/README.md)
+### [参议员布莱克本： 如果习近平向俄提供军事支持,美国和国际社会应切断与中共国的联系](/content/gnews/28/README.md)
  ` 美国政要直译推`
 
-### [随着难民计划的扩大，21名乌克兰儿童飞往英国接受癌症治疗](/content/gnews/50/README.md)
+### [【秘翻在线】英国通讯管理局吊销俄国官媒“RT电视台”的广播执照](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜习通话 美国警告中共支持俄罗斯将面临制裁](/content/gnews/30/README.md)
+ ` 蓝莲花农场`
+
+### [美国致力加强台湾不对称作战能力](/content/gnews/31/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|乌克兰中国留学生亲述新中国联邦救援经历](/content/gnews/32/README.md)
+ ` MOSREC`
+
+### [【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美参议员决力拿掉福奇的乌纱帽](/content/gnews/34/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [53万枚布制口罩库存“消失” 厚生劳动大臣谢罪](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [都是临时工干的 河北警察顺手牵羊做核酸](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [锁链下的呻吟](/content/gnews/37/README.md)
+ ` 秘密翻译组-原创组`
+
+### [俄罗斯电视台编辑举牌反战，引发辞职潮](/content/gnews/38/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【G时新闻】中共国动用预备役军人应对疫情失控](/content/gnews/39/README.md)
+ ` G-时新闻`
+
+### [瑞士银行与西方一致参与对俄罗斯及其富裕公民的严厉制裁](/content/gnews/40/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共国的疫情封锁令全球经济充满不确定性](/content/gnews/41/README.md)
+ ` GTV News Talk`
+
+### [逃离的乌克兰富豪返回国家与总统为伍](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日裔美国女星福原诚司在遭受袭击后呼吁停止亚裔仇恨](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [3/18/2022国际财经快讯：奥地利储备银行研究可能退出俄罗斯；澳大利亚制裁与采矿业有联系的俄罗斯亿万富翁](/content/gnews/44/README.md)
+ ` 秘密翻译组金融团队`
+
+### [参议员斯科特公开信：与中共国在经济上完全彻底脱钩](/content/gnews/45/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新西兰财经G乐部2022年3月18日:财经新闻整理](/content/gnews/46/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [樱花头条┃提防中共 亚太国家纷纷增购武器](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [人间地狱：三十万人被困马里乌波尔（Mariupol）“活”于俄军炮轰之下](/content/gnews/48/README.md)
  ` 喜马拉雅农场新西兰站`
+
+### [前桥水CEO呼吁向中共追讨芬太尼&#8221;赔偿金&#8221;](/content/gnews/49/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [参议员卢比奥：中共国100%站在 普京后面](/content/gnews/50/README.md)
+ ` 美国政要直译推`
 
 ### [邻国正在为反战的俄罗斯人形成的移民潮做准备](/content/gnews/51/README.md)
  ` 秘密翻譯組G-Translators`

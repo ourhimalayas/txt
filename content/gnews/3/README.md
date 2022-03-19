@@ -2,28 +2,47 @@
 ---
 
 
-## 在俄罗斯避免违约后 全球股市上涨金价下跌
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2189231/)
+## 有声|4月1日起入境加拿大 无需出示病毒测试证明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2189344/)
 
-翻译：冰糖葫芦喵
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+加拿大广播公司新闻获悉，加拿大联邦政府将于周四宣布，将在本月底前结束对完全接种疫苗的旅行者的入境前 中共病毒测试要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-116.png)
+知情人士证实，加拿大正在取消机场和陆路过境点的检测要求。卫生、交通和旅游部长将于周四上午举行新闻发布会，宣布边境措施的变化。
 
-编辑与校对：冰糖葫芦喵
+目前，进入该国的旅客必须在飞行或抵达边境之前出示抗原或分子检测阴性的证明。
 
-《路透社》纽约3月18日报道，**因交易商对俄罗斯政府支付公债，全球股市周五收高。因在美国开加息周期开始后，对避险金属的需求所有缓解，而金价下跌。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/股市收高-e1647654447813.jpg)
-据报道，**俄罗斯财政部周四宣布，已为本周到期的两笔美元计价主权债券支付1.17亿美元的息票。**这一偿付平息了投资者的担忧，他们担心俄罗斯主权债务违约可能会扰乱本已紧张的市场。
+消息人士称，对完全接种疫苗的旅行者的检测要求将在 4 月 1 日之前取消。
 
-Harris Financial Group执行合伙人Jamie Cox表示，**如果西方政府当初不允许用冻结资金支付俄罗斯主权债券的息票，**我们可能会陷入全球经济违约的境地。其结果是**，对全球金融体系的一些最严重的影响被推迟到未来——这是好事。**
+此举是在疫情大流行两年后开始的，随着旅行人数的不断增加，各省和地区结束了涉及疫苗护照、聚会和口罩的限制。
 
-Cox补充道，在美联储可能的利率走势之前，科技股经历了如此深的抛售，现在我们正处于缓解性反弹之中。现在他们基本上消除了所有有关利率的不确定性，科技股可以重新定价。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/COX.jpg)Harris Financial Group执行合伙人Jamie Cox（图片来源：网络）
-截至收盘，周五，道琼斯工业平均指数上涨0.8%，至34,754.93点；标准普尔500指数上涨1.17%，至4,463.12点；纳斯达克综合指数上涨2.05%，至13,893.84点。
+消息人士称，联邦政府将继续对抵达加拿大的旅客进行随机测试，以识别和追踪变异毒株。
 
-新闻来源链接：
+周三，加拿大总理特鲁多在安大略省艾利斯顿发言称，没有明确检测制度何时结束，但建议将取消更多的病毒限制措施。
 
-[Global equities rise, gold falls after Russia avoids default | Reuters](https://www.reuters.com/business/global-markets-wrapup-1pix-2022-03-18/)
+麦克马斯特大学传染病专家兼副教授表示，取消检测是明智之举，因为一旦奥米炕波及加拿大，这种疾病就会非常普遍，以至于在边境进行的检测基本上变得毫无意义。
 
 
+
+文字版原文：[4月1日起入境加拿大 无需出示病毒测试证明](https://gnews.org/zh-hans/2184754/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
