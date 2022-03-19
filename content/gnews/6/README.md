@@ -2,23 +2,30 @@
 ---
 
 
-## 在一个充斥着谎言的国家里必然存在大邪大恶
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193776/)
+## 中共国试图刺激美国与俄罗斯开战
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193803/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2156.png)
-据文贵先生3月19日盖特报道， 从昨天开始乌克兰总统泽连斯基投降的虚假录像传遍了整个互联网，这是俄乌战场上虚假资讯战的一部分。
+##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2157.png)
+周三凌晨，乌克兰总统泽伦斯基(Volodymyr Zelensky)在美国国会的演讲中请求国会设立禁飞区，呼吁立法机构采取更大行动，授权对入侵者俄罗斯实施更严厉的制裁，并加强对乌克兰的防御。同时敦促拜登总统不仅要成为美国的总司令，还要成为“世界的领袖”。他在讲话中提到了日本轰炸珍珠港和911恐怖袭击，也展示了乌克兰战前战后的巨大对比。他的讲话得到了国会参众两院议员的起立欢呼和鼓掌。
 
-俄罗斯入侵乌克兰这么一个弱小的国家，这本身已经足够邪恶，结果还伪造假视频到处散播谎言，还搞上万支持者集会，为入侵乌克兰辩护，宣称自己是正义的，俄罗斯必赢，去乌克兰是为了消灭纳粹，并誓言继续侵略战争。
+“只是掌声?这是虚伪的。如果美国真的想要展示正义，它应该派遣军队到乌克兰，或者至少设立一个禁飞区，并直接与普京的军队作战，即使这意味着牺牲美国士兵。不要只是煽动乌克兰人为了美国的利益而死，”环球时报评论员胡锡进这样回应道。
 
-文贵先生提醒大家牢记：如果没有虚假和欺骗成分的话，邪恶就不能成为邪恶。正如中共篡改历史、处处造假，连信仰都造假，结果必然是无处不在的大恶大灾。而中国人不辨真假，不识善恶，则是大邪大恶存在的必然因素。
+众所周知，《环球时报》是中共大外宣的喉舌。他的推特言论表明中共高层意欲挑动美国与俄罗斯开战，从而渔翁得利，为他们图谋台湾减轻压力。
 
-新闻来源：[https://gettr.com/post/p10rq15972f](https://gettr.com/post/p10rq15972f)
+新闻链接：[https://thepostmillennial.com/ccp-tries-to-goad-us-into-war-with-russia](https://thepostmillennial.com/ccp-tries-to-goad-us-into-war-with-russia)
+
+编辑/上传 – 文永
 
 * * *
 
-撰稿：晨熹， 编辑发稿：硫酸羟氯喹64
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
