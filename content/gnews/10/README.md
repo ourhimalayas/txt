@@ -2,28 +2,34 @@
 ---
 
 
-## 日本人气女主播接种辉瑞疫苗后产生严重副作用
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2193849/)
+## 【G时新闻】乌克兰军事指挥部称俄罗斯几乎用完了所有的Kalibr和Iskander导弹
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2193928/)
 
-**撰稿：日本东京方舟农场  海星**
+播报：加拿大温哥华扬帆农场 – 七彩虹
 
-3月18日，日本人气女主播高桥真麻在其博客上发帖表示，她在接种第3针辉瑞疫苗后产生严重副作用。
+视频制作：加拿大温哥华扬帆农场 – 文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-23.jpg)（图片来源：ABEMA）
+据乌克兰武装部队总参谋部报告说，自俄罗斯军队全面入侵乌克兰以来，俄罗斯军队在行动的二十几天里几乎用完了所有的 ”伊斯坎德 “（Iskander）短程弹道飞弹和 ”卡利布 “（Kalibr）3M-54“ 口径海基巡航导弹。
 
-据《ABEMA》报导，曾入围日本最受欢迎女主播排行榜的高桥真麻于18日在其个人官方博客上发帖表示，她在接种第3针辉瑞新冠疫苗后，出现疲劳、头疼、肌肉痛、恶寒、关节痛、腹泻等症状。据悉，目前高桥真麻的身体已在逐渐恢复。
+乌克兰总参谋部说，俄军在各个方向上被乌克兰军队阻止。并且，俄军在后勤方面存在重大问题，继续遭受严重损失。俄军已经失去了进攻的潜力。
 
-此前，美国FDA在法院强制令下对外公开了辉瑞新冠疫苗的数据报告。其中关于疫苗副作用的报告显示，早在2021年2月28日之前便已收到了来自56个国家共42,086例不良反应事件，其中头痛、发烧、疲倦、发冷、恶心、肌肉痛等副作用最为常见。
+目前，俄军继续使用低精度武器轰炸基础设施和大城市的住宅区。并对关键的军事和民用基础设施进行空袭。摧毁了机场、军事单位、油库、加油站、教堂、学校和医院。使用大炮、多管火箭发射器系统和弹道导弹对居民区进行炮击。
 
-参考链接：
-1. [https://times.abema.tv/articles/-/10017826](https://times.abema.tv/articles/-/10017826)
-2. [https://ameblo.jp/takahashi-maasa/entry-12732533756.html](https://ameblo.jp/takahashi-maasa/entry-12732533756.html)
-3. [https://news.tv-asahi.co.jp/news\_geinou/articles/hot\_20220319\_160.html](https://news.tv-asahi.co.jp/news_geinou/articles/hot_20220319_160.html)
-4. [https://gnews.org/zh-hans/2122508/](https://gnews.org/zh-hans/2122508/)
+俄罗斯入侵乌克兰已经进入第22天，到目前为止，克里姆林宫仍然否认对乌克兰发动征服战争，仅称其为 “去军事化或去纳粹化”的”特别行动”。普京还否认对乌克兰平民的攻击，尽管世界各国的媒体记录了大量相反的证据。
 
-总编：老孙
-校对发布：Linda
+视频链接：[https://gettr.com/post/p10t4xs84c2](https://gettr.com/post/p10t4xs84c2)
 
+编辑/发文 – 春雨
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

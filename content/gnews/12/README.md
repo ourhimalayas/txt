@@ -2,30 +2,23 @@
 ---
 
 
-## 拜登宣布再向乌克兰提供8亿美元军援
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193805/)
+## 莫斯科警告意大利新制裁带来不可逆转的后果
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2193886/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、编译撰稿：晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2158.png)
-据加拿大媒体【后千禧年】3月17日报道，在乌克兰总统泽连斯基16日通过视频向美国国会发表动人演说征服整个国会山之后，他的要求得到了兑现。拜登总统当天下午签署命令，再向乌克兰提供额外的8亿美元军援。
+#### 翻译     意大利达芬奇农场    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-19-alle-17.05.49.png)图片来源：newsonline.it
+据3月19日罗马askanews报道，欧盟对俄罗斯宣布“全面金融和经济战争”可能会产生“不可逆转的后果”， 这种后果尤其是针对意大利。俄罗斯外交部欧洲事务司司长阿列克谢•帕拉莫诺夫告诉俄新社。
 
-白宫周三表示，此举使美国过去一周内向乌克兰安全援助达到10亿美元，自开战来总援助额达到20亿美元。援助将以国防部直接向乌克兰军方转移设备的形式进行，这些设备包括：尖端无人机、毒刺地对空导弹，以及S-300导弹防御系统等。
+帕拉莫诺夫还说：“ 制裁不是我们的选择。我们不希望法国经济部长布鲁诺•勒梅尔 ( Bruno Le Maire ) 宣布对俄罗斯进行“全面经济和金融战争”的观点，意大利也是这一理念的追随者并会导致一系列重大的不可逆转的后果。”
 
-拜登表示面对普京对平民不道德的攻击，美国人民将坚定不移地支持乌克兰人民。
+这位外交官随后补充说，“ 莫斯科从未将能源资源的出口用作政治压力的工具”，并指出“俄罗斯能源公司一直充分履行其义务。他们继续这样做”。
 
-原文链接：[https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine](https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine)
+“鉴于意大利对俄罗斯碳氢化合物的严重依赖达到40%至45%，拒绝几十年来开发的可靠的能源运输机制将对意大利经济和所有意大利人产生极其负面的影响”,帕拉莫诺夫警告说。
 
-编辑/上传 – 文永
+原文链接： [https://www.askanews.it/esteri/2022/03/19/monito-di-mosca-allitalia-con-nuove-sanzioni-conseguenze-irreversibili-top10\_20220319\_125909/](https://www.askanews.it/esteri/2022/03/19/monito-di-mosca-allitalia-con-nuove-sanzioni-conseguenze-irreversibili-top10_20220319_125909/)
 
-* * *
+编辑、上传： Xiao   baige
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

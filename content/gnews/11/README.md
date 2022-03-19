@@ -2,24 +2,32 @@
 ---
 
 
-## 英国前首相呼吁为乌克兰设立战争罪法庭
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2193848/)
+## 普京可能将接受美欧和解条件撤军乌克兰
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193908/)
 
-**两位英国前首相戈登·布朗和约翰·梅杰呼吁为乌克兰设立单独的战争罪法庭。**
+##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2165.png)
+据3月17日文贵先生大直播爆料，美欧或将通过解封普京个人资产，保证其安全，以及不进行个人攻击作为和解条件，换取俄罗斯从乌克兰全面撤军，结束俄乌战争。
 
-作者：dpa, vk/原文发布于2022年3月19日15:43
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-4-2.jpg)图片:俄罗斯总统弗拉基米尔·普京（档案照片：Alexei Druzhinin/Sputnik/AFP）。
+据文贵先生透露，普京应该是听取了高级智囊瓦里克“放弃俄乌战争，不要自寻死路，待时机合适就收手”的建议，在认真考虑美欧开出的价码后，已将女友和儿子接回俄罗斯，下一步很有可能宣布撤军。
 
-布朗周六对英国广播公司表示，不太可能在海牙国际刑事法院起诉俄罗斯总统弗拉基米尔·普京。莫斯科可以在联合国安全理事会上否决这样的起诉。
+美欧是继中共外交官杨洁篪在中美会谈中强硬表态坚决军事支持俄罗斯入侵乌克兰后，向普京开出上述和解条件的。俄乌战争将彻底改变世界政治格局，如今的俄罗斯将不复存在。
 
-在两天内，一份要求设立特别法庭的请愿书已经有75万多人签名，其中包括众多法律专家和来自世界各地的约40位前政府和国家元首。
+新闻来源：[https://gettr.com/post/p10j4v2a826](https://gettr.com/post/p10j4v2a826)
 
-这位工党政治家赞同美国总统乔·拜登的评价，即普京犯有战争罪。（dpa/vk）
+[https://gettr.com/streaming/p10fr57b127](https://gettr.com/streaming/p10fr57b127)
 
-原文链接：[https://brf.be/international/1586145/](https://brf.be/international/1586145/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+编辑/上传 – 文永
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

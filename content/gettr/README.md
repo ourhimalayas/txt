@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 11:12 PM (UTC)`
+
+2022.03.19 NFSC News  New Federal State Of China Officially Enters the Global Political Arena； Poland Correspondent shares her wish of taking down the CCP
+![img](https://media.gettr.com/group42/origin/2022/03/19/22/29b254f2-8521-41a5-8fd8-66e352916ed3/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/19/2022 9:12 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-大巴救援实况转播
@@ -148,13 +155,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 新中国联邦法治基金乌克兰人道救援基地前线报导
 ![img](https://media.gettr.com/group14/origin/2022/03/19/08/34b96828-472d-77ba-f82a-bb089636f103/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 9:06 AM (UTC)`
-
-3/17/2022 Miles Guo: Ukraine will emerge as a technological powerhouse. Even if Russia ceased fire, the CCP would also invade Taiwan. The life-and-death struggles between Xi Jinping and the Shanghai Gang are escalating. No one in the top echelons of the CCP will end up in a decent way.<br/><br/>3/17/2022 文贵直播: 乌克兰将会崛起为科技强国；即使俄罗斯停战，中共也会打台湾；习近平和上海帮之间你死我活的斗争愈演愈烈，中共高层谁也都逃不过不得善终的下场。<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/19/09/1a8e3f8c-abd7-a655-8e43-215426a65585/out.jpg)
 
 ---
 
