@@ -2,45 +2,35 @@
 ---
 
 
-## 2022/03/16 美国共和党议员呼吁为乌克兰提供军事援助
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2192408/)
+## 新罕布什尔州批准使用伊维菌素治疗疫情
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-19_133933.jpg)
-[GETTR视频链接](https://gettr.com/post/p10k5jsd6e4)
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
+报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
 
-**视频字幕：**
+有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
 
-**共和党议员：**我认为正像你们很多人所看到的，泽连斯基总统非常有力量，他強有力地提出自己的理由。拜登总统应该怎么做呢？我认为两党应该在此合作，为他们提供各种（帮助），为他们提供战斗机，好让他们自己创建禁止飞行区。为他们提供武器，以继续打赢这场不是他们挑起的战争。我认为那些视频是最感人的时刻之一，展示了杀害无辜百姓的事实，战争罪证在发生，美国和全世界不能视而不见。我们需要以更大的压力和更多的武器来停止这场战争，为什么没有像我们很多人要求的那样在几周前为他们提供米格战斗机使（俄军）溃败呢？
+参考链接：
+1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
+2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
 
-**记者：**禁止飞行区有可能吗？美国会支持你提出的禁止飞行区吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-**共和党议员：**我认为目前应该向他们提供米格战斗机，他们可以自己打造禁止飞行区。在与乌克兰人和他们的总统交谈的整个过程中，他没有要求美国出兵上战场，他所要求的是“给我们提供保护自己的机会，不要让我们没有武器”。早在这一刻到来之前，我就与拜登总统交流过。我给他的建议是尽早给乌克兰提供武器阻止普京，他没有做出这样的决定。拜登总统总一直说，之后会制裁他们，制裁需要几个月才能生效。乌克兰人民不能等几个月，世界不能几个月袖手旁观无辜的人民被屠杀。
+编辑：Irene木木
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-**简评：**
-
-美国众议院共和党议员在谈到俄乌战争时，表示美国两党应该就此合作，为乌克兰提供军事援助。泽连斯基总统没有要求美国出兵上战场，只要求武器援助，帮助他们打赢这场卫国战争。美国应该为乌克兰提供米格战斗机，以帮助乌克兰创建禁飞区，获得制空权。乌克兰人民不能在战争和死亡中等待美国和西方对俄罗斯的制裁。
-
-俄罗斯挑起的这场战争已经持续23天，双方死伤近万人，200多万乌克兰人逃离了家园。总统泽连斯基带领乌克兰人民进行了全面抵抗。面对来自俄罗斯陆海空多方面的攻击，乌克兰人需要的不仅仅是团结、勇敢和决心，更需要武器支援来打赢这场战争。俄罗斯出师无名，侵犯他国，士兵无心恋战，士气已经输了。乌克兰人团结一致，同仇敌忾，誓要将侵略者赶出乌克兰，民心和士气乌克兰已经赢了俄罗斯。荣耀归乌克兰！
-
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：雨中漫步|听写：云岭|翻译：Roberts| 校对：Blue|简评/文字整理/编辑：胖丁| Page：小六月*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

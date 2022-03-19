@@ -2,12 +2,18 @@
 ---
 
 
-## 现在沙特认为美元的霸主地位正摇摇欲坠
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191332/)
+## 2022年3月19日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2192147/)
 
-03/15/2022 班农战斗室：沙特现在认为美元霸主地位正在摇摇欲坠 他们似乎想给美元以致命一击
+制作：DT新闻组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0489.jpg)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
 
  
 

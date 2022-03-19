@@ -2,16 +2,13 @@
 ---
 
 
-## 20220317郭文贵大直播 ：中国的自然资源已被共产党摧毁殆尽
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2191670/)
+## 【乌克兰救援】战地钢琴家Davide Martello已然成为了爆料革命的战友
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192329/)
 
-作者：东京樱花团小视频组
+【乌克兰救援】03/17/2022 战地钢琴家Davide Martello已然成为了爆料革命的战友。当他来新中国联邦救援营地时，有我们的志愿者给他播放了郭文贵先生的《沧海一声啸》，于是他用钢琴演绎了这首灭共歌曲
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,52 +2,44 @@
 ---
 
 
-## 继续宽松支持房地产行业，与美勾兑中概股逃出升天？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2190609/)
+## 2022年3月17日七哥直播要点
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2191755/)
 
-翻译：文扬
-编辑：文泓
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-30.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/UXCAK4MU7N3BQSYHQI.png)图片来源：自由时报 & 雅典娜设计组
+郭文贵先生：
+
+这个世界上让你生存的不是粮食，真不是黄金，而是你提前预知灾难的能力和你处理灾难的准备，这才是爆料革命的核心。
+
+我们要包容万千，不能有宗教分别，不能有党派分别，不能有种族分别，不能有贫贱高低分别。
+
+我们谁都不在乎，我们谁都不再懦弱，不是任何一个种族任何一个人随便就可以欺负我们，我们有一个新中国联邦在背后，谁都别想碰我们。
+
+我们在全世界联合国的国际救援组织下，我们会安排新中国联邦由法治基金，法治社会主导的到乌克兰战场的救助我们的同胞，还有美国朋友和所有其他国家的能救的人。
+
+中共啥时救过人？中共一直都是只毁人。
+
+灭共的新中国联邦人在全世界上独立的、没任何政治背景的、没有政治诉求的、没有条件的在救人，特别在全世界正酝酿着的排华、反华、辱华的时刻，干干净净的新中国联邦人得到了世界的尊重，不但给中国人脸上贴金，连整个亚裔人的脸上都有自豪，我们新中国联邦就是要灭共的！
+
+- 参考链接[http://Watch MILES GUO live on GETTR 2022年3月17日 文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向](http://Watch%20MILES%20GUO%20live%20on%20GETTR%202022年3月17日%20文贵大直播：俄乌战争普京退缩或发生戏剧性转变；中共拉抬恒生指数香港中共经济走向)
 
 
-本周三下午，对于连续第三天处于自由落体状态的中国股市，中共政府向投资者抛出了一根救命稻草。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-65.jpg)
 
-中共官媒新华社发表的一份声明称，**习近平的最高金融政策顾问将寻求稳定资本市场并支持房地产和科技行业。**该指令是在由刘鹤主持的国务院金融稳定与发展委员会的一次特别会议上发布。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-虽然没有关于政府将采取什么措施来实现其承诺的具体细节，但影响是立竿见影的。
+- 审核/编辑/发稿:qiutian（邱甜）
 
-同一时间，香港和大陆市场股市开始反弹，部分扭转了因中共病毒疫情爆发、乌克兰战争、美国对中国科技股（中概股）的打击以及地产债务暴雷打击投资者信心而造成的数十亿美元损失。
 
-这次是中共当局一次罕见的干预，自2015年以来，中共当局从未如此明目张胆地进行干预，当时（2015年）北京在市场损失了三分之一的价值后实际上关闭了交易市场。
-
-对投资者说，似乎发出了一个强有力的信息，有助于恢复对中国股市日益减少的信心，因为几个月来的监管重磅消息和对中国领导人不再关心资本市场的日益担忧拖垮了中国股市。
-
-总部设在北京的研究机构龙洲经讯（Gavekal Dragonomics）的中国研究主任安德鲁·巴特森说：“本周在香港和其他市场上市的中国离岸股票的动荡市场行动，暴露了外国投资者对中国的市场如同惊弓之鸟。”
-
-当然，信息起到了作用。香港的恒生指数当天跳涨超过8%，而上海综合指数上涨3.4%。
-
-**然而，急剧的波动也凸显了中国股市对一个目前由意识形态和国家安全而非市场力量所驱动的政权的行政指令的依赖性。**
-
-新华社对会议的解读强调，需要采取“具体行动”来支持第一季度的经济。重要的是，**它说中国政府正在与美国监管机构取得进展，这些机构一直威胁要将一些在美国上市的中国公司除名或禁止上市。**
-
-分析人士称，银行监管机构和财政部的后续声明也提供了一些保证，他们将寻求稳定房地产价格。实施房产税改革试点项目的计划也被取消了，如此便意味着中共国将继续宽松银根支持房地产行业行业。
-
-尽管如此，中共国每天的中共病毒感染率不断上升，周五报告的感染病例为4130，封城信息不绝于耳，第一大城市上海基本处于半封闭状态。拜登总统已经明确告知，中共国支持俄罗斯入侵乌克兰需要承担后果。
-
-现在新华社还居然指望与美国勾兑，让中概股逃出升天。行政调控改变不了经济大势，试看中共国假擀面杖还能撑多久？
-
-原文链接： [China intervenes in a tumultuous week (afr.com)](https://www.afr.com/world/asia/china-intervenes-in-a-tumultuous-week-20220318-p5a5xh)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

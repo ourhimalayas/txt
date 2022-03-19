@@ -2,18 +2,12 @@
 ---
 
 
-## 视频|美总统拜登称普京是战犯，这是美国对普京入侵乌克兰以来最严厉谴责
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2192463/)
+## 俄罗斯入侵前后的乌克兰街景对比
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192582/)
 
-制作：大直播短视频组-隧道尽头的光
+03/17/2022 这就是俄罗斯的入侵已经重塑了乌克兰。繁荣的城市变成了废墟，房屋被毁，医院成为目标并被夷为平地。
 
-编辑：爱米粒
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
