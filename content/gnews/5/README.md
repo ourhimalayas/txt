@@ -2,41 +2,35 @@
 ---
 
 
-## 美国官员透露，俄罗斯要求中共国向其提供军事装备
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2192820/)
+## 面对首次CCP病毒爆发，太平洋岛国萨摩亚进入封锁状态
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2192914/)
 
-***评论：**发起战争，协助发动战争的人都是“战犯”。*
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.19-B.jpg)网络图片
+萨摩亚和几个邻近的太平洋岛国曾经是地球上最后仅存的几个未被CCP病毒袭击的地方之一。但是更具传染性的 Omicron 变体毒株改变了这个情况，岛国一个接一个地屈服于CCP病毒的扩散。
 
-据《华盛顿邮报》作者David L. Stern, Ellen Francis, Gerry Shih, Isabelle Khurshudyan, Paulina Firozi, Hannah Knowles, Ellen Nakashima和Karen DeYoung 联合报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2145-e1647705169731.png)图片来源：原文视频截图
-美国官员说，俄罗斯要求中共向其提供军事装备。
+自今年年初以来，基里巴斯、汤加、所罗门群岛、库克群岛和美属萨摩亚都经历了首次大规模疫情。
 
-熟悉此事的美国官员告诉《华盛顿邮报》，自俄罗斯开始入侵乌克兰以来的几周内，俄罗斯向中共寻求军事装备和援助。
+在萨摩亚经营一家物流公司的 John Fala 说，萨摩亚受到这种病毒的攻击是不可避免的，当CCP病毒开始在附近的美属萨摩亚传播时，许多人都意识到了这一点。
 
-这些官员因为这个问题的敏感性而不愿透露姓名，他们没有描述要求提供何种武器装备，也不知道他们是否知道中共如何回应。白宫国家安全顾问杰克-沙利文(Jake Sullivan)告诉CNN，政府正在“直接、私下地与北京沟通，如果中共努力协助俄罗斯逃避制裁，绝对会有后果”。
+“我们已经准备了两年，”法拉说。 “现在病毒最终还是来了。当然，期间会有一些争执。”
 
-乌克兰官员表示，周一将继续与俄罗斯进行谈判。总统顾问Mykhailo Podolyak周日表示，与俄罗斯“开始进行建设性的会谈”，并预测在几天内会有“一些具体的结果”。
+从周六午夜开始，所有学校将关闭，公共集会将被禁止，所有商店和其他服务将被关闭，除了那些被认为是必要的。从周五午夜开始，就连岛国的人民也被要求戴上口罩并携带疫苗接种卡。
 
-俄罗斯周日将战斗推向了北约联盟成员，因为导弹袭击了距离波兰边境约15英里的一个军事设施，造成至少35人死亡，134人受伤。利沃夫附近的亚沃洛夫军事演习场也被称为国际维持和平与安全中心，多年来一直是北约部队和乌克兰人的演习场所，最近在2月份还有美国人到场。
+周五有报道称，在封锁之前该地区出现恐慌性购买。封锁最初计划持续到周二午夜，尽管 Fala 预计会延长。
 
-文章来源：[https://www.washingtonpost.com/world/2022/03/13/russia-ukraine-war-news-live-updates/](https://www.washingtonpost.com/world/2022/03/13/russia-ukraine-war-news-live-updates/)
+萨摩亚总理菲亚梅·纳奥米·马塔法在星期四晚些时候向全国发表特别声明，向人们介绍了一例阳性患者的情况。她说，受感染的妇女处于隔离状态，正在追踪她的行踪和与人的接触。
 
-翻译：洛杉矶盘古农场 – Mike Li
+马塔法表示，当地官员们希望尽其所能遏制它的迅速传播。
 
-校对：洛杉矶盘古农场 – 轰炸机（大树）
+到目前为止，密克罗尼西亚、马绍尔群岛和瑙鲁是少数几个避免了 Omicron 疫情的太平洋岛国。
 
-评论：洛杉矶盘古农场 – 轰炸机（大树）
+*发布：Gradient Boost*
 
-编辑：洛杉矶盘古农场 – WenXiong
+新闻参考链接：
 
-发布：洛杉矶盘古农场 –子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[9 News](https://www.9news.com.au/world/coroanvirus-update-facing-its-first-covid-19-outbreak-samoa-goes-on-lockdown/f29df82b-83fd-4692-9e1d-d0fe01bde81c)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

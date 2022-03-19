@@ -2,8 +2,20 @@
 ---
 
 
-## 中共是世界的最大威胁，中国人在觉醒
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2192807/)
+## 视频|俄乌士兵在基辅郊区激战
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2192831/)
+
+制作：大直播短视频组-隧道尽头的光
+
+编辑：聪宁
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
