@@ -2,30 +2,27 @@
 ---
 
 
-## 【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2188623/)
+## 美国致力加强台湾不对称作战能力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188747/)
 
-#### 翻译/撰稿：zzballack
+作者：加拿大温哥华扬帆农场-文莱
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2074.png)图片来源：福克斯新闻网
-据《布雷特巴特新闻网》（Breitbart News）和《每日传讯 》(The Daily Caller) 3月18日报道，在俄罗斯继续升级其在乌克兰的战争之际，美国总统乔·拜登（Joe Biden）本周五（3月18日）与中共领导人习近平进行了视频通话。
-
-这次通话持续了110分钟，拜登向中共施压，要求其不要在经济或军事上援助莫斯科。
-
-通话结束数小时后，白宫在一份解读中说：“这次会谈的重点是俄罗斯对乌克兰的无端入侵。拜登总统概述了美国和我们的盟国以及合作伙伴对这场危机的看法，并详细介绍了我们为防止和应对入侵所做的努力，包括让俄罗斯付出代价。”
-
-白宫补充说，拜登在与习近平的通话中谈到，在俄罗斯对乌克兰的城市和平民进行野蛮攻击时，如果中共向俄罗斯提供物质支持将面临后果。拜登还强调了支持通过外交途径解决危机，保持沟通渠道开放，以应对中美两国之间的竞争。
-
-在台湾问题上，拜登重申美国的对台政策保持不变，并继续反对“对现状的任何单方面改变”。
-
-*责编：白夜*
-
-新闻来源：[Joe Biden Warns Xi Jinping of ‘Consequences’ if China Supports Russia](https://www.breitbart.com/politics/2022/03/18/joe-biden-tries-to-further-isolate-russia-in-110-minute-video-call-with-xi-jinping/)
-
-[Biden Warns China Of ‘Consequences’ Should It Aid Russian Invasion Of Ukraine](https://dailycaller.com/2022/03/18/joe-biden-china-call-consequences-aids-russia-invasion-ukraine/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2078.png)图片来源：TWN
 
 
+据台湾媒体【台湾英文新闻】3月16日报道，美国国防部日前已通知国会可能需要向台湾再次出售武器，而此次交易可能不是飞机和舰艇等传统武器，而是有助于台湾提高不对称作战能力的物品，如与作战训练、后勤和战场管理相关的精确弹药和装备。
+
+据悉，美国国防与安全研究说【INDSR】高级分析师认为，美国在蔡英文总统执政期间，迄今已售出18种武器，其中16种有助于台湾的不对称作战能力，同时也表明台湾和美国之间达成默契，即在符合台湾当前的防御资源的前提下，增强台湾的不对称能力并达到最大的防御能力。
+
+此外，中共内部的国防军政治军事作战概念部的研究员表示，美国对台军售是美国致力于帮助台湾自卫的标志，也是向地区盟国发出加强安全合作以抵抗中共军队的信息。
+
+链接：
+
+[Analysts expect next US arms sale to bolster Taiwan’s asymmetric defense | Taiwan News | 2022-03-16 20:44:00](https://www.taiwannews.com.tw/en/news/4475628)
+
+* * *
+
+采编：青青，编译撰稿：文莱，编辑发稿：硫酸羟氯喹64
 
  
 
