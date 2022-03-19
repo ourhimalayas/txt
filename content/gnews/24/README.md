@@ -2,48 +2,46 @@
 ---
 
 
-## Moderna要求对所有成年人进行第二次Covid强化针注射的紧急批准
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2190066/)
+## 大直播后记：关于新中国联邦人的国际接轨和生活品味
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2190132/)
 
-作者：纽约香草山农场 – 四季
+整理：GraceFang、Rianna
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-224.png)图片来源：雅典娜设计组
 
 
-据[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)3月17日的报道，就在辉瑞公司周二要求FDA批准为65岁以上的成年人提供第二个中共病毒加强针之际，Moderna公司周四晚些时候表示，它已经要求美国食品和药物管理局紧急授权为所有成年人提供中共病毒疫苗的第二次强化针剂，这一要求比辉瑞公司和BioNTech公司本周提出的注射要求要广泛得多。
+**郭先生****：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-93.jpg)图片来源：[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)
+目前我们在前线约有七八个战友感染了病毒，包括文科和正义小Sara，刚刚得到消息，我们的文戈七雄也染上了，英喜也有四五个了。
 
-这一请求可能会加剧目前正在进行的最新一轮科学辩论，即面对新的变种，美国使用最多的两种疫苗的保护期有多长。
+**文耀：**
 
-联邦卫生官员表示，他们担心本秋季为之前Moderna和辉瑞公司授权的加强型疫苗的效力会减弱。
+现在基本上有六七个战友是阳性反应，我们都已安排这些战友隔离，并落实专人送饭，生病的和处于危险期中的战友，我们都是按照治疗方案来吃药的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+这次第一个爆发的是加拿大队，感染的第一名战友现在基本上已经恢复了。队里其他人是呈阴性，没有进一步爆发感染，队伍在逐渐的恢复当中。今天是第四天，明天再隔离一天以后，没有呈阳性，这个警报就可以解除了。所以请七哥放心，请后方的战友们放心。
 
-编辑/校对/发稿：小鹿
+郭先生：
 
+愿万佛万神庇佑你们啊，我们会为你们祈福的，大家一定要万分小心。这真的不是开玩笑的事情，这几天病毒感染者越来越多。
 
+现在我们要看到，我们每时每刻坚守在前线就是让全世界知道，有一些人和你们所理解的、看到的被共产党洗脑的中国人是不一样的，14亿中国人绝大多数跟你们看到那些坏的中国人是不一样的。那些小粉红们是共产党的茅屎坑的蛆，被共产党洗脑的中国人不能代表我们所有中国人，共产党也不能代表我们所有中国人。更重要的事情，我们要让他们知道，中华民族是一个追求独立、法治、信仰自由、民主，讲人道和国际能和平相处的这样一个民族。
 
-**更多资讯，更多关注**
+特别在这个时候，亚洲人不是懦夫，亚洲人有正义感。国际社会不能只有白人的国际化，也不能只有共产党的国际化，应该包容一切世界上的好人。你们在前线的每一秒钟都在向全世界传达一个信息：新中国联邦人不一样啊，就是跟他（中共）不一样啊。哪里不一样？
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+昨天，文耀买了个6000欧的（高档商用）咖啡机。然后呢？限于中国人潜意识里的认知，标签不给它拿下来，就放到了大帐篷里边，还用蓝色的塑料纸遮着。就如我看到有人买手机（中国的手机），用了都半年了，手机表面还粘着一层纸，我都快崩溃了啊。还有中国很多人现在穿着西装带着商标和价格标签，这种习惯非常不好。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+这台咖啡机放在一个桌子上（桌子腿儿都快倒下了），旁边放两个纸巾盒啊，把这台精品咖啡机（品味）给糟蹋了，把法拉利咖啡机格调整得那个低俗。昨天我看到我们的战友在直播，都在推崇速溶咖啡，我是刚开完会，我看了我都快疯了。现磨咖啡才是最高档的，速溶咖啡是合成的，有很多添加剂，不健康。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+新中国联邦人唯真不破，目前这些也是整个团队的品味（有待提高）。我们如何在生活品味上有要求并和跟国际接轨？七哥不比任何人聪明。但就刚才那个事，你会让外国人看到你新中国联邦人跟中国共产党一样老土。因为你不了解国际文化，就像中国那些年的富人，买路易13、买拉菲（红酒），然后兑上可乐、雪碧喝，还叫“李鹏牌可乐”，一模一样地没有品味。
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+资料来源：[2022年3月17日 文贵大直播](https://gettr.com/streaming/p10fr57b127)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

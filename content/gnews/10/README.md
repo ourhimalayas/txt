@@ -2,24 +2,26 @@
 ---
 
 
-## 前常委曾庆红预感中共末日将至
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2190241/)
+## 国际法院裁决 要求俄罗斯停止对乌克兰发动的战争
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2190311/)
 
-撰稿：纽约磐石农场—在远方
+撰稿：纽约香草山农场教育部-马克文、朱丽叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
+3月16日，国外媒体报道，联合国设在海牙的国际法院当天责令俄罗斯停止在乌克兰领土上的军事行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2101.png)
+在战争开始后第三天，即2月26日，乌克兰就国际法院提起了针对俄罗斯的诉讼。国际法院于3月7日就该案举行了听证会。最终，国际法院以13比2的票数裁定俄罗斯应立即停止在乌克兰的特别军事行动，
 
-在3月17日的大直播中，郭文贵先生表示，中共前常委曾庆红精准地看清了国际国内形势，预感到中共将迅速惨败。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2097.png)
-郭先生揭秘说，曾庆红曾经告诉前去拜访他的人，要抓好农业并安全储存粮食，做好中长期打算，因为只有活着才能搞好经济。另一位福建的金融家拜访曾庆红，在其暗示下迅速抛空所有大陆和香港的股票，保住了资产。
+在法庭上，只有俄罗斯和中共法官对该裁定投了反对票。法院认为，没有看到任何证据支持克里姆林宫为战争所做的辩护。国际法院院长琼•多诺霍则表示：“法院认为，乌克兰有合理的权利不受俄罗斯军事行动的影响。”
 
-对于中共内斗，曾表示，陈峰打着王岐山的旗号，到处不停地圈地、圈钱，并把盗国资产转移到海外，参与完全不成熟的国际政治，王岐山早晚要栽在陈峰手中。
+根据《联合国宪章》，国际法院的裁决具有约束力，但它们并没有强制执行的手段。
 
-对于俄乌战争，曾庆红则明确地哀叹道，美国会是最大的赢家，而中共将彻底输掉这场国际游戏。
+资料链接：
 
-链接：[3/17/2022 文贵直播](https://www.gettr.com/post/p10l90940cb)
+[UN international court of justice orders Russia to halt invasion of Ukraine](https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/1EA879DF-7724-4FF4-9043-FD7159BE9981.jpeg)
 
-编辑/总编/审核：飞虹
+编辑/总编/审核: 飞虹
 
 校正/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)

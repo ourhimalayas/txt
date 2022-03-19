@@ -2,43 +2,43 @@
 ---
 
 
-## 中共大厦将倾征兆明显—四大欠
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190289/)
+## 遭俄军绑架的乌克兰市长获释
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190400/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
-近日，根据文贵大直播连续爆料，中共大厦将倾，征兆明显，总结为四大欠：
+作者：纽约磐石农场—在远方
 
- 1）国库欠银：国内公务员发不出工资，国际上穷兵黩武。近期，北京市政府，无钱向公务员开支，向国库求助。大陆能全额发放公务员工资的地区，寥寥无几，同时中共发动世界大战，向俄输送巨额战争费用。体制早已腐朽溃烂，败迹明显。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-79.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
 
-2）人口欠壮：养老金难以承担。 中共新规定，提倡三孩政策。除老龄化原因之外，更重要的理由是：中共难以承受养老保险的巨大经济压力。
 
-3）经济欠涨：因病毒疫情，经济接近崩溃。 疫情以来，中共以各种理由，打击中小企业，摧垮民营经济，导致，经济只跌不涨。经济瘫痪之兆明显。
+台媒3月17日报道：3月11日被俄罗斯侵略军绑架的，乌克兰梅利托波尔市市长费得罗夫被乌克兰政府以交换战俘的方式获释。费德罗夫受到泽连斯基总统的高度赞扬。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/28d4215898c2e406-scaled.jpg)
+据乌克兰战略通讯与咨询安全中心表示，乌克兰政府用9名俄罗斯战俘交换了被俘的费得罗夫市长。他被俘后被拘留在卢甘斯克地区，并要求与俄罗斯合作，费德罗夫严词拒绝。而被释放的9名俄国士兵，出生年龄在2002年至2003年，都仅仅是20岁左右的年轻人。
 
-4）民生欠安：病毒疫苗搅得民不聊生。 疫情以来，百姓被强制打疫苗，天天做核算，把疫情变成控制百姓的武器，百姓生活被严重干扰，自由被全部剥夺。
+泽连斯基总统慷慨激昂地表示，我们终于设法让费得罗夫市长获释，英雄的梅利托波尔市不会向侵略者屈服。费得罗夫没有低头，也从未放弃，因为他与我们一样都是乌克兰人！
 
-中共归根到底，是把百姓当成鱼肉，无民心的体现。人间正道是沧桑，中共难支，征兆明显，大厦将倾，国将不国。
+参考来源：
 
-资料链接:[https://gettr.com/post/p1051m93814](https://gettr.com/post/p1051m93814)
+[烏國遭擄市長獲釋了！烏克蘭總統大讚「他從未放棄」](https://news.ltn.com.tw/news/world/breakingnews/3862267)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-51.jpg)
 
-编辑/校对/发稿：Daxia
+编辑/校对/发稿：兰兰
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
 
 
  

@@ -2,42 +2,37 @@
 ---
 
 
-## 澳大利亚威胁对支持俄罗斯的中共国进行制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2190206/)
+## 美国将在澳洲北部地区部署数千名军人
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2190293/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山-Delilah小胖
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+据3月16日史蒂夫·班农先生的盖特转发的外媒消息称，在澳大利亚承认可能与中共军队开战后，美国将在澳洲北部地区部署数千名军人。这是美国陆军首次在当地的部署，总人数大约为2200名接受过地对空导弹系统、高机动火箭炮和无人驾驶飞机训练的美国士兵。  
 
-翻译：liyanli
-编辑：jocozoner
+该部署是为应对中共可能入侵台湾做准备。这些美军将与澳大利亚国防军一起训练，以确保他们能够应对该地区的危机。训练除了包括实弹军事演习，还包含其他项目，如人道主义救助、救灾、疏散任务，以及保护美国大使馆或其他军事行动等。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2004.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-53.png)
 
+针对此报道，班农先生在其盖文中评论到：我们的海军陆战队是最勇敢和最好的。为应对中共的经济战、网络战和信息战，我们还需要应对凶残的中共犯罪政权的超限战武器。
 
-**堪培拉警告称，澳洲将与盟国“步调一致”地采取行动，对北京可能给予莫斯科的任何军事支持进行惩罚。**
+资料链接：[https://gettr.com/post/p10aw7ob2f1](https://gettr.com/post/p10aw7ob2f1)
 
-澳大利亚总理斯科特·莫里森日前在一次例行记者会上表示，如果中共国支持俄罗斯对乌克兰的攻击，则将面临一系列后果。他认为中共国这种举动是“可憎的”，同时暗示将对北京实施新的国际制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
 
-会上有记者提问，中共国拒绝谴责俄罗斯的入侵，这种行为是否会受到惩罚。对此，莫里森总理表示，澳大利亚将与盟国一道对中共国进行制裁。“在这些问题上，我们将与合作伙伴及盟友步调一致。美国已就此发表了一些非常明确的声明，我们支持这些声明。”他还呼吁全世界应切实采取行动，尽快结束俄罗斯在乌克兰所进行的暴力侵略行为。
+编辑/校对/发稿：Daxia
 
-莫里森还认为，北京必须“非常透明”地公开他们与莫斯科的关系，这其中包括“在这场全球危机中，向他们（俄罗斯）提供经济援助”，以及“（中俄两国可能）讨论了（中共国）对俄罗斯的军事援助相关事宜”。而对于后一种行为，莫里森称这是一种非常可憎的行为。
+**更多资讯，更多关注**
 
-美国国家安全顾问杰克·沙利文上周日在罗马与中共国外交官杨洁篪会晤前表示：“我们不会允许这种情况继续下去，不会允许俄罗斯逃脱现有的经济制裁，从任何国家或地区获得援助。”
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-尽管已有报道称中俄现正谈判，中方表示愿意提供援助，但北京方面拒绝了这一指责，认为这些都是“虚假信息”。
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-新闻链接：[Australia threatens China with sanctions for backing Russia](https://www.rt.com/news/552113-australia-threatens-china-russia/)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-2022年3月16日澳大利亚总理记者会的原文链接：[Doorstop – Burswood,WA, Prime Minister](https://www.pm.gov.au/media/doorstop-burswood-wa)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
