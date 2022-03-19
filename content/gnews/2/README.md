@@ -2,26 +2,32 @@
 ---
 
 
-## 沙特外长会见乌克兰总统特使
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2193663/)
+## 普京在入侵乌克兰战争已投入75%的军事力量
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193706/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2153.png)
+据［极限新闻］3月17日报道，俄罗斯普京在其发起对乌克兰的侵略战争中已投入了大约75%的军事力量。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1138.jpg)
+报道援引了前美国陆军欧洲司令霍奇斯中将近日的一份分析报告：俄罗斯已投入其75%的“营级战斗小组”参战，但在守军激烈抵抗下俄军的攻势处于停滞状态。每天向乌克兰的平民和军事目标发射数十枚导弹和火箭的同时，俄军也面临军人、装甲车及飞机的损失。
 
+报告还透露，俄罗斯将在4月份再征召13万兵力投入战场。与乌克兰侨民纷纷赶回国参加抵抗相比，许多俄罗斯人正在离开家乡以避免被普京绑上战车。
 
-图片来源：路透社
+原文链接：
 
-据沙特国家通讯社（SPA）周六报道，沙特外交大臣费萨尔·本·法尔汉·阿勒沙特亲王在利雅得会见了乌克兰总统特使贝克图姆·罗斯塔姆。
+[https://www.newsmax.com/newsfront/pentagon-putin-military-forces/2022/03/17/id/1061654/](https://www.newsmax.com/newsfront/pentagon-putin-military-forces/2022/03/17/id/1061654/)
 
-两人讨论了乌克兰危机，强调沙特王国支持减少升级、保护平民、寻求谈判政治解决方案和国际努力以政治方式解决危机。
+编辑/上传 – 文永
 
-简评： 今天， 沙特外长会见了乌克兰总统特使， 这个消息我个人认为是个极好信号。 在沙特王子希望与中共国用人民币结算石油贸易的时候， 全世界都认为不可思议的， 因为石油是美元计价的， 而中共国又是支持俄罗斯对乌克兰的入侵的。 就在这个节骨眼上，出现这样的镜头， 会不会人民币结算石油的梦想已经破灭了呢。 明天3月20日， 听听郭先生的会不会解读这个内幕呢。 期待的很。
+* * *
 
-🔗 [https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/](https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-编辑发表： Shuizhuyu
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,35 @@
 ---
 
 
-## 2022/03/16 马龙博士谈疫苗后遗症和癌症
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2192476/)
+## 新罕布什尔州批准使用伊维菌素治疗疫情
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-19_134805.jpg)
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
+报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
 
-[GETTR视频链接](https://gettr.com/post/p10kah1d1f8)
+有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
 
-**视频字幕：**
+参考链接：
+1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
+2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
 
-**主持人：**关于辉瑞疫苗的一些副作用。我的意思是，伟哥的广告里一定会有一段时长至少20秒的警告，告诉你如果药效停不下来的话，赶紧去医院，你了解我的意思吗？他们会声明伟哥可以导致失明，可以引起掉发。但在疫苗的副作用上，他们什么也没说。考虑到疫苗会滞留在体内，你担心和你一样的疫苗接种者将面临什么？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-**罗伯特.马龙：**我的朋友瑞安.科尔遭受了至少和我一样的诽谤。顺便说一句，在坐的各位，我们俩聘请了同一名律师，这名律师擅长在定义上咄咄逼人，因此请注意了，“清醒的”记者、倡导者们。瑞安一直在观察这些不同寻常的癌症，我们一直都在旅行，而且我们俩还经常一起旅行，在不同的场合进行发言， 瑞安.科尔是一名病理学家。他接受了世界病理学史上最杰出的皮肤病学家的训练。他有很深的资历，因为说出了在临床上观察到的情况，他受到无情的攻击。他在观测，并且现在我们听到肿瘤学家、癌症外科医生、放射诊断医生和其他许多人开始发声，说他们看到了同样的事情。他看到发病率和严重性方面非常不同寻常的癌症，这不是发生在每个人身上，我不是说每个人都会因患癌死亡。他一直在进行这些方面的观察，并谨慎地谈论。而发生的情况是，人们没有认识到病理学家在整个医疗系统中起着类似质量控制的作用。我们接受过模式识别的训练，这就是我们的工作。为什么罗伯特.马龙会站出来说，“嘿，伙计们，这里有东西不对劲”？因为这就是我受过的训练。我教了十多年的病理学，这就是我们所做的，我们做模式识别和信号检测。
+编辑：Irene木木
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-**简评：**
-
-关于辉瑞疫苗的副作用，并考虑到疫苗会滞留在体内，mRNA疫苗技术的发明者罗伯特.马龙同病理学家瑞安.科尔一起，观察到发病率和严重性方面非同寻常的癌症。一些肿瘤学家、癌症外科医生、放射诊断医生和许多人都看到了同样的情况，虽然这种情况并没有发生在每个人身上。这不是说每个人都可能患癌死亡，但总有值得怀疑的地方，基于他们接受过的病理学训练原理。
-
-疫苗灾难就像决堤的大坝，一旦垮塌，没有力量能够阻挡洪水的倾泻，只能眼睁睁看着一切被吞噬。即将到来的疫苗灾难是一场前所未有的媒体、医疗机构、科学界和政府、金融巨头携手合作而实施的一场全球大屠杀，不分种族，不分年龄，为达到目的，不惜放宽医疗限制，甚至篡改法律。癌症高爆发只是一个方面，更可怕的景象还没到来。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*字幕：Vekap|听写：雨中漫步|翻译：Blue| 校对：nights|简评/文字整理/编辑：胖丁| Page：小六月*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
