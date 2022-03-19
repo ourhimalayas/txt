@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 11:35 PM (UTC)`
+
+3/19/2022 Miles Guo’s GETTR: Failure to distinguish between true and false and good and evil is the necessary element leading to massive evil and catastrophes. While Russia is invading a small country like Ukraine, it is spreading false information everywhere about the surrender of Zelenskyy. Surprisingly, there are still people who believe that the Hang Seng Index can return to 35,000. If so, then go ahead and make investments.<br/><br/>3/19/2022 文贵盖特：不辨真假善恶，是大邪大恶大灾的必然元素；俄罗斯去攻击乌克兰这样的小国、还到处散布泽连斯基投降的假消息；竟然还有人相信香港股市能重回35000点，快去投吧<br/>
+![img](https://media.gettr.com/group34/getter/2022/03/19/23/5468edbb-02dd-fa56-0542-4f779ce27723/out.jpg)
+
+---
+
 `@miles 3/19/2022 11:12 PM (UTC)`
 
 2022.03.19 NFSC News  New Federal State Of China Officially Enters the Global Political Arena； Poland Correspondent shares her wish of taking down the CCP
@@ -148,13 +155,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.19 EST
 ![img](https://media.gettr.com/group10/origin/2022/03/19/10/5fd7dde8-7dd1-85b1-625c-252bf7ccc0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 10:17 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援基地前线报导
-![img](https://media.gettr.com/group14/origin/2022/03/19/08/34b96828-472d-77ba-f82a-bb089636f103/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
