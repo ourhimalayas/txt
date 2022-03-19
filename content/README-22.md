@@ -16,6 +16,10 @@
 ---
 ## 頁面 22/41 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [41](/content/README-41.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年10月23日 文贵直播 中共将低头认错 秋后算账 解决香港问题 弱化彭斯副总统演讲](/content/2019/10/20191024-2483219428770784114.md)
+
+[文字版：2019年10月22日文贵报平安 乌镇“乌脸”网大会 BAT帮助CCP迫害战友西藏新疆同胞、去彭斯副总统推特下面留言为他演讲加油！](/content/2019/10/20191024-6179823633507138709.md)
+
 [文字版：2019年10月21日第二次紧急直播 陈彦霖是枉死，共产党准备了多处灭尸毁证机构](/content/2019/10/20191022-2968214834265730245.md)
 
 [文字版：2019年10月21日郭先生第一次报平安](/content/2019/10/20191022-1216375453972564281.md)
@@ -61,10 +65,6 @@
 [文字版：2019年9月20日郭先生报平安 感谢战友们的担心](/content/2019/09/20190921-9126784850251019674.md)
 
 [文字版：2019年9月17日文貴報平安](/content/2019/09/20190917-2323498074578492581.md)
-
-[文字版：2019年9月15日 香港已成为恐惧之港](/content/2019/09/20190917-7577220596935524798.md)
-
-[文字版：2019年9月16日郭先生直播](/content/2019/09/20190917-3170231134844722988.md)
 
 
 ## 頁面 22/41 [**<**](/content/README-21.md) [1](/content/README.md) ... [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) **22** [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) ... [41](/content/README-41.md) [**>**](/content/README-23.md) [查看全部](/content/README-all.md)

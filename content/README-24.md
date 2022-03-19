@@ -16,6 +16,10 @@
 ---
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：8月13日文贵直播谈未來的48對香港所有上街抗議的同胞極為重要](/content/2019/08/20190814-2176259177090842759.md)
+
+[文字版：8月12日文贵在车上直播](/content/2019/08/20190814-5736259304944176367.md)
+
 [文字版：2019年8月12日報平安 香港人現在遭遇比當年日本鬼子還壞](/content/2019/08/20190813-2165620896818936239.md)
 
 [文字版：2019年8月11日文貴船上直播高度關注香港](/content/2019/08/20190813-1303455060330520952.md)
@@ -61,10 +65,6 @@
 [文字版2019年7月14日班农与文贵直播：共产党为什么可以强奸美国70年？（郭先生篇）](/content/2019/07/20190716-7612931641491284190.md)
 
 [文字版：2019年7月12日蔡英文訪問紐約，和香港接下來的行動。大阪G20的結果已經影響了美國內部的政治！一切都是剛剛開始！](/content/2019/07/20190712-9051839422089379972.md)
-
-[文字版：2019年7月10日，尊敬的战友们好，不要计较任何的名，利，不要评价香港的抗议运动的阶段性的得失······我们只有一个目标：灭共！其他都不重要！](/content/2019/07/20190711-2214533308636884375.md)
-
-[文字版：2019年7月9日：香港逃犯法为什么死亡了？香港还会有抗议吗？会实现双普选吗？](/content/2019/07/20190710-3352711753808364354.md)
 
 
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
