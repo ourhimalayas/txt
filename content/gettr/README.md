@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 2:39 PM (UTC)`
+
+《GTV-真人真事》第46期嘉宾：华盛顿 DC农场  Nicole
+![img](https://media.gettr.com/group8/origin/2022/03/19/14/4ceac700-4769-188f-36e0-fd025b77f665/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/19/2022 2:16 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月18日第14天当日救援统计：<br/>巴士救援难民：166人<br/>Medyka救援站接待：约200人<br/>巴士发车：3次<br/><br/>累计救援总计：<br/>巴士救援难民：1838人<br/>Medyka救援站接待：约6386人<br/>巴士发车：36次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 14 - Date: March 18, 2022 :<br/><br/>Refugees Rescued by Bus: 166 people<br/>Medyka Rescue Station Reception: about 200 people<br/>Bus Departures: 3 times<br/><br/>Total：<br/>Refugees Rescued by Bus: 1838 people<br/>Medyka Rescue Station Reception: about 6386 people<br/>Bus Departures: 36 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -148,13 +155,6 @@
 
 3/18/2022 Miles Guo: There is lots of good news! The CCP has particularly chosen the most toxic poison provided by the US. Ukraine and Taiwan would be the friends that the Chinese should cherish the most. The CCP will be eliminated due to the Ukraine issue. We will soon meet at the Pangu Plaza!<br/><br/>3/18/2022 文贵直播：太多好消息了，中国共产党专门捡美国给它准备的最毒的毒药吃；乌克兰和台湾会是我们中国人最值得珍惜的朋友，中共会死在乌克兰事件上，我们会很快在盘古相聚！ <br/>
 ![img](https://media.gettr.com/group26/getter/2022/03/19/03/ae8e775d-fed0-400f-2f8e-f842508c5e4c/out.jpg)
-
----
-
-`@miles 3/19/2022 2:34 AM (UTC)`
-
-
-![img](https://media.gettr.com/group31/origin/2022/03/17/02/3ad0cf32-fbb6-1c03-6313-609c184c52cd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
