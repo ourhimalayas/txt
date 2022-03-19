@@ -2,35 +2,48 @@
 ---
 
 
-## 大直播后记：新中国联邦乌克兰救援所要改变的是世界对华人的看法
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2190029/)
+## Moderna要求对所有成年人进行第二次Covid强化针注射的紧急批准
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2190066/)
 
-整理：清水冷香、Rianna
-编辑：jocozoner
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-97.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-……所以说这个，一个民族、一个国家的教育，（以及）一个社会环境，它要糟糕的时候，它能把一个美丽的花园变成一毛不长的一个石头地；但要是有一个好的教育，有一个好的社会生存环境，就像美国西部的死亡之谷一样，2004年来了一场雨，结果那里长出了树，长出了花，是因为它有适当的环境。
 
-但是，共产党现在把整个这么一个最美好、最勤劳的一个族类，（都）变成了（具有宛如）一个荒凉死亡之谷的精神境界，这是多么可怕呀！中国人的每次行动，每次张嘴说话，都在拉仇恨。就怕全世界不恨我们，就怕全世界知道我们是人，一定要展示这个世界是魔鬼的一面，这有多么疯狂啊！
 
-看到刚才小Sara说的这些，放在妈妈肚皮上的小孩子，他们多么无辜。一旦（这种情况）在中国发生，中国（肯定）又开始什么易子相食，又要吃孩子了。这文化大革命几十年刚吃过。谁愿意？小Sara，你愿意你的孩子被你自己吃掉吗？你问问现场的文耀，问问大锅，问问春花，问问他们愿不愿意吃掉自己的孩子，或者被别人吃掉？能吗？这（我们的行动）就是要阻止这种灾难，人道（灾难）的发生。
 
-布隆伯格（的）这个垃圾记者说我们是要利用人道救助搞政治。好的政治是救人的，所有的战争都是政治流氓搞的。在人道救援上没有任何原则，只有一个（原则：）救援。使劲骂他们八辈祖宗，撅他们，问问他们老板布隆伯格：拿了多少中国黑钱，多少中国奴隶和新疆（大屠杀）跟他们有关系？到现在，他们的所有的上市的这些数据，还和共产党合作呢。这帮垃圾天天骗人，而且满口张嘴闭嘴就是正义，跟路大脑袋、蛇妖闫、九指妖这帮孙子欺民贼一模一样。
+据[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)3月17日的报道，就在辉瑞公司周二要求FDA批准为65岁以上的成年人提供第二个中共病毒加强针之际，Moderna公司周四晚些时候表示，它已经要求美国食品和药物管理局紧急授权为所有成年人提供中共病毒疫苗的第二次强化针剂，这一要求比辉瑞公司和BioNTech公司本周提出的注射要求要广泛得多。
 
-所以你们在前线是伟大的、英雄（般）的（行为）！坚持住啊，而且要真抓实干。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-93.jpg)图片来源：[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)
 
-[资料来源：20220315大直播](https://www.gettr.com/streaming/p1051m93814)
+这一请求可能会加剧目前正在进行的最新一轮科学辩论，即面对新的变种，美国使用最多的两种疫苗的保护期有多长。
 
-发布：tianzhihuan
+联邦卫生官员表示，他们担心本秋季为之前Moderna和辉瑞公司授权的加强型疫苗的效力会减弱。
 
-**更多资讯****，****请关注****：
-**[**澳大利亚墨尔本雅典娜农场****Twitter**](https://twitter.com/HimalayaAthena1)**：HimalayaAthena
-**[**澳大利亚墨尔本雅典娜农场****Gettr**](https://www.gettr.com/user/himalayaathena)**：himalayaathena
-**[**澳大利亚墨尔本雅典娜农场****YouTube**](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)**
-**[**澳大利亚墨尔本雅典娜农场****Discord**](https://discord.gg/KQQVvwBNvm)**
-**[**澳大利亚墨尔本雅典娜农场****GTV****直播****1****台**](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

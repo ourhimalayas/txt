@@ -2,16 +2,13 @@
 ---
 
 
-## 20220317郭文贵大直播 ：泽连斯基说世界已经改变！曾庆红离开福建意味着中共要打台湾
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2189742/)
+## 【乌克兰救援】波兰第二大广播电台ZET采访报道了“中共不代表中国人”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2189769/)
 
-作者：东京樱花团小视频组
+【乌克兰救援】03/16/2022 波兰第二大广播电台ZET 采访妮可，了解了新中国联邦和法治基金的理念后深表敬意， 并在他们的推特账号上报道了“中共不代表中国人”。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

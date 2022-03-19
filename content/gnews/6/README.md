@@ -2,48 +2,30 @@
 ---
 
 
-## Moderna要求对所有成年人进行第二次Covid强化针注射的紧急批准
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2190066/)
+## 大直播后记：新中国联邦人是灭共的中国人
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2190105/)
 
-作者：纽约香草山农场 – 四季
+整理：GraceFang、Rianna
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/GLMT5G4UHOU142A@R5.png)图片来源：雅典娜设计组
 
 
-据[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)3月17日的报道，就在辉瑞公司周二要求FDA批准为65岁以上的成年人提供第二个中共病毒加强针之际，Moderna公司周四晚些时候表示，它已经要求美国食品和药物管理局紧急授权为所有成年人提供中共病毒疫苗的第二次强化针剂，这一要求比辉瑞公司和BioNTech公司本周提出的注射要求要广泛得多。
+我们的救援队在前线，而战争已经进入第20天了。泽连斯基昨天在美国国会讲话有句精彩的话：“世界已经改变！”到现在西方才知道，我们是消灭中国共产党的中国人，世界所有麻烦问题都来自中国共产党。要解决世界问题，就是要消灭中国产党。现在我们战友的马甲上没写这词，下一步咱们再完善。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-93.jpg)图片来源：[网关专家](https://www.thegatewaypundit.com/2022/03/moderna-asks-fda-emergency-authorization-second-covid-booster-shot-adults-nyt/)
+那么，我们新中国联邦法治基金的帐篷应该是（救援前线）天下第一啊。全世界很多媒体都在引用，共产党简直是吓死了。昨天，有一个在厦门曾庆红的老朋友去探望，问他今年还是按老时间回京吗？曾庆红说最近启程准备回京。什么意思？知道吧，曾庆红回京就说明台湾可能要开战了。因为在福建不安全呢？曾在厦门呢。他聪明着呢，所以他要先走啊。但是，他的哥们问：“你最近看那个小子折腾了嘛？那小子竟然跑到乌克兰前线救援去了，这是谁给他出的招啊？”曾说：“这个人啊，这个举动不应该是一个人的决定，这个（出主意的）人应该是高人，还应该是咱体制内的人。”
 
-这一请求可能会加剧目前正在进行的最新一轮科学辩论，即面对新的变种，美国使用最多的两种疫苗的保护期有多长。
+说实话，我们在前线救援的战友，长岛村长在这儿，没有任何人（支招），咱就是看到（战争爆发）以后本能就决定上前线救援。我们今天小鸟战友啊，喜马拉雅二喜在这儿呢，今天咱们扬帆农场的很多战友，都在这呢。大家都在群里边都知道，我们没有与任何人商量，马上作出决定。然后小鸟这回要冲到前线去了，文耀就不用说了，我还没闹明白时，她已经到前线去了，大卫已经到了，是吧？英喜战友也到了，（意大利）文戈也到了。所以曾庆红的话你们不要小看，说明他每天都在看这个直播。
 
-联邦卫生官员表示，他们担心本秋季为之前Moderna和辉瑞公司授权的加强型疫苗的效力会减弱。
+然后曾庆红给这个哥们说句实话，你看看福建人在过去几个历史的时刻，什么叫历史的时刻？大清朝时福建人是最早派到美国犹他州的，当时是大清朝与美建交，1773年派福建人到犹他州参与建设美国的；然后第二个就是福建人参与建设纽约曼哈顿。所以说曾是很了解福建人的，他妈妈又在福建长大的啊，他也是半个福建人。他最后点评说：“你看，这帮家伙抓住这个机会，不但到前线去了，关键他们在前线的形象，他们的所作所为引起的关注。这个是发酵，你是止不住的，它的这个作用太大了。”所以说，你们这些在前线的战友，你们不知道意义有多深远,你们以为站在镜头前就是简单讲两句话，哪儿那么简单呢？当中国14亿人看到你们每个人这样的时候，他们就都到前线去救人——我想当这个人，你们绝大多有良知中国人的代表。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+资料来源：[2022年3月17日 文贵大直播](https://gettr.com/streaming/p10fr57b127)
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
