@@ -2,10 +2,10 @@
 ---
 
 
-## 香港第五波疫情2个月确诊人数超一百万 死亡近5千人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2189181/)
+## 日本政府正式决定不再延长防疫重点措施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2189269/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220319-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220319-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)

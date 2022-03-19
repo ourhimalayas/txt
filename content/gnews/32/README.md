@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|乌克兰中国留学生亲述新中国联邦救援经历
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188682/)
+## 美国致力加强台湾不对称作战能力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2188747/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月15日，两位乌克兰中国留学生接受新中国联邦采访，亲述俄乌战争爆发后，在新中国联邦、治基金的帮助下，逃离基辅来到波兰的经历，感恩新中国联邦、法制基金的救助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1967.png)
-据两位留学生所述，在第一声爆炸之前，没有人相信会发生战争。而在战争持续几天后，他们意识到必须自救。通过微信朋友圈，他们看到新中国联邦、法制基金的救援信息，并立即打通了救援电话。他们采纳了新中国联邦战友建议的救援路径，顺利逃离基辅，到达利沃夫。而后，他们乘坐新中国联邦的大巴，到达波兰边境小镇热舒夫，随后抵达克拉利夫的酒店。一路上，他们得到救援团队暖心的关怀。
+作者：加拿大温哥华扬帆农场-文莱
 
-与中共置同胞性命于不顾形成强烈的对比，新中国联邦在战争爆发后，第一时间对同胞展开的救援行动，使两位获救留学生无限感慨。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2078.png)图片来源：TWN
 
 
+据台湾媒体【台湾英文新闻】3月16日报道，美国国防部日前已通知国会可能需要向台湾再次出售武器，而此次交易可能不是飞机和舰艇等传统武器，而是有助于台湾提高不对称作战能力的物品，如与作战训练、后勤和战场管理相关的精确弹药和装备。
 
-文字版原文：[乌克兰中国留学生亲述新中国联邦救援经历](https://gnews.org/zh-hans/2184512/)
+据悉，美国国防与安全研究说【INDSR】高级分析师认为，美国在蔡英文总统执政期间，迄今已售出18种武器，其中16种有助于台湾的不对称作战能力，同时也表明台湾和美国之间达成默契，即在符合台湾当前的防御资源的前提下，增强台湾的不对称能力并达到最大的防御能力。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+此外，中共内部的国防军政治军事作战概念部的研究员表示，美国对台军售是美国致力于帮助台湾自卫的标志，也是向地区盟国发出加强安全合作以抵抗中共军队的信息。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+链接：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[Analysts expect next US arms sale to bolster Taiwan’s asymmetric defense | Taiwan News | 2022-03-16 20:44:00](https://www.taiwannews.com.tw/en/news/4475628)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+采编：青青，编译撰稿：文莱，编辑发稿：硫酸羟氯喹64
 
  
 

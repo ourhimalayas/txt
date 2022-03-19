@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|美参议院决议支持调查普京政府的战争罪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2189138/)
+## 中日财经爆┃中朝恢复货运列车贸易总额大幅增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2189224/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月15日，美国参议院一致通过了一项不具法律拘束效力的决议，鼓励并支持国际刑事法院对普京个人及其政权、安全理事会与军方领导人无端向乌克兰发起战争而犯下的战争罪进行调查。外媒报导称，参议院通过该决议，强烈谴责俄罗斯的侵犯行为是“暴力、战争及反人类罪”。
+撰稿：东京樱花团 文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-34.png)照片来源于本文链接
+朝鲜和中国之间恢复货物列车运行两个月。根据中国海关总署3月18日公布的贸易统计数据，中朝之间的贸易总额超过1.36亿美元，截至上个月为止，中国和朝鲜之间的贸易总值与去年同期相比增加了40多倍。
 
-外媒报导曾指出，美国官员已经针对俄罗斯入侵是否犯下战争罪在收集相关讯息，其中俄罗斯攻击乌克兰本土的目标，不仅是核电站或军事设施，甚至将平民住所和妇产医院等作为攻击目标，因此死亡的平民不计其数。
+从中国和朝鲜之间的贸易状况看，朝鲜在2020年1月开始封锁边境，作为防止中共病毒（新冠病毒Covid-19）的措施，因此2021年的贸易总额比2019年低了近90%，2019年两国之间的贸易未受病毒影响。
 
-目前，美国将把它与盟国和合作伙伴收集的信息发送给总部位于日内瓦的联合国人权理事会，该理事会已成立一个调查委员会，调查俄罗斯可能侵犯人权的行为，并追究俄罗斯领导人的责任。乌克兰总统泽连斯基也表示，俄罗斯必将为战争罪负责，他敦促俄罗斯士兵尽快投降。
+虽然朝鲜经济因其核导弹的开发受到经济制裁，遭受严重打击，已于今年1月中旬恢复的中国和朝鲜之间的货物列车运行弥补了经济制裁带来的损失。
 
-文字版原文：[美参议院决议支持调查普京政府的战争罪](https://gnews.org/zh-hans/2179156/)
+可以看出，朝中贸易的增长主要是由于货运列车的恢复。现已经恢复到2019年同期的一半水平。
 
-音频处理：Fei797
-发稿：Fei797
+现在奥密克戎疫情在中国再次蔓延，多个省市已经被封，为经济的恢复到来带巨大的压。中朝贸易是否会真正恢复，还有待观察。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+[消息来源](https://www3.nhk.or.jp/news/html/20220319/k10013541051000.html?utm_int=news-international_contents_list-items_007)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
