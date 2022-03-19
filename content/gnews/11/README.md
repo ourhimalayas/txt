@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯军队正试图 “把乌克兰人饿死”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191351/)
+## 泽伦斯基敦促德国‘推倒’俄罗斯制造的高墙
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2191454/)
 
-03/17/2022 天空新闻：俄对乌克兰首都基辅周围食品储存设施的多次袭击表明，俄军队正尝试让乌克兰人民饿死的新策略
+03/17/2022 泽伦斯基援引柏林墙的倒塌，试图说服德国议员尽一切可能阻止俄罗斯对乌克兰的入侵。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

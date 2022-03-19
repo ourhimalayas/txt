@@ -2,33 +2,28 @@
 ---
 
 
-## 《历史的今天》2022.03.19
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2191408/)
+## 英国将在波兰部署最新中程导弹防御系统
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2191483/)
 
-作者：JAY (杰伊)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/19.jpeg)
-一，1945年3月19日，希特勒命令摧毁德国基础设施防止盟军使用。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体3月17日报道，英国国防部长华莱士在华沙宣布，英国将在波兰部署其最新的中程导弹防御系统——“天空之刃”。该系统有能力击中以光速移动的网球大小的目标。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-32-scaled.jpg)
+华莱士表示，自从普京入侵乌克兰后，与乌克兰接壤的波兰最有可能成为俄罗斯未来袭击的目标。波兰是北约盟邦，也是历史悠久的英国盟友。因此英国要支持波兰。天空之刃系统将帮助波兰保卫其领空免受俄罗斯武器的攻击。
 
-二，1946年3月19日，美国驻华军事顾问团在南京成立。
+不过，英国并未透露，这套系统何时部署，以及将部署多久。
 
-三，1979年3月19日，乌干达总统伊迪阿明被推翻。
+链接：
 
-四，1979年3月19日，邓小平会见瑞士联邦委员、公共经济部部长霍纳格时阐述对外开放政策。
+- [Britain to Deploy Missile Defense System in Poland](https://www.thedefensepost.com/2022/03/17/britain-missile-system-poland/)
 
-五，1980年3月19日，邓小平提出评价建国以来历史问题的指导思想。
 
-六，2001年3月19日，日本银行发布量化宽松货币政策刺激日本经济。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-七，2004年3月19日，台湾发生总统选举候选人陈水扁和吕秀莲在拉票过程中遭遇枪击的事件。
-
-八，2012年3月19日，北京政变。
-
-九，2021年3月19日，中美阿拉斯加的会谈。郭文贵先生谈阿拉斯加会谈引起了美国和西方的高度关注，及如何看待共产党玩弄种族矛盾。
-
-* * *
-
-*发布：Theodosia*
-
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

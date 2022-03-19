@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 11:15 AM (UTC)`
+
+3月19号：尊敬的战友们好，请大家务必严肃认真的防止．共产党病毒．祝大家周末愉快……【在香港，新冠疫情激增，我们的棺材用完了。 请从我们的错误中吸取教训 】https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 3/19/2022 10:52 AM (UTC)`
@@ -149,12 +155,6 @@
 
 3/18/2022 Miles Guo’s GETTR: Some Americans are complaining to us as the CCP is supporting Russia in its war against Ukraine. We feel sorry for that, but we are citizens of the New Federal State of China. We are different from the CCP, which cannot represent us Chinese. Also, it is Wall Street that has helped with the rise of the CCP. However, HK dollars and Renminbi will for sure end up being joss paper.<br/><br/>3/18/2022 文贵盖特：中共支持俄罗斯打乌克兰让美国人不舒服了，但是对不起，我们是新中国联邦人，共产党不能代表我们中国人；中共有今天也是拜华尔街所赐，但最终港币、人民币一定会成冥纸
 ![img](https://media.gettr.com/group15/getter/2022/03/18/22/7c6e1570-a074-2ec3-b340-ad114dcd0760/out.jpg)
-
----
-
-`@miles 3/18/2022 10:01 PM (UTC)`
-
-3月18号：这是我看过．穿G FASHION 这个佛教系列最美的🙏🙏🙏太棒了。【郭先生 Ashlee Simpson 穿我们的佛系裤子啦 她是Jessica Simpson 的妹妹 <br/><br/>https://instagram.com/stories/gfashion/2796911936138618649?utm_source=ig_story_item_share&utm_medium=copy_link】
 
 ---
 
