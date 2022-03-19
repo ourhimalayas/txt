@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 1:54 PM (UTC)`
+
+【Ukraine Rescue】03/18/22 We have some fellow fighters recovered and back to work again today. After the adjustment and recovery, our follow fighters all back to work energetically. Our rescue operation held by ROLF and NFSC has received compliment and recognition from the local Polish people and international NGOs.<br/><br/>【乌克兰救援】03/18/22 我们今天也有几位战友康复回来归队。大家经过这段的调整，康复以后，我们都精力满满，回到这个工作岗位上。我们这次法治基金新中国联邦的救援行动也得到了波兰民间和国际NGO组织的认可和赞赏。<br/>
+![img](https://media.gettr.com/group14/getter/2022/03/19/13/5a14bd37-e85c-7879-291b-0da175924b0f/out.jpg)
+
+---
+
 `@miles 3/19/2022 1:28 PM (UTC)`
 
 【Ukraine Rescue】03/18/2022 David introduces the NFSC Rescue Operation will focus more efforts on the frontline in Medyka to better enhance security and services. Our shuttle bus service is suspended for the time being and will resume if needed in the future.<br/><br/>【乌克兰救援】03/18/22 大卫介绍新中国联邦救援行动会将更多的力量集中到前线梅迪卡，以便更好的提升安保和服务工作。救援大巴车暂停，根据情况重启。
@@ -141,13 +148,6 @@
 
 2022.03.18 晚《新中国联邦新闻访谈》习近平等待5月份疫苗灾难；FBI抓美民运大佬，实为中共特务；俄罗斯曝习近平今秋攻台
 ![img](https://media.gettr.com/group11/origin/2022/03/19/01/5d2fb57b-50c8-5084-18b5-b8d3ec893e98/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/19/2022 12:38 AM (UTC)`
-
-2022.03.18 晚 《新中国联邦新闻》波兰记者祝新中国联邦早日推翻中共政权； 新中国联邦正式走向世界政治舞台
-![img](https://media.gettr.com/group47/origin/2022/03/19/00/fe21098f-f673-0dad-22df-3481f3fa9c59/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

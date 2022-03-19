@@ -2,32 +2,26 @@
 ---
 
 
-## 乌控俄战车含德国博世零件
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2190631/)
+## 战友前线救援 践行健身健心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2190118/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：纽约香草山农场 静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月17日，新中国联邦和法治基金在波兰梅蒂卡救助点的记者Nicole 发回了多条前线救援消息：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-19-at-9.47.28-PM.png)
+- 一位前一夜通宵值班的德国纽伦堡正义农场的战友介绍，在他们值班期间，新中国联邦和法治基金的救援帐篷前车辆川流不息，来往运送7人一组的难民20多批次，一夜间救援团接待了超过两百名难民。而在难民们达到救援点后，战友们用香浓的现磨咖啡招待了她们，安抚她们颠沛流离的内心。
 
-据中央社3月19日报道，乌克兰声称在俄罗斯军用车辆中发现德国博世集团（Bosch）产品，该公司已停止向俄罗斯交付卡车零件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-4.png)汽车零件供应商博世集团（Bosch）表示，公司已停止向俄罗斯顾客交付卡车零件（图片来自网络）
+- 随着救援行动的持续进展，不少当地民众捐赠了大量的物资，包括水、面包、衣物等，这也为在救援点短暂安置的难民们提供了充足的挑选空间。但据前线战友透露，规整物资现在已经是救援团队每天必做的一项大工程：义工战友需要不间断地进行分类、收拾和整理工作。其中，文耀战友在工作的间隙透过采访镜头向爆料革命的战友们呼吁称，大家一定要坚持健身，保持良好的身体。
 
-乌克兰外交部长库列巴（Dmytro Kuleba）13日在德国第一电视台（ARD）的谈话节目上说，乌克兰军人最近掳获俄罗斯的步兵战车，里面有博世制造的零件。
 
-德国有关当局立即对此展开调查，因博世可能违反出口规定。这项出口限制是西方对俄罗斯2014年吞并乌克兰克里米亚地区而祭出的制裁，规定欧盟（EU）的企业禁止向俄罗斯供应“军民两用”商品。
+参考链接：[2022.03.19 早 《新中国联邦新闻》](https://gettr.com/streaming/p10s0mgdd7b)
 
-博世集团回应说，公司对库列巴的指控严肃看待，已展开全面性审查。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-据报道，耶鲁大学公布了一份自俄罗斯入侵乌克兰以来，已经离开和仍留在俄罗斯的跨国公司名单。耶鲁大学的这两份名单保持每日更新，截至3月15日，已有380个全球品牌宣布退出俄罗斯市场。
-
-根据该名单，选择继续留在俄罗斯的一些西方知名的大型国际公司有博世（Bosch）、赛百味（Subway）和倍耐力（Pirelli）等。
-
-参考链接：
-1.[https://www.cna.com.tw/news/aopl/202203190047.aspx](https://www.cna.com.tw/news/aopl/202203190047.aspx)
-2.[https://gnews.org/zh-hans/2180617/](https://gnews.org/zh-hans/2180617/)
-
-总编：青城道姑
-校对发布：Linda
-
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
