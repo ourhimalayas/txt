@@ -2,52 +2,30 @@
 ---
 
 
-## 郭先生解读何谓NFSC咖啡！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2193486/)
+## 载有俄罗斯宇航员的联盟号宇宙飞船飞往国际空间站
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2193493/)
 
-作者：香草山信息部 — 6zero4
+**三名俄罗斯宇航员启程前往国际空间站ISS。 与此同时，德国欧空局宇航员Matthias Maurer庆祝了他的生日。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
+作者：dpa, lex/原文发布于2022年3月18日18:25
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-9.jpg)图片：三名俄罗斯宇航员从哈萨克斯坦启程前往国际空间站。dpa/ 俄罗斯航天局
 
-郭先生在3月17日的大直播中表示，救援前线的一杯杯现磨咖啡，是新中国联邦带给西方文明世界的一份份礼物！
+正在俄罗斯和西方国家关系非常紧张时，载着全部俄罗斯宇航员的飞船启程前往国际空间站。周五，载有宇航员Oleg Artemyev、Denis Matveyev和Sergei Korssakov的联盟MS-21飞船从哈萨克斯坦的俄罗斯拜科努尔航天港升空。俄罗斯航天局传送了现场的图像。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-19.43.07.png)
+图像显示火箭升入中亚的夜空。“机上一切正常，”来自地面站的无线电信息说。宇航员们一切都好。前往人类空间站的特快飞行预计需要三个小时。在国际空间站，宇航员将与另外两名俄罗斯人和四名美国人会面。德国人Matthias Maurer周五在那里庆祝了他的52岁生日（[Der Deutsche Matthias Maurer feierte dort am Freitag seinen 52. Geburtstag.](https://www.berliner-zeitung.de/news/astronaut-matthias-maurer-feiert-geburtstag-im-all-li.217416)）。
 
-咖啡在西方文明社会，尤其是在信仰基督教和天主教的西方社会，是物理上和生理上的提神剂，象征着浪漫、男女、家庭、愉悦、幸福、和平，是一种区域性文化的标志，就像中国人喝茶象征着清闲、休闲、情调、舒情、环境、团结、家庭、欲望、愉悦。我们在乌克兰救援前线提供的现磨咖啡，是咖啡里面的最高境界，是在宝贵的难民救援时间里挤出时间才能给你现磨的，并不是每个西方人都能随便享受到的。
+**对俄罗斯的制裁影响到了航天领域**
 
-就像中国的普洱茶，只有中南坑和当地权贵才能享受的，老百姓哪有时间和物质条件天天喝普洱茶的？如中共打台湾时，大家都端着一杯杯刚刚沏好的普洱茶送到台湾难民和全球义工手中，那是对人性的一个尊重，热气腾腾的普洱茶是治疗难民精神创伤最好的饮品。
+由于俄罗斯对乌克兰的攻击而对莫斯科实施的制裁，也给美国和俄罗斯在航天领域合作造成了严重的影响。因此，最近俄罗斯航天局就2024年合同到期后，对国际空间站的未来尚未表态。美国国家航空航天局争取持续到2030年。
 
-这杯现磨咖啡代表着我们对西方文化、基督文明、社会文明、人际关系和西方家庭的理解，当你在极冷的天气下刚刚逃出战争或在救援中立刻喝到直接现磨出来的咖啡，那个味道是无比珍贵而怀旧的，是妈妈在家才能给到的温暖和爱护，是通常过年这样的盛大节日才能享用的味道，是重新回到妈妈怀抱的感觉，充满了力量和温暖，让你坚信自己承载的文明和使命。
+以往与这次不同的是，在联盟号发射时，通常由一位美国宇航员或欧洲航天局（Esa）的宇航员一起飞行。美国航空航天局Nasa已在很长时间重新使用美国飞船前往国际空间站。
 
-同时，这杯热乎乎的现磨咖啡呈现在寒冷的天气、冷漠的战乱下，在乌克兰难民和救援义工最需要帮助的时候提供给他们，无疑是一种精神上、肉体上、生理上的巨大安慰，是对他们的尊重和爱护。这杯现磨咖啡承载着新中国联邦人的一句话：我懂你们，我爱你们，我愿意为你们付出，我们在一起！这杯现磨咖啡就成了一条把新中国联邦人与西方朋友连在一起的纽带，这就叫新中国联邦NFSC咖啡！
+周五发射的联盟号以苏联火箭设计师Sergej Koroljow的名字命名，他于1907年出生在斯奇托米尔。这座城市现在位于乌克兰境内。
 
-新闻源于:
-[https://www.gettr.com/post/p10lf8u5c3a](https://www.gettr.com/post/p10lf8u5c3a)
-
-2022年3月19日
-
-（本文仅代表作者个人观点）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-48.jpg)
-
-*编辑 /校对*：*Yuki*jiang
-
-*发稿：Yuki*jiang
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+原文链接：[https://www.berliner-zeitung.de/news/sojus-kapsel-mit-russischen-kosmonauten-zur-iss-gestartet-li.217772](https://www.berliner-zeitung.de/news/sojus-kapsel-mit-russischen-kosmonauten-zur-iss-gestartet-li.217772)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

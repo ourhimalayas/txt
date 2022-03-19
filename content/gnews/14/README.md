@@ -2,23 +2,31 @@
 ---
 
 
-## 樱花FM|中共国疫情爆发，多点开花
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2193561/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2193608/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-5-7.png)
-3月11日， 31个省份新增本土“476+1048”，无症状感染者单日新增破千例。单日新增本土无症状感染者破千，连续6日无症状感染者数量超过确诊病例数量。自3月6日以来，全中国单日新增的本土无症状感染者，已经连续6日在300例以上，均超过确诊病例数量。目前，奥密克戎毒株已取代德尔塔毒株成为全球范围内的主要流行毒株。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
-中共在数据上继续选择性的报道，领导满意的态度去处理，中共的核酸检测管用吗，确诊的患者是真正的感染还是疫苗副作用导致，我们无从知晓；另一个角度去看针对次轮的疫情在中国大陆多点开花，时间点也许是个巧合，冬奥会之后，残奥会也即将结束，俄乌战争之时，乱中取胜，危中有机，中共一贯如此，郭文贵先生曾在2022年3月11日的直播中提到3月底到4月会在中东挑起能源战争和再次放毒，然后伺机拿下台湾。这次的疫情是为中东的投毒在演一场戏吗？会让中共得逞吗？纵观上图疫情最严重的的点在广东，香港，疫情如此严重对军事行动等定会有影响，上天在灭共，帮助台湾。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-19.png)
+文章仅代表作者本人观点，与Gnews无关
 
-在2020年郭文贵先生也曾讲过最好的防疫就是告诉老百姓真相，让老百姓自己去做决定，中共从不说实话，一切都是假的，中共的谎言铁锁，锁着太多人的思想，我们要挣脱它，砸碎它，就像歌曲‘铁锁梦’中的“同胞快醒来，从此要站着活，我们砸碎这铁索”……
+视频参看：
+[2022.03.19早 《NFSC新闻》](https://gettr.com/streaming/p10s0mgdd7b)
+[2022.03.19早《NFSC新闻访谈》](https://gettr.com/streaming/p10s69scd30)
 
-文字版原文：[中共国疫情爆发，多点开花](https://gnews.org/zh-hans/2153429/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Mar-Calendar.jpeg)
 
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
  
 

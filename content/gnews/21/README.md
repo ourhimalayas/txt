@@ -2,37 +2,64 @@
 ---
 
 
-## MV版Hcoin To the Moon上线100天第60次位列匈牙利iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2193281/)
+## 血栓在像海莉-比伯这样的“越来越年轻的人”中发生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2193377/)
 
-3/19/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线100天第60次位列匈牙利iTunes摇滚音乐视频榜榜首，第78次位列前三名
+***评论：**媒体开始吹风了，亲吻，早餐，电视，气候等等，都有可能导致血栓……除了COVID-19疫苗。*
 
-* * *
+据《People.com》 作者：Julie Mazziotta，2022年3月14日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2149-e1647713188350.png)贾斯汀-比伯和海莉-鲍德温 | 来源: Dimitrios Kambouris/Getty Images for The Met Museum/Vogue
+海莉-鲍德温-比伯在患上血凝块并转移到她的大脑后正在康复，一位血管神经学家说，这种健康问题正在“越来越年轻的人”身上发生。
 
-[【PDF 下载】Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+25岁的比伯周六分享说，星期四早上她和丈夫贾斯汀-比伯一起吃早餐时，她“开始出现类似中风的症状，并被送往医院”。
 
-* * *
+在那里，医生发现她的大脑“遭受了一个非常小的血凝块”，导致“少量缺氧”。她解释说，比伯的身体能够自行通过血凝块，她“在几个小时内完全恢复”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+克利夫兰诊所脑血管中心主任Shazam Hussain博士告诉《人物》，像比伯这样的血凝块可以“由于不同的原因”形成，包括环境和遗传因素。
+
+“了解你的健康状况和你可能有的任何潜在的中风风险因素是很重要的，比如高血压、高胆固醇、乳糖不耐等……当我们有年轻人发生中风时，我们会寻找会导致他们的血液有凝结倾向的东西–它可能是遗传的，在他们的家族中运行。”
+
+Hussain说，随着血块进入大脑，它们通常来自身体某个部位的血管堵塞，如颈部，或直接来自心脏。
+
+而一旦进入大脑，即“对血流不足最敏感的器官”，缺氧将导致大脑功能关闭并引起类似中风的症状。这些症状可以用缩写BE FAST来发现–B代表平衡，E代表眼睛和有视力问题，F代表面部下垂，A代表手臂或四肢无力，S代表说话困难，T代表时间，意味着是时候拨打911。
+
+Hussain说：“中风确实是一个分秒必争的情况。大脑对血流的缺乏非常非常敏感，你每分钟大约损失200万个脑细胞。因此，立即得到医疗照顾真的很重要。”
+
+在比伯的案例中，她能够自己通过血凝块，这对于小凝块来说通常是可能的。Hussain说：“如果是小血块，它可以自行消散和消失，不会留下任何持久的问题或麻烦。”
+
+如果情况不是这样，如果是在中风后的最初4.5小时内，医生通常会使用一种血块破坏药物来溶解血块，或者对于较大的血块，他们会进行血栓切除术，通过血管清除血块。
+
+对于像比伯这样的情况，这些事件通常被称为小中风或短暂性脑缺血发作（TIA）。Hussain说：“这意味着有一个血凝块，它完全溶解了，这个人完全百分之百地恢复了正常。然而，如果核磁共振成像显示大脑有任何损伤，”那么它就变成了完全中风”。
+
+Hussain说，像比伯这样的情况是每个人都应该注意的，无论是年轻人还是老年人。
+
+他说：”我们认为中风是发生在老年人身上的事情，但我们看到它发生在越来越年轻的人身上。“一般来说，它与人们不健康的生活方式有关，也许吃得不好或没有定期锻炼，还有其他因素，如遗传。因此，重要的是人们不要仅仅认为它是发生在老年人身上的事情。如果你是年轻人，有这些症状，你必须去医院。”
+
+Hussain还指出，虽然COVID-19疾病已被证明会导致血凝块，“幸运的是大多数人不会遇到这个问题”。尽管如此，了解中风的症状并在发生类似情况时立即就医还是很重要的。
+
+“这就是我们所说的前负荷风险。最高风险期是在头两天，然后是第一个月，但幸运的是，一旦你度过了那个最高风险的第一阶段，你的风险就开始向一般人群回落。”
+
+Hussain说：“对于任何关心自己中风或血栓风险的人来说，关键是要定期接受医生的检查，确保自己没有高血压，坚持健康饮食，进行锻炼，并保持胆固醇的控制。吸烟是另一个主要的风险因素，所以你要戒烟。”
+
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://people.com/health/blood-clots-like-hailey-biebers-are-happening-in-younger-and-younger-people/](https://people.com/health/blood-clots-like-hailey-biebers-are-happening-in-younger-and-younger-people/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
 
 
-[【PDF 下载】Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,59 +2,37 @@
 ---
 
 
-## 日本与印度同意不容忍用武力改变现状的企图
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2193228/)
+## MV版Hcoin To the Moon上线100天第60次位列匈牙利iTunes摇滚MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2193281/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/J-2.jpg)mainichi.jp
-共同社3月19日新德里报道，日本首相岸田文雄和印度总理莫迪周六同意，他们绝不会容忍在任何地区以武力改变现状的企图，以回应俄罗斯对乌克兰的侵略。
+3/19/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线100天第60次位列匈牙利iTunes摇滚音乐视频榜榜首，第78次位列前三名
 
-岸田在新德里会晤后的联合新闻发布会上说，两位领导人申明，乌克兰的战争必须根据国际法来解决，而莫迪在新闻发布会上没有提到俄罗斯对乌克兰的入侵。
+* * *
 
-会谈举行之际，日本正试图寻求传统上与俄罗斯关系密切的印度与日本、美国、欧洲和其他国家保持一致，谴责俄罗斯于2月24日开始的对乌克兰的侵略。
+[【PDF 下载】Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-在会谈后发表的一份联合声明中，他们对乌克兰的 “持续冲突和人道主义危机 ”表示严重关切，并敦促 “立即停止暴力”，但没有直接提及俄罗斯。
+* * *
 
-在乌克兰战争陷入僵局的同时，莫斯科的攻击一直在加强，狂轰滥炸增加了对平民的伤害。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-俄罗斯军队周六表示，他们发射了空对地的 “金扎尔（Kinzhal ）”导弹，以摧毁乌克兰西部的一个地下导弹库，这是首次在实际战争中使用高超音速导弹。
 
-根据国际移民组织的数据，被迫离开家园的乌克兰人已经达到近1000万，因为有648万人在国内流离失所，而联合国难民事务高级专员办事处说有332万人逃离了乌克兰。
+[【PDF 下载】Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-声明称，在莫斯科袭击乌克兰的核电站后，岸田和莫迪呼吁确保前苏联共和国的核设施安全。
-
-两位领导人还重申了他们对自由和开放的印太地区的愿景，因为他们担心俄罗斯对乌克兰的攻击可能让中共国在印度洋-太平洋地区更加自信。
-
-岸田说：“我们同意反对单方面改变中共国东海和南海现状的企图。”
-
-岸田从3月19日到3月21日正在进行两国访问，他还将访问柬埔寨。
-
-两位领导人还肯定了由澳大利亚、印度、日本和美国组成的四方集团的重要性。岸田邀请莫迪参加日本领导人可能在5月举办的四方集团峰会。
-
-在经济方面，岸田公布了一项在五年内向印度投资5万亿日元（420亿美元）的计划，超过了时任日本首相安倍晋三在2014年访问该国时承诺的3.5万亿日元。
-
-“印度与日本的伙伴关系应该变得更加深入。通过这种伙伴关系，应该鼓励印太地区的和平、繁荣和稳定。”莫迪在新闻发布会上说，“这不仅对我们两国很重要，对世界也很重要。”
-
-日本一直在支持印度的城市基础设施建设，包括一个将日本高速列车引入这个南亚国家的项目。
-
-两位领导人对2020年签署的一项采购和交叉服务协议表示欢迎，该协议将允许日本自卫队和印度武装部队共享物资和运输任务。
-
-这次访问是岸田自去年10月上任以来的第二次海外访问，恰逢日本和印度建交70周年。
-
-周日，岸田将前往柬埔寨会见首相洪森，这是东京加强与东南亚国家联盟合作努力的一部分。
-
-**特评**：郭先生已经警告世界，俄乌战争开启了世界的惊人巨变。日本、印度、澳大利亚这些亚洲国家很清楚，接下来要面对的或近几年来一直在面对的首要问题就是中共国霸权对印太地区的影响，中共对台湾的吞并箭在弦上。
-
-已经超过中共国成为世界第一的人口大国的印度在亚洲的地位和态度都将直接影响周边各国政策与力量平衡，日本首相此时到访可谓意义重大。
-
-日本首相岸田文雄和印度总理莫迪周六同意，他们绝不会容忍在任何地区以武力改变现状的企图，乌克兰的战争必须根据国际法来解决，而莫迪在新闻发布会上没有提到俄罗斯对乌克兰的入侵。政治外交的微妙之处就是政客们斡旋的缝隙所在，说到底是为了利益。
-
-中共是世界灾难的根源，消灭中国共产党才能拯救人类。
-
-参考链接：
-
-[https://english.kyodonews.net/news/2022/03/4f15c124a540-kishida-to-meet-indias-modi-seek-alignment-on-ukraine.html](https://english.kyodonews.net/news/2022/03/4f15c124a540-kishida-to-meet-indias-modi-seek-alignment-on-ukraine.html)
-
-**编译 发布：意大利罗马达芬奇农场Roma**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
