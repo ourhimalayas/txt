@@ -2,92 +2,38 @@
 ---
 
 
-## 凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2188769/)
+## 拜习通话 美国警告中共支持俄罗斯将面临制裁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2188785/)
 
-Kevin Durant (NY NETS basketball player)
-凯文·杜兰特（纽约网队篮球球员）
+翻译：冰糖葫芦喵
 
-That’s ridiculous. I don’t understand at all
-这是太荒谬了， 我完全不明白
+编辑与校对：冰糖葫芦喵、灭共文明
 
-I mean, as few people in our arena unvax, right?
-我的意思是，因为我们的运动馆只有很少的人没有接种疫苗，对吧？
+《路透社》华盛顿/北京3月18日报道，**周五，美国总统拜登警告中共主席习近平，如果中共向俄罗斯入侵乌克兰提供物质支持，将面临后果。与此同时，双方都强调需要通过外交途径解决危机。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/拜习通话-e1647644263802.jpg)美东时间3月18日，拜习通话（图片来源：法新社）
+在例行新闻发布会上，当被问及中共是否会面临贸易关税或制裁时，普萨基表示:”制裁当然是一种手段。”
 
-like they lifted all that out in our arena, right?
-就像他们解除了我们的运动馆的疫苗政策，对吧？
+报道称，**在这通电话之际，美国和中共之间的分歧正在加深。拜登在电话中详细介绍了美国及其盟友为回应入侵乌克兰所做的努力，包括让俄罗斯付出代价。**
 
-So it was the… I don’t get it
-所以它是……我不明白
+白宫在一份声明中说:“拜登描述了如果中共向俄罗斯提供物质支持的影响和后果，因为俄罗斯对乌克兰城市和平民进行了野蛮的攻击。”
 
-the second mandate
-第二个疫苗强制
+一位美国高级官员说，**拜登传达了北京将面临的后果不仅来自美国，而且来自更广泛的世界。**
 
-that says he can come in but can’t play
-就是说他（欧文）能进入室内但是不能参加比赛
+周四，美国国务卿布林肯表示，华盛顿对**中共考虑直接向俄罗斯提供用于乌克兰的军事装备**感到担忧。北京方面对此予以否认。华盛顿还担心，**中共可能会帮助俄罗斯绕过西方的经济制裁。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/拜习通话卜林昆.jpg)美东时间3月18日，华盛顿与北京视频通话（图片来源：网络）
+**俄罗斯入侵乌克兰已经进入第四周，导致数百名平民死亡，城市地区沦为废墟，数百万人逃离乌克兰，引发了一场人道主义危机。**
 
-Kevin Durant
-凯文·杜兰特
+据报道，**俄乌战争使得本就紧张的美中关系，达到了数十年来最最严重的程度。**
 
-Yeah, I don’t get it, just feels like at this point now
-是呀，我不明白，只是觉得现在在这点上
+在此之前，**一艘中共航空母舰于周五驶过敏感的台湾海峡。**美国阿利·伯克(Arleigh Burke)导弹驱逐舰拉尔夫·约翰逊号(USS Ralph Johnson)至少部分跟踪了这艘航母的路线。
 
-somebody is trying to make a statement or point to flex their authority
-某人正试图发表声明或展示他们的权威
+报道指出，**截至目前，中共拒绝谴责俄罗斯在乌克兰的行动，也拒绝称其为入侵。**
 
-But, you know, everybody out here looking for attention
-但是，你知道，这里的每个人都在寻求关注
+新闻来源链接：
 
-and that’s what I felt like the mayor wants right now some attention
-这就是我觉得市长现在想要得到一些关注
+[After Biden-Xi call, U.S. warns China it could face sanctions if it backs Russia in Ukraine | Reuters](https://www.reuters.com/world/china/biden-xi-set-clash-over-putins-war-ukraine-2022-03-18/)
 
-you know, but he’ll figure it out, so he’d better
-你知道，但他（欧文）会弄清楚的，所以他最好
 
-but it just didn’t make any sense like his unvax people in this building already
-但它只是没有任何意义，就像在这栋楼里已经有了未打疫苗的人一样
-
-We got a guy who can come into the building
-我们让未打疫苗的人可以进入大楼里
-
-and interfering our safety, I don’t get it
-并干扰我们的安全，我不明白
-
-So yeah, we’re all confused
-所以，是的，我们都很困惑
-
-Pretty much everybody in the world is confused at this point early on in the season
-在赛季初的这个时候，世界上几乎每个人都感到困惑
-
-You know, people didn’t understand what was going on
-你知道，人们不明白发生了什么
-
-But now just the stupid
-但现在真的是愚蠢的政策
-
-so hopefully, Eric, you you got to figure this out
-所以希望, 埃里克，你必须弄清楚这一点
-
-原视频链接[https://twitter.com/nypost/status/1503154961668059136?s=24](https://twitter.com/nypost/status/1503154961668059136?s=24)
-
-Date:03/16/2022
-原视频标题:Kevin Durant sounds off on NYC Mayor Eric Adams and the vaccine mandate
-凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
-原视频日期：2022/03/14
-原视频链接https://twitter.com/nypost/status/1503154961668059136?s=24
-任务编号：KE456(4018)
-视频时间段 : 0:00-1:03
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场- 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

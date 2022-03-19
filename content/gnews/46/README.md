@@ -2,31 +2,36 @@
 ---
 
 
-## 全方位制裁——欧航局冻结与俄罗斯火星研究项目
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2186106/)
+## 瑞士银行家协会披露俄罗斯客户在瑞士存放约2000亿美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2185803/)
 
-撰稿   随心所在
-![](https://assets.gnews.org/wp-content/uploads/2022/03/183-1.jpg)图片来自网络
-欧洲航天局已经冻结了欧洲-俄罗斯联合的ExoMars火星发射项目计划。项目被冻结的原因是俄罗斯入侵乌克兰。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-欧洲航天局局长约瑟夫·阿施巴赫（Joseph Aschbacher）在推特上说：“在过去的两天里，我们的成员国讨论了乌克兰冲突对欧洲航天局太空项目的影响。我们共同做出了一个艰难但必要的决定，暂停与俄罗斯航天局的合作，包括计划于9月份发射的ExoMars，并研究未来的发展方向。”
+整理：等风来
+编辑：围剿维尼熊
 
-原定于 2020 年发射的ExoMars 因病毒大流行而不得不暂停，而现在则直接受到冻结。除此之外，欧洲航天局还冻结了包括所有涉及使用俄罗斯联盟号火箭的航天计划。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3012.jpg)图片来源：搜狐
 
-欧洲航天局在一则声明中表示：“欧洲航天局管理委员会于3月16日至17日在巴黎召开会议，评估了乌克兰冲突对ExoMars任务的影响。委员会一致认为，目前不可能与俄罗斯航天局在2022年发射火星车任务上进行合作。成员国授权欧洲航天局局长采取适当措施，暂停相应的合作活动，并展开快速工业研究，以便更好地确定未来执行ExoMars任务的可用选项。”
 
-俄罗斯航天局 Roskosmos 局长德米特里·罗戈津对欧空局的决定表示遗憾，他表示：“这对所有太空爱好者来说都是一种耻辱和痛苦，俄罗斯将独自继续这项研究计划。”
+根据路透苏黎世3月17日讯，瑞士银行家协会(Swiss Bankers Association)估计，瑞士的秘密银行持有多达2130亿美元的俄罗斯财富。
 
-欧洲航天局（英文：European Space Agency)简称欧空局或ESA，成立于1975年，是一个致力于太空探索的政府间组织，拥有22个成员国，总部设在法国巴黎。
+这表明俄罗斯富人与瑞士银行的业务范围，远比几家金融公司开始详述的资产负债表上的风险敞口要大得多。
 
-*审核：**Gradient*
+瑞士银行家协会的披露对瑞士来说是罕见的。在莫斯科上个月入侵乌克兰之后，瑞士采取了不寻常的举措，针对俄罗斯资金实施欧盟的制裁措施。
 
-*发稿：**mgjxs*
+社会民主党联合主席Mattea Meyer也呼吁瑞士掐断与普京及其政府关系密切的俄罗斯人的任何资金。
 
-新闻参考链接：
+参考链接：[俄罗斯人在瑞士秘密银行拥有多达2,130亿美元海外资金](https://cn.reuters.com/article/russian-swiss-banks-wealth-0317-thur-idCNKCS2LF0A9?il=0)
 
-[ESA suspends work with Russia on ExoMars mission](https://spacenews.com/esa-suspends-work-with-russia-on-exomars-mission/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
