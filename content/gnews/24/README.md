@@ -2,22 +2,23 @@
 ---
 
 
-## 拜登警告习近平帮助普京侵略战争的后果严重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2192735/)
+## First EU bank to access the Beijing Stock Exchange
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2192814/)
 
-**采编/翻译：意翎     **
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16477038911.png)图片来源：白宫
-《华盛顿时报》杰夫·莫道克（Jeff Mordock）和戴维德·R·桑植（David R.Sands）报道，一名高级政府官员表示，周五拜登（Joe Biden）总统在与中共党魁习近平(Xi Jinping)两小时的通话中明确，如果中共国向俄罗斯对乌克兰的残酷战争提供物质支持，中共国与美国及世界的关系将难以为继。然而习一直在经济和军事上支持普京。两国领导人还讨论了美国对台政策和两国经济竞争问题，预计双方将釆取进一步的外交姿态。
+Translated by：TokyoSakura/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-105.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F44451497_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E5%25BE%25B7%25E6%2584%258F%25E5%25BF%2597%25E9%2593%25B6%25E8%25A1%258C%25E6%25B2%25A1%25E6%259C%2589%25E5%2587%25BA%25E8%25B7%25AF%25E5%2590%2597%2Fa-47149256&amp;tbnid=_A8FwWCnPyCnSM&amp;vet=12ahUKEwij9cyYtdL2AhWJCOwKHTRIACAQMygCegUIARCpAQ..i&amp;docid=ZJ5UTOfK01oFQM&amp;w=700&amp;h=394&amp;q=%E5%BE%B7%E6%84%8F%E5%BF%97%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwij9cyYtdL2AhWJCOwKHTRIACAQMygCegUIARCpAQ)
 
-北京在宣读这份呼吁时说，习强调，美中两国在确保世界和平方面必须共同发挥作用，并说北京方面正在推动结束乌克兰的战争。新华社版的报道是，习对拜登说，“我们不想看到乌克兰危机。”据中共当局的说辞，乌克兰事件“不应兵戎相见”，但避免对俄罗斯总统弗拉基米尔·普京（Vladimir Putin）上月入侵乌克兰的决定提出任何直接批评。中共官媒在很大程度上接受了俄罗斯对这场“冲突”的看法，称北约在东欧的扩张主义政策是导致这场战争的根源，并鹦鹉学舌地援引莫斯科的说法，称美国正在乌克兰境内运行一个秘密生物实验室网络。但是，中共极权也坚决否认了美国认为其在军事上帮助克里姆林宫作战的猜测。最近几天，习与普京断绝关系，称此次入侵是一场“战争”。
+Deutsche Bank (China) Co., Ltd. announced that it has successfully connected to the Beijing branch of China Securities Depository and Clearing Corporation (CSRC), becoming the first EU bank to support Qualified Foreign Investors (QFIs) to trade stocks on the Beijing Stock Exchange.
 
-据报道，俄罗斯在入侵乌克兰后要求中共提供军事支持和经济援助。美国官员说，中共已表示对此有兴趣，但中共和俄罗斯都否认这些说法。俄罗斯财政部长西卢阿诺夫（AntonSiluanov）表示，俄中经济伙伴关系在“西方市场关闭的环境下”至关重要。例如，中共国可以通过购买美国产品，再卖给俄罗斯，从而帮助规避美国禁止向俄罗斯出售高科技设备的禁令。
+resource：
 
-本周早些时候，白宫国家安全顾问杰克·沙利文（Jack Sullivan）警告中共，如果北京帮助俄罗斯在乌克兰发动战争，将会产生严重后果，而且，对此类行为的惩罚可能是隐性的。
+[首家欧盟银行接入北京证券交易所](https://www.thepaper.cn/newsDetail_forward_17162951)
 
-*责编：白夜*
+**Edited by:**TokyoSakura/英翻组
+Posted by:TokyoSakura/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
 
-**[原文链接](https://www.washingtontimes.com/news/2022/mar/18/biden-warns-china-consequences-if-it-helps-russia-/)**
 
  
 

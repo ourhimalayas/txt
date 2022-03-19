@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 5:20 PM (UTC)`
+
+NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
+![img](https://media.gettr.com/group45/origin/2022/03/19/16/5ef97cb5-a146-f550-ed2e-2e08d1d087df/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/19/2022 5:20 PM (UTC)`
+
+NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
+![img](https://media.gettr.com/group33/origin/2022/03/19/16/a7d15473-a99f-2f81-a126-b6223cabe66c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/19/2022 2:39 PM (UTC)`
 
 《GTV-真人真事》第46期嘉宾：华盛顿 DC农场  Nicole
@@ -141,20 +155,6 @@
 
 3/17/2022 Miles Guo: Yury Kovalchuk is Putin’s “Wang Huning”, and Putin is his loyalist student. Yury Kovalchuk advised Putin to put an end to the Russia-Ukraine war. If Putin did that, then the downfall of the CCP may be postponed. However, the world’s political landscape has already been completely changed.<br/><br/>3/17/2022 文贵直播：科瓦利丘克是普京的“王沪宁”，普京是他最忠实的学生；科瓦利丘克建议普京在俄乌战争上收手；如果普京真的收手，中共灭亡可能会被推迟，但世界政治格局已彻底改变<br/>
 ![img](https://media.gettr.com/group6/getter/2022/03/19/03/d2a1ffac-f0b1-c65d-2657-5481e9f7dcb6/out.jpg)
-
----
-
-`@miles 3/19/2022 3:30 AM (UTC)`
-
-3/17/2022 Miles Guo: What the West cares about in the Russia-Ukraine war are money, economy, and power. Xi Jinping does not care about how many Chinese people would die. In Xi’s eyes, the Chinese people are even worse than animals. Xi’s “Zero COVID” policy is inhumane. Xi’s childhood buddy said that Xi’s mind is filled with Mao Zedong’s evil ideologies.<br/><br/>3/17/2022 文贵直播：西方在俄乌战争中关心的是钱、经济和权力；习近平不在乎死多少中国人，他眼里的中国人猪狗不如，习的清零政策毫无人性；习的发小说习满脑子都是毛泽东的邪恶思想
-![img](https://media.gettr.com/group32/getter/2022/03/19/03/5e109b13-3d96-9d97-1ed4-506ad16756a6/out.jpg)
-
----
-
-`@miles 3/19/2022 3:22 AM (UTC)`
-
-3/18/2022 Miles Guo: There is lots of good news! The CCP has particularly chosen the most toxic poison provided by the US. Ukraine and Taiwan would be the friends that the Chinese should cherish the most. The CCP will be eliminated due to the Ukraine issue. We will soon meet at the Pangu Plaza!<br/><br/>3/18/2022 文贵直播：太多好消息了，中国共产党专门捡美国给它准备的最毒的毒药吃；乌克兰和台湾会是我们中国人最值得珍惜的朋友，中共会死在乌克兰事件上，我们会很快在盘古相聚！ <br/>
-![img](https://media.gettr.com/group26/getter/2022/03/19/03/ae8e775d-fed0-400f-2f8e-f842508c5e4c/out.jpg)
 
 ---
 
