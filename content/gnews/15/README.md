@@ -2,25 +2,22 @@
 ---
 
 
-## 沙特外长会见乌克兰总统特使
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2193663/)
+## 在一个充斥着谎言的国家里必然存在大邪大恶
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193776/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：加拿大温哥华扬帆农场-晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2156.png)
+据文贵先生3月19日盖特报道， 从昨天开始乌克兰总统泽连斯基投降的虚假录像传遍了整个互联网，这是俄乌战场上虚假资讯战的一部分。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1138.jpg)
+俄罗斯入侵乌克兰这么一个弱小的国家，这本身已经足够邪恶，结果还伪造假视频到处散播谎言，还搞上万支持者集会，为入侵乌克兰辩护，宣称自己是正义的，俄罗斯必赢，去乌克兰是为了消灭纳粹，并誓言继续侵略战争。
 
+文贵先生提醒大家牢记：如果没有虚假和欺骗成分的话，邪恶就不能成为邪恶。正如中共篡改历史、处处造假，连信仰都造假，结果必然是无处不在的大恶大灾。而中国人不辨真假，不识善恶，则是大邪大恶存在的必然因素。
 
-图片来源：路透社
+新闻来源：[https://gettr.com/post/p10rq15972f](https://gettr.com/post/p10rq15972f)
 
-据沙特国家通讯社（SPA）周六报道，沙特外交大臣费萨尔·本·法尔汉·阿勒沙特亲王在利雅得会见了乌克兰总统特使贝克图姆·罗斯塔姆。
+* * *
 
-两人讨论了乌克兰危机，强调沙特王国支持减少升级、保护平民、寻求谈判政治解决方案和国际努力以政治方式解决危机。
-
-简评： 今天， 沙特外长会见了乌克兰总统特使， 这个消息我个人认为是个极好信号。 在沙特王子希望与中共国用人民币结算石油贸易的时候， 全世界都认为不可思议的， 因为石油是美元计价的， 而中共国又是支持俄罗斯对乌克兰的入侵的。 就在这个节骨眼上，出现这样的镜头， 会不会人民币结算石油的梦想已经破灭了呢。 明天3月20日， 听听郭先生的会不会解读这个内幕呢。 期待的很。
-
-🔗 [https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/](https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/)
-
-编辑发表： Shuizhuyu
+撰稿：晨熹， 编辑发稿：硫酸羟氯喹64
 
  
 

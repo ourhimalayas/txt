@@ -3,10 +3,10 @@
 
 
 ## 我们是消灭邪恶中国共产党的新中国人
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2193817/)
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2193862/)
 
 出品：华盛顿DC农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1CN.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/1EN.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/1U.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2CN.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/2EN.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/2U.jpg)
 *发布：Theodosia*
 
  

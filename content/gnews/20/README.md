@@ -2,31 +2,25 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2193608/)
+## 樱花FM|樱花时政:俄军继续围攻基辅 平民撤离行动受阻
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2193653/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-8-6.png)
+乌克兰军方表示，基辅、哈尔科夫和顿巴斯地区都面临新一轮的攻击。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-19.png)
-文章仅代表作者本人观点，与Gnews无关
+据媒体报道，周六早晨有一座位于基辅附近的乌克兰空军基地被俄罗斯导弹炸毁。在瓦西里基夫的一座武器库也被导弹击中。俄军轰炸机向第聂伯罗、卢茨克和伊万诺-弗兰科夫斯克发射了巡航导弹。其中卢茨克和伊万诺-弗兰科夫斯克这两座城市都临近乌克兰西部波兰大都市利沃夫。
 
-视频参看：
-[2022.03.19早 《NFSC新闻》](https://gettr.com/streaming/p10s0mgdd7b)
-[2022.03.19早《NFSC新闻访谈》](https://gettr.com/streaming/p10s69scd30)
+俄军试图摧毁基辅西北部的防御力量，从而形成“包围封锁”之势。大队俄军在基辅北部地区散开，为俄军围攻基辅提供增援和协防，减少乌克兰反击力量对俄军造成的战斗损失。俄地面部队目前距离乌首都中心约25公里。与此同时，哈尔科夫、切尔尼戈夫、苏梅和马里乌波尔等城市仍被围困，并受到俄军的猛烈轰炸。俄军的轰炸了造成乌克兰境内的3491座军事设施变为废墟。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+乌副总理韦列舒克宣布，将继续开放多条人道主义走廊。其中包括马里乌波尔撤离的通道。她希望俄军能够兑现承诺，让平民安全撤离。她谴责俄军的轰炸行动阻止了马市平民撤离。从战争爆发至今，马里乌波尔有超过1500名平民死亡。她还指责俄军阻止基辅平民撤离巴士通行。据乌边防部门通报，超过9.4万人越过西部边境离开乌克兰，其中大部分人前往波兰。俄军的空袭和激烈的战火导致平民撤离计划难以执行。顿涅茨克地区政府也表示，在不间断的轰炸之下，难以在马里乌波尔进行人道主义救援。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Mar-Calendar.jpeg)
+文字版原文：[樱花时政┃俄军继续围攻基辅 平民撤离行动受阻](https://gnews.org/zh-hans/2154248/)
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
+
 
  
 

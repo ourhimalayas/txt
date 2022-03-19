@@ -2,27 +2,22 @@
 ---
 
 
-## 日本人气女主播接种辉瑞疫苗后产生严重副作用
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2193849/)
+## 莫斯科警告意大利新制裁带来不可逆转的后果
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2193886/)
 
-**撰稿：日本东京方舟农场  海星**
+#### 翻译     意大利达芬奇农场    小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-19-alle-17.05.49.png)图片来源：newsonline.it
+据3月19日罗马askanews报道，欧盟对俄罗斯宣布“全面金融和经济战争”可能会产生“不可逆转的后果”， 这种后果尤其是针对意大利。俄罗斯外交部欧洲事务司司长阿列克谢•帕拉莫诺夫告诉俄新社。
 
-3月18日，日本人气女主播高桥真麻在其博客上发帖表示，她在接种第3针辉瑞疫苗后产生严重副作用。
+帕拉莫诺夫还说：“ 制裁不是我们的选择。我们不希望法国经济部长布鲁诺•勒梅尔 ( Bruno Le Maire ) 宣布对俄罗斯进行“全面经济和金融战争”的观点，意大利也是这一理念的追随者并会导致一系列重大的不可逆转的后果。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-23.jpg)（图片来源：ABEMA）
+这位外交官随后补充说，“ 莫斯科从未将能源资源的出口用作政治压力的工具”，并指出“俄罗斯能源公司一直充分履行其义务。他们继续这样做”。
 
-据《ABEMA》报导，曾入围日本最受欢迎女主播排行榜的高桥真麻于18日在其个人官方博客上发帖表示，她在接种第3针辉瑞新冠疫苗后，出现疲劳、头疼、肌肉痛、恶寒、关节痛、腹泻等症状。据悉，目前高桥真麻的身体已在逐渐恢复。
+“鉴于意大利对俄罗斯碳氢化合物的严重依赖达到40%至45%，拒绝几十年来开发的可靠的能源运输机制将对意大利经济和所有意大利人产生极其负面的影响”,帕拉莫诺夫警告说。
 
-此前，美国FDA在法院强制令下对外公开了辉瑞新冠疫苗的数据报告。其中关于疫苗副作用的报告显示，早在2021年2月28日之前便已收到了来自56个国家共42,086例不良反应事件，其中头痛、发烧、疲倦、发冷、恶心、肌肉痛等副作用最为常见。
+原文链接： [https://www.askanews.it/esteri/2022/03/19/monito-di-mosca-allitalia-con-nuove-sanzioni-conseguenze-irreversibili-top10\_20220319\_125909/](https://www.askanews.it/esteri/2022/03/19/monito-di-mosca-allitalia-con-nuove-sanzioni-conseguenze-irreversibili-top10_20220319_125909/)
 
-参考链接：
-1. [https://times.abema.tv/articles/-/10017826](https://times.abema.tv/articles/-/10017826)
-2. [https://ameblo.jp/takahashi-maasa/entry-12732533756.html](https://ameblo.jp/takahashi-maasa/entry-12732533756.html)
-3. [https://news.tv-asahi.co.jp/news\_geinou/articles/hot\_20220319\_160.html](https://news.tv-asahi.co.jp/news_geinou/articles/hot_20220319_160.html)
-4. [https://gnews.org/zh-hans/2122508/](https://gnews.org/zh-hans/2122508/)
-
-总编：老孙
-校对发布：Linda
+编辑、上传： Xiao   baige
 
  
 
