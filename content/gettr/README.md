@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 9:06 AM (UTC)`
+
+3/17/2022 Miles Guo: Ukraine will emerge as a technological powerhouse. Even if Russia ceased fire, the CCP would also invade Taiwan. The life-and-death struggles between Xi Jinping and the Shanghai Gang are escalating. No one in the top echelons of the CCP will end up in a decent way.<br/><br/>3/17/2022 文贵直播: 乌克兰将会崛起为科技强国；即使俄罗斯停战，中共也会打台湾；习近平和上海帮之间你死我活的斗争愈演愈烈，中共高层谁也都逃不过不得善终的下场。<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/19/09/1a8e3f8c-abd7-a655-8e43-215426a65585/out.jpg)
+
+---
+
 `@miles 3/19/2022 4:44 AM (UTC)`
 
 3/17/2022 Miles Guo: The Russia-Ukraine war is the rivalry of comprehensive strengths between nations. “Xi the Sun” and “Putin the Great” are more selfish than the ordinary people. Xi and Putin are willing to sacrifice the lives of tens of millions of people, provoke wars, or even destroy the world only to preserve the privileges of their families and keep themselves alive.<br/><br/>3/17/2022 文贵直播: 俄乌战争是国与国之间综合实力的较量；习太阳和普京大帝比普通老百姓更加自私，他们不惜牺牲千万人的生命，挑起战争甚至毁灭世界，只为维护自己家族的特权和让自己活着！<br/>
@@ -146,13 +153,6 @@
 
 3月18号：太搞笑……太真实了……【七哥您好! 这鹅(俄)爹如此不堪一击，让粉红们很伤心啊。🙏🙏🙏🙏】
 ![img](https://media.gettr.com/group8/getter/2022/03/18/20/e03745a2-1abe-4eaa-e301-8e62eb425a82/out.jpg)
-
----
-
-`@miles 3/18/2022 7:46 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-乌克兰救援每日汇报
-![img](https://media.gettr.com/group6/origin/2022/03/18/19/513dca5b-e6c4-afa5-b121-6e4f2c9050d8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
