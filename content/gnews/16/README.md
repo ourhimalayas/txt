@@ -2,47 +2,92 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“G-News”（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2188716/)
+## 凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2188769/)
 
-整理：BENJ1
-编辑：守望黎明
+Kevin Durant (NY NETS basketball player)
+凯文·杜兰特（纽约网队篮球球员）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-119.png)图片来源：雅典娜农场技术组614
+That’s ridiculous. I don’t understand at all
+这是太荒谬了， 我完全不明白
 
+I mean, as few people in our arena unvax, right?
+我的意思是，因为我们的运动馆只有很少的人没有接种疫苗，对吧？
 
-**郭文贵先生****2020****年****4****月****10****日直播**
+like they lifted all that out in our arena, right?
+就像他们解除了我们的运动馆的疫苗政策，对吧？
 
-今天早上，有一个要投资我们G-News的人说：郭先生，我特别后悔，当初我没有坚持下来，我对不起！人生干得最多的就是后悔这事儿，另一种不同的人就是干最少后悔的事儿。说到我们的G-News，当初在三个月以前的时候，他作为一个基金的管理者，去年和前面由于共产党使坏，我们最早的郭媒体投资没有完成，咱确实也没做到，有很多没有做到，最后人家退出了。后来G-News开始的时候，我说现在如果你愿意投资，你可以拿30%的股权。班农先生和Kyle Bass他们说，郭先生我们投几千万美元占你个10%、20%的股权，我说我们不需要钱。但是我跟他说了，我说你可以投，我说你投5000万美元我让你占20%—30%的股权。他说不可能，因为你还没开始呢，就让我拿5000万美元，那怎么可能！我说你再想想，你别后悔！现在他想好了，说我愿意拿一亿美元占你30%。我说，G-News原来是还在娘胎里面的时候，让你投钱，你不投。现在是4000万、400万，每天的订阅量在增，现在你要拿1亿美元占20%、30%。我说G-News是我们中国人唯一的一个中英文双语的、即时发新闻、带原创文章的、全世界受关注的一个平台。这不是一个网页，我们不卖网页，我们卖的是质量，卖的是内容。现在后悔了，对不起了！我说永远不会让你参与G-News投资了。
+So it was the… I don’t get it
+所以它是……我不明白
 
-**郭文贵先生****2020****年****4****月****11****日直播**
+the second mandate
+第二个疫苗强制
 
-未来给战友们的机会是什么？战友们要记住，GTV、G-News未来有打赏功能，还有网上的G-Fshion商店，我们会优先考虑所有的战友们。
+that says he can come in but can’t play
+就是说他（欧文）能进入室内但是不能参加比赛
 
-**郭文贵先生****2020****年****4****月****14****日直播**
+Kevin Durant
+凯文·杜兰特
 
-我们爆料革命是全人类现在最大的明星！ 无论是从华盛顿，还是北京，还是东京、欧洲，任何国家现在说G-News、 G-TV是世界上最牛的星。
+Yeah, I don’t get it, just feels like at this point now
+是呀，我不明白，只是觉得现在在这点上
 
-我告诉一个中国大咖：“你跟不跟我合作，我们都叫G-TV，都叫G-News，谁也挡不住它的强大。” 我说：“你用脑子想一想，Zoom、抖音、马云、支付宝、还有什么蚂蚁金服，所有共产党的中共国的海外支付系统，还有任何的生存空间吗？”
+somebody is trying to make a statement or point to flex their authority
+某人正试图发表声明或展示他们的权威
 
-还有一个，亲爱的兄弟姐妹们，我在这儿再说一遍。GTV和G-News是所有爆料革命战友的，任何有智慧、有能力、有理想、有抱负，所有的战友，你但凡有这个能力的，都要利用好G-TV、G-News，因为这是爆料革命的孩子。
+But, you know, everybody out here looking for attention
+但是，你知道，这里的每个人都在寻求关注
 
-媒体是世界上巨大的力量，没有这个媒体平台，谁听得着我们说话?谁能揭发下一个政府、下一个共产党，不再把我们变成当年的地主，不再把我们给弄死呀？这就是媒体的力量。记住有两把剑——战友的联盟，包括我们的媒体平台；钱、也就是实力。这才是我们G-TV、G-News核心的本质。
+and that’s what I felt like the mayor wants right now some attention
+这就是我觉得市长现在想要得到一些关注
 
-往期回顾：
-[文·贵天成——文贵先生谈“G-News”（一）](https://gnews.org/zh-hans/2188593/)
-[文·贵天成——文贵先生谈“G-News”（二）](https://gnews.org/zh-hans/2188624/)
-[文•贵天成——文贵先生谈“G-News”（三）](https://gnews.org/zh-hans/2188658/)
-[文•贵天成——文贵先生谈“G-News”（四）](https://gnews.org/zh-hans/2188680/)
+you know, but he’ll figure it out, so he’d better
+你知道，但他（欧文）会弄清楚的，所以他最好
 
-发布：tianzhihuan
+but it just didn’t make any sense like his unvax people in this building already
+但它只是没有任何意义，就像在这栋楼里已经有了未打疫苗的人一样
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+We got a guy who can come into the building
+我们让未打疫苗的人可以进入大楼里
+
+and interfering our safety, I don’t get it
+并干扰我们的安全，我不明白
+
+So yeah, we’re all confused
+所以，是的，我们都很困惑
+
+Pretty much everybody in the world is confused at this point early on in the season
+在赛季初的这个时候，世界上几乎每个人都感到困惑
+
+You know, people didn’t understand what was going on
+你知道，人们不明白发生了什么
+
+But now just the stupid
+但现在真的是愚蠢的政策
+
+so hopefully, Eric, you you got to figure this out
+所以希望, 埃里克，你必须弄清楚这一点
+
+原视频链接[https://twitter.com/nypost/status/1503154961668059136?s=24](https://twitter.com/nypost/status/1503154961668059136?s=24)
+
+Date:03/16/2022
+原视频标题:Kevin Durant sounds off on NYC Mayor Eric Adams and the vaccine mandate
+凯文·杜兰特对纽约市市长埃里克·约翰斯亚当斯和强制接种疫苗发表意见
+原视频日期：2022/03/14
+原视频链接https://twitter.com/nypost/status/1503154961668059136?s=24
+任务编号：KE456(4018)
+视频时间段 : 0:00-1:03
+
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场- 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
