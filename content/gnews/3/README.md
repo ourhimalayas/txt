@@ -2,25 +2,100 @@
 ---
 
 
-## 樱花FM|入侵乌克兰导致俄罗斯经济濒临绝境
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2193465/)
+## 喜马拉雅的约定
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2193519/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-9-4.png)
-入侵乌克兰使低迷的俄罗斯经济雪上加霜。在经济前景不确定和被国际社会指责为侵略的背景下，外国公司相继宣布从俄罗斯撤出或暂停业务，这将导致资源、零售、食品和饮料、汽车、金融、IT和娱乐等行业大批员工失业。
+作者：香草山教育部 — 蓝之灵(Hortensia)
 
-俄罗斯被排除在“环球银行间电信协会”（SWIFT）之外，使得卢布对美元的汇率相比俄乌战争之前下跌了40~50%。由于经济制裁，约60%的外汇储备6300亿美元被冻结，俄罗斯中央银行无法买入卢布止跌。
+![](https://assets.gnews.org/wp-content/uploads/2022/01/logo-5-768x103-3.jpg)
 
-为了阻止卢布继续贬值，俄罗斯中央银行于3月9日宣布停止卢布兑换外币业务，并限制客户从外币账户中提款，到9月底为止累计提外币不得超过1万美元。如果金额超过1万美元，客户将只被允许以卢布提款。卢布信用恶化的根本问题如果得不到解决，卢布将继续贬值。
 
-在首都莫斯科，目前没有明显的商品短缺或价格上涨。 然而，一些店铺已经开始限购白糖、植物油和罐头等商品。 由于原材料和库存的减少，预计未来的通货膨胀将加速。
 
-文字版原文：[入侵乌克兰导致俄罗斯经济濒临绝境](https://gnews.org/zh-hans/2152079/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2558.jpg)
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
+我和喜马拉雅有一个约定
 
+消灭共产党是今生使命
+
+即使要献奉青春生命
+
+我的歌声
+
+依然要穿透历史车轮
+
+消灭中共
+
+消灭中共
+
+让我的族人
+
+从此不再恐惧惊恐
+
+当太阳又一次照亮天空
+
+又一次承诺
+
+定会实现我们的约定
+
+请智慧先祖赋予我勇气
+
+请喜马拉雅神灵
+
+保佑我步伐坚定
+
+即使要失去年轻生命
+
+我的歌声
+
+依然要穿透时空
+
+消灭中共
+
+消灭中共
+
+这是我和喜马拉雅的约定
+
+如果我不幸失去生命
+
+请战友们
+
+回到家乡的那一天
+
+告诉我往生魂灵
+
+你们
+
+已经
+
+消灭了中共
+
+完成使命
+
+实现了
+
+我们和喜马拉雅的约定
+
+（本文仅代表作者个人观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-48.jpg)
+
+*编辑 /校对*：*Yuki*jiang
+
+*发稿：Yuki*jiang
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

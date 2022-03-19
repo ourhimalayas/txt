@@ -2,21 +2,16 @@
 ---
 
 
-## CCP State Internet Information Office to launch actions on network regulation
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2192865/)
+## 战火中的同胞依然难逃中共魔爪
+` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2193000/)
 
-Translated by：TokyoSakura/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-73.png)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp5.itc.cn%2Fq_70%2Fimages03%2F20220317%2Ff5a3eefb55614fd58c843c4d42645af4.png&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F530572451_116132&amp;tbnid=8ZfBi_ZnvLh7wM&amp;vet=12ahUKEwi6qZ7jtdL2AhVRh_0HHWDMDhMQMygBegUIARDOAQ..i&amp;docid=OFVTfkfWvzmSxM&amp;w=1440&amp;h=810&amp;q=%E6%B8%85%E6%9C%97%E2%80%9D%E8%A1%8C%E5%8A%A8%202022&amp;ved=2ahUKEwi6qZ7jtdL2AhVRh_0HHWDMDhMQMygBegUIARDOAQ)
+制作：RayChan小笔民、宁南
 
-The Information Office of the State Council of the CCP held a press conference on March 17 at 3 p.m. on the 2022 “Qinglang” series of special actions, saying it would launch the Qinglang actions (i.e. network rectification action). According to Sheng Ronghua, deputy director of the State Internet Information Office of the CCP, the action focuses on the wide range of impact and harm to carry out rectification, including 10 key tasks, including livestream, short video, the Internet rewards, application information, etc.
+虽然无情的战火击碎了自由，摧毁了家园，但乌克兰人不屈的斗志、勇敢的抗争，赢得了世界的尊重更为这块土地赢得了未来。
+然而，邪魔中共在这场战争中，中共选择与邪恶的侵略者为伍, 助纣为虐，同时无视中国同胞生命安危，威胁恐吓他们不要接受救助。
+让我们从这个角度,看看中共在乌克兰还干了些什么。
 
-resource: [剑指乱象，2022年“清朗”行动十大重点任务公布](https://www.thepaper.cn/newsDetail_forward_17162768)
-
-**Edited by:**TokyoSakura/英翻组
-Posted by:TokyoSakura/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
-
+排版上传：文勇
 
  
 
