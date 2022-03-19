@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 3/19/2022 10:52 AM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.19 EST
+![img](https://media.gettr.com/group10/origin/2022/03/19/10/5fd7dde8-7dd1-85b1-625c-252bf7ccc0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/19/2022 10:17 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援基地前线报导
@@ -146,13 +155,6 @@
 `@miles 3/18/2022 10:01 PM (UTC)`
 
 3月18号：这是我看过．穿G FASHION 这个佛教系列最美的🙏🙏🙏太棒了。【郭先生 Ashlee Simpson 穿我们的佛系裤子啦 她是Jessica Simpson 的妹妹 <br/><br/>https://instagram.com/stories/gfashion/2796911936138618649?utm_source=ig_story_item_share&utm_medium=copy_link】
-
----
-
-`@miles 3/18/2022 9:54 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-大巴救援实况转播
-![img](https://media.gettr.com/group23/origin/2022/03/18/21/34684353-8d18-0cbc-a9f4-549e92cef763/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

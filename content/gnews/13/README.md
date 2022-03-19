@@ -2,23 +2,50 @@
 ---
 
 
-## 俄罗斯导弹袭击了乌克兰西部城市利沃夫
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2191133/)
+## 拜习通话 将警告中国援俄必将付出代价
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2191322/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Lviv-Bombing-640x480-1.jpg)
-3月18日周五，俄罗斯导弹袭击了利沃夫附近的一个机场。利沃夫市乌克兰最西部的城市，距离波兰边境不到50英里，数十万难民在这里寻求庇护，数百名记者也在这里工作。
+作者：纽约香草山教育部 Naughty(文行)
 
-到目前为止利沃夫是一直是受俄罗斯攻击影响最小的城市，很多救援工作都在此地展开，包括新中国联邦的一个救援小组。这里成为输送难民前往波兰的一个重要枢纽，市长最近表示由于难民数量过多，该市各种资源极度短缺，正在呼吁各方的实质性支持。另外利沃夫的国际媒体中心在俄罗斯入侵前的几天成立，目前已经接待了来自50多个不同国家的800多名记者。无国界记者组织在此地创立了一个所谓的新闻自由中心，提供互联网接入和媒体资源以及某些防护装备。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
 
-利沃夫市长说在此次袭击中至少有一人受伤，其余伤亡人数不多。
 
-reference：[https://www.breitbart.com/politics/2022/03/18/russia-begins-bombing-ukraines-far-western-city-of-lviv/](https://www.breitbart.com/politics/2022/03/18/russia-begins-bombing-ukraines-far-western-city-of-lviv/)
+3 月 17 日美国国务卿布林肯在新闻发布会上宣布，美国总拜登将于 3 月 18 日与中国领导人习近平通电话，美国将向北京施压，要求其不要支持俄罗斯入侵乌克兰，否则必将付出代价。
 
-撰稿、发布：骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/slogan1_画板-1.png)
-欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
- 
+白宫发言人普，萨基表示，拜登和习近平还将讨论两国之间的经济竞争，以及俄罗斯对乌克兰战争等共同关心问题。
+
+18日的会谈是拜登与习近平两人在去年11月中旬之后的再次会谈，也是俄罗斯入侵乌克兰以来，两人首度就俄乌局势交换意见。
+
+布林肯呼吁所有国家，特别是对俄罗斯有直接影响力的国国家，利用所拥有的一切手段，迫使莫斯科结束这场战争。
+
+他特别点名中国指出，中国尤其有责任利用其对俄罗斯总统普京的影响力，并捍卫所声称支持的国际规则与原则。但中国「似乎朝向相反方向前进」，拒绝谴责侵略行为，并试图将自身描绘成中立的仲裁者。
+
+布林肯并指出，美方担忧中国考虑直接协助俄罗斯，向俄罗斯提供军事装备。
+
+为此，布林肯表示，拜登与习近平对谈时将明确表明，中国将为支持俄罗斯采取的任何行动承担责任，美国将毫不犹豫让中国付出代价。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-316.jpeg)
+
+参考链接：&lt;a rel="noreferrer noopener" href="http://&lt;!– wp:paragraph –&gt; &lt;p&gt;参考链接：https://www.rferl.or. g/a/biden-xi-china-russia-ukraine-invasion-talks/31758421.html" data-type="URL" data-id="&lt;!– wp:paragraph –&gt;
+
+https://www.rferl.or. g/a/biden-xi-china-russia-ukraine-invasion-talks/31758421.html
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-317.jpeg)
+
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
