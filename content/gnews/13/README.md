@@ -2,33 +2,26 @@
 ---
 
 
-## 俄乌前线最新消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192537/)
+## 乌克兰女记者失踪5天 疑遭俄军俘虏
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2192599/)
 
-作者：文斌
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截止当地时间3月18日，俄军继续炮击乌克兰哈尔科夫的多个地区，包括中心区和哈尔科夫管理学院。同时，俄乌双方也在附近区域发生了激烈交火，当地多个城镇已经处于停水、停电的状态中。除了哈尔科夫之外，阿夫季伊夫卡、扎波罗热、沃兹涅先斯克和日托米尔等地区也遭到了俄罗斯军队的袭击。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.12.png)
-据乌克兰当地传出的消息显示，俄罗斯在黑海部署的潜水艇发射了六枚导弹炸毁了利沃夫机场的周边地区，当地飞机修理厂已然遭到破坏。此外，克拉马托尔斯克市的行政大楼和居民公寓也被俄军导弹击毁，造成了至少2人死亡，6人受伤。而在马里乌波尔剧院被炮火击中后，数百名乌克兰人仍然被困在倒塌的建筑物内。庆幸的是，文尼察市的防空系统在该地区拦截了三枚俄罗斯导弹。而在首都基辅的西北方，俄罗斯一架“苏-34”轰炸机也被部署在布卡区的“毒刺”肩扛式导弹击落。另有俄罗斯的两次进攻也在切尔尼戈夫附近被乌克兰军队击退。
+乌克兰网路媒体「公众」18日披露，旗下女记者罗希钦娜自15日失踪，恐已沦为「俄罗斯占领军的囚犯」，欧洲记者协会（European Federation of Journalists）要求俄方立即将她释放。
 
-据乌克兰军事情报局发布的一份报告指出，俄罗斯军方命令其在叙利亚赫梅敏的基地每天向乌克兰派遣多达300名士兵，且叙利亚总统也承诺，将招募四万名叙利亚士兵部署至乌克兰，这些新兵将被专门安排在被占领的乌克兰城镇中充当警察。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/photo-output-2.jpg)图片来源：Victoria Roschina
 
-更多前线消息，请持续关注后续报道。
+根据「公众」（Hromadske）说法，罗希钦娜（Victoria Roshchina）原本计划上周前往已遭俄军炮击2周多的乌克兰南部港市马立波（Mariupol），但同事12日即无法联络上她，她15日可能在某个地点遭到俄军扣押。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+简评：战地记者是一个值得敬佩的职业，战火中传递真相为受难的民众发声，身为女记者更加的令人钦佩！虽然没有确凿的证据遭俄军俘虏，但这事已经八九不离十，普京又增添了一笔罪恶！看来乌克兰胜利之前，大概只有战俘交换了，愿女记者一切平安吧！
 
-编辑：Irene木木
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1087670)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

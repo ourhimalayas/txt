@@ -2,10 +2,10 @@
 ---
 
 
-## 【乌克兰救援】战地钢琴家Davide Martello已然成为了爆料革命的战友
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192329/)
+## 乌克兰无人机拍摄画面显示了奥赫蒂尔卡遭受破坏的规模
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192469/)
 
-【乌克兰救援】03/17/2022 战地钢琴家Davide Martello已然成为了爆料革命的战友。当他来新中国联邦救援营地时，有我们的志愿者给他播放了郭文贵先生的《沧海一声啸》，于是他用钢琴演绎了这首灭共歌曲
+03/18/2022 视频显示了乌克兰苏米地区的一个小城市奥赫蒂尔卡在遭到俄罗斯轰炸后受损的建筑物包括一所幼儿园和基础设施。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

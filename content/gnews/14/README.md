@@ -2,35 +2,30 @@
 ---
 
 
-## 新罕布什尔州批准使用伊维菌素治疗疫情
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
+## 普京智囊瓦利克实为俄乌战争的核心人物
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192586/)
 
 作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
-报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
+在3月17日的大直播中，郭文贵先生再次解析了俄乌局势的未来走向。
 
-有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-7.jpeg)
 
-参考链接：
-1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
-2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
+郭先生透露，普京身边有一名智囊兼精神疏导专家瓦利克，其之于普京犹如王沪宁之于习近平。瓦利克身居高位，俄罗斯的权贵名流们大多对其极尽攀附谄媚。此外，瓦利克本人邪恶狂妄至极：在郭先生早先与其的交谈当中，瓦利克曾反复提到征服人类、征服地球，以及把某些国家抹平等话语。郭先生表示，普京对瓦利克言听计从。为此，当前这场俄罗斯对乌克兰的侵略战争背后，其最核心的人物就是瓦利克。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+但郭先生也补充道，此次俄乌战争是双方综合实力的较量，这其中，社交媒体是最重要的作战场地。目前，全世界热爱和平的人都已经选择与乌克兰站在一起，因此，俄罗斯的困顿已成定局。据爆料，普京和习近平眼下只能互相安慰，而瓦利克则提出让普京尽快借机终止战争。
 
-编辑：Irene木木
+对此，郭先生分析称，普京很可能会从乌克兰撤兵：虽然此举会拖慢共产党灭亡的进度，但这对乌克兰来说是极大的好消息。然而无论如何，俄乌战争后，整个世界的局势已经全然发生改变。
+
+参考链接：[2022年3月17日 文贵大直播](https://gettr.com/post/p10fr57b127)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
 总编：Irene木木
+编辑：静言   
 审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

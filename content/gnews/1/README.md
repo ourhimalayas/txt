@@ -2,10 +2,10 @@
 ---
 
 
-## 泽伦斯基总统为美国国会播放的令人心碎的战争残酷画面
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192603/)
+## 基辅市长: 这是针对平民的战争
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2192724/)
 
-03/16/2022 泽伦斯基总统为美国国会播放的令人心碎的战争残酷画面
+03/18/2022 基辅市长维塔利·克里琴科谴责俄罗斯军队在袭击乌克兰城市时炮轰民用建筑，杀害儿童。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

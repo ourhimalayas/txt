@@ -2,66 +2,35 @@
 ---
 
 
-## 美国及世界疫情简报（03-19-2022）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2192444/)
+## 新罕布什尔州批准使用伊维菌素治疗疫情
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
 
-整理：波士顿五月花 老枪6
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
+报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
 
-![美国及世界疫情简报](https://assets.gnews.org/wp-content/uploads/2022/03/2203.jpg)
+有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
 
-今天是2022年3月19号，星期六。
-以下是美国及世界昨日的疫情简报。
+参考链接：
+1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
+2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
 
-**1．美国疫情**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-美国新增新冠患者52,884人，总确诊79,683,737人。新增死亡1,685人，总死亡 970,009人。
+编辑：Irene木木
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-康州新增新冠感染404人，新增死亡0人。
-
-纽约州新增新冠确诊2,356人，新增死亡28人。
-
-新泽西州新增病例1,083人；新增死亡13人。
-
-马萨诸塞州新增新冠患者1,019人，死亡11人。
-
-马里兰州新增新冠患者1,019人，新增死亡人数为11人。
-
-加州新增病例5,892人，新增死亡143人；得克萨斯州新增病例5,002人，新增死亡120人；亚利桑那州新增病例5,153人，新增死亡0人；乔治亚州新增病例1,051人，新增死亡77人；北卡罗来纳州新增病例2,742人，新增死亡64人；田纳西州新增病例381人，新增死亡7人。
-
-**2．世界疫情**
-
-1）亚洲疫情
-
-印度新增新冠患者2,528人；日本新增53,478人；印尼新增11,532人；菲律宾新增592人；孟加拉新增233人；土耳其新增21,354人；台湾新增91人；韩国新增407,017人；中国新增22,277人。
-
-2）非洲疫情
-
-南非新增新冠患者1,681人；埃塞俄比亚新增64人；摩洛哥新增34人。
-
-3）拉美疫情
-
-巴西新增新冠患者44,033人；哥伦比亚新增744人；阿根廷新增4,577人；智利新增16,646人；墨西哥新增11,084人。
-
-4）欧洲疫情
-
-俄罗斯新增新冠患者34,172人；德国新增297,850人；法国新增102,394人；英国新增91,206人；意大利新增82,368人。
-
-**5）全球新冠总感染人数为467,671,421人，总死亡人数为6,070,281人。**
-
-**3．新闻简报**
-
-1、根据健康专家和疾病控制中心的数据，被称为BA.2 的 omicron 变体将在未来几周内迅速在美国引起新一波感染。BA.2 被归类为 omicron 的一个子变种，看起来它比原始的 omicron 菌株更具传播性。
-2、两名从国外回国的以色列旅行者被发现携带Omicron 变体和 BA.2“隐形”Omicron 变体的组合，该国卫生部称这种突变 COVID“世界对其尚一无所知”。
-3、首尔，3 月 18 日（UPI）：根据联合国调查人员周五发布的一份报告，在长期 COVID-19 边境关闭和对公民日益严厉的镇压下，朝鲜正面临多年来最糟糕的粮食和人权危机。
-
-
-
-* * *
-
-*封面：霹雳鼠年*
-
-*编辑 /发布：郭郊玉米地*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
