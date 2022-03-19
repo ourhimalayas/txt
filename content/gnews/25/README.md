@@ -2,23 +2,25 @@
 ---
 
 
-## 樱花FM|樱花时政:IAEA声明乌克兰诉俄罗斯欲&#8221;永久控制&#8221; 扎波罗热核电站
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2193643/)
+## 沙特外长会见乌克兰总统特使
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2193663/)
 
-频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-7.png)
-据NHK3月13日消息，国际原子能机构（IAEA）总干事格罗西于12日发表声明称，乌克兰报告称俄罗斯国有核电公司Rosatom欲对乌克兰东南部的扎波罗热核电站进行全面和永久控制。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-乌克兰国有核电公司报告说，扎波罗热核电站现由一名俄罗斯军指挥官和约400名俄罗斯士兵控制着。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1138.jpg)
 
-同时，俄罗斯国有核电RosAtom公司的代表告诉格罗西局长，他们承认RosAtom公司的专家在扎波罗热工厂，但否认军队控制了该工厂的运作，称无意将该工厂纳入其管理结构。
 
-文字版原文：[樱花时政┃IAEA声明乌克兰诉俄罗斯欲”永久控制” 扎波罗热核电站](https://gnews.org/zh-hans/2154185/)
+图片来源：路透社
 
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
+据沙特国家通讯社（SPA）周六报道，沙特外交大臣费萨尔·本·法尔汉·阿勒沙特亲王在利雅得会见了乌克兰总统特使贝克图姆·罗斯塔姆。
 
+两人讨论了乌克兰危机，强调沙特王国支持减少升级、保护平民、寻求谈判政治解决方案和国际努力以政治方式解决危机。
+
+简评： 今天， 沙特外长会见了乌克兰总统特使， 这个消息我个人认为是个极好信号。 在沙特王子希望与中共国用人民币结算石油贸易的时候， 全世界都认为不可思议的， 因为石油是美元计价的， 而中共国又是支持俄罗斯对乌克兰的入侵的。 就在这个节骨眼上，出现这样的镜头， 会不会人民币结算石油的梦想已经破灭了呢。 明天3月20日， 听听郭先生的会不会解读这个内幕呢。 期待的很。
+
+🔗 [https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/](https://www.reuters.com/world/middle-east/saudi-foreign-minister-meets-special-envoy-ukraines-president-2022-03-19/)
+
+编辑发表： Shuizhuyu
 
  
 

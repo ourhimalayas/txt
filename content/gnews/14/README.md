@@ -2,28 +2,32 @@
 ---
 
 
-## 日本人气女主播接种辉瑞疫苗后产生严重副作用
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2193849/)
+## 普京可能将接受美欧和解条件撤军乌克兰
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193908/)
 
-**撰稿：日本东京方舟农场  海星**
+##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2165.png)
+据3月17日文贵先生大直播爆料，美欧或将通过解封普京个人资产，保证其安全，以及不进行个人攻击作为和解条件，换取俄罗斯从乌克兰全面撤军，结束俄乌战争。
 
-3月18日，日本人气女主播高桥真麻在其博客上发帖表示，她在接种第3针辉瑞疫苗后产生严重副作用。
+据文贵先生透露，普京应该是听取了高级智囊瓦里克“放弃俄乌战争，不要自寻死路，待时机合适就收手”的建议，在认真考虑美欧开出的价码后，已将女友和儿子接回俄罗斯，下一步很有可能宣布撤军。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-23.jpg)（图片来源：ABEMA）
+美欧是继中共外交官杨洁篪在中美会谈中强硬表态坚决军事支持俄罗斯入侵乌克兰后，向普京开出上述和解条件的。俄乌战争将彻底改变世界政治格局，如今的俄罗斯将不复存在。
 
-据《ABEMA》报导，曾入围日本最受欢迎女主播排行榜的高桥真麻于18日在其个人官方博客上发帖表示，她在接种第3针辉瑞新冠疫苗后，出现疲劳、头疼、肌肉痛、恶寒、关节痛、腹泻等症状。据悉，目前高桥真麻的身体已在逐渐恢复。
+新闻来源：[https://gettr.com/post/p10j4v2a826](https://gettr.com/post/p10j4v2a826)
 
-此前，美国FDA在法院强制令下对外公开了辉瑞新冠疫苗的数据报告。其中关于疫苗副作用的报告显示，早在2021年2月28日之前便已收到了来自56个国家共42,086例不良反应事件，其中头痛、发烧、疲倦、发冷、恶心、肌肉痛等副作用最为常见。
+[https://gettr.com/streaming/p10fr57b127](https://gettr.com/streaming/p10fr57b127)
 
-参考链接：
-1. [https://times.abema.tv/articles/-/10017826](https://times.abema.tv/articles/-/10017826)
-2. [https://ameblo.jp/takahashi-maasa/entry-12732533756.html](https://ameblo.jp/takahashi-maasa/entry-12732533756.html)
-3. [https://news.tv-asahi.co.jp/news\_geinou/articles/hot\_20220319\_160.html](https://news.tv-asahi.co.jp/news_geinou/articles/hot_20220319_160.html)
-4. [https://gnews.org/zh-hans/2122508/](https://gnews.org/zh-hans/2122508/)
+编辑/上传 – 文永
 
-总编：老孙
-校对发布：Linda
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
