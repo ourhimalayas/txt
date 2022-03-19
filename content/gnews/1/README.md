@@ -2,18 +2,18 @@
 ---
 
 
-## 中共国试图刺激美国与俄罗斯开战
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193803/)
+## 拜登宣布再向乌克兰提供8亿美元军援
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193805/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2157.png)
-周三凌晨，乌克兰总统泽伦斯基(Volodymyr Zelensky)在美国国会的演讲中请求国会设立禁飞区，呼吁立法机构采取更大行动，授权对入侵者俄罗斯实施更严厉的制裁，并加强对乌克兰的防御。同时敦促拜登总统不仅要成为美国的总司令，还要成为“世界的领袖”。他在讲话中提到了日本轰炸珍珠港和911恐怖袭击，也展示了乌克兰战前战后的巨大对比。他的讲话得到了国会参众两院议员的起立欢呼和鼓掌。
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、编译撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2158.png)
+据加拿大媒体【后千禧年】3月17日报道，在乌克兰总统泽连斯基16日通过视频向美国国会发表动人演说征服整个国会山之后，他的要求得到了兑现。拜登总统当天下午签署命令，再向乌克兰提供额外的8亿美元军援。
 
-“只是掌声?这是虚伪的。如果美国真的想要展示正义，它应该派遣军队到乌克兰，或者至少设立一个禁飞区，并直接与普京的军队作战，即使这意味着牺牲美国士兵。不要只是煽动乌克兰人为了美国的利益而死，”环球时报评论员胡锡进这样回应道。
+白宫周三表示，此举使美国过去一周内向乌克兰安全援助达到10亿美元，自开战来总援助额达到20亿美元。援助将以国防部直接向乌克兰军方转移设备的形式进行，这些设备包括：尖端无人机、毒刺地对空导弹，以及S-300导弹防御系统等。
 
-众所周知，《环球时报》是中共大外宣的喉舌。他的推特言论表明中共高层意欲挑动美国与俄罗斯开战，从而渔翁得利，为他们图谋台湾减轻压力。
+拜登表示面对普京对平民不道德的攻击，美国人民将坚定不移地支持乌克兰人民。
 
-新闻链接：[https://thepostmillennial.com/ccp-tries-to-goad-us-into-war-with-russia](https://thepostmillennial.com/ccp-tries-to-goad-us-into-war-with-russia)
+原文链接：[https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine](https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine)
 
 编辑/上传 – 文永
 
