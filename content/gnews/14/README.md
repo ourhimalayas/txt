@@ -2,31 +2,23 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2193608/)
+## 樱花FM|樱花时政:IAEA声明乌克兰诉俄罗斯欲&#8221;永久控制&#8221; 扎波罗热核电站
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2193643/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
+频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-7-7.png)
+据NHK3月13日消息，国际原子能机构（IAEA）总干事格罗西于12日发表声明称，乌克兰报告称俄罗斯国有核电公司Rosatom欲对乌克兰东南部的扎波罗热核电站进行全面和永久控制。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-19.png)
-文章仅代表作者本人观点，与Gnews无关
+乌克兰国有核电公司报告说，扎波罗热核电站现由一名俄罗斯军指挥官和约400名俄罗斯士兵控制着。
 
-视频参看：
-[2022.03.19早 《NFSC新闻》](https://gettr.com/streaming/p10s0mgdd7b)
-[2022.03.19早《NFSC新闻访谈》](https://gettr.com/streaming/p10s69scd30)
+同时，俄罗斯国有核电RosAtom公司的代表告诉格罗西局长，他们承认RosAtom公司的专家在扎波罗热工厂，但否认军队控制了该工厂的运作，称无意将该工厂纳入其管理结构。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+文字版原文：[樱花时政┃IAEA声明乌克兰诉俄罗斯欲”永久控制” 扎波罗热核电站](https://gnews.org/zh-hans/2154185/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Mar-Calendar.jpeg)
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/新二维码.jpg)
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
  
 

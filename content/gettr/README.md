@@ -17,13 +17,6 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/19/2022 7:37 PM (UTC)`
-
-2022-03-19 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updates
-![img](https://media.gettr.com/group39/origin/2022/03/19/19/ccbf0626-79bb-526c-d8f6-bee2d8efe488/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
 `@miles 3/19/2022 7:25 PM (UTC)`
 
 At the Polish-Ukrainian border in Medyka, refugees enter Poland waiting for buses to evacuate to different parts of the country.  The new Chinese of New Federal State of China were also present, and our participation in the rescue operation was unanimously appreciated and praised by everyone here. Comrades Yi Shan and Himalaya 2, they set up supplies and water for the refugees in the queue to get on the bus.Our "Mydyka 7-star" tent prepared a special corner for children to play, with some toys, and a lot of materials for children provided by some compassionate people<br/>在波兰与乌克兰的边境梅迪卡（Medyka），难民进入波兰后排长队，等待着乘坐疏散到波兰各地的巴士, 每天有数不尽的乌克兰难民进入波兰。新中国联邦人参与的这次救援行动一致获得了这里所有人的感谢和好评。战友翌珊、喜马拉雅2在难民排队上车的位置都摆起了物资，水方便难民取用！我们的 “梅迪卡七星级” 搭帐篷里有专门为儿童准备的一个玩耍的角落，有一些玩具，和很多爱心人士为儿童提供的物质。
@@ -155,6 +148,13 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 3/17/2022 Miles Guo: Ukraine will emerge as a technological powerhouse. Even if Russia ceased fire, the CCP would also invade Taiwan. The life-and-death struggles between Xi Jinping and the Shanghai Gang are escalating. No one in the top echelons of the CCP will end up in a decent way.<br/><br/>3/17/2022 文贵直播: 乌克兰将会崛起为科技强国；即使俄罗斯停战，中共也会打台湾；习近平和上海帮之间你死我活的斗争愈演愈烈，中共高层谁也都逃不过不得善终的下场。<br/>
 ![img](https://media.gettr.com/group40/getter/2022/03/19/09/1a8e3f8c-abd7-a655-8e43-215426a65585/out.jpg)
+
+---
+
+`@miles 3/19/2022 4:44 AM (UTC)`
+
+3/17/2022 Miles Guo: The Russia-Ukraine war is the rivalry of comprehensive strengths between nations. “Xi the Sun” and “Putin the Great” are more selfish than the ordinary people. Xi and Putin are willing to sacrifice the lives of tens of millions of people, provoke wars, or even destroy the world only to preserve the privileges of their families and keep themselves alive.<br/><br/>3/17/2022 文贵直播: 俄乌战争是国与国之间综合实力的较量；习太阳和普京大帝比普通老百姓更加自私，他们不惜牺牲千万人的生命，挑起战争甚至毁灭世界，只为维护自己家族的特权和让自己活着！<br/>
+![img](https://media.gettr.com/group20/getter/2022/03/19/04/848119c8-c6ca-0fc6-e92c-30587ec28ec7/out.jpg)
 
 ---
 

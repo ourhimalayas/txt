@@ -2,37 +2,37 @@
 ---
 
 
-## MV版Hcoin To the Moon上线100天第60次位列匈牙利iTunes摇滚MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2193281/)
+## 中共一年多来首次报告染疫死亡病例
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2193402/)
 
-3/19/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线100天第60次位列匈牙利iTunes摇滚音乐视频榜榜首，第78次位列前三名
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C-1.jpg)atinitonews.com
+日本共同社3月19日报道称中共国周六报告了两例中共病毒（COVID-19）死亡病例，这是自去年1月以来首次，因为中共国新染疫的人数一直在急剧增加。
 
-* * *
+中共说，这两名死者是吉林省患有严重基础疾病的老人，该省约有2200人在周五被确认感染了该病毒。有一个人没有接种疫苗。
 
-[【PDF 下载】Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+该省省会长春受到的打击最大，自本月初以来已被有效封锁。该市大约有900万人口。
 
-* * *
+中国共产党领导的政府已承诺继续实施其激进的 “病毒清零”政策，例如对一些城市实行完全封锁，并在目标地区进行大规模病毒测试。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+最近，面对高传染性的奥米克戎变种，有4000多万中共国人被封锁。上周五，大陆新感染的人数达到3870人，包括无症状病例。
+
+**特评：**日本媒体关注吉林省针对大面积染疫的强制检测和封锁已经让省会长春深受打击。其实我们战友都知道，郭先生的情报早已爆出自2019年武汉爆发中共病毒疫情后，最近国内各地的疫情都相当严重。
+
+中共各级政府欺上瞒下，谎话连篇，一直隐瞒真实数据。其公开宣称的染疫人数长期停滞在数千人，死亡几百人。尽管如此，到今天也报告说有两人死于疫情了，日本和其他国外媒体从这里注意到中共国疫情的严重程度。
+
+更可怕的是中共应对疫情的做法，“社区清零”、“物理清零”，大规模统一核算测试等等，这完全是借着疫情在杀人，借着疫情在搞全国新疆化的网格化管理，什么人权、什么个体自由与生命完全不在中共的考量范围内。
+
+经济在崩溃、人心在沦丧、疫苗灾难频发，中共正在死亡的路上狂奔，还要带走多少人？
+
+快快醒来吧，不要再懦弱，不要再自私，起来砸碎这万恶的中共！
 
 
-[【PDF 下载】Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-19-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+参考链接：
+
+[https://english.kyodonews.net/news/2022/03/db43748314a9-china-reports-1st-covid-19-deaths-since-january-2021.html](https://english.kyodonews.net/news/2022/03/db43748314a9-china-reports-1st-covid-19-deaths-since-january-2021.html)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
