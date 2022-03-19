@@ -2,43 +2,37 @@
 ---
 
 
-## 有声|亚裔在纽约无故遇袭，嫌犯被控仇恨犯罪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2189459/)
+## “中国已经站在历史的错误一边”并正在损害其声誉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2189502/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国纽约州Yonkers市一名67岁亚裔女子被不认识的男子Tammel Esco尾随跟踪并趁其不备暴力殴打。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-100.png)
-美国纽约再传亚裔女性被仇恨攻击事件，一名67岁亚裔妇女11日傍晚返家时，在公寓前遭到陌生男子狂揍猛踹、拳打脚踢超过125下，还被骂「亚洲婊子」等脏话，所幸妇人伤势稳定，男子也被逮捕。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2093.png)Getty图片
+《布赖特巴特》2022年3月17日报道，在周三公布的周二NPR的采访中，国务卿安东尼·布林肯回答了一个问题，即如果必须这样做的话，美国是否可以像孤立俄罗斯那样孤立中国。他说，在乌克兰的冲突中“中国已经站在了历史的错误一边”。如果中国向俄罗斯提供物质支持，“那就更糟了， 这是我们在非常仔细地观察的东西。 但我认为这在全球范围内对中国的声誉造成了真正的损害”。
 
-根据公寓的监视器画面，亚裔女子推开公寓1楼大门、推着推车进入大厅，当她拿出钥匙准备进门时，身材高大的非裔男子艾斯科突然从后头闯入大厅，举起右手重重地往女子的后脑打去，女子瞬间瘫软倒地，接着他两手左右开弓，一共揍了妇人125拳，外加7记猛踹，之后还向倒地的受害者吐痰。
+主持人史蒂夫·英斯基普（Steve Inskeep） 问道， “如果中国在一定程度上帮助俄罗斯，美国及其欧洲盟友是否有能力像孤立俄罗斯那样孤立中国？”
 
-纽约州韦斯切斯特郡（Westchester County）检察官表示，妇人被打到脑出血、骨折，脸部破裂，头部及脸上也多处挫伤，所幸送医后伤势稳定。
+布林肯回应说：“哦，当谈到乌克兰和俄罗斯的入侵时，中国已经站在了历史的错误一边。中国没有强烈反对它，这与中国一再重申《联合国宪章》的神圣性和包括国家主权在内的基本原则完全不符。因此，我们期待中国大声地、非常清楚地说出来。其次，当然，如果中国真的在这方面以某种方式向俄罗斯提供物质支持，那就更糟了。这是我们非常仔细地观察的东西。但我认为这对中国在亚洲、欧洲、非洲和世界其他地区的声誉造成了真正的损害，对此中国必须引起高度重视。”
 
-艾斯科在攻击事件后已被捕，13日他被控二级伤害及二级谋杀未遂等罪名，不过昨14日韦斯切斯特郡地区检察官又加重他的罪名，将两项指控提升至仇恨犯罪（hate crime）。
+简评:
 
-扬克斯市警察局说艾斯科前科累累，先前已经被逮捕过14次，还有多项被定罪的纪录，先前犯过的罪行包括刺伤别人等。 同栋公寓的住户沙巴杰（Sken Shabaj）形容受害妇人人缘佳，是个非常、非常好的人，有2名女儿，丈夫已经过世，生前是邮差。
+美国的态度表明了它认识到中共和俄罗斯结成了邪恶的轴心国，但美国在尽最大努力，通过接触和喊话，希望分化中俄，争取能够减少北约和欧盟的压力，减少乌克兰平民的死伤。进而能对中俄分而治之，各个击破。
+我们新中国联邦人是CCP的克星，我们支持美国的努力。中共政权无论是和普京绑在一起，一条道走进火葬场，还是躲躲闪闪打太极，假装中立继续欺骗世界人民，但是他们的宿命，因为俄乌战争和中共病毒及疫苗的灾难，再也无力回天了。
+
+新闻链接: [https://www.breitbart.com/clips/2022/03/17/blinken-on-ability-to-isolate-china-chinas-already-on-the-wrong-side-of-history-and-is-hurting-its-reputation/](https://www.breitbart.com/clips/2022/03/17/blinken-on-ability-to-isolate-china-chinas-already-on-the-wrong-side-of-history-and-is-hurting-its-reputation/)
+
+翻译/简评: Sima（正道主义）
+
+PR:感恩
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-文字版原文：[亚裔在纽约无故遇袭，嫌犯被控仇恨犯罪](https://gnews.org/zh-hans/2184844/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

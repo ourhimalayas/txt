@@ -2,38 +2,32 @@
 ---
 
 
-## 有声|著名战地音乐家演奏新中国联邦国歌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2189524/)
+## 台湾&#8221;最有影响力的国家 &#8220;的民调显示美国首超中国
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2189594/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月16日，郭文贵先生盖特转发乌克兰前线救援记者妮可的播报视频，著名战地音乐家大卫·马特罗先生了解到新中国联邦正致力于推翻中共的独裁统治时，现场欣然演奏了新中国联邦国歌以表达支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-127.jpg)
-妮可介绍，马特罗先生是一位来自德国的意大利人，是世界知名的战地音乐家，曾经在许多军事冲突和战争地区演奏音乐，包括为香港的自由斗士演奏。他在前线为法治基金救援队的事迹深深打动。经上网查询，他了解到救援队员们是以推翻独裁中共、反对国际共产主义为使命的新中国人时，就决定支持新中国联邦。他当即把钢琴搬到离法治基金救援帐篷最近的地方，面对着来自全球的知名媒体，开始演奏。其中最打动人心的，是弹奏新中国联邦的国歌——自由之巅。
+2022-03-18
 
-马特罗表示，法治基金所做的事情非常伟大，并且正在创造历史。新中国联邦人正在努力推翻中国共产党，努力把人类从被毁灭的危机、侵犯人权的暴行，以及肆虐全球的各种灾难中拯救出来，因此，特意用音乐表达一份献礼，和全心的支持。
+摘要：文舞两道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/J3P5MLRMH4PZ90L.png)照片来源：[台湾「最も影響を与えている国」米が初めて中国を上回る](https://www3.nhk.or.jp/news/html/20220319/k10013540751000.html?utm_int=news-international_contents_list-items_003)
+据3月19日NHK新闻消息，在台湾进行的民调”对台湾影响最大的国家 “和”台湾最应该亲近的国家 “中，受访者选择 “美国 “的比例首次超过了选择”中国”的，这被认为是对台湾海峡近期局势的真实反映。
 
+此项民调是日本驻台湾的机构“日本台湾交流会”自今年1月起，通过互联网和电话对1000多名年龄在20至80岁之间的台湾人进行的。 在 “对台湾影响最大的国家 “的问题上，回答 “美国 “的受访者达到创纪录的58%，比上一次调查多出25个百分点，排名第一。在三年前的上一次调查中排名第一的中国下降了20个百分点，为25%
+![](https://assets.gnews.org/wp-content/uploads/2022/03/JO3Z37BBR332GDQ6.png)照片来源：[台湾「最も影響を与えている国」米が初めて中国を上回る](https://www3.nhk.or.jp/news/html/20220319/k10013540751000.html?utm_int=news-international_contents_list-items_003)
+当被问及台湾未来最应该亲近的国家时，将日本排在第一位的受访者达到创纪录的46%，美国排在第二位，占24%，中国第三位，占15%，比上次调查减少了16个百分点。
 
+这是自此项民调开始以来，”美国 “首次在这两个选项上都超过了”中国”。此项结果被认为反映了台湾海峡最近的局势：中国在台湾周围不断增加军事活动，美国则加强了对台湾事务的参与。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/KDW_Y515HUQH7B.png)照片来源：[台湾「最も影響を与えている国」米が初めて中国を上回る](https://www3.nhk.or.jp/news/html/20220319/k10013540751000.html?utm_int=news-international_contents_list-items_003)
+消息来源：
 
-文字版原文：[著名战地音乐家演奏新中国联邦国歌](https://gnews.org/zh-hans/2186684/)
+[台湾「最も影響を与えている国」米が初めて中国を上回る](https://www3.nhk.or.jp/news/html/20220319/k10013540751000.html?utm_int=news-international_contents_list-items_003)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+编辑：卢卡斯
+发布：肥鯮
+校对：卢卡斯
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,37 @@
 ---
 
 
-## 【秘翻在线】拜登在视频通话中警告习近平：如果中共援助俄罗斯将面临后果
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2188623/)
+## 有声|乌克兰中国留学生亲述新中国联邦救援经历
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2188682/)
 
-#### 翻译/撰稿：zzballack
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月15日，两位乌克兰中国留学生接受新中国联邦采访，亲述俄乌战争爆发后，在新中国联邦、治基金的帮助下，逃离基辅来到波兰的经历，感恩新中国联邦、法制基金的救助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-1967.png)
+据两位留学生所述，在第一声爆炸之前，没有人相信会发生战争。而在战争持续几天后，他们意识到必须自救。通过微信朋友圈，他们看到新中国联邦、法制基金的救援信息，并立即打通了救援电话。他们采纳了新中国联邦战友建议的救援路径，顺利逃离基辅，到达利沃夫。而后，他们乘坐新中国联邦的大巴，到达波兰边境小镇热舒夫，随后抵达克拉利夫的酒店。一路上，他们得到救援团队暖心的关怀。
 
-#### 校对：白夜
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2074.png)图片来源：福克斯新闻网
-据《布雷特巴特新闻网》（Breitbart News）和《每日传讯 》(The Daily Caller) 3月18日报道，在俄罗斯继续升级其在乌克兰的战争之际，美国总统乔·拜登（Joe Biden）本周五（3月18日）与中共领导人习近平进行了视频通话。
-
-这次通话持续了110分钟，拜登向中共施压，要求其不要在经济或军事上援助莫斯科。
-
-通话结束数小时后，白宫在一份解读中说：“这次会谈的重点是俄罗斯对乌克兰的无端入侵。拜登总统概述了美国和我们的盟国以及合作伙伴对这场危机的看法，并详细介绍了我们为防止和应对入侵所做的努力，包括让俄罗斯付出代价。”
-
-白宫补充说，拜登在与习近平的通话中谈到，在俄罗斯对乌克兰的城市和平民进行野蛮攻击时，如果中共向俄罗斯提供物质支持将面临后果。拜登还强调了支持通过外交途径解决危机，保持沟通渠道开放，以应对中美两国之间的竞争。
-
-在台湾问题上，拜登重申美国的对台政策保持不变，并继续反对“对现状的任何单方面改变”。
-
-*责编：白夜*
-
-新闻来源：[Joe Biden Warns Xi Jinping of ‘Consequences’ if China Supports Russia](https://www.breitbart.com/politics/2022/03/18/joe-biden-tries-to-further-isolate-russia-in-110-minute-video-call-with-xi-jinping/)
-
-[Biden Warns China Of ‘Consequences’ Should It Aid Russian Invasion Of Ukraine](https://dailycaller.com/2022/03/18/joe-biden-china-call-consequences-aids-russia-invasion-ukraine/)
+与中共置同胞性命于不顾形成强烈的对比，新中国联邦在战争爆发后，第一时间对同胞展开的救援行动，使两位获救留学生无限感慨。
 
 
+
+文字版原文：[乌克兰中国留学生亲述新中国联邦救援经历](https://gnews.org/zh-hans/2184512/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
