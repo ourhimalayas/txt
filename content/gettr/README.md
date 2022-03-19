@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/19/2022 12:30 PM (UTC)`
+
+2022.03.19 早 《新中国联邦新闻》前线救援中心吸引全球目光； 战友前线救援 践行健身健心
+![img](https://media.gettr.com/group43/origin/2022/03/17/12/23f4da65-557a-99f7-8d84-a990a46b50b8/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/19/2022 12:09 PM (UTC)`
 
 3月19号：尊敬的战友们好中共内战．外战的大戏即将开始！
@@ -148,13 +155,6 @@
 
 ❤️【Ukraine Rescue】March 17, 2022—Kraków, Poland<br/>💦 At 2 am on March 17, the frontline rescue team greeted three rescue buses from Lviv carrying 190 Ukrainian refugees.<br/>💦 Although it was late at night, the spirit and state of our fellow fighters from D.C. and Canada were still very good. They held banners of the New Federal State of China and Rule of Law Foundation to express our support for Ukrainian refugees.<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>❤️【乌克兰救援】2022/03/17—波兰克拉科夫<br/>💦 3月17日凌晨2点，前线救援团队迎接了三辆来自利沃夫载有190位乌克兰难民的救援大巴。<br/>💦 尽管已是深夜，但是来自DC和加拿大战友们的精神面貌和状态依旧非常棒，他们手持新中国联邦和法治基金的横幅，表达我们对乌克兰难民的支持。
 ![img](https://media.gettr.com/group48/origin/2022/03/18/23/015c13f1-2027-c68e-6c36-9eb1cebb732c/out.jpg)
-
----
-
-`@miles 3/18/2022 10:23 PM (UTC)`
-
-3/18/2022 MIles Guo’s GETTR: Fellow fighters, please be very careful of the CCP virus! Most people in Hong Kong were infected with deltacron after receiving three COVID jabs. People from the CCP embassy in Poland are often seen on the front line of the NFSC & ROLF Ukraine rescue operation. Are they here to release the virus?<br/><br/>3/18/2022 文贵盖特：战友们要万分小心中共病毒！香港绝大多数人是打了3针疫苗后染上了混合型病毒；新中国联邦乌克兰救援前线经常出现中共驻波兰大使馆派的人，他们是来放毒的吗？<br/>
-![img](https://media.gettr.com/group36/getter/2022/03/18/22/e336a57b-1dda-4550-88de-bf2f80a0e201/out.jpg)
 
 ---
 
