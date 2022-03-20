@@ -2,39 +2,35 @@
 ---
 
 
-## 俄罗斯银行被告知跟踪与加密货币相关的交易
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196214/)
+## 
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2196225/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**题目：****摩根大通恢复雇用未接种疫苗的个人，放弃口罩强制令**
 
-翻译/编辑：小红帽
+**翻译：****【日本东京方舟农场】**乾坤一掷
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Russian_Banks.jpg)图片来源：Gavriil Grigorov/TASS
+3月14日（路透社）——摩根大通（JPM.N）从4月4日起恢复雇用未接种疫苗的个人，路透社记者表示周一该银行在一个内部备忘录中提到，他希望放宽 COVID-19期间制定的规则。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/205.jpg)（图片来源：reuters.com）
 
-根据Bitcoin.com 3月20日报道，俄罗斯中央银行建议商业银行高度关注其客户与加密货币有关的交易。监管机构要求金融机构，在西方制裁和限制货币业务的背景下，监控此类活动。
+备忘录称，该银行还取消了所有员工在其办公室戴口罩的规定，使接种疫苗和未接种疫苗的员工自愿戴口罩。
 
-俄罗斯中央银行（CBR）已经通知银行需要跟踪某些交易，包括涉及加密货币的交易。该金融监管机构已发出一封信函，呼吁各机构识别其客户 “在交易活动中的异常情况”，如消费者和投资支出的变化。
+备忘录还提到，对未接种疫苗的员工进行强制检测、要求员工报告COVID-19感染以及相关的接触者追踪和通知将在4月4日停止。
 
-根据Forklog援引的文件，银行官员应该高度注意和观察交易量的异常增长、向其他司法管辖区的提款以及与数字货币有关的交易。监测还应该包括个人和实体规避外汇限制的操作以及在“不友好”国家注册的组织提取资产。
+该银行在备忘录中说：随着病例下降和疫苗继续提供高水平的免疫力。“我们正在学习与 COVID 一起生活，这是我们新常态的一部分，”
 
-“在这种情况下，建议银行对客户进行深入检查，考虑拒绝完成交易并将其归类为可疑交易，”俄罗斯中央银行在通知中提到，其正在与俄罗斯联邦的主要金融监督机构Rosfinmonitoring协调。
+这一转变突显出企业和政府官员越来越倾向于寻求恢复正常。然而，该银行表示，如果案件再次激增，掩盖授权可能会恢复。
 
-俄罗斯银行一直强烈反对使加密货币市场合法化，并认为这将影响国家的金融稳定和让公民面临风险。1月，货币当局提议禁止发行、挖掘和交易加密货币等一系列活动。它之前还建议银行封锁用于与加密货币交易所进行交易的银行卡和钱包。
+备忘录称：除非纽约市取消命令，否则纽约市的员工必须继续满足疫苗接种要求，因此补充说这家华尔街巨头还将继续提供免费的家庭检测试剂盒。
 
-以财政部为首的大多数其他俄罗斯机构和监管机构都支持一种不同的方法，即强调在严格监督下的进行监管。2月，Minfin提交了一份新的“数字货币”法律草案，旨在通过授权的俄罗斯银行使加密货币业务合法化，并填补去年“数字金融资产”法律建立的监管框架中的其他空白。
+注：本文仅代表作者观点。
 
-尽管最近的声明显示，俄罗斯有兴趣使用数字货币来恢复其对全球金融的访问，但由于其军事入侵乌克兰而受到制裁的严重限制，俄罗斯中央银行最近试图遏制与加密货币有关的交易。西方盟友已经采取措施，防止莫斯科利用加密货币资产来逃避制裁。
+原文链接：
+[https://www.reuters.com/business/finance/jpmorgan-resume-hiring-unvaccinated-individuals-memo-2022-03-14/](https://www.reuters.com/business/finance/jpmorgan-resume-hiring-unvaccinated-individuals-memo-2022-03-14/)
 
-新闻来源：[Russian Banks Told to Track Crypto-Related Transactions Amid Currency Restrictions](https://news.bitcoin.com/russian-banks-told-to-track-crypto-related-transactions-amid-currency-restrictions/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+素材採編：妙喜小油鍋
+校对：妙喜小油鍋
+发布：Linda
 
  
 

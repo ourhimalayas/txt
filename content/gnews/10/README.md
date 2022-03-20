@@ -2,32 +2,19 @@
 ---
 
 
-## 樱花FM|樱花时政:切尔诺贝利的电力传输已恢复
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2197002/)
+## 自强才能被帮助（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197049/)
 
-音频：东京樱花团/战友520
+#### PPT制作: 小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-950-1000-2_2.jpeg)
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/切尔诺贝利的电力传输已恢复.png)
-
-据报道9日停电的切尔诺贝利核电站已由乌克兰工程师修复。
-
-据乌克兰核电站运营公司称，13日，乌克兰方面的工程师恢复了向切尔诺贝利核电站的输电，废旧核燃料冷却设施也从应急电源恢复到正常模式。
-
-这家运营公司说：“工程师们已经消除了一场危及他们的健康和生命并威胁到整个欧洲的灾难的可能性。”
-
-但核电站本身仍处于俄军控制之下，乌方继续要求军队撤离，并在核电站半径30公里范围内解除武装。
-
-文字版原文：
-
-
-| [樱花时政┃切尔诺贝利的电力传输已恢复](https://gnews.org/zh-hans/2160198/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-5.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

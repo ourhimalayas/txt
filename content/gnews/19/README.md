@@ -2,22 +2,26 @@
 ---
 
 
-## 梅迪卡救援营地成为灭共阵营
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2196787/)
+## 俄罗斯导弹袭击了乌克兰西部城市利沃夫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2196832/)
 
-撰稿: 香草山农场教育部-飞虹
+撰稿：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
-在3月19日新中国联邦法治基金乌克兰人道救援基地前线报导的直播中，Nicole战友还为所有观众介绍了国外友人对新中国联邦的一些具体看法。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2195.png)
-一位曾在伊拉克作战的美国退伍军人不仅帮助救援中心的战友做一些物资整理、分配等救援工作，还在交谈中表达了对新中国联邦的理念和行动的理解和全力支持。一些波兰和乌克兰的媒体及个人由于深知共产主义的危害，更是对新中国联邦、爆料革命以及郭文贵先生表示由衷的理解和敬佩。
+国外媒体报道，3月18日，俄罗斯的导弹袭击了利沃夫附近的一个机场。利沃夫是乌克兰最西部的城市，距离波兰边境不到50英里，数十万难民在这里寻求庇护，数百名记者也在这里工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2199.png)
+到目前为止，利沃夫是一直是受俄罗斯攻击影响最小的城市，很多救援工作都在此地展开，包括新中国联邦的一个救援小组。这里成为输送难民前往波兰的一个重要枢纽。
 
-同时，Nicole介绍，在梅迪卡的营地上，越来越多的人穿上了新中国联邦灭共的黄马甲，越来越多的人品尝了灭共的NSFC咖啡，战地钢琴家每天还会演奏新中国联邦的灭共歌曲，梅迪卡救援营地已经形成了灭共的阵营。
+利沃夫市长最近表示，由于难民数量过多，该市各种资源极度短缺，正在呼吁各方提供实质性支持。另外利沃夫的国际媒体中心在俄罗斯入侵前的几天刚刚成立，目前已经接待了来自50多个不同国家的800多名记者。无国界记者组织也在此地创立了一个所谓的新闻自由中心，提供互联网接入和媒体资源以及某些防护装备。
 
-参考链接：[新中国联邦法治基金乌克兰人道救援基地前线报导](https://gettr.com/streaming/p10rfyc7f0b)
+据利沃夫市长说，在此次袭击中，至少有一人受伤，总体伤亡人数不多。
+
+参考链接：
+
+[Russia Begins Bombing Ukraine’s Far-Western City of Lviv](https://www.breitbart.com/politics/2022/03/18/russia-begins-bombing-ukraines-far-western-city-of-lviv/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/1EA879DF-7724-4FF4-9043-FD7159BE9981.jpeg)
 
-总编：飞虹
+编辑/总编/审核: 飞虹
 
 校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6.png)
