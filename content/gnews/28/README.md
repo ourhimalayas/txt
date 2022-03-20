@@ -2,40 +2,36 @@
 ---
 
 
-## 印日首脑举行会谈并发表共同声明
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2196303/)
+## 俄罗斯最大的银行Sberbank获准交换加密货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
 
-**撰稿：文舞两道**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-日本首相岸田文雄于日本时间3月19日，与印度总理莫迪举行了首脑会谈。会谈后双方发表了共同声明。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/E17E3172-8EF6-4301-B625-3CA5EEFCC6CD.jpeg)图片来源：NHK
-会谈历时约两小时，岸田首相就乌克兰局势表示，”俄罗斯侵略乌克兰是一个动摇国际秩序的严重事件，需要做出果断的反应”。两国领导人一致认为，任何地区都不允许以武力单方面改变现状，必须根据国际法寻求和平解决冲突。
+翻译/编辑：小红帽
 
-双方强烈反对在东海和南海通过武力和经济恐吓方式，单方面改变现状的企图，同时讨论了中国日益增长的霸权主义行为，以及中国与朝鲜合作的问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
 
-同时，在会议期间，岸田首相表示，他将引导国际社会努力实现一个无核武器的世界，并将继续与印度进行对话。
 
-岸田首相还表达了支持印度建设网络安全、引进清洁能源、高速铁路项目以及开发印度东北部地区的意向，并提供超过3000亿的日元贷款。
+根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
 
-会后，岸田首相与莫迪总理发表了联合声明。岸田首相说：”世界正面临着一个国际秩序动荡不安的局势，拥有民主和法治等基本价值观的日本和印度之间的密切合作，对于实现’自由和开放的印度-太平洋’至关重要”。
+俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
 
-莫迪总理说，”地缘政治事件带来了新的挑战”，但他没有直接提及这一局势，分析认为这是考虑到俄罗斯与印度是关系友好国家。
+据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
 
-莫迪还说，”日本和印度之间的合作不仅对两国，而且对印太地区和世界都很重要”，他对两国关系的未来发展表示乐观。
+俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
 
-联合声明表示，所有国家必须根据国际法寻求和平解决冲突，不诉诸武力威胁或使用武力，或试图单方面改变现状。联合声明在对乌克兰局势表示严重关切的同时，并没有直接点名谴责正在进行军事入侵的俄罗斯。
+据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
 
-消息来源：[NHK:日印首脳会談 “紛争の平和的解決を求める必要ある”](https://www3.nhk.or.jp/news/html/20220320/k10013542141000.html?utm_int=news-international_contents_list-items_005)
+新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
 
-**编辑：卢卡斯**
+发布：tianzhihuan
 
-**发布：歪桑の幽霓控**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
-20220319
-
-更多资讯请关注：
-[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,12 @@
 ---
 
 
-## 战争下，新中国联邦接下来要做什么（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196852/)
+## 这就叫：“新中国联邦NFSC咖啡”
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197063/)
 
-#### PPT制作: Qingjing ；玉米地的
+#### PPT制作: 小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-940-950-3_4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1--scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
