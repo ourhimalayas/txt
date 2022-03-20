@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 6:42 AM (UTC)`
+
+【Ukraine Rescue】 03/19/2022 Nicole: the Ukraine humanitarian relief operation Rescue Mission sponsored by ROLF and NFSC receives more attention from Chinese; Medyka refugee camp has become an anti-communist alliance bringing together forces of justice from around the world.<br/><br/>【乌克兰救援】03/19/22 妮可战友：新中国联邦乌克兰人道救援行动受到更多华人的关注；梅迪卡难民营已经成为汇聚全世界正义力量的反共同盟。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group4/getter/2022/03/20/06/0413e6f1-a7c9-ae41-3298-887affffd798/out.jpg)
+
+---
+
 `@miles 3/20/2022 3:16 AM (UTC)`
 
 U.S. veteran Al: “I hope you are successful in founding the NFSC in China and taking down the CCP. The CCP is not going to make the world any better. They are only gonna make it worse. Imaging a New China, a China that is not restrained by selfish politicians who are interested in their own names being on big signs. Imagining if the Chinese people were allowed to be productive and thoughtful, and thinking for themselves, that is going to be an incredibly powerful China. The powerful China is the one that is based on freedom.”<br/><br/>美国退伍军人Al：“我希望你们在中共国内成功创立新中国联邦并推翻中共。中共不会让这个世界变得更好, 只会让它变得更糟。想象一下新的中国， 一个不被这些自私的只在乎自己名利的政客束缚（统治下）的新中国。想象一下，如果允许中国人有创造力、有思想，并有自己独立的思考，那将是一个令人难以置信的强大中国，建立在自由之上的强大中国。”
@@ -147,13 +154,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 【Ukraine Rescue】03/18/22 We have some fellow fighters recovered and back to work again today. After the adjustment and recovery, our follow fighters all back to work energetically. Our rescue operation held by ROLF and NFSC has received compliment and recognition from the local Polish people and international NGOs.<br/><br/>【乌克兰救援】03/18/22 我们今天也有几位战友康复回来归队。大家经过这段的调整，康复以后，我们都精力满满，回到这个工作岗位上。我们这次法治基金新中国联邦的救援行动也得到了波兰民间和国际NGO组织的认可和赞赏。<br/>
 ![img](https://media.gettr.com/group14/getter/2022/03/19/13/5a14bd37-e85c-7879-291b-0da175924b0f/out.jpg)
-
----
-
-`@miles 3/19/2022 1:28 PM (UTC)`
-
-【Ukraine Rescue】03/18/2022 David introduces the NFSC Rescue Operation will focus more efforts on the frontline in Medyka to better enhance security and services. Our shuttle bus service is suspended for the time being and will resume if needed in the future.<br/><br/>【乌克兰救援】03/18/22 大卫介绍新中国联邦救援行动会将更多的力量集中到前线梅迪卡，以便更好的提升安保和服务工作。救援大巴车暂停，根据情况重启。
-![img](https://media.gettr.com/group36/getter/2022/03/19/13/f3814818-007a-a8ff-b6a6-563fa2389e8e/out.jpg)
 
 ---
 
