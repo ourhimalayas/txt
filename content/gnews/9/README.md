@@ -2,41 +2,32 @@
 ---
 
 
-## 欲盖弥彰：美国CDC修改新冠疫情死亡病例数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2197678/)
+## 难以置信：辉瑞公司的文件中伊维菌素已经被列为新冠疗法
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2197691/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+#### 翻译  意大利达芬奇农场  小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-20-alle-10.57.50.png)原文链接：eventiavversinews.it
+与本帖相关文件均来自辉瑞公司12月中旬发布的一批文件。
 
-整理/编辑：文泓
+这是一份“临床概述”文件，“是基于RNA SARS-CoV-2的预防性疫苗的临床数据，由BioNTech和辉瑞公司开发的”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WQA_GXA_0XT9RUPVLMEW6.png)图片来源：The NewYork Times & 雅典娜设计组
+该文件令人惊讶的部分在第17页， 其中列出了当前的治疗方法。
 
+文件中指出，“新冠病毒的临床管理包括多种疗法， 主要推荐用于医院或临床试验环境”。然后他列出了各种药物， 例如瑞德西韦和地赛米松，他说这些药物应该用于治疗严重疾病或医院重症监护。
 
-近日，美国疾病控制与预防中心修改了疫情导致死亡人数的数据，移除了数万此前被登记为新冠疫情导致死亡的病例。其中，约四分之一此前列为18岁以下少年、儿童疫情死亡人数被抹去。
+以下几段列出了临床试验环境中使用的疗法。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-20-alle-11.50.29.png)
+这是什么？在辉瑞文件中， 伊维菌素被列为治疗方法。
 
-3月15日，CDC悄悄地在其数据跟踪网站上做出了这一改变，它在网站上说：“在解决了一个编码逻辑错误后，对疫情死亡数据进行了调整。这导致所有类别的死亡人数统计数据均下降了。”
+该文件的日期是2021年4月。当时事实核查人员正在标出有问题的账户， 并审查删除有问题的账户， 他们不承认是用于新冠病毒的药物。
 
-美国CDC在其网站上承认，它的数据依靠各州和其他司法管辖区中共病毒疫情死亡病例的报告，所以数据并不完整。
+许多人，包括科学家和医疗保健专业人员， 都因为建议可以使用伊维菌素其脸书和推特账户被暂停。
 
-但是，**在推动民众前去接种新冠疫苗时，官员、医生和其他人士，包括那些宣称几乎所有儿童都应该去接种疫苗的人士，却经常引用这些统计数据。**
+然而白纸黑字，辉瑞已经考虑了将伊维菌素作为新冠病毒的疗法。
 
-此前，**美国CDC主任罗谢尔****‧****瓦伦斯基博士公开引用了该系统在2021年11月所公布的疫情死亡总人数。**当时她正在推动一个专家小组提出建议，让CDC建议所有5至11岁的儿童都接种疫苗。
+原文链接：[https://www.eventiavversinews.it/incredibile-nei-documenti-rilasciati-da-pfizer-spunta-livermectina-prevista-come-terapia-covid-19-leggetelo-con-i-vostri-occhi/](https://www.eventiavversinews.it/incredibile-nei-documenti-rilasciati-da-pfizer-spunta-livermectina-prevista-come-terapia-covid-19-leggetelo-con-i-vostri-occhi/)
 
-根据一直在追踪数据更新的乔治亚州居民凯利·克罗纳特的说法，在对数据进行更新之前，疾病控制与预防中心登记，有1755名儿童死于疫情，以及其它年龄段的大约85.1万人死于疫情。
-
-**更新后的数据显示，疾病预防控制中心抹去了416名因疫情死亡儿童的统计数据，此外还删除了其他年龄段因疫情死亡的7.1万人的统计数据，使总数降到略低于78万。**
-
-在截稿前，美国CDC拒绝就此发表评论。
-
-参考链接：[美CDC悄悄修改疫情数据 删24%儿童死亡人数](https://www.epochtimes.com/gb/22/3/19/n13657010.htm)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑、上传：Xiao baige
 
  
 
