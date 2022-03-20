@@ -2,37 +2,26 @@
 ---
 
 
-## MV版Hcoin To the Moon上线101天第37次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198653/)
+## 这个春天有点冷
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2198796/)
 
-3/20/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线101天第37次位列匈牙利iTunes热门音乐视频榜榜首，第52次位列前三名
+**作者**：**意大利罗马达芬奇农场 娜洁仕达**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/S-3.jpg)superiorwallpapers.com
+3月23日北京时间23点33分，将迎来春分这个节气，本该春暖花开，万物复苏，然而中共国的南方武汉等城市将迎来大范围降雨，河北山东等地刚刚飘过大雪。异常气候下，一切都显得没有生机。
 
-* * *
+北半球经历了一个漫长而又寒冷的冬天，本该温暖的天气依旧寒冷，远看俄乌战场上，流离失所的老人孩子，保卫家园的战士，人道救援的志愿者，冰天雪地中依然进行的战争，再看中共国被疫情封控的深圳打工者声嘶力竭的呐喊——要出去工作，要养家糊口，要还贷款！隔离期间跳楼自杀的绝望者，在疫情高压下猝死的90后医生，寒冷的清晨排队等待核酸检测的人们，穿着隔防护服哭着离开父母送去隔离的3岁孩子，香港触目惊心的裹尸袋，这个冬天被曝出的锁链女的故事，还有全世界多少个被中共病毒和疫苗残害的家庭，无不在泣诉着这人世间的悲凉！
 
-[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+这个冬天似乎按下了暂停键，让全世界的人感受不到春天的温暖，有良知的人不禁要问，这个世界怎么了？经历了70年的和平，真地要让这一代人再次品尝战争的滋味吗？
 
-* * *
+文贵先生爆料五年了，那句“世界即将进入黑暗时刻”掷地有声的话语犹在耳边，直到今天，我才真正感受到这句话背后的力量，也真正感受到作为普通人的无奈，眼睁睁地看着两年来中共病毒肆虐全球，毒疫苗杀人，经济下滑，物价暴涨，直到战争打响，作为普通人跟随爆料革命觉醒的我们，内心的无奈和悲凉就如同《铁锁梦》这首歌中唐平女士那声“啊”一样，痛彻心扉却又无力回天。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+我们这些爆料革命的战友，新中国联邦人跟随着文贵先生，5年来奔走呐喊，揭露中共的假恶丑，蓝金黄、3F等计划，我们在媒体上发出正义的呼声，甚至走上了乌克兰前线救援的现场，我们希望用我们的正义和勇敢使更多人觉醒，起来反抗，推翻万恶之源中国共产党！然而我们无法阻止即将到来的疫苗灾难，我们无法阻止战争带来的死亡，我们甚至无法唤醒我们的亲人，或许人真的是痛醒的，不是叫醒的。
+
+这个春天有点冷，乍暖还寒时候，最难将息……
 
 
-[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编辑 发布：意大利罗马达芬奇农场 Roma
 
  
 

@@ -2,33 +2,38 @@
 ---
 
 
-## 樱花FM|中日财经爆：日本一企业联盟将在3月底进行数字货币测试
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2198621/)
+## MV版Hcoin To the Moon上线101天第37次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198653/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本一企业联盟将在3月底进行数字货币测试-1.png)
-据悉，一个企业联盟快的话3月底之前就将在日本国内对一种数字货币的发放和使用进行测试。
+3/20/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线101天第37次位列匈牙利iTunes热门音乐视频榜榜首，第52次位列前三名
 
-这个企业联盟由日本的大型银行、通信公司等70余家企业组成，包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。三家银行都推出了自己的数字支付系统，但仍落后于软银集团旗下的PayPay等科技公司。软银不属于该联盟的一部分。
+* * *
 
-该联盟还包括其他贷款机构，如日本邮政银行、经纪公司和保险公司、以及非金融公司，如日本电信电话（NTT）、日本关西电力 、东日本旅客铁道（JR东日本）。
+[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-据有关人士透露，本次数字货币测试将在福岛县会津若松市和宫城县气仙沼市进行。
+* * *
 
-测试将模拟以数字货币的方式向育儿家庭发放补助的情况，补助金领取人下载专用软件后进行申请，申请一经通过，申请人立即就能以数字货币的方式领取补助。数字货币补助采取购物券的形式，可用于购买育儿用品。当地市政府的工作人员将充当补助金领取人、购物店等角色，对数字货币的方便程度及有关问题进行测试。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-如果这类补助以数字货币的形式进行发放，将提高发放效率，削减地方政府的发放成本，因此相关技术备受期待。
 
-文字版原文：
+[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-| [中日财经爆┃日本一企业联盟将在3月底进行数字货币测试](https://gnews.org/zh-hans/2161495/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

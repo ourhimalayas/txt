@@ -2,12 +2,16 @@
 ---
 
 
-## 英国首相鲍里斯·约翰逊认为普京惧怕乌克兰民主
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198067/)
+## 中共救市徒劳无功 资金逃离大厦将倾
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2198100/)
 
-03/19/2022 英国首相鲍里斯·约翰逊认为对乌克兰的野蛮入侵源于普京惧怕乌克兰民主
+文贵大直播20220320
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿：蚂蚁的城堡（伊甸）
+
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-8.png)
+*发布：Theodosia*
 
  
 
