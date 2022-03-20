@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 12:14 PM (UTC)`
+
+2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势
+![img](https://media.gettr.com/group26/origin/2022/03/20/11/763e9094-bd7f-3d69-5281-306b8af7e6d9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_2 3/20/2022 10:02 AM (UTC)`
@@ -149,13 +156,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 《GTV-真人真事》第46期嘉宾：华盛顿 DC农场  Nicole
 ![img](https://media.gettr.com/group8/origin/2022/03/19/14/4ceac700-4769-188f-36e0-fd025b77f665/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 2:16 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月18日第14天当日救援统计：<br/>巴士救援难民：166人<br/>Medyka救援站接待：约200人<br/>巴士发车：3次<br/><br/>累计救援总计：<br/>巴士救援难民：1838人<br/>Medyka救援站接待：约6386人<br/>巴士发车：36次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 14 - Date: March 18, 2022 :<br/><br/>Refugees Rescued by Bus: 166 people<br/>Medyka Rescue Station Reception: about 200 people<br/>Bus Departures: 3 times<br/><br/>Total：<br/>Refugees Rescued by Bus: 1838 people<br/>Medyka Rescue Station Reception: about 6386 people<br/>Bus Departures: 36 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group42/getter/2022/03/19/14/eda93f33-eb40-1cc7-bfd0-703b6500018b/b751192956d4bdecd9d64f41d3e18494.jpg)
 
 ---
 
