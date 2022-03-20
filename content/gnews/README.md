@@ -15,26 +15,26 @@
 
 ---
 
-### [拜习自俄乌战争以来第一次通话](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [喜悦辣评——第05期](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯海军上尉在乌克兰遇难](/content/gnews/3/README.md)
+### [斯洛伐克开始部署爱国者防空系统](/content/gnews/1/README.md)
  ` Shuizhuyu`
 
-### [3/21/2022 银河快讯:印日首脑声明呼吁停止战争；岸田总理打算出席七国集团首脑会议](/content/gnews/4/README.md)
+### [拜习自俄乌战争以来第一次通话](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [喜悦辣评——第05期](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄罗斯海军上尉在乌克兰遇难](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [3/21/2022 银河快讯:印日首脑声明呼吁停止战争；岸田总理打算出席七国集团首脑会议](/content/gnews/5/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [【转】截至3.20日 俄乌战事汇总（2）](/content/gnews/5/README.md)
+### [【转】截至3.20日 俄乌战事汇总（2）](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [當山川布滿淚痕——音频诗朗诵](/content/gnews/6/README.md)
+### [當山川布滿淚痕——音频诗朗诵](/content/gnews/7/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
-
-### [泽连斯基在对以色列的演讲中寻求帮助](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [香草山翻译部周刊|2022年3月20日第40期](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
