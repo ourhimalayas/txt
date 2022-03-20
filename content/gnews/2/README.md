@@ -2,27 +2,37 @@
 ---
 
 
-## 视频|俄乌战争绝对不可能发生的三件事
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2198592/)
+## MV版Hcoin To the Moon上线101天第37次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198653/)
 
-制作：香草山视频部
+3/20/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线101天第37次位列匈牙利iTunes热门音乐视频榜榜首，第52次位列前三名
 
-在3月17日的大直播中，郭文贵先生表示，俄乌战争有三件事绝对不会发生，分别是普京对乌克兰投降、对中共反戈一击，以及发动核战争。
+* * *
 
-郭先生说，发动核战争是绝对不可能发生的。普京政府即使有这个念头，也无法付诸实施。郭先生比喻说，美国完全有控制俄罗斯打核战争的能力。就比如普京与俄罗斯政府在一座房间内试图放火，美国与世界其他防核武器的国家，已经在该房间的外面布置了多层灭火工具，在太空还有定点灭火器在时刻准备着，只要发现有火苗，就会第一时间机全部扑灭。
+[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-在俄乌战争中，美国只把自己在阿富汗战争和伊拉克战争中用过的一些武器送到乌克兰，就成功地压制了俄罗斯的势头。这已经充分证明了美国的军事实力。
+* * *
 
-发稿：Daxia
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

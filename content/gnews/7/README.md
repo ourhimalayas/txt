@@ -2,20 +2,33 @@
 ---
 
 
-## 歌曲感想（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198553/)
+## 樱花FM|中日财经爆：日本一企业联盟将在3月底进行数字货币测试
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2198621/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-001.jpg)
-*发布：*tianzhihuan
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本一企业联盟将在3月底进行数字货币测试-1.png)
+据悉，一个企业联盟快的话3月底之前就将在日本国内对一种数字货币的发放和使用进行测试。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+这个企业联盟由日本的大型银行、通信公司等70余家企业组成，包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。三家银行都推出了自己的数字支付系统，但仍落后于软银集团旗下的PayPay等科技公司。软银不属于该联盟的一部分。
 
+该联盟还包括其他贷款机构，如日本邮政银行、经纪公司和保险公司、以及非金融公司，如日本电信电话（NTT）、日本关西电力 、东日本旅客铁道（JR东日本）。
+
+据有关人士透露，本次数字货币测试将在福岛县会津若松市和宫城县气仙沼市进行。
+
+测试将模拟以数字货币的方式向育儿家庭发放补助的情况，补助金领取人下载专用软件后进行申请，申请一经通过，申请人立即就能以数字货币的方式领取补助。数字货币补助采取购物券的形式，可用于购买育儿用品。当地市政府的工作人员将充当补助金领取人、购物店等角色，对数字货币的方便程度及有关问题进行测试。
+
+如果这类补助以数字货币的形式进行发放，将提高发放效率，削减地方政府的发放成本，因此相关技术备受期待。
+
+文字版原文：
+
+
+| [中日财经爆┃日本一企业联盟将在3月底进行数字货币测试](https://gnews.org/zh-hans/2161495/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

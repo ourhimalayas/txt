@@ -2,10 +2,10 @@
 ---
 
 
-## 英国首相鲍里斯·约翰逊认为普京惧怕乌克兰民主
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198067/)
+## 俄罗斯声称首次在乌克兰使用了高超音速导弹
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198095/)
 
-03/19/2022 英国首相鲍里斯·约翰逊认为对乌克兰的野蛮入侵源于普京惧怕乌克兰民主
+03/19/2022 俄罗斯声称，它在乌克兰的攻势中首次在战斗中使用了其最新的高超音速导弹。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

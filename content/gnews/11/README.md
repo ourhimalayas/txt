@@ -2,27 +2,19 @@
 ---
 
 
-## 视频|俄乌战争绝对不可能发生的三件事
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2198532/)
+## 歌曲感想（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198553/)
 
-制作：香草山视频部
+#### PPT制作: Qingjing ；玉米地的
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-001.jpg)
+*发布：*tianzhihuan
 
-在3月17日的大直播中，郭文贵先生表示，俄乌战争有三件事绝对不会发生，分别是普京对乌克兰投降、对中共反戈一击，以及发动核战争。
-
-郭先生说，发动核战争是绝对不可能发生的。普京政府即使有这个念头，也无法付诸实施。郭先生比喻说，美国完全有控制俄罗斯打核战争的能力。就比如普京与俄罗斯政府在一座房间内试图放火，美国与世界其他防核武器的国家，已经在该房间的外面布置了多层灭火工具，在太空还有定点灭火器在时刻准备着，只要发现有火苗，就会第一时间机全部扑灭。
-
-在俄乌战争中，美国只把自己在阿富汗战争和伊拉克战争中用过的一些武器送到乌克兰，就成功地压制了俄罗斯的势头。这已经充分证明了美国的军事实力。
-
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
