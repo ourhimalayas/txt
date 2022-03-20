@@ -2,31 +2,32 @@
 ---
 
 
-## 俄罗斯寡头遭受严重损失，推翻普京政权成为当务之急
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2199176/)
+## 国际新闻热点 International News Updates
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2199311/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-据英国《金融时报》报道，随着美国对俄罗斯制裁加剧，俄罗斯商人因害怕其资产被查封，他们正在紧密地与美国地产经济人接洽，希望尽快出售价值连城的房地产项目。
+供稿：9Lights Cici
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场
 
-纽约领先的豪华房地产经纪人多莉·伦茨(Dolly Lenz)接受采访时说，俄罗斯业主只需要在交易过程中尽可能的低调、保密，他们愿意在任何条件下出售他们的房产，哪怕是会遭受严重的经济损失。
+1.北约国家的国家元首和政府首脑已经将俄罗斯在乌克兰开始后不久的袭击描述为”几十年来对欧洲 – 大西洋安全最严重的威胁”。
+The heads of state and government of the NATO states had already described Russia’s attack on Ukraine shortly after its beginning as the “most serious threat to Euro-Atlantic security in decades”
 
-面对愈发严峻的制裁环境，俄罗斯的寡头们并没有坐以待毙，其中一部分已经开始策动对于普京的暗杀行为。2022年3月20日，乌克兰媒体称乌克兰国防星报总局获悉，一群反对总统弗拉基米尔·普京并计划暗杀他的有影响力的人正在俄罗斯商业和政治精英中形成。而联邦安全局局长亚历山大·博尔特尼科夫可能成为普京的继任者。
+2.诺华医药已决定暂停在俄罗斯的所有投资，并停止所有商业营销活动。
+Novartis has decided to suspend all investments in Russia and discontinue all commercial marketing activities.
 
-[https://www.epravda.com.ua/news/2022/03/20/684349/ https://www.pravda.com.ua/eng/news/2022/03/20/7332985/](https://www.epravda.com.ua/news/2022/03/20/684349/%20https://www.pravda.com.ua/eng/news/2022/03/20/7332985/)
+3.在波兰梅蒂卡新中国联邦营救基地晚间有着美妙的钢琴声，暖暖的篝火，浓香的NFSC咖啡，新中国联邦人把美好带给乌克兰难民们，让他们忘却战争的痛苦，全方位的人道关怀和帮助。
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/03/263EB888-874C-477F-A461-91401786D13D.jpeg)
-**更多资讯，更多关注**
+A piano is played beautifully, the campfire is warm and fragrant NFSC coffee fills the night air at the NFSC Rescue Base in Medyka. The new Chinese Federal people bring beautiful life to Ukrainian refugees and let them forget the pain of war with humanitarian care and help.
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+4.The Federal Reserve raised interest rates by 0.25 percentage points, the firtt hike since December, 2018. Fed Chief Jerome Powell signalled hikes at all six remaining meetings this year and also pledged to start shrinking their 8.9 trillion balance sheet at the “coming meeting”.
+美联储宣布加息25个基点，为2018年12月以来首次加息。美联储主席鲍威尔暗示今年剩余的会议中都有可能加息，并表态最快在下次5月的FOMC会议就会开始缩减其8.9万亿美元的资产负债表。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+5.According to the Bloomberg Economics’ model that estimates fair values based on economic fundamentals, Chinese Yuan is one of the most mispriced currencies. It is estimated to be 20.8% more expensive relative to what the fundamentals suggest.
+根据彭博社基于经济基本面预测的经济模型数据显示，人民币是其中最被高估的货币之一，与其经济基本面相比其高估了20.8%。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+6.Financial Times reports that a powerful 7.4 magnitude earthquake hit north-east Japan on Wednesday night has left 4 people dead and 107 injured.
+根据金融时报的消息，北京时间3月16日晚日本东部7.4级的地震，已导致4人死亡107人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,21 @@
 ---
 
 
-## 欧盟掌握中共支持俄罗斯的确凿证据
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198987/)
+## 文贵大直播 3/20 新中国联邦救援不会停 除非战争停止
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2199050/)
 
-作者：纽约香草山 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒3月18日报道，一名欧盟高级官员表示，欧盟领导人掌握了中共向俄罗斯提供军事援助的确凿证据。这名官员警告中共，如果继续交付并支持俄罗斯的军事武器，欧盟将会对中共国采取贸易制裁措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.51.png)
-据媒体本周早些时候报道，美国政府官员也对中共向俄罗斯提供军事装备的行为，发出了类似警告。
+撰稿：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/SharedScreenshot-2.jpg)图片来源 GETTR
+俄乌战争牵动世界，但不管是争论不休，还是各怀心思，多有意无意地落入杀戮的角逐场。唯有新中国联邦，从一开始就毫不犹豫地投入人道国际大救援，以挽救生灵为唯一目标。
 
-这位欧盟官员还表示，欧盟高度关注中俄交易对乌克兰战争的影响。欧盟所有领导人都非常清楚，中共支持俄罗斯的事实，但中共却一再否认。这位欧盟官员认为，只有采取贸易壁垒式的惩罚措施，才能制止中共。
+3月20日文贵大直播，新中国联邦创始人郭文贵先生态度坚决又明确地宣布：新中国联邦乌克兰国际人道援救行动 不会停止，除非战争停止！
 
-参考链接：[EU has ‘very reliable evidence’ China is considering military support for Russia](https://www.politico.eu/article/eu-has-very-reliable-evidence-china-is-considering-military-aid-for-russia/)
+郭先生对整个救援现场存在的问题，毫不隐瞒、毫不客气地进行了尖锐的指陈，要求迅速提升到与新中国联邦国际信誉和实力相匹配的高度。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+文贵先生率领广大新中国联邦人，誓要把救人的行动进行到底，无论面临多大压力，付出多大代价，只有一个目标，救出更多无辜生命。
 
-编辑：文真
-总编：Zion文恩
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+【来源链接】https://gettr.com/streaming/p10y5j870c5
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
