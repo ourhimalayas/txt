@@ -2,23 +2,32 @@
 ---
 
 
-## 莫斯科警告意大利新制裁带来不可逆转的后果
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2193886/)
+## 【G叻睇真D】文貴直播：中共會因烏克蘭戰爭而滅亡
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2194099/)
 
-#### 翻译     意大利达芬奇农场    小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-19-alle-17.05.49.png)图片来源：newsonline.it
-据3月19日罗马askanews报道，欧盟对俄罗斯宣布“全面金融和经济战争”可能会产生“不可逆转的后果”， 这种后果尤其是针对意大利。俄罗斯外交部欧洲事务司司长阿列克谢•帕拉莫诺夫告诉俄新社。
+主播：加拿大溫哥華揚帆農場 – yuyu
 
-帕拉莫诺夫还说：“ 制裁不是我们的选择。我们不希望法国经济部长布鲁诺•勒梅尔 ( Bruno Le Maire ) 宣布对俄罗斯进行“全面经济和金融战争”的观点，意大利也是这一理念的追随者并会导致一系列重大的不可逆转的后果。”
+視頻製作：加拿大溫哥華揚帆農場 – 文所未聞
 
-这位外交官随后补充说，“ 莫斯科从未将能源资源的出口用作政治压力的工具”，并指出“俄罗斯能源公司一直充分履行其义务。他们继续这样做”。
+據3月18日文貴先生蓋特直播透露，美國已為中共準備了一堆毒藥，中共則一定會選擇其中最毒的一種吃掉，任誰都擋不住。中共會因烏克蘭戰爭而徹底滅亡，並且會被消滅的非常狠、非常乾淨。而烏克蘭和台灣將會成為中國人最需要珍惜的朋友。
 
-“鉴于意大利对俄罗斯碳氢化合物的严重依赖达到40%至45%，拒绝几十年来开发的可靠的能源运输机制将对意大利经济和所有意大利人产生极其负面的影响”,帕拉莫诺夫警告说。
+文貴先生還透露，中共在俄烏戰爭問題上，一定會選擇堅決與俄羅斯站在一起，這是中共十八大以來一貫的政策。中共“堅決消滅美帝”的決心是很明確的，絕不會因任何問題而改變。
 
-原文链接： [https://www.askanews.it/esteri/2022/03/19/monito-di-mosca-allitalia-con-nuove-sanzioni-conseguenze-irreversibili-top10\_20220319\_125909/](https://www.askanews.it/esteri/2022/03/19/monito-di-mosca-allitalia-con-nuove-sanzioni-conseguenze-irreversibili-top10_20220319_125909/)
+稍早有媒體報導，本週包括拜登和習近平在內的美中高階官員已經先後兩次會面，但均以雙方未能達成一致意見，會談宣告失敗而告終。儘管美國曾一再警告中共，將為支持俄羅斯武裝入侵烏克蘭承擔嚴重後果。
 
-编辑、上传： Xiao   baige
+視頻鏈接：[https://gettr.com/post/p10tud9d7c8](https://gettr.com/post/p10tud9d7c8)
 
+編輯/發文 – 春雨
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

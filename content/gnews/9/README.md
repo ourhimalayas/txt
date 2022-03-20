@@ -2,12 +2,12 @@
 ---
 
 
-## 新中国联邦人怎么做人（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194030/)
+## 普金会为后代和解（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194195/)
 
 #### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-一-2-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00-10-10-04-二-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

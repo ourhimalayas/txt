@@ -2,24 +2,30 @@
 ---
 
 
-## 英国前首相呼吁为乌克兰设立战争罪法庭
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2193848/)
+## 日本决定下周起结束新冠疫情准紧急状态
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193929/)
 
-**两位英国前首相戈登·布朗和约翰·梅杰呼吁为乌克兰设立单独的战争罪法庭。**
+##### 作者：加拿大温哥华扬帆农场 – 采编：风云小哥、编译撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2166.png)
+据日本【共同社】3月17日报道，随着新感染人数日趋下降，日本政府周四正式决定下周起取消日本新冠病毒准紧急状态的全部限制措施。
 
-作者：dpa, vk/原文发布于2022年3月19日15:43
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-4-2.jpg)图片:俄罗斯总统弗拉基米尔·普京（档案照片：Alexei Druzhinin/Sputnik/AFP）。
+这是日本自1 月 8 日以来首次免除此类措施。首相岸田文雄周三表示，仍会有一个过渡期，以最大程度的保持谨慎，防止感染。
 
-布朗周六对英国广播公司表示，不太可能在海牙国际刑事法院起诉俄罗斯总统弗拉基米尔·普京。莫斯科可以在联合国安全理事会上否决这样的起诉。
+准紧急状态限制措施的解除，也意味着餐馆和酒吧将恢复正常营业。如果公司已采取了防感染措施，政府也将不再要求其在工作场所识别与新冠病毒患者的密切接触者。
 
-在两天内，一份要求设立特别法庭的请愿书已经有75万多人签名，其中包括众多法律专家和来自世界各地的约40位前政府和国家元首。
+新闻来源：[https://english.kyodonews.net/news/2022/03/bc188041dee7-panel-oks-japan-ending-covid-19-quasi-emergency-next-week.html](https://english.kyodonews.net/news/2022/03/bc188041dee7-panel-oks-japan-ending-covid-19-quasi-emergency-next-week.html)
 
-这位工党政治家赞同美国总统乔·拜登的评价，即普京犯有战争罪。（dpa/vk）
+编辑/上传 – 文永
 
-原文链接：[https://brf.be/international/1586145/](https://brf.be/international/1586145/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
