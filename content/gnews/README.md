@@ -60,11 +60,11 @@
 ### [樱花FM|中日财经爆:丰田旗下日本电装公司遭“潘多拉”攻击勒索](/content/gnews/15/README.md)
  ` 樱花FM`
 
-### [樱花FM|中日财经爆：日本一企业联盟将在3月底进行数字货币测试](/content/gnews/16/README.md)
- ` 樱花FM`
-
-### [德尔塔克戎（Deltacron ）组合变种：专家这样说](/content/gnews/17/README.md)
+### [德尔塔克戎（Deltacron ）组合变种：专家这样说](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
+
+### [2022年3月20日郭先生大直播 文字同步精要](/content/gnews/17/README.md)
+ ` 焦點20分`
 
 ### [歌曲感想（一）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`

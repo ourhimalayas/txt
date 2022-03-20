@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 4:04 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
+![img](https://media.gettr.com/group27/origin/2022/03/20/16/9fada700-0785-5e64-800a-e39dac2098fd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/20/2022 1:33 PM (UTC)`
 
 【Ukraine Rescue】03/19/2022 David: We rely on a team process-oriented operation to ensure the safety of the NFSC’s bus rescue through a workflow including registration, screening, roll call, security, check etc. <br/><br/>【乌克兰救援】03/19/2022大卫：我们是靠一个团队流程化作业，通过登记、筛选、点名、安保、检查等环节的工作流程确保新中国联邦巴士救援的安全<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ It is freezing cold on the Polish border, and people who have just escaped from 
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 ![img](https://media.gettr.com/group45/origin/2022/03/19/16/5ef97cb5-a146-f550-ed2e-2e08d1d087df/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 5:20 PM (UTC)`
-
-NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
-![img](https://media.gettr.com/group33/origin/2022/03/19/16/a7d15473-a99f-2f81-a126-b6223cabe66c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
