@@ -143,17 +143,17 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 ---
 
-`@miles 3/19/2022 1:23 PM (UTC)`
-
-【Ukraine Rescue】03/18/2022 David: I learned that some Asian faces showed up here were all sent by the CCP and claiming them as press from Taiwan, or Japanese or Korean. We must ensure the safety and security of our fellow fighters at the frontline and our Medyka site, and we should also demonstrate our professionalism to the world to gain their recognition to the New Federal State of China and Rule of Law Foundation.<br/><br/>【乌克兰救援】03/18/2022 大卫：我们已经发现有中共派来的亚洲面孔的人，自称是台湾媒体，或是日本，韩国人，我们应当保证前線戰友梅迪卡营地的安保和安全，向世界展示我们的专业化，赢得世界对新中国联邦和法治基金的认可<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group4/getter/2022/03/19/13/16b0a94b-1997-512b-6404-2478e79617ec/out.jpg)
-
----
-
 `@miles 3/19/2022 1:10 PM (UTC)`
 
 2022.03.19 早《新中国联邦新闻访谈》国内各“阶级”出路
 ![img](https://media.gettr.com/group28/origin/2022/03/19/13/8aaee504-7d96-fc70-c2ff-9bed728c5b59/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/19/2022 12:46 PM (UTC)`
+
+【Ukraine Rescue】03/19/2022  David tells the thrilling story of how security guard of the NFSC rescue operation discovered and caught a Russian spy who had infiltrated the rescue bus.<br/><br/>【乌克兰救援】03/19/2022  大卫讲述新中国联邦救援行动的安保人员是如何发现并抓住混入救援大巴的俄罗斯间谍的惊险经历。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group20/getter/2022/03/19/12/c5b32e89-53c4-63bd-a5f8-5db579f1013c/out.jpg)
 
 ---
 
