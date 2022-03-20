@@ -2,12 +2,22 @@
 ---
 
 
-## 乔·拜登和习近平在乌克兰战争爆发后首次讨论乌克兰战争
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2196127/)
+## 郭文贵直播音频2022.03.18
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2196266/)
 
-03/18/2022 WION: 乔·拜登和习近平在乌克兰战争爆发后首次相互交谈，讨论乌克兰战争。
+音频提供者:左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/03/db77deaeeaadf94601c75dae84bb7948_500x0.jpg)
+### 视频链接：
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+[https://www.gettr.com/post/p10na9gd4b9](https://www.gettr.com/post/p10na9gd4b9)
+
+### 音频链接：
+
+
+
+
+
+编辑发布：闪电训练
 
  
 

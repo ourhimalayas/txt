@@ -2,20 +2,27 @@
 ---
 
 
-## 七哥与文耀了解前线情况（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195845/)
+## 樱花FM|研究发现中共病毒可导致大脑萎缩、记忆力受损
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2196132/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-840-850-1.jpeg)
-*发布：陶子*
+音频：东京樱花团/战友520
+![](https://lh5.googleusercontent.com/-5Htcz4CSmLb46pPr_Mj18OAEGu1LYr9pmSUROiU8TKL_tFSkCzGQbtB17HdYp1Dco-zPfJ3G5xitny2VRdaaNkgefYmOpKsLXKChu57IWICJNDPGG2e9PKI9HdJ_NigGv9QSk9w)
+英国牛津大学的研究发现，感染中共病毒（新冠病毒Covid-19）有可能会导致大脑萎缩，控制情绪和记忆的区域的灰质减少，同时损害控制嗅觉的脑部区域。科学家们发现，这些影响甚至也出现在感染中共病毒后并不需要送医治疗的患者身上。至于这些影响是否可以部分逆转，或者是否会长期存在，需要做进一步的研究。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+报告指出，强有力的证据表明中共病毒病例中出现与大脑相关的异常。即使是感染后症状较轻微的患者也出了负责注意力脑组织的“执行功能恶化”这些患者大脑萎缩了0.2%到2%。研究人员发现，大脑中受影响最大的区域看起来和嗅觉有关，但是研究人员无法解释这一现象。
 
+这项发表在《自然》杂志研究报告对785名年龄在51岁到81岁的患者大脑变化进行了研究。这些患者都接受了2次脑部扫描，其中有401名感染了中共病毒。第二次扫描在第一次扫描后141天进行。这项研究进行时，阿尔法变体在英国的传播占据主体，也有可能包含感染了德尔塔变种的病患。研究发现一些感染了中共病毒的患者出现“脑雾”或精神浑浊等问题，包括注意力、集中力、信息处理速度和记忆力的损害。
+
+文字版原文：
+
+
+| [研究发现中共病毒可导致大脑萎缩、记忆力受损](https://gnews.org/zh-hans/2156335/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

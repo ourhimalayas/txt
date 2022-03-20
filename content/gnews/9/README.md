@@ -2,35 +2,31 @@
 ---
 
 
-## 中国军方称美国驱逐舰通过台湾海峡是 &#8220;挑衅 &#8220;行为
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196141/)
+## 樱花FM|樱花时政:CCP病毒失控下的中共国
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2196275/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+音频：东京樱花团/战友520
+![](https://lh6.googleusercontent.com/crNdF1456lH7qImsklrGRN0JvTcZlggEL7CJhE6WVinL2wiKmeLI6v0WYfA-tx80K1L62dTjE5oPpj72uanoYC9EoK4QqoRlF225u_uhMqSdtHq8qITPV_3DiQjl2CnEby-1epTA)
+3月12日，13日上午，吉林省召开疫情防控工作新闻发布会通报最新情况，吉林省累计报告本地新冠肺炎确诊病例2052例。按照临床分型为：轻型2025例、普通型27例。
 
-翻译：li yan li
-编辑：朝花夕拾
+目前，吉林省长春市已经实行封闭式管理。在长春市国际会展中心，方舱医院占地15000平方米，分为4个展厅进行建设，总共1500个床位。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647755453522.jpg)图片来源：雅典娜设计组
+与此同时，全国各地均大面积出现感染病例，其中，吉林1412例、山东175例、广东62例、陕西39例、河北33例、江苏23例、天津17例、浙江15例、重庆8例、北京6例、甘肃5例、黑龙江3例、贵州2例、云南2例、内蒙古1例、辽宁1例、上海1例、河南1例湖南1例。
+
+这是中共给出的病例数据，其中山东青岛一地发现超过800例，广东省累计报告中共病毒阳性感染者10428例，其中确诊病例5683例，广东省公安厅副厅长、东莞市常务副市长等6人被免职，冰冷的数字背后是中共对于CCP病毒的完全失控，造成的人道灾难。
+
+愿国人都能醒来看清中共掩盖病毒和所谓的疫苗接种的流氓杀人本质。为未能躲过CCP和毒疫苗的人民难过，因为这绝不是已受害人的选择，想要不被继续奴役，只能消灭中共。
+
+文字版原文：
 
 
-北京：中国军方周六（3月19日）说，美国驱逐舰拉尔夫-约翰逊号3月17日驶过台湾海峡是美国的 “挑衅 “行为，向亲台独立势力发出了错误的信号。
+| [樱花时政┃CCP病毒失控下的中共国](https://gnews.org/zh-hans/2156838/) |   |
+| --- | --- |
 
-中国军方发言人在一份声明中说，这种行为 “非常危险”，并补充说已组织军队监视拉尔夫-约翰逊号的通过。
 
-中国说，台湾是其与美国关系中最敏感和重要的问题。华盛顿与台北没有正式的外交关系，但却是台湾最重要的国际支持者和武器供应商。
-
-中国国家主席习近平周五告诉美国总统拜登，台湾问题需要妥善处理，以避免对中美关系产生负面影响。
-
-新闻链接：[https://www.channelnewsasia.com/asia/chinese-military-says-us-destroyers-passage-through-taiwan-strait-provocative-2575011](https://www.channelnewsasia.com/asia/chinese-military-says-us-destroyers-passage-through-taiwan-strait-provocative-2575011)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
