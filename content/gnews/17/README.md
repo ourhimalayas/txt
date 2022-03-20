@@ -2,29 +2,27 @@
 ---
 
 
-## 独裁者只为个人和家族特权而活
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2199152/)
+## 中共病毒肆虐香港，棺材和殓房已用尽
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2199165/)
 
-作者：纽约磐石农场 在远方
+作者：银河系农场 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月17日的《大直播》中，郭文贵先生表示，俄乌战争体现国家之间综合实力的较量，而习近平与普京二人，却只为个人及其家族特权而活。
+3月18日外媒报道，香港中共病毒大爆发，港共政府采取清零政策，关闭了商店和街头抗议活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-7.jpeg)
 
-郭先生说，俄乌战争的实质是国家之间综合实力的较量，是一个国家对民主、法治、对世界的认知，经济与科技则是第一位及核心的较量。
+目前，香港的剧院、博物馆、学校、健身房和图书馆全部关闭，这恐将迫使人们患上了幽闭恐惧症。港共政府还在推行中共病毒疫苗接种。无论哪一种方式，全封闭隔离或者接种中共病毒疫苗，不但没有控制中共病毒大爆发，甚至导致更多死亡病例。 香港目前的死亡率居世界之最，棺材和停尸房间已经用尽，死去的人的尸体胡乱堆积在医院的病房。
 
-据郭先生透露，近期，普京与习近平一天通话达两三次，彼此相互安慰，幻想着美国衰落、欧洲解体，世界尽归他们二人掌控。但实际上，这是习普二人的私心作祟。
+中共病毒大流行之前，香港人争取自由，走上街头的抗议活动频繁发生。中共最开始就是企图用病毒生化武器来压制香港的民主运动，杀害香港人。自中共病毒大流行以来，港府禁止在公共场合聚集超过四人。目前，无论是在香港本地，或者想要离开香港的人，都要接受严苛的中共病毒政策，包括隔离和清零政策。
 
-普京放不下自己的女儿，以及情妇和私生子女。习近平更是放不下他的私生子、以及其家族成员。对于习近平而言，他的家业很大，变成了“国家”，况且还有14亿可以任意宰割的奴隶。而历史上，所有的独裁者诸如萨达姆、卡扎菲、齐奥塞斯库、斯大林等人，对权力的眷恋都是如此。
-
-而不幸的是，普京与习近平照顾孩子与家人的代价，却是要牺牲乌克兰、俄罗斯和中国老百姓，甚至要试图毁灭全世界。
-
-参考链接：[3/17/2022 文贵直播](https://www.gettr.com/post/p10rbw67ee5)
+参考链接；
+1. [https://gettr.com/post/p10scjwf5f2](https://gettr.com/post/p10scjwf5f2)
+2. [Here in Hong Kong, Covid has surged and we’ve run out of coffins. Please learn from our mistakes](https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：Zion文恩
-审核/编辑：文真   
+审核/编辑：文真  
 校正/发稿：谐趣园
 
  

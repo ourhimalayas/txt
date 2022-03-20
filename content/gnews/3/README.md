@@ -2,34 +2,30 @@
 ---
 
 
-## 福奇警告中共病毒感染率可能上升
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2199508/)
+## 俄罗斯海军上尉在乌克兰遇难
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2199651/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/newswars.com-2.jpg)图片来源：newswar
-国会山报2022年3月18日报道，白宫顾问安东尼·福奇(Anthony Fauci)警告称，虽然在过去两个月里，全美国各地中共病毒感染病例都有所下降，平均每日新增病例总数略高于3万例，但未来几周美国的感染率可能会上升。福奇的预测是基于英国的数据。英国的数据显示病例已经开始略有增加，尽管“重症监护床的使用没有增加，这意味着他们没有看到严重疾病的出现“，福奇称。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-福奇说病例的增加是由于BA.2变种在美国出现上升，并在播客上预测该变种将在未来超过欧米克隆。
-
-美国刚刚开始放松对中共病毒的限制，此前两年的大流行政策包括口罩和社交距离。美国疾病控制和预防中心表示，美国大多数地区不需要在室内戴口罩。
-
-简评：中共是这场病毒和疫苗灾难的罪魁祸首，以福奇为代表的美国卫生机构和世卫组织等共同扮演了帮凶的角色，他们对病毒大爆发具有不可推卸的责任，相信不久的将来病毒真相会大白于天下。
-
-新闻链接： [https://thehill.com/policy/healthcare/598767-fauci-warns-covid-19-infection-rates-likely-to-increase-soon](https://thehill.com/policy/healthcare/598767-fauci-warns-covid-19-infection-rates-likely-to-increase-soon)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/VTQK3CVPXBI4RIJ3ECCBDCVUXI.jpg)
 
 
+图片来源：路透社
 
-编辑/上传 – 云起时
+塞瓦斯托波尔州长周日表示，俄罗斯黑海舰队的一名高级海军指挥官在乌克兰遇难。
 
-* * *
+乌克兰东部港口城市马里乌波尔 (Mariupol) 的战斗中，舰队副指挥官安德烈·帕利 (Andrei Paliy) 上尉在战斗中丧生，州长米哈伊尔·拉兹沃扎耶夫 (Mikhail Razvozhayev) 在消息应用程序 Telegram 上说。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+俄罗斯海军没有回应置评请求。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+塞瓦斯托波尔是俄罗斯黑海舰队的主要基地，位于克里米亚半岛，莫斯科于 2014 年从乌克兰手中吞并了克里米亚半岛。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+简评： 有一名海军指挥官在战斗中丧命。 这就是普京的入侵乌克兰的又一损失。 上尉是帕利是黑海舰队的指挥官。 郭先生在3月20日的直播中已经重点提到了普京培养的接班人莫得韦切夫已经战死。 普京的战争已经以失败告终， 但是普通百姓可能还要付出巨大的代价。 老百姓永远是受害者。
+
+🔗 [https://www.reuters.com/world/europe/russian-navy-commander-killed-ukraine-2022-03-20/](https://www.reuters.com/world/europe/russian-navy-commander-killed-ukraine-2022-03-20/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

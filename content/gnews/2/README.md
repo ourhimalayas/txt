@@ -2,26 +2,19 @@
 ---
 
 
-## 香草山翻译部周刊|2022年3月20日第40期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2199520/)
+## 喜悦辣评——第05期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2199659/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/CN0320-2.png)
-文章仅代表作者本人观点，与Gnews无关
+作者：WLQF
+排版：蚂蚁兄弟
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+新中国联邦人，不畏艰险，逆行而上，挽救生命，可歌可泣，
+新中国联邦人，不畏阻挠，组织有序，前赴后继，感天动地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-19.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/喜悦辣评.jpeg)
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
-
+*发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

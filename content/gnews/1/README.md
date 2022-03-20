@@ -2,23 +2,30 @@
 ---
 
 
-## 泽连斯基在对以色列的演讲中寻求帮助
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2199521/)
+## 拜习自俄乌战争以来第一次通话
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2199669/)
 
-撰稿：西枫westca
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱                  编译撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-226.jpg)*图片来源：The Post Millennial*
+据加拿大媒体【后千禧年】3月18日报道，拜登总统将于周五与中共国主席习近平通话。这是自俄罗斯入侵乌克兰以来，两位领导人首次面对面交谈。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/85eb94c600db12b729e3d3bdd340da27u1.png)图片来源：world.huanqiu.com
-据BBC3月20日报道，乌克兰总统泽连斯基刚刚在以色列议会发表讲话。作为争取全球支持的努力一部分， 他已经在英国下议院、美国国会和德国联邦议院做过视频演讲。
+周一美国国家安全顾问沙利文曾与中共外交部长杨洁篪会面，期间中共表示坚决支持俄罗斯在乌克兰的军事行动，并将提供军事和资金援助。美国也一再警告中共将承担这么做的严重后果。
 
-泽连斯基在演讲中将俄罗斯入侵乌克兰与纳粹德国在二战的行动和言论相提并论。他说，”这是一场全面的战争，旨在摧毁我们的人民，摧毁我们的孩子，家庭，国家地位，城市，文化以及使他们成为乌克兰人的一切。泽连斯基还说，”我们想活下去，但我们的邻居希望看到我们死去”。
+据悉，这是美中双方继周一会谈失败后，一周内进行的第二次美中官员会晤。对此白宫表示：双方“共同同意”本次通话。这是为保持美中之间开放的沟通渠道，美方持续努力的一部分。会谈将讨论两国间竞争、俄乌战争、以及其他共同关心的问题。
 
-泽伦斯基总统呼吁以色列向乌克兰提供武器，并询问为什么它没有对俄罗斯实施制裁。
+新闻来源：[https://thepostmillennial.com/biden-to-speak-with-chinas-xi-jinping-on-friday](https://thepostmillennial.com/biden-to-speak-with-chinas-xi-jinping-on-friday)
 
-他补充说，以色列拥有世界上最好的防空系统，并说”你绝对可以帮助我们的人民，拯救乌克兰人的生命”。他敦促以色列帮助乌克兰人民抵抗俄罗斯军队。
+编辑/上传 – 云起时
 
-**新闻来源：**[**乌克兰战争最新：我们的邻国希望我们死，泽伦斯基告诉以色列国会议员 – BBC新闻**](https://www.bbc.com/news/live/world-europe-60802572)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
