@@ -2,30 +2,32 @@
 ---
 
 
-## 联合国：648万人在乌克兰境内流离失所
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198986/)
+## 多国谴责俄罗斯滥用联合国安理会
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198988/)
 
-作者：纽约香草山信息部- 诺雅
+作者：温哥华扬帆农场—動物農莊裡的小螞蟻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月18日，联合国移民机构发表文件称，联合国人道主义事务协调厅调查显示，自2月24日俄罗斯入侵以来，截至3月16日，乌克兰境内的流离失所者人数为648万。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.43.png)
-据估计，由于安全风险增加、桥梁道路被毁、缺乏资源，或缺少安全地点或住宿等因素，超过1200万人滞留在受战争影响地区，无法撤离。被困人群需要人道主义援助和基本物资，包括食品、水和药品。
+当地时间2022年3月18日上午，联合国安全理事会议中，对于俄罗斯代表宣称发现了美国支持乌克兰生物武器项目证据一事，多国代表谴责俄罗斯滥用联合国安理会，并表示俄罗斯有可能在乌克兰使用生化武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.56.png)
+针对俄罗斯的这些指控，联合国副秘书长兼裁军事务高级代表中光泉说，安理会多国谴责俄罗斯“不配成为常任理事国”。她再次表示，联合国不知道乌克兰有任何此类生物武器计划。
 
-同日，联合国难民署称，开战以来，320多万难民逃离了乌克兰。根据联合国儿童基金会发言人詹姆斯-埃尔德，在3月15日表示，超过150万名儿童已逃离乌克兰。
+美国代表格林菲尔德反驳了俄罗斯联邦的声明。她重申了美国的立场：乌克兰没有生物武器计划，而只是拥有得到美国、世界卫生组织、其他政府和国际机构支持的公共卫生设施。此外，她表示严重关切，俄罗斯最新的指控是为了转移视线，并警告：莫斯科可能对乌克兰人使用生化武器。
 
-评论称，俄罗斯入侵前，乌克兰总人口约4400万，不计死亡人数，至今已经有近2200万人受到严重影响。人道灾难将因战争的持续而加重。
+英国代表认为俄罗斯胡说八道。她认为俄罗斯的所作所为不配成为安理会常任理事国，并敦促莫斯科立即停止对乌克兰的入侵。
 
-参考链接：
-1.[UN: 6.5 million people displaced inside Ukraine](https://www.axios.com/un-internal-displacement-ukraine-russia-eaf8801e-d8ed-4063-a91e-8fd5ce9b45f1.html)
-2.[Microsoft Word – Update on IDP Figures in Ukraine – 18 March.docx](https://reliefweb.int/sites/reliefweb.int/files/resources/update_on_idp_figures_in_ukraine_18_march_eng.pdf)
-3.[UN: Over 3.2 million refugees have fled Ukraine since Russian invasion began](https://www.axios.com/ukraine-refugees-russian-invasion-un-9f8b6e8e-87ed-4a5b-b7e9-d9229b373dca.html)
-4.[UN: 6.5m people displaced inside Ukraine in addition to refugees who have left](https://www.lbc.co.uk/world-news/25fd6d2cd9c64960ba3689adb3ee0fe7/)
+爱尔兰代表敦促莫斯科停止其虚假信息活动，并指出对俄罗斯的核威胁，表示担忧。
+
+法国代表里指责俄罗斯令人不耻和不负责任的虚假宣传行为，他说，俄罗斯联邦近年来一再使用化学武器，包括支持叙利亚阿萨德政权和在英国进行有针对性的暗杀计划。他说俄罗斯利用虚假信息掩盖，有可能计划在乌克兰使用生化武器。
+
+挪威、阿尔巴尼亚等国代表纷纷谴责莫斯科滥用安理会，试图转移人们对其罪行的注意力。并呼吁俄罗斯停止对乌克兰的入侵，他们同样对俄罗斯利用虚假信息，掩盖可能在乌克兰使用生化武器的前景深表担忧。
+
+参考链接：[俄罗斯滥用联合国安理会 转移人们对其罪行的注意力](https://gnews.org/zh-hans/2191738/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：文真
+编辑：Jack Li文阳
 总编：Zion文恩
-审核：文真
+审核：Jack Li文阳
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

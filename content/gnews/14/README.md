@@ -2,28 +2,24 @@
 ---
 
 
-## 历史上的今天 (3月20日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198985/)
+## 欧盟掌握中共支持俄罗斯的确凿证据
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198987/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2003年3月20日，美国、英国等国的军队联合在伊拉克境内发动军事行动，伊拉克战争爆发。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.37.png)
-2001年9月11，美国本土遭到了连番恐怖主义袭击，美国时任总统布什向“恐怖主义”宣战，并将伊拉克、阿富汗等多个国家列入“邪恶轴心国”。
+外媒3月18日报道，一名欧盟高级官员表示，欧盟领导人掌握了中共向俄罗斯提供军事援助的确凿证据。这名官员警告中共，如果继续交付并支持俄罗斯的军事武器，欧盟将会对中共国采取贸易制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.51.png)
+据媒体本周早些时候报道，美国政府官员也对中共向俄罗斯提供军事装备的行为，发出了类似警告。
 
-美国等国指责伊拉克继续拥有和制造大规模杀伤性武器，以及它对包括基地组织在内的恐怖组织给予支持。2003 年 3 月 17 日，布什宣布断绝外交关系，并向萨达姆·侯赛因发出最后通牒，给予 48 小时离开伊拉克，遭到萨达姆拒绝。
+这位欧盟官员还表示，欧盟高度关注中俄交易对乌克兰战争的影响。欧盟所有领导人都非常清楚，中共支持俄罗斯的事实，但中共却一再否认。这位欧盟官员认为，只有采取贸易壁垒式的惩罚措施，才能制止中共。
 
-最后期限过去后约 90 分钟，联军于 3 月 20 日发动了攻击。三周后，伊拉克平民和美国士兵在巴格达的菲尔多斯广场推倒了萨达姆的雕像。联军在短短三周内推翻了萨达姆独裁政权，并占领了伊拉克的主要城市，几乎没有人员伤亡。布什总统于 2003 年 5 月 1 日宣布结束主要战斗行动。12 月 14 日萨达姆被捕，后被审判处决。
-
-2004年6月，权力被移交给伊拉克临时政府。2005年1月，伊拉克人民选出了伊拉克国民议会。该国的新宪法于当年 10 月获得批准。
-
-参考链接：[伊拉克战争（维基百科）](https://zh.wikipedia.org/wiki/%E4%BC%8A%E6%8B%89%E5%85%8B%E6%88%98%E4%BA%89)
+参考链接：[EU has ‘very reliable evidence’ China is considering military support for Russia](https://www.politico.eu/article/eu-has-very-reliable-evidence-china-is-considering-military-aid-for-russia/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：Jack Li文阳
+编辑：文真
 总编：Zion文恩
-审核：Jack Li文阳
+审核：文真
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**

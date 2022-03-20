@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 5:17 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
+![img](https://media.gettr.com/group27/origin/2022/03/20/16/9fada700-0785-5e64-800a-e39dac2098fd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/20/2022 4:04 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
@@ -149,13 +156,6 @@ At the Polish-Ukrainian border in Medyka, refugees enter Poland waiting for buse
 
 It is freezing cold on the Polish border, and people who have just escaped from the bombing become homeless. The New Federal State of China (NFSC) provided warm tents, freshly brewed coffee, soft blankets and sincere greetings. In the midst of the relentless war, the people of the NFSC demonstrated that there is love in the world, and that faith and love unite every peace-loving soul in the world.<br/><br/>在波蘭邊境上，剛逃離炮火的人們，流離失所，天寒地凍。我們新中國聯邦提供了溫暖的帐篷，可口的咖啡，柔軟的毛毯，真摯的問候。在無情的炮火中，新中國聯邦人以實際行動體現了人間有情，與普世價值共同，信仰和愛聯繫世界每一個熱愛和平正義的人。
 ![img](https://media.gettr.com/group26/origin/2022/03/19/18/e6dfb540-a4bc-15ed-59cb-5e1e8b075201/out.jpg)
-
----
-
-`@miles 3/19/2022 5:20 PM (UTC)`
-
-NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
-![img](https://media.gettr.com/group45/origin/2022/03/19/16/5ef97cb5-a146-f550-ed2e-2e08d1d087df/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
