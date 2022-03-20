@@ -2,30 +2,20 @@
 ---
 
 
-## 今日盖特大V推荐 — 盖特视频（GETTR Vision）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2197529/)
+## 中共河北廊坊新建改造3个隔离点
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/2197632/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2215.png)
-盖特链接：[**https://gettr.com/user/ GETTRVision**](https://gettr.com/user/%20GETTRVision)
+作者：意大利罗马达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2022/03/河北廊坊隔离点.jpeg)封面来源：网络图片
+中新网廊坊2022年3月20日报道，记者从河北省廊坊市住房和城乡建设局了解到，为有效应对本轮突发疫情，廊坊市启动实施了杨税务民兵训练基地、安次区高新园安美路新建隔离点和富智康公寓改造隔离点项目，全部建成后将新增隔离房间3854间。
 
-**盖特视频自述：**
+中共为响应伟大领袖习大帝的“动态清零”政策，各施工单位对标看齐“火神山、雷神山速度”，倒排工期、挂图作战、昼夜施工，确保项目有序有力推进。中共在河北廊坊建造隔离点不仅是河北廊坊人的噩梦，更是北京人的噩梦，这不仅让我们想到西安转移性“动态清零”。中共这种集全国之力大搞“方舱医院”和“隔离点”建设的做法，就是要把全国都变成“新疆集中营”。
 
-查看我们全新短视频平台VISION中最热门的片段！
-目前处于测试阶段。 请继续关注以了解它何时可供所有人使用！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2216.png)图片来自盖特
-**盖特视频简介：**
+七哥直播中说，今年5月份将是疫苗后遗症的爆发期，这是欧洲科学家根据毒疫苗第一针注射的时间和毒疫苗在人体内破坏人体免疫力的时间决定的。中共国内疫情已经到了遮掩不住的程度，地方官员因为恐惧瞒报数字，老百姓恐惧不敢检测和就医，再加上病毒变异和试验性疫苗的注射，雪崩现象就出现了。
 
-GETTR Vision 是盖特的全新短视频平台，是与TikTok 和 Instagram的新短视频竞争对手，GETTR Vision非常有趣，没有政治审查！
+新闻来源：🔗[河北廊坊新建改造3个隔离点 将新增隔离房3854间](https://www.chinanews.com.cn/sh/2022/03-20/9706978.shtml)
 
-目前处于测试和功能完善阶段。请在#GETTR 上关注@GETTRVision 并提供您的反馈！
-
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-校审：洛杉矶盘古农场 —心照
-发布：洛杉矶盘古农场 —恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑/校对/发稿：意大利罗马达芬奇农场-儒为*
 
  
 

@@ -2,35 +2,27 @@
 ---
 
 
-## 俄罗斯最大的银行Sberbank获准交换加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
+## 俄军2500具遗体经白俄罗斯运回俄国
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2196593/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-翻译/编辑：小红帽
+据《自由时报》3月19日报道，自2月24日入侵乌克兰后，俄军死伤惨重，有白俄罗斯的医护人员透露，截至本月13日已有2500具俄军阵亡的尸体，从白俄罗斯经由火车和空运返回俄罗斯。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-221.jpg)图为俄军战车（图片来路透社）
 
+《自由时报》援引《自由欧洲电台》报道，在与乌克兰接壤的白俄罗斯地区的居民和医护人员表示，俄罗斯军队愈来愈多的尸体和伤兵被运出乌克兰，然后被送往其他地方进一步治疗或安葬。
 
-根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
+白俄罗斯戈梅利（Gomel）地区临床医院职员称，光是13日就为近100名俄军伤兵进行手术，隔天接收更多俄军伤兵。所有医生包括治疗师及耳鼻喉科专家，都参与手术和治疗，医院充满俄军尸体，走廊和病房里也都是俄军伤兵，到处都是他们的伤痛呻吟声。
 
-俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
+另有医护人员透露，截至3月13日，已有2500多具俄兵尸体从戈梅利地区，透过火车或空运返回俄罗斯。现在该地区主要医院由警察和安全机构看守，如果医师对外谈及医院现况，他们可能会被解雇。
 
-据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
+参考链接：
+[https://news.ltn.com.tw/news/world/breakingnews/3864592](https://news.ltn.com.tw/news/world/breakingnews/3864592)
 
-俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
-
-据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
-
-新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+编辑：幽蘭自得
+总编：老孙
+校对发布：爱放飞
 
  
 

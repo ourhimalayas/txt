@@ -2,12 +2,30 @@
 ---
 
 
-## 珍·普萨基：本次通话中拜登总统强调了美国和其盟友在乌俄危机的立场，并警告中国支持俄罗斯会面临的后果
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2197335/)
+## 今日盖特大V推荐 — 盖特视频（GETTR Vision）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2197529/)
 
-03/18/2022 白宫新闻秘书珍·普萨基：在与中国国家主席习近平的通话中，拜登总统阐明了美国及其盟友在俄乌危机的立场和观点，并警告中国如果对俄罗斯提供物质支持会带来的后果
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2215.png)
+盖特链接：[**https://gettr.com/user/ GETTRVision**](https://gettr.com/user/%20GETTRVision)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**盖特视频自述：**
+
+查看我们全新短视频平台VISION中最热门的片段！
+目前处于测试阶段。 请继续关注以了解它何时可供所有人使用！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2216.png)图片来自盖特
+**盖特视频简介：**
+
+GETTR Vision 是盖特的全新短视频平台，是与TikTok 和 Instagram的新短视频竞争对手，GETTR Vision非常有趣，没有政治审查！
+
+目前处于测试和功能完善阶段。请在#GETTR 上关注@GETTRVision 并提供您的反馈！
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+校审：洛杉矶盘古农场 —心照
+发布：洛杉矶盘古农场 —恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
