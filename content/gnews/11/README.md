@@ -2,20 +2,19 @@
 ---
 
 
-## 郭文贵盖特音频2022.03.19
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2196335/)
+## 扬帆农场默默做事少做宣传（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196531/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/03/out-1-1.jpg)
-### 视频链接：
+#### PPT制作: 小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-902-910-1_1.jpeg)
+*发布：陶子*
 
-[https://www.gettr.com/post/p10rq15972f](https://www.gettr.com/post/p10rq15972f)
-
-### 音频链接：
-
-
-
-编辑发布：闪电训练
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

@@ -2,37 +2,27 @@
 ---
 
 
-## 俄罗斯最大的银行Sberbank获准交换加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
+## 樱花时政┃俄军将数千名乌克兰平民强制转移到俄罗斯境内偏远地区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2196532/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2191.png)[图片来源](https://www.afpbb.com/articles/-/3395192?pid=24314303)
+正受到俄军猛烈攻击的乌克兰东南部的港口城市马里乌波尔（Mariupol）市议会于3月19日发表声明，称一些居民被强行转移到了俄罗斯境内。
 
-翻译/编辑：小红帽
+该声明称，在过去一周里，有数千人被带走。俄罗斯军队将人们从一个有1千多名妇女和儿童避难的体育馆中非法赶走。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
+据说，这些居民的手机显示他们被送到了俄罗斯的偏远地区。
 
+博伊琴科市长谴责了俄罗斯军方的行为，认为这与二战期间纳粹德国强行驱逐犹太人的行为一样残暴。 他说：”在21世纪，人们被强行带往另一个国家，这是不可想象的。
 
-根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
+俄军的疯狂举动令人费解，无辜平民的命运令人担心。
 
-俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
+信息来源：[市民数千人をロシア領へ強制移送か　南東部マリウポリ](https://news.yahoo.co.jp/articles/939aedd1a992a40c177760c4aba6c28b56dca18e)
 
-据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
 
-俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
-
-据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
-
-新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
- 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

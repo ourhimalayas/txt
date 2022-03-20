@@ -2,31 +2,20 @@
 ---
 
 
-## 樱花FM|套在脖子上的枷锁已斑驳，同胞何时醒来
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2196365/)
+## PPT里关于俄乌战争三件事绝不可能发生，再提丢人（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196566/)
 
-音频：东京樱花团/战友520
-![](https://lh6.googleusercontent.com/2LEfWmaar-ERbdJsAnH3SWcb1WJqxMBZ6VLTXWBUyfem6XVgiNt3LuQHM8usKalME6EHrUc5hlk79hMuLHZfM33aKRAGVfiIvLxey4s9t9xcFtISL7UKECiKvNTgv8SQ0scscfvx)
-续吉林市被封后吉林省省会长春市也被封。
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-902-910-2_1.jpeg)
+*发布：陶子*
 
-在被封之前我就告诉在那里的网友朋友，多储备些吃的、喝的、常用药和紧急用现金，别打疫苗，要是打了吃青蒿素保健品，买不到我给邮寄，备好伊维菌素等。他们都嫌我啰嗦，而且根本不相信我说的，居然当中的医生朋友还对我嗤之以鼻，他们都打了三、四针疫苗了。这次突然封城让他们是措手不及。有的还在上班中，有的在外出，有的还在家玩耍就被叫去做核酸，而且所有的交通工具全停了。有的朋友幸运坐朋友的车回家，有的走了一夜才到家。那个医生朋友就惨了，他家离医院很远，而且每天当班，这下根本不是走的问题了，只能被迫住在办公室里了。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
-那天他们折腾得精疲力尽，回家要吃没吃要喝没喝。听说一周只允许一家出去一个人，而且一周两次，一次两个小时。家附近没有超市估计只能喝西北风了，而且宣布封城那一刻起超市的货架上都是空的。接着第二天还要做核酸，而且核酸不是一个人一做，而是10个人一组，10个人彼此不认识，若是查出有问题，这10个人将全被拉走强制隔离，而且家属也要隔离。
-
-当我关心他们表示同情，说共产党政府在剥夺你们的权利时，他们居然美滋滋的说：看我们国家多好呀，及时封城，及时做核酸，而且长春市还建了方舱医院，不像你们国外，该干啥干啥，一感染就上万人，我们在家响应党的号召，马上疫情就得到控制，几天就过去了。
-
-那一刻我好无语，被关在家里，被关在方舱医院等死和那个铁链女有什么区别，可惜他们被那无形的枷锁锁住还浑然不知，还幸灾乐祸，乐在其中。我的心在呐喊，同胞们快快醒来吧，不砸碎枷锁你永远不知道自由，权利是什么。
-
-文字版原文：
-
-
-| [套在脖子上的枷锁已斑驳，同胞何时醒来](https://gnews.org/zh-hans/2158143/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
