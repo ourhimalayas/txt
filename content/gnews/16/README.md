@@ -2,81 +2,40 @@
 ---
 
 
-## 回顾delta的症状及伊维菌素的有效性
-` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/2197086/)
+## 一周疫情、疫苗信息回顾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2197137/)
 
-整理:澳喜农场XINYUAN
-![](https://assets.gnews.org/wp-content/uploads/2022/03/mask-gf34bba897_1280-400x225.png)图片来自网络
-今年年初，在奥密克戎病毒在全球肆虐之际，塞浦路斯的科学家在周末报告了一个据称结合了奥密克戎和德尔塔（Delta）变种基因特征的新毒株，这引发了世界范围的广泛关注，它被该科学家称为“德尔塔-克戎”（Deltacron）。尽管这并非它的正式称呼。
+作者：DC农场 – 火来
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年3月9日至3月16日，除中共国外，全球新增中共病毒确诊患者1227万余例，同比上周增长了8.39 %。此外，本周新增确诊死亡病例超过38578例，同比上周下降了21.1%. 截至3月16日，除中共国外，全球累计接种了79.7亿剂中共病毒疫苗，同比9日的接种数据增长了2.05%。
 
-一些专业人人士也提出了质疑，英国帝国理工学院（Imperial College London）传染病学家汤姆·皮科克（Tom Peacock）博士称，“德尔塔-克戎不是真实存在的，它很可能是由于测序伪影导致的，”世界卫生组织（WHO）新冠肺炎专家克鲁蒂卡·库帕利（Krutika Kuppalli）也在推特上写道。她解释说，可能是实验室污染导致德尔塔样本中出现奥密克戎序列片段。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-43.png)
 
-尽管如此，我们还是以谨慎为上策，再回顾一下delta变种的反应及症状，下面我整理了老王的患病清况，以及如何康复的，供大家参考。
+本周，除中共国外，全球疫情新增感染人数和新增死亡人数持续下降。然而，中共国多地疫情失控。香港地区疫情持续升温，第五波疫情仍在持续。原本用于接收轻症患者的亚博馆场地，已被用作接受重症患者。
 
-一.如何知道自己是否得了delta 病毒
+3月9日，奥地利宣布暂停强制所有奥地利成年人接种疫苗的法律。3月9日，网球巨星诺瓦克·德约科维奇通过其个人推特宣布，由于美国疾控中心CDC的规定，尚未接种中共病毒疫苗的他无法获得美国签证，因此无法参加美国加州和佛罗里达州举办的参赛。3月13日，美国前总统奥巴马宣布自己被中共病毒感染，症状轻微。3月15日，继美国，欧洲之后，巴西卫生部长也宣布，在巴西境内出现“Deltacron” 混合变种病毒感染病例。3月15日，辉瑞正式向美国FDA提交紧急授权申请，寻求获得针对65岁以上老人第四针疫苗的使用许可。3月16日，日本政府决定在21天的最后期限日之前，取消东京、大阪等18个县的“中共病毒”强制防控措施。
 
-当时感觉不对之后，老王联系了三位医生，看到她的症状后，都给出了一样的答案，让她去住院。告诉他不住院会死的。但在马来西亚生活了十几年的老王，知道医院的套路，还是决定自己在家解决。最后吃伊维菌素把自己和老公给救了。老王一再强调，一定要在24小时内确认自己的病情，并作出反应。否则就很危险了，因为这个病毒的智商太高了。
+链接：
 
-A按照老王的描述，此病毒特征如下：
-
-1此病毒在潜伏期是没有症状的。人完全无法自己察觉的。所以也就无法防备。
-
-2在病发时没有任何缓冲期，可能直接在10个小时内危及生命。
-
-3此病毒在病发的时候，会以最快的速度攻击人类的大脑。会使人记忆力大幅减退，连带着严重的智力下降，反应迟钝。比如老王看了一分钟的表都没反应过来是几点，这让她意识到哪里不对了。而当她想去厨房取水喝时，到了厨房却忘记了要做什么，却拿着一把刀出来了。想了好久才想起本来是要喝水的，另外，与人交谈时已经听不懂别人在说什么了，听了后面忘记前面，无法联系起来理解。
-
-老王整理了自己和老公的发病症状，发现俩人很多症状都一样，只不过自己更严重，出现了失去意识、昏厥和呼吸困难的症状。
-
-B她和老公共同的症状是：
-
-1两人潜伏期都是4天
-
-2先是产生了很严重的腹泻，直接是拉水。（两人每餐吃的食物并不一样）
-
-3最重要的是，俩人初期的症状都是从细微到可以忽略不计的喉咙痛开始的，老王描述就好像吃了一碗比较热的东西，喉咙有点热气的痛。或者像你刚唱了高音，喉咙有一点点痒和不舒服。而最后当喉咙痛到极点时，连水都无法吞下。因为病毒的目的是你无法进食、进水、进药。这样病毒在体内会更猖狂。
-
-4还有非常明显的症状是流鼻水。流出的是少量健康的透明鼻水。
-
-5患病期间味觉和嗅觉自始至终是完好的
-
-6记忆力减退，智力下降，这需要自己几天的时间才能判断出来。但家人会第一时间发现你变得傻傻笨笨的了。
-
-7反复的高烧症状。俩人最低都是38.5度。最高都同时达到了39.8度。
-
-而且一天两次以上。当时，她先生吃完最好的退烧药后，就会躺在床上盖上最厚的被子，然后让自己发汗。当退烧醒来后，床垫下面都能拧出水。而老王是烧的都失去意识了。
-
-8他们二人都没出现过咳嗽，唯一的咳嗽仅仅是为了自主的把肺里的粘液吐出来。
-
-9二人都吐出了一样的粘液。老王可能由于吃药及时，病毒还没到肺部，所以只吐出了300毫升。而她先生多达700毫升。
-
-10发病后人是无法进入睡眠的。他老公整整3天3夜无法入睡，而她是整整4天4夜。感觉心血已经熬到了极点。
-
-（按照她以往接触新官病毒患者的经验。她知道新冠患者是能睡觉的。而他们没一分钟是能打盹的，可以说完全无法入睡。）
-
-下面的症状是她老公没有，而她独有的。可能由于先天体质较弱，她的症状比她先生猛烈很多。症状如下：
-
-确诊后老王马上感觉到无法呼吸，好像肺部被保鲜膜裹住一样。也有一种沉重的大石头压在胸口的感觉，于是她只能趴着，以缓解呼吸困难的症状。
-
-第二天病发时，她的体温降到了很冰冷的状态。于是恍惚中她穿上了最厚的衣服趴在床上，一直处于一种昏厥的状态。好像全身被打了麻醉。推算大概昏迷了一个半小时。苏醒后就开始了高烧。
-
-另外，她判断平日的身体素质不一样，恢复期也不一样。他老公先天体质非常好，7月31号确诊，14天后痊愈，身体基本完全恢复正常。而老王确诊的比他老公晚了2天，但到现在20多天了还没完全康复，还是不停的流粘液。
-
-二.如何用药
-
-得病初期他们服用了双黄连和莲花淸瘟，发现一点效果也没有。医院开的抗生素对他们也是没有任何效果的，包括中药也吃了，都没起到任何效果。最后俩人抱着自杀的心态吃了市面上争议很大的伊维菌素，没想到反而活了过来。
-
-记录到这里，我发现omicron和delta病毒都会对大脑神经有损害，而且伊维菌素对这两种病毒都有特效。因此，我认为最重要的是准备好伊维菌素和退烧药，平日多加强身体的锻炼，提升自身免疫力，如果发现身体有否上述反应或感觉哪里不对，争取24小时做出判断。及时与医生联系，正确的服用伊维菌素。
-
-最后希望每个人都能远离各种病毒，安然度过这场劫难。
-
-参考链接: youtube 快乐的老王 频道
-
-[德尔塔克戎：塞浦路斯发现德尔塔和奥密克戎混合毒株？到底怎么回事](https://www.bbc.com/zhongwen/simp/science-59934992)
-
-编辑发布:XINYUAN
-![](https://assets.gnews.org/wp-content/uploads/2022/03/logo正版澳喜2-11.jpeg)
+- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-09..latest&amp;country=~World+excl.+China)
+- [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-09..latest&amp;country=~World+excl.+China)
+- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-09..latest&amp;country=~World+excl.+China)
+- [Austria suspends mandatory Covid vaccination law](https://www.theguardian.com/world/2022/mar/09/austria-suspends-mandatory-covid-vaccination-law)
+- [New COVID-19 ‘deltacron’ variant confirmed in Brazil](https://asia.nikkei.com/Spotlight/Coronavirus/New-COVID-19-deltacron-variant-confirmed-in-Brazil)
+- [Barack Obama says he tested positive for COVID-19](https://www.cbsnews.com/news/barack-obama-tests-positive-covid-19/)
+- [【独自】政府、「まん延防止措置」全面解除の方針](https://news.yahoo.co.jp/articles/7a4743d887c782803d01dc7427d09eaadb59f02e)
+- [Pfizer and BioNTech seek authorization of second coronavirus booster shot for people 65 and older](https://www.washingtonpost.com/health/2022/03/15/pfizer-second-booster-shot/)
+- [BREAKING: Biden Admin Denies Former World No. 1 Tennis Champ Novak Djokovic’s Access to Country Due to Vaccine Status — But Opened Border to 2 Million Unvaccinated Illegal Aliens in Last Year](https://www.thegatewaypundit.com/2022/03/breaking-biden-admin-denies-former-world-no-1-tennis-champ-novak-djokovics-access-country-due-vaccine-status-opened-border-2-million-unvaccinated-illegal-aliens-last-year/)
+- [While I was automatically listed in the @BNPPARIBASOPEN and @MiamiOpen draw I knew it would be unlikely I’d be able to travel](https://twitter.com/DjokerNole/status/1501682656483893249?s=20&amp;t=rbSCDw2qH9fFyWZ2R2yP2Q)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：飞虹
+编辑：文恩
+审核：文恩
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

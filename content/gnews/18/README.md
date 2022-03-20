@@ -2,20 +2,29 @@
 ---
 
 
-## 这就叫：“新中国联邦NFSC咖啡”
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197063/)
+## 新中国联邦乌克兰救援行动仍在继续
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2197135/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1--scaled.jpeg)
-*发布：陶子*
+作者：纽约香草山农场 – 木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-19.jpg)
 
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+
+链接：
+
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

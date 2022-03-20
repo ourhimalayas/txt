@@ -2,38 +2,36 @@
 ---
 
 
-## 普京透露与乌克兰的六个“停火条件”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2197328/)
+## 近日全球粮食大涨，墙内居民如何做好“保卫战”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2197460/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：两万五，爆大料
+![](https://lh3.googleusercontent.com/1DC27TKA3Oiq1KzijTYlBmbHrWIVgEBkZXhxwAYEX24uV-YY2uZ4HTRC9bU39o-QM0k7rRZ42C3Uo8Yz2tgiJ_J41W9UmsZo9vPuSoMtgTw9ejnJneZuF5wOm6YZfWMXTt88JC81)
+（图片来自网络）
 
-整理：gardeniahu
-编辑：围剿维尼熊
+根据联合国粮农组织数据，“俄罗斯是全球最大的小麦出口国，乌克兰是第五大小麦出口国。它们提供了全球19%的大麦、14%的小麦和4%的玉米，占全球谷物出口的三分之一以上。”俄乌战争爆发后，全球小麦供应就出现紧张态势。截止本周CMOT小麦期货已经从800点涨到1060点，而且最高一度攀升至1363点（图1）。此后，小麦期货价格虽有所回落，但仍保持在高位。在俄乌战争爆发后对墙内老百姓会如何影响，本文进行分析。
+![](https://lh3.googleusercontent.com/0VRvl6CxzC9vvmERD83K9eudMwemZonwCXWiJFeL3JYJRuZHDILEMQeg9dMUnJ6fgEA9khoiqV82mqTkG2kPcuxnZHGNuRV8_LR5uB1vHMIODy6-DfxlJtVsiP-aBO4R3RB3DJLh)
+图1小麦期货价格
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647755453522.jpg)图片来源：雅典娜设计组
+先来看看近期粮食相关新闻。3月18日，扩种大豆油料工作推进电视电话会议在京召开。中共国务院副总理胡春华强调，要深入学习贯彻习近平总书记关于提高大豆油料生产的重要指示精神，采取过硬措施，增加大豆种植面积，因地制宜扩大油料作物生产。近日高盛集团表示，航运中断、购进成本飙升以及对乌克兰新季种植前景的担忧，使得全球谷物市场势将面临1970年代以来的“最严重冲击”。
 
+从数据分析，目前全球大约有50个国家依赖从俄罗斯和乌克兰进口以保障本国30%或以上的小麦供应。许多欧洲国家超过50%的肥料供应来自俄罗斯。世界粮食计划署已经发出警告，2022年将是灾难性的饥饿之年。联合国秘书长古特瑞斯说，“鉴于俄乌战争，世界各国必须采取行动，以防‘全球粮食体系崩溃而导致饥荒”。
 
-根据大纪元3月20日讯，自俄乌战争爆发以来，土耳其试图将自己定位为俄乌之间的中间人。
+在来看看各国的应对措施。匈牙利正在禁止粮食出口。摩尔多瓦亦从本月起暂时停止了小麦、玉米和糖的出口。乌克兰宣布，在今年年底之前，禁止包括大麦、糖和肉类在内的多种农产品出口。
 
-土耳其《自由报》（Hurriyet）周六（3月19日）刊登的采访中，土耳其总统发言人兼顾问易卜拉欣‧卡林（İbrahim Kalin）表示，总统埃尔多安在与普京通话中，提议在土耳其接待普京和乌克兰总统泽连斯基，以促进谈判，结束战争。
+这可以看出全球的粮食危机已经到来，对于墙内老百姓来说，目前最重要的是在加准备粮食，比如真空包装的大米，面粉，粮油等，一定要准备半年年以上。因为当攻击台湾那一刻到来的时候，墙内必定实施粮食配给，很多人将会买不到粮食，战友们切记切记！
 
-尽管泽连斯基多次表示，准备与普京会面，但卡林表示，普京在与埃尔多安的通话中提出了在俄乌进行领导层谈判之间需要解决的几个问题。
+参考链接
 
-卡林还告诉《自由报》，普京提出的条件之一是乌克兰要保持中立，放弃加入北约；二是，依据奥地利中立模式进行裁军和相互安全保障；三是俄方所说的“去纳粹化”进程；四是消除在乌克兰广泛使用俄语的障碍。据了解，有关前四条已经取得了一些进展，但现在说已经达成全面协议或即将签署协议还为时过早。
+[联合国秘书长警告：各国要为核战和大饥荒做好准备！](https://view.inews.qq.com/a/20220319A07MWJ00)
 
-但是，普京提出的另外两个要求是乌克兰难以接受的，一个是承认对克里米亚的吞并，另一个是承认乌克兰顿巴斯地区的两个“所谓”共和国。
+[“欧洲粮仓”沦为战场，俄乌冲突会给全球粮食安全带来怎样的冲击？](https://news.sina.cn/gj/2022-03-18/detail-imcwipih9273498.d.html)
 
-埃尔多安敦促普京，必须使停火成为永久性的。就某些问题达成协议可能需要领导人之间的会晤。
+*审核：*文筝
 
-参考链接：[与乌克兰停火 普京提六个条件](https://www.epochtimes.com/gb/22/3/19/n13658481.htm)
+*发布：*yin
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://lh6.googleusercontent.com/w8LMlCAeYCCPuKxveGdvcyeqg1Dd6HHwfVuUxJ34hpaMbTL0LD8zVPo5ACa3FuktSvFOIcmRQ-dNekv9ZFiBBUkbYOsSDApxh1ol6EeU7ac8c05cmsznH-u-3PJcLeMP0sErzQ3W)
 
  
 

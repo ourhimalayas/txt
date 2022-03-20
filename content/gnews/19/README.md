@@ -2,19 +2,12 @@
 ---
 
 
-## 自强才能被帮助（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197049/)
+## 战斗室：中共国在为俄国提供资金担保和军事设备援助
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2197067/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-950-1000-2_2.jpeg)
-*发布：陶子*
+03/18/2022 俄罗斯情报专家丽贝卡·科夫勒相信中共国在为俄国提供大规模的资金担保和军事设备援助。她不相信拜登会与习近平达成合作。在拜登领导下的美国正在丧失市场对美元作为国际交易储备货币的信心。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
