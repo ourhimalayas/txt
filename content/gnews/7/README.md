@@ -2,12 +2,12 @@
 ---
 
 
-## 打台湾是灭共第三道大门（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198493/)
+## 歌曲感想（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198553/)
 
-#### PPT制作: WinterGuo ；开智则立
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10：30-10：31-002.jpg)
+#### PPT制作: Qingjing ；玉米地的
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-001.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

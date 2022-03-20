@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯开始感受到制裁对其经济的影响
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198023/)
+## 英国首相鲍里斯·约翰逊认为普京惧怕乌克兰民主
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198067/)
 
-03/19/2022 半岛电视台：俄罗斯开始感受到制裁对其经济的影响
+03/19/2022 英国首相鲍里斯·约翰逊认为对乌克兰的野蛮入侵源于普京惧怕乌克兰民主
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

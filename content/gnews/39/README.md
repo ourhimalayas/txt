@@ -2,36 +2,38 @@
 ---
 
 
-## 俄罗斯最大的银行Sberbank获准交换加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
+## 中共警察暴力抓捕未核酸检测男子
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2196824/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山农场 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月19日，据盖特消息，中共国疫情多地爆发，防疫人员和警察强制居家隔离人士核酸检测。以下是多个视频的文字叙述：
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-20-at-7.37.48-PM.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
+- 一位广东深圳男子在家居住未出，被地方人员撕开封门条幅强行抓走。原因竟是十几天没有核酸检测记录。该男子在解释没有做核酸是不违法的情况后，被防疫人员蛮横打断’构成违法了’。
 
 
-根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
+- 四个穿防护服人员五个警察及一个女性工作人员，闯入一间民宅将一男子按在地上，男子反抗后被赤着双脚手臂反剪带出楼房。画面中男子口音不详，但有着普通话警察口音讲到，要人和该男子老婆电话联系。3.19日盖特消息，中共国疫情多地爆发，防疫人员和警察强制居家隔离人士核酸检测。
 
-俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
 
-据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
+- 一位广东深圳男子在家居住未出，被地方人员撕开封门条幅强行抓走。原因竟是十几天没有核酸检测记录。该男子在解释没有做核酸是不违法的情况后，被防疫人员蛮横打断’构成违法了’。
 
-俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
 
-据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
+- 四个穿防护服人员五个警察及一个女性工作人员，闯入一间民宅将一男子按在地上，男子反抗后被赤着双脚手臂反剪带出楼房。画面中男子口音不详，但有着普通话警察口音讲到，要人和该男子老婆电话联系。
 
-新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
 
-发布：tianzhihuan
+参考链接：
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+1. [广东深圳，管控区男子居家十几天未做核酸，面对ccp警察上门拒不配合，“我不出门犯什么法了？](https://gettr.com/post/p10pbu641fc)
+2. [在中国，如果你不每天做强制性的Covid测试，警察就会上门来逮捕你…..](https://gettr.com/post/p10qsrb24b3)
 
+
+![此图像的alt属性为空；文件名为March-1-4.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

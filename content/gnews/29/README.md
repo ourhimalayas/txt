@@ -2,28 +2,52 @@
 ---
 
 
-## 乌克兰著名半导体物理学家被俄军杀害
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2197861/)
+## 7·24系列——入侵乌克兰后丧生的俄罗斯将军们
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2197924/)
 
-翻译：SugarPup （酷翻组）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0x0-1.jpg)Kladko was born in the village of Ozero, in western Ukraine, in 1957. 
-NASU
-今年65岁的乌克兰著名物理学家克拉德科（Vasyl Petrovych Kladko ），在俄罗斯军队3 月 13 日对乌克兰首都基辅郊区的伊尔平市市民开火后死亡。克拉德科死亡的信息是由乌克兰国家科学院 (NASU) 在本周早些时候透露的。
+**整理：**雅典娜情报组（翼族）
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/03/methode_times_prod_web_bin_1b7ee952-a52d-11ec-a03b-e2dc3fd8780f.jpg)图片来源：thetimes.co.uk
+自2022年2月24日俄罗斯入侵乌克兰以来，已有五名将军丧生，其中最高军衔是中将（两星）。
 
-他最著名的工作是使用高分辨率 X 射线衍射（X 射线束穿过材料时散射的方式）来查找非常薄的晶体结构中的缺陷，例如在那些微芯片、二极管和晶体管中使用的半导体。半导体是一种不能像真正的导电材料（如铜）那样导电的材料，但比绝缘材料（如橡胶）的导电性更好。半导体位于电导谱的中间位置，因此得名。它们通常是固态时具有晶体结构的材料，例如硅。容纳电路和其他组件的微芯片的扁平底座是半导体。
+苏联解体后，俄罗斯继承了苏联的军衔制度，只是对徽章和制服略微进行了修改。目前俄罗斯军衔分两种：陆军军衔和海军军衔，空军也同样采用陆军军衔。高级将领军衔从上到下依次为元帅（Marshal）、总将（Army General）、上将（Colonel General）、中将（Lieutenant general）和少将（Major General）。
 
-由于市场对更小、更强大、更复杂的微芯片的需求不断增长，克拉德科的工作尤其重要。电子元件的制造商需要微芯片具有能够在小于一微米的微小尺度上控制材料的物理和化学特性。克拉德科通过使用 X 射线衍射，找到了能够非常详细地观察非常小、非常薄的晶体材料层的方法。
+最早被公布死讯的将军是安德烈·苏霍维茨基（Andrey Aleksandrovich Sukhovetsky），俄罗斯第41集团军副军长，少将军衔，此前曾参与俄罗斯军事干预叙利亚内战，以及2014年俄罗斯吞并克里米亚行动。俄罗斯媒体和官员于2022年3月3日报道了他的死讯。
 
-自 2004 年以来，克拉德科一直在带领乌克兰国家科学院的半导体材料和系统结构分析系。除此之外，他还同时担任乌克兰和国际上几本物理学期刊的编辑。他于 2007 年获得了乌克兰国家科学技术奖，并在此后的几年中获得了许多其他重大奖项。
-
-大家知道，克拉德科一直在帮助他的妻子和孙子撤离被围困的城市。当俄罗斯军队进入时，克拉德科的妻子和孙子们已经完全撤退了，但由于某种原因，他自己并没有离开。目前尚不清楚他具体的死因。具有讽刺意义的是，克拉德科在1986 年获得博士学位的同年，曾被前苏联评选为“苏联的发明家”。
-
-新闻链接：[Russian Forces Killed A Well-Known Semiconductor Physicist In Ukraine](https://www.forbes.com/sites/kionasmith/2022/03/19/russian-forces-killed-a-well-known-semiconductor-physicist-in-ukraine/?sh=5e2fa785700b)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/andrei-sukhovetsky.jpg)ibtimes.sg
 
 
+其次是维塔利·格拉西莫夫（Vitaly Petrovich Gerasimov），第41集团军参谋长，少将军衔，据称2022年3月7日在哈尔科夫外阵亡。此前曾参与第二次车臣战争、俄罗斯军事干预叙利亚内战、2014年俄罗斯吞并克里米亚战争等。美国CNN网表示，它尚未独立核实格拉西莫夫的死因，美国官员也未证实这一点。总部位于荷兰的开源情报（OSINT）事实核查组织Bellingcat表示，它已通过访问乌克兰截获的俄罗斯通讯以及“俄罗斯消息来源”确认其死亡。
 
-审核校对：Barry Jack
-上传排版：F
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/g8b7sadu92m81.jpg)SocialGrep
+
+
+四天后，俄罗斯第29集团军军长安德烈·科列斯尼科夫（Andrei Borisovich Kolesnikov，少将军衔）成为第三位在乌克兰阵亡的俄罗斯将军，该消息得到北约官员的证实。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FNk40aVXwAIaSKF.jpg)Twitter
+
+
+3月15日，乌克兰官员称第四位俄罗斯少将奥列格·米捷耶夫（Oleg Yuryevich Mityaev）死于乌克兰马里乌波尔的围城战斗中。奥列格·米捷耶夫是俄罗斯陆军第150摩托化步兵师的指挥官。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Oleg-Mityaev-1.jpg)Daily News Catcher
+
+
+3月18日，俄罗斯中将安德烈·莫德维切夫（Andrey Nikolayevich Mordvichev）在Chornobayivka机场的一次空袭中丧生，成为第五位在入侵中阵亡的将军，也是迄今为止俄乌战争中军衔最高的伤亡人员。但俄罗斯方面尚未证实他的死讯。莫德维切夫是俄罗斯南方军区第8总集团军的指挥官。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-16-1.jpg)Clicker
+
+
+据消息人士称，大约有20名俄罗斯将军被部署到乌克兰前线，这些将军被推到比往常更靠近前线的地方以提高俄罗斯士兵的士气，这也表明俄罗斯军队的糟糕表现使得高级军官为实现军事目标而将自己置于危险之中。
+
+而俄罗斯将军陆续阵亡的原因很可能是俄罗斯军队所存在的安全漏洞，包括使用不安全的通信，被乌克兰军队截获，进行地理定位后遭到精准打击。而乌克兰武装部队的策略也是特意寻找俄罗斯高级官员进行攻击，擒贼先擒王。多行不义必自毙，俄罗斯的不正义战争导致军队普遍士气低落，这使得俄罗斯高级军官不得不亲自在前线督战以发挥更大的作用，同时也让自己成为了普京罪恶战争的牺牲品。
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
