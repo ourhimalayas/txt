@@ -2,11 +2,11 @@
 ---
 
 
-## 乌克兰国际人道主义救援
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2197716/)
+## 架起生命之桥
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2197745/)
 
 出品：华盛顿DC农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7U1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/7EN1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/7U2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/7EN2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8.3-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/8.2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/8.1.png)
 *发布：Theodosia*
 
  
