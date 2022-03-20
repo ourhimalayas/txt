@@ -2,12 +2,12 @@
 ---
 
 
-## 俄乌战争的挑战在哪里？（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196706/)
+## 中共与天斗与地斗与人斗的下场（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196785/)
 
-#### PPT制作: WinterGuo ；开智则立
+#### PPT制作: 0-0 ；rmrf
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-902-910-3_3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-910-920-2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

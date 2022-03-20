@@ -2,12 +2,12 @@
 ---
 
 
-## 俄乌战争的挑战在哪里？（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196650/)
+## 香港金融市场接近崩盘，香港疫苗灾难爆发（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196773/)
 
-#### PPT制作: WinterGuo ；开智则立
+#### PPT制作: 0-0 ；rmrf
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-902-910-3_1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-910-920-2_2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
