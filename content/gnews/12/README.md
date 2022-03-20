@@ -2,37 +2,34 @@
 ---
 
 
-## 有声|面对制裁 俄罗斯无奈应对
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2194559/)
+## 美国官员：可靠消息称俄罗斯间谍头目被捕
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2194641/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月11日，国外媒体报道，一些俄罗斯人为了躲避制裁，为自己的财富寻求一个安全的避风港，正在使用加密货币投资阿联酋的房地产，还有一些人则希望利用那里的公司将他们的虚拟货币转换成硬通货，并藏匿在迪拜。为此，阿联酋的加密货币公司收到了大量变卖数十亿美元虚拟货币的请求。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-33-scaled.jpg)
-迪拜是海湾地区的金融和商业中心，也是一个日益壮大的加密货币中心，长期以来一直吸引着世界上的超级富豪。俄乌战争爆发以来，阿联酋拒绝在西方盟友和俄罗斯之间站队，这向俄罗斯人表明，他们的钱在迪拜是安全的。
+翻译：冰糖葫芦喵
 
-同时，俄罗斯发动战争引起的西方盟友制裁已经对俄罗斯产生了方方面面的影响。3月15日，评级机构惠誉国际曾表示，俄罗斯威胁用卢布支付美元债券，将可能导致实质性的主权违约。如果发生，将是布尔什维克革命以来俄罗斯的第一次国际债务违约。3月16日，俄财政部长表示，已经对到期美元债券利息支付进行了处理，付款指令也已发送给通常处理此类交易的美国银行，但由于存在现金无法通过的风险，无法保证投资者能收到。
+编辑与校对：灭共文明、冰糖葫芦喵
 
+《华尔街日报》3月19日报道，**一名美国官员称有可靠消息显示，负责乌克兰事务的俄罗斯联邦安全局(FSB)指挥官已被软禁。这表明了俄罗斯入侵乌克兰战事基本停滞。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯国防部-e1647741453890.jpg)俄罗斯国防部建筑外观（图片来源：华尔街日报）
+据报道，这名美国官员透露，**俄罗斯情报部门和国防机构内部已经开始相互指责，**莫斯科本以为会以闪电式**占领乌克兰首都，反而使其陷入尴尬的泥沼，并为此付出了高昂的代价。**
 
+俄罗斯调查记者索尔达托夫(Andrei Soldatov)说，**普京可能在指责俄罗斯联邦安全局没能像他预期的那样让乌克兰政府迅速垮台。**
 
-文字版原文：[面对制裁 俄罗斯无奈应对](https://gnews.org/zh-hans/2191481/)
+报报道，**正在接受调查并被软禁的俄罗斯联邦安全局官员是陆军中将**、谢尔盖·贝塞达(Sergei Beseda)**是俄罗斯情报机构第五情报局(Fifth Service)的负责人**，第五情报局也被称为作战信息与国际通信局。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+**俄罗斯联邦安全局(FSB)前局长普京帮助建立了第五情报局(Fifth Service)。**第五情报局实际上是FSB的对外情报部门，主要负责内部安全。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这名美国官员在接受采访时还说，俄罗斯联邦安全局和俄罗斯国防部(Russian Ministry)之间也发生了争吵。这两家机构是负责准备2月24日入侵行动的主要政府部门。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/基辅幼儿园被炮击.jpg)乌克兰基辅一幼儿园被炮击成废墟（图片来源：华尔街日报）
+本月早些时候，美国中央情报局局长伯恩斯(William Burns)对美国国会说，**普京计划在两天内占领乌克兰首都基辅，**这意味着普京预计阻力会降到最低。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**相反，俄罗斯军队遭遇了乌克兰的猛烈反击**，**他们的地面推进本周陷入停顿，**伤亡人数不断增加。乌克兰政府表示，**已有四名俄罗斯将军死亡。**
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+据美国政府的一些计算估计，**在战斗中死亡的俄罗斯士兵多达7000人。**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+新闻来源链接：
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Reported Detention of Russian Spy Boss Shows Tension Over Stalled Ukraine Invasion, U.S. Officials Say – WSJ](https://www.wsj.com/articles/reported-detention-of-russian-spy-boss-shows-tension-over-stalled-ukraine-invasion-u-s-officials-say-11647687601)
 
  
 

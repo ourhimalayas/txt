@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 2:32 AM (UTC)`
+
+
+![img](https://media.gettr.com/group22/origin/2022/03/20/02/c11636d5-f78a-89cc-775d-edee77fda694/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/20/2022 1:18 AM (UTC)`
 
 2022.03.19晚 《新中国联邦新闻访谈》国际媒体对新中国联邦乌克兰人道救援的关注和反应   乌克兰网络通讯给我们的提示   香港中共病毒激增 棺材告急   西藏歌手被自焚 唤醒体制内人觉醒
@@ -147,13 +154,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 2022.03.19 早《新中国联邦新闻访谈》国内各“阶级”出路
 ![img](https://media.gettr.com/group28/origin/2022/03/19/13/8aaee504-7d96-fc70-c2ff-9bed728c5b59/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/19/2022 12:46 PM (UTC)`
-
-【Ukraine Rescue】03/19/2022  David tells the thrilling story of how security guard of the NFSC rescue operation discovered and caught a Russian spy who had infiltrated the rescue bus.<br/><br/>【乌克兰救援】03/19/2022  大卫讲述新中国联邦救援行动的安保人员是如何发现并抓住混入救援大巴的俄罗斯间谍的惊险经历。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group20/getter/2022/03/19/12/c5b32e89-53c4-63bd-a5f8-5db579f1013c/out.jpg)
 
 ---
 

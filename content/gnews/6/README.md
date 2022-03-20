@@ -2,19 +2,12 @@
 ---
 
 
-## 香港人很真诚，香港会很美好（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194600/)
+## 中共党内大多数人支持打台湾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2194765/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-50-11-00-01-二-scaled.jpeg)
-*发布：陶子*
+台灣寶島農場
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+很难想象党内绝大多数人支持打台湾，但也有些人敢说实话不要打台湾，还有对俄罗斯这个事情上当内有些人认为赶快离开危险的中俄关系和俄乌战争，但绝大多数人选择沉默、冷漠、懦弱和自私，非常清楚的是，习太阳一定会打台湾。
 
  
 
