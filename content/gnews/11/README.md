@@ -2,25 +2,16 @@
 ---
 
 
-## 香草山翻译部周刊|2022年3月20日第40期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2199520/)
+## 为了孩子的微笑
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2199822/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/CN0320-2.png)
-文章仅代表作者本人观点，与Gnews无关
+来自新中国联邦的志愿者正在尽一切可能让乌克兰儿童的脸上露出笑容，让这些孩子忘却战争带来的伤痛，希望他们早日与家人团聚
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+视频制作：文小小
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-19.jpeg)
+文案：法治萌芽
 
-**更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
+发表：Shuizhuyu
 
  
 

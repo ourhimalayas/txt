@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 10:18 PM (UTC)`
+
+3/20/2022 Miles Guo: Lieutenant General Andrey Mordvichev, who was killed in the Russia-Ukraine war, was the candidate for the next Defense Minister of Russia. What did he have to do with the CCP? Soviet military commanders like Vasily Chuikov were not only capable of winning battles, but also ended up decently. In contrast, all the CCP generals share the same fate - “heroes can’t end up well”.<br/><br/>3/20/2022 文贵直播：在俄乌战争中被干掉的莫德韦切夫中将是俄罗斯下一任国防部长的人选，他跟中共有何关联？朱可夫等苏联将领既能打仗又能善终，而中共将领却都是“英雄无好果”的命<br/>
+![img](https://media.gettr.com/group34/getter/2022/03/20/22/bd561cd6-2847-c18c-1ab5-dbbb94315568/out.jpg)
+
+---
+
+`@miles 3/20/2022 10:12 PM (UTC)`
+
+3/20/2022 Miles Guo: Who took out Lieutenant General Andrey Mordvichev? What does his death mean? Putin sending his good buddy Mordvichev to the battlefield implies that Putin has reached an extremely poor situation in the Russia-Ukraine war.<br/><br/>3/20/2022 文贵直播：莫德韦切夫中将是被谁干掉的？莫德韦切夫之死意味着什么？普京派他的好兄弟莫德韦切夫上战场意味着他在俄乌战争中已打到了穷困潦倒的境地<br/>
+![img](https://media.gettr.com/group3/getter/2022/03/20/22/8d1b90fc-0f31-81b3-1d65-1b0b9fcd711f/out.jpg)
+
+---
+
 `@miles 3/20/2022 10:05 PM (UTC)`
 
 3/20/2022 Miles Guo: Let’s say there are two options. You become a billionaire, but you will have to work with the CCP. Or you keep working to take down the CCP, but you will lose everything or even be thrown into jail. The CCP’s pawns overseas will certainly choose to work with the CCP without hesitation. The New Federal State of China does not tolerate any bureaucracy or formalism. We must adhere to the notion that only the truth prevails.<br/><br/>3/20/2022 文贵直播：如果给你一个选择，当亿万富翁但要和共产党合作，还是继续灭共但会失掉一切或进监狱？海外欺民贼一定决绝选择和中共合作；新中国联邦不能有任何官僚形式主义，必须坚持唯真不破<br/>
@@ -40,13 +54,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 `@miles 3/20/2022 9:57 PM (UTC)`
 
-💥 💥The US sanctions to the CCP’s media are coming soon <br/>💥 💥 CCP’s mouthpieces are being cleaned up all over the world <br/>💥 💥 The evil CCP's mouthpieces, external and internal propagandas will be cut off completely<br/>💥 💥美国很快会对中共的媒体制裁<br/>💥 💥 海外欺⺠贼正在全世界范围内被清理<br/>💥 💥 邪恶中共喉舌大外宣、大内宣，就要被全部斩断
-![img](https://media.gettr.com/group45/origin/2022/03/20/21/305ab541-e86e-f4d1-deca-cf9586356f70/out.jpg)
-
----
-
-`@miles 3/20/2022 9:57 PM (UTC)`
-
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-20
 ![img](https://media.gettr.com/group17/origin/2022/03/20/21/bcb283af-b4b5-b333-51ea-e0edc93ca260/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
@@ -58,15 +65,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 又有一车从英国来的救援物资送到了NFSC大帐篷，我们的大帐篷已经成为世界各地救助乌克兰难民的爱心中心。<br/><br/><br/>#盘古时讯 #救援 #人道主义 #新中国联邦
 ![img](https://media.gettr.com/group4/getter/2022/03/20/17/4930a9fe-2e8a-0436-9cd0-0e379824192c/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@laifufu 3/20/2022 2:58 AM (UTC)`
-
-3月8日，75岁的乌克兰人Valentyna从战区逃出，第二天入住 #新中国联邦 与 #法治基金 在克拉科夫安排的酒店。她唯一的儿子Sergiy生活在加拿大。我们的救援团队帮助她解决了手机故障，保证母子二人能时刻保持联络。19号下午，她顺利登上了飞往加拿大的航班。
-![img](https://media.gettr.com/group20/getter/2022/03/20/02/d2b8b577-2a32-4f67-ce3f-869cd2630897/out.jpg)
 
 ---
 

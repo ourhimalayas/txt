@@ -2,74 +2,39 @@
 ---
 
 
-## 战争集会上普京演讲的电视直播画面被切
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2198800/)
+## 大多数日本人支持政府对俄罗斯制裁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2198897/)
 
-翻译：噜噜咪
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-30-edited-1.png)图片来源：mirror.co.uk
-弗拉基米尔·普京在一个支持战争的集会上发表演讲时，话说了一半画面就消失了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/J-3.jpg)neweysnews.co.uk
+共同社3月19日的一项调查显示，共有85.8%的受访者支持日本因俄罗斯入侵乌克兰而对其进行制裁，这表明公众赞成首相岸田文雄对莫斯科采取的坚定立场。
 
-普京正在颂扬俄罗斯非法入侵乌克兰的原因，突然，俄罗斯国家电视台直播的画面中断了。
+在截至周日的两天电话调查中，91.2%的人支持日本政府接受来自受战争影响的东欧国家的撤离人员的决定。
 
-这位俄罗斯总统一直在赞扬他的部队，他说这些部队继续在乌克兰“英勇战斗”。
+同时，75.2%的人表示担心俄罗斯在乌克兰的侵略可能会推动中共国试图强行夺取台湾和尖阁列岛，尖阁列岛是由东京控制但由北京宣称的一组东海小岛（钓鱼岛）。
 
-画面显示，普京有自己的巨型舞台，所以没有人能够接近他——人们认为这位暴君非常担心感染上中共病毒COVID。
+调查显示，岸田内阁的支持率比2月份的民意调查上升了3.5个百分点，达到60.1%，而不支持率则下降了5.5个百分点，达到21.9%。
 
-他身后的标语写道：“为了一个没有纳粹主义的世界/为了俄罗斯”。
+对其政府处理疫情的支持率上升了6.3个百分点，至60.4%。
 
-在庆祝吞并克里米亚八周年的时候，他说：“我们因同一命运而团结在一起。”
+当被问及最近在日本全面解除COVID-19准紧急状态的决定时，53.3%的人认为这是适当的，32.3%的人说这是太早了，11.3%的人认为这太晚了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1_Russian-President-Vladimir-Putin-attends-a-concert-marking-the-eighth-anniversary-of-Russias-annexa.jpg)普京在纪念俄罗斯吞并克里米亚八周年的音乐会上发表讲话(路透社)
+对于政府和执政联盟提出的向每位养老金领取者提供5000日元（42美元）作为疫情支持措施的一部分，66.0%的人认为这不合适。
 
-“这就是人民的想法，这就是他们在塞瓦斯托波尔举行公投时的指导思想。”
+这项调查覆盖了646个随机选择的合格选民家庭和1814个手机号码，分别得到了524和529人的答复。
 
-“他们希望与祖国俄罗斯分享他们的历史命运——让我们在这个场合祝贺他们，这是他们的场合。祝贺他们。”
+**快评**：这民调显示，俄乌战争和疫情控制是日本人目前最关心的问题。日本首相因为反俄挺乌的政策得到支持，这是正常国家国民的正常心态，不像中共国人被蒙蔽而表现出的令世界震惊的丑态。
 
-在他发表讲话时，人群挥舞着旗帜，高呼“俄罗斯，俄罗斯”，以示庆祝。
+郭先生说，东亚病夫已经完全不能定义中共国人，缺乏勇气和正义，整个社会戾气横生，对生命缺乏敬畏和尊重。我们新中国联邦人要灭掉中国共产党，拯救世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1_Russian-President-Vladimir-Putin-attends-a-concert-marking-the-eighth-anniversary-of-Russias-annexa-1.jpg)普京说到一半直播画面就消失了（路透社）。
+现在看来俄乌之战很快会停止，普京将被内部人干掉。中共灭亡也会加快。
 
-他向集会上的数千人承诺，克里姆林宫的所有目标都将通过国家的行动来实现。
 
-周五，在俄罗斯军队继续炮击乌克兰城市时，这位领导人发表了大约5分钟的讲话。
 
-“我们知道我们需要做什么，如何做以及付出什么代价。而且我们绝对会完成我们所有的计划，”他说。
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0_RUSSIA-UKRAINE-CONFLICT-CRIMEA-ANNEXATION-ANNIVERSARY.jpg)庆祝吞并克里米亚的亲俄罗斯集会（盖蒂图片）。
+[https://english.kyodonews.net/news/2022/03/65dff5d6bb6c-breaking-news-support-rate-for-japan-cabinet-rises-to-601-kyodo-poll.html](https://english.kyodonews.net/news/2022/03/65dff5d6bb6c-breaking-news-support-rate-for-japan-cabinet-rises-to-601-kyodo-poll.html)
 
-他说，那些在“特别军事行动”中战斗的人给国家带来了团结。
-
-“他们肩并肩，相互帮助，相互支持，在需要的时候，他们像兄弟一样用身体挡住子弹。他说：“这样的团结我们已经很久没有过了。”
-
-体育场的舞台上打出了“为了一个没有纳粹主义的世界“和“为了我们的总统”的口号，并使用了在乌克兰的装甲车上已经成为一种可怕的熟悉景象的“Z”字。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0_RUSSIA-UKRAINE-CONFLICT-CRIMEA-ANNEXATION-ANNIVERSARY-1.jpg)莫斯科卢日尼基体育场的人群（盖蒂图片)
-
-从亲俄罗斯的人对吞并克里米亚周年的反馈来看，这似乎是一个非常爱国的场合。
-
-但是，当他似乎还在向广大群众发表讲话时，直播突然切换到其他画面，而领导人却不见了踪影。
-
-这是一个奇特的中断，似乎导致他在话语中消失。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-1-10.png)民众在亲俄活动中欢呼并挥舞旗帜（图片:Россия24/SWNS)
-
-克里姆林宫声称，普京在莫斯科体育场的讲话传输中断的背后原因是一个技术故障。
-
-该国的国家电视台突然切断了普京对俄罗斯所谓的在乌克兰的特别行动和其士兵的英勇行为的赞美，转而显示活动中正在播放爱国歌曲。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-2-9.png)在普京发表讲话的集会上，卢日尼基体育场外的人群(图片:Россия24/SWNS)
-
-它后来播出了完整的演讲，在剪接后几秒钟结束，普京离开了舞台，成千上万的观众在可容纳8万人的卢日尼基体育场挥舞俄罗斯国旗。
-
-**参考资料：**[mirror.co.uk][Vladimir Putin ‘vanishes mid-sentence’ live on TV while giving speech at pro-war rally](https://www.mirror.co.uk/news/world-news/breaking-vladimir-putin-vanishes-mid-26501457)
-
-* * *
-
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
