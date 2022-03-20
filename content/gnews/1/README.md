@@ -2,12 +2,12 @@
 ---
 
 
-## 曾庆红不是一般的人（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196796/)
+## 曾庆红毯陈峰
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196837/)
 
-#### PPT制作: 0-0 ；rmrf
+#### PPT制作: Qingjing ；玉米地的
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-930-940-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-940-950-1_1.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

@@ -2,12 +2,19 @@
 ---
 
 
-## 拜登明确表示，如果中共向俄提供物质支持会有什么影响和后果
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2196786/)
+## 曾庆红不是一般的人（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196836/)
 
-03/18/2022 普萨基：拜登明确表示，如果中共国在俄罗斯对乌克兰城市和平民进行野蛮攻击时向其提供物质支持，会有什么影响和后果
+#### PPT制作: Qingjing ；玉米地的
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-930-940-6.jpeg)
+*发布：陶子*
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
