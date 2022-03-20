@@ -2,8 +2,8 @@
 ---
 
 
-## 烏克蘭國際人道救援行動持續 戰友仍請小心防疫
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2194942/)
+## 俄乌战争迄今 现全世界怎么看待中共和中国人
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2195040/)
 
 台灣寶島農場
 

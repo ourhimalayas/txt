@@ -2,19 +2,23 @@
 ---
 
 
-## 新中国联邦人怎么做人（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194821/)
+## 乌南部城市扎波罗热实施38小时宵禁
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194878/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-五-2-scaled.jpeg)
-*发布：陶子*
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-17t151924z_1269543103_rc2f4t9jj5cs_rtrmadp_3_ukraine-crisis.jpg)扎波罗热州内一处核电厂的建筑物被俄军炮击毁损。（路透社）
+乌克兰南部城市扎波罗热市副市长科特耶夫说，该市将从周六（3月19日）格林威治时间下午2时（新加坡时间今晚10时）起实施38小时的宵禁。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+扎波罗热（Zaporizhzhia）已成为撤离东南城市马里乌波尔（Mariupol）3万5000人的重要中转站。
+
+扎波罗热也遭受俄军炮火袭击，当地核电厂建筑物受到破坏。
+
+据路透社报道，科特耶夫在线上贴文写道：“这段时间别外出！”
+
+参考连结：[https://www.zaobao.com/realtime/world/story20220319-1254003](https://www.zaobao.com/realtime/world/story20220319-1254003)
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

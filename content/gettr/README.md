@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 3:16 AM (UTC)`
+
+U.S. veteran Al: “I hope you are successful in founding the NFSC in China and taking down the CCP. The CCP is not going to make the world any better. They are only gonna make it worse. Imaging a New China, a China that is not restrained by selfish politicians who are interested in their own names being on big signs. Imagining if the Chinese people were allowed to be productive and thoughtful, and thinking for themselves, that is going to be an incredibly powerful China. The powerful China is the one that is based on freedom.”<br/><br/>美国退伍军人Al：“我希望你们在中共国内成功创立新中国联邦并推翻中共。中共不会让这个世界变得更好, 只会让它变得更糟。想象一下新的中国， 一个不被这些自私的只在乎自己名利的政客束缚（统治下）的新中国。想象一下，如果允许中国人有创造力、有思想，并有自己独立的思考，那将是一个令人难以置信的强大中国，建立在自由之上的强大中国。”
+![img](https://media.gettr.com/group43/origin/2022/03/20/03/cb1313d6-63b5-c7f2-dd41-11a11ff477ab/out.jpg)
+
+---
+
 `@miles 3/20/2022 2:32 AM (UTC)`
 
 
@@ -147,13 +154,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 【Ukraine Rescue】03/18/2022 David introduces the NFSC Rescue Operation will focus more efforts on the frontline in Medyka to better enhance security and services. Our shuttle bus service is suspended for the time being and will resume if needed in the future.<br/><br/>【乌克兰救援】03/18/22 大卫介绍新中国联邦救援行动会将更多的力量集中到前线梅迪卡，以便更好的提升安保和服务工作。救援大巴车暂停，根据情况重启。
 ![img](https://media.gettr.com/group36/getter/2022/03/19/13/f3814818-007a-a8ff-b6a6-563fa2389e8e/out.jpg)
-
----
-
-`@miles 3/19/2022 1:10 PM (UTC)`
-
-2022.03.19 早《新中国联邦新闻访谈》国内各“阶级”出路
-![img](https://media.gettr.com/group28/origin/2022/03/19/13/8aaee504-7d96-fc70-c2ff-9bed728c5b59/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

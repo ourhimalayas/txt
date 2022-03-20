@@ -2,23 +2,37 @@
 ---
 
 
-## 乌国防部：“暂时”无法进出亚速海
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194795/)
+## 有声|美国将在澳洲北部地区部署数千名军人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2194831/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-08t142032z2059395923rc2eys96od44991473.jpg)马里乌波尔地处战略位置，位于亚速海沿岸，因此俄军一开始就锁定这座港口城市。（路透社）
-（早报讯）俄罗斯军方正在加强控制亚速海主要港口马里乌波尔（Mariupol）的周围地区。乌克兰国防部周五（3月18日）晚表示，乌方“暂时”无法进出亚速海。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+据3月16日史蒂夫·班农先生的盖特转发的外媒消息称，在澳大利亚承认可能与中共军队开战后，美国将在澳洲北部地区部署数千名军人。这是美国陆军首次在当地的部署，总人数大约为2200名接受过地对空导弹系统、高机动火箭炮和无人驾驶飞机训练的美国士兵。  
 
-路透社报道，乌克兰国防部在声明中说：“来犯者在顿内茨克（Donetsk）战区取得局部成功，‘暂时’剥夺了乌方进入亚速海的通道。”
+该部署是为应对中共可能入侵台湾做准备。这些美军将与澳大利亚国防军一起训练，以确保他们能够应对该地区的危机。训练除了包括实弹军事演习，还包含其他项目，如人道主义救助、救灾、疏散任务，以及保护美国大使馆或其他军事行动等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-53.png)
+针对此报道，班农先生在其盖文中评论到：我们的海军陆战队是最勇敢和最好的。为应对中共的经济战、网络战和信息战，我们还需要应对凶残的中共犯罪政权的超限战武器。
 
-乌克兰国防部没有在声明中具体说明乌军现在是否已夺回进出亚速海的控制权。
 
-俄罗斯周五表示，俄军正加强控制马里乌波尔市周围地区。当地约有80%的民宅受损，还有一座剧院周三遭轰炸，可能约有1000人仍受困在剧院下的临时避难所里。
 
-参考连结：[https://www.zaobao.com/realtime/world/story20220319-1253992](https://www.zaobao.com/realtime/world/story20220319-1253992)
+文字版原文：[美国将在澳洲北部地区部署数千名军人](https://gnews.org/zh-hans/2190293/)
 
-审核校对：Barry Jack
-上传排版：F
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
