@@ -2,40 +2,16 @@
 ---
 
 
-## 朝鲜向黄海发射火箭 半岛紧张局势急剧升温
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2199334/)
+## 反战音乐视频&#8211;多想活着
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2199387/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/n-1.jpg)fireontrend.com
-据路透社3月20日报道，朝鲜周日向黄海发射了疑似短程火箭，此前几天，朝鲜曾试图发射一枚弹道导弹，但因发射时爆炸而以大规模失败告终。朝鲜的最新一轮武器试验加剧了对朝鲜半岛紧张局势加剧的担忧。
+战友出品：noon\_Will
+德国纽伦堡正义农场
 
-韩国国防部表示，周日在朝鲜西海岸附近发现了 “短程射弹发射”。该部表示，它监测着局势并保持着准备状态。
+新中国联邦前线救援战友告诉我们，在梅迪卡的难民营中基本都是妇女和儿童。年龄在18-60岁之间的男人都留在乌克兰保卫家园。这首《多想活着》的反战音乐视频以蒙太奇的方式展示了俄罗斯入侵乌克兰造成的破坏。它描述了现实，恐怖，勇敢以及被强加在普通人身上的牺牲-他们只想活下去。活着只是为了去爱，与你黎明时一同醒来，享受灿烂的日出，一起下厨煮咖啡。活着是为了让孩子永不忘！为乌克兰祈祷！我们与乌克兰人民站在一起。音乐视频由德国纽伦堡正义农场的無遠弗届制作。
 
-韩国参谋长联席会议在一份声明中说：“今天上午，朝鲜发生了射击事件，据推测是多枚火箭发射器的射击，我们的军队正在监测相关情况并保持备战态势。”
-
-韩联社报道，在朝鲜平安北道的一个未指明的地点，一小时内发射了四枚火箭。所有射弹都落在了黄海。
-
-韩国总统办公室说，它就发射事件举行了一次紧急国家安全委员会会议。委员会成员分析了有关发射的细节，并与美国保持密切联系。
-
-韩国最近批准了采购价值数十亿美元的防御导弹盾牌的计划，类似于以色列的 “铁穹”，旨在击落朝鲜的弹道导弹和远程导弹，预计韩国将提高其在半岛的军事能力。
-
-韩国正在进行权力交接，文在寅总统的任期将于5月结束，并将由尹锡悦领导的保守派政府取代，他呼吁与美国建立更强大的军事联盟。
-
-周三，朝鲜发射了本应是今年第10次的武器发射，但因弹丸在助推器阶段发生爆炸而失败。
-
-最新的武器测试可能表明，朝鲜正准备发射在2020年阅兵式上首次亮相的Hwasong-17火箭，以测试其远程能力并将美国本土置于打击距离之内。
-
-**快评：**朝鲜金正恩最近一直没消停，动不动来个导弹发射，有失败有成功的，不断对韩国制造威胁，更以朝鲜半岛的紧张局势来要挟全世界。他的背后无疑是中共撑腰，灭了中共，朝鲜金家也会灰飞烟灭。
-
-这些邪恶轴心国，在俄罗斯入侵乌克兰之际一定搞些动静出来。但郭先生今天大直播里说，一个伊隆·马斯克单挑普京的言论，已经对普京背后的金主中共产生了巨大的震慑作用。没有人相信马斯克会说到做不到，普京和中共的导弹甚至核弹都不可能真地发出来，想想金正恩的导弹呢？估计就是个大炮仗，放了听个响而已。
-
-
-
-参考链接：
-
-[https://www.reuters.com/business/aerospace-defense/nkorea-fires-multiple-rocket-launcher-south-says-2022-03-20/](https://www.reuters.com/business/aerospace-defense/nkorea-fires-multiple-rocket-launcher-south-says-2022-03-20/)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+NFSC volunteers told us that there are almost all women and children in the refugee camps in Medyka. Men aged between 18 – 60 stayed in Ukraine to protect their homeland amid Russian invasion. The music video is a montage of scenes showing the devastation of the Russian Invasion of Ukraine. It depicts the realities, terror, bravery, and sacrifice being thrust upon normal people – who just want to live. To live just to love, to enjoy the crimson sunrise, to wake up with you at dawn and to take and brew a cup of coffee. Live to be remembered by children！Pray for Ukraine. We stand with Ukrainian people. This musical video is made by @noone\_Will from Himalaya Nuremberg Germany.
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

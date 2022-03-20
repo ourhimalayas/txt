@@ -2,38 +2,32 @@
 ---
 
 
-## 泽连斯基敦促以色列提供铁穹导弹防御系统
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2199306/)
+## 国际新闻热点 International News Updates
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2199311/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+供稿：9Lights Cici
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6G5FA6BABVKZ3ARDMAUXLY7F3A.jpg)
+1.北约国家的国家元首和政府首脑已经将俄罗斯在乌克兰开始后不久的袭击描述为”几十年来对欧洲 – 大西洋安全最严重的威胁”。
+The heads of state and government of the NATO states had already described Russia’s attack on Ukraine shortly after its beginning as the “most serious threat to Euro-Atlantic security in decades”
 
+2.诺华医药已决定暂停在俄罗斯的所有投资，并停止所有商业营销活动。
+Novartis has decided to suspend all investments in Russia and discontinue all commercial marketing activities.
 
-图片来源：路透社
+3.在波兰梅蒂卡新中国联邦营救基地晚间有着美妙的钢琴声，暖暖的篝火，浓香的NFSC咖啡，新中国联邦人把美好带给乌克兰难民们，让他们忘却战争的痛苦，全方位的人道关怀和帮助。
 
-在对以色列议会的视频链接讲话中，泽连斯基质疑以色列不愿将其铁穹导弹防御系统出售给乌克兰。这是他向国外寻求帮助的一系列呼吁中的最新一次。
+A piano is played beautifully, the campfire is warm and fragrant NFSC coffee fills the night air at the NFSC Rescue Base in Medyka. The new Chinese Federal people bring beautiful life to Ukrainian refugees and let them forget the pain of war with humanitarian care and help.
 
-“每个人都知道你们的导弹防御系统是最好的……而且你们绝对可以帮助我们的人民，拯救乌克兰人和乌克兰犹太人的生命，”拥有犹太血统的泽连斯基说。
+4.The Federal Reserve raised interest rates by 0.25 percentage points, the firtt hike since December, 2018. Fed Chief Jerome Powell signalled hikes at all six remaining meetings this year and also pledged to start shrinking their 8.9 trillion balance sheet at the “coming meeting”.
+美联储宣布加息25个基点，为2018年12月以来首次加息。美联储主席鲍威尔暗示今年剩余的会议中都有可能加息，并表态最快在下次5月的FOMC会议就会开始缩减其8.9万亿美元的资产负债表。
 
-最近几周，以色列总理纳夫塔利·贝内特与泽连斯基和俄罗斯总统弗拉基米尔·普京多次通话，试图结束冲突。
+5.According to the Bloomberg Economics’ model that estimates fair values based on economic fundamentals, Chinese Yuan is one of the most mispriced currencies. It is estimated to be 20.8% more expensive relative to what the fundamentals suggest.
+根据彭博社基于经济基本面预测的经济模型数据显示，人民币是其中最被高估的货币之一，与其经济基本面相比其高估了20.8%。
 
-在马里乌波尔，自俄罗斯于 2 月 24 日发动入侵以来遭受了一些最猛烈的轰炸，其 40 万居民中的许多人仍被困在该市，几乎没有食物、水和电力。
-
-占领马里乌波尔将有助于俄罗斯军队确保通往克里米亚半岛的陆地走廊，克里米亚半岛于 2014 年被莫斯科从乌克兰吞并。
-
-泽连斯基说，围攻马里乌波尔是战争罪。
-
-他在周六晚些时候的一次讲话中说：“对一个和平的城市这样做……是一种将在未来几个世纪被人们铭记的恐怖。”
-
-与以色列一样试图调解冲突的土耳其外长梅夫鲁特·恰武什奥卢表示，俄罗斯和乌克兰正在接近就“关键”问题达成协议。
-
-基辅和莫斯科上周报告说，在达成一项政治方案的谈判中取得了一些进展，该方案将保证乌克兰的安全，同时将其置于北约之外——这是俄罗斯的一项关键要求。尽管双方都指责对方拖延了事情。
-
-https://www.reuters.com/world/europe/mariupol-says-thousands-deported-besieged-ukrainian-city-2022-03-20/
-
-编辑发表： Shuizhuyu
-
+6.Financial Times reports that a powerful 7.4 magnitude earthquake hit north-east Japan on Wednesday night has left 4 people dead and 107 injured.
+根据金融时报的消息，北京时间3月16日晚日本东部7.4级的地震，已导致4人死亡107人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
