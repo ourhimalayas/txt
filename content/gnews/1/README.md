@@ -2,13 +2,13 @@
 ---
 
 
-## 战友展示新中国联邦形象（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197905/)
+## 战争残酷性（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197999/)
 
 #### PPT制作: 小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8：40-8：50-003.jpg)
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9：10-9：20-002.jpg)
+*发布：*tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

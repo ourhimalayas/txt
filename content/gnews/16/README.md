@@ -2,23 +2,12 @@
 ---
 
 
-## 俄军围攻乌克兰马立波 欧洲重要炼钢厂重创
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2197762/)
+## 【乌克兰救援】新中国联邦法治基金乌克兰人道救援行动——大巴救援队归来
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2197780/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-19.png)图片来源：美联社
+03/18/22 我们今天有几位战友康复回来归队。大家经过这段的调整，康复以后，我们都精神满满，回到工作岗位上。我们这次法治基金新中国联邦的救援行动也得到了波兰民间和国际NGO组织的认可和赞赏。
 
-俄罗斯军队对乌克兰港市马立波（Mariupol）围城攻击不断，导致欧洲数一数二的大型炼钢厂Azovstal严重受损。
-
-乌克兰议员瓦西莲科（Lesia Vasylenko）写道：「欧洲最大的炼钢厂之一毁了，乌克兰经济损失相当巨大，环境遭到破坏。」
-
-新闻来源：[联合新闻网](https://udn.com/news/story/122663/6178547?from=udn_ch2_menu_v2_main_index)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
