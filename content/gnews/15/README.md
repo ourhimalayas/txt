@@ -2,30 +2,27 @@
 ---
 
 
-## 歌曲《锁链梦》音乐视频正式发布
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2199129/)
+## 中共病毒肆虐香港，棺材和殓房已用尽
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2199165/)
 
-作者：银河系农场—骄子
+作者：银河系农场 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生每次谈起歌曲《锁链梦》的创作，到录音、后期制作，都哽咽不已。此次音乐视频的录制，完全再现了郭先生录制和演唱这首歌时的真实感受。
+3月18日外媒报道，香港中共病毒大爆发，港共政府采取清零政策，关闭了商店和街头抗议活动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-7.jpeg)
 
-郭先生说，他摒弃了音乐视频设计的很多动作。这首歌的歌词，每一个字都是中国人的血泪史，郭先生只想进入这种状态，什么动作不重要。后来呈现的MV中，虽然没有太多动作，但是情绪表现非常真实。
+目前，香港的剧院、博物馆、学校、健身房和图书馆全部关闭，这恐将迫使人们患上了幽闭恐惧症。港共政府还在推行中共病毒疫苗接种。无论哪一种方式，全封闭隔离或者接种中共病毒疫苗，不但没有控制中共病毒大爆发，甚至导致更多死亡病例。 香港目前的死亡率居世界之最，棺材和停尸房间已经用尽，死去的人的尸体胡乱堆积在医院的病房。
 
-郭先生说，”锁链”套在每一个中国人脖子上。中共国的很多演艺界、商界人士都知道共产党邪恶，但他们懦弱、为虎作伥，逃脱不了钱和性，自己给自己戴上了锁链。
+中共病毒大流行之前，香港人争取自由，走上街头的抗议活动频繁发生。中共最开始就是企图用病毒生化武器来压制香港的民主运动，杀害香港人。自中共病毒大流行以来，港府禁止在公共场合聚集超过四人。目前，无论是在香港本地，或者想要离开香港的人，都要接受严苛的中共病毒政策，包括隔离和清零政策。
 
-《锁链梦》音乐视频中有画面是扑面而来的锁链，仿佛没有尽头，让人产生难以逃脱的恐怖与凄凉。这是锁链女的一生真实写照，也是中共国现状的缩影，因为每个中国人的一生都被中共套上了无形的精神锁链。新中国联邦一定会砸碎中共强加在中国人身上的锁链。
-
-据最新消息，《锁链梦》音乐视频已经在多个油管频道上线，而且，将陆续在世界各大音乐平台登录。敬请期待。
-
-参考链接：[2022年3月15日 文贵大直播](https://gettr.com/post/p1051m93814)
+参考链接；
+1. [https://gettr.com/post/p10scjwf5f2](https://gettr.com/post/p10scjwf5f2)
+2. [Here in Hong Kong, Covid has surged and we’ve run out of coffins. Please learn from our mistakes](https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
 总编：Zion文恩
-编辑：文真   
-审核：Irene木木，文真
+审核/编辑：文真  
 校正/发稿：谐趣园
 
  

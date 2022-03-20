@@ -2,54 +2,62 @@
 ---
 
 
-## 泽连斯基说若与俄谈判破裂第三次世界大战就会发生
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2199307/)
+## 英国达人秀评委前往乌边境采访难民 新中国联邦旗帜入镜
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2199400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Z.jpg)rightwirereport.com
-乌克兰总统泽连斯基周日（3月20日）表示，他已经 “准备好 ”与俄罗斯总统普京进行谈判，但如果谈判破裂，就会导致第三次世界大战的发生。
+翻译： Jenny Ball
 
-“我已经准备好与他进行谈判了。在过去的两年里，我已经准备好了。我认为，没有谈判，我们就无法结束这场战争。”泽伦斯基告诉CNN记者。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2239.png)图片来源：dailymail.co.uk
 
-“我认为，我们必须利用任何形式，任何机会，以便有可能进行谈判，有可能与普京交谈。但如果这些尝试失败了，将意味着这是第三次世界大战。”
+阿曼达·霍尔登（Amanda Holden）已前往乌克兰边境，在那里她正在采访上个月普京入侵后逃离战争的难民们。
 
-最近几天，随着俄罗斯对乌克兰的入侵接近第四周，泽连斯基敦促进行更多谈判。在周六发布的视频信息中，他呼吁 “毫不拖延地 ”进行谈判，并警告说否则俄罗斯的损失将是 “巨大的”。
+这位 51 岁的英国达人评委正在波兰梅迪卡的一个难民营，该难民营距离乌克兰不远，阿曼达说：“亲眼目睹人们如此迅速地聚在一起，真是非同寻常。”
 
-泽连斯基的评论是在土耳其声称莫斯科和基辅接近于在关键点上达成协议时发表的。尽管克里姆林宫在披露其至少两次对乌克兰目标使用高超音速 “金扎尔（Kinzhal ）”导弹后转向了 “更具破坏性的火炮”。
+在那里，她一直在与那些生活因战争而被撕裂的人们交谈，制作一个名为“乌克兰隐藏的声音”的新播客，该播客为受影响的人提供了一个平台。
 
-“我们一直坚持谈判。我们一直提供对话，提供和平的解决方案。”他说，“而我希望每个人现在都能听到我的话，特别是在莫斯科。现在是见面的时候了，是谈的时候了，现在是恢复乌克兰的领土完整和正义的时候了。”
+已是两个孩子的妈妈的阿曼达，周五抵达波兰，她在“心脏调频”（ Heart FM） 上讲述了她的经历，她说：“我真的在看着人们从边境逃出。 见证了人们以非同寻常的速度聚在一起， 这里有一整个村子大了。”
 
-乌克兰的优先事项是“结束战争，安全保障，主权，恢复领土完整，对我们国家的真正保障，对我们国家的真正保护。”
+她接着说：“有食品和衣服的摊位和摊位。我从 Asda 和 Tesco 看到了一些东西。 这一切都来自哪里，真是太神奇了。人们正在供应茶、咖啡和热食。”
 
-俄罗斯的优先事项，在上周与土耳其的通话中提出的包括两类要求，乌克兰必须保持中立，不申请加入北约。这一点泽连斯基已经承认了。乌克兰还需要经历一个裁军过程，以确保它不会对俄罗斯构成威胁，并使其武装部队 “去纳粹化”。
+“（救援）每件事都考虑到了，甚至还有狗绳、狗碗和儿童玩具。 没有什么是没有想到的”。
 
-土耳其政府高级顾问易卜拉欣·卡林（Ibrahim Kalin）表示，俄罗斯的第二类要求将是更大的困难所在，这需要普京和泽连斯基进行面对面的谈判。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2241.png)图片来源：dailymail.co.uk
 
-卡林先生对这些问题说得不太具体，只是说它们涉及乌克兰东部顿巴斯的地位，其中部分地区已经脱离了乌克兰，并强调其俄罗斯性以及克里米亚的地位。
+现场：51 岁的英国达人秀评审官正在波兰梅迪卡的一个难民营度过，距离乌克兰不远，阿曼达说：“见证人们聚在一起的速度是非同寻常的。”
 
-BBC称，尽管卡林先生没有详细说明，但人们的假设是，俄罗斯将要求乌克兰政府放弃在乌克兰东部的领土。这将会引起很大的争议。
+阿曼达在与乌克兰的一名女性在社交媒体帖子上联系后开始播客，随后 “心脏调频”主持人决定做一些事情，让受悲惨冲突影响的平民有发言权。
 
-周日，泽连斯基告诉CNN，如果乌克兰 “是北约成员，战争就不会开始”。
+此后，她录制了七集播客，并在周末之前前往波兰，亲眼目睹难民正在面对的事情，并与人们进一步面对面交谈。
 
-“我希望为我的国家，为我的人民得到安全保障。如果北约成员愿意看到我们加入联盟，那就立即行动吧。因为人们每天都在死亡。”他继续说，自入侵开始以来，他一直对北约的援助表示感谢。
+阿曼达在她的 Instagram 上记录了她的访问，分享了难民营的几张图片和视频。
 
-**快评**：俄乌战争每时每刻牵动世界人的心。泽连斯基穿着墨绿色T恤出现在每一个有希望帮助他的国家的远程会议中，他已经成为乌克兰人的英雄。
+在一段鲜明的视频中，阿曼达展示了当天早些时候在乌克兰城市利沃夫被投炸弹后，排长队等待返回乌克兰城市利沃夫去帮助的人。
 
-他最新的视频已经发出了要谈判、要普京结束战争的信息。今天郭先生大直播里透露，还需要4-6周时间，俄乌战争应该结束。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2243.png)图片来源：dailymail.co.uk
 
-挑起战争者就没有正义的，都是独裁者为了一己私利将老百姓和世界拉入灾难的恶行。疫苗灾难还在制造更大的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2245.png)图片来源：dailymail.co.uk
 
-快醒来吧，全世界被蒙蔽的普通人，一起来消灭共产主义和独裁者。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2247.png)图片来源：dailymail.co.uk
 
+令人心碎：在一段鲜明的视频中，阿曼达展示了当天早些时候在乌克兰城市利沃夫被投下炸弹后，排长队等待返回乌克兰城市利沃夫帮助抵抗的人们而另一个展示了一个男人，被称为“和平钢琴家”，在营地中间弹钢琴。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2249.png)图片来源：dailymail.co.uk
 
-参考链接：
+阿曼达还拍摄了那里寄来的成堆捐款，包括衣服、床上用品和轮椅。
 
-[https://edition.cnn.com/2022/03/20/politics/zelensky-putin-ukraine-negotiations-war-cnntv/index.html](https://edition.cnn.com/2022/03/20/politics/zelensky-putin-ukraine-negotiations-war-cnntv/index.html)
+此外，这位电视名人还上传了一张布里斯托尔慈善机构成员的照片，同时，对英国政府进行了挖苦，她写道：“尽管我们政府的官僚作风可笑，但这个小小的慈善机构却试图产生重大影响。”
 
-[https://www.zerohedge.com/geopolitical/zelensky-says-wwiii-assured-if-negotiations-putin-break-down](https://www.zerohedge.com/geopolitical/zelensky-says-wwiii-assured-if-negotiations-putin-break-down)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2251.png)图片来源：dailymail.co.uk
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+素材：文舞
+素材链接：[dailymail.co.uk ] [‘It’s extraordinary to witness how quickly people have got together’: Amanda Holden travels to the Ukraine border to interview refugees fleeing the conflict after Putin’s invasion](https://www.dailymail.co.uk/tvshowbiz/article-10630353/Amanda-Holden-travels-Ukraine-border-interview-refugees-fleeing-conflict.html)
 
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,36 @@
 ---
 
 
-## 反战音乐视频&#8211;多想活着
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2199387/)
+## DC每日热点0320
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2199500/)
 
-战友出品：noon\_Will
-德国纽伦堡正义农场
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2022/03/E03B9DE1-7715-4BB3-8C67-346797D1D1C7-scaled.jpeg)
+道琼斯指数 34754.93 ▲0.80%
+纳斯达克指数 13893.84 ▲2.05%
+WTI纽约原油CFD 103.419 ▲1.74%
+布伦特原油CFD 105.506 ▲0.41%
+标普50指数 2,475.79▼54.19%
+美元兑人民币 1USD=6.361 RMB
+美元兑港币 1USD=7.824 HKD
+国际黄金 1921.90美元/盎司
+全球CCP病毒感染人数470,217,763例
 
-新中国联邦前线救援战友告诉我们，在梅迪卡的难民营中基本都是妇女和儿童。年龄在18-60岁之间的男人都留在乌克兰保卫家园。这首《多想活着》的反战音乐视频以蒙太奇的方式展示了俄罗斯入侵乌克兰造成的破坏。它描述了现实，恐怖，勇敢以及被强加在普通人身上的牺牲-他们只想活下去。活着只是为了去爱，与你黎明时一同醒来，享受灿烂的日出，一起下厨煮咖啡。活着是为了让孩子永不忘！为乌克兰祈祷！我们与乌克兰人民站在一起。音乐视频由德国纽伦堡正义农场的無遠弗届制作。
+1、乌克兰总统泽连斯基3月20日下令暂停乌克兰11个与俄罗斯有联系的政党运作，其中包括反对党“生命纲领党”
+2、拜习第二次视频会再现僵局 中方忧“今日俄罗斯、明日中共国”
+3、王毅称中共国解决乌克兰危机的主张站在历史正确一边
+4、中共国签署军事装备采购合同监督新规定，确保向军队提交良好质量的装备，但没有提供细节
+5、美防长称美国对乌援助作用显著，劝北京不要帮助普京“卑鄙行为”
+6、韩国军方消息朝鲜今天周日似乎使用短程多管火箭发射器进行了发射
+7、联合国：至少847位乌克兰平民死于俄罗斯入侵
+8、日本首相施压印度支持乌克兰未果，双方最后发表的声明中，印度没有公开谴责俄罗斯入侵乌克兰
+9、美国疾病控制和预防中心表示，由于此前错误地把与COVID-19疫情无关的死亡病例计算在内，他们现在对数据进行了修改，数万疫情死亡人数被移除
+10、俄攻势受阻 美官员证实俄情报高官被软禁
+11、德国在“艰难的妥协”后取消大部分防疫限制
+12、俄罗斯军方周六宣称，向乌克兰发射了最新超高音速导弹，俄军并称这是第一次实战使用其最新的高超音速导弹
+13、英国首相约翰逊周六警告说，即使俄罗斯停止了入侵行动，试着与俄罗斯关系重新正常化将是“一个错误”
+14、乌克兰总统泽连斯基周六19日宣布为所有因俄罗斯入侵而流离失所的乌克兰人提供援助的计划
 
-NFSC volunteers told us that there are almost all women and children in the refugee camps in Medyka. Men aged between 18 – 60 stayed in Ukraine to protect their homeland amid Russian invasion. The music video is a montage of scenes showing the devastation of the Russian Invasion of Ukraine. It depicts the realities, terror, bravery, and sacrifice being thrust upon normal people – who just want to live. To live just to love, to enjoy the crimson sunrise, to wake up with you at dawn and to take and brew a cup of coffee. Live to be remembered by children！Pray for Ukraine. We stand with Ukrainian people. This musical video is made by @noone\_Will from Himalaya Nuremberg Germany.
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
