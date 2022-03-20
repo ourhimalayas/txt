@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 6:40 PM (UTC)`
+
+3/20/2022 Miles Guo: Very soon the media platforms and other enterprises owned by the CCP will be facing sanctions from the US, which is only an appetizer for the CCP; To have a glimpse of the CCP’s fear, just look at which families are selling stocks. It is the families of Zeng Qinghong and Zhu Rongji that are dumping their stocks.<br/><br/>3/20/2022 文贵直播：近期你会看到中共的媒体和企业受到美国制裁，而这只是美国对付中共的“前菜”；中共国到底咋样，看看谁家在卖股票就知道了，曾庆红家和朱镕基家都在卖<br/>
+![img](https://media.gettr.com/group24/getter/2022/03/20/18/f0a1f557-3d76-4669-32c9-0c28f0147d06/out.jpg)
+
+---
+
 `@miles 3/20/2022 6:37 PM (UTC)`
 
 【Ukraine Rescue】03/19/2022 Since some fellow fighters are infected and the shortage of front-line personnel in Medyka, the rescue bus operation of the NFSC and the ROLF from Lviv to Krakow has temporarily come to an end. Thanks to the local NGO partners in Ukraine for printing out a banner representing the cooperation between Ukraine and the NFSC and the ROLF.<br/><br/>【乌克兰救援】03/19/2022  因战友染病，梅迪卡前线人手短缺，新中国联邦和法治基金救援行动从利沃夫市到达克拉克夫市的大巴暂告一段落。感谢乌克兰当地NGO同仁，打印出代表乌克兰与新中国联邦法治基金合作的标语。<br/><br/>
@@ -149,13 +156,6 @@ U.S. veteran Al: “I hope you are successful in founding the NFSC in China and 
 
 新中国联邦法治基金乌克兰人道救援行动-大巴救援实况转播
 ![img](https://media.gettr.com/group49/origin/2022/03/19/20/49cd592e-6ff4-f26f-e3a2-5d86b3c51145/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 7:25 PM (UTC)`
-
-At the Polish-Ukrainian border in Medyka, refugees enter Poland waiting for buses to evacuate to different parts of the country.  The new Chinese of New Federal State of China were also present, and our participation in the rescue operation was unanimously appreciated and praised by everyone here. Comrades Yi Shan and Himalaya 2, they set up supplies and water for the refugees in the queue to get on the bus.Our "Mydyka 7-star" tent prepared a special corner for children to play, with some toys, and a lot of materials for children provided by some compassionate people<br/>在波兰与乌克兰的边境梅迪卡（Medyka），难民进入波兰后排长队，等待着乘坐疏散到波兰各地的巴士, 每天有数不尽的乌克兰难民进入波兰。新中国联邦人参与的这次救援行动一致获得了这里所有人的感谢和好评。战友翌珊、喜马拉雅2在难民排队上车的位置都摆起了物资，水方便难民取用！我们的 “梅迪卡七星级” 搭帐篷里有专门为儿童准备的一个玩耍的角落，有一些玩具，和很多爱心人士为儿童提供的物质。
-![img](https://media.gettr.com/group7/origin/2022/03/19/19/609df797-f15a-60fe-ebe7-b9d6cc783920/out.jpg)
 
 ---
 
