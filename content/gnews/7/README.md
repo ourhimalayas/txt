@@ -2,12 +2,12 @@
 ---
 
 
-## 有关铁锁梦以及前线的几位战友情况（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195797/)
+## 香港的经济形势和地震；珍惜爆料革命小心病毒（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195836/)
 
 #### PPT制作: Qingjing ；玉米地的
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-55-12-00-一-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-00-12-03-二-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

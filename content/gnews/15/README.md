@@ -2,20 +2,26 @@
 ---
 
 
-## 坚持内心的良知，不要在意别人的看法（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195742/)
+## 中共防疫奇闻：山东老翁就医遭拦索要“待死证明”！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2195775/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-50-11-55-四-scaled.jpeg)
-*发布：陶子*
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-33.jpg)
+中国各地疫情持续延烧，官方再祭出强硬防疫政策，导致乱象频生。近日继吉林4岁女童丧命、上海癌末患者因“封区”无法就医后，日前再有山东罹癌老翁前往医院救治，结果遭防疫人员拦截索要“待死证明”，消息引发民间热议。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+山东老翁就医遭拦索要“待死证明” 综合媒体报导，这起事件发生在3月17日，山东省淄博市“王舍二区”社区一名罹癌魏姓老翁需要就医治疗，家属经过各方协调后，获准将救护车开进社区载送，但没想到，一行人在社区门口遭到防疫人员拦截，要求他们出示“待死证明”才放行，这让家属非常气愤，双方爆发肢体冲突。
 
+根据网传视频显示，老翁的儿子与家属当场大怒，数次质问对方：“什么叫做待死的证明？什么叫做待死的证明？谁待死？啊？”工作人员完全不让步，甚至回嘴说，“你不说，（他）也得死啊！”家属气极之下挥拳殴打工作人员，双方爆发肢体冲突。
+
+被洗掉灵魂的国度，实际上很多人已经不算是人了，毫无人性的逻辑判断，唯命是从的粗暴干预，将这片国土置于一片死寂。一个完整的人是要具备基本的人格，信仰和基本的自我决策能力的，显然共匪治下的国度毫无信仰，更无人格，加之不愿有所担当和一味讨好上级的意愿让他们变得更加冷血和无情，沦为共匪简易的“打手”和“党棍” ，是一群脱了智的行尸走肉。
+
+信息来源：
+
+[防疫封过头？山东老翁就医遭拦索要“待死证明”](https://m.secretchina.com/news/gb/2022/03/20/1001060.html)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
