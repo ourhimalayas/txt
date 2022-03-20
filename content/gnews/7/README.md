@@ -2,24 +2,19 @@
 ---
 
 
-## 【俄乌简讯】 联合国：乌克兰至少有847名平民丧生1399伤
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2194277/)
+## 独裁者把遗产留给子女（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194296/)
 
-翻译：冰糖葫芦喵
+#### PPT制作: 0-0 ；rmrf
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20-9-30-02-二-scaled.jpeg)
+*发布：陶子*
 
-编辑与校对：冰糖葫芦喵
-
-《路透社》苏黎世3月19日消息，**周六，联合国人权高专办(OHCHR)表示，截至3月18日，乌克兰至少有847名平民在爆炸中丧生，1399人受伤。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/62366d8e394d2-e1647734931624.jpg)乌克兰城市遭炮击损毁（图片来源：路透社）
-联合国人权高专办说，**大多数伤亡是由爆炸武器造成的，如重炮和多发射火箭系统的炮击，以及导弹和空袭。**
-
-报告称，**实际死亡人数据要高得多，**因为人权高专办在该国设有一个大型监测小组，**尚未能够核实几个重灾区城市的伤亡报告。**
-
-新闻来源链接：
-
-[At least 847 civilians killed in Ukraine since conflict began, U.N. says | Reuters](https://www.reuters.com/world/europe/least-847-civilians-killed-ukraine-since-conflict-began-un-2022-03-19/)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

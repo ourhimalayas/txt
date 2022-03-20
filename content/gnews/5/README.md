@@ -2,12 +2,12 @@
 ---
 
 
-## 瓦利克劝普金收手（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194281/)
+## 独裁者把遗产留给子女（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194310/)
 
 #### PPT制作: 0-0 ；rmrf
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20-9-30-03-一-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20-9-30-02-一-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

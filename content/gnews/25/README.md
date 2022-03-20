@@ -2,30 +2,24 @@
 ---
 
 
-## 拜登宣布再向乌克兰提供8亿美元军援
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193805/)
+## 英国前首相呼吁为乌克兰设立战争罪法庭
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2193848/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、编译撰稿：晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2158.png)
-据加拿大媒体【后千禧年】3月17日报道，在乌克兰总统泽连斯基16日通过视频向美国国会发表动人演说征服整个国会山之后，他的要求得到了兑现。拜登总统当天下午签署命令，再向乌克兰提供额外的8亿美元军援。
+**两位英国前首相戈登·布朗和约翰·梅杰呼吁为乌克兰设立单独的战争罪法庭。**
 
-白宫周三表示，此举使美国过去一周内向乌克兰安全援助达到10亿美元，自开战来总援助额达到20亿美元。援助将以国防部直接向乌克兰军方转移设备的形式进行，这些设备包括：尖端无人机、毒刺地对空导弹，以及S-300导弹防御系统等。
+作者：dpa, vk/原文发布于2022年3月19日15:43
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-4-2.jpg)图片:俄罗斯总统弗拉基米尔·普京（档案照片：Alexei Druzhinin/Sputnik/AFP）。
 
-拜登表示面对普京对平民不道德的攻击，美国人民将坚定不移地支持乌克兰人民。
+布朗周六对英国广播公司表示，不太可能在海牙国际刑事法院起诉俄罗斯总统弗拉基米尔·普京。莫斯科可以在联合国安全理事会上否决这样的起诉。
 
-原文链接：[https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine](https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine)
+在两天内，一份要求设立特别法庭的请愿书已经有75万多人签名，其中包括众多法律专家和来自世界各地的约40位前政府和国家元首。
 
-编辑/上传 – 文永
+这位工党政治家赞同美国总统乔·拜登的评价，即普京犯有战争罪。（dpa/vk）
 
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+原文链接：[https://brf.be/international/1586145/](https://brf.be/international/1586145/)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
