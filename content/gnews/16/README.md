@@ -2,48 +2,87 @@
 ---
 
 
-## 聚焦：美国将如何应对俄罗斯能源出口不降反升？（上）
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2194049/)
+## 参议员瑞克·斯科特: 中国共产党无意按规则行事
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2194119/)
 
-作者：丁过
+**参议员瑞克·斯科特**: 
+[#中国共产党](https://gettr.com/hashtag/%23中国共产党) 无意按规则行事。我们必须通过 CURBS CIPS 法案，阻止 [#共产中国](https://gettr.com/hashtag/%23共产中国) 成为俄罗斯金融机构的后备银行。 
+【转卢比奥新闻办公室推文：参议员卢比奥、斯科特和托德·杨 提出了 CURB CIPS 法案 (摧毁俄罗斯的失控好战与中共国参与普京计划)，以防止俄-中金融协作。】
 
-编辑与校对：丁过、冰糖葫芦喵
 
-**普京发动侵略乌克兰战争后，以美国为首的西方对俄罗斯的经济制裁不断加码。**为了削弱俄罗斯的战争能力，**美英及欧盟近日相继宣布停止或减少进口俄罗斯能源的制裁计划，让国际社会备受鼓舞。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯原油4.jpg)图片来源：网络。
-但实际情况不容乐观，**由于中共国、印度包括西方国家各怀鬼胎，导致俄罗斯的能源出口出现了不降反升的怪现象。**
 
-综合金融时报、路透社近日报道，世界知名的油轮跟踪机构Petro-Logistics提供的数据显示，**3月份俄罗斯海上原油出口量**较2月份增加35万桶/日，**平均达到近300万桶/日。**
+> The Chinese Communist Party has no intention of playing by the rules. We must pass the CURBS CIPS Act to stop Communist China from being the backup bank for Russian financial institutions. [https://t.co/ysVzOdvhm1](https://t.co/ysVzOdvhm1)
+> — Rick Scott (@SenRickScott) [March 19, 2022](https://twitter.com/SenRickScott/status/1505239668903796741?ref_src=twsrc%5Etfw)
 
-这些油主要流向了中共国和印度：
 
-**截至3月18日，俄罗斯每天向印度出口36万桶石油，几乎是2021年平均水平的四倍，**而更多的原油则流向了中共国。
 
-同时，中共国在疯狂购买俄罗斯天然气：在全球130多个国家展开业务的金融机构路孚特Eikon提供的数据显示，**截至3月17日，中共国釆购的俄罗斯液化石油气为2月的三倍，**甚至超过了2021年全年的进口量。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯原油2.jpg)印度希望绕开西方制裁用卢比以较低的折扣价格购买俄罗斯石油（图片来源：网络）
-在纽约上市的油轮公司Frontline表示，俄罗斯乌拉尔油的折扣约为每桶25至30美元，而运费只会增加每桶3至4美元。但仍然有不少国家不为利益所动，拒绝继续进口俄罗斯能源。
+**众议员迈克·沃尔茨**： 
+根据国际刑事法庭，“[占领国]驱逐或转移被占领土的全部或部分人口” 构成战争罪。 
+【转推文： **⚡**️马里乌波尔(Mariupol)委员会：俄罗斯占领军强行将数千名马里乌波尔居民转移到俄罗斯。 据称，这些平民被带到营地，俄罗斯人在那里检查他们的手机和文件，然后将其中一些人强行转移到俄罗斯的偏远城市。】
 
-相反，**中印不仅全部接盘了这些被拒绝而一度在海上飘荡和在管道中滞留的俄罗斯能源，而且加快了购买俄罗斯油气的速度。**
 
-俄罗斯的能源产业占其GDP的40%，是最主要的财政收入来源，如果能够有效打击俄罗斯的能源产业，俄罗斯的战争机器就会熄火，欧洲乃至世界就会更快迎来和平。
 
-但是这个世界太复杂了，**在这场俄罗斯能源博弈中，极端邪恶的中共不会选择正义，印度也站在了俄罗斯这一边。**
+> Under the International Criminal Court, “the deportation or transfer [by the Occupying Power] of all or parts of the population of the occupied territory” constitutes a war crime. [https://t.co/NebU2UNtCz](https://t.co/NebU2UNtCz)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 19, 2022](https://twitter.com/michaelgwaltz/status/1505283799839559692?ref_src=twsrc%5Etfw)
 
-而西方各国为了顾及自身的短期利益也各打自己的小算盘，**美国和英国对俄罗斯能源的依赖程度最低，所以能源制裁力度最大，同时美国趁机提高了每天100万桶的页岩油产量，**此前美国已经迅速成为全球第一天然气生产国和出口国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯原油3.jpg)印度一家加油站。（图片来源：印度快报）
-**美国的增产对平抑国际能源价格、控制通胀起到了关键作用，为美国的产业回归与就业打下了坚实的基础，同时对美元形成了有力的支撑。**
 
-但**由于运距太大**，相比于以管道输送到欧洲的俄罗斯能源，**美国的能源价格更高，**在现实利益面前，**欧盟各国还是割舍不了俄罗斯能源。** 因此笔者斗胆预测，**美国将通过大幅提高关税或各种经济制裁手段，打击中共国和印度的工业体系，限制中印的商品出口量，迫使中印减少对俄罗斯能源的需求，以达到打击俄罗斯能源出口的目的**。
 
-新闻来源链接：
+**前国家安全顾问罗伯特·奧布萊恩**： 
+请看看以下推特上最好的评论员之一的评论。 乌克兰现在需要援助！正如 (前白宫首席经济顾问) 拉里·库德洛[@larry\_kudlow](https://gettr.com/user/larry_kudlow) 几周前所呼吁的那样—— 对石油和天然气销售实施全面的 SWIFT 和 RF CB (俄罗斯联邦中央银行) 制裁——而不是采取半截措施。 让乌克兰飞行员获得 MIG (米格战斗机)。 为结束战争的真正谈判创造条件。 
+【转推文： 俄罗斯人控制的地区每天都在增长。 无论您在网上看到什么，请记住这一点。 你不必喜欢它——我不需要——但你必须承认它。】
 
-[https://cn.reuters.com/article/russia-q2-oil-export-0319-idCNKCS2LG02F](https://cn.reuters.com/article/russia-q2-oil-export-0319-idCNKCS2LG02F)
 
-[https://cn.reuters.com/article/russia-march-lpg-export-0319-idCNKCS2LG02D](https://cn.reuters.com/article/russia-march-lpg-export-0319-idCNKCS2LG02D)
 
-[http://www.ftchinese.com/interactive/65345?full=y&gift\_id=b70487987a36a7b3293f438cdc5bfb335681b927](http://www.ftchinese.com/interactive/65345?full=y&amp;gift_id=b70487987a36a7b3293f438cdc5bfb335681b927)
+> See below from one of the best commentators on Twitter. Ukraine requires assistance NOW. As [@larry\_kudlow](https://twitter.com/larry_kudlow?ref_src=twsrc%5Etfw) called for weeks ago-full SWIFT & RF CB sanctions on oil & gas sales-not half measures. Get Ukrainian pilots the MIGs. Create conditions for real negotiations to end the war. [https://t.co/6Lau2KlHLI](https://t.co/6Lau2KlHLI)
+> — Robert C. O'Brien (@robertcobrien) [March 19, 2022](https://twitter.com/robertcobrien/status/1505256272219811841?ref_src=twsrc%5Etfw)
 
-[http://www.ftchinese.com/interactive/65358?full=y&gift\_id=b735f0007a36a7b3293f438c59e906768b173f38](http://www.ftchinese.com/interactive/65358?full=y&amp;gift_id=b735f0007a36a7b3293f438c59e906768b173f38)
+
+
+**参议员罗杰·马歇尔**:
+在波兰，距乌克兰边境约 2.5 英里。 就在几英里外，我们看到了人类最丑恶的一面，但在这个难民中心，我们看到了人类最美好的一面。
+【附视频，马歇尔议员在乌克兰边境附近的波兰难民营发表讲话】
+
+
+
+> In Poland about 2.5 miles from the border of Ukraine. Just miles away we are seeing the worst of mankind but right here in this refugee center we saw the best of mankind. [pic.twitter.com/aFGk8unYNN](https://t.co/aFGk8unYNN)
+> — Dr. Roger Marshall (@RogerMarshallMD) [March 19, 2022](https://twitter.com/RogerMarshallMD/status/1505248782031630336?ref_src=twsrc%5Etfw)
+
+
+
+**参议员瑞克.斯科特**： 
+我很清楚：伊朗是我们的对手，不能信任。 这就是为什么我与参议员泰德·克鲁兹 [@SenTedCruz](https://gettr.com/user/SenTedCruz) 及我们的同事一起提出了一项禁止拜登政府放弃国会制裁的法案，这些制裁阻止了伊朗核项目的合作。 
+【转参议员泰德.克鲁兹推文：拜登政府正在取消制裁，并渴望与伊朗政权达成一项新协议，该协议甚至比最初的灾难性奥巴马-伊朗核协议还要弱。】
+
+
+
+> I’ve been clear: Iran is our adversary & cannot be trusted. 
+> 
+> That’s why I joined [@SenTedCruz](https://twitter.com/SenTedCruz?ref_src=twsrc%5Etfw) & our colleagues to introduce a bill prohibiting the Biden administration from waiving Congressional sanctions that stop cooperation on Iran’s nuclear program. [https://t.co/vt8L1iTILp](https://t.co/vt8L1iTILp)
+> — Rick Scott (@SenRickScott) [March 19, 2022](https://twitter.com/SenRickScott/status/1505294489077919746?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹**： 
+终于，有值得欢呼庆祝的事情了。 
+【转纽约邮报报道：福奇暗示退休 在美国新冠 ([#中共病毒](https://gettr.com/hashtag/%23中共病毒))感染和住院病例维持于低位时，安东尼·福奇博士暗示该退休了。 同时，福奇受到保守派议员的抨击，他们认为他推行的流行病限制措施太过分了】
+
+
+
+> Finally, something to cheer for. [https://t.co/CyoiEJPmki](https://t.co/CyoiEJPmki)
+> — Ted Cruz (@tedcruz) [March 19, 2022](https://twitter.com/tedcruz/status/1505232766031458306?ref_src=twsrc%5Etfw)
+
+
+
+**国防部长奥斯汀**： 
+刚刚在斯洛伐克布拉迪斯拉发的 Vajnory 军营与美国、斯洛伐克和北约部队会面。正是这种凝聚力和互操作性——在行动——这是北约联盟的基础。
+ [#我们是北约](https://gettr.com/hashtag/%23我们是北约) 【附奥斯汀部长讲话视频】
+
+
+
+> Just met with U.S., Slovak, and [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) forces at Vajnory Barracks in Bratislava, Slovakia. It’s this kind of cohesion and interoperability — in action — that is the foundation of the NATO Alliance. [#WeAreNATO](https://twitter.com/hashtag/WeAreNATO?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/AJ40gEFzli](https://t.co/AJ40gEFzli)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [March 18, 2022](https://twitter.com/SecDef/status/1504812641495269377?ref_src=twsrc%5Etfw)
+
+
 
 
 

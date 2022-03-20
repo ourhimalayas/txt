@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 12:30 AM (UTC)`
+
+2022.03.19 晚 《新中国联邦新闻》新中国联邦法治基金的救援行动开始受到全球华人关注； 梅迪卡救援营地成为灭共阵营
+![img](https://media.gettr.com/group20/origin/2022/03/20/00/27a0a19e-36a4-f8f4-90b4-3eba5bef6130/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/19/2022 11:35 PM (UTC)`
 
 3/19/2022 Miles Guo’s GETTR: Failure to distinguish between true and false and good and evil is the necessary element leading to massive evil and catastrophes. While Russia is invading a small country like Ukraine, it is spreading false information everywhere about the surrender of Zelenskyy. Surprisingly, there are still people who believe that the Hang Seng Index can return to 35,000. If so, then go ahead and make investments.<br/><br/>3/19/2022 文贵盖特：不辨真假善恶，是大邪大恶大灾的必然元素；俄罗斯去攻击乌克兰这样的小国、还到处散布泽连斯基投降的假消息；竟然还有人相信香港股市能重回35000点，快去投吧<br/>
@@ -146,15 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 `@miles 3/19/2022 11:15 AM (UTC)`
 
 3月19号：尊敬的战友们好，请大家务必严肃认真的防止．共产党病毒．祝大家周末愉快……【在香港，新冠疫情激增，我们的棺材用完了。 请从我们的错误中吸取教训 】https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 3/19/2022 10:52 AM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.19 EST
-![img](https://media.gettr.com/group10/origin/2022/03/19/10/5fd7dde8-7dd1-85b1-625c-252bf7ccc0ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

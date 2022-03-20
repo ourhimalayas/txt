@@ -2,12 +2,12 @@
 ---
 
 
-## 乌克兰取代欧洲科技（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194230/)
+## 独裁者把遗产留给子女（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194296/)
 
-#### PPT制作: WinterGuo ；开智则立
+#### PPT制作: 0-0 ；rmrf
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00-10-10-01-二-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20-9-30-02-二-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
