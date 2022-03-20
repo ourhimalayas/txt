@@ -18,17 +18,17 @@
 ### [前线快报——两周大巴救援实况回顾](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [白宫就拜习通话发表声明](/content/gnews/2/README.md)
+### [新中国联邦在波乌边境救援](/content/gnews/2/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [白宫就拜习通话发表声明](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [斯洛伐克开始部署爱国者防空系统](/content/gnews/3/README.md)
+### [斯洛伐克开始部署爱国者防空系统](/content/gnews/4/README.md)
  ` Shuizhuyu`
 
-### [拜习自俄乌战争以来第一次通话](/content/gnews/4/README.md)
+### [拜习自俄乌战争以来第一次通话](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [喜悦辣评——第05期](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [【转】截至3.20日 俄乌战事汇总（2）](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
