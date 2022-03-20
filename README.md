@@ -15,32 +15,32 @@
 
 ---
 
-### [俄罗斯寡头遭受严重损失，推翻普京政权成为当务之急](/content/gnews/1/README.md)
+### [文贵爆料3.20：开仗前，美先灭中共媒体平台](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [俄罗斯寡头遭受严重损失，推翻普京政权成为当务之急](/content/gnews/2/README.md)
  ` 纽约香草山MOS02`
 
-### [中共病毒肆虐香港，棺材和殓房已用尽](/content/gnews/2/README.md)
+### [中共病毒肆虐香港，棺材和殓房已用尽](/content/gnews/3/README.md)
  ` NFSC News`
 
-### [日本和柬埔寨敦促俄立即结束在乌的战争](/content/gnews/3/README.md)
+### [日本和柬埔寨敦促俄立即结束在乌的战争](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [独裁者只为个人和家族特权而活](/content/gnews/4/README.md)
+### [独裁者只为个人和家族特权而活](/content/gnews/5/README.md)
  ` NFSC News`
 
-### [白俄罗斯宣布选择人民币结算](/content/gnews/5/README.md)
+### [白俄罗斯宣布选择人民币结算](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
 
-### [歌曲《锁链梦》音乐视频正式发布](/content/gnews/6/README.md)
+### [歌曲《锁链梦》音乐视频正式发布](/content/gnews/7/README.md)
  ` NFSC News`
 
-### [文贵大直播要点（2022年3月20日）](/content/gnews/7/README.md)
+### [文贵大直播要点（2022年3月20日）](/content/gnews/8/README.md)
  ` 波士顿五月花农场`
 
-### [乌克兰副总理怒斥中共外交部发言轻佻](/content/gnews/8/README.md)
+### [乌克兰副总理怒斥中共外交部发言轻佻](/content/gnews/9/README.md)
  ` NFSC News`
-
-### [视频|新中国联邦乌克兰救援行动仍在继续](/content/gnews/9/README.md)
- ` MOSVIDEO`
 
 ### [文贵大直播 3/20 新中国联邦救援不会停 除非战争停止](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`

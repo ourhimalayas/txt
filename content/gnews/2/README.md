@@ -2,28 +2,30 @@
 ---
 
 
-## 中共病毒肆虐香港，棺材和殓房已用尽
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2199165/)
+## 俄罗斯寡头遭受严重损失，推翻普京政权成为当务之急
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2199176/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月18日外媒报道，香港中共病毒大爆发，港共政府采取清零政策，关闭了商店和街头抗议活动。
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+据英国《金融时报》报道，随着美国对俄罗斯制裁加剧，俄罗斯商人因害怕其资产被查封，他们正在紧密地与美国地产经济人接洽，希望尽快出售价值连城的房地产项目。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-7.jpeg)
+纽约领先的豪华房地产经纪人多莉·伦茨(Dolly Lenz)接受采访时说，俄罗斯业主只需要在交易过程中尽可能的低调、保密，他们愿意在任何条件下出售他们的房产，哪怕是会遭受严重的经济损失。
 
-目前，香港的剧院、博物馆、学校、健身房和图书馆全部关闭，这恐将迫使人们患上了幽闭恐惧症。港共政府还在推行中共病毒疫苗接种。无论哪一种方式，全封闭隔离或者接种中共病毒疫苗，不但没有控制中共病毒大爆发，甚至导致更多死亡病例。 香港目前的死亡率居世界之最，棺材和停尸房间已经用尽，死去的人的尸体胡乱堆积在医院的病房。
+面对愈发严峻的制裁环境，俄罗斯的寡头们并没有坐以待毙，其中一部分已经开始策动对于普京的暗杀行为。2022年3月20日，乌克兰媒体称乌克兰国防星报总局获悉，一群反对总统弗拉基米尔·普京并计划暗杀他的有影响力的人正在俄罗斯商业和政治精英中形成。而联邦安全局局长亚历山大·博尔特尼科夫可能成为普京的继任者。
 
-中共病毒大流行之前，香港人争取自由，走上街头的抗议活动频繁发生。中共最开始就是企图用病毒生化武器来压制香港的民主运动，杀害香港人。自中共病毒大流行以来，港府禁止在公共场合聚集超过四人。目前，无论是在香港本地，或者想要离开香港的人，都要接受严苛的中共病毒政策，包括隔离和清零政策。
+[https://www.epravda.com.ua/news/2022/03/20/684349/ https://www.pravda.com.ua/eng/news/2022/03/20/7332985/](https://www.epravda.com.ua/news/2022/03/20/684349/%20https://www.pravda.com.ua/eng/news/2022/03/20/7332985/)
 
-参考链接；
-1. [https://gettr.com/post/p10scjwf5f2](https://gettr.com/post/p10scjwf5f2)
-2. [Here in Hong Kong, Covid has surged and we’ve run out of coffins. Please learn from our mistakes](https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates)
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/03/263EB888-874C-477F-A461-91401786D13D.jpeg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-总编：Zion文恩
-审核/编辑：文真  
-校正/发稿：谐趣园
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
