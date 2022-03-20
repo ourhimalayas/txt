@@ -2,12 +2,12 @@
 ---
 
 
-## 共产党幻想覆灭（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198306/)
+## 第三道大门还没打开（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198461/)
 
-#### PPT制作: 0-0 ；rmrf
+#### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9：50-10：00-001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：20-10：30-003.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

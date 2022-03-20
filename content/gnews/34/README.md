@@ -2,22 +2,29 @@
 ---
 
 
-## 拜登警告中共：若向俄罗斯提供“物质支持’，将面临严重后果！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2196597/)
+## 《真人真事》专访妮可：智慧自信勇敢的NFSC新女性
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2196822/)
 
-撰稿：东京樱花团/英文翻译组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2193.png)
-3月18日（周五），美国总统拜登与中国国家主席习近平进行了近两个小时的安全通话。随后白宫对此次对话进行了解读。
+作者：纽约香草山   宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月19日，喜马拉雅联盟委员会《真人真事》节目，采访了乌克兰大救援战地记者妮可（Nicole)。這些天她无论是从前线回传大量采访报道信息，还是拿着绒毛玩具侃侃而谈的经历，妮可都展现出新中国联邦女性的崭新形象——智慧、自信、勇敢，更体現温柔善良的女子。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-20-at-7.27.33-PM.png)
+在第一时间报名出征之后，妮可做出了人生中的一项重大抉择，她放弃了美国联邦财政部门的优渥薪資的工作，毅然奔赴乌克兰救援前线。
 
-白宫表示，此前美国一直担心北京会以军事装备对俄罗斯入侵乌克兰进行援助。此次对话中，拜登警告北京，如果在俄罗斯入侵乌克兰的过程中向其提供 “物质支持”，北京将承担后果。
+妮可认为，新中国联邦倡导的正道主义，超越了个人的利益和价值观念。在救援前綫难民帳營區，摒弃长期在被中共治下国人自私、狭隘、冷漠的形象，不分国籍、种族、宗教，重塑无我、无私的人性大爱，这是新中国联邦人的使命。在被问到如何有勇气取舍时，妮可调皮地回答，我们是有币无苗族。
 
-值得一提的是，白宫一位高级官员称，此次对话中，习近平提出了台湾问题，而拜登重申，美国没有改变其对台湾的政策，并强调美国继续反对对现状的任何单方面改变。
+自从无意间成为杨贝贝事件的受害人之后，妮可化身新媒体战士，用有深度的節目內容，説一口流利的英文，成为中英文世界沟通的桥梁救援前綫新中囯联邦女记者，卻再次成为彭博社记者恶意采访的对象。
 
-新闻来源：[Biden warns Beijing: No ‘material support’ to Russia](https://thehill.com/homenews/administration/598791-biden-warns-beijing-no-material-support-to-russia)
+不过这一次，在经历了爆料革命几年的风雨历练，妮可变得更成熟更强大，有理有据地进行了有效的还击。后在各大国际媒体上树立起睿智、有勇气、温柔善良的新中国联邦女性形象。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+参考链接：[《GTV-真人真事》第46期嘉宾：华盛顿 DC农场 Nicole](https://gettr.com/post/p10t38p0c2f)
+
+![此图像的alt属性为空；文件名为March-1-4.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑：玫瑰圓
+总编/审核：Zion文恩
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

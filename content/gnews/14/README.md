@@ -2,10 +2,10 @@
 ---
 
 
-## 章家敦认为美国将不得不对中共国实施制裁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198038/)
+## 俄罗斯声称首次在乌克兰使用了高超音速导弹
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198095/)
 
-03/19/2022 章家敦就拜登总统对中共的做法发表意见，认为美国将不得不对中共国实施制裁
+03/19/2022 俄罗斯声称，它在乌克兰的攻势中首次在战斗中使用了其最新的高超音速导弹。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

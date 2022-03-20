@@ -2,36 +2,22 @@
 ---
 
 
-## 俄罗斯最大的银行Sberbank获准交换加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
+## 拜登警告中共：若向俄罗斯提供“物质支持’，将面临严重后果！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2196597/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/英文翻译组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2193.png)
+3月18日（周五），美国总统拜登与中国国家主席习近平进行了近两个小时的安全通话。随后白宫对此次对话进行了解读。
 
-翻译/编辑：小红帽
+白宫表示，此前美国一直担心北京会以军事装备对俄罗斯入侵乌克兰进行援助。此次对话中，拜登警告北京，如果在俄罗斯入侵乌克兰的过程中向其提供 “物质支持”，北京将承担后果。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
+值得一提的是，白宫一位高级官员称，此次对话中，习近平提出了台湾问题，而拜登重申，美国没有改变其对台湾的政策，并强调美国继续反对对现状的任何单方面改变。
 
+新闻来源：[Biden warns Beijing: No ‘material support’ to Russia](https://thehill.com/homenews/administration/598791-biden-warns-beijing-no-material-support-to-russia)
 
-根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
-
-俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
-
-据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
-
-俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
-
-据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
-
-新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
