@@ -2,8 +2,8 @@
 ---
 
 
-## 中国共产党是一个邪恶的政党
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2195212/)
+## 灭共是唯一能确保世界自由和和平的方法
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2195390/)
 
 台灣寶島農場
 

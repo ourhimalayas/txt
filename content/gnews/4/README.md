@@ -2,52 +2,91 @@
 ---
 
 
-## 美空军老兵被迫二选一：接种疫苗或等死
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2195158/)
+## 台湾情报部门正在密切关注“中共国计划在秋季入侵台湾”的传言
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2195300/)
 
-翻译：噜噜咪
+2022-03-19
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2183-edited.png)theepochtimes.com
+编译和评论：16626，沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2022/03/OT@F7WD2QUTK6VAW@WG.png)屏幕截图：[https://www.newsweek.com/china-planned-taiwan-invasion-fall-alleged-russian-intel-leak-claims-1688449](https://www.newsweek.com/china-planned-taiwan-invasion-fall-alleged-russian-intel-leak-claims-1688449)
+## 中共国计划在秋季入侵台湾
 
-2012年6月26日，马利兰州巴尔的摩，约翰斯·霍普金斯医院进行的肾脏移植手术中，肾脏被缝入受体患者体内。医生们将活体捐赠者的肾脏移植到受援病人身上。(盖蒂图片)
-在“持久自由行动”中，叛乱分子瞄准了他的KC-135飞机——一个带有机翼的巨大油箱——他和其他空军机组人员在里面，这时乍得·卡斯韦尔还不到18岁。
-卡斯韦尔尔在接受《大纪元时报》的独家采访时描述了当时的混乱场面，以及他意识到挫败致命的火爆爆炸的唯一方法是设法拿到锁在10英尺外的车辆中的枪支。
-卡斯韦尔回忆说：“那是一个相当紧张的时刻，”他讲述的是在应对9.11对美国的袭击中，美国对基地组织和塔利班进行空袭时他在卡达边境服务的日子。
-卡斯韦尔承认，他没有想到刚开始在新兵训练营没几个星期就发现自己在战斗中。其他新入伍的人在完成训练前就离开了，但卡斯韦尔说，与难民打交道的人道主义工作“使他意识到自己是多么幸运”——所以他留下来帮忙。
-可悲的是，一些美国人并没有向卡斯韦尔展示同样的同情心。
-当这位39岁的空军退伍军人最近公开表示，由于他拒绝接种中共病毒COVID-19疫苗而被北卡罗来纳州的一家医院拒绝接受急需的肾脏移植手术时，他在社交媒体上受到了攻击——一些人甚至表示希望他死。
-好消息是，许多人发布了支持卡斯韦尔的帖子，足以让德州医学城沃斯堡移植研究所的协调员了解卡斯韦尔的困境，并提出将他列入其机构的移植候选名单。
-该医院现在正在为卡斯韦尔寻找匹配的捐赠者，他的肾脏功能已经下滑到只有4%，在这段时间里，他一直在寻找一家可以接受他不接种中共病毒COVID疫苗的医院。
-沃斯堡移植机构的支持与温斯顿·塞勒姆的Atrium Health Wake Forest Baptist医疗中心的坚定立场大相径庭，即在卡斯韦尔接种COVID-19疫苗之前，它不会考虑为他移植。
-“他们告诉我，要么接种疫苗，要么你就等死，”卡斯韦尔告诉《大纪元时报》。
-其他医院也做出了类似的决定。
-今年1月，布里格姆妇女医院拒绝为31岁的波士顿人大卫·弗格森进行心脏移植，因为他仍未接种疫苗。
-而在更早的10月，UCHealth将56岁的科罗拉多斯普林斯居民莱拉尼·卢塔利从肾脏移植的等待名单中删除，因为她不愿意接受疫苗注射。
-每家医院都说，要求注射中共病毒COVID-19疫苗的原因是，如果不接种疫苗，已经免疫力低下的移植病人就会感染这种疾病，风险很大。
-他们还表示，他们遵循国家移植组织制定的标准协议，特别是美国移植协会（AST）和器官共享联合网路（UNOS）。
-这两个组织都列出了疫苗生产巨头赛诺菲，它与辉瑞和强生公司合作生产COVID-19疫苗。
-ATS的企业赞助商还包括疫苗巨头默克公司、与阿斯利康合作生产COVID-19疫苗的CSL Behring公司，以及与赛诺菲公司一样与辉瑞公司合作生产COVID-19疫苗的诺华公司。
-2019年，ATS还向因未接种疫苗而拒绝为弗格森进行心脏移植的布里格姆妇女医院提供了一笔不受限制的拨款。
-在与国际心肺移植协会（ISHLT）和美国移植外科医生协会（ASTS）的联合声明中，ATS表示强烈建议“所有符合条件的儿童和成人移植候选人和接受者接种在其管辖范围内被批准或授权的COVID-19疫苗。”
-它建议所有器官移植受者总共注射三针。
-UNOS还向《大纪元时报》发表了一份声明，强调移植医院可以自由采取自己的政策，对病人的疫苗状况进行管理。
-“患者有权在另一个中心寻求移植。然而，要求可能是一样的。”UNOS的医疗关系专家安妮·帕斯克在给《大纪元时报》的一份书面声明中说。
-UNOS有10%的资金来自联邦税收。
-医院因病人的疫苗状况而拒绝为其进行救命的移植手术，这种做法非常猖獗，以至于上个月，弗吉尼亚州共和党人本·克莱恩提出一项联邦法案，要求禁止美国所有医院拒绝任何被认为没有接种疫苗的人。
-该法案被称为SAVE法案（Stop Arduous Vaccine Enforcement 停止繁琐的疫苗执法），也将禁止医院要求器官捐献者接种疫苗。
-卡斯韦尔的律师、北卡罗来纳州德拉格和瓦格纳律师事务所的亚当·德雷珀告诉《大纪元时报》，卡斯韦尔的非凡之处在于，他最关心的不是拯救自己的生命，而是防止医院对别人这样做。
-德雷珀告诉大纪元记者：“他是个好人，他不应该受到无耻的攻击。”
+[台湾](https://www.newsweek.com/topic/taiwan)最高外交官表示，他无法就据称是俄罗斯情报文件的真实性发表评论，该文件声称中国国家[主席习近平](https://www.newsweek.com/topic/xi-jinping)计划在今年秋天吞并这个岛国，台湾。
 
-素材链接：[theepochtimes.com] [Air Force Veteran Forced to Choose Between Getting Vaccine or Dying](https://www.theepochtimes.com/air-force-veteran-forced-to-choose-between-getting-vaccine-or-dying_4345065.html)
+## 无论中国是否或何时决定攻击我们，我们都必须时刻做好自卫的准备
 
-* * *
+台湾外交部长吴钊燮本周三表示，他的国家无论如何都必须做好准备。“无论[中国](https://www.newsweek.com/topic/china)是否或何时决定攻击我们，我们都必须时刻做好自卫的准备，”他在台北对记者说。
 
-审核：文乐
-校对：阿伯塔
-发布：花羽
+## 台湾的情报部门正在密切监视相关的消息
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
+在台湾立法机关的一次国防委员会听证会上，吴钊燮告诉立法者，他知道有关该文件的媒体报道，据称该文件是由[俄罗斯](https://www.newsweek.com/topic/russia)联邦安全局FSB的一名自称“变革之风”的匿名分析师撰写。吴表示，他无法核实所谓的 FSB 文件，但表示台湾的情报部门正在密切监视相关的消息。
 
+## 驻法国的俄罗斯持不同政见者
+
+这封信是驻法国的俄罗斯持不同政见者弗拉基米尔·奥舍金（Vladimir Osechkin）发表的系列文章的一部分，他是一位人权律师，经营着一个记录俄罗斯监狱虐待行为的网站gulagu-net.ru。奥舍金声称，自俄罗斯入侵[乌克兰](https://www.newsweek.com/topic/ukraine)以来，他已收到七封（举报）信。FSB 举报人详细描绘了俄罗斯主要情报部门内部的[恐惧和混乱](https://www.newsweek.com/ex-kremlin-official-condemns-ukraine-war-that-kills-hopes-aspirations-1688344)，尽管只有少数人知道普京的计划。
+
+## 中共党内各派势力之间存在着巨大的权力斗争
+
+FSB举报人继续说：“不仅如此：习近平至少在考虑在秋季攻占台湾——他需要自己的小胜来连任第三个任期。” 该举报人指出“[中共党内]各派（精英）势力之间存在着巨大的权力斗争”。
+
+## 中共第20 次全国代表大会也定于秋季举行
+
+中国共产党的第 20 次全国代表大会也定于秋季举行，习近平预计将在这次全国代表大会上获得第三个任期，这可能从 10 月或 11 月开始。
+
+## 2022年3月17日，文贵先生在大直播中指出：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FMCSTJK6DY_7STYAK.png)屏幕截图：[https://www.gettr.com/post/p10fr57b127](https://www.gettr.com/post/p10fr57b127)  ，[https://www.gettr.com/streaming/p10fr57b127](https://www.gettr.com/streaming/p10fr57b127)
+参考：
+
+1. 2022年3月17日文贵先生大直播速记，[https://gnews.org/zh-hans/2181423/](https://gnews.org/zh-hans/2181423/)
+2. 2022年3月18日大直播速记精萃[https://gnews.org/zh-hans/2185432/，](https://gnews.org/zh-hans/2185432/，https:/www.gettr.com/streaming/p10fr57b127)
+3. 视频链接：[https://www.gettr.com/post/p10fr57b127](https://www.gettr.com/post/p10fr57b127)
+
+
+## 党内绝大多数人支持打台湾
+
+现在你们看出来了，党内现在最近在这个两会中间前后发生的事情，而对台湾的攻击当中出现了一个明显的、极端的、你很难想象的现象：党内绝大多数人支持打台湾。你很难想象，这有多恐怖，支持打台湾！这说明中共党内绝大多数是愚蠢的猪，狗屁不懂。那么还是有些人敢说出实话，不要打台湾！
+
+## 习太阳一定会打台湾
+
+（在）俄罗斯这个事儿上，党内很多人最近已经是有人在说话了：“我们赶快离开这个危险的中俄关系和乌克兰战争”，党内还是有能人的啊！但是绝大多数人是选择沉默，冷漠，懦弱和自私！就像七哥的歌里边唱的：“醒来吧，别再如此冷漠。醒来吧，抛掉所有懦弱……”。对党内一个样，答案非常清楚——习太阳一定会打台湾。而且不管俄乌战争有什么结果，共产党都想利用这场战争把美国给撂倒。
+
+## 习打台湾之时，就是他灭亡之日
+
+我恰恰认为， 普京只要别疯狂，他灭了，俄乌战争就停止了。欧洲是有大未来的， 美帝国主义更强大，世界更和平！剩下习不管有没有这个，他都会打台湾。 习打台湾之时，就是他灭亡之日；或者他没开打之前的就被干掉， 这是个绝对的必然的结局。
+
+## 我不相信中国有二十大
+
+我不相信中国有二十大！ 即使真有呢？有10%的可能开了二十大，我不相信习还能享受二十大的权力。 所以说曾庆红大家搂住两年，种两年地，猫两年！我觉得曾的脑子是很管用的，跟我的判断一样，2025绝对没有中国共产党！ 这场战争的结局，最大的受惠者除了美帝国主义，我们毫不谦虚地说，就是我们新中国联邦！这个最大的受益者是在新中国联邦！
+
+# 评论：
+
+1949年中共篡政夺权，国民党败退台湾。1958年8月23日，金门岛遭受中共一个多月的密集军事炮轰，尽管当时中共攻台失败，然而时至今日，中共始终都没有放弃占领台湾的企图，尤其是2012年自习近平上台以来，更是变本加厉，直至最近更是叫嚣“台湾问题绝不留给下一代”，“不放弃武力统一台湾”等各种战争狂言。中共如此猖狂为哪般？答案就在，战争是政治的延伸。据郭文贵先生爆料，习近平为巩固其执政地位，获得终身帝位，对内极力打击党内政敌，对外与俄罗斯的独裁者普京沆瀣一气！普京入侵乌克兰，习近平意欲借机占领台湾，以坐稳中共党魁的位置。
+
+今年3月2日，美国前国务卿蓬佩奥访问台湾时指出：“若台湾成为中国一部分，那不是统一，而是中共摧毁一个主权独立国家的侵略行动。”
+
+或许，普京入侵乌克兰的失利，加上整个西方世界的空前团结，对抗独裁政权的行动和决心，会给习近平当头一棒，使其武统台湾、成为终身帝王的梦想破灭。
+
+事实上，正如郭文贵先生预言：习近平打台湾之时，就是他灭亡之日！甚至在他没打之前的就被干掉， 这是个绝对的必然的结局！2025绝对没有中国共产党！ 这场战争的最大受益者是新中国联邦。
+
+不过，作为消灭邪恶中共的新中国联邦人，我们一定做好救援准备，以防一旦中共攻打台湾**。**
+
+参考资料
+
+1. [https://www.newsweek.com/china-planned-taiwan-invasion-fall-alleged-russian-intel-leak-claims-1688449](https://www.newsweek.com/china-planned-taiwan-invasion-fall-alleged-russian-intel-leak-claims-1688449)
+2. [https://www.ibtimes.com/china-planned-invade-taiwan-fall-ukraine-conflict-has-thwarted-it-alleged-russian-3440841](https://www.ibtimes.com/china-planned-invade-taiwan-fall-ukraine-conflict-has-thwarted-it-alleged-russian-3440841)
+3. [https://patabook.com/news/2022/03/16/china-planned-taiwan-invasion-in-fall-alleged-russian-intel-leak-claims/](https://patabook.com/news/2022/03/16/china-planned-taiwan-invasion-in-fall-alleged-russian-intel-leak-claims/)
+4. 2022年3月17日文贵大直播视频链接1：[https://www.gettr.com/post/p10fr57b127](https://www.gettr.com/post/p10fr57b127)
+5. 2022年3月17日文贵大直播视频链接2：[https://www.gettr.com/streaming/p10fr57b127](https://www.gettr.com/streaming/p10fr57b127)
+6. 2022年3月17日文贵先生大直播速记，[https://gnews.org/zh-hans/2181423/](https://gnews.org/zh-hans/2181423/)
+7. 2022年3月18日大直播速记精萃[https://gnews.org/zh-hans/2185432/，](https://gnews.org/zh-hans/2185432/，https:/www.gettr.com/streaming/p10fr57b127)
+
+
+编辑：卢卡斯
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场GTV频道](https://gtv.org/user/5f30d3ff91d4727c6a88395d)｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

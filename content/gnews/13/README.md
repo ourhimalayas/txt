@@ -2,21 +2,27 @@
 ---
 
 
-## 俄军首次使用高超音速导弹摧毁乌军事目标
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194981/)
+## 乌官员：马里乌波尔居民被强行带往俄罗斯
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2195188/)
 
+文 / 黄秀嫱
+发布 / 2022年3月20日 8:27 AM
 采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/files-russia-ukraine-conflict-075110.jpg)俄军首次使用高超音速导弹炮击乌克兰军事目标，图为搭载“匕首”高超音速导弹的俄罗斯米格31战机在2018年5月胜利日阅兵仪式上飞越莫斯科红场。（法新社档案照片）
-俄罗斯军方周五（3月18日）首次使用高超音速导弹摧毁乌克兰西部军事仓库。
 
-据法新社报道，俄国防部周六（19日）通报，“匕首”航空导弹系统（Kinzal aviation missile system）发射高超音速气动弹道导弹（hypersonic aeroballistic missiles），摧毁位于乌克兰伊万-弗兰科夫州（Ivano-Frankivsk）的乌军大型导弹和航空弹药仓库。
+![自俄军入侵以来，马里乌波尔是遭受最严重破坏的城市。（路透社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/images/202203/20220320/2022-03-19t164103z2072054174rc2p5t9o7c45175035.jpg?itok=YRx6F0yo)自俄军入侵以来，马里乌波尔是遭受最严重破坏的城市。（路透社）
 
-据俄罗斯新闻通讯社报道，这是俄罗斯向乌克兰发动特别军事行动以来，首次使用“匕首”高超音速导弹。
 
-参考连结：[https://www.zaobao.com/realtime/world/story20220319-1253999](https://www.zaobao.com/realtime/world/story20220319-1253999)
+（早报讯）综合外电报道，乌克兰马里乌波尔市长波伊钦科周六（3月19日）指控俄罗斯军队将该市居民强行带到俄罗斯，犯下战争罪。
 
-审核校对：Barry Jack
-上传排版：F
+波伊钦科在Telegram发文称，俄罗斯现在的所作所为是目睹二战恐怖事迹的老一辈人所熟悉的。当时，德国纳粹也强行捉人。
+
+马里乌波尔市议会同天发表声明说，数以千计的居民被强行带到俄罗斯。“有些人被送往俄罗斯偏远的城市，其他人的命运不得而知。”
+
+新闻链接：
+[乌官员：马里乌波尔居民被强行带往俄罗斯](https://www.zaobao.com.sg/realtime/world/story20220320-1254140)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

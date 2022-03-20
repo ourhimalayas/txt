@@ -2,19 +2,12 @@
 ---
 
 
-## 新中国联邦人怎么做人（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194828/)
+## 天空新闻：300万乌克兰难民逃到了邻国，现在仍面临各种困难
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2195076/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-六-2-scaled.jpeg)
-*发布：陶子*
+03/18/2022 天空新闻：300万乌克兰难民逃到了邻国，仍面临各种困难。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
