@@ -2,23 +2,37 @@
 ---
 
 
-## 乌南部城市扎波罗热实施38小时宵禁
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194878/)
+## 有声|波兰记者祝新中国联邦早日推翻中共政权
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2195063/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-17t151924z_1269543103_rc2f4t9jj5cs_rtrmadp_3_ukraine-crisis.jpg)扎波罗热州内一处核电厂的建筑物被俄军炮击毁损。（路透社）
-乌克兰南部城市扎波罗热市副市长科特耶夫说，该市将从周六（3月19日）格林威治时间下午2时（新加坡时间今晚10时）起实施38小时的宵禁。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月16日，《新闻周刊》驻波兰记者莉娜塔·金参观了新中国联邦在梅迪卡的救援中心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2095.png)
+Nicole战友向她介绍了我们新中国联邦与中共的不同，介绍了法治基金和新中国联邦的性质，我们来到此地进行人道救援的目的，以及我们可以提供的各种设备、物资、服务。
 
-扎波罗热（Zaporizhzhia）已成为撤离东南城市马里乌波尔（Mariupol）3万5000人的重要中转站。
+莉娜塔不仅表示了惊讶、感动和感谢，称自己没有想到在战争中会接收到来自世界的援助，这非常令人感动。同时，她祝愿新中国联邦早日推翻中共独裁政权，称自己会为这一使命祈祷。
 
-扎波罗热也遭受俄军炮火袭击，当地核电厂建筑物受到破坏。
 
-据路透社报道，科特耶夫在线上贴文写道：“这段时间别外出！”
 
-参考连结：[https://www.zaobao.com/realtime/world/story20220319-1254003](https://www.zaobao.com/realtime/world/story20220319-1254003)
+文字版原文：[波兰记者祝新中国联邦早日推翻中共政权](https://gnews.org/zh-hans/2189810/)
 
-审核校对：Barry Jack
-上传排版：F
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

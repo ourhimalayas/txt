@@ -2,90 +2,35 @@
 ---
 
 
-## 参议员瑞克·斯科特: 中国共产党无意按规则行事
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2194119/)
+## 不屈不挠的乌克兰人与无私无我的新中国人
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/2194085/)
 
-**参议员瑞克·斯科特**: 
-[#中国共产党](https://gettr.com/hashtag/%23中国共产党) 无意按规则行事。我们必须通过 CURBS CIPS 法案，阻止 [#共产中国](https://gettr.com/hashtag/%23共产中国) 成为俄罗斯金融机构的后备银行。 
-【转卢比奥新闻办公室推文：参议员卢比奥、斯科特和托德·杨 提出了 CURB CIPS 法案 (摧毁俄罗斯的失控好战与中共国参与普京计划)，以防止俄-中金融协作。】
+撰稿：澳喜cindy
 
+俄乌之战持续25天了，无数被俄罗斯狂轰滥炸的民房、医院、死尸随处可见。
 
+这是一场由两个军事大国野心家狼狈为奸，一个后面出资支撑，一个穷凶极恶施展肌肉的不对等的战争。侵略者俄罗斯普京以：美国和乌克兰搞生化武器研究为发动战争的借口，来掩盖其发动侵略战争的险恶企图。
+视频来自网络
+3月9日，鉴于中共外交部和俄罗斯发表的、关于美国在乌克兰进行生物武器实验的不实言论，美国国务院发布官方说明，谴责俄罗斯散布虚假信息，并抨击中共附和该阴谋论的丑恶行径。
 
-> The Chinese Communist Party has no intention of playing by the rules. We must pass the CURBS CIPS Act to stop Communist China from being the backup bank for Russian financial institutions. [https://t.co/ysVzOdvhm1](https://t.co/ysVzOdvhm1)
-> — Rick Scott (@SenRickScott) [March 19, 2022](https://twitter.com/SenRickScott/status/1505239668903796741?ref_src=twsrc%5Etfw)
+值得欣慰的是我们也看到了无数可歌可泣感人的故事在世间传播。为了抚慰心灵受到伤害的难民，钢琴演奏家把硕大的钢琴运到难民避难所现场，在寒冷的冬天，在露天的广场弹奏一曲又一曲的动人的音乐。我们还看到了，处事不乱的乌克兰男男女女、老老少少有序有尊严地排着长长的队伍，没有喧嚣，没有哭和吵闹，等待着救援人员安排去处。足以说明乌克兰人的文明确实是我们中国同胞要学习的。
+自制影片
+1.乌克兰的女性：
 
+“我们是乌克兰的女性，我们祝福我们的男人去保家卫国，我们已经把我们的孩子们带去安全之地，我们国家的未来血脉已经被妥善保护，我们将于男人们一起加入乌克兰军队，我们将会消灭所有敌人。”
 
+2.乌克兰的总统；
 
-**众议员迈克·沃尔茨**： 
-根据国际刑事法庭，“[占领国]驱逐或转移被占领土的全部或部分人口” 构成战争罪。 
-【转推文： **⚡**️马里乌波尔(Mariupol)委员会：俄罗斯占领军强行将数千名马里乌波尔居民转移到俄罗斯。 据称，这些平民被带到营地，俄罗斯人在那里检查他们的手机和文件，然后将其中一些人强行转移到俄罗斯的偏远城市。】
+“我不需要搭机撤离，我需要弹药！”总统泽连斯基虽然他已成为普京的攻击目标，但他仍公开站出来交流、发布讲话，给他们的国民鼓劲加油。他用他的勇气和坚毅，激励者人们共同抵御侵略者。
 
+3.新中国人无私的奉献：
 
+20多天来，每天24小时轮流值班，保证安全地供电供暖。多位战友染上了病毒，还有的战友连续几天不休息累病了。还有在寒冷的夜里接待从乌克兰逃出来的难民，安顿他们到新中国联邦人搭好的温暖的帐篷里，提供给他们所需要的东西甚至还能在如此恶劣的环境下能喝到一杯高质量的新磨出来的咖啡，这对于平常习惯于喝咖啡的西方人来说简直是无比幸福的事情。
 
-> Under the International Criminal Court, “the deportation or transfer [by the Occupying Power] of all or parts of the population of the occupied territory” constitutes a war crime. [https://t.co/NebU2UNtCz](https://t.co/NebU2UNtCz)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 19, 2022](https://twitter.com/michaelgwaltz/status/1505283799839559692?ref_src=twsrc%5Etfw)
+新中国联邦人对待素不相识的难民像对待自己的家人一样，如此贴心、如此周到。这种大爱无我的精神彰显了我们新中国人多么可敬可佩！新中国人绝不等同于中共！新中国人是热爱和平、心地善良、秉承正义、憎恨一切邪恶的一群人。新中国联邦人愿为世界和平作出我们的贡献。
 
-
-
-**前国家安全顾问罗伯特·奧布萊恩**： 
-请看看以下推特上最好的评论员之一的评论。 乌克兰现在需要援助！正如 (前白宫首席经济顾问) 拉里·库德洛[@larry\_kudlow](https://gettr.com/user/larry_kudlow) 几周前所呼吁的那样—— 对石油和天然气销售实施全面的 SWIFT 和 RF CB (俄罗斯联邦中央银行) 制裁——而不是采取半截措施。 让乌克兰飞行员获得 MIG (米格战斗机)。 为结束战争的真正谈判创造条件。 
-【转推文： 俄罗斯人控制的地区每天都在增长。 无论您在网上看到什么，请记住这一点。 你不必喜欢它——我不需要——但你必须承认它。】
-
-
-
-> See below from one of the best commentators on Twitter. Ukraine requires assistance NOW. As [@larry\_kudlow](https://twitter.com/larry_kudlow?ref_src=twsrc%5Etfw) called for weeks ago-full SWIFT & RF CB sanctions on oil & gas sales-not half measures. Get Ukrainian pilots the MIGs. Create conditions for real negotiations to end the war. [https://t.co/6Lau2KlHLI](https://t.co/6Lau2KlHLI)
-> — Robert C. O'Brien (@robertcobrien) [March 19, 2022](https://twitter.com/robertcobrien/status/1505256272219811841?ref_src=twsrc%5Etfw)
-
-
-
-**参议员罗杰·马歇尔**:
-在波兰，距乌克兰边境约 2.5 英里。 就在几英里外，我们看到了人类最丑恶的一面，但在这个难民中心，我们看到了人类最美好的一面。
-【附视频，马歇尔议员在乌克兰边境附近的波兰难民营发表讲话】
-
-
-
-> In Poland about 2.5 miles from the border of Ukraine. Just miles away we are seeing the worst of mankind but right here in this refugee center we saw the best of mankind. [pic.twitter.com/aFGk8unYNN](https://t.co/aFGk8unYNN)
-> — Dr. Roger Marshall (@RogerMarshallMD) [March 19, 2022](https://twitter.com/RogerMarshallMD/status/1505248782031630336?ref_src=twsrc%5Etfw)
-
-
-
-**参议员瑞克.斯科特**： 
-我很清楚：伊朗是我们的对手，不能信任。 这就是为什么我与参议员泰德·克鲁兹 [@SenTedCruz](https://gettr.com/user/SenTedCruz) 及我们的同事一起提出了一项禁止拜登政府放弃国会制裁的法案，这些制裁阻止了伊朗核项目的合作。 
-【转参议员泰德.克鲁兹推文：拜登政府正在取消制裁，并渴望与伊朗政权达成一项新协议，该协议甚至比最初的灾难性奥巴马-伊朗核协议还要弱。】
-
-
-
-> I’ve been clear: Iran is our adversary & cannot be trusted. 
-> 
-> That’s why I joined [@SenTedCruz](https://twitter.com/SenTedCruz?ref_src=twsrc%5Etfw) & our colleagues to introduce a bill prohibiting the Biden administration from waiving Congressional sanctions that stop cooperation on Iran’s nuclear program. [https://t.co/vt8L1iTILp](https://t.co/vt8L1iTILp)
-> — Rick Scott (@SenRickScott) [March 19, 2022](https://twitter.com/SenRickScott/status/1505294489077919746?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹**： 
-终于，有值得欢呼庆祝的事情了。 
-【转纽约邮报报道：福奇暗示退休 在美国新冠 ([#中共病毒](https://gettr.com/hashtag/%23中共病毒))感染和住院病例维持于低位时，安东尼·福奇博士暗示该退休了。 同时，福奇受到保守派议员的抨击，他们认为他推行的流行病限制措施太过分了】
-
-
-
-> Finally, something to cheer for. [https://t.co/CyoiEJPmki](https://t.co/CyoiEJPmki)
-> — Ted Cruz (@tedcruz) [March 19, 2022](https://twitter.com/tedcruz/status/1505232766031458306?ref_src=twsrc%5Etfw)
-
-
-
-**国防部长奥斯汀**： 
-刚刚在斯洛伐克布拉迪斯拉发的 Vajnory 军营与美国、斯洛伐克和北约部队会面。正是这种凝聚力和互操作性——在行动——这是北约联盟的基础。
- [#我们是北约](https://gettr.com/hashtag/%23我们是北约) 【附奥斯汀部长讲话视频】
-
-
-
-> Just met with U.S., Slovak, and [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) forces at Vajnory Barracks in Bratislava, Slovakia. It’s this kind of cohesion and interoperability — in action — that is the foundation of the NATO Alliance. [#WeAreNATO](https://twitter.com/hashtag/WeAreNATO?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/AJ40gEFzli](https://t.co/AJ40gEFzli)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [March 18, 2022](https://twitter.com/SecDef/status/1504812641495269377?ref_src=twsrc%5Etfw)
-
-
-
-
-
+*发搞：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,18 @@
 ---
 
 
-## 俄乌战争迄今 现全世界怎么看待中共和中国人
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2195040/)
+## 视频|寒风凛冽中的一杯NFSC咖啡，温暖着战乱中的孩子
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2195126/)
 
-台灣寶島農場
+制作：大直播短视频组 – 隧道尽头的光
+
+编辑：StevenZ
+发稿：为真不破20
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

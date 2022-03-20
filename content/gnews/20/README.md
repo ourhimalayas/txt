@@ -2,45 +2,19 @@
 ---
 
 
-## 有声|救出近1700人 新中国联邦人道救援遭布隆伯格构陷
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2194768/)
+## 新中国联邦人怎么做人（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194828/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据新中国联邦和法治基金救援团队前线战友的报道，3月17日当天，救援队从乌克兰救出47人，接待470人。而自三月初救援开始以来的累计救援人数已达1672人，累计的接待人数为6186人。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-47.png)
-新中国联邦救援队是目前唯一由中国人主导的战地救援队，中共在乌克兰境内已经完全没有撤侨人员，甚至在波乌边境的救助站现场见也不到一个中共的救援人员。
+#### PPT制作: Qingjing ；玉米地的
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-六-2-scaled.jpeg)
+*发布：陶子*
 
-亲中共的布隆伯格新闻社向救助站派出记者，采访了新中国联邦救援队志愿者妮可。记者对成功救出了多少人并不感兴趣，却只提了几个极具政治企图和指向性的问题，包括救援团队隶属什么组织，这一组织是否由郭文贵先生领导，团队在当地的任务，救援行动是否具有政治目标，以及救援团队如何看待中共和此次俄乌战争。
-
-面对这些预设立场的提问，妮可真诚而坦率地回答，消灭中国共产党并不是一个政治目的，而是为了中国人民获得民主自由的人道主义救助。中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
-
-记者发现妮可的回答，没有落入她预设的文字陷阱，草草的结束了采访。然后，还无理地要求参与现场录制的新中国联邦义工删除手机上的采访视频。 由于有了接受第一次被HBO VICE记者杨贝贝构陷采访的经历，Nicole这一次进行了有力的还击。
-
-有爆料革命战友更指出，整个采访的安排显然是中共在幕后操纵的故技重施，即先进行虚假采访，再企图销毁原始采访录像，最后利用后期加工混淆事实，妄图抹黑和诋毁新中国联邦和法治基金的这次国际人道救援行动。
-
-布隆伯格曾谄媚中共金融沙皇王岐山为世界上最有权势的人，因此他安排这样的采访毫不奇怪。文贵先生曾透露，贪婪的华尔街与中共勾兑，通过复杂的金融工具向中共国虚假的房地产市场投资了超过9万亿美元。布隆伯格是其中典型的代表，金钱利益使他完全丧失了人性。
-
-
-
-文字版原文：[救出近1700人 新中国联邦人道救援遭布隆伯格构陷](https://gnews.org/zh-hans/2190297/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

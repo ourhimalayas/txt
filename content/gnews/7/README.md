@@ -2,49 +2,49 @@
 ---
 
 
-## Kheriaty博士谈辉瑞疫苗的可能长期影响
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2194982/)
+## 历史上的今天：3月20日（伊拉克战争）
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2195101/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-
-0:01
-Now we’re learning more about the possible long-term effects of the Pfizer vaccine. Joining me now is the Chief of Ethics at the Unity project, Dr. Aaron Kheriaty. Dr. Kheriaty, thanks for joining us. It was a study that came out, I believe, about 2 weeks ago, Dr., I want to emphasize it’s in vitro, a lab study, and it was not done inside the body and it was done on, apparently, will look to be some cell lines. And the study seemed to indicate that it was possible that there was some reverse transcription, in other words, that this Pfizer vaccine may in fact, change the DNA in the cell lines in the lab, I want emphasize that, and you could be producing long-term spike proteins, what would that mean, if later studies in turn verify that information?
-现在我们正在更多地了解辉瑞疫苗可能产生的长期影响。现在连线的是Unity项目的伦理主管 Aaron Kheriaty 博士。Kheriaty 博士，感谢您的连线。我确信，大约2周前的这项研究，博士，我想强调这是项体外实验，这项实验室研究不是在体内完成的。显然，是在细胞系上完成的。研究似乎表明可能存在一些逆转录，换句话说，这种辉瑞疫苗实际上可能会改变实验室细胞系中的DNA。我想强调的是，你（辉瑞疫苗接种者）可能正在长期产生刺突蛋白。如果随后的研究反过来验证了这些信息，那意味着什么？
-0:50
-Right, you’re exactly right about that, Dan, this is a study out of Sweden, done in the lab, as you said, on a cell line made of human liver cells. And what it showed is that the RNA from the Pfizer vaccine was, as you said, reverse transcribed, so usually DNA goes to RNA to make protein. But occasionally, in rare instances, it can go backwards from RNA to DNA. And that’s exactly what happened in this study. So the RNA from the vaccine made some DNA that was in the nucleus of the human liver cells in the lab. And one of the striking things about this study is that we’ve been told for a year, including by the CDC, that the genetic material from the vaccines does not enter the cell nucleus, the part of the cell that contains your own DNA. And this study strongly suggests that that may not be the case, it only took about 6 hours after exposure to the Pfizer vaccine for this to occur and for that DNA, that was reverse transcribed from the vaccine, to appear in the nucleus. Now you were right to be cautious and not overstate the conclusions of this paper.
-是的，你说得很对，Dan，这是瑞典的一项研究，是在实验室完成的，是用的人类肝细胞制成的细胞系。正如你所说，它表明辉瑞疫苗中的 RNA 是逆转录的。通常来说，（遗传信息）从DNA流向RNA来制造蛋白质。但偶尔，在极少数情况下，可以从RNA反流向DNA，而这正是本研究中发生的。因此，来自疫苗的 RNA 在实验室中制造了一些位于人类肝细胞核中的 DNA。这项研究的一个引人注目的事情是，我们已经被告知了一年，包括CDC(美国疾病预防控制中心)在内，来自疫苗的遗传物质不会进入细胞核，细胞核就是细胞中包含您自己的 DNA 的那部分。而这项研究强烈表明情况可能并非如此，在暴露于辉瑞疫苗后仅仅6小时，就发生了从疫苗中逆转录的 DNA 出现在细胞核中这种情况。你现在的谨慎、不夸大论文的结论是对的。
-
-1:59
-Of course.
-当然
-
-1:59
-One thing that we didn’t see and we don’t know whether it’s going to happen or not, is whether that DNA that was reverse transcribed will be integrated into your own chromosome where your DNA is. If that happens, and again, we need further studies to establish whether or not that might happen, as you said, that could possibly mean things like long-term production of the spike protein, and there’s worry that that could cause autoimmune or other inflammatory problems. The spike protein after vaccination was supposed to be expelled from your system fairly quickly after you produce the necessary antibodies. But this is one among many studies that suggests that that might not be the case.
-我们没有看到，并且不知道是否会发生的一件事是，被逆转录的 DNA 是否会整合到你自己的 DNA 所在的染色体中。如果这种情况发生，再说一次，我们需要进一步研究以确定是否会发生这种情况，正如你所说，这可能意味着诸如长期产生刺突蛋白之类的事情，人们担心这可能导致自身免疫或其他炎症问题。疫苗接种产生必要的抗体后，刺突蛋白应该很快从人体中排出。但这项研究是众多研究中的一项，表明情况可能并非如此。
-
-2:44
-Dr. Kheriaty, thanks a lot for your time. We’ll follow that.
-Kheriaty 博士，非常感谢您的宝贵时间。我们将遵循（您的建议）。
+作者：纽约香草山农场教育部—马克文、朱丽叶
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-88.png)
 
-素材：文倩
-听写：蓝天灵梦
-翻译：abbs
-校对：小白咖啡馆
-字幕：文雅
-审核：文倩
-发布/上传 ：文永
 
-* * *
+2003年3月20日，美国、英国等国的军队联合在伊拉克境内发动军事行动，伊拉克战争爆发。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/copy-3.jpg)图源网络
+2001年9月11在美国本土发生了恐怖袭击，美国时任总统布什向“恐怖主义”宣战，并将伊拉克、阿富汗等多个国家列入“邪恶轴心国”。参与对伊拉克军事行动的有49个国家，直接参加地面作战的主要国家有美国、英国、澳大利亚、波兰等。提供后勤支援有韩国、日本、意大利、乌克兰等多个国家。 中共、俄罗斯表示反对。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+美国等国指责伊拉克继续拥有、制造大规模杀伤性武器，并对包括基地组织在内的恐怖组织给予支持。2003 年 3 月 17 日，布什宣布断绝外交关系，并向萨达姆·侯赛因发出最后通牒，给予 48 小时离开伊拉克。布什的宣布遭到萨达姆拒绝。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+最后期限过去约 90 分钟，联军于 3 月 20 日发动了攻击。三周后，伊拉克平民和美国士兵在巴格达的菲尔多斯广场推倒了萨达姆的雕像。联军在短短三周内推翻了萨达姆独裁政权，并占领了伊拉克的主要城市，几乎没有人员伤亡。布什总统于 2003 年 5 月 1 日宣布结束主要战斗行动。12 月 14 日萨达姆被捕，后被审判处决。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+2004年6月，权力被移交给伊拉克临时政府。2005年1月，伊拉克人民选出了伊拉克国民议会。该国的新宪法于当年 10 月获得批准。
+
+参考来源：
+
+[伊拉克战争](https://zh.wikipedia.org/wiki/伊拉克战争)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-55.jpg)
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-88.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

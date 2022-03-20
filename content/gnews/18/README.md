@@ -2,12 +2,12 @@
 ---
 
 
-## 新中国联邦人怎么做人（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194828/)
+## 新中国联邦人怎么做人（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194836/)
 
 #### PPT制作: Qingjing ；玉米地的
 视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-六-2-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-四-1-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

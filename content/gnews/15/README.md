@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|美国将在澳洲北部地区部署数千名军人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2194831/)
+## 睡梦中导弹突袭！尼古拉耶夫军营惨遭轰炸
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2194912/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据3月16日史蒂夫·班农先生的盖特转发的外媒消息称，在澳大利亚承认可能与中共军队开战后，美国将在澳洲北部地区部署数千名军人。这是美国陆军首次在当地的部署，总人数大约为2200名接受过地对空导弹系统、高机动火箭炮和无人驾驶飞机训练的美国士兵。  
+乌俄战争迈入第25天，乌国当局表示，周六（19日）早上，南部大城尼古拉耶夫（Mykolaiv）一处军营遭到俄轰炸，救援工作正在进行中，根据现场外媒《Expressen》 记者报导，有数十名士兵在袭击中丧生。
 
-该部署是为应对中共可能入侵台湾做准备。这些美军将与澳大利亚国防军一起训练，以确保他们能够应对该地区的危机。训练除了包括实弹军事演习，还包含其他项目，如人道主义救助、救灾、疏散任务，以及保护美国大使馆或其他军事行动等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-53.png)
-针对此报道，班农先生在其盖文中评论到：我们的海军陆战队是最勇敢和最好的。为应对中共的经济战、网络战和信息战，我们还需要应对凶残的中共犯罪政权的超限战武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/c7b16a4a-e575-4d73-80c9-26b9694c0f4a.jpg)图片来源：ArthurKei\_UA
 
+轰炸当下，有多达200名的乌国士兵在尼古拉耶夫的军营内，一名士兵情绪激动地告诉《法新社》，至少找到 50 具遗体，「我们不知道还有多少其他人在废墟中」；比利时媒体《VTM》 访问了导弹袭击现场，并拍摄了现场惨况，画面中可以看到有许多死者从瓦砾堆中被拉出；当地殡仪馆人员透露，至少有80人被杀害。《VTM》指出，至少有两枚导弹击中军事基地。
 
+简评：别看今天炸的欢，小心将来拉清单！睡梦中偷袭的俄军真是下三滥，假如是命令完全可以把导弹打偏，作为侵略他国的屠夫，乌克兰军人与你无怨无仇，何故如此的为普京卖命！醒醒吧！助纣为恶者必没好结果！
 
-文字版原文：[美国将在澳洲北部地区部署数千名军人](https://gnews.org/zh-hans/2190293/)
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103200000500W)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
