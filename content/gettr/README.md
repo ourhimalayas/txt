@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 1:01 AM (UTC)`
+
+3/19/2022 Miles Guo’s GETTR: Among Wang Qishan, Meng Jianzhu, Fu Zhenghua, Sun Lijun, and Liu Yanping, who will be executed by lethal injection? The fundamental difference between  Communist China and other foreign countries is that any living being is respected in these countries. Even murderers would be treated nicely with respect before being executed.<br/><br/>3/19/2022 文贵盖特：王岐山、孟建柱、傅政华、孙力军、刘彦平有谁会被注射毒针处死？中共国和外国的根本不同在于，任何生命在外国都受到尊重，连杀人犯在行刑前也能得到很好的礼遇<br/>
+![img](https://media.gettr.com/group36/getter/2022/03/20/01/3f24b7ae-120b-4aae-723e-7ba8cb7533b6/out.jpg)
+
+---
+
+`@miles 3/20/2022 12:58 AM (UTC)`
+
+3月19号：共产党根本就是魔鬼，他没有脸，所以不会脸红！脸红的应该是我们14亿所有中国人……【1917年，俄国十月革命爆发，华人生命安全受到威胁，不得已，华人向当时的北洋政府发出急电请求救援。当时中国正处于军阀混战时期，但此时都主动停战，把接回华人当做第一要务。北洋政府派出四千名将士，一艘军舰，出兵远东，接回侨民。不但接回了活人，而且还把两具入殓的棺材运了回来。<br/>中共脸红吗？】
+![img](https://media.gettr.com/group23/getter/2022/03/20/00/c97645d7-84ba-2d83-2341-3d9f659446db/bf3d54e94ce7aeb38aeba724a9cffd12.jpg)
+
+---
+
+`@miles 3/20/2022 12:56 AM (UTC)`
+
+3/19/2022 Miles Guo’s GETTR: Soaring prices have led to the collapse of the global supply chain. Is the virus or the COVID vaccine the culprit for the mass deaths in Hong Kong? The evil CCP doesn’t allow the Chinese people to take effective drugs, and they have to pay ridiculously high prices for the drugs if they want to take them. The Russian invasion of Ukraine only benefits Putin and Xi, but they are making the 1.4 billion Chinese people cannon fodder!<br/><br/>3/19/2022 文贵盖特：物价飙升导致全球供应链崩塌；造成香港大量死亡的罪魁祸首是病毒还是疫苗？邪恶的中共不让中国人吃有效的药，要吃还得支付天价药费；俄罗斯打乌克兰只对普京和习有利，却要拉上14亿中国人当炮灰！<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/20/00/d8f21566-0319-57fc-001b-4c4b99f1c82d/out.jpg)
+
+---
+
 `@miles 3/20/2022 12:30 AM (UTC)`
 
 2022.03.19 晚 《新中国联邦新闻》新中国联邦法治基金的救援行动开始受到全球华人关注； 梅迪卡救援营地成为灭共阵营
@@ -133,26 +154,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 【Ukraine Rescue】03/19/2022  David tells the thrilling story of how security guard of the NFSC rescue operation discovered and caught a Russian spy who had infiltrated the rescue bus.<br/><br/>【乌克兰救援】03/19/2022  大卫讲述新中国联邦救援行动的安保人员是如何发现并抓住混入救援大巴的俄罗斯间谍的惊险经历。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group20/getter/2022/03/19/12/c5b32e89-53c4-63bd-a5f8-5db579f1013c/out.jpg)
-
----
-
-`@miles 3/19/2022 12:30 PM (UTC)`
-
-2022.03.19 早 《新中国联邦新闻》前线救援中心吸引全球目光； 战友前线救援 践行健身健心
-![img](https://media.gettr.com/group43/origin/2022/03/17/12/23f4da65-557a-99f7-8d84-a990a46b50b8/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/19/2022 12:09 PM (UTC)`
-
-3月19号：尊敬的战友们好中共内战．外战的大戏即将开始！
-![img](https://media.gettr.com/group43/getter/2022/03/19/12/a62237f5-3d95-a2ba-3ebf-6f70fb31c129/out.jpg)
-
----
-
-`@miles 3/19/2022 11:15 AM (UTC)`
-
-3月19号：尊敬的战友们好，请大家务必严肃认真的防止．共产党病毒．祝大家周末愉快……【在香港，新冠疫情激增，我们的棺材用完了。 请从我们的错误中吸取教训 】https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates
 
 ---
 

@@ -2,28 +2,30 @@
 ---
 
 
-## 日本人气女主播接种辉瑞疫苗后产生严重副作用
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2193849/)
+## 日本决定下周起结束新冠疫情准紧急状态
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193929/)
 
-**撰稿：日本东京方舟农场  海星**
+##### 作者：加拿大温哥华扬帆农场 – 采编：风云小哥、编译撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2166.png)
+据日本【共同社】3月17日报道，随着新感染人数日趋下降，日本政府周四正式决定下周起取消日本新冠病毒准紧急状态的全部限制措施。
 
-3月18日，日本人气女主播高桥真麻在其博客上发帖表示，她在接种第3针辉瑞疫苗后产生严重副作用。
+这是日本自1 月 8 日以来首次免除此类措施。首相岸田文雄周三表示，仍会有一个过渡期，以最大程度的保持谨慎，防止感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-23.jpg)（图片来源：ABEMA）
+准紧急状态限制措施的解除，也意味着餐馆和酒吧将恢复正常营业。如果公司已采取了防感染措施，政府也将不再要求其在工作场所识别与新冠病毒患者的密切接触者。
 
-据《ABEMA》报导，曾入围日本最受欢迎女主播排行榜的高桥真麻于18日在其个人官方博客上发帖表示，她在接种第3针辉瑞新冠疫苗后，出现疲劳、头疼、肌肉痛、恶寒、关节痛、腹泻等症状。据悉，目前高桥真麻的身体已在逐渐恢复。
+新闻来源：[https://english.kyodonews.net/news/2022/03/bc188041dee7-panel-oks-japan-ending-covid-19-quasi-emergency-next-week.html](https://english.kyodonews.net/news/2022/03/bc188041dee7-panel-oks-japan-ending-covid-19-quasi-emergency-next-week.html)
 
-此前，美国FDA在法院强制令下对外公开了辉瑞新冠疫苗的数据报告。其中关于疫苗副作用的报告显示，早在2021年2月28日之前便已收到了来自56个国家共42,086例不良反应事件，其中头痛、发烧、疲倦、发冷、恶心、肌肉痛等副作用最为常见。
+编辑/上传 – 文永
 
-参考链接：
-1. [https://times.abema.tv/articles/-/10017826](https://times.abema.tv/articles/-/10017826)
-2. [https://ameblo.jp/takahashi-maasa/entry-12732533756.html](https://ameblo.jp/takahashi-maasa/entry-12732533756.html)
-3. [https://news.tv-asahi.co.jp/news\_geinou/articles/hot\_20220319\_160.html](https://news.tv-asahi.co.jp/news_geinou/articles/hot_20220319_160.html)
-4. [https://gnews.org/zh-hans/2122508/](https://gnews.org/zh-hans/2122508/)
+* * *
 
-总编：老孙
-校对发布：Linda
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
