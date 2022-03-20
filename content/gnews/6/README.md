@@ -2,10 +2,19 @@
 ---
 
 
-## 3/19/2022 文贵盖特：物价飙升导致全球供应链崩塌；造成香港大量死亡的罪魁祸首是病毒还是疫苗？邪恶的中共不让中国人吃有效的药，要吃还得支付天价药费
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2194460/)
+## 习一头走到黑（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194506/)
 
-秘密翻译组-北美组
+#### PPT制作: 0-0 ；rmrf
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20-10-30-六-scaled.jpeg)
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

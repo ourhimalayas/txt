@@ -2,12 +2,12 @@
 ---
 
 
-## 习一头走到黑（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194450/)
+## 习一头走到黑（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194501/)
 
 #### PPT制作: 0-0 ；rmrf
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20-10-30-四-1-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20-10-30-五-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
