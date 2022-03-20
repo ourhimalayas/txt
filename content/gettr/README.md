@@ -17,6 +17,24 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@pangushixun 3/20/2022 5:17 PM (UTC)`
+
+又有一车从英国来的救援物资送到了NFSC大帐篷，我们的大帐篷已经成为世界各地救助乌克兰难民的爱心中心。<br/><br/><br/>#盘古时讯 #救援 #人道主义 #新中国联邦
+![img](https://media.gettr.com/group4/getter/2022/03/20/17/4930a9fe-2e8a-0436-9cd0-0e379824192c/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@laifufu 3/20/2022 2:58 AM (UTC)`
+
+3月8日，75岁的乌克兰人Valentyna从战区逃出，第二天入住 #新中国联邦 与 #法治基金 在克拉科夫安排的酒店。她唯一的儿子Sergiy生活在加拿大。我们的救援团队帮助她解决了手机故障，保证母子二人能时刻保持联络。19号下午，她顺利登上了飞往加拿大的航班。
+![img](https://media.gettr.com/group20/getter/2022/03/20/02/d2b8b577-2a32-4f67-ce3f-869cd2630897/out.jpg)
+
+---
+
 `@miles 3/20/2022 6:40 PM (UTC)`
 
 3/20/2022 Miles Guo: Very soon the media platforms and other enterprises owned by the CCP will be facing sanctions from the US, which is only an appetizer for the CCP; To have a glimpse of the CCP’s fear, just look at which families are selling stocks. It is the families of Zeng Qinghong and Zhu Rongji that are dumping their stocks.<br/><br/>3/20/2022 文贵直播：近期你会看到中共的媒体和企业受到美国制裁，而这只是美国对付中共的“前菜”；中共国到底咋样，看看谁家在卖股票就知道了，曾庆红家和朱镕基家都在卖<br/>
@@ -142,20 +160,6 @@ U.S. veteran Al: “I hope you are successful in founding the NFSC in China and 
 
 3/19/2022 Miles Guo’s GETTR: Failure to distinguish between true and false and good and evil is the necessary element leading to massive evil and catastrophes. While Russia is invading a small country like Ukraine, it is spreading false information everywhere about the surrender of Zelenskyy. Surprisingly, there are still people who believe that the Hang Seng Index can return to 35,000. If so, then go ahead and make investments.<br/><br/>3/19/2022 文贵盖特：不辨真假善恶，是大邪大恶大灾的必然元素；俄罗斯去攻击乌克兰这样的小国、还到处散布泽连斯基投降的假消息；竟然还有人相信香港股市能重回35000点，快去投吧<br/>
 ![img](https://media.gettr.com/group34/getter/2022/03/19/23/5468edbb-02dd-fa56-0542-4f779ce27723/out.jpg)
-
----
-
-`@miles 3/19/2022 11:12 PM (UTC)`
-
-2022.03.19 NFSC News  New Federal State Of China Officially Enters the Global Political Arena； Poland Correspondent shares her wish of taking down the CCP
-![img](https://media.gettr.com/group42/origin/2022/03/19/22/29b254f2-8521-41a5-8fd8-66e352916ed3/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/19/2022 9:12 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-大巴救援实况转播
-![img](https://media.gettr.com/group49/origin/2022/03/19/20/49cd592e-6ff4-f26f-e3a2-5d86b3c51145/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
