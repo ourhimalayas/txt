@@ -2,39 +2,40 @@
 ---
 
 
-## 澳大利亚禁止向俄罗斯出口氧化铝，加大对乌克兰的援助力度
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2197904/)
+## 美财政部：加密货币非法融资略有增加但交易量很小
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2198036/)
 
-翻译：sherryok （水云间）（酷翻组）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-20-195505.jpg)A ship is loaded at a port at the Rio Tinto alumina refinery in Gove, also known as Nhulunbuy, in Australia’s Northern Territory July 16, 2013 [File: David Gray/ Reuters]
-澳大利亚政府周日（3月20日）宣布了出口禁令，禁止所有氧化铝和铝土矿出口，以限制莫斯科生产铝的能力。澳大利亚因乌克兰战争扩大了对俄罗斯的制裁，
+编译： Jenny Ball
 
-俄罗斯 20% 的氧化铝需求依赖澳大利亚，对俄国氧化铝的出口禁令将限制其生产铝的能力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bitcoin-g2d1a68669_640-edited.jpg)图片来自网络
 
-铝是俄罗斯的重要出口产品。
+华盛顿，3 月 18 日（路透社）- 自俄罗斯入侵乌克兰以来，美国官员观察到，使用数字资产为非法金融提供便利的情况有所增加，但交易量太小，无法在帮助莫斯科逃避全面制裁方面发挥重要作用，一位高级财政部官员周五表示。
 
-澳大利亚出口禁令是在澳大利亚政府制裁俄罗斯寡头奥列格·德里帕斯卡（Oleg Deripaska）几天后发布的，该寡头拥有昆士兰氧化铝有限公司（俄罗斯铝业公司和矿业巨头力拓公司的合资企业）的股份。该公司已承诺切断与俄罗斯的所有商业联系。
+财政部负责国内金融的副部长梁内利（Nellie Liang）表示，目前，数字资产的状况不足以支撑经济运行，而且生态系统还不够发达，个人无法使用此类资产有效逃避制裁。
 
-澳大利亚总理斯科特·莫里森（Scott Morrison）表示，他的政府正在与合作者们一道“对普京政权施加最大的代价、最大的压力，要求其从乌克兰撤军”。
+梁说，财政部多年来一直在研究这个问题，七国集团发达经济体和其他国家，也对使用数字资产进行非法金融表示担忧，因此，**有效执法势在必行**。
 
-莫里森说，自入侵开始以来，澳大利亚已对俄罗斯个人和机构实施了 476 次制裁。
+美国财政部长珍妮特·耶伦本月早些时候发誓要解决俄罗斯在 2 月 24 日入侵乌克兰后对俄罗斯实施严厉制裁的潜在漏洞，并表示，已制定反洗钱法，以防止俄罗斯精英成员使用加密货币逃避交易。
 
-他还宣布，应被围困国家的要求，澳大利亚将向乌克兰捐赠 7 万吨动力煤。
+尽管拜登政府官员一再保证，不能大规模使用加密货币来帮助俄罗斯规避制裁，但包括参议员伊丽莎白·沃伦在内的几位民主党立法者表示，担心俄罗斯寡头可能会转向数字资产平台，因为它被传统的金融体系排除在外。
 
-“我们知道它可以为多达一百万个家庭供电，”他说。
+沃伦与其他 10 名民主党参议员周四提出了一项法案，该法案将使总统能够制裁与受制裁的俄罗斯实体开展业务的外国加密货币公司，并阻止它们与美国客户进行交易。
 
-此外，澳大利亚将追加 3,000 万澳元（2,230 万美元）的人道主义援助，并将再向乌克兰捐赠 2,100 万澳元（1,560 万美元）的防御性军事援助，包括弹药和防弹衣。
+梁将领导财政部执行总统乔·拜登最近关于加密货币的行政命令，她说，她还没有看到立法。
 
-莫里森说，最近几周，政府已经批准了近 5,000 个因冲突而流离失所的乌克兰人的签证。
+该行政命令指示财政部与司法部和其他机构一起，**研究创建美国中央银行数字货币的法律和经济后果**，**并撰写有关加密货币将在不断变化的支付领域中发挥的作用**的报告。
 
-他宣布乌克兰难民将有资格获得新的三年人道主义签证，允许他们工作、学习和进入该国的卫生系统。
+**评论： 数字货币势在必行**，**有效执法当务之急！**
 
-新闻链接：[Australia bans alumina exports to Russia, steps up Ukraine aid](https://www.aljazeera.com/news/2022/3/20/australia-bans-alumina-exports-to-russia-steps-up-ukraine-aid)
+参考资料：[reuters][U.S. Treasury official sees modest uptick in crypto illicit finance, but transactions small](https://www.reuters.com/technology/us-treasury-official-sees-modest-uptick-crypto-illicit-finance-transactions-2022-03-18/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
 
+* * *
 
+*审核：文乐
+校对：阿伯塔
+发稿：信心的选择*
 
-审核校对：Barry Jack
-上传排版：F
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
 
  
 

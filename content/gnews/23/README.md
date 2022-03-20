@@ -2,32 +2,28 @@
 ---
 
 
-## 难以置信：辉瑞公司的文件中伊维菌素已经被列为新冠疗法
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2197691/)
+## “基辅变基乌”自民党内的强音 河野太郎也发推文（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2197860/)
 
-#### 翻译  意大利达芬奇农场  小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-20-alle-10.57.50.png)原文链接：eventiavversinews.it
-与本帖相关文件均来自辉瑞公司12月中旬发布的一批文件。
+翻译：zicoround
 
-这是一份“临床概述”文件，“是基于RNA SARS-CoV-2的预防性疫苗的临床数据，由BioNTech和辉瑞公司开发的”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/m_mainichi-20220319k0000m010005000c.jpg)图片来源：美联社
 
-该文件令人惊讶的部分在第17页， 其中列出了当前的治疗方法。
+【**接上篇：**[“基辅变基乌”自民党内的强音 河野太郎也发推文（1/2）](https://gnews.org/zh-hans/2197825/)】
 
-文件中指出，“新冠病毒的临床管理包括多种疗法， 主要推荐用于医院或临床试验环境”。然后他列出了各种药物， 例如瑞德西韦和地赛米松，他说这些药物应该用于治疗严重疾病或医院重症监护。
+事实上，日本政府也意识到了以地缘因素用俄语称呼乌克兰（城市）的问题。2014年，当俄罗斯单方面吞并位于乌克兰南部的克里米亚半岛时，日本政府更正了一些城市的名称，包括将乌克兰东北部城市“哈里科夫”更名为“哈尔基乌”。当时，考虑过“基辅”改名之事，但因“已经惯用，并且有相当程度的普及” （林芳正语）的原因而放弃了。1986年发生核事故的“切尔诺贝利”的名字仍沿用俄语读音，因为同样的缘故未予更改。
 
-以下几段列出了临床试验环境中使用的疗法。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-20-alle-11.50.29.png)
-这是什么？在辉瑞文件中， 伊维菌素被列为治疗方法。
+然而，2015年，日本曾有将“格鲁吉亚”这个被广泛接受的、前苏联成员国的名称改为源自英语的“佐治亚”的记录。2008年，遭俄军入侵后，该国寻求摆脱源自俄语的“格鲁吉亚”，日本应该国政府的要求进行了更名。乌克兰是另一个前苏联成员国，与当时佐治亚的情形类似，外交部的一位官员指出，是否改称“基乌”将在视乌方的要求以及世界的动向后再作决定。
 
-该文件的日期是2021年4月。当时事实核查人员正在标出有问题的账户， 并审查删除有问题的账户， 他们不承认是用于新冠病毒的药物。
+**参考资料：**[news.goo.ne.jp][「キエフをキーウに」　自民内で強まる声　河野太郎氏もツイート](https://news.goo.ne.jp/article/mainichi/politics/mainichi-20220319k0000m010005000c.html)
 
-许多人，包括科学家和医疗保健专业人员， 都因为建议可以使用伊维菌素其脸书和推特账户被暂停。
+* * *
 
-然而白纸黑字，辉瑞已经考虑了将伊维菌素作为新冠病毒的疗法。
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
 
-原文链接：[https://www.eventiavversinews.it/incredibile-nei-documenti-rilasciati-da-pfizer-spunta-livermectina-prevista-come-terapia-covid-19-leggetelo-con-i-vostri-occhi/](https://www.eventiavversinews.it/incredibile-nei-documenti-rilasciati-da-pfizer-spunta-livermectina-prevista-come-terapia-covid-19-leggetelo-con-i-vostri-occhi/)
-
-编辑、上传：Xiao baige
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
 
  
 
