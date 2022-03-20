@@ -2,24 +2,18 @@
 ---
 
 
-## 联合国：648万人在乌克兰境内流离失所
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198986/)
+## 欧盟掌握中共支持俄罗斯的确凿证据
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198987/)
 
-作者：纽约香草山信息部- 诺雅
+作者：纽约香草山 侠肝义胆
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月18日，联合国移民机构发表文件称，联合国人道主义事务协调厅调查显示，自2月24日俄罗斯入侵以来，截至3月16日，乌克兰境内的流离失所者人数为648万。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.43.png)
-据估计，由于安全风险增加、桥梁道路被毁、缺乏资源，或缺少安全地点或住宿等因素，超过1200万人滞留在受战争影响地区，无法撤离。被困人群需要人道主义援助和基本物资，包括食品、水和药品。
+外媒3月18日报道，一名欧盟高级官员表示，欧盟领导人掌握了中共向俄罗斯提供军事援助的确凿证据。这名官员警告中共，如果继续交付并支持俄罗斯的军事武器，欧盟将会对中共国采取贸易制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.51.png)
+据媒体本周早些时候报道，美国政府官员也对中共向俄罗斯提供军事装备的行为，发出了类似警告。
 
-同日，联合国难民署称，开战以来，320多万难民逃离了乌克兰。根据联合国儿童基金会发言人詹姆斯-埃尔德，在3月15日表示，超过150万名儿童已逃离乌克兰。
+这位欧盟官员还表示，欧盟高度关注中俄交易对乌克兰战争的影响。欧盟所有领导人都非常清楚，中共支持俄罗斯的事实，但中共却一再否认。这位欧盟官员认为，只有采取贸易壁垒式的惩罚措施，才能制止中共。
 
-评论称，俄罗斯入侵前，乌克兰总人口约4400万，不计死亡人数，至今已经有近2200万人受到严重影响。人道灾难将因战争的持续而加重。
-
-参考链接：
-1.[UN: 6.5 million people displaced inside Ukraine](https://www.axios.com/un-internal-displacement-ukraine-russia-eaf8801e-d8ed-4063-a91e-8fd5ce9b45f1.html)
-2.[Microsoft Word – Update on IDP Figures in Ukraine – 18 March.docx](https://reliefweb.int/sites/reliefweb.int/files/resources/update_on_idp_figures_in_ukraine_18_march_eng.pdf)
-3.[UN: Over 3.2 million refugees have fled Ukraine since Russian invasion began](https://www.axios.com/ukraine-refugees-russian-invasion-un-9f8b6e8e-87ed-4a5b-b7e9-d9229b373dca.html)
-4.[UN: 6.5m people displaced inside Ukraine in addition to refugees who have left](https://www.lbc.co.uk/world-news/25fd6d2cd9c64960ba3689adb3ee0fe7/)
+参考链接：[EU has ‘very reliable evidence’ China is considering military support for Russia](https://www.politico.eu/article/eu-has-very-reliable-evidence-china-is-considering-military-aid-for-russia/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 

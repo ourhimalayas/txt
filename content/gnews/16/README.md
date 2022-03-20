@@ -2,28 +2,30 @@
 ---
 
 
-## 历史上的今天 (3月20日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198985/)
+## 联合国：648万人在乌克兰境内流离失所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198986/)
 
-作者：纽约香草山农场教育部-马克文、朱丽叶
+作者：纽约香草山信息部- 诺雅
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2003年3月20日，美国、英国等国的军队联合在伊拉克境内发动军事行动，伊拉克战争爆发。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.37.png)
-2001年9月11，美国本土遭到了连番恐怖主义袭击，美国时任总统布什向“恐怖主义”宣战，并将伊拉克、阿富汗等多个国家列入“邪恶轴心国”。
+3月18日，联合国移民机构发表文件称，联合国人道主义事务协调厅调查显示，自2月24日俄罗斯入侵以来，截至3月16日，乌克兰境内的流离失所者人数为648万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.43.png)
+据估计，由于安全风险增加、桥梁道路被毁、缺乏资源，或缺少安全地点或住宿等因素，超过1200万人滞留在受战争影响地区，无法撤离。被困人群需要人道主义援助和基本物资，包括食品、水和药品。
 
-美国等国指责伊拉克继续拥有和制造大规模杀伤性武器，以及它对包括基地组织在内的恐怖组织给予支持。2003 年 3 月 17 日，布什宣布断绝外交关系，并向萨达姆·侯赛因发出最后通牒，给予 48 小时离开伊拉克，遭到萨达姆拒绝。
+同日，联合国难民署称，开战以来，320多万难民逃离了乌克兰。根据联合国儿童基金会发言人詹姆斯-埃尔德，在3月15日表示，超过150万名儿童已逃离乌克兰。
 
-最后期限过去后约 90 分钟，联军于 3 月 20 日发动了攻击。三周后，伊拉克平民和美国士兵在巴格达的菲尔多斯广场推倒了萨达姆的雕像。联军在短短三周内推翻了萨达姆独裁政权，并占领了伊拉克的主要城市，几乎没有人员伤亡。布什总统于 2003 年 5 月 1 日宣布结束主要战斗行动。12 月 14 日萨达姆被捕，后被审判处决。
+评论称，俄罗斯入侵前，乌克兰总人口约4400万，不计死亡人数，至今已经有近2200万人受到严重影响。人道灾难将因战争的持续而加重。
 
-2004年6月，权力被移交给伊拉克临时政府。2005年1月，伊拉克人民选出了伊拉克国民议会。该国的新宪法于当年 10 月获得批准。
-
-参考链接：[伊拉克战争（维基百科）](https://zh.wikipedia.org/wiki/%E4%BC%8A%E6%8B%89%E5%85%8B%E6%88%98%E4%BA%89)
+参考链接：
+1.[UN: 6.5 million people displaced inside Ukraine](https://www.axios.com/un-internal-displacement-ukraine-russia-eaf8801e-d8ed-4063-a91e-8fd5ce9b45f1.html)
+2.[Microsoft Word – Update on IDP Figures in Ukraine – 18 March.docx](https://reliefweb.int/sites/reliefweb.int/files/resources/update_on_idp_figures_in_ukraine_18_march_eng.pdf)
+3.[UN: Over 3.2 million refugees have fled Ukraine since Russian invasion began](https://www.axios.com/ukraine-refugees-russian-invasion-un-9f8b6e8e-87ed-4a5b-b7e9-d9229b373dca.html)
+4.[UN: 6.5m people displaced inside Ukraine in addition to refugees who have left](https://www.lbc.co.uk/world-news/25fd6d2cd9c64960ba3689adb3ee0fe7/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：Jack Li文阳
+编辑：文真
 总编：Zion文恩
-审核：Jack Li文阳
+审核：文真
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
