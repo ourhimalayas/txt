@@ -2,30 +2,35 @@
 ---
 
 
-## 樱花时政┃中共在美搞“跨国镇压” 破坏司法影响选举
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2190067/)
+## 新罕布什尔州批准使用伊维菌素治疗疫情
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
 
-**撰稿：东京樱花团/Calvin**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/46742776-10E1-4241-8215-61B961BED900.jpeg)[**图片来源**](https://www.theepochtimes.com/chinese-secret-police-targeted-us-army-vet-on-american-soil-attempted-to-interfere-in-election-doj_4341794.html%3E)
-根据司法部（DOJ）3月16日解封的三起新的刑事案件，中共秘密警察及其特工正在美国领土上跟踪、骚扰、恐吓和密谋对民主活动家和中国持不同政见者实施暴力。 这些秘密警察的秘密行动包括干涉国会选举的阴谋，暗中试图逮捕中共的敌人，以及监视反共活动家的行动。
+作者：银河系农场—骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
+报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
 
-负责国家安全的助理司法部长马修·奥尔森在新闻发布会上谈到中共政权的官方名称时说：“这些案件暴露了中共政府压制美国境内不同声音的企图。并且让世人看到了中共如何试图跟踪、恐吓和压制那些反对他们的人。”
+有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
 
-据司法部称，在2021年1月至2022年3月的另一起案件中，刘凡、马修·齐布里斯和孙强据称对居住在美国的中国持不同政见者和民主活动家进行了骚扰和恐吓活动。
+参考链接：
+1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
+2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
 
-该运动涉及收集关于持不同政见者的贬损信息，以便在公众眼中羞辱或以其他方式诋毁他们。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-负责美国国家安全的助理司法部长奥尔森说：“对美国的司法部来说，捍卫美国机构和价值观免受这些威胁是美国国家安全的当务之急。这种“跨国镇压”是中国共产党试图破坏我们的民主、经济和机构的一系列策略的一部分。这种”跨国镇压“与美国的价值观是完全对立。当这种镇压违反我们的美国法律时，我们绝对不会对此有任何的容忍。”
+编辑：Irene木木
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-中共在美国的渗透之深，竟然可以运用特工在美国明目张胆地进行犯罪和绑架威胁，这令人感到恐怖。
-
-[信息来源](https://www.theepochtimes.com/chinese-secret-police-targeted-us-army-vet-on-american-soil-attempted-to-interfere-in-election-doj_4341794.html%3E)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
