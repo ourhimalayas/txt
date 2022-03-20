@@ -2,26 +2,34 @@
 ---
 
 
-## 秘翻在线：数千名马里乌波尔市民被强制转移到俄罗斯境内
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2196121/)
+## 中国军方称美国驱逐舰通过台湾海峡是 &#8220;挑衅 &#8220;行为
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196141/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-31.jpg)图片来源：https://news.yahoo.co.jp/pickup/6421467
-CNN报道，被俄军连续轰炸的乌克兰东南部港口城市马里乌波尔市议会19日发表声明，称部分居民被强行转移到俄罗斯境内。
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-声明称，过去一周有数千人被带走。俄罗斯军队非法将1000 多名妇女和儿童从避难所的体育俱乐部大楼中强行带走。
+翻译：li yan li
+编辑：朝花夕拾
 
-据说被带走的居民在俄罗斯军事基地接受手机和文件检查后被送往俄罗斯偏远地区。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647755453522.jpg)图片来源：雅典娜设计组
 
-据乌克兰军官称，马里乌波尔已被俄罗斯军队包围，并不断遭到轰炸。街道上到处都是尸体，居民们以共享有限的食物和水生存。
 
-报道称,该市的乌克兰主要钢铁厂之一正在发生一场战斗。新的卫星图像显示了被空袭摧毁的剧院。在建筑物外面，你可以清楚地看到标着‘儿童在里面’的文字。
+北京：中国军方周六（3月19日）说，美国驱逐舰拉尔夫-约翰逊号3月17日驶过台湾海峡是美国的 “挑衅 “行为，向亲台独立势力发出了错误的信号。
 
-声明指出，博伊琴科市长谴责了俄罗斯军方的行动，他认为这与二战期间纳粹德国强行迁移人民的行为非常相似。 他说：”在21世纪，人们被强行带往另一个国家，这令人难以置信”。
+中国军方发言人在一份声明中说，这种行为 “非常危险”，并补充说已组织军队监视拉尔夫-约翰逊号的通过。
 
-信息来源：[https://news.yahoo.co.jp/pickup/6421467](https://news.yahoo.co.jp/pickup/6421467)
+中国说，台湾是其与美国关系中最敏感和重要的问题。华盛顿与台北没有正式的外交关系，但却是台湾最重要的国际支持者和武器供应商。
 
-责编：Eric Kim
+中国国家主席习近平周五告诉美国总统拜登，台湾问题需要妥善处理，以避免对中美关系产生负面影响。
+
+新闻链接：[https://www.channelnewsasia.com/asia/chinese-military-says-us-destroyers-passage-through-taiwan-strait-provocative-2575011](https://www.channelnewsasia.com/asia/chinese-military-says-us-destroyers-passage-through-taiwan-strait-provocative-2575011)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
