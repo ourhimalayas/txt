@@ -2,8 +2,8 @@
 ---
 
 
-## 莫德韦切夫不是一般人，对中国文化极为精通
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200120/)
+## 独裁的狂妄导致对世界不真实的认知
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200150/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI
