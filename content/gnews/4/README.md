@@ -2,12 +2,19 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦法治基金乌克兰人道救援行动——大巴救援队归来
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2197780/)
+## 战友展示新中国联邦形象（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197888/)
 
-03/18/22 我们今天有几位战友康复回来归队。大家经过这段的调整，康复以后，我们都精神满满，回到工作岗位上。我们这次法治基金新中国联邦的救援行动也得到了波兰民间和国际NGO组织的认可和赞赏。
+#### PPT制作: 小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8：40-8：50-002.jpg)
+*发布：tianzhihuan*
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

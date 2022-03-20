@@ -2,19 +2,12 @@
 ---
 
 
-## 自强才能被帮助（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197049/)
+## 从军事角度和心理政治角度来看，台湾都是习近平的目标
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2197304/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-950-1000-2_2.jpeg)
-*发布：陶子*
+03/17/2022 美前海军上校、现安全政策格中心高级研究员兰特·纽沙姆：台湾对习近平来说是一个非常诱人的目标，从军事角度和心理政治角度都是如此。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
