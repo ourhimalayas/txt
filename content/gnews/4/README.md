@@ -2,12 +2,12 @@
 ---
 
 
-## 曾庆红不是一般的人（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196820/)
+## 战争下，新中国联邦接下来要做什么（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196845/)
 
 #### PPT制作: Qingjing ；玉米地的
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-930-940-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-940-950-3_3.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
