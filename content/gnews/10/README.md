@@ -2,12 +2,12 @@
 ---
 
 
-## 关于香港的未来（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194560/)
+## 关于香港的未来（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194574/)
 
 #### PPT制作: Qingjing ；玉米地的
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40-10-50-03-二-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40-10-50-03-四-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

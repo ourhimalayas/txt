@@ -2,25 +2,37 @@
 ---
 
 
-## 至少112名儿童死于战争！乌国妈妈泪诉：俄兵杀的是我们国家的未来
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2194549/)
+## 有声|面对制裁 俄罗斯无奈应对
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2194559/)
 
-乌克兰总检察长办公室19日表示，自俄罗斯入侵开始以来，已有112名儿童在乌克兰的战争中遇难。该检察长办公室表示，有112名儿童在俄罗斯侵略乌克兰的战争中遇难，另有140名儿童受伤。《路透社》则表示，此消息未能立即证明该信息的准确性。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月11日，国外媒体报道，一些俄罗斯人为了躲避制裁，为自己的财富寻求一个安全的避风港，正在使用加密货币投资阿联酋的房地产，还有一些人则希望利用那里的公司将他们的虚拟货币转换成硬通货，并藏匿在迪拜。为此，阿联酋的加密货币公司收到了大量变卖数十亿美元虚拟货币的请求。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-33-scaled.jpg)
+迪拜是海湾地区的金融和商业中心，也是一个日益壮大的加密货币中心，长期以来一直吸引着世界上的超级富豪。俄乌战争爆发以来，阿联酋拒绝在西方盟友和俄罗斯之间站队，这向俄罗斯人表明，他们的钱在迪拜是安全的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/44096036-d7ea-4120-9321-217c55989a09.jpg)图片来源：民视新闻
+同时，俄罗斯发动战争引起的西方盟友制裁已经对俄罗斯产生了方方面面的影响。3月15日，评级机构惠誉国际曾表示，俄罗斯威胁用卢布支付美元债券，将可能导致实质性的主权违约。如果发生，将是布尔什维克革命以来俄罗斯的第一次国际债务违约。3月16日，俄财政部长表示，已经对到期美元债券利息支付进行了处理，付款指令也已发送给通常处理此类交易的美国银行，但由于存在现金无法通过的风险，无法保证投资者能收到。
 
-一位乌克兰妈妈含泪表示，当俄罗斯人杀害我们的孩子时，他们杀害的是我们国家的未来，是国家的心脏和精神！
 
-简评：一张普京的流泪照！普京！你在什么时候会流泪？面对这么多死于战争的儿童，你会哭吗？也是行将就木的老人了，不要在这么的残忍了！为了你一人的野心，屠杀这么多的生灵，心里就那么的安心吗？人生在世，不指望你积德行善，赶紧的放下屠刀吧！
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022320W0005)
+文字版原文：[面对制裁 俄罗斯无奈应对](https://gnews.org/zh-hans/2191481/)
 
-撰稿/发布：一叶知秋
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
