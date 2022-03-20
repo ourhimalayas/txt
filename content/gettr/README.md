@@ -17,6 +17,41 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 10:05 PM (UTC)`
+
+3/20/2022 Miles Guo: Let’s say there are two options. You become a billionaire, but you will have to work with the CCP. Or you keep working to take down the CCP, but you will lose everything or even be thrown into jail. The CCP’s pawns overseas will certainly choose to work with the CCP without hesitation. The New Federal State of China does not tolerate any bureaucracy or formalism. We must adhere to the notion that only the truth prevails.<br/><br/>3/20/2022 文贵直播：如果给你一个选择，当亿万富翁但要和共产党合作，还是继续灭共但会失掉一切或进监狱？海外欺民贼一定决绝选择和中共合作；新中国联邦不能有任何官僚形式主义，必须坚持唯真不破<br/>
+![img](https://media.gettr.com/group4/getter/2022/03/20/22/69c20315-ec53-de27-ea82-8ccb55aeac4d/out.jpg)
+
+---
+
+`@miles 3/20/2022 10:05 PM (UTC)`
+
+The Chinese Communist Party is the root cause of the world's disasters. Only by eliminating the Chinese Communist Party, can we save all of humanity.<br/>We are at the Ukraine rescue frontline, telling the world with our actions that we love peace, that the CCP cannot represent the Chinese people, and that we are the new Chinese who are taking down the evil CCP.<br/>We have set up large, warm and well-equipped tents at the frontline to give a helping hand to the refugees, especially for mothers and children in need, providing them with a warm and safe harbour.<br/>Fellow chinese people and international friends in need of rescue, please contact us.<br/>中共是世界灾难的根源，只有消灭中共才能拯救全人类。我们在乌克兰救援前线，用行动告诉世界我们热爱和平、中共不代表中国人，我们是消灭邪恶中共的新中国人。我们在前线搭起了资源充足，温馨的大帐篷，向乌克兰救援前线需要帮助的难民、母亲、儿童施以援手，为他们提供温暖安全的港湾
+![img](https://media.gettr.com/group35/origin/2022/03/20/22/22b32e49-c97a-1d9c-fabe-c746dc712ea0/out.jpg)
+
+---
+
+`@miles 3/20/2022 9:58 PM (UTC)`
+
+3/20/2022 Miles Guo: There is virtually no chance that Xi Jinping’s invasion of Taiwan will lead to WWIII! The US will definitely be the winner, and that is only a matter of how much the victory will cost. Iran’s Ali Khamenei and Pakistan’s Imran Khan, who are following the CCP, are going to be taken out soon!<br/><br/>3/20/2022 文贵直播：习近平打台湾引发第三次世界大战的可能性微乎其微！美国毫无悬念会成为赢家，只是代价有多大的问题；跟共产党走的伊朗的哈梅内伊和巴基斯坦的伊姆兰·汗都要被干掉！<br/>
+![img](https://media.gettr.com/group33/getter/2022/03/20/21/bf79301d-fc3f-9696-4990-8e11d1cff450/out.jpg)
+
+---
+
+`@miles 3/20/2022 9:57 PM (UTC)`
+
+💥 💥The US sanctions to the CCP’s media are coming soon <br/>💥 💥 CCP’s mouthpieces are being cleaned up all over the world <br/>💥 💥 The evil CCP's mouthpieces, external and internal propagandas will be cut off completely<br/>💥 💥美国很快会对中共的媒体制裁<br/>💥 💥 海外欺⺠贼正在全世界范围内被清理<br/>💥 💥 邪恶中共喉舌大外宣、大内宣，就要被全部斩断
+![img](https://media.gettr.com/group45/origin/2022/03/20/21/305ab541-e86e-f4d1-deca-cf9586356f70/out.jpg)
+
+---
+
+`@miles 3/20/2022 9:57 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-20
+![img](https://media.gettr.com/group17/origin/2022/03/20/21/bcb283af-b4b5-b333-51ea-e0edc93ca260/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@pangushixun 3/20/2022 5:17 PM (UTC)`
@@ -125,41 +160,6 @@ U.S. veteran Al: “I hope you are successful in founding the NFSC in China and 
 
 2022.03.19晚 《新中国联邦新闻访谈》国际媒体对新中国联邦乌克兰人道救援的关注和反应   乌克兰网络通讯给我们的提示   香港中共病毒激增 棺材告急   西藏歌手被自焚 唤醒体制内人觉醒
 ![img](https://media.gettr.com/group16/origin/2022/03/20/01/2b849d5e-95a0-019d-8608-55750cffcb95/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/20/2022 1:01 AM (UTC)`
-
-3/19/2022 Miles Guo’s GETTR: Among Wang Qishan, Meng Jianzhu, Fu Zhenghua, Sun Lijun, and Liu Yanping, who will be executed by lethal injection? The fundamental difference between  Communist China and other foreign countries is that any living being is respected in these countries. Even murderers would be treated nicely with respect before being executed.<br/><br/>3/19/2022 文贵盖特：王岐山、孟建柱、傅政华、孙力军、刘彦平有谁会被注射毒针处死？中共国和外国的根本不同在于，任何生命在外国都受到尊重，连杀人犯在行刑前也能得到很好的礼遇<br/>
-![img](https://media.gettr.com/group36/getter/2022/03/20/01/3f24b7ae-120b-4aae-723e-7ba8cb7533b6/out.jpg)
-
----
-
-`@miles 3/20/2022 12:58 AM (UTC)`
-
-3月19号：共产党根本就是魔鬼，他没有脸，所以不会脸红！脸红的应该是我们14亿所有中国人……【1917年，俄国十月革命爆发，华人生命安全受到威胁，不得已，华人向当时的北洋政府发出急电请求救援。当时中国正处于军阀混战时期，但此时都主动停战，把接回华人当做第一要务。北洋政府派出四千名将士，一艘军舰，出兵远东，接回侨民。不但接回了活人，而且还把两具入殓的棺材运了回来。<br/>中共脸红吗？】
-![img](https://media.gettr.com/group23/getter/2022/03/20/00/c97645d7-84ba-2d83-2341-3d9f659446db/bf3d54e94ce7aeb38aeba724a9cffd12.jpg)
-
----
-
-`@miles 3/20/2022 12:56 AM (UTC)`
-
-3/19/2022 Miles Guo’s GETTR: Soaring prices have led to the collapse of the global supply chain. Is the virus or the COVID vaccine the culprit for the mass deaths in Hong Kong? The evil CCP doesn’t allow the Chinese people to take effective drugs, and they have to pay ridiculously high prices for the drugs if they want to take them. The Russian invasion of Ukraine only benefits Putin and Xi, but they are making the 1.4 billion Chinese people cannon fodder!<br/><br/>3/19/2022 文贵盖特：物价飙升导致全球供应链崩塌；造成香港大量死亡的罪魁祸首是病毒还是疫苗？邪恶的中共不让中国人吃有效的药，要吃还得支付天价药费；俄罗斯打乌克兰只对普京和习有利，却要拉上14亿中国人当炮灰！<br/>
-![img](https://media.gettr.com/group13/getter/2022/03/20/00/d8f21566-0319-57fc-001b-4c4b99f1c82d/out.jpg)
-
----
-
-`@miles 3/20/2022 12:30 AM (UTC)`
-
-2022.03.19 晚 《新中国联邦新闻》新中国联邦法治基金的救援行动开始受到全球华人关注； 梅迪卡救援营地成为灭共阵营
-![img](https://media.gettr.com/group20/origin/2022/03/20/00/27a0a19e-36a4-f8f4-90b4-3eba5bef6130/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 11:35 PM (UTC)`
-
-3/19/2022 Miles Guo’s GETTR: Failure to distinguish between true and false and good and evil is the necessary element leading to massive evil and catastrophes. While Russia is invading a small country like Ukraine, it is spreading false information everywhere about the surrender of Zelenskyy. Surprisingly, there are still people who believe that the Hang Seng Index can return to 35,000. If so, then go ahead and make investments.<br/><br/>3/19/2022 文贵盖特：不辨真假善恶，是大邪大恶大灾的必然元素；俄罗斯去攻击乌克兰这样的小国、还到处散布泽连斯基投降的假消息；竟然还有人相信香港股市能重回35000点，快去投吧<br/>
-![img](https://media.gettr.com/group34/getter/2022/03/19/23/5468edbb-02dd-fa56-0542-4f779ce27723/out.jpg)
 
 ---
 
