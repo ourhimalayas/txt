@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 11:00 PM (UTC)`
+
+2022.03.20 NFSC News  Rescue Efforts by NFSC And ROLF Gain Attention from Chinese Around the Globe； NFSC’s Mission and Views Are Shared by People of the World
+![img](https://media.gettr.com/group27/origin/2022/03/20/22/d593347a-8eaf-a752-0339-c32704b4835a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/20/2022 10:33 PM (UTC)`
 
 💦Frontline fellow fighters are decorating the media background walls outside the tent in Medyka. They are using Ukrainian Language to convey the real meaning of NFSC, ROLF and evil CCP.<br/><br/>❤️It is also one of the daily tasks to clean up the garbage that has accumulated around the camp tent. The clean and tidy tent environment also shows the image of the NFSC's people.<br/><br/>🔥As night falls, the NFSC's tents at Medyka have been redecorated to become media background walls<br/>Thanks to the hard work of our fellow fighters.<br/><br/>战友们在梅迪卡帐篷外装饰媒体区背景墙，用乌语拉近和当地难民的距离，持续向他们传递NFSC和ROLF及邪恶CCP的真正涵义。清理营地帐篷周围的垃圾也是日常工作之一，干净整洁的帐篷环境也展示了新中国联邦人的形象。夜幕降临，梅迪卡营地的帐篷外已经被装饰一新，成为一面面漂亮的媒体背景墙！
@@ -151,13 +158,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 U.S. veteran Al: “I hope you are successful in founding the NFSC in China and taking down the CCP. The CCP is not going to make the world any better. They are only gonna make it worse. Imaging a New China, a China that is not restrained by selfish politicians who are interested in their own names being on big signs. Imagining if the Chinese people were allowed to be productive and thoughtful, and thinking for themselves, that is going to be an incredibly powerful China. The powerful China is the one that is based on freedom.”<br/><br/>美国退伍军人Al：“我希望你们在中共国内成功创立新中国联邦并推翻中共。中共不会让这个世界变得更好, 只会让它变得更糟。想象一下新的中国， 一个不被这些自私的只在乎自己名利的政客束缚（统治下）的新中国。想象一下，如果允许中国人有创造力、有思想，并有自己独立的思考，那将是一个令人难以置信的强大中国，建立在自由之上的强大中国。”
 ![img](https://media.gettr.com/group43/origin/2022/03/20/03/cb1313d6-63b5-c7f2-dd41-11a11ff477ab/out.jpg)
-
----
-
-`@miles 3/20/2022 2:32 AM (UTC)`
-
-
-![img](https://media.gettr.com/group22/origin/2022/03/20/02/c11636d5-f78a-89cc-775d-edee77fda694/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

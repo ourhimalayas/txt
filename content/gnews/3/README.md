@@ -2,8 +2,8 @@
 ---
 
 
-## 爆料革命大直播是全球唯一为正义生死而战的群体
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200004/)
+## 莫德韦切夫被干掉代表什么
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200129/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI
