@@ -2,40 +2,62 @@
 ---
 
 
-## 朝鲜向黄海发射火箭 半岛紧张局势急剧升温
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2199334/)
+## 英国达人秀评委前往乌边境采访难民 新中国联邦旗帜入镜
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2199400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/n-1.jpg)fireontrend.com
-据路透社3月20日报道，朝鲜周日向黄海发射了疑似短程火箭，此前几天，朝鲜曾试图发射一枚弹道导弹，但因发射时爆炸而以大规模失败告终。朝鲜的最新一轮武器试验加剧了对朝鲜半岛紧张局势加剧的担忧。
+翻译： Jenny Ball
 
-韩国国防部表示，周日在朝鲜西海岸附近发现了 “短程射弹发射”。该部表示，它监测着局势并保持着准备状态。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2239.png)图片来源：dailymail.co.uk
 
-韩国参谋长联席会议在一份声明中说：“今天上午，朝鲜发生了射击事件，据推测是多枚火箭发射器的射击，我们的军队正在监测相关情况并保持备战态势。”
+阿曼达·霍尔登（Amanda Holden）已前往乌克兰边境，在那里她正在采访上个月普京入侵后逃离战争的难民们。
 
-韩联社报道，在朝鲜平安北道的一个未指明的地点，一小时内发射了四枚火箭。所有射弹都落在了黄海。
+这位 51 岁的英国达人评委正在波兰梅迪卡的一个难民营，该难民营距离乌克兰不远，阿曼达说：“亲眼目睹人们如此迅速地聚在一起，真是非同寻常。”
 
-韩国总统办公室说，它就发射事件举行了一次紧急国家安全委员会会议。委员会成员分析了有关发射的细节，并与美国保持密切联系。
+在那里，她一直在与那些生活因战争而被撕裂的人们交谈，制作一个名为“乌克兰隐藏的声音”的新播客，该播客为受影响的人提供了一个平台。
 
-韩国最近批准了采购价值数十亿美元的防御导弹盾牌的计划，类似于以色列的 “铁穹”，旨在击落朝鲜的弹道导弹和远程导弹，预计韩国将提高其在半岛的军事能力。
+已是两个孩子的妈妈的阿曼达，周五抵达波兰，她在“心脏调频”（ Heart FM） 上讲述了她的经历，她说：“我真的在看着人们从边境逃出。 见证了人们以非同寻常的速度聚在一起， 这里有一整个村子大了。”
 
-韩国正在进行权力交接，文在寅总统的任期将于5月结束，并将由尹锡悦领导的保守派政府取代，他呼吁与美国建立更强大的军事联盟。
+她接着说：“有食品和衣服的摊位和摊位。我从 Asda 和 Tesco 看到了一些东西。 这一切都来自哪里，真是太神奇了。人们正在供应茶、咖啡和热食。”
 
-周三，朝鲜发射了本应是今年第10次的武器发射，但因弹丸在助推器阶段发生爆炸而失败。
+“（救援）每件事都考虑到了，甚至还有狗绳、狗碗和儿童玩具。 没有什么是没有想到的”。
 
-最新的武器测试可能表明，朝鲜正准备发射在2020年阅兵式上首次亮相的Hwasong-17火箭，以测试其远程能力并将美国本土置于打击距离之内。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2241.png)图片来源：dailymail.co.uk
 
-**快评：**朝鲜金正恩最近一直没消停，动不动来个导弹发射，有失败有成功的，不断对韩国制造威胁，更以朝鲜半岛的紧张局势来要挟全世界。他的背后无疑是中共撑腰，灭了中共，朝鲜金家也会灰飞烟灭。
+现场：51 岁的英国达人秀评审官正在波兰梅迪卡的一个难民营度过，距离乌克兰不远，阿曼达说：“见证人们聚在一起的速度是非同寻常的。”
 
-这些邪恶轴心国，在俄罗斯入侵乌克兰之际一定搞些动静出来。但郭先生今天大直播里说，一个伊隆·马斯克单挑普京的言论，已经对普京背后的金主中共产生了巨大的震慑作用。没有人相信马斯克会说到做不到，普京和中共的导弹甚至核弹都不可能真地发出来，想想金正恩的导弹呢？估计就是个大炮仗，放了听个响而已。
+阿曼达在与乌克兰的一名女性在社交媒体帖子上联系后开始播客，随后 “心脏调频”主持人决定做一些事情，让受悲惨冲突影响的平民有发言权。
 
+此后，她录制了七集播客，并在周末之前前往波兰，亲眼目睹难民正在面对的事情，并与人们进一步面对面交谈。
 
+阿曼达在她的 Instagram 上记录了她的访问，分享了难民营的几张图片和视频。
 
-参考链接：
+在一段鲜明的视频中，阿曼达展示了当天早些时候在乌克兰城市利沃夫被投炸弹后，排长队等待返回乌克兰城市利沃夫去帮助的人。
 
-[https://www.reuters.com/business/aerospace-defense/nkorea-fires-multiple-rocket-launcher-south-says-2022-03-20/](https://www.reuters.com/business/aerospace-defense/nkorea-fires-multiple-rocket-launcher-south-says-2022-03-20/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2243.png)图片来源：dailymail.co.uk
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2245.png)图片来源：dailymail.co.uk
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2247.png)图片来源：dailymail.co.uk
+
+令人心碎：在一段鲜明的视频中，阿曼达展示了当天早些时候在乌克兰城市利沃夫被投下炸弹后，排长队等待返回乌克兰城市利沃夫帮助抵抗的人们而另一个展示了一个男人，被称为“和平钢琴家”，在营地中间弹钢琴。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2249.png)图片来源：dailymail.co.uk
+
+阿曼达还拍摄了那里寄来的成堆捐款，包括衣服、床上用品和轮椅。
+
+此外，这位电视名人还上传了一张布里斯托尔慈善机构成员的照片，同时，对英国政府进行了挖苦，她写道：“尽管我们政府的官僚作风可笑，但这个小小的慈善机构却试图产生重大影响。”
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2251.png)图片来源：dailymail.co.uk
+
+素材：文舞
+素材链接：[dailymail.co.uk ] [‘It’s extraordinary to witness how quickly people have got together’: Amanda Holden travels to the Ukraine border to interview refugees fleeing the conflict after Putin’s invasion](https://www.dailymail.co.uk/tvshowbiz/article-10630353/Amanda-Holden-travels-Ukraine-border-interview-refugees-fleeing-conflict.html)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

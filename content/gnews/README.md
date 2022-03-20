@@ -15,65 +15,65 @@
 
 ---
 
-### [英国达人秀评委前往乌边境采访难民 新中国联邦旗帜入镜](/content/gnews/1/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月20日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [乌克兰正向世界展示其卓越的战斗力](/content/gnews/2/README.md)
+ ` xiaobaige`
+
+### [英国达人秀评委前往乌边境采访难民 新中国联邦旗帜入镜](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [反战音乐视频&#8211;多想活着](/content/gnews/2/README.md)
+### [反战音乐视频&#8211;多想活着](/content/gnews/4/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [朝鲜向黄海发射火箭 半岛紧张局势急剧升温](/content/gnews/3/README.md)
+### [朝鲜向黄海发射火箭 半岛紧张局势急剧升温](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文贵爆料 3.20：马斯克“星链”——夜空中人类的守护神](/content/gnews/4/README.md)
+### [文贵爆料 3.20：马斯克“星链”——夜空中人类的守护神](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [国际新闻热点 International News Updates](/content/gnews/5/README.md)
+### [国际新闻热点 International News Updates](/content/gnews/7/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [泽连斯基说若与俄谈判破裂第三次世界大战就会发生](/content/gnews/6/README.md)
+### [泽连斯基说若与俄谈判破裂第三次世界大战就会发生](/content/gnews/8/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [泽连斯基敦促以色列提供铁穹导弹防御系统](/content/gnews/7/README.md)
+### [泽连斯基敦促以色列提供铁穹导弹防御系统](/content/gnews/9/README.md)
  ` Shuizhuyu`
 
-### [文贵爆料3.20：开仗前，美先灭中共媒体平台](/content/gnews/8/README.md)
+### [文贵爆料3.20：开仗前，美先灭中共媒体平台](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄罗斯寡头遭受严重损失，推翻普京政权成为当务之急](/content/gnews/9/README.md)
+### [俄罗斯寡头遭受严重损失，推翻普京政权成为当务之急](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [中共病毒肆虐香港，棺材和殓房已用尽](/content/gnews/10/README.md)
+### [中共病毒肆虐香港，棺材和殓房已用尽](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [日本和柬埔寨敦促俄立即结束在乌的战争](/content/gnews/11/README.md)
+### [日本和柬埔寨敦促俄立即结束在乌的战争](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [独裁者只为个人和家族特权而活](/content/gnews/12/README.md)
+### [独裁者只为个人和家族特权而活](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [白俄罗斯宣布选择人民币结算](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
-
-### [歌曲《锁链梦》音乐视频正式发布](/content/gnews/14/README.md)
+### [歌曲《锁链梦》音乐视频正式发布](/content/gnews/15/README.md)
  ` NFSC News`
 
-### [文贵大直播要点（2022年3月20日）](/content/gnews/15/README.md)
+### [文贵大直播要点（2022年3月20日）](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [乌克兰副总理怒斥中共外交部发言轻佻](/content/gnews/16/README.md)
+### [乌克兰副总理怒斥中共外交部发言轻佻](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [文贵大直播 3/20 新中国联邦救援不会停 除非战争停止](/content/gnews/17/README.md)
+### [文贵大直播 3/20 新中国联邦救援不会停 除非战争停止](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [3/20/2022国内经济财经周报：7哥爆料后中概股紧急拉涨；阳光城50亿债违约，当日股价却涨停](/content/gnews/18/README.md)
+### [3/20/2022国内经济财经周报：7哥爆料后中概股紧急拉涨；阳光城50亿债违约，当日股价却涨停](/content/gnews/19/README.md)
  ` 秘密翻译组金融团队`
 
-### [视频|一周疫情、疫苗信息回顾](/content/gnews/19/README.md)
+### [视频|一周疫情、疫苗信息回顾](/content/gnews/20/README.md)
  ` MOSVIDEO`
-
-### [多国谴责俄罗斯滥用联合国安理会](/content/gnews/20/README.md)
- ` NFSC News`
 
 ### [2022/03/20 英喜时事速递](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

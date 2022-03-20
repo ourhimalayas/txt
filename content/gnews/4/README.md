@@ -2,29 +2,16 @@
 ---
 
 
-## 文贵爆料 3.20：马斯克“星链”——夜空中人类的守护神
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2199318/)
+## 反战音乐视频&#8211;多想活着
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2199387/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6874551d-334f-41a6-8ad3-ecfd22158fa6.jpg)
-主导现代战争的不再是浴血厮杀的千军万马，而是可”制敌于千里，杀敌于无形”的尖端科技。此次俄乌战争，硅谷科技巨头悉数亮相。”太空战、网络战、电子战”，及战场上”致命武器”，”将空地一体战、定点狙杀、通信瘫痪”等，玩到了极致，可谓硝烟未散，胜负立见。而其中最闪亮的莫过于马斯克的太空“星链”，它将核战的企图永远定格在暴君的梦呓中，也让乌克兰变成了“帝国坟场”。
+战友出品：noon\_Will
+德国纽伦堡正义农场
 
-郭文贵先生在3月20日的大直播中说，马斯克“星链”彻底改变了人类军事的走向，对这场战争、对整个世界将产生深远的影响，它可让人类免于核灾难，马斯克的雕像应该屹立在月球上。
+新中国联邦前线救援战友告诉我们，在梅迪卡的难民营中基本都是妇女和儿童。年龄在18-60岁之间的男人都留在乌克兰保卫家园。这首《多想活着》的反战音乐视频以蒙太奇的方式展示了俄罗斯入侵乌克兰造成的破坏。它描述了现实，恐怖，勇敢以及被强加在普通人身上的牺牲-他们只想活下去。活着只是为了去爱，与你黎明时一同醒来，享受灿烂的日出，一起下厨煮咖啡。活着是为了让孩子永不忘！为乌克兰祈祷！我们与乌克兰人民站在一起。音乐视频由德国纽伦堡正义农场的無遠弗届制作。
 
-俄罗斯这场战争的惨败归结于：1，独裁者的狂妄，独裁导致对世界完全不真实的认知。就像当年毛泽东一样，如果他能周游世界，他就不会愚蠢地说，与天斗、与地斗、与人斗，其乐无穷。就不会说，美国来打吧，我死上三亿，再生三亿。2，输在了科技。这场战争实质上是一场科技战争，可以说是世界的战争跟人已经没有关系了，普京和习近平是一对科盲。
-
-马斯克的一句话，振聋发聩，彻底改变了人类军事的走向，对这场战争、对世界的影响太大了，它让我热血沸腾。他说：“普京找个没人的地方，你来发核弹，不要告诉我时间，不要告诉我数量，也不要通知我，你尽管射。”这几个词多性感，字字千金，为了这句话我万死不辞，人类的战争已经彻底改变。
-
-美国为什么伟大？因为有无数个马斯克。马斯克是移民，在美国80%的科技和财富的创造者都不是美国人，而是美国的新移民。这就是美国为什么牛。克林顿创建了互联网。之后，又有半导体呃、芯片、生物科技、太空科技，这些高科技把美国推上了巅峰。全球精英都涌向美国，有到中国的吗？
-
-马斯克放出豪言后，共产党内部亮起了黄灯，紧急开会。研究马斯克的这段话。这对习近平和普京是怎样的震撼啊！就如同在拳击场上，吹一口气就可将拳王打倒。这一口气儿也能拯救全球七十五亿人。它的机理是可以改变发射体GPS的密码，从而改变其攻击方向。马斯克的雕像应该屹立在月球上去，立在地球上都侮辱了他。
-
-郭先生说，独裁者一生为权力而战，权力让他们变成了魔鬼，他们不会放弃权力。俄乌战争不会停，一种可能是，普京及其家人可能通过各种渠道让乌克兰让步，最后体面地达成和解，另一种可能是，普京被内部人干掉。
-
-参考链接：
-
-[2022年3月20日 文贵直播](https://gettr.com/streaming/p10y5j870c5)
-
+NFSC volunteers told us that there are almost all women and children in the refugee camps in Medyka. Men aged between 18 – 60 stayed in Ukraine to protect their homeland amid Russian invasion. The music video is a montage of scenes showing the devastation of the Russian Invasion of Ukraine. It depicts the realities, terror, bravery, and sacrifice being thrust upon normal people – who just want to live. To live just to love, to enjoy the crimson sunrise, to wake up with you at dawn and to take and brew a cup of coffee. Live to be remembered by children！Pray for Ukraine. We stand with Ukrainian people. This musical video is made by @noone\_Will from Himalaya Nuremberg Germany.
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
