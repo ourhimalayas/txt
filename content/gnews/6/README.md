@@ -2,33 +2,29 @@
 ---
 
 
-## 欧盟掌握中共支持俄罗斯的确凿证据
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198987/)
+## 乌克兰副总理怒斥中共外交部发言轻佻
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2199081/)
 
-作者：纽约香草山 侠肝义胆
+作者：香草山农场教育部 saner三二
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒3月18日报道，一名欧盟高级官员表示，欧盟领导人掌握了中共向俄罗斯提供军事援助的确凿证据。这名官员警告中共，如果继续交付并支持俄罗斯的军事武器，欧盟将会对中共国采取贸易制裁措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.51.png)
-据媒体本周早些时候报道，美国政府官员也对中共向俄罗斯提供军事装备的行为，发出了类似警告。
+3月18日，乌克兰副总理伊琳娜·韦列舒克针对中共外交部发言人赵立坚的言论，撰文愤怒回应，指责中共外交言论“轻佻”，配不上大国地位。
 
-这位欧盟官员还表示，欧盟高度关注中俄交易对乌克兰战争的影响。欧盟所有领导人都非常清楚，中共支持俄罗斯的事实，但中共却一再否认。这位欧盟官员认为，只有采取贸易壁垒式的惩罚措施，才能制止中共。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-9.jpeg)
 
-参考链接：[EU has ‘very reliable evidence’ China is considering military support for Russia](https://www.politico.eu/article/eu-has-very-reliable-evidence-china-is-considering-military-aid-for-russia/)
+赵立坚在答记者问时，讽刺美国支援乌克兰武器装备是在增加平民的伤亡。 乌克兰副总理伊琳娜·韦列舒克发文反驳道，俄罗斯正在轰炸乌克兰城市的住宅区，乌克兰需要防空系统来抵御入侵。她建议，中共外交部征求160名中国留学生的意见，因为这些人在上周由乌方从俄罗斯炮击中解救出来。同时，她呼吁中共停止支持俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+在乌克兰副总理的发文中，值得注意的是，乌克兰军队上周从俄罗斯炮击中解救了160名中国留学生。但此消息在中共国内没有任何报道。中共外交部在3月9日曾宣称，“在乌克兰的绝大多数中国公民已经撤离”。但媒体披露，中共媒体大肆宣扬的撤侨图片是2011年撤侨时的假照片。
 
-编辑：文真
+乌克兰副总理的发文不仅怒斥了中共外交部的谎言，更让中共的虚假宣传再度现形。
+
+参考链接：[赵立坚“战狼式”回应惹怒乌克兰副总理 怒斥言论“轻佻”](https://www.timednews.com/article/2022/03/18/16310.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
 总编：Zion文恩
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+审核/编辑：文真  
+校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

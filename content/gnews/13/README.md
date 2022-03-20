@@ -2,29 +2,39 @@
 ---
 
 
-## 日本首相访问中共国主要合作伙伴之一的柬埔寨
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2198802/)
+## 联合国：648万人在乌克兰境内流离失所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198986/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3.20-F.jpg)网络图片
-日本首相岸田文雄周日访问柬埔寨，与该国的长期领导人洪森进行会谈，以深化关系，并呼吁在东南亚地方推动法治。
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月18日，联合国移民机构发表文件称，联合国人道主义事务协调厅调查显示，自2月24日俄罗斯入侵以来，截至3月16日，乌克兰境内的流离失所者人数为648万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.43.png)
+据估计，由于安全风险增加、桥梁道路被毁、缺乏资源，或缺少安全地点或住宿等因素，超过1200万人滞留在受战争影响地区，无法撤离。被困人群需要人道主义援助和基本物资，包括食品、水和药品。
 
-岸田和洪森在一份联合声明中谴责俄罗斯对乌克兰的侵略，并呼吁“立即停止使用武力并从乌克兰领土上撤出军队”。他们强调“在任何场合都不能接受威胁或使用各种大规模杀伤性武器”。
+同日，联合国难民署称，开战以来，320多万难民逃离了乌克兰。根据联合国儿童基金会发言人詹姆斯-埃尔德，在3月15日表示，超过150万名儿童已逃离乌克兰。
 
-日本是柬埔寨第二大的捐助国，排在中共国之后。该国向柬方资助了桥梁、道路、港口、电力和供水的建设。然而日本和美国也对中共国在该地区日益增强的军事实力表示担忧。在柬埔寨，华盛顿最近一直在关注中共国在云母海军基地建设新的设施，同时评估其军队未来在该基地拥有基地权的可能性。
+评论称，俄罗斯入侵前，乌克兰总人口约4400万，不计死亡人数，至今已经有近2200万人受到严重影响。人道灾难将因战争的持续而加重。
 
-令湾面向毗邻南中国海的泰国湾，中国与其较小的东南亚邻国在该地区陷入领土争端。柬埔寨普遍支持北京的地缘政治立场，作为回报，北京对洪森的支持让柬埔寨可以无视西方对其在人权和政治权利方面糟糕记录的担忧。
+参考链接：
+1.[UN: 6.5 million people displaced inside Ukraine](https://www.axios.com/un-internal-displacement-ukraine-russia-eaf8801e-d8ed-4063-a91e-8fd5ce9b45f1.html)
+2.[Microsoft Word – Update on IDP Figures in Ukraine – 18 March.docx](https://reliefweb.int/sites/reliefweb.int/files/resources/update_on_idp_figures_in_ukraine_18_march_eng.pdf)
+3.[UN: Over 3.2 million refugees have fled Ukraine since Russian invasion began](https://www.axios.com/ukraine-refugees-russian-invasion-un-9f8b6e8e-87ed-4a5b-b7e9-d9229b373dca.html)
+4.[UN: 6.5m people displaced inside Ukraine in addition to refugees who have left](https://www.lbc.co.uk/world-news/25fd6d2cd9c64960ba3689adb3ee0fe7/)
 
-令湾面向毗邻南中国海的泰国湾，中国与其东南亚邻国在该地区存在领土争端。柬埔寨过去普遍支持北京的地缘政治立场，而作为回报，中共对洪森的支持让柬埔寨可以无视西方对其人权和政权糟糕记录的担忧。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-然而，联合声明中的语言似乎间接批评了中国在南海的一些行动，这对柬埔寨来说是一个不寻常的表态。岸田和洪森重申继续维护南海和平、安全、安全、航行和飞越自由以及国际法，包括 1982的联合国海洋法公约。
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-*发稿：Gradient Boost*
-
-新闻参考链接：
-
-[AP News](https://apnews.com/article/covid-business-health-asia-japan-b0db20c47a260a7063e05029298d391d)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,75 +2,37 @@
 ---
 
 
-## 战争集会上普京演讲的电视直播画面被切
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2198800/)
+## 历史上的今天 (3月20日)
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198985/)
 
-翻译：噜噜咪
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-30-edited-1.png)图片来源：mirror.co.uk
-弗拉基米尔·普京在一个支持战争的集会上发表演讲时，话说了一半画面就消失了。
+作者：纽约香草山农场教育部-马克文、朱丽叶
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2003年3月20日，美国、英国等国的军队联合在伊拉克境内发动军事行动，伊拉克战争爆发。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.37.png)
+2001年9月11，美国本土遭到了连番恐怖主义袭击，美国时任总统布什向“恐怖主义”宣战，并将伊拉克、阿富汗等多个国家列入“邪恶轴心国”。
 
-普京正在颂扬俄罗斯非法入侵乌克兰的原因，突然，俄罗斯国家电视台直播的画面中断了。
+美国等国指责伊拉克继续拥有和制造大规模杀伤性武器，以及它对包括基地组织在内的恐怖组织给予支持。2003 年 3 月 17 日，布什宣布断绝外交关系，并向萨达姆·侯赛因发出最后通牒，给予 48 小时离开伊拉克，遭到萨达姆拒绝。
 
-这位俄罗斯总统一直在赞扬他的部队，他说这些部队继续在乌克兰“英勇战斗”。
+最后期限过去后约 90 分钟，联军于 3 月 20 日发动了攻击。三周后，伊拉克平民和美国士兵在巴格达的菲尔多斯广场推倒了萨达姆的雕像。联军在短短三周内推翻了萨达姆独裁政权，并占领了伊拉克的主要城市，几乎没有人员伤亡。布什总统于 2003 年 5 月 1 日宣布结束主要战斗行动。12 月 14 日萨达姆被捕，后被审判处决。
 
-画面显示，普京有自己的巨型舞台，所以没有人能够接近他——人们认为这位暴君非常担心感染上中共病毒COVID。
+2004年6月，权力被移交给伊拉克临时政府。2005年1月，伊拉克人民选出了伊拉克国民议会。该国的新宪法于当年 10 月获得批准。
 
-他身后的标语写道：“为了一个没有纳粹主义的世界/为了俄罗斯”。
+参考链接：[伊拉克战争（维基百科）](https://zh.wikipedia.org/wiki/%E4%BC%8A%E6%8B%89%E5%85%8B%E6%88%98%E4%BA%89)
 
-在庆祝吞并克里米亚八周年的时候，他说：“我们因同一命运而团结在一起。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1_Russian-President-Vladimir-Putin-attends-a-concert-marking-the-eighth-anniversary-of-Russias-annexa.jpg)普京在纪念俄罗斯吞并克里米亚八周年的音乐会上发表讲话(路透社)
+编辑：Jack Li文阳
+总编：Zion文恩
+审核：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-“这就是人民的想法，这就是他们在塞瓦斯托波尔举行公投时的指导思想。”
-
-“他们希望与祖国俄罗斯分享他们的历史命运——让我们在这个场合祝贺他们，这是他们的场合。祝贺他们。”
-
-在他发表讲话时，人群挥舞着旗帜，高呼“俄罗斯，俄罗斯”，以示庆祝。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1_Russian-President-Vladimir-Putin-attends-a-concert-marking-the-eighth-anniversary-of-Russias-annexa-1.jpg)普京说到一半直播画面就消失了（路透社）。
-
-他向集会上的数千人承诺，克里姆林宫的所有目标都将通过国家的行动来实现。
-
-周五，在俄罗斯军队继续炮击乌克兰城市时，这位领导人发表了大约5分钟的讲话。
-
-“我们知道我们需要做什么，如何做以及付出什么代价。而且我们绝对会完成我们所有的计划，”他说。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0_RUSSIA-UKRAINE-CONFLICT-CRIMEA-ANNEXATION-ANNIVERSARY.jpg)庆祝吞并克里米亚的亲俄罗斯集会（盖蒂图片）。
-
-他说，那些在“特别军事行动”中战斗的人给国家带来了团结。
-
-“他们肩并肩，相互帮助，相互支持，在需要的时候，他们像兄弟一样用身体挡住子弹。他说：“这样的团结我们已经很久没有过了。”
-
-体育场的舞台上打出了“为了一个没有纳粹主义的世界“和“为了我们的总统”的口号，并使用了在乌克兰的装甲车上已经成为一种可怕的熟悉景象的“Z”字。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0_RUSSIA-UKRAINE-CONFLICT-CRIMEA-ANNEXATION-ANNIVERSARY-1.jpg)莫斯科卢日尼基体育场的人群（盖蒂图片)
-
-从亲俄罗斯的人对吞并克里米亚周年的反馈来看，这似乎是一个非常爱国的场合。
-
-但是，当他似乎还在向广大群众发表讲话时，直播突然切换到其他画面，而领导人却不见了踪影。
-
-这是一个奇特的中断，似乎导致他在话语中消失。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-1-10.png)民众在亲俄活动中欢呼并挥舞旗帜（图片:Россия24/SWNS)
-
-克里姆林宫声称，普京在莫斯科体育场的讲话传输中断的背后原因是一个技术故障。
-
-该国的国家电视台突然切断了普京对俄罗斯所谓的在乌克兰的特别行动和其士兵的英勇行为的赞美，转而显示活动中正在播放爱国歌曲。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-2-9.png)在普京发表讲话的集会上，卢日尼基体育场外的人群(图片:Россия24/SWNS)
-
-它后来播出了完整的演讲，在剪接后几秒钟结束，普京离开了舞台，成千上万的观众在可容纳8万人的卢日尼基体育场挥舞俄罗斯国旗。
-
-**参考资料：**[mirror.co.uk][Vladimir Putin ‘vanishes mid-sentence’ live on TV while giving speech at pro-war rally](https://www.mirror.co.uk/news/world-news/breaking-vladimir-putin-vanishes-mid-26501457)
-
-* * *
-
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

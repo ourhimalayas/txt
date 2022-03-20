@@ -2,30 +2,28 @@
 ---
 
 
-## 视频|新中国联邦乌克兰救援行动仍在继续
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2199061/)
+## 中共病毒肆虐香港，棺材和殓房已用尽
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2199165/)
 
-作者：香草山视频部
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月18日外媒报道，香港中共病毒大爆发，港共政府采取清零政策，关闭了商店和街头抗议活动。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-7.jpeg)
 
+目前，香港的剧院、博物馆、学校、健身房和图书馆全部关闭，这恐将迫使人们患上了幽闭恐惧症。港共政府还在推行中共病毒疫苗接种。无论哪一种方式，全封闭隔离或者接种中共病毒疫苗，不但没有控制中共病毒大爆发，甚至导致更多死亡病例。 香港目前的死亡率居世界之最，棺材和停尸房间已经用尽，死去的人的尸体胡乱堆积在医院的病房。
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。同时，自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-求助方式及详细信息请参考以下视频。（请播放视频，视频时长1’19’’）
+中共病毒大流行之前，香港人争取自由，走上街头的抗议活动频繁发生。中共最开始就是企图用病毒生化武器来压制香港的民主运动，杀害香港人。自中共病毒大流行以来，港府禁止在公共场合聚集超过四人。目前，无论是在香港本地，或者想要离开香港的人，都要接受严苛的中共病毒政策，包括隔离和清零政策。
 
-（视频链接：[https://www.gettr.com/post/pzvg8vdf4f](https://www.gettr.com/post/pzvg8vdf4f)）
+参考链接；
+1. [https://gettr.com/post/p10scjwf5f2](https://gettr.com/post/p10scjwf5f2)
+2. [Here in Hong Kong, Covid has surged and we’ve run out of coffins. Please learn from our mistakes](https://www.theguardian.com/commentisfree/2022/mar/18/hong-kong-covid-surge-vaccination-rates)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-
-发稿：文敬
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+总编：Zion文恩
+审核/编辑：文真  
+校正/发稿：谐趣园
 
  
 

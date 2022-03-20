@@ -2,38 +2,33 @@
 ---
 
 
-## MV版Hcoin To the Moon上线101天第37次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198653/)
+## 樱花FM|中日财经爆:323家中概股蒸发3260.9亿美元
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2198732/)
 
-3/20/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线101天第37次位列匈牙利iTunes热门音乐视频榜榜首，第52次位列前三名
+音频：东京樱花团/战友520
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/323家中概股蒸发3260.9亿美元-1.png)
 
-[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+3月14日财联社报道，据财联社星矿数据，截至3月11日收市，在美上市的323家中概股中，今年3月总蒸发市值已达3260.9亿美元，折合20706亿人民币。323家中概股当中，以上市后股价最高点与3月11日收市价计，156家公司的股价跌幅达90%及以上，占比达48.29%。
 
-* * *
+在此次下跌超一半的公司则多达262家，占比为81.1%。当中，阿里巴巴3月市值累跌501亿美元，排名第一，股价自高点蒸发73%；拼多多3月市值累跌247.3亿，股价自高位蒸发84%；滴滴3月市值累蒸发106.6亿，股价由高位跌去88%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+与此同时，香港恒生指数下跌4.97%，报19531.66点，这是自2016年7月以来首度跌破20000点大关，恒生企业指数下跌7.15%，恒生科技指数下跌11.03%。截至收盘，机场、餐饮旅游指数跌超7%，酒类、电工电网、农业、海运、航空、日用化工、软饮料指数跌超4%。
+
+两市合计共有4266只个股下跌，A股总市值达853797.02亿元，较前一交易日蒸发22410.85亿元，完全可以载入历史，创单日最大跌幅。
+
+不论是在美国还是在港上市企业，以假骗偷为主要手段，最终坑害的是各地人民的血汗钱，而随着中共病毒失控和毒疫苗灾难蔓延，已掩盖不住中共经济即将到来的崩溃。
+
+文字版原文：
 
 
-[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+| [中日财经爆┃323家中概股蒸发3260.9亿美元](https://gnews.org/zh-hans/2163037/) |   |
+| --- | --- |
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
