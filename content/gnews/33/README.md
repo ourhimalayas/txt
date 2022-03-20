@@ -2,35 +2,37 @@
 ---
 
 
-## 俄罗斯最大的银行Sberbank获准交换加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
+## 上海交大疫情管控混乱，长期封校引发学生恐慌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196242/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### **【雅典娜观察】和您一起洞察世界**
 
-翻译/编辑：小红帽
+**整理/编辑：文泓**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/EBCZ4VHD7A@QIDYB.png)图片来源：Sfgate & 雅典娜设计组
 
 
-根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
+3月18日，据大纪元报道，中共病毒疫情持续扩大，上海多家医院暂停相关医疗服务。已封校的上海交通大学出现疫情，因校方疫情管控混乱，引发学生恐慌，不断上网投诉。
 
-俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
+3月12日，多家高校已发布紧急通知称，防控管理转为准封闭管理或封闭管理，要求“足不出户”管控。上海交通大学早在3月9日上午就突然封校，“只进不出”，已经在校的教职工无法离校，当天超市的方便面都抢不到。
 
-据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
+3月12日起宿舍楼开始封闭，13日凌晨隔离教室有一人阳性，阳性者被留下来，另外有3个阴性的回到宿舍，学校对这个寝室的同学没有任何的保护措施，而交大疫情一直持续扩大。
 
-俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
+宿舍楼的楼管阿姨出现阳性，大楼无人管理，宿舍楼进入学生“自治”状态，由学生负责大楼清洁卫生。截至3月18日已经封闭9天。
 
-据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
+对于学校宿舍楼里不断检测出阳性病例，记者3月18日打电话到上海交大闵行校区校医院，关于学校疫情没有控制住，一位女医生表示，“不知道，这些我们都不知道。”
 
-新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
+宿舍学生不断在网上发帖抗议，“严控的西14楼有200多名学生，他们暴露在疫情感染的危险中，背后有200多个家庭，东中院隔离的学生是十几个人，背后也是十几个家庭，在他们发高烧没有人管的时候，他们真的很绝望……是否需要学生闹起来，才肯采取措施？”
+
+原文链接： [上海交大封控混乱 学生恐慌](https://www.epochtimes.com/gb/22/3/18/n13655062.htm)
 
 发布：tianzhihuan
 
-更多资讯，请关注：
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

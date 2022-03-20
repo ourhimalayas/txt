@@ -2,19 +2,12 @@
 ---
 
 
-## 自强才能被帮助（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197011/)
+## 【乌克兰救援】美老兵赞扬新中国联邦和法治基金乌克兰救援和推翻中共
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2197012/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-950-1000-2_1.jpeg)
-*发布：陶子*
+03/19/22 美国退伍军人Al：中共是可怕的邪恶的政权，推翻共产党，成功建立信中国联邦，结束14亿中国人被中共盗国贼奴役的命运；新中国联邦的大帐篷为女儿和孩子提供了温暖；感谢为法治基金捐款的中国人，不要放弃，自由靠自己争取。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

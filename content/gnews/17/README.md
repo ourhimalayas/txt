@@ -2,27 +2,38 @@
 ---
 
 
-## 美国进口俄罗斯商品 面临关税大幅上升
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2197136/)
+## 一周疫情、疫苗信息回顾
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2197137/)
 
-作者：日本银河系农场 – Totoro
+作者：DC农场 – 火来
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院3月17日通过了一项法案，暂停与俄罗斯及其盟友白俄罗斯的正常贸易关系，以回应普京入侵乌克兰的决定，为对关键商品和原材料的进口大幅提高关税打开了大门。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-32.jpg)
-纽约州民主党参议院多数党领袖查克·舒默说，参议院将很快讨论该法案，为拜登总统最快于下周签署该法案成为法律奠定基础。
+2022年3月9日至3月16日，除中共国外，全球新增中共病毒确诊患者1227万余例，同比上周增长了8.39 %。此外，本周新增确诊死亡病例超过38578例，同比上周下降了21.1%. 截至3月16日，除中共国外，全球累计接种了79.7亿剂中共病毒疫苗，同比9日的接种数据增长了2.05%。
 
-俄罗斯是美国第26大货物贸易伙伴，从该国进口的货物占美国总进口量的1%左右。一些关键商品则占有更大份额。例如，俄罗斯来源的钛产品占美国总进口量的53%。如果国会撤销俄罗斯的永久正常化贸易地位，这些商品的关税可能从15%上升到45%。其他可能受到影响的商品包括铝、钢铁和黄金等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-43.png)
 
-拜登总统上周宣布禁止进口俄罗斯石油和某些石油产品，同时还禁止进口海鲜、伏特加和钻石等商品，被禁止的项目即使以高得多的海关税率也无法获得进口。
+本周，除中共国外，全球疫情新增感染人数和新增死亡人数持续下降。然而，中共国多地疫情失控。香港地区疫情持续升温，第五波疫情仍在持续。原本用于接收轻症患者的亚博馆场地，已被用作接受重症患者。
+
+3月9日，奥地利宣布暂停强制所有奥地利成年人接种疫苗的法律。3月9日，网球巨星诺瓦克·德约科维奇通过其个人推特宣布，由于美国疾控中心CDC的规定，尚未接种中共病毒疫苗的他无法获得美国签证，因此无法参加美国加州和佛罗里达州举办的参赛。3月13日，美国前总统奥巴马宣布自己被中共病毒感染，症状轻微。3月15日，继美国，欧洲之后，巴西卫生部长也宣布，在巴西境内出现“Deltacron” 混合变种病毒感染病例。3月15日，辉瑞正式向美国FDA提交紧急授权申请，寻求获得针对65岁以上老人第四针疫苗的使用许可。3月16日，日本政府决定在21天的最后期限日之前，取消东京、大阪等18个县的“中共病毒”强制防控措施。
 
 链接：
 
-- [Here Are the U.S. Top 10 Imports From Russia as Tariffs Are Set to Rise](https://www.barrons.com/articles/russia-tariffs-imports-51647632904?mod=RTA)
+- [Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-09..latest&amp;country=~World+excl.+China)
+- [Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-09..latest&amp;country=~World+excl.+China)
+- [COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-09..latest&amp;country=~World+excl.+China)
+- [Austria suspends mandatory Covid vaccination law](https://www.theguardian.com/world/2022/mar/09/austria-suspends-mandatory-covid-vaccination-law)
+- [New COVID-19 ‘deltacron’ variant confirmed in Brazil](https://asia.nikkei.com/Spotlight/Coronavirus/New-COVID-19-deltacron-variant-confirmed-in-Brazil)
+- [Barack Obama says he tested positive for COVID-19](https://www.cbsnews.com/news/barack-obama-tests-positive-covid-19/)
+- [【独自】政府、「まん延防止措置」全面解除の方針](https://news.yahoo.co.jp/articles/7a4743d887c782803d01dc7427d09eaadb59f02e)
+- [Pfizer and BioNTech seek authorization of second coronavirus booster shot for people 65 and older](https://www.washingtonpost.com/health/2022/03/15/pfizer-second-booster-shot/)
+- [BREAKING: Biden Admin Denies Former World No. 1 Tennis Champ Novak Djokovic’s Access to Country Due to Vaccine Status — But Opened Border to 2 Million Unvaccinated Illegal Aliens in Last Year](https://www.thegatewaypundit.com/2022/03/breaking-biden-admin-denies-former-world-no-1-tennis-champ-novak-djokovics-access-country-due-vaccine-status-opened-border-2-million-unvaccinated-illegal-aliens-last-year/)
+- [While I was automatically listed in the @BNPPARIBASOPEN and @MiamiOpen draw I knew it would be unlikely I’d be able to travel](https://twitter.com/DjokerNole/status/1501682656483893249?s=20&amp;t=rbSCDw2qH9fFyWZ2R2yP2Q)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编/编辑：飞虹
+总编：飞虹
+编辑：文恩
+审核：文恩
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
