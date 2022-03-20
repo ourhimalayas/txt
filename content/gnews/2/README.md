@@ -2,12 +2,12 @@
 ---
 
 
-## 美国将用法律武器来应对共产党带来的疫苗灾难等系列危机（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194540/)
+## 七哥谈港台问题的本质（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194612/)
 
 #### PPT制作: Qingjing ；玉米地的
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-30-10-40-三-scaled.jpeg)
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-50-11-00-02-一-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
