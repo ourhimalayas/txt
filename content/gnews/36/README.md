@@ -2,36 +2,54 @@
 ---
 
 
-## 俄罗斯最大的银行Sberbank获准交换加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
+## 俄乌交战局势更新
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2196823/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：文斌
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**以下是3月19日俄乌战局的实时更新：**
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PPT-12.002-1.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
+- 19日，俄罗斯对基辅以西日托米尔地区的多个乡镇村庄，进行空袭和炮击，造成多名平民死亡。在对纳罗季奇村的炮击中，摧毁了一粮食仓库。日托米尔公布紧急公告称，该地区军事管理局网站被黑，所发信息与事实不符，乌方正在尽一切可能修复网站。
 
 
-根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
+- 乌克兰武装力量总参谋部称，在伊久姆方向，俄军目前没有进行积极的进攻行动，可能在重新集结并进行后勤补给。而在卢甘斯克其他地区，俄军炮击依旧。
 
-俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
 
-据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
+- 3月18日，俄罗斯对扎波罗热郊区的导弹袭击，造成9人死亡（1名消防员），22人受伤（3名消防员，2名平民）。扎波罗热实行宵禁，从当地时间今天下午4点开始，到周一早上6点。
 
-俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
 
-据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
+- 乌内政部长顾问瓦迪姆·丹尼森科在电视节目中表示，目前马里乌波尔的战斗焦点之一，是对亚佐斯塔尔街的争夺。
 
-新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
 
-发布：tianzhihuan
+- 乌克兰武装力量总参谋部称，在克里沃罗格方向，俄军有所停顿，并开始建立阵地，试图为进攻行动做准备。而在其他众多方向上，均未见俄军有积极的进攻行动，其重点都在集结和部署预备队，并补充弹药。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
+- 俄罗斯对乌西部伊万诺-弗兰科夫斯克地区的杰利亚京村进行了空袭，据称，攻击了乌克兰军队的导弹和航空弹药地下仓库。乌武装部队空军司令部发言人尤里·伊格纳特说，目前尚无法确认损失、伤亡情况及俄军所用的弹药类型。
+
+
+- 俄军称在乌西部使用了高超音速导弹，目前尚无法证实该消息的真假。如消息属实，这很可能是高超音速导弹的第一次实战。
+
+
+- 俄军在乌南部及东部多地绑架当地领导人，试图组建傀儡政府，为控制被占领的乌克兰领土创造条件。
+
+
+- 北约国防部长们同意，在北约东部边界部署更多部队。但重申不会在乌上空设立禁飞区，也不会向乌派兵。
+
+
+- 英国国防部长称，将向波兰派遣士兵，在乌边境地区提供帮助。
+
+
+
+
+![此图像的alt属性为空；文件名为March-1-4.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑：静言
+总编：Zion文恩
+审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

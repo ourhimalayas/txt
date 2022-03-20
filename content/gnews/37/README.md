@@ -2,40 +2,29 @@
 ---
 
 
-## 俄罗斯银行被告知跟踪与加密货币相关的交易
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196214/)
+## 《真人真事》专访妮可：智慧自信勇敢的NFSC新女性
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2196822/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山   宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月19日，喜马拉雅联盟委员会《真人真事》节目，采访了乌克兰大救援战地记者妮可（Nicole)。這些天她无论是从前线回传大量采访报道信息，还是拿着绒毛玩具侃侃而谈的经历，妮可都展现出新中国联邦女性的崭新形象——智慧、自信、勇敢，更体現温柔善良的女子。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-20-at-7.27.33-PM.png)
+在第一时间报名出征之后，妮可做出了人生中的一项重大抉择，她放弃了美国联邦财政部门的优渥薪資的工作，毅然奔赴乌克兰救援前线。
 
-翻译/编辑：小红帽
+妮可认为，新中国联邦倡导的正道主义，超越了个人的利益和价值观念。在救援前綫难民帳營區，摒弃长期在被中共治下国人自私、狭隘、冷漠的形象，不分国籍、种族、宗教，重塑无我、无私的人性大爱，这是新中国联邦人的使命。在被问到如何有勇气取舍时，妮可调皮地回答，我们是有币无苗族。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Russian_Banks.jpg)图片来源：Gavriil Grigorov/TASS
+自从无意间成为杨贝贝事件的受害人之后，妮可化身新媒体战士，用有深度的節目內容，説一口流利的英文，成为中英文世界沟通的桥梁救援前綫新中囯联邦女记者，卻再次成为彭博社记者恶意采访的对象。
 
+不过这一次，在经历了爆料革命几年的风雨历练，妮可变得更成熟更强大，有理有据地进行了有效的还击。后在各大国际媒体上树立起睿智、有勇气、温柔善良的新中国联邦女性形象。
 
-根据Bitcoin.com 3月20日报道，俄罗斯中央银行建议商业银行高度关注其客户与加密货币有关的交易。监管机构要求金融机构，在西方制裁和限制货币业务的背景下，监控此类活动。
+参考链接：[《GTV-真人真事》第46期嘉宾：华盛顿 DC农场 Nicole](https://gettr.com/post/p10t38p0c2f)
 
-俄罗斯中央银行（CBR）已经通知银行需要跟踪某些交易，包括涉及加密货币的交易。该金融监管机构已发出一封信函，呼吁各机构识别其客户 “在交易活动中的异常情况”，如消费者和投资支出的变化。
+![此图像的alt属性为空；文件名为March-1-4.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-根据Forklog援引的文件，银行官员应该高度注意和观察交易量的异常增长、向其他司法管辖区的提款以及与数字货币有关的交易。监测还应该包括个人和实体规避外汇限制的操作以及在“不友好”国家注册的组织提取资产。
-
-“在这种情况下，建议银行对客户进行深入检查，考虑拒绝完成交易并将其归类为可疑交易，”俄罗斯中央银行在通知中提到，其正在与俄罗斯联邦的主要金融监督机构Rosfinmonitoring协调。
-
-俄罗斯银行一直强烈反对使加密货币市场合法化，并认为这将影响国家的金融稳定和让公民面临风险。1月，货币当局提议禁止发行、挖掘和交易加密货币等一系列活动。它之前还建议银行封锁用于与加密货币交易所进行交易的银行卡和钱包。
-
-以财政部为首的大多数其他俄罗斯机构和监管机构都支持一种不同的方法，即强调在严格监督下的进行监管。2月，Minfin提交了一份新的“数字货币”法律草案，旨在通过授权的俄罗斯银行使加密货币业务合法化，并填补去年“数字金融资产”法律建立的监管框架中的其他空白。
-
-尽管最近的声明显示，俄罗斯有兴趣使用数字货币来恢复其对全球金融的访问，但由于其军事入侵乌克兰而受到制裁的严重限制，俄罗斯中央银行最近试图遏制与加密货币有关的交易。西方盟友已经采取措施，防止莫斯科利用加密货币资产来逃避制裁。
-
-新闻来源：[Russian Banks Told to Track Crypto-Related Transactions Amid Currency Restrictions](https://news.bitcoin.com/russian-banks-told-to-track-crypto-related-transactions-amid-currency-restrictions/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+编辑：玫瑰圓
+总编/审核：Zion文恩
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

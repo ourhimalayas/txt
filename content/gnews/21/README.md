@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯开始感受到制裁对其经济的影响
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198023/)
+## 章家敦认为美国将不得不对中共国实施制裁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198038/)
 
-03/19/2022 半岛电视台：俄罗斯开始感受到制裁对其经济的影响
+03/19/2022 章家敦就拜登总统对中共的做法发表意见，认为美国将不得不对中共国实施制裁
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

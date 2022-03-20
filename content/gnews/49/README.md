@@ -2,35 +2,33 @@
 ---
 
 
-## 新罕布什尔州批准使用伊维菌素治疗疫情
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
+## 2022/03/15 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2192584/)
 
-作者：银河系农场—骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
-报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
+1. 自3月14日至20日，广东深圳全市公交地铁停运，全市社区小区、城中村、产业园区实行封闭式管理。深圳实际上已经开始执行未官宣的封城。
+2. 3月13日，广东深圳。出于对中共政府的不信任，人们纷纷想赶在封锁线建立起来前逃跑。
+3. 3月13日，广东深圳南山区南山村被隔离，大量的警察和防疫人员连夜入驻，网格化管理内的市民将会失去人身自由。
+4. 3月14日，广东深圳。因为疫情很多小区都在执行只进不出政策，为了第二天能继续跑外卖赚钱，很多外卖小哥都选择了在外面睡。
+5. 近日，云南西双版纳。网传从东南亚回国后被集中隔离的集中营。
+6. 共产主义纳粹幽灵已在全世界飘荡，想想这是你们未来想要的日常隔离生活吗？
+7. 3月14日，上海通报新增169例新冠确诊病例，视频为建设大规模隔离集中营的现场。
+8. 3月12日，河北沧州。运送隔离人员的救护车，集中停放在河北水利电力学院前。
+9. 凡是不服从的市民，都会以防疫为名被管控和拿下。
+10. 3月11日，吉林长春美景天城小区，市民因不配合封控被放倒带走。
+11. 3月13日，广西钦州。女子不满小区封控，试图外出时与民警发生冲突被带走。
 
-有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
 
-参考链接：
-1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
-2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-编辑：Irene木木
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

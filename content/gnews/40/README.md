@@ -2,37 +2,39 @@
 ---
 
 
-## 中共国不断“演疫”背后隐藏着不可告人目的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2194389/)
+## 俄罗斯银行被告知跟踪与加密货币相关的交易
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196214/)
 
-撰稿：东京樱花团/加一颗稻草
+#### 【雅典娜快讯】，紧贴时代脉搏
+
+翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Russian_Banks.jpg)图片来源：Gavriil Grigorov/TASS
 
 
+根据Bitcoin.com 3月20日报道，俄罗斯中央银行建议商业银行高度关注其客户与加密货币有关的交易。监管机构要求金融机构，在西方制裁和限制货币业务的背景下，监控此类活动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+俄罗斯中央银行（CBR）已经通知银行需要跟踪某些交易，包括涉及加密货币的交易。该金融监管机构已发出一封信函，呼吁各机构识别其客户 “在交易活动中的异常情况”，如消费者和投资支出的变化。
 
+根据Forklog援引的文件，银行官员应该高度注意和观察交易量的异常增长、向其他司法管辖区的提款以及与数字货币有关的交易。监测还应该包括个人和实体规避外汇限制的操作以及在“不友好”国家注册的组织提取资产。
 
+“在这种情况下，建议银行对客户进行深入检查，考虑拒绝完成交易并将其归类为可疑交易，”俄罗斯中央银行在通知中提到，其正在与俄罗斯联邦的主要金融监督机构Rosfinmonitoring协调。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-31.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmz.eastday.com%2F59758435.png%3Fimageslim&amp;imgrefurl=https%3A%2F%2Fj.eastday.com%2Fm%2F1637917430044625&amp;tbnid=bWOgA18eoswxsM&amp;vet=12ahUKEwiStuTpuNP2AhVqgv0HHZocBI0QMyhCegQIARA9..i&amp;docid=wZRvNrVXeXtjjM&amp;w=530&amp;h=353&amp;q=%E5%B0%81%E9%94%81%E5%B0%8F%E5%8C%BA&amp;ved=2ahUKEwiStuTpuNP2AhVqgv0HHZocBI0QMyhCegQIARA9#imgrc=bWOgA18eoswxsM&amp;imgdii=8HisL0tNuuKs-M)
-自2019年中共病毒(新冠病毒Covid-19)爆发以来，中共国内一直施行着惨无人道的防疫措施。致使由防疫引发的次生灾难层出不穷，经济运行几乎停滞，这样的防疫灾难对国内老百姓的伤害远大于病毒所带来的伤害。
+俄罗斯银行一直强烈反对使加密货币市场合法化，并认为这将影响国家的金融稳定和让公民面临风险。1月，货币当局提议禁止发行、挖掘和交易加密货币等一系列活动。它之前还建议银行封锁用于与加密货币交易所进行交易的银行卡和钱包。
 
-近期各国逐渐放开了防疫管制，病毒的毒性也正在减弱。据中共卫建委公布的数据重症率只有0.1%，还没有普通流感危害严重。那么中共国为什么在国内房地产处处爆雷，经济形势接近崩溃的情况下，还要继续这种严格的防疫措施呢？
+以财政部为首的大多数其他俄罗斯机构和监管机构都支持一种不同的方法，即强调在严格监督下的进行监管。2月，Minfin提交了一份新的“数字货币”法律草案，旨在通过授权的俄罗斯银行使加密货币业务合法化，并填补去年“数字金融资产”法律建立的监管框架中的其他空白。
 
-表面上中共解释说，由于人口基数大，即使很低的重症率和死亡率就能造成几十万人的死亡。但是从过往的8964、香港反送中、新疆种族灭绝、西藏屠杀、武汉疫情、郑州水灾等等事件中，可以看到中共从来没想过老百姓的死活，中共只在乎其政权的稳定。
+尽管最近的声明显示，俄罗斯有兴趣使用数字货币来恢复其对全球金融的访问，但由于其军事入侵乌克兰而受到制裁的严重限制，俄罗斯中央银行最近试图遏制与加密货币有关的交易。西方盟友已经采取措施，防止莫斯科利用加密货币资产来逃避制裁。
 
-中共国内经济一塌糊涂。股市暴跌、房地产崩盘、天量的地方债、银行坏账有增无减、失业率持续攀升等等这些, 足以证明经济崩溃是看得见的未来。这些都是不稳定因素，以疫情防控的手段限制老百姓的自由是最低成本的选择。
+新闻来源：[Russian Banks Told to Track Crypto-Related Transactions Amid Currency Restrictions](https://news.bitcoin.com/russian-banks-told-to-track-crypto-related-transactions-amid-currency-restrictions/)
 
-国内新冠疫苗的接种，截至3月17日，全国累计报告的接种32亿1377万剂次，接种总人数是12亿7347万，完成全程接种12亿3957万，占总人口的87.85%，完成加强免疫接种6亿4468万人。由疫苗引发的不良反应，随着时间的积累发生的频率越来越高，中共只好用疫情来背疫苗后遗症的锅。
+发布：tianzhihuan
 
-俄乌战争爆发以来，由中共挑起的这场闹剧，在中共看来并未达到预期效果。俄罗斯国内的反战运动也给中共敲响了警钟，但是中共想要侵略台湾的野心有增无减，对国内严格管控的常态化有助于维持稳定。事实上这种管控与战争状态并无太多差别，也可以叫做战前管理。
-
-中共绑架老百姓七十多年，所犯下的罪行比比皆是，罄竹难书。如今中共这辆千疮百孔的战车，在“习总加速师”的带领下，正进行末日狂奔，终将跌入万劫不复的深渊中毁灭殆尽。此时我们只希望老百姓能及时醒悟，尽快脱离中共的末日战车，尽量不要成为中共陪葬品。
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

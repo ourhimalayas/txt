@@ -2,22 +2,38 @@
 ---
 
 
-## 拜登警告中共：若向俄罗斯提供“物质支持’，将面临严重后果！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2196597/)
+## 中共警察暴力抓捕未核酸检测男子
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2196824/)
 
-撰稿：东京樱花团/英文翻译组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2193.png)
-3月18日（周五），美国总统拜登与中国国家主席习近平进行了近两个小时的安全通话。随后白宫对此次对话进行了解读。
+作者：纽约香草山农场 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月19日，据盖特消息，中共国疫情多地爆发，防疫人员和警察强制居家隔离人士核酸检测。以下是多个视频的文字叙述：
 
-白宫表示，此前美国一直担心北京会以军事装备对俄罗斯入侵乌克兰进行援助。此次对话中，拜登警告北京，如果在俄罗斯入侵乌克兰的过程中向其提供 “物质支持”，北京将承担后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-20-at-7.37.48-PM.png)
 
-值得一提的是，白宫一位高级官员称，此次对话中，习近平提出了台湾问题，而拜登重申，美国没有改变其对台湾的政策，并强调美国继续反对对现状的任何单方面改变。
+- 一位广东深圳男子在家居住未出，被地方人员撕开封门条幅强行抓走。原因竟是十几天没有核酸检测记录。该男子在解释没有做核酸是不违法的情况后，被防疫人员蛮横打断’构成违法了’。
 
-新闻来源：[Biden warns Beijing: No ‘material support’ to Russia](https://thehill.com/homenews/administration/598791-biden-warns-beijing-no-material-support-to-russia)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+- 四个穿防护服人员五个警察及一个女性工作人员，闯入一间民宅将一男子按在地上，男子反抗后被赤着双脚手臂反剪带出楼房。画面中男子口音不详，但有着普通话警察口音讲到，要人和该男子老婆电话联系。3.19日盖特消息，中共国疫情多地爆发，防疫人员和警察强制居家隔离人士核酸检测。
+
+
+- 一位广东深圳男子在家居住未出，被地方人员撕开封门条幅强行抓走。原因竟是十几天没有核酸检测记录。该男子在解释没有做核酸是不违法的情况后，被防疫人员蛮横打断’构成违法了’。
+
+
+- 四个穿防护服人员五个警察及一个女性工作人员，闯入一间民宅将一男子按在地上，男子反抗后被赤着双脚手臂反剪带出楼房。画面中男子口音不详，但有着普通话警察口音讲到，要人和该男子老婆电话联系。
+
+
+参考链接：
+
+1. [广东深圳，管控区男子居家十几天未做核酸，面对ccp警察上门拒不配合，“我不出门犯什么法了？](https://gettr.com/post/p10pbu641fc)
+2. [在中国，如果你不每天做强制性的Covid测试，警察就会上门来逮捕你…..](https://gettr.com/post/p10qsrb24b3)
+
+
+![此图像的alt属性为空；文件名为March-1-4.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

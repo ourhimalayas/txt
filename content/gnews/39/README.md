@@ -2,26 +2,36 @@
 ---
 
 
-## 中共防疫奇闻：山东老翁就医遭拦索要“待死证明”！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2195775/)
+## 俄罗斯最大的银行Sberbank获准交换加密货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-33.jpg)
-中国各地疫情持续延烧，官方再祭出强硬防疫政策，导致乱象频生。近日继吉林4岁女童丧命、上海癌末患者因“封区”无法就医后，日前再有山东罹癌老翁前往医院救治，结果遭防疫人员拦截索要“待死证明”，消息引发民间热议。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-山东老翁就医遭拦索要“待死证明” 综合媒体报导，这起事件发生在3月17日，山东省淄博市“王舍二区”社区一名罹癌魏姓老翁需要就医治疗，家属经过各方协调后，获准将救护车开进社区载送，但没想到，一行人在社区门口遭到防疫人员拦截，要求他们出示“待死证明”才放行，这让家属非常气愤，双方爆发肢体冲突。
+翻译/编辑：小红帽
 
-根据网传视频显示，老翁的儿子与家属当场大怒，数次质问对方：“什么叫做待死的证明？什么叫做待死的证明？谁待死？啊？”工作人员完全不让步，甚至回嘴说，“你不说，（他）也得死啊！”家属气极之下挥拳殴打工作人员，双方爆发肢体冲突。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
 
-被洗掉灵魂的国度，实际上很多人已经不算是人了，毫无人性的逻辑判断，唯命是从的粗暴干预，将这片国土置于一片死寂。一个完整的人是要具备基本的人格，信仰和基本的自我决策能力的，显然共匪治下的国度毫无信仰，更无人格，加之不愿有所担当和一味讨好上级的意愿让他们变得更加冷血和无情，沦为共匪简易的“打手”和“党棍” ，是一群脱了智的行尸走肉。
 
-信息来源：
+根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
 
-[防疫封过头？山东老翁就医遭拦索要“待死证明”](https://m.secretchina.com/news/gb/2022/03/20/1001060.html)
+俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
+
+俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
+
+据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
+
+新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

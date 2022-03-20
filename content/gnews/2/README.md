@@ -2,12 +2,12 @@
 ---
 
 
-## 第三道大门还没打开（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198461/)
+## 华人重要的是要团结反抗（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198549/)
 
-#### PPT制作: WinterGuo ；开智则立
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10：20-10：30-003.jpg)
+#### PPT制作: Qingjing ；玉米地的
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：40-10：50-003.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
