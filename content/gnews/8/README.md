@@ -2,12 +2,12 @@
 ---
 
 
-## 农场主COSMOS的恶劣（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195544/)
+## 坚持内心的良知，不要在意别人的看法（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195681/)
 
 #### PPT制作: Qingjing ；玉米地的
-视频定位：0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-30-11-40-三-scaled.jpeg)
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-50-11-55-一-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
