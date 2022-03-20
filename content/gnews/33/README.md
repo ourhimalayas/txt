@@ -2,30 +2,22 @@
 ---
 
 
-## 拜登宣布再向乌克兰提供8亿美元军援
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193805/)
+## 俄军首次使用高超音速导弹摧毁乌军事目标
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194981/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、编译撰稿：晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2158.png)
-据加拿大媒体【后千禧年】3月17日报道，在乌克兰总统泽连斯基16日通过视频向美国国会发表动人演说征服整个国会山之后，他的要求得到了兑现。拜登总统当天下午签署命令，再向乌克兰提供额外的8亿美元军援。
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/files-russia-ukraine-conflict-075110.jpg)俄军首次使用高超音速导弹炮击乌克兰军事目标，图为搭载“匕首”高超音速导弹的俄罗斯米格31战机在2018年5月胜利日阅兵仪式上飞越莫斯科红场。（法新社档案照片）
+俄罗斯军方周五（3月18日）首次使用高超音速导弹摧毁乌克兰西部军事仓库。
 
-白宫周三表示，此举使美国过去一周内向乌克兰安全援助达到10亿美元，自开战来总援助额达到20亿美元。援助将以国防部直接向乌克兰军方转移设备的形式进行，这些设备包括：尖端无人机、毒刺地对空导弹，以及S-300导弹防御系统等。
+据法新社报道，俄国防部周六（19日）通报，“匕首”航空导弹系统（Kinzal aviation missile system）发射高超音速气动弹道导弹（hypersonic aeroballistic missiles），摧毁位于乌克兰伊万-弗兰科夫州（Ivano-Frankivsk）的乌军大型导弹和航空弹药仓库。
 
-拜登表示面对普京对平民不道德的攻击，美国人民将坚定不移地支持乌克兰人民。
+据俄罗斯新闻通讯社报道，这是俄罗斯向乌克兰发动特别军事行动以来，首次使用“匕首”高超音速导弹。
 
-原文链接：[https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine](https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine)
+参考连结：[https://www.zaobao.com/realtime/world/story20220319-1253999](https://www.zaobao.com/realtime/world/story20220319-1253999)
 
-编辑/上传 – 文永
+审核校对：Barry Jack
+上传排版：F
 
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

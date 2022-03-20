@@ -2,32 +2,19 @@
 ---
 
 
-## 2021年中共国结婚登记创36年新低
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2195695/)
+## 有关铁锁梦以及前线的几位战友情况（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195797/)
 
-![](https://inews.gtimg.com/newsapp_bt/0/14645933109/1000)资料图
-据腾讯网3月20日报道，中共国民政部最新发布统计数据，2021年结婚登记数据为763.6万对。这是继2019年跌破1000万对、2020年跌破900万对后，再次跌破800万对大关。这也创下了1986年以来的新低，仅为2013年最高峰的56.6%。
+#### PPT制作: Qingjing ；玉米地的
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-55-12-00-一-scaled.jpeg)
+*发布：陶子*
 
-从中共国2021年31个省的结婚大数据看，有10个省份结婚人数达到或超过30万对，广东省和河南省均为59.1万对，并列第一。其中河南是户籍人口第一大省，广东常住人口最多，且年龄结构较为年轻。结婚人数多，意味着接下来这两省的出生人口数量也会名列前茅。
-
-中共国自20世纪70年代开始推行计划生育，1982年被定为基本国策，并正式写入宪法。经历惨无人道的40年计划生育之后，大约4亿婴儿被堕胎。年轻人数量持续减少，中共国2001年正式进入老龄化社会。
-
-俗话说，婚姻是爱情的坟墓。但在中共国，经济是婚姻的杀手。爱情虽然很美好，但是钱包更现实。中共盗国贼集团治国无方，盗取国家财富有术。畸形发展经济，无限盘剥人民。高房价已经掏空了普通人两代甚至三代的积蓄，高成本、高消费的生活让年轻人不敢结婚。中共国老百姓挣着全球最低的薪水，住着全球最贵的房子。不是年轻人不想结婚、不想生育，是不敢结婚，不敢生育。适婚的年轻人都是独生子女，要赡养双方四个老人，如果祖父母还健在，也许六个老人、八个老人，再加上孩子，年轻人背不起家庭的负担。中共体制让老人没有养老，年轻人拼命工作难以糊口，下一代人口势必大幅度减少。这个体制的邪恶不推翻，人民没法生存。
-
-新闻参考链接：[https://new.qq.com/omn/20220319/20220319A08BTQ00.html](https://new.qq.com/omn/20220319/20220319A08BTQ00.html)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

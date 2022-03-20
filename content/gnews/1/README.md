@@ -2,12 +2,12 @@
 ---
 
 
-## 坚持内心的良知，不要在意别人的看法（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195742/)
+## 香港的经济形势和地震；珍惜爆料革命小心病毒（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195836/)
 
 #### PPT制作: Qingjing ；玉米地的
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-50-11-55-四-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-00-12-03-二-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

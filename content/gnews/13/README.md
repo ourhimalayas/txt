@@ -2,8 +2,8 @@
 ---
 
 
-## 新中国联邦建立保安机制揪出俄罗斯间谍
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2195575/)
+## 胡塞武装轰炸和伊朗炸美国领事馆的幕后推手
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2195769/)
 
 台灣寶島農場
 
