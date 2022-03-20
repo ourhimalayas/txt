@@ -2,19 +2,12 @@
 ---
 
 
-## 战友展示新中国联邦形象（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2197925/)
+## 俄罗斯开始感受到制裁对其经济的影响
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198023/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8：40-8：50-004.jpg)
-*发布：*tianzhihuan
+03/19/2022 半岛电视台：俄罗斯开始感受到制裁对其经济的影响
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

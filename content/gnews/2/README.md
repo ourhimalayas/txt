@@ -2,28 +2,38 @@
 ---
 
 
-## 欧盟据称已掌握中共正考虑对俄军援的非常可靠证据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2197967/)
+## 英国政府报告 完全接种疫苗的人占死亡人数的90%
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2198051/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-106.jpg)
-（图片来自《阿波罗新闻网》）
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-35.jpg)
+英国政府报告 完全接种疫苗的人占死亡人数的90%
 
-欧盟据称已掌握中共正在考虑向俄罗斯提供军事援助的“非常可靠证据”。而中共如果对俄交付武器，欧盟或对中共采取贸易制裁措施。
+根据英国政府发布的一份新报告证实，每10个与Covid-19有关的死亡病例中，有9个已经完全接种疫苗。
 
-据《阿波罗新闻网》3月19日消息，美国媒体《政客》（POLITICO）3月18日引述一位欧盟高级官员的话报道称，欧盟领导人已掌握的“非常可靠的证据”表明，中共正在考虑向俄罗斯提供军事援助。该名官员还表示，如果中共将武器交付进行下去，欧盟可能会对中共进行贸易制裁。
+英国卫生安全局（UKHSA）公布的最新数据证实，在英格兰，三联疫苗接种人群的死亡人数正在急剧上升，而未接种疫苗的人群则在稳步下降。
 
-美国官员在本周早些时候也曾发出类似警告，称俄罗斯政府已向中共要求提供军事装备和其他支持。《政客》和其他一些媒体对此也有过报道。《金融时报》的一篇报道称，北京（中共）对莫斯科的这一请求表示了开放态度。
+英国卫生安全局每周发布一份Covid 19疫苗监测报告，最新的报告是在2022年2月24日发布的，可以在[这里查看](https://www.riotimesonline.com/wp-content/uploads/2022/03/UK-report-week-8-24.2.2022.pdf)。
 
-目前尚不清楚欧盟的最新信息是来自相同情报来源，还是来自欧洲自己的情报。而上述欧盟高级官员没有被授权公开谈论机密信息，因此是在匿名条件下做出的上述表述。不过这名官员并没有透露俄罗斯方面要求中共提供什么样的援助。
+该报告的最新数据显示，在上个月的10例Covid 19死亡病例中，完全接种疫苗的人占了9例，而三联疫苗接种者占了5例死亡病例中的4例。
 
-这名官员还表示，欧盟对中共与俄罗斯“调情”的事实感到担忧。如果中共着手处理俄罗斯的请求，欧盟将“对中（共）国实施贸易壁垒”，因为这是中共唯一听的懂的语言。”
+最新报告第41页的表10显示了1月24日至2月20日期间英格兰的Covid-19病例数量，并按疫苗接种情况进行了细分，证实绝大多数记录来自三联疫苗接种人群。
 
-新闻链接：
+1月24日至2月20日期间，英格兰共登记了1,490,464例Covid-19病例，其中752,126例是三联疫苗接种人群，而404,030例是未接种人群，其中303,107例是儿童。
 
-[https://www.aboluowang.com/2022/0319/1722698.html](https://www.aboluowang.com/2022/0319/1722698.html)
+总体而言，接种疫苗的人群占1,086,434例，这意味着他们占1月24日至2月20日期间所有Covid 19病例的73%。
 
-* * *
+文章评论发出质疑：现在全世界的主流媒体都在试图说，因为英国90%的人都接种了疫苗，所以接种疫苗的人死于Covid-19的人数当然会这么高。
+
+但是，疫苗的目的不就是为了让人民不感染病毒、不传播病毒、不死于病毒，但它却没有阻止这一切？那么我们怎么还把它叫做疫苗呢？
+
+新闻来源：[https://thedcpatriot.com/report-fully-vaccinated-account-for-9-out-of-10-deaths-in-united-kingdom-new-government-report-says/](https://thedcpatriot.com/report-fully-vaccinated-account-for-9-out-of-10-deaths-in-united-kingdom-new-government-report-says/)
+
+
+
+> [Whilst you’ve been distracted by Russia’s Invasion, the UK Gov. released a Report confirming the Fully Vaccinated now account for 9 in every 10 Covid-19 Deaths in England](https://dailyexpose.uk/2022/03/01/russia-distraction-uk-gov-revealed-triple-vaccinated-account-9-in-10-covid-deaths/)
+
+
 
  
 
