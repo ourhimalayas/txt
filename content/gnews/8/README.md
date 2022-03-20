@@ -2,12 +2,12 @@
 ---
 
 
-## 关于台湾大牛的问题（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195481/)
+## 农场主COSMOS的恶劣（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195544/)
 
 #### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-20-11-30-五-scaled.jpeg)
+视频定位：0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-30-11-40-三-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

@@ -2,19 +2,25 @@
 ---
 
 
-## 关于台湾大牛的问题（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195471/)
+## 视频|俄乌前线最新消息汇总
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2195539/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-20-11-30-四-scaled.jpeg)
-*发布：陶子*
+制作：香草山视频部
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+截止当地时间3月18日，俄军继续炮击乌克兰哈尔科夫的多个地区，包括中心区和哈尔科夫管理学院。同时，俄乌双方也在附近区域发生了激烈交火，当地多个城镇已经处于停水、停电的状态中。除了哈尔科夫之外，阿夫季伊夫卡、扎波罗热、沃兹涅先斯克和日托米尔等地区也遭到了俄罗斯军队的袭击。
+
+据乌克兰当地传出的消息显示，俄罗斯在黑海部署的潜水艇发射了六枚导弹炸毁了利沃夫机场的周边地区，当地飞机修理厂已然遭到破坏。此外，克拉马托尔斯克市的行政大楼和居民公寓也被俄军导弹击毁，造成了至少2人死亡，6人受伤。而在马里乌波尔剧院被炮火击中后，数百名乌克兰人仍然被困在倒塌的建筑物内。庆幸的是，文尼察市的防空系统在该地区拦截了三枚俄罗斯导弹。而在首都基辅的西北方，俄罗斯一架“苏-34”轰炸机也被部署在布卡区的“毒刺”肩扛式导弹击落。另有俄罗斯的两次进攻也在切尔尼戈夫附近被乌克兰军队击退。
+
+据乌克兰军事情报局发布的一份报告指出，俄罗斯军方命令其在叙利亚赫梅敏的基地每天向乌克兰派遣多达300名士兵，且叙利亚总统也承诺，将招募四万名叙利亚士兵部署至乌克兰，这些新兵将被专门安排在被占领的乌克兰城镇中充当警察。
+
+更多前线消息，请持续关注后续报道。
+
+发稿：qiutian（邱甜）
+
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

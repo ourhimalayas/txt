@@ -2,18 +2,24 @@
 ---
 
 
-## 俄军首次使用高超音速导弹摧毁乌军事目标
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194981/)
+## 乌方盼19日开通10条人道走廊
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2195083/)
 
 采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/files-russia-ukraine-conflict-075110.jpg)俄军首次使用高超音速导弹炮击乌克兰军事目标，图为搭载“匕首”高超音速导弹的俄罗斯米格31战机在2018年5月胜利日阅兵仪式上飞越莫斯科红场。（法新社档案照片）
-俄罗斯军方周五（3月18日）首次使用高超音速导弹摧毁乌克兰西部军事仓库。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-18t200852z_1363678473_rc2w4t924iwn_rtrmadp_3_ukraine-crisis-mariupol.jpg)卫星图像显示，载着平民的车辆尝试撤离马里乌波尔市。（路透社）
+乌克兰副总理伊琳娜·韦列舒克说，乌方希望周六（3月19日）能开通10条人道走廊撤离平民。
 
-据法新社报道，俄国防部周六（19日）通报，“匕首”航空导弹系统（Kinzal aviation missile system）发射高超音速气动弹道导弹（hypersonic aeroballistic missiles），摧毁位于乌克兰伊万-弗兰科夫州（Ivano-Frankivsk）的乌军大型导弹和航空弹药仓库。
+据路透社报道，伊琳娜·韦列舒克说，俄乌双方已就被包围的马里乌波尔市开通一条人道走廊达成协议。
 
-据俄罗斯新闻通讯社报道，这是俄罗斯向乌克兰发动特别军事行动以来，首次使用“匕首”高超音速导弹。
+乌东卢甘斯克州州长盖迪在社交媒体Telegram上说，当地周六上午将开通一条人道走廊。
 
-参考连结：[https://www.zaobao.com/realtime/world/story20220319-1253999](https://www.zaobao.com/realtime/world/story20220319-1253999)
+他说：“（俄乌双方）已就开通人道走廊达成协议，我们今天将设法撤离民众，还带上食物。（双方）同意在3月19日上午9时（新加坡时间下午3时）起执行暂时停火协议”。
+
+此前，俄乌双方尝试撤离平民，但因多次未能彻底执行暂时停火协议，无法达成目标。双方也就此相互指责。
+
+另据国际文传电讯社报道，伊琳娜·韦列舒克说，周五（18日）九条人道走廊有七条顺利开通，撤离了9145人。
+
+参考连结：[https://www.zaobao.com/realtime/world/story20220319-125400](https://www.zaobao.com/realtime/world/story20220319-125400)
 
 审核校对：Barry Jack
 上传排版：F

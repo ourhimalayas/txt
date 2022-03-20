@@ -2,37 +2,34 @@
 ---
 
 
-## 中共国不断“演疫”背后隐藏着不可告人目的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2194389/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2194755/)
 
-撰稿：东京樱花团/加一颗稻草
+作者：香草山翻译部
 
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-GNEW-GTV-MOS-LOGO-6.jpg)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-15.png)
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-31.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmz.eastday.com%2F59758435.png%3Fimageslim&amp;imgrefurl=https%3A%2F%2Fj.eastday.com%2Fm%2F1637917430044625&amp;tbnid=bWOgA18eoswxsM&amp;vet=12ahUKEwiStuTpuNP2AhVqgv0HHZocBI0QMyhCegQIARA9..i&amp;docid=wZRvNrVXeXtjjM&amp;w=530&amp;h=353&amp;q=%E5%B0%81%E9%94%81%E5%B0%8F%E5%8C%BA&amp;ved=2ahUKEwiStuTpuNP2AhVqgv0HHZocBI0QMyhCegQIARA9#imgrc=bWOgA18eoswxsM&amp;imgdii=8HisL0tNuuKs-M)
-自2019年中共病毒(新冠病毒Covid-19)爆发以来，中共国内一直施行着惨无人道的防疫措施。致使由防疫引发的次生灾难层出不穷，经济运行几乎停滞，这样的防疫灾难对国内老百姓的伤害远大于病毒所带来的伤害。
+编辑：Stay文苑
 
-近期各国逐渐放开了防疫管制，病毒的毒性也正在减弱。据中共卫建委公布的数据重症率只有0.1%，还没有普通流感危害严重。那么中共国为什么在国内房地产处处爆雷，经济形势接近崩溃的情况下，还要继续这种严格的防疫措施呢？
+发稿：Stay文苑
 
-表面上中共解释说，由于人口基数大，即使很低的重症率和死亡率就能造成几十万人的死亡。但是从过往的8964、香港反送中、新疆种族灭绝、西藏屠杀、武汉疫情、郑州水灾等等事件中，可以看到中共从来没想过老百姓的死活，中共只在乎其政权的稳定。
+新闻：[https://gettr.com/post/p10vbi69734](https://gettr.com/post/p10vbi69734)
+访谈：[https://gettr.com/post/p10vaii8968](https://gettr.com/post/p10vaii8968)
 
-中共国内经济一塌糊涂。股市暴跌、房地产崩盘、天量的地方债、银行坏账有增无减、失业率持续攀升等等这些, 足以证明经济崩溃是看得见的未来。这些都是不稳定因素，以疫情防控的手段限制老百姓的自由是最低成本的选择。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-2.png)
 
-国内新冠疫苗的接种，截至3月17日，全国累计报告的接种32亿1377万剂次，接种总人数是12亿7347万，完成全程接种12亿3957万，占总人口的87.85%，完成加强免疫接种6亿4468万人。由疫苗引发的不良反应，随着时间的积累发生的频率越来越高，中共只好用疫情来背疫苗后遗症的锅。
+**更多资讯，更多关注**
 
-俄乌战争爆发以来，由中共挑起的这场闹剧，在中共看来并未达到预期效果。俄罗斯国内的反战运动也给中共敲响了警钟，但是中共想要侵略台湾的野心有增无减，对国内严格管控的常态化有助于维持稳定。事实上这种管控与战争状态并无太多差别，也可以叫做战前管理。
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
 
-中共绑架老百姓七十多年，所犯下的罪行比比皆是，罄竹难书。如今中共这辆千疮百孔的战车，在“习总加速师”的带领下，正进行末日狂奔，终将跌入万劫不复的深渊中毁灭殆尽。此时我们只希望老百姓能及时醒悟，尽快脱离中共的末日战车，尽量不要成为中共陪葬品。
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
-
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
  
 
