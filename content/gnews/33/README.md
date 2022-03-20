@@ -2,46 +2,54 @@
 ---
 
 
-## 家庭反洗脑序列：第52篇 NFSC 咖啡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2198034/)
+## 俄罗斯称其在乌克兰首次使用高超音速导弹
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2198222/)
 
-**作者：随风61**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Cлoвa-Miles-Guo_Miles-Guo_NFSC_кофе-NFSC.png)
-“我们的大帐篷里有现磨的咖啡，你想尝尝吗？”
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-“啊！真的吗？”
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-“你喜欢喝什么口味？”
+昨天，俄罗斯国营媒体《[今日俄罗斯](https://www.rt.com/russia/)》报道称，俄罗斯国防部发言人伊戈尔·科纳申科（Igor Konashenkov）在对媒体发表评论时说，本周五，入侵乌克兰的俄罗斯军队首次使用了最先进的“金扎尔”（Kinzhal）导弹。根据美国军事新闻网（[American Military News](https://americanmilitarynews.com/)）分析，目前Kinzhal导弹已经被证实，但俄罗斯国防部宣称的这次袭击的弹道尚未被证实。
 
-“拿铁。
+此次袭击的目标是乌克兰西部伊万诺-弗兰科夫斯克市（Ivano-Frankivsk）德利亚廷（Deliatyn）村附近的一个大型地下军火库。该军火库是乌克兰军队的一个导弹和空中弹药仓库。
 
-在波兰和乌克兰的边境小镇梅迪卡，距边境线只有一百多米的地方，新中国联邦人建造了一顶二百多平方米的战地救援大帐篷，是救援现场中最大的一顶帐篷。这顶帐篷温暖、干净，有舒适的沙滩椅、提供热水、高速运行的网络设备。但最吸引人的是浓浓的、香飘四溢的、现磨的咖啡。来自世界各地的记者都愿意在这里短暂的休息，喝杯热咖啡。
+俄罗斯国防部在推特上写道：“高精度导弹武器袭击摧毁了乌克兰武装部队的一个武器库，我们可以看到用武器和弹药击中地下机库的确切情况。”（[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
 
-我这个土生土长的大陆土老帽，真的不懂一杯热咖啡对于西方人意味着什么。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-20-17.png)
 
-\*\*\*\*\*\*
+另一段视频则宣称是导弹飞过天空，然后击中远处的目标。（[KT CounterIntelligence：Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
 
-大约三十多年前，深秋的一个假期，我的朋友要回老家看她的亲姨姨——她从小跟着姨姨长大，感情很深。她热情地邀请我一同前往。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-21-26.png)
 
-记得，那是我第一次见识真正的农村，第一次吃农家饭，第一次踩在滑溜溜的冰层上取井水，当时取水的详细过程完全想不起来了，只记得冰层很厚，可能是全部的注意力都在脚下的缘故。
+根据俄罗斯军方的说法，Kh-47M2 Kinzhal，中文“匕首”（Dagger），是一种空中发射的高超音速弹道导弹。导弹可以用战斗机携带和发射，例如MiG-31K猎狐犬（Foxhound）拦截机和攻击机。Kinzhal可以达到10马赫的速度（约每小时7,672英里）。
 
-今天，我努力回忆当时的情形，她的二姨和二姨夫的长相？我们在那里住了几天？我们都做了些什么？我真的无法准确地描述。可有一件事让我终生难忘——到达那里的第一顿晚餐。
+据报道，这次Kinzhal高超音速导弹袭击的地点位于乌克兰西部德利亚廷村，该地距乌克兰与罗马尼亚的边境约46英里，距乌克兰与匈牙利的边境约88英里，罗马尼亚和匈牙利都是北约联盟的成员，这可能会引起邻近的北大西洋公约组织(NATO)盟国的担忧。
 
-很大的一口锅，冒着热气，金黄的颜色，手掌大小的玉米，粒粒饱满，那是我平生吃到过的最甜的玉米。二姨坐在土炕上，手里忙活着——烫面甜油饼。面团软软的，油乎乎的，摊平后放在油锅里，炸成金黄色。麻油炸食物的香气和煮玉米的香味交织在一起。记起我吃了很多，当我又伸手去拿甜玉米时，自己都有些不好意思，二姨在一旁说：“多吃点，多吃点。”我渐渐记起，二姨穿着一身蓝色棉衣棉裤。虽然记不起二姨的长相，但她和那甜玉米、烫面甜油饼早已成为我记忆中的唯一。
+过去一周，俄罗斯对乌克兰西部的攻击令北约官员感到震惊和警觉。俄罗斯的第一次攻击是3月13日针对北约在乌克兰的重要前沿基地——乌克兰西部城市亚沃里夫（Yavoriv），亚沃里夫位于波兰-乌克兰边境10英里范围内，直到上月俄罗斯入侵乌克兰之前，美国第7集团军训练司令部还在亚沃里夫开展行动。当时俄罗斯用几枚导弹袭击了该基地，据报道有些是高超音速的。在那次袭击中，有超过200人丧生，其中包括美国和英国的军事和情报人员，另有数百人受伤。许多人遭受了诸如截肢之类的灾难性伤害，并正在住院治疗。
 
-战争结束后，乌克兰人家庭再次团聚，一家人坐在一起分享离别经历的时候，妻子一定会谈到那暖暖的大帐篷和NFSC咖啡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2-1024x794-1.png)
 
-战后许多年过去了，新成长起来的下一代，甚至不知道地球上发生过一场俄乌战争。当时的战地记者，现在的一张报纸、一杯咖啡，傻呆呆沉思的老爷爷，一定会想起NFSC咖啡，甚至会为了当年的那个记忆中的味道，不远万里买一杯NFSC咖啡，都是有可能的。
+分析认为，波兰、罗马尼亚和匈牙利都是北约联盟的成员，俄罗斯在乌克兰与北约成员国的边界附近发动袭击增加了误判的风险，这可能导致北约盟国受到打击。此类事件有可能触发北约第5条的规定，如果一个或多个北约成员国成为武装袭击的目标，北约其他成员将认为这是对所有成员国的攻击，并将采取集体自卫行动。如果俄罗斯的袭击导致北约援引第5条，它将使拥有核武器的俄罗斯与包括美国、英国和法国在内的拥有核武器的北约盟国发生冲突。美国总统乔·拜登和北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）已经警告说，北约将“保卫北约的每一寸领土”。
 
-经历过这场战争的人，最终整个的逃难记忆，战地工作的回忆都浓缩在一杯NFSC的咖啡中。就像二姨和甜玉米、烫面甜油饼是我的唯一一样。
+俄罗斯使用高超音速武器也可能引发对核威慑的担忧。与其他高超音速导弹一样，Kinzhal具有核能力，并且能够从战斗机上发射，使其能够靠近目标，同时减少发射后被探测的时间。俄罗斯声称Kinzhal也有机动避免拦截的能力。
 
-* * *
+本周四，美国国防情报局(U.S. Defense Intelligence Agency，简称DIA)局长斯科特·贝里尔（Scott Berrier）中将告诉众议院军事委员会说，俄罗斯常规军事力量不断遭受的损失可能将迫使普京转向核威胁来支持其外交政策立场和维护其国内独裁统治。
 
-***审核：阿伯塔
-校对：信心满满
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
+参考数据：
 
+[Russia fires hypersonic missiles in Ukraine](https://www.rt.com/russia/552284-kinzhal-hypersonic-missile-ukraine/)
+
+[Russia says it used hypersonic missile for first time in Ukraine](https://americanmilitarynews.com/2022/03/videos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine/?utm_source=breaking_email&amp;utm_campaign=breaking_mailchimp&amp;utm_medium=email&amp;utm_source=Master_List&amp;utm_campaign=0563b8b5c0-EMAIL_CAMPAIGN_2022_03_19_06_51&amp;utm_medium=email&amp;utm_term=0_9c4ef113e0-0563b8b5c0-62772342&amp;mc_cid=0563b8b5c0&amp;mc_eid=899bfadf04)
+
+[Russia likely to threaten nuke attacks, says US defense intel chief](https://americanmilitarynews.com/2022/03/russia-likely-to-threaten-nuke-attacks-says-us-defense-intel-chief/)
+
+[Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
+
+[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
+
+[Russia Exploits Ukraine’s Western Flank – Target of One Bombing was NATO-Connected Training Facility in Ukraine](https://www.thegatewaypundit.com/2022/03/russia-exploits-ukraines-western-flank/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

@@ -2,27 +2,39 @@
 ---
 
 
-## 这个春天有点冷
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2198796/)
+## 联合国：648万人在乌克兰境内流离失所
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198986/)
 
-**作者**：**意大利罗马达芬奇农场 娜洁仕达**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/S-3.jpg)superiorwallpapers.com
-3月23日北京时间23点33分，将迎来春分这个节气，本该春暖花开，万物复苏，然而中共国的南方武汉等城市将迎来大范围降雨，河北山东等地刚刚飘过大雪。异常气候下，一切都显得没有生机。
+作者：纽约香草山信息部- 诺雅
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月18日，联合国移民机构发表文件称，联合国人道主义事务协调厅调查显示，自2月24日俄罗斯入侵以来，截至3月16日，乌克兰境内的流离失所者人数为648万。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.43.png)
+据估计，由于安全风险增加、桥梁道路被毁、缺乏资源，或缺少安全地点或住宿等因素，超过1200万人滞留在受战争影响地区，无法撤离。被困人群需要人道主义援助和基本物资，包括食品、水和药品。
 
-北半球经历了一个漫长而又寒冷的冬天，本该温暖的天气依旧寒冷，远看俄乌战场上，流离失所的老人孩子，保卫家园的战士，人道救援的志愿者，冰天雪地中依然进行的战争，再看中共国被疫情封控的深圳打工者声嘶力竭的呐喊——要出去工作，要养家糊口，要还贷款！隔离期间跳楼自杀的绝望者，在疫情高压下猝死的90后医生，寒冷的清晨排队等待核酸检测的人们，穿着隔防护服哭着离开父母送去隔离的3岁孩子，香港触目惊心的裹尸袋，这个冬天被曝出的锁链女的故事，还有全世界多少个被中共病毒和疫苗残害的家庭，无不在泣诉着这人世间的悲凉！
+同日，联合国难民署称，开战以来，320多万难民逃离了乌克兰。根据联合国儿童基金会发言人詹姆斯-埃尔德，在3月15日表示，超过150万名儿童已逃离乌克兰。
 
-这个冬天似乎按下了暂停键，让全世界的人感受不到春天的温暖，有良知的人不禁要问，这个世界怎么了？经历了70年的和平，真地要让这一代人再次品尝战争的滋味吗？
+评论称，俄罗斯入侵前，乌克兰总人口约4400万，不计死亡人数，至今已经有近2200万人受到严重影响。人道灾难将因战争的持续而加重。
 
-文贵先生爆料五年了，那句“世界即将进入黑暗时刻”掷地有声的话语犹在耳边，直到今天，我才真正感受到这句话背后的力量，也真正感受到作为普通人的无奈，眼睁睁地看着两年来中共病毒肆虐全球，毒疫苗杀人，经济下滑，物价暴涨，直到战争打响，作为普通人跟随爆料革命觉醒的我们，内心的无奈和悲凉就如同《铁锁梦》这首歌中唐平女士那声“啊”一样，痛彻心扉却又无力回天。
+参考链接：
+1.[UN: 6.5 million people displaced inside Ukraine](https://www.axios.com/un-internal-displacement-ukraine-russia-eaf8801e-d8ed-4063-a91e-8fd5ce9b45f1.html)
+2.[Microsoft Word – Update on IDP Figures in Ukraine – 18 March.docx](https://reliefweb.int/sites/reliefweb.int/files/resources/update_on_idp_figures_in_ukraine_18_march_eng.pdf)
+3.[UN: Over 3.2 million refugees have fled Ukraine since Russian invasion began](https://www.axios.com/ukraine-refugees-russian-invasion-un-9f8b6e8e-87ed-4a5b-b7e9-d9229b373dca.html)
+4.[UN: 6.5m people displaced inside Ukraine in addition to refugees who have left](https://www.lbc.co.uk/world-news/25fd6d2cd9c64960ba3689adb3ee0fe7/)
 
-我们这些爆料革命的战友，新中国联邦人跟随着文贵先生，5年来奔走呐喊，揭露中共的假恶丑，蓝金黄、3F等计划，我们在媒体上发出正义的呼声，甚至走上了乌克兰前线救援的现场，我们希望用我们的正义和勇敢使更多人觉醒，起来反抗，推翻万恶之源中国共产党！然而我们无法阻止即将到来的疫苗灾难，我们无法阻止战争带来的死亡，我们甚至无法唤醒我们的亲人，或许人真的是痛醒的，不是叫醒的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-这个春天有点冷，乍暖还寒时候，最难将息……
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-
-
-编辑 发布：意大利罗马达芬奇农场 Roma
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

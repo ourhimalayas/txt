@@ -2,12 +2,16 @@
 ---
 
 
-## 从军事角度和心理政治角度来看，台湾都是习近平的目标
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2197304/)
+## 中共救市徒劳无功 资金逃离大厦将倾
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2198100/)
 
-03/17/2022 美前海军上校、现安全政策格中心高级研究员兰特·纽沙姆：台湾对习近平来说是一个非常诱人的目标，从军事角度和心理政治角度都是如此。
+文贵大直播20220320
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿：蚂蚁的城堡（伊甸）
+
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-8.png)
+*发布：Theodosia*
 
  
 

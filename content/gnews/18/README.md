@@ -2,43 +2,29 @@
 ---
 
 
-## 德尔塔克戎（Deltacron ）组合变种：专家这样说
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2198576/)
+## 中共国一年多以来首次报告CCP病毒死亡案例
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2198788/)
 
-整理：liyanli
-编辑：朝花夕拾
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.20-D.jpeg)网络图片
+中共国卫生当局于本周六报告了两例CCP病毒感染死亡案例，这是自 2021 年 1 月以来的首次死亡报告。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647755453522.jpg)图片来源：雅典娜设计组
+中共国目前正与两年来最严重的疫情作斗争，这是由于高传播性的 Omicron 变体所致。这两起死亡事件均发生在东北部的吉林省，该国报告的冠状病毒死亡人数目前为4,638 人，当然这一数字的真实性存在疑问。
 
+周六报告的新的 2,157 次社区传播中，有大约四分之三来自吉林。该省目前实施了旅行禁令和封城措施，人们需要得到警方的许可才能跨境旅行。自 3 月初以来，中共国在全国范围内报告了 29,000 多例病例，其中包括所谓的“无症感染者”。
 
-据德国之声中文网报道：在欧洲和美国发现了 （德尔塔）Delta 和（奧密克戎） Omicron 的组合感染。姆霍尔兹感染研究中心病毒免疫部主任奇钦-塞因（ Luca Cicin-Sain ）证实它确实是一种（德尔塔克戎） Deltacron 变体。
+尽管中共国已经在探索放松对大流行病的应对措施，但它一直在推行其久经考验的封锁政策和对数百万人进行大规模检测，这是自2019年的武汉便开始的。
 
-德尔塔克戎是冠状病毒变异毒株德尔塔（delta ）和 奥密克戎（omicron ）的组合。这种已经得到确认的混合变体是否更危险？现有疫苗还管用吗？
+面对自 2019 年底以来最严重的激增，官员们誓言要加倍实施零容忍战略，以遏制中共国各地的多起疫情。然而，国家主席习近平周四首次承认这些措施对于存在相当负担，称应以“最小成本”控制病毒，寻求“最大效果”。
 
-世界卫生组织冠状病毒技术主管范·克尔克霍夫（ Maria van Kerkhove ）表示：我们知道这种混合式毒株，是 （德尔塔）Delta AY.4 和 （奧密克戎）Omicron BA.1 的组合。在（德尔塔）delta 和 （奥密克戎）omicron 这样的变体如此肆虐情况下，出现混合变体完全可以预料。
+与此同时，香港正面临着最严重的大流行激增。周六该地区记录了16,583例新病例。而在前一天的周五，该市的冠状病毒感染总数超过了100万，死亡人数已经超过大陆。
 
-虽然 （德尔塔）delta 会导致更严重病程、（奥密克戎）omicron传染性特强，但并不一定意味着，这两种病毒变种的组合会更加危险。
+*发布：Gradient Boost*
 
-免疫学家奇钦-赛因说：“如果那真是一种传播更快并导致严重病程的变体，那就该有更多的相关病例了。”
+新闻参考链接：
 
-法国巴斯德研究所（ Institut Pasteur ）专家塞蒙-洛里埃（Etienne Simon-Lorière ） 指出：该变体未显示出令人担忧的增长率。
-
-世卫组织表示，在（徳尔塔）delta 和 （奥密克戎）omicron 这样的变体如此肆虐情况下，出现混合变体并不意外。
-
-事实上接种疫苗，加强接种疫苗都不能避免感染冠状病毒。 这主要是因为，奥密克戎变异毒株可通过逃逸突变部分绕开人体内建起的免疫保护屏障。
-
-因此，无论是疫苗接种还是先前的感染或许都不能完全免遭德尔塔克戎的侵犯。
-
-新闻链接：[德尔塔克戎（Deltacron ）组合变种：专家这样说](https://m.dw.com/zh/%E5%BE%B7%E5%B0%94%E5%A1%94%E5%85%8B%E6%88%8Edeltacron-%E7%BB%84%E5%90%88%E5%8F%98%E7%A7%8D%E4%B8%93%E5%AE%B6%E8%BF%99%E6%A0%B7%E8%AF%B4/a-61159293)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+[AP News](https://apnews.com/article/covid-health-china-wuhan-2bb112daa6cd230773f7fbd11938e181)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

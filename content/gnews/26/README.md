@@ -2,54 +2,42 @@
 ---
 
 
-## 俄罗斯称其在乌克兰首次使用高超音速导弹
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2198222/)
+## 德尔塔克戎（Deltacron ）组合变种：专家这样说
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2198576/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+整理：liyanli
+编辑：朝花夕拾
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647755453522.jpg)图片来源：雅典娜设计组
 
-昨天，俄罗斯国营媒体《[今日俄罗斯](https://www.rt.com/russia/)》报道称，俄罗斯国防部发言人伊戈尔·科纳申科（Igor Konashenkov）在对媒体发表评论时说，本周五，入侵乌克兰的俄罗斯军队首次使用了最先进的“金扎尔”（Kinzhal）导弹。根据美国军事新闻网（[American Military News](https://americanmilitarynews.com/)）分析，目前Kinzhal导弹已经被证实，但俄罗斯国防部宣称的这次袭击的弹道尚未被证实。
 
-此次袭击的目标是乌克兰西部伊万诺-弗兰科夫斯克市（Ivano-Frankivsk）德利亚廷（Deliatyn）村附近的一个大型地下军火库。该军火库是乌克兰军队的一个导弹和空中弹药仓库。
+据德国之声中文网报道：在欧洲和美国发现了 （德尔塔）Delta 和（奧密克戎） Omicron 的组合感染。姆霍尔兹感染研究中心病毒免疫部主任奇钦-塞因（ Luca Cicin-Sain ）证实它确实是一种（德尔塔克戎） Deltacron 变体。
 
-俄罗斯国防部在推特上写道：“高精度导弹武器袭击摧毁了乌克兰武装部队的一个武器库，我们可以看到用武器和弹药击中地下机库的确切情况。”（[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
+德尔塔克戎是冠状病毒变异毒株德尔塔（delta ）和 奥密克戎（omicron ）的组合。这种已经得到确认的混合变体是否更危险？现有疫苗还管用吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-20-17.png)
+世界卫生组织冠状病毒技术主管范·克尔克霍夫（ Maria van Kerkhove ）表示：我们知道这种混合式毒株，是 （德尔塔）Delta AY.4 和 （奧密克戎）Omicron BA.1 的组合。在（德尔塔）delta 和 （奥密克戎）omicron 这样的变体如此肆虐情况下，出现混合变体完全可以预料。
 
-另一段视频则宣称是导弹飞过天空，然后击中远处的目标。（[KT CounterIntelligence：Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
+虽然 （德尔塔）delta 会导致更严重病程、（奥密克戎）omicron传染性特强，但并不一定意味着，这两种病毒变种的组合会更加危险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-21-26.png)
+免疫学家奇钦-赛因说：“如果那真是一种传播更快并导致严重病程的变体，那就该有更多的相关病例了。”
 
-根据俄罗斯军方的说法，Kh-47M2 Kinzhal，中文“匕首”（Dagger），是一种空中发射的高超音速弹道导弹。导弹可以用战斗机携带和发射，例如MiG-31K猎狐犬（Foxhound）拦截机和攻击机。Kinzhal可以达到10马赫的速度（约每小时7,672英里）。
+法国巴斯德研究所（ Institut Pasteur ）专家塞蒙-洛里埃（Etienne Simon-Lorière ） 指出：该变体未显示出令人担忧的增长率。
 
-据报道，这次Kinzhal高超音速导弹袭击的地点位于乌克兰西部德利亚廷村，该地距乌克兰与罗马尼亚的边境约46英里，距乌克兰与匈牙利的边境约88英里，罗马尼亚和匈牙利都是北约联盟的成员，这可能会引起邻近的北大西洋公约组织(NATO)盟国的担忧。
+世卫组织表示，在（徳尔塔）delta 和 （奥密克戎）omicron 这样的变体如此肆虐情况下，出现混合变体并不意外。
 
-过去一周，俄罗斯对乌克兰西部的攻击令北约官员感到震惊和警觉。俄罗斯的第一次攻击是3月13日针对北约在乌克兰的重要前沿基地——乌克兰西部城市亚沃里夫（Yavoriv），亚沃里夫位于波兰-乌克兰边境10英里范围内，直到上月俄罗斯入侵乌克兰之前，美国第7集团军训练司令部还在亚沃里夫开展行动。当时俄罗斯用几枚导弹袭击了该基地，据报道有些是高超音速的。在那次袭击中，有超过200人丧生，其中包括美国和英国的军事和情报人员，另有数百人受伤。许多人遭受了诸如截肢之类的灾难性伤害，并正在住院治疗。
+事实上接种疫苗，加强接种疫苗都不能避免感染冠状病毒。 这主要是因为，奥密克戎变异毒株可通过逃逸突变部分绕开人体内建起的免疫保护屏障。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2-1024x794-1.png)
+因此，无论是疫苗接种还是先前的感染或许都不能完全免遭德尔塔克戎的侵犯。
 
-分析认为，波兰、罗马尼亚和匈牙利都是北约联盟的成员，俄罗斯在乌克兰与北约成员国的边界附近发动袭击增加了误判的风险，这可能导致北约盟国受到打击。此类事件有可能触发北约第5条的规定，如果一个或多个北约成员国成为武装袭击的目标，北约其他成员将认为这是对所有成员国的攻击，并将采取集体自卫行动。如果俄罗斯的袭击导致北约援引第5条，它将使拥有核武器的俄罗斯与包括美国、英国和法国在内的拥有核武器的北约盟国发生冲突。美国总统乔·拜登和北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）已经警告说，北约将“保卫北约的每一寸领土”。
+新闻链接：[德尔塔克戎（Deltacron ）组合变种：专家这样说](https://m.dw.com/zh/%E5%BE%B7%E5%B0%94%E5%A1%94%E5%85%8B%E6%88%8Edeltacron-%E7%BB%84%E5%90%88%E5%8F%98%E7%A7%8D%E4%B8%93%E5%AE%B6%E8%BF%99%E6%A0%B7%E8%AF%B4/a-61159293)
 
-俄罗斯使用高超音速武器也可能引发对核威慑的担忧。与其他高超音速导弹一样，Kinzhal具有核能力，并且能够从战斗机上发射，使其能够靠近目标，同时减少发射后被探测的时间。俄罗斯声称Kinzhal也有机动避免拦截的能力。
+发布：tianzhihuan
 
-本周四，美国国防情报局(U.S. Defense Intelligence Agency，简称DIA)局长斯科特·贝里尔（Scott Berrier）中将告诉众议院军事委员会说，俄罗斯常规军事力量不断遭受的损失可能将迫使普京转向核威胁来支持其外交政策立场和维护其国内独裁统治。
-
-参考数据：
-
-[Russia fires hypersonic missiles in Ukraine](https://www.rt.com/russia/552284-kinzhal-hypersonic-missile-ukraine/)
-
-[Russia says it used hypersonic missile for first time in Ukraine](https://americanmilitarynews.com/2022/03/videos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine/?utm_source=breaking_email&amp;utm_campaign=breaking_mailchimp&amp;utm_medium=email&amp;utm_source=Master_List&amp;utm_campaign=0563b8b5c0-EMAIL_CAMPAIGN_2022_03_19_06_51&amp;utm_medium=email&amp;utm_term=0_9c4ef113e0-0563b8b5c0-62772342&amp;mc_cid=0563b8b5c0&amp;mc_eid=899bfadf04)
-
-[Russia likely to threaten nuke attacks, says US defense intel chief](https://americanmilitarynews.com/2022/03/russia-likely-to-threaten-nuke-attacks-says-us-defense-intel-chief/)
-
-[Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
-
-[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
-
-[Russia Exploits Ukraine’s Western Flank – Target of One Bombing was NATO-Connected Training Facility in Ukraine](https://www.thegatewaypundit.com/2022/03/russia-exploits-ukraines-western-flank/)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

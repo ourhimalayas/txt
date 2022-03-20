@@ -2,27 +2,33 @@
 ---
 
 
-## 俄军未来几周内极可能加大对乌克兰城市地区的攻击力度
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2198797/)
+## 欧盟掌握中共支持俄罗斯的确凿证据
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2198987/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2228.png)图片来源：CNN
-据《国会山报》3月20日报道，周日，英国国防部警告说，俄罗斯军队在未来几周内可能会加大对乌克兰城市地区的攻击力度，并会导致更多平民伤亡。
+作者：纽约香草山 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒3月18日报道，一名欧盟高级官员表示，欧盟领导人掌握了中共向俄罗斯提供军事援助的确凿证据。这名官员警告中共，如果继续交付并支持俄罗斯的军事武器，欧盟将会对中共国采取贸易制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午12.09.51.png)
+据媒体本周早些时候报道，美国政府官员也对中共向俄罗斯提供军事装备的行为，发出了类似警告。
 
-报道说，根据一份关于乌克兰局势的最新报告，俄罗斯军队继续在“包围乌克兰东部的一些城市”。
+这位欧盟官员还表示，欧盟高度关注中俄交易对乌克兰战争的影响。欧盟所有领导人都非常清楚，中共支持俄罗斯的事实，但中共却一再否认。这位欧盟官员认为，只有采取贸易壁垒式的惩罚措施，才能制止中共。
 
-国防官员们说：“在过去的一周里，俄罗斯军队占领这些城市方面取得的进展有限；相反，俄罗斯增加了对城市地区的狂轰滥炸，造成了广泛的破坏和大量的平民伤亡”。
+参考链接：[EU has ‘very reliable evidence’ China is considering military support for Russia](https://www.politico.eu/article/eu-has-very-reliable-evidence-china-is-considering-military-aid-for-russia/)
 
-他们认为：“由于希望控制自己已经造成的相当大的损失，俄罗斯可能会继续使用其重型火力来对城市地区进行攻击，代价是可能会造成进一步的平民伤亡”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-文章说，周六，联合国估计，自俄罗斯对乌克兰的入侵开始以来，已有近900名乌克兰平民死亡，但实际死亡人数可能“高得多”。
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-联合国人权办公室在一份声明中说：“（联合国人权事务高级专员办事处）认为实际（乌克兰平民死亡）数字要高得多，特别是在（乌克兰）政府控制区，尤其是最近几天，因为从一些发生激烈敌对行动的地方收到的信息被推迟了，许多报告仍有待证实”。
-
-**新闻来源**
-
-[UK warns of ‘widespread destruction,’ civilian casualties in next phase of Russian assault](https://thehill.com/policy/international/598923-british-defense-ministry-warns-of-widespread-destruction-civilian)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
