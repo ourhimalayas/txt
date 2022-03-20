@@ -15,35 +15,35 @@
 
 ---
 
-### [七哥再爆猛料（三）](/content/gnews/1/README.md)
+### [共产党幻想覆灭（二）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥再爆猛料（二）](/content/gnews/2/README.md)
+### [共产党幻想覆灭（一）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [俄罗斯称其在乌克兰首次使用高超音速导弹](/content/gnews/3/README.md)
+### [一串mRNA，一个刺突蛋白，1291种疾病，无限种死法](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [华人重要的是要团结反抗（二）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [华人重要的是要团结反抗（一）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥再爆猛料（四）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [俄罗斯称其在乌克兰首次使用高超音速导弹](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [七哥再爆猛料（一）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
+### [谈谈团结](/content/gnews/8/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
 
-### [好的政治是救人的，所有的战争都是政治流氓搞的（二）](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [拜登警告习如向俄罗斯提供支持将会承担“后果”](/content/gnews/6/README.md)
+### [拜登警告习如向俄罗斯提供支持将会承担“后果”](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [好的政治是救人的，所有的战争都是政治流氓搞的（一）](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [新闻述评：从新中国联邦在乌救援看共产党的黑暗统治](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄罗斯声称首次在乌克兰使用了高超音速导弹](/content/gnews/9/README.md)
+### [俄罗斯声称首次在乌克兰使用了高超音速导弹](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【G时新闻】俄罗斯威胁援助乌克兰武器装备将受到打击](/content/gnews/10/README.md)
- ` G-时新闻`
 
 ### [香港新冠疫情激增 &#8211; 我们的棺材用完了](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -87,102 +87,99 @@
 ### [“基辅变基乌” 自民党内的强音 河野太郎也发推文（1／２）](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【乌克兰救援】新中国联邦法治基金乌克兰人道救援行动——大巴救援队归来](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [难以置信：辉瑞公司的文件中伊维菌素已经被列为新冠疗法](/content/gnews/26/README.md)
+### [难以置信：辉瑞公司的文件中伊维菌素已经被列为新冠疗法](/content/gnews/25/README.md)
  ` xiaobaige`
 
-### [欲盖弥彰：美国CDC修改新冠疫情死亡病例数据](/content/gnews/27/README.md)
+### [欲盖弥彰：美国CDC修改新冠疫情死亡病例数据](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [数字货币将蓬勃发展，警惕中央银行数字货币成为政府的专制工具](/content/gnews/28/README.md)
+### [数字货币将蓬勃发展，警惕中央银行数字货币成为政府的专制工具](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/29/README.md)
+### [从军事角度和心理政治角度来看，台湾都是习近平的目标](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [战斗室：中共国在为俄国提供资金担保和军事设备援助](/content/gnews/30/README.md)
+### [战斗室：中共国在为俄国提供资金担保和军事设备援助](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [人类成功的救援历史](/content/gnews/31/README.md)
+### [人类成功的救援历史](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [中共警察暴力抓捕未核酸检测男子](/content/gnews/32/README.md)
+### [中共警察暴力抓捕未核酸检测男子](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [俄乌交战局势更新](/content/gnews/33/README.md)
+### [俄乌交战局势更新](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [《真人真事》专访妮可：智慧自信勇敢的NFSC新女性](/content/gnews/34/README.md)
+### [《真人真事》专访妮可：智慧自信勇敢的NFSC新女性](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [拜登警告中共：若向俄罗斯提供“物质支持’，将面临严重后果！](/content/gnews/35/README.md)
+### [拜登警告中共：若向俄罗斯提供“物质支持’，将面临严重后果！](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯最大的银行Sberbank获准交换加密货币](/content/gnews/36/README.md)
+### [俄罗斯最大的银行Sberbank获准交换加密货币](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯银行被告知跟踪与加密货币相关的交易](/content/gnews/37/README.md)
+### [俄罗斯银行被告知跟踪与加密货币相关的交易](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花深度报道┃中共正在囤积大宗商品](/content/gnews/38/README.md)
+### [樱花深度报道┃中共正在囤积大宗商品](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共防疫奇闻：山东老翁就医遭拦索要“待死证明”！](/content/gnews/39/README.md)
+### [中共防疫奇闻：山东老翁就医遭拦索要“待死证明”！](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国不断“演疫”背后隐藏着不可告人目的](/content/gnews/40/README.md)
+### [中共国不断“演疫”背后隐藏着不可告人目的](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登宣布再向乌克兰提供8亿美元军援](/content/gnews/41/README.md)
+### [拜登宣布再向乌克兰提供8亿美元军援](/content/gnews/40/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [俄罗斯伪造泽连斯基投降视频打资讯战，协中共以假治国](/content/gnews/42/README.md)
+### [俄罗斯伪造泽连斯基投降视频打资讯战，协中共以假治国](/content/gnews/41/README.md)
  ` YALUN 亚伦`
 
-### [铲除中共是正义战争而非政治进程](/content/gnews/43/README.md)
+### [铲除中共是正义战争而非政治进程](/content/gnews/42/README.md)
  ` 握笔之南`
 
-### [习拜通话透露出中共支持俄罗斯侵略](/content/gnews/44/README.md)
+### [习拜通话透露出中共支持俄罗斯侵略](/content/gnews/43/README.md)
  ` 波士顿五月花农场`
 
-### [普京智囊瓦利克实为俄乌战争的核心人物](/content/gnews/45/README.md)
+### [普京智囊瓦利克实为俄乌战争的核心人物](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [2022/03/17 墙内世界](/content/gnews/46/README.md)
+### [2022/03/17 墙内世界](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/03/15 墙内世界](/content/gnews/47/README.md)
+### [2022/03/15 墙内世界](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄乌前线最新消息汇总](/content/gnews/48/README.md)
+### [俄乌前线最新消息汇总](/content/gnews/47/README.md)
  ` NFSC News`
 
-### [新罕布什尔州批准使用伊维菌素治疗疫情](/content/gnews/49/README.md)
+### [新罕布什尔州批准使用伊维菌素治疗疫情](/content/gnews/48/README.md)
  ` NFSC News`
 
-### [现在沙特认为美元的霸主地位正摇摇欲坠](/content/gnews/50/README.md)
+### [现在沙特认为美元的霸主地位正摇摇欲坠](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花时政┃中共在美搞“跨国镇压” 破坏司法影响选举](/content/gnews/51/README.md)
+### [樱花时政┃中共在美搞“跨国镇压” 破坏司法影响选举](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参议员布莱克本： 如果习近平向俄提供军事支持,美国和国际社会应切断与中共国的联系](/content/gnews/52/README.md)
+### [参议员布莱克本： 如果习近平向俄提供军事支持,美国和国际社会应切断与中共国的联系](/content/gnews/51/README.md)
  ` 美国政要直译推`
 
-### [53万枚布制口罩库存“消失” 厚生劳动大臣谢罪](/content/gnews/53/README.md)
+### [53万枚布制口罩库存“消失” 厚生劳动大臣谢罪](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日裔美国女星福原诚司在遭受袭击后呼吁停止亚裔仇恨](/content/gnews/54/README.md)
+### [日裔美国女星福原诚司在遭受袭击后呼吁停止亚裔仇恨](/content/gnews/53/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [参议员斯科特公开信：与中共国在经济上完全彻底脱钩](/content/gnews/55/README.md)
+### [参议员斯科特公开信：与中共国在经济上完全彻底脱钩](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/56/README.md)
+### [美国政府官员和大医药公司在疫苗上欺骗美国人](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共病毒疫苗被错误的数据和宣传所掩盖](/content/gnews/57/README.md)
+### [中共病毒疫苗被错误的数据和宣传所掩盖](/content/gnews/56/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 

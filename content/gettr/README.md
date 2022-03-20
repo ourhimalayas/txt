@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 1:33 PM (UTC)`
+
+【Ukraine Rescue】03/19/2022 David: We rely on a team process-oriented operation to ensure the safety of the NFSC’s bus rescue through a workflow including registration, screening, roll call, security, check etc. <br/><br/>【乌克兰救援】03/19/2022大卫：我们是靠一个团队流程化作业，通过登记、筛选、点名、安保、检查等环节的工作流程确保新中国联邦巴士救援的安全<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group36/getter/2022/03/20/13/66321fd4-ed1d-dd46-d0a7-f5666d5a4762/out.jpg)
+
+---
+
 `@miles 3/20/2022 12:14 PM (UTC)`
 
 2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势
@@ -149,13 +156,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 ![img](https://media.gettr.com/group33/origin/2022/03/19/16/a7d15473-a99f-2f81-a126-b6223cabe66c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/19/2022 2:39 PM (UTC)`
-
-《GTV-真人真事》第46期嘉宾：华盛顿 DC农场  Nicole
-![img](https://media.gettr.com/group8/origin/2022/03/19/14/4ceac700-4769-188f-36e0-fd025b77f665/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

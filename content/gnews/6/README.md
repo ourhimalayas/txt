@@ -2,56 +2,19 @@
 ---
 
 
-## 拜登警告习如向俄罗斯提供支持将会承担“后果”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2198154/)
+## 七哥再爆猛料（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198274/)
 
-**编译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip拜登警告习如向俄罗斯提供支持将会承担后果.png)乔·拜登总统于 2022 年 3 月 18 日在白宫战情室与中国领导人习近平进行虚拟会面。（白宫通过美联社）
-3 月 18 日，在美国政府指控中共正考虑向入侵乌克兰的俄罗斯提供军事援助之后，总统乔·拜登与中共总书记习近平进行了两个小时的视频通话。
+#### PPT制作: 0-0 ；rmrf
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9：40-9：50-006.jpg)
+*发布：*tianzhihuan
 
-“拜登总统详细介绍了我们为防止和应对[对乌克兰]的入侵所做的努力，包括对俄罗斯施加代价，”白宫在宣读电话时说。
-
-声明继续说：“他描述了如果中共国在俄罗斯对乌克兰城市和平民进行野蛮袭击时向其提供物质支持的影响和后果。”
-
-拜登还表示，美国对台政策没有改变，反对单方面改变现状。拜登和习近平最终应责成他们的政府在未来几天和几周内跟进这一呼吁。
-
-据中共通讯社新华社报道，习近平在电话会议中拒绝将入侵乌克兰战争称为“战争”，而是将其称为“危机”，该机构在电话会议结束后，立即发布了几个谈话要点。
-
-据新华社报道，这位中共领导人还表示，美国和中国需要共同努力“承担我们应尽的国际责任，为世界和平与安宁而努力”，同时指出世界既不平静也不稳定。
-
-白宫新闻秘书在周五的新闻发布会上表示，拜登没有得到习近平的任何具体保证，即中共会以何种方式行事。
-
-当被问及为什么政府没有向美国人提供有关拜登-习近平讨论的任何细节时，普萨基说，这是进行对话的“最具建设性”的方式。
-
-**中俄关系**
-
-这次虚拟会议是拜登和习近平自去年 11 月以来的首次会面，那时两位领导人举行了长达三个小时的视频会议。那次会面最终达成了一项协议，即两位领导人将在未来进行旨在维护战略稳定的会谈。
-
-相反，周五的会议在很大程度上被描述为拜登评估习近平在乌克兰战争问题上的立场以及与俄罗斯的关系的机会。
-
-“这是关于习立场的对话，”白宫新闻秘书在会前说。
-
-“要由中国人决定他们想站在哪里，他们想让历史书如何描述。”
-
-普萨基说，这次会面是本周早些时候国家安全顾问杰克·沙利文和中国政权最高外交官杨洁篪在罗马进行了长达七个小时的激烈会谈的结果。
-
-此前，据报道，国务院发布了一份外交电报，指责中共表示愿意为俄罗斯入侵乌克兰提供军事支持。据报道，欧盟领导层此后确认已经看到“非常可靠的证据”，表明中共正在考虑向俄罗斯提供军事支持。
-
-习近平和俄罗斯总统弗拉达米尔·普京在 2 月初宣布建立“全天候”战略伙伴关系，距离莫斯科入侵还不到三周。自那以后，美国情报领导人警告称，随着两国寻求削弱美国在全球的领先地位，中俄之间的合作将在未来十年继续发展。
-
-“**他们正在开展一场专门的运动，利用各种形式的国家力量，试图根除基于规则的国际秩序，为自己谋取利益，牺牲所有其他人的利益。”**
-
-美国官员表示，拜登和习近平的周五会晤，将是向中共施压以影响普京，并防止对美国进一步死亡破坏的机会。
-
-**新闻来源**：[theepochtimes.com][Biden Warns Xi of ‘Consequences’ If China Provides Support to Russia in First Meeting Since November](https://www.theepochtimes.com/biden-warns-xi-of-consequences-if-china-provides-support-to-russia-in-first-meeting-since-november_4346233.html?utm_source=morningbriefnoe&amp;utm_campaign=mb-2022-03-19&amp;utm_medium=email&amp;est=rmkB6yIYOHp66EXm1n1RkbWpSy1440Mri%2BVYCPpIRbdQDqNIfN1Bs4%2FCrjbpwNkGc25NWA%3D%3D)
-
-* * *
-
-***审核：文乐 
-校对：阿伯塔
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥再爆猛料（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198200/)
+## 华人重要的是要团结反抗（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2198292/)
 
 #### PPT制作: 0-0 ；rmrf
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9：40-9：50-003.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9：40-9：50-008.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

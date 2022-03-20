@@ -2,18 +2,20 @@
 ---
 
 
-## 俄乌前线最新消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192537/)
+## 新罕布什尔州批准使用伊维菌素治疗疫情
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2192535/)
 
-作者：文斌
+作者：银河系农场—骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截止当地时间3月18日，俄军继续炮击乌克兰哈尔科夫的多个地区，包括中心区和哈尔科夫管理学院。同时，俄乌双方也在附近区域发生了激烈交火，当地多个城镇已经处于停水、停电的状态中。除了哈尔科夫之外，阿夫季伊夫卡、扎波罗热、沃兹涅先斯克和日托米尔等地区也遭到了俄罗斯军队的袭击。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.12.png)
-据乌克兰当地传出的消息显示，俄罗斯在黑海部署的潜水艇发射了六枚导弹炸毁了利沃夫机场的周边地区，当地飞机修理厂已然遭到破坏。此外，克拉马托尔斯克市的行政大楼和居民公寓也被俄军导弹击毁，造成了至少2人死亡，6人受伤。而在马里乌波尔剧院被炮火击中后，数百名乌克兰人仍然被困在倒塌的建筑物内。庆幸的是，文尼察市的防空系统在该地区拦截了三枚俄罗斯导弹。而在首都基辅的西北方，俄罗斯一架“苏-34”轰炸机也被部署在布卡区的“毒刺”肩扛式导弹击落。另有俄罗斯的两次进攻也在切尔尼戈夫附近被乌克兰军队击退。
+3月17日，据当地媒体报道，美国新罕布什尔州众议员近期通过的一项法案显示，伊维菌素在当地将不再是处方药物，药剂师可以更加便捷地为人们提供人用伊维菌素作为中共病毒的治疗药。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-19-上午10.59.06.png)
+报道提及，该州的共和党人表示，伊维菌素已经相继在一些国家被专门用来治疗中共病毒，其效果相当显著，但由于各种政治原因，伊维菌素被政府、媒体及其他机构打压，导致医生和药店大多都不敢开具此类处方，甚至一些医生因使用伊维菌素治疗患者而被吊销执照。为此，新罕布什尔州众议员以183对159票批准了此次伊维菌素治疗法案。
 
-据乌克兰军事情报局发布的一份报告指出，俄罗斯军方命令其在叙利亚赫梅敏的基地每天向乌克兰派遣多达300名士兵，且叙利亚总统也承诺，将招募四万名叙利亚士兵部署至乌克兰，这些新兵将被专门安排在被占领的乌克兰城镇中充当警察。
+有众议员指出，该立法将会防止新罕布什尔州的医疗人员在中共病毒治疗方面出现错误用药的情况。另外，俄克拉荷马州、密苏里州、印第安纳州、亚利桑那州和阿拉斯加州的类似法案正在等待立法批准。
 
-更多前线消息，请持续关注后续报道。
+参考链接：
+1.[N.H. House Approves Bill for Ivermectin ‘Standing Order’ in Pharmacies](https://trialsitenews.com/ivermectin-house-approves-ivermectin-otc-bill-for-standing-order-in-pharmacy/)
+2.[New Hampshire House approves bill to allow pharmacists to dispense ivermectin for COVID-19](https://www.wmur.com/article/new-hampshire-house-bill-pharmacists-dispense-ivermectin-covid-19/39456443)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
