@@ -2,25 +2,30 @@
 ---
 
 
-## 俄罗斯伪造泽连斯基投降视频打资讯战，协中共以假治国
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2193779/)
+## 拜登宣布再向乌克兰提供8亿美元军援
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2193805/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、编译撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2158.png)
+据加拿大媒体【后千禧年】3月17日报道，在乌克兰总统泽连斯基16日通过视频向美国国会发表动人演说征服整个国会山之后，他的要求得到了兑现。拜登总统当天下午签署命令，再向乌克兰提供额外的8亿美元军援。
 
-通过“深度伪造” （deepfake）技术伪造的乌克兰总统泽连斯基宣布投降视频于3月16日出现在社交媒体平台，随后被疯传。在该伪造视频中，泽连斯基公开接受了俄方提出的要求，并督促乌克兰人在俄国人面前放下武器。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ezgif.com-gif-maker-5.jpg)图片来源joe.co
+白宫周三表示，此举使美国过去一周内向乌克兰安全援助达到10亿美元，自开战来总援助额达到20亿美元。援助将以国防部直接向乌克兰军方转移设备的形式进行，这些设备包括：尖端无人机、毒刺地对空导弹，以及S-300导弹防御系统等。
 
+拜登表示面对普京对平民不道德的攻击，美国人民将坚定不移地支持乌克兰人民。
 
-3月19日，郭文贵先生于Gettr视频中提到，伪造乌克兰总统泽连斯基投降俄罗斯的视频遭疯传，是邪恶的俄罗斯在俄乌战场上采用的虚假资讯战，并表示不辨真假是大邪、大恶、大灾的必然元素。
+原文链接：[https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine](https://thepostmillennial.com/biden-announces-additional-800-million-in-military-aid-to-ukraine)
 
-大国俄罗斯侵略一个小国乌克兰，本来各方面的国力就不均等，结果作为大国的俄罗斯还要伪造泽连斯基投降的视频为侵略手段。而且，俄罗斯还在不断地制造谎言，为侵略战争美化，洗脑民众美其名约为了正义而战。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/b6e3aca55d19f3d18f7428b136099fb5.jpg)图片来源Gettr Wolverine
+编辑/上传 – 文永
 
+* * *
 
-同样，与俄罗斯你侬我侬的中共也是以假治国、以骗治国、以黑治国的典范。伴随中华民族几千年不变的君主专制帝王愚民、疲民政策，中共通过处心积虑地篡改历史、加长期网络防火墙维稳和海外大外宣虚假宣传，造成多数中国人不辨真假、不分善恶，唯钱是从、唯权是从。这是涉及中国国本的问题，中国人民的爱假、信假反过来推动上层统治者敢于放手创造更大的假。当一个国家的信仰根基都是假的，总是遭受大恶、大灾也不足为奇。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-这世界的邪恶力量如果没有虚假，邪恶就不能称之为邪恶，甚至邪恶的本身就值得怀疑。言外之意，若没有虚假，就不会产生有破坏力的邪恶力量。所以，虚假是邪恶的通行证，侥幸是走向灾难的开始，而不辨真假是大邪、大恶、大灾的必然元素。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

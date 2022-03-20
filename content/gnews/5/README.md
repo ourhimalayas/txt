@@ -2,12 +2,12 @@
 ---
 
 
-## PPT里关于俄乌战争三件事绝不可能发生，再提丢人（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196566/)
+## 俄乌战争的挑战在哪里？（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196650/)
 
 #### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-902-910-2_1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-902-910-3_1.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

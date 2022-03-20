@@ -2,35 +2,38 @@
 ---
 
 
-## 俄罗斯最大的银行Sberbank获准交换加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2196342/)
+## 俄乌战争给予新中国联邦人扎扎实实的启示
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2196467/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：波士顿五月花背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-20-at-2.51.00-PM.png)图片来源：互联网
+据乌克兰国家通讯社周日（3月20日）报道，乌克兰总统办公室主任的编外顾问奥列克西·阿列斯托维奇（Oleksiy Arestovych）表示，乌克兰不可能成为非军事化国家。
 
-翻译/编辑：小红帽
+他在接受自由电台采访时说，”根据《联合国宪章》，世界上每个国家都有自卫的权利。我们乌克兰的人民和政府都非常清楚，我们的自卫队必须是独立的，自给自足的，因为不能依靠任何人。因此，我们成为非军事化国家是不可能的。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/sberbank-serbia-1200-1646266539.jpg)图片来源：ww.gfmag.com
+**阿列斯托维奇认为，乌克兰人必须靠自己，不能依靠别人。因为乌克兰在放弃核武器前，曾经是世界第三大核武器数量的国家。**
 
+根据乌克兰、俄罗斯联邦、美利坚合众国总统和英国首相于1994年12月5日签署的《布达佩斯备忘录》，乌克兰加入了《不扩散核武器条约》，通过这项协议，这些国家向白俄罗斯、哈萨克斯坦和乌克兰提供了国家安全保证，后来在个别声明中包括中国（中共国）和法国。【2】
 
-根据美国商业内幕网3月19日报道，随着西方的制裁打击俄罗斯的外汇转移，俄罗斯中央银行已授予Sberbank发行和交换加密货币的许可证。
+乌克兰遵守协议，1993 年至 1996 年间，乌克兰放弃了核武器。
 
-俄罗斯最大的银行Sberbank表示，西方针对俄罗斯的制裁已经限制了俄罗斯和国外的外汇转移。其中，可用于向俄罗斯和其他银行转账的货币清单已经受到限制。
+俄罗斯联邦和美利坚合众国 2009 年 12 月 4 日的联合声明确认了他们的承诺。【2】
 
-据路透社报道，Sberbank表示将使用区块链技术来保证数字交易的安全，并允许公司发行自己的数字资产，购买Sberbank内部发行的数字资产，以及进行其他交易。
+阿列斯托维奇还补充说，所有布达佩斯备忘录的保证人，不仅是俄罗斯，实际上都欺骗了乌克兰。据他介绍，乌克兰目前正处于敌对行动的激烈阶段，因为所有担保人都没有履行承诺。【1】
 
-俄罗斯中央银行在呼吁禁止在该国使用、挖掘和交易加密货币后仅两个月就向Sberbank发放了许可证。监管机构对俄罗斯可能利用加密货币规避制裁提出了担忧。
+俄罗斯周三（16日）曾提出停战方案即一个拥有自己军队的非军事化乌克兰。
 
-据CoinDesk报道，Sberbank曾在1月份向俄罗斯中央银行申请许可证，以推出自己的数字货币。
+郭文贵先生多次在直播中表示，消灭共产党最终只能靠我们自己，只有扎扎实实的实力（包括社交媒体、金融经济、G系列生态，战友团结等）才能灭共，其他力量只是合作或互相利用的关系。俄乌战争正是给新中国联邦人-消灭邪恶中国共产党的新中国人予启示。乌克兰人与中国人在许多方面有着共同点，他们可能是中国人最需要珍惜的朋友！
 
-新闻来源：[Russia’s biggest bank Sberbank gets permission to exchange crypto, as sanctions hobble dollar transfers](https://www.businessinsider.co.za/russia-crypto-sberbank-issue-and-exchange-sanctions-hit-forex-transfers-2022-3)
+参考链接：
 
-发布：tianzhihuan
+【1】[乌克兰不可能成为非军事化国家](https://www.ukrinform.net/rubric-ato/3434595-ukraine-as-demilitarized-state-out-of-the-question-arestovych.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+【2】[1994 年布达佩斯安全保证备忘录](https://web.archive.org/web/20170312052208/http://www.cfr.org/nonproliferation-arms-control-and-disarmament/budapest-memorandums-security-assurances-1994/p32484)
+
+* * *
+
+*编辑&发布：Vicky*
 
  
 

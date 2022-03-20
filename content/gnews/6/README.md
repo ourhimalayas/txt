@@ -2,31 +2,20 @@
 ---
 
 
-## 樱花FM|樱花时政:德法规劝普京停战无果 美再援乌2亿美元
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2196565/)
+## PPT里关于俄乌战争三件事绝不可能发生，再提丢人（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2196632/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/德法规劝普京停战无果-美再援乌2亿美元.png)
-德国总理肖尔茨和法国总统马克龙3月12日同俄罗斯总统普京通话，爱丽舍宫称此次对话“十分艰难”。美国总统拜登当天批准向乌克兰再提供2亿美元军事援助。
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220317-902-910-2_4.jpeg)
+*发布：陶子*
 
-马克龙和肖尔茨在12日同普京通话时，再次敦促立即在乌克兰停火，并通过外交解决争端。马克龙顾问透露，谈话进行得”很艰难”，普京没有停止战争的意愿。法方幕僚称，马卡龙和肖尔茨要求俄军停止对马里乌波尔的围攻，在断水断电的情况下，那里正在出现一场人道主义灾难。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
-马克龙表示，将竭尽外交手段，坚持对普京的强硬路线，施加”最大”压力。马克龙此前已透露，欧盟正在酝酿对俄的第四个制裁方案，其力度堪比国际社会对朝鲜和叙利亚的制裁。
-
-据白宫12日公布的消息，美总统拜登批准了向乌再提供2亿美元军援，援助方案包括反坦克和防空武器系统、小型武器和协助训练乌克兰军队等项目。
-
-在战争爆发之初，拜登就已批准向乌提供价值3.5亿美元的军事援助。
-
-文字版原文：
-
-
-| [樱花时政┃德法规劝普京停战无果 美再援乌2亿美元](https://gnews.org/zh-hans/2160094/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
