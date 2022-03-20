@@ -2,35 +2,30 @@
 ---
 
 
-## 新加坡大量与“COVID无关”的急诊入院病人医院仍然面临压力
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2194147/)
+## 樱花时政┃联合国宣布乌克兰847平民死亡，330多万人逃难
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2194329/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/105-pic.png)
-2021 年 9 月 19 日发布的照片，新加坡陈笃生医院的事故和急诊 (A&E) 部门。（照片：Facebook/陈笃生医院）
-**据新加坡官媒《亚洲新闻频道》优思敏（Yasmin Begum）2022年3月18日报道**
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-125.png)照片来源于本文链接
+据NHK新闻3月20日报道，联合国人权组织办事处（UNHCR）宣布，截至本月18日，乌克兰有847名平民被确认死亡，包括至少64名儿童。
 
-新加坡卫生部长王乙康，周五（3月18日）表示，由于大量与COVID无关的事故和急诊入院病人，新加坡的医院仍然 “非常繁忙和紧张”。
+这些人包括首都基辅、第二大城市哈尔科夫，以及东部的顿涅茨克州和卢甘斯克州的公民。
 
-王先生在脸书上写道：”这些人大多是慢性病患者，在过去两年里，由于医疗系统忙于对抗COVID-19，这些慢性病已经恶化了。”
+然而，在乌克兰东部地区，如马里乌波尔，俄罗斯的猛烈攻击并未停止，有报告说有一些市民被杀，详细情况正在确认之中，实际伤亡人数只能更高。
 
-他指出，在每 100 名入院的急诊患者中，有 90% 至 95% 因健康紧急情况或慢性疾病恶化而入院。
+另外，根据联合国难民事事务办事处的确认，截至1月18日，在俄罗斯军事入侵后，从乌克兰逃往邻国和境外其他国家的人数已经超过330万。
 
-王先生还说，“这些患者中的许多人因带有 COVID-19 而入院，其中约 20% 的人偶然诊断出感染 COVID-19。 剩下的 5% 需要做与 COVID 有关的特殊治疗。”
+其中大约有201万人生活在波兰，52万人生活在罗马尼亚，36万人生活在摩尔多瓦等等。大约有18万人逃到了俄罗斯。
 
-在他的帖子中，他还介绍了新加坡 COVID-19 的最新情况。
+同时，国际移民组织（IOM）3月18日宣布，截至16日为止，乌克兰境内的难民人数估计约为648万人。
 
-他说：“根据每日病例数，这波Omicron 病症已明显达到顶峰，正在加速消退中。 每周病例递减比率现在接近 0.7。 就在几天前，还超过了 0.9”。
+信息来源：
 
-他补充说，因 COVID-19 而住院的患者人数在逐渐减少。
+[ウクライナ 国連“市民847人死亡確認 国外避難は330万人超に”](https://www3.nhk.or.jp/news/html/20220320/k10013542401000.html?utm_int=news-international_contents_list-items_002)
 
-截至周四中午，医院共有1230名患者。 3 月 1 日，住院的 COVID-19 患者人数为 1,726 人。
-
-【译者评论】：新加坡人口打了三针COVID疫苗的占70%。王先生所述的所谓大量与COVID无关的急诊入院病人，是不是预示着疫苗灾难的来临？所谓COVID无关或许只是官媒是说辞而已。
-
-资料链接：[https://www.channelnewsasia.com/singapore/covid-19-hospitals-under-stress-omicron-ong-ye-kung-2573356?cid=FBcna&fbclid=IwAR2UVFad6m3NuVXa9C0rtMDbjLEzhpeMF-3J5BvKS-qx8NNKJqryjr7Dn-w](https://www.channelnewsasia.com/singapore/covid-19-hospitals-under-stress-omicron-ong-ye-kung-2573356?cid=FBcna&amp;fbclid=IwAR2UVFad6m3NuVXa9C0rtMDbjLEzhpeMF-3J5BvKS-qx8NNKJqryjr7Dn-w)
-
-翻译：Latin |校对：烟波浩淼 |编辑&发布：叶子
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

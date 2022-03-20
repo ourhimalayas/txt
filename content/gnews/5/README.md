@@ -2,19 +2,10 @@
 ---
 
 
-## 灭共后我们不搞政治和七哥回答战友的问题（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194766/)
+## 烏克蘭國際人道救援行動持續 戰友仍請小心防疫
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2194942/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-三-scaled.jpeg)
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+台灣寶島農場
 
  
 

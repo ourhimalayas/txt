@@ -2,37 +2,34 @@
 ---
 
 
-## 中共国不断“演疫”背后隐藏着不可告人目的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2194389/)
+## 美国官员：可靠消息称俄罗斯间谍头目被捕
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2194641/)
 
-撰稿：东京樱花团/加一颗稻草
+翻译：冰糖葫芦喵
 
+编辑与校对：灭共文明、冰糖葫芦喵
 
+《华尔街日报》3月19日报道，**一名美国官员称有可靠消息显示，负责乌克兰事务的俄罗斯联邦安全局(FSB)指挥官已被软禁。这表明了俄罗斯入侵乌克兰战事基本停滞。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯国防部-e1647741453890.jpg)俄罗斯国防部建筑外观（图片来源：华尔街日报）
+据报道，这名美国官员透露，**俄罗斯情报部门和国防机构内部已经开始相互指责，**莫斯科本以为会以闪电式**占领乌克兰首都，反而使其陷入尴尬的泥沼，并为此付出了高昂的代价。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+俄罗斯调查记者索尔达托夫(Andrei Soldatov)说，**普京可能在指责俄罗斯联邦安全局没能像他预期的那样让乌克兰政府迅速垮台。**
 
+报报道，**正在接受调查并被软禁的俄罗斯联邦安全局官员是陆军中将**、谢尔盖·贝塞达(Sergei Beseda)**是俄罗斯情报机构第五情报局(Fifth Service)的负责人**，第五情报局也被称为作战信息与国际通信局。
 
+**俄罗斯联邦安全局(FSB)前局长普京帮助建立了第五情报局(Fifth Service)。**第五情报局实际上是FSB的对外情报部门，主要负责内部安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-31.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmz.eastday.com%2F59758435.png%3Fimageslim&amp;imgrefurl=https%3A%2F%2Fj.eastday.com%2Fm%2F1637917430044625&amp;tbnid=bWOgA18eoswxsM&amp;vet=12ahUKEwiStuTpuNP2AhVqgv0HHZocBI0QMyhCegQIARA9..i&amp;docid=wZRvNrVXeXtjjM&amp;w=530&amp;h=353&amp;q=%E5%B0%81%E9%94%81%E5%B0%8F%E5%8C%BA&amp;ved=2ahUKEwiStuTpuNP2AhVqgv0HHZocBI0QMyhCegQIARA9#imgrc=bWOgA18eoswxsM&amp;imgdii=8HisL0tNuuKs-M)
-自2019年中共病毒(新冠病毒Covid-19)爆发以来，中共国内一直施行着惨无人道的防疫措施。致使由防疫引发的次生灾难层出不穷，经济运行几乎停滞，这样的防疫灾难对国内老百姓的伤害远大于病毒所带来的伤害。
+这名美国官员在接受采访时还说，俄罗斯联邦安全局和俄罗斯国防部(Russian Ministry)之间也发生了争吵。这两家机构是负责准备2月24日入侵行动的主要政府部门。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/基辅幼儿园被炮击.jpg)乌克兰基辅一幼儿园被炮击成废墟（图片来源：华尔街日报）
+本月早些时候，美国中央情报局局长伯恩斯(William Burns)对美国国会说，**普京计划在两天内占领乌克兰首都基辅，**这意味着普京预计阻力会降到最低。
 
-近期各国逐渐放开了防疫管制，病毒的毒性也正在减弱。据中共卫建委公布的数据重症率只有0.1%，还没有普通流感危害严重。那么中共国为什么在国内房地产处处爆雷，经济形势接近崩溃的情况下，还要继续这种严格的防疫措施呢？
+**相反，俄罗斯军队遭遇了乌克兰的猛烈反击**，**他们的地面推进本周陷入停顿，**伤亡人数不断增加。乌克兰政府表示，**已有四名俄罗斯将军死亡。**
 
-表面上中共解释说，由于人口基数大，即使很低的重症率和死亡率就能造成几十万人的死亡。但是从过往的8964、香港反送中、新疆种族灭绝、西藏屠杀、武汉疫情、郑州水灾等等事件中，可以看到中共从来没想过老百姓的死活，中共只在乎其政权的稳定。
+据美国政府的一些计算估计，**在战斗中死亡的俄罗斯士兵多达7000人。**
 
-中共国内经济一塌糊涂。股市暴跌、房地产崩盘、天量的地方债、银行坏账有增无减、失业率持续攀升等等这些, 足以证明经济崩溃是看得见的未来。这些都是不稳定因素，以疫情防控的手段限制老百姓的自由是最低成本的选择。
+新闻来源链接：
 
-国内新冠疫苗的接种，截至3月17日，全国累计报告的接种32亿1377万剂次，接种总人数是12亿7347万，完成全程接种12亿3957万，占总人口的87.85%，完成加强免疫接种6亿4468万人。由疫苗引发的不良反应，随着时间的积累发生的频率越来越高，中共只好用疫情来背疫苗后遗症的锅。
-
-俄乌战争爆发以来，由中共挑起的这场闹剧，在中共看来并未达到预期效果。俄罗斯国内的反战运动也给中共敲响了警钟，但是中共想要侵略台湾的野心有增无减，对国内严格管控的常态化有助于维持稳定。事实上这种管控与战争状态并无太多差别，也可以叫做战前管理。
-
-中共绑架老百姓七十多年，所犯下的罪行比比皆是，罄竹难书。如今中共这辆千疮百孔的战车，在“习总加速师”的带领下，正进行末日狂奔，终将跌入万劫不复的深渊中毁灭殆尽。此时我们只希望老百姓能及时醒悟，尽快脱离中共的末日战车，尽量不要成为中共陪葬品。
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
-
+[Reported Detention of Russian Spy Boss Shows Tension Over Stalled Ukraine Invasion, U.S. Officials Say – WSJ](https://www.wsj.com/articles/reported-detention-of-russian-spy-boss-shows-tension-over-stalled-ukraine-invasion-u-s-officials-say-11647687601)
 
  
 

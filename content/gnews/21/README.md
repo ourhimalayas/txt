@@ -2,30 +2,38 @@
 ---
 
 
-## 樱花时政┃联合国宣布乌克兰847平民死亡，330多万人逃难
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2194329/)
+## 有声|战友前线救援 践行健身健心
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2194634/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-125.png)照片来源于本文链接
-据NHK新闻3月20日报道，联合国人权组织办事处（UNHCR）宣布，截至本月18日，乌克兰有847名平民被确认死亡，包括至少64名儿童。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月17日，新中国联邦和法治基金在波兰梅蒂卡救助点的记者Nicole 发回了多条前线救援消息：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-19-at-9.47.28-PM.png)
+- 一位前一夜通宵值班的德国纽伦堡正义农场的战友介绍，在他们值班期间，新中国联邦和法治基金的救援帐篷前车辆川流不息，来往运送7人一组的难民20多批次，一夜间救援团接待了超过两百名难民。而在难民们达到救援点后，战友们用香浓的现磨咖啡招待了她们，安抚她们颠沛流离的内心。
+- 随着救援行动的持续进展，不少当地民众捐赠了大量的物资，包括水、面包、衣物等，这也为在救援点短暂安置的难民们提供了充足的挑选空间。但据前线战友透露，规整物资现在已经是救援团队每天必做的一项大工程：义工战友需要不间断地进行分类、收拾和整理工作。其中，文耀战友在工作的间隙透过采访镜头向爆料革命的战友们呼吁称，大家一定要坚持健身，保持良好的身体。
 
-这些人包括首都基辅、第二大城市哈尔科夫，以及东部的顿涅茨克州和卢甘斯克州的公民。
 
-然而，在乌克兰东部地区，如马里乌波尔，俄罗斯的猛烈攻击并未停止，有报告说有一些市民被杀，详细情况正在确认之中，实际伤亡人数只能更高。
 
-另外，根据联合国难民事事务办事处的确认，截至1月18日，在俄罗斯军事入侵后，从乌克兰逃往邻国和境外其他国家的人数已经超过330万。
 
-其中大约有201万人生活在波兰，52万人生活在罗马尼亚，36万人生活在摩尔多瓦等等。大约有18万人逃到了俄罗斯。
+文字版原文：[战友前线救援 践行健身健心](https://gnews.org/zh-hans/2190118/)
 
-同时，国际移民组织（IOM）3月18日宣布，截至16日为止，乌克兰境内的难民人数估计约为648万人。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-信息来源：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[ウクライナ 国連“市民847人死亡確認 国外避難は330万人超に”](https://www3.nhk.or.jp/news/html/20220320/k10013542401000.html?utm_int=news-international_contents_list-items_002)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

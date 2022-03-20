@@ -2,19 +2,21 @@
 ---
 
 
-## 灭共后我们不搞政治和七哥回答战友的问题（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2194769/)
+## 俄军首次使用高超音速导弹摧毁乌军事目标
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194981/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-四-scaled.jpeg)
-*发布：陶子*
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/files-russia-ukraine-conflict-075110.jpg)俄军首次使用高超音速导弹炮击乌克兰军事目标，图为搭载“匕首”高超音速导弹的俄罗斯米格31战机在2018年5月胜利日阅兵仪式上飞越莫斯科红场。（法新社档案照片）
+俄罗斯军方周五（3月18日）首次使用高超音速导弹摧毁乌克兰西部军事仓库。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+据法新社报道，俄国防部周六（19日）通报，“匕首”航空导弹系统（Kinzal aviation missile system）发射高超音速气动弹道导弹（hypersonic aeroballistic missiles），摧毁位于乌克兰伊万-弗兰科夫州（Ivano-Frankivsk）的乌军大型导弹和航空弹药仓库。
+
+据俄罗斯新闻通讯社报道，这是俄罗斯向乌克兰发动特别军事行动以来，首次使用“匕首”高超音速导弹。
+
+参考连结：[https://www.zaobao.com/realtime/world/story20220319-1253999](https://www.zaobao.com/realtime/world/story20220319-1253999)
+
+审核校对：Barry Jack
+上传排版：F
 
  
 
