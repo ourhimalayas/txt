@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/20/2022 9:50 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援基地前线报导
+![img](https://media.gettr.com/group17/origin/2022/03/20/08/79094979-2e57-c8bf-7716-55c05b777821/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/20/2022 6:42 AM (UTC)`
 
 【Ukraine Rescue】 03/19/2022 Nicole: the Ukraine humanitarian relief operation Rescue Mission sponsored by ROLF and NFSC receives more attention from Chinese; Medyka refugee camp has become an anti-communist alliance bringing together forces of justice from around the world.<br/><br/>【乌克兰救援】03/19/22 妮可战友：新中国联邦乌克兰人道救援行动受到更多华人的关注；梅迪卡难民营已经成为汇聚全世界正义力量的反共同盟。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -147,13 +154,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 【Ukraine Rescue 】03/13/2022  Voice of America journalist Kalyl Bentwila is interviewed by our volunteers. He says that Western countries, the United Nations, and international organizations should support the NFSC and work with Mr. Guo to take down the Chinese Communist Party and change China into a better and more humane society. He is proud of Mr. Guo and the Whistleblowers’ Movement.<br/><br/>【乌克兰救援】03/13/2022  美国之音的记者（Voice of America) 名叫Kalyl Bentwila，他在直播的时候接受了我们义工的采访。他表示，西方国家、联合国、和国际组织都应该支持新中国联邦，跟郭先生一起推翻中国共产党，改变中国，把中国变成一个更加美好和人性化的社会。 他为郭先生和爆料革命感到骄傲。<br/> <br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group4/getter/2022/03/19/14/91746604-16f5-bb9b-59b7-6d9c98204702/out.jpg)
-
----
-
-`@miles 3/19/2022 1:54 PM (UTC)`
-
-【Ukraine Rescue】03/18/22 We have some fellow fighters recovered and back to work again today. After the adjustment and recovery, our follow fighters all back to work energetically. Our rescue operation held by ROLF and NFSC has received compliment and recognition from the local Polish people and international NGOs.<br/><br/>【乌克兰救援】03/18/22 我们今天也有几位战友康复回来归队。大家经过这段的调整，康复以后，我们都精力满满，回到这个工作岗位上。我们这次法治基金新中国联邦的救援行动也得到了波兰民间和国际NGO组织的认可和赞赏。<br/>
-![img](https://media.gettr.com/group14/getter/2022/03/19/13/5a14bd37-e85c-7879-291b-0da175924b0f/out.jpg)
 
 ---
 

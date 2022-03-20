@@ -2,29 +2,33 @@
 ---
 
 
-## 樱花FM|樱花时政:俄罗斯封锁黑海沿岸 升级对乌克兰火力攻击
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2197045/)
+## 拜习通话之前中共航空母舰穿越台湾海峡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2197142/)
 
-音频：东京樱花团/战友520
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月18日，在拜登总统和中共习近平进行视讯通话的前几个小时，中共一艘航空母舰驶过敏感地带台湾海峡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯封锁黑海沿岸-升级对乌克兰火力攻击.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-34.jpg)
 
-英国国防部3月13日宣布，俄罗斯海军已经封锁了乌克兰黑海沿岸。
+消息人士称，当天上午十点半左右，一名民航飞机上的乘客拍到了在台湾领土金门岛附近外海，中共编号为CV-17的“山东号”航空母舰正向北穿过台湾海峡。当时航母的甲板上没有飞机。消息人士补充说，除了台湾派出军舰密切关注局势，美国阿利·伯克导弹驱逐舰 “
 
-据该部称，俄罗斯海军继续用导弹攻击乌克兰目标。
+拉尔夫·约翰逊 “号在航路上跟踪了“山东号”一段时间。台湾国防部在随后的一份简短声明中，确认了“山东号”通过的事实，强调台湾军方 “完全掌握 “中共的船只和飞机在台湾海峡的所有行动”，但并未给出细节。
 
-未来几周，俄罗斯可能会实施像从亚速海登陆一样的更多海上登陆行动。
+台湾民进党高级立法委员罗智正称，鉴于俄乌局势的影响，中共对台湾的侵略随时都有可能发生，又正值拜习电话会晤的敏感时间点，“山东”舰大白天穿过台湾海峡，具有明显的“挑衅”意味。
 
-文字版原文：
+链接：
 
-
-| [樱花时政┃俄罗斯封锁黑海沿岸 升级对乌克兰火力攻击](https://gnews.org/zh-hans/2160182/) |   |
-| --- | --- |
+- [Chinese carrier sails through Taiwan Strait hours before Biden-Xi call](https://www.reuters.com/world/china/exclusive-china-sails-carrier-through-taiwan-strait-hours-before-biden-xi-call-2022-03-18/)
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：飞虹
+编辑：宁文静
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
