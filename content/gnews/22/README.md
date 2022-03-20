@@ -2,18 +2,24 @@
 ---
 
 
-## 俄军首次使用高超音速导弹摧毁乌军事目标
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2194981/)
+## 乌总统23日向日本国会发表视频演说
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2195173/)
 
 采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/files-russia-ukraine-conflict-075110.jpg)俄军首次使用高超音速导弹炮击乌克兰军事目标，图为搭载“匕首”高超音速导弹的俄罗斯米格31战机在2018年5月胜利日阅兵仪式上飞越莫斯科红场。（法新社档案照片）
-俄罗斯军方周五（3月18日）首次使用高超音速导弹摧毁乌克兰西部军事仓库。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ukraine-russia-conflict-zelensky-161527.jpg)乌克兰总统泽连斯基将于下周三（23日）向日本国会发表视频演说。（法新社）
+乌克兰总统泽连斯基将于下周三（3月23日）下午6时，通过视频方式向日本国会发表演说。
 
-据法新社报道，俄国防部周六（19日）通报，“匕首”航空导弹系统（Kinzal aviation missile system）发射高超音速气动弹道导弹（hypersonic aeroballistic missiles），摧毁位于乌克兰伊万-弗兰科夫州（Ivano-Frankivsk）的乌军大型导弹和航空弹药仓库。
+据日本共同社18日报道，日本参议院和众议院询问能否安排在22日，乌方回复众院称希望23日进行。多名执政党相关人士透露该消息。
 
-据俄罗斯新闻通讯社报道，这是俄罗斯向乌克兰发动特别军事行动以来，首次使用“匕首”高超音速导弹。
+演说由参众两院联合承办，在俄罗斯持续进攻的形势下，泽连斯基或将强调与日本加强团结。
 
-参考连结：[https://www.zaobao.com/realtime/world/story20220319-1253999](https://www.zaobao.com/realtime/world/story20220319-1253999)
+相关人士透露，乌方希望演说进行直播，但根据其国内情况，有可能出现变化。
+
+乌克兰驻日本大使科森斯基17日与参众两院议长会面，希望安排演说。首相岸田文雄也要求国会积极讨论。朝野各党人士纷纷表示应促成演说。
+
+泽连斯基迄今已在美国和英国国会上发表视频线演说，致力唤起对俄罗斯入侵乌克兰的国际舆论。
+
+参考连结：[https://www.zaobao.com/realtime/world/story20220319-1254016](https://www.zaobao.com/realtime/world/story20220319-1254016)
 
 审核校对：Barry Jack
 上传排版：F

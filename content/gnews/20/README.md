@@ -2,12 +2,18 @@
 ---
 
 
-## 天空新闻：300万乌克兰难民逃到了邻国，现在仍面临各种困难
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2195076/)
+## 视频|邦女神在行动
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2195208/)
 
-03/18/2022 天空新闻：300万乌克兰难民逃到了邻国，仍面临各种困难。
+制作：大直播短视频组 – RayChan(小笔民)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+编辑：RayChan(小笔民)
+发稿：为真不破20
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

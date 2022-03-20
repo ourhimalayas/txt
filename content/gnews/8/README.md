@@ -2,27 +2,19 @@
 ---
 
 
-## 视频|欧洲数国对俄罗斯制裁的新举措
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2195256/)
+## 关于台湾大牛的问题（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2195481/)
 
-制作：香草山视频部
+#### PPT制作: Qingjing ；玉米地的
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-20-11-30-五-scaled.jpeg)
+*发布：陶子*
 
-台湾媒体报道，3月18日，保加利亚和波罗的海三国外交部分别表示，四国均驱逐了多名俄罗斯外交官，共计20人。
-
-保加利亚外交部宣布，10名俄罗斯外交官为不受欢迎人物，并限期他们72小时离开。理由是这些外交官从事与身份不符的活动。3月2日，保加利亚已驱逐了2名俄国外交官。
-
-同日，波罗的海三国，拉脱维亚、爱沙尼亚和立陶宛外交部也表示，3国共驱逐了10名俄罗斯外交官。拉脱维亚外交部长克维斯奇拉发推文称，这些俄国外交官因为从事与他们外交地位相违背的行为而被驱逐。爱沙尼亚外交部声明称，俄国外交官直接且持续的破坏爱沙尼亚的安全，并散播俄国侵略活动的宣传。立陶宛政府则表示，驱逐俄外交官是为了展现与乌克兰团结一致。
-
-另外，波兰总理3月18日表示，作为欧盟东部最大成员国，波兰将开启经济去俄罗斯化进程，以应对俄罗斯对乌克兰的侵略行为。
-
-波兰总理莫拉维茨奇表示，波兰政府一直认为，欧洲需要减少对俄罗斯石油和天然气的依赖，并坚决反对北溪2号天然气管道计划。认为俄罗斯的天然气勒索以及原料供应，不仅被当作心理战的要素，而且已经变成了战争行为。
-
-发稿：谐趣园
-
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
