@@ -2,41 +2,38 @@
 ---
 
 
-## 樱花FM|张文宏成为第二个“钟南山”？
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2198643/)
+## MV版Hcoin To the Moon上线101天第37次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2198653/)
 
-音频：东京樱花团/战友520
+3/20/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线101天第37次位列匈牙利iTunes热门音乐视频榜榜首，第52次位列前三名
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/张文宏成为第二个钟南山.png)
+* * *
 
-3月14日，国家传染病医学中心主任、上海复旦大学附属华山医院感染科主任张文宏微博再发千字长文解析疫情。他先从上海讲起：*由于短期内出现了大量的病例，全国各地难免显得有些慌乱，上海也不例外。上海的精准防控在这次奥密克戎BA.2传播之际，由于发生突然，启动晚，病毒快，目前仍处于与病毒的并跑阶段，感到非常吃力。*
+[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-然后在谈及香港：
+* * *
 
-*1、病毒的毒力真的是明显降低了，香港这轮疫情死亡的病例除了年纪大是高风险因素外，绝大多数有明显的基础疾病。换句话说，免疫功能正常，打过疫苗的，无论是何种疫苗，只要是加强过的，基本上都没事。对于这个病毒，消除恐惧是我们必须走出的第一步。*
-
-*2、我们统计的上海近六个月收治的2266例病例中，大多数是海外输入性病例，94%打过疫苗。这2266个病人中，重症的只有0.1%，危重症（需要插管）和死亡的一例也没有。有人说病人中94%的打了疫苗还感染，说明疫苗没有用。这就不讲道理了。现在国际旅行的人疫苗接种率很高，达到90%以上，其中不到5%的入境时候被筛查出来有核酸阳性。你去看这感染的5%的人，当然是大多数打过疫苗，这可以理解为打了疫苗仍有突破感染的机会。但是重症率与死亡率真的低于流感了。*
-
-*3、香港数据，新加坡和英国数据都显示，不打疫苗不一定有事，因为病毒已经变得相对比较弱了。但是有事的绝大多数都是没有打过疫苗的。在香港这次疫情中，死亡个案中，有 89.4%的人并无接种疫苗或只注射了一针疫苗。而 80 岁或以上的死亡个案中，更有 91.5%的人未接种或只打了一针。根据死亡率分析，接种一剂或未打针人士的整体死亡率是 2.03%，相较接种两针人士的 0.09%，有 23 倍的差别。*
-
-*4、3 月 10 日英国《每日邮报》称，由于经过群体感染与高水平的疫苗接种，包括付出了惨痛的群体感染过程中大量人员的损失，新冠肺炎在英国的致死性已经低于流感。病死率下降了七倍，仅为 0.03%。由于奥密克戎已经变得很温和，在实现了广泛接种和自然感染率的国家，新冠病毒现在可能甚至没有流感那么致命。*
-
-最后得出结论：
-
-*老年人普遍的第三针接种，以及更好的疫苗与疫苗接种策略，可以广泛供给的口服药物，可以负担得起的广泛提供的居家检测试剂，得到有效训练和预演的分级诊疗策略，未来居家隔离的流程。*
-
-张文宏这次的公开表态是中共的又一波谎言舆论攻势，塑造一个英雄主义，安慰那些普通百姓，洗脑可怜的中国人。加以疫情为由加大疫苗接种率，推出所谓的口服药，将老弱群体彻底消灭，还要让民众自费购买检测试剂，继续为CCP的苟延残喘增加一定的金融和物质条件，为打台湾控制舆论导向。战友们，墙内的同胞们，一定要保护自己及家人，这是CCP 最后疯狂的开始，我们要健身健心，锻炼好心脏等待最终的胜利，黎明前的黑暗，NFSC的那盏明灯一定要抓住。
-
-文字版原文：
-
-
-| [张文宏成为第二个“钟南山”？](https://gnews.org/zh-hans/2161872/) |   |
-| --- | --- |
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-6.jpg)
+[【PDF 下载】Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Sunday-20-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
