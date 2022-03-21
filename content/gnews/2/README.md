@@ -2,29 +2,81 @@
 ---
 
 
-## 锁链之一：仁义道德的绑架
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2205649/)
+## 视频|从狗狗看到不同的世界
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205788/)
 
-作者：香草山医疗组 火星人（盖特shuiwuxing8）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-名为虚，智者不计毁誉。
-译文：名声是虚的，有智慧的人不会计较别人的毁谤和赞誉。
+自3月10日法治基金-新中国联邦在波乌边境梅迪卡小镇搭建好第一个大帐篷以来，
 
-一个人名声的好坏，对他事业的成功，仕途的发展和追求的实现，似乎没有太大的影响。这个结论在历史中便可得到验证，封建时代虽然标榜仁义道德，并以此为考察人之善良、忠孝、信义的标准，可在实际行动却是从没有真正的得到过贯彻。相反，名称不好的贱小之辈，往往身居高位备受宠信，而名声卓著，有口皆碑的正人君子却常常被诬为小人，反受迫害。这种现象贯穿于封建时代的始终，不仅反证了封建社会仁义道德的虚伪，也诱导了人们不择手段的去求取功名，为了私利，不计其余。
+迎来了许多妇女、儿童、老人难民，甚至还有难民家庭中的宠物狗成员。
 
-几十年来，CCP正是用这种仁义道德绑架我们让我们做好人，用思想束缚我们，当他们却把坏事干尽的时候希望我们用海纳百川有容乃大的胸怀包容他们。我们恰恰要做的就是不能在意别人的评价，要做我们自己，七哥苦口婆心一再叮嘱我们-一定要做自己！比做自己更难的是找到自己！为自己清晰定位！跟随七哥天天在心中祈福，一天天进步来承担起新中国联邦人的责任和担当！
+这些狗狗有点温顺地躺在主人怀中，
 
-审核/编辑/发稿：谐趣园
+有的与主人一起围坐在暖气炉旁烤火，
 
-![This image has an empty alt attribute; its file name is 6E878D77-D03C-44C7-A803-4046B28027C2.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/6E878D77-D03C-44C7-A803-4046B28027C2.jpeg)
+有的舒展地躺在地板上休息。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+很多难民连续几十小时，
+
+甚至几天的步行才到达梅迪卡小镇，
+
+身心已经很憔悴和疲劳。即使在这么艰难的条件下，
+
+主人仍然不忘带上朝夕相伴的狗狗，
+
+将狗狗视为家中的一员，不离不弃、患难与共！
+
+反观中共国，深圳福田防疫人员却在狗主人被隔离的情况下，
+
+对狗狗统统实施血腥的捕杀！
+
+【盖文】共产党是一切罪恶和灾难的根源！在有人权的乌克兰，狗狗与人一样活的安全而有尊严；在没有人权的中共国，人活得不如自由民主社会的狗，狗也活得既没有尊严，更没有安全！
+
+翻译
+
+从狗狗看到不同的世界
+
+Seeing a different world from dogs
+
+自3月10日法治基金-新中国联邦在波乌边境梅迪卡小镇搭建好第一个大帐篷以来，
+
+Since the first large tent was set up by the Rule of Law Foundation-NFSC on March 10 in the small town of Medyca on the Polish-Ukrainian border,
+
+迎来了许多妇女、儿童、老人难民，甚至还有难民家庭中的宠物狗成员。
+
+it has welcomed many women, children, elderly refugees, and even pet dog members of refugee families.
+
+这些狗狗有点温顺地躺在主人怀中，有的与主人一起围坐在暖气炉旁烤火，有的舒展地躺在地板上休息。
+
+Some of these dogs lie meekly in the arms of their owners, some sit with their owners around the fire by the heater, and some lie stretched out on the floor to rest.
+
+很多难民连续几十小时，甚至几天的步行才到达梅迪卡小镇，身心已经很憔悴和疲劳。
+
+Many refugees had walked for dozens of hours, or even days, to reach the town of Medyca, already physically and mentally emaciated and fatigued.
+
+即使在这么艰难的条件下，主人仍然不忘带上朝夕相伴的狗狗，将狗狗视为家中的一员，不离不弃、患难与共！
+
+Even in such difficult conditions, the owners still remember to take their dogs that are always with them, treating them as a member of the family, never leaving them and sharing the hardships!
+
+反观中共国，深圳福田防疫人员却在狗主人被隔离的情况下，对狗狗统统实施血腥的捕杀！
+
+On the contrary, in the Communist China, the epidemic prevention officers in Futian, Shenzhen, have been carrying out bloody hunting and killing of all dogs while their owners were quarantined!
+
+【盖文】共产党是一切罪恶和灾难的根源！在有人权的乌克兰，狗狗与人一样活的安全而有尊严；在没有人权的中共国，人活得不如自由民主社会的狗，狗也活得既没有尊严，更没有安全！
+
+【GETTR】The CCP is the root of all evil and disaster! In Ukraine, where there are human rights, dogs live as safely and with dignity as people; in the Communist China, where there are no human rights, people live less than dogs in a free and democratic society, and dogs live neither with dignity nor with safety!
+
+
+
+撰稿】：香草山信息部 出云
+
+【新闻链接】 https://mega.nz/folder/LHI2iIaS#kjQy-ce0cPB80Trf2SbtGw
+
+翻译：翻译部-文岄 679#3419
+
+剪辑：香草山视频部–Jesse(文博)
+
+发布: 奇门遁甲
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

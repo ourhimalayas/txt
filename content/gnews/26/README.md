@@ -2,30 +2,32 @@
 ---
 
 
-## 俄罗斯当局禁止访问youtube 或是对谷歌停止广告推销的报复
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2204771/)
+## 樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2205218/)
 
-翻译：宫米叶
+撰稿：东京樱花团/TV
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220319-00000004-asahi-000-5-view-edited.jpg)图片来源：朝日新闻
+制图：东京樱花团/chuansang
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-145.png)
+丹麦政府在2月份统计了各接种人群的每百万人感染人数（图1）[1]。自2月14日起，疫苗接种者的每百万人感染率随着接种次数而增加，即三针接种最易感染，两针次之，一针接种者风险最低（图2）。丹麦政府最后一次更新的2月21日数据中，三针接种的感染风险达到了一针接种者的2.45倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-110.jpg)
+虽然数据似乎显示一针接种者感染风险最低，甚至低于未接种者，但考虑到一至三针接种者的数据，这是不合理的。参考我们在新南威尔士州观察到的现象[2]，这应该是对未接种者过度测试的政策导致的结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-76.jpg)
+这个数据证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
 
-俄罗斯国营媒体俄罗斯通讯社18日报道，该国通信监管机构近期将切断对美国谷歌旗下视频发布服务“youtube”的访问。他说，最快18天内可能实施。
+（注：本文为《樱花数据分析》第二十期）
 
-俄罗斯通讯社称，一位与通讯监管当局关系紧密的人士说：“youtube在下周之前将被切断。”谷歌应欧盟(EU)的要求，在欧盟境内进行搜索也不会显示“RT”等两家俄罗斯国营媒体的内容。此外，谷歌已经停止了在俄罗斯的所有广告推销，切断对youtube的连接被认为是对这些限制的报复。
+数据来源：
 
-俄罗斯正在加大对外国社交网站的压力。3月上旬，俄罗斯以美国Meta公司运营的Facebook(FB)限制对俄罗斯国营媒体等的访问为理由，不进反退切断了对FB的访问。11日，俄罗斯认定Meta为“激进组织”，称该公司认可呼吁对俄罗斯士兵实施暴力行为的发帖，14日起限制了与该公司运营的Instagram的连接。
+[\[1\]Statens Serum Institut – Gennembrudsinfektioner (opgjort for 5+ årige)](https://experience.arcgis.com/experience/aa41b29149f24e20a4007a0c4e13db1d/page/page_5/)
 
-据俄罗斯通讯社报道，知情人士说：“youtube本应在本周被拦截，但由于meta的事件发生，为避免所有社交媒体被一齐切断链接而推迟了。”
+[\[2\]樱花数据分析│澳大利亚新南威尔士州：疫苗有效率提高？那是玩弄数据的小把戏！](https://gnews.org/zh-hans/1995298/)
 
-**参考资料：**[news.yahoo.co.jp][ロシア当局、ユーチューブも遮断へ　グーグルの広告販売停止に報復か](https://news.yahoo.co.jp/articles/2289a067d20a3b44bab5623686d60ba8088626c4)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/EN-e1646965309541.jpg)
 
-* * *
-
-*审核：BryanW*
-*校对：天天*
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
 
  
 

@@ -2,41 +2,20 @@
 ---
 
 
-## 有声|歌曲《锁链梦》音乐视频正式发布
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205482/)
+## 星链卫星是埃隆马斯克帮助乌克兰的方式
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2205702/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-郭文贵先生每次谈起歌曲《锁链梦》的创作，到录音、后期制作，都哽咽不已。此次音乐视频的录制，完全再现了郭先生录制和演唱这首歌时的真实感受。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-8.jpeg)
-郭先生说，他摒弃了音乐视频设计的很多动作。这首歌的歌词，每一个字都是中国人的血泪史，郭先生只想进入这种状态，什么动作不重要。后来呈现的MV中，虽然没有太多动作，但是情绪表现非常真实。
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03211.jpg)图片来自techprincess
+埃隆·马斯克将他的 Starlink 系统的卫星交给乌克兰使用，以确保即使在俄罗斯入侵期间它也能保持对互联网的访问。但现在事实证明，现实情况大不相同，至少根据《电讯报》和《每日邮报》重新发布的启示：特斯拉创始人在基辅提供的系统实际上有一个基本的战争目标，因为它允许无人机的使用，然后轰炸袭击者的坦克、其他车辆和设施。
 
-郭先生说，”锁链”套在每一个中国人脖子上。中共国的很多演艺界、商界人士都知道共产党邪恶，但他们懦弱、为虎作伥，逃脱不了钱和性，自己给自己戴上了锁链。
+马斯克从不隐瞒他在当前冲突中的立场，泽伦斯基总统本人曾通过推特感谢他，并邀请他在战争结束后访问该国，并感谢他在言行上支持乌克兰。下周乌克兰将收到另一个供应用于被毁城市的 Starlink 系统。
 
-《锁链梦》音乐视频中有画面是扑面而来的锁链，仿佛没有尽头，让人产生难以逃脱的恐怖与凄凉。这是锁链女的一生真实写照，也是中共国现状的缩影，因为每个中国人的一生都被中共套上了无形的精神锁链。新中国联邦一定会砸碎中共强加在中国人身上的锁链。
+它背后不仅仅是人道主义的善意，因为乌克兰军队使用无人机、卫星、传感器和人类智能拍摄的图像创建交互式地图能够看到俄罗斯坦克和其他车辆的位置，并精确地摧毁它们。
 
-据最新消息，《锁链梦》音乐视频已经在多个油管频道上线，而且，将陆续在世界各大音乐平台登录。敬请期待。
+原文链接: [https://www.repubblica.it/esteri/2022/03/21/news/elon\_musk\_satelliti\_starlink\_ucraina-342221913/](https://www.repubblica.it/esteri/2022/03/21/news/elon_musk_satelliti_starlink_ucraina-342221913/)
 
-
-
-文字版原文：[歌曲《锁链梦》音乐视频正式发布](https://gnews.org/zh-hans/2199129/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 
