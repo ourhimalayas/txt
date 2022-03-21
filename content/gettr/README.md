@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 11:15 PM (UTC)`
+
+2022.03.21 NFSC News  American Veteran Encourage the NFSC And All Chinese To Continue Taking Down The CCP; In-depth Interpretation the Sinister Intentions of Bloomberg's Front Line Interview
+![img](https://media.gettr.com/group31/origin/2022/03/21/23/7a7446b2-1d3a-a39d-b5d7-aef7269402e8/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/21/2022 11:08 PM (UTC)`
 
 3月21号：听说啊，这是路大脑袋或吴争——九指妖！搞了个混血儿！这是真的吗？真是共产党的好孩纸！🙈🙈🙈🙈🙈🙈
@@ -145,13 +152,6 @@ Liu Yanping, the only senior officer, former head of the State Supervision Commi
 
 3/20/2022 Miles Guo: Pangu’s dragon head turned into turtle head, what does this mean? The foreigners attending the 2022 Beijing Olympics Games all deem Miles Guo as the greatest hero in mankind - if the “atheistic” CCP doesn’t care about the Whistleblowers’ Movement, why did it turn Pangu’s dragon head into the turtle head?<br/><br/>3/20/2022文贵直播：盘古龙头变龟头意味着啥？参加冬奥会冬残会的外国人一致认为文贵先生是人类的大英雄，如果自诩为无神论的共产党真的不在乎爆料革命，为什么把盘古龙头变成龟头呢？<br/>
 ![img](https://media.gettr.com/group21/getter/2022/03/21/04/7fa4c9d0-41a4-ad7a-03dd-544cbfe9fa22/out.jpg)
-
----
-
-`@miles 3/21/2022 4:45 AM (UTC)`
-
-This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE News who tied closely to CCP regime. This time she defamed our humanitarian rescue as “just completing a political goal”. She also wants to white wash CCP, saying “Officially China has not wanted to activities back Russia.” But everybody knows that CCP is the origin of all evil. <br/>Thanks to DC Farm for making the video!🙏🙏🙏<br/>尊敬的战友们好，这个彭博社的女记者Aggi是第二个杨贝贝。这次，她污名化我们的人道救援是“完成政治目的”。 她更加想要为CCP洗白，说CCP“官方”没有支持俄罗斯对乌克兰的侵略战争。而众所周知，CCP就是那个万恶之源。 <br/>感谢DC农场制作的视频！🙏🙏🙏
-![img](https://media.gettr.com/group22/origin/2022/03/21/04/493a7acb-3cc9-57a1-c4eb-4f43db941f72/out.jpg)
 
 ---
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 西方世界对海外欺民贼的彻底清理行动已经开始（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206812/)
+## 中共经济一塌糊涂能跑就跑（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206969/)
 
 #### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10-10-20-一--scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-30-10-40-三-1-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
