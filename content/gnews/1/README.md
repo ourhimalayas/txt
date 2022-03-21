@@ -2,10 +2,15 @@
 ---
 
 
-## 3/20/2022 文贵直播：在俄乌战争中被干掉的莫德韦切夫中将是俄罗斯下一任国防部长的人选，他跟中共有何关联？
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2200442/)
+## 2022年3月21日《樱花简报》：日本将在未来5年向印度投资5万亿日元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2200651/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.21简报.jpg)
+
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
 
  
 

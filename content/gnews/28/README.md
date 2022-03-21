@@ -2,34 +2,29 @@
 ---
 
 
-## 文贵爆料3.20：开仗前，美先灭中共媒体平台
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2199210/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2199482/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-20-下午8.34.58.png)
-2022.3.20号郭文贵先生在大直播中爆料：“马上，也可能今天，也可能下一周，中国共产党的这些媒体还有企业，都会受到美国的制裁，叫作对中共先给放几个蚊子咬咬他，让他知道疼的感受”。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-20.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这是在拜登和习近平周五会谈后，美国的第一个行动，拜习两小时通话毫无结果。而习近平也以所谓“两个大国之间不能走到兵戎相见”，拒绝放弃对俄罗斯的支持。美国清楚地表明了，如果中共国向俄罗斯提供物质支持，将会产生什么影响和后果。
+视频参看：
+[2022.03.20早 《NFSC新闻》](https://gettr.com/streaming/p10ygh48a0e)
+[2022.03.20早《NFSC新闻访谈》](https://gettr.com/streaming/p10xwns0311)
 
-美国制定的内部政策，先动手把中共的几个媒体平台彻底制裁。从俄乌战争就反映出，现代战争信息战是关键，先灭敌方的造假邪恶媒体非常重要。历史上美国对伊拉克，以色列对叙利亚开战前，也是同样地先使得敌方媒体没有发声的机会。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-郭先生列举了很快就会消失的中共媒体企业：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-19.jpeg)
 
-**凤凰卫视**
-
-**人民日报**
-
-**南华早报**
-
-**搜狐、百度**
-
-充当大外宣的海外欺民贼，不仅仅是美国，全世界都会清理他们。黄河边，火鸡龚，周孝正，一个都不会跑掉。
-
-中共盗国贼家最先闻到了战争的硝烟和结局，如朱镕基儿子朱云来在卖股票，曾庆红家在卖股票，外资在大量地撤，恒生指数跌破20000点。
-
-来源：
-
-[2022.3.20号郭文贵先生大直播](https://gettr.com/post/p10y5j870c5)
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
 
  
 
