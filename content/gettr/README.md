@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 1:04 AM (UTC)`
+
+2022.03.20 晚《新中国联邦新闻访谈》 美国爆发禽流感，禽流感和普通流感、新冠有什么异同？如何预防？； 德尔塔克戎（Deltacron ）组合变种是否更危险？； 疫苗病毒最新动态，回答战友常见的几个问题
+![img](https://media.gettr.com/group42/origin/2022/03/21/01/8f0ecb7e-38ff-e094-ec5e-e0ab19e76d57/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/21/2022 1:02 AM (UTC)`
+
+3/20/2022 Miles Guo: The reason why America is great is because there are numerous people like Elon Musk in the US, with the majority of American technologies and wealth being created by immigrants. On the contrary, the CCP has made China a living hell, where none of the Chinese people who have conscience, speak the truth, and have the ability to make a living can survive.<br/><br/>3/20/2022 文贵直播：美国之所以伟大是因为有无数的马斯克，绝大部分美国的科技和财富是新移民创造的；而中共却让中国成了地狱，让所有有良知、说真话和有能力的中国人活不下去<br/>
+![img](https://media.gettr.com/group25/getter/2022/03/21/01/e6f6ffdf-87de-696b-cb1a-688b64226700/out.jpg)
+
+---
+
 `@miles 3/21/2022 12:30 AM (UTC)`
 
 2022.03.20 晚 《新中国联邦新闻》美国志愿者鼓励新中国联邦和全体华人早日灭共；深度解密澎博社前线采访的险恶目的
@@ -144,22 +158,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 【Ukraine Rescue】03/19/2022 David: We rely on a team process-oriented operation to ensure the safety of the NFSC’s bus rescue through a workflow including registration, screening, roll call, security, check etc. <br/><br/>【乌克兰救援】03/19/2022大卫：我们是靠一个团队流程化作业，通过登记、筛选、点名、安保、检查等环节的工作流程确保新中国联邦巴士救援的安全<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group36/getter/2022/03/20/13/66321fd4-ed1d-dd46-d0a7-f5666d5a4762/out.jpg)
-
----
-
-`@miles 3/20/2022 12:14 PM (UTC)`
-
-2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势
-![img](https://media.gettr.com/group26/origin/2022/03/20/11/763e9094-bd7f-3d69-5281-306b8af7e6d9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_2 3/20/2022 10:02 AM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.20 EST
-![img](https://media.gettr.com/group42/origin/2022/03/20/09/c97e1988-3cca-bd85-7d2e-2c402c64ccac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
