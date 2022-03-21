@@ -2,10 +2,10 @@
 ---
 
 
-## 被乌克兰军队俘虏的俄罗斯士兵敦促他们的战友谴责并起来反对普京
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2203819/)
+## 乌克兰赫尔松抗议者拦住俄罗斯军车，高呼“回家”口号
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2203898/)
 
-03/21/2022 被乌克兰军队俘虏的俄罗斯士兵敦促他们的战友谴责并起来反对普京
+03/21/2022 乌克兰赫尔松抗议者拦住俄罗斯军车，高呼“回家”口号
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

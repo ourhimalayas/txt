@@ -2,45 +2,45 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203897/)
+## 基辅西部发生爆炸数人死亡 &#8211; 新一轮谈判
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2204052/)
 
-整理：枳实
-美工：精灵蓝
+**当地民防部门报告：对乌克兰首都基辅西部几座建筑的炮击中，至少有6人死亡。**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-136.png)图片来源：雅典娜设计组
+作者：sh/原文发布于2022年3月21日8:56
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-2-3.jpg)图片：基辅的乌克兰士兵（Genya Savilov/AFP）
+据市长维塔利·克里琴科说，波迪尔区的几座住宅楼在袭击中损坏并着火。一个购物中心和之前停放的汽车也被击中起火。
 
+**乌克兰军队：俄罗斯在袭击后使用无人机**
+根据乌克兰军队的说法，俄罗斯在战区上空使用的飞机较少。乌克兰军方在基辅宣布，使用载人飞机的数量下降。俄罗斯军队使用无人机对导弹和炸弹攻击的有效性进行评估。这一点无法得到验证。
 
-雅典娜疫情更新（2022年 3月21日）
+据基辅称，在周日的袭击中，一架俄罗斯飞机、四架无人机和两枚巡航导弹被摧毁。此外，基辅再次指责莫斯科以平民为目标进行袭击。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+**装载粮食的船只从乌克兰港口消失**
+与此同时，根据乌克兰军方的报告，五艘装载粮食的船只从别尔江斯克市的港口“消失”。据《乌克兰真理报》报道，这些满载数万吨的货船被俄罗斯拖船拖出港口，驶向一个未知的方向。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9P5FHSK4SBI@SER3SBZS.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-248.png)
-[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月21日改进.pdf)
+这方面报道无法得到独立核实。由俄罗斯军方控制的别尔江斯克位于亚速海，离争夺激烈的港口城市马里乌波尔不远。
 
-数据来源：
+**基辅拒绝俄罗斯对马里乌波尔的最后通牒**
+乌克兰领导层已断然拒绝了俄罗斯军方向马里乌波尔保卫者发出的最后通牒。政府副首脑伊琳娜·韦列舒克告诉《乌克兰真理报》，不会投降和放下武器。相反，她要求俄罗斯军方为这个位于亚速海的受困港口城市开放一条人道主义通道。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+俄罗斯曾敦促马里乌波尔的乌克兰军队放下武器，于周一上午离开该市。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+**化工厂的氨气泄漏**
+周一上午，乌克兰东北部苏梅市的一家化工厂发生了剧毒氨气泄漏事件，原因尚不清楚。据当局称，对民众没有任何危险。这是由国家民防部门宣布，并表示是 “轻度氨气泄漏”。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+一只罐子被炮火击中受损。目前损害部分已修补。据报道，该公司的一名员工受伤。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+**新一轮谈判**
+乌克兰和俄罗斯的谈判代表已经同意在周一通过视频进行新一轮的谈判。乌克兰总统顾问波多利亚克说，双方希望上午就开始谈判。
 
-[covidlive.com.au](https://covidlive.com.au/)
+上周一，最后一次和谈是在更高层面上举行的。据波多利亚克称，与莫斯科就结束战争的谈判仍可能需要 “几周”。然而，目前有迹象表明，莫斯科的立场最近变得较为“合理”和现实。（dpa/sh）
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+原文链接：[https://brf.be/international/1586568](https://brf.be/international/1586568/)/
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/08/战鹰团新logo2021-07-01.jpg)
 
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

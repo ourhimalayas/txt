@@ -2,12 +2,12 @@
 ---
 
 
-## 七哥答战友提问（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2204251/)
+## 中国人要懂得感恩（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2204408/)
 
-#### PPT制作: 0-0 ；rmrf
+#### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：30-11：40-001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：40-11：47-002.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
