@@ -2,29 +2,32 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2205633/)
+## 美国汉堡王撤离俄罗斯遇阻碍 合伙人拒绝关门（下）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2205780/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+翻译：宫米叶
 
-视频参看：
-[2022.03.21早 《NFSC新闻》](https://gettr.com/streaming/p114osn456a)
-[2022.03.21早《NFSC新闻访谈》](https://gettr.com/streaming/p1153hzb1d9)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-35185136-cnn-000-1-view.jpg)图片来源：Maksim Konstantinov / SOPA Images / LightRocket / Getty Images 
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+汉堡王约10年前进入俄罗斯市场，深受俄罗斯人喜爱，在俄罗斯已经发展了800家门店。它在俄罗斯的合伙人是科罗波夫、俄罗斯的银行“VTB资本”和“乌克兰投资资本”。而VTB资本是欧美国家的制裁对象。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-20.jpeg)
+汉堡王最近受其在俄罗斯的业务影响，停止了在营业、宣传和供应链(供应网)等方面的企业赞助。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
+相较之下，麦当劳占有的俄罗斯业务份额已超过80%，因此从该国撤出变得相当容易。
+
+汉堡王的这次事例也侧面反映出，由于受到乌克兰侵略战争的影响，计划从俄罗斯撤出的部分西方企业及银行由于之前签订的合资合同中并没有得到在该国发展业务的控制权，因此陷入困境。美国连锁快餐店巨头“棒！约翰（Papa John’s Pizza）”也由于遭遇和汉堡王类似的原因，不能关闭在俄罗斯的约200家快餐店。
+
+接上篇：[美国汉堡王撤离俄罗斯遇阻碍 合伙人拒绝关门（上）](https://gnews.org/zh-hans/2205724/)
+
+**参考资料：**[news.yahoo.co.jp][米バーガーキング、ロシア撤退が難航　合弁相手が閉店拒絶](https://news.yahoo.co.jp/articles/22e8547bf4df10c289eda160f92136537b89d32a)
+
+* * *
+
+*审核：BryanW*
+*校对：天天*
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
 
  
 

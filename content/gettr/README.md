@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 7:12 PM (UTC)`
+
+3月21日：❤️❤️❤️❤️❤️❤️❤️@davide_martello https://gettr.com/post/p10zuip01a3 战地音乐家入驻盖特了😊
+
+---
+
 `@miles 3/21/2022 5:02 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
@@ -147,13 +153,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 3/20/2022 Miles Guo: The reason why America is great is because there are numerous people like Elon Musk in the US, with the majority of American technologies and wealth being created by immigrants. On the contrary, the CCP has made China a living hell, where none of the Chinese people who have conscience, speak the truth, and have the ability to make a living can survive.<br/><br/>3/20/2022 文贵直播：美国之所以伟大是因为有无数的马斯克，绝大部分美国的科技和财富是新移民创造的；而中共却让中国成了地狱，让所有有良知、说真话和有能力的中国人活不下去<br/>
 ![img](https://media.gettr.com/group25/getter/2022/03/21/01/e6f6ffdf-87de-696b-cb1a-688b64226700/out.jpg)
-
----
-
-`@miles 3/21/2022 12:30 AM (UTC)`
-
-2022.03.20 晚 《新中国联邦新闻》美国志愿者鼓励新中国联邦和全体华人早日灭共；深度解密澎博社前线采访的险恶目的
-![img](https://media.gettr.com/group5/origin/2022/03/21/00/235cce7c-667e-6b6d-e3f2-1e1ef5e27f60/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
