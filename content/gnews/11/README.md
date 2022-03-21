@@ -2,42 +2,77 @@
 ---
 
 
-## DC大中华时事：本轮疫情本土感染者超3万例
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2205867/)
+## 视频|泽连斯基在美国国会的演讲精要
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205887/)
 
-*编辑：冰川 / 作图：*hans（文玄）
+乌克兰正处于二战以来全球最严重的战争中，乌克兰人民派出了最棒的儿女来抵抗俄罗斯的全面入侵。
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+Ukraine is in the midst of the world’s worst war since World War II and the Ukrainian people have sent their best sons and daughters to resist an all-out Russian invasion.
 
-#   墙国妄语每日驳
+俄罗斯不仅侵略了我们的家园，还对我们的普世价值进行了残酷的进攻，乌克兰的命运正决定着人类的命运。
 
-### **03.21.环球时报 **首次披露！中国驻乌克兰大使接受《环球时报》专访：撤侨成功创下“五个之最”
+Russia has not only invaded our homeland, it has also launched a brutal attack on our universal values, and the fate of Ukraine is determining the fate of humanity.
 
-*“我们愿继续用行动告诉每一位海外同胞，无论什么时刻、无论身处何方，你的身边有我们，你的背后是祖国！”在今年两会记者会上，国务委员兼外交部长王毅这样谈及从乌克兰撤离中国公民的情况。乌克兰紧张局势急剧升级以来，中国外交部迅速启动领事保护应急机制，第一时间组织在乌同胞，特别是中国留学生安全避险，同时抓住危局中的时间窗口紧急组织、引导、协调中国公民撤离。这是共和国历史上又一次中国公民撤离大行动，且特色鲜明。当地时间3月9日下午，随着从乌克兰苏梅最后一批集中撤离的中国留学生抵达乌克兰西部城市利沃夫火车站，中国驻乌克兰大使范先荣宣布从乌克兰集中撤离中国同胞的任务至此圆满成功！3月20日，中国驻乌克兰大使范先荣在接受《环球时报》记者独家视频专访时，首次向媒体披露使馆此次撤离行动所创下的“五个之最”：“环境最复杂”“形势最危险”“撤离难度最大”“撤离群体最令人牵挂和揪心”“参与撤离行动的使领馆数量最多”。他还强调说，时代常常需要“美丽的逆行者”，这是中国共产党人和中国外交官应该具有的情怀和不容推卸的责任和使命。*
+乌克兰感谢美国提供的一切压倒性支持，并需要美国的进一步支持！
 
-***简评：***3月7日，王毅就在两会上吹嘘了中共在乌克兰的撤侨是如何成功，实际情况是中共驻乌克兰大使馆对中国公民的求助冷漠无视，仅仅撤离了60个情报人员和关系户。中国人在乌克兰孤立无援，有的同胞已经失去生命。无耻的范大使却于3月9号宣布从乌克兰集中撤离中国同胞的任务圆满成功。目前，中共迫于新中国联邦已经无偿从乌克兰救援2000多人到波兰境内的压力，被迫实施一定的撤离救援，媒体最新报道有中国人乘机回国。既然3月9号就已经圆满成功了，怎么现在还不断有人撤离？中共撒谎、吹牛、不要脸天下第一。
+Ukraine is grateful for all the overwhelming support provided by the United States and needs further support from the United States!
 
-### 03.21.新华网《瞭望》刊发文章：习近平经济思想赋能全球治理
+珍珠港事件和911事件这样的空袭已在乌克兰持续三周了，这是80年来欧洲从未见过的恐怖。
 
-*3月21日出版的2022年第12期《瞭望》新闻周刊在权威栏目“治国理政纪事”专栏中刊发了记者宿亮采写的报道《习近平经济思想赋能全球治理》。摘要如下：“和平发展、合作共赢才是人间正道。”新年伊始，中国国家主席习近平在北京出席2022年世界经济论坛视频会议时强调，“不同国家、不同文明要在彼此尊重中共同发展、在求同存异中合作共赢。”让世界再次领略习近平经济思想的宏阔视野和非凡格局。习近平经济思想立足中国国情，在实践中不断丰富、发展、升华，以其真理光芒为不稳定不确定的世界经济拨开迷雾，赢得海外人士广泛赞誉，为世界带来深刻发展启示。习近平经济思想把握历史前进的逻辑、时代发展的潮流，反映了人类和平发展、包容发展、平等发展、共同发展的时代心声。在新的征程上，新时代中国将继续践行发展真理，同各国携手推动人类发展事业迈向光明未来。*
+Air strikes like Pearl Harbor and 911 incident have been going on in Ukraine for three weeks now, a horror that Europe has not seen in 80 years.
 
-***简评：***这个标题与“习太阳”的称呼很般配，“习太阳”正在照耀全球。21世纪的中共国还有这样的文章，不得不说这是中国、中国人的悲哀。中共体制内的人最清楚这个全世界最大的邪教组织的真实面目，这些无耻的文人、吹鼓手、太监却不顾事实真相，漫无边际地将独裁者吹捧上天。这些助纣为虐的帮凶应该受到历史的清算。
+我们要求在乌克兰建立人道主义禁飞区，如这个要求太高，那就请给我们S-300这样的导弹防御系统。
 
-### 03.21.新浪网 本轮疫情本土感染者超3万例，至少4市启用方舱医院
+We demand a humanitarian no-fly zone in Ukraine, and if that is too much to ask, then please give us a missile defence system like the S-300.
 
-*3月20日0—24时，31个省（自治区、直辖市）和新疆生产建设兵团报告新增确诊病例1927例、新增本土感染者2384例。根据国家卫健委公布的数据统计，3月1日至3月20日，全国累计报告本土感染者超3万例，波及28个省份，其中吉林省累计报告超1万例，另有多个省份累计报告超千例。目前，多地已启用方舱医院或者方舱隔离点。福建泉州：海峡中心“火围山”方舱医院投入使用；河北廊坊：建成启用首个方舱医院；吉林长春：累计报告本地感染者6600例，启用首个方舱医院；吉林省吉林市：目前开放5个方舱医院，改造中方舱医院3个。*
+“我有一个需要！”正如你们曾经的“我有一个梦想”那么真挚而热切，我们需要强大的战机来保护乌克兰的人民和土地！
 
-***简评：***曾经号称抗疫成功世界第一的大国，近期疫情不断升级，各地随时封楼、封城。全员核算检测、封城、强制疫苗这些措施有效吗？根据中共一贯欺上瞒下，以假治国的历史，可以判定目前的状况是前期隐瞒的疫情现在实在是掩盖不住了，各级官员害怕担责而无头苍蝇似地乱作为和折腾老百姓。全国疫情是一笔糊涂账，中共根本不会考虑百姓的死活，他们唯一的担心是因此动摇自己的政权。有多少人死于或即将死于听上去很美的“方舱医院”？百姓该醒醒了，不要一遍一遍地被中共欺骗。
+“I have a need!” As true and fervent as you once said “I have a dream”, we need powerful warplanes to protect the people and land of Ukraine!
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/955399946138435614/1.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/955400033644187678/2.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/955400125340057610/3.PNG?width=1043&amp;height=586)
+现在是乌克兰乃至整个欧洲最黑暗的时刻，呼吁美国出台更多的制裁措施，
+
+This is the darkest time for Ukraine and indeed all of Europe, we call on the US to introduce more sanctions,
+
+和平比利益更重要，建议美国制裁俄罗斯的所有政客，美国公司立即离开俄罗斯市场，美国港口对俄罗斯关闭，
+
+peace is more important than profit, we propose that the US sanctions all Russian politicians, that US companies leave the Russian market immediately, and US ports be closed to Russia,
+
+由负责任的国家组成U24 和平联盟来立即停止这场战争，以迅速拯救生命和这个世界！
+
+and that the responsible nations form the U24 peace coalition to stop this war immediately in order to save lives and this world quickly!
+
+今天，乌克兰人民不仅是在保家卫国，也是在为世界的普世价值而战，为人类的未来而战。
+
+Today, the Ukrainian people are not only defending their country, they are also fighting for the universal values of the world and for the future of humanity.
+
+你国的和平不再取决于你自己，而取决于你旁边的国家。
+
+The peace of your country no longer depends on yourself, but on the country next to you.
+
+拜登总统是伟大美国的领导人，希望你能成为世界的领导人，成为维护世界和平的领导人，美国需要在历史上留下公正！
+
+President Biden is the leader of a great America and hopefully you will be the leader of the world and the leader who keeps the peace in the world, America needs to leave justice in history!
+
+作为伟大乌克兰人的领导人，如不能阻止乌克兰人死于这场战争，我的生命将毫无意义！
+
+As the leader of the great Ukrainians, my life would be meaningless if I could not prevent Ukrainians from dying in this war!
+
+荣耀归于乌克兰！
+
+Glory be to Ukraine!
+
+【盖文】：我们跟乌克兰人站在一起！美国历史上迄今只邀请过三个外国人到其国会发表演讲，一个是丘吉尔，一个是宋美龄，第三个就是现在的乌克兰总统泽连斯基！2022年3月16日泽连斯基在美国国会的演讲，将俄罗斯入侵乌克兰比作美国人永远挥之不去的伤痛“珍珠港”和“911”事件，强调自己的使命就是阻止乌克兰人民死于这场战争！
+
+【GETTR】：We stand with the Ukrainians! Only three foreigners have been invited to address the United States Congress so far in its history: Churchill, Song Mei-ling and now Ukrainian President Zelensky! “Zelensky’s speech to the US Congress on March 16, 2022, compared the Russian invasion of Ukraine to the American wounds of Pearl Harbor and 911, and stressed that his mission was to prevent the Ukrainian people from dying in this war!
 
 
 
+【撰稿】：香草山信息部 6zero4
 
-*编辑：*冰川
-*作图：hans（文玄）
-发布：文顾*
+【翻译】香草山翻译部–文岄679
+【翻译】香草山视频部–Jesse(文博)
+
+发布：奇门遁甲
 
  
 

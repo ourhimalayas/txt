@@ -2,77 +2,32 @@
 ---
 
 
-## 视频|泽连斯基在美国国会的演讲精要
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205887/)
+## 俄罗斯“非法侵占”，09年以来首次就北方领土问题岸田首相答辩
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2205908/)
 
-乌克兰正处于二战以来全球最严重的战争中，乌克兰人民派出了最棒的儿女来抵抗俄罗斯的全面入侵。
+翻译：宫米叶
 
-Ukraine is in the midst of the world’s worst war since World War II and the Ukrainian people have sent their best sons and daughters to resist an all-out Russian invasion.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-88.jpg)图片来源：PHILIP FONG/POOL/AFP via Getty Images
 
-俄罗斯不仅侵略了我们的家园，还对我们的普世价值进行了残酷的进攻，乌克兰的命运正决定着人类的命运。
+岸田文雄首相17日在参议院预算委员会上明确表示，关于北方领土，“俄罗斯占领是没有法律依据的，是非法占领的立场”。
 
-Russia has not only invaded our homeland, it has also launched a brutal attack on our universal values, and the fate of Ukraine is determining the fate of humanity.
+这是自2009年麻生太郎首相(当时)以来首次对首相“非法占领”进行答辩。俄罗斯入侵乌克兰导致日俄和平条约谈判进展困难，这使原则立场鲜明。
 
-乌克兰感谢美国提供的一切压倒性支持，并需要美国的进一步支持！
+与此相关，日本官房长官松野博一在17日的新闻发布会上强调，“俄罗斯占领北方领土的立场是‘非法占领’，这种立场没有改变”。
 
-Ukraine is grateful for all the overwhelming support provided by the United States and needs further support from the United States!
+总理在俄罗斯入侵乌克兰后，还强调北方领土是“我国固有的领土”。以前曾说过“我国拥有主权的岛屿”。
 
-珍珠港事件和911事件这样的空袭已在乌克兰持续三周了，这是80年来欧洲从未见过的恐怖。
+总理说：“协议为对方国家核力量和平利用提供了框架。日本一方放弃协议反而会向国际社会，尤其是俄罗斯发出错误的信息“。他还指出，“这是俄罗斯不能断言遵守该协定的现状。”
 
-Air strikes like Pearl Harbor and 911 incident have been going on in Ukraine for three weeks now, a horror that Europe has not seen in 80 years.
+**参考资料：**[news.yahoo.co.jp][ロシアに「不法占拠」、09年以来　北方領土で岸田首相答弁](https://news.yahoo.co.jp/articles/6553381373bc35bd5633699a12c14b209f1db81a)
 
-我们要求在乌克兰建立人道主义禁飞区，如这个要求太高，那就请给我们S-300这样的导弹防御系统。
+* * *
 
-We demand a humanitarian no-fly zone in Ukraine, and if that is too much to ask, then please give us a missile defence system like the S-300.
+*审核：BryanW*
+*校对：天天*
+*发稿：信心的选择*
 
-“我有一个需要！”正如你们曾经的“我有一个梦想”那么真挚而热切，我们需要强大的战机来保护乌克兰的人民和土地！
-
-“I have a need!” As true and fervent as you once said “I have a dream”, we need powerful warplanes to protect the people and land of Ukraine!
-
-现在是乌克兰乃至整个欧洲最黑暗的时刻，呼吁美国出台更多的制裁措施，
-
-This is the darkest time for Ukraine and indeed all of Europe, we call on the US to introduce more sanctions,
-
-和平比利益更重要，建议美国制裁俄罗斯的所有政客，美国公司立即离开俄罗斯市场，美国港口对俄罗斯关闭，
-
-peace is more important than profit, we propose that the US sanctions all Russian politicians, that US companies leave the Russian market immediately, and US ports be closed to Russia,
-
-由负责任的国家组成U24 和平联盟来立即停止这场战争，以迅速拯救生命和这个世界！
-
-and that the responsible nations form the U24 peace coalition to stop this war immediately in order to save lives and this world quickly!
-
-今天，乌克兰人民不仅是在保家卫国，也是在为世界的普世价值而战，为人类的未来而战。
-
-Today, the Ukrainian people are not only defending their country, they are also fighting for the universal values of the world and for the future of humanity.
-
-你国的和平不再取决于你自己，而取决于你旁边的国家。
-
-The peace of your country no longer depends on yourself, but on the country next to you.
-
-拜登总统是伟大美国的领导人，希望你能成为世界的领导人，成为维护世界和平的领导人，美国需要在历史上留下公正！
-
-President Biden is the leader of a great America and hopefully you will be the leader of the world and the leader who keeps the peace in the world, America needs to leave justice in history!
-
-作为伟大乌克兰人的领导人，如不能阻止乌克兰人死于这场战争，我的生命将毫无意义！
-
-As the leader of the great Ukrainians, my life would be meaningless if I could not prevent Ukrainians from dying in this war!
-
-荣耀归于乌克兰！
-
-Glory be to Ukraine!
-
-【盖文】：我们跟乌克兰人站在一起！美国历史上迄今只邀请过三个外国人到其国会发表演讲，一个是丘吉尔，一个是宋美龄，第三个就是现在的乌克兰总统泽连斯基！2022年3月16日泽连斯基在美国国会的演讲，将俄罗斯入侵乌克兰比作美国人永远挥之不去的伤痛“珍珠港”和“911”事件，强调自己的使命就是阻止乌克兰人民死于这场战争！
-
-【GETTR】：We stand with the Ukrainians! Only three foreigners have been invited to address the United States Congress so far in its history: Churchill, Song Mei-ling and now Ukrainian President Zelensky! “Zelensky’s speech to the US Congress on March 16, 2022, compared the Russian invasion of Ukraine to the American wounds of Pearl Harbor and 911, and stressed that his mission was to prevent the Ukrainian people from dying in this war!
-
-
-
-【撰稿】：香草山信息部 6zero4
-
-【翻译】香草山翻译部–文岄679
-【翻译】香草山视频部–Jesse(文博)
-
-发布：奇门遁甲
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
 
  
 
