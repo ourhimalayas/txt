@@ -2,30 +2,66 @@
 ---
 
 
-## 俄军密集空袭乌克兰南部造船重镇尼古拉耶夫
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201604/)
+## 乌情报称俄计划让未成年人加入对乌侵略战争
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2201880/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月19日，国外媒体报导，乌克兰地方首长表示，俄罗斯军方当天密集空袭了乌克兰南部造船重镇尼古拉耶夫。
+作者：波士顿五月花背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午12.39.20.png)
+乌克兰国防部情报显示俄罗斯普京（Putin）总统和国防部长绍伊古（Shoigu）正准备让未成年人参与对乌克兰的侵略战争。
 
-前一天清晨，当地一座军营刚遭到致命火箭攻击，多栋建筑物倒塌。当时营房内有不到200名士兵正在熟睡，至19日已至少发现50具尸体，具体伤亡数字不明。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-66.jpg)
-乌克兰当局表示，尼古拉耶夫是黑海西北岸战略军港敖德萨的重要屏障，敖德萨位于尼古拉耶夫西方约130公里处。
+据乌克兰国防部情报总局（Defence intelligence of Ukraine）周一（3月20日）在推特上发布信息称：“普京和绍伊古正准备让未成年人参与对乌克兰的战争。”
 
-尼古拉耶夫州长维塔利金在一段视频中证实俄军偷袭了正在熟睡中的乌克兰士兵，目前救援工作正进行中，正在等待来自乌克兰武装部队的官方信息。
+文件显示，俄罗斯联邦国防部长绍伊古签署了相应的命令“关于组织军事爱国公共运动成员”Yunarmiya(Unarmiya)“在乌克兰领土上进行特别行动”。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午12.46.38-1.png)
+图片来自乌克兰国防部情报总局推特
+
+俄罗斯国防部长谢尔盖·绍伊古签署了一项“关于组织Yunarmiya军事爱国公共运动成员参与在乌克兰领土上进行特别行动”的命令。该命令称，应准备有关参与敌对行动的 17 至 18 岁的潜在人力储备的报告。俄罗斯联邦最高军事领导人必须尽快提交培训这些人员的建议。俄罗斯联邦主要军事政治部门负责人根纳季·日德科负责监督该命令的执行情况。【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午12.52.38-1.png)
+图片来自乌克兰国防部情报总局推特
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午12.55.09-1.png)
+图片来自乌克兰国防部情报总局推特
+
+Yunarmiya是俄罗斯国防部下属的俄罗斯儿童和青年军事组织。它在俄罗斯的年轻人中从事激进的宣传工作。八岁以上的儿童成为该组织的成员。【1】
+
+俄罗斯自上月24日入侵乌克兰遭遇巨大的军事损失。据乌克兰武装部队总参谋部周一（20日）在Facebook发布的数据显示，从2月24日到3月20日，俄罗斯军队人员减员约14700人，其他损失如下：
+
+坦克 – 476辆
+
+APVs – 1487个单位
+
+火炮系统 – 230发
+
+多管火箭炮 – 74台
+
+防空作战系统 – 44台
+
+飞机 – 96台
+
+直升机 – 118架
+
+车辆 – 947辆
+
+舰船/船艇/切割机 – 3个单位
+
+燃料罐 – 60
+
+无人机操作-战术层面 – 21
+
+特殊设备 – 12
 
 参考链接：
-1.. [Russian troops enter central Mariupol, air strikes take place in Mykolaiv](https://www.france24.com/en/europe/20220319-live-ukraine-s-zelensky-calls-for-fresh-talks-russia-says-entered-besieged-mariupol-centre)
-2. [Dozens dead after shelling of military barracks in south Ukraine: witnesses to AFP](https://twitter.com/AFP/status/1505155059646185474?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505170089498267655%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)
-3. [rescuers and doctors trying to save a little girl who was under the rubble after a rocket attack on a military base in](https://twitter.com/nexta_tv/status/1504941548651352065?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1504941548651352065%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)[Mykolaiv](https://twitter.com/hashtag/Mykolaiv?src=hashtag_click)
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+【1】[俄罗斯当局希望将未成年人送入乌克兰战争](https://www.ukrinform.net/rubric-ato/3434923-russian-authorities-want-to-send-minors-to-war-in-ukraine-intelligence.html)
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+* * *
+
+*编辑&发布：长岛开心*
+
+
+
+
 
  
 

@@ -2,25 +2,30 @@
 ---
 
 
-## 泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201605/)
+## 日本航空自卫队“宇宙作战群”成立……监测太空垃圾和外国卫星动向
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2202142/)
 
-作者：纽约磐石农场—在远方/纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-国外媒体3月19日报导，乌克兰总统泽连斯基在对有数千人参加的伯尔尼反战抗议活动的讲话中，对瑞士的支持表示了感谢。同时表示，发动这场战争的人的财富就存在瑞士的银行里，他们摧毁了乌克兰人的家园，自己却在欧洲在瑞士享受着美好生活。他希望瑞士能够剥夺他们的特权，冻结他们的财产。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-67.jpg)
-同时，泽连斯基在另一个视频中，继续敦促莫斯科当局进行会谈，并表示这是普京政府把错误的损害降到最低的唯一机会。
+翻译：宫米叶
 
-泽连斯基说，乌克兰已经提出了维持和平的解决方法，现在是见面和会谈的时候，也是为乌克兰恢复领土完整与公平正义的时候，否则俄罗斯的损失将会是几个世代都无法恢复的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2313-edited.png)news.goo.ne.jp
 
-参考链接：[澤倫斯基向俄羅斯喊話：現在是會談的時候了](https://www.rti.org.tw/news/view/id/2127686)
+以完成监视宇宙垃圾和其他国家人造卫星等任务为使命的航空自卫队“宇宙作战群”成立，日本防卫省18日在航空自卫队府中基地(东京都)举行了授予队旗仪式。鬼木诚防卫副大臣在仪式上训示“除了陆海空之外，确保日本在宇宙以外新领域的优势很重要”，并向该作战群司令玉井一树大佐授予了队旗。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+该作战群于17日成立，由2020年5月成立的航天作战队与指挥自卫队太空领域活动的新设部队等约70人组成。追踪太空垃圾和其他国家卫星动向的“宇宙情况监测”(SSA)将会是主要任务。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+今后，该作战群将运用山口县正在建设中的地面部署型雷达和预计2026年前发射的人造卫星进行监测。明年还有成立部队监测对日本人造卫星的电波干扰等计划，将编制扩充到约120人，此外，宇宙作战群还将与美军以及宇宙航空研究开发机构(JAXA)共享信息。
+
+日本防卫省表示，近年来在外太空陆续投放了捕捉敌对国家军事设施和部队动向的侦察卫星等，能够使军用卫星瘫痪的“杀手卫星”研制也提上日程。 仪式结束后，玉井大佐在新闻发布会上意气风发地说：“我们将加强自卫队在太空领域的相关能力，帮助我们稳定利用外太空。”
+
+来源：【news.goo.ne.jp】[空自「宇宙作戦群」が発足…宇宙ゴミや外国衛星の動き監視](https://news.goo.ne.jp/article/yomiuri/nation/20220318-567-OYT1T50232.html)
+
+* * *
+
+审核：BryanW 
+校对：zicoround
+发布：花羽
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
 
  
 

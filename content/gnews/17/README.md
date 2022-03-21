@@ -2,57 +2,36 @@
 ---
 
 
-## “疫苗性艾滋病”VAIDS或将在人类社会流行
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2202524/)
+## 大直播后记：习近平和普京的审判时刻来了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2202615/)
 
-作者：波士顿五月花 北美教练陪练
-![](https://assets.gnews.org/wp-content/uploads/2022/03/35BE6292-949B-49D4-97F4-DE3FA0351C40.jpg)
-*导语：冠状病毒疫苗的刺突蛋白中含有艾滋病病毒GP-120的基因片段。GP-120是引起艾滋病状态的主要元凶。蝙蝠女石正丽的文章表明冠状病毒除了引起肺炎外，还造成一种艾滋病状态。疫苗有可能导致获得性免疫缺陷综合征（VAIDS）*。
+整理：清水冷香、Rianna
+编辑：小红帽
 
-VAIDS一词最近在社交媒体走红。VAIDS是英文vaccine-acquired immunodeficiency syndrome 英文缩写，意思是疫苗性获得性免疫缺陷综合征，或者称为“疫苗性艾滋病”。
-
-美国前线医生联盟最早使用VAIDS这一名称，是因为《柳叶刀》的一篇预印版的医学论文。这篇文章对瑞典160万人进行了为期9个月的调查，结果表明： 6个月后，接种疫苗的人群体比未接种的疫苗的人群更加容易感染冠状病毒（1）。另外，英国政府关于Covid-19的官方数据几个月来一直表明，完全接种疫苗的人群大规模感染冠状病毒，其发病率远高于接种疫苗的人群（2），人们惊呼，英国VAIDS来了，大量完全接种疫苗的英国人可能已经达到了不归路, VAIDS一词开始走红社交媒体。
-
-因为目前仍然在冠状病毒流行期间，瑞典、英国报告接种疫苗后人群大规冠状病毒模感染，可能与抗体增強免疫效应（Antibody Dependent Enhancement，简称ADE）效应有关。 科学家们将ADE效应形象地比喻为“特洛伊木马”，指接种疫苗后虽然产生抗体，但当再次感染冠状病毒时机体不仅无法清除病毒，反而导致疾病的广泛传播，并使患者的病情更为严重。
-
-所以，笔者曾认为VAIDS的叫法有些过于大惊小怪。然而，Factcheck.org 跳出来辟谣，这让人开始警觉 （3），因为人们都知道，这个网站是邪恶势力控制的传声筒。在这次疫情中它专门散布虚假信息、颠倒黑白，被它列为谣言的大都是遥遥领先的预言。
-
-此外，最近中共国武汉病毒研究所的蝙蝠女石正丽也发表了一篇令人目瞪口呆的医学论文（4）。根据这篇文章，笔者分析毒疫苗真的有可能引起获得性免疫缺陷综合征，或者疫苗性艾滋病状态。
-
-蝙蝠女石正丽的文章表明：许多严重的冠状病毒感染的患者都有“淋巴细胞减少症”现象，淋巴细胞减少主要是CD4淋巴细胞亚群数量减少造成的。这种淋巴细胞减少是细胞凋亡引起的。在体外实验：尽管T淋巴细胞不具有ACE2和TMPRSS2受体，但冠状病毒仍然能够穿透并感染T淋巴细胞。冠状病毒刺突蛋白通过激活LFA-1 （lymphocyte function associated antigen 1）感染T淋巴细胞。
-
-通过蝙蝠女石正丽的这篇文章，我们完全可以得出这样的结论：冠状病毒除了引起肺炎外，还造成一种艾滋病状态，或者说冠状病毒是一种能引起特殊肺炎的艾滋病病毒，或者说这种艾滋病病毒可以通过空气、接触传染。
-
-专业人士都知道艾滋病的特点主要就是CD4淋巴细胞亚群数量减少（当减少到&lt;200个/mm3即可诊断为艾滋病）。艾滋病病毒（HIV）也是通过细胞凋亡引发淋巴细胞亚群数量减少的。HIV的刺突蛋白叫做GP-120, GP-120就是通过激活LFA-1机制感染T淋巴细胞的。
-
-GP-120是HIV病毒破环人体的主要元凶，它不仅造成T淋巴细胞亚群数量减少，破环免疫功能，还造成各种各样的组织损伤，包括脑损伤痴呆（5）(6)。冠状病毒刺突蛋白中有很多GP-120的基因片段。
-
-例如，在冠状病毒爆发后不久，印度学者Pradhan发表预印版论文：《冠状病毒刺突蛋白与HIV-1 gp120和Gag的独特插入物有令人恐怖的相似性》（7）。然而，由于莫名其妙的原因，这篇文章却被撤回。
-
-HIV的发现者、诺贝尔奖获得者、法国病毒学家、Luc Montagnier力挺印度学者的论文，指出：很多GP-120的基因片段被分子生物学家人为的插入到冠状病毒刺突蛋白中（8）。Richard Flemming 博士表示冠状病毒刺突蛋白中含有GP-120的基因片段达1770 多个核苷酸对应590个氨基酸序列 。（9）
-
-辉瑞和莫德纳mRNA疫苗都使人体产生刺突蛋白。因为mRNA完全照搬冠状病毒的基因序列， 所以，产生的刺突蛋白中也就同样含有GP-120的基因片段。理论上讲疫苗就可以造成艾滋病状态。所以，疫苗导致获得性免疫缺陷综合征，即VAIDS，是有可能性的。
-
-至于是否真的会发生，只有时间才能给出答案。所有打过疫苗的人都应该警惕。
-
-**参考文献：**
-
-1. Nordström P. et al. Effectiveness of Covid-19 Vaccination Against Risk of Symptomatic Infection, Hospitalization, and Death Up to 9 Months: A Swedish Total-Population Cohort Study. The Lancet 2022 399, Pages 814-823
-2. [COVID-19 vaccine surveillance report](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1052353/Vaccine_surveillance_report_-_week_5.pdf)
-3. [‘VAIDS’ is not a real vaccine-induced syndrome, experts say; no evidence COVID-19 vaccines cause immunodeficiency](https://www.reuters.com/article/factcheck-vaids-fakes/fact-check-vaids-is-not-a-real-vaccine-induced-syndrome-experts-say-no-evidence-covid-19-vaccines-cause-immunodeficiency-idUSL1N2UM1C7)
-4. Shen XR et al. ACE2-independent infection of T lymphocytes by SARS-CoV-2. Signal Transduction and Targeted Therapy. 2022 7:83
-5. Yoon V. et al. The GP120 molecule of HIV-1 and its interaction with T cells. Curr Med Chem 2010;17(8):741-9
-6. Mattson MP et al. Cell death in HIV dementia. Cell Death & Differentiation 2005 12 893–904
-7. [“Coronavirus was created in a laboratory” – Nobel Prize winner Luc Montagnier](https://www.theyucatantimes.com/2020/04/coronavirus-was-created-in-a-laboratory-nobel-prize-winner-luc-montagnier/)
-8. [Pradhan p et al. Uncanny similarity of unique inserts in the 2019-nCoV spike protein to HIV-1 gp120 and Gag.](https://doi.org/10.1101/2020.01.30.927871)
-9. [https://www.flemingmethod.com/](https://www.flemingmethod.com/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647493741430-1.jpg)图片来源：雅典娜设计组
 
 
-* * *
+多少人是真反共的？有多少人给他行贿？周孝正这个垃圾，流氓，连自己的女儿都睡，跑到美国来搞养老，来砸郭。你觉得美国政府能放过他吗？吴征这个登记在册的特务，他弟弟在长岛有N座房子，你觉得美国政府能放过他吗？熊宪民，博讯，美国政府能放过他们这帮垃圾吗？成水炎，这个孙子在拉斯维加斯。他们100%是骗子，这共产党的钱哪来的？他怎么交代呀？每天都跟着吴征保持联系，他一定是共产党的人。美国政府一定会查清楚，但是我希望战友们记住，我看到最可悲的事情，那些离开中共国以后，到了海外的华人，还如此不堪，拿身体换几十块，跟熊宪民这种老流氓睡觉。像李进进这样的律师，像王志军这样的人，打着赵紫阳、胡耀邦基金会（名义）到处捐款，竟然替共产党卖命，帮助共产党围猎，搞猎狐行动。
 
-*编辑：文合
-封面：水涨船高
-发布：吐纳*
+爆料革命的战友们，任何人，你没有一个真假的辨别能力，一个辨别善恶的能力，你就跟人类差很远了。这是个基本的底线。你看到现在海外的华人，他们没有人意识到即将到来的排华反华的灾难。
+
+看看在乌克兰前线，有多少人看到我们说，共产党不能代表我们，我们不被共产党代表的时候的那种激动。全人类多少人恨中国共产党，你们知道吗？如果你在人家国家享受福利待遇，你还承认共产党的话，你的灾难已经到来了。你唯一的诺亚方舟，不要你1分钱，不用你给我们光着屁股按摩，不被双修，还能发财，可能就是新中国联邦了。我们不要你任何东西，只是因为同胞想救你。而且你找那些欺民贼伪类们，请你问问他们，你在外国几十年，为啥连饭钱都挣不起，你能灭共吗？在外国几十年，你连那个法拉盛、旧金山，中国城都出不去，一句英文不讲，你能灭共吗？美国人演讲的时候，上去照两张照片，这几张照片能灭共吗？
+
+你都能灭共，为啥共产党这30年还让你活那么好啊？你有点常识，有点儿逻辑。什么叫正道主义？看透虚伪，放下执着，辨别真假，知道善恶。甭说让你什么贪嗔痴慢疑了，那是太高境界了。就这点，把人和猪狗分开。狗都知道，你看我每天回到家，最开心的是看见Snow。Snow见到我摇头晃尾，我抱住它亲吻啊，它那种兴奋。放下Snow以后，它就开始撒欢了，兴奋地转好几圈。这些欺民贼连狗都不如啊。
+
+你看看七哥当年捐了这么多钱，没有一个人站起来替七哥说句话，全来砸郭。天知地知，你们这帮拿着郭文贵钱的，没有替郭文贵说话，没有替郭文贵干一件事，还伤害郭文贵的人，老天一定会诅咒你八辈祖宗，会消灭你们的。 一个远在加拿大的黄河边，你老婆（给你）戴绿帽子，你不找（给你）戴绿帽子人。你帮助共产党天天撒谎砸郭文贵，你的家人会受到万神万佛的诅咒，会死无葬身之地。你们这些欺民贼们，睡尽所有的中国逃出来的，那些落魄的中国女同胞，欺骗了所有男人仅剩的几十块钱。老天会放过你们吗？现在到了算账的时候了。
+
+我告诉大家，无论是习太阳（习近平），还是普大帝（普京），作了十几二十年，人类在给他算账，全人类在给他算账。它总是有算账的一天的。上帝在哪呢？怎么没公平啊？上帝有时候跟你的时间想法不一样。你不能代表上帝。上帝会来的，只是要在恰当的时间，惩罚这些坏人。人们都喜欢上帝，没人喜欢撒旦啊。我相信审判的时刻来了。
+
+参考资料：[郭文贵先生2022年3月20日大直播](https://www.gettr.com/streaming/p10y5j870c5)
+
+发布*：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
