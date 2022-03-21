@@ -2,80 +2,38 @@
 ---
 
 
-## 视频|从狗狗看到不同的世界
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205788/)
+## 拜登总统访问乌克兰邻国波兰（下）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2205842/)
 
-自3月10日法治基金-新中国联邦在波乌边境梅迪卡小镇搭建好第一个大帐篷以来，
+翻译：宫米叶
 
-迎来了许多妇女、儿童、老人难民，甚至还有难民家庭中的宠物狗成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/K10013543651_2203211201_2203211209_01_02.jpg)图片来源：www3.nhk.or.jp
 
-这些狗狗有点温顺地躺在主人怀中，
+**访问波兰的背景**
 
-有的与主人一起围坐在暖气炉旁烤火，
+拜登总统访问波兰的背景是，围绕俄罗斯对乌克兰的军事入侵，波兰在人道和军事两方面发挥了重要作用。
 
-有的舒展地躺在地板上休息。
+在人道主义方面，在从邻国乌克兰疏散到各国的人中，接受人数最多的超过200万人。
 
-很多难民连续几十小时，
+在军事方面，西方国家被视为是前往乌克兰的大规模军事支持的运输基地之一。
 
-甚至几天的步行才到达梅迪卡小镇，
+另外，拜登政权在上个月俄罗斯开始军事入侵之前，为了加强欧洲东部的防御态势，相继派遣了美国军队的部队，目前约有9000名美国士兵驻扎在波兰。
 
-身心已经很憔悴和疲劳。即使在这么艰难的条件下，
+本月10日访问当地的美国副总统哈里斯宣布，两座拦截导弹“爱国者”的部署已经完成，北大西洋公约组织（北约）成员国中位于东侧的波兰占有防御的重要位置。
 
-主人仍然不忘带上朝夕相伴的狗狗，
+在另一方面，上周包括波兰在内，捷克，斯洛文尼亚的三个国家的总理，已经对受俄罗斯军队持续进攻的首都基辅进行特例访问，表现出与乌克兰的团结，对拜登总统来说，通过访问对乌克兰局势有强烈的危机感的波兰，可以认为，也有重新传达北约牢固同盟关系的意愿。
 
-将狗狗视为家中的一员，不离不弃、患难与共！
+接上篇：[拜登总统访问乌克兰邻国波兰（上）](https://gnews.org/zh-hans/2205806/)
 
-反观中共国，深圳福田防疫人员却在狗主人被隔离的情况下，
+**参考资料：**[nhk.or.jp][バイデン大統領 ウクライナ隣国 ポーランド訪問へ](https://www3.nhk.or.jp/news/html/20220321/k10013543651000.html)
 
-对狗狗统统实施血腥的捕杀！
+* * *
 
-【盖文】共产党是一切罪恶和灾难的根源！在有人权的乌克兰，狗狗与人一样活的安全而有尊严；在没有人权的中共国，人活得不如自由民主社会的狗，狗也活得既没有尊严，更没有安全！
+*审核：BryanW*
+*校对：天天*
+*发稿：信心的选择*
 
-翻译
-
-从狗狗看到不同的世界
-
-Seeing a different world from dogs
-
-自3月10日法治基金-新中国联邦在波乌边境梅迪卡小镇搭建好第一个大帐篷以来，
-
-Since the first large tent was set up by the Rule of Law Foundation-NFSC on March 10 in the small town of Medyca on the Polish-Ukrainian border,
-
-迎来了许多妇女、儿童、老人难民，甚至还有难民家庭中的宠物狗成员。
-
-it has welcomed many women, children, elderly refugees, and even pet dog members of refugee families.
-
-这些狗狗有点温顺地躺在主人怀中，有的与主人一起围坐在暖气炉旁烤火，有的舒展地躺在地板上休息。
-
-Some of these dogs lie meekly in the arms of their owners, some sit with their owners around the fire by the heater, and some lie stretched out on the floor to rest.
-
-很多难民连续几十小时，甚至几天的步行才到达梅迪卡小镇，身心已经很憔悴和疲劳。
-
-Many refugees had walked for dozens of hours, or even days, to reach the town of Medyca, already physically and mentally emaciated and fatigued.
-
-即使在这么艰难的条件下，主人仍然不忘带上朝夕相伴的狗狗，将狗狗视为家中的一员，不离不弃、患难与共！
-
-Even in such difficult conditions, the owners still remember to take their dogs that are always with them, treating them as a member of the family, never leaving them and sharing the hardships!
-
-反观中共国，深圳福田防疫人员却在狗主人被隔离的情况下，对狗狗统统实施血腥的捕杀！
-
-On the contrary, in the Communist China, the epidemic prevention officers in Futian, Shenzhen, have been carrying out bloody hunting and killing of all dogs while their owners were quarantined!
-
-【盖文】共产党是一切罪恶和灾难的根源！在有人权的乌克兰，狗狗与人一样活的安全而有尊严；在没有人权的中共国，人活得不如自由民主社会的狗，狗也活得既没有尊严，更没有安全！
-
-【GETTR】The CCP is the root of all evil and disaster! In Ukraine, where there are human rights, dogs live as safely and with dignity as people; in the Communist China, where there are no human rights, people live less than dogs in a free and democratic society, and dogs live neither with dignity nor with safety!
-
-
-
-撰稿】：香草山信息部 出云
-
-【新闻链接】 https://mega.nz/folder/LHI2iIaS#kjQy-ce0cPB80Trf2SbtGw
-
-翻译：翻译部-文岄 679#3419
-
-剪辑：香草山视频部–Jesse(文博)
-
-发布: 奇门遁甲
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
 
  
 

@@ -2,235 +2,52 @@
 ---
 
 
-## 视频|《中国女人的二十年铁锁梦》
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205692/)
+## 中国的爱因斯坦束星北
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2205733/)
 
-20 Years of Iron Lock Dreams for Chinese Women
+作者：作者：香草山健身部 新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1979年一位步履蹒跚的老人用一支笔及一堆草稿纸十几分钟演算出洲际导弹回收及打捞时间。当时犯愁的钱学森欣喜若狂，拿着就直接去验证，实验结果丝毫未差。钱学森说：只要是他研究出来的结果，就勿需检查了。
 
-这个视频中的可怜女人，几乎用她的一生的惨痛经历 为人们揭开了中共治下，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-87.jpg)
 
-The poor woman in this video has spent almost her entire life of tragic experiences to reveal the tip of the iceberg
+这个他就是束星北，是百年一遇的物理学天才，他虽没有像钱学森、王淦昌、李政道那么有名。王淦昌是他的好朋友，李政道是他的学生。李政道后来取得的成就，得益于恩师束星北的物理启蒙。
 
-大规模女性人口贩卖的冰山一角！
+束老是一位被遗忘的物理学家，空有报国之志，满腹才华无处施展，怀才不遇，生不逢时，活的坎坷，死的凄凉，葬地草率，却是个值得世人敬佩的正直之人。
 
-of female human trafficking under the CCP
+束星北于1907年出生在江苏扬州的名门望族家庭，自小接受良好的教育，加之他天资聪慧，顺利读完高中，在1924年，他以优异的成绩考上杭州之江大学。
+在1925年，他转入山东齐鲁大学学习物理，在1926年，他自费留学美国，进入堪萨斯州拜克大学物理系学习。第二年又转入旧金山加州大学。进入德国柏林大学，有幸得到世界顶尖物理大师爱因斯坦的赏识，才20岁的束星北被聘为他的研究助手，后因爱因斯坦的研究受到外界的阻拦，束星北继续在英国爱丁堡大学深造，师从著名物理学家惠特克、达尔文。在1930年取得硕士学位后，又进入英国剑桥大学读研究生，最后返美进入麻省理工学院。
 
-我们需要让世界了解到：
+他的求学经历辗转英国、德国、美国等多地著名大学学习深造，对物理学孜孜不倦，让人敬佩！
 
-We need to make the world aware of the fact that
+1931年9月，束星北学成归国，时值正发生“九.一八”事变，正值国难当头，具有爱国情怀的束星北弃笔投戎。他希望利用自己所学来报效国家，在1932年1月受聘于南京中央军官学校，任物理教官，为国民政府效力。束星北性格使然，刚正不阿，在浙江大学工作时因看不惯校长华岗的教学独裁理念，他带领物理系的学生们离开浙大。后来竺可祯担任浙大校长后，束星北又重新回到浙大任职。
 
-在当今世界，中共控制的国家，仍然存在着大规模人口贩卖的事实！
+丹麦物理诺贝尔奖获得者玻尔应浙大校长竺可祯邀请来浙大访问，高度评价束星北及王淦昌，他说：“中国学子不要去外国学习物理，在中国浙大有束星北与王淦昌两位物理大师就可以学到顶尖物理技术。”由此他们三个人成了莫逆之交。
 
-there is still massive human trafficking in the world today, in countries controlled by the CCP
+束星北自回国后，先后在南京中央军官学校、浙江大学、暨南大学、交通大学、山东大学任教；1978年5月，束星北被青岛海洋局第一海洋研究所聘为研究员；
+他的教学上课从不照本宣科，用通俗的语言、现实生活的实例，去讲解深奥的物理原理，让人感受到物理的魅力。李政道因听了束老的讲座改学物理。束星北悉心指导这位物理天才的学生，并成功取得了诺贝尔物理学奖。
 
-尽管在大众媒体的报道压力下，这个女人目前的情况仍然被掩盖！
+在五十年代那个特殊年代是容不下他这样满腹才情，耿直不阿，如此不肯低头的伟人，在1958年，他扣上“莫须有”的帽子，被判管制三年下放青岛月子口修水库。年过半百每天从事繁重的体力劳动，还要受到其他劳改分子的欺凌，
+在1960年，束星北被调至青岛医学院继续接受劳动改造打扫医学院厕所，堂堂科学家受到羞辱，这个曾在1945年成功研造中国首部雷达，被称为“中国雷达之父”，还做了《原子弹理论学术报告》，一个世界顶尖人才，本是研究原子弹，有望“两弹一勋”。却在荒唐的时代沦落在厕所做清洗打扫十几年，此时的他却依然热爱科学，大地是他的黑板，扫把是他的笔，苍天是他的学生，就这样束星北写出了几万次的厕所论文，字字句句都是学问。但空有一腔报国热血，因生不逢时而无施展之地。直到在1972年，他的学生李政道获得诺贝尔奖回国，在李政道推荐之下，束星北被平反，此时的他年近古稀，重新走上讲台。
 
-In spite of the pressure from mass media coverage, this woman’s current situation remains under wraps
+1983年10月30日凌晨3时，因患老慢支和肺心病，病逝于青岛。享年76岁。
+束星北毕生致力于中国教育事业与科学研究，有深厚的数学物理基础，讲课富有思想性和启发性，培养了一批优秀的物理人才，是中国早期从事量子力学和相对论研究的物理学家之一，后转向气象科学研究。一生热爱科学的他生前表示捐出遗体供医学研究，说：虽然他身体是70多岁的人，但头脑还是清醒的，像二三十岁的大脑，可供医学研究。
 
-生死未卜！ 唯有推翻共产党！才能改变这一切！
+他的家属遵从束老前辈的遗嘱，逝世后将遗体捐给青岛医学院。可事与愿违，因为学校领导的换届，当局的不重视，遗体烂了以后最终被两位学生在医院后山掩埋，埋在校篮球场旁的双杠下面。一代百年难遇的物理巨星的遗体如此草草下葬，让人唏嘘不已！
 
-Live or die is uncertain! The only way to change all these is to overthrow the CCP
+他本该成为中国的爱因斯坦，在那个愤恨的年代满地是伤痛的遗憾！
 
-Miles guo和他的战友们特别为此制作了一首歌曲《铁锁梦》
+审核/编辑/发稿：谐趣园
 
-Miles Guo and his fellow fighters created a song “Iron Lock Dream” specially for this purpose
+![This image has an empty alt attribute; its file name is 6E878D77-D03C-44C7-A803-4046B28027C2.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/6E878D77-D03C-44C7-A803-4046B28027C2.jpeg)
 
-伴随着郭文贵先生的歌曲
-
-With the song of Miles Guo
-
-我作为视频的作者是哭着把这个视频剪辑完的！
-
-As the author of the video I cried to finish editing this video
-
-#铁链女 #MilesGuo #李莹 #人口贩卖 #人口失踪 #徐州丰县 #中国人权 #共产主义中国 #3.8妇女
-
-#Chained woman #Miles Guo #Li Ying #Human Trafficking #Missing Persons #Xuzhou Feng County #Human Rights in China #Communist China #March 8 Women’s Day
-
-
-
-这个视频将给您揭示在中共国治下，中国妇女被拐卖遭遇的冰山一角
-
-This video will show you the tip of the iceberg of women being trafficked in China under the rule of the CCP
-
-片中这个被栓着这铁链的女人，已被拐20年，被迫生育了8个孩子…
-
-The chained woman in the video has been abducted for 20 years and forced to give birth to eight children…
-
-本片BGM是Miles Guo在国际劳动妇女节唱给铁链女和所有受苦难的中国妇女歌曲！
-
-The BGM of this video is Miles Guo’s song for the chained woman and all the suffering Chinese women on International Women’s Day!
-
-铁链女：先生，我的处境就和妓女一样！
-
-Chained Woman: Sir, I’m in the same position as a prostitute
-
-字幕： 2011年的网上寻人启示
-
-Subtitles: Online search notice in 2011
-
-姓名：李莹
-
-Name: Li Ying
-
-性别：女
-
-Gender: Female
-
-出生日期：1984-07-02
-
-Date of Birth: 07/02/1984
-
-失踪时身高：158厘米
-
-Height at disappearance: 158 cm
-
-失踪时间：1996-12-06
-
-Missing time: 12/06/1996
-
-失踪地点：四川省南充市
-
-Missing location: Nanchong City, Sichuan Province
-
-失踪信息：失踪时上小学六年级，在1996年12月6日上学路上走失
-
-Missing information: missing at the time of the primary school sixth grade, in December 6, 1996 on the way to school lost
-
-宝贝回家！
-
-Baby come home!
-
-失踪前照片，失踪后照片
-
-Photos before disappearance, photos after disappearance
-
-暗访知情者：她13岁被拐卖到徐州铜山区，
-
-Secret visits to those who knew: she was trafficked to Xuzhou Tongshan District at the age of 13
-
-（“他丈夫”的家人）15岁把她买回来，
-
-( family of “her husband”) bought her when she was 15
-
-他丈夫和他的父亲及家人3个人共“用”这个女人
-
-Her husband, as well as his father and his family the 3 persons, “used” this woman together
-
-他们用钳子强行掰掉了她的牙齿（防止她反抗咬人）
-
-They used pliers to forcibly remove her teeth (to prevent her from resisting the bite)
-
-铁链女：这个世界不要我了！
-
-Chained woman: the world does not want me anymore!
-
-她20年被迫生育了8个孩子
-
-She was forced to give birth to eight children in 20 years
-
-这是她愚昧、无知、邪恶的“丈夫”，
-
-This is her foolish, ignorant, evil “husband”
-
-在他看来她就是一个生育机器！
-
-who saw her as a fertility machine!
-
-而她的丈夫竟然因此事成为一个网红、赚钱
-
-and her husband turned out to be an internet sensation and earned money because of this matter
-
-这是何等荒谬的社会，何等荒谬的事情！
-
-what a ridiculous society, what a ridiculous thing!
-
-记者男：你的饭凉了么？
-
-Reporter Man: Is your rice cold?
-
-你能不能听懂我说话？
-
-Can you understand me?
-
-铁链女：不能
-
-Chained women: No!
-
-记者男：大家看一看，这个大姐经历了什么？！
-
-Reporter Man: Look at this sister, everyone, what she has experienced!
-
-顶部字幕：时间：2022-1-26  气温：0度
-
-画面翻译：中国每年失踪女性人口到底多少？！
-
-Screen translation: How much is the annual missing female population in China?
-
-中共国百度搜索答案：2020年每天有2739人处于走失状态
-
-Communist China Baidu search answer: 2,739 people in lost state every day in 2020
-
-2016年：394万
-
-2016 : 3.94 million
-
-2017年：260万
-
-2017: 2.6 million
-
-直到2020年仍有100万
-
-Until 2020 there still 1 million
-
-中国每年丢失15-16岁女生有多少？？
-
-How many girls aged 15-16 are lost in China every year?
-
-中国平均每年失踪人口330万，15岁左右少女5万8千
-
-China’s average annual missing persons 3.3 million, about 15 years old girls 58,000
-
-请看中国著名法学老师 罗翔 解读中共国荒谬的法律：
-
-Please watch Luo Xiang, a famous Chinese law teacher, explain the absurd laws of the Communist China
-
-请看法条241条，买一个女的最高判几年
-
-Please see article 241, buy a woman’s maximum sentence of how many years in prison
-
-3年以下有期徒刑，拘役或者管制
-
-Less than 3 years in prison, or detention or control
-
-所以我经常上课时讲
-
-so I often talk in class
-
-我买只鹦鹉判多少年？都要5年以下
-
-How many years will I sentenced for buying a parrot? Less than 5 years
-
-两只鹦鹉就要判5年以上了！
-
-Two parrots will be sentenced to more than 5 years!
-
-买二十只癞蛤蟆判多少年？也得3年以下
-
-How many years to sentence on buying twenty toads? It is also less than 3 years
-
-所以大家觉得中国女人相当于多少只癞蛤蟆？？
-
-So how many toads do you think Chinese women are equivalent to?
-
-二十只癞蛤蟆！
-
-Twenty toads!
-
-百年红祸
-
-Red Scourge of the Centuries
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
