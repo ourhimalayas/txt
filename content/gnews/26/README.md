@@ -2,12 +2,27 @@
 ---
 
 
-## 中共才是世界上黑帮的幕后大佬
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2201508/)
+## 中共内战外战大戏即将开始
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201600/)
 
-03/19/2022 杨洁篪去罗马控诉美国的行为意在将美国的注意力困在乌克兰，中共自己却将航母战斗群派往台湾。世界的终极黑帮大佬是中共，它集合了所有坏人。因此我们要尽一切努力去面对中共，让这个黑帮共同体解体。
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月19日，郭文贵先生发布盖特视频表示，中共的内战、外战大戏即将开始。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+郭先生说，世界所有的邪恶和灾难，离开虚假就不能成立。中共以假治国、以骗治国，洗脑中共国人，致使很多人不辨是非、黑白、善恶、对错，是导致中共国的大邪、大恶、大灾的根本原因。许多人甚至对香股回到35000点抱有幻想，而侥幸往往是走向灾难的开端。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-63.jpg)
+郭先生透露，其两位友人的公司，近期因世界供应链的问题及能源价格暴涨，经营难以为继。近日疫苗灾难在全世界各国，普遍引发了恐慌和大量非正常死亡事件。由于中共在背后支持俄罗斯侵略乌克兰，恐怕会导致海外排华事件发生。习近平和普京由于独裁和私欲，会绑架两国人民做他们的炮灰。中共即将对台湾的攻击，也自认为是内部事务，国际社会无权插手。
+
+文明与野蛮的区别就在于是否同等尊重对待生命。文明社会制度下，无论人或动物，任何生命都应当得到尊重，伤害生命就应当受到惩罚。文明社会即使执行死刑，也会充分保障死刑犯的人格与尊严。而中共对其内部人士同样残忍。据中共内部人士透露，对孙力军、傅振华、孟建柱、和王岐山等人，将来极有可能通过注射毒针来执行死刑。
+
+参考链接：[3月19号：尊敬的战友们好中共内战．外战的大戏即将开始！](https://www.gettr.com/post/p10rq15972f)
+
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+总编/编辑/审核：文真/飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
