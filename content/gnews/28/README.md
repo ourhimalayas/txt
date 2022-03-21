@@ -2,32 +2,30 @@
 ---
 
 
-## 樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2205218/)
+## 以色列总理：俄乌谈判仍然存在巨大差距
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2205332/)
 
-撰稿：东京樱花团/TV
+#### 撰稿：彩虹   
 
-制图：东京樱花团/chuansang
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-145.png)
-丹麦政府在2月份统计了各接种人群的每百万人感染人数（图1）[1]。自2月14日起，疫苗接种者的每百万人感染率随着接种次数而增加，即三针接种最易感染，两针次之，一针接种者风险最低（图2）。丹麦政府最后一次更新的2月21日数据中，三针接种的感染风险达到了一针接种者的2.45倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-110.jpg)
-虽然数据似乎显示一针接种者感染风险最低，甚至低于未接种者，但考虑到一至三针接种者的数据，这是不合理的。参考我们在新南威尔士州观察到的现象[2]，这应该是对未接种者过度测试的政策导致的结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-76.jpg)
-这个数据证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
+#### 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16478779581.png)图片来源：以色列时报
+据《国会山报》3月21日报道，周一，作为试图成为俄罗斯军事入侵乌克兰冲突的调解人，以色列总理贝内特(Naftali Bennett)说，乌克兰和俄罗斯之间的停火谈判仍然存在巨大的差距。
 
-（注：本文为《樱花数据分析》第二十期）
+据路透社报道，在一次演讲中，贝内特说：“还有很长的路要走，因为……有几个问题存在争议，其中一些是根本问题”。他表示，以色列“将与世界上的其他朋友一起，继续努力缩小差距，结束战争”。
 
-数据来源：
+就在发表这些言论的前一天，身为犹太人的乌克兰总统泽连斯基（Volodymyr Zelensky）批评了以色列对战争的冷漠反应。他说：“为什么以色列不对俄罗斯进行制裁？以色列需要对这些问题给出答案，然后，我们才能共处”。
 
-[\[1\]Statens Serum Institut – Gennembrudsinfektioner (opgjort for 5+ årige)](https://experience.arcgis.com/experience/aa41b29149f24e20a4007a0c4e13db1d/page/page_5/)
+泽连斯基批评道：“我们向你们求助，并询问在不选边站的情况下（向我们）提供帮助或调解是否更好。我让你们自己决定这个问题的答案，但我确实想指出，冷漠会杀人”。
 
-[\[2\]樱花数据分析│澳大利亚新南威尔士州：疫苗有效率提高？那是玩弄数据的小把戏！](https://gnews.org/zh-hans/1995298/)
+文章说，虽然以色列强烈谴责俄罗斯的入侵行为，但迄今为止，它没有像其他国家那样出台强有力的制裁措施作为回应。但以色列外交部长拉皮德（Yair Lapid）称，该国不会成为“俄罗斯绕开美国和其他西方国家实施制裁的通道”。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/EN-e1646965309541.jpg)
+报道说，周一，以色列向乌克兰派出了一个援助代表团，以建立一个野外医院。在机场为代表团送行时，贝内特发表了几句话，说以色列正在“以敏感、慷慨和负责的态度处理这场不幸的危机，同时在各种因素之间保持平衡，而这些因素却是复杂的”。
 
+*责编：白夜*
+
+**新闻来源**
+
+[Israeli prime minister says large gaps remain in cease-fire talks between Russia, Ukraine](https://thehill.com/policy/international/598997-israeli-prime-minister-says-very-large-gaps-remain-in-cease-fire-talks)
 
  
 

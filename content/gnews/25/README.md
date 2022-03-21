@@ -2,30 +2,44 @@
 ---
 
 
-## 以色列总理：俄乌谈判仍然存在巨大差距
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2205332/)
+## 新西兰财经G乐部2022年3月21日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2205600/)
 
-#### 撰稿：彩虹   
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/953ffb15e3f2f0af556bd2e1e678563f_500x0.jpg)
+正文
 
-#### 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16478779581.png)图片来源：以色列时报
-据《国会山报》3月21日报道，周一，作为试图成为俄罗斯军事入侵乌克兰冲突的调解人，以色列总理贝内特(Naftali Bennett)说，乌克兰和俄罗斯之间的停火谈判仍然存在巨大的差距。
+**1、银行“内鬼”转移储户2.5亿存款 到底该谁担责？**
+![img](https://media.gettr.com/group46/origin/2022/03/21/04/c10cd8df-0097-ee3b-ee6c-c2a2c3d3f7a2/80ecd019a4ddd55f813efdb1d008da0a_500x0.png)
+近期，工行南宁分行储户“2.5亿存款‘不翼而飞’”一事登上新闻热搜，并引起持续热议。3月18日，工行南宁分行对此回应称，受害人为获非法高息致资金损失，梁某系个人犯罪行为，将依法处理。日前，《每日经济新闻》记者联系到该事件中的多位受害人，并获得一份“南宁市中级人民法院刑事判决书”。通过判决书发现，这起金融案件系工行南宁分行个人金融业务部原经理梁建红一手操纵。2021年11月19日，法院一审判决结果如下：梁建红因犯盗窃罪、诈骗罪、伪造金融票证罪等，被判处无期徒刑，并处罚金320万元。
 
-据路透社报道，在一次演讲中，贝内特说：“还有很长的路要走，因为……有几个问题存在争议，其中一些是根本问题”。他表示，以色列“将与世界上的其他朋友一起，继续努力缩小差距，结束战争”。
+财经G评： 钱去哪儿了？ 诈骗2.5亿，罚金320万，剩下的钱去哪里了？
 
-就在发表这些言论的前一天，身为犹太人的乌克兰总统泽连斯基（Volodymyr Zelensky）批评了以色列对战争的冷漠反应。他说：“为什么以色列不对俄罗斯进行制裁？以色列需要对这些问题给出答案，然后，我们才能共处”。
+链接：[https://finance.sina.com.cn/money/lczx/2022-03-21/doc-imcwiwss7179124.shtml](https://finance.sina.com.cn/money/lczx/2022-03-21/doc-imcwiwss7179124.shtml)
 
-泽连斯基批评道：“我们向你们求助，并询问在不选边站的情况下（向我们）提供帮助或调解是否更好。我让你们自己决定这个问题的答案，但我确实想指出，冷漠会杀人”。
+**2、800多万元买29只太平洋保险，掏空积蓄贷款370万元！**
+![img](https://media.gettr.com/group48/origin/2022/03/21/05/ae3a50d4-c157-84b7-9223-b7659d809f57/764f6e4f747fd4d941585f1c710b8082_500x0.png)
+9年多里，买下29种[太平洋](https://finance.sina.com.cn/realstock/company/sh601099/nc.shtml)人寿保险产品，总计支付保费800多万元，其中贷款370万元。买了保险却“背债”数百万元，这件事就发生在上海退休市民章先生身上。“保险公司业务员诱导贷款，导致我背上巨债，日子都快过不下去了。”如今，家中积蓄用光。夫妻俩每年退休金仅有11万元，但370万元的“负债”每年利息却超20万元。“债务”如滚雪球般压向退休的章先生夫妇，让他们喘不过气来。记者调查到，部分保单可能还涉嫌伪造被保险人签名、虚构投保人与被保人父子关系等。在当事人投诉后，目前，太平洋寿险上海分公司已申请银保监会介入调查。
 
-文章说，虽然以色列强烈谴责俄罗斯的入侵行为，但迄今为止，它没有像其他国家那样出台强有力的制裁措施作为回应。但以色列外交部长拉皮德（Yair Lapid）称，该国不会成为“俄罗斯绕开美国和其他西方国家实施制裁的通道”。
+财经G评：以前小编经常评论说中共要把韭菜榨出油，看来我说错了。中共是要把韭菜榨出血🩸！
 
-报道说，周一，以色列向乌克兰派出了一个援助代表团，以建立一个野外医院。在机场为代表团送行时，贝内特发表了几句话，说以色列正在“以敏感、慷慨和负责的态度处理这场不幸的危机，同时在各种因素之间保持平衡，而这些因素却是复杂的”。
+链接：[https://finance.sina.com.cn/money/insurance/bxyx/2022-03-17/doc-imcwipih8990039.shtml](https://finance.sina.com.cn/money/insurance/bxyx/2022-03-17/doc-imcwipih8990039.shtml)
 
-*责编：白夜*
+**3、可转债强赎：秒亏47%，660万一夜变350万**
+![img](https://media.gettr.com/group16/origin/2022/03/21/05/6eb40131-4d1b-1f23-aed5-afa208921f92/20b0c77b77268e002aee2a082f5a31bd_500x0.png)
+3月17日，最后交易日的盛屯转债收报188.02元，然而还是有35460张转债未被转股，按100.044元遭强赎回，投资者瞬间亏损311.96万元，从市值666.72万元一夜被按354.76万元赎回兑付，亏损幅度高达46.79%。
 
-**新闻来源**
+链接：[https://finance.sina.com.cn/stock/relnews/cn/2022-03-21/doc-imcwiwss7196958.shtml](https://finance.sina.com.cn/stock/relnews/cn/2022-03-21/doc-imcwiwss7196958.shtml)
 
-[Israeli prime minister says large gaps remain in cease-fire talks between Russia, Ukraine](https://thehill.com/policy/international/598997-israeli-prime-minister-says-very-large-gaps-remain-in-cease-fire-talks)
+**4、拜登将前往欧洲参加峰会 欧盟将考虑是否对俄实施石油禁运**
+![img](https://media.gettr.com/group5/origin/2022/03/21/05/aa27037a-9fdb-7284-7a02-79d6740a9ded/2f194dfe62c71782340749dcd5e7ef56_500x0.png)
+路透3月21日 – 欧盟各国政府领导人本周将与美国总统拜登一起参加一系列旨在加强西方对俄乌冲突应对的峰会，届时将考虑是否对俄罗斯实施石油禁运。为了迫使俄罗斯总统普京从乌克兰撤军，欧盟已与西方盟友一起实施了一系列惩罚性制裁，包括冻结俄罗斯央行的资产。欧盟各国外长将在周一举行讨论，拜登将在周四抵达布鲁塞尔，与北约的30个盟友举行峰会，他还将参加欧盟峰会以及七国集团(G7)峰会。
+
+链接： [https://cn.reuters.com/article/us-biden-eu-summit-russia-sanctions-0321-idCNKCS2LI05K?il=0](https://cn.reuters.com/article/us-biden-eu-summit-russia-sanctions-0321-idCNKCS2LI05K?il=0)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 
