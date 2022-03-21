@@ -2,25 +2,26 @@
 ---
 
 
-## 樱花FM|美国已通知盟国“中共打算向俄罗斯提供武器等支持”
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2200137/)
+## 香草山翻译部周刊|2022年3月20日第40期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2199520/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2279.png)
-3月15日路透社华盛顿消息：据一位美国高级官员称，美国已通知北大西洋公约组织（NATO）和亚洲盟友，中共已经表示愿意应俄罗斯的要求向其提供军事和经济援助，以支持乌克兰冲突。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/CN0320-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-根据情报官员在外交电报中直接传达的信息，预计中共方面不会承认这些计划。消息还说，预计将在一次直接简报中分享细节。
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-文字版原文：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-19.jpeg)
 
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
 
-| [美国已通知盟国“中共打算向俄罗斯提供武器等支持”](https://gnews.org/zh-hans/2167448/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

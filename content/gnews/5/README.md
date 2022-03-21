@@ -2,32 +2,33 @@
 ---
 
 
-## 樱花时政┃日本阿联酋外长会谈就乌俄局势石油危机交换意见
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2200686/)
+## 有声|联合国：648万人在乌克兰境内流离失所
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2200872/)
 
-撰稿：东京樱花团/文小白
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月18日，联合国移民机构发表文件称，联合国人道主义事务协调厅调查显示，自2月24日俄罗斯入侵以来，截至3月16日，乌克兰境内的流离失所者人数为648万。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本阿联酋外长会谈就乌俄局势石油危机交换意见.png)照片来源于本文链接
+据估计，由于安全风险增加、桥梁道路被毁、缺乏资源，或缺少安全地点或住宿等因素，超过1200万人滞留在受战争影响地区，无法撤离。被困人群需要人道主义援助和基本物资，包括食品、水和药品。
 
-日本外长林芳正在出访阿联酋期间，于日本时间3月21日凌晨，与阿联酋外长阿卜杜拉举行了会谈。
+同日，联合国难民署称，开战以来，320多万难民逃离了乌克兰。根据联合国儿童基金会发言人詹姆斯-埃尔德，在3月15日表示，超过150万名儿童已逃离乌克兰。
 
-双方就乌克兰局势和其他问题交换了意见，两位外长确认将继续在各种外交谈判中进行合作，以保护国际秩序的基础。两位外长还确认了俄罗斯不应威胁或使用核武器。
+评论称，俄罗斯入侵前，乌克兰总人口约4400万，不计死亡人数，至今已经有近2200万人受到严重影响。人道灾难将因战争的持续而加重。
 
-在会谈中林外长表示，俄罗斯的军事行动侵犯了乌克兰的主权和领土完整，是对国际法的严重违反。此外，林外长还对高油价表示关切，希望阿联酋作为主要产油国，为稳定国际石油市场做出进一步贡献。
+文字版原文：[联合国：648万人在乌克兰境内流离失所](https://gnews.org/zh-hans/2198986/)
 
-阿卜杜拉外长则表示愿意与日本合作，称与日本的战略伙伴的关系是不可动摇的。
+音频处理：Fei797
+发稿：Fei797
 
-阿联酋供应日本约30%的原油进口，日本公司也在阿联酋生产原油。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-在俄罗斯军事入侵乌克兰的背景下，石油消费国要求产油国进一步增产，以应对油价飙升，但产油国仍保持谨慎态度。阿联酋也对自己的额外增产表示出消极态度。
-
-消息来源：
-
-[林外相 UAE外相と会談 ウクライナへの軍事侵攻めぐり協調対応](https://www3.nhk.or.jp/news/html/20220321/k10013543491000.html?utm_int=news-international_contents_list-items_002)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
