@@ -2,31 +2,22 @@
 ---
 
 
-## 【秘翻北美时评】德国取消大部分防疫限制措施 为全面开放做准备
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2202457/)
+## 樱花时政┃美国拜登总统即将访问波兰 讨论应对乌克兰难民问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2202552/)
 
-**BY：[秘翻北美时评](https://gettr.com/post/p1113l8e53a)**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2317.png)[图片来源](https://www.aljazeera.com/gallery/2022/3/8/photos-people-flee-as-humanitarian-crisis-deepens-in-%20u/AP%20Photo%5D)
+美国白宫3月20日宣布，拜登总统将于3月25日和26日访问波兰。
 
-***[2022-03-21](https://gettr.com/post/p1113l8e53a)***
+拜登将在26日会见波兰总统杜达。由于俄罗斯军事入侵导致大量乌克兰难民涌入波兰的现状，他们将讨论应对乌克兰难民的问题。
 
+在访问波兰之前，拜登总统将访问布鲁塞尔，出席3月24日举行的北大西洋公约组织（NATO）和欧盟（EU）峰会，以及七国集团（G7）会议。他们将讨论对乌克兰的支持和对俄罗斯的追加制裁。
 
+信息源：[バイデン米大統領、25日からポーランド訪問　ウクライナ難民で対応協議へ](text=%E3%83%)
 
-**今日主题**
-
-**1. 德国取消大部分防疫限制措施 为全面开放做准备 **
-
-**2. 河北邯郸发生重大汽车冲撞市民事件 **
-
-**3. 学生复课中共借机敛财，东莞探照灯照射宛如监狱**
-
-
-
-🔗**链接：**[https://gettr.com/post/p1113l8e53a](https://gettr.com/post/p1113l8e53a)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

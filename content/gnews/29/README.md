@@ -2,27 +2,26 @@
 ---
 
 
-## 俄军发射高超音速导弹 俄乌战争恐升级
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201603/)
+## 德国经济部长哈贝克出访卡塔尔 寻求天然气供应
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2201805/)
 
-作者：纽约香草山农场 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月19日外媒报道，俄罗斯国防部发言人证实，俄军使用“匕首”高超音速弹道导弹，摧毁了乌克兰西部一处地下乌军导弹储备库。袭击的地点位于伊万诺-弗兰科夫斯克地区，距离北约成员国罗马尼亚边境30公里。
+**撰稿：日本东京方舟农场  北极**
 
-该发言人表示，俄军的高超音速“匕首”导弹射程超过1000公里，飞行速度是音速的10倍，可以快速突破防空系统。此次攻击用的是常规弹头，但该导弹也可携带核弹头。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-65.jpg)
-2021月12月，俄罗斯国防部宣布，单独组建空射航空团。用米格-31k飞机携带“匕首”高超音速导弹。
+据德国之声3月20日报道，当地时间19日德国经济部长罗伯特·哈贝克（Robert Habeck）率领德国经济代表团出访卡塔尔，寻求新的天然气供应伙伴。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-243.png)随同哈贝克一道出访卡塔尔的，是一支人数众多的德国经济代表团。（图片来自德国之声）
+哈贝克在卡塔尔期间，同卡塔尔国王、经济部长以及外交部长等高层举行了会谈。哈贝克同卡塔尔国王谢赫·塔米姆·本·哈迈德·阿勒萨尼（Emir Sheikh Tamim bin Hamad Al-Thani）就两国实行长期能源合作达成了共识。本次会谈的核心议题是德国当前急需的天然气供应来源。
 
-分析人士指出，俄军使用高超音速导弹攻击乌克兰，预示着普京在谈判破裂的情况下，可能加速侵乌战争升级，进一步威胁整个欧洲地区的安全。
+在全球天然气储量最多的国家当中，卡塔尔排名仅次于俄罗斯和伊朗。2019年，卡塔尔出口了近1070亿立米的液化天然气(LNG)，相当于整个德国的天然气需求量。卡塔尔出口的天然气中的30%被输往欧盟，但其中德国的购买量则可以忽略不计。出于价格考虑，德国迄今为止主要以管道输送方式购买来自俄罗斯的天然气。
 
-参考链接：[Russia Claims It Used Hypersonic Missiles in Ukraine War for the First Time](https://www.newsweek.com/ukraine-russia-hypersonic-kinzhal-weapons-1689720)
+随着俄乌战争爆发，由于德国对俄罗斯天然气的过度依赖，使得德国对于俄罗斯实行经济制裁的软弱立场被舆论推到了风口浪尖。出于反思，德国政府急需找到新的天然气供应伙伴，以防俄罗斯总统普京切断对德国的天然气出口。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+哈贝克在会谈期间表示，德国计划尽快修建两座液化天然气港口，来接受来自卡塔尔的天然气，不过建成投产大概需要五年时间。卡塔尔当局希望同德国签署长期供气协定，双方会谈的气氛相当融洽。
 
-总编/编辑/审核：Jack Li 文阳/飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+参考链接：
+[https://reurl.cc/bkrgdE](https://reurl.cc/bkrgdE)
+
+总编：老孙
+校对发布：爱放飞
 
  
 

@@ -2,59 +2,29 @@
 ---
 
 
-## 马斯克的星链服务已在乌克兰战场广泛使用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2200492/)
+## 作恶继续 美陆军开除没有接种疫苗的士兵
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2201086/)
 
-#### 【雅典娜观察】和您一起洞察世界
+翻译：冰糖葫芦喵
 
-整理：gardeniahu
-编辑：文泓
+编辑与校对：冰糖葫芦喵
 
+《网关专家》3月20日报道，上周，**美国陆军和其他军种一起努力清除中共病毒疫苗异议者，宣布将三名拒绝接种中共病毒的士兵离职。这是美国陆军正式开始让未接种疫苗的士兵不光彩地退伍**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/士兵决绝接种-1.jpg)图片来自原文。
+据报道，**第一轮裁员还包括六名陆军指挥官，其中包括两名营长。**根据美军3月18日发布的一份声明，**还有超过3250份传票发给了仍然拒绝执行疫苗强制命令的士兵**。
 
+**预计在接下来的几周内，拒绝接种疫苗的退伍人数将会增加**，因为**军方高层希望最终执行已实施数月的命令。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+根据可公开获得的最新信息，**仅陆军就有数千名士兵尚未接种中共病毒疫苗。总计已有2600多名士兵在任何情况下拒绝接种疫苗，另有数千人申请医疗和宗教豁免。**
 
+然而，**自美国政府宣布疫苗强制政策以来，陆军总共只批准了9项豁免，**因此获得豁免的可能性并不大。
 
+据报道，在美国五大军事部门中，陆军是最晚开始惩罚拒绝遵守疫苗规定的士兵。**在其他部门，他们已经驱逐疫苗异议者几个月了，有成千上万的士兵被全面驱逐出队伍。**
 
+新闻链接来源：
 
+[VAX PURGE CONTINUES: US Army Officially Begins Dishonorably Discharging Soldiers Who Haven’t Taken The Experimental Vaccine (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/vax-purge-continues-us-army-officially-begins-dishonorably-discharging-soldiers-havent-taken-experimental-jab/)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/12-33.png)图片来源：Task & Purpose 雅典娜设计组
-
-
-
-
-在2月24日俄罗斯发起入侵乌克兰，乌克兰副总理费多罗夫在推特上请求埃隆·马斯克以星链（Starlink）卫星站来协助乌克兰。马斯克迅速回应，并在推文写道“星链服务现在已在乌克兰启用，后续还会提供更多终端设备”。
-
-在乌克兰启动星链服务后的48小时内，运载卫星接收器等星链终端设备的卡车抵达当地，还有提供能让它们透过连接车用充电装置或电池组供电的转接器，以及行动“漫游”功能。
-
-星链的应用程式（App）乌克兰境内超过10万民众在使用，对军方的用处也愈来愈明显。
-
-据英国《每日电讯报》报导，乌克兰军队行动中，有个名为Aerorozvidka（空中侦察）的先锋部队正利用监视技术和攻击无人机锁定俄军战车和阵地，一举制胜。
-
-如果乌克兰的网路大规模崩溃，乌军Aerorozvidka“无人机战士”仍然可以透过星链行动终端设备发送讯号与他们的基地联系，并使用波兰等邻国的地面站。
-
-而乌方也利用PD-1，一款翼展10英尺（约3米）、配备红外线感测器的无人飞行载具，来搜集有关俄罗斯军队调动的讯息。
-
-乌克兰无人机部队运用的是一种称为Delta的精密系统。此系统是近年来在西方顾问的协助下打造，可以从基本的笔记型电脑登入使用，且含有可建立互动式地图的“状况认知”（situational awareness）软体，结合来自无人机、卫星、感应器和人工智慧（AI）的影像，借此追踪敌人。
-
-这项乌克兰系统受益于西方国家提供的设备，包括取代苏联时代技术的无线电通讯，且美国还投入了数以百万计美元以防俄罗斯骇客攻击、拦截讯号或企图“欺骗式干扰”全球卫星定位系统（GPS）技术。
-
-每日电讯报指出，如今在俄军试图追踪下，乌克兰的无人机队面临愈来愈多的危险，必须经常移动。
-
-马斯克本月初曾警告，星链卫星网路终端设备很有可能成为俄军攻击目标。
-
-参考链接：[马斯克星链协助 乌军无人机攻击俄军制胜](https://www.epochtimes.com/gb/22/3/20/n13659605.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 
 
  
