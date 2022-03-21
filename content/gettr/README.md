@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 6:08 AM (UTC)`
+
+3/20/2022 Miles Guo: Dictators will not give up their grip on power even if they are in the face of death. Same with Putin and Xi Jinping. People should not cherish any illusion about politicians. The separation of powers, rule of law, and democratic system of the United States are so great! That’s why the US has been able to attract the elites from all over the world to immigrate to the country.<br/><br/>3/20/2022 文贵直播: 独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外；人民不要对政客抱有丝毫幻想；美国的三权鼎立、法治和民主的系统太伟大了，所以才能吸引全世界精英移民美国
+![img](https://media.gettr.com/group26/getter/2022/03/21/06/f083da3b-b3e5-cbc2-3577-6e28297fb17b/out.jpg)
+
+---
+
+`@miles 3/21/2022 6:00 AM (UTC)`
+
+Liu Yanping, the only senior officer, former head of the State Supervision Commission to the Ministry of State Security who met and negotiated with Miles Guo in 2017 after Miles Guo launched the whistleblower movement, is under disciplinary review and supervisory investigation by the Central Commission for Discipline Inspection and State Supervision commission. The Chinese Communist Party's meat grinder system made Liu Yaping another victim of the Communist Party's internal struggle.<br/><br/>2017年文贵开始爆料后，中共派出的唯一一位与文贵先生见面谈判的中纪委国安部高官刘彦平于2022年3月被宣布接受中央纪委国家监委纪律审查和监察调查。中共的绞肉机体制让刘彦平最终成为中共内斗的牺牲品。<br/>
+![img](https://media.gettr.com/group34/getter/2022/03/21/06/b18b320a-c99e-029a-ee4a-1276ad38cce3/out.jpg)
+
+---
+
 `@miles 3/21/2022 4:46 AM (UTC)`
 
 3/20/2022 Miles Guo: Pangu’s dragon head turned into turtle head, what does this mean? The foreigners attending the 2022 Beijing Olympics Games all deem Miles Guo as the greatest hero in mankind - if the “atheistic” CCP doesn’t care about the Whistleblowers’ Movement, why did it turn Pangu’s dragon head into the turtle head?<br/><br/>3/20/2022文贵直播：盘古龙头变龟头意味着啥？参加冬奥会冬残会的外国人一致认为文贵先生是人类的大英雄，如果自诩为无神论的共产党真的不在乎爆料革命，为什么把盘古龙头变成龟头呢？<br/>
@@ -142,22 +156,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 3/20/2022 Miles Guo: There is virtually no chance that Xi Jinping’s invasion of Taiwan will lead to WWIII! The US will definitely be the winner, and that is only a matter of how much the victory will cost. Iran’s Ali Khamenei and Pakistan’s Imran Khan, who are following the CCP, are going to be taken out soon!<br/><br/>3/20/2022 文贵直播：习近平打台湾引发第三次世界大战的可能性微乎其微！美国毫无悬念会成为赢家，只是代价有多大的问题；跟共产党走的伊朗的哈梅内伊和巴基斯坦的伊姆兰·汗都要被干掉！<br/>
 ![img](https://media.gettr.com/group33/getter/2022/03/20/21/bf79301d-fc3f-9696-4990-8e11d1cff450/out.jpg)
-
----
-
-`@miles 3/20/2022 9:57 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-20
-![img](https://media.gettr.com/group17/origin/2022/03/20/21/bcb283af-b4b5-b333-51ea-e0edc93ca260/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@pangushixun 3/20/2022 5:17 PM (UTC)`
-
-又有一车从英国来的救援物资送到了NFSC大帐篷，我们的大帐篷已经成为世界各地救助乌克兰难民的爱心中心。<br/><br/><br/>#盘古时讯 #救援 #人道主义 #新中国联邦
-![img](https://media.gettr.com/group4/getter/2022/03/20/17/4930a9fe-2e8a-0436-9cd0-0e379824192c/out.jpg)
 
 ---
 

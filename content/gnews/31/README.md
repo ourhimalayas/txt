@@ -2,30 +2,33 @@
 ---
 
 
-## 作恶继续 美陆军开除没有接种疫苗的士兵
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2201086/)
+## 中共多省面临疫情防控局面，习近平强调“动态清零”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2201214/)
 
-翻译：冰糖葫芦喵
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-编辑与校对：冰糖葫芦喵
+整理/编辑：围剿维尼熊
 
-《网关专家》3月20日报道，上周，**美国陆军和其他军种一起努力清除中共病毒疫苗异议者，宣布将三名拒绝接种中共病毒的士兵离职。这是美国陆军正式开始让未接种疫苗的士兵不光彩地退伍**。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/士兵决绝接种-1.jpg)图片来自原文。
-据报道，**第一轮裁员还包括六名陆军指挥官，其中包括两名营长。**根据美军3月18日发布的一份声明，**还有超过3250份传票发给了仍然拒绝执行疫苗强制命令的士兵**。
-
-**预计在接下来的几周内，拒绝接种疫苗的退伍人数将会增加**，因为**军方高层希望最终执行已实施数月的命令。**
-
-根据可公开获得的最新信息，**仅陆军就有数千名士兵尚未接种中共病毒疫苗。总计已有2600多名士兵在任何情况下拒绝接种疫苗，另有数千人申请医疗和宗教豁免。**
-
-然而，**自美国政府宣布疫苗强制政策以来，陆军总共只批准了9项豁免，**因此获得豁免的可能性并不大。
-
-据报道，在美国五大军事部门中，陆军是最晚开始惩罚拒绝遵守疫苗规定的士兵。**在其他部门，他们已经驱逐疫苗异议者几个月了，有成千上万的士兵被全面驱逐出队伍。**
-
-新闻链接来源：
-
-[VAX PURGE CONTINUES: US Army Officially Begins Dishonorably Discharging Soldiers Who Haven’t Taken The Experimental Vaccine (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/vax-purge-continues-us-army-officially-begins-dishonorably-discharging-soldiers-havent-taken-experimental-jab/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/financial_consultant_3.png)图片来源：雅典娜设计组
 
 
+根据路透社报道，中共国务院副总理孙春兰周六强调，要从严从实开展防控工作，坚决守住不出现疫情规模性反弹底线。
+
+孙春兰在视讯会议上表示，要以口岸地区防控为重点加强外防输入，疫情较重地区要推动感染者应收尽收、密接人员应隔尽隔，彻底阻断疫情社区传播。要加强疫情监测预警，科学组织核酸和抗原检测，扩大监测范围和频次，加强学校等重点场所防控工作，继续有序推进老年人疫苗加强免疫接种。
+
+中共卫健委官员周六在联防联控机制发布会上表示，中国本土疫情还处在发展阶段，多省面临着疫情的防控局面。近期中国疫情呈现多点散发，主要流行株为奥密克戎变异株，部分省份病例数增长较快。
+
+中国国家主席习近平此前在中央政治局会议上指示，要坚持科学精准、动态清零。
+
+参考链接：[综述：中国逾一年来首现新冠死亡病例 本土疫情还处在发展阶段](https://cn.reuters.com/article/wrapup-china-covid-death-case-0321-idCNKCS2LI02K)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

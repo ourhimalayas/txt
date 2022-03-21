@@ -2,24 +2,27 @@
 ---
 
 
-## 中共内战外战大戏即将开始
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201600/)
+## 俄军密集空袭乌克兰南部造船重镇尼古拉耶夫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201604/)
 
-作者：纽约磐石农场—在远方
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月19日，郭文贵先生发布盖特视频表示，中共的内战、外战大戏即将开始。
+3月19日，国外媒体报导，乌克兰地方首长表示，俄罗斯军方当天密集空袭了乌克兰南部造船重镇尼古拉耶夫。
 
-郭先生说，世界所有的邪恶和灾难，离开虚假就不能成立。中共以假治国、以骗治国，洗脑中共国人，致使很多人不辨是非、黑白、善恶、对错，是导致中共国的大邪、大恶、大灾的根本原因。许多人甚至对香股回到35000点抱有幻想，而侥幸往往是走向灾难的开端。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-63.jpg)
-郭先生透露，其两位友人的公司，近期因世界供应链的问题及能源价格暴涨，经营难以为继。近日疫苗灾难在全世界各国，普遍引发了恐慌和大量非正常死亡事件。由于中共在背后支持俄罗斯侵略乌克兰，恐怕会导致海外排华事件发生。习近平和普京由于独裁和私欲，会绑架两国人民做他们的炮灰。中共即将对台湾的攻击，也自认为是内部事务，国际社会无权插手。
+前一天清晨，当地一座军营刚遭到致命火箭攻击，多栋建筑物倒塌。当时营房内有不到200名士兵正在熟睡，至19日已至少发现50具尸体，具体伤亡数字不明。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-66.jpg)
+乌克兰当局表示，尼古拉耶夫是黑海西北岸战略军港敖德萨的重要屏障，敖德萨位于尼古拉耶夫西方约130公里处。
 
-文明与野蛮的区别就在于是否同等尊重对待生命。文明社会制度下，无论人或动物，任何生命都应当得到尊重，伤害生命就应当受到惩罚。文明社会即使执行死刑，也会充分保障死刑犯的人格与尊严。而中共对其内部人士同样残忍。据中共内部人士透露，对孙力军、傅振华、孟建柱、和王岐山等人，将来极有可能通过注射毒针来执行死刑。
+尼古拉耶夫州长维塔利金在一段视频中证实俄军偷袭了正在熟睡中的乌克兰士兵，目前救援工作正进行中，正在等待来自乌克兰武装部队的官方信息。
 
-参考链接：[3月19号：尊敬的战友们好中共内战．外战的大戏即将开始！](https://www.gettr.com/post/p10rq15972f)
+参考链接：
+1.. [Russian troops enter central Mariupol, air strikes take place in Mykolaiv](https://www.france24.com/en/europe/20220319-live-ukraine-s-zelensky-calls-for-fresh-talks-russia-says-entered-besieged-mariupol-centre)
+2. [Dozens dead after shelling of military barracks in south Ukraine: witnesses to AFP](https://twitter.com/AFP/status/1505155059646185474?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505170089498267655%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)
+3. [rescuers and doctors trying to save a little girl who was under the rubble after a rocket attack on a military base in](https://twitter.com/nexta_tv/status/1504941548651352065?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1504941548651352065%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)[Mykolaiv](https://twitter.com/hashtag/Mykolaiv?src=hashtag_click)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：文真/飞虹
+总编/编辑/审核：飞虹
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

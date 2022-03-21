@@ -2,27 +2,28 @@
 ---
 
 
-## 视频|深度解密澎博社前线采访的险恶目的
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2201840/)
+## 拜登本周五将访问波兰
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2201956/)
 
-制作：香草山视频部
+**撰稿：日本东京方舟农场  北极**
 
-3月15日，在新中国联邦、法治基金建立的波兰梅迪卡营救中心，救援义工Nicole接待了一位不速之客——彭博社记者Aggi Cantrill。
+据Politico 3月20日报道，白宫周日晚间发表一份声明称，乔·拜登（Joe Biden）总统将于周五前往波兰，继续对俄乌战争进行外交斡旋。
 
-本来说好要对Nicole进行20分钟的采访，却在8分钟后匆匆结束。她向Nicole抛出了四个问题，Nicole也进行了热情的回应和圆满的回答，她却在离开后不久又折返回来，神情紧张地特意告知她们的总部不同意播出采访视频，反复强调千万不要将视频发布在社交媒体上，并无理地要求我方录制视频的战友将视频删除。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-12.png)拜登总统将于周三前往欧洲，然后在比利时布鲁塞尔与北约和欧盟成员国会面。（图片来自Politico）
 
-在郭文贵先生的提示下，结合采访内容，战友们深度解读了澎博社这次采访的险恶用心。
+白宫发言人沙琪（Jen Psaki）的声明指出，拜登将与波兰总统安杰伊·杜达（Andrzej Duda）举行双边会谈。拜登将讨论美国如何与北约盟国和伙伴一起应对俄罗斯入侵乌克兰造成的人道主义和人权危机。
 
-发稿：Daxia
+拜登将于本周三先前往欧洲，在比利时布鲁塞尔与北约和欧盟成员国会面，之后再前往波兰。
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+波兰与乌克兰接壤，自俄乌战争以来，逃往波兰的难民人数众多。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+第二次世界大战后，前苏联统治了波兰，直到1989年冷战结束。前苏联解体后，波兰于1999年正式加入北约。
+
+参考链接：
+[https://www.politico.com/news/2022/03/20/biden-to-visit-poland-this-week-00018792](https://www.politico.com/news/2022/03/20/biden-to-visit-poland-this-week-00018792)
+
+总编： 老孙
+校对发布：Linda
 
  
 
