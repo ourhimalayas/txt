@@ -2,33 +2,36 @@
 ---
 
 
-## 俄中将莫德维切夫被歼灭成为俄乌战争最大转折点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2204727/)
+## 【G时新闻】 乌克兰食品供应链“分崩离析”，“饥荒”风险困扰世界
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2205045/)
 
-作者：纽约香草山 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月20日，郭文贵先生在大直播中揭密，俄中将莫德维切夫被乌军歼灭，必将成为俄乌战争的最大转折点，对中共军界和经济也造成巨大打击。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-上午9.49.58.png)
-郭先生说，莫德维切夫是俄国防部长的继任人选。他是中共二炮导弹部队定期讲解员，主讲用战略导弹打卫星、打空军。他的家人会讲中文，曾在北京外语学院学习。作为普京派到俄乌战场的亲信，莫德维切夫的行踪却被一个乌克兰年轻军人发现，并将其歼灭。这件事把俄军从苏联时期积累的辉煌损失殆尽，极大地打击了俄军士气。
+主       播：加拿大温哥华扬帆农场 – 七彩虹
 
-郭先生还透露，莫德维切夫被视作普京的接班人，在习近平为中共副主席时期，曾作为普京与习近平的联络人。他被歼灭以后，普京独裁政权走向末日。此事件对中共内部以及军界打击极大。中共军队的每一个将军背后都有数个富豪家族的支持，美国强大的军事科技实力让中共的富豪家族意识到，中共的军队根本不堪一击，中共已经走向灭亡，所以很多盗国贼家族最近都在疯狂抛售或转移资产。
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-参考链接：[2022年3月20日 文贵大直播](https://gettr.com/post/p10y5j870c5)
+据《ZeroHedge》记者：Tyler Durden，2022年3月18日报道： 联合国 (UN) 世界粮食计划署 (WFP) 紧急协调员雅各布·克恩 (Jakob Kern) 警告，随着俄罗斯轰炸道路、桥梁和火车等关键基础设施，乌克兰的粮食供应链正在崩溃。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+由于不安全和司机不愿意工作，货物流动已经放缓。”克恩在波兰克拉科夫的视频会议上告诉日内瓦。 乌克兰最大数量的农产品出口物是玉米和小麦。在入侵之前，乌克兰是欧盟第二大粮食供应国，也是亚洲和非洲新兴市场的最大供应国之一。
 
-编辑：Jack Li文阳
-总编：文真
-审核：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+黑海研究公司SovEcon的估计，乌克兰2022年的玉米收成可能会从去年的4190万吨下降至今年的2770万吨，降幅高达35%。农民已经报告柴油和化肥短缺。预计小麦收成也将下降。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一些人甚至指出，该国的农作物总产量可能减半。 随着全球粮食价格处于历史最高水平，粮食计划署还担心乌克兰危机对全球粮食安全的影响，尤其是饥饿热点地区，包含埃及、印度尼西亚、孟加拉国、巴基斯坦和土耳，这些国家严重依赖乌克兰的进口。
+
+所有这些都促使联合国粮食及农业组织警告：由于乌克兰局势恶化，全球食品价格可能会从目前的水平再上涨 8-20%。进而可能导致全球营养不良和饥荒的激增。
+
+视频链接：[https://gettr.com/post/p112vn34a1c](https://gettr.com/post/p112vn34a1c)
+
+编辑/上传：蔚蓝之境
+
+————————————————————————————————————
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2399.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

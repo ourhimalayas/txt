@@ -2,33 +2,47 @@
 ---
 
 
-## International News Updates
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2206076/)
+## 中俄之间虚假的 “万年友谊” 一部战争和背叛的历史 （一）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2206123/)
 
-Contributor: evermaxim 玄鸟
-德国纽伦堡正义农场翻译部
-Himalaya Nuremberg Germany
+编译：七龙珠
 
-1.中国驻美国大使秦刚周日避免说北京不会向俄罗斯出售军事物资和武器，坚持说将与其保持 “正常 “贸易关系。
-China’s Ambassador to the United States Qin Gang avoided saying on Sunday that Beijing would not sell military supplies and weapons to Russia, but insisted China would maintain “normal” trade relations with Russia.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-21-203253.jpg)图片来源：abc.es
 
-1. 香港已经正式坚持了 “动态清零 “冠状病毒政策，与中国大陆类似，寻求在所有疫情发生时立即遏制。今年，当局实施了自2020年大流行开始以来该市最严厉的措施。然而，感染和死亡人数仍在激增.
-Hong Kong has officially adhered to a “dynamic zero” coronavirus policy, similar to mainland China, seeking to contain all outbreaks as soon as they occur. This year, authorities implemented the city’s toughest measures since the pandemic began in 2020. However, the number of infections and deaths continues to surge.
+普京要求中共国同行习近平提供军事援助以尽快结束对乌克兰的入侵，这不应误导我们，自斯大林和毛泽东时代以来，我们的过去就远非互信。
 
+中共国和俄罗斯之间的关系就像那句流行语：“打斗的人都各有利益（Los que se pelean se desean）”。周一，美国政府证实，据美国总统拜登(Joe Biden)政府的高级官员称，普京总统已要求他的中共国同行提供军事援助，以尽快完成对乌克兰的入侵，而这一入侵被证明比预期的更加困难，但中共国否认了此事。如果它是真的发生了，就历史而言，这种合作不应该会误导我们。
 
-1. 在继续对被围困的马里乌波尔市进行炮击的同时，俄罗斯要求乌克兰人在周一放下武器并升起白旗，以换取安全出城的机会。乌克兰愤怒地拒绝了这一提议，几个小时后，俄罗斯军队轰炸了一所艺术学校。乌克兰总统Zelenskyy在周一早些时候的视频讲话中说，当艺术学校遭到俄罗斯炸弹袭击时，约有400名平民正在该校避难。
-While shelling continued in the besieged city of Mariupol, Russia demanded that Ukrainians lay down their arms and raise the white flag on Monday in exchange for the chance to get out of the city safely. Ukraine angrily rejected the offer, and hours later, Russian troops bombed an art school. Ukrainian President Zelenskyy said in a video earlier Monday that about 400 civilians were taking refuge at the art school when it was hit by a Russian bomb.
+现实情况与今天他们之间号称的“友好合作伙伴关系”截然不同。中共国和俄罗斯一直是敌人，除了某些特殊情况。在整个中世纪和近代，他们只有在14世纪蒙古人的统治下才有过共同命运。
 
+在过去的一个世纪里，冲突屡见不鲜，从对西伯利亚东部的争端，到对中亚或北极地区控制权的争夺，再到冷战期间严重的边界冲突，甚至有可能引发现状被热议的第三次世界大战。
 
-4.拜登（Joe Biden）政府开放南部边境的消息，已经传到了东欧，乌克兰人已经出现在那里，并被允许在美国寻求庇护，俄罗斯人却被拒之门外。
-The word that the Joe Biden administration has opened up the southern border has reached Eastern Europe where Ukrainians have shown up and are being allowed to seek asylum in the United States. But, the Russians are being turned away.
+事实上，美国总统乔-拜登本人上周在宣布惩罚俄罗斯经济的新措施时，提到了这一点：“我们将保卫北约的每一寸领土，我们不会在乌克兰对俄罗斯发动战争。北约和俄罗斯之间的对抗将是第三次世界大战，我们必须不惜一切代价防止事件的恶化。”普京非但没有缓和紧张局势，反而在几天前宣布，他已将俄罗斯的核力量置于高度警戒状态。
 
-5.安东尼·福奇（Anthony Fauci）本周日，在美国广播公司（ABC）的”This Week”节目中表示，COVID的新变种可能令美国重新实施一些限制措施。
-Anthony Fauci said Sunday on ABC’s “This Week” that new variants of COVID could cause America to reinstitute some restrictions.
+一场血腥事件
 
-6.远东外交事务专家章家敦（Gordon Chang）在Newsmax上表示，中国的债务使其”比俄罗斯更加脆弱”！
-Far East foreign affairs expert Gordon Chang said on Newsmax that China’s debt makes it ‘More Fragile Than Russia’
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+这一点不可轻视，因为根据《原子科学家公报》最近的一份报告，俄罗斯目前有5977枚核弹头，其中1500枚有待拆除，但有4477枚可供使用。然而，这也是事实，克里姆林宫的这种威胁并不新鲜，因为过去也有过其他的威胁，正是针对中国。最严重的一次是在1969年，美国广播公司的报道认为世界即将爆炸：“中国政府派代表团到俄罗斯谈判，但随后苏联又上演了新的血腥事件，指责北京，影射它打算对苏联进行核攻击”。
+
+就像目前的乌克兰战争一样，世界战战兢兢地注视着一场新的大规模对抗的可能性，就像第二次世界大战中对亚洲和欧洲造成破坏的那种对抗。一下子，据说存在于两者之间的意识形态亲和力就会消失，就像整个20世纪的许多其他场合一样。在20世纪50年代，苏联和中共国发誓要共同捍卫社会主义，反对西方资本主义。几十年前，斯大林在中国共产党赢得内战并控制了中共国大部分地区后，成为中国共产党吹捧信奉的人物。
+
+1949年，毛泽东甚至承诺“中俄友谊万年”，后来签署了友好、联盟和互助的条约。数以千计的苏联专家帮助北京建立了坚实的基础设施。这个协议对毛泽东非常重要，他甚至亲自前往莫斯科进行谈判，这是他一生中第二次离开自己的国家。然而，斯大林对他的态度和待遇还有待改善，这位中共国领导人在苏联首都外一个荒凉的“大棚”里被凉置了数周，只有在做出诸多让步之后，斯大林才同意为他的伙伴提供资金，归还二战后占领的一些领土，并在遭到入侵时为他辩护。
+
+中共政府很快意识到，与苏联独裁者的这种“友谊”很少是免费的，因为当苏联决定干预朝鲜战争以防止共产党的失败时，俄罗斯领导人警告说，他必须为每一批提供的武器付出宗教般的代价。一场奇怪的权宜之计，而且，1953年斯大林一死就下了地狱，因为毛泽东趁机试图让中共国成为社会主义集团的新领袖。
+
+中国共产党领导人不喜欢斯大林的继任者尼基塔-赫鲁晓夫的国际政策，他开始推动与西方“和平共处”的方向，为了起带头作用，毛泽东甚至公开暗示，他将毫不畏惧地对美国这个共产主义集团的最大冷战敌人发动核战争。他接着宣布，他不承认北京和莫斯科在19世纪建立的边界。
+
+由于预期可能的入侵，苏联在1967年向其边境派遣了近30万军队。两国之间的外交关系从未恢复，特别是两年后，随着300名中共国士兵在珍宝岛对55名苏联边防军的突然袭击，两国之间爆发了冲突，大多数士兵都是在近距离被杀。1965年，莫斯科政府已经警告北京，它的边界是神圣的：“谁敢侵犯，我们就会发动最坚决的报复”。很明显，中共没有意识到或者不在乎。
+
+【接下篇：中俄之间虚假的 “万年友谊” 一部战争和背叛的历史 （二）】
+
+新闻来源：[abc.es ][Los falsos «10.000 años de amistad» entre Rusia y China: una historia llena de guerras y traiciones](https://www.abc.es/historia/abci-falsos-10000-anos-amistad-entre-rusia-y-china-historia-llena-guerras-y-traiciones-202203210013_noticia.html)
+
+* * *
+
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

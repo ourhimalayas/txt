@@ -2,77 +2,52 @@
 ---
 
 
-## 视频|泽连斯基在美国国会的演讲精要
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205887/)
+## 乌克兰战争正在“悄悄”的影响着各国大选——趋势正在反转
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2205938/)
 
-乌克兰正处于二战以来全球最严重的战争中，乌克兰人民派出了最棒的儿女来抵抗俄罗斯的全面入侵。
+#### 选材/编译：Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16478849951.png)[Source](https://oneearthfuture.org/datasets/reign)
+据综合媒体近日报道，自疫情爆发以来，病毒和疫苗真相使很多国家的大选趋势发生了变化。但随着乌克兰战争的爆发，目前临界大选国家的竞选是以乌克兰战争为主题。以法国，英国和匈牙利等国为例，那里的大选民调趋势已经随着战争的推进而反转。战争持续越久对大选的影响就越深。最终的结果是否会如同奇迹一般再次翻转？
 
-Ukraine is in the midst of the world’s worst war since World War II and the Ukrainian people have sent their best sons and daughters to resist an all-out Russian invasion.
+**法国****——****马克龙民调转低为高，勒庞被标签为****“****普京同情者****”**
 
-俄罗斯不仅侵略了我们的家园，还对我们的普世价值进行了残酷的进攻，乌克兰的命运正决定着人类的命运。
+下个月，法国将举行总统大选投票。乌克兰战争扭转和提升了法国总统伊曼纽尔·马克龙（Emmanuel Macron）的连任竞选趋势。最新民调显示，他对乌克兰局势的对应一项已经超过50%的肯定率。
 
-Russia has not only invaded our homeland, it has also launched a brutal attack on our universal values, and the fate of Ukraine is determining the fate of humanity.
+马琳·勒庞 (Marine Le Pen) 是法国右翼国民议会党的主席。她的民调曾在2021年疫情爆发后上升到超过了马克龙。但当她的一件旧事又被抖搂出来后她的民调开始下降。虽然她的民调在近几周有所回升但仍然低于马克龙。
 
-乌克兰感谢美国提供的一切压倒性支持，并需要美国的进一步支持！
+在2014 大选时勒庞曾取得了俄罗斯1220万美元贷款的帮助。此事将该党拖进了俄罗斯跨境金融的阴影，并一度影响到勒庞的政治生涯。现在对立党炒冷饭，并将她标签为“普京的同情者”。这或多或少影响了她的民调率。
 
-Ukraine is grateful for all the overwhelming support provided by the United States and needs further support from the United States!
+马克龙称自己为战争的 “仲裁人”。 战前他去莫斯科会见了普京，同时间又与泽连斯基交谈。他被认为是战争冲突中最有亮点的领导人 。他在与选民对话时，常提及的人物包括习近平，默克尔，和拜登。他懂得如何从战争中将竞选的好处最大化。
 
-珍珠港事件和911事件这样的空袭已在乌克兰持续三周了，这是80年来欧洲从未见过的恐怖。
+最新分析民调将马克龙排在最前位。马克龙为30%，勒庞17.5%，其他的低于12.5%。勒庞曾经一度是马克龙的强势对手，现在她被认为是俄罗斯的同情者。他们两者之间的民调现在相差11%。
 
-Air strikes like Pearl Harbor and 911 incident have been going on in Ukraine for three weeks now, a horror that Europe has not seen in 80 years.
+**英国****——“****只要乌克兰战争持续，约翰逊就可能连任****”**
 
-我们要求在乌克兰建立人道主义禁飞区，如这个要求太高，那就请给我们S-300这样的导弹防御系统。
+英国保守派选举专家海沃德（Hayward）勋爵表示，如果乌克兰战争仍然是头条新闻，首相鲍里斯·约翰逊（Boris Johnson) 将不会在5月的选举中受到影响。普京入侵前，他麻烦不断丑闻缠身，地方选举可能赶他下台。但现在保守党和鲍里斯的民调“正在改善”。
 
-We demand a humanitarian no-fly zone in Ukraine, and if that is too much to ask, then please give us a missile defence system like the S-300.
+海沃德说，如果乌克兰战争继续，选民们会觉得高生活成本是为民主付出的代价。因此他们不会责怪政府。但是如果较快地结束，人们将重新集中于生活成本等问题。乌克兰难民危机目前不太可能影响地方选举的结果。战争中的表现，是评价约翰逊的主因。约翰逊会在“战争影响”下表现得更好。自战争开始以来，保守党的民调明显上升。
 
-“我有一个需要！”正如你们曾经的“我有一个梦想”那么真挚而热切，我们需要强大的战机来保护乌克兰的人民和土地！
+**匈牙利****——****支持乌克兰的反对党被称为**** “****战争贩子****” ****而落后民调**
 
-“I have a need!” As true and fervent as you once said “I have a dream”, we need powerful warplanes to protect the people and land of Ukraine!
+匈牙利的竞选呈现另外一种趋势。执政党总理维克托·奥尔班（Viktor Orbán）和他的对手，六党联盟候选人彼得·马基·扎伊（Peter Marki Zay）双方调整了竞选重点，以反映乌克兰战争。
 
-现在是乌克兰乃至整个欧洲最黑暗的时刻，呼吁美国出台更多的制裁措施，
+奥尔班是普京最亲密的欧盟盟友。所以布达佩斯继续避免疏远克里姆林宫。奥尔班坚称匈牙利既不会减少对俄罗斯能源的依赖，也不会允许送往乌克兰的武器过境。这种模棱两可的态度受到了国际的上指责。
 
-This is the darkest time for Ukraine and indeed all of Europe, we call on the US to introduce more sanctions,
+乌克兰战争在媒体中的主导地位，打乱了六党联盟针对欧奥尔班建立的腐败网络策略。它转而提出了主题为，“匈牙利应该向东还是向西” 的全民公投。从而提醒选民，奥尔班12年来对被称为 “战争罪犯” 普京的求爱。
 
-和平比利益更重要，建议美国制裁俄罗斯的所有政客，美国公司立即离开俄罗斯市场，美国港口对俄罗斯关闭，
+作为对应，奥尔班告诉游行人群，“匈牙利必须远离战争，我们无法进入乌克兰铁砧和俄罗斯铁锤之间”。因此，奥尔班被称为匈牙利和平与稳定的保证。另一边，因为呼吁对乌克兰表现出更大的支持，六党联盟被认为是危险的战争贩子。在大批媒体的帮助下，执政党的策略开始获得支持。
 
-peace is more important than profit, we propose that the US sanctions all Russian politicians, that US companies leave the Russian market immediately, and US ports be closed to Russia,
+德国的司法基金会研究员丹尼尔·黑格德斯（Daniel Hegedus）说：“匈牙利人对卷入冲突的恐惧，似乎比对普京侵略的愤怒要强烈得多”。
 
-由负责任的国家组成U24 和平联盟来立即停止这场战争，以迅速拯救生命和这个世界！
+奥尔班说，他拒绝与普京决裂的主要原因是该国严重依赖俄罗斯能源。匈牙利家庭决不能因为水电费上涨而被迫“付出战争的代价”。在乌克兰战争中，他的政治技巧和适应性，得到了充分展示。他只需要让船再稳定几周就能获胜。
 
-and that the responsible nations form the U24 peace coalition to stop this war immediately in order to save lives and this world quickly!
+此外，前不久结束的印度和南韩的大选结果都深深的被乌克兰战争所影响。莫迪的亲俄罗斯政策得到了多数印度选民的支持。未来一些国家如何选出 “战时总统” 将会很有趣。
 
-今天，乌克兰人民不仅是在保家卫国，也是在为世界的普世价值而战，为人类的未来而战。
+在郭文贵先生2月25日的大直播中，他谈到疫情和疫苗与乌克兰战争的关系。从一些国家的大选结果和竞选趋势可以清晰的看到那种连带关系。
 
-Today, the Ukrainian people are not only defending their country, they are also fighting for the universal values of the world and for the future of humanity.
+*责编：白夜*
 
-你国的和平不再取决于你自己，而取决于你旁边的国家。
-
-The peace of your country no longer depends on yourself, but on the country next to you.
-
-拜登总统是伟大美国的领导人，希望你能成为世界的领导人，成为维护世界和平的领导人，美国需要在历史上留下公正！
-
-President Biden is the leader of a great America and hopefully you will be the leader of the world and the leader who keeps the peace in the world, America needs to leave justice in history!
-
-作为伟大乌克兰人的领导人，如不能阻止乌克兰人死于这场战争，我的生命将毫无意义！
-
-As the leader of the great Ukrainians, my life would be meaningless if I could not prevent Ukrainians from dying in this war!
-
-荣耀归于乌克兰！
-
-Glory be to Ukraine!
-
-【盖文】：我们跟乌克兰人站在一起！美国历史上迄今只邀请过三个外国人到其国会发表演讲，一个是丘吉尔，一个是宋美龄，第三个就是现在的乌克兰总统泽连斯基！2022年3月16日泽连斯基在美国国会的演讲，将俄罗斯入侵乌克兰比作美国人永远挥之不去的伤痛“珍珠港”和“911”事件，强调自己的使命就是阻止乌克兰人民死于这场战争！
-
-【GETTR】：We stand with the Ukrainians! Only three foreigners have been invited to address the United States Congress so far in its history: Churchill, Song Mei-ling and now Ukrainian President Zelensky! “Zelensky’s speech to the US Congress on March 16, 2022, compared the Russian invasion of Ukraine to the American wounds of Pearl Harbor and 911, and stressed that his mission was to prevent the Ukrainian people from dying in this war!
-
-
-
-【撰稿】：香草山信息部 6zero4
-
-【翻译】香草山翻译部–文岄679
-【翻译】香草山视频部–Jesse(文博)
-
-发布：奇门遁甲
+Source：[1](https://www.aljazeera.com/news/2022/3/17/russias-war-in-ukraine-dominates-hungarys-election-campaign) [2](https://inews.co.uk/news/politics/saved-by-putin-ukraine-war-help-boris-johnson-local-elections-1521238) [3](https://www.wionews.com/videos/gravitas-how-ukraine-war-boosted-macrons-re-election-campaign-463622)
 
  
 
