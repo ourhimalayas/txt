@@ -2,20 +2,26 @@
 ---
 
 
-## 人类未来的去中心化货币叫做躺平币
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2203584/)
+## 喜币未来将会超越瑞士银行
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2203648/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/blockchain.jpg)
-3月20日大直播中郭先生与战友分享未来会有一个真正的去中心化货币，就是躺平币。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-18.48.36.png)
+3月20日大直播中郭先生与战友分享喜币未来会超越人类目前财富大鳄瑞士银行等金融机构。
 
-随着区块链加密技术的逐渐成熟，交易成本会越来越低。目前第二代技术的交易成本是300-3000美金，马上到来的第三代成本为0.3美金，第三代之后的交易成本仅为0.3分。从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付来购买任何所需。另外转账功能也不会受到任何限制，安全加密无人监管。
+瑞士银行多年来都是犯罪分子洗钱贪污藏匿黑钱的最佳选择，正因为此，瑞士银行几乎囊括了全人类里邪恶独裁笼络平民老百姓的所有财富，如中国共产党、俄罗斯、北朝鲜、伊朗、伊拉克、中东等国。
 
-目前世界上的法币大多数是分地域的，被国家和组织垄断并强制人们使用的工具，定价权被牢牢掌控在权力手中。法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。而躺平币作为真正去中心化的货币，回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，因为使用即是价值。
+瑞士银行从来不为好人开门，也拒绝提供任何数据。郭先生对UBS的案子上诉成功，昭示着这些犯罪财务数据必将公诸于世。这是自二战以来，美国一直想要做但无法做到的。这是天道轮回，一个只帮坏人的机构不可能再存续下去，再加上中共习近平上台以后的疯狂举动，瑞士银行也已经看到共产党时日无多，且人类必将走向的是数字货币时代。区块链的存在必然使得财富一定要合法，且不可能大量聚集在某几个家族之中。只要是人的钱，都应该得到安全。瑞士银行，包括卢森堡，这些专为坏人藏匿和保密财富，将好人拒之门外的金融机构，已经失去了存在的意义。
 
-撰稿、发布：骄子
+喜币未来一定会超越瑞士银行等金融机构，因为它为每个人的财富安全保密，有最严格的用户KYC制度，使得好人的钱能安全，坏人的钱进不来。这和瑞士银行是最本质的区别。数字货币时代的到来，让一切黑暗都必须遵循法律和公平的原则，不愿遵守，就只能消失。
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
-欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+- 欢迎订阅我们的G-News账号：
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
 
 * * *
 

@@ -2,27 +2,19 @@
 ---
 
 
-## 中（共）国东方航空一波音737客机坠毁 机上共132人
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2203571/)
+## 中共、伪类对七哥的栽赃陷害、污名化一定会遭报应（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203625/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+#### PPT制作: 0-0 ；rmrf
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：05-11：10-001.jpg)
+*发布：*tianzhihuan
 
-3月21日，中国东方航空一架搭载132人的波音737客机在广西梧州藤县发生事故，并引发山火。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-27.jpg)（图片来自网络）
-
-据中（共）国民航局消息，中国东方航空一架波音737客机在执行昆明——广州航班任务时，于梧州上空失联，坠毁，并引发山火。
-
-据了解，机上人员共132人，其中旅客123人。目前救援队伍已集结出发，伤亡状况仍未明。
-
-对此，有网友评论，估计是飞行员接种的新冠疫苗产生的副作用导致了这场悲剧。疫苗灾难正在发生。
-
-参考链接：
-1.[https://www.gettr.com/post/p11325x261f](https://www.gettr.com/post/p11325x261f)
-2.[https://www.gettr.com/post/p112j8ubb19](https://www.gettr.com/post/p112j8ubb19)
-
-总编：老孙
-校对发布：Linda
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

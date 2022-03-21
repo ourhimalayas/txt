@@ -15,94 +15,94 @@
 
 ---
 
-### [华人应该抛弃假丑恶，明辨是非善恶做个真正的人（二）](/content/gnews/1/README.md)
+### [中共、伪类对七哥的栽赃陷害、污名化一定会遭报应（三）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [人类未来的去中心化货币叫做躺平币](/content/gnews/2/README.md)
+### [喜币未来将会超越瑞士银行](/content/gnews/2/README.md)
  ` 银河歌舞厅`
 
-### [华人应该抛弃假丑恶，明辨是非善恶做个真正的人（一）](/content/gnews/3/README.md)
+### [中共、伪类对七哥的栽赃陷害、污名化一定会遭报应（二）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [中（共）国东方航空一波音737客机坠毁 机上共132人](/content/gnews/4/README.md)
- ` 日本東京方舟農場`
-
-### [歌曲感想（四）](/content/gnews/5/README.md)
+### [中共、伪类对七哥的栽赃陷害、污名化一定会遭报应（一）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [歌曲感想（三）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [有声｜中共称房价稳定 开发商看到的是另一景象](/content/gnews/7/README.md)
+### [有声｜两名俄官员证实：黑海舰队副司令战死](/content/gnews/5/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线 : 香港高死亡率是单纯奥米炕病毒爆发?](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [樱花时政┃秦刚在美电台受访“打官腔” 引发严重质疑](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [歌曲感想（二）](/content/gnews/10/README.md)
+### [华人应该抛弃假丑恶，明辨是非善恶做个真正的人（四）](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [波兰军队准备好了帮助乌克兰](/content/gnews/11/README.md)
+### [联合国：战火夺走乌克兰902平民性命 1000万人远离家园](/content/gnews/7/README.md)
+ ` 蓝莲花农场`
+
+### [华人应该抛弃假丑恶，明辨是非善恶做个真正的人（三）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [比特币去中心化骗局](/content/gnews/9/README.md)
+ ` 银河歌舞厅`
+
+### [华人应该抛弃假丑恶，明辨是非善恶做个真正的人（二）](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [有声｜美印太司令部：中共将南海至少三个人工岛完全军事化](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [人类未来的去中心化货币叫做躺平币](/content/gnews/12/README.md)
+ ` 银河歌舞厅`
+
+### [中（共）国东方航空一波音737客机坠毁 机上共132人](/content/gnews/13/README.md)
  ` 日本東京方舟農場`
 
-### [中国｜疫情失控人人自危 上海一医院拟改建方舱 护士集体罢工抗议](/content/gnews/12/README.md)
+### [有声｜中共称房价稳定 开发商看到的是另一景象](/content/gnews/14/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [秘翻在线 : 香港高死亡率是单纯奥米炕病毒爆发?](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [波兰军队准备好了帮助乌克兰](/content/gnews/16/README.md)
+ ` 日本東京方舟農場`
+
+### [中国｜疫情失控人人自危 上海一医院拟改建方舱 护士集体罢工抗议](/content/gnews/17/README.md)
  ` 關注組`
 
-### [泽连斯基谴责轰炸是恐怖行为，呼吁普京直接谈判](/content/gnews/13/README.md)
+### [泽连斯基谴责轰炸是恐怖行为，呼吁普京直接谈判](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜河北轿车从后方高速冲向人群 人被撞飞致死伤](/content/gnews/14/README.md)
+### [有声｜河北轿车从后方高速冲向人群 人被撞飞致死伤](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻新闻｜美中开干之前 中共媒体将被制裁](/content/gnews/15/README.md)
+### [秘翻新闻｜美中开干之前 中共媒体将被制裁](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共国航空业受疫情重创 今年前两月亏损超200亿](/content/gnews/16/README.md)
+### [中共国航空业受疫情重创 今年前两月亏损超200亿](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [视频|新闻评述：东航飞机失事印证疫苗灾难已悄然而至](/content/gnews/17/README.md)
+### [视频|新闻评述：东航飞机失事印证疫苗灾难已悄然而至](/content/gnews/22/README.md)
  ` KarmaLabs`
 
-### [2022/03/19 疫苗受害者很难向VAERS提交报告](/content/gnews/18/README.md)
+### [2022/03/19 疫苗受害者很难向VAERS提交报告](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [东航133人客机失事](/content/gnews/19/README.md)
+### [东航133人客机失事](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃中共的驻美大使被问得语无伦次](/content/gnews/20/README.md)
+### [樱花时政┃中共的驻美大使被问得语无伦次](/content/gnews/25/README.md)
  ` 樱花FM`
 
-### [樱花FM|樱花时政:多名记者在乌克兰战争中遇难](/content/gnews/21/README.md)
- ` 樱花FM`
-
-### [2022/03/19 英国家庭接受乌克兰难民](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：中共承认最初的新冠感染人数被严重低估，奥米炕死亡率小于流感](/content/gnews/23/README.md)
+### [秘翻在线：中共承认最初的新冠感染人数被严重低估，奥米炕死亡率小于流感](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗暴政！迄今为止，美国陆军拒绝了约99%的疫苗豁免申请](/content/gnews/24/README.md)
+### [疫苗暴政！迄今为止，美国陆军拒绝了约99%的疫苗豁免申请](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [消灭中共是维护人权的需要](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [欧盟：考虑禁运俄罗斯的石油运输 拜登将参加会谈](/content/gnews/26/README.md)
+### [欧盟：考虑禁运俄罗斯的石油运输 拜登将参加会谈](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [北京医院暂停门诊和急诊](/content/gnews/27/README.md)
+### [北京医院暂停门诊和急诊](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [泽连斯基对以色列国会发表谈话，呼吁以色列协助乌克兰](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [全球债券基金连续出现资金外流](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [泽连斯基喊话俄方：“该坐下来谈谈了。”](/content/gnews/30/README.md)
+### [全球债券基金连续出现资金外流](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [2022/03/21英喜时事速递](/content/gnews/31/README.md)

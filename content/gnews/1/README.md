@@ -2,12 +2,12 @@
 ---
 
 
-## 华人应该抛弃假丑恶，明辨是非善恶做个真正的人（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203590/)
+## 中共、伪类对七哥的栽赃陷害、污名化一定会遭报应（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203649/)
 
-#### PPT制作: Qingjing ；玉米地的
-视频定位：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：00-11：05-002.jpg)
+#### PPT制作: 0-0 ；rmrf
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：05-11：10-003.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
