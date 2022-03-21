@@ -2,8 +2,8 @@
 ---
 
 
-## 20220320郭文贵大直播 ：令文贵先生焦心的三件事
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2204516/)
+## 20220320郭文贵大直播 ：海外欺民贼一定会受到惩罚的
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2204549/)
 
 作者：东京樱花团小视频组
 
