@@ -2,59 +2,69 @@
 ---
 
 
-## 马斯克的星链服务已在乌克兰战场广泛使用
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2200492/)
+## 参议员罗恩·约翰逊:蝠奇应对 中共病毒的惨败,让我们的孩子在过去两年来一直生活在恐惧中
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2201503/)
 
-#### 【雅典娜观察】和您一起洞察世界
-
-整理：gardeniahu
-编辑：文泓
+参议员罗恩·约翰逊： 由于安东尼·福奇和他对 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 应对措施的惨败，我们的孩子在过去两年来一直生活在恐惧中。 我完全准备追究福奇和新冠 COVID 团伙的责任。 【附约翰逊议员接受福克斯新闻采访视频】
 
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+> Our children have lived in a state of fear for the past two years thanks to Anthony Fauci and his miserable failure of a response to COVID-19. 
+> 
+> I fully intend to hold Fauci and the COVID cartel accountable. [pic.twitter.com/0EhO4YzFXj](https://t.co/0EhO4YzFXj)
+> — Senator Ron Johnson (@SenRonJohnson) [March 20, 2022](https://twitter.com/SenRonJohnson/status/1505644849206280198?ref_src=twsrc%5Etfw)
 
 
 
+参议员瑞克.斯科特： 美国人希望看到国会真正面对 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 构成的威胁。 可悲的是，参议员舒默[@SenSchumer](https://gettr.com/user/SenSchumer) 的《竞争法》并没有真正遏制中国共产党。 【转斯科特前一天的推文：你希望看到国会采取什么措施来追究 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 的责任？】 参议员瑞克.斯科特： （接上面推文）这是其中的实际内容（指《竞争法》）： – 将美国纳入巴黎气候协定 – 80亿美元用于联合国绿色气候基金 – 为北京气候变化提供资金 – 500 万美元用于在美国国家科学基金会推广批判种族理论 – 为我们的国债增加了2500 亿美元
 
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/12-33.png)图片来源：Task & Purpose 雅典娜设计组
+> Americans want to see Congress actually confront the threat Communist China poses. Sadly, [@SenSchumer](https://twitter.com/SenSchumer?ref_src=twsrc%5Etfw)’s COMPETES Act does nothing to actually curb the Chinese Communist Party. (1/2) [https://t.co/yYBFlfFK5L](https://t.co/yYBFlfFK5L)
+> — Rick Scott (@SenRickScott) [March 20, 2022](https://twitter.com/SenRickScott/status/1505619416637227015?ref_src=twsrc%5Etfw)
 
 
 
+比尔.格茨： （《美国对话》）就乌克兰、俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对我的采访 【附美国对话主持人克里斯汀·多兰 (Christine Dolan) 和 托德·伍德 (L Todd Wood) 与《华盛顿时报》国家安全专栏作家比尔·格茨就俄罗斯、乌克兰和中国进行了访谈 此采访是一个名为“记者在哪里？”系列的一部分 （附专访视频）】
 
-在2月24日俄罗斯发起入侵乌克兰，乌克兰副总理费多罗夫在推特上请求埃隆·马斯克以星链（Starlink）卫星站来协助乌克兰。马斯克迅速回应，并在推文写道“星链服务现在已在乌克兰启用，后续还会提供更多终端设备”。
 
-在乌克兰启动星链服务后的48小时内，运载卫星接收器等星链终端设备的卡车抵达当地，还有提供能让它们透过连接车用充电装置或电池组供电的转接器，以及行动“漫游”功能。
 
-星链的应用程式（App）乌克兰境内超过10万民众在使用，对军方的用处也愈来愈明显。
+> My interview on Ukraine, Russia, and China [https://t.co/vrKY9Gfnms](https://t.co/vrKY9Gfnms)
+> — Bill Gertz (@BillGertz) [March 20, 2022](https://twitter.com/BillGertz/status/1505589977136181250?ref_src=twsrc%5Etfw)
 
-据英国《每日电讯报》报导，乌克兰军队行动中，有个名为Aerorozvidka（空中侦察）的先锋部队正利用监视技术和攻击无人机锁定俄军战车和阵地，一举制胜。
 
-如果乌克兰的网路大规模崩溃，乌军Aerorozvidka“无人机战士”仍然可以透过星链行动终端设备发送讯号与他们的基地联系，并使用波兰等邻国的地面站。
 
-而乌方也利用PD-1，一款翼展10英尺（约3米）、配备红外线感测器的无人飞行载具，来搜集有关俄罗斯军队调动的讯息。
+众议员帕特·法伦： 我很自豪能与东欧的同事一起聆听故事并亲身了解情况。 我们必须继续为这些国家提供必要的援助来对抗俄罗斯。
 
-乌克兰无人机部队运用的是一种称为Delta的精密系统。此系统是近年来在西方顾问的协助下打造，可以从基本的笔记型电脑登入使用，且含有可建立互动式地图的“状况认知”（situational awareness）软体，结合来自无人机、卫星、感应器和人工智慧（AI）的影像，借此追踪敌人。
 
-这项乌克兰系统受益于西方国家提供的设备，包括取代苏联时代技术的无线电通讯，且美国还投入了数以百万计美元以防俄罗斯骇客攻击、拦截讯号或企图“欺骗式干扰”全球卫星定位系统（GPS）技术。
 
-每日电讯报指出，如今在俄军试图追踪下，乌克兰的无人机队面临愈来愈多的危险，必须经常移动。
+> I’m proud to be with my colleagues in Eastern Europe hearing stories and learning first hand about the situation.
+> 
+> We must continue providing these countries with the necessary aid to combat Russia. [pic.twitter.com/sLaszopZhV](https://t.co/sLaszopZhV)
+> — Rep. Pat Fallon (@RepPatFallon) [March 20, 2022](https://twitter.com/RepPatFallon/status/1505545098800635906?ref_src=twsrc%5Etfw)
 
-马斯克本月初曾警告，星链卫星网路终端设备很有可能成为俄军攻击目标。
 
-参考链接：[马斯克星链协助 乌军无人机攻击俄军制胜](https://www.epochtimes.com/gb/22/3/20/n13659605.htm)
 
-*发布：tianzhihuan*
+众议员兰斯·古登： 蝠奇博士需要阅读约翰·霍普金斯大学的研究，该研究得出结论，封锁根本没用。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
+> Dr. Fauci needs to read the Johns Hopkins study which concluded lockdowns didn't work.
+> — Lance Gooden (@Lancegooden) [March 20, 2022](https://twitter.com/Lancegooden/status/1505678664259850249?ref_src=twsrc%5Etfw)
+
+
+
+众议院共和党： 拜登总统不应该用伊朗、沙特阿拉伯或委内瑞拉的石油取代俄罗斯的石油。 相反，拜登总统应该释放美国的能源主导地位。 能源安全就是国家安全。
+
+
+
+> President Biden should not be replacing oil from Russia with oil from Iran, Saudi Arabia, or Venezuela.
+> 
+> Instead, President Biden should unleash American energy dominance.
+> 
+> Energy security is national security.
+> — House Republicans (@HouseGOP) [March 21, 2022](https://twitter.com/HouseGOP/status/1505715061712736257?ref_src=twsrc%5Etfw)
+
 
 
  

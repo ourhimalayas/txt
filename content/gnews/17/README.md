@@ -2,37 +2,24 @@
 ---
 
 
-## 美防长：俄军动用超高音速飞弹不会“改变游戏规则”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203861/)
+## 泽连斯基与以色列议会连线时将俄罗斯比作希特勒
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2204086/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 编译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-21-alle-12.05.12.png)图片来源：open.online
+泽连斯基与以色列议会连线，在连线中泽连科说：“成千上万的乌克兰人在逃亡，而大量留在国内的人却无家可归。乌克兰人逃离到世界各地寻找安全，就像当初犹太人逃离纳粹一样。俄罗斯发动的是一场真正的大规模的战争，其目的是摧毁我们的生命、我们的孩子和我们的家庭。”泽连斯基这一席话通过竖在特拉维夫广场上的巨大屏幕传给了以色列民众。泽连斯基在演讲中直截了当地切入主题。“ 我们向国际社会求援。为什么我们不该接受援助？你们为什么无动于衷？为什么不制裁俄罗斯？为什么没有给我们运送武器？乌克兰80年前救了以色列人。”
 
-整理/编辑：文泓
+以色列总理贝内特一直在俄乌之间扮演者中间人的角色。泽连斯基曾说过：“以色列是唯一能够谈判的民主国家。”并还建议停火对话在耶路撒冷举行，但莫斯科对泽连斯基向所谓的中立地区的演讲并不持欢迎态度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/23-4.png)图片来源： 雅典娜设计组
+以色列在俄乌战争刚开始时，态度较为暧昧，只是谴责俄罗斯对乌克兰的入侵并指出战争不能解决冲突，并愿向乌克兰提供人道帮助；但以色列一直尽量避免与莫斯科发生冲突，特别是避免与其在叙利亚发生矛盾，这跟俄罗斯在叙利亚有大量的驻军有直接关系。
 
+参考链接：
 
-近日，美国国防部长奥斯汀已表示，俄罗斯为重振在乌克兰的作战气势，不惜动用超高音速导弹，但事实上这种下一代武器并不会在乌克兰“改变游戏规则”。
+[https://www.liberoquotidiano.it/news/esteri/30896617/ucraina-notizie-diretta-guerra-20-marzo.html](https://www.liberoquotidiano.it/news/esteri/30896617/ucraina-notizie-diretta-guerra-20-marzo.html)
 
-据法新社报导，莫斯科稍早宣布在乌克兰发射2枚超高音速导弹。对此奥斯汀作出回应，他不会“确认或质疑”俄军是否使用此类武器，同时发出警告，俄罗斯总统普京正改变入侵行动战略，包括瞄准平民发动攻击。
+[https://www.repubblica.it/esteri/2022/02/24/news/crisi\_ucraina\_russia\_israele\_condanna\_invasione\_guerra-339108382/](https://www.repubblica.it/esteri/2022/02/24/news/crisi_ucraina_russia_israele_condanna_invasione_guerra-339108382/)
 
-俄方不惜动用下一代武器，显示该国迫使乌克兰放弃与西方建立紧密关系的努力急剧升级。不过，奥斯汀告诉媒体：“我不认为它（超高音速导弹）会改变（战场）游戏规则。”
-
-奥斯汀说：“我认为他（普京）使用这类型武器的原因，是要试图重振俄军气势，而且我们再度看到他公然攻击城镇和平民，预期这种情况将持续发生。”
-
-奥斯汀上周访问欧洲，以加强北大西洋公约组织（NATO）的团结，并针对北约防卫的东翼进行强化。
-
-先前消息指，莫斯科正招募数千名叙利亚军队人员和盟军民兵战士，以加入乌克兰战局。对此奥斯汀指出：“我们从许多消息来源获悉，俄方确实在这样做，但据我所知，我们还没看到雇佣军出现在战场上。”
-
-参考链接：**[美防长：俄军动用超高音速飞弹不会“改变游戏规则”](https://cn.theaustralian.com.au/2022/03/21/64805/)**
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[https://www.open.online/2022/03/20/ucraina-zelensky-parlamento-israele/](https://www.open.online/2022/03/20/ucraina-zelensky-parlamento-israele/)
 
  
 

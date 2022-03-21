@@ -2,45 +2,60 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203897/)
+## 《新中国联邦乌克兰救援歌》
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2204096/)
 
-整理：枳实
-美工：精灵蓝
+作词/演唱/MV：七里香 7 Miles
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-136.png)图片来源：雅典娜设计组
+新中国联邦，驰援战场
+The New Federal State of China (NFSC) is providing emergency aid at the battlefield
 
+救助乌克兰，免费航班
+Rescue the people from Ukraine by offering flights for free
 
-雅典娜疫情更新（2022年 3月21日）
+食物和毛毯，帐篷里取暖
+Give away food and blankets. Set up tents to keep you warm
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+驱走战争带来的苦寒
+Dispel the pain and cold brought by the war
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9P5FHSK4SBI@SER3SBZS.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-248.png)
-[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月21日改进.pdf)
+近百名孩子，已安全转移
+Nearly 100 kids were evacuated safely
 
-数据来源：
+悉心地照顾无数妇孺
+We’re taking good care of countless women and children
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+不管你是谁，只要是人类
+We don’t care who you are
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+就在我们拯救的范围
+as long as you are a human, we will lend you a helping hand
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+万恶的共匪，胡作非为
+The wicked CCP is messing things up
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+谎言满天飞，造谣作祟
+The CCP spreads lies everywhere, making rumors and trouble
 
-[covidlive.com.au](https://covidlive.com.au/)
+不拯救同胞，却背后捅刀
+Instead of saving the Chinese people, the CCP is sabotaging our rescue
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+中国人不被中共代表
+The CCP doesn’t represent the Chinese people
 
-发布：tianzhihuan
+新中国联邦，你就是阳光
+NFSC, you are the sunshine
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+天使般战友，带来希望
+Fellow fighters are angels bringing us hope
+
+沉睡的同胞，请快快醒来
+To our fellow Chinese still sleeping, as long as you wake up
+
+救援之门就向你敞开
+you will be saved
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
