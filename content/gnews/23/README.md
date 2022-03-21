@@ -2,37 +2,28 @@
 ---
 
 
-## 澳禁止向俄罗斯出口氧化铝，并增加对乌克兰的援助
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2202547/)
+## 联合国称俄罗斯的军事入侵造成上千万乌克兰人逃离家园
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2202589/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：彩虹
 
-**翻译：**w3
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/03/alumineviye_rudy_200322.jpg)图片来源：azernews.az
-2022年3月20日，澳大利亚扩大了对俄罗斯的制裁，禁止所有氧化铝和铝土矿对俄罗斯的出口，以限制莫斯科的铝生产能力。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-13.jpg)图片来源：以色列时报
+据《国会山报》3月20日报道，周日，联合国难民事务高级专员格兰迪（Filippo Grandi）表示，由于俄罗斯对乌克兰的入侵，目前已有1000万乌克兰人逃离了他们的家园，他们要么在国内流离失所，要么成为海外难民。
 
-澳大利亚政府表示，“俄罗斯近20%的氧化铝需求依赖于澳大利亚”，此举将影响俄罗斯的铝生产，而铝是俄罗斯的关键出口产品。
+格兰迪在一条推文中说，“在世界任何地方，发动战争的人的罪行之一，就是对被迫逃离家园的平民造成的痛苦。”
 
-就在几天前，堪培拉制裁了俄罗斯寡头奥列格·杰里帕斯卡（Oleg Deripaska），杰里帕斯卡拥有昆士兰氧化铝有限公司的股份，这是俄罗斯铝业公司Rusal和矿业巨头力拓的合资企业，后者也承诺切断所有与俄罗斯的商业关系。
+而在周五早些时候的一条推文中，他说：“人民继续逃离（家园），因为他们害怕炸弹、空袭和不分青红皂白的破坏”。
 
-澳大利亚总理斯科特·莫里森表示，他的政府正在与合作伙伴一起合作，以“对普京政权造成最大（战争）成本，给其撤出乌克兰施加最大压力”。
+联合国难民机构称，自俄罗斯入侵乌克兰三周多以来，已有300多万难民离开了乌克兰。其中190多万难民去了波兰，其他人则逃往罗马尼亚、摩尔多瓦、匈牙利和斯洛伐克。
 
-莫里森说，自入侵开始以来，澳大利亚已经对俄罗斯个人和机构实施了476次制裁。他还宣布，应乌克兰的请求，澳大利亚将向这个被围困的国家捐赠7万吨热煤。莫里森称：“我们知道它可以为多达100万户家庭供电。”
+周日，乌克兰副总理韦列舒克（Iryna Vereshchuk）表示，将开放七条人道主义走廊，为平民提供离开前线地区的安全通道，包括被围困在马里乌波尔（Mariupol）的人。
 
-此外，澳大利亚将增加3000万澳元（2230万美元）的人道主义援助，并将再向乌克兰捐赠2100万澳元（1560万美元）的防御性军事援助，包括弹药和防弹衣。
+官员们说，已经有超过10万人从乌克兰的城市撤离。但文章指出，在一些城市，俄罗斯的炮击阻止或减缓了平民疏散的进度。
 
-莫里森说，澳洲政府最近几周向因俄乌战争而流离失所的乌克兰人批准了近5000份签证。他宣布，乌克兰难民将有资格获得新的三年的人道主义签证，使他们能够工作、学习和使用该国的卫生系统。
+**新闻来源**
 
-*发布：翼族*
-
-原文链接：[Australia bans alumina exports to Russia, steps up Ukraine aid](https://www.aljazeera.com/news/2022/3/20/australia-bans-alumina-exports-to-russia-steps-up-ukraine-aid)
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[10 million Ukrainians have fled homes since war began: UN](https://thehill.com/policy/international/598972-10-million-ukrainians-have-fled-homes-since-war-began-un)
 
  
 
