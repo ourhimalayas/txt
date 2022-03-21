@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 11:57 AM (UTC)`
+
+【MV】“NFSC Sunshine” 《新中国联邦乌克兰救援歌》<br/><br/>作词/演唱/MV：七里香 7 Miles<br/><br/>新中国联邦，驰援战场<br/>The New Federal State of China (NFSC) is providing emergency aid at the battlefield<br/> <br/>救助乌克兰，免费航班<br/>Rescue the people from Ukraine by offering flights for free<br/> <br/>食物和毛毯，帐篷里取暖                     <br/>Give away food and blankets. Set up tents to keep you warm<br/> <br/>驱走战争带来的苦寒<br/>Dispel the pain and cold brought by the war<br/> <br/>近百名孩子，已安全转移             <br/>Nearly 100 kids were evacuated safely<br/> <br/>悉心地照顾无数妇孺<br/>We’re taking good care of countless women and children<br/> <br/>不管你是谁，只要是人类<br/>We don’t care who you are<br/> <br/>就在我们拯救的范围<br/>as long as you are a human, we will lend you a helping hand<br/> <br/>万恶的共匪，胡作非为<br/>The wicked CCP is messing things up<br/> <br/>谎言满天飞，造谣作祟<br/>The CCP spreads lies everywhere, making rumors and trouble<br/> …………<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/21/11/48c93c6a-6a29-b78e-43e6-53392bcde28f/out.jpg)
+
+---
+
 `@miles 3/21/2022 10:45 AM (UTC)`
 
 【Ukraine Rescue】03/19/2022 In Nicole’s interview with the biggest YouTube channel in Lithuania- Liberty TV, the Lithuanian journalists show their support for Taiwan and their will of going against CCP. They also claim it’s great to see people from NFSC in the rescue which shows CCP do not represent all Chinese people. Meanwhile, they learn about the rescue operations of the NFSC, the tents and the facilities inside.<br/><br/>【乌克兰救援】03/19/2022 妮可接受立陶宛最大Youtube频道自由卫视采访，他们反对中共，支持台湾，并表示新中国联邦人的出现说明了中共无法代表所有中国人。他们仔细询问了法治基金新中国联邦的救援活动并参观和拍摄了大帐篷里面的情况和设施。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -149,13 +156,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 3/20/2022 Miles Guo: Who took out Lieutenant General Andrey Mordvichev? What does his death mean? Putin sending his good buddy Mordvichev to the battlefield implies that Putin has reached an extremely poor situation in the Russia-Ukraine war.<br/><br/>3/20/2022 文贵直播：莫德韦切夫中将是被谁干掉的？莫德韦切夫之死意味着什么？普京派他的好兄弟莫德韦切夫上战场意味着他在俄乌战争中已打到了穷困潦倒的境地<br/>
 ![img](https://media.gettr.com/group3/getter/2022/03/20/22/8d1b90fc-0f31-81b3-1d65-1b0b9fcd711f/out.jpg)
-
----
-
-`@miles 3/20/2022 10:05 PM (UTC)`
-
-3/20/2022 Miles Guo: Let’s say there are two options. You become a billionaire, but you will have to work with the CCP. Or you keep working to take down the CCP, but you will lose everything or even be thrown into jail. The CCP’s pawns overseas will certainly choose to work with the CCP without hesitation. The New Federal State of China does not tolerate any bureaucracy or formalism. We must adhere to the notion that only the truth prevails.<br/><br/>3/20/2022 文贵直播：如果给你一个选择，当亿万富翁但要和共产党合作，还是继续灭共但会失掉一切或进监狱？海外欺民贼一定决绝选择和中共合作；新中国联邦不能有任何官僚形式主义，必须坚持唯真不破<br/>
-![img](https://media.gettr.com/group4/getter/2022/03/20/22/69c20315-ec53-de27-ea82-8ccb55aeac4d/out.jpg)
 
 ---
 

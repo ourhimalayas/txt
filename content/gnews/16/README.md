@@ -2,12 +2,19 @@
 ---
 
 
-## 中共国报告了一年来首例新冠病毒死亡案例
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2203786/)
+## 从琅琊榜谈“皇宫内”的战友（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203787/)
 
-03/20/2022 中国大陆不断上升的新冠病例已经威胁到该国严格的清零政策。据报道，中共国一年多来首次出现了新冠病毒死亡病例
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：20-11：30-002.jpg)
+*发布：*tianzhihuan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

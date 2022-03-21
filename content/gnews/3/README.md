@@ -2,23 +2,38 @@
 ---
 
 
-## 第5波疫情｜香港再多223人离世 今波累计5906人死亡
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2203921/)
+## 澳大利亚启动联邦打击网络犯罪中心
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2203935/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022032117122970904.jpg)图片来源：星岛网
+#### 雅典娜【聚焦澳洲】，汇聚澳洲时事报道
 
-据星岛网3月21日报道，香港卫生署卫生防护中心传染病处主任张竹君表示，今日再多223宗死亡个案，第5波累计5906人死亡，涉及2329女及3577男，年龄介乎11个月至112岁。
+翻译：li yan li
+编辑：文泓
 
-香港作为如今疫情严重之地，中共的防疫政策与推荐药物几乎作用不大，请香港同胞勿信中共，抓紧服用新中国联邦推荐的解药！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-119.png)图片来源：9news & 雅典娜设计组
 
-新闻来源：[星岛网](https://std.stheadline.com/realtime/article/1821279/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E7%AC%AC5%E6%B3%A2%E7%96%AB%E6%83%85-%E5%86%8D%E5%A4%9A223%E4%BA%BA%E9%9B%A2%E4%B8%96-%E4%BB%8A%E6%B3%A2%E7%B4%AF%E8%A8%885906%E4%BA%BA%E6%AD%BB%E4%BA%A1)
 
-撰稿/发布：一叶知秋
+3月21日，澳大利亚内政部长凯伦·安德鲁斯启动了一个打击网络犯罪中心，以加强澳大利亚打击网络犯罪的努力。这个耗资8900万澳元的网络犯罪中心是内政部打击网络犯罪的国家计划的一部分。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+安德鲁斯说，联邦政府与联邦警察组建的新网络犯罪中心，即联合治安网络犯罪协调中心（JPC3），将汇集所需的经验、权力、能力和情报，建立一个强大的、多层面的反应机制。
+
+澳洲联邦调查局的新网络犯罪中心将利用影响深远的联邦立法和高端技术能力，积极瞄准网络威胁，摧毁它们，将犯罪者绳之以法。并将特别关注防止网络犯罪分子诈骗、偷窃和欺诈澳大利亚人。
+
+在启动网络犯罪中心的同时，还计划建立国家网络犯罪论坛，以预防网络犯罪，调查、破坏和起诉网络犯罪事件，以及帮助受害者从网络犯罪事件中恢复。
+
+内政部高官迈克·佩祖洛本月称，这将是政府对网络威胁的有效防御。
+
+联邦政府希望网络法律将为澳大利亚的情报机构创建一个标准化的基础设施框架。
+
+新闻链接：[Australia launches federal cybercrime centre as part of national plan | ZDNet](https://www.zdnet.com/article/australia-launches-federal-cybercrime-centre-as-part-of-national-plan/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
