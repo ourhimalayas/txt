@@ -2,77 +2,28 @@
 ---
 
 
-## 视频|泽连斯基在美国国会的演讲精要
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205887/)
+## 新冠疫苗正在造成癌症和艾滋病
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2205901/)
 
-乌克兰正处于二战以来全球最严重的战争中，乌克兰人民派出了最棒的儿女来抵抗俄罗斯的全面入侵。
+#### 编译 意大利达芬奇农场 小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-21-alle-18.09.53.png)图片来源：rainews.it
+著名医生科尔(Ryan Cole)和泽连科(Vladimir Zelenko)证明越来越多的完全接种了新冠疫苗的人正开始患癌症和艾滋病。
 
-Ukraine is in the midst of the world’s worst war since World War II and the Ukrainian people have sent their best sons and daughters to resist an all-out Russian invasion.
+科尔是一名经过认证的病理学家，也是爱达荷州一家诊断试验室的所有者，作为一名病理学家，每年进行大约40.000次活检，并且发现那些通常不易患上特定肿瘤病理学的人体内的肿瘤有所增加。所有这些人的唯一共同特征是他们都接种了新冠疫苗。
 
-俄罗斯不仅侵略了我们的家园，还对我们的普世价值进行了残酷的进攻，乌克兰的命运正决定着人类的命运。
+科尔正在收集证据，并试图联系其他实验室已整理出更完整的数据集。他在公开宣布他的发现时，科尔受到了嘲笑和诽谤。科尔说：“ 我认识肿瘤学家和放射治疗肿瘤学家，他们告诉我他们看到肿瘤在增加，这些奇怪的肿瘤在接种了新冠疫苗后像野火一样膨胀。” 科尔还说我们需要联邦资金，而NIH（美国国立卫生研究院）并未考虑所有这些。但是靠获得拨款来调查与新冠疫苗有关的一切几乎是不可能的。早在2021年9月，科尔就在一段视频中提到完全接种疫苗的人患癌症和自身免疫疾病的风险会增加。
 
-Russia has not only invaded our homeland, it has also launched a brutal attack on our universal values, and the fate of Ukraine is determining the fate of humanity.
+科尔在视频中说：“ 自2021年1月1日以来，在实验室中，与我每年看到的情况相比，我看到子宫内膜癌增加了20倍。我一点也不夸张， 因为我年复一年地查看我的数据，而且我可以确认我以前从未见到过如此多的子宫内膜癌。”
 
-乌克兰感谢美国提供的一切压倒性支持，并需要美国的进一步支持！
+完全接种新冠疫苗的人存在免疫缺陷问题
 
-Ukraine is grateful for all the overwhelming support provided by the United States and needs further support from the United States!
+美国家庭医生泽连科接受Brighteon TV Thrive Time Show 的采访， 谈论他所见过的完全接种疫苗的患者是如何出现免疫缺陷问题的。 他说实际上他们是患上了艾滋病，但这不是由艾滋病毒引起的艾滋病。艾滋病毒会破坏杀伤性T细胞并削弱免疫系统。这种综合症被称为艾滋病。但是还有其他因素会导致免疫系统受到同样的损害。新冠疫苗恰恰会破坏杀伤T细胞，破坏肿瘤抑制基因、导致先天免疫系统受到严重影响。
 
-珍珠港事件和911事件这样的空袭已在乌克兰持续三周了，这是80年来欧洲从未见过的恐怖。
+泽连科医生最后解释说由于疫苗导致的免疫缺陷综合症使得心脏病、中风、流产、癌症和自身免疫性疾病大量增加。
 
-Air strikes like Pearl Harbor and 911 incident have been going on in Ukraine for three weeks now, a horror that Europe has not seen in 80 years.
+参考链接：[https://www.eventiavversinews.it/medici-testimoniano-che-i-vaccini-covid-19-stanno-causando-cancro-e-aids/](https://www.eventiavversinews.it/medici-testimoniano-che-i-vaccini-covid-19-stanno-causando-cancro-e-aids/)
 
-我们要求在乌克兰建立人道主义禁飞区，如这个要求太高，那就请给我们S-300这样的导弹防御系统。
-
-We demand a humanitarian no-fly zone in Ukraine, and if that is too much to ask, then please give us a missile defence system like the S-300.
-
-“我有一个需要！”正如你们曾经的“我有一个梦想”那么真挚而热切，我们需要强大的战机来保护乌克兰的人民和土地！
-
-“I have a need!” As true and fervent as you once said “I have a dream”, we need powerful warplanes to protect the people and land of Ukraine!
-
-现在是乌克兰乃至整个欧洲最黑暗的时刻，呼吁美国出台更多的制裁措施，
-
-This is the darkest time for Ukraine and indeed all of Europe, we call on the US to introduce more sanctions,
-
-和平比利益更重要，建议美国制裁俄罗斯的所有政客，美国公司立即离开俄罗斯市场，美国港口对俄罗斯关闭，
-
-peace is more important than profit, we propose that the US sanctions all Russian politicians, that US companies leave the Russian market immediately, and US ports be closed to Russia,
-
-由负责任的国家组成U24 和平联盟来立即停止这场战争，以迅速拯救生命和这个世界！
-
-and that the responsible nations form the U24 peace coalition to stop this war immediately in order to save lives and this world quickly!
-
-今天，乌克兰人民不仅是在保家卫国，也是在为世界的普世价值而战，为人类的未来而战。
-
-Today, the Ukrainian people are not only defending their country, they are also fighting for the universal values of the world and for the future of humanity.
-
-你国的和平不再取决于你自己，而取决于你旁边的国家。
-
-The peace of your country no longer depends on yourself, but on the country next to you.
-
-拜登总统是伟大美国的领导人，希望你能成为世界的领导人，成为维护世界和平的领导人，美国需要在历史上留下公正！
-
-President Biden is the leader of a great America and hopefully you will be the leader of the world and the leader who keeps the peace in the world, America needs to leave justice in history!
-
-作为伟大乌克兰人的领导人，如不能阻止乌克兰人死于这场战争，我的生命将毫无意义！
-
-As the leader of the great Ukrainians, my life would be meaningless if I could not prevent Ukrainians from dying in this war!
-
-荣耀归于乌克兰！
-
-Glory be to Ukraine!
-
-【盖文】：我们跟乌克兰人站在一起！美国历史上迄今只邀请过三个外国人到其国会发表演讲，一个是丘吉尔，一个是宋美龄，第三个就是现在的乌克兰总统泽连斯基！2022年3月16日泽连斯基在美国国会的演讲，将俄罗斯入侵乌克兰比作美国人永远挥之不去的伤痛“珍珠港”和“911”事件，强调自己的使命就是阻止乌克兰人民死于这场战争！
-
-【GETTR】：We stand with the Ukrainians! Only three foreigners have been invited to address the United States Congress so far in its history: Churchill, Song Mei-ling and now Ukrainian President Zelensky! “Zelensky’s speech to the US Congress on March 16, 2022, compared the Russian invasion of Ukraine to the American wounds of Pearl Harbor and 911, and stressed that his mission was to prevent the Ukrainian people from dying in this war!
-
-
-
-【撰稿】：香草山信息部 6zero4
-
-【翻译】香草山翻译部–文岄679
-【翻译】香草山视频部–Jesse(文博)
-
-发布：奇门遁甲
+编辑、上传：Xiao  baige
 
  
 
