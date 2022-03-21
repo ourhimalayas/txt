@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 10:17 PM (UTC)`
+
+Aaaaaaaaaaaa
+> `@laifufu 3/21/2022 9:07 PM (UTC)`<br/>Akamai Techonogies, Inc. 在其网站介绍喜交所，称喜交所“提供一种新的旨在抵御极端价格波动的加密货币。该公司的一个关键目标是为新的数字时代提供一个革命性的金融解决方案”。<br/><br/>Akamai Technologies, Inc.是一家美国内容分发网络、网络安全和云服务公司，提供网络和互联网安全服务。 Akamai的智能边缘平台是全球最大的分布式计算平台之一。<br/><br/>(由DC战友Aven提供)<br/><br/>#喜马拉雅交易所 #HimalayaExchange #Akamai #DC政经 <br/><br/>https://www.akamai.com/blog/edge/himalaya-exchange?utm_source=twitter&utm_medium=social_corporate&utm_campaign=F-MC-52611
+
+---
+
+`@miles 3/21/2022 10:17 PM (UTC)`
+
+3/20/2022 Miles Guo:  Several major CCP kleptocracy families have been selling their assets and the CCP restricts people from transferring money abroad and spending money, which foreshadows the upcoming demise of the CCP；the unbelievable amount of assets that Fu Zhenghua and Sun Lijun embezzled even shocks Xi Jinping<br/><br/>3/20/2022 文贵直播: 中共几大家族纷纷变卖资产，限制所有人将钱转到国外和消费，预示中共灭亡的到来；傅政华、孙力军的巨额贪污连习近平都瞠目<br/>
+![img](https://media.gettr.com/group29/getter/2022/03/21/22/37151af1-7d1c-27ee-6969-5d161f302454/out.jpg)
+
+---
+
+`@miles 3/21/2022 10:10 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-21
+![img](https://media.gettr.com/group43/origin/2022/03/21/22/c050acd3-3373-3438-b499-dbaaa91abdfa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/21/2022 10:01 PM (UTC)`
 
 3/21/2022 Miles Guo’s GETTR: The whole world is waiting for the next decisive event - when will the CCP openly offer military support to Russia? The CCP is bound to be taken down, with the only question being whether it will be eliminated by itself or by the whole world. Here are the two key issues: the collapse of the CCP’s real estate and the crash of the Hong Kong economy. There might be reconciliations in the Russia-Ukraine war, but we will keep conducting our Ukraine rescue operation.<br/><br/>3/21/2022 文贵盖特：世界在等着下一个靴子降落 - 中共啥时候公开军援俄罗斯？中共必灭，只是被其内部消灭还是被全世界消灭的问题；最关键的两件事是中共房地产暴雷和香港经济崩塌；俄乌战争会缓和，但我们会继续救援乌克兰！
@@ -132,27 +153,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 3/20/2022 Miles Guo: The Tweet posted by Elon Musk challenging Putin caused yellow light within the CCP - who called for emergency meeting at midnight to discuss how to respond; no matter how bragging the Axis of Evils are, and if Russia or CCP dares to fire missiles, Elon Musk could make those missiles fire at their own backyard by blowing out a breath<br/><br/>3/20/2022 文贵直播：Elon Musk发推单挑普京，中共内部因此亮起黄灯，并连夜紧急会议商讨对策；邪恶轴心国闹得再欢，Elon Musk吹一口气就能让俄罗斯和中共的导弹核弹在被窝了炸了<br/>
 ![img](https://media.gettr.com/group46/getter/2022/03/21/03/283aae41-9ea1-2a4f-bf11-119c6dff976a/out.jpg)
-
----
-
-`@miles 3/21/2022 3:27 AM (UTC)`
-
-【Ukraine Rescue】03/19/2022 The NFSC volunteers reveal a list of the people rescued by bus on live broadcast. Mr. Hao Haidong comments that this list proves the truthfulness of the NFSC’s rescue and explains why the NFSC is so likable under the principle of “Only truth will prevail” <br/><br/>【乌克兰救援】03/19/2022  在3月19日的直播中，新中国联邦义工实时展示大巴上获救人员名单。郝海东先生点评说，这展示了新中国联邦唯真不破的魅力，证明了新中国联邦救援数据的真实可靠。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group11/getter/2022/03/21/03/8c452c43-0e83-a85f-d5c4-e231ca9daef2/out.jpg)
-
----
-
-`@miles 3/21/2022 2:02 AM (UTC)`
-
-2022.03.20 农场联盟工作汇报
-![img](https://media.gettr.com/group31/origin/2022/03/21/01/5d98f971-7cf3-353a-83c3-d9a1c903935f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/21/2022 1:04 AM (UTC)`
-
-2022.03.20 晚《新中国联邦新闻访谈》 美国爆发禽流感，禽流感和普通流感、新冠有什么异同？如何预防？； 德尔塔克戎（Deltacron ）组合变种是否更危险？； 疫苗病毒最新动态，回答战友常见的几个问题
-![img](https://media.gettr.com/group42/origin/2022/03/21/01/8f0ecb7e-38ff-e094-ec5e-e0ab19e76d57/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
