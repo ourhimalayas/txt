@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 10:01 PM (UTC)`
+
+3/21/2022 Miles Guo’s GETTR: The whole world is waiting for the next decisive event - when will the CCP openly offer military support to Russia? The CCP is bound to be taken down, with the only question being whether it will be eliminated by itself or by the whole world. Here are the two key issues: the collapse of the CCP’s real estate and the crash of the Hong Kong economy. There might be reconciliations in the Russia-Ukraine war, but we will keep conducting our Ukraine rescue operation.<br/><br/>3/21/2022 文贵盖特：世界在等着下一个靴子降落 - 中共啥时候公开军援俄罗斯？中共必灭，只是被其内部消灭还是被全世界消灭的问题；最关键的两件事是中共房地产暴雷和香港经济崩塌；俄乌战争会缓和，但我们会继续救援乌克兰！
+![img](https://media.gettr.com/group33/getter/2022/03/21/22/797428cf-a105-c530-8da6-161f45a1707d/out.jpg)
+
+---
+
 `@miles 3/21/2022 7:12 PM (UTC)`
 
 3月21日：❤️❤️❤️❤️❤️❤️❤️@davide_martello https://gettr.com/post/p10zuip01a3 战地音乐家入驻盖特了😊
@@ -146,13 +153,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 2022.03.20 晚《新中国联邦新闻访谈》 美国爆发禽流感，禽流感和普通流感、新冠有什么异同？如何预防？； 德尔塔克戎（Deltacron ）组合变种是否更危险？； 疫苗病毒最新动态，回答战友常见的几个问题
 ![img](https://media.gettr.com/group42/origin/2022/03/21/01/8f0ecb7e-38ff-e094-ec5e-e0ab19e76d57/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/21/2022 1:02 AM (UTC)`
-
-3/20/2022 Miles Guo: The reason why America is great is because there are numerous people like Elon Musk in the US, with the majority of American technologies and wealth being created by immigrants. On the contrary, the CCP has made China a living hell, where none of the Chinese people who have conscience, speak the truth, and have the ability to make a living can survive.<br/><br/>3/20/2022 文贵直播：美国之所以伟大是因为有无数的马斯克，绝大部分美国的科技和财富是新移民创造的；而中共却让中国成了地狱，让所有有良知、说真话和有能力的中国人活不下去<br/>
-![img](https://media.gettr.com/group25/getter/2022/03/21/01/e6f6ffdf-87de-696b-cb1a-688b64226700/out.jpg)
 
 ---
 
