@@ -2,30 +2,31 @@
 ---
 
 
-## 喜联储定超瑞士银行业，喜币的未来在于法币和数字货币的共存机制
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2206398/)
+## 今日盖特大V推荐 — 巴克·塞克斯顿（Buck Sexton）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2206620/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+![](https://assets.gnews.org/wp-content/uploads/2022/03/aulj9-n7nko-4.jpg)
+盖特链接：[https://gettr.com/user/bucksexton](https://gettr.com/user/bucksexton)
 
-3月20日，郭文贵先生于Gettr大直播中透露，看似中立的瑞士实质就是个洗钱的国家，数字货币时代让一切黑暗角落必须遵循法律和公平的原则，并表示，HCoin（喜币）的真正未来在于法币和数字货币的共存机制。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/448f45dbaa46a33436a96db376f5c160-1.png)图片来源Gettr
+**巴克·塞克斯顿自述：**
 
+@ClayAndBuckShow的联合主持人, 全美东部时间下午12点至3点 第一电视台(The First TV)“坚持到底(Hold The Line)”的主持人 在此订阅我的播客: http://link.chtbl.com/WDeAP9hS
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-6-scaled.jpg)图片来源：网络
+**巴克·塞克斯顿简介：**
 
-从人类的财富文明来讲，凡是在瑞士享受大额存款业务的基本都涉及独裁的暴君和各路不干净的资金，包括北朝鲜的金家、中国共产党各个家族（几十万亿美元）、俄罗斯普京及其团队、罗马尼亚齐奥塞斯库家族、萨达姆和卡扎菲家族、伊朗和当年的叙利亚和伊拉克等，只有偷盗本国人民的血汗钱和贪污的赃款才害怕被曝光。
+巴克·塞克斯顿（Buck Sexton 生于1981年12月28日）是美国电台主持人、政治评论员、播客、作家和前中央情报局情报官员。
 
-数字货币时代的到来，让一切黑暗角落必须遵循法律和公平的原则，只有合法储户的存款才应该得到保密和安全。这也是新的数字货币时代与旧的瑞士银行业的不同，与瑞士银行业成为大多罪犯、战犯的保护伞不同，喜联储的做法是所有人的存款都会得到保密，罪犯、战犯无法完成KYC开户和资金注入。
+巴克·塞克斯顿最出名的是受欢迎的“克莱特拉维斯和巴克塞克斯顿秀（The Clay Travis and Buck Sexton Show）” 的联合主持人，该节目由心心传媒（iHeartMedia）的子公司首映网络（Premiere Radio Networks）在全国联合举办。
 
-经过一定的时间和过程积累，HCoin（喜币）的价值不但会超过比特币，喜联储也一定会超过瑞士的银行和金融机构，而HCoin（喜币）的真正未来在于法币和数字货币的共存机制。
+巴克·塞克斯顿还是第一电视台（The First TV） 的“坚持到底（Hold The Line）”的主持人，也是拉什·林堡秀（The Rush Limbaugh Show）、 格伦·贝克程式（The Glenn Beck Program）的前客座主持人。塞克斯顿作为著名的电台主持人，经常讨论商业、政治、娱乐和社会问题。此外，巴克·塞克斯顿还是福克斯新闻（Fox News）和福克斯财经网（Fox Business Network）的常客分析师。
 
-HCoin（喜币）以及将来的“躺平币”，是生产力衡量的决定，而非价格操纵。只要HCoin（喜币）得到一个主权国家的批准，只需完成一个区域的流通，未来把HCoin（喜币）放上公链。所有的国家政府都会认识到币是公开的，币值是根据生产力和市场需要双方来共同决定的。所以，HCoin（喜币）、HDO（喜美元）或者喜日元等可以合法、稳定的和美元、日元、或者欧元等进行兑换。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-**附：**
-
-HCoin（喜币）释放生产力，摆脱国界限制，加密的安全隐私保护，最后完成公平的交换；
-
-HPay（喜支付）完成无国界、无成本、无痕迹的支付，不受任何国家货币制衡。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

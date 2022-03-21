@@ -2,26 +2,20 @@
 ---
 
 
-## 美国官员：中共国在南海至少有3个岛屿拥有武器
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2206746/)
+## 西方世界对海外欺民贼的彻底清理行动已经开始（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206897/)
 
-编译：七叶之芒
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10-10-20-四--scaled.jpeg)
+*发布：陶子*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2452-edited.png)中国的武器至少在该国在南中国海建造的三个岛屿上。上图为周日，美国印太地区指挥官约翰-阿基里诺上将在飞越南中国海南沙群岛的侦察机上观看中国建筑和建筑物的图片。
-Aaron favila/AP Photo
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
-美国海军上将约翰-阿奎利诺周日告诉美联社，中共国在南海建造的至少三个岛屿上都驻扎了武器。
-
-美国印太地区指挥官阿奎利诺说，这些人工岛已经装备了反舰和防空导弹系统、战斗机以及激光和干扰设备，显示了中工国的军事力量。
-
-“我认为在过去的20年里，我们目睹了中华人民共和国（People’s Republic of China）自第二次世界大战以来最大的军事集结”，阿基利诺告诉美联社。“他们已经推进了他们的所有能力，这种武器化的积累正在破坏该地区的稳定。”
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,24 @@
 ---
 
 
-## 班农战斗室1716集乌克兰局势以及乌俄谈判双方利益点
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2206214/)
+## 德国世界报报道战地钢琴家
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2206315/)
 
-制作：peacelv
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-4-e1647900955632.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0124.jpg)
 
 
+图片来源：视频截图
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0126-1.jpg)
 
 
+德国世界报报道了在波乌边境的梅迪卡的战地钢琴家， 在难民跨国边境能感受到音乐带给他们的力量， 得到一丝心灵的抚慰。 记者在报道的时候， 走过了新中国联邦的救援帐篷， 新中国联邦的国旗就在影像里。 所有的记者和走过这里的人， 都首先要经过蓝色国旗飘扬的新中国联邦的救援帐篷。 德国的记者和摄像是毫不掩饰的。
 
+🔗 [https://www.welt.de/politik/ausland/video237694177/Krieg-in-der-Ukraine-Klavierspieler-sorgt-an-Grenzuebergang-fuer-Gaensehautmoment.html](https://www.welt.de/politik/ausland/video237694177/Krieg-in-der-Ukraine-Klavierspieler-sorgt-an-Grenzuebergang-fuer-Gaensehautmoment.html)
 
-素材：peacelv
-翻译: peacelv
-
-视频字幕制作：peacelv
-
-发稿：信心的选择
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
-![]()
-
+编辑发表： Shuizhuyu
 
  
 

@@ -2,21 +2,28 @@
 ---
 
 
-## 视频|乌克兰哈尔科夫遭空袭后死伤无数，棺材不够用，尸臭弥漫
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2206621/)
+## 今日盖特大V推荐 — 马特·沃尔什（Matt Walsh）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2206825/)
 
-制作：大直播短视频组- 隧道尽头的光
-文案：聪宁
+![](https://assets.gnews.org/wp-content/uploads/2022/03/aulj9-n7nko-5.jpg)
+**盖特链接接**：[https://gettr.com/user/mattwalshblog](https://gettr.com/user/mattwalshblog)
 
-审核/编辑/发稿：谐趣园
+**马特·沃尔什自述：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+神权法西斯，暴君，养蜂人
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-33.png)图片来源：网络
+**马特·沃尔什简介：**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+马特·沃尔什（Matt Walsh 生于1986年6月18日）是美国保守派政治评论员、媒体主持人、作家，主持每日电讯报（The Daily Wire）的马特·沃尔什秀播客。
+马特·沃尔什著有；2017 年《邪恶的三位一体：阻止左派对生命、婚姻和性别的攻击》、2020年《懦夫教会：给自满的基督徒敲响警钟》、2021 年《海象强尼》。
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

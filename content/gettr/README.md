@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 10:40 PM (UTC)`
+
+3/21/2022 Miles Guo’s GETTR: Fellow fighters at the front line of the Ukraine rescue operation, please do not divide yourselves by your affiliations with the Himalaya Farms. We are citizens of the New Federal State of China. The rescue operation and live broadcast have been improved, and I hope everyone takes enough measures to protect themselves from the CCP virus. The NFSC & ROLF rescue operation indicates that the CCP doesn’t represent the Chinese and shows our steadfast strength and courage to take down the CCP. In the face of anti-Chinese riots across the globe, the contributions of fellow fighters at the front line are invaluable.<br/><br/>3/21/2022 文贵盖特：救援前线的战友们不要分农场，我们都是新中国联邦人；救援工作和直播有了进步，希望大家做好防病毒的措施；新中国联邦法治基金救援说明中共代表不了中国人，反映出我们灭共的坚定力量和勇气；面对全球排华，前线的战友们功德无量
+![img](https://media.gettr.com/group36/getter/2022/03/21/22/8b205eae-ef92-7cf0-77f2-ebeda65a45d7/out.jpg)
+
+---
+
 `@miles 3/21/2022 10:17 PM (UTC)`
 
 Aaaaaaaaaaaa
@@ -146,13 +153,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 3/20/2022 Miles Guo: Dictators have no idea about what the modern world is because of their arrogance. Modern warfare is only about technology. Elon Musk threw down the gauntlet to Putin, and what he said turned out to be the most marvelous thing that has ever been said in the history of humanity and has completely changed human civilization and warfare!<br/><br/>3/20/2022 文贵直播: 独裁者因其狂妄对当代世界完全没有认知。当代世界的战争只和科技有关。马斯克对普京下的战书是人类有史以来最牛的话，它改写了人类的文明和战争！
 ![img](https://media.gettr.com/group7/getter/2022/03/21/03/f85caa39-8ed2-9d5b-a4ef-c288e77885ad/out.jpg)
-
----
-
-`@miles 3/21/2022 3:34 AM (UTC)`
-
-3/20/2022 Miles Guo: The Tweet posted by Elon Musk challenging Putin caused yellow light within the CCP - who called for emergency meeting at midnight to discuss how to respond; no matter how bragging the Axis of Evils are, and if Russia or CCP dares to fire missiles, Elon Musk could make those missiles fire at their own backyard by blowing out a breath<br/><br/>3/20/2022 文贵直播：Elon Musk发推单挑普京，中共内部因此亮起黄灯，并连夜紧急会议商讨对策；邪恶轴心国闹得再欢，Elon Musk吹一口气就能让俄罗斯和中共的导弹核弹在被窝了炸了<br/>
-![img](https://media.gettr.com/group46/getter/2022/03/21/03/283aae41-9ea1-2a4f-bf11-119c6dff976a/out.jpg)
 
 ---
 

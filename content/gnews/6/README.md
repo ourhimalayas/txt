@@ -2,31 +2,19 @@
 ---
 
 
-## 今日盖特大V推荐 — 巴克·塞克斯顿（Buck Sexton）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2206620/)
+## 西方世界对海外欺民贼的彻底清理行动已经开始（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206812/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/aulj9-n7nko-4.jpg)
-盖特链接：[https://gettr.com/user/bucksexton](https://gettr.com/user/bucksexton)
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10-10-20-一--scaled.jpeg)
+*发布：陶子*
 
-**巴克·塞克斯顿自述：**
-
-@ClayAndBuckShow的联合主持人, 全美东部时间下午12点至3点 第一电视台(The First TV)“坚持到底(Hold The Line)”的主持人 在此订阅我的播客: http://link.chtbl.com/WDeAP9hS
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-6-scaled.jpg)图片来源：网络
-**巴克·塞克斯顿简介：**
-
-巴克·塞克斯顿（Buck Sexton 生于1981年12月28日）是美国电台主持人、政治评论员、播客、作家和前中央情报局情报官员。
-
-巴克·塞克斯顿最出名的是受欢迎的“克莱特拉维斯和巴克塞克斯顿秀（The Clay Travis and Buck Sexton Show）” 的联合主持人，该节目由心心传媒（iHeartMedia）的子公司首映网络（Premiere Radio Networks）在全国联合举办。
-
-巴克·塞克斯顿还是第一电视台（The First TV） 的“坚持到底（Hold The Line）”的主持人，也是拉什·林堡秀（The Rush Limbaugh Show）、 格伦·贝克程式（The Glenn Beck Program）的前客座主持人。塞克斯顿作为著名的电台主持人，经常讨论商业、政治、娱乐和社会问题。此外，巴克·塞克斯顿还是福克斯新闻（Fox News）和福克斯财经网（Fox Business Network）的常客分析师。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
