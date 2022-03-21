@@ -2,35 +2,31 @@
 ---
 
 
-## 有声|《真人真事》专访妮可：智慧自信勇敢的NFSC新女性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205137/)
+## 以色列总理：俄乌谈判仍然存在巨大差距
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2205332/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月19日，喜马拉雅联盟委员会《真人真事》节目，采访了乌克兰大救援战地记者妮可（Nicole)。這些天她无论是从前线回传大量采访报道信息，还是拿着绒毛玩具侃侃而谈的经历，妮可都展现出新中国联邦女性的崭新形象——智慧、自信、勇敢，更体現温柔善良的女子。
+#### 撰稿：彩虹   
 
-在第一时间报名出征之后，妮可做出了人生中的一项重大抉择，她放弃了美国联邦财政部门的优渥薪資的工作，毅然奔赴乌克兰救援前线。
+#### 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16478779581.png)图片来源：以色列时报
+据《国会山报》3月21日报道，周一，作为试图成为俄罗斯军事入侵乌克兰冲突的调解人，以色列总理贝内特(Naftali Bennett)说，乌克兰和俄罗斯之间的停火谈判仍然存在巨大的差距。
 
-妮可认为，新中国联邦倡导的正道主义，超越了个人的利益和价值观念。在救援前綫难民帳營區，摒弃长期在被中共治下国人自私、狭隘、冷漠的形象，不分国籍、种族、宗教，重塑无我、无私的人性大爱，这是新中国联邦人的使命。在被问到如何有勇气取舍时，妮可调皮地回答，我们是有币无苗族。
+据路透社报道，在一次演讲中，贝内特说：“还有很长的路要走，因为……有几个问题存在争议，其中一些是根本问题”。他表示，以色列“将与世界上的其他朋友一起，继续努力缩小差距，结束战争”。
 
-自从无意间成为杨贝贝事件的受害人之后，妮可化身新媒体战士，用有深度的節目內容，説一口流利的英文，成为中英文世界沟通的桥梁救援前綫新中囯联邦女记者，卻再次成为彭博社记者恶意采访的对象。
+就在发表这些言论的前一天，身为犹太人的乌克兰总统泽连斯基（Volodymyr Zelensky）批评了以色列对战争的冷漠反应。他说：“为什么以色列不对俄罗斯进行制裁？以色列需要对这些问题给出答案，然后，我们才能共处”。
 
-不过这一次，在经历了爆料革命几年的风雨历练，妮可变得更成熟更强大，有理有据地进行了有效的还击。后在各大国际媒体上树立起睿智、有勇气、温柔善良的新中国联邦女性形象。
+泽连斯基批评道：“我们向你们求助，并询问在不选边站的情况下（向我们）提供帮助或调解是否更好。我让你们自己决定这个问题的答案，但我确实想指出，冷漠会杀人”。
 
-文字版原文：[《真人真事》专访妮可：智慧自信勇敢的NFSC新女性](https://gnews.org/zh-hans/2196822/)
+文章说，虽然以色列强烈谴责俄罗斯的入侵行为，但迄今为止，它没有像其他国家那样出台强有力的制裁措施作为回应。但以色列外交部长拉皮德（Yair Lapid）称，该国不会成为“俄罗斯绕开美国和其他西方国家实施制裁的通道”。
 
-音频处理：Fei797
-发稿：Fei797
+报道说，周一，以色列向乌克兰派出了一个援助代表团，以建立一个野外医院。在机场为代表团送行时，贝内特发表了几句话，说以色列正在“以敏感、慷慨和负责的态度处理这场不幸的危机，同时在各种因素之间保持平衡，而这些因素却是复杂的”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+*责编：白夜*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**新闻来源**
+
+[Israeli prime minister says large gaps remain in cease-fire talks between Russia, Ukraine](https://thehill.com/policy/international/598997-israeli-prime-minister-says-very-large-gaps-remain-in-cease-fire-talks)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

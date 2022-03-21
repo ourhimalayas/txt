@@ -2,46 +2,66 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（3月14日-3月20日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2204964/)
+## 美海军上将称中共已在南中国海完全军事化至少三个岛屿
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2205009/)
 
-作者：纽约香草山金融部 – ILOVE战神
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-484205692-e1647774713935-640x4792-1.jpg)中国在南海至少为三个人工岛配备了军事设备，如导弹库、飞机库和雷达系统。上图是中国在美济礁的人工岛上制造的简易跑道。 
+《每日邮报》于2022年3月21日报道，美国一位高级军事指挥官周日表示，尽管中共总书记习近平此前承诺不把这些岛屿变成军事基地，但目前已经把它在极富争议的南中国海建造的近十座人工岛中的至少三座完全军事化。
+
+美国海军官员调查了世界上争议最大的地区之一，南中国海斯普拉特利群岛的前哨基地，发现美济礁、苏比礁和永暑礁等岛屿已经部署了反舰和防空导弹系统、激光和干扰设备以及战斗机。
+
+美国印太地区司令约翰·阿奎里诺(John C. Aquilino)上将与两名美联社记者分享了这一事件，这两名记者在侦察任务期间与他一起乘坐P-8A海神巡逻机，发现这三个人工岛上建有导弹库、飞机库、雷达系统和其他军事设施。
+
+“我认为在过去的20年里，我们目睹了中共国自二战以来最大规模的军事集结，”阿奎里诺上将说。
+
+他补充说：“他们已经提高了所有军事能力，武器化的积累正在破坏该地区的稳定。”他指出，此举与南海附近的其他国家对抗，其中包括菲律宾、越南、马来西亚、台湾和文莱。
+
+中共官员尚未发表评论，但北京当局坚称其军事形象纯粹是防御性的，旨在保护其所谓的主权权利。
+
+然而，经过多年的军费开支增长，中共国现在拥有仅次于美国的世界第二大国防预算，并且正在迅速实现其部队的武器系统现代化，其中包括歼20隐形战斗机、高超音速导弹和两艘航空母舰，第三艘正在建造中。
+
+在海军执行任务期间,P-8A海神巡逻机上的机组人员多次受到中共国的警告，称它非法进入了他们所谓的领土，并命令飞机离开。
+
+“中共国对南沙群岛及其周边海域拥有主权。立即远离以避免误判。”其中一条严厉的无线电信息包含着威胁。
+
+但这架美国海军飞机对多次警告置之不理，顽强地继续进行侦察，两名受邀的美联社记者见证了这短暂但紧张的时刻。
+
+“我是一架主权豁免的美国海军飞机，在任何沿海国家的领空之外进行合法的军事活动，”一名美国飞行员通过无线电回复。
+
+他说：“行使这些权利受到国际法的保护，我在运作时适当考虑了所有国家的权利和义务。”
+
+虽然这三个岛屿已全面军事化，但尚不清楚中共国是否会在其他地区建设军事基础设施。
+
+阿奎里诺说，这些岛屿的作用是将中国的进攻能力扩大到大陆海岸以外。“他们可以驾驶战斗机、轰炸机，并附带上所有这些导弹系统。”
+
+他补充说，任何在有争议航道上空飞行的军用和民用飞机都很容易进入岛屿导弹系统的射程范围内。
+
+“所以这就是存在的威胁，这就是为什么这些岛屿的军事化如此令人担忧，”他说。“它们威胁到在附近活动的所有国家以及所有国际海空域。”
+
+阿奎里诺说，华盛顿在有争议地区的主要目标是通过威慑来“防止战争”，并促进和平与稳定，包括让美国的盟友和伙伴参与具有这一目标的项目。
+
+他补充说：“如果威慑失败，我的第二个任务是做好战斗和胜利的准备。”
+
+简评:
+
+中共历来不遵守国际合约，破坏香港的法治和自由就是最好的证明。不断提高的军费预算以及在南海部署武器，都极度的威胁着整个亚洲的安全，共产主义国家只对外输出战乱，挑战世界秩序，一切的目的只是为中共国几个家族服务，从中谋取暴利，奴役人民。
+
+美军目前应该做好了充分的准备，坚定的于台湾站在一起，一旦开战，应予以中共国最严厉的打击。俄罗斯已入侵乌克兰近一个月的时间，事实表明西方并不软弱，对俄罗斯给予史上最严厉的制裁，也向中共表明西方世界捍卫自由民主的决心。
+
+对台湾的疯狂只是为了转移中共的内斗，为了独裁者自身的权力，置无数人民的安危不顾。以美国为首的西方世界应进一步勒紧中共脖子上的绳索，加剧共党内部的斗争，促使和平演变，保护台湾，捍卫世界的和平。
+
+新闻链接: [US admiral says China fully militarized at least three of several Spratly Islands it built in the disputed South China Sea](https://www.dailymail.co.uk/news/article-10633695/US-admiral-says-China-fully-militarized-three-islands-South-China-Sea.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-过去一周，喜马拉雅币价格稳定在44美元左右，平均日交易量约5万枚喜币。喜币上市以来总交易量约3080万枚，占今年总发行量的仅约3.08%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-6.jpg)
-本周郭文贵先生在大直播中透露，喜币上市以来，已经让新中国联邦战友们获得了几百亿美元的收益，这让中共内部触动巨大。中共党内战友透露，喜币在数字货币行业的领先地位，高技术含量，高效的支付系统HPay以及未来的巨大的升值空间等，每一项都将对共产党造成致命打击。郭先生还表示，喜币未来不光会超过比特币，还会超过瑞士银行，会保证所有人财富的安全和隐私，但防止坏人的钱进入。喜币的价值未来将会在公链上由生产力和市场供需决定，并与各国法币无成本联通，真正体现出它对人类文明的贡献。
-
-本周喜联储主席William先生在接受Bloomberg专栏记者采访时说：“由于银行系统受到金融制裁或俄乌战争的影响，人们会涌向加密货币以保护他们的资产并维持流动性。其中俄罗斯人在加密货币市场中非常活跃。” William先生表示，加密货币在被用作非法活动或逃避制裁的手段时确实令人担忧，但如果加密货币运营者配合监管者进行足够细致的KYC，这个问题就可以很容易解决。William先生还说，“我已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续蓬勃发展。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-34.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture33.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture4-6.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture5-4.png)
-
-参考链接：
-1. [2022年3月15日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2176468/)
-2. [喜交所官方网站 HIMALAYA PAY – Your key to the Himalaya Ecosystem.](https://himalaya.exchange/himalaya-pay)
-3. [Putin’s War Could Make Central Banks a Crypto Battlefield](https://www.bloombergquint.com/gadfly/putin-s-war-will-put-central-bankers-on-the-cryptocurrency-frontlines)
-4. [喜交所：Himalaya Exchange Official Founder of the #HimalayaExchange, William Je shares his thoughts on the role of #cryptocurrencies during the Ukraine-Russia conflict.](https://twitter.com/himalayaxchange/status/1504851433816043528)
-5. [喜交所：An insightful article on the evolving #cryptocurrency #security challenges. Find out how the #HimalayaExchange is at the forefront of #cybersecurity.](https://twitter.com/himalayaxchange/status/1505137023950143490)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
