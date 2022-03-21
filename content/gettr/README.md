@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 3:43 AM (UTC)`
+
+3/20/2022 Miles Guo: Dictators have no idea about what the modern world is because of their arrogance. Modern warfare is only about technology. Elon Musk threw down the gauntlet to Putin, and what he said turned out to be the most marvelous thing that has ever been said in the history of humanity and has completely changed human civilization and warfare!<br/><br/>3/20/2022 文贵直播: 独裁者因其狂妄对当代世界完全没有认知。当代世界的战争只和科技有关。马斯克对普京下的战书是人类有史以来最牛的话，它改写了人类的文明和战争！
+![img](https://media.gettr.com/group7/getter/2022/03/21/03/f85caa39-8ed2-9d5b-a4ef-c288e77885ad/out.jpg)
+
+---
+
 `@miles 3/21/2022 3:34 AM (UTC)`
 
 3/20/2022 Miles Guo: The Tweet posted by Elon Musk challenging Putin caused yellow light within the CCP - who called for emergency meeting at midnight to discuss how to respond; no matter how bragging the Axis of Evils are, and if Russia or CCP dares to fire missiles, Elon Musk could make those missiles fire at their own backyard by blowing out a breath<br/><br/>3/20/2022 文贵直播：Elon Musk发推单挑普京，中共内部因此亮起黄灯，并连夜紧急会议商讨对策；邪恶轴心国闹得再欢，Elon Musk吹一口气就能让俄罗斯和中共的导弹核弹在被窝了炸了<br/>
@@ -151,13 +158,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 【Ukraine Rescue】03/19/2022 Since some fellow fighters are infected and the shortage of front-line personnel in Medyka, the rescue bus operation of the NFSC and the ROLF from Lviv to Krakow has temporarily come to an end. Thanks to the local NGO partners in Ukraine for printing out a banner representing the cooperation between Ukraine and the NFSC and the ROLF.<br/><br/>【乌克兰救援】03/19/2022  因战友染病，梅迪卡前线人手短缺，新中国联邦和法治基金救援行动从利沃夫市到达克拉克夫市的大巴暂告一段落。感谢乌克兰当地NGO同仁，打印出代表乌克兰与新中国联邦法治基金合作的标语。<br/><br/>
 ![img](https://media.gettr.com/group27/getter/2022/03/20/18/9107b734-8629-6c5b-da70-1d8dbd477d9b/out.jpg)
-
----
-
-`@miles 3/20/2022 6:29 PM (UTC)`
-
-
-![img](https://media.gettr.com/group33/origin/2022/03/20/18/a40f2283-3a8a-09a0-3f27-54783933d12d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
