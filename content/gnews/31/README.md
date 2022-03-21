@@ -2,44 +2,77 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月21日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2205600/)
+## 视频|泽连斯基在美国国会的演讲精要
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205887/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/03/953ffb15e3f2f0af556bd2e1e678563f_500x0.jpg)
-正文
+乌克兰正处于二战以来全球最严重的战争中，乌克兰人民派出了最棒的儿女来抵抗俄罗斯的全面入侵。
 
-**1、银行“内鬼”转移储户2.5亿存款 到底该谁担责？**
-![img](https://media.gettr.com/group46/origin/2022/03/21/04/c10cd8df-0097-ee3b-ee6c-c2a2c3d3f7a2/80ecd019a4ddd55f813efdb1d008da0a_500x0.png)
-近期，工行南宁分行储户“2.5亿存款‘不翼而飞’”一事登上新闻热搜，并引起持续热议。3月18日，工行南宁分行对此回应称，受害人为获非法高息致资金损失，梁某系个人犯罪行为，将依法处理。日前，《每日经济新闻》记者联系到该事件中的多位受害人，并获得一份“南宁市中级人民法院刑事判决书”。通过判决书发现，这起金融案件系工行南宁分行个人金融业务部原经理梁建红一手操纵。2021年11月19日，法院一审判决结果如下：梁建红因犯盗窃罪、诈骗罪、伪造金融票证罪等，被判处无期徒刑，并处罚金320万元。
+Ukraine is in the midst of the world’s worst war since World War II and the Ukrainian people have sent their best sons and daughters to resist an all-out Russian invasion.
 
-财经G评： 钱去哪儿了？ 诈骗2.5亿，罚金320万，剩下的钱去哪里了？
+俄罗斯不仅侵略了我们的家园，还对我们的普世价值进行了残酷的进攻，乌克兰的命运正决定着人类的命运。
 
-链接：[https://finance.sina.com.cn/money/lczx/2022-03-21/doc-imcwiwss7179124.shtml](https://finance.sina.com.cn/money/lczx/2022-03-21/doc-imcwiwss7179124.shtml)
+Russia has not only invaded our homeland, it has also launched a brutal attack on our universal values, and the fate of Ukraine is determining the fate of humanity.
 
-**2、800多万元买29只太平洋保险，掏空积蓄贷款370万元！**
-![img](https://media.gettr.com/group48/origin/2022/03/21/05/ae3a50d4-c157-84b7-9223-b7659d809f57/764f6e4f747fd4d941585f1c710b8082_500x0.png)
-9年多里，买下29种[太平洋](https://finance.sina.com.cn/realstock/company/sh601099/nc.shtml)人寿保险产品，总计支付保费800多万元，其中贷款370万元。买了保险却“背债”数百万元，这件事就发生在上海退休市民章先生身上。“保险公司业务员诱导贷款，导致我背上巨债，日子都快过不下去了。”如今，家中积蓄用光。夫妻俩每年退休金仅有11万元，但370万元的“负债”每年利息却超20万元。“债务”如滚雪球般压向退休的章先生夫妇，让他们喘不过气来。记者调查到，部分保单可能还涉嫌伪造被保险人签名、虚构投保人与被保人父子关系等。在当事人投诉后，目前，太平洋寿险上海分公司已申请银保监会介入调查。
+乌克兰感谢美国提供的一切压倒性支持，并需要美国的进一步支持！
 
-财经G评：以前小编经常评论说中共要把韭菜榨出油，看来我说错了。中共是要把韭菜榨出血🩸！
+Ukraine is grateful for all the overwhelming support provided by the United States and needs further support from the United States!
 
-链接：[https://finance.sina.com.cn/money/insurance/bxyx/2022-03-17/doc-imcwipih8990039.shtml](https://finance.sina.com.cn/money/insurance/bxyx/2022-03-17/doc-imcwipih8990039.shtml)
+珍珠港事件和911事件这样的空袭已在乌克兰持续三周了，这是80年来欧洲从未见过的恐怖。
 
-**3、可转债强赎：秒亏47%，660万一夜变350万**
-![img](https://media.gettr.com/group16/origin/2022/03/21/05/6eb40131-4d1b-1f23-aed5-afa208921f92/20b0c77b77268e002aee2a082f5a31bd_500x0.png)
-3月17日，最后交易日的盛屯转债收报188.02元，然而还是有35460张转债未被转股，按100.044元遭强赎回，投资者瞬间亏损311.96万元，从市值666.72万元一夜被按354.76万元赎回兑付，亏损幅度高达46.79%。
+Air strikes like Pearl Harbor and 911 incident have been going on in Ukraine for three weeks now, a horror that Europe has not seen in 80 years.
 
-链接：[https://finance.sina.com.cn/stock/relnews/cn/2022-03-21/doc-imcwiwss7196958.shtml](https://finance.sina.com.cn/stock/relnews/cn/2022-03-21/doc-imcwiwss7196958.shtml)
+我们要求在乌克兰建立人道主义禁飞区，如这个要求太高，那就请给我们S-300这样的导弹防御系统。
 
-**4、拜登将前往欧洲参加峰会 欧盟将考虑是否对俄实施石油禁运**
-![img](https://media.gettr.com/group5/origin/2022/03/21/05/aa27037a-9fdb-7284-7a02-79d6740a9ded/2f194dfe62c71782340749dcd5e7ef56_500x0.png)
-路透3月21日 – 欧盟各国政府领导人本周将与美国总统拜登一起参加一系列旨在加强西方对俄乌冲突应对的峰会，届时将考虑是否对俄罗斯实施石油禁运。为了迫使俄罗斯总统普京从乌克兰撤军，欧盟已与西方盟友一起实施了一系列惩罚性制裁，包括冻结俄罗斯央行的资产。欧盟各国外长将在周一举行讨论，拜登将在周四抵达布鲁塞尔，与北约的30个盟友举行峰会，他还将参加欧盟峰会以及七国集团(G7)峰会。
+We demand a humanitarian no-fly zone in Ukraine, and if that is too much to ask, then please give us a missile defence system like the S-300.
 
-链接： [https://cn.reuters.com/article/us-biden-eu-summit-russia-sanctions-0321-idCNKCS2LI05K?il=0](https://cn.reuters.com/article/us-biden-eu-summit-russia-sanctions-0321-idCNKCS2LI05K?il=0)
+“我有一个需要！”正如你们曾经的“我有一个梦想”那么真挚而热切，我们需要强大的战机来保护乌克兰的人民和土地！
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
+“I have a need!” As true and fervent as you once said “I have a dream”, we need powerful warplanes to protect the people and land of Ukraine!
 
-上传排版：文勇
+现在是乌克兰乃至整个欧洲最黑暗的时刻，呼吁美国出台更多的制裁措施，
+
+This is the darkest time for Ukraine and indeed all of Europe, we call on the US to introduce more sanctions,
+
+和平比利益更重要，建议美国制裁俄罗斯的所有政客，美国公司立即离开俄罗斯市场，美国港口对俄罗斯关闭，
+
+peace is more important than profit, we propose that the US sanctions all Russian politicians, that US companies leave the Russian market immediately, and US ports be closed to Russia,
+
+由负责任的国家组成U24 和平联盟来立即停止这场战争，以迅速拯救生命和这个世界！
+
+and that the responsible nations form the U24 peace coalition to stop this war immediately in order to save lives and this world quickly!
+
+今天，乌克兰人民不仅是在保家卫国，也是在为世界的普世价值而战，为人类的未来而战。
+
+Today, the Ukrainian people are not only defending their country, they are also fighting for the universal values of the world and for the future of humanity.
+
+你国的和平不再取决于你自己，而取决于你旁边的国家。
+
+The peace of your country no longer depends on yourself, but on the country next to you.
+
+拜登总统是伟大美国的领导人，希望你能成为世界的领导人，成为维护世界和平的领导人，美国需要在历史上留下公正！
+
+President Biden is the leader of a great America and hopefully you will be the leader of the world and the leader who keeps the peace in the world, America needs to leave justice in history!
+
+作为伟大乌克兰人的领导人，如不能阻止乌克兰人死于这场战争，我的生命将毫无意义！
+
+As the leader of the great Ukrainians, my life would be meaningless if I could not prevent Ukrainians from dying in this war!
+
+荣耀归于乌克兰！
+
+Glory be to Ukraine!
+
+【盖文】：我们跟乌克兰人站在一起！美国历史上迄今只邀请过三个外国人到其国会发表演讲，一个是丘吉尔，一个是宋美龄，第三个就是现在的乌克兰总统泽连斯基！2022年3月16日泽连斯基在美国国会的演讲，将俄罗斯入侵乌克兰比作美国人永远挥之不去的伤痛“珍珠港”和“911”事件，强调自己的使命就是阻止乌克兰人民死于这场战争！
+
+【GETTR】：We stand with the Ukrainians! Only three foreigners have been invited to address the United States Congress so far in its history: Churchill, Song Mei-ling and now Ukrainian President Zelensky! “Zelensky’s speech to the US Congress on March 16, 2022, compared the Russian invasion of Ukraine to the American wounds of Pearl Harbor and 911, and stressed that his mission was to prevent the Ukrainian people from dying in this war!
+
+
+
+【撰稿】：香草山信息部 6zero4
+
+【翻译】香草山翻译部–文岄679
+【翻译】香草山视频部–Jesse(文博)
+
+发布：奇门遁甲
 
  
 
