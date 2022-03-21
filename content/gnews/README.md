@@ -15,52 +15,52 @@
 
 ---
 
-### [俄罗斯“非法侵占”，09年以来首次就北方领土问题岸田首相答辩](/content/gnews/1/README.md)
+### [乌克兰战争正在“悄悄”的影响着各国大选——趋势正在反转](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄罗斯“非法侵占”，09年以来首次就北方领土问题岸田首相答辩](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新冠疫苗正在造成癌症和艾滋病](/content/gnews/2/README.md)
+### [新冠疫苗正在造成癌症和艾滋病](/content/gnews/3/README.md)
  ` xiaobaige`
 
-### [视频|泽连斯基在美国国会的演讲精要](/content/gnews/3/README.md)
+### [视频|泽连斯基在美国国会的演讲精要](/content/gnews/4/README.md)
  ` MOSVIDEO`
 
-### [3/20/2022 文贵直播: 独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外；人民不要对政客抱有丝毫幻想；美国的三权鼎立、法治和民主的系统太伟大了，所以才能吸引全世界精英移民美国](/content/gnews/4/README.md)
+### [3/20/2022 文贵直播: 独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外；人民不要对政客抱有丝毫幻想；美国的三权鼎立、法治和民主的系统太伟大了，所以才能吸引全世界精英移民美国](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [DC大中华时事：本轮疫情本土感染者超3万例](/content/gnews/5/README.md)
+### [DC大中华时事：本轮疫情本土感染者超3万例](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [视频|塞纳的传奇跑车通过H-Pay完美交易](/content/gnews/6/README.md)
+### [视频|塞纳的传奇跑车通过H-Pay完美交易](/content/gnews/7/README.md)
  ` MOSVIDEO`
 
-### [中共国外长强调反对对俄制裁 “中国与大多数国家立场相近”](/content/gnews/7/README.md)
+### [中共国外长强调反对对俄制裁 “中国与大多数国家立场相近”](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [3/20/2022文贵直播：盘古龙头变龟头意味着啥？参加冬奥会冬残会的外国人一致认为文贵先生是人类的大英雄，如果自诩为无神论的共产党真的不在乎爆料革命，为什么把盘古龙头变成龟头呢？](/content/gnews/8/README.md)
+### [3/20/2022文贵直播：盘古龙头变龟头意味着啥？参加冬奥会冬残会的外国人一致认为文贵先生是人类的大英雄，如果自诩为无神论的共产党真的不在乎爆料革命，为什么把盘古龙头变成龟头呢？](/content/gnews/9/README.md)
  ` 秘密翻译组-北美组`
 
-### [马斯克的星链系统帮助乌军无人机在战争中取得优势](/content/gnews/9/README.md)
+### [马斯克的星链系统帮助乌军无人机在战争中取得优势](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登总统访问乌克兰邻国波兰（下）](/content/gnews/10/README.md)
+### [拜登总统访问乌克兰邻国波兰（下）](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦以人道主义救援闪亮国际政治舞台](/content/gnews/11/README.md)
+### [新中国联邦以人道主义救援闪亮国际政治舞台](/content/gnews/12/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [每日快报：联合国称近 1000 万乌克兰人现在因战争而流离失所](/content/gnews/12/README.md)
+### [每日快报：联合国称近 1000 万乌克兰人现在因战争而流离失所](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共批评西方对俄罗斯“无耻”的制裁 呼吁北约停止扩张](/content/gnews/13/README.md)
+### [中共批评西方对俄罗斯“无耻”的制裁 呼吁北约停止扩张](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登总统访问乌克兰邻国波兰（上）](/content/gnews/14/README.md)
+### [拜登总统访问乌克兰邻国波兰（上）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|香港疫苗灾难下的伤亡剪报](/content/gnews/15/README.md)
- ` MOSVIDEO`
-
-### [视频|从狗狗看到不同的世界](/content/gnews/16/README.md)
+### [视频|香港疫苗灾难下的伤亡剪报](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
 ### [美暗中将苏制防空系统送至乌克兰](/content/gnews/17/README.md)
@@ -114,61 +114,61 @@
 ### [俄中将莫德维切夫被歼灭成为俄乌战争最大转折点](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [中共在全国各地动辄进行的强制全员核酸是否涉嫌违法？](/content/gnews/34/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中国｜东航波音737客机坠毁 机上132人生死未卜](/content/gnews/35/README.md)
- ` 關注組`
-
-### [中共称房价稳定，背后原因竟是开发商为抛售而大幅降价](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十二）](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国｜疫情失控人人自危 上海一医院拟改建方舱 护士集体罢工抗议](/content/gnews/38/README.md)
- ` 關注組`
-
-### [秘翻新闻｜美中开干之前 中共媒体将被制裁](/content/gnews/39/README.md)
+### [【秘翻时评】恒大集团及旗下公司暂停交易](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [全球债券基金连续出现资金外流](/content/gnews/40/README.md)
+### [中共在全国各地动辄进行的强制全员核酸是否涉嫌违法？](/content/gnews/35/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [中国｜东航波音737客机坠毁 机上132人生死未卜](/content/gnews/36/README.md)
+ ` 關注組`
+
+### [中共称房价稳定，背后原因竟是开发商为抛售而大幅降价](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫情｜香港暂缓全民强制检测 放宽社交距离措施 惟疫苗通行证维持](/content/gnews/41/README.md)
+### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十二）](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中国｜疫情失控人人自危 上海一医院拟改建方舱 护士集体罢工抗议](/content/gnews/39/README.md)
  ` 關注組`
 
-### [疫情｜中国单日新增4331宗吉林占半 上海破纪录有758宗](/content/gnews/42/README.md)
+### [秘翻新闻｜美中开干之前 中共媒体将被制裁](/content/gnews/40/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [全球债券基金连续出现资金外流](/content/gnews/41/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [疫情｜香港暂缓全民强制检测 放宽社交距离措施 惟疫苗通行证维持](/content/gnews/42/README.md)
  ` 關注組`
 
-### [国际空间站：三名俄罗斯宇航员身着乌克兰国旗颜色出现在屏幕前](/content/gnews/43/README.md)
+### [疫情｜中国单日新增4331宗吉林占半 上海破纪录有758宗](/content/gnews/43/README.md)
+ ` 關注組`
+
+### [国际空间站：三名俄罗斯宇航员身着乌克兰国旗颜色出现在屏幕前](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [樱花时政┃上海疫情扩大 再次关闭迪士尼](/content/gnews/44/README.md)
+### [樱花时政┃上海疫情扩大 再次关闭迪士尼](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆| 中共国房企祥生控股公告美元债违约](/content/gnews/45/README.md)
+### [中日财经爆| 中共国房企祥生控股公告美元债违约](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/46/README.md)
+### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共才是世界上黑帮的幕后大佬](/content/gnews/47/README.md)
+### [中共才是世界上黑帮的幕后大佬](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄乌战争 普京必败](/content/gnews/48/README.md)
+### [俄乌战争 普京必败](/content/gnews/49/README.md)
  ` NFSC News`
 
-### [参议员罗恩·约翰逊:蝠奇应对 中共病毒的惨败,让我们的孩子在过去两年来一直生活在恐惧中](/content/gnews/49/README.md)
+### [参议员罗恩·约翰逊:蝠奇应对 中共病毒的惨败,让我们的孩子在过去两年来一直生活在恐惧中](/content/gnews/50/README.md)
  ` 美国政要直译推`
 
-### [联俄灭美是中共不变的企图](/content/gnews/50/README.md)
+### [联俄灭美是中共不变的企图](/content/gnews/51/README.md)
  ` NFSC News`
 
-### [义工综合素质高 随时应对救援前线突发事件](/content/gnews/51/README.md)
- ` NFSC News`
-
-### [新中国联邦乌克兰救援大巴工作暂告结束](/content/gnews/52/README.md)
+### [义工综合素质高 随时应对救援前线突发事件](/content/gnews/52/README.md)
  ` NFSC News`
 
 ### [美国向保加利亚提供史崔克步兵连强化北约东翼](/content/gnews/53/README.md)

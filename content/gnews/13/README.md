@@ -2,35 +2,261 @@
 ---
 
 
-## 中共批评西方对俄罗斯“无耻”的制裁 呼吁北约停止扩张
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2205808/)
+## 每日快报：联合国称近 1000 万乌克兰人现在因战争而流离失所
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2205834/)
 
-编译：七龙珠
+*作者：*文鸣
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-21-175928.jpg)图片来源：abc.es
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-外交部副部长乐玉成感叹，克里姆林宫感到被欧盟“逼到了角落”。
+# ***今日摘要***
 
-外交部副部长乐玉成周六表示，西方国家因俄罗斯入侵乌克兰而对俄罗斯实施的制裁是“无耻的”。他也提到了莫斯科对北约的看法，称欧盟不应进一步向东扩张，将俄罗斯这样的核大国被逼到“角落”。
+1. **[联合国称近 1000 万乌克兰人现在因战争而流离失所](https://www.zerohedge.com/geopolitical/nearly-10-million-ukrainians-now-displaced-war-says-un)**
+2. **[研究称TikTok 算法将用户引导至有关乌克兰战争的假新闻](https://www.theguardian.com/technology/2022/mar/21/tiktok-algorithm-directs-users-to-fake-news-about-ukraine-war-study-says)**
+3. **[乔拜登周五访问波兰讨论乌克兰危机](https://www.theguardian.com/us-news/2022/mar/21/joe-biden-visit-poland-ukraine-crisis)**
+4. **[最高法院大法官克拉伦斯·托马斯因感染住院](https://www.zerohedge.com/political/supreme-court-justice-clarence-thomas-hospitalized-infection)**
+5. **[欧洲可以在没有俄罗斯天然气的情况下度过整个夏天](https://www.zerohedge.com/energy/europe-can-survive-throughout-summer-without-russian-gas)**
 
-中共国尚未谴责俄罗斯对乌克兰的军事侵略，也未称其为入侵，只是对战争表示了“深切关注”。北京反对对俄罗斯的经济制裁，他说这些制裁是单方面的，没有得到联合国安理会的授权。
 
-乐玉成在北京的一次安全会议上说：“对俄罗斯的制裁越来越离谱”，他补充说，俄罗斯公民“毫无理由地被剥夺了外国资产。历史表明，制裁并不能解决问题，制裁只会伤害普通人，影响经济和金融体系，并使全球经济恶化。”
+# 重要事件
 
-俄罗斯称对乌克兰的侵略为“特别行动”，目的不是占领领土，而是摧毁其邻国的军事能力，抓捕其所谓的危险民族主义者。
+- **[03.20 zerohedge：联合国称近 1000 万乌克兰人现在因战争而流离失所](https://www.zerohedge.com/geopolitical/nearly-10-million-ukrainians-now-displaced-war-says-un)**
 
-据白宫称，在美国总统拜登和中共国国家主席习近平周五的电话中，拜登警告习近平，北京若给予莫斯科物质支持的“后果”。
 
-克里姆林宫则要求从法律上保证北约将停止扩张，并返回1997年的边界。
+根据联合国组织周五公布的数据，俄罗斯在过去三周内发动的毁灭性和致命袭击已迫使乌克兰近 1000 万人逃离家园。除了超过 3.1 名逃离乌克兰的难民之外，全球保护集群（GPC）——一个非政府组织、国际组织和联合国机构的网络——周五表示 ，近 650 万国内流离失所者（IDP）现在正在乌克兰境内寻求安全。国家的边界​​。拥有 4400 万人口，这意味着近四分之一的乌克兰人现在在国内或国外流离失所。
 
-新闻来源：[abc.es ][China critica las «indignantes» sanciones occidentales contra Rusia y exige a la OTAN frenar su expansión](https://www.abc.es/internacional/abci-china-critica-indignantes-sanciones-occidentales-contra-rusia-y-exige-otan-frenar-expansion-202203192142_noticia.html)
+GPC 的一份新文件指出，联合国机构国际移民组织提供的数据“很好地反映了乌克兰境内流离失所的规模——截至周三，国内流离失所者人数为 648 万”。“重要的是要注意，国内流离失所者的数字只是对乌克兰的军事进攻的人道主义影响的一方面，”该文件继续说道。“估计有超过 1200 万人被困在受灾地区或无法离开，原因是安全风险加剧、桥梁和道路遭到破坏，以及缺乏安全和住宿地点的资源或信息。”
 
-* * *
+文件补充说：“为平民安全撤离提供令人满意的安全保障的人道主义走廊仍未得到双方的保障，这仍然是乌克兰境内最紧迫和最迫切的需求。” 根据 联合国难民署（UNHCR）的数据，尽管在乌克兰境内旅行存在危险和困难，但最近几周仍有超过 310 万人前往邻国，其中约 90% 是妇女和儿童 。
 
-*审核：Aries的星
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
+为应对自二战以来欧洲最严重的难民危机，联合国难民署和联合国儿童基金会 (UNICEF) 正在附近六个国家推出“蓝点”计划：捷克共和国、匈牙利、摩尔多瓦、波兰、罗马尼亚、和斯洛伐克。正如联合国难民署解释的那样，蓝点“是一站式商店和安全空间，为儿童、家庭和其他有特殊需求的人提供最低限度的保护服务，以支持现有的服务和政府的努力。”“正如联合国难民署从一开始就警告的那样，如果局势恶化，国内流离失所和难民外流的速度和规模以及由此产生的人道主义需求只会增加，”该机构周五表示。
+
+在乌克兰境内，至少价值 1000 亿美元的基础设施已被 俄罗斯的袭击摧毁，由于生产和出口中断，这也严重 影响 了该国的内部食物链以及全球小麦和其他谷物的供应。“马里乌波尔和苏米等城市的人道主义局势极为严峻，居民面临严重甚至可能致命的食物、水和药品短缺，”联合国难民署表示。“针对平民和民用基础设施的有针对性的攻击以及缺乏安全通道正在增加保护风险，并对成千上万平民的生命构成严重威胁。”
+
+随着乌克兰人与俄罗斯入侵者作战，在防空洞中躲避，并于周四继续逃离，联合国政治负责人罗斯玛丽迪卡洛 要求 对平民伤亡和基础设施破坏负责，并要求“加强”外交。“必须有一个有意义的持续政治进程才能实现和平解决，”迪卡洛告诉联合国安理会。“数百万乌克兰人的生命以及整个地区乃至更远地区的和平与安全都取决于它。”
+
+- **[03.21 theguardian：研究称TikTok 算法将用户引导至有关乌克兰战争的假新闻](https://www.theguardian.com/technology/2022/mar/21/tiktok-algorithm-directs-users-to-fake-news-about-ukraine-war-study-says)**
+
+
+NewsGuard 的调查表明，滚动为您精选的页面会在 40 分钟内让用户接触到虚假信息。根据反错误信息媒体 NewsGuard 的一项调查，一个新的 TikTok 帐户可以在注册该应用程序的几分钟内显示有关乌克兰战争的虚假信息。
+
+这家监控网络新闻媒体可信度的公司进行了两项测试，以评估视频共享应用程序如何处理有关冲突的信息。它发现，一个新帐户除了滚动应用程序的算法策划的“为你”页面观看有关战争的视频外，什么都不做，将在 40 分钟内转向虚假或误导性内容。研究小组写道：“在 45 分钟的实验快结束时，分析师的提要中几乎全是与乌克兰战争有关的准确和虚假内容——没有区分虚假信息和可靠来源。”
+
+“在有关俄罗斯-乌克兰冲突的虚假叙述在网上泛滥之际，TikTok 的算法提供给我们的分析师的视频中没有一个包含任何有关消息来源可信度、警告、事实核查或其他信息的信息，这些信息可以增强信息可靠的用户。”向研究人员展示的虚假声明包括美国在乌克兰拥有生物武器实验室的谣言，以及普京在 3 月初举行的新闻发布会的镜头上被“photoshop”处理的指控。视频还声称假镜头是真实的，而真正的镜头是假的：据称“基辅鬼魂”击落俄罗斯喷气式飞机的视频是从电子游戏中截取的，而战争的真实视频则被亲俄人士谴责为假的帐户。
+
+研究人员在该组织的俄罗斯-乌克兰虚假信息跟踪中心表示：“TikTok 算法提供给分析师的视频中的一些神话此前已被确定为克里姆林宫的宣传。 ”为了进行测试，NewsGuard 的研究团队只是在应用程序上创建了新帐户，并花了 45 分钟滚动浏览 For You 页面，停下来观看任何看起来像是关于乌克兰战争的完整视频。
+
+尽管 TikTok 没有详细说明其算法如何权衡信号，但该公司表示，它考虑了观看各种视频所花费的时间，以及其他信号，包括喜欢、评论以及用户关注或屏蔽的人。通过观看出现在他们页面上的每个战争视频，研究人员将“训练”算法以显示有关冲突的新帐户内容，但没有提供任何支持误导性材料的具体信号。
+
+NewsGuard 表示，TikTok 的搜索功能同样融合了真假内容，在“乌克兰”、“俄罗斯”、“战争”、“基辅”和“顿巴斯”的前 20 名搜索结果中提供包含虚假或误导性声明的视频。TikTok 的一位发言人警告说，该实验只能就应用程序在现实世界中的工作方式提供有限的结论，因为它无法模仿标准的视图行为。
+
+他们补充说：“我们将继续通过增加安全和安保资源来应对乌克兰战争，同时努力消除有害的错误信息并帮助保护 TikTok 上的安全体验。” “我们还与独立的事实核查组织合作，以支持我们帮助 TikTok 保持安全和真实的地方的努力。”这款视频分享应用与战争相关的内容大幅增加，截至上周末，带有#Ukraine 标签的视频的浏览量已超过 300 亿。《纽约时报》的一份报告发现，按比例来说，TikTok 上的乌克兰内容超过了其平台上的内容的两倍多。
+
+- **[03.21 theguardian：乔拜登周五访问波兰讨论乌克兰危机](https://www.theguardian.com/us-news/2022/mar/21/joe-biden-visit-poland-ukraine-crisis)**
+
+
+欧洲之行将包括与北约、欧盟和 G7 盟国的会晤，但白宫表示总统不会访问乌克兰。白宫发言人珍·普萨基（Jen Psaki）周日晚间表示，乔·拜登（Joe Biden）将于周五前往波兰讨论国际社会对俄罗斯入侵乌克兰的反应，这引发了一场“人道主义和人权危机”。白宫表示，拜登将前往华沙与安杰伊·杜达总统举行双边会晤。
+
+波兰边防卫队周五表示，自 2 月 24 日俄罗斯入侵开始以来，已有超过 200 万难民从乌克兰进入波兰。白宫表示，拜登将在布鲁塞尔与北约盟国、七国集团领导人和欧盟领导人会面，讨论国际社会为支持乌克兰所做的努力后，他将前往波兰。白宫还表示，拜登将于美国东部时间周一上午 11 点与法国的埃马纽埃尔·马克龙、德国的奥拉夫·舒尔茨、意大利的马里奥·德拉吉和英国的鲍里斯·约翰逊举行电话会议，讨论他们对俄罗斯入侵乌克兰的协调反应。
+
+联合国数据显示，截至周四，约有 320 万人逃离乌克兰，这已成为二战以来欧洲增长最快的难民危机。联合国表示，从乌克兰进入波兰的 200 万人中，有一部分人已经转移到欧盟其他国家，但“据信大多数人仍在波兰”。周四，拜登将出席北约紧急峰会、七国集团会议和预定的欧洲理事会峰会，以讨论乌克兰问题，“包括跨大西洋努力向俄罗斯施加经济成本，为受暴力影响的人提供人道主义支持，并应对其他相关挑战。到冲突”，白宫说。周日早些时候，普萨基表示拜登不打算在本周的欧洲之行期间访问乌克兰。
+
+- **[03.21 zerohedge：最高法院大法官克拉伦斯·托马斯因感染住院](https://www.zerohedge.com/political/supreme-court-justice-clarence-thomas-hospitalized-infection)**
+
+
+据媒体报道，随着斯蒂芬·布雷耶大法官提名的继任者凯坦吉·布朗·杰克逊的确认战即将开始，据报道，长期保守的大法官克拉伦斯·托马斯因感染住院。据法院发言人称，托马斯是美国最高法院最资深的副法官，正在接受静脉注射抗生素治疗。他们说，他的症状正在缓解，预计会康复。
+
+官员们说，托马斯在出现流感样症状后于周五晚上被送往华盛顿特区的西布利纪念医院。法院官员表示，他们预计托马斯将在一两天内获释。据《今日美国》报道，SCOTUS 将于周一听取口头辩论，但法院表示托马斯不会参加（远程或亲自）。相反，他宁愿通过法庭记录和辩论音频“参与审议和讨论”。
+
+托马斯于 1991 年被乔治·H·W·布什总统提名为最高法院成员。在安妮塔·希尔在担任教育部和平等就业机会委员会的主管期间指控他性行为不端后，他的提名引发了一场有争议的确认战。
+
+- **[03.21 zerohedge：欧洲可以在没有俄罗斯天然气的情况下度过整个夏天](https://www.zerohedge.com/energy/europe-can-survive-throughout-summer-without-russian-gas)**
+
+
+能源咨询公司 Wood Mackenzie周五表示，如果俄罗斯向欧洲的天然气供应现在中断，欧洲将有足够的天然气在今年冬天结束和接下来的夏天持续使用，而不必削减需求 。
+
+据 WoodMac 称，由于天气温和、液化天然气 (LNG) 的更多到来以及从挪威的持续进口，到今年冬天结束时，欧洲的天然气储存水平可能会在五年范围内。如果俄罗斯继续流入，欧盟 (EU) 和英国将结束今年冬季的供暖季节，储存 270 亿立方米 (bcm) 的天然气，这是五年范围内的水平。
+
+尽管能源出口目前不是对俄罗斯制裁的一部分，但莫斯科可能会停止能源出口，作为对俄罗斯入侵乌克兰加强制裁的对策。Wood Mackenzie 欧洲天然气和液化天然气团队的首席分析师 Kateryna Filippenko 表示：“如果俄罗斯的天然气供应在 3 月中旬停止，那么今年冬季和夏季剩余时间的天然气储备就足够了，而且不会减少需求。”
+
+WoodMac 的 Filippenko 表示，虽然今年冬天和夏天对于没有俄罗斯天然气的欧洲来说可能会更容易一些，但 2022-2023 年冬季的一些需求削减将是不可避免的。从挪威和阿尔及利亚进口更多的天然气、更多的液化天然气、减缓煤炭的逐步淘汰以及推迟核电站的维护停工也可以为发电部门释放一些天然气，到年底可能会释放出 13 bcm根据伍德麦肯齐的说法，2022 年 10 月。
+
+在俄罗斯入侵乌克兰后，欧盟正在 全面改革其能源战略 ，欧盟委员会上周公布 了一项计划 ，从天然气开始，在 2030 年之前使欧洲从俄罗斯化石燃料中独立出来。欧盟将寻求天然气供应多样化，加快可再生天然气的推出，并在供热和发电中替代天然气——所有这些都可以在年底前将欧盟对俄罗斯天然气的需求减少三分之二，委员会说。此外，欧盟委员会将提议，到 10 月 1 日，欧盟的储气库必须被填满至少 90%。
+
+# 每日文宣
+
+![](http://himalayawashingtondc.org/wp-content/uploads/2022/03/0d836e7beae43a25060bbdcc6a7dbbdf-1024x576.jpeg)
+
+# 更多要闻链接
+
+1. **[东航载有 132 人的波音 737 客机从 30,000 英尺高空坠落](https://www.dailymail.co.uk/news/article-10634901/Boeing-737-passenger-jet-carrying-133-crashes-rural-China.html)**
+2. **[普京“将乌克兰人驱逐到难民营”：俄罗斯被指控犯有种族灭绝罪](https://www.dailymail.co.uk/news/article-10634885/Putin-deports-Ukrainians-camps-Russia-accused-putting-refugees-filtration-centres.html)**
+3. **[乌克兰 7 岁的“Let It Go”女孩在波兰体育场演唱《冰雪奇缘》两周后，在数万人面前高唱国歌](https://www.dailymail.co.uk/news/article-10635301/Ukraines-Let-girl-seven-sings-national-anthem-Polish-stadium-fleeing-Kyiv.html)**
+4. **[俄罗斯可怕的真空炸弹炸毁了马里乌波尔](https://www.dailymail.co.uk/news/article-10634903/Russias-terrifying-vacuum-bomb-blasts-Mariupol.html)**
+5. **[俄罗斯炮击基辅购物中心导致八人死亡](https://www.dailymail.co.uk/news/article-10634425/Renewed-Russian-shelling-leaves-civilians-dead-parts-Kyiv.html)**
+6. **[敦促瑞士引渡普京的情妇：乌克兰人呼吁将俄罗斯总统的体操爱好者从豪华的山区度假胜地驱逐出去](https://www.dailymail.co.uk/news/article-10635187/Ukrainians-call-Russian-Presidents-gymnast-lover-extradited-Switzerland.html)**
+7. **[美国悄悄协助乌克兰提供情报，避免与俄罗斯直接对抗](https://theintercept.com/2022/03/17/us-intelligence-ukraine-russia/?utm_medium=social&amp;utm_campaign=theintercept&amp;utm_source=twitter)**
+
+
+# 每日推特文摘
+
+
+
+3月19日，英国达人秀(British Got Talent)的评委Amanda Holden 在新中国联邦国旗前做了现场采访和报道。Amanda Holden在她的Instagram上发布了她在新中国联邦帐篷前拍的视频，分享给她的180万粉丝。 2017年由郭先生一己之力发起的爆料灭共革命已经成为全球瞩目的焦点，我们是消灭邪恶中共的新中国人。
+
+
+
+
+
+> 3月19日，英国达人秀(British Got Talent)的评委Amanda Holden 在新中国联邦国旗前做了现场采访和报道。Amanda Holden在她的Instagram上发布了她在新中国联邦帐篷前拍的视频，分享给她的180万粉丝。 2017年由郭先生一己之力发起的爆料灭共革命已经成为全球瞩目的焦点，我们是消灭邪恶中共的新中国人。 [pic.twitter.com/LhSeAKtQXm](https://t.co/LhSeAKtQXm)
+> — 增广贤文—(澳喜特战旅）🌻🌻 (@Bob20227) [March 21, 2022](https://twitter.com/Bob20227/status/1505851075144093696?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+法国宣布！冻结俄罗斯央行220亿欧元资产，还冻结了俄罗斯有关个人在法国机构账户中的资金约1500亿欧元。
+
+
+
+
+
+> 刚刚，法国宣布！冻结俄罗斯央行220亿欧元资产，还冻结了俄罗斯有关个人在法国机构账户中的资金约1500亿欧元。 [pic.twitter.com/4KtLZWHNsu](https://t.co/4KtLZWHNsu)
+> — 等风来…（澳喜特战旅)🌻🌻🌻 (@5e3NTMvNWpYqyYF) [March 20, 2022](https://twitter.com/5e3NTMvNWpYqyYF/status/1505691102330126336?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+最高法院前后三任副院长成为大贪官，全世界绝无仅有吧！
+
+
+
+
+
+> 最高法院前后三任副院长成为大贪官，全世界绝无仅有吧！ [pic.twitter.com/81DAooi3Kq](https://t.co/81DAooi3Kq)
+> — 荣剑 (@rongjian1957) [March 21, 2022](https://twitter.com/rongjian1957/status/1505872261957316608?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共战略专家透路，制造难民潮，借以冲垮欧洲社会经济，是俄罗斯和CCP的既定战略，普京和习近平期待着难民灾难在欧洲显现。
+
+
+
+
+
+> 中共战略专家透路，制造难民潮，借以冲垮欧洲社会经济，是俄罗斯和CCP的既定战略，普京和习近平期待着难民灾难在欧洲显现。 [https://t.co/rAbjp2WEqU](https://t.co/rAbjp2WEqU)
+> — 爱琴海漁夫 (@Fisher\_Gol) [March 21, 2022](https://twitter.com/Fisher_Gol/status/1505909132385468422?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+纽约时报承认亨特拜登的笔记本电脑内容真实存在。
+曾经媒体们铺天盖地洗地辟谣的fake news，如今又被证实为真
+
+
+
+
+
+> 大反转：纽约时报承认亨特拜登的笔记本电脑内容真实存在。
+> 曾经媒体们铺天盖地洗地辟谣的fake news，如今又被证实为真。[https://t.co/VrL32k0rbU](https://t.co/VrL32k0rbU) [pic.twitter.com/lOkkZOhQCl](https://t.co/lOkkZOhQCl)
+> — 维尼大帝 (@realEmperorPooh) [March 21, 2022](https://twitter.com/realEmperorPooh/status/1505910294668668929?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这一周或下一周，中国的所有的媒体平台都会受到美国的 制裁！
+
+
+
+
+
+> 这一周或下一周，中国的所有的媒体平台都会受到美国的 制裁！ [pic.twitter.com/MIPtNmDDRN](https://t.co/MIPtNmDDRN)
+> — HCNtoMoon (@HCNtoMoon) [March 20, 2022](https://twitter.com/HCNtoMoon/status/1505548819072643073?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+俄罗斯伞兵驾驶 BMD-2 车辆抢劫加油站
+
+
+
+
+
+> Russian paratroopers with a BMD-2 vehicle looting a gas station. [https://t.co/Cd7ctDq0eP](https://t.co/Cd7ctDq0eP) [pic.twitter.com/ESwnSdWxb5](https://t.co/ESwnSdWxb5)
+> — Rob Lee (@RALee85) [March 21, 2022](https://twitter.com/RALee85/status/1505845269560180736?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+乌克兰第八独立山地突击营从俄罗斯军队手中夺回一个村庄。空中有只眼睛看着，指挥地面部队进攻，实况转播战场，这一次真是开眼了！俄军差的不是一点半点。
+
+
+
+
+
+> 乌克兰第八独立山地突击营从俄罗斯军队手中夺回一个村庄。空中有只眼睛看着，指挥地面部队进攻，实况转播战场，这一次真是开眼了！俄军差的不是一点半点。 [pic.twitter.com/dZSVq4Oau1](https://t.co/dZSVq4Oau1)
+> — 乌克兰必胜(God bless Ukraine).传播真相 (@ozdfdz) [March 19, 2022](https://twitter.com/ozdfdz/status/1505214688380002305?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这个隔离在单位的，睡出了神圣的感觉！
+
+
+
+
+
+> 这个隔离在单位的，睡出了神圣的感觉！ [pic.twitter.com/yoMkVmo7Gz](https://t.co/yoMkVmo7Gz)
+> — Fairice (@yibingsg) [March 20, 2022](https://twitter.com/yibingsg/status/1505534812207022080?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+辉瑞一万盒毒药流入长春～望扩散不要吃这个辉瑞的毒药！！！
+
+
+
+
+
+> ⚠️辉瑞一万盒毒药流入长春～望扩散不要吃这个辉瑞的毒药！！！ [pic.twitter.com/tCAmzMvQTS](https://t.co/tCAmzMvQTS)
+> — Love水星🇺🇦东京樱花团 (@Free2021644) [March 21, 2022](https://twitter.com/Free2021644/status/1505900299953012737?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+*编辑：文鸣
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
