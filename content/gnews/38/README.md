@@ -2,54 +2,68 @@
 ---
 
 
-## 俄罗斯称其在乌克兰首次使用高超音速导弹
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2198222/)
+## 前贝莱德顾问告诉小肯尼迪：FDA 正在掩盖事实
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2198416/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip前贝莱德顾问告诉小肯尼迪：FDA-正在掩盖事实.png)图片来源：childrenshealthdefense.org
+在接受前贝莱德／黑岩（BlackRock）顾问爱德华·多德（Edward Dowd） 的采访时，罗伯特·肯尼迪和多德**讨论了为什么他们认为 COVID 疫苗制造商存在欺诈行为，而政府机构也知道这一点。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+在肯尼迪捍卫者播客（RFK Jr. The Defender Podcast）中采访前贝莱德顾问爱德华·多德时，他们讨论了来自 COVID-19 疫苗试验的欺诈性数据对财务和道德的影响。
 
-昨天，俄罗斯国营媒体《[今日俄罗斯](https://www.rt.com/russia/)》报道称，俄罗斯国防部发言人伊戈尔·科纳申科（Igor Konashenkov）在对媒体发表评论时说，本周五，入侵乌克兰的俄罗斯军队首次使用了最先进的“金扎尔”（Kinzhal）导弹。根据美国军事新闻网（[American Military News](https://americanmilitarynews.com/)）分析，目前Kinzhal导弹已经被证实，但俄罗斯国防部宣称的这次袭击的弹道尚未被证实。
+多德曾在 2002 年至 2012 年期间担任贝莱德的董事总经理，他说，“让我意识到欺诈行为的原因”是美国FDA宣布 75 年内不会公布试验数据。他知道有些不对劲了。
 
-此次袭击的目标是乌克兰西部伊万诺-弗兰科夫斯克市（Ivano-Frankivsk）德利亚廷（Deliatyn）村附近的一个大型地下军火库。该军火库是乌克兰军队的一个导弹和空中弹药仓库。
+多德告诉肯尼迪：
 
-俄罗斯国防部在推特上写道：“高精度导弹武器袭击摧毁了乌克兰武装部队的一个武器库，我们可以看到用武器和弹药击中地下机库的确切情况。”（[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
+“FDA 正在掩盖事实，事情已经发生了。给我的另一个提示是去年 11 月，我的一位来自生物技术行业的朋友发现，**辉瑞公司未能达到他们的全因死亡率要求。当 2020 年 11 月发生这种大肆宣传时**，**我们还没有做到这一点**，当时他们都对 95% 的功效感到兴奋。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-20-17.png)
+多德总结说，“FDA 并没有真正查看这些临床试验数据”，但由于政治压力或“可能是直接接受贿赂”而匆忙通过，但他说，无论哪种方式，疫苗都不应该获得批准。
 
-另一段视频则宣称是导弹飞过天空，然后击中远处的目标。（[KT CounterIntelligence：Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
+肯尼迪和多德讨论了试验数字是如何被歪曲的，以使疫苗看起来有效，而实际数据显示并非如此。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-21-26.png)
+肯尼迪说：
 
-根据俄罗斯军方的说法，Kh-47M2 Kinzhal，中文“匕首”（Dagger），是一种空中发射的高超音速弹道导弹。导弹可以用战斗机携带和发射，例如MiG-31K猎狐犬（Foxhound）拦截机和攻击机。Kinzhal可以达到10马赫的速度（约每小时7,672英里）。
+“这真正意味着，**你必须给 22,000 人注射疫苗才能防止一名 COVID 死亡。如果你要接种 22,000 支疫苗，你最好确保疫苗不会杀死任何人。因为如果他们杀了一个人，你就抵消了任何好处。**”
 
-据报道，这次Kinzhal高超音速导弹袭击的地点位于乌克兰西部德利亚廷村，该地距乌克兰与罗马尼亚的边境约46英里，距乌克兰与匈牙利的边境约88英里，罗马尼亚和匈牙利都是北约联盟的成员，这可能会引起邻近的北大西洋公约组织(NATO)盟国的担忧。
+肯尼迪描述了疫苗制造商如何操纵数据和新闻以实现利润最大化。他问多德他认为会有怎样的后果。
 
-过去一周，俄罗斯对乌克兰西部的攻击令北约官员感到震惊和警觉。俄罗斯的第一次攻击是3月13日针对北约在乌克兰的重要前沿基地——乌克兰西部城市亚沃里夫（Yavoriv），亚沃里夫位于波兰-乌克兰边境10英里范围内，直到上月俄罗斯入侵乌克兰之前，美国第7集团军训练司令部还在亚沃里夫开展行动。当时俄罗斯用几枚导弹袭击了该基地，据报道有些是高超音速的。在那次袭击中，有超过200人丧生，其中包括美国和英国的军事和情报人员，另有数百人受伤。许多人遭受了诸如截肢之类的灾难性伤害，并正在住院治疗。
+多德说：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2-1024x794-1.png)
+“我认为有足够的证据让人们调查临床数据中的欺诈行为，以及 FDA 在这方面的共谋……悲惨的部分是，**我们不得不等待现实世界的证据，而**现实世界的证据是如此可怕，必将会引起公众的强烈抗议。主流媒体也会参与掩盖，尽管现在还没有。你不能再隐瞒了。”
 
-分析认为，波兰、罗马尼亚和匈牙利都是北约联盟的成员，俄罗斯在乌克兰与北约成员国的边界附近发动袭击增加了误判的风险，这可能导致北约盟国受到打击。此类事件有可能触发北约第5条的规定，如果一个或多个北约成员国成为武装袭击的目标，北约其他成员将认为这是对所有成员国的攻击，并将采取集体自卫行动。如果俄罗斯的袭击导致北约援引第5条，它将使拥有核武器的俄罗斯与包括美国、英国和法国在内的拥有核武器的北约盟国发生冲突。美国总统乔·拜登和北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）已经警告说，北约将“保卫北约的每一寸领土”。
+多德还告诉肯尼迪，“**投资者正在慢慢意识到事情不对劲”，一些人正在出售他们在辉瑞和莫德纳的股份。**
 
-俄罗斯使用高超音速武器也可能引发对核威慑的担忧。与其他高超音速导弹一样，Kinzhal具有核能力，并且能够从战斗机上发射，使其能够靠近目标，同时减少发射后被探测的时间。俄罗斯声称Kinzhal也有机动避免拦截的能力。
+他还表示，当保险业意识到欺诈行为时，将会产生更大的后果：
 
-本周四，美国国防情报局(U.S. Defense Intelligence Agency，简称DIA)局长斯科特·贝里尔（Scott Berrier）中将告诉众议院军事委员会说，俄罗斯常规军事力量不断遭受的损失可能将迫使普京转向核威胁来支持其外交政策立场和维护其国内独裁统治。
+“有一个行业被骗了。这就是保险业。他们目前正在为因产品致死而导致的过多死亡买单。他们将支付多年因疫苗伤害而致残的费用。我认为，一旦他们意识到发生了什么，他们就不会忍受这种情况。”
 
-参考数据：
+肯尼迪描述了保险业如何忽视美国的自闭症流行和健康状况的普遍恶化。他请多德解释为什么保险业高管会对 COVID 疫苗引起的疾病和死亡做出不同的反应。
 
-[Russia fires hypersonic missiles in Ukraine](https://www.rt.com/russia/552284-kinzhal-hypersonic-missile-ukraine/)
+多德说：
 
-[Russia says it used hypersonic missile for first time in Ukraine](https://americanmilitarynews.com/2022/03/videos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine/?utm_source=breaking_email&amp;utm_campaign=breaking_mailchimp&amp;utm_medium=email&amp;utm_source=Master_List&amp;utm_campaign=0563b8b5c0-EMAIL_CAMPAIGN_2022_03_19_06_51&amp;utm_medium=email&amp;utm_term=0_9c4ef113e0-0563b8b5c0-62772342&amp;mc_cid=0563b8b5c0&amp;mc_eid=899bfadf04)
+“保险业没有为此定价，这就是问题所在。所以这是一个灾难性的数字，而且会造成多年的伤害，随着时间的推移，他们会损害他们的资本化……他们刚刚毒杀了2.2亿美国人。这简直就是遥不可及的数字。”
 
-[Russia likely to threaten nuke attacks, says US defense intel chief](https://americanmilitarynews.com/2022/03/russia-likely-to-threaten-nuke-attacks-says-us-defense-intel-chief/)
+肯尼迪和多德讨论了为什么围绕 COVID 的虚假叙述即将崩溃。
 
-[Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
+肯尼迪评论，人们不愿怀疑医学界和制药业：
 
-[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
+“当我试图向亲人、家人和朋友解释时，你会遇到很大的阻力，至少我会遇到——他们说，‘我们不相信，有一百万个医生，你是说他们都参与了阴谋？他们都知道他们正在给人们这种毒药，并且他们正在杀人？不可能发生这种情况。”
 
-[Russia Exploits Ukraine’s Western Flank – Target of One Bombing was NATO-Connected Training Facility in Ukraine](https://www.thegatewaypundit.com/2022/03/russia-exploits-ukraines-western-flank/)
+“我要说的是，医生们不知道——他们相信CDC和 FDA 告诉他们的所有信息。他们中很少有人真正阅读同行评议的出版物。”
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+“我们正在独立思考，并在质疑当局。”
+
+**新闻来源**：[childrenshealthdefense.org][Former BlackRock Advisor Tells RFK, Jr.: ‘FDA Is in on the Cover-Up’](https://childrenshealthdefense.org/defender/chd-tv-rfk-jr-defender-blackrock-edward-dowd-fda-cover-up/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=e099eb75-edfb-43b7-a156-efd9cfe8464f)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-12.jpeg)
+
+
 
  
 

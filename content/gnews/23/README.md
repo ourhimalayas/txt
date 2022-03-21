@@ -2,53 +2,25 @@
 ---
 
 
-## 泽连斯基说若与俄谈判破裂第三次世界大战就会发生
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2199307/)
+## 香草山翻译部周刊|2022年3月20日第40期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2199520/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Z.jpg)rightwirereport.com
-乌克兰总统泽连斯基周日（3月20日）表示，他已经 “准备好 ”与俄罗斯总统普京进行谈判，但如果谈判破裂，就会导致第三次世界大战的发生。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/CN0320-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-“我已经准备好与他进行谈判了。在过去的两年里，我已经准备好了。我认为，没有谈判，我们就无法结束这场战争。”泽伦斯基告诉CNN记者。
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-“我认为，我们必须利用任何形式，任何机会，以便有可能进行谈判，有可能与普京交谈。但如果这些尝试失败了，将意味着这是第三次世界大战。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-19.jpeg)
 
-最近几天，随着俄罗斯对乌克兰的入侵接近第四周，泽连斯基敦促进行更多谈判。在周六发布的视频信息中，他呼吁 “毫不拖延地 ”进行谈判，并警告说否则俄罗斯的损失将是 “巨大的”。
-
-泽连斯基的评论是在土耳其声称莫斯科和基辅接近于在关键点上达成协议时发表的。尽管克里姆林宫在披露其至少两次对乌克兰目标使用高超音速 “金扎尔（Kinzhal ）”导弹后转向了 “更具破坏性的火炮”。
-
-“我们一直坚持谈判。我们一直提供对话，提供和平的解决方案。”他说，“而我希望每个人现在都能听到我的话，特别是在莫斯科。现在是见面的时候了，是谈的时候了，现在是恢复乌克兰的领土完整和正义的时候了。”
-
-乌克兰的优先事项是“结束战争，安全保障，主权，恢复领土完整，对我们国家的真正保障，对我们国家的真正保护。”
-
-俄罗斯的优先事项，在上周与土耳其的通话中提出的包括两类要求，乌克兰必须保持中立，不申请加入北约。这一点泽连斯基已经承认了。乌克兰还需要经历一个裁军过程，以确保它不会对俄罗斯构成威胁，并使其武装部队 “去纳粹化”。
-
-土耳其政府高级顾问易卜拉欣·卡林（Ibrahim Kalin）表示，俄罗斯的第二类要求将是更大的困难所在，这需要普京和泽连斯基进行面对面的谈判。
-
-卡林先生对这些问题说得不太具体，只是说它们涉及乌克兰东部顿巴斯的地位，其中部分地区已经脱离了乌克兰，并强调其俄罗斯性以及克里米亚的地位。
-
-BBC称，尽管卡林先生没有详细说明，但人们的假设是，俄罗斯将要求乌克兰政府放弃在乌克兰东部的领土。这将会引起很大的争议。
-
-周日，泽连斯基告诉CNN，如果乌克兰 “是北约成员，战争就不会开始”。
-
-“我希望为我的国家，为我的人民得到安全保障。如果北约成员愿意看到我们加入联盟，那就立即行动吧。因为人们每天都在死亡。”他继续说，自入侵开始以来，他一直对北约的援助表示感谢。
-
-**快评**：俄乌战争每时每刻牵动世界人的心。泽连斯基穿着墨绿色T恤出现在每一个有希望帮助他的国家的远程会议中，他已经成为乌克兰人的英雄。
-
-他最新的视频已经发出了要谈判、要普京结束战争的信息。今天郭先生大直播里透露，还需要4-6周时间，俄乌战争应该结束。
-
-挑起战争者就没有正义的，都是独裁者为了一己私利将老百姓和世界拉入灾难的恶行。疫苗灾难还在制造更大的灾难。
-
-快醒来吧，全世界被蒙蔽的普通人，一起来消灭共产主义和独裁者。
-
-
-
-参考链接：
-
-[https://edition.cnn.com/2022/03/20/politics/zelensky-putin-ukraine-negotiations-war-cnntv/index.html](https://edition.cnn.com/2022/03/20/politics/zelensky-putin-ukraine-negotiations-war-cnntv/index.html)
-
-[https://www.zerohedge.com/geopolitical/zelensky-says-wwiii-assured-if-negotiations-putin-break-down](https://www.zerohedge.com/geopolitical/zelensky-says-wwiii-assured-if-negotiations-putin-break-down)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
+**更多资讯，更多关注**
+[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
+[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
 
  
 

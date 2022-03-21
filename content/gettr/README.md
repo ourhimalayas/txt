@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 12:30 AM (UTC)`
+
+2022.03.20 晚 《新中国联邦新闻》美国志愿者鼓励新中国联邦和全体华人早日灭共；深度解密澎博社前线采访的险恶目的
+![img](https://media.gettr.com/group5/origin/2022/03/21/00/235cce7c-667e-6b6d-e3f2-1e1ef5e27f60/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/21/2022 12:26 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月19日第15天当日救援统计：<br/>巴士救援难民：171人<br/>Medyka救援站接待：约400人<br/>巴士发车：3次<br/><br/>累计救援总计：<br/>巴士救援难民：2009人<br/>Medyka救援站接待：约7057人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 15 - Date: March 19, 2022 :<br/><br/>Refugees Rescued by Bus: 171 people<br/>Medyka Rescue Station Reception: about 400 people<br/>Bus Departures: 3 times<br/><br/>Total：<br/>Refugees Rescued by Bus: 2009 people<br/>Medyka Rescue Station Reception: about 7057 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group29/getter/2022/03/21/00/6c63f4c1-4bba-2ddb-6a67-425d1c745b43/2d44a66fe758851199c523da8e8ff654.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ningnan 3/20/2022 11:39 PM (UTC)`
@@ -146,20 +160,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.20 EST
 ![img](https://media.gettr.com/group42/origin/2022/03/20/09/c97e1988-3cca-bd85-7d2e-2c402c64ccac/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/20/2022 9:50 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援基地前线报导
-![img](https://media.gettr.com/group17/origin/2022/03/20/08/79094979-2e57-c8bf-7716-55c05b777821/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/20/2022 6:42 AM (UTC)`
-
-【Ukraine Rescue】 03/19/2022 Nicole: the Ukraine humanitarian relief operation Rescue Mission sponsored by ROLF and NFSC receives more attention from Chinese; Medyka refugee camp has become an anti-communist alliance bringing together forces of justice from around the world.<br/><br/>【乌克兰救援】03/19/22 妮可战友：新中国联邦乌克兰人道救援行动受到更多华人的关注；梅迪卡难民营已经成为汇聚全世界正义力量的反共同盟。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group4/getter/2022/03/20/06/0413e6f1-a7c9-ae41-3298-887affffd798/out.jpg)
 
 ---
 
