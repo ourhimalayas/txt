@@ -2,24 +2,27 @@
 ---
 
 
-## 俄军发射高超音速导弹 俄乌战争恐升级
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201603/)
+## 俄军密集空袭乌克兰南部造船重镇尼古拉耶夫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201604/)
 
-作者：纽约香草山农场 – 文鹰
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月19日外媒报道，俄罗斯国防部发言人证实，俄军使用“匕首”高超音速弹道导弹，摧毁了乌克兰西部一处地下乌军导弹储备库。袭击的地点位于伊万诺-弗兰科夫斯克地区，距离北约成员国罗马尼亚边境30公里。
+3月19日，国外媒体报导，乌克兰地方首长表示，俄罗斯军方当天密集空袭了乌克兰南部造船重镇尼古拉耶夫。
 
-该发言人表示，俄军的高超音速“匕首”导弹射程超过1000公里，飞行速度是音速的10倍，可以快速突破防空系统。此次攻击用的是常规弹头，但该导弹也可携带核弹头。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-65.jpg)
-2021月12月，俄罗斯国防部宣布，单独组建空射航空团。用米格-31k飞机携带“匕首”高超音速导弹。
+前一天清晨，当地一座军营刚遭到致命火箭攻击，多栋建筑物倒塌。当时营房内有不到200名士兵正在熟睡，至19日已至少发现50具尸体，具体伤亡数字不明。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-66.jpg)
+乌克兰当局表示，尼古拉耶夫是黑海西北岸战略军港敖德萨的重要屏障，敖德萨位于尼古拉耶夫西方约130公里处。
 
-分析人士指出，俄军使用高超音速导弹攻击乌克兰，预示着普京在谈判破裂的情况下，可能加速侵乌战争升级，进一步威胁整个欧洲地区的安全。
+尼古拉耶夫州长维塔利金在一段视频中证实俄军偷袭了正在熟睡中的乌克兰士兵，目前救援工作正进行中，正在等待来自乌克兰武装部队的官方信息。
 
-参考链接：[Russia Claims It Used Hypersonic Missiles in Ukraine War for the First Time](https://www.newsweek.com/ukraine-russia-hypersonic-kinzhal-weapons-1689720)
+参考链接：
+1.. [Russian troops enter central Mariupol, air strikes take place in Mykolaiv](https://www.france24.com/en/europe/20220319-live-ukraine-s-zelensky-calls-for-fresh-talks-russia-says-entered-besieged-mariupol-centre)
+2. [Dozens dead after shelling of military barracks in south Ukraine: witnesses to AFP](https://twitter.com/AFP/status/1505155059646185474?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505170089498267655%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)
+3. [rescuers and doctors trying to save a little girl who was under the rubble after a rocket attack on a military base in](https://twitter.com/nexta_tv/status/1504941548651352065?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1504941548651352065%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)[Mykolaiv](https://twitter.com/hashtag/Mykolaiv?src=hashtag_click)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：Jack Li 文阳/飞虹
+总编/编辑/审核：飞虹
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

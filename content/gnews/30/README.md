@@ -2,24 +2,28 @@
 ---
 
 
-## 中共内战外战大戏即将开始
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201600/)
+## 千亿房企遭遇境内境外债务双重违约
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201601/)
 
-作者：纽约磐石农场—在远方
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月19日，郭文贵先生发布盖特视频表示，中共的内战、外战大戏即将开始。
+3月18日，中共境内千亿市值的房企阳光城，由于未能足额偿付累计本息50.28亿元人民币的加速到期债务，正式宣告境内境外双重债务危机。这是自去年年初，阳光城宣布境外债务违约后，正式宣布其内外债务本金、利息的实质性违约。
 
-郭先生说，世界所有的邪恶和灾难，离开虚假就不能成立。中共以假治国、以骗治国，洗脑中共国人，致使很多人不辨是非、黑白、善恶、对错，是导致中共国的大邪、大恶、大灾的根本原因。许多人甚至对香股回到35000点抱有幻想，而侥幸往往是走向灾难的开端。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-63.jpg)
-郭先生透露，其两位友人的公司，近期因世界供应链的问题及能源价格暴涨，经营难以为继。近日疫苗灾难在全世界各国，普遍引发了恐慌和大量非正常死亡事件。由于中共在背后支持俄罗斯侵略乌克兰，恐怕会导致海外排华事件发生。习近平和普京由于独裁和私欲，会绑架两国人民做他们的炮灰。中共即将对台湾的攻击，也自认为是内部事务，国际社会无权插手。
+今年2月19日，阳光城宣布，企业的可自由动用资金已经枯竭，预计会出现大规模交叉违约。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-64.jpg)
+然而，在宣布双重债务违约的当日，阳光城股票居然在中共A股涨停。中共的官方宣传机器鼓吹其得力的调控机制促成了危机中的房企“涨停”。
 
-文明与野蛮的区别就在于是否同等尊重对待生命。文明社会制度下，无论人或动物，任何生命都应当得到尊重，伤害生命就应当受到惩罚。文明社会即使执行死刑，也会充分保障死刑犯的人格与尊严。而中共对其内部人士同样残忍。据中共内部人士透露，对孙力军、傅振华、孟建柱、和王岐山等人，将来极有可能通过注射毒针来执行死刑。
+郭文贵先生在17日《大直播》中揭露，近期一些房地产股票的涨停，系中共当局维持经济繁荣假象，并妄图继续收割大陆和海外资本的手段。
 
-参考链接：[3月19号：尊敬的战友们好中共内战．外战的大戏即将开始！](https://www.gettr.com/post/p10rq15972f)
+参考链接：
+1. [阳光城50亿境内债务违约，股价当日涨停](https://finance.sina.com.cn/roll/2022-03-18/doc-imcwiwss6821485.shtml)
+2. [阳光城：可自由动用资金枯竭，或现大规模交叉违约](https://m.yicai.com/news/101322346.html)
+3. [中概股集体狂飙、A股继续反弹 有股民灵魂拷问：为何我割肉后就涨了？](http://finance.eastmoney.com/a/202203172314121849.html)
+4. [阳光城玄机：自曝50多亿债务逾期，为何突然被追涨停？](https://www.163.com/dy/article/H2P38PG005391O4W.html)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：文真/飞虹
+总编/编辑/审核：飞虹/文恩
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

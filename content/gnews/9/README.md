@@ -2,20 +2,20 @@
 ---
 
 
-## 俄罗斯把关乎生命的是否开放疏散通道当作谈判筹码！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2202424/)
+## 樱花时政┃上海疫情扩大 再次关闭迪士尼
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2202470/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-142.png)（图片源自本文链接）
-日本雅虎网站3月21日消息，据俄罗斯国家媒体报道，俄罗斯国防部向已被摧毁的乌克兰东南部城市马里乌波尔发出最后通牒，要求其在21日凌晨5点前投降。而且只有马里乌波尔投降之后，才为其开放疏散通道。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-43.jpg)[图片来源](https://sites.google.com/site/s105106311/research-lan-qiu-ri-ben/di-shi-ni)
+上海迪士尼度假区3月20日透露,,由于中国国内疫情正在扩大,将于21日起暂时关闭此设施。
 
-乌克兰副总理别列丘克告诉当地媒体，”投降不是我们的选择”。并对连儿童都带走的俄罗斯非人道行为表示非常愤慨，并呼吁立即开放疏散通道。
+公司表示“由于现在的(新型冠状病毒)扩大,以上海迪士尼乐园、迪士尼城、愿望之星公园为首的上海迪士尼度假区将于3月21日暂时关闭”。在监测感染扩散情况的同时,与地方当局协商,确定恢复营业日程后会迅速通知。
 
-笔者想站在第三方立场上说句公道话：是否开放疏散通道，是人道问题！这种人命关天的问题，无论如何是不应该当作谈判筹码的！
+信息来源：
 
-信息来源：[ウクライナ副首相「選択肢にない」マリウポリ降伏の最後通牒を拒否（ABEMA TIMES） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/bd15fa1e6a08a45a34030d218e63edd5d57d5066)
+[上海ディズニーリゾート、21日から一時閉鎖　新型コロナ拡大で](https://jp.reuters.com/article/health-coronavirus-china-walt-disney-idJPKCN2LI066)
 
-*校对：东京樱花团/逢⑦必变*
+*校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
