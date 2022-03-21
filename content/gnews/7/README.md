@@ -2,23 +2,42 @@
 ---
 
 
-## 乌情报局揭精英们计划暗杀普京 接班人已选定
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2202953/)
+## 全球债券基金连续出现资金外流
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203017/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8d802b74-361f-4a42-830e-b0b410cc5e7f.jpg)图片来源：民视新闻网
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-根据乌克兰情报来源指出，目前有俄罗斯商界、政界人士正在计划要暗杀总统普京，并已有新总统人选。乌克兰军事情报机构指出，这群俄罗斯精英不但计划好要暗杀普京，且已选好总统接班人，已恢復俄罗斯和各国的经济来往。
+整理：gardeniahu
+编辑：围剿维尼熊
 
-简评：据郭文贵先生爆料称，过了2022年，再想见到普京和习近平那是不可能了。如今乌克兰情报指出，俄罗斯的精英们正在计划暗杀普京换个新总统，这恰恰从侧面映证了郭文贵先生爆料的准确性！两位独裁者时日无多，不光可以在未来停止战争，也是世界之幸！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022321W0101)
 
-撰稿/发布：一叶知秋
+根据路透社报道，截至3月16日当周，全球债券基金连续第十周出现资金外流，因美国通胀水平上升使人们预期美联储需要采取更积极的行动。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+美联储周三宣布升息25个基点，并表示将比预期更积极地加息以抑制通胀。
+
+欧洲央行宣布将在第三季度结束资产购买，也对市场情绪产生了影响。
+
+欧洲的债券基金出现了价值91.1亿美元的资金外流，而美国和亚洲债券基金分别出现了72.4亿美元和4亿美元的净卖出。
+
+全球高收益基金损失48.8亿美元，而中短期基金和政府债券基金分别出现39.5亿美元和8.8亿美元的外流。
+
+全球非必需消费品、科技和工业类基金分别流出12.8亿、8.8亿和7.9亿美元，而医疗保健和采矿类基金分别吸引12亿和11亿美元的资金流入。
+
+在大宗商品基金中，贵金属基金连续第九周录得资金流入，净流入13.9亿美元，能源基金吸引到1.29亿美元。
+
+通过对24062只新兴市场基金的分析，股票基金流出54亿美元，而债券基金流出13.8亿美元。
+
+参考链接：[图表新闻：全球债券基金连续第十周资金外流](https://www.reuters.com/article/graphic-global-bond-fund-capital-flow-03-idCNKCS2LI04M)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

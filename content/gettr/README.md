@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 9:18 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
+![img](https://media.gettr.com/group12/origin/2022/03/21/08/c7540332-c8b5-776c-54e6-6f47a104b5a8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/21/2022 6:08 AM (UTC)`
 
 3/20/2022 Miles Guo: Dictators will not give up their grip on power even if they are in the face of death. Same with Putin and Xi Jinping. People should not cherish any illusion about politicians. The separation of powers, rule of law, and democratic system of the United States are so great! That’s why the US has been able to attract the elites from all over the world to immigrate to the country.<br/><br/>3/20/2022 文贵直播: 独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外；人民不要对政客抱有丝毫幻想；美国的三权鼎立、法治和民主的系统太伟大了，所以才能吸引全世界精英移民美国
@@ -149,13 +156,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 The Chinese Communist Party is the root cause of the world's disasters. Only by eliminating the Chinese Communist Party, can we save all of humanity.<br/>We are at the Ukraine rescue frontline, telling the world with our actions that we love peace, that the CCP cannot represent the Chinese people, and that we are the new Chinese who are taking down the evil CCP.<br/>We have set up large, warm and well-equipped tents at the frontline to give a helping hand to the refugees, especially for mothers and children in need, providing them with a warm and safe harbour.<br/>Fellow chinese people and international friends in need of rescue, please contact us.<br/>中共是世界灾难的根源，只有消灭中共才能拯救全人类。我们在乌克兰救援前线，用行动告诉世界我们热爱和平、中共不代表中国人，我们是消灭邪恶中共的新中国人。我们在前线搭起了资源充足，温馨的大帐篷，向乌克兰救援前线需要帮助的难民、母亲、儿童施以援手，为他们提供温暖安全的港湾
 ![img](https://media.gettr.com/group35/origin/2022/03/20/22/22b32e49-c97a-1d9c-fabe-c746dc712ea0/out.jpg)
-
----
-
-`@miles 3/20/2022 9:58 PM (UTC)`
-
-3/20/2022 Miles Guo: There is virtually no chance that Xi Jinping’s invasion of Taiwan will lead to WWIII! The US will definitely be the winner, and that is only a matter of how much the victory will cost. Iran’s Ali Khamenei and Pakistan’s Imran Khan, who are following the CCP, are going to be taken out soon!<br/><br/>3/20/2022 文贵直播：习近平打台湾引发第三次世界大战的可能性微乎其微！美国毫无悬念会成为赢家，只是代价有多大的问题；跟共产党走的伊朗的哈梅内伊和巴基斯坦的伊姆兰·汗都要被干掉！<br/>
-![img](https://media.gettr.com/group33/getter/2022/03/20/21/bf79301d-fc3f-9696-4990-8e11d1cff450/out.jpg)
 
 ---
 

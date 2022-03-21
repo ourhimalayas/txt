@@ -2,24 +2,43 @@
 ---
 
 
-## 美国政府悬赏500万美元征集俄国寡头资产信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2202954/)
+## 泽连斯基对以色列国会发表谈话，呼吁以色列协助乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203018/)
 
-#### 翻译/撰稿：zzballack
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-103.jpg)图片来源：CNBC
-据《布雷特巴特新闻网》（Breitbart News）3月20日报道，美国财政部3月16日宣布启动“盗国资产追回奖励计划”（Kleptocracy Asset Recovery Rewards Program），追缴俄罗斯寡头在美国的资产。作为该计划的一部分，“扣押和冻结”（seize and freeze）计划规定，任何美国公民，只要提供的信息导致与俄罗斯寡头有直接关联的资产被限制、扣押或者没收，那么将被美国政府奖励500万美元。
+整理：gardeniahu
+编辑：围剿维尼熊
+![](https://assets.gnews.org/wp-content/uploads/2022/03/21-4.png)
+据路透社报道，乌克兰当地政府表示，俄罗斯和乌克兰军队周日为控制港口城市马里乌波尔(Mariupol)展开了战斗。
 
-该计划在莫斯科出兵乌克兰之前就已成型，并在川普政府时期获得国会批准，成为国防开支计划的一部分。
+夺取马里乌波尔将有助于俄罗斯军队获得通往克里米亚半岛的陆地通道，俄罗斯早在2014年已从乌克兰手中夺取了克里米亚。
 
-由于俄乌战争仍在继续，只要被美国政府认为是在资助俄罗斯，俄国寡头的在美资产将被扣押，它可以包括寡头名下的任何金融资产。
+自俄罗斯2月24日入侵乌克兰以来，马里乌波尔已遭受最猛烈的几次轰炸。40万居民当中仍有许多人受困于当地，几乎没有任何食物与水电供应。
 
-律师乔·瓦伦蒂（Joe Valenti）告诉《今日美国》（USA Today），该计划是不同政府机构协调努力的一部分，目的是“使用他们能够使用的所有工具，为经济制裁投入最大力量”。要想获得新计划的奖励，举报人必须提供导致“与外国政府腐败有关”的被盗资产被限制、扣押、没收或归还的信息。这些资产可以包括任何有价值的东西：房地产、艺术品、珠宝、金融资产以及超级游艇、私人飞机等交通工具。
+周日，马里乌波尔地区负责官员Pavlo Kyrylenko说，该市内的战斗仍在继续。
 
-美国在同一天还宣布成立“俄罗斯精英、代理人及寡头”（REPO）多边工作组，以便加强与澳大利亚、加拿大、德国、意大利、法国、日本、英国和欧盟的协调与合作，收集、共享俄罗斯寡头相关信息，以便采取制裁、冻结及扣押资产、起诉等行动。
+与此同时，乌克兰总统泽连斯基呼吁以色列协助击退俄罗斯对乌克兰的攻击。
 
-新闻来源：[U.S. Government Offers $5 Million Reward for Info on Russian Oligarchs’ Assets](https://www.breitbart.com/politics/2022/03/20/snitch-on-russian-oligarchs-win-cash-rewards-of-5-million-from-u-s-government/)
+泽连斯基通过视频连线向以色列国会发表谈话，对以色列不愿向乌克兰出售其铁穹(Iron Dome)导弹防御系统提出质疑，他还呼吁拯救乌克兰人与乌克兰犹太人的生命。
+
+俄罗斯则呼吁马里乌波尔的乌克兰军队放下武器，并承诺让放下武器的乌克兰人安全离开该市。人道主义通道将在莫斯科时间周一10点(0700 GMT)开放。
+
+俄罗斯周六在乌克兰首次部署了高超音速导弹，并称这次打击摧毁了一个地下导弹和飞机弹药库。
+
+以色列总理贝内特(Naftali Bennett)多次与泽连斯基和普京通话，试图结束这场冲突。
+
+土耳其和以色列一样，也试图对这场战争进行调解。
+
+参考链接：[综述：泽连斯基呼吁以色列提供导弹防御系统 马里乌波尔战火猛烈](https://www.reuters.com/article/ukraine-urges-israel-missile-defense-032-idCNKCS2LI02B)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

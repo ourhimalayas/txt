@@ -2,31 +2,53 @@
 ---
 
 
-## 俄军密集空袭乌克兰南部造船重镇尼古拉耶夫
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201604/)
+## 电视台抗议的俄罗斯记者：“这是普京的战争，不是人民的战争”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2202276/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月19日，国外媒体报导，乌克兰地方首长表示，俄罗斯军方当天密集空袭了乌克兰南部造船重镇尼古拉耶夫。
+翻译：文乐
 
-前一天清晨，当地一座军营刚遭到致命火箭攻击，多栋建筑物倒塌。当时营房内有不到200名士兵正在熟睡，至19日已至少发现50具尸体，具体伤亡数字不明。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-66.jpg)
-乌克兰当局表示，尼古拉耶夫是黑海西北岸战略军港敖德萨的重要屏障，敖德萨位于尼古拉耶夫西方约130公里处。
+对克里姆林宫入侵乌克兰进行现场抗议的莫斯科电视台编辑周日表示，这场冲突是“普京的战争，而不是俄罗斯人民的战争”。
 
-尼古拉耶夫州长维塔利金在一段视频中证实俄军偷袭了正在熟睡中的乌克兰士兵，目前救援工作正进行中，正在等待来自乌克兰武装部队的官方信息。
+上周，记者玛丽娜·奥夫扬尼科娃（Marina Ovsyannikova）冲入俄罗斯主要国家新闻广播的片场，上面用英语和俄语写着“不要战争”和“不要相信宣传，他们在骗你”的反战标语。
 
-参考链接：
-1.. [Russian troops enter central Mariupol, air strikes take place in Mykolaiv](https://www.france24.com/en/europe/20220319-live-ukraine-s-zelensky-calls-for-fresh-talks-russia-says-entered-besieged-mariupol-centre)
-2. [Dozens dead after shelling of military barracks in south Ukraine: witnesses to AFP](https://twitter.com/AFP/status/1505155059646185474?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505170089498267655%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)
-3. [rescuers and doctors trying to save a little girl who was under the rubble after a rocket attack on a military base in](https://twitter.com/nexta_tv/status/1504941548651352065?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1504941548651352065%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Faopl%2F202203200007.aspx)[Mykolaiv](https://twitter.com/hashtag/Mykolaiv?src=hashtag_click)
+当时，该台的主播第一频道正在播报新闻。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+奥夫扬尼科娃被指控犯有“行政罪行”并被罚款约 280 美元，至少目前如此。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+然后，她与乔治·斯蒂芬诺普洛斯(George Stephanopoulos)一起出现在美国广播公司的“本周”节目中，告诉全世界俄罗斯人不支持战争。
 
+“战争一开始，我就吃不下东西，睡不着觉”，奥夫扬尼科娃说。“我们在节目中展示的与现实中发生的非常不同”。
+
+“我们国家频道上的宣传越来越扭曲。俄罗斯人民真的反对战争。这是普京的战争，而不是俄罗斯人民的战争。”
+
+奥夫扬尼科娃说，当战争爆发时，她和她的同事都感到震惊，并且她意识到她必须在电台报道一周后做一些事情。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-68.jpg)玛丽娜·奥夫扬尼科娃因公开抗议俄罗斯入侵乌克兰而被指控犯有“行政罪行”并被罚款约280美元。法新社通过盖蒂图片社
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2314-edited.png)上周，奥夫扬尼科娃跑进了俄罗斯主要国家新闻广播的片场，上面写着“不要战争”和“不要相信宣传，他们在这里骗你”的反战标语。法新社通过盖蒂图片社
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2315-edited.png)奥夫扬尼科娃说，俄罗斯入侵乌克兰是“普京的战争”，而不是俄罗斯人民的战争。EPA/ATEF 萨法迪
+
+“我能向俄罗斯人民表明这只是宣传，揭露这种宣传的本质，并可能刺激一些人大声反对战争”，她谈到她决定冲进片场时说。
+
+奥夫扬尼科娃鼓励更多的俄罗斯人大声疾呼并表达他们的异议。
+
+“我希望我的表现在某种程度上能帮助人们改变看法”，她说。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2316-edited.png)奥夫扬尼科娃说，这场战争充斥着普京的宣传，她希望能够揭露这些宣传并引起人们的注意。通过盖蒂图片社/法新社
+
+这位电视编辑显然仍在俄罗斯，虽然担心孩子的安全，但她说她拒绝在其他地方寻求庇护，因为“我是爱国者，我想住在俄罗斯。我的孩子想住在俄罗斯”。
+
+这位妈妈说，这次抗议是一个“自发的决定”，源于深深的挫败感和“对当前形势的不满已经积累了多年”。
+
+链接：【nypost.com】[Russian journalist who staged TV protest: ‘It’s Putin’s war, not people’s’](https://nypost.com/2022/03/20/russian-journalist-who-staged-tv-protest-its-putins-war/)
+
+* * *
+
+审核：Bryan W
+校对: 五通庙
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
