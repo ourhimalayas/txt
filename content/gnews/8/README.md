@@ -2,40 +2,41 @@
 ---
 
 
-## 稿件发布规范
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205468/)
+## 有声|独裁者只为个人和家族特权而活
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205523/)
 
-制作：GNEWS运营团队
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+在3月17日的《大直播》中，郭文贵先生表示，俄乌战争体现国家之间综合实力的较量，而习近平与普京二人，却只为个人及其家族特权而活。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-5.jpeg)
+郭先生说，俄乌战争的实质是国家之间综合实力的较量，是一个国家对民主、法治、对世界的认知，经济与科技则是第一位及核心的较量。
 
-Ps.视频中未提及，但需注意，图片请选择居中对齐，操作方法如下：
+据郭先生透露，近期，普京与习近平一天通话达两三次，彼此相互安慰，幻想着美国衰落、欧洲解体，世界尽归他们二人掌控。但实际上，这是习普二人的私心作祟。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午12.16.23.png)
+普京放不下自己的女儿，以及情妇和私生子女。习近平更是放不下他的私生子、以及其家族成员。对于习近平而言，他的家业很大，变成了“国家”，况且还有14亿可以任意宰割的奴隶。而历史上，所有的独裁者诸如萨达姆、卡扎菲、齐奥塞斯库、斯大林等人，对权力的眷恋都是如此。
 
-参考内容：
-1.上下logo图片：
+而不幸的是，普京与习近平照顾孩子与家人的代价，却是要牺牲乌克兰、俄罗斯和中国老百姓，甚至要试图毁灭全世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-上午11.35.54-1.png)
 
-2.下部更多关注：
-简体中文：
 
+文字版原文：[独裁者只为个人和家族特权而活](https://gnews.org/zh-hans/2199152/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-繁体中文：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**更多資訊，更多關注
-[烏克蘭救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文貴先生Gettr](https://gettr.com/user/miles)
-[全球喜馬拉雅農場聯盟委員會Gettr](https://gettr.com/user/GlobalAlliance)
-[喜馬拉雅聯盟大使館全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-英文：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-待更新
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

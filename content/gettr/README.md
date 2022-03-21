@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 4:55 PM (UTC)`
+
+Children don't need war, children need their mothers and fathers .<br/> The sunset, the music, the smiling faces of the children and our enthusiasm, made people seem to forget for a while the pain caused by the war ......<br/><br/>孩子们不需要战争，孩子们需要他们的爸爸妈妈, 夕阳，音乐，孩子们的笑脸和我们的热情,<br/>让人们似乎暂时忘记了战争带来的伤痛……
+![img](https://media.gettr.com/group28/origin/2022/03/21/16/9ff4856a-e47f-42ba-d5ea-d22366e84da3/out.jpg)
+
+---
+
 `@miles 3/21/2022 4:04 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月20日第16天当日救援统计：<br/>Medyka救援站接待：约120人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7177人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 16 - Date: March 20, 2022 :<br/><br/>Medyka Rescue Station Reception: about 120 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7177 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,15 +154,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月19日第15天当日救援统计：<br/>巴士救援难民：171人<br/>Medyka救援站接待：约400人<br/>巴士发车：3次<br/><br/>累计救援总计：<br/>巴士救援难民：2009人<br/>Medyka救援站接待：约7057人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 15 - Date: March 19, 2022 :<br/><br/>Refugees Rescued by Bus: 171 people<br/>Medyka Rescue Station Reception: about 400 people<br/>Bus Departures: 3 times<br/><br/>Total：<br/>Refugees Rescued by Bus: 2009 people<br/>Medyka Rescue Station Reception: about 7057 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group29/getter/2022/03/21/00/6c63f4c1-4bba-2ddb-6a67-425d1c745b43/2d44a66fe758851199c523da8e8ff654.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ningnan 3/20/2022 11:39 PM (UTC)`
-
- 7News《全球视点》<br/>梅迪卡新中国联邦得道多助凝聚正义力量<br/>In Medyka NFSC's rescue gets more help to unite the forces of justice<br/><br/>In the war of Russia and Ukraine between evil and justice, the CCP chooses evil side to support Russia's illegal war against Ukraine, caused Ukraine, even humanitarian disasters across Europe.<br/>Meanwhile, the people of NFSC arrived Ukraine bravely for international humanitarian rescue.The strength and actions of the NFSC rewards the welcome and praise of local people and international friends.<br/><br/>在俄乌这场正义与邪恶的战争中，中共站在了邪恶的一边，支持俄罗斯对乌克兰的非法战争，造成了乌克兰、甚至欧洲全境的人道主义灾难。<br/>然而，新中国联邦人勇敢地来到乌克兰前线进行人道国际救援。新中国联邦的实力与行动，赢得了当地人民和国际友人的欢迎与赞誉。
-![img](https://media.gettr.com/group14/getter/2022/03/20/23/f6571b68-3622-26cb-0c8d-94ef54d3fe62/out.jpg)
 
 ---
 
