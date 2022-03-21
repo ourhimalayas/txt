@@ -2,36 +2,27 @@
 ---
 
 
-## 乌克兰呼吁中国谴责俄罗斯的野蛮行径
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2201509/)
+## 中共内战外战大戏即将开始
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201600/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月19日，郭文贵先生发布盖特视频表示，中共的内战、外战大戏即将开始。
 
-整理：li yan li
-编辑：文泓
+郭先生说，世界所有的邪恶和灾难，离开虚假就不能成立。中共以假治国、以骗治国，洗脑中共国人，致使很多人不辨是非、黑白、善恶、对错，是导致中共国的大邪、大恶、大灾的根本原因。许多人甚至对香股回到35000点抱有幻想，而侥幸往往是走向灾难的开端。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-63.jpg)
+郭先生透露，其两位友人的公司，近期因世界供应链的问题及能源价格暴涨，经营难以为继。近日疫苗灾难在全世界各国，普遍引发了恐慌和大量非正常死亡事件。由于中共在背后支持俄罗斯侵略乌克兰，恐怕会导致海外排华事件发生。习近平和普京由于独裁和私欲，会绑架两国人民做他们的炮灰。中共即将对台湾的攻击，也自认为是内部事务，国际社会无权插手。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/0ID1OPNOOFF0T2011U.png)图片来源：雅典娜设计组
+文明与野蛮的区别就在于是否同等尊重对待生命。文明社会制度下，无论人或动物，任何生命都应当得到尊重，伤害生命就应当受到惩罚。文明社会即使执行死刑，也会充分保障死刑犯的人格与尊严。而中共对其内部人士同样残忍。据中共内部人士透露，对孙力军、傅振华、孟建柱、和王岐山等人，将来极有可能通过注射毒针来执行死刑。
 
+参考链接：[3月19号：尊敬的战友们好中共内战．外战的大戏即将开始！](https://www.gettr.com/post/p10rq15972f)
 
-在3月18日，美国总统乔·拜登在与中共国主席习近平视频通话期间明确告知，任何协助俄罗斯入侵乌克兰行动势必会付出代价。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-继拜登发出的警告之后，乌克兰呼吁中共国谴责俄罗斯的“野蛮行径”。
-
-乌克兰总统办公室主任顾问波多利亚克（Mikhailo Podolyak）3月19日在推特上写道：“如果中国做出正确的决定，支持文明国家联盟并谴责俄罗斯的野蛮行径，它可以成为全球安全体系的重要组成部分。”
-
-这是俄乌战争爆发以来，乌克兰政府首次公开呼吁北京对俄罗斯的侵略行动进行公开谴责。迄今为止，北京一直以俄罗斯“特别军事行动”来描述俄军对乌克兰的入侵，对此，国际舆论普遍解读，北京立场表面中立，实为倾向支持莫斯科。
-
-中共国迄今未加入国际社会强烈抨击俄罗斯挥军入侵乌克兰的行列，拒绝谴责俄国总统普京的侵略行径。3月14日杨洁篪与美国总统国家安全事务顾问沙列文的会晤中，已经明确了中共国将支持俄罗斯。
-
-新闻链接：[基辅向北京喊话：谴责一下俄罗斯](https://www.rfa.org/mandarin/Xinwen/4-03202022112739.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编/编辑/审核：文真/飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

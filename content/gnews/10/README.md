@@ -2,41 +2,27 @@
 ---
 
 
-## 美国告诉中共不撤离大使馆的唯一办法就是允许美国溯源
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2201809/)
+## 樱花FM|乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2201935/)
 
-Youtube视频链接：[https://youtu.be/ntHV-iuVZ38](https://youtu.be/ntHV-iuVZ38)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032121.png)
+据悉，乌克兰总统泽伦斯基向日本政府提议：在日本国会发表抗议俄罗斯的在线演讲。
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+据多位日本政府官员和执政党人士透露，网上演讲是通过乌克兰大使馆到日本政府探讨的。泽伦斯基总统已经在英国议会进行了视频演讲，预计日本国会也会对俄罗斯的侵略表示强烈抗议。
 
-**郭文贵先生：**然后现在美国又开始出手了，大家知道美国现在几个立法要出来，不但要出来，现在美国直接给中共提出来：我只要是不撤离大使馆，全面正式撤离，唯一的办法就是要允许我们溯源。这个允许溯源这太可怕了！真的几乎等同于真的给大卫兄弟，现在你要交朋友，现在说我要查查你是不是处男一样，谁都知道你都是当孩儿爹了，查你是处男，那我肯定不是处男呐是吧，你查我什么处男呐？是不是。但是哎不行，你忽悠人家说你要跟人家、你说你是处男，要查你是处男一样。就这么简单，一查就露。
+但是据相关人士透露，日本国会会议上还没有进行过网上演讲的先例，因此政府将慎重考虑。
 
-编辑整理：Jacques；
+文字版原文：
 
-字幕文件制作：知津；
 
-视频制作及上传：Cindy；
+| [乌总统泽伦斯基希望连线日本国会并发表“抗议俄入侵演说”](https://gnews.org/zh-hans/2170892/) |   |
+| --- | --- |
 
-G-News发布：小满；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
