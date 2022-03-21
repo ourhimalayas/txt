@@ -2,16 +2,29 @@
 ---
 
 
-## 五月花简报（03/21/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2206177/)
+## 俄罗斯召见美国大使，两国关系“濒临崩溃”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2206204/)
 
-编辑：波士顿五月花—-冲天一怒
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3C0FD175-52CF-4DA8-94FB-138CBA4FAFAB.jpeg)
-
-*发布：思澈*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0123-1.jpg)
 
 
+图片来源：DPA
+
+克里姆林宫召见了美国驻莫斯科大使。原因是美国总统乔拜登的声明，他将弗拉基米尔普京描述为“战犯”。双边关系“濒临破裂”。
+
+俄罗斯召见了美国驻莫斯科大使，并指责美国将双边关系“带到了崩溃的边缘”。俄罗斯外交部周一表示，美国总统乔拜登称克里姆林宫首席弗拉基米尔普京为“战犯”的声明“不配成为高级政治家”。
+
+美国大使约翰沙利文在一份抗议信中表示，此类言论危及两国关系。
+
+华盛顿还被警告说，“对俄罗斯的敌对行为将被坚决拒绝。”
+
+美国总统拜登周三称普京为“战犯”。克里姆林宫立即批评拜登的措辞“不可接受且不可原谅”。
+
+🔗 [https://www.welt.de/politik/ausland/article237666445/Ukraine-News-im-Liveticker-Kreml-Beziehungen-zu-USA-am-Rande-des-Abbruchs.html](https://www.welt.de/politik/ausland/article237666445/Ukraine-News-im-Liveticker-Kreml-Beziehungen-zu-USA-am-Rande-des-Abbruchs.html)
+
+编辑发表： Shuizhuyu
 
  
 

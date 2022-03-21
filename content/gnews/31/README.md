@@ -2,77 +2,72 @@
 ---
 
 
-## 视频|泽连斯基在美国国会的演讲精要
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205887/)
+## 20220320文贵大直播：新中国联邦有一个既夸奖也不允许犯错的原则
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2205988/)
 
-乌克兰正处于二战以来全球最严重的战争中，乌克兰人民派出了最棒的儿女来抵抗俄罗斯的全面入侵。
+撰稿：柯亭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/collapse-8.jpg)图片来源：GETTR
+2022年3月20日，文贵先生在大直播中，与在Medyka救援前线的战友们对话，并对前线战友们的作为有所评论。指出：新中国联邦有一个原则，就是**既夸奖也不允许犯错**；正因为战友们还有这样那样的问题，所以才需要有新中国联邦；但是，只要有一点共产党的影子，我们就是白干。
 
-Ukraine is in the midst of the world’s worst war since World War II and the Ukrainian people have sent their best sons and daughters to resist an all-out Russian invasion.
+**一、为前线参加救援的战友们祈福**
 
-俄罗斯不仅侵略了我们的家园，还对我们的普世价值进行了残酷的进攻，乌克兰的命运正决定着人类的命运。
+文贵先生开场说：在俄乌战场前线救援的战友们很不容易。他们都有老公老婆孩子，但自愿选择到前线救援。俄罗斯导弹攻击的那个位置，离大卫和其他十几个战友所在的**利沃夫**很近。在Medyka救援的很多战友染上了病毒。
 
-Russia has not only invaded our homeland, it has also launched a brutal attack on our universal values, and the fate of Ukraine is determining the fate of humanity.
+我们救出的乌克兰人，现在有人分别在给联合国和各国领导人写信。希望他们**早日承认新中国联邦**是代表中国人的合法机构，那样就会让世界**减少战争**、**减少死亡**。
 
-乌克兰感谢美国提供的一切压倒性支持，并需要美国的进一步支持！
+我们一起来为前线的战友们祈福：**万佛万神庇佑**我们在前线俄乌战场的所有的爆料革命新中国联盟的战友们、和在Medyka战场所有救援的全球各国各族的人士们，一定奇迹地受上帝万佛万神之手的恩赐，**清洁好空气**、免受共产党病毒的侵袭，得到病侵袭的人希望早日得到康复。让万佛万神赐给我们无穷无尽无限的力量，让在阳光之下，让在月亮之下，24/7**无间断**、**无光限**、**无时限**、**无灾难**、**无挑战**地拯救乌克兰妇女儿童和中国同胞，让世界看到新中国人和人类共存的希望和和平的未来。万佛万神保佑！阿弥陀佛！
 
-Ukraine is grateful for all the overwhelming support provided by the United States and needs further support from the United States!
+**二、只要有一点共产党的影子，我们都是白干**
 
-珍珠港事件和911事件这样的空袭已在乌克兰持续三周了，这是80年来欧洲从未见过的恐怖。
+七哥特别不开心，你们立多大功都不应该犯这样的错误。七哥今天要公开跟你们说对你们很不高兴的几件事。
 
-Air strikes like Pearl Harbor and 911 incident have been going on in Ukraine for three weeks now, a horror that Europe has not seen in 80 years.
+第一，七哥从第一天就是说直播要用15-20米的**有线耳机**和**有线麦克风**。哪有上前线，还玩无线的呀？第二，你们在现场的人一定要**防病毒**，认真戴口罩，认真戴手套，要严肃对待。第三，必须增加直播的人，**把直播搞好**，不要像今天这样老是断播。
 
-我们要求在乌克兰建立人道主义禁飞区，如这个要求太高，那就请给我们S-300这样的导弹防御系统。
+长岛啊大卫啊，都**官僚至极**。把你们斗争的精力解决在直播上行不行？到现在已经20天了，连个直播都搞不定，还隔空欣赏，多共产党啊？你们连这儿都搞不掂，又是拯救全人类，又是拯救乌克兰，你不觉得很搞笑吗？新中国联邦人，**只要有一点共产党的影子**，**我们都是白干**。
 
-We demand a humanitarian no-fly zone in Ukraine, and if that is too much to ask, then please give us a missile defence system like the S-300.
+虽然我们现场的logo、帐篷和管理纪律是整个营地中**最牛最好**的，但是离新中国联邦的要求还差得远着呢。基本上是个**副村长的水平**。这一次长岛和大卫这领导能力几乎可以打零分，就不要提什么老班长了。
 
-“我有一个需要！”正如你们曾经的“我有一个梦想”那么真挚而热切，我们需要强大的战机来保护乌克兰的人民和土地！
+现在Nicole染上了病毒，文科也染上了，你们这是干什么吗？敌人没打到我们，我们自己的无知把自己打倒了。文耀、长岛、大卫，你们应该感到羞愧。今天七哥心情很好，但是跟你们要**说实话**。
 
-“I have a need!” As true and fervent as you once said “I have a dream”, we need powerful warplanes to protect the people and land of Ukraine!
+**战争不停**，**我们这个救援就不会停**。只有两个原因会停：一是Medyka关口被关了，二是战争停止了。即使是在全世界找雇佣军，也得救下去。新中国联邦的第一次国际救援行动，不会因为我们的无知和战友的不守纪律，把救援停止。不能让全世界看到，我们的救援像共产党一样**招摇撞骗**、**虎头蛇尾**。
 
-现在是乌克兰乃至整个欧洲最黑暗的时刻，呼吁美国出台更多的制裁措施，
+**三、因为这些问题的存在所以才需要新中国联邦**
 
-This is the darkest time for Ukraine and indeed all of Europe, we call on the US to introduce more sanctions,
+老班长、长岛哥、大卫三人**互相掐得一塌糊涂**。就看出这仨人的个性与人与人的斗争，就看出了中国人的悲哀。加一起，就是几个中国人你死我活地掐，现场也掐。
 
-和平比利益更重要，建议美国制裁俄罗斯的所有政客，美国公司立即离开俄罗斯市场，美国港口对俄罗斯关闭，
+有5-6个老椅子战友，生活条件很好，也去到前线。昨天给七哥发信息说：我在前线看到的不像你想象的那样战友之间互相照顾，而且还没有礼貌，私下素质很差，说话带脏字，在车上开玩笑很下流。七哥回复这些战友说：就是**因为你看到了这些问题的存在**，**才需要新中国联邦**。
 
-peace is more important than profit, we propose that the US sanctions all Russian politicians, that US companies leave the Russian market immediately, and US ports be closed to Russia,
+如果你想象中的那种新中国联邦人，都已经达到了我们未来追求的那个标准，都已经发生了，新中国联邦就不需要了。我们都**带着一身屎从共产党这个毛屎坑里逃出来**。因为我们中国人已经像被诅咒了一样，远离了文明，远离了真实。你看到这些人让你失望是很正常的。前线救援现场现在出现的问题：个人主义、农场主义、分离主义。
 
-由负责任的国家组成U24 和平联盟来立即停止这场战争，以迅速拯救生命和这个世界！
+战友们不要老说你自己的问题是因为别人，你要做的是如何**解决你自己的问题**。比如说：大卫你能因为老班长和长岛哥是坏蛋，你自己就可以干坏事吗？长岛哥也不能因为大卫是坏蛋，你自己的总指挥就可以做不好。
 
-and that the responsible nations form the U24 peace coalition to stop this war immediately in order to save lives and this world quickly!
+这就是我们新中国联邦人要面对的。我们每个人如果不能把自己整好，想整好别人那是不可能的。你没有整好自己的能力，想拯救这个国家？开什么玩笑？
 
-今天，乌克兰人民不仅是在保家卫国，也是在为世界的普世价值而战，为人类的未来而战。
+什么叫正道主义？ 看透虚伪，放下执着，辨别真假，知道善恶。甭说让你什么贪嗔痴慢疑了，那是太高境界了。就这点儿，就是把人和猪狗分开。
 
-Today, the Ukrainian people are not only defending their country, they are also fighting for the universal values of the world and for the future of humanity.
+我们的新中国联邦有很多很多的优点，展现了很多中国人美好的和最稀有的一面。但是我们最重要的是**面对我们的缺点**，我们要坚持唯真不破。这是最重要的。
 
-你国的和平不再取决于你自己，而取决于你旁边的国家。
+**四、我们的原则是即夸奖也不允许犯错**
 
-The peace of your country no longer depends on yourself, but on the country next to you.
+我们已经救出这么多中国同胞和乌克兰人，这已经是**史诗般的人类的奇迹**！我们要保持住，重新调整摆好队形，让这个帐篷周围没有一丝一毫的丢人现眼的东西，体现**新中国联邦的标准**。大卫、老班长、长岛哥，你们要团结，不要继续斗。你仨斗全世界都知道。斗不出青山，斗不出未来，也斗不出尊严！前线战友染上病毒，是你们的耻辱，而不是你们的伟大。
 
-拜登总统是伟大美国的领导人，希望你能成为世界的领导人，成为维护世界和平的领导人，美国需要在历史上留下公正！
+我们前线的战友展示出的新中国人形象，每时每刻都在传遍全世界。 这是**中国人历史性的第一次这样对待自己的同胞和其他同类**。新中国联邦人有使命，这次前线救援展现给世界，中国人和共产党是不一样的！我们有勇气，我们尊重每一个人。我们有爱，对天地之敬心，对人之爱，对动物之爱。不允许有半点虚假，不允许有半点虚妄。
 
-President Biden is the leader of a great America and hopefully you will be the leader of the world and the leader who keeps the peace in the world, America needs to leave justice in history!
+刚才七哥批评了文耀和大卫。其实，文耀、阿炳、大卫、文科、文戈、正义小Sara、小李……，我们**所有的兄弟姐妹们都是了不起的**。但是，我们不能老夸奖，就怕一夸奖就允许犯错；甚至像共产党一样，夸奖你还帮你掩盖错误。
 
-作为伟大乌克兰人的领导人，如不能阻止乌克兰人死于这场战争，我的生命将毫无意义！
+今天是第一次看到现场的横幅不是皱皱巴巴、斜了吧唧，我们的帐篷也显得更漂亮。就是**越整越像样**。如果七哥没要求能这样吗？长岛哥有过这要求吗？大卫有过这要求吗？老班长会这样要求吗？没有。 他仨用于互掐的精力，远远超过对现场的要求。
 
-As the leader of the great Ukrainians, my life would be meaningless if I could not prevent Ukrainians from dying in this war!
+所以，我们不能学共产党，一夸奖就允许犯错，甚至帮你掩盖错误。我们是**既夸奖也不允许犯错**。只有面对问题，才能干得更好。
 
-荣耀归于乌克兰！
+参考链接：
 
-Glory be to Ukraine!
+1. 视频：[2022年3月20日文贵大直播](https://www.gettr.com/streaming/p10y5j870c5)
 
-【盖文】：我们跟乌克兰人站在一起！美国历史上迄今只邀请过三个外国人到其国会发表演讲，一个是丘吉尔，一个是宋美龄，第三个就是现在的乌克兰总统泽连斯基！2022年3月16日泽连斯基在美国国会的演讲，将俄罗斯入侵乌克兰比作美国人永远挥之不去的伤痛“珍珠港”和“911”事件，强调自己的使命就是阻止乌克兰人民死于这场战争！
+2. 文字：[2022年3月20日文贵大直播速记精萃](https://gnews.org/zh-hans/2199912/)
 
-【GETTR】：We stand with the Ukrainians! Only three foreigners have been invited to address the United States Congress so far in its history: Churchill, Song Mei-ling and now Ukrainian President Zelensky! “Zelensky’s speech to the US Congress on March 16, 2022, compared the Russian invasion of Ukraine to the American wounds of Pearl Harbor and 911, and stressed that his mission was to prevent the Ukrainian people from dying in this war!
+3. 文字：[2022年3月20日《文贵大直播》全文字版](https://gnews.org/zh-hans/2203041/)
 
-
-
-【撰稿】：香草山信息部 6zero4
-
-【翻译】香草山翻译部–文岄679
-【翻译】香草山视频部–Jesse(文博)
-
-发布：奇门遁甲
+校对：
 
  
 

@@ -2,18 +2,21 @@
 ---
 
 
-## 七哥金句：什么是SWIFT？
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206525/)
+## 视频|乌克兰哈尔科夫遭空袭后死伤无数，棺材不够用，尸臭弥漫
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2206621/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句8-1.png)
-发布：枫叶红了
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+制作：大直播短视频组- 隧道尽头的光
+文案：聪宁
+
+审核/编辑/发稿：谐趣园
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
