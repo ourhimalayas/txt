@@ -2,50 +2,42 @@
 ---
 
 
-## 泽连斯基喊话俄方：“该坐下来谈谈了。”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203003/)
+## 全球债券基金连续出现资金外流
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203017/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译：文扬
-编辑：jocozoner
+整理：gardeniahu
+编辑：围剿维尼熊
 
 - ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
 
 
-在3月19日清晨的视频讲话中，乌克兰总统弗拉基米尔·泽连斯基呼吁俄罗斯进行有意义的和平谈判，并结束战争。
+根据路透社报道，截至3月16日当周，全球债券基金连续第十周出现资金外流，因美国通胀水平上升使人们预期美联储需要采取更积极的行动。
 
-他警告俄罗斯当局，谈判是他们“将自己的错误造成的损害降到最低的唯一机会”。
+美联储周三宣布升息25个基点，并表示将比预期更积极地加息以抑制通胀。
 
-双方目前正在进行远程谈判，迄今为止，既没有取得任何实质性进展，也没有达到总统级别。
+欧洲央行宣布将在第三季度结束资产购买，也对市场情绪产生了影响。
 
-泽连斯基在Facebook上发布的一段视频中说道：“现在（大家）应该见面和会谈了，（我们）是时候应该恢复乌克兰领土完整，拿回我们的公平了……否则，俄罗斯的损失将是（他们）几代人无法挽回的。”
+欧洲的债券基金出现了价值91.1亿美元的资金外流，而美国和亚洲债券基金分别出现了72.4亿美元和4亿美元的净卖出。
 
-泽连斯基称，乌克兰已经从被俄军围困的港口城市马里乌波尔救出了9000多人。关于该市收容平民的一个剧院遭到俄军轰炸，他坦陈目前尚不清楚具体伤亡情况。
+全球高收益基金损失48.8亿美元，而中短期基金和政府债券基金分别出现39.5亿美元和8.8亿美元的外流。
 
-此外，他还宣布，通过全国各地的人道主义救援渠道，目前共有超过18万名乌克兰公民得救。
+全球非必需消费品、科技和工业类基金分别流出12.8亿、8.8亿和7.9亿美元，而医疗保健和采矿类基金分别吸引12亿和11亿美元的资金流入。
 
-针对俄军在几个热点地区对援助活动加以阻挠，他予以谴责，并表示 “由于当地的乌克兰人做任何事都要恪守（占领军的）命令，所以在乌克兰城市发生的一些人道主义灾难，反而迫使人们不得不与占领者合作。”
+在大宗商品基金中，贵金属基金连续第九周录得资金流入，净流入13.9亿美元，能源基金吸引到1.29亿美元。
 
-对此，他认为：“这就是战争罪。”
+通过对24062只新兴市场基金的分析，股票基金流出54亿美元，而债券基金流出13.8亿美元。
 
-2月24日，俄罗斯悍然入侵乌克兰，并要求乌克兰永远不要加入北约军事同盟，以及实现全国的“非军事化”和“去纳粹化”。截至目前，基辅与莫斯科已进行了几轮面对面与视频谈判。最新的一组谈判，即第4轮谈判，将于3月21日开始。
+参考链接：[图表新闻：全球债券基金连续第十周资金外流](https://www.reuters.com/article/graphic-global-bond-fund-capital-flow-03-idCNKCS2LI04M)
 
-俄罗斯方面最高谈判代表称，针对乌克兰中立的提议，莫斯科和基辅的立场已经出现了“尽可能的接近”。
+*发布：tianzhihuan*
 
-然而，参加谈判的泽连斯基的顾问米哈伊洛·波多利亚克（Mikhailo Podolyak）表示，乌克兰方面立场没有动摇。
-
-“我们的立场不会改变。”他说，“停火、撤军，以及（俄方）必须做出有具体方案且坚实的安全承诺。”
-
-原文链接：[Russia Ukraine war: Zelenskyy calls on Russia to enter new peace talks; humanitarian aid arrives in Sumy | news.com.au — Australia’s leading news site](https://www.news.com.au/world/russia-ukraine-war-explosions-near-lvivs-airport/news-story/a22d992281b55928540b6793e22f3642)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
