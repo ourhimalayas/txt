@@ -2,60 +2,23 @@
 ---
 
 
-## 《新中国联邦乌克兰救援歌》
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2204096/)
+## 切尔诺贝利核电站半数乌国员工 首度获准回家
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2204218/)
 
-作词/演唱/MV：七里香 7 Miles
+采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-11t134344z_1820668989_rc2d0t9yte25_rtrmadp_3_ukraine-crisis-chernobyl.jpg)乌克兰切尔诺贝利核电站上月被俄罗斯军队占领。（路透社档案照片）
+乌克兰切尔诺贝利核电站上个月被俄罗斯军队占领，至今已超过三周，一度传出员工连续工作无法轮班身心俱疲，停止安全维护作业。国际原子能机构（IAEA）星期天（3月20日）表示，这些单班制人员中，半数已与其他乌克兰员工轮替。
 
-新中国联邦，驰援战场
-The New Federal State of China (NFSC) is providing emergency aid at the battlefield
+据路透社报道，俄军控制切尔诺贝利核电站后，当时值班员工一直工作无法回家，IAEA先前曾示警，他们在极端压力下工作精疲力尽，引发安全危机，要求让这些员工轮替作业。
 
-救助乌克兰，免费航班
-Rescue the people from Ukraine by offering flights for free
+IAEA20日说，这些员工在承受巨大压力、疲劳，以及外国军队在场、未获适当休息的情况下执行重要任务，并称已接获乌克兰核能监管机构通知，20日上午开始轮替。
 
-食物和毛毯，帐篷里取暖
-Give away food and blankets. Set up tents to keep you warm
+IAEA20日的声明引述IAEA总干事格罗西说：“切尔诺贝利核电站部分员工已获得轮替回到家人身边。尽管姗姗来迟，仍是正向发展，这些人在那里待太久了，诚心期盼这一班的剩余员工也能尽快轮替回家。他们在极为艰苦的环境下工作，理应获得我们充分的尊重和敬仰。”
 
-驱走战争带来的苦寒
-Dispel the pain and cold brought by the war
+参考连结：[https://www.zaobao.com/realtime/world/story20220321-1254481](https://www.zaobao.com/realtime/world/story20220321-1254481)
 
-近百名孩子，已安全转移
-Nearly 100 kids were evacuated safely
-
-悉心地照顾无数妇孺
-We’re taking good care of countless women and children
-
-不管你是谁，只要是人类
-We don’t care who you are
-
-就在我们拯救的范围
-as long as you are a human, we will lend you a helping hand
-
-万恶的共匪，胡作非为
-The wicked CCP is messing things up
-
-谎言满天飞，造谣作祟
-The CCP spreads lies everywhere, making rumors and trouble
-
-不拯救同胞，却背后捅刀
-Instead of saving the Chinese people, the CCP is sabotaging our rescue
-
-中国人不被中共代表
-The CCP doesn’t represent the Chinese people
-
-新中国联邦，你就是阳光
-NFSC, you are the sunshine
-
-天使般战友，带来希望
-Fellow fighters are angels bringing us hope
-
-沉睡的同胞，请快快醒来
-To our fellow Chinese still sleeping, as long as you wake up
-
-救援之门就向你敞开
-you will be saved
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+审核校对：Barry Jack
+上传排版：F
 
  
 
