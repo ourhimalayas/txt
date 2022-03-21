@@ -2,21 +2,21 @@
 ---
 
 
-## 视频|俄乌战争前线的新中国联邦救援公告
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2202818/)
+## 俄军再炸基辅！购物中心深夜遭轰
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2203038/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6d8ba7e3-9d8d-4da0-8849-6d3910d195f3.jpg)图片来源：Vitaliy\_Klychko
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+据台视新闻网3月21日报道，乌克兰首都基辅又遭到俄军轰炸！一栋购物中心疑似遭到飞弹攻击，冒出巨大火光，而基辅市长克里契科（Vitali Klitschko）透过社群媒体证实，昨天深夜基辅又有多起爆炸，其中在购物中心的攻击中至少造成一人死亡。
 
-发稿：qiutian（邱甜）
+新闻来源：[台视新闻网](https://news.ttv.com.tw/news/11103210000900W)
 
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
