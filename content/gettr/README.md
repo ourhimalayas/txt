@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 10:45 AM (UTC)`
+
+【Ukraine Rescue】03/19/2022 In Nicole’s interview with the biggest YouTube channel in Lithuania- Liberty TV, the Lithuanian journalists show their support for Taiwan and their will of going against CCP. They also claim it’s great to see people from NFSC in the rescue which shows CCP do not represent all Chinese people. Meanwhile, they learn about the rescue operations of the NFSC, the tents and the facilities inside.<br/><br/>【乌克兰救援】03/19/2022 妮可接受立陶宛最大Youtube频道自由卫视采访，他们反对中共，支持台湾，并表示新中国联邦人的出现说明了中共无法代表所有中国人。他们仔细询问了法治基金新中国联邦的救援活动并参观和拍摄了大帐篷里面的情况和设施。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group18/getter/2022/03/21/10/4b1bb077-99c5-687d-1d4e-7980c390214a/out.jpg)
+
+---
+
 `@miles 3/21/2022 9:18 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
@@ -149,13 +156,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 3/20/2022 Miles Guo: Let’s say there are two options. You become a billionaire, but you will have to work with the CCP. Or you keep working to take down the CCP, but you will lose everything or even be thrown into jail. The CCP’s pawns overseas will certainly choose to work with the CCP without hesitation. The New Federal State of China does not tolerate any bureaucracy or formalism. We must adhere to the notion that only the truth prevails.<br/><br/>3/20/2022 文贵直播：如果给你一个选择，当亿万富翁但要和共产党合作，还是继续灭共但会失掉一切或进监狱？海外欺民贼一定决绝选择和中共合作；新中国联邦不能有任何官僚形式主义，必须坚持唯真不破<br/>
 ![img](https://media.gettr.com/group4/getter/2022/03/20/22/69c20315-ec53-de27-ea82-8ccb55aeac4d/out.jpg)
-
----
-
-`@miles 3/20/2022 10:05 PM (UTC)`
-
-The Chinese Communist Party is the root cause of the world's disasters. Only by eliminating the Chinese Communist Party, can we save all of humanity.<br/>We are at the Ukraine rescue frontline, telling the world with our actions that we love peace, that the CCP cannot represent the Chinese people, and that we are the new Chinese who are taking down the evil CCP.<br/>We have set up large, warm and well-equipped tents at the frontline to give a helping hand to the refugees, especially for mothers and children in need, providing them with a warm and safe harbour.<br/>Fellow chinese people and international friends in need of rescue, please contact us.<br/>中共是世界灾难的根源，只有消灭中共才能拯救全人类。我们在乌克兰救援前线，用行动告诉世界我们热爱和平、中共不代表中国人，我们是消灭邪恶中共的新中国人。我们在前线搭起了资源充足，温馨的大帐篷，向乌克兰救援前线需要帮助的难民、母亲、儿童施以援手，为他们提供温暖安全的港湾
-![img](https://media.gettr.com/group35/origin/2022/03/20/22/22b32e49-c97a-1d9c-fabe-c746dc712ea0/out.jpg)
 
 ---
 
