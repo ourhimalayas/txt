@@ -2,68 +2,100 @@
 ---
 
 
-## 参议员罗恩·约翰逊:蝠奇应对 中共病毒的惨败,让我们的孩子在过去两年来一直生活在恐惧中
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2201503/)
+## 中共建立孔子学院的目的
+` 经济小组` [轉載自GNews](https://gnews.org/zh-hans/2201632/)
 
-参议员罗恩·约翰逊： 由于安东尼·福奇和他对 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 应对措施的惨败，我们的孩子在过去两年来一直生活在恐惧中。 我完全准备追究福奇和新冠 COVID 团伙的责任。 【附约翰逊议员接受福克斯新闻采访视频】
+作者：香草山教育部-兰兰
 
-
-
-> Our children have lived in a state of fear for the past two years thanks to Anthony Fauci and his miserable failure of a response to COVID-19. 
-> 
-> I fully intend to hold Fauci and the COVID cartel accountable. [pic.twitter.com/0EhO4YzFXj](https://t.co/0EhO4YzFXj)
-> — Senator Ron Johnson (@SenRonJohnson) [March 20, 2022](https://twitter.com/SenRonJohnson/status/1505644849206280198?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/05/s2.jpg)
 
 
 
-参议员瑞克.斯科特： 美国人希望看到国会真正面对 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 构成的威胁。 可悲的是，参议员舒默[@SenSchumer](https://gettr.com/user/SenSchumer) 的《竞争法》并没有真正遏制中国共产党。 【转斯科特前一天的推文：你希望看到国会采取什么措施来追究 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 的责任？】 参议员瑞克.斯科特： （接上面推文）这是其中的实际内容（指《竞争法》）： – 将美国纳入巴黎气候协定 – 80亿美元用于联合国绿色气候基金 – 为北京气候变化提供资金 – 500 万美元用于在美国国家科学基金会推广批判种族理论 – 为我们的国债增加了2500 亿美元
+（说明：上一篇文章“孔子学院实质“，是从外国的角度来揭发孔子学院。本篇文章是从中共的角度来阐述中共建立孔子学院的目的。）
 
+摘要：中共在筹备建立孔子学院时就让孔子学院就带有浓厚的政治色彩。孔院是中共海外统战工作的一部分，通过各种方式、手段培养对中共有利的友好环境，帮助中共进入西方社会主流，取得全球话语权。（本段参考来源：“【孔子学院风波】观察站：胡锦涛时代大外宣帷幕半降”和“China’s Overseas United Front Work: Background and Implications for the United States”PDF文档）
 
+1.孔子学院名称带有政治色彩。中共筹备孔子学院，以“汉办”冠名，后改为由“汉办”主办，选择“孔子中文学院”这一名称并把“中文”两字去掉。2020年7月，又改为由一个教育基金会负责。所有这些操作都是淡化孔院的官方背景，掩盖“孔子学院”自筹备之日起的浓厚政治色彩。（本段参考来源：“【孔子学院风波】观察站：胡锦涛时代大外宣帷幕半降”）
 
-> Americans want to see Congress actually confront the threat Communist China poses. Sadly, [@SenSchumer](https://twitter.com/SenSchumer?ref_src=twsrc%5Etfw)’s COMPETES Act does nothing to actually curb the Chinese Communist Party. (1/2) [https://t.co/yYBFlfFK5L](https://t.co/yYBFlfFK5L)
-> — Rick Scott (@SenRickScott) [March 20, 2022](https://twitter.com/SenRickScott/status/1505619416637227015?ref_src=twsrc%5Etfw)
+2.孔子学院有中共领导人加持，有中共政府背书。中共官员出席孔院活动上百次，中共常委都到过孔子学院指导工作，胡锦涛曾16次访问孔院。到了习近平时代，“优化孔子学院区域布局，加强孔子学院的能力建设”为中共的重点方案之一。（本段参考来源：“【孔子学院风波】观察站：胡锦涛时代大外宣帷幕半降”）
 
+3.孔子学院的组织机构具有外宣、统战等多重背景。孔子学院总部又称国家汉办，组成部委包括国务院办公厅、财政部、教育部、外交部等部门。孔院总部理事会主席刘延东曾经是中共统战部部长。（本段参考来源：“关于中共利用“孔子学院”进行意识形态渗透的调查报告”）
 
+4.孔子学院由中共宣传部（正式隶属于统战部）资助。中共提供孔院的启动资金、运营经费、派往孔院师资津贴、向孔院学生所在大学提供巨额资助、赞助所在国学生到中共国留学旅行、赞助汉语桥项目等等。中共不惜重金在海外置办孔院，却不愿出资提升本国人民教育。（本段参考来源：“关于中共利用“孔子学院”进行意识形态渗透的调查报告”）
 
-比尔.格茨： （《美国对话》）就乌克兰、俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对我的采访 【附美国对话主持人克里斯汀·多兰 (Christine Dolan) 和 托德·伍德 (L Todd Wood) 与《华盛顿时报》国家安全专栏作家比尔·格茨就俄罗斯、乌克兰和中国进行了访谈 此采访是一个名为“记者在哪里？”系列的一部分 （附专访视频）】
+孔子学院是中共官方实体在统战部指导、资助下开展的海外活动。孔子学院替中共进行统战工作，借助孔子学院所在国的名声和影响力，培养对中共有利的友好环境，帮助中共进入西方社会主流，取得全球话语权。（本段参考来源：“China’s Overseas United Front Work: Background and Implications for the United States”PDF文档）
 
+* * *
 
+* * *
 
-> My interview on Ukraine, Russia, and China [https://t.co/vrKY9Gfnms](https://t.co/vrKY9Gfnms)
-> — Bill Gertz (@BillGertz) [March 20, 2022](https://twitter.com/BillGertz/status/1505589977136181250?ref_src=twsrc%5Etfw)
+随着全球孔子学院不断被关闭，各国官方报告、学者协会、市民团体等都对孔子学院进行了深度调查，孔子学院是借着推广汉语传播文化的表象实行中共特色外交，为中共执行各种海外统战手段的实质不断被揭发。（本段参考：“孔子学院持续关闭，孔院实质不断被揭发”）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12B044C7-5ADA-40D3-84EF-D785106521F3_cx0_cy8_cw0_w1023_r1_s.jpeg)
 
+然而中共在筹备建立孔子学院的那一刻起，孔子学院就带有浓厚的政治色彩，中共建立的孔子学院是作为中共海外统战手段的一部分，培养对中共有利的友好环境，帮助中共进入西方社会主流，取得全球话语权。（本段参考来源：“【孔子学院风波】观察站：胡锦涛时代大外宣帷幕半降”和“China’s Overseas United Front Work: Background and Implications for the United States”PDF文档）
 
-众议员帕特·法伦： 我很自豪能与东欧的同事一起聆听故事并亲身了解情况。 我们必须继续为这些国家提供必要的援助来对抗俄罗斯。
+1.孔子学院名称带有政治色彩
 
+1999年，中共开始筹划建立孔子学院，以“汉办”冠名，政治色彩太浓，改为以“汉办”主办，重新起名。在递交的“中国学校”、“中国中心”、“华文中心”、“孔子中文学院”等名字里最终选择了“孔子中文学院”并把“中文”两字去掉。“孔子学院”自筹备之日起，就带有浓厚的政治色彩。
 
+胡锦涛时代，分工主管文宣工作的李长春直言，“孔子学院是中共国海外宣传机构中重要组成部分。”2020年7月，中共将孔子学院，改由一个教育基金会负责。所有这些取名、改名都是在淡化孔子学院的官方背景，但是孔子学院的实际操作并没有改变。（本段参考来源：“【孔子学院风波】观察站：胡锦涛时代大外宣帷幕半降”）
 
-> I’m proud to be with my colleagues in Eastern Europe hearing stories and learning first hand about the situation.
-> 
-> We must continue providing these countries with the necessary aid to combat Russia. [pic.twitter.com/sLaszopZhV](https://t.co/sLaszopZhV)
-> — Rep. Pat Fallon (@RepPatFallon) [March 20, 2022](https://twitter.com/RepPatFallon/status/1505545098800635906?ref_src=twsrc%5Etfw)
+2.孔子学院有中共领导人加持，有中共政府背书
 
+自2004年建立第一家孔院到2011年10月底，中共官员出席孔子学院活动上百次，中共常委都到过孔子学院指导工作，胡锦涛曾16次访问孔子学院。孔子学院在胡锦涛时代经历了所谓“黄金十年”的发展与壮大，到了习近平时代，同样也毫不掩饰对孔子学院的重视。中共印发的《加快推进教育现代化实施方案（2018-2022）》的重点任务之一是“推进共建一带一路教育行动”深化共建“一带一路”国家人文交流，优化孔子学院区域布局，加强孔子学院的能力建设。（本段参考来源：“【孔子学院风波】观察站：胡锦涛时代大外宣帷幕半降”）
 
+3.孔子学院的组织机构具有外宣、统战等多重背景
 
-众议员兰斯·古登： 蝠奇博士需要阅读约翰·霍普金斯大学的研究，该研究得出结论，封锁根本没用。
+孔子学院总部又叫国家汉办，由十二个部委组成：国务院办公厅、教育部、财政部、国务院侨务办公室、外交部、国家发展和改革委员会、商务部、文化部、国家广播电影电视总局（中共国国际广播电台）、新闻出版总署、国务院新闻办公室、国家语言文字工作委员会。
 
+孔子学院总部理事会主席刘延东，曾经是中共统战部部长；孔子学院总部理事会副主席张少春是中共财政部副部长。（本段参考来源：“关于中共利用“孔子学院”进行意识形态渗透的调查报告”）
 
+4.孔子学院由中共宣传部（正式隶属于统战部）资助
 
-> Dr. Fauci needs to read the Johns Hopkins study which concluded lockdowns didn't work.
-> — Lance Gooden (@Lancegooden) [March 20, 2022](https://twitter.com/Lancegooden/status/1505678664259850249?ref_src=twsrc%5Etfw)
+中共提供孔子学院的启动资金、运营经费、派往孔子学院院长和老师的津贴、向孔子学生所在大学提供巨额资助、赞助孔子学院所在国学生到中共国留学旅行、赞助汉语桥项目等等。
 
+每设立一个孔子学院，中共孔子学院总部提供10万美元的启动资金，每设立一个孔子课堂，中共提供5万美元启动资金。每一个志愿者老师每年1.3万美元津贴，每一个公派老师津贴是志愿者的两倍多。
 
+中共政府对孔子学院的投入金额单2009年就达1.45亿美元。2010年中共对遍布104个国家的353所孔院的经费投入达1.67亿美元。2010年，中共为在哥伦比亚大学设孔子学院，主动提出在五年内向哥伦比亚大学提供100万美元的资助。
 
-众议院共和党： 拜登总统不应该用伊朗、沙特阿拉伯或委内瑞拉的石油取代俄罗斯的石油。 相反，拜登总统应该释放美国的能源主导地位。 能源安全就是国家安全。
+截至2019年12月，中共在全球建立550所孔子学院，1172个孔子课堂，累计派出12万名公派教师和志愿者。光是孔子学院、课堂的启动资金就高达一亿多美元。然而改名后的孔子学院继续以“中外语言交流合作中心”的名义招聘老师去孔院教学。
 
+而据中共官方数据从2001年到2011年间的十一年，财政性教育经费支出占GDP的比例还没有到4%，其中财政性教育经费支出的最低谷时2004年，只占GDP的2.79%，而2004年中共不惜重金在海外办了第一所孔子学院，却不愿出资提升本国人民的教育。（本段参考来源：“关于中共利用“孔子学院”进行意识形态渗透的调查报告”和“孔子学院十五年：全球“汉语热”带来机遇与挑战”）
 
+从一筹备就带有浓厚政治色彩的孔子学院，由驻在中共国大使馆和领事馆的人员监督，是中共统战工作的一部分。中共通过统战工作来维护政治利益。自2012年习近平上台，更加重视统战工作。习近平在中共十九大讲话中称统战工作是“确保党的事业成功的重要途径”，并敦促中共形成“最广泛的爱国统一战线”。
 
-> President Biden should not be replacing oil from Russia with oil from Iran, Saudi Arabia, or Venezuela.
-> 
-> Instead, President Biden should unleash American energy dominance.
-> 
-> Energy security is national security.
-> — House Republicans (@HouseGOP) [March 21, 2022](https://twitter.com/HouseGOP/status/1505715061712736257?ref_src=twsrc%5Etfw)
+统战工作的本质是通过难以公开证明的关系来寻求影响，并获得与民族、政治等敏感问题交织在一起的影响力。中共加强统一战线工作，以进一步压制对中共的批评，传播对中共的正面看法，并激励外国民主国家的选民以有利于中共的方式影响其国内政策。统战工作有助于促进北京优先政策，迫使生活在自由和开放社会中的个人自我审查并避免讨论对中共不利的问题，同时骚扰或破坏批评北京政策的团体。统战战略使用一系列方法来影响海外华人社区、外国政府和其他行为者，采取支持北京优先政策的立场。一些官方和准官方实体在统战部指导或资助下开展海外活动，这其中就包括了孔子学院。孔子学院借助孔子的名声替中共进行统战工作，借助孔子学院所在国的名声和影响力，培养对中共有利的友好环境，帮助中共进入西方社会主流，从而取得全球话语权。
+
+（以上两段参考来源：“China’s Overseas United Front Work: Background and Implications for the United States”PDF文档）
+
+参考来源：
+
+1.[关于中共利用“孔子学院”进行意识形态渗透的调查报告](https://www.zhuichaguoji.org/node/40708)
+
+2.[【孔子学院风波】观察站：胡锦涛时代大外宣帷幕半降](https://www.hk01.com/中國觀察/496380/孔子學院風波-觀察站-胡錦濤時代大外宣帷幕半降)
+
+3.[China’s Overseas United Front Work: Background and Implications for the United States](https://www.uscc.gov/research/chinas-overseas-united-front-work-background-and-implications-united-states)
+
+4[.China’s Overseas United Front Work: Background and Implications for the United States](https://www.uscc.gov/sites/default/files/Research/China%27s%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)
+
+5[.孔子学院十五年：全球“汉语热”带来机遇与挑战](http://www.xinhuanet.com/politics/2019-12/10/c_1125330352.htm)
+
+6. [孔子学院持续关闭，孔院实质不断被揭发](https://gnews.org/zh-hans/2067772/)
+
+校对/发稿：飞虹
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
 
 
