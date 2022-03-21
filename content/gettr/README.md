@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 11:08 PM (UTC)`
+
+3月21号：听说啊，这是路大脑袋或吴争——九指妖！搞了个混血儿！这是真的吗？真是共产党的好孩纸！🙈🙈🙈🙈🙈🙈
+
+---
+
 `@miles 3/21/2022 10:40 PM (UTC)`
 
 3/21/2022 Miles Guo’s GETTR: Fellow fighters at the front line of the Ukraine rescue operation, please do not divide yourselves by your affiliations with the Himalaya Farms. We are citizens of the New Federal State of China. The rescue operation and live broadcast have been improved, and I hope everyone takes enough measures to protect themselves from the CCP virus. The NFSC & ROLF rescue operation indicates that the CCP doesn’t represent the Chinese and shows our steadfast strength and courage to take down the CCP. In the face of anti-Chinese riots across the globe, the contributions of fellow fighters at the front line are invaluable.<br/><br/>3/21/2022 文贵盖特：救援前线的战友们不要分农场，我们都是新中国联邦人；救援工作和直播有了进步，希望大家做好防病毒的措施；新中国联邦法治基金救援说明中共代表不了中国人，反映出我们灭共的坚定力量和勇气；面对全球排华，前线的战友们功德无量
@@ -146,13 +152,6 @@ Liu Yanping, the only senior officer, former head of the State Supervision Commi
 
 This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE News who tied closely to CCP regime. This time she defamed our humanitarian rescue as “just completing a political goal”. She also wants to white wash CCP, saying “Officially China has not wanted to activities back Russia.” But everybody knows that CCP is the origin of all evil. <br/>Thanks to DC Farm for making the video!🙏🙏🙏<br/>尊敬的战友们好，这个彭博社的女记者Aggi是第二个杨贝贝。这次，她污名化我们的人道救援是“完成政治目的”。 她更加想要为CCP洗白，说CCP“官方”没有支持俄罗斯对乌克兰的侵略战争。而众所周知，CCP就是那个万恶之源。 <br/>感谢DC农场制作的视频！🙏🙏🙏
 ![img](https://media.gettr.com/group22/origin/2022/03/21/04/493a7acb-3cc9-57a1-c4eb-4f43db941f72/out.jpg)
-
----
-
-`@miles 3/21/2022 3:43 AM (UTC)`
-
-3/20/2022 Miles Guo: Dictators have no idea about what the modern world is because of their arrogance. Modern warfare is only about technology. Elon Musk threw down the gauntlet to Putin, and what he said turned out to be the most marvelous thing that has ever been said in the history of humanity and has completely changed human civilization and warfare!<br/><br/>3/20/2022 文贵直播: 独裁者因其狂妄对当代世界完全没有认知。当代世界的战争只和科技有关。马斯克对普京下的战书是人类有史以来最牛的话，它改写了人类的文明和战争！
-![img](https://media.gettr.com/group7/getter/2022/03/21/03/f85caa39-8ed2-9d5b-a4ef-c288e77885ad/out.jpg)
 
 ---
 

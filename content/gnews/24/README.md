@@ -2,29 +2,33 @@
 ---
 
 
-## 俄罗斯召见美国大使，两国关系“濒临崩溃”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2206204/)
+## 班农战斗室1716集乌克兰局势以及乌俄谈判双方利益点
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2206214/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0123-1.jpg)
+制作：peacelv
 
 
-图片来源：DPA
 
-克里姆林宫召见了美国驻莫斯科大使。原因是美国总统乔拜登的声明，他将弗拉基米尔普京描述为“战犯”。双边关系“濒临破裂”。
 
-俄罗斯召见了美国驻莫斯科大使，并指责美国将双边关系“带到了崩溃的边缘”。俄罗斯外交部周一表示，美国总统乔拜登称克里姆林宫首席弗拉基米尔普京为“战犯”的声明“不配成为高级政治家”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-4-e1647900955632.png)
 
-美国大使约翰沙利文在一份抗议信中表示，此类言论危及两国关系。
 
-华盛顿还被警告说，“对俄罗斯的敌对行为将被坚决拒绝。”
 
-美国总统拜登周三称普京为“战犯”。克里姆林宫立即批评拜登的措辞“不可接受且不可原谅”。
 
-🔗 [https://www.welt.de/politik/ausland/article237666445/Ukraine-News-im-Liveticker-Kreml-Beziehungen-zu-USA-am-Rande-des-Abbruchs.html](https://www.welt.de/politik/ausland/article237666445/Ukraine-News-im-Liveticker-Kreml-Beziehungen-zu-USA-am-Rande-des-Abbruchs.html)
 
-编辑发表： Shuizhuyu
+
+素材：peacelv
+翻译: peacelv
+
+视频字幕制作：peacelv
+
+发稿：信心的选择
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+![]()
+
 
  
 

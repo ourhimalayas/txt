@@ -2,26 +2,29 @@
 ---
 
 
-## 美国官员：中共国在南海至少有3个岛屿拥有武器
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2206746/)
+## 今日盖特大V推荐 — 马特·沃尔什（Matt Walsh）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2206825/)
 
-编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/aulj9-n7nko-5.jpg)
+**盖特链接接**：[https://gettr.com/user/mattwalshblog](https://gettr.com/user/mattwalshblog)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2452-edited.png)中国的武器至少在该国在南中国海建造的三个岛屿上。上图为周日，美国印太地区指挥官约翰-阿基里诺上将在飞越南中国海南沙群岛的侦察机上观看中国建筑和建筑物的图片。
-Aaron favila/AP Photo
+**马特·沃尔什自述：**
 
-美国海军上将约翰-阿奎利诺周日告诉美联社，中共国在南海建造的至少三个岛屿上都驻扎了武器。
+神权法西斯，暴君，养蜂人
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-33.png)图片来源：网络
+**马特·沃尔什简介：**
 
-美国印太地区指挥官阿奎利诺说，这些人工岛已经装备了反舰和防空导弹系统、战斗机以及激光和干扰设备，显示了中工国的军事力量。
+马特·沃尔什（Matt Walsh 生于1986年6月18日）是美国保守派政治评论员、媒体主持人、作家，主持每日电讯报（The Daily Wire）的马特·沃尔什秀播客。
+马特·沃尔什著有；2017 年《邪恶的三位一体：阻止左派对生命、婚姻和性别的攻击》、2020年《懦夫教会：给自满的基督徒敲响警钟》、2021 年《海象强尼》。
 
-“我认为在过去的20年里，我们目睹了中华人民共和国（People’s Republic of China）自第二次世界大战以来最大的军事集结”，阿基利诺告诉美联社。“他们已经推进了他们的所有能力，这种武器化的积累正在破坏该地区的稳定。”
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-* * *
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-审核：Aries的星
-校对：小东
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

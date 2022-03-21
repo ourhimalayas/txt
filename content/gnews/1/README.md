@@ -2,19 +2,10 @@
 ---
 
 
-## 西方世界对海外欺民贼的彻底清理行动已经开始（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206897/)
+## 3/21/2022 文贵盖特：世界在等着下一个靴子降落 &#8211; 中共啥时候公开军援俄罗斯？中共必灭，只是被其内部消灭还是被全世界消灭的问题
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2206954/)
 
-#### PPT制作: WinterGuo ；开智则立
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10-10-20-四--scaled.jpeg)
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+秘密翻译组-北美组
 
  
 
