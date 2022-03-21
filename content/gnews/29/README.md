@@ -2,29 +2,27 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2205633/)
+## 新中国联邦以人道主义救援闪亮国际政治舞台
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2205840/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-26.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-21.png)
-文章仅代表作者本人观点，与Gnews无关
+采编撰稿：加拿大温哥华扬帆农场 – 晨熹
 
-视频参看：
-[2022.03.21早 《NFSC新闻》](https://gettr.com/streaming/p114osn456a)
-[2022.03.21早《NFSC新闻访谈》](https://gettr.com/streaming/p1153hzb1d9)
+加拿大温哥华扬帆农场《枫叶快讯》
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2424.png)图片来源：gettr
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-20.jpeg)
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
+据3月17日文贵先生直播报道，法治基金乌克兰救援行动已使新中国联邦与[国际救援会]、[战争前线救援]和[无国界记者]等多个主要国际公益组织建立了非官方，可信赖的合作关系。
+
+报道称，虽然之前曾尝试过与以上组织开展救援合作，但中共出于即将灭亡前的恐惧，不惜使用一切卑劣手段阻止[新中国联邦]与多个主要国际公益组织进行联系。
+
+尽管中共从中作梗，但本次[法治基金]乌克兰救援行动及战友们在救援过程中的卓越表现，却迅速让[新中国联邦]以无我的人道主义形象，亮相国际政治舞台。并以此真正开始了与中共政权在同级别对手之间的殊死决斗。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源：[https://gettr.com/post/p10l4ay1173](https://gettr.com/post/p10l4ay1173)
 
  
 

@@ -2,29 +2,31 @@
 ---
 
 
-## 俄罗斯召见美国大使，两国关系“濒临崩溃”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2206204/)
+## 他唯一做的对的决定
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2206264/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+文编：Hima
+听写：叮叮
+视频：七哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0123-1.jpg)
+2022-03-15直播摘录
 
+那个房子，住的房子…….对了，我还没跟长岛哥说呢。那个房子头两天说卖，推出去，你七嫂子的律师建议推出去。结果推出去挂出去第五天，当时你七嫂子问律师多少钱挂呀？律师说：“你买时候130，现在挂150吧。” 然后你七嫂子说：“不对吧，我觉得这房子应该涨钱吧？” 我都不知道，你七嫂子告诉律师，你七嫂跟你七哥睡了30多年现在也那么厉害，我真很佩服啊。要230，我都不知道，她要230。那天我回家，你七嫂子还那么高兴，还吹着小哨，“欻欻”，我说：“怎么高兴啊？” 她说：“你看，我做房地产只比你强，不比你差。” 我发现这女人得意时候挺吓人的，这家要有媳妇厉害了……我不知道老虎尾巴咋活过来有Rachel这样的女人，你说这女人要厉害了那得意的样儿。我说：“哎呀哈，啥意思？” 她说：“你看，你都破产了说明你做生意还是很差的嘛。你看我，我那个房子人家律师问我多少钱，必须我本人喊个价，我喊了230，才三天人家来了买了，不砍价。”我说：“哎呀行啊，美国印钞票，所以你那房子就升值了。还有一个，也因为我天天给你忽悠那个房子，很多人就买了嘛，你得这么看待我。” 她还在那一副不屑。坏了，又过两天，你嫂子又在那吹着口哨，天不怕地不怕就怕你七嫂子吹口哨啊，对我来讲基本上都是坏消息，就是有得意羞辱我的消息啊。一吹口哨，我一看，我不问她了，她看我不问她，她：“你不想问问我发生什么事了？” 我说：“我不想知道，吹吧。”她说：“告诉你，又有一个人来了出235万，一次性付款。 ”喔噻~还有涨价的。我说：“能不能你赶快交易了啊？你别再这吹口哨，我做房地产不如你，还是你厉害。” 你说“路大脑袋”这个孙子，把自己房子给吹没了，他有多窝囊？就这个房子，不带家具啊，235万！就一生中他都在错误的决定，他唯一做的对的决定就让当时的盲人强子到他家去，他女儿光着腚转悠，然后他最后是跟我说了。他唯一做对这件事情。
 
-图片来源：DPA
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-克里姆林宫召见了美国驻莫斯科大使。原因是美国总统乔拜登的声明，他将弗拉基米尔普京描述为“战犯”。双边关系“濒临破裂”。
+**关注我们**
 
-俄罗斯召见了美国驻莫斯科大使，并指责美国将双边关系“带到了崩溃的边缘”。俄罗斯外交部周一表示，美国总统乔拜登称克里姆林宫首席弗拉基米尔普京为“战犯”的声明“不配成为高级政治家”。
+Discord 账号
 
-美国大使约翰沙利文在一份抗议信中表示，此类言论危及两国关系。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-华盛顿还被警告说，“对俄罗斯的敌对行为将被坚决拒绝。”
+Gettr 账号
 
-美国总统拜登周三称普京为“战犯”。克里姆林宫立即批评拜登的措辞“不可接受且不可原谅”。
-
-🔗 [https://www.welt.de/politik/ausland/article237666445/Ukraine-News-im-Liveticker-Kreml-Beziehungen-zu-USA-am-Rande-des-Abbruchs.html](https://www.welt.de/politik/ausland/article237666445/Ukraine-News-im-Liveticker-Kreml-Beziehungen-zu-USA-am-Rande-des-Abbruchs.html)
-
-编辑发表： Shuizhuyu
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

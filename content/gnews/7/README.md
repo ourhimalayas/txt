@@ -2,34 +2,31 @@
 ---
 
 
-## 联合国：自俄入侵乌克兰已有一千万人流离失所
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2206134/)
+## 扬帆农场的付出
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2206196/)
 
-翻译：噜噜咪
+文编：Hima
+听写：叮叮
+视频：七哥
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1647822531430.png)周日，乌克兰难民抵达波兰普热米斯尔的一个火车站。（盖蒂图片）
+2022-03-15直播摘录
 
-联合国难民事务负责人周日表示，自俄罗斯对乌克兰的军事入侵开始近四周以来，已有1000万人逃离了他们在乌克兰的家园。
+兄弟姐妹们，我看了刚才做的PPT，我就在想我们新中国联邦人做PPT为什么能做得越来越好？咱们现在从今天做的PPT往以前看，你再看咱的PPT，就成了笑话了都，是吧？这个是完全不一样的。那么今天的PPT你看到很多它是很务实、对国际信息的判断，还有爆料革命我们有一个基础，也就有一个标杆，就是你怎么判断你自己的这个做的PPT，而且跟国际上形势和事实就是说它是能跟上趟儿的，它不一定说有多大的决策参考作用，但是最起码传递了基本正确信息，这是新中国联邦人做PPT非常重要的。我看到扬帆农场、77农场、盘古农场都参与。那么我们现在扬帆农场今天的专包包场，咱们扬帆农场整理的七哥的直播还有整理的一些PPT是目前最高之一，应该是前二或前三的，这个要感谢扬帆农场。那么扬帆农场是属于那种只干活不说话的那种，它不像英国大卫，英国大卫他是干一件事他能喊出一百件事出来，给你吆喝着喊，是吧？他是能喊那种。扬帆农场是干一百件事说一件事那种，它不一样，是吧？你文耀那种人是干一件事也能喊出两件事的人，人家那种会宣传，扬帆农场你们就吃哑巴亏了，但是活儿干得是不错，谢谢大家！这是特别要提起的。
 
-这个数字意味着，自从弗拉基米尔·普京总统命令他的俄罗斯军队于2月24日对乌克兰发动全面进攻以来，大约四分之一的乌克兰人口要么在该国境内流离失所，要么逃往国外。
+校对：HimaFaFA
+发布：HimaBoy
+![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-联合国难民事务高级专员菲利波·格兰迪周日在推特上说：“在世界任何地方，那些发动战争的人的其中一个责任是给被迫逃离家园的平民带来的痛苦。”
+**关注我们**
 
-“乌克兰的战争是如此具有破坏性，以至于一千万人已经逃离——要么在国内流离失所，要么成为海外难民。”
+Discord 账号
 
-根据联合国难民机构的最新数据，自2月24日以来，近340万乌克兰人离开了该国，其中超过200万人去了波兰。
+![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-根据联合国儿童机构UNICEF的数据，逃离乌克兰的人中有150多万儿童。
+Gettr 账号
 
-**参考资料：**[axios][UN: 10 million Ukrainians have fled their homes since invasion began](https://www.axios.com/un-10-million-ukrainians-fled-homes-since-invasion-began-c0c2cceb-c63f-45e6-9326-b24332a26cf1.html)
-
-* * *
-
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
