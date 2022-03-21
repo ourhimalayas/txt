@@ -2,45 +2,55 @@
 ---
 
 
-## 新罕布什尔州众议院投票允许伊维菌素为非处方销售
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2204723/)
+## 俄乌战争最新进展（3月20日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2204729/)
 
-编译： Jenny Ball
+作者：文斌
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月20日，俄乌战争最新进展综合报道如下，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-上午9.50.18.png)
+一. 乌克兰总统府发布消息称，白俄罗斯有攻击该国西部的危险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown.jpg)图片来源：childrenshealthdefense.org
+二. 乌克兰国家安全和国防委员会暂停了11个亲俄政党的活动，包括反对派平台，直到戒严令被取消为止。
 
-周三，新罕布什尔州众议院通过了一项法案，允许该州的药剂师在柜台上出售伊维菌素，无需处方。
+三. 俄军将继续试图推进到离基辅中心的有效炮火射程之内，但前景并不乐观。
 
-HB 1022法案还阻止新罕布什尔州医疗许可委员会对开药的医生进行纪律处分。
+四. 一架俄罗斯Orlan-10侦察无人机在基辅西部莫士村（Moshchun）附近被击落。
 
-该法案以 183 票对 159 票通过，现已提交参议院。
+五. 俄军炮击切尔尼戈夫地区的尼津市。
 
-议员利亚·库什曼（ Leah Cushman）向《捍卫者》（The Defender）提供了以下声明：
+六. 卢甘斯克州政府负责人说，现已查明在3月11日，俄罗斯军队用坦克轰击克雷明纳镇的老年护理院，造成56人死亡。而卢汉斯克地区的战斗仍在继续，尤其是吕比兹内（Rubizhne）附近发生激烈战斗。
 
-“HB1022允许药剂师通过长期订单分配伊维菌素，有效地使其在柜台上可购买。**关于伊维菌素在降低**** COVID-19 ****严重程度和持续时间方面的有效性的证据越来越多**。”
+七. 俄军炮击马里乌波尔、里沃布列兹尼（Livoberezhny）区艺术学校，导致多人可能被困在废墟下。并且，有4艘俄罗斯海军舰艇在亚述海炮击马里乌波尔。
 
-“由于许多医生害怕为 COVID-19 的治疗开出任何标签外的药物，因此，患者转向外国药店，在黑市上购买，或购买为动物配制的伊维菌素。我们需要通过这项法案，以扩大新罕布什尔州人民在药房获得伊维菌素的机会。”
+八. 俄军炮击第聂伯罗彼得罗夫斯克地区的维利卡-科斯托姆卡（Velyka Kostromka）村。
 
-缅因州医生、儿童健康防御 (CHD) 科学顾问委员会成员梅丽尔·纳斯博士赞扬新罕布什尔州立法者通过了该法案。她告诉卫报：
+九. 俄罗斯国防部称其里海舰队舰艇已经用”卡利布”巡航导弹袭击乌克兰目标；而且再次使用了从克里米亚上空发射的机载式匕首（Kinzhal）高超音速导弹。
 
-“昨天，新罕布什尔州议会议员为 COVID 患者做了一件了不起的事情……为了使用安全有效的药物挽救生命，新罕布什尔州居民将能够在没有处方的情况下从药店购买伊维菌素。”
+十. 反对俄军的示威活动在别尔江斯克、赫尔松、卡霍夫卡等地继续进行，而在别尔江斯克，俄军有殴打和拘留抗议者。
 
-纳斯说，如果该法案在参议院获得通过，患者将“不再需要担心患上新冠病毒，而且有望得到早期治疗”。
+根据俄乌战场当前局势，分析人士得出主要结论：
 
-支持使用伊维菌素和羟氯喹治疗 COVID 患者的纳斯，于 1 月 12 日被缅因州医疗许可委员会停职，该委员会指责她传播“有关 SARS CoV-2 大流行与官方公共卫生呼吁接种疫苗相违背的信息。”
+第一，南部的俄军正集中精力向克里维耶（Kryvyi Rih）推进，据推测是为了孤立该地区，然后从西部合围扎波罗热（Zaporizhiya）和第聂伯罗（Dnipro）。克里维耶拥有60多万人口，根据其军事管理部门负责人的说法，它有很强的防御能力。扎波罗热和第聂伯罗也很大。在未来几周内，俄军不太可能攻下这些城市中的任何一个。对比马里乌波尔，俄军自开战以来一直在强攻，投入的兵力远超目前向克里维耶里方向推进的兵力。因此，俄罗斯在该方向的推进很可能会像所有其他方向上一样陷入困境。
 
-**评论：历经两年，伊维菌素这个最便宜最有效治愈新冠病毒的良药终于可以发挥它的作用，在欣慰的同时，是更多的悲哀：决定这个药物是否救人的，不是专业的医生，而是要没有专业知识的议员们投票决定？治病救人不在是医生的职责，而是政客的决定。**
+第二，俄军似乎已经放弃了短期内进攻奥德萨的计划。
 
-参考资料：[childrenshealthdefense.org][New Hampshire House Votes to Allow Over-the-Counter Sales of Ivermectin](https://childrenshealthdefense.org/defender/new-hampshire-allow-over-the-counter-sale-ivermectin/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=8c79addb-e7b5-4cd9-acc9-191b48562fbb)
+最后，虽然俄罗斯将正在扩大轰炸乌克兰平民，以试图击碎乌克兰人继续战斗的意愿，但事实证明，俄罗斯此举完全失败。
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
+编辑：文真
+总编：文真
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

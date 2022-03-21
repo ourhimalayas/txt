@@ -2,37 +2,10 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月19日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205074/)
+## 3/20/2022 文贵直播: 独裁者因其狂妄对当代世界完全没有认知。当代世界的战争只和科技有关。马斯克对普京下的战书是人类有史以来最牛的话，它改写了人类的文明和战争
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2205136/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-15-1187x1536-1.png)
-
-
-
-
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月19日晚](https://gnews.org/zh-hans/2194755/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+秘密翻译组-北美组
 
  
 

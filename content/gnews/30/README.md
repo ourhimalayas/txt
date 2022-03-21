@@ -2,54 +2,25 @@
 ---
 
 
-## 75岁的乌克兰人Valentyna成功从乌克兰战火区逃出
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2204540/)
+## 载有133名乘客的飞机在中国南部坠毁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2204620/)
 
-作者：加拿大温哥华扬帆农场 – 视频制作：kent 拍摄 ：哈雷
+编译：ZQ
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_5306.jpg)
 
 
-75岁的乌克兰人Valentyna：
+图片来源： 视频截图
 
-3月8日从乌克兰战火区逃出，
+中国东方航空公司载有133名乘客的飞机坠毁，在中国东南部的广西地区的山区产生了火灾。
 
-3月9日成功入住新中国联邦法治基金在波兰克拉科夫为救援行动安排的酒店。
+天空新闻称，国家电视台在周一首次报道了这一事件。
 
-3月18号我们陪伴她完成了新冠核酸检测，
+中共国国家电视台说，一架从昆明飞往广州的波音737-800飞机最终在梧州市附近坠毁。
 
-Valentyna唯一的儿子Sergiy生活在加拿大；
+国家电视台说，伤亡情况仍然不明，救援人员正在赶来。
 
-由于母亲不会说英文，
-
-Sergiy十分担心母亲的状况；
-
-尽管中间出现了一些小意外，
-
-例如出行、购物、换汇的困难，
-
-Valentyna的手机还发生了故障无法使用。
-
-但是新中国联邦法治基金的，
-
-前线救援团队为他们解决了这些问题；
-
-母子二人虽远隔万里，但时时刻刻保持联络，
-
-19号下午，Valentyna顺利登上了飞往加拿大的航班。
-
-希望她与家人未来的生活平安快乐！
-
-素材：哈雷 校对：kent 翻译：kent
-
-字幕：kent
-
-审核 ：kent
-
-编辑发稿：青青
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xe3pikx40i18zs6dhmum.jpg)
-
+🔗 [https://justthenews.com/world/asia/plane-133-passengers-crashes-southern-china-state-tv-report](https://justthenews.com/world/asia/plane-133-passengers-crashes-southern-china-state-tv-report)
 
  
 

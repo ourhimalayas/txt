@@ -2,28 +2,37 @@
 ---
 
 
-## 视频|新中国联邦俄乌战争前线救援公告
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205000/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月19日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205074/)
 
-制作：香草山视频部
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-鉴于俄乌局势依然处于危机状态，‘新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-求助方式及详细信息请参考以下视频。
 
-请播放视频：[https://www.gettr.com/post/pzvg8vdf4f](https://www.gettr.com/post/pzvg8vdf4f%20视频时长1’19’’）)
 
-中国共产党是全世界灾难的根源，我们和乌克兰人站在一起。只有消灭中国共产党才能拯救全人类。感谢大家收看新中国联邦新闻，我们下次再见。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-15-1187x1536-1.png)
 
-发稿文敬
 
+
+
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月19日晚](https://gnews.org/zh-hans/2194755/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

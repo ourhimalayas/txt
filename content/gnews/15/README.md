@@ -2,38 +2,60 @@
 ---
 
 
-## 有声|泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2204983/)
+## 普粉末路
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2205018/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-国外媒体3月19日报导，乌克兰总统泽连斯基在对有数千人参加的伯尔尼反战抗议活动的讲话中，对瑞士的支持表示了感谢。同时表示，发动这场战争的人的财富就存在瑞士的银行里，他们摧毁了乌克兰人的家园，自己却在欧洲在瑞士享受着美好生活。他希望瑞士能够剥夺他们的特权，冻结他们的财产。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-67.jpg)
-同时，泽连斯基在另一个视频中，继续敦促莫斯科当局进行会谈，并表示这是普京政府把错误的损害降到最低的唯一机会。
-
-泽连斯基说，乌克兰已经提出了维持和平的解决方法，现在是见面和会谈的时候，也是为乌克兰恢复领土完整与公平正义的时候，否则俄罗斯的损失将会是几个世代都无法恢复的。
+作者：香草山健身部 新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/03/B29FCF63-E6CB-42BA-913A-2D28FE2B64BF.jpeg)
 
 
+一摊血迹、一排车轮印，
+一名男性死在高速公路，
+南京高速四大队交警接报赶到发现，
+此男子身揣5张火车票，
+在金牛湖服务区附近被车子碾压而死，
+5张火车票和1张汽车票都是同一天的，
+地点却都不相同，
+有从北京到杭州，有从北京到金华，还有从徐州到蚌埠……
+汽车票则是从赵公口到金华。随身携带的塑料袋里，
+还有几张宾馆的房卡，
+地点都在北京。
 
-文字版原文：[泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平](https://gnews.org/zh-hans/2201605/)
+据说他为扒在货车尾部的网绳上，
+像“蜘蛛侠”一样勇敢，
+由于手指脱力，摔落在地，被后面一辆大货车碾压。
+找寻他死的路线轨迹，
+原是个普京的粉丝，
+想给普京送点老家特产，
+于是带着两条当地特产金华火腿、
+两瓶酒和一张存折就出门。
+他去过位于北京的俄罗斯大使馆，
+想送上自己带来的特产，遭到了婉拒。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+在这俄罗斯入侵乌克兰的战火中，
+在乌克兰人民被炸碎了身体、摧毁了家园，炸残了肢体，
+摧毁了和平，
+把美好的乌克兰推进了苦痛的深渊，
+人一旦失去了辨别善恶的能力，
+愚昧就代替了良知。
+真是天作孽犹可活，自作孽不可活。
+千不该万不该把好好开车的无辜驾驶员祸害成了肇事司机，
+被起诉法院。
+真是谎言世界荒谬多！
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2091ED98-2707-4532-9752-F1CDD8CE4F8F.jpeg)
+
+編輯/校対/发稿：玫瑰圓
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场**GTV-**香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**GTV-MOS TALK **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0F684D3B-9190-4D60-ACBF-70C9E9781477.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

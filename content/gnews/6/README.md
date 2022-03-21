@@ -2,40 +2,30 @@
 ---
 
 
-## 文贵先生盖特精要2022/03/21
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2205105/)
+## SWIFT断开白俄罗斯银行的联系
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2205162/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2400.png)
-[盖特直播链接](https://gettr.com/post/p11491pcf7e)
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+3月20日起，SWIFT国际支付系统正式与三家白俄罗斯银行：Белагропромбанка、БанкРазвитияБеларуси和БанкДабрабыт，银行断开连接。SWIFT是世界上几乎所有国家的金融和非金融组织之间转移资金和其他贵重物品的唯一通用渠道。与SWIFT断开连接会导致银行遭受重大财务和声誉损失。
 
-- 纽约阳光明媚，将去中央公园跑一圈，正在准备大事。
-- 国内战友关心737飞机坠毁，疫苗灾难到来之时，这将成为常态。
-- 最近数字货币场外交易“疯狂”。多人因赵长鹏币安被“喝茶”，国内外发生多起被抓强行夺走数字货币事件。第三代数字货币上线后，币安、比特币都将被淘汰。
-- 货币稳定性和流通性很关键，黄金不可能暴涨。
-- 俄乌战场前线，各农场战友之间距离拉近，农场与农场应团结协作工作。现场直播将改善，部分感染病毒战友从阳转阴。新中国联邦救援行动时刻向世界传递正面信息。
-- 中共军事支持俄罗斯侵占乌克兰，全世界紧盯其行动。
-- 墙内医学院专家建议七哥少抽雪茄、坚持锻炼、多休息。
-- 中共国房地产爆雷、香港经济崩塌几个月内发生，将殃及全球经济。
-- 俄乌战争可能转好，普京不可能再被世界接受。
-- 星期三直播，这两天全天开会，条件允许下再向战友汇报。
+早在本月9日，欧盟委员会就对白俄罗斯实施新一揽子制裁计划达成一致。制裁内容除了将三家白俄罗斯银行排除在SWIFT之外，还禁止欧盟向白俄罗斯供应欧元现金，以及禁止该国公民在任何欧洲银行存款超过10万欧元。
 
+尽管，1994年以来，白俄罗斯拥有自己的内部支付系统BELKART，加之今年3月18日开始使用人民币作为结算货币。但实际上，由于脱离swift系统之后，跨国企业驻白俄罗斯的子公司，无法将利润汇入母公司。这使得例如服装公司H＆M，家装公司IKEA，酿酒企业Olvi，芯片制造企业英特尔、AMD，网络供应商思科，网络租赁公司Airbnb，邮政快递公司DHL、FedEX、UPS等等跨国企业，要么已经完全撤离白俄罗斯，要么停止了为白俄罗斯地区提供服务。
 
-*听写：call me uncle*
+虽然，白俄罗斯官方宣称，这三家银行与SWIFT脱离后不会对白俄经济产生严重的影响。但是实际上，战争的阴霾和经济持续的恶化，白俄罗斯人已经开始用脚表达了自己的诉求。据德国之声报道，根据立陶宛边防部队的说法，过去几天，越过立陶宛边境的白俄罗斯公民比平均水平高出30%。[https://www.pravda.com.ua/news/2022/03/21/7333190/ https://www.dw.com/ru/ne-hochu-voevat-s-ukraincami-istorii-uezzhajushhih-iz-rb/a-61119088](https://www.pravda.com.ua/news/2022/03/21/7333190/%20https://www.dw.com/ru/ne-hochu-voevat-s-ukraincami-istorii-uezzhajushhih-iz-rb/a-61119088)
 
-*校对: 乐禧禧*
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2091ED98-2707-4532-9752-F1CDD8CE4F8F.jpeg)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
