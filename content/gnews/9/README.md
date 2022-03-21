@@ -2,39 +2,33 @@
 ---
 
 
-## 有声|美国进口俄罗斯商品 面临关税大幅上升
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2201053/)
+## 德国呼吁欧盟和美国重启自由贸易协定谈判
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2201246/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院3月17日通过了一项法案，暂停与俄罗斯及其盟友白俄罗斯的正常贸易关系，以回应普京入侵乌克兰的决定，为对关键商品和原材料的进口大幅提高关税打开了大门。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-32.jpg)
-纽约州民主党参议院多数党领袖查克·舒默说，参议院将很快讨论该法案，为拜登总统最快于下周签署该法案成为法律奠定基础。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯是美国第26大货物贸易伙伴，从该国进口的货物占美国总进口量的1%左右。一些关键商品则占有更大份额。例如，俄罗斯来源的钛产品占美国总进口量的53%。如果国会撤销俄罗斯的永久正常化贸易地位，这些商品的关税可能从15%上升到45%。其他可能受到影响的商品包括铝、钢铁和黄金等。
+整理/编辑：围剿维尼熊
 
-拜登总统上周宣布禁止进口俄罗斯石油和某些石油产品，同时还禁止进口海鲜、伏特加和钻石等商品，被禁止的项目即使以高得多的海关税率也无法获得进口。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/financial_consultant_3.png)图片来源：雅典娜设计组
 
 
+根据路透社3月20日讯，德国商报报导，德国财政部长林德纳(Christian Lindner)呼吁欧盟和美国进行新的自由贸易协定谈判。
 
-文字版原文：[美国进口俄罗斯商品 面临关税大幅上升](https://gnews.org/zh-hans/2197136/)
+特朗普当年叫停了关于跨大西洋贸易与投资伙伴协定(TTIP)的谈判，并发起了一些对欧盟的贸易争端。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+林德纳表示应该恢复关于跨大西洋自由贸易协定的谈判，他强调与世界各地有着共同价值观的伙伴进行自由贸易是多么重要。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+美国驻柏林大使馆在一份声明中没有直接回应林德纳的提议，但表示现有的美欧贸易和技术委员会(TTC)能确保贸易和技术政策支持广泛的增长。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+参考链接：[德国呼吁美欧重启贸易谈判 提及危机下的“共同价值观”](https://cn.reuters.com/article/eu-usa-trade-talks-0320-sun-idCNKCS2LI03Q)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+*发布：tianzhihuan*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

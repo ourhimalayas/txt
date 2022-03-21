@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|俄罗斯导弹袭击了乌克兰西部城市利沃夫
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2201024/)
+## 作恶继续 美陆军开除没有接种疫苗的士兵
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2201086/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-国外媒体报道，3月18日，俄罗斯的导弹袭击了利沃夫附近的一个机场。利沃夫是乌克兰最西部的城市，距离波兰边境不到50英里，数十万难民在这里寻求庇护，数百名记者也在这里工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2199.png)
-到目前为止，利沃夫是一直是受俄罗斯攻击影响最小的城市，很多救援工作都在此地展开，包括新中国联邦的一个救援小组。这里成为输送难民前往波兰的一个重要枢纽。
+翻译：冰糖葫芦喵
 
-利沃夫市长最近表示，由于难民数量过多，该市各种资源极度短缺，正在呼吁各方提供实质性支持。另外利沃夫的国际媒体中心在俄罗斯入侵前的几天刚刚成立，目前已经接待了来自50多个不同国家的800多名记者。无国界记者组织也在此地创立了一个所谓的新闻自由中心，提供互联网接入和媒体资源以及某些防护装备。
+编辑与校对：冰糖葫芦喵
 
-据利沃夫市长说，在此次袭击中，至少有一人受伤，总体伤亡人数不多。
+《网关专家》3月20日报道，上周，**美国陆军和其他军种一起努力清除中共病毒疫苗异议者，宣布将三名拒绝接种中共病毒的士兵离职。这是美国陆军正式开始让未接种疫苗的士兵不光彩地退伍**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/士兵决绝接种-1.jpg)图片来自原文。
+据报道，**第一轮裁员还包括六名陆军指挥官，其中包括两名营长。**根据美军3月18日发布的一份声明，**还有超过3250份传票发给了仍然拒绝执行疫苗强制命令的士兵**。
+
+**预计在接下来的几周内，拒绝接种疫苗的退伍人数将会增加**，因为**军方高层希望最终执行已实施数月的命令。**
+
+根据可公开获得的最新信息，**仅陆军就有数千名士兵尚未接种中共病毒疫苗。总计已有2600多名士兵在任何情况下拒绝接种疫苗，另有数千人申请医疗和宗教豁免。**
+
+然而，**自美国政府宣布疫苗强制政策以来，陆军总共只批准了9项豁免，**因此获得豁免的可能性并不大。
+
+据报道，在美国五大军事部门中，陆军是最晚开始惩罚拒绝遵守疫苗规定的士兵。**在其他部门，他们已经驱逐疫苗异议者几个月了，有成千上万的士兵被全面驱逐出队伍。**
+
+新闻链接来源：
+
+[VAX PURGE CONTINUES: US Army Officially Begins Dishonorably Discharging Soldiers Who Haven’t Taken The Experimental Vaccine (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/vax-purge-continues-us-army-officially-begins-dishonorably-discharging-soldiers-havent-taken-experimental-jab/)
 
 
-
-文字版原文：[俄罗斯导弹袭击了乌克兰西部城市利沃夫](https://gnews.org/zh-hans/2196832/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 3:34 AM (UTC)`
+
+3/20/2022 Miles Guo: The Tweet posted by Elon Musk challenging Putin caused yellow light within the CCP - who called for emergency meeting at midnight to discuss how to respond; no matter how bragging the Axis of Evils are, and if Russia or CCP dares to fire missiles, Elon Musk could make those missiles fire at their own backyard by blowing out a breath<br/><br/>3/20/2022 文贵直播：Elon Musk发推单挑普京，中共内部因此亮起黄灯，并连夜紧急会议商讨对策；邪恶轴心国闹得再欢，Elon Musk吹一口气就能让俄罗斯和中共的导弹核弹在被窝了炸了<br/>
+![img](https://media.gettr.com/group46/getter/2022/03/21/03/283aae41-9ea1-2a4f-bf11-119c6dff976a/out.jpg)
+
+---
+
+`@miles 3/21/2022 3:27 AM (UTC)`
+
+【Ukraine Rescue】03/19/2022 The NFSC volunteers reveal a list of the people rescued by bus on live broadcast. Mr. Hao Haidong comments that this list proves the truthfulness of the NFSC’s rescue and explains why the NFSC is so likable under the principle of “Only truth will prevail” <br/><br/>【乌克兰救援】03/19/2022  在3月19日的直播中，新中国联邦义工实时展示大巴上获救人员名单。郝海东先生点评说，这展示了新中国联邦唯真不破的魅力，证明了新中国联邦救援数据的真实可靠。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group11/getter/2022/03/21/03/8c452c43-0e83-a85f-d5c4-e231ca9daef2/out.jpg)
+
+---
+
 `@miles 3/21/2022 2:02 AM (UTC)`
 
 2022.03.20 农场联盟工作汇报
@@ -144,20 +158,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 
 ![img](https://media.gettr.com/group33/origin/2022/03/20/18/a40f2283-3a8a-09a0-3f27-54783933d12d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/20/2022 5:17 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
-![img](https://media.gettr.com/group27/origin/2022/03/20/16/9fada700-0785-5e64-800a-e39dac2098fd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/20/2022 4:04 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
-![img](https://media.gettr.com/group27/origin/2022/03/20/16/9fada700-0785-5e64-800a-e39dac2098fd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
