@@ -2,8 +2,8 @@
 ---
 
 
-## 20220320郭文贵大直播 ：美国吸引全世界人才，产生无数个马斯克，反观中共国不会产生文明
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2204466/)
+## 20220320郭文贵大直播 ：文贵大直播爆料：美国将很快制裁中共媒体平台和企业
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2204497/)
 
 作者：东京樱花团小视频组
 

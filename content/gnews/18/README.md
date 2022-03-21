@@ -2,12 +2,12 @@
 ---
 
 
-## 嘉宾问答（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2204441/)
+## 嘉宾问答（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2204451/)
 
 #### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：40-11：47-003.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：40-11：47-005.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
