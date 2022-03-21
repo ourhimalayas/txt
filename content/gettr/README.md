@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 2:02 AM (UTC)`
+
+2022.03.20 农场联盟工作汇报
+![img](https://media.gettr.com/group31/origin/2022/03/21/01/5d98f971-7cf3-353a-83c3-d9a1c903935f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/21/2022 1:04 AM (UTC)`
 
 2022.03.20 晚《新中国联邦新闻访谈》 美国爆发禽流感，禽流感和普通流感、新冠有什么异同？如何预防？； 德尔塔克戎（Deltacron ）组合变种是否更危险？； 疫苗病毒最新动态，回答战友常见的几个问题
@@ -151,13 +158,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地实况转播
 ![img](https://media.gettr.com/group27/origin/2022/03/20/16/9fada700-0785-5e64-800a-e39dac2098fd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/20/2022 1:33 PM (UTC)`
-
-【Ukraine Rescue】03/19/2022 David: We rely on a team process-oriented operation to ensure the safety of the NFSC’s bus rescue through a workflow including registration, screening, roll call, security, check etc. <br/><br/>【乌克兰救援】03/19/2022大卫：我们是靠一个团队流程化作业，通过登记、筛选、点名、安保、检查等环节的工作流程确保新中国联邦巴士救援的安全<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group36/getter/2022/03/20/13/66321fd4-ed1d-dd46-d0a7-f5666d5a4762/out.jpg)
 
 ---
 
