@@ -2,35 +2,42 @@
 ---
 
 
-## 澳洲政府将花费1300万澳元推动接种新冠疫苗加强针
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2200778/)
+## 有声|日本开始接收没有担保人的乌克兰难民
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2200994/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2293.png)图片来自网络
-澳洲政府将花费1300万澳元，通过电视、报纸和网路媒体，为新冠疫苗加强针做宣传，其目的是让澳洲民众在冬季到来之前接种新冠加强针，以促进澳洲新冠疫苗的接种率。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月18日，日本媒体报道称，日本政府开始允许乌克兰人在没有担保人的情况下入境。此前，日本已在有担保的情况下接收了73位乌克兰难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-34.jpg)
+新措施颁布后，乌克兰人入境程序将大为简化，包括不需要提供中共病毒检测阴性结果，不需要在日本的亲戚熟人担保入境。
 
-澳洲目前有超过630万符合条件的人尚未接种疫苗。除了12岁以上的人以外，政府还将目光盯在了11岁及以下的儿童身上。澳洲大约有200万5至11岁的儿童只打了一针，110万儿童仍未接种疫苗。
+日本对乌克兰人的其他支持措施还有，提供住宿和日常生活必需品，以及工作和学习方面的帮助。入境后获得90天内短期居留权的乌克兰人可以将签证改成为期一年的“指定活动”状态。该状态赋予他们合法的居住权和就业权，使他们能带着安全感留在日本。
 
-政府正在努力开展学校假期疫苗接种突击活动，这些活动可能会在电影院和动物园进行。
+内阁长官表示，现在乌克兰人可以没有后顾之忧地入境日本，且他们不会被日本每日入境7000人的上限条件限制。
 
-澳洲政府早在2021年11月就为澳洲民众准备了1.51亿剂加强针，可供澳洲的2千5百万人口平均每人接种6剂新冠疫苗加强针。
+以往，在日本取得难民身份异常艰难，所有寻求庇护者中大约只有1%得到了日本政府的承认。
 
-塔斯马尼亚州和新南威尔士州分别公布了新冠病毒感染病例，这些数据显示了感染者所在的地区，年龄和性别，还包括了感染者的新冠疫苗接种状况。根据数据，大多数新冠病毒感染者都接种了两针以上的新冠疫苗，说明新冠疫苗不能阻止感染新冠病毒。
 
-据报道，辉瑞等制药公司给人们提供的新冠疫苗是与当前变种病毒不匹配的新冠疫苗。因此，接种新冠疫苗加强针，不但不能消除新冠疫情，还会使情况变得越来越糟。
 
-澳洲政府用纳税人的钱来做广告，推销不起作用的新冠疫苗加强针，只能说明政府的做法与民众的利益背道而驰。
+文字版原文：[日本开始接收没有担保人的乌克兰难民](https://gnews.org/zh-hans/2197143/)
 
-消息来源：[Government spruiks new $13 million booster campaign](https://www.skynews.com.au/australia-news/coronavirus/government-spruiks-new-13-million-booster-campaign/video/2cdf1c983a680af48b9b819b649cbc84)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-[澳洲政府致信并诱导澳洲国民接种加强针](https://gnews.org/zh-hans/1695720/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[澳大利亚塔州政府公布了新冠感染者新冠疫苗接种状况数据](https://gnews.org/zh-hans/2190525/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*审核：喜国公民*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1.jpg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

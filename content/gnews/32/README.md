@@ -2,35 +2,26 @@
 ---
 
 
-## 有声|新中国联邦正式走向世界政治舞台
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2198824/)
+## 中共疫情全面爆发 地方政府财政告急
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2199870/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在3月17日的文贵大直播中，郭先生表示，在全世界都因为俄乌战争而迁怒于中国人的时候，新中国联邦却成功登上了世界政治舞台。
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-35.jpg)[图片来源](https://cn.nytimes.com/china/20220315/china-covid-omicron-lockdowns/)
+中共国家卫建委新闻发言人米锋本周六（3月19日）在国务院联防联控机制记者会上说, 中国多省面临同时段多地发生疫情，形势严峻。
 
-郭先生说，俄乌战争改变了人类格局，欧洲崩塌而美国将一国独大。普京已被美国政府正式列为战犯，全世界也会因为俄罗斯的侵略战争，痛恨其背后的始作俑者中共，并牵连到14亿无辜的中国人。
+米锋表示，本月1日到18日，中国累计通报感染者超过2万9000例，波及28个省份，其中吉林省累计报告超过1万例，另有4个省份累计报告超过1000例，还有10个省份累计报告在100至1000例之间。
 
-新中国联邦在乌克兰前线进行救援，中共曾使用蓝金黄手段，极力阻止多个国际组织与新中国联邦合作，因此法治基金和新中国联邦并没有公开表明合作者身份。但是这次救援行动，已经事实上把新中国联邦推向了与中共平级较量的地位。
+此外，中共中央政府正在加紧对地方政府债务的调控，以防止金融崩溃，此举已影响到若干地区的融资筹措，地方政府的土地收入也因房地产市场放缓而受到影响。
 
-在这次行动中，新中国联邦和法治基金与世界上的多个非政府组织结成了可信赖的合作伙伴。
+由于中共的极端防疫政策，劳民伤财的同时，国内社会、民生和经济灾难丛生，许多地方政府已财政告急。
 
-前线队员们的实际行动和出色表现，不但加速了中共被迫营救同胞的举动，而且让新中国联邦，迅速以华丽的人道主义形象，走向了国际政治舞台，彻底改变了中共独裁统治下，中国人木讷、呆板、不自信、不文明、不受尊重的形象。
+信息来源：
 
-文字版原文：[新中国联邦正式走向世界政治舞台](https://gnews.org/zh-hans/2190208/)
+[中国多省面临同时段多地发生疫情 动态清零地方财政难支撑](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220319-%E4%B8%AD%E5%9B%BD%E5%A4%9A%E7%9C%81%E9%9D%A2%E4%B8%B4%E5%90%8C%E6%97%B6%E6%AE%B5%E5%A4%9A%E5%9C%B0%E5%8F%91%E7%94%9F%E7%96%AB%E6%83%85-%E5%8A%A8%E6%80%81%E6%B8%85%E9%9B%B6%E5%9C%B0%E6%96%B9%E8%B4%A2%E6%94%25)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

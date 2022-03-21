@@ -2,28 +2,30 @@
 ---
 
 
-## 泽伦斯基称谈判失败将意味着第三次世界大战
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2200658/)
+## 乌克兰情报称俄精英已制定取代普京计划
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2200911/)
 
-翻译：冰糖葫芦喵
+作者：波士顿五月花背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-21-at-10.20.00-AM.png)图片来源：互联网
+据每日镜报（Mirror）周一（3月20日）引述乌克兰国防部情报总局报道称，“俄罗斯精英”中的成员已经制定了一项旨在推翻俄普京总统的计划，并恢复与西方经济联系。
 
-编辑与校对：灭共文明
+乌克兰国防部情报总局称，“俄罗斯精英”中的“一群有影响力的”成员已经制定了一项旨在推翻总统的计划。
 
-《英国卫报》3月20日报道，**乌克兰总统泽伦斯基周日表示，他认为，如果俄乌谈判失败，要结束战争将意味着第三次世界大战。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基2-1-e1647825952707.jpg)乌克兰总统泽连斯基（图片来源：网络）
-泽伦斯基在周日接受美国有线电视新闻网采访时表示，**他已经准备好与俄罗斯总统普京进行谈判，但他警告称，如果谈判失败，这将意味着第三次世界大战。**
+该组织的目标是尽快将普京下台，并恢复与西方的经济联系。
 
-他表示，**已经准备好和普京谈判。并认为没有谈判，俄乌将无法结束这场战争。**他还说，**我们必须采取任何形式，任何机会，以便有可能与普京进行谈判，进行对话。**
+根据情报简报，强大的内部人士对战争和随后的制裁对俄罗斯经济的影响感到沮丧。
 
-泽伦斯基补充说，如果乌克兰是北约成员国，就不会爆发战争。**我们一直坚持谈判。我们一直提出对话，提出和平的解决方案**。我希望现在每个人都听到我的话，尤其是在莫斯科。**该见面了，现在是恢复乌克兰领土完整和正义的时候了。**
+乌克兰情报部门声称，普京的继任者已经被选定为 FSB 局长 Oleksandr Bortnikov。FSB 局长 Oleksandr Bortnikov 是接替普京的人选，FSB是可怕的克格勃的继任者。
 
-周日，乌克兰外交部发言人奥列格·尼古连科(Oleg Nikolenko)称，**俄罗斯在马里乌波尔的行动是“二战的一个章节”。**他们首先来**摧毁城市，轰炸医院、剧院、学校和避难所，杀害平民和儿童。**然后，他们强行**将这些恐惧、疲惫的人们转移到侵略者的土地上。**
+自2月24日俄罗斯发动入侵乌克兰战争以来，饱受西方制裁，全球骂声一片，美欧对俄石油收入制裁，将俄踢出Swift系统，冻结俄寡头在西方世界财富和资产，俄罗斯精英对普京不满情绪与日俱增；不仅如此，俄罗斯国内经济崩溃，老百姓苦不堪言，民不聊生，反战情绪日益高涨。如果普京的下台能尽快结束这场可怕的侵略战争，那无疑是乌克兰和全世界之幸！
 
-新闻来源链接：
+参考链接：
 
-[Russia-Ukraine war: Kyiv rejects Moscow’s 5am deadline for Mariupol surrender; capital’s shopping district shelled– live | World news | The Guardian](https://www.theguardian.com/world/live/2022/mar/20/russian-ukraine-war-latest-thousands-of-mariupol-residents-being-deported-to-remote-parts-of-russia-live?filterKeyEvents=false&amp;page=with:block-6237cc378f081efd32770485#block-6237cc378f081efd32770485)
+【1】[“俄罗斯精英”计划毒害普京并选择继任者，声称惊吓](https://www.mirror.co.uk/news/world-news/russias-elite-plan-kill-putin-26513008)
 
+* * *
 
+*编辑&发布：Vicky*
 
  
 
