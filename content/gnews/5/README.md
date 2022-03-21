@@ -2,8 +2,8 @@
 ---
 
 
-## 美国要对中共动手了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2201259/)
+## 全世界已认清形势只有消灭中国共产党才能拥有14亿人的市场
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2201406/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
