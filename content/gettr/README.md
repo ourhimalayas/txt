@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 12:22 PM (UTC)`
+
+<br/>3月21号：尊敬的战友们好．俄乌战争的救援……每时每刻．都为中国人在海外的安全奇形象增光添彩！共产党的经济和国际关系！即将崩塌。新中国联邦人一定要抓住这个机会，建立一个新的世界上的正面的中国人的良好国际形象！
+![img](https://media.gettr.com/group14/getter/2022/03/21/12/36b2e5dc-7b94-a0b6-ec85-c39122b8b51b/out.jpg)
+
+---
+
 `@miles 3/21/2022 11:57 AM (UTC)`
 
 【MV】“NFSC Sunshine” 《新中国联邦乌克兰救援歌》<br/><br/>作词/演唱/MV：七里香 7 Miles<br/><br/>新中国联邦，驰援战场<br/>The New Federal State of China (NFSC) is providing emergency aid at the battlefield<br/> <br/>救助乌克兰，免费航班<br/>Rescue the people from Ukraine by offering flights for free<br/> <br/>食物和毛毯，帐篷里取暖                     <br/>Give away food and blankets. Set up tents to keep you warm<br/> <br/>驱走战争带来的苦寒<br/>Dispel the pain and cold brought by the war<br/> <br/>近百名孩子，已安全转移             <br/>Nearly 100 kids were evacuated safely<br/> <br/>悉心地照顾无数妇孺<br/>We’re taking good care of countless women and children<br/> <br/>不管你是谁，只要是人类<br/>We don’t care who you are<br/> <br/>就在我们拯救的范围<br/>as long as you are a human, we will lend you a helping hand<br/> <br/>万恶的共匪，胡作非为<br/>The wicked CCP is messing things up<br/> <br/>谎言满天飞，造谣作祟<br/>The CCP spreads lies everywhere, making rumors and trouble<br/> …………<br/>
@@ -149,13 +156,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 3/20/2022 Miles Guo: Lieutenant General Andrey Mordvichev, who was killed in the Russia-Ukraine war, was the candidate for the next Defense Minister of Russia. What did he have to do with the CCP? Soviet military commanders like Vasily Chuikov were not only capable of winning battles, but also ended up decently. In contrast, all the CCP generals share the same fate - “heroes can’t end up well”.<br/><br/>3/20/2022 文贵直播：在俄乌战争中被干掉的莫德韦切夫中将是俄罗斯下一任国防部长的人选，他跟中共有何关联？朱可夫等苏联将领既能打仗又能善终，而中共将领却都是“英雄无好果”的命<br/>
 ![img](https://media.gettr.com/group34/getter/2022/03/20/22/bd561cd6-2847-c18c-1ab5-dbbb94315568/out.jpg)
-
----
-
-`@miles 3/20/2022 10:12 PM (UTC)`
-
-3/20/2022 Miles Guo: Who took out Lieutenant General Andrey Mordvichev? What does his death mean? Putin sending his good buddy Mordvichev to the battlefield implies that Putin has reached an extremely poor situation in the Russia-Ukraine war.<br/><br/>3/20/2022 文贵直播：莫德韦切夫中将是被谁干掉的？莫德韦切夫之死意味着什么？普京派他的好兄弟莫德韦切夫上战场意味着他在俄乌战争中已打到了穷困潦倒的境地<br/>
-![img](https://media.gettr.com/group3/getter/2022/03/20/22/8d1b90fc-0f31-81b3-1d65-1b0b9fcd711f/out.jpg)
 
 ---
 

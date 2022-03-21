@@ -2,30 +2,26 @@
 ---
 
 
-## 中国｜疫情失控人人自危 上海一医院拟改建方舱 护士集体罢工抗议
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2203522/)
+## gettr pay 将于今夏7月上线
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2203745/)
 
-**图/文：CP**
-**发布时间｜21/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/疫情失控人人自危-上海一醫院擬改建方艙-護士集體罷工抗議.jpg)
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1641226975195.jpg)
+近日gettr高级发言人Kaelen Dorr在接受采访时说，2022年7月份，在gettr上线一周年之际，gettr会拥有创历史的巨大用户量，gettr的金融支付系统gettr pay预计会在那时候上线。
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+目前的支付系统PayPal垄断了市场，它会随时停掉用户的交易，并且出售用户讯息来盈利，毫无隐私和安全可言。gettr pay永远不会售卖用户数据，安全隐私都有保障。目前gettr用户量为500万，接下来的几个月会有几个大的项目要做，确保为用户提供更好的体验。届时，gettr pay将为用户提供全面多样的金融支付服务。
 
+撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+欢迎订阅我们的GNews账号：
 
-上海新冠疫情严峻，确诊数字逐日攀升，全市中高风险区陆续增加，单日录得758宗本土个案创单日新高。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-早前有传政府打算将位于上海市郊的周浦医院改建成方舱医院，今日（21日）网上有多条影片显示，该院护士似乎质疑防护措施无法保障安全，集体罢工抗议。
-
-周浦医院是上海浦东新区新场航头区域内最大的一间综合医院，周围居民密集，是次改建方舱医院的决定，不但要求院内原有病人立即转移以清空病区，还在时间紧绌，负压条件未完善的情况下，将护士推上最前线，入病区照顾新冠病人。
-
-有护士斥责，院方高层为了自身利益，不顾周围居民安危，配合改建方舱医院，并狠心将血透病人推出门外，将基层医务工作者挡在前面，简直泯灭良心。若护士们再不站起来罢工反抗，后果不堪设想。
-
-來源｜影片
-
-* * *
-
-**Subscribe Frontline Gettr：[@HKTWfrontline](https://gettr.com/user/hktwfrontline)**
-
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

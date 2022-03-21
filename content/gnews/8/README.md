@@ -2,46 +2,41 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203897/)
+## 中国东方航空一架飞机坠毁，机上共132人
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2204124/)
 
-整理：枳实
-美工：精灵蓝
+撰稿：Henry Pang
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.21-C.jpg)网络图片
+据中共国民航局消息：3月21日，东方航空公司一架波音737客机在执行昆明——广州航班任务时，于梧州上空失联。目前，已确认该飞机坠毁。机上人员共132人，其中旅客123人、机组9人，生还的可能性很小。这架飞机的航班号为MU5735，由昆明飞往广州，目前根据Flightradar24显示，速度和高度在梧州附近出现骤降。该客机是一架B737-800NG客机，注册号为B1791，机龄6.8年。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/2-136.png)图片来源：雅典娜设计组
+飞行数据显示，该航班从昆明机场起飞后，一直在约8869米高度进行巡航。下午2点19分，飞机突然从巡航高度下降，同时飞行速度从约每小时845公里开始下降。2点21分，MU5735航班丢失ADS-B雷达信号，同地面失联。
 
+当天14时30分左右埌南镇村民报警，称有飞机坠毁，并引发山火。
 
-雅典娜疫情更新（2022年 3月21日）
+有记者联系到事发地村民，据村民讲述：“距离我们村有十多公里，在两点多的时候听到了一声巨响。”
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+“他们有的人在那个矿山上面看到的，飞机是掉到地上爆炸的。”
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9P5FHSK4SBI@SER3SBZS.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-248.png)
-[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月21日改进.pdf)
+“两边是山，中间是耕地，飞机就掉落在中间的沟里了。”
 
-数据来源：
+该村民说，飞机擦到地上直接爆炸，现场什么都不剩，现场最大的就是飞机壳了。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+关于飞机掉落的具体位置，该村民说，失事位置位于广西藤县埌南镇木埌村，飞机坠落处没有人居住，附近也没有。“现在现场很多消防车、警车部门都去了，市、县上面的消防车全都去了，现在现场已经封锁了。”
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+另一位参与现场救援的姓周的村干部告诉记者，发生事故的飞机已经完全解体，他在现场未看到遇难者遗体。周先生介绍，飞机坠毁引发了山火，将现场附近的竹子、木头都被烧毁了，消防员赶到现场后将大部分山火已经扑灭。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+3月21日下午5：40许，记者从昆明长水机场了解到，一些从昆明出发的航班已取消。包括东航飞杭州、厦门、云南保山等地的航班。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+当天，在股市上，东方航空港股下跌6%，美股盘前跌超16%。波音盘前短线下挫，截至5：15，跌超6%。
 
-[covidlive.com.au](https://covidlive.com.au/)
+*审核：Gradient Boost*
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+*发布：MG1*
 
-发布：tianzhihuan
+新闻参考链接：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[新浪新闻](https://news.sina.com.cn/c/2022-03-21/doc-imcwiwss7278882.shtml)（中共国墙内媒体）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
