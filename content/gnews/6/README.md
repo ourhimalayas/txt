@@ -2,30 +2,70 @@
 ---
 
 
-## 大直播后记：努力克服工作弊端，救援工作坚持到底
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2201423/)
+## 参议员罗恩·约翰逊:蝠奇应对 中共病毒的惨败,让我们的孩子在过去两年来一直生活在恐惧中
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2201503/)
 
-整理：清水冷香、Rianna
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-78.png)图片来源：雅典娜设计组
+参议员罗恩·约翰逊： 由于安东尼·福奇和他对 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 应对措施的惨败，我们的孩子在过去两年来一直生活在恐惧中。 我完全准备追究福奇和新冠 COVID 团伙的责任。 【附约翰逊议员接受福克斯新闻采访视频】
 
 
-所以说，前线参与直播的战友必须增加，前方与后方的沟通执行，不能陷于官僚和内耗，真正把精力放到前线的直播上。救援团队在前线至今已经20多天了，现场的直播不断出问题，联盟委员会和铁血组必须协调解决。如果我们连这点事情都搞不掂，如何拯救全人类，或者拯救乌克兰？你不觉得很搞笑吗？新中国联邦人，工作中只要有一点共产党的影子，我们都是白干。
 
-Chris作为一个我们聘用的国际（安保）雇佣军来保卫我们安全，但是你们看到他也没带口罩是吧（防病毒措施做的不好）？大家看到我们现场的logo，现场的帐篷和管理纪律是目前整个救援当中最牛最好的，但是这对新中国联邦人的要求而言，相差远着呢，基本上只是个副村长的（管理）水平。这一次前方和后方的领导工作不利，新中国联邦联盟委员会也差不多。现场战友们都很辛苦，但是现场的执行力很差，甚至非常散漫，你们距离新中国联邦的要求，那不是一点半点的差距啊。
+> Our children have lived in a state of fear for the past two years thanks to Anthony Fauci and his miserable failure of a response to COVID-19. 
+> 
+> I fully intend to hold Fauci and the COVID cartel accountable. [pic.twitter.com/0EhO4YzFXj](https://t.co/0EhO4YzFXj)
+> — Senator Ron Johnson (@SenRonJohnson) [March 20, 2022](https://twitter.com/SenRonJohnson/status/1505644849206280198?ref_src=twsrc%5Etfw)
 
-负责现场直播妮可（Nicole）那么好个女孩子，被病毒撂倒了，你们现场的管理者都负有责任。现在Nicole染上病，你们都染上病，文科也染上了，你们这都在是干什么吗？敌人没打到我们，是我们自己的无知把自己打倒了，你们站在这里直播应该感到羞愧。前方战友感染病毒，我们不要嫁祸给共产党，前方、后方的管理者你们都是有责任的，尤其是协调不力。
 
-今天七哥心情很好，但是跟你们要说出实话。文耀是负责为现场保障供给的，你看，现在保镖来了，晚上要不要值班（需要落实）？我再告诉大家，只要战争不停，我们的救援就不会停，除非麦迪卡这个营地、这个边境口岸关闭了，否则我们就不会停。只有两个条件停——麦迪卡这个过境的关口关闭或战争停止了，否则我们不会停。如果前方战友救援不力，我们就是在全世界找雇佣军去，也得坚持救下去。这是新中国联邦的第一次国际救援行动，不会因为我们某些战友的无知，或者因为战友的不守纪律就把救援停止。我们要让全世界看到，我们不是共产党，做任何事情招摇撞骗、虎头蛇尾。
 
-资料来源：[2022年3月20日 文贵大直播](https://gettr.com/streaming/p10y5j870c5)
+参议员瑞克.斯科特： 美国人希望看到国会真正面对 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 构成的威胁。 可悲的是，参议员舒默[@SenSchumer](https://gettr.com/user/SenSchumer) 的《竞争法》并没有真正遏制中国共产党。 【转斯科特前一天的推文：你希望看到国会采取什么措施来追究 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 的责任？】 参议员瑞克.斯科特： （接上面推文）这是其中的实际内容（指《竞争法》）： – 将美国纳入巴黎气候协定 – 80亿美元用于联合国绿色气候基金 – 为北京气候变化提供资金 – 500 万美元用于在美国国家科学基金会推广批判种族理论 – 为我们的国债增加了2500 亿美元
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
+
+> Americans want to see Congress actually confront the threat Communist China poses. Sadly, [@SenSchumer](https://twitter.com/SenSchumer?ref_src=twsrc%5Etfw)’s COMPETES Act does nothing to actually curb the Chinese Communist Party. (1/2) [https://t.co/yYBFlfFK5L](https://t.co/yYBFlfFK5L)
+> — Rick Scott (@SenRickScott) [March 20, 2022](https://twitter.com/SenRickScott/status/1505619416637227015?ref_src=twsrc%5Etfw)
+
+
+
+比尔.格茨： （《美国对话》）就乌克兰、俄罗斯和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对我的采访 【附美国对话主持人克里斯汀·多兰 (Christine Dolan) 和 托德·伍德 (L Todd Wood) 与《华盛顿时报》国家安全专栏作家比尔·格茨就俄罗斯、乌克兰和中国进行了访谈 此采访是一个名为“记者在哪里？”系列的一部分 （附专访视频）】
+
+
+
+> My interview on Ukraine, Russia, and China [https://t.co/vrKY9Gfnms](https://t.co/vrKY9Gfnms)
+> — Bill Gertz (@BillGertz) [March 20, 2022](https://twitter.com/BillGertz/status/1505589977136181250?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦： 我很自豪能与东欧的同事一起聆听故事并亲身了解情况。 我们必须继续为这些国家提供必要的援助来对抗俄罗斯。
+
+
+
+> I’m proud to be with my colleagues in Eastern Europe hearing stories and learning first hand about the situation.
+> 
+> We must continue providing these countries with the necessary aid to combat Russia. [pic.twitter.com/sLaszopZhV](https://t.co/sLaszopZhV)
+> — Rep. Pat Fallon (@RepPatFallon) [March 20, 2022](https://twitter.com/RepPatFallon/status/1505545098800635906?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯·古登： 蝠奇博士需要阅读约翰·霍普金斯大学的研究，该研究得出结论，封锁根本没用。
+
+
+
+> Dr. Fauci needs to read the Johns Hopkins study which concluded lockdowns didn't work.
+> — Lance Gooden (@Lancegooden) [March 20, 2022](https://twitter.com/Lancegooden/status/1505678664259850249?ref_src=twsrc%5Etfw)
+
+
+
+众议院共和党： 拜登总统不应该用伊朗、沙特阿拉伯或委内瑞拉的石油取代俄罗斯的石油。 相反，拜登总统应该释放美国的能源主导地位。 能源安全就是国家安全。
+
+
+
+> President Biden should not be replacing oil from Russia with oil from Iran, Saudi Arabia, or Venezuela.
+> 
+> Instead, President Biden should unleash American energy dominance.
+> 
+> Energy security is national security.
+> — House Republicans (@HouseGOP) [March 21, 2022](https://twitter.com/HouseGOP/status/1505715061712736257?ref_src=twsrc%5Etfw)
+
+
 
  
 

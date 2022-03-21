@@ -2,39 +2,33 @@
 ---
 
 
-## 有声|美国进口俄罗斯商品 面临关税大幅上升
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2201053/)
+## 中共多省面临疫情防控局面，习近平强调“动态清零”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2201214/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院3月17日通过了一项法案，暂停与俄罗斯及其盟友白俄罗斯的正常贸易关系，以回应普京入侵乌克兰的决定，为对关键商品和原材料的进口大幅提高关税打开了大门。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-32.jpg)
-纽约州民主党参议院多数党领袖查克·舒默说，参议院将很快讨论该法案，为拜登总统最快于下周签署该法案成为法律奠定基础。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯是美国第26大货物贸易伙伴，从该国进口的货物占美国总进口量的1%左右。一些关键商品则占有更大份额。例如，俄罗斯来源的钛产品占美国总进口量的53%。如果国会撤销俄罗斯的永久正常化贸易地位，这些商品的关税可能从15%上升到45%。其他可能受到影响的商品包括铝、钢铁和黄金等。
+整理/编辑：围剿维尼熊
 
-拜登总统上周宣布禁止进口俄罗斯石油和某些石油产品，同时还禁止进口海鲜、伏特加和钻石等商品，被禁止的项目即使以高得多的海关税率也无法获得进口。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/financial_consultant_3.png)图片来源：雅典娜设计组
 
 
+根据路透社报道，中共国务院副总理孙春兰周六强调，要从严从实开展防控工作，坚决守住不出现疫情规模性反弹底线。
 
-文字版原文：[美国进口俄罗斯商品 面临关税大幅上升](https://gnews.org/zh-hans/2197136/)
+孙春兰在视讯会议上表示，要以口岸地区防控为重点加强外防输入，疫情较重地区要推动感染者应收尽收、密接人员应隔尽隔，彻底阻断疫情社区传播。要加强疫情监测预警，科学组织核酸和抗原检测，扩大监测范围和频次，加强学校等重点场所防控工作，继续有序推进老年人疫苗加强免疫接种。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+中共卫健委官员周六在联防联控机制发布会上表示，中国本土疫情还处在发展阶段，多省面临着疫情的防控局面。近期中国疫情呈现多点散发，主要流行株为奥密克戎变异株，部分省份病例数增长较快。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中国国家主席习近平此前在中央政治局会议上指示，要坚持科学精准、动态清零。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+参考链接：[综述：中国逾一年来首现新冠死亡病例 本土疫情还处在发展阶段](https://cn.reuters.com/article/wrapup-china-covid-death-case-0321-idCNKCS2LI02K)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+*发布：tianzhihuan*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

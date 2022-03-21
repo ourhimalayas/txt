@@ -2,42 +2,36 @@
 ---
 
 
-## 疫苗灾难到期时会出现吐血流鼻血眼睛耳朵出血经期不止
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2201461/)
+## 乌克兰呼吁中国谴责俄罗斯的野蛮行径
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2201509/)
 
-Odysee视频链接：[odysee.com/@郭文贵先生大直播精选:e](http://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**郭文贵先生：**那么疫苗灾难有没有开始？没开始。疫苗灾难开始是什么情况？不是政府的全面公开给你检测病，这是个免疫功能下染出来的。我告诉你，疫苗灾难到周期的时候，我问过科学家。他说，我可以告诉你怎么死。会发现什么？——吐血、流鼻血、眼睛出血、耳朵出血、女性月经来了就流-——突然以为来月经了，今天来，明天突然又来了，一直流血不止，孩子突然倒地，就是这种爆发性的。
+整理：li yan li
+编辑：文泓
 
-那么前期在我去年就告诉大家，就一开始的时候就会发现，打了疫苗的人反而病毒再来再来再来，就它破坏你免疫力，一旦有病毒风吹草动你就染上了，然后有点感冒导致你发烧，你也认为是病毒，就叫误诊。但真正的就是破坏掉你全身体以后，就房倒屋塌，瞬间就像海啸来一样。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/0ID1OPNOOFF0T2011U.png)图片来源：雅典娜设计组
 
-所以我今天我特别认真，我求求战友们一定忍住，五月份。你别像三百年的飞飞，我在群里我昨天没说她，我说我生一次气，我干嘛生两次气，我今天我上直播上说，我一句都没搭理她。我看她要把孩子送出去了，你说这叫当妈的吗，这是？这不是作吗？这不是吗？你把孩子送出去，你在家轻松了是吧？跟你老公“双修”，你送出去有你后悔的一天。啊！答案完毕！法图麦。大家一定搂住，还没开始呢。
 
-编辑整理：Jacques；
+在3月18日，美国总统乔·拜登在与中共国主席习近平视频通话期间明确告知，任何协助俄罗斯入侵乌克兰行动势必会付出代价。
 
-字幕文件制作：知津；
+继拜登发出的警告之后，乌克兰呼吁中共国谴责俄罗斯的“野蛮行径”。
 
-视频制作及上传：Cindy；
+乌克兰总统办公室主任顾问波多利亚克（Mikhailo Podolyak）3月19日在推特上写道：“如果中国做出正确的决定，支持文明国家联盟并谴责俄罗斯的野蛮行径，它可以成为全球安全体系的重要组成部分。”
 
-G-News发布：小满；
+这是俄乌战争爆发以来，乌克兰政府首次公开呼吁北京对俄罗斯的侵略行动进行公开谴责。迄今为止，北京一直以俄罗斯“特别军事行动”来描述俄军对乌克兰的入侵，对此，国际舆论普遍解读，北京立场表面中立，实为倾向支持莫斯科。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们****——**[**日本银河系农场****Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+中共国迄今未加入国际社会强烈抨击俄罗斯挥军入侵乌克兰的行列，拒绝谴责俄国总统普京的侵略行径。3月14日杨洁篪与美国总统国家安全事务顾问沙列文的会晤中，已经明确了中共国将支持俄罗斯。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+新闻链接：[基辅向北京喊话：谴责一下俄罗斯](https://www.rfa.org/mandarin/Xinwen/4-03202022112739.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+发布：tianzhihuan
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
