@@ -2,8 +2,8 @@
 ---
 
 
-## 独裁者只要活着永远不放弃权力，绝不要相信任何政治家
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200169/)
+## 正道主义有神力
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200184/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI

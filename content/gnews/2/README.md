@@ -2,30 +2,60 @@
 ---
 
 
-## 迫于压力福奇暗示将退休
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2200246/)
+## 勇敢的母亲用身体保护婴儿免受俄罗斯的炮击
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2200333/)
 
-##### 采编/编译撰稿：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yahoo.com_.jpg)*图片来源：Yahoo.com*
-[叛逆者新闻]19日报道，美国国家过敏和传染病研究所所长、白宫首席医学顾问安东尼·福奇，18日对美国广播公司暗示将退休，而此时正值保守党参议员兰德·保罗提出修正案要废除这位“首席独裁者”。
+This will be one of the images that defines Vladimir Putin’s war on Ukraine and the brutality of it
+这将是定义弗拉基米尔·普京对乌克兰的战争及其残暴的景象之一
 
-福奇当初曾说过要坚守岗位直到走出大疫情，采访中他表示目前已到了这个阶段。不可能永远不走人，除非被发现瘫在办公桌上，而这不是他愿意的。
+A bruised and bandaged mother feeding her month old baby
+一位瘀伤和戴着绷带的母亲正在喂养她一个月大的婴儿
 
-福奇的这番话是面临像兰德·保罗参议员这样的保守派立法者越来越多的批评时发表的，后者称没有人应该成为 “首席独裁者”，他提出的 “福奇修正案”，将取消福奇这职位上的特权。福奇1984年被里根总统任命为国家过敏和传染病研究所长，任职六届总统政府，这是美国政府中任期最长的非选举职务。
+the moms heroism, likely saving the child’s life
+妈妈的英雄主义，最终挽救了孩子的生命
 
-新闻链接：[Fauci hints at retirement as Sen. Rand Paul turns the screws on his job](https://www.rebelnews.com/fauci_hints_at_retirement_as_sen_rand_paul_turns_the_screws_on_his_job)
+Olga and her husband Dimitra were at home when they heard shelling getting closer
+奥尔加和她的丈夫迪米特拉听到炮声越来越近时正在家里
 
-编辑/上传 – 云起时
+Well after the windows and doors of the building next door were shot out
+隔壁那栋楼的门窗被击中之后
 
-* * *
+The couple was hit with shards of glass
+这对夫妇被玻璃碎片击中
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+Olga shielded the infant with her body
+奥尔加用她的身体保护着婴儿
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+The child was not injured but both parents were
+孩子没有受伤，但父母双方都受伤了
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+and they are all recovering at Kyiv hospital
+他们都在基辅医院康复中
+
+Credible
+万幸
+
+原视频链接 [https://twitter.com/cnn/status/1505338985887027202?s=24](https://twitter.com/cnn/status/1505338985887027202?s=24)
+
+Date:03/19/2022
+原视频标题: Heroic mother shields infant daughter from Russian shelling
+勇敢的母亲用身体保护婴儿免受俄罗斯的炮击
+原视频日期：2022/03/19
+原视频链接https://twitter.com/cnn/status/1505338985887027202?s=24
+任务编号：KE458（4041）
+视频时间段 : 0:00-0:40
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-青梅煮酒
+审片：洛杉矶盘古农场-银龙
+發佈：洛杉磯盤古農場 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

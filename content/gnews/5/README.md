@@ -2,39 +2,30 @@
 ---
 
 
-## 遭遇乌克兰激烈抵抗，俄罗斯谋求加强攻势
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2200204/)
+## 未来的新中国将是建立在自由之上的强大中国
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2200302/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-70.jpg)图片来源：Gettr
+据文贵先生盖特报道，波兰当地时间3月19日上午，在法治基金梅迪卡营救中心尼蔻战友采访了正在营地做救援义工的美国退伍军人AI。
 
-#### 整理：gardeniahu
-编辑：文泓
+AI高度赞誉新中国联邦和法治基金为乌克兰妇女儿童所做的一切，认为这对她们非常重要。他认为只要中共存在，这世界就会变得更糟。像中共这种邪恶政权就应该被推翻，并希望我们成功。同时他也鼓励法治基金捐款者和新中国联邦战友们，要继续坚持不懈的努力下去。要用智慧安全的方式继续战斗，不要被恐惧和威胁吓倒，因为这一切只有靠自己，14亿中国人值得拥有更好的生活。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-130.png)
+最后他强调说：“想象一下，如果允许中国人有创造生产力，有思想，有独立的思考，那将是一个难以置信的强大中国，是建立在自由之上的强大中国”。
 
+新闻来源：[https://gettr.com/post/p10vu3adda1](https://gettr.com/post/p10vu3adda1)
 
-图片来源：The Moscow Times & 雅典娜设计组
+编辑/上传 – 云起时
 
-联合国人权事务高级专员办事处公布，自2月24日俄罗斯对乌克兰发动军事入侵以来，截至3月18日，在乌克兰已有847名市民丧生，其中包括至少64名儿童。
+* * *
 
-3月19日据乌克兰通讯社援引乌克兰军方公布的数字报道称，在开始军事入侵以来的3个星期，包括将校级别的军官在内，俄军至少有10名高级将领战死，在激战持续的情况下，预计今后旨在停火的谈判将面临重重困难。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-俄罗斯军队正在增强包围首都基辅的部队，同时还对南部城市尼古拉耶夫和东部城市马里乌波尔进行了导弹攻击，俄军与乌克兰军队之间的激烈战斗仍在持续。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-在乌克兰东部城市马里乌波尔，据认为整个城市因俄军的攻击而陷入孤立状态，激烈的巷战正在持续，大量市民纷纷逃离到周边地区。
-
-美国和英国的国防部门则分析认为，由于遇到了乌克兰军队的激烈抵抗，俄罗斯军队的作战已陷入超出预想的艰难状态，人们担心俄罗斯今后可能会变本加厉地发动攻击。
-
-参考链接：[乌克兰战火激烈 停火谈判困难重重](https://www3.nhk.or.jp/nhkworld/zh/news/355695/)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

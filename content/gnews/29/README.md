@@ -2,66 +2,194 @@
 ---
 
 
-## 3/20/2022国内经济财经周报：7哥爆料后中概股紧急拉涨；阳光城50亿债违约，当日股价却涨停
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2199043/)
+## 2022/03/20 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2198978/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-129.png)图片来源：爱文网
-**1.****喜币本周无大波动，下周二将进行平台升级维护**
+### 央视新闻：俄乌局势昨夜今晨丨俄罗斯国防部：俄军协助顿涅茨克武装继续发动攻势。
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/7079161e-01da-438d-b3f6-939b5e4578fd.jpg?asset_id=e9cd9f20-8718-4333-b071-3c210f45052f&amp;img_etag=%222eca56345f6b6f58c82a4393f16393df%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/7079161e-01da-438d-b3f6-939b5e4578fd.jpg?asset_id=e9cd9f20-8718-4333-b071-3c210f45052f&amp;img_etag=%222eca56345f6b6f58c82a4393f16393df%22&amp;size=1024)
+网络图片
 
-[喜币本周无大波动，维持在44.3至44.5区间小幅震荡。截止美东时间周六早，喜币价格上探至44.5左右。本周喜币日成交额亦稳定维持在4万5至5万的区间。随着高风险的无中心化数字货币渐渐淡出市场，有稳定币加持的喜币或成为数字货币的新王者。喜联储公告称系统将会在3月22日（下周二）GMT上午10点至下午10点进行平台升级维护。结合7哥上周爆料，相信喜币又将迎来一个新的质变。作为第三波世界货币，喜币将是信用和稳定的维护者和创造者。](https://himalaya.exchange/trading)
+**评论：**无耻的中共央媒采用无耻的俄罗斯国防部说法，声称俄军打击的是乌克兰民族主义分子，而全世界都知道抵抗俄罗斯侵略者的是乌克兰正规军，顿涅茨克武装才是俄罗斯民族主义分子武装。
 
-注：关于喜币的价值走向及预测仅代表个人观点，投资需谨慎。
+### 环球网：普京再发万字雄文：决不跪着求生，决不向西方霸权谄媚。
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/79fc653d-47d5-4cac-861f-bbf4c9bb7916.jpg?asset_id=74e41d34-ee18-43b1-aefa-d19baf380979&amp;img_etag=%222d5135b30fe6c4856fb76d550f7d15a7%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/79fc653d-47d5-4cac-861f-bbf4c9bb7916.jpg?asset_id=74e41d34-ee18-43b1-aefa-d19baf380979&amp;img_etag=%222d5135b30fe6c4856fb76d550f7d15a7%22&amp;size=1024)
+网络图片
 
-**2.****不良贷款余额1****38****亿，招行：慎发展信用卡业务**
+**评论：**普大帝动辄发表万言电视讲话，他嗓子疼不疼先放一下，你环球时报特约评论员“绝”和“决”都分不清咋用也好意思发文拍马屁？
 
-[18日晚间，招商银行公布2021年年报显示，招商银行首次在年度报道中提及“审慎推进信用卡业务发展”。数据显示，2021年，招商银行消费信贷类业务（含信用卡）不良贷款率1.55%，。受“信用卡逾期认定时点调整影响”，消费信贷类业务（含信用卡）逾期贷款率2.87%，较上年末上升0.36个百分点。“调整信用卡贷款逾期认定时点”也是市场环境严峻复杂的背景下，招商银行加强贷后管理、从严资产分类标准的应对之策。截至2021年末，招商银行信用卡贷款不良余额138.46亿元，较上年末增加14.22亿元，信用卡贷款不良率1.65%，较上年末下降0.01个百分点。](https://www.time-weekly.com/post/290416)
+### 环球网: 美媒:为何如此多国家不愿加入”新冷战”
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/e04fcf63-243e-43e7-a3bc-67375ae240f8.jpg?asset_id=f169dcfc-e807-4efc-b447-6d7e37990410&amp;img_etag=%22172207407c2af8a4e11fae74b8e7ccdb%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/e04fcf63-243e-43e7-a3bc-67375ae240f8.jpg?asset_id=f169dcfc-e807-4efc-b447-6d7e37990410&amp;img_etag=%22172207407c2af8a4e11fae74b8e7ccdb%22&amp;size=1024)
+网络图片
 
-**3.****急拉升：中概股4天翻倍**
+**评论：**到时候彭博社你这个骗子媒体一定会和你的主子共产党一起下地狱，中国人美国人都会审判你，因为你与邪恶站在了一起。
 
-[本周，中共急拉中概股，滴滴飙升60%、知乎大涨55%，成为全球股市中最抢眼的明星。据券商中国记者统计，自3月15日以来，中概股美股4个交易日合计市值增长折合人民币达2.2万亿元，反弹幅度超过120%。A股和H股市场同样强势反弹，这让海外做空者损失惨重。富时中国3倍做空ETF周三单日下跌63%，相关期权的看空投资者更是几乎一夜归零。一改此前的谨慎看法，外资机构近期开始集体看多中国，高盛最新提出要“超配”中国。3月16日，国务院金融稳定发展委员会召开专题会议，研究当前经济形势和资本市场问题。会议指出，关于中概股，目前中美双方监管机构保持了良好沟通，已取得积极进展，正在致力于形成具体合作方案。中国政府继续支持各类企业到境外上市。关于平台经济治理，有关部门要按照市场化、法治化、国际化的方针完善既定方案，坚持稳中求进，通过规范、透明、可预期的监管，稳妥推进并尽快完成大型平台公司整改工作，红灯、绿灯都要设置好，促进平台经济平稳健康发展，提高国际竞争力。关于香港金融市场稳定问题，内地与香港两地监管机构要加强沟通协作。](http://www.stcn.com/xw/sd/202203/t20220319_4258537.html)
+### 环球网: 赵立坚在推特发图起底美在乌生物实验室，网友呼吁美国解释
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/85730ea6-fb29-4a07-98a5-ae7e88ec4069.jpg?asset_id=a9040ced-e2d4-4829-960d-23a0e00679d6&amp;img_etag=%22677048670e1daa0b1434531bd44bc373%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/85730ea6-fb29-4a07-98a5-ae7e88ec4069.jpg?asset_id=a9040ced-e2d4-4829-960d-23a0e00679d6&amp;img_etag=%22677048670e1daa0b1434531bd44bc373%22&amp;size=1024)
+推特截图
 
-[高层的这一表态吹响了互联网公司和中概股反弹的集结号。当天下午，港股市场互联网标杆公司腾讯大涨23%。当晚，在美中概股集体暴力拉升，阿里巴巴上涨37%，京东上涨39%，哔哩哔哩、拼多多涨幅超过40%。](http://www.stcn.com/xw/sd/202203/t20220319_4258537.html)
+**评论：**栽赃美国打舆论战转移病毒来源，你们打错算盘了最后还是真相和实力说了算，天下人都知道病毒是老共弄出来的。
 
-评：中共为了救市被七哥牵着鼻子走，中概股真是假的不能再假了
+### 环球网: 快讯!俄媒: 普京告诉卢森堡首相，美在乌军事生物活动不可接受
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f176ac07-be35-45b1-8918-5349907fdda1.jpg?asset_id=adf083a3-5dc9-4fed-ba0f-bfe25f25fa1f&amp;img_etag=%223879d2ee41317ff5cee75c205e83540b%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f176ac07-be35-45b1-8918-5349907fdda1.jpg?asset_id=adf083a3-5dc9-4fed-ba0f-bfe25f25fa1f&amp;img_etag=%223879d2ee41317ff5cee75c205e83540b%22&amp;size=1024)
+网络图片
 
-**4.****玉林政府组织到市区看房**
+**评论：**和共产党唱双簧的俄罗斯独裁你们都会下地狱，美国是一定会把真相搞清楚的，因为现在那么多无辜的人死亡，西方政府没法交差。
 
-[16日，玉林市加快人口进城工作周度约谈会召开，县委常委、办公室主任陈聪指出，根据《博白县关于加快人口进城工作奖惩的措施》的规定，对周度排名后3位的镇和部门进行约谈，就是让排名落后的镇和部门正视加快人口进城推进工作中发现的问题，传导压力、夯实责任，采取有效的措施进行整改，推动全县加快人口进城工作扎实有效开展。](https://www.sohu.com/a/530597071_260616)
+### 环球网：”中央军委主席习近平签署命令 发布《军队装备采购合同监督管理暂行规定》”
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/3f7bd0c4-e156-457f-a8e0-59543603f905.jpg?asset_id=ee19fd8e-e7f8-4221-8139-75fc1615ee7d&amp;img_etag=%2265b8845d29f433f2cc589ca2fa507ea7%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/3f7bd0c4-e156-457f-a8e0-59543603f905.jpg?asset_id=ee19fd8e-e7f8-4221-8139-75fc1615ee7d&amp;img_etag=%2265b8845d29f433f2cc589ca2fa507ea7%22&amp;size=1024)
+网络图片
 
-[据微信公号“博白宣传”，陈聪强调，各镇各部门要高度重视加快人口进城工作，采取走村入户的方式进行摸排调查，找到真正的潜在进城购房需求群体，做好针对性的宣传动员。要采取灵活的工作方式方法，与潜在的购房群体多沟通、多宣传，切实增强他们进城看房的意愿。要加大宣传力度，把加快人口进城政策宣传好、传达好。要多沟通，形成合力，齐心协力推进加快人口进城各项工作，确保全面完成上级下达的人口进城目标任务。](https://www.sohu.com/a/530597071_260616)
+**评论：**军备采购合同，这是要准备打仗拉动内需吗？今日英喜的分享时刻盘古大哥爆料，中共纳粹党用于军事，维稳的费用占总开支的89%，只有区区11%用在民生。
 
-评：买房已经成为政府绩效的指标之一了。。。
+### 政知新媒体：“老虎”薛恒被逮捕：退休后多次出席公开活动，王立科曾拜托他处理事情。
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/a2b95de6-0b4f-473d-ba01-c4d93c92feef.jpg?asset_id=5900148b-9f19-46db-a6c3-15dc9b523adb&amp;img_etag=%229c3b5e0edacdaf0535fb7d54c850a96f%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/a2b95de6-0b4f-473d-ba01-c4d93c92feef.jpg?asset_id=5900148b-9f19-46db-a6c3-15dc9b523adb&amp;img_etag=%229c3b5e0edacdaf0535fb7d54c850a96f%22&amp;size=1024)
+网络图片
 
-**5.****阳光城5****0****亿债务违约，当日股价涨停**
+**评论：**文中一段话信息量很大“去年至今，包括薛恒在内，辽宁省公安厅连续有3任厅长被查…”，辽宁公安系统是黑帮吧，20年来公安厅一把手都由犯罪分子担任。全国范围內呢？难道只有辽宁是这样吗？
 
-[18日，千亿房企阳光城由于未能足额偿付加速到期债券累计本息50.28亿元，正式宣告境内境外债务爆雷。阳光城在公告中披露，由于流动性出现阶段性紧张，未能按期支付境外债券利息，致使公司债务融资工具“17阳光城MTN001”“17阳光城MTN004”“20阳光城MTN001”“20阳光城MTN003”加速到期，截至公告日，阳光城未能获得对上述加速到期债券交叉保护条款的豁免，即未能足额偿付上述加速到期债券。两天前，建行曾公告阳光城规模6亿的中期票据“20阳光城MTN001”3月15日到期应付，但发行人未能按期足额支付利息或兑付本金，构成实质性违约。同日，阳光城的控股股东阳光集团公告称，存续金额1.06亿美元的境外债券“YANGOG 12.5 02/20/22”本息实质违约，存续金额3亿美金的“YANGOG 12.5 01/04/24”利息实质违约，应付利息金额1875万美元。这是阳光城在此前宣布境外债利息违约后，首次宣布境内外债务本金、利息实质性违约。不过在阳光城披露债务爆雷之际，其股价却出现异动，盘中触及涨停，涨幅达10.13%。](https://finance.sina.com.cn/stock/s/2022-03-18/doc-imcwiwss6821569.shtml)
+### 环球网：法新社记者纠缠中方是否注意并关心乌克兰平民伤亡，赵立坚六连问回应。
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/16b5d999-e8db-4169-b570-03cff77195f4.jpg?asset_id=b519ef04-c666-4478-9bbf-0efdd485b59a&amp;img_etag=%229208bf7dffe056a863cdd1ca164041da%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/16b5d999-e8db-4169-b570-03cff77195f4.jpg?asset_id=b519ef04-c666-4478-9bbf-0efdd485b59a&amp;img_etag=%229208bf7dffe056a863cdd1ca164041da%22&amp;size=1024)
+网络图片
 
-**6.****前2月央企收入增加1****7%**
+**评论：**纠缠二字用得好啊，驳斥得也是慷锵有力：“乌克兰被侵略归根结底就是你们美国和北约的错，俄罗斯是被迫入侵乌克兰，乌克兰平民的伤亡必须记在美国和北约头上。” 中共与邪恶站队的表态已经很明显。
 
-[国资委周二公布，1-2月中央企业实现营业收入5.7万亿元人民币，同比增17.6%。净利润2,821.7亿元，同比增长20.4%。国资委官网刊登学习两会精神的扩大会议内容 并显示，利润总额3,678.7亿元、同比增长20.6%。会议内容并称，持续抓好提质增效稳增长工作，积极落实“两增一控三提高”要求，确保完成全年目标任务；要高质量完成国企改革三年行动目标任务。此前公布的数据显示，央企1月实现营业收入3万亿元，同比增长12.4%。净利润1,423.8亿元人民币，同比增长10.2%。去年全年中国中央企业实现营业收入36.3万亿元，同比增长19.5%，两年平均增长8.2%；实现利润总额2.4万亿元、净利润1.8万亿元，分别同比增长30.3%、29.8%，两年平均增速分别为14.5%、15.3%。](https://cn.reuters.com/article/china-sasac-feb-revenue-profit-0315-idCNKCS2LC0A8)
+### 环球网：河北河间通报“巡逻队以做核酸为名带走群众一只羊”：涉案人员驾驶仿冒警车，多人被处分 。
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f9db2be7-1a6c-492b-9eb1-9e4e0cc6fc07.jpg?asset_id=2414addb-92b4-4694-b6b2-d6d6aa9bcb0b&amp;img_etag=%22c16b8d64171735325cce46dfab596c5d%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f9db2be7-1a6c-492b-9eb1-9e4e0cc6fc07.jpg?asset_id=2414addb-92b4-4694-b6b2-d6d6aa9bcb0b&amp;img_etag=%22c16b8d64171735325cce46dfab596c5d%22&amp;size=1024)
+网络图片
 
-**7.****中共加快储备大豆投放**
+**评论：**涉案人员有9人，这么多人顶着冒充警察这么大的风险就是为了敲诈放羊老汉的一只羊？这些人脑子有问题吗，这编故事的水准确实欠佳。
 
-[俄乌冲突引发的国际农产品炒作行为，令内外盘豆类品种屡创新高，各类储备大豆和豆油投放节奏加快。国储上周三次不同形式国产豆拍卖仅成交4938吨，其余均流拍；3月14日投拍29.56万吨进口大豆，3月15日、18日继续拍卖产于2018年、2019年的国产大豆，在增加市场供应量的同时，抑制了价格飙升。东北产区国储收购继续进行，但区域间粮库收购价格稍有调整，视基层粮源余量不同，呈涨跌互现局面。随着备耕期日益临近，豆农售粮情绪提升，但外销一直较为缓慢，贸易商收购情绪难以提振。关内产区不同类豆源价格逐渐分化，流通全面进入弱势；进口加拿大豆源在南北港口陆续增量抵港后出现流通压力，许多订购户在合同期限内无法从港口直接向市场发货，被迫从港口转运至内地积压，因质量和价格优势缺失，未来这类豆源港口交易价格出现下调的概率较大。](http://www.grain.org.cn/web/show.html?nrid=20220316110650&amp;txt=fxyc)
+### 人民网：北京市政协原党组成员、副主席李伟受贿案一审宣判
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/7aa7f2dc-6aff-4529-a5dc-95be56328607.jpg?asset_id=cb6d761f-1b28-435e-a566-b5c1f48c6434&amp;img_etag=%227a80b83ea3bce1f9d9357aed5eca9dc1%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/7aa7f2dc-6aff-4529-a5dc-95be56328607.jpg?asset_id=cb6d761f-1b28-435e-a566-b5c1f48c6434&amp;img_etag=%227a80b83ea3bce1f9d9357aed5eca9dc1%22&amp;size=1024)
+网络图片
 
-[上周，国产豆三次不同方式的拍卖，投拍总量5.81万吨，其底价为6020～6040元/吨，仅成交4938吨，其中双向竞价的4900吨更是无人问津，大量流拍现象已表现出需求偏弱的格局。食用油在第一轮全部成交后，3月10日计划投放7.113万吨，成交5.95万吨，成交均价稍有下降，为11113元/吨。14日计划投拍产于2020年进口大豆29.56万吨，储备标的为山东、天津、辽宁、湖南、四川，共计成交25.593万吨，成交率86.6%，成交均价为5476.21元/吨。3月15日，国储以黑龙江为主的标的库继续投拍产于2018年、2019年的国产陈豆2.5万吨；3月18日，依然投放2.62万吨产于2018年、2019年的陈豆。且不说成交底价和成交结果，仅从投放节奏上看，足以体现国家“保供稳价”的力度不断增加。受上述政策市因素影响，企业集中入市形成的哄抬价格现象减少，供需环境有所改变，终端市场对未来的行情趋弱逐渐看淡，国内需求变缓，抑制了期货市场炒作。随着春季气候特征的体现，东北很快进入备耕期，气温回升促使豆农改变惜售情绪，集中入市后贸易主体将视不同的质量适度下调收购价格。](http://www.grain.org.cn/web/show.html?nrid=20220316110650&amp;txt=fxyc)
+**评论：**受贿，9年，现在抓人都公开判刑吗？杀鸡儆猴如果好用的话，应该杀而不是判。
 
-**8.****1至2月印花税同比增长1****0.7%**
+### 环球网：大连瓦房店：全市线路客运车辆、城区公共交通车辆暂停运营
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/04bad4dc-3753-42d8-a937-200a6baa23b9.jpg?asset_id=746b9a49-5f39-4024-87c0-8a38498e4635&amp;img_etag=%22fb398fc1a6e893702fb994551d2f4e3f%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/04bad4dc-3753-42d8-a937-200a6baa23b9.jpg?asset_id=746b9a49-5f39-4024-87c0-8a38498e4635&amp;img_etag=%22fb398fc1a6e893702fb994551d2f4e3f%22&amp;size=1024)
+网络图片
 
-[财政部周五发布的数据显示，今年1—2月累计，全国一般公共预算收入同比增长10.5%。其中，证券交易印花税同比增长10.7%。 全国一般公共预算支出同比增长7%，预算支出进度14.3%，为近5年最高。数据显示，前2月全国一般公共预算收入同比增长10.5%，主要受工业生产者出厂价格涨幅仍处高位以及部分去年缓税收入今年初入库等因素带动。从税收收入看，除车辆购置税、土地和房地产相关税收外，其他税收均实现增长。其中，个人所得税同比增长46.8%。财政部表示，主要是今年春节早于去年，集中发放职工年终奖金分红应缴的个人所得税2月入库较多（去年在3月较多），以及工资薪金增长带动。](https://news.cnstock.com/news,yw-202203-4848132.htm)
+**评论：**暂停餐饮，暂停广场舞，连公交车都停了，大连的疫情有多严重。
 
-**9.****山东三地银行下调房贷利率**
+### 早报：”中国卫健委：近期本土疫情为境外输入引起 “
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/09249f95-2264-408b-b71c-98e31999965d.jpg?asset_id=dfde0839-3b5c-4e2d-a5e4-7bf0ce1d33c8&amp;img_etag=%22c16097a9bb4acf4f2d87174809c06fc6%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/09249f95-2264-408b-b71c-98e31999965d.jpg?asset_id=dfde0839-3b5c-4e2d-a5e4-7bf0ce1d33c8&amp;img_etag=%22c16097a9bb4acf4f2d87174809c06fc6%22&amp;size=1024)
+网络图片
 
-[近日，齐鲁晚报记者致电多家银行工作人员了解到，山东泰安、临沂、烟台市多数银行机构普遍下调了个人住房贷款利率。工商银行泰安分行个贷部门负责人3月19日下午对齐鲁晚报·齐鲁壹点记者表示，“今年个人住房贷款额度较去年宽松不少，个人住房贷款实际利率水平也相应有所下调，目前我们行首套房贷款利率平均在5%左右，二套房平均利率在5.3%左右，分别比之前下调了大约20个BP和30个BP。”该负责人表示，目前个人住房贷款利率的政策下限是“首套房贷款不低于LPR，二套房不低于LPR+60BP”，这一政策框架没有发生变化，我们行会在这一下限之上，根据市场情况随时调整。](https://www.163.com/dy/article/H2RP05N80530WJIN.html)
+**评论：**开始带风向，摔锅，拉仇恨了。这伎俩现在还有用吗？
 
-[此外，记者还从中国银行烟台分行工作人员处了解到，该行首套房平均利率下调至5.1%，二套房平均利率下调至5.3%，也较之前有所下调。这位工作人员还表示，“这是我们行开展‘春天行动’的一部分。当然，这只是平均利率水平，具体到每笔个人住房贷款的利率水平，与借款人的资信水平和还款能力等多种因素相关，要具体情况具体分析。”兴业银行临沂市分行也表示，个人住房贷款是银行的优质资产，目前正是各行争取“开门红”的关键时期，多家银行同业通过下调贷款利率等方式，加大了个人住房贷款的营销力度，很多同业首套房利率已下调至5%，二套房下调至5.2%了，每家银行会根据自身经营、房贷供需和同业利率情况作出自主调整。](https://www.163.com/dy/article/H2RP05N80530WJIN.html)
+### 早报：中国代表在联合国会议上敦促美国在人权问题上知错认错
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/25e2fb71-99fb-4293-b897-9145fcc7748f.jpg?asset_id=5dd87b8e-51d6-48b5-bc49-0774f12d47c7&amp;img_etag=%22200c466fd8f882e304fee8706c3558da%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/25e2fb71-99fb-4293-b897-9145fcc7748f.jpg?asset_id=5dd87b8e-51d6-48b5-bc49-0774f12d47c7&amp;img_etag=%22200c466fd8f882e304fee8706c3558da%22&amp;size=1024)
+网络图片
 
-**10.****海航集团更多高管被带走**
+**评论：**老百姓连选票都没一张的国家，在质问一人一票的国家人权问题。在墙里面土匪恶霸当习惯了真的不怕别人笑话吗？
 
-[现任海航航空集团董事长包启发和海航集团监事会主席孙明宇，几天前被警方带走。目前，海航航空集团为辽宁方大集团控股，其直接/间接持股海航的十多家航空公司。在方大集团正式入主海航航空板块即将满一周时，海航航空集团的领导班子明确，其中包启发被任命为海航航空集团的董事长，其他管理层也都是老海航人。目前，海航航空集团方面并没有披露包启发被带走及原因，不过，根据天眼查的工商登记信息，海航航空集团的法定代表人3月16日已由包启发变为王英明。与此同时，海航航空集团也已发布内部文件，撤销包启发的安全管理委员会主任职务，由海航航空集团总裁王英明担任。](https://news.sina.com.cn/c/2022-03-16/doc-imcwiwss6431551.shtml)
+### 新京报: 唐山全市进入疫情防控应急状态 网吧，电影院 KTV暂时关闭
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/ec898248-7e83-4a52-b368-537006c7f6bc.jpg?asset_id=eb663e69-dc27-44bf-9aef-193d2cb864d5&amp;img_etag=%22a7e4bc6742dac73ebd7f91bb9a460643%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/ec898248-7e83-4a52-b368-537006c7f6bc.jpg?asset_id=eb663e69-dc27-44bf-9aef-193d2cb864d5&amp;img_etag=%22a7e4bc6742dac73ebd7f91bb9a460643%22&amp;size=1024)
+网络图片
 
-By 【秘密翻译组-金融组】
+**评论：**天天防控你们共产党怎么不说一句实话，把老百姓囚禁家中真是邪恶的组织。
 
+### 观察者网: 俄航天局: 美国考虑切断俄罗斯与GPS链接
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f9adf79c-ee51-4e29-835f-9342f8c41bc0.jpg?asset_id=f9f2b5e5-1657-48ee-b217-3155808aeb66&amp;img_etag=%22bc3eb6fb6b9653bd24ba1459c94f2ed8%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f9adf79c-ee51-4e29-835f-9342f8c41bc0.jpg?asset_id=f9f2b5e5-1657-48ee-b217-3155808aeb66&amp;img_etag=%22bc3eb6fb6b9653bd24ba1459c94f2ed8%22&amp;size=1024)
+网络图片
+
+**评论：**切断GPS相当于把俄罗斯眼睛弄瞎这下俄罗斯遭受了巨大的压力。
+
+### 新浪：在冻结了25000个俄罗斯账户后，比特币这个世纪大骗局终于被全世界看透了？
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/ad3a7d42-d281-47ac-9e3a-15f1b32a74ae.jpg?asset_id=6b0f8fc6-08cb-484b-bb95-c281189c8d0e&amp;img_etag=%22fcdef9f03aa4bd878ad5ab18b5f6d6ee%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/ad3a7d42-d281-47ac-9e3a-15f1b32a74ae.jpg?asset_id=6b0f8fc6-08cb-484b-bb95-c281189c8d0e&amp;img_etag=%22fcdef9f03aa4bd878ad5ab18b5f6d6ee%22&amp;size=1024)
+网络图片
+
+**评论：**比特币一定会完蛋，这是教练在直播中强调很多次的。
+
+### 财新网：”香港累计确诊人数近百万 受物流影响棺木存量告急 “
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/8b9ff898-29e7-4e35-ae2d-cae1020b9ba7.jpg?asset_id=3dc526dd-c62f-4159-a452-52ae0f9aaf51&amp;img_etag=%22bcd68f7cd3b33564553192b1d34a586a%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/8b9ff898-29e7-4e35-ae2d-cae1020b9ba7.jpg?asset_id=3dc526dd-c62f-4159-a452-52ae0f9aaf51&amp;img_etag=%22bcd68f7cd3b33564553192b1d34a586a%22&amp;size=1024)
+网络图片
+
+**评论：**财新一定看教练直播，昨天教练直播刚说完，今天新闻就报。
+
+### 网易新闻：加拿大香港新移民暴增！PR签发同比增长50%！工签人数翻13倍！
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f1cb477f-72b2-42ce-85bd-252fd6ae431a.jpg?asset_id=1cb15461-c1a2-4ff7-b55b-02dbe78ec9b2&amp;img_etag=%2228477ae621fa6b7d93bbdad45f046790%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/f1cb477f-72b2-42ce-85bd-252fd6ae431a.jpg?asset_id=1cb15461-c1a2-4ff7-b55b-02dbe78ec9b2&amp;img_etag=%2228477ae621fa6b7d93bbdad45f046790%22&amp;size=1024)
+网络图片
+
+**评论：**共产党对香港民主自由运动的严酷镇压，造成大量香港精英和民众逃亡海外，香港必将成为臭港。只有灭掉中共，香港才能重生！
+
+### 央视新闻：吉林2例感染者死亡 官方:直接原因非新冠 有基础病
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/041ef4f8-d77f-4c56-ad78-30389d6dd8c1.jpg?asset_id=f4ed7551-7ab1-4a70-bd13-df568d296ee4&amp;img_etag=%22cd7e24c3166911af5ef8e37e0f7390ef%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/041ef4f8-d77f-4c56-ad78-30389d6dd8c1.jpg?asset_id=f4ed7551-7ab1-4a70-bd13-df568d296ee4&amp;img_etag=%22cd7e24c3166911af5ef8e37e0f7390ef%22&amp;size=1024)
+GTV / GETTR
+
+**评论：**文贵先生的爆料革命早就爆料，疫苗灾难即将到来。接种CCP新冠疫苗后的各种梗死显现。拒绝接种CCP新冠疫苗！
+
+### 法广：普京再折一将：第8军指挥官莫德维切夫中将被打死
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/62312bfe-e899-4eae-99cc-2ccf579b7d44.jpg?asset_id=33d49eb5-fc79-40cd-8b29-20578085b958&amp;img_etag=%229e15729c8e7e6923aa7856060ea7a777%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/62312bfe-e899-4eae-99cc-2ccf579b7d44.jpg?asset_id=33d49eb5-fc79-40cd-8b29-20578085b958&amp;img_etag=%229e15729c8e7e6923aa7856060ea7a777%22&amp;size=1024)
+网络图片
+
+**评论：**普京还是在用传统战争观念打现代战争，阵前斩将乃兵家大忌，无论是战略上还是士气上都是大伤。能精确打击到个体作战单位，定点儿清除，是现代战争的精髓。普京真的没搞明白在跟谁打仗。
+
+### 法广：”俄罗斯客户存放在瑞士秘密银行的资产合计高达2130亿美元 “
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/aeb79847-6831-4f26-a59f-64d7fca5818f.jpg?asset_id=251c378d-9ea1-4548-9b44-bc4f39784199&amp;img_etag=%225a7adf05a1dfdecd0dfd3d88ffa745ee%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/aeb79847-6831-4f26-a59f-64d7fca5818f.jpg?asset_id=251c378d-9ea1-4548-9b44-bc4f39784199&amp;img_etag=%225a7adf05a1dfdecd0dfd3d88ffa745ee%22&amp;size=1024)
+普京 Reuters/路透社
+
+**评论：**共产国际的特点，都在瑞士银行放钱，而且是很多钱。口口声声爱国，口口声声民族崛起，为什么把钱放到国外而不是留在国内呢？
+
+### 美国之音：乌克兰局势即时报道：俄军第一次实战使用其最新的高超音速导弹
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/45582e1a-7c04-4f0c-9792-c7b5115f9383.jpg?asset_id=2e3fc46f-b913-4a79-bed9-f7ddfec001a0&amp;img_etag=%225130a66cc75e306875ce88444a562b1f%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/45582e1a-7c04-4f0c-9792-c7b5115f9383.jpg?asset_id=2e3fc46f-b913-4a79-bed9-f7ddfec001a0&amp;img_etag=%225130a66cc75e306875ce88444a562b1f%22&amp;size=1024)
+美国“爱国者”地对空导弹在波兰进行演习 – 资料图
+
+**评论：**众所周知，高超音速导弹是用来突防的，那什么情况下才需要用高超音速导弹突防呢，就是普通空袭无法实现突防，可想而知俄罗斯这一仗打的有多惨烈。人家的高端武器还没拿出来呢，俄罗斯已经拿出自己老底儿了，俄罗斯已经输了。
+
+### 联合新闻网：两位英国前首相称 普京应接受纽伦堡式审判
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/7e3a0125-2eb1-4efa-8c83-bf9653fcf82a.jpg?asset_id=f8a6f45e-a645-4b99-9fb0-08c66e02fd14&amp;img_etag=%220e98fb18366953836661a29b9ea84e7f%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/7e3a0125-2eb1-4efa-8c83-bf9653fcf82a.jpg?asset_id=f8a6f45e-a645-4b99-9fb0-08c66e02fd14&amp;img_etag=%220e98fb18366953836661a29b9ea84e7f%22&amp;size=1024)
+俄罗斯总统普亭。美联社
+
+**评论：**纽伦堡审判的是纳粹战犯，是胜利者对战败者的定义和审判，普京接下来面对的战事不利及由制裁导致的资源匮乏，注定离审判他的日子会越来越近了。
+
+### 联合新闻网：新变种在欧洲崛起 佛奇：全美可能再现确诊上升
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/a92c35a9-c350-461d-a706-08a21ba75722.jpg?asset_id=62b927a9-26f7-4398-9f3d-69bbd4e44e6a&amp;img_etag=%2210433977ddf4f8900e32ba295a136458%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/a92c35a9-c350-461d-a706-08a21ba75722.jpg?asset_id=62b927a9-26f7-4398-9f3d-69bbd4e44e6a&amp;img_etag=%2210433977ddf4f8900e32ba295a136458%22&amp;size=1024)
+美国传染病专家佛奇观察欧洲疫情走势，警告美国在未来数周恐面临新一波疫情高峰。图为佛奇今年1月在国会作证时解下口罩。路透
+
+**评论：**福齐从始至终的角色都是新病毒，打疫苗，然后再新病毒，再打疫苗，反反复复，每一步，每一句话都按着中共纳粹党的意识进行着。
+
+### 联合新闻网：「中国好声音」捧红他 西藏歌手传布达拉宫前自焚亡
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/1179be53-671e-49d3-b3a3-8dace0be2629.jpg?asset_id=3991b6f3-c656-4219-936f-729290060274&amp;img_etag=%22765aadf60c1d767b6536b5517c6dc319%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/1179be53-671e-49d3-b3a3-8dace0be2629.jpg?asset_id=3991b6f3-c656-4219-936f-729290060274&amp;img_etag=%22765aadf60c1d767b6536b5517c6dc319%22&amp;size=1024)
+西藏歌手才旺罗布惊传2月25日在西藏布达拉宫前自焚身亡。 （取材自微博）
+
+**评论：**昨天教练直播爆料，这位年轻人不是自焚，是被打死后才烧的。是坚定的爆料革命的战友。纳粹孽行，必有一天血债血偿。
+
+### 联合新闻网：外媒纠缠俄乌问题 陆外交部发言人火大反问六个为什么
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/9ae3447f-5ffd-4504-8e51-1655b56fe9ef.jpg?asset_id=2b7a019a-05da-490f-9241-c78a27ef0adf&amp;img_etag=%2267b42baa658fb1b548938703aa972a60%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/9ae3447f-5ffd-4504-8e51-1655b56fe9ef.jpg?asset_id=2b7a019a-05da-490f-9241-c78a27ef0adf&amp;img_etag=%2267b42baa658fb1b548938703aa972a60%22&amp;size=1024)
+外媒连日追问俄乌战争问题引发大陆外交部发言人赵立坚不耐。 （取自大陆外交部网站）
+
+**评论：**问了6个关于美国的问题，难道美国和其他国家在乌俄战争上不出兵错了吗？按照纳粹党的期待应该出兵？
+
+### 大纪元：”上海疫情持续升温 居民：真的很严重 “
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/767238e0-167d-4e50-94a3-203270f625ef.jpg?asset_id=5aa62640-f731-4eef-be9b-2cb2a18c81c0&amp;img_etag=%22191f9864ebedc9dc5f6129d36455f87e%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/767238e0-167d-4e50-94a3-203270f625ef.jpg?asset_id=5aa62640-f731-4eef-be9b-2cb2a18c81c0&amp;img_etag=%22191f9864ebedc9dc5f6129d36455f87e%22&amp;size=1024)
+2022年3月16日，上海静安区街道冷冷清清没有多少人。(HECTOR RETAMAL/AFP via Getty Images)
+
+**评论：**由于中共掩盖真相，官方疫情数据一直被外界质疑严重低估。尽管中共推行野蛮的清零政策，但是疫情依然持续扩大。
+
+### 大纪元：前北京民政局长李万钧落马 曾被追查国际追查
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/a8a4154c-564a-4666-afe2-65ef1bfc3742.jpg?asset_id=9df619de-3cbe-4727-908a-0bf5a86d877f&amp;img_etag=%22d87424069f6efc913bf69a1d84cbb4b1%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/a8a4154c-564a-4666-afe2-65ef1bfc3742.jpg?asset_id=9df619de-3cbe-4727-908a-0bf5a86d877f&amp;img_etag=%22d87424069f6efc913bf69a1d84cbb4b1%22&amp;size=1024)
+网络图片
+
+**评论：**所有活在邪恶中共体制下的官员、企业家、商人、职员、百姓都是中共的牺牲品。只要中共需要，锤子镰刀随时来。
+
+### 大纪元：卢比奥：”中共是俄罗斯发动战争的同谋 “
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/4d47b097-f214-499c-a809-4dcbb95d0e13.jpg?asset_id=510ef69d-38c0-41f1-8018-eb0ec892f6f7&amp;img_etag=%22b63b0adbedeb523b8f6c9c7ae8a27cad%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/4d47b097-f214-499c-a809-4dcbb95d0e13.jpg?asset_id=510ef69d-38c0-41f1-8018-eb0ec892f6f7&amp;img_etag=%22b63b0adbedeb523b8f6c9c7ae8a27cad%22&amp;size=1024)
+美国国会参议员卢比奥资料照。(Chip Somodevilla/Getty Images)
+
+**评论：**卢比奥在文中警告说，认为美国与共产主义政权有“共同利益”既天真又危险，试图找到这种共同利益，是几十年来美国对华政策失败的原因，美国应该重新思考战略，让中共为支持俄罗斯付出代价。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+收集：加油干吧总加速师，大象腿，Redsparrow，公平五十六 | 校对：Filon | PAGE：Doremi Rose
+
+（世界协调时）部分信息收集于网络世界的各方，请自行甄别
+[![](https://express.adobe.com/page/UvhWMf3DT44Fa/images/53130c6a-ffac-4866-8ce6-310a66feb95e.jpg?asset_id=2f481aef-15ab-4423-b26d-fb7b00402694&amp;img_etag=%2279c96383556a5136235d40a9d69aea3d%22&amp;size=1024)](https://express.adobe.com/page/UvhWMf3DT44Fa/images/53130c6a-ffac-4866-8ce6-310a66feb95e.jpg?asset_id=2f481aef-15ab-4423-b26d-fb7b00402694&amp;img_etag=%2279c96383556a5136235d40a9d69aea3d%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
