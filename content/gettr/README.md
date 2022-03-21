@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 1:25 PM (UTC)`
+
+2022.03.21 早《新中国联邦新闻访谈》新中国联邦和法治基金的乌克兰救援行动持续进行中； 东航飞机坠落，133人下落不明； 中共惺惺作态向乌克兰提供1000万人民币援助； 俄乌战争下英国加紧与沙特的能源关系； 中港股市动荡看中共经济面临痛点
+![img](https://media.gettr.com/group39/origin/2022/03/21/13/d0ece49b-b193-392a-185a-65445fb52506/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/21/2022 12:32 PM (UTC)`
 
 2022.03.21 早 《新中国联邦新闻》新中国联邦乌克兰救援大巴工作暂告结束； 义工综合素质高 随时应对救援前线突发事件
@@ -149,13 +156,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
 2022.03.20 NFSC News  Rescue Efforts by NFSC And ROLF Gain Attention from Chinese Around the Globe； NFSC’s Mission and Views Are Shared by People of the World
 ![img](https://media.gettr.com/group27/origin/2022/03/20/22/d593347a-8eaf-a752-0339-c32704b4835a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/20/2022 10:33 PM (UTC)`
-
-💦Frontline fellow fighters are decorating the media background walls outside the tent in Medyka. They are using Ukrainian Language to convey the real meaning of NFSC, ROLF and evil CCP.<br/><br/>❤️It is also one of the daily tasks to clean up the garbage that has accumulated around the camp tent. The clean and tidy tent environment also shows the image of the NFSC's people.<br/><br/>🔥As night falls, the NFSC's tents at Medyka have been redecorated to become media background walls<br/>Thanks to the hard work of our fellow fighters.<br/><br/>战友们在梅迪卡帐篷外装饰媒体区背景墙，用乌语拉近和当地难民的距离，持续向他们传递NFSC和ROLF及邪恶CCP的真正涵义。清理营地帐篷周围的垃圾也是日常工作之一，干净整洁的帐篷环境也展示了新中国联邦人的形象。夜幕降临，梅迪卡营地的帐篷外已经被装饰一新，成为一面面漂亮的媒体背景墙！
-![img](https://media.gettr.com/group45/origin/2022/03/20/22/d7d040d1-36e4-2f4f-ff1c-ac9f11e5ffc5/out.jpg)
 
 ---
 
