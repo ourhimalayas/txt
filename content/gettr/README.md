@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 4:46 AM (UTC)`
+
+3/20/2022 Miles Guo: Pangu’s dragon head turned into turtle head, what does this mean? The foreigners attending the 2022 Beijing Olympics Games all deem Miles Guo as the greatest hero in mankind - if the “atheistic” CCP doesn’t care about the Whistleblowers’ Movement, why did it turn Pangu’s dragon head into the turtle head?<br/><br/>3/20/2022文贵直播：盘古龙头变龟头意味着啥？参加冬奥会冬残会的外国人一致认为文贵先生是人类的大英雄，如果自诩为无神论的共产党真的不在乎爆料革命，为什么把盘古龙头变成龟头呢？<br/>
+![img](https://media.gettr.com/group21/getter/2022/03/21/04/7fa4c9d0-41a4-ad7a-03dd-544cbfe9fa22/out.jpg)
+
+---
+
+`@miles 3/21/2022 4:45 AM (UTC)`
+
+This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE News who tied closely to CCP regime. This time she defamed our humanitarian rescue as “just completing a political goal”. She also wants to white wash CCP, saying “Officially China has not wanted to activities back Russia.” But everybody knows that CCP is the origin of all evil. <br/>Thanks to DC Farm for making the video!🙏🙏🙏<br/>尊敬的战友们好，这个彭博社的女记者Aggi是第二个杨贝贝。这次，她污名化我们的人道救援是“完成政治目的”。 她更加想要为CCP洗白，说CCP“官方”没有支持俄罗斯对乌克兰的侵略战争。而众所周知，CCP就是那个万恶之源。 <br/>感谢DC农场制作的视频！🙏🙏🙏
+![img](https://media.gettr.com/group22/origin/2022/03/21/04/493a7acb-3cc9-57a1-c4eb-4f43db941f72/out.jpg)
+
+---
+
 `@miles 3/21/2022 3:43 AM (UTC)`
 
 3/20/2022 Miles Guo: Dictators have no idea about what the modern world is because of their arrogance. Modern warfare is only about technology. Elon Musk threw down the gauntlet to Putin, and what he said turned out to be the most marvelous thing that has ever been said in the history of humanity and has completely changed human civilization and warfare!<br/><br/>3/20/2022 文贵直播: 独裁者因其狂妄对当代世界完全没有认知。当代世界的战争只和科技有关。马斯克对普京下的战书是人类有史以来最牛的话，它改写了人类的文明和战争！
@@ -144,20 +158,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 又有一车从英国来的救援物资送到了NFSC大帐篷，我们的大帐篷已经成为世界各地救助乌克兰难民的爱心中心。<br/><br/><br/>#盘古时讯 #救援 #人道主义 #新中国联邦
 ![img](https://media.gettr.com/group4/getter/2022/03/20/17/4930a9fe-2e8a-0436-9cd0-0e379824192c/out.jpg)
-
----
-
-`@miles 3/20/2022 6:40 PM (UTC)`
-
-3/20/2022 Miles Guo: Very soon the media platforms and other enterprises owned by the CCP will be facing sanctions from the US, which is only an appetizer for the CCP; To have a glimpse of the CCP’s fear, just look at which families are selling stocks. It is the families of Zeng Qinghong and Zhu Rongji that are dumping their stocks.<br/><br/>3/20/2022 文贵直播：近期你会看到中共的媒体和企业受到美国制裁，而这只是美国对付中共的“前菜”；中共国到底咋样，看看谁家在卖股票就知道了，曾庆红家和朱镕基家都在卖<br/>
-![img](https://media.gettr.com/group24/getter/2022/03/20/18/f0a1f557-3d76-4669-32c9-0c28f0147d06/out.jpg)
-
----
-
-`@miles 3/20/2022 6:37 PM (UTC)`
-
-【Ukraine Rescue】03/19/2022 Since some fellow fighters are infected and the shortage of front-line personnel in Medyka, the rescue bus operation of the NFSC and the ROLF from Lviv to Krakow has temporarily come to an end. Thanks to the local NGO partners in Ukraine for printing out a banner representing the cooperation between Ukraine and the NFSC and the ROLF.<br/><br/>【乌克兰救援】03/19/2022  因战友染病，梅迪卡前线人手短缺，新中国联邦和法治基金救援行动从利沃夫市到达克拉克夫市的大巴暂告一段落。感谢乌克兰当地NGO同仁，打印出代表乌克兰与新中国联邦法治基金合作的标语。<br/><br/>
-![img](https://media.gettr.com/group27/getter/2022/03/20/18/9107b734-8629-6c5b-da70-1d8dbd477d9b/out.jpg)
 
 ---
 
