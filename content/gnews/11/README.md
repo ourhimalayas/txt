@@ -2,41 +2,31 @@
 ---
 
 
-## 文贵先生盖特精要2022/03/21
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2205105/)
+## 有声|新中国联邦乌克兰救援行动仍在继续
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205183/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2400.png)
-[盖特直播链接](https://gettr.com/post/p11491pcf7e)
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-- 纽约阳光明媚，将去中央公园跑一圈，正在准备大事。
-- 国内战友关心737飞机坠毁，疫苗灾难到来之时，这将成为常态。
-- 最近数字货币场外交易“疯狂”。多人因赵长鹏币安被“喝茶”，国内外发生多起被抓强行夺走数字货币事件。第三代数字货币上线后，币安、比特币都将被淘汰。
-- 货币稳定性和流通性很关键，黄金不可能暴涨。
-- 俄乌战场前线，各农场战友之间距离拉近，农场与农场应团结协作工作。现场直播将改善，部分感染病毒战友从阳转阴。新中国联邦救援行动时刻向世界传递正面信息。
-- 中共军事支持俄罗斯侵占乌克兰，全世界紧盯其行动。
-- 墙内医学院专家建议七哥少抽雪茄、坚持锻炼、多休息。
-- 中共国房地产爆雷、香港经济崩塌几个月内发生，将殃及全球经济。
-- 俄乌战争可能转好，普京不可能再被世界接受。
-- 星期三直播，这两天全天开会，条件允许下再向战友汇报。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-*听写：call me uncle*
+文字版原文：[新中国联邦乌克兰救援行动仍在继续](https://gnews.org/zh-hans/2197135/)
 
-*校对: 乐禧禧*
+音频处理：Fei797
+发稿：Fei797
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

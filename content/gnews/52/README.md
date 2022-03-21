@@ -2,12 +2,28 @@
 ---
 
 
-## 美国疾控中心删除了数万例与中共病毒相关的死亡案例
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2201662/)
+## 新中国联邦乌克兰救援大巴工作暂告结束
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201462/)
 
-03/19/2022 班农战斗室：美国疾控中心删除了数万例与中共病毒相关的死亡案例，其中包含了将近四分之一18周岁以下死亡案例，他们将其归咎于编码错误。这就是一条欺诈利益链，辉瑞在欺诈，食品药品管理局在欺诈，现在是疾控中心在欺诈。
+作者：纽约香草山 金融部 AT
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月19日，克拉科夫消息，当地时间晚十点左右，当最后三辆从乌克兰利沃夫出发的救援大巴抵达克拉科夫，运行了15天的新中国联邦救援大巴工作告一段落。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-11.jpeg)
+
+此次大巴救援工作，由新中国联邦发起，法治基金资助的乌克兰人道救援工作的一部分，是面向乌克兰境内的华人同胞、及所有需要撤离战区的各国人士提供的免费救援服务，每日从乌克兰利沃夫发车，终点是波兰克拉科夫。
+
+这次大巴救援工作，得到了乌克兰-波兰大巴车联盟等NGO组织的协助。从3月5日第一辆大巴运行开始，至3月19日，合计发车次数39台，累计总救援人数2009人。其中，大部分是乌克兰的妇女、儿童以及中国同胞。
+
+参考链接：
+1. [https://gettr.com/post/p10zumhf2b2](https://gettr.com/post/p10zumhf2b2)
+2. [【乌克兰救援】救援大巴实况回顾集合（一）](https://www.youtube.com/watch?v=vlSKmeQfAZI)
+3. [新中国联邦法治基金 乌克兰前线救援](https://gettr.com/post/p10v2879bb7)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+审核/总编/编辑：文真 
+校正/发稿：谐趣园
 
  
 

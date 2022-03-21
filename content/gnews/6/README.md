@@ -2,30 +2,32 @@
 ---
 
 
-## SWIFT断开白俄罗斯银行的联系
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2205162/)
+## 樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2205218/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-3月20日起，SWIFT国际支付系统正式与三家白俄罗斯银行：Белагропромбанка、БанкРазвитияБеларуси和БанкДабрабыт，银行断开连接。SWIFT是世界上几乎所有国家的金融和非金融组织之间转移资金和其他贵重物品的唯一通用渠道。与SWIFT断开连接会导致银行遭受重大财务和声誉损失。
+撰稿：东京樱花团/TV
 
-早在本月9日，欧盟委员会就对白俄罗斯实施新一揽子制裁计划达成一致。制裁内容除了将三家白俄罗斯银行排除在SWIFT之外，还禁止欧盟向白俄罗斯供应欧元现金，以及禁止该国公民在任何欧洲银行存款超过10万欧元。
+制图：东京樱花团/chuansang
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-145.png)
+丹麦政府在2月份统计了各接种人群的每百万人感染人数（图1）[1]。自2月14日起，疫苗接种者的每百万人感染率随着接种次数而增加，即三针接种最易感染，两针次之，一针接种者风险最低（图2）。丹麦政府最后一次更新的2月21日数据中，三针接种的感染风险达到了一针接种者的2.45倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-110.jpg)
+虽然数据似乎显示一针接种者感染风险最低，甚至低于未接种者，但考虑到一至三针接种者的数据，这是不合理的。参考我们在新南威尔士州观察到的现象[2]，这应该是对未接种者过度测试的政策导致的结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-76.jpg)
+这个数据证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
 
-尽管，1994年以来，白俄罗斯拥有自己的内部支付系统BELKART，加之今年3月18日开始使用人民币作为结算货币。但实际上，由于脱离swift系统之后，跨国企业驻白俄罗斯的子公司，无法将利润汇入母公司。这使得例如服装公司H＆M，家装公司IKEA，酿酒企业Olvi，芯片制造企业英特尔、AMD，网络供应商思科，网络租赁公司Airbnb，邮政快递公司DHL、FedEX、UPS等等跨国企业，要么已经完全撤离白俄罗斯，要么停止了为白俄罗斯地区提供服务。
+（注：本文为《樱花数据分析》第二十期）
 
-虽然，白俄罗斯官方宣称，这三家银行与SWIFT脱离后不会对白俄经济产生严重的影响。但是实际上，战争的阴霾和经济持续的恶化，白俄罗斯人已经开始用脚表达了自己的诉求。据德国之声报道，根据立陶宛边防部队的说法，过去几天，越过立陶宛边境的白俄罗斯公民比平均水平高出30%。[https://www.pravda.com.ua/news/2022/03/21/7333190/ https://www.dw.com/ru/ne-hochu-voevat-s-ukraincami-istorii-uezzhajushhih-iz-rb/a-61119088](https://www.pravda.com.ua/news/2022/03/21/7333190/%20https://www.dw.com/ru/ne-hochu-voevat-s-ukraincami-istorii-uezzhajushhih-iz-rb/a-61119088)
+数据来源：
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2091ED98-2707-4532-9752-F1CDD8CE4F8F.jpeg)
-**更多资讯，更多关注**
+[\[1\]Statens Serum Institut – Gennembrudsinfektioner (opgjort for 5+ årige)](https://experience.arcgis.com/experience/aa41b29149f24e20a4007a0c4e13db1d/page/page_5/)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[\[2\]樱花数据分析│澳大利亚新南威尔士州：疫苗有效率提高？那是玩弄数据的小把戏！](https://gnews.org/zh-hans/1995298/)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/EN-e1646965309541.jpg)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

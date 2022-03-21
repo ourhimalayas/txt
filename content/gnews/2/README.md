@@ -2,33 +2,39 @@
 ---
 
 
-## 有声|唯有灭共才能解决所有问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205216/)
+## 除掉普京？普京核心圈內的前克格勃間諜有望接任
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2205299/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月18日，郭文贵先生发布一则盖特视频，在介绍自己身边最近发生的一些问题的时候，再次强调，当前我们所面对的一切邪恶都来自共产党，解决所有灾难的唯一办法，就是消灭共产党。
+作者：加拿大溫哥華揚帆農場 動物農莊裡的小螞蟻[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（專欄） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-郭先生谈到，最近，中共处于对爆料革命的恐惧，用黑客大肆攻击郭先生本人和战友，使他们的电脑与手机无法正常使用，还用非法获得的资料作为法庭证据，扰乱社会秩序。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-同时，在国际方面，中东的石油和世界的供应链出了大问题。郭先生一位专门做意大利、西班牙、比利时和土耳其供应链的朋友表示，想折价出售一套曼哈顿的房子，原因是他的公司因为石油价格将要倒闭。另一位在中东霍尔木兹海峡运送石油的朋友也表示，公司由于找不到工人，目前难以运营。
+烏克蘭情報部門稱，俄羅斯一群精英已經制定了旨在儘快推翻普京的計畫，密謀通過下毒、突發疾病或任何其他“巧合”來除掉普京，並恢復俄羅斯與西方的經濟聯繫。“毒害”普京的陰謀可能會導致俄羅斯總統被另一位有爭議的政治人物——現任FSB局長博爾特尼科夫取代。
 
-谈到之前说的许多事情，现在都开始兑现，郭先生再次强调，原因就是精准的情报以及他对中共的深刻了解。要解决人类的所有问题，必须消灭中共！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1_Russian-Federal-Security-Service-FSB-director-Alexander-Bortnikov.jpg)
 
-文字版原文：[唯有灭共才能解决所有问题](https://gnews.org/zh-hans/2196807/)
+70歲的亞歷山大·博爾特尼科夫（Alexander Bortnikov）出生於烏拉爾山區的彼爾姆，畢業于捷爾任斯基克格勃高等學校。他在70年代在列寧格勒擔任克格勃官員期間遇到了普京，與普京一起在克格勃（KGB）任職。1991年，普京以中校的身份離開，而博爾特尼科夫的軍銜穩步上升。博爾特尼科夫目前是俄羅斯聯邦安全局(FSB)局長兼普京的密友，在普京離開克格勃以前，有人看到，他們像情侶一樣徒步旅行。
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0_PAY-Alexander-Bortnikov-right-and-Vladimir-Putin_Uznayvseru_east2west.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+博爾特尼科夫的兒子鄧尼斯（Denis）是俄羅斯國有VTB銀行的副行長，是受到英國制裁的寡頭之一，而博爾特尼科夫於2021年3月受到美國的制裁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+博爾特尼科夫是少數幾個屬於普京強大核心圈子的人物之一，據說與普京一起在克格勃任職後，他分享了他的反西方世界觀。他在確保普京維持總統權力方面發揮了關鍵作用。但他也在2017年接受《俄羅斯報》採訪時聲稱，“俄羅斯的毀滅仍然是許多人的癡迷”。
+
+由於俄羅斯在烏克蘭的持續軍事損失和入侵後的拙劣表現，博爾特尼科夫最近失去了克里姆林宮的青睞。
+
+據說普京對他在該國入侵烏克蘭後收到的不準確情報感到非常憤怒。這位在1998-99年間擔任FSB主任的俄羅斯總統，對情報部門的重視程度幾乎高於任何其它來源。俄羅斯情報部門的安全服務未能使用加密通信後出現問題，這意味著戰場消息很容易被截獲。
+
+但博爾特尼科夫仍然被認為對烏克蘭內部人員產生很大影響，他在那裡經營著許多特工。烏克蘭軍方聲稱，FSB在烏克蘭全國擁有數百名特工，他們利用戰術團體恐嚇佔領區的平民。自2008年博爾特尼科夫加入FSB以來，備受矚目的行動和暗殺行動的數量有所增加，他對數千人被拘留和加強民事限制負有責任。2020年8月，批評普京的激進分子阿列克謝·納瓦爾尼（Alexei Navalny）被神經毒劑毒死。該行動涉及俄羅斯國內從安全到情報的方方面面，雇傭了數十萬人。
+
+烏克蘭情報總局表示：“眾所周知，博爾特尼科夫和其他一些有影響力的俄羅斯精英代表正在考慮各種方案，將普京趕下臺。特別是不排除中毒、突發疾病或任何其他“巧合”。
+
+參考資料：
+
+[The new Putin? Former KGB spy in Putin’s inner circle who is tipped to take over](https://www.mirror.co.uk/news/world-news/new-putin-former-kgb-spy-26517291)
+
+編輯：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上傳：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

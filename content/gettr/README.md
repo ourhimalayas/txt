@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/21/2022 4:04 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月20日第16天当日救援统计：<br/>Medyka救援站接待：约120人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7177人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 16 - Date: March 20, 2022 :<br/><br/>Medyka Rescue Station Reception: about 120 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7177 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group6/getter/2022/03/21/16/297fc1a9-5879-131a-f4fc-964d759520e4/d5c60e22166c9859061d20f75df770ca.jpg)
+
+---
+
 `@miles 3/21/2022 1:25 PM (UTC)`
 
 2022.03.21 早《新中国联邦新闻访谈》新中国联邦和法治基金的乌克兰救援行动持续进行中； 东航飞机坠落，133人下落不明； 中共惺惺作态向乌克兰提供1000万人民币援助； 俄乌战争下英国加紧与沙特的能源关系； 中港股市动荡看中共经济面临痛点
@@ -149,13 +156,6 @@ This Bloomberg News reporter, Aggi Cantrill, is a second Isobel Yeung of VICE Ne
 
  7News《全球视点》<br/>梅迪卡新中国联邦得道多助凝聚正义力量<br/>In Medyka NFSC's rescue gets more help to unite the forces of justice<br/><br/>In the war of Russia and Ukraine between evil and justice, the CCP chooses evil side to support Russia's illegal war against Ukraine, caused Ukraine, even humanitarian disasters across Europe.<br/>Meanwhile, the people of NFSC arrived Ukraine bravely for international humanitarian rescue.The strength and actions of the NFSC rewards the welcome and praise of local people and international friends.<br/><br/>在俄乌这场正义与邪恶的战争中，中共站在了邪恶的一边，支持俄罗斯对乌克兰的非法战争，造成了乌克兰、甚至欧洲全境的人道主义灾难。<br/>然而，新中国联邦人勇敢地来到乌克兰前线进行人道国际救援。新中国联邦的实力与行动，赢得了当地人民和国际友人的欢迎与赞誉。
 ![img](https://media.gettr.com/group14/getter/2022/03/20/23/f6571b68-3622-26cb-0c8d-94ef54d3fe62/out.jpg)
-
----
-
-`@miles 3/20/2022 11:00 PM (UTC)`
-
-2022.03.20 NFSC News  Rescue Efforts by NFSC And ROLF Gain Attention from Chinese Around the Globe； NFSC’s Mission and Views Are Shared by People of the World
-![img](https://media.gettr.com/group27/origin/2022/03/20/22/d593347a-8eaf-a752-0339-c32704b4835a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

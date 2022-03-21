@@ -2,31 +2,22 @@
 ---
 
 
-## 秘翻新闻｜美中开干之前 中共媒体将被制裁
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2203500/)
+## 樱花时政┃上海疫情扩大 再次关闭迪士尼
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2202470/)
 
-**By:[秘翻新闻](https://gettr.com/post/p112sy7b762)**
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-43.jpg)[图片来源](https://sites.google.com/site/s105106311/research-lan-qiu-ri-ben/di-shi-ni)
+上海迪士尼度假区3月20日透露,,由于中国国内疫情正在扩大,将于21日起暂时关闭此设施。
 
-**[2022-03-21](https://gettr.com/post/p112sy7b762)**
+公司表示“由于现在的(新型冠状病毒)扩大,以上海迪士尼乐园、迪士尼城、愿望之星公园为首的上海迪士尼度假区将于3月21日暂时关闭”。在监测感染扩散情况的同时,与地方当局协商,确定恢复营业日程后会迅速通知。
 
-**新闻内容:**
+信息来源：
 
-**1. 中共国超12亿人全程接种 全国疫情仍遍地开花**
+[上海ディズニーリゾート、21日から一時閉鎖　新型コロナ拡大で](https://jp.reuters.com/article/health-coronavirus-china-walt-disney-idJPKCN2LI066)
 
-**2. 投资者首季抛售60亿美元中共国股票 创下纪录**
-
-**3. 两名俄官员证实：黑海舰队副司令战死**
-
-**4. 乌克兰表示周日有7295人从城市中撤离**
-
-**5. 美印太司令部：中共将南海至少三个人工岛完全军事化**
-
-**🔗Gettr链接：**[https://gettr.com/post/p112sy7b762](https://gettr.com/post/p112sy7b762)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
