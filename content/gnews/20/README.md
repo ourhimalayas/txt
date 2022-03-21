@@ -2,50 +2,43 @@
 ---
 
 
-## 泽连斯基喊话俄方：“该坐下来谈谈了。”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203003/)
+## 泽连斯基对以色列国会发表谈话，呼吁以色列协助乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2203018/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译：文扬
-编辑：jocozoner
+整理：gardeniahu
+编辑：围剿维尼熊
+![](https://assets.gnews.org/wp-content/uploads/2022/03/21-4.png)
+据路透社报道，乌克兰当地政府表示，俄罗斯和乌克兰军队周日为控制港口城市马里乌波尔(Mariupol)展开了战斗。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
+夺取马里乌波尔将有助于俄罗斯军队获得通往克里米亚半岛的陆地通道，俄罗斯早在2014年已从乌克兰手中夺取了克里米亚。
 
+自俄罗斯2月24日入侵乌克兰以来，马里乌波尔已遭受最猛烈的几次轰炸。40万居民当中仍有许多人受困于当地，几乎没有任何食物与水电供应。
 
-在3月19日清晨的视频讲话中，乌克兰总统弗拉基米尔·泽连斯基呼吁俄罗斯进行有意义的和平谈判，并结束战争。
+周日，马里乌波尔地区负责官员Pavlo Kyrylenko说，该市内的战斗仍在继续。
 
-他警告俄罗斯当局，谈判是他们“将自己的错误造成的损害降到最低的唯一机会”。
+与此同时，乌克兰总统泽连斯基呼吁以色列协助击退俄罗斯对乌克兰的攻击。
 
-双方目前正在进行远程谈判，迄今为止，既没有取得任何实质性进展，也没有达到总统级别。
+泽连斯基通过视频连线向以色列国会发表谈话，对以色列不愿向乌克兰出售其铁穹(Iron Dome)导弹防御系统提出质疑，他还呼吁拯救乌克兰人与乌克兰犹太人的生命。
 
-泽连斯基在Facebook上发布的一段视频中说道：“现在（大家）应该见面和会谈了，（我们）是时候应该恢复乌克兰领土完整，拿回我们的公平了……否则，俄罗斯的损失将是（他们）几代人无法挽回的。”
+俄罗斯则呼吁马里乌波尔的乌克兰军队放下武器，并承诺让放下武器的乌克兰人安全离开该市。人道主义通道将在莫斯科时间周一10点(0700 GMT)开放。
 
-泽连斯基称，乌克兰已经从被俄军围困的港口城市马里乌波尔救出了9000多人。关于该市收容平民的一个剧院遭到俄军轰炸，他坦陈目前尚不清楚具体伤亡情况。
+俄罗斯周六在乌克兰首次部署了高超音速导弹，并称这次打击摧毁了一个地下导弹和飞机弹药库。
 
-此外，他还宣布，通过全国各地的人道主义救援渠道，目前共有超过18万名乌克兰公民得救。
+以色列总理贝内特(Naftali Bennett)多次与泽连斯基和普京通话，试图结束这场冲突。
 
-针对俄军在几个热点地区对援助活动加以阻挠，他予以谴责，并表示 “由于当地的乌克兰人做任何事都要恪守（占领军的）命令，所以在乌克兰城市发生的一些人道主义灾难，反而迫使人们不得不与占领者合作。”
+土耳其和以色列一样，也试图对这场战争进行调解。
 
-对此，他认为：“这就是战争罪。”
+参考链接：[综述：泽连斯基呼吁以色列提供导弹防御系统 马里乌波尔战火猛烈](https://www.reuters.com/article/ukraine-urges-israel-missile-defense-032-idCNKCS2LI02B)
 
-2月24日，俄罗斯悍然入侵乌克兰，并要求乌克兰永远不要加入北约军事同盟，以及实现全国的“非军事化”和“去纳粹化”。截至目前，基辅与莫斯科已进行了几轮面对面与视频谈判。最新的一组谈判，即第4轮谈判，将于3月21日开始。
+*发布：tianzhihuan*
 
-俄罗斯方面最高谈判代表称，针对乌克兰中立的提议，莫斯科和基辅的立场已经出现了“尽可能的接近”。
-
-然而，参加谈判的泽连斯基的顾问米哈伊洛·波多利亚克（Mikhailo Podolyak）表示，乌克兰方面立场没有动摇。
-
-“我们的立场不会改变。”他说，“停火、撤军，以及（俄方）必须做出有具体方案且坚实的安全承诺。”
-
-原文链接：[Russia Ukraine war: Zelenskyy calls on Russia to enter new peace talks; humanitarian aid arrives in Sumy | news.com.au — Australia’s leading news site](https://www.news.com.au/world/russia-ukraine-war-explosions-near-lvivs-airport/news-story/a22d992281b55928540b6793e22f3642)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

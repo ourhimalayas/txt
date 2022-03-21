@@ -2,29 +2,40 @@
 ---
 
 
-## 樱花FM|中日财经爆:因涉北韩劳工李宁产品遭美国海关查扣
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2203249/)
+## 樱花时政┃中共的驻美大使被问得语无伦次
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2203360/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2330.png)
-美国海关和边境保护局在当地时间15日发出的声明中表示，美国各地海关自昨(14日)起执行有关拘留令，若李宁公司能够在扣留通知发出后30天内提供明确和令人信服的证据，证明其商品不是由罪犯劳工、强迫劳工或受刑事制裁的契约劳工所生产，有关产品将可获放行，否则商品可能会被扣押和没收。
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-133.png)[视频及图片来源](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=15738317839526298228)
+3月20日，驻美大使秦刚接受美国哥伦比亚广播公司节目主持人玛格丽特·布伦南直播采访。采访中，布伦南提问：中方是否会向俄方提供资金和武器吗？对此，秦刚大使表示，有关中方向俄方提供军事援助的说法是虚假信息，我们对此反对。中方给乌克兰人民送去食品、药品、睡袋和婴儿奶粉，而不是向任何一方提供武器弹药。我们反对战争，将尽一切努力推动局势降温。2022年3月20日，中共驻美大使秦刚接受美国哥伦比亚广播公司（CBS）“面向全民”（FACE THE NATION）节目主持人玛格丽特·布伦南直播采访，主要就乌克兰问题等阐述中方立场。有人发现，秦刚在节目中被“区别对待”，9分钟被主持人打断23次。与之形成对比的是，在当天的节目中，美国国防部长奥斯汀、美国参议院共和党领袖麦康奈尔、乌克兰驻美大使被主持人打断的次数都是0。
 
-根据2017年通过的美国敌对国家制裁法案（Countering America’s Adversaries Through Sanctions Act，简称CAATSA），任何产品若其生产全部或部分涉及北韩、伊朗及俄罗斯，均不可入口美国，除非生产商能证明有关产品不涉及强迫劳动力。
+Compere (*Margaret Brennan)*: you send money and weapons to Russia so?
 
-不过，北韩多年来向俄罗斯和中国等地派遣数以万计的公民从事体力劳动，并从中获得5亿美元的外汇。根据彭博通讯社纪录，有关款额在联合国2017年叫停这种做法以惩罚平壤的核试验和弹道导弹试射时，约占该国经济的1.5%。自此，尽管俄罗斯已停止聘用北韩劳工，但仍有北韩人到中俄做工，主要从事伐木工作，人数可能涉及数千人，但由于俄罗斯受制裁，有关工人以支薪，令北韩获得外汇的数额有所减少。
+Qingang (CCP’s ambassador): while there is a disinformation about China providing military assistance to Russia, we reject that.
 
-中共国很多所谓成功的巨型私人企业，背后都有中共红色权贵家族利用权力和行政资源，对这些巨型私人企业提供扶持和政策倾斜，而中共红色权贵家族又通过这些企业攫取大量财富。而作为中共国体育用品巨头的李宁正是这种企业的代表，背后的中共红色权贵家族利用自己的权力，为李宁公司提供来自北韩的廉价劳动力，使李宁的产品拥有更低的成本，在国际上更有竞争力。本次李宁公司产品被查扣事件，还能看出中共强迫新疆人进行劳动并非空穴来凤，中共早已在人权议题上劣迹斑斑，不知多少来自少数民族和其他中共友邦的民众在中共国境内进行着高强度的体力劳动，再次证明了中共不灭，世界不宁。
+Compere (*Margaret Brennan)*interrupt his speech: you want do some …, will not?
 
-文字版原文：
+Qingang (CCP’s ambassador): What China is doing is send foods, medicine, sleeping bags, and baby formulas, not weapons and ammunition to any parties. We we we…
 
+Compere (*Margaret Brennan)*interrupt his speech: Could you concerning that Russia mass of more than150,000 troops at China’s border? We just be clearly China….
 
-| [中日财经爆┃因涉北韩劳工李宁产品遭美国海关查扣](https://gnews.org/zh-hans/2177745/) |  |
-| --- | --- |
+Qingang (CCP’s ambassador) interrupt her speech: while that’s why we keep a good friendly neighborly relationship with Russia
 
+Compere (*Margaret Brennan)*interrupt his speech: would you recognize that it’s not a good friendly neighborly relation with 150,000 troops on the border of a neighboring of a country to descend that troops into that country. In those circumstance, why can’t you condemn them as an invasion?
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+Qingang (CCP’s ambassador): Let’s don’t be naïve. Condemnation …….
+
+Compere (*Margaret Brennan)*interrupt his speech: it sounds naïve doesn’t say that invasion.
+
+Qingang (CCP’s ambassador): that’s doesn’t solve the problem. I will be surprise if Russia will back down by condemnation. And we’ll continue to promote peace talk, urge immediate fire and you know condemnation only doesn’t help. We need wisdom, courage, and we need good diplomacy……
+
+秦刚的此次受邀谈话，被玛格丽特问的羞愧不知，难掩面红的局面。中共资助俄罗斯此次的入侵是世人皆知的，在美国接受他人电视直播采访，公然撒谎，丑相百出。秦刚多次打断玛格丽特的问话，这是害怕主持人问出不该问的问题，秦刚无法面对吗？中共媒体公然说是秦刚被玛格丽特打断，继续洗脑墙内民众，从这个视频中，懂英文的人一眼便可以看出谁在说事实，谁在撒谎。
+
+消息来源：[中共驻美大使秦刚面对哥伦比亚广播公司的直播采访](https://baike.baidu.com/item/%E7%8E%9B%E6%A0%BC%E4%B8%BD%E7%89%B9%C2%B7%E5%B8%83%E4%BC%A6%E5%8D%97/60332903?fr=aladdin)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
