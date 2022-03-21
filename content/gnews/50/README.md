@@ -2,10 +2,10 @@
 ---
 
 
-## 欧盟峰会将讨论设立乌克兰团结基金
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201385/)
+## 美国、澳大利亚采取不同方式继续支持乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201388/)
 
-作者：纽约磐石农场 – 在远方
+作者：纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,14 +13,17 @@
 
 
 
-据国外媒体消息，欧盟理事会3月18日晚间表示，将于下周的欧盟领袖峰会上，讨论设立“乌克兰团结基金”事项。
+国外媒体报导，世界各国对乌克兰的各种援助仍在持续。3月19日，乌克兰国安会秘书长丹尼洛夫在电视转播的专访中表示，乌克兰数天内就会收到新运交的美国武器，包括标枪反战车飞弹和刺针防空飞弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-8.jpg)
+澳大利亚政府则在20日表示，将向乌克兰捐赠至少7万吨煤炭，以满足其能源需求。还承诺为乌克兰提供更多军事装备和人道主义援助。
 
-欧盟理事会主席米歇尔指出，欧盟规划设立乌克兰团结基金，是为了协助乌克兰筹集当前的国防和民生，以及战后重建所需资金，并呼吁国际社会为该基金踊跃捐款。另有欧盟官员补充说，米歇尔当日与乌克兰总统泽连斯基通话后认为，由于目前乌克兰无法在国际金融市场发行债券融资，而且战乱导致了大量外资撤离，因此欧盟准备设立一个基金，以维持乌克兰的国防战斗力。
+同时，作为对莫斯科入侵乌克兰持续制裁的一部分，澳大利亚已禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。而铝是俄罗斯的重要出口物资，其近20%的氧化铝需求依赖澳大利亚，出口禁令将限制俄罗斯生产铝的能力。
 
-据悉，美国总统拜登下周也将出席欧盟及北约峰会，与各国领导人讨论形势，并展现对盟国钢铁般坚定的承诺。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-10.jpg)
 参考链接：
-[歐盟下週領袖峰會 討論設立烏克蘭團結基金](https://www.rti.org.tw/news/view/id/2127669)
+1. [Ukraine to receive more U.S. Javelin and Stinger missiles within days, Ukraine official says](https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/)
+2. [How to Watch New Zealand Women vs England Women ICC Women’s World Cup 2022 Live Streaming Online? Get Free Live Telecast of NZ W vs ENG W Match & Cricket Score Updates on TV](https://www.latestly.com/socially/sports/cricket/how-to-watch-new-zealand-women-vs-england-women-icc-womens-world-cup-2022-live-streaming-online-get-free-live-telecast-of-nz-w-vs-eng-w-match-cricket-score-updates-on-tv-3491296.html)
+3. [Danilov: Ukraine will receive a new batch of weapons from the U.S. in the coming days.](https://twitter.com/KyivIndependent/status/1505303210591985665?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505303210591985665%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.latestly.com%2Fsocially%2Fworld%2Fdanilov-ukraine-will-receive-a-new-batch-of-weapons-from-the-u-s-in-the-coming-latest-tweet-by-the-kyiv-independent-3491479.html)
+4. [Australia bans alumina exports to Russia, sources coal for Ukraine](https://www.reuters.com/world/australia-bans-alumina-exports-russia-sources-coal-ukraine-2022-03-19/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 

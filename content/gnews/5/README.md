@@ -2,23 +2,37 @@
 ---
 
 
-## 视频|俄乌战争影响能源价格 比利时延迟废除核能计划
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2204882/)
+## 有声|泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2204983/)
 
-制作：香草山视频部
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体3月19日报导，乌克兰总统泽连斯基在对有数千人参加的伯尔尼反战抗议活动的讲话中，对瑞士的支持表示了感谢。同时表示，发动这场战争的人的财富就存在瑞士的银行里，他们摧毁了乌克兰人的家园，自己却在欧洲在瑞士享受着美好生活。他希望瑞士能够剥夺他们的特权，冻结他们的财产。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-67.jpg)
+同时，泽连斯基在另一个视频中，继续敦促莫斯科当局进行会谈，并表示这是普京政府把错误的损害降到最低的唯一机会。
 
-3月18日，国外媒体报导，比利时政府在当天的一份声明中宣布，由于俄乌战争导致的地缘政治动荡仍在持续，为了摆脱对石油能源的依赖，联邦政府已决定将该国两座核电站的服役期限延长10年。
-比利时目前有两座核电站在运营，共有七个反应堆。自2003年以来，逐步淘汰核能的承诺已被写入比利时的法律。
-据悉，俄罗斯满足了欧洲 40% 的天然气需求，主要供应给德国、意大利和几个中欧国家。自俄罗斯入侵乌克兰以来，欧洲能源价格急剧上涨。目前欧洲各国都在想方设法摆脱对俄罗斯的能源依赖。在比利时宣布推迟废除核能的计划后，欧洲最大经济体德国也出现了应重新考虑淘汰核能的声浪。
+泽连斯基说，乌克兰已经提出了维持和平的解决方法，现在是见面和会谈的时候，也是为乌克兰恢复领土完整与公平正义的时候，否则俄罗斯的损失将会是几个世代都无法恢复的。
 
-发稿：文敬
 
-[**更多资讯，更多关注**
+
+文字版原文：[泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平](https://gnews.org/zh-hans/2201605/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,25 +2,22 @@
 ---
 
 
-## 英国前首相称普京应受到纽伦堡大审判
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2204787/)
+## 中共帮普京大帝辨说战争是因为北约扩张导致的
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2204959/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月19日外媒报道，英国前首相布朗、梅杰等140位学术、法律和政治界人士，联名呼吁设立一个类似当年审判德国纳粹的纽伦堡军事法庭，来清算普京等俄罗斯政府官员和机构，所犯下的战争罪行。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-44.jpg)
-布朗表示，自从柏林墙倒塌后，民主和法治在世界范围内获得共识，但是普京却妄图用武力来颠覆二者。他认同拜登定义普京为“战犯“的说法，并强调说，如果国际社会现在没有做出表态，那么其他意图发动侵略战争的国家，也将不会受到惩罚。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-18.jpg)
+据美联社报道一位中国外交官说，北约应该坚持他所声称的不向东扩张的承诺。
 
-据悉，目前国际刑事法院已经针对普京的战争罪嫌疑展开调查，但该法院必须得到联合国安理会的转介，才能调查侵略罪，而俄罗斯作为安理会常任理事国，拥有否决权。
+在周六的一次演讲中，中共国外交部副部长乐玉成批评了西方在俄罗斯入侵乌克兰后对其实施的深远制裁，并表示乌克兰战争的根源 “在于冷战思维和权力政治”。
 
-参考链接：[普廷應像納粹受「紐倫堡大審」！ 前英相連署力挺](https://news.ltn.com.tw/news/world/breakingnews/3865243)
+这位中共国特使呼应克里姆林宫的一个谈话要点，说如果北约 “进一步扩大，它将接近’莫斯科郊区’，那里的导弹可以在七八分钟内击中克里姆林宫”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+他说：”把一个大国，特别是一个核大国推到角落里，会带来难以想象的后果。
 
-总编/编辑/审核：文真
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共这番话还能辩解说没有支持俄国，简直是在说瞎话。
 
+**新闻来源：**https://www.breitbart.com/europe/2022/03/19/pushing-a-major-country-to-the-corner-china-blames-nato-expansion-for-ukraine-war/
 
  
 

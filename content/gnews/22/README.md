@@ -2,12 +2,25 @@
 ---
 
 
-## 【乌克兰救援】妮可接受立陶宛最大Youtube频道采访，他们反对中共，支持台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2204538/)
+## 载有133名乘客的飞机在中国南部坠毁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2204620/)
 
-03/19/22 妮可接受立陶宛最大Youtube频道自由卫视采访，他们反对中共，支持台湾，并表示新中国联邦人的出现说明了中共无法代表所有中国人。他们仔细询问了法治基金新中国联邦的救援活动并参观和拍摄了大帐篷里面的情况和设施。
+编译：ZQ
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_5306.jpg)
+
+
+图片来源： 视频截图
+
+中国东方航空公司载有133名乘客的飞机坠毁，在中国东南部的广西地区的山区产生了火灾。
+
+天空新闻称，国家电视台在周一首次报道了这一事件。
+
+中共国国家电视台说，一架从昆明飞往广州的波音737-800飞机最终在梧州市附近坠毁。
+
+国家电视台说，伤亡情况仍然不明，救援人员正在赶来。
+
+🔗 [https://justthenews.com/world/asia/plane-133-passengers-crashes-southern-china-state-tv-report](https://justthenews.com/world/asia/plane-133-passengers-crashes-southern-china-state-tv-report)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 美国、澳大利亚采取不同方式继续支持乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201388/)
+## 美国向保加利亚提供史崔克步兵连强化北约东翼
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2201422/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约磐石农场 – 在远方
 
 
 
@@ -13,21 +13,21 @@
 
 
 
-国外媒体报导，世界各国对乌克兰的各种援助仍在持续。3月19日，乌克兰国安会秘书长丹尼洛夫在电视转播的专访中表示，乌克兰数天内就会收到新运交的美国武器，包括标枪反战车飞弹和刺针防空飞弹。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-8.jpg)
-澳大利亚政府则在20日表示，将向乌克兰捐赠至少7万吨煤炭，以满足其能源需求。还承诺为乌克兰提供更多军事装备和人道主义援助。
+3月19日，保加利亚总理佩特科夫表示，在俄罗斯入侵乌克兰后，美国为强化北约东翼的防御力量，将向保加利亚战斗群提供一个史崔克机械化步兵连，以防止俄罗斯入侵乌克兰战争失控。
 
-同时，作为对莫斯科入侵乌克兰持续制裁的一部分，澳大利亚已禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。而铝是俄罗斯的重要出口物资，其近20%的氧化铝需求依赖澳大利亚，出口禁令将限制俄罗斯生产铝的能力。
+保加利亚是北约和欧盟成员国，曾经是冷战时期是东欧社会主义国家，是前苏联的最亲密盟友之一。目前保加利亚正在打造一支由北约盟军最高司令指挥的1000名士兵组成的战斗群。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-9.jpg)
+据悉，“史崔克部队”是以“史崔克装甲车” 为核心组成的机械化步兵队伍，史崔克系列装甲车是美国为21世纪新型战场所设计的一种运输攻击多功能装甲车辆，自2002年至今，已推出许多不同的升级和改良版本。
+
+佩特科夫与来访的美国国防部长奥斯汀在记者会上说，美国同意提供一个史崔克连，是对北约传达了一个强烈信号。他表示，保加利亚将继续向乌克兰提供人道援助，并接纳战争难民。奥斯汀强调说，宣布保加利亚建立由北约领导的多国战斗群是重要的一步，美国将给予完全的支持。
 
 参考链接：
-1. [Ukraine to receive more U.S. Javelin and Stinger missiles within days, Ukraine official says](https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/)
-2. [How to Watch New Zealand Women vs England Women ICC Women’s World Cup 2022 Live Streaming Online? Get Free Live Telecast of NZ W vs ENG W Match & Cricket Score Updates on TV](https://www.latestly.com/socially/sports/cricket/how-to-watch-new-zealand-women-vs-england-women-icc-womens-world-cup-2022-live-streaming-online-get-free-live-telecast-of-nz-w-vs-eng-w-match-cricket-score-updates-on-tv-3491296.html)
-3. [Danilov: Ukraine will receive a new batch of weapons from the U.S. in the coming days.](https://twitter.com/KyivIndependent/status/1505303210591985665?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505303210591985665%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.latestly.com%2Fsocially%2Fworld%2Fdanilov-ukraine-will-receive-a-new-batch-of-weapons-from-the-u-s-in-the-coming-latest-tweet-by-the-kyiv-independent-3491479.html)
-4. [Australia bans alumina exports to Russia, sources coal for Ukraine](https://www.reuters.com/world/australia-bans-alumina-exports-russia-sources-coal-ukraine-2022-03-19/)
+[增強北約東翼 美將向保加利亞提供史崔克步兵連](https://www.rti.org.tw/news/view/id/2127720)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：飞虹
+总编：飞虹
+编辑/审核：Jack Li文阳
 校对/发稿：为真不破20
 
 
