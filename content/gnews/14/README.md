@@ -2,26 +2,19 @@
 ---
 
 
-## 比特币去中心化骗局
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2203601/)
+## 杨洁篪外交失败，美国是俄乌战争最大赢家（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203803/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-18.41.31.png)
-3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有的，其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化是背道而驰的，少数人大量持有根本不叫去中心化，叫做高度中心化。由于比特币热搞的饥饿营销，市面上传说的2600万是比特币的总数量，但这个数量根本没有任何机构来监管。
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：20-11：30-001-1.jpg)
+*发布：*tianzhihuan
 
-货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本。货币的本质其二为支付，比特币并没有支付系统。这些原因导致了比特币只能沦为洗钱的工具。
-
-撰稿、发布：骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
-- 欢迎订阅我们的G-News账号：
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-
-* * *
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

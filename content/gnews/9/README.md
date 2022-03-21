@@ -2,19 +2,12 @@
 ---
 
 
-## CCP赌美国不会同时打三场战争，七哥判断美国一定会参战（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203764/)
+## 一名乌克兰上尉称俄罗斯拒绝将他们死去士兵的遗体运回本国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2203860/)
 
-#### PPT制作: 0-0 ；rmrf
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：15-11：20-003.jpg)
-*发布：*tianzhihuan
+03/20/2022 乌克兰将军告诉俄罗斯军队带走他们死去的士兵的尸体，但俄罗斯人说他们不需要这些尸体
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
