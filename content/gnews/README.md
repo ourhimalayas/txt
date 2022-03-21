@@ -15,125 +15,125 @@
 
 ---
 
-### [世界各国如何监管加密货币](/content/gnews/1/README.md)
+### [大直播后记：西方清理行动已经开始](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [迫于压力福奇暗示将退休](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [“我不能永远呆在这个岗位上”——福奇强烈暗示将卸任](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [遭遇乌克兰激烈抵抗，俄罗斯谋求加强攻势](/content/gnews/2/README.md)
+### [世界各国如何监管加密货币](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [遭遇乌克兰激烈抵抗，俄罗斯谋求加强攻势](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [普京最新演讲拥抱斯大林](/content/gnews/3/README.md)
+### [普京最新演讲拥抱斯大林](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [在战争之前，华盛顿就表现出了越来越多的反中共国的一面](/content/gnews/4/README.md)
+### [在战争之前，华盛顿就表现出了越来越多的反中共国的一面](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [邪恶的政治系统造就中国成了共产党的邪恶机器](/content/gnews/5/README.md)
+### [邪恶的政治系统造就中国成了共产党的邪恶机器](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [独裁者只要活着永远不放弃权力，绝不要相信任何政治家](/content/gnews/6/README.md)
+### [独裁者只要活着永远不放弃权力，绝不要相信任何政治家](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [美国即将制裁中共媒体平台](/content/gnews/7/README.md)
+### [美国即将制裁中共媒体平台](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [马斯克对普京说的话震惊全世界](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [3/20/2022 文贵直播：如果给你一个选择，当亿万富翁但要和共产党合作，还是继续灭共但会失掉一切或进监狱？](/content/gnews/9/README.md)
+### [3/20/2022 文贵直播：如果给你一个选择，当亿万富翁但要和共产党合作，还是继续灭共但会失掉一切或进监狱？](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [樱花FM|美国已通知盟国“中共打算向俄罗斯提供武器等支持”](/content/gnews/10/README.md)
+### [樱花FM|美国已通知盟国“中共打算向俄罗斯提供武器等支持”](/content/gnews/12/README.md)
  ` 樱花FM`
 
-### [樱花FM|樱花时政：美国官员表示，俄罗斯要求中共国提供军事援助](/content/gnews/11/README.md)
+### [樱花FM|樱花时政：美国官员表示，俄罗斯要求中共国提供军事援助](/content/gnews/13/README.md)
  ` 樱花FM`
 
-### [樱花FM|樱花时政：中共军机频繁侵台，叫嚣“任何人都不能阻止”占领台湾](/content/gnews/12/README.md)
+### [樱花FM|樱花时政：中共军机频繁侵台，叫嚣“任何人都不能阻止”占领台湾](/content/gnews/14/README.md)
  ` 樱花FM`
 
-### [樱花FM|郭文贵先生2022年3月14日盖特视频（9分28秒）全文字版](/content/gnews/13/README.md)
+### [樱花FM|郭文贵先生2022年3月14日盖特视频（9分28秒）全文字版](/content/gnews/15/README.md)
  ` 樱花FM`
 
-### [樱花FM|樱花时政：3月16日乌克兰总统将在美国国会发表在线演讲](/content/gnews/14/README.md)
+### [樱花FM|樱花时政：3月16日乌克兰总统将在美国国会发表在线演讲](/content/gnews/16/README.md)
  ` 樱花FM`
 
-### [致子女](/content/gnews/15/README.md)
+### [致子女](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共疫情全面爆发 地方政府财政告急](/content/gnews/16/README.md)
+### [中共疫情全面爆发 地方政府财政告急](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【转】截至3.20日 俄乌战事汇总（2）](/content/gnews/17/README.md)
+### [【转】截至3.20日 俄乌战事汇总（2）](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [香草山翻译部周刊|2022年3月20日第40期](/content/gnews/18/README.md)
+### [香草山翻译部周刊|2022年3月20日第40期](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [福奇警告中共病毒感染率可能上升](/content/gnews/19/README.md)
+### [福奇警告中共病毒感染率可能上升](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [对处理大流行负责的呼声渐高 福奇终于考虑退休](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月20日早](/content/gnews/21/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月20日早](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [朝鲜向黄海发射火箭 半岛紧张局势急剧升温](/content/gnews/22/README.md)
+### [朝鲜向黄海发射火箭 半岛紧张局势急剧升温](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [泽连斯基说若与俄谈判破裂第三次世界大战就会发生](/content/gnews/23/README.md)
+### [泽连斯基说若与俄谈判破裂第三次世界大战就会发生](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文贵爆料3.20：开仗前，美先灭中共媒体平台](/content/gnews/24/README.md)
+### [文贵爆料3.20：开仗前，美先灭中共媒体平台](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共病毒肆虐香港，棺材和殓房已用尽](/content/gnews/25/README.md)
+### [中共病毒肆虐香港，棺材和殓房已用尽](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [日本和柬埔寨敦促俄立即结束在乌的战争](/content/gnews/26/README.md)
+### [日本和柬埔寨敦促俄立即结束在乌的战争](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [独裁者只为个人和家族特权而活](/content/gnews/27/README.md)
+### [独裁者只为个人和家族特权而活](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [3/20/2022国内经济财经周报：7哥爆料后中概股紧急拉涨；阳光城50亿债违约，当日股价却涨停](/content/gnews/28/README.md)
+### [3/20/2022国内经济财经周报：7哥爆料后中概股紧急拉涨；阳光城50亿债违约，当日股价却涨停](/content/gnews/29/README.md)
  ` 秘密翻译组金融团队`
 
-### [2022/03/20 英喜时事速递](/content/gnews/29/README.md)
+### [2022/03/20 英喜时事速递](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大多数日本人支持政府对俄罗斯制裁](/content/gnews/30/README.md)
+### [大多数日本人支持政府对俄罗斯制裁](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [巴基斯坦和中共国如何在新娘贩卖调查中脱责](/content/gnews/31/README.md)
+### [巴基斯坦和中共国如何在新娘贩卖调查中脱责](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [战争集会上普京演讲的电视直播画面被切](/content/gnews/32/README.md)
+### [战争集会上普京演讲的电视直播画面被切](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [香港有上千名科兴疫苗接种者感染中共病毒死亡](/content/gnews/33/README.md)
+### [香港有上千名科兴疫苗接种者感染中共病毒死亡](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
 
-### [在纽时上宣传小肯尼迪新书时发生了什么（1/3）](/content/gnews/34/README.md)
+### [在纽时上宣传小肯尼迪新书时发生了什么（1/3）](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前贝莱德顾问告诉小肯尼迪：FDA 正在掩盖事实](/content/gnews/35/README.md)
+### [前贝莱德顾问告诉小肯尼迪：FDA 正在掩盖事实](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泰德从佛罗里达飞来，为乌克兰边境的孩子们做煎饼](/content/gnews/36/README.md)
+### [泰德从佛罗里达飞来，为乌克兰边境的孩子们做煎饼](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [福奇宣布辞职？何去何从](/content/gnews/37/README.md)
+### [福奇宣布辞职？何去何从](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯称其在乌克兰首次使用高超音速导弹](/content/gnews/38/README.md)
+### [俄罗斯称其在乌克兰首次使用高超音速导弹](/content/gnews/39/README.md)
  ` 温哥华扬帆农场`
 
-### [拜登警告习如向俄罗斯提供支持将会承担“后果”](/content/gnews/39/README.md)
+### [拜登警告习如向俄罗斯提供支持将会承担“后果”](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线:暗黑势力利用乌克兰战争开展&#8217;大重启&#8217;的第二幕](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [数字货币将蓬勃发展，警惕中央银行数字货币成为政府的专制工具](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`

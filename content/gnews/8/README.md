@@ -2,8 +2,8 @@
 ---
 
 
-## 马斯克对普京说的话震惊全世界
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200165/)
+## 邪恶的政治系统造就中国成了共产党的邪恶机器
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2200173/)
 
 #### 視頻剪輯: WinterGuo ；開智則立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蝸牛 ；牛魔王
 視頻定位：BENJ1；WEI

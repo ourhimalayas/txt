@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@ningnan 3/20/2022 11:39 PM (UTC)`
+
+ 7News《全球视点》<br/>梅迪卡新中国联邦得道多助凝聚正义力量<br/>In Medyka NFSC's rescue gets more help to unite the forces of justice<br/><br/>In the war of Russia and Ukraine between evil and justice, the CCP chooses evil side to support Russia's illegal war against Ukraine, caused Ukraine, even humanitarian disasters across Europe.<br/>Meanwhile, the people of NFSC arrived Ukraine bravely for international humanitarian rescue.The strength and actions of the NFSC rewards the welcome and praise of local people and international friends.<br/><br/>在俄乌这场正义与邪恶的战争中，中共站在了邪恶的一边，支持俄罗斯对乌克兰的非法战争，造成了乌克兰、甚至欧洲全境的人道主义灾难。<br/>然而，新中国联邦人勇敢地来到乌克兰前线进行人道国际救援。新中国联邦的实力与行动，赢得了当地人民和国际友人的欢迎与赞誉。
+![img](https://media.gettr.com/group14/getter/2022/03/20/23/f6571b68-3622-26cb-0c8d-94ef54d3fe62/out.jpg)
+
+---
+
 `@miles 3/20/2022 11:00 PM (UTC)`
 
 2022.03.20 NFSC News  Rescue Efforts by NFSC And ROLF Gain Attention from Chinese Around the Globe； NFSC’s Mission and Views Are Shared by People of the World
@@ -151,13 +160,6 @@ The Chinese Communist Party is the root cause of the world's disasters. Only by 
 
 【Ukraine Rescue】 03/19/2022 Nicole: the Ukraine humanitarian relief operation Rescue Mission sponsored by ROLF and NFSC receives more attention from Chinese; Medyka refugee camp has become an anti-communist alliance bringing together forces of justice from around the world.<br/><br/>【乌克兰救援】03/19/22 妮可战友：新中国联邦乌克兰人道救援行动受到更多华人的关注；梅迪卡难民营已经成为汇聚全世界正义力量的反共同盟。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group4/getter/2022/03/20/06/0413e6f1-a7c9-ae41-3298-887affffd798/out.jpg)
-
----
-
-`@miles 3/20/2022 3:16 AM (UTC)`
-
-U.S. veteran Al: “I hope you are successful in founding the NFSC in China and taking down the CCP. The CCP is not going to make the world any better. They are only gonna make it worse. Imaging a New China, a China that is not restrained by selfish politicians who are interested in their own names being on big signs. Imagining if the Chinese people were allowed to be productive and thoughtful, and thinking for themselves, that is going to be an incredibly powerful China. The powerful China is the one that is based on freedom.”<br/><br/>美国退伍军人Al：“我希望你们在中共国内成功创立新中国联邦并推翻中共。中共不会让这个世界变得更好, 只会让它变得更糟。想象一下新的中国， 一个不被这些自私的只在乎自己名利的政客束缚（统治下）的新中国。想象一下，如果允许中国人有创造力、有思想，并有自己独立的思考，那将是一个令人难以置信的强大中国，建立在自由之上的强大中国。”
-![img](https://media.gettr.com/group43/origin/2022/03/20/03/cb1313d6-63b5-c7f2-dd41-11a11ff477ab/out.jpg)
 
 ---
 
