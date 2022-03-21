@@ -2,30 +2,39 @@
 ---
 
 
-## 俄罗斯当局禁止访问youtube 或是对谷歌停止广告推销的报复
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2204771/)
+## 有声|美国志愿者鼓励新中国联邦和全体华人早日灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2204942/)
 
-翻译：宫米叶
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+梅迪卡前线3月19日，一位曾参加过伊拉克战争的美国退伍军人接受了新中国联邦的采访。他非常赞赏新中国联邦和法治基金的此次救援行动，他说救援就是如果自己有能力去做那就去做，无需任何理由。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-62.jpg)
+战友Nicole为这位军人解释了新中国联邦正在做着灭共的工作，这位美国军人表示，他非常清楚，共产党政府确实是一个只考虑自己的外在政治收益和形象而不顾老百姓死活的政府，中共国的老百姓生活如此艰难完全是共产党故意为之。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220319-00000004-asahi-000-5-view-edited.jpg)图片来源：朝日新闻
+美国军人非常赞赏新中国联邦灭共的做法，他鼓励所有华人不要被任何威胁和恐吓吓倒，并祝愿我们早日成功灭共。
 
-俄罗斯国营媒体俄罗斯通讯社18日报道，该国通信监管机构近期将切断对美国谷歌旗下视频发布服务“youtube”的访问。他说，最快18天内可能实施。
+军人最后说，从这次的救援行动来看，如果允许中国人有创造力，有独立的思考，建立一个自由的世界，中国将成为一个难以置信的强大新中国。
 
-俄罗斯通讯社称，一位与通讯监管当局关系紧密的人士说：“youtube在下周之前将被切断。”谷歌应欧盟(EU)的要求，在欧盟境内进行搜索也不会显示“RT”等两家俄罗斯国营媒体的内容。此外，谷歌已经停止了在俄罗斯的所有广告推销，切断对youtube的连接被认为是对这些限制的报复。
 
-俄罗斯正在加大对外国社交网站的压力。3月上旬，俄罗斯以美国Meta公司运营的Facebook(FB)限制对俄罗斯国营媒体等的访问为理由，不进反退切断了对FB的访问。11日，俄罗斯认定Meta为“激进组织”，称该公司认可呼吁对俄罗斯士兵实施暴力行为的发帖，14日起限制了与该公司运营的Instagram的连接。
 
-据俄罗斯通讯社报道，知情人士说：“youtube本应在本周被拦截，但由于meta的事件发生，为避免所有社交媒体被一齐切断链接而推迟了。”
+文字版原文：[美国志愿者鼓励新中国联邦和全体华人早日灭共](https://gnews.org/zh-hans/2201598/)
 
-**参考资料：**[news.yahoo.co.jp][ロシア当局、ユーチューブも遮断へ　グーグルの広告販売停止に報復か](https://news.yahoo.co.jp/articles/2289a067d20a3b44bab5623686d60ba8088626c4)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*审核：BryanW*
-*校对：天天*
-*发稿：信心的选择*
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH..jpeg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

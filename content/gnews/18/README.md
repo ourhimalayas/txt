@@ -2,19 +2,30 @@
 ---
 
 
-## 嘉宾问答（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2204451/)
+## 秘翻在线：此时会见阿尔及利亚小弟，中共要在中东搞事情了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2204613/)
 
-#### PPT制作: WinterGuo ；开智则立
-视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：40-11：47-005.jpg)
-*发布：*tianzhihuan
+**撰稿：葛大饼**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/333-1.jpg)图片来源：  Global News
+根据2022年3月20日中共外交部网站， 应王毅国务委员兼外长的邀请， 阿尔及利亚外交和海外侨民部长拉姆丹·拉马拉于2022年3月19日至21日对中共国进行了友好访问，双方达成了以下共识：
+
+1, 双方重申在涉及彼此核心利益和重大关切问题上坚定相互支持。阿方表示恪守一个中国政策，在人权、涉疆、涉港问题上支持中方立场。
+
+2，双方宣布就《中阿共建“一带一路”合作规划》案文达成共识，将尽快签署。
+
+3，确保巴勒斯坦人民建立以1967年边界为基础，以东耶路撒冷为首都的独立巴勒斯坦国的权利，实现中东安全稳定。
+
+4，消除威胁非洲和平、安全与稳定的危机，致力于以非洲方式解决非洲问题。
+
+5，坚持不干涉内政原则，继续推动国际关系民主化。
+
+在乌克兰问题上，双方尊重各国主权和领土完整； 以和平方式解决争端；反对滥施没有国际法依据的单边制裁。
+
+中共脑子里尽想着干坏事，别忘了阿尔及利亚也是重要的石油输出国，和中共国在石油天然气供应方面也有很大的协议。特别是现在欧洲对石油需求紧张的局面下，郭先生2022年3月13的直播就说了：中共一定会在中东，让伊朗，北朝鲜，伊拉克，也门，叙利亚发动区域战争，这是中共和普京的**“**围魏救赵**”**。共产党玩的这招儿**——**在中东点燃战火，是普京和习太阳很早以前的计划。大家很快就会看到，在叙利亚、在沙特、在伊拉克的美军基地被打击，会超出想象，中共甚至还会继续放毒。
+
+**[新闻来源](https://k.sina.cn/article_1703371307_6587622b020029osd.html?from=news&amp;subch=onews&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
  
 
