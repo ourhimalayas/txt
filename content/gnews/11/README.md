@@ -2,25 +2,26 @@
 ---
 
 
-## 有声｜美印太司令部：中共将南海至少三个人工岛完全军事化
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2203588/)
+## gettr pay 将于今夏7月上线
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2203745/)
 
-By:**秘翻新闻**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1641226975195.jpg)
+近日gettr高级发言人Kaelen Dorr在接受采访时说，2022年7月份，在gettr上线一周年之际，gettr会拥有创历史的巨大用户量，gettr的金融支付系统gettr pay预计会在那时候上线。
 
-**2022-03-21**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/321-12.jpg)图片来源 路透社
-据[《阿波罗新闻网》](https://www.aboluowang.com/2022/0321/1723459.html)3月21日报道，美国印太司令部司令约翰·阿奎利诺3月20日受访时表示，中共已将其在存在主权争议的南中国海建造的数个岛屿中的至少三个完全军事化。他指出，这一日益咄咄逼人的举动威胁着在附近活动的所有国家。
+目前的支付系统PayPal垄断了市场，它会随时停掉用户的交易，并且出售用户讯息来盈利，毫无隐私和安全可言。gettr pay永远不会售卖用户数据，安全隐私都有保障。目前gettr用户量为500万，接下来的几个月会有几个大的项目要做，确保为用户提供更好的体验。届时，gettr pay将为用户提供全面多样的金融支付服务。
 
-阿奎利诺表示，中共在美济礁、渚碧礁和永暑礁上建造的导弹库、飞机库、雷达系统和其他军事设施似乎已经完成，这些怀有敌意的行动与习近平过去保证的“在南沙群岛推进的修建工程不是以他国为目标、或给他国造成影响的活动，中共国没有追求军事化的意图”形成鲜明对比。
+撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+欢迎订阅我们的GNews账号：
 
-他说，这种武器化的积累对该地区来说是不稳定的。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-（秘翻新闻 巴拉克 编辑报道）
-
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

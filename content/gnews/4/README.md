@@ -2,12 +2,12 @@
 ---
 
 
-## 中共、伪类对七哥的栽赃陷害、污名化一定会遭报应（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203625/)
+## 杨洁篪外交失败，美国是俄乌战争最大赢家（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203803/)
 
-#### PPT制作: 0-0 ；rmrf
+#### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：05-11：10-001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：20-11：30-001-1.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

@@ -2,40 +2,48 @@
 ---
 
 
-## 樱花时政┃中共的驻美大使被问得语无伦次
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2203360/)
+## 2022/03/19 疫苗受害者很难向VAERS提交报告
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2203425/)
 
-撰稿：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-133.png)[视频及图片来源](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=15738317839526298228)
-3月20日，驻美大使秦刚接受美国哥伦比亚广播公司节目主持人玛格丽特·布伦南直播采访。采访中，布伦南提问：中方是否会向俄方提供资金和武器吗？对此，秦刚大使表示，有关中方向俄方提供军事援助的说法是虚假信息，我们对此反对。中方给乌克兰人民送去食品、药品、睡袋和婴儿奶粉，而不是向任何一方提供武器弹药。我们反对战争，将尽一切努力推动局势降温。2022年3月20日，中共驻美大使秦刚接受美国哥伦比亚广播公司（CBS）“面向全民”（FACE THE NATION）节目主持人玛格丽特·布伦南直播采访，主要就乌克兰问题等阐述中方立场。有人发现，秦刚在节目中被“区别对待”，9分钟被主持人打断23次。与之形成对比的是，在当天的节目中，美国国防部长奥斯汀、美国参议院共和党领袖麦康奈尔、乌克兰驻美大使被主持人打断的次数都是0。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032004.jpg)
 
-Compere (*Margaret Brennan)*: you send money and weapons to Russia so?
+[GETTR视频链接](https://gettr.com/post/p10y0lm67c6)
 
-Qingang (CCP’s ambassador): while there is a disinformation about China providing military assistance to Russia, we reject that.
+**视频字幕：**
 
-Compere (*Margaret Brennan)*interrupt his speech: you want do some …, will not?
+**Terry：**我对疫苗的不良反应发生一个月后，曾给我的医生打过电话。我问他们，有没有把我的不良反应报告给VAERS？答案是沒有。我很生气，我质问他们，“你为什么不报告？我不明白你们为什么不这样做”。他们说，“他们没有义务这样做”。我很生气，如果医生都不报告疫苗的不良反应，我们怎么去报告呢？所以，我就自己报告。並且，这是一个很艰难的报告程序，特别是当你需要进行修改和更新的时候。我需要这么做，因为自从我有疫苗不良反应以来， 我已经有了几个不同的诊断。
 
-Qingang (CCP’s ambassador): What China is doing is send foods, medicine, sleeping bags, and baby formulas, not weapons and ammunition to any parties. We we we…
+**Christine Dolan：**在填写他们的报告表时，（填写好后）你必须回到前一页进行保存，再继续填写下一个（诊断），然后再回到之前的那一页进行保存。我们已经采访了一些人，了解到自我报告或评级报告的难度。
 
-Compere (*Margaret Brennan)*interrupt his speech: Could you concerning that Russia mass of more than150,000 troops at China’s border? We just be clearly China….
+**Terry：**是的，我沒有完成。
 
-Qingang (CCP’s ambassador) interrupt her speech: while that’s why we keep a good friendly neighborly relationship with Russia
+**Christine Dolan：**似乎他们是故意（给人们设置障碍），叫人们难以完成。
 
-Compere (*Margaret Brennan)*interrupt his speech: would you recognize that it’s not a good friendly neighborly relation with 150,000 troops on the border of a neighboring of a country to descend that troops into that country. In those circumstance, why can’t you condemn them as an invasion?
+**Terry：**是的，非常困难。我的意思是，就连我的神经科医生都没有报告任何情况，她说这需要太长时间。而且，他们都害怕在网上泄露信息被别人知道，好像还有其他六个人（都有疫苗不良反应）。
 
-Qingang (CCP’s ambassador): Let’s don’t be naïve. Condemnation …….
+**Christine Dolan：**比害怕让别人知道更糟糕，医生们害怕。有些人找到我们，向我们反映，医生有时会报告，之后他们会收到CDC的电话。在一些医院里，医生会被告知，如果你想给VAERS报告，在报告之前，要先要到本院的行政办公室完成书面文字工作，然后再由医院决定是否向VAERS报告。所以，他们有一个（报告疫苗不良反应的）控制机制，报告有困难，我们知道。
 
-Compere (*Margaret Brennan)*interrupt his speech: it sounds naïve doesn’t say that invasion.
+**简评：**
 
-Qingang (CCP’s ambassador): that’s doesn’t solve the problem. I will be surprise if Russia will back down by condemnation. And we’ll continue to promote peace talk, urge immediate fire and you know condemnation only doesn’t help. We need wisdom, courage, and we need good diplomacy……
+接种疫苗后产生不良反应的受害者Terry不得不自己把不良反应的报告反映给VAERS，因为她的医生拒绝为她上报，推说需要太长时间，认为这是她自己的责任，并且害怕信息被别人看见。但是她填写报告很困难，似乎是系统人为设置了报告疫苗不良反应的控制机制，很难完成报表。
 
-秦刚的此次受邀谈话，被玛格丽特问的羞愧不知，难掩面红的局面。中共资助俄罗斯此次的入侵是世人皆知的，在美国接受他人电视直播采访，公然撒谎，丑相百出。秦刚多次打断玛格丽特的问话，这是害怕主持人问出不该问的问题，秦刚无法面对吗？中共媒体公然说是秦刚被玛格丽特打断，继续洗脑墙内民众，从这个视频中，懂英文的人一眼便可以看出谁在说事实，谁在撒谎。
+大药厂关于疫苗免责的条款制订得既详细又周到，但是报告不良反应的过程不仅漫长，经常处在无人过问、四处推诿的状态。药厂生产毒疫苗，医疗系统操作、媒体宣传、政府强制，各个机构和部门配合协调、步调一致地杀人，并且想方设法阻止受害者发声。刽子手心安理得，受害者求告无门。到了追责的日子，千刀万剐不足以平民愤。
 
-消息来源：[中共驻美大使秦刚面对哥伦比亚广播公司的直播采访](https://baike.baidu.com/item/%E7%8E%9B%E6%A0%BC%E4%B8%BD%E7%89%B9%C2%B7%E5%B8%83%E4%BC%A6%E5%8D%97/60332903?fr=aladdin)
+*字幕：free20200604|听写：nights|翻译：Blue|校对: Roberts|简评/文字整理/编辑：胖丁*
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
