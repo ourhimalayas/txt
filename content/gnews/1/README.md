@@ -2,24 +2,30 @@
 ---
 
 
-## 俄罗斯精英正计划暗杀普京 试图恢复与西方的经济往来
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2205059/)
+## SWIFT断开白俄罗斯银行的联系
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2205162/)
 
-**撰稿：日本东京方舟农场  海星**
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+3月20日起，SWIFT国际支付系统正式与三家白俄罗斯银行：Белагропромбанка、БанкРазвитияБеларуси和БанкДабрабыт，银行断开连接。SWIFT是世界上几乎所有国家的金融和非金融组织之间转移资金和其他贵重物品的唯一通用渠道。与SWIFT断开连接会导致银行遭受重大财务和声誉损失。
 
-3月20日，乌克兰国防部情报总局透露，俄罗斯精英正在计划暗杀普京，希望恢复俄罗斯和西方国家的经济往来。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-237.jpg)（图片来源：美联社）
-据《三立新闻网》报导，根据乌克兰国防情报总局的消息，现在俄罗斯有不少政界和商界人士正在计划暗杀普京，试图恢复与西方国家的经济往来。届时普京可能会因中毒、突发疾病或是其他的意外而下台。
+早在本月9日，欧盟委员会就对白俄罗斯实施新一揽子制裁计划达成一致。制裁内容除了将三家白俄罗斯银行排除在SWIFT之外，还禁止欧盟向白俄罗斯供应欧元现金，以及禁止该国公民在任何欧洲银行存款超过10万欧元。
 
-该报导指出，由于俄罗斯总统普京宣布入侵乌克兰的军事行动，引发了西方国家对其祭出多项严厉的经济制裁，不仅让卢布疯狂贬值，许多精英在多国的资产也遭到冻结。
+尽管，1994年以来，白俄罗斯拥有自己的内部支付系统BELKART，加之今年3月18日开始使用人民币作为结算货币。但实际上，由于脱离swift系统之后，跨国企业驻白俄罗斯的子公司，无法将利润汇入母公司。这使得例如服装公司H＆M，家装公司IKEA，酿酒企业Olvi，芯片制造企业英特尔、AMD，网络供应商思科，网络租赁公司Airbnb，邮政快递公司DHL、FedEX、UPS等等跨国企业，要么已经完全撤离白俄罗斯，要么停止了为白俄罗斯地区提供服务。
 
-此外，该报导称，普京的接班人将会是联邦安全局局长博尔特尼科夫（Alexander Bortnikov）。据悉，他率领的部门因误判乌克兰情势而失去了普京的信任。
+虽然，白俄罗斯官方宣称，这三家银行与SWIFT脱离后不会对白俄经济产生严重的影响。但是实际上，战争的阴霾和经济持续的恶化，白俄罗斯人已经开始用脚表达了自己的诉求。据德国之声报道，根据立陶宛边防部队的说法，过去几天，越过立陶宛边境的白俄罗斯公民比平均水平高出30%。[https://www.pravda.com.ua/news/2022/03/21/7333190/ https://www.dw.com/ru/ne-hochu-voevat-s-ukraincami-istorii-uezzhajushhih-iz-rb/a-61119088](https://www.pravda.com.ua/news/2022/03/21/7333190/%20https://www.dw.com/ru/ne-hochu-voevat-s-ukraincami-istorii-uezzhajushhih-iz-rb/a-61119088)
 
-参考链接：
-[https://www.setn.com/News.aspx?NewsID=1088121](https://www.setn.com/News.aspx?NewsID=1088121)
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2091ED98-2707-4532-9752-F1CDD8CE4F8F.jpeg)
+**更多资讯，更多关注**
 
-总编：老孙
-校对发布：爱放飞
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2204983/)
+## 中国东方航空波音737客机坠毁 网友怀疑似疫苗灾难
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2205109/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-国外媒体3月19日报导，乌克兰总统泽连斯基在对有数千人参加的伯尔尼反战抗议活动的讲话中，对瑞士的支持表示了感谢。同时表示，发动这场战争的人的财富就存在瑞士的银行里，他们摧毁了乌克兰人的家园，自己却在欧洲在瑞士享受着美好生活。他希望瑞士能够剥夺他们的特权，冻结他们的财产。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-67.jpg)
-同时，泽连斯基在另一个视频中，继续敦促莫斯科当局进行会谈，并表示这是普京政府把错误的损害降到最低的唯一机会。
+**撰稿：日本东京方舟农场 Kevin wang**
 
-泽连斯基说，乌克兰已经提出了维持和平的解决方法，现在是见面和会谈的时候，也是为乌克兰恢复领土完整与公平正义的时候，否则俄罗斯的损失将会是几个世代都无法恢复的。
+3月21日， 中国民航局称，东航一架波音737客机在执行昆明至广州航班任务时，于广西梧州“坠毁”。有网友根据飞机垂直坠毁方式，猜测疑似因机组人员注射新冠疫苗而引发的疫苗灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-252.png)（图片来自苹果新闻网）
+据法广报道，中国民用航空局21日下午4时34分发布新闻稿表示，东方航空一架波音737客机在执行昆明-广州航班任务时，在梧州上空失联。已确认这架班机坠毁，机上载有132人，其中旅客123人、机组员9人。失事飞机为波音737-800NG型客机，编号B1791，机龄只有6.8年。
 
+报道称，该班机原计划下午1时10分从昆明长水机场起飞，预计3时05分抵达广州白云机场，但飞机1时15分起飞后，于下午2点20分左右失联。
 
+另据苹果新闻网报道，据Flightradar24数据显示，班机高度呈现断崖式直坠，从9000公尺高度直速下降到900公尺。此外，根据坠毁当地的监控视频可以看到，失事飞机垂直下降坠毁并引发山火。
 
-文字版原文：[泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平](https://gnews.org/zh-hans/2201605/)
+有网友表示，飞机垂直坠毁不太正常，除非机组人员出现突发性疾病，比如：脑梗或者心脏病，根据日前辉瑞公司发布的1200多种的疫苗副作用来看，机组人员很可能是由疫苗引起的突发性疾病而导致飞机失事。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+据悉，FDA日前发布了关于辉瑞疫苗不良反应的报告，足足有9页之多。报告列出了一千多种副作用，包括心脏骤停、心力衰竭、急性心肌病、栓塞性脑梗塞等严重疾病。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：
+1.[https://reurl.cc/bkK42X](https://reurl.cc/bkK42X)
+2.[https://reurl.cc/9OmoGn](https://reurl.cc/9OmoGn)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：老孙
+校对发布：爱放飞
 
  
 

@@ -2,27 +2,38 @@
 ---
 
 
-## 日媒揭露俄总统辅佐官员煽动普京侵略野心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2204881/)
+## 有声|泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2204983/)
 
-作者：日本方舟农场 Andy5
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-日媒在3月14日推出了一档节目，名为“操纵历史观，让普京逐渐斯大林化的男人”。节目以俄罗斯总统辅佐官员梅丁斯基为重点对象，分析了普京在2012年之后，其世界观的改变，尤其是对美国态度的转变。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-37.jpg)
-嘉宾指出，梅丁斯基上任，恰逢在2011年，普京遭受到空前的反对游行之后。由于美国支持此游行，普京因此对美国产生了仇恨。梅丁斯基抓住了这个机会，在俄罗斯境大搞个人崇拜，多次发表论文为俄罗斯领土扩张做铺垫，成功地激起了普京想要完成“俄天下”的野心。
+国外媒体3月19日报导，乌克兰总统泽连斯基在对有数千人参加的伯尔尼反战抗议活动的讲话中，对瑞士的支持表示了感谢。同时表示，发动这场战争的人的财富就存在瑞士的银行里，他们摧毁了乌克兰人的家园，自己却在欧洲在瑞士享受着美好生活。他希望瑞士能够剥夺他们的特权，冻结他们的财产。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-67.jpg)
+同时，泽连斯基在另一个视频中，继续敦促莫斯科当局进行会谈，并表示这是普京政府把错误的损害降到最低的唯一机会。
 
-主持人特别指出，梅丁斯基在被普京重用前，曾出版了一本书，其内容称“事实并不重要，真正重要的在于如何解释”，正是这种理念造成了现在普京政权，扭曲事实，把侵略战争伪装成维护和平。 无论是郭文贵先生爆料的瓦利克，还是日媒报道的梅丁斯基，它们欺上瞒下、扭曲事实的行径，跟中共如出一辙。从希特勒、毛泽东到普京、习近平，独裁者身边永远不缺乏善于用谎言煽动野心的谄媚者。
+泽连斯基说，乌克兰已经提出了维持和平的解决方法，现在是见面和会谈的时候，也是为乌克兰恢复领土完整与公平正义的时候，否则俄罗斯的损失将会是几个世代都无法恢复的。
 
-参考链接：
-1. [20220314日本TBS解析普京身邊的梅丁斯基](https://www.gettr.com/post/p10x8qh07c8)
-2. [歴史観を操る男 プーチン氏”スターリン化”の陰に…【3月14日（月）#報道1930】](https://www.youtube.com/watch?v=6kDbom-C9pg&amp;t=2153s)
-3. [クレムリンの近くでウラジーミル大公の像除幕、批判や懸念も](https://www.afpbb.com/articles/-/3106907)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编/编辑/审核：文真
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文字版原文：[泽连斯基继续喊话 呼吁制裁俄罗斯 寻求和平](https://gnews.org/zh-hans/2201605/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

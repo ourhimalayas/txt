@@ -2,30 +2,61 @@
 ---
 
 
-## 视频|喜马拉雅币一周分析与总结（3月14日-3月20日）
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2204908/)
+## 有声|中共国的待死证明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205013/)
 
-制作：香草山视频部
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- 你得证明
+- 你妈是你妈
+- 你爸是你爸
+- 这个快要死的
+- 也要证明
+- 就是他
+- 啥 你说我扒瞎
+- 说我是奇葩
+- 你看看 中国遍地
+- 我这样的奇葩
+- 是不是
+- 遍地开花
+- 待死证赶快拿来吧
+- 要不然
+- 你出不了这个大门
+- 他也看不了病
+- 我的权利虽然不大
+- 拦堵你们
+- 只是我动动嘴皮
+- 摇摇手指
+- 随便瞎话
+- 赶快赶快
+- 待死证拿来
+- 死的是你爸
+- 又不是我的啥
+- 滚开滚开
+- 别妨碍我装叉
+- 随便奇葩
 
-过去一周，喜马拉雅币价格稳定在44美元左右，平均日交易量约5万枚喜币。喜币上市以来总交易量约3080万枚，占今年总发行量的仅约3.08%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
 
-过去一周，喜马拉雅币价格稳定在44美元左右，平均日交易量约5万枚喜币。喜币上市以来总交易量约3080万枚，占今年总发行量的仅约3.08%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/131.jpg)
 
-本周郭文贵先生在大直播中透露，喜币上市以来，已经让新中国联邦战友们获得了几百亿美元的收益，这让中共内部触动巨大。中共党内战友透露，喜币在数字货币行业的领先地位，高技术含量，高效的支付系统HPay以及未来的巨大的升值空间等，每一项都将对共产党造成致命打击。郭先生还表示，喜币未来不光会超过比特币，还会超过瑞士银行，会保证所有人财富的安全和隐私，但防止坏人的钱进入。喜币的价值未来将会在公链上由生产力和市场供需决定，并与各国法币无成本联通，真正体现出它对人类文明的贡献。
-本周喜联储主席William先生在接受Bloomberg专栏记者采访时说：“由于银行系统受到金融制裁或俄乌战争的影响，人们会涌向加密货币以保护他们的资产并维持流动性。其中俄罗斯人在加密货币市场中非常活跃。” William先生表示，加密货币在被用作非法活动或逃避制裁的手段时确实令人担忧，但如果加密货币运营者配合监管者进行足够细致的KYC，这个问题就可以很容易解决。William先生还说，“我已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续蓬勃发展。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/132-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/133-2.jpg)
-发稿：文敬
+文字版原文：[中共国的待死证明](https://gnews.org/zh-hans/2202917/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)0
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

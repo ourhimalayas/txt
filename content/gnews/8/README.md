@@ -2,22 +2,37 @@
 ---
 
 
-## 中共帮普京大帝辨说战争是因为北约扩张导致的
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2204959/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月19日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2205074/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22-18.jpg)
-据美联社报道一位中国外交官说，北约应该坚持他所声称的不向东扩张的承诺。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-在周六的一次演讲中，中共国外交部副部长乐玉成批评了西方在俄罗斯入侵乌克兰后对其实施的深远制裁，并表示乌克兰战争的根源 “在于冷战思维和权力政治”。
 
-这位中共国特使呼应克里姆林宫的一个谈话要点，说如果北约 “进一步扩大，它将接近’莫斯科郊区’，那里的导弹可以在七八分钟内击中克里姆林宫”。
 
-他说：”把一个大国，特别是一个核大国推到角落里，会带来难以想象的后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-15-1187x1536-1.png)
 
-中共这番话还能辩解说没有支持俄国，简直是在说瞎话。
 
-**新闻来源：**https://www.breitbart.com/europe/2022/03/19/pushing-a-major-country-to-the-corner-china-blames-nato-expansion-for-ukraine-war/
+
+
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月19日晚](https://gnews.org/zh-hans/2194755/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
