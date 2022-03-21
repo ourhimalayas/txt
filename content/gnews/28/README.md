@@ -2,74 +2,77 @@
 ---
 
 
-## 马斯克的星链系统帮助乌军无人机在战争中取得优势
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2205853/)
+## 视频|泽连斯基在美国国会的演讲精要
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2205887/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032009.png)
+乌克兰正处于二战以来全球最严重的战争中，乌克兰人民派出了最棒的儿女来抵抗俄罗斯的全面入侵。
 
-据英国《每日邮报》3月19日报道，随着乌克兰利用科技进行反击以追踪入侵的俄罗斯人，埃隆·马斯克（Elon Musk）的星链系统正在帮助乌克兰军队赢得无人机战争的优势。
+Ukraine is in the midst of the world’s worst war since World War II and the Ukrainian people have sent their best sons and daughters to resist an all-out Russian invasion.
 
-据《每日电讯报》报道，自2月24日战争爆发以来，乌军“无人机战士”(空中侦察)正在被用来攻击俄罗斯的无人机和瞄准普京的坦克部队，并追踪他们在冲突中的位置。当互联网和停电困扰乌克兰时，战场上的无人机能够通过刚刚开始启用的星链系统保持连接并提供情报。有了这项技术，无人机可以引导投放反坦克弹药，以帮助抵御俄罗斯的攻击。
+俄罗斯不仅侵略了我们的家园，还对我们的普世价值进行了残酷的进攻，乌克兰的命运正决定着人类的命运。
 
-迄今为止，卫星已经成功地被用于保卫这个深受战争蹂躏的国家，这兑现了直言不讳的大亨马斯克向乌克兰总统弗拉基米尔·泽连斯基作出的承诺——他本周早些时候为了乌克兰的未来曾向普京发起挑战。与此同时，SpaceX将发运更多星链基站，为该国一些受灾城市提供互联网服务。
+Russia has not only invaded our homeland, it has also launched a brutal attack on our universal values, and the fate of Ukraine is determining the fate of humanity.
 
-乌克兰无人机部队所使用的“三角洲”系统近年来在西方顾问的帮助下得到了完善。它可以通过普通的笔记本电脑访问，并安装了“态势感知”软件，该软件使用来自无人机、卫星、人共智能和传感器的图像创建交互式地图并生成物理图像以帮助跟踪敌人。
+乌克兰感谢美国提供的一切压倒性支持，并需要美国的进一步支持！
 
-该系统据称与北约的类似技术相当，据信已在2021年在黑海举行的海风军事演习中进行了测试，该演习涉及美国、乌克兰和其他30个国家。
+Ukraine is grateful for all the overwhelming support provided by the United States and needs further support from the United States!
 
-乌克兰人在西方国家的帮助下完善了该系统，这些国家提供了优于苏联时代的无线电通信技术。据说美国在该系统上花费了数百万美元，以防止俄罗斯黑客入侵。过去一周，美国已向乌克兰提供了大约10亿美元的新援助。
+珍珠港事件和911事件这样的空袭已在乌克兰持续三周了，这是80年来欧洲从未见过的恐怖。
 
-最近，在向美国参议院发表的在线视频演讲中，泽连斯基总统敦促美国人在审视乌克兰最近发生的事件时应该铭记珍珠港和9/11袭击事件，并用英语点名拜登总统，坚决要求介入。
+Air strikes like Pearl Harbor and 911 incident have been going on in Ukraine for three weeks now, a horror that Europe has not seen in 80 years.
 
-拜登总统周三称泽连斯基的讲话“令人信服且意义重大”。因此，他在周二签署的一项支出法案中宣布，在已经为该国提供136亿美元一揽子援助的基础上，再提供8亿美元的军事援助，其中包括了乌克兰军队对抗俄罗斯入侵最急需的武器，例如反装甲和防空系统。
+我们要求在乌克兰建立人道主义禁飞区，如这个要求太高，那就请给我们S-300这样的导弹防御系统。
 
-拜登在白宫发表讲话说，新一揽子计划将包括9000套反装甲系统、7000件小型武器、800套毒刺防空系统、2000万发弹药和100架无人机，“这样（乌克兰人）就可以继续保卫他们的空间。
+We demand a humanitarian no-fly zone in Ukraine, and if that is too much to ask, then please give us a missile defence system like the S-300.
 
-到目前为止，乌克兰已经收到了来自马斯克公司和欧洲盟友的数千个接收天线，该国数字化转型部长米哈伊洛·费多罗夫(Mykhailo Fedorov)在周五接受《华盛顿邮报》采访时表示，该技术已经证明“非常有效”。
+“我有一个需要！”正如你们曾经的“我有一个梦想”那么真挚而热切，我们需要强大的战机来保护乌克兰的人民和土地！
 
-这位官员透露，随着克里姆林宫对乌克兰各地城市发动大规模袭击，这些卫星在帮助国民和领导人沟通方面发挥了重要作用，他说：“我们正在数千个地区使用成千上万个终端，每隔一天就会有新的设备送达。”
+“I have a need!” As true and fervent as you once said “I have a dream”, we need powerful warplanes to protect the people and land of Ukraine!
 
-在入侵后不久，同时兼任该国副总理的费多罗夫向马斯克发送了一条推文，要求获得星链基站的使用权。几天之内，卡车就抵达乌克兰，运送了包括星链终端，以及通过汽车中的点烟器或电池组供电的适配器，以确保人们在旅行时保持连接的漫游功能。
+现在是乌克兰乃至整个欧洲最黑暗的时刻，呼吁美国出台更多的制裁措施，
 
-星链在地球表面上方340英里处部署了数千颗小型卫星。地球上的基站将无线电波发送到卫星，这些卫星将这些无线电波传送到地面上的卫星天线终端。该系统的目的是为世界上农村和网络连接不良的地区提供互联网接入。它允许互联网连接快速传播，由于穿越太空而提供了更快的速度。
+This is the darkest time for Ukraine and indeed all of Europe, we call on the US to introduce more sanctions,
 
-到目前为止，SpaceX已将2,000多颗卫星送入太空，计划总共发射约12,000颗。该系统的实用性现已扩展到军事行动中，乌克兰的“无人机战士”无人机部队能够从星链的终端设备发送信号，并通过包括波兰在内的邻国境内地面基站来继续与其基地的通信。
+和平比利益更重要，建议美国制裁俄罗斯的所有政客，美国公司立即离开俄罗斯市场，美国港口对俄罗斯关闭，
 
-但迄今为止，俄罗斯人对美国(尤其是星链)对乌克兰的支持做出了愤怒的反应。俄罗斯航天局总干事德米特里·罗戈津(Dmitry Rogozin)说：“当俄罗斯在乌克兰领土上实施其最高国家利益时，埃隆·马斯克带着他的星链出现了，而之前他的星链被宣布为纯民用产品。
+peace is more important than profit, we propose that the US sanctions all Russian politicians, that US companies leave the Russian market immediately, and US ports be closed to Russia,
 
-专家说，使用星链作为公民和政府在被入侵期间保持联系的一种方法，是对这项相对较新的技术的一次重大考验，并且可能对未来的冲突产生持久的影响。
+由负责任的国家组成U24 和平联盟来立即停止这场战争，以迅速拯救生命和这个世界！
 
-**简评：**
-在这次俄乌战争中，乌克兰军队依靠先进的科技和战术对军事实力位居世界第二的俄罗斯进行了有效的抵抗并给俄军造成了重大的损失。郭文贵先生在3月20日的大直播中介绍了刚刚被击毙的俄军中将莫德维切夫竟然是俄罗斯将来国防部长的人选，这位最受普京信任将领的战死无疑是俄军失败的一个重要标志。
+and that the responsible nations form the U24 peace coalition to stop this war immediately in order to save lives and this world quickly!
 
-本文详细介绍了马斯克的星链系统是如何在通信、侦察、指挥、目标瞄准和摧毁等各个层面帮助乌克兰军队取得优势，可以说其作用超过了西方各国政府。而马斯克不久前在推特上向普京发出的挑战，则更向世界揭示了星链可以保护全人类免受核武器的威胁。
+今天，乌克兰人民不仅是在保家卫国，也是在为世界的普世价值而战，为人类的未来而战。
 
-星链在本次战争中起到的决定性作用，一方面反映出了郭先生在大直播中所做出的总结：既现代的战争只有科技是决定因素，和其他因素都无关。而更深的意义也在于证实了人类的文明进步不可阻挡。
+Today, the Ukrainian people are not only defending their country, they are also fighting for the universal values of the world and for the future of humanity.
 
-人类的文明伴随着科技的创造而前进，独裁者的穷兵黩武是对人类安全和文明的巨大威胁。以美国为代表的自由民主的体制在当前仍然是最可以让人类发挥潜能，创造科技的社会。美国在科技方面的领先和SpaceX、苹果、谷歌等众多改变人类文明的企业和个人在美国的层出不穷就交相呼应地证明了这一点。
+你国的和平不再取决于你自己，而取决于你旁边的国家。
 
-在中共和普京独裁政权联合起来妄图依赖绑架本国人民和利用核武器，以及通过病毒、经济和武力控制全球的关键时刻，马斯克的星链系统发挥了作用，其在俄乌战争中的优良表现向世界证明了现代战争的规则已经被科技改变：精确制导的智能武器可以避免大量平民伤亡，比如对侵略者的重要将领以及发动战争的独裁者进行直接的斩首行动；而已经初步形成规模的卫星系统则可以对核武器进行几乎100%的拦截，这从根本上打破了邪恶政权对全人类的核威胁。
+The peace of your country no longer depends on yourself, but on the country next to you.
 
-由此我们可以预见，以中共和普京为代表的、阻碍人类文明前进的邪恶独裁体制必将灭亡，而人类将很快迎来郭先生所预期的“无皇有主”的全球性民主化社会。
+拜登总统是伟大美国的领导人，希望你能成为世界的领导人，成为维护世界和平的领导人，美国需要在历史上留下公正！
 
-新闻链接：[Elon Musk’s satellites help Zelensky dominate the skies: US billionaire’s internet system is allowing Ukrainian drones to pound Putin’s helpless tanks](https://www.dailymail.co.uk/news/article-10630625/Elon-Musks-internet-allowing-Ukrainian-drones-pound-Putins-helpless-tanks.html)
+President Biden is the leader of a great America and hopefully you will be the leader of the world and the leader who keeps the peace in the world, America needs to leave justice in history!
 
-*翻译/简评：新街口*
+作为伟大乌克兰人的领导人，如不能阻止乌克兰人死于这场战争，我的生命将毫无意义！
 
-*校对：Harvey（叶知秋）*
+As the leader of the great Ukrainians, my life would be meaningless if I could not prevent Ukrainians from dying in this war!
 
-* * *
+荣耀归于乌克兰！
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Glory be to Ukraine!
 
+【盖文】：我们跟乌克兰人站在一起！美国历史上迄今只邀请过三个外国人到其国会发表演讲，一个是丘吉尔，一个是宋美龄，第三个就是现在的乌克兰总统泽连斯基！2022年3月16日泽连斯基在美国国会的演讲，将俄罗斯入侵乌克兰比作美国人永远挥之不去的伤痛“珍珠港”和“911”事件，强调自己的使命就是阻止乌克兰人民死于这场战争！
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+【GETTR】：We stand with the Ukrainians! Only three foreigners have been invited to address the United States Congress so far in its history: Churchill, Song Mei-ling and now Ukrainian President Zelensky! “Zelensky’s speech to the US Congress on March 16, 2022, compared the Russian invasion of Ukraine to the American wounds of Pearl Harbor and 911, and stressed that his mission was to prevent the Ukrainian people from dying in this war!
 
 
+
+【撰稿】：香草山信息部 6zero4
+
+【翻译】香草山翻译部–文岄679
+【翻译】香草山视频部–Jesse(文博)
+
+发布：奇门遁甲
 
  
 

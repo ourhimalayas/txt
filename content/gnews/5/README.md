@@ -2,34 +2,32 @@
 ---
 
 
-## 西方国家在乎的只有钱和经济
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2206244/)
+## 多方质疑加拿大自由党污蔑自由卡车车队行动
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2206322/)
 
-文编：Hima
-听写：叮叮
-视频：七哥
+##### 作者：加拿大温哥华扬帆农场 – 青青（采编）、文莱（撰稿）
 
-2022-03-15直播摘录
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-7.png)
 
-你别笑！你别笑！是吧？盲流子是吧？你还见这人还存在吗？是吧？还有吗？但是我们对付他们的招都是轻描、清淡地就划掉他。你看那些记者写我们、骂我们，还有华尔街那孙子那叫什么玩意？写《习家资产》那个，一个叫什么？傅什么玩意？知道吗墨镜？那叫傅啥？还把跟什么赵？——“纸巾赵”还老要见我，有上百次要见我，就是不见他，是吧？还有什么到我家门口抗议的事情，最后就被抓的抓，你还见梁冠军吗现在？你还见的什么，周什么什么吗？你见什么博讯的韦石——“韦屎”，是吧？你看这帮孙子垃圾到什么程度？就是现在美国人对付他们这帮人就像我对付“欺民贼”一样——轻描淡写！真的是上厕所撒泡尿的时间这事就没了！
+据加拿大自媒体【真北方】3月19日报道，加拿大自由党在二月份利用《紧急状态法》镇压和平自由车队抗议者的所有理由与说法，至今为止都受到执法官员和筹款主管的质疑。
 
-挑战在哪里？俄乌？我告诉大家，没多少人真正在乎乌克兰多少人死？也没多少人在乎这个国家有没有被打烂？在乎的是钱，西方国家在乎自己的是：钱和经济。一旦资本市场的金融市场完了，所有政客都滚球蛋了；第二在乎是自己手中的权利。中国共产党、习近平——中国人死多少人，你觉得他在乎吗？如果你要认为习近平在乎中国死多少人，你连猪狗都不如。你看看怎么现在中国搞什么“清零”政策的是吧？你就知道习近平怎么看待老百姓的。
+报道称，特鲁多的几位内阁部长在二月份声称，外国极端分子正在资助车队并意图破坏加拿大的民主。包括《多伦多星报》和加拿大广播公司（CBC）在内的媒体也发表了暗指车队是外国资助的文章。但加拿大广播公司迫于公众压力，已在日前撤回一篇污蔑车队资金援助来源的报道。
 
-校对：HimaFaFA
-发布：HimaBoy
-![This image has an empty alt attribute; its file name is FINAL-VERSION-color-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+据悉，在3月17日的下议院财政委员会上，GoFundMe总裁驳回了国外势力资助加拿大自由卡车车队的说法，并且他强调没有发现任何大型捐助者会引发影响加拿大民主的危险信号。此外，联邦警察部队的官员表示，在多方调查的结果来看，没有任何恐怖分子参与车队资金的证据。
 
-**关注我们**
+[新闻链接](https://tnc.news/2022/03/19/five-times-liberal-claims-about-the-freedom-convoy-were-officially-disputed/)
 
-Discord 账号
+编辑/上传 – 熙攘
 
-![This image has an empty alt attribute; its file name is Discord-QR-CODE.png](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+* * *
 
-Gettr 账号
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-![This image has an empty alt attribute; its file name is qrcode_2666792_-1.png](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
