@@ -2,12 +2,12 @@
 ---
 
 
-## 中共经济一塌糊涂能跑就跑（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206974/)
+## 中共经济一塌糊涂能跑就跑（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206981/)
 
 #### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-30-10-40-四-1-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-30-10-40-五-1-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

@@ -2,10 +2,19 @@
 ---
 
 
-## 3/20/2022 文贵直播: 中共几大家族纷纷变卖资产，限制所有人将钱转到国外和消费，预示中共灭亡的到来；傅政华、孙力军的巨额贪污连习近平都瞠目
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2206979/)
+## 中共经济一塌糊涂能跑就跑（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2206994/)
 
-秘密翻译组-北美组
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-30-10-40-六-1-scaled.jpeg)
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
