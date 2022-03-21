@@ -2,19 +2,25 @@
 ---
 
 
-## 中国人欺骗中国人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2201069/)
+## 俄境内1万5000名反战人士被政府逮捕
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2201129/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+俄乌交战近1个月，俄罗斯除了被英美、欧盟祭出经济制裁外，俄国境内民众也走上街反战，但却遭普京下令抓捕，且普京日前还签署一项法条「任何散步假消息的人」政府有权无条件将他们逮捕。
 
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ab4de2e3-51e0-46ce-b1e1-a03d2f6dc27e.jpg)图片来源：达志影像
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+根据乌克兰独立媒体《The Kyiv Independent》指出，自2月24日结算到今天，已有1万5000名因上街反战的民众遭逮捕。
+
+简评：对外侵略，对内打压，普京这是一条路走到黑的节奏。越不停战越国际制裁，国内民生越困难，从而加速俄罗斯境内的反战情绪越来越大。上帝预其灭亡，必先使其疯狂！俄罗斯的内部压力正在酝酿中，普京临被内部人做掉还会远吗？
+
+新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022321W0076)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

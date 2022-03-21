@@ -2,30 +2,39 @@
 ---
 
 
-## 乌克兰情报称俄精英已制定取代普京计划
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2200911/)
+## 有声|俄罗斯导弹袭击了乌克兰西部城市利沃夫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2201024/)
 
-作者：波士顿五月花背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-21-at-10.20.00-AM.png)图片来源：互联网
-据每日镜报（Mirror）周一（3月20日）引述乌克兰国防部情报总局报道称，“俄罗斯精英”中的成员已经制定了一项旨在推翻俄普京总统的计划，并恢复与西方经济联系。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体报道，3月18日，俄罗斯的导弹袭击了利沃夫附近的一个机场。利沃夫是乌克兰最西部的城市，距离波兰边境不到50英里，数十万难民在这里寻求庇护，数百名记者也在这里工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2199.png)
+到目前为止，利沃夫是一直是受俄罗斯攻击影响最小的城市，很多救援工作都在此地展开，包括新中国联邦的一个救援小组。这里成为输送难民前往波兰的一个重要枢纽。
 
-乌克兰国防部情报总局称，“俄罗斯精英”中的“一群有影响力的”成员已经制定了一项旨在推翻总统的计划。
+利沃夫市长最近表示，由于难民数量过多，该市各种资源极度短缺，正在呼吁各方提供实质性支持。另外利沃夫的国际媒体中心在俄罗斯入侵前的几天刚刚成立，目前已经接待了来自50多个不同国家的800多名记者。无国界记者组织也在此地创立了一个所谓的新闻自由中心，提供互联网接入和媒体资源以及某些防护装备。
 
-该组织的目标是尽快将普京下台，并恢复与西方的经济联系。
+据利沃夫市长说，在此次袭击中，至少有一人受伤，总体伤亡人数不多。
 
-根据情报简报，强大的内部人士对战争和随后的制裁对俄罗斯经济的影响感到沮丧。
 
-乌克兰情报部门声称，普京的继任者已经被选定为 FSB 局长 Oleksandr Bortnikov。FSB 局长 Oleksandr Bortnikov 是接替普京的人选，FSB是可怕的克格勃的继任者。
 
-自2月24日俄罗斯发动入侵乌克兰战争以来，饱受西方制裁，全球骂声一片，美欧对俄石油收入制裁，将俄踢出Swift系统，冻结俄寡头在西方世界财富和资产，俄罗斯精英对普京不满情绪与日俱增；不仅如此，俄罗斯国内经济崩溃，老百姓苦不堪言，民不聊生，反战情绪日益高涨。如果普京的下台能尽快结束这场可怕的侵略战争，那无疑是乌克兰和全世界之幸！
+文字版原文：[俄罗斯导弹袭击了乌克兰西部城市利沃夫](https://gnews.org/zh-hans/2196832/)
 
-参考链接：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-【1】[“俄罗斯精英”计划毒害普京并选择继任者，声称惊吓](https://www.mirror.co.uk/news/world-news/russias-elite-plan-kill-putin-26513008)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*编辑&发布：Vicky*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

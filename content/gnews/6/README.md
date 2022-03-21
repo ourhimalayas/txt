@@ -2,19 +2,25 @@
 ---
 
 
-## 美国将清理共产党的海外伪类
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2201040/)
+## 俄罗斯投入大部分军力入侵乌克兰
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2201080/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+采编撰稿：加拿大温哥华扬帆农场 – 文明(添草灭共)
 
-*发布：陶子*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2303.png)图片来源：Newsmax
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+
+据美国［极限新闻］3月17日报道，截至目前，普京政权在其发动的侵略乌克兰战争中，已投入了俄罗斯的大部分军事力量
+
+据前美军驻欧洲司令霍奇斯中将近日的分析报告指出：尽管目前俄罗斯已投入了75%的“营级战斗小组”参战，但在乌军激烈抵抗下，俄军的攻势已处于停滞状态。在向乌克兰的平民和军事目标狂轰滥炸同时，俄军也面临作战人员、装甲车及飞机的大量损失。
+
+报告还透露，俄罗斯将在4月份再征召13万兵力投入战场。与乌克兰侨民纷纷奔赴回国参加抵抗相比，许多厌战的俄罗斯年轻人正在背井离乡以避免被普京绑上自焚的战车。
+
+校对编辑：硫酸羟氯喹64
+
+发文：青青
+
+原文链接： [https://www.newsmax.com/newsfront/pentagon-putin-military-forces/2022/03/17/id/1061654/](https://www.newsmax.com/newsfront/pentagon-putin-military-forces/2022/03/17/id/1061654/)
 
  
 

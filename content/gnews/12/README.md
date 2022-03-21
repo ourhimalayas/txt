@@ -2,25 +2,19 @@
 ---
 
 
-## 面对各界追责福奇暗示即将卸任
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2200912/)
+## 马斯克一句话改变规则
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2201027/)
 
-采编/编译撰稿：加拿大温哥华扬帆农场 – 薇文
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2299.png)图源：[https://www.rebelnews.com/fauci\_hints\_at\_retirement\_as\_sen\_rand\_paul\_turns\_the\_screws\_on\_his\_job](https://www.rebelnews.com/fauci_hints_at_retirement_as_sen_rand_paul_turns_the_screws_on_his_job)
+*发布：陶子*
 
-
-据加拿大[逆反新闻]3月19日报道，在参议员保罗日前要求依法解雇[美国传染病研究所]负责人、白宫首席医学顾问福奇之后，这位“医疗界首席独裁者”于当天表示或将提前退休。
-
-报道称，尽管该首席医生当初曾誓言要在疫情中坚持施政到底，直至自己瘫痪为止，但在面临各界日益激烈的抨击，以及疫苗灾难所引发对其追责的舆论浪潮之下，福奇目前不得不提前考虑主动引咎辞职。
-
-校对编辑：硫酸羟氯喹64
-
-发文：青青
-
-新闻链接：
-
-[Fauci hints at retirement as Sen. Rand Paul turns the screws on his job](https://www.rebelnews.com/fauci_hints_at_retirement_as_sen_rand_paul_turns_the_screws_on_his_job)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

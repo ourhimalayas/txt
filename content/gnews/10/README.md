@@ -2,31 +2,20 @@
 ---
 
 
-## 有声|欧盟掌握中共支持俄罗斯的确凿证据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2200982/)
+## 美国司法部起诉海外欺民贼
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2201050/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-外媒3月18日报道，一名欧盟高级官员表示，欧盟领导人掌握了中共向俄罗斯提供军事援助的确凿证据。这名官员警告中共，如果继续交付并支持俄罗斯的军事武器，欧盟将会对中共国采取贸易制裁措施。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-据媒体本周早些时候报道，美国政府官员也对中共向俄罗斯提供军事装备的行为，发出了类似警告。
+*发布：陶子*
 
-这位欧盟官员还表示，欧盟高度关注中俄交易对乌克兰战争的影响。欧盟所有领导人都非常清楚，中共支持俄罗斯的事实，但中共却一再否认。这位欧盟官员认为，只有采取贸易壁垒式的惩罚措施，才能制止中共。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
-文字版原文：[欧盟掌握中共支持俄罗斯的确凿证据](https://gnews.org/zh-hans/2198987/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
