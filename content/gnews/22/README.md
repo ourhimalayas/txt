@@ -2,30 +2,33 @@
 ---
 
 
-## 乌克兰情报称俄精英已制定取代普京计划
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2200911/)
+## 德国呼吁欧盟和美国重启自由贸易协定谈判
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2201246/)
 
-作者：波士顿五月花背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-21-at-10.20.00-AM.png)图片来源：互联网
-据每日镜报（Mirror）周一（3月20日）引述乌克兰国防部情报总局报道称，“俄罗斯精英”中的成员已经制定了一项旨在推翻俄普京总统的计划，并恢复与西方经济联系。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-乌克兰国防部情报总局称，“俄罗斯精英”中的“一群有影响力的”成员已经制定了一项旨在推翻总统的计划。
+整理/编辑：围剿维尼熊
 
-该组织的目标是尽快将普京下台，并恢复与西方的经济联系。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/financial_consultant_3.png)图片来源：雅典娜设计组
 
-根据情报简报，强大的内部人士对战争和随后的制裁对俄罗斯经济的影响感到沮丧。
 
-乌克兰情报部门声称，普京的继任者已经被选定为 FSB 局长 Oleksandr Bortnikov。FSB 局长 Oleksandr Bortnikov 是接替普京的人选，FSB是可怕的克格勃的继任者。
+根据路透社3月20日讯，德国商报报导，德国财政部长林德纳(Christian Lindner)呼吁欧盟和美国进行新的自由贸易协定谈判。
 
-自2月24日俄罗斯发动入侵乌克兰战争以来，饱受西方制裁，全球骂声一片，美欧对俄石油收入制裁，将俄踢出Swift系统，冻结俄寡头在西方世界财富和资产，俄罗斯精英对普京不满情绪与日俱增；不仅如此，俄罗斯国内经济崩溃，老百姓苦不堪言，民不聊生，反战情绪日益高涨。如果普京的下台能尽快结束这场可怕的侵略战争，那无疑是乌克兰和全世界之幸！
+特朗普当年叫停了关于跨大西洋贸易与投资伙伴协定(TTIP)的谈判，并发起了一些对欧盟的贸易争端。
 
-参考链接：
+林德纳表示应该恢复关于跨大西洋自由贸易协定的谈判，他强调与世界各地有着共同价值观的伙伴进行自由贸易是多么重要。
 
-【1】[“俄罗斯精英”计划毒害普京并选择继任者，声称惊吓](https://www.mirror.co.uk/news/world-news/russias-elite-plan-kill-putin-26513008)
+美国驻柏林大使馆在一份声明中没有直接回应林德纳的提议，但表示现有的美欧贸易和技术委员会(TTC)能确保贸易和技术政策支持广泛的增长。
 
-* * *
+参考链接：[德国呼吁美欧重启贸易谈判 提及危机下的“共同价值观”](https://cn.reuters.com/article/eu-usa-trade-talks-0320-sun-idCNKCS2LI03Q)
 
-*编辑&发布：Vicky*
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
