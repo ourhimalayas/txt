@@ -2,13 +2,31 @@
 ---
 
 
-## 乌克兰国际人道主义救援
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2203275/)
+## 秘翻新闻｜美中开干之前 中共媒体将被制裁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2203500/)
 
-出品：华盛顿DC农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9.1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/9.2-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/9.3.jpg)
-*发布: Theodosia*
+**By:[秘翻新闻](https://gettr.com/post/p112sy7b762)**
 
+**[2022-03-21](https://gettr.com/post/p112sy7b762)**
+
+**新闻内容:**
+
+**1. 中共国超12亿人全程接种 全国疫情仍遍地开花**
+
+**2. 投资者首季抛售60亿美元中共国股票 创下纪录**
+
+**3. 两名俄官员证实：黑海舰队副司令战死**
+
+**4. 乌克兰表示周日有7295人从城市中撤离**
+
+**5. 美印太司令部：中共将南海至少三个人工岛完全军事化**
+
+**🔗Gettr链接：**[https://gettr.com/post/p112sy7b762](https://gettr.com/post/p112sy7b762)
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

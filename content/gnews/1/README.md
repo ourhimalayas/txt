@@ -2,26 +2,19 @@
 ---
 
 
-## 中共国航空业受疫情重创 今年前两月亏损超200亿
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2203442/)
+## 华人应该抛弃假丑恶，明辨是非善恶做个真正的人（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203590/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+#### PPT制作: Qingjing ；玉米地的
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：00-11：05-002.jpg)
+*发布：*tianzhihuan
 
-据《大纪元》3月21日报道，受疫情再次蔓延的影响，中共过航空业前两个月出现了222亿元人民币巨额亏损。从开始爆发疫情至今，航空业已经亏损了超过2100亿元人民币。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-235.jpg)图为一架中国国航班机（图片来自Thomas Lohnes/Getty Images）
-《大纪元》援引《第一财经》20日报导，民航局发展计划司副司长张清近日在一场在线研讨会上表示，受疫情影响，中共国航空业今年1月～2月仍在亏损，亏损已达222亿人民币。
-
-张清指出，疫情对民航业影响的深度和持续性远超预期，2020年疫情爆发第一年，民航全行业亏损974亿元； 2021年，全行业继续亏损842亿元；2022年1月～2月，全行业亏损已达222亿元；自疫情爆发以来，民航全行业累计亏损达2111亿元。
-
-张清说，2021年全年全行业完成的旅客运输量较2019年大幅下降33%， 2022年前两个月的旅客运输量较2019年的下滑幅度进一步扩大，达到43%。
-
-此外，民航业内人士表示，奥密克戎病毒已经对民航业带来了巨大的冲击，现在行业的恢复率只剩下33%，只有2019年的1/3的客流量，疫情对于民航业的冲击还将持续一段时间，按照现有毒株的传播速度很难有根本性的稳步复苏。
-
-参考链接：
-[https://www.epochtimes.com/b5/22/3/21/n13660904.htm](https://www.epochtimes.com/b5/22/3/21/n13660904.htm)
-
-总编：老孙
-校对发布：爱放飞
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

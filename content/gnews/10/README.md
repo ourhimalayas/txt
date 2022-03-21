@@ -2,28 +2,19 @@
 ---
 
 
-## 美印太司令部司令：中共将南海的至少三个人工岛完全军事化
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2203335/)
+## 歌曲感想（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203530/)
 
-#### 翻译/撰稿：zzballack
+#### PPT制作: Qingjing ；玉米地的
+视频定位：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-002.jpg)
+*发布：*tianzhihuan
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-104.jpg)图片来源：BBC
-据《福克斯新闻网》（Fox News）3月21日报道，美国印太司令部司令约翰·阿奎利诺（John Aquilino）3月20日在接受《美联社》（Associated Press）采访时表示，中共已将其在有争议的南中国海建造的数个岛屿中的至少三个完全军事化，用反舰和防空导弹系统、激光和干扰设备以及战斗机武装这些人工岛。他指出，这一日益咄咄逼人的举动威胁着在附近活动的所有国家。
-
-阿奎利诺在采访中表示，这些怀有敌意的行动与习近平过去保证的“不会将争议水域的人工岛变成军事基地”形成鲜明对比。他说，这些努力是中共展示其军事力量的一部分。“我认为在过去20年里，我们目睹了中共进行了自二战以来最大规模的扩军。他们已经发展了他们的所有军事力量，这种武器化的积累正在破坏该地区的稳定。”
-
-阿奎利诺是在一架P-8A波塞冬海上侦察机上接受的采访。该侦察机在中共控制的南中国海南沙群岛的前哨附近飞行，南中国海是世界上主权争议最激烈的地区之一。
-
-阿奎利诺透露：“中共在美济礁、渚碧礁和永暑礁上建造的导弹库、飞机库、雷达系统和其他军事设施似乎已经完成，但北京方面是否会在其他地区继续建造军事基础设施还有待观察。这些岛屿的功能是将中共的进攻能力扩大到其大陆海岸之外。他们可以驾驶战斗机、轰炸机，再加上所有这些导弹系统的进攻能力，任何飞越争议水道的军用和民用飞机都可以轻易进入受中共控制岛屿的导弹系统的射程之内。所以这就是存在的威胁，这就是人们为什么对这些岛屿的军事化如此关注。它们威胁到在附近活动的所有国家以及所有国际海域和空域。”
-
-近十年来，中共通过在珊瑚环礁上建立岛屿基地，试图巩固其对几乎整个南海的庞大领土主张。每年有大约5万亿美元的货物通过南中国海海域运输。中共经常反对美军在该地区的任何行动。
-
-阿奎利诺在采访中强调，华盛顿在有争议地区的主要目标是通过威慑”防止战争“，并促进和平与稳定，包括让美国盟友和伙伴参与具有这一目标的项目。“如果威慑失败，我的第二个任务是做好战斗和胜利的准备。”
-
-阿奎利诺领导着美国最大的作战司令部—印太司令部，有38万名军事和文职人员，覆盖36个国家和地区。
-
-新闻来源：[US admiral says China fully militarized isles in South China Sea](https://www.foxnews.com/world/us-admiral-says-china-militarized-isles-south-china-sea)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

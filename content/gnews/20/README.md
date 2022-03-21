@@ -2,39 +2,40 @@
 ---
 
 
-## 直播大后记：中国的经济大佬都在跑
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2203026/)
+## 樱花时政┃中共的驻美大使被问得语无伦次
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2203360/)
 
-整理：美哥、自新
-编辑：skyandmoon
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-133.png)[视频及图片来源](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=15738317839526298228)
+3月20日，驻美大使秦刚接受美国哥伦比亚广播公司节目主持人玛格丽特·布伦南直播采访。采访中，布伦南提问：中方是否会向俄方提供资金和武器吗？对此，秦刚大使表示，有关中方向俄方提供军事援助的说法是虚假信息，我们对此反对。中方给乌克兰人民送去食品、药品、睡袋和婴儿奶粉，而不是向任何一方提供武器弹药。我们反对战争，将尽一切努力推动局势降温。2022年3月20日，中共驻美大使秦刚接受美国哥伦比亚广播公司（CBS）“面向全民”（FACE THE NATION）节目主持人玛格丽特·布伦南直播采访，主要就乌克兰问题等阐述中方立场。有人发现，秦刚在节目中被“区别对待”，9分钟被主持人打断23次。与之形成对比的是，在当天的节目中，美国国防部长奥斯汀、美国参议院共和党领袖麦康奈尔、乌克兰驻美大使被主持人打断的次数都是0。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647493741430-1.jpg)图片来源：雅典娜设计组
+Compere (*Margaret Brennan)*: you send money and weapons to Russia so?
 
+Qingang (CCP’s ambassador): while there is a disinformation about China providing military assistance to Russia, we reject that.
 
-厉害吧，共产党？但是这几样恰恰都是为了维护这几个贵族，王岐山、孟建柱。傅政华现在被查出多少钱，你知道吗？他自己交代的，当时专案组查傅政华的时候说，他大概贪污了3个多亿。听说习暴怒，他说这个王八蛋，屡次给我表忠心，绝没贪污1分钱。虽然他有（点）毛病，（竟然）贪污3个多亿！习近平觉得不可思议。傅政华的弟弟傅永华，还有他老前妻，现在已经找到了，查回来，已经300多个亿。 金条、黄金饰品和古董，目前已经是40多个亿，50多个亿了。 你去想想500个亿的傅政华自己主动交代，现在习当何论呢？ 习近平被这3个亿气个半死，500个亿你咋办？
+Compere (*Margaret Brennan)*interrupt his speech: you want do some …, will not?
 
-兄弟姐妹们，知道孙立军多夸张吗？在澳大利亚，现在有200多套房。 更夸张的是在澳大利亚，其实这小子很聪明，他老查别人。在新西兰有一个大农场，一个农场听说4000多亩（地）。 现在麻烦在哪儿？孙立军在澳大利亚某个大金库里储藏了大量的秘密资料、金砖、钻石、古董，打不开。澳大利亚坚决不配合； 新西兰现在听说是高度配合。
+Qingang (CCP’s ambassador): What China is doing is send foods, medicine, sleeping bags, and baby formulas, not weapons and ammunition to any parties. We we we…
 
-七哥2017年说的爆料，现在全准了。兄弟姐妹们，你去想想中国人有多可怜，一个福建省、一个广西省的人的钱，都不够一个孙立军玩的。 文空，我不是跟你们开玩笑。我们作为中国人，不管你多伟大，我们这几代人是人类当中，最愚蠢、最可悲、最可恨的几代人。 我们不是被害者，我们曾经都是邪恶的，这场贪婪，共产党的参与者，包括我。 我们活在中国，就是一种屈辱。 你说孙立军这个王八蛋，傅政华就是一个流氓痞子，人人皆知，可他最后成了统治全中国人的最高权力的人。
+Compere (*Margaret Brennan)*interrupt his speech: Could you concerning that Russia mass of more than150,000 troops at China’s border? We just be clearly China….
 
-你说孟建柱那个小样，1.5米的个头，眼睛就那样，就是他成为中共中央首长。 一双修一家人， 还有最可怕的事情，你想过没有？全中国人60%人相信：我们是世界上的第二强国。我们有可能要干掉美国，简直疯狂到极致了。 中国有锁链女、有杨改兰。癌症突发率最高，癌症药没有一样治的。青蒿素治病，中国青蒿素是最贵的。我要重申一下，上次我说的青蒿素几万块钱，我说错了，我说的是青蒿的另外一种针，真治疗癌症的。美国现在大概在700美金一针， 很难开到，到中国炒到十几万美元。不是青蒿琥酯，我说错了，是一种针剂的，类似专治癌症的，非常管用的，在中国十几万也买不着。 像青蒿素这药，在中国，你买不着，而且中国到处都有，也很便宜，就不让你知道。 这个国家邪恶到什么程度？你看香港死人，每天300个。这几天，香港750万人，实际定居人口600万人。 600万人，一天死亡200多人，百分比是多少？ 你共产党搞“清零政策”，再看看共产党今天的粮食，再看中国人吃的地沟油。医疗、地沟油、医生教育的腐败、老师打学生，比监狱长都坏，把学校搞得比监狱还严密。 一个个的，这就是“中国教育”。孩子生下来，他比奴隶还辛苦，一天要学十几个小时， 结果中国人对世界一无所知。没出现一个马斯克。所有中国人，有本事的都跑出去了，或者被中国干掉了、被改变了、被奴役了。
+Qingang (CCP’s ambassador) interrupt her speech: while that’s why we keep a good friendly neighborly relationship with Russia
 
-你看看潘石屹两口子、马云、马化腾，你再看看李彦宏、中国的董文标，你再看看中国的所有企业家，把那个脸放在屏幕上。今天爆料革命来看，你觉得有一个人值得你尊敬吗？ 他对人类的文明和中国的文明有任何贡献吗？ 个人的修行和德行有一点，能得到世界人类的尊重吗？ 跟科技文明道德有一点点贡献吗？ 一群骗子！ 什么叫商人？商人在《资本论》里很好的定位：社会进步的膨胀剂。什么叫社会真正的文明者？马斯克——文明创造、科技引领、创造财富。苹果、谷歌，你喜不喜欢它，他们都是社会的文明（创造）者，包括Facebook，包括推特。
+Compere (*Margaret Brennan)*interrupt his speech: would you recognize that it’s not a good friendly neighborly relation with 150,000 troops on the border of a neighboring of a country to descend that troops into that country. In those circumstance, why can’t you condemn them as an invasion?
 
-所有的（科技）中国都是抄的、学的。 这么大的一个国家，14亿中国人，你告诉我，连马桶盖你都造不出来，你还想打倒美国、消灭台湾，跟俄罗斯站在一起。习太阳开会：中国人民，两国之间不需要战争，两国之间问题不需要战争解决。两国不需要战争解决，一国之内需要战争解决？你对香港的手段比战争还残酷，你对台湾的威胁比战争还残酷。 这是何等流氓的言论？ 打乌克兰，你看赵立坚那个德行、讲话那个样子，我真想拿鞋底抽他，你代表我们中国人，这么对待乌克兰人民？普京能给你什么？俄罗斯——杀过你最多中国人的国家、最看不起你的国家、 给你输送这个精神毒品最多的国家，什么共产主义（精神毒药）！
+Qingang (CCP’s ambassador): Let’s don’t be naïve. Condemnation …….
 
-现在经济往外抽是什么概念？ 兄弟刚才看到的所有，其中核心的问题，世界认清了中国共产党。你完了，你在跟世界正义为敌，而且美国为首28亿人口的基督教、天主教徒一定会干掉你，还不跑？朱云来、王岐山都跑了。我告诉你，你知道有个人买了凤凰股票的人——朱云来的哥们，买了很便宜、很便宜，现在股价比原来还低。这两天卖凤凰股票，给我说：郭先生我总算逃出来。我说：你很爱共产党，你干嘛跑？他说：据我得知消息，美国这回很严肃、很认真的，所以我得赶快跑。这孙子在上海，还有杭州，还投了好多东西，全打5折卖。 他是为什么？看到朱云来跑，看到王岐山、高燕燕在跑，他看到各省省委书记在跑。西安投了好几个的房地产项目、酒店项目，你看最近都在卖。兄弟姐妹们，我告诉大家：西方资本家真的开始离开中国了。这个经济灾难的到来，比把俄罗斯的现代朱可夫被干掉一样震撼。
+Compere (*Margaret Brennan)*interrupt his speech: it sounds naïve doesn’t say that invasion.
 
-资料來源：[2022.3.20文贵大直播](https://www.gettr.com/streaming/p10y5j870c5)
+Qingang (CCP’s ambassador): that’s doesn’t solve the problem. I will be surprise if Russia will back down by condemnation. And we’ll continue to promote peace talk, urge immediate fire and you know condemnation only doesn’t help. We need wisdom, courage, and we need good diplomacy……
 
-发布：tianzhihuan
+秦刚的此次受邀谈话，被玛格丽特问的羞愧不知，难掩面红的局面。中共资助俄罗斯此次的入侵是世人皆知的，在美国接受他人电视直播采访，公然撒谎，丑相百出。秦刚多次打断玛格丽特的问话，这是害怕主持人问出不该问的问题，秦刚无法面对吗？中共媒体公然说是秦刚被玛格丽特打断，继续洗脑墙内民众，从这个视频中，懂英文的人一眼便可以看出谁在说事实，谁在撒谎。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+消息来源：[中共驻美大使秦刚面对哥伦比亚广播公司的直播采访](https://baike.baidu.com/item/%E7%8E%9B%E6%A0%BC%E4%B8%BD%E7%89%B9%C2%B7%E5%B8%83%E4%BC%A6%E5%8D%97/60332903?fr=aladdin)
 
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

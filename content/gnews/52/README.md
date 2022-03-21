@@ -2,54 +2,96 @@
 ---
 
 
-## 俄罗斯称其在乌克兰首次使用高超音速导弹
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2198222/)
+## 泰德从佛罗里达飞来，为乌克兰边境的孩子们做煎饼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2198382/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3WektkpTURBXy9iNjU2Y2VhMzg5ZmUzMzRiODc3YjE3NDYyNTcwOWRiOC5qcGeRlQLNBLAAwsM-1.jpg)图片：Adam Tuchlinski摄 / Newsweek
+我们要在这里呆多久？ 直到战争结束。–这位来自伦敦的退伍军人保证道。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+他和几个朋友一起来到梅迪卡（Medyki）帮助逃离俄罗斯入侵的乌克兰人。 在波兰 – 乌克兰边境口岸有数百像他们一样的志愿者。
 
-昨天，俄罗斯国营媒体《[今日俄罗斯](https://www.rt.com/russia/)》报道称，俄罗斯国防部发言人伊戈尔·科纳申科（Igor Konashenkov）在对媒体发表评论时说，本周五，入侵乌克兰的俄罗斯军队首次使用了最先进的“金扎尔”（Kinzhal）导弹。根据美国军事新闻网（[American Military News](https://americanmilitarynews.com/)）分析，目前Kinzhal导弹已经被证实，但俄罗斯国防部宣称的这次袭击的弹道尚未被证实。
+**绝望与感激**
 
-此次袭击的目标是乌克兰西部伊万诺-弗兰科夫斯克市（Ivano-Frankivsk）德利亚廷（Deliatyn）村附近的一个大型地下军火库。该军火库是乌克兰军队的一个导弹和空中弹药仓库。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2221.png)美国志愿者在梅迪卡过境点烤鸭。图片：Adam Tuchlinski摄 / Newsweek
 
-俄罗斯国防部在推特上写道：“高精度导弹武器袭击摧毁了乌克兰武装部队的一个武器库，我们可以看到用武器和弹药击中地下机库的确切情况。”（[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
+“你饿了？” 一位退伍军人问，听到他說没有，有些失望。 几个小帐篷旁边的炉膛上，一架手动烧烤机在旋转。 正如士兵解释的那样，上面有一只鸭子，差不多做好了，皮烤好了，中间软软的； 剩下的事情就是吃了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-20-17.png)
+退伍军人坐在火边的塑料椅子上，仔细观察过境的妇女和儿童人群。 “我们有给他们的衣服，我们有给小孩的果汁，湿纸巾。 长途旅行后能派上用场的一切……” 他们解释说。
 
-另一段视频则宣称是导弹飞过天空，然后击中远处的目标。（[KT CounterIntelligence：Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)）
+另一批难民刚刚抵达，所以士兵们留下了鸭子，去看看他们有什么用处。 一群悲伤的妇女走向波兰消防员提供的三辆大巴车：饱受生活摧残的祖母、怀里抱着孩子的母亲和感到紧张的青少年。 每个人都拖着带轮子的小而方便的手提箱，以及可以装下所有物品的包裹。 他们确保大巴车会去热舒夫，然后他们不情愿地上了车。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-20_19-21-26.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2225.png)图片：Adam Tuchlinski摄 / Newsweek
 
-根据俄罗斯军方的说法，Kh-47M2 Kinzhal，中文“匕首”（Dagger），是一种空中发射的高超音速弹道导弹。导弹可以用战斗机携带和发射，例如MiG-31K猎狐犬（Foxhound）拦截机和攻击机。Kinzhal可以达到10马赫的速度（约每小时7,672英里）。
+有些人惊讶地看到草坪上矗立着一架摇摇晃晃的黑色钢琴，由一位来自意大利的年轻钢琴家演奏。 《致伊丽莎》、《温柔地杀了我》和《彩虹上的某处”》轻轻回响在过去三周里在梅迪卡这个由一个名不见经传的地方变化成一个重要边境口岸。 各种慈善机构的帐篷搭在食品摊旁边，还有成堆的各种给难民的礼物。 这里看起来有点像集市，只是一切都是免费的。
 
-据报道，这次Kinzhal高超音速导弹袭击的地点位于乌克兰西部德利亚廷村，该地距乌克兰与罗马尼亚的边境约46英里，距乌克兰与匈牙利的边境约88英里，罗马尼亚和匈牙利都是北约联盟的成员，这可能会引起邻近的北大西洋公约组织(NATO)盟国的担忧。
+在这一切中的难民：疲倦、害怕、困惑、经常哭泣。 对梅迪卡的所有志愿者想要给他们的东西感到惊讶，并对此非常感激。
 
-过去一周，俄罗斯对乌克兰西部的攻击令北约官员感到震惊和警觉。俄罗斯的第一次攻击是3月13日针对北约在乌克兰的重要前沿基地——乌克兰西部城市亚沃里夫（Yavoriv），亚沃里夫位于波兰-乌克兰边境10英里范围内，直到上月俄罗斯入侵乌克兰之前，美国第7集团军训练司令部还在亚沃里夫开展行动。当时俄罗斯用几枚导弹袭击了该基地，据报道有些是高超音速的。在那次袭击中，有超过200人丧生，其中包括美国和英国的军事和情报人员，另有数百人受伤。许多人遭受了诸如截肢之类的灾难性伤害，并正在住院治疗。
+**来自以色列的医务人员、来自里尔的锡克教徒和方济各会教徒**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2-1024x794-1.png)
+梅迪卡当地人口约 6,500 人，位于利沃夫以西 85 公里的乌克兰边境。 这是逃离俄罗斯入侵的乌克兰难民的最大通道。 每天有近 30,000 人在这里通过，不论是驾车还是步行抵达。
 
-分析认为，波兰、罗马尼亚和匈牙利都是北约联盟的成员，俄罗斯在乌克兰与北约成员国的边界附近发动袭击增加了误判的风险，这可能导致北约盟国受到打击。此类事件有可能触发北约第5条的规定，如果一个或多个北约成员国成为武装袭击的目标，北约其他成员将认为这是对所有成员国的攻击，并将采取集体自卫行动。如果俄罗斯的袭击导致北约援引第5条，它将使拥有核武器的俄罗斯与包括美国、英国和法国在内的拥有核武器的北约盟国发生冲突。美国总统乔·拜登和北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）已经警告说，北约将“保卫北约的每一寸领土”。
+战争开始时，乌克兰边境一侧路上甚至排有长达数公里的汽车长龙，乌克兰人在那里会等上好几天。 现在局势已经平静下来，但仍有很多乌克兰人来到波兰。 有的人立即离开了，有的人则前往当地由体育馆改建的一个有240张床位的难民接待中心。 他们可以在那里休息一会儿，睡一整夜，然后再决定去哪里。
 
-俄罗斯使用高超音速武器也可能引发对核威慑的担忧。与其他高超音速导弹一样，Kinzhal具有核能力，并且能够从战斗机上发射，使其能够靠近目标，同时减少发射后被探测的时间。俄罗斯声称Kinzhal也有机动避免拦截的能力。
+在梅迪卡的过境点，波兰消防员、波兰童子军侦察协会的侦察员和社区居民正在等待这些难民。 除了这些人，还有来自世界各地操着各种语言的志愿者。他们当中有来自法国里尔的方济各会；还有来自联合国锡克教联合组织的锡克教徒，负责人道主义援助和教育；以色列医务人员在人行横道旁搭建了自己的帐篷，为疲惫和生病的难民提供帮助。
 
-本周四，美国国防情报局(U.S. Defense Intelligence Agency，简称DIA)局长斯科特·贝里尔（Scott Berrier）中将告诉众议院军事委员会说，俄罗斯常规军事力量不断遭受的损失可能将迫使普京转向核威胁来支持其外交政策立场和维护其国内独裁统治。
+在梅迪卡也有很多人不属于任何组织。 他们自费来到这里，多日里忍受著寒冷，并且，正如他们所说，试图给这些抛下之前拥有着一切、现在在异国逃难的人们一点点安慰。
 
-参考数据：
+**乌克兰战争，孩子们喜欢煎饼**
 
-[Russia fires hypersonic missiles in Ukraine](https://www.rt.com/russia/552284-kinzhal-hypersonic-missile-ukraine/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2223.png)煎饼摊很受孩子们的欢迎。图片：Adam Tuchlinski摄 / Newsweek
 
-[Russia says it used hypersonic missile for first time in Ukraine](https://americanmilitarynews.com/2022/03/videos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine/?utm_source=breaking_email&amp;utm_campaign=breaking_mailchimp&amp;utm_medium=email&amp;utm_source=Master_List&amp;utm_campaign=0563b8b5c0-EMAIL_CAMPAIGN_2022_03_19_06_51&amp;utm_medium=email&amp;utm_term=0_9c4ef113e0-0563b8b5c0-62772342&amp;mc_cid=0563b8b5c0&amp;mc_eid=899bfadf04)
+泰德（Ted）以前从未做过煎饼。 他声称，他只为女儿们准备早餐的吐司大师。 一个星期以来，他一直站在行人过境点旁边，用搅拌机揉面团，然后在一个巨大的煎锅里煎煎饼。 当他看到孩子们路过时，他会鼓励他们自助取食。 他用手势表明最好用 Nutella （榛子巧克力酱）或果酱覆盖薄煎饼，它们的味道会更好。
 
-[Russia likely to threaten nuke attacks, says US defense intel chief](https://americanmilitarynews.com/2022/03/russia-likely-to-threaten-nuke-attacks-says-us-defense-intel-chief/)
+泰德一周前从佛罗里达飞来波兰帮助乌克兰难民，他自己支付出行费用并梅迪卡养活自己。
 
-[Video purportedly showing the Russian hypersonic “Kinzhal” heading towards a 🇺🇦 underground bunker in Ukraine](https://twitter.com/KremlinTrolls/status/1505174562060840964?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505174562060840964%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
+“当我听说战争时，我觉得我必须做点什么，以某种方式帮助乌克兰难民。 我给国际红十字会写了一封电子邮件，想当志愿者，但几天没有回音，我就买了一张去华沙的机票。 从那里我来到了普热梅希尔，然后到了梅迪卡，因为我听说这里的情况最困难。 然后就开始做这些煎饼。 星期天我会回到我在美国的女儿们那里，现在她们和妈妈在一起，但她们很想念我…..” 泰德笑得很开心，鼓励我们和阿图尔（Artur）谈谈，他是煎饼行动的策划者。
 
-[Минобороны России：Destruction of a weapons depot of the Armed Forces of Ukraine by high-precision missile weapons strike. We can see the exact hit of an underground hangar with weapons and ammunition.](https://twitter.com/mod_russia/status/1505141259882704897?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1505141259882704897%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Famericanmilitarynews.com%2F2022%2F03%2Fvideos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine%2F)
+“当我想取悦我的孩子和他们的朋友时，我会给他们做煎饼吃。”三十多岁的阿图尔解释道。 他是波兰人，出生在波德拉謝，但已在阿姆斯特丹生活多年。 在那里，他组建了家庭并担任消防员。 听到战争的消息，他也觉得必须做点什么。 隨后， 当他向他的同事倾诉这一需求时，他们立即组织了一系列可能对边境难民有用的东西。 阿图尔把大巴装满了，然后开车来到了梅迪卡。 他不仅在现场派发礼物，还迅速搭起了一个供暖的大帐篷。
 
-[Russia Exploits Ukraine’s Western Flank – Target of One Bombing was NATO-Connected Training Facility in Ukraine](https://www.thegatewaypundit.com/2022/03/russia-exploits-ukraines-western-flank/)
+“我看到人们在边境口岸如何站了几个小时的队，都要冻僵了。 我想我能给他们的只是我帐篷里的一点温暖。 乌克兰人进去了，他们暖身之后，又可以继续排队了。 有些人甚至在这里睡了几个小时……”阿图尔展示了帐篷里放着毯子和睡袋的行军床。
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+后来当阿图尔想起他自己的孩子多么喜欢这道吃食时，煎饼摊出现了。 他当时想，这会让这些乌克兰孩子有片刻觉得有人关心他们，想给他们一些好东西。 他很快让泰德和其他几个志愿者帮忙，同时他自己专注于完善帐篷。 他现在还在装配一架金属梯子，然后他也会找到其他事情做。
+
+“还有多少？” “需要多少就有多少，”他说道，然后回去继续工作。
+
+**乌克兰的中国反共志士**
+
+最大的帐篷是由来自新中国联邦（NFSC）和法治基金（ROLF）的中国人搭建的，在这可以吃到梅迪卡居民出炉的新鲜面包，喝咖啡机里的咖啡，取暖，在角落里有给孩子们设置的玩具区。
+
+“当孩子们玩耍时，我们希望疲倦的妈妈们有机会可以休息片刻”， 来自纽约的年轻新中国志愿者 Nicola 解释道。
+
+搭建帐篷的资金是由来自世界各地的两个组织的成员捐赠过来的，该组织的成员立志于推翻在北京的共产党政府，因为在他们看来，它是世界上所有邪恶的根源，但现在他们来到这里帮助乌克兰的难民。
+
+“我们的心中充满了对这些人的同情。 一切都会变好的，我们在为一个民主、自由的（新）中国而战” ，Nicola说道，并邀请我们喝咖啡。
+
+“你会暖和一点。”她鼓励道，她的朋友很快端来一杯热腾腾的拿铁咖啡，伴有深深鞠躬。 另一个人对我们的谈话进行了现场报道。“让我们的支持者知道我们并没有闲着，”她解释道。
+
+在过境点上，烤鸭的香味扑鼻而来，在缓缓落下的黄昏中，意大利钢琴家演奏的歌曲《Imagine》响起超现实的声音。 钢琴家也是来到梅迪卡提供帮助的，他为难民演奏，让人们可以有瞬息忘记战争。
+
+新闻原文链接：[Ted przyleciał z Florydy. Na granicy z Ukrainą smaży dzieciom naleśniki](https://www.newsweek.pl/polska/spoleczenstwo/wojna-w-ukrainie-wloski-pianista-gra-dla-uchodzcow-imagine-amerykanin-smazy-im/vyf4qsn)
+
+*原文作者：Renata Kim*|*翻译：文*亮
+
+🆘24小时救援客服热线（电话/短信）：
+
++1 720-657-6776或 +1 719-224-4232 或+48 508-532-712 或 +48 508-531-518
+
+🔵Telegram： t.me/UkraineRescue
+
+🔵邮箱： [\[email protected\]](/cdn-cgi/l/email-protection)com 或 [\[email protected\]](/cdn-cgi/l/email-protection)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

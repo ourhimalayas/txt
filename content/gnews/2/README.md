@@ -2,23 +2,22 @@
 ---
 
 
-## 东航客机坠毁现场火势猛烈！机上132人生死未卜
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2203437/)
+## 人类未来的去中心化货币叫做躺平币
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2203584/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cc40e784-74cb-496e-818e-8c9619c5ce8e.jpg)图片来源：央视新闻微博
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/blockchain.jpg)
+3月20日大直播中郭先生与战友分享未来会有一个真正的去中心化货币，就是躺平币。
 
-中共官媒《央视新闻》今天下午报导，一架东方航空搭载133人的波音737客机在广西梧州藤县发生事故，并引发山林大火。中（共）国民航局下午4时34分证实，机上有132人，其中旅客123人、机组员9人，已派出工作组赶赴现场。不少网友也在微博转传影片，指该客机已坠毁。
+随着区块链加密技术的逐渐成熟，交易成本会越来越低。目前第二代技术的交易成本是300-3000美金，马上到来的第三代成本为0.3美金，第三代之后的交易成本仅为0.3分。从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付来购买任何所需。另外转账功能也不会受到任何限制，安全加密无人监管。
 
-简评：郭文贵先生在直播中多次提到，中共病毒疫苗灾难来临的可怕，其中就有打了疫苗的飞行员突发疫苗后遗症，从而造成飞机的空难。不知这次中共国的空难与疫苗灾难有没有关系，面对疫苗灾难的来临，请大家多多注意，以免被疫苗次生灾害所伤害！
+目前世界上的法币大多数是分地域的，被国家和组织垄断并强制人们使用的工具，定价权被牢牢掌控在权力手中。法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。而躺平币作为真正去中心化的货币，回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，因为使用即是价值。
 
-新闻来源：[民视新闻网](https://www.ftvnews.com.tw/news/detail/2022321W0235)
+撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+欢迎订阅我们的G-News账号：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+* * *
 
  
 
