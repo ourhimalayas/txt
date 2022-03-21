@@ -2,29 +2,19 @@
 ---
 
 
-## 生病不准告假 云南17岁职校生实习身亡
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2204434/)
+## 嘉宾问答（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2204447/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yunnanzhiyuan.jpg)
-云南一职校护理专业17岁学生在实习期间身体不适，请假却遭拒绝，最终因呼吸衰竭身亡。家属、学校与工厂至今未能就赔偿达成协议，云南省教育厅表示会介入。
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：40-11：47-004.jpg)
+*发布：*tianzhihuan
 
-综合极目新闻与封面新闻报道，这名17岁学生杨昌（化名）1月初与一百多名同学在学校的组织下到江西南昌一工厂进行实习，学生们还与校方及厂方签署了《实习生三方协议》。杨昌于2月初出现了身体不适，2月11日因呼吸衰竭不幸身亡。
-
-报道称，杨昌2月9日和朋友说，自己已经咳嗽咳出血。然而他的工厂组长说人手不够请不了假，自行离开的话算旷工，扣三天工资。因此直到有新人顶上，杨昌才被放出来。结果2月11日，他被紧急送医后死亡。
-
-死者家属表示，曾询问校方与工厂，小孩连续几天身体不舒服，驻厂带队老师知不知道，采取了什么措施，为什么身体这样了还请不到假。学校和厂里只说愿意人道主义赔偿，别的不谈。
-
-在一份家属与校方的协议中，校方表示一次性为解决小杨的事情支付66万元（人民币，约14万新币），但双方最终没有谈拢。
-
-21日上午，死者家属透露，云南新兴职业学院的相关负责人已于20日到达南昌。家属与学校及工厂进行了一天的协商，但仍未就赔付金额等事宜达成一致，接下来还将继续商讨。
-
-记者向云南省教育厅求证，工作人员也表示教育厅已安排相关部门介入此事，事件已经在处理过程当中。
-
-参考连结：[https://www.zaobao.com/realtime/china/story20220321-1254602](https://www.zaobao.com/realtime/china/story20220321-1254602)
-
-审核校对：Barry Jack
-上传排版：F
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
