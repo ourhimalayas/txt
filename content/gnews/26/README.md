@@ -2,41 +2,36 @@
 ---
 
 
-## 有声|马斯克战书改变人类文明和战争史
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211630/)
+## 俄实验设备和耗材因战争制裁而断供
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211750/)
 
-配音：香草山佛教部 – 李傻
+作者：香草山农场教育部 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月20日，郭先生在大直播中表示，独裁者因为狂妄而对世界一无所知，马斯克对普京所下的战书是人类有史以来最牛的话，它改变了人类文明和战争史。
+俄罗斯普京政权发动侵略乌克兰的战争行动，全球对俄制裁与孤立政策纷至沓来。
 
-郭先生说，普京最致命的问题之一是狂妄独裁，对世界有一种不真实的认知。就像当年毛泽东愚蠢的说出“与天斗、与地斗、与人斗，其乐无穷”的狂言，从而导致今日中共国大气、土壤和地下水全部被污染的恶劣状况。第二个原因，他输了在世界上最重要的科技，因为这场战争就是科技战争，和人无关只与科技有关。而普京与习近平则是两个无知至极的科盲混蛋。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-70.jpg)
-此外，在马斯克推文发出后，中共军方的一位女将军主动联系郭先生，表示要透露一些情况。因该推文让中共极为恐慌，中共被迫按下了暂停发射核武器的黄灯，并紧急通知全员到位开会研究对策。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-5.jpeg)
 
-马斯克的推文表示，只要普京政府敢发射核武器，不论时间地点和数量，他都能改变核武器的轨道。郭先生认为，对这振聋发聩的几句话怎样形容它都不为过，甚至超过“耶稣复活”这四个字，人类的文明和战争史因此被彻底改变。而通过科技的力量，马斯克轻而易举的就拯救了75亿人的性命。
+3月17日，据外媒消息，俄罗斯耗材的进口严重下降，尤其以工业原材料、实验室设备、和计算资源等为甚。
 
+欧盟已禁止向俄罗斯出口，包括质谱仪和示波器在内的大量技术设备。同时期美国已禁止向俄罗斯出口半导体、计算机、激光器和传感器等。
 
+还有在科技企业方面，诸如：美国赛默飞世尔和微软，日本仪器巨头岛津，镜头制造商尼康，德国光学巨头蔡司，工业软件巨头 SAP 等公司均已停止面向俄罗斯的部分或全部业务。
 
+芯片制造商英特尔、AMD 和英伟达也已停止向俄罗斯销售产品。
 
+一些俄罗斯学者表示，向许多供应商提出的订单请求或被拒绝，或得到暂停交付的回应。
 
-文字版原文：[马斯克战书改变人类文明和战争史](https://gnews.org/zh-hans/2208011/)
+由于大部分航运和物流公司向俄罗斯的运输中断，俄罗斯研究者也难以从国际同行手中获取实验仪器或材料。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+分析人士认为，中共当权治理下的中国，在科学仪器水平与国际先进水平相差很远，绝大多数领域设备本就依靠外国进口。因此从中国采购并不能解决俄罗斯本身面临的断供问题。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：[Russian labs run out of equipment as sanctions begin to bite](https://sciencebusiness.net/news/russian-labs-run-out-equipment-sanctions-begin-bite)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核/总编：Zion文恩
+编辑：玫瑰圓
+校正/发稿：谐趣园
 
  
 

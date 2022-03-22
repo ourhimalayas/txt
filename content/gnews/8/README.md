@@ -2,45 +2,22 @@
 ---
 
 
-## 中共从经济 疫苗到火战 全方位发动第三次世界大战
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2212071/)
+## 中共试图利用俄乌战争推进非洲“债务陷阱
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2212094/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+采编撰稿：文明(添草灭共)
 
+据【布莱特巴特】新闻网3月21日报道，中共国外交部长王毅日前与阿尔及利亚、坦桑尼亚和赞比亚外长会面时表示，俄乌局势动荡让中共更加重视对非洲地区的帮助，将在 “一带一路 “计划中投入更多资金。
 
+![此图像的alt属性为空；文件名为Picture1-35.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-35.jpg)图片来源：breitbart
 
-班农先生在主持《班农战斗室》节目时，强调世界一切罪恶的根源都是中国共产党造成的，推翻了中国共产党，北韩、中东等地区的所有独裁都会随之瓦解。
+报道称，中共利用这项全球基础设施投资计划，向贫穷国家提供掠夺性贷款。当这些国家不能及时偿还贷款时，中共就会攫取所在国的道路、港口和铁路控制权，从而提高地缘政治影响力。除此之外，中共还违反增加就业的承诺，往往在“一带一路”项目开启后引入其控制的大量廉价劳工，导致当地民众就业情况恶化。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-110.jpg)
+新中国联邦已经揭露出中共就是俄乌战争的幕后操控者，中共即将面临全世界的声讨和追责。如此境况之下，中共还妄图欺骗和绑架非洲国家为其站台只是枉费心机。
 
-《班农战斗室》在美国政治类节目中排名第一，传播量极大，班农先生通过节目告知其美国听众，中国共产党是罪魁祸首，是一切灾难的根源。
+新闻链接：[https://www.breitbart.com/africa/2022/03/21/china-uses-ukraine-war-to-promote-belt-and-road-in-africa/](https://www.breitbart.com/africa/2022/03/21/china-uses-ukraine-war-to-promote-belt-and-road-in-africa/)
 
-中共一向视别人的危难为自己的机会，从中谋取好处。若世界和平没有争端，共产党就没有立足之地，故制造不安动荡是其维持统治的必然手段，如当前的乌俄战争就是最好的例子。
-
-从苏联解体后至邓小平南巡讲话改革开放，中共国开始走向利用低廉的劳动力换取进出口贸易的道路。2001年进入WTO，如今已成为全球第二大经济体，中共所有的发展都是美国资助的，但中共一直在执行秘密渗透美国的计划，美国的华尔街、银行均被中共的虚假财务报表绑架。
-
-中共还建立了数以百万计的海外公民数字档案，将传统的列宁主义与当前时代的数字监控相结合，多种无底线的手段影响他国政治、经济和文化。
-
-从经济上的胁迫、到全球制毒、放毒，再到现在的乌克兰战火弥漫，中共的威胁无处不在。真正印证了郝海东先生的那句话：消灭中共是正义的必需！
-
-文案编辑：雪菜
-校对整理：wuxin
-
-**更多資訊，更多關注**
-**[焦點20分GETTR](https://gettr.com/user/20minfocus)**
-**[焦點20分](https://gettr.com/user/20minfocus)**[TWITTER](https://twitter.com/20minfocus)**
-[烏克蘭救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文貴先生Gettr](https://gettr.com/user/miles)
-[全球喜馬拉雅農場聯盟委員會Gettr](https://gettr.com/user/GlobalAlliance)
-[喜馬拉雅聯盟大使館全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
-
-
-
-
+编辑/上传：文所未闻
 
  
 
