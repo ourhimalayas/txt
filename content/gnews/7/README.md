@@ -2,29 +2,27 @@
 ---
 
 
-## 有声｜俄罗斯要求马里乌波尔投降遭果断拒绝
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2210667/)
+## 加拿大推出利好乌克兰难民的移民政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2210733/)
 
-By:**秘翻新闻**
+作者：加拿大温哥华扬帆农场 – 采编：青青 – 撰稿：文莱
 
-**2022-03-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/322_3-v2.jpg)图片来源 路透社
-[《路透社》](https://www.reuters.com/world/europe/ukraine-refuses-surrender-mariupol-russia-warns-humanitarian-catastrophe-2022-03-21/)乌克兰3月21日报道，乌克兰表示，不会接受俄罗斯要求马里乌波尔投降的最后通牒。此前，俄罗斯还要求乌克兰停止保卫被包围的马里乌波尔。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2541.png)
+Tupian :[Canada will welcome as many Ukrainian refugees as it can: PM Justin Trudeau (rambunews.com)](https://rambunews.com/host-https-www.republicworld.com/world-news/russia-ukraine-crisis/canada-will-welcome-as-many-ukrainian-refugees-as-it-can-pm-justin-trudeau-articleshow.html)
 
-据报道，马里乌波尔已经成为俄罗斯对乌克兰进攻的焦点。周一，俄罗斯军队对乌克兰的第二大城市哈尔科夫的袭击也有所加剧。
 
-据悉，俄罗斯军方已下令马里乌波尔居民在当地时间周一凌晨5点前投降，并表示，投降的人可以离开，而留在那里的人将被移交给莫斯科支持的分裂分子管理的法庭。
+据【CTV新闻】3月20日报道，加拿大目前正计划向那些愿意为乌克兰难民提供帮助的国人提供包括暂时减免苛捐杂税的经济支持。
 
-乌克兰总统泽伦斯基政府回应称，绝不会屈服，并表示首都基辅、马里乌波尔和哈尔科夫等城市将永远反抗入侵。
+报道称，联邦政府将通过【加乌紧急旅行授权】措施，以接纳乌克兰难民及其任何国籍的直系亲属，并获得为期三年的临时居留权以及在加拿大工作或学习的权利。此外，还将建立专门就业银行，以便资助企业雇主更容易招聘到入境的乌克兰移民。
 
-目前，俄罗斯的入侵已进入第四周，但基本上停滞不前，没有占领任何一个主要城市，但对居民区造成了大规模破坏，也对平民造成大量伤亡。
+据悉，随着数百万战争难民逃亡至邻国，加拿大政府近期一直在优先处理乌克兰人的移民申请，同时还与各省密切合作，以确保这些难民在入境后可以即时获得住房和医疗保健等支持。
 
-（秘翻新闻  冰糖葫芦喵编译报道）
+校对编辑：硫酸羟氯喹64
 
-发布 : 文橙
+发稿：青青
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+原文链接：[Ukrainian refugees in Canada: Feds eyeing incentives | CTV News](https://www.ctvnews.ca/politics/feds-considering-incentives-for-canadians-looking-to-help-incoming-ukrainians-1.5825436)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

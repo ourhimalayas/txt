@@ -2,24 +2,41 @@
 ---
 
 
-## 画地为牢式的中共防疫管控
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2210266/)
+## 扣押600小时后部分切尔诺贝利人质被放
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2210443/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画地为牢式的中共防疫管控.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.scrumcn.com%2Fagile%2Fwp-content%2Fuploads%2F2014%2F05%2Fscrumcn1387164103.jpg&amp;imgrefurl=https%3A%2F%2Fwww.scrumcn.com%2Fagile%2Fscrum%2F4800.html&amp;tbnid=pPGD53xxJKZ-wM&amp;vet=12ahUKEwiz_KTe3Nn2AhVr2OAKHecNAHsQMygRegUIARDGAQ..i&amp;docid=IoLCLCXgf_S7uM&amp;w=500&amp;h=303&amp;q=%E7%94%BB%E5%9C%B0%E4%B8%BA%E7%89%A2&amp;ved=2ahUKEwiz_KTe3Nn2AhVr2OAKHecNAHsQMygRegUIARDGAQ)
-3月22日中新经纬报道，据“河南发布”微信公众号消息，2022年3月22日0时起，河南将对省外返豫入豫人员，实行入豫即赋码、三天两次核酸检测等健康管理措施。通知中明确，河南将统一对省外返豫入豫人员河南省健康码赋黄码。
+翻译：噜噜咪
 
-河南目前没有省内初发病例，赋黄码是早预防，三天两检是早发现，接下来才能精准防控。中共病毒（新冠病毒Covid-19）已爆发两年多，英国，日本，加拿大，巴基斯坦……众多国家相继放开管控措施，而中共国有愈演愈烈的趋势，对本已严重的经济下跌犹如历雪上加霜般的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1647817911266.png)3月10日，切尔诺贝利核设施的卫星图像。图片：：Maxar Technologies
 
-施行所谓行程码和健康码，需要登记个人资料如姓名、身份证明文件号码和签发日期、联络电话号码、居住地址等资料，并上载在所住址证明，核实住址后，申请人会获发个人识别码以启动账户。申报健康状况，经系统对比其住址和过去15天出行记录，以及确诊与密切接触者名单，从而获取由系统判定的红、黄或绿色个人“健康码”。
+乌克兰官员周日表示，自俄罗斯军队三周前占领切尔诺贝利核电站以来，约有一半的工人实际上被扣为人质，现在他们终于能够离开。
 
-中共国地方政府懒政管理施行“一刀切”，把防控措施做到层层加码，以疫情防控为由，掌握所有人员的个人信息和行踪，画地为牢，囚禁国人。
+根据核电站的一份声明，64名工人在设施内呆了大约600小时后离开。该声明补充说，他们被46名“雇员-志愿者”所取代。
 
-[【河南“入豫变黄码”引发争议】](https://mi.mbd.baidu.com/r/DeknWKggRa?f=cp&amp;rs=1837293515&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=8d21e0d511702c78&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+国际原子能机构（IAEA）表示，乌克兰官员通知联合国核监督机构，“现场人员的轮换已于上午开始，那些已经离开的人已经被其他乌克兰工作人员取代。”
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+国际原子能机构总干事拉斐尔·马里亚诺·格罗西在一份声明中说，一些切尔诺贝利的工作人员已经回到了他们的家庭，这是“一个积极的发展，尽管早该如此”。
+
+格罗西补充说：“他们在这种极其困难的情况下工作，值得我们充分尊重和敬佩。”
+
+“他们在那里呆的时间太长了。我真诚地希望，这个班次的剩余工作人员也能尽快轮换。”
+
+**参考资料：**[axios][Some Chernobyl workers allowed to leave after 600 hours inside plant](https://www.axios.com/64-chernobyl-workers-leave-russian-controlled-plant-6f14eaab-1adf-406f-94c1-7a711d1459a7.html)
+
+* * *
+
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,27 @@
 ---
 
 
-## 扣押600小时后部分切尔诺贝利人质被放
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2210443/)
+## 各界继续抨击特鲁多对自由车队的诬陷
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2210531/)
 
-翻译：噜噜咪
+采编：加拿大温哥华扬帆农场 – 青青
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1647817911266.png)3月10日，切尔诺贝利核设施的卫星图像。图片：：Maxar Technologies
+撰稿：加拿大温哥华扬帆农场 – 文莱
 
-乌克兰官员周日表示，自俄罗斯军队三周前占领切尔诺贝利核电站以来，约有一半的工人实际上被扣为人质，现在他们终于能够离开。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2540.png)图片来源：[Five times Liberal claims about the Freedom Convoy were officially disputed | True North (tnc.news)](https://tnc.news/2022/03/19/five-times-liberal-claims-about-the-freedom-convoy-were-officially-disputed/)
 
-根据核电站的一份声明，64名工人在设施内呆了大约600小时后离开。该声明补充说，他们被46名“雇员-志愿者”所取代。
 
-国际原子能机构（IAEA）表示，乌克兰官员通知联合国核监督机构，“现场人员的轮换已于上午开始，那些已经离开的人已经被其他乌克兰工作人员取代。”
+据加拿大【真北方】3月19日报道，自由党政府此前擅用《紧急状态法》镇压自由车队反疫苗护照的和平抗议活动之举，至今都被加拿大政界和法律界等多方强烈质疑。
 
-国际原子能机构总干事拉斐尔·马里亚诺·格罗西在一份声明中说，一些切尔诺贝利的工作人员已经回到了他们的家庭，这是“一个积极的发展，尽管早该如此”。
+报道称，特鲁多及其内阁在今年2月以所谓“国外极端分子资助卡车司机寻衅滋事并意图破坏加拿大民主”为由，越权启用了《紧急状态法》。多家主流媒体包括[加拿大广播公司]等也都同时发表了“自由车队是国外势力资助”的文章。
 
-格罗西补充说：“他们在这种极其困难的情况下工作，值得我们充分尊重和敬佩。”
+据悉，在日前的下议院财政委员会上，众筹平台GoFundMe总裁驳回了以上谬论。此外，皇家骑警负责人也表示，从多方调查的结果来看，没有发现任何极端恐怖分子涉入其中的证据。
 
-“他们在那里呆的时间太长了。我真诚地希望，这个班次的剩余工作人员也能尽快轮换。”
+校对编辑：硫酸羟氯喹64
 
-**参考资料：**[axios][Some Chernobyl workers allowed to leave after 600 hours inside plant](https://www.axios.com/64-chernobyl-workers-leave-russian-controlled-plant-6f14eaab-1adf-406f-94c1-7a711d1459a7.html)
+发稿：青青
 
-* * *
-
-*审核：文乐
-校对：花羽
-发稿：信心的选择*
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+新闻来源： [Five times Liberal claims about the Freedom Convoy were officially disputed | True North (tnc.news)](https://tnc.news/2022/03/19/five-times-liberal-claims-about-the-freedom-convoy-were-officially-disputed/)
 
  
 

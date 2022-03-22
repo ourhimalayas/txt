@@ -2,30 +2,28 @@
 ---
 
 
-## 乌克兰称俄罗斯部队最多只能有三天的补给
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2210064/)
+## 乌克兰的孩子走进了正在直播的镜头里
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2210196/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-20.07.33.png)
+梅迪卡前线时间3月22日，前线战友正在连线做直播途中，画面中进来了三个乌克兰的孩子，他们热情地和战友打招呼并且拥抱，还和镜头前的观众打招呼。孩子们脸上的笑意让人心都化了，战友蹲下来和几个孩子交谈，因为语言不通，借助手机翻译，几个孩子问了战友来自哪里，并对战友表示了感谢。接着孩子们蹦蹦跳跳离开了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/RNUTG6TAAVM5PHPZ5MNANTXO6Q.jpg)
+这一幕太安慰了。我们唯真不破，直播中出现了这样温馨的意外，这几个孩子来到我们的直播是自然而然的，他们的主动拥抱和感谢，这是共产党永远都做不到的。战友还说在当地，很多西方面孔都学了中国话“你好”，主动和参与救援的战友打招呼。这次救援行动让西方人看到新中国联邦人的可爱，正如战友所说的，人家不喜欢你不会和你用中文打招呼的。
 
+撰稿、发布：骄子
 
-图片来源：路透社
+* * *
 
-据乌克兰总参谋部称，俄罗斯军队的弹药和食品供应即将耗尽。乌克兰当局显然预计对基辅的袭击会增加。
+欢迎订阅我们的GNews账号：
 
-据乌克兰总参谋部称，俄罗斯部队在保障乌克兰战争物资方面仍然存在问题。根据现有资料，在乌克兰开展行动的部队最多可以有三天的弹药和食品供应。乌克兰总参谋部周二在 Facebook 上发布的早间报告中表示，燃料供应情况与此类似。该信息无法独立核实。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-还有人说，乌克兰军队继续袭击俄罗斯军队。他们在某些领域也取得了成功。没有给出地面战斗的具体细节。 24小时内，乌克兰空军、​​防空部队和地面部队击中了9个空中目标。总体而言，最近观察到俄罗斯飞机的“活动增加”。
-
-据乌克兰政府称，与俄罗斯的战斗可能会在两到三周内结束。这就是泽连斯基总统的顾问奥列克西·阿列斯托维奇在接受电视采访时所说的。俄罗斯军队的主要目标是控制首都基辅。但这种尝试是“自杀”。
-
-乌克兰当局显然预计基辅会有新的袭击，因此要求平民离开该地区。基辅郊区鲍里斯波尔的市长提出了这样的呼吁。 他的呼吁也适用于所有从乌克兰其他地区逃到基辅东南部城市的平民。
-
-🔗 [https://www.welt.de/politik/ausland/article237696031/Ukraine-Krieg-aktuelle-Lage-Russische-Einheiten-angeblich-mit-Vorraeten-fuer-drei-Tage.html](https://www.welt.de/politik/ausland/article237696031/Ukraine-Krieg-aktuelle-Lage-Russische-Einheiten-angeblich-mit-Vorraeten-fuer-drei-Tage.html)
-
-编辑发布： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

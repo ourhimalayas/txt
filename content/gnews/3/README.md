@@ -2,29 +2,34 @@
 ---
 
 
-## 有声｜马里乌波尔市民正在为生存而战
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2210720/)
+## 又见人血馒头
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2210780/)
 
-By:**秘翻新闻**
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-35.png)
 
-**2022-03-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/322——6-v3.png)马里乌波尔民众在硝烟中（图片来源 AP Direct）
-[纽约时报](https://www.nytimes.com/live/2022/03/21/world/ukraine-russia-war)3月21日报道，乌克兰南部港口马里乌波尔，是迄今为止在战争中受害最严重的城市。俄军导弹摧毁了一个庇护 1000 多人的剧院，另一个导弹袭击了一所艺术学校。
+凄怆破盛世
+机坠入火林
+寒骨未入棺
+花样广告频
+句句见冷毒
+处处啃人血
+脑残心更残
+无处觅真情
 
-在马里乌波尔水是如此稀缺，以至于人们正在融化雪。并且暖气、电和煤气都没有了，人们被迫砍树取柴。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-周日，俄罗斯发出最后通牒，要求该市的乌克兰战士必须放弃抵抗，否则将面临全军覆没的后果。乌克兰官员拒绝了。目前仍有超过 300,000 人在其中中奋战，尽管战斗已经转移到一些街区的街道上。
-
-马里乌波尔是乌克兰最大的城市之一，在过去的三周里，马里乌波尔遭到了俄军围攻和无情的轰炸。
-
-（秘翻新闻 自由信仰 编译报道）
-
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
