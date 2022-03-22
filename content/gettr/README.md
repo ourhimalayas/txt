@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 1:26 AM (UTC)`
+
+3/21/2022 Miles Guo’s GETTR: When it comes to the recent crash of the Boeing 737 in Communist China, please take it easy because aircraft accidents will be a norm after the COVID vaccine disaster begins. Last week, the over-the-counter trading of digital currencies was the busiest in the past 3 years. Changpeng Zhao has harmed numerous people who trade digital currencies at Binance only to swindle their money. The third generation of digital currency will obsolete Binance. Gold will not rise too much, nor will it be in circulation to save lives.<br/><br/>3/21/2022 文贵盖特：请大家用平常心看待最近中共国的坠机事件，疫苗灾难到来后这将是常态；上周数字货币场外交易达近3年最高；赵长鹏为了骗钱害了很多在币安搞数字货币的人；第3代数字货币将淘汰币安；黄金既会不大涨又无法流通救命<br/>
+![img](https://media.gettr.com/group31/getter/2022/03/22/01/5f736b2d-6233-e29c-02e3-555dbd36e7f5/out.jpg)
+
+---
+
 `@miles 3/22/2022 1:17 AM (UTC)`
 
 3月21日：G FASHION 带领世界时尚的潮流！<br/>https://instagram.com/stories/deandrehopkins/2799205738257589894?utm_source=ig_story_item_share&utm_medium=copy_link
@@ -145,13 +152,6 @@ Children don't need war, children need their mothers and fathers .<br/> The suns
 
 2022.03.21 早 《新中国联邦新闻》新中国联邦乌克兰救援大巴工作暂告结束； 义工综合素质高 随时应对救援前线突发事件
 ![img](https://media.gettr.com/group13/origin/2022/03/21/12/2a453dd1-5748-61e5-4504-c64622b870ee/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/21/2022 12:22 PM (UTC)`
-
-<br/>3月21号：尊敬的战友们好．俄乌战争的救援……每时每刻．都为中国人在海外的安全奇形象增光添彩！共产党的经济和国际关系！即将崩塌。新中国联邦人一定要抓住这个机会，建立一个新的世界上的正面的中国人的良好国际形象！
-![img](https://media.gettr.com/group14/getter/2022/03/21/12/36b2e5dc-7b94-a0b6-ec85-c39122b8b51b/out.jpg)
 
 ---
 
