@@ -2,31 +2,39 @@
 ---
 
 
-## 视频|郭先生解析中共与美国差距的根源
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2211308/)
+## 有声|欧盟峰会将讨论设立乌克兰团结基金
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211452/)
 
-制作：香草山视频部
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据国外媒体消息，欧盟理事会3月18日晚间表示，将于下周的欧盟领袖峰会上，讨论设立“乌克兰团结基金”事项。
 
-郭文贵先生在3月20日的大直播中，解析了中共与美国差距的根源是基于各自的体制。
+欧盟理事会主席米歇尔指出，欧盟规划设立乌克兰团结基金，是为了协助乌克兰筹集当前的国防和民生，以及战后重建所需资金，并呼吁国际社会为该基金踊跃捐款。另有欧盟官员补充说，米歇尔当日与乌克兰总统泽连斯基通话后认为，由于目前乌克兰无法在国际金融市场发行债券融资，而且战乱导致了大量外资撤离，因此欧盟准备设立一个基金，以维持乌克兰的国防战斗力。
 
-郭先生首先强调，全世界所有的政治家都绕不开权力的诱惑。而人民对任何政治家的信任和幻想，都会导致灾难。人们必须清楚，人的一生时间有限，同时面对权力、金钱并抵挡诱惑的能力也是有限的。
+据悉，美国总统拜登下周也将出席欧盟及北约峰会，与各国领导人讨论形势，并展现对盟国钢铁般坚定的承诺。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-10.jpg)
 
-郭先生还谈到，美国的强大和伟大，不在于历史上出现过多少受人尊敬的总统，而在于华盛顿创建美国时建立起来的，立法、行政、司法的三权鼎立的政治系统。并且基于这个系统，广泛吸引全世界的人才和精英，创建了许多影响人类生活方式的公司。
 
-而反观中共所统治的中共国，不仅没有吸引任何世界人才的手段，甚至对自己本国的精英都赶尽杀绝。因为逆淘汰的体制，很多有才、有抱负的新中国联邦战友纷纷出国寻求发展。并且在中共国内曾经风生水起的企业家，也只能昙花一现，在成功之后往往都会殒命。
 
-郭先生指出，在中共国不成功的人只能当奴隶，成功之人则因财富招致杀身之祸。而这也解释了为什么从2017年爆料革命开始以来，郭先生反复强调，我们不只是要消灭共产党，还要清除它在中国大地上建立的体制和埋下的毒。
 
-发稿：Daxia
+文字版原文：[欧盟峰会将讨论设立乌克兰团结基金](https://gnews.org/zh-hans/2201385/)
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

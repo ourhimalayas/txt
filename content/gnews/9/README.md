@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|英国前首相称普京应受到纽伦堡大审判
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211225/)
+## 视频|中共攻打台湾几乎不可能引发第三次世界大战
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2211271/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月19日外媒报道，英国前首相布朗、梅杰等140位学术、法律和政治界人士，联名呼吁设立一个类似当年审判德国纳粹的纽伦堡军事法庭，来清算普京等俄罗斯政府官员和机构，所犯下的战争罪行。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-44.jpg)
-布朗表示，自从柏林墙倒塌后，民主和法治在世界范围内获得共识，但是普京却妄图用武力来颠覆二者。他认同拜登定义普京为“战犯“的说法，并强调说，如果国际社会现在没有做出表态，那么其他意图发动侵略战争的国家，也将不会受到惩罚。
+制作：香草山视频部
 
-据悉，目前国际刑事法院已经针对普京的战争罪嫌疑展开调查，但该法院必须得到联合国安理会的转介，才能调查侵略罪，而俄罗斯作为安理会常任理事国，拥有否决权。
+在3月20日的大直播中，郭文贵先生表示，习近平攻打台湾而引发第三次世界大战的可能性极小，而美国会毫无悬念的成为最后赢家。
+郭先生认为，在中共攻打台湾的时候，其他的邪恶国家诸如朝鲜、伊朗同时发动战争，从而引发所谓的第三次世界大战的可能性微乎其微，因为美国的实力对付这些流氓国家绰绰有余，只是损失大小的问题。虽然邪恶轴心国可以挑起战争，但是战争结束的时间和方式却由美国决定。
+至于巴基斯坦的伊姆兰.汗，以及伊朗的哈梅内伊等与中共亲近的独裁者，很快会被消灭。而普京也用铁的事实验证了一个道理，即相信共产党，必然走进火葬场。
 
+发稿：Daxia
 
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-文字版原文：[英国前首相称普京应受到纽伦堡大审判](https://gnews.org/zh-hans/2204787/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
