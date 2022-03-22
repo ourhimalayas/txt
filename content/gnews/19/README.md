@@ -2,23 +2,22 @@
 ---
 
 
-## 國際｜歐洲理事會批准戰略指南 擬組建快速反應部隊
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208866/)
+## 日本不再限制密接者和无症状者的行为自由
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2209205/)
 
-**撰文/ 港台前線｜發佈日期/ 22/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-21.png)**更多資訊請關注官方蓋特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
-外媒21日報導，歐盟外交和國防部長在布魯塞爾舉行會議，基於俄烏戰爭提出一份戰略指南，旨在建立該指南列出了歐盟未來 5 到 10 年的安全方針，並要求組建快速反應部隊，兵力達5000人，增加戰爭時歐盟的軍事影響力，以便在危機發生後迅速部署。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-37.png)图片来源于本文链接
+日本政府上周，向全国发布通知，关于奥密克戎病毒流行期间的工作场所和学校等密切接触者的特定和行为不再受限制。冲绳县知事3月20日召开的专家会议上，讨论了基于国家方针的县的独特应对方针。决定在奥米克戎病毒流行期间，一般事业所和学校等地的密切接触者、无症状者不再进行特定和行为的限制。县的方案是同居家庭的密切接触者特定与以往一样由保健所判断。
 
-歐洲理事會新聞稿指出，**理事會**正式**批准了《戰略指南》**，為歐盟制定了一項**雄心勃勃的行動計劃，旨在到 2030 年加強歐盟的安全和國防政策**，增強應變能力、防禦能力。組建快速反應部隊，在俄羅斯對烏克蘭進行無理無端的侵略以及重大地緣政治轉變之後，當戰爭重新回到歐洲時，這一點就顯得尤為重要。
+一般事业所、保育所、幼儿园、小学、初中、高中等不指定，也不限制无症状者的行为。但是，如果从儿童、学生中出现阳性者的话，学校PCR检查会照以往一样进行，另外，在感染状况下阳性率高的托儿所、幼儿园、学校等在发现阴性之前，在家里进行等待。其目的是通过放宽政策，改善保健所的人员紧张，刺激经济活动，还有保障学校学习，这一点在专家会议上普遍得到了认可。
 
-快速反應部隊將為歐盟、全球和跨大西洋安全做出積極貢獻，並與北約互補，北約仍然是其成員集體防禦的基礎，部隊組建並非有意與美國的軍事聯盟競爭。
+消息来源：
 
-而德國國防部長克里斯汀·蘭布雷希特在記者會上表示，德國有意成為快速反應部隊的核心，已經做好相關準備，並承諾承諾德國將資助歐盟對烏克蘭的新軍事援助計劃的四分之一，價值 5 億歐元。歐盟領導人預計將在週四和週五在布魯塞爾舉行的峰會上簽署這項被稱為「戰略指南針」的安全戰略。
+[オミクロン株の濃厚接触者は特定しない方針](https://www.qab.co.jp/news/20220321148985.html)
 
-
-
-來源｜[彭博社](https://www.bloomberg.com/news/newsletters/2022-03-21/russian-invasion-brings-european-army-closer-brussels-edition)、[EURACTIV](https://www.euractiv.com/section/politics/short_news/germany-wants-to-be-at-core-of-new-eu-rapid-response-capacity/)、[歐洲理事會](https://www.consilium.europa.eu/en/press/press-releases/2022/03/21/a-strategic-compass-for-a-stronger-eu-security-and-defence-in-the-next-decade/)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

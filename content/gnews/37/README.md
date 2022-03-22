@@ -2,29 +2,32 @@
 ---
 
 
-## 郭先生解析中共与美国差距的根源
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208015/)
+## 亚洲数字银行推出A-Bank超级钱包
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208230/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-郭文贵先生在3月20日的大直播中，解析了中共与美国差距的根源是基于各自的体制。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-郭先生首先强调，全世界所有的政治家都绕不开权力的诱惑。而人民对任何政治家的信任和幻想，都会导致灾难。人们必须清楚，人的一生时间有限，同时面对权力、金钱并抵挡诱惑的能力也是有限的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-71.jpg)
-郭先生还谈到，美国的强大和伟大，不在于历史上出现过多少受人尊敬的总统，而在于华盛顿创建美国时建立起来的，立法、行政、司法的三权鼎立的政治系统。并且基于这个系统，广泛吸引全世界的人才和精英，创建了许多影响人类生活方式的公司。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/A_BANK.jpeg)图片来源：www.bernama.com
+根据The Paypers3月21日报道，亚洲数字银行（Asia Digital Bank）宣布推出其A-Bank超级钱包，这是一款将传统金融服务与数字服务相结合的电子钱包。
 
-而反观中共所统治的中共国，不仅没有吸引任何世界人才的手段，甚至对自己本国的精英都赶尽杀绝。因为逆淘汰的体制，很多有才、有抱负的新中国联邦战友纷纷出国寻求发展。并且在中共国内曾经风生水起的企业家，也只能昙花一现，在成功之后往往都会殒命。
+A-Bank超级钱包利用区块链点对点交易的概念、分布式账本和存储系统、加密算法和共识协议的概念，为跨境贸易和服务提供高效的支付解决方案和快速转账。
 
-郭先生指出，在中共国不成功的人只能当奴隶，成功之人则因财富招致杀身之祸。而这也解释了为什么从2017年爆料革命开始以来，郭先生反复强调，我们不只是要消灭共产党，还要清除它在中国大地上建立的体制和埋下的毒。
+该超级钱包声称是第一个提供法币和数字货币之间交换功能的电子钱包。其用户能够完全控制他们在电子钱包上的所有资产。A-Bank超级钱包的核心功能允许在岸和离岸存款、取款，以及实物货币和数字货币之间的兑换。
 
-参考链接：[2022年3月20日 文贵大直播](https://www.gettr.com/streaming/p10y5j870c5)
+在其第一阶段的运作中，A-Bank超级钱包支持五种货币，其中包括马币、新币、美元、人民币和港币及稳定币，如USDT和USDC。更多的法定货币和数字货币将在第二阶段加入，为用户提供更多选择。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+据亚洲数字银行称，用户可以灵活选择通过银行转账、电汇、Visa、万事达、JCB、银联国际、PayPal、支付宝全球、微信全球等方式完成离线或在线交易，如充值和提款。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源：[Asia Digital Bank launches its A-Bank Super Wallet](https://thepaypers.com/online-mobile-banking/asia-digital-bank-launches-its-a-bank-super-wallet--1255261)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

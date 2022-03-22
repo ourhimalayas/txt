@@ -2,36 +2,30 @@
 ---
 
 
-## 中日财经爆|客机坠毁 东航港股和美股暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207773/)
+## 郭先生解析中共与美国差距的根源
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208015/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/客机坠毁-东航港股和美股暴跌.png)[图片来源](https://gnews.org/wp-admin/post-new.php#/media/File:Airbus_A321-211,_China_Eastern_Airlines_JP6772920.jpg)
-3月21日，中国东方航空一架载有132人的波音737客机，在广西梧州市藤县坠毁，消息传出后，去年巨亏的东航港股和美股双双暴跌。
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在3月20日的大直播中，解析了中共与美国差距的根源是基于各自的体制。
 
-3月21日尾盘，中国东方航空股份港股跳水大跌6.46%，报2.75港元/股，总市值1103亿港元。
+郭先生首先强调，全世界所有的政治家都绕不开权力的诱惑。而人民对任何政治家的信任和幻想，都会导致灾难。人们必须清楚，人的一生时间有限，同时面对权力、金钱并抵挡诱惑的能力也是有限的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-71.jpg)
+郭先生还谈到，美国的强大和伟大，不在于历史上出现过多少受人尊敬的总统，而在于华盛顿创建美国时建立起来的，立法、行政、司法的三权鼎立的政治系统。并且基于这个系统，广泛吸引全世界的人才和精英，创建了许多影响人类生活方式的公司。
 
-美股方面，东方航空盘前大跌超18%，截至发稿报19.03美元/股，总市值71.84亿美元。
+而反观中共所统治的中共国，不仅没有吸引任何世界人才的手段，甚至对自己本国的精英都赶尽杀绝。因为逆淘汰的体制，很多有才、有抱负的新中国联邦战友纷纷出国寻求发展。并且在中共国内曾经风生水起的企业家，也只能昙花一现，在成功之后往往都会殒命。
 
-业绩方面，由于受疫情及油价波动双重影响，航空业仍面临严峻挑战。
+郭先生指出，在中共国不成功的人只能当奴隶，成功之人则因财富招致杀身之祸。而这也解释了为什么从2017年爆料革命开始以来，郭先生反复强调，我们不只是要消灭共产党，还要清除它在中国大地上建立的体制和埋下的毒。
 
-东航预计，2021年归属于上市公司股东的净利润约-110亿元至-135亿元，扣非后归属于上市公司股东的净利润约为人民币-122亿元至-147亿元。
+参考链接：[2022年3月20日 文贵大直播](https://www.gettr.com/streaming/p10y5j870c5)
 
-2020年更是重创。根据财报，东航2020年营收586亿元，同比下滑51.48%；归母净利润亏损118亿元，同比下滑470%。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-截至2021年末，基金共持有中国东航3.8亿股股份，持股比例合计3.91%。
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/客机坠毁-东航港股和美股暴跌2.png)
-
-具体来看，共有21只基金重仓中国东航。其中广发基金12只基金重仓该股，广发基金王明旭管理的6只基金合计买入该股超过2.3亿股，林英睿管理的4只基金也合计买入超1.1亿股。
-
-3月21日，Wind航空指数收跌0.88%，吉祥航空（603885.SH）跌2.27%、南方航空（600029.SH）、\*ST海航（600221.SH）等多家下跌。
-
-消息来源：[**股价大跳水！东航预计2021年亏损147亿元，21只基金重仓**](https://www.tfcaijing.com/article/page/4865624c634631745673357a71373770615647592f673d3d)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

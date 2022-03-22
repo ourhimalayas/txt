@@ -2,34 +2,79 @@
 ---
 
 
-## 俄媒称俄军阵亡近一万人伤超一万六 文章遭下架
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2207974/)
+## 普京和他的暴徒们正在做的是种族灭绝。美国必须立即向乌克兰 提供他们赢得这场暴力战争所需的所有资源和飞机。
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2208164/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.58.49.png)图片来源：互联网
-一家亲克里姆林宫的俄罗斯媒体报道，引用俄国防部数据，自俄罗斯入侵乌克兰以来，武装部队阵亡近10,000人，受伤超16,000人，远超俄此前公开承认498人。
-
-据共青团真理报（Komsomolskaya Pravda）周日发布的一篇报道，引用俄罗斯国防部数据称，俄武装部队阵亡9,861人，受伤16,153人。随后这篇文章很快就被删除，但文章的原始版本也被存档。【1】
+参议员瑞克·斯科特: 令人心碎而可怕的损失。 普京和他的暴徒们正在做的是种族灭绝。 美国必须立即向乌克兰提供他们赢得这场暴力战争所需的所有资源和飞机。 【转以色列时报：96岁的 (二战纳粹)大屠杀幸存者，在俄罗斯炮击哈尔科夫时丧生】
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.03.29.png)图片来源：互联网
-该报声明称：“他们遭遇黑客”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.05.49.png)图片来源：互联网
-美国估计俄罗斯军队损失人数是 7,000 人。
 
-据乌克兰武装部队总参谋部周一（20日）在Facebook发布的数据显示，从2月24日到3月20日，俄罗斯军队人员阵亡约14700人。
+> A heartbreaking and horrifying loss. What Putin & his thugs are doing is genocide. The United States must IMMEDIATELY give Ukraine all the resources & access to the planes they need to win this violent war. [https://t.co/d59OghEwcD](https://t.co/d59OghEwcD)
+> — Rick Scott (@SenRickScott) [March 21, 2022](https://twitter.com/SenRickScott/status/1506025185463394306?ref_src=twsrc%5Etfw)
 
-此前，俄罗斯3月2日公开承认其侵略乌克兰的军队阵亡498人。1979 年入侵阿富汗后，约有 15,000 名苏联士兵在阿富汗阵亡。【2】
 
-参考链接：
 
-【1】[国防部报告说，俄罗斯军队正在完成对民族主义营“顿巴斯”的击败](https://web.archive.org/web/20220321131726/https://www.kp.ru/online/news/4672522/)
+众议院共和党人： 必须阅读众议员史蒂夫·斯卡利斯[@SteveScalise](https://gettr.com/user/SteveScalise) 关于拜登在世界舞台上的软弱和反能源议程的观点文章： “当美国在能源上不再独立时，我们的国家和世界变得更加脆弱，更加依赖于坏分子。” **⬇️** 【附福克斯新闻：停止拜登对石油、天然气的战争——通过让美国、欧洲能源独立来对抗普京 美国可以再次成为全球能源领导者，为美国人和我们的盟友提供可靠的能源（斯卡利斯议员观点文章）】
 
-【2】[独家：俄罗斯透露，它已经有近 10,000 名士兵丧生，另有 16,000 人受伤 – 但英国情报报告称，普京也在取得重大突破](https://www.dailymail.co.uk/news/article-10637425/Russia-loses-10-000-men-just-four-weeks-toll-Ukraine-invasion-revealed.html)
 
-* * *
 
-*编辑&发布：长岛开心*
+> MUST READ from [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) on Biden's weakness on the world stage and anti-energy agenda:
+> 
+> “When the United States is no longer energy independent, our country and the world become more vulnerable and more dependent on bad actors.” ⬇️[https://t.co/Rhi0Woaf06](https://t.co/Rhi0Woaf06)
+> — House Republicans (@HouseGOP) [March 21, 2022](https://twitter.com/HouseGOP/status/1506026614789922823?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯.古登： 普京以真相为由禁止俄罗斯人使用推特。 推特因一个笑话暂停了[@TheBabylonBee](https://twitter.com/TheBabylonBee)。 大科技公司喜欢表现得像个独裁者。
+
+
+
+> Putin banned Russians from Twitter over the truth.
+> 
+> Twitter suspended [@TheBabylonBee](https://twitter.com/TheBabylonBee?ref_src=twsrc%5Etfw) over a joke.
+> 
+> Big Tech loves acting like a dictator.
+> — Lance Gooden (@Lancegooden) [March 21, 2022](https://twitter.com/Lancegooden/status/1506042135174393865?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥： 通货膨胀每天都在杂货店和加油站那里影响着美国人。 保守的政策是解决这场经济危机的答案。 我们需要在今年 11 月的选票中选出强大的保守派。
+
+
+
+> Inflation is impacting Americans every day at the grocery store and gas station. Conservative policies are the answer to solving this economic crisis. We need to elect strong conservatives down the ballot this November.
+> — Mike Pompeo (@mikepompeo) [March 21, 2022](https://twitter.com/mikepompeo/status/1506030135547502597?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院发言人内德·普莱斯： 乌克兰赫尔松手无寸铁的平民和平抗议俄罗斯的占领。俄罗斯军方的回应？向人群投掷手榴弹并射击。我们谴责克里姆林宫以平民为目标,并呼吁普京结束他的选择之战。[#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
+
+
+
+> Unarmed civilians in Kherson, Ukraine peacefully protest the Russian occupation. The Russian military’s response? Throwing a grenade and shooting into the crowd. We condemn the Kremlin’s targeting of civilians and call on Putin to end his war of choice. [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/A1P5RAq2HH](https://t.co/A1P5RAq2HH)
+> — Ned Price (@StateDeptSpox) [March 21, 2022](https://twitter.com/StateDeptSpox/status/1506032906447294470?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 我们绝不能忽视 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。他正在观察弗拉基米尔·普京(的行动)，还在认真做笔记。 【附Foxnews的文章：美国海军上将称 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 已将南海岛屿完全军事化】
+
+
+
+> We cannot take our eye of Xi Jingping and China. He’s watching Vladmir Putin and he’s taking notes.[https://t.co/dpPAJFApc0](https://t.co/dpPAJFApc0)
+> — Rep. Brian Mast (@RepBrianMast) [March 22, 2022](https://twitter.com/RepBrianMast/status/1506074933172088836?ref_src=twsrc%5Etfw)
+
+
+
+众议员马特·盖茨： 当人们醒来时，他们担心自己的工作、油价，以及送孩子去上学的能力因为蝠奇博士想要关闭学校。 美国的封锁和剥夺自由应该比以往更加受到国会的重视。
+
+
+
+> When folks are waking up, they're worried about their jobs, gas prices, and the ability to send their kids to schools that Dr. Fauci wants to close.
+> 
+> Lockdowns and deprivation of liberty in America ought to be more at the forefront of the minds of Congress than they have been. [pic.twitter.com/docBSgZK3F](https://t.co/docBSgZK3F)
+> — Rep. Matt Gaetz (@RepMattGaetz) [March 22, 2022](https://twitter.com/RepMattGaetz/status/1506093259021598721?ref_src=twsrc%5Etfw)
+
+
 
  
 

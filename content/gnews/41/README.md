@@ -2,40 +2,29 @@
 ---
 
 
-## 俄罗斯可能将对美国发动网络攻击
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2207918/)
+## 人类未来的去中心化货币叫做躺平币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208016/)
 
-By：喜国公民
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月20日，郭先生在大直播中透露，未来会有一个真正的去中心化货币，就是躺平币。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+据悉，从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付购买任何所需。另外，其转账功能不受任何限制，安全加密无人监管。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2477.png)图片来自网络
-由于俄罗斯入侵乌克兰，西方国家对俄罗斯发起了历史上最严厉的制裁。面对西方的制裁，俄罗斯总统普京并没有让步。事实上，他正在变得更加疯狂，扬言要让西方世界承受代价。
+目前，第二代技术的交易成本是300-3000美金，即将到来的第三代成本为0.3美金。而随着区块链加密技术的逐渐成熟，交易成本将低至0.3分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-72.jpg)
+现在，世界上的法币大多数是分地域，被国家和组织垄断并强制人们使用，定价权被牢牢掌控在权力手中。此外，法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。
 
-美国总统拜登周一警告说，俄罗斯将对美国进行网络攻击。他认为俄罗斯的网络能力的规模是相当大的，最有可能使用的工具之一就是网络攻击。拜登敦促美国公司，立即加强网络防御。
+因此，郭先生表示，躺平币回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，使用即是价值。
 
-美国负责网络和新兴技术的国家安全副顾问安妮·纽伯格警告说，俄罗斯政府正在考虑对美国关键基础设施进行潜在网络攻击。
+参考链接：[大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://gettr.com/post/p10y5j870c5)
 
-然而，美国战略与国际研究中心技术主任詹姆斯·刘易斯认为，俄罗斯发起的网络攻击更可能是针对脆弱的第三方和关键的供应链。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-美国联邦机构已召集了多家美国公司，分享关于俄罗斯潜在网络攻击的新情报，并给企业提供了加强网络安全的工具。
-
-目前，美国还没得到情报证明具体的网络攻击，但正在积极地做好一旦遭受攻击的准备。美国政府将使用各种工具来阻止针对关键基础设施的网络攻击。
-
-历史上，俄罗斯在与其它国家的冲突中曾经展示过它的网络攻击能力。早在2008年，俄罗斯入侵格鲁吉亚和2014年入侵克里米亚时，乌克兰就成为俄罗斯网络行动的受害者。在2015年和2016年，由俄罗斯发动的网络袭击使乌克兰的电力中断了几个小时。
-
-俄罗斯有能力使用网络战来破坏对手的通信、组织和供应，这使得许多人预计它将在这场俄乌战争中部署这种策略。
-
-消息来源：[Biden warns Russian cyberattacks ‘coming’](https://www.politico.com/news/2022/03/21/biden-russia-cyberattacks-00018942)
-
-[Where is Russia’s cyberwar? Researchers decipher its strategy](https://www.nature.com/articles/d41586-022-00753-9)
-
-*审核：喜国公民*
-
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

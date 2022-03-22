@@ -2,29 +2,27 @@
 ---
 
 
-## 人类未来的去中心化货币叫做躺平币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208016/)
+## 国际｜俄罗斯地方法院裁定脸书母公司Meta为极端组织
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208301/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月20日，郭先生在大直播中透露，未来会有一个真正的去中心化货币，就是躺平币。
+**图/文：CP**
+**发布时间｜22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄羅斯地方法院裁定臉書母公司Meta為極端組織.jpg)
 
-据悉，从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付购买任何所需。另外，其转账功能不受任何限制，安全加密无人监管。
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-目前，第二代技术的交易成本是300-3000美金，即将到来的第三代成本为0.3美金。而随着区块链加密技术的逐渐成熟，交易成本将低至0.3分。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-72.jpg)
-现在，世界上的法币大多数是分地域，被国家和组织垄断并强制人们使用，定价权被牢牢掌控在权力手中。此外，法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。
 
-因此，郭先生表示，躺平币回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，使用即是价值。
+俄罗斯莫斯科维特尔地方法院周一(21日)裁定Meta从事“极端活动”罪成，旗下脸书及Instagram(IG)为“极端组织”，禁止在俄罗斯运作。这是当地首次对海外科技企业，使用针对极端主义罪行的法律。
 
-参考链接：[大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://gettr.com/post/p10y5j870c5)
+Meta的律师庭上指，俄方没有权限裁定案件，因为Meta是海外注册公司，在当地没有业务，Meta暂时未就案件裁决作出回应，亦未知是否上诉。不过，Meta旗下即时通讯软件WhatsApp暂时不受影响，因为这款软件未有用作发布公开声明。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+自俄罗斯入侵乌克兰后，脸书因限制用户接触俄罗斯传媒，早前已被俄罗斯当局禁制，逾8,000万名用户受影响。Meta其后放宽仇恨言论政策，容许乌克兰等12个国家或地区用户发布对俄罗斯总统普京及俄罗斯士兵使用暴力言论，IG随后亦被封禁。Meta其后修订指引，禁止用户发布威胁暗杀国家元首的帖文。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+**来源｜**[**路透社**](https://www.reuters.com/technology/meta-asks-russian-court-dismiss-proceedings-extremism-case-reports-2022-03-21/)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

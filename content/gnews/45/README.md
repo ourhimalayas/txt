@@ -2,28 +2,40 @@
 ---
 
 
-## 新中国联邦和法治基金驻波兰梅迪卡营地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207175/)
+## 俄罗斯可能将对美国发动网络攻击
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2207918/)
 
-作者、编辑：Candy
+By：喜国公民
 
-这两天俄乌局势稍有缓解，波兰梅迪卡救援中心的难民明显少了很多，有些难民正在返回家园的路上，这也让我们新中国联邦在营地努力工作着的战友们临时舒缓了一下。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-到目前为止，战友们已在营地辛苦了三、四周的时间。让我们通过前线记者拍下的珍贵照片，大概了解一下他们冒着被中共病毒感染的风险、在寒冷的天气里工作的情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/航拍营地-1.png)航拍新中国联邦驻波兰梅迪卡营地。![](https://assets.gnews.org/wp-content/uploads/2022/03/七星大帐蓬4.jpg)
-我们共有三个帐篷，其中一个200多平米的“七星大帐篷”是整个救援中心里最大的，也是设施最全、功能最多、最温暖的帐篷。里面按功能分区管理，有食物饮品区、休息区、儿童娱乐区等，全部电力由六台发电机提供。有三个强力制暖机器、八个室外用的暖炉、商用现磨咖啡机、BBQ用炉子等，全部是由法治基金提供。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/帐篷logo.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/夜间大帐蓬2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/夜间大帐蓬6-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/钢琴家2.jpg)![Image](https://media.discordapp.net/attachments/950448401529577502/955682285347278888/IMAGE_2022-03-22_002008.jpg?width=656&amp;height=369)![](https://assets.gnews.org/wp-content/uploads/2022/03/衣物1.jpg)好心人捐献的衣物
-很多国家的媒体到我们的营地采访，了解新中国联邦和法治基金及其理念、来此的原因：我们的目标是消灭中共，因为中共是一切罪恶的根源；我们要实现每个中国人人手一票的民主、法治、自由的新中国，只有新中国联邦才是新中国的代表。我们到这里就是要援助被俄罗斯入侵、正遭受战争苦难的乌克兰人民。
-![Image](https://media.discordapp.net/attachments/950448401529577502/955251786611052604/image0.jpg?width=656&amp;height=369)战地记者Nicole接受日本记者采访![Image](https://media.discordapp.net/attachments/950448401529577502/955632073845141544/image.png?width=656&amp;height=369)我们新中国联邦人在营地的所有用电，包括三个帐篷的用电都来源于这样的六台发电机。![Image](https://media.discordapp.net/attachments/950448401529577502/955232684567838740/image0.jpg?width=656&amp;height=369)![](https://assets.gnews.org/wp-content/uploads/2022/03/营地补给2.jpg)法治基金为难民们提供的免费食物和饮用水![Image](https://media.discordapp.net/attachments/950448401529577502/955237324130758676/image0.jpg?width=656&amp;height=369)每小时冲制124杯，6000欧元的商用咖啡机，提供免费现磨咖啡，堪称营地脍炙人口的明星。![Image](https://media.discordapp.net/attachments/950448401529577502/955670238043713557/image.png?width=656&amp;height=369)好心人捐献的新鲜出炉的面包和热汤![Image](https://media.discordapp.net/attachments/950448401529577502/955237278328954911/image0.jpg?width=656&amp;height=369)为孩子们提供短暂娱乐、母亲们稍事休息的儿童娱乐角![Image](https://media.discordapp.net/attachments/950448401529577502/955655628498542663/image.png?width=656&amp;height=369)强力制暖机（又称手电筒）![Image](https://media.discordapp.net/attachments/950448401529577502/955234409412444240/IMAGE_2022-03-20_184027.jpg?width=656&amp;height=369)乌克兰难民来七星帐篷休息时的状况![](https://assets.gnews.org/wp-content/uploads/2022/03/七星大帐蓬12.jpg)新中国联邦人的努力让联合国NGO在梅迪卡的救援中心的人看在眼里，他们组织了人力物力，现正在铺路，为新中国联邦的志愿者们创造更好的自然条件
-我们的正义行动得到了正义的记者们的赞扬和支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2477.png)图片来自网络
+由于俄罗斯入侵乌克兰，西方国家对俄罗斯发起了历史上最严厉的制裁。面对西方的制裁，俄罗斯总统普京并没有让步。事实上，他正在变得更加疯狂，扬言要让西方世界承受代价。
 
-发布：Candy
+美国总统拜登周一警告说，俄罗斯将对美国进行网络攻击。他认为俄罗斯的网络能力的规模是相当大的，最有可能使用的工具之一就是网络攻击。拜登敦促美国公司，立即加强网络防御。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+美国负责网络和新兴技术的国家安全副顾问安妮·纽伯格警告说，俄罗斯政府正在考虑对美国关键基础设施进行潜在网络攻击。
+
+然而，美国战略与国际研究中心技术主任詹姆斯·刘易斯认为，俄罗斯发起的网络攻击更可能是针对脆弱的第三方和关键的供应链。
+
+美国联邦机构已召集了多家美国公司，分享关于俄罗斯潜在网络攻击的新情报，并给企业提供了加强网络安全的工具。
+
+目前，美国还没得到情报证明具体的网络攻击，但正在积极地做好一旦遭受攻击的准备。美国政府将使用各种工具来阻止针对关键基础设施的网络攻击。
+
+历史上，俄罗斯在与其它国家的冲突中曾经展示过它的网络攻击能力。早在2008年，俄罗斯入侵格鲁吉亚和2014年入侵克里米亚时，乌克兰就成为俄罗斯网络行动的受害者。在2015年和2016年，由俄罗斯发动的网络袭击使乌克兰的电力中断了几个小时。
+
+俄罗斯有能力使用网络战来破坏对手的通信、组织和供应，这使得许多人预计它将在这场俄乌战争中部署这种策略。
+
+消息来源：[Biden warns Russian cyberattacks ‘coming’](https://www.politico.com/news/2022/03/21/biden-russia-cyberattacks-00018942)
+
+[Where is Russia’s cyberwar? Researchers decipher its strategy](https://www.nature.com/articles/d41586-022-00753-9)
+
+*审核：喜国公民*
+
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
 
  
 
