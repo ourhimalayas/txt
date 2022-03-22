@@ -2,41 +2,41 @@
 ---
 
 
-## 巴西最高法院的裁决禁止使用Telegram
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2211699/)
+## 中共国房地产巨头恒大在香港停牌
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2211731/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-![](https://9to5mac.com/wp-content/uploads/sites/6/2019/06/DDOS-attack.jpg?quality=82&amp;strip=all&amp;w=1500)图片来源：网络 
+编译：七龙珠
 
-9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-22-171441.jpg)图片来源：cincodias.elpais.com
 
-巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
+中共国房地产巨头恒大今天因发布“内幕消息”而冻结了其在香港证券交易所的股票交易。
 
-当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
+同时停牌的还有恒大在香港上市的两家子公司，恒大物业管理子公司和恒大新能源的电动汽车制造公司。
 
-巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
+停牌前，恒大股价为1.65港元。今年到目前为止该公司的股票已经升值了近4%，而在去年，其价值几乎损失了90%。
 
-目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
+这些简短的公报没有公布何时将恢复交易的信息。
 
-新闻来源：[https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/](https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/)
+据说恒大周四完成了在东部城市江苏省省会南京市一家开发商的30%股份出售，尽管交易的细节还不清楚。
 
-编辑/校对/发稿：小小安
+同一媒体还报道，该集团与价值40亿元人民币（6.28亿美元）的在岸债券的债权人举行了一次会议，会上同意将2020年9月至2021年之间应计利息的支付推迟到今年九月。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-315.jpeg)
+此外，值得一提的是，下周三（3月23日），恒大将在新加坡证券交易所上市的债券中支付约21亿美元。
 
-**更多资讯，更多关注**
+对该公司财务状况的担忧在2021年下半年明显增加，当时恒大累计负债超过3000亿美元，开始显示出无力支付其境外债券的迹象。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+事实上，惠誉等一些主要评级机构在12月表示，他们已经认为恒大以及凯撒等其他中共国开发商，已经拖欠了部分境外债务。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+中共政府于2020年8月宣布限制恒大等开发商获得银行融资后，许多中共国房地产公司的财务状况恶化，这些开发商多年来通过杠杆政策泡沫化增长，积累了大量的债务。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+新闻来源：[cincodias.elpais.com ][El gigante inmobiliario chino Evergrande suspende su cotización en Hong Kong](https://cincodias.elpais.com/cincodias/2022/03/21/mercados/1647850882_560987.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

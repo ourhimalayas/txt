@@ -2,41 +2,34 @@
 ---
 
 
-## 中共国房地产巨头恒大在香港停牌
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2211731/)
+## 俄乌战争很可能以普京被俄内部势力消灭为终结
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211777/)
 
-编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-22-171441.jpg)图片来源：cincodias.elpais.com
 
-中共国房地产巨头恒大今天因发布“内幕消息”而冻结了其在香港证券交易所的股票交易。
 
-同时停牌的还有恒大在香港上市的两家子公司，恒大物业管理子公司和恒大新能源的电动汽车制造公司。
 
-停牌前，恒大股价为1.65港元。今年到目前为止该公司的股票已经升值了近4%，而在去年，其价值几乎损失了90%。
 
-这些简短的公报没有公布何时将恢复交易的信息。
+俄乌战争，普京不会主动停战。两个比较大的可能：1，普京家人从中协调，双方妥协停战；2，但是，最有可能的是，俄内部势力干掉普京。
 
-据说恒大周四完成了在东部城市江苏省省会南京市一家开发商的30%股份出售，尽管交易的细节还不清楚。
+习近平和普京现在已经被世界定为独裁者和战争犯，并相信这场战争背后是中共在支持俄罗斯侵略乌克兰。如果普京被内部消灭，这对中共的 ”模范效应“是不可估计的，对墙内推翻共产党会是极大的鼓舞！
 
-同一媒体还报道，该集团与价值40亿元人民币（6.28亿美元）的在岸债券的债权人举行了一次会议，会上同意将2020年9月至2021年之间应计利息的支付推迟到今年九月。
+视频来源: 20220320—郭先生大直播
+视频制作: 文星光
+文案:文星光，梦田
 
-此外，值得一提的是，下周三（3月23日），恒大将在新加坡证券交易所上市的债券中支付约21亿美元。
+**更多资讯，更多关注**
+**[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-对该公司财务状况的担忧在2021年下半年明显增加，当时恒大累计负债超过3000亿美元，开始显示出无力支付其境外债券的迹象。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-事实上，惠誉等一些主要评级机构在12月表示，他们已经认为恒大以及凯撒等其他中共国开发商，已经拖欠了部分境外债务。
 
-中共政府于2020年8月宣布限制恒大等开发商获得银行融资后，许多中共国房地产公司的财务状况恶化，这些开发商多年来通过杠杆政策泡沫化增长，积累了大量的债务。
 
-新闻来源：[cincodias.elpais.com ][El gigante inmobiliario chino Evergrande suspende su cotización en Hong Kong](https://cincodias.elpais.com/cincodias/2022/03/21/mercados/1647850882_560987.html)
-
-* * *
-
-*审核：Aries的星
-校对：阿伯塔
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,38 @@
 ---
 
 
-## 上海某医院擅改方舱引发护士集体罢工
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211618/)
+## 【G时新闻】北约称：俄乌战争即将进入相持阶段；拜登称：俄罗斯正考虑使用生化武器！
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2211719/)
 
-作者：纽约香草山—Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-盖特网友3月21日爆料，上海周浦公立医院内发生大规模护士罢工活动，抗议医院领导在新闻发布会上直接对外宣称将该院改建为方舱医院，而院内护士们的安全健康却得不到相应保障。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.54.09.png)
-据了解，周浦医院作为一家公立的三级乙等医院，是具有综合性质的普通诊疗医院，并非符合传染病隔离标准的特殊定点医院。院内知情人员爆料，院领导为了个人上位而仓促宣布，没有经过专业评估和改建，院内的防疫条件远达不到基本的生物安全要求。
+主       播：加拿大温哥华扬帆农场 – 莉李鲤
 
-另据该院的一名护士控诉，周浦医院改建为方舱医院的决议上完全没有考虑护士的生命安全。据悉，该院要求护士进入危险污染区照顾病患，却不要求医生进入污染区内。此外，医院高层还将护士外出采样的补助全部贪污，一线护士们至今未能拿到一分钱的补贴。这是继上周上海六院护士不满院方安排的又一起医护人员抗议罢工事件。
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-参考链接：
-1.[周浦医院护士罢工，领导为了自己上位不管护士…](https://www.gettr.com/post/p1137lw98e1)
-2.[周浦医院医生护士罢工了…](https://www.gettr.com/post/p112peqb954)
+大家好！今天的主题是北约称俄乌战争即将进入相持阶段，拜登称俄罗斯正考虑使用生化武器！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+据《新闻极限》3月21日报道，一位北约高级情报官员周一告诉NBC（美国全国广播公司新闻网），俄罗斯对乌克兰的入侵要么处于相持阶段，要么即将进入相持阶段。 这位匿名情报官员说：“如果我们没有陷入僵局，我们也正在迅速接近僵局，现实情况是，双方都不具备对另一方的优势，任何一方都无法获胜，并且双方都不会认输。”。
 
-编辑：宁文静
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+这位北约官员指出，俄罗斯总统普京（Vladimir Putin）的战争在两周内没有取得重大进展，但他似乎仍然不愿意退缩。 该官员进一步声称，白俄罗斯可能很快就会加入俄罗斯的入侵行动，并准备让俄罗斯在其境内部署核武器。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+另据《新闻极限》报道，周一，拜登在一个商业圆桌会议上说，普京“没有退路，情况危急，现在他正在谈论他计划的新的栽赃行动，包括声称我们美国在欧洲有生物和化学武器，这根本就不是真的”。 拜登指出，“他们（俄罗斯）还暗示乌克兰有生物和化学武器。这是一个明显的信号，他（普京）正在考虑（在乌克兰）使用这两种武器”。
+
+文章指，拜登的这番话呼应了美国和盟国官员之前的评论，即俄罗斯散布未经证实的说法，称乌克兰有一个生物武器计划，目的是为自己发动生物或化学武器攻击寻找借口。
+
+视频链接：[https://gettr.com/post/p11abmybe32](https://gettr.com/post/p11abmybe32)
+
+编辑/上传：蔚蓝之境
+
+————————————————————————————————————
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2549.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
