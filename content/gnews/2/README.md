@@ -2,12 +2,12 @@
 ---
 
 
-## 中国的经济大佬都在跑（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207038/)
+## 七哥跟现场大卫连线直播（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207120/)
 
 #### PPT制作: 0-0 ；rmrf
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40-10-50-一-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40-10-50-四-1-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
