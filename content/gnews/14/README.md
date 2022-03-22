@@ -2,28 +2,42 @@
 ---
 
 
-## 秘翻在线: 比特币数据分析
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2212724/)
+## 国际律师协会新应用帮助乌克兰收集普京战争罪证据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2212765/)
 
-撰稿：西枫westca
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-11-1.jpg)图片来源：网络照片
-据《零对冲》3月22日报道，BanklessTimes的统计数字显示，全球的两大钱包持有全球流通中的比特币比值为1.2% 和0.8%， 即分别持有 252，597个比特币和168，010个比特币，它们分别存放在Binance和Bitfinex交易所。
+翻译：li yan li
+编辑：Mttfly
 
-综合数据还包括所有比特币持有人的更多细节。目前有超过4100万人持有比特币。对前100名持有者的分析显示，他们占14.11%，持有的比特币数量从252,597到9000个BTC币不等。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/eyeWitness_to_Atrocities.jpg)图片来源：eyeWitness&雅典娜设计组
 
-数据进一步显示，大多数的比特币大亨是固定持有人。前100个钱包的数据显示，一个多星期以来，他们持有地址没有变化。这些地址中只有少数人进行了交易，增加或减少他们钱包中的比特币数量。
-![](https://lh6.googleusercontent.com/MyIWlWpqTK1dkAkS8cGquBf8zj8Y7hUHDPAq-wvr5YDUn0LB-_DtCCggeGoSkccPR6KAm2WFk57SM5aOXmNjzlm9tVZzIfiOymTjDJp8cRFwypfcN2gKckvSi0NsX8PZ6NOQAE0rOKi4y3i7f60)
-目前的加密货币市场是动荡的，由于世界形势的变化，数字货币将采取什么方向有很多不确定性。上一周大多数钱包记录了比特币的持有量下降。在这方面，交易量最大的持有地址进行了-2950 比特币的转移。相反，最大的比特币存款达到了5200多个。
 
-数据显示，币安和OKEx是持有BTC数量最多的主要交易所。这两家交易所分别占流通比特币供应量的1.2%和1.12%。其他持有大量比特币的交易所包括Bittrex，BitMex，Bitfinex，Coincheck和Poloniex，分别持有约0.15%，0.07%，0.92%，0.16%和0.08%。其他较小的交易所持有超过96%的流通BTC。
+国际律师协会（IBA）最近开发了一款名为“暴行目击者”（eyeWitness to Atrocities）的应用程序。该程式正在将来自乌克兰战区的图片和视频片段转化为符合法律规定的高标准核查格式。
 
-在总共2100万比特币供应中，90%已经提取完成。因此，我们可以预期，随着未来几年越来越多的人意识到数字货币，持有比特币地址的数量将会增加。
+国际刑事法院首席检察官、英国大律师卡里姆·汗（Karim Khan）本月表示，他已开始对俄罗斯于2月24日开始入侵乌克兰一事进行调查。
 
-BanklessTimesBank 自2012年以来，致力提供另类金融行业的最新新闻和信息内容。其新闻报道横跨整个加密领域，提供关于加密货币、NFTs、ICOs、金融技术及区块链的最新的信息。
+总部设在伦敦的eyeWitness主任温迪·贝茨（Wendy Betts）说，由于围绕乌克兰战争的虚假信息太多，记录者面临的一个挑战是捕捉可靠的潜在照片和视频证据。虽然个人为收集这些信息所冒的风险很大，但重要的是这些信息可以用来寻求正义。
 
-**新闻来源：**[Top 2 Richest BTC Wallets Hold 2% Of All Bitcoins | ZeroHedge](https://www.zerohedge.com/crypto/top-2-richest-btc-wallets-holds-2-all-bitcoins)
+该应用程序的乌克兰资源中心正在支持“民间社会团体、记者和乌克兰平民记录潜在的战争罪行”。
+
+国际律师协会执行董事马克·埃利斯（Mark Ellis）说：“该应用程序是国际刑事法院（ICC）的一个重要调查和证据工具。该程序通过视频和图片记录罪行，在法院确保将犯有战争罪的人绳之以法中发挥重要作用。
+
+国际律师协会发布的媒体称，目击者团队正在“创建档案，以提交给国际刑事法院等法庭”。
+
+国际刑事法院有权以种族灭绝罪、战争罪、反人类罪和侵略罪起诉个人。
+
+在国际刑事法院发表报告将俄罗斯对克里米亚的吞并归类为占领后，俄罗斯于2016年退出了国际刑事法院。
+
+参考链接：[Lawyer app helps build war crimes case against Putin](https://www.afr.com/policy/foreign-affairs/lawyer-app-helps-build-war-crimes-case-against-putin-20220322-p5a6s6)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

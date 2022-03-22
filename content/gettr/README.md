@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 11:37 PM (UTC)`
+
+2022.03.22《The Fringe》Episode 152  NFSC/ROL CONTINUAM A RESGATAR UCRANIANOS
+![img](https://media.gettr.com/group49/origin/2022/03/22/23/efc5ccfd-7772-e333-865c-c097c854af83/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/22/2022 11:06 PM (UTC)`
 
 2022.03.22 NFSC News  The Significance Of The NFSC And ROLF’s Ukraine Rescue Operations； UN’s Statistics on Ukrainian Civilians Fleeing From Their Homes
@@ -146,13 +153,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 【Ukraine Rescue】03/19/2022 Nicole interviews two Polish scouts from ZHR (Scouting Association of the Republic of Poland) who had taken time from school to help the refugees at Medyka. Nicole introduces that the NFSC members also love helping people. <br/><br/>【乌克兰救援】03/19/2022 妮可采访了两名来自波兰共和国童军协会的童子军，他们抽出学习时间到梅迪卡参与救助难民。妮可向他们介绍道，我们新中国联邦人也同样乐于助人。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group23/getter/2022/03/22/12/475dcd62-d13d-0eeb-25dd-b9283085a600/out.jpg)
-
----
-
-`@miles 3/22/2022 12:54 PM (UTC)`
-
-【Ukraine Rescue】03/21/2022 The number of refugees has decreased and we hope the war will end soon. Each group in the NFSC & ROLF's rescue team performs its own duties, responsible for on-site material delivery, filming equipment and live broadcast. Volunteers and security guards from the NFSC & ROLF provide services and protection to refugees in tents.<br/><br/>【乌克兰救援】2022/03/21 波乌边境Medyka难民数量有所减少，希望战争早日结束！前线救援战各个团队各司其职，负责现场物资运送和调配以及拍摄设备和直播。新中国联邦和法治基金的义工和保安为帐篷内的难民提供服务和保护。<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group45/origin/2022/03/22/12/92f98000-699f-f88b-73cd-aa1c63039b27/out.jpg)
 
 ---
 
