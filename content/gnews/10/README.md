@@ -2,11 +2,11 @@
 ---
 
 
-## 莫德维切夫的战死，把普金的心毁大了（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208638/)
+## 伊隆马斯克的雕像应该立在太阳系（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208647/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-930-940-2_3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-940-950-1.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

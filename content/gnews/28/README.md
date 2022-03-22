@@ -2,35 +2,32 @@
 ---
 
 
-## 东航空难｜搜救队伍仍未发现生还者 专家困惑坠机角度不寻常
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208077/)
+## 亚洲数字银行推出A-Bank超级钱包
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208230/)
 
-**图/文：CP**
-**发布时间｜22/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/東航空難｜搜救隊伍仍未發現生還者-專家困惑墜機角度不尋常.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/A_BANK.jpeg)图片来源：www.bernama.com
+根据The Paypers3月21日报道，亚洲数字银行（Asia Digital Bank）宣布推出其A-Bank超级钱包，这是一款将传统金融服务与数字服务相结合的电子钱包。
 
+A-Bank超级钱包利用区块链点对点交易的概念、分布式账本和存储系统、加密算法和共识协议的概念，为跨境贸易和服务提供高效的支付解决方案和快速转账。
 
-中国东方航空公司一架载有132人的波音737-800客机昨日（21日）下午在广西梧州坠毁，大批救援人员今日（22日）凌晨陆续赶赴现场搜救。据中共党媒报导，中共副总理刘鹤及国务委员王勇昨晚已经率领有关部门前往梧州，指导事故现场救援、善后及事故原因调查工作。目前，搜救人员在现场发现飞机残骸碎片，但未发现机上失联人员。
+该超级钱包声称是第一个提供法币和数字货币之间交换功能的电子钱包。其用户能够完全控制他们在电子钱包上的所有资产。A-Bank超级钱包的核心功能允许在岸和离岸存款、取款，以及实物货币和数字货币之间的兑换。
 
-美国国家运输安全委员会亦派出一名高级航空安全调查员，作为美国授权代表，调查有关事故。委员会指，调查将由中共民航局主导，波音、通用电气和美国联邦航空总署(FAA)的代表，将担任技术顾问，并参与调查。
+在其第一阶段的运作中，A-Bank超级钱包支持五种货币，其中包括马币、新币、美元、人民币和港币及稳定币，如USDT和USDC。更多的法定货币和数字货币将在第二阶段加入，为用户提供更多选择。
 
-根据Flightradar24的飞行跟踪数据显示，涉事飞机当时是在几秒钟内以每分钟超过 30,000 英尺的速度下降，也就是说，它在大约 1 分 35 秒的时间内下降了近 7,924.8 米。
+据亚洲数字银行称，用户可以灵活选择通过银行转账、电汇、Visa、万事达、JCB、银联国际、PayPal、支付宝全球、微信全球等方式完成离线或在线交易，如充值和提款。
 
-中国航空专家分析认为，客机当时在两分半钟内，由八千多米高空向下急坠，高速俯冲撞地，超出了飞行员能够操作的范围，怀疑当时有可能飞行员既失去了飞机的动力，也失去了控制飞机的能力，因为即使一般的技术故障也不会造成这样的现象。
+新闻来源：[Asia Digital Bank launches its A-Bank Super Wallet](https://thepaypers.com/online-mobile-banking/asia-digital-bank-launches-its-a-bank-super-wallet--1255261)
 
-此外，外媒引述经验丰富的坠机调查人员指出，虽然过去发生过几起客机从巡航高度直线坠落的事故，但几乎没有类似波音737外形的飞机发生如此极端，笔直坠落地面的事件发生。
+发布：tianzhihuan
 
-美国航空安全顾问兼前 737 飞行员约翰·考克斯向媒体表示，“这是一个奇怪的现象，很难让飞机做到垂直下降。”另一位曾驾驶过 737 飞机的 NTSB 前调查员本杰明·伯曼也认为，与其他喷气式客机一样，737-800客机的设计基本很难以陡峭的角度俯冲。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1_31.jpeg)墜機前畫面
-不过，目前关于坠机最后一刻的影像资料都来自于广西梧州市一间矿业公司的闭路电视，通过片段可以看到客机几乎垂直俯冲向地面，并且当时机头没有解体。事故发生后，东航已宣布，即日起暂时停飞所有737-800客机。
-
-来源｜[彭博社](https://www.bloomberg.com/news/articles/2022-03-21/china-jet-s-nosedive-from-29-000-feet-baffles-crash-specialists)、[新浪](https://www.sohu.com/a/531634226_116237)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

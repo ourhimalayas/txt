@@ -2,19 +2,25 @@
 ---
 
 
-## 伊隆马斯克的雕像应该立在太阳系（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208659/)
+## 有声｜一枚俄军导弹袭击了基辅的购物中心
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208664/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-940-950-3.jpeg)
-*发布：陶子*
+By:**秘翻新闻**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+**2022-03-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-53.png)图片来源 纽约时报
+[纽约时报3月21日报道，俄军的一次导弹袭击将基辅一个庞大的购物中心夷为平地。市政府官员表示，至少有八人遇难，死亡人数可能会因基辅北部Retroville购物中心的导弹爆炸而上升。导弹的威力是如此强大，以至于它震动了建筑物，并夷平了购物中心的一部分，把停车场变成了一片火海。](https://www.nytimes.com/live/2022/03/21/world/ukraine-russia-war)
 
+[周一，在罢工发生大约八个小时后，消防员仍在与火焰作斗争，而士兵和紧急救援人员则在瓦砾中寻找任何幸存者或伤亡人员。到当地时间早 8点，救援人员已经拉出六具尸体并用塑料覆盖，他们几乎找不到幸存者。](https://www.nytimes.com/live/2022/03/21/world/ukraine-russia-war)
+
+[整个基辅都参与了防御，一个曾经繁荣的大都市竟变成了堡垒。乌克兰武装部队在基辅周围发动了激烈的反攻，设法收复一些被俄军占领的地方。英国情报机构表示，俄军部队目前距离基辅市中心已经超过15英里，这座城市几乎不在炮兵射程之内，俄军转向使用火箭和导弹炸弹袭击民用基础设施和社区。](https://www.nytimes.com/live/2022/03/21/world/ukraine-russia-war)
+
+秘翻新闻 自由信仰 编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

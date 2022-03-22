@@ -2,38 +2,29 @@
 ---
 
 
-## 纳达尔公开赛中遭遇呼吸痛苦，其已接种两剂疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208309/)
+## 有声｜欧洲多国积极为乌克兰人提供就业机会
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208477/)
 
-整理/编辑：小鱼儿
+By:**秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@X8CZ6ATFIKH25A9DX.png)图片来源：雅典娜设计组&newsmd
+**2022-03-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-46.png)图片来源 纽约时报
+[纽约时报3月21日报道，随着乌克兰外流的人数越来越多，全球多个公司正在迅速提供就业机会，以帮助那些因战争而流离失所的人迅速安顿下来，并填补这些公司的劳动力短缺。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
 
+[全球最大的人力资源公司艺珂集团（Adecco ）上周推出了一个招聘网站，以将乌克兰求职者与雇主相匹配。超过 200 家公司发布了招聘信息，约有 900 名乌克兰人在该平台上注册。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
 
-据悉尼先驱晨报3月21日报道，纳达尔在法国巴黎银行公开赛中，遭遇呼吸痛苦的困扰，被弗里茨击败。去年，纳达尔已接种两剂疫苗。
+[艺珂集团的首席执行官阿兰·德海兹 表示，工作机会向乌克兰人提供了开始新生活和保障未来的能力。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
 
-即将36岁的纳达尔说：“当我试图呼吸时，它很痛，而且非常不舒服。就像里面一直有一根针。我有点头晕，因为它很痛苦。这种痛苦，很大程度上限制了我（正常发挥）。现在让我担心的事情是那里（胸口）发生了什么，我现在必须做什么才能恢复以及需要多长时间。”
+[在有超过 30万个工作岗位空缺的德国，一群企业家推出工作援助（JobAidUkraine），帮助乌克兰难民在抵达时尽快找到工作。最近一天，近 3万 名在线访问者浏览了从伦敦到里斯本的公司列出的 5千 多个职位，包括麦当劳轮班工作、人力资源专家、软件开发人员和护理助理。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
 
-在比赛中，纳达尔被迫两次医疗暂停。第一次是在他输掉第一盘后，纳达尔在拍打自己的左上胸部，在训练师的陪同下进入室内。第二次是，在第二盘5-4落后后，他在球场上接受了治疗。
+[该网站的联合创始人克里斯蒂娜-凯斯霍夫表示：我们很惊讶在每个行业都有大大小小的公司做广告，从程序员到农民再到酒吧，人们想尽其所能为乌克兰提供帮助。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
 
-今年，纳达尔以20-0的开局，包括澳大利亚公开赛。这是他的第21个大满贯冠军，打破了与诺瓦克-德约科维奇和罗杰-费德勒的平局。
+秘翻新闻 自由信仰编译报道
 
-纳达尔已经决定，跳过下周在迈阿密举行的比赛。回到西班牙的家中，准备参加5月22日开始的法国公开赛。
+发布 : 恩典
 
-参考新闻：
-
-[Nadal suffers breathing problems as winning streak comes to an end](https://www.smh.com.au/sport/tennis/swiatek-blows-away-sakkari-to-win-windswept-indian-wells-20220321-p5a6fk.html)
-
-[Rafael Nadal explains why taking vaccine was easy decision for him](https://www.tennisworldusa.org/tennis/news/Rafael_Nadal/106523/rafael-nadal-explains-why-taking-vaccine-was-easy-decision-for-him/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

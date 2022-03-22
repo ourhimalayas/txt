@@ -2,25 +2,45 @@
 ---
 
 
-## 中共攻打台湾几乎不可能引发第三次世界大战
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208007/)
+## 美国称中共在南海的3个基地现已全面军事化
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208070/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在3月20日的大直播中，郭文贵先生表示，习近平攻打台湾而引发第三次世界大战的可能性极小，而美国会毫无悬念的成为最后赢家。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-郭先生认为，在中共攻打台湾的时候，其他的邪恶国家诸如朝鲜、伊朗同时发动战争，从而引发所谓的第三次世界大战的可能性微乎其微，因为美国的实力对付这些流氓国家绰绰有余，只是损失大小的问题。虽然邪恶轴心国可以挑起战争，但是战争结束的时间和方式却由美国决定。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-69.jpg)
-至于巴基斯坦的伊姆兰.汗，以及伊朗的哈梅内伊等与中共亲近的独裁者，很快会被消灭。而普京也用铁的事实验证了一个道理，即相信共产党，必然走进火葬场。
+翻译/编辑：小红帽
 
-参考链接：[习近平打台湾引发第三次世界大战的可能性微乎其微！](https://www.gettr.com/post/p110cmpec52)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f-subeef-a-20180526-870x489-1.jpg)图片来源： www.japantimes.co.jp
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+根据自由亚洲电台3月21日报道，美国一位高级指挥官表示，中共已经将其在南海至少三个人工岛完全军事化，并为其配备了导弹系统和战斗机。
+
+美联社周日援引美国印太地区司令约翰·C·阿奎利诺（John C. Aquilino）上将的话说，在美济礁、渚碧礁和永暑礁的导弹库、飞机库、雷达系统和其他军事设施“似乎已经完成”。
+
+“这些岛屿的功能是扩大中共国的进攻能力。他们具有驾驶战斗机、轰炸机以及导弹系统的所有进攻能力，”阿奎利诺说，“中共威胁到所有在附近活动的国家以及所有国际海域和空域。”
+
+这与中共国国家主席习近平关于中共国不会将这些岛屿军事化的保证形成鲜明对比。
+
+根据总部设在华盛顿的，战略与国际研究中心的亚洲海事透明度倡议，中共自2013年以来，在南海至少开发了七个人工岛，共创造了3200英亩的新土地。
+
+这是美国官员第一次提到中共国在这些岛屿上部署战斗机，因为根据亚洲海事透明度倡议主任雷格·波林 (Greg Poling)的说法，“从来没有人在南沙群岛发现过战斗机。”
+
+2015年，在访问白宫时，习近平说：“中共国在南沙群岛进行的相关建设活动不针对、不影响任何国家，中国不打算追求军事化。”
+
+习近平还说，中共国“致力于维护南海的和平与稳定。”
+
+阿奎利诺告诉美联社，“在过去20年里，我们目睹了中共国自二战以来最大的军事集结。中共已经提高了所有能力，而武器化的积聚对该地区的稳定是不利的。”
+
+他还提到，任何飞越有争议性南海区域的军用和民用飞机“都很容易进入中共国岛屿导弹系统的射程之内。”
+
+新闻来源：[US says 3 China bases in South China Sea now fully militarized](https://www.rfa.org/english/news/china/southchinasea-militarized-03212022155943.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

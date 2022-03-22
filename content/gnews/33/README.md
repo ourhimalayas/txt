@@ -2,34 +2,25 @@
 ---
 
 
-## 俄媒称俄军阵亡近一万人伤超一万六 文章遭下架
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2207974/)
+## 中共攻打台湾几乎不可能引发第三次世界大战
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208007/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.58.49.png)图片来源：互联网
-一家亲克里姆林宫的俄罗斯媒体报道，引用俄国防部数据，自俄罗斯入侵乌克兰以来，武装部队阵亡近10,000人，受伤超16,000人，远超俄此前公开承认498人。
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在3月20日的大直播中，郭文贵先生表示，习近平攻打台湾而引发第三次世界大战的可能性极小，而美国会毫无悬念的成为最后赢家。
 
-据共青团真理报（Komsomolskaya Pravda）周日发布的一篇报道，引用俄罗斯国防部数据称，俄武装部队阵亡9,861人，受伤16,153人。随后这篇文章很快就被删除，但文章的原始版本也被存档。【1】
+郭先生认为，在中共攻打台湾的时候，其他的邪恶国家诸如朝鲜、伊朗同时发动战争，从而引发所谓的第三次世界大战的可能性微乎其微，因为美国的实力对付这些流氓国家绰绰有余，只是损失大小的问题。虽然邪恶轴心国可以挑起战争，但是战争结束的时间和方式却由美国决定。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-69.jpg)
+至于巴基斯坦的伊姆兰.汗，以及伊朗的哈梅内伊等与中共亲近的独裁者，很快会被消灭。而普京也用铁的事实验证了一个道理，即相信共产党，必然走进火葬场。
 
+参考链接：[习近平打台湾引发第三次世界大战的可能性微乎其微！](https://www.gettr.com/post/p110cmpec52)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.03.29.png)图片来源：互联网
-该报声明称：“他们遭遇黑客”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.05.49.png)图片来源：互联网
-美国估计俄罗斯军队损失人数是 7,000 人。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-据乌克兰武装部队总参谋部周一（20日）在Facebook发布的数据显示，从2月24日到3月20日，俄罗斯军队人员阵亡约14700人。
-
-此前，俄罗斯3月2日公开承认其侵略乌克兰的军队阵亡498人。1979 年入侵阿富汗后，约有 15,000 名苏联士兵在阿富汗阵亡。【2】
-
-参考链接：
-
-【1】[国防部报告说，俄罗斯军队正在完成对民族主义营“顿巴斯”的击败](https://web.archive.org/web/20220321131726/https://www.kp.ru/online/news/4672522/)
-
-【2】[独家：俄罗斯透露，它已经有近 10,000 名士兵丧生，另有 16,000 人受伤 – 但英国情报报告称，普京也在取得重大突破](https://www.dailymail.co.uk/news/article-10637425/Russia-loses-10-000-men-just-four-weeks-toll-Ukraine-invasion-revealed.html)
-
-* * *
-
-*编辑&发布：长岛开心*
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
