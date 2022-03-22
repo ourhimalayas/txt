@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 11:20 AM (UTC)`
+
+【Ukraine Rescue】03/19/2022 A reporter from the Central News Agency of Taiwan interviewed volunteer Nicole. Nicole talked about the rescue work of the NFSC and the ROL Foundation and their mission to take down the CCP. The reporter said the NFSC and the ROL Foundation made a positive impact in rescuing the Ukraine people and she would support them in fighting for a free, democratic, lawful society in China.<br/><br/>【乌克兰救援】03/19/2022 台湾中央社记者采访在乌克兰救援的Nicole义工。Nicole介绍了新中国联邦和法治基金的救援工作，表明了推翻中共的立场。中央社记者表示新中国联邦和法治基金在乌克兰人道救援中发挥了正面作用，她支持新中国联邦和法治基金为中国人获得自由、民主、法治而做的工作。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group14/getter/2022/03/22/11/1016c7fe-eac8-8fea-3b4f-97c4fd368a76/out.jpg)
+
+---
+
 `@miles 3/22/2022 9:48 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
@@ -146,13 +153,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 3/21/2022 Miles Guo’s GETTR: Fellow fighters at the front line of the Ukraine rescue operation, please do not divide yourselves by your affiliations with the Himalaya Farms. We are citizens of the New Federal State of China. The rescue operation and live broadcast have been improved, and I hope everyone takes enough measures to protect themselves from the CCP virus. The NFSC & ROLF rescue operation indicates that the CCP doesn’t represent the Chinese and shows our steadfast strength and courage to take down the CCP. In the face of anti-Chinese riots across the globe, the contributions of fellow fighters at the front line are invaluable.<br/><br/>3/21/2022 文贵盖特：救援前线的战友们不要分农场，我们都是新中国联邦人；救援工作和直播有了进步，希望大家做好防病毒的措施；新中国联邦法治基金救援说明中共代表不了中国人，反映出我们灭共的坚定力量和勇气；面对全球排华，前线的战友们功德无量
 ![img](https://media.gettr.com/group36/getter/2022/03/21/22/8b205eae-ef92-7cf0-77f2-ebeda65a45d7/out.jpg)
-
----
-
-`@miles 3/21/2022 10:17 PM (UTC)`
-
-Aaaaaaaaaaaa
-> `@laifufu 3/21/2022 9:07 PM (UTC)`<br/>Akamai Techonogies, Inc. 在其网站介绍喜交所，称喜交所“提供一种新的旨在抵御极端价格波动的加密货币。该公司的一个关键目标是为新的数字时代提供一个革命性的金融解决方案”。<br/><br/>Akamai Technologies, Inc.是一家美国内容分发网络、网络安全和云服务公司，提供网络和互联网安全服务。 Akamai的智能边缘平台是全球最大的分布式计算平台之一。<br/><br/>(由DC战友Aven提供)<br/><br/>#喜马拉雅交易所 #HimalayaExchange #Akamai #DC政经 <br/><br/>https://www.akamai.com/blog/edge/himalaya-exchange?utm_source=twitter&utm_medium=social_corporate&utm_campaign=F-MC-52611
 
 ---
 

@@ -2,23 +2,30 @@
 ---
 
 
-## 马立波捷报！歼灭俄军特种部队扣获大量军事装备
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2209873/)
+## 신중국연방 구조버스 업무 일단락 마무리
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2209890/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEe7GSa.jpg)图片来源：亚速营
+韩国正道农场
 
-据自由时报3月21报道，俄军围困乌克兰南部大城马立波数日，俄军甚至要求马立波的乌军放下武器投降，引发外界关注。乌克兰国民卫队「亚速营」传出捷报，宣称歼灭俄罗斯在马立波一支格鲁乌（GRU）特种部队，并扣获大量的军事装备。
+翻译：祁明
 
-简评：俄军围困马立波要求放下武器，乌克兰国民卫队传出捷报歼灭俄特种部队。可见俄军的攻心之计没有得逞，乌克兰人还在顽强的抵抗，靠吓唬是唬骗不了乌克兰人的，普京不停止战争，乌克兰人将反抗到底！
+校对：星恋 gold hand
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3866713](https://news.ltn.com.tw/news/world/breakingnews/3866713)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2517.png)
 
-撰稿/发布：一叶知秋
+上传：祁明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2534.png)
+3월 19일 현지시간 밤 10시경 우크라이나 리비우에서 출발한 마지막 세 대의 구조버스가 크라쿠프에 도착하면서 15일간의 신중국연방 구조버스 운행이 일단락 마무리됐다고 크라쿠프 뉴스에서 전했다.
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2-3.png)
+
+이번 버스 구조작업은 신중국연방이 발주하고 법치기금이 지원하는 우크라이나 인도구조 작업의 일환으로 우크라이나 내 중국인 동포 및 전장에서 철수해야 하는 모든 각국 인사들을 대상으로 제공하는 무료 구호 서비스로 매일 우크라이나 리비우에서 출발하며 종착지는 폴란드 크라쿠프이다.
+
+이번 버스 구조 작업은 우크라이나-폴란드 버스 연합 등 NGO 조직의 협조를 얻었다.  3월 5일 첫 버스 운행부터 3월 19일까지 총 발차 횟수는 39대, 총 구조 인원은 2009명이다. 그 중 대부분이 우크라이나의 여성, 아동, 중국 동포이다.
+
+사진=(신중국연방 우크라이나의 전선)
+
+
 
  
 
