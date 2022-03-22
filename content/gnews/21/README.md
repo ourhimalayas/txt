@@ -2,26 +2,26 @@
 ---
 
 
-## 莫德韦切夫中将之死或是俄乌战争转折点
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212327/)
+## 乌克兰总统：为保同胞努力促成与俄方的谈判
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212384/)
 
-作者：加拿大温哥华扬帆农场 – 晨熹
+作者：日本东京方舟农场 Miyali7768(文玉）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据Newsmx 3月20消息，乌克兰总统沃洛季米尔·泽伦斯基，表明他再次与俄罗斯总统弗拉基米尔·普京进行谈判的意愿。他同时表示，一旦谈判再度破裂，将意味着两国灾难性的战争后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-79.jpg)
+泽伦斯基表示，乌克兰将不惜使用任何形式，把握任何机会，积极寻求与俄方进行谈判的可能。但如果这些尝试宣告失败，将意味着战争的升级。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2573.png)图片来源：gettr
+随着俄乌战争进入第四周，乌克兰的伤亡人数日益增加。结束无辜百姓的死伤，已迫在眉睫。
 
+泽伦斯基认为，只要有1%的机会阻止这场战争，就应该抓住这个机会。尽管乌克兰军队已在多个战场成功地反击了来自俄罗斯的入侵者，但黎民百姓伤亡惨重。泽伦斯基表示，乌克兰人民已经展示了他们的尊严和力量，他们有能力给予侵略者强有力的还击。但不幸的是，尊严和力量不能有效阻止战争每天夺去无辜的生命。
 
-据3月20日文贵先生直播消息，俄军中将莫德韦切夫日前被乌克兰抵抗军精准定点清除事件已成为俄乌战争的重要转折点。
+参考链接：[Zelenskyy: If Next Negotiations Fail, It’s ‘World War’ III](//www.newsmax.com/newsfront/volodymyrzelenskyy-worldwariii-peacetalks/2022/03/20/id/1062045/)
 
-普京的暴政最终将使俄罗斯失去其未来繁荣的机遇，也许独裁者会再次拉下铁幕以阻 止国民外逃，但无论如何，这场不义之战将给俄罗斯和普京本人都带来灭顶之灾的结局。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-据悉，被击毙的莫德韦切夫中将不仅通晓中国历史，而且其家人多有在中共国学习和生活的经历。他本人曾是习近平和普京之间的重要联络人，也是俄军总参谋长和下任国防部长的重要人选。他的殒命无疑重创了俄军的士气和战力，并将对中俄关系产生巨大影响。 文贵先生对此表示，莫德韦切夫之死不仅使普京的心理防线崩溃，而且还痛失其在军队中的主要支持者和执行者。同时也暴露出俄军目前已战争到无帅可用，将寡兵微的悲催境地
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[https://gettr.com/post/p10y5j870c5](https://gettr.com/post/p10y5j870c5)
-
+总编/编辑/审核：Zion文恩
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

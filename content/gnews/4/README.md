@@ -2,21 +2,23 @@
 ---
 
 
-## 新中国联邦乌克兰前线救援人数汇报
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212562/)
+## 星链系统已彻底改变了战争走向
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212590/)
 
-作者: 大直播群
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月5日至3月19日    新中国联邦发起的乌克兰到波兰的大巴车救援行动，总计救援人数为2009人，大部分是乌克兰的妇女、儿童以及中国同胞。期间总计发车次数为 39次。
+作者：加拿大温哥华扬帆农场 – 晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-12.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2576.png)图片来源：gettr
 
-此外，新中国联邦在波兰边境梅迪卡难民营地所组织的救援接待行动，帐篷接待难民人数统计数据：自2022年3月9日至3月20日，共计接待难民人数约7177人，在20日当日接待约120 人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+据3月20日文贵先生直播报道，Space X总裁马斯克日前公开声称，将在对俄军发射核弹的时间、数量以及地点完全不知情下挑战普京。
 
-审核/总编/编辑：Zion文恩
-校正/发稿：谐趣园
+据悉，马斯克的战书使得普京和习近平双双陷入恐惧。中共高层立即因此召开紧急会议，并深信其挑战绝非戏言，Space X完全具备改变核战争所依赖信息系统的技术能力。
+
+校对编辑：硫酸羟氯喹64
+
+发稿/上传：青青
+
+新闻来源： [https://gettr.com/post/p10y5j870c5](https://gettr.com/post/p10y5j870c5)
 
  
 

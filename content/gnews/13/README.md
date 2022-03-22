@@ -2,14 +2,10 @@
 ---
 
 
-## 救援现场的热咖啡
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2212440/)
+## 3/20/2022 文贵直播：文贵一定能把中共从老百姓盗取并藏在瑞士的财富一分不少地拿回去！卢森堡、塞舌尔、马耳他等国想帮中共洗钱
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2212499/)
 
-【Ukraine Rescue】On March/12, in Medyka, Poland. Ukrainian refugees are coming into the big tent of NFSC and ROLF. Everybody loves the hot coffee in the tent. It helps people to warm up in the cold night and get through the tough times! We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
-
-【乌克兰救援】3月/12日波兰梅迪卡，乌克兰难民正在走入新中国联邦和法制基金的帐篷，每个人都非常喜欢这里的热咖啡，它能够在寒冷的夜晚温暖人们的身体，帮助度过这个艰难时光！我们是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
-
-
+秘密翻译组-北美组
 
  
 

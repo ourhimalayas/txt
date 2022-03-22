@@ -2,26 +2,28 @@
 ---
 
 
-## 乌克兰总统：为保同胞努力促成与俄方的谈判
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212384/)
+## 拜登警告普京已身处绝境
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2212416/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据Newsmx 3月20消息，乌克兰总统沃洛季米尔·泽伦斯基，表明他再次与俄罗斯总统弗拉基米尔·普京进行谈判的意愿。他同时表示，一旦谈判再度破裂，将意味着两国灾难性的战争后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-79.jpg)
-泽伦斯基表示，乌克兰将不惜使用任何形式，把握任何机会，积极寻求与俄方进行谈判的可能。但如果这些尝试宣告失败，将意味着战争的升级。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Cropped-1644674366N-Biden-Putin.jpg)图片来源：Nikkei Asia
+根据《NBC》3月22 日报道，美国总统拜登警告说，俄罗斯总统弗拉基米尔-**普京现在可能会在乌克兰使用化学武器**，因为他已经“身处绝境“。
 
-随着俄乌战争进入第四周，乌克兰的伤亡人数日益增加。结束无辜百姓的死伤，已迫在眉睫。
+这位俄罗斯领导人在国内加强了控制，同时激起了人们对他可能在国外采取更激进策略的担忧，克里姆林宫的主要批评者阿列克谢-纳瓦尔尼周二被判处在最高安全级别的监狱中再服刑9年。
 
-泽伦斯基认为，只要有1%的机会阻止这场战争，就应该抓住这个机会。尽管乌克兰军队已在多个战场成功地反击了来自俄罗斯的入侵者，但黎民百姓伤亡惨重。泽伦斯基表示，乌克兰人民已经展示了他们的尊严和力量，他们有能力给予侵略者强有力的还击。但不幸的是，尊严和力量不能有效阻止战争每天夺去无辜的生命。
+拜登本周将前往欧洲，因为西方国家支持基辅，反对莫斯科，这场战争已经持续了近一个月，现在已经迫使350多万人逃离乌克兰。
 
-参考链接：[Zelenskyy: If Next Negotiations Fail, It’s ‘World War’ III](//www.newsmax.com/newsfront/volodymyrzelenskyy-worldwariii-peacetalks/2022/03/20/id/1062045/)
+乌克兰总统沃洛基米尔-泽伦斯基(Volodymyr Zelenskyy)再次呼吁与俄罗斯总统直接会谈，并表示全国各地的城市已被炸得面目全非。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+但是，即使在人道主义危机恶化的时候，乌克兰仍然顽强抵制了俄罗斯关于交出马里乌波尔的要求，这个具有战略意义的港口城市的平民已经被困在那里并被轰炸了数周。
 
-总编/编辑/审核：Zion文恩
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：
+[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-warns-putin-s-back-n1292573](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-warns-putin-s-back-n1292573)
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,14 +2,12 @@
 ---
 
 
-## 五月花简报（03/22/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2212431/)
+## 救援现场的热咖啡
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2212440/)
 
-编辑：波士顿五月花—-冲天一怒
+【Ukraine Rescue】On March/12, in Medyka, Poland. Ukrainian refugees are coming into the big tent of NFSC and ROLF. Everybody loves the hot coffee in the tent. It helps people to warm up in the cold night and get through the tough times! We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3DC6599C-0B82-4F3F-90B4-D0ABB63A5557.jpeg)
-
-*发布：思澈*
+【乌克兰救援】3月/12日波兰梅迪卡，乌克兰难民正在走入新中国联邦和法制基金的帐篷，每个人都非常喜欢这里的热咖啡，它能够在寒冷的夜晚温暖人们的身体，帮助度过这个艰难时光！我们是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
 
 
 

@@ -2,26 +2,20 @@
 ---
 
 
-## 俄军袭击基辅平民设施造成人员伤亡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212354/)
+## 秘翻在线: “恒大系”突然集体停牌
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2212386/)
 
-作者：东京方舟农场 Miyali7768(文玉)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-116.jpg)
-附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。 救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
+撰稿：西枫westca
 
-参考链接：[**BOMB BLITZ Shocking moment Russia blows up shopping centre with ballistic missile in latest brutal attack targeting civilians**](https://www.thesun.co.uk/news/worldnews/18017568/eight-civilians-killed-russian-attack-on-shopping-centre/)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-18.jpg)图片来源：网络照片
+据新浪3月22日报道，恒大系公司在港交所集体停牌，包括中国恒大、恒大物业和恒大汽车。停牌主要原因为无法按时发布2021年财务报告及恒大物业有134亿人民币存款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+中国恒大称，考虑到本集团目前面临的经营上和财务上的挑战，尤其是债务压力，本公司风险化解委员正在积极研究解决方案并与债权人进行沟通，依法公平处理债务问题。目前，恒大物业134亿人民币的存款，为第三方提供的质押保证金，已被银行强制执行。此存款金额超过恒大物业的净资产。
 
-总编: Zion文恩
-编辑: 宁文静
-审核：Zion文恩
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj.png)
+对于背负万亿债务的恒大，外界关注的焦点仍在于化债方案。22日晚召开的投资者会议，恒大总裁许家印并未出席。恒大自1月份表示要在6个月内提出重组建议，但根据目前的情况，这个重组过程将会非常艰难。恒大一定会像安邦、淘宝、京东等一系列企业一样绞进中共这个巨大的绞肉机里，不复存在。
 
+**新闻来源：**[恒大重磅！紧急停牌，又推迟发财报，原因披露…\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-22/doc-imcwipih9852541.shtml)
 
  
 
