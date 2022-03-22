@@ -2,40 +2,41 @@
 ---
 
 
-## 有声|欧盟峰会将讨论设立乌克兰团结基金
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211452/)
+## 中共国房地产巨头恒大在香港停牌
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2211731/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据国外媒体消息，欧盟理事会3月18日晚间表示，将于下周的欧盟领袖峰会上，讨论设立“乌克兰团结基金”事项。
+编译：七龙珠
 
-欧盟理事会主席米歇尔指出，欧盟规划设立乌克兰团结基金，是为了协助乌克兰筹集当前的国防和民生，以及战后重建所需资金，并呼吁国际社会为该基金踊跃捐款。另有欧盟官员补充说，米歇尔当日与乌克兰总统泽连斯基通话后认为，由于目前乌克兰无法在国际金融市场发行债券融资，而且战乱导致了大量外资撤离，因此欧盟准备设立一个基金，以维持乌克兰的国防战斗力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-22-171441.jpg)图片来源：cincodias.elpais.com
 
-据悉，美国总统拜登下周也将出席欧盟及北约峰会，与各国领导人讨论形势，并展现对盟国钢铁般坚定的承诺。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-10.jpg)
+中共国房地产巨头恒大今天因发布“内幕消息”而冻结了其在香港证券交易所的股票交易。
 
+同时停牌的还有恒大在香港上市的两家子公司，恒大物业管理子公司和恒大新能源的电动汽车制造公司。
 
+停牌前，恒大股价为1.65港元。今年到目前为止该公司的股票已经升值了近4%，而在去年，其价值几乎损失了90%。
 
+这些简短的公报没有公布何时将恢复交易的信息。
 
-文字版原文：[欧盟峰会将讨论设立乌克兰团结基金](https://gnews.org/zh-hans/2201385/)
+据说恒大周四完成了在东部城市江苏省省会南京市一家开发商的30%股份出售，尽管交易的细节还不清楚。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+同一媒体还报道，该集团与价值40亿元人民币（6.28亿美元）的在岸债券的债权人举行了一次会议，会上同意将2020年9月至2021年之间应计利息的支付推迟到今年九月。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+此外，值得一提的是，下周三（3月23日），恒大将在新加坡证券交易所上市的债券中支付约21亿美元。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+对该公司财务状况的担忧在2021年下半年明显增加，当时恒大累计负债超过3000亿美元，开始显示出无力支付其境外债券的迹象。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+事实上，惠誉等一些主要评级机构在12月表示，他们已经认为恒大以及凯撒等其他中共国开发商，已经拖欠了部分境外债务。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+中共政府于2020年8月宣布限制恒大等开发商获得银行融资后，许多中共国房地产公司的财务状况恶化，这些开发商多年来通过杠杆政策泡沫化增长，积累了大量的债务。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+新闻来源：[cincodias.elpais.com ][El gigante inmobiliario chino Evergrande suspende su cotización en Hong Kong](https://cincodias.elpais.com/cincodias/2022/03/21/mercados/1647850882_560987.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
 
+*审核：Aries的星
+校对：阿伯塔
+发布：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

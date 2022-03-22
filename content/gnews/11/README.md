@@ -2,25 +2,30 @@
 ---
 
 
-## 视频|中共攻打台湾几乎不可能引发第三次世界大战
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2211271/)
+## 俄乌战局陷入胶着 普京两种可能结局
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211668/)
 
-制作：香草山视频部
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月20的《文贵大直播》中，综合多方情报和战争局势的发展，郭先生认为独裁者普京不会停止战争，会面临两种最有可能发生的结局。
 
-在3月20日的大直播中，郭文贵先生表示，习近平攻打台湾而引发第三次世界大战的可能性极小，而美国会毫无悬念的成为最后赢家。
-郭先生认为，在中共攻打台湾的时候，其他的邪恶国家诸如朝鲜、伊朗同时发动战争，从而引发所谓的第三次世界大战的可能性微乎其微，因为美国的实力对付这些流氓国家绰绰有余，只是损失大小的问题。虽然邪恶轴心国可以挑起战争，但是战争结束的时间和方式却由美国决定。
-至于巴基斯坦的伊姆兰.汗，以及伊朗的哈梅内伊等与中共亲近的独裁者，很快会被消灭。而普京也用铁的事实验证了一个道理，即相信共产党，必然走进火葬场。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-9.jpeg)
 
-发稿：Daxia
+第一种，普京的家人说服普京让步，或者通过各种渠道让乌克兰让步，达到所谓体面的和解，这是目前让伤亡不再扩大的理想结局。
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+第二种，普京被内部人灭掉，或者普京按下核按钮之时，正义的力量在通信或科技领域进行干预，使核打击化为乌有，普京接受战争罪的审判。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+郭先生表示，根据某国情报部门提供的信息，普京被灭掉的可能性更大。一旦普京政权被颠覆，俄罗斯人民受到的金融制裁就会被取消。这种示范效应对中共国的同胞来说，可谓影响巨大。
+
+郭先生指出，现在全世界都认为普京和和习近平这两个独裁者互相壮胆互相利用，普京是发动战争的罪犯，习近平是普京的金主，两人已经无法摆脱干系。普京的覆灭对中共官员而言，震慑之余，更会加剧内斗，加速中共政权的土崩瓦解。
+
+参考链接：[2022年3月20日 文贵大直播](https://gettr.com/streaming/p10y5j870c5)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+审核/总编：Zion文恩
+编辑：宁文静 
+校正/发稿：谐趣园
 
  
 

@@ -2,35 +2,32 @@
 ---
 
 
-## 中共国恒大拟引入广州城投重组债务，现曙光 恒大物业百亿存款遭强制执行
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2211460/)
+## 南澳大利亚警告：地方CCP病毒每日增长或超过8000
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2211742/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/插图.jpg)
-**路透香港3月22日 – 深陷债务困境的中共国恒大集团(3333.HK)的债务风险化解工作获得新进展，据消息人士对路透称，恒大拟引入国资背景的广州城投集团重组债务，涉及中信信托逾30亿元人民币信托计划。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image003-14.jpg)
-**两位直接知情人士对路透称，中信信托发行的恒大信托计划拟通过”项目退地”的方式，引入国资背景的广州城投集团作为保证人，以保全信托计划全额本金支付。。
+撰稿：Gradient Boost
 
-“项目退地”是指该”恒大信托计划”将在获得广州城投集团保证担保的前提下退出项目土地抵押，恒大启动退地，政府将项目土地重新挂牌。土地退库款发放至广州城投集团监管账户。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-149.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-250.jpg)
+网络图片
 
-恒大及同系恒大物业(6666.HK)、恒大汽车(0708.HK)周二发出公告称，将延迟刊发2021年经审核业绩。其中恒大物业管理分支–恒大物业更披露在审核去年财务报告过程中，发现有约134亿元的存款，已被相关银行强制执行。
+南澳大利亚州州长 Peter Malinauskas 表示，随着 Omicron BA.2 子变体在澳大利亚传播，该州预计 CCP病毒的新增感染病例会持续增加——昨晚更新的模型预期也表明了相同的结果。
 
-**
+南澳首席公共卫生官 Nicola Spurrier 说：“我们预计未来几周将有超过 8000 例病例——但更重要的是，我们需要查看我们的病房入住率，尤其是成人病房的人数，”
 
-[【援引连结】](https://cn.reuters.com/article/china-evergrande-guangzhou-debt-citic-03-idCNKCS2LJ0IC)
+南澳大利亚健康部门已被指示在病例可能增加之前制定紧急医院准备计划。与此同时，该州记录了 3686 例新的 CCP病毒确诊病例，其中 PCR 测试记录了 2262 例，快速抗原测试记录了 1424 例。目前有 165 名病毒感染者住院，其中 11 人处于重症监护状态中。
 
-**推出问题，敲出真相，爆料在路上！**
-**请关注和订阅我们的以下账号：**
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-**玫瑰看新闻YOUTUBE账号**：
-**玫瑰看新闻**
-**黑森林的故事**
-**ROSE NEWS**
-**【玫瑰看新闻】推特账号**：
-**ROSE NEWS (@ROSENEWS4)A**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/插图.jpg)
+不过当地政府表示，它不希望看到紧急情况管理条例再度延期。Malinauskas称，政府当前的目标是确保紧急状况持续延期到 6 月 30 日之后，甚至希望更早结束这一状况。
 
+鉴于当前医疗系统受到CCP病毒大流行的冲击，南澳州长在上周五宣布公立医院将再度暂停所有非紧急的择期手术：“我们公立医院系统的情况相当糟糕，以至于我们不得不将原本已经重新开始的非紧急择期手术再次取消……毫无疑问，我们的医院系统正承受着巨大的压力。”
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[South Australians warned daily COVID-19 cases could surge to 8000](https://www.9news.com.au/national/coronavirus-south-australia-update-sa-covid-19-cases-expected-to-reach-over-8000/f44016e1-9f34-4490-91dc-e96a455494f2)
+
+本文仅代表作者本人观点
 
  
 

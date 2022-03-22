@@ -2,12 +2,13 @@
 ---
 
 
-## 【乌克兰救援】妮可采访了两名来自波兰共和国童军协会的童子军，他们抽出学习时间到梅迪卡参与救助难民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2210806/)
+## 袁立讲述她如何从一个名演员到为弱势群体发声的心路历程
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2211259/)
 
-【乌克兰救援】03/19/2022 妮可采访了两名来自波兰共和国童军协会的童子军，他们抽出学习时间到梅迪卡参与救助难民。妮可向他们介绍道，我们新中国联邦人也同样乐于助人
+制作：全新一代君越 思想
+发布：Shifter
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+来源链接：[袁立复旦大学演讲，值得一看](https://mp.weixin.qq.com/s/VsqPAJMNznVKmfixAVFTmw)
 
  
 

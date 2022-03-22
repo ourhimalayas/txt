@@ -2,32 +2,58 @@
 ---
 
 
-## 泽伦斯基呼吁与普京直接会谈，作为结束战争的关键
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2210793/)
+## 新西兰财经G乐部2022年3月22日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2211215/)
 
-素材：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-下午10.10.39.png)图片来源：AFP via Getty
-“如果我有这个机会，俄罗斯也有这个愿望，我们会讨论所有的问题，”泽伦斯基在媒体Suspilne发表的一篇采访中告诉乌克兰记者。”我们会解决所有问题吗？不，但有机会，我们可以部分解决–至少可以停止战争，”他补充说。
+采集整理：蚂蚁的城堡
 
-泽伦斯基说，他甚至愿意讨论俄罗斯占领的克里米亚和顿巴斯的俄罗斯分裂地区，尽管他坚持认为这些地区必须归还给乌克兰。
+提纲：
 
-泽伦斯基周一表示，乌克兰不会向入侵的俄罗斯军队交出国家城市，同时他加倍呼吁与弗拉基米尔-普京进行直接会谈，作为结束战争的关键。
+1、中共重点城市房贷利率纷纷下调，放款提速
 
-当俄罗斯为一夜之间将基辅购物中心夷为废墟、造成8人死亡的袭击进行辩护时，美国总统乔-拜登与欧洲领导人举行了一次电话会议，讨论莫斯科采用的日益 “残酷的战术”，俄罗斯没有受到前所未有的西方制裁的影响。
+2、恒大物业134亿存款被强制执行， 恒大系三家上市公司延期披露年报
 
-但是，尽管平民伤亡人数飙升，乌克兰总统明确表示，他的同胞不会 “交出 “首都、东部城市哈尔科夫，或被严重轰炸和围困的马里乌波尔。
+3、宝能系掌舵人姚振华下落不明
 
-“乌克兰不能履行俄罗斯的最后通牒，”他说。”我们应该首先被摧毁。”
+4、阿里巴巴加码回购美国存托股 ，委任PAG单伟建为独立董事
 
-乌克兰和俄罗斯已经通过视频会议举行了几轮会谈，但迄今为止没有重大突破，泽伦斯基重申，现在需要与俄罗斯同行 “以任何形式 “进行直接会谈。
+5、美国证券交易委员会推迟 WisdomTree 和 One River 的现货比特币 ETF 产品
 
-他认为：”没有这次会议，就不可能完全了解他们为停止战争准备了什么。”
+正文
 
-原文链接：[Ukraine war: Volodymr Zelensky says everything on table if Putin meets](https://timesofindia.indiatimes.com/world/europe/ukraine-war-volodymr-zelensky-says-everything-on-table-if-putin-meets/articleshow/90371992.cms)
+**1、中共重点城市房贷利率纷纷下调，放款提速**
+![img](https://media.gettr.com/group39/origin/2022/03/22/04/0d57ac1f-b946-3fd9-42c8-24f5c3df6bea/5b9c0d7d25f281ada6a36d2e9dac853e_500x0.png)
+3月以来，多地陆续调整房地产信贷政策，包括首套房和二套房首付比例下调，提高公积金贷款最高额度，房贷利率下调等。不仅市场层面有所宽松，政策面也迎来暖意。3月16日金融委会议后，多部委密集发声，内容多涉及房地产领域。从政策面来看，当前对于房地产领域的调控主要有两个方向：一是强调防范化解房地产市场风险；二是提出向新发展模式转型的配套措施。
 
-* * *
+链接：[https://finance.sina.com.cn/stock/zqgd/2022-03-22/doc-imcwiwss7342820.shtml](https://finance.sina.com.cn/stock/zqgd/2022-03-22/doc-imcwiwss7342820.shtml)
 
-*编辑&发布：长岛开心*
+**2、恒大物业134亿存款被强制执行， 恒大系三家上市公司延期披露年报**
+![img](https://media.gettr.com/group9/origin/2022/03/22/04/27138fc5-dbf2-6200-eee5-3ff9e057ec40/3452235e334b1697bf9d4633f19ee1b1_500x0.png)
+3月22日早间，恒大物业在港交所公告，公司在审核截至2021年12月31日止年度的财务报告过程中，发现公司有约为人民币134亿元的存款，为第三方提供的质押保证金，已被相关银行强制执行。恒大物业表示，公司将成立独立调查委员会及安排委聘专家对该质押保证进行调查。公司股份已由2022年3月21日上午九时正起于香港联合交易所有限公司短暂停止买卖。本公司股份将继续暂停买卖，直至另行通知。
+
+链接： [https://finance.sina.com.cn/jjxw/2022-03-22/doc-imcwipih9838662.shtml](https://finance.sina.com.cn/jjxw/2022-03-22/doc-imcwipih9838662.shtml)
+
+**3、宝能系掌舵人姚振华下落不明**
+![img](https://media.gettr.com/group38/origin/2022/03/22/04/0a4e66d9-e77b-eb09-1b3b-a85c045d9e31/bbea204f60621def4a480bbaa9ea2ef0_500x0.png)
+3月22日消息，广州市中级人民法院于3月17日发布的一份送达公告显示，宝能集团董事长姚振华下落不明。该公告涉及广州银行股份有限公司开发区支行与广州宝时物流有限公司、姚振华、深圳市宝能投资集团有限公司、深圳市钜盛华股份有限公司金融借款合同纠纷一案。去年下半年以来，资本大鳄“宝能系”旗下财富产品出现大面积违约，债权人上门“逼宫”。年末，实际控制人姚振华放售包括宝能集团深圳总部等千亿元资产回笼资金。
+
+链接： [https://finance.sina.com.cn/chanjing/gsnews/2022-03-22/doc-imcwiwss7400243.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-03-22/doc-imcwiwss7400243.shtml)
+
+**4、阿里巴巴加码回购美国存托股 ，委任PAG单伟建为独立董事**
+![img](https://media.gettr.com/group32/origin/2022/03/22/04/e8e28489-a9a0-004a-ba1e-c181955d953b/5a9ee4d93ed226c83d7f9ecfb9cf34a0_500x0.png)
+路透3月22日 – 阿里巴巴周二将其美股回购规模扩大100亿美元，这是公司自2017年5月开启60亿美元回购计划以来第三次增加回购计划总额。近日阿里巴巴美股和港股股价均从低位反弹。“董事会对本公司未来持续增长充满信心，并已授权将股份回购计划总额从150亿美元上调至250亿美元”，阿里巴巴在公告中称。公司同时宣布，委任太盟投资集团（PAG）执行董事长单伟建为董事会独立董事，将于3月31日起生效。他将成为审计委员会成员。
+
+链接： [https://cn.reuters.com/article/alibaba-buyback-ads-0322-tues-idCNKCS2LJ06P?il=0](https://cn.reuters.com/article/alibaba-buyback-ads-0322-tues-idCNKCS2LJ06P?il=0)
+
+**5、美国证券交易委员会推迟 WisdomTree 和 One River 的现货比特币 ETF 产品**
+![img](https://media.gettr.com/group14/origin/2022/03/22/04/8b0b6a2d-1664-54bb-3a3f-7c2ba6d7a802/ded3a3cc30c7e5137c40ce61175accfc_500x0.png)
+根据周一的另一份文件，美国证券交易委员会 (SEC) 推迟了对WisdomTree Investments (WETF) 和One River Asset Management申请现货比特币交易所交易基金的决定。美国证券交易委员会在每份文件中表示：“委员会认为，指定更长的时间对拟议的规则变更采取行动是适当的，以便有足够的时间考虑拟议的规则变更和收到的任何评论。”
+
+链接： [https://www.coindesk.com/policy/2022/03/21/sec-delays-spot-bitcoin-etf-offerings-from-wisdomtree-and-one-river/](https://www.coindesk.com/policy/2022/03/21/sec-delays-spot-bitcoin-etf-offerings-from-wisdomtree-and-one-river/)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
 
  
 
