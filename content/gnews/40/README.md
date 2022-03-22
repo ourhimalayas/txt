@@ -2,45 +2,25 @@
 ---
 
 
-## 美国称中共在南海的3个基地现已全面军事化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208070/)
+## 比特币去中心化骗局
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208017/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有。其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化背道而驰，其根本是由极少数人大量持有且高度中心化。由于比特币热搞饥饿营销，市面上传说2100万是比特币的总数量，但这个数量没有任何机构来监管。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-73.jpg)
+事实上，货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本，比特币也不可能运维成本如此高昂的支付系统。没有流通没有支付，这些原因导致了比特币只能沦为洗钱的工具。
 
-翻译/编辑：小红帽
+参考链接：[2022年3月20日 文贵大直播](https://gettr.com/post/p10y5j870c5)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f-subeef-a-20180526-870x489-1.jpg)图片来源： www.japantimes.co.jp
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
-根据自由亚洲电台3月21日报道，美国一位高级指挥官表示，中共已经将其在南海至少三个人工岛完全军事化，并为其配备了导弹系统和战斗机。
-
-美联社周日援引美国印太地区司令约翰·C·阿奎利诺（John C. Aquilino）上将的话说，在美济礁、渚碧礁和永暑礁的导弹库、飞机库、雷达系统和其他军事设施“似乎已经完成”。
-
-“这些岛屿的功能是扩大中共国的进攻能力。他们具有驾驶战斗机、轰炸机以及导弹系统的所有进攻能力，”阿奎利诺说，“中共威胁到所有在附近活动的国家以及所有国际海域和空域。”
-
-这与中共国国家主席习近平关于中共国不会将这些岛屿军事化的保证形成鲜明对比。
-
-根据总部设在华盛顿的，战略与国际研究中心的亚洲海事透明度倡议，中共自2013年以来，在南海至少开发了七个人工岛，共创造了3200英亩的新土地。
-
-这是美国官员第一次提到中共国在这些岛屿上部署战斗机，因为根据亚洲海事透明度倡议主任雷格·波林 (Greg Poling)的说法，“从来没有人在南沙群岛发现过战斗机。”
-
-2015年，在访问白宫时，习近平说：“中共国在南沙群岛进行的相关建设活动不针对、不影响任何国家，中国不打算追求军事化。”
-
-习近平还说，中共国“致力于维护南海的和平与稳定。”
-
-阿奎利诺告诉美联社，“在过去20年里，我们目睹了中共国自二战以来最大的军事集结。中共已经提高了所有能力，而武器化的积聚对该地区的稳定是不利的。”
-
-他还提到，任何飞越有争议性南海区域的军用和民用飞机“都很容易进入中共国岛屿导弹系统的射程之内。”
-
-新闻来源：[US says 3 China bases in South China Sea now fully militarized](https://www.rfa.org/english/news/china/southchinasea-militarized-03212022155943.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
