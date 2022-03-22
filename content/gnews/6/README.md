@@ -2,32 +2,29 @@
 ---
 
 
-## 普京演讲承诺克里姆林宫的所有目标都将实现
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2212809/)
+## 克里姆林宫希望只有“生存威胁”的情况下使用核武器
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2212814/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**普京发言人Dmitri Peskow在乌克兰战争的背景下表示使用核武器的可能性。**
 
-整理：gardeniahu
-编辑：jocozoner
+作者：AFP/mow/原文发布于2022年3月22日22:26 (MEZ)
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-11.jpg)图片：莫斯科：俄罗斯的Topol-M核导弹在阅兵式上驶过红场（档案照片）。dpa/Yuri Kochetkov
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
+克里姆林宫称，在乌克兰冲突的背景下，俄罗斯只有在出现“生存威胁”的情况下才会使用核武器。克里姆林宫发言人Dmitri Peskow周二在美国有线电视新闻网国际频道表示：“我们有一个众说周知的内部安全概念。你可以在那里读到使用核武器的所有理由”。
 
+克里姆林宫发言人针对CNN记者Christiane Amanpour强调提出，关于他是否“相信或确信”俄罗斯总统弗拉基米尔·普京不会在与乌克兰的冲突中使用核弹时回答道：“如果我们的国家受到生存威胁，那么就可以按照我们的概念使用它（核弹）。”
 
-据路透社3月18日报道，俄罗斯总统普京周五在一个座无虚席的足球场为入侵乌克兰辩护，但直播画面却出现了意外中断，据俄罗斯国家电视台称是技术问题。
+与五角大楼等方面关于俄罗斯前进受阻的信息相反，Peskow表示，在乌克兰的军事行动“正在完全按照预定计划进行”。俄罗斯军队希望“消除乌克兰的军事潜力”，这是“行动的主要目标”之一。
 
-直播画面短暂切换成了预先录制好的爱国歌曲画面，稍后普京讲话的画面又重新出现在国家电视台的频道上。
+与此同时，克里姆林宫发言人表示，莫斯科在乌克兰的部队“只针对军事目标和物体”。与此相反，乌克兰、西方政府和人权组织指责俄罗斯也在袭击平民。
 
-在装饰着“为了一个没有纳粹主义的世界”和“为了我们的总统”等横幅标语的演讲台上，69岁的普京向成千上万挥舞着俄罗斯国旗高呼“俄罗斯、俄罗斯、俄罗斯”的人们说：“我们知道我们需要做什么，如何做，以及需要付出什么代价。我们绝对会完成所有计划。”他还承诺，克里姆林宫的所有目标都将实现。
+同时，鉴于乌克兰战争的发展，联合国秘书长安东尼奥·古特雷斯不再排除核战争的可能性。俄罗斯将核大国的威慑性武器置于待命状态，这一发展令人毛骨悚然。古特雷斯上周在纽约表示：“曾经不可想象的核冲突前景，现在又回到了可能发生的范围。”在此，联合国负责人改变了语气：他之前曾将使用核武器的可能性描述为“难以想象”。
 
-新闻链接：[普京誓言俄罗斯将在乌克兰获胜，但国家电台因技术故障短暂中断其讲话直播](https://www.reuters.com/article/ukraine-crisis-putin-rally-idCNL3S2VL3IG)
+原文链接：[https://www.berliner-zeitung.de/news/kreml-will-atomwaffen-nur-bei-existenzieller-bedrohung-einsetzen-li.218347](https://www.berliner-zeitung.de/news/kreml-will-atomwaffen-nur-bei-existenzieller-bedrohung-einsetzen-li.218347)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
 
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

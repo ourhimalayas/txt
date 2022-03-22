@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 11:06 PM (UTC)`
+
+2022.03.22 NFSC News  The Significance Of The NFSC And ROLF’s Ukraine Rescue Operations； UN’s Statistics on Ukrainian Civilians Fleeing From Their Homes
+![img](https://media.gettr.com/group25/origin/2022/03/22/23/14508800-0ad3-d50c-d6ab-63c8bc27979f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/22/2022 10:57 PM (UTC)`
+
+Today is the Ukrainian girl Polina’s 6th birthday. Inside the refugee tent of New Federal State of China, a special “cake” was made, with three matches for the missing candle……The bright smile on her face makes all the hard work pay off<br/><br/>今天是乌克兰小女孩Polina的六岁生日。在新中国联邦的帐篷里，我们为她制作了“生日蛋糕🎂”，三根火柴代替缺失的蜡烛🕯️…… 小女孩灿烂的笑容，使救援活动的所有辛苦劳累有了回报！
+![img](https://media.gettr.com/group20/getter/2022/03/22/22/53c2872e-d094-3831-ae8e-b54d38d626d7/out.jpg)
+
+---
+
 `@miles 3/22/2022 10:17 PM (UTC)`
 
 3/22/2022 Miles Guo’s GETTR: The European countries are buying a lot of grain spots, but gold is being sold at discounts. What does that mean? Akamai's article about the Himalaya Coin had a huge impact on Wall Street and the entire financial world yesterday. The Russian-Ukrainian war will surely end up with the entire Chinese people paying the price for Xi Jinping and Putin.<br/><br/>3/22/2022 文贵盖特：欧洲国家在大量购买粮食现货，黄金却在打折卖，说明了什么？昨天 Akamai关于喜币的文章在华尔街和整个金融界引起轰动；俄乌战争到最后一定是全中国人为习太阳和普大帝买单<br/>
@@ -139,20 +153,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 【Ukraine Rescue】03/21/2022 The number of refugees has decreased and we hope the war will end soon. Each group in the NFSC & ROLF's rescue team performs its own duties, responsible for on-site material delivery, filming equipment and live broadcast. Volunteers and security guards from the NFSC & ROLF provide services and protection to refugees in tents.<br/><br/>【乌克兰救援】2022/03/21 波乌边境Medyka难民数量有所减少，希望战争早日结束！前线救援战各个团队各司其职，负责现场物资运送和调配以及拍摄设备和直播。新中国联邦和法治基金的义工和保安为帐篷内的难民提供服务和保护。<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group45/origin/2022/03/22/12/92f98000-699f-f88b-73cd-aa1c63039b27/out.jpg)
-
----
-
-`@miles 3/22/2022 12:29 PM (UTC)`
-
-2022.03.22 早 《新中国联邦新闻》
-![img](https://media.gettr.com/group47/origin/2022/03/22/12/056edb9a-a736-89be-dc7d-1fe7da35203b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/22/2022 12:11 PM (UTC)`
-
-【Ukraine Rescue】03/19/2022 Early in the Morning, Nicole finds out an international media reporting in front of the NFSC tent of our relief efforts. Inside the tent, hot breakfast are served for the refugees. <br/><br/>【乌克兰救援】03/19/2022 清晨，妮可看到一家国际媒体在新中国联邦的大帐篷前播报难民救援情况。帐篷里早已为难民准备好热腾腾的早餐。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group11/getter/2022/03/22/12/e6124401-46b1-c3f4-5fb6-13c3d0bfc12e/out.jpg)
 
 ---
 

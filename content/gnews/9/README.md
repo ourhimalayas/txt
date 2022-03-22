@@ -2,42 +2,33 @@
 ---
 
 
-## 国际律师协会新应用帮助乌克兰收集普京战争罪证据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2212765/)
+## 瑞士：不孕夫妇的卵子捐赠会合法化吗?
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2212766/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+翻译：nstar
+校对：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Pict的的ure1.jpg)图片来源：eugin.de
+据瑞士《Tagsblatt》3月17日报道, 不孕妇女可能仍可以实现生孩子的愿望：卵子捐赠的合法化已扫清了第一道障碍。国民议会(Nationalrat) 赞成合法化。然而，这条道路可能是坎坷的。
 
-翻译：li yan li
-编辑：Mttfly
+在欧洲, 卵子捐赠只在瑞士和德国被禁止。它在瑞士已经讨论了很多年了。到目前为止，瑞士的不孕妇女如果想实现生孩子的愿望，就必须去国外。另一方面，男性不育的夫妇可以在瑞士依靠精子捐赠——由医疗保险支付。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/eyeWitness_to_Atrocities.jpg)图片来源：eyeWitness&雅典娜设计组
+对于国民议会中的大多数人来说，这是 “不可接受的不平等待遇”。他们很用心并作出努力, 希望在瑞士也能让女方不孕的已婚夫妇获得卵子捐赠。周四，国民议会以107票对57票，16票弃权，批准了其科学委员会的一项动议。联邦民主党(FDP)、GLP、SP和绿党特别支持。另一方面，社会党(SVP)和中层则以多数票拒绝了这一要求。现在轮到国务委员会(Ständerat) 确定下一步行动了。
 
+该动议呼吁联邦委员会(der Bundesrat)建立一个法律基础并确定框架条件。还应该提出一个解决所有未解决问题的路线图。
 
-国际律师协会（IBA）最近开发了一款名为“暴行目击者”（eyeWitness to Atrocities）的应用程序。该程式正在将来自乌克兰战区的图片和视频片段转化为符合法律规定的高标准核查格式。
+在其提案中，委员会谈到了一个 “当代解决方案”。委员会发言人Thomas Brunner（GLP/SG）说，在欧洲，除了瑞士之外，只有德国禁止卵细胞捐赠。”这不是关于生育的权利，而是关于儿童的最大利益和性别平等。” 因为通过合法化，受影响的夫妇将与那些出于男性原因的不孕症夫妇处于平等地位。布鲁纳保证，这既不是代孕，也不是胚胎捐赠。
 
-国际刑事法院首席检察官、英国大律师卡里姆·汗（Karim Khan）本月表示，他已开始对俄罗斯于2月24日开始入侵乌克兰一事进行调查。
+但少数人担心瑞士的儿童正日益成为商品。 社会党(SVP) 的 Alois Huber先生批评道: “通过这一举措，道德界限会下降”。他认为卵子捐赠只是一个开始，女性现在是否变为只是生产和分娩的机器。此外，他还警告说要注意健康风险，并呼吁我们应该接受大自然的意愿。
 
-总部设在伦敦的eyeWitness主任温迪·贝茨（Wendy Betts）说，由于围绕乌克兰战争的虚假信息太多，记录者面临的一个挑战是捕捉可靠的潜在照片和视频证据。虽然个人为收集这些信息所冒的风险很大，但重要的是这些信息可以用来寻求正义。
+联邦委员会也公开反对该动议。原因：目前正在评估《生殖医学法》。预计将在来年取得第一批结果。 “我们愿意再等等看，”联邦议员阿兰·贝尔塞特说。
 
-该应用程序的乌克兰资源中心正在支持“民间社会团体、记者和乌克兰平民记录潜在的战争罪行”。
+去年秋天，关于捐卵的讨论得到了新的推动。那个时候，选民们明确表示同意 “人人享有婚姻”（包括同性），因此也同意人人享有精子捐赠。
 
-国际律师协会执行董事马克·埃利斯（Mark Ellis）说：“该应用程序是国际刑事法院（ICC）的一个重要调查和证据工具。该程序通过视频和图片记录罪行，在法院确保将犯有战争罪的人绳之以法中发挥重要作用。
+尽管如此，卵子捐赠还有很长的路要走：尽管得到了国民议会的批准，但目前尚不确定该请求能否在议会获得通过。政治家们通常认为使新事物合法化感到很为难。
 
-国际律师协会发布的媒体称，目击者团队正在“创建档案，以提交给国际刑事法院等法庭”。
+这一点在咨询期间也很明显。此外，这个问题在伦理上有很大的争议，以至于最终选民可能会有最后的决定权。
 
-国际刑事法院有权以种族灭绝罪、战争罪、反人类罪和侵略罪起诉个人。
-
-在国际刑事法院发表报告将俄罗斯对克里米亚的吞并归类为占领后，俄罗斯于2016年退出了国际刑事法院。
-
-参考链接：[Lawyer app helps build war crimes case against Putin](https://www.afr.com/policy/foreign-affairs/lawyer-app-helps-build-war-crimes-case-against-putin-20220322-p5a6s6)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+信息来源：[https://www.tagblatt.ch/news-service/inland-schweiz/kinderwunsch-unfruchtbare-paare-nationalrat-will-eizellenspende-legalisieren-ld.2263687](https://www.tagblatt.ch/news-service/inland-schweiz/kinderwunsch-unfruchtbare-paare-nationalrat-will-eizellenspende-legalisieren-ld.2263687)
 
  
 
