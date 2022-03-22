@@ -2,11 +2,11 @@
 ---
 
 
-## Nicole在乌克兰前线最新连线（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210300/)
+## 在救援前线只有新中国联邦的帐篷有现磨咖啡
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210352/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-50_9-00一1.png)
+**PPT制作: WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-00_9-10二.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

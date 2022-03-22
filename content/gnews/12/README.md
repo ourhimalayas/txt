@@ -2,28 +2,24 @@
 ---
 
 
-## 俄罗斯反对派领袖纳瓦尔尼料再判监13年
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2210243/)
+## 画地为牢式的中共防疫管控
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2210266/)
 
-采集：玫瑰新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-15t122422z_17877761_rc203t9kh9j2_rtrmadp_3_russia-politics-navalny.jpg)俄罗斯反对派领袖纳瓦尔尼在2020年出访西伯利亚时被下毒，之后到德国接受治疗，去年回返俄罗斯被判入狱。（路透社档案照片）
-俄罗斯反对派领袖纳瓦尔尼周二（3月22日）将面对新案下判。检察官寻求以欺诈和藐视法庭罪，让纳瓦尔尼被判处监禁13年。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画地为牢式的中共防疫管控.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.scrumcn.com%2Fagile%2Fwp-content%2Fuploads%2F2014%2F05%2Fscrumcn1387164103.jpg&amp;imgrefurl=https%3A%2F%2Fwww.scrumcn.com%2Fagile%2Fscrum%2F4800.html&amp;tbnid=pPGD53xxJKZ-wM&amp;vet=12ahUKEwiz_KTe3Nn2AhVr2OAKHecNAHsQMygRegUIARDGAQ..i&amp;docid=IoLCLCXgf_S7uM&amp;w=500&amp;h=303&amp;q=%E7%94%BB%E5%9C%B0%E4%B8%BA%E7%89%A2&amp;ved=2ahUKEwiz_KTe3Nn2AhVr2OAKHecNAHsQMygRegUIARDGAQ)
+3月22日中新经纬报道，据“河南发布”微信公众号消息，2022年3月22日0时起，河南将对省外返豫入豫人员，实行入豫即赋码、三天两次核酸检测等健康管理措施。通知中明确，河南将统一对省外返豫入豫人员河南省健康码赋黄码。
 
-据路透社报道，纳瓦尔尼因违反假释条例被判入狱两年半，目前在莫斯科东部监狱服刑。他自称被陷害入狱，外界捏造事实指他是俄罗斯总统普京的政敌。服刑期间，纳瓦尔尼呼吁俄罗斯人积极反对在乌克兰发起的战争。
+河南目前没有省内初发病例，赋黄码是早预防，三天两检是早发现，接下来才能精准防控。中共病毒（新冠病毒Covid-19）已爆发两年多，英国，日本，加拿大，巴基斯坦……众多国家相继放开管控措施，而中共国有愈演愈烈的趋势，对本已严重的经济下跌犹如历雪上加霜般的灾难。
 
-纳瓦尔尼女发言人吉拉周一（21日）说，检察官上周已要求将纳瓦尔尼转移到保安绝对严密的监狱，理由是纳瓦尔尼在牢里犯罪。
+施行所谓行程码和健康码，需要登记个人资料如姓名、身份证明文件号码和签发日期、联络电话号码、居住地址等资料，并上载在所住址证明，核实住址后，申请人会获发个人识别码以启动账户。申报健康状况，经系统对比其住址和过去15天出行记录，以及确诊与密切接触者名单，从而获取由系统判定的红、黄或绿色个人“健康码”。
 
-吉拉说：“纳瓦尔尼或将被转移到比莫斯科更远的地方，律师将难以进入那里的监狱，我们将无法接触到阿莱克西（纳瓦尔尼）。这不是他个人自由的问题，而是人生问题……他们是那批尝试杀害他的人，这是我们害怕的事。”
+中共国地方政府懒政管理施行“一刀切”，把防控措施做到层层加码，以疫情防控为由，掌握所有人员的个人信息和行踪，画地为牢，囚禁国人。
 
-纳瓦尔尼在2020年出访西伯利亚时被下毒，之后到德国接受治疗，去年回返俄罗斯被判入狱。纳瓦尔尼指普京对他下毒手，但克里姆林宫否认这么做。
+[【河南“入豫变黄码”引发争议】](https://mi.mbd.baidu.com/r/DeknWKggRa?f=cp&amp;rs=1837293515&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=8d21e0d511702c78&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-吉拉说，纳瓦尔尼预计将被判刑13年，但他的工作仍将继续。她说：“我确信阿莱克西不会在牢里多待13年。普京任期无法持续那么久。”
-
-参考连结：[https://www.zaobao.com/realtime/world/story20220322-1254817](https://www.zaobao.com/realtime/world/story20220322-1254817)
-
-审核校对：Barry Jack
-上传排版：F
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,11 +2,11 @@
 ---
 
 
-## Nicole在乌克兰前线最新连线（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210339/)
+## 美、日、法的媒体对新中国联邦救援行动的支持与认可（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210407/)
 
 **PPT制作: WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-50_9-00一3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-00_9-10三3.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
