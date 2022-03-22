@@ -24,13 +24,6 @@
 
 ---
 
-`@miles 3/21/2022 11:51 PM (UTC)`
-
-2022.03.18《The Fringe》 Episode 151  New Hampshire Approves use of Ivermectin; Mr. Guo reiterates Zeng Qinghong’s recent movements; Elon Musk Challenges Putin; Will Putin Declare a Truce?
-![img](https://media.gettr.com/group20/origin/2022/03/21/23/2297e1d0-5299-ff85-369d-108662d7da80/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
 `@miles 3/21/2022 11:15 PM (UTC)`
 
 2022.03.21 NFSC News  American Veteran Encourage the NFSC And All Chinese To Continue Taking Down The CCP; In-depth Interpretation the Sinister Intentions of Bloomberg's Front Line Interview
@@ -152,6 +145,13 @@ Children don't need war, children need their mothers and fathers .<br/> The suns
 
 3/20/2022 Miles Guo: Dictators will not give up their grip on power even if they are in the face of death. Same with Putin and Xi Jinping. People should not cherish any illusion about politicians. The separation of powers, rule of law, and democratic system of the United States are so great! That’s why the US has been able to attract the elites from all over the world to immigrate to the country.<br/><br/>3/20/2022 文贵直播: 独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外；人民不要对政客抱有丝毫幻想；美国的三权鼎立、法治和民主的系统太伟大了，所以才能吸引全世界精英移民美国
 ![img](https://media.gettr.com/group26/getter/2022/03/21/06/f083da3b-b3e5-cbc2-3577-6e28297fb17b/out.jpg)
+
+---
+
+`@miles 3/21/2022 6:00 AM (UTC)`
+
+Liu Yanping, the only senior officer, former head of the State Supervision Commission to the Ministry of State Security who met and negotiated with Miles Guo in 2017 after Miles Guo launched the whistleblower movement, is under disciplinary review and supervisory investigation by the Central Commission for Discipline Inspection and State Supervision commission. The Chinese Communist Party's meat grinder system made Liu Yaping another victim of the Communist Party's internal struggle.<br/><br/>2017年文贵开始爆料后，中共派出的唯一一位与文贵先生见面谈判的中纪委国安部高官刘彦平于2022年3月被宣布接受中央纪委国家监委纪律审查和监察调查。中共的绞肉机体制让刘彦平最终成为中共内斗的牺牲品。<br/>
+![img](https://media.gettr.com/group34/getter/2022/03/21/06/b18b320a-c99e-029a-ee4a-1276ad38cce3/out.jpg)
 
 ---
 

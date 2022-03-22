@@ -2,11 +2,11 @@
 ---
 
 
-## 视频|烏克蘭副總理韋列舒克說不需要中國提供棉被，烏國需要的是武器衛國
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2206753/)
+## 视频|无惧随时有炮弹来袭，哈尔科夫消防员徒手救命
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2206899/)
 
 制作：大直播短视频组- 隧道尽头的光
-文案：WEI#6859
+文案：聪宁
 
 审核/编辑/发稿：谐趣园
 
@@ -17,10 +17,6 @@
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 [**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
-
 
  
 

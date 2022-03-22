@@ -2,24 +2,25 @@
 ---
 
 
-## 秘翻在线: 为防疫北京多处公共场所暂停开放
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2206152/)
+## 俄罗斯特级大师因支持普京被禁
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2206346/)
 
-撰稿：西枫westca
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-10-1.jpg)图片来源：网络照片
-据网易3月20日报道，北京市多处公共场所暂停开放，同时，部分从北京北站出发的多趟列车停运，引起关注。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Schach-Sergej-Karjakin-gesperrt.jpg)
 
-国家大剧院，天坛公园部分区域，凤凰中心，中国儿童中心老牛儿童探索馆，首都博物馆部分区域，中国科学技术馆，孔庙和国子监博物馆，北京动物园北极熊馆，炎黄艺术馆调整开放时间，许多场馆暂停开放。这种大规模的公共设施关闭，非同寻常。在20日的北京市新闻发布会上，北京市疾病预防控制中心副主任庞星火说，截至当时，北京市本次疫情涉及9名60岁及以上老人、12名12岁及以下儿童。当日新增本土新冠病毒感染确诊者7例。奥密克戎变异株传染性强、传播速度快，高龄等出现重症的风险增加。
 
-仅有数十人感染的病例，至于这样大规模关闭大型场所吗？由于中共一贯掩盖真相，外界普遍质疑数据真实性。北京的疫情会有多严重， 是否已经扩散，还是政府为进一步加强控制的一种手段呢？
+图片来源：德新社
 
-**新闻来源：**
+出生于乌克兰的俄罗斯棋手谢尔盖·卡尔亚金公开支持俄罗斯入侵和普京。 世界协会现在已经封锁了他六个月。 马格努斯卡尔森的前世界冠军挑战者所说的理由和确切内容。
 
-[注意！北京这些地方暂停对外开放~|中国科学技术馆|炎黄艺术馆|首都博物馆\_网易订阅 (163.com)](https://www.163.com/dy/article/H2T2T8QC0548OE0E.html)
+世界国际象棋协会 Fide 因支持俄罗斯入侵乌克兰而将前世界杯挑战者谢尔盖·卡尔亚金禁赛六个月。 联合会道德委员会认为，这位来自俄罗斯的特级大师损害了这项运动和世界联合会的声誉，因此违反了道德准则。 该协会周一宣布了这一消息。
 
-[注意！北京北、呼和浩特东等站出发多趟列车停运|包头|集宁|乌兰察布|鄂尔多斯\_网易订阅 (163.com)](https://www.163.com/dy/article/H2T48PRG0530WJIN.html)
+简评：一个出生在乌克兰的国际象棋大师， 居然支持普京。 这就是下场。 禁赛6个月。 因为他损害了国际象棋运动和世界联合会的声誉。
+
+🔗 [https://www.welt.de/sport/article237694601/Schach-Ass-Russischer-Grossmeister-nach-Unterstuetzung-fuer-Putin-gesperrt.html](https://www.welt.de/sport/article237694601/Schach-Ass-Russischer-Grossmeister-nach-Unterstuetzung-fuer-Putin-gesperrt.html)
+
+编辑发表： Shuizhuyu
 
  
 

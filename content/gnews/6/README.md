@@ -2,15 +2,19 @@
 ---
 
 
-## 7News 《全球视点》马斯克单挑普京，人类星际文明的里程碑
-` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2207113/)
+## 如果习打台湾，是否会引起第三次大战（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207221/)
 
-制作：宁南
+#### PPT制作: Qingjing ；玉米地的
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-01-三-scaled.jpeg)
+*发布：陶子*
 
-世界首富马斯克一则推文引发了世界关注，特别是那些意欲威胁世界拥核的邪恶轴心国，如俄罗斯、中共、伊朗、巴基斯坦、朝鲜等。他们倾一国之力，数年打造的所谓摧毁人类几十次的核武器，将一文不值，而且还要花巨资维护保养。
-人类战争将告别钢铁洪流的机械化时代，基于太空技术的星际争夺将成为未来的焦点。人类也将从此踏上星际文明的时代。
-
-排版上传：文勇
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
