@@ -2,19 +2,16 @@
 ---
 
 
-## Nicole在乌克兰前线最新连线（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210339/)
+## 20220320郭文贵大直播 ：美国人要动手了，卖股票的朱家
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2210568/)
 
-**PPT制作: WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-50_9-00一3.png)
-*发布：*tianzhihuan
+作者：东京樱花团小视频组
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

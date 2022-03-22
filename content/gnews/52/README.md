@@ -2,24 +2,25 @@
 ---
 
 
-## 秘翻在线: 为防疫北京多处公共场所暂停开放
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2206152/)
+## 比特币去中心化骗局
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208017/)
 
-撰稿：西枫westca
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有。其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化背道而驰，其根本是由极少数人大量持有且高度中心化。由于比特币热搞饥饿营销，市面上传说2100万是比特币的总数量，但这个数量没有任何机构来监管。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-73.jpg)
+事实上，货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本，比特币也不可能运维成本如此高昂的支付系统。没有流通没有支付，这些原因导致了比特币只能沦为洗钱的工具。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-10-1.jpg)图片来源：网络照片
-据网易3月20日报道，北京市多处公共场所暂停开放，同时，部分从北京北站出发的多趟列车停运，引起关注。
+参考链接：[2022年3月20日 文贵大直播](https://gettr.com/post/p10y5j870c5)
 
-国家大剧院，天坛公园部分区域，凤凰中心，中国儿童中心老牛儿童探索馆，首都博物馆部分区域，中国科学技术馆，孔庙和国子监博物馆，北京动物园北极熊馆，炎黄艺术馆调整开放时间，许多场馆暂停开放。这种大规模的公共设施关闭，非同寻常。在20日的北京市新闻发布会上，北京市疾病预防控制中心副主任庞星火说，截至当时，北京市本次疫情涉及9名60岁及以上老人、12名12岁及以下儿童。当日新增本土新冠病毒感染确诊者7例。奥密克戎变异株传染性强、传播速度快，高龄等出现重症的风险增加。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-仅有数十人感染的病例，至于这样大规模关闭大型场所吗？由于中共一贯掩盖真相，外界普遍质疑数据真实性。北京的疫情会有多严重， 是否已经扩散，还是政府为进一步加强控制的一种手段呢？
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-**新闻来源：**
 
-[注意！北京这些地方暂停对外开放~|中国科学技术馆|炎黄艺术馆|首都博物馆\_网易订阅 (163.com)](https://www.163.com/dy/article/H2T2T8QC0548OE0E.html)
-
-[注意！北京北、呼和浩特东等站出发多趟列车停运|包头|集宁|乌兰察布|鄂尔多斯\_网易订阅 (163.com)](https://www.163.com/dy/article/H2T48PRG0530WJIN.html)
 
  
 

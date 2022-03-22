@@ -2,18 +2,22 @@
 ---
 
 
-## 在救援前线只有新中国联邦的帐篷有现磨咖啡
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210352/)
+## 秘翻在线：想要保卫祖国的乌克兰数学家因无法逃离俄罗斯而自杀
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2210577/)
 
-**PPT制作: WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-00_9-10二.png)
-*发布：*tianzhihuan
+**撰稿：葛大饼**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-22-213238.jpg)图片来源： cnbeta
+根据2022年3月22日凤凰报道， 3月20日，年仅27岁的乌克兰数学家康斯坦丁（Konstantin Olmezov）在俄罗斯自杀。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+新闻称他在2月26日第一次试图离开俄罗斯时被拘留了15天。之后，他被邀请到奥地利继续读研究生并购买了去土耳其的飞机票，但第二次也没有成功。随后，他选择了自杀。
+
+热爱数学和诗歌的康斯坦丁在遗书中写道：“我想回去保卫我的祖国，保卫它免受想要从我手中夺走它的人的伤害。在上公共汽车时，我被逮捕了。进入牢房后，我只求一死，我以七种不同的方式进行了至少十次自杀尝试。失去自由对我来说比死亡更糟糕。如果禁止我选择活着的方式和地点，我宁可选择不再活着。我为这场战争的每一方都感到痛苦。但是，我亲眼看到了谁在保卫自己的土地、谁在夺取别人的土地。我亲眼看到谁在捍卫对自己生命负责的权利，谁在为自己的堕落辩护。保持沉默，撒谎，假装周围什么都没有发生，是不值得的；而呆在监狱里完全无能为力，是可耻的；不断寻求帮助，害怕所有人是可耻的；在别国领土上伤害另一个国家是双重可耻的。我看不到有尊严地继续我的生命的方法。”
+
+普京的个人战争导致了无数人的家破人亡，普特勒是个战争犯，和他的神经病病友习太阳一样，为了自己的疯狂牺牲了无数人的未来！共产主义，独裁必须被彻底铲除！
+
+**[新闻来源](https://tech.ifeng.com/c/8EaYmaEsn2J)**
+
+#  
 
  
 

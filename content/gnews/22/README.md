@@ -2,38 +2,24 @@
 ---
 
 
-## 拜登称普京可能在乌克兰使用生化武器
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2210042/)
+## 画地为牢式的中共防疫管控
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2210266/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画地为牢式的中共防疫管控.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.scrumcn.com%2Fagile%2Fwp-content%2Fuploads%2F2014%2F05%2Fscrumcn1387164103.jpg&amp;imgrefurl=https%3A%2F%2Fwww.scrumcn.com%2Fagile%2Fscrum%2F4800.html&amp;tbnid=pPGD53xxJKZ-wM&amp;vet=12ahUKEwiz_KTe3Nn2AhVr2OAKHecNAHsQMygRegUIARDGAQ..i&amp;docid=IoLCLCXgf_S7uM&amp;w=500&amp;h=303&amp;q=%E7%94%BB%E5%9C%B0%E4%B8%BA%E7%89%A2&amp;ved=2ahUKEwiz_KTe3Nn2AhVr2OAKHecNAHsQMygRegUIARDGAQ)
+3月22日中新经纬报道，据“河南发布”微信公众号消息，2022年3月22日0时起，河南将对省外返豫入豫人员，实行入豫即赋码、三天两次核酸检测等健康管理措施。通知中明确，河南将统一对省外返豫入豫人员河南省健康码赋黄码。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/02/IMG_1104.jpg)
+河南目前没有省内初发病例，赋黄码是早预防，三天两检是早发现，接下来才能精准防控。中共病毒（新冠病毒Covid-19）已爆发两年多，英国，日本，加拿大，巴基斯坦……众多国家相继放开管控措施，而中共国有愈演愈烈的趋势，对本已严重的经济下跌犹如历雪上加霜般的灾难。
 
+施行所谓行程码和健康码，需要登记个人资料如姓名、身份证明文件号码和签发日期、联络电话号码、居住地址等资料，并上载在所住址证明，核实住址后，申请人会获发个人识别码以启动账户。申报健康状况，经系统对比其住址和过去15天出行记录，以及确诊与密切接触者名单，从而获取由系统判定的红、黄或绿色个人“健康码”。
 
-图片来源： 路透社
+中共国地方政府懒政管理施行“一刀切”，把防控措施做到层层加码，以疫情防控为由，掌握所有人员的个人信息和行踪，画地为牢，囚禁国人。
 
-周二，乌克兰军方警告公众，俄罗斯将更加不分青红皂白地进行炮击， 俄罗斯军队也陷入了困难境地。美国总统乔拜登发出了迄今为止最强烈​​的警告，称俄罗斯正在考虑使用化学武器。
+[【河南“入豫变黄码”引发争议】](https://mi.mbd.baidu.com/r/DeknWKggRa?f=cp&amp;rs=1837293515&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=8d21e0d511702c78&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-在俄罗斯不断轰炸乌克兰城市造成的破坏中，总统泽连斯基强调了一名 96 岁的纳粹集中营幸存者在哈尔科夫的炮击中丧生的事件。
-
-入侵近四个星期后，俄罗斯军队未能占领乌克兰的任何主要城市，几乎在所有战线都被阻止，但正在用大炮、导弹和空袭打击居民区。
-
-乌克兰武装部队在一份声明中说，预计俄罗斯军队将继续使用“高精度武器和滥杀滥伤弹药”攻击关键基础设施。
-
-俄罗斯最近几周一直在说乌克兰可能拥有化学或生物武器。拜登说，这些指控不仅是错误的，而且表明总统弗拉基米尔·普京可能正计划自己使用此类武器。
-
-拜登在周一的一次商业活动中说：“现在普京正在谈论他正在设置的新虚假旗帜，包括声称美国和欧洲拥有生物和化学武器，这根本不是真的。” “他们还暗示乌克兰拥有生化武器。这是他正在考虑使用这两种武器的明显迹象。”
-
-普京称这场战争是自第二次世界大战以来对欧洲国家的最大袭击，是解除乌克兰武装并保护其免受“纳粹分子”侵害的“特殊军事行动”。西方称这是无端侵略战争的虚假借口。
-
-在隔夜的一次讲话中，泽连斯基提请注意鲍里斯·罗曼琴科的死讯，这位大屠杀幸存者上周在被围困的哈尔科夫的公寓遭到炮击时丧生。
-
-除了已经宣布的史无前例的经济处罚之外，拜登将于本周前往欧洲与盟国领导人会面，讨论对俄罗斯实施更严厉的制裁。白宫表示，他在周一与欧洲领导人的电话会议中讨论了俄罗斯的“野蛮”策略。
-
-🔗[https://www.reuters.com/world/biden-says-putin-could-use-chemical-biological-weapons-ukraine-2022-03-22/](https://www.reuters.com/world/biden-says-putin-could-use-chemical-biological-weapons-ukraine-2022-03-22/)
-
-编辑发布： Shuizhuyu
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,23 @@
 ---
 
 
-## 中日财经爆|日元汇率时隔6年再次跌破120日元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2209232/)
+## 马立波捷报！歼灭俄军特种部队扣获大量军事装备
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2209873/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d4734595.jpg)图片来源
-3月22日东京外汇市场，日元卖盘和美元买盘加速，日元汇率自 2016 年 2 月以来再次跌至1美元兑120日元水平。自本月初以来，汇率快速下跌，日元在约两周内贬值了约 5 日元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEe7GSa.jpg)图片来源：亚速营
 
-3月16日决定加息的美联储主席鲍威尔21日发表讲话称，未来加息可能超出市场普遍预期，长期利率已经上升。随着日本央行的货币宽松政策，与日本持续处于低位的利差有望扩大，投资上具有优势的美元的买入趋势加剧。
+据自由时报3月21报道，俄军围困乌克兰南部大城马立波数日，俄军甚至要求马立波的乌军放下武器投降，引发外界关注。乌克兰国民卫队「亚速营」传出捷报，宣称歼灭俄罗斯在马立波一支格鲁乌（GRU）特种部队，并扣获大量的军事装备。
 
-自去年底美国加息政策明朗以来，日元贬值，美元升值。鉴于俄罗斯对乌克兰的长期军事入侵，美元作为关键货币，更有可能吸引买盘。
+简评：俄军围困马立波要求放下武器，乌克兰国民卫队传出捷报歼灭俄特种部队。可见俄军的攻心之计没有得逞，乌克兰人还在顽强的抵抗，靠吓唬是唬骗不了乌克兰人的，普京不停止战争，乌克兰人将反抗到底！
 
-消息来源:[東京円、一時１ドル＝１２０円台まで下落…６年ぶりの円安水準](https://www.yomiuri.co.jp/economy/20220322-OYT1T50071/)
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3866713](https://news.ltn.com.tw/news/world/breakingnews/3866713)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+撰稿/发布：一叶知秋
 
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

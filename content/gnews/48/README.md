@@ -2,26 +2,33 @@
 ---
 
 
-## 亚洲数字银行推出A-Bank超级钱包
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208230/)
+## 美国因中共的“镇压行为”对其官员实施旅行禁令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208633/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
 翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A_BANK.jpeg)图片来源：www.bernama.com
-根据The Paypers3月21日报道，亚洲数字银行（Asia Digital Bank）宣布推出其A-Bank超级钱包，这是一款将传统金融服务与数字服务相结合的电子钱包。
 
-A-Bank超级钱包利用区块链点对点交易的概念、分布式账本和存储系统、加密算法和共识协议的概念，为跨境贸易和服务提供高效的支付解决方案和快速转账。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/902026.jpg)图片来源：REUTERS/Hyungwon Kang
 
-该超级钱包声称是第一个提供法币和数字货币之间交换功能的电子钱包。其用户能够完全控制他们在电子钱包上的所有资产。A-Bank超级钱包的核心功能允许在岸和离岸存款、取款，以及实物货币和数字货币之间的兑换。
 
-在其第一阶段的运作中，A-Bank超级钱包支持五种货币，其中包括马币、新币、美元、人民币和港币及稳定币，如USDT和USDC。更多的法定货币和数字货币将在第二阶段加入，为用户提供更多选择。
+根据ALJAZEERA3月21日报道，美国总统乔·拜登（Joe Biden）政府正在对中共国官员实施旅行禁令，并指责这些中共官员镇压维吾尔族穆斯林以及其他少数民族和宗教少数群体。
 
-据亚洲数字银行称，用户可以灵活选择通过银行转账、电汇、Visa、万事达、JCB、银联国际、PayPal、支付宝全球、微信全球等方式完成离线或在线交易，如充值和提款。
+美国国务院周一宣布，禁止这些官员前往美国，因为他们参与了“镇压行为”，以及在中共国和国外对言论和宗教自由的镇压。
 
-新闻来源：[Asia Digital Bank launches its A-Bank Super Wallet](https://thepaypers.com/online-mobile-banking/asia-digital-bank-launches-its-a-bank-super-wallet--1255261)
+该部门没有确定哪些官员将受到扩大禁令的限制，也没有说有多少人将受到影响。
 
-发布：tianzhihuan
+国务卿安东尼·布林肯在一份声明中说，制裁适用于那些“被认为对旨在镇压宗教和精神修行者、少数民族成员、持不同政见者、人权捍卫者、记者、劳工组织者、民间社会组织者以及中共国和其他地方的和平抗议者的政策或行动负有责任或与之同谋的中共国官员。”
+
+此举增加了美国前总统唐纳德·特朗普政府最初因中共对待新疆西部地区的维吾尔族穆斯林而实施的签证限制，以及对香港民主运动人士和西藏自由倡导者的镇压。
+
+联合国称，至少有100万维吾尔人被关押在新疆的所谓“反极端主义中心”。人权组织认为，中共对维吾尔人的待遇相当于种族灭绝和反人类罪。
+
+在拜登与中共国国家主席习近平通话的几天后，国务院的制裁措施就出台了，当时美中在乌克兰战争上的紧张关系不断加剧。
+
+新闻来源：[US hits Chinese officials with travel bans over ‘repressive acts’](https://www.aljazeera.com/news/2022/3/21/us-hits-chinese-officials-with-travel-bans-over-repressive-acts)
+
+发布： tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

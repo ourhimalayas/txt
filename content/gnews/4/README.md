@@ -2,18 +2,22 @@
 ---
 
 
-## 美、日、法的媒体对新中国联邦救援行动的支持与认可（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210366/)
+## 习近平政权将因乌克兰战争而被彻底灭亡
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2210594/)
 
-**PPT制作: WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-00_9-10三1.png)
-*发布：*tianzhihuan
+加拿大温哥华扬帆农场    平民正道
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+据3月20日文贵先生盖特透露，美国即将开始对中共当局实施准备已久的各项制裁，特别是对其宣传媒体及其网络平台的致命围剿。同时，中共政权会因支持普京入侵乌克兰而彻底被欧美摧毁。
+
+据悉，美国将对包括凤凰卫视，人民日报，百度，以及南华早报等中共大外宣喉舌及相关互联网媒体进行重点制裁。以此作为对这些企业支持和美化俄军侵略乌克兰以及进行欺骗性战争宣传的严厉惩罚。
+
+面对俄乌战争，习近平当局无论如何都会坚决支持普京政权，这是中共十八大以来的既定方针。正因为中共明确要搞垮美国的决心，而导致该政权会被欧美消灭得非常狠、非常彻底。
+
+对此，文贵先生再次指出，2022年将是世界上最黑暗的时刻，但也将是普京和习近平彻底被世界正义力量终结的一年。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

@@ -2,28 +2,41 @@
 ---
 
 
-## 乌克兰的孩子走进了正在直播的镜头里
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2210196/)
+## 扣押600小时后部分切尔诺贝利人质被放
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2210443/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-20.07.33.png)
-梅迪卡前线时间3月22日，前线战友正在连线做直播途中，画面中进来了三个乌克兰的孩子，他们热情地和战友打招呼并且拥抱，还和镜头前的观众打招呼。孩子们脸上的笑意让人心都化了，战友蹲下来和几个孩子交谈，因为语言不通，借助手机翻译，几个孩子问了战友来自哪里，并对战友表示了感谢。接着孩子们蹦蹦跳跳离开了。
+翻译：噜噜咪
 
-这一幕太安慰了。我们唯真不破，直播中出现了这样温馨的意外，这几个孩子来到我们的直播是自然而然的，他们的主动拥抱和感谢，这是共产党永远都做不到的。战友还说在当地，很多西方面孔都学了中国话“你好”，主动和参与救援的战友打招呼。这次救援行动让西方人看到新中国联邦人的可爱，正如战友所说的，人家不喜欢你不会和你用中文打招呼的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1647817911266.png)3月10日，切尔诺贝利核设施的卫星图像。图片：：Maxar Technologies
 
-撰稿、发布：骄子
+乌克兰官员周日表示，自俄罗斯军队三周前占领切尔诺贝利核电站以来，约有一半的工人实际上被扣为人质，现在他们终于能够离开。
+
+根据核电站的一份声明，64名工人在设施内呆了大约600小时后离开。该声明补充说，他们被46名“雇员-志愿者”所取代。
+
+国际原子能机构（IAEA）表示，乌克兰官员通知联合国核监督机构，“现场人员的轮换已于上午开始，那些已经离开的人已经被其他乌克兰工作人员取代。”
+
+国际原子能机构总干事拉斐尔·马里亚诺·格罗西在一份声明中说，一些切尔诺贝利的工作人员已经回到了他们的家庭，这是“一个积极的发展，尽管早该如此”。
+
+格罗西补充说：“他们在这种极其困难的情况下工作，值得我们充分尊重和敬佩。”
+
+“他们在那里呆的时间太长了。我真诚地希望，这个班次的剩余工作人员也能尽快轮换。”
+
+**参考资料：**[axios][Some Chernobyl workers allowed to leave after 600 hours inside plant](https://www.axios.com/64-chernobyl-workers-leave-russian-controlled-plant-6f14eaab-1adf-406f-94c1-7a711d1459a7.html)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+*审核：文乐
+校对：花羽
+发稿：信心的选择*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
