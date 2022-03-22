@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 6:22 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
+![img](https://media.gettr.com/group43/origin/2022/03/22/18/04f9180a-4952-b8bb-1914-4bdf675b29b9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/22/2022 6:06 PM (UTC)`
 
 加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。喜联储主席William先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，那么这个问题也可以轻松解决。 其中一项要求是了解您的客户（KYC）——交易场所成员在加入时都必须注册完整的个人资料。William先生还说，“我已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。”<br/> https://gnews.org/zh-hans/2210861/
@@ -146,13 +153,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 3/21/2022 Miles Guo: Bruno Wu, Cheng Shuiyan, Boxun, and those fake pro-democracy activists will certainly be investigated and indicted. If fellow overseas Chinese still cannot wake up, they’ll be in serious trouble. The New Federal State of China is our sole Noah’s Ark.<br/><br/>3/21/2022 文贵直播：吴征、程水炎、博讯还有那些砸郭的所有欺民贼伪民运一定会被美国政府调查；海外华人再不醒来，你的灾难已经到来，唯一的诺亚方舟就是新中国联邦！<br/>
 ![img](https://media.gettr.com/group21/getter/2022/03/22/02/7c86e09f-fab3-94d0-3c7e-9d65df27a26d/out.jpg)
-
----
-
-`@miles 3/22/2022 2:25 AM (UTC)`
-
-
-![img](https://media.gettr.com/group47/origin/2022/03/22/02/550e40c9-6724-e423-bbc8-899cd0459561/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
