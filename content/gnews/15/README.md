@@ -2,40 +2,32 @@
 ---
 
 
-## 俄罗斯可能将对美国发动网络攻击
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2207918/)
+## 北约称俄乌战争即将进入相持阶段，拜登称俄罗斯正考虑使用生化武器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2207986/)
 
-By：喜国公民
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16479181331.png)图片来源：MoneyControl
+据《新闻极限》3月21日报道，一位北约高级情报官员周一告诉NBC（美国全国广播公司新闻网），俄罗斯对乌克兰的入侵要么处于相持阶段，要么即将进入相持阶段。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+这位匿名情报官员说：“如果我们没有陷入僵局，我们也正在迅速接近僵局，现实情况是，双方都不具备对另一方的优势，任何一方都无法获胜，并且双方都不会认输。”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2477.png)图片来自网络
-由于俄罗斯入侵乌克兰，西方国家对俄罗斯发起了历史上最严厉的制裁。面对西方的制裁，俄罗斯总统普京并没有让步。事实上，他正在变得更加疯狂，扬言要让西方世界承受代价。
+这位北约官员指出，俄罗斯总统普京（Vladimir Putin）的战争在两周内没有取得重大进展，但他似乎仍然不愿意退缩。
 
-美国总统拜登周一警告说，俄罗斯将对美国进行网络攻击。他认为俄罗斯的网络能力的规模是相当大的，最有可能使用的工具之一就是网络攻击。拜登敦促美国公司，立即加强网络防御。
+该官员进一步声称，白俄罗斯可能很快就会加入俄罗斯的入侵行动，并准备让俄罗斯在其境内部署核武器。
 
-美国负责网络和新兴技术的国家安全副顾问安妮·纽伯格警告说，俄罗斯政府正在考虑对美国关键基础设施进行潜在网络攻击。
+另据《新闻极限》报道，周一，拜登在一个商业圆桌会议上说，普京“没有退路，情况危急，现在他正在谈论他计划的新的栽赃行动，包括声称我们美国在欧洲有生物和化学武器，这根本就不是真的”。
 
-然而，美国战略与国际研究中心技术主任詹姆斯·刘易斯认为，俄罗斯发起的网络攻击更可能是针对脆弱的第三方和关键的供应链。
+拜登指出，“他们（俄罗斯）还暗示乌克兰有生物和化学武器。这是一个明显的信号，他（普京）正在考虑（在乌克兰）使用这两种武器”。
 
-美国联邦机构已召集了多家美国公司，分享关于俄罗斯潜在网络攻击的新情报，并给企业提供了加强网络安全的工具。
+文章指，拜登的这番话呼应了美国和盟国官员之前的评论，即俄罗斯散布未经证实的说法，称乌克兰有一个生物武器计划，目的是为自己发动生物或化学武器攻击寻找借口。
 
-目前，美国还没得到情报证明具体的网络攻击，但正在积极地做好一旦遭受攻击的准备。美国政府将使用各种工具来阻止针对关键基础设施的网络攻击。
+*责编：白夜*
 
-历史上，俄罗斯在与其它国家的冲突中曾经展示过它的网络攻击能力。早在2008年，俄罗斯入侵格鲁吉亚和2014年入侵克里米亚时，乌克兰就成为俄罗斯网络行动的受害者。在2015年和2016年，由俄罗斯发动的网络袭击使乌克兰的电力中断了几个小时。
+**新闻来源**
 
-俄罗斯有能力使用网络战来破坏对手的通信、组织和供应，这使得许多人预计它将在这场俄乌战争中部署这种策略。
+[NATO Official: Russia-Ukraine War ‘Rapidly Approaching’ a Stalemate](https://www.newsmax.com/newsfront/russia-ukraine-sanctions-nato/2022/03/21/id/1062251/)
 
-消息来源：[Biden warns Russian cyberattacks ‘coming’](https://www.politico.com/news/2022/03/21/biden-russia-cyberattacks-00018942)
-
-[Where is Russia’s cyberwar? Researchers decipher its strategy](https://www.nature.com/articles/d41586-022-00753-9)
-
-*审核：喜国公民*
-
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
+[Biden Says Putin Is Weighing Use of Chemical Weapons in Ukraine](https://www.newsmax.com/newsfront/chemicals/2022/03/21/id/1062257/)
 
  
 

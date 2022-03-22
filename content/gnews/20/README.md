@@ -2,33 +2,39 @@
 ---
 
 
-## 埃隆·马斯克称乌克兰的星链已经正式启动
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2207792/)
+## 俄罗斯可能将对美国发动网络攻击
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2207918/)
 
-翻译：冰糖葫芦喵
+By：喜国公民
 
-编辑与校对：灭共文明、冰糖葫芦喵
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-《零对冲》3月21日报道，**SpaceX与特斯拉首席执行官埃隆·马斯克已经正式启动了乌克兰的星链（Starlink）互联网服务。**上周末，马斯克表示，在基辅的官员游说建立电站后，SpaceX启动了这项服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/埃隆马斯克.png-e1647915695359.jpg)aaiai’lai’loai’lonai’longai’lonai’loai’laia
-据报道，在上周，马斯克在听到基辅官员的呼吁后，并于本周末在推特上表示，**星链服务现在在乌克兰很活跃，更多的航站楼正在建设中。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2477.png)图片来自网络
+由于俄罗斯入侵乌克兰，西方国家对俄罗斯发起了历史上最严厉的制裁。面对西方的制裁，俄罗斯总统普京并没有让步。事实上，他正在变得更加疯狂，扬言要让西方世界承受代价。
 
-据雅虎新闻(Yahoo News)的一篇新报道称，**乌克兰数字转型部长米哈伊洛·费多罗夫**(Mykhailo Fedorov)曾在该国被俄罗斯入侵后，立即**游说马斯克提供帮助**。
+美国总统拜登周一警告说，俄罗斯将对美国进行网络攻击。他认为俄罗斯的网络能力的规模是相当大的，最有可能使用的工具之一就是网络攻击。拜登敦促美国公司，立即加强网络防御。
 
-他在推特上恳求马斯克，**当你们试图殖民火星时，俄罗斯却试图占领乌克兰!当你们的火箭从太空成功着陆时，俄罗斯的火箭袭击了乌克兰人民!我们请求你为乌克兰提供星链站。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/星链在太空.png)星链（图片来源：网络）
-大约一个半周前，**互联网上出现了一段未公开的视频，展示了如何设置和使用Powerwall作为移动发电站。**如何在几分钟内部署一个移动发电站，而无需将设备从盒子里拿出来。
+美国负责网络和新兴技术的国家安全副顾问安妮·纽伯格警告说，俄罗斯政府正在考虑对美国关键基础设施进行潜在网络攻击。
 
-该视频还展示了太阳能电池板如何很容易地连接到Powerwall，它将为电池充电，所以即使在现场，你也可以获得独立的电源。
+然而，美国战略与国际研究中心技术主任詹姆斯·刘易斯认为，俄罗斯发起的网络攻击更可能是针对脆弱的第三方和关键的供应链。
 
-此前，**特斯拉向乌克兰运送了设备，试图帮助确保互联网不受干扰。**
+美国联邦机构已召集了多家美国公司，分享关于俄罗斯潜在网络攻击的新情报，并给企业提供了加强网络安全的工具。
 
-报道指出，**星链希望它的2000多颗卫星不仅能帮助乌克兰，还能帮助地球上的其他地方接入互联网。**
+目前，美国还没得到情报证明具体的网络攻击，但正在积极地做好一旦遭受攻击的准备。美国政府将使用各种工具来阻止针对关键基础设施的网络攻击。
 
-新闻来源链接：
+历史上，俄罗斯在与其它国家的冲突中曾经展示过它的网络攻击能力。早在2008年，俄罗斯入侵格鲁吉亚和2014年入侵克里米亚时，乌克兰就成为俄罗斯网络行动的受害者。在2015年和2016年，由俄罗斯发动的网络袭击使乌克兰的电力中断了几个小时。
 
-[Elon Musk Says Starlink Internet Access Is Ready In Ukraine | ZeroHedge](https://www.zerohedge.com/markets/elon-musk-says-starlink-internet-access-ready-ukraine)
+俄罗斯有能力使用网络战来破坏对手的通信、组织和供应，这使得许多人预计它将在这场俄乌战争中部署这种策略。
 
+消息来源：[Biden warns Russian cyberattacks ‘coming’](https://www.politico.com/news/2022/03/21/biden-russia-cyberattacks-00018942)
+
+[Where is Russia’s cyberwar? Researchers decipher its strategy](https://www.nature.com/articles/d41586-022-00753-9)
+
+*审核：喜国公民*
+
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 
 
  

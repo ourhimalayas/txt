@@ -2,18 +2,12 @@
 ---
 
 
-## 在俄乌战场前线的战友很不容易（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207920/)
+## 泽连斯基：乌克兰会竭尽所能与普京谈判
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2208041/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-840-848-3_2.jpeg)
-*发布：陶子*
+03/20/2022 泽连斯基：我们必须利用任何形式、任何机会与普京谈判，如果这次再失败，这意味着第三次世界大战。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

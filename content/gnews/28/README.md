@@ -2,40 +2,39 @@
 ---
 
 
-## 袁国勇料香港约250万人染疫
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2207548/)
+## 拜登总统出席北约峰会并访问波兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207599/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-8.jpg)行政长官林郑月娥昨日在记者会上表示，数日前已提出检视熔断航班机制，并于稍后公布详情。（政府新闻处直播撷图）
-**【大纪元3月21日讯】袁国勇昨早在一个商台节目表示，按医管局及公务员的染疫人数推算，本港至少五分之一人感染，估计实际感染数字约250万。近日的新增个案数字仍超过1万宗，他担忧一旦认为出现超级传播，疫情随时可能反弹，呼吁市民接种疫苗。他又指，若市民紧守社交距离措施，未来一周的确诊数字可能回落至1万宗左右，数周后可能回落至1,000宗，甚至数百宗。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-他又指，很难去消灭一种病毒，病毒会不断变种，间中会再出现，市民未来可能每年都要打疫苗。他预计今年7月的夏季时间，疫情大致上会结束，即使再有人染疫，对社会影响亦不大，可恢复正常生活。
+整理/编辑：文泓
 
-林郑月娥表示，香港在第五波疫情开始后采取非常严厉措施，针对9个国家地域采取熔断机制，她在数日前已提出检视，并于稍后公布详情。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-146.png)图片来源：Wpmi & 雅典娜设计组
 
-**
 
-[【援引连结】](https://www.epochtimes.com/gb/22/3/21/n13660830.htm)
+当地时间20日，白宫官网发表声明称，美国总统拜登将于3月25日前往波兰华沙。
 
-**推出问题，敲出真相，爆料在路上！**
+拜登将于下周访问欧洲，参加将于3月24日在比利时布鲁塞尔举行的北约峰会，白宫表示，拜登将在布鲁塞尔与北约盟国、七国集团领导人和欧盟领导人会面，讨论国际社会为支持乌克兰所做的努力后，他将前往波兰华沙，与安杰伊·杜达总统举行双边会晤。
 
-**请关注和订阅我们的以下账号：**
+白宫发言人珍·普萨基周日晚间表示，拜登总统将于周五前往波兰讨论国际社会对俄罗斯入侵乌克兰引发的“人道主义和人权危机”的反应。
 
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+知情人士日前表示，美国和欧洲官员近期一直在讨论可能在北约峰会中敲定的新措施。这些措施可能包括对俄罗斯寡头的新一轮制裁、进一步限制对俄罗斯能源产品的进口等。美国和欧洲官员还讨论了可以通过哪些措施来为乌克兰提供更多支持，包括提供新的军事援助或财政援助。
 
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+波兰边防卫队周五表示，自2月24日俄罗斯入侵开始以来，已有超过200万难民从乌克兰进入波兰。
 
-**玫瑰看新闻YOUTUBE账号**：
+参考链接：
 
-**玫瑰看新闻**
+1、[美国总统拜登将于3月25日前往波兰](https://news.sina.com.cn/w/2022-03-21/doc-imcwipih9661836.shtml)
 
-**黑森林的故事**
+2、[Joe Biden to visit Poland on Friday to discuss Ukraine crisis | Joe Biden | The Guardian](https://www.theguardian.com/us-news/2022/mar/21/joe-biden-visit-poland-ukraine-crisis)
 
-**ROSE NEWS**
+发布：tianzhihuan
 
-**【玫瑰看新闻】推特账号**：
-
-**ROSE NEWS (@ROSENEWS4)A**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
