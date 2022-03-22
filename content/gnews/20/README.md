@@ -2,35 +2,26 @@
 ---
 
 
-## 美联储最大的通胀问题是股票创记录飙升
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2212223/)
+## 俄军袭击基辅平民设施造成人员伤亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212354/)
 
-乔·卡森（Joe Carson），联盟伯恩斯坦公司（Alliance Bernstein）的前首席经济师，在其“卡森报告”中宣称自己“在经济领域研究了40多年，在华尔街的买方和卖方、政府和私营企业都有经验，主要集中在金融市场和政策分析方面。”他的一篇《美联储最大的通货膨胀问题：股票资产价格的创纪录飙升》3月22日被《零对冲》转载。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A-1.jpg)richardpearlonpolitics.com
-卡森称，美联储终于承认它有一个通胀问题。然而，什么才是更大的通货膨胀问题，并且在其消解时可能对经济的稳定造成更大的破坏？是消费者价格通胀的40年高点，还是资产价格的激增和创纪录的估值？当然，政策制定者会说是消费者价格通胀。然而，我认为是资产价格，因为宽松的货币助长了股票价格的创新高，使宏观估值远远高于网络泡沫。
+作者：东京方舟农场 Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-116.jpg)
+附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。 救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
 
-在过去20多年里，资产膨胀一直是商业周期的一个主要特征。过去两年里，在美联储将其资产负债表翻倍至8.5万亿美元的流动性雪崩的帮助下，国内股票与名义GDP的市场估值（即巴菲特指标）已经跃升至从未想过的水平。在2021年底，国内股票的市场价值与名义GDP的比率为2.55。
+参考链接：[**BOMB BLITZ Shocking moment Russia blows up shopping centre with ballistic missile in latest brutal attack targeting civilians**](https://www.thesun.co.uk/news/worldnews/18017568/eight-civilians-killed-russian-attack-on-shopping-centre/)
 
-值得注意的是，在疫情大流行之前，巴菲特指标在2019年底创下历史新高，超过了互联网泡沫的峰值水平。换句话说，美联储的宽松货币政策导致2019年底的股票估值过高，在2021年底创造了令人难以置信的极端高估值。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-为了正确看待股票市场的估值，如果股票价格在2022年下跌25%，或比标准普尔500指数迄今的跌幅大四倍，这只会使巴菲特指标回到互联网泡沫的高峰，而近一倍的跌幅才能使其达到过去20年的平均水平。
+总编: Zion文恩
+编辑: 宁文静
+审核：Zion文恩
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj.png)
 
-在过去两年之前，历史显示，在极度高估的时期之后，有几年的负回报。然而，在过去两年中，标准普尔股票指数已经跃升了近50%，而纳斯达克指数则上涨了80%以上。因此，股票市场没有进行价值修正，而是进入了一个新的高估轨道。
-
-如果金融业存在万有引力定律，那么股票市场将受到很大的伤害。这是因为货币政策是一种钝性工具。当政策制定者使用传统和非传统的货币政策工具来扼杀消费者价格通胀周期时，它将对资产价格造成沉重打击。此外，鉴于估值过高的规模，股票价格的潜在下跌可能与过去几年的 “大 “跌相媲美。所以投资者应该注意：历史有时会在金融界重演。
-
-**快评**：我听到的是美股市场上嘎吱作响即将崩溃的声音，股票资产价格被极度高估，由一个华尔街的首席经济师说出来，不知道市场上有多少人听见了又听进去了。
-
-“在过去两年之前，历史显示，在极度高估的时期之后，有几年的负回报。然而，在过去两年中，标准普尔股票指数已经跃升了近50%，而纳斯达克指数则上涨了80%以上。因此，股票市场没有进行价值修正，而是进入了一个新的高估轨道。”
-
-出来混，总是要还的。印了这么多钱，大家明显感受到大幅上升的通胀在偷盗自己的劳动成果和生活质量。
-
-郭先生早已警告，全球资产市场今年会有巨大的崩溃，比历史上任何一次的崩盘都要来得猛烈。好消息是，这次的崩溃对美加等国而言持续时间会大大缩短，反弹会很快。
-
-参考链接：
-[https://www.zerohedge.com/markets/feds-biggest-inflation-problem-record-surge-equity-asset-prices](https://www.zerohedge.com/markets/feds-biggest-inflation-problem-record-surge-equity-asset-prices)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
