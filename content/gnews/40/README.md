@@ -2,33 +2,33 @@
 ---
 
 
-## 樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2205218/)
+## 中共国收紧新冠封闭遏制措施 而德国则逐步取消限制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2206460/)
 
-撰稿：东京樱花团/TV
+编译：七龙珠
 
-制图：东京樱花团/chuansang
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-145.png)
-丹麦政府在2月份统计了各接种人群的每百万人感染人数（图1）[1]。自2月14日起，疫苗接种者的每百万人感染率随着接种次数而增加，即三针接种最易感染，两针次之，一针接种者风险最低（图2）。丹麦政府最后一次更新的2月21日数据中，三针接种的感染风险达到了一针接种者的2.45倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-110.jpg)
-虽然数据似乎显示一针接种者感染风险最低，甚至低于未接种者，但考虑到一至三针接种者的数据，这是不合理的。参考我们在新南威尔士州观察到的现象[2]，这应该是对未接种者过度测试的政策导致的结果。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-76.jpg)
-这个数据证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2443.png)中国的冠状病毒检测 – 法新社 / 视频：中国有两人死于Covid-19 – ATLAS
 
-（注：本文为《樱花数据分析》第二十期）
+最近几周，世界大部分地区正经历着冠状病毒感染的重新出现。然而，尽管大多数国家都主张向正常化发展，放弃反Covid病毒的措施，但中共国仍然决心实施限制，以遏制新的传播感染。
 
-数据来源：
+周日，中共当局宣布在该国东北地区加强遏制措施，此前登记了4,053个新的Covid-19病例，其中三分之二在吉林省，这是一个与朝鲜和俄罗斯接壤的省份。因此，吉林市市长办公室宣布，吉林市的450万居民从星期一午夜开始，三天内将无法离开他们的家。
 
-[\[1\]Statens Serum Institut – Gennembrudsinfektioner (opgjort for 5+ årige)](https://experience.arcgis.com/experience/aa41b29149f24e20a4007a0c4e13db1d/page/page_5/)
+自本月初以来一直被禁闭的长春市也宣布将封闭三天的措施，只允许医务人员和其他与该大流行病有关的人离开他们的家。到目前为止，900万人口被允许每两天出门一次的食物采购。
 
-[\[2\]樱花数据分析│澳大利亚新南威尔士州：疫苗有效率提高？那是玩弄数据的小把戏！](https://gnews.org/zh-hans/1995298/)
+这些新的限制措施也被拥有1,750万人口的深圳市效仿应用限制措施，自上周日以来一直被限制。公共交通部门，将在本周一才开始恢复活动。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/EN-e1646965309541.jpg)
+中共国表示，正在采取的所有这些措施是用于减少每天的冠状病毒感染数量，从而减轻医院的压力。
 
+然而，在欧洲，正在朝着病毒爆发前的正常状态进展。比如德国，从周日开始，德国将告别迄今为止为遏制感染而实施的大部分限制措施，尽管它保持了在公共交通工具、医院和老人院中使用口罩。然而，各州可以逐步取消各种限制，以便将措施的存在延长到4月2日。
 
+来源：【abc.es】[China endurece sus confinamientos por Covid-19 mientras Alemania despide las restricciones](https://www.abc.es/sociedad/abci-china-endurece-confinamientos-covid-19-mientras-alemania-despide-restricciones-202203201746_noticia.html)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,79 +2,37 @@
 ---
 
 
-## 中共在全国各地动辄进行的强制全员核酸是否涉嫌违法？
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2204329/)
+## 国家犯罪!!! ETAC揭露中共系统性活摘器官
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2205135/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/封面-1.png)
-自中共病毒爆发以来，在全世界尤其是中共国与中共病毒相关的各种人道灾难一直层出不穷，而全员核酸检测作为中共对外宣传的抗疫利器也是时常出现在各内宣及外宣媒体之下，任何有常识的人都知道这种大规模的人员聚集不但与抗疫无补，而且更因大规模的人群聚集增加了群体感染的机率。
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-238.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/1638315301776.jpg)
+[图片来自网络](https://m.soundofhope.org/post/570887)
 
-在抗疫的大棒之下，只要不服从隔离或所谓防疫规定者动辄以强制隔离或刑事拘留或行政拘留的一刀切来制造群体恐慌，而对于全员核酸来说，由于抗拒全员核酸被抓捕者更是屡见不鲜，中共病毒不仅改变了中国也改变了世界，因全员核酸检测导致多少群体感染以及因粗鲁执法而致死致伤者已经无法统计，但是由于专业知识的限制，我们始终无法对全员核酸这一粗暴政策从基础上进行论述，但是微信朋友圈刚刚看到[中央最新指示 | 立即停止“强制合酸”非法行为](https://mp.weixin.qq.com/s?__biz=Mzg5MzY2OTI2OQ==&amp;mid=2247485021&amp;idx=1&amp;sn=80d2ee3a43f415b7d508e2552d08cd14&amp;chksm=c02a1ca7f75d95b1deb8830e768685d6c6788aa790775c13ff221df5016424cf416cbbab14ff&amp;mpshare=1&amp;srcid=0321P9CU9SZfPjGKJ7S3wnca&amp;sharer_sharetime=1647862434837&amp;sharer_shareid=e4d15de629b7e97a84519092753ca12d&amp;from=timeline&amp;scene=2&amp;subscene=1&amp;clicktime=1647863679&amp;enterid=1647863679&amp;ascene=2&amp;devicetype=android-22&amp;version=28000b5b&amp;nettype=3gwap&amp;abtest_cookie=AAACAA%3D%3D&amp;lang=zh_CN&amp;exportkey=ARfEU1WgiBzzOagKkrhP8Bg%3D&amp;pass_ticket=X2JlpOQqxFSFwsiNoCLJofBVqdTtPnrfJTtp4oWP2sP%2FrB5BXFrBq3EO44Zt%2BBJI&amp;wx_header=3)无疑从法律角度对中共各地强推的全员核酸检测的违法性质进行了分析，在此特别对[中央最新指示 | 立即停止“强制合酸”非法行为](https://mp.weixin.qq.com/s?__biz=Mzg5MzY2OTI2OQ==&amp;mid=2247485021&amp;idx=1&amp;sn=80d2ee3a43f415b7d508e2552d08cd14&amp;chksm=c02a1ca7f75d95b1deb8830e768685d6c6788aa790775c13ff221df5016424cf416cbbab14ff&amp;mpshare=1&amp;srcid=0321P9CU9SZfPjGKJ7S3wnca&amp;sharer_sharetime=1647862434837&amp;sharer_shareid=e4d15de629b7e97a84519092753ca12d&amp;from=timeline&amp;scene=2&amp;subscene=1&amp;clicktime=1647863679&amp;enterid=1647863679&amp;ascene=2&amp;devicetype=android-22&amp;version=28000b5b&amp;nettype=3gwap&amp;abtest_cookie=AAACAA%3D%3D&amp;lang=zh_CN&amp;exportkey=ARfEU1WgiBzzOagKkrhP8Bg%3D&amp;pass_ticket=X2JlpOQqxFSFwsiNoCLJofBVqdTtPnrfJTtp4oWP2sP%2FrB5BXFrBq3EO44Zt%2BBJI&amp;wx_header=3)一文的作者致敬，以下为[中央最新指示 | 立即停止“强制合酸”非法行为](https://mp.weixin.qq.com/s?__biz=Mzg5MzY2OTI2OQ==&amp;mid=2247485021&amp;idx=1&amp;sn=80d2ee3a43f415b7d508e2552d08cd14&amp;chksm=c02a1ca7f75d95b1deb8830e768685d6c6788aa790775c13ff221df5016424cf416cbbab14ff&amp;mpshare=1&amp;srcid=0321P9CU9SZfPjGKJ7S3wnca&amp;sharer_sharetime=1647862434837&amp;sharer_shareid=e4d15de629b7e97a84519092753ca12d&amp;from=timeline&amp;scene=2&amp;subscene=1&amp;clicktime=1647863679&amp;enterid=1647863679&amp;ascene=2&amp;devicetype=android-22&amp;version=28000b5b&amp;nettype=3gwap&amp;abtest_cookie=AAACAA%3D%3D&amp;lang=zh_CN&amp;exportkey=ARfEU1WgiBzzOagKkrhP8Bg%3D&amp;pass_ticket=X2JlpOQqxFSFwsiNoCLJofBVqdTtPnrfJTtp4oWP2sP%2FrB5BXFrBq3EO44Zt%2BBJI&amp;wx_header=3)全文——
+看中国2022年3月21日讯，一直以来，中共被国际社会指控强摘本国公民，尤其是法轮功学员器官，用于牟利。近日，“终结中共国滥用器官移植国际联盟”ETAC发布的最新视频中，呈现了一通经过司法鉴定的电话录音。录音中，前军队卫生部长白书忠亲口承认，是前党魁江泽民直接下令杀害法轮功学员，以获取器官作移植用途。
 
-厚典文化 [不行而知](void%280%29;) *2022-03-21 11:45*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/640.jpg)
-现在全国疫情反弹，多点爆发，国家采取严格防控措施，规定明确，目标明确。但有些人在真正实施的过程中，搞一刀切，搞过度防疫，拿出了它们祖师爷传承下来的看家本领，扛着红旗反红旗，利益我拿，乱局你收拾，锅也是你来背……
+据NTDTV报导，大多数国家都有一个器官自愿捐赠系统。接受者等待器官出现，时长3、4年不等。当捐赠者去世时，等待名单上最匹配的人才能接受移植。然而，在中共国，器官供体的等待时间一般只需几周，甚至几天。
 
-为此很多国人在当前的乱局中，被带了节奏，敌我傻傻分不清楚，经常做出枪口对准自己人的愚蠢之事，还觉得自己深明大义。因此，在巨大利益的诱惑下，以及那些不可告人的目的，在全国搞出各种过度防疫的乱象，已经严重影响国家经济的正常运行，还有人们的工作生活。
+ETAC发现，在中共国有一个非同寻常的器官移植系统。“基于反向匹配功能，接受者付费寻找器官。从一大批被拘留者中挑选出一个与付费接受者最匹配的囚犯。然后，该囚犯将被杀死，其器官被提取出来用于移植。并在几周内完成。” ETAC披露，中共这种反人类罪行从70年代末就已经开始，对象主要是死囚。 1994年，“人权观察”进一步发现，医生参与囚犯“处决前的医疗测试”和接受者匹配测试，谁先付钱，先服务谁；器官来源包括“政治犯和其他非暴力罪犯”；行刑时故意失手，确保囚犯被摘取器官时尚未死亡。
 
-到目前为止，没有任何一项法律规定，病人一定要做核酸检测，更没有法律规定健康人一定要做核酸检测。因此，那些人搞的强制核酸检测，是属于非法行为。
+2000年后，中共国“器官移植产业”突然蓬勃发展，等待时长通常只需要一、两周，而且器官品质高、新鲜，各国病人蜂拥而至。“与此同时，当局开展了一场暴力运动，试图消灭法轮功，该功法在中国有数百万人学炼。随着关在劳教所、黑牢房和监狱里的法轮功学员越来越多，移植手术的数量也急剧增加。这些迅速获得的器官不可能仅仅来自死囚。相比之下，法轮功学员是更健康的器官来源。”
 
-相反，有多项法律规定做核酸检测必须依据自愿原则，如果强制核酸检测，**涉嫌触犯《刑法》规定的“非法采集人类遗传资源罪”，最高可处于七年有期徒刑。**
+2016年，加拿大外交部亚太司前司长大卫‧乔高、人权律师大卫‧麦塔斯和资深调查记者伊森‧葛特曼，联合发布了中共活摘器官更新调查报告。报告披露，过去15年中，中共国进行了大约150万例器官移植手术，器官主要来源是法轮功学员。
 
-**1****、《传染病防治法》具有高度专业性和权威性，一切防疫工作都要在此法约束下进行。**《传染病防治法》规定了采集样本的时机只能是当疫情发生时，**采集样本场所只能是疫区和疫点，采集样本的对象只能是病人、疑似病人、密接。**采集样本的时机、场所、对象超出该法规定，即是违法。
+面对国际压力，中共多次改口器官来源：否认，承认，高调承认，甚至炒作器官主要来自死刑犯，最后宣布停用死囚器官。追查国际发言人汪志远表示：“除了死囚器官之外，它没法交代器官的来源。所以它就拿死囚器官来掩盖，引开了全世界人们的关注焦点。因为这个是极权统治的中共嘛。那么死囚器官一提出来，人们就容易理解、容易误解。”
 
-《传染病防治法》规定的确诊依据中，没有核酸检测这一项。用药贩子的洗脑话术代替《传染病防治法》就是乱法，就是公开谋反。
+2018年，ETAC在英国设立了独立法庭。此后一年左右时间里，独立法庭成员审核了多条证据，包括：受害者亲属、被关押者和他们同伴的证词；中共官方政策和实施手术的文件；期刊学术研究报告等。“秘密电话和视频调查显示，政府官员和外科医生承认：器官可以按需提供，而且法轮功学员的器官也可以提供。” 2019年，独立法庭做出宣判：中共大规模活摘器官多年来一直存在；法轮功学员是供体主要来源；维吾尔人被当作器官库的受害可能性也很明显。
 
-如《中华人民共和国传染病防治法》第四十八条规定：“发生传染病疫情时，疾病预防控制机构和省级以上人民政府卫生行政部门指派的其他与传染病有关的专业技术机构，可以进入传染病疫点、疫区进行调查、采集样本、技术分析和检验。”
+这是个魔鬼政权无疑，血淋淋的行政操作略显一斑。中共从来就没有把人当做人，一切都是可以利用的工具，这是个冷血的政权，他踏着无数人的鲜血抢夺了政权，又喝着无数人的鲜血吃肥长胖。他的目的就是要毁灭人类，毁灭这个世界，毫无疑问，魔鬼是要吃人的，没有什么原因，他就是要吃人。不要再对其抱有任何幻想，不要对其再抱有任何希望，彻底醒来吧，让我们毅然决然地彻底抛弃这个人类历史上最邪恶的魔鬼。
 
-**2****、《中华人民共和国生物安全法》第八十五条第八款规定：“人类遗传资源，包括人类遗传资源材料和人类遗传资源信息。**人类遗传资源材料是指含有人体基因组、基因等遗传物质的器官、组织、细胞等遗传材料。
+消息来源：
 
-人类遗传资源信息是指利用人类遗传资源材料产生的数据等信息资料。”《中华人民共和国人类遗传资源保护条例》第二条规定：“条例所称人类遗传资源包括人类遗传资源材料和人类遗传资源信息。人类遗传资源材料是指含有人体基因组、基因等遗传物质的器官、组织、细胞等遗传材料。人类遗传资源信息是指利用人类遗传资源材料产生的数据等信息资料。”
+[ETAC揭露中共系统性活摘器官(图)](https://m.secretchina.com/news/gb/2022/03/21/1001176.html)
 
-**核酸检测时所采集的样本，包含了人体的细胞，法律上属于是人类遗传资源，受相关法律法规保护。**
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-3.jpg)
 
-**3****、《中华人民共和国人类遗传资源保护条例》第十一条规定：**“采集我国重要遗传家系、特定地区人类遗传资源或者采集国务院科学技术行政部门规定种类、数量的人类遗传资源的，应当符合下列条件，并经国务院科学技术行政部门批准：
-
-（一）具有法人资格；
-
-（二）采集目的明确、合法；
-
-（三）采集方案合理；
-
-（四）通过伦理审查；
-
-（五）具有负责人类遗传资源管理的部门和管理制度；
-
-（六）具有与采集活动相适应的场所、设施、设备和人员。
-
-《中华人民共和国人类遗传资源管理条例》第十二条规定：“采集我国人类遗传资源，应当事先告知人类遗传资源提供者采集目的、采集用途、对健康可能产生的影响、个人隐私保护措施及其享有的自愿参与和随时无条件退出的权利，征得人类遗传资源提供者书面同意。在告知人类遗传资源提供者前款规定的信息时，必须全面、完整、真实、准确，不得隐瞒、误导、欺骗。”
-
-**4****、《中华人民共和国生物安全法》第七十九条： ** “违反本法规定，未经批准，采集、保藏我国人类遗传资源或者利用我国人类遗传资源开展国际科学研究合作的，由国务院科学技术主管部门责令停止违法行为，没收违法所得和违法采集、保藏的人类遗传资源，并处五十万元以上五百万元以下的罚款，违法所得在一百万元以上的，并处违法所得五倍以上十倍以下的罚款；情节严重的，对法定代表人、主要负责人、直接负责的主管人员和其他直接责任人员，依法给予处分，五年内禁止从事相应活动。”
-
-**综合上所述，在各个地方搞强制返校师生持核酸检测阴性证明，以及其他强调核酸的行为，不符合《传染病防治法》中规定的采集样本的特定条件，也没有国家科技部的批准文件，又违背了法律规定的自愿原则，是严重违法行为。**
-
-**视频：专业分析，强制合酸是如何违法的？**
-
-\*\*\*\*\*\*\*[中央最新指示 | 立即停止“强制合酸”非法行为](https://mp.weixin.qq.com/s?__biz=Mzg5MzY2OTI2OQ==&amp;mid=2247485021&amp;idx=1&amp;sn=80d2ee3a43f415b7d508e2552d08cd14&amp;chksm=c02a1ca7f75d95b1deb8830e768685d6c6788aa790775c13ff221df5016424cf416cbbab14ff&amp;mpshare=1&amp;srcid=0321P9CU9SZfPjGKJ7S3wnca&amp;sharer_sharetime=1647862434837&amp;sharer_shareid=e4d15de629b7e97a84519092753ca12d&amp;from=timeline&amp;scene=2&amp;subscene=1&amp;clicktime=1647863679&amp;enterid=1647863679&amp;ascene=2&amp;devicetype=android-22&amp;version=28000b5b&amp;nettype=3gwap&amp;abtest_cookie=AAACAA%3D%3D&amp;lang=zh_CN&amp;exportkey=ARfEU1WgiBzzOagKkrhP8Bg%3D&amp;pass_ticket=X2JlpOQqxFSFwsiNoCLJofBVqdTtPnrfJTtp4oWP2sP%2FrB5BXFrBq3EO44Zt%2BBJI&amp;wx_header=3)引用完毕\*\*\*\*\*\*\*
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

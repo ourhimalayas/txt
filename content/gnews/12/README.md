@@ -2,8 +2,8 @@
 ---
 
 
-## 20220320文贵大直播：莫德维杰夫将军被干掉，对中共的影响有多大
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2207809/)
+## 20220321文贵大直播：傅政华，孙力军之前转移的钱财
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2207849/)
 
 作者:东京樱花团小视频组
 

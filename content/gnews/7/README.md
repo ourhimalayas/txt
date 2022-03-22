@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥在清风看守所学会不浮躁（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207858/)
+## 在俄乌战场前线的战友很不容易（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207916/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-840-848-1-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-840-848-3_1.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
