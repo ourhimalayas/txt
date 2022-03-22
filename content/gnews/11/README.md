@@ -2,27 +2,26 @@
 ---
 
 
-## 各界继续抨击特鲁多对自由车队的诬陷
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2210531/)
+## 秘翻在线：房地产企业祥生控股集团官宣爆雷
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2210640/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+**撰稿：葛大饼**
 
-撰稿：加拿大温哥华扬帆农场 – 文莱
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-39.jpg)图片来源：  福布斯中国
+根据2022年3月22日新浪报道，又一个千亿房地产企业祥生控股集团未能按期支付2亿美元债的1200万美元利息而官宣爆雷。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2540.png)图片来源：[Five times Liberal claims about the Freedom Convoy were officially disputed | True North (tnc.news)](https://tnc.news/2022/03/19/five-times-liberal-claims-about-the-freedom-convoy-were-officially-disputed/)
+新闻称祥生控股除了半年内要偿还合计4亿美元的外债，近期企查查还显示祥生控股子公司被司法冻结的信息，合计涉及资金超1亿元。被司法冻结的公司为浙江弘源创业投资有限公司，被执行人为祥生实业集团有限公司，也就是浙江弘源的控股公司。据祥生控股内部人士透露，根据子公司股权被司法冻结的情况，母公司“祥生实业集团有限公司”账户亦被冻结。
 
+而祥生控股此前就已遭遇多家国际评级机构的评级下调，2021年10月18日，评级机构穆迪确认了祥生控股“B2”公司家族评级(CFR)以及发行债券的“B3”高级无抵押评级，展望从“稳定”调整为“负面”。2021年11月3日，标普将祥生控股(集团)有限公司的发行人信用评级从“B”下调至“B-”，并将其美元票据的长期发行评级从“B-”下调至“CCC ”。2022年1月18日，惠誉将祥生控股(集团)有限公司的长期外币发行人违约评级（IDR）从”B-“下调至”CC”。
 
-据加拿大【真北方】3月19日报道，自由党政府此前擅用《紧急状态法》镇压自由车队反疫苗护照的和平抗议活动之举，至今都被加拿大政界和法律界等多方强烈质疑。
+2021年11月，祥生控股面临诸多压力，出现股价一日暴跌逾50%，与诸多黑马型房企类似，祥生也是投资者认为有隐藏债务的房企之一。
 
-报道称，特鲁多及其内阁在今年2月以所谓“国外极端分子资助卡车司机寻衅滋事并意图破坏加拿大民主”为由，越权启用了《紧急状态法》。多家主流媒体包括[加拿大广播公司]等也都同时发表了“自由车队是国外势力资助”的文章。
+中共房产如过年鞭炮一样连连爆雷，也预示着中共的加速灭亡。中共几乎所有的房地产商都是白手套，中共国的银行五成到七成的业务跟房地产有关系，中共的金融灾难和地产（暴雷）是对世界的合法洗劫，同时中共国房地产的烂账会让西方集体（联合）的去灭共，中共即将崩塌的房地产金融将会重塑人类文明。
 
-据悉，在日前的下议院财政委员会上，众筹平台GoFundMe总裁驳回了以上谬论。此外，皇家骑警负责人也表示，从多方调查的结果来看，没有发现任何极端恐怖分子涉入其中的证据。
+**[新闻来源](https://k.sina.cn/article_2103439601_7d5ff0f101900zkgx.html?from=finance&amp;kdurlshow=1&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [Five times Liberal claims about the Freedom Convoy were officially disputed | True North (tnc.news)](https://tnc.news/2022/03/19/five-times-liberal-claims-about-the-freedom-convoy-were-officially-disputed/)
+#  
 
  
 

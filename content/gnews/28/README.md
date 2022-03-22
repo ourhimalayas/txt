@@ -2,28 +2,28 @@
 ---
 
 
-## 乌克兰的孩子走进了正在直播的镜头里
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2210196/)
+## 96岁二戰大屠殺倖存者葬身烏克蘭戰火
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2210227/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-20.07.33.png)
-梅迪卡前线时间3月22日，前线战友正在连线做直播途中，画面中进来了三个乌克兰的孩子，他们热情地和战友打招呼并且拥抱，还和镜头前的观众打招呼。孩子们脸上的笑意让人心都化了，战友蹲下来和几个孩子交谈，因为语言不通，借助手机翻译，几个孩子问了战友来自哪里，并对战友表示了感谢。接着孩子们蹦蹦跳跳离开了。
+採集：玫瑰新聞組
+![](https://assets.gnews.org/wp-content/uploads/2022/03/germany-ukraine-russia-history-war-150744.jpg)罗曼申科（右二） 2015年4月與其他二戰大屠殺倖存者一同出席喺德國東部布痕迹瓦尔德集中營嘅紀念活動。 （法新社）
+二戰大屠殺倖存者罗曼申科喺烏克蘭戰火中身亡。
 
-这一幕太安慰了。我们唯真不破，直播中出现了这样温馨的意外，这几个孩子来到我们的直播是自然而然的，他们的主动拥抱和感谢，这是共产党永远都做不到的。战友还说在当地，很多西方面孔都学了中国话“你好”，主动和参与救援的战友打招呼。这次救援行动让西方人看到新中国联邦人的可爱，正如战友所说的，人家不喜欢你不会和你用中文打招呼的。
+據路透社報道，自俄羅斯2月24日入侵烏克蘭以來，烏克蘭第二大城市哈爾科夫遭受嚴重炮擊，96岁罗曼申科喺上周嘅炮火中身亡。
 
-撰稿、发布：骄子
+布痕迹瓦尔德（ Buchenwald ）集中營倖存者紀念館周一（ 3月21日）發聲明話，罗曼申科居住嘅公寓樓被炮火擊中起火燃燒，罗曼申科冇倖存得。
 
-* * *
+聲明說，罗曼申科1926年1月20日生於烏克蘭苏梅市附近嘅邦达里地區。 1942年，佢畀遣送到多特蒙德当礦工，潛逃失敗之後喺1943年送往布痕迹瓦尔德集中營，嗰度有超過5万3000人喺二戰中被殺害。
 
-欢迎订阅我们的GNews账号：
+隨後，罗曼申科又被送到波羅的海乌泽多姆岛（ Usedom ）嘅佩内明德（ Peenemunde ）導彈基地做勞工，跟埋送到多拉米特堡（ Dora-Mittlbau ）同贝尔根-贝尔森（ Bergen-Belsen ）兩座集中營。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+聲明說，罗曼申科嘅慘死顯示烏克蘭戰爭對集中營倖存者來說有多具威脅性。 徜徉我哋哀悼一個親密朋友嘅逝世。徜徉
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+參考連結：[https://www.zaobao.com/realtime/world/story20220322-1254837](https://www.zaobao.com/realtime/world/story20220322-1254837)
+
+審核校對：Barry Jack
+上傳排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,27 @@
 ---
 
 
-## 俄国25人暗杀小队遭出卖 在乌克兰边界被围捕
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2210439/)
+## 各界继续抨击特鲁多对自由车队的诬陷
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2210531/)
 
-德国发行量最大的报纸「画报」（Bild）报导，一支由俄国国安局（FSB）特工率领的25人暗杀小队，21日晚间在乌克兰与斯洛伐克边界处被捕，行刺乌克兰总统泽伦斯基的任务宣告失败。
+采编：加拿大温哥华扬帆农场 – 青青
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2345截图20220322211038.png)图片来源：欧新社
+撰稿：加拿大温哥华扬帆农场 – 文莱
 
-报导指出，暗杀小队在乌克兰西部的Uzhgorod遭到警方包围，该处与斯洛伐克接壤，距离乌克兰与匈牙利的边界也仅有几公里。俄国国安局内部的反战人士向基辅通风报信，导致行动提前曝光。有关俄国试图暗杀泽伦斯基的传闻，从上个月开始已有十多起。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2540.png)图片来源：[Five times Liberal claims about the Freedom Convoy were officially disputed | True North (tnc.news)](https://tnc.news/2022/03/19/five-times-liberal-claims-about-the-freedom-convoy-were-officially-disputed/)
 
-简评：普京暗杀泽伦斯基的行动又失败了，不是普京派出的杀手没能力，而是普京的所作所为不得人心。只要俄罗斯内部有正义的反战人士在，即使普京有再周密的计划也很大情况下是徒劳，不得人心的独裁者哪怕再狂妄，到头来终归是一场空。
 
-新闻来源：[联合新闻网](https://udn.com/news/story/122663/6183942?from=udn_ch2_menu_v2_main_index)
+据加拿大【真北方】3月19日报道，自由党政府此前擅用《紧急状态法》镇压自由车队反疫苗护照的和平抗议活动之举，至今都被加拿大政界和法律界等多方强烈质疑。
 
-撰稿/发布：一叶知秋
+报道称，特鲁多及其内阁在今年2月以所谓“国外极端分子资助卡车司机寻衅滋事并意图破坏加拿大民主”为由，越权启用了《紧急状态法》。多家主流媒体包括[加拿大广播公司]等也都同时发表了“自由车队是国外势力资助”的文章。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+据悉，在日前的下议院财政委员会上，众筹平台GoFundMe总裁驳回了以上谬论。此外，皇家骑警负责人也表示，从多方调查的结果来看，没有发现任何极端恐怖分子涉入其中的证据。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [Five times Liberal claims about the Freedom Convoy were officially disputed | True North (tnc.news)](https://tnc.news/2022/03/19/five-times-liberal-claims-about-the-freedom-convoy-were-officially-disputed/)
 
  
 
