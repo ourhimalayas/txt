@@ -2,19 +2,27 @@
 ---
 
 
-## 七哥谈莫尔德维乔夫（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208556/)
+## 有声｜澳大利亚禁止向俄罗斯出口氧化铝
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208639/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-928-935-3.jpeg)
-*发布：陶子*
+By**:秘翻新闻**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+**2022-03-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-44.png)图片来源 路透社
+[路透社3月21日报道，澳大利亚已立即禁止向俄罗斯出口氧化铝和铝矿石，包括铝土矿。这是其对莫斯科入侵乌克兰的持续制裁的一部分。](https://finance.yahoo.com/news/australia-bans-alumina-exports-russia-222912543.html)
 
+[澳大利亚政府在包括总理办公室在内的多个部委的联合声明中表示，俄罗斯近 20% 的氧化铝需求依赖澳大利亚。他还补充说，此举将限制俄罗斯生产铝的能力，而铝是俄罗斯的重要出口产品。](https://finance.yahoo.com/news/australia-bans-alumina-exports-russia-222912543.html)
+
+[英澳矿业巨头力拓拥有昆士兰氧化铝有限公司 80% 的股份，该公司与世界第二大铝生产商俄罗斯 Rusal International PJSC 合资。](https://finance.yahoo.com/news/australia-bans-alumina-exports-russia-222912543.html)
+
+[声明称，迄今为止，澳大利亚已对 443 名个人实施了 476 项制裁，其中包括与俄罗斯总统弗拉基米尔·普京关系密切的商人，以及 33 个实体，包括俄罗斯大部分银行业和所有负责该国主权债务的实体。](https://finance.yahoo.com/news/australia-bans-alumina-exports-russia-222912543.html)
+
+秘翻新闻 自由信仰 编辑报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

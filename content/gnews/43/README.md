@@ -2,22 +2,29 @@
 ---
 
 
-## 樱花时政┃俄乌战争让日本安全政策面临转变
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207169/)
+## 新中国联邦和法治基金驻波兰梅迪卡营地
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207175/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-109.jpg)（图片来源于本文链接）
-俄乌战争让日本的国防战略得到重塑，以应对中共国在这一地区的扩张。在俄罗斯2014年进攻乌克兰吞并克里米亚，日本的反应冷淡，但这次东京与西方盟友步调一致，祭出了前所未有的制裁措施和强硬的表态，还提供了非致命性的军事装备援助。资深研究员哈里斯认为，日本采取诸如个人制裁等行动的速度“令人刮目相看”，远超出其对东京政府的之前的设想。日本对俄罗斯寡头实施了制裁，冻结了俄罗斯银行的资产，还取消了俄罗斯的贸易最惠国待遇。
+作者、编辑：Candy
 
-过去，因为北方四岛领土归属问题，日本担心对俄罗斯的过激行动可能导致莫斯科投向北京的怀抱，但“现在情况完全调转”，目前的观点是日本必须对俄态度强硬，否则就是开了一个不好的先例，这样让中共国认为可以效仿俄罗斯。从短期看，日本将在今年晚些时候发布的国家安全战略中彻底修改其对俄罗斯的立场。“毫无疑问，俄罗斯将被表述为威胁，这将彻底改变之前的模糊态度，乌克兰战争可能会增加那些呼吁增加国防开支的人士的底气。自民党在去年的选战中制定了一个长期目标，即把国防预算从传统的占GDP比例的1%提高到超过2%，鉴于和平宪法的限制，日军获得诸如攻击型无人机首次打击如何还击讨论一直存在，然而对那些希望日本有更强大的国防力量的人士来说，来自乌克兰的抗争对他们是大有裨益的。”
+这两天俄乌局势稍有缓解，波兰梅迪卡救援中心的难民明显少了很多，有些难民正在返回家园的路上，这也让我们新中国联邦在营地努力工作着的战友们临时舒缓了一下。
 
-信息来源：
+到目前为止，战友们已在营地辛苦了三、四周的时间。让我们通过前线记者拍下的珍贵照片，大概了解一下他们冒着被中共病毒感染的风险、在寒冷的天气里工作的情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/航拍营地-1.png)航拍新中国联邦驻波兰梅迪卡营地。![](https://assets.gnews.org/wp-content/uploads/2022/03/七星大帐蓬4.jpg)
+我们共有三个帐篷，其中一个200多平米的“七星大帐篷”是整个救援中心里最大的，也是设施最全、功能最多、最温暖的帐篷。里面按功能分区管理，有食物饮品区、休息区、儿童娱乐区等，全部电力由六台发电机提供。有三个强力制暖机器、八个室外用的暖炉、商用现磨咖啡机、BBQ用炉子等，全部是由法治基金提供。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/帐篷logo.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/夜间大帐蓬2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/夜间大帐蓬6-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/钢琴家2.jpg)![Image](https://media.discordapp.net/attachments/950448401529577502/955682285347278888/IMAGE_2022-03-22_002008.jpg?width=656&amp;height=369)![](https://assets.gnews.org/wp-content/uploads/2022/03/衣物1.jpg)好心人捐献的衣物
+很多国家的媒体到我们的营地采访，了解新中国联邦和法治基金及其理念、来此的原因：我们的目标是消灭中共，因为中共是一切罪恶的根源；我们要实现每个中国人人手一票的民主、法治、自由的新中国，只有新中国联邦才是新中国的代表。我们到这里就是要援助被俄罗斯入侵、正遭受战争苦难的乌克兰人民。
+![Image](https://media.discordapp.net/attachments/950448401529577502/955251786611052604/image0.jpg?width=656&amp;height=369)战地记者Nicole接受日本记者采访![Image](https://media.discordapp.net/attachments/950448401529577502/955632073845141544/image.png?width=656&amp;height=369)我们新中国联邦人在营地的所有用电，包括三个帐篷的用电都来源于这样的六台发电机。![Image](https://media.discordapp.net/attachments/950448401529577502/955232684567838740/image0.jpg?width=656&amp;height=369)![](https://assets.gnews.org/wp-content/uploads/2022/03/营地补给2.jpg)法治基金为难民们提供的免费食物和饮用水![Image](https://media.discordapp.net/attachments/950448401529577502/955237324130758676/image0.jpg?width=656&amp;height=369)每小时冲制124杯，6000欧元的商用咖啡机，提供免费现磨咖啡，堪称营地脍炙人口的明星。![Image](https://media.discordapp.net/attachments/950448401529577502/955670238043713557/image.png?width=656&amp;height=369)好心人捐献的新鲜出炉的面包和热汤![Image](https://media.discordapp.net/attachments/950448401529577502/955237278328954911/image0.jpg?width=656&amp;height=369)为孩子们提供短暂娱乐、母亲们稍事休息的儿童娱乐角![Image](https://media.discordapp.net/attachments/950448401529577502/955655628498542663/image.png?width=656&amp;height=369)强力制暖机（又称手电筒）![Image](https://media.discordapp.net/attachments/950448401529577502/955234409412444240/IMAGE_2022-03-20_184027.jpg?width=656&amp;height=369)乌克兰难民来七星帐篷休息时的状况![](https://assets.gnews.org/wp-content/uploads/2022/03/七星大帐蓬12.jpg)新中国联邦人的努力让联合国NGO在梅迪卡的救援中心的人看在眼里，他们组织了人力物力，现正在铺路，为新中国联邦的志愿者们创造更好的自然条件
+我们的正义行动得到了正义的记者们的赞扬和支持。
 
-[乌克兰战争下日本安全政策面临转变 – DW](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E4%B8%8B-%E6%97%A5%E6%9C%AC%E5%AE%89%E5%85%A8%E6%94%BF%E7%AD%96%E9%9D%A2%E4%B8%B4%E8%BD%AC%E5%8F%98/a-61199803)
+发布：Candy
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,38 @@
 ---
 
 
-## 有声｜欧洲多国积极为乌克兰人提供就业机会
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208477/)
+## 狂轰马里乌波尔，欧盟外长谴责重大战争罪行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208552/)
 
-By:**秘翻新闻**
+整理/编辑：文泓
 
-**2022-03-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-46.png)图片来源 纽约时报
-[纽约时报3月21日报道，随着乌克兰外流的人数越来越多，全球多个公司正在迅速提供就业机会，以帮助那些因战争而流离失所的人迅速安顿下来，并填补这些公司的劳动力短缺。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-125.png)图片来源：WisNews & 雅典娜设计组
 
-[全球最大的人力资源公司艺珂集团（Adecco ）上周推出了一个招聘网站，以将乌克兰求职者与雇主相匹配。超过 200 家公司发布了招聘信息，约有 900 名乌克兰人在该平台上注册。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
 
-[艺珂集团的首席执行官阿兰·德海兹 表示，工作机会向乌克兰人提供了开始新生活和保障未来的能力。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+3月21日，据法新社报道，欧洲联盟（EU）外交和安全政策高级代表波瑞尔（Josep Borrell）称，俄罗斯攻击乌克兰港口城市马里乌波尔是犯下“重大战争罪行”。同时，欧盟多个成员国呼吁对莫斯科关键的能源业施加制裁。
 
-[在有超过 30万个工作岗位空缺的德国，一群企业家推出工作援助（JobAidUkraine），帮助乌克兰难民在抵达时尽快找到工作。最近一天，近 3万 名在线访问者浏览了从伦敦到里斯本的公司列出的 5千 多个职位，包括麦当劳轮班工作、人力资源专家、软件开发人员和护理助理。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+波瑞尔在欧盟外长会议一开始表示：“马里乌波尔现在发生的是一场重大战争罪行，一切都被摧毁，人们遭到轰炸和杀戮。”
 
-[该网站的联合创始人克里斯蒂娜-凯斯霍夫表示：我们很惊讶在每个行业都有大大小小的公司做广告，从程序员到农民再到酒吧，人们想尽其所能为乌克兰提供帮助。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+德国外长贝尔伯克（Annalena Baerbock）也呼吁，应对俄罗斯空袭轰炸乌克兰平民进行强力谴责。
 
-秘翻新闻 自由信仰编译报道
+“法院必须做出决定，但对我来说，这些显然无疑是战争罪行。”
 
-发布 : 恩典
+“这更加清楚显示，我们欧洲联盟，以及做为相信以规则为基础国际秩序的国际社会成员，必须明确孤立这个政权。”
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+波瑞尔表示，欧盟外长将讨论对乌克兰提供更多援助，以及在既有制裁之外，针对俄罗斯石油和天然气部门祭出最新制裁。
+
+部分成员国敦促欧盟遏止俄罗斯能源出口，但欧盟经济大国德国依然仰赖俄罗斯供应天然气，不太愿意这么做。
+
+新闻链接： [欧盟外长谴责俄军犯下战争罪行](https://cn.theaustralian.com.au/2022/03/22/64858/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

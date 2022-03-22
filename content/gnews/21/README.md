@@ -2,39 +2,20 @@
 ---
 
 
-## 新冠死者87%接种科兴疫苗，香港太平间不够棺材耗尽
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208261/)
+## 托马斯·伦茨：政府向公众隐瞒疫苗真相，进行未经同意的人体实验
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2208329/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 翻译/撰稿：zzballack
 
-整理/编辑：文泓
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-5.png)图片来源：Renz Law
+据《新美国人》杂志（The New American）3月21日报道，美国俄亥俄州的律师托马斯·伦茨（Thomas Renz）正代表美国前线医生协会（America’s Frontline Doctors）和“让美国再次自由（Make America Free Again）”组织就大流行病的应对措施起诉美国联邦政府。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/90B120QESB7WTVVBNBA.png)图片来源：雅典娜设计组
+伦茨先生敦促法院宣布，美国卫生与公众服务部（HHS）部长宣布的“公共卫生紧急状况”所依据的紧急情况从未存在过，或者即使存在过，也已不复存在。另外，新冠疫苗强制令应被宣布是非法的，并立即终止。这些实际上是基因疗法的“疫苗”应该完全从市场上撤出。国防医学流行病学数据库（DMED）、美国食品药品监管局（FDA）的有关辉瑞新冠疫苗的数据文件、FDA疫苗与相关生物制品咨询委员会（VRBPAC）的数据等许多官方资料可以证实，这些疫苗不仅无法预防感染，而且有许多副作用，十分危险。联邦政府故意对公众隐瞒这一关键信息，是在进行未经同意的人体实验。
 
+伦茨相信大规模疫苗接种运动背后的势力正在寻求建立一个无所不能的绝对强权体系，以控制全世界人民。“这些全球暴君、这些渴望权力的怪物，他们想让我们害怕、想让我们彼此分离，制造分裂。因为他们知道，如果我们团结起来，他们就会失去权力。人们应该敦促他们的总检察长和检察官加入打击新冠罪犯的行列。任何不在这个问题上投入精力的总检察长，请投票反对他们。”
 
-香港第五波新冠病毒疫情依然严峻。3月21日据大纪元报道，有分析显示，已接种疫苗的死者当中，八成半以上选择了中国“科兴”疫苗。
-
-香港这第五波中共病毒疫情持续两个多月，不完全统计接近6千人死亡。香港医院管理局分析了当中5100多起个案，显示近1300人生前已注射疫苗，选择了中国国产的“科兴”多达87%。
-
-目前中国大陆最少有五款新冠疫苗获批准使用，受制于资讯封锁，民众在注射疫苗上只能处于被动。
-
-信心的封锁和加之专业知识的匮乏，民众只能被动或者被迫接受官方的安排。很多民众担心，不服从政府强推注射疫苗的话，会给自己工作和安全带来麻烦。
-
-上周三，由于致命的奥密克戎激增导致香港的太平间空间不足，香港穿着PPE隔离服的工人将冠状病毒受害者的尸体运送到冷藏集装箱中。
-
-一位殡葬业代表告诉当地媒体，死亡人数飙升导致该市棺材供应紧张，仅剩 300具棺材，预计将在周末耗尽。
-
-新闻链接：
-
-1、[香港新冠死者87%接种科兴 消息封锁民众对疫苗一无所知](https://www.rfa.org/mandarin/yataibaodao/huanjing/gf2-03212022100702.html)2、[Morgues overflowing as Hong Kong suffers deadly COVID-19 wave | Asia – Gulf News](https://gulfnews.com/world/asia/morgues-overflowing-as-hong-kong-suffers-deadly-covid-19-wave-1.1647432139724)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+新闻来源：[Tom Renz: Countering Global Attack on Humanity](https://thenewamerican.com/tom-renz-countering-global-attack-on-humanity/)
 
  
 

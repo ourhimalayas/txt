@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈莫尔德维乔夫（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208584/)
+## 伊隆马斯克的雕像应该立在太阳系（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208652/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-928-935-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-940-950-2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
