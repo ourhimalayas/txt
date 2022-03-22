@@ -2,34 +2,29 @@
 ---
 
 
-## 俄媒称俄军阵亡近一万人伤超一万六 文章遭下架
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2207974/)
+## 人类未来的去中心化货币叫做躺平币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208016/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.58.49.png)图片来源：互联网
-一家亲克里姆林宫的俄罗斯媒体报道，引用俄国防部数据，自俄罗斯入侵乌克兰以来，武装部队阵亡近10,000人，受伤超16,000人，远超俄此前公开承认498人。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月20日，郭先生在大直播中透露，未来会有一个真正的去中心化货币，就是躺平币。
 
-据共青团真理报（Komsomolskaya Pravda）周日发布的一篇报道，引用俄罗斯国防部数据称，俄武装部队阵亡9,861人，受伤16,153人。随后这篇文章很快就被删除，但文章的原始版本也被存档。【1】
+据悉，从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付购买任何所需。另外，其转账功能不受任何限制，安全加密无人监管。
 
+目前，第二代技术的交易成本是300-3000美金，即将到来的第三代成本为0.3美金。而随着区块链加密技术的逐渐成熟，交易成本将低至0.3分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-72.jpg)
+现在，世界上的法币大多数是分地域，被国家和组织垄断并强制人们使用，定价权被牢牢掌控在权力手中。此外，法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.03.29.png)图片来源：互联网
-该报声明称：“他们遭遇黑客”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.05.49.png)图片来源：互联网
-美国估计俄罗斯军队损失人数是 7,000 人。
+因此，郭先生表示，躺平币回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，使用即是价值。
 
-据乌克兰武装部队总参谋部周一（20日）在Facebook发布的数据显示，从2月24日到3月20日，俄罗斯军队人员阵亡约14700人。
+参考链接：[大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://gettr.com/post/p10y5j870c5)
 
-此前，俄罗斯3月2日公开承认其侵略乌克兰的军队阵亡498人。1979 年入侵阿富汗后，约有 15,000 名苏联士兵在阿富汗阵亡。【2】
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-参考链接：
-
-【1】[国防部报告说，俄罗斯军队正在完成对民族主义营“顿巴斯”的击败](https://web.archive.org/web/20220321131726/https://www.kp.ru/online/news/4672522/)
-
-【2】[独家：俄罗斯透露，它已经有近 10,000 名士兵丧生，另有 16,000 人受伤 – 但英国情报报告称，普京也在取得重大突破](https://www.dailymail.co.uk/news/article-10637425/Russia-loses-10-000-men-just-four-weeks-toll-Ukraine-invasion-revealed.html)
-
-* * *
-
-*编辑&发布：长岛开心*
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

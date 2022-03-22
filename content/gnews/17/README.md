@@ -2,22 +2,23 @@
 ---
 
 
-## 國際｜歐洲理事會批准戰略指南 擬組建快速反應部隊
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208866/)
+## 视频|新中国联邦乌克兰救援大巴工作暂告结束
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2208993/)
 
-**撰文/ 港台前線｜發佈日期/ 22/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-21.png)**更多資訊請關注官方蓋特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
-外媒21日報導，歐盟外交和國防部長在布魯塞爾舉行會議，基於俄烏戰爭提出一份戰略指南，旨在建立該指南列出了歐盟未來 5 到 10 年的安全方針，並要求組建快速反應部隊，兵力達5000人，增加戰爭時歐盟的軍事影響力，以便在危機發生後迅速部署。
+制作：香草山视频部
 
-歐洲理事會新聞稿指出，**理事會**正式**批准了《戰略指南》**，為歐盟制定了一項**雄心勃勃的行動計劃，旨在到 2030 年加強歐盟的安全和國防政策**，增強應變能力、防禦能力。組建快速反應部隊，在俄羅斯對烏克蘭進行無理無端的侵略以及重大地緣政治轉變之後，當戰爭重新回到歐洲時，這一點就顯得尤為重要。
+3月19日，克拉科夫消息，当地时间晚十点左右，当最后三辆从乌克兰利沃夫出发的救援大巴抵达克拉科夫，运行了15天的新中国联邦救援大巴工作告一段落。
 
-快速反應部隊將為歐盟、全球和跨大西洋安全做出積極貢獻，並與北約互補，北約仍然是其成員集體防禦的基礎，部隊組建並非有意與美國的軍事聯盟競爭。
+此次大巴救援工作，由新中国联邦发起，法治基金资助的乌克兰人道救援工作的一部分，是面向乌克兰境内的华人同胞、及所有需要撤离战区的各国人士提供的免费救援服务，每日从乌克兰利沃夫发车，终点是波兰克拉科夫。
 
-而德國國防部長克里斯汀·蘭布雷希特在記者會上表示，德國有意成為快速反應部隊的核心，已經做好相關準備，並承諾承諾德國將資助歐盟對烏克蘭的新軍事援助計劃的四分之一，價值 5 億歐元。歐盟領導人預計將在週四和週五在布魯塞爾舉行的峰會上簽署這項被稱為「戰略指南針」的安全戰略。
+这次大巴救援工作，得到了乌克兰-波兰大巴车联盟等NGO组织的协助。从3月5日第一辆大巴运行开始，至3月19日，合计发车次数39台，累计总救援人数2009人。其中，大部分是乌克兰的妇女、儿童以及中国同胞。
 
+发稿：林礼
 
-
-來源｜[彭博社](https://www.bloomberg.com/news/newsletters/2022-03-21/russian-invasion-brings-european-army-closer-brussels-edition)、[EURACTIV](https://www.euractiv.com/section/politics/short_news/germany-wants-to-be-at-core-of-new-eu-rapid-response-capacity/)、[歐洲理事會](https://www.consilium.europa.eu/en/press/press-releases/2022/03/21/a-strategic-compass-for-a-stronger-eu-security-and-defence-in-the-next-decade/)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

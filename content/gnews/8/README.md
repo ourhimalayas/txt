@@ -2,72 +2,25 @@
 ---
 
 
-## 生死别
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2209140/)
+## 秘翻在线：拜登总统称有明显迹象表明普京要使用生化武器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2209149/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-东航MU5735航班在广西境内直线坠毁，
-是疫毒发作？又或是机子故障？
-迄今没有任何人员生还迹象。
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-2.png)图片来源：https://s.japanese.joins.com/Jarticle/289063
+美国总统乔拜登表示，俄罗斯声称“乌克兰拥有生化武器”是虚伪的主张。他声称，俄罗斯的这些说法表明普京正在考虑使用生化武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_6-7.png)
+据路透社6月21日报道，拜登总统是在当天举行的商业圆桌会议上发表上述言论的，因为 “总统普京身处困境”。商业圆桌会议是一个代表 200 家美国最大公司的组织。
 
-132个人，就是132个家庭的悲剧，
-那些生命坠落的无声无息，
-令人唏嘘不已，扼腕可惜，
-那些空姐香消玉殒，
-如昙花一现在天空缤纷，
-像落英纷飞归落尘土。
-她们是不幸的，意外坠机，
-舍下了自己的爱人、家人、亲人，
-她们也是幸运的，
-爱过来过停留过，
-永远活在亲人的记忆里！
-可是还有一个女人，
-豆蔻年华被从父母身边掳去，
-她没有谈过恋爱，
-没有初为人母的喜悦，
-更没有节日和欢笑，
-甚至没有穿暖过、吃饱过，
-二十多年的铁链锁喉，
-充斥着凌唇和强暴，
-殴打与催残，
-昨天和今天一样，
-日复一日年复一年，
-八千多个日夜一遍遍，
-哭泣、期盼、奢望得救，
-那些空姐死了去了天堂，
-而被精神病的她，
-依然活在地狱，
-从前是性奴，往后是政奴，
-同样的囚禁，同样的悲惨，
-有母不能认，有家不能回，
-有的人死了，
-她还活着，
-有的人活着，
-她已经死了，
-今天，
-为死去的空难的同胞祈祷，
-今天，
-为活着的铁链女忧伤。
-这个世界因为中共的存在，
-各种灾难不断，
-这个世界想要和平美好，
-唯有歼灭灾难的源头中国共产党！
+在活动中，拜登说，“普京总统被逼到墙角，现在正在谈论一项新的伪旗行动，例如声称我们美国在欧洲拥有生物和化学武器。这不是事实”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+伪旗行动是指通过让对方看起来像是先发动攻击，从而为攻击对方创造借口的行为。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+“他们还说乌克兰拥有生化武器，这清楚地表明他（普京总统）正在考虑同时使用这两种武器”，拜登说。拜登总统当天没有为他的言论提供具体证据。
 
+信息来源：[https://s.japanese.joins.com/Jarticle/289063](https://s.japanese.joins.com/Jarticle/289063)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责编：Eric Kim
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

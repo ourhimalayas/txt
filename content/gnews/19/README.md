@@ -2,39 +2,22 @@
 ---
 
 
-## 美国因中共的“镇压行为”对其官员实施旅行禁令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208633/)
+## 國際｜歐洲理事會批准戰略指南 擬組建快速反應部隊
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208866/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**撰文/ 港台前線｜發佈日期/ 22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-21.png)**更多資訊請關注官方蓋特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+外媒21日報導，歐盟外交和國防部長在布魯塞爾舉行會議，基於俄烏戰爭提出一份戰略指南，旨在建立該指南列出了歐盟未來 5 到 10 年的安全方針，並要求組建快速反應部隊，兵力達5000人，增加戰爭時歐盟的軍事影響力，以便在危機發生後迅速部署。
 
-翻译/编辑：小红帽
+歐洲理事會新聞稿指出，**理事會**正式**批准了《戰略指南》**，為歐盟制定了一項**雄心勃勃的行動計劃，旨在到 2030 年加強歐盟的安全和國防政策**，增強應變能力、防禦能力。組建快速反應部隊，在俄羅斯對烏克蘭進行無理無端的侵略以及重大地緣政治轉變之後，當戰爭重新回到歐洲時，這一點就顯得尤為重要。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/902026.jpg)图片来源：REUTERS/Hyungwon Kang
+快速反應部隊將為歐盟、全球和跨大西洋安全做出積極貢獻，並與北約互補，北約仍然是其成員集體防禦的基礎，部隊組建並非有意與美國的軍事聯盟競爭。
+
+而德國國防部長克里斯汀·蘭布雷希特在記者會上表示，德國有意成為快速反應部隊的核心，已經做好相關準備，並承諾承諾德國將資助歐盟對烏克蘭的新軍事援助計劃的四分之一，價值 5 億歐元。歐盟領導人預計將在週四和週五在布魯塞爾舉行的峰會上簽署這項被稱為「戰略指南針」的安全戰略。
 
 
-根据ALJAZEERA3月21日报道，美国总统乔·拜登（Joe Biden）政府正在对中共国官员实施旅行禁令，并指责这些中共官员镇压维吾尔族穆斯林以及其他少数民族和宗教少数群体。
 
-美国国务院周一宣布，禁止这些官员前往美国，因为他们参与了“镇压行为”，以及在中共国和国外对言论和宗教自由的镇压。
-
-该部门没有确定哪些官员将受到扩大禁令的限制，也没有说有多少人将受到影响。
-
-国务卿安东尼·布林肯在一份声明中说，制裁适用于那些“被认为对旨在镇压宗教和精神修行者、少数民族成员、持不同政见者、人权捍卫者、记者、劳工组织者、民间社会组织者以及中共国和其他地方的和平抗议者的政策或行动负有责任或与之同谋的中共国官员。”
-
-此举增加了美国前总统唐纳德·特朗普政府最初因中共对待新疆西部地区的维吾尔族穆斯林而实施的签证限制，以及对香港民主运动人士和西藏自由倡导者的镇压。
-
-联合国称，至少有100万维吾尔人被关押在新疆的所谓“反极端主义中心”。人权组织认为，中共对维吾尔人的待遇相当于种族灭绝和反人类罪。
-
-在拜登与中共国国家主席习近平通话的几天后，国务院的制裁措施就出台了，当时美中在乌克兰战争上的紧张关系不断加剧。
-
-新闻来源：[US hits Chinese officials with travel bans over ‘repressive acts’](https://www.aljazeera.com/news/2022/3/21/us-hits-chinese-officials-with-travel-bans-over-repressive-acts)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+來源｜[彭博社](https://www.bloomberg.com/news/newsletters/2022-03-21/russian-invasion-brings-european-army-closer-brussels-edition)、[EURACTIV](https://www.euractiv.com/section/politics/short_news/germany-wants-to-be-at-core-of-new-eu-rapid-response-capacity/)、[歐洲理事會](https://www.consilium.europa.eu/en/press/press-releases/2022/03/21/a-strategic-compass-for-a-stronger-eu-security-and-defence-in-the-next-decade/)
 
  
 

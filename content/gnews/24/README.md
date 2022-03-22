@@ -2,38 +2,27 @@
 ---
 
 
-## 纳达尔公开赛中遭遇呼吸痛苦，其已接种两剂疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208309/)
+## 有声｜东航酿本世纪中共国最大空难 近日事故频发
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208500/)
 
-整理/编辑：小鱼儿
+**By:秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@X8CZ6ATFIKH25A9DX.png)图片来源：雅典娜设计组&newsmd
+**2022-03-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/888888r.jpg)图片源自:网络
+[新唐人](https://www.ntdtv.com/gb/2022/03/21/a103379936.html)3月22日报道，中共国东方航空一架波音737客机21日在广西坠毁，机上132人无一生还，酿成本世纪中共国最大空难。据不完全统计，今年不到3个月，中共国已发生6起民航事故。
 
+有媒体披露，东航负债数百亿元人民币，为压降运营成本，严控维修费用，这可能导致了这起坠机事故的发生。中共国业内人士指，民航业亏损严重，人心不稳，是事故频发的主因。
 
-据悉尼先驱晨报3月21日报道，纳达尔在法国巴黎银行公开赛中，遭遇呼吸痛苦的困扰，被弗里茨击败。去年，纳达尔已接种两剂疫苗。
+近年来中共国经济不断下行，再加上中共为防疫大幅削减国际航班，国内航班也因为各地封城政策经常中断，因此中共国航空公司亏损严重。
 
-即将36岁的纳达尔说：“当我试图呼吸时，它很痛，而且非常不舒服。就像里面一直有一根针。我有点头晕，因为它很痛苦。这种痛苦，很大程度上限制了我（正常发挥）。现在让我担心的事情是那里（胸口）发生了什么，我现在必须做什么才能恢复以及需要多长时间。”
+疫情爆发后，民航业已萧条两年，惨不忍睹，员工收入锐减，飞行员都面临各种经济压力，整个行业人心不稳，人员流动剧增，可想而知，这对特别要求安全的航空业意味着什么。
 
-在比赛中，纳达尔被迫两次医疗暂停。第一次是在他输掉第一盘后，纳达尔在拍打自己的左上胸部，在训练师的陪同下进入室内。第二次是，在第二盘5-4落后后，他在球场上接受了治疗。
+（秘翻新闻 二丫编辑报道）
 
-今年，纳达尔以20-0的开局，包括澳大利亚公开赛。这是他的第21个大满贯冠军，打破了与诺瓦克-德约科维奇和罗杰-费德勒的平局。
+发布:星星
 
-纳达尔已经决定，跳过下周在迈阿密举行的比赛。回到西班牙的家中，准备参加5月22日开始的法国公开赛。
-
-参考新闻：
-
-[Nadal suffers breathing problems as winning streak comes to an end](https://www.smh.com.au/sport/tennis/swiatek-blows-away-sakkari-to-win-windswept-indian-wells-20220321-p5a6fk.html)
-
-[Rafael Nadal explains why taking vaccine was easy decision for him](https://www.tennisworldusa.org/tennis/news/Rafael_Nadal/106523/rafael-nadal-explains-why-taking-vaccine-was-easy-decision-for-him/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
