@@ -2,12 +2,12 @@
 ---
 
 
-## 如果习打台湾，是否会引起第三次大战（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207208/)
+## 喜币和其他系统不同 战友问题（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207254/)
 
-#### PPT制作: Qingjing ；玉米地的
+#### PPT制作: 小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-01-二-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-三--scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 12:44 AM (UTC)`
+
+3/21/2022 The important thing is that we accumulate the power of action every day, and the Rule of Law Foundation and the New Federal State of China have more and more influence.<br/>Medyka is also the media center. We don't underestimate every detail and must convey the firm standpoint that we are the New Chinese who are taking down the evil Chinese Communist Party through the banners and stickers.<br/><br/>2022年3月21日 重要的是我们每一天积累行动的力量，法治基金和新中国联邦影响力越来越大；梅迪卡也是媒体集中地，不要小看每一个细节，通过标识传递我们是消灭邪恶中国共产党的新中国人的坚定立场
+![img](https://media.gettr.com/group42/origin/2022/03/22/00/236b2ce5-3377-2b6b-76c4-931bea20fa2d/out.jpg)
+
+---
+
 `@miles 3/22/2022 12:34 AM (UTC)`
 
 2022.03.21 晚 《新中国联邦新闻》新中国联邦必须坚持唯真不破;  中共攻打台湾几乎不可能引发第三次世界大战
@@ -145,13 +152,6 @@ Children don't need war, children need their mothers and fathers .<br/> The suns
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
 ![img](https://media.gettr.com/group12/origin/2022/03/21/08/c7540332-c8b5-776c-54e6-6f47a104b5a8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/21/2022 6:08 AM (UTC)`
-
-3/20/2022 Miles Guo: Dictators will not give up their grip on power even if they are in the face of death. Same with Putin and Xi Jinping. People should not cherish any illusion about politicians. The separation of powers, rule of law, and democratic system of the United States are so great! That’s why the US has been able to attract the elites from all over the world to immigrate to the country.<br/><br/>3/20/2022 文贵直播: 独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外；人民不要对政客抱有丝毫幻想；美国的三权鼎立、法治和民主的系统太伟大了，所以才能吸引全世界精英移民美国
-![img](https://media.gettr.com/group26/getter/2022/03/21/06/f083da3b-b3e5-cbc2-3577-6e28297fb17b/out.jpg)
 
 ---
 

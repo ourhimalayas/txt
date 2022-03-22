@@ -2,12 +2,12 @@
 ---
 
 
-## 归于瑞士银行（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207230/)
+## 喜币和其他系统不同 战友问题（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207281/)
 
 #### PPT制作: Qingjing ；玉米地的
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-02-二-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-四--scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
