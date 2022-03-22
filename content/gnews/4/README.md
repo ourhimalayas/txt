@@ -2,23 +2,18 @@
 ---
 
 
-## 星链系统已彻底改变了战争走向
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212590/)
+## 清除共产党给国人植入的邪恶思想观念至关重要（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212621/)
 
-作者：加拿大温哥华扬帆农场 – 晨熹
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1007-1010-2.jpeg)
+*发布：陶子*
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2576.png)图片来源：gettr
-
-
-据3月20日文贵先生直播报道，Space X总裁马斯克日前公开声称，将在对俄军发射核弹的时间、数量以及地点完全不知情下挑战普京。
-
-据悉，马斯克的战书使得普京和习近平双双陷入恐惧。中共高层立即因此召开紧急会议，并深信其挑战绝非戏言，Space X完全具备改变核战争所依赖信息系统的技术能力。
-
-校对编辑：硫酸羟氯喹64
-
-发稿/上传：青青
-
-新闻来源： [https://gettr.com/post/p10y5j870c5](https://gettr.com/post/p10y5j870c5)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
