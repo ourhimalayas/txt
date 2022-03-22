@@ -2,28 +2,38 @@
 ---
 
 
-## 泽连斯基呼吁以色列提供先进的导弹防御系统
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207248/)
+## 专家呼吁研究新冠疫苗与耳鸣之间的可能联系
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207255/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜观察】和您一起洞察世界
 
-整理：等风来
+翻译：文法
 编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/RT1K34XX44YN@1RYKVM.png)图片来源：Salte & 雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/KD3KPGTCRF7DLCTHM3B.png)图片来源：7News & 雅典娜设计组
 
 
-自俄罗斯2月24日入侵乌克兰以来，港口城市马里乌波尔遭受了最猛烈的轰炸。该市具有重要的战略地位，周日（3月20日），俄乌军队为控制该市展开了战斗。
+受到哨子声的影响让波兰医生格雷戈里第二次在开车回家的时候差点偏离道路。
 
-乌克兰总统泽连斯基则呼吁以色列提供先进的导弹防御系统，帮助击退俄罗斯的攻击，拯救乌克兰人和在乌克兰犹太人的生命。
+“我以为狗哨就在我身边响起，”波兰医生怀疑这是疫苗的一个副作用。
 
-据路透社报导，周日，具有犹太人血统的[泽连斯基](https://www.epochtimes.com/gb/tag/%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA.html)通过视频向以色列议会发表讲话，质疑以色列不愿意向乌克兰出售其先进的“铁穹”（Iron Dome）导弹防御系统。
+整个医学界尚无法证明他接种的mRNA新冠病毒疫苗与突然出现的耳鸣有关，耳鸣声响可以是持续的或间歇性的。
 
-以色列总理纳夫塔利‧贝内特已经与泽连斯基和俄罗斯总统普京多次通话，试图推动双方结束冲突。
+美国疾病控制和预防中心和疫苗制造商通过疫苗不良事件报告系统（VAERS）等项目对冠状病毒疫苗接种后的耳鸣传闻进行了调查，但没有发现原因或证据。
 
-铁穹防空系统可以通过发射拦截导弹来有效拦截并摧毁空中的飞弹。该系统最初是由以色列拉斐尔先进防御系统有限公司（Rafael）开发的，后来得到了美国的大力赞助。
+**约翰霍普金斯大学医学院的一项研究分析了一份555页的VAERS报告，该报告称听力损失可能与2020年12月中旬至2021年7月中旬在美国使用的三种冠状病毒疫苗中的任何一种相关。**
 
-参考链接：[乌总统吁以色列提供铁穹系统 抵御俄军导弹](https://www.epochtimes.com/gb/22/3/20/n13660484.htm)
+上个月发表在同一份JAMA刊物上的另一项研究发现，在注射辉瑞公司新冠疫苗后，听力损失略有增加。
+
+辉瑞公司在给NBC新闻的一份声明中说：“已经对耳鸣病例进行了调查，与疫苗的因果关系没有确定。”
+
+根据强生公司的声明，在新冠疫苗的3期临床试验中，耳鸣被确定为一种不良事件，但也声称不能“确定与疫苗注射的因果关系”。
+
+莫德纳公司没有对一些评论请求作出回应。
+
+“目前，安全监测数据尚不足以得出结论，疫苗接种和耳鸣之间存在因果关系，”CDC官员在一份声明中说。
+
+新闻链接：[COVID vaccine side effects: Expert calls for research into possible link between mRNA and tinnitus after after unrelenting pain | Candy Bazaar](https://inc.candybazaar.com/covid-vaccine-side-effects-expert-calls-for-research-into-possible-link-between-mrna-and-tinnitus-after-after-unrelenting-pain/)
 
 发布：tianzhihuan
 

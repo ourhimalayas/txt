@@ -2,21 +2,41 @@
 ---
 
 
-## 新中国联邦乌克兰救援 3月21日波兰梅迪卡
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2207160/)
+## 新中国联邦乌克兰救援行动对全球华人的影响
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2207214/)
 
-新中国联邦NFSC新闻3月21日报道，新中国联邦波兰前线救援行动仍在持续，**在波兰梅迪卡进行的人道救援行动，受到国际更加广泛的关注和好评，**这其中离不开所有前线战友的辛苦付出。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3月19日.jpg)新中国联邦乌克兰救援行动3月19日救援人数统计（NFSC 新闻）
-据悉，**从3月5日到21日，新中国联邦前方救援战友总数大约为120人，总计接待人数大约为7177人次。**
+作者：银河系农场-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
+梅迪卡前线3月19日，新中国联邦对乌克兰的救援行动在社交媒体的广泛传播，吸引了世界各地的华人群体。这毕竟是自己的同胞第一次做这样人道主义救援的事业。
 
-**郭文贵先生在3月20日大直播中明确和坚定的宣布，新中国联邦乌克兰国际人道救援行动不会停止，除非俄乌战争结束。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220319-02.png)
 
-新闻来源链接：
+有一位来自德国南部的先生给法治基金来电，他说自己的太太是华人，因为非常感动我们的救援行动，想为我们提供一些帮助。另外还有一位来自美国德州30多岁的华人志愿者，他在大帐篷前帮助我们整理物资的时候战友和他进行了交谈与采访，得知他父亲来自中国大陆，母亲来自台湾，他识得中国字，知道我们是新中国联邦法治基金组织的这次救援，作为美国出生的华人二代，他非常荣幸能够参与到救援中来。目前他在前线做义工。
 
-[(614) 2022年3月20日 文贵大直播【精选1】提前告知乌克兰，俄罗斯将队乌克兰进行无差别轰炸；已经有人提议，联合国应该给新中国联邦应有的待遇 – YouTube](https://www.youtube.com/watch?v=2LVCTzPyBJg)
+郭先生在直播中也讲到，由于华人面孔第一次参与这样的国际救援行动，很多中国人都特别感动，都想去前线救人。人的本能就是帮助人，共产党统治下的那些自私冷漠懦弱完全是不明真相不辨善恶的结果，所以我们一定要灭掉共产党，唤醒所有的中国人。
 
+新闻链接：
 
+[https://gettr.com/post/p10xdvl3ade](https://gettr.com/post/p10xdvl3ade)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-51.jpg)
+
+编辑：飞虹
+
+校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
