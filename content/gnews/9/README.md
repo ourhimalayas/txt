@@ -2,12 +2,20 @@
 ---
 
 
-## 马来西亚通信和多媒体部副部长提议将加密货币和代币合法化
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2210704/)
+## 被美国击落的伊朗无人机目标指向以色列
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2210849/)
 
-03/21/2022 马来西亚媒体Harian Metro报道：马来西亚通信和多媒体部副部长扎希迪敦促马来西亚监管机构将一些加密货币和不可伪造的代币合法化。扎西迪提议马来西亚不仅仅要将某些加密货币交易合法化，更要将加密货币作为法偿。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/33-9.jpg)
+美国国防部官员周一在禁言令解除后说，上个月在伊拉克上空被美国战斗机击落的两架伊朗无人机是要去以色列的。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+以色列安全官员担心伊朗无人机被攻击会遭到伊朗的报复，据称以色列袭击了位于克尔曼沙阿的伊朗空军基地的无人机仓库，摧毁了数百架无人机。
+
+伊朗革命卫队进行了报复，向他们所谓的位于伊拉克北部城市埃尔比勒的 “以色列战略基地 “发射了十几枚导弹。
+
+伊朗上个月已经在中东地区开始制造麻烦，也门也是同时期攻击萨特。
+
+**新闻来源**：https://www.breitbart.com/middle-east/2022/03/21/israeli-officials-iranian-drones-shot-down-by-us-were-heading-for-israel/
 
  
 

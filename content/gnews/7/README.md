@@ -2,27 +2,28 @@
 ---
 
 
-## 加拿大推出利好乌克兰难民的移民政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2210733/)
+## 【G时新闻】以色列总理：俄乌谈判仍然存在巨大差距
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2210872/)
 
-作者：加拿大温哥华扬帆农场 – 采编：青青 – 撰稿：文莱
+主播：加拿大温哥华扬帆农场–文广
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2541.png)
-Tupian :[Canada will welcome as many Ukrainian refugees as it can: PM Justin Trudeau (rambunews.com)](https://rambunews.com/host-https-www.republicworld.com/world-news/russia-ukraine-crisis/canada-will-welcome-as-many-ukrainian-refugees-as-it-can-pm-justin-trudeau-articleshow.html)
+视频制作：加拿大温哥华扬帆农场–文所未闻
 
+据《国会山报》3月21日报道，周一，作为试图成为俄罗斯军事入侵乌克兰冲突的调解人，以色列总理贝内特(Naftali Bennett)说，乌克兰和俄罗斯之间的停火谈判仍然存在巨大的差距。 据路透社报道，在一次演讲中，贝内特说：“还有很长的路要走，因为……有几个问题存在争议，其中一些是根本问题”。他表示，以色列“将与世界上的其他朋友一起，继续努力缩小差距，结束战争”。 就在发表这些言论的前一天，身为犹太人的乌克兰总统泽连斯基（Volodymyr Zelensky）批评了以色列对战争的冷漠反应。他说：“为什么以色列不对俄罗斯进行制裁？以色列需要对这些问题给出答案，然后，我们才能共处”。 泽连斯基批评道：“我们向你们求助，并询问在不选边站的情况下（向我们）提供帮助或调解是否更好。我让你们自己决定这个问题的答案，但我确实想指出，冷漠会杀人”。 文章说，虽然以色列强烈谴责俄罗斯的入侵行为，但迄今为止，它没有像其他国家那样出台强有力的制裁措施作为回应。但以色列外交部长拉皮德（Yair Lapid）称，该国不会成为“俄罗斯绕开美国和其他西方国家实施制裁的通道”。 报道说，周一，以色列向乌克兰派出了一个援助代表团，以建立一个野外医院。在机场为代表团送行时，贝内特发表了几句话，说以色列正在“以敏感、慷慨和负责的态度处理这场不幸的危机，同时在各种因素之间保持平衡，而这些因素却是复杂的”。
 
-据【CTV新闻】3月20日报道，加拿大目前正计划向那些愿意为乌克兰难民提供帮助的国人提供包括暂时减免苛捐杂税的经济支持。
+编辑/发文：让子弹飞飞飞
 
-报道称，联邦政府将通过【加乌紧急旅行授权】措施，以接纳乌克兰难民及其任何国籍的直系亲属，并获得为期三年的临时居留权以及在加拿大工作或学习的权利。此外，还将建立专门就业银行，以便资助企业雇主更容易招聘到入境的乌克兰移民。
+盖特链接：[https://gettr.com/post/p116nhx28e9](https://gettr.com/post/p116nhx28e9)
 
-据悉，随着数百万战争难民逃亡至邻国，加拿大政府近期一直在优先处理乌克兰人的移民申请，同时还与各省密切合作，以确保这些难民在入境后可以即时获得住房和医疗保健等支持。
+* * *
 
-校对编辑：硫酸羟氯喹64
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-发稿：青青
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-原文链接：[Ukrainian refugees in Canada: Feds eyeing incentives | CTV News](https://www.ctvnews.ca/politics/feds-considering-incentives-for-canadians-looking-to-help-incoming-ukrainians-1.5825436)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

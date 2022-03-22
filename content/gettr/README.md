@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 2:45 PM (UTC)`
+
+【Ukraine Rescue】03/19/2022 Taiwan+ is the first English-language media outlet in Taiwan targeting international audiences. When asked by the reporter from Taiwan+ what she thinks about Xi Jinping's military threat to Taiwan, Nicole replies: We support the democracy and freedom of the Taiwanese people. The more we support Ukraine, the less likely Xi Jinping will attack Taiwan. We will always stand together with the international justice forces. <br/><br/>【乌克兰救援】03/19/2022 台湾+是台湾首家面向国际观众的英文媒体，主持人问妮可对习近平武力威胁台湾的看法。妮可回答，我们支持台湾人民的民主和自由，我们越支持乌克兰，习近平攻打台湾的可能性越小，我们永远与国际正义力量站在一起。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group21/getter/2022/03/22/14/e51745c9-3a40-edc6-ccb1-05b22c28ccc6/out.jpg)
+
+---
+
+`@miles 3/22/2022 2:45 PM (UTC)`
+
+3月21号：听说啊，这是路大脑袋或吴争——九指妖！搞了个混血儿！这是真的吗？真是共产党的好孩纸！🙈🙈🙈🙈🙈🙈
+![img](https://media.gettr.com/group9/getter/2022/03/22/14/6f08e3e7-c63d-e2ca-f7cf-9b0508c52e09/out.jpg)
+
+---
+
 `@miles 3/22/2022 1:01 PM (UTC)`
 
 2022.03.22 早《新中国联邦新闻访谈》TikTok算法把用户导向乌克兰战争虚假新闻；新中国联邦乌克兰国际救援行动不会停止；喜币将成为数字货币之王
@@ -140,20 +154,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 3月21日：G FASHION 带领世界时尚的潮流！<br/>https://instagram.com/stories/deandrehopkins/2799205738257589894?utm_source=ig_story_item_share&utm_medium=copy_link
 ![img](https://media.gettr.com/group17/getter/2022/03/22/01/286f8491-3f29-4302-c3d1-8a92ad5620b9/508d9b6b99945d243f06832d677ec829.jpg)
-
----
-
-`@miles 3/22/2022 1:10 AM (UTC)`
-
-2022.03.21 晚《新中国联邦新闻访谈》乌克兰战场最新动态；新中国联邦和法治基金的乌克兰救援行动持续进行中；胡塞武装再次袭击沙特炼油厂,化肥价格飙升可能导致夏天粮食价格暴涨； 东航波音737飞机坠毁，132人生死不明 ； 中共病毒新变种致疫情肆虐；展望HPay2.0
-![img](https://media.gettr.com/group14/origin/2022/03/22/01/892d18d7-53a3-9d8e-2a7b-e6fe114c88b1/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/22/2022 1:06 AM (UTC)`
-
-3月21日：今天．明天．后天．都是太好日子。【美国司法部对伪类的法律行动。 】https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0 https://gettr.com/post/p11798y55e5
-![img](https://media.gettr.com/group31/getter/2022/03/22/01/69a2e995-bb9b-7573-2773-8492a83f3aa1/out.jpg)
 
 ---
 

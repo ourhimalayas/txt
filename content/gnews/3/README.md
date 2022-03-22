@@ -2,34 +2,13 @@
 ---
 
 
-## 又见人血馒头
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2210780/)
+## 拜登敦促私营合作夥伴公司加强对潜在网路攻击的防御
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2210934/)
 
-作者：香草山健身部-新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-35.png)
+03/21/2022 基于不断发展的威胁情报，俄罗斯政府正在探索对美国关键基础设施的潜在网路攻击的可能性。拜登敦促私营合作夥伴公司立即采取行动，加强对潜在网路攻击的防御。
 
-凄怆破盛世
-机坠入火林
-寒骨未入棺
-花样广告频
-句句见冷毒
-处处啃人血
-脑残心更残
-无处觅真情
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
-
-- 审核/编辑/发稿:qiutian（邱甜）
-
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
