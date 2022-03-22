@@ -2,34 +2,20 @@
 ---
 
 
-## 离开乌克兰的难民已达355.7万人
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2210025/)
+## 乌克兰战争与中共国的丝绸之路
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2210054/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+翻译/整理: 萧亦
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03222.jpg)图片来自la repubblica.it
+习近平于 2013 年发起的雄心勃勃的“新丝绸之路” 基础设施项目，现在被迫面临多项挑战。渴望政治和经济稳定的北京，也由于“一带一路”倡议中现有的商业利益，尚未谴责莫斯科在乌克兰的进攻。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+俄罗斯在乌克兰的战争和西方对俄罗斯的制裁有可能破坏涉及全球 140 多个国家和 32 个国际组织。“一带一路”无疑是中共国旨在扩大欧洲经济霸权的计划，而中共国是乌克兰的主要贸易伙伴，而这个国家是“一带一路”通往欧洲的主要门户之一。
 
-普京发动的这场侵略战争，造成乌克兰民用基础设施遭到严重破坏和平民伤亡，迫使人们逃离家园寻求安全、保护和援助。根据联合国难民署的数据，自2022年2月24日俄罗斯入侵乌克兰开始，截止到欧洲中部时间2022年3月21日中午12点，已有3,557,245名乌克兰人逃离家园，通过过境点进入邻国。
+现在乌克兰的冲突引起了中共国领导层的关注，当局表示新丝绸之路项目的地缘政治风险正在增加。北京最近通过呼吁上海合作组织（SCO） (上合组织) 成员国进行更多干预，中共国希望部分缓解西方对其在乌克兰危机问题上的“中立”立场施加的压力。
 
-乌克兰难民逃往邻国的主要路线是西部的波兰，西南部的斯洛伐克和匈牙利，南部的罗马尼亚和摩尔多瓦，也有部分老人进入东部的俄罗斯，极少数人进入北部的白俄罗斯。
+原文链接: [https://www.today.it/mondo/cosa-succede-alla-via-della-seta-cinese-con-la-guerra-in-ucraina.html](https://www.today.it/mondo/cosa-succede-alla-via-della-seta-cinese-con-la-guerra-in-ucraina.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-22_19-14-59.png)
-
-这个难民统计数据主要是官方过境点当局提供的数据，一些到达的数字仅代表估计值。值得注意的是，在申根区内自由流动的权利区域意味着欧盟内部几乎没有边境管制。因此，抵达与乌克兰接壤的申根国家（匈牙利、波兰、斯洛伐克）的数据仅代表进入该国的过境点，也许大量人员已转移到其他国家。此外，难民署公布的数据是不计算来自乌克兰邻国，通过过境点离开返回家园的个人。
-
-通过西部进入波兰的难民最多，已经达到2,113,554人，其次是罗马尼亚、摩尔多瓦、匈牙利、斯洛伐克。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-22_19-18-42.png)
-
-从难民撤离的数量来看，目前并没有明显的缓解。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-22_19-19-25.png)
-
-参考数据：
-
-[Refugees fleeing Ukraine (since 24 February 2022)\*](https://data2.unhcr.org/en/situations/ukraine#_ga=2.145552950.347834342.1647858718-1165991609.1647167307)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+责任编辑/发布:意大利达芬奇农场   萧亦
 
  
 

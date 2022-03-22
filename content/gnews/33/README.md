@@ -2,24 +2,22 @@
 ---
 
 
-## 秘翻在线：拜登总统称有明显迹象表明普京要使用生化武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2209149/)
+## 國際｜歐洲理事會批准戰略指南 擬組建快速反應部隊
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208866/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-2.png)图片来源：https://s.japanese.joins.com/Jarticle/289063
-美国总统乔拜登表示，俄罗斯声称“乌克兰拥有生化武器”是虚伪的主张。他声称，俄罗斯的这些说法表明普京正在考虑使用生化武器。
+**撰文/ 港台前線｜發佈日期/ 22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-21.png)**更多資訊請關注官方蓋特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+外媒21日報導，歐盟外交和國防部長在布魯塞爾舉行會議，基於俄烏戰爭提出一份戰略指南，旨在建立該指南列出了歐盟未來 5 到 10 年的安全方針，並要求組建快速反應部隊，兵力達5000人，增加戰爭時歐盟的軍事影響力，以便在危機發生後迅速部署。
 
-据路透社6月21日报道，拜登总统是在当天举行的商业圆桌会议上发表上述言论的，因为 “总统普京身处困境”。商业圆桌会议是一个代表 200 家美国最大公司的组织。
+歐洲理事會新聞稿指出，**理事會**正式**批准了《戰略指南》**，為歐盟制定了一項**雄心勃勃的行動計劃，旨在到 2030 年加強歐盟的安全和國防政策**，增強應變能力、防禦能力。組建快速反應部隊，在俄羅斯對烏克蘭進行無理無端的侵略以及重大地緣政治轉變之後，當戰爭重新回到歐洲時，這一點就顯得尤為重要。
 
-在活动中，拜登说，“普京总统被逼到墙角，现在正在谈论一项新的伪旗行动，例如声称我们美国在欧洲拥有生物和化学武器。这不是事实”。
+快速反應部隊將為歐盟、全球和跨大西洋安全做出積極貢獻，並與北約互補，北約仍然是其成員集體防禦的基礎，部隊組建並非有意與美國的軍事聯盟競爭。
 
-伪旗行动是指通过让对方看起来像是先发动攻击，从而为攻击对方创造借口的行为。
+而德國國防部長克里斯汀·蘭布雷希特在記者會上表示，德國有意成為快速反應部隊的核心，已經做好相關準備，並承諾承諾德國將資助歐盟對烏克蘭的新軍事援助計劃的四分之一，價值 5 億歐元。歐盟領導人預計將在週四和週五在布魯塞爾舉行的峰會上簽署這項被稱為「戰略指南針」的安全戰略。
 
-“他们还说乌克兰拥有生化武器，这清楚地表明他（普京总统）正在考虑同时使用这两种武器”，拜登说。拜登总统当天没有为他的言论提供具体证据。
 
-信息来源：[https://s.japanese.joins.com/Jarticle/289063](https://s.japanese.joins.com/Jarticle/289063)
 
-责编：Eric Kim
+來源｜[彭博社](https://www.bloomberg.com/news/newsletters/2022-03-21/russian-invasion-brings-european-army-closer-brussels-edition)、[EURACTIV](https://www.euractiv.com/section/politics/short_news/germany-wants-to-be-at-core-of-new-eu-rapid-response-capacity/)、[歐洲理事會](https://www.consilium.europa.eu/en/press/press-releases/2022/03/21/a-strategic-compass-for-a-stronger-eu-security-and-defence-in-the-next-decade/)
 
  
 
