@@ -2,8 +2,8 @@
 ---
 
 
-## 20220321文贵大直播：中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2207756/)
+## 20220320文贵大直播：莫德维杰夫将军被干掉，对中共的影响有多大
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2207809/)
 
 作者:东京樱花团小视频组
 

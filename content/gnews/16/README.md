@@ -2,8 +2,8 @@
 ---
 
 
-## 20220321文贵大直播：数字货币躺平币去中心化零成本支付 全球无差别交易
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2207774/)
+## 20220321文贵大直播：傅政华，孙力军之前转移的钱财
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2207849/)
 
 作者:东京樱花团小视频组
 

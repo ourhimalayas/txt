@@ -2,39 +2,35 @@
 ---
 
 
-## 新中国联邦所做的三件大事让中共恐惧
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2207706/)
+## 埃隆·马斯克称乌克兰的星链已经正式启动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2207792/)
 
-作者：纽约香草山农场-恩永存
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220319-02.png)
+翻译：冰糖葫芦喵
 
-3月15日，郭文贵先生在大直播中透露，新中国联邦做的三件大事，让中共高层寝食难安。
+编辑与校对：灭共文明、冰糖葫芦喵
 
-首先是在国际舞台上“代表中国人”。乌克兰大救援，新中国联邦与国际一流团队合作，全心全意不求回报地救助中国同胞、乌克兰难民和其他国际友人，展示了华人爱好和平、善良勇敢的新形象。相比之下，中共不仅与普京政府狼狈为奸，还在战争爆发后置同胞安危于不顾，在国内外丢尽了脸面。七十年来第一次，中共真切感受到了大位即将不保的危险。 其次是“战友有喜币”。郭先生让无数战友拥有了喜币，拥有了全世界最安全的财富，又一次让共产党如鲠在喉。共产党从来只会抢别人的钱，而且现在连抢来的钱也不安全了。两相对比，共产党知道自己大势已去。 第三是“新媒体平台”。“文宣”是中共维持邪恶统治的法宝，晚近以来，中共妄图以同样的伎俩统治世界，不惜花费巨资在全球范围内收买各大媒体。就在他们的“美梦”即将成真的时候，新中国联邦的媒体横空出世，依托高科技的力量，恪守唯真不破的原则，在全世界面前不断戳穿中共的谎言，揭露其假恶丑的真实面目，让中共左支右绌，疲于招架。
+《零对冲》3月21日报道，**SpaceX与特斯拉首席执行官埃隆·马斯克已经正式启动了乌克兰的星链（Starlink）互联网服务。**上周末，马斯克表示，在基辅的官员游说建立电站后，SpaceX启动了这项服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/埃隆马斯克.png-e1647915695359.jpg)aaiai’lai’loai’lonai’longai’lonai’loai’laia
+据报道，在上周，马斯克在听到基辅官员的呼吁后，并于本周末在推特上表示，**星链服务现在在乌克兰很活跃，更多的航站楼正在建设中。**
 
-共产党最怕有人代表他，最怕别人抢他的钱，抢他的话语权。而这些，新中国联邦都做到了。如郭先生所说，干掉共产党的一定是我们新中国联邦人。
+据雅虎新闻(Yahoo News)的一篇新报道称，**乌克兰数字转型部长米哈伊洛·费多罗夫**(Mykhailo Fedorov)曾在该国被俄罗斯入侵后，立即**游说马斯克提供帮助**。
 
-参考链接：
+他在推特上恳求马斯克，**当你们试图殖民火星时，俄罗斯却试图占领乌克兰!当你们的火箭从太空成功着陆时，俄罗斯的火箭袭击了乌克兰人民!我们请求你为乌克兰提供星链站。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/星链在太空.png)星链（图片来源：网络）
+大约一个半周前，**互联网上出现了一段未公开的视频，展示了如何设置和使用Powerwall作为移动发电站。**如何在几分钟内部署一个移动发电站，而无需将设备从盒子里拿出来。
 
-[https://gettr.com/post/p1051m93814](https://gettr.com/post/p1051m93814)
+该视频还展示了太阳能电池板如何很容易地连接到Powerwall，它将为电池充电，所以即使在现场，你也可以获得独立的电源。
 
-编辑/校对/发稿：有莫举名
+此前，**特斯拉向乌克兰运送了设备，试图帮助确保互联网不受干扰。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-317.jpeg)
+报道指出，**星链希望它的2000多颗卫星不仅能帮助乌克兰，还能帮助地球上的其他地方接入互联网。**
 
-**更多资讯，更多关注**
+新闻来源链接：
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[Elon Musk Says Starlink Internet Access Is Ready In Ukraine | ZeroHedge](https://www.zerohedge.com/markets/elon-musk-says-starlink-internet-access-ready-ukraine)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
