@@ -2,38 +2,26 @@
 ---
 
 
-## “全世界科学界失去重要人物” 乌克兰著名半导体物理学家被俄军杀害
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2212091/)
+## 俄乌战争或许会出现缓和
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2212125/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间19日，美国福布斯新闻报道称，俄罗斯军方在乌克兰杀害了知名半导体物理学家。
+采编撰稿：晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/nasu-768x576-1-edited.jpg)图片来源：korea-economics.jp
+据文贵先生3月21日盖特直播透露， 俄乌战争或许会出现缓和，但前提是普京必须被消灭。世界绝不会允许普京再继续执掌俄罗斯，这种情况下可能就会存在多次反复。
 
-乌克兰国家科学院(NASU)上周曾宣布，战争造成的平民死亡人数中包括65岁的物理学家巴西尔·彼得罗维奇·克拉德科(Petrovych Kladko)。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-50.png)
 
-福布斯新闻报道说，克拉德科是一位在利用高分辨率X射线衍射的半导体研究中广为人知的学者。克拉德科发现了一种利用X射线衍射细致观察小而薄的结晶材料层的方法。福布斯报道，在微小尺寸的半导体需求不断增加的情况下，克德多科的研究极为重要。
+昨天文贵先生在大直播中谈到发动入侵乌克兰战争的普京未来会有两种结局：其一，他的家人通过某种渠道请求乌克兰让步，所谓的“和乌克兰体面和解”；其二，普京被内部自己人干掉，或者在尝试发射核武时直接被定点清除，这也是目前最大的可能性。
 
-自2004年以来，克拉德科一直在NASU领导研究半导体材料与系统结构的部门。过去前苏联于1986年提名克拉德科为“苏联发明家”。2007年，克拉德科在科学和技术领域获得了乌克兰国家奖。NASU哀悼说：“他的死让乌克兰和全世界科学界失去了固态物理学领域中的重要人物。”
+据美国目前掌握的俄罗斯内部情报来看，认为普京被内部自己人干掉的可能性很大，一旦发生对中共来讲就非常糟糕。
 
-福布斯说明，早在3月13日，俄军入侵乌克兰首都基辅的郊区城市伊尔平的时后克拉德科就已经死去。据估计，在入侵开始24天内，900余名乌克兰平民被俄罗斯军队夺去生命。
+普京和习近平都将成为彼此的最后一个朋友，他们都是独裁，而且普金已经被美国定为战犯。全世界都心知肚明 — 习近平是普京入侵乌克兰的幕后金主，其真实目的是3F美国。
 
-**参考资料：**[korea-economics.jp][ロシア軍、ウクライナの著名半導体物理学者を殺害　「世界科学界は重要人物を失った」ウクラ科学院](https://korea-economics.jp/posts/22032104/)
+新闻来源：
+[https://gettr.com/post/p11491pcf7e](https://gettr.com/post/p11491pcf7e)
+[https://gettr.com/post/p10y5j870c5](https://gettr.com/post/p10y5j870c5)
 
-* * *
-
-*审核：BryanW*
-*校对：天天*
-*发稿：信心的选择*
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+*编辑/上传：文所未闻*
 
  
 

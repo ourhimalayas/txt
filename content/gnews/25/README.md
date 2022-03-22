@@ -2,29 +2,22 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2211781/)
+## 前线快讯每日要闻&#8211;《疫苗死亡&#8211;保险赔偿被拒》，Peterson Pierre（彼得森-皮埃尔)博士主讲
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2211932/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/72f8f53333ab6831-48.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-22.png)
-文章仅代表作者本人观点，与Gnews无关
+加拿大温哥华扬帆农场 – 视频组
 
-视频参看：
-[2022.03.22早 《NFSC新闻》](https://gettr.com/streaming/p11b9d1f206)
-[2022.03.22早《NFSC新闻访谈》](https://gettr.com/streaming/p11b170d9bb)
+你们好，事实调查者和真相寻查者们。我是美国前线医生Peterson Pierre博士，为您带来今天的前线快讯。在法国，有一位年长的富商买了一份数百万美元的人寿保险，他注射了COVID疫苗，之后他死了。人寿保险公司没有赔付，因为他们认为COVID疫苗是一项医学实验。 而死于医学实验的人不属于受保的范畴。此外，连法官都说，疫苗的副作用是众所周知的，它们已经被公开了。这位先生绝对不可能不知道这些副作用。他是自愿选择接种疫苗的。他也是死于疫苗注射。因为是自己选择的(打疫苗)，所以他们称之为自杀。嗯，你能重复一下你说的所有事情的那部分内容吗？自杀，连同实验性药物的死亡都不在人寿保险的受保范围内。我知道你在想什么，哦，那是发生在法国。这绝不会发生在美国。好吧，我很遗憾地告诉你。美国人寿保险委员会也表示，如果你死于COVID-19疫苗，人寿保险政策可能拒绝赔付，因为它们是实验性药物。就是这样，这就是我们认为可能发生的事情。我们看到它正在发生。你可能要检查一下你的保单了。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+素材提供：文倩
+软件听写：蓝色天空
+听写校对：文倩
+文稿翻译：Aima
+翻译校对：小白咖啡馆
+字幕添加：文雅
+最终审核：文倩
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-21.jpeg)
-
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
+编辑/发稿：野草
 
  
 

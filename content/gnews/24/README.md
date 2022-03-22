@@ -2,26 +2,36 @@
 ---
 
 
-## 瑞士银行俄罗斯客户的天价存款远超信贷风险
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211783/)
+## 欧盟采取新的方针，包括&#8221;创建自己的独立部队&#8221;
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2211944/)
 
-作者：香草山农场教育部–柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒3月17日消息，瑞士的银行持有多达2,130亿美元的俄罗斯客户资金，远远大于几家金融公司评估的资产负债表上的风险敞口。这为通过金融手段有效制裁俄罗斯提供了信心。
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【日本电视新闻24】为了应对来自俄罗斯和其他国家的威胁，欧盟（EuropeanUnion，EU）已经通过了新的方针，包括建立欧盟自己的独立部队。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ad7eca16478118bf265c202ef3b8e218u1-1-edited.png)图片来源：world.huanqiu.com
 
-据瑞士银行家协会SBA估计，上述银行在离岸账户中持有1,500亿至2,000亿瑞郎，即2,130亿美元的俄罗斯财富。这使得最初对制裁俄罗斯可能面临信贷风险的担心，显得多余。瑞士最大的两家银行上周详细介绍了对俄罗斯的 “有限 “风险敞口，其中最大的瑞银集团表示，自年底以来，已经削减了6.34亿美元的直接风险敞口。瑞士信贷首席执行官托马斯表示，瑞士第二大银行为富裕客户管理的资产中约有4%属于俄罗斯人，金额达数百亿美元，这远远大于瑞士信贷年报中的8.48亿瑞士法郎的净信贷风险。
+欧盟于3月21日召开了一次外交部长和国防部长会议，通过了旨在（从现在起）到2030年强化安全保障的新方针。在该方针中，包括首次建立一支最多达5000人的快速反应部队和强化对网络攻击的准备等内容，以应对来自俄罗斯和其他国家的威胁。
 
-SBA的披露对瑞士来说是罕见的。因为在上个月俄罗斯入侵乌克兰之后，瑞士采取了不寻常的举措，同意放弃中立立场，针对俄罗斯实施欧盟的金融制裁措施。随着制裁清单不断加长，银行发现受到审查的俄罗斯客户资金，远远超出了它们所发放的贷款或从俄罗斯子公司可能导致资产负债表损失的业务。瑞银CEO拉尔夫·哈默斯说，瑞银不仅对当前的合规性寻求保护，也在为未来可能面临的处罚规避风险。
+在会后的记者会上，欧盟高级代表博雷尔强调，这些指导方针旨在强化行动能力和果断处理应对危机的能力。他随后表示，准备对俄罗斯实施的追加制裁也在考虑中。
 
-参考链接：[Russians have up to $213 billion stashed offshore in Swiss banks](https://www.reuters.com/world/europe/russians-have-up-213-billion-stashed-offshore-swiss-banks-2022-03-17/)
+欧盟将在本月24日和25日举行的峰会上正式批准这项新方针。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+**参考资料：**[news.goo.ne.jp][EU“独自部隊の創設”など盛り込んだ新指針採択](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022032209999961.html)
 
-审核/总编：Zion文恩
-编辑：宁文静 
-校正/发稿：谐趣园
+* * *
+
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
 
  
 

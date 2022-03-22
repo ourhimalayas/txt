@@ -2,12 +2,13 @@
 ---
 
 
-## 邯郸市一辆白色轿车突然冲撞过来将十几位市民撞倒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2210582/)
+## 袁立讲述她如何从一个名演员到为弱势群体发声的心路历程
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2211259/)
 
-03/21/2022 视频中显示邯郸市一辆白色轿车突然冲撞过来将十几位市民撞倒。
+制作：全新一代君越 思想
+发布：Shifter
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+来源链接：[袁立复旦大学演讲，值得一看](https://mp.weixin.qq.com/s/VsqPAJMNznVKmfixAVFTmw)
 
  
 
