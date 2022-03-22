@@ -2,18 +2,23 @@
 ---
 
 
-## 三权分立才是最好的结构（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208891/)
+## 视频|新中国联邦乌克兰救援大巴工作暂告结束
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2208993/)
 
-#### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-950-1000-4.jpeg)
-*发布：陶子*
+制作：香草山视频部
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+3月19日，克拉科夫消息，当地时间晚十点左右，当最后三辆从乌克兰利沃夫出发的救援大巴抵达克拉科夫，运行了15天的新中国联邦救援大巴工作告一段落。
+
+此次大巴救援工作，由新中国联邦发起，法治基金资助的乌克兰人道救援工作的一部分，是面向乌克兰境内的华人同胞、及所有需要撤离战区的各国人士提供的免费救援服务，每日从乌克兰利沃夫发车，终点是波兰克拉科夫。
+
+这次大巴救援工作，得到了乌克兰-波兰大巴车联盟等NGO组织的协助。从3月5日第一辆大巴运行开始，至3月19日，合计发车次数39台，累计总救援人数2009人。其中，大部分是乌克兰的妇女、儿童以及中国同胞。
+
+发稿：林礼
+
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,39 +2,35 @@
 ---
 
 
-## 新冠死者87%接种科兴疫苗，香港太平间不够棺材耗尽
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208261/)
+## 东航空难｜搜救队伍仍未发现生还者 专家困惑坠机角度不寻常
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208077/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文：CP**
+**发布时间｜22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/東航空難｜搜救隊伍仍未發現生還者-專家困惑墜機角度不尋常.jpg)
 
-整理/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/90B120QESB7WTVVBNBA.png)图片来源：雅典娜设计组
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
 
-香港第五波新冠病毒疫情依然严峻。3月21日据大纪元报道，有分析显示，已接种疫苗的死者当中，八成半以上选择了中国“科兴”疫苗。
+中国东方航空公司一架载有132人的波音737-800客机昨日（21日）下午在广西梧州坠毁，大批救援人员今日（22日）凌晨陆续赶赴现场搜救。据中共党媒报导，中共副总理刘鹤及国务委员王勇昨晚已经率领有关部门前往梧州，指导事故现场救援、善后及事故原因调查工作。目前，搜救人员在现场发现飞机残骸碎片，但未发现机上失联人员。
 
-香港这第五波中共病毒疫情持续两个多月，不完全统计接近6千人死亡。香港医院管理局分析了当中5100多起个案，显示近1300人生前已注射疫苗，选择了中国国产的“科兴”多达87%。
+美国国家运输安全委员会亦派出一名高级航空安全调查员，作为美国授权代表，调查有关事故。委员会指，调查将由中共民航局主导，波音、通用电气和美国联邦航空总署(FAA)的代表，将担任技术顾问，并参与调查。
 
-目前中国大陆最少有五款新冠疫苗获批准使用，受制于资讯封锁，民众在注射疫苗上只能处于被动。
+根据Flightradar24的飞行跟踪数据显示，涉事飞机当时是在几秒钟内以每分钟超过 30,000 英尺的速度下降，也就是说，它在大约 1 分 35 秒的时间内下降了近 7,924.8 米。
 
-信心的封锁和加之专业知识的匮乏，民众只能被动或者被迫接受官方的安排。很多民众担心，不服从政府强推注射疫苗的话，会给自己工作和安全带来麻烦。
+中国航空专家分析认为，客机当时在两分半钟内，由八千多米高空向下急坠，高速俯冲撞地，超出了飞行员能够操作的范围，怀疑当时有可能飞行员既失去了飞机的动力，也失去了控制飞机的能力，因为即使一般的技术故障也不会造成这样的现象。
 
-上周三，由于致命的奥密克戎激增导致香港的太平间空间不足，香港穿着PPE隔离服的工人将冠状病毒受害者的尸体运送到冷藏集装箱中。
+此外，外媒引述经验丰富的坠机调查人员指出，虽然过去发生过几起客机从巡航高度直线坠落的事故，但几乎没有类似波音737外形的飞机发生如此极端，笔直坠落地面的事件发生。
 
-一位殡葬业代表告诉当地媒体，死亡人数飙升导致该市棺材供应紧张，仅剩 300具棺材，预计将在周末耗尽。
+美国航空安全顾问兼前 737 飞行员约翰·考克斯向媒体表示，“这是一个奇怪的现象，很难让飞机做到垂直下降。”另一位曾驾驶过 737 飞机的 NTSB 前调查员本杰明·伯曼也认为，与其他喷气式客机一样，737-800客机的设计基本很难以陡峭的角度俯冲。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1_31.jpeg)墜機前畫面
+不过，目前关于坠机最后一刻的影像资料都来自于广西梧州市一间矿业公司的闭路电视，通过片段可以看到客机几乎垂直俯冲向地面，并且当时机头没有解体。事故发生后，东航已宣布，即日起暂时停飞所有737-800客机。
 
-新闻链接：
+来源｜[彭博社](https://www.bloomberg.com/news/articles/2022-03-21/china-jet-s-nosedive-from-29-000-feet-baffles-crash-specialists)、[新浪](https://www.sohu.com/a/531634226_116237)
 
-1、[香港新冠死者87%接种科兴 消息封锁民众对疫苗一无所知](https://www.rfa.org/mandarin/yataibaodao/huanjing/gf2-03212022100702.html)2、[Morgues overflowing as Hong Kong suffers deadly COVID-19 wave | Asia – Gulf News](https://gulfnews.com/world/asia/morgues-overflowing-as-hong-kong-suffers-deadly-covid-19-wave-1.1647432139724)
+* * *
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

@@ -2,45 +2,29 @@
 ---
 
 
-## 美国称中共在南海的3个基地现已全面军事化
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208070/)
+## 人类未来的去中心化货币叫做躺平币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208016/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月20日，郭先生在大直播中透露，未来会有一个真正的去中心化货币，就是躺平币。
 
-翻译/编辑：小红帽
+据悉，从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付购买任何所需。另外，其转账功能不受任何限制，安全加密无人监管。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f-subeef-a-20180526-870x489-1.jpg)图片来源： www.japantimes.co.jp
+目前，第二代技术的交易成本是300-3000美金，即将到来的第三代成本为0.3美金。而随着区块链加密技术的逐渐成熟，交易成本将低至0.3分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-72.jpg)
+现在，世界上的法币大多数是分地域，被国家和组织垄断并强制人们使用，定价权被牢牢掌控在权力手中。此外，法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。
 
+因此，郭先生表示，躺平币回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，使用即是价值。
 
-根据自由亚洲电台3月21日报道，美国一位高级指挥官表示，中共已经将其在南海至少三个人工岛完全军事化，并为其配备了导弹系统和战斗机。
+参考链接：[大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://gettr.com/post/p10y5j870c5)
 
-美联社周日援引美国印太地区司令约翰·C·阿奎利诺（John C. Aquilino）上将的话说，在美济礁、渚碧礁和永暑礁的导弹库、飞机库、雷达系统和其他军事设施“似乎已经完成”。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-“这些岛屿的功能是扩大中共国的进攻能力。他们具有驾驶战斗机、轰炸机以及导弹系统的所有进攻能力，”阿奎利诺说，“中共威胁到所有在附近活动的国家以及所有国际海域和空域。”
-
-这与中共国国家主席习近平关于中共国不会将这些岛屿军事化的保证形成鲜明对比。
-
-根据总部设在华盛顿的，战略与国际研究中心的亚洲海事透明度倡议，中共自2013年以来，在南海至少开发了七个人工岛，共创造了3200英亩的新土地。
-
-这是美国官员第一次提到中共国在这些岛屿上部署战斗机，因为根据亚洲海事透明度倡议主任雷格·波林 (Greg Poling)的说法，“从来没有人在南沙群岛发现过战斗机。”
-
-2015年，在访问白宫时，习近平说：“中共国在南沙群岛进行的相关建设活动不针对、不影响任何国家，中国不打算追求军事化。”
-
-习近平还说，中共国“致力于维护南海的和平与稳定。”
-
-阿奎利诺告诉美联社，“在过去20年里，我们目睹了中共国自二战以来最大的军事集结。中共已经提高了所有能力，而武器化的积聚对该地区的稳定是不利的。”
-
-他还提到，任何飞越有争议性南海区域的军用和民用飞机“都很容易进入中共国岛屿导弹系统的射程之内。”
-
-新闻来源：[US says 3 China bases in South China Sea now fully militarized](https://www.rfa.org/english/news/china/southchinasea-militarized-03212022155943.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

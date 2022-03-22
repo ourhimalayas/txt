@@ -2,34 +2,80 @@
 ---
 
 
-## 俄罗斯电视抗议者：“俄罗斯人民真的反对战争”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2208293/)
+## 普京和他的暴徒们正在做的是种族灭绝。美国必须立即向乌克兰 提供他们赢得这场暴力战争所需的所有资源和飞机。
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2208164/)
 
-素材翻译：噜噜咪
+参议员瑞克·斯科特: 令人心碎而可怕的损失。 普京和他的暴徒们正在做的是种族灭绝。 美国必须立即向乌克兰提供他们赢得这场暴力战争所需的所有资源和飞机。 【转以色列时报：96岁的 (二战纳粹)大屠杀幸存者，在俄罗斯炮击哈尔科夫时丧生】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2490.png)
 
-上周在电视直播中抗议俄罗斯入侵乌克兰的俄罗斯记者玛丽娜·奥夫桑尼科娃周日告诉美国广播公司的《本周》节目，大多数俄罗斯人都反对这场战争，并补充说“这是普京的战争”。
-奥夫桑尼科娃被拘留，因为她打断了俄罗斯国营第一频道广播公司（她工作的地方）的现场录制，举起一个写着“停止战争”的牌子。“不要相信宣传，他们在对你撒谎。”
-据美国广播公司新闻报道，奥夫桑尼科娃一夜之间被拘留，随后被罚款30,000卢布（约280美元），原因是与她先前拍摄的视频有关的“行政违法行为”。
-本月早些时候，俄罗斯立法者通过立法，允许对记者和民众因发表被莫斯科认为是“虚假”战争信息的行为处以最高15年的监禁。
-根据ABC新闻，奥夫桑尼科娃仍可能根据这项新法律被起诉。
-“俄罗斯人民真的反对战争。这是普京的战争，不是俄罗斯人民的战争，”奥夫桑尼科娃说。
-奥夫桑尼科娃说她在电视直播中的抗议是“自发的”。
-玛丽娜·奥夫扬尼科娃说：
-“但对当前局势的不满已经积累了很多年，因为我们国家频道的宣传越来越扭曲，而俄罗斯政治中的压力也不能让我们无动于衷”。
-奥夫桑尼科娃说，她的行动是为了“向世界表明，并非所有的俄罗斯人都相信相同的东西。而且我相信，许多人——俄罗斯一半以上的人——是反对战争的。”
-她称对俄罗斯实施的全球制裁是“正确的决定”，但强调这些制裁也伤害了反对战争的普通俄罗斯人。
-“我想向世界表明，在俄罗斯不只是黑与白，我想向我们的俄罗斯人民表明，他们需要批判性地思考和分析呈现给他们的信息，”她并补充说，国营媒体对现实的描述“非常不同”。
 
-素材链接：【axios.com】 [Russian TV protester: “The Russian people are really against the war”](https://www.axios.com/marina-ovsyannikova-russian-protester-putin-f2bc3486-9619-45b4-b2c3-31bef76f6abd.html)
+> A heartbreaking and horrifying loss. What Putin & his thugs are doing is genocide. The United States must IMMEDIATELY give Ukraine all the resources & access to the planes they need to win this violent war. [https://t.co/d59OghEwcD](https://t.co/d59OghEwcD)
+> — Rick Scott (@SenRickScott) [March 21, 2022](https://twitter.com/SenRickScott/status/1506025185463394306?ref_src=twsrc%5Etfw)
 
-* * *
 
-审核：文乐
-校对：花羽
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+
+众议院共和党人： 必须阅读众议员史蒂夫·斯卡利斯[@SteveScalise](https://gettr.com/user/SteveScalise) 关于拜登在世界舞台上的软弱和反能源议程的观点文章： “当美国在能源上不再独立时，我们的国家和世界变得更加脆弱，更加依赖于坏分子。” **⬇️** 【附福克斯新闻：停止拜登对石油、天然气的战争——通过让美国、欧洲能源独立来对抗普京 美国可以再次成为全球能源领导者，为美国人和我们的盟友提供可靠的能源（斯卡利斯议员观点文章）】
+
+
+
+> MUST READ from [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) on Biden's weakness on the world stage and anti-energy agenda:
+> 
+> “When the United States is no longer energy independent, our country and the world become more vulnerable and more dependent on bad actors.” ⬇️[https://t.co/Rhi0Woaf06](https://t.co/Rhi0Woaf06)
+> — House Republicans (@HouseGOP) [March 21, 2022](https://twitter.com/HouseGOP/status/1506026614789922823?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯.古登： 普京以真相为由禁止俄罗斯人使用推特。 推特因一个笑话暂停了[@TheBabylonBee](https://twitter.com/TheBabylonBee)。 大科技公司喜欢表现得像个独裁者。
+
+
+
+> Putin banned Russians from Twitter over the truth.
+> 
+> Twitter suspended [@TheBabylonBee](https://twitter.com/TheBabylonBee?ref_src=twsrc%5Etfw) over a joke.
+> 
+> Big Tech loves acting like a dictator.
+> — Lance Gooden (@Lancegooden) [March 21, 2022](https://twitter.com/Lancegooden/status/1506042135174393865?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥： 通货膨胀每天都在杂货店和加油站那里影响着美国人。 保守的政策是解决这场经济危机的答案。 我们需要在今年 11 月的选票中选出强大的保守派。
+
+
+
+> Inflation is impacting Americans every day at the grocery store and gas station. Conservative policies are the answer to solving this economic crisis. We need to elect strong conservatives down the ballot this November.
+> — Mike Pompeo (@mikepompeo) [March 21, 2022](https://twitter.com/mikepompeo/status/1506030135547502597?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院发言人内德·普莱斯： 乌克兰赫尔松手无寸铁的平民和平抗议俄罗斯的占领。俄罗斯军方的回应？向人群投掷手榴弹并射击。我们谴责克里姆林宫以平民为目标,并呼吁普京结束他的选择之战。[#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
+
+
+
+> Unarmed civilians in Kherson, Ukraine peacefully protest the Russian occupation. The Russian military’s response? Throwing a grenade and shooting into the crowd. We condemn the Kremlin’s targeting of civilians and call on Putin to end his war of choice. [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/A1P5RAq2HH](https://t.co/A1P5RAq2HH)
+> — Ned Price (@StateDeptSpox) [March 21, 2022](https://twitter.com/StateDeptSpox/status/1506032906447294470?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 我们绝不能忽视 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。他正在观察弗拉基米尔·普京(的行动)，还在认真做笔记。 【附Foxnews的文章：美国海军上将称 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 已将南海岛屿完全军事化】
+
+
+
+> We cannot take our eye of Xi Jingping and China. He’s watching Vladmir Putin and he’s taking notes.[https://t.co/dpPAJFApc0](https://t.co/dpPAJFApc0)
+> — Rep. Brian Mast (@RepBrianMast) [March 22, 2022](https://twitter.com/RepBrianMast/status/1506074933172088836?ref_src=twsrc%5Etfw)
+
+
+
+众议员马特·盖茨： 当人们醒来时，他们担心自己的工作、油价，以及送孩子去上学的能力因为蝠奇博士想要关闭学校。 美国的封锁和剥夺自由应该比以往更加受到国会的重视。
+
+
+
+> When folks are waking up, they're worried about their jobs, gas prices, and the ability to send their kids to schools that Dr. Fauci wants to close.
+> 
+> Lockdowns and deprivation of liberty in America ought to be more at the forefront of the minds of Congress than they have been. [pic.twitter.com/docBSgZK3F](https://t.co/docBSgZK3F)
+> — Rep. Matt Gaetz (@RepMattGaetz) [March 22, 2022](https://twitter.com/RepMattGaetz/status/1506093259021598721?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
