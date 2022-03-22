@@ -2,23 +2,18 @@
 ---
 
 
-## 德国：欧盟将拨款10亿欧元供乌克兰采购武器
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2207776/)
+## 要懂得别人的付出，别老强调“我”（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207911/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/745a3a7b-01a2-4770-80ee-caf03316be39-1.jpg)图片来源：facebook.com/abaerbock
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-840-848-2_2.jpeg)
+*发布：陶子*
 
-俄罗斯出兵入侵乌克兰已持续快一个月，全球都在关注俄乌局势的变化，援助乌克兰并制裁俄罗斯成为了当下国际社会希望停止战争的主要行动。
-
-德国财政部长贝尔伯克（Annalena Baerbock）今日表示，欧联（EU）将拨款10亿欧元支持乌克兰，让他们能获得武器来对抗俄军。
-
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022322W0033](https://www.ftvnews.com.tw/news/detail/2022322W0033)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

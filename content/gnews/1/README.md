@@ -2,11 +2,11 @@
 ---
 
 
-## 新中国联邦有使命（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207796/)
+## 在俄乌战场前线的战友很不容易（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207916/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-40-11-45-一--scaled.jpeg)
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-840-848-3_1.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
