@@ -2,46 +2,30 @@
 ---
 
 
-## 专家呼吁研究新冠疫苗与耳鸣之间的可能联系
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207255/)
+## 恒大三支股票在港交所再次暂停交易
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2207464/)
 
-#### 【雅典娜观察】和您一起洞察世界
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-19.jpg)恒大三支股票在港交所再次暂停交易 网络图片
+据美国之音3月22日报道，陷入严重债务危机的中共国房地产巨头恒大集团及旗下所有子公司，3月21日在香港股市全部暂停股票交易，而与该公司有关的所有结构性产品也同时暂停买卖。令据报道，恒大及相关股票在港交所暂停交易是今年的第二次，正值一笔高达20亿美元的债务偿付到期的前夕。另有一笔14亿美元的债务下月偿付到期。
 
-翻译：文法
-编辑：文泓
+过去一年，中共高层强化对大型企业的控制，涉及行业包括互联网、银行、电子商务、大数据管理、房地产、教育培训、电脑游戏、网约交通平台等，导致市场低迷，尤其对房地产业影响巨大。负债超过3000亿美元的恒大集团大量债务期限将至，公司严重缺乏现金流。恒大集团总部已经向北京当局提出分拆恒大集团，出售其资产的计划。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/KD3KPGTCRF7DLCTHM3B.png)图片来源：7News & 雅典娜设计组
+把恒大所有资产，包括地砖、房顶都扒开卖掉，也不可能还清债务。除了倒闭，恒大无计可施。中共的强心针、强脑针、伟哥也许能救活死人，但救不活恒大。立在沙滩上、根基不稳的巨人，看着巨无霸，其实软塌塌。中共的经济是建立在谎言和欺骗之上，无节制地掠夺老百姓的财富。当中共因为病毒和疫苗事件被全世界抛弃，经济陷入困境的时候，恒大的崩塌也就在意料之中。
+
+新闻参考链接：[https://www.voachinese.com/a/evergrande-suspended-trading-of-share-in-hong-kong-20220321/6494420.html](https://www.voachinese.com/a/evergrande-suspended-trading-of-share-in-hong-kong-20220321/6494420.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-受到哨子声的影响让波兰医生格雷戈里第二次在开车回家的时候差点偏离道路。
+编辑：【英国伦敦喜庄园编辑部】
 
-“我以为狗哨就在我身边响起，”波兰医生怀疑这是疫苗的一个副作用。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-整个医学界尚无法证明他接种的mRNA新冠病毒疫苗与突然出现的耳鸣有关，耳鸣声响可以是持续的或间歇性的。
 
-美国疾病控制和预防中心和疫苗制造商通过疫苗不良事件报告系统（VAERS）等项目对冠状病毒疫苗接种后的耳鸣传闻进行了调查，但没有发现原因或证据。
-
-**约翰霍普金斯大学医学院的一项研究分析了一份555页的VAERS报告，该报告称听力损失可能与2020年12月中旬至2021年7月中旬在美国使用的三种冠状病毒疫苗中的任何一种相关。**
-
-上个月发表在同一份JAMA刊物上的另一项研究发现，在注射辉瑞公司新冠疫苗后，听力损失略有增加。
-
-辉瑞公司在给NBC新闻的一份声明中说：“已经对耳鸣病例进行了调查，与疫苗的因果关系没有确定。”
-
-根据强生公司的声明，在新冠疫苗的3期临床试验中，耳鸣被确定为一种不良事件，但也声称不能“确定与疫苗注射的因果关系”。
-
-莫德纳公司没有对一些评论请求作出回应。
-
-“目前，安全监测数据尚不足以得出结论，疫苗接种和耳鸣之间存在因果关系，”CDC官员在一份声明中说。
-
-新闻链接：[COVID vaccine side effects: Expert calls for research into possible link between mRNA and tinnitus after after unrelenting pain | Candy Bazaar](https://inc.candybazaar.com/covid-vaccine-side-effects-expert-calls-for-research-into-possible-link-between-mrna-and-tinnitus-after-after-unrelenting-pain/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

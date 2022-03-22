@@ -2,12 +2,12 @@
 ---
 
 
-## 喜币和其他系统不同 战友问题（七）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207295/)
+## 法币和比特币的本质（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207523/)
 
 #### PPT制作: Qingjing ；玉米地的
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-七-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-20-11-30-01-三-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

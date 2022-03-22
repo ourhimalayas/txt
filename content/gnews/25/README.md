@@ -2,25 +2,10 @@
 ---
 
 
-## 视频|烏克蘭副總理韋列舒克說不需要中國提供棉被，烏國需要的是武器衛國
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2206753/)
+## 3/20/2022 文贵直播: 中共几大家族纷纷变卖资产，限制所有人将钱转到国外和消费，预示中共灭亡的到来；傅政华、孙力军的巨额贪污连习近平都瞠目
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2206979/)
 
-制作：大直播短视频组- 隧道尽头的光
-文案：WEI#6859
-
-审核/编辑/发稿：谐趣园
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
-
+秘密翻译组-北美组
 
  
 

@@ -2,36 +2,28 @@
 ---
 
 
-## 泽连斯基呼吁以色列提供先进的导弹防御系统
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207248/)
+## 俄寡头在直布罗陀停靠的游艇被当局扣留
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2207435/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：冰糖葫芦喵
 
-整理：等风来
-编辑：文泓
+编辑与校对：冰糖葫芦喵
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/RT1K34XX44YN@1RYKVM.png)图片来源：Salte & 雅典娜设计组
+《路透社》直布罗陀3月21日报道，**周一，俄罗斯最大钢管生产商、德米特里·普潘扬斯基（Dmitry Pumpyansky）的一艘豪华游艇停靠在直布罗陀，随后被当局拘留。**目前，他本人被列入俄罗斯人的制裁名单中，而该公司正受到英国和欧盟的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/游艇-e1647910823404.jpg)
+据报道，西方因俄罗斯入侵乌克兰而**对俄罗斯寡头实施制裁，导致最近几周大批豪华游艇从欧洲撤离，**其中几艘驶往与美国没有引渡条约的马尔代夫。
 
+路透社的电视画面显示，这艘名为“Axioma”号停泊在直布罗陀。直布罗陀是英国的海外领地，位于伊比利亚半岛南端。
 
-自俄罗斯2月24日入侵乌克兰以来，港口城市马里乌波尔遭受了最猛烈的轰炸。该市具有重要的战略地位，周日（3月20日），俄乌军队为控制该市展开了战斗。
+**上周，英国对数百名俄罗斯个人和实体实施制裁，允许当局冻结他们的资产。**
 
-乌克兰总统泽连斯基则呼吁以色列提供先进的导弹防御系统，帮助击退俄罗斯的攻击，拯救乌克兰人和在乌克兰犹太人的生命。
+直布罗陀政府在一份声明中证实，**Axioma号是在请求允许进入港口后抵达港口的，并“被证实是直布罗陀最高法院一家主要国际银行的逮捕行动的对象”。**
 
-据路透社报导，周日，具有犹太人血统的[泽连斯基](https://www.epochtimes.com/gb/tag/%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA.html)通过视频向以色列议会发表讲话，质疑以色列不愿意向乌克兰出售其先进的“铁穹”（Iron Dome）导弹防御系统。
+**在声明中称，在接到进一步命令之前，这艘船将被英国海军部法警扣留。**
 
-以色列总理纳夫塔利‧贝内特已经与泽连斯基和俄罗斯总统普京多次通话，试图推动双方结束冲突。
+新闻来源链接：
 
-铁穹防空系统可以通过发射拦截导弹来有效拦截并摧毁空中的飞弹。该系统最初是由以色列拉斐尔先进防御系统有限公司（Rafael）开发的，后来得到了美国的大力赞助。
-
-参考链接：[乌总统吁以色列提供铁穹系统 抵御俄军导弹](https://www.epochtimes.com/gb/22/3/20/n13660484.htm)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[Russian billionaire’s yacht docks in Gibraltar, detained by authorities | Reuters](https://www.reuters.com/world/europe/russian-billionaires-yacht-docks-gibraltar-detained-by-authorities-2022-03-21/)
 
  
 
