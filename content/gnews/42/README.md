@@ -2,23 +2,16 @@
 ---
 
 
-## 中日财经爆|日元汇率时隔6年再次跌破120日元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2209232/)
+## 制裁中共｜美祭出签证限制以捍卫人权 决心向中共究责
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2209229/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d4734595.jpg)图片来源
-3月22日东京外汇市场，日元卖盘和美元买盘加速，日元汇率自 2016 年 2 月以来再次跌至1美元兑120日元水平。自本月初以来，汇率快速下跌，日元在约两周内贬值了约 5 日元。
+**撰文/ 港台前线｜发布日期/ 22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-12.png)**更多資讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+美国国务院21日发布新闻稿，称正在对部分中共官员处以签证限制（国务院未公布遭制裁官员人数或名单细节），受制裁的中共官员系因为参与了对少数民族、宗教团体及精神信仰人士的镇压（迫害）行为。美国国务院强调，将致力于捍卫世界各地人权，并继续使用外交、经济措施来推动究责行动，与国际社会合作厘清中共于世界各地侵犯人权应负之责任。
 
-3月16日决定加息的美联储主席鲍威尔21日发表讲话称，未来加息可能超出市场普遍预期，长期利率已经上升。随着日本央行的货币宽松政策，与日本持续处于低位的利差有望扩大，投资上具有优势的美元的买入趋势加剧。
+美国务卿布林肯于声明中呼吁中共政府停止所有迫害行为，**结束在新疆持续发生的种族灭绝和反人类罪行为、西藏的镇压政策、对香港基本自由的迫害以及在其他地方侵犯人权作为**，包括侵犯宗教自由的行为。
 
-自去年底美国加息政策明朗以来，日元贬值，美元升值。鉴于俄罗斯对乌克兰的长期军事入侵，美元作为关键货币，更有可能吸引买盘。
-
-消息来源:[東京円、一時１ドル＝１２０円台まで下落…６年ぶりの円安水準](https://www.yomiuri.co.jp/economy/20220322-OYT1T50071/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+来源｜[U.S. DEPARTMENT of STATE](https://www.state.gov/promoting-accountability-for-transnational-repression-committed-by-peoples-republic-of-china-prc-officials/)
 
  
 

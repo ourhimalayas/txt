@@ -2,39 +2,21 @@
 ---
 
 
-## 有声|欧盟峰会将讨论设立乌克兰团结基金
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211452/)
+## 美对中共官员制裁 中共外交部做出强烈反应
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2211522/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据国外媒体消息，欧盟理事会3月18日晚间表示，将于下周的欧盟领袖峰会上，讨论设立“乌克兰团结基金”事项。
+**作者：意大利罗马达芬奇农场 vanessa**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/V.jpg)footholdamerica.com
+3月22日，中共国外交部发言人汪文斌针对21日美国务卿布林肯发表声明称将对在中共国境内外和美境内的部分中共官员实施签证限制一事回答了记者：“美方的声明充斥着一己偏见和谎言，对中方进行污蔑抹黑，不断打压中方官员，违反国际法和国际关系基本准则，粗暴干涉中国内政。中方对此坚决反对。”同时声称中（共）国人权状况只有中国人民最有发言权，同时指责世界上最大的人权侵犯者是美国，让美方切实反省并纠正自身在人权领域犯下的累累罪行，立即撤销针对中方官员的所谓制裁，否则中方必将予以对等反制。
 
-欧盟理事会主席米歇尔指出，欧盟规划设立乌克兰团结基金，是为了协助乌克兰筹集当前的国防和民生，以及战后重建所需资金，并呼吁国际社会为该基金踊跃捐款。另有欧盟官员补充说，米歇尔当日与乌克兰总统泽连斯基通话后认为，由于目前乌克兰无法在国际金融市场发行债券融资，而且战乱导致了大量外资撤离，因此欧盟准备设立一个基金，以维持乌克兰的国防战斗力。
+中共外交部又一次在国际舞台上扮演了小丑的角色，试问外交部的战狼，中共国的人权什么时候允许中国人发过言？是新疆人还是西藏人、香港人？美国既然是世界上最大的人权侵犯国，那就不要去美国，也不要在乎美国是否对签证实行制裁；美国限制中共官员入境，是中共国的内政吗？人家的国家不让你去，你别去不就行了？美国既然说的都是谎言，那就拿出证据来，或者让国际社会派人去调查，证明你没有种族灭绝，证明没有大屠杀，证明病毒不是从你的国家实验室制造出来的，证明自己的清白才是最好的解决方式。
 
-据悉，美国总统拜登下周也将出席欧盟及北约峰会，与各国领导人讨论形势，并展现对盟国钢铁般坚定的承诺。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-10.jpg)
+中共国外交部发言人一贯用这些苍白的，毫无逻辑的言论在世界舞台上叫嚣，只能起到对内洗脑的作用，对外终究是个笑话！
 
+新闻来源：
+https://www.163.com/news/article/H32TPP310001899O.html?clickfrom=w\_yw
 
-
-
-文字版原文：[欧盟峰会将讨论设立乌克兰团结基金](https://gnews.org/zh-hans/2201385/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑 发布：意大利罗马达芬奇农场 Roma
 
  
 
