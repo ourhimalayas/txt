@@ -2,11 +2,11 @@
 ---
 
 
-## 伊隆马斯克的雕像应该立在太阳系（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208674/)
+## 三权分立才是最好的结构（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208856/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-940-950-5.jpeg)
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-950-1000-2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

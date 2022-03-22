@@ -2,11 +2,11 @@
 ---
 
 
-## 伊隆马斯克的雕像应该立在太阳系（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208659/)
+## 伊隆马斯克的雕像应该立在太阳系（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208724/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-940-950-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-940-950-7.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

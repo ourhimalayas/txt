@@ -2,29 +2,34 @@
 ---
 
 
-## 有声｜欧洲多国积极为乌克兰人提供就业机会
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208477/)
+## 泽连斯基：乌克兰对俄谈判所获协议须交付公投
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208502/)
 
-By:**秘翻新闻**
+整理/编辑：文泓
 
-**2022-03-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-46.png)图片来源 纽约时报
-[纽约时报3月21日报道，随着乌克兰外流的人数越来越多，全球多个公司正在迅速提供就业机会，以帮助那些因战争而流离失所的人迅速安顿下来，并填补这些公司的劳动力短缺。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-259.png)图片来源：DW
 
-[全球最大的人力资源公司艺珂集团（Adecco ）上周推出了一个招聘网站，以将乌克兰求职者与雇主相匹配。超过 200 家公司发布了招聘信息，约有 900 名乌克兰人在该平台上注册。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
 
-[艺珂集团的首席执行官阿兰·德海兹 表示，工作机会向乌克兰人提供了开始新生活和保障未来的能力。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+3月21日，据法新社报道，乌克兰总统泽连斯基今天接受当地媒体访问时说，乌克兰与俄罗斯的和平谈判最终若达成协议，必须交付全体公民投票，乌克兰绝不会屈服于俄罗斯发出的最后通牒。
 
-[在有超过 30万个工作岗位空缺的德国，一群企业家推出工作援助（JobAidUkraine），帮助乌克兰难民在抵达时尽快找到工作。最近一天，近 3万 名在线访问者浏览了从伦敦到里斯本的公司列出的 5千 多个职位，包括麦当劳轮班工作、人力资源专家、软件开发人员和护理助理。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+泽连斯基告诉新闻网站Suspilne：“我向所有谈判小组说明过，当你们谈到（未来达成协议中的）所有这些改变时，可能具有历史的重要性……我们必须回到公投。”
 
-[该网站的联合创始人克里斯蒂娜-凯斯霍夫表示：我们很惊讶在每个行业都有大大小小的公司做广告，从程序员到农民再到酒吧，人们想尽其所能为乌克兰提供帮助。](https://www.nytimes.com/2022/03/21/business/refugees-ukraine-jobs.html)
+他说，人民对于（达成的）这个或那个妥协，必须直言和有所回应。并且指出，妥协涵盖哪些问题正是与俄罗斯谈判的内容之一。
 
-秘翻新闻 自由信仰编译报道
+泽连斯基强调，乌克兰不会屈服于俄方发出的最后通牒，而基辅、马里乌波尔和哈尔科夫等城市也不会同意俄军占领。
 
-发布 : 恩典
+泽连斯基后来详细地说明一个关键问题，即乌克兰是否应该加入北大西洋公约组织（NATO）。他说，我们大家都已经了解了，乌克兰不会获准加入北约，因为北约会员国都“恐惧俄罗斯”。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+新闻链接：[泽伦斯基：乌克兰对俄谈判所获协议须交付公投](https://cn.theaustralian.com.au/2022/03/22/64858/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

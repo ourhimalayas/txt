@@ -2,18 +2,23 @@
 ---
 
 
-## 伊隆马斯克的雕像应该立在太阳系（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208652/)
+## 泽伦斯基：俄国飞行员没脑袋、没心肝！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2208689/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-940-950-2.jpeg)
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bd37c497-7f83-4e44-be8b-01299d46f9a5.jpg)图片来源：AP Direct
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+乌俄战火持续延烧，乌国当局3月22日发布一段总统泽伦斯基（Volodymyr Zelenskyy）发表谈话的影片；泽伦斯基表示，即使许多军机被乌军击落，俄国空军还是不停来犯，质疑飞行员是不是「脑子和心肝都是空的？」
+
+简评：乌克兰总统泽伦斯基之前放话，只要俄军投降就会善待俘虏，乌克兰并不想杀害你们！俄罗斯的飞行员们，你们为普京效力只不过是混碗饭吃，没必要为普京作恶，犯不上搭上自己的性命。乌克兰人民与你们无怨无仇，何故来杀害他们，又何故来送死呢？请长长脑子吧！不要再被普京忽悠了！
+
+新闻来源：[https://news.ttv.com.tw/news/11103220000400W](https://news.ttv.com.tw/news/11103220000400W)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
