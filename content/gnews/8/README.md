@@ -2,22 +2,35 @@
 ---
 
 
-## 视频|日媒揭露俄总统辅佐官员煽动普京侵略野心
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2209013/)
+## 澳印峰会上，澳大利亚总理抨击中共的南海行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2209047/)
 
-制作：香草山视频部
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-日媒在3月14日推出了一档节目，名为“操纵历史观，让普京逐渐斯大林化的男人”。节目以俄罗斯总统辅佐官员梅丁斯基为重点对象，分析了普京在2012年之后，其世界观的改变，尤其是对美国态度的转变。
-嘉宾指出，梅丁斯基上任，恰逢在2011年，普京遭受到空前的反对游行之后。由于美国支持此游行，普京因此对美国产生了仇恨。梅丁斯基抓住了这个机会，在俄罗斯境大搞个人崇拜，多次发表论文为俄罗斯领土扩张做铺垫，成功地激起了普京想要完成“俄天下”的野心。
-主持人特别指出，梅丁斯基在被普京重用前，曾出版了一本书，其内容称“事实并不重要，真正重要的在于如何解释”，正是这种理念造成了现在普京政权，扭曲事实，把侵略战争伪装成维护和平。
-无论是郭文贵先生爆料的瓦利克，还是日媒报道的梅丁斯基，它们欺上瞒下、扭曲事实的行径，跟中共如出一辙。从希特勒、毛泽东到普京、习近平，独裁者身边永远不缺乏善于用谎言煽动野心的谄媚者。
+#### 翻译/编辑：小红帽 
 
-发稿：qiutian（邱甜）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/maxresdefault-98.jpg)图片来源：https://www.youtube.com/watch?v=lA2ty3rLbjk
 
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+
+根据《印度时报》3月22日报道，在周一与印度莫迪总理的虚拟峰会上，澳大利亚总理斯莫里森发言反对中共国在南海的活动。
+
+峰会的一个重要成果是将年度双边峰会机制制度化。印度外交大臣哈什施林拉说，到目前为止，印度只与俄罗斯和日本举行过年度峰会。
+
+虽然两国签署了几项协议，包括对澳大利亚重要矿产项目的共同投资，这是澳大利亚希望与中共国竞争的一个领域。但直到周一晚间，双方仍在等待一份联合声明。澳大利亚希望通过这些新协议将其在印度的投资增加150亿卢比。
+
+虽然莫迪总统在开场白中没有提到乌克兰，但莫里森总统提到了俄罗斯的 “非法入侵”，称悲惨的生命损失凸显了让俄罗斯承担责任的重要性。莫里森总统表示：“志同道合的自由民主国家之间的合作是实现开放、包容、有弹性和繁荣的印太地区的关键，我欢迎你在四国集团内发挥领导作用，让我们关注这些重要问题。”
+
+印度政府在一份声明中说：“两位领导人还赞赏两国作为拥有共同价值观和共同利益的民主国家在战略上日益趋同，其中包括一个自由、开放、包容和繁荣的印太地区。”
+
+新闻来源：[Australia PM slams Chinese moves in South China Sea,PM Modi brings up LAC](https://timesofindia.indiatimes.com/india/australia-pm-slams-chinese-moves-in-south-china-sea-pm-modi-brings-up-lac/articleshow/90364064.cms)
+
+发布：Frank2021
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

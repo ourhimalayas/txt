@@ -2,35 +2,17 @@
 ---
 
 
-## 澳印峰会上，澳大利亚总理抨击中共的南海行动
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2209047/)
+## 台湾｜传特种兵拟回防本岛 为防共军斩首作战
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2209100/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+**撰文/ 港台前线｜发布日期/ 22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-11.png)**更多资讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
 
-#### 翻译/编辑：小红帽 
+有媒体报导称，台湾国安会与参谋本部拟强化首都圈防务及反斩首能量，有意将驻守外岛的陆军特部两栖侦察营调回本岛，防守解放军攻台的水路通道。国防部并未正面回应，仅表示各项有益于防卫作战的作为，均纳入研析与评估，惟事涉机敏，请媒体勿多加联想与臆测。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/maxresdefault-98.jpg)图片来源：https://www.youtube.com/watch?v=lA2ty3rLbjk
+解放军机频繁扰台，三月至今21天内扰台共计14次，随着俄乌战争的局势，台海安全也成为国际瞩目的焦点。郭文贵曾爆料表示“解放军将针对总统政要、台独分子进行斩首”与媒体称台军有意增强反斩首量能相符，然台湾国防部并无确认、否定或透漏更多资讯。。
 
-
-根据《印度时报》3月22日报道，在周一与印度莫迪总理的虚拟峰会上，澳大利亚总理斯莫里森发言反对中共国在南海的活动。
-
-峰会的一个重要成果是将年度双边峰会机制制度化。印度外交大臣哈什施林拉说，到目前为止，印度只与俄罗斯和日本举行过年度峰会。
-
-虽然两国签署了几项协议，包括对澳大利亚重要矿产项目的共同投资，这是澳大利亚希望与中共国竞争的一个领域。但直到周一晚间，双方仍在等待一份联合声明。澳大利亚希望通过这些新协议将其在印度的投资增加150亿卢比。
-
-虽然莫迪总统在开场白中没有提到乌克兰，但莫里森总统提到了俄罗斯的 “非法入侵”，称悲惨的生命损失凸显了让俄罗斯承担责任的重要性。莫里森总统表示：“志同道合的自由民主国家之间的合作是实现开放、包容、有弹性和繁荣的印太地区的关键，我欢迎你在四国集团内发挥领导作用，让我们关注这些重要问题。”
-
-印度政府在一份声明中说：“两位领导人还赞赏两国作为拥有共同价值观和共同利益的民主国家在战略上日益趋同，其中包括一个自由、开放、包容和繁荣的印太地区。”
-
-新闻来源：[Australia PM slams Chinese moves in South China Sea,PM Modi brings up LAC](https://timesofindia.indiatimes.com/india/australia-pm-slams-chinese-moves-in-south-china-sea-pm-modi-brings-up-lac/articleshow/90364064.cms)
-
-发布：Frank2021
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+來源｜[YAHOO](https://tw.news.yahoo.com/%E9%98%B2%E5%85%B1%E8%BB%8D-%E6%96%AC%E9%A6%96%E4%BD%9C%E6%88%B0-%E5%82%B3%E6%B5%B7%E9%BE%8D%E8%9B%99%E5%85%B5%E6%93%AC%E5%9B%9E%E9%98%B2%E6%9C%AC%E5%B3%B6-054136078.html)
 
  
 
