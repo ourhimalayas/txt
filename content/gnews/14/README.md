@@ -2,23 +2,28 @@
 ---
 
 
-## 中日财经爆|日元汇率时隔6年再次跌破120日元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2209232/)
+## 俄罗斯以防范“极端组织”为由 正式封锁脸书与IG
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2209236/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d4734595.jpg)图片来源
-3月22日东京外汇市场，日元卖盘和美元买盘加速，日元汇率自 2016 年 2 月以来再次跌至1美元兑120日元水平。自本月初以来，汇率快速下跌，日元在约两周内贬值了约 5 日元。
+**撰稿：日本东京方舟农场   Miyali7768(文玉) **
 
-3月16日决定加息的美联储主席鲍威尔21日发表讲话称，未来加息可能超出市场普遍预期，长期利率已经上升。随着日本央行的货币宽松政策，与日本持续处于低位的利差有望扩大，投资上具有优势的美元的买入趋势加剧。
+据《自由时报》3月22日报道，在俄罗斯政府指责美国科技巨头Meta纵容“俄罗斯恐惧症”（Russophobia）的背景下，俄罗斯地方法院21日以防范“极端主义”组织为由，宣布对Meta旗下两项服务，Facebook以及Instagram正式实施封锁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-31.jpg)（图片来自路透社）
+据报道，俄罗斯联邦安全局（FSB）代表在法庭上对Meta提出指控，“Meta组织的活动是针对着俄罗斯以其麾下的武装部队，我们要求（法院）封锁Meta的服务，并请求立刻执行。”
 
-自去年底美国加息政策明朗以来，日元贬值，美元升值。鉴于俄罗斯对乌克兰的长期军事入侵，美元作为关键货币，更有可能吸引买盘。
+俄罗斯特维尔区（Tverskoi）地方法院同意检察官的请求，封锁了“正在推广极端主义”的Facebook以及Instagram。
 
-消息来源:[東京円、一時１ドル＝１２０円台まで下落…６年ぶりの円安水準](https://www.yomiuri.co.jp/economy/20220322-OYT1T50071/)
+对此，有网友评论，Facebook 或 Meta 从未遇到喜欢他们的独裁者。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+此前，Meta公司曾于本月10日表示，在旗下的社群平台上允许发表”俄罗斯侵略者去死”等类似言论，不过Meta全球事务总裁克莱格（Nick Clegg）事后指出，这项较为宽松的规定仅适用于乌克兰境内民众的PO文。
 
+参考链接：
+1.[https://news.ltn.com.tw/news/world/breakingnews/3867163](https://news.ltn.com.tw/news/world/breakingnews/3867163)
+2.[https://gettr.com/post/p115u7w392e](https://gettr.com/post/p115u7w392e)
+
+编辑：幽蘭自得
+总编：老孙
+校对发布：Linda
 
  
 

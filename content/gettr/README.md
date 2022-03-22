@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 9:48 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
+![img](https://media.gettr.com/group39/origin/2022/03/19/07/f06d35cf-7986-c6be-74ae-c8a9479d1807/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/22/2022 9:47 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月21日第17天当日救援统计：<br/>Medyka救援站接待：约45人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7222人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 17 - Date: March 21, 2022 :<br/>Medyka Rescue Station Reception: about 45 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7222 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group29/getter/2022/03/22/09/dd7d5bc6-7a08-4cd6-9ef1-b4de0bfc3d04/e60acc755ce2107e1a0f0e8c70d6cc36.jpg)
+
+---
+
 `@miles 3/22/2022 5:14 AM (UTC)`
 
 3/20/2022 Miles Guo: Elon Musk’s Starlink has changed the future of humanity! This year will be the darkest year and also the most promising year of mankind! Putin and Xi will not be around next year. The whole world is investigating the Chinese colluding with the CCP. The US sanctions imposed on the CCP’s media outlets, state-owned enterprises, and communication companies will go beyond your imagination.<br/><br/>3/20/2022 文贵直播：马斯克的星链改变了人类的未来！今年是人类最黑暗的一年，也最有希望的一年！明年将看不到普京和习；全世界正在清查跟中共勾结的华人；美国对中共党媒、国企和通信企业的制裁将超出你的想象！<br/>
@@ -139,20 +153,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 Aaaaaaaaaaaa
 > `@laifufu 3/21/2022 9:07 PM (UTC)`<br/>Akamai Techonogies, Inc. 在其网站介绍喜交所，称喜交所“提供一种新的旨在抵御极端价格波动的加密货币。该公司的一个关键目标是为新的数字时代提供一个革命性的金融解决方案”。<br/><br/>Akamai Technologies, Inc.是一家美国内容分发网络、网络安全和云服务公司，提供网络和互联网安全服务。 Akamai的智能边缘平台是全球最大的分布式计算平台之一。<br/><br/>(由DC战友Aven提供)<br/><br/>#喜马拉雅交易所 #HimalayaExchange #Akamai #DC政经 <br/><br/>https://www.akamai.com/blog/edge/himalaya-exchange?utm_source=twitter&utm_medium=social_corporate&utm_campaign=F-MC-52611
-
----
-
-`@miles 3/21/2022 10:17 PM (UTC)`
-
-3/20/2022 Miles Guo:  Several major CCP kleptocracy families have been selling their assets and the CCP restricts people from transferring money abroad and spending money, which foreshadows the upcoming demise of the CCP；the unbelievable amount of assets that Fu Zhenghua and Sun Lijun embezzled even shocks Xi Jinping<br/><br/>3/20/2022 文贵直播: 中共几大家族纷纷变卖资产，限制所有人将钱转到国外和消费，预示中共灭亡的到来；傅政华、孙力军的巨额贪污连习近平都瞠目<br/>
-![img](https://media.gettr.com/group29/getter/2022/03/21/22/37151af1-7d1c-27ee-6969-5d161f302454/out.jpg)
-
----
-
-`@miles 3/21/2022 10:10 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-21
-![img](https://media.gettr.com/group43/origin/2022/03/21/22/c050acd3-3373-3438-b499-dbaaa91abdfa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
