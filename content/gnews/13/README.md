@@ -2,23 +2,12 @@
 ---
 
 
-## 乌克兰军方：俄粮食弹药撑不过3天，3百士兵抗命离开阵地！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2210889/)
+## 【乌克兰救援】03/19/2022 台湾+媒体到法治基金新中国联邦帐篷前采访了妮可战友
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2211032/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3866086_1_1-1.jpg)图片来源：路透
+【乌克兰救援】03/19/2022 台湾+是台湾首家面向国际观众的英文媒体，主持人问妮可对习近平武力威胁台湾的看法。妮可回答，我们支持台湾人民的民主和自由，我们越支持乌克兰，习近平攻打台湾的可能性越小，我们永远与国际正义力量站在一起。
 
-俄乌冲突已持续快1个月，乌克兰军方今（22）日公布一份行动报告，宣称俄军正面临后勤补给问题，持有的弹药、粮食存量不超过3天，燃料也有类似情况，甚至传出约有300名俄国士兵不服指令离开阵地。
-
-简评：俄罗斯的大兵们，粮食弹药都不足了还打个什么仗，这样的为普京卖命值吗？你们战场上卖命只是它们身上的勋章而已，你们的性命在它们眼里不值啥！乌克兰已经宣称会善待俘虏的，还是抓紧的投降吧，这才是明智的选择！
-
-新闻来源：[https://www.setn.com/News.aspx?NewsID=1089021](https://www.setn.com/News.aspx?NewsID=1089021)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
