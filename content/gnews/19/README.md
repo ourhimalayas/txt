@@ -2,22 +2,35 @@
 ---
 
 
-## 樱花时政┃美将对中共国官员实施签证限制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2209271/)
+## 郭文贵先生3月21日盖特视频文字
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2209337/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-13.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F1024%2Fbranded_zhongwen%2F1085B%2Fproduction%2F_118857676_a1427dc6-6833-45b6-8c3a-2436197c6592.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-57399524&amp;tbnid=wqo8MacA-XSh7M&amp;vet=12ahUKEwiZ_qPBptn2AhWQzSoKHXTMBI0QMygAegUIARCqAQ..i&amp;docid=c_IWVGdXHVEeoM&amp;w=1024&amp;h=576&amp;q=%E6%97%85%E8%A1%8C%E5%88%B6%E8%A3%81%20%E7%BE%8E%E5%9B%BD%E5%AF%B9%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwiZ_qPBptn2AhWQzSoKHXTMBI0QMygAegUIARCqAQ#imgrc=wqo8MacA-XSh7M&amp;imgdii=uzwJ01b_gfdk5M)
-美国务院3月21日宣布，将扩大针对中共国官员的旅行制裁。美国务卿布林肯表示，由于中共国官员在境内、境外镇压少数民族和宗教人士，将对他们实施新的签证限制。新的签证限制将针对那些负责或同谋镇压少数民族和宗教人士、异议人士、人权运动者、记者的中共国官员。
+作者：顺其自然
+编辑：小红帽
 
-布林肯指出，中共官员的行为不只在中共国境内，甚至超越国界、把手伸入美国。美国反对中共官员骚扰、恐吓、监视和绑架少数民族和宗教团体的成员，包括那些在国外寻求安全的人，以及为这些弱势群体发言的美国公民。布林肯补充称，中共国不应试图通过拒绝在美国的维吾尔族（包括人权运动者、为美国人民服务的个人），他们在中共国家人的出境许可，来压制在美维吾尔族人。美国宣布对中共国官员限制签证，发生在拜登与习近平视讯通话之后几天。该次通话中，拜登施压习近平，要求中共国不要为俄罗斯入侵乌克兰提供各种支持。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d91aad743bac3d01.png)图片来源：雅典娜农场设计组（614）
 
-信息来源：
 
-[指控跨境打压人权 美国：对中国官员限制签证](https://www.dw.com/zh/%E6%8C%87%E6%8E%A7%E8%B7%A8%E5%A2%83%E6%89%93%E5%A3%93%E4%BA%BA%E6%AC%8A-%E7%BE%8E%E5%9C%8B%E5%B0%8D%E4%B8%AD%E5%9C%8B%E5%AE%98%E5%93%A1%E9%99%90%E5%88%B6%E7%B0%BD%E8%AD%89/a-61207329)
+在美国时间3月21日，郭文贵先生发了个盖特小视频。在小视频中，郭先生主要讲了以下几点内容。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+1、很多人在关心（东航）波音737飞机掉下来是怎么回事？哪国都会掉飞机，只是这时候掉飞机比较敏感。未来疫苗灾难到来的时候，这都会成常态。就这么可怕。
+
+2、最让人震惊的事情是上个周六和周日，就这几天里，整个数字货币的场外交易疯了。过去三年是数字货币增长最快的时期。但场外交易在过去这一周是最多的。这就说明比特币和币安有多少人被喝茶，币安那里有多少人消失。共产党把你抓了，把你的币没收了，你没有说话的权利。有的人在其他国家以没有及时申报，没有报税也被抓了。这钱就给你没收了。赵长鹏害了太多人了。早晚有一天币安会被关掉。在新的第三代数字货币上线以后，这些都是垃圾。因为成本高，不保密，谁都可以查，平台没有KYC，涉嫌违法犯罪。货币交易最主要的是稳定性和流通性。
+
+3、有关大宗市场，石油期货和黄金的行情，黄金永远不会涨太高，因为背后有人操作。印度人储藏黄金最多，你见过印度人有拿黄金买饼吃的吗？拿黄金去住酒店吗？没有。黄金可作为收藏使用，而作为流通救命的东西是不可能的。
+
+4、全世界的经济以及中共的经济都在等着下一个靴子下来。中共什么时候支持乌克斯（口误）的军援？共产党这次绝对逃不掉被世界消灭的命运，只是内部消灭它，还是全世界消灭它。最关键的是共产党的经济，房地产的爆雷，香港经济的崩塌。这几件事在这几个月之内就会发生，一旦发生，就会涉及到全世界和我们每个人。
+
+5、俄乌战争会有缓和，前提是普京必须被咔嚓了。在这种情况下，反复就很多。任何情况下，新中国联邦人都要和乌克兰人站在一起。
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

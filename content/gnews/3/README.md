@@ -2,30 +2,34 @@
 ---
 
 
-## 신중국연방 구조버스 업무 일단락 마무리
-` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2209890/)
+## 离开乌克兰的难民已达355.7万人
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2210025/)
 
-韩国正道农场
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-翻译：祁明
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-校对：星恋 gold hand
+普京发动的这场侵略战争，造成乌克兰民用基础设施遭到严重破坏和平民伤亡，迫使人们逃离家园寻求安全、保护和援助。根据联合国难民署的数据，自2022年2月24日俄罗斯入侵乌克兰开始，截止到欧洲中部时间2022年3月21日中午12点，已有3,557,245名乌克兰人逃离家园，通过过境点进入邻国。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2517.png)
+乌克兰难民逃往邻国的主要路线是西部的波兰，西南部的斯洛伐克和匈牙利，南部的罗马尼亚和摩尔多瓦，也有部分老人进入东部的俄罗斯，极少数人进入北部的白俄罗斯。
 
-上传：祁明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2534.png)
-3월 19일 현지시간 밤 10시경 우크라이나 리비우에서 출발한 마지막 세 대의 구조버스가 크라쿠프에 도착하면서 15일간의 신중국연방 구조버스 운행이 일단락 마무리됐다고 크라쿠프 뉴스에서 전했다.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-22_19-14-59.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2-3.png)
+这个难民统计数据主要是官方过境点当局提供的数据，一些到达的数字仅代表估计值。值得注意的是，在申根区内自由流动的权利区域意味着欧盟内部几乎没有边境管制。因此，抵达与乌克兰接壤的申根国家（匈牙利、波兰、斯洛伐克）的数据仅代表进入该国的过境点，也许大量人员已转移到其他国家。此外，难民署公布的数据是不计算来自乌克兰邻国，通过过境点离开返回家园的个人。
 
-이번 버스 구조작업은 신중국연방이 발주하고 법치기금이 지원하는 우크라이나 인도구조 작업의 일환으로 우크라이나 내 중국인 동포 및 전장에서 철수해야 하는 모든 각국 인사들을 대상으로 제공하는 무료 구호 서비스로 매일 우크라이나 리비우에서 출발하며 종착지는 폴란드 크라쿠프이다.
+通过西部进入波兰的难民最多，已经达到2,113,554人，其次是罗马尼亚、摩尔多瓦、匈牙利、斯洛伐克。
 
-이번 버스 구조 작업은 우크라이나-폴란드 버스 연합 등 NGO 조직의 협조를 얻었다.  3월 5일 첫 버스 운행부터 3월 19일까지 총 발차 횟수는 39대, 총 구조 인원은 2009명이다. 그 중 대부분이 우크라이나의 여성, 아동, 중국 동포이다.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-22_19-18-42.png)
 
-사진=(신중국연방 우크라이나의 전선)
+从难民撤离的数量来看，目前并没有明显的缓解。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-22_19-19-25.png)
 
+参考数据：
+
+[Refugees fleeing Ukraine (since 24 February 2022)\*](https://data2.unhcr.org/en/situations/ukraine#_ga=2.145552950.347834342.1647858718-1165991609.1647167307)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

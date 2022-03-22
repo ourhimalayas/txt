@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 11:54 AM (UTC)`
+
+【Ukraine Rescue】03/18/22 Nicole introduces the NFSC Ukraine Rescue Operation to the Director of the Japanese 'Sankei Shimbun' in Paris (Mina Mitsubishi-Ikuma): Our volunteers from all over the world have successfully rescued 1838 refugees and Chinese from Ukraine. Although the CCP has been sabotaging our rescue efforts, we have proven through our actions that we are not only different from the CCP, but are determined to take it down.<br/><br/>【乌克兰救援】03/18/22 妮可向日本‘产经新闻’驻法国巴黎分社的社长 (Mina Mitsubishi-Ikuma)介绍新中国联邦乌克兰救援行动：我们来自世界各地的志愿者已经成功从乌克兰救出了1838名难民及华人。尽管中共一直在破坏我们的救援工作，但我们用实际行动证明了我们不仅不同于中共，而且立志于铲除中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group14/getter/2022/03/22/11/b6dbed12-e23d-277c-dd20-714356198ae6/out.jpg)
+
+---
+
 `@miles 3/22/2022 11:20 AM (UTC)`
 
 【Ukraine Rescue】03/19/2022 A reporter from the Central News Agency of Taiwan interviewed volunteer Nicole. Nicole talked about the rescue work of the NFSC and the ROL Foundation and their mission to take down the CCP. The reporter said the NFSC and the ROL Foundation made a positive impact in rescuing the Ukraine people and she would support them in fighting for a free, democratic, lawful society in China.<br/><br/>【乌克兰救援】03/19/2022 台湾中央社记者采访在乌克兰救援的Nicole义工。Nicole介绍了新中国联邦和法治基金的救援工作，表明了推翻中共的立场。中央社记者表示新中国联邦和法治基金在乌克兰人道救援中发挥了正面作用，她支持新中国联邦和法治基金为中国人获得自由、民主、法治而做的工作。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -146,13 +153,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 `@miles 3/21/2022 11:08 PM (UTC)`
 
 3月21号：听说啊，这是路大脑袋或吴争——九指妖！搞了个混血儿！这是真的吗？真是共产党的好孩纸！🙈🙈🙈🙈🙈🙈
-
----
-
-`@miles 3/21/2022 10:40 PM (UTC)`
-
-3/21/2022 Miles Guo’s GETTR: Fellow fighters at the front line of the Ukraine rescue operation, please do not divide yourselves by your affiliations with the Himalaya Farms. We are citizens of the New Federal State of China. The rescue operation and live broadcast have been improved, and I hope everyone takes enough measures to protect themselves from the CCP virus. The NFSC & ROLF rescue operation indicates that the CCP doesn’t represent the Chinese and shows our steadfast strength and courage to take down the CCP. In the face of anti-Chinese riots across the globe, the contributions of fellow fighters at the front line are invaluable.<br/><br/>3/21/2022 文贵盖特：救援前线的战友们不要分农场，我们都是新中国联邦人；救援工作和直播有了进步，希望大家做好防病毒的措施；新中国联邦法治基金救援说明中共代表不了中国人，反映出我们灭共的坚定力量和勇气；面对全球排华，前线的战友们功德无量
-![img](https://media.gettr.com/group36/getter/2022/03/21/22/8b205eae-ef92-7cf0-77f2-ebeda65a45d7/out.jpg)
 
 ---
 
