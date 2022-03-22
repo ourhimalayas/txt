@@ -2,13 +2,11 @@
 ---
 
 
-## 中国东方航空一架载有132人的波音737客机坠机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207461/)
+## 3/21/2022 文贵盖特：请大家用平常心看待最近中共国的坠机事件，疫苗灾难到来后这将是常态；上周数字货币场外交易达近3年最高
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2207535/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220322-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

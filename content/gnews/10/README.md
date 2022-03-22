@@ -2,30 +2,19 @@
 ---
 
 
-## 长荣集装箱船突然再次搁浅(二）
-` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2207557/)
+## Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207740/)
 
-整理：波士顿五月花-BQHW
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-256.png)
-3月21日，长荣海运旗下万箱船“长程”轮（Ever Forward）仍在美国巴尔的摩搁浅，尚未脱困已超过一周时间。
+#### PPT制作: WinterGuo ；开智则立
+视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-30-11-40-三-1-scaled.jpeg)
+*发布：陶子*
 
-据长荣最新消息称，该公司可以确认搁浅没有对船体造成任何损坏，也没有燃料泄漏。此外，该船的螺旋桨和方向舵功能齐全。
-
-但截至上周五，海岸警卫队的一位发言人表示，重新漂浮该船的计划仍在进行中。这**艘搁浅的船周围也几乎没有活动——表明很可能需要进行长时间的打捞工作，**其中可能包括疏浚、减轻负荷，以及可能来自潮汐引力的一些帮助。
-
-3月18日，长荣海运已确认任命去年协助解决苏伊士运河搁浅“长赐”轮的同一家海事救援公司Donjon-Smit协助“长程”轮脱困。表示，一个专家小组已在现场评估接地情况、货物重量和潮差。所有这些都将用于制定海岸警卫队批准的打捞计划，以重新漂浮该船。
-
-早些时候，海岸警卫队发布了一项命令，要求 Ever Forward 的船员定期对水箱进行探测，以监测污染情况，并报告稳定性、吃水、位置或漏油迹象的任何变化。与此同时，船周围仍设有一个 500 码的安全区。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-139.jpg)
-据了解“Ever Forward”轮，IMO：9850551，长334米、宽48米，载箱量达到12118TUE，属11万吨级，悬挂香港旗。**主要负责长荣的亚洲往返美东AUE航线，事发时执行1133-007W航次。共舱的船公司有EMC、CMA、COSCO、OOCL等。该轮挂靠中国厦门、盐田、香港、高雄港等。**
-
-去年长荣海运长达400米的“长赐轮”卡住苏伊士运河近一周，导致逾400艘往来船只无法通行，导致全球供应链受阻。**还好这次长荣搁浅集装箱船，目前进出港口的航运没有受到影响**。但基于以上信息，依然不免让人生疑，中共是否会再次通过控制集装箱船搁浅堵塞关键航道来影响他国供应链以及能源供应，扰乱欧美正常社会。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-123.png)
-根据最新船舶数据，截止目前3月21日，该船仍搁浅在美国巴尔的摩港附近，预计原定船期将严重延误。
-
-————————————————————————————————————
-
-*发布：BQHW*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

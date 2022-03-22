@@ -2,30 +2,24 @@
 ---
 
 
-## 中日财经爆|恒大在港交所公告旗下三支股票暂停交易
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207702/)
+## 德国：欧盟将拨款10亿欧元供乌克兰采购武器
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2207776/)
 
-撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/745a3a7b-01a2-4770-80ee-caf03316be39-1.jpg)图片来源：facebook.com/abaerbock
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/恒大在港交所公告旗下三支股票暂停交易.png)[图片来源](https://www.dw.com/zh/%E6%81%92%E5%A4%A7%E9%9B%86%E5%9B%A2%E5%89%8D%E9%80%94%E6%9C%AA%E5%8D%9C-%E6%94%BF%E5%BA%9C%E5%8F%AF%E8%83%BD%E6%9B%B2%E7%BA%BF%E6%95%91%E5%9B%BD/a-59338224)
+俄罗斯出兵入侵乌克兰已持续快一个月，全球都在关注俄乌局势的变化，援助乌克兰并制裁俄罗斯成为了当下国际社会希望停止战争的主要行动。
 
-陷入严重债务危机的中共国房企恒大集团及旗下所有子公司，3月21日在香港股市全部暂停股票交易，而与该公司有关的所有结构性产品也同时短暂停止买卖。
+德国财政部长贝尔伯克（Annalena Baerbock）今日表示，欧联（EU）将拨款10亿欧元支持乌克兰，让他们能获得武器来对抗俄军。
 
-恒大集团周一早间在港交所公告，指中国恒大、恒大汽车、恒大物业同时从上午9点起短暂停止买卖。公告没有给出具体原因。
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022322W0033](https://www.ftvnews.com.tw/news/detail/2022322W0033)
 
-恒大及相关的股票在香港股市暂停交易是今年的第二次，正值周三一笔高达20亿美元的债务偿付到期的前夕。此外，下个月，另有一笔14亿美元的债务偿付到期。
+撰稿/发布：一叶知秋
 
-负债超过3000亿美元的恒大集团过去半年多来，由于销售不畅，大量债务期限接踵而至，公司严重缺乏现金流。虽然去年10月两次勉强履行了美元还款义务，但是在12月3日公告了首笔8250万美元票息因未能在30天宽限期到期前兑付而违约。恒大已有将近200亿美元的国际债券随后被信评机构判定交叉违约。
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-在中共国国内，恒大还严重拖欠建商的工程款和供应商的货款。恒大濒临破产，需要被迫重组。
-
-消息来源:
-
-[**恒大三支股票周一在港股再次暂停交易 或有重大消息待发**](https://www.voachinese.com/a/evergrande-suspended-trading-of-share-in-hong-kong-20220321/6494420.html)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

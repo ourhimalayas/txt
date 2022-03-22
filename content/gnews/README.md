@@ -15,119 +15,119 @@
 
 ---
 
-### [Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（三）](/content/gnews/1/README.md)
+### [新中国联邦有使命（一）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [中日财经爆|恒大在港交所公告旗下三支股票暂停交易](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花深度报道┃核武器再成为选项](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（二）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [若俄乌冲突硬要选边站，贸易因素将逼迫中共挺西方](/content/gnews/5/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [拜习会刚结束　美宣布对部分中共官员祭出签证限制](/content/gnews/6/README.md)
+### [德国：欧盟将拨款10亿欧元供乌克兰采购武器](/content/gnews/2/README.md)
  ` 蓝莲花农场`
 
-### [拜登总统出席北约峰会并访问波兰](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美最高法院大法官托马斯因感染住院](/content/gnews/8/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（一）](/content/gnews/9/README.md)
+### [Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（五）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [长荣集装箱船突然再次搁浅(二）](/content/gnews/10/README.md)
- ` MayflowerBiz`
+### [20220321文贵大直播：数字货币躺平币去中心化零成本支付 全球无差别交易](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [袁国勇料香港约250万人染疫](/content/gnews/11/README.md)
+### [中日财经爆|客机坠毁 东航港股和美股暴跌](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰多座城市被困，俄军再射高超音速导弹](/content/gnews/6/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [3/21/2022 文贵盖特：请大家用平常心看待最近中共国的坠机事件，疫苗灾难到来后这将是常态；上周数字货币场外交易达近3年最高](/content/gnews/12/README.md)
+### [Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（四）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [中日财经爆|香港迪士尼连续七年亏损](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [20220321文贵大直播：中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局](/content/gnews/9/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（三）](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [中日财经爆|恒大在港交所公告旗下三支股票暂停交易](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜习会刚结束　美宣布对部分中共官员祭出签证限制](/content/gnews/12/README.md)
+ ` 蓝莲花农场`
+
+### [拜登总统出席北约峰会并访问波兰](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [白宫警告俄乌战争导致全球粮食短缺](/content/gnews/14/README.md)
+ ` 蓝莲花农场`
+
+### [袁国勇料香港约250万人染疫](/content/gnews/15/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [3/21/2022 文贵盖特：请大家用平常心看待最近中共国的坠机事件，疫苗灾难到来后这将是常态；上周数字货币场外交易达近3年最高](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [粮食危机让中共惶惶不安](/content/gnews/13/README.md)
+### [粮食危机让中共惶惶不安](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [恒大三支股票在港交所再次暂停交易](/content/gnews/14/README.md)
+### [恒大三支股票在港交所再次暂停交易](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [37家日本上市企业暂停在俄业务](/content/gnews/15/README.md)
+### [37家日本上市企业暂停在俄业务](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国东方航空一架载有132人的波音737客机坠机](/content/gnews/16/README.md)
+### [中国东方航空一架载有132人的波音737客机坠机](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄寡头在直布罗陀停靠的游艇被当局扣留](/content/gnews/17/README.md)
+### [俄寡头在直布罗陀停靠的游艇被当局扣留](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [随着西方制裁的影响，科技人才正在逃离俄罗斯](/content/gnews/18/README.md)
+### [随着西方制裁的影响，科技人才正在逃离俄罗斯](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俄警告 拜登战犯言论后致使美俄关系濒临破裂](/content/gnews/19/README.md)
+### [俄警告 拜登战犯言论后致使美俄关系濒临破裂](/content/gnews/23/README.md)
  ` 蓝莲花农场`
 
-### [专家呼吁研究新冠疫苗与耳鸣之间的可能联系](/content/gnews/20/README.md)
+### [专家呼吁研究新冠疫苗与耳鸣之间的可能联系](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽连斯基呼吁以色列提供先进的导弹防御系统](/content/gnews/21/README.md)
+### [泽连斯基呼吁以色列提供先进的导弹防御系统](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃俄乌战争让日本安全政策面临转变](/content/gnews/22/README.md)
+### [樱花时政┃俄乌战争让日本安全政策面临转变](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦乌克兰救援 3月21日波兰梅迪卡](/content/gnews/23/README.md)
+### [新中国联邦乌克兰救援 3月21日波兰梅迪卡](/content/gnews/27/README.md)
  ` 蓝莲花农场`
 
-### [台湾的地理位置对美国的重要性，印度乌俄战争中的态度分析](/content/gnews/24/README.md)
+### [台湾的地理位置对美国的重要性，印度乌俄战争中的态度分析](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [7News 《全球视点》马斯克单挑普京，人类星际文明的里程碑](/content/gnews/25/README.md)
+### [7News 《全球视点》马斯克单挑普京，人类星际文明的里程碑](/content/gnews/29/README.md)
  ` 握笔之南`
 
-### [空难](/content/gnews/26/README.md)
+### [空难](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯入侵乌克兰：马里乌波尔拒绝投降——3月21日最新情况综述](/content/gnews/27/README.md)
+### [俄罗斯入侵乌克兰：马里乌波尔拒绝投降——3月21日最新情况综述](/content/gnews/31/README.md)
  ` 波士顿五月花农场金融部`
 
-### [3/21/2022 文贵盖特：救援前线的战友们不要分农场，我们都是新中国联邦人；新中国联邦法治基金救援说明中共代表不了中国人](/content/gnews/28/README.md)
+### [3/21/2022 文贵盖特：救援前线的战友们不要分农场，我们都是新中国联邦人；新中国联邦法治基金救援说明中共代表不了中国人](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄乌冲突加剧 乌克兰拒绝投降的最后通牒](/content/gnews/29/README.md)
- ` 蓝莲花农场`
-
-### [3/20/2022 文贵直播: 中共几大家族纷纷变卖资产，限制所有人将钱转到国外和消费，预示中共灭亡的到来；傅政华、孙力军的巨额贪污连习近平都瞠目](/content/gnews/30/README.md)
+### [3/20/2022 文贵直播: 中共几大家族纷纷变卖资产，限制所有人将钱转到国外和消费，预示中共灭亡的到来；傅政华、孙力军的巨额贪污连习近平都瞠目](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯在乔-拜登访问前几天用长信威胁波兰](/content/gnews/31/README.md)
+### [俄罗斯在乔-拜登访问前几天用长信威胁波兰](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [3/21/2022 文贵盖特：世界在等着下一个靴子降落 &#8211; 中共啥时候公开军援俄罗斯？中共必灭，只是被其内部消灭还是被全世界消灭的问题](/content/gnews/32/README.md)
- ` 秘密翻译组-北美组`
-
-### [视频|无惧随时有炮弹来袭，哈尔科夫消防员徒手救命](/content/gnews/33/README.md)
- ` 爆料视频`
-
-### [操弄下的请战书 湖南老兵要求赴乌克兰支援俄军](/content/gnews/34/README.md)
+### [操弄下的请战书 湖南老兵要求赴乌克兰支援俄军](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰妇女在前线，但不在头条新闻中](/content/gnews/35/README.md)
+### [乌克兰妇女在前线，但不在头条新闻中](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国收紧新冠封闭遏制措施 而德国则逐步取消限制](/content/gnews/36/README.md)
+### [中共国收紧新冠封闭遏制措施 而德国则逐步取消限制](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜联储定超瑞士银行业，喜币的未来在于法币和数字货币的共存机制](/content/gnews/37/README.md)
+### [喜联储定超瑞士银行业，喜币的未来在于法币和数字货币的共存机制](/content/gnews/38/README.md)
  ` YALUN 亚伦`
-
-### [将CHIPS法案视为国防政策，而不是产业政策](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [秘翻在线: 为防疫北京多处公共场所暂停开放](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
