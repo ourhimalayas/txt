@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥对救援前线的战友的再次忠告（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208292/)
+## 七哥对战友们的鞭策，更证明了：我们需要新中国联邦（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208463/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-900-9101_5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-910-920-2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

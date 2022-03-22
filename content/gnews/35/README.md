@@ -2,28 +2,39 @@
 ---
 
 
-## 白宫警告俄乌战争导致全球粮食短缺
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2207588/)
+## 拜登总统出席北约峰会并访问波兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207599/)
 
-翻译：冰糖葫芦喵
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-编辑与校对：灭共文明
+整理/编辑：文泓
 
-《布莱巴特》新闻网3月21日报道，**白宫周一证实，由于俄罗斯入侵乌克兰，美国预计世界某些地区将出现粮食短缺**，**并导致全球粮食价格上涨。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WH-Warns-of-Global-Food-Shortages-640x480-1-e1647913235852.jpg)图片来自：美联社。
-周一，白宫新闻秘书普萨基说:“我们预计，**能源化肥、小麦和玉米价格的上涨可能会影响到世界各国种植和购买关键粮食供应的价格。”**
-
-普萨基说，预**计食品短缺不会影响美国，而是会影响非洲、中东和东南亚国家**。白宫可以继续**与全球组织合作，尽最大所能缓解世界各地的粮食短缺。**
-
-有报道指出，乌克兰和俄罗斯生产的小麦、玉米、大麦以及能源和化肥出口占世界的很大一部分。
-
-尽管普萨基保证**美国不会出现粮食短缺，但化肥、谷物和燃料的成本可能会对粮食价格产生重大影响。**
-
-新闻来源链接：
-
-[White House Warns of Global Food Shortages After Ukraine Invasion (breitbart.com)](https://www.breitbart.com/politics/2022/03/21/white-house-warns-of-global-food-shortages-after-ukraine-invasion/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-146.png)图片来源：Wpmi & 雅典娜设计组
 
 
+当地时间20日，白宫官网发表声明称，美国总统拜登将于3月25日前往波兰华沙。
+
+拜登将于下周访问欧洲，参加将于3月24日在比利时布鲁塞尔举行的北约峰会，白宫表示，拜登将在布鲁塞尔与北约盟国、七国集团领导人和欧盟领导人会面，讨论国际社会为支持乌克兰所做的努力后，他将前往波兰华沙，与安杰伊·杜达总统举行双边会晤。
+
+白宫发言人珍·普萨基周日晚间表示，拜登总统将于周五前往波兰讨论国际社会对俄罗斯入侵乌克兰引发的“人道主义和人权危机”的反应。
+
+知情人士日前表示，美国和欧洲官员近期一直在讨论可能在北约峰会中敲定的新措施。这些措施可能包括对俄罗斯寡头的新一轮制裁、进一步限制对俄罗斯能源产品的进口等。美国和欧洲官员还讨论了可以通过哪些措施来为乌克兰提供更多支持，包括提供新的军事援助或财政援助。
+
+波兰边防卫队周五表示，自2月24日俄罗斯入侵开始以来，已有超过200万难民从乌克兰进入波兰。
+
+参考链接：
+
+1、[美国总统拜登将于3月25日前往波兰](https://news.sina.com.cn/w/2022-03-21/doc-imcwipih9661836.shtml)
+
+2、[Joe Biden to visit Poland on Friday to discuss Ukraine crisis | Joe Biden | The Guardian](https://www.theguardian.com/us-news/2022/mar/21/joe-biden-visit-poland-ukraine-crisis)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
