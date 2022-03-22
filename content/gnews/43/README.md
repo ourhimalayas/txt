@@ -2,18 +2,29 @@
 ---
 
 
-## 清除共产党给国人植入的邪恶思想观念至关重要（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210234/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2211781/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1007-1010-1.jpeg)
-*发布：陶子*
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/72f8f53333ab6831-48.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-22.png)
+文章仅代表作者本人观点，与Gnews无关
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+视频参看：
+[2022.03.22早 《NFSC新闻》](https://gettr.com/streaming/p11b9d1f206)
+[2022.03.22早《NFSC新闻访谈》](https://gettr.com/streaming/p11b170d9bb)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-21.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
 
  
 

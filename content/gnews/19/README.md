@@ -2,14 +2,23 @@
 ---
 
 
-## 救援现场的热咖啡
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2212440/)
+## 星链系统已彻底改变了战争走向
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212590/)
 
-【Ukraine Rescue】On March/12, in Medyka, Poland. Ukrainian refugees are coming into the big tent of NFSC and ROLF. Everybody loves the hot coffee in the tent. It helps people to warm up in the cold night and get through the tough times! We are the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
+作者：加拿大温哥华扬帆农场 – 晨熹
 
-【乌克兰救援】3月/12日波兰梅迪卡，乌克兰难民正在走入新中国联邦和法制基金的帐篷，每个人都非常喜欢这里的热咖啡，它能够在寒冷的夜晚温暖人们的身体，帮助度过这个艰难时光！我们是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2576.png)图片来源：gettr
 
 
+据3月20日文贵先生直播报道，Space X总裁马斯克日前公开声称，将在对俄军发射核弹的时间、数量以及地点完全不知情下挑战普京。
+
+据悉，马斯克的战书使得普京和习近平双双陷入恐惧。中共高层立即因此召开紧急会议，并深信其挑战绝非戏言，Space X完全具备改变核战争所依赖信息系统的技术能力。
+
+校对编辑：硫酸羟氯喹64
+
+发稿/上传：青青
+
+新闻来源： [https://gettr.com/post/p10y5j870c5](https://gettr.com/post/p10y5j870c5)
 
  
 

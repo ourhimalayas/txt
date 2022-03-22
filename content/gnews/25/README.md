@@ -2,26 +2,22 @@
 ---
 
 
-## 俄军袭击基辅平民设施造成人员伤亡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212354/)
+## 入侵乌克兰引发俄罗斯人口外逃潮
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2212542/)
 
-作者：东京方舟农场 Miyali7768(文玉)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-116.jpg)
-附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。 救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
+加拿大温哥华扬帆农场    平民正道
 
-参考链接：[**BOMB BLITZ Shocking moment Russia blows up shopping centre with ballistic missile in latest brutal attack targeting civilians**](https://www.thesun.co.uk/news/worldnews/18017568/eight-civilians-killed-russian-attack-on-shopping-centre/)
+据美国网媒&lt;Hot Air&gt;近日报道，自欧美对普京政权因入侵乌克兰而实施制裁以来，俄罗斯已开始出现大量人口外流现象。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+报道称，由于担心被征兵或边境关闭，已有无数俄罗斯人逃到了土耳其、亚美尼亚、格鲁吉亚、哈萨克斯坦等邻国。目前的出国人数之众，已与前苏联时期的逃亡潮相提并论。
 
-总编: Zion文恩
-编辑: 宁文静
-审核：Zion文恩
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj.png)
+据悉，不仅是普通的俄罗斯人，该国的新闻媒体也正在逃离当局的管控。自开战以来，至少有150名独立记者和编辑人员已经离境，从而使俄罗斯再次陷入了信息传播的黑暗时代。
 
+普京的暴政最终将使俄罗斯失去其未来繁荣的机遇，也许独裁者会再次拉下铁幕以阻止国民外逃，但无论如何，这场不义之战将给俄罗斯和普京本人都带来灭顶之灾的结局。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

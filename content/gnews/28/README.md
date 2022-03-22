@@ -2,25 +2,57 @@
 ---
 
 
-## 2022年3月22日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2212262/)
+## 视频|诗歌：致-新中国联邦大帐蓬
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2212437/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**中共的杀戮还在继续……**
+撰稿：东京樱花团/小小飞鸟
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0543.jpg)
+视频：东京樱花团/战友520，小小飞鸟
 
-发稿：信心的选择
+你是黑暗中的一盏灯
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+照亮漆黑冰冷的夜晚
 
+你是停泊的驿站
+
+让战火纷⻜中出来的人得到片时的安宁与温暖
+
+你无惧⻛霜 不惧事态炎凉
+
+英姿飒爽地屹立在这个荒凉的土地上
+
+你是爱 传递爱 分享爱
+
+你无私地付出 从不求回报
+
+只期待局势会变得更好
+
+一杯杯热乎乎的现磨咖啡
+
+一只只柔软的毛毯
+
+一簇簇红红的苹果
+
+一份份爱心汤羹
+
+一个个微笑 一个个拥抱
+
+你吸引了多少爱好和平的英豪
+
+在你的身边围绕 你的存在
+
+带给世界的美好
+
+新中国联邦大帐篷
+
+我为你自豪
+
+我为你骄傲
+
+编辑：东京樱花团/曲别针
+
+发布：东京樱花团/曲别针
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

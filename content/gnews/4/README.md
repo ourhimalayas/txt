@@ -2,11 +2,11 @@
 ---
 
 
-## 清除共产党给国人植入的邪恶思想观念至关重要（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212621/)
+## 上帝审判的时刻到来了（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212687/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1007-1010-2.jpeg)
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1020-1030-3.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

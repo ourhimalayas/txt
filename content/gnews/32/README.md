@@ -2,28 +2,26 @@
 ---
 
 
-## 新中国联邦援乌志愿者源源不断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2212190/)
+## 俄军袭击基辅平民设施造成人员伤亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212354/)
 
-**作者、编辑：Candy**
+作者：东京方舟农场 Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-116.jpg)
+附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。 救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
 
-波兰时间3月22日：看，这是我们新中国联邦的援乌志愿者、爆料革命的爆二代，Feather(听声音好像是这个名字）。她本在援乌后方的客服工作，负责接电话、查收Email等，但她坚持要到前线的救援营地服务。这不，刚到波兰，一早就来到营地为小朋友们发送糖果了。这个举动不但让小朋友们开心，让妈妈们得到一些身心的安慰，还会成为紧张的救援营地的又一幅靓丽的风景。
-![Image](https://media.discordapp.net/attachments/950448401529577502/955846232339808266/image.png?width=492&amp;height=369)图片来源：小小酥
-新中国联邦有这样有爱心、肯吃苦、又正义的新一代，一定会被越来越多的世人所认识，所认可。
+参考链接：[**BOMB BLITZ Shocking moment Russia blows up shopping centre with ballistic missile in latest brutal attack targeting civilians**](https://www.thesun.co.uk/news/worldnews/18017568/eight-civilians-killed-russian-attack-on-shopping-centre/)
 
-前几天，我们的又一队志愿者来到了营地。他们的背包还在肩上，没来得及放下，就马上接受了“职业培训”，看他们学得多认真！Allen战友是第二批从美国来到营地的志愿者，对现场的情况比较熟悉。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-你看他有条不紊地向新来的战友们一一介绍着这里的一切：“七星”大帐篷、闻名营地的现磨咖啡机、强力制暖机（战友们戏称手电筒）等等由法治基金提供资金支持的各种物资，让新来的战友们目不暇接，都看不过来了！
-![Image](https://media.discordapp.net/attachments/950448401529577502/955250222823510078/image0.jpg?width=656&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/955250357615886426/image0.jpg?width=656&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/955250314280312893/image0.jpg?width=656&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/955250270743437372/image0.jpg?width=656&amp;height=369)以上图片来源：Frank69
-战友们一定要注意防毒防疫，保重身体！愿战争早日结束，早日回家！
+总编: Zion文恩
+编辑: 宁文静
+审核：Zion文恩
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj.png)
 
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
