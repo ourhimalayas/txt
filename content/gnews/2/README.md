@@ -2,37 +2,29 @@
 ---
 
 
-## CCP病毒的 Deltacron 变体有多危险
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2210954/)
+## 护士好帮手——机器人，有望进入医疗第一线
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2211211/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/model-1.png)
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2022/03/123B.jpg)图片制作：澳喜农场
-当前，一种新的CCP病毒变异株Deltacron已在世界各地得到证实。
+撰稿：东京樱花团｜闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-28.png)
+[*图片来源*](https://images-ext-1.discordapp.net/external/nKqfYOZTi91Iw3KBGbNS5uA6ZBTZUugixZHkvN0m3MI/%3F1/https/cdn.mainichi.jp/vol1/2022/03/22/20220322k0000m040041000p/0c10.jpg?width=1169&amp;height=614)
 
-虽然尚未在澳大利亚检测到该变体，但法国、美国、英国、丹麦和荷兰等国家均有发现。这一变体之所以被人称为Deltacron，是因为该变体结合了Delta 和 Omicron 两种变异毒株的各个方面。
+因受新冠病毒的影响，本来就严重缺人的医疗第一线情况更加严峻。如何减轻医护工作人员的负担成了一个大问题。3月21日，在日本北九州市八幡东区的八幡市立医院进行了一次“在机器人协助下护理人员一个人搬运医疗床”的实验。
 
-Deltacron 是一种“重组”病毒，该病毒将上述两个独立的CCP病毒变体进行了融合。Omicron 目前是全球主导的 CCP病毒变体，而去年在全球蔓延的 Delta毒株则被称为迄今为止造成后果最为严重的变体。据推测，Deltacron 可能是早先的 Delta 病毒在模仿 Omicron 快速传播的特性之后形成的结果。
+医疗床通常由两名护理人员搬运移动，由于医疗床连同病人再加上医疗设备，非常沉重，这给护理人员的腰部带来很大的负担，这也是导致医护人员离职的主要原因之一。
 
-根据国际科学非营利组织 GISAID 的说法，该重组体首先由法国巴黎的巴斯德研究所检测到。Delta 的严重性和 Omicron 的传播能力相结合，听起来像是一场噩梦。不过到目前为止，人们发现这种病毒似乎并不常见，并且会出现无法成功复制自己的状况。
+本次试验使用的机器人高95厘米，宽45厘米，深42厘米，重约50公斤。它有一个内置的电池和马达，可以协助护士抬起医疗床的床框移动。医疗床连同病人和医疗设备大约有300公斤重，但有机器人的协助只需要一名护理人员就可以移动，而且所需力量只要以前的十分之一就可以了。医疗设备制造商Leaf公司（小仓北区），希望能够得到医院的合作尽快将其投入实际使用。
 
-巴斯德研究所的病毒学家 Etienne Simon-Loriere 博士表示，Deltacron 的“刺突”——其结构中用于感染其他生物的部分——是由 Omicron 组成的。因此从理论上讲如果体内存在针对Omicron的抗体，那么针对 Omicron 的防御措施或许也可以有效地抵御Deltacron。
+副院长冈本好司说：“有了这些机器人设备，医生和护士将能够集中精力从事他们原来的医疗工作。安全方面也很重要，我们希望共同合作进一步的改进。”另外，Leaf公司总裁森政男表示：“希望在2023年尽快将其商业化。”
 
-爱尔兰都柏林三一学院的生物化学教授 Luke O’Neill认为，Omicron 仍然是世界最关注的变体，因为该病毒转染力极强，也就表示其变异机会将相应更多。
+信息来源：[**患者のベッド搬送1人で  ロボットが補助  北九州の病院で実証実験**](https://mainichi.jp/articles/20220322/k00/00m/040/042000c)
 
-*发布：Gradient Boost*
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / yuxingcao01*
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
 
-新闻参考链接：
 
-[What is the Deltacron variant of COVID-19 and how dangerous is it?](https://www.9news.com.au/world/coronavirus-world-updates-deltacron-variant-what-is-new-strain-how-dangerous-explainer/fdcdd9cd-2015-4230-bc7f-aca6f56e1ec2)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/model-1.png)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
