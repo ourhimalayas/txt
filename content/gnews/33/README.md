@@ -2,30 +2,39 @@
 ---
 
 
-## 恒大三支股票在港交所再次暂停交易
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2207464/)
+## 拜登总统出席北约峰会并访问波兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207599/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-19.jpg)恒大三支股票在港交所再次暂停交易 网络图片
-据美国之音3月22日报道，陷入严重债务危机的中共国房地产巨头恒大集团及旗下所有子公司，3月21日在香港股市全部暂停股票交易，而与该公司有关的所有结构性产品也同时暂停买卖。令据报道，恒大及相关股票在港交所暂停交易是今年的第二次，正值一笔高达20亿美元的债务偿付到期的前夕。另有一笔14亿美元的债务下月偿付到期。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-过去一年，中共高层强化对大型企业的控制，涉及行业包括互联网、银行、电子商务、大数据管理、房地产、教育培训、电脑游戏、网约交通平台等，导致市场低迷，尤其对房地产业影响巨大。负债超过3000亿美元的恒大集团大量债务期限将至，公司严重缺乏现金流。恒大集团总部已经向北京当局提出分拆恒大集团，出售其资产的计划。
+整理/编辑：文泓
 
-把恒大所有资产，包括地砖、房顶都扒开卖掉，也不可能还清债务。除了倒闭，恒大无计可施。中共的强心针、强脑针、伟哥也许能救活死人，但救不活恒大。立在沙滩上、根基不稳的巨人，看着巨无霸，其实软塌塌。中共的经济是建立在谎言和欺骗之上，无节制地掠夺老百姓的财富。当中共因为病毒和疫苗事件被全世界抛弃，经济陷入困境的时候，恒大的崩塌也就在意料之中。
-
-新闻参考链接：[https://www.voachinese.com/a/evergrande-suspended-trading-of-share-in-hong-kong-20220321/6494420.html](https://www.voachinese.com/a/evergrande-suspended-trading-of-share-in-hong-kong-20220321/6494420.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-146.png)图片来源：Wpmi & 雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+当地时间20日，白宫官网发表声明称，美国总统拜登将于3月25日前往波兰华沙。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+拜登将于下周访问欧洲，参加将于3月24日在比利时布鲁塞尔举行的北约峰会，白宫表示，拜登将在布鲁塞尔与北约盟国、七国集团领导人和欧盟领导人会面，讨论国际社会为支持乌克兰所做的努力后，他将前往波兰华沙，与安杰伊·杜达总统举行双边会晤。
 
+白宫发言人珍·普萨基周日晚间表示，拜登总统将于周五前往波兰讨论国际社会对俄罗斯入侵乌克兰引发的“人道主义和人权危机”的反应。
 
+知情人士日前表示，美国和欧洲官员近期一直在讨论可能在北约峰会中敲定的新措施。这些措施可能包括对俄罗斯寡头的新一轮制裁、进一步限制对俄罗斯能源产品的进口等。美国和欧洲官员还讨论了可以通过哪些措施来为乌克兰提供更多支持，包括提供新的军事援助或财政援助。
+
+波兰边防卫队周五表示，自2月24日俄罗斯入侵开始以来，已有超过200万难民从乌克兰进入波兰。
+
+参考链接：
+
+1、[美国总统拜登将于3月25日前往波兰](https://news.sina.com.cn/w/2022-03-21/doc-imcwipih9661836.shtml)
+
+2、[Joe Biden to visit Poland on Friday to discuss Ukraine crisis | Joe Biden | The Guardian](https://www.theguardian.com/us-news/2022/mar/21/joe-biden-visit-poland-ukraine-crisis)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 4:26 AM (UTC)`
+
+Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA, who is volunteering at the refugee camp in Medyka, the border city of Poland to help Ukraine people. Mr. Chicken dresses himself up like a chicken and having some kids smile. He felt very happy that he could do a little something to make some kids smile.<br/>新中国联邦，法治基金的记者精糧采访了来自美国肯塔基的小鸡先生，小鸡先生在波兰边境的梅迪卡的难民营做义工。他把自己打扮成小鸡，让一些孩子们很开心。他觉得自己做了一点小事让一些孩子微笑，自己也非常地开心。
+![img](https://media.gettr.com/group31/getter/2022/03/22/04/7504eab7-858b-1a0d-b198-bb984db59da9/out.jpg)
+
+---
+
 `@miles 3/22/2022 3:53 AM (UTC)`
 
 3/20/2022 Miles Guo: The CCP will bomb Taiwan indiscriminately with cheap missiles that can’t even be defended with Elon Musk’s technology. The CCP can also create a major earthquake in Taiwan. Putin may reconcile with Ukraine or be taken out by those inside Russia. Even before Xi starts the war, Xi is already called a war criminal along with Putin. Putin being taken out will prompt the people around Xi to eliminate him.<br/><br/>3/20/2022 文贵直播：中共将用廉价导弹对台湾无差别轰炸，马斯克的技术也防不住；中共还能在台湾制造大地震；普京可能与乌克兰和解或被内部人干掉；习还没开战就跟普京一道被称为战犯；普京被做掉将促使习身边的人干掉他<br/>
@@ -146,12 +153,6 @@ Aaaaaaaaaaaa
 
 3/21/2022 Miles Guo’s GETTR: The whole world is waiting for the next decisive event - when will the CCP openly offer military support to Russia? The CCP is bound to be taken down, with the only question being whether it will be eliminated by itself or by the whole world. Here are the two key issues: the collapse of the CCP’s real estate and the crash of the Hong Kong economy. There might be reconciliations in the Russia-Ukraine war, but we will keep conducting our Ukraine rescue operation.<br/><br/>3/21/2022 文贵盖特：世界在等着下一个靴子降落 - 中共啥时候公开军援俄罗斯？中共必灭，只是被其内部消灭还是被全世界消灭的问题；最关键的两件事是中共房地产暴雷和香港经济崩塌；俄乌战争会缓和，但我们会继续救援乌克兰！
 ![img](https://media.gettr.com/group33/getter/2022/03/21/22/797428cf-a105-c530-8da6-161f45a1707d/out.jpg)
-
----
-
-`@miles 3/21/2022 7:12 PM (UTC)`
-
-3月21日：❤️❤️❤️❤️❤️❤️❤️@davide_martello https://gettr.com/post/p10zuip01a3 战地音乐家入驻盖特了😊
 
 ---
 

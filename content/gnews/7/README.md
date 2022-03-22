@@ -2,11 +2,11 @@
 ---
 
 
-## 要将俄乌战争真相传遍（特别在）中文世界（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208163/)
+## 七哥对救援前线的战友的再次忠告（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208280/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-840-848-4_1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-900-9101_2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

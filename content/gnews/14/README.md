@@ -2,13 +2,16 @@
 ---
 
 
-## 泽连斯基：乌克兰会竭尽所能与普京谈判
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2208041/)
+## 20220320郭文贵大直播 ：在乌克兰被救的同胞不敢面对镜头怕被共产党弄死
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2208189/)
 
-03/20/2022 泽连斯基：我们必须利用任何形式、任何机会与普京谈判，如果这次再失败，这意味着第三次世界大战。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

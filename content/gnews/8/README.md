@@ -2,25 +2,19 @@
 ---
 
 
-## 【G叻睇真D】法治基金梅迪卡营地成为汇聚全球正义力量的反共同盟
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2208147/)
+## 七哥对救援前线的战友的再次忠告（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208277/)
 
-主播：加拿大温哥华扬帆农场 – yuyu
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-900-9101_1.jpeg)
+*发布：陶子*
 
-视频制作：加拿大温哥华扬帆农场 – 文所未闻
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
-据文贵先生盖特直播3月19日报道，由于连日来战友们在社交媒体上大力传播救援信息，使新中国联邦和法治基金乌克兰人道救援行动吸引了全球华人的关注。
-
-住在德国南部的华人太太和她的德国先生主动打电话联系法治基金，询问他们能帮助做点什么；在美国德州的华人二代索性直接从美国飞到梅迪卡营地加入到义工团队一起工作。
-
-他们均被新中国联邦人道救援行动所感动，知道新中国联邦代表的是要推翻邪恶中共的新中国人，也都支持香港和台湾人民享有民主、自由、法治的权利。
-
-这只是救援过程中偶遇的两例，现在越来越多的华人开始关注和传播新中国联邦、法治基金的乌克兰人道救援行动。在不经意间，梅迪卡营地已经成全球正义力量的一个反共同盟。
-
-编辑/上传：一叶
-
-盖特链接：https://gettr.com/post/p116mni4978
-![](https://assets.gnews.org/wp-content/uploads/2022/03/背景墙必用.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
