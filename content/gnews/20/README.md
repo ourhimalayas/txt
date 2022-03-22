@@ -2,29 +2,76 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2211781/)
+## 【秘翻在线】加拿大官方数据表明：许多接种了两针和三针疫苗的人正患上艾滋病
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2211864/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/72f8f53333ab6831-48.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-22.png)
-文章仅代表作者本人观点，与Gnews无关
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2551.png)
+图片来源：网关专家
 
-视频参看：
-[2022.03.22早 《NFSC新闻》](https://gettr.com/streaming/p11b9d1f206)
-[2022.03.22早《NFSC新闻访谈》](https://gettr.com/streaming/p11b170d9bb)
+据《每日曝光》（Daily Expose）3月20日报道，在对加拿大政府最新公布的新冠数据进行加工整理后发现，接种了两针和三针新冠疫苗人群的免疫系统被严重摧毁，以至于他们现在已经患上了获得性免疫缺陷综合症（AIDS），即艾滋病。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+与未接种者的自然免疫系统相比，两针和三针接种者现在平均失去了74%和73%的免疫能力。在感染新冠和死于新冠的可能性上，两针群体是未接种者的3.8和3.3倍，三针群体是未接种者的3.7和5.1倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-21.jpeg)
+下图显示了在2022年1月31日至2022年2月27日期间，加拿大的每周新冠病例数按疫苗接种状况的分布情况：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2552.png)
+可以看出，在每周的新冠病例中，未接种者最少，两针和三针者则一直维持在较高水平。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
+也许有人会说，这是因为未接种者只占总人数的一小部分。但下图驳斥了这种说法：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2553.png)
+上图显示了1月31日至2月27日期间，加拿大人口按疫苗接种状况的分布情况。可以看出，未接种者的人口是最多的的。加拿大目前的总人口约为3801万。
+
+那么，为什么两针和三针人群中的新冠病例比未接种者更多呢？因为新冠疫苗损害了人体免疫系统，使接种者更有可能感染新冠病毒。
+
+下图显示了1月31日至2月27日期间，加拿大的未接种者、两针和三针人群中每10万人的新冠病例率：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2554.png)
+可以看出，两针和三针人群的新冠病例率一直高于未接种者。
+
+在知道了新冠病例率的情况下，我们可以用辉瑞公司的疫苗效力公式来计算出新冠疫苗在两针和三针人群中的效力。该公式为：
+
+未接种者的病例率-接种者的病例率/未接种的病例率×100 = 疫苗效力（Vaccine Effectiveness）%
+
+下图显示了在1月31日至2月27日期间，两针和三针者中的新冠疫苗效力：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2555.png)
+上图结果令人震惊，对两针者来说，在1月31日至2月6日，疫苗的实际效力是-221.16%；在2月21日至2月27日，这一数字进一步下降至-276.16%。
+
+三针者的情况虽然稍好，但却出现了更急剧的下降。在1月31日至2月6日，疫苗效力为-197.79%；在2月21日至2月27日，这一数字迅速下降至-269.87%。
+
+当政府表示新冠疫苗的效力随着时间的推移而减弱时，他们真正的意思是你的免疫能力随着时间的推移而衰减，而且无法恢复到其原始和自然状态，这意味着新冠疫苗正在摧毁接种者的免疫系统。免疫系统表现（immune system performance）的计算公式如下：
+
+未接种者的病例率-接种者的病例率/未接种者的病例率的最大值或者接种者的病例率X100=免疫系统表现%
+
+例如：三针者在2月21日至2月27日期间的免疫系统表现为：
+
+22.83 – 84.44 / 84.44 x 100 = -72.96%
+
+这个数字意味着，三针者已经失去了72.96%的免疫能力，他们只剩下27.04%的免疫力来对抗病毒和癌症等疾病。下图展示了1月31日至2月27日期间，相对于未接种者的自然免疫系统，两针和三针者的免疫系统表现：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2556.png)
+根据官方的新冠死亡数字，我们认为在加拿大，许多两针和三针者的免疫系统性能已经减少了90%，甚至100%。这意味着他们基本上已经患上了某种新形式的、由新冠疫苗导致的艾滋病。
+
+下图显示了1月31日至2月27日期间，加拿大按疫苗接种状况划分的单周新冠死亡人数：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2557.png)
+可以看出，就像新冠病例一样，两针和三针人群中的新冠死亡人数多于未接种者
+
+根据上面提到的按疫苗接种状况划分的人口分布情况，可以算出不同人群中每10万人的新冠死亡率：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2558.png)
+根据上述新冠死亡率，可以算出两针和三针人群中，新冠疫苗的预防死亡效力（vaccine effectiveness against death），如下图所示：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2559.png)
+对两针者来说，在1月31日至2月6日，疫苗的预防死亡效力是-10.79%，但在2月14日至2月27日，这一数字急剧下降到令人震惊的-228.52%；
+
+三针者的情况则要糟得多。在1月31日至2月6日，疫苗的预防死亡效力为-57.25%，但在2月14日至2月27日，该数字暴跌至-414.49%。
+
+这意味着，两针和三针者死于新冠病毒的可能性分别是未接种者的3.3倍和5.1倍。
+
+最后关注相较于未接种者的免疫系统，两针和三针者的免疫系统在预防死亡上的表现：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2560.png)
+在2月14日至2月27日期间，两针和三针者在预防死亡上的的免疫系统表现分别下降了69.56%和80.56%。
+
+通过上述官方数据很不幸地发现，两针和三针人群中的大多数现在已经患上了艾滋病，这意味着它们患上癌症和感染疾病的风险增加，而这些现象通常只发生在免疫系统薄弱的人身上。新冠疫苗是对人类的大屠杀，应立即停止接种。
+
+*责编：白夜*
+
+新闻来源：[Official Government of Canada data is truly terrifying; it suggests the Triple Vaccinated have developed AIDS & are now 5.1x more likely to die of Covid-19 than the Unvaccinated](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
 
  
 

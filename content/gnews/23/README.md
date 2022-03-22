@@ -2,32 +2,29 @@
 ---
 
 
-## 南澳大利亚警告：地方CCP病毒每日增长或超过8000
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2211742/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2211781/)
 
-撰稿：Gradient Boost
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/72f8f53333ab6831-48.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-22.png)
+文章仅代表作者本人观点，与Gnews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-149.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-250.jpg)
-网络图片
+视频参看：
+[2022.03.22早 《NFSC新闻》](https://gettr.com/streaming/p11b9d1f206)
+[2022.03.22早《NFSC新闻访谈》](https://gettr.com/streaming/p11b170d9bb)
 
-南澳大利亚州州长 Peter Malinauskas 表示，随着 Omicron BA.2 子变体在澳大利亚传播，该州预计 CCP病毒的新增感染病例会持续增加——昨晚更新的模型预期也表明了相同的结果。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-南澳首席公共卫生官 Nicola Spurrier 说：“我们预计未来几周将有超过 8000 例病例——但更重要的是，我们需要查看我们的病房入住率，尤其是成人病房的人数，”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-21.jpeg)
 
-南澳大利亚健康部门已被指示在病例可能增加之前制定紧急医院准备计划。与此同时，该州记录了 3686 例新的 CCP病毒确诊病例，其中 PCR 测试记录了 2262 例，快速抗原测试记录了 1424 例。目前有 165 名病毒感染者住院，其中 11 人处于重症监护状态中。
-
-不过当地政府表示，它不希望看到紧急情况管理条例再度延期。Malinauskas称，政府当前的目标是确保紧急状况持续延期到 6 月 30 日之后，甚至希望更早结束这一状况。
-
-鉴于当前医疗系统受到CCP病毒大流行的冲击，南澳州长在上周五宣布公立医院将再度暂停所有非紧急的择期手术：“我们公立医院系统的情况相当糟糕，以至于我们不得不将原本已经重新开始的非紧急择期手术再次取消……毫无疑问，我们的医院系统正承受着巨大的压力。”
-
-*发布：疯狂的韭菜*
-
-新闻参考链接：
-
-[South Australians warned daily COVID-19 cases could surge to 8000](https://www.9news.com.au/national/coronavirus-south-australia-update-sa-covid-19-cases-expected-to-reach-over-8000/f44016e1-9f34-4490-91dc-e96a455494f2)
-
-本文仅代表作者本人观点
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
 
  
 

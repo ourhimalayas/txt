@@ -2,23 +2,20 @@
 ---
 
 
-## 中共试图利用俄乌战争推进非洲“债务陷阱
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2212094/)
+## 新中国联邦乌克兰前线救援人数汇报
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212096/)
 
-采编撰稿：文明(添草灭共)
+作者：香草山教育部 Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年3月5日至3月19日    新中国联邦发起的乌克兰到波兰的大巴车救援行动，总计救援人数为2009人，大部分是乌克兰的妇女、儿童以及中国同胞。期间总计发车次数为 39次。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-252.jpg)
+此外，新中国联邦在波兰边境梅迪卡难民营地所组织的救援接待行动，帐篷接待难民人数统计数据：自2022年3月9日至3月20日，共计接待难民人数约7177人，在20日当日接待约120 人。
 
-据【布莱特巴特】新闻网3月21日报道，中共国外交部长王毅日前与阿尔及利亚、坦桑尼亚和赞比亚外长会面时表示，俄乌局势动荡让中共更加重视对非洲地区的帮助，将在 “一带一路 “计划中投入更多资金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-![此图像的alt属性为空；文件名为Picture1-35.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-35.jpg)图片来源：breitbart
-
-报道称，中共利用这项全球基础设施投资计划，向贫穷国家提供掠夺性贷款。当这些国家不能及时偿还贷款时，中共就会攫取所在国的道路、港口和铁路控制权，从而提高地缘政治影响力。除此之外，中共还违反增加就业的承诺，往往在“一带一路”项目开启后引入其控制的大量廉价劳工，导致当地民众就业情况恶化。
-
-新中国联邦已经揭露出中共就是俄乌战争的幕后操控者，中共即将面临全世界的声讨和追责。如此境况之下，中共还妄图欺骗和绑架非洲国家为其站台只是枉费心机。
-
-新闻链接：[https://www.breitbart.com/africa/2022/03/21/china-uses-ukraine-war-to-promote-belt-and-road-in-africa/](https://www.breitbart.com/africa/2022/03/21/china-uses-ukraine-war-to-promote-belt-and-road-in-africa/)
-
-编辑/上传：文所未闻
-
+总编/编辑：Zion文恩
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

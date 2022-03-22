@@ -2,32 +2,31 @@
 ---
 
 
-## 海外假民运 欺民贼危害极大 各国政府已展开行动应对
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211859/)
+## 【秘翻时评】俄乌战影响小麦出口 印尼国民泡面断货
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2211928/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+By:**[秘翻时评](https://gettr.com/post/p11ah0q051b)**
 
+**[2022‑03‑22](https://gettr.com/post/p11ah0q051b)**
 
+**晚間新聞：**
 
-墙内很多被中共迫害到难以生存的人士，逃到海外后，不仅被共产党以猎狐的名义抓捕、威胁、劝回，同时会受到海外欺民贼骗财骗色。这些假民运分子都是打着反共的旗号，实际上为中共工作或勾结，现在各国政府已经开始意识到他们的危害，已展开相应的开法律行动。海外同胞必须要有认知，也要意识到共产党的危害。
+1.俄乌战影响小麦出口 印尼国民泡面断货
+2.白俄工人切断铁路阻俄军往乌运输 中共国微博大V造谣污蔑
+3.台湾物流仓库再传火灾
 
-视频来源: 20220320—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田
+**時評內容：**
 
-**更多资讯，更多关注**
-**[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+欧洲多国积极为乌克兰人提供就业机会
+疫苗灾难到来，平常心看待中共国坠机事件
+数字货币场外交易创新高，第3代数字货币将淘汰币安
 
+Gettr鏈接：[**https://gettr.com/post/p11ah0q051b**](https://gettr.com/post/p11ah0q051b)
 
+发布 : 恩典
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
