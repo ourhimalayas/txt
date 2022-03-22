@@ -2,11 +2,11 @@
 ---
 
 
-## 上帝审判的时刻到来了（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212689/)
+## 这个直播是人类到现在几乎没有一家的
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212693/)
 
-#### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1020-1030-4.jpeg)
+#### PPT制作: 小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-20220320-830-840.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

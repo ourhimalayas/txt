@@ -2,27 +2,26 @@
 ---
 
 
-## 俄军袭击基辅平民设施造成人员伤亡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212354/)
+## 乌克兰总统：为保同胞努力促成与俄方的谈判
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212384/)
 
-作者：东京方舟农场 Miyali7768(文玉)
+作者：日本东京方舟农场 Miyali7768(文玉）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-116.jpg)
-附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。 救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
+据Newsmx 3月20消息，乌克兰总统沃洛季米尔·泽伦斯基，表明他再次与俄罗斯总统弗拉基米尔·普京进行谈判的意愿。他同时表示，一旦谈判再度破裂，将意味着两国灾难性的战争后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-79.jpg)
+泽伦斯基表示，乌克兰将不惜使用任何形式，把握任何机会，积极寻求与俄方进行谈判的可能。但如果这些尝试宣告失败，将意味着战争的升级。
 
-参考链接：[**BOMB BLITZ Shocking moment Russia blows up shopping centre with ballistic missile in latest brutal attack targeting civilians**](https://www.thesun.co.uk/news/worldnews/18017568/eight-civilians-killed-russian-attack-on-shopping-centre/)
+随着俄乌战争进入第四周，乌克兰的伤亡人数日益增加。结束无辜百姓的死伤，已迫在眉睫。
+
+泽伦斯基认为，只要有1%的机会阻止这场战争，就应该抓住这个机会。尽管乌克兰军队已在多个战场成功地反击了来自俄罗斯的入侵者，但黎民百姓伤亡惨重。泽伦斯基表示，乌克兰人民已经展示了他们的尊严和力量，他们有能力给予侵略者强有力的还击。但不幸的是，尊严和力量不能有效阻止战争每天夺去无辜的生命。
+
+参考链接：[Zelenskyy: If Next Negotiations Fail, It’s ‘World War’ III](//www.newsmax.com/newsfront/volodymyrzelenskyy-worldwariii-peacetalks/2022/03/20/id/1062045/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编: Zion文恩
-编辑: 宁文静
-审核：Zion文恩
+总编/编辑/审核：Zion文恩
 校正/发稿：Fei797
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

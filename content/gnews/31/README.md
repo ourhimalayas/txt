@@ -2,26 +2,21 @@
 ---
 
 
-## 乌克兰总统：为保同胞努力促成与俄方的谈判
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212384/)
+## 秘翻在线: “恒大系”突然集体停牌
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2212386/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据Newsmx 3月20消息，乌克兰总统沃洛季米尔·泽伦斯基，表明他再次与俄罗斯总统弗拉基米尔·普京进行谈判的意愿。他同时表示，一旦谈判再度破裂，将意味着两国灾难性的战争后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-79.jpg)
-泽伦斯基表示，乌克兰将不惜使用任何形式，把握任何机会，积极寻求与俄方进行谈判的可能。但如果这些尝试宣告失败，将意味着战争的升级。
+撰稿：西枫westca
 
-随着俄乌战争进入第四周，乌克兰的伤亡人数日益增加。结束无辜百姓的死伤，已迫在眉睫。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-18.jpg)图片来源：网络照片
+据新浪3月22日报道，恒大系公司在港交所集体停牌，包括中国恒大、恒大物业和恒大汽车。停牌主要原因为无法按时发布2021年财务报告及恒大物业有134亿人民币存款。
 
-泽伦斯基认为，只要有1%的机会阻止这场战争，就应该抓住这个机会。尽管乌克兰军队已在多个战场成功地反击了来自俄罗斯的入侵者，但黎民百姓伤亡惨重。泽伦斯基表示，乌克兰人民已经展示了他们的尊严和力量，他们有能力给予侵略者强有力的还击。但不幸的是，尊严和力量不能有效阻止战争每天夺去无辜的生命。
+中国恒大称，考虑到本集团目前面临的经营上和财务上的挑战，尤其是债务压力，本公司风险化解委员正在积极研究解决方案并与债权人进行沟通，依法公平处理债务问题。目前，恒大物业134亿人民币的存款，为第三方提供的质押保证金，已被银行强制执行。此存款金额超过恒大物业的净资产。
 
-参考链接：[Zelenskyy: If Next Negotiations Fail, It’s ‘World War’ III](//www.newsmax.com/newsfront/volodymyrzelenskyy-worldwariii-peacetalks/2022/03/20/id/1062045/)
+对于背负万亿债务的恒大，外界关注的焦点仍在于化债方案。22日晚召开的投资者会议，恒大总裁许家印并未出席。恒大自1月份表示要在6个月内提出重组建议，但根据目前的情况，这个重组过程将会非常艰难。恒大一定会像安邦、淘宝、京东等一系列企业一样绞进中共这个巨大的绞肉机里，不复存在。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+**新闻来源：**[恒大重磅！紧急停牌，又推迟发财报，原因披露…\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-22/doc-imcwipih9852541.shtml)
 
-总编/编辑/审核：Zion文恩
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

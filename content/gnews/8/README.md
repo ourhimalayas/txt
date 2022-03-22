@@ -2,11 +2,11 @@
 ---
 
 
-## 这个直播是人类到现在几乎没有一家的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212693/)
+## 什么时候结束？什么方式结束？由美国说了算。
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212697/)
 
 #### PPT制作: 小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-20220320-830-840.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句2--scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 10:17 PM (UTC)`
+
+3/22/2022 Miles Guo’s GETTR: The European countries are buying a lot of grain spots, but gold is being sold at discounts. What does that mean? Akamai's article about the Himalaya Coin had a huge impact on Wall Street and the entire financial world yesterday. The Russian-Ukrainian war will surely end up with the entire Chinese people paying the price for Xi Jinping and Putin.<br/><br/>3/22/2022 文贵盖特：欧洲国家在大量购买粮食现货，黄金却在打折卖，说明了什么？昨天 Akamai关于喜币的文章在华尔街和整个金融界引起轰动；俄乌战争到最后一定是全中国人为习太阳和普大帝买单<br/>
+![img](https://media.gettr.com/group18/getter/2022/03/22/22/c75fea51-1d8f-7f51-e5f7-741433c7d27b/out.jpg)
+
+---
+
+`@miles 3/22/2022 10:11 PM (UTC)`
+
+3/20/2022 Miles Guo: I will get back all the wealth that the CCP stole from the Chinese Lao Baixing and hid in Switzerland! Luxembourg, Seychelles, Malta and other countries want to help the CCP launder money. Accomplices of the CCP like Weijian Shan, Bruno Wu, Jack Ma, and Jho Low will spend the rest of their lives in prison.<br/><br/><br/>3/20/2022 文贵直播：文贵一定能把中共从老百姓盗取并藏在瑞士的财富一分不少地拿回去！卢森堡、塞舌尔、马耳他等国想帮中共洗钱；单伟建、吴征、马云、刘特佐等共匪帮凶将在监狱度过余生<br/><br/><br/>
+![img](https://media.gettr.com/group14/getter/2022/03/22/22/1579e6e4-7568-b2f0-1059-a047e07a9b61/out.jpg)
+
+---
+
 `@miles 3/22/2022 10:03 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-22
@@ -139,20 +153,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 【Ukraine Rescue】03/19/2022 Early in the Morning, Nicole finds out an international media reporting in front of the NFSC tent of our relief efforts. Inside the tent, hot breakfast are served for the refugees. <br/><br/>【乌克兰救援】03/19/2022 清晨，妮可看到一家国际媒体在新中国联邦的大帐篷前播报难民救援情况。帐篷里早已为难民准备好热腾腾的早餐。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group11/getter/2022/03/22/12/e6124401-46b1-c3f4-5fb6-13c3d0bfc12e/out.jpg)
-
----
-
-`@miles 3/22/2022 11:54 AM (UTC)`
-
-【Ukraine Rescue】03/18/22 Nicole introduces the NFSC Ukraine Rescue Operation to the Director of the Japanese 'Sankei Shimbun' in Paris (Mina Mitsubishi-Ikuma): Our volunteers from all over the world have successfully rescued 1838 refugees and Chinese from Ukraine. Although the CCP has been sabotaging our rescue efforts, we have proven through our actions that we are not only different from the CCP, but are determined to take it down.<br/><br/>【乌克兰救援】03/18/22 妮可向日本‘产经新闻’驻法国巴黎分社的社长 (Mina Mitsubishi-Ikuma)介绍新中国联邦乌克兰救援行动：我们来自世界各地的志愿者已经成功从乌克兰救出了1838名难民及华人。尽管中共一直在破坏我们的救援工作，但我们用实际行动证明了我们不仅不同于中共，而且立志于铲除中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group14/getter/2022/03/22/11/b6dbed12-e23d-277c-dd20-714356198ae6/out.jpg)
-
----
-
-`@miles 3/22/2022 11:20 AM (UTC)`
-
-【Ukraine Rescue】03/19/2022 A reporter from the Central News Agency of Taiwan interviewed volunteer Nicole. Nicole talked about the rescue work of the NFSC and the ROL Foundation and their mission to take down the CCP. The reporter said the NFSC and the ROL Foundation made a positive impact in rescuing the Ukraine people and she would support them in fighting for a free, democratic, lawful society in China.<br/><br/>【乌克兰救援】03/19/2022 台湾中央社记者采访在乌克兰救援的Nicole义工。Nicole介绍了新中国联邦和法治基金的救援工作，表明了推翻中共的立场。中央社记者表示新中国联邦和法治基金在乌克兰人道救援中发挥了正面作用，她支持新中国联邦和法治基金为中国人获得自由、民主、法治而做的工作。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group14/getter/2022/03/22/11/1016c7fe-eac8-8fea-3b4f-97c4fd368a76/out.jpg)
 
 ---
 
