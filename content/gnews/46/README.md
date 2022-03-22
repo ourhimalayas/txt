@@ -2,26 +2,27 @@
 ---
 
 
-## 比特币去中心化骗局
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208017/)
+## 有声｜东航酿本世纪中共国最大空难 近日事故频发
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208500/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有。其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化背道而驰，其根本是由极少数人大量持有且高度中心化。由于比特币热搞饥饿营销，市面上传说2100万是比特币的总数量，但这个数量没有任何机构来监管。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-73.jpg)
-事实上，货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本，比特币也不可能运维成本如此高昂的支付系统。没有流通没有支付，这些原因导致了比特币只能沦为洗钱的工具。
+**By:秘翻新闻**
 
-参考链接：[2022年3月20日 文贵大直播](https://gettr.com/post/p10y5j870c5)
+**2022-03-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/888888r.jpg)图片源自:网络
+[新唐人](https://www.ntdtv.com/gb/2022/03/21/a103379936.html)3月22日报道，中共国东方航空一架波音737客机21日在广西坠毁，机上132人无一生还，酿成本世纪中共国最大空难。据不完全统计，今年不到3个月，中共国已发生6起民航事故。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+有媒体披露，东航负债数百亿元人民币，为压降运营成本，严控维修费用，这可能导致了这起坠机事故的发生。中共国业内人士指，民航业亏损严重，人心不稳，是事故频发的主因。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+近年来中共国经济不断下行，再加上中共为防疫大幅削减国际航班，国内航班也因为各地封城政策经常中断，因此中共国航空公司亏损严重。
 
+疫情爆发后，民航业已萧条两年，惨不忍睹，员工收入锐减，飞行员都面临各种经济压力，整个行业人心不稳，人员流动剧增，可想而知，这对特别要求安全的航空业意味着什么。
 
+（秘翻新闻 二丫编辑报道）
 
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

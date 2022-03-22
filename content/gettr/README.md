@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 1:01 PM (UTC)`
+
+2022.03.22 早《新中国联邦新闻访谈》TikTok算法把用户导向乌克兰战争虚假新闻；新中国联邦乌克兰国际救援行动不会停止；喜币将成为数字货币之王
+![img](https://media.gettr.com/group44/origin/2022/02/28/14/58b02062-d20a-7a34-627d-33645dc3ad05/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/22/2022 12:58 PM (UTC)`
+
+【Ukraine Rescue】03/19/2022 Nicole interviews two Polish scouts from ZHR (Scouting Association of the Republic of Poland) who had taken time from school to help the refugees at Medyka. Nicole introduces that the NFSC members also love helping people. <br/><br/>【乌克兰救援】03/19/2022 妮可采访了两名来自波兰共和国童军协会的童子军，他们抽出学习时间到梅迪卡参与救助难民。妮可向他们介绍道，我们新中国联邦人也同样乐于助人。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group23/getter/2022/03/22/12/475dcd62-d13d-0eeb-25dd-b9283085a600/out.jpg)
+
+---
+
 `@miles 3/22/2022 12:54 PM (UTC)`
 
 【Ukraine Rescue】03/21/2022 The number of refugees has decreased and we hope the war will end soon. Each group in the NFSC & ROLF's rescue team performs its own duties, responsible for on-site material delivery, filming equipment and live broadcast. Volunteers and security guards from the NFSC & ROLF provide services and protection to refugees in tents.<br/><br/>【乌克兰救援】2022/03/21 波乌边境Medyka难民数量有所减少，希望战争早日结束！前线救援战各个团队各司其职，负责现场物资运送和调配以及拍摄设备和直播。新中国联邦和法治基金的义工和保安为帐篷内的难民提供服务和保护。<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -140,20 +154,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 3月21日：今天．明天．后天．都是太好日子。【美国司法部对伪类的法律行动。 】https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0 https://gettr.com/post/p11798y55e5
 ![img](https://media.gettr.com/group31/getter/2022/03/22/01/69a2e995-bb9b-7573-2773-8492a83f3aa1/out.jpg)
-
----
-
-`@miles 3/22/2022 12:44 AM (UTC)`
-
-3/21/2022 The important thing is that we accumulate the power of action every day, and the Rule of Law Foundation and the New Federal State of China have more and more influence.<br/>Medyka is also the media center. We don't underestimate every detail and must convey the firm standpoint that we are the New Chinese who are taking down the evil Chinese Communist Party through the banners and stickers.<br/><br/>2022年3月21日 重要的是我们每一天积累行动的力量，法治基金和新中国联邦影响力越来越大；梅迪卡也是媒体集中地，不要小看每一个细节，通过标识传递我们是消灭邪恶中国共产党的新中国人的坚定立场
-![img](https://media.gettr.com/group42/origin/2022/03/22/00/236b2ce5-3377-2b6b-76c4-931bea20fa2d/out.jpg)
-
----
-
-`@miles 3/22/2022 12:34 AM (UTC)`
-
-2022.03.21 晚 《新中国联邦新闻》新中国联邦必须坚持唯真不破;  中共攻打台湾几乎不可能引发第三次世界大战
-![img](https://media.gettr.com/group32/origin/2022/03/22/00/92ca09d8-8c02-a80a-5c0a-cbca35e65b88/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

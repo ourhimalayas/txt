@@ -2,24 +2,16 @@
 ---
 
 
-## 秘翻在线：拜登总统称有明显迹象表明普京要使用生化武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2209149/)
+## 制裁中共｜美祭出签证限制以捍卫人权 决心向中共究责
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2209229/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-2.png)图片来源：https://s.japanese.joins.com/Jarticle/289063
-美国总统乔拜登表示，俄罗斯声称“乌克兰拥有生化武器”是虚伪的主张。他声称，俄罗斯的这些说法表明普京正在考虑使用生化武器。
+**撰文/ 港台前线｜发布日期/ 22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-12.png)**更多資讯请关注官方盖特｜please follow our Gettr （**[**https://gettr.com/post/pl6w8he0b9**](https://gettr.com/post/pl6w8he0b9)**)**
+美国国务院21日发布新闻稿，称正在对部分中共官员处以签证限制（国务院未公布遭制裁官员人数或名单细节），受制裁的中共官员系因为参与了对少数民族、宗教团体及精神信仰人士的镇压（迫害）行为。美国国务院强调，将致力于捍卫世界各地人权，并继续使用外交、经济措施来推动究责行动，与国际社会合作厘清中共于世界各地侵犯人权应负之责任。
 
-据路透社6月21日报道，拜登总统是在当天举行的商业圆桌会议上发表上述言论的，因为 “总统普京身处困境”。商业圆桌会议是一个代表 200 家美国最大公司的组织。
+美国务卿布林肯于声明中呼吁中共政府停止所有迫害行为，**结束在新疆持续发生的种族灭绝和反人类罪行为、西藏的镇压政策、对香港基本自由的迫害以及在其他地方侵犯人权作为**，包括侵犯宗教自由的行为。
 
-在活动中，拜登说，“普京总统被逼到墙角，现在正在谈论一项新的伪旗行动，例如声称我们美国在欧洲拥有生物和化学武器。这不是事实”。
-
-伪旗行动是指通过让对方看起来像是先发动攻击，从而为攻击对方创造借口的行为。
-
-“他们还说乌克兰拥有生化武器，这清楚地表明他（普京总统）正在考虑同时使用这两种武器”，拜登说。拜登总统当天没有为他的言论提供具体证据。
-
-信息来源：[https://s.japanese.joins.com/Jarticle/289063](https://s.japanese.joins.com/Jarticle/289063)
-
-责编：Eric Kim
+来源｜[U.S. DEPARTMENT of STATE](https://www.state.gov/promoting-accountability-for-transnational-repression-committed-by-peoples-republic-of-china-prc-officials/)
 
  
 

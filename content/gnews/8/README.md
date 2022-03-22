@@ -2,30 +2,33 @@
 ---
 
 
-## 러시아와 연합하여 미국을 멸망시키는 것은 중국공산당의 변함없는 시도이다.
-` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2210125/)
+## 为吸引海外游客回流澳大利亚联邦将公布预算六千万澳元
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2210289/)
 
-韩国正道农场
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译：祁明
+翻译：li yan li 
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-90.jpg)
+据NEC新闻热线报道 总理斯科特-莫里森将在他的旅游营销背景下宣布2022年联邦预算。旨在吸引海外游客流回到国内的额外资金。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2517-2.png)
+即将公布的联邦预算将6000万澳元，用于尝试快速服务国际游客返回受Covid-19边境关闭影响的旅游目的地。宣布为旅游机构提供4500万澳元的资金，以帮助其扩大营销活动。另外1500万澳元将用于热带北昆士兰的旅游机构，以促进大堡礁的发展。
 
-校对：星恋 gold hand
+受益的地方将包括黄金海岸、新南威尔士州北海岸、阳光海岸、大洋路、新南威尔士州猎人区、乌鲁鲁、金伯利和塔斯马尼亚部分地区。
 
-上传：祁明
+旅游部长丹-特汉说，这项活动只是重新启动澳大利亚旅游业的长期战略的开始，今年下半年将对国际旅游营销活动进行进一步投资。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2528.png)
+数据显示，自澳大利亚于2月1日向接种疫苗的游客重新开放国际边界以来，海外游客人数已从第一周的17000人，缓慢增加到上周的23700人。
 
-3월 18일, 궈원구이씨는 켓터 (Gettr) 생방송 중 중국공산당 상무위원 한정(韩正)은 러시아의 우크라이나 침략을 지지하는 것은 수년간 모의한 계획이고 미제국주의 소멸은 중국공산당 18대 이래 일관된 정책이라며 말로만 절대 고칠 수 없다고 밀우에게 밝혔다.
+新闻链接：[International travel Australia: PM’s plan to fast-track international arrivals | news.com.au — Australia’s leading news site](https://www.news.com.au/travel/federal-budget-2022-plan-to-bring-back-international-visitors/news-story/74a805b502a7585c72fcde6be4ecab9d)
 
-우크라이나 침공 이후 중공은 경제 군사적으로 러시아에 대한 지원을 아끼지 않고 있다. 중국공산당은 사이버군을 통해 침략전쟁을 미화하고 우크라이나인들의 고통을 조롱하는 수많은 동영상을 유포했다. 중국공산당은 각종 국제기구의 결의나 판결에서 러시아를 비난하거나 제재한 적이 없으며 오히려 러시아가 SWIFT제재를 회피할 수 있도록 디지털 위안화 거래 시스템을 개설했다.
+发布： 星谕
 
-이미 2017년 10월 궈원구이씨는 “미국을 혼란시키고, 약하게 하고, 죽이기”라는 중공 멸미 “3F계획”을 미국에 경고해 미국 등 서양국가에 어둠이 다가오고 있음을 상기시켰다. 지난 5년 동안 조기 경고의 내용이 점차 현실화되면서 서방 국가들이 중공의 정보를 적시에 통제하는 폭로혁명을 더욱 존중하고 신뢰하게 되었다.
-
-궈원구이씨는 3월 20일 생방송에서 본인이 최근 집중적으로 회의에 참석해 여러 나라와 멸공정책을 논의하고 있다고 밝혔다.
-
-사진=(중국XinHua 뉴스)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

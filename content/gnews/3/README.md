@@ -2,12 +2,12 @@
 ---
 
 
-## 普金最可能被内部干掉，普习之间是彼此最后的朋友（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210218/)
+## Nicole在乌克兰前线最新连线（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2210334/)
 
 #### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1004-1006-2.jpeg)
-*发布：陶子*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-50_9-00一2.png)
+*发布：*tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
