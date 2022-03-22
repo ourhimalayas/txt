@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥对战友们的鞭策，更证明了：我们需要新中国联邦（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208303/)
+## 七哥谈莫尔德维乔夫（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208562/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-910-920-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-928-935-4.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

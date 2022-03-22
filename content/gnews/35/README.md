@@ -2,39 +2,40 @@
 ---
 
 
-## 拜登总统出席北约峰会并访问波兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207599/)
+## 俄罗斯可能将对美国发动网络攻击
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2207918/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By：喜国公民
 
-整理/编辑：文泓
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-146.png)图片来源：Wpmi & 雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2477.png)图片来自网络
+由于俄罗斯入侵乌克兰，西方国家对俄罗斯发起了历史上最严厉的制裁。面对西方的制裁，俄罗斯总统普京并没有让步。事实上，他正在变得更加疯狂，扬言要让西方世界承受代价。
 
+美国总统拜登周一警告说，俄罗斯将对美国进行网络攻击。他认为俄罗斯的网络能力的规模是相当大的，最有可能使用的工具之一就是网络攻击。拜登敦促美国公司，立即加强网络防御。
 
-当地时间20日，白宫官网发表声明称，美国总统拜登将于3月25日前往波兰华沙。
+美国负责网络和新兴技术的国家安全副顾问安妮·纽伯格警告说，俄罗斯政府正在考虑对美国关键基础设施进行潜在网络攻击。
 
-拜登将于下周访问欧洲，参加将于3月24日在比利时布鲁塞尔举行的北约峰会，白宫表示，拜登将在布鲁塞尔与北约盟国、七国集团领导人和欧盟领导人会面，讨论国际社会为支持乌克兰所做的努力后，他将前往波兰华沙，与安杰伊·杜达总统举行双边会晤。
+然而，美国战略与国际研究中心技术主任詹姆斯·刘易斯认为，俄罗斯发起的网络攻击更可能是针对脆弱的第三方和关键的供应链。
 
-白宫发言人珍·普萨基周日晚间表示，拜登总统将于周五前往波兰讨论国际社会对俄罗斯入侵乌克兰引发的“人道主义和人权危机”的反应。
+美国联邦机构已召集了多家美国公司，分享关于俄罗斯潜在网络攻击的新情报，并给企业提供了加强网络安全的工具。
 
-知情人士日前表示，美国和欧洲官员近期一直在讨论可能在北约峰会中敲定的新措施。这些措施可能包括对俄罗斯寡头的新一轮制裁、进一步限制对俄罗斯能源产品的进口等。美国和欧洲官员还讨论了可以通过哪些措施来为乌克兰提供更多支持，包括提供新的军事援助或财政援助。
+目前，美国还没得到情报证明具体的网络攻击，但正在积极地做好一旦遭受攻击的准备。美国政府将使用各种工具来阻止针对关键基础设施的网络攻击。
 
-波兰边防卫队周五表示，自2月24日俄罗斯入侵开始以来，已有超过200万难民从乌克兰进入波兰。
+历史上，俄罗斯在与其它国家的冲突中曾经展示过它的网络攻击能力。早在2008年，俄罗斯入侵格鲁吉亚和2014年入侵克里米亚时，乌克兰就成为俄罗斯网络行动的受害者。在2015年和2016年，由俄罗斯发动的网络袭击使乌克兰的电力中断了几个小时。
 
-参考链接：
+俄罗斯有能力使用网络战来破坏对手的通信、组织和供应，这使得许多人预计它将在这场俄乌战争中部署这种策略。
 
-1、[美国总统拜登将于3月25日前往波兰](https://news.sina.com.cn/w/2022-03-21/doc-imcwipih9661836.shtml)
+消息来源：[Biden warns Russian cyberattacks ‘coming’](https://www.politico.com/news/2022/03/21/biden-russia-cyberattacks-00018942)
 
-2、[Joe Biden to visit Poland on Friday to discuss Ukraine crisis | Joe Biden | The Guardian](https://www.theguardian.com/us-news/2022/mar/21/joe-biden-visit-poland-ukraine-crisis)
+[Where is Russia’s cyberwar? Researchers decipher its strategy](https://www.nature.com/articles/d41586-022-00753-9)
 
-发布：tianzhihuan
+*审核：喜国公民*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
 
  
 

@@ -2,25 +2,32 @@
 ---
 
 
-## 新中国联邦必须坚持唯真不破
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208006/)
+## 亚洲数字银行推出A-Bank超级钱包
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208230/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月20日，郭文贵先生在大直播中指出，海外欺民贼一定会选择与中国共产党合作，而新中国联邦也必须杜绝所有官僚形式主义，必须坚持为真不破。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-郭先生说，美国政府部门曾经调查某欺民贼，并让他选择变成亿万富翁与中共合作，或者对中共造成伤害失去一切被关进监狱，而该民运分子毫不犹豫的选择了前者。同样是当年反萨达姆的伊拉克人，在利益和正义面前，却做出了与欺民贼截然相反的选择。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-68.jpg)
-时间是生命中最宝贵的财富，郭先生表示，不希望有任何的官僚形式主义存在。在充分肯定了法治基金前线救援成绩的同时，他也指出了现实中存在的分离主义、农场主义和个人主义等问题，并强调说，新中国联邦必须要坚持唯真不破。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/A_BANK.jpeg)图片来源：www.bernama.com
+根据The Paypers3月21日报道，亚洲数字银行（Asia Digital Bank）宣布推出其A-Bank超级钱包，这是一款将传统金融服务与数字服务相结合的电子钱包。
 
-参考链接：[如果给你一个选择，当亿万富翁但要和共产党合作，还是继续灭共但会失掉一切或进监狱？](https://www.gettr.com/post/p110ty72225)
+A-Bank超级钱包利用区块链点对点交易的概念、分布式账本和存储系统、加密算法和共识协议的概念，为跨境贸易和服务提供高效的支付解决方案和快速转账。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+该超级钱包声称是第一个提供法币和数字货币之间交换功能的电子钱包。其用户能够完全控制他们在电子钱包上的所有资产。A-Bank超级钱包的核心功能允许在岸和离岸存款、取款，以及实物货币和数字货币之间的兑换。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+在其第一阶段的运作中，A-Bank超级钱包支持五种货币，其中包括马币、新币、美元、人民币和港币及稳定币，如USDT和USDC。更多的法定货币和数字货币将在第二阶段加入，为用户提供更多选择。
+
+据亚洲数字银行称，用户可以灵活选择通过银行转账、电汇、Visa、万事达、JCB、银联国际、PayPal、支付宝全球、微信全球等方式完成离线或在线交易，如充值和提款。
+
+新闻来源：[Asia Digital Bank launches its A-Bank Super Wallet](https://thepaypers.com/online-mobile-banking/asia-digital-bank-launches-its-a-bank-super-wallet--1255261)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥对战友们的鞭策，更证明了：我们需要新中国联邦（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208463/)
+## 与苏联的朱可夫相比，中共的英雄无好果（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208609/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-910-920-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-930-940-1_1.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

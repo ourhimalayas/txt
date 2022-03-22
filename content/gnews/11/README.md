@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥对救援前线的战友的再次忠告（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208292/)
+## 七哥谈莫尔德维乔夫（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2208550/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-900-9101_5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-928-935-2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

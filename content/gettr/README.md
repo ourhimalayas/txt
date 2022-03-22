@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 5:14 AM (UTC)`
+
+3/20/2022 Miles Guo: Elon Musk’s Starlink has changed the future of humanity! This year will be the darkest year and also the most promising year of mankind! Putin and Xi will not be around next year. The whole world is investigating the Chinese colluding with the CCP. The US sanctions imposed on the CCP’s media outlets, state-owned enterprises, and communication companies will go beyond your imagination.<br/><br/>3/20/2022 文贵直播：马斯克的星链改变了人类的未来！今年是人类最黑暗的一年，也最有希望的一年！明年将看不到普京和习；全世界正在清查跟中共勾结的华人；美国对中共党媒、国企和通信企业的制裁将超出你的想象！<br/>
+![img](https://media.gettr.com/group4/getter/2022/03/22/05/c9207d1a-a915-53da-8e3d-4e4bd94ee8a1/out.jpg)
+
+---
+
 `@miles 3/22/2022 4:26 AM (UTC)`
 
 Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA, who is volunteering at the refugee camp in Medyka, the border city of Poland to help Ukraine people. Mr. Chicken dresses himself up like a chicken and having some kids smile. He felt very happy that he could do a little something to make some kids smile.<br/>新中国联邦，法治基金的记者精糧采访了来自美国肯塔基的小鸡先生，小鸡先生在波兰边境的梅迪卡的难民营做义工。他把自己打扮成小鸡，让一些孩子们很开心。他觉得自己做了一点小事让一些孩子微笑，自己也非常地开心。
@@ -146,13 +153,6 @@ Aaaaaaaaaaaa
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-21
 ![img](https://media.gettr.com/group43/origin/2022/03/21/22/c050acd3-3373-3438-b499-dbaaa91abdfa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/21/2022 10:01 PM (UTC)`
-
-3/21/2022 Miles Guo’s GETTR: The whole world is waiting for the next decisive event - when will the CCP openly offer military support to Russia? The CCP is bound to be taken down, with the only question being whether it will be eliminated by itself or by the whole world. Here are the two key issues: the collapse of the CCP’s real estate and the crash of the Hong Kong economy. There might be reconciliations in the Russia-Ukraine war, but we will keep conducting our Ukraine rescue operation.<br/><br/>3/21/2022 文贵盖特：世界在等着下一个靴子降落 - 中共啥时候公开军援俄罗斯？中共必灭，只是被其内部消灭还是被全世界消灭的问题；最关键的两件事是中共房地产暴雷和香港经济崩塌；俄乌战争会缓和，但我们会继续救援乌克兰！
-![img](https://media.gettr.com/group33/getter/2022/03/21/22/797428cf-a105-c530-8da6-161f45a1707d/out.jpg)
 
 ---
 
