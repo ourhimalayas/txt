@@ -2,43 +2,22 @@
 ---
 
 
-## 俄罗斯称其在乌克兰首次使用金扎尔高超音速导弹
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2207430/)
+## 粮食危机让中共惶惶不安
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2207527/)
 
-作者：温哥华扬帆农场-動物農莊裡的小螞蟻Michael.Tonny#1290
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-俄罗斯国营媒体《今日俄罗斯》报道，俄罗斯国防部发言人伊戈尔·科纳申科在对媒体发表评论时说，本周五，入侵乌克兰的俄罗斯军队首次使用最先进的“金扎尔”（Kinzhal）导弹袭击了乌克兰西部伊万诺-弗兰科夫斯克市德利亚廷村附近的一个大型地下军火库。
+**作者：天天打包包**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/下载.jpeg)
+最近，在中共统治体系中，分管农业的副总理胡春华似乎有些着急：提出要用“过硬”的措施增加大豆的产量。而在2022年初，中共发布的“一号文件”也提到了要尽力保证粮食产量。再往前看，习在2018年前往北大荒就提出“粮食要靠自己”。都知道“报喜不报忧”是中共执政几十年的基本操作，所以当一件不好的事被中共反复强调、提及，只能说明这件事已经很严重了，说明粮食危机在中共随时都可能爆发！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-21-210918.png)
+粮食问题对中国的影响之巨大，正是共产党着急的原因。因为中国人对饥饿的恐惧，几乎是深入骨髓的，在古代没有现代先进的农业科技，所以单位面积能够生产出的粮食数量从秦始皇到明朝几乎没有太大变化过，土地能够养活的人口也是固定的。每当有大的天灾或者战争到来时，粮食一旦减产，百姓陷入饥饿时，就会激发严重的社会动乱，进而引发战争，从陈胜吴广到李自成都是如此。这一轮回到了清朝才被打破，清朝大规模推广种植南美洲的高产作物，土豆，玉米等，让粮食产量翻了几番，人口从3000万到达4亿，清朝也没有因为缺粮爆发大规模的动乱。
 
-俄罗斯国防部的推文称：“高精度导弹武器袭击摧毁了乌克兰武装部队的一个武器库，我们可以看到用武器和弹药击中地下机库的确切情况。”
+只要中国百姓的有粮可吃，就不会有动乱发生，就能“长治久安”，这就是共产党的天真想法。但就是这天真的幻想也要被打破了。2019年底到今，中共国的小麦价格从每吨2300涨到3200，大豆从3500涨到5921。粮食价格疯涨的原因，有疫情导致的通货膨胀、劳动人口减少、物流成本增高等等，客观来说，这是全球都面临的问题。可是，中国面对危机却是其他国家没有的，因为大量的粮食依赖国外进口。以大豆为例，中国每年的大豆消费量，大约在1亿吨以上，但是，完全不能自给自足，并且缺口巨大，产需缺口高达9,000多万吨。根据中共的官方数据，2020年，中国大豆进口量就超过了1亿吨。在回忆一下郭先生去年8月20日的直播：中国每年必须进口3-5亿吨粮食才能保证不饿肚子！可见中共粮食对外部的依赖程度之高，超出想象。而在疫情的影响下，假如各国收紧粮食出口的政策，这3-5亿吨粮食从哪里来呢？
 
-根据俄罗斯军方的说法，金扎尔，中文“匕首”， 可以达到10马赫（约每小时7,672英里）的速度，是一种空中发射的高超音速弹道导弹。导弹具有核能力，并且能够从米格31K战斗机上发射，减少发射后被探测的时间，金扎尔也有机动避开拦截的能力。
+俄乌之间激烈的战争，继续加重了全球粮食短缺的可能性。俄罗斯与乌克兰都是粮食生产与出口大国，按照美国农业部3月份发布的数据，世界主要的出口作物中，俄罗斯与乌克兰小麦出口占世界的26%，玉米占比16%，大麦占比30%。俄乌战争造成的粮食生产与出口降低几乎是确定的，再加上疫情造成的全球经济停滞，物流困境，世界粮食在未来的一两年出现短缺已经成定局，难怪中共政府如此强调“粮食安全”，实在是“手无余粮，人心惶惶”啊！
 
-分析认为，俄罗斯再次用高超音速导弹袭击距北约盟国罗马尼亚和匈牙利的边境只有几十公里的目标，存在误判的风险，此类事件有可能触发北约第5条的规定，如果一个或多个北约成员国成为武装袭击的目标，北约其他成员将认为这是对所有成员国的攻击，并将采取集体自卫行动。
+审核校对：Barry Jack
+上传排版：F
 
-新闻链接：[https://gnews.org/zh-hans/2198222/](https://gnews.org/zh-hans/2198222/)
-
-英文链接：[https://www.rt.com/russia/552284-kinzhal-hypersonic-missile-ukraine/](https://www.rt.com/russia/552284-kinzhal-hypersonic-missile-ukraine/)
-
-[https://americanmilitarynews.com/2022/03/videos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine/?utm\_source=breaking\_email&utm\_campaign=breaking\_mailchimp&utm\_medium=email&utm\_source=Master\_List&utm\_campaign=0563b8b5c0-EMAIL\_CAMPAIGN\_2022\_03\_19\_06\_51&utm\_medium=email&utm\_term=0\_9c4ef113e0-0563b8b5c0-62772342&mc\_cid=0563b8b5c0&mc\_eid=899bfadf04](https://americanmilitarynews.com/2022/03/videos-russia-says-it-used-hypersonic-missile-for-first-time-in-ukraine/?utm_source=breaking_email&amp;utm_campaign=breaking_mailchimp&amp;utm_medium=email&amp;utm_source=Master_List&amp;utm_campaign=0563b8b5c0-EMAIL_CAMPAIGN_2022_03_19_06_51&amp;utm_medium=email&amp;utm_term=0_9c4ef113e0-0563b8b5c0-62772342&amp;mc_cid=0563b8b5c0&amp;mc_eid=899bfadf04)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-52.jpg)
-
-编辑/校对/发稿：遍地开花
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

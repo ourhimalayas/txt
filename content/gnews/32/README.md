@@ -2,21 +2,10 @@
 ---
 
 
-## 视频|无惧随时有炮弹来袭，哈尔科夫消防员徒手救命
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2206899/)
+## 3/21/2022 文贵盖特：世界在等着下一个靴子降落 &#8211; 中共啥时候公开军援俄罗斯？中共必灭，只是被其内部消灭还是被全世界消灭的问题
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2206954/)
 
-制作：大直播短视频组- 隧道尽头的光
-文案：聪宁
-
-审核/编辑/发稿：谐趣园
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+秘密翻译组-北美组
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 2:05 AM (UTC)`
+
+3/20/2022 The Lady (who can speak Ukrainian) read the Ukrainian Stickers to a rescue volunteer: We, the New Federal State of China, Stand with Ukrainian People! <br/><br/>2022年3月20日 这位会说乌克兰语的女士向救援志愿者朗读乌语的横幅贴纸内容：我们新中国联邦人与乌克兰人民站在一起！
+![img](https://media.gettr.com/group24/origin/2022/03/22/02/f65589a0-db62-cda2-ad0d-fe932e5695e7/out.jpg)
+
+---
+
+`@miles 3/22/2022 1:53 AM (UTC)`
+
+3/21/2022 Frontline fellow fighters visited the largest local refugee evacuation center (15-min drive away from Medyka)<br/><br/>2022年3月21日 前线战友去梅迪卡附近当地最大的难民疏散中心考察（车程15分钟）
+![img](https://media.gettr.com/group31/origin/2022/03/22/01/7fd119ee-b291-22cf-514e-4a38767563af/out.jpg)
+
+---
+
 `@miles 3/22/2022 1:26 AM (UTC)`
 
 3/21/2022 Miles Guo’s GETTR: When it comes to the recent crash of the Boeing 737 in Communist China, please take it easy because aircraft accidents will be a norm after the COVID vaccine disaster begins. Last week, the over-the-counter trading of digital currencies was the busiest in the past 3 years. Changpeng Zhao has harmed numerous people who trade digital currencies at Binance only to swindle their money. The third generation of digital currency will obsolete Binance. Gold will not rise too much, nor will it be in circulation to save lives.<br/><br/>3/21/2022 文贵盖特：请大家用平常心看待最近中共国的坠机事件，疫苗灾难到来后这将是常态；上周数字货币场外交易达近3年最高；赵长鹏为了骗钱害了很多在币安搞数字货币的人；第3代数字货币将淘汰币安；黄金既会不大涨又无法流通救命<br/>
@@ -138,20 +152,6 @@ Children don't need war, children need their mothers and fathers .<br/> The suns
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月20日第16天当日救援统计：<br/>Medyka救援站接待：约120人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7177人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 16 - Date: March 20, 2022 :<br/><br/>Medyka Rescue Station Reception: about 120 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7177 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group6/getter/2022/03/21/16/297fc1a9-5879-131a-f4fc-964d759520e4/d5c60e22166c9859061d20f75df770ca.jpg)
-
----
-
-`@miles 3/21/2022 1:25 PM (UTC)`
-
-2022.03.21 早《新中国联邦新闻访谈》新中国联邦和法治基金的乌克兰救援行动持续进行中； 东航飞机坠落，133人下落不明； 中共惺惺作态向乌克兰提供1000万人民币援助； 俄乌战争下英国加紧与沙特的能源关系； 中港股市动荡看中共经济面临痛点
-![img](https://media.gettr.com/group39/origin/2022/03/21/13/d0ece49b-b193-392a-185a-65445fb52506/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/21/2022 12:32 PM (UTC)`
-
-2022.03.21 早 《新中国联邦新闻》新中国联邦乌克兰救援大巴工作暂告结束； 义工综合素质高 随时应对救援前线突发事件
-![img](https://media.gettr.com/group13/origin/2022/03/21/12/2a453dd1-5748-61e5-4504-c64622b870ee/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

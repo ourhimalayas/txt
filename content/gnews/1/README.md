@@ -2,12 +2,12 @@
 ---
 
 
-## 喜币未来的无国界无痕迹支付方法（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207558/)
+## Hpay无介无痕迹支付及前线的战友展示给全世界的新中国人形象（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2207740/)
 
 #### PPT制作: WinterGuo ；开智则立
 视频定位：BENJ1；WEI
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-20-11-30-02-四-scaled.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-30-11-40-三-1-scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
