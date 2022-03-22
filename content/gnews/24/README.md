@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|中共攻打台湾几乎不可能引发第三次世界大战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211614/)
+## 意大利主教抨击普京“亵渎神明”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211727/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山教育部 Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月20日的大直播中，郭文贵先生表示，习近平攻打台湾而引发第三次世界大战的可能性极小，而美国会毫无悬念的成为最后赢家。
+3月20日，在意大利首都罗马，意大利大主教福特表示，普京为他对乌克兰的侵略战争进行的宗教辩护是一种“亵渎神明的行为”。
 
-郭先生认为，在中共攻打台湾的时候，其他的邪恶国家诸如朝鲜、伊朗同时发动战争，从而引发所谓的第三次世界大战的可能性微乎其微，因为美国的实力对付这些流氓国家绰绰有余，只是损失大小的问题。虽然邪恶轴心国可以挑起战争，但是战争结束的时间和方式却由美国决定。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-69.jpg)
-至于巴基斯坦的伊姆兰.汗，以及伊朗的哈梅内伊等与中共亲近的独裁者，很快会被消灭。而普京也用铁的事实验证了一个道理，即相信共产党，必然走进火葬场。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpeg)
 
+在两天前的18日晚，俄罗斯总统普京在莫斯科举办了庆祝侵占克里米亚8周年的集会，并在集会上发表声明，发誓要继续入侵乌克兰，还引用了耶稣的话说：“没有什么爱比为自己的朋友献出生命更伟大。”
 
+福特大主教指出，把战争的理由诉诸《圣经》，显示普京已经找不到更多的理由来支持他的主张了。以上帝的名义为所做的恶行辩护，是极不道德和疯狂的。
 
+福特大主教表示，对无辜平民的可怕攻击表明了普京不惜一切代价想要征服他人的帝国主义逻辑，并指责普京是袭击无助的无辜人民的战犯。
 
+福特大主教还对俄罗斯东正教教长基里尔支持普京的行为表示失望和不安。
 
-文字版原文：[中共攻打台湾几乎不可能引发第三次世界大战](https://gnews.org/zh-hans/2208007/)
+参考链接：[Italian Archbishop Slams Vladimir Putin’s ‘Blasphemous’ Defense of War on Ukraine](https://www.breitbart.com/faith/2022/03/20/italian-archbishop-slams-vladimir-putins-blasphemous-defense-of-war-on-ukraine/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核/编辑：飞虹 
+总编：Zion文恩
+校正/发稿：谐趣园
 
  
 

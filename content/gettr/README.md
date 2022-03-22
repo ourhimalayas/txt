@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 6:06 PM (UTC)`
+
+加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。喜联储主席William先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，那么这个问题也可以轻松解决。 其中一项要求是了解您的客户（KYC）——交易场所成员在加入时都必须注册完整的个人资料。William先生还说，“我已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。”<br/> https://gnews.org/zh-hans/2210861/
+
+---
+
 `@miles 3/22/2022 5:06 PM (UTC)`
 
 3月22日：九指妖．还有龟头杨．陈其生．必须为诈骗战友．应付的法律代价，必须让他们在监狱里团聚！
@@ -147,13 +153,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 
 ![img](https://media.gettr.com/group47/origin/2022/03/22/02/550e40c9-6724-e423-bbc8-899cd0459561/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/22/2022 2:05 AM (UTC)`
-
-3/20/2022 The Lady (who can speak Ukrainian) read the Ukrainian Stickers to a rescue volunteer: We, the New Federal State of China, Stand with Ukrainian People! <br/><br/>2022年3月20日 这位会说乌克兰语的女士向救援志愿者朗读乌语的横幅贴纸内容：我们新中国联邦人与乌克兰人民站在一起！
-![img](https://media.gettr.com/group24/origin/2022/03/22/02/f65589a0-db62-cda2-ad0d-fe932e5695e7/out.jpg)
 
 ---
 

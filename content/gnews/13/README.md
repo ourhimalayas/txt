@@ -2,32 +2,32 @@
 ---
 
 
-## 俄乌战争很可能以普京被俄内部势力消灭为终结
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211777/)
+## 【G时新闻】拜登总统出席北约峰会并访问波兰
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2211943/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+主       播：加拿大温哥华扬帆农场 – 悠然
 
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
+当地时间20日，白宫官网发表声明称，美国总统拜登将于3月25日前往波兰华沙。 拜登将于下周访问欧洲，参加将于3月24日在比利时布鲁塞尔举行的北约峰会，白宫表示，拜登将在布鲁塞尔与北约盟国、七国集团领导人和欧盟领导人会面，讨论国际社会为支持乌克兰所做的努力后，他将前往波兰华沙，与安杰伊·杜达总统举行双边会晤。
 
+白宫发言人珍·普萨基周日晚间表示，拜登总统将于周五前往波兰讨论国际社会对俄罗斯入侵乌克兰引发的“人道主义和人权危机”的反应。 知情人士日前表示，美国和欧洲官员近期一直在讨论可能在北约峰会中敲定的新措施。这些措施可能包括对俄罗斯寡头的新一轮制裁、进一步限制对俄罗斯能源产品的进口等。
 
+美国和欧洲官员还讨论了可以通过哪些措施来为乌克兰提供更多支持，包括提供新的军事援助或财政援助。 波兰边防卫队周五表示，自2月24日俄罗斯入侵开始以来，已有超过200万难民从乌克兰进入波兰。
 
-俄乌战争，普京不会主动停战。两个比较大的可能：1，普京家人从中协调，双方妥协停战；2，但是，最有可能的是，俄内部势力干掉普京。
+视频链接：[https://gettr.com/post/p119wkiff3b](https://gettr.com/post/p119wkiff3b)
 
-习近平和普京现在已经被世界定为独裁者和战争犯，并相信这场战争背后是中共在支持俄罗斯侵略乌克兰。如果普京被内部消灭，这对中共的 ”模范效应“是不可估计的，对墙内推翻共产党会是极大的鼓舞！
+编辑/上传：蔚蓝之境
 
-视频来源: 20220320—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田
+————————————————————————————————————
 
-**更多资讯，更多关注**
-**[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2561.png)
 
 
  
