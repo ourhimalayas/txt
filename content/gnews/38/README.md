@@ -2,32 +2,27 @@
 ---
 
 
-## 亚洲数字银行推出A-Bank超级钱包
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208230/)
+## 国际｜俄罗斯地方法院裁定脸书母公司Meta为极端组织
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208301/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文：CP**
+**发布时间｜22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄羅斯地方法院裁定臉書母公司Meta為極端組織.jpg)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A_BANK.jpeg)图片来源：www.bernama.com
-根据The Paypers3月21日报道，亚洲数字银行（Asia Digital Bank）宣布推出其A-Bank超级钱包，这是一款将传统金融服务与数字服务相结合的电子钱包。
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-A-Bank超级钱包利用区块链点对点交易的概念、分布式账本和存储系统、加密算法和共识协议的概念，为跨境贸易和服务提供高效的支付解决方案和快速转账。
 
-该超级钱包声称是第一个提供法币和数字货币之间交换功能的电子钱包。其用户能够完全控制他们在电子钱包上的所有资产。A-Bank超级钱包的核心功能允许在岸和离岸存款、取款，以及实物货币和数字货币之间的兑换。
+俄罗斯莫斯科维特尔地方法院周一(21日)裁定Meta从事“极端活动”罪成，旗下脸书及Instagram(IG)为“极端组织”，禁止在俄罗斯运作。这是当地首次对海外科技企业，使用针对极端主义罪行的法律。
 
-在其第一阶段的运作中，A-Bank超级钱包支持五种货币，其中包括马币、新币、美元、人民币和港币及稳定币，如USDT和USDC。更多的法定货币和数字货币将在第二阶段加入，为用户提供更多选择。
+Meta的律师庭上指，俄方没有权限裁定案件，因为Meta是海外注册公司，在当地没有业务，Meta暂时未就案件裁决作出回应，亦未知是否上诉。不过，Meta旗下即时通讯软件WhatsApp暂时不受影响，因为这款软件未有用作发布公开声明。
 
-据亚洲数字银行称，用户可以灵活选择通过银行转账、电汇、Visa、万事达、JCB、银联国际、PayPal、支付宝全球、微信全球等方式完成离线或在线交易，如充值和提款。
+自俄罗斯入侵乌克兰后，脸书因限制用户接触俄罗斯传媒，早前已被俄罗斯当局禁制，逾8,000万名用户受影响。Meta其后放宽仇恨言论政策，容许乌克兰等12个国家或地区用户发布对俄罗斯总统普京及俄罗斯士兵使用暴力言论，IG随后亦被封禁。Meta其后修订指引，禁止用户发布威胁暗杀国家元首的帖文。
 
-新闻来源：[Asia Digital Bank launches its A-Bank Super Wallet](https://thepaypers.com/online-mobile-banking/asia-digital-bank-launches-its-a-bank-super-wallet--1255261)
+**来源｜**[**路透社**](https://www.reuters.com/technology/meta-asks-russian-court-dismiss-proceedings-extremism-case-reports-2022-03-21/)
 
-发布：tianzhihuan
+* * *
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

@@ -2,23 +2,25 @@
 ---
 
 
-## 马立波捷报！歼灭俄军特种部队扣获大量军事装备
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2209873/)
+## 基辅附近小镇接到疏散电话后出现恐慌
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2209897/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEe7GSa.jpg)图片来源：亚速营
+**在向基辅东南部的乌克兰城镇博里斯皮尔的公民发出疏散呼吁后，官员们正试图安抚民众。**
 
-据自由时报3月21报道，俄军围困乌克兰南部大城马立波数日，俄军甚至要求马立波的乌军放下武器投降，引发外界关注。乌克兰国民卫队「亚速营」传出捷报，宣称歼灭俄罗斯在马立波一支格鲁乌（GRU）特种部队，并扣获大量的军事装备。
+作者：sh/原文发布于2022年3月22日10:05
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-10.jpg)图片: 乌克兰士兵在基辅的一个军事检查站 (Fadel Senna/AFP)
 
-简评：俄军围困马立波要求放下武器，乌克兰国民卫队传出捷报歼灭俄特种部队。可见俄军的攻心之计没有得逞，乌克兰人还在顽强的抵抗，靠吓唬是唬骗不了乌克兰人的，普京不停止战争，乌克兰人将反抗到底！
+乌克兰的Unian机构援引内政部长的一名顾问的话说，攻击可能在周三开始，城市可能被摧毁 。这一消息致使社交媒体上爆发了恐慌。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3866713](https://news.ltn.com.tw/news/world/breakingnews/3866713)
+市长呼吁人们在夜间离开城市，说如果妇女和儿童离开后，男人就会更容易保护城市。这位顾问说，这就是人们应该关注的问题。
 
-撰稿/发布：一叶知秋
+据他介绍，现在不仅在博里斯皮尔，而且周围的村庄和基辅周围的整个地区都存在恐慌情绪。（*dpa/sh*）
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+原文链接：https://brf.be/international/1586960/
+发布： LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+
 
  
 
