@@ -2,35 +2,33 @@
 ---
 
 
-## 上海某医院擅改方舱引发护士集体罢工
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211618/)
+## 上海迪士尼乐园因大规模CCP病毒爆发而关闭
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2211726/)
 
-作者：纽约香草山—Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-盖特网友3月21日爆料，上海周浦公立医院内发生大规模护士罢工活动，抗议医院领导在新闻发布会上直接对外宣称将该院改建为方舱医院，而院内护士们的安全健康却得不到相应保障。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.54.09.png)
-据了解，周浦医院作为一家公立的三级乙等医院，是具有综合性质的普通诊疗医院，并非符合传染病隔离标准的特殊定点医院。院内知情人员爆料，院领导为了个人上位而仓促宣布，没有经过专业评估和改建，院内的防疫条件远达不到基本的生物安全要求。
+撰稿：Gradient Boost
 
-另据该院的一名护士控诉，周浦医院改建为方舱医院的决议上完全没有考虑护士的生命安全。据悉，该院要求护士进入危险污染区照顾病患，却不要求医生进入污染区内。此外，医院高层还将护士外出采样的补助全部贪污，一线护士们至今未能拿到一分钱的补贴。这是继上周上海六院护士不满院方安排的又一起医护人员抗议罢工事件。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-149.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-249.jpg)
+网络图片
 
-参考链接：
-1.[周浦医院护士罢工，领导为了自己上位不管护士…](https://www.gettr.com/post/p1137lw98e1)
-2.[周浦医院医生护士罢工了…](https://www.gettr.com/post/p112peqb954)
+上海迪士尼乐园周一关闭，因为这个在大陆人口最多的城市正在试图控制两年以来最大的冠状病毒爆发，而南方商业中心深圳在关闭一周后允许商店和办公室重新营业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+与此同时，东北部的长春和吉林两市在感染人数激增后开始了新一轮全市病毒检测。吉林加强了防疫限制，命令其200万居民留在家中。
 
-编辑：宁文静
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+与其他主要国家相比，中共国在最新一波感染中的病例数较低，但当局仍然还在继续实施“零容忍”的防疫战略，一些主要城市目前再次被强制按下了“暂停”按钮。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共政府周日报告大陆新增病例为 2027 例，高于前一天的 1737 例。其中长春市和吉林市所在的吉林省的新增人数为1542例。拥有 2400 万人口的上海虽然避免了全市范围的完全停工，但地方政府呼吁民众待在家里。
+
+即便如此，上海的进城巴士服务目前已暂停，游客必须出示病毒检测呈阴性。迪士尼公司表示，上海迪士尼乐园、迪士尼小镇和星愿公园已关闭，重新开放时间需等待另行通知。周一，上海报告了750多例CCP病毒感染新增病例。该市早些时候封锁了对两个居民小区，并对其他数十个居民区进行了大规模病毒检测。上海居民在互联网上发布的照片​​显示，在通常拥挤的周一早上高峰时段，街道和地铁空无一人。
+
+如此抗议措施引发了人们的担忧，例如假设上海附近的港口（世界上最繁忙的港口之一）受到影响，那么商务贸易可能会受到干扰和阻碍。上海港口目前已将文书工作转移至线上进行，但表示货物运输仍然正常。
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[Shanghai Disneyland closes amid large-scale COVID-19 flare-up](https://www.9news.com.au/world/china-coronavirus-updates-shanghai-disneyland-closes-as-virus-rises-shenzhen-reopens/f059b9a7-d104-4520-ab1b-e7d0a3e3598a)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

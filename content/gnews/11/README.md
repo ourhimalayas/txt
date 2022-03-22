@@ -2,32 +2,26 @@
 ---
 
 
-## 南澳大利亚警告：地方CCP病毒每日增长或超过8000
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2211742/)
+## 瑞士银行俄罗斯客户的天价存款远超信贷风险
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211783/)
 
-撰稿：Gradient Boost
+作者：香草山农场教育部–柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒3月17日消息，瑞士的银行持有多达2,130亿美元的俄罗斯客户资金，远远大于几家金融公司评估的资产负债表上的风险敞口。这为通过金融手段有效制裁俄罗斯提供了信心。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-149.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-250.jpg)
-网络图片
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-7.jpeg)
 
-南澳大利亚州州长 Peter Malinauskas 表示，随着 Omicron BA.2 子变体在澳大利亚传播，该州预计 CCP病毒的新增感染病例会持续增加——昨晚更新的模型预期也表明了相同的结果。
+据瑞士银行家协会SBA估计，上述银行在离岸账户中持有1,500亿至2,000亿瑞郎，即2,130亿美元的俄罗斯财富。这使得最初对制裁俄罗斯可能面临信贷风险的担心，显得多余。瑞士最大的两家银行上周详细介绍了对俄罗斯的 “有限 “风险敞口，其中最大的瑞银集团表示，自年底以来，已经削减了6.34亿美元的直接风险敞口。瑞士信贷首席执行官托马斯表示，瑞士第二大银行为富裕客户管理的资产中约有4%属于俄罗斯人，金额达数百亿美元，这远远大于瑞士信贷年报中的8.48亿瑞士法郎的净信贷风险。
 
-南澳首席公共卫生官 Nicola Spurrier 说：“我们预计未来几周将有超过 8000 例病例——但更重要的是，我们需要查看我们的病房入住率，尤其是成人病房的人数，”
+SBA的披露对瑞士来说是罕见的。因为在上个月俄罗斯入侵乌克兰之后，瑞士采取了不寻常的举措，同意放弃中立立场，针对俄罗斯实施欧盟的金融制裁措施。随着制裁清单不断加长，银行发现受到审查的俄罗斯客户资金，远远超出了它们所发放的贷款或从俄罗斯子公司可能导致资产负债表损失的业务。瑞银CEO拉尔夫·哈默斯说，瑞银不仅对当前的合规性寻求保护，也在为未来可能面临的处罚规避风险。
 
-南澳大利亚健康部门已被指示在病例可能增加之前制定紧急医院准备计划。与此同时，该州记录了 3686 例新的 CCP病毒确诊病例，其中 PCR 测试记录了 2262 例，快速抗原测试记录了 1424 例。目前有 165 名病毒感染者住院，其中 11 人处于重症监护状态中。
+参考链接：[Russians have up to $213 billion stashed offshore in Swiss banks](https://www.reuters.com/world/europe/russians-have-up-213-billion-stashed-offshore-swiss-banks-2022-03-17/)
 
-不过当地政府表示，它不希望看到紧急情况管理条例再度延期。Malinauskas称，政府当前的目标是确保紧急状况持续延期到 6 月 30 日之后，甚至希望更早结束这一状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-鉴于当前医疗系统受到CCP病毒大流行的冲击，南澳州长在上周五宣布公立医院将再度暂停所有非紧急的择期手术：“我们公立医院系统的情况相当糟糕，以至于我们不得不将原本已经重新开始的非紧急择期手术再次取消……毫无疑问，我们的医院系统正承受着巨大的压力。”
-
-*发布：疯狂的韭菜*
-
-新闻参考链接：
-
-[South Australians warned daily COVID-19 cases could surge to 8000](https://www.9news.com.au/national/coronavirus-south-australia-update-sa-covid-19-cases-expected-to-reach-over-8000/f44016e1-9f34-4490-91dc-e96a455494f2)
-
-本文仅代表作者本人观点
+审核/总编：Zion文恩
+编辑：宁文静 
+校正/发稿：谐趣园
 
  
 

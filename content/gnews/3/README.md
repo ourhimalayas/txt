@@ -2,31 +2,36 @@
 ---
 
 
-## 海外假民运 欺民贼危害极大 各国政府已展开行动应对
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211859/)
+## 欧盟采取新的方针，包括&#8221;创建自己的独立部队&#8221;
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2211944/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【日本电视新闻24】为了应对来自俄罗斯和其他国家的威胁，欧盟（EuropeanUnion，EU）已经通过了新的方针，包括建立欧盟自己的独立部队。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ad7eca16478118bf265c202ef3b8e218u1-1-edited.png)图片来源：world.huanqiu.com
 
+欧盟于3月21日召开了一次外交部长和国防部长会议，通过了旨在（从现在起）到2030年强化安全保障的新方针。在该方针中，包括首次建立一支最多达5000人的快速反应部队和强化对网络攻击的准备等内容，以应对来自俄罗斯和其他国家的威胁。
 
-墙内很多被中共迫害到难以生存的人士，逃到海外后，不仅被共产党以猎狐的名义抓捕、威胁、劝回，同时会受到海外欺民贼骗财骗色。这些假民运分子都是打着反共的旗号，实际上为中共工作或勾结，现在各国政府已经开始意识到他们的危害，已展开相应的开法律行动。海外同胞必须要有认知，也要意识到共产党的危害。
+在会后的记者会上，欧盟高级代表博雷尔强调，这些指导方针旨在强化行动能力和果断处理应对危机的能力。他随后表示，准备对俄罗斯实施的追加制裁也在考虑中。
 
-视频来源: 20220320—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田
+欧盟将在本月24日和25日举行的峰会上正式批准这项新方针。
+
+**参考资料：**[news.goo.ne.jp][EU“独自部隊の創設”など盛り込んだ新指針採択](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022032209999961.html)
+
+* * *
+
+*审核：BryanW*
+*校对：宫米叶*
+*发稿：信心的选择*
 
 **更多资讯，更多关注**
-**[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
-
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
 
  
 

@@ -2,41 +2,31 @@
 ---
 
 
-## 巴西最高法院的裁决禁止使用Telegram
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2211699/)
+## 意大利主教抨击普京“亵渎神明”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211727/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-![](https://9to5mac.com/wp-content/uploads/sites/6/2019/06/DDOS-attack.jpg?quality=82&amp;strip=all&amp;w=1500)图片来源：网络 
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月20日，在意大利首都罗马，意大利大主教福特表示，普京为他对乌克兰的侵略战争进行的宗教辩护是一种“亵渎神明的行为”。
 
-9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpeg)
 
-巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
+在两天前的18日晚，俄罗斯总统普京在莫斯科举办了庆祝侵占克里米亚8周年的集会，并在集会上发表声明，发誓要继续入侵乌克兰，还引用了耶稣的话说：“没有什么爱比为自己的朋友献出生命更伟大。”
 
-当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
+福特大主教指出，把战争的理由诉诸《圣经》，显示普京已经找不到更多的理由来支持他的主张了。以上帝的名义为所做的恶行辩护，是极不道德和疯狂的。
 
-巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
+福特大主教表示，对无辜平民的可怕攻击表明了普京不惜一切代价想要征服他人的帝国主义逻辑，并指责普京是袭击无助的无辜人民的战犯。
 
-目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
+福特大主教还对俄罗斯东正教教长基里尔支持普京的行为表示失望和不安。
 
-新闻来源：[https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/](https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/)
+参考链接：[Italian Archbishop Slams Vladimir Putin’s ‘Blasphemous’ Defense of War on Ukraine](https://www.breitbart.com/faith/2022/03/20/italian-archbishop-slams-vladimir-putins-blasphemous-defense-of-war-on-ukraine/)
 
-编辑/校对/发稿：小小安
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-315.jpeg)
+审核/编辑：飞虹 
+总编：Zion文恩
+校正/发稿：谐趣园
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

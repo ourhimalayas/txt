@@ -2,37 +2,32 @@
 ---
 
 
-## 新中国联邦会拿回 中共这些年藏在瑞士银行的中国人民的血汗钱
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211714/)
+## 南澳大利亚警告：地方CCP病毒每日增长或超过8000
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2211742/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+撰稿：Gradient Boost
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-149.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-250.jpg)
+网络图片
 
+南澳大利亚州州长 Peter Malinauskas 表示，随着 Omicron BA.2 子变体在澳大利亚传播，该州预计 CCP病毒的新增感染病例会持续增加——昨晚更新的模型预期也表明了相同的结果。
 
-瑞士的银行接收了很多邪恶轴心国独裁者的黑钱和脏钱，其中就有共产党藏在海外的几十万亿。
+南澳首席公共卫生官 Nicola Spurrier 说：“我们预计未来几周将有超过 8000 例病例——但更重要的是，我们需要查看我们的病房入住率，尤其是成人病房的人数，”
 
-喜币会超过比特币，会超过瑞士的银行金融机构。喜联储保护个人财产，也为所有的钱保密，并且KYC杜绝了洗钱和黑钱的可能！
+南澳大利亚健康部门已被指示在病例可能增加之前制定紧急医院准备计划。与此同时，该州记录了 3686 例新的 CCP病毒确诊病例，其中 PCR 测试记录了 2262 例，快速抗原测试记录了 1424 例。目前有 165 名病毒感染者住院，其中 11 人处于重症监护状态中。
 
-新中国联邦一定会拿回，中共这些年藏在瑞士银行的中国人民的血汗钱。
+不过当地政府表示，它不希望看到紧急情况管理条例再度延期。Malinauskas称，政府当前的目标是确保紧急状况持续延期到 6 月 30 日之后，甚至希望更早结束这一状况。
 
-视频来源: 20220320—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田
+鉴于当前医疗系统受到CCP病毒大流行的冲击，南澳州长在上周五宣布公立医院将再度暂停所有非紧急的择期手术：“我们公立医院系统的情况相当糟糕，以至于我们不得不将原本已经重新开始的非紧急择期手术再次取消……毫无疑问，我们的医院系统正承受着巨大的压力。”
 
-**更多资讯，更多关注**
-**[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+*发布：疯狂的韭菜*
 
+新闻参考链接：
 
+[South Australians warned daily COVID-19 cases could surge to 8000](https://www.9news.com.au/national/coronavirus-south-australia-update-sa-covid-19-cases-expected-to-reach-over-8000/f44016e1-9f34-4490-91dc-e96a455494f2)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
-
-
-
-
+本文仅代表作者本人观点
 
  
 

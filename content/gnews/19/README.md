@@ -2,39 +2,38 @@
 ---
 
 
-## 为减少对俄天然气依赖 德国寻求与别国合作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211617/)
+## 【G时新闻】北约称：俄乌战争即将进入相持阶段；拜登称：俄罗斯正考虑使用生化武器！
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2211719/)
 
-作者：紐約香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-为惩罚俄罗斯普京政权对乌克兰的侵略战争，国际社会对俄罗斯的各项制裁和孤立日益加剧。据外媒消息，德国为避免在国防和外交上继续受制于俄罗斯，积极寻找替代的天然气来源，准备结束双方长达半世纪的能源关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.54.01.png)
-3月16日，德国经济能源部长哈柏克访问挪威，成功获挪威政府允诺今年夏天起将增加液化天然气出口，双方并约定对连接两国的氢气输送管进行研究。目前德国的天然气有30%来自挪威，仅次于俄罗斯排名第二。
+主       播：加拿大温哥华扬帆农场 – 莉李鲤
 
-3月20日，哈柏克在多哈与卡塔尔国王塔米姆会晤后宣布，双方已对长期的能源伙伴关系达成共识。不过，他没有透露双方约定的运量，只表示即将展开谈判。哈柏克还表示，德国准备协助卡塔尔兴建再生能源。
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-卡塔尔是全球第二大液化天然气生产国，产量仅次于澳洲。
+大家好！今天的主题是北约称俄乌战争即将进入相持阶段，拜登称俄罗斯正考虑使用生化武器！
 
-结束卡塔尔行程后，哈柏克下一站将访问阿拉伯联合酋长国，讨论两国在绿色氢能的合作。
+据《新闻极限》3月21日报道，一位北约高级情报官员周一告诉NBC（美国全国广播公司新闻网），俄罗斯对乌克兰的入侵要么处于相持阶段，要么即将进入相持阶段。 这位匿名情报官员说：“如果我们没有陷入僵局，我们也正在迅速接近僵局，现实情况是，双方都不具备对另一方的优势，任何一方都无法获胜，并且双方都不会认输。”。
 
-参考链接：
-1.[Germany agrees gas deal with Qatar to help end dependency on Russia](https://www.theguardian.com/world/2022/mar/20/germany-gas-deal-qatar-end-energy-dependency-on-russia)
-2.[Germany, Norway agree tentative plan to build hydrogen pipeline link](https://www.euractiv.com/section/energy-environment/news/germany-norway-agree-tentative-plans-to-build-hydrogen-pipeline-link/)
+这位北约官员指出，俄罗斯总统普京（Vladimir Putin）的战争在两周内没有取得重大进展，但他似乎仍然不愿意退缩。 该官员进一步声称，白俄罗斯可能很快就会加入俄罗斯的入侵行动，并准备让俄罗斯在其境内部署核武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+另据《新闻极限》报道，周一，拜登在一个商业圆桌会议上说，普京“没有退路，情况危急，现在他正在谈论他计划的新的栽赃行动，包括声称我们美国在欧洲有生物和化学武器，这根本就不是真的”。 拜登指出，“他们（俄罗斯）还暗示乌克兰有生物和化学武器。这是一个明显的信号，他（普京）正在考虑（在乌克兰）使用这两种武器”。
 
-编辑：Zion文恩
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+文章指，拜登的这番话呼应了美国和盟国官员之前的评论，即俄罗斯散布未经证实的说法，称乌克兰有一个生物武器计划，目的是为自己发动生物或化学武器攻击寻找借口。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+视频链接：[https://gettr.com/post/p11abmybe32](https://gettr.com/post/p11abmybe32)
+
+编辑/上传：蔚蓝之境
+
+————————————————————————————————————
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2549.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

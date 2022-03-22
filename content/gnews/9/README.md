@@ -2,36 +2,31 @@
 ---
 
 
-## 俄实验设备和耗材因战争制裁而断供
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211750/)
+## 海外假民运 欺民贼危害极大 各国政府已展开行动应对
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211859/)
 
-作者：香草山农场教育部 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-俄罗斯普京政权发动侵略乌克兰的战争行动，全球对俄制裁与孤立政策纷至沓来。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-5.jpeg)
 
-3月17日，据外媒消息，俄罗斯耗材的进口严重下降，尤其以工业原材料、实验室设备、和计算资源等为甚。
 
-欧盟已禁止向俄罗斯出口，包括质谱仪和示波器在内的大量技术设备。同时期美国已禁止向俄罗斯出口半导体、计算机、激光器和传感器等。
+墙内很多被中共迫害到难以生存的人士，逃到海外后，不仅被共产党以猎狐的名义抓捕、威胁、劝回，同时会受到海外欺民贼骗财骗色。这些假民运分子都是打着反共的旗号，实际上为中共工作或勾结，现在各国政府已经开始意识到他们的危害，已展开相应的开法律行动。海外同胞必须要有认知，也要意识到共产党的危害。
 
-还有在科技企业方面，诸如：美国赛默飞世尔和微软，日本仪器巨头岛津，镜头制造商尼康，德国光学巨头蔡司，工业软件巨头 SAP 等公司均已停止面向俄罗斯的部分或全部业务。
+视频来源: 20220320—郭先生大直播
+视频制作: 文星光
+文案:文星光，梦田
 
-芯片制造商英特尔、AMD 和英伟达也已停止向俄罗斯销售产品。
+**更多资讯，更多关注**
+**[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-一些俄罗斯学者表示，向许多供应商提出的订单请求或被拒绝，或得到暂停交付的回应。
 
-由于大部分航运和物流公司向俄罗斯的运输中断，俄罗斯研究者也难以从国际同行手中获取实验仪器或材料。
 
-分析人士认为，中共当权治理下的中国，在科学仪器水平与国际先进水平相差很远，绝大多数领域设备本就依靠外国进口。因此从中国采购并不能解决俄罗斯本身面临的断供问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-参考链接：[Russian labs run out of equipment as sanctions begin to bite](https://sciencebusiness.net/news/russian-labs-run-out-equipment-sanctions-begin-bite)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-审核/总编：Zion文恩
-编辑：玫瑰圓
-校正/发稿：谐趣园
 
  
 

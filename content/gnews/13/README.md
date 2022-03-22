@@ -2,30 +2,33 @@
 ---
 
 
-## 意大利主教抨击普京“亵渎神明”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211727/)
+## 俄乌战争很可能以普京被俄内部势力消灭为终结
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211777/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月20日，在意大利首都罗马，意大利大主教福特表示，普京为他对乌克兰的侵略战争进行的宗教辩护是一种“亵渎神明的行为”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpeg)
 
-在两天前的18日晚，俄罗斯总统普京在莫斯科举办了庆祝侵占克里米亚8周年的集会，并在集会上发表声明，发誓要继续入侵乌克兰，还引用了耶稣的话说：“没有什么爱比为自己的朋友献出生命更伟大。”
 
-福特大主教指出，把战争的理由诉诸《圣经》，显示普京已经找不到更多的理由来支持他的主张了。以上帝的名义为所做的恶行辩护，是极不道德和疯狂的。
 
-福特大主教表示，对无辜平民的可怕攻击表明了普京不惜一切代价想要征服他人的帝国主义逻辑，并指责普京是袭击无助的无辜人民的战犯。
 
-福特大主教还对俄罗斯东正教教长基里尔支持普京的行为表示失望和不安。
+俄乌战争，普京不会主动停战。两个比较大的可能：1，普京家人从中协调，双方妥协停战；2，但是，最有可能的是，俄内部势力干掉普京。
 
-参考链接：[Italian Archbishop Slams Vladimir Putin’s ‘Blasphemous’ Defense of War on Ukraine](https://www.breitbart.com/faith/2022/03/20/italian-archbishop-slams-vladimir-putins-blasphemous-defense-of-war-on-ukraine/)
+习近平和普京现在已经被世界定为独裁者和战争犯，并相信这场战争背后是中共在支持俄罗斯侵略乌克兰。如果普京被内部消灭，这对中共的 ”模范效应“是不可估计的，对墙内推翻共产党会是极大的鼓舞！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+视频来源: 20220320—郭先生大直播
+视频制作: 文星光
+文案:文星光，梦田
 
-审核/编辑：飞虹 
-总编：Zion文恩
-校正/发稿：谐趣园
+**更多资讯，更多关注**
+**[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+
+
 
  
 
