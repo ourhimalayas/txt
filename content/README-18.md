@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/41 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [41](/content/README-41.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的](/content/2020/02/20200210-962029426939304062.md)
+
 [文字版：2020年2月6日郭文贵先生接受班农先生战斗室访谈谈武汉疫情真相](/content/2020/02/20200208-1574169935593183081.md)
 
 [文字版：2020年2月3日文贵谈共产党官方一直掩盖武汉真相并栽赃美国](/content/2020/02/20200207-1018085438750382057.md)
@@ -63,8 +65,6 @@
 [文字版：2020年1月15日文贵谈美国白宫建筑意义、广场协议的后果以及中美贸易协议签不签中共都必亡](/content/2020/01/20200117-6409722284040678861.md)
 
 [文字版：2020年1月14日文贵报平安谈伊朗霍梅尼现象绝对不能在中国发生](/content/2020/01/20200117-6983690269092492510.md)
-
-[文字版：2020年1月13日文贵报平安谈-伊朗巴列维王国和霍梅尼神棍](/content/2020/01/20200115-3214760195479457165.md)
 
 
 ## 頁面 18/41 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [41](/content/README-41.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)

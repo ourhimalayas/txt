@@ -16,6 +16,8 @@
 ---
 ## 頁面 20/41 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [41](/content/README-41.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月14日文贵报平安谈王岐山比我们想象的还要凶险以及陈峰以双修为名行淫乱之实](/content/2019/12/20191218-3353927093351940100.md)
+
 [文字版：2019年12月15日文贵直播谈：王岐山、陈峰对女性的淫乱被称为双修是对佛教的侮辱和利用](/content/2019/12/20191217-6566572008069059453.md)
 
 [文字版:2019年12月12日文贵报平安-对港四大原则即将出台，香港将面临诱惑分化以及法治基金C4召开董事会](/content/2019/12/20191215-671526428688511323.md)
@@ -63,8 +65,6 @@
 [文字版：11月19号文贵报平安，有关11.20直播安排和香港理工大的背后故事](/content/2019/11/20191120-7407976853651843177.md)
 
 [文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/content/2019/11/20191119-700270483313252940.md)
-
-[文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/content/2019/11/20191118-3253846857255260107.md)
 
 
 ## 頁面 20/41 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [41](/content/README-41.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)

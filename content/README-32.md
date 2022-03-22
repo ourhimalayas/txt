@@ -16,6 +16,8 @@
 ---
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！](/content/2018/09/20180908-4427977020918468528.md)
+
 [文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/content/2018/09/20180906-3174109642123274435.md)
 
 [文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/content/2018/09/20180904-9130143766772913828.md)
@@ -63,8 +65,6 @@
 [文字版：2018718郭文贵先生lns直播视频：昨天直播在国内炸了锅，中大使馆威胁国际刑警不要插手，在采取外交行动，普托旺斯的居民都想和文贵合](/content/2018/07/20180722-7878722502564769859.md)
 
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/content/2018/07/20180719-6182147046946865202.md)
-
-[2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/content/2018/07/20180719-5954422145993644820.md)
 
 
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)

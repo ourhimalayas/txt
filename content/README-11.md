@@ -16,6 +16,8 @@
 ---
 ## 頁面 11/41 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [41](/content/README-41.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[2020年12月27日郭先生大使馆群聊内容整理-附听写文字版](/content/2020/12/20201227-698031.md)
+
 [文字版2020年12月25日郭先生GTV直播](/content/2020/12/20201225-728174.md)
 
 [2020年12月25日郭先生直播内容整理-附听写文字版](/content/2020/12/20201225-691455.md)
@@ -63,8 +65,6 @@
 [文字版2020年11月28日郭先生GTV直播](/content/2020/11/20201128-640822.md)
 
 [文字版2020年11月27日郭先生GTV直播](/content/2020/11/20201127-640673.md)
-
-[文字版：2020年11月14日郭文贵先生直播连线香草山](/content/2020/11/20201123-5538570264251162424.md)
 
 
 ## 頁面 11/41 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [41](/content/README-41.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)

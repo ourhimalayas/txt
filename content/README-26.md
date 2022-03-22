@@ -16,6 +16,8 @@
 ---
 ## 頁面 26/41 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [41](/content/README-41.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年6月12日文贵与细丝直播 如何布局最后部分谈8964监狱风云分享精彩人生经历  ](/content/2019/06/20190613-2844499569524374811.md)
+
 [文字版：2019年6月10日，文貴報平安再談，上天送給我的幾個巨大的禮物](/content/2019/06/20190611-3204594728389036788.md)
 
 [文字版：2019年6月8日文貴直播](/content/2019/06/20190608-7050696263727200895.md)
@@ -63,8 +65,6 @@
 [文字版：May 7, 2019共产党被推倒，释放所有监狱里的犯人．土地拥有权归人民所有．西藏，新疆，台湾．香港实施百分之百的自治！你们觉得可能吗？](/content/2019/05/20190508-7522402504104525602.md)
 
 [文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/2019/05/20190507-3556468867911732041.md)
-
-[文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/2019/05/20190505-8215359128431540656.md)
 
 
 ## 頁面 26/41 [**<**](/content/README-25.md) [1](/content/README.md) ... [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) **26** [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) ... [41](/content/README-41.md) [**>**](/content/README-27.md) [查看全部](/content/README-all.md)

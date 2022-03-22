@@ -16,6 +16,8 @@
 ---
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月20日文贵呼吁绝对不能把CCP病毒和中国人联系到一起](/content/2020/03/20200323-7421159796736318134.md)
+
 [文字版：2020年3月18日文贵直播呼吁不要被CCP大外宣蒙骗](/content/2020/03/20200321-732520138033685407.md)
 
 [文字版：2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人](/content/2020/03/20200319-5480491388779340708.md)
@@ -63,8 +65,6 @@
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/2020/02/20200212-3562611532085874008.md)
 
 [文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/content/2020/02/20200210-4272958490110900794.md)
-
-[文字版：2020年2月8日文贵第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的](/content/2020/02/20200210-962029426939304062.md)
 
 
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

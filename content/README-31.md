@@ -16,6 +16,8 @@
 ---
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)
 
+[文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/content/2018/10/20181029-1889983154079130395.md)
+
 [文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/content/2018/10/20181026-2575309675439495092.md)
 
 [翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/content/2018/10/20181026-8395548842553484122.md)
@@ -63,8 +65,6 @@
 [文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元](/content/2018/09/20180913-5367861768541759446.md)
 
 [文字版：9月10号马云辞职的真正的目的与动机瞒天过海](/content/2018/09/20180912-2723188184703053742.md)
-
-[文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！](/content/2018/09/20180908-4427977020918468528.md)
 
 
 ## 頁面 31/41 [**<**](/content/README-30.md) [1](/content/README.md) ... [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) **31** [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) ... [41](/content/README-41.md) [**>**](/content/README-32.md) [查看全部](/content/README-all.md)

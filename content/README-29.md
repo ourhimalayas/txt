@@ -16,6 +16,8 @@
 ---
 ## 頁面 29/41 [**<**](/content/README-28.md) [1](/content/README.md) ... [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) **29** [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) ... [41](/content/README-41.md) [**>**](/content/README-30.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年1月23日文貴報平安直播](/content/2019/01/20190125-5995035220130924499.md)
+
 [文字版：2019年1月21日共產黨號召學習王陽明的心學是對聖人的巨大侮辱](/content/2019/01/20190123-2188991099465691450.md)
 
 [文字版：2019年1月20日郭文贵先生直播王岐山，孟建柱是如何執行南普陀計劃！](/content/2019/01/20190123-8364143851191456056.md)
@@ -63,8 +65,6 @@
 [文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/2018/12/20181218-8948086997100898897.md)
 
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/content/2018/12/20181211-7088742512990169570.md)
-
-[文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/2018/12/20181211-3146997192813491543.md)
 
 
 ## 頁面 29/41 [**<**](/content/README-28.md) [1](/content/README.md) ... [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) **29** [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) ... [41](/content/README-41.md) [**>**](/content/README-30.md) [查看全部](/content/README-all.md)
