@@ -2,29 +2,32 @@
 ---
 
 
-## 人类未来的去中心化货币叫做躺平币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208016/)
+## 亚洲数字银行推出A-Bank超级钱包
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208230/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月20日，郭先生在大直播中透露，未来会有一个真正的去中心化货币，就是躺平币。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据悉，从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付购买任何所需。另外，其转账功能不受任何限制，安全加密无人监管。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/A_BANK.jpeg)图片来源：www.bernama.com
+根据The Paypers3月21日报道，亚洲数字银行（Asia Digital Bank）宣布推出其A-Bank超级钱包，这是一款将传统金融服务与数字服务相结合的电子钱包。
 
-目前，第二代技术的交易成本是300-3000美金，即将到来的第三代成本为0.3美金。而随着区块链加密技术的逐渐成熟，交易成本将低至0.3分。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-72.jpg)
-现在，世界上的法币大多数是分地域，被国家和组织垄断并强制人们使用，定价权被牢牢掌控在权力手中。此外，法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。
+A-Bank超级钱包利用区块链点对点交易的概念、分布式账本和存储系统、加密算法和共识协议的概念，为跨境贸易和服务提供高效的支付解决方案和快速转账。
 
-因此，郭先生表示，躺平币回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，使用即是价值。
+该超级钱包声称是第一个提供法币和数字货币之间交换功能的电子钱包。其用户能够完全控制他们在电子钱包上的所有资产。A-Bank超级钱包的核心功能允许在岸和离岸存款、取款，以及实物货币和数字货币之间的兑换。
 
-参考链接：[大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://gettr.com/post/p10y5j870c5)
+在其第一阶段的运作中，A-Bank超级钱包支持五种货币，其中包括马币、新币、美元、人民币和港币及稳定币，如USDT和USDC。更多的法定货币和数字货币将在第二阶段加入，为用户提供更多选择。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+据亚洲数字银行称，用户可以灵活选择通过银行转账、电汇、Visa、万事达、JCB、银联国际、PayPal、支付宝全球、微信全球等方式完成离线或在线交易，如充值和提款。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源：[Asia Digital Bank launches its A-Bank Super Wallet](https://thepaypers.com/online-mobile-banking/asia-digital-bank-launches-its-a-bank-super-wallet--1255261)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

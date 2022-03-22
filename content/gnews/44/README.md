@@ -2,50 +2,79 @@
 ---
 
 
-## 拒绝交出马里乌波尔，乌克兰人道主义灾难进一步加剧
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2207942/)
+## 普京和他的暴徒们正在做的是种族灭绝。美国必须立即向乌克兰 提供他们赢得这场暴力战争所需的所有资源和飞机。
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2208164/)
 
-![In this satellite photo from Planet Labs PBC, multiple civilian buildings burn amid Russian strikes on the Livoberezhnyi District of Mariupol, Ukraine...](https://tnimage.s3.hicloud.net.tw/photos/2022/AP/20220321/0ac9ebb2466b4ab0b7ac6d89dd1a54c4.jpg)马里乌波尔卫星地图（AP)
-台湾英文新闻援引路透社3月21日乌克兰利沃夫报道，乌克兰周一拒绝了俄罗斯呼吁港口城市马里乌波尔投降的要求，那里的居民被围困，几乎没有食物、水和电力，激烈的战斗几乎没有缓和的迹象。
-
-《乌克兰真理报》新闻门户网站周一早些时候援引乌克兰副总理伊琳娜·韦列舒克(Iryna Vereshchuk)的话说，“不可能存在任何投降和放下武器的问题”。
-
-韦列舒克说，周日有超过7000人通过人道主义通道从乌克兰城市撤离，其中一半以上来自马里乌波尔。她说，政府计划周一派近50辆巴士前往那里进行进一步疏散。
-
-周日，乌克兰总统弗拉基米尔·泽连斯基(Volodymyr Zelenskyy)通过视频连接向以色列议会发表讲话，对以色列不愿意向乌克兰出售其铁穹(Iron Dome)导弹防御系统提出质疑，这是他对外求援的最新呼吁。
-
-夺取马里乌波尔将有助于俄罗斯军队获得通往莫斯科在2014年从乌克兰吞并的克里米亚半岛的陆地通道。普京说，俄罗斯的“特别行动”旨在解除乌克兰的武装，铲除“危险的民族主义者”。西方国家称这是一场选择性的侵略战争，并针对削弱俄罗斯的经济实施了惩罚性制裁。
-
-乌克兰及其西方支持者说，俄罗斯的地面部队在上周几乎没有取得进展，而是集中于炮击和导弹袭击。
-
-联合国人权办公室说，截至星期六，至少有902名平民被杀，但实际人数可能要高得多。
-
-联合国难民机构说，约有1000万乌克兰人流离失所，包括约340万逃往波兰等邻国的人。该地区的官员表示，他们已经到了能舒适安置难民的极限。
-
-在乌克兰南部城市赫尔松，路透社看到的视频显示，数十名抗议者，其中一些裹着乌克兰的蓝黄旗，用俄语向两辆带有俄罗斯标记的军车高呼“回家”。这些车辆转身离开。
-
-87岁的玛格丽特·莫罗佐娃(Margarita Morozova)说：“我希望战争结束，我希望他们（俄罗斯军队）和平地离开乌克兰。”她在第二次世界大战期间从纳粹德国的“列宁格勒围城战”(Siege of Leningrad)中幸存下来，过去60年一直住在乌克兰东部的哈尔科夫。
-
-简评：战争伤害的始终都是普通民众，上战争相互厮杀的也都是普通民众的儿女，我们永远不会看到普京的女儿和家人穿上军装上前线。俄罗斯的行事作风很像中共，为达目的不择手段，什么人权、尊严、生命、情感在普京的眼里都没有土地重要。普通人的生命只是用来谈判的筹码，一旦失去了这点价值，完全可以抛弃。
-
-俄乌战争中乌克兰人民勇敢无畏的反抗精神值得我们学习，在对抗俄罗斯保卫乌克兰的过程中，乌克兰人民也付出了巨大的伤亡。但历史无数次地告诫我们，不是只有战争才会导致死亡。权贵的内斗、饥荒、不同阶级的斗争和民族的冲突都会伴随着无数人的死亡。再看中共在中共国的极权统治造成的文革、大饥荒、内斗、因环境污染诱发的各种癌症、因不满社会而产生的各种报复社会的案件等等，所导致人的死亡总数早已远远超过由各种战争引发的伤亡。所以即便乌克兰选择投降，乌克兰人民也不一定有生存的机会，因为极权统治是造成这些灾难的根本原因，独裁者和独裁政府才是当代文明最大的绊脚石，只有把他们消灭，这个世界的灾难才可能得到最大程度的解决。
-
-新闻链接: [https://www.taiwannews.com.tw/en/news/4479776](https://www.taiwannews.com.tw/en/news/4479776)
-
-翻译/简评: kkoto(芬兰大灰狼)
-
-PR:Harvey（叶知秋）
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参议员瑞克·斯科特: 令人心碎而可怕的损失。 普京和他的暴徒们正在做的是种族灭绝。 美国必须立即向乌克兰提供他们赢得这场暴力战争所需的所有资源和飞机。 【转以色列时报：96岁的 (二战纳粹)大屠杀幸存者，在俄罗斯炮击哈尔科夫时丧生】
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> A heartbreaking and horrifying loss. What Putin & his thugs are doing is genocide. The United States must IMMEDIATELY give Ukraine all the resources & access to the planes they need to win this violent war. [https://t.co/d59OghEwcD](https://t.co/d59OghEwcD)
+> — Rick Scott (@SenRickScott) [March 21, 2022](https://twitter.com/SenRickScott/status/1506025185463394306?ref_src=twsrc%5Etfw)
+
+
+
+众议院共和党人： 必须阅读众议员史蒂夫·斯卡利斯[@SteveScalise](https://gettr.com/user/SteveScalise) 关于拜登在世界舞台上的软弱和反能源议程的观点文章： “当美国在能源上不再独立时，我们的国家和世界变得更加脆弱，更加依赖于坏分子。” **⬇️** 【附福克斯新闻：停止拜登对石油、天然气的战争——通过让美国、欧洲能源独立来对抗普京 美国可以再次成为全球能源领导者，为美国人和我们的盟友提供可靠的能源（斯卡利斯议员观点文章）】
+
+
+
+> MUST READ from [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) on Biden's weakness on the world stage and anti-energy agenda:
+> 
+> “When the United States is no longer energy independent, our country and the world become more vulnerable and more dependent on bad actors.” ⬇️[https://t.co/Rhi0Woaf06](https://t.co/Rhi0Woaf06)
+> — House Republicans (@HouseGOP) [March 21, 2022](https://twitter.com/HouseGOP/status/1506026614789922823?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯.古登： 普京以真相为由禁止俄罗斯人使用推特。 推特因一个笑话暂停了[@TheBabylonBee](https://twitter.com/TheBabylonBee)。 大科技公司喜欢表现得像个独裁者。
+
+
+
+> Putin banned Russians from Twitter over the truth.
+> 
+> Twitter suspended [@TheBabylonBee](https://twitter.com/TheBabylonBee?ref_src=twsrc%5Etfw) over a joke.
+> 
+> Big Tech loves acting like a dictator.
+> — Lance Gooden (@Lancegooden) [March 21, 2022](https://twitter.com/Lancegooden/status/1506042135174393865?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克.蓬佩奥： 通货膨胀每天都在杂货店和加油站那里影响着美国人。 保守的政策是解决这场经济危机的答案。 我们需要在今年 11 月的选票中选出强大的保守派。
+
+
+
+> Inflation is impacting Americans every day at the grocery store and gas station. Conservative policies are the answer to solving this economic crisis. We need to elect strong conservatives down the ballot this November.
+> — Mike Pompeo (@mikepompeo) [March 21, 2022](https://twitter.com/mikepompeo/status/1506030135547502597?ref_src=twsrc%5Etfw)
+
+
+
+美国国务院发言人内德·普莱斯： 乌克兰赫尔松手无寸铁的平民和平抗议俄罗斯的占领。俄罗斯军方的回应？向人群投掷手榴弹并射击。我们谴责克里姆林宫以平民为目标,并呼吁普京结束他的选择之战。[#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
+
+
+
+> Unarmed civilians in Kherson, Ukraine peacefully protest the Russian occupation. The Russian military’s response? Throwing a grenade and shooting into the crowd. We condemn the Kremlin’s targeting of civilians and call on Putin to end his war of choice. [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/A1P5RAq2HH](https://t.co/A1P5RAq2HH)
+> — Ned Price (@StateDeptSpox) [March 21, 2022](https://twitter.com/StateDeptSpox/status/1506032906447294470?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 我们绝不能忽视 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。他正在观察弗拉基米尔·普京(的行动)，还在认真做笔记。 【附Foxnews的文章：美国海军上将称 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 已将南海岛屿完全军事化】
+
+
+
+> We cannot take our eye of Xi Jingping and China. He’s watching Vladmir Putin and he’s taking notes.[https://t.co/dpPAJFApc0](https://t.co/dpPAJFApc0)
+> — Rep. Brian Mast (@RepBrianMast) [March 22, 2022](https://twitter.com/RepBrianMast/status/1506074933172088836?ref_src=twsrc%5Etfw)
+
+
+
+众议员马特·盖茨： 当人们醒来时，他们担心自己的工作、油价，以及送孩子去上学的能力因为蝠奇博士想要关闭学校。 美国的封锁和剥夺自由应该比以往更加受到国会的重视。
+
+
+
+> When folks are waking up, they're worried about their jobs, gas prices, and the ability to send their kids to schools that Dr. Fauci wants to close.
+> 
+> Lockdowns and deprivation of liberty in America ought to be more at the forefront of the minds of Congress than they have been. [pic.twitter.com/docBSgZK3F](https://t.co/docBSgZK3F)
+> — Rep. Matt Gaetz (@RepMattGaetz) [March 22, 2022](https://twitter.com/RepMattGaetz/status/1506093259021598721?ref_src=twsrc%5Etfw)
+
+
 
  
 

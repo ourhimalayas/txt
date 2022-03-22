@@ -2,39 +2,24 @@
 ---
 
 
-## 俄罗斯可能将对美国发动网络攻击
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2207918/)
+## 比特币去中心化骗局
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208017/)
 
-By：喜国公民
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有。其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化背道而驰，其根本是由极少数人大量持有且高度中心化。由于比特币热搞饥饿营销，市面上传说2100万是比特币的总数量，但这个数量没有任何机构来监管。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-73.jpg)
+事实上，货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本，比特币也不可能运维成本如此高昂的支付系统。没有流通没有支付，这些原因导致了比特币只能沦为洗钱的工具。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/G_News_GTV_gettr_png_copy-1.png)
+参考链接：[2022年3月20日 文贵大直播](https://gettr.com/post/p10y5j870c5)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2477.png)图片来自网络
-由于俄罗斯入侵乌克兰，西方国家对俄罗斯发起了历史上最严厉的制裁。面对西方的制裁，俄罗斯总统普京并没有让步。事实上，他正在变得更加疯狂，扬言要让西方世界承受代价。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-美国总统拜登周一警告说，俄罗斯将对美国进行网络攻击。他认为俄罗斯的网络能力的规模是相当大的，最有可能使用的工具之一就是网络攻击。拜登敦促美国公司，立即加强网络防御。
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-美国负责网络和新兴技术的国家安全副顾问安妮·纽伯格警告说，俄罗斯政府正在考虑对美国关键基础设施进行潜在网络攻击。
-
-然而，美国战略与国际研究中心技术主任詹姆斯·刘易斯认为，俄罗斯发起的网络攻击更可能是针对脆弱的第三方和关键的供应链。
-
-美国联邦机构已召集了多家美国公司，分享关于俄罗斯潜在网络攻击的新情报，并给企业提供了加强网络安全的工具。
-
-目前，美国还没得到情报证明具体的网络攻击，但正在积极地做好一旦遭受攻击的准备。美国政府将使用各种工具来阻止针对关键基础设施的网络攻击。
-
-历史上，俄罗斯在与其它国家的冲突中曾经展示过它的网络攻击能力。早在2008年，俄罗斯入侵格鲁吉亚和2014年入侵克里米亚时，乌克兰就成为俄罗斯网络行动的受害者。在2015年和2016年，由俄罗斯发动的网络袭击使乌克兰的电力中断了几个小时。
-
-俄罗斯有能力使用网络战来破坏对手的通信、组织和供应，这使得许多人预计它将在这场俄乌战争中部署这种策略。
-
-消息来源：[Biden warns Russian cyberattacks ‘coming’](https://www.politico.com/news/2022/03/21/biden-russia-cyberattacks-00018942)
-
-[Where is Russia’s cyberwar? Researchers decipher its strategy](https://www.nature.com/articles/d41586-022-00753-9)
-
-*审核：喜国公民*
-
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 
 
  

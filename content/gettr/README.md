@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 12:54 PM (UTC)`
+
+【Ukraine Rescue】03/21/2022 The number of refugees has decreased and we hope the war will end soon. Each group in the NFSC & ROLF's rescue team performs its own duties, responsible for on-site material delivery, filming equipment and live broadcast. Volunteers and security guards from the NFSC & ROLF provide services and protection to refugees in tents.<br/><br/>【乌克兰救援】2022/03/21 波乌边境Medyka难民数量有所减少，希望战争早日结束！前线救援战各个团队各司其职，负责现场物资运送和调配以及拍摄设备和直播。新中国联邦和法治基金的义工和保安为帐篷内的难民提供服务和保护。<br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group45/origin/2022/03/22/12/92f98000-699f-f88b-73cd-aa1c63039b27/out.jpg)
+
+---
+
 `@miles 3/22/2022 12:29 PM (UTC)`
 
 2022.03.22 早 《新中国联邦新闻》
@@ -147,13 +154,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 2022.03.21 晚 《新中国联邦新闻》新中国联邦必须坚持唯真不破;  中共攻打台湾几乎不可能引发第三次世界大战
 ![img](https://media.gettr.com/group32/origin/2022/03/22/00/92ca09d8-8c02-a80a-5c0a-cbca35e65b88/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/21/2022 11:53 PM (UTC)`
-
-2022.03.21《The Fringe》 Episode 151  New Hampshire Approves use of Ivermectin; Mr. Guo reiterates Zeng Qinghong’s recent movements; Elon Musk Challenges Putin; Will Putin Declare a Truce?
-![img](https://media.gettr.com/group20/origin/2022/03/21/23/2297e1d0-5299-ff85-369d-108662d7da80/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

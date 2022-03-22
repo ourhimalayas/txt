@@ -2,36 +2,30 @@
 ---
 
 
-## 中日财经爆|客机坠毁 东航港股和美股暴跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207773/)
+## 人类未来的去中心化货币叫做躺平币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208016/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/客机坠毁-东航港股和美股暴跌.png)[图片来源](https://gnews.org/wp-admin/post-new.php#/media/File:Airbus_A321-211,_China_Eastern_Airlines_JP6772920.jpg)
-3月21日，中国东方航空一架载有132人的波音737客机，在广西梧州市藤县坠毁，消息传出后，去年巨亏的东航港股和美股双双暴跌。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月20日，郭先生在大直播中透露，未来会有一个真正的去中心化货币，就是躺平币。
 
-3月21日尾盘，中国东方航空股份港股跳水大跌6.46%，报2.75港元/股，总市值1103亿港元。
+据悉，从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付购买任何所需。另外，其转账功能不受任何限制，安全加密无人监管。
 
-美股方面，东方航空盘前大跌超18%，截至发稿报19.03美元/股，总市值71.84亿美元。
+目前，第二代技术的交易成本是300-3000美金，即将到来的第三代成本为0.3美金。而随着区块链加密技术的逐渐成熟，交易成本将低至0.3分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-72.jpg)
+现在，世界上的法币大多数是分地域，被国家和组织垄断并强制人们使用，定价权被牢牢掌控在权力手中。此外，法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。
 
-业绩方面，由于受疫情及油价波动双重影响，航空业仍面临严峻挑战。
+因此，郭先生表示，躺平币回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，使用即是价值。
 
-东航预计，2021年归属于上市公司股东的净利润约-110亿元至-135亿元，扣非后归属于上市公司股东的净利润约为人民币-122亿元至-147亿元。
+参考链接：[大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://gettr.com/post/p10y5j870c5)
 
-2020年更是重创。根据财报，东航2020年营收586亿元，同比下滑51.48%；归母净利润亏损118亿元，同比下滑470%。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-截至2021年末，基金共持有中国东航3.8亿股股份，持股比例合计3.91%。
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/客机坠毁-东航港股和美股暴跌2.png)
-
-具体来看，共有21只基金重仓中国东航。其中广发基金12只基金重仓该股，广发基金王明旭管理的6只基金合计买入该股超过2.3亿股，林英睿管理的4只基金也合计买入超1.1亿股。
-
-3月21日，Wind航空指数收跌0.88%，吉祥航空（603885.SH）跌2.27%、南方航空（600029.SH）、\*ST海航（600221.SH）等多家下跌。
-
-消息来源：[**股价大跳水！东航预计2021年亏损147亿元，21只基金重仓**](https://www.tfcaijing.com/article/page/4865624c634631745673357a71373770615647592f673d3d)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

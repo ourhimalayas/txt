@@ -2,18 +2,22 @@
 ---
 
 
-## 樱花时政┃美将限制中共官员的签证
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2208534/)
+## 郭文贵先生在爆料中提醒过的那些事在日本逐渐显露
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2209189/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2494.png)[图片来源](https://foreignaffairsnews.com/us-toughens-visa-rules-for-chinese-communist-party-members/)
-美国国务卿布林肯3月21日表示，美国将限制中共官员的签证，因为他们对少数民族及少数民族的宗教信仰进行各种 “压迫行为”。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-136.png)（图片源自本文链接）
+３月２１日FNN综合在线消息：日本经济产业省（METI）刚刚宣布，东京电力公司服务区的用电量高于预期，预计晚上的电力供应将不足，要求各方合作，最大限度地节约电力。
 
-信息来源：[米、中国当局者のビザ制限へ　少数民族などへの「抑圧行為」巡り](https://news.yahoo.co.jp/articles/ab92a94ca7f8b933221f94b1f85c4d4296038514)
+另外，东北电力公司的服务区也有电力短缺的担忧，继东京电力公司的服务区之后，也发布了电力供需紧缩警告。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
+郭文贵先生曾在爆料直播中多次提醒，灾难将至，要做好停水、停电的准备！笔者认为这才是刚刚开始，有必要做好面对更大灾难的准备。
+
+信息来源：[【速報】東北電力管内も需給ひっ迫警報（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/2dafb1d3880073a8f6a3821382166d8580d47836)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
