@@ -2,42 +2,41 @@
 ---
 
 
-## 有声|马斯克战书改变人类文明和战争史
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211630/)
+## 巴西最高法院的裁决禁止使用Telegram
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2211699/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月20日，郭先生在大直播中表示，独裁者因为狂妄而对世界一无所知，马斯克对普京所下的战书是人类有史以来最牛的话，它改变了人类文明和战争史。
+作者：日本东京方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+![](https://9to5mac.com/wp-content/uploads/sites/6/2019/06/DDOS-attack.jpg?quality=82&amp;strip=all&amp;w=1500)图片来源：网络 
 
-郭先生说，普京最致命的问题之一是狂妄独裁，对世界有一种不真实的认知。就像当年毛泽东愚蠢的说出“与天斗、与地斗、与人斗，其乐无穷”的狂言，从而导致今日中共国大气、土壤和地下水全部被污染的恶劣状况。第二个原因，他输了在世界上最重要的科技，因为这场战争就是科技战争，和人无关只与科技有关。而普京与习近平则是两个无知至极的科盲混蛋。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-70.jpg)
-此外，在马斯克推文发出后，中共军方的一位女将军主动联系郭先生，表示要透露一些情况。因该推文让中共极为恐慌，中共被迫按下了暂停发射核武器的黄灯，并紧急通知全员到位开会研究对策。
+9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
 
-马斯克的推文表示，只要普京政府敢发射核武器，不论时间地点和数量，他都能改变核武器的轨道。郭先生认为，对这振聋发聩的几句话怎样形容它都不为过，甚至超过“耶稣复活”这四个字，人类的文明和战争史因此被彻底改变。而通过科技的力量，马斯克轻而易举的就拯救了75亿人的性命。
+巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
 
+当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
 
+巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
 
+目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
 
+新闻来源：[https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/](https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/)
 
-文字版原文：[马斯克战书改变人类文明和战争史](https://gnews.org/zh-hans/2208011/)
+编辑/校对/发稿：小小安
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-315.jpeg)
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

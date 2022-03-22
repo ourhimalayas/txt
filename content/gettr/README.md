@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 7:55 PM (UTC)`
+
+前线时间3月21日，<br/>目前因利沃夫遭受俄罗斯的轰炸，<br/>新中国联邦的利沃夫救援点紧急关闭，<br/>利沃夫的大巴车已经停运，<br/>当地救援小组合并到梅迪卡前线。<br/>梅迪卡前线感染中共病毒的战友已经阳转阴了很多位，<br/>感恩万佛万神的保佑。<br/>目前新中国联邦的救援行动已经得到了巨大的认可，<br/>被救援的乌克兰妇女儿童都在给国际组织和各国政府写信.<br/>Frontline Medyka time March 21，<br/>Due to Lviv is bombarded by Russian<br/>The emergency aid point of NFSC in Lviv has to be closed.<br/>The bus service in Lviv also has been halted.<br/>The local rescue team is merged to Medyka frontline.<br/>Many of infected buddies in Medyka have turned to negative.<br/>Thanks to the blessings of all the Buddhas, Gods and Goddess.<br/>Currently, the humanitarian aid from NFSC has received tremendous recognition,<br/>Many rescued Ukrainian women and children write letters to international organizations and various governments.
+![img](https://media.gettr.com/group7/origin/2022/03/22/19/307c5517-f44f-9154-ba01-146b3eac620c/out.jpg)
+
+---
+
+`@miles 3/22/2022 7:52 PM (UTC)`
+
+The NFSC is made up of new Chinese people who are committed to the taking down the Chinese Communist Party. Every volunteer works non-stop to take care of the influx of refugees.  Our efforts are acknowledged by all righteous people. Our rescue base receives donations of supplies from all over the world and our campfires bring warmth and love to everyone on the frontline. We are telling the world with our actions that the CCP is the root cause of the world's disasters and only by eliminating the CCP can we save all humanity.<br/>新中国联邦是由致力于消灭中共的新中国人组成的，为了迎接大量难民的涌入，每一位志愿者都在不停的忙碌。我们的努力得到了所有正义人士的认可，我们的营地收到来自世界各地捐赠的物资，我们的篝火给前线所有人带来了温暖和爱，我们用行动告诉世界，中共是世界灾难的根源，只有消灭中共才能拯救全人类。
+![img](https://media.gettr.com/group14/origin/2022/03/22/19/f3cd0030-60c5-255b-983e-a7bb972bcbfe/out.jpg)
+
+---
+
 `@miles 3/22/2022 7:02 PM (UTC)`
 
 
@@ -139,20 +153,6 @@
 
 3/20/2022 Miles Guo: Elon Musk’s Starlink has changed the future of humanity! This year will be the darkest year and also the most promising year of mankind! Putin and Xi will not be around next year. The whole world is investigating the Chinese colluding with the CCP. The US sanctions imposed on the CCP’s media outlets, state-owned enterprises, and communication companies will go beyond your imagination.<br/><br/>3/20/2022 文贵直播：马斯克的星链改变了人类的未来！今年是人类最黑暗的一年，也最有希望的一年！明年将看不到普京和习；全世界正在清查跟中共勾结的华人；美国对中共党媒、国企和通信企业的制裁将超出你的想象！<br/>
 ![img](https://media.gettr.com/group4/getter/2022/03/22/05/c9207d1a-a915-53da-8e3d-4e4bd94ee8a1/out.jpg)
-
----
-
-`@miles 3/22/2022 4:26 AM (UTC)`
-
-Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA, who is volunteering at the refugee camp in Medyka, the border city of Poland to help Ukraine people. Mr. Chicken dresses himself up like a chicken and having some kids smile. He felt very happy that he could do a little something to make some kids smile.<br/>新中国联邦，法治基金的记者精糧采访了来自美国肯塔基的小鸡先生，小鸡先生在波兰边境的梅迪卡的难民营做义工。他把自己打扮成小鸡，让一些孩子们很开心。他觉得自己做了一点小事让一些孩子微笑，自己也非常地开心。
-![img](https://media.gettr.com/group31/getter/2022/03/22/04/7504eab7-858b-1a0d-b198-bb984db59da9/out.jpg)
-
----
-
-`@miles 3/22/2022 3:53 AM (UTC)`
-
-3/20/2022 Miles Guo: The CCP will bomb Taiwan indiscriminately with cheap missiles that can’t even be defended with Elon Musk’s technology. The CCP can also create a major earthquake in Taiwan. Putin may reconcile with Ukraine or be taken out by those inside Russia. Even before Xi starts the war, Xi is already called a war criminal along with Putin. Putin being taken out will prompt the people around Xi to eliminate him.<br/><br/>3/20/2022 文贵直播：中共将用廉价导弹对台湾无差别轰炸，马斯克的技术也防不住；中共还能在台湾制造大地震；普京可能与乌克兰和解或被内部人干掉；习还没开战就跟普京一道被称为战犯；普京被做掉将促使习身边的人干掉他<br/>
-![img](https://media.gettr.com/group43/getter/2022/03/22/03/f3ecd35d-46f1-46e4-52ad-66ec690303cd/out.jpg)
 
 ---
 

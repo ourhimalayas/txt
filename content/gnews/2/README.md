@@ -2,29 +2,26 @@
 ---
 
 
-## 普京再次命令瓦格纳雇佣军刺杀泽伦斯基
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2212332/)
+## 俄军袭击基辅平民设施造成人员伤亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212354/)
 
-采编撰稿：加拿大温哥华扬帆农场  重生之鹰
+作者：东京方舟农场 Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-116.jpg)
+附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。 救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
 
+参考链接：[**BOMB BLITZ Shocking moment Russia blows up shopping centre with ballistic missile in latest brutal attack targeting civilians**](https://www.thesun.co.uk/news/worldnews/18017568/eight-civilians-killed-russian-attack-on-shopping-centre/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-1.png)
+总编: Zion文恩
+编辑: 宁文静
+审核：Zion文恩
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj.png)
 
-
-
-
-据有关报道，瓦格纳雇佣军组织受俄罗斯总统普京命令，再次前往乌克兰执行暗杀总统泽伦斯基的任务。瓦格纳集团是一个部署在世界各地为莫斯科从事肮脏勾当的600多名雇佣军集团。长期以来，克里姆林宫一直否认与瓦格纳集团有联系。但实际上这支部队是普京的个人暗杀小组。这次任务是自2月24日俄罗斯军队野蛮入侵乌克兰以来，瓦格纳组织和车臣特种部队试图杀害乌克兰总统的十几次行动中最新的一次，以前所有的尝试都以失败告终。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-37.jpg)
-
-到3月初，乌克兰总统泽伦斯基已经三次逃脱了由克里姆林宫支持的瓦格纳集团和车臣特种部队的追杀。这一次，特工收到了一份24人的暗杀名单”，其中包括乌克兰总理、整个内阁、基辅市长维塔利·克利钦科(Vitali Klitschko)和他的兄弟弗拉基米尔·普京(vladimir putin)等人，这些都是首都前线的标志性人物。
-
-**简评**：在遍地英雄、同仇敌忾的乌克兰，侵略者已经深陷泥沼，妄图用暗杀等卑鄙手段让乌克兰人屈服只会痴人说梦。普京发动的侵略战争，天时地利人和皆失，难以摆脱侵略战争必然失败的宿命！
-
-新闻链接：[https://www.dailymail.co.uk/news/article-10635419/Wagner-mercenaries-enter-Ukraine-assassinate-Zelensky-claims-Ukrainian-intelligence.html](https://www.dailymail.co.uk/news/article-10635419/Wagner-mercenaries-enter-Ukraine-assassinate-Zelensky-claims-Ukrainian-intelligence.html)
-
-*编辑/上传：文所未闻*
 
  
 
