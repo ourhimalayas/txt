@@ -2,30 +2,26 @@
 ---
 
 
-## 有声｜美联储很大几率在5月加息50个基点
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208685/)
+## 日本东京樱花团 中文新闻播报第28期
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2208813/)
 
-By:**秘翻新闻**
+新闻内容摘要：
 
-**2022-03-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-59.png)图片来源 网络
-[路透社纽约3月21日消息，美联储主席鲍威尔周一表示，美联储必须“迅速”采取行动，遏制过高的通胀。他补充称，如有必要，美联储的升息幅度会大于通常水平。
-似乎在暗示着美联储在5月召开的政策会议上，很有可能升息0.5个百分点。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+- 1.NFSC咖啡是新中国联邦带给文明世界的礼物
+- 2.战友前线救援最新消息
+- 3.俄乌前线最新消息
+- 4.新中国联邦在乌克兰前线进行救援，中共曾使用蓝金黄手段
+- 5.3月16日，美国总统拜登首称俄罗斯总统普京为“战犯”，
+- 6.乔·拜登和习近平在乌克兰战争爆发后首次相互交谈，讨论乌克兰战争
+- 7.新中国联邦正式走向世界政治舞台
 
-[在下午尾盘交易中，利率期货走势显示美联储5月加息50个基点至0.75%-1.00%区间的可能性为63%。不到一周前，美联储将利率上调25个基点至0.25%-0.50%。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-[而在缩表方面，鲍威尔重申了上周新闻发布会上的评论，称削减资产负债表的行动可能最早在下一次5月份会议上开始，但现在我们还没有做出决定。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+**播报：东京樱花团-NAN的曙光**
 
-[这也预示着在最为极端的情况下，美联储下次会议可能同时加息50个基点，并宣布缩减资产负债表的双重措施。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
-
-[此外，鲍威尔还表示，通胀前景在俄乌冲突前就已明显恶化。并警告称，东欧的战争和西方对俄罗斯经济的严厉制裁可能进一步加剧全球供应紧缺问题，同时用于制造一系列产品的关键大宗商品价格继续上涨。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
-
-秘翻新闻 Noemi 编辑报道
-
-发布 : 恩典
+**发布： 东京樱花团-eiei**
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+![此图像的alt属性为空；文件名为erweima.png](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

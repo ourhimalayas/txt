@@ -2,20 +2,25 @@
 ---
 
 
-## 有声｜一枚俄军导弹袭击了基辅的购物中心
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208664/)
+## 有声｜美联储很大几率在5月加息50个基点
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208685/)
 
 By:**秘翻新闻**
 
 **2022-03-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-53.png)图片来源 纽约时报
-[纽约时报3月21日报道，俄军的一次导弹袭击将基辅一个庞大的购物中心夷为平地。市政府官员表示，至少有八人遇难，死亡人数可能会因基辅北部Retroville购物中心的导弹爆炸而上升。导弹的威力是如此强大，以至于它震动了建筑物，并夷平了购物中心的一部分，把停车场变成了一片火海。](https://www.nytimes.com/live/2022/03/21/world/ukraine-russia-war)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-59.png)图片来源 网络
+[路透社纽约3月21日消息，美联储主席鲍威尔周一表示，美联储必须“迅速”采取行动，遏制过高的通胀。他补充称，如有必要，美联储的升息幅度会大于通常水平。
+似乎在暗示着美联储在5月召开的政策会议上，很有可能升息0.5个百分点。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-[周一，在罢工发生大约八个小时后，消防员仍在与火焰作斗争，而士兵和紧急救援人员则在瓦砾中寻找任何幸存者或伤亡人员。到当地时间早 8点，救援人员已经拉出六具尸体并用塑料覆盖，他们几乎找不到幸存者。](https://www.nytimes.com/live/2022/03/21/world/ukraine-russia-war)
+[在下午尾盘交易中，利率期货走势显示美联储5月加息50个基点至0.75%-1.00%区间的可能性为63%。不到一周前，美联储将利率上调25个基点至0.25%-0.50%。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-[整个基辅都参与了防御，一个曾经繁荣的大都市竟变成了堡垒。乌克兰武装部队在基辅周围发动了激烈的反攻，设法收复一些被俄军占领的地方。英国情报机构表示，俄军部队目前距离基辅市中心已经超过15英里，这座城市几乎不在炮兵射程之内，俄军转向使用火箭和导弹炸弹袭击民用基础设施和社区。](https://www.nytimes.com/live/2022/03/21/world/ukraine-russia-war)
+[而在缩表方面，鲍威尔重申了上周新闻发布会上的评论，称削减资产负债表的行动可能最早在下一次5月份会议上开始，但现在我们还没有做出决定。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-秘翻新闻 自由信仰 编译报道
+[这也预示着在最为极端的情况下，美联储下次会议可能同时加息50个基点，并宣布缩减资产负债表的双重措施。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+
+[此外，鲍威尔还表示，通胀前景在俄乌冲突前就已明显恶化。并警告称，东欧的战争和西方对俄罗斯经济的严厉制裁可能进一步加剧全球供应紧缺问题，同时用于制造一系列产品的关键大宗商品价格继续上涨。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+
+秘翻新闻 Noemi 编辑报道
 
 发布 : 恩典
 
