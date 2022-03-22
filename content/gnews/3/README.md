@@ -2,29 +2,31 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2211781/)
+## 海外假民运 欺民贼危害极大 各国政府已展开行动应对
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211859/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/72f8f53333ab6831-48.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-22.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-视频参看：
-[2022.03.22早 《NFSC新闻》](https://gettr.com/streaming/p11b9d1f206)
-[2022.03.22早《NFSC新闻访谈》](https://gettr.com/streaming/p11b170d9bb)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-21.jpeg)
+墙内很多被中共迫害到难以生存的人士，逃到海外后，不仅被共产党以猎狐的名义抓捕、威胁、劝回，同时会受到海外欺民贼骗财骗色。这些假民运分子都是打着反共的旗号，实际上为中共工作或勾结，现在各国政府已经开始意识到他们的危害，已展开相应的开法律行动。海外同胞必须要有认知，也要意识到共产党的危害。
+
+视频来源: 20220320—郭先生大直播
+视频制作: 文星光
+文案:文星光，梦田
 
 **更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
+**[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+
+
 
  
 

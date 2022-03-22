@@ -2,42 +2,35 @@
 ---
 
 
-## 有声|俄乌战争 普京必败
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211544/)
+## 上海某医院擅改方舱引发护士集体罢工
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211618/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山—Noemi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在2022年3月20日的大直播中，郭文贵先生谈到：这次俄乌战争中，普京有三个问题将导致他的失败。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-9.jpeg)
-首先，普京最大的问题是，独裁和狂妄导致他对世界有一种完全不真实的认知。
+盖特网友3月21日爆料，上海周浦公立医院内发生大规模护士罢工活动，抗议医院领导在新闻发布会上直接对外宣称将该院改建为方舱医院，而院内护士们的安全健康却得不到相应保障。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.54.09.png)
+据了解，周浦医院作为一家公立的三级乙等医院，是具有综合性质的普通诊疗医院，并非符合传染病隔离标准的特殊定点医院。院内知情人员爆料，院领导为了个人上位而仓促宣布，没有经过专业评估和改建，院内的防疫条件远达不到基本的生物安全要求。
 
-第二，普京没有认识到现在的世界，最重要的是科技，现代战争只跟科技有关，而普京和习对科技却一无所知。
+另据该院的一名护士控诉，周浦医院改建为方舱医院的决议上完全没有考虑护士的生命安全。据悉，该院要求护士进入危险污染区照顾病患，却不要求医生进入污染区内。此外，医院高层还将护士外出采样的补助全部贪污，一线护士们至今未能拿到一分钱的补贴。这是继上周上海六院护士不满院方安排的又一起医护人员抗议罢工事件。
 
-第三，马斯克可以用技术更改导弹的GPS密码，所以他敢公开向普京挑战：无论普京如何秘密发射核弹，他都有办法让这些核弹去到该去的地方。郭先生强调，马斯克这句话意义重大，标志着人类的战争方式已经彻底改变。
+参考链接：
+1.[周浦医院护士罢工，领导为了自己上位不管护士…](https://www.gettr.com/post/p1137lw98e1)
+2.[周浦医院医生护士罢工了…](https://www.gettr.com/post/p112peqb954)
 
-据中共军方内部人士向郭先生透露，马斯克住这句话让中共内部闻之色变，不得不全体紧急开会，研究对策。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
+编辑：宁文静
+总编：Zion文恩
+审核：Zion文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-
-文字版原文：[俄乌战争 普京必败](https://gnews.org/zh-hans/2201504/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

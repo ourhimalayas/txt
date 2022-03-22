@@ -2,35 +2,27 @@
 ---
 
 
-## 比特币是一场骗局 没有流通和支付 没有未来
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2207915/)
+## 国际｜俄罗斯地方法院裁定脸书母公司Meta为极端组织
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208301/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP.jpeg)
+**图/文：CP**
+**发布时间｜22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄羅斯地方法院裁定臉書母公司Meta為極端組織.jpg)
 
-
-
-比特币就是一个骗局，洗钱的工具。伊朗，中共，俄罗斯，华尔街，沼泽地拥有绝大多数的比特币，既是2%的人（前10大股东），拥有96%的比特币。
-
-比特币成本极高，交易一次3000美金起，喜联储的区块链技术不断革新，最终交易成本将由现在的300美元降到0.3分钱。比特币没有流通和支付，所以它没有未来。躺平币 会是真的去中心化的币，使用即所得，安全隐秘，零交易成本，打破现有货币的限制，交易畅通无阻。
-
-视频来源: 20220320—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田
-
-**更多资讯，更多关注**
-**[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
 
+俄罗斯莫斯科维特尔地方法院周一(21日)裁定Meta从事“极端活动”罪成，旗下脸书及Instagram(IG)为“极端组织”，禁止在俄罗斯运作。这是当地首次对海外科技企业，使用针对极端主义罪行的法律。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP.jpeg)
+Meta的律师庭上指，俄方没有权限裁定案件，因为Meta是海外注册公司，在当地没有业务，Meta暂时未就案件裁决作出回应，亦未知是否上诉。不过，Meta旗下即时通讯软件WhatsApp暂时不受影响，因为这款软件未有用作发布公开声明。
 
+自俄罗斯入侵乌克兰后，脸书因限制用户接触俄罗斯传媒，早前已被俄罗斯当局禁制，逾8,000万名用户受影响。Meta其后放宽仇恨言论政策，容许乌克兰等12个国家或地区用户发布对俄罗斯总统普京及俄罗斯士兵使用暴力言论，IG随后亦被封禁。Meta其后修订指引，禁止用户发布威胁暗杀国家元首的帖文。
 
+**来源｜**[**路透社**](https://www.reuters.com/technology/meta-asks-russian-court-dismiss-proceedings-extremism-case-reports-2022-03-21/)
 
+* * *
 
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

@@ -2,39 +2,38 @@
 ---
 
 
-## 为减少对俄天然气依赖 德国寻求与别国合作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211617/)
+## 新中国联邦会拿回 中共这些年藏在瑞士银行的中国人民的血汗钱
+` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2211714/)
 
-作者：紐約香草山教育部 Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-为惩罚俄罗斯普京政权对乌克兰的侵略战争，国际社会对俄罗斯的各项制裁和孤立日益加剧。据外媒消息，德国为避免在国防和外交上继续受制于俄罗斯，积极寻找替代的天然气来源，准备结束双方长达半世纪的能源关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午11.54.01.png)
-3月16日，德国经济能源部长哈柏克访问挪威，成功获挪威政府允诺今年夏天起将增加液化天然气出口，双方并约定对连接两国的氢气输送管进行研究。目前德国的天然气有30%来自挪威，仅次于俄罗斯排名第二。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
 
-3月20日，哈柏克在多哈与卡塔尔国王塔米姆会晤后宣布，双方已对长期的能源伙伴关系达成共识。不过，他没有透露双方约定的运量，只表示即将展开谈判。哈柏克还表示，德国准备协助卡塔尔兴建再生能源。
 
-卡塔尔是全球第二大液化天然气生产国，产量仅次于澳洲。
 
-结束卡塔尔行程后，哈柏克下一站将访问阿拉伯联合酋长国，讨论两国在绿色氢能的合作。
+瑞士的银行接收了很多邪恶轴心国独裁者的黑钱和脏钱，其中就有共产党藏在海外的几十万亿。
 
-参考链接：
-1.[Germany agrees gas deal with Qatar to help end dependency on Russia](https://www.theguardian.com/world/2022/mar/20/germany-gas-deal-qatar-end-energy-dependency-on-russia)
-2.[Germany, Norway agree tentative plan to build hydrogen pipeline link](https://www.euractiv.com/section/energy-environment/news/germany-norway-agree-tentative-plans-to-build-hydrogen-pipeline-link/)
+喜币会超过比特币，会超过瑞士的银行金融机构。喜联储保护个人财产，也为所有的钱保密，并且KYC杜绝了洗钱和黑钱的可能！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+新中国联邦一定会拿回，中共这些年藏在瑞士银行的中国人民的血汗钱。
 
-编辑：Zion文恩
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
+视频来源: 20220320—郭先生大直播
+视频制作: 文星光
+文案:文星光，梦田
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**[焦点20分GETTR](https://gettr.com/user/20minfocus)
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

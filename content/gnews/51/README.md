@@ -2,28 +2,18 @@
 ---
 
 
-## 国际｜俄罗斯地方法院裁定脸书母公司Meta为极端组织
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2208301/)
+## 樱花时政┃美将限制中共官员的签证
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2208534/)
 
-**图/文：CP**
-**发布时间｜22/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄羅斯地方法院裁定臉書母公司Meta為極端組織.jpg)
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2494.png)[图片来源](https://foreignaffairsnews.com/us-toughens-visa-rules-for-chinese-communist-party-members/)
+美国国务卿布林肯3月21日表示，美国将限制中共官员的签证，因为他们对少数民族及少数民族的宗教信仰进行各种 “压迫行为”。
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+信息来源：[米、中国当局者のビザ制限へ　少数民族などへの「抑圧行為」巡り](https://news.yahoo.co.jp/articles/ab92a94ca7f8b933221f94b1f85c4d4296038514)
 
-
-俄罗斯莫斯科维特尔地方法院周一(21日)裁定Meta从事“极端活动”罪成，旗下脸书及Instagram(IG)为“极端组织”，禁止在俄罗斯运作。这是当地首次对海外科技企业，使用针对极端主义罪行的法律。
-
-Meta的律师庭上指，俄方没有权限裁定案件，因为Meta是海外注册公司，在当地没有业务，Meta暂时未就案件裁决作出回应，亦未知是否上诉。不过，Meta旗下即时通讯软件WhatsApp暂时不受影响，因为这款软件未有用作发布公开声明。
-
-自俄罗斯入侵乌克兰后，脸书因限制用户接触俄罗斯传媒，早前已被俄罗斯当局禁制，逾8,000万名用户受影响。Meta其后放宽仇恨言论政策，容许乌克兰等12个国家或地区用户发布对俄罗斯总统普京及俄罗斯士兵使用暴力言论，IG随后亦被封禁。Meta其后修订指引，禁止用户发布威胁暗杀国家元首的帖文。
-
-**来源｜**[**路透社**](https://www.reuters.com/technology/meta-asks-russian-court-dismiss-proceedings-extremism-case-reports-2022-03-21/)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/12/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

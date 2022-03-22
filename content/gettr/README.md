@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 5:06 PM (UTC)`
+
+3月22日：九指妖．还有龟头杨．陈其生．必须为诈骗战友．应付的法律代价，必须让他们在监狱里团聚！
+> `@changdaobrother 3/22/2022 4:00 PM (UTC)`<br/>香草山农场代表战友们对九指妖团伙欺诈行为的民事诉讼取得重大胜利。<br/>3月14日，亚利桑那州联邦法庭作出判决认定九指妖及其同伙陈其声（海洋）无故拒绝到庭应答诉讼。因此以香草山农场为原告的诉讼可以在他们缺席的状况下继续进行（Finding of Default). 被告陈其声（海洋）在法庭决定的当天立即通过其律师向法庭递交了申请取消这一判决的动议。并表示愿意与香草山农场合作以避免进一步的不利判决。3月14日的法庭决定再次验证爆料革命新中国联邦人绝不会放过一个伪类欺民贼，正义可能会延迟但永远不会缺席！在此我代表联盟委员会和香草山农场向战友们的耐心和对我们工作的支持表示感谢。<br/>#nfsc新中国联邦 #milesguo #爆料革命 #nfscnews NFSCN
+![img](https://media.gettr.com/group10/getter/2022/03/22/16/7c5cdec9-63d2-19dc-c12e-461984f15f81/e4fe42663921ca21b3ac6151561028a0.jpg)
+
+---
+
+`@miles 3/22/2022 5:01 PM (UTC)`
+
+3月22日：【前 2 名最富有的 BTC 钱包持有 2% 的比特币 】https://www.zerohedge.com/crypto/top-2-richest-btc-wallets-holds-2-all-bitcoins
+
+---
+
 `@miles 3/22/2022 3:52 PM (UTC)`
 
 3月22号：尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！
@@ -140,20 +154,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 3/20/2022 The Lady (who can speak Ukrainian) read the Ukrainian Stickers to a rescue volunteer: We, the New Federal State of China, Stand with Ukrainian People! <br/><br/>2022年3月20日 这位会说乌克兰语的女士向救援志愿者朗读乌语的横幅贴纸内容：我们新中国联邦人与乌克兰人民站在一起！
 ![img](https://media.gettr.com/group24/origin/2022/03/22/02/f65589a0-db62-cda2-ad0d-fe932e5695e7/out.jpg)
-
----
-
-`@miles 3/22/2022 1:53 AM (UTC)`
-
-3/21/2022 Frontline fellow fighters visited the largest local refugee evacuation center (15-min drive away from Medyka)<br/><br/>2022年3月21日 前线战友去梅迪卡附近当地最大的难民疏散中心考察（车程15分钟）
-![img](https://media.gettr.com/group31/origin/2022/03/22/01/7fd119ee-b291-22cf-514e-4a38767563af/out.jpg)
-
----
-
-`@miles 3/22/2022 1:26 AM (UTC)`
-
-3/21/2022 Miles Guo’s GETTR: When it comes to the recent crash of the Boeing 737 in Communist China, please take it easy because aircraft accidents will be a norm after the COVID vaccine disaster begins. Last week, the over-the-counter trading of digital currencies was the busiest in the past 3 years. Changpeng Zhao has harmed numerous people who trade digital currencies at Binance only to swindle their money. The third generation of digital currency will obsolete Binance. Gold will not rise too much, nor will it be in circulation to save lives.<br/><br/>3/21/2022 文贵盖特：请大家用平常心看待最近中共国的坠机事件，疫苗灾难到来后这将是常态；上周数字货币场外交易达近3年最高；赵长鹏为了骗钱害了很多在币安搞数字货币的人；第3代数字货币将淘汰币安；黄金既会不大涨又无法流通救命<br/>
-![img](https://media.gettr.com/group31/getter/2022/03/22/01/5f736b2d-6233-e29c-02e3-555dbd36e7f5/out.jpg)
 
 ---
 
