@@ -2,11 +2,11 @@
 ---
 
 
-## 上帝审判的时刻到来了（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212673/)
+## 只要是人的钱，都应该安全和保密
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212702/)
 
-#### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1020-1030-2.jpeg)
+#### PPT制作: 小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句3--scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

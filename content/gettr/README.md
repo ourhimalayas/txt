@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 10:03 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-22
+![img](https://media.gettr.com/group22/origin/2022/03/22/22/eefecb5f-9eee-4958-c85f-8e0f4d111bf3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/22/2022 10:00 PM (UTC)`
+
+3/20/2022 Miles Guo: The Himalaya Coin safeguards the security and privacy of personal wealth and rejects bad actors. On the contrary, the Swiss financial institutions reject good people, whereas all the evil forces have hidden trillions of dollars of illicit wealth in Switzerland. Therefore, the Himalaya Coin will certainly surpass the Swiss banking and financial system.<br/><br/>3/20/2022 文贵直播：喜币保护个人财富的安全和隐私，把坏人拦在外面；但瑞士金融机构恰恰相反，好人进不去，世界上所有的邪恶势力都在瑞士藏匿万亿黑财富，所以，喜币必将超过瑞士的银行和金融系统<br/>
+![img](https://media.gettr.com/group4/getter/2022/03/22/21/887be111-6bae-a548-a0f1-c965eb1064b6/out.jpg)
+
+---
+
 `@miles 3/22/2022 8:30 PM (UTC)`
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
@@ -139,20 +153,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 【Ukraine Rescue】03/19/2022 A reporter from the Central News Agency of Taiwan interviewed volunteer Nicole. Nicole talked about the rescue work of the NFSC and the ROL Foundation and their mission to take down the CCP. The reporter said the NFSC and the ROL Foundation made a positive impact in rescuing the Ukraine people and she would support them in fighting for a free, democratic, lawful society in China.<br/><br/>【乌克兰救援】03/19/2022 台湾中央社记者采访在乌克兰救援的Nicole义工。Nicole介绍了新中国联邦和法治基金的救援工作，表明了推翻中共的立场。中央社记者表示新中国联邦和法治基金在乌克兰人道救援中发挥了正面作用，她支持新中国联邦和法治基金为中国人获得自由、民主、法治而做的工作。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group14/getter/2022/03/22/11/1016c7fe-eac8-8fea-3b4f-97c4fd368a76/out.jpg)
-
----
-
-`@miles 3/22/2022 9:48 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导
-![img](https://media.gettr.com/group39/origin/2022/03/19/07/f06d35cf-7986-c6be-74ae-c8a9479d1807/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/22/2022 9:47 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月21日第17天当日救援统计：<br/>Medyka救援站接待：约45人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7222人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 17 - Date: March 21, 2022 :<br/>Medyka Rescue Station Reception: about 45 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7222 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group29/getter/2022/03/22/09/dd7d5bc6-7a08-4cd6-9ef1-b4de0bfc3d04/e60acc755ce2107e1a0f0e8c70d6cc36.jpg)
 
 ---
 

@@ -2,28 +2,18 @@
 ---
 
 
-## 德国总统和挪威国王病毒阳性
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2212675/)
+## 中国人最缺乏的是什么？是对人的尊重
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212710/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+#### PPT制作: 小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句4--scaled.jpeg)
+*发布：陶子*
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/steinmeier-1099__v-gross20x9.jpg)
-
-
-图片来源：德新社
-
-联邦总统施泰因迈尔和他的妻子布登本德感染了冠状病毒。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YS2VIAA5SRIUXJCH3P37H332ZM.jpg)
-
-
-挪威国王今天被诊断出感染了新冠病毒。国王的症状较轻，未来几天将请病假，”挪威王宫说。85 岁的挪威君主自 1991 年以来一直担任挪威的正式国家元首。
-
-[https://www.tagesschau.de/newsticker/liveblog-corona-dienstag-119.html](https://www.tagesschau.de/newsticker/liveblog-corona-dienstag-119.html)
-
-[https://www.reuters.com/world/europe/norways-king-harald-tests-positive-covid-19-palace-says-2022-03-22/](https://www.reuters.com/world/europe/norways-king-harald-tests-positive-covid-19-palace-says-2022-03-22/)
-
-编辑发表： Shuizhuyu
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

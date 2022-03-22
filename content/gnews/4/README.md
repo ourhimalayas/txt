@@ -2,18 +2,23 @@
 ---
 
 
-## 上帝审判的时刻到来了（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212687/)
+## 中共国发生严重空难事故
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212711/)
 
-#### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1020-1030-3.jpeg)
-*发布：陶子*
+作者：加拿大温哥华扬帆农场 – 文莱
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2584.png)[China Eastern Boeing 737 crash (key.aero)](https://www.key.aero/article/china-eastern-boeing-737-crash)
+
+
+报道称，该架从昆明至广州，载有132位乘客的波音737航班在广西梧州附近坠毁，并引发坠机现场的森林大火。目前，东航所有737-800型飞机都被勒令停飞。
+
+尽管总部位于芝加哥的波音公司随后声明将彻查坠机原因，但其股价在当天的盘前交易中下跌超过8%。此外，在波音737MAX飞机此前发生过两次致命事故后，目前已在全球范围内停飞。但中共国却在去年批准重新使用该型号飞机，而使其成为737MAX飞机仅存的用户市场。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [Boeing 737 plane crashes in China | CTV News](https://www.ctvnews.ca/world/chinese-airliner-crashes-with-132-aboard-in-country-s-south-1.5827371)
 
  
 

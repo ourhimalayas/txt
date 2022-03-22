@@ -2,11 +2,11 @@
 ---
 
 
-## 上帝审判的时刻到来了（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212689/)
+## 新中国联邦在乌克兰前线的救援会成为史诗般的人类的奇迹
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2212719/)
 
-#### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220320-1020-1030-4.jpeg)
+#### PPT制作: 小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句5--scaled.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
