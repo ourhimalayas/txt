@@ -2,27 +2,45 @@
 ---
 
 
-## 马斯克战书改变人类文明和战争史
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2208011/)
+## 美国称中共在南海的3个基地现已全面军事化
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208070/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月20日，郭先生在大直播中表示，独裁者因为狂妄而对世界一无所知，马斯克对普京所下的战书是人类有史以来最牛的话，它改变了人类文明和战争史。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-郭先生说，普京最致命的问题之一是狂妄独裁，对世界有一种不真实的认知。就像当年毛泽东愚蠢的说出“与天斗、与地斗、与人斗，其乐无穷”的狂言，从而导致今日中共国大气、土壤和地下水全部被污染的恶劣状况。第二个原因，他输了在世界上最重要的科技，因为这场战争就是科技战争，和人无关只与科技有关。而普京与习近平则是两个无知至极的科盲混蛋。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-70.jpg)
-此外，在马斯克推文发出后，中共军方的一位女将军主动联系郭先生，表示要透露一些情况。因该推文让中共极为恐慌，中共被迫按下了暂停发射核武器的黄灯，并紧急通知全员到位开会研究对策。
+翻译/编辑：小红帽
 
-马斯克的推文表示，只要普京政府敢发射核武器，不论时间地点和数量，他都能改变核武器的轨道。郭先生认为，对这振聋发聩的几句话怎样形容它都不为过，甚至超过“耶稣复活”这四个字，人类的文明和战争史因此被彻底改变。而通过科技的力量，马斯克轻而易举的就拯救了75亿人的性命。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/f-subeef-a-20180526-870x489-1.jpg)图片来源： www.japantimes.co.jp
 
-参考链接：[独裁者因其狂妄对当代世界完全没有认知](https://www.gettr.com/post/p111rw29ba7)
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+根据自由亚洲电台3月21日报道，美国一位高级指挥官表示，中共已经将其在南海至少三个人工岛完全军事化，并为其配备了导弹系统和战斗机。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+美联社周日援引美国印太地区司令约翰·C·阿奎利诺（John C. Aquilino）上将的话说，在美济礁、渚碧礁和永暑礁的导弹库、飞机库、雷达系统和其他军事设施“似乎已经完成”。
+
+“这些岛屿的功能是扩大中共国的进攻能力。他们具有驾驶战斗机、轰炸机以及导弹系统的所有进攻能力，”阿奎利诺说，“中共威胁到所有在附近活动的国家以及所有国际海域和空域。”
+
+这与中共国国家主席习近平关于中共国不会将这些岛屿军事化的保证形成鲜明对比。
+
+根据总部设在华盛顿的，战略与国际研究中心的亚洲海事透明度倡议，中共自2013年以来，在南海至少开发了七个人工岛，共创造了3200英亩的新土地。
+
+这是美国官员第一次提到中共国在这些岛屿上部署战斗机，因为根据亚洲海事透明度倡议主任雷格·波林 (Greg Poling)的说法，“从来没有人在南沙群岛发现过战斗机。”
+
+2015年，在访问白宫时，习近平说：“中共国在南沙群岛进行的相关建设活动不针对、不影响任何国家，中国不打算追求军事化。”
+
+习近平还说，中共国“致力于维护南海的和平与稳定。”
+
+阿奎利诺告诉美联社，“在过去20年里，我们目睹了中共国自二战以来最大的军事集结。中共已经提高了所有能力，而武器化的积聚对该地区的稳定是不利的。”
+
+他还提到，任何飞越有争议性南海区域的军用和民用飞机“都很容易进入中共国岛屿导弹系统的射程之内。”
+
+新闻来源：[US says 3 China bases in South China Sea now fully militarized](https://www.rfa.org/english/news/china/southchinasea-militarized-03212022155943.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

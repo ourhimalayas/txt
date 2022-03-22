@@ -2,40 +2,30 @@
 ---
 
 
-## 美国因中共的“镇压行为”对其官员实施旅行禁令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208633/)
+## 有声｜美联储很大几率在5月加息50个基点
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208685/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-翻译/编辑：小红帽
+**2022-03-22**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-59.png)图片来源 网络
+[路透社纽约3月21日消息，美联储主席鲍威尔周一表示，美联储必须“迅速”采取行动，遏制过高的通胀。他补充称，如有必要，美联储的升息幅度会大于通常水平。
+似乎在暗示着美联储在5月召开的政策会议上，很有可能升息0.5个百分点。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/902026.jpg)图片来源：REUTERS/Hyungwon Kang
+[在下午尾盘交易中，利率期货走势显示美联储5月加息50个基点至0.75%-1.00%区间的可能性为63%。不到一周前，美联储将利率上调25个基点至0.25%-0.50%。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
+[而在缩表方面，鲍威尔重申了上周新闻发布会上的评论，称削减资产负债表的行动可能最早在下一次5月份会议上开始，但现在我们还没有做出决定。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-根据ALJAZEERA3月21日报道，美国总统乔·拜登（Joe Biden）政府正在对中共国官员实施旅行禁令，并指责这些中共官员镇压维吾尔族穆斯林以及其他少数民族和宗教少数群体。
+[这也预示着在最为极端的情况下，美联储下次会议可能同时加息50个基点，并宣布缩减资产负债表的双重措施。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-美国国务院周一宣布，禁止这些官员前往美国，因为他们参与了“镇压行为”，以及在中共国和国外对言论和宗教自由的镇压。
+[此外，鲍威尔还表示，通胀前景在俄乌冲突前就已明显恶化。并警告称，东欧的战争和西方对俄罗斯经济的严厉制裁可能进一步加剧全球供应紧缺问题，同时用于制造一系列产品的关键大宗商品价格继续上涨。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-该部门没有确定哪些官员将受到扩大禁令的限制，也没有说有多少人将受到影响。
+秘翻新闻 Noemi 编辑报道
 
-国务卿安东尼·布林肯在一份声明中说，制裁适用于那些“被认为对旨在镇压宗教和精神修行者、少数民族成员、持不同政见者、人权捍卫者、记者、劳工组织者、民间社会组织者以及中共国和其他地方的和平抗议者的政策或行动负有责任或与之同谋的中共国官员。”
+发布 : 恩典
 
-此举增加了美国前总统唐纳德·特朗普政府最初因中共对待新疆西部地区的维吾尔族穆斯林而实施的签证限制，以及对香港民主运动人士和西藏自由倡导者的镇压。
-
-联合国称，至少有100万维吾尔人被关押在新疆的所谓“反极端主义中心”。人权组织认为，中共对维吾尔人的待遇相当于种族灭绝和反人类罪。
-
-在拜登与中共国国家主席习近平通话的几天后，国务院的制裁措施就出台了，当时美中在乌克兰战争上的紧张关系不断加剧。
-
-新闻来源：[US hits Chinese officials with travel bans over ‘repressive acts’](https://www.aljazeera.com/news/2022/3/21/us-hits-chinese-officials-with-travel-bans-over-repressive-acts)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

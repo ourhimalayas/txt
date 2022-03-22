@@ -2,30 +2,39 @@
 ---
 
 
-## 有声｜美联储很大几率在5月加息50个基点
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2208685/)
+## 欧盟考虑对俄石油禁运仍存在分歧
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208883/)
 
-By:**秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-22**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-59.png)图片来源 网络
-[路透社纽约3月21日消息，美联储主席鲍威尔周一表示，美联储必须“迅速”采取行动，遏制过高的通胀。他补充称，如有必要，美联储的升息幅度会大于通常水平。
-似乎在暗示着美联储在5月召开的政策会议上，很有可能升息0.5个百分点。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+整理：gardeniahu
+编辑：围剿维尼熊
 
-[在下午尾盘交易中，利率期货走势显示美联储5月加息50个基点至0.75%-1.00%区间的可能性为63%。不到一周前，美联储将利率上调25个基点至0.25%-0.50%。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3051.jpg)图片来源：视觉中国
 
-[而在缩表方面，鲍威尔重申了上周新闻发布会上的评论，称削减资产负债表的行动可能最早在下一次5月份会议上开始，但现在我们还没有做出决定。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
 
-[这也预示着在最为极端的情况下，美联储下次会议可能同时加息50个基点，并宣布缩减资产负债表的双重措施。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+据路透伦敦3月21日报道，油价周一上涨超过7%，全球指标布兰特原油价格攀升至每桶115美元以上。布兰特原油期货结算价为每桶115.62美元，上涨7.69美元，或7.12%，美国原油期货结算价为每桶112.12美元，上涨7.42美元，或7.09%。
 
-[此外，鲍威尔还表示，通胀前景在俄乌冲突前就已明显恶化。并警告称，东欧的战争和西方对俄罗斯经济的严厉制裁可能进一步加剧全球供应紧缺问题，同时用于制造一系列产品的关键大宗商品价格继续上涨。](https://cn.reuters.com/article/powell-markets-reactions-0321-mon-idCNKCS2LJ02T?il=0)
+欧盟成员国讨论对俄罗斯实施石油禁运方面存在分歧。
 
-秘翻新闻 Noemi 编辑报道
+上周末，胡塞武装发动袭击，导致沙特阿美的一家炼厂炼油量暂时减少，这加剧了成品油市场的担忧。
 
-发布 : 恩典
+俄罗斯是石油市场的主要供应国，且全球库存处于多年低位。鉴于欧盟是否禁止俄罗斯石油进口的不确定性，美国汽油期货大涨5%。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+在俄乌冲突几乎没有缓解迹象的情况下，关注点重新回到市场是否有能力弥补俄罗斯石油制裁造成的打击。
+
+欧盟各成员国本周将与美国总统拜登举行一系列峰会，考虑是否因俄罗斯入侵乌克兰而对其实施石油禁运。这些峰会旨在加强西方对俄罗斯的回应。
+
+参考链接：[国际油市：油价急升逾7%，欧盟考虑对俄罗斯实施石油禁运](https://www.reuters.com/article/国际油市：油价急升逾7%25，欧盟考虑对俄罗斯实施石油禁运-idCNL3S2VO365)
+
+*发布：*Frank2021
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

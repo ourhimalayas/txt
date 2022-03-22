@@ -2,24 +2,31 @@
 ---
 
 
-## 亚洲数字银行推出A-Bank超级钱包
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208230/)
+## 新冠死者87%接种科兴疫苗，香港太平间不够棺材耗尽
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2208261/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A_BANK.jpeg)图片来源：www.bernama.com
-根据The Paypers3月21日报道，亚洲数字银行（Asia Digital Bank）宣布推出其A-Bank超级钱包，这是一款将传统金融服务与数字服务相结合的电子钱包。
+整理/编辑：文泓
 
-A-Bank超级钱包利用区块链点对点交易的概念、分布式账本和存储系统、加密算法和共识协议的概念，为跨境贸易和服务提供高效的支付解决方案和快速转账。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/90B120QESB7WTVVBNBA.png)图片来源：雅典娜设计组
 
-该超级钱包声称是第一个提供法币和数字货币之间交换功能的电子钱包。其用户能够完全控制他们在电子钱包上的所有资产。A-Bank超级钱包的核心功能允许在岸和离岸存款、取款，以及实物货币和数字货币之间的兑换。
 
-在其第一阶段的运作中，A-Bank超级钱包支持五种货币，其中包括马币、新币、美元、人民币和港币及稳定币，如USDT和USDC。更多的法定货币和数字货币将在第二阶段加入，为用户提供更多选择。
+香港第五波新冠病毒疫情依然严峻。3月21日据大纪元报道，有分析显示，已接种疫苗的死者当中，八成半以上选择了中国“科兴”疫苗。
 
-据亚洲数字银行称，用户可以灵活选择通过银行转账、电汇、Visa、万事达、JCB、银联国际、PayPal、支付宝全球、微信全球等方式完成离线或在线交易，如充值和提款。
+香港这第五波中共病毒疫情持续两个多月，不完全统计接近6千人死亡。香港医院管理局分析了当中5100多起个案，显示近1300人生前已注射疫苗，选择了中国国产的“科兴”多达87%。
 
-新闻来源：[Asia Digital Bank launches its A-Bank Super Wallet](https://thepaypers.com/online-mobile-banking/asia-digital-bank-launches-its-a-bank-super-wallet--1255261)
+目前中国大陆最少有五款新冠疫苗获批准使用，受制于资讯封锁，民众在注射疫苗上只能处于被动。
+
+信心的封锁和加之专业知识的匮乏，民众只能被动或者被迫接受官方的安排。很多民众担心，不服从政府强推注射疫苗的话，会给自己工作和安全带来麻烦。
+
+上周三，由于致命的奥密克戎激增导致香港的太平间空间不足，香港穿着PPE隔离服的工人将冠状病毒受害者的尸体运送到冷藏集装箱中。
+
+一位殡葬业代表告诉当地媒体，死亡人数飙升导致该市棺材供应紧张，仅剩 300具棺材，预计将在周末耗尽。
+
+新闻链接：
+
+1、[香港新冠死者87%接种科兴 消息封锁民众对疫苗一无所知](https://www.rfa.org/mandarin/yataibaodao/huanjing/gf2-03212022100702.html)2、[Morgues overflowing as Hong Kong suffers deadly COVID-19 wave | Asia – Gulf News](https://gulfnews.com/world/asia/morgues-overflowing-as-hong-kong-suffers-deadly-covid-19-wave-1.1647432139724)
 
 发布：tianzhihuan
 
