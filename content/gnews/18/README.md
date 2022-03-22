@@ -2,17 +2,13 @@
 ---
 
 
-## 20220320文贵大直播：莫德维杰夫将军被干掉，对中共的影响有多大
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2207809/)
+## 中共通过采购大宗商品对俄实行物质支援
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2207847/)
 
-作者:东京樱花团小视频组
+03/20/2022 章家敦说，中共正在以采购大宗商品的方式，为俄罗斯入侵乌克兰提供物资援助，拜登政府应制裁中共。
 
-校对：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-编辑发布：东京樱花团小视频组
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

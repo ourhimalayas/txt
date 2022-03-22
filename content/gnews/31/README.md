@@ -2,10 +2,10 @@
 ---
 
 
-## 中国东方航空一架载有132人的波音737客机坠机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207461/)
+## 37家日本上市企业暂停在俄业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207462/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220322-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220322-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)

@@ -2,41 +2,33 @@
 ---
 
 
-## 中共内部文件：香港在2010到2035年之间可能发生大地震
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2207969/)
+## 北约称俄乌战争即将进入相持阶段，拜登称俄罗斯正考虑使用生化武器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2207986/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16479181331.png)图片来源：MoneyControl
+据《新闻极限》3月21日报道，一位北约高级情报官员周一告诉NBC（美国全国广播公司新闻网），俄罗斯对乌克兰的入侵要么处于相持阶段，要么即将进入相持阶段。
 
+这位匿名情报官员说：“如果我们没有陷入僵局，我们也正在迅速接近僵局，现实情况是，双方都不具备对另一方的优势，任何一方都无法获胜，并且双方都不会认输。”。
 
-![](https://assets.gnews.org/wp-content/uploads/2020/05/Picture-1-37.png)
+这位北约官员指出，俄罗斯总统普京（Vladimir Putin）的战争在两周内没有取得重大进展，但他似乎仍然不愿意退缩。
 
-郭文贵先生在3月16日盖特中提到，深圳14日的地震，香港有强烈震感。他指出，香港的建筑从来不重视防震，面积不大的楼也能盖到几百米高，房子的抗震性能相当于一根棍子立在鼻子上那么脆弱。如果香港发生地震造成的死亡几乎跟被核弹攻击一样可怕。如果深圳发生大地震，香港就会变成坟墓。
+该官员进一步声称，白俄罗斯可能很快就会加入俄罗斯的入侵行动，并准备让俄罗斯在其境内部署核武器。
 
-郭先生称，他亲自看过中共的一份内部文件，中共在1988年曾对香港的地质状况进行过分析，结果显示香港在2010年到2035年间将会有一次强烈地震。
+另据《新闻极限》报道，周一，拜登在一个商业圆桌会议上说，普京“没有退路，情况危急，现在他正在谈论他计划的新的栽赃行动，包括声称我们美国在欧洲有生物和化学武器，这根本就不是真的”。
 
-郭先生指出，这次深圳地震香港有强烈震感，表明中共在香港的累累恶行引得天怒地怨，可能给香港召来更大的灾难。愿上天保佑我们的圣城能遇难呈祥，早日脱离中共魔爪。
+拜登指出，“他们（俄罗斯）还暗示乌克兰有生物和化学武器。这是一个明显的信号，他（普京）正在考虑（在乌克兰）使用这两种武器”。
 
-参考链接：
+文章指，拜登的这番话呼应了美国和盟国官员之前的评论，即俄罗斯散布未经证实的说法，称乌克兰有一个生物武器计划，目的是为自己发动生物或化学武器攻击寻找借口。
 
-[https://gettr.com/post/p10aie8d8ab](https://gettr.com/post/p10aie8d8ab)
+*责编：白夜*
 
-编辑/校对/发稿：有莫举名
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-317.jpeg)
+[NATO Official: Russia-Ukraine War ‘Rapidly Approaching’ a Stalemate](https://www.newsmax.com/newsfront/russia-ukraine-sanctions-nato/2022/03/21/id/1062251/)
 
-**更多资讯，更多关注**
+[Biden Says Putin Is Weighing Use of Chemical Weapons in Ukraine](https://www.newsmax.com/newsfront/chemicals/2022/03/21/id/1062257/)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

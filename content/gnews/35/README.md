@@ -2,22 +2,47 @@
 ---
 
 
-## 樱花时政┃俄乌战争让日本安全政策面临转变
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2207169/)
+## 专家呼吁研究新冠疫苗与耳鸣之间的可能联系
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2207255/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-109.jpg)（图片来源于本文链接）
-俄乌战争让日本的国防战略得到重塑，以应对中共国在这一地区的扩张。在俄罗斯2014年进攻乌克兰吞并克里米亚，日本的反应冷淡，但这次东京与西方盟友步调一致，祭出了前所未有的制裁措施和强硬的表态，还提供了非致命性的军事装备援助。资深研究员哈里斯认为，日本采取诸如个人制裁等行动的速度“令人刮目相看”，远超出其对东京政府的之前的设想。日本对俄罗斯寡头实施了制裁，冻结了俄罗斯银行的资产，还取消了俄罗斯的贸易最惠国待遇。
+#### 【雅典娜观察】和您一起洞察世界
 
-过去，因为北方四岛领土归属问题，日本担心对俄罗斯的过激行动可能导致莫斯科投向北京的怀抱，但“现在情况完全调转”，目前的观点是日本必须对俄态度强硬，否则就是开了一个不好的先例，这样让中共国认为可以效仿俄罗斯。从短期看，日本将在今年晚些时候发布的国家安全战略中彻底修改其对俄罗斯的立场。“毫无疑问，俄罗斯将被表述为威胁，这将彻底改变之前的模糊态度，乌克兰战争可能会增加那些呼吁增加国防开支的人士的底气。自民党在去年的选战中制定了一个长期目标，即把国防预算从传统的占GDP比例的1%提高到超过2%，鉴于和平宪法的限制，日军获得诸如攻击型无人机首次打击如何还击讨论一直存在，然而对那些希望日本有更强大的国防力量的人士来说，来自乌克兰的抗争对他们是大有裨益的。”
+翻译：文法
+编辑：文泓
 
-信息来源：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/KD3KPGTCRF7DLCTHM3B.png)图片来源：7News & 雅典娜设计组
 
-[乌克兰战争下日本安全政策面临转变 – DW](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E4%B8%8B-%E6%97%A5%E6%9C%AC%E5%AE%89%E5%85%A8%E6%94%BF%E7%AD%96%E9%9D%A2%E4%B8%B4%E8%BD%AC%E5%8F%98/a-61199803)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+受到哨子声的影响让波兰医生格雷戈里第二次在开车回家的时候差点偏离道路。
+
+“我以为狗哨就在我身边响起，”波兰医生怀疑这是疫苗的一个副作用。
+
+整个医学界尚无法证明他接种的mRNA新冠病毒疫苗与突然出现的耳鸣有关，耳鸣声响可以是持续的或间歇性的。
+
+美国疾病控制和预防中心和疫苗制造商通过疫苗不良事件报告系统（VAERS）等项目对冠状病毒疫苗接种后的耳鸣传闻进行了调查，但没有发现原因或证据。
+
+**约翰霍普金斯大学医学院的一项研究分析了一份555页的VAERS报告，该报告称听力损失可能与2020年12月中旬至2021年7月中旬在美国使用的三种冠状病毒疫苗中的任何一种相关。**
+
+上个月发表在同一份JAMA刊物上的另一项研究发现，在注射辉瑞公司新冠疫苗后，听力损失略有增加。
+
+辉瑞公司在给NBC新闻的一份声明中说：“已经对耳鸣病例进行了调查，与疫苗的因果关系没有确定。”
+
+根据强生公司的声明，在新冠疫苗的3期临床试验中，耳鸣被确定为一种不良事件，但也声称不能“确定与疫苗注射的因果关系”。
+
+莫德纳公司没有对一些评论请求作出回应。
+
+“目前，安全监测数据尚不足以得出结论，疫苗接种和耳鸣之间存在因果关系，”CDC官员在一份声明中说。
+
+新闻链接：[COVID vaccine side effects: Expert calls for research into possible link between mRNA and tinnitus after after unrelenting pain | Candy Bazaar](https://inc.candybazaar.com/covid-vaccine-side-effects-expert-calls-for-research-into-possible-link-between-mrna-and-tinnitus-after-after-unrelenting-pain/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
