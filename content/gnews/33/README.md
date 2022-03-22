@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|中共攻打台湾几乎不可能引发第三次世界大战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2211614/)
+## 瑞士银行俄罗斯客户的天价存款远超信贷风险
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2211783/)
 
-配音：香草山佛教部 – 李傻
+作者：香草山农场教育部–柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月20日的大直播中，郭文贵先生表示，习近平攻打台湾而引发第三次世界大战的可能性极小，而美国会毫无悬念的成为最后赢家。
+据外媒3月17日消息，瑞士的银行持有多达2,130亿美元的俄罗斯客户资金，远远大于几家金融公司评估的资产负债表上的风险敞口。这为通过金融手段有效制裁俄罗斯提供了信心。
 
-郭先生认为，在中共攻打台湾的时候，其他的邪恶国家诸如朝鲜、伊朗同时发动战争，从而引发所谓的第三次世界大战的可能性微乎其微，因为美国的实力对付这些流氓国家绰绰有余，只是损失大小的问题。虽然邪恶轴心国可以挑起战争，但是战争结束的时间和方式却由美国决定。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-69.jpg)
-至于巴基斯坦的伊姆兰.汗，以及伊朗的哈梅内伊等与中共亲近的独裁者，很快会被消灭。而普京也用铁的事实验证了一个道理，即相信共产党，必然走进火葬场。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-7.jpeg)
 
+据瑞士银行家协会SBA估计，上述银行在离岸账户中持有1,500亿至2,000亿瑞郎，即2,130亿美元的俄罗斯财富。这使得最初对制裁俄罗斯可能面临信贷风险的担心，显得多余。瑞士最大的两家银行上周详细介绍了对俄罗斯的 “有限 “风险敞口，其中最大的瑞银集团表示，自年底以来，已经削减了6.34亿美元的直接风险敞口。瑞士信贷首席执行官托马斯表示，瑞士第二大银行为富裕客户管理的资产中约有4%属于俄罗斯人，金额达数百亿美元，这远远大于瑞士信贷年报中的8.48亿瑞士法郎的净信贷风险。
 
+SBA的披露对瑞士来说是罕见的。因为在上个月俄罗斯入侵乌克兰之后，瑞士采取了不寻常的举措，同意放弃中立立场，针对俄罗斯实施欧盟的金融制裁措施。随着制裁清单不断加长，银行发现受到审查的俄罗斯客户资金，远远超出了它们所发放的贷款或从俄罗斯子公司可能导致资产负债表损失的业务。瑞银CEO拉尔夫·哈默斯说，瑞银不仅对当前的合规性寻求保护，也在为未来可能面临的处罚规避风险。
 
+参考链接：[Russians have up to $213 billion stashed offshore in Swiss banks](https://www.reuters.com/world/europe/russians-have-up-213-billion-stashed-offshore-swiss-banks-2022-03-17/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-文字版原文：[中共攻打台湾几乎不可能引发第三次世界大战](https://gnews.org/zh-hans/2208007/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+审核/总编：Zion文恩
+编辑：宁文静 
+校正/发稿：谐趣园
 
  
 

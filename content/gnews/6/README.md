@@ -2,24 +2,22 @@
 ---
 
 
-## 2022年3月22日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2212262/)
+## 喜币将拯救全人类并释放所有生产力
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2212352/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**中共的杀戮还在继续……**
+采编撰稿：晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0543.jpg)
+文贵先生在3月20日的大直播中透露，喜币未来会跨越地域垄断，没有任何组织可以定价，完全遵循“使用即价值”的原则和“法币与数字币共存”的机制。它的出现将对现行货币流通体系是一个颠覆性改变。
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-55.png)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+喜币将实现生产力、贸易以及商品间，真正无国界、无任何物理限制的公平交换。未来当它出现在公链上，支付系统完全公开化的时候，其定价会真正由供需双方来决定。它也可以与美元、日元、欧元等币种绑定，成为合法的稳定币，并且是无成本的流通。
+
+这就避免了以往国家、地区间对生产力定价权的争夺，使人类实现长久和平成为可能，因此它将是拯救人类的。它也将会因此而释放出所有生产力，实现人类真正意义上的自由。
+
+新闻来源：[https://gettr.com/streaming/p10y5j870c5](https://gettr.com/streaming/p10y5j870c5)
+
+*编辑/上传：文所未闻*
 
  
 

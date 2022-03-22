@@ -2,40 +2,26 @@
 ---
 
 
-## DC每日热点0322
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2212330/)
+## 俄军袭击基辅平民设施造成人员伤亡
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212354/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/03/78B4619C-ECC7-4DDB-A66E-D7154D332E87-scaled.jpeg)
-道琼斯指数 34826.76 ▲0.79%
-纳斯达克指数 14005.38 ▲1.21%
-WTI纽约原油CFD 108.297▼1.52%
-布伦特原油CFD 110.687 ▼1.03%
-标普50指数 2,370.25▼56.53%
-美元兑人民币 1USD=6.363 RMB
-美元兑港币 1USD=7.826 HKD
-国际黄金 1913.20美元/盎司
-全球CCP病毒感染人数473,002,961例
+作者：东京方舟农场 Miyali7768(文玉)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-116.jpg)
+附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。 救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
 
-1、中共国也研发极音速武器 30马赫风洞今年启用
-2、美国强烈警告俄罗斯可能动用生化武器
-3、英国考虑禁止国民保健服务购入新疆医疗产品
-4、美国商务部长雷蒙多21日释放信号，支持提高对美国投资者投资中共国技术领域的限制
-5、美宣布对参与侵犯人权和压制宗教等自由的中共国官员施加签证限制
-6、美国正式认定缅甸军方实施了种族灭绝
-7、香港特首宣布暂缓全民强检
-8、中共国要求微软必应暂停自动建议功能
-9、台湾国防部：解放军强化对台“实战化”演训对台湾安全形成挑战
-10、民调显示绝大多数日本人忧虑中共国效仿俄罗斯会入侵台湾
-11、恒大三支股票周一在港股再次暂停交易 或有重大消息待发
-12、法国向战火蹂躏的乌克兰提供55吨人道物资援助，巴黎授基辅荣誉公民城市殊荣
-13、日本首相强烈抗议俄罗斯单方面停止日俄缔结和平条约谈判
-14、马绍尔总统柯布亚面告蔡英文将敦促联合国勿再排除台湾
-15、美国驻德国大使批中共国实际站队普京一边
-16、欧盟讨论对俄第五套制裁 涉能源限制
-17、德外长：欧盟对乌克兰的军事援助资金将增至10亿欧元
-18、美将其秘密获得的前苏联防空系统援助乌克兰
-19、负债斯里兰卡希望再向中共国借贷25亿美元
+参考链接：[**BOMB BLITZ Shocking moment Russia blows up shopping centre with ballistic missile in latest brutal attack targeting civilians**](https://www.thesun.co.uk/news/worldnews/18017568/eight-civilians-killed-russian-attack-on-shopping-centre/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编: Zion文恩
+编辑: 宁文静
+审核：Zion文恩
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/e8ebk2mhwvrxn7byspwj.png)
+
 
  
 

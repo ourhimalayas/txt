@@ -2,41 +2,50 @@
 ---
 
 
-## 巴西最高法院的裁决禁止使用Telegram
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2211699/)
+## 美元兑日元触及6年高位
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2211874/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-![](https://9to5mac.com/wp-content/uploads/sites/6/2019/06/DDOS-attack.jpg?quality=82&amp;strip=all&amp;w=1500)图片来源：网络 
+3月22日日本共同社报道，周二，美元在东京攀升至120日元区间，这是2016年2月以来的首次，此前美国联邦储备委员会暗示将进一步提高关键利率以应对飙升的通胀，而东京股市收于一个多月来的最高点。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Y.png)teknotopnews.com
+下午5点，美元兑120.47-48日元，周一下午5点在纽约的报价为119.43-53日元。
 
-9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
+欧元报价为1.0983-0984美元和132.32-36日元，周一下午晚些时候在纽约报价为1.1010-1020美元和131.57-67日元。
 
-巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
+由225种股票组成的日经平均指数比上周五上涨396.68点，或1.48%，达到27,224.11点，是2月17日以来的最高水平。日本金融市场周一因全国性假日而关闭。
 
-当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
+东京证券交易所所有第一部股票的广泛Topix指数上涨24.47点，或1.28%，报1,933.74点。
 
-巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
+矿业、保险和批发贸易股领涨。
 
-目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
+交易员说，美元兑日元最近的强势是由日本和美国的利率差异扩大的前景推动的。
 
-新闻来源：[https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/](https://9to5mac.com/2022/03/18/telegram-banned-in-brazil-following-supreme-court-order-app-may-be-removed-from-app-store/)
+美联储主席杰罗姆·鲍威尔（Jerome Powell）周一发表讲话，暗示美国央行可能在5月份将其关键的短期利率提高0.5%。这是自2000年5月以来美国央行从未做过的事情，这对美元走强起到了推波助澜的作用。
 
-编辑/校对/发稿：小小安
+他的讲话是在美联储决定自2018年以来首次加息，放弃近零利率政策并将基准利率目标区间提高0.25%之后几天发表的，因为美国正在与40多年来最严重的通胀作斗争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-315.jpeg)
+法国农业信贷银行（Credit Agricole Corporate & Investment Bank）驻东京的外汇部门主管斋藤雄二（Yuji Saito）表示，在能源价格持续上涨的情况下，鲍威尔对如何应对通货膨胀的明确立场助长了投资者对美元的追捧。
 
-**更多资讯，更多关注**
+斋藤说，美元快速上涨，两周内上涨了约5日元，日本央行行长黑田东彦（Haruhiko Kuroda）周五发表的意见也为美元提供了支撑，黑田东彦表示，弱势日元对日本经济是一种积极的资产。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+他补充说，在美元突破120日元的门槛后，交易商可能会加大买入力度，以测试125日元一线。
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+在股票市场，日经指数将其连胜纪录延长至六天，因为日元贬值刺激了投资者购买出口型股票。更广泛的Topix指数达到2月16日以来的最高水平。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+分析师们说，股市还受到了美国股市将继续其近期上涨趋势的预期的支持。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+然而，瑞穗证券（Mizuho Securities Co.）的高级技术分析师三浦友孝（Yutaka Miura）表示，东京市场头重脚轻，因为美国股票期货在下午转为负值，同时对日元疲软和原油价格上涨对日本经济的双重影响的担忧增加。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+**快评**：因预期美联储将加速加息，美元兑日元6年来首次达到120区间，日元贬、美元升。
+
+郭先生最近说过，历史上美元进入升值期就伴随着战争，战争逼世界各地的资金流入美国。这次俄乌战争之后，最大的赢家还是美国。但美元在这两年内超发严重，因此丧失了美元的信用，美国也已经意识到这个问题的严重性，近期频频行动，将目光放到了数字货币上。
+
+相信郭先生的都知道，喜联储的喜马拉雅币将是数字货币的标准和未来。
+
+参考链接：
+[https://english.kyodonews.net/news/2022/03/7a024de8f5a0-urgent-us-dollar-hits-120-yen-highest-level-in-6-years.html](https://english.kyodonews.net/news/2022/03/7a024de8f5a0-urgent-us-dollar-hits-120-yen-highest-level-in-6-years.html)
+
+**编译 发布：意大利罗马达芬奇农场Roma**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,31 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2211781/)
+## 【秘翻时评】俄乌战影响小麦出口 印尼国民泡面断货
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2211928/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/72f8f53333ab6831-48.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-22.png)
-文章仅代表作者本人观点，与Gnews无关
+By:**[秘翻时评](https://gettr.com/post/p11ah0q051b)**
 
-视频参看：
-[2022.03.22早 《NFSC新闻》](https://gettr.com/streaming/p11b9d1f206)
-[2022.03.22早《NFSC新闻访谈》](https://gettr.com/streaming/p11b170d9bb)
+**[2022‑03‑22](https://gettr.com/post/p11ah0q051b)**
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+**晚間新聞：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-21.jpeg)
+1.俄乌战影响小麦出口 印尼国民泡面断货
+2.白俄工人切断铁路阻俄军往乌运输 中共国微博大V造谣污蔑
+3.台湾物流仓库再传火灾
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场**** | Discord**](https://discord.gg/ChqXAHd)
+**時評內容：**
 
+欧洲多国积极为乌克兰人提供就业机会
+疫苗灾难到来，平常心看待中共国坠机事件
+数字货币场外交易创新高，第3代数字货币将淘汰币安
+
+Gettr鏈接：[**https://gettr.com/post/p11ah0q051b**](https://gettr.com/post/p11ah0q051b)
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
