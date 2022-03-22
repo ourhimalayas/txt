@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 2:35 AM (UTC)`
+
+3/21/2022 Miles Guo: Bruno Wu, Cheng Shuiyan, Boxun, and those fake pro-democracy activists will certainly be investigated and indicted. If fellow overseas Chinese still cannot wake up, they’ll be in serious trouble. The New Federal State of China is our sole Noah’s Ark.<br/><br/>3/21/2022 文贵直播：吴征、程水炎、博讯还有那些砸郭的所有欺民贼伪民运一定会被美国政府调查；海外华人再不醒来，你的灾难已经到来，唯一的诺亚方舟就是新中国联邦！<br/>
+![img](https://media.gettr.com/group21/getter/2022/03/22/02/7c86e09f-fab3-94d0-3c7e-9d65df27a26d/out.jpg)
+
+---
+
+`@miles 3/22/2022 2:25 AM (UTC)`
+
+
+![img](https://media.gettr.com/group47/origin/2022/03/22/02/550e40c9-6724-e423-bbc8-899cd0459561/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/22/2022 2:05 AM (UTC)`
 
 3/20/2022 The Lady (who can speak Ukrainian) read the Ukrainian Stickers to a rescue volunteer: We, the New Federal State of China, Stand with Ukrainian People! <br/><br/>2022年3月20日 这位会说乌克兰语的女士向救援志愿者朗读乌语的横幅贴纸内容：我们新中国联邦人与乌克兰人民站在一起！
@@ -138,20 +152,6 @@ Aaaaaaaaaaaa
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
 ![img](https://media.gettr.com/group23/origin/2022/03/21/16/183b1574-3664-9d94-793b-b2c3c5adde48/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/21/2022 4:55 PM (UTC)`
-
-Children don't need war, children need their mothers and fathers .<br/> The sunset, the music, the smiling faces of the children and our enthusiasm, made people seem to forget for a while the pain caused by the war ......<br/><br/>孩子们不需要战争，孩子们需要他们的爸爸妈妈, 夕阳，音乐，孩子们的笑脸和我们的热情,<br/>让人们似乎暂时忘记了战争带来的伤痛……
-![img](https://media.gettr.com/group28/origin/2022/03/21/16/9ff4856a-e47f-42ba-d5ea-d22366e84da3/out.jpg)
-
----
-
-`@miles 3/21/2022 4:04 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月20日第16天当日救援统计：<br/>Medyka救援站接待：约120人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7177人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 16 - Date: March 20, 2022 :<br/><br/>Medyka Rescue Station Reception: about 120 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7177 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group6/getter/2022/03/21/16/297fc1a9-5879-131a-f4fc-964d759520e4/d5c60e22166c9859061d20f75df770ca.jpg)
 
 ---
 
