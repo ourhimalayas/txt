@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 8:30 PM (UTC)`
+
+NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
+![img](https://media.gettr.com/group49/origin/2022/03/22/20/9261a3fd-0e70-edb3-ae20-2611e30181c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/22/2022 7:55 PM (UTC)`
 
 前线时间3月21日，<br/>目前因利沃夫遭受俄罗斯的轰炸，<br/>新中国联邦的利沃夫救援点紧急关闭，<br/>利沃夫的大巴车已经停运，<br/>当地救援小组合并到梅迪卡前线。<br/>梅迪卡前线感染中共病毒的战友已经阳转阴了很多位，<br/>感恩万佛万神的保佑。<br/>目前新中国联邦的救援行动已经得到了巨大的认可，<br/>被救援的乌克兰妇女儿童都在给国际组织和各国政府写信.<br/>Frontline Medyka time March 21，<br/>Due to Lviv is bombarded by Russian<br/>The emergency aid point of NFSC in Lviv has to be closed.<br/>The bus service in Lviv also has been halted.<br/>The local rescue team is merged to Medyka frontline.<br/>Many of infected buddies in Medyka have turned to negative.<br/>Thanks to the blessings of all the Buddhas, Gods and Goddess.<br/>Currently, the humanitarian aid from NFSC has received tremendous recognition,<br/>Many rescued Ukrainian women and children write letters to international organizations and various governments.
@@ -146,13 +153,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月21日第17天当日救援统计：<br/>Medyka救援站接待：约45人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7222人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 17 - Date: March 21, 2022 :<br/>Medyka Rescue Station Reception: about 45 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7222 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group29/getter/2022/03/22/09/dd7d5bc6-7a08-4cd6-9ef1-b4de0bfc3d04/e60acc755ce2107e1a0f0e8c70d6cc36.jpg)
-
----
-
-`@miles 3/22/2022 5:14 AM (UTC)`
-
-3/20/2022 Miles Guo: Elon Musk’s Starlink has changed the future of humanity! This year will be the darkest year and also the most promising year of mankind! Putin and Xi will not be around next year. The whole world is investigating the Chinese colluding with the CCP. The US sanctions imposed on the CCP’s media outlets, state-owned enterprises, and communication companies will go beyond your imagination.<br/><br/>3/20/2022 文贵直播：马斯克的星链改变了人类的未来！今年是人类最黑暗的一年，也最有希望的一年！明年将看不到普京和习；全世界正在清查跟中共勾结的华人；美国对中共党媒、国企和通信企业的制裁将超出你的想象！<br/>
-![img](https://media.gettr.com/group4/getter/2022/03/22/05/c9207d1a-a915-53da-8e3d-4e4bd94ee8a1/out.jpg)
 
 ---
 

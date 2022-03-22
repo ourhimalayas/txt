@@ -2,26 +2,21 @@
 ---
 
 
-## 乌克兰总统：为保同胞努力促成与俄方的谈判
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212384/)
+## 各界继续抨击特鲁多对自由车队的诬陷
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2212510/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据Newsmx 3月20消息，乌克兰总统沃洛季米尔·泽伦斯基，表明他再次与俄罗斯总统弗拉基米尔·普京进行谈判的意愿。他同时表示，一旦谈判再度破裂，将意味着两国灾难性的战争后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-79.jpg)
-泽伦斯基表示，乌克兰将不惜使用任何形式，把握任何机会，积极寻求与俄方进行谈判的可能。但如果这些尝试宣告失败，将意味着战争的升级。
+加拿大温哥华扬帆农场    平民正道
 
-随着俄乌战争进入第四周，乌克兰的伤亡人数日益增加。结束无辜百姓的死伤，已迫在眉睫。
+据加拿大【真北方】3月19日报道，自由党政府此前擅用《紧急状态法》镇压自由车队反疫苗护照的和平抗议活动之举，至今都被加拿大政界和法律界等多方强烈质疑。
 
-泽伦斯基认为，只要有1%的机会阻止这场战争，就应该抓住这个机会。尽管乌克兰军队已在多个战场成功地反击了来自俄罗斯的入侵者，但黎民百姓伤亡惨重。泽伦斯基表示，乌克兰人民已经展示了他们的尊严和力量，他们有能力给予侵略者强有力的还击。但不幸的是，尊严和力量不能有效阻止战争每天夺去无辜的生命。
+报道称，特鲁多及其内阁在今年2月以所谓“国外极端分子资助卡车司机寻衅滋事并意图破坏加拿大民主”为由，越权启用了《紧急状态法》。多家主流媒体包括[加拿大广播公司]等也都同时发表了“自由车队是国外势力资助”的文章。
 
-参考链接：[Zelenskyy: If Next Negotiations Fail, It’s ‘World War’ III](//www.newsmax.com/newsfront/volodymyrzelenskyy-worldwariii-peacetalks/2022/03/20/id/1062045/)
+据悉，在日前的下议院财政委员会上，众筹平台GoFundMe总裁驳回了以上谬论。此外，皇家骑警负责人也表示，从多方调查的结果来看，没有发现任何极端恐怖分子涉入其中的证据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+* * *
 
-总编/编辑/审核：Zion文恩
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑： 平民正道    发布：平民正道
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

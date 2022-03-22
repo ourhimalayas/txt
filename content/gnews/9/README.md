@@ -2,24 +2,27 @@
 ---
 
 
-## 2022年3月22日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2212262/)
+## 拜登警告普京已身处绝境
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2212416/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**中共的杀戮还在继续……**
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Cropped-1644674366N-Biden-Putin.jpg)图片来源：Nikkei Asia
+根据《NBC》3月22 日报道，美国总统拜登警告说，俄罗斯总统弗拉基米尔-**普京现在可能会在乌克兰使用化学武器**，因为他已经“身处绝境“。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0543.jpg)
+这位俄罗斯领导人在国内加强了控制，同时激起了人们对他可能在国外采取更激进策略的担忧，克里姆林宫的主要批评者阿列克谢-纳瓦尔尼周二被判处在最高安全级别的监狱中再服刑9年。
 
-发稿：信心的选择
+拜登本周将前往欧洲，因为西方国家支持基辅，反对莫斯科，这场战争已经持续了近一个月，现在已经迫使350多万人逃离乌克兰。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-2.jpeg)
+乌克兰总统沃洛基米尔-泽伦斯基(Volodymyr Zelenskyy)再次呼吁与俄罗斯总统直接会谈，并表示全国各地的城市已被炸得面目全非。
+
+但是，即使在人道主义危机恶化的时候，乌克兰仍然顽强抵制了俄罗斯关于交出马里乌波尔的要求，这个具有战略意义的港口城市的平民已经被困在那里并被轰炸了数周。
+
+原文链接：
+[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-warns-putin-s-back-n1292573](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-warns-putin-s-back-n1292573)
+
+编辑，发稿 Spirit
+
+
 
  
 
