@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 12:11 PM (UTC)`
+
+【Ukraine Rescue】03/19/2022 Early in the Morning, Nicole finds out an international media reporting in front of the NFSC tent of our relief efforts. Inside the tent, hot breakfast are served for the refugees. <br/><br/>【乌克兰救援】03/19/2022 清晨，妮可看到一家国际媒体在新中国联邦的大帐篷前播报难民救援情况。帐篷里早已为难民准备好热腾腾的早餐。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group11/getter/2022/03/22/12/e6124401-46b1-c3f4-5fb6-13c3d0bfc12e/out.jpg)
+
+---
+
 `@miles 3/22/2022 11:54 AM (UTC)`
 
 【Ukraine Rescue】03/18/22 Nicole introduces the NFSC Ukraine Rescue Operation to the Director of the Japanese 'Sankei Shimbun' in Paris (Mina Mitsubishi-Ikuma): Our volunteers from all over the world have successfully rescued 1838 refugees and Chinese from Ukraine. Although the CCP has been sabotaging our rescue efforts, we have proven through our actions that we are not only different from the CCP, but are determined to take it down.<br/><br/>【乌克兰救援】03/18/22 妮可向日本‘产经新闻’驻法国巴黎分社的社长 (Mina Mitsubishi-Ikuma)介绍新中国联邦乌克兰救援行动：我们来自世界各地的志愿者已经成功从乌克兰救出了1838名难民及华人。尽管中共一直在破坏我们的救援工作，但我们用实际行动证明了我们不仅不同于中共，而且立志于铲除中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,12 +154,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 2022.03.21 NFSC News  American Veteran Encourage the NFSC And All Chinese To Continue Taking Down The CCP; In-depth Interpretation the Sinister Intentions of Bloomberg's Front Line Interview
 ![img](https://media.gettr.com/group31/origin/2022/03/21/23/7a7446b2-1d3a-a39d-b5d7-aef7269402e8/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/21/2022 11:08 PM (UTC)`
-
-3月21号：听说啊，这是路大脑袋或吴争——九指妖！搞了个混血儿！这是真的吗？真是共产党的好孩纸！🙈🙈🙈🙈🙈🙈
 
 ---
 

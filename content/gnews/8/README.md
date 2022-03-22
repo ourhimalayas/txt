@@ -2,28 +2,32 @@
 ---
 
 
-## 阿里巴巴任命单伟建为新董事
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2209999/)
+## 疫情｜Omicron亚型毒株BA.2 病例大增 上海连续两日刷新纪录 韩国疫情再升温
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2210023/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-246.jpg)
-3月22日周二，中共阿里巴巴将其美股回购规模扩大100亿美元，这是自2017年以来第三次增加回购计划总额。阿里巴巴公告中称，美股回购计划总额从150亿美元上调至250亿美元，有效期至2024年3月，为期两年。截止到2022年3月18日，阿里巴巴已经回购的美股价值约为92亿美元。
+**图/文：CP**
+**发布时间｜22/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Omicron亞型毒株BA.2-病例大增-上海連續兩日刷新紀錄-韓國疫情再升溫.jpg)
 
-同一时间阿里巴巴还宣布，委任太盟投资集团PAG执行董事单伟建为董事会独立董事，他还将担任审计委员会成员，任命将于3月31日生效。原独立董事来自爱立信的总裁Börje Ekholm将于2022年3月31日离任。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-撰稿、发布：骄子
+
+中国大陆地区昨日新增4594宗本土确诊个案，其中，上海市确诊病例连续第二日创单日新高，录得865宗个案，大部分确诊病人集中在浦东新区、徐汇区和闵行区，横跨东西两面。
+
+上海疾控中心主任付晨表示，本轮疫情主要跟变种病毒Omicron亚型变异病毒株BA.2有关，感染者平均年龄是40.6岁，总体以中青年为主，上海市衞生健康委主任邬惊雷指出，为了应对医疗救治需求，上海已启动应急方案，动用后备医疗机构，开设临时隔离收治点，相信可以更迅速应对疫情。
+
+无独有偶，韩国防疫部门也在周一表示，近期Omicron亚型变异株BA.2检出率大增，可能令疫情高峰期延长。
+
+据韩国中央防疫对策本部统计，3月第3周的社区感染案例中，Omicron检出率达99.99%，其中亚型变异株BA.2检出率从4周前的10.3%增至41.4%；在境外输入病例中，BA.2检出率也从18.4%增至56.9%。中央防疫对策本部长郑银敬表示，BA.2可传播时间约只有Omicron原型的一半，但传染力更强，疫情规模及高峰期都可能扩大。
+
+韩国最近一周每日平均新增约40万例确诊病例，首都圈及非首都圈的确诊个案分别较前一周增加40.4%及44.1%，其中60岁以上的确诊比率也从16.2%增加至17.8%，为医疗体系带来了巨大的压力。
+
+来源｜[中国发布](http://news.china.com.cn/2022-03/15/content_78108898.html)、[kfdn](http://kfdn.co.kr/56062)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
