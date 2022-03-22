@@ -2,32 +2,22 @@
 ---
 
 
-## 樱花时政┃英国考虑禁止NHS购入新疆医疗产品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2212640/)
+## 樱花时政┃国际医疗服务组织AMDA目睹乌克兰难民惨状
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2212644/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-40.jpg)图片来源本文链接
-英国政府正考虑接纳一项议案修订，禁止国民保健服务（NHS）购入新疆医疗产品。
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-111.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fglobal.unitednations.entermediadb.net%2Fassets%2Fmediadb%2Fservices%2Fmodule%2Fasset%2Fdownloads%2Fpreset%2FLibraries%2FProduction%2BLibrary%2F18-03-2022-Ukrainian%2Brefugees-Poland%2Bborder%2B1.JPG%2Fimage1170x530cropped.jpg&amp;imgrefurl=https%3A%2F%2Fnews.un.org%2Fzh%2Fstory%2F2022%2F03%2F1100682&amp;tbnid=xakAP4mXdSc4JM&amp;vet=12ahUKEwjHq-mjpdr2AhWGlP0HHZGRDd8QMygregUIARCuAg..i&amp;docid=rVj-50ofmz6DnM&amp;w=1170&amp;h=530&amp;q=%E4%B9%8C%E5%85%8B%E5%85%B0%E9%9A%BE%E6%B0%91&amp;ved=2ahUKEwjHq-mjpdr2AhWGlP0HHZGRDd8QMygregUIARCuAg)
+俄罗斯军队开始入侵乌克兰到3月24日一整月，冈山市国际医疗服务AMDA负责支援当地难民的现状，可是一片混乱。
 
-消息人士对美国之音透露，英国高层官员倾向接纳相关提议，确保医疗供应链不会有使用强迫劳工的产品。
+（AMDA 难波妙理事）“每天下午5点到8点给从乌克兰来避难，身体不好的人看病。”AMDA等医疗队活动在匈牙利扎奥尼，是与乌克兰接壤的城市。在车站内设置的1张榻榻米左右的临时空间，为难民进行诊疗和咨询。“正在接受癌症治疗的人不得不中断治疗，平时可以接受的治疗因为进入紧急状态而得不到治疗。在避难途中受伤20多岁女性，被流弹击中，不顾伤口也得逃跑。”
 
-三月初，英国上议院审议《健康和保健法案》（Health and Care Bill）时，通过一项修正案，要求英国政府大臣不得从存在“严重种族灭绝风险”的地区采购医疗物资，以符合英国在《防止及惩治灭绝种族罪公约》（Convention on the Prevention and Punishment of the Crime of Genocide）下的义务。消息人士指，相关议案预计会在下星期回到英国下议院辩论。
+截止到20日，匈牙利共接纳了31.2万名难民。特别是儿童身上有明显的身体不适。“孩子们得了肺炎。因为移动了很长的距离，很多人得肺炎。”“医生说是因为孩子们的体力及长距离在寒冷的天气里移动等因素。虽然能买到一般销售的药，但是处方药还没有得到，因此AMDA决定提供资金，让孩子服用。”
 
-修正案的另一个重点是，它要求增加一个新的机制，如果一个国会专责委员会要求评估采购地区是否有“严重种族灭绝风险”，英国政府大臣需要在两个月之内完成该评估。
+距俄军队开始进攻到24日已经快一个月了。包括儿童在内的无辜市民因战祸被驱逐出境。“这不是别人的事情，而是在世界上正在发生的事情。而且，是我们自己建立的和平，倒塌的瞬间。在俄罗斯国内，普通市民也处于严酷的状况。普通人会是怎样的情况请冷静下来对待。””
 
-据悉日本也采取了类似的行动。
+信息来源：
 
-由此， 验证了郭文贵先生的爆料，美、欧各国将在现在至5月份展开对中共的打击。
-
-表面上看，这个议案是对以往决策的补充，似乎顺理成章，但是这正是提出所有问题的基础。我们知道，定下目的然后不择手段的去执行是共产主义的一贯做法。但是在文明社会认为这个正是极权主义形成的根源。
-
-正如哈耶克所讲：“自生自发秩序在处理正义问题时完全满足‘纯粹程序正义’的主要特征：不存在判定正当结果的独立标准，而是存在一种正确的或公平的程序，这种程序若被人们恰当地遵守，其结果也会是正确的或公平的，而无论它们可能会是一些什么样的结果。”
-
-中共的所作所为已经被文明国家看透，接下来就是扎扎实实的，一步一个脚印的痛殴中共。直到把中共打到十八层地狱中让烈火永世焚烧。
-
-消息来源：
-
-[英国考虑禁止国民保健服务购入新疆医疗产品](https://www.voachinese.com/a/uk-xinjiang-forced-labor-20220322/6495526.html)
+[がんの治療を中断、子どもの肺炎…国際医療ボランティアAMDAが見た「ウクライナ避難民の現状」【岡山】](https://news.yahoo.co.jp/articles/8181e1384bbdff443a18b0eff8b2d480f3f5ae47)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
