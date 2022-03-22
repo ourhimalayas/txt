@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/22/2022 7:02 PM (UTC)`
+
+
+![img](https://media.gettr.com/group10/origin/2022/03/22/19/c6c6f65d-466d-796e-9dce-9d821b961584/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/22/2022 6:22 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
@@ -146,13 +153,6 @@ Fine Food from the NFSC and ROLF interviewed with Mr. Chicken from Kentucky, USA
 
 3/20/2022 Miles Guo: The CCP will bomb Taiwan indiscriminately with cheap missiles that can’t even be defended with Elon Musk’s technology. The CCP can also create a major earthquake in Taiwan. Putin may reconcile with Ukraine or be taken out by those inside Russia. Even before Xi starts the war, Xi is already called a war criminal along with Putin. Putin being taken out will prompt the people around Xi to eliminate him.<br/><br/>3/20/2022 文贵直播：中共将用廉价导弹对台湾无差别轰炸，马斯克的技术也防不住；中共还能在台湾制造大地震；普京可能与乌克兰和解或被内部人干掉；习还没开战就跟普京一道被称为战犯；普京被做掉将促使习身边的人干掉他<br/>
 ![img](https://media.gettr.com/group43/getter/2022/03/22/03/f3ecd35d-46f1-46e4-52ad-66ec690303cd/out.jpg)
-
----
-
-`@miles 3/22/2022 2:35 AM (UTC)`
-
-3/21/2022 Miles Guo: Bruno Wu, Cheng Shuiyan, Boxun, and those fake pro-democracy activists will certainly be investigated and indicted. If fellow overseas Chinese still cannot wake up, they’ll be in serious trouble. The New Federal State of China is our sole Noah’s Ark.<br/><br/>3/21/2022 文贵直播：吴征、程水炎、博讯还有那些砸郭的所有欺民贼伪民运一定会被美国政府调查；海外华人再不醒来，你的灾难已经到来，唯一的诺亚方舟就是新中国联邦！<br/>
-![img](https://media.gettr.com/group21/getter/2022/03/22/02/7c86e09f-fab3-94d0-3c7e-9d65df27a26d/out.jpg)
 
 ---
 

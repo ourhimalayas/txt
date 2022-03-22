@@ -2,20 +2,27 @@
 ---
 
 
-## 新中国联邦乌克兰前线救援人数汇报
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2212096/)
+## 俄乌战争或许会出现缓和
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2212125/)
 
-作者：香草山教育部 Irene木木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月5日至3月19日    新中国联邦发起的乌克兰到波兰的大巴车救援行动，总计救援人数为2009人，大部分是乌克兰的妇女、儿童以及中国同胞。期间总计发车次数为 39次。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-252.jpg)
-此外，新中国联邦在波兰边境梅迪卡难民营地所组织的救援接待行动，帐篷接待难民人数统计数据：自2022年3月9日至3月20日，共计接待难民人数约7177人，在20日当日接待约120 人。
+采编撰稿：晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+据文贵先生3月21日盖特直播透露， 俄乌战争或许会出现缓和，但前提是普京必须被消灭。世界绝不会允许普京再继续执掌俄罗斯，这种情况下可能就会存在多次反复。
 
-总编/编辑：Zion文恩
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-50.png)
+
+昨天文贵先生在大直播中谈到发动入侵乌克兰战争的普京未来会有两种结局：其一，他的家人通过某种渠道请求乌克兰让步，所谓的“和乌克兰体面和解”；其二，普京被内部自己人干掉，或者在尝试发射核武时直接被定点清除，这也是目前最大的可能性。
+
+据美国目前掌握的俄罗斯内部情报来看，认为普京被内部自己人干掉的可能性很大，一旦发生对中共来讲就非常糟糕。
+
+普京和习近平都将成为彼此的最后一个朋友，他们都是独裁，而且普金已经被美国定为战犯。全世界都心知肚明 — 习近平是普京入侵乌克兰的幕后金主，其真实目的是3F美国。
+
+新闻来源：
+[https://gettr.com/post/p11491pcf7e](https://gettr.com/post/p11491pcf7e)
+[https://gettr.com/post/p10y5j870c5](https://gettr.com/post/p10y5j870c5)
+
+*编辑/上传：文所未闻*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
