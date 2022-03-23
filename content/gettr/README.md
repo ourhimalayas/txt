@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 12:42 AM (UTC)`
+
+3月22日：这一天总会到来的．否则美国将付出安全上的巨大代价，新中国联邦一定会让这件事情发生！https://www.voachinese.com/a/congressman-chris-smith-introduces-new-legislation-to-strip-the-chinese-communist-party-of-its-trade-status-20220322/6496701.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08
+
+---
+
 `@miles 3/23/2022 12:37 AM (UTC)`
 
 2022.03.22 晚 《新中国联邦新闻》东航空难暂未发现生还者 专家困惑坠机角度不寻常； 中共低调处理7名罹难战机士兵遗体
@@ -146,13 +152,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 【Ukraine Rescue】03/19/2022 Taiwan+ is the first English-language media outlet in Taiwan targeting international audiences. When asked by the reporter from Taiwan+ what she thinks about Xi Jinping's military threat to Taiwan, Nicole replies: We support the democracy and freedom of the Taiwanese people. The more we support Ukraine, the less likely Xi Jinping will attack Taiwan. We will always stand together with the international justice forces. <br/><br/>【乌克兰救援】03/19/2022 台湾+是台湾首家面向国际观众的英文媒体，主持人问妮可对习近平武力威胁台湾的看法。妮可回答，我们支持台湾人民的民主和自由，我们越支持乌克兰，习近平攻打台湾的可能性越小，我们永远与国际正义力量站在一起。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group21/getter/2022/03/22/14/e51745c9-3a40-edc6-ccb1-05b22c28ccc6/out.jpg)
-
----
-
-`@miles 3/22/2022 2:45 PM (UTC)`
-
-3月21号：听说啊，这是路大脑袋或吴争——九指妖！搞了个混血儿！这是真的吗？真是共产党的好孩纸！🙈🙈🙈🙈🙈🙈
-![img](https://media.gettr.com/group9/getter/2022/03/22/14/6f08e3e7-c63d-e2ca-f7cf-9b0508c52e09/out.jpg)
 
 ---
 
