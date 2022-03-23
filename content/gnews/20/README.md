@@ -2,29 +2,34 @@
 ---
 
 
-## 视频|中共低调处理7名罹难战机士兵遗体
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2214632/)
+## GETTR Pay 将于今夏7月上线
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214701/)
 
-制作：香草山视频部
+作者：银河系农场 – 骄子
 
-在东航客机失事，132人生死未卜的悲剧阴霾下，中共当局低调处理了7名同样因为飞机坠落事故而死亡的年轻军人。
 
-中共河南共青团21日在官方微博上发布了一则警车开道护送罹难军人遗体返回家乡安葬的影音视频，同时还配上“国家无战事，军人有牺牲”等煽情文字渲染气氛。
 
-但是，中共各机关单位至今并未对外披露过任何战机失事的消息，不过，罹难士兵飞行员遗体运返家乡安葬的消息还是引起了网友的关注，纷纷在微博转发。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-郭文贵先生曾经揭露过中共的军事实力，实际上非常糟糕，那些投身军旅的年轻士兵在中共高层的眼里命如草芥，不值一提。让我们记住这7位罹难军人的名字，徐文、郑福浩、周兴玉、黄高明、张帝、邱明典和彭博，他们是中共政权欠下的又一笔血债。
 
-发稿：Daxia
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
+近日，盖特高级发言人凯伦.道尔在接受采访时表示，盖特在2022年7月份上线一周年之际，将会拥有创历史的巨大用户量，盖特的金融支付系统GETTR Pay预计会在那时候上线。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+目前，支付系统PayPal垄断市场、随时会停掉用户的交易，并且出售用户讯息来盈利，毫无隐私和安全可言。道尔说，GETTR Pay永远不会售卖用户数据，安全隐私都有保障。现在盖特用户量为500万，接下来的数月会有几个大的项目要做，确保为用户提供更好的体验。届时，GETTR Pay将为用户提供全面多样的金融支付服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-5.jpg)
+参考链接：
+[盖特高级发言人凯伦·道尔说：盖特支付计划今年7月上线，为用户提供全方位的金融支付服务。主打特色是盖特支付绝不出卖用户数据。](https://gettr.com/post/p10xlwh0061)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

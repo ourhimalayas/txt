@@ -2,27 +2,42 @@
 ---
 
 
-## 视频|俄罗斯退出二战和平条约谈判日本首相强烈抗议
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2214645/)
+## 联合国称乌克兰1000万平民被迫逃离家园
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214706/)
 
-制作：香草山视频部
+作者：纽约磐石农场 – 在远方，纽约香草山教育部 – Naughty(文行)
 
-俄罗斯外交部3月21日发表声明指出，由于日本就乌克兰局势作出不友好行为，俄方拒绝与日本进行关于签订第二次大战和平条约的谈判，并冻结日俄之间与千岛群岛争议领土相关的联合经济计划，以及取消日本公民免签入境。
 
-日本首相岸田文雄今日在参议院预算委员会上作出回应，他认为俄方的举动极不合理，日方绝对不能接受，并强烈抗议。日本和俄罗斯因为北方四岛主权的争议，一直相持不下，至今未正式签订二战和平条约。
 
-自从俄罗斯入侵乌克兰后，日本陆续公布多项制裁俄罗斯的措施，包括禁止向乌克兰亲俄地区顿涅茨克以及卢甘斯克的有关人士发出签证，冻结有关人士的相关资产，并禁止相关地区的进出口贸易等等。上周，日本还追加宣布打算撤销俄罗斯最惠国待遇、扩大对俄罗斯菁英资产冻结范围等制裁计划。俄罗斯可能因此今日以拒绝谈判、取消免签等措施对日本作出反制。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-发稿：Daxia
 
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+3月20日，联合国难民事务高级专员菲利普·格兰迪表示，俄罗斯的侵略战争已造成乌克兰900多平民死亡，1000万人逃离家园。他们要么在国内流离失所，要么在国外成为难民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-9.jpg)
+联合国人权事务高级专员公署指出，乌克兰平民的伤亡大多来自爆炸性武器，即俄军的重炮、多管火箭、导弹以及飞机轰炸所致。另外该机构表示，由于他们在乌克兰当地的监督小组无法取得并核实一些遭到俄军狂轰滥炸城市的伤亡报告，真实的百姓死伤人数应该更高。
+
+20日，乌克兰副总理表示，该国将开放7 条人道主义走廊，为平民提供安全通道，让他们离开前线地区。但在一些城市，俄罗斯的炮击阻止或减缓了平民的疏散。
+
+联合国难民署表示，自2月24日俄罗斯入侵开始以来，已有超过 300 万难民逃离乌克兰。
+
+而根据相关的统计，2020年的乌克兰人口总数为4413万人。
+
+参考链接：
+1. [10 million Ukrainians have fled homes since war began: UN](https://news.yahoo.com/10-million-ukrainians-fled-homes-224806139.html)
+2. [UN：戰火奪走烏克蘭902平民性命 1000萬人遠離家園](https://news.ltn.com.tw/news/world/breakingnews/3866086)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：DM
+编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
