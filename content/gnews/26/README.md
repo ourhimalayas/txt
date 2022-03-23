@@ -2,18 +2,12 @@
 ---
 
 
-## 拯救同胞 新中国联邦任重道远
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2217134/)
+## 一段被截获的通话显示，俄罗斯军队正在遭受冻伤和低落的士气
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2217252/)
 
-文贵大直播20220323
+03/22/2022 一段被截获的通话显示，俄罗斯军队正在遭受冻伤、士气低落以及意想不到的乌克兰抵抗
 
-主笔：顽童（纽伦堡正义）
-
-撰稿：文仁（功成）待命（樱花）不着急（达芬奇）
-
-美工：跟着北美教练（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-15.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

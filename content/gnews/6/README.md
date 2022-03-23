@@ -2,24 +2,33 @@
 ---
 
 
-## 俄乌战局最近消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217634/)
+## 拜登访欧将团结盟友对俄罗斯实施新制裁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217676/)
 
-作者：蓝莲花农场 文斌
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截至当地时间3月22日，据俄罗斯国防部公布的数据显示，俄军在此次战争中的阵亡人数已经超过了九千八百人，另有多达一万六千余人受伤。然而，俄罗斯当天仍然对哈尔科夫市区和郊区进行了多达84次的炮火攻击。与此同时，俄军还在马里乌波尔市投下了两枚重型炸弹，并炮击了迈科拉夫港口和泽廖多利斯克，但其在文尼察地区投下的一枚伊斯坎德尔巡航导弹被当地的防御系统成功拦截。另外，俄罗斯及其代理部队侵占了鲁比日内地区的一个村落，且其正在试图夺取伊久姆，并对乌东部地区的乌克兰部队进行更广泛的包围，但俄军的多番入侵尝试均被乌克兰军队击溃。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-39.jpg)
-据乌克兰方面的消息称，该国的防空部队当天在哈尔科夫及附近区域击落了俄军的一架无人机和战斗机。此外，乌克兰地面部队还向俄罗斯比尔霍罗德发射了一枚导弹，但其后被俄军反坦克导弹拦截。乌军还在斯洛伐克边境喀尔巴阡地区捣毁一个来自俄罗斯的破坏团伙。但据高空卫星图像表明，俄罗斯在白俄罗斯南部距乌克兰边境仅18英里的地方集结了一批相当规模的地面部队。不过，由于缺乏零配件，俄罗斯的关键军工生产正在放缓，这导致在乌的俄军难以修复战损的武器和装备。
+##### 作者：加拿大温哥华扬帆农场 – 活力人生
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-42.jpg)
+据【路透社】及【NDTV】3月22日报道，美国总统乔·拜登将在本周访问欧洲期间寻求加强西方团结，并宣布对俄罗斯实施新的制裁。
 
-至于顿涅茨克和卢甘斯克征兵的细节，乌克兰军事情报局表示，莫斯科当局正在将征兵年龄从55岁提高到65岁，更甚者，当地18岁的学生也是被积极招募的对象。
+报道称，拜登将于本周三前往北约和欧盟总部所在地布鲁塞尔，与其他北约和欧洲领导人会面，并与盟友一起在周四推出进一步的对俄制裁计划。新计划不仅将重点放在增加新的制裁上，还将确保共同努力打击逃避制裁的行为。美国还希望就俄罗斯的 G20 成员资格与盟国进行磋商。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+此外，拜登也将就中共国可能援助俄罗斯的问题与盟友进行讨论。到目前为止，北京拒绝谴责普京的侵略或支持西方制裁。美国的主要目标是确保中共政权不会通过救助俄罗斯经济，或提供武器等方式对俄罗斯进行援助。
 
-总编: Irene木木
-编辑: Irene木木、静言
-审核：Irene木木
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+
+[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
+
+编辑/上传 – 大废墙
+素材/采编 – 活力人生
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

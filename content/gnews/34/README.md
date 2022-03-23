@@ -2,34 +2,26 @@
 ---
 
 
-## 迪拜即将推出一亿美元的数字资产基金
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216781/)
+## 樱花时政┃中共网络舆论控制挡不住国人的反战浪潮
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216874/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GPX5YBMNRRLCLF4FVWWOS5CMQU.jpg)
-3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-44.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fphantom-marca.unidadeditorial.es%2F6e75330b349ffbc9ecf84b49189e288b%2Fresize%2F1320%2Ff%2Fjpg%2Fassets%2Fmultimedia%2Fimagenes%2F2022%2F02%2F28%2F16460455847265.jpg&amp;imgrefurl=https%3A%2F%2Fwww.marca.com)
+在持续20多天的俄乌战争中，虽然中共网络媒体和官方实施严格的言论控制并引导大众舆论风向，但仍有很多中国民众对战争表示反感，敦促中共当局改变立场。目前在微博，微信等社交平台上，依然可以看到大量不同的观点。
 
-该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
+据纽约时报报道，上周，上海一位具有政治背景的学者胡伟发文警告称，如果中国再不和俄罗斯“切割”，会有被国际社会孤立的危险。文章发出后不久，即被网监删除。这篇文章中共国的社交媒体上获得了数以百万计的转发，影响巨大。
 
-据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
+另外，一些位于乌克兰前线附近的中国反战人士，他们正试图突破中共当局的审查，为同胞提供战斗生活的真实记录。
 
-撰稿、发布：骄子
+可见，中共官方的观点并不能够代表广大中国人民。
 
-reference：
+信息来源：
 
-[Dubai firm Cypher Capital says launches $100 mln digital asset fund](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+[中国当局严格的审查政策 挡不住国人的反战浪潮](https://vct.news/news/c14a72d8-d942-4bd2-a10e-7fb1b5be1fdd)
 
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

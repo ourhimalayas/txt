@@ -2,30 +2,33 @@
 ---
 
 
-## 西方法律將懲治海外偽民運和中共代理人
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2217678/)
+## 美国目前三分之一的中共病毒病例由Omicron BA.2引起
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217776/)
 
-采編：加拿大溫哥華楊帆農場 – 晨熹
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-44.jpg)
+美国政府周二发布的数据显示，目前美国约有三分之一的中共病毒病例是由BA.2 Omicron亚型冠状病毒引起的。数据还显示，自1月以来，美国的中共病毒感染病例大幅减少，总体感染人数仍较1月的创纪录高点有所下降。截至3月19日，美国的中共病毒病例的7天移动平均值为27747例，比一周前下降了近18%。
 
-編輯撰稿：加拿大溫哥華楊帆農場 – 硫酸羥氯喹64
+尽管这种极具传染性的亚型在其他国家也出现了增长，但美国卫生专家说，在美国出现一波新的感染浪潮似乎不太可能。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-6.jpg)圖片來源：Gettr
+世界卫生组织(WHO)说，这种亚型比引起冬季大规模流感的Omicron BA.1亚型更具传染性。 然而，它似乎没有引起更严重的疾病，早期数据显示，感染BA.1对BA.2的再感染有很强的保护作用。
 
+华盛顿大学健康指标与评估研究所(IHME)周一更新了其备受关注的预测，预计未来几周美国的冠状病毒病例不会大幅激增。
 
-據3月16日[美國司法部]公開的信息顯示：該部門日前已正式起訴中共在海外的多名偽民運者。並指控他們在美國非法充當中共政權代理人期間，惡意收集異議人士信息，騷擾、抹黑、監視以及暴力攻擊美國公民等。
+原文链接：[https://torontosun.com/news/world/some-35-of-new-u-s-covid-cases-caused-by-omicron-ba-2-variant-cdc](https://torontosun.com/news/world/some-35-of-new-u-s-covid-cases-caused-by-omicron-ba-2-variant-cdc)
 
-據悉，本次包括王書君在內的五名被指控疑犯中，目前除2人在逃外，其余3人全部被捕歸案，並或將分別面臨5至25年不等的刑期懲罰。
+编辑/上传 – 大废墙
+素材/采编 – 重生之鹰
 
-報道指出：包括吳征和單偉健等絕大多數在美國、加拿大、日本、澳大利亞以及新西蘭等國，與中共有密切交易聯系的代理人和海外欺民賊，都正在被當地司法機關調查和清理。在難逃西方法律製裁的情況下，入獄或被遣反回中共國將是其最終的結局。
+* * *
 
-校對編輯：硫酸羥氯喹64
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-發稿：文明(添草滅共)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-新聞來源：[https://gettr.com/streaming/p10y5j870c5](https://gettr.com/streaming/p10y5j870c5)
-
-[https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0](https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
