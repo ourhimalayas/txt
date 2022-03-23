@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 12:19 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月22日第18天当日救援统计：<br/>Medyka救援站接待：约75人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7297人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 18 - Date: March 22, 2022 :<br/>Medyka Rescue Station Reception: about 75 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7297 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group50/getter/2022/03/23/12/d3ccc461-bf3a-2ceb-a1f3-7ca75dcb62c1/3926b2d63f2891bc77ed8a5777917751.jpg)
+
+---
+
 `@miles 3/23/2022 12:04 PM (UTC)`
 
 2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难
@@ -153,13 +160,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 3/22/2022 Miles Guo’s GETTR: The fundamental reason for Putin to invade Ukraine is the fear that the free and democratic system in Ukraine will spread to Russia, thus awakening the enslaved Russian people to rise up. The crimes of Weijian Shan will be thoroughly investigated. Bruno Wu is trying to survive by relying upon the excuse of going against the Whistleblowers’ Movement, but he will end miserably. All those who collude with the CCP overseas will be finished!<br/><br/>3/22/2022 文贵盖特：普京打乌克兰的根本原因是担心乌克兰的自由民主制度传到俄罗斯，唤醒被奴役的人们揭竿而起；单伟建的罪行必被查清，吴征靠反爆料革命苟延残喘，但他结局会很惨；海外所有跟中共勾结的人都将完蛋<br/>
 ![img](https://media.gettr.com/group19/getter/2022/03/23/01/a0fe3d78-c53f-9c2e-f828-1dc1f8752e57/out.jpg)
-
----
-
-`@miles 3/23/2022 1:39 AM (UTC)`
-
-【Ukraine Rescue】03/21/2022 <br/>Introduction of frontline CCP-Virus prevention work and related prevention measures; <br/>Virus prevention starts from yourself, and the team is reasonably divided into groups; <br/>Monitor the body temperature and other physical conditions of each person every day. If someone feels unwell, he will be immediately isolated and observed;<br/>Separate meals, pay attention to the quality and safety of food;<br/>Many infected fellow fighters are slowly recovering, they will soon be able to return to frontline rescue work<br/><br/>【乌克兰救援】03/21/2022 <br/>前线病毒防疫工作的介绍和相关防毒措施；<br/>预防病毒从自我做起，团队要进行合理分组；<br/>每天每人的体温及其他身体状况进行监测，如有不适，马上进行隔离观察；<br/>用餐的时候分开，注意食品的质量和安全；<br/>很多感染的战友们慢慢恢复中，很快就能回归到前线救援工作中
-![img](https://media.gettr.com/group49/origin/2022/03/23/01/00f8e82d-b29a-5ff8-c1e5-afeabd7e0b1f/out.jpg)
 
 ---
 

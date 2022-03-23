@@ -2,38 +2,24 @@
 ---
 
 
-## 俄罗斯人摧毁切尔诺贝利一个新实验室
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216563/)
+## 秘翻在线：【速报】泽伦斯基总统在日本国会讲话后议员们的反应
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2216799/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-30.png)（图片源自本文链接）
+3月23日TBS新闻突发消息：乌克兰总统泽伦斯基在日本国会的讲话刚刚结束，已经传来了聆听演讲的议员们的反应。
 
-翻译：li yan li
-编辑：文泓
+外交大臣林芳正表示：再次感受到了他为国家着想，要誓死保卫祖国的心情。我再次表达了：我们会一直与乌克兰人民同在。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-133.png)图片来源： 雅典娜设计组
+自民党政策负责人高市告诉记者，应该还有进一步扩大制裁的路可走。
 
+日本立宪民主党的代表泉也表示，日本应该尽其所能阻止俄罗斯的野蛮和侵略。
 
-3月23日据美联社报道，乌克兰利沃夫消息，负责切尔诺贝利禁区的乌克兰国家机构周二表示，俄罗斯军队已经摧毁了切尔诺贝利核电站的一个新实验室，该实验室的工作包括改善放射性废物的管理。
+同时，与俄罗斯有密切联系的日本维新会参议院成员铃木宗男表示：日本政府应向国际社会发出’停止射击，相互交谈’的强烈信息。
 
-俄罗斯军队在战争开始时夺取了这座退役的工厂，禁区是该电厂周围的污染区，1986年世界上最严重的核泄漏事故就发生在这里。
+笔者认为，这或将促使日本政府对俄罗斯做出强硬的制裁！
 
-该国家机构表示，该实验室在欧盟委员会的支持下耗资600万欧元建造，于2015年启用。
-
-该机构在其声明中说，该实验室包含“高度活跃的样品和放射性核素样品，这些样品现在在敌人手中，我们希望敌人会伤害自己而不要伤害文明世界”。
-
-放射性核素是不稳定的化学元素原子，会释放辐射。
-
-在另一个令人担忧的事态发展中，乌克兰的核监管机构周一表示，该工厂周围的辐射监测器已经停止工作。
-
-新闻链接：[Live updates: Russians destroy Chernobyl laboratory | AP News](https://apnews.com/article/russia-ukraine-business-tokyo-global-trade-world-war-ii-d970e7c51c2b6662b3ebe4531a96aa0f)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+信息源：[【速報】ゼレンスキー大統領演説、国会議員の反応は（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/8b12fa0e561b9bc4d259f377e0e2af6885e191a8)
 
  
 

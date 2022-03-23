@@ -2,63 +2,30 @@
 ---
 
 
-## 秦刚接受美媒采访
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2216495/)
+## 【G时新闻】乌克兰切断与俄罗斯连接电网 转为与欧盟相连接
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2216791/)
 
-作者：蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D3042A16-A352-4D9A-B585-0B17B5B7F5E3.jpeg)
-唯唯诺诺
-秦大使被逼上了场
-受采访问话
-你俄爹帮还是不帮
-孝顺儿子中国共产党
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FEB89C4B-6D68-429D-B7AB-FA4A338703EF.jpeg)
-眼看着俄爹被扁
-实在受了伤
-心里疼面上装
-支支吾吾
-秦刚英文实在不咋样
-说不清道不明
-真话假话都不敢讲
-习帝他算盘打的
-霹雳啪啦响
-这亲爹怎么帮
-好儿子我才能不受伤
-瞒天过海
-不让人发现千万别穿帮
-好为难秦大屎
-搜肠刮肚没有话讲
-理不足气不壮
-像只老鼠爆了光
-呜呼哀哉中共国
-劣币驱逐良币
-人才早就都跑光
-剩下奴才蠢材
-搞贪污个个牛叉样
-银样蜡枪头
-摆不上台面
-似秦刚溜须拍马
-可以不重样
-这正经台面
-哪里是老鼠的战场
-只想把爹和娘叫得响
-小小心灵受了伤
-恨不能找个洞
-深深把身藏
-这厉害国的大使
-就是这么个怂样
+主播：加拿大温哥华扬帆农场–七彩虹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B6CF6668-4CF3-46A4-B349-47D413F1DEFD.jpeg)
+视频制作：加拿大温哥华扬帆农场–GraceIshan
 
-**编辑**/**校正**/**发稿：**玫瑰圓
+据布鲁塞尔时事报道：负责能源的欧盟专员西蒙森于3月16日宣布“已将摩尔多瓦和乌克兰两国的电力网络联接起来”。并表示此举原因是回应乌克兰在俄罗斯入侵后退出了电力网络向欧盟提出的要求，也希望为维持乌克兰的稳定电力供应做出贡献。 从前苏联时代就开始的连接方式的转换，标志着乌克兰和摩尔多瓦的电力系统脱离了俄罗斯的影响。西蒙森先生在声明中说：“这是欧盟与乌克兰关系中的一个历史性里程碑。乌克兰现在是欧洲的一部分，”来强调团结一致的看法。
 
-**更多资讯，更多关注**
-[**纽约香草山农场**GTV-**香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场**GTV-MOS TALK **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/31410D40-4BE4-46DD-B313-09ED1F809641.jpeg)
+自法新社3月4日报道的，被俄罗斯军队占领的切尔诺贝利核电站4号机组被掩体覆盖的事故发生后，乌克兰国有电力公司于3月14日刚恢复北部切尔诺贝利核电站的电力供应，输电线路又被俄罗斯军队破坏。俄罗斯极不人道的破坏人类生存行为和战争行为，使得国际社会已将入侵者俄罗斯放在了对立面，这从国际社会对俄罗斯SWIFT制裁，网络断网、高级芯片制裁到欧盟欢迎乌克兰的加入中不难看出。没有未来的俄罗斯将何去何从，全世界拭目以待。
+
+编辑/发文：让子弹飞飞飞
+
+盖特链接：[https://gettr.com/post/p11dzi6a924](https://gettr.com/post/p11dzi6a924)
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

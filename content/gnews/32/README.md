@@ -2,32 +2,39 @@
 ---
 
 
-## 沙利文称未见中共援俄继续监控 美携手欧盟一致应对中共
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2215761/)
+## 俄军强行将数千名乌克兰儿童拐带到俄罗斯
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2216001/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-下午4.43.01.png)图片来源：互联网
-美国国家安全顾问杰克·沙利文周二（3月22日）在新闻发布会表示，美国还没看到中共国向俄罗斯提供军事装备，继续监控，拜登总统将在北约峰会与盟国磋商一致应对中共可能对俄援助。
+翻译：wenwu
 
-当沙利文被问及他与杨洁篪罗马会谈以及拜登总统与习近平谈话后，是否看到任何迹象表明中国会不会向俄罗斯提供援助时，他回答说：”那些会晤或总统与习近平的谈话以来，我们还没有看到中国（中共国）向俄罗斯提供军事装备，”他说：“我们将继续对其进行监控。“【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2634.png)
 
-在他被问及中共可能对俄援助问题，”这在北约峰会议程上的位置是什么？如果中方（中共）确实提供了援助，是否会努力采取具体的措施？“
+据称，俄罗斯军队正在拐带数千名乌克兰儿童，并将他们绑架到俄罗斯。 美国驻基辅大使馆在[推特](https://twitter.com/USEmbassyKyiv/status/1506214727394988032?s=20&amp;t=mpMUh9PPDhpGy7QgojyGng)上写道，有争议的顿巴斯地区的顿涅茨克和卢甘斯克的2389名乌克兰儿童被“非法带走”，这是引用了乌克兰外交部的说法（如下图）。
 
-沙利文说：”总统（拜登）将与北约进行磋商“，在4月1日欧盟与中国（中共国）峰会上，他说：”我们（美国）相信与我们的欧洲伙伴非常一致，我们将在这个问题上以一个声音说话。“【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2636.png)
 
-3月17日，新中国联邦可靠消息透露中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰。尽管该消息没有公开。【2】
+“这不是援助。这是绑架，”它说。
 
-3月14日，美国国家安全顾问沙利文与中共政治局委员杨洁篪在罗马长达七小时高强度会谈，表达对中俄联盟深度担忧，随后，18日，拜登总统与习近平视频连线通话，警告中共如果援助俄罗斯将承担后果。
+本周早些时候，马里乌波尔（Mariupol）市议会称，在俄罗斯报告称有“难民”从南部战略港口抵达后，俄罗斯军队上周将数千人从被围困的城市强行带离。
 
-参考链接：
+“过去一周，数千名马里乌波尔居民被绑架到俄罗斯境内；占领者从 Livoberezhniy 区和体育俱乐部大楼的避难所非法带走了乌克兰人，那里有一千多人（主要是妇女和儿童）在躲避（俄军）不断的轰炸。”该委员会周六晚在其 Telegram 频道上发表声明说。
 
-【1】[副新闻秘书克里斯·米格和国家安全顾问杰克·沙利文的新闻发布会， 2022 年 3 月 22 日](https://www.whitehouse.gov/briefing-room/press-briefings/2022/03/22/press-briefing-by-deputy-press-secretary-chris-meagher-and-national-security-advisor-jake-sullivan-march-22-2022/)
+俄罗斯新闻机构称，最近几天，（通过）巴士将几百名被称为难民的莫斯科人从马里乌波尔运往俄罗斯。
 
-【2】[美议员提案撤销中国永久性正常贸易关系地位](https://www.voachinese.com/a/bill-introduced-to-revoke-china-pnt-20210318/5820179.html)
+美国驻联合国大使琳达·托马斯-格林菲尔德（Linda Thomas-Greenfield）在周末表示，从马里乌波尔强制绑架平民的指控如果属实，（这结果）“令人不安”和“不合情理”。
+
+“我只是听说。我无法证实，”她告诉CNN。”但我可以说这令人不安。俄罗斯军人绑架乌克兰公民进入俄罗斯，把他们放在基本上是集中营和囚犯营的地方，这是不合情理的；俄罗斯不应该违背乌克兰公民的意愿将他们转移到俄罗斯。”
+
+新闻来源：[news.sky.com] [Ukraine war: Kyiv claims Moscow forcefully deporting thousands
+ of Ukrainian children to Russia](https://news.sky.com/story/ukraine-war-kyiv-claims-moscow-forcefully-deporting-thousands-of-ukrainian-children-to-russia-12572666)
 
 * * *
 
-*编辑&发布：长岛开心*
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
 
  
 
