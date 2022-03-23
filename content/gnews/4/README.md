@@ -2,20 +2,29 @@
 ---
 
 
-## 救援进入第17天
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2218566/)
+## 乌克兰官员表示，将接收更多美国标枪和毒刺导弹
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2218568/)
 
-战争已经持续26天，我们新中国联邦的救援也已经进入了第17 天，
+据《路透社》作者：Max Hunder，2022年3月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2709-e1648058103198.png)乌克兰在波里斯皮尔机场接收美国军援。图片来源：路透社
+乌克兰，3月19日（路透社）——乌克兰国家安全和国防委员会秘书丹尼洛夫（Oleksiy Danilov）周六在电视采访中表示，乌克兰将在几天内收到一批新的美国武器，包括标枪和毒刺导弹。
 
-随着救助的人数越来越多，我们的救援工作越来越专业，战友之间的合作越来越融洽，从搭建营地，到储备物资，从摄影、录像，到直播、采访、报道，都体现了我们在用心做事。
+“这些（武器）将在近期出现在我国境内。我们指的是几天。”丹尼洛夫说。
 
-从四面八方汇集到前线的战友们不分昼夜、不分你我、不计得失的付出感动了所有人。被救助难民们衣着整洁，带着孩子带着宠物，他们的坚定勇敢也感动了我们，赢得了世界的尊重。我们的救援还在继续，此刻，我们所有新中国联邦人的心和全世界爱好和的人一起跳动！
+乌克兰盟友已经提供成批武器，以加强乌克兰军队对俄罗斯入侵的抵抗。俄罗斯批评北约成员国的这种援助。
 
-视频制作：麻辣烫
+文章来源: [https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/](https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/)
 
-文案：娜洁，法治萌芽
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
 
-发表：Shuizhuyu
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
