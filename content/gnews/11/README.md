@@ -2,30 +2,32 @@
 ---
 
 
-## 克里姆林宫希望只有“生存威胁”的情况下使用核武器
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2212814/)
+## 【G时新闻】政府向公众隐瞒疫苗真相进行未经同意的人体实验
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2212883/)
 
-**普京发言人Dmitri Peskow在乌克兰战争的背景下表示使用核武器的可能性。**
+主       播：加拿大温哥华扬帆农场 – 莉李鲤
 
-作者：AFP/mow/原文发布于2022年3月22日22:26 (MEZ)
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-11.jpg)图片：莫斯科：俄罗斯的Topol-M核导弹在阅兵式上驶过红场（档案照片）。dpa/Yuri Kochetkov
+视频制作：加拿大温哥华扬帆农场 – 文雅
 
-克里姆林宫称，在乌克兰冲突的背景下，俄罗斯只有在出现“生存威胁”的情况下才会使用核武器。克里姆林宫发言人Dmitri Peskow周二在美国有线电视新闻网国际频道表示：“我们有一个众说周知的内部安全概念。你可以在那里读到使用核武器的所有理由”。
+据《新美国人》杂志（The New American）3月21日报道，美国俄亥俄州的律师托马斯·伦茨（Thomas Renz）正代表美国前线医生协会（America’s Frontline Doctors）和“让美国再次自由（Make America Free Again）”组织就大流行病的应对措施起诉美国联邦政府。
 
-克里姆林宫发言人针对CNN记者Christiane Amanpour强调提出，关于他是否“相信或确信”俄罗斯总统弗拉基米尔·普京不会在与乌克兰的冲突中使用核弹时回答道：“如果我们的国家受到生存威胁，那么就可以按照我们的概念使用它（核弹）。”
+伦茨先生敦促法院宣布，美国卫生与公众服务部（HHS）部长宣布的“公共卫生紧急状况”所依据的紧急情况从未存在过，或者即使存在过，也已不复存在。另外，新冠疫苗强制令应被宣布是非法的，并立即终止。这些实际上是基因疗法的“疫苗”应该完全从市场上撤出。国防医学流行病学数据库（DMED）、美国食品药品监管局（FDA）的有关辉瑞新冠疫苗的数据文件、FDA疫苗与相关生物制品咨询委员会（VRBPAC）的数据等许多官方资料可以证实，这些疫苗不仅无法预防感染，而且有许多副作用，十分危险。联邦政府故意对公众隐瞒这一关键信息，是在进行未经同意的人体实验。
 
-与五角大楼等方面关于俄罗斯前进受阻的信息相反，Peskow表示，在乌克兰的军事行动“正在完全按照预定计划进行”。俄罗斯军队希望“消除乌克兰的军事潜力”，这是“行动的主要目标”之一。
+伦茨相信大规模疫苗接种运动背后的势力正在寻求建立一个无所不能的绝对强权体系，以控制全世界人民。“这些全球暴君、这些渴望权力的怪物，他们想让我们害怕、想让我们彼此分离，制造分裂。因为他们知道，如果我们团结起来，他们就会失去权力。人们应该敦促他们的总检察长和检察官加入打击新冠罪犯的行列。任何不在这个问题上投入精力的总检察长，请投票反对他们。”
 
-与此同时，克里姆林宫发言人表示，莫斯科在乌克兰的部队“只针对军事目标和物体”。与此相反，乌克兰、西方政府和人权组织指责俄罗斯也在袭击平民。
+视频链接:[https://gettr.com/post/p119o3i6d69](https://gettr.com/post/p119o3i6d69)
 
-同时，鉴于乌克兰战争的发展，联合国秘书长安东尼奥·古特雷斯不再排除核战争的可能性。俄罗斯将核大国的威慑性武器置于待命状态，这一发展令人毛骨悚然。古特雷斯上周在纽约表示：“曾经不可想象的核冲突前景，现在又回到了可能发生的范围。”在此，联合国负责人改变了语气：他之前曾将使用核武器的可能性描述为“难以想象”。
+编辑/上传：文莱
 
-原文链接：[https://www.berliner-zeitung.de/news/kreml-will-atomwaffen-nur-bei-existenzieller-bedrohung-einsetzen-li.218347](https://www.berliner-zeitung.de/news/kreml-will-atomwaffen-nur-bei-existenzieller-bedrohung-einsetzen-li.218347)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,32 @@
 ---
 
 
-## 中共国发生严重空难事故
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212711/)
+## 普京演讲承诺克里姆林宫的所有目标都将实现
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2212809/)
 
-作者：加拿大温哥华扬帆农场 – 文莱
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2584.png)[China Eastern Boeing 737 crash (key.aero)](https://www.key.aero/article/china-eastern-boeing-737-crash)
+整理：gardeniahu
+编辑：jocozoner
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
 
 
-报道称，该架从昆明至广州，载有132位乘客的波音737航班在广西梧州附近坠毁，并引发坠机现场的森林大火。目前，东航所有737-800型飞机都被勒令停飞。
+据路透社3月18日报道，俄罗斯总统普京周五在一个座无虚席的足球场为入侵乌克兰辩护，但直播画面却出现了意外中断，据俄罗斯国家电视台称是技术问题。
 
-尽管总部位于芝加哥的波音公司随后声明将彻查坠机原因，但其股价在当天的盘前交易中下跌超过8%。此外，在波音737MAX飞机此前发生过两次致命事故后，目前已在全球范围内停飞。但中共国却在去年批准重新使用该型号飞机，而使其成为737MAX飞机仅存的用户市场。
+直播画面短暂切换成了预先录制好的爱国歌曲画面，稍后普京讲话的画面又重新出现在国家电视台的频道上。
 
-校对编辑：硫酸羟氯喹64
+在装饰着“为了一个没有纳粹主义的世界”和“为了我们的总统”等横幅标语的演讲台上，69岁的普京向成千上万挥舞着俄罗斯国旗高呼“俄罗斯、俄罗斯、俄罗斯”的人们说：“我们知道我们需要做什么，如何做，以及需要付出什么代价。我们绝对会完成所有计划。”他还承诺，克里姆林宫的所有目标都将实现。
 
-发稿：青青
+新闻链接：[普京誓言俄罗斯将在乌克兰获胜，但国家电台因技术故障短暂中断其讲话直播](https://www.reuters.com/article/ukraine-crisis-putin-rally-idCNL3S2VL3IG)
 
-新闻来源： [Boeing 737 plane crashes in China | CTV News](https://www.ctvnews.ca/world/chinese-airliner-crashes-with-132-aboard-in-country-s-south-1.5827371)
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

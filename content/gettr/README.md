@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@suzeorman 3/22/2022 11:38 PM (UTC)`
+
+Switching your workplace #retirement contributions to a Roth 401(k), if available, can be a smart move. With a Roth, your contribution will come from pay that you have already paid tax on. But in retirement, when you make withdrawals, every dollar will be tax free.
+
+---
+
 `@miles 3/22/2022 11:37 PM (UTC)`
 
 2022.03.22《The Fringe》Episode 152  NFSC/ROL CONTINUAM A RESGATAR UCRANIANOS
@@ -146,13 +154,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 2022.03.22 早《新中国联邦新闻访谈》TikTok算法把用户导向乌克兰战争虚假新闻；新中国联邦乌克兰国际救援行动不会停止；喜币将成为数字货币之王
 ![img](https://media.gettr.com/group44/origin/2022/02/28/14/58b02062-d20a-7a34-627d-33645dc3ad05/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/22/2022 12:58 PM (UTC)`
-
-【Ukraine Rescue】03/19/2022 Nicole interviews two Polish scouts from ZHR (Scouting Association of the Republic of Poland) who had taken time from school to help the refugees at Medyka. Nicole introduces that the NFSC members also love helping people. <br/><br/>【乌克兰救援】03/19/2022 妮可采访了两名来自波兰共和国童军协会的童子军，他们抽出学习时间到梅迪卡参与救助难民。妮可向他们介绍道，我们新中国联邦人也同样乐于助人。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group23/getter/2022/03/22/12/475dcd62-d13d-0eeb-25dd-b9283085a600/out.jpg)
 
 ---
 

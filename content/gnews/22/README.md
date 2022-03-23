@@ -2,22 +2,28 @@
 ---
 
 
-## 樱花时政┃国际医疗服务组织AMDA目睹乌克兰难民惨状
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2212644/)
+## 樱花时政┃政客们会在投票箱里感到滞胀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2212654/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-111.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fglobal.unitednations.entermediadb.net%2Fassets%2Fmediadb%2Fservices%2Fmodule%2Fasset%2Fdownloads%2Fpreset%2FLibraries%2FProduction%2BLibrary%2F18-03-2022-Ukrainian%2Brefugees-Poland%2Bborder%2B1.JPG%2Fimage1170x530cropped.jpg&amp;imgrefurl=https%3A%2F%2Fnews.un.org%2Fzh%2Fstory%2F2022%2F03%2F1100682&amp;tbnid=xakAP4mXdSc4JM&amp;vet=12ahUKEwjHq-mjpdr2AhWGlP0HHZGRDd8QMygregUIARCuAg..i&amp;docid=rVj-50ofmz6DnM&amp;w=1170&amp;h=530&amp;q=%E4%B9%8C%E5%85%8B%E5%85%B0%E9%9A%BE%E6%B0%91&amp;ved=2ahUKEwjHq-mjpdr2AhWGlP0HHZGRDd8QMygregUIARCuAg)
-俄罗斯军队开始入侵乌克兰到3月24日一整月，冈山市国际医疗服务AMDA负责支援当地难民的现状，可是一片混乱。
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-38.png)图片来源本文链接
+斯图尔特·瓦尼说，美国存在每个人都能“看到、感受到”的通胀问题。
 
-（AMDA 难波妙理事）“每天下午5点到8点给从乌克兰来避难，身体不好的人看病。”AMDA等医疗队活动在匈牙利扎奥尼，是与乌克兰接壤的城市。在车站内设置的1张榻榻米左右的临时空间，为难民进行诊疗和咨询。“正在接受癌症治疗的人不得不中断治疗，平时可以接受的治疗因为进入紧急状态而得不到治疗。在避难途中受伤20多岁女性，被流弹击中，不顾伤口也得逃跑。”
+FOX Business的斯图尔特·瓦尼（ Stuart Varney ）周二在他的“我的看法”中警告说，滞胀正在再次走向美国，并指出，虽然美国人已经在钱包​​里感受到它，但政客们会在投票箱里感受到它。
 
-截止到20日，匈牙利共接纳了31.2万名难民。特别是儿童身上有明显的身体不适。“孩子们得了肺炎。因为移动了很长的距离，很多人得肺炎。”“医生说是因为孩子们的体力及长距离在寒冷的天气里移动等因素。虽然能买到一般销售的药，但是处方药还没有得到，因此AMDA决定提供资金，让孩子服用。”
+专家警告1970年代新的经济危机将再次发生。斯图尔特·瓦尼：滞胀不是一个令人愉快的话题。有时经济会陷入棘手的混乱——缓慢或“无”增长，价格上涨：这就是滞胀。
 
-距俄军队开始进攻到24日已经快一个月了。包括儿童在内的无辜市民因战祸被驱逐出境。“这不是别人的事情，而是在世界上正在发生的事情。而且，是我们自己建立的和平，倒塌的瞬间。在俄罗斯国内，普通市民也处于严酷的状况。普通人会是怎样的情况请冷静下来对待。””
+我们已经有一代人没有感觉到它了，但它看起来肯定会再次朝着我们的方向发展。你会听到很多关于这个的！过去一年，通胀逐渐升温。现在，它以10%的速度运行。而且，我认为情况会变得更糟。食品价格通胀将很快加速。再加上汽油价格、电费和其他一切，你就会遇到每个人都能看到和感受到的通货膨胀问题。
 
-信息来源：
+解决这个问题是美联储的工作。他们通过提高利率来做到这一点。这就是他们现在正在做的事情。经济将放缓。这就是“滞胀”的“停滞”部分——经济停滞，物价上涨。
 
-[がんの治療を中断、子どもの肺炎…国際医療ボランティアAMDAが見た「ウクライナ避難民の現状」【岡山】](https://news.yahoo.co.jp/articles/8181e1384bbdff443a18b0eff8b2d480f3f5ae47)
+想想这意味着：生活水平下降，尤其是低收入人群。几乎每个人都会失去阵地。 我们在70年代末和80年代初看到了滞胀。百分之十的通货膨胀；经济放缓；加息然后衰退。愤怒的选民解雇了卡特总统。这一次，我们的钱包已经感到滞胀。我认为政客们会在投票箱中感受到这一点。
+
+评论：有史以来最猛烈的经济危机，不可避免的将要到来，全世界都会感受到。这都是由中国共产党病毒造成的。我们将别无选择，只有消灭中国共产党才能使我们从危机中走出来。
+
+消息来源：
+
+[Varney: Politicians will feel stagflation at the ballot box](https://www.foxbusiness.com/economy/varney-politicians-will-feel-stagflation-at-the-ballot-box)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
