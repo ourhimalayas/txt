@@ -2,32 +2,35 @@
 ---
 
 
-## 普京派遣“行刑队”杀死试图逃离乌克兰战争的本国军人
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2218507/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月23日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2218534/)
 
-#### 选材/编译：Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16480569041.png)Reuters
-据综合媒体今日报道，俄罗斯军队原本计划一次“闪电式入侵”，但持续近一个月的战斗使俄罗斯军人士气低落。为了应对叛逃，根据乌克兰安全局（SBU）的一封电报，普京启用了二战时期斯大林的 “行刑队”战术，杀死拒绝对乌克兰发动袭击的部队中的叛逃者。
+作者：香草山翻译部
 
-美国情报部门提供了一个保守估计，即7000名俄罗斯士兵在冲突中丧生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-20.png)
 
-五角大楼一名高级官员告诉《纽约时报》，俄罗斯军队“在许多战线上都在挣扎”，包括常规补给线和后勤，一些俄罗斯军队因冻伤而撤离。人权观察组织将马里乌波尔一带，描述为“布满尸体的冰冷地狱景观”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-23.png)
 
-自从俄罗斯于2月24日开始入侵以来，基辅已经发布了俄罗斯俘虏的视频，这些俘虏在镜头下讲述他们选择退出而不是继续战斗。在坦克部队逃回俄罗斯后，指挥官被带走审讯。被俘士兵说，指挥官告诉他逃回俄罗斯会被处决，所以将他纪录在死亡名单里。
+文章仅代表作者本人观点，与Gnews无关
 
-乌克兰成功的发动自己的宣传战。乌克兰内政部长顾问维克多·安德鲁西夫（Victor Andrussif）在社交媒体上发表的声明中承诺，在剩余的战争期间向叛逃者提供，1万美元，和带有电视、电话、厨房和淋浴的房间，还有公民身份。
+视频参看：
+[2022.03.23早 《NFSC新闻》](https://gettr.com/streaming/p11gsoa0090)
+[2022.03.23早《NFSC新闻访谈》](https://gettr.com/streaming/p11grr82ae6)
 
-内政部长丹尼斯·莫纳斯蒂尔斯基（Denys Monastyrsky）说：“我们看到俄罗斯军队自愿与我军联系，并宣布他们想要投降”。许多人意识到他们被指挥官用作“炮灰”。乌克兰国防部的情报机构说：“在看到乌克兰捍卫者的真正实力后，侵略者不再对俄罗斯所承诺的，掠夺乌克兰的金钱感兴趣”。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-据基辅称，大量俄罗斯军队正携装备向乌克兰投降。周三，乌克兰武装部队透露，300名俄罗斯士兵“拒绝遵守作战命令”，并“离开”苏米地区的一个激战区。两天前，在南赫尔松和米科拉伊夫地区的叛逃人数急剧上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-20.jpeg)
 
-叛逃最终将成为俄罗斯在战争中失败的主要原因。在近四周的战争中，尽管普京的军队实力强大，但仍无法占领基辅。向乌克兰派遣行刑队的最新命令是因为到叛逃者人数不断增加，同时俄罗斯的军事政策现在正在失败，克里姆林宫正在调整对基辅的攻击计划。
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-*责编：白夜*
-
-[Source](https://www.ibtimes.sg/putin-sends-execution-squad-kill-his-troops-kremlin-reshapes-strategies-counter-defections-63538)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-21.png)
 
  
 

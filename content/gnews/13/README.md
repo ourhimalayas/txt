@@ -2,19 +2,35 @@
 ---
 
 
-## 西班牙媒体大胆报道新中国联邦救援中心
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2218697/)
+## 普京通过改变石油支付方式回击制裁
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2218723/)
 
-难得又有一个媒体大胆报道了咱们。刚才西班牙媒体Republica的记者给意大利战友文科发了他们报道梅迪卡难民营的报道文章链接，内容包括过境的难民、其他国际营救机构、战地音乐家大卫和对新中国联邦的介绍。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/U-4.jpg)
-其中对新中国联邦报道部分的中文翻译如下：
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-在大卫和他的钢琴旁边，是整个难民营中规模最大、建造最好的营救设施——新中国联邦的帐篷。新中国联邦是一个以推翻中共政府为最终目标的团体。“我们的帐篷是所有帐篷中设施最好的，我们还为难民提供免费WIFI。我们要让世界知道，一个没有中国共产党的中国是一个更加美好的中国。” 在场的义工说。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1151.jpg)
 
-发表文章的链接： 
-[https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/](https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/)
 
-**整理 发布：意大利罗马达芬奇农场 Roma**
+图片来源：PNP
+
+周三，俄罗斯军队轰炸了乌克兰首都基辅的一些地区，而西方领导人则聚集在布鲁塞尔，计划采取更多措施向俄罗斯总统弗拉基米尔普京施压，要求其停止竞选活动。
+
+普京回应西方对俄罗斯经济造成沉重打击并冻结其资产的制裁措施时表示，莫斯科计划将其对“不友好”国家的天然气销售换成卢布——此举令国际市场感到震惊。
+
+两名消息人士称，作为莫斯科队伍出现裂痕的迹象，普京的资深助手阿纳托利·丘拜斯因乌克兰战争而辞职，并离开俄罗斯并无意返回。自普京于 2 月 24 日发动入侵以来，他是第一位与克里姆林宫决裂的高级官员。
+
+普京宣布俄罗斯将把某些天然气销售换成卢布，这让欧洲期货飙升，因为担心这种转变会加剧该地区的能源紧缩，并阻碍每天高达数亿美元的交易。
+
+俄罗斯天然气约占欧洲天然气总消费量的 40%。
+
+莫斯科制定了一份“不友好”国家名单，与实施制裁的国家相对应。它们包括美国、欧盟成员国、英国和日本等。
+
+普京在与政府部长的电视会议上说：“当然，俄罗斯将继续按照之前签订的合同中规定的数量和价格供应天然气。”
+
+短评：普京在邪恶的道路上已经越走越远了。 先用核武器要挟全世界， 现在要用俄罗斯卢布进行石油支付手段， 这就是直接挑战美元和西方已有的金融秩序， 他不可能得逞。
+
+🔗 [https://www.reuters.com/world/europe/biden-heads-euan-23/](https://www.reuters.com/world/europe/biden-heads-europe-russian-offensive-stalled-besieged-mariupol-burns-2022-03-23/)
+
+编辑发表： Shuizhuyu
 
  
 

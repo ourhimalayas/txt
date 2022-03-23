@@ -2,33 +2,19 @@
 ---
 
 
-## 美国宣布对部分中共国官员实施签证限制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2218648/)
+## 西班牙媒体大胆报道新中国联邦救援中心
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2218697/)
 
-***评论：**中美领导人上周曾透过视频对话，但根据双方会后公布，两国领导人似是自说自话和重申立场。拜登警告总加速师（中共党魁习近平），任何军援或帮助俄国绕过国际制裁，均会带来后果。而加速师则警告拜登，若台湾问题不能妥善处理，将会为中美关系带来负面影响……好戏即将上演。*
+难得又有一个媒体大胆报道了咱们。刚才西班牙媒体Republica的记者给意大利战友文科发了他们报道梅迪卡难民营的报道文章链接，内容包括过境的难民、其他国际营救机构、战地音乐家大卫和对新中国联邦的介绍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/U-4.jpg)
+其中对新中国联邦报道部分的中文翻译如下：
 
-据《路透社》2022年3月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2711-e1648059785124.png)2022年3月21日，美国国务卿安东尼·布林肯在美国华盛顿大屠杀纪念馆观看“缅甸走向种族灭绝之路”展览后发表讲话。
-图片来源：Kevin Lamarque/路透社
-洛杉矶，3月21日（路透社）——美国国务卿安东尼·布林肯 (Antony Blinken) 周一表示，美国正在限制一些中共国官员的签证，因为他们参与了对少数民族和宗教少数群体的“镇压行为”。
+在大卫和他的钢琴旁边，是整个难民营中规模最大、建造最好的营救设施——新中国联邦的帐篷。新中国联邦是一个以推翻中共政府为最终目标的团体。“我们的帐篷是所有帐篷中设施最好的，我们还为难民提供免费WIFI。我们要让世界知道，一个没有中国共产党的中国是一个更加美好的中国。” 在场的义工说。
 
-文章来源：[https://www.reuters.com/world/china/us-restrict-visas-chinese-officials-blinken-2022-03-21/](https://www.reuters.com/world/china/us-restrict-visas-chinese-officials-blinken-2022-03-21/)
+发表文章的链接： 
+[https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/](https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/)
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**整理 发布：意大利罗马达芬奇农场 Roma**
 
  
 

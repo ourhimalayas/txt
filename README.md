@@ -15,89 +15,89 @@
 
 ---
 
-### [法国农业信贷银行暂停在俄罗斯的服务](/content/gnews/1/README.md)
- ` Shuizhuyu`
+### [2022/03/23 文贵先生直播重点大纲](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [从近两年曾庆红的动向看共产党结局](/content/gnews/2/README.md)
+### [习寄希望于疫苗灾难到来重创美国](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [为严惩中共侵犯人权 美议员提案取消其永久最惠国地位](/content/gnews/3/README.md)
+### [法国农业信贷银行暂停在俄罗斯的服务](/content/gnews/3/README.md)
+ ` Shuizhuyu`
+
+### [从近两年曾庆红的动向看共产党结局](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [为严惩中共侵犯人权 美议员提案取消其永久最惠国地位](/content/gnews/5/README.md)
  ` 日本東京方舟農場`
 
-### [3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的](/content/gnews/4/README.md)
+### [3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年3月23日大直播速记精萃](/content/gnews/5/README.md)
+### [2022年3月23日大直播速记精萃](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [《共产党统治中国的150个家族》之“李鹏”篇（三）](/content/gnews/6/README.md)
+### [《共产党统治中国的150个家族》之“李鹏”篇（三）](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [布鲁塞尔三峰会谈：议程内容](/content/gnews/7/README.md)
+### [布鲁塞尔三峰会谈：议程内容](/content/gnews/9/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [西藏歌手才旺罗布身亡 中共大力封杀各方消息](/content/gnews/8/README.md)
+### [西藏歌手才旺罗布身亡 中共大力封杀各方消息](/content/gnews/10/README.md)
  ` 日本東京方舟農場`
 
-### [美国前国务卿奥尔布赖特去世](/content/gnews/9/README.md)
+### [美国前国务卿奥尔布赖特去世](/content/gnews/11/README.md)
  ` Shuizhuyu`
 
-### [DC每日热点0323](/content/gnews/10/README.md)
+### [DC每日热点0323](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [普京通过改变石油支付方式回击制裁](/content/gnews/11/README.md)
+### [普京通过改变石油支付方式回击制裁](/content/gnews/13/README.md)
  ` Shuizhuyu`
 
-### [西媒头条 — 第194期](/content/gnews/12/README.md)
+### [西媒头条 — 第194期](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西班牙媒体大胆报道新中国联邦救援中心](/content/gnews/13/README.md)
+### [西班牙媒体大胆报道新中国联邦救援中心](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [投降的俄罗斯士兵用坦克換了1万美元和公民身份机会](/content/gnews/14/README.md)
+### [投降的俄罗斯士兵用坦克換了1万美元和公民身份机会](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国宣布对部分中共国官员实施签证限制](/content/gnews/15/README.md)
+### [美国宣布对部分中共国官员实施签证限制](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [斯洛伐克开始部署爱国者防空系统](/content/gnews/16/README.md)
+### [斯洛伐克开始部署爱国者防空系统](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [乌克兰官员表示，将接收更多美国标枪和毒刺导弹](/content/gnews/17/README.md)
+### [乌克兰官员表示，将接收更多美国标枪和毒刺导弹](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [救援进入第17天](/content/gnews/18/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [文贵爆料 3.23：俄乌战争，从一开始便已然注定](/content/gnews/19/README.md)
+### [文贵爆料 3.23：俄乌战争，从一开始便已然注定](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](/content/gnews/20/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [普京派遣“行刑队”杀死试图逃离乌克兰战争的本国军人](/content/gnews/21/README.md)
+### [普京派遣“行刑队”杀死试图逃离乌克兰战争的本国军人](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022年3月23日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
+### [2022年3月23日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【转】截至3.23 俄乌战事汇总（2）](/content/gnews/23/README.md)
+### [【转】截至3.23 俄乌战事汇总（2）](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频|还未迈步拥抱世界的友好 便已经历残酷的杀戮](/content/gnews/24/README.md)
+### [视频|还未迈步拥抱世界的友好 便已经历残酷的杀戮](/content/gnews/25/README.md)
  ` 爆料视频`
 
-### [十万平民被困，俄军继续轰炸马里乌波尔并抓捕国际救援人员](/content/gnews/25/README.md)
+### [十万平民被困，俄军继续轰炸马里乌波尔并抓捕国际救援人员](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【秘翻时评】美国与西方联盟评估将俄逐出G20](/content/gnews/26/README.md)
+### [【秘翻时评】美国与西方联盟评估将俄逐出G20](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [绝望的债券持有人威胁要起诉恒大](/content/gnews/27/README.md)
+### [绝望的债券持有人威胁要起诉恒大](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [文贵大直播要点（2022年3月23日）](/content/gnews/28/README.md)
- ` 波士顿五月花农场`
 
 ### [匈牙利RTL记者专访新中国联邦救援团队](/content/gnews/29/README.md)
  ` NFSC News`
