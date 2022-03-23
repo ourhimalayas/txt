@@ -2,46 +2,34 @@
 ---
 
 
-## 乌总统日本国会发表演说，岸田首相出席G7首脑会议
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2215925/)
+## 俄罗斯中断与日本和平条约谈判，两国关系进一步降温
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2216118/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/model-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/model-1.png)
 
 撰稿：毛毛虫
-![](https://assets.gnews.org/wp-content/uploads/2022/03/234.png)图片来自网络
-俄罗斯军事入侵持续，乌克兰泽连斯基总统将于23日在日本国会发表在线演讲。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3.23-D.jpg)图片来源于网络
+俄罗斯外交部21日发布消息称，俄方在目前情况下无意与日本包括北方领土问题在内的和平条约问题进行继续谈判。采取该措施是因为在俄入侵乌克兰时日本单方面对其实施制裁限制。由于长期备受关注的北方领土问题谈判暂停，因而日俄关系进一步降温是不可避免的。
 
-与此同时，日本岸田首相将于23日晚启程前往比利时，参加将于24日举行的七国首脑峰会，讨论乌克兰局势，希望七国团结一致，表明国际社会对俄罗斯的强硬立场。
+该声明强调“鉴于日本就乌克兰局势对俄方实施单方面限制显然不友好，因此 俄方无法与一个公开采取不友好立场并试图损害我国利益的国家，讨论签署双边关系基本文件问题。”
 
-乌克兰泽连斯基总统在国会的演说，将于下午6点在网上发表。
-
-泽连斯基总统预计将感谢日方迄今的回应，并呼吁提供进一步合作与支持，日本政府将根据演讲内容考虑未来的回应。
-
-另一方面，俄罗斯军事入侵乌克兰1个月后，24日在比利时首都随着布鲁塞尔紧急召开G7大国首脑会议，岸田首相表示23日晚启程前往该地区。
-
-日本岸田首相在22日国会审议中表示 “日本作为亚洲唯一参加G7集团的国家，在此前访问印度和柬埔寨的基础上，愿意坚定投入到亚洲局势，并与G7各国分享形式判断。
-
-日本正在继续其外交努力，为在亚洲地区建立对俄施压做出贡献，将为乌克兰提供人道主义援助做出更大贡献。
-
-预计实地停留时间约为几小时，希望尽可能与美国拜登总统和其他国家元首单独会晤，正在进行协调。
+此外，俄方宣布停止 1991年商定的北方四岛免签往来、99年开始的自由访问框架内免签入境，还退出2016年关于北方四岛联合经济活动的日俄首脑会议。俄方指责日本故意选择反俄路线 ，而不是互利合作发展睦邻友好关系，这些损害两国利益的责任全部由日方担负。
 
 *审核：**Gradient Boost*
 
-*发稿：**mgjxs*
+*发布：**Gradient Boost*
 
-新闻参考链接：[NHK（JP）](https://www3.nhk.or.jp/news/html/20220323/k10013546371000.html)
+新闻参考链接：
+
+[Jiji Press（JP）](https://www.jiji.com/jc/article?k=2022032200661&amp;g=pol)
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/model-2.png)
-
-更多资讯，更多关注
-
-[乌克兰救援UkraineRescue官方Gettr](乌克兰救援UkraineRescue官方Gettr)
-
-[郭文贵先生Gettr](郭文贵先生Gettr)
-
-[全球喜马拉雅农场联盟委员会Gettr](全球喜马拉雅农场联盟委员会Gettr)
-
-[喜马拉雅联盟大使馆全球客服中心Discord](喜马拉雅联盟大使馆全球客服中心Discord)
 
  
 
