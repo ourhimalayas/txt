@@ -16,6 +16,8 @@
 ---
 ## 頁面 21/41 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [41](/content/README-41.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年11月18日文贵谈香港理工大学事件背后的故事](/content/2019/11/20191119-700270483313252940.md)
+
 [文字版：2019年11月17日文贵先生对理工大学的人道危机个人看法](/content/2019/11/20191118-3253846857255260107.md)
 
 [文字版：2019年11月16日解放军走出军营的那一刻，是历史的重大转折](/content/2019/11/20191117-3916342912052380154.md)
@@ -63,8 +65,6 @@
 [文字版：2019年10月26日文贵和战友谈北京局势和四中全会](/content/2019/11/20191104-7849947075695036861.md)
 
 [文字版2019年10月25日文贵跟路德再谈彭斯副总统演讲的重大意义](/content/2019/10/20191028-4834533128406187922.md)
-
-[文字版：2019年10月25日2019年10月25日直播谈中国同胞39名惨死偷渡英国途中，文贵先生解读彭斯演讲，四中全会党内将人头滚滚](/content/2019/10/20191028-9024076555776316516.md)
 
 
 ## 頁面 21/41 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [41](/content/README-41.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)

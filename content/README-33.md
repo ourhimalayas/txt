@@ -16,6 +16,8 @@
 ---
 ## 頁面 33/41 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) ... [41](/content/README-41.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
 
+[文字版：2018年7月17日路德访谈郭文贵先生全球直播（第二部分）](/content/2018/07/20180719-6182147046946865202.md)
+
 [2018年7月17日路德访谈郭文贵先生全球直播（第三部分）](/content/2018/07/20180719-5954422145993644820.md)
 
 [文字版：2018年7月17日路德访谈郭文贵先生全球直播（第一部分）](/content/2018/07/20180719-5443469418694785796.md)
@@ -63,8 +65,6 @@
 [文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/2018/05/20180512-8900938020145834574.md)
 
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
-
-[为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/2018/05/20180506-3935055223509815225.md)
 
 
 ## 頁面 33/41 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) ... [41](/content/README-41.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)

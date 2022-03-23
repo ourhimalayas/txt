@@ -16,6 +16,8 @@
 ---
 ## 頁面 27/41 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) ... [41](/content/README-41.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年5月4日：小夏与文贵谈四一九VOA断播背后的真相](/content/2019/05/20190507-3556468867911732041.md)
+
 [文字版：2019年5月3號，文貴與大家分享一些過去沒有講過的事情](/content/2019/05/20190505-8215359128431540656.md)
 
 [文字版：2019年5月1日从委内瑞拉革命，我们可以得到如何保护台湾和香港快速灭共的最佳办法，什么是尿脸党！](/content/2019/05/20190503-1124134535773552324.md)
@@ -63,8 +65,6 @@
 [文字版：2019年3月29日郭文贵先生浴火重生](/content/2019/03/20190330-2880102853633751402.md)
 
 [文字版：2019年3月5日 为什么在两会上说，金正恩拯救了中国](/content/2019/03/20190306-7214667164782949477.md)
-
-[文字版：2019年3月4日文贵谈10亿欧元怎么来的](/content/2019/03/20190305-5389062198160032746.md)
 
 
 ## 頁面 27/41 [**<**](/content/README-26.md) [1](/content/README.md) ... [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) **27** [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) ... [41](/content/README-41.md) [**>**](/content/README-28.md) [查看全部](/content/README-all.md)

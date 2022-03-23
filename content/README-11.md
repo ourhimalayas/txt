@@ -16,6 +16,8 @@
 ---
 ## 頁面 11/41 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [41](/content/README-41.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版2021年1月1日郭先生GTV直播](/content/2021/01/20210101-728304.md)
+
 [2020年12月27日郭先生大使馆群聊内容整理-附听写文字版](/content/2020/12/20201227-698031.md)
 
 [文字版2020年12月25日郭先生GTV直播](/content/2020/12/20201225-728174.md)
@@ -63,8 +65,6 @@
 [文字版：2020年11月15日文贵先生连线唐平、威廉王](/content/2020/11/20201129-7306310389775398829.md)
 
 [文字版2020年11月28日郭先生GTV直播](/content/2020/11/20201128-640822.md)
-
-[文字版2020年11月27日郭先生GTV直播](/content/2020/11/20201127-640673.md)
 
 
 ## 頁面 11/41 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [41](/content/README-41.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
