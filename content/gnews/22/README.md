@@ -2,10 +2,10 @@
 ---
 
 
-## 单伟建出任阿里巴巴新任独立董事
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214926/)
+## 梅迪卡前线战友考察当地最大难民疏散中心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214932/)
 
-作者：银河系农场 – 骄子
+作者：香草山教育部 -飞虹
 
 
 
@@ -13,15 +13,10 @@
 
 
 
-阿里巴巴22日发布公告，计划扩大100亿美元的美股回购规模，将回购总额从150亿美元上调至250亿美元，有效期至2024年3月，为期两年。这是自2017年以来，阿里巴巴第三次增加回购计划总额。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-12.jpg)
-与此同时，阿里巴巴还宣布，委任太盟投资集团执行董事单伟建为董事会独立董事，兼审计委员会成员，任命期于3月31日生效。
-
-早前，郭文贵先生曾多次爆光单伟建的真实身份是中共高级特务，不仅是中共千人计划的重要推手，也是蓝金黄美国政要的关键人物。
-
+3月21日梅迪卡前线消息，目前通过我们救援中心附近的边境关口入境的乌克兰难民减少了很多，大卫等前线战友驱车15分钟到当地最大的难民疏散中心进行考察，了解那里的情况。 从画面中可以看到，与边境口岸相比，这里更为宽敞，有更多当地以及国际救援机构提供服务，服务内容也更加多样、全面，虽然难民数量众多，但秩序井然。 前线战友希望从中取长补短，在保障安全的前提下，为难民提供更多、更好的服务，也让更多人了解到新中国联邦和新中国联邦人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-8.jpg)
 参考链接：
-1. [视频：CCP間諜～单伟健](https://gettr.com/post/pzvm910bf4)
-2. [Alibaba upsizes share buyback by two-thirds to record $25 billion](https://www.reuters.com/business/retail-consumer/alibaba-increases-share-buyback-25-billion-15-billion-2022-03-22/)
+[郭先生盖特视频：2022年3月21日 前线战友去梅迪卡附近当地最大的难民疏散中心考察（车程15分钟）](https://gettr.com/post/p117o8ia43d)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 

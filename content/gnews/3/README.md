@@ -2,46 +2,134 @@
 ---
 
 
-## 台湾中央社记者支持中国人争取自由、民主和法治
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2215141/)
+## 将来财产最安全的就是灭共的投资G系列的新中国联邦人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215261/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+这个艾力克斯被惩罚
+Este Alex fue castigado
 
-整理/编辑：小红帽
+我告诉大家今天为什么要说他
+Les diré por qué hoy estoy hablando de él
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-23_14-15-02.png)图片来源：郭文贵先生盖特视频截图
+他是一个完全在俄罗斯最干净的商人之一
+Él es uno de los empresarios más limpios de Rusia
 
+最有品味的世界超级富豪
+Es el más rico de todo el mundo con buena moralidad
 
-3月19日，在波兰梅迪卡难民援救中心，台湾中央社记者采访在了新中国联邦和法治基金的志愿者妮可并了解了这次的乌克兰救援行动。妮可表明了新中国联邦和法治基金推翻中共的立场。台湾记者表示，新中国联邦和法治基金在乌克兰人道救援中发挥了正面作用。她支持新中国联邦和法治基金为中国人争取自由、民主，法治而做的工作。
+最会赚钱的人
+Es la persona que sabe más cómo enriquecerse
 
-以下是妮可与台湾记者的部分采访内容。
+黄金
+El oro
 
-妮可：“我想问您一下，您以前有听说过新中国联邦吗？”
+我们的基金最早买他黄金买了好多
+Nuestra fundación fue el primero en comprarle oro y bastante
 
-台湾记者：“不是很了解。但是我大概有听说。”
+赚了好多钱
+Ganó mucho dinero
 
-妮可：“那么你对新中国联邦和法治基金，以及我们做的这个事情有什么看法呢？”
+但是黄金永远不可能翻倍的
+Pero el oro nunca puede duplicarse
 
-台湾记者：“至少在帮助难民这一方面来讲，发挥了正面的作用。你们在这里多久了？”
+永远要长点脑子, 兄弟姊妹们
+Deben tener siempre el cerebro, hermanos y hermanas
 
-妮可：“我们已经在这边有快两个星期了。那么你作为一个华人，你是否支持我们法治基金帮助在中国大陆14亿中国人，也是我们人类的同胞获得法治、自由和民主呢？”
+艾力克斯他是黄金公司老板, 化肥的老板
+Alex es el jefe de la compañía de oro y de fertilizantes
 
-台湾记者：“当然，法治、自由，民主是一定要支持的。”
+而且真正是赚钱的
+Y realmente gana dinero
 
-妮可：“好的，谢谢你们。我们法治基金和我们新中国联邦人，我们热爱台湾人民。我们支持你们的法治、自由和民主。愿上帝保佑你们。”
+但是他被俄罗斯, 被普京给裹挟了
+Pero fue amenazado por Rusia y Putin
 
-台湾记者：“谢谢。”
+所以
+Por eso
 
-资料来源：[郭文贵先生2022年3月22日盖特视频](https://www.gettr.com/post/p11akygdca9)
+一旦中共国被Swift(排除)的时候
+Una vez que China comunista sea (eliminado) por Swift
 
-发布：tianzhihuan
+不分好坏人, 只要是中国人全完蛋
+No hay diferencia entre buenas o malas personas, siempre y cuando sean chinos serán acabados
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+还有更夸张的事情
+Y hay algo más exagerado
+
+阿布是以色列护照
+Roman Abramovich tiene el pasaporte de Israel
+
+艾力克斯是拿英国护照
+Alex tiene el pasaporte de Reino Unido
+
+照样被没收
+De igual manera fueron confiscados
+
+切尔西俱乐部自动交出去
+El Chelsea Football Club se entregó automáticamente
+
+所以我告诉大家
+Por lo tanto les digo a todos
+
+不是因为你是中国人
+No es porque eres chino
+
+我今天, 我文艺, 我双胞胎
+Hoy yo, Wenyi, los morochos
+
+我就在日本, 我不受你制裁
+Estoy en Japón, no seré sancionado por ti
+
+你一样被受制裁
+Igual serás sancionado
+
+唯一让你不受制裁的就一招
+Lo único que te mantendrá alejado de las sanciones
+
+你别以为你是混血儿
+No creas que eres mestizo
+
+你们像这样是灭共的新中国联邦人
+Ustedes como las personas del Nuevo Estado Federal de China que destruyen al Partido Comunista
+
+唯一一个财富能得到安全的
+La única riqueza que puede obtener seguridad es
+
+我是新中国联邦的投G系列投资者
+Soy el inversor de la serie G del Nuevo Estado Federal de China
+
+我是灭共的
+Soy el que destruye al Partido Comunista
+
+第二, 我是灭共的新中国联邦人
+Segundo, soy persona del Nuevo Estado Federal de China que elimina al Partido Comunista
+
+你不会受制裁
+No serás sancionado
+
+我给你百分之百保证
+Te comprometo al 100%
+
+* * *
+
+日期：03/21/2022
+原视频标题：将来财产最安全的就是灭共的投资G系列的新中国联邦人
+La riqueza más segura en el futuro será el pueblo del Nuevo Estado Federal de China que invierta en la serie G para eliminar al Partido Comunista
+
+原视频日期：03/15/2021
+原视频网址：[**https://gettr.com/post/p101jbgdd2c**](https://gettr.com/post/p101jbgdd2c)
+任务编号：KC479（4042）
+视频时间段：0:00-1:34
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

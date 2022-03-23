@@ -2,25 +2,31 @@
 ---
 
 
-## 有声｜马里乌波尔已成废墟
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2215125/)
+## 岸田首相敦促团结对抗俄罗斯和中共国 首脑外交活动正在全面展开（上）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2215252/)
 
-By:**秘翻新闻**
+翻译：天天
 
-**2022-03-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-131.png)图片来源   路透社
-[《路透社》乌克兰利沃夫3月22日报道，周二，马里乌波尔市议会表示，俄罗斯的密集空袭正把被围困的马里乌波尔变成一片死土的废墟。与此同时，美国和欧洲计划采取更多制裁措施以惩罚俄罗斯的无理入侵。](https://www.reuters.com/world/russian-air-strikes-wreak-havoc-mariupol-turning-ukrainian-city-ashes-2022-03-22/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220322-00000011-jij-000-14-view-edited.jpg)news.yahoo.co.jp
 
-[据报道，一名乌克兰官员说，马里乌波尔发生了巷战和轰炸，平民和乌克兰军队都遭到了俄罗斯的袭击。一天前，乌克兰拒绝了俄罗斯要求其投降的最后通牒。据信有数十万人被困在建筑物内，没有食物、水、电或暖气。](https://www.reuters.com/world/russian-air-strikes-wreak-havoc-mariupol-turning-ukrainian-city-ashes-2022-03-22/)
+岸田文雄首相在访问印度和柬埔寨期间全面展开了面对面的首脑外交，这次访问一直持续到3月21日。
 
-[马里乌波尔副市长谢尔盖·奥尔洛夫告诉美国有线新闻网CNN，该市处于全面封锁之中，没有收到任何人道主义援助。这座城市受到持续的轰炸，俄罗斯飞机每天投下50到100枚炸弹，很多人死亡，很多人哭泣，很多可怕的战争罪行。](https://www.reuters.com/world/russian-air-strikes-wreak-havoc-mariupol-turning-ukrainian-city-ashes-2022-03-22/)
+他强调，国际社会需要团结一致应对俄罗斯对乌克兰的军事入侵。 虽然提出了一个共同的方向，但也强调了程度上的差异。 考虑到中共国日益增长的霸权主义行动，会议还呼吁加强合作，包括由日本、印度、美国和澳大利亚这四个国家组成的 “QUAD”。
 
-秘翻新闻  冰糖葫芦喵编译报道
+“重要的是，我们能够就基本方向和方法达成一致。 我们能够确认这一点，是非常有意义的。”关于乌克兰的局势，总理在主要外交日程结束后，在金边向记者强调了这一成就。
 
-发布 : 恩典
+这一系列峰会的主要焦点是俄罗斯对乌克兰局势升级的反应。 总理与印度总理莫迪确认，他不会容忍在任何地区以武力单方面改变现状的行为。 他还与柬埔寨首相洪森达成一致，呼吁立即停火和撤军。
+
+【下一篇：岸田首相敦促团结对抗俄罗斯和中共国 首脑外交活动正在全面展开（下）】
+
+来源：【news.yahoo.co.jp】[対ロシア、中国で結束促す　岸田首相、対面外交を本格始動](https://news.yahoo.co.jp/articles/f62710f0f6951c164c6cd886f84c12399656027a)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+
+审核：BryanW
+校对：宫米叶
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

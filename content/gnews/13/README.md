@@ -2,29 +2,49 @@
 ---
 
 
-## 有声｜拜登的布鲁塞尔之行强调了对俄的新制裁
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2215050/)
+## 文•贵天成——文贵先生生谈“G-Club”（十四）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2215121/)
 
-By:**秘翻新闻**
+整理：BENJ1
+编辑：Kelly
 
-**2022-03-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-270.png)图片来源 路透社
-[《路透社》华盛顿3月22日报道，周二，美国国家安全顾问沙利文表示，美国总统拜登和欧洲国家领导人本周在访问布鲁塞尔期间，将宣布针对俄罗斯的新的制裁行动，以及加强现有制裁的措施。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043.jpg)图片来源：雅典娜设计组
 
-[周三，拜登将前往北约和欧盟总部所在地布鲁塞尔，周四将推出新的制裁，会议重点是执行之前的惩罚措施。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
 
-[沙利文表示，拜登还将讨论对北约部队态势的长期调整以及在使用核武器的情况下的突发事件；并将宣布加强欧洲能源安全的联合行动，因为欧洲高度依赖俄罗斯的天然气。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+郭文贵先生**2021**年**1**月**1**日直播
 
-[此外，拜登将出席北约紧急峰会，会见七国集团领导人，并在欧洲理事会会议上向欧盟领导人发表讲话。沙利文称拜登将有机会协调下一阶段对乌克兰的军事援助，对俄罗斯实施进一步的制裁。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+我希望所有的战友，利用G系列，做代理、做G-CLUB、做G-FASHION，让你们合法地拥有财富，然后你们成为别人的希望！这是七哥最希望的。新中国联邦、“爆料革命”，就是生产希望、生产纯洁、生产智慧、生产真正的高档人生！
 
-[据报道，拜登还将宣布美国将进一步为缓解乌克兰境内难民和平民的人道主义状况作出贡献，他们中的许多人被困在马里乌波尔市。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+郭文贵先生**2021**年**1**月**23**日直播
 
-秘翻新闻  冰糖葫芦喵编译报道
+G-Club、G-Ddollar、G-Coin未来啥样？大家都心知肚明，共产党最怕的是这个。所以有战友告诉我说平爆小组为什么换了一批又一批？平爆小组平着平着爆就不平了，就变成了爱爆小组了，最后从爱爆小组都成了保爆小组了，都成了要保护爆料革命的小组了，很多人都成这样了，因为他们是人，不是畜生。
 
-发布 : 恩典
+郭文贵先生**2021**年**1**月**28**日直播
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+2021年是G-Club全球的战友集体合作、创造财富、签约代理，必须让G-Club的会员通过两三年到三四年的时间，走到全世界去亮出G-Club卡的时候，俺骄傲，俺真骄傲！这不是说的，我做不到，必须得G-Club会员全面的做。
+
+接下来，喜马拉雅联盟委员会会做一系列的解释，我也会直播解释，怎么在全球各地把最好的东西签下最好的合同，让所有持G-Club卡的人走到全世界，住最好又最便宜的酒店，性价最好，能买到最好的价格、最好的商品、能吃到最安全、最好价格的饭，走到哪儿去都绝对得到最体面的待遇。G-Club绝对不是只能买G-Fashion，绝对不可以，必须是全面的，就是把它做成爆料革命战友之间的一个信物。
+
+郭文贵先生**2021**年**2**月**13**日直播
+
+G系列今年在日本代理、销售，未来G-Club所有的会员卡和G-Club在日本的授权、签酒店服务、包括温泉浴甚至歌舞伎厅的夜总会，能签的合作协议越多越好，（包括）旅游设施。增加所有G-Club会员消费在日本的可能性，这不就是你樱花团最大的收入吗？因为你有代理费，（可以）终生收钱，是吧？这马上就兑现了。
+
+郭文贵先生**2021**年**2**月**15**日直播
+
+G-Club年会绝对是新中国联邦在国内造成了巨大的心理影响，从昨天到现在那个影响太大了，因为大家相信这个抽奖是公平透明的，而且竟然拿一万、拿五万美元就有可能得到一个全家五口移民的机会、就有可能获得一台宝马七系车，这在共产党那也就是一瓶红酒钱，在他们看来绝对是不可思议的。中国人都习惯了，也心知肚明共产党所有的所谓什么希望奖、什么慈善奖都是假的，都是自己玩自己，没有老百姓的机会，你拿了钱你也没机会，那个奖永远是属于那些不出钱的人。
+
+那么这个（G-Club年会抽奖）给了大家希望，所以昨天买卡的人希望了解更多，都在问下一次什么时候摇奖，我们要买卡，我们要摇奖，肯定的，下次一定比这次多。
+
+资料来源：郭先生盖特直播视频
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
