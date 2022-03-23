@@ -2,8 +2,8 @@
 ---
 
 
-## 中国人都会成为未来100年世界上最被恨的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219188/)
+## 习近平宁愿毁了台湾
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219253/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
