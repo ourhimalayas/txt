@@ -2,10 +2,18 @@
 ---
 
 
-## 3/22/2022 文贵盖特：欧洲国家在大量购买粮食现货，黄金却在打折卖，说明了什么？昨天 Akamai关于喜币的文章在华尔街和整个金融界引起轰动
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2213339/)
+## 七哥金句：没有了港币美元挂钩时，最疼的是广东而不是香港
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213420/)
 
-秘密翻译组-北美组
+整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.3.15-七哥金句-07.jpg)
+发布：枫叶红了
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
