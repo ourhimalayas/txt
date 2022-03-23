@@ -2,31 +2,34 @@
 ---
 
 
-## 樱花FM|樱花时政:安理会紧急会议谴责俄罗斯摧毁市民避难剧院
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2216282/)
+## 美国财政部讨论冻结俄罗斯黄金储备
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216469/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2649.png)
-据NHK3月18日报道，应美国和英国的要求，联合国安理会17日就俄罗斯入侵乌克兰造成的人道灾难举行紧急会议。西方国家纷纷谴责俄罗斯了乌克兰东部马里乌波尔的一个供市民避难的剧院。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-19.15.46-1.png)
+据外媒报道，美国两党参议员正在与财政部讨论冻结俄罗斯的所有黄金储备合计金额约1320亿美金。
 
-会议开始，联合国副秘书长迪卡洛表示，“在人口稠密地区使用杀伤力强的武器，造成许多市民无辜死亡。市民受害的严重性是不能否认的，必须要彻底调查和追究责任。 “随后，西方国家纷纷发表言论，谴责俄罗斯摧毁了乌克兰东部马里乌波尔市民避难的剧院。
+自2014年普京吞并克里米亚以来，据称俄罗斯克里姆林宫一直使用黄金储备在不受监管的市场洗钱，包括外汇。黄金是俄罗斯储备的四分之一，美国议员希望通过此法案有效遏止俄罗斯在入侵乌克兰的问题上通过黄金来摆脱制裁的作法。目前美国国会办公室一直在和财政部合作，财政部长Yellen定期和国会议员会面，讨论立法问题，财政部门一直在充实技术支援。
 
-美国驻联合国大使托马斯格林菲尔德说：“在剧院外，大大的写着从天空中也能看得清楚的白色俄文字‘孩子们’，可俄军仍然发动了袭击。这种残害无辜的行为必须追究责任。”
+除国会外，拜登总统可以直接采取措施封锁俄罗斯黄金储备。
 
-乌克兰驻联合国大使基斯利察也表示，“该建筑被俄罗斯飞行员完全摧毁。他们是故意以儿童为攻击目标。”
+撰稿、发布：骄子
 
-俄罗斯驻联合国大使内文贾反复回应道，他们没有袭击平民或私人设施，包括马里乌波尔的剧院。
+reference：
 
-文字版原文：
+[https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/](https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/)
 
+* * *
 
-| [樱花时政┃安理会紧急会议谴责俄罗斯摧毁市民避难剧院](https://gnews.org/zh-hans/2184607/) |   |
-| --- | --- |
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

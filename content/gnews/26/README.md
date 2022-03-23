@@ -2,39 +2,45 @@
 ---
 
 
-## 俄军强行将数千名乌克兰儿童拐带到俄罗斯
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2216001/)
+## 埃隆•马斯克是如何帮助乌克兰摧毁俄军坦克的？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2216038/)
 
-翻译：wenwu
+作者：Ishveena Singh
+Mar. 22nd 2022 1:16 AM PT
+翻译：雄起（酷翻组）
+采集：玫瑰新闻组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2634.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-3.jpg)
 
-据称，俄罗斯军队正在拐带数千名乌克兰儿童，并将他们绑架到俄罗斯。 美国驻基辅大使馆在[推特](https://twitter.com/USEmbassyKyiv/status/1506214727394988032?s=20&amp;t=mpMUh9PPDhpGy7QgojyGng)上写道，有争议的顿巴斯地区的顿涅茨克和卢甘斯克的2389名乌克兰儿童被“非法带走”，这是引用了乌克兰外交部的说法（如下图）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2636.png)
 
-“这不是援助。这是绑架，”它说。
 
-本周早些时候，马里乌波尔（Mariupol）市议会称，在俄罗斯报告称有“难民”从南部战略港口抵达后，俄罗斯军队上周将数千人从被围困的城市强行带离。
 
-“过去一周，数千名马里乌波尔居民被绑架到俄罗斯境内；占领者从 Livoberezhniy 区和体育俱乐部大楼的避难所非法带走了乌克兰人，那里有一千多人（主要是妇女和儿童）在躲避（俄军）不断的轰炸。”该委员会周六晚在其 Telegram 频道上发表声明说。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2637.png)
 
-俄罗斯新闻机构称，最近几天，（通过）巴士将几百名被称为难民的莫斯科人从马里乌波尔运往俄罗斯。
+原文来源https://dronedj.com/
 
-美国驻联合国大使琳达·托马斯-格林菲尔德（Linda Thomas-Greenfield）在周末表示，从马里乌波尔强制绑架平民的指控如果属实，（这结果）“令人不安”和“不合情理”。
+阿罗兹维德卡（Aerorozvidka）是乌克兰军队中一支专门的无人机部队，正在利用埃隆-马斯克的星链Starlink卫星系统，”在俄罗斯军队睡觉时 “对其进行猎杀和攻击。
 
-“我只是听说。我无法证实，”她告诉CNN。”但我可以说这令人不安。俄罗斯军人绑架乌克兰公民进入俄罗斯，把他们放在基本上是集中营和囚犯营的地方，这是不合情理的；俄罗斯不应该违背乌克兰公民的意愿将他们转移到俄罗斯。”
+据英国最古老的日报《泰晤士报》的报道，包括俄罗斯坦克、指挥车和运载电子设备的车辆在内的几十个 “重点目标 “被以这种方式发起的攻击摧毁。
 
-新闻来源：[news.sky.com] [Ukraine war: Kyiv claims Moscow forcefully deporting thousands
- of Ukrainian children to Russia](https://news.sky.com/story/ukraine-war-kyiv-claims-moscow-forcefully-deporting-thousands-of-ukrainian-children-to-russia-12572666)
+在基辅领导乌克兰空中侦察部队的雅罗斯拉夫•霍查尔（Yaroslav Honchar）说：”我们在夜间出击，当俄罗斯人睡觉的时候攻其不备。”
 
-* * *
+阿罗兹维德卡部队有各种无人机供其使用–从廉价的现成无人机到即使在夜间也能探测到人类热信号的热能无人机，以及经过定制可投放反坦克手榴弹的重型多旋翼飞机。
 
-审核：文乐
-校对：阿伯塔
-发布：小东
+据报道，操作人员每天要执行多达300次无人机任务，以确保乌克兰军队有效利用其有限的炸弹供应。无人机部队的一位专家解释说:
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
+*我们专门寻找车队中最有价值的车辆，然后精确地打击它，我们可以做得非常好，附带非常小的损害。即使是在村庄里，这也是可能的。在晚上你可以更接近目标。*
+
+而这正是新近推出的星链Starlink互联网系统的用武之地，帮助乌克兰部队在这个饱受战争蹂躏的国家大面积停电期间也能保持在线。正如一位不愿透露姓名的士兵向《泰晤士报》透露的那样：
+
+*如果我们在夜间使用带有热成像的无人机，无人机必须通过*星链*Starlink**连接到俄军炮兵，并开始瞄准目标。*
+
+相关链接：
+[https://dronedj.com/2022/03/22/ukrainian-drones-destroy-russian-tanks/](https://dronedj.com/2022/03/22/ukrainian-drones-destroy-russian-tanks/)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 
