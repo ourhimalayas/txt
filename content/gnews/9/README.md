@@ -2,31 +2,97 @@
 ---
 
 
-## Hcoin To the Moon上线111天第39次位列柬埔寨iTunes热门音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2217007/)
+## 伊维菌素是什么？
+` 【去疫前线】` [轉載自GNews](https://gnews.org/zh-hans/2217196/)
 
-3/23/2022 郭文贵先生的歌曲Hcoin To the Moon上线111天第39次位列柬埔寨iTunes热门音乐榜首，第74次位列前三名。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-2.png)
+佛罗里达州医生称他已经用伊维菌素（人用）治疗了3000名COVID-19患者
 
-* * *
+我对她说，如果我将失去我的父亲，我得确定我已经做了我能做的一切才能安心
 
-[【PDF 下载】Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+明迪-拉弗斯-霍奇正在分享她家的磨难。她的父亲大卫身患非霍奇金淋巴瘤
 
-* * *
+他刚刚完成化疗，明迪说他是2021年1月第一批接种新冠疫苗的病人之一
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+而在2021年3月，大卫感染了新冠。当他在医院的时候，明迪主张使用伊维菌素
+
+她说当她感染新冠时，一位医生就开了伊维菌素
+
+的确在服用了第一剂伊维菌素以后，我感觉好多了
+
+那么伊维菌素是什么
+
+实际上它被认为是一种神奇的药物，制造它的人在2015年因此获得了诺贝尔医学奖
+
+据《胸腔》杂志，一个同行评审的医学杂志报道，伊维菌素是在20世纪70年代末开发的，用于治疗寄生虫感染
+
+最初，它被用于兽医学，但被发现可以安全地治疗人类的寄生虫病，如疥疮、蠕虫和河盲症
+
+《胸腔》杂志还报道，在过去30年里，全球已经为人类派发了37亿剂伊维菌素。世界卫生组织将伊维菌素列入其基本药物清单。
+
+因此，对明迪来说，当她的父亲在当地医院被拒绝使用伊维菌素时，她的沮丧只增不减。直到第六天，当他被转到重症监护室的时候。有位医生才同意尝试伊维菌素
+
+他原本已经快活不了了，每天都在走下坡路，直到开始使用伊维菌素，我们才开始看到改善。
+
+约翰-利特尔医生说，明迪家的故事太熟悉了
+
+嗨，你好吗？我从我自己的经历中获知，因为医学界拒绝接受有效的早期治疗，导致有10多万美国人失去了他们的生命。
+
+一位当地医生的大胆发声，他说他已经用伊维菌素治疗了大约3000名病人，并看到了它的积极效果。
+
+利特尔医生自1990年以来一直是一名家庭医生，在基西米和奥卡拉执业
+
+利特尔说，他对伊维菌素如此直言不讳，这让他成为众矢之的，但他觉得这样做对他的病人来说是正确的
+
+我已经被一家医院停职，并被罚款500美元。这些医院不允许我们提供最佳的护理，这触碰了我们的底线
+
+利特尔医生的一位病人，斯泰西-莫拉莱斯，是刚刚退休的护士，她去年夏天得了新冠，因为个人原因决定不接种疫苗。
+
+当她血氧降低时，她打电话给利特尔医生，医生给她开了伊维菌素后，她开始去她当时工作的医院住院。
+
+在两个小时内，我的呼吸开始好转
+
+美国食品药品管理局（FDA)的网站显示，FDA没有授权或批准伊维菌素用于治疗或预防人或动物的新冠病毒感染，没有证据证明伊维菌素对这些适应症是安全或有效的
+
+急诊科医生拉吉夫-巴尔解释说，关于伊维菌素治疗新冠的研究实在是不够充分
+
+有一些医生会开伊维菌素的处方。然而，其他绝大多数目前不会开出此处方，因为强有力的调查研究表明这种药物一直都没有疗效
+
+未来可能会显示这种药物是有效的。然而，在此时此刻，我们还没有这种证据
+
+国会议员尼尔-邓恩代表佛罗里达州的第二国会区，是海湾医院的前办公室主任
+
+他于2021年10月在《太阳前哨报》上写了一篇专栏文章
+
+文章指出，印度、墨西哥和阿根廷的几项研究发现伊维菌素对治疗COVID-19有效果
+
+文献中有超过30项研究，其中20项随机对照研究和前瞻性研究显示伊维菌素有好处
+
+所以，说这种药物目前没有证据，是故意的，故意对真正的文献视而不见
+
+邓恩说伊维菌素已经变成了政治性的东西，而病人才是受苦的人
+
+他鼓励像利特尔医生这样的医疗保健专业人士分享他们使用伊维菌素的经验
+
+我们有一个包括更多医生的秘密团体，都是那些真正明白这个问题的人
+
+现在是他们能够站出来，成为真正的医生，真正的为病人谋福利的人的时候了
 
 
-[【PDF 下载】Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**推出问题，敲出真相，爆料在路上！**
+**请关注和订阅我们的以下账号：**
+**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
+**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
+**玫瑰看新闻YOUTUBE账号**：
+**玫瑰看新闻**
+**黑森林的故事**
+**ROSE NEWS**
+**【玫瑰看新闻】推特账号**：
+**ROSE NEWS (@ROSENEWS4)A**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-2.png)
+
 
  
 

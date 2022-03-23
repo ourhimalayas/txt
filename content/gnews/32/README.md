@@ -2,37 +2,49 @@
 ---
 
 
-## 加拿大官方数据表明，疫苗接种者已患上艾滋病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216182/)
+## 员工称TikTok高管将关键决策权下放给中共官员
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2216331/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：布列塔尼-伯恩斯坦
+2022年3月21日下午5:26
+翻译：雄起（酷翻组）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/抖音.png)
+在美国官员担心中共有可能获取数据的情况下，抖音TikTok在过去一年里努力将美国用户的数据转移到美国，不过一份新的报告显示，TikTok与其中共国母公司的关系可能带来一系列其他安全问题。
 
-整理/编辑：小鱼儿
+据BuzzFeed News报道，TikTok在过去一年里一直在进行内部称为 “德克萨斯项目 “的工作，其中包括创建美国特定复刻版TikTok内部系统，包括跟踪和分析工具，以及该应用程序的推荐算法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5ZMHPWFVQQ3AOYKI5GLGC.png)图片来源：雅典娜设计组&phoenixwolfj
+然而，该媒体称，它采访了十多名现任和前任TikTok员工，他们描述TikTok和其位于中共国的母公司字节跳动 “有时是如此紧密地纠缠在一起”，亦步亦趋。
 
+报道称，工人们告诉BuzzFeed，一些高级领导层的决定是由中共的不知名人士下达的，而其他员工说他们的经理是在 “与北京方面交谈 “后做出关键产品的决定。10名接受BuzzFeed新闻采访的员工说，他们不知道他们的经理或他们经理的经理所汇报的人的身份。
 
-据曝光新闻网（The Exposé ）3月20日报道，加拿大官方新冠病毒数据表明，与未接种疫苗的人的自然免疫力相比，加拿大接种两剂疫苗的人群平均损失了 74% 的免疫力，而接种三剂疫苗的人群损失了 73% 的免疫力。
+一名员工告诉该媒体，他们被要求将敏感信息输入一个.cn域名。
 
-而且根据数据分析，与未接种疫苗的人群相比，接种两剂疫苗的人群感染新冠病毒的可能性平均高出 3.8 倍，死于新冠病毒的可能性高出 3.3 倍。
+同时，据报道，字节跳动控制了TikTok的工作场所基础设施，并有权与政府分享公司的内部通信，这引起了人们对敏感的内部通信可能与中共分享的担忧。
 
-但就死亡风险而言，接种三剂疫苗人群的情况更糟。官方数据显示，与未接种疫苗的人群相比，他们感染病毒的可能性平均高出 3.7 倍，而且死于病毒的可能性高出 5.1 倍。
+报道称，TikTok员工使用字节跳动的工作场所工具套件Lark进行通信和管理任务。该工具套件的隐私政策称，该公司可能会分享存储在新加坡的数据，”以协助任何政府和/或监管机构的执法和调查”。
 
-截至 2 月 22 日，加拿大接种两剂疫苗的人的免疫系统性能为负 69.56%，接种三剂疫苗的人的免疫系统性能为负 80.56%。
+几名美国员工告诉该媒体，他们使用了字节跳动在中共国大陆的工具套件飞书。飞书的隐私政策说，当与国家安全、公共安全或其他 “重大公共利益””直接相关 “时，该公司可能会分享用户的数据，这些数据存储在中国。
 
-因此，这些数字表明，加拿大接种两剂和三剂疫苗的人群的免疫系统已经受到巨大的损害，以至于他们已经发展为获得性免疫缺陷综合症（艾滋病）。
+字节跳动的一位发言人告诉BuzzFeed，中共国政府从未要求获得TikTok员工的飞书或Lark的通信信息。
 
-参考资料：[Official Government of Canada data is truly terrifying; it suggests the Triple Vaccinated have developed AIDS & are now 5.1x more likely to die of Covid-19 than the Unvaccinated](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
+对TikTok潜在安全问题的关注大多集中在美国用户数据上。报告指出，德克萨斯项目似乎没有抵御中共对该平台施加影响的其他方式，包括改变TikTok算法以增加对分裂性内容的曝光，或利用该平台发起虚假信息活动。
 
-发布：tianzhihuan
+英国《卫报》2019年报道称，该应用此前对具有中共国政治重要性的话题的视频进行了审查。同时，该公司去年支付了9200万美元来解决一项集体诉讼，指控TikTok将美国用户数据转移到中共国的服务器。
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+去年上任后，总统乔-拜登推翻了前总统唐纳德-特朗普签署的一项行政命令，该命令将有效禁止TikTok，取而代之的是审查该应用对美国消费者数据的潜在风险的新准则。
 
+原本在特朗普宣布如果不将TikTok出售给美国公司，就将禁止该平台之后，甲骨文公司于2020年达成了购买TikTok的初步协议。2021年2月特朗普卸任后，这项交易暂停了。
 
+据报道，现在TikTok和甲骨文一直在谈判一项协议，由甲骨文储存所有美国用户数据。对这些数据的访问将仅限于一个特定的团队，即美国技术服务（USTS）。新的美国系统将被托管在甲骨文公司的数据中心。
+
+然而，据报道，员工告诉BuzzFeed News，尚未决定字节跳动的中共团队对USTS团队有多少控制权。
+
+消息人士告诉BuzzFeed News，虽然USTS的员工目前向美国的中层管理人员报告，而这些中层管理人员向中共国的字节跳动高管报告，但该公司正在考虑如何限制中共国管理人员对美国科技部信息的访问。
+
+相关链接：[TikTok Executives Delegate Key Decisions to CCP Officials, Employees Say](https://www.nationalreview.com/news/tiktok-executives-delegate-key-decisions-to-ccp-officials-employees-say/)
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

@@ -2,58 +2,32 @@
 ---
 
 
-## 辉瑞疫苗副作用
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2216946/)
+## Hcoin To the Moon上线111天第39次位列柬埔寨iTunes热门音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2217007/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-1.png)
-他们的数据是从辉瑞公司出来的
+3/23/2022 郭文贵先生的歌曲Hcoin To the Moon上线111天第39次位列柬埔寨iTunes热门音乐榜首，第74次位列前三名。
 
-一些研究显示了疫苗早期造成的伤害有多大
+* * *
 
-辉瑞公司知道所造成的损害有多大，第一个月就有1200到1223人左右死亡，超过10万个不良反应
+[【PDF 下载】Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-其中许多（数以万计）的不良反应持续了几个月，他们却把它掩盖起来。
+* * *
 
-现在，问问自己，为什么他们要在未来75年内不公开这些数据，很明显，他们不希望这些数据公开
-
-如果你考虑从法律的角度来看，如果授权是通过欺诈获得的，那么这些制药公司通过普通法的CARES法案获得的责任保护就会消失。
-
-而现在，他们要为其欺诈性地获得授权而承担法律责任
-
-对医学界来说，尤其是我们这些长期研究此问题的人来说，有多少数据被这些制药公司隐藏起来，已经是太过清楚，甚至达到荒谬的程度
-
-他们被授予全权，为所欲为。
-
-这些公司不是为了民众的健康和福祉，这些公司只关心他们的股东和他们的腰包
-
-如果这些高管和科学家心中有一丝正气，他们就会做出人道的正确事情
-
-他们会谦虚地说，我们犯了一个错误，是时候撤下这些产品了。他们会在疫苗推广第一个月后就这么做。
-
-任何其他医药产品，在仅仅几十个不良反应或死亡之后，他们的产品就会立即被紧急撤下，更不必说在一个月内造成超过1200人死亡
-
-而他们不仅在美国，还在全世界继续推广，不是仅以数亿计的剂量，而是数十亿计的剂量。
-
-这绝对是一种最令人震惊的科学欺诈，是水门事件级别的欺诈
-
-这些公司不仅应为他们的所作所为道歉，他们还应赔偿那些受到伤害的人，而且应该承担刑事责任。
-
-这些公司已经支付过历史上最大的刑事罚金，而它们现在又制造了危及全国人民乃至世界人民的产品。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
 
+[【PDF 下载】Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-23-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-**推出问题，敲出真相，爆料在路上！**
-**请关注和订阅我们的以下账号：**
-**新西兰伊甸农场盖特**：HTTPS://GETTR.COM/USER/HIMALAYANZ
-**【玫瑰看新闻】盖特**：HTTPS://GETTR.COM/USER/ROSENEWS
-**玫瑰看新闻YOUTUBE账号**：
-**玫瑰看新闻**
-**黑森林的故事**
-**ROSE NEWS**
-**【玫瑰看新闻】推特账号**：
-**ROSE NEWS (@ROSENEWS4)A**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

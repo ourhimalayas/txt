@@ -2,29 +2,39 @@
 ---
 
 
-## 基辅总参谋部：乌克兰军队坚守阵地
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2216265/)
+## 俄罗斯人摧毁切尔诺贝利一个新实验室
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216563/)
 
-**据他们的总参谋部称，尽管俄罗斯继续进行空袭，但乌克兰武装部队仍在坚守阵地。**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-作者：dpa/sh/原文发布于2022年3月22日10:50 (MEZ)
-翻译：LK
+翻译：li yan li
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-12.jpg)图片：基辅的乌克兰士兵。（Fadel Senna/AFP）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-133.png)图片来源： 雅典娜设计组
 
-乌克兰总参谋部周三（2022年3月23日）上午宣布，敌人在多条战线的进军被阻，例如在东南部顿涅茨克地区的斯洛文斯克附近。
 
-关于几周来战斗特别激烈的马里乌波尔市的局势，军方领导只表示，乌克兰部队正在抵御来自各个方向的攻击。
+3月23日据美联社报道，乌克兰利沃夫消息，负责切尔诺贝利禁区的乌克兰国家机构周二表示，俄罗斯军队已经摧毁了切尔诺贝利核电站的一个新实验室，该实验室的工作包括改善放射性废物的管理。
 
-通过占领马里乌波尔，俄罗斯意图与被吞并的黑海克里米亚半岛建立一个安全的陆地连接。普京负责的特使告诉俄罗斯新闻社，一旦俄罗斯军方控制了重要的M14主干道，克里米亚将再次与乌克兰东部的顿涅茨克和卢甘斯克分离主义地区可靠连接。
+俄罗斯军队在战争开始时夺取了这座退役的工厂，禁区是该电厂周围的污染区，1986年世界上最严重的核泄漏事故就发生在这里。
 
-M14公路从乌克兰西南部的敖德萨出发，途经陷入困境的米科拉耶夫和被占领的赫尔松，到达马里乌波尔，并从那里穿过俄罗斯边境到达主要城市顿河畔罗斯托夫市。2014年俄罗斯吞并克里米亚后，乌克兰关闭了通往该半岛的铁路线。
+该国家机构表示，该实验室在欧盟委员会的支持下耗资600万欧元建造，于2015年启用。
 
-俄罗斯国防部还称，战斗直升机摧毁了一个乌克兰弹药库。乌克兰方面此前曾报告在哈尔科夫地区发生直升机袭击事件。（*dpa/sh*）
+该机构在其声明中说，该实验室包含“高度活跃的样品和放射性核素样品，这些样品现在在敌人手中，我们希望敌人会伤害自己而不要伤害文明世界”。
 
-原文链接：[https://brf.be/international/1587305/](https://brf.be/international/1587305/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+放射性核素是不稳定的化学元素原子，会释放辐射。
+
+在另一个令人担忧的事态发展中，乌克兰的核监管机构周一表示，该工厂周围的辐射监测器已经停止工作。
+
+新闻链接：[Live updates: Russians destroy Chernobyl laboratory | AP News](https://apnews.com/article/russia-ukraine-business-tokyo-global-trade-world-war-ii-d970e7c51c2b6662b3ebe4531a96aa0f)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

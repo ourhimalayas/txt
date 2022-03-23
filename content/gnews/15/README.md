@@ -2,28 +2,26 @@
 ---
 
 
-## 北京累计接种6000万剂毒疫苗，或后果严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216875/)
+## 视频|美国司法部对五名中共特务采取法律行动
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2216995/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2F5630979%2Fimages%2F4f8e0945577e456981bf7dd71e0625a1.JPG&amp;imgrefurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2Fcontent_5630979.htm&amp;tbnid=qZXwQYF-4Mc5bM&amp;vet=12ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ..i&amp;docid=7aDBHwfrkPe6oM&amp;w=800&amp;h=533&amp;q=%E6%8E%A5%E7%A7%8D&amp;ved=2ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ)
-3月23日每日经济报报道，截至2022年3月22日，北京市累计报告接种中共病毒（新冠病毒Covid-19）疫苗5999.59万剂次，累计接种2283.80万人。
+制作：香草山视频部
 
-截至2022年3月22日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗323460.1万剂次。
+郭文贵先生今日在盖特分享一则消息时指出，美国司法部已经开始对中共特务采取法律行动。
 
-在两个月前的1月8号北青网报道，根据北京市卫健委刚刚发布的消息，截至2022年1月7日，北京市累计报告接种新冠病毒疫苗5725.15万剂次，累计接种2247.80万人。
+根据美国司法部公布的官方消息显示，当局16日正式对王书军、林启明等5名中共特务提起诉讼，指控他们协助中共进行跨囯“猎狐行动”，非法镇压异见人士，涉及的罪名包括：监视美国公民、散布谣言，行贿联邦雇员，安装窃听设备，甚至计划人身攻击美国候选参议员等等。若罪名成立，这五人将面临10至20年的最高刑罚。
 
-2021年人口普查北京总人数：全市总人口（常住人口）为2189.3095人，时至今日累计接种2283.80万人，接种人口已超出全市常住人口90多万，接种中共病毒疫苗5725.15万剂次，累计接种毒疫苗已接近超出全市人口三倍数量。
+美国司法部官员表示，中共跨国镇压的行为，挑战了美国的法治精神，违反了美国法律，与美国的基本价值观背道而驰。美国绝不容忍中共特务这些犯罪行为。司法部必须捍卫美国公民和任何在美人士的安全和自由。
 
-毒疫苗引起人体各种不适症状灾难频频出现，而中共大力掩盖否认是毒疫苗造成的后遗症，中共政府以防疫为借口，懒政管理施行“一刀切”，把防控措施做到层层加码，强制隔离强制接种毒疫苗，大面积的次生灾害和毒疫苗灾难将随时到来。
+郭先生同时上传了一段他早前发表的个人观点，勉励战友继续前行，不卑不亢，靠自己的决心、毅力、勇气，坚定的向彻底灭共的方向前进。
 
-消息来源：
+发稿：呼吸的雾霾（文小呼吸）
 
-[【北京市累计报告接种新冠病毒疫苗5999.59万剂次，累计接种2283.80万人】](https://ms.mbd.baidu.com/r/Di5TTKjwwo?f=cp&amp;rs=397575460&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=26a48bfa4bb9d34c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

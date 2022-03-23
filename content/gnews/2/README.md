@@ -2,24 +2,19 @@
 ---
 
 
-## 樱花时政┃国会议员对泽伦斯基总统的演说反应如何？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2217177/)
+## 委内瑞拉要在美国后院制造事端
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2217389/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-119.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220323-06009340-jnn-000-1-thumb.jpg?exp=10800)
-快讯（3月23日18:57）刚才乌克兰总统泽伦斯基在日本国会发表演讲，以下是国会议员的反应。
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/33-10.jpg)
+委内瑞拉独裁者尼古拉斯-马杜罗的副手、委内瑞拉联合社会党(PSUV)领导人迪奥斯达多-卡韦略(Diosdado Cabello)周一表示，他的国家可能会对哥伦比亚进行乌克兰式的入侵，以 “去中心化 “该国。
 
-外相林芳正，“我一直想说，保卫国家的气概和为国家着想的心态让我再次感受到这一点，我们要常与乌克兰同在。我重新认清了这个念头。”
+马杜罗热情地支持俄罗斯领导人弗拉基米尔-普京在2月份全面入侵乌克兰的决定，重复普京的说法，即努力推翻乌克兰总统沃洛季米尔-泽伦斯基的民选政府是为了 “去纳粹化 “乌克兰。马杜罗还在网上散布错误信息，在社交媒体上分享泽伦斯基担任总统前主演的喜剧节目《人民公仆》的场景视频，并声称这些视频是泽伦斯基政治生涯的真实影像。
 
-自民党总裁高市政调对记者说：“也许还有扩大制裁对象的途径。”另外，立宪民主党代表泉源表示：“为了阻止对俄罗斯的野蛮行径和侵略行为，日本应该竭尽全力。”还有，与俄罗斯有着密切联系的日本维新会参议员铃木宗男表示：“希望日本政府向国际社会发出‘停止射击，进行对话’的强烈信息。”
+俄罗斯和中共在后面搞鬼？
 
-信息来源：
+**新闻来源**：https://www.breitbart.com/national-security/2022/03/22/maduro-henchman-suggests-venezuela-launch-ukraine-style-invasion-colombia/
 
-[【速報】ゼレンスキー大統領演説、国会議員の反応は](https://news.yahoo.co.jp/articles/8b12fa0e561b9bc4d259f377e0e2af6885e191a8)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

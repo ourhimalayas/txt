@@ -2,34 +2,28 @@
 ---
 
 
-## 迪拜即将推出一亿美元的数字资产基金
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216781/)
+## 日本着手安排派遣法务大臣古川前往波兰援助乌克兰难民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216961/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GPX5YBMNRRLCLF4FVWWOS5CMQU.jpg)
-3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-143.png)（图片源自本文链接）
+乌克兰总统泽连斯基在日本国会的讲演刚刚结束，日本就开始行动了。说明这场演讲打动了日本政府，是一场成功的演讲！
 
-该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
+3月23日Q电视新闻消息：据几位政府官员透露，日本政府正在敲定派遣法务大臣古川作为岸田首相的特使前往波兰，援助来自乌克兰的战争难民。
 
-据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
+波兰收容了大量来自乌克兰的战争难民，法务大臣古川计划讨论向波兰政府提供财政和个人援助，以及接收乌克兰难民等问题。
 
-撰稿、发布：骄子
+这次访问被安排在26日至27日，将在岸田首相从比利时的七国集团峰会回来后立即进行，他将乘坐政府专机前往波兰。
 
-reference：
+目前正在安排访问期间与莫拉维茨基总理等人的会晤。
 
-[Dubai firm Cypher Capital says launches $100 mln digital asset fund](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+信息来源：[ウクライナ避難民支援へ　古川法相のポーランド派遣を最終調整（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/188af74ed56bd2a6ccfba995c55aae03d107303a)
 
-* * *
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-欢迎订阅我们的GNews账号：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
