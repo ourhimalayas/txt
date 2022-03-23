@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 2:16 AM (UTC)`
+
+3/22/2022 Miles Guo’s GETTR: What does it mean for Weijian Shan to be a member of Alibaba's audit committee? PAG is a financial fraud syndicate of the CCP. It's the biggest accomplice of the CCP to defraud the US pension funds. Weijian Shan's whole family are CCP agents, and he will spend the rest of his life in prison.<br/><br/><br/>3/22/2022 文贵盖特：单伟建担任阿里巴巴审计委员会成员意味着什么？太平联盟就是中共的金融诈骗集团，是中共骗取美国养老金最厉害的打手之一；单伟建全家是中共专业特务，一定告死它们<br/><br/>
+![img](https://media.gettr.com/group28/getter/2022/03/23/02/1ace3b10-bc10-719d-df7a-6c97c165a9e4/out.jpg)
+
+---
+
 `@miles 3/23/2022 2:06 AM (UTC)`
 
 3/20/2022 Miles Guo: The image of citizens of the New Federal State of China exhibited by the fellow fighters on the front line of the rescue operation is shaping the world at every moment, reflecting our courage and respect for humanity, animals, and mother nature. It was a tough decision for me to keep carrying out the rescue operation, and our rescue will become an epic miracle that will save countless Chinese people!<br/><br/><br/>3/20/2022 文贵直播：救援前线的战友展现出新中国联邦人的形象时刻影响着世界，体现出了我们的勇气和对人、动物与天地的尊重；文贵作出将救援进行下去的决定非常不易，我们的救援会成为拯救无数华人的史诗般的奇迹！<br/>
@@ -146,13 +153,6 @@ Today is the Ukrainian girl Polina’s 6th birthday. Inside the refugee tent of 
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 ![img](https://media.gettr.com/group49/origin/2022/03/22/20/9261a3fd-0e70-edb3-ae20-2611e30181c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/22/2022 7:55 PM (UTC)`
-
-前线时间3月21日，<br/>目前因利沃夫遭受俄罗斯的轰炸，<br/>新中国联邦的利沃夫救援点紧急关闭，<br/>利沃夫的大巴车已经停运，<br/>当地救援小组合并到梅迪卡前线。<br/>梅迪卡前线感染中共病毒的战友已经阳转阴了很多位，<br/>感恩万佛万神的保佑。<br/>目前新中国联邦的救援行动已经得到了巨大的认可，<br/>被救援的乌克兰妇女儿童都在给国际组织和各国政府写信.<br/>Frontline Medyka time March 21，<br/>Due to Lviv is bombarded by Russian<br/>The emergency aid point of NFSC in Lviv has to be closed.<br/>The bus service in Lviv also has been halted.<br/>The local rescue team is merged to Medyka frontline.<br/>Many of infected buddies in Medyka have turned to negative.<br/>Thanks to the blessings of all the Buddhas, Gods and Goddess.<br/>Currently, the humanitarian aid from NFSC has received tremendous recognition,<br/>Many rescued Ukrainian women and children write letters to international organizations and various governments.
-![img](https://media.gettr.com/group7/origin/2022/03/22/19/307c5517-f44f-9154-ba01-146b3eac620c/out.jpg)
 
 ---
 
