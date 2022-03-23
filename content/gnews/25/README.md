@@ -2,24 +2,30 @@
 ---
 
 
-## 俄乌战局最近消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217634/)
+## 西方法律將懲治海外偽民運和中共代理人
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2217678/)
 
-作者：蓝莲花农场 文斌
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截至当地时间3月22日，据俄罗斯国防部公布的数据显示，俄军在此次战争中的阵亡人数已经超过了九千八百人，另有多达一万六千余人受伤。然而，俄罗斯当天仍然对哈尔科夫市区和郊区进行了多达84次的炮火攻击。与此同时，俄军还在马里乌波尔市投下了两枚重型炸弹，并炮击了迈科拉夫港口和泽廖多利斯克，但其在文尼察地区投下的一枚伊斯坎德尔巡航导弹被当地的防御系统成功拦截。另外，俄罗斯及其代理部队侵占了鲁比日内地区的一个村落，且其正在试图夺取伊久姆，并对乌东部地区的乌克兰部队进行更广泛的包围，但俄军的多番入侵尝试均被乌克兰军队击溃。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-39.jpg)
-据乌克兰方面的消息称，该国的防空部队当天在哈尔科夫及附近区域击落了俄军的一架无人机和战斗机。此外，乌克兰地面部队还向俄罗斯比尔霍罗德发射了一枚导弹，但其后被俄军反坦克导弹拦截。乌军还在斯洛伐克边境喀尔巴阡地区捣毁一个来自俄罗斯的破坏团伙。但据高空卫星图像表明，俄罗斯在白俄罗斯南部距乌克兰边境仅18英里的地方集结了一批相当规模的地面部队。不过，由于缺乏零配件，俄罗斯的关键军工生产正在放缓，这导致在乌的俄军难以修复战损的武器和装备。
+采編：加拿大溫哥華楊帆農場 – 晨熹
 
-至于顿涅茨克和卢甘斯克征兵的细节，乌克兰军事情报局表示，莫斯科当局正在将征兵年龄从55岁提高到65岁，更甚者，当地18岁的学生也是被积极招募的对象。
+編輯撰稿：加拿大溫哥華楊帆農場 – 硫酸羥氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-6.jpg)圖片來源：Gettr
 
-总编: Irene木木
-编辑: Irene木木、静言
-审核：Irene木木
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+據3月16日[美國司法部]公開的信息顯示：該部門日前已正式起訴中共在海外的多名偽民運者。並指控他們在美國非法充當中共政權代理人期間，惡意收集異議人士信息，騷擾、抹黑、監視以及暴力攻擊美國公民等。
+
+據悉，本次包括王書君在內的五名被指控疑犯中，目前除2人在逃外，其余3人全部被捕歸案，並或將分別面臨5至25年不等的刑期懲罰。
+
+報道指出：包括吳征和單偉健等絕大多數在美國、加拿大、日本、澳大利亞以及新西蘭等國，與中共有密切交易聯系的代理人和海外欺民賊，都正在被當地司法機關調查和清理。在難逃西方法律製裁的情況下，入獄或被遣反回中共國將是其最終的結局。
+
+校對編輯：硫酸羥氯喹64
+
+發稿：文明(添草滅共)
+
+新聞來源：[https://gettr.com/streaming/p10y5j870c5](https://gettr.com/streaming/p10y5j870c5)
+
+[https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0](https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

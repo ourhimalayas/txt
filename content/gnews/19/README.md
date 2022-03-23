@@ -2,35 +2,36 @@
 ---
 
 
-## 96岁纳粹集中营幸存乌克兰人被普京杀害
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217743/)
+## 有声|新中国联邦乌克兰前线救援人数汇报
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2217801/)
 
-作者：纽约香草山农场 – 文鹰
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月22日，据盖特消息显示，纳粹集中营幸存者96岁的乌克兰人罗曼琴科在其位于哈尔科夫的公寓中被俄罗斯军队炮击杀害。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-上午10.57.46.png)
-德国布亨瓦特集中营纪念馆的资料证实，1926年出生的罗曼琴科于二战期间被纳粹在乌克兰逮捕，随后，其被送至矿场奴役。很长一段时间里，罗曼琴科辗转在布亨瓦特、布尼木恩德、多拉和伯根-波尔森四座纳粹集中营中。二战结束后，幸存的罗曼琴科成为了纳粹暴行的亲历者与见证人。 然而，由于俄军无差别的炮火攻击，96岁高龄的罗曼琴科近日在自己的公寓内被杀害。
+2022年3月5日至3月19日    新中国联邦发起的乌克兰到波兰的大巴车救援行动，总计救援人数为2009人，大部分是乌克兰的妇女、儿童以及中国同胞。期间总计发车次数为 39次。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-12.jpeg)
+此外，新中国联邦在波兰边境梅迪卡难民营地所组织的救援接待行动，帐篷接待难民人数统计数据：自2022年3月9日至3月20日，共计接待难民人数约7177人，在20日当日接待约120 人。
 
-对此，乌克兰外长指责俄军的杀害行为是不可原谅的暴力罪行，而乌克兰总统办公室发言人也指出，俄罗斯将此次侵略战争定义为所谓的“去纳粹化”更是纯粹的谎言。至于布亨瓦特集中营纪念馆则表示，罗曼琴科从希特勒集中营里幸存，却在百岁之际被普京屠杀，这让人感到非常震惊。
 
-参考链接：
-1.[纳粹集中营幸存者 96岁乌克兰老人被俄军炸死](https://www.aboluowang.com/2022/0322/1724176.html)
-2.[乌克兰大屠杀幸存者 “被普京谋杀”…](https://gettr.com/post/p11a5dke8e0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+文字版原文：[新中国联邦乌克兰前线救援人数汇报](https://gnews.org/zh-hans/2212562/)
 
-编辑：静言
-总编：Irene木木
-审核：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

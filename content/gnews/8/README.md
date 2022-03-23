@@ -2,38 +2,40 @@
 ---
 
 
-## 有声|上海某医院擅改方舱引发护士集体罢工
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2217927/)
+## GFASHION正在线上奢侈品行业创造传奇
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2217976/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-盖特网友3月21日爆料，上海周浦公立医院内发生大规模护士罢工活动，抗议医院领导在新闻发布会上直接对外宣称将该院改建为方舱医院，而院内护士们的安全健康却得不到相应保障。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8811.54.09.png)
-据了解，周浦医院作为一家公立的三级乙等医院，是具有综合性质的普通诊疗医院，并非符合传染病隔离标准的特殊定点医院。院内知情人员爆料，院领导为了个人上位而仓促宣布，没有经过专业评估和改建，院内的防疫条件远达不到基本的生物安全要求。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-23.33.32.png)
+近日外媒时尚杂志报道Gfashion目前正在创造线上时尚品牌的传奇。现下的消费者比任何时候都要精明，不断发展的品味和偏好是这个时代消费者的特点。衣服、配饰，时尚行业的轮转是品牌与时俱进的关键。
 
-另据该院的一名护士控诉，周浦医院改建为方舱医院的决议上完全没有考虑护士的生命安全。据悉，该院要求护士进入危险污染区照顾病患，却不要求医生进入污染区内。此外，医院高层还将护士外出采样的补助全部贪污，一线护士们至今未能拿到一分钱的补贴。这是继上周上海六院护士不满院方安排的又一起医护人员抗议罢工事件。
+Gfashion正在引导个性化的前瞻力量。每个设计师都极具天赋，新鲜、高标准的设计风格无处不在。这些来自世界各地的不同设计作品反映了设计师的个性，以及这个时代必须改变的决心。Gfashion通过其身临其境的数字平台为客户提供一对一的互动，每个作品都是一个故事，从概念到采购到创造到成品。无论是什么人，在Gfashion都可以找到适合你的东西，它总是在考虑未来，考虑创新。Gfashion的客户可以以最低廉的价格得到最最尖端的产品。
 
+尽管目前Gfashion面临很大的竞争，但它并不打算损害其价值和原则，它希望以高质量的设计和卓越的承诺而闻名于世，并且成为那些喜欢独特风格客户的首选品牌。
 
+撰稿、发布：骄子
 
-文字版原文：[上海某医院擅改方舱引发护士集体罢工](https://gnews.org/zh-hans/2211618/)
+reference：
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+[GFASHION is creating a name in the online luxury fashion business](https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+* * *
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎订阅我们的GNews账号：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+ 
 
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

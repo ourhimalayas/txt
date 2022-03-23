@@ -2,33 +2,38 @@
 ---
 
 
-## 拜登访欧将团结盟友对俄罗斯实施新制裁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217676/)
+## 美国将制裁参与镇压人民行动的中共官员
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217745/)
 
-##### 作者：加拿大温哥华扬帆农场 – 活力人生
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-42.jpg)
-据【路透社】及【NDTV】3月22日报道，美国总统乔·拜登将在本周访问欧洲期间寻求加强西方团结，并宣布对俄罗斯实施新的制裁。
+作者：日本方舟农场-Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月21日，据相关媒体报道，美国国务卿布林肯当天发布声明表示，联邦政府将对那些在中共国境外和美国境内的、参与镇压少数民族、宗教团体和异见人士等侵犯人权行为的中共官员实施签证限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-上午10.57.52.png)
+据悉，中共政府及其部分官员一直在骚扰、恐吓、监视和绑架一些少数民族和宗教团体的成员，甚至包括那些正在中共国境外寻求安全庇护的人士，以及代表这些弱势群体发言的美国公民。为此，美国将继续与国际社会合作，利用所有的外交和经济措施，推动对实施暴行、侵犯和践踏人权行为负有责任的中共官员的问责制度。
 
-报道称，拜登将于本周三前往北约和欧盟总部所在地布鲁塞尔，与其他北约和欧洲领导人会面，并与盟友一起在周四推出进一步的对俄制裁计划。新计划不仅将重点放在增加新的制裁上，还将确保共同努力打击逃避制裁的行为。美国还希望就俄罗斯的 G20 成员资格与盟国进行磋商。
+布林肯也强调称，无论在中国、美国，还是世界其它地方，联邦政府会持续支持那些不畏中共报复威胁而勇敢发声的人士。
 
-此外，拜登也将就中共国可能援助俄罗斯的问题与盟友进行讨论。到目前为止，北京拒绝谴责普京的侵略或支持西方制裁。美国的主要目标是确保中共政权不会通过救助俄罗斯经济，或提供武器等方式对俄罗斯进行援助。
+对此，郭文贵先生也在早先的大直播中透露，美国将于近期出台一系列针对中共企业和个人的制裁措施。除了上述签证限制外，中共的各大媒体也将被纳入美国政府的制裁列表之中。
 
-原文链接：[https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+参考链接：
+1.[汪文斌：敦促美方立即撤销针对中方官员的所谓“制裁”，否则中方必将予以对等反制](https://world.huanqiu.com/article/47INaIMqX4d)
+2.[3/20/2022 文贵直播：近期你会看到中共的媒体和企业受到美国制裁…](https://www.gettr.com/post/p10zyjz7239)
+3.[布林肯：美将限制部分中共官员签证](https://www.epochtimes.com/gb/22/3/21/n13663070.htm)
 
-[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑/上传 – 大废墙
-素材/采编 – 活力人生
+编辑：玫瑰圓
+总编：Irene木木
+审核：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
