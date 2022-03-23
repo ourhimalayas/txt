@@ -2,26 +2,32 @@
 ---
 
 
-## 中日财经爆▏纽约联储总裁看好稳定币！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2215478/)
+## 美众议员推出取消中共国永久最惠国待遇法案
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2215668/)
 
-撰稿：东京樱花团/闻雨
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/repchrissmith02_hdv.jpg)
+周二3月22日，美国共和党众议员Chris Smith宣布，他联合两党议员Tom Tiffany和Tom Suozzi推出一项法案，旨在取消中共国的永久贸易最惠国待遇。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/纽约联储总裁看好稳定币！.png)[图片来源](https://www.google.com.hk/search?q=%E7%BA%BD%E7%BA%A6%E8%81%94%E5%82%A8%E6%80%BB%E8%A3%81%E5%A8%81%E5%BB%89%E5%A7%86%E6%96%AF&amp;newwindow=1&amp;sxsrf=APq-WBuDGSBgpwIxeTAVFmC9TowvPQ0rcQ:1648021531599&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjageTP3tv2AhUREqYKHXO8BP4Q)
+据悉议员Chris Smith长期关注中共国的人权问题，他推出这项法案意在惩治中共国犯下的人权暴行，特别是对新疆维吾尔族和其他中亚少数民族持续进行的种族灭族和强迫劳动等罪恶行径。
 
-美国纽约联邦储备银行行长威廉姆斯3月22日，就数字货币发表了他的看法。他说：“如果它被设计成与主要货币和黄金挂钩，且价格稳定，并受到适当监管，那将是有益的”。
+该项法案要求把中共国贸易优惠待遇和其人权状况挂钩，美国总统必须每年证实中共国在改善人权做出了努力，才会给予中共正常的贸易优惠政策，否则不允，甚至取消。
 
-在国际清算银行（BIS）主办的关于数字货币的小组讨论中，”稳定币可以在跨境支付中发挥非常有用的作用。这项技术也可用于一般的批发支付”。同时需要适当的法规来保护消费者和投资者。
+俄罗斯入侵乌克兰后，拜登总统宣布取消俄罗斯的永久正常贸易待遇。本月早些时候，美国共和党议员Tom Cotton、Jim Inhofe和Rick Scott曾在参议院提出取消中共国永久性正常贸易关系的法案。
 
-在回答有关其他加密资产（虚拟货币）的问题时，他表示，这些资产从根本上是有缺陷的。
+撰稿、发布：骄子
 
-信息来源：
+* * *
 
-[ステーブルコイン、非常に有益な可能性＝ＮＹ連銀総裁](https://jp.reuters.com/article/usa-fed-williams-idJPKCN2LJ1QP)
+欢迎订阅我们的GNews账号：
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

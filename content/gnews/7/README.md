@@ -2,32 +2,29 @@
 ---
 
 
-## 今日盖特大V推荐 — 克莱·特拉维斯（Clay Travis）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215483/)
+## 樱花FM|樱花时政:台湾首批爱心物资启运　助乌克兰人民度过难关
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2215687/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2619.png)
-盖特链接： [**https://gettr.com/user/claytravis**](https://gettr.com/user/claytravis)
+音频：东京樱花团/战友520
 
-**克莱·特拉维斯自述：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/台湾首批爱心物资启运　助乌克兰人民度过难关.png)
 
-http://Outkick.com, @outkick @foxsportsradio  东部时间早6-9点 & @foxbetlive 电视节目 东部时间早5点, 作家，共和党人也买运动鞋，三个男孩的父亲，律师
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2621.png)图片来源：网络
-**克莱·特拉维斯简介：**
+台湾外交部17日下午在桃园机场DHL运务中心举行对乌克兰的人道援助爱心物资启运仪式，由外交部长吴钊燮主持，并邀请波兰台北办事处处长高则睿（Cyryl Kozaczewski）、斯洛伐克经济文化办事处代表博塔文（Martin Podstavek）及副代表苏可娜（Michaela Sulakova）、乌克兰侨民郑莎莎（Daria Zheng），以及在乌克兰出生的俄罗斯侨民韩丽雅（Olga Khalina）出席见证。
 
-克莱·特拉维斯全名理查德·克莱·特拉维斯（Richard Clay Travis 出生于1979年4月6日）是美国政治评论员、体育记者、作家、律师、电台主持人、电视分析师、媒体名人和 OutKick 的创始人。
+吴钊燮致词表示，自俄罗斯于2月24日入侵乌克兰以来，已造成至少300万乌国人民被迫逃离家园、躲避战火，是欧洲二次战后以来最严重的人道危机。身在自由民主台湾的国人，因为长期面对中共国的威胁，特别能体会乌克兰人民的处境，台湾作为国际社会民主阵营的成员，乐愿发挥Taiwan Can Help的精神，并由外交部发起募捐人道物资的活动，希望能将紧急物资送到亟需帮助的乌克兰难民手中。
 
-克莱·特拉维斯和巴克·塞克斯顿是克莱特拉维斯和巴克塞克斯顿秀（The Clay Travis and Buck Sexton Show）的主持人，这是一个保守脱口秀节目，于2021年6月21日首播，取代了许多广播电台的拉什·林博秀（The Rush Limbaugh Show）。
+外交部表示，截至17日上午的统计，共募得超过7,500箱、重约至少50吨的物资，而且物资捐赠的数量仍持续增加中。今天启运的物资约5.5吨（约357箱），后续物资DHL将以每天约10吨的运量分批送往斯洛伐克；至其他的物资也将分批寄送至波兰及其他收容难民的国家，协助乌克兰人民度过难关。
 
-克莱·特拉维斯著有：2007年《Dixieland Delight：东南会议路上的足球赛季》、2009年《在岩石顶部：一个时代结束的前排座位》、2018年《共和党人也购买运动鞋：左派如何用政治破坏体育运动》等作品。
+文字版原文：
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+| [樱花时政┃台湾首批爱心物资启运　助乌克兰人民度过难关](https://gnews.org/zh-hans/2183677/) |  |
+| --- | --- |
 
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

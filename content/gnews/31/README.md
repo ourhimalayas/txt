@@ -2,41 +2,36 @@
 ---
 
 
-## Akamai荣幸与喜交所合作，共同提高用户的安全体验
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214928/)
+## 美众议院两党推出取消中共国永久贸易最惠国地位法案
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2215070/)
 
-作者：银河系农场 – 骄子
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-下午2.23.31.png)图片来源：互联网
+据美国之音周三（3月23日）报道，美国国会共和党众议员克里斯·史密斯(Chris Smith)星期二(3月22日)宣布，他联袂两党议员在本星期推出了一项旨在取消中国（中共国）永久贸易最惠国地位的法案。史密斯众议员说，这部法案要“取消中国共产党的永久性正常贸易关系地位，以惩罚其令人发指的人权暴行——特别包括该政权对维吾尔人和其他中亚少数族裔持续进行的种族灭绝和强迫劳动”。
 
+该议案得到了来自纽约州的民主党众议员汤姆·苏奥奇(Tom Suozzi)和来自威斯康星州的共和党众议员汤姆·蒂凡尼(Tom Tiffany)的联署。
 
+这部法案要求把中国的贸易地位重新与其人权状况挂钩。法案还要求，美国总统每年都必须证实中国政府在改善人权方面付出了认真与持续的努力才能给予中国正常贸易关系地位。推出法案与法案获得众议院或参议院委员会及全院通过还有一段距离。【1】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+上周3月18日三位共和党参议员提出了同样的议案。美国共和党籍参议员汤姆·科顿(Tom Cotton)吉姆·英霍夫(Jim Inhofe)和里克·斯科特(Rick Scott)提出《中国贸易关系法案》(*The China Trade Relations Act*)，要求撤销中国在2000年9月获得的永久性正常贸易关系地位。【2】
 
+一部法案必须由众议院和参议院两院通过同样版本，并由总统签署，才能成为法律。
 
+美国两党共同认识到，中共践踏人权、奴役和种族灭绝，利用贸易让美国在人权问题上做出让步和妥协是危险的。
 
-美国内容传递和云服务提供商Akamai公司18日在官方博客中表示，能够与喜马拉雅交易所合作，一同为提高用户的安全体验而努力感到十分荣幸。
+史密斯议员说：“俄罗斯有可能因为普京侵略乌克兰而失去永久性正常贸易关系地位，中国对俄罗斯的支持使得对中国贸易优惠待遇进行重新评估变得尤为及时”，他还说：“中国独裁政权的行为没有任何正常可言，美国再也承受不起在‘永久性’的基础上为这种行为助力了。”
 
-Akamai 指出，喜马拉雅交易所推出的新型加密货币，将尖端的区块链技术与稳定币的强大功能相结合，旨在抵抗极端价格波动，为数字时代提供了革命性的金融解决方案。
-
-但是，加密货币格局的不断发展不仅会为市场带来各种令人振奋的机遇和挑战，风险因素也会随之增加。其中，IT 安全是所有加密资产参与者的主要风险因素。加密资产持有者始终是黑客和犯罪分子的头号目标。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-11.jpg)
-因此，Akamai 表示，他们携手托管服务商Teneo，为客户搭建了一座桥梁，共同部署了Akamai内容交付网络 ，以确保客户在交易期间的安全和速度。
-
-喜马拉雅交易所首席信息与安全官 Azeem Bashir 谈到与 Akamai 和 Teneo 的合作时也表示：很高兴能与出色的合作伙伴共同协作，为用户带来一种快速、可靠和安全的数字货币支付体验。
+美国过去政策，寄希望于美国和中共建立永久性正常贸易关系地位，以此促进中国的政治改革、人权改善和更公平的劳动，20年的现实证明是错误的，中共变的”更加富有、更加无情、也更加危险“。
 
 参考链接：
-[Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+【1】[呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案](https://www.voachinese.com/a/congressman-chris-smith-introduces-new-legislation-to-strip-the-chinese-communist-party-of-its-trade-status-20220322/6496701.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it&amp;s=08)
 
-总编/编辑：天滅中共
-审核：飞虹
-校对/发稿：为真不破20
+【2】[美议员提案撤销中国永久性正常贸易关系地位](https://www.voachinese.com/a/bill-introduced-to-revoke-china-pnt-20210318/5820179.html)
 
+* * *
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*编辑&发布：长岛开心*
 
  
 
