@@ -2,11 +2,13 @@
 ---
 
 
-## 3/22/2022 文贵盖特：欧洲国家在大量购买粮食现货，黄金却在打折卖，说明了什么？昨天 Akamai关于喜币的文章在华尔街和整个金融界引起轰动
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2213339/)
+## 拜登指俄罗斯考虑对乌克兰使用生化武器
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2213416/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220323-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

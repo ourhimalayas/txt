@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 2:06 AM (UTC)`
+
+3/20/2022 Miles Guo: The image of citizens of the New Federal State of China exhibited by the fellow fighters on the front line of the rescue operation is shaping the world at every moment, reflecting our courage and respect for humanity, animals, and mother nature. It was a tough decision for me to keep carrying out the rescue operation, and our rescue will become an epic miracle that will save countless Chinese people!<br/><br/><br/>3/20/2022 文贵直播：救援前线的战友展现出新中国联邦人的形象时刻影响着世界，体现出了我们的勇气和对人、动物与天地的尊重；文贵作出将救援进行下去的决定非常不易，我们的救援会成为拯救无数华人的史诗般的奇迹！<br/>
+![img](https://media.gettr.com/group4/getter/2022/03/23/02/9af612eb-9b87-95e1-89d8-4e96909e3379/out.jpg)
+
+---
+
+`@miles 3/23/2022 2:01 AM (UTC)`
+
+3/20/2022 Miles Guo: Capital fleeing Hong Kong has nothing to do with the pandemic or COVID vaccines. It's because investors have realized the war between the US and the CCP has begun. Bitcoin is controlled by Iran, Wall Street, the Swamp, Communist China, and Russia, with 2% of the people owning the same amount of Bitcoin owned by 96.6% of them. Bitcoin is a scam!<br/><br/><br/>3/20/2022 文贵直播：资本逃离香港跟疫情和疫苗无关，而是因为投资者意识到中美之战已经开始；比特币被伊朗、华尔街、沼泽地、中共和俄罗斯控制，2%的人拥有96.6%的人的比特币，比特币就是个骗局！<br/>
+![img](https://media.gettr.com/group36/getter/2022/03/23/02/9fafd388-7462-5ab1-ce50-ac9f3fa1a333/out.jpg)
+
+---
+
+`@miles 3/23/2022 2:00 AM (UTC)`
+
+【Ukraine Rescue】03/21/2022 <br/>As Ukraine gradually took the initiative, the number of refugees decreased, some even began to return their home;<br/>The number of refugees has plummeted in the past two days, Medyka is not the only checkpoint. Many refugees have been diverted away;<br/>Three Russian commanders were killed by Ukraine counterattack, the Russian army’s morale has dropped, and the Ukrainian army’s sentiment has risen;<br/>Hope the war will end soon and Ukrainian refugees can go home safely and reunite.<br/><br/>【乌克兰救援】03/21/2022 <br/>随着乌克兰逐渐掌握主动，前方难民数量减少，甚至有些难民开始返乡；<br/>这两天难民骤降，梅迪卡不是唯一的关卡，很多难民被分流掉了；<br/>俄方三个指挥官被乌克兰反击干掉，俄军士气下降，乌军反击情绪上升；<br/>希望战争早点结束，乌克兰难民能平安回家团聚
+![img](https://media.gettr.com/group18/origin/2022/03/23/02/5e8f7cb9-ade4-10bc-fa81-c2ea2a74bc2f/out.jpg)
+
+---
+
 `@miles 3/23/2022 1:54 AM (UTC)`
 
 【Ukraine Rescue】03/21/2022 <br/>Frontline fellow fighters are building a good image and international credibility for the Chinese;<br/>On the front line, you can feel the respect among people, the respect for Chinese people depends on our actions, not just words;<br/>In different cooperation and exchanges, we have gradually accumulated and established others' recognition and respect;<br/>We use practical actions to tell everyone that we are here to save people;<br/>The challenge on the front line is the mix of people and complex information, including the CCP Virus;<br/><br/>【乌克兰救援】03/21/2022 <br/>前线战友在为中国人树立良好的形象 建立国际信誉；<br/>在前线可以感受到人与人间的尊重，特别是对华人的尊重靠的是行动，而不是光说；<br/>在各种合作交往中，慢慢地积累和建立别人对我们的认同和尊重；<br/>我们用实际行动去告诉大家我们真的是来救人的；<br/>前线的挑战是各种人员和复杂信息混在一起，包括现在谈到的病毒；
@@ -132,27 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
 
 前线时间3月21日，<br/>目前因利沃夫遭受俄罗斯的轰炸，<br/>新中国联邦的利沃夫救援点紧急关闭，<br/>利沃夫的大巴车已经停运，<br/>当地救援小组合并到梅迪卡前线。<br/>梅迪卡前线感染中共病毒的战友已经阳转阴了很多位，<br/>感恩万佛万神的保佑。<br/>目前新中国联邦的救援行动已经得到了巨大的认可，<br/>被救援的乌克兰妇女儿童都在给国际组织和各国政府写信.<br/>Frontline Medyka time March 21，<br/>Due to Lviv is bombarded by Russian<br/>The emergency aid point of NFSC in Lviv has to be closed.<br/>The bus service in Lviv also has been halted.<br/>The local rescue team is merged to Medyka frontline.<br/>Many of infected buddies in Medyka have turned to negative.<br/>Thanks to the blessings of all the Buddhas, Gods and Goddess.<br/>Currently, the humanitarian aid from NFSC has received tremendous recognition,<br/>Many rescued Ukrainian women and children write letters to international organizations and various governments.
 ![img](https://media.gettr.com/group7/origin/2022/03/22/19/307c5517-f44f-9154-ba01-146b3eac620c/out.jpg)
-
----
-
-`@miles 3/22/2022 7:52 PM (UTC)`
-
-The NFSC is made up of new Chinese people who are committed to the taking down the Chinese Communist Party. Every volunteer works non-stop to take care of the influx of refugees.  Our efforts are acknowledged by all righteous people. Our rescue base receives donations of supplies from all over the world and our campfires bring warmth and love to everyone on the frontline. We are telling the world with our actions that the CCP is the root cause of the world's disasters and only by eliminating the CCP can we save all humanity.<br/>新中国联邦是由致力于消灭中共的新中国人组成的，为了迎接大量难民的涌入，每一位志愿者都在不停的忙碌。我们的努力得到了所有正义人士的认可，我们的营地收到来自世界各地捐赠的物资，我们的篝火给前线所有人带来了温暖和爱，我们用行动告诉世界，中共是世界灾难的根源，只有消灭中共才能拯救全人类。
-![img](https://media.gettr.com/group14/origin/2022/03/22/19/f3cd0030-60c5-255b-983e-a7bb972bcbfe/out.jpg)
-
----
-
-`@miles 3/22/2022 7:02 PM (UTC)`
-
-
-![img](https://media.gettr.com/group10/origin/2022/03/22/19/c6c6f65d-466d-796e-9dce-9d821b961584/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/22/2022 6:22 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
-![img](https://media.gettr.com/group43/origin/2022/03/22/18/04f9180a-4952-b8bb-1914-4bdf675b29b9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

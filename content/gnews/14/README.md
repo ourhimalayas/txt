@@ -2,18 +2,19 @@
 ---
 
 
-## 樱花时政┃台湾发生M6.6 级地震
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2213361/)
+## 七哥金句：没有了港币美元挂钩时，最疼的是广东而不是香港
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213420/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2597.png)[图片来源](https://news.yahoo.co.jp/articles/bca1d9cbf8b6cb1f7e1ab74df5ae439a3959c403/images/000)
-据台湾中央气象局消息，3月23日凌晨1时41分左右（日本时间2时41分）台湾东部花莲县沿海发生6.6级地震， 东南部的台东地震强度6级弱，几乎全域都有震感。
+整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.3.15-七哥金句-07.jpg)
+发布：枫叶红了
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-信息来源：[**台湾でM6.6の地震**](https://news.yahoo.co.jp/articles/de239c86758e0bbd65e54fba12038993aace272e)
-
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

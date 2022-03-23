@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：没有了港币美元挂钩时，最疼的是广东而不是香港
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213420/)
+## 七哥金句：香港的金融骗局
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213505/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.3.15-七哥金句-07.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.3.15-七哥金句-08.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
