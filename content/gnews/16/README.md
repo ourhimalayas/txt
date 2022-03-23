@@ -2,35 +2,135 @@
 ---
 
 
-## 樱花FM|日本东洋医学研究确认汉方和针灸对新冠患者有效
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2215086/)
+## 将来财产最安全的就是灭共的投资G系列的新中国联邦人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215261/)
 
-音频：东京樱花团/战友520
+这个艾力克斯被惩罚
+Este Alex fue castigado
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本东洋医学研究确认汉方和针灸对新冠患者有效.png)
+我告诉大家今天为什么要说他
+Les diré por qué hoy estoy hablando de él
 
-说到中药或针灸，有很多人认为“缓慢地有效”“特别是对慢性病有效果”。确实如此，但实际上对急性症状和传染病也有充分的效果。
+他是一个完全在俄罗斯最干净的商人之一
+Él es uno de los empresarios más limpios de Rusia
 
-在临床中，感冒的时候也有自愿接受针灸治疗的人，与众所周知的服用中药葛根汤的人也不在少数。其实这个葛根汤是古时候就是很有名的处方药。在3世纪的中国，有一本名为“伤寒论”的书，就有记载，书名中的“伤寒”是指当时在中国大流行的伴有急性发热的疫病。
+最有品味的世界超级富豪
+Es el más rico de todo el mundo con buena moralidad
 
-顺便说一下，综合感冒药、咳嗽药、哮喘的治疗中广泛使用的叫做“麻黄素”的药，这些药在1885年(明治18年)日本药学家长井长义就在世界上首次指出葛根汤中含有麻黄素。是从麻黄中提取并命名的。
+最会赚钱的人
+Es la persona que sabe más cómo enriquecerse
 
-自古以来，东洋医学一直传承着应对感冒及传染病的方法，对急性症状和传染病的治疗经验进行深入考察，进一步研究那些古医书中应对疫病的中药方，也发表了现代的研究成果。
+黄金
+El oro
 
-现在，对于我们产生巨大影响的新冠病毒感染，东洋医学正在进行临床研究和病例报告，其中也有显示中药可能有助于抑制重症化的病例。对新冠疫苗副反应的疼痛和新冠肺炎后遗症的味觉、嗅觉症状也可用针灸治疗。
+我们的基金最早买他黄金买了好多
+Nuestra fundación fue el primero en comprarle oro y bastante
 
-北里大学东洋医学综合研究所的汉方针灸治疗中心等，针对有倦怠感、头痛、咳嗽、呼吸困难、关节痛、肌肉痛、失眠、干性皮肤、脱毛、嗅觉、味觉障碍等各种症状的新冠后遗症的患者的专业门诊设施也出现了。
+赚了好多钱
+Ganó mucho dinero
 
-文字版原文：
+但是黄金永远不可能翻倍的
+Pero el oro nunca puede duplicarse
 
+永远要长点脑子, 兄弟姊妹们
+Deben tener siempre el cerebro, hermanos y hermanas
 
-| [日本东洋医学研究确认汉方和针灸对新冠患者有效](https://gnews.org/zh-hans/2174872/) |   |
-| --- | --- |
+艾力克斯他是黄金公司老板, 化肥的老板
+Alex es el jefe de la compañía de oro y de fertilizantes
 
+而且真正是赚钱的
+Y realmente gana dinero
 
-*编辑：东京樱花团/asket   
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-6.jpg)
+但是他被俄罗斯, 被普京给裹挟了
+Pero fue amenazado por Rusia y Putin
+
+所以
+Por eso
+
+一旦中共国被Swift(排除)的时候
+Una vez que China comunista sea (eliminado) por Swift
+
+不分好坏人, 只要是中国人全完蛋
+No hay diferencia entre buenas o malas personas, siempre y cuando sean chinos serán acabados
+
+还有更夸张的事情
+Y hay algo más exagerado
+
+阿布是以色列护照
+Roman Abramovich tiene el pasaporte de Israel
+
+艾力克斯是拿英国护照
+Alex tiene el pasaporte de Reino Unido
+
+照样被没收
+De igual manera fueron confiscados
+
+切尔西俱乐部自动交出去
+El Chelsea Football Club se entregó automáticamente
+
+所以我告诉大家
+Por lo tanto les digo a todos
+
+不是因为你是中国人
+No es porque eres chino
+
+我今天, 我文艺, 我双胞胎
+Hoy yo, Wenyi, los morochos
+
+我就在日本, 我不受你制裁
+Estoy en Japón, no seré sancionado por ti
+
+你一样被受制裁
+Igual serás sancionado
+
+唯一让你不受制裁的就一招
+Lo único que te mantendrá alejado de las sanciones
+
+你别以为你是混血儿
+No creas que eres mestizo
+
+你们像这样是灭共的新中国联邦人
+Ustedes como las personas del Nuevo Estado Federal de China que destruyen al Partido Comunista
+
+唯一一个财富能得到安全的
+La única riqueza que puede obtener seguridad es
+
+我是新中国联邦的投G系列投资者
+Soy el inversor de la serie G del Nuevo Estado Federal de China
+
+我是灭共的
+Soy el que destruye al Partido Comunista
+
+第二, 我是灭共的新中国联邦人
+Segundo, soy persona del Nuevo Estado Federal de China que elimina al Partido Comunista
+
+你不会受制裁
+No serás sancionado
+
+我给你百分之百保证
+Te comprometo al 100%
+
+* * *
+
+日期：03/21/2022
+原视频标题：将来财产最安全的就是灭共的投资G系列的新中国联邦人
+La riqueza más segura en el futuro será el pueblo del Nuevo Estado Federal de China que invierta en la serie G para eliminar al Partido Comunista
+
+原视频日期：03/15/2021
+原视频网址：[**https://gettr.com/post/p101jbgdd2c**](https://gettr.com/post/p101jbgdd2c)
+任务编号：KC479（4042）
+视频时间段：0:00-1:34
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

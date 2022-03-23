@@ -2,41 +2,41 @@
 ---
 
 
-## Akamai荣幸与喜交所合作，共同提高用户的安全体验
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214928/)
+## 志愿者向日本产经新闻记者介绍新中国联邦人要铲除中共
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2215072/)
 
-作者：银河系农场 – 骄子
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理/编辑：小红帽
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-美国内容传递和云服务提供商Akamai公司18日在官方博客中表示，能够与喜马拉雅交易所合作，一同为提高用户的安全体验而努力感到十分荣幸。
-
-Akamai 指出，喜马拉雅交易所推出的新型加密货币，将尖端的区块链技术与稳定币的强大功能相结合，旨在抵抗极端价格波动，为数字时代提供了革命性的金融解决方案。
-
-但是，加密货币格局的不断发展不仅会为市场带来各种令人振奋的机遇和挑战，风险因素也会随之增加。其中，IT 安全是所有加密资产参与者的主要风险因素。加密资产持有者始终是黑客和犯罪分子的头号目标。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-11.jpg)
-因此，Akamai 表示，他们携手托管服务商Teneo，为客户搭建了一座桥梁，共同部署了Akamai内容交付网络 ，以确保客户在交易期间的安全和速度。
-
-喜马拉雅交易所首席信息与安全官 Azeem Bashir 谈到与 Akamai 和 Teneo 的合作时也表示：很高兴能与出色的合作伙伴共同协作，为用户带来一种快速、可靠和安全的数字货币支付体验。
-
-参考链接：
-[Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑：天滅中共
-审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-23_13-39-30.png)图片来源：郭文贵先生盖特视频截图
 
 
+3月18日，在波兰梅迪卡救援中心，新中国联邦和法治基金志愿者妮可向日本产经新闻（Sankei Shimbun）驻法国巴黎分社的社长Mina Mitsubishi-Ikuma介绍新中国联邦乌克兰救援行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+来自世界各地的新中国联邦志愿者已经成功从乌克兰救出了1838名难民及华人。尽管中共一直在破坏新中国联邦和法治基金的救援工作，但这次的行动证明了新中国联邦人不仅不等同于中共，而且立志于铲除中共。
 
+以下是妮可和Mina Mitsubishi-Ikuma的采访节选内容。
 
+妮可：“我们反对中国共产党。我们与乌克兰人民站在一起。我们支持和平、自由和法治，所以我们不是中国共产党。”
+
+Mina ：“你们的机构是设立在欧洲还是中共国？”
+
+妮可：“我们是由总部在纽约的法治基金赞助的。我们所有的志愿者都是新中国联邦人。其中有来自西班牙、意大利、加拿大，美国等世界各地的人。我们才是真正的中国人。我们要打倒中共。因为中共是造成全球灾难和人道主义危机的根本原因。这就是为什么打倒中共是确保和平、自由和法治的唯一途径。”
+
+Mina：“当我看到你们都是中国人时，我首先认为你们是中共政府派来的。所以现在我知道你们是不同的。”
+
+妮可：“完全不同，我们不是中共政府派来的。没有人选举中共政府来代表中国人民。中国共产党并不代表中国人民。事实上，所有的灾难和人道主义危机都是中共造成的，所以我们要打倒他们。我们不是来自共产主义中国。”
+
+资料来源：[郭文贵先生2022年3月22日盖特视频](https://www.gettr.com/post/p11arrg39c0)
+
+发布： tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

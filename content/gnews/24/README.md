@@ -2,39 +2,36 @@
 ---
 
 
-## 美国司法部对五名中共特务采取法律行动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214927/)
+## 美众议院两党推出取消中共国永久贸易最惠国地位法案
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2215070/)
 
-作者：纽约香草山- 侠肝义胆
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-下午2.23.31.png)图片来源：互联网
+据美国之音周三（3月23日）报道，美国国会共和党众议员克里斯·史密斯(Chris Smith)星期二(3月22日)宣布，他联袂两党议员在本星期推出了一项旨在取消中国（中共国）永久贸易最惠国地位的法案。史密斯众议员说，这部法案要“取消中国共产党的永久性正常贸易关系地位，以惩罚其令人发指的人权暴行——特别包括该政权对维吾尔人和其他中亚少数族裔持续进行的种族灭绝和强迫劳动”。
 
+该议案得到了来自纽约州的民主党众议员汤姆·苏奥奇(Tom Suozzi)和来自威斯康星州的共和党众议员汤姆·蒂凡尼(Tom Tiffany)的联署。
 
+这部法案要求把中国的贸易地位重新与其人权状况挂钩。法案还要求，美国总统每年都必须证实中国政府在改善人权方面付出了认真与持续的努力才能给予中国正常贸易关系地位。推出法案与法案获得众议院或参议院委员会及全院通过还有一段距离。【1】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+上周3月18日三位共和党参议员提出了同样的议案。美国共和党籍参议员汤姆·科顿(Tom Cotton)吉姆·英霍夫(Jim Inhofe)和里克·斯科特(Rick Scott)提出《中国贸易关系法案》(*The China Trade Relations Act*)，要求撤销中国在2000年9月获得的永久性正常贸易关系地位。【2】
 
+一部法案必须由众议院和参议院两院通过同样版本，并由总统签署，才能成为法律。
 
+美国两党共同认识到，中共践踏人权、奴役和种族灭绝，利用贸易让美国在人权问题上做出让步和妥协是危险的。
 
-郭文贵先生今日在盖特分享一则消息时指出，美国司法部已经开始对中共特务采取法律行动。
+史密斯议员说：“俄罗斯有可能因为普京侵略乌克兰而失去永久性正常贸易关系地位，中国对俄罗斯的支持使得对中国贸易优惠待遇进行重新评估变得尤为及时”，他还说：“中国独裁政权的行为没有任何正常可言，美国再也承受不起在‘永久性’的基础上为这种行为助力了。”
 
-根据美国司法部公布的官方消息显示，当局16日正式对王书军、林启明等5名中共特务提起诉讼，指控他们协助中共进行跨囯“猎狐行动”，非法镇压异见人士，涉及的罪名包括：监视美国公民、散布谣言，行贿联邦雇员，安装窃听设备，甚至计划人身攻击美国候选参议员等等。若罪名成立，这五人将面临10至20年的最高刑罚。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-12.jpg)
-美国司法部官员表示，中共跨国镇压的行为，挑战了美国的法治精神，违反了美国法律，与美国的基本价值观背道而驰。美国绝不容忍中共特务这些犯罪行为。司法部必须捍卫美国公民和任何在美人士的安全和自由。
-
-郭先生同时上传了一段他早前发表的个人观点，勉励战友继续前行，不卑不亢，靠自己的决心、毅力、勇气，坚定的向彻底灭共的方向前进。
+美国过去政策，寄希望于美国和中共建立永久性正常贸易关系地位，以此促进中国的政治改革、人权改善和更公平的劳动，20年的现实证明是错误的，中共变的”更加富有、更加无情、也更加危险“。
 
 参考链接：
-1. [郭先生盖特视频：3月21日：今天．明天．后天．都是太好日子。【美国司法部对伪类的法律行动。 】](https://gettr.com/post/p118bv8263b)
-2. [Five Individuals Charged Variously with Stalking, Harassing and Spying on U.S. Residents on Behalf of the PRC Secret Police](https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+【1】[呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案](https://www.voachinese.com/a/congressman-chris-smith-introduces-new-legislation-to-strip-the-chinese-communist-party-of-its-trade-status-20220322/6496701.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it&amp;s=08)
 
-总编/编辑/审核：天滅中共
-校对/发稿：为真不破20
+【2】[美议员提案撤销中国永久性正常贸易关系地位](https://www.voachinese.com/a/bill-introduced-to-revoke-china-pnt-20210318/5820179.html)
 
+* * *
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*编辑&发布：长岛开心*
 
  
 

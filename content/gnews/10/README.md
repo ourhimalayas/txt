@@ -2,25 +2,28 @@
 ---
 
 
-## 有声｜蔡英文与安倍视讯 日华恳大会通过挺台决议文
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2215162/)
+## 俄乌战争｜拜登今起访欧 计划制裁逾300名俄罗斯杜马议员
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2215368/)
 
-By:**秘翻新闻**
+**图/文：CP**
+**发布时间｜23/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/拜登今起訪歐-計劃制裁逾300名俄羅斯杜馬議員-1.jpg)
 
-**2022-03-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-103.png)图片来源 日华恳提供／中央社
-[大纪元3月22日消息。由大约270名日本国会议员组成的日华议员恳谈会总会22日在东京举办年度大会，总统蔡英文受邀与日本前首相安倍晋三视讯对谈，大会还通过力挺台湾加入跨太平洋伙伴全面进步协定(简称CPTPP)等内容的决议文。](https://www.epochtimes.com/gb/22/3/22/n13665243.htm)
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-[日华恳22日傍晚在东京一家大饭店举行年度大会，安倍以顾问的身份出席这场大会，并在会中与蔡英文进行视讯会谈。双方就台日友谊共同克服灾难及共同抗疫、台湾加入跨太平洋伙伴全面进步协定、乌克兰情势与区域局势，以及确保自由开放印太战略的和平稳定等各面议题交换意见，双方视讯对谈将近30分钟。](https://www.epochtimes.com/gb/22/3/22/n13665243.htm)
 
-[日华恳大会当天做出的决议文共有14项，包括力挺台湾加入跨太平洋伙伴全面进步协定的决议。](https://www.epochtimes.com/gb/22/3/22/n13665243.htm)
+美国总统拜登今日启程出访欧洲，期间会与北约、欧盟及波兰领袖会面，商讨俄乌战争的下一步应对方案。白宫国家安全顾问沙利文（Jake Sullivan）周二（22日）表示，美国会与盟友一起计划新一轮制裁俄罗斯的行动，总统拜登最快会于24日在布鲁塞尔的会议上公布。
 
-秘翻新闻 二丫编辑报道
+美媒引述一名知情官员的消息指，本轮制裁行动将与欧盟及七大工业国集团（G7）成员协调，目前尚未落实最终打击范围，但预计制裁将涵盖400人，包括328名国家杜马（State Duma，即下议院）议员及俄罗斯权贵。
 
-发布 : 恩典
+俄罗斯国家杜马上月通过决议，支持总统普京开展“特别军事行动”入侵乌克兰，其后再批准法案禁止以言论“抹黑”俄军，包括以入侵、战争字眼形容现时发生的对乌战事，违者最高刑罚15年，导致多家外国传媒撤离俄罗斯。
+
+來源｜[DailyMail](https://www.dailymail.co.uk/news/article-10641971/Biden-sanction-300-members-Putins-puppet-parliament-Duma.html)、[NYPost](https://nypost.com/2022/03/22/nsa-sullivan-us-to-impose-more-sanctions-ukraine-faces-hard-days-ahead/)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
