@@ -2,39 +2,20 @@
 ---
 
 
-## 突发：台湾花莲近海凌晨持续发生强震
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2213700/)
+## 樱花时政┃缅甸军政府否认参与种族灭绝
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2213412/)
 
-作者：纽约香草山农场 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
-当地时间3月23日，台媒报道花莲近海，凌晨1时41分39.9秒发生6.6级地震，震源深度30.6公里，震中位置离花莲县政府南62.6公里，台湾全岛发生剧烈震动。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2598.png)[图片来源](http://gua.media/topic/8967/%E6%96%AD%E8%B4%A2%E8%B7%AF-%E7%BC%85%E7%94%B8%E5%86%9B%E6%94%BF%E5%BA%9C%E6%83%B3%E6%8C%AA280%E4%BA%BF%E8%B5%84%E9%87%91-%E7%BE%8E%E5%AE%98%E5%91%98%E5%8F%8A%E6%97%B6%E5%86%BB%E7%BB%93)
+据共同社报道，3月22日晚，在政变的武装部队完全控制下的缅甸外交部辩称，美国拜登政府已将其迫害罗兴亚穆斯林少数民族行为认定为种族灭绝一事表示“从未参与其中。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-92.png)
+美国国务卿布林肯21日宣布，武装部队对罗兴亚人的暴力行为是种族灭绝罪和反人类罪。 声明称， 这是“基于与事实相去甚远、不可靠和无法核实的消息来源”。 并指出，“这不过是出于政治动机干涉内政”。
 
-目前已发生多次余震，1时43分发生6.1级余震在花莲，1时46分、2时37分在台东县近海分别震级4.7和5.3级，截止凌晨3时35分，花莲近海又发生5.8级地震。
+信息来源：[ロヒンギャ虐殺を完全否定　ミャンマー軍政が声明](https://news.yahoo.co.jp/articles/e9fdfcef5fa010a3980c3f736e44b839ef51395c)
 
-地震已经造成局部公路坍塌，影响交通通行，台湾中央气象局预报未来三天还有余震。
-
-郭文贵先生大直播曾曝光，中共有潜水艇在台湾东部近海游弋。中共会利用台湾地质构造特性，用武器引发地震，制造台湾混乱，进而进一步侵台。
-
-资料链接:[https://www.cna.com.tw/news/ahel/202203235001.aspx](https://www.cna.com.tw/news/ahel/202203235001.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
-
-编辑/校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,41 @@
 ---
 
 
-## 瓦格纳雇佣军奉普京之命刺杀泽连斯基
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2214906/)
+## Akamai荣幸与喜交所合作，共同提高用户的安全体验
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214928/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220323-010224_Discord.jpg)图片来源：dailymail
+作者：银河系农场 – 骄子
 
 
-据英国[每日邮报]3月21日报道，臭名昭著的[瓦格纳]雇佣军组织已接受俄罗斯独裁者普京的命令，再次前往乌克兰执行暗杀总统泽连斯基的任务。
 
-据悉，[瓦格纳组织]是一个部署在世界各地为普京政权从事犯罪行动的雇佣军集团。尽管俄当局一直否认与该集团有任何关联，但实际上它就是为普京个人权力服务的暗杀部队。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-自2月24日俄军入侵乌克兰以来，[瓦格纳组织]和车臣特种部队已实施了多次暗杀泽连斯基的军事行动。在最新暴露的一份24人暗杀名单中，除了总统之外，还包括乌克兰总理、内阁成员和基辅市长等重要人士。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：文明(添草灭共)
+美国内容传递和云服务提供商Akamai公司18日在官方博客中表示，能够与喜马拉雅交易所合作，一同为提高用户的安全体验而努力感到十分荣幸。
 
-原文链接：[https://www.dailymail.co.uk/news/article-10635419/Wagner-mercenaries-enter-Ukraine-assassinate-Zelensky-claims-Ukrainian-intelligence.html](https://www.dailymail.co.uk/news/article-10635419/Wagner-mercenaries-enter-Ukraine-assassinate-Zelensky-claims-Ukrainian-intelligence.html)
+Akamai 指出，喜马拉雅交易所推出的新型加密货币，将尖端的区块链技术与稳定币的强大功能相结合，旨在抵抗极端价格波动，为数字时代提供了革命性的金融解决方案。
+
+但是，加密货币格局的不断发展不仅会为市场带来各种令人振奋的机遇和挑战，风险因素也会随之增加。其中，IT 安全是所有加密资产参与者的主要风险因素。加密资产持有者始终是黑客和犯罪分子的头号目标。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-11.jpg)
+因此，Akamai 表示，他们携手托管服务商Teneo，为客户搭建了一座桥梁，共同部署了Akamai内容交付网络 ，以确保客户在交易期间的安全和速度。
+
+喜马拉雅交易所首席信息与安全官 Azeem Bashir 谈到与 Akamai 和 Teneo 的合作时也表示：很高兴能与出色的合作伙伴共同协作，为用户带来一种快速、可靠和安全的数字货币支付体验。
+
+参考链接：
+[Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑：天滅中共
+审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

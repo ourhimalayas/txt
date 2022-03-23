@@ -2,23 +2,37 @@
 ---
 
 
-## 泽伦斯基意大利演说 乌克兰是野蛮人无法通过的墙
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2214872/)
+## 单伟建出任阿里巴巴新任独立董事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214926/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3月20日泽伦斯基-e1647824117849-1.jpg)图片来源：纽约时报
+作者：银河系农场 – 骄子
 
-泽伦斯基22日在意大利演说，他敦促加大对俄罗斯的制裁，示警俄罗斯对乌克兰的攻击可能导致世界各国发生饥荒，他也强调，乌克兰对俄军而言，是一道把他们与欧洲分隔开的墙，但野蛮人不能通过。
 
-简评：这是一场野蛮与文明的战争，就像俄罗斯对青少年洗脑红歌里唱的歌词一样，这是“最终之战”！普京妄想用野蛮征服文明，到头来终归是一场痴人说梦！
 
-新闻来源：[https://news.ttv.com.tw/news/11103230002000W](https://news.ttv.com.tw/news/11103230002000W)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-撰稿/发布：一叶知秋
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+
+阿里巴巴22日发布公告，计划扩大100亿美元的美股回购规模，将回购总额从150亿美元上调至250亿美元，有效期至2024年3月，为期两年。这是自2017年以来，阿里巴巴第三次增加回购计划总额。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-12.jpg)
+与此同时，阿里巴巴还宣布，委任太盟投资集团执行董事单伟建为董事会独立董事，兼审计委员会成员，任命期于3月31日生效。
+
+早前，郭文贵先生曾多次爆光单伟建的真实身份是中共高级特务，不仅是中共千人计划的重要推手，也是蓝金黄美国政要的关键人物。
+
+参考链接：
+1. [视频：CCP間諜～单伟健](https://gettr.com/post/pzvm910bf4)
+2. [Alibaba upsizes share buyback by two-thirds to record $25 billion](https://www.reuters.com/business/retail-consumer/alibaba-increases-share-buyback-25-billion-15-billion-2022-03-22/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：天滅中共
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
