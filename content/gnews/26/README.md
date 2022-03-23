@@ -2,25 +2,27 @@
 ---
 
 
-## 喜马拉雅交易所创建崭新数字金融系统
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2217893/)
+## 北约将敦促中共国避免援助俄入侵乌的行为
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2218008/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 硫酸羟氯喹64
+共同社3月23日报道，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）说，北约领导人在周四联盟成员举行的首脑会议上将呼吁中共国不要支持俄罗斯入侵乌克兰的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C-2-scaled.jpg)transconflict.com
+这位北约负责人周三在新闻发布会上说：“盟国担心中共国可能为俄罗斯的入侵提供物质支持。”这表明北约成员与华盛顿一样，担心中共国正在考虑直接协助俄罗斯在乌克兰使用军事装备。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-2-15.jpg)图片来源：Gnews
+斯托尔滕贝格指出，北京没有谴责入侵行为，还向俄罗斯提供 “政治支持”，帮助传播可能对乌克兰造成损害的错误信息。
 
+他说：“我期望各国领导人将呼吁中共国履行其作为联合国安理会成员的责任，不要支持俄罗斯的战争努力，并与世界其他国家一起呼吁立即和平结束这场战争。”
 
-据美国著名互联网技术服务公司[Akamai]3月18日报道，[喜马拉雅交易所]向世界提供了一种旨在对抗极端价格波动的全新数字货币，其主要目标之一是为未来数字时代提供革命性的金融解决方案。
+由于俄罗斯对乌克兰的攻击已经持续了近一个月，北约、G7集团和欧盟的领导人将在布鲁塞尔分别举行会议。美国总统拜登和日本首相岸田文雄将是与会者之一。
 
-[Akamai公司]称，很荣幸[喜联储]这家极具创新精神的数字货币交易所不仅选择该公司通过托管服务提供商 [Teneo] 为其客户提供前所未有的数字货币交易体验，同时还依靠多种 Akamai 技术解决方案来确保客户在交易期间的安全，以及在线交易平台快速可靠地运行。
+**快评：**郭先生在刚刚的大直播里再次警告，习及中共不是普京的帮凶而是这次俄乌战争的元凶，这个概念已经成为共识。现在北约首脑呼吁中共国不要支持俄罗斯入侵乌克兰的行为，又一次证明了郭先生这一警告的严重性。
 
-[喜联储]首席信息与安全官[巴希尔]对此表示，与 Akamai 和 Teneo 这两家如此出色的网络安全技术伙伴合作，使得喜交所能够对未来数字货币交易提供一种快速、可靠和安全的最佳方式。
+中国共产党是完了，中共国人要付出巨大的代价。
 
-校对编辑：硫酸羟氯喹64
+参考链接：
+[https://english.kyodonews.net/news/2022/03/ce165bdfc255-breaking-news-nato-eyes-calling-on-china-to-refrain-from-aiding-russias-war-chief.html](https://english.kyodonews.net/news/2022/03/ce165bdfc255-breaking-news-nato-eyes-calling-on-china-to-refrain-from-aiding-russias-war-chief.html)
 
-发稿：文明(添草灭共)
-
-新闻来源： [https://www.akamai.com/blog/edge/himalaya-exchange?utm\_source=twitter&utm\_medium=social\_corporate&utm\_campaign=F-MC-52611](https://www.akamai.com/blog/edge/himalaya-exchange?utm_source=twitter&amp;utm_medium=social_corporate&amp;utm_campaign=F-MC-52611)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

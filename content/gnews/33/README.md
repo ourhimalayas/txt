@@ -2,23 +2,34 @@
 ---
 
 
-## 俄乌战局最近消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217634/)
+## 96岁纳粹集中营幸存乌克兰人被普京杀害
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217743/)
 
-作者：蓝莲花农场 文斌
+作者：纽约香草山农场 – 文鹰
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截至当地时间3月22日，据俄罗斯国防部公布的数据显示，俄军在此次战争中的阵亡人数已经超过了九千八百人，另有多达一万六千余人受伤。然而，俄罗斯当天仍然对哈尔科夫市区和郊区进行了多达84次的炮火攻击。与此同时，俄军还在马里乌波尔市投下了两枚重型炸弹，并炮击了迈科拉夫港口和泽廖多利斯克，但其在文尼察地区投下的一枚伊斯坎德尔巡航导弹被当地的防御系统成功拦截。另外，俄罗斯及其代理部队侵占了鲁比日内地区的一个村落，且其正在试图夺取伊久姆，并对乌东部地区的乌克兰部队进行更广泛的包围，但俄军的多番入侵尝试均被乌克兰军队击溃。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-39.jpg)
-据乌克兰方面的消息称，该国的防空部队当天在哈尔科夫及附近区域击落了俄军的一架无人机和战斗机。此外，乌克兰地面部队还向俄罗斯比尔霍罗德发射了一枚导弹，但其后被俄军反坦克导弹拦截。乌军还在斯洛伐克边境喀尔巴阡地区捣毁一个来自俄罗斯的破坏团伙。但据高空卫星图像表明，俄罗斯在白俄罗斯南部距乌克兰边境仅18英里的地方集结了一批相当规模的地面部队。不过，由于缺乏零配件，俄罗斯的关键军工生产正在放缓，这导致在乌的俄军难以修复战损的武器和装备。
+3月22日，据盖特消息显示，纳粹集中营幸存者96岁的乌克兰人罗曼琴科在其位于哈尔科夫的公寓中被俄罗斯军队炮击杀害。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-上午10.57.46.png)
+德国布亨瓦特集中营纪念馆的资料证实，1926年出生的罗曼琴科于二战期间被纳粹在乌克兰逮捕，随后，其被送至矿场奴役。很长一段时间里，罗曼琴科辗转在布亨瓦特、布尼木恩德、多拉和伯根-波尔森四座纳粹集中营中。二战结束后，幸存的罗曼琴科成为了纳粹暴行的亲历者与见证人。 然而，由于俄军无差别的炮火攻击，96岁高龄的罗曼琴科近日在自己的公寓内被杀害。
 
-至于顿涅茨克和卢甘斯克征兵的细节，乌克兰军事情报局表示，莫斯科当局正在将征兵年龄从55岁提高到65岁，更甚者，当地18岁的学生也是被积极招募的对象。
+对此，乌克兰外长指责俄军的杀害行为是不可原谅的暴力罪行，而乌克兰总统办公室发言人也指出，俄罗斯将此次侵略战争定义为所谓的“去纳粹化”更是纯粹的谎言。至于布亨瓦特集中营纪念馆则表示，罗曼琴科从希特勒集中营里幸存，却在百岁之际被普京屠杀，这让人感到非常震惊。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+参考链接：
+1.[纳粹集中营幸存者 96岁乌克兰老人被俄军炸死](https://www.aboluowang.com/2022/0322/1724176.html)
+2.[乌克兰大屠杀幸存者 “被普京谋杀”…](https://gettr.com/post/p11a5dke8e0)
 
-总编: Irene木木
-编辑: Irene木木、静言
-审核：Irene木木
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑：静言
+总编：Irene木木
+审核：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
