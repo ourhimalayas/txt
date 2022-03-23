@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@pangushixun 3/22/2022 8:00 PM (UTC)`
+
+<br/>驻匈牙利 的RTL Radio Television Luxembourg 对文耀战友进行采访，文耀战友说出所有正义有良知的华人的心声：中共不能代表中国，中共也不能代表中国人，每个普通人可以挺身站出来联手与中共恶魔战斗。新中国联邦人和法治基金旨在灭共，乌克兰救援行动源自对生命至上的尊重。新中国联邦人支持和平和正义，与乌克兰人民站在一起。世界开始清醒并听到我们新中国联邦人发出的声音：打倒共产党，拯救被中共压迫的人！Take down the CCP！<br/><br/><br/>#盘古时讯 #救援 #人道主义 #新中国联邦
+![img](https://media.gettr.com/group13/getter/2022/03/22/20/8f20f4bb-7563-5858-b0a7-4807f5198959/out.jpg)
+
+---
+
 `@miles 3/23/2022 2:36 AM (UTC)`
 
 
@@ -146,13 +155,6 @@ Today is the Ukrainian girl Polina’s 6th birthday. Inside the refugee tent of 
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-22
 ![img](https://media.gettr.com/group22/origin/2022/03/22/22/eefecb5f-9eee-4958-c85f-8e0f4d111bf3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/22/2022 10:00 PM (UTC)`
-
-3/20/2022 Miles Guo: The Himalaya Coin safeguards the security and privacy of personal wealth and rejects bad actors. On the contrary, the Swiss financial institutions reject good people, whereas all the evil forces have hidden trillions of dollars of illicit wealth in Switzerland. Therefore, the Himalaya Coin will certainly surpass the Swiss banking and financial system.<br/><br/>3/20/2022 文贵直播：喜币保护个人财富的安全和隐私，把坏人拦在外面；但瑞士金融机构恰恰相反，好人进不去，世界上所有的邪恶势力都在瑞士藏匿万亿黑财富，所以，喜币必将超过瑞士的银行和金融系统<br/>
-![img](https://media.gettr.com/group4/getter/2022/03/22/21/887be111-6bae-a548-a0f1-c965eb1064b6/out.jpg)
 
 ---
 

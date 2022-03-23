@@ -2,27 +2,20 @@
 ---
 
 
-## 泽连斯基表示与俄谈判是艰难的有时是对抗的
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2213242/)
+## 樱花时政┃缅甸军政府否认参与种族灭绝
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2213412/)
 
-翻译与编辑：冰糖葫芦喵
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2598.png)[图片来源](http://gua.media/topic/8967/%E6%96%AD%E8%B4%A2%E8%B7%AF-%E7%BC%85%E7%94%B8%E5%86%9B%E6%94%BF%E5%BA%9C%E6%83%B3%E6%8C%AA280%E4%BA%BF%E8%B5%84%E9%87%91-%E7%BE%8E%E5%AE%98%E5%91%98%E5%8F%8A%E6%97%B6%E5%86%BB%E7%BB%93)
+据共同社报道，3月22日晚，在政变的武装部队完全控制下的缅甸外交部辩称，美国拜登政府已将其迫害罗兴亚穆斯林少数民族行为认定为种族灭绝一事表示“从未参与其中。”
 
-《路透社》3月23日报道，乌克兰本地时间周三，乌克兰总统泽伦斯基表示，为结束这场长达一个月的战争而与俄罗斯进行的和平谈判是艰难的，有时是对抗性的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-2-e1647997139153.jpg)乌克兰总统泽连斯基（图片来源：路透社）
-报道指出，尽管俄罗斯和乌克兰谈判人员一直在定期进行谈判，但双方都表示，达成任何协议都还很遥远。
+美国国务卿布林肯21日宣布，武装部队对罗兴亚人的暴力行为是种族灭绝罪和反人类罪。 声明称， 这是“基于与事实相去甚远、不可靠和无法核实的消息来源”。 并指出，“这不过是出于政治动机干涉内政”。
 
-泽伦斯基表示，我们将继续在不同层面上努力鼓励俄罗斯走向和平。乌克兰代表正在参加几乎每天都在进行的谈判。这非常困难，有时甚至是对抗性的。”泽伦斯基补充道，但我们正在一步一步地前进。
+信息来源：[ロヒンギャ虐殺を完全否定　ミャンマー軍政が声明](https://news.yahoo.co.jp/articles/e9fdfcef5fa010a3980c3f736e44b839ef51395c)
 
-与此同时，泽连斯基还指责攻击马里乌波尔的俄罗斯军队阻碍了从该市疏散平民的努力。
-
-他说:“到今天为止，这个城市大约有10万人生活在不人道的条件下，完全被封锁，没有食物，没有水，没有药品，并遭受不断的炮击和轰炸。”
-
-新闻来源链接：
-
-[Ukraine’s Zelenskiy says Russia talks are tough, sometimes confrontational | Reuters](https://www.reuters.com/world/europe/ukraines-zelenskiy-says-russia-talks-tough-sometimes-confrontational-2022-03-22/)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
