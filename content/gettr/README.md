@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 10:12 PM (UTC)`
+
+3/23/2022 Miles Guo: The truth about the China Eastern Airlines plane crash was a man-made suicidal act! In retaliation for the CCP's mistreatment of him, the death of his family from the COVID vaccine and being cheated out of money by the government and the company, someone had orchestrated the plane crash since January. With the outbreak of the COVID vaccine disaster, there will be numerous incidents of retaliation against society in Communist China. The CCP is destroying the world, so we must take down the CCP ASAP!<br/><br/><br/>3/23/2022 文贵直播：东航空难的真相是人为的自杀事件！为了报复中共对其虐待、家人打疫苗死以及被政府和公司骗钱，有人从1月份开始精心策划了这场空难；随着疫苗灾难的爆发，中共国报复社会的事件将层出不穷，中共在毁灭世界，必须赶紧灭共！
+![img](https://media.gettr.com/group27/getter/2022/03/23/22/7fccaf58-62c0-321c-d526-f4d4904c64c6/out.jpg)
+
+---
+
 `@miles 3/23/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-23
@@ -144,13 +151,6 @@ Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscr
 
 3/22/2022 Miles Guo’s GETTR: What does it mean for Weijian Shan to be a member of Alibaba's audit committee? PAG is a financial fraud syndicate of the CCP. It's the biggest accomplice of the CCP to defraud the US pension funds. Weijian Shan's whole family are CCP agents, and he will spend the rest of his life in prison.<br/><br/><br/>3/22/2022 文贵盖特：单伟建担任阿里巴巴审计委员会成员意味着什么？太平联盟就是中共的金融诈骗集团，是中共骗取美国养老金最厉害的打手之一；单伟建全家是中共专业特务，一定告死它们
 ![img](https://media.gettr.com/group9/getter/2022/03/23/04/985c973d-0a57-a5c3-498c-7c9bb080e76e/out.jpg)
-
----
-
-`@miles 3/23/2022 4:34 AM (UTC)`
-
-Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his friends drove two days from Wales to Medyka. They sent food to the refugee camp to help Ukraine people. Mr. St. Clair and Fine Food both are amazing. They communicated using Cantonese, Japanese, Mandarin and English to talked about the NFSC & ROLF and the Russia-Ukraine war.<br/><br/>来自NFSC & ROLF的记者精糧采访了汤姆·圣·克莱尔先生。克莱尔先生和他的朋友从威尔士驱车两天来到梅迪卡。他们把食物送到梅迪卡难民营帮助乌克兰人民。St. Clair先生和Fine Food都很了不起。他们用粤语、日语、普通话和英语进行交流谈论新中国联邦和目前的战争。
-![img](https://media.gettr.com/group10/origin/2022/03/23/04/0609843b-d667-5eb9-4213-a9d74ed2de14/out.jpg)
 
 ---
 

@@ -15,47 +15,47 @@
 
 ---
 
-### [华夏专栏┃地政学（一）从地缘政治看俄罗斯入侵乌克兰](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [灭共者之郭氏情报站（42）2022/03/23 文贵大直播](/content/gnews/1/README.md)
+ ` MOS Designer香草山设计部`
 
-### [樱花时政┃美谴责俄军绑架2389名儿童到俄国](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃美众院两党议员提案取消中共国永久最惠国待遇](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国为中共国设置红线](/content/gnews/4/README.md)
- ` Shuizhuyu`
-
-### [乌克兰战争使普京大女儿的事业梦想破裂](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022/03/23 文贵先生直播重点大纲](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [习寄希望于疫苗灾难到来重创美国](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [世卫组织和中共国对新冠发源的调查保持沉默](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [法国农业信贷银行暂停在俄罗斯的服务](/content/gnews/9/README.md)
- ` Shuizhuyu`
-
-### [视频｜比利时病毒专家告诉我们，疫苗接种者被变成无症状传播者❗️❗️](/content/gnews/10/README.md)
- ` mayflowertranslate`
-
-### [从近两年曾庆红的动向看共产党结局](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [为严惩中共侵犯人权 美议员提案取消其永久最惠国地位](/content/gnews/12/README.md)
- ` 日本東京方舟農場`
-
-### [3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的](/content/gnews/13/README.md)
+### [3/23/2022 文贵直播：东航空难的真相是人为的自杀事件！为了报复中共对其虐待、家人打疫苗死以及被政府和公司骗钱，有人从1月份开始精心策划了这场空难](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年3月23日大直播速记精萃](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
+### [华夏专栏┃地政学（一）从地缘政治看俄罗斯入侵乌克兰](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃美谴责俄军绑架2389名儿童到俄国](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃美众院两党议员提案取消中共国永久最惠国待遇](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国为中共国设置红线](/content/gnews/6/README.md)
+ ` Shuizhuyu`
+
+### [乌克兰战争使普京大女儿的事业梦想破裂](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022/03/23 文贵先生直播重点大纲](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [习寄希望于疫苗灾难到来重创美国](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [世卫组织和中共国对新冠发源的调查保持沉默](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [法国农业信贷银行暂停在俄罗斯的服务](/content/gnews/11/README.md)
+ ` Shuizhuyu`
+
+### [视频｜比利时病毒专家告诉我们，疫苗接种者被变成无症状传播者❗️❗️](/content/gnews/12/README.md)
+ ` mayflowertranslate`
+
+### [为严惩中共侵犯人权 美议员提案取消其永久最惠国地位](/content/gnews/13/README.md)
+ ` 日本東京方舟農場`
+
+### [3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [《共产党统治中国的150个家族》之“李鹏”篇（三）](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
@@ -114,8 +114,8 @@
 ### [【G时新闻】台湾花莲近海凌晨持续发生强震](/content/gnews/33/README.md)
  ` G-时新闻`
 
-### [视频|俄乌战争前线的新中国联邦救援公告](/content/gnews/34/README.md)
- ` MOSVIDEO`
+### [香港经历大灾大难后一定会重生](/content/gnews/34/README.md)
+ ` DC政经`
 
 ### [新西兰财经G乐部2022年3月23日:财经新闻整理](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
