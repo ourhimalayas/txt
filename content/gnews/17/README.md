@@ -2,32 +2,29 @@
 ---
 
 
-## 拜登政府拟制裁300多名俄罗斯立法议员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2218300/)
+## 匈牙利RTL记者专访新中国联邦救援团队
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2218303/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2704.png)图片来源：Mondial News
-据《国会山报》和《新闻极限》3月22日报道，为了对俄罗斯加大制裁，拜登政府将制裁数百名俄罗斯立法者。
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月22日，据盖特消息显示，在波兰边境口岸梅蒂卡的难民救援中心，匈牙利RTL广播电视台的记者采访了新中国联邦和法治基金的前线救援义工文耀战友。
 
-文章引述《华尔街日报》的报道，称政府已经准备好制裁措施，将由拜登总统在周四即将开始的欧洲之行中宣布。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-13.jpeg)
 
-报道说，拜登正前往欧洲与北约盟友会面，他将在欧盟宣布制裁措施的同时，宣布对俄罗斯议会下院（即国家杜马）的制裁，而对俄罗斯国家杜马（State Duma）的制裁将涉及300多名俄罗斯立法者。而消息人士告诉《新闻极限》记者，这项最新的制裁计划针对的是328名立法者和俄罗斯精英，以及400名个人。
+采访中，文耀战友向这位记者简单地介绍了救援团队在当地的救援设施和救助进展。此外，文耀战友也分享了一则在救援营区的真实经历：由于中共政府支持俄罗斯当局侵略乌克兰，早先，一位乌克兰难民曾对中国人救援团队表示质疑。但文耀战友随后向其认真解释了新中国联邦义工的本质，即我们是消灭邪恶中国共产党的新中国人，并将持续帮助所有战争中的受难者。
 
-此外，美国和欧盟还将与由六个西方国家和日本组成的七大工业化国家集团的成员协调其公告。
+另一方面，当被问及是否害怕中共政府的控制时，文耀战友也表示，虽然很多战友已经脱离了中共政府的控制，但中共国内仍有很多战友及其家人们被中共当局监控，甚至被消失。因此，如果我们不战斗，那中国人就没有未来。
 
-文章说，俄罗斯国家杜马由450名立法者组成，与拥有170个席位的联邦委员会（俄罗斯议会的上院）共同组成俄罗斯联邦议会。
+文耀战友还特意向这位记者强调，独裁者发动战争只是为了个人和家族的利益，但遭受战争苦难的总是普通老百姓。作为普通民众的代表，新中国联邦人正在帮助那些受苦受难的普通百姓，并致力于消灭在背后支持侵略战争的中共政府。
 
-文章指出，将国家杜马作为制裁的目标，可能与该机构通过立法承认俄罗斯控制的顿涅茨克（Donetsk）和卢甘斯克（Luhansk）分离主义国家有关。正是这些有争议的地区被普京用来证明他所谓的“特别军事行动”的合理性。
+参考链接：[驻匈牙利 的RTL Radio Television Luxembourg 对文耀战友进行采访，文耀战友说出所有正义有良知的华人的心声](https://www.gettr.com/post/p11csxkf631)
 
-此外，俄罗斯国家杜马的一个委员会本月通过了一项法律，该法律规定将对传播有关俄罗斯入侵乌克兰的“虚假新闻”的行为进行处罚，包括最高15年的刑期。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-*责编：白夜*
-
-**新闻来源**
-
-[Biden to Sanction 300-Plus Russian Lawmakers Next](https://www.newsmax.com/politics/sanctions-invasion-war-parliament/2022/03/22/id/1062463/)
-
-[Biden administration to sanction hundreds of Russian lawmakers: report](https://thehill.com/policy/international/russia/599314-biden-administration-to-sanction-hundreds-of-russian-lawmakers)
+总编：Irene木木
+编辑：玫瑰圓
+审核：Ivy001
+校正/发稿：谐趣园
 
  
 

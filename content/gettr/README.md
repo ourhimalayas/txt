@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 6:43 PM (UTC)`
+
+在#西班牙媒体#Republica发表的这份报告中，提到了#NFSC和#ROLF在#Medyka，#Poland的#人道主义救援活动。"在戴维和他的钢琴旁边，是整个难民营中规模最大、建造最好的帐篷。该帐篷是新中国联邦的。这是一个以推翻中国政府为最终目标的非营利组织。 “我们的帐篷是所有建起的帐篷里最好的。我们甚至为难民提供了 Wi-Fi。我们想让世界知道，一个没有共产主义的中国会是一个更好的中国”，其经理解释道。<br/><br/>https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/
+
+---
+
+`@miles 3/23/2022 6:41 PM (UTC)`
+
+In this report published by #Spanish press #Republica, the #NFSC and #ROLF #humanitarianrelief activities in #Medyka, #Poland are mentioned: “Next to Davide and his piano is the largest and best-built marquee in the entire #refugeecamp. It is that of the #NewFederalStateofChina, a non-profit association whose ultimate goal is to overthrow the #Chinese government. ‘Our marquee is the best erected of all. We even have #WiFi for the #refugees. We want the world to know that a #China without #Communism would be a better China’, argues its manager.” #HumanitarianReliefForUkraine #ChineseStandWithUkraine https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/ https://gettr.com/post/p11i5j0a6ef
+
+---
+
 `@miles 3/23/2022 6:06 PM (UTC)`
 
 A very popular young singer, Tsewang Lobu, in the Tibetan community as well as mainland China. He was an absolute supporter of the New Federal State of China and the Whistleblower Movement. He was threatened by the Chinese Communist State Security for spreading the real truth of the big live broadcast of the Whistleblower Movement. After claiming to have set himself on fire in protest, Tsewang Lobu was killed and burned by brutal Chinese Communist police at the age of just 25.<br/>中国大陆非常受欢迎的年轻藏族歌手才旺罗布是爆料革命新中国联邦的绝对支持者。因为传播爆料革命大直播的真实信息，受到中共国安威胁。才旺罗布声称自焚表达抗议后，被残暴的中共警察打死后焚烧，年仅25岁。
@@ -143,22 +155,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 【Ukraine Rescue】03/20/22  With volunteers from all over the world helping each other, the New Federal State of China's big tent is as warm as an extended family, blossoming with humanity even in the midst of war. The NFSC coffee temporarily takes the refugees' minds off their suffering, reminding people that we will have a new and better life if we eradicate the Chinese Communist Party, the root cause of all suffering.<br/><br/><br/>【乌克兰救援】03/20/22  来自世界各地的志愿者们互相帮助，新中国联邦的大帐蓬就像大家庭一样温暖，即使在战乱中，仍然绽放出人性的光辉。新中国联邦咖啡暂时让难民们忘却苦难，提醒人们，只要灭掉中国共产党这个苦难根源，我们会有美好的新生活。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
 ![img](https://media.gettr.com/group49/getter/2022/03/23/03/1eb6704e-b557-13d3-645d-7d161b843d88/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@pangushixun 3/22/2022 8:00 PM (UTC)`
-
-<br/>驻匈牙利 的RTL Radio Television Luxembourg 对文耀战友进行采访，文耀战友说出所有正义有良知的华人的心声：中共不能代表中国，中共也不能代表中国人，每个普通人可以挺身站出来联手与中共恶魔战斗。新中国联邦人和法治基金旨在灭共，乌克兰救援行动源自对生命至上的尊重。新中国联邦人支持和平和正义，与乌克兰人民站在一起。世界开始清醒并听到我们新中国联邦人发出的声音：打倒共产党，拯救被中共压迫的人！Take down the CCP！<br/><br/><br/>#盘古时讯 #救援 #人道主义 #新中国联邦
-![img](https://media.gettr.com/group13/getter/2022/03/22/20/8f20f4bb-7563-5858-b0a7-4807f5198959/out.jpg)
-
----
-
-`@miles 3/23/2022 2:36 AM (UTC)`
-
-
-![img](https://media.gettr.com/group48/origin/2022/03/23/02/aa33c7ba-10f5-7718-5af1-903cb84e0e55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

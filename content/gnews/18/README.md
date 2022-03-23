@@ -2,32 +2,33 @@
 ---
 
 
-## 【G时新闻】台湾花莲近海凌晨持续发生强震
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2218299/)
+## 拜登政府拟制裁300多名俄罗斯立法议员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2218300/)
 
-作者：加拿大温哥华扬帆农场 – 播报：悠然 – 视频制作：文雅
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2704.png)图片来源：Mondial News
+据《国会山报》和《新闻极限》3月22日报道，为了对俄罗斯加大制裁，拜登政府将制裁数百名俄罗斯立法者。
 
-台湾花莲近海凌晨持续发生强震
+文章引述《华尔街日报》的报道，称政府已经准备好制裁措施，将由拜登总统在周四即将开始的欧洲之行中宣布。
 
-当地时间3月23日，台媒报道花莲近海，凌晨1时41分39.9秒发生6.6级地震，震源深度30.6公里，震中位置离花莲县政府南62.6公里，台湾全岛发生剧烈震动。
+报道说，拜登正前往欧洲与北约盟友会面，他将在欧盟宣布制裁措施的同时，宣布对俄罗斯议会下院（即国家杜马）的制裁，而对俄罗斯国家杜马（State Duma）的制裁将涉及300多名俄罗斯立法者。而消息人士告诉《新闻极限》记者，这项最新的制裁计划针对的是328名立法者和俄罗斯精英，以及400名个人。
 
-目前已发生多次余震，1时43分发生6.1级余震在花莲，1时46分、2时37分在台东县近海分别震级为4.7和5.3级，截止凌晨3时35分，花莲近海又发生5.8级地震。 地震已经造成局部公路坍塌，影响交通通行，台湾中央气象局预报未来三天还有余震。
+此外，美国和欧盟还将与由六个西方国家和日本组成的七大工业化国家集团的成员协调其公告。
 
-郭文贵先生大直播曾曝料，中共有潜水艇在台湾东部近海游弋。中共会利用台湾地质构造特性，用武器引发地震，制造台湾混乱，进而武力侵台。
+文章说，俄罗斯国家杜马由450名立法者组成，与拥有170个席位的联邦委员会（俄罗斯议会的上院）共同组成俄罗斯联邦议会。
 
-视频链接：[https://gettr.com/post/p11fqll034b](https://gettr.com/post/p11fqll034b)
+文章指出，将国家杜马作为制裁的目标，可能与该机构通过立法承认俄罗斯控制的顿涅茨克（Donetsk）和卢甘斯克（Luhansk）分离主义国家有关。正是这些有争议的地区被普京用来证明他所谓的“特别军事行动”的合理性。
 
-编辑/上传：蔚蓝之境
+此外，俄罗斯国家杜马的一个委员会本月通过了一项法律，该法律规定将对传播有关俄罗斯入侵乌克兰的“虚假新闻”的行为进行处罚，包括最高15年的刑期。
 
-————————————————————————————————————
+*责编：白夜*
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+**新闻来源**
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+[Biden to Sanction 300-Plus Russian Lawmakers Next](https://www.newsmax.com/politics/sanctions-invasion-war-parliament/2022/03/22/id/1062463/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2705.png)
+[Biden administration to sanction hundreds of Russian lawmakers: report](https://thehill.com/policy/international/russia/599314-biden-administration-to-sanction-hundreds-of-russian-lawmakers)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
