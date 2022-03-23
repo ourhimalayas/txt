@@ -2,25 +2,25 @@
 ---
 
 
-## 瓦格纳雇佣军奉普京之命刺杀泽连斯基
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2214906/)
+## 视频|乌克兰总统：为保同胞努力促成与俄方的谈判
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2214910/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_20220323-010224_Discord.jpg)图片来源：dailymail
+据Newsmx 3月20消息，乌克兰总统沃洛季米尔·泽伦斯基，表明他再次与俄罗斯总统弗拉基米尔·普京进行谈判的意愿。他同时表示，一旦谈判再度破裂，将意味着两国灾难性的战争后果。
 
+泽伦斯基表示，乌克兰将不惜使用任何形式，把握任何机会，积极寻求与俄方进行谈判的可能。但如果这些尝试宣告失败，将意味着战争的升级。
 
-据英国[每日邮报]3月21日报道，臭名昭著的[瓦格纳]雇佣军组织已接受俄罗斯独裁者普京的命令，再次前往乌克兰执行暗杀总统泽连斯基的任务。
+随着俄乌战争进入第四周，乌克兰的伤亡人数日益增加。结束无辜百姓的死伤，已迫在眉睫。
 
-据悉，[瓦格纳组织]是一个部署在世界各地为普京政权从事犯罪行动的雇佣军集团。尽管俄当局一直否认与该集团有任何关联，但实际上它就是为普京个人权力服务的暗杀部队。
+泽伦斯基认为，只要有1%的机会阻止这场战争，就应该抓住这个机会。尽管乌克兰军队已在多个战场成功地反击了来自俄罗斯的入侵者，但黎民百姓伤亡惨重。泽伦斯基表示，乌克兰人民已经展示了他们的尊严和力量，他们有能力给予侵略者强有力的还击。但不幸的是，尊严和力量不能有效阻止战争每天夺去无辜的生命。
 
-自2月24日俄军入侵乌克兰以来，[瓦格纳组织]和车臣特种部队已实施了多次暗杀泽连斯基的军事行动。在最新暴露的一份24人暗杀名单中，除了总统之外，还包括乌克兰总理、内阁成员和基辅市长等重要人士。
+发稿：林礼
 
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接：[https://www.dailymail.co.uk/news/article-10635419/Wagner-mercenaries-enter-Ukraine-assassinate-Zelensky-claims-Ukrainian-intelligence.html](https://www.dailymail.co.uk/news/article-10635419/Wagner-mercenaries-enter-Ukraine-assassinate-Zelensky-claims-Ukrainian-intelligence.html)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,39 +2,13 @@
 ---
 
 
-## 突发：台湾花莲近海凌晨持续发生强震
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2213700/)
+## 【乌克兰救援】新中国联邦咖啡为难民带去对美好新生活的向往和对苦难的暂时淡忘
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2213828/)
 
-作者：纽约香草山农场 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
-当地时间3月23日，台媒报道花莲近海，凌晨1时41分39.9秒发生6.6级地震，震源深度30.6公里，震中位置离花莲县政府南62.6公里，台湾全岛发生剧烈震动。
+【乌克兰救援】03/20/22  来自世界各地的志愿者们互相帮助，新中国联邦的大帐蓬就像大家庭一样温暖，即使在战乱中，仍然绽放出人性的光辉。新中国联邦咖啡暂时让难民们忘却苦难，提醒人们，只要灭掉中国共产党这个苦难根源，我们会有美好的新生活。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-92.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-目前已发生多次余震，1时43分发生6.1级余震在花莲，1时46分、2时37分在台东县近海分别震级4.7和5.3级，截止凌晨3时35分，花莲近海又发生5.8级地震。
-
-地震已经造成局部公路坍塌，影响交通通行，台湾中央气象局预报未来三天还有余震。
-
-郭文贵先生大直播曾曝光，中共有潜水艇在台湾东部近海游弋。中共会利用台湾地质构造特性，用武器引发地震，制造台湾混乱，进而进一步侵台。
-
-资料链接:[https://www.cna.com.tw/news/ahel/202203235001.aspx](https://www.cna.com.tw/news/ahel/202203235001.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
-
-编辑/校对/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
