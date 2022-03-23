@@ -2,22 +2,29 @@
 ---
 
 
-## 视频|爱沙尼亚总理呼吁各方协作结束俄罗斯的侵略
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2214897/)
+## 有声｜拜登的布鲁塞尔之行强调了对俄的新制裁
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2215050/)
 
-制作：香草山视频部
+By:**秘翻新闻**
 
-台媒3月21日报道，近日，爱沙尼亚总理卡娅·卡拉斯接受美国媒体专访时表示，普京绝不会赢得对乌克兰的侵略性战争，并表示各方应协作结束俄罗斯对乌克兰的侵略性战争行为。
-卡拉斯说，爱沙尼亚正在尽一切努力支持，并帮助乌克兰抵抗俄罗斯的侵略。她认为北约的战略，应该转为通过“智能抑制”来结束战争，也即北约从威慑态势，转为防御态势。同时各国也应该作为一个整体加强合作，并在所有政治层面上孤立俄罗斯。
-对于北约是否会出动维和部队帮助乌克兰的问题，卡拉斯表示，她否认俄罗斯有任何实现和平的企图，但有时候为了实现和平，北约必须要有使用军事力量的意愿。
+**2022-03-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-270.png)图片来源 路透社
+[《路透社》华盛顿3月22日报道，周二，美国国家安全顾问沙利文表示，美国总统拜登和欧洲国家领导人本周在访问布鲁塞尔期间，将宣布针对俄罗斯的新的制裁行动，以及加强现有制裁的措施。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
 
-发稿：qiutian（邱甜）
+[周三，拜登将前往北约和欧盟总部所在地布鲁塞尔，周四将推出新的制裁，会议重点是执行之前的惩罚措施。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
 
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+[沙利文表示，拜登还将讨论对北约部队态势的长期调整以及在使用核武器的情况下的突发事件；并将宣布加强欧洲能源安全的联合行动，因为欧洲高度依赖俄罗斯的天然气。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
 
+[此外，拜登将出席北约紧急峰会，会见七国集团领导人，并在欧洲理事会会议上向欧盟领导人发表讲话。沙利文称拜登将有机会协调下一阶段对乌克兰的军事援助，对俄罗斯实施进一步的制裁。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+
+[据报道，拜登还将宣布美国将进一步为缓解乌克兰境内难民和平民的人道主义状况作出贡献，他们中的许多人被困在马里乌波尔市。](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+
+秘翻新闻  冰糖葫芦喵编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
