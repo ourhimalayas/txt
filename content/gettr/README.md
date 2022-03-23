@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 10:45 AM (UTC)`
+
+【Ukraine Rescue】03/20/2022 the NFSC & ROLF Ukraine Humanitarian Rescue Operation - Poland Rescue Base Frontline Report: Sick fellow fighters have recovered and are returning to the team one after another. It is expected that there will be a new wave of Ukrainian refugees. We will continue to stand firm and serve the refugees. We will always be here until the war is over.<br/><br/>【乌克兰救援】03/20/2022 新中国联邦法制基金乌克兰人道救援行动-波兰救援基地前线报道：生病的战友陆续康复回到团队。预计还有新的乌克兰难民潮，我们将继续坚守阵地服务难民，战事不结束，我们会一直在这里。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group3/getter/2022/03/23/10/f72dec7f-6218-615b-9947-7b0f03e25795/out.jpg)
+
+---
+
 `@miles 3/23/2022 10:36 AM (UTC)`
 
 【Ukraine Rescue】 03/20/2022 Frontline NFSC fellow fighters: inside the big tent of the NFSC & ROLF, the international rescue medical team is conducting an emergency medical examination on an elderly lady. We are cooperating with the world!<br/><br/>【乌克兰救援】03/20/2022 新中国联邦前线战友：法治基金、新中国联邦的大帐篷内，国际救援医疗团队正在对一位老奶奶紧急体检。我们正在与世界合作！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
@@ -153,13 +160,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 2022.03.22 晚《新中国联邦新闻访谈》今日俄乌战况；新中国联邦人在波乌边境救援战争难民；战友之爱和文化传承
 ![img](https://media.gettr.com/group43/origin/2022/03/23/01/4345f2f1-7336-be74-6537-16d841fdb338/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/23/2022 1:09 AM (UTC)`
-
-3/20/2022 Miles Guo: From the perspective of how the Chinese people judge the CCP cadres, we can see the Chinese are so pathetic. Zhu Rongji is a big crook. Zhu Yunlai and Zhu Yanlai have been using the Chinese people's hard-earned money to collude with Wall Street via China Investment Corporation (CIC), China International Capital Corporation (CICC), and Bank of China (BOC). They have deceived the Lao Baixing into believing that they are uncorrupted officials.<br/><br/>3/20/2022 文贵直播：从中国老百姓如何评判中共官员这点看，中国人太可悲了；朱镕基是大骗子，朱云来、朱燕来通过中投中金中银，用中国人的血汗钱和华尔街勾兑，骗得老百姓喊他清官<br/><br/>
-![img](https://media.gettr.com/group11/getter/2022/03/23/01/44e5eb2f-2632-8d7f-5334-6995f26ff4ad/out.jpg)
 
 ---
 
