@@ -2,30 +2,25 @@
 ---
 
 
-## 【秘翻时评】美国与西方联盟评估将俄逐出G20
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2218397/)
+## 2022年3月23日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218495/)
 
-By:**[秘翻时评](https://gettr.com/post/p11gix876f0)**
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**中共的杀戮还在继续……**
 
-**[2022‑03‑23](https://gettr.com/post/p11gix876f0)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0571.jpg)
 
-**晚间新闻：**
+发稿：信心的选择
 
-1.美国与西方联盟评估将俄逐出G20
-2.恒大境外负债约227亿美元 拟7月底提债务重组
-3.美任命尹汝尚主导太平洋岛国谈判任务抗衡中共
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
 
-**时评内容：**
-
-\*中共国债务违约 房企股票非正常大幅上涨
-\*俄军非法运送2389名乌克兰孩童至俄国
-
-Gettr链接：[**https://gettr.com/post/p11gix876f0**](https://gettr.com/post/p11gix876f0)
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

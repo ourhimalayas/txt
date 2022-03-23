@@ -2,36 +2,51 @@
 ---
 
 
-## 美国防部分析称俄罗斯军队的补给严重不足
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2218057/)
+## 新西兰财经G乐部2022年3月23日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2218060/)
 
-**撰稿：温哥华圆成农场 文舞两道**
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-23-at-5.24.16-PM.jpeg)
+正文
 
-3月22日，五角大楼的一名高级官员透露了美国国防部的一项分析，入侵乌克兰的俄罗斯军队在前线缺乏燃料、食物和其他物资，一些士兵被冻伤。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0C9515C1-E4CF-4B88-8651-23CAAE7093A3.jpeg)照片来源：https://www.sankei.com/article/20220323-FXBUN4ND5ROOVFUA7ZO64YKOWU/
-这位高级官员分析说，部署在乌克兰的作战部队首次降至最初部署的10万部队的90%以下。这与俄罗斯损失了5名将军有关。
+**1、宝能陷入流动性困难、裁员危机**
+![img](https://media.gettr.com/group37/origin/2022/03/23/03/b1c3ca8f-d2da-b0b8-e4c9-8197e7911884/d7e3f43a3715966796e7f8a1521ad61b_500x0.png)
+法院一纸公告，将宝能集团和公司董事长姚振华推上风口浪尖。3月22日上午，公司回应称姚振华没有“下落不明”，并披露了3月21日姚振华现场检查宝能汽车深圳工厂的消息。
 
-关于俄罗斯军队的死伤人数，22日，美国家安全事务助理沙利文说，估计俄罗斯军队的死亡人数为数千人。
+据中炬高新（今年1月披露，截至2021年12月末，宝能集团有息负债合计为1918亿元（包含银行贷款、信托贷款、理财产品及发行的公司债券），对外担保余额308亿。　“我身边所有认识的金融销售，几乎都接到了HR的裁员通知。” 宝能集团旗下金融板块钜盛华股份有限公司一名金融销售人员3月22日对第一财经记者称。
 
-沙利文还指出，俄罗斯军方计划补给食品和燃料，俄军海上船只的燃料以及包括精确制导武器在内的武器和弹药库存也开始出现不足。
+链接：[https://finance.sina.com.cn/chanjing/gsnews/2022-03-23/doc-imcwipih9984516.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-03-23/doc-imcwipih9984516.shtml)
 
-在22日的新闻发布会上，五角大楼发言人柯比介绍，乌克兰方面袭击了俄罗斯军队的一个运输车队，导致俄罗斯士兵士气低落，部队之间缺乏协调，指挥和控制出现了问题。
+**2、许家印现身汽车动员会，发誓六月底实现量产**
+![img](https://media.gettr.com/group47/origin/2022/03/23/03/1a3d57ef-9c49-2d36-33d7-27debef459b7/f2d3e4711348efaab1e308fd1db83059_500x0.png)
+3月22日晚间7时，恒大新能源汽车集团召开“大干三个月 实现恒驰5量产”的动员大会，恒大集团董事局主席许家印现身露脸，并提出汽车集团要努力拼搏，大干三个月，6月22日一定要实现恒驰5的量产。
 
-该发言人指出，俄罗斯军队 “没有实现其战略目标”，例如控制首都基辅。他还指责俄罗斯总统普京越来越依赖用导弹和其他手段进行远程打击，增加了平民伤亡，并呼吁”普京先生结束这场无用的战争吧”。
+财经G 评：贾跃亭造车靠PPT，许家印造车靠吹牛X！毛泽东的大跃进运动经过几十年的演变已经深入影响中国的方方面面！
 
-** 信息来源：**
+链接 [https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-23/doc-imcwipii0006637.shtml](https://finance.sina.com.cn/stock/hkstock/ggscyd/2022-03-23/doc-imcwipii0006637.shtml)
 
-[ロシア軍の補給不足深刻、凍傷の兵士も　米国防総省分析](https://www.sankei.com/article/20220323-FXBUN4ND5ROOVFUA7ZO64YKOWU/)
+**3、京东各业务线裁员：京喜事业群成重灾区 **
+![img](https://media.gettr.com/group3/origin/2022/03/23/04/25d96346-96eb-a6d6-2fbb-27e37dfa2abe/b77ca7760a09216bc7a9c4549ebbc24d_500x0.png)
+据继腾讯和阿里之后，京东集团的裁员也袭来。从多个独立信源处获悉，近日京东开始了各业务线的裁员，其中京喜事业群成为重灾区。据内部知情人士透露，此次京喜事业群的裁员比例或在10-15%，甚至更多。
 
-**校对：卢卡斯**
+链接 ：[https://www.longsok.com/dt/2022/0323/62719.html](https://www.longsok.com/dt/2022/0323/62719.html)
 
-**发布：歪桑**
+**4、高盛将提供场外加密期权交易**
+![img](https://media.gettr.com/group38/origin/2022/03/23/04/e78066aa-f17f-20ff-2e9e-a9dd072cec5a/e0e82fb539f59d833ddf334c41fee4fe_500x0.png)
+3月22日高盛通过交易伙伴Galaxy Digital完成了第一笔场外（OTC）加密货币交易，这是美国第一家重要投行执行的第一笔此类交易。Galaxy Digital是由前高盛合伙人Michael Novogratz创立的。该公司联席总裁兼全球市场主管Damien Vanderwilt表示，此举标志着美国大型银行首次进行此类交易，预计这笔交易将“为其他考虑把场外交易作为交易数字资产渠道的银行打开大门”。此次交易的是一种不可交割期权（NDO），也称作现金结算期权，也就意味着当期权被结算时，期权持有者不会受到比特币，而是获得其等价的现金。高盛的这笔交易标志着与公司早期在数字货币市场布局的衍生品交易有所不同，表明其更愿意承担场外交易带来的额外风险。
 
-20220323
+链接： [https://www.bloomberg.com/news/articles/2022-03-21/goldman-conducts-its-first-over-the-counter-crypto-options-trade](https://www.bloomberg.com/news/articles/2022-03-21/goldman-conducts-its-first-over-the-counter-crypto-options-trade)
 
-更多资讯请关注：
-｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)｜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+**5、 加密货币为乌克兰提供救济援助**
+![img](https://media.gettr.com/group31/origin/2022/03/23/04/acf20e0b-ae59-3f57-980a-f6ccc2cae881/e437a10782865a7962fbc82a73a89eba_500x0.png)
+加密社区已经做到了这一点，世界各地的非同质化代币(NFT)公司、去中心化自治组织(DAO)和加密用户带头帮助乌克兰，捐赠比特币(BTC)、以太坊(ETH)、波卡(DOT)甚至NFT。乌克兰副总理在推特上发布政府的加密钱包地址后不久，加密货币开始以前所未有的速度进入乌克兰政府的钱包。事实上，乌克兰在数据公司Chainalysis编制的全球加密货币采用指数(Global Crypto Adoption Index)中排名第四，该公司估计，每年大约有80亿美元的加密货币进出乌克兰。
+
+链接：[https://cointelegraphcn.com/news/every-bitcoin-helps-crypto-fueled-relief-aid-for-ukraine](https://cointelegraphcn.com/news/every-bitcoin-helps-crypto-fueled-relief-aid-for-ukraine)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

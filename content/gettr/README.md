@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 7:31 PM (UTC)`
+
+
+![img](https://media.gettr.com/group41/origin/2022/03/23/19/d6e61e5a-ae1e-891e-b063-493c508068fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/23/2022 6:43 PM (UTC)`
 
 在#西班牙媒体#Republica发表的这份报告中，提到了#NFSC和#ROLF在#Medyka，#Poland的#人道主义救援活动。"在戴维和他的钢琴旁边，是整个难民营中规模最大、建造最好的帐篷。该帐篷是新中国联邦的。这是一个以推翻中国政府为最终目标的非营利组织。 “我们的帐篷是所有建起的帐篷里最好的。我们甚至为难民提供了 Wi-Fi。我们想让世界知道，一个没有共产主义的中国会是一个更好的中国”，其经理解释道。<br/><br/>https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/
@@ -148,13 +155,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 逃离中共病毒：<br/>是中共、福奇、辉瑞、脸书等。他们比纳粹更毒。<br/><br/>It's the Chinese Communist Party (CCP), Anthony Fauci, Pfizer, Facebook, etc. They are worse than the Nazis. <br/><br/>#CCP #AnthonyFauci #Pfizer #Facebook #Nazis
 ![img](https://media.gettr.com/group46/origin/2022/03/23/03/1d6322a6-3ff2-2986-9742-4fa6bde8b714/out.jpg)
-
----
-
-`@miles 3/23/2022 3:13 AM (UTC)`
-
-【Ukraine Rescue】03/20/22  With volunteers from all over the world helping each other, the New Federal State of China's big tent is as warm as an extended family, blossoming with humanity even in the midst of war. The NFSC coffee temporarily takes the refugees' minds off their suffering, reminding people that we will have a new and better life if we eradicate the Chinese Communist Party, the root cause of all suffering.<br/><br/><br/>【乌克兰救援】03/20/22  来自世界各地的志愿者们互相帮助，新中国联邦的大帐蓬就像大家庭一样温暖，即使在战乱中，仍然绽放出人性的光辉。新中国联邦咖啡暂时让难民们忘却苦难，提醒人们，只要灭掉中国共产党这个苦难根源，我们会有美好的新生活。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
-![img](https://media.gettr.com/group49/getter/2022/03/23/03/1eb6704e-b557-13d3-645d-7d161b843d88/out.jpg)
 
 ---
 

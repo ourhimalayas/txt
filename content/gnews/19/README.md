@@ -2,32 +2,26 @@
 ---
 
 
-## 拜登政府拟制裁300多名俄罗斯立法议员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2218300/)
+## 中共政府畏惧新中国联邦的救援行动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2218333/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2704.png)图片来源：Mondial News
-据《国会山报》和《新闻极限》3月22日报道，为了对俄罗斯加大制裁，拜登政府将制裁数百名俄罗斯立法者。
+作者：澳喜农场 Leo M
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月20日，郭文贵先生在大直播中透露了中共宣称的“救援行动”的背后真相。
 
-文章引述《华尔街日报》的报道，称政府已经准备好制裁措施，将由拜登总统在周四即将开始的欧洲之行中宣布。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-10.jpeg)
 
-报道说，拜登正前往欧洲与北约盟友会面，他将在欧盟宣布制裁措施的同时，宣布对俄罗斯议会下院（即国家杜马）的制裁，而对俄罗斯国家杜马（State Duma）的制裁将涉及300多名俄罗斯立法者。而消息人士告诉《新闻极限》记者，这项最新的制裁计划针对的是328名立法者和俄罗斯精英，以及400名个人。
+郭先生提到，虽然中共反复声称其已将所有在乌中国人救出，但目前仍有数以万计的华人受困于乌克兰，且求助无门。此外，之前被困苏梅的一百余名中国留学生其实已经先通过救援热线联系了新中国联邦和法治基金救援团队，而中共在得知此事后出于畏惧，抢先将这一批求助者带出乌克兰，并大肆宣扬其所谓的救援行动。但据郭先生爆料，这一百多名华人每人后续需要向中共政府支付1.8万元人民币的机票费用才能返回中共国内，且这些人还被强制要求在机场表演了一出感谢中共的戏码。
 
-此外，美国和欧盟还将与由六个西方国家和日本组成的七大工业化国家集团的成员协调其公告。
+郭先生指出，所谓国家，就是当自己的公民受到任何威胁或遭遇战争和自然灾害时，它必须无条件且尽全力地救他们回来。相较而言，中共则是世界上仅此一例的无耻政权。
 
-文章说，俄罗斯国家杜马由450名立法者组成，与拥有170个席位的联邦委员会（俄罗斯议会的上院）共同组成俄罗斯联邦议会。
+参考链接：[2022年3月20日 文贵大直播](https://gettr.com/streaming/p10y5j870c5)
 
-文章指出，将国家杜马作为制裁的目标，可能与该机构通过立法承认俄罗斯控制的顿涅茨克（Donetsk）和卢甘斯克（Luhansk）分离主义国家有关。正是这些有争议的地区被普京用来证明他所谓的“特别军事行动”的合理性。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-此外，俄罗斯国家杜马的一个委员会本月通过了一项法律，该法律规定将对传播有关俄罗斯入侵乌克兰的“虚假新闻”的行为进行处罚，包括最高15年的刑期。
-
-*责编：白夜*
-
-**新闻来源**
-
-[Biden to Sanction 300-Plus Russian Lawmakers Next](https://www.newsmax.com/politics/sanctions-invasion-war-parliament/2022/03/22/id/1062463/)
-
-[Biden administration to sanction hundreds of Russian lawmakers: report](https://thehill.com/policy/international/russia/599314-biden-administration-to-sanction-hundreds-of-russian-lawmakers)
+审核/编辑：飞虹 
+总编：Irene木木
+校正/发稿：谐趣园
 
  
 

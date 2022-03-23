@@ -2,24 +2,20 @@
 ---
 
 
-## 2022年3月23日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218495/)
+## 救援进入第17天
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2218566/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**中共的杀戮还在继续……**
+战争已经持续26天，我们新中国联邦的救援也已经进入了第17 天，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0571.jpg)
+随着救助的人数越来越多，我们的救援工作越来越专业，战友之间的合作越来越融洽，从搭建营地，到储备物资，从摄影、录像，到直播、采访、报道，都体现了我们在用心做事。
 
-发稿：信心的选择
+从四面八方汇集到前线的战友们不分昼夜、不分你我、不计得失的付出感动了所有人。被救助难民们衣着整洁，带着孩子带着宠物，他们的坚定勇敢也感动了我们，赢得了世界的尊重。我们的救援还在继续，此刻，我们所有新中国联邦人的心和全世界爱好和的人一起跳动！
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+视频制作：麻辣烫
+
+文案：娜洁，法治萌芽
+
+发表：Shuizhuyu
 
  
 
