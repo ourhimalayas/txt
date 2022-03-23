@@ -2,24 +2,29 @@
 ---
 
 
-## 2022年3月23日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218495/)
+## 乌克兰官员表示，将接收更多美国标枪和毒刺导弹
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2218568/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**中共的杀戮还在继续……**
+据《路透社》作者：Max Hunder，2022年3月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2709-e1648058103198.png)乌克兰在波里斯皮尔机场接收美国军援。图片来源：路透社
+乌克兰，3月19日（路透社）——乌克兰国家安全和国防委员会秘书丹尼洛夫（Oleksiy Danilov）周六在电视采访中表示，乌克兰将在几天内收到一批新的美国武器，包括标枪和毒刺导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0571.jpg)
+“这些（武器）将在近期出现在我国境内。我们指的是几天。”丹尼洛夫说。
 
-发稿：信心的选择
+乌克兰盟友已经提供成批武器，以加强乌克兰军队对俄罗斯入侵的抵抗。俄罗斯批评北约成员国的这种援助。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+文章来源: [https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/](https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
