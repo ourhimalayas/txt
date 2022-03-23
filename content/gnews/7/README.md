@@ -2,29 +2,39 @@
 ---
 
 
-## 早期筛查显示 亚型变异株BA.2在美国迅速蔓延
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2213540/)
+## 突发：台湾花莲近海凌晨持续发生强震
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2213700/)
 
-翻译与编辑：冰糖葫芦喵
+作者：纽约香草山农场 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
+当地时间3月23日，台媒报道花莲近海，凌晨1时41分39.9秒发生6.6级地震，震源深度30.6公里，震中位置离花莲县政府南62.6公里，台湾全岛发生剧烈震动。
 
-《零对冲》3月22日报道，**最近几天，美国欧米克隆亚型变异株BA.2引发的病毒感染病例持续上升。根据早期筛查的数据估计，全美50%至70%的最新确诊病例都是由BA.2引起的。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ba2-e1647999432435.jpg)欧米克隆亚型变异株BA.2
-据报道，**一家位于圣地亚哥的基因组公司Helix**从一月初变异株BA.2首次出现在美国以来，就一直在关注这种病毒。虽然一开始该病毒流行得很慢，但Helix公司**根据数据观察显示，欧米克隆亚型变异株BA.2正在全美迅速蔓延。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-92.png)
 
-美国疾控中心(CDC)报告称，**自2月初以来，BA.2的流行率几乎每周都增加一倍。**
+目前已发生多次余震，1时43分发生6.1级余震在花莲，1时46分、2时37分在台东县近海分别震级4.7和5.3级，截止凌晨3时35分，花莲近海又发生5.8级地震。
 
-据悉，基因公司Helix的变异监测研究是由美国疾控中心（CDC）资助的，其数据是该机构在创建每周“Nowcast”估计时考虑的众多输入数据之一。
+地震已经造成局部公路坍塌，影响交通通行，台湾中央气象局预报未来三天还有余震。
 
-本月早些时候，**西欧已经出现了由该变异引起的新病例的上升。在英国，BA.2在总病例中超过50%。**
+郭文贵先生大直播曾曝光，中共有潜水艇在台湾东部近海游弋。中共会利用台湾地质构造特性，用武器引发地震，制造台湾混乱，进而进一步侵台。
 
-尽管如此，**美国的病例数量仍远低于香港。**今年年初以来，香港遭受着自中共病毒首次出现以来最严重的疫情，香港的死亡率大幅上升。
+资料链接:[https://www.cna.com.tw/news/ahel/202203235001.aspx](https://www.cna.com.tw/news/ahel/202203235001.aspx)
 
-新闻来源链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
 
-[Early Screening Data Show New COVID Subvariant Gaining Ground In US | ZeroHedge](https://www.zerohedge.com/covid-19/early-screening-data-show-new-covid-subvariant-gaining-ground-us)
+编辑/校对/发稿：Daxia
 
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

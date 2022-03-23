@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 2:36 AM (UTC)`
+
+
+![img](https://media.gettr.com/group48/origin/2022/03/23/02/aa33c7ba-10f5-7718-5af1-903cb84e0e55/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/23/2022 2:16 AM (UTC)`
 
 3/22/2022 Miles Guo’s GETTR: What does it mean for Weijian Shan to be a member of Alibaba's audit committee? PAG is a financial fraud syndicate of the CCP. It's the biggest accomplice of the CCP to defraud the US pension funds. Weijian Shan's whole family are CCP agents, and he will spend the rest of his life in prison.<br/><br/><br/>3/22/2022 文贵盖特：单伟建担任阿里巴巴审计委员会成员意味着什么？太平联盟就是中共的金融诈骗集团，是中共骗取美国养老金最厉害的打手之一；单伟建全家是中共专业特务，一定告死它们<br/><br/>
@@ -146,13 +153,6 @@ Today is the Ukrainian girl Polina’s 6th birthday. Inside the refugee tent of 
 
 3/20/2022 Miles Guo: The Himalaya Coin safeguards the security and privacy of personal wealth and rejects bad actors. On the contrary, the Swiss financial institutions reject good people, whereas all the evil forces have hidden trillions of dollars of illicit wealth in Switzerland. Therefore, the Himalaya Coin will certainly surpass the Swiss banking and financial system.<br/><br/>3/20/2022 文贵直播：喜币保护个人财富的安全和隐私，把坏人拦在外面；但瑞士金融机构恰恰相反，好人进不去，世界上所有的邪恶势力都在瑞士藏匿万亿黑财富，所以，喜币必将超过瑞士的银行和金融系统<br/>
 ![img](https://media.gettr.com/group4/getter/2022/03/22/21/887be111-6bae-a548-a0f1-c965eb1064b6/out.jpg)
-
----
-
-`@miles 3/22/2022 8:30 PM (UTC)`
-
-NFSC and ROLF Ukraine Humanitarian Rescue Mission Daily Updated
-![img](https://media.gettr.com/group49/origin/2022/03/22/20/9261a3fd-0e70-edb3-ae20-2611e30181c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
