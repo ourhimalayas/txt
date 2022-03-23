@@ -2,31 +2,21 @@
 ---
 
 
-## 突发：完全接种+加强针的希拉里Covid-19 检测呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218059/)
+## 视频|斯洛伐克部署“爱国者”强化北约东翼战力
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2218109/)
 
-编译： Jenny Ball
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2697.png)图片来源：thegatewaypundit.com
+斯洛伐克国防部长纳德3月20 表示，爱国者导弹防御系统已经开始从北约盟国运抵斯洛伐克，并将在未来几天内进行部署。纳德说，由于目前斯洛伐克使用的防空系统是原苏联制造的S-300，部署北约爱国者系统的目的是为强化防空力量。该系统将暂时部署在斯利亚克机场，以便其防空范围尽可能的覆盖斯洛伐克领土。他还表示，考虑到服役年限、战斗力以及对俄制武器的依赖性，该国正在寻找能够取代S-300的防空系统。
+据悉，部署在斯利亚克空军基地的爱国者导弹系统，将由德国和荷兰的军队负责操作。
 
-两次总统竞选失败的74 岁的希拉里·克林顿 (Hillary Clinton) 周二检测出 Covid-19 呈阳性。
+发稿：文敬
 
-希拉里说，丈夫比尔检测呈阴性，“感觉很好”。
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2699.png)图片来源：thegatewaypundit.com
-
-“我的新冠病毒检测呈阳性。我有一些轻微的感冒症状，但感觉很好。我比以往任何时候都更加感谢疫苗可以提供针对严重疾病的保护。如果您还没有接种，请接种并打加强针！” 克林顿周二晚间表示。
-
-**评论：这要多么脑残才得出这样的结论？所以，不要迷信任何身居高位的人，用常识更能保护自己！**
-
-素材链接：[thegatewaypundit.com ][BREAKING: Fully Vaxxed \*And Boosted\* Hillary Clinton Tests Positive For Covid-19](Fully%20Vaxxed%20*And%20Boosted*%20Hillary%20Clinton%20Tests%20Positive%20For%20Covid-19)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
 
 
  

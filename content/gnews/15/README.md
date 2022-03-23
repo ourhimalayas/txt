@@ -2,24 +2,31 @@
 ---
 
 
-## 正义也许会延迟但绝不会缺席！“九指妖”一伙即将被绳之以法
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2218044/)
+## 突发：完全接种+加强针的希拉里Covid-19 检测呈阳性
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218059/)
 
-撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-261.jpg)
-3月23日，喜马拉雅联盟委员会秘书长“长岛哥”发布盖特：香草山农场代表战友们对九指妖团伙欺诈行为的民事诉讼取得重大胜利。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2695.png)
-据盖特，3月14日，亚利桑那州联邦法庭作出判决认定九指妖及其同伙陈其声（海洋）无故拒绝到庭应答诉讼。因此以香草山农场为原告的诉讼可以在他们缺席的状况下继续进行（Finding of Default)。被告陈其声（海洋）在法庭决定的当天立即通过其律师向法庭递交了申请取消这一判决的动议。并表示愿意与香草山农场合作以避免进一步的不利判决。3月14日的法庭决定再次验证爆料革命新中国联邦人绝不会放过一个伪类欺民贼，正义可能会延迟但永远不会缺席！在此我代表联盟委员会和香草山农场向战友们的耐心和对我们工作的支持表示感谢。
+编译： Jenny Ball
 
-真是大快人心！这帮诈骗战友、陷害战友的坏蛋终于进入法律审判，等待严厉判决的那一刻。同时感谢香草山，感谢我们的联盟，辛苦了！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2697.png)图片来源：thegatewaypundit.com
 
-信息来源：https://gettr.com/post/p11bmsz431e
+两次总统竞选失败的74 岁的希拉里·克林顿 (Hillary Clinton) 周二检测出 Covid-19 呈阳性。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-4.jpg)
+希拉里说，丈夫比尔检测呈阴性，“感觉很好”。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2699.png)图片来源：thegatewaypundit.com
 
+“我的新冠病毒检测呈阳性。我有一些轻微的感冒症状，但感觉很好。我比以往任何时候都更加感谢疫苗可以提供针对严重疾病的保护。如果您还没有接种，请接种并打加强针！” 克林顿周二晚间表示。
+
+**评论：这要多么脑残才得出这样的结论？所以，不要迷信任何身居高位的人，用常识更能保护自己！**
+
+素材链接：[thegatewaypundit.com ][BREAKING: Fully Vaxxed \*And Boosted\* Hillary Clinton Tests Positive For Covid-19](Fully%20Vaxxed%20*And%20Boosted*%20Hillary%20Clinton%20Tests%20Positive%20For%20Covid-19)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
 
 
  
