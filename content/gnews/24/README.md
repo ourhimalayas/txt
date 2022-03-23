@@ -2,18 +2,12 @@
 ---
 
 
-## 拯救同胞 新中国联邦任重道远
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2217134/)
+## 乌克兰情报机构暗示，俄罗斯的精英们已经策划了一个推翻总统的计划
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2217191/)
 
-文贵大直播20220323
+03/21/2022 乌克兰情报部门分享的一份报告显示，俄罗斯精英阶层正在密谋尽快将普京赶下台，恢复与西方的关系
 
-主笔：顽童（纽伦堡正义）
-
-撰稿：文仁（功成）待命（樱花）不着急（达芬奇）
-
-美工：跟着北美教练（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-15.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

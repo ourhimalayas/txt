@@ -2,12 +2,18 @@
 ---
 
 
-## 【乌克兰救援】妮可在新中国联邦梅迪卡救援帐篷接受西班牙数字媒体La Reublica采访时说，中共是纸老虎
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2217008/)
+## 拯救同胞 新中国联邦任重道远
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2217134/)
 
-【乌克兰救援】03/19/2022 妮可在新中国联邦梅迪卡救援帐篷接受西班牙数字媒体La Reublica采访时说，中共是纸老虎，只要全世界同仇敌忾，一定能够铲除制造所有战争和麻烦的中共，让13亿中国同胞与全世界人们一样，享有民主、自由、法治
+文贵大直播20220323
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+主笔：顽童（纽伦堡正义）
+
+撰稿：文仁（功成）待命（樱花）不着急（达芬奇）
+
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-15.png)
+*发布：Theodosia*
 
  
 
