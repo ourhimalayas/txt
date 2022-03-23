@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 11:39 PM (UTC)`
+
+3/23/2022 Miles Guo: Moved by the NFSC & ROLF Ukraine rescue operation, a rich Ukrainian tycoon resolutely decided to return to Ukraine to fight. Ukraine will win, and Russia will disintegrate. The CCP may participate in the small-scale nuclear war that Russia is likely to launch. There is a 50% chance that CCP will serve as the mediator and guarantor in the Russia-Ukraine war, which will make the Chinese people the most hated people of humanity in the future.<br/><br/>3/23/2022 文贵直播：乌克兰富豪被新中国联邦救援所感动，毅然决定回国作战；乌克兰必胜，俄罗斯将解体；中共或参加俄罗斯可能打的小型核战争；中共有50%的可能性当俄乌之战的调解国和担保人，这将让中国人成为未来全人类最恨的人<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/23/23/b7280255-7012-b35a-9d71-3260fdfceedb/out.jpg)
+
+---
+
+`@miles 3/23/2022 11:34 PM (UTC)`
+
+3月23号：共产党的网军密集的出现，像今天这个情况，就像当年报海航和王岐山．傅政华．孟建柱．孙力军料时网军用的方式密集度一样！这说明这件事更可能是真实的了，可能比我们知道的还坏，他们的恐惧就是我们的武器，他们的恐惧就是真相！【两位战友发的文贵先生对关于东航坠机真相的爆料推，是真的点了中共的穴了！放出大把五毛疯狗出来乱喷！这也是毒针发作的症状吧？真TMD low!🤮🤮🤮】
+![img](https://media.gettr.com/group22/getter/2022/03/23/23/7d684259-ccfc-900f-e3ba-701ef7b253e5/65f541ee176e4cec6b44baa4a3ec0fbb.jpg)
+
+---
+
+`@miles 3/23/2022 11:32 PM (UTC)`
+
+2022.03.23《The Fringe》 Episode 153
+![img](https://media.gettr.com/group28/origin/2022/03/23/23/34c0cd2b-d861-56cb-a06f-9bed9d4e13aa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/23/2022 11:06 PM (UTC)`
 
 How a team of Italian journalists see the New Federal State of China. They produced such a beautiful piece! Thank you!<br/><br/>意大利记者眼中的新中国联邦：意大利记者团队采访新中国联邦前线记者精粮……，其制作的关于新中国联邦前线救援的视频精美绝伦
@@ -130,27 +151,6 @@ Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscr
 
 【Ukraine Rescue】 03/20/2022 Frontline NFSC fellow fighters: inside the big tent of the NFSC & ROLF, the international rescue medical team is conducting an emergency medical examination on an elderly lady. We are cooperating with the world!<br/><br/>【乌克兰救援】03/20/2022 新中国联邦前线战友：法治基金、新中国联邦的大帐篷内，国际救援医疗团队正在对一位老奶奶紧急体检。我们正在与世界合作！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
 ![img](https://media.gettr.com/group39/getter/2022/03/23/10/7bd68791-3d07-a1d1-34d7-a002eaad2c85/out.jpg)
-
----
-
-`@miles 3/23/2022 9:46 AM (UTC)`
-
-【Ukraine Rescue】03/20/2022 A fellow fighter of NFSC: All NGOs working in Medyka come to our tent to have meetings. Our tent becomes everyone's conference room.<br/><br/>【乌克兰救援】03/20/2022 一位新中国联邦战友：所有在梅迪卡的非政府组织都来我们这个帐篷开会。我们的这个帐篷是大家开会的场地了。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group24/getter/2022/03/23/09/ee31c8d6-191d-5b52-4a9b-2818f1e00f98/out.jpg)
-
----
-
-`@miles 3/23/2022 9:38 AM (UTC)`
-
-【Ukraine Rescue】03/19/2022  Nicole says in an interview with the Spanish digital media La Reublica at the NFSC Medyka rescue tent that the CCP is a paper tiger, and that if the whole world stands together, we will be able to eliminate the CCP that is causing all the wars and troubles, so that the 1.3 billion Chinese compatriots can enjoy democracy, freedom, and the rule of law, just like the rest of the world.<br/><br/>【乌克兰救援】03/19/2022 妮可在新中国联邦梅迪卡救援帐篷接受西班牙数字媒体La Reublica采访时说，中共是纸老虎，只要全世界同仇敌忾，一定能够铲除制造所有战争和麻烦的中共，让13亿中国同胞与全世界人们一样，享有民主、自由、法治。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group11/getter/2022/03/23/09/1a02b050-0f43-7eaf-2cb8-66c88126b7bb/out.jpg)
-
----
-
-`@miles 3/23/2022 5:15 AM (UTC)`
-
-《不一樣的我們》<br/>作詞：文雍<br/>演唱：Quana 齊天二聖<br/><br/>The Extraordinary Ones<br/>Lyrics / Wen Yong<br/>Vocals / Quana<br/><br/>謹以此曲獻給為烏克蘭救援默默付出的新中國聯邦人<br/>This song is dedicated to the citizens of The New Federal State of China who have devoted themselves to the Ukraine Rescue Operation<br/><br/>我是一個平凡的人<br/>偶然間推開一扇門<br/>那藍色海洋上的星辰<br/>喧囂中把我指引<br/><br/>I am an ordinary person<br/>Who happened to open a door<br/>The stars above the azure ocean<br/>Are guiding me through the noises and chaos <br/><br/>我是一個普通的人<br/>多幸運變成了我們<br/>在硝煙彌漫中追尋<br/>正道與信仰長存<br/><br/>I am just an average person<br/>How blessed I am to become one of us<br/>As the flames of war raging across the world<br/>We are pursuing the everlasting righteousness and faith<br/><br/>蒲公英在天空中飄蕩<br/>讓夢想帶著希望去遠方<br/>母親的淚光 依稀的過往<br/>那思念 點亮了方向<br/><br/>Dandelions drifting across the sky <br/>Let our prayers guide us in distant places and through difficult times <br/>………………………<br/>
-![img](https://media.gettr.com/group14/getter/2022/03/23/05/71d4a650-12f1-f8fb-feaa-b94877e10402/out.jpg)
 
 ---
 
