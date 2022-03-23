@@ -2,39 +2,22 @@
 ---
 
 
-## 有声|中共低调处理7名罹难战机士兵遗体
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2217963/)
+## 视频|斯洛伐克部署“爱国者”强化北约东翼战力
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2218109/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在东航客机失事，132人生死未卜的悲剧阴霾下，中共当局低调处理了7名同样因为飞机坠落事故而死亡的年轻军人。
+制作：香草山视频部
 
-中共河南共青团21日在官方微博上发布了一则警车开道护送罹难军人遗体返回家乡安葬的影音视频，同时还配上“国家无战事，军人有牺牲”等煽情文字渲染气氛。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-76.jpg)
-但是，中共各机关单位至今并未对外披露过任何战机失事的消息，不过，罹难士兵飞行员遗体运返家乡安葬的消息还是引起了网友的关注，纷纷在微博转发。
+斯洛伐克国防部长纳德3月20 表示，爱国者导弹防御系统已经开始从北约盟国运抵斯洛伐克，并将在未来几天内进行部署。纳德说，由于目前斯洛伐克使用的防空系统是原苏联制造的S-300，部署北约爱国者系统的目的是为强化防空力量。该系统将暂时部署在斯利亚克机场，以便其防空范围尽可能的覆盖斯洛伐克领土。他还表示，考虑到服役年限、战斗力以及对俄制武器的依赖性，该国正在寻找能够取代S-300的防空系统。
+据悉，部署在斯利亚克空军基地的爱国者导弹系统，将由德国和荷兰的军队负责操作。
 
-郭文贵先生曾经揭露过中共的军事实力，实际上非常糟糕，那些投身军旅的年轻士兵在中共高层的眼里命如草芥，不值一提。让我们记住这7位罹难军人的名字，徐文、郑福浩、周兴玉、黄高明、张帝、邱明典和彭博，他们是中共政权欠下的又一笔血债。
+发稿：文敬
+
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
 
-
-文字版原文：[中共低调处理7名罹难战机士兵遗体](https://gnews.org/zh-hans/2213998/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

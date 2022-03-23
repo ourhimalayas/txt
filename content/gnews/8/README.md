@@ -2,40 +2,30 @@
 ---
 
 
-## GFASHION正在线上奢侈品行业创造传奇
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2217976/)
+## 2022.3.23大直播 抛开形式主义 做唯真不破的新中国联邦人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2218123/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-23.33.32.png)
-近日外媒时尚杂志报道Gfashion目前正在创造线上时尚品牌的传奇。现下的消费者比任何时候都要精明，不断发展的品味和偏好是这个时代消费者的特点。衣服、配饰，时尚行业的轮转是品牌与时俱进的关键。
+撰稿：大浪小水花
 
-Gfashion正在引导个性化的前瞻力量。每个设计师都极具天赋，新鲜、高标准的设计风格无处不在。这些来自世界各地的不同设计作品反映了设计师的个性，以及这个时代必须改变的决心。Gfashion通过其身临其境的数字平台为客户提供一对一的互动，每个作品都是一个故事，从概念到采购到创造到成品。无论是什么人，在Gfashion都可以找到适合你的东西，它总是在考虑未来，考虑创新。Gfashion的客户可以以最低廉的价格得到最最尖端的产品。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-23-at-8.16.57-PM.jpeg)
 
-尽管目前Gfashion面临很大的竞争，但它并不打算损害其价值和原则，它希望以高质量的设计和卓越的承诺而闻名于世，并且成为那些喜欢独特风格客户的首选品牌。
 
-撰稿、发布：骄子
+在2022年3月23日的大直播中，郭文贵先生跟梅迪卡救助站一线的战友连线时，指出了目前前线战友的两个错误想法。
 
-reference：
+郭先生提到，救援前线多位战友向他反映，目前来救助站的乌克兰难民数量大幅下降，大家都希望能采取措施吸引更多难民来救助站。郭先生提醒战友们，这次救援行动目的是救人，而不是提供服务。，
 
-[GFASHION is creating a name in the online luxury fashion business](https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0)
+郭先生指出我们应该希望救援帐篷里一个难民都没有，因为难民少了说明战争的形势是对整个邪恶的势力对俄罗斯不利的，我们应该开心才对。
 
-* * *
+郭先生还谈到另外一个问题，有战友担心前线战友染病会造成负面影响，建议把染病战友替换回来。
 
-* * *
+郭先生强调，越是这种情况下，战友们越要坚持下去，越要继续救下去。这才能证明新中国联邦人不惧疾病，不惧死亡，不惧危险，无私无我。
 
-欢迎订阅我们的GNews账号：
+郭先生指出，严格讲这场俄乌战争是对新中国联邦战友的人格、道德、人性的一场考验，是我们心中有多少共产党的毒的一场战争。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+郭先生忠告战友们不要搞任何形式主义，爆料革命新中国联邦就是要灭共，就是要做一个被全世界承认的一个有道德、有秩序、有秩序、有文明，守信用、唯真不破的中国人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
+参考链接：[2022年3月23日文贵大直播](https://gettr.com/streaming/p11h7xt9462)
 
- 
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

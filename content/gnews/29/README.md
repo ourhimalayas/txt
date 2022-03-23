@@ -2,23 +2,37 @@
 ---
 
 
-## 俄乌战局最近消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217634/)
+## 美国将制裁参与镇压人民行动的中共官员
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217745/)
 
-作者：蓝莲花农场 文斌
+作者：日本方舟农场-Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截至当地时间3月22日，据俄罗斯国防部公布的数据显示，俄军在此次战争中的阵亡人数已经超过了九千八百人，另有多达一万六千余人受伤。然而，俄罗斯当天仍然对哈尔科夫市区和郊区进行了多达84次的炮火攻击。与此同时，俄军还在马里乌波尔市投下了两枚重型炸弹，并炮击了迈科拉夫港口和泽廖多利斯克，但其在文尼察地区投下的一枚伊斯坎德尔巡航导弹被当地的防御系统成功拦截。另外，俄罗斯及其代理部队侵占了鲁比日内地区的一个村落，且其正在试图夺取伊久姆，并对乌东部地区的乌克兰部队进行更广泛的包围，但俄军的多番入侵尝试均被乌克兰军队击溃。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-39.jpg)
-据乌克兰方面的消息称，该国的防空部队当天在哈尔科夫及附近区域击落了俄军的一架无人机和战斗机。此外，乌克兰地面部队还向俄罗斯比尔霍罗德发射了一枚导弹，但其后被俄军反坦克导弹拦截。乌军还在斯洛伐克边境喀尔巴阡地区捣毁一个来自俄罗斯的破坏团伙。但据高空卫星图像表明，俄罗斯在白俄罗斯南部距乌克兰边境仅18英里的地方集结了一批相当规模的地面部队。不过，由于缺乏零配件，俄罗斯的关键军工生产正在放缓，这导致在乌的俄军难以修复战损的武器和装备。
+3月21日，据相关媒体报道，美国国务卿布林肯当天发布声明表示，联邦政府将对那些在中共国境外和美国境内的、参与镇压少数民族、宗教团体和异见人士等侵犯人权行为的中共官员实施签证限制。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-上午10.57.52.png)
+据悉，中共政府及其部分官员一直在骚扰、恐吓、监视和绑架一些少数民族和宗教团体的成员，甚至包括那些正在中共国境外寻求安全庇护的人士，以及代表这些弱势群体发言的美国公民。为此，美国将继续与国际社会合作，利用所有的外交和经济措施，推动对实施暴行、侵犯和践踏人权行为负有责任的中共官员的问责制度。
 
-至于顿涅茨克和卢甘斯克征兵的细节，乌克兰军事情报局表示，莫斯科当局正在将征兵年龄从55岁提高到65岁，更甚者，当地18岁的学生也是被积极招募的对象。
+布林肯也强调称，无论在中国、美国，还是世界其它地方，联邦政府会持续支持那些不畏中共报复威胁而勇敢发声的人士。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+对此，郭文贵先生也在早先的大直播中透露，美国将于近期出台一系列针对中共企业和个人的制裁措施。除了上述签证限制外，中共的各大媒体也将被纳入美国政府的制裁列表之中。
 
-总编: Irene木木
-编辑: Irene木木、静言
-审核：Irene木木
-校正/发稿：Fei797
+参考链接：
+1.[汪文斌：敦促美方立即撤销针对中方官员的所谓“制裁”，否则中方必将予以对等反制](https://world.huanqiu.com/article/47INaIMqX4d)
+2.[3/20/2022 文贵直播：近期你会看到中共的媒体和企业受到美国制裁…](https://www.gettr.com/post/p10zyjz7239)
+3.[布林肯：美将限制部分中共官员签证](https://www.epochtimes.com/gb/22/3/21/n13663070.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑：玫瑰圓
+总编：Irene木木
+审核：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 

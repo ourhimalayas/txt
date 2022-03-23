@@ -2,38 +2,43 @@
 ---
 
 
-## 美国将制裁参与镇压人民行动的中共官员
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217745/)
+## 乌克兰敦促大疆停止与俄方交易遭拒绝
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2217953/)
 
-作者：日本方舟农场-Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月21日，据相关媒体报道，美国国务卿布林肯当天发布声明表示，联邦政府将对那些在中共国境外和美国境内的、参与镇压少数民族、宗教团体和异见人士等侵犯人权行为的中共官员实施签证限制。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-上午10.57.52.png)
-据悉，中共政府及其部分官员一直在骚扰、恐吓、监视和绑架一些少数民族和宗教团体的成员，甚至包括那些正在中共国境外寻求安全庇护的人士，以及代表这些弱势群体发言的美国公民。为此，美国将继续与国际社会合作，利用所有的外交和经济措施，推动对实施暴行、侵犯和践踏人权行为负有责任的中共官员的问责制度。
+#### 【雅典娜快讯】，紧贴时代脉博
 
-布林肯也强调称，无论在中国、美国，还是世界其它地方，联邦政府会持续支持那些不畏中共报复威胁而勇敢发声的人士。
+整理/编辑：文泓
 
-对此，郭文贵先生也在早先的大直播中透露，美国将于近期出台一系列针对中共企业和个人的制裁措施。除了上述签证限制外，中共的各大媒体也将被纳入美国政府的制裁列表之中。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-93.png)图片来源：Republic Word & 雅典娜设计组
 
-参考链接：
-1.[汪文斌：敦促美方立即撤销针对中方官员的所谓“制裁”，否则中方必将予以对等反制](https://world.huanqiu.com/article/47INaIMqX4d)
-2.[3/20/2022 文贵直播：近期你会看到中共的媒体和企业受到美国制裁…](https://www.gettr.com/post/p10zyjz7239)
-3.[布林肯：美将限制部分中共官员签证](https://www.epochtimes.com/gb/22/3/21/n13663070.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+中国最大的无人机制造商[大疆](https://www.epochtimes.com/gb/tag/%E5%A4%A7%E7%96%86.html)公司的产品在[乌克兰战争](https://www.epochtimes.com/gb/tag/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89.html)中被双方使用。上周一名乌克兰政府高官敦促大疆停止与俄罗斯的生意，大疆旋即回绝了乌克兰的要求。
 
-编辑：玫瑰圓
-总编：Irene木木
-审核：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+**乌克兰副总理米哈伊洛****‧****费多罗夫（****Mykhailo Fedorov****）上周在海外社交媒体推特上发布的一封公开信说，俄罗斯军队“正在乌克兰境内使用**[**大疆**](https://www.epochtimes.com/gb/tag/%E5%A4%A7%E7%96%86.html)**的产品，为导弹导航，杀害平民”。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他要求大疆公司采取一系列措施，包括分享更多产品信息，并阻止俄罗斯军队可能使用其无人机。
+
+费多罗夫写道：“我们呼吁贵公司停止在俄罗斯开展业务，直到俄罗斯对乌克兰的侵略完全停止。”
+
+费多罗夫的推文下还附上了乌克兰官方致信给大疆CEO的公文。
+
+**许多西方科技公司对乌克兰的这种请求作出了积极回应，但大疆公司作为无人机行业的领导者却回绝了这些请求。**
+
+大疆在推特上回应说，旗下产品不符“军事规格”，乌方要求不切实际，需要乌克兰政府正式发布命令。
+
+一位接近该企业的人士告诉《金融时报》说：“大疆不能阻止俄罗斯购买和激活产品，因为这样做可能会违反数据合规规则。公司不希望卷入政治。”
+
+但是知情人士补充说，如果美国的制裁威胁到大疆获得美国制造的零部件，它将别无选择，只能退出俄罗斯市场。
+
+新闻链接：[乌克兰敦促大疆停止与俄交易遭拒 |](https://www.epochtimes.com/gb/22/3/22/n13665466.htm)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

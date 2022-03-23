@@ -2,30 +2,35 @@
 ---
 
 
-## 海外伪民运和中共代理人将被西方法律严惩
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2217608/)
+## 96岁纳粹集中营幸存乌克兰人被普京杀害
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217743/)
 
-采编：加拿大温哥华杨帆农场 – 晨熹
+作者：纽约香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月22日，据盖特消息显示，纳粹集中营幸存者96岁的乌克兰人罗曼琴科在其位于哈尔科夫的公寓中被俄罗斯军队炮击杀害。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-上午10.57.46.png)
+德国布亨瓦特集中营纪念馆的资料证实，1926年出生的罗曼琴科于二战期间被纳粹在乌克兰逮捕，随后，其被送至矿场奴役。很长一段时间里，罗曼琴科辗转在布亨瓦特、布尼木恩德、多拉和伯根-波尔森四座纳粹集中营中。二战结束后，幸存的罗曼琴科成为了纳粹暴行的亲历者与见证人。 然而，由于俄军无差别的炮火攻击，96岁高龄的罗曼琴科近日在自己的公寓内被杀害。
 
-编辑撰稿：加拿大温哥华杨帆农场 – 硫酸羟氯喹64
+对此，乌克兰外长指责俄军的杀害行为是不可原谅的暴力罪行，而乌克兰总统办公室发言人也指出，俄罗斯将此次侵略战争定义为所谓的“去纳粹化”更是纯粹的谎言。至于布亨瓦特集中营纪念馆则表示，罗曼琴科从希特勒集中营里幸存，却在百岁之际被普京屠杀，这让人感到非常震惊。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-6.jpg)图片来源：Gettr
+参考链接：
+1.[纳粹集中营幸存者 96岁乌克兰老人被俄军炸死](https://www.aboluowang.com/2022/0322/1724176.html)
+2.[乌克兰大屠杀幸存者 “被普京谋杀”…](https://gettr.com/post/p11a5dke8e0)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-据3月16日[美国司法部]公开的信息显示：该部门日前已正式起诉中共在海外的多名伪民运者。并指控他们在美国非法充当中共政权代理人期间，恶意收集异议人士信息，骚扰、抹黑、监视以及暴力攻击美国公民等。
+编辑：静言
+总编：Irene木木
+审核：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-据悉，本次包括王书君在内的五名被指控疑犯中，目前除2人在逃外，其余3人全部被捕归案，并或将分别面临5至25年不等的刑期惩罚。
-
-报道指出：包括吴征和单伟健等绝大多数在美国、加拿大、日本、澳大利亚以及新西兰等国，与中共有密切交易联系的代理人和海外欺民贼，都正在被当地司法机关调查和清理。在难逃西方法律制裁的情况下，入狱或被遣反回中共国将是其最终的结局。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [https://gettr.com/streaming/p10y5j870c5](https://gettr.com/streaming/p10y5j870c5)
-
-[https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0](https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
