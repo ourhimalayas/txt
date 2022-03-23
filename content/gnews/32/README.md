@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯伞兵驾驶 BMD-2 空降步兵战车抢劫加油站
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2215372/)
+## 驻乌克兰的白俄罗斯大使在离开乌克兰时，因白俄罗斯的背叛而得到 &#8220;30块银币&#8221;
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2215458/)
 
-03/21/2022 **俄罗斯伞兵驾驶 BMD-2 空降步兵战车抢劫加油站**
+03/18/2022 驻乌克兰的白俄罗斯大使在离开乌克兰时，因白俄罗斯的背叛而得到 “30块银币”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

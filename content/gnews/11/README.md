@@ -2,29 +2,38 @@
 ---
 
 
-## “与普京断绝关系”中共国党干部培训校教授主张（7）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2216029/)
+## 加拿大官方数据表明，疫苗接种者已患上艾滋病
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216182/)
 
-【上一篇：[“与普京断绝关系”中共国党干部培训校教授主张（6](https://gnews.org/zh-hans/2216030/)）】
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译：宫米叶
+整理/编辑：小鱼儿
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2628-edited.png)胡伟 图片来源：rfa.org
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5ZMHPWFVQQ3AOYKI5GLGC.png)图片来源：雅典娜设计组&phoenixwolfj
 
-最后，就中共国未来的走向，胡伟在文中的表达道“制止世界大战及核战争爆发，为世界和平作出不可替代的贡献。”他的观点是，由于普京已经明确要求俄罗斯战略威慑力量进入特殊战备状态，俄乌战争有可能失控。如果俄罗斯挑起世界大战甚至核大战，将会受到各国群起而攻之。当面对这样的局面，文章写道应“体现中共国作为负责任大国的积极作用”，文中认为中共国不仅不能与普京站在一起，而且应当采取明确行动，竭力阻止普京有可能做出的疯狂举动。“中共国是世界上唯一具有这种能力的国家，必须发挥这一独特优势，普京离开中共国的支持大概率只能结束战争，至少不敢贸然升级战争。由此，中共国必将赢得国际上的普遍赞赏，不仅有助于摆脱被进一步孤立的局面，而且为维护世界和平立下了头功，并从中或可为改善与美国和西方的关系找到契机。”
 
-文章5日指出，关于俄罗斯，“国内外形势日益不利”。他分析称，西方国家制裁的影响，以及国内反战势力发生政变的可能性，“俄罗斯作为大国的地位将迎来终结”。
+据曝光新闻网（The Exposé ）3月20日报道，加拿大官方新冠病毒数据表明，与未接种疫苗的人的自然免疫力相比，加拿大接种两剂疫苗的人群平均损失了 74% 的免疫力，而接种三剂疫苗的人群损失了 73% 的免疫力。
 
-【完结】
+而且根据数据分析，与未接种疫苗的人群相比，接种两剂疫苗的人群感染新冠病毒的可能性平均高出 3.8 倍，死于新冠病毒的可能性高出 3.3 倍。
 
-来源：【jiji.com】[「プーチン氏と断絶を」　中国党幹部養成校教授が主張](https://www.jiji.com/sp/article?k=2022031501214&amp;g=ukr&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_edit_vb)
+但就死亡风险而言，接种三剂疫苗人群的情况更糟。官方数据显示，与未接种疫苗的人群相比，他们感染病毒的可能性平均高出 3.7 倍，而且死于病毒的可能性高出 5.1 倍。
 
-* * *
+截至 2 月 22 日，加拿大接种两剂疫苗的人的免疫系统性能为负 69.56%，接种三剂疫苗的人的免疫系统性能为负 80.56%。
 
-审核：BryanW 
-校对：天天
-发布：花羽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
+因此，这些数字表明，加拿大接种两剂和三剂疫苗的人群的免疫系统已经受到巨大的损害，以至于他们已经发展为获得性免疫缺陷综合症（艾滋病）。
+
+参考资料：[Official Government of Canada data is truly terrifying; it suggests the Triple Vaccinated have developed AIDS & are now 5.1x more likely to die of Covid-19 than the Unvaccinated](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

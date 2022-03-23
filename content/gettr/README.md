@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 10:36 AM (UTC)`
+
+【Ukraine Rescue】 03/20/2022 Frontline NFSC fellow fighters: inside the big tent of the NFSC & ROLF, the international rescue medical team is conducting an emergency medical examination on an elderly lady. We are cooperating with the world!<br/><br/>【乌克兰救援】03/20/2022 新中国联邦前线战友：法治基金、新中国联邦的大帐篷内，国际救援医疗团队正在对一位老奶奶紧急体检。我们正在与世界合作！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
+![img](https://media.gettr.com/group39/getter/2022/03/23/10/7bd68791-3d07-a1d1-34d7-a002eaad2c85/out.jpg)
+
+---
+
 `@miles 3/23/2022 9:46 AM (UTC)`
 
 【Ukraine Rescue】03/20/2022 A fellow fighter of NFSC: All NGOs working in Medyka come to our tent to have meetings. Our tent becomes everyone's conference room.<br/><br/>【乌克兰救援】03/20/2022 一位新中国联邦战友：所有在梅迪卡的非政府组织都来我们这个帐篷开会。我们的这个帐篷是大家开会的场地了。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -153,12 +160,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 3/20/2022 Miles Guo: From the perspective of how the Chinese people judge the CCP cadres, we can see the Chinese are so pathetic. Zhu Rongji is a big crook. Zhu Yunlai and Zhu Yanlai have been using the Chinese people's hard-earned money to collude with Wall Street via China Investment Corporation (CIC), China International Capital Corporation (CICC), and Bank of China (BOC). They have deceived the Lao Baixing into believing that they are uncorrupted officials.<br/><br/>3/20/2022 文贵直播：从中国老百姓如何评判中共官员这点看，中国人太可悲了；朱镕基是大骗子，朱云来、朱燕来通过中投中金中银，用中国人的血汗钱和华尔街勾兑，骗得老百姓喊他清官<br/><br/>
 ![img](https://media.gettr.com/group11/getter/2022/03/23/01/44e5eb2f-2632-8d7f-5334-6995f26ff4ad/out.jpg)
-
----
-
-`@miles 3/23/2022 12:42 AM (UTC)`
-
-3月22日：这一天总会到来的．否则美国将付出安全上的巨大代价，新中国联邦一定会让这件事情发生！https://www.voachinese.com/a/congressman-chris-smith-introduces-new-legislation-to-strip-the-chinese-communist-party-of-its-trade-status-20220322/6496701.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08
 
 ---
 
