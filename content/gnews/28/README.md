@@ -2,10 +2,10 @@
 ---
 
 
-## 基辅的住宅楼被俄罗斯导弹击中
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2215178/)
+## 俄罗斯伞兵驾驶 BMD-2 空降步兵战车抢劫加油站
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2215372/)
 
-03/22/2022 福克斯新闻：在基辅，一个购物中心和附近的住宅楼被俄罗斯导弹击中，造成8人死亡。
+03/21/2022 **俄罗斯伞兵驾驶 BMD-2 空降步兵战车抢劫加油站**
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

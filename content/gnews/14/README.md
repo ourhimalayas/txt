@@ -2,31 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — 克莱·特拉维斯（Clay Travis）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215483/)
+## 国际｜美众议员拟推法案 推动取消中共永久最惠国地位
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2215717/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2619.png)
-盖特链接： [**https://gettr.com/user/claytravis**](https://gettr.com/user/claytravis)
+圖文/zhong｜23.3.2021
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-24.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline) **
+美国国会共和党众议员克里斯·史密斯（Chris Smith）22日宣布，将联合两党议员在本星期推出了一项旨在取消中共永久贸易最惠国地位的法案。克里斯·史密斯议员长期关心中国人权事务，他强调法案要“取消中国共产党的永久性正常贸易关系地位，以惩罚其令人发指的人权暴行——特别包括该政权对维吾尔人和其他中亚少数族裔持续进行的种族灭绝和强迫劳动”。
 
-**克莱·特拉维斯自述：**
+此外，这部法案要求将中共贸易地位与人权状况作连结，据该法案的意旨，美国总统每年必须证实中共认真、持续的努力改善人权，方可给予中国正常贸易关系地位。
 
-http://Outkick.com, @outkick @foxsportsradio  东部时间早6-9点 & @foxbetlive 电视节目 东部时间早5点, 作家，共和党人也买运动鞋，三个男孩的父亲，律师
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2621.png)图片来源：网络
-**克莱·特拉维斯简介：**
+该法案推出后，仍须获得众议院或参议院委员会及全院通过同样版本，交由总统签署后方成为法律。
 
-克莱·特拉维斯全名理查德·克莱·特拉维斯（Richard Clay Travis 出生于1979年4月6日）是美国政治评论员、体育记者、作家、律师、电台主持人、电视分析师、媒体名人和 OutKick 的创始人。
+史密斯众议员表示他之所以提出此一法案，系因为美国过往反对把中国人权与贸易地位连结的行为，成为中共践踏人权的“免费通行证”。（1989年六四事件发声，1990年美国国会决定不再延长中国的贸易最惠国地位，但遭老布希总统否决、2000年，美国给予中国永久性正常贸易关系地位）
 
-克莱·特拉维斯和巴克·塞克斯顿是克莱特拉维斯和巴克塞克斯顿秀（The Clay Travis and Buck Sexton Show）的主持人，这是一个保守脱口秀节目，于2021年6月21日首播，取代了许多广播电台的拉什·林博秀（The Rush Limbaugh Show）。
+史密斯表示，俄罗斯可能因为普京侵略乌克兰而失去永久性正常贸易地位，而中共对俄罗斯的支持行为，使我们重新评估中共贸易优惠待遇变得尤为及时。
 
-克莱·特拉维斯著有：2007年《Dixieland Delight：东南会议路上的足球赛季》、2009年《在岩石顶部：一个时代结束的前排座位》、2018年《共和党人也购买运动鞋：左派如何用政治破坏体育运动》等作品。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+來源｜[YAHOO](https://tw.news.yahoo.com/%E7%BE%8E%E7%9C%BE%E9%99%A2%E5%85%A9%E9%BB%A8%E8%AD%B0%E5%93%A1%E6%8E%A8%E5%87%BA%E5%8F%96%E6%B6%88%E4%B8%AD%E5%9C%8B%E6%B0%B8%E4%B9%85%E6%9C%80%E6%83%A0%E5%9C%8B%E5%BE%85%E9%81%87%E6%B3%95%E6%A1%88-024400012.html)
 
  
 

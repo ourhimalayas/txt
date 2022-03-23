@@ -2,37 +2,32 @@
 ---
 
 
-## 乌克兰孤儿前往苏格兰的行程延后
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215654/)
+## 沙利文称未见中共援俄继续监控 美携手欧盟一致应对中共
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2215761/)
 
-据《BBC》作者，2022年3月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2625.png)图片来源：BBC
-这些孩子能够逃离乌克兰，要感谢位于爱丁堡的慈善机构Dnipro Kids。但这些乌克兰撤离的孤儿，因文书原因推迟飞往英国。
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-下午4.43.01.png)图片来源：互联网
+美国国家安全顾问杰克·沙利文周二（3月22日）在新闻发布会表示，美国还没看到中共国向俄罗斯提供军事装备，继续监控，拜登总统将在北约峰会与盟国磋商一致应对中共可能对俄援助。
 
-这些来自第聂伯罗的儿童，从婴儿到年轻人都有，本应在周一与照顾者一起从波兰飞往伦敦，然后再前往苏格兰。然而，乌克兰政府的文件没有及时发送。维珍的航班预计不会在周三之前成行。
+当沙利文被问及他与杨洁篪罗马会谈以及拜登总统与习近平谈话后，是否看到任何迹象表明中国会不会向俄罗斯提供援助时，他回答说：”那些会晤或总统与习近平的谈话以来，我们还没有看到中国（中共国）向俄罗斯提供军事装备，”他说：“我们将继续对其进行监控。“【1】
 
-由Hibs FC球迷成立的慈善机构Dnipro Kids，使这些孩子能够逃离乌克兰前往波兰。
+在他被问及中共可能对俄援助问题，”这在北约峰会议程上的位置是什么？如果中方（中共）确实提供了援助，是否会努力采取具体的措施？“
 
-内政部说，延误是由于孩子们的背景授权问题，他们没有家庭成员来代表他们行事。
+沙利文说：”总统（拜登）将与北约进行磋商“，在4月1日欧盟与中国（中共国）峰会上，他说：”我们（美国）相信与我们的欧洲伙伴非常一致，我们将在这个问题上以一个声音说话。“【1】
 
-一位发言人补充说：“我们只有在得到这些孩子的母国和东道国政府的完全书面同意后才会转移他们，这是正确的。”内政部长和她在乌克兰、波兰和苏格兰政府的同行们团结一致，决心确保这些孩子得到他们需要的支持和照顾。
+3月17日，新中国联邦可靠消息透露中国（中共国）政府已经跟美国政府承认他们（中共）是支持俄罗斯攻打乌克兰。尽管该消息没有公开。【2】
 
-这些孩子原定于周三抵达苏格兰——最初将在卡兰德呆上几周，然后转到爱丁堡。目前他们一直住在一家酒店，而内政部的文书工作已经完成。
+3月14日，美国国家安全顾问沙利文与中共政治局委员杨洁篪在罗马长达七小时高强度会谈，表达对中俄联盟深度担忧，随后，18日，拜登总统与习近平视频连线通话，警告中共如果援助俄罗斯将承担后果。
 
-内政部长普里蒂-帕特尔上周宣布，乌克兰当局已确认他们将被允许在苏格兰寻求临时庇护。
+参考链接：
 
-原文有删减。
+【1】[副新闻秘书克里斯·米格和国家安全顾问杰克·沙利文的新闻发布会， 2022 年 3 月 22 日](https://www.whitehouse.gov/briefing-room/press-briefings/2022/03/22/press-briefing-by-deputy-press-secretary-chris-meagher-and-national-security-advisor-jake-sullivan-march-22-2022/)
 
-原文连接：[**https://www.bbc.com/news/uk-scotland-60813006?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&at\_custom3=%40BBCNews&at\_custom1=%5Bpost+type%5D&at\_campaign=64&at\_medium=custom7&at\_custom2=twitter&at\_custom4=0127CA4E-A8E1-11EC-AE50-65FF4744363C**](https://www.bbc.com/news/uk-scotland-60813006?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&amp;at_custom3=%40BBCNews&amp;at_custom1=%5Bpost+type%5D&amp;at_campaign=64&amp;at_medium=custom7&amp;at_custom2=twitter&amp;at_custom4=0127CA4E-A8E1-11EC-AE50-65FF4744363C)
+【2】[美议员提案撤销中国永久性正常贸易关系地位](https://www.voachinese.com/a/bill-introduced-to-revoke-china-pnt-20210318/5820179.html)
 
-翻译：洛杉矶盘古农场 – TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑&发布：长岛开心*
 
  
 

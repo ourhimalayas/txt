@@ -2,30 +2,24 @@
 ---
 
 
-## 美欧等盟友召开北约和G7会议，将协调一致应对中共
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2215709/)
+## 俄罗斯大众报刊被黑吗？爆出俄军9,861人死于战场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2215802/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-16.29.11.png)
-本周四，美国总统拜登即将前往布鲁塞尔参与北约和G7盟国会议，会议内容为破坏中共国对俄罗斯入侵乌克兰的战争支持，其余内容还包括对乌克兰提供武器装备和人道主义援助，以及乌克兰难民危机等问题。
+撰稿：东京樱花团/闻雨
 
-美国政府官员表示上周美国拜登总统与中共习近平的视讯通话并未取得任何结果，拜登总统寻求与欧洲等国协调，将一起对中共做出回应，以谴责中共对俄罗斯入侵的物质支持。此前美欧等盟国已经就对俄罗斯的经济制裁形成了密切关系。几周来美欧等盟国一直在背后努力游说中共不要支持普京对乌克兰的入侵，并推动普京停战。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯大众报刊被黑吗？爆出俄军9861人死于战场.png)[图片来源](https://ilkha.com/english/world/ukraine-3-500-russian-soldiers-were-killed-since-aggression-began-15885)
 
-中共大使秦刚出口成谎，狡辩并未支持俄罗斯入侵乌克兰，还强调中共站在历史正确的一边。
+俄罗斯大众报纸《共青团真理报》3月23日删除了其电子版网站上的一段文章，文章说俄罗斯军队因入侵乌克兰已有9861名军人死亡。 报纸方说，它被 “黑客入侵并插入了虚假信息”。
 
-撰稿、发布：骄子
+3月21日，该报刊登了来自俄罗斯国防部的信息：除死亡人数外，还有16153人受伤。据美国CNN电视台报道，这篇文章后来被更新，并删除了伤亡人数。
 
-* * *
+俄罗斯国防部自3月2日宣布有498人阵亡以来，一直没有公布伤亡人数。
 
-欢迎订阅我们的GNews账号：
+信息来源：[ロシア大衆紙ハッキングか](https://nordot.app/879173860707450880)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

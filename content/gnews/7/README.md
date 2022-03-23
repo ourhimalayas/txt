@@ -2,29 +2,26 @@
 ---
 
 
-## 樱花FM|樱花时政:台湾首批爱心物资启运　助乌克兰人民度过难关
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2215687/)
+## 定向锦标赛冠军莫德纳疫苗后出现严重副作用
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2215791/)
 
-音频：东京樱花团/战友520
+#### 编译 意大利达芬奇农场 小白鸽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/台湾首批爱心物资启运　助乌克兰人民度过难关.png)
+年轻、健康的运动员因为新冠疫苗而退出比赛或终止体育生涯已经比比皆是。这次的受害者是定向锦标赛冠军31岁的安德烈·布拉内斯(Andreu Blannes)， 他最近谴责第三剂疫苗给他带来的负面影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-22-alle-15.42.44-1.png)图片来源：eventiavversinews.it
+布拉内斯认为，自第三次注射新冠疫苗后，无论是在训练还是在比赛中，他都“无法忍受运动强度”。
 
-台湾外交部17日下午在桃园机场DHL运务中心举行对乌克兰的人道援助爱心物资启运仪式，由外交部长吴钊燮主持，并邀请波兰台北办事处处长高则睿（Cyryl Kozaczewski）、斯洛伐克经济文化办事处代表博塔文（Martin Podstavek）及副代表苏可娜（Michaela Sulakova）、乌克兰侨民郑莎莎（Daria Zheng），以及在乌克兰出生的俄罗斯侨民韩丽雅（Olga Khalina）出席见证。
+布拉内斯在MARCA广播电台回忆说，在打了两剂辉瑞疫苗之后，他还打了第三剂莫德纳疫苗。他一直训练很好，在上一届西班牙越野锦标赛中他是为奖牌而战，尽管最后他只得了第五名。本来由于周围有人打了疫苗之后有副作用，他很犹豫是否接种第三剂，但是后来他要去休假一个星期，就打了第三针。但是现在他突然发现腋下有个肿块，同时他的身体也无法承受激烈的比赛和训练。
 
-吴钊燮致词表示，自俄罗斯于2月24日入侵乌克兰以来，已造成至少300万乌国人民被迫逃离家园、躲避战火，是欧洲二次战后以来最严重的人道危机。身在自由民主台湾的国人，因为长期面对中共国的威胁，特别能体会乌克兰人民的处境，台湾作为国际社会民主阵营的成员，乐愿发挥Taiwan Can Help的精神，并由外交部发起募捐人道物资的活动，希望能将紧急物资送到亟需帮助的乌克兰难民手中。
+没有人能对他的状况给出答案，他们让他等待。但是上周是西班牙大学的越野锦标赛，接种了疫苗四个星期后，他无法参加比赛，他的身体状况甚至无法使他达到参赛门槛，也达不到每分钟跳动170次。
 
-外交部表示，截至17日上午的统计，共募得超过7,500箱、重约至少50吨的物资，而且物资捐赠的数量仍持续增加中。今天启运的物资约5.5吨（约357箱），后续物资DHL将以每天约10吨的运量分批送往斯洛伐克；至其他的物资也将分批寄送至波兰及其他收容难民的国家，协助乌克兰人民度过难关。
+运动医生拉莫斯(Ramos) 的观点是运动员在接种完第二针以后最好对其身体状况做一个深入的检查之后再打第三针。
 
-文字版原文：
+参考链接：
+[ww.eventiavversinews.it/il-31enne-campione-di-cross-country-andreu-blanes-denuncia-la-grave-reazioni-avversa-dopo-la-terza-dose-di-moderna/](http://ww.eventiavversinews.it/il-31enne-campione-di-cross-country-andreu-blanes-denuncia-la-grave-reazioni-avversa-dopo-la-terza-dose-di-moderna/)
 
+编辑、上传： Xiao baige
 
-| [樱花时政┃台湾首批爱心物资启运　助乌克兰人民度过难关](https://gnews.org/zh-hans/2183677/) |  |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

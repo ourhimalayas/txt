@@ -2,32 +2,28 @@
 ---
 
 
-## 美众议员推出取消中共国永久最惠国待遇法案
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2215668/)
+## 樱花时政┃中共外交部承认南海岛礁军事化 彻底揭露习近平谎言
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2215784/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/repchrissmith02_hdv.jpg)
-周二3月22日，美国共和党众议员Chris Smith宣布，他联合两党议员Tom Tiffany和Tom Suozzi推出一项法案，旨在取消中共国的永久贸易最惠国待遇。
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-42.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fphototass2.cdnvideo.ru%2Fwidth%2F1020_b9261fa1%2Ftass%2Fm2%2Fen%2Fuploads%2Fi%2F20160811%2F1142645.jpg&amp;imgrefurl=https%3A%2F%2Ftass.com%2Fworld%2F893848&amp;tbnid=YOn3PZ7gOakxnM&amp;vet=12ahUKEwiqkqOT5dv2AhVWAN)
+3月22日，中共外交部发言人汪文斌主持中共外交部例行记者会。有记者提问，美军印太司令部司令称中国已经将南海的三个岛礁完全军事化。中方对此有何评论？
 
-据悉议员Chris Smith长期关注中共国的人权问题，他推出这项法案意在惩治中共国犯下的人权暴行，特别是对新疆维吾尔族和其他中亚少数民族持续进行的种族灭族和强迫劳动等罪恶行径。
+汪文斌表示，中方在本国领土上部署必要的国土防御设施，这是主权国家的当然权利，符合国际法，无可厚非。
 
-该项法案要求把中共国贸易优惠待遇和其人权状况挂钩，美国总统必须每年证实中共国在改善人权做出了努力，才会给予中共正常的贸易优惠政策，否则不允，甚至取消。
+而汪文斌的回复也证明了习近平此前的谎言。
 
-俄罗斯入侵乌克兰后，拜登总统宣布取消俄罗斯的永久正常贸易待遇。本月早些时候，美国共和党议员Tom Cotton、Jim Inhofe和Rick Scott曾在参议院提出取消中共国永久性正常贸易关系的法案。
+2015年9月，中共国家主席习近平访美时曾公开表示，中方在南沙岛礁推进的修建工程 “不是以他国为目标或给他国造成影响的活动” ，中方 “在南沙岛礁没有追求军事化的意图” 。美国政府曾向中共政府确认习近平的发言，并询问“中方的见解不会改变吧”？中方回答“没有变化” ，承认习近平上述发言是 “正式见解” 。
 
-撰稿、发布：骄子
+3月20日，美军印太司令部司令阿奎利诺（John Aquilino）接受采访时提到，中共已将其在南海建造的数个岛屿中的至少三个（美济礁、渚碧礁和永暑礁）完全军事化，用反舰和防空导弹系统、激光和干扰设备以及战斗机武装起来。
 
-* * *
+阿奎利诺说，“这些岛屿的功能是将中华人民共和国的进攻能力扩大到其大陆海岸之外，他们可以驾驶战斗机、轰炸机加上所有这些导弹系统的进攻能力。这一日益咄咄逼人的举动威胁着在附近活动的所有国家。”
 
-欢迎订阅我们的GNews账号：
+信息来源：[中共外交部汪文斌坦承南海的一事实 证明习近平说谎](https://www.timednews.com/article/2022/03/22/16471.html)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
