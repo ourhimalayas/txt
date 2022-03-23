@@ -2,23 +2,12 @@
 ---
 
 
-## 基辅宵禁抓间谍！查获14渗透组织逮159只间谍
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2213558/)
+## 【乌克兰救援】新中国联邦咖啡为难民带去对美好新生活的向往和对苦难的暂时淡忘
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2213828/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpRWU3IC.jpg)图片来源：法新社
+【乌克兰救援】03/20/22  来自世界各地的志愿者们互相帮助，新中国联邦的大帐蓬就像大家庭一样温暖，即使在战乱中，仍然绽放出人性的光辉。新中国联邦咖啡暂时让难民们忘却苦难，提醒人们，只要灭掉中国共产党这个苦难根源，我们会有美好的新生活。
 
-为了抓捕俄国渗透组织与间谍，乌克兰基辅市长克里契科21日宣布，基辅将实施36小时的戒严。基辅领土防卫负责人萨比22日指出，基辅延长宵禁正在发挥作用，目前已逮捕159名间谍，查获所属破坏行动和侦察组织14个。
-
-简评：智慧的乌克兰人，以安全名义宵禁不让大家出门，一口气抓了159只“耗子”！普京偷鸡不成蚀把米，这159只间谍成了给乌克兰送情报了，直接投降吧，乌克兰善待俘虏！
-
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3868462](https://news.ltn.com.tw/news/world/breakingnews/3868462)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

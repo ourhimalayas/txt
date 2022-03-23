@@ -2,36 +2,26 @@
 ---
 
 
-## 岸田首相敦促团结对抗俄罗斯和中共国 首脑外交活动正在全面展开（上）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2213056/)
+## 泽连斯基表示与俄谈判是艰难的有时是对抗的
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2213242/)
 
-翻译：天天
+翻译与编辑：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-22_9.png)
+《路透社》3月23日报道，乌克兰本地时间周三，乌克兰总统泽伦斯基表示，为结束这场长达一个月的战争而与俄罗斯进行的和平谈判是艰难的，有时是对抗性的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-2-e1647997139153.jpg)乌克兰总统泽连斯基（图片来源：路透社）
+报道指出，尽管俄罗斯和乌克兰谈判人员一直在定期进行谈判，但双方都表示，达成任何协议都还很遥远。
 
-岸田文雄首相在访问印度和柬埔寨期间全面展开了面对面的首脑外交，这次访问一直持续到3月21日。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cover-thumb-edited-1.jpg)图片来源：美联社
-他强调，国际社会需要团结一致应对俄罗斯对乌克兰的军事入侵。 虽然提出了一个共同的方向，但也强调了程度上的差异。 考虑到中共国日益增长的霸权主义行动，会议还呼吁加强合作，包括由日本、印度、美国和澳大利亚这四个国家组成的 “QUAD”。
+泽伦斯基表示，我们将继续在不同层面上努力鼓励俄罗斯走向和平。乌克兰代表正在参加几乎每天都在进行的谈判。这非常困难，有时甚至是对抗性的。”泽伦斯基补充道，但我们正在一步一步地前进。
 
-“重要的是，我们能够就基本方向和方法达成一致。 我们能够确认这一点，是非常有意义的。”关于乌克兰的局势，总理在主要外交日程结束后，在金边向记者强调了这一成就。
+与此同时，泽连斯基还指责攻击马里乌波尔的俄罗斯军队阻碍了从该市疏散平民的努力。
 
-这一系列峰会的主要焦点是俄罗斯对乌克兰局势升级的反应。 总理与印度总理莫迪确认，他不会容忍在任何地区以武力单方面改变现状的行为。 他还与柬埔寨首相洪森达成一致，呼吁立即停火和撤军。
+他说:“到今天为止，这个城市大约有10万人生活在不人道的条件下，完全被封锁，没有食物，没有水，没有药品，并遭受不断的炮击和轰炸。”
 
-接下篇：岸田首相敦促团结对抗俄罗斯和中共国 首脑外交活动正在全面展开（下）
+新闻来源链接：
 
-**参考资料：**[news.yahoo.co.jp][対ロシア、中国で結束促す　岸田首相、対面外交を本格始動](https://news.yahoo.co.jp/articles/f62710f0f6951c164c6cd886f84c12399656027a)
+[Ukraine’s Zelenskiy says Russia talks are tough, sometimes confrontational | Reuters](https://www.reuters.com/world/europe/ukraines-zelenskiy-says-russia-talks-tough-sometimes-confrontational-2022-03-22/)
 
-*审核：BryanW*
-*校对：宫米叶*
-*发稿：信心的选择*
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1.jpeg)
 
  
 

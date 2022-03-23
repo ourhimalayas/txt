@@ -2,27 +2,18 @@
 ---
 
 
-## 泽连斯基表示与俄谈判是艰难的有时是对抗的
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2213242/)
+## 樱花时政┃台湾发生M6.6 级地震
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2213361/)
 
-翻译与编辑：冰糖葫芦喵
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2597.png)[图片来源](https://news.yahoo.co.jp/articles/bca1d9cbf8b6cb1f7e1ab74df5ae439a3959c403/images/000)
+据台湾中央气象局消息，3月23日凌晨1时41分左右（日本时间2时41分）台湾东部花莲县沿海发生6.6级地震， 东南部的台东地震强度6级弱，几乎全域都有震感。
 
-《路透社》3月23日报道，乌克兰本地时间周三，乌克兰总统泽伦斯基表示，为结束这场长达一个月的战争而与俄罗斯进行的和平谈判是艰难的，有时是对抗性的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-2-e1647997139153.jpg)乌克兰总统泽连斯基（图片来源：路透社）
-报道指出，尽管俄罗斯和乌克兰谈判人员一直在定期进行谈判，但双方都表示，达成任何协议都还很遥远。
+信息来源：[**台湾でM6.6の地震**](https://news.yahoo.co.jp/articles/de239c86758e0bbd65e54fba12038993aace272e)
 
-泽伦斯基表示，我们将继续在不同层面上努力鼓励俄罗斯走向和平。乌克兰代表正在参加几乎每天都在进行的谈判。这非常困难，有时甚至是对抗性的。”泽伦斯基补充道，但我们正在一步一步地前进。
-
-与此同时，泽连斯基还指责攻击马里乌波尔的俄罗斯军队阻碍了从该市疏散平民的努力。
-
-他说:“到今天为止，这个城市大约有10万人生活在不人道的条件下，完全被封锁，没有食物，没有水，没有药品，并遭受不断的炮击和轰炸。”
-
-新闻来源链接：
-
-[Ukraine’s Zelenskiy says Russia talks are tough, sometimes confrontational | Reuters](https://www.reuters.com/world/europe/ukraines-zelenskiy-says-russia-talks-tough-sometimes-confrontational-2022-03-22/)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

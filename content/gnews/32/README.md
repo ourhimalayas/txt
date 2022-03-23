@@ -2,23 +2,29 @@
 ---
 
 
-## 中共国发生严重空难事故
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212711/)
+## 克里姆林宫希望只有“生存威胁”的情况下使用核武器
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2212814/)
 
-作者：加拿大温哥华扬帆农场 – 文莱
+**普京发言人Dmitri Peskow在乌克兰战争的背景下表示使用核武器的可能性。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2584.png)[China Eastern Boeing 737 crash (key.aero)](https://www.key.aero/article/china-eastern-boeing-737-crash)
+作者：AFP/mow/原文发布于2022年3月22日22:26 (MEZ)
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-11.jpg)图片：莫斯科：俄罗斯的Topol-M核导弹在阅兵式上驶过红场（档案照片）。dpa/Yuri Kochetkov
 
+克里姆林宫称，在乌克兰冲突的背景下，俄罗斯只有在出现“生存威胁”的情况下才会使用核武器。克里姆林宫发言人Dmitri Peskow周二在美国有线电视新闻网国际频道表示：“我们有一个众说周知的内部安全概念。你可以在那里读到使用核武器的所有理由”。
 
-报道称，该架从昆明至广州，载有132位乘客的波音737航班在广西梧州附近坠毁，并引发坠机现场的森林大火。目前，东航所有737-800型飞机都被勒令停飞。
+克里姆林宫发言人针对CNN记者Christiane Amanpour强调提出，关于他是否“相信或确信”俄罗斯总统弗拉基米尔·普京不会在与乌克兰的冲突中使用核弹时回答道：“如果我们的国家受到生存威胁，那么就可以按照我们的概念使用它（核弹）。”
 
-尽管总部位于芝加哥的波音公司随后声明将彻查坠机原因，但其股价在当天的盘前交易中下跌超过8%。此外，在波音737MAX飞机此前发生过两次致命事故后，目前已在全球范围内停飞。但中共国却在去年批准重新使用该型号飞机，而使其成为737MAX飞机仅存的用户市场。
+与五角大楼等方面关于俄罗斯前进受阻的信息相反，Peskow表示，在乌克兰的军事行动“正在完全按照预定计划进行”。俄罗斯军队希望“消除乌克兰的军事潜力”，这是“行动的主要目标”之一。
 
-校对编辑：硫酸羟氯喹64
+与此同时，克里姆林宫发言人表示，莫斯科在乌克兰的部队“只针对军事目标和物体”。与此相反，乌克兰、西方政府和人权组织指责俄罗斯也在袭击平民。
 
-发稿：青青
+同时，鉴于乌克兰战争的发展，联合国秘书长安东尼奥·古特雷斯不再排除核战争的可能性。俄罗斯将核大国的威慑性武器置于待命状态，这一发展令人毛骨悚然。古特雷斯上周在纽约表示：“曾经不可想象的核冲突前景，现在又回到了可能发生的范围。”在此，联合国负责人改变了语气：他之前曾将使用核武器的可能性描述为“难以想象”。
 
-新闻来源： [Boeing 737 plane crashes in China | CTV News](https://www.ctvnews.ca/world/chinese-airliner-crashes-with-132-aboard-in-country-s-south-1.5827371)
+原文链接：[https://www.berliner-zeitung.de/news/kreml-will-atomwaffen-nur-bei-existenzieller-bedrohung-einsetzen-li.218347](https://www.berliner-zeitung.de/news/kreml-will-atomwaffen-nur-bei-existenzieller-bedrohung-einsetzen-li.218347)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+
 
  
 

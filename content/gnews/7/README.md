@@ -2,39 +2,22 @@
 ---
 
 
-## 突发：台湾花莲近海凌晨持续发生强震
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2213700/)
+## 视频|比特币去中心化骗局
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2213854/)
 
-作者：纽约香草山农场 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
-当地时间3月23日，台媒报道花莲近海，凌晨1时41分39.9秒发生6.6级地震，震源深度30.6公里，震中位置离花莲县政府南62.6公里，台湾全岛发生剧烈震动。
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-92.png)
+3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有。其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化背道而驰，其根本是由极少数人大量持有且高度中心化。由于比特币热搞饥饿营销，市面上传说2100万是比特币的总数量，但这个数量没有任何机构来监管。
 
-目前已发生多次余震，1时43分发生6.1级余震在花莲，1时46分、2时37分在台东县近海分别震级4.7和5.3级，截止凌晨3时35分，花莲近海又发生5.8级地震。
+事实上，货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本，比特币也不可能运维成本如此高昂的支付系统。没有流通没有支付，这些原因导致了比特币只能沦为洗钱的工具。
 
-地震已经造成局部公路坍塌，影响交通通行，台湾中央气象局预报未来三天还有余震。
-
-郭文贵先生大直播曾曝光，中共有潜水艇在台湾东部近海游弋。中共会利用台湾地质构造特性，用武器引发地震，制造台湾混乱，进而进一步侵台。
-
-资料链接:[https://www.cna.com.tw/news/ahel/202203235001.aspx](https://www.cna.com.tw/news/ahel/202203235001.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
-
-编辑/校对/发稿：Daxia
+发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
