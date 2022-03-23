@@ -2,39 +2,40 @@
 ---
 
 
-## 俄军强行将数千名乌克兰儿童拐带到俄罗斯
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2216001/)
+## 俄乌冲突引发全球粮食短缺，部分国家面临饥饿威胁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216039/)
 
-翻译：wenwu
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2634.png)
+整理：等风来
+编辑：文泓
 
-据称，俄罗斯军队正在拐带数千名乌克兰儿童，并将他们绑架到俄罗斯。 美国驻基辅大使馆在[推特](https://twitter.com/USEmbassyKyiv/status/1506214727394988032?s=20&amp;t=mpMUh9PPDhpGy7QgojyGng)上写道，有争议的顿巴斯地区的顿涅茨克和卢甘斯克的2389名乌克兰儿童被“非法带走”，这是引用了乌克兰外交部的说法（如下图）。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/BJKF8NSW8ETNDASX.png)图片来源：Fox Business & 雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2636.png)
 
-“这不是援助。这是绑架，”它说。
+据大纪元3月22日报道，白宫新闻秘书普萨基在周一表示，由于俄罗斯全面入侵乌克兰，白宫预计全球粮食将出现短缺。
 
-本周早些时候，马里乌波尔（Mariupol）市议会称，在俄罗斯报告称有“难民”从南部战略港口抵达后，俄罗斯军队上周将数千人从被围困的城市强行带离。
+普萨基表示，尽管美国不会受到粮食短缺的影响，但白宫确实认为，俄乌战争引发的能源、化肥、小麦和玉米价格上涨，可能影响世界各国的种植成本与关键粮食供应价格。**世界银行初步估计，包括非洲、中东和东南亚在内的中低****收入国家将首先遭遇最严重的影响。**
 
-“过去一周，数千名马里乌波尔居民被绑架到俄罗斯境内；占领者从 Livoberezhniy 区和体育俱乐部大楼的避难所非法带走了乌克兰人，那里有一千多人（主要是妇女和儿童）在躲避（俄军）不断的轰炸。”该委员会周六晚在其 Telegram 频道上发表声明说。
+联合国粮农组织（FAO）上周警告，全球粮食危机迫在眉睫，在这场延续超过4周的冲突中，关键主食作物供应均受到了威胁。
 
-俄罗斯新闻机构称，最近几天，（通过）巴士将几百名被称为难民的莫斯科人从马里乌波尔运往俄罗斯。
+俄罗斯和乌克兰是粮食主要出口国，在全球市场上，供应了近30%的小麦和近20%的玉米。同时乌克兰也是一个化肥“出口大国”。最依赖俄罗斯、乌克兰小麦供应的国家，包括非洲北部和亚洲的发展中国家。
 
-美国驻联合国大使琳达·托马斯-格林菲尔德（Linda Thomas-Greenfield）在周末表示，从马里乌波尔强制绑架平民的指控如果属实，（这结果）“令人不安”和“不合情理”。
+另据《纽约时报》报导，自2月24日俄乌战事爆发以来，小麦价格上涨了21%，大麦上涨了33%，一些化肥上涨了40%。
 
-“我只是听说。我无法证实，”她告诉CNN。”但我可以说这令人不安。俄罗斯军人绑架乌克兰公民进入俄罗斯，把他们放在基本上是集中营和囚犯营的地方，这是不合情理的；俄罗斯不应该违背乌克兰公民的意愿将他们转移到俄罗斯。”
+普萨基说，拜登政府正在与七国集团、多边开发银行（MDBs）、世界粮食计划署（WFP）和联合国粮农组织（FAO）合作，以减轻对贫困国家的影响，以缓解粮食短缺。
 
-新闻来源：[news.sky.com] [Ukraine war: Kyiv claims Moscow forcefully deporting thousands
- of Ukrainian children to Russia](https://news.sky.com/story/ukraine-war-kyiv-claims-moscow-forcefully-deporting-thousands-of-ukrainian-children-to-russia-12572666)
+联合国粮农组织的首席经济学家托雷罗表示，连续两年的新冠病毒大流行，已削弱了粮食系统的复原力，导致粮食价格居高不下，如果俄乌冲突持续下去，那么食品价格将大幅上涨，长期饥饿的人数将大大增加。
 
-* * *
+参考链接：[白宫：乌克兰冲突将引发全球粮食短缺](https://www.epochtimes.com/gb/22/3/22/n13664384.htm)
 
-审核：文乐
-校对：阿伯塔
-发布：小东
+*发布：*tianzhihuan
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

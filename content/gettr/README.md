@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 1:34 PM (UTC)`
+
+Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscrescue #nfsc新中国联邦
+![img](https://media.gettr.com/group43/origin/2022/03/23/13/4d120241-14b5-7d39-d368-7162128cf313/bc2f8bdb5f3d6e5a65859489afb3f23a.jpg)
+
+---
+
+`@miles 3/23/2022 1:13 PM (UTC)`
+
+【Ukraine Rescue】 03/20/2022 The NFSC & ROLF Ukraine Humanitarian Rescue Operation – Poland Rescue Base Frontline Report: The employed security team greatly relieved the pressure of the fellow fighters, which enables the fellow fighters to have more time to rest and avoid excessive fatigue and physical discomfort.<br/><br/><br/>【乌克兰救援】03/20/2022 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报道：雇佣的安保团队大大缓解了战友的压力，晚上值夜班，白天也主动服务难民，并做一些小事。这样使得战友有更充分的时间休息，避免过于疲劳身体不适。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group8/getter/2022/03/23/13/fbfa2876-2353-a5aa-088c-bbff4199e549/out.jpg)
+
+---
+
 `@miles 3/23/2022 12:29 PM (UTC)`
 
 【Ukraine Rescue】03/20/2022 the NFSC & ROLF Ukraine Humanitarian Rescue Operation - Poland Rescue Base Frontline Report: Sick fellow fighters have recovered and are returning to the team one after another. It is expected that there will be a new wave of Ukrainian refugees. We will continue to stand firm and serve the refugees. We will always be here until the war is over.<br/><br/>【乌克兰救援】03/20/2022 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报道：生病的战友陆续康复回到团队。预计还有新的乌克兰难民潮，我们将继续坚守阵地服务难民，战事不结束，我们会一直在这里。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -146,20 +160,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 【Ukraine Rescue】03/21/2022 <br/>As Ukraine gradually took the initiative, the number of refugees decreased, some even began to return their home;<br/>The number of refugees has plummeted in the past two days, Medyka is not the only checkpoint. Many refugees have been diverted away;<br/>Three Russian commanders were killed by Ukraine counterattack, the Russian army’s morale has dropped, and the Ukrainian army’s sentiment has risen;<br/>Hope the war will end soon and Ukrainian refugees can go home safely and reunite.<br/><br/>【乌克兰救援】03/21/2022 <br/>随着乌克兰逐渐掌握主动，前方难民数量减少，甚至有些难民开始返乡；<br/>这两天难民骤降，梅迪卡不是唯一的关卡，很多难民被分流掉了；<br/>俄方三个指挥官被乌克兰反击干掉，俄军士气下降，乌军反击情绪上升；<br/>希望战争早点结束，乌克兰难民能平安回家团聚
 ![img](https://media.gettr.com/group18/origin/2022/03/23/02/5e8f7cb9-ade4-10bc-fa81-c2ea2a74bc2f/out.jpg)
-
----
-
-`@miles 3/23/2022 1:54 AM (UTC)`
-
-【Ukraine Rescue】03/21/2022 <br/>Frontline fellow fighters are building a good image and international credibility for the Chinese;<br/>On the front line, you can feel the respect among people, the respect for Chinese people depends on our actions, not just words;<br/>In different cooperation and exchanges, we have gradually accumulated and established others' recognition and respect;<br/>We use practical actions to tell everyone that we are here to save people;<br/>The challenge on the front line is the mix of people and complex information, including the CCP Virus;<br/><br/>【乌克兰救援】03/21/2022 <br/>前线战友在为中国人树立良好的形象 建立国际信誉；<br/>在前线可以感受到人与人间的尊重，特别是对华人的尊重靠的是行动，而不是光说；<br/>在各种合作交往中，慢慢地积累和建立别人对我们的认同和尊重；<br/>我们用实际行动去告诉大家我们真的是来救人的；<br/>前线的挑战是各种人员和复杂信息混在一起，包括现在谈到的病毒；
-![img](https://media.gettr.com/group13/origin/2022/03/23/01/a866c8e5-f36f-f68e-c654-1aecab752167/out.jpg)
-
----
-
-`@miles 3/23/2022 1:54 AM (UTC)`
-
-3/22/2022 Miles Guo’s GETTR: The fundamental reason for Putin to invade Ukraine is the fear that the free and democratic system in Ukraine will spread to Russia, thus awakening the enslaved Russian people to rise up. The crimes of Weijian Shan will be thoroughly investigated. Bruno Wu is trying to survive by relying upon the excuse of going against the Whistleblowers’ Movement, but he will end miserably. All those who collude with the CCP overseas will be finished!<br/><br/>3/22/2022 文贵盖特：普京打乌克兰的根本原因是担心乌克兰的自由民主制度传到俄罗斯，唤醒被奴役的人们揭竿而起；单伟建的罪行必被查清，吴征靠反爆料革命苟延残喘，但他结局会很惨；海外所有跟中共勾结的人都将完蛋<br/>
-![img](https://media.gettr.com/group19/getter/2022/03/23/01/a0fe3d78-c53f-9c2e-f828-1dc1f8752e57/out.jpg)
 
 ---
 

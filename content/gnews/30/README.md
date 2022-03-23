@@ -2,38 +2,29 @@
 ---
 
 
-## 加拿大官方数据表明，疫苗接种者已患上艾滋病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216182/)
+## 基辅总参谋部：乌克兰军队坚守阵地
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2216265/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**据他们的总参谋部称，尽管俄罗斯继续进行空袭，但乌克兰武装部队仍在坚守阵地。**
 
-整理/编辑：小鱼儿
+作者：dpa/sh/原文发布于2022年3月22日10:50 (MEZ)
+翻译：LK
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5ZMHPWFVQQ3AOYKI5GLGC.png)图片来源：雅典娜设计组&phoenixwolfj
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-12.jpg)图片：基辅的乌克兰士兵。（Fadel Senna/AFP）
 
+乌克兰总参谋部周三（2022年3月23日）上午宣布，敌人在多条战线的进军被阻，例如在东南部顿涅茨克地区的斯洛文斯克附近。
 
-据曝光新闻网（The Exposé ）3月20日报道，加拿大官方新冠病毒数据表明，与未接种疫苗的人的自然免疫力相比，加拿大接种两剂疫苗的人群平均损失了 74% 的免疫力，而接种三剂疫苗的人群损失了 73% 的免疫力。
+关于几周来战斗特别激烈的马里乌波尔市的局势，军方领导只表示，乌克兰部队正在抵御来自各个方向的攻击。
 
-而且根据数据分析，与未接种疫苗的人群相比，接种两剂疫苗的人群感染新冠病毒的可能性平均高出 3.8 倍，死于新冠病毒的可能性高出 3.3 倍。
+通过占领马里乌波尔，俄罗斯意图与被吞并的黑海克里米亚半岛建立一个安全的陆地连接。普京负责的特使告诉俄罗斯新闻社，一旦俄罗斯军方控制了重要的M14主干道，克里米亚将再次与乌克兰东部的顿涅茨克和卢甘斯克分离主义地区可靠连接。
 
-但就死亡风险而言，接种三剂疫苗人群的情况更糟。官方数据显示，与未接种疫苗的人群相比，他们感染病毒的可能性平均高出 3.7 倍，而且死于病毒的可能性高出 5.1 倍。
+M14公路从乌克兰西南部的敖德萨出发，途经陷入困境的米科拉耶夫和被占领的赫尔松，到达马里乌波尔，并从那里穿过俄罗斯边境到达主要城市顿河畔罗斯托夫市。2014年俄罗斯吞并克里米亚后，乌克兰关闭了通往该半岛的铁路线。
 
-截至 2 月 22 日，加拿大接种两剂疫苗的人的免疫系统性能为负 69.56%，接种三剂疫苗的人的免疫系统性能为负 80.56%。
+俄罗斯国防部还称，战斗直升机摧毁了一个乌克兰弹药库。乌克兰方面此前曾报告在哈尔科夫地区发生直升机袭击事件。（*dpa/sh*）
 
-因此，这些数字表明，加拿大接种两剂和三剂疫苗的人群的免疫系统已经受到巨大的损害，以至于他们已经发展为获得性免疫缺陷综合症（艾滋病）。
-
-参考资料：[Official Government of Canada data is truly terrifying; it suggests the Triple Vaccinated have developed AIDS & are now 5.1x more likely to die of Covid-19 than the Unvaccinated](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
-
-
+原文链接：[https://brf.be/international/1587305/](https://brf.be/international/1587305/)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

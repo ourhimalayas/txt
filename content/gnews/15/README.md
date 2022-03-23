@@ -2,34 +2,28 @@
 ---
 
 
-## 迪拜即将推出一亿美元的数字资产基金
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216781/)
+## 北京累计接种6000万剂毒疫苗，或后果严重
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216875/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GPX5YBMNRRLCLF4FVWWOS5CMQU.jpg)
-3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2F5630979%2Fimages%2F4f8e0945577e456981bf7dd71e0625a1.JPG&amp;imgrefurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2Fcontent_5630979.htm&amp;tbnid=qZXwQYF-4Mc5bM&amp;vet=12ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ..i&amp;docid=7aDBHwfrkPe6oM&amp;w=800&amp;h=533&amp;q=%E6%8E%A5%E7%A7%8D&amp;ved=2ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ)
+3月23日每日经济报报道，截至2022年3月22日，北京市累计报告接种中共病毒（新冠病毒Covid-19）疫苗5999.59万剂次，累计接种2283.80万人。
 
-该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
+截至2022年3月22日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗323460.1万剂次。
 
-据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
+在两个月前的1月8号北青网报道，根据北京市卫健委刚刚发布的消息，截至2022年1月7日，北京市累计报告接种新冠病毒疫苗5725.15万剂次，累计接种2247.80万人。
 
-撰稿、发布：骄子
+2021年人口普查北京总人数：全市总人口（常住人口）为2189.3095人，时至今日累计接种2283.80万人，接种人口已超出全市常住人口90多万，接种中共病毒疫苗5725.15万剂次，累计接种毒疫苗已接近超出全市人口三倍数量。
 
-reference：
+毒疫苗引起人体各种不适症状灾难频频出现，而中共大力掩盖否认是毒疫苗造成的后遗症，中共政府以防疫为借口，懒政管理施行“一刀切”，把防控措施做到层层加码，强制隔离强制接种毒疫苗，大面积的次生灾害和毒疫苗灾难将随时到来。
 
-[Dubai firm Cypher Capital says launches $100 mln digital asset fund](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+消息来源：
 
-* * *
+[【北京市累计报告接种新冠病毒疫苗5999.59万剂次，累计接种2283.80万人】](https://ms.mbd.baidu.com/r/Di5TTKjwwo?f=cp&amp;rs=397575460&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=26a48bfa4bb9d34c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

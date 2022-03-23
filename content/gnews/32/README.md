@@ -2,29 +2,37 @@
 ---
 
 
-## 世卫：约50万乌克兰难民出现精神健康问题
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2216073/)
+## 加拿大官方数据表明，疫苗接种者已患上艾滋病
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216182/)
 
-来自新加坡早报 /
-2022年3月22日 20:01 AM 报导
-采集：玫瑰新闻组
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20.jpg)
+整理/编辑：小鱼儿
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5ZMHPWFVQQ3AOYKI5GLGC.png)图片来源：雅典娜设计组&phoenixwolfj
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-22t094351z2105915537rc2k7t9jrr45214799.jpg)联合国难民署（UNHCR）周二表示，已有超过355万人逃离乌克兰，其中超过200万人入境波兰。（路透社）
-（早报讯）联合国难民署（UNHCR）周二（3月22日）表示，已有超过355万人逃离乌克兰，其中超过200万人入境波兰。
+据曝光新闻网（The Exposé ）3月20日报道，加拿大官方新冠病毒数据表明，与未接种疫苗的人的自然免疫力相比，加拿大接种两剂疫苗的人群平均损失了 74% 的免疫力，而接种三剂疫苗的人群损失了 73% 的免疫力。
 
-难民署发言人萨尔特马什还补充说，乌克兰境内有650万人流离失所。“你看到的难民人数是几乎乌克兰四分之一的人口。这种外逃的速度和规模以及这场难民危机是近代前所未见的。”
+而且根据数据分析，与未接种疫苗的人群相比，接种两剂疫苗的人群感染新冠病毒的可能性平均高出 3.8 倍，死于新冠病毒的可能性高出 3.3 倍。
 
-世界卫生组织周二表示，从乌克兰逃到波兰的难民中，约有50万人出现精神疾病问题需要支持，其中3万人有严重精神健康问题。
+但就死亡风险而言，接种三剂疫苗人群的情况更糟。官方数据显示，与未接种疫苗的人群相比，他们感染病毒的可能性平均高出 3.7 倍，而且死于病毒的可能性高出 5.1 倍。
 
-世卫组织的波兰代表库奇说，抵达波兰的难民可能出现一系列的健康问题，包括腹泻和脱水，但他们因心理创伤更需要获得精神方面的支持。
+截至 2 月 22 日，加拿大接种两剂疫苗的人的免疫系统性能为负 69.56%，接种三剂疫苗的人的免疫系统性能为负 80.56%。
 
-新闻链接：[https://www.zaobao.com/realtime/world/story20220322-1254972](https://www.zaobao.com/realtime/world/story20220322-1254972)
+因此，这些数字表明，加拿大接种两剂和三剂疫苗的人群的免疫系统已经受到巨大的损害，以至于他们已经发展为获得性免疫缺陷综合症（艾滋病）。
 
-审核校对：Barry Jack
-上传排版：F
+参考资料：[Official Government of Canada data is truly terrifying; it suggests the Triple Vaccinated have developed AIDS & are now 5.1x more likely to die of Covid-19 than the Unvaccinated](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
+
 
  
 

@@ -2,38 +2,38 @@
 ---
 
 
-## 俄罗斯人摧毁切尔诺贝利一个新实验室
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216563/)
+## 台湾密切关注中共南海人造岛军事化举动
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2216727/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-翻译：li yan li
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-133.png)图片来源： 雅典娜设计组
+作者: 纽约磐石农场—在远方
 
 
-3月23日据美联社报道，乌克兰利沃夫消息，负责切尔诺贝利禁区的乌克兰国家机构周二表示，俄罗斯军队已经摧毁了切尔诺贝利核电站的一个新实验室，该实验室的工作包括改善放射性废物的管理。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+台媒3月22日报道，近日美国印太司令部指出，中共已将南沙群岛三个岛礁完成军事化改造，并威胁到周边国家安全。为此，中华民国国防部长邱国正表示，台湾和越南以及菲律宾等国，都在密切关注中共相关举动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ee180c2f564f7b0527d0648bc28ee6b0.jpeg)图片来源: 网络 (上图为中华民国国防部长邱国正)
+邱国正在立法院会施政总质询时表示，中共已将南沙群岛三个岛礁完成了军事化部署。隶属中华民国的太平岛也在其中，其他小岛则分属越南和菲律宾等国，各国之所以保持互不侵犯，就是因为默守规矩。对于中共觊觎南海的野心，相关国家都在密切注意。当前台湾在太平岛不是以军事驻扎、而是以海巡单位为主，是把维护海域安全做为重点。
 
-俄罗斯军队在战争开始时夺取了这座退役的工厂，禁区是该电厂周围的污染区，1986年世界上最严重的核泄漏事故就发生在这里。
+新闻链接: [https://www.rti.org.tw/news/view/id/2127963](https://www.rti.org.tw/news/view/id/2127963)
 
-该国家机构表示，该实验室在欧盟委员会的支持下耗资600万欧元建造，于2015年启用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-52.jpg)
 
-该机构在其声明中说，该实验室包含“高度活跃的样品和放射性核素样品，这些样品现在在敌人手中，我们希望敌人会伤害自己而不要伤害文明世界”。
+编辑/校对/发稿: 卡夫卡的甲壳虫
 
-放射性核素是不稳定的化学元素原子，会释放辐射。
+**更多资讯，更多关注**
 
-在另一个令人担忧的事态发展中，乌克兰的核监管机构周一表示，该工厂周围的辐射监测器已经停止工作。
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻链接：[Live updates: Russians destroy Chernobyl laboratory | AP News](https://apnews.com/article/russia-ukraine-business-tokyo-global-trade-world-war-ii-d970e7c51c2b6662b3ebe4531a96aa0f)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-发布：tianzhihuan
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
 
  
 
