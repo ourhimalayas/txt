@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 9:52 PM (UTC)`
+
+3/23/2022 Miles Guo: Although the CCP did not supply Russia with weapons, it has provided funds, food supplies, intelligence, and communication systems, hasn’t it? The whole world will believe that the Chinese people are the “culprits”. This is the most worrisome!<br/><br/><br/>3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的！<br/><br/>
+![img](https://media.gettr.com/group31/getter/2022/03/23/21/13e2e12e-bb95-6d15-964d-ec1a10bc2d9e/out.jpg)
+
+---
+
 `@miles 3/23/2022 7:31 PM (UTC)`
 
 
@@ -146,15 +153,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 文贵先生说：“中国人心里最大的毒就是共产党的毒，就是自私无知，没有信仰，不知道辨别真假善恶。我流血流汗、丢钱拿命来做的《大直播》，希望每时每刻能唤醒更多的中国人。”<br/>-2022年2月11日郭文贵先生GTV/GETTR直播<br/><br/>视频：蜂鸟手绘—战友日常之连线连心
 ![img](https://media.gettr.com/group46/origin/2022/03/21/03/7e45ee00-8f55-5ef4-6f4d-3801607f05d7/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalaya_mos 3/23/2022 3:10 AM (UTC)`
-
-逃离中共病毒：<br/>是中共、福奇、辉瑞、脸书等。他们比纳粹更毒。<br/><br/>It's the Chinese Communist Party (CCP), Anthony Fauci, Pfizer, Facebook, etc. They are worse than the Nazis. <br/><br/>#CCP #AnthonyFauci #Pfizer #Facebook #Nazis
-![img](https://media.gettr.com/group46/origin/2022/03/23/03/1d6322a6-3ff2-2986-9742-4fa6bde8b714/out.jpg)
 
 ---
 
