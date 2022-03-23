@@ -2,52 +2,36 @@
 ---
 
 
-## 斯洛伐克开始部署爱国者防空系统
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2218612/)
+## 敢于报道真相的波兰良心记者（FAKT）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2218619/)
 
-***评论：**普京当了俄罗斯总统这么多年，现在还想统治全人类。要拿下乌克兰最根本原因是，普京担心乌克兰的自由、民主的政治气候刮到俄罗斯去，担心乌克兰良好的社会民主体制、民天下的政治制度搞到俄罗斯去。然而，独裁者普京的一厢情愿，最终换来了乌克兰人民的顽强抵抗和北约对其东翼的加强防御，最后也必将唤醒被奴役的俄罗斯人民揭竿而起。*
+**作者：Nicole
+编辑：Candy**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/波兰记者.png)
+波兰最畅销报纸FAKT （波兰语：事实）采访报道了梅蒂卡难民营的国际救援组织和义工的情况，这是他们在网站上发表的视频节选： 关于法治基金新中国联邦救援乌克兰难民的报道。
 
-据《USNEWS》 转载路透社文章，2022年3月20日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2710-e1648058884555.png)图片来源：网络
-布拉格（路透社）—斯洛伐克国防部长周日表示，爱国者防空系统已经开始从北约伙伴国运抵斯洛伐克，未来几天内将继续部署。
+在文字报道里面，记者用3个段落介绍了法治基金新中国联邦救助难民的情况（***这是3月12日的报道，里面的数字是当时采访时的统计数字***）
 
-该系统将由德国和荷兰部队操作，最初将部署在斯洛伐克中部的斯利亚克机场，以帮助加强对北约东翼的防御。
+[https://mega.nz/file/UN5VhQjK#6bbNe15LKFR4Qx3XCYiSBdN9RRlz-z1Pt2ewZZYzbqQ](https://mega.nz/file/UN5VhQjK#6bbNe15LKFR4Qx3XCYiSBdN9RRlz-z1Pt2ewZZYzbqQ)
 
-俄罗斯对乌克兰的入侵促使该联盟加强其防御。
+文字翻译（谷歌翻译器翻译的大意）：
+因战争而筋疲力尽的难民，被一群中国人邀请到一个又大又暖的帐篷里。他们分发食物、提供温暖的角落和毯子。他们甚至为那些带着他们心爱的动物的难民做好了准备，还将为宠物提供食物和饮料。
 
-爱国者系统将成为北约在斯洛伐克的一个新的战斗群的一部分，斯洛伐克与乌克兰相邻。
+妮可说： “我是法治基金赞助的义工成员。 我想马上指出，我们与中国共产党政府无关，我们主张自由和人权。这就是为什么我们从纽约来到这里，以减轻逃离战争的人们的痛苦。”
 
-斯洛伐克国防部长雅罗斯拉夫·纳德(Jaroslav Nad)在脸书上说：“我很高兴地确认，负责部署爱国者防空系统的第一批部队正在逐步抵达斯洛伐克。”
+妮可介绍：在十几天左右的时间里，法治基金会从乌克兰营救了100多名中国公民和350名乌克兰公民，其中包括100名儿童。几天后，即 3 月 15 日，该基金会将开始用飞机将难民运送到美国和几个亚洲国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/波兰记者-1.png)Nicole与波兰记者一起合影。图片来源：Nicole![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙记者.png)Nicole与西班牙记者合影。图片来源：Nicole
+这些波兰的良知媒体，西班牙的正义媒体和所有敢于报道真相的国际媒体，他们选择了正义和良知，相比彭博社和那些先视而不见的所谓主流媒体，这些良心媒体会赢得所有新中国联邦人的尊敬和热爱。
 
-纳德说，爱国者系统将是对斯洛伐克运营的苏联时代的S-300系统的补充，而不是替代。
+***编辑更新：***因难民人数不足以包机运送，法治基金已经及时发出通知，并为难民们购买了商务舱的机票，使他们可以按时飞往目的地。
 
-纳德说：“该系统将暂时部署在斯利亚克空军基地，进一步的部署区域正在协商中……以便安全保护伞能够覆盖斯洛伐克领土的最大部分。”
+***发布：Candy***
 
-该部长上周表示，如果S-300系统得到适当的替换，斯洛伐克愿意将S-300交给乌克兰。
-
-他在周日重申，由于S-300的年龄、能力和对俄罗斯的依赖，斯洛伐克正在寻找S-300的替代品。
-
-俄罗斯已经警告说，不要向乌克兰运送任何先进的防空系统，并警告说它可能打击乌克兰潜在的S-300防空导弹系统供应链。
-
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源: [https://www.usnews.com/news/world/articles/2022-03-20/slovakia-starts-deploying-patriot-air-defence-system-minister](https://www.usnews.com/news/world/articles/2022-03-20/slovakia-starts-deploying-patriot-air-defence-system-minister)
-
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – 钢蛋儿
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

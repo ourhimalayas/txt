@@ -78,10 +78,10 @@
 ### [美国宣布对部分中共国官员实施签证限制](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [斯洛伐克开始部署爱国者防空系统](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [敢于报道真相的波兰良心记者（FAKT）](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [乌克兰官员表示，将接收更多美国标枪和毒刺导弹](/content/gnews/23/README.md)
+### [斯洛伐克开始部署爱国者防空系统](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [文贵爆料 3.23：俄乌战争，从一开始便已然注定](/content/gnews/24/README.md)
