@@ -2,36 +2,91 @@
 ---
 
 
-## 文•贵天成——文贵先生谈孟建柱（三十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2213838/)
+## 拜登:明天,在普京加速其在乌克兰的残酷战争一个月后,我将前往欧洲与我们的盟友和伙伴们会面
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2214316/)
 
-整理：小儿
-编辑：李易通
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/27RMPVLJZ6QPFEKIE.png)图片来源：雅典娜设计组
+拜登总统： 明天，在 [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 加速其在 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 的残酷战争一个月后，我将前往欧洲与我们的盟友和伙伴们会面。我的第一站是比利时，在那里我将与我们的北约盟国、七国集团 (G7) 领导人、以及欧盟领导人会面，讨论我们为支持 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 所做的努力，并施压让俄罗斯为其入侵行径付出沉重的代价。然后我将前往波兰，与杜达总统 [@AndrzejDuda](https://gettr.com/user/AndrzejDuda) 举行双边会晤。 我期待着讨论我们对俄罗斯在乌克兰造成的人道主义和人权危机的应对措施。在这次旅行中，我们将清楚地表明，西方在捍卫民主方面是团结一致的。 普京以为他能分裂我们，但我们比近代史上的任何时候都要强大。 我们与 [#乌克兰](https://gettr.com/hashtag/%23%E4%B9%8C%E5%85%8B%E5%85%B0) 站在一起，我们将继续确保 [#普京](https://gettr.com/hashtag/%23%E6%99%AE%E4%BA%AC) 为他的行为付出沉重的经济代价。
 
 
-郭文贵2017年7月6日 王岐山的新豪宅及孟建柱（续）
 
-另外一个，我说他不把我杀了，然后我继续下去，我可能跟他们一起达到了郭七条的目标，这是好事啊，是不是。14亿人知道我，我又不向中国索要老百姓的钱，也不要权利，也不要名声，我说我又为什么呀，老百姓都很有数，郭文贵爆料为啥？我不是为了我的钱，也不是为了我的名，也不是为了权力，这肯定是对大家有好处的，我不要任何这些东西。像那夏痔疮天天搞骗捐，你儿子搞房地产你买了一套房子是不是？然后你还找了好几个女人是不是，也是骗人家钱嘛。所以说我不向任何人要钱，我不要任何东西，我有啥不对的。那你让他说，你要是不爆料，我原来会什么情况，我说我告诉你，如果我不爆料，孟建柱、王岐山和傅政华会把我全家都杀了、都抓了，我的员工就有很多人一辈子回不来，然后我的钱全被他拿走。他说你这么一说，你这个爆料是对的，我说对呀，我爆料的结果再坏就是他把我杀了，把我钱都拿走，我不爆料，全家被杀了员工被抓了钱财全没有。最起码现在，我让全世界知道我全家和我的员工的处境，这样他们就不会都被杀了吧，诶，他说讲的有道理。
+> Tomorrow, I’m traveling to Europe to meet with our allies and partners exactly one month after Putin accelerated his brutal war in Ukraine.
+> — President Biden (@POTUS) [March 22, 2022](https://twitter.com/POTUS/status/1506340341309390860?ref_src=twsrc%5Etfw)
 
-中国那些老兵，我说他会等着死吗？不可能的，那些老兵哪一天带出来的时候就不是姜良栋的那个愚蠢的家伙在那忽悠忽悠你就回去了，当这些老兵们拿不到自己的这些中共许下的承诺的时候，他们的儿女还会再受欺负的时候，他们一定不会继续的，他们一定会行动的。泛亚和e租宝的被骗者一次次上街被你抓，等到有一天，他还让你押回去？早晚有一天，当这些人意识到我工作的钱去哪儿的时候，他都去孟建柱家了，对不对，都去傅政华家了。特别是孟建柱，你们家你不是孝敬你老妈吗，对你老婆好吗，对你姐姐好吗，对你外甥好吗，都去你家，上海你家的地址一公布就完了。
 
-老百姓就在那等着，是谁批示法官让这样审判的，为什么我们的钱被转出去了，你们的什么猎狐行动那么成功咋不把他那个猎狐回来呢？他那钱你为啥不能给我查回来呢？法官为什么就通过一个地址就把我们e租宝和泛亚的钱给弄了呢？聂树斌当时这个死到底分析的是什么？雷洋死是谁勒住脖子，谁让他去抓的？为啥把他手机给他弄走了？谁下的命令？徐明、李明怎么死的？傅政华你为什么亲自去弄死他们啊？包括现在海伍德杀人的事儿已经重新说了。大家知道吗，接下来薄熙来杀害海伍德的事情将是世界最大焦点，我现在不透露啊，咱慢慢看，这件事将是天大的事儿啊。网络试的，现在这个可以呀，ok。所以说咱们现在啊，整个爆料进入了一个新的时期，7月17号，大家千万记住啊，我将整理一整套大概4~5个小时的资料向大家展示啊，展示完以后，接下来可能还会有一些很奇怪的事情发生。所以，希望所有的推友们，大家静下心等三年，你们的关注和你们的支持，是文贵成功最重要的关键和动力。
 
-所以，这个还会有这样那样的事情发生，包括什么啪啪啪视频啊，这都是好事儿，我期待着再次发生啊。今天王岐山同志的这两套房子，还有我对海航提的建议，和孟建柱书记和傅政华先生，希望能得到他们的回应啊。有人跟我说不要放孟建柱的料，只报王岐山和傅政华的料，别让他们走在一起，听起来有道理。盗国贼就是盗国贼，文贵视生死于不顾。接下来要报的是中国这些银行是谁的？上海的房地产背后是谁的？海外这些钱怎么回事？谁为啥事换了肾？谁换的肾？为什么有人换了肝？中国的军队的装备是怎么回事？跑哪去了？到底下一步谁要当保监会主席、人民银行行长？为什么？十九大前，咱们这个全球发布会是所有爆料的第一阶段的核心，全球发布会第1季做完，然后再进入第2季，好不好。谢谢所有的推友们的关心关注。一切都是刚刚开始，谢谢大家。
+美国务卿安东尼·布林肯： 我今天与波兰外交部长[@RauZbigniew](https://twitter.com/RauZbigniew) 进行了交谈，谈到了我们对乌克兰及其人民的支持、对逃离普京战争的人们的人道主义援助、保卫北约 [@NATO](https://twitter.com/NATO) 的东翼、以及拜登总统即将对波兰的访问。
 
-资料来源：郭先生GTV、盖特直播
 
-往期回顾：[文•贵天成——文贵先生谈“孟建柱”（二十九）](https://gnews.org/zh-hans/2172917/)
 
-*发布：*tianzhihuan
+> I spoke today with Polish Foreign Minister [@RauZbigniew](https://twitter.com/RauZbigniew?ref_src=twsrc%5Etfw) about our support for Ukraine and its people, humanitarian assistance for those fleeing from Putin’s war, defense of [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw)’s eastern flank, and President Biden’s upcoming visit to Poland.
+> — Secretary Antony Blinken (@SecBlinken) [March 22, 2022](https://twitter.com/SecBlinken/status/1506351806816862209?ref_src=twsrc%5Etfw)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+
+
+众议员迈克尔·克劳德： 推特封禁了： – 巴比伦蜜蜂 (保守派网站） 未禁止： – 克里姆林宫 – 亲 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 宣传者 – 塔利班 推特的封禁与错误信息无关，只与权力有关。
+
+
+
+> Banned from Twitter:
+> – The Babylon Bee
+> 
+> Not Banned:
+> – The Kremlin
+> – Pro-China Propagandists
+> – The Taliban
+> 
+> Twitter bans have nothing to do with misinformation, only power.
+> — Congressman Michael Cloud (@RepCloudTX) [March 22, 2022](https://twitter.com/RepCloudTX/status/1506294405178834951?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： [#俄罗斯](https://twitter.com/hashtag/%E4%BF%84%E7%BD%97%E6%96%AF?src=hashtag_click) 对乌克兰的入侵以及俄罗斯的能源主导地位展示出，美国在能源方面需要尽可能自力更生。 美国可以而且应该利用我们的能源来帮助我们的欧洲盟友、并反击俄罗斯的能源敲诈。 【附克鲁兹议员讲话视频】
+
+
+
+> The Russian invasion of Ukraine and Russia's energy dominance has shown that America needs to be as self-reliant as possible when it comes to energy.
+>  
+> America can and should be using our energy to help our European allies and counter Russia's energy blackmail. [pic.twitter.com/kEjpIE04r4](https://t.co/kEjpIE04r4)
+> — Senator Ted Cruz (@SenTedCruz) [March 22, 2022](https://twitter.com/SenTedCruz/status/1506333709116522496?ref_src=twsrc%5Etfw)
+
+
+
+美国务卿安东尼·布林肯： 今天与北约秘书长斯托尔滕贝格[@JensStoltenberg](https://twitter.com/jensstoltenberg) 就加强北约的威慑和防御进行了重要讨论。 北约 [@NATO](https://twitter.com/NATO) 领导人本周将举行会议，以强调我们对乌克兰主权和领土完整的支持、以及对北约集体防御的承诺。
+
+
+
+> Important discussion with [@JensStoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw) today on reinforcing NATO’s deterrence and defense. [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Leaders will meet this week to underscore our support for Ukraine’s sovereignty and territorial integrity and commitment to NATO’s collective defense.
+> — Secretary Antony Blinken (@SecBlinken) [March 22, 2022](https://twitter.com/SecBlinken/status/1506362570357284871?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克尓·麦考尔： 随着 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 继续在 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 犯下战争罪行，全世界的目光都集中在我们身上。 美国不能袖手旁观。 我们必须站在历史的正确一边，向乌克兰提供捍卫其自由所需的致命援助和防空系统。
+
+
+
+> The eyes of the world are on us as Putin continues to commit war crimes in Ukraine. The U.S. cannot stand by and watch. We have to be on the right side of history and send Ukraine the lethal aid and air defense systems needed to defend their freedom. [pic.twitter.com/Ktwj3tvAer](https://t.co/Ktwj3tvAer)
+> — Michael McCaul (@RepMcCaul) [March 22, 2022](https://twitter.com/RepMcCaul/status/1506363244008677386?ref_src=twsrc%5Etfw)
+
+
+
+众议员吉姆.班克斯： 民主党假的中共国法案无助于阻止 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 对我们大学的恶意影响。 这就是为什么我提出了一项法案，以阻止威胁美国国家安全的外国对手赠送的“礼物”。 【转报道：（民主党的）中共国法案无济于事。吉姆·班克斯引入法案以遏制外国对（美国）大学的影响】
+
+
+
+> Democrats fake China bill does nothing to stop malign [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) influence at our universities. 
+> 
+> That’s why I introduced a bill to block “gifts” from foreign adversaries that threaten US national security.[https://t.co/ZxSNJWHWod](https://t.co/ZxSNJWHWod)
+> — Jim Banks (@RepJimBanks) [March 22, 2022](https://twitter.com/RepJimBanks/status/1506357666997800968?ref_src=twsrc%5Etfw)
+
+
+
+美前国务卿迈克·蓬佩奥： 伊朗革命卫队的核心任务是散布恐怖。 它必须留在恐怖名单上。 【转推称：三名前川普政府高官在一份联合声明中说，将伊斯兰革命卫队从美国恐怖分子名单上删除将是“危险的投降”。】
+
+
+
+> The Iranian Revolutionary Guard Corps’ core mission is to spread terror.
+> It must remain on the terror list. [https://t.co/w3xD5ytSen](https://t.co/w3xD5ytSen)
+> — Mike Pompeo (@mikepompeo) [March 22, 2022](https://twitter.com/mikepompeo/status/1506418472082886663?ref_src=twsrc%5Etfw)
 
 
 

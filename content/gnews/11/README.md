@@ -2,25 +2,18 @@
 ---
 
 
-## 视频|被救中共国留学生不愿回国，前往土耳其
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2213857/)
+## 中共国如被踢出swift系统将面临“国家中风”级别的灾难（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2214363/)
 
-制作：香草山视频部
+**PPT制作: 小蜗牛 ；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-30_9-40二5.png)
+*发布：*tianzhihuan
 
-3月20日，郭文贵先生在大直播中透露，有3名中共国留学生被新中国联邦和法治基金救出后，没有选择回到中共国，而是去了土耳其。
-
-自俄罗斯入侵乌克兰以来，中共表面中立，实际大力支持俄罗斯：迅速发动网军传播挺俄视频，并对乌克兰人的苦难幸灾乐祸，协助俄罗斯规避西方国家制裁等，都导致乌境内的中国人处于非常危险的境地，不是遭遇俄军的炮火，就是遭受乌克兰人的怒火。
-
-中共匆匆宣布撤侨完毕，实际上是将乌境内的国人弃之不顾，甚至让他们面临被灭口的命运。新中国联邦和法治基金在乌境内救出留学生送到波兰克拉科夫后，有些留学生反映，当初他们听信中共使馆宣传，等待使馆救援但是救援迟迟不来，差点丢了性命。如今被新中国联邦救出，又害怕中共迫害，在大陆有家不敢回，只能逃往其他国家。
-
-目前，土耳其签证比较宽松，有部分人选择了从波兰前往土耳其。
-
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

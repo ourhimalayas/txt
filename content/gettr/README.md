@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@mos_designer 3/21/2022 3:16 AM (UTC)`
+
+文贵先生说：“中国人心里最大的毒就是共产党的毒，就是自私无知，没有信仰，不知道辨别真假善恶。我流血流汗、丢钱拿命来做的《大直播》，希望每时每刻能唤醒更多的中国人。”<br/>-2022年2月11日郭文贵先生GTV/GETTR直播<br/><br/>视频：蜂鸟手绘—战友日常之连线连心
+![img](https://media.gettr.com/group46/origin/2022/03/21/03/7e45ee00-8f55-5ef4-6f4d-3801607f05d7/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@himalaya_mos 3/23/2022 3:10 AM (UTC)`
 
 逃离中共病毒：<br/>是中共、福奇、辉瑞、脸书等。他们比纳粹更毒。<br/><br/>It's the Chinese Communist Party (CCP), Anthony Fauci, Pfizer, Facebook, etc. They are worse than the Nazis. <br/><br/>#CCP #AnthonyFauci #Pfizer #Facebook #Nazis
@@ -150,13 +159,6 @@
 
 Today is the Ukrainian girl Polina’s 6th birthday. Inside the refugee tent of New Federal State of China, a special “cake” was made, with three matches for the missing candle……The bright smile on her face makes all the hard work pay off<br/><br/>今天是乌克兰小女孩Polina的六岁生日。在新中国联邦的帐篷里，我们为她制作了“生日蛋糕🎂”，三根火柴代替缺失的蜡烛🕯️…… 小女孩灿烂的笑容，使救援活动的所有辛苦劳累有了回报！
 ![img](https://media.gettr.com/group20/getter/2022/03/22/22/53c2872e-d094-3831-ae8e-b54d38d626d7/out.jpg)
-
----
-
-`@miles 3/22/2022 10:17 PM (UTC)`
-
-3/22/2022 Miles Guo’s GETTR: The European countries are buying a lot of grain spots, but gold is being sold at discounts. What does that mean? Akamai's article about the Himalaya Coin had a huge impact on Wall Street and the entire financial world yesterday. The Russian-Ukrainian war will surely end up with the entire Chinese people paying the price for Xi Jinping and Putin.<br/><br/>3/22/2022 文贵盖特：欧洲国家在大量购买粮食现货，黄金却在打折卖，说明了什么？昨天 Akamai关于喜币的文章在华尔街和整个金融界引起轰动；俄乌战争到最后一定是全中国人为习太阳和普大帝买单<br/>
-![img](https://media.gettr.com/group18/getter/2022/03/22/22/c75fea51-1d8f-7f51-e5f7-741433c7d27b/out.jpg)
 
 ---
 

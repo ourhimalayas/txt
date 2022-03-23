@@ -2,35 +2,45 @@
 ---
 
 
-## 有声|人类未来的去中心化货币叫做躺平币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2214048/)
+## 乌克兰七岁女孩儿在基辅防空洞为慈善音乐会演唱国歌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2214630/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月20日，郭先生在大直播中透露，未来会有一个真正的去中心化货币，就是躺平币。
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-据悉，从第三代之后出现的数字货币躺平币，就是完全去中心化的货币。它具有完善的流通和超低的支付成本，在全球任何一个地方只要有手机，都可以支付购买任何所需。另外，其转账功能不受任何限制，安全加密无人监管。
+翻译：li yan li
+编辑：朝花夕拾
 
-目前，第二代技术的交易成本是300-3000美金，即将到来的第三代成本为0.3美金。而随着区块链加密技术的逐渐成熟，交易成本将低至0.3分。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-92.jpg)图片来源：雅典娜设计组
 
-现在，世界上的法币大多数是分地域，被国家和组织垄断并强制人们使用，定价权被牢牢掌控在权力手中。此外，法币必须通过兑换才能支付使用，转账还需要审核，时间误差极其严重。
 
-因此，郭先生表示，躺平币回归了货币的本质，即生产力的交换工具，不会再有定价权的争夺，使用即是价值。
+乌克兰女孩在基辅防空洞中为慈善音乐会演唱《随遇而安》，她独自站在罗兹的阿特拉斯竞技场一个黑暗的舞台上，向沉默的人群唱着乌克兰国歌。场内座无虚席。
 
-文字版原文：[人类未来的去中心化货币叫做躺平币](https://gnews.org/zh-hans/2208016/)
+阿米莉亚为在波兰举行的“与乌克兰在一起”慈善音乐会揭开序幕，音乐会现场有超过一万名观众，并向40个国家进行了直播。
 
-音频处理：Fei797
-发稿：Fei797
+阿米莉亚的偶像，乌克兰歌手和演员蒂娜-卡罗尔还特别邀请她唱二重唱。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+乌克兰国歌的英文名称是Glory and Freedom of Ukraine Has Not Yet Perished。它是根据帕夫洛-丘宾斯基在1862年写的一首诗改编的，但根据BBC音乐杂志的报道，有几句话被稍微调整了一下。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+阿米利亚的演唱视频最初由玛尔塔-斯梅霍娃于3月4日发布在Facebook上，大约在俄罗斯入侵开始一周后。
+
+因为原始视频不再公开，很难说到底有多少人在基辅的地下室听过阿米利亚的歌声，但该片段的转贴却有数百万的浏览量。
+
+根据《独立报》的报道，在防空洞里呆了六个晚上后，她和她的哥哥一起来到了他们在波兰的祖母家的安全地带。
+
+她的父母留在基辅，帮助战争工作。
+
+阿米莉亚的母亲莉莉娅-阿尼索维奇在音乐会前几天赶到了波兰，但她的父亲罗曼仍然在基辅。
+
+新闻链接：[https://www.abc.net.au/news/2022-03-22/let-it-go-little-ukrainian-girl-amelia-bomb-shelter-concert/100928752](https://www.abc.net.au/news/2022-03-22/let-it-go-little-ukrainian-girl-amelia-bomb-shelter-concert/100928752)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
