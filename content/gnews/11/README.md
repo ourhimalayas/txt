@@ -2,35 +2,29 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2218534/)
+## 乌克兰官员表示，将接收更多美国标枪和毒刺导弹
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2218568/)
 
-作者：香草山翻译部
+据《路透社》作者：Max Hunder，2022年3月19日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2709-e1648058103198.png)乌克兰在波里斯皮尔机场接收美国军援。图片来源：路透社
+乌克兰，3月19日（路透社）——乌克兰国家安全和国防委员会秘书丹尼洛夫（Oleksiy Danilov）周六在电视采访中表示，乌克兰将在几天内收到一批新的美国武器，包括标枪和毒刺导弹。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-20.png)
+“这些（武器）将在近期出现在我国境内。我们指的是几天。”丹尼洛夫说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-23.png)
+乌克兰盟友已经提供成批武器，以加强乌克兰军队对俄罗斯入侵的抵抗。俄罗斯批评北约成员国的这种援助。
 
-文章仅代表作者本人观点，与Gnews无关
+文章来源: [https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/](https://www.reuters.com/world/ukraine-receive-more-us-javelin-stinger-missiles-within-days-ukraine-official-2022-03-19/)
 
-视频参看：
-[2022.03.23早 《NFSC新闻》](https://gettr.com/streaming/p11gsoa0090)
-[2022.03.23早《NFSC新闻访谈》](https://gettr.com/streaming/p11grr82ae6)
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-20.jpeg)
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-21.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
