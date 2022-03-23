@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 9:46 AM (UTC)`
+
+【Ukraine Rescue】03/20/2022 A fellow fighter of NFSC: All NGOs working in Medyka come to our tent to have meetings. Our tent becomes everyone's conference room.<br/><br/>【乌克兰救援】03/20/2022 一位新中国联邦战友：所有在梅迪卡的非政府组织都来我们这个帐篷开会。我们的这个帐篷是大家开会的场地了。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group24/getter/2022/03/23/09/ee31c8d6-191d-5b52-4a9b-2818f1e00f98/out.jpg)
+
+---
+
 `@miles 3/23/2022 9:38 AM (UTC)`
 
 【Ukraine Rescue】03/19/2022  Nicole says in an interview with the Spanish digital media La Reublica at the NFSC Medyka rescue tent that the CCP is a paper tiger, and that if the whole world stands together, we will be able to eliminate the CCP that is causing all the wars and troubles, so that the 1.3 billion Chinese compatriots can enjoy democracy, freedom, and the rule of law, just like the rest of the world.<br/><br/>【乌克兰救援】03/19/2022 妮可在新中国联邦梅迪卡救援帐篷接受西班牙数字媒体La Reublica采访时说，中共是纸老虎，只要全世界同仇敌忾，一定能够铲除制造所有战争和麻烦的中共，让13亿中国同胞与全世界人们一样，享有民主、自由、法治。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -152,13 +159,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 `@miles 3/23/2022 12:42 AM (UTC)`
 
 3月22日：这一天总会到来的．否则美国将付出安全上的巨大代价，新中国联邦一定会让这件事情发生！https://www.voachinese.com/a/congressman-chris-smith-introduces-new-legislation-to-strip-the-chinese-communist-party-of-its-trade-status-20220322/6496701.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08
-
----
-
-`@miles 3/23/2022 12:37 AM (UTC)`
-
-2022.03.22 晚 《新中国联邦新闻》东航空难暂未发现生还者 专家困惑坠机角度不寻常； 中共低调处理7名罹难战机士兵遗体
-![img](https://media.gettr.com/group35/origin/2022/03/23/00/f138d5be-2757-0614-c8aa-67483151da0f/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
