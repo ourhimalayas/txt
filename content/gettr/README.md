@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 9:38 AM (UTC)`
+
+【Ukraine Rescue】03/19/2022  Nicole says in an interview with the Spanish digital media La Reublica at the NFSC Medyka rescue tent that the CCP is a paper tiger, and that if the whole world stands together, we will be able to eliminate the CCP that is causing all the wars and troubles, so that the 1.3 billion Chinese compatriots can enjoy democracy, freedom, and the rule of law, just like the rest of the world.<br/><br/>【乌克兰救援】03/19/2022 妮可在新中国联邦梅迪卡救援帐篷接受西班牙数字媒体La Reublica采访时说，中共是纸老虎，只要全世界同仇敌忾，一定能够铲除制造所有战争和麻烦的中共，让13亿中国同胞与全世界人们一样，享有民主、自由、法治。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group11/getter/2022/03/23/09/1a02b050-0f43-7eaf-2cb8-66c88126b7bb/out.jpg)
+
+---
+
 `@miles 3/23/2022 5:15 AM (UTC)`
 
 《不一樣的我們》<br/>作詞：文雍<br/>演唱：Quana 齊天二聖<br/><br/>The Extraordinary Ones<br/>Lyrics / Wen Yong<br/>Vocals / Quana<br/><br/>謹以此曲獻給為烏克蘭救援默默付出的新中國聯邦人<br/>This song is dedicated to the citizens of The New Federal State of China who have devoted themselves to the Ukraine Rescue Operation<br/><br/>我是一個平凡的人<br/>偶然間推開一扇門<br/>那藍色海洋上的星辰<br/>喧囂中把我指引<br/><br/>I am an ordinary person<br/>Who happened to open a door<br/>The stars above the azure ocean<br/>Are guiding me through the noises and chaos <br/><br/>我是一個普通的人<br/>多幸運變成了我們<br/>在硝煙彌漫中追尋<br/>正道與信仰長存<br/><br/>I am just an average person<br/>How blessed I am to become one of us<br/>As the flames of war raging across the world<br/>We are pursuing the everlasting righteousness and faith<br/><br/>蒲公英在天空中飄蕩<br/>讓夢想帶著希望去遠方<br/>母親的淚光 依稀的過往<br/>那思念 點亮了方向<br/><br/>Dandelions drifting across the sky <br/>Let our prayers guide us in distant places and through difficult times <br/>………………………<br/>
@@ -152,13 +159,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 2022.03.22 晚 《新中国联邦新闻》东航空难暂未发现生还者 专家困惑坠机角度不寻常； 中共低调处理7名罹难战机士兵遗体
 ![img](https://media.gettr.com/group35/origin/2022/03/23/00/f138d5be-2757-0614-c8aa-67483151da0f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/23/2022 12:26 AM (UTC)`
-
-3月22号：盖特又来大大V了
-> `@suzeorman 3/22/2022 11:38 PM (UTC)`<br/>Switching your workplace #retirement contributions to a Roth 401(k), if available, can be a smart move. With a Roth, your contribution will come from pay that you have already paid tax on. But in retirement, when you make withdrawals, every dollar will be tax free.
 
 ---
 
