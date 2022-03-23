@@ -2,112 +2,38 @@
 ---
 
 
-## 《做核酸》
-` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2216370/)
+## 俄罗斯人摧毁切尔诺贝利一个新实验室
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216563/)
 
-韩国正道农场
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2517-5.png)
+翻译：li yan li
+编辑：文泓
 
-撰稿：爱战友
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-133.png)图片来源： 雅典娜设计组
 
-上传：祁明
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2535-2-1.png)
+3月23日据美联社报道，乌克兰利沃夫消息，负责切尔诺贝利禁区的乌克兰国家机构周二表示，俄罗斯军队已经摧毁了切尔诺贝利核电站的一个新实验室，该实验室的工作包括改善放射性废物的管理。
 
-甲：全国人民十四亿
+俄罗斯军队在战争开始时夺取了这座退役的工厂，禁区是该电厂周围的污染区，1986年世界上最严重的核泄漏事故就发生在这里。
 
-乙：海鲜鱼肉鸭和鸡
+该国家机构表示，该实验室在欧盟委员会的支持下耗资600万欧元建造，于2015年启用。
 
-丙：牛奶鸡蛋成品衣
+该机构在其声明中说，该实验室包含“高度活跃的样品和放射性核素样品，这些样品现在在敌人手中，我们希望敌人会伤害自己而不要伤害文明世界”。
 
-丁：核酸
+放射性核素是不稳定的化学元素原子，会释放辐射。
 
-甲：老汉放羊遇检测
+在另一个令人担忧的事态发展中，乌克兰的核监管机构周一表示，该工厂周围的辐射监测器已经停止工作。
 
-乙：羊入虎口遭了祸
+新闻链接：[Live updates: Russians destroy Chernobyl laboratory | AP News](https://apnews.com/article/russia-ukraine-business-tokyo-global-trade-world-war-ii-d970e7c51c2b6662b3ebe4531a96aa0f)
 
-丙：宰杀下锅煮汤喝
+发布：tianzhihuan
 
-丁：核酸
-
-甲：货车司机最倒霉
-
-乙：钢筋水泥核酸费
-
-丙：二千多让你悲
-
-丁：抢劫
-
-甲：包子上台反美叫
-
-乙：制造病毒西方赖
-
-丙：进口货物背黑锅
-
-丁：核酸
-
-甲：人人核酸辛酸泪
-
-乙：日夜核酸排长队
-
-丙：刺骨寒风身上吹
-
-丁：心酸
-
-甲：人走车行天上飞
-
-乙：超市商场小区内
-
-丙：随时随地不能回
-
-丁：核酸
-
-甲：身居深山有人顾
-
-乙：疯子傻子病在屋
-
-丙：平时孤苦无人呼
-
-丁：核酸
-
-甲：事出反常必有妖
-
-乙：云里雾面费大脑
-
-丙：黄鼠狼拜年毒招
-
-丁：阴谋
-
-甲：利益集团笑开花
-
-乙：政府部门有钱拿
-
-丙：百姓饥饿呆在家
-
-丁：苦酸
-
-甲：一人阳性封全城
-
-乙：一连几月锁城门
-
-丙：病死跳楼不少人
-
-丁：悲酸
-
-甲：公告核酸要收费
-
-乙：医疗基金没储备
-
-丙：人财两空成冤鬼
-
-丁：吃人
-
-更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

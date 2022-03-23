@@ -2,29 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — 右侧广播网（RSBN）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215550/)
+## 国际｜美众议员拟推法案 推动取消中共永久最惠国地位
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2215717/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2622.png)
-盖特链接： [**https://gettr.com/user/rsbnetwork**](https://gettr.com/user/rsbnetwork)
+圖文/zhong｜23.3.2021
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-24.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline) **
+美国国会共和党众议员克里斯·史密斯（Chris Smith）22日宣布，将联合两党议员在本星期推出了一项旨在取消中共永久贸易最惠国地位的法案。克里斯·史密斯议员长期关心中国人权事务，他强调法案要“取消中国共产党的永久性正常贸易关系地位，以惩罚其令人发指的人权暴行——特别包括该政权对维吾尔人和其他中亚少数族裔持续进行的种族灭绝和强迫劳动”。
 
-**右侧广播网自述：**
+此外，这部法案要求将中共贸易地位与人权状况作连结，据该法案的意旨，美国总统每年必须证实中共认真、持续的努力改善人权，方可给予中国正常贸易关系地位。
 
-右侧广播网络。总部位于阿拉巴马州奥本。电报：@RSBNetwork，首席执行官@JoeSeale，电报：[**https://t.me/RSBNetwork**](https://t.me/RSBNetwork)， 当地新闻：**rsbn.locals.com**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2623.png)图片来源：网络
-**右侧广播网简介：**
+该法案推出后，仍须获得众议院或参议院委员会及全院通过同样版本，交由总统签署后方成为法律。
 
-右侧广播网是一家媒体公司，由 Joe Seales 于2015年创立。他们以在其YouTube频道上直播唐纳德·川普的集会、市政厅和公共活动而闻名。在2020 年总统大选期间，右侧广播网对唐纳德·川普竞选集会的报道在 YouTube上获得了超过 1.27 亿次观看。
+史密斯众议员表示他之所以提出此一法案，系因为美国过往反对把中国人权与贸易地位连结的行为，成为中共践踏人权的“免费通行证”。（1989年六四事件发声，1990年美国国会决定不再延长中国的贸易最惠国地位，但遭老布希总统否决、2000年，美国给予中国永久性正常贸易关系地位）
 
-截至2022年1月，右侧广播网（RSBN）的频道拥有超过154万订阅者，总观看次数达到 2.35 亿。
+史密斯表示，俄罗斯可能因为普京侵略乌克兰而失去永久性正常贸易地位，而中共对俄罗斯的支持行为，使我们重新评估中共贸易优惠待遇变得尤为及时。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+來源｜[YAHOO](https://tw.news.yahoo.com/%E7%BE%8E%E7%9C%BE%E9%99%A2%E5%85%A9%E9%BB%A8%E8%AD%B0%E5%93%A1%E6%8E%A8%E5%87%BA%E5%8F%96%E6%B6%88%E4%B8%AD%E5%9C%8B%E6%B0%B8%E4%B9%85%E6%9C%80%E6%83%A0%E5%9C%8B%E5%BE%85%E9%81%87%E6%B3%95%E6%A1%88-024400012.html)
 
  
 
