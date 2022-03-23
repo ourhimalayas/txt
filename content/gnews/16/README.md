@@ -2,39 +2,34 @@
 ---
 
 
-## 俄罗斯人摧毁切尔诺贝利一个新实验室
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216563/)
+## 美国财政部讨论冻结俄罗斯黄金储备
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216469/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-19.15.46-1.png)
+据外媒报道，美国两党参议员正在与财政部讨论冻结俄罗斯的所有黄金储备合计金额约1320亿美金。
 
-翻译：li yan li
-编辑：文泓
+自2014年普京吞并克里米亚以来，据称俄罗斯克里姆林宫一直使用黄金储备在不受监管的市场洗钱，包括外汇。黄金是俄罗斯储备的四分之一，美国议员希望通过此法案有效遏止俄罗斯在入侵乌克兰的问题上通过黄金来摆脱制裁的作法。目前美国国会办公室一直在和财政部合作，财政部长Yellen定期和国会议员会面，讨论立法问题，财政部门一直在充实技术支援。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-133.png)图片来源： 雅典娜设计组
+除国会外，拜登总统可以直接采取措施封锁俄罗斯黄金储备。
 
+撰稿、发布：骄子
 
-3月23日据美联社报道，乌克兰利沃夫消息，负责切尔诺贝利禁区的乌克兰国家机构周二表示，俄罗斯军队已经摧毁了切尔诺贝利核电站的一个新实验室，该实验室的工作包括改善放射性废物的管理。
+reference：
 
-俄罗斯军队在战争开始时夺取了这座退役的工厂，禁区是该电厂周围的污染区，1986年世界上最严重的核泄漏事故就发生在这里。
+[https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/](https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/)
 
-该国家机构表示，该实验室在欧盟委员会的支持下耗资600万欧元建造，于2015年启用。
+* * *
 
-该机构在其声明中说，该实验室包含“高度活跃的样品和放射性核素样品，这些样品现在在敌人手中，我们希望敌人会伤害自己而不要伤害文明世界”。
+欢迎订阅我们的GNews账号：
 
-放射性核素是不稳定的化学元素原子，会释放辐射。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-在另一个令人担忧的事态发展中，乌克兰的核监管机构周一表示，该工厂周围的辐射监测器已经停止工作。
-
-新闻链接：[Live updates: Russians destroy Chernobyl laboratory | AP News](https://apnews.com/article/russia-ukraine-business-tokyo-global-trade-world-war-ii-d970e7c51c2b6662b3ebe4531a96aa0f)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

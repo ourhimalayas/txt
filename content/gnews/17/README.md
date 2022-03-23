@@ -2,34 +2,29 @@
 ---
 
 
-## 美国财政部讨论冻结俄罗斯黄金储备
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216469/)
+## 外媒报道：乌克兰马里波尔被广泛破坏
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2216413/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-19.15.46-1.png)
-据外媒报道，美国两党参议员正在与财政部讨论冻结俄罗斯的所有黄金储备合计金额约1320亿美金。
+撰稿&翻译：喜妈
 
-自2014年普京吞并克里米亚以来，据称俄罗斯克里姆林宫一直使用黄金储备在不受监管的市场洗钱，包括外汇。黄金是俄罗斯储备的四分之一，美国议员希望通过此法案有效遏止俄罗斯在入侵乌克兰的问题上通过黄金来摆脱制裁的作法。目前美国国会办公室一直在和财政部合作，财政部长Yellen定期和国会议员会面，讨论立法问题，财政部门一直在充实技术支援。
+视频&字幕：喜安娜
 
-除国会外，拜登总统可以直接采取措施封锁俄罗斯黄金储备。
+外媒最新报道，有无人机视频显示，乌克兰马里波尔城市在俄罗斯侵略军队的大规模进攻下，受到普遍的破坏，城市里平民建筑大量受损或成为废墟。
 
-撰稿、发布：骄子
+视频内容：
 
-reference：
+天空新闻确认这个视频显示乌克兰马里波尔被广泛破坏。平民建筑起火或成为被包围的城市中的废墟。这个视频拍摄的确切日期并未确认。
 
-[https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/](https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/)
+从以上内容，笔者认为，这是俄罗斯普京所发动的对乌克兰侵略战争，从天空视角得到的比较形象具体的人民受到伤害的信息。因为俄罗斯军队滥杀无辜，并违背国际公约，形成对平民的伤害，这些都是有力的证据。俄罗斯辩称，并未形成对平民的加害，那么这些视频上所显示的，都是最有力的控诉和驳斥。
 
-* * *
+俄罗斯普京所发动的乌克兰侵略战争必将不得人心，必将形成国际社会的一致性的反对和打压。正义必胜，真相必定会让更多人觉醒。力挺乌克兰，谴责发动战争的邪恶力量。
 
-欢迎订阅我们的GNews账号：
+参考消息：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+Ukraine: Briton who travelled to warzone to join military fight against Russia leaves over ‘suicide mission’ fears
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+[https://apple.news/AzBLHcY1XToW2GGLmfEEcWQ](https://apple.news/AzBLHcY1XToW2GGLmfEEcWQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

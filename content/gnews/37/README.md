@@ -2,29 +2,27 @@
 ---
 
 
-## 今日盖特大V推荐 — 右侧广播网（RSBN）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215550/)
+## 俄乌战争｜拜登今起访欧 计划制裁逾300名俄罗斯杜马议员
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2215368/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2622.png)
-盖特链接： [**https://gettr.com/user/rsbnetwork**](https://gettr.com/user/rsbnetwork)
+**图/文：CP**
+**发布时间｜23/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/拜登今起訪歐-計劃制裁逾300名俄羅斯杜馬議員-1.jpg)
 
-**右侧广播网自述：**
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-右侧广播网络。总部位于阿拉巴马州奥本。电报：@RSBNetwork，首席执行官@JoeSeale，电报：[**https://t.me/RSBNetwork**](https://t.me/RSBNetwork)， 当地新闻：**rsbn.locals.com**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2623.png)图片来源：网络
-**右侧广播网简介：**
 
-右侧广播网是一家媒体公司，由 Joe Seales 于2015年创立。他们以在其YouTube频道上直播唐纳德·川普的集会、市政厅和公共活动而闻名。在2020 年总统大选期间，右侧广播网对唐纳德·川普竞选集会的报道在 YouTube上获得了超过 1.27 亿次观看。
+美国总统拜登今日启程出访欧洲，期间会与北约、欧盟及波兰领袖会面，商讨俄乌战争的下一步应对方案。白宫国家安全顾问沙利文（Jake Sullivan）周二（22日）表示，美国会与盟友一起计划新一轮制裁俄罗斯的行动，总统拜登最快会于24日在布鲁塞尔的会议上公布。
 
-截至2022年1月，右侧广播网（RSBN）的频道拥有超过154万订阅者，总观看次数达到 2.35 亿。
+美媒引述一名知情官员的消息指，本轮制裁行动将与欧盟及七大工业国集团（G7）成员协调，目前尚未落实最终打击范围，但预计制裁将涵盖400人，包括328名国家杜马（State Duma，即下议院）议员及俄罗斯权贵。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+俄罗斯国家杜马上月通过决议，支持总统普京开展“特别军事行动”入侵乌克兰，其后再批准法案禁止以言论“抹黑”俄军，包括以入侵、战争字眼形容现时发生的对乌战事，违者最高刑罚15年，导致多家外国传媒撤离俄罗斯。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+來源｜[DailyMail](https://www.dailymail.co.uk/news/article-10641971/Biden-sanction-300-members-Putins-puppet-parliament-Duma.html)、[NYPost](https://nypost.com/2022/03/22/nsa-sullivan-us-to-impose-more-sanctions-ukraine-faces-hard-days-ahead/)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 
