@@ -2,33 +2,45 @@
 ---
 
 
-## 有声|中共引燃世界大战同时内部厮杀全面开始
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2214077/)
+## 乌克兰七岁女孩儿在基辅防空洞为慈善音乐会演唱国歌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2214630/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在3月13日的大直播中，郭文贵先生表示，中共一定会攻打台湾，并且在引燃世界大战的同时，其内部政治厮杀也将全面开始。
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-郭先生说，中共高官与他的通话很多还没有被披露出来，其内容将会让世人震惊。中共内部将会有许多齐奥塞斯库事件发生，但是中共一定会攻打台湾，注定要在灭亡前表演最后的疯狂。郭先生最核心的目的，就是避免更多的国人受到伤害，甚至给中共陪葬。
+翻译：li yan li
+编辑：朝花夕拾
 
-而胡舒立和中共安全部的许多高官被抓后还能活着，是因为孟建柱、王岐山、曾庆红和江泽民等人的势力还在，正与习近平进行激烈的斗争中。接下来，中共在点燃第三次世界大战火药桶的同时，其内部的政治厮杀也将全面开始。在20大之前，会有许多公众所熟悉的高官被拿下。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-92.jpg)图片来源：雅典娜设计组
 
-2022年是壬寅年、水虎年，也是真正的中国大变革之年，每时每刻，对新中国联邦都是非常重要的。
 
-文字版原文：[中共引燃世界大战同时内部厮杀全面开始](https://gnews.org/zh-hans/2176560/)
+乌克兰女孩在基辅防空洞中为慈善音乐会演唱《随遇而安》，她独自站在罗兹的阿特拉斯竞技场一个黑暗的舞台上，向沉默的人群唱着乌克兰国歌。场内座无虚席。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+阿米莉亚为在波兰举行的“与乌克兰在一起”慈善音乐会揭开序幕，音乐会现场有超过一万名观众，并向40个国家进行了直播。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+阿米莉亚的偶像，乌克兰歌手和演员蒂娜-卡罗尔还特别邀请她唱二重唱。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+乌克兰国歌的英文名称是Glory and Freedom of Ukraine Has Not Yet Perished。它是根据帕夫洛-丘宾斯基在1862年写的一首诗改编的，但根据BBC音乐杂志的报道，有几句话被稍微调整了一下。
+
+阿米利亚的演唱视频最初由玛尔塔-斯梅霍娃于3月4日发布在Facebook上，大约在俄罗斯入侵开始一周后。
+
+因为原始视频不再公开，很难说到底有多少人在基辅的地下室听过阿米利亚的歌声，但该片段的转贴却有数百万的浏览量。
+
+根据《独立报》的报道，在防空洞里呆了六个晚上后，她和她的哥哥一起来到了他们在波兰的祖母家的安全地带。
+
+她的父母留在基辅，帮助战争工作。
+
+阿米莉亚的母亲莉莉娅-阿尼索维奇在音乐会前几天赶到了波兰，但她的父亲罗曼仍然在基辅。
+
+新闻链接：[https://www.abc.net.au/news/2022-03-22/let-it-go-little-ukrainian-girl-amelia-bomb-shelter-concert/100928752](https://www.abc.net.au/news/2022-03-22/let-it-go-little-ukrainian-girl-amelia-bomb-shelter-concert/100928752)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,13 +2,39 @@
 ---
 
 
-## 拜登指俄罗斯考虑对乌克兰使用生化武器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2213416/)
+## 突发：台湾花莲近海凌晨持续发生强震
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2213700/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220323-1-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+作者：纽约香草山农场 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-64.png)
+当地时间3月23日，台媒报道花莲近海，凌晨1时41分39.9秒发生6.6级地震，震源深度30.6公里，震中位置离花莲县政府南62.6公里，台湾全岛发生剧烈震动。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-92.png)
+
+目前已发生多次余震，1时43分发生6.1级余震在花莲，1时46分、2时37分在台东县近海分别震级4.7和5.3级，截止凌晨3时35分，花莲近海又发生5.8级地震。
+
+地震已经造成局部公路坍塌，影响交通通行，台湾中央气象局预报未来三天还有余震。
+
+郭文贵先生大直播曾曝光，中共有潜水艇在台湾东部近海游弋。中共会利用台湾地质构造特性，用武器引发地震，制造台湾混乱，进而进一步侵台。
+
+资料链接:[https://www.cna.com.tw/news/ahel/202203235001.aspx](https://www.cna.com.tw/news/ahel/202203235001.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
+
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

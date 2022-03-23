@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月22日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2213756/)
+## 【乌克兰救援】新中国联邦咖啡为难民带去对美好新生活的向往和对苦难的暂时淡忘
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2213828/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-28.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-17.png)
+【乌克兰救援】03/20/22  来自世界各地的志愿者们互相帮助，新中国联邦的大帐蓬就像大家庭一样温暖，即使在战乱中，仍然绽放出人性的光辉。新中国联邦咖啡暂时让难民们忘却苦难，提醒人们，只要灭掉中国共产党这个苦难根源，我们会有美好的新生活。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p11eiju5544](https://gettr.com/post/p11eiju5544)
-访谈：[https://gettr.com/post/p11e66h41aa](https://gettr.com/post/p11e66h41aa)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-22.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

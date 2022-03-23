@@ -2,40 +2,27 @@
 ---
 
 
-## 上海管控混乱，民众怨声载道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2213807/)
+## 俄罗斯退出二战和平条约谈判 日本首相强烈抗议
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214001/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+俄罗斯外交部3月21日发表声明指出，由于日本就乌克兰局势作出不友好行为，俄方拒绝与日本进行关于签订第二次大战和平条约的谈判，并冻结日俄之间与千岛群岛争议领土相关的联合经济计划，以及取消日本公民免签入境。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-80.jpg)
+日本首相岸田文雄今日在参议院预算委员会上作出回应，他认为俄方的举动极不合理，日方绝对不能接受，并强烈抗议。日本和俄罗斯因为北方四岛主权的争议，一直相持不下，至今未正式签订二战和平条约。
 
-整理：gardeniahu
-编辑：文泓
+自从俄罗斯入侵乌克兰后，日本陆续公布多项制裁俄罗斯的措施，包括禁止向乌克兰亲俄地区顿涅茨克以及卢甘斯克的有关人士发出签证，冻结有关人士的相关资产，并禁止相关地区的进出口贸易等等。上周，日本还追加宣布打算撤销俄罗斯最惠国待遇、扩大对俄罗斯菁英资产冻结范围等制裁计划。俄罗斯可能因此今日以拒绝谈判、取消免签等措施对日本作出反制。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-267.png)图片来源：Bloomberg & 雅典娜设计组
+参考链接：
+1. [遭日本制裁惱羞成怒 俄羅斯退出二戰和平條約談判](https://www.rti.org.tw/news/view/id/2127892)
+2. [Japan protests Russian halt to World War Two peace treaty talks](https://www.reuters.com/world/russia-halts-japan-peace-treaty-talks-over-sanctions-2022-03-21/)
 
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-据大纪元3月21日报道，近日大陆多地疫情失控。上海本土感染者持续上升，封控区域范围扩大，频繁核酸检测，出现管控混乱现象，部分区域出现买菜难、菜价贵等现象。民众对当局的极端防控极为不满、怨声载道。
-
-上海浦东、静安、黄浦、徐汇、普陀等区3月20日规定，21日至27日，民众上班需要持16日至20日任一天的核酸检测阴性报告。
-
-3月21日，中共卫健委称，近期报告的阳性感染者数量较多，已临时增加集中隔离点，上海三天核酸筛查三千多万人次。
-
-目前上海疫情管控存在两个问题，一是物资短缺；二是居民不知何时解封，人心惶惶。随着管控范围扩大及频繁核酸检测，频现管控混乱的现象，引发民众强烈不满。
-
-3月20日，“上海北蔡疫情”话题，登上新浪微博的热搜，当地民众投诉买不到菜或菜价贵等问题。北蔡民众表示，现在主流的电商平台都是需要抢的，秒光的。你登录上去就没有菜了，菜单栏上面全是空的；还有一种是你能选菜但是没有办法配送；不仅如此，还有老人需要看病无法出小区，原因是核酸检测未完成，救护车也进不来，老人也出不去；同时特殊类的药品也出现短缺现象。
-
-网友表示，北蔡乃至浦东许多地方一望无际的隔离简直是灾难，谁能想到在国际一线城市、中国的经济中心上海隔离期间的民生保障（生活物资、配菜、医疗）和应急预案（多半是没有）居然如此Low。
-
-同期大陆本土感染者持续飙升，但是，由于中共惯于掩盖疫情真相，官方数字一直被外界质疑严重低估。
-
-参考链接：[上海封闭管控 居民怨声载道](https://www.epochtimes.com/gb/22/3/21/n13661192.htm)
-
-*发布：*tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

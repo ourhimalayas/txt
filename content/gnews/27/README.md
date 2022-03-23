@@ -2,12 +2,29 @@
 ---
 
 
-## 【乌克兰救援】新中国联邦咖啡为难民带去对美好新生活的向往和对苦难的暂时淡忘
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2213828/)
+## 俄罗斯地方法院裁定Meta为极端组织
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214002/)
 
-【乌克兰救援】03/20/22  来自世界各地的志愿者们互相帮助，新中国联邦的大帐蓬就像大家庭一样温暖，即使在战乱中，仍然绽放出人性的光辉。新中国联邦咖啡暂时让难民们忘却苦难，提醒人们，只要灭掉中国共产党这个苦难根源，我们会有美好的新生活。
+作者：日本东京方舟农场-Miyali7768(文玉）/台湾宝岛农场-港台前线
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+俄罗斯莫斯科维特尔地方法院周一(21日)裁定Meta从事“极端活动”罪成，旗下Facebook及Instagram为“极端组织”，禁止在俄罗斯运作。这是当地首次对海外科技企业，使用针对极端主义罪行的法律。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+俄罗斯联邦安全局代表在庭上对Meta提出指控时指出，“Meta组织的活动旨在针对俄罗斯武装部队，要求法庭封锁Meta服务，并请求立刻执行。 Meta的律师则反驳指，俄罗斯没有权限裁定案件，因为Meta是海外注册公司，在当地没有业务。最后地方法院还是选择接纳控方提出的指控，正式对Facebook以及Instagram实施封锁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-81.jpg)
+自俄罗斯入侵乌克兰后，Facebook因限制用户接触俄罗斯媒体，早前已被俄罗斯当局禁制。Meta其后放宽仇恨言论政策，容许乌克兰等12个国家或地区用户发布对俄罗斯总统普京及俄罗斯士兵使用暴力言论。不久，Instagram也遭到封禁。Meta其后修订指引，禁止用户发布威胁暗杀国家元首的帖文。
+
+截至目前，Meta方面还未就裁决作出回应，也未知是否会上诉。不过，Meta旗下即时通讯软件WhatsApp暂时没有受到裁决影响。
+
+参考链接：
+1. [Russian court bans Facebook, Instagram after Meta found ‘extremist’- TASS](https://gettr.com/post/p115u7w392e)
+2. [俄羅斯地方法院裁定臉書母公司Meta為極端組織](https://gnews.org/zh-hant/2208297/)
+
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

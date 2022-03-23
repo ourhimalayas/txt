@@ -2,44 +2,39 @@
 ---
 
 
-## 乌克兰七岁女孩儿在基辅防空洞为慈善音乐会演唱国歌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2214630/)
+## 被救中共国留学生不愿回国，前往土耳其
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214705/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
-
-翻译：li yan li
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-92.jpg)图片来源：雅典娜设计组
+作者：澳喜农场 – Leo M
 
 
-乌克兰女孩在基辅防空洞中为慈善音乐会演唱《随遇而安》，她独自站在罗兹的阿特拉斯竞技场一个黑暗的舞台上，向沉默的人群唱着乌克兰国歌。场内座无虚席。
 
-阿米莉亚为在波兰举行的“与乌克兰在一起”慈善音乐会揭开序幕，音乐会现场有超过一万名观众，并向40个国家进行了直播。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-阿米莉亚的偶像，乌克兰歌手和演员蒂娜-卡罗尔还特别邀请她唱二重唱。
 
-乌克兰国歌的英文名称是Glory and Freedom of Ukraine Has Not Yet Perished。它是根据帕夫洛-丘宾斯基在1862年写的一首诗改编的，但根据BBC音乐杂志的报道，有几句话被稍微调整了一下。
 
-阿米利亚的演唱视频最初由玛尔塔-斯梅霍娃于3月4日发布在Facebook上，大约在俄罗斯入侵开始一周后。
+3月20日，郭文贵先生在大直播中透露，有3名中共国留学生被新中国联邦和法治基金救出后，没有选择回到中共国，而是去了土耳其。
 
-因为原始视频不再公开，很难说到底有多少人在基辅的地下室听过阿米利亚的歌声，但该片段的转贴却有数百万的浏览量。
+自俄罗斯入侵乌克兰以来，中共表面中立，实际大力支持俄罗斯：迅速发动网军传播挺俄视频，并对乌克兰人的苦难幸灾乐祸，协助俄罗斯规避西方国家制裁等，都导致乌境内的中国人处于非常危险的境地，不是遭遇俄军的炮火，就是遭受乌克兰人的怒火。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-9.jpg)
+中共匆匆宣布撤侨完毕，实际上是将乌境内的国人弃之不顾，甚至让他们面临被灭口的命运。新中国联邦和法治基金在乌境内救出留学生送到波兰克拉科夫后，有些留学生反映，当初他们听信中共使馆宣传，等待使馆救援但是救援迟迟不来，差点丢了性命。如今被新中国联邦救出，又害怕中共迫害，在大陆有家不敢回，只能逃往其他国家。
 
-根据《独立报》的报道，在防空洞里呆了六个晚上后，她和她的哥哥一起来到了他们在波兰的祖母家的安全地带。
+目前，土耳其签证比较宽松，有部分人选择了从波兰前往土耳其。
 
-她的父母留在基辅，帮助战争工作。
+参考链接：
+[2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://gettr.com/post/p10y5j870c5)
 
-阿米莉亚的母亲莉莉娅-阿尼索维奇在音乐会前几天赶到了波兰，但她的父亲罗曼仍然在基辅。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-新闻链接：[https://www.abc.net.au/news/2022-03-22/let-it-go-little-ukrainian-girl-amelia-bomb-shelter-concert/100928752](https://www.abc.net.au/news/2022-03-22/let-it-go-little-ukrainian-girl-amelia-bomb-shelter-concert/100928752)
+总编：DM
+编辑/审核：飞虹
+校对/发稿：为真不破20
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

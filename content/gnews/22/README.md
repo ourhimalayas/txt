@@ -2,30 +2,24 @@
 ---
 
 
-## 俄罗斯地方法院裁定Meta为极端组织
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214002/)
+## 樱花时政┃突发!沈阳封城
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2214532/)
 
-作者：日本东京方舟农场-Miyali7768(文玉）/台湾宝岛农场-港台前线
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-俄罗斯莫斯科维特尔地方法院周一(21日)裁定Meta从事“极端活动”罪成，旗下Facebook及Instagram为“极端组织”，禁止在俄罗斯运作。这是当地首次对海外科技企业，使用针对极端主义罪行的法律。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-254.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fpic.cyol.com%2Fimg%2F20210117%2Fimg_9600957f96a087dbf13b8dacb4902c6d698b.jpeg&amp;imgrefurl=http%3A%2F%2Fm.cyol.com%2Fapp%2F2021-01%2F17%2Fcontent_18921253.htm&amp;tbnid=AaxF3P6j0_NoIM&amp;vet=10CCwQMyh3ahcKEwjAiMa)
+“沈阳发布”微信号3月23日早间消息，沈阳市中共病毒（新冠肺炎）疫情防控指挥部发布《关于做好全市第四轮、第五轮、第六轮全员核酸检测的通告》。通告称，沈阳市疫情防控指挥部决定，3月24日至30日期间，在全市范围开展第四轮、第五轮、第六轮全员核酸检测。
 
-俄罗斯联邦安全局代表在庭上对Meta提出指控时指出，“Meta组织的活动旨在针对俄罗斯武装部队，要求法庭封锁Meta服务，并请求立刻执行。 Meta的律师则反驳指，俄罗斯没有权限裁定案件，因为Meta是海外注册公司，在当地没有业务。最后地方法院还是选择接纳控方提出的指控，正式对Facebook以及Instagram实施封锁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-81.jpg)
-自俄罗斯入侵乌克兰后，Facebook因限制用户接触俄罗斯媒体，早前已被俄罗斯当局禁制。Meta其后放宽仇恨言论政策，容许乌克兰等12个国家或地区用户发布对俄罗斯总统普京及俄罗斯士兵使用暴力言论。不久，Instagram也遭到封禁。Meta其后修订指引，禁止用户发布威胁暗杀国家元首的帖文。
+除保障城市运行的交通外，全市地铁、有轨电车、常规公交运营暂停。出租车、网约车不停运，对确因就医等特殊情况需搭乘公共交通工具的，以及机场、火车站等来（返）沈市民乘客，可选择乘坐出租车和网约车，乘坐时需提供48小时内核酸检测阴性证明。全市住宅小区、村屯实行封闭式管理。
 
-截至目前，Meta方面还未就裁决作出回应，也未知是否会上诉。不过，Meta旗下即时通讯软件WhatsApp暂时没有受到裁决影响。
+截至3月22日24时，沈阳本轮疫情共发现本土阳性感染者301例。
 
-参考链接：
-1. [Russian court bans Facebook, Instagram after Meta found ‘extremist’- TASS](https://gettr.com/post/p115u7w392e)
-2. [俄羅斯地方法院裁定臉書母公司Meta為極端組織](https://gnews.org/zh-hant/2208297/)
+消息来源:
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+[突发！沈阳全市住宅小区、村屯实行封闭式管理，地铁、有轨电车、常规公交运营暂停！本轮累计感染超300例](http://www.nbd.com.cn/articles/2022-03-23/2180507.html)
 
-总编/编辑/审核：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
