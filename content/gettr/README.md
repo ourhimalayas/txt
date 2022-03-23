@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 11:06 PM (UTC)`
+
+How a team of Italian journalists see the New Federal State of China. They produced such a beautiful piece! Thank you!<br/><br/>意大利记者眼中的新中国联邦：意大利记者团队采访新中国联邦前线记者精粮……，其制作的关于新中国联邦前线救援的视频精美绝伦
+![img](https://media.gettr.com/group27/getter/2022/03/23/23/344cd4f0-5738-5766-f3ca-4872dedd6257/out.jpg)
+
+---
+
+`@miles 3/23/2022 11:00 PM (UTC)`
+
+2022.03.23 NFSC News  No survivors found from the abnormal China Eastern Airlines crash； Medyka Frontline Fellow fighters Visit Local Refugee Reception Center 
+![img](https://media.gettr.com/group42/origin/2022/03/23/22/dd19f301-f5cc-e039-f903-4c2ef37e6067/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/23/2022 10:12 PM (UTC)`
 
 3/23/2022 Miles Guo: The truth about the China Eastern Airlines plane crash was a man-made suicidal act! In retaliation for the CCP's mistreatment of him, the death of his family from the COVID vaccine and being cheated out of money by the government and the company, someone had orchestrated the plane crash since January. With the outbreak of the COVID vaccine disaster, there will be numerous incidents of retaliation against society in Communist China. The CCP is destroying the world, so we must take down the CCP ASAP!<br/><br/><br/>3/23/2022 文贵直播：东航空难的真相是人为的自杀事件！为了报复中共对其虐待、家人打疫苗死以及被政府和公司骗钱，有人从1月份开始精心策划了这场空难；随着疫苗灾难的爆发，中共国报复社会的事件将层出不穷，中共在毁灭世界，必须赶紧灭共！
@@ -137,20 +151,6 @@ Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscr
 
 《不一樣的我們》<br/>作詞：文雍<br/>演唱：Quana 齊天二聖<br/><br/>The Extraordinary Ones<br/>Lyrics / Wen Yong<br/>Vocals / Quana<br/><br/>謹以此曲獻給為烏克蘭救援默默付出的新中國聯邦人<br/>This song is dedicated to the citizens of The New Federal State of China who have devoted themselves to the Ukraine Rescue Operation<br/><br/>我是一個平凡的人<br/>偶然間推開一扇門<br/>那藍色海洋上的星辰<br/>喧囂中把我指引<br/><br/>I am an ordinary person<br/>Who happened to open a door<br/>The stars above the azure ocean<br/>Are guiding me through the noises and chaos <br/><br/>我是一個普通的人<br/>多幸運變成了我們<br/>在硝煙彌漫中追尋<br/>正道與信仰長存<br/><br/>I am just an average person<br/>How blessed I am to become one of us<br/>As the flames of war raging across the world<br/>We are pursuing the everlasting righteousness and faith<br/><br/>蒲公英在天空中飄蕩<br/>讓夢想帶著希望去遠方<br/>母親的淚光 依稀的過往<br/>那思念 點亮了方向<br/><br/>Dandelions drifting across the sky <br/>Let our prayers guide us in distant places and through difficult times <br/>………………………<br/>
 ![img](https://media.gettr.com/group14/getter/2022/03/23/05/71d4a650-12f1-f8fb-feaa-b94877e10402/out.jpg)
-
----
-
-`@miles 3/23/2022 4:54 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报导
-![img](https://media.gettr.com/group41/origin/2022/03/23/04/c26f682e-978a-70e7-182b-d636556be791/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/23/2022 4:50 AM (UTC)`
-
-3/22/2022 Miles Guo’s GETTR: What does it mean for Weijian Shan to be a member of Alibaba's audit committee? PAG is a financial fraud syndicate of the CCP. It's the biggest accomplice of the CCP to defraud the US pension funds. Weijian Shan's whole family are CCP agents, and he will spend the rest of his life in prison.<br/><br/><br/>3/22/2022 文贵盖特：单伟建担任阿里巴巴审计委员会成员意味着什么？太平联盟就是中共的金融诈骗集团，是中共骗取美国养老金最厉害的打手之一；单伟建全家是中共专业特务，一定告死它们
-![img](https://media.gettr.com/group9/getter/2022/03/23/04/985c973d-0a57-a5c3-498c-7c9bb080e76e/out.jpg)
 
 ---
 
