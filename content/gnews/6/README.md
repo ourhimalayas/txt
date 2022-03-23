@@ -2,23 +2,23 @@
 ---
 
 
-## 拜登访欧将团结盟友对俄罗斯实施新制裁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217676/)
+## 美国目前三分之一的中共病毒病例由Omicron BA.2引起
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217776/)
 
-##### 作者：加拿大温哥华扬帆农场 – 活力人生
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-42.jpg)
-据【路透社】及【NDTV】3月22日报道，美国总统乔·拜登将在本周访问欧洲期间寻求加强西方团结，并宣布对俄罗斯实施新的制裁。
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-44.jpg)
+美国政府周二发布的数据显示，目前美国约有三分之一的中共病毒病例是由BA.2 Omicron亚型冠状病毒引起的。数据还显示，自1月以来，美国的中共病毒感染病例大幅减少，总体感染人数仍较1月的创纪录高点有所下降。截至3月19日，美国的中共病毒病例的7天移动平均值为27747例，比一周前下降了近18%。
 
-报道称，拜登将于本周三前往北约和欧盟总部所在地布鲁塞尔，与其他北约和欧洲领导人会面，并与盟友一起在周四推出进一步的对俄制裁计划。新计划不仅将重点放在增加新的制裁上，还将确保共同努力打击逃避制裁的行为。美国还希望就俄罗斯的 G20 成员资格与盟国进行磋商。
+尽管这种极具传染性的亚型在其他国家也出现了增长，但美国卫生专家说，在美国出现一波新的感染浪潮似乎不太可能。
 
-此外，拜登也将就中共国可能援助俄罗斯的问题与盟友进行讨论。到目前为止，北京拒绝谴责普京的侵略或支持西方制裁。美国的主要目标是确保中共政权不会通过救助俄罗斯经济，或提供武器等方式对俄罗斯进行援助。
+世界卫生组织(WHO)说，这种亚型比引起冬季大规模流感的Omicron BA.1亚型更具传染性。 然而，它似乎没有引起更严重的疾病，早期数据显示，感染BA.1对BA.2的再感染有很强的保护作用。
 
-原文链接：[https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+华盛顿大学健康指标与评估研究所(IHME)周一更新了其备受关注的预测，预计未来几周美国的冠状病毒病例不会大幅激增。
 
-[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
+原文链接：[https://torontosun.com/news/world/some-35-of-new-u-s-covid-cases-caused-by-omicron-ba-2-variant-cdc](https://torontosun.com/news/world/some-35-of-new-u-s-covid-cases-caused-by-omicron-ba-2-variant-cdc)
 
 编辑/上传 – 大废墙
-素材/采编 – 活力人生
+素材/采编 – 重生之鹰
 
 * * *
 

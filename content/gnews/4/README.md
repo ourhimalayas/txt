@@ -2,28 +2,30 @@
 ---
 
 
-## 瑞士银行将因全新数字货币而不复存在
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2217705/)
+## 渥太华警方承认自由车队与公寓纵火案无关
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217809/)
 
-采编：加拿大温哥华杨帆农场 – 晨熹
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-60.png)
+据加拿大媒体【真北方】3月21日报道，渥太华警方已排除自由车队参与了今年2 月 6 日在Lisgar 街的公寓纵火案，目前该抗议活动仍在继续。
 
-编辑撰稿：加拿大温哥华杨帆农场 – 硫酸羟氯喹64
+警方现已对纵火案中的一名嫌犯提起诉讼，另一名嫌犯正在寻找确认中。早前包括渥太华市长吉姆·沃森，以及自由党议员瑞安·特恩布尔为代表的一些联邦政客，都曾在不同场合将此纵火案犯罪归咎于自由车队示威者并公开指责抗议者纵火，他们试图共同将自由车队的抗议司机们抹黑为极端分子和国内恐怖分子。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1-12.jpg)图片来源：Gettr
+原文链接：[https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/](https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/)
 
+编辑/上传 – 大废墙
+素材/采编 – 文莱
+翻译 – 晨熹
 
-据3月20日文贵先生直播报道，自诩为世界上最合法，安全和中立的瑞士银行，在本次欧美对俄罗斯因入侵乌克兰的制裁中，已彻底暴露出该银行洗钱犯罪，贪赃敛财的本质。
+* * *
 
-报道指出，瑞士银行实际上并非中立，其保密原则仅限于巨额非法资金。长期以来，该银行以“金融独立”名义，为包括中共、俄罗斯、北韩、伊朗、中东王室以及前伊拉克等专制独裁政权洗钱，藏钱，窝屯其盗国财富。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-但随着以上各独裁政权即将全面瓦解，以及全新数字货币时代的到来，一切人类社会和金融秩序都将回归到真正的守法，公平和安全等原则，而瑞士银行曾根深蒂固的隐秘金钱帝国将因此不复存在。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [https://gettr.com/post/p10y5j870c5](https://gettr.com/post/p10y5j870c5)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

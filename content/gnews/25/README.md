@@ -2,23 +2,24 @@
 ---
 
 
-## 樱花时政┃日本法务大臣即将前往波兰 协调乌克兰难民问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2217256/)
+## 喜悦突发——第1期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2217446/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-45.jpg)[图片来源](https://unf.imgix.net/2022/03/UkraineRefugees.jpeg?auto=compress%2Cformat&amp;fit=scale&amp;h=683&amp;ixlib=php-3.3.0&amp;w=1024&amp;wpsize=blog-content-image)
-日本政府正在做最终调整，准备派遣法务大臣古川作为岸田首相的特使前往波兰，协调流离失所的乌克兰难民问题。
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**突发事件，第一时间报道，最快传递了解信息。**
 
-据消息人士透露，目前波兰已经接收了大量来自乌克兰的难民，此次古川法务大臣前往波兰，将讨论向波兰政府提供财政和人力资源援助，以及在日本接收难民的问题。访问日程预计在本月26日至27日进行，并将在岸田首相从比利时G7峰会返回后，立即乘坐政府专机前往。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/XYTF220322.001.jpeg)
 
-信息源：
+发稿：信心的选择
 
-[ウクライナ避難民支援へ　古川法相のポーランド派遣を最終調整](https://news.yahoo.co.jp/articles/188af74ed56bd2a6ccfba995c55aae03d107303a#:~:text=%E3%82%)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
 
  
 
