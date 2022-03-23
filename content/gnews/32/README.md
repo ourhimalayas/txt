@@ -2,32 +2,29 @@
 ---
 
 
-## 突发：完全接种+加强针的希拉里Covid-19 检测呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218059/)
+## 2022.3.23大直播 抛开形式主义 做唯真不破的新中国联邦人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2218123/)
 
-编译： Jenny Ball
+撰稿：大浪小水花
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2697.png)图片来源：thegatewaypundit.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-23-at-8.16.57-PM.jpeg)
 
-两次总统竞选失败的74 岁的希拉里·克林顿 (Hillary Clinton) 周二检测出 Covid-19 呈阳性。
 
-希拉里说，丈夫比尔检测呈阴性，“感觉很好”。
+在2022年3月23日的大直播中，郭文贵先生跟梅迪卡救助站一线的战友连线时，指出了目前前线战友的两个错误想法。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2699.png)图片来源：thegatewaypundit.com
+郭先生提到，救援前线多位战友向他反映，目前来救助站的乌克兰难民数量大幅下降，大家都希望能采取措施吸引更多难民来救助站。郭先生提醒战友们，这次救援行动目的是救人，而不是提供服务。，
 
-“我的新冠病毒检测呈阳性。我有一些轻微的感冒症状，但感觉很好。我比以往任何时候都更加感谢疫苗可以提供针对严重疾病的保护。如果您还没有接种，请接种并打加强针！” 克林顿周二晚间表示。
+郭先生指出我们应该希望救援帐篷里一个难民都没有，因为难民少了说明战争的形势是对整个邪恶的势力对俄罗斯不利的，我们应该开心才对。
 
-**评论：这要多么脑残才得出这样的结论？所以，不要迷信任何身居高位的人，用常识更能保护自己！**
+郭先生还谈到另外一个问题，有战友担心前线战友染病会造成负面影响，建议把染病战友替换回来。
 
-素材链接：[thegatewaypundit.com ][BREAKING: Fully Vaxxed \*And Boosted\* Hillary Clinton Tests Positive For Covid-19](Fully%20Vaxxed%20*And%20Boosted*%20Hillary%20Clinton%20Tests%20Positive%20For%20Covid-19)
+郭先生强调，越是这种情况下，战友们越要坚持下去，越要继续救下去。这才能证明新中国联邦人不惧疾病，不惧死亡，不惧危险，无私无我。
 
-* * *
+郭先生指出，严格讲这场俄乌战争是对新中国联邦战友的人格、道德、人性的一场考验，是我们心中有多少共产党的毒的一场战争。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
+郭先生忠告战友们不要搞任何形式主义，爆料革命新中国联邦就是要灭共，就是要做一个被全世界承认的一个有道德、有秩序、有秩序、有文明，守信用、唯真不破的中国人。
 
+参考链接：[2022年3月23日文贵大直播](https://gettr.com/streaming/p11h7xt9462)
 
  
 
