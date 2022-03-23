@@ -2,18 +2,36 @@
 ---
 
 
-## 中共国如被踢出swift系统将面临“国家中风”级别的灾难（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2214363/)
+## 剑指中共 美国最大远征基地舰首次现身南中国海
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2214625/)
 
-**PPT制作: 小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-30_9-40二5.png)
-*发布：*tianzhihuan
+来自新加坡早报 /
+2022年3月23日 10:54 AM 报导
+采集：玫瑰新闻组
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-3.jpg)
+
+
+
+
+
+![南中国海- 维基百科，自由的百科全书](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ed/Karta_CN_SouthChinaSea-zh.png/250px-Karta_CN_SouthChinaSea-zh.png)
+
+以下原文內容：美国最大远征基地舰首次现身南中国海，这是该舰去年10月部署至西太以来首次到南中国海活动。
+
+据中国智库“南海战略态势感知”消息，卫星昨天（22日）在南中国海巴士海峡西南发现了美国海军“米格尔•基思”号（USS Miguel Keith）远征基地舰和一艘勃克级（Arleigh Burke Class）驱逐舰。
+
+这是该舰去年10月部署至西太以来首次到南中国海活动。 “米格尔•基思”号排水量9万多吨，仅次于航母，能起降各型直升机，并提供后勤支持，或作为指挥和控制中心。
+
+美国国防部与美国海军的官网尚未公布有关“米格尔•基思”号现踪南中国海的消息。中国航空母舰山东号18日曾穿越金门附近海域，当时甲板并无舰载机，附近似也没有护卫舰。
+
+新闻链接：
+[美国最大远征基地舰首次现身南中国海](https://www.zaobao.com.sg/realtime/china/story20220323-1255148)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

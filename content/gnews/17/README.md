@@ -2,31 +2,30 @@
 ---
 
 
-## 有声|中共病毒肆虐香港，棺材和殓房已用尽
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2214076/)
+## 中日财经爆| 中共驻俄大使蛊惑中企加速布局俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2214410/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-3月18日外媒报道，香港中共病毒大爆发，港共政府采取清零政策，关闭了商店和街头抗议活动。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-149.jpg)[图片来源](https://www.kzaobao.com/cngov/2022-03/01111553.html)
+俄罗斯军事入侵乌克兰后，西方对俄祭出强力经济制裁，全球跨国企业纷纷撤出俄罗斯。但是中共当局却逆世界形势，反而蛊惑中企加速布局俄罗斯。
 
-目前，香港的剧院、博物馆、学校、健身房和图书馆全部关闭，这恐将迫使人们患上了幽闭恐惧症。港共政府还在推行中共病毒疫苗接种。无论哪一种方式，全封闭隔离或者接种中共病毒疫苗，不但没有控制中共病毒大爆发，甚至导致更多死亡病例。 香港目前的死亡率居世界之最，棺材和停尸房间已经用尽，死去的人的尸体胡乱堆积在医院的病房。
+中共驻俄大使张汉晖20日向当地中企表示，在俄中企要“不失时机”地抓住当前“危机中的重大机遇”，调整业务结构，填补俄国市场空白。
 
-中共病毒大流行之前，香港人争取自由，走上街头的抗议活动频繁发生。中共最开始就是企图用病毒生化武器来压制香港的民主运动，杀害香港人。自中共病毒大流行以来，港府禁止在公共场合聚集超过四人。目前，无论是在香港本地，或者想要离开香港的人，都要接受严苛的中共病毒政策，包括隔离和清零政策。
+根据俄罗斯孔子文化促进会微信公众号，张汉晖20日在莫斯科向10余名中企主管作上述表示。但根据内容，他在说明中，并未明白提到与俄罗斯遭西方国家”制裁”有关的字眼。
 
-文字版原文：[中共病毒肆虐香港，棺材和殓房已用尽](https://gnews.org/zh-hans/2199165/)
+张汉晖还建议在俄中企“不要等”，要整合资源，尽快适应“新的形势”。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+他向这些在俄中企主管说，当前国际形势复杂，大型企业经贸往来的结算方式、供应链，遇到很大的困难，甚至中断。这时候，正是民企和中小企业发挥作用的时候。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+张汉晖表示，中共政府正根据新的情况，尽快调整和理顺各种管道，尤其是针对结算、物流等突出问题，搭建新的平台。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+消息来源:
+
+[中国驻俄大使：中企把握时机切入俄国市场空白](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E9%A7%90%E4%BF%84%E5%A4%A7%E4%BD%BF-%E4%B8%AD%E4%BC%81%E6%8A%8A%E6%8F%A1%E6%99%82%E6%A9%9F-%E5%88%87%E5%85%A5%E4%BF%84%E5%9C%8B%E5%B8%82%E5%A0%B4%E7%A9%BA%E7%99%BD-101207454.html)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
