@@ -2,30 +2,18 @@
 ---
 
 
-## 香草山对魏丽红诈骗团伙的诉讼取得重大胜利
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2212987/)
+## 在swift系统里就要守统一的规矩swift惩罚的都是不守规矩的独裁国家（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213175/)
 
-【撰稿】纽约香草山健身部—Ivy001
-![](https://cdn.discordapp.com/attachments/942383583690125322/955857013156507708/image0.jpg)
-3月22日，来自长岛伟哥盖特消息：香草山农场代表战友们对九指妖魏丽红团伙欺诈行为的民事诉讼取得重大胜利。
+**PPT制作: WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20_9-30一1.png)
+*发布：*tianzhihuan
 
-2020年开始，魏丽红告诉爆料革命战友，她可以帮助战友投资GTV，战友们纷纷汇款到魏丽红指定账号。随后，魏丽红及其同伙陈其声（海洋），利用战友们对她的信任，非法挪用战友们的投资款去进行个人房地产投资，并企图通过非法手段侵吞战友的投资款。魏丽红团伙的险恶居心暴露后，战友们要求其退还投资款，被其以种种借口拖延和拒绝。有见及此，战友们向农场求助，香草山农场代表战友们对魏丽红诈骗团伙提起诉讼，要求其退还战友们的投资款。
-
-3月14日，亚利桑那州联邦法庭作出判决，认定魏丽红及其同伙陈其声（海洋）无故拒绝到庭应答诉讼，因此以香草山农场为原告，对其欺诈行为的诉讼，可以在他们缺席的状况下继续进行。
-
-被告陈其声在法庭决定的当天，通过其律师向法庭递交了取消这一判决动议的申请，并表示愿意与香草山农场合作，以避免进一步的不利判决。
-
-3月14日的法庭判决，再次验证爆料革命的“唯真不破”，任何企图把手伸进战友腰包的人，都不会成功，并要负上相应的法律责任。正义可能会延迟，但永远不会缺席！
-
-校对/发稿：菩提树
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/E49D5607-66A0-4EB9-8D01-EB79678E759D.jpeg)
-
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

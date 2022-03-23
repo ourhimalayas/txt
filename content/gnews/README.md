@@ -15,119 +15,119 @@
 
 ---
 
-### [七哥金句：国家的教育和环境之间的关系](/content/gnews/1/README.md)
+### [七哥金句：共产党的噩梦](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [日本首次发布“电力供应紧张警报”](/content/gnews/2/README.md)
+### [郭文贵先生2022年3月22日盖特视频（9分35秒）全文字版](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美官员：俄军士兵缺乏防寒装备被冻伤](/content/gnews/3/README.md)
- ` 蓝莲花农场`
+### [3/22/2022 文贵盖特：欧洲国家在大量购买粮食现货，黄金却在打折卖，说明了什么？昨天 Akamai关于喜币的文章在华尔街和整个金融界引起轰动](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
 
-### [在swift系统里就要守统一的规矩swift惩罚的都是不守规矩的独裁国家（一）](/content/gnews/4/README.md)
+### [“乌克兰的荣耀并没有消亡”，历史悠久的国歌响彻世界](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [七哥金句：新中国联邦最精彩的三件事](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [为战友们高歌（二）](/content/gnews/5/README.md)
+### [七哥金句：共产党拿下香港3处的原因](/content/gnews/6/README.md)
  ` 雅典娜GNotes`
 
-### [为战友们高歌（一）](/content/gnews/6/README.md)
+### [樱花时政┃停战无期 泽伦斯基总统将在日本议会发表演讲](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃本周召开的北约和G7会议 ，美欧剑指中共](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥金句：战争是残酷无情的](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [普京要战争继续 乌克兰仍看不到和平（1/2）](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [日本首次发布“电力供应紧张警报”](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯入侵乌克兰的本质是什么？独裁国家又在惧怕什么？](/content/gnews/8/README.md)
+### [在swift系统里就要守统一的规矩swift惩罚的都是不守规矩的独裁国家（一）](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [俄罗斯入侵乌克兰的本质是什么？独裁国家又在惧怕什么？](/content/gnews/12/README.md)
  ` KarmaLabs`
 
-### [基辅购物中心遭空袭 俄却称火箭弹药基地](/content/gnews/9/README.md)
- ` 蓝莲花农场`
+### [乌克兰的民主政治制度是普京攻打乌克兰的本质原因](/content/gnews/13/README.md)
+ ` thedawn`
 
-### [岸田首相敦促团结对抗俄罗斯和中共国 首脑外交活动正在全面展开（上）](/content/gnews/10/README.md)
+### [岸田首相敦促团结对抗俄罗斯和中共国 首脑外交活动正在全面展开（上）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [香草山对魏丽红诈骗团伙的诉讼取得重大胜利](/content/gnews/11/README.md)
+### [香草山对魏丽红诈骗团伙的诉讼取得重大胜利](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [【G时新闻】政府向公众隐瞒疫苗真相进行未经同意的人体实验](/content/gnews/12/README.md)
+### [【G时新闻】政府向公众隐瞒疫苗真相进行未经同意的人体实验](/content/gnews/16/README.md)
  ` G-时新闻`
 
-### [格伦海德：特斯拉交出首批“德国制造“的汽车](/content/gnews/13/README.md)
+### [格伦海德：特斯拉交出首批“德国制造“的汽车](/content/gnews/17/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [山东威海环翠区田和街道柴峰小区居民能不能提上裤子？](/content/gnews/14/README.md)
+### [山东威海环翠区田和街道柴峰小区居民能不能提上裤子？](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【粤语配音】2022年3月22日：世界粮食大战已经全面开始](/content/gnews/15/README.md)
+### [【粤语配音】2022年3月22日：世界粮食大战已经全面开始](/content/gnews/19/README.md)
  ` MOS香港部`
 
-### [拜登总统在与习近平的通话中表达了对台湾的支持](/content/gnews/16/README.md)
+### [拜登总统在与习近平的通话中表达了对台湾的支持](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [克里姆林宫希望只有“生存威胁”的情况下使用核武器](/content/gnews/17/README.md)
+### [克里姆林宫希望只有“生存威胁”的情况下使用核武器](/content/gnews/21/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [普京演讲承诺克里姆林宫的所有目标都将实现](/content/gnews/18/README.md)
+### [普京演讲承诺克里姆林宫的所有目标都将实现](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [国际律师协会新应用帮助乌克兰收集普京战争罪证据](/content/gnews/19/README.md)
+### [国际律师协会新应用帮助乌克兰收集普京战争罪证据](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国发生严重空难事故](/content/gnews/20/README.md)
+### [中共国发生严重空难事故](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [德国总统和挪威国王病毒阳性](/content/gnews/21/README.md)
+### [德国总统和挪威国王病毒阳性](/content/gnews/25/README.md)
  ` Shuizhuyu`
 
-### [“幸福国”的悲惨事件——深圳沙尾某被封小区有女子跳楼](/content/gnews/22/README.md)
+### [“幸福国”的悲惨事件——深圳沙尾某被封小区有女子跳楼](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃政客们会在投票箱里感到滞胀](/content/gnews/23/README.md)
+### [樱花时政┃政客们会在投票箱里感到滞胀](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2022/03/22 英喜时事速递](/content/gnews/24/README.md)
+### [2022/03/22 英喜时事速递](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花时政┃国际医疗服务组织AMDA目睹乌克兰难民惨状](/content/gnews/25/README.md)
+### [樱花时政┃国际医疗服务组织AMDA目睹乌克兰难民惨状](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃英国考虑禁止NHS购入新疆医疗产品](/content/gnews/26/README.md)
+### [樱花时政┃英国考虑禁止NHS购入新疆医疗产品](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [节约惹的祸？传东航上百亿巨亏下,严控维修费用、压降成本](/content/gnews/27/README.md)
+### [节约惹的祸？传东航上百亿巨亏下,严控维修费用、压降成本](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共不等于中国人：中国人自愿加入乌克兰国际军团](/content/gnews/28/README.md)
+### [中共不等于中国人：中国人自愿加入乌克兰国际军团](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登访问布鲁塞尔时，美欧宣布对俄罗斯实施新制裁](/content/gnews/29/README.md)
- ` Shuizhuyu`
-
-### [包括中国史上头号伪君子朱镕基，中共高层家族忙于资产外逃](/content/gnews/30/README.md)
+### [包括中国史上头号伪君子朱镕基，中共高层家族忙于资产外逃](/content/gnews/33/README.md)
  ` YALUN 亚伦`
 
-### [中共国发生严重空难事故](/content/gnews/31/README.md)
+### [中共国发生严重空难事故](/content/gnews/34/README.md)
  ` 扬帆枫叶快讯`
 
-### [中共利用俄乌战争制造非洲债务陷阱](/content/gnews/32/README.md)
+### [中共利用俄乌战争制造非洲债务陷阱](/content/gnews/35/README.md)
  ` 扬帆枫叶快讯`
 
-### [星链系统已彻底改变了战争走向](/content/gnews/33/README.md)
- ` 扬帆枫叶快讯`
-
-### [新中国联邦乌克兰前线救援人数汇报](/content/gnews/34/README.md)
+### [新中国联邦乌克兰前线救援人数汇报](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [CDC删除上万例“意外”计算的COVID相关死亡](/content/gnews/35/README.md)
+### [CDC删除上万例“意外”计算的COVID相关死亡](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平向世界发出威胁：解铃还需系铃人](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [视频|诗歌：致-新中国联邦大帐蓬](/content/gnews/37/README.md)
+### [视频|诗歌：致-新中国联邦大帐蓬](/content/gnews/38/README.md)
  ` KarmaLabs`
-
-### [乌克兰总统：为保同胞努力促成与俄方的谈判](/content/gnews/38/README.md)
- ` NFSC News`
 
 ### [俄军袭击基辅平民设施造成人员伤亡](/content/gnews/39/README.md)
  ` NFSC News`

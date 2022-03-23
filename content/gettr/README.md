@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 1:23 AM (UTC)`
+
+2022.03.22 晚《新中国联邦新闻访谈》今日俄乌战况；新中国联邦人在波乌边境救援战争难民；战友之爱和文化传承
+![img](https://media.gettr.com/group43/origin/2022/03/23/01/4345f2f1-7336-be74-6537-16d841fdb338/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/23/2022 1:09 AM (UTC)`
 
 3/20/2022 Miles Guo: From the perspective of how the Chinese people judge the CCP cadres, we can see the Chinese are so pathetic. Zhu Rongji is a big crook. Zhu Yunlai and Zhu Yanlai have been using the Chinese people's hard-earned money to collude with Wall Street via China Investment Corporation (CIC), China International Capital Corporation (CICC), and Bank of China (BOC). They have deceived the Lao Baixing into believing that they are uncorrupted officials.<br/><br/>3/20/2022 文贵直播：从中国老百姓如何评判中共官员这点看，中国人太可悲了；朱镕基是大骗子，朱云来、朱燕来通过中投中金中银，用中国人的血汗钱和华尔街勾兑，骗得老百姓喊他清官<br/><br/>
@@ -145,13 +152,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 `@miles 3/22/2022 5:01 PM (UTC)`
 
 3月22日：【前 2 名最富有的 BTC 钱包持有 2% 的比特币 】https://www.zerohedge.com/crypto/top-2-richest-btc-wallets-holds-2-all-bitcoins
-
----
-
-`@miles 3/22/2022 3:52 PM (UTC)`
-
-3月22号：尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！
-![img](https://media.gettr.com/group46/getter/2022/03/22/15/80774d3c-80f8-e35e-13d8-9277fb6e8dfa/out.jpg)
 
 ---
 

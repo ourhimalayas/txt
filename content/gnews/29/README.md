@@ -2,34 +2,26 @@
 ---
 
 
-## 拜登访问布鲁塞尔时，美欧宣布对俄罗斯实施新制裁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2212605/)
+## 樱花时政┃国际医疗服务组织AMDA目睹乌克兰难民惨状
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2212644/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-111.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fglobal.unitednations.entermediadb.net%2Fassets%2Fmediadb%2Fservices%2Fmodule%2Fasset%2Fdownloads%2Fpreset%2FLibraries%2FProduction%2BLibrary%2F18-03-2022-Ukrainian%2Brefugees-Poland%2Bborder%2B1.JPG%2Fimage1170x530cropped.jpg&amp;imgrefurl=https%3A%2F%2Fnews.un.org%2Fzh%2Fstory%2F2022%2F03%2F1100682&amp;tbnid=xakAP4mXdSc4JM&amp;vet=12ahUKEwjHq-mjpdr2AhWGlP0HHZGRDd8QMygregUIARCuAg..i&amp;docid=rVj-50ofmz6DnM&amp;w=1170&amp;h=530&amp;q=%E4%B9%8C%E5%85%8B%E5%85%B0%E9%9A%BE%E6%B0%91&amp;ved=2ahUKEwjHq-mjpdr2AhWGlP0HHZGRDd8QMygregUIARCuAg)
+俄罗斯军队开始入侵乌克兰到3月24日一整月，冈山市国际医疗服务AMDA负责支援当地难民的现状，可是一片混乱。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1149.jpg)
+（AMDA 难波妙理事）“每天下午5点到8点给从乌克兰来避难，身体不好的人看病。”AMDA等医疗队活动在匈牙利扎奥尼，是与乌克兰接壤的城市。在车站内设置的1张榻榻米左右的临时空间，为难民进行诊疗和咨询。“正在接受癌症治疗的人不得不中断治疗，平时可以接受的治疗因为进入紧急状态而得不到治疗。在避难途中受伤20多岁女性，被流弹击中，不顾伤口也得逃跑。”
 
+截止到20日，匈牙利共接纳了31.2万名难民。特别是儿童身上有明显的身体不适。“孩子们得了肺炎。因为移动了很长的距离，很多人得肺炎。”“医生说是因为孩子们的体力及长距离在寒冷的天气里移动等因素。虽然能买到一般销售的药，但是处方药还没有得到，因此AMDA决定提供资金，让孩子服用。”
 
-图片来源：路透社
+距俄军队开始进攻到24日已经快一个月了。包括儿童在内的无辜市民因战祸被驱逐出境。“这不是别人的事情，而是在世界上正在发生的事情。而且，是我们自己建立的和平，倒塌的瞬间。在俄罗斯国内，普通市民也处于严酷的状况。普通人会是怎样的情况请冷静下来对待。””
 
-国家安全顾问杰克·沙利文周二表示，美国总统乔·拜登将与盟友一道，对俄罗斯入侵乌克兰实施额外制裁，并在本周欧洲之行期间收紧现有制裁。
+信息来源：
 
-拜登将于周三与美国国防部长劳埃德·奥斯汀一起前往北约和欧盟总部所在地布鲁塞尔，周四与其他领导人会面。然后他计划前往华沙，以表达对与乌克兰接壤的盟友的支持。
+[がんの治療を中断、子どもの肺炎…国際医療ボランティアAMDAが見た「ウクライナ避難民の現状」【岡山】](https://news.yahoo.co.jp/articles/8181e1384bbdff443a18b0eff8b2d480f3f5ae47)
 
-沙利文表示，拜登将在访问期间与盟国合作，对北约部队态势进行长期调整，并宣布加强欧洲能源安全的“联合行动”，该地区高度依赖俄罗斯天然气。
-
-“他将有机会协调对乌克兰的下一阶段军事援助。他将与我们的合作伙伴一道，对俄罗斯实施进一步制裁，并加强现有制裁，以打击逃税行为并确保强有力的执法，”沙利文告诉记者。
-
-拜登还将宣布美国进一步捐款，以缓解乌克兰境内难民和平民的人道主义状况，其中许多人被困在被围困的城市。
-
-在布鲁塞尔之后，拜登将前往波兰并“与正在帮助保卫北约领土的美军接触”，并会见参与战争人道主义救援的专家。总统还将会见波兰总统安杰伊·杜达。
-
-美国及其盟国对入侵乌克兰的俄罗斯实施了全面制裁，并提供了数十亿美元的武器和援助。拜登已承诺不会将美国士兵派往乌克兰，但承诺如果北约成员国遭到袭击，将信守其保护北约成员国的承诺。
-
-🔗[https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
-
-编辑发表： Shuizhuyu
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
