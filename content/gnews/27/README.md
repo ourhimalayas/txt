@@ -2,30 +2,24 @@
 ---
 
 
-## 【秘翻时评】美国与西方联盟评估将俄逐出G20
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2218397/)
+## 视频|还未迈步拥抱世界的友好 便已经历残酷的杀戮
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2218406/)
 
-By:**[秘翻时评](https://gettr.com/post/p11gix876f0)**
+制作：大直播短视频组 文果
+文案：一只蚂蚁#2684
 
-**[2022‑03‑23](https://gettr.com/post/p11gix876f0)**
+视频来源：[https://twitter.com/eminedzheppar/status/1504919622902026246?s=21](https://twitter.com/eminedzheppar/status/1504919622902026246?s=21)
 
-**晚间新闻：**
+审核/编辑/发稿：谐趣园
 
-1.美国与西方联盟评估将俄逐出G20
-2.恒大境外负债约227亿美元 拟7月底提债务重组
-3.美任命尹汝尚主导太平洋岛国谈判任务抗衡中共
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
 
-**时评内容：**
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-\*中共国债务违约 房企股票非正常大幅上涨
-\*俄军非法运送2389名乌克兰孩童至俄国
-
-Gettr链接：[**https://gettr.com/post/p11gix876f0**](https://gettr.com/post/p11gix876f0)
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
