@@ -2,33 +2,42 @@
 ---
 
 
-## 拜登访欧将团结盟友对俄罗斯实施新制裁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217676/)
+## 有声|意大利主教抨击普京“亵渎神明”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2217900/)
 
-##### 作者：加拿大温哥华扬帆农场 – 活力人生
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-42.jpg)
-据【路透社】及【NDTV】3月22日报道，美国总统乔·拜登将在本周访问欧洲期间寻求加强西方团结，并宣布对俄罗斯实施新的制裁。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月20日，在意大利首都罗马，意大利大主教福特表示，普京为他对乌克兰的侵略战争进行的宗教辩护是一种“亵渎神明的行为”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpeg)
+在两天前的18日晚，俄罗斯总统普京在莫斯科举办了庆祝侵占克里米亚8周年的集会，并在集会上发表声明，发誓要继续入侵乌克兰，还引用了耶稣的话说：“没有什么爱比为自己的朋友献出生命更伟大。”
 
-报道称，拜登将于本周三前往北约和欧盟总部所在地布鲁塞尔，与其他北约和欧洲领导人会面，并与盟友一起在周四推出进一步的对俄制裁计划。新计划不仅将重点放在增加新的制裁上，还将确保共同努力打击逃避制裁的行为。美国还希望就俄罗斯的 G20 成员资格与盟国进行磋商。
+福特大主教指出，把战争的理由诉诸《圣经》，显示普京已经找不到更多的理由来支持他的主张了。以上帝的名义为所做的恶行辩护，是极不道德和疯狂的。
 
-此外，拜登也将就中共国可能援助俄罗斯的问题与盟友进行讨论。到目前为止，北京拒绝谴责普京的侵略或支持西方制裁。美国的主要目标是确保中共政权不会通过救助俄罗斯经济，或提供武器等方式对俄罗斯进行援助。
+福特大主教表示，对无辜平民的可怕攻击表明了普京不惜一切代价想要征服他人的帝国主义逻辑，并指责普京是袭击无助的无辜人民的战犯。
 
-原文链接：[https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/](https://www.reuters.com/world/us/us-national-security-adviser-sullivan-detail-bidens-brussels-trip-goals-2022-03-22/)
+福特大主教还对俄罗斯东正教教长基里尔支持普京的行为表示失望和不安。
 
-[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
 
-编辑/上传 – 大废墙
-素材/采编 – 活力人生
 
-* * *
+文字版原文：[意大利主教抨击普京“亵渎神明”](https://gnews.org/zh-hans/2211727/)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

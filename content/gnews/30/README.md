@@ -2,16 +2,12 @@
 ---
 
 
-## 数字货币及喜币的最新信息
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2217251/)
+## 【乌克兰救援】新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报道：生病的战友陆续康复回到团队
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2217564/)
 
-文贵大直播20220323
+【乌克兰救援】03/22/2022 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报道：生病的战友陆续康复回到团队。预计还有新的乌克兰难民潮，我们将继续坚守阵地服务难民，战事不结束，我们会一直在这里
 
-撰稿：ILOVE战神（文凡）（香草山）Arthur文徐（DC）
-
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-13.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片8-12.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

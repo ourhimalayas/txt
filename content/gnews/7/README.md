@@ -2,46 +2,45 @@
 ---
 
 
-## 英国老年人感染记录显示：疫苗产生了负面影响
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2217764/)
+## 拜登将于周四宣布制裁俄杜马300傀儡（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2217938/)
 
-编译： Jenny Ball
+素材翻译：噜噜咪
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2665.png)Getty Images
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2671.png)据报道，拜登将在周四的布鲁塞尔之行中宣布对俄罗斯杜马的制裁。
 
-不是说普京和泽连斯基的名字代替福奇成了头条，就意味着 COVID 结束了。事实上，许多欧洲国家的病例都在激增，而英国的老年人的病例现在正创纪录之高。《金融时报》周五一篇文章的标题：“英国 70 多岁的新冠病毒感染人数激增至历史新高”。 但是，在几乎每个老年人都接种疫苗，并且90%被注射了加强针后，怎么会出现创纪录的感染呢？ 还是因为疫苗注射才造成了创记录的感染？也就是说疫苗注射意味着它们在阻止人们获得免疫力？
+沙利文说：“我们觉得这是他的正确去处，能够看到部队，能够看到人道主义专家，能够与一个前线和非常脆弱的盟友会面。”
 
-爱尔兰是欧盟接种疫苗最多的国家之一，住院人数也正在上升。
+波兰领导人还提出了西方维和特派团干预乌克兰的前景，但华盛顿拒绝这一想法，因为他们担心这会使冲突升级。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2667.png)Getty Images
+拜登的访问是在俄罗斯的入侵仍然停滞不前的情况下进行的——战争进行了近一个月，俄罗斯军队未能夺取一个主要城市，他们的推进几乎在所有战线上都被坚定的乌克兰防御所阻挡。
 
-现在，爱尔兰医院的人数比 12 个月的任何时候都多， 而 近 95% 的成年人完全接种了疫苗，近 100% 的老年人疫苗接种并注射了加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2685.png)国家安全顾问杰克·沙利文向记者介绍了拜登总统的欧洲之行，并表示他将在本周晚些时候公布对俄罗斯的新制裁。
 
-自四周前冬季过后的最低点，英国的 COVID 病例数量几乎增加了两倍。此外，每天的死亡人数仍然徘徊在 125 人左右，而在 2021 年冬季浪潮之后（先前的感染率要低得多），死亡人数几乎降至零。此外，苏格兰是英国疫苗接种率最高的地区，也是唯一一个强制要求戴口罩的地区，而那里的情况似乎比以往任何时候都更糟糕。英国《金融时报》报道说：“迄今为止，苏格兰记录了该流行病以来最高的感染率，截至 3 月中旬的一周内，每 14 人中就有一人感染该病毒，高于一周前的 18 人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2687.png)俄罗斯总统弗拉基米尔·普京尝到苦果，他的政府受到多轮制裁，试图破坏他的地位并使他的战争机器失去资金支持。
 
-在苏格兰，大约 90% 的 12 岁以上的人被两次注射，73% 注射了加强针。在老年人中，加强针几乎是普遍的。因此，疫苗失败无处可逃无处可躲。负作用已经失控。关于死亡的保护呢？ 我们不能确切地看到死亡的来源，因为苏格兰已经停止提供该数据，但英国政府在接下来的几周仍将提供每周报告。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2691.png)基辅斯维亚托什基区的一栋居民楼被炮火炸毁
 
-根据最新的英国健康监测报告，大约 95% 的 70 岁以上的人接种了双重疫苗，大约 90%-93% 的 70 岁以上的年龄组进行了加强免疫。 在今年第 7 周到第 10 周之间，只有 1.6% 的老年病例未接种疫苗，低于他们所占的人口比例 5%。 而接种3剂的病例是 90% 。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2693.png)俄罗斯军队在乌克兰首都基辅西北部的一个居民区炮击Retroville购物中心，至少有6人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2669.png)
+现在，乌克兰军队正准备夺回被占领的领土，因为根据五角大楼的最新评估，俄罗斯军队正在与不断下降的士气作斗争。
 
-因此，他们需要乌克兰战争来分散叙事的注意力，因为这些疫苗显然很令人不安。人们会认为，到现在为止，应该已经对先前的感染产生了足够的免疫力来排除这样的病例高涨的浪潮。然而，数据提出了一个问题：注射是否会削弱人们的自然免疫力，并产生某种形式的原始抗原和抗体依赖性疾病增强，其中，注射会消灭他们的 T 细胞和先天免疫，从而阻止他们享受既往感染后能够获得的持久自然免疫？
+一位美国高级国防官员也表示，俄罗斯的士气正在下降。
 
-换句话说，这是否会形成永无止境的恶性循环：更多病例引发更多疫苗接种，而接种越多感染越多？
+这位官员说：“我们发现一些迹象表明，他们的一些士兵正在遭受冻伤，因为他们缺乏适合他们所处的寒冷天气环境的装备……他们啥都没有——除了食物和燃料——甚至在一些部队的个人装备方面他们也有困难。”
 
-素材链接：【theblaze.com】[Horowitz: Record infections in super-vaxxed UK seniors as double-vaxxed show negative efficacy against COVID death](https://www.theblaze.com/op-ed/horowitz-record-infections-in-super-vaxxed-uk-seniors-as-double-vaxxed-show-negative-efficacy-against-covid-death?utm_source=theblaze-breaking&amp;utm_medium=email&amp;utm_campaign=20220322Trending-HOrowitzUK&amp;utm_term=ACTIVE%20LIST%20-%20TheBlaze%20Breaking%20News)
+“他们遇到了麻烦，我们发现有迹象表明，一些部队实际上因为冻伤而遭受损失，并被带离战斗。”
+
+“所以是的，他们有持续的后勤和给养问题。”
+
+素材来源：[https://www.dailymail.co.uk/news/article-10641971/Biden-sanction-300-members-Putins-puppet-parliament-Duma.html](https://www.dailymail.co.uk/news/article-10641971/Biden-sanction-300-members-Putins-puppet-parliament-Duma.html)
 
 * * *
 
 审核：文乐
 校对：小东
-发布：花羽
+发布：小东
 
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

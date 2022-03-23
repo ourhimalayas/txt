@@ -2,27 +2,35 @@
 ---
 
 
-## 有声｜东航空难 罹难者家属被集中管控
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2217582/)
+## 96岁纳粹集中营幸存乌克兰人被普京杀害
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2217743/)
 
-By:**秘翻新闻**
+作者：纽约香草山农场 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月22日，据盖特消息显示，纳粹集中营幸存者96岁的乌克兰人罗曼琴科在其位于哈尔科夫的公寓中被俄罗斯军队炮击杀害。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-上午10.57.46.png)
+德国布亨瓦特集中营纪念馆的资料证实，1926年出生的罗曼琴科于二战期间被纳粹在乌克兰逮捕，随后，其被送至矿场奴役。很长一段时间里，罗曼琴科辗转在布亨瓦特、布尼木恩德、多拉和伯根-波尔森四座纳粹集中营中。二战结束后，幸存的罗曼琴科成为了纳粹暴行的亲历者与见证人。 然而，由于俄军无差别的炮火攻击，96岁高龄的罗曼琴科近日在自己的公寓内被杀害。
 
-**2022-03-23**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/323_5v2.jpeg)图为乘客的亲属坐在广州白云国际机场的等候区(图片来源 AFP)
-[大纪元](https://www.epochtimes.com/gb/22/3/22/n13665188.htm)3月22日消息。3月21日，中国东方航空公司的一架波音737-800客机、MU5735航班，从昆明飞往广州途中，在广西市藤县境内坠毁。机上123名乘客和9名机组人员，共132人，目前生死不明。
+对此，乌克兰外长指责俄军的杀害行为是不可原谅的暴力罪行，而乌克兰总统办公室发言人也指出，俄罗斯将此次侵略战争定义为所谓的“去纳粹化”更是纯粹的谎言。至于布亨瓦特集中营纪念馆则表示，罗曼琴科从希特勒集中营里幸存，却在百岁之际被普京屠杀，这让人感到非常震惊。
 
-飞机失事后，网上一度传言中共国上市公司鼎龙文化的7名高管搭乘了该航班飞机。对此，鼎龙文化3月22日发布公告否认此传言，但该公司证实，公司新进不久的财务总监方芳确实搭乘了失事的MU5735航班。
+参考链接：
+1.[纳粹集中营幸存者 96岁乌克兰老人被俄军炸死](https://www.aboluowang.com/2022/0322/1724176.html)
+2.[乌克兰大屠杀幸存者 “被普京谋杀”…](https://gettr.com/post/p11a5dke8e0)
 
-新唐人北京时间3月23日报道，在航班目的地广州白云机场，罹难者的家属或同事目前已被集中在管控区域，等待进一步消息。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-据报道，纪录东航坠机事故原因的黑匣子，目前仍没有下落。现场只看到飞机残骸，和被烧毁的身份证和钱包等遗物。
+编辑：静言
+总编：Irene木木
+审核：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-（编辑：Julia）
-
-发布 : 文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

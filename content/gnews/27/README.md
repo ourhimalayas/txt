@@ -2,25 +2,30 @@
 ---
 
 
-## 无论俄乌战争的结果如何，中国人将付出承重代价
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2217257/)
+## 海外伪民运和中共代理人将被西方法律严惩
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2217608/)
 
-撰稿：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/model-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-23-at-10.21.38-PM.jpeg)
-3月23日，郭先生在大直播透露，俄乌战争可能会有戏剧性的发展。中共国可能站出来，但不论中共做出哪种选择，中国人都将付出称重代价。
+采编：加拿大温哥华杨帆农场 – 晨熹
 
-其一，俄罗斯发动小型核武器，中共国参与战争。
+编辑撰稿：加拿大温哥华杨帆农场 – 硫酸羟氯喹64
 
-其二，中共国作为俄乌战争的调节国，做担保人。把西方和欧洲承诺的，以及乌克兰接受的条件，让俄罗斯普京履行承诺。普京就会告诉俄罗斯人，中共国14亿人跟俄罗斯站在一起，俄罗斯接受了谈判条件，“赢得战争”最后撤兵回家。
-
-其三，波罗的海国、白俄罗斯以及俄罗斯之间混战。某些地区被扔战略性的边缘性核导弹（既不在核控，也不在导弹控制范围内的小型导弹），可能会导致几百万甚至几千万人死亡，几个城市会被消灭，然后普京也被消灭，最后还是谈判。
-
-无论习近平做哪个选择，中国人已经成为俄乌战争中人类最恨的人，在未来一百年甚至千年都会成为人类最恨的人。也将给海外华人的生活和安全带来了威胁，导致灾难性后果。
-
-信息来源：[2022年3月23日文贵大直播](https://gettr.com/streaming/p11h7xt9462)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-6.jpg)图片来源：Gettr
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+据3月16日[美国司法部]公开的信息显示：该部门日前已正式起诉中共在海外的多名伪民运者。并指控他们在美国非法充当中共政权代理人期间，恶意收集异议人士信息，骚扰、抹黑、监视以及暴力攻击美国公民等。
+
+据悉，本次包括王书君在内的五名被指控疑犯中，目前除2人在逃外，其余3人全部被捕归案，并或将分别面临5至25年不等的刑期惩罚。
+
+报道指出：包括吴征和单伟健等绝大多数在美国、加拿大、日本、澳大利亚以及新西兰等国，与中共有密切交易联系的代理人和海外欺民贼，都正在被当地司法机关调查和清理。在难逃西方法律制裁的情况下，入狱或被遣反回中共国将是其最终的结局。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源： [https://gettr.com/streaming/p10y5j870c5](https://gettr.com/streaming/p10y5j870c5)
+
+[https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0](https://www.justice.gov/opa/pr/five-individuals-charged-variously-stalking-harassing-and-spying-us-residents-behalf-prc-0)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
