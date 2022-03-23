@@ -2,32 +2,27 @@
 ---
 
 
-## 今日盖特大V推荐 — 克莱·特拉维斯（Clay Travis）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215483/)
+## 樱花FM|樱花时政┃俄罗斯还能撑多久？
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2215534/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2619.png)
-盖特链接： [**https://gettr.com/user/claytravis**](https://gettr.com/user/claytravis)
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯还能撑多久？.png)
+据【时事通讯社】报道：俄罗斯财政部于3月17日宣布，已经为两笔到期的美元政府债券支付了利息，总额约为1亿1720万美元（约140亿日元）。
 
-**克莱·特拉维斯自述：**
+财政部称，3月15日到期的价值1亿1720万美元的付款指示已于3月14日发送到代理银行账户并得到处理。由于俄罗斯入侵乌克兰遭到世界各国的经济制裁，并且银行也被冻结，这引起了人们对俄罗斯政府债券违约的担忧。
 
-http://Outkick.com, @outkick @foxsportsradio  东部时间早6-9点 & @foxbetlive 电视节目 东部时间早5点, 作家，共和党人也买运动鞋，三个男孩的父亲，律师
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2621.png)图片来源：网络
-**克莱·特拉维斯简介：**
+俄罗斯3月16日支付的美元债券的利息，目前还不知道其支付的是美元还是卢布，如果是美元，可以暂时避免违约。然而，之后还有巨额的利息需要支付，只要俄罗斯中央银行的资产被冻结，它的违约只是时间的问题。正所谓“躲得了初一，躲不了十五”，一旦支付不了美元债，国际信誉将丧失殆尽，那它还能撑多久呢？俄罗斯将会为普京的荒唐残暴之举付出巨大的代价。
 
-克莱·特拉维斯全名理查德·克莱·特拉维斯（Richard Clay Travis 出生于1979年4月6日）是美国政治评论员、体育记者、作家、律师、电台主持人、电视分析师、媒体名人和 OutKick 的创始人。
+文字版原文：
 
-克莱·特拉维斯和巴克·塞克斯顿是克莱特拉维斯和巴克塞克斯顿秀（The Clay Travis and Buck Sexton Show）的主持人，这是一个保守脱口秀节目，于2021年6月21日首播，取代了许多广播电台的拉什·林博秀（The Rush Limbaugh Show）。
 
-克莱·特拉维斯著有：2007年《Dixieland Delight：东南会议路上的足球赛季》、2009年《在岩石顶部：一个时代结束的前排座位》、2018年《共和党人也购买运动鞋：左派如何用政治破坏体育运动》等作品。
+| [樱花时政┃俄罗斯还能撑多久？](https://gnews.org/zh-hans/2181898/) |  |
+| --- | --- |
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

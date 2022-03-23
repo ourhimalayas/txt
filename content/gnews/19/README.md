@@ -2,209 +2,65 @@
 ---
 
 
-## 新中国联邦的救援行动赢得了世界各国的尊重和好评
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215334/)
+## 喜马拉雅交易所，一个新的数字金融系统
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2215369/)
 
-我们昨天, 你们这个文戈七雄和文科
-Ayer, ustedes Wenge Qixiong y Wenke
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cryptocurrency.jpg)图片：@akamai.com
 
-还有前线的所有战友们
-Y los compañeros luchadores que están en la primera línea
+阿卡迈科技公司网站2022年3月18日消息，喜马拉雅交易所(Himalaya Exchange)提供了一种新的加密货币，旨在抵抗极端的价格波动。该公司的一个主要目标是为新的数字时代提供革命性的金融解决方案。
 
-你们集体的努力
-Sus esfuerzos colectivos
+阿卡迈(Akamai)很高兴这家极具创新精神的公司选择我们通过托管服务提供商Teneo为其客户提供优质且安全的体验。
 
-那九十多个孩子
-Aquellos 90 y pico de niños
+**确保数字货币安全**
 
-我从昨天到今天, 全世界各国的政要
-Desde ayer hasta hoy, los políticos de todo los países del mundo
+这种新的加密货币基础设施由两个主要单位支撑：喜马拉雅元(HDO)和喜马拉雅币(HCN)。喜马拉雅元的结构旨在维持其对美元的1比1价值。它将尖端的区块链技术与稳定币的强大功能相结合。所有这些都使得在全球范围内即时、安全地移动数字货币成为可能。
 
-包括华尔街投资的
-Incluyendo los inversores del Wall Street
+喜马拉雅币是人们每天都可以放心使用的货币，其设计理念是保值。符合条件的会员也可以通过喜支付(Himalaya Pay)应用程序在许可的司法辖区内使用这些代币。
 
-我们原来一个基金的
-Solíamos tener una fundación
+**不断演变的加密货币安全挑战**
 
-做空这个辉瑞制药的一个经理
-Este gerente de Pfizer, Inc.
+当今的加密货币格局正在不断演变，并带来了许多令人兴奋的机遇和挑战。信息技术安全仍然是所有加密资产参与者的主要风险因素。加密资产持有者显然是黑客和犯罪分子的目标，因为一旦加密资产离开中介机构，区块链交易通常是不可逆转的。
 
-把所有加州的五个房子全卖掉
-Vendió todas las cinco casas que están en California
+**防御DDoS攻击**
 
-做空这个辉瑞赚了6亿多美金的, 自己分到1000多万美金
-Este Pfizer ganó más de 600 millones de dólares y se distribuyó a más de 10 millones de dólares a él mismo
+喜马拉雅交易所(Himalaya Exchange)对此并不陌生，它采用多层网络安全方法，并建立了内置安全和隐私设计，以确保技术层面的安全保障，防止分布式拒绝服务(DDoS)和其他攻击。
 
-全部捐给了乌克兰, 裸捐
-Todo donado a Ucrania, toda la donación
+该公司依靠许多Akamai安全解决方案来帮助确保客户在交易过程中的安全。还部署了Akamai内容交付网络(CDN)，以确保在线平台快速可靠地运行。
 
-而且人家要求不允许说出来
-Y él exigió que no dijeran nada
+这一切都归功于我们与Teneo的合作，Teneo为客户搭建了一座桥梁，使我们所有人都能通过赢得信任、应对破坏和消除障碍更快地实现我们的目标。
 
-你觉得我们中国的这么多老板有一个能做到这样的吗
-¿Tu crees que en China teniendo tantos jefes y hay uno que pueda llegar a hacer esto?
+喜马拉雅交易所(Himalaya Exchange)首席信息与安全官(CIO\CISO)Azeem Bashir谈到与Akamai和Teneo的合作时说：“我很高兴与如此出色的合作伙伴合作，使我们能够以一种快速、可靠和安全的方式提供未来的数字货币。”
 
-你见过现在就包括日本
-Has visto ahora incluyendo a Japón
+![](https://cdn.discordapp.com/attachments/789683313366925322/944237900869038172/240_copy.jpeg)
 
-我刚才日本, 就今天晚上
-Hace rato en Japón, precisamente esta noche
+**简评:**
 
-我这一说, 浑身都发凉
-Al decirlo se me viene un escalofrío en todo el cuerpo
+喜马拉雅交易所和世界最大的分布式计算平台之一阿卡迈(Akamai)合作，确保用户在交易过程中的安全，并且采用了阿卡迈的内容交付网络(CDN)以确保交易平台快速可靠地运行。其独特设计的稳定币(HDO)和浮动币(HCN)双币系统以及与黄金的锚定，开创了数字货币时代的先河，喜马拉雅交易所凭借其一流的技术，必将成为世界数字货币领域的领跑者和数字金融领域规则的制定者。
 
-日本的一个大集团的这个老板是咱们这个原GTV的投资者
-El jefe de un gran grupo en Japón es nuestro inversor original de GTV
+不得不提的是，俄乌战争促成了世界金融系统的重大变革，乌克兰政府对数字货币合法化的立法，使乌克兰成为最新一个承认加密货币交易及资产合法的国家。俄罗斯富豪则利用数字货币逃避美欧等国的金融制裁，数字货币在俄乌战争中的广泛应用，使得数字金融时代的到来大大提前。
 
-他说郭桑, 日本国在世界上, 在战后获得了尊重
-Dijo: Señor Guo, Japón en este mundo se ganó el respeto luego de la guerra
+而喜马拉雅币的设计者和新中国联邦的创始人郭文贵先生，更是以其极具前瞻性的眼光，在这个数字金融时代到来之前，带领爆料革命的战友抓住机遇，用喜马拉雅币创造出了无与伦比的财富，为爆料革命的反共、灭共事业积累了巨额资本，并利用这些财富参与到乌克兰的人道救援活动中，让全世界人民了解到新中国联邦人是追求和平和正义的群体，是反共、灭共的重要力量，树立了新中国人在世界舞台上的新形象。
 
-但是日本人从来没有真心的去救过一次援
-Pero Japón nunca realizó un rescate de corazón
+中共病毒和疫苗的灾难、俄乌战争对全球供应链和能源领域的影响、以及未来很可能发生的中共独裁政权对民主台湾的侵略将进一步重创本已疲弱的全球经济，世界范围的金融大崩盘即将到来。我们可以预见，喜马拉雅数字金融系统作为数字金融时代的诺亚方舟将在全球性的金融危机到来之前，成为更多人保护资产安全的避风港。
 
-这样救过, 都是一些表演
-Así haya rescatado, era pura actuación
+新闻链接：[Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
 
-他说我感到可耻
-Él me dijo que estaba avergonzado
+翻译/简评: Sima（正道主义）
 
-我看到你们在前线真心的救人
-Ví a ustedes rescatando a personas de corazón en primera línea
-
-而且你们的组织这么棒
-Y su organización es tan excelente
-
-我真感到以亚洲人来感谢你们
-Realmente como asiático agradezco a ustedes
-
-我真的浑身起鸡皮疙瘩
-De verdad se me puso la piel de gallina
-
-现在跟你们说这是一个日本人, 裕达投资都有他呀
-Ahora les digo que este es un japonés, en Yuda Investment también está él
-
-他看到了报导
-Él vió el reporte
-
-他看到了我们的前线
-Vió a nosotros en la primera línea
-
-我们的组织, 我们的形象
-Nuestra organización, nuestra imagen
-
-我们的人, 我们的年轻, 我们的活力
-Nuestra gente, nuestra juventud y vitalidad
-
-他说共产党太不要脸了, 竟然说中国同胞全救走了
-Dijo que el PCCh es demasiado desvergonzado e incluso dicen que todos los compatriotas chinos fueron rescatados
-
-他说我日本的在那里的人说, 看到好多中国人在地下室里
-Dijo, la gente de Japón que están allá expresó que vió a muchos chinos en el sótano
-
-都吓的站发抖在那儿
-Todos parados temblando y asustados
-
-说竟然给日本人说能不能给点吃的
-Dijo que incluso le dijo a los japoneses si podía darle algo de comer
-
-那我们展现给世界的是什么, 真实
-Y qué es lo que le demostramos al mundo, la realidad
-
-我们的勇敢, 我们的团结
-Nuestra valentía, unión
-
-还有我们的形象
-Y nuestra imagen
-
-谁拿着这毯子能给这些素不相识的一些难民去
-Quién puede tomar las cobijas y dársela a estos refugiados desconocidos
-
-中国人, 我告诉你
-Los chinos, déjame decirte
-
-中南坑都不会给那些中国的老百姓
-Los del pantano nunca dan al pueblo chino
-
-那些漂亮的苹果比我吃的都好
-Comen hasta esas manzanas bonitas mejor que las mías
-
-我们的巧克力看到了吗
-¿Vieron nuestro chocolate?
-
-老马是刚做过大手术, 死里逃生的人和卓玛到前线去了
-Laoma apenas se hizo una gran operación, los que estaban en la orilla de la muerte y Zhuoma fueron a la primera línea
-
-我们漂亮的小妹
-Nuestra linda Xiaomei
-
-我们的爆二代小SARA
-Nuestra pequeña Sara denunciante de segunda generación
-
-阿炳, 文耀, 我们后勤的文耀, 多少人呐
-Abing, Wenyao, nuestro logística Wenyao, tantas personas
-
-兄弟姊妹们
-Hermanos y hermanas
-
-你们太伟大了
-Son tan grandiosos
-
-用什么话无法形容对你们的感激
-No hay palabras para describir el agradecimiento hacia ustedes
-
-今天的所有的组织你们太棒了
-Toda la organización hicieron un buen trabajo
-
-今天我看到ALAN, 丹妮尔, 文戈
-Hoy ví a Alan, Daniel, Wenge
-
-还有我们的法图麦, TWO PACK都走到了前线
-También a nuestro Fatumai, two pack llegaron hasta la primera línea
-
-你们不仅在电视上可以
-Ustedes no solamente pueden estar en la televisión
-
-让你们人生精彩
-Para hacer sus vidas maravillosa
-
-你们还可以在现实中让你们自己更精采
-También pueden ser maravillosos en la realidad
-
-这就是新中国联邦人
-Así son las personas del Nuevo Estado Federal de China
-
-不是事儿上见, 我们结果见, 靠实力说了算
-No es ver en el asunto sino en el resultado, la capacidad habla de por sí solo
-
-谢谢了兄弟姊妹们, 行动, 行动
-Gracias hermanos y hermanas, acción, acción
-
-一切真的是刚刚开始
-Todo apenas está comenzando
-
-谢谢
-Gracias
+校对: Harvey（叶知秋）
 
 * * *
 
-日期：03/21/2022
-原视频标题：新中国联邦的救援行动赢得了世界各国的尊重和好评
-El movimiento de rescate del Nuevo Estado Federal se ha ganado el respeto y elogios de todos los países del mundo
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原视频日期：03/12/2021
-原视频网址：[**https://gettr.com/post/pzjpzia318**](https://gettr.com/post/pzjpzia318)
-任务编号：KC477（3986）
-视频时间段：0:00-2:54
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
