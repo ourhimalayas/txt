@@ -2,32 +2,21 @@
 ---
 
 
-## 秘翻新闻｜警惕!大翻译运动或酿排华浪潮
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2216064/)
+## 麦考尔警告拜登：中共在乌克兰问题上是共犯
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2216313/)
 
-**By:[秘翻新闻](https://gettr.com/post/p11gbws2d13)**
+翻译：雄起（酷翻组）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/麥克爾.jpeg)
+**美国华盛顿**** –**
 
-**[2022-03-23](https://gettr.com/post/p11gbws2d13)**
+众议院外交委员会共和党领导人迈克尔-麦考尔就拜登总统3月18日星期五与中共总书记习近平的通话发表了以下声明。白宫对这次通话的公开描述误导性地暗示，中共尚未支持俄罗斯入侵乌克兰。习近平利用这个机会重申对台湾的挑衅和威胁，包括在通话前将一艘航空母舰驶近台湾领土。
 
-**新闻主题:**
+“中国共产党已经证明它不愿意也没有能力在俄罗斯对乌克兰的无端攻击事件中充当建设性的一方。相反，他们是同谋–与普京发表联合声明，将北约视为侵略者；据说与莫斯科协调入侵的时间；呼应俄罗斯的宣传和虚假信息，俄罗斯正利用这些信息对无辜的乌克兰平民进行残酷的攻击；并加大对俄罗斯经济的支持。空洞的会谈不会阻止中共的恶劣行动。美国必须对习近平政权实施科技和金融制裁，直到它用行动证明，它在进入彻底敌对前悬崖勒马。”
 
-**1. 东航空难 罹难者家属被集中管控**
+相关链接：[McCaul Warns Biden CCP Complicit in Ukraine](https://gop-foreignaffairs.house.gov/press-release/mccaul-warns-biden-ccp-complicit-in-ukraine/)
 
-**2. 中共国债务违约 房企股票非正常大幅上涨**
-
-**3. 拜登的布鲁塞尔之行强调了对俄的新制裁**
-
-**4. 蔡英文与安倍视讯 日华恳大会通过挺台决议文**
-
-**5. 今晨台湾发生 6.9 级地震 花莲一夜连震52次**
-
-**🔗Gettr链接:**[https://gettr.com/post/p11gbws2d13](https://gettr.com/post/p11gbws2d13)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
-
+审核校对：Barry Jack
+上传排版：F
 
  
 

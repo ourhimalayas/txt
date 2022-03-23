@@ -2,37 +2,38 @@
 ---
 
 
-## 加拿大官方数据表明，疫苗接种者已患上艾滋病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216182/)
+## 俄罗斯人摧毁切尔诺贝利一个新实验室
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216563/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理/编辑：小鱼儿
+翻译：li yan li
+编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5ZMHPWFVQQ3AOYKI5GLGC.png)图片来源：雅典娜设计组&phoenixwolfj
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-133.png)图片来源： 雅典娜设计组
 
 
-据曝光新闻网（The Exposé ）3月20日报道，加拿大官方新冠病毒数据表明，与未接种疫苗的人的自然免疫力相比，加拿大接种两剂疫苗的人群平均损失了 74% 的免疫力，而接种三剂疫苗的人群损失了 73% 的免疫力。
+3月23日据美联社报道，乌克兰利沃夫消息，负责切尔诺贝利禁区的乌克兰国家机构周二表示，俄罗斯军队已经摧毁了切尔诺贝利核电站的一个新实验室，该实验室的工作包括改善放射性废物的管理。
 
-而且根据数据分析，与未接种疫苗的人群相比，接种两剂疫苗的人群感染新冠病毒的可能性平均高出 3.8 倍，死于新冠病毒的可能性高出 3.3 倍。
+俄罗斯军队在战争开始时夺取了这座退役的工厂，禁区是该电厂周围的污染区，1986年世界上最严重的核泄漏事故就发生在这里。
 
-但就死亡风险而言，接种三剂疫苗人群的情况更糟。官方数据显示，与未接种疫苗的人群相比，他们感染病毒的可能性平均高出 3.7 倍，而且死于病毒的可能性高出 5.1 倍。
+该国家机构表示，该实验室在欧盟委员会的支持下耗资600万欧元建造，于2015年启用。
 
-截至 2 月 22 日，加拿大接种两剂疫苗的人的免疫系统性能为负 69.56%，接种三剂疫苗的人的免疫系统性能为负 80.56%。
+该机构在其声明中说，该实验室包含“高度活跃的样品和放射性核素样品，这些样品现在在敌人手中，我们希望敌人会伤害自己而不要伤害文明世界”。
 
-因此，这些数字表明，加拿大接种两剂和三剂疫苗的人群的免疫系统已经受到巨大的损害，以至于他们已经发展为获得性免疫缺陷综合症（艾滋病）。
+放射性核素是不稳定的化学元素原子，会释放辐射。
 
-参考资料：[Official Government of Canada data is truly terrifying; it suggests the Triple Vaccinated have developed AIDS & are now 5.1x more likely to die of Covid-19 than the Unvaccinated](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
+在另一个令人担忧的事态发展中，乌克兰的核监管机构周一表示，该工厂周围的辐射监测器已经停止工作。
+
+新闻链接：[Live updates: Russians destroy Chernobyl laboratory | AP News](https://apnews.com/article/russia-ukraine-business-tokyo-global-trade-world-war-ii-d970e7c51c2b6662b3ebe4531a96aa0f)
 
 发布：tianzhihuan
 
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
-
 
  
 

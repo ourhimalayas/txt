@@ -2,34 +2,19 @@
 ---
 
 
-## 美国财政部讨论冻结俄罗斯黄金储备
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216469/)
+## 视频|新中国联邦救援公告
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2216762/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-19.15.46-1.png)
-据外媒报道，美国两党参议员正在与财政部讨论冻结俄罗斯的所有黄金储备合计金额约1320亿美金。
+制作：香草山视频部
 
-自2014年普京吞并克里米亚以来，据称俄罗斯克里姆林宫一直使用黄金储备在不受监管的市场洗钱，包括外汇。黄金是俄罗斯储备的四分之一，美国议员希望通过此法案有效遏止俄罗斯在入侵乌克兰的问题上通过黄金来摆脱制裁的作法。目前美国国会办公室一直在和财政部合作，财政部长Yellen定期和国会议员会面，讨论立法问题，财政部门一直在充实技术支援。
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-除国会外，拜登总统可以直接采取措施封锁俄罗斯黄金储备。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-撰稿、发布：骄子
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-reference：
+发稿：木香
 
-[https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/](https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/)
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

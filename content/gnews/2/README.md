@@ -2,26 +2,26 @@
 ---
 
 
-## 樱花时政┃中共网络舆论控制挡不住国人的反战浪潮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216874/)
+## 泽连斯基总统在日本国会的演讲：我们必须提防入侵者
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2217076/)
 
-撰稿：东京樱花团/法治小哥
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-44.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fphantom-marca.unidadeditorial.es%2F6e75330b349ffbc9ecf84b49189e288b%2Fresize%2F1320%2Ff%2Fjpg%2Fassets%2Fmultimedia%2Fimagenes%2F2022%2F02%2F28%2F16460455847265.jpg&amp;imgrefurl=https%3A%2F%2Fwww.marca.com)
-在持续20多天的俄乌战争中，虽然中共网络媒体和官方实施严格的言论控制并引导大众舆论风向，但仍有很多中国民众对战争表示反感，敦促中共当局改变立场。目前在微博，微信等社交平台上，依然可以看到大量不同的观点。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-156.png)
+（图片源自本文链接）
 
-据纽约时报报道，上周，上海一位具有政治背景的学者胡伟发文警告称，如果中国再不和俄罗斯“切割”，会有被国际社会孤立的危险。文章发出后不久，即被网监删除。这篇文章中共国的社交媒体上获得了数以百万计的转发，影响巨大。
+3月23日Q电视新闻消息：乌克兰总统泽连斯基在日本国会发表演讲，呼吁对妄想发动战争的侵略者必须保持高度警惕。
 
-另外，一些位于乌克兰前线附近的中国反战人士，他们正试图突破中共当局的审查，为同胞提供战斗生活的真实记录。
+泽连斯基总统在议会发言时说：”我们必须继持续对妄想发动战争的侵略者采取非常有力的防范措施。”
 
-可见，中共官方的观点并不能够代表广大中国人民。
+他补充说：”我们需要强有力的传递不可以破坏和平的信息，负责任的国家必须联合起来共同维护和平。”
 
-信息来源：
+信息来源：[ゼレンスキー大統領「侵略者に注意しなければならない」 国会で演説（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/d12ff46e321732a19fd5627bf968ce6aca979609)
 
-[中国当局严格的审查政策 挡不住国人的反战浪潮](https://vct.news/news/c14a72d8-d942-4bd2-a10e-7fb1b5be1fdd)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/二维码-3.jpg)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

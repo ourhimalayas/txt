@@ -2,45 +2,37 @@
 ---
 
 
-## 埃隆•马斯克是如何帮助乌克兰摧毁俄军坦克的？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2216038/)
+## 加拿大官方数据表明，疫苗接种者已患上艾滋病
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2216182/)
 
-作者：Ishveena Singh
-Mar. 22nd 2022 1:16 AM PT
-翻译：雄起（酷翻组）
-采集：玫瑰新闻组
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-3.jpg)
+整理/编辑：小鱼儿
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5ZMHPWFVQQ3AOYKI5GLGC.png)图片来源：雅典娜设计组&phoenixwolfj
 
 
+据曝光新闻网（The Exposé ）3月20日报道，加拿大官方新冠病毒数据表明，与未接种疫苗的人的自然免疫力相比，加拿大接种两剂疫苗的人群平均损失了 74% 的免疫力，而接种三剂疫苗的人群损失了 73% 的免疫力。
+
+而且根据数据分析，与未接种疫苗的人群相比，接种两剂疫苗的人群感染新冠病毒的可能性平均高出 3.8 倍，死于新冠病毒的可能性高出 3.3 倍。
+
+但就死亡风险而言，接种三剂疫苗人群的情况更糟。官方数据显示，与未接种疫苗的人群相比，他们感染病毒的可能性平均高出 3.7 倍，而且死于病毒的可能性高出 5.1 倍。
+
+截至 2 月 22 日，加拿大接种两剂疫苗的人的免疫系统性能为负 69.56%，接种三剂疫苗的人的免疫系统性能为负 80.56%。
+
+因此，这些数字表明，加拿大接种两剂和三剂疫苗的人群的免疫系统已经受到巨大的损害，以至于他们已经发展为获得性免疫缺陷综合症（艾滋病）。
+
+参考资料：[Official Government of Canada data is truly terrifying; it suggests the Triple Vaccinated have developed AIDS & are now 5.1x more likely to die of Covid-19 than the Unvaccinated](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2637.png)
-
-原文来源https://dronedj.com/
-
-阿罗兹维德卡（Aerorozvidka）是乌克兰军队中一支专门的无人机部队，正在利用埃隆-马斯克的星链Starlink卫星系统，”在俄罗斯军队睡觉时 “对其进行猎杀和攻击。
-
-据英国最古老的日报《泰晤士报》的报道，包括俄罗斯坦克、指挥车和运载电子设备的车辆在内的几十个 “重点目标 “被以这种方式发起的攻击摧毁。
-
-在基辅领导乌克兰空中侦察部队的雅罗斯拉夫•霍查尔（Yaroslav Honchar）说：”我们在夜间出击，当俄罗斯人睡觉的时候攻其不备。”
-
-阿罗兹维德卡部队有各种无人机供其使用–从廉价的现成无人机到即使在夜间也能探测到人类热信号的热能无人机，以及经过定制可投放反坦克手榴弹的重型多旋翼飞机。
-
-据报道，操作人员每天要执行多达300次无人机任务，以确保乌克兰军队有效利用其有限的炸弹供应。无人机部队的一位专家解释说:
-
-*我们专门寻找车队中最有价值的车辆，然后精确地打击它，我们可以做得非常好，附带非常小的损害。即使是在村庄里，这也是可能的。在晚上你可以更接近目标。*
-
-而这正是新近推出的星链Starlink互联网系统的用武之地，帮助乌克兰部队在这个饱受战争蹂躏的国家大面积停电期间也能保持在线。正如一位不愿透露姓名的士兵向《泰晤士报》透露的那样：
-
-*如果我们在夜间使用带有热成像的无人机，无人机必须通过*星链*Starlink**连接到俄军炮兵，并开始瞄准目标。*
-
-相关链接：
-[https://dronedj.com/2022/03/22/ukrainian-drones-destroy-russian-tanks/](https://dronedj.com/2022/03/22/ukrainian-drones-destroy-russian-tanks/)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
 
  
 

@@ -2,21 +2,38 @@
 ---
 
 
-## 麦考尔警告拜登：中共在乌克兰问题上是共犯
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2216313/)
+## 台湾密切关注中共南海人造岛军事化举动
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2216727/)
 
-翻译：雄起（酷翻组）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/麥克爾.jpeg)
-**美国华盛顿**** –**
+作者: 纽约磐石农场—在远方
 
-众议院外交委员会共和党领导人迈克尔-麦考尔就拜登总统3月18日星期五与中共总书记习近平的通话发表了以下声明。白宫对这次通话的公开描述误导性地暗示，中共尚未支持俄罗斯入侵乌克兰。习近平利用这个机会重申对台湾的挑衅和威胁，包括在通话前将一艘航空母舰驶近台湾领土。
 
-“中国共产党已经证明它不愿意也没有能力在俄罗斯对乌克兰的无端攻击事件中充当建设性的一方。相反，他们是同谋–与普京发表联合声明，将北约视为侵略者；据说与莫斯科协调入侵的时间；呼应俄罗斯的宣传和虚假信息，俄罗斯正利用这些信息对无辜的乌克兰平民进行残酷的攻击；并加大对俄罗斯经济的支持。空洞的会谈不会阻止中共的恶劣行动。美国必须对习近平政权实施科技和金融制裁，直到它用行动证明，它在进入彻底敌对前悬崖勒马。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+台媒3月22日报道，近日美国印太司令部指出，中共已将南沙群岛三个岛礁完成军事化改造，并威胁到周边国家安全。为此，中华民国国防部长邱国正表示，台湾和越南以及菲律宾等国，都在密切关注中共相关举动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ee180c2f564f7b0527d0648bc28ee6b0.jpeg)图片来源: 网络 (上图为中华民国国防部长邱国正)
+邱国正在立法院会施政总质询时表示，中共已将南沙群岛三个岛礁完成了军事化部署。隶属中华民国的太平岛也在其中，其他小岛则分属越南和菲律宾等国，各国之所以保持互不侵犯，就是因为默守规矩。对于中共觊觎南海的野心，相关国家都在密切注意。当前台湾在太平岛不是以军事驻扎、而是以海巡单位为主，是把维护海域安全做为重点。
 
-相关链接：[McCaul Warns Biden CCP Complicit in Ukraine](https://gop-foreignaffairs.house.gov/press-release/mccaul-warns-biden-ccp-complicit-in-ukraine/)
+新闻链接: [https://www.rti.org.tw/news/view/id/2127963](https://www.rti.org.tw/news/view/id/2127963)
 
-审核校对：Barry Jack
-上传排版：F
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-52.jpg)
+
+编辑/校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
 
  
 

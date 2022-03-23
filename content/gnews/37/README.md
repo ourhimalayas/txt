@@ -2,27 +2,39 @@
 ---
 
 
-## 俄乌战争｜拜登今起访欧 计划制裁逾300名俄罗斯杜马议员
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2215368/)
+## 俄军强行将数千名乌克兰儿童拐带到俄罗斯
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2216001/)
 
-**图/文：CP**
-**发布时间｜23/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/拜登今起訪歐-計劃制裁逾300名俄羅斯杜馬議員-1.jpg)
+翻译：wenwu
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2634.png)
 
+据称，俄罗斯军队正在拐带数千名乌克兰儿童，并将他们绑架到俄罗斯。 美国驻基辅大使馆在[推特](https://twitter.com/USEmbassyKyiv/status/1506214727394988032?s=20&amp;t=mpMUh9PPDhpGy7QgojyGng)上写道，有争议的顿巴斯地区的顿涅茨克和卢甘斯克的2389名乌克兰儿童被“非法带走”，这是引用了乌克兰外交部的说法（如下图）。
 
-美国总统拜登今日启程出访欧洲，期间会与北约、欧盟及波兰领袖会面，商讨俄乌战争的下一步应对方案。白宫国家安全顾问沙利文（Jake Sullivan）周二（22日）表示，美国会与盟友一起计划新一轮制裁俄罗斯的行动，总统拜登最快会于24日在布鲁塞尔的会议上公布。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2636.png)
 
-美媒引述一名知情官员的消息指，本轮制裁行动将与欧盟及七大工业国集团（G7）成员协调，目前尚未落实最终打击范围，但预计制裁将涵盖400人，包括328名国家杜马（State Duma，即下议院）议员及俄罗斯权贵。
+“这不是援助。这是绑架，”它说。
 
-俄罗斯国家杜马上月通过决议，支持总统普京开展“特别军事行动”入侵乌克兰，其后再批准法案禁止以言论“抹黑”俄军，包括以入侵、战争字眼形容现时发生的对乌战事，违者最高刑罚15年，导致多家外国传媒撤离俄罗斯。
+本周早些时候，马里乌波尔（Mariupol）市议会称，在俄罗斯报告称有“难民”从南部战略港口抵达后，俄罗斯军队上周将数千人从被围困的城市强行带离。
 
-來源｜[DailyMail](https://www.dailymail.co.uk/news/article-10641971/Biden-sanction-300-members-Putins-puppet-parliament-Duma.html)、[NYPost](https://nypost.com/2022/03/22/nsa-sullivan-us-to-impose-more-sanctions-ukraine-faces-hard-days-ahead/)
+“过去一周，数千名马里乌波尔居民被绑架到俄罗斯境内；占领者从 Livoberezhniy 区和体育俱乐部大楼的避难所非法带走了乌克兰人，那里有一千多人（主要是妇女和儿童）在躲避（俄军）不断的轰炸。”该委员会周六晚在其 Telegram 频道上发表声明说。
+
+俄罗斯新闻机构称，最近几天，（通过）巴士将几百名被称为难民的莫斯科人从马里乌波尔运往俄罗斯。
+
+美国驻联合国大使琳达·托马斯-格林菲尔德（Linda Thomas-Greenfield）在周末表示，从马里乌波尔强制绑架平民的指控如果属实，（这结果）“令人不安”和“不合情理”。
+
+“我只是听说。我无法证实，”她告诉CNN。”但我可以说这令人不安。俄罗斯军人绑架乌克兰公民进入俄罗斯，把他们放在基本上是集中营和囚犯营的地方，这是不合情理的；俄罗斯不应该违背乌克兰公民的意愿将他们转移到俄罗斯。”
+
+新闻来源：[news.sky.com] [Ukraine war: Kyiv claims Moscow forcefully deporting thousands
+ of Ukrainian children to Russia](https://news.sky.com/story/ukraine-war-kyiv-claims-moscow-forcefully-deporting-thousands-of-ukrainian-children-to-russia-12572666)
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
 
  
 

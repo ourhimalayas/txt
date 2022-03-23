@@ -2,39 +2,28 @@
 ---
 
 
-## 台湾密切关注中共南海人造岛军事化举动
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2216727/)
+## 北京累计接种6000万剂毒疫苗，或后果严重
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216875/)
 
-作者: 纽约磐石农场—在远方
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2F5630979%2Fimages%2F4f8e0945577e456981bf7dd71e0625a1.JPG&amp;imgrefurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2Fcontent_5630979.htm&amp;tbnid=qZXwQYF-4Mc5bM&amp;vet=12ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ..i&amp;docid=7aDBHwfrkPe6oM&amp;w=800&amp;h=533&amp;q=%E6%8E%A5%E7%A7%8D&amp;ved=2ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ)
+3月23日每日经济报报道，截至2022年3月22日，北京市累计报告接种中共病毒（新冠病毒Covid-19）疫苗5999.59万剂次，累计接种2283.80万人。
 
+截至2022年3月22日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗323460.1万剂次。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
-台媒3月22日报道，近日美国印太司令部指出，中共已将南沙群岛三个岛礁完成军事化改造，并威胁到周边国家安全。为此，中华民国国防部长邱国正表示，台湾和越南以及菲律宾等国，都在密切关注中共相关举动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ee180c2f564f7b0527d0648bc28ee6b0.jpeg)图片来源: 网络 (上图为中华民国国防部长邱国正)
-邱国正在立法院会施政总质询时表示，中共已将南沙群岛三个岛礁完成了军事化部署。隶属中华民国的太平岛也在其中，其他小岛则分属越南和菲律宾等国，各国之所以保持互不侵犯，就是因为默守规矩。对于中共觊觎南海的野心，相关国家都在密切注意。当前台湾在太平岛不是以军事驻扎、而是以海巡单位为主，是把维护海域安全做为重点。
+在两个月前的1月8号北青网报道，根据北京市卫健委刚刚发布的消息，截至2022年1月7日，北京市累计报告接种新冠病毒疫苗5725.15万剂次，累计接种2247.80万人。
 
-新闻链接: [https://www.rti.org.tw/news/view/id/2127963](https://www.rti.org.tw/news/view/id/2127963)
+2021年人口普查北京总人数：全市总人口（常住人口）为2189.3095人，时至今日累计接种2283.80万人，接种人口已超出全市常住人口90多万，接种中共病毒疫苗5725.15万剂次，累计接种毒疫苗已接近超出全市人口三倍数量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-52.jpg)
+毒疫苗引起人体各种不适症状灾难频频出现，而中共大力掩盖否认是毒疫苗造成的后遗症，中共政府以防疫为借口，懒政管理施行“一刀切”，把防控措施做到层层加码，强制隔离强制接种毒疫苗，大面积的次生灾害和毒疫苗灾难将随时到来。
 
-编辑/校对/发稿: 卡夫卡的甲壳虫
+消息来源：
 
-**更多资讯，更多关注**
+[【北京市累计报告接种新冠病毒疫苗5999.59万剂次，累计接种2283.80万人】](https://ms.mbd.baidu.com/r/Di5TTKjwwo?f=cp&amp;rs=397575460&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=26a48bfa4bb9d34c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
