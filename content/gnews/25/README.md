@@ -2,28 +2,40 @@
 ---
 
 
-## 樱花时政┃中共外交部承认南海岛礁军事化 彻底揭露习近平谎言
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2215784/)
+## 俄军强行将数千名乌克兰儿童拐带到俄罗斯
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2216001/)
 
-撰稿：东京樱花团/法治小哥
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-42.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fphototass2.cdnvideo.ru%2Fwidth%2F1020_b9261fa1%2Ftass%2Fm2%2Fen%2Fuploads%2Fi%2F20160811%2F1142645.jpg&amp;imgrefurl=https%3A%2F%2Ftass.com%2Fworld%2F893848&amp;tbnid=YOn3PZ7gOakxnM&amp;vet=12ahUKEwiqkqOT5dv2AhVWAN)
-3月22日，中共外交部发言人汪文斌主持中共外交部例行记者会。有记者提问，美军印太司令部司令称中国已经将南海的三个岛礁完全军事化。中方对此有何评论？
+翻译：wenwu
 
-汪文斌表示，中方在本国领土上部署必要的国土防御设施，这是主权国家的当然权利，符合国际法，无可厚非。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2634.png)
 
-而汪文斌的回复也证明了习近平此前的谎言。
+据称，俄罗斯军队正在拐带数千名乌克兰儿童，并将他们绑架到俄罗斯。 美国驻基辅大使馆在[推特](https://twitter.com/USEmbassyKyiv/status/1506214727394988032?s=20&amp;t=mpMUh9PPDhpGy7QgojyGng)上写道，有争议的顿巴斯地区的顿涅茨克和卢甘斯克的2389名乌克兰儿童被“非法带走”，这是引用了乌克兰外交部的说法（如下图）。
 
-2015年9月，中共国家主席习近平访美时曾公开表示，中方在南沙岛礁推进的修建工程 “不是以他国为目标或给他国造成影响的活动” ，中方 “在南沙岛礁没有追求军事化的意图” 。美国政府曾向中共政府确认习近平的发言，并询问“中方的见解不会改变吧”？中方回答“没有变化” ，承认习近平上述发言是 “正式见解” 。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2636.png)
 
-3月20日，美军印太司令部司令阿奎利诺（John Aquilino）接受采访时提到，中共已将其在南海建造的数个岛屿中的至少三个（美济礁、渚碧礁和永暑礁）完全军事化，用反舰和防空导弹系统、激光和干扰设备以及战斗机武装起来。
+“这不是援助。这是绑架，”它说。
 
-阿奎利诺说，“这些岛屿的功能是将中华人民共和国的进攻能力扩大到其大陆海岸之外，他们可以驾驶战斗机、轰炸机加上所有这些导弹系统的进攻能力。这一日益咄咄逼人的举动威胁着在附近活动的所有国家。”
+本周早些时候，马里乌波尔（Mariupol）市议会称，在俄罗斯报告称有“难民”从南部战略港口抵达后，俄罗斯军队上周将数千人从被围困的城市强行带离。
 
-信息来源：[中共外交部汪文斌坦承南海的一事实 证明习近平说谎](https://www.timednews.com/article/2022/03/22/16471.html)
+“过去一周，数千名马里乌波尔居民被绑架到俄罗斯境内；占领者从 Livoberezhniy 区和体育俱乐部大楼的避难所非法带走了乌克兰人，那里有一千多人（主要是妇女和儿童）在躲避（俄军）不断的轰炸。”该委员会周六晚在其 Telegram 频道上发表声明说。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+俄罗斯新闻机构称，最近几天，（通过）巴士将几百名被称为难民的莫斯科人从马里乌波尔运往俄罗斯。
+
+美国驻联合国大使琳达·托马斯-格林菲尔德（Linda Thomas-Greenfield）在周末表示，从马里乌波尔强制绑架平民的指控如果属实，（这结果）“令人不安”和“不合情理”。
+
+“我只是听说。我无法证实，”她告诉CNN。”但我可以说这令人不安。俄罗斯军人绑架乌克兰公民进入俄罗斯，把他们放在基本上是集中营和囚犯营的地方，这是不合情理的；俄罗斯不应该违背乌克兰公民的意愿将他们转移到俄罗斯。”
+
+新闻来源：[news.sky.com] [Ukraine war: Kyiv claims Moscow forcefully deporting thousands
+ of Ukrainian children to Russia](https://news.sky.com/story/ukraine-war-kyiv-claims-moscow-forcefully-deporting-thousands-of-ukrainian-children-to-russia-12572666)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
