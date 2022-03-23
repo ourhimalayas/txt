@@ -2,33 +2,29 @@
 ---
 
 
-## 樱花时政┃英首相驳斥普京入侵乌克兰的借口为“纯粹谎言”！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2215820/)
+## “与普京断绝关系”中共国党干部培训校教授主张（5）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2215975/)
 
-撰稿：东京樱花团/风翼
+【上一篇：[“与普京断绝关系”中共国党干部培训校教授主张（4）](https://gnews.org/zh-hans/2215976/)】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英首相驳斥普京入侵乌克兰的借口为纯粹谎言！.png)
+翻译：宫米叶
 
-英国首相约翰逊于3月22日夜11时，在推特账户上写道说“俄罗斯总统弗拉基米尔-普京声称俄罗斯军队入侵乌克兰 是”去纳粹化 “的一部分，这是一个彻头彻尾的谎言。相反，我们看到的是对无辜民众的轰炸”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2628-edited.png)胡伟 图片来源：rfa.org
 
-在推特下面转发了乌克兰的前一日新闻报道的链接，该新闻报道了96岁的纳粹德国集中营幸存者鲍里斯-罗曼琴科在哈尔基乌市被俄罗斯军队炮击致死的消息。
+由于上述原因，胡伟认为中共国需要采取措施积极应变，否则将会受到孤立，遭遇美国和西方的进一步围堵。他在文章中分析普京倒下后美国只需要将目光锁定于中共国便足够，与曾经面对中俄两个对手的情况截然不同，欧洲将也将进一步与中共国脱钩，日本毫无疑问也会参与进来，而韩国则进一步倒向美国，台湾也将加入其中。“中国不仅面临美国和北约、QUAD（美日印澳四方联盟）、AUKUS在军事上的包围，而且面临西方价值观和制度的挑战。”
 
-对于普京主张的对“去纳粹化”的战争是否是正义性，拿判断战争的正义性的几个显著标准来判断。战争是谁发起的？是你普京。战争在谁的国土上进行的？乌克兰。是哪个国家死伤平民？乌克兰。被侵略国家的人民是否支持战争？请看看那着护照在波兰边境哭泣的孩子！国际社会主流舆论的立场？世界不要你普京了！联合国大多数会员国的立场！一目了然。而你用拙劣的借口发动战争不惜一切哪怕是牺牲众多的生命的目的，只是怕民主的思想威胁到你独裁政权的统治而已。可你的独裁梦真的可以实现吗？历史早已给了你答案。
+胡伟在文章中认为，如果俄罗斯战败，基于以上分析中共国的选择将极为有限。他的看法是中共国不能与普京捆绑在一起，需要尽快切割。他在文中阐述道“俄罗斯与西方冲突升级，有助于转移美国对中国的注意力，从这个意义上说中国应当乐见其成，甚至对普京予以支持，但前提是俄罗斯不能倒下。”并发表了如果普京失势中共国没有及时抽身则一定会受其连累的看法。他认为，只有一种情况例外，那就是普京在中共国的支持下能够稳操胜券，但他同时也表示这种前景十分暗淡，中共国也没有足够的能力支援俄罗斯。胡伟在文中表达“国际政治的基本法则是‘没有永恒的朋友，也没有永恒的敌人，只有永恒的利益’。“并认为面临当下的国际情势，中共国只能趁早卸下俄罗斯这个累赘，”必须当机立断“。
 
-信息来源：
+【下一篇：“与普京断绝关系”中共国党干部培训校教授主张（6）】
 
+来源：【jiji.com】[「プーチン氏と断絶を」　中国党幹部養成校教授が主張](https://www.jiji.com/sp/article?k=2022031501214&amp;g=ukr&amp;utm_source=yahoo&amp;utm_medium=referral&amp;utm_campaign=link_back_edit_vb)
 
+* * *
 
-> An appalling tragedy. Boris survived four concentration camps & dedicated his life to ensuring the horrors of Nazism wouldn't be repeated.
-> 
-> Putin's claim that his invasion of Ukraine is 'de-Nazification' is a grotesque lie. Instead we're seeing the bombardment of innocent people. [https://t.co/283da6ygmZ](https://t.co/283da6ygmZ)
-> — Boris Johnson (@BorisJohnson) [March 22, 2022](https://twitter.com/BorisJohnson/status/1506271558926544901?ref_src=twsrc%5Etfw)
-
-
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+审核：BryanW 
+校对：天天
+发布：花羽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-13.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
