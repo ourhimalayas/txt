@@ -2,22 +2,22 @@
 ---
 
 
-## 美国财政部讨论冻结俄罗斯黄金储备
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216469/)
+## 迪拜即将推出一亿美元的数字资产基金
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216781/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-19.15.46-1.png)
-据外媒报道，美国两党参议员正在与财政部讨论冻结俄罗斯的所有黄金储备合计金额约1320亿美金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GPX5YBMNRRLCLF4FVWWOS5CMQU.jpg)
+3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
 
-自2014年普京吞并克里米亚以来，据称俄罗斯克里姆林宫一直使用黄金储备在不受监管的市场洗钱，包括外汇。黄金是俄罗斯储备的四分之一，美国议员希望通过此法案有效遏止俄罗斯在入侵乌克兰的问题上通过黄金来摆脱制裁的作法。目前美国国会办公室一直在和财政部合作，财政部长Yellen定期和国会议员会面，讨论立法问题，财政部门一直在充实技术支援。
+该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
 
-除国会外，拜登总统可以直接采取措施封锁俄罗斯黄金储备。
+据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
 
 撰稿、发布：骄子
 
 reference：
 
-[https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/](https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/)
+[Dubai firm Cypher Capital says launches $100 mln digital asset fund](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 * * *
 
@@ -29,7 +29,7 @@ reference：
 - [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

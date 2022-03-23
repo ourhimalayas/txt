@@ -2,26 +2,19 @@
 ---
 
 
-## 樱花时政┃中共网络舆论控制挡不住国人的反战浪潮
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216874/)
+## 拯救同胞 新中国联邦任重道远
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2217134/)
 
-撰稿：东京樱花团/法治小哥
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-44.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fphantom-marca.unidadeditorial.es%2F6e75330b349ffbc9ecf84b49189e288b%2Fresize%2F1320%2Ff%2Fjpg%2Fassets%2Fmultimedia%2Fimagenes%2F2022%2F02%2F28%2F16460455847265.jpg&amp;imgrefurl=https%3A%2F%2Fwww.marca.com)
-在持续20多天的俄乌战争中，虽然中共网络媒体和官方实施严格的言论控制并引导大众舆论风向，但仍有很多中国民众对战争表示反感，敦促中共当局改变立场。目前在微博，微信等社交平台上，依然可以看到大量不同的观点。
+文贵大直播20220323
 
-据纽约时报报道，上周，上海一位具有政治背景的学者胡伟发文警告称，如果中国再不和俄罗斯“切割”，会有被国际社会孤立的危险。文章发出后不久，即被网监删除。这篇文章中共国的社交媒体上获得了数以百万计的转发，影响巨大。
+主笔：顽童（纽伦堡正义）
 
-另外，一些位于乌克兰前线附近的中国反战人士，他们正试图突破中共当局的审查，为同胞提供战斗生活的真实记录。
+撰稿：文仁（功成）待命（樱花）不着急（达芬奇）
 
-可见，中共官方的观点并不能够代表广大中国人民。
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-16.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-15.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-15.png)
+*发布：Theodosia*
 
-信息来源：
-
-[中国当局严格的审查政策 挡不住国人的反战浪潮](https://vct.news/news/c14a72d8-d942-4bd2-a10e-7fb1b5be1fdd)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

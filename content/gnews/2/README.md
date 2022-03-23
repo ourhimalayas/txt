@@ -2,10 +2,8 @@
 ---
 
 
-## 中共国决定全力支持俄罗斯
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2217506/)
-
-视频来源: [https://www.youtube.com/watch?v=sMo2IyePOV4](https://www.youtube.com/watch?v=sMo2IyePOV4)
+## 科索沃战地摄影师：中国人有权利为自己国家做选择
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2217643/)
 
 * * *
 

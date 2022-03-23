@@ -2,29 +2,31 @@
 ---
 
 
-## 中俄同流合污导致美加强对中共制裁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2217447/)
+## 有声｜封校后的大学生活: 学校封了 人也疯了
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2217629/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-41.jpg)
-据【零对冲】3月22日报道，拜登政府对中共与俄罗斯同流合污以逃避西方制裁感到气愤，因此美国国务卿周一宣布对中共官员实施更多签证限制。
+By:**秘翻新闻**
 
-报道称，目前尚不清楚有多少中共官员将受到新的签证限制的影响，但迫于地缘政治紧张的压力，此次限制是先前政府对中共制裁的加强版，所以这将有效地禁止中共人员进入美国。对此，美国继续呼吁中共结束其在新疆、西藏正在犯下的种族灭绝和危害人类罪，以及对香港基本自由镇压以及侵犯人权的行为。美国还表示将致力于捍卫世界各地的人权，并将利用一切外交和经济措施来促进问责制。
+**2022-03-23**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/323_6.jpg)图片来源 新唐人
+[新唐人](https://www.ntdtv.com/gb/2022/03/22/a103380605.html)北京时间3月22日消息。中共病毒疫情爆发2年多，中共当局极端防疫，各地大学纷纷封校，许多学生几乎是上大学以来就在封禁中生活，学校还禁止谈论疫情。有高校学生翻墙抱怨：“学校封了，人也疯了！”
 
-原文链接：[US Unexpectedly Sanctions China Officials Hours After Demanding Beijing Condemn Russia | ZeroHedge](https://www.zerohedge.com/markets/us-expands-travel-bans-chinese-officials-hours-after-demanding-beijing-condemn-russia)
+有学生自嘲表示，感觉自己上了一个“假大学”。
 
-编辑/上传 – 大废墙
-素材/采编 – 文莱
+有学生发帖表示，封校期间，“大概每天活动轨迹是宿舍-食堂-教室，改成网课后就直接在宿舍和食堂之间往返，中间穿插着去操场做核酸。”
+
+上海交通大学也因疫情封校，学生们被混合隔离，缺医少药。目前，上海多所大学仍在封校中，学生上网发贴求助被删贴。
+
+而山东现代学院封校后，校方更是发通知恐吓学生，如果在网上发布疫情信息，“浏览过千就是犯罪”。
+
+另有学生爆料，封校后，学院疯狂提升物价，原价9元的速食面现价33.7元。同时，学院在做核酸检测时也相当混乱，上千人聚集一起做核酸，从早上排队到下午才能测完。
+
+（秘翻新闻 二丫编辑报道）
+
+发布 : 文橙
 
 * * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-12-22.30.59.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
