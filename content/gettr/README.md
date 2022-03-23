@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 5:25 PM (UTC)`
+
+2022/03/23  今天我第一次用Hpay 在G｜Fashion 网站上购买了衣服，非常的便捷和快速，这是具有历史性的时刻！ 从来没有一个数字货币能在一个实体店这样的快速交易付款。  你可以在世界的任何角落用Hpay 来购买GF的产品，绝对的跨国界，全球化! 你只需要扫一下二维码，点击付款即可！  简直太棒了， 希望大家都来体验一下这种快捷便利的付款方式，给你不一样的消费体验！@gfashion @DDNYC 
+![img](https://media.gettr.com/group12/getter/2022/03/23/17/588009e5-fe08-299a-cbb4-c233fdad3605/bae260f3567d27806cbbcdcd4a43a41e.jpg)
+
+---
+
 `@miles 3/23/2022 2:00 PM (UTC)`
 
 3-23日：❤️❤️❤️ <br/><br/>https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0
@@ -152,13 +159,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 3/20/2022 Miles Guo: The image of citizens of the New Federal State of China exhibited by the fellow fighters on the front line of the rescue operation is shaping the world at every moment, reflecting our courage and respect for humanity, animals, and mother nature. It was a tough decision for me to keep carrying out the rescue operation, and our rescue will become an epic miracle that will save countless Chinese people!<br/><br/><br/>3/20/2022 文贵直播：救援前线的战友展现出新中国联邦人的形象时刻影响着世界，体现出了我们的勇气和对人、动物与天地的尊重；文贵作出将救援进行下去的决定非常不易，我们的救援会成为拯救无数华人的史诗般的奇迹！<br/>
 ![img](https://media.gettr.com/group4/getter/2022/03/23/02/9af612eb-9b87-95e1-89d8-4e96909e3379/out.jpg)
-
----
-
-`@miles 3/23/2022 2:01 AM (UTC)`
-
-3/20/2022 Miles Guo: Capital fleeing Hong Kong has nothing to do with the pandemic or COVID vaccines. It's because investors have realized the war between the US and the CCP has begun. Bitcoin is controlled by Iran, Wall Street, the Swamp, Communist China, and Russia, with 2% of the people owning the same amount of Bitcoin owned by 96.6% of them. Bitcoin is a scam!<br/><br/><br/>3/20/2022 文贵直播：资本逃离香港跟疫情和疫苗无关，而是因为投资者意识到中美之战已经开始；比特币被伊朗、华尔街、沼泽地、中共和俄罗斯控制，2%的人拥有96.6%的人的比特币，比特币就是个骗局！<br/>
-![img](https://media.gettr.com/group36/getter/2022/03/23/02/9fafd388-7462-5ab1-ce50-ac9f3fa1a333/out.jpg)
 
 ---
 
