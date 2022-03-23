@@ -2,33 +2,24 @@
 ---
 
 
-## 美国宣布对部分中共国官员实施签证限制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2218648/)
+## 西媒头条 — 第194期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218717/)
 
-***评论：**中美领导人上周曾透过视频对话，但根据双方会后公布，两国领导人似是自说自话和重申立场。拜登警告总加速师（中共党魁习近平），任何军援或帮助俄国绕过国际制裁，均会带来后果。而加速师则警告拜登，若台湾问题不能妥善处理，将会为中美关系带来负面影响……好戏即将上演。*
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-据《路透社》2022年3月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2711-e1648059785124.png)2022年3月21日，美国国务卿安东尼·布林肯在美国华盛顿大屠杀纪念馆观看“缅甸走向种族灭绝之路”展览后发表讲话。
-图片来源：Kevin Lamarque/路透社
-洛杉矶，3月21日（路透社）——美国国务卿安东尼·布林肯 (Antony Blinken) 周一表示，美国正在限制一些中共国官员的签证，因为他们参与了对少数民族和宗教少数群体的“镇压行为”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220323.001.jpeg)
 
-文章来源：[https://www.reuters.com/world/china/us-restrict-visas-chinese-officials-blinken-2022-03-21/](https://www.reuters.com/world/china/us-restrict-visas-chinese-officials-blinken-2022-03-21/)
+发稿：信心的选择
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 钢蛋儿
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
 
  
 
