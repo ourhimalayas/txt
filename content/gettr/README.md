@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-23
+![img](https://media.gettr.com/group44/origin/2022/03/23/21/ffcf082f-fd8b-6dab-b240-b0d3912e4b3a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/23/2022 9:52 PM (UTC)`
 
 3/23/2022 Miles Guo: Although the CCP did not supply Russia with weapons, it has provided funds, food supplies, intelligence, and communication systems, hasn’t it? The whole world will believe that the Chinese people are the “culprits”. This is the most worrisome!<br/><br/><br/>3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的！<br/><br/>
@@ -144,15 +151,6 @@ Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscr
 
 Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his friends drove two days from Wales to Medyka. They sent food to the refugee camp to help Ukraine people. Mr. St. Clair and Fine Food both are amazing. They communicated using Cantonese, Japanese, Mandarin and English to talked about the NFSC & ROLF and the Russia-Ukraine war.<br/><br/>来自NFSC & ROLF的记者精糧采访了汤姆·圣·克莱尔先生。克莱尔先生和他的朋友从威尔士驱车两天来到梅迪卡。他们把食物送到梅迪卡难民营帮助乌克兰人民。St. Clair先生和Fine Food都很了不起。他们用粤语、日语、普通话和英语进行交流谈论新中国联邦和目前的战争。
 ![img](https://media.gettr.com/group10/origin/2022/03/23/04/0609843b-d667-5eb9-4213-a9d74ed2de14/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_designer 3/21/2022 3:16 AM (UTC)`
-
-文贵先生说：“中国人心里最大的毒就是共产党的毒，就是自私无知，没有信仰，不知道辨别真假善恶。我流血流汗、丢钱拿命来做的《大直播》，希望每时每刻能唤醒更多的中国人。”<br/>-2022年2月11日郭文贵先生GTV/GETTR直播<br/><br/>视频：蜂鸟手绘—战友日常之连线连心
-![img](https://media.gettr.com/group46/origin/2022/03/21/03/7e45ee00-8f55-5ef4-6f4d-3801607f05d7/out.jpg)
 
 ---
 
