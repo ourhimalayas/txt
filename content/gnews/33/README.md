@@ -2,22 +2,34 @@
 ---
 
 
-## 麦考尔警告拜登：中共在乌克兰问题上是共犯
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2216313/)
+## 美国财政部讨论冻结俄罗斯黄金储备
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216469/)
 
-翻译：雄起（酷翻组）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/麥克爾.jpeg)
-**美国华盛顿**** –**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-23-19.15.46-1.png)
+据外媒报道，美国两党参议员正在与财政部讨论冻结俄罗斯的所有黄金储备合计金额约1320亿美金。
 
-众议院外交委员会共和党领导人迈克尔-麦考尔就拜登总统3月18日星期五与中共总书记习近平的通话发表了以下声明。白宫对这次通话的公开描述误导性地暗示，中共尚未支持俄罗斯入侵乌克兰。习近平利用这个机会重申对台湾的挑衅和威胁，包括在通话前将一艘航空母舰驶近台湾领土。
+自2014年普京吞并克里米亚以来，据称俄罗斯克里姆林宫一直使用黄金储备在不受监管的市场洗钱，包括外汇。黄金是俄罗斯储备的四分之一，美国议员希望通过此法案有效遏止俄罗斯在入侵乌克兰的问题上通过黄金来摆脱制裁的作法。目前美国国会办公室一直在和财政部合作，财政部长Yellen定期和国会议员会面，讨论立法问题，财政部门一直在充实技术支援。
 
-“中国共产党已经证明它不愿意也没有能力在俄罗斯对乌克兰的无端攻击事件中充当建设性的一方。相反，他们是同谋–与普京发表联合声明，将北约视为侵略者；据说与莫斯科协调入侵的时间；呼应俄罗斯的宣传和虚假信息，俄罗斯正利用这些信息对无辜的乌克兰平民进行残酷的攻击；并加大对俄罗斯经济的支持。空洞的会谈不会阻止中共的恶劣行动。美国必须对习近平政权实施科技和金融制裁，直到它用行动证明，它在进入彻底敌对前悬崖勒马。”
+除国会外，拜登总统可以直接采取措施封锁俄罗斯黄金储备。
 
-相关链接：[McCaul Warns Biden CCP Complicit in Ukraine](https://gop-foreignaffairs.house.gov/press-release/mccaul-warns-biden-ccp-complicit-in-ukraine/)
+撰稿、发布：骄子
 
-审核校对：Barry Jack
-上传排版：F
+reference：
 
+[https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/](https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/)
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

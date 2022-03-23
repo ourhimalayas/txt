@@ -2,27 +2,12 @@
 ---
 
 
-## 普京得到中国支持留在G20
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2217369/)
+## 【乌克兰救援】03/20/2022 所有在梅迪卡的非政府组织都来我们这个帐篷开会
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2217457/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+【乌克兰救援】03/20/2022 一位新中国联邦战友：所有在梅迪卡的非政府组织都来我们这个帐篷开会。我们的这个帐篷是大家开会的场地了。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1150.jpg)
-
-
-图片来源： 路透社
-
-俄罗斯总统弗拉基米尔·普京计划于今年晚些时候出席在印度尼西亚举行的下一届 G20 峰会，并在周三获得了北京方面的宝贵支持，以反驳一些成员提出的俄罗斯可能被禁止加入该集团的建议。
-
-参与讨论的消息人士告诉路透社，美国及其西方盟国正在评估俄罗斯在入侵乌克兰后是否应该留在二十国集团主要经济体中。
-
-但消息人士称，任何将俄罗斯排除在外的举措都可能会被该集团其他国家否决，从而增加了一些国家转而跳过 G20 会议的可能性。
-
-目前担任 G20 轮值主席国的俄罗斯驻印度尼西亚大使表示，普京打算前往印度尼西亚度假胜地巴厘岛参加 11 月的 G20 峰会。
-
-🔗 [https://www.reuters.com/world/europe/russias-ambassador-indonesia-says-putin-plans-attend-g20-summit-2022-03-23/](https://www.reuters.com/world/europe/russias-ambassador-indonesia-says-putin-plans-attend-g20-summit-2022-03-23/)
-
-编辑发布： Shuizhuyu
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

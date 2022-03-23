@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 2:00 PM (UTC)`
+
+3-23日：❤️❤️❤️ <br/><br/>https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0
+
+---
+
 `@miles 3/23/2022 1:34 PM (UTC)`
 
 Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscrescue #nfsc新中国联邦
@@ -153,13 +159,6 @@ Fine Food from the NFSC & ROLF interviewed with Mr. Tom St. Clair. He and his fr
 
 3/20/2022 Miles Guo: Capital fleeing Hong Kong has nothing to do with the pandemic or COVID vaccines. It's because investors have realized the war between the US and the CCP has begun. Bitcoin is controlled by Iran, Wall Street, the Swamp, Communist China, and Russia, with 2% of the people owning the same amount of Bitcoin owned by 96.6% of them. Bitcoin is a scam!<br/><br/><br/>3/20/2022 文贵直播：资本逃离香港跟疫情和疫苗无关，而是因为投资者意识到中美之战已经开始；比特币被伊朗、华尔街、沼泽地、中共和俄罗斯控制，2%的人拥有96.6%的人的比特币，比特币就是个骗局！<br/>
 ![img](https://media.gettr.com/group36/getter/2022/03/23/02/9fafd388-7462-5ab1-ce50-ac9f3fa1a333/out.jpg)
-
----
-
-`@miles 3/23/2022 2:00 AM (UTC)`
-
-【Ukraine Rescue】03/21/2022 <br/>As Ukraine gradually took the initiative, the number of refugees decreased, some even began to return their home;<br/>The number of refugees has plummeted in the past two days, Medyka is not the only checkpoint. Many refugees have been diverted away;<br/>Three Russian commanders were killed by Ukraine counterattack, the Russian army’s morale has dropped, and the Ukrainian army’s sentiment has risen;<br/>Hope the war will end soon and Ukrainian refugees can go home safely and reunite.<br/><br/>【乌克兰救援】03/21/2022 <br/>随着乌克兰逐渐掌握主动，前方难民数量减少，甚至有些难民开始返乡；<br/>这两天难民骤降，梅迪卡不是唯一的关卡，很多难民被分流掉了；<br/>俄方三个指挥官被乌克兰反击干掉，俄军士气下降，乌军反击情绪上升；<br/>希望战争早点结束，乌克兰难民能平安回家团聚
-![img](https://media.gettr.com/group18/origin/2022/03/23/02/5e8f7cb9-ade4-10bc-fa81-c2ea2a74bc2f/out.jpg)
 
 ---
 

@@ -2,123 +2,34 @@
 ---
 
 
-## 《做核酸》古诗词改编版
-` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2216728/)
+## 迪拜即将推出一亿美元的数字资产基金
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2216781/)
 
-韩国正道农场
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GPX5YBMNRRLCLF4FVWWOS5CMQU.jpg)
+3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
 
-撰稿：爱战友
+该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
 
-上传：祁明
+据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2517-7.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2536.jpg)
-姑苏城外寒山寺，
+撰稿、发布：骄子
 
-夜半钟声做核酸。
+reference：
 
-桃花屋里桃花庵，
+[Dubai firm Cypher Capital says launches $100 mln digital asset fund](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-桃花庵里做核酸。
+* * *
 
-酒醒只在花间坐，
+欢迎订阅我们的GNews账号：
 
-酒醉还在做核酸。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-众里寻她千百度，
-
-那人却在做核酸。
-
-洛阳亲友如相问
-
-就说我在做核酸。
-
-我命由我不由天，
-
-天天都在做核酸。
-
-昨夜星辰昨夜风，
-
-画楼西畔做核酸。
-
-小楼一夜听春雨，
-
-听完春雨做核酸。
-
-莫愁前路无知己，
-
-知己都在做核酸。
-
-松下问童子，言师做核酸；
-
-夕阳无限好，只是做核酸；
-
-大道如青天，我独做核酸；
-
-郎骑竹马来，绕床做核酸；
-
-海内存知己，天涯做核酸；
-
-姑苏城外寒山寺，夜半钟声做核酸；
-
-桃花潭水深千尺，不及汪伦做核酸；
-
-天生我材必有用，千金散尽做核酸；
-
-正是江南好风景，落花时节做核酸；
-
-二十四桥明月夜，玉人何处做核酸？
-
-忽如一夜春风来，千人万人做核酸。
-
-路漫漫其修远兮，吴江坚持做核酸。
-
-李白乘舟将欲行，忽闻岸上做核酸。
-
-千呼万唤使出来，抱着琵琶做核酸。
-
-天涯何处无芳草，芳草全在做核酸。
-
-莫愁前路无知己，天下谁不做核酸。
-
-清明时节雨纷纷，路上行人做，核酸借问酒家何处，牧童遥指做核酸相见时难别也难，难得一起做核酸
-
-人生自古谁无死，留取丹心做核酸。
-
-春风满园关不住，一支红杏做核酸。
-
-忽如一夜春风来，千人万人做核酸。
-
-莫愁前路无知己，知己都在做核酸。
-
-远看山有色，近听水无声。春来花已开，人还做核酸。
-
-小楼一夜听春雨 ，深巷明朝做核酸。
-
-春风杨柳万千条，14亿神州做核酸。
-
-众里寻他千百度，蓦然回首，那人却在核酸处。
-
-床前明月光，低头做核酸。但愿人长久，一起做核酸。
-
-最后写一幅对联收尾
-
-上联：很怕出去
-
-回不来
-
-下联：又怕回来
-
-出不去
-
-横批：进出两难
-
-更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
