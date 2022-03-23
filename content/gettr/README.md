@@ -17,11 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-**:arrows_clockwise: miles 已轉發**
+`@miles 3/23/2022 12:37 AM (UTC)`
 
-`@suzeorman 3/22/2022 11:38 PM (UTC)`
+2022.03.22 晚 《新中国联邦新闻》东航空难暂未发现生还者 专家困惑坠机角度不寻常； 中共低调处理7名罹难战机士兵遗体
+![img](https://media.gettr.com/group35/origin/2022/03/23/00/f138d5be-2757-0614-c8aa-67483151da0f/9548d67018b19975dcafea4c4484666a.png)
 
-Switching your workplace #retirement contributions to a Roth 401(k), if available, can be a smart move. With a Roth, your contribution will come from pay that you have already paid tax on. But in retirement, when you make withdrawals, every dollar will be tax free.
+---
+
+`@miles 3/23/2022 12:26 AM (UTC)`
+
+3月22号：盖特又来大大V了
+> `@suzeorman 3/22/2022 11:38 PM (UTC)`<br/>Switching your workplace #retirement contributions to a Roth 401(k), if available, can be a smart move. With a Roth, your contribution will come from pay that you have already paid tax on. But in retirement, when you make withdrawals, every dollar will be tax free.
 
 ---
 
@@ -147,13 +153,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 3月21号：听说啊，这是路大脑袋或吴争——九指妖！搞了个混血儿！这是真的吗？真是共产党的好孩纸！🙈🙈🙈🙈🙈🙈
 ![img](https://media.gettr.com/group9/getter/2022/03/22/14/6f08e3e7-c63d-e2ca-f7cf-9b0508c52e09/out.jpg)
-
----
-
-`@miles 3/22/2022 1:01 PM (UTC)`
-
-2022.03.22 早《新中国联邦新闻访谈》TikTok算法把用户导向乌克兰战争虚假新闻；新中国联邦乌克兰国际救援行动不会停止；喜币将成为数字货币之王
-![img](https://media.gettr.com/group44/origin/2022/02/28/14/58b02062-d20a-7a34-627d-33645dc3ad05/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

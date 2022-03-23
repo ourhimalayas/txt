@@ -2,23 +2,42 @@
 ---
 
 
-## 中共国发生严重空难事故
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212711/)
+## 国际律师协会新应用帮助乌克兰收集普京战争罪证据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2212765/)
 
-作者：加拿大温哥华扬帆农场 – 文莱
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2584.png)[China Eastern Boeing 737 crash (key.aero)](https://www.key.aero/article/china-eastern-boeing-737-crash)
+翻译：li yan li
+编辑：Mttfly
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/eyeWitness_to_Atrocities.jpg)图片来源：eyeWitness&雅典娜设计组
 
 
-报道称，该架从昆明至广州，载有132位乘客的波音737航班在广西梧州附近坠毁，并引发坠机现场的森林大火。目前，东航所有737-800型飞机都被勒令停飞。
+国际律师协会（IBA）最近开发了一款名为“暴行目击者”（eyeWitness to Atrocities）的应用程序。该程式正在将来自乌克兰战区的图片和视频片段转化为符合法律规定的高标准核查格式。
 
-尽管总部位于芝加哥的波音公司随后声明将彻查坠机原因，但其股价在当天的盘前交易中下跌超过8%。此外，在波音737MAX飞机此前发生过两次致命事故后，目前已在全球范围内停飞。但中共国却在去年批准重新使用该型号飞机，而使其成为737MAX飞机仅存的用户市场。
+国际刑事法院首席检察官、英国大律师卡里姆·汗（Karim Khan）本月表示，他已开始对俄罗斯于2月24日开始入侵乌克兰一事进行调查。
 
-校对编辑：硫酸羟氯喹64
+总部设在伦敦的eyeWitness主任温迪·贝茨（Wendy Betts）说，由于围绕乌克兰战争的虚假信息太多，记录者面临的一个挑战是捕捉可靠的潜在照片和视频证据。虽然个人为收集这些信息所冒的风险很大，但重要的是这些信息可以用来寻求正义。
 
-发稿：青青
+该应用程序的乌克兰资源中心正在支持“民间社会团体、记者和乌克兰平民记录潜在的战争罪行”。
 
-新闻来源： [Boeing 737 plane crashes in China | CTV News](https://www.ctvnews.ca/world/chinese-airliner-crashes-with-132-aboard-in-country-s-south-1.5827371)
+国际律师协会执行董事马克·埃利斯（Mark Ellis）说：“该应用程序是国际刑事法院（ICC）的一个重要调查和证据工具。该程序通过视频和图片记录罪行，在法院确保将犯有战争罪的人绳之以法中发挥重要作用。
+
+国际律师协会发布的媒体称，目击者团队正在“创建档案，以提交给国际刑事法院等法庭”。
+
+国际刑事法院有权以种族灭绝罪、战争罪、反人类罪和侵略罪起诉个人。
+
+在国际刑事法院发表报告将俄罗斯对克里米亚的吞并归类为占领后，俄罗斯于2016年退出了国际刑事法院。
+
+参考链接：[Lawyer app helps build war crimes case against Putin](https://www.afr.com/policy/foreign-affairs/lawyer-app-helps-build-war-crimes-case-against-putin-20220322-p5a6s6)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

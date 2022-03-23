@@ -2,28 +2,23 @@
 ---
 
 
-## 德国总统和挪威国王病毒阳性
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2212675/)
+## 中共国发生严重空难事故
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2212711/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：加拿大温哥华扬帆农场 – 文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/steinmeier-1099__v-gross20x9.jpg)
-
-
-图片来源：德新社
-
-联邦总统施泰因迈尔和他的妻子布登本德感染了冠状病毒。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YS2VIAA5SRIUXJCH3P37H332ZM.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2584.png)[China Eastern Boeing 737 crash (key.aero)](https://www.key.aero/article/china-eastern-boeing-737-crash)
 
 
-挪威国王今天被诊断出感染了新冠病毒。国王的症状较轻，未来几天将请病假，”挪威王宫说。85 岁的挪威君主自 1991 年以来一直担任挪威的正式国家元首。
+报道称，该架从昆明至广州，载有132位乘客的波音737航班在广西梧州附近坠毁，并引发坠机现场的森林大火。目前，东航所有737-800型飞机都被勒令停飞。
 
-[https://www.tagesschau.de/newsticker/liveblog-corona-dienstag-119.html](https://www.tagesschau.de/newsticker/liveblog-corona-dienstag-119.html)
+尽管总部位于芝加哥的波音公司随后声明将彻查坠机原因，但其股价在当天的盘前交易中下跌超过8%。此外，在波音737MAX飞机此前发生过两次致命事故后，目前已在全球范围内停飞。但中共国却在去年批准重新使用该型号飞机，而使其成为737MAX飞机仅存的用户市场。
 
-[https://www.reuters.com/world/europe/norways-king-harald-tests-positive-covid-19-palace-says-2022-03-22/](https://www.reuters.com/world/europe/norways-king-harald-tests-positive-covid-19-palace-says-2022-03-22/)
+校对编辑：硫酸羟氯喹64
 
-编辑发表： Shuizhuyu
+发稿：青青
+
+新闻来源： [Boeing 737 plane crashes in China | CTV News](https://www.ctvnews.ca/world/chinese-airliner-crashes-with-132-aboard-in-country-s-south-1.5827371)
 
  
 
