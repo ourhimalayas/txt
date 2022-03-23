@@ -2,18 +2,25 @@
 ---
 
 
-## 为战友们高歌（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213162/)
+## 美官员：俄军士兵缺乏防寒装备被冻伤
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2213203/)
 
-**PPT制作: 小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-10_9-20一2.png)
-*发布：陶子*
+俄罗斯入侵乌克兰后，由于遭遇乌克兰军民激烈抵抗，后勤补给线屡被切断，加上乌克兰本月初曾有寒流，当时便有分析人士认为，后勤短缺的俄军部队可能遭受「毁灭性打击」。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpXqSbtp.jpg)图片来源：美联社
+
+一名美国国防高层指称，美方已观察到有部分俄军因缺乏防寒装备，在作战时被冻伤。
+
+简评：装备不全无法御寒，这仗还怎么打！难不成指望以战养战吗？俄罗斯的大兵们，不要再当炮灰了，抓紧投降乌克兰！止战！自由！民主！不要再拿生命去给普京送葬了！
+
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3868560](https://news.ltn.com.tw/news/world/breakingnews/3868560)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

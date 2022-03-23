@@ -2,11 +2,11 @@
 ---
 
 
-## 为战友们高歌（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213146/)
+## 在swift系统里就要守统一的规矩swift惩罚的都是不守规矩的独裁国家（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213175/)
 
 **PPT制作: WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-10_9-20一1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20_9-30一1.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

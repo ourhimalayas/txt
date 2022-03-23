@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 1:09 AM (UTC)`
+
+3/20/2022 Miles Guo: From the perspective of how the Chinese people judge the CCP cadres, we can see the Chinese are so pathetic. Zhu Rongji is a big crook. Zhu Yunlai and Zhu Yanlai have been using the Chinese people's hard-earned money to collude with Wall Street via China Investment Corporation (CIC), China International Capital Corporation (CICC), and Bank of China (BOC). They have deceived the Lao Baixing into believing that they are uncorrupted officials.<br/><br/>3/20/2022 文贵直播：从中国老百姓如何评判中共官员这点看，中国人太可悲了；朱镕基是大骗子，朱云来、朱燕来通过中投中金中银，用中国人的血汗钱和华尔街勾兑，骗得老百姓喊他清官<br/><br/>
+![img](https://media.gettr.com/group11/getter/2022/03/23/01/44e5eb2f-2632-8d7f-5334-6995f26ff4ad/out.jpg)
+
+---
+
 `@miles 3/23/2022 12:42 AM (UTC)`
 
 3月22日：这一天总会到来的．否则美国将付出安全上的巨大代价，新中国联邦一定会让这件事情发生！https://www.voachinese.com/a/congressman-chris-smith-introduces-new-legislation-to-strip-the-chinese-communist-party-of-its-trade-status-20220322/6496701.html?utm_source=twitter&utm_medium=social&utm_campaign=dlvr.it&s=08
@@ -145,13 +152,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 3月22号：尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！
 ![img](https://media.gettr.com/group46/getter/2022/03/22/15/80774d3c-80f8-e35e-13d8-9277fb6e8dfa/out.jpg)
-
----
-
-`@miles 3/22/2022 2:45 PM (UTC)`
-
-【Ukraine Rescue】03/19/2022 Taiwan+ is the first English-language media outlet in Taiwan targeting international audiences. When asked by the reporter from Taiwan+ what she thinks about Xi Jinping's military threat to Taiwan, Nicole replies: We support the democracy and freedom of the Taiwanese people. The more we support Ukraine, the less likely Xi Jinping will attack Taiwan. We will always stand together with the international justice forces. <br/><br/>【乌克兰救援】03/19/2022 台湾+是台湾首家面向国际观众的英文媒体，主持人问妮可对习近平武力威胁台湾的看法。妮可回答，我们支持台湾人民的民主和自由，我们越支持乌克兰，习近平攻打台湾的可能性越小，我们永远与国际正义力量站在一起。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group21/getter/2022/03/22/14/e51745c9-3a40-edc6-ccb1-05b22c28ccc6/out.jpg)
 
 ---
 
