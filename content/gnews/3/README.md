@@ -2,26 +2,31 @@
 ---
 
 
-## 《历史的今天》2022.03.23
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2215406/)
+## 今日盖特大V推荐 — 克莱·特拉维斯（Clay Travis）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215483/)
 
-作者：虎子哥
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0323.png)
-1. 1801年：俄罗斯帝国皇帝保罗一世在圣彼得堡的宫廷政变中被杀身亡，其子亚历山大一世继承皇位。
-2. 1888年：在英格兰，世界最早的职业足球联赛，“足球联赛”第一次举行。
-3. 1919年：贝尼托•墨索里尼建立“战斗的法西斯”党。
-4. 1933年：德国国会通过授权法案，将立法权给予以总理希特勒为首的政府。
-5. 1940年：全印穆斯林联盟在拉合尔通过决议，决定脱离印度建立一个穆斯林国家。
-6. 1981年：中华奥林匹克委员会与国际奥林匹克委员会签署《洛桑协议》，中华民国政府正式接纳“中华台北”作为其日后参加国际体育赛事的正式官方名称。
-7. 1994年：俄罗斯航空593号班机于西伯利亚失事坠毁，机上75人罹难。
-8. 1996年：中华民国举行首次总统全民直选，国民党候选人李登辉当选新一任总统。
-9. 1999年：北大西洋公约组织决定对南联盟进行大规模空中打击。
-10. 2021年：大型货柜船长赐轮搁浅于苏伊士运河，导致全球日常物品运输延迟，造成运输成本、油价上涨，影响全球经济。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2619.png)
+盖特链接： [**https://gettr.com/user/claytravis**](https://gettr.com/user/claytravis)
 
+**克莱·特拉维斯自述：**
 
-* * *
+http://Outkick.com, @outkick @foxsportsradio  东部时间早6-9点 & @foxbetlive 电视节目 东部时间早5点, 作家，共和党人也买运动鞋，三个男孩的父亲，律师
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2621.png)图片来源：网络
+**克莱·特拉维斯简介：**
 
-*发布：Theodosia*
+克莱·特拉维斯全名理查德·克莱·特拉维斯（Richard Clay Travis 出生于1979年4月6日）是美国政治评论员、体育记者、作家、律师、电台主持人、电视分析师、媒体名人和 OutKick 的创始人。
+
+克莱·特拉维斯和巴克·塞克斯顿是克莱特拉维斯和巴克塞克斯顿秀（The Clay Travis and Buck Sexton Show）的主持人，这是一个保守脱口秀节目，于2021年6月21日首播，取代了许多广播电台的拉什·林博秀（The Rush Limbaugh Show）。
+
+克莱·特拉维斯著有：2007年《Dixieland Delight：东南会议路上的足球赛季》、2009年《在岩石顶部：一个时代结束的前排座位》、2018年《共和党人也购买运动鞋：左派如何用政治破坏体育运动》等作品。
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

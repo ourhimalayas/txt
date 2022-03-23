@@ -2,134 +2,65 @@
 ---
 
 
-## 将来财产最安全的就是灭共的投资G系列的新中国联邦人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2215261/)
+## 截至3.23俄乌战事汇总（1）
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2215371/)
 
-这个艾力克斯被惩罚
-Este Alex fue castigado
+#### 采集：文洋
+![](https://assets.gnews.org/wp-content/uploads/2022/03/f72b0497-dfd2-4fd9-8a7e-013c5094a1a4-2.jpg)
+1. 欧盟文件：受俄罗斯制裁影响的欧盟公司可以获得高达40万欧元的政府援助；受高燃气价、高电价打击的公司可以获得援助，援助金额不超过合格成本的30%，最高可达200万欧元。
+2. 市场消息：中兴通讯(00763.HK)在香港暂停交易。
+3. 美国证交会：马斯克无法避免（美国证交会）对特斯拉相关推文的审查。
+4. 美联储威廉姆斯：如何监管稳定币在美国是一个高度优先的问题。
+5. 美国证交会：反对马斯克试图终止有关特斯拉推文的赞成裁决书的企图，反对马斯克撤销传票的企图。
+6. 美联储威廉姆斯：看到了使用稳定币进行支付的潜力。
+7. 美联储威廉姆斯：必须确保稳定币的安全与透明。
+8. 美国高级国防官员：俄罗斯瓦格纳集团雇佣军出现在顿巴斯地区。
+9. 乌克兰能源部长：乌克兰目前没有电力短缺。
+10. IMF总裁格奥尔基耶娃：乌克兰经济可能萎缩三分之一。
+11. IMF总裁格奥尔基耶娃：国际货币基金组织将参与乌克兰重建。
+12. IMF首席经济学家戈皮纳特：俄罗斯有美元来偿还债务。
+13. 英国首相约翰逊：同意印度总理莫迪的看法，乌克兰的完整和领土主权必须得到尊重。
+14. 美国国防部高级官员：美国尚未看到俄罗斯即将对乌克兰发动化学或生物武器袭击的任何具体迹象。
+15. 穆迪：（就俄罗斯政府的评级置评）尽管近期有报道称俄罗斯政府支付了息票，但投资者损失的风险仍然很高。
+16. 据白俄罗斯国家通讯社：白俄罗斯安全委员会表示，已经消灭了使用外交掩护的乌克兰间谍网络。
+17. 俄罗斯方面取消4月1日-5日从NOVOROSSIYSK港口出发的三艘装载乌拉尔原油的船只。
+18. 法国农业信贷银行暂停在俄罗斯的商业活动。
+19. 据俄罗斯卫星网：俄罗斯和土耳其部长讨论能源行业合作问题。
+20. 乌克兰第尼普罗地区州长：火箭弹袭击并摧毁了帕夫洛赫拉德镇的火车站，造成一人死亡。
+21. 据国际文传电讯社：俄罗斯NOVOROSSIISK港三个泊位中的两个因维修暂停运作。
+22. 美国驻俄罗斯大使沙利文：美国看到了俄罗斯发出的外交关系可能被切断的信号。
+23. 渣打银行：预计受俄罗斯经济的影响，2022年石油需求增长将低于200万桶/日。
+24. 渣打银行：预计俄罗斯石油产量将大幅下降，这将使欧佩克+协议失去合理性。
+25. 美国驻俄罗斯大使沙利文：美国不打算关闭驻俄使馆，拜登总统也不打算将本人召回华盛顿。（卫星新闻）
+26. 意大利方面表示，至少在两年内很难解决对俄罗斯天然气依赖的问题。
+27. 市场消息：西方国家限制俄罗斯获取天气数据。
+28. 普氏能源：道达尔能源将从沙特的Satorp炼油厂进口更多的柴油，作为替代俄罗斯能源的部分努力。
+29. 白宫新闻秘书珍·普萨基：星期一和拜登举行了两次在社交场合保持距离的会议，不被认为是密切接触者。
+30. 白宫新闻秘书珍·普萨基：美国总统拜登的中共病毒检测结果呈阴性。
+31. 美国白宫：在白宫新闻秘书珍·普萨基检测出中共病毒呈阳性后，正在进行密接者追踪。
+32. 市场消息：美国总统拜登与波兰总统杜达举行双边会谈。
+33. 美国国家安全顾问沙利文：拜登将宣布美国新一轮针对乌克兰难民的援助。
+34. 美国国家安全顾问沙利文：拜登将与合作伙伴一道，对俄罗斯实施更多制裁，加强现有制裁。
+35. 乌克兰总统泽连斯基：与俄罗斯的谈判很困难，有时甚至具有对抗性。
+36. 据塔斯社：克里姆林宫发言人佩斯科夫说，没有人认为乌克兰的军事行动只需要几天。
+37. 美联储戴利：目前，充分就业似乎已经实现，劳动力市场异常紧张。
+38. 据塔斯社：克里姆林宫发言人佩斯科夫表示，俄军在马里乌波尔的主要目标是肃清“民族主义单位”。
+39. 据国际文传电讯社援引克里姆林宫报道，普京和法国总统马克龙就乌克兰局势进行了通话。
+40. 英国国际贸易大臣特里维廉：英美希望将贸易关系提升至更高水平。
+41. 据沙特国家通讯社：阿布扎比王储表示，阿联酋热衷于能源安全、稳定和能源市场的平衡。
+42. 益普索3月21-22日进行的民调显示，拜登的支持率跌至40%的新低。
+43. 克里姆林宫发言人佩斯科夫：俄罗斯只有在受到威胁时才会使用核武器。（卫星新闻）
+44. 美国国防部：不能证实基辅郊区被（乌克兰政府军）收复，但是有迹象表明乌克兰人正在进攻，特别是在南部地区。
+45. 美国国防部发言人Kirby：俄罗斯军舰参与了在马里乌波尔的轰炸行动。
+46. 英国政府表示，美国取消（英国钢铁和铝进口）关税的措施将于6月1日生效。
+47. 英国钢铁公司表示，公司将与英国政府合作，履行美英钢铁协议的条款。
+48. 美国贸易代表戴琪：（英美达成的）这项协议有助于确保美国和英国的钢铁和铝工业的长期生存能力。
+49. 美国方面表示，英国商务部取消了美国对英国出口超过5亿美元钢铁产品的报复性关税。
+50. 美国方面宣布与英国达成新的“232条款”，允许英国在不应用“232条款”进口关税的情况下，其钢铁和铝产品以历史为基础的可持续数量进入美国市场。
+51. 委内瑞拉副总统：制裁使委内瑞拉每桶石油产生25%的损失。
+52. 【沙特为首多国联军拦截一枚弹道导弹】
+当地时间22日晚间，沙特为首多国联军司令部发布通告称，防空部队当天早些时候成功拦截一枚弹道导弹。通告中称，该枚导弹是在沙特南部吉赞省上空被击落的。沙特为首多国联军发言人图尔基·马利基在一份书面声明中指责也门胡塞武装发动了此次袭击，称此类针对沙特境内民用目标的袭击是胡塞武装企图使局势再次升级，并为即将举行的也门冲突各方会谈制造困难。
 
-我告诉大家今天为什么要说他
-Les diré por qué hoy estoy hablando de él
-
-他是一个完全在俄罗斯最干净的商人之一
-Él es uno de los empresarios más limpios de Rusia
-
-最有品味的世界超级富豪
-Es el más rico de todo el mundo con buena moralidad
-
-最会赚钱的人
-Es la persona que sabe más cómo enriquecerse
-
-黄金
-El oro
-
-我们的基金最早买他黄金买了好多
-Nuestra fundación fue el primero en comprarle oro y bastante
-
-赚了好多钱
-Ganó mucho dinero
-
-但是黄金永远不可能翻倍的
-Pero el oro nunca puede duplicarse
-
-永远要长点脑子, 兄弟姊妹们
-Deben tener siempre el cerebro, hermanos y hermanas
-
-艾力克斯他是黄金公司老板, 化肥的老板
-Alex es el jefe de la compañía de oro y de fertilizantes
-
-而且真正是赚钱的
-Y realmente gana dinero
-
-但是他被俄罗斯, 被普京给裹挟了
-Pero fue amenazado por Rusia y Putin
-
-所以
-Por eso
-
-一旦中共国被Swift(排除)的时候
-Una vez que China comunista sea (eliminado) por Swift
-
-不分好坏人, 只要是中国人全完蛋
-No hay diferencia entre buenas o malas personas, siempre y cuando sean chinos serán acabados
-
-还有更夸张的事情
-Y hay algo más exagerado
-
-阿布是以色列护照
-Roman Abramovich tiene el pasaporte de Israel
-
-艾力克斯是拿英国护照
-Alex tiene el pasaporte de Reino Unido
-
-照样被没收
-De igual manera fueron confiscados
-
-切尔西俱乐部自动交出去
-El Chelsea Football Club se entregó automáticamente
-
-所以我告诉大家
-Por lo tanto les digo a todos
-
-不是因为你是中国人
-No es porque eres chino
-
-我今天, 我文艺, 我双胞胎
-Hoy yo, Wenyi, los morochos
-
-我就在日本, 我不受你制裁
-Estoy en Japón, no seré sancionado por ti
-
-你一样被受制裁
-Igual serás sancionado
-
-唯一让你不受制裁的就一招
-Lo único que te mantendrá alejado de las sanciones
-
-你别以为你是混血儿
-No creas que eres mestizo
-
-你们像这样是灭共的新中国联邦人
-Ustedes como las personas del Nuevo Estado Federal de China que destruyen al Partido Comunista
-
-唯一一个财富能得到安全的
-La única riqueza que puede obtener seguridad es
-
-我是新中国联邦的投G系列投资者
-Soy el inversor de la serie G del Nuevo Estado Federal de China
-
-我是灭共的
-Soy el que destruye al Partido Comunista
-
-第二, 我是灭共的新中国联邦人
-Segundo, soy persona del Nuevo Estado Federal de China que elimina al Partido Comunista
-
-你不会受制裁
-No serás sancionado
-
-我给你百分之百保证
-Te comprometo al 100%
-
-* * *
-
-日期：03/21/2022
-原视频标题：将来财产最安全的就是灭共的投资G系列的新中国联邦人
-La riqueza más segura en el futuro será el pueblo del Nuevo Estado Federal de China que invierta en la serie G para eliminar al Partido Comunista
-
-原视频日期：03/15/2021
-原视频网址：[**https://gettr.com/post/p101jbgdd2c**](https://gettr.com/post/p101jbgdd2c)
-任务编号：KC479（4042）
-视频时间段：0:00-1:34
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
