@@ -2,23 +2,24 @@
 ---
 
 
-## 视频|还未迈步拥抱世界的友好 便已经历残酷的杀戮
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2218406/)
+## 2022年3月23日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218495/)
 
-制作：大直播短视频组 文果
-文案：一只蚂蚁#2684
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**中共的杀戮还在继续……**
 
-视频来源：[https://twitter.com/eminedzheppar/status/1504919622902026246?s=21](https://twitter.com/eminedzheppar/status/1504919622902026246?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0571.jpg)
 
-审核/编辑/发稿：谐趣园
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+发稿：信心的选择
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
 
  
 
