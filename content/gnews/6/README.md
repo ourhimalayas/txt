@@ -2,25 +2,37 @@
 ---
 
 
-## 视频|乌克兰总统：为保同胞努力促成与俄方的谈判
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2214910/)
+## 单伟建出任阿里巴巴新任独立董事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2214926/)
 
-制作：香草山视频部
+作者：银河系农场 – 骄子
 
-据Newsmx 3月20消息，乌克兰总统沃洛季米尔·泽伦斯基，表明他再次与俄罗斯总统弗拉基米尔·普京进行谈判的意愿。他同时表示，一旦谈判再度破裂，将意味着两国灾难性的战争后果。
 
-泽伦斯基表示，乌克兰将不惜使用任何形式，把握任何机会，积极寻求与俄方进行谈判的可能。但如果这些尝试宣告失败，将意味着战争的升级。
 
-随着俄乌战争进入第四周，乌克兰的伤亡人数日益增加。结束无辜百姓的死伤，已迫在眉睫。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-泽伦斯基认为，只要有1%的机会阻止这场战争，就应该抓住这个机会。尽管乌克兰军队已在多个战场成功地反击了来自俄罗斯的入侵者，但黎民百姓伤亡惨重。泽伦斯基表示，乌克兰人民已经展示了他们的尊严和力量，他们有能力给予侵略者强有力的还击。但不幸的是，尊严和力量不能有效阻止战争每天夺去无辜的生命。
 
-发稿：林礼
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+阿里巴巴22日发布公告，计划扩大100亿美元的美股回购规模，将回购总额从150亿美元上调至250亿美元，有效期至2024年3月，为期两年。这是自2017年以来，阿里巴巴第三次增加回购计划总额。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-12.jpg)
+与此同时，阿里巴巴还宣布，委任太盟投资集团执行董事单伟建为董事会独立董事，兼审计委员会成员，任命期于3月31日生效。
+
+早前，郭文贵先生曾多次爆光单伟建的真实身份是中共高级特务，不仅是中共千人计划的重要推手，也是蓝金黄美国政要的关键人物。
+
+参考链接：
+1. [视频：CCP間諜～单伟健](https://gettr.com/post/pzvm910bf4)
+2. [Alibaba upsizes share buyback by two-thirds to record $25 billion](https://www.reuters.com/business/retail-consumer/alibaba-increases-share-buyback-25-billion-15-billion-2022-03-22/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：天滅中共
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
