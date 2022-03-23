@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 12:29 PM (UTC)`
+
+【Ukraine Rescue】03/20/2022 the NFSC & ROLF Ukraine Humanitarian Rescue Operation - Poland Rescue Base Frontline Report: Sick fellow fighters have recovered and are returning to the team one after another. It is expected that there will be a new wave of Ukrainian refugees. We will continue to stand firm and serve the refugees. We will always be here until the war is over.<br/><br/>【乌克兰救援】03/20/2022 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报道：生病的战友陆续康复回到团队。预计还有新的乌克兰难民潮，我们将继续坚守阵地服务难民，战事不结束，我们会一直在这里。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group3/getter/2022/03/23/10/f72dec7f-6218-615b-9947-7b0f03e25795/out.jpg)
+
+---
+
 `@miles 3/23/2022 12:19 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月22日第18天当日救援统计：<br/>Medyka救援站接待：约75人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7297人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 18 - Date: March 22, 2022 :<br/>Medyka Rescue Station Reception: about 75 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7297 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -28,13 +35,6 @@
 
 2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难
 ![img](https://media.gettr.com/group11/origin/2022/03/23/11/c405e176-0200-f4d7-c07f-779f70981c74/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/23/2022 10:45 AM (UTC)`
-
-【Ukraine Rescue】03/20/2022 the NFSC & ROLF Ukraine Humanitarian Rescue Operation - Poland Rescue Base Frontline Report: Sick fellow fighters have recovered and are returning to the team one after another. It is expected that there will be a new wave of Ukrainian refugees. We will continue to stand firm and serve the refugees. We will always be here until the war is over.<br/><br/>【乌克兰救援】03/20/2022 新中国联邦法制基金乌克兰人道救援行动-波兰救援基地前线报道：生病的战友陆续康复回到团队。预计还有新的乌克兰难民潮，我们将继续坚守阵地服务难民，战事不结束，我们会一直在这里。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group3/getter/2022/03/23/10/f72dec7f-6218-615b-9947-7b0f03e25795/out.jpg)
 
 ---
 
