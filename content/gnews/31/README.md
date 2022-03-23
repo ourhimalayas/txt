@@ -2,36 +2,43 @@
 ---
 
 
-## 樱花时政┃英国考虑禁止NHS购入新疆医疗产品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2212640/)
+## 国际律师协会新应用帮助乌克兰收集普京战争罪证据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2212765/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-40.jpg)图片来源本文链接
-英国政府正考虑接纳一项议案修订，禁止国民保健服务（NHS）购入新疆医疗产品。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-消息人士对美国之音透露，英国高层官员倾向接纳相关提议，确保医疗供应链不会有使用强迫劳工的产品。
+翻译：li yan li
+编辑：Mttfly
 
-三月初，英国上议院审议《健康和保健法案》（Health and Care Bill）时，通过一项修正案，要求英国政府大臣不得从存在“严重种族灭绝风险”的地区采购医疗物资，以符合英国在《防止及惩治灭绝种族罪公约》（Convention on the Prevention and Punishment of the Crime of Genocide）下的义务。消息人士指，相关议案预计会在下星期回到英国下议院辩论。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/eyeWitness_to_Atrocities.jpg)图片来源：eyeWitness&雅典娜设计组
 
-修正案的另一个重点是，它要求增加一个新的机制，如果一个国会专责委员会要求评估采购地区是否有“严重种族灭绝风险”，英国政府大臣需要在两个月之内完成该评估。
 
-据悉日本也采取了类似的行动。
+国际律师协会（IBA）最近开发了一款名为“暴行目击者”（eyeWitness to Atrocities）的应用程序。该程式正在将来自乌克兰战区的图片和视频片段转化为符合法律规定的高标准核查格式。
 
-由此， 验证了郭文贵先生的爆料，美、欧各国将在现在至5月份展开对中共的打击。
+国际刑事法院首席检察官、英国大律师卡里姆·汗（Karim Khan）本月表示，他已开始对俄罗斯于2月24日开始入侵乌克兰一事进行调查。
 
-表面上看，这个议案是对以往决策的补充，似乎顺理成章，但是这正是提出所有问题的基础。我们知道，定下目的然后不择手段的去执行是共产主义的一贯做法。但是在文明社会认为这个正是极权主义形成的根源。
+总部设在伦敦的eyeWitness主任温迪·贝茨（Wendy Betts）说，由于围绕乌克兰战争的虚假信息太多，记录者面临的一个挑战是捕捉可靠的潜在照片和视频证据。虽然个人为收集这些信息所冒的风险很大，但重要的是这些信息可以用来寻求正义。
 
-正如哈耶克所讲：“自生自发秩序在处理正义问题时完全满足‘纯粹程序正义’的主要特征：不存在判定正当结果的独立标准，而是存在一种正确的或公平的程序，这种程序若被人们恰当地遵守，其结果也会是正确的或公平的，而无论它们可能会是一些什么样的结果。”
+该应用程序的乌克兰资源中心正在支持“民间社会团体、记者和乌克兰平民记录潜在的战争罪行”。
 
-中共的所作所为已经被文明国家看透，接下来就是扎扎实实的，一步一个脚印的痛殴中共。直到把中共打到十八层地狱中让烈火永世焚烧。
+国际律师协会执行董事马克·埃利斯（Mark Ellis）说：“该应用程序是国际刑事法院（ICC）的一个重要调查和证据工具。该程序通过视频和图片记录罪行，在法院确保将犯有战争罪的人绳之以法中发挥重要作用。
 
-消息来源：
+国际律师协会发布的媒体称，目击者团队正在“创建档案，以提交给国际刑事法院等法庭”。
 
-[英国考虑禁止国民保健服务购入新疆医疗产品](https://www.voachinese.com/a/uk-xinjiang-forced-labor-20220322/6495526.html)
+国际刑事法院有权以种族灭绝罪、战争罪、反人类罪和侵略罪起诉个人。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+在国际刑事法院发表报告将俄罗斯对克里米亚的吞并归类为占领后，俄罗斯于2016年退出了国际刑事法院。
+
+参考链接：[Lawyer app helps build war crimes case against Putin](https://www.afr.com/policy/foreign-affairs/lawyer-app-helps-build-war-crimes-case-against-putin-20220322-p5a6s6)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,11 +2,11 @@
 ---
 
 
-## 在swift系统里就要守统一的规矩swift惩罚的都是不守规矩的独裁国家（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213398/)
+## 在swift系统里就要守统一的规矩swift惩罚的都是不守规矩的独裁国家（八）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213441/)
 
 **PPT制作: 小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20_9-30一4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20_9-30一8.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

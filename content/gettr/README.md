@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/23/2022 1:54 AM (UTC)`
+
+【Ukraine Rescue】03/21/2022 <br/>Frontline fellow fighters are building a good image and international credibility for the Chinese;<br/>On the front line, you can feel the respect among people, the respect for Chinese people depends on our actions, not just words;<br/>In different cooperation and exchanges, we have gradually accumulated and established others' recognition and respect;<br/>We use practical actions to tell everyone that we are here to save people;<br/>The challenge on the front line is the mix of people and complex information, including the CCP Virus;<br/><br/>【乌克兰救援】03/21/2022 <br/>前线战友在为中国人树立良好的形象 建立国际信誉；<br/>在前线可以感受到人与人间的尊重，特别是对华人的尊重靠的是行动，而不是光说；<br/>在各种合作交往中，慢慢地积累和建立别人对我们的认同和尊重；<br/>我们用实际行动去告诉大家我们真的是来救人的；<br/>前线的挑战是各种人员和复杂信息混在一起，包括现在谈到的病毒；
+![img](https://media.gettr.com/group13/origin/2022/03/23/01/a866c8e5-f36f-f68e-c654-1aecab752167/out.jpg)
+
+---
+
+`@miles 3/23/2022 1:54 AM (UTC)`
+
+3/22/2022 Miles Guo’s GETTR: The fundamental reason for Putin to invade Ukraine is the fear that the free and democratic system in Ukraine will spread to Russia, thus awakening the enslaved Russian people to rise up. The crimes of Weijian Shan will be thoroughly investigated. Bruno Wu is trying to survive by relying upon the excuse of going against the Whistleblowers’ Movement, but he will end miserably. All those who collude with the CCP overseas will be finished!<br/><br/>3/22/2022 文贵盖特：普京打乌克兰的根本原因是担心乌克兰的自由民主制度传到俄罗斯，唤醒被奴役的人们揭竿而起；单伟建的罪行必被查清，吴征靠反爆料革命苟延残喘，但他结局会很惨；海外所有跟中共勾结的人都将完蛋<br/>
+![img](https://media.gettr.com/group19/getter/2022/03/23/01/a0fe3d78-c53f-9c2e-f828-1dc1f8752e57/out.jpg)
+
+---
+
 `@miles 3/23/2022 1:39 AM (UTC)`
 
 【Ukraine Rescue】03/21/2022 <br/>Introduction of frontline CCP-Virus prevention work and related prevention measures; <br/>Virus prevention starts from yourself, and the team is reasonably divided into groups; <br/>Monitor the body temperature and other physical conditions of each person every day. If someone feels unwell, he will be immediately isolated and observed;<br/>Separate meals, pay attention to the quality and safety of food;<br/>Many infected fellow fighters are slowly recovering, they will soon be able to return to frontline rescue work<br/><br/>【乌克兰救援】03/21/2022 <br/>前线病毒防疫工作的介绍和相关防毒措施；<br/>预防病毒从自我做起，团队要进行合理分组；<br/>每天每人的体温及其他身体状况进行监测，如有不适，马上进行隔离观察；<br/>用餐的时候分开，注意食品的质量和安全；<br/>很多感染的战友们慢慢恢复中，很快就能回归到前线救援工作中
@@ -139,20 +153,6 @@ The NFSC is made up of new Chinese people who are committed to the taking down t
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战事最新报道
 ![img](https://media.gettr.com/group43/origin/2022/03/22/18/04f9180a-4952-b8bb-1914-4bdf675b29b9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/22/2022 6:06 PM (UTC)`
-
-加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。喜联储主席William先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，那么这个问题也可以轻松解决。 其中一项要求是了解您的客户（KYC）——交易场所成员在加入时都必须注册完整的个人资料。William先生还说，“我已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。”<br/> https://gnews.org/zh-hans/2210861/
-
----
-
-`@miles 3/22/2022 5:06 PM (UTC)`
-
-3月22日：九指妖．还有龟头杨．陈其生．必须为诈骗战友．应付的法律代价，必须让他们在监狱里团聚！
-> `@changdaobrother 3/22/2022 4:00 PM (UTC)`<br/>香草山农场代表战友们对九指妖团伙欺诈行为的民事诉讼取得重大胜利。<br/>3月14日，亚利桑那州联邦法庭作出判决认定九指妖及其同伙陈其声（海洋）无故拒绝到庭应答诉讼。因此以香草山农场为原告的诉讼可以在他们缺席的状况下继续进行（Finding of Default). 被告陈其声（海洋）在法庭决定的当天立即通过其律师向法庭递交了申请取消这一判决的动议。并表示愿意与香草山农场合作以避免进一步的不利判决。3月14日的法庭决定再次验证爆料革命新中国联邦人绝不会放过一个伪类欺民贼，正义可能会延迟但永远不会缺席！在此我代表联盟委员会和香草山农场向战友们的耐心和对我们工作的支持表示感谢。<br/>#nfsc新中国联邦 #milesguo #爆料革命 #nfscnews NFSCN
-![img](https://media.gettr.com/group10/getter/2022/03/22/16/7c5cdec9-63d2-19dc-c12e-461984f15f81/e4fe42663921ca21b3ac6151561028a0.jpg)
 
 ---
 

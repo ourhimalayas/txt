@@ -2,45 +2,22 @@
 ---
 
 
-## Evergrande Suspends HKEx Trading Again, CCP’s Imminent Real Estate Crash
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2213367/)
+## 七哥金句：没有了港币美元挂钩时，最疼的是广东而不是香港
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2213420/)
 
-**[Follow NFSC News on *Gettr*](https://www.gettr.com/user/nfscnews) | [Gnews on *Gettr*](https://gettr.com/user/gnews)**
-
-
-
-Translated by: MOS Media Team – CloudSky
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gnews-2.png)
-
-
-On March 21st, China Evergrande, Evergrande Motors and Evergrande Properties once again suspended trading on the Hong Kong Stock Exchange. This is not the first time Evergrande has suspended its stock trading. As early as September 16th last year upon its stock tumbling, Evergrande suspended the trading on nine of its bonds on the Shanghai Stock Exchange and the Shenzhen Stock Exchange. Evergrande also suspended trading on the Hong Kong Stock Exchange on January 3rd this year. What followed was another tragedy that Hong Kong stocks fell below 20,000 points from the beginning of the year until March 14th and fell to 18,000 points.
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/hengda-Copy.jpg)
-After Miles Guo exposed the drastic impact of what below-20,000 points meant, the CCP frantically reversed the decline of Hong Kong stocks despite the negative information that many real estate companies such as Evergrande and Yango Group were unable to repay their debts and were taken over by state-owned enterprises of Communist China. Miles Guo emphasized in a March 21st Gettr video that one of the next two things the fellow fighters of the New Federal State of China need to pay attention to is what will happen in a few months — the drastic crash of the CCP’s real estate market, and the collapse of the economy in Communist China and Hong Kong.
-
-
-
-Proofread / Edited by: Cloud Xu
-Chief Editor: Saturn M.
-Posted by: Emily G.
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1EA879DF-7724-4FF4-9043-FD7159BE9981.jpeg)
-
-**For more information, please follow us at:
-[NFSCNews | Gettr](https://www.gettr.com/user/nfscnews)
-[Gnews | Gettr](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)
-[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[Free to Join New York MOS Himalaya | Discord](https://discord.gg/ChqXAHd)**
+整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.3.15-七哥金句-07.jpg)
+发布：枫叶红了
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
-Disclaimer: This article only represents the author’s view. Gnews is not responsible for any legal risks.
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
 - [ROL Foundation](https://rolfoundation.org/)
 - [ROL Society](https://rolsociety.org/)
