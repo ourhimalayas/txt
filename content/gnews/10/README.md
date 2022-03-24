@@ -2,39 +2,33 @@
 ---
 
 
-## 有声|俄军2500人阵亡遗体经白俄罗斯运回国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2219555/)
+## 今日盖特大V推荐 — 每日信号（Tim Pool）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2219608/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-自由时报19日消息，俄罗斯在2月24日入侵乌克兰后，军事表现不如外界预期，死伤惨重。有白俄罗斯的医护人员透露，2500具俄军阵亡的尸体，从白俄罗斯经由火车和空运返回俄罗斯。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpYQltXt-1.jpg)
-在与乌克兰接壤的白俄罗斯地区的居民和医护人员说，俄罗斯军队愈来愈多的尸体和伤兵被运出乌克兰，然后被送往其他地方进一步治疗或安葬。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2740-e1648081983217.png)
+盖特链接： [https://gettr.com/user/dailysignal](https://gettr.com/user/dailysignal)
 
-白俄罗斯戈梅利（Gomel）地区临床医院职员说光是13日就为近100名俄军伤兵进行手术，隔天接收更多俄军伤兵，所有医生包括治疗师及耳鼻喉科专家，都参与手术和治疗，医院充满俄军尸体，走廊和病房里也都是俄军伤兵，到处都是他们的伤痛呻吟声。
+**每日信号自述：**
 
-另有医护人员透露，截至3月13日，已有2500多具俄兵尸体从戈梅利地区，透过火车或空运返回俄罗斯。现在该地区主要医院由警察和安全机构看守，如果医师对外谈及医院现况，他们可能会被解僱。
+关于政治和政策问题的高质量、可信的新闻报道对于知情和自由的社会至关重要。在@heritage的支持下带给你
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2742.png)图片来源：网络
+**每日信号简介**：
+
+每日信号（The Daily Signal）是一家美国保守派政治媒体新闻网站，成立于 2014年6月。该刊物关注政治、政策和文化，并从保守的角度提供政治评论。它由保守派智囊团、传统基金会出版。
+
+每日信号出版物报道了美国国内外[的](https://en.m.wikipedia.org/wiki/Foreign_policy)政治和公共政策问题，并以专注于它认为未报道或报道不足的事件。该网站依据于原始的调查报道，旨在成为一个公正的新闻来源。
+
+编撰：洛杉矶盘古农场 — 心照
+
+校审：洛杉矶盘古农场 — 郭友(文苏)
+
+发布：洛杉矶盘古农场 —子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-文字版原文：[俄军2500人阵亡遗体经白俄罗斯运回国](https://gnews.org/zh-hans/2207137/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

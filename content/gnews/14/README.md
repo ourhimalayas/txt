@@ -2,11 +2,13 @@
 ---
 
 
-## 3/23/2022 文贵直播：乌克兰富豪被新中国联邦救援所感动，毅然决定回国作战；乌克兰必胜，俄罗斯将解体；中共或参加俄罗斯可能打的小型核战争
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2219320/)
+## 日本2022财年史上最高107万亿预算案获参议院通过
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2219526/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220324-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

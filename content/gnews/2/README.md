@@ -2,8 +2,8 @@
 ---
 
 
-## 习二与普京合作的基础是抱团取暖反对美帝国主义（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219699/)
+## 普京入侵乌克兰判断失误：保守点一星期
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219745/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

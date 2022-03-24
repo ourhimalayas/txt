@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 1:09 AM (UTC)`
+
+ 3月23日：聪明，专业的有良知的战友！
+> `@clark228 3/23/2022 1:29 AM (UTC)`<br/>强烈要求中国民航局公布QACVR（驾驶舱窃听器）的内容。<br/>郭先生在2018年就爆料过ccp给所有飞机安装了窃听器。<br/>而中国民航局不顾厂家多次反对，强行在驾驶舱安装QACVR窃听器。用来监听飞行员的谈话，这个设备最多可连续记录3个月的录音，每个航空公司都可以自行提取录音。而黑匣子只能保存30到50分钟的录音。<br/><br/><br/>以前，飞行员在驾驶舱可以随便聊天吐槽，然而安装QACVR以后，飞行员生怕说错一句话，就会遭致领导的打压。民航局也利用窃听器大搞飞行作风整顿，即，标准喊话说错一个字，检查单读的不大声都会被领导考评。更别提闲聊了，长期在如此压抑的飞行环境中，你觉得飞行员好能是正常人吗？<br/><br/>飞机失事了，民航局闭口不提QACVR的事情，你们想帮CCP隐瞒什么了？<br/>驾驶舱是一个没人权、没自由、极度压抑、时刻被监听的地方、飞行员还能是正常人吗？<br/>
+![img](https://media.gettr.com/group26/getter/2022/03/23/01/6da56f83-33c6-e59b-5f08-42064a2fca64/3ffaff896efb48ceb179c8e33f62c230.jpg)
+
+---
+
 `@miles 3/24/2022 12:35 AM (UTC)`
 
 2022.03.23 晚 《新中国联邦新闻》对民主自由的恐惧让普京发动战争；面对制裁 俄罗斯欲将马里乌波尔市变为战争“灰烬”
@@ -144,13 +152,6 @@ Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscr
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月22日第18天当日救援统计：<br/>Medyka救援站接待：约75人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7297人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 18 - Date: March 22, 2022 :<br/>Medyka Rescue Station Reception: about 75 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7297 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group50/getter/2022/03/23/12/d3ccc461-bf3a-2ceb-a1f3-7ca75dcb62c1/3926b2d63f2891bc77ed8a5777917751.jpg)
-
----
-
-`@miles 3/23/2022 12:04 PM (UTC)`
-
-2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难
-![img](https://media.gettr.com/group11/origin/2022/03/23/11/c405e176-0200-f4d7-c07f-779f70981c74/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
