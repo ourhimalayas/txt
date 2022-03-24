@@ -2,35 +2,37 @@
 ---
 
 
-## 澳新银行成为第一家铸造稳定币的澳大利亚银行
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2220679/)
+## 前线战友接受“台湾+”英文媒体采访
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220725/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/727bc5ffb559b746ab6bcd2e6d6b4400.jpeg)图片来源：www.theaustralian.com.au
+作者：纽约磐石农场 – 在远方
 
 
-根据路透社3月24日报道，澳新银行集团（ANZ.AX）周四表示，该公司进行了一次澳元稳定币支付，这是一项具有里程碑意义的交易。澳新银行成为澳大利亚第一家铸造与该国货币挂钩的数字资产的银行。
 
-稳定币是一种数字资产，旨在保持其相对于另一种资产的价值稳定，并经常用作其他加密货币的门户或在去中心化金融系统中产生收入。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-澳新银行表示，已通过数字资产投资平台Zerocap向一家私人数字资产财富管理公司Victor Smorgon Group交付了澳元稳定币A$DC。
 
-澳大利亚储备银行(RBA)去年表示，该公司开始铸造与澳元挂钩的数字资产。数字钱包的增长可能允许交换由澳大利亚央行支持的代币或数字形式的货币，尽管中央银行仍然对数字货币持怀疑态度。
 
-澳新银行表示，该公司已经使用智能合约铸造了3000万澳元稳定币A$DC。这些稳定币在双方之间转移，后来又兑换回法定货币。
+3月22日，郭文贵先生盖特视频表示，乌克兰前线救援战地记者妮可接受了台湾首家面向国际观众的英文媒体“台湾+”的采访。妮可表示，新中国联邦支持台湾人民的民主自由，并永远与国际正义力量站在一起。
 
-新闻来源：[ANZ becomes first Australian bank to mint stablecoin](https://www.reuters.com/business/finance/anz-becomes-first-australian-bank-mint-stablecoin-2022-03-23/)
+在采访过程中，台湾媒体清楚了解到乌克兰国际救援由法治基金赞助，参与者是热爱和平、自由和法制的新中国联邦人组成，正在为乌克兰难民提供人道主义救援，并致力于摧毁邪恶的中国共产党。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-12.jpg)
+此外，采访也对台湾现在享有的自由民主表示担忧，妮可说到：如果中共侵略台湾，国际社会将会为台湾提供大力支持，新中国联邦也将为所有被中共镇压和虐待的人们提供人道主义救援。并强调国际社会给予乌克兰人民越多的支持，中共实施人权暴行的可能性就越小，消灭中共是保障世界和平、法治与自由的唯一途径。
 
-发布：tianzhihuan
+参考链接：
+[【乌克兰救援】03/19/2022 台湾+是台湾首家面向国际观众的英文媒体，主持人问妮可对习近平武力威胁台湾的看法。](https://www.gettr.com/post/p11av1wba1d)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/：zhong
+审核：Ivy001
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

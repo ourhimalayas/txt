@@ -2,36 +2,42 @@
 ---
 
 
-## “圣彼得堡的阴谋”将清算中共国的一切
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2220460/)
+## 数家央行与国际清算银行合作开展数字货币支付业务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220690/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/381f2a6c965f09d40315ea2461e5479d.jpg)
-3月23日大直播中，郭先生与战友分享俄乌战争接下来的可能走势。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯对乌克兰的这场战争，普京所谓的保守估计是一周之内结束，但目前已经持续一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一个是打小规模的核战争，一个是只能停战。停战要找担保人来调停，郭先生直播中提到“圣彼得堡的阴谋”，就俄罗斯让中共国来做担保人停止这场战争，表面上看体现中共国的大国风范，联合国都做不到的事情中共国做成了。但是实际上，这会让全世界所有的中国人，信用、宗教、金融受到全方位长时间的制裁，不会再有人卖给中共国粮食，整个世界可能都要与中国人为敌。
+翻译：li yan li
+编辑：jocozoner
 
-众所周知中国共产党要挟十四亿中国人，从金钱等方面予以俄罗斯支持，并且在中东的小规模军事冲突中，军事武器无人机的提供者都是中共，只要中共在，世界上的邪恶犯罪只会越来越恶劣。习近平会把这些全部都栽赃嫁祸给美国。此次如若圣彼得堡的阴谋得逞，在全世界都知道中共是俄罗斯入侵的支持者之下，习近平出来调停战争无非是再一次用停战的借口要挟全世界，更加剧世界对无辜中国人的仇恨。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
 
-新中国联邦致力于消灭共产党解救中国人。
 
-撰稿、发布：骄子
+据道琼斯通讯社报道，四家中央银行与国际清算银行合作创建了一个支付平台原型，以期能对各国央行发行的数字货币进行国际结算。
 
-reference：
+3月22日，国际清算银行创新中心、澳大利亚储备银行、马来西亚中央银行、新加坡金融管理局以及南非储备银行共同宣布该平台已经搭建完成，他们认为金融机构借此可对以上各国央行发行的数字货币直接进行交易。
 
-[https://gettr.com/post/p11ke0ac549](https://gettr.com/post/p11ke0ac549)
+该集团在一份声明中说，该平台被称为“邓巴计划”（Project Dunbar），他们希望通过此架构来减少对中介机构的依赖，以及处理跨境交易的成本和时间。
 
-* * *
+在开发该平台的过程中，参与的各国央行表示，他们解决了诸如如何对有权利使用CBDC1进行交易的实体进行认证，以及如何解决不同国家的支付监管差异等问题。
 
-欢迎订阅我们的GNews账号：
+1. 央行数字货币
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
+国际清算银行新加坡创新中心负责人安德鲁·麦科马克（Andrew McCormack）说：“邓巴计划表明，可以通过强大技术手段实施的治理机制，我们完全可以解决信任和共享控制的关键问题，这都为未来全球和区域平台的发展奠定了基础。”
+
+麦科马克先生还补充说，允许实体直接持有不同司法管辖区的CBDC并进行交易，可以减少跨境支付对中介机构的需求。
+
+新闻链接：[Central banks, BIS team up on digital-currency payments](https://www.marketwatch.com/story/central-banks-bis-team-up-on-digital-currency-payments-271647930605)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 7:03 AM (UTC)`
+
+3/23/2022 Miles Guo: Xi Jinping managed to accomplish the following three things that he had planned to do before he came to power: 1) purge of the Party; 2) taking down the Princelings of the CCP; and 3) bringing down the warlords and wealthy tycoons. Xi is ruthless, and such a personality is very much like that of the head of a gang. He will reduce to ashes those whom he is determined to eliminate. He will support whoever he likes even if they are demons.<br/><br/>3/23/2022 文贵直播：习近平上台前要做三件事：1）清党；2）干掉太子；3）干掉军阀财阀，他都做到了；习混不吝的个性很像黑社会老大，决心要办的人必将其挫骨扬灰，对上眼的人哪怕是魔也要挺<br/>
+![img](https://media.gettr.com/group5/getter/2022/03/24/06/6a0d6a06-2325-cd84-98a7-b77e18156a45/out.jpg)
+
+---
+
+`@miles 3/24/2022 7:02 AM (UTC)`
+
+3/23/2022 Miles Guo: The CCP caused the death of 80 million people in the Cultural Revolution and hundreds of thousands in the Siege of Changchun. The Soviet Union was the country that caused the most harm to China. First, the CCP came from the evil communist demon of the Soviet Union. Second, the Soviet army killed countless Chinese and robbed enormous lands from China. Third, the Soviet Union wanted to turn China into its colony and treat the Chinese as slaves. Without the Sino-Soviet split and the establishment of diplomatic relations between China and the US, China would be even worse off than it already is.<br/><br/><br/>3/23/2022 文贵直播：中共造成八千万人死于文革，几十万人死于长春围城；前苏联是对中国伤害最大的国家：一，中共源于苏联的共产邪灵；二，苏军杀害了无数中国人，掠夺大片土地；三，苏联妄图把中国变成殖民地，把中国人当奴隶；若无中苏断交，中美建交，中国处境会更糟糕
+![img](https://media.gettr.com/group46/getter/2022/03/24/07/21317328-1bd3-118c-ea5a-9d7a0086ff6a/out.jpg)
+
+---
+
+`@miles 3/24/2022 6:56 AM (UTC)`
+
+3/23/2022 Miles Guo: Putin told Xi Jinping that conservatively speaking, it would only take one week to take Ukraine. Putin was tricked by the Moscow faction into waging a war against Ukraine and was told that it would take three days at most for the war to be over. The KGB faction originated from St. Petersburg is the shadow government of Russia, who knows the West very well and is against Putin the most.<br/><br/>3/23/2022 文贵直播：普京告诉习近平，保守需要一周拿下乌克兰；普京被莫斯科派骗去打乌克兰，说顶多三天就打完；圣彼得堡出的克格勃派是俄罗斯的影子政府，他们懂西方，也最反对普京<br/>
+![img](https://media.gettr.com/group15/getter/2022/03/24/06/dd42eaf9-a378-0669-b908-5d83cb9560de/out.jpg)
+
+---
+
 `@miles 3/24/2022 6:51 AM (UTC)`
 
 3/23/2022 Miles Guo: Why would Putin and Xi Jinping join forces to take down Europe and the US? The CCP reminded Putin that the Color Revolution in Ukraine would threaten his political career, and Putin in turn convinced Xi that the same fate will happen to the CCP once Putin’s regime collapses.<br/><br/><br/>3/23/2022 文贵直播: 为什么普京和习近平要联手干掉欧美？中共提醒普京意识到乌克兰的颜色革命可能会威胁到自己的政治生命，普京转而让习相信普京政权一旦倒台，中共也会遭遇同样的下场<br/><br/><br/>
@@ -134,25 +155,6 @@ How a team of Italian journalists see the New Federal State of China. They produ
 
 3/23/2022 Miles Guo: Although the CCP did not supply Russia with weapons, it has provided funds, food supplies, intelligence, and communication systems, hasn’t it? The whole world will believe that the Chinese people are the “culprits”. This is the most worrisome!<br/><br/><br/>3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的！<br/><br/>
 ![img](https://media.gettr.com/group31/getter/2022/03/23/21/13e2e12e-bb95-6d15-964d-ec1a10bc2d9e/out.jpg)
-
----
-
-`@miles 3/23/2022 7:31 PM (UTC)`
-
-
-![img](https://media.gettr.com/group41/origin/2022/03/23/19/d6e61e5a-ae1e-891e-b063-493c508068fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/23/2022 6:43 PM (UTC)`
-
-在#西班牙媒体#Republica发表的这份报告中，提到了#NFSC和#ROLF在#Medyka，#Poland的#人道主义救援活动。"在戴维和他的钢琴旁边，是整个难民营中规模最大、建造最好的帐篷。该帐篷是新中国联邦的。这是一个以推翻中国政府为最终目标的非营利组织。 “我们的帐篷是所有建起的帐篷里最好的。我们甚至为难民提供了 Wi-Fi。我们想让世界知道，一个没有共产主义的中国会是一个更好的中国”，其经理解释道。<br/><br/>https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/
-
----
-
-`@miles 3/23/2022 6:41 PM (UTC)`
-
-In this report published by #Spanish press #Republica, the #NFSC and #ROLF #humanitarianrelief activities in #Medyka, #Poland are mentioned: “Next to Davide and his piano is the largest and best-built marquee in the entire #refugeecamp. It is that of the #NewFederalStateofChina, a non-profit association whose ultimate goal is to overthrow the #Chinese government. ‘Our marquee is the best erected of all. We even have #WiFi for the #refugees. We want the world to know that a #China without #Communism would be a better China’, argues its manager.” #HumanitarianReliefForUkraine #ChineseStandWithUkraine https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/ https://gettr.com/post/p11i5j0a6ef
 
 ---
 

@@ -2,43 +2,35 @@
 ---
 
 
-## 微博抖音平台发布公告对东航事件禁止“不当言论”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220133/)
+## 美国警告因支持俄罗斯而制裁中共，吓坏亚洲其他国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220370/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理：gardeniahu
-编辑：文泓
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/np_file_148638.jpeg)President Joe Biden speaks at an event celebrating the reauthorization of the Violence Against Women Act, at the White House in Washington on Wednesday, March 16, 2022. (Kenny Holston/The New York Times)
+根据商业世界3月23日报道，美国总统拜登警告称，如果中共国支持俄罗斯，将会有不明的后果。这让亚洲小国家担心，它们会因为对普京的战争保持中立而受到类似的惩罚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
+东南亚将在今年举办两次会议——二十国集团峰会和亚太经合组织论坛，通常会将拜登、普京和中共国领导人习近平聚集在一个屋檐下。准备举办峰会的两个国家——印度尼西亚和泰国，开始担心被夹在中间，尽管距离峰会还有几个月的时间，甚至不清楚普京是否会出现。
 
+据一位不愿透露姓名的知情人士透露，印尼外交部长雷特诺·马尔苏迪私下对美国威胁要对中共国实施二级制裁表示担忧，因为雅加达领导人认为北京对这场战争的立场是中立的。
 
+据《国家报》报道，泰国还担心，如果美国及其盟国因俄罗斯参与而抵制亚太经合组织峰会，泰国将被迫选边站队。该报告援引泰国皇家武装部队安全中心——该国军方的一个情报部门指出，​​俄罗斯已将八名亚太经合组织成员列入黑名单，并警告说，如果战争持续下去，将对成员经济体实施更多制裁。
 
+新加坡副总理王瑞杰周二在一次会议上说：“即使在入侵乌克兰之前，多边世界秩序就已经因大国之间的战略紧张局势而承受着相当大的压力。当前的危机将进一步加剧这些裂痕，并对国际法治构成严重威胁。”
 
+在普京吞并克里米亚之后，俄罗斯于2014年被驱逐出八国集团，而克里米亚是在克里姆林宫支持的乌克兰领导层被推翻之后发生的。尽管如此，将俄罗斯从G-20或亚太经合组织中剔除要困难得多，因为后者拥有更多成员，其中包括普京的主要外交支持者之一中共国。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@I3W2SS81NMDFJX5SE.png)图片来源：DW & 雅典娜设计组
+新闻来源：[US threat to sanction China over Russia support is spooking other nations in Asia](https://www.bworldonline.com/us-threat-to-sanction-china-over-russia-support-is-spooking-other-nations-in-asia/)
 
+发布： tianzhihuan
 
-3月21日，东航MU5735客机事件牵动人心，很多网友通过各自媒体平台关注事件动态，祈愿平安。
-
-当日晚间，微博管理员发布公告称，在巡查中发现，个别网友发布幸灾乐祸、调侃灾难等不当言论，对此，站方坚决反对并严肃处置。
-
-截至目前，站方根据《微博社区公约》等相关规定，对违规的25个账号，视程度采取禁言30天至永久禁言处置，并清理违规内容。
-
-微博表示，如发现相关违规内容，用户可通过前台举报投诉入口和 @微博管理员方式进行举报，我们将及时予以处置。
-
-对于该事件抖音也发布公告称，目前事故正在调查和处理中，抖音在此提醒广大用户，在平台发布相关信息、内容要遵守真实、客观原则，不借助热点事件蹭热、玩梗，更不要主动挑起、参与网暴相关人员。与此同时，平台将运用策略模型 + 技术手段严加管控。
-
-中共国一向严加管控自媒体，严禁自媒体对敏感事件作出评论，只有政府所谓伟光正的权威声音，如有违反从禁言甚至封禁账号处罚。
-
-参考链接：[微博抖音等公告：禁止蹭空难热度及发表不当言论](https://news.sina.cn/2022-03-21/detail-imcwiwss7327804.d.html?from=wap)
-
-发布：tianzhihuan
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

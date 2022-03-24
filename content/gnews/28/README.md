@@ -2,32 +2,38 @@
 ---
 
 
-## 喜联储是最安全稳定的金融系统
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2220492/)
+## 喜联储主席谈加密货币在俄乌战争中的角色
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220723/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-24-at-12.43.51.png)
-3月23日大直播中郭先生与战友分享财富已经成为控制人类最重要的工具。
+作者：纽约香草山金融部 – ILOVE战神
 
-在美国911之前，到美国的银行开账号存取钱很方便。但911之后，美国的金融机构和各大银行以反恐为名，恶意用财富要挟控制。包括美国国土安全部没有开会就把战友投资GTV的钱没收，到现在都没有退还。没有法律的国家，人的安全和财富更加无法保障。人对钱的使用和支付权利一旦被剥夺，无论在世界的哪个角落，人就变得一文不值。很多独裁政府都利用钱来限制人权自由，比如坦桑尼亚政府规定持有1000美元要报备，持有2000美元出国属于叛国。
 
-喜币自创立到现在5个多月，已经涨了400多倍，并且在全世界数字货币市场大震荡期间没有发生巨大的涨跌波动。世界金融家惊讶于这样一个安全稳定的系统是穷人创造的，它摒弃了原先所有金融系统对人的控制，有严格的法律KYC，无论在世界哪里都可以点到点支付，速度极快，安全和隐私有保障。人类一旦财富自由，就不会再受到主权国家尤其是独裁国家的压制。这样的金融系统当然会被大多数人喜欢。
 
-郭先生还提到，拥有喜币，善待财富。喜币未来会开发智慧功能，用喜币做坏事的人，一定要受到惩罚。喜币要成为正义的财富，不受政府影响，远离邪恶。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-撰稿、发布：骄子
 
-* * *
 
-欢迎订阅我们的GNews账号：
+3月18日，喜联储主席威廉·杰伊先生接受彭博社记者专访，谈到了加密货币及其在俄乌战争中扮演的角色。众所周知，在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。而在俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-13.jpg)
+加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。威廉先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，可以轻松解决加密货币被作为非法活动的媒介。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+加密货币平台对客户进行详尽的客户认证将不可避免，威廉先生更表示：已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png) 
+参考链接：
+[Putin’s War Could Make Central Banks a Crypto Battlefield](https://www.bloombergquint.com/gadfly/putin-s-war-will-put-central-bankers-on-the-cryptocurrency-frontlines)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：zhong
+编辑：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,29 @@
 ---
 
 
-## 有声｜新西兰将取消大多数疫情限制措施
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2220916/)
+## 以色列在乌克兰开设人道主义野战医院
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2221078/)
 
-By:**秘翻新闻**
+**撰稿：日本东京方舟农场  北极**
 
-**2022-03-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-47.png)图片来源 马克米切尔/泳池照片通过美联社
-[据美联社惠灵顿3月23日报道，随着奥米炕变体的影响开始减弱，新西兰将在接下来的两周内取消其许多中共病毒的限制规定。](https://apnews.com/article/covid-health-travel-business-covid-19-pandemic-6067be75f9b90301d16209d92e2b26cf)
+据Newsweek网站3月23日报道，以色列星期二开始在乌克兰西部的人道主义野战医院接收病人。
 
-[新西兰总理 杰辛达-阿德恩周三表示，从 4 月 4 日起，人们将不再必须接种疫苗才能进入零售商店、餐馆和酒吧等场所。在这些场所扫描二维码的要求也将不复存在。](https://apnews.com/article/covid-health-travel-business-covid-19-pandemic-6067be75f9b90301d16209d92e2b26cf)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-279.png)在乌克兰西部建立了以色列人道主义野战医院。（图片来自Newsweek）
 
-[一些工人，包括教师、警察和服务员的疫苗强制措施将被取消，但卫生保健和老年护理人员、边境工作人员和惩教人员仍将继续。](https://apnews.com/article/covid-health-travel-business-covid-19-pandemic-6067be75f9b90301d16209d92e2b26cf)
+这家拥有66张床位的医院位于乌克兰西部城市莫斯蒂斯卡（Mostyska），被称为“闪亮之星”，该医院拥有60多名工作人员，全天候开放。
 
-[从本周五开始，室外群体活动限制为 100 人。这将允许一些音乐会和马拉松等大型体育赛事恢复。此前100人的室内限制将提高到200人，以后可能会完全取消。](https://apnews.com/article/covid-health-travel-business-covid-19-pandemic-6067be75f9b90301d16209d92e2b26cf)
+据悉，该医院将能够一次性为150名患者提供服务，包括一个分诊区，一个急诊室，男、女和儿童病房，分娩和分娩设施，成像和远程医疗技术，心理健康服务，实验室，药房和门诊诊所。该医院由以色列卫生部，示巴（Sheba）医疗中心，克拉利特（Clalit ）健康维护组织和其他医院的医疗团队组成并运营。
 
-秘翻新闻 文洋编译报道
+星期一，以色列总理纳夫塔利·贝内特（Naftali Bennett）和外交部长亚伊尔·拉皮德（Yair Lapid）出席了医疗队欢送仪式。
 
-发布 : 恩典
+这不是以色列第一次在灾难发生后建立野战医院。2010年，以色列在海地发生毁灭性地震后建立了一家野战医院，赢得了世界各地的赞誉。它还曾于2011年在日本，2013年在菲律宾和2015年在尼泊尔地震或海啸发生后，建立了野战医院。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
+参考链接：
+[https://reurl.cc/Y9zvZD](https://reurl.cc/Y9zvZD)
+
+总编：青城道姑
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

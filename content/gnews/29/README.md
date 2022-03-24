@@ -2,18 +2,38 @@
 ---
 
 
-## 秘翻在线：日本为何总是让已退任的政客来直面中共？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2220490/)
+## 国际反贪组织已锁定普京盟友170亿美元资产
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220722/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-32.png)（图片源自本文链接）
-3月24日时事通信社消息：内阁官房长官松野博一在24日的新闻发布会上表示，已经针对中共政府对日本前首相安倍晋三和台湾总统蔡英文的网上谈话提出的 “强烈不满”，给予了”适当的驳斥”。
+作者：纽约磐石农场 – 在远方
 
-松野说，”希望通过对话和平解决围绕台湾的问题是我国的一贯立场”。
 
-官房长官的应对，其语言实在是太暧昧！期待日本政府不要仅是采取利用已退任的政客扮黑脸的做法，现任政客们何时能站出来面对邪恶？
 
-信息源：[台湾総統対談、中国反発に反論　政府（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/93417835006b2bf8e44bd73d41b47254611b8f5e)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+台媒22日报道，国际反贪腐组织“组织犯罪与贪腐举报计划”将联手英国《卫报》以及其它25家媒体，追踪与普京有关联的俄罗斯富豪资产，目前已锁定的资产价值已超过170亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpg)
+官网资料显示，普京执政22年已构建稳固的权势关系网络，结合富豪、政客及体制既得利益者，协助巩固普京政权，并从中获取报酬。“组织犯罪与贪腐举报计划”从”积极参与普京政权的压迫和腐败 “的人名清单开始，将对相关资产进行追踪，后续会将追踪到的资产编入定期更新的数据库，供公众查看和使用。
+
+据悉，资产追踪已经列出了与普京关系密切的寡头和亲信在境外持有的巨额财富，包括房产、私人飞机、公司股票、游艇及豪宅的等近150项资产，总价值约170亿美元。在接下来的几周内，其追踪范围还将持续扩大。
+
+参考链接：
+1. [追追追！劍指普廷盟友 「海外資產追蹤器」已揭露至少4900億](https://news.ltn.com.tw/news/world/breakingnews/3867301)
+2. [Introducing a project to track down and catalogue the vast wealth held outside Russia by oligarchs and key figures close to Russian President Vladimir Putin**.**](https://www.occrp.org/en/asset-tracker/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑：zhong
+审核：Ivy001
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
