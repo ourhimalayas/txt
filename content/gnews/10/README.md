@@ -2,35 +2,25 @@
 ---
 
 
-## 有声|台湾密切关注中共南海人造岛军事化举动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2220204/)
+## 视频|俄军袭击基辅平民设施造成人员伤亡
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2220382/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-台媒3月22日报道，近日美国印太司令部指出，中共已将南沙群岛三个岛礁完成军事化改造，并威胁到周边国家安全。为此，中华民国国防部长邱国正表示，台湾和越南以及菲律宾等国，都在密切关注中共相关举动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ee180c2f564f7b0527d0648bc28ee6b0.jpeg)图片来源: 网络 (上图为中华民国国防部长邱国正)
-邱国正在立法院会施政总质询时表示，中共已将南沙群岛三个岛礁完成了军事化部署。隶属中华民国的太平岛也在其中，其他小岛则分属越南和菲律宾等国，各国之所以保持互不侵犯，就是因为默守规矩。对于中共觊觎南海的野心，相关国家都在密切注意。当前台湾在太平岛不是以军事驻扎、而是以海巡单位为主，是把维护海域安全做为重点。
+制作：香草山视频部
 
+当地时间3月20日深夜，俄罗斯发射弹道导弹，摧毁了基辅西北部的Retroville购物中心，造成八人死亡。
 
+附近闭路监控拍摄到的视频显示，导弹直接击中建筑物的一瞬间，橙红色的火球窜上数百英尺高的空中，巨大的爆炸将健身房、停车场的车辆碾成碎片。购物中心被彻底摧毁，现场留下了一个深坑，令人不寒而栗。
 
-文字版原文：[台湾密切关注中共南海人造岛军事化举动](https://gnews.org/zh-hans/2216727/)
+救援人员争分夺秒地把瓦砾下的受害者救出来。然而，据警方表示，至少有八人死亡，有数十人在令人发指的大轰炸中失踪。周一，基辅市长维塔利·克里琴科尖锐地指出，这次袭击是该城市在夜间遭受的几轮炸弹攻击之一，是俄罗斯军队屠杀平民的最新例子。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+发稿：林礼
+
 **更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

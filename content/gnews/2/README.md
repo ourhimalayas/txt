@@ -2,21 +2,18 @@
 ---
 
 
-## 视频|新中国联邦乌克兰前线救援人数汇报
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2220360/)
+## 孙力军刘彦平被抓始末（八）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220445/)
 
-制作：香草山视频部
+**PPT制作: 0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11.10-11.20-（8）.jpg)
+*发布：*tianzhihuan
 
-2022年3月5日至3月19日    新中国联邦发起的乌克兰到波兰的大巴车救援行动，总计救援人数为2009人，大部分是乌克兰的妇女、儿童以及中国同胞。期间总计发车次数为 39次。
-
-此外，新中国联邦在波兰边境梅迪卡难民营地所组织的救援接待行动，帐篷接待难民人数统计数据：自2022年3月9日至3月20日，共计接待难民人数约7177人，在20日当日接待约120 人。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

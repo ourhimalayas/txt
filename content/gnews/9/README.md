@@ -2,21 +2,30 @@
 ---
 
 
-## 乌克兰战争：无人机捕捉到马里乌波尔的破坏情况
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220233/)
+## 英国验尸官证实： 两名阿斯利康疫苗接种者死于凝血障碍！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2220389/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
+撰稿：东京樱花团/Calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英国验尸官证实：-两名阿斯利康疫苗接种者死于凝血障碍！.jpeg)[图片来源](https://childrenshealthdefense.org/defender/uk-residents-died-blood-clotting-astrazeneca-vaccine/)
+本周，在两起关于疫苗的死亡病例中，英国验尸官得出结论，接种阿斯利康新冠肺炎疫苗的2人死于该疫苗引起的凝血障碍，该疫苗使用与授权在美国紧急使用的强生新冠肺炎疫苗相同的腺病毒技术。来自南约克郡的34岁母亲洛克伍德在注射阿斯利康疫苗九天后于2021年3月死于灾难性的脑出血。洛克伍德抱怨在接种疫苗八天后头痛得厉害。接着她的病情迅速恶化，住院17小时后被宣布死亡。
 
+英国国家卫生局于2021年5月7日更改了关于阿斯利康疫苗的指南建议，建议40岁以下的健康人应该避免接种疫苗，因为可能存在凝血并发症。助理验尸官Tanyka Rawden说，在Dudley去世时，潜在的致命性凝血问题“不是这种疫苗的已知和公认的并发症。在我看来，关于疫苗的官方指导建议已经改变了”，她说。
 
+英国政府的数据显示，在估计2490万剂阿斯利康第一剂疫苗和2420万剂阿斯利康第二剂疫苗后，有437例报告病例和78例凝血死亡。据各种新闻来源称，2021年4月，包括德国、法国、意大利和西班牙在内的许多欧洲国家暂停使用阿斯利康疫苗，此前专家在一些疫苗接种者身上发现了危险的血栓。
 
+其中一位研究疫苗并发症的科学家写道：
 
+“我们确实观察到静脉血栓事件的发生率增加，对应于每 100,000 次疫苗接种 11 次额外的静脉血栓事件，并且包括在 282,572 名疫苗接种者中观察到 7 次事件与 0.3 次预期事件相比，脑静脉血栓形成率明显增加。”
 
-03/23/2022 乌克兰战争：乌克兰城市马里乌波尔遭受了无情的轰炸，当局说自俄罗斯入侵以来，该市90%的地方被破坏或完全摧毁
+郭文贵先生一直预警在今年5月份以后全世界的疫苗灾难将会逐步爆发。到那个时侯，将会有更多的人死于致命的共产党病毒疫苗。就像文贵先生说的“病毒不是最恐怖的，病毒疫苗才是最终的目的。” 因此唯有消灭中共才有可能结束这一切的黑暗和恐怖。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
+**信息来源：**
 
+[Two UK Residents Died of Blood-Clotting Disorders Linked to AstraZeneca Vaccine, Coroners Confirm • Children’s Health Defense](https://childrenshealthdefense.org/defender/uk-residents-died-blood-clotting-astrazeneca-vaccine/)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
