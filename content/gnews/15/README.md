@@ -2,30 +2,34 @@
 ---
 
 
-## 习近平上台以后的血腥清洗
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2222239/)
+## 日本80岁以上中共病毒感染者，死亡率由60%上升至76%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222417/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/119076078_gettyimages-1232808165.jpg)
-3月23日郭先生在大直播中讲述习近平个人的性格特点必然导致他走到今天。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-4.png)
+根据日本神奈川县的统计数据，可以看到今年1月以后因中共病毒（新冠病毒Covid-19）导致的死亡者，八十岁以上的比例在增加。由去年末为止的59.8%，上升到今年(截止到3月17日) 的76%。推测是“奥米克戎感染的特点是年轻人可能轻症较多”，详细原因需要分析。(志村彰太)
 
-郭先生提到习近平的性格像黑社会老大，浑不吝，看得上的人无论如何都要力挺，看不上的人多显赫的地位都会将其除掉。自习近平上台以来，他发誓要做的事情，1清理党内；2清除太子党；3清除军阀财阀。这三件事他全部都做到了。共产党之前形成的各种势力割据，利益分配不复存在，一切权力全部归到习近平家庭管理，习近平最相信的人都是自己的家人，包括彭丽媛，彭磊，和习的女儿，不再有常委议政，同时原先的职能部门如政法委也被国家安全部取代，形成家天下的历史倒退独裁统治。尤其是郭先生从2017年开始爆料的一些共产党白手套们，马云、王健林等等，不是被抓就是被边控并限制出境，失去人身自由和安全，更别说对财富的掌控力了。郭先生还提到单伟建此次能够顺利成为马云阿里巴巴的审计员，说明这个人在习近平那里得到了深度的信任。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2792.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fassets.gnews.org%2Fwp-content%2Fuploads%2F2022%2F03%2Fleff2-lqw5w.jpg&amp;imgrefurl=https%3A%2F%2Fgnews.org%2Fzh-hans%2F2113559%2F&amp;tbnid=aZT5W46teiplSM&amp;vet=12ahUKEwjX_5Ci2t72AhUli_0HHU-mCtwQMyghegUIARDIAQ..i&amp;docid=PI_5C6jZynWmKM&amp;w=640&amp;h=360&amp;q=%E6%AF%92%E7%96%AB%E8%8B%97%20gnews&amp;ved=2ahUKEwjX_5Ci2t72AhUli_0HHU-mCtwQMyghegUIARDIAQ)
 
-郭先生提到人的秉性很难更改，习近平这样的性格必然导致他认定谁，那人是魔鬼他都会力挺。
+从2020年中共病毒流入以来，按年龄累计死亡人数，刊登在神奈川县的报刊主页。本报除了这个之外，还获得了今年1月1日~3月17日的数据。累计1930中，今年有611人。
 
-撰稿、发布：骄子
+去年年底和今年，除了感染人数相对较少的九十多岁以外，随着年龄的上升死亡人数增加的趋势不变。但是，从构成比例来看，进入今年后，超过八十岁的人增加了。去年末为止的统计数据是年龄四十代1.8%，五十代5.9%，六十代8.4%，七十代22.4%，八十代37.3%，九十代以上22.5%。另一方面，今年是四十代1%、五十代2%、六十代4.4%、七十代15.7%、八十代42.6%、九十代以上33.4%。
 
-* * *
+县医疗危机对策本部室指出，除了年轻越难重症化之外，“有可能是越早给老年人注射第二次疫苗，疫苗的效果就越早减弱”。县基于奥密克戎株传染性強的特点，优先防止老年人设施发生集群(感染者群体)和优先接种第三次疫苗，“继续采取对策，减少死亡的人”。
 
-欢迎订阅我们的GNews账号：
+译者注：按照常理，接种疫苗后死亡率应该明显降低，但是神奈川县的统计数据却相反，不但不降反而上升，这个要引起强烈反省，疫苗到底有没有用？
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+消息来源：[＜新型コロナ＞本紙調査　1月〜今月17日　神奈川県　死者割合、80代以上が76％に増　昨年末までは59・8％](https://www.tokyo-np.co.jp/article/166834)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-5.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
