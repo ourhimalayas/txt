@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 4:15 PM (UTC)`
+
+3/23/2022 Miles Guo: After the Xi-Obama meeting failed, Xi felt he was humiliated and was so angry that he directly flew to Russia to ally with Putin. From then one, these two evil forces have been in cahoots to destroy America.<br/><br/>3/23/2022 文贵直播: 习奥会失败后，习恼羞成怒直飞俄罗斯与普京结盟，从此两股邪恶力量会师意在置美国于死地！<br/><br/><br/>
+![img](https://media.gettr.com/group16/getter/2022/03/24/16/2b043e9e-e80c-bbe4-7513-671cbb50e2ff/out.jpg)
+
+---
+
 `@miles 3/24/2022 4:07 PM (UTC)`
 
 3/23/2022 Miles Guo: Learning from Russia, what kind of disasters will be brought to the Chinese people when the worldwide exclusion of Chinese takes place? The US is preparing the secondary sanctions against the CCP, whose telecom companies, media, banks, food agencies, and spies such as Bruno Wu and Weijian Shan will all be sanctioned. Although the overseas Chinese will encounter crises, people in Communist China will be so miserable that you can't imagine!<br/><br/><br/>3/23/2022 文贵直播：以俄罗斯为前车之鉴，全球排华时会给华人带来什么样的灾难？美国在准备给中共的二级制裁，中共的通信企业、媒体、银行、粮食机构以及吴征和单伟建等特务都逃不掉；海外华人虽然会遇到危机，但国内却会惨到你无法想像！<br/><br/>
@@ -150,13 +157,6 @@
 
 2022.03.23 晚《新中国联邦新闻访谈》众议院两党议员推出取消中共国永久最惠国待遇法案；Akamai和彭博社接连报道喜联储，释放重要启动讯号；对九指妖的民事诉讼取得重大胜利；秦刚接受CBS直播采访，继续胡搅蛮缠；俄军强行将数千乌克兰儿童拐带到俄罗斯
 ![img](https://media.gettr.com/group14/origin/2022/03/22/01/892d18d7-53a3-9d8e-2a7b-e6fe114c88b1/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/24/2022 1:17 AM (UTC)`
-
-3/23/2022 Miles Guo: What is the “the St. Petersburg Agenda”? As long as the CCP mediates the Russia-Ukraine war, Communist China will be sanctioned and held accountable by the whole world. Food crises, political disasters, and the collapse of the financial system, religions, and credibility will happen in Communist China. The CCP is providing drones to the Middle East and is sowing discord over there, while blaming the Americans for the chaos in the Middle East.<br/><br/>3/23/2022 文贵直播：什么是“圣彼得堡的阴谋”？只要中共调解俄乌战争，中共国将被全世界制裁和清算，中共国将发生粮食危机、政治灾难以及金融、宗教和信用的崩塌；中共在中东提供无人机、挑拨离间却甩锅给美国人<br/>
-![img](https://media.gettr.com/group30/getter/2022/03/24/01/4e99106a-47a0-45d1-ab67-03039dd248e7/out.jpg)
 
 ---
 
