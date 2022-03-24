@@ -2,27 +2,32 @@
 ---
 
 
-## 有声｜法国电台一名翻译人员惨遭俄军酷刑
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2223000/)
+## 樱花时政┃中共调停俄乌战争 中国人将落入圣彼得堡阴谋
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2223298/)
 
-**By:秘翻新闻**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
+2022年3月23日，郭文贵先生在大直播透露，俄乌战争让全世界认清了中共是背后元凶，如果中共充当俄乌战争和解的调停人将把中国人推入圣彼得堡阴谋的陷阱，导致永远不可挽回的政治灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-291.png)
+当前，普京已经深陷乌克兰战场泥沼进退维谷。俄罗斯现在只有两个选择，要么继续扩大战争，要么谈判和解。
 
-**2022-03-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/324_5.jpg)2022 年 3 月 23 日，在乌克兰基辅的舍甫琴基夫斯基区，记者们在遭到军事打击的建筑物附近工作 (图片来源 福克斯新闻)
-据[《](https://www.foxnews.com/media/reporters-without-borders-frightening-account-radio-france-intrepreter-tortured-russian-troops%20Fox%20News)[福克斯新闻](https://www.foxnews.com/media/reporters-without-borders-frightening-account-radio-france-intrepreter-tortured-russian-troops)[》](https://www.foxnews.com/media/reporters-without-borders-frightening-account-radio-france-intrepreter-tortured-russian-troops%20Fox%20News)3月23日报道，国际非营利组织-无国界记者团（RSF）称，法国广播电台的一名翻译在乌克兰被俄军拘留的9天期间遭受了酷刑。这位名为尼基塔（Nikita）的32岁记者，3月5日在乌克兰中部被俄罗斯士兵俘虏。
+郭文贵先生认为，对于扩大战争，有20%的可能是波罗三国和俄罗斯、白俄罗斯混战，某些地区会有边缘性的核导弹，死亡人数达几千万，很多城市会消失。最终，普京被消灭。对于谈判和解，中共国作调节国，习近平作担保人，让俄罗斯宣布赢了，这种可能性超50%。
 
-无国界记者团核实了尼基塔的证词后表示，尼基塔的叙述令人恐惧，俄军用机器扫射他的汽车，用刀和电击折磨他，并用枪托和钢筋反复殴打他的脸和身体，进行模拟处决，48小时不给食物。
+但是，郭文贵先生紧接着强调，“习近平无论做什么，中国人都会成为被世界未来百年、千年最恨的人。”
 
-另外，据保护记者委员会称，另外两名记者奥列赫-巴图林和维克托利亚-罗西纳此前曾失踪，但后来被俄军释放。据《卫报》报道，摄影记者马克·列文（Maks Levin）曾在基辅附近进行报道，3月13日起失踪。
+“谈判和解的话需要中国人，只要中国参与调解，充当担保人，那么中国将没有地方可以购买粮食，将会得到全世界的金融制裁，中国人走在全世界都会被当为元凶，乌克兰死亡的灵魂会找中国人算账。其政治灾难永不可挽回。”郭文贵先生进一步解释。“中共没给俄提供武器，但可能提供了金钱，粮食供给，情报，通讯系统。全世界会认为中国人‘元凶’。”
 
-无国界记者组织宣布，以记者为目标是一种战争罪，最近的事件导致需要提高对绑架记者行为的认识。
+俄罗斯内部历来就有圣彼得堡和莫斯科两派之争。圣彼得堡之于俄罗斯就如同上海之于中国，圣彼得堡派是俄罗斯政坛的国际派，金融派，并且和乌克兰派融合。而莫斯科派则是俄罗斯的保守派，即流氓共产主义派。习近平选择了来自于圣彼得堡的普京，但普京走得却不是圣彼得堡派，走得完全是莫斯科派。如果中共明目张胆地介入俄乌战争调停担保，就是在全世界面前将自己恶行做实的同时，明确的选择与文明世界为敌，这必将将全体中国人推进万劫不复的深渊。
 
-（秘翻新闻Grace编辑报道）
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-发布:文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

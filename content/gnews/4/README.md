@@ -2,26 +2,20 @@
 ---
 
 
-## 西媒头条 — 第195期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2223073/)
+## 入侵乌克兰的俄军部队遭受重创
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2223366/)
 
-**制作：蚂蚁兄弟**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220324.001.jpeg)
+据加拿大［国家邮报］3月21日报道，自俄罗斯发动入侵战争以来，已有至少一万多名官兵命丧乌克兰。
 
-***发稿：信心满满***
+据悉，【俄罗斯真理报】早前就已披露在头三个星期的战斗中，俄军至少阵亡1万多人、受伤约2万人。但该报道随即被当局撤下，并只承认有约500名军人战死。另据乌克兰军方消息，俄军目前已损失了数十名高阶军官，其中少将级别以上的将领6人。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+报道称，由于包括[莫德维切夫]中将在内的大量俄军战地指挥官在欧美的军事协助下被定点清除，所以俄军目前急缺有威信和能力强的前线将领，因此，不仅导致俄军在后勤、战术和部队士气方面的惨败，而且每天都还在遭受大量士兵伤亡和装备的损失。
 
+* * *
 
+编辑： 平民正道    发布：平民正道
 
  
 

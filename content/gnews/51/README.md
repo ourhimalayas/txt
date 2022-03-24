@@ -2,33 +2,26 @@
 ---
 
 
-## 秘翻新闻｜警惕!大翻译运动或酿排华浪潮
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2216064/)
+## 樱花时政┃中共网络舆论控制挡不住国人的反战浪潮
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216874/)
 
-**By:[秘翻新闻](https://gettr.com/post/p11gbws2d13)**
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-44.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fphantom-marca.unidadeditorial.es%2F6e75330b349ffbc9ecf84b49189e288b%2Fresize%2F1320%2Ff%2Fjpg%2Fassets%2Fmultimedia%2Fimagenes%2F2022%2F02%2F28%2F16460455847265.jpg&amp;imgrefurl=https%3A%2F%2Fwww.marca.com)
+在持续20多天的俄乌战争中，虽然中共网络媒体和官方实施严格的言论控制并引导大众舆论风向，但仍有很多中国民众对战争表示反感，敦促中共当局改变立场。目前在微博，微信等社交平台上，依然可以看到大量不同的观点。
 
-**[2022-03-23](https://gettr.com/post/p11gbws2d13)**
+据纽约时报报道，上周，上海一位具有政治背景的学者胡伟发文警告称，如果中国再不和俄罗斯“切割”，会有被国际社会孤立的危险。文章发出后不久，即被网监删除。这篇文章中共国的社交媒体上获得了数以百万计的转发，影响巨大。
 
-**新闻主题:**
+另外，一些位于乌克兰前线附近的中国反战人士，他们正试图突破中共当局的审查，为同胞提供战斗生活的真实记录。
 
-**1. 东航空难 罹难者家属被集中管控**
+可见，中共官方的观点并不能够代表广大中国人民。
 
-**2. 中共国债务违约 房企股票非正常大幅上涨**
+信息来源：
 
-**3. 拜登的布鲁塞尔之行强调了对俄的新制裁**
+[中国当局严格的审查政策 挡不住国人的反战浪潮](https://vct.news/news/c14a72d8-d942-4bd2-a10e-7fb1b5be1fdd)
 
-**4. 蔡英文与安倍视讯 日华恳大会通过挺台决议文**
-
-**5. 今晨台湾发生 6.9 级地震 花莲一夜连震52次**
-
-**🔗Gettr链接:**[https://gettr.com/post/p11gbws2d13](https://gettr.com/post/p11gbws2d13)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

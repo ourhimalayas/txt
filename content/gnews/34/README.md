@@ -2,31 +2,47 @@
 ---
 
 
-## 樱花时政┃美商务部长警告中共勿要出售芯片支援俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222114/)
+## 中共国将在澳大利亚后院拥有一个海军基地
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2222421/)
 
-撰稿：东京樱花团/盐和光
+#### 【雅典娜观察】和您一起洞察世界
 
-3月24日观察者网报道，当地23日，雷蒙多对路透社称，所有中国的半导体公司都依赖美国的软件来制造芯片，因此它们受到（美国）控制。“如果我们发现它们向俄罗斯出售芯片，那我们会通过拒绝这些企业使用（美国）软件的方式，来让它们彻底关门。我们已经完全准备好这么做了。”
+翻译/编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-124.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fn.sinaimg.cn%2Ftech%2Ftransform%2F165%2Fw630h335%2F20210317%2F5528-kmkptxe1569619.png&amp;imgrefurl=https%3A%2F%2Fwww.btubang.com%2F16985.html&amp;tbnid=TY3puWYB6n0pSM&amp;vet=12ahUKEwjZvpG-0N72AhWK0OAKHSPmBqAQMygIegUIARDJAQ..i&amp;docid=st_Cvq2k7PEwNM&amp;w=630&amp;h=335&amp;q=%E8%8A%AF%E7%89%87&amp;ved=2ahUKEwjZvpG-0N72AhWK0OAKHSPmBqAQMygIegUIARDJAQ#imgrc=TY3puWYB6n0pSM&amp;imgdii=jVjWV76cLVDJwM)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/NM2RN7RF11OD97N6GR5.png)图片来源：Asia Times（2019年所罗门群岛否决中国公司租赁岛屿）
 
-她说，美国“每时每刻”都在监视是否有人可能违反其对俄罗斯的全面出口管制。一旦有任何国家出现违背美国制裁的情况，美国都将对该国行为进行打击。
 
-此次警告中共国的官员是美国现任商务部长吉娜·雷蒙多曾就读于哈佛大学和耶鲁大学，获得法学博士学位，属于民主党温和派。
+3月24日，中国和所罗门群岛将签署一项安全协议，该协议将使中国军舰驻扎在太平洋地区并改变澳大利亚周边地区的力量平衡。
 
-与此同时美国国家安全顾问沙利文周三表示，拜登计划本周在布鲁塞尔与欧洲和北约领导人举行紧急会谈时，宣布对俄罗斯政治人物和寡头实施新一轮制裁。
+该协议将使中国有权使用其军队来保护所罗门群岛的中国人员和重大项目的安全，并使北京在距离澳大利亚海岸不到2000公里的地方拥有一个海军基地。该基地将是澳大利亚自二战以来第一次有一个战略对手出现在其海岸线的打击距离内。
 
-得道多助失道寡助，入侵乌克兰致使俄罗斯现在受到5532项国际制裁，数字还在增长，俄罗斯将不可能抗得住来自全世界的排斥，在现有对俄制裁的基础上，全世界还准备再加码继续制裁入侵者战争狂人。
+框架协议草案中：**“中国可根据自身需要并经所罗门群岛同意，在所罗门群岛进行船舶访问、后勤补给，并在所罗门群岛进行停靠和过渡。”**
 
-中共在俄罗斯入侵乌克兰前，两国签订了新的1份合同：10年1亿吨石油、30年480亿立方天然气的合同，使用欧元结算，不使用美元，不论是放开进口俄罗斯小麦还是进口高级石油，到如今直接运送武器弹药支持俄罗斯攻打乌克兰，中共都在用实际行动来表明自己对俄罗斯入侵在乌克兰的支持，也必将迎来和入侵者同等待遇的制裁。
+**“所罗门群岛可根据自身需要，要求中国向所罗门群岛派遣警察、武警、军人及其他执法和武装力量，协助维护社会秩序，保护人民生命财产安全。”**
 
-消息来源：[【美商务部长再威胁：发现中企卖俄芯片，就让它们关门】](https://me.mbd.baidu.com/r/DklhlAGWkM?f=cp&amp;rs=301525149&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0419f1818d54d407&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+新西兰国际安全和外交专家安娜·鲍尔斯说，该协议草案具有意义匪浅。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+鲍尔斯说：“该安全协议是太平洋地区首个此类协议之一；其范围广泛且适当模糊，其规定从维护公共秩序到保护中国公民和资产，以及提供人道主义和灾难救济。”
 
+鲍尔斯说，该协议表明PLA在所罗门群岛将有后勤和物资，以支持中共国海军。
+
+索罗门群岛反对派议员彼得·凯尼洛雷亚告诉澳大利亚媒体，他对这一发展深表关切。他说：“这对太平洋岛屿地区，包括澳大利亚，都有影响。”
+
+中国一直在争取太平洋岛国在该地区建立军事存在，但索罗门群岛的交易将是中国海军首次在南中国海以外的地区有作战存在。
+
+2018年，中国就在南太平洋建立永久性军事存在一事与瓦努阿图接触，引发了堪培拉和华盛顿最高层的紧急讨论。3月24日下午的文件草案，首先由索罗门群岛的一名反对派顾问发布，让堪培拉的官员争相核实其真实性。经媒体当日晚间证实，澳大利亚政府认为该文件是真实的，这加深了对中国在太平洋地区意图的担忧。
+
+随着北京加强与华盛顿的竞争，威胁台湾的领空并拒绝谴责俄罗斯对乌克兰的入侵，该基地将增加美国和中国之间的对抗风险。
+
+参考链接：[China set to sign first security deal in the Pacific on Australia’s doorstep (smh.com.au)](https://www.smh.com.au/world/asia/china-set-to-sign-first-security-deal-in-the-pacific-on-australia-s-doorstep-20220324-p5a7qe.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

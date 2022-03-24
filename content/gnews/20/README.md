@@ -2,24 +2,26 @@
 ---
 
 
-## 乌克兰救援行动将成为拯救无数华人的传奇
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2222813/)
+## 盖特参与赞助法国总统大选前辩论会
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2222960/)
 
-作者：纽约磐石农场 在远方
+作者：日本东京方舟农场 Miyali7768(文玉）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月20日，郭文贵先生在大直播中表示，波兰前线救援战友所展现出的新中国联邦人的良好形象正在时刻影响着世界。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-159.jpg)
-郭先生指出，新中国联邦人肩负使命救助乌克兰难民的举动已经充分向全世界说明，我们跟中共的假恶丑截然相反。这当中，救援团队将新中国联邦人对天地、对人、对动物的敬畏和爱护之心展现给了世人。
+3月22日，据盖特新闻网报道，盖特平台已经与法国保守派杂志《当前价值》合作，成为法国总统大选前参选者“价值观大辩论”的主要赞助商。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-62.jpg)
+活动当天，法国总统候选人埃里克·泽穆尔、瓦莱里·佩克雷斯以及国民联盟发言人乔丹·巴代拉和代表现任总统和连任候选人马克龙的法国公民事务部长夏帕将一同出席。届时，盖特会在巴黎圆顶球场独家直播整场活动。
 
-郭先生还补充道，乌克兰前线救援行动将成为拯救无数中国人的史诗般的传奇，这也将尽可能地防止海外排华事件和其他灾难性的人道事故发生。为此，即使面临着种种阻力，郭先生也决定不计代价地将救援行动继续进行下去。
+据《当前价值》的总监透露，一直以来，该杂志都是大型科技公司言论审查制度的受害者。但盖特作为一个自由言论的平台，其正在向世人提供信息获取的替代方案，从而给予了公众一些新的希望。
 
-郭先生也示警海内外同胞称，如果14亿中国老百姓以及全球的海外侨胞还不能尽快觉醒，那他们将会面临比“锁链女”更悲惨的命运。
+对此，盖特创始人兼首席执行官杰森·米勒先生表示，盖特为能够赞助这场总统选前辩论而感到自豪。同时，盖特将确保法国人民在总统大选之前可以确切地知道每位候选人的立场。另一方面，鉴于大型科技公司多次干预民主进程的做法，盖特正在为言论自由而战。因此，哪怕受到任何审查方面的威胁，盖特都将成为法国总统竞选活动中实时更新的信息发源地。
 
-参考链接：[3/20/2022 文贵直播：救援前线的战友展现出新中国联邦人的形象时刻影响着世界，体现出了我们的勇气和对人、动物与天地的尊重；文贵作出将救援进行下去的决定非常不易，我们的救援会成为拯救无数华人的史诗般的奇迹！](https://www.gettr.com/post/p11eh1s9129)
+参考链接：[GETTR Partners with Valeurs Actuelles to Sponsor French Presidential Debate](https://about.gettr.com/press/gettr-partners-with-valeurs-actuelles-to-sponsor-french-presidential-debate)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编/编辑/审核：Irene木木
+总编: Irene木木
+编辑: 宁文静，Delilah小胖
+审核: Irene木木
 校正/发稿：Fei797
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
