@@ -2,30 +2,24 @@
 ---
 
 
-## 七哥为前线救援战友祈福的祈福文
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2219991/)
+## 贼喊捉贼！俄国在UN提乌克兰「人道救援」决议 仅中共附和
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220010/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文友
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-23-at-21.15.34.png)
-鉴于在俄乌战争前线救援的众多战友们染上病毒，在2022年3月20日的《文贵大直播》中，七哥带领全球所有新中国联邦爆料革命的战友们一起为前线战友们祈福，祈福之后，奇迹发生了，在3月23日的《文贵大直播》中，前线战友汇报，很多战友病毒阳性复阴性。以下是七哥祈福文：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpIaZtTq.jpg)图片来源：美联社
 
+俄国对乌克兰发动入侵导致民不聊生，各国纷纷提供捐款、物资人道救援乌克兰。如今俄国在联合国安理会发起「人道救援乌克兰」提案，却只字未提自己就是造成人道危机的元凶，因此遭其他国家反对，仅中共国附和。
 
-> 万佛万神庇佑我们在前线俄乌战场的所有的爆料革命新中国联邦的战友们，和在Medyka梅迪卡战场的所有救援的全球的各国各族的人士们，一定奇迹的受上帝万佛万神之手的恩赐清洁好空气，免受共产党病毒的侵袭，得到并侵袭的人希望早日得到康复！
-> 
-> 让万佛万神赐给我们无穷无尽无限的力量，让在阳光之下，要在月亮之下，在24小时内，无光线、无时限、无灾难、无挑战地拯救乌克兰妇女儿童和中国同胞，让世界看到新中国人和人类共存的希望和和平的未来。万佛万神保佑，阿弥陀佛！
+简评：挑起战争者喊人道救援，何止是贼喊捉贼，简直流氓无赖到了极点！中共的存在是一切邪恶的根源，若论元凶，俄罗斯只是个打手，中共才是最大的元凶！
 
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3869878](https://news.ltn.com.tw/news/world/breakingnews/3869878)
 
-编辑/上传 – 大废墙
+撰稿/发布：一叶知秋
 
-* * *
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

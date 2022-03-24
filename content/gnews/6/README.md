@@ -2,16 +2,14 @@
 ---
 
 
-## 贼喊捉贼！俄国在UN提乌克兰「人道救援」决议 仅中共附和
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220010/)
+## 乌官方：杰斯纳河一座桥樑遭俄军炸毁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220037/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpIaZtTq.jpg)图片来源：美联社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/photo-output-4.jpg)图片来源：@cgtr推特
 
-俄国对乌克兰发动入侵导致民不聊生，各国纷纷提供捐款、物资人道救援乌克兰。如今俄国在联合国安理会发起「人道救援乌克兰」提案，却只字未提自己就是造成人道危机的元凶，因此遭其他国家反对，仅中共国附和。
+据LTN报道，俄罗斯侵略乌克兰迈入第29天，俄军持续加大对各城的炮袭力度，力求推进。据乌国官方稍早的说法，俄军摧毁了杰斯纳河（Desna river）上一座桥樑，切断了连通北部战略城市切尔尼戈夫（Chernihiv）至首都基辅（Kyiv）的关键道路。
 
-简评：挑起战争者喊人道救援，何止是贼喊捉贼，简直流氓无赖到了极点！中共的存在是一切邪恶的根源，若论元凶，俄罗斯只是个打手，中共才是最大的元凶！
-
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3869878](https://news.ltn.com.tw/news/world/breakingnews/3869878)
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3869946](https://news.ltn.com.tw/news/world/breakingnews/3869946)
 
 撰稿/发布：一叶知秋
 
