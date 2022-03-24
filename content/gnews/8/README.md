@@ -2,20 +2,35 @@
 ---
 
 
-## 真正人与人交流是精神上的开悟明智
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219352/)
+## 今日盖特大V推荐 — 苏兹·奥曼秀（Suze Orman Show）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2219514/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2733-e1648081144398.png)
+盖特链接：[https://gettr.com/user/Suzeorman](https://gettr.com/user/Suzeorman)
 
-*发布：陶子*
+**苏兹·奥曼自述：**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+艾美奖获奖电视节目主持人, 纽约时报畅销书第一作者, 励志演说家和美国最值得信赖的个人理财专家
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2734.png)图片来自网络
+**苏兹·奥曼简介：**
+
+苏珊·林恩 “苏兹” 奥曼 (Susan Lynn “Suze” Orman 生于1951年6月5日）是美国财务顾问，作家和播客主持人。1987 年，她创立了Suze Orman金融集团。 作为财务顾问，她的工作在2002年至2015年期间在CNBC上播出的Suze Orman Show中获得了关注。
+
+奥曼已连续撰写了十本《纽约时报》关于个人理财的畅销书。 她曾两次入选“时代100位影响力人物”名单，获得两次艾美奖和八次格雷西奖。
+
+奥曼撰写, 联合制作和主持了9部PBS特别节目，并出现在多个电视节目中。她曾作为嘉宾参加过奥普拉·温弗瑞秀约29次，拉里·金现场演出超过30次。奥曼目前是“Suze Orman Women & Money Podcast”的播客主持人。
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+
+校审：洛杉矶盘古农场 —心照
+
+发布：洛杉矶盘古农场 —子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

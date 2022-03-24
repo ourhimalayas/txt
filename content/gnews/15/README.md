@@ -2,32 +2,42 @@
 ---
 
 
-## 西班牙记者采访并报道了新中国联邦援乌营地
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2219165/)
+## 【G时新闻】CDC主任瓦伦斯基现在正试图掩盖她自己的谎言
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2219199/)
 
-**作者：Nicole**
-**编辑：Candy**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙.png)
-Nicole, [Mar 23, 2022 at 10:14 AM]西班牙媒体Republica的记者刚才给我发了他们报道梅蒂卡难民营的报道文章链接：
+作者：加拿大温哥华扬帆农场 – 播报：莉李鲤 – 视频制作：文雅
 
-[https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/](https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/)
+根据医生和作者的说法，CDC是武汉冠状病毒 (COVID-19) 的阴谋者之一——这些人和机构在 2015 年计划了强制注射计划。简.鲁比博士说，CDC所做的一切，并在其网站和其他官方公报上公布，等于欺诈，并阴谋对美国人民实施谋杀和恐怖主义行为，他们自己的话就是证据和真相的证明。
 
-内容包括过境的难民、其他国际营救机构、战地音乐家Davide Mortella和对新中国联邦的报道。
+鲁比在Brighteon.TV 上 3 月 14 日的节目中说:
 
-这是对新中国联邦报道的中文翻译：
+“PCR 不能诊断任何东西。随着每一个谎言被揭开，真相一一浮出水面，接受注射的人，实际上对抗感染和免疫相关疾病的能力越来越差。
 
-在大卫（Davide）和他的钢琴旁边，是整个难民营中规模最大、建造最好的营救设施是新中国联邦的帐篷， 他们是一个以推翻中共政府为最终目标的团体。“我们的帐篷是所有帐篷中设施最好的，我们还为难民提供Wi-Fi。我们要让世界知道，一个没有中国共产党的中国是一个更加美好的中国” 在场的义工说。
-![Image](https://media.discordapp.net/attachments/950448401529577502/956225214625218590/image.png?width=553&amp;height=369)图片来源：republica.com
-***编者按：**借用别人的一句话：你若盛开，蝴蝶自来；你若精彩，天自安排。我们新中国联邦人只做我们认为对的事情，坚持唯真不破，不用考虑别人的看法，到时会有正义的人们跟随，并得到他们的支持。*
+而cdc的瓦伦斯基现在却告诉美国人民这是他们（美国人）错在过分相信科学了，这与必须完全遵循 CDC 指南的命令成 180 度翻转。 如今她想掩盖她曾说天然免疫力不能抵抗COVID-19的谎言”。
 
-***发布：Candy***
+这位医学专业人士和资深药物开发专家表示，CDC 的第一个谎言是：需要疫苗来实现群体免疫，
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+现在都知道没有什么比上帝赋予的自然免疫力更优越的了。所以，当谎言被揭穿时，他们转而说你有天然免疫力，但你没有很长时间的免疫保护，所以你最好打疫苗，
 
+“然后，当那个谎言被揭穿后，它又改口说，你确实对这种流感有天然免疫力，而且，它的持续时间确实比疫苗注射要长得多。
+
+鲁比博士还在国会听证会上播放了瓦伦斯基的两段视频片段，瓦伦斯基无比荒谬地建议人们最大限度地接种疫苗和加强剂，并解释 CDC 的“所谓疫苗研究”。
+
+评论：两年时间人们就验证了CDC等机构和政府关于mRNA试验注射的谎言，只是代价太大，大的比两次世界大战之和都要惨重！
+
+视频链接：[https://gettr.com/post/p11hj9sacf4](https://gettr.com/post/p11hj9sacf4)
+
+编辑/上传：春雨
+
+————————————————————————————————————
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2705.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

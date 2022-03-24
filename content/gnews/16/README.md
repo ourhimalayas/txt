@@ -2,10 +2,21 @@
 ---
 
 
-## 3/23/2022 文贵直播：东航空难的真相是人为的自杀事件！为了报复中共对其虐待、家人打疫苗死以及被政府和公司骗钱，有人从1月份开始精心策划了这场空难
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2219099/)
+## 视频|宣传前线救援进展 新中国联邦乌克兰人道救援 凝聚世界正道的力量
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2219197/)
 
-秘密翻译组-北美组
+制作：大直播短视频组 红桃Q
+文案：爱米粒
+
+审核/编辑/发稿：谐趣园
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

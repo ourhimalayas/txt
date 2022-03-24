@@ -2,11 +2,11 @@
 ---
 
 
-## 普京事实上绑架所有俄罗斯人（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219502/)
+## 共产党将在中东点燃战火，围魏救赵！企图以石油截击西方制裁（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219566/)
 
-**PPT制作: Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00_10-10三3.png)
+**PPT制作: 0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10_10-20二2.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

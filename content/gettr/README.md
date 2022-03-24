@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 12:35 AM (UTC)`
+
+2022.03.23 晚 《新中国联邦新闻》对民主自由的恐惧让普京发动战争；面对制裁 俄罗斯欲将马里乌波尔市变为战争“灰烬”
+![img](https://media.gettr.com/group38/origin/2022/03/24/00/f10ce728-659d-ffd9-bbab-6fea5e98a338/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/23/2022 11:39 PM (UTC)`
 
 3/23/2022 Miles Guo: Moved by the NFSC & ROLF Ukraine rescue operation, a rich Ukrainian tycoon resolutely decided to return to Ukraine to fight. Ukraine will win, and Russia will disintegrate. The CCP may participate in the small-scale nuclear war that Russia is likely to launch. There is a 50% chance that CCP will serve as the mediator and guarantor in the Russia-Ukraine war, which will make the Chinese people the most hated people of humanity in the future.<br/><br/>3/23/2022 文贵直播：乌克兰富豪被新中国联邦救援所感动，毅然决定回国作战；乌克兰必胜，俄罗斯将解体；中共或参加俄罗斯可能打的小型核战争；中共有50%的可能性当俄乌之战的调解国和担保人，这将让中国人成为未来全人类最恨的人<br/>
@@ -144,13 +151,6 @@ Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscr
 
 2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难
 ![img](https://media.gettr.com/group11/origin/2022/03/23/11/c405e176-0200-f4d7-c07f-779f70981c74/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/23/2022 10:36 AM (UTC)`
-
-【Ukraine Rescue】 03/20/2022 Frontline NFSC fellow fighters: inside the big tent of the NFSC & ROLF, the international rescue medical team is conducting an emergency medical examination on an elderly lady. We are cooperating with the world!<br/><br/>【乌克兰救援】03/20/2022 新中国联邦前线战友：法治基金、新中国联邦的大帐篷内，国际救援医疗团队正在对一位老奶奶紧急体检。我们正在与世界合作！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
-![img](https://media.gettr.com/group39/getter/2022/03/23/10/7bd68791-3d07-a1d1-34d7-a002eaad2c85/out.jpg)
 
 ---
 

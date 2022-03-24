@@ -2,11 +2,11 @@
 ---
 
 
-## 2022是最黑暗的一年（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219481/)
+## 当中国的swift被关掉会发生什么？（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219539/)
 
-**PPT制作: Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10.50-11.00-（5）.jpg)
+**PPT制作: 0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00_10-10一4.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

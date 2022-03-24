@@ -2,21 +2,20 @@
 ---
 
 
-## 视频|宣传前线救援进展 新中国联邦乌克兰人道救援 凝聚世界正道的力量
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2219197/)
+## 【秘翻在线】美国国务院正式宣布俄罗斯军队在乌克兰犯有战争罪！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2219266/)
 
-制作：大直播短视频组 红桃Q
-文案：爱米粒
+#### 撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16480780581.png)   图片来源：网络照片
+3月23日美国国务卿布林肯在声明中指出，自发动无端和不公正的选择战争以来，俄罗斯总统弗拉基米尔·普京发动了无情的暴力，在乌克兰各地造成了死亡和破坏，俄军不分青红皂白的攻击和蓄意针对平民的攻击，以及其他暴行。俄罗斯军队摧毁了公寓楼、学校、医院、关键基础设施、民用车辆、购物中心和救护车，造成数千名无辜平民伤亡。经确认，许多被袭击的地方属于平民区，如马里乌波尔妇产医院和马里乌波尔剧院。他们在乌克兰这样做的行为再次震惊了世界，正如泽伦斯基总统所说，”使乌克兰人民沉浸在鲜血和泪水中”。
 
-审核/编辑/发稿：谐趣园
+该声明基于我们都看到的无数破坏和痛苦的叙述和图像，即普京的部队在乌克兰犯下了战争罪行。布林肯还说，蓄意以平民为目标是一种战争罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+根据目前获得的信息，美国政府经评估认定：俄罗斯军队成员在乌克兰犯下了战争罪。国务院和其他美国政府专家正在记录和评估乌克兰潜在的战争罪行。美国政府将继续跟踪有关战争罪的报告，并将酌情与盟国、合作伙伴以及国际机构和组织分享我们收集的信息。我们致力于利用一切现有工具追究责任，包括刑事起诉。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+*责编：白夜*
+
+**新闻来源：**[War Crimes by Russia’s Forces in Ukraine – United States Department of State](https://www.state.gov/war-crimes-by-russias-forces-in-ukraine/)
 
  
 

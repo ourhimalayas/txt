@@ -2,11 +2,11 @@
 ---
 
 
-## 一定做好最坏的打算，而且疫苗灾难还没来呢（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219488/)
+## 共产党将在中东点燃战火，围魏救赵！企图以石油截击西方制裁（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219546/)
 
-**PPT制作: Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00_10-10二1.png)
+**PPT制作: 0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10_10-20二1.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
