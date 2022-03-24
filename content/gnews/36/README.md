@@ -2,57 +2,122 @@
 ---
 
 
-## 有声|喜联储主席谈加密货币在俄乌战争中的角色——普京的战争可能使中央银行成为加密货币战场
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2223805/)
+## 老药新用：乙酰半胱氨酸（NAC）不仅治疗冠状病毒感染，还有可能解毒疫苗
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2223845/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-摘要：在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。喜联储主席William先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，那么这个问题也可以轻松解决。 其中一项要求是了解您的客户（KYC）——交易场所成员在加入时都必须注册完整的个人资料。William先生还说，“我已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。”
+作者：波士顿五月花 北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/03/17C0F8B3-B86F-406A-B176-B3A9EE351198.jpg)
+N-乙酰半胱氨酸(N -Acetylcysteine ，NAC)在临床已经应用了30 多年。是祛痰类老药。它的祛痰机理：NAC含巯基，可断裂粘蛋白肽键的二硫键（-S-S-），粘蛋白变成小分子肽链，使得痰液的粘滞性降低，易于咳出，最初主要用于呼吸系统疾病。多年临床研究已经证，NAC不仅仅是一种黏液溶解药，还具有多种生物活性，NAC这一老药已经焕发出出勃勃生机，已经报道的治疗范围几乎囊括所有的人类疾病。尤其对药物及重金属中毒、艾滋病、癌症、心脏病，糖尿病、帕金森病、自身免疫性疾病等各种难治疾病都有疗效。虽然NAC有点像个万能药，但它是个货真价实的、有效的、无害的好药，尤其是对许多药物中毒，例如醋氨酚（解热止痛药）中毒的最有效解毒药物就是NAC（1-31）。
 
-原文翻译：
+在美国， NAC原本是非处方药。但病毒疫情爆发后，FDA 在2020年7月却连发多封警告信，不许在市场销售。联想到FDA在兜售疫苗中扮演的不光彩角色，逆向思维，那么NAC一定是治疗冠状病毒的有效药物！现将NAC治疗冠状病毒和解毒疫苗的可能性与读者们分享。
 
-在俄罗斯卢布大大贬值之前，土耳其里拉在一年内兑美元贬值了44%。 它在国内的购买力也有所下降：根据官方统计数据或是私人估计，土耳其的通货膨胀率在54%到124%之间。 那么当地人的反应如何呢？ 精通技术的族群开始接受加密货币。
+**NAC是谷胱甘肽前体，在体内转化成谷胱甘肽。
+**
+谷胱甘肽（GSH）是由谷氨酸、半胱氨酸和甘氨酸通过肽键缩合而成的三肽化合物，广泛存在于人体内，其在细胞内浓度可达０．５～１０ｍｍｏｌ／Ｌ。在生理条件下，谷胱甘肽主要以还原型谷胱甘肽（ＧＳＨ）和氧化型谷胱甘肽（ＧＳＳＧ）两种形式，其中有活性的ＧＳＨ约占９０％。半胱氨酸中的巯基易被氧化脱氢，是赋予谷胱甘肽广谱解毒作用的活性中心基团，能中和各种有毒化合物、重金属离子或致癌物质等，并促其排出体外。半胱氨酸中的巯基还可保护细胞膜，对维持细胞内氨基酸转运、糖代谢和调节DNA合成、维护免疫细胞功能、保护细胞免受各种损伤等方面发挥着重要作用。
 
-根据国际清算银行（Bank for International Settlements）的研究人员搜集的数据，在全球范围内，在所有兑换稳定币（承诺以1：1的可兑换性转换为硬资产（主要是美元）的区块链代币）的货币中——里拉的市场占有率从2020年1月的0.3%跃升至26% 。 26%的占有率是非常不寻常的，因为土耳其货币仅占世界外汇市场的0.5%。
+尤其重要的是GSH 的含量与许多病毒复制有关。例如，Herzenberg等发现，GSH含量降低会损伤T淋巴细胞功能，促进艾滋病病毒复制。CD4 T细胞中GSH含量低，艾滋病病人寿命缩短。GSH是衡量艾滋病病人病情进展与否和生存期的指标之一（32）（33）。
 
-过去，当缺乏大众可接受的交换媒介的时候，大众会非正式地使用美元交易货品和服务，在日常交易中用美元取代国家记账单位。在印尼，在2015年禁止在国内交易中使用外币之前，雅加达五分之一的办公大楼以美元收取租金。
+然而，口服或注射谷胱甘肽不容易进入细胞内。NAC是谷胱甘肽前体，在体内可以转化成谷胱甘肽。临床证实NAC能被细胞吸收，可以有效补充过度消耗的谷胱甘肽。
 
-但是，在萨尔瓦多将比特币合法化不久后，国际货币基金组织在去年10月警告称：如果美元阻碍主权国家完全控制其货币，那么加密货币可能是一个更大的阻碍。 采用加密资产作为主要国家货币会带来重大风险，并且是一个不明智的捷径。
+**冠状病毒的易感人群细胞谷胱甘肽含量低。
+**
+疫情肆虐2年多以来，现在已经非常清楚了，冠状病毒的易感人群包括老年人、糖尿病和各种基础疾病患者。易感人群患病后，最容易变为重症甚至死亡。所有这些易感人群的一个共同特点就是细胞内谷胱甘肽水平常常会很低 (34-42)。Polonikov （43）观察到谷胱甘肽含量越少，冠状病毒感染病情越严重，他认为谷胱甘肽含量低是容易感染冠状病毒和病死的主要原因。
 
-俄罗斯入侵乌克兰，作为世界第11大经济体的俄罗斯被严厉制裁，却为推广加密化货币提供了巨大的推动力。 根据区块链分析公司Kaiko的说法，以卢布计价的Tether（一种美元支持的稳定币）的交易量正在大量增加。
+冠状病毒侵入细胞内复制会进一步消耗谷胱甘肽，严重的冠状病毒感染甚至会使谷胱甘肽消耗殆尽(44)。Khanfar 和Qaroot 认为谷胱甘肽消耗殆尽后，细胞就会像一个特洛伊木马，冠状病毒复制就会失控，所以谷胱甘肽消耗殆尽是重症病人死亡的原因（45）。
 
-Hamilton Investment Management Ltd.的首席执行官William Je创立了Himalaya Exchange，这是一家加密货币交易所，去年推出了其交易代币Himalaya Coin。 Himalaya Coin 喜币现在的市值为430亿美元。 他说：”当银行系统被金融制裁或战争影响时，人们都会急于用加密货币来保护他们的资产并保持资产流动性。俄罗斯人在加密货币市场中非常活跃”
+**NAC治疗抗许多病毒感染，包括冠状病毒感染。
+**
+体外和体内实验都证明NAC具有灭活流感病毒的作用（46）（47）(48)。NAC 还有灭活登革热病毒和单纯疱疹病毒的作用（49）（50）(51)。在艾滋病潜伏期模型研究中，NAC 能抑制巨噬细胞中艾滋病病毒的复制，尤其要特殊强调的是，这一研究出自美国国立卫生研究院福奇带领的研究团队（52）。NAC 还能减弱反转录病毒的传然性（53）（54）。
 
-代币的广泛使用将抢走银行系统的存款。 税收收入会下降，因为代币交易躲避了财政监管机构的控制。更少使用官方货币意味着较低的铸币税（货币发行局通过发行低成本现金和现金贷款中获得的利润）。由于中央银行只能印刷本国货币，因此无法解决加密货币流动性短缺的问题; 金融稳定可能因此受到危害。 数字资产会令资本外流，因此可能会放大汇率波动。
+Bhattacharya（55）研究了164例重症冠状病毒感染患者， 结果表明，静脉滴注NAC，每日三次，每次 1克，可缩短住院时间、减少死亡人数。Gaynitdinova（56）研究了46重症冠状病毒感染患者， 结果表明，静脉滴注NAC，每日1200-1500毫克，可以显著提高血氧饱和度， 减少肺损伤，缩短住院时间；同时可降低炎症反应指标C反应蛋白。Assimakopoulos（57）研究了82例冠状病毒感染患者, 结果表明，口服NAC 每日两次，每次600 mg，连续14天，可有效阻止病情恶化，显著降低死亡率。
 
-最重要的是，加密化货币对现有的金融秩序构成了风险，在现有金融秩序中，银行的工作是拒绝向犯罪的人提供资产流动性和价值储存的服务。 通过在银行系统之外运作，分布式地拥有不同加密货币账号的代币可能会削弱美国的监管力。 正如美国总统乔·拜登（Joe Biden）在3月9日的行政命令中所说，数字资产可能被用作”规避美国和外国金融制裁制度的工具”。 他们甚至可能通过在点对点或P2P交易中易手来避中心化交易所和监管机构的审查。
+**NAC解毒毒疫苗的理论依据。
+**
+所有疫苗毒性主要由刺突蛋白（S蛋白）引起。Wrapp 发现S蛋白主要部位共含有14个二硫键（58）。受体结合区（RBD）是S蛋白致病的关键部位所在。RBD中共发现九个半胱氨酸残基，其中八个形成四对二硫键。二硫键是比较稳定的共价键，在蛋白质分子中，起着稳定肽链空间结构的作用。二硫键数目越多，蛋白质分子对抗外界因素影响的稳定性就愈大。在这四对中，核心有三对于稳定S蛋白结构起到决定性的作用 （59）。
 
-“人们真正担心加密货币可能被用于非法活动或逃避制裁，点对点平台是一种常见的方式。 但是，如果监管机构密切合作，为加密运营商提供明确和协调的指导方针，那么这个问题也可以轻松解决。 其中一项要求可能是了解您的客户（KYC），交易场所成员加入的规则。 无论是点对点资产转移还是聊天渠道，你都必须注册完整的个人资料。”Je说。
+NAC 的巯基（SH）就像一把刀，可以破环二硫键，解体RBD，使S蛋白功能丧失（60）(61) 。S蛋白功能丧失既意味着疫苗毒性丧失。当然，是否真的能解疫苗毒，还有待最终临床实验证实。
 
-如果各方都支持使用加密货币，为什么其价格没有明显上升呢？ 虽然比特币最初可能与其他风险资产一起被抛售，但非零余额比特币账号数量已经突破4000万，达到历史最高水平，彭博情报分析师Jamie Douglas Coutts指出。 “一旦宏观因素的影响消退，比特币就有望升值，”他说，并补充说，“只购买而没有出售比特币的钱包数量”不断创下新高，在12个月内增长了20%，并在最近几周加速。
+如果mRNA 疫苗如果被整合到人类染色体的话，人体会不断产生S蛋白。这就需要不断的用NAC类药物清除。永久性的清除被整合到人类染色体的S蛋白毒基因有赖于分子生物学的技术的进展，例如基因编辑等，精准的敲除S蛋白毒基因，但这需要时间和科研的大量投入。在毒疫苗即将引发大规模人道灾难的当下， 认识到NAC的潜在价值显得十分有意义。
 
-HODLers——加密货币用户的加密术语“Holding On for Dear Life”——为美好的生活而坚持的持币者们，比过去的熊市表现出更大的信念。 更多的机构资金正在加入竞争。 “我一直在与许多资产管理公司和投资银行交谈，他们每个人都开始投资加密货币或正在研究这个领域，”麦格理集团大中华区股票资本市场前主席Hamilton’s Je说， “不管你喜不喜欢，”他说，“加密货币市场将继续存在并扩大。”
+**在此特别声明：治疗疾病应找医生咨询，读者自行治疗产生的任何事故，笔者概不负责。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-125.jpg)
+图1、NAC化学结构，巯基（SH）好像一把刀砍向S蛋白的二硫键
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-48.jpg)
+图2、二硫键
 
-根据国际清算银行的研究，一旦加密货币被广泛采用为支付手段，数字资产的任何问题，比如稳定币的中断或波动性代币价格的暴跌，都可能蔓延到支付系统，并对实体经济活动产生不利影响。 研究人员说，由于缺乏关于代币所有权的透明度，“未知的未知数”加剧了风险。
 
-关于比特币价格太不稳定而不能成为日常货币的论点，或者P2P交易所的交易量太少而无法支持大规模使用代币，在正常时期是有效的。 当他们的银行系统连接庞大的全球流动性资产池，并且他们的货币得到一个不受限制地获得充足外汇储备的货币当局的支持时，人们不需要其他的替代方案。 但是，当这两个条件都不成立时，游戏规则就会改变。就像在俄罗斯发生的那样。
 
-美元和SWIFT网络对其他货币的制裁给全世界经济带来了冲击。 对此的回应可能是广泛的加密货币化。 当局担心Meta Platforms Inc. 支持的Libra稳定币的计划对货币主权带来压力，尽管该项目（已更名为Diem）已经失败了，但加密货币对对货币主权的压力却像复仇一般回归了。我们应该认真对待这一威胁。
+**参考文献：**
 
-文字版原文：[喜联储主席谈加密货币在俄乌战争中的角色——普京的战争可能使中央银行成为加密货币战场](https://gnews.org/zh-hans/2210861/)
+1. N-Acetylcysteine: A Review of Clinical Usefulness (an Old Drug with New Tricks) Journal of Nutrition and Metabolism Volume 2021, 9949453, 13 pages
+2. Mokhtari V et al. A Review on Various Uses of N-Acetyl Cysteine. Cell J. 2017 Apr-Jun; 19(1): 11–17.
+3. Henderson P et al. N-Acetylcysteine therapy of acute heavy metal poisoning in mice. Vet Hum Toxicol. 1985 Dec;27(6):522-5.
+4. Heard KJ. Acetylcysteine for Acetaminophen Poisoning. N Engl J Med. 2008 Jul 17; 359(3): 285–292.
+5. Algren DA et al. REVIEW OF N-ACETYLCYSTEINE FOR THE TREATMENT OF ACETAMINOPHEN (PARACETAMOL) TOXICITY IN PEDIATRICS. Second Meeting of the Subcommittee of the Expert Committee on the Selection and Use of Essential Medicines Geneva, 29 September to 3 October 2008.
+6. Chiu MH et al. Massive Acetaminophen Overdose Treated Successfully with N-Acetylcysteine, Fomepizole, and Hemodialysis. Case reports in critical care https://doi.org/10.1155/2021/6695967
+7. Quintanilla ME et al. N-Acetylcysteine and Acetylsalicylic Acid Inhibit Alcohol Consumption by Different Mechanisms: Combined Protection. Front. Behav. Neurosci., 31 July 2020 | https://doi.org/10.3389/fnbeh.2020.00122
+8. Tomko RL et al. N-acetylcysteine: A potential treatment for substance use disorders. Curr Psychiatr. 2018 Jun; 17(6): 30–55.
+9. Israel Y et al. Aspirin and N-acetylcysteine co-administration markedly inhibit chronic ethanol intake and block relapse binge drinking: Role of neuroinflammation-oxidative stress self-perpetuation. Addict Biol 2021 Jan;26(1):e12853.
+10. Zandwijk NV N-acetylcysteine (NAC) and glutathione (GSH): antioxidant and chemopreventive properties, with special reference to lung cancer. J Cell Biochem Suppl 1995;22:24-32
+11. Smilkstein MJ et al. Efficacy of oral N-acetylcysteine in the treatment of acetaminophen overdose. Analysis of the national multicenter study. N Engl J Med. 1988; 319: 1557-1562
+12. Woo OF et al. Short duration of oral N acetylcyteine therapy for acute acetaminophen overdose. Toxicology 2000 35:363-368
+13. Ballatori N et l. N-acetylcysteine as an antidote in methylmercury poisoning. Environ Health Perspect. 1998 May; 106(5): 267–271.
+14. Rossignol D.A. (2019) The Use of N-Acetylcysteine as a Chelator for Metal Toxicity. In: Frye R., Berk M. (eds) The Therapeutic Use of N-Acetylcysteine (NAC) in Medicine. Adis, Singapore. https://doi.org/10.1007/978-981-10-5311-5\_10
+15. Muldoon LL et al. N-acetylcysteine chemoprotection without decreased cisplatin antitumor efficacy in pediatric tumor models. J Neurooncol 2015 121:433-40
+16. Giampreti A et al. N-Acetyl-Cysteine as Effective and Safe Chelating Agent in Metal-on-Metal Hip-Implanted Patients: Two Cases. Case report in orthopedics https://doi.org/10.1155/2016/8682737
+17. Mokhtari V et al. A Review on Various Uses of N-Acetyl Cysteine. Cell J. 2017 Apr-Jun; 19(1): 11–17.
+18. Tomko RL. N-acetylcysteine: A potential treatment for substance use disorders. Curr Psychiatr. 2018 Jun; 17(6): 30–55.
+19. Tattersall AB, Bridgman KM, Huitson A. Acetylcysteine (Fabrol) in chronic bronchitis—a study in general practice. J Int Med Res. 1983;11(5):279–284.
+20. Dekhuijzen PN. Antioxidant properties of N-acetylcysteine: their relevance in relation to chronic obstructive pulmonary disease. Eur Respir J. 2004;23(4):629–636.
+21. Lundbäck B et al. Possible effect of acetylcysteine on lung function. Eur Respir J. 1992;5(suppl 15):289s.
+22. Stey C et al. The effect of oral N-acetylcysteine in chronic bronchitis: a quantitative systematic review. Eur Respir J. 2000;16(2):253–262.
+23. De Flora S et al. Attenuation of influenza-like symptomatology and improvement of cell-mediated immunity with long-term N-acetylcysteine treatment. Eur Respir J. 1997;10(7):1535–1541.
+24. Demedts M et al., for the IFIGENIA Study Group. High-dose acetylcysteine in idiopathic pulmonary fibrosis. N Engl J Med. 2005;353(21):2229–2242.
+25. Marenzi G et al. N-acetylcysteine and contrast-induced nephropathy in primary angioplasty. N Engl J Med. 2006;354(26):2773–2782.
+26. Rizk AY et al. N-acetyl-cysteine is a novel adjuvant to clomiphene citrate in clomiphene citrate-resistant patients with polycystic ovary syndrome. Fertil Steril. 2005;83(2):367–370.
+27. Badawy A et al. N-Acetyl cysteine and clomiphene citrate for induction of ovulation in polycystic ovary syndrome: a crossover trial. Acta Obstet Gynecol Scand. 2007;86(2):218–222.
+28. Martina V et al. Long-term N-acetylcysteine and L-arginine administration reduces endothelial activation and systolic blood pressure in hypertensive patients with type 2 diabetes. Diabetes Care. 2008;31:940–944.
+29. Treweeke AT. N-Acetylcysteine inhibits platelet-monocyte conjugation in patients with type 2 diabetes with depleted intraplatelet glutathione: a randomised controlled trial. Diabetologia. 2012;55:2920–2928.
+30. Shahripour RB et al. N-acetylcysteine (NAC) in neurological disorders: mechanisms of action and therapeutic opportunities. Brain Behav 2014 4:108-22
+31. Monti DA et al. N-acetyl Cysteine Administration Is Associated With Increased Cerebral Glucose Metabolism in Patients With Multiple Sclerosis: An Exploratory Study.Front. Neurol | https://doi.org/10.3389/fneur.2020.00088
+32. Eck H-P, Gmunder H, Hartmann M, Petzoldt D, Daniel V, Droge W. Biol Chem Hoppe-Seyler. 1989;370:101–108. [PubMed] [Google Scholar]
+33. Helbling B, Von Overbeck J, Lauterburg B H. Eur J Clin Invest. 1996;26:38–44. [PubMed] [Google Scholar]
+34. Julius M et al. Glutathione and morbidity in a community based sample of elderly. Journal of clinical epidemiology. 1994 47:1021-1026.
+35. Nicholas O. et al. Glutathione maintenance mitigates age-related susceptibility to redox cycling agents. Redox Biology, 2016; 10: 45 DOI: 10.1016/j.redox.2016.09.010
+36. Lutchmansingh FK et al. Glutathione metabolism in type 2 diabetes and its relationship with microvascular complications and glycemia. PLoS One. 2018; 13(6): e0198626.
+37. Herzenberg LA et al. Glutathione deficiency is associated with impaired survival in HIV disease. Proc Natl Acad Sci U S A. 1997 Mar 4; 94(5): 1967–1972.
+38. Perricone C et al. Glutathione: a key player in autoimmunity. Autoimmun Rev 2009 8:697-701
+39. Koji Aoyama K, Nakaki T. Impaired glutathione synthesis in neurodegeneration. Int J Mol Sci 2013 Oct 18;14(10):21021-44
+40. Morris D et al. Glutathione and infection. Biochim Biophys Acta 2013 May;1830(5):3329-49
+41. Venketaraman, V. Glutathione levels and immune responses in tuberculosis patients. Microb. Pathog. 2008, 44, e255–e261.
+42. Ly, J. et al. Liposomal Glutathione Supplementation Restores TH1 Cytokine Response to Mycobacterium Tuberculosis Infection in HIV-Infected Individuals. J. Interferon. Cytokine Res. 2015, 35, 875–887
+43. Polonikov A. Endogenous Deficiency of Glutathione as the Most Likely Cause of Serious Manifestations and Death in COVID-19 Patients. ACS Infect. Dis. 2020, 6, 1558−1562
+44. Silvagno F. et al. The Role of Glutathione in Protecting against the Severe Inflammatory Response Triggered by COVID-19. Antioxidants (Basel) 2020 Jul 16;9(7):624
+45. Khanfar A, Qaroot B al. Could glutathione depletion be the Trojan horse of COVID-19 mortality? European Review for Medical and Pharmacological Sciences 2020; 24: 12500-12509
+46. Cai J. et al. Inhibition of influenza infection by glutathione. Free Radic Biol Med. 2003; 34: 928-936. 108)
+47. Amatore D. et al. Glutathione increase by the n‐butanoyl glutathione derivative (GSH‐ C4) inhibits viral replication and induces a predominant Th1 immune profile in old mice infected with influenza virus. FASEB Bioadv 2019; 1: 296-305.
+48. Geiler J. et al. N-acetyl-L-cysteine (NAC) inhibits virus replication and expression of pro-inflammatory molecules in A549 cells infected with highly pathogenic H5N1 influenza A virus. Biochem Pharmacol 2010; 79: 413-420.
+49. Wang J. et al. Inhibitory effect of glutathione on oxidative liver injury induced by dengue virus serotype 2 infections in mice. PLoS One 2013; 8: e55407. 113)
+50. Aubry M. et al. Pathogen inactivation of Dengue virus in red blood cells using amustaline and glutathione. Transfusion 2017; 57: 2888-2896. 114)
+51. Palamara AT. et al. Evidence for antiviral activity of glutathione: in vitro inhibition of herpes simplex virus type 1 replication. Antiviral Res 1995; 27: 237-253. 115)
+52. Kalebic T. Fauci AS. Suppression of human immunodeficiency virus expression in chronically infected monocytic cells by glutathione, glutathione ester, and N-acetylcysteine. Proc Natl Acad Sci U S A 1991; 88: 986-990. 116)
+53. Guerrero CA. Inhibition of rotavirus ECwt infection in ICR suckling mice by N-acetylcysteine, peroxisome proliferator-activated receptor gamma agonists and cyclooxygenase-2 inhibitors. Mem Inst Oswaldo Cruz 2013; 108: 741-754. 117
+54. Guerrero CA. N‐acetylcysteine treatment of rotavirus‐associated diarrhea in children. Pharmacotherapy 2014; 34: 333-340.
+55. Bhattacharya R et al. The beneficial role of N-acetylcysteine as an adjunctive drug in treatment of COVID-19 patients in a tertiary care hospital in India: an observational study. Int J Res Med Sci 2021; 8: 3518-3522.
+56. Gaynitdinova VV et al. N-acetylcysteine as a part of complex treatment of moderate COVID-associated pneumonia. Pulmonologiya 2021; 31: 21-29
+57. Assimakopoulos SF et al. N-acetyl-cysteine reduces the risk for mechanical ventilation and mortality in patients with COVID-19 pneumonia: a two-center retrospective cohort study. Infect Dis (Lond) 2021; 53: 847-854
+58. Wrapp, D et al. Cryo-EM structure of the 2019-nCoV spike in the prefusion conformation. Science 2020 367 6483
+59. Lan J et al. Structure of the SARS-CoV-2 spike receptor-binding domain bound to the ACE2 receptor. Nature 2020 581, pages215–220
+60. Grishin A et al. Spike protein disulfide disruption as a potential treatment for SARS-CoV-2. https://doi.org/10.1101/2021.01.02.425099
+61. Keber MM et al. Disruption of disulfides within RBD of SARS‐CoV‐2 spike protein prevents fusion and represents a target for viral entry inhibition by registered drugs. FASEB J. 2021 Jun; 35(6): e21651.
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：文合
+封面：水涨船高
+发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

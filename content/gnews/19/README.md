@@ -2,24 +2,36 @@
 ---
 
 
-## 北约加强准备工作防御“化学、生物、辐射和核”威胁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224193/)
+## 俄罗斯在乌克兰东部投入化学武器部队&#8211;英国情报消息
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224231/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16481455551.png)图片来源：油管
-据《华盛顿观察家报》（Washingtong Examiner）3月24日报道，北约官员担心，由于俄罗斯对乌克兰的入侵没有按计划进行，普京可能会诉诸于核武器或者化学武器。因此，他们在3月24的北约峰会上宣布，北约将加强对“化学、生物、放射性和核威胁”的防御准备工作。
+翻译：宫米叶
 
-北约领导人在一份声明中说：“我们已经准备好让那些在网络空间伤害我们的人付出代价，并且正在增加信息交流和态势感知（situational awareness），加强民事准备，并提高我们对虚假信息的反应能力。同时，我们还将加强对化学、生物、放射性和核威胁的防御工作。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 
-此前，俄国政府指控美国、北约盟国和乌克兰准备对俄军使用生物武器，美国和北约称这一指控表明了俄军下一步可能采取的行动，因为俄罗斯通常会诬陷对手以图在未来实施不良行为。
+据了解，入侵乌克兰的俄罗斯军队将处理化学武器的部队投入乌克兰境内。英国情报消息22日透露。美欧等国对俄罗斯可能在乌克兰使用化学武器表示警惕。日前，拜登总统在首都华盛顿的企业经营者们的聚会上发表了演说，清楚地做出了一系列说明。拜登解释说，俄总统普京“声称美国在欧洲拥有生物和化学武器，乌克兰也拥有，但不是事实”。他指出，普京有意为俄罗斯自己使用该武器辩护。
 
-北约秘书长延斯·斯托尔滕贝格 (Jens Stoltenberg) 在国家元首和政府首脑会议后告诉记者：“我们的最高军事指挥官沃尔特斯将军已经启动了北约的化学、生物、辐射和核防御元素，盟国正在部署额外的化学、生物以及核防御措施，以加强我们现有的和新的后援团体。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2835-edited.png)图片来源：EPA 时事
 
-在上周将普京称为“战争罪犯”的美国总统拜登本周三在启程前往欧洲之前警告说，俄军有可能使用生物或者化学武器，这才是“真正的威胁”。
+被认为是化学武器的装备和相关部队本月中旬从乌克兰东部边境进入亲俄罗斯派武装力量控制的顿巴斯地区。之后似乎也停留在东部。装载化学物质的弹道导弹或炮弹可能是为实战配备的。
 
-*责编：白夜*
+此外，区分于这些部队，应对核、生物和化学武器(NBC武器)战的特种部队也进入了乌克兰境内。消息渠道说：“俄军可能准备着随时使用(化学武器)。”
 
-新闻来源：[NATO boosts ‘chemical, biological, radiological and nuclear’ threat readiness](https://www.washingtonexaminer.com/policy/defense-national-security/nato-boosts-chemical-biological-radiological-and-nuclear-threat-readiness)
+**新闻来源：**【www.jiji.com】[ロシア、化学兵器部隊投入　ウクライナ東部に―英情報筋：時事ドットコム (jiji.com)](https://www.jiji.com/jc/article?k=2022032200906&amp;g=int&amp;p=20220322at80S&amp;rel=pv)| 发布时间：2022年03月24日
+
+审核：BryanW
+校对：宫米叶
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+
+
 
  
 

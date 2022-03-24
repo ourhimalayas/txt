@@ -2,27 +2,19 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月22日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224322/)
+## 【粤语配音】2022年3月24日：共产党官员资产被查封的时刻到来了
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2224398/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-5.jpg)
+紐約香草山-香港部
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月22日晚](https://gnews.org/zh-hans/2213756/)
+关于东航飞机掉下来的事情，死了一百多个人，确实让人很心疼，但是对灭共半点影响都没有，再掉10架都不会，别管它是什么原因，是人控还是自然，别转移话题。
 
-音频处理：Fei797
-发稿：Fei797
+共产党在郑州死那么多人，有真相吗？郑州人还有几个谈的，是吧，新疆大屠杀、西藏大屠杀、武汉，中国人的这个爱忘性就两三周，死那么多人都没事儿，那当官儿的该干啥干啥，是吧？啥事儿都没有，这就是我们要灭共的原因，不灭共，人类就没有任何阳光、没有任何正义，不灭共，这个世界就一定被共产党灭了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+兄弟姐妹们，中共的粮食危机、水的危机、健康危机、疫苗灾难、突发飞机灾难，包括火车，走着看，过了五月份，很快过了6，70天吧，过了五月份你就明白了，全世界，中共会更严重，香港现在死人到啥程度了，大家都看到了吧，共产党脱钩，这对中国人是福气，但是中国人要活到脱钩后的美好时代的到来。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄乌前线现在很好了，看到了乌克兰跑出来的人越来越少了，但是我觉得要么有一个大的谈判，要么就是一个猛烈的时刻的到来，没憋好屁啊，所以在前线的战友们还是要小心，现在中共是元凶的这个话题，已经成为世界的主题了，看看福克斯、CNN、CNBS、法国、英国、日本，包括亲共的媒体，中国人悲惨吧，人家打架你买单，你背黑锅，你还要给人家高兴。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
