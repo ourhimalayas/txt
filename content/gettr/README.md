@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 6:51 AM (UTC)`
+
+3/23/2022 Miles Guo: Why would Putin and Xi Jinping join forces to take down Europe and the US? The CCP reminded Putin that the Color Revolution in Ukraine would threaten his political career, and Putin in turn convinced Xi that the same fate will happen to the CCP once Putin’s regime collapses.<br/><br/><br/>3/23/2022 文贵直播: 为什么普京和习近平要联手干掉欧美？中共提醒普京意识到乌克兰的颜色革命可能会威胁到自己的政治生命，普京转而让习相信普京政权一旦倒台，中共也会遭遇同样的下场<br/><br/><br/>
+![img](https://media.gettr.com/group42/getter/2022/03/24/06/383c7e75-bbb2-6a28-720a-e75571ee38b4/out.jpg)
+
+---
+
 `@miles 3/24/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-最新战况播报
@@ -146,13 +153,6 @@ How a team of Italian journalists see the New Federal State of China. They produ
 `@miles 3/23/2022 6:41 PM (UTC)`
 
 In this report published by #Spanish press #Republica, the #NFSC and #ROLF #humanitarianrelief activities in #Medyka, #Poland are mentioned: “Next to Davide and his piano is the largest and best-built marquee in the entire #refugeecamp. It is that of the #NewFederalStateofChina, a non-profit association whose ultimate goal is to overthrow the #Chinese government. ‘Our marquee is the best erected of all. We even have #WiFi for the #refugees. We want the world to know that a #China without #Communism would be a better China’, argues its manager.” #HumanitarianReliefForUkraine #ChineseStandWithUkraine https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/ https://gettr.com/post/p11i5j0a6ef
-
----
-
-`@miles 3/23/2022 6:06 PM (UTC)`
-
-A very popular young singer, Tsewang Lobu, in the Tibetan community as well as mainland China. He was an absolute supporter of the New Federal State of China and the Whistleblower Movement. He was threatened by the Chinese Communist State Security for spreading the real truth of the big live broadcast of the Whistleblower Movement. After claiming to have set himself on fire in protest, Tsewang Lobu was killed and burned by brutal Chinese Communist police at the age of just 25.<br/>中国大陆非常受欢迎的年轻藏族歌手才旺罗布是爆料革命新中国联邦的绝对支持者。因为传播爆料革命大直播的真实信息，受到中共国安威胁。才旺罗布声称自焚表达抗议后，被残暴的中共警察打死后焚烧，年仅25岁。
-![img](https://media.gettr.com/group8/origin/2022/03/23/18/6bb47e6a-b367-7442-8055-01acdad91654/out.jpg)
 
 ---
 
