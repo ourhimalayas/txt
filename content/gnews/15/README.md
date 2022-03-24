@@ -2,24 +2,23 @@
 ---
 
 
-## 救援信息：坦克人 CCP ≠GHINESE
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2221621/)
+## 重磅！中共东航空难惊天内幕
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221641/)
 
-Communism is the cancer of this civilized world. From 1989 when the Chinese people rebelled against the dictatorship of the Chinese Communist Party to 2022 when the Ukrainian people rebelled against the invasion of the communist Putin. Human ignorance, selfishness, stupidity, and greed have led to the survival of communism to this day.
-If we do not destroy communism and the biggest incarnation of communism, the Communist Party of China, the disaster of the Chinese people for 70 years and the disaster that the Ukrainian people are suffering now will spread throughout the world.
+撰稿：东京樱花团/深藏不露
 
-共产主义是这个文明世界的毒瘤。从1989年中国人民反抗中国共产党的独裁统治到2022年乌克兰人民反抗共产主义普京的入侵。人类的无知、自私、愚昧、贪婪导致共产主义存活至今。
+2022年3月23日，郭文贵大直播爆料：MU5735客机广西坠毁，实为受中共虐待的飞行员自杀式报复社会行为，且该飞行员之前已给中共政府留言，航空公司骗走该飞行员所有的钱、他家人受中共虐待，而且已有家人因疫苗死亡、更可怕的是他自认自己打疫苗也活不了几天！这名飞行员在绝望之中已久失去了人性！同时也说明中共商鞅五策驭下的内部斗争是多么惨烈，所谓的天之骄子飞行员，在CCP的治下不过是一群血肉机器，没有自由，没有人权！大家以后还敢做共产党飞行员开的飞机吗？相信中共一定会生成黑盒子被毁坏的事来掩盖真相！此次空难完全是蓄谋已久，精心安排的，人为操作自杀行为！飞行员从1月份开始准备，决绝的操作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-21.png)
+“病毒不是目的，疫苗才是真正的目的！”中共邪恶政权，因为盗国贼贪污腐败，导致财政困难，无以为继！为了中共邪恶政权继续奴役中国老百姓，邪恶的中共崇祯帝习近平妄图通过人为放毒制造社会恐慌！再利用人性的弱点欺骗和强制老百姓打毒疫苗，因为注射了毒疫苗，导致老百姓失去免疫力，从而引发人类各种疾病！兔子急了还要咬人呢，当疫苗灾难导致的各种副作用显现之时，会有许多老百姓在临死之前选择走极端报复社会……
 
-如果我们不消灭共产主义，不消灭共产主义的最大化身中国共产党，中国人民70年的灾难以及乌克兰人民现在遭受的灾难将会蔓延整个世界。
+邪恶的中共为了长期统治已把中国变成一个典型的互害社会！邪恶的中国共产党才是万恶之源！只有将中国共产党彻底消灭，才能解救受苦受难的中国同胞！！！
 
-字幕+视频制作 ：洛杉矶盘古农场-庚子
-审片 ：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+消息来源：
+[2022年3月23日 文贵大直播](https://gettr.com/post/p11h7xt9462)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

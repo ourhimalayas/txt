@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 11:24 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月23日第19天当日救援统计：<br/>Medyka救援站接待：约65人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7362人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 19 - Date: March 23, 2022 :<br/>Medyka Rescue Station Reception: about 65 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7362 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group22/getter/2022/03/24/11/57758597-6955-8e0b-cd37-659492d334bf/340f69dced2c4a11be116dd98be16050.jpg)
+
+---
+
 `@miles 3/24/2022 10:55 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -148,13 +155,6 @@
 
 2022.03.23《The Fringe》 Episode 153
 ![img](https://media.gettr.com/group28/origin/2022/03/23/23/34c0cd2b-d861-56cb-a06f-9bed9d4e13aa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/23/2022 11:06 PM (UTC)`
-
-How a team of Italian journalists see the New Federal State of China. They produced such a beautiful piece! Thank you!<br/><br/>意大利记者眼中的新中国联邦：意大利记者团队采访新中国联邦前线记者精粮……，其制作的关于新中国联邦前线救援的视频精美绝伦
-![img](https://media.gettr.com/group27/getter/2022/03/23/23/344cd4f0-5738-5766-f3ca-4872dedd6257/out.jpg)
 
 ---
 
