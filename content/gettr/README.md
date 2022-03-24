@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 1:22 PM (UTC)`
+
+ 3月24号：尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！
+![img](https://media.gettr.com/group47/getter/2022/03/24/13/6afdead0-b262-6f38-a7f4-d308e1cc5ac5/out.jpg)
+
+---
+
+`@miles 3/24/2022 1:18 PM (UTC)`
+
+2022.03.24早 新中国联邦新闻访谈   美国政府正式评定俄军在乌克兰犯下战争罪   国际刑事法院会发挥何种作用	拜登抵达布鲁塞尔  参加欧盟   北约及G7重要峰会   更多对俄制裁箭在弦上   郭先生最新爆料   中共国会站出来或者做担保   或者参与战争   但结局都注定
+![img](https://media.gettr.com/group47/origin/2022/03/24/13/201ba427-a135-1523-060b-7fa030a51eeb/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/24/2022 12:52 PM (UTC)`
 
 <br/>3/24/2022 法国一家保险公司拒绝理赔一位投有数百万人寿保险的富商：这位富商因为注射中共疫苗而死亡，保险公司及法院认定他在知晓该疫苗属实验性药物，且有副作用的情况下仍选择接种的行为，这种选择被认定是‘自杀’。<br/><br/>03/24/2022 French insurance company refuses to pay out to a wealthy businessman with millions of dollars in life insurance: after he died from the Covid vaccine, the insurance company and the court decided that he chose to receive this Covid vaccine despite knowing that it was an experimental drug and had side effects, a choice that was deemed ‘suicidal’<br/>
@@ -143,20 +157,6 @@
  3月23日：聪明，专业的有良知的战友！
 > `@clark228 3/23/2022 1:29 AM (UTC)`<br/>强烈要求中国民航局公布QACVR（驾驶舱窃听器）的内容。<br/>郭先生在2018年就爆料过ccp给所有飞机安装了窃听器。<br/>而中国民航局不顾厂家多次反对，强行在驾驶舱安装QACVR窃听器。用来监听飞行员的谈话，这个设备最多可连续记录3个月的录音，每个航空公司都可以自行提取录音。而黑匣子只能保存30到50分钟的录音。<br/><br/><br/>以前，飞行员在驾驶舱可以随便聊天吐槽，然而安装QACVR以后，飞行员生怕说错一句话，就会遭致领导的打压。民航局也利用窃听器大搞飞行作风整顿，即，标准喊话说错一个字，检查单读的不大声都会被领导考评。更别提闲聊了，长期在如此压抑的飞行环境中，你觉得飞行员好能是正常人吗？<br/><br/>飞机失事了，民航局闭口不提QACVR的事情，你们想帮CCP隐瞒什么了？<br/>驾驶舱是一个没人权、没自由、极度压抑、时刻被监听的地方、飞行员还能是正常人吗？<br/>
 ![img](https://media.gettr.com/group26/getter/2022/03/23/01/6da56f83-33c6-e59b-5f08-42064a2fca64/3ffaff896efb48ceb179c8e33f62c230.jpg)
-
----
-
-`@miles 3/24/2022 12:35 AM (UTC)`
-
-2022.03.23 晚 《新中国联邦新闻》对民主自由的恐惧让普京发动战争；面对制裁 俄罗斯欲将马里乌波尔市变为战争“灰烬”
-![img](https://media.gettr.com/group38/origin/2022/03/24/00/f10ce728-659d-ffd9-bbab-6fea5e98a338/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/23/2022 11:39 PM (UTC)`
-
-3/23/2022 Miles Guo: Moved by the NFSC & ROLF Ukraine rescue operation, a rich Ukrainian tycoon resolutely decided to return to Ukraine to fight. Ukraine will win, and Russia will disintegrate. The CCP may participate in the small-scale nuclear war that Russia is likely to launch. There is a 50% chance that CCP will serve as the mediator and guarantor in the Russia-Ukraine war, which will make the Chinese people the most hated people of humanity in the future.<br/><br/>3/23/2022 文贵直播：乌克兰富豪被新中国联邦救援所感动，毅然决定回国作战；乌克兰必胜，俄罗斯将解体；中共或参加俄罗斯可能打的小型核战争；中共有50%的可能性当俄乌之战的调解国和担保人，这将让中国人成为未来全人类最恨的人<br/>
-![img](https://media.gettr.com/group13/getter/2022/03/23/23/b7280255-7012-b35a-9d71-3260fdfceedb/out.jpg)
 
 ---
 
