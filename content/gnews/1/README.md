@@ -2,38 +2,43 @@
 ---
 
 
-## 美国总统“普京在绝境”使用生物和化学武器的迹象和警告
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2221107/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221162/)
 
-翻译：宫米叶
+整理：枳实
+美工：精灵蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2774-edited.png)news.yahoo.co.jp
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@9BSYAU7D_7@M795L.png)图片：雅典娜农场设计组 精灵蓝
 
-美国总统拜登21日表示，由于以美欧为主的各国团结，俄罗斯对乌克兰的入侵未能如愿以偿，“陷入困境”。在此基础上，他指出，俄罗斯“越进行战争，越有可能使用有重大杀伤的战术”。他警告说，称美国在欧洲拥有生物和化学武器的 “栽赃行动”，是俄罗斯自己使用该武器的“明确迹象”。
 
-拜登总统在首都华盛顿的企业经营者们的聚会上发表了演说，清楚地做出了一系列说明。拜登解释说，俄总统普京“声称美国在欧洲拥有生物和化学武器，乌克兰也拥有，但不是事实”。他指出，普京有意为俄罗斯自己使用该武器辩护。在此基础上，他强调：“我们需要注意接下来会发生什么。”
+雅典娜疫情更新（2022年 3月23日）
 
-此外，拜登还表示俄罗斯在乌克兰“发射了极超音速导弹”。俄国防部19日宣布发射一枚“极超音速”战斗机搭载型导弹“金杰尔”，摧毁乌克兰西部德里亚丁的导弹储存设施。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GJE2JN4FGMHHDHUTFR0770.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/UK2BG6YDRMVHD7DY3.png)
+[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月23日改进.pdf)
 
-金杰尔以最大速度10马赫飞行，由于采取不规则轨道而被认为很难拦截的新武器。这是第一次在实战中使用。
+数据来源：
 
-美国国防部高级官员21日对记者团指出这样做并不有利于军事“由于目标建筑物离发射点并不是很远，我们很难理解为什么一定要使用‘极超音速导弹”。他分析说：“(通过展示导弹的存在)，他们或许试图在与乌克兰方的谈判中占据优势。”
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-（文章仅代表作者观点与GNEWS无关）
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-新闻来源：【news.yahoo.co.jp】[米大統領「プーチンは窮地」　生物・化学兵器使用の兆候と警告（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/be4f2dfe9541d76165224c411f95395927608bd6)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-* * *
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-审核：BryanW
-校对：天天
-发布：花羽
+[covidlive.com.au](https://covidlive.com.au/)
 
-**[烏克蘭救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文貴先生Gettr](https://gettr.com/user/miles)
-[全球喜馬拉雅農場聯盟委員會Gettr](https://gettr.com/user/GlobalAlliance)
-[喜馬拉雅聯盟大使館全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
