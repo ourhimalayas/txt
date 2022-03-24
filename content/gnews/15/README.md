@@ -2,27 +2,42 @@
 ---
 
 
-## 拜登出席北约紧急峰会应对俄乌局势
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2222814/)
+## 乌克兰安全局监听发现：俄罗斯士兵士气低下
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222843/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/nato-biden-ukraine-russia.jpg)图片来源：CBS News
-根据《NBC News》3月24 日报道，在俄乌战争一个月之际，美国总统拜登周四与西方盟友聚集在欧洲，支持基辅，用新的制裁措施惩罚莫斯科。
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰安全局监听发现：俄罗斯士兵士气低下.png)[*图片来源*](https://images-ext-2.discordapp.net/external/8mFHNvLL6LZ9hzoSiHpfTFrA3OrchsFj8iGxBIK0620/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220324-00436625-fnnprimev-000-9-view.jpg?width=1090&amp;height=613)
 
-乌克兰总统泽伦斯基在布鲁塞尔的北约峰会上通过视频链接发表讲话，敦促增加对他的国家的军事援助。乌克兰领导人从首都通过视频信息召集各国支持基辅的正义反抗，这已成为乌克兰不畏艰险地反抗的象征和使俄罗斯很难进一步前行。
+在俄罗斯军队中有已经丧失战斗意志、想逃避战斗的士兵。乌克兰安全局在Facebook上公开了一段俄军士兵士气十分低落的对话内容。
 
-拜登和美国盟友将讨论对乌克兰的援助、对俄罗斯的新制裁、加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
+*母亲：我想去你的部队办公室看看。因为我一个人生活，需要你的帮助。所以想告诉部队，请把你送回祖国。*
 
-据一位高级政府官员说，白宫已经成立了一个国家安全官员小组，以计划应对普京使用化学武器的情况。熟悉拜登政府想法的一位消息人士说，美国预计还将宣布欢迎多达10万名逃离战争的难民的计划。
+*俄罗斯士兵：不能回国，拒绝服兵役的军人将被判处有期徒刑8年，要进监狱。*
 
-美国国防部一位高级官员周三表示，在战场上，乌克兰军队已经成功地将俄罗斯军队逼退到基辅东部，挫败了俄罗斯向首都的推进。
+*母亲：真的吗？*
 
-原文链接：
-[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
+*俄罗斯士兵：悄悄地告诉你，就像部队同事们做的那样，他们互相用乌克兰7.62毫米的子弹射对方的腿，然后被送往俄罗斯的一家医院，然后回到祖国。他们互相开枪打对方，并缠上绷带，然后被送往国家医院。在那之前，愿上帝保佑我吧。*
 
-编辑，发稿 Spirit
+*母亲：啊上帝啊，求求你，上帝啊，我亲爱的儿子。*
 
+乌克兰安全局截获了该声音。有“用乌克兰的子弹互相射腿”、“与想象不同”等这样的说法，
 
+另外也公开了监听到的有士兵不愿离开战场的声音，比如，“可以进入自己喜欢的公寓，抢夺自己想要的东西”。有乌克兰人说看到了抢劫行为，具体掠夺价值约为16万日元，包括有手表、现金、游戏机等。
+
+在最前线作战的俄罗斯士兵的战斗意志在不断地被削弱，士兵们的士气的道德都有明显的下降。
+
+信息来源：
+[**士気低下か?ロシア兵の通信傍受“足を撃って国へ戻りたい”  独居母“帰ってきて”**](https://news.yahoo.co.jp/articles/4f01a9f15f58524af86fa71c1bc739e9a0fdba4d)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

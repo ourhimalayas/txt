@@ -2,40 +2,28 @@
 ---
 
 
-## 樱花数据分析┃英格兰：接种次数越多越易感染，三针接种者感染风险最高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222879/)
+## 郭先生解析俄罗斯侵略乌克兰的结局
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2222938/)
 
-撰稿：东京樱花团/TV
-制图：东京樱花团/chuansang
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高1.png)
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生也在3月23日的大直播中解析了俄罗斯侵略乌克兰的三种结局。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-85.jpg)
+郭先生认为，习近平有很大的可能性将代表中国共产党成为俄罗斯入侵乌克兰战争和谈时的调解国，以及监督俄罗斯履行协议的担保国。到那时，中共必将与俄罗斯一起两国人民，继续威胁全世界。更甚者，中共或许会帮助俄罗斯加剧现有的战争侵略行为。另外，波罗的海三国也可能会和俄罗斯以及白俄罗斯开战，甚至可能将战争升级到小型动用核武器的地步。
 
-英格兰政府发布了第十一周疫苗监督数据[1]。通过三针接种者、未接种者的每百万人感染人数计算出三针接种者的感染风险显示，三针接种者的感染风险每周都在增加（图1）。其中18-79岁人口的感染风险为未接种者的3倍以上，60-69岁人口更是达到了4倍。
+但郭先生指出，由于西方世界目前已经认定中共是俄罗斯背后的金主，且全球很少有人可以或愿意将中国人与中共区分开来，因此，上述各种情况均会对中国百姓造成根据大的影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高2.png)
+为此，郭先生提醒各位战友，一定要保护好自己和家人，并拥有一个良好的心态。在此基础上，战友们可以在自己的能力范围内继续传播真相，以及“中共不等于中国人”的这一事实。
 
-按之前文章[2]的计算方法，我们进一步计算出了相对于未接种者，一针接种人群的感染风险(图2)。综合一针、两针、三针的结果，可见除了18岁以下及80以上人群，均呈现接种次数越多，更易感染的结果。这与丹麦数据[3]一致。
+参考链接：[**2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难**](https://www.gettr.com/streaming/p11h7xt9462)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-这个数据再次证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
-
-（注：本文为《樱花数据分析》第二十一期）
-
-数据来源：
-[1][COVID-19 vaccine surveillance report Week 11](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1061532/Vaccine_surveillance_report_-_week_11.pdf)
-[2][樱花数据分析┃英格兰：三针接种者感染风险持续上升，成为最易感染人群！](https://gnews.org/zh-hans/2191606/)
-**[3]**[樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2205218/)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+总编: Irene木木
+编辑: 玫瑰圓
+审核：Irene木木
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
