@@ -2,23 +2,54 @@
 ---
 
 
-## 救援信息：坦克人 CCP ≠GHINESE
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2221621/)
+## 化肥价格逼近历史高位，引发人们对全球粮食危机的担忧
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2221790/)
 
-Communism is the cancer of this civilized world. From 1989 when the Chinese people rebelled against the dictatorship of the Chinese Communist Party to 2022 when the Ukrainian people rebelled against the invasion of the communist Putin. Human ignorance, selfishness, stupidity, and greed have led to the survival of communism to this day.
-If we do not destroy communism and the biggest incarnation of communism, the Communist Party of China, the disaster of the Chinese people for 70 years and the disaster that the Ukrainian people are suffering now will spread throughout the world.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032204-1.jpg)网络图片：*Francis Scialabba*
+来自Morning Brew网站2022年3月23日的报道，联合国秘书长安东尼奥·古特雷斯(António Guterres)周二警告说，乌克兰的战争可能会“演变成一场全球饥饿危机”，而其中一个主要原因可能使人震惊：肥料价格的飙升。
 
-共产主义是这个文明世界的毒瘤。从1989年中国人民反抗中国共产党的独裁统治到2022年乌克兰人民反抗共产主义普京的入侵。人类的无知、自私、愚昧、贪婪导致共产主义存活至今。
+工业规模的作物比你窗台的多肉植物需要更多的爱。全球各地的农民使用化肥来给作物提供必要的营养并提高产量。
 
-如果我们不消灭共产主义，不消灭共产主义的最大化身中国共产党，中国人民70年的灾难以及乌克兰人民现在遭受的灾难将会蔓延整个世界。
+你可能知道接下来会发生什么。俄罗斯是世界上最大的氮肥出口国，但由于其入侵乌克兰后受到西方制裁，运输中断，供应枯竭，价格随之飙升。
 
-字幕+视频制作 ：洛杉矶盘古农场-庚子
-审片 ：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+根据绿色市场北美化肥价格指数，化肥价格上周跳涨10%，比上个月跳涨40%。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+在我们的这个全球化的世界里，一个地区的不稳定可能导致另一个地区的破坏性后果。考虑一下俄罗斯化肥供应的减少会如何影响中共国的粮食生产，据《纽约时报》报道：
+
+俄罗斯将其大部分化肥出售给巴西，巴西是一个农业巨头，也是世界上最大的化肥进口国。
+巴西农民使用俄罗斯的化肥来种植大豆等作物。(事实上，巴西是头号大豆生产国）。
+巴西将其大部分大豆卖给中国，中国用这些大豆来喂养牲畜。
+
+**简而言之**：*俄罗斯化肥供应减少→巴西大豆产量减少→中国牲畜产量减少→中共国肉价上涨*
+
+大豆只是包括玉米、小麦和大米在内的许多关键作物中的一种，它们可能因化肥价格飙升而受到干扰。中美洲的咖啡生产商告诉彭博社，由于化肥成本的变化，他们正面临着一个“严重的紧急情况”：哥斯达黎加的一家公司每年使用1400吨化肥来生产大约4万袋咖啡。
+
+**总体情况**：由于与中共病毒有关的供应链中断、恶劣的天气和能源价格飙升，全球食品价格已经接近历史高点。乌克兰的战争只会使这些问题更加复杂。“我们将面临一场粮食危机。现在的问题只是规模将有多大。”一位欧洲化肥公司的首席执行官告诉《华尔街日报》。
+
+**简评:**
+
+俄罗斯入侵乌克兰不仅给世界带来政治经济上的严重危机，更将严重影响全球粮食的供应。乌克兰被誉为欧洲的粮仓，显然在战火的影响下，今年的粮食产量将无法达到往年的水准，粮食的危机将会给西方国家带来严重的不确定性。然而，早在俄罗斯发动战争之前，中共国早已行动，在市场上大肆采购囤积粮食，显然这是早有预谋的与普京的行动有所配合。中共是造成世界混乱的始作俑者，如果西方国家再不行动，联合起来惩罚消灭中共这个邪恶的政权，西方将会面临更多的灾难。
+
+即使中共国宣称已经做好足够的准备应对此次粮食危机，但中共自建政以来，从未对中共国的老百姓有半点怜悯之心，它们对生命的漠视超出想象，毫无疑问，如果粮食危机到来，这些粮食绝对会优先供给中共的特权阶级，其次就是为特权阶级服务来统治镇压人民的军警。至于平民的生命，历来对中共统治者来说仅仅是一个数字符号而已。所以中国同胞要尽早做好准备应对此次粮食危机，不要抱有任何侥幸心理，如果选择继续相信中共政府的宣传，最终将会受到这个邪恶政权的伤害。
+
+新闻链接: [Fertilizer prices hid record highs, sparking fears of a global food crisis](https://www.morningbrew.com/daily/stories/2022/03/23/fertilizer-prices-hid-record-highs-sparking-fears-of-a-global-food-crisis)
+
+*翻译/简评:親愛的瑪嘉烈*
+
+*校对: Harvey（叶知秋）*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

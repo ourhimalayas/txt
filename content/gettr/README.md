@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 3/24/2022 11:11 AM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.24 EST
+![img](https://media.gettr.com/group26/origin/2022/03/24/11/80baaa6e-8062-2c59-ce50-93ad70631aae/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/24/2022 11:24 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月23日第19天当日救援统计：<br/>Medyka救援站接待：约65人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7362人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 19 - Date: March 23, 2022 :<br/>Medyka Rescue Station Reception: about 65 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7362 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -148,13 +157,6 @@
 
 3月23号：共产党的网军密集的出现，像今天这个情况，就像当年报海航和王岐山．傅政华．孟建柱．孙力军料时网军用的方式密集度一样！这说明这件事更可能是真实的了，可能比我们知道的还坏，他们的恐惧就是我们的武器，他们的恐惧就是真相！【两位战友发的文贵先生对关于东航坠机真相的爆料推，是真的点了中共的穴了！放出大把五毛疯狗出来乱喷！这也是毒针发作的症状吧？真TMD low!🤮🤮🤮】
 ![img](https://media.gettr.com/group22/getter/2022/03/23/23/7d684259-ccfc-900f-e3ba-701ef7b253e5/65f541ee176e4cec6b44baa4a3ec0fbb.jpg)
-
----
-
-`@miles 3/23/2022 11:32 PM (UTC)`
-
-2022.03.23《The Fringe》 Episode 153
-![img](https://media.gettr.com/group28/origin/2022/03/23/23/34c0cd2b-d861-56cb-a06f-9bed9d4e13aa/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

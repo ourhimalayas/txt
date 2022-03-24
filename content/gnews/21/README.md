@@ -2,21 +2,20 @@
 ---
 
 
-## 樱花时政┃泽连斯基法国演说借喻一战 盼法带领欧洲捍卫自由
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221564/)
+## 中日财经爆┃中美贸易部分商品的关税豁免
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221633/)
 
-撰稿：东京樱花团/上善若水
+撰稿：东京樱花团/Garrettw
 
-俄乌战争持续了一个月，乌克兰总统泽连斯基23日在法国国会进行视讯演说。他借用一战“凡尔登战役”来形容乌国的惨况，并呼吁法国捍卫欧洲的“自由、平等、博爱”。
+当地时间23日，美国贸易代表办公室发布声明，宣布重新豁免对352项从中国进口商品的关税，该新规定将适用于在2021年10月12日至2022年12月31日之间进口自中国的商品。去年10月，美国贸易代表办公室宣布，拟重新豁免549项中国进口商品的关税，并就此征询公众意见。时隔近半年之后，美国贸易代表办公室23日发布声明，确认对此前拟重新豁免关税的549项中国进口商品中的352项进行确认。该办公室表示，当天美方的决定，是在全面征求公众意见、并与美国相关机构协商后的结果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-145.png)图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-63.png)[图片来源](https://weibo.com/cctvxinwen)
 
-泽连斯基23日受邀向法国国会13分钟的视讯演说。泽连斯基在演说开头便叩问法国议会：“该如何停止战争并建立和平”。他指出，俄军残杀平民，包括孩童与孕妇，更有未出生婴孩。他谴责俄军在乌所犯下的战争罪，“俄军不分军人、平民、记者将一切燃烧殆尽”，随后他引用法国格言“自由、平等、博爱”，表示这是让欧洲团结的力量。我们希望在法国带领下，作出乌加入欧盟的历史决定。明天俄军进犯满一个月……
+美国贸易办公室释放的“豁免部分中国进口商品关税”的信号，是走的哪一步棋？请继续关注的Gnews的相关新闻。
 
-“我们需要支持拥有更充足的军备。为了不失去自由，我们需要制裁侵略者。”他巧妙借用1916年一战时期“凡尔登战役的断垣残壁”，来形容乌现在的惨状。凡尔登战役发生在法国境内，是第一次世界大战时间最长、破坏性最大的战役，持续近10个月，德法双方共30多万人丧命，最后法国获胜。
-
-信息来源：
-[泽连斯基法国演说借喻一战 盼带领欧洲捍卫自由](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220323-%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA%E6%B3%95%E5%9B%BD%E6%BC%94%E8%AF%B4%E5%80%9F%E5%96%BB%E4%B8%80%E6%88%98-%E7%9B%BC%E5%B8%A6%E9%A2%86%E6%AC%A7%E6%B4%B2%E6%8D%8D%E5%8D%AB%E8%87%AA%E7%94%B1)
+消息来源：
+1、[中美贸易商品关税](https://weibo.com/cctvxinwen)
+2、[USTR Issues Determination of Reinstatement of Certain Exclusions from China Section 301 Tariffs](https://ustr.gov/about-us/policy-offices/press-office/press-releases/2022/march/ustr-issues-determination-reinstatement-certain-exclusions-china-section-301-tariffs)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
