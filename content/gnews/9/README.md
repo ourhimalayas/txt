@@ -2,27 +2,26 @@
 ---
 
 
-## 有声｜法国电台一名翻译人员惨遭俄军酷刑
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2223000/)
+## 联合国称俄罗斯难以取胜 应谈判停火
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2223012/)
 
-**By:秘翻新闻**
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月22日，联合国秘书长古特雷斯在一份声明中指出，俄罗斯的这次侵略战争无法获得胜利，俄方应尽快停火并与乌克兰进行谈判。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-54.jpg)
+声明中，古特雷斯认为，俄军虽然可以炸毁乌克兰的一座城市，但乌克兰人的精神不能被征服，因此，莫斯科当局注定不可能在这场战争中取胜。而俄罗斯作为“侵略者”对乌克兰平民恐怖的系统性攻击已经让乌克兰沦为人间地狱。目前，一万多万乌克兰人被迫逃离了他们的家园和祖国。为此，俄罗斯持续这样的侵略战争是荒唐且不可被接受的。与此同时，墨西哥和法国正在努力起草一项决议，要求联合国保护乌克兰平民、民用基础设施和人道主义工作者。
 
-**2022-03-24**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/324_5.jpg)2022 年 3 月 23 日，在乌克兰基辅的舍甫琴基夫斯基区，记者们在遭到军事打击的建筑物附近工作 (图片来源 福克斯新闻)
-据[《](https://www.foxnews.com/media/reporters-without-borders-frightening-account-radio-france-intrepreter-tortured-russian-troops%20Fox%20News)[福克斯新闻](https://www.foxnews.com/media/reporters-without-borders-frightening-account-radio-france-intrepreter-tortured-russian-troops)[》](https://www.foxnews.com/media/reporters-without-borders-frightening-account-radio-france-intrepreter-tortured-russian-troops%20Fox%20News)3月23日报道，国际非营利组织-无国界记者团（RSF）称，法国广播电台的一名翻译在乌克兰被俄军拘留的9天期间遭受了酷刑。这位名为尼基塔（Nikita）的32岁记者，3月5日在乌克兰中部被俄罗斯士兵俘虏。
+而乌克兰总统泽连斯基则在次日的演说中表示，俄罗斯已经占领了乌克兰包括切尔诺贝利在内的大型核电厂，且俄军或将在接下来的行动中使用生化武器及核武器。对此，乌克兰希望国际社会可以继续对俄罗斯施压，并停止与俄罗斯的贸易，从而使得这场战争可以尽快结束。
 
-无国界记者团核实了尼基塔的证词后表示，尼基塔的叙述令人恐惧，俄军用机器扫射他的汽车，用刀和电击折磨他，并用枪托和钢筋反复殴打他的脸和身体，进行模拟处决，48小时不给食物。
+参考链接：
+1. [UN秘書長：俄羅斯這場仗贏不了！籲雙方快上談判桌認真討論停火](https://www.rti.org.tw/news/view/id/2128025)
+2. [日國會演說 澤倫斯基：盼日本持續對俄制裁施壓](https://news.ltn.com.tw/news/world/breakingnews/3869581)
 
-另外，据保护记者委员会称，另外两名记者奥列赫-巴图林和维克托利亚-罗西纳此前曾失踪，但后来被俄军释放。据《卫报》报道，摄影记者马克·列文（Maks Levin）曾在基辅附近进行报道，3月13日起失踪。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-无国界记者组织宣布，以记者为目标是一种战争罪，最近的事件导致需要提高对绑架记者行为的认识。
-
-（秘翻新闻Grace编辑报道）
-
-发布:文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
+总编/编辑/审核: Irene木木
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

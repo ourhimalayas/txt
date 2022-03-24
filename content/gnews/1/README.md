@@ -2,28 +2,37 @@
 ---
 
 
-## 普京的高级顾问因反战而辞职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2223090/)
+## 有声|向世界揭露PAG金融诈骗集团的真面目
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2223202/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-39.jpg)
-图片来源：合众国际社
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在3月22日的盖特中透露，中共从马云手上抢走阿里巴巴后，现在又委托共产党特务头子单伟健作为阿里巴巴的审计员。郭先生指出，PAG 太平联盟就是中国共产党的金融诈骗机构，单伟健的整个家族是共产党豢养的专业特务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-10.jpg)
+郭先生表示，爆料革命一定要让美国人知道到底是谁在偷美国人的养老保险；一定要让美国人知道太平联盟就是中共的海航、吴征、房地产、腾讯、北方工业等包括HBO的投资者；一定要让美国认清单伟健的PAG这个金融诈骗集团是共产党伸向西方社会养老金的最重要的打手。
 
-《合众国际社》3 月 23 日报道了普京的高级顾问、俄罗斯气候特使阿纳托利·丘拜斯（Anatoly Chubais ）辞职的消息，这是自入侵乌克兰以来第一位辞职的普京的高级顾问，克里姆林宫周三证实了这一消息，但没有说明具体原因。
+郭先生向所有投资过PAG和购买过其金融产品的人表示，未来一定会让单伟健和PAG终生待在监狱里，一定会让PAG作出N倍的赔偿。
 
-丘拜斯并没有公开表明他辞职的原因。 彭博新闻首先报道了他的离职，该新闻援引未具名消息来源将此举归因于反对俄罗斯入侵乌克兰。
 
-这使得丘拜斯成为在乌克兰战争中与普京决裂的最高级俄罗斯官员。 俄罗斯镇压和逮捕反对抗议者，并将公开反对军方或散布有关入侵的“假消息”定为犯罪，俄罗斯称其为“特殊军事行动”。
 
-邱拜斯被称为俄罗斯 1990 年经济私有化的建筑师。 他曾在普京手下担任多个高级商业和政治职位。
+文字版原文：[向世界揭露PAG金融诈骗集团的真面目](https://gnews.org/zh-hans/2220724/)
 
-自 2020 年以来，丘拜斯一直担任俄罗斯在国际组织中的气候特使职位。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-邱拜斯的妻子上个月签署了一封公开信，反对俄罗斯入侵乌克兰。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-据英国广播公司新闻报道，反对派活动家阿列克谢·纳瓦尔尼（Alexei Navalny）的女发言人基拉·亚米什（Kira Yarmysh）表示，反对派领导人怀疑丘拜斯的辞职是一次反战抗议。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-原文链接：https://www.upi.com/Top\_News/World-News/2022/03/23/Anatoly-Chubais-resigns-senior-Putin-envoy/4321648057805/
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

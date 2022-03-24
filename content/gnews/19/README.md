@@ -2,26 +2,28 @@
 ---
 
 
-## 乌克兰救援行动将成为拯救无数华人的传奇
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2222813/)
+## 拜登出席北约紧急峰会应对俄乌局势
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2222814/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月20日，郭文贵先生在大直播中表示，波兰前线救援战友所展现出的新中国联邦人的良好形象正在时刻影响着世界。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-159.jpg)
-郭先生指出，新中国联邦人肩负使命救助乌克兰难民的举动已经充分向全世界说明，我们跟中共的假恶丑截然相反。这当中，救援团队将新中国联邦人对天地、对人、对动物的敬畏和爱护之心展现给了世人。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/03/nato-biden-ukraine-russia.jpg)图片来源：CBS News
+根据《NBC News》3月24 日报道，在俄乌战争一个月之际，美国总统拜登周四与西方盟友聚集在欧洲，支持基辅，用新的制裁措施惩罚莫斯科。
 
-郭先生还补充道，乌克兰前线救援行动将成为拯救无数中国人的史诗般的传奇，这也将尽可能地防止海外排华事件和其他灾难性的人道事故发生。为此，即使面临着种种阻力，郭先生也决定不计代价地将救援行动继续进行下去。
+乌克兰总统泽伦斯基在布鲁塞尔的北约峰会上通过视频链接发表讲话，敦促增加对他的国家的军事援助。乌克兰领导人从首都通过视频信息召集各国支持基辅的正义反抗，这已成为乌克兰不畏艰险地反抗的象征和使俄罗斯很难进一步前行。
 
-郭先生也示警海内外同胞称，如果14亿中国老百姓以及全球的海外侨胞还不能尽快觉醒，那他们将会面临比“锁链女”更悲惨的命运。
+拜登和美国盟友将讨论对乌克兰的援助、对俄罗斯的新制裁、加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
 
-参考链接：[3/20/2022 文贵直播：救援前线的战友展现出新中国联邦人的形象时刻影响着世界，体现出了我们的勇气和对人、动物与天地的尊重；文贵作出将救援进行下去的决定非常不易，我们的救援会成为拯救无数华人的史诗般的奇迹！](https://www.gettr.com/post/p11eh1s9129)
+据一位高级政府官员说，白宫已经成立了一个国家安全官员小组，以计划应对普京使用化学武器的情况。熟悉拜登政府想法的一位消息人士说，美国预计还将宣布欢迎多达10万名逃离战争的难民的计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+美国国防部一位高级官员周三表示，在战场上，乌克兰军队已经成功地将俄罗斯军队逼退到基辅东部，挫败了俄罗斯向首都的推进。
 
-总编/编辑/审核：Irene木木
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：
+[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
+
+编辑，发稿 Spirit
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

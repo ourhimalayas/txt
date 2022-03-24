@@ -2,47 +2,33 @@
 ---
 
 
-## 中共国将在澳大利亚后院拥有一个海军基地
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2222421/)
+## 日本80岁以上中共病毒感染者，死亡率由60%上升至76%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222417/)
 
-#### 【雅典娜观察】和您一起洞察世界
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-4.png)
+根据日本神奈川县的统计数据，可以看到今年1月以后因中共病毒（新冠病毒Covid-19）导致的死亡者，八十岁以上的比例在增加。由去年末为止的59.8%，上升到今年(截止到3月17日) 的76%。推测是“奥米克戎感染的特点是年轻人可能轻症较多”，详细原因需要分析。(志村彰太)
 
-翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2792.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fassets.gnews.org%2Fwp-content%2Fuploads%2F2022%2F03%2Fleff2-lqw5w.jpg&amp;imgrefurl=https%3A%2F%2Fgnews.org%2Fzh-hans%2F2113559%2F&amp;tbnid=aZT5W46teiplSM&amp;vet=12ahUKEwjX_5Ci2t72AhUli_0HHU-mCtwQMyghegUIARDIAQ..i&amp;docid=PI_5C6jZynWmKM&amp;w=640&amp;h=360&amp;q=%E6%AF%92%E7%96%AB%E8%8B%97%20gnews&amp;ved=2ahUKEwjX_5Ci2t72AhUli_0HHU-mCtwQMyghegUIARDIAQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/NM2RN7RF11OD97N6GR5.png)图片来源：Asia Times（2019年所罗门群岛否决中国公司租赁岛屿）
+从2020年中共病毒流入以来，按年龄累计死亡人数，刊登在神奈川县的报刊主页。本报除了这个之外，还获得了今年1月1日~3月17日的数据。累计1930中，今年有611人。
 
+去年年底和今年，除了感染人数相对较少的九十多岁以外，随着年龄的上升死亡人数增加的趋势不变。但是，从构成比例来看，进入今年后，超过八十岁的人增加了。去年末为止的统计数据是年龄四十代1.8%，五十代5.9%，六十代8.4%，七十代22.4%，八十代37.3%，九十代以上22.5%。另一方面，今年是四十代1%、五十代2%、六十代4.4%、七十代15.7%、八十代42.6%、九十代以上33.4%。
 
-3月24日，中国和所罗门群岛将签署一项安全协议，该协议将使中国军舰驻扎在太平洋地区并改变澳大利亚周边地区的力量平衡。
+县医疗危机对策本部室指出，除了年轻越难重症化之外，“有可能是越早给老年人注射第二次疫苗，疫苗的效果就越早减弱”。县基于奥密克戎株传染性強的特点，优先防止老年人设施发生集群(感染者群体)和优先接种第三次疫苗，“继续采取对策，减少死亡的人”。
 
-该协议将使中国有权使用其军队来保护所罗门群岛的中国人员和重大项目的安全，并使北京在距离澳大利亚海岸不到2000公里的地方拥有一个海军基地。该基地将是澳大利亚自二战以来第一次有一个战略对手出现在其海岸线的打击距离内。
+译者注：按照常理，接种疫苗后死亡率应该明显降低，但是神奈川县的统计数据却相反，不但不降反而上升，这个要引起强烈反省，疫苗到底有没有用？
 
-框架协议草案中：**“中国可根据自身需要并经所罗门群岛同意，在所罗门群岛进行船舶访问、后勤补给，并在所罗门群岛进行停靠和过渡。”**
+消息来源：[＜新型コロナ＞本紙調査　1月〜今月17日　神奈川県　死者割合、80代以上が76％に増　昨年末までは59・8％](https://www.tokyo-np.co.jp/article/166834)
 
-**“所罗门群岛可根据自身需要，要求中国向所罗门群岛派遣警察、武警、军人及其他执法和武装力量，协助维护社会秩序，保护人民生命财产安全。”**
-
-新西兰国际安全和外交专家安娜·鲍尔斯说，该协议草案具有意义匪浅。
-
-鲍尔斯说：“该安全协议是太平洋地区首个此类协议之一；其范围广泛且适当模糊，其规定从维护公共秩序到保护中国公民和资产，以及提供人道主义和灾难救济。”
-
-鲍尔斯说，该协议表明PLA在所罗门群岛将有后勤和物资，以支持中共国海军。
-
-索罗门群岛反对派议员彼得·凯尼洛雷亚告诉澳大利亚媒体，他对这一发展深表关切。他说：“这对太平洋岛屿地区，包括澳大利亚，都有影响。”
-
-中国一直在争取太平洋岛国在该地区建立军事存在，但索罗门群岛的交易将是中国海军首次在南中国海以外的地区有作战存在。
-
-2018年，中国就在南太平洋建立永久性军事存在一事与瓦努阿图接触，引发了堪培拉和华盛顿最高层的紧急讨论。3月24日下午的文件草案，首先由索罗门群岛的一名反对派顾问发布，让堪培拉的官员争相核实其真实性。经媒体当日晚间证实，澳大利亚政府认为该文件是真实的，这加深了对中国在太平洋地区意图的担忧。
-
-随着北京加强与华盛顿的竞争，威胁台湾的领空并拒绝谴责俄罗斯对乌克兰的入侵，该基地将增加美国和中国之间的对抗风险。
-
-参考链接：[China set to sign first security deal in the Pacific on Australia’s doorstep (smh.com.au)](https://www.smh.com.au/world/asia/china-set-to-sign-first-security-deal-in-the-pacific-on-australia-s-doorstep-20220324-p5a7qe.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-5.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

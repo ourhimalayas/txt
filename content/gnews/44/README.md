@@ -2,61 +2,31 @@
 ---
 
 
-## 继新浪微博被套上绞索后还会有哪些媒体&amp;国企&amp;通讯企业
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2220814/)
+## 疫情｜韩国累计确诊数破千万大关 重症及死亡率持续居高不下
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2220538/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/脏活儿_副本.jpg)
-据[中国新浪微博被美国证监会列入退市风险名单](http://www.18sz.com/news/show.php?itemid=12996)（2022-03-24 来源：路透社 环宇视展国际会展网）
+**图/文：CP**
+**发布时间｜24/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國累計確診數破千萬大關-重症及死亡率持續高企.jpg)
 
-【核心提示：中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。 根据SEC网站的最新披露，微博可在4月13日前提交证据，以证明被认定错误。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，但微博可在4月13日前提交证据，以证明被认定错误。（图）
 
-中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。
+韩国 Omicron 确诊病例数持续于高峰位徘徊，防疫部门周三(23日）公布，过去 24 小时，新增病例 49 万 881 例，累计确诊人数突破 1,000 万，即 1,042 万 7,247例，约为韩国人口的20%。若不计重复感染，相当于每5名韩国人中有一人染疫。
 
-据路透社报道，根据SEC网站的最新披露，微博可在4月13日前提交证据，以证明被认定错误。
+韩国政府原本估计新冠肺炎的单日确诊率会在本月12至22日间见顶，23 日达至最高峰 50 万，之后稳定回落。而且按照其他国家经验，当累计确诊数达到整体人口两成时，疫情扩散可望开始减慢，但据目前形势来看，韩国防疫部门对此持悲观态度。
 
-SEC并称，被临时认定的发行人若认为被认定错误，将有15个工作日与委员会工作人员联系，并应在信函中附上证据支持。发行人在最终确定之前不受外国公司问责法要求约束。
+要知道，直至今年2月6日，韩国总体病例总数才刚刚突破 100 万例，这期间经历了近 746 天（自2020 年 1 月 20 日确诊首例国内病例起计），但仅仅一个半月后，累计病例就突破了 1000 万大关。换句话说，在七成韩国民众都完成疫苗加强剂注射的情况下，今年1月1日起至今累计病例 930.5919 万例，占总体病例的93.65%。
 
-此前SEC网站披露的暂定名单将百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药依据《外国公司问责法》认定为有退市风险的“相关发行人”。
+最为重要的是，不仅确诊率未见趋缓，死亡及重症人数亦维持在高峰位，22日报告384人新冠死亡个案，连续第6天单日死亡人数超过 300 例。另外，重症亦连续第 16 天维持超过 1,000 例（1,084例），全国重症病床使用率已经接近70%。
 
-微博美股周三（23日）隔夜宽幅震荡，一度大跌10.1%，最终小幅收低0.6%，同期纳斯达克金龙中国指数收高1.3%，延续近期反弹。
+目前，韩国已经成为全球单日确诊人数最多的国家。因此，当地专家认为，随着21日起放宽限聚至8人，且传播力更强的Omicron亚型BA.2病例剧增，预计疫情趋缓还需要一段时间。
 
-消息人士称，中国监管机构已要求包括阿里巴巴、百度和京东在内的部分在美上市公司做好披露更多审计信息的准备。目前中国政府正努力确保国内公司继续在纽约上市。
+**来源｜**[**Hani.kr**](https://www.hani.co.kr/arti/english_edition/e_national/1035977.html)
 
-路透社分析指，中国监管机构的最新举措表明，北京愿意做出一些让步，以解决中美之间长期以来就审计问题上的僵局。审计僵局已使美国对中国企业的数千亿美元投资面临风险。】
+* * *
 
-郭文贵先生在[2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://www.gettr.com/streaming/p10y5j870c5) 提到的是——
-
-【马上，也可能今天，也可能下一周，中国的共产党的这些媒体还有企业，都会受到美国的制裁，这叫美国制定的内部政策，叫对中共先给他“放几个蚊子咬咬他”，让他知道疼的感受。马上把它几个媒体平台彻底制裁。】
-
-【你们最近发现了整个世界对海外任何和共产党有交易有联系的在西方世界，这不叫排华战争，这是一个干干净净地清理华人当中和共产党有关系的人，已经开始了。然后接下来大家会看到对共产党的媒体、国企、通讯企业，会超出你想象的制裁。】
-
-对照[中国新浪微博被美国证监会列入退市风险名单](http://www.18sz.com/news/show.php?itemid=12996)和郭先生的直播，我们可以确定知道的就是在接下来中共在西方沉默的力量将接二连三被清除，这也是美国早就开始的Clean the Room行动的最新成果，在这一次美国和西方的“打扫房屋”行动中，第一个上砧板的新浪微博，接下来还有哪些作为中共帮凶的国企、通讯企业被套上绞索？让我们拭目以待。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 

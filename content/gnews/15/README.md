@@ -2,36 +2,33 @@
 ---
 
 
-## 乌克兰安全局监听发现：俄罗斯士兵士气低下
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222843/)
+## 樱花数据分析┃英格兰：接种次数越多越易感染，三针接种者感染风险最高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222879/)
 
-撰稿：东京樱花团｜haruka春香
+撰稿：东京樱花团/TV
+制图：东京樱花团/chuansang
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰安全局监听发现：俄罗斯士兵士气低下.png)[*图片来源*](https://images-ext-2.discordapp.net/external/8mFHNvLL6LZ9hzoSiHpfTFrA3OrchsFj8iGxBIK0620/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220324-00436625-fnnprimev-000-9-view.jpg?width=1090&amp;height=613)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高1.png)
 
-在俄罗斯军队中有已经丧失战斗意志、想逃避战斗的士兵。乌克兰安全局在Facebook上公开了一段俄军士兵士气十分低落的对话内容。
+英格兰政府发布了第十一周疫苗监督数据[1]。通过三针接种者、未接种者的每百万人感染人数计算出三针接种者的感染风险显示，三针接种者的感染风险每周都在增加（图1）。其中18-79岁人口的感染风险为未接种者的3倍以上，60-69岁人口更是达到了4倍。
 
-*母亲：我想去你的部队办公室看看。因为我一个人生活，需要你的帮助。所以想告诉部队，请把你送回祖国。*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高2.png)
 
-*俄罗斯士兵：不能回国，拒绝服兵役的军人将被判处有期徒刑8年，要进监狱。*
+按之前文章[2]的计算方法，我们进一步计算出了相对于未接种者，一针接种人群的感染风险(图2)。综合一针、两针、三针的结果，可见除了18岁以下及80以上人群，均呈现接种次数越多，更易感染的结果。这与丹麦数据[3]一致。
 
-*母亲：真的吗？*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高3.png)
 
-*俄罗斯士兵：悄悄地告诉你，就像部队同事们做的那样，他们互相用乌克兰7.62毫米的子弹射对方的腿，然后被送往俄罗斯的一家医院，然后回到祖国。他们互相开枪打对方，并缠上绷带，然后被送往国家医院。在那之前，愿上帝保佑我吧。*
+这个数据再次证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
 
-*母亲：啊上帝啊，求求你，上帝啊，我亲爱的儿子。*
+（注：本文为《樱花数据分析》第二十一期）
 
-乌克兰安全局截获了该声音。有“用乌克兰的子弹互相射腿”、“与想象不同”等这样的说法，
+数据来源：
+[1][COVID-19 vaccine surveillance report Week 11](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1061532/Vaccine_surveillance_report_-_week_11.pdf)
+[2][樱花数据分析┃英格兰：三针接种者感染风险持续上升，成为最易感染人群！](https://gnews.org/zh-hans/2191606/)
+**[3]**[樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2205218/)
 
-另外也公开了监听到的有士兵不愿离开战场的声音，比如，“可以进入自己喜欢的公寓，抢夺自己想要的东西”。有乌克兰人说看到了抢劫行为，具体掠夺价值约为16万日元，包括有手表、现金、游戏机等。
-
-在最前线作战的俄罗斯士兵的战斗意志在不断地被削弱，士兵们的士气的道德都有明显的下降。
-
-信息来源：
-[**士気低下か?ロシア兵の通信傍受“足を撃って国へ戻りたい”  独居母“帰ってきて”**](https://news.yahoo.co.jp/articles/4f01a9f15f58524af86fa71c1bc739e9a0fdba4d)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)

@@ -2,34 +2,43 @@
 ---
 
 
-## Gettr宣布与独立记者Andy Ngo合作
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2222839/)
+## 乌克兰安全局监听发现：俄罗斯士兵士气低下
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222843/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/MYQ5TIEQN5ETVLKDFOQS32Z6UM-scaled.jpg)
-3月24日，gettr宣布与独立记者Andy Ngo建立新的合作伙伴关系。Andy Ngo表示他将在gettr上制作一个名为“每周通知”的独家新闻节目，提供他独到的政治评论和分析。
+撰稿：东京樱花团｜haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰安全局监听发现：俄罗斯士兵士气低下.png)[*图片来源*](https://images-ext-2.discordapp.net/external/8mFHNvLL6LZ9hzoSiHpfTFrA3OrchsFj8iGxBIK0620/%3Fexp%3D10800/https/newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220324-00436625-fnnprimev-000-9-view.jpg?width=1090&amp;height=613)
 
-据悉Andy Ngo是全球领先的独立记者之一，他在《纽约时报》开设了专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。他是一个无所畏惧的人，以报道和录像示威而闻名。因他坚持言论自由的报道，受到了暴力和死亡威胁，以及无数所谓的法律法规审查。他表示很期待与新的受众在gettr上互动。
+在俄罗斯军队中有已经丧失战斗意志、想逃避战斗的士兵。乌克兰安全局在Facebook上公开了一段俄军士兵士气十分低落的对话内容。
 
-Gettr CEO Jason Miller表示很自豪能够Andy Ngo这样勇敢的记者合作，很开心为他提供gettr这样的平台，使得他能够与他的数百万用户分享讯息。目前新闻和言论自由都受到大科技媒体的审查，只有gettr是一个政治辩论和重要讯息都可以自由流动的地方。
+*母亲：我想去你的部队办公室看看。因为我一个人生活，需要你的帮助。所以想告诉部队，请把你送回祖国。*
 
-撰稿、发布：骄子
+*俄罗斯士兵：不能回国，拒绝服兵役的军人将被判处有期徒刑8年，要进监狱。*
 
-* * *
+*母亲：真的吗？*
 
-欢迎订阅我们的GNews账号：
+*俄罗斯士兵：悄悄地告诉你，就像部队同事们做的那样，他们互相用乌克兰7.62毫米的子弹射对方的腿，然后被送往俄罗斯的一家医院，然后回到祖国。他们互相开枪打对方，并缠上绷带，然后被送往国家医院。在那之前，愿上帝保佑我吧。*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+*母亲：啊上帝啊，求求你，上帝啊，我亲爱的儿子。*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
+乌克兰安全局截获了该声音。有“用乌克兰的子弹互相射腿”、“与想象不同”等这样的说法，
 
- 
+另外也公开了监听到的有士兵不愿离开战场的声音，比如，“可以进入自己喜欢的公寓，抢夺自己想要的东西”。有乌克兰人说看到了抢劫行为，具体掠夺价值约为16万日元，包括有手表、现金、游戏机等。
 
- 
+在最前线作战的俄罗斯士兵的战斗意志在不断地被削弱，士兵们的士气的道德都有明显的下降。
+
+信息来源：
+[**士気低下か?ロシア兵の通信傍受“足を撃って国へ戻りたい”  独居母“帰ってきて”**](https://news.yahoo.co.jp/articles/4f01a9f15f58524af86fa71c1bc739e9a0fdba4d)
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,33 @@
 ---
 
 
-## 联合国称俄罗斯难以取胜 应谈判停火
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2223012/)
+## 俄军渐露疲态，从攻势转变为守势
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2223038/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月22日，联合国秘书长古特雷斯在一份声明中指出，俄罗斯的这次侵略战争无法获得胜利，俄方应尽快停火并与乌克兰进行谈判。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-54.jpg)
-声明中，古特雷斯认为，俄军虽然可以炸毁乌克兰的一座城市，但乌克兰人的精神不能被征服，因此，莫斯科当局注定不可能在这场战争中取胜。而俄罗斯作为“侵略者”对乌克兰平民恐怖的系统性攻击已经让乌克兰沦为人间地狱。目前，一万多万乌克兰人被迫逃离了他们的家园和祖国。为此，俄罗斯持续这样的侵略战争是荒唐且不可被接受的。与此同时，墨西哥和法国正在努力起草一项决议，要求联合国保护乌克兰平民、民用基础设施和人道主义工作者。
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/942383583690125322/955857013156507708/image0.jpg)
+2022年3月21日，乌克兰武装部队和国防军在FACEBOOK发表一篇重要的战报。
 
-而乌克兰总统泽连斯基则在次日的演说中表示，俄罗斯已经占领了乌克兰包括切尔诺贝利在内的大型核电厂，且俄军或将在接下来的行动中使用生化武器及核武器。对此，乌克兰希望国际社会可以继续对俄罗斯施压，并停止与俄罗斯的贸易，从而使得这场战争可以尽快结束。
+战报首先介绍了在过去24小时内，乌克兰军方持续给予俄空军严重的打击，击毁了1架战斗机，2架直升机，6架无人机。苏梅地区有300名俄军士兵成建制拒绝执行作战行为并驾驶车辆脱离战区。卢甘斯克地区，乌克兰军方有效击退了俄军13波进攻，摧毁14辆坦克，10辆步兵战车、3 门火炮系统。在马里乌波尔海域，俄军一艘巡逻艇被击沉。
 
-参考链接：
-1. [UN秘書長：俄羅斯這場仗贏不了！籲雙方快上談判桌認真討論停火](https://www.rti.org.tw/news/view/id/2128025)
-2. [日國會演說 澤倫斯基：盼日本持續對俄制裁施壓](https://news.ltn.com.tw/news/world/breakingnews/3869581)
+更为重要的是，由于乌克兰军队持续定点对高价值军事目标持续攻击，俄军高级军官死伤惨重，后勤补给车运力受到严重影响。目前，据乌克兰方面情报显示，俄军后勤支持基本瘫痪，前线士兵弹药和食品存量不足三天。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+但这并不意味着普京的军队已经被击败或停火迫在眉睫。迄今为止，战场上的证据表明，俄罗斯军队滞留的时间越长，其战术就越可能变得更加残酷和血腥，乌克兰被占领区的群众可能会招收俄军更为残忍的报复。
 
-总编/编辑/审核: Irene木木
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在这种背景下，乌克兰西方专家评估后认为，莫斯科在试图夺取马卡里夫的过程中已经失去了“进攻潜力”，在反复易手后，乌军方最终将会控制该座城市。俄军在本周进攻达到一个新的高峰之后，由于后勤无法正常供给，军队士气的溃散，军方将会从战略进攻态势，转向战略防守态势。放缓直至停止进攻乌克兰是俄军唯一的选择。
+
+[https://www.facebook.com/GeneralStaff.ua/posts/277993621180390 https://www.dailymail.co.uk/news/article-10639673/Ukraine-war-Russian-troops-supplies-no-three-days.html](https://www.facebook.com/GeneralStaff.ua/posts/277993621180390%20https://www.dailymail.co.uk/news/article-10639673/Ukraine-war-Russian-troops-supplies-no-three-days.html)
+
+校对/发稿：菩提树
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/B6CF6668-4CF3-46A4-B349-47D413F1DEFD.jpeg)
+
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

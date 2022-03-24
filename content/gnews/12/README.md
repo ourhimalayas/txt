@@ -2,24 +2,26 @@
 ---
 
 
-## 习近平不改侵台野心
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2222917/)
+## 盖特参与赞助法国总统大选前辩论会
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2222960/)
 
-作者：日本方舟农场 Andy5
+作者：日本东京方舟农场 Miyali7768(文玉）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月23日的大直播中，郭文贵先生再次提到了习近平及其他中共高官对台湾的侵略企图。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-122.jpg)
-郭先生透露，早在2007年，习近平就已经显示出了对台湾的野心。彼时，习近平将台湾问题作为自己掌权后必须迅速解决的一个事项。为此，他还扬言，如果美国对台湾出手相助，中共就会让台湾永沉大海，从而绝不给台湾任何偏向美国的机会。至今，习近平的这一态度仍然分毫未变。此外，中共官员也曾多次流露出在台湾制造地震的想法，即利用导弹引发7级以上的地震就可造成台湾社会的彻底瘫痪。
+3月22日，据盖特新闻网报道，盖特平台已经与法国保守派杂志《当前价值》合作，成为法国总统大选前参选者“价值观大辩论”的主要赞助商。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-62.jpg)
+活动当天，法国总统候选人埃里克·泽穆尔、瓦莱里·佩克雷斯以及国民联盟发言人乔丹·巴代拉和代表现任总统和连任候选人马克龙的法国公民事务部长夏帕将一同出席。届时，盖特会在巴黎圆顶球场独家直播整场活动。
 
-郭先生也爆料称，在俄乌战争之后，习近平欣喜地认为俄罗斯是一个值得学习研究的模板。习近平甚至在党内宣称，俄乌战争证明了中共应当对台湾实行迅速、狠毒和不惜一切的战略模式。
+据《当前价值》的总监透露，一直以来，该杂志都是大型科技公司言论审查制度的受害者。但盖特作为一个自由言论的平台，其正在向世人提供信息获取的替代方案，从而给予了公众一些新的希望。
 
-参考链接：[**2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难**](https://www.gettr.com/streaming/p11h7xt9462)
+对此，盖特创始人兼首席执行官杰森·米勒先生表示，盖特为能够赞助这场总统选前辩论而感到自豪。同时，盖特将确保法国人民在总统大选之前可以确切地知道每位候选人的立场。另一方面，鉴于大型科技公司多次干预民主进程的做法，盖特正在为言论自由而战。因此，哪怕受到任何审查方面的威胁，盖特都将成为法国总统竞选活动中实时更新的信息发源地。
+
+参考链接：[GETTR Partners with Valeurs Actuelles to Sponsor French Presidential Debate](https://about.gettr.com/press/gettr-partners-with-valeurs-actuelles-to-sponsor-french-presidential-debate)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 总编: Irene木木
-编辑: 玫瑰圓
-审核：Ivy001
+编辑: 宁文静，Delilah小胖
+审核: Irene木木
 校正/发稿：Fei797
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
