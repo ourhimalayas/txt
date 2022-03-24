@@ -2,32 +2,30 @@
 ---
 
 
-## 樱花时政┃美商务部长警告中共勿要出售芯片支援俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222114/)
+## 习近平上台以后的血腥清洗
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2222239/)
 
-撰稿：东京樱花团/盐和光
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/119076078_gettyimages-1232808165.jpg)
+3月23日郭先生在大直播中讲述习近平个人的性格特点必然导致他走到今天。
 
-3月24日观察者网报道，当地23日，雷蒙多对路透社称，所有中国的半导体公司都依赖美国的软件来制造芯片，因此它们受到（美国）控制。“如果我们发现它们向俄罗斯出售芯片，那我们会通过拒绝这些企业使用（美国）软件的方式，来让它们彻底关门。我们已经完全准备好这么做了。”
+郭先生提到习近平的性格像黑社会老大，浑不吝，看得上的人无论如何都要力挺，看不上的人多显赫的地位都会将其除掉。自习近平上台以来，他发誓要做的事情，1清理党内；2清除太子党；3清除军阀财阀。这三件事他全部都做到了。共产党之前形成的各种势力割据，利益分配不复存在，一切权力全部归到习近平家庭管理，习近平最相信的人都是自己的家人，包括彭丽媛，彭磊，和习的女儿，不再有常委议政，同时原先的职能部门如政法委也被国家安全部取代，形成家天下的历史倒退独裁统治。尤其是郭先生从2017年开始爆料的一些共产党白手套们，马云、王健林等等，不是被抓就是被边控并限制出境，失去人身自由和安全，更别说对财富的掌控力了。郭先生还提到单伟建此次能够顺利成为马云阿里巴巴的审计员，说明这个人在习近平那里得到了深度的信任。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-124.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fn.sinaimg.cn%2Ftech%2Ftransform%2F165%2Fw630h335%2F20210317%2F5528-kmkptxe1569619.png&amp;imgrefurl=https%3A%2F%2Fwww.btubang.com%2F16985.html&amp;tbnid=TY3puWYB6n0pSM&amp;vet=12ahUKEwjZvpG-0N72AhWK0OAKHSPmBqAQMygIegUIARDJAQ..i&amp;docid=st_Cvq2k7PEwNM&amp;w=630&amp;h=335&amp;q=%E8%8A%AF%E7%89%87&amp;ved=2ahUKEwjZvpG-0N72AhWK0OAKHSPmBqAQMygIegUIARDJAQ#imgrc=TY3puWYB6n0pSM&amp;imgdii=jVjWV76cLVDJwM)
+郭先生提到人的秉性很难更改，习近平这样的性格必然导致他认定谁，那人是魔鬼他都会力挺。
 
-她说，美国“每时每刻”都在监视是否有人可能违反其对俄罗斯的全面出口管制。一旦有任何国家出现违背美国制裁的情况，美国都将对该国行为进行打击。
+撰稿、发布：骄子
 
-此次警告中共国的官员是美国现任商务部长吉娜·雷蒙多曾就读于哈佛大学和耶鲁大学，获得法学博士学位，属于民主党温和派。
+* * *
 
-与此同时美国国家安全顾问沙利文周三表示，拜登计划本周在布鲁塞尔与欧洲和北约领导人举行紧急会谈时，宣布对俄罗斯政治人物和寡头实施新一轮制裁。
+欢迎订阅我们的GNews账号：
 
-得道多助失道寡助，入侵乌克兰致使俄罗斯现在受到5532项国际制裁，数字还在增长，俄罗斯将不可能抗得住来自全世界的排斥，在现有对俄制裁的基础上，全世界还准备再加码继续制裁入侵者战争狂人。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-中共在俄罗斯入侵乌克兰前，两国签订了新的1份合同：10年1亿吨石油、30年480亿立方天然气的合同，使用欧元结算，不使用美元，不论是放开进口俄罗斯小麦还是进口高级石油，到如今直接运送武器弹药支持俄罗斯攻打乌克兰，中共都在用实际行动来表明自己对俄罗斯入侵在乌克兰的支持，也必将迎来和入侵者同等待遇的制裁。
-
-消息来源：[【美商务部长再威胁：发现中企卖俄芯片，就让它们关门】](https://me.mbd.baidu.com/r/DklhlAGWkM?f=cp&amp;rs=301525149&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0419f1818d54d407&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

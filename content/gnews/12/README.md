@@ -2,12 +2,17 @@
 ---
 
 
-## 俄罗斯暗杀乌克兰总统·泽伦斯基的阴谋被挫败
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2222608/)
+## 20220323郭文贵大直播 ： 战友的安全与健康排第一
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2222701/)
 
-03/23/2022 俄罗斯暗杀乌克兰总统沃洛德米尔·泽伦斯基的阴谋被挫败，该阴谋涉及一个25人的‘敢死队’。 据报道，这些杀手被他们自己的一方出卖了，俄罗斯联邦安全局内部人员向基辅通报了他们的位置和计划。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+
 
  
 

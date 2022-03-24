@@ -2,33 +2,10 @@
 ---
 
 
-## MV版Hcoin To the Moon上线105天第39次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2222436/)
+## 泽伦斯基谈到峰会时说：“我们将看到谁是朋友，谁背叛了我们。”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2222565/)
 
-3/24/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线105天第39次位列匈牙利iTunes热门音乐视频榜榜首，第54次位列前三名
-
-* * *
-
-[【PDF 下载】Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-
-
-[【PDF 下载】Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Thursday-24-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+03/23/2022 ‘带着乌克兰的标志来支持乌克兰，支持自由，支持生命’。泽伦斯基还表示，他将观察哪些国家在支持制裁和能源问题上会‘出卖’乌克兰。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
