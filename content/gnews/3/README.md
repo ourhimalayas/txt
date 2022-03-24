@@ -2,27 +2,12 @@
 ---
 
 
-## 视频|对民主自由的恐惧让普京发动战争
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2222643/)
+## 【乌克兰救援】03/22/2022 每一名法治基金和各国救援队的义工都在忙他们的工作
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2222721/)
 
-制作：香草山视频部
+【乌克兰救援】03/22/2022 难民正在收拾行装等待出发，一个7、8人的家庭都是妇女儿童，没有男人；镜头之外大家都在忙碌，多国记者在大帐蓬中享用新中国联邦咖啡。
 
-郭文贵先生在3月22日的盖特中谈到普京要拿下乌克兰的根本原因，就是害怕乌克兰民主自由的政治气候传播到俄罗斯，害怕乌克兰良好的社会民主体制，民天下的政治制度让俄罗斯人看到真相，都渴望拥有乌克兰的社会制度，从而导致自己独裁统治的终结。
-
-郭先生表示中国也是一样，如果中国人能够看到现在的台湾，日本人们的生活和社会制度，就不会有人支持CCP去打台湾。
-
-郭先生指出奴隶们一旦意识到自己被奴役，就会起来消灭掉奴隶主。这次俄乌战争，不是因为欧洲武器东扩，而是欧洲和乌克兰的政治文明和民主社会体制让普京感到了恐惧。
-
-发稿：Daxia
-
-![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

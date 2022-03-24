@@ -2,12 +2,17 @@
 ---
 
 
-## 【乌克兰救援】梅迪卡营地的安全问题与解决措施
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2222595/)
+## 20220323郭文贵大直播 ： 战友的安全与健康排第一
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2222701/)
 
-03/20/2022 【乌克兰救援】03/20/22 文耀汇报：梅迪卡营地的38名志愿者中，已有近三分之一的人新冠测试呈阳性，目前都已撤回克拉科夫休息。目前很多物资都是战备物资，发动机是生命线，热鼓风机熔断会造成可怕后果，战友们在使用时一定要了解清楚机器性能。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+
 
  
 
