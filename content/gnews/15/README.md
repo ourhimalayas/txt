@@ -2,42 +2,25 @@
 ---
 
 
-## 躺平币让拥有者实现真正的财富自由
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2223239/)
+## 加拿大完全接种者免疫系统遭破坏严重
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223332/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 –  编译撰稿：硫酸羟氯喹64
 
+据英国【每日内幕】3月21日报道，加拿大政府的最新疫情数据显示，与未接种“新冠病毒”疫苗者的自然免疫系统相比，完全接种人群平均损失了74%的免疫系统能力。
 
-
-躺平币的发行将从7月份往后推迟。
-
-数字货币在本质上有了突飞猛进的变革，正逐步过渡到第3代币，所应用的区块链加密技术让其稳定性、安全性和隐蔽性有了极大提高，同时交易流通的成本极低。
-
-一位研究数字货币区块链的专家，点出比特币（第1代币）并不是真正的去中心化，比特币两大致命弱点；1.高昂的成本抑制了流通性；2.没有支付功能。
-
-躺平币的拥有者可以真正的实现财富自由，即按照自己意愿，无地域限制，无时间约束的花钱，而不受银行政府对货币流通的限制和管制，并且可按照一定的规则，所用即所得的，去获得躺平币。
-
-未来，最昂贵的资源就是水、食物、以及生活必须品。通过躺平币的规则，人们可以获得不仅仅是币，甚至可以是昂贵资源。
-
-躺平币推出后，第一个受益者将是新中国联邦的战友们。
-
-**视频来源: 20220323—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田**
-
-**更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2807.png)图片来源：RZLSJ
 
 
+据悉，目前该疫苗已对接种者造成了巨大健康损害，与未接种者相比，已注射过两剂疫苗的人群感染“新冠病毒”的可能性要高出3.8倍，而因此死亡可能性则高出 3.3 倍。此外，三联疫苗接种人群的情况更为严峻，因为与未接种者相比，前者死亡的可能性要高出 5.1 倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+以上所有官方数据均表明，大部分已完全接种疫苗者的免疫系统现在都遭受到了巨大的损害，并因此已逐渐发展为类似与艾滋病的获得性免疫缺陷综合症。
 
+校对编辑：硫酸羟氯喹64
 
+发稿：青青
+
+原文链接： [https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/](https://dailyexpose.uk/2022/03/20/gov-canada-data-triple-vaccinated-have-a-i-d-s/)
 
 
 
