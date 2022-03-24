@@ -2,34 +2,36 @@
 ---
 
 
-## 【G时新闻】欧洲航空业大佬告诉文贵先生飞机坠机是人为的自杀事件！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2223346/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2223663/)
 
-作者：加拿大温哥华扬帆农场 – 播报：-莉李鲤 – 视频制作：文雅
+作者：香草山翻译部
 
-大家好！今天的主题是 欧洲航空业大佬告诉文贵飞机坠机的真相！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-26.png)
 
-空客和波音飞机在飞行当中，所有的飞行数据，传到本航空公司。 本国国家航空数据中心和飞机制造厂， 还有黑盒子。 他告诉文贵先生中国共产党一定会宣布黑盒子损坏无可恢复。根据掌握的数据，完全是人为的操作、自杀性的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-24.png)
 
-这并不是阴谋论这是完全个人蓄谋已久，早在今年的1月份开始，组织这场自杀事情。 包括机组机长，这么多人，这都是他精心安排的。 而且是决绝地把飞机拉上天，直接给你推下去，切断了所有的通信。 他把他该带的都带走了，并且他给共产党、给政府，都留了言：共产党如果有良知，应该把东西放出来。
+文章仅代表作者本人观点，与Gnews无关
 
-为什么报复？原因就是他所有的钱，都被公司给骗走了，他的家人受到了共产党的虐待。他认为自己打了疫苗，早晚也活不长，况且家人已经有打疫苗死亡的。他还欠了一屁股债。 大家明白了吗，这多恐怖！共产党的欺负、虐待、打疫苗导致家人死亡、他的钱被公司骗走。
+视频参看：
+[2022.03.24早 《NFSC新闻》](https://gettr.com/streaming/p11mk2x933a)
+[2022.03.24早《NFSC新闻访谈》](https://gettr.com/streaming/p11n01zc740)
 
-这件事件未来将给所有中国人带来互相伤害、报复社会，不可预测的疫苗灾难，以及疫苗导致的人对社会报复的各种突发事件。火车、飞机、医疗放毒、车祸，开始各种事情频发，就像这次事件一旦人上了飞机，谁也无法预测！ 我们新中国联邦人个个都明白只有早日灭掉中共，铲除这个万恶之源才能真正挽救人类还一切之真相于人！
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-视频链接：[https://gettr.com/post/p11n7p19f27](https://gettr.com/post/p11n7p19f27)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-3.png)
 
-编辑/上传：蔚蓝之境
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-26.png)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2799.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2801.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

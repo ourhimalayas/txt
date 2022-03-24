@@ -2,27 +2,25 @@
 ---
 
 
-## 北京累计接种6000万剂毒疫苗，或后果严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216875/)
+## 樱花时政┃中共网络舆论控制挡不住国人的反战浪潮
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216874/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2F5630979%2Fimages%2F4f8e0945577e456981bf7dd71e0625a1.JPG&amp;imgrefurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2Fcontent_5630979.htm&amp;tbnid=qZXwQYF-4Mc5bM&amp;vet=12ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ..i&amp;docid=7aDBHwfrkPe6oM&amp;w=800&amp;h=533&amp;q=%E6%8E%A5%E7%A7%8D&amp;ved=2ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ)
-3月23日每日经济报报道，截至2022年3月22日，北京市累计报告接种中共病毒（新冠病毒Covid-19）疫苗5999.59万剂次，累计接种2283.80万人。
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-44.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fphantom-marca.unidadeditorial.es%2F6e75330b349ffbc9ecf84b49189e288b%2Fresize%2F1320%2Ff%2Fjpg%2Fassets%2Fmultimedia%2Fimagenes%2F2022%2F02%2F28%2F16460455847265.jpg&amp;imgrefurl=https%3A%2F%2Fwww.marca.com)
+在持续20多天的俄乌战争中，虽然中共网络媒体和官方实施严格的言论控制并引导大众舆论风向，但仍有很多中国民众对战争表示反感，敦促中共当局改变立场。目前在微博，微信等社交平台上，依然可以看到大量不同的观点。
 
-截至2022年3月22日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗323460.1万剂次。
+据纽约时报报道，上周，上海一位具有政治背景的学者胡伟发文警告称，如果中国再不和俄罗斯“切割”，会有被国际社会孤立的危险。文章发出后不久，即被网监删除。这篇文章中共国的社交媒体上获得了数以百万计的转发，影响巨大。
 
-在两个月前的1月8号北青网报道，根据北京市卫健委刚刚发布的消息，截至2022年1月7日，北京市累计报告接种新冠病毒疫苗5725.15万剂次，累计接种2247.80万人。
+另外，一些位于乌克兰前线附近的中国反战人士，他们正试图突破中共当局的审查，为同胞提供战斗生活的真实记录。
 
-2021年人口普查北京总人数：全市总人口（常住人口）为2189.3095人，时至今日累计接种2283.80万人，接种人口已超出全市常住人口90多万，接种中共病毒疫苗5725.15万剂次，累计接种毒疫苗已接近超出全市人口三倍数量。
+可见，中共官方的观点并不能够代表广大中国人民。
 
-毒疫苗引起人体各种不适症状灾难频频出现，而中共大力掩盖否认是毒疫苗造成的后遗症，中共政府以防疫为借口，懒政管理施行“一刀切”，把防控措施做到层层加码，强制隔离强制接种毒疫苗，大面积的次生灾害和毒疫苗灾难将随时到来。
+信息来源：
 
-消息来源：
+[中国当局严格的审查政策 挡不住国人的反战浪潮](https://vct.news/news/c14a72d8-d942-4bd2-a10e-7fb1b5be1fdd)
 
-[【北京市累计报告接种新冠病毒疫苗5999.59万剂次，累计接种2283.80万人】](https://ms.mbd.baidu.com/r/Di5TTKjwwo?f=cp&amp;rs=397575460&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=26a48bfa4bb9d34c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 

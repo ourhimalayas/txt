@@ -2,21 +2,34 @@
 ---
 
 
-## 俄軍種族滅絕對平民使用真空炸彈
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2223556/)
+## 有声|又见人血馒头
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2223733/)
 
-加拿大溫哥華揚帆農場    平民正道
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+凄怆破盛世
+机坠入火林
+寒骨未入棺
+花样广告频
+句句见冷毒
+处处啃人血
+脑残心更残
+无处觅真情
 
-據英國《每日郵報》3月21日報導，拜登當天與西方盟友討論了俄烏戰爭的最新局勢，並強調，因俄軍日前向烏克蘭城市發射了真空炸彈，而應被指控犯有種族滅絕罪。
+文字版原文：[又见人血馒头](https://gnews.org/zh-hans/2210780/)
 
-報導稱，自俄羅斯入侵烏克蘭四周以來，隨著戰爭陷入僵局，俄軍開始採取更致命的打擊方式。並因此向馬里烏波爾市區發射了大量真空炸彈，並用該大規模毀滅性武器對平民進行了屠殺。
+音频处理：Fei797
+发稿：Fei797
 
-據悉，真空炸彈能在爆炸瞬間釋放巨量熱能，高溫火球可使爆炸地點附近的人體氣化，而高壓爆炸波可以摧毀建築物並使人體器官破裂。此外，俄軍還被指控將烏克蘭難民驅逐到過渡集中營，然後強行將他們運到西伯利亞偏遠地區，並以此再次實施二戰中德國納粹的恐怖罪行！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-* * *
-
-編輯： 平民正道    發佈：平民正道
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

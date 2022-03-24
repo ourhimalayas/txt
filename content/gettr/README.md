@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 4:54 PM (UTC)`
+
+The war has been going on for 26 days，The NFSC rescue has also entered its 17th day,<br/>As an increasing number of refugees were rescued, our rescue operation has become more and more professional, and the comrades have been a more harmonious group from setting up camps, stockpiling supplies, taking photos and recording videos, to live streams, interviews, and reports. It shows that we are working hard<br/>战争已经持续26天，我们新中国联邦的救援也已经进入了第17 天，随着救助的人数越来越多，我们的救援工作越来越专业，战友之间的合作越来越融洽，从搭建营地，到储备物资，从摄影、录像，到直播、采访、报道，都体现了我们在用心做事
+![img](https://media.gettr.com/group11/origin/2022/03/24/16/7464b0d7-547d-cb42-25d5-b910113ebb9b/out.jpg)
+
+---
+
+`@miles 3/24/2022 4:49 PM (UTC)`
+
+This humanitarian operation of NFSC brought a great shock to our international friends<br/>Mr.Miles mention one of his friends in a broadcasting,<br/>He had left Ukraine before the war,<br/>However, when he saw the Ukrainian’s resistance and NFSC’s aid,<br/>He was moved and return to the Ukrainian front without any hesitation. <br/>Joined this war to resist Russians. <br/>The situation of war is shifting dramatically.<br/>Putin’s so called “Conservative estimate of one week to take Ukraine”<br/>By far, is getting stuck a whole month.<br/>This friend who left but returned Ukraine, is just a small example.<br/>新中国联邦的此次救援行动给国际友人带来巨大震撼，<br/>郭先生在直播中说到他的一位朋友，<br/>本来在开战前以离开了乌克兰，<br/>但是看到新中国联邦的救援和乌克兰人民的抵抗，<br/>他感动了，毅然回到乌克兰前线，<br/>参与这场抵抗俄罗斯的战争。<br/>战争的形式在急剧转变，<br/>普京所谓的"保守估计一周拿下乌克兰",<br/>目前已经是整整一个月的战争僵持。<br/>#ukrainerescue #nfsc新中国联邦
+![img](https://media.gettr.com/group6/origin/2022/03/24/16/b0963309-a9c5-1bfc-f101-d8d8d9e892fa/out.jpg)
+
+---
+
 `@miles 3/24/2022 4:32 PM (UTC)`
 
 【Ukraine Rescue】03/24/22 “Although most people do not know about the NFSC and ROLF, we are here to show the world our presence and mission through rescue operations,” said the volunteer Jing Liang.<br/><br/><br/>【乌克兰救援】03/24/22 志愿者精粮战友表示：虽然大多数人并不知道新中国联邦和法治基金，但是我们就是要通过救援行动展示给世界我们的存在和使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -143,20 +157,6 @@
 
 新中国联邦法治基金乌克兰人道救援行动-最新战况播报
 ![img](https://media.gettr.com/group20/origin/2022/03/24/04/94bda7eb-3f87-5ac5-d0cb-5f170605477e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 2:34 AM (UTC)`
-
-2022-3-23《鸡血王喜币大作战》 第一百四十三集 嘉宾：Nick、七里香
-![img](https://media.gettr.com/group30/origin/2022/03/24/02/97ce9c46-5fb5-1401-a69c-3fa964ff9b01/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 2:07 AM (UTC)`
-
-【Ukraine Rescue】03/20/22  Xiao Xiao Su introduces to the Ukrainian refugees that the mission of the NFSC is to save people and eliminate the CCP: Once the CCP is eliminated, all evils in the world will be eradicated and there will be no more wars.<br/><br/>【乌克兰救援】03/20/22 小小酥战友向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group43/getter/2022/03/24/02/a6eefbf3-4a81-3707-7aa5-2917234a91d2/out.jpg)
 
 ---
 
