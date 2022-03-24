@@ -2,36 +2,22 @@
 ---
 
 
-## 泰国禁止使用加密货币支付商品和服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220856/)
+## 视频|美众议员拟推法案 推动取消中共永久最惠国地位
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2220984/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+制作：香草山视频部
 
-翻译：攀登者
-编辑：jocozoner
+美国国会共和党众议员克里斯·史密斯（Chris Smith）22日宣布，将联合两党议员在本星期推出了一项旨在取消中共永久贸易最惠国地位的法案。克里斯·史密斯议员长期关心中国人权事务，他强调法案要“取消中国共产党的永久性正常贸易关系地位，以惩罚其令人发指的人权暴行——特别包括该政权对维吾尔人和其他中亚少数族裔持续进行的种族灭绝和强迫劳动”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-53.png)图片来源：雅典娜设计组
+此部法案要求将中共贸易地位与人权状况作连结，据该法案的意旨，美国总统每年必须证实中共认真、持续的努力改善人权，方可给予中国正常贸易关系地位。该法案推出后，仍须获得众议院或参议院委员会及全院通过同样版本，交由总统签署后方成为法律。
 
+史密斯议员表示，俄罗斯可能因为普京侵略乌克兰而失去永久性正常贸易地位，而中共对俄罗斯的支持行为，使我们重新评估中共贸易优惠待遇变得尤为及时。美国过往反对把中国人权与贸易地位连结的行为，已成为中共践踏人权的“免费通行证”。
 
-据《新印度快报》讯，泰国证券交易委员会3月23日宣布，禁止使用加密货币来支付商品及服务费用。
+发稿：呼吸的雾霾（文小呼吸）
 
-该规定将从4月1日起生效，目前并未禁止利用加密货币进行投资。在过去一年中，经当地交易所推广后，加密货币在泰国正变得愈加流行。
-
-泰国证交会表示，他们正在采取行动，保护该国货币金融体系的稳定，杜绝洗钱和其他网络犯罪所带来的威胁。
-
-该规定还特别禁止推广用于支付的加密货币，以及基于此目的分发相关软件和设备。
-
-它还表示，从事数字资产业务的运营商必须事先告知客户这项禁令，如果他们违反了该规定，他们的帐户就将被冻结。
-
-新闻链接：[Thailand bans crypto-currency payments for goods and services](https://www.newindianexpress.com/world/2022/mar/23/thailand-bans-crypto-currency-payments-for-goods-and-services-2433419.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,42 +2,29 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221162/)
+## 俄乌战争｜不堪千夫所指 雀巢宣布停止在俄销售咖啡等产品
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2221279/)
 
-整理：枳实
-美工：精灵蓝
+**图/文：CP**
+**发布时间｜24/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/不堪千夫所指-雀巢宣佈停止在俄銷售咖啡等產品.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@9BSYAU7D_7@M795L.png)图片：雅典娜农场设计组 精灵蓝
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
 
-雅典娜疫情更新（2022年 3月23日）
+自俄罗斯入侵乌克兰之后，多间国际企业纷纷宣布抵制俄罗斯，惟全球最大食品公司雀巢（Nestle）迟迟未有加入行动，引发网民发起杯葛行动。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GJE2JN4FGMHHDHUTFR0770.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/UK2BG6YDRMVHD7DY3.png)
-[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月23日改进.pdf)
+早前乌克兰总统泽连斯基(Volodymyr Zelensky)在对瑞士民众发表演说时也点名批评雀巢说：“在我们的孩子不断丧命时，它仍照常与俄罗斯做生意，这样行为与它的宣传口号『Good Food，Good Life （优质食品、美好生活）』不符。”就连国际黑客组织Anonymous（匿名者）亦声称入侵该公司资料库以示抗议，并谴责该公司未完全撤出俄罗斯市场。
 
-数据来源：
+重重压力之下，雀巢周三（23日）终于宣布停止在俄罗斯出售旗下大部份热门产品，包括Nespresso咖啡、Kitkat朱古力及Nesquik可可粉等品牌都会即时下架，预计金额将达17亿瑞士法郎（约18.3亿美元）。雀巢表示，在俄乌战争存续期间，雀巢将只专注于提供必需食品，仅维持供应婴幼儿食品、兽医用专门食品及医疗保健产品等。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+据统计，现时有超过400家跨国企业停止在俄业务，惟食品及消费品巨头联合利华（Unilever）、达能（Danone）及雀巢迟迟不愿撤出，被乌克兰外交部点名威胁实施制裁后，三家企业纷纷作出让步，现时仅保留对俄罗斯奶制品、纸尿片等必需品的供应。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+來源｜[fortune](https://fortune.com/2022/03/23/nestle-anonymous-leak-hack-russia-business-kitkat-nesquik/)
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+* * *
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

@@ -2,18 +2,41 @@
 ---
 
 
-## 秘翻在线：日本为何总是让已退任的政客来直面中共？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2220490/)
+## 数家央行与国际清算银行合作开展数字货币支付业务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220690/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-32.png)（图片源自本文链接）
-3月24日时事通信社消息：内阁官房长官松野博一在24日的新闻发布会上表示，已经针对中共政府对日本前首相安倍晋三和台湾总统蔡英文的网上谈话提出的 “强烈不满”，给予了”适当的驳斥”。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-松野说，”希望通过对话和平解决围绕台湾的问题是我国的一贯立场”。
+翻译：li yan li
+编辑：jocozoner
 
-官房长官的应对，其语言实在是太暧昧！期待日本政府不要仅是采取利用已退任的政客扮黑脸的做法，现任政客们何时能站出来面对邪恶？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
 
-信息源：[台湾総統対談、中国反発に反論　政府（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/93417835006b2bf8e44bd73d41b47254611b8f5e)
+
+据道琼斯通讯社报道，四家中央银行与国际清算银行合作创建了一个支付平台原型，以期能对各国央行发行的数字货币进行国际结算。
+
+3月22日，国际清算银行创新中心、澳大利亚储备银行、马来西亚中央银行、新加坡金融管理局以及南非储备银行共同宣布该平台已经搭建完成，他们认为金融机构借此可对以上各国央行发行的数字货币直接进行交易。
+
+该集团在一份声明中说，该平台被称为“邓巴计划”（Project Dunbar），他们希望通过此架构来减少对中介机构的依赖，以及处理跨境交易的成本和时间。
+
+在开发该平台的过程中，参与的各国央行表示，他们解决了诸如如何对有权利使用CBDC1进行交易的实体进行认证，以及如何解决不同国家的支付监管差异等问题。
+
+1. 央行数字货币
+
+
+国际清算银行新加坡创新中心负责人安德鲁·麦科马克（Andrew McCormack）说：“邓巴计划表明，可以通过强大技术手段实施的治理机制，我们完全可以解决信任和共享控制的关键问题，这都为未来全球和区域平台的发展奠定了基础。”
+
+麦科马克先生还补充说，允许实体直接持有不同司法管辖区的CBDC并进行交易，可以减少跨境支付对中介机构的需求。
+
+新闻链接：[Central banks, BIS team up on digital-currency payments](https://www.marketwatch.com/story/central-banks-bis-team-up-on-digital-currency-payments-271647930605)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

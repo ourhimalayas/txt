@@ -2,38 +2,37 @@
 ---
 
 
-## 春天的思考
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2221202/)
+## 法治基金志愿者向乌克兰难民介绍新中国联邦的灭共使命
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221284/)
 
-作者： 香草山教育部–蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2588.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-院子里的姹紫嫣红，提示着，春天已经来到。
+整理/编辑：小红帽
 
-我们在思考，侵略者铁蹄，何时离开别人家乡？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-24_15-55-15.png)图片来源：郭文贵先生盖特视频截图
 
-那片肥沃的黑土地，眼看着就要荒凉，苦难的人们，该怎么度过粮荒？
 
-硝烟弥漫中的悲凉，炮火中的悲壮，无不在书写着 一个民族不屈的精。
+3月20日，在波兰梅迪卡救援中心，新中国联邦和法治基金志愿者小小酥向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。
 
-勇敢的乌克兰的人们，我祈求上苍对你们怜悯，上位者放下野心，屠刀不再汹涌。
+小小酥说：“刚才这位女士说，她很吃惊，中国人会在这个地方。”
 
-春天已经来到，谁也挡不住的色彩。就这样涂满了山坡和树木，勇敢的乌克兰人民 将会在战火中永生，他们用鲜血开启了 一个新的文明。
+随后小小酥向这位乌克兰女士介绍道：“我们来这里是希望帮助到人们，由衷地希望能够提供援助。而且，我们希望告诉人们，我们要消灭中国共产党。
 
-编辑/审核/发稿：Bronx Bombers
+乌克兰女士答道：“我们明白了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6E878D77-D03C-44C7-A803-4046B28027C2.jpeg)
+小小酥继续道：“我们要消灭中共，因为只要灭了中共，世界上的邪恶就会被铲除。这样就不会有战争了。”
 
-**更多资讯，更多关注**
+乌克兰女士表示支持：“祝你们好运！”
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+资料来源：[郭文贵先生2022年3月24日盖特视频](https://www.gettr.com/post/p11kynr1068)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发布：tianzhihuan
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

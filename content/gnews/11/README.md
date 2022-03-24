@@ -2,28 +2,37 @@
 ---
 
 
-## 视频显示：美军战斗机在波兰停机坪上
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2221045/)
+## 新西兰放宽强制疫苗接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221199/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
+新西兰政府宣布,将逐步放松管制,包括废除许多职业要求的强制疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-268.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F11%2F2021-11-09T004936Z_566761956_RC2OQQ9IIAMM_RTRMADP_3_HEALTH-CORONAVIRUS-NEWZEALAND.jpg%3Fresize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.)
 
-据Newsweek网站3月23日报道，美国国防部3月10日发布的视频显示，美国F-15E攻击战斗机在北约成员国波兰瓦斯克空军基地的停机坪上滑行，进行空中警戒飞行。
+新西兰政府3月23日宣布,除医疗相关人员等部分职业外,从4月4日深夜开始废除警察和教育相关人员等疫苗强制接种。
 
-该视频是于3月10日拍摄的，该架战斗机隶属于北卡罗来纳州西摩约翰逊空军基地的第336战斗机中队。视频中声明补充，北约规定盟军保持联合演练，以保证国防安全需求。
+2月份以来，新西兰反对强制疫苗接种和长期管制，并在国会前进行抗议示威和静座的活动不断,政府还进行了逮捕。 随着放宽强制疫苗接种,进入餐馆等场所时也不需要出示接种证明。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-16.jpeg)2022年3月10日，美国第336战斗机中队的F-15E攻击鹰战斗机被分配到北卡罗来纳州西摩约翰逊空军基地，继续在波兰拉斯克空军基地飞行北约增强空中警务飞行（图片来自Newsweek）
+参考链接：[ニュージーランド　ワクチン接種義務規制を緩和へ](https://news.yahoo.co.jp/articles/aab83f6c8046a7a7b4a8f6f601997f01b177a103)
 
-北约盟军空军司令部称，空中警戒是连续365天不间断的任务，是自从2014年俄罗斯吞并克里米亚后北约新增的防卫措施。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-乌克兰不是北约成员国，目前北约拒绝在乌克兰设立禁飞区，担心会引发战争进一步升级。北约实施警戒措施的目的是展示盟国的集体决心，展示北约的防御力量，并阻止俄罗斯侵略或威胁侵略北约盟国。
 
-北约目前由30个国家组成。它最初由比利时，加拿大，丹麦，法国，冰岛，意大利，卢森堡，荷兰，挪威，葡萄牙，英国和美国创立。
 
-参考链接：
-[https://reurl.cc/xOq9lb](https://reurl.cc/xOq9lb)
 
-总编： 青城道姑
-校对发布：文曦
+
+
+
+
 
  
 
