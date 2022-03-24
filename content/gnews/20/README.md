@@ -2,33 +2,22 @@
 ---
 
 
-## 英军助力！训练乌克兰使用「星光飞弹」打击俄军战机
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220061/)
+## 中國銀行在安省的抵押貸款額飆升
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2220104/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
+作者：加拿大溫哥華揚帆農場 – 采編：文萊 – 翻譯編輯：文所未聞
 
+據加拿大《環球郵報》3月23日報道，在過去六年中，中國銀行在安省的住宅抵押貸款金額大幅上升，並造成大量資金正從BC省流向安大略。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2761.png)
+據悉，多倫多市外國人的住宅房地產擁有率全加拿大最高，約為4%。而中國銀行一直在當地廣泛開展針對中國客戶的金融業務。僅2021年，該銀行在安省的未償還抵押貸款總額就達到10.5億加元，與2015年同比增加了650%
 
+目前，加拿大整體房地產市場火熱，除了通脹因素外，從中共國流入的大量資金也是推動房價上漲的主要原因之一。但隨著中共國未來被西方經濟製裁後所導致的全球金融危機，以及各種疫苗災難之下，加拿大房地產泡沫的破滅將不可避免。
 
+校對編輯：硫酸羥氯喹64
 
+發稿：青青
 
-俄罗斯入侵乌克兰仍在继续，面对全球的制裁俄罗斯并没有停战的苗头！美国与北大西洋公约组织（NATO）盟国为了帮助乌克兰抵抗侵略持续输送防卫性武器给乌克兰，强化抵御俄国战力。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/php5yiYPR-1.jpg)图片来源：法新社
-
-如今英国军方宣布，他们已训练乌军使用反战机飞弹“星光飞弹”（Starstreak），可有效打击俄空军的主力米格战机。
-
-简评：在全球制裁俄罗斯的背景下，俄罗斯有中共国的金援与兵工厂，乌克兰有西方国家提供的包括武器在内的各种援助与指导训练，就算成为消耗战，普京用屁股想想也打不赢的，独裁者的野心妄想只能加速其灭亡！
-
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3868814](https://news.ltn.com.tw/news/world/breakingnews/3868814)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
-
+原文鏈接：[https://www.theglobeandmail.com/business/article-bank-of-chinas-mortgage-lending-soars-in-ontario-wanes-in-bc/](https://www.theglobeandmail.com/business/article-bank-of-chinas-mortgage-lending-soars-in-ontario-wanes-in-bc/)
 
  
 

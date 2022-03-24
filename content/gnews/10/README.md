@@ -2,23 +2,35 @@
 ---
 
 
-## 反对战争！俄国总统特使辞职走人 与克宫决裂最高官员
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220144/)
+## 有声|台湾密切关注中共南海人造岛军事化举动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2220204/)
 
-俄罗斯入侵乌克兰以来，俄国境内反战声浪渐起，不仅民众上街抗议，如今连总统普京（Vladimir Putin）的国际特使丘拜斯（Anatoly Chubais）也决定辞职走人，成为在侵乌问题上与克里姆林宫决裂的最高级别官员。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+台媒3月22日报道，近日美国印太司令部指出，中共已将南沙群岛三个岛礁完成军事化改造，并威胁到周边国家安全。为此，中华民国国防部长邱国正表示，台湾和越南以及菲律宾等国，都在密切关注中共相关举动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ee180c2f564f7b0527d0648bc28ee6b0.jpeg)图片来源: 网络 (上图为中华民国国防部长邱国正)
+邱国正在立法院会施政总质询时表示，中共已将南沙群岛三个岛礁完成了军事化部署。隶属中华民国的太平岛也在其中，其他小岛则分属越南和菲律宾等国，各国之所以保持互不侵犯，就是因为默守规矩。对于中共觊觎南海的野心，相关国家都在密切注意。当前台湾在太平岛不是以军事驻扎、而是以海巡单位为主，是把维护海域安全做为重点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpwsl2ks.jpg)图片来源：美联社
 
-简评：狂妄的独裁者走到最后就会成为孤家寡人，就像习大神一样身边几乎一个朋友都没有了，普大帝也在这条路上狂奔！得人心者，才能得天下；不得人心者，位子越高，他日摔的越惨！未来决裂的高官会越来越多，普大帝回头是岸吧！
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3869832](https://news.ltn.com.tw/news/world/breakingnews/3869832)
+文字版原文：[台湾密切关注中共南海人造岛军事化举动](https://gnews.org/zh-hans/2216727/)
 
-撰稿/发布：一叶知秋
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

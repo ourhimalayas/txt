@@ -2,30 +2,27 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2220072/)
+## 大直播后记：对台湾尽力而为就好
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220114/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-18.png)
+整理：文晋、雨桐
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2749.png)
+我们对台湾的担心，现在就是闲着蛋疼。台湾那么小的地方，打的时候也没地方跑，也没有什么缓冲的余地啊，没饭吃，你太多虑了。就像我们这次要救台湾战友一样，折腾了半天，从准备200个、150个、100个战友到那个帛琉，结果要去那里的战友只有2个。
 
+还有一个，台湾人比咱们都有钱。台湾人有几十万个家族有美国护照，台湾的GDP比你有钱。到时要救台湾人的第一个是美帝国主义，第二才是欧洲主义，日本人家已经战前都要去救了。话又说回来，如果台湾战友都不相信爆料革命，他不离开，你觉得你还能救得了他吗？人家台湾这次打仗你就不用担心。就像微微老公，她才知道嫁给一个外国人以后跟中国人啥感受？你没睡过洋老公你不知道，你睡过以后才知道。台湾人比你有实力，绝不需要我们操心，你着啥急呢？而且咱尽力了，我们尽了全力，未来也会尽全力。
 
-校对：Stay文苑
+最重要的，希望它中共不打台湾，但是看来不打台湾是不可能的，而且一旦台湾开打，说实在话，最主要的危机还是台湾本身。只要台湾人坚持坚决不屈服，我担心的不是共产党打台湾，我担心的是台湾的卖台贼。卖台贼的招会很阴险，会帮着中共把台湾给干掉，所以现在你看啊，共产党永远两个词，台湾是我们内部事务，你谁也不能干预我国内政，就是这句话说了5年。这句话就是瞄着，让台湾人的内乱制造需要，然后我才揍你。 就好比Eglise突然间你的女儿发出了信息，我妈妈要掐死我。这个时候七哥就要去了，我要接管你的家庭。Eglise由我现在负责，一年都要住在一起，谁也甭管，七哥我要管，因为她找我求救了。就这样耍流氓，知道吧，你记住他一定是这招，一定从台湾内部开始，而且比普京到这个乌克兰抓纳粹还可怕。
 
-编辑：Stay文苑
+到现在我们还有战友昨天发消息， 就是咱老椅子说，我觉得这个泽连斯基不是个好东西，如果俄罗斯不干了乌克兰，他乌克兰就帮助美国干掉俄罗斯，那接下来南下就干中国了。我真的是那会儿想找一堆土吃一吃就我才觉得舒服。这不是一般的糊涂。我们台湾有一个好朋友，给我发信息说什么？“郭先生，天助台湾。” 我说为什么？他说俄罗斯一打乌克兰，习近平绝不敢打台湾。我说是吗？根据什么？他说：“因为习近平知道美国也会对他中共制裁呀，而且你说的他身体也不好，国内政治斗争一塌糊涂，怎么可能有精力再搞台湾呢？我看好台湾。”我说那你就不要离开台湾，好好在台湾住着。所以说咱们现在对台湾尽其所能用真心，但千万别操过了心啊，人家最终会比我们过得好，你别操心操太多了啊。
 
-发稿：Stay文苑
+资料来源：[2022年3月23日 文贵大直播](https://gnews.org/zh-hans/2218816/)
 
-新闻：[https://gettr.com/post/p11k6tl92dd](https://gettr.com/post/p11k6tl92dd)
-访谈：[https://gettr.com/post/p11k7s17f11](https://gettr.com/post/p11k7s17f11)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-3.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
