@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 2:34 AM (UTC)`
+
+2022-3-23《鸡血王喜币大作战》 第一百四十三集 嘉宾：Nick、七里香
+![img](https://media.gettr.com/group30/origin/2022/03/24/02/97ce9c46-5fb5-1401-a69c-3fa964ff9b01/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/24/2022 2:07 AM (UTC)`
 
 【Ukraine Rescue】03/20/22  Xiao Xiao Su introduces to the Ukrainian refugees that the mission of the NFSC is to save people and eliminate the CCP: Once the CCP is eliminated, all evils in the world will be eradicated and there will be no more wars.<br/><br/>【乌克兰救援】03/20/22 小小酥战友向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -146,12 +153,6 @@ A very popular young singer, Tsewang Lobu, in the Tibetan community as well as m
 
 2022/03/23  今天我第一次用Hpay 在G｜Fashion 网站上购买了衣服，非常的便捷和快速，这是具有历史性的时刻！ 从来没有一个数字货币能在一个实体店这样的快速交易付款。  你可以在世界的任何角落用Hpay 来购买GF的产品，绝对的跨国界，全球化! 你只需要扫一下二维码，点击付款即可！  简直太棒了， 希望大家都来体验一下这种快捷便利的付款方式，给你不一样的消费体验！@gfashion @DDNYC 
 ![img](https://media.gettr.com/group12/getter/2022/03/23/17/588009e5-fe08-299a-cbb4-c233fdad3605/bae260f3567d27806cbbcdcd4a43a41e.jpg)
-
----
-
-`@miles 3/23/2022 2:00 PM (UTC)`
-
-3-23日：❤️❤️❤️ <br/><br/>https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0
 
 ---
 

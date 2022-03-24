@@ -2,25 +2,37 @@
 ---
 
 
-## 警方判定自由車隊與縱火案無關
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2219808/)
+## 有声|单伟建出任阿里巴巴新任独立董事
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2219812/)
 
-作者：加拿大溫哥華揚帆農場 – 采編： 文萊 –  編譯撰稿： 晨熹
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+阿里巴巴22日发布公告，计划扩大100亿美元的美股回购规模，将回购总额从150亿美元上调至250亿美元，有效期至2024年3月，为期两年。这是自2017年以来，阿里巴巴第三次增加回购计划总额。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-12.jpg)
+与此同时，阿里巴巴还宣布，委任太盟投资集团执行董事单伟建为董事会独立董事，兼审计委员会成员，任命期于3月31日生效。
 
-據加拿大【真北方】3月21日報道，渥太華警方日前已正式確認，發起反疫苗護照運動的自由車隊與當時抗議現場附近的故意縱火案毫無關聯。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2735.png)圖片來源：The True North
+早前，郭文贵先生曾多次爆光单伟建的真实身份是中共高级特务，不仅是中共千人计划的重要推手，也是蓝金黄美国政要的关键人物。
 
 
-據悉，警方現已對發生於2 月 6 日的渥太華市區公寓縱火案中的一名嫌犯提起刑事訴訟，而另一名已被確認的嫌犯正在追捕之中。
 
-報道指出，為將反疫苗護照抗議運動的參與者抹黑為極端恐怖分子，包括渥太華市長以及多名自由黨議員，此前都曾在不同場合公開將該縱火案歸咎於自由車隊的卡車司機，並最終通過以上栽贓陷害手段，違法啟動了[緊急狀態法]對和平集會進行了鎮壓。
+文字版原文：[单伟建出任阿里巴巴新任独立董事](https://gnews.org/zh-hans/2214926/)
 
-校對編輯：硫酸羥氯喹64
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-發稿：青青
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新聞來源： [https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/](https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

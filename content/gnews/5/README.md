@@ -2,13 +2,30 @@
 ---
 
 
-## 3月23日文贵大直播要点（图片1-9）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2219882/)
+## 樱花时政┃美国宣布俄罗斯犯下战争罪 强调追究责任
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2219887/)
 
-设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/03/171261D9-32B1-41FA-96D6-E467097B81E4.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/5A3EF6B7-47C7-40A5-AA78-A9446080E29D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/347AD6D8-B50E-4499-8262-8C3E81A2313D.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/BE5AE04C-D97C-4411-8932-DF9F1FB1F4C5.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/EC80EA50-C5D2-4694-A606-46F3D555E8A3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/23B70581-AA68-41B8-8EFC-B2068DBEA75E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/C5055D91-7EF9-4A44-9B6E-3A9557F170B3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/1E098C14-6634-4795-A607-6D401C2FF99F.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/6EF3E2AF-15B7-4F1F-ACAF-12BD877DAA62.jpeg)
-发布： 水涨船高
+撰稿：东京樱花团 文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2756.png)照片来源：本文链接
+据NHK新闻3月24日报道，美国国务卿布林肯23日发表声明，正式宣布俄罗斯军队对乌克兰的军事入侵是犯下了战争罪。
 
+声明说，有“许多无差别的攻击和故意以平民为目标的攻击”的可靠报告，这是对公开信息和情报机构分析得出的结论。
+
+应各国要求，位于荷兰海牙的国际刑事法院正在调查俄罗斯军队入侵乌克兰涉嫌犯下的战争罪和反人类罪。
+
+此前，美国宣布已开始调查此事，拜登总统严厉谴责普京总统是战犯，国务卿布林肯也做了同样表述。
+
+布林肯在一份声明中说：“美国政府将继续跟进对俄罗斯战争罪行的调查，并与盟友和国际组织分享信息。我们将尽全力追究责任。“
+
+同日，俄罗斯外交部宣布将美国外交官驱逐出境。理由是对此前美国驱逐12名俄罗斯外交官的反制措施。
+
+在23日的新闻发布会上，美国国务院发言人普莱斯说：”保持沟通渠道畅通是至关重要的，特别是在紧张局势或冲突加剧的时候。“他说：”如果我们的人员受到进一步限制，这将使美国驻俄罗斯大使馆更难继续开展工作。”
+
+消息来源：[米 「ロシア軍 戦争犯罪行った」と声明 責任追及する考え強調](https://www3.nhk.or.jp/news/html/20220324/k10013548631000.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
