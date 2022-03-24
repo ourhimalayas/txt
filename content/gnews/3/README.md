@@ -2,11 +2,11 @@
 ---
 
 
-## 共产党将在中东点燃战火，围魏救赵！企图以石油截击西方制裁（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219546/)
+## 孙力军刘彦平被抓始末（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219695/)
 
 **PPT制作: 0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10_10-20二1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11.10-11.20-（1）.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

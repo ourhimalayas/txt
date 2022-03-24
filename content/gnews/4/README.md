@@ -2,11 +2,11 @@
 ---
 
 
-## 当中国的swift被关掉会发生什么？（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219539/)
+## 荒唐的共产党（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219675/)
 
 **PPT制作: 0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00_10-10一4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11.00-11.10-（3）.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
