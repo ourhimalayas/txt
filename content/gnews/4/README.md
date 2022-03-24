@@ -2,11 +2,11 @@
 ---
 
 
-## 无皇有主的中东时代即将到来（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219382/)
+## 2022是最黑暗的一年（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219481/)
 
-**PPT制作: 小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10.40-10.50-（2）.jpg)
+**PPT制作: Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10.50-11.00-（5）.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

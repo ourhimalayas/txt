@@ -2,33 +2,30 @@
 ---
 
 
-## 普京通过改变石油支付方式回击制裁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2218723/)
+## 美国前国务卿奥尔布赖特去世
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2218779/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1151.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MADELEINE-ALBRIGHT.jpg)
 
 
-图片来源：PNP
+图片来源：法新社
 
-周三，俄罗斯军队轰炸了乌克兰首都基辅的一些地区，而西方领导人则聚集在布鲁塞尔，计划采取更多措施向俄罗斯总统弗拉基米尔普京施压，要求其停止竞选活动。
+美国前国务卿马德琳奥尔布赖特周三因癌症去世，享年 84 岁。 她是第一位担任这个职位的女性。她的家人在周三的一份声明中宣布了这一消息。
 
-普京回应西方对俄罗斯经济造成沉重打击并冻结其资产的制裁措施时表示，莫斯科计划将其对“不友好”国家的天然气销售换成卢布——此举令国际市场感到震惊。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FOjfZodXIAg_ugS.jpg)
 
-两名消息人士称，作为莫斯科队伍出现裂痕的迹象，普京的资深助手阿纳托利·丘拜斯因乌克兰战争而辞职，并离开俄罗斯并无意返回。自普京于 2 月 24 日发动入侵以来，他是第一位与克里姆林宫决裂的高级官员。
 
-普京宣布俄罗斯将把某些天然气销售换成卢布，这让欧洲期货飙升，因为担心这种转变会加剧该地区的能源紧缩，并阻碍每天高达数亿美元的交易。
+她是比尔克林顿从 1997 年开始的第二个任期内的第一位女性，此前曾担任美国驻联合国大使。 克林顿被选下台后，她还于 2001 年离开美国政府，后来在纽约证券交易所工作。
 
-俄罗斯天然气约占欧洲天然气总消费量的 40%。
+奥尔布赖特出生于布拉格的玛丽亚娜·科贝洛娃（Marie Jana Korbelova）。 她的父亲是捷克斯洛伐克的一名外交官——在那里的共产主义政变后，他于 1948 年与家人逃往美国。 女儿玛德琳当时十一岁。 由于她不是出生在美国，她从未被允许竞选总统。
 
-莫斯科制定了一份“不友好”国家名单，与实施制裁的国家相对应。它们包括美国、欧盟成员国、英国和日本等。
+直到 1990 年代中期，奥尔布赖特才得知她来自一个犹太家庭，并且她的 25 名亲戚在大屠杀期间被谋杀。
 
-普京在与政府部长的电视会议上说：“当然，俄罗斯将继续按照之前签订的合同中规定的数量和价格供应天然气。”
+在 2020 年出版《地狱和其他旅行目的地》一书之际接受 WELT 采访时，她对弗拉基米尔·普京的俄罗斯所带来的日益严重的危险表示担忧：“我多年来一直是苏联方面的专家，我关注所有直到今天，俄罗斯的事态发展非常密切。 我遇到了普京。 他破坏了中欧和东欧的民主，并对美国产生了怀疑。
 
-短评：普京在邪恶的道路上已经越走越远了。 先用核武器要挟全世界， 现在要用俄罗斯卢布进行石油支付手段， 这就是直接挑战美元和西方已有的金融秩序， 他不可能得逞。
-
-🔗 [https://www.reuters.com/world/europe/biden-heads-euan-23/](https://www.reuters.com/world/europe/biden-heads-europe-russian-offensive-stalled-besieged-mariupol-burns-2022-03-23/)
+🔗 [https://www.welt.de/politik/ausland/article237740469/Mit-84-Jahren-Fruehere-US-Aussenministerin-Madeleine-Albright-ist-tot.html](https://www.welt.de/politik/ausland/article237740469/Mit-84-Jahren-Fruehere-US-Aussenministerin-Madeleine-Albright-ist-tot.html)
 
 编辑发表： Shuizhuyu
 

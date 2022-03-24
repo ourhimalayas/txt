@@ -2,11 +2,11 @@
 ---
 
 
-## 无皇有主的中东时代即将到来（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219414/)
+## 普京事实上绑架所有俄罗斯人（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219502/)
 
 **PPT制作: Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10.40-10.50-（4）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00_10-10三3.png)
 *发布：*tianzhihuan
 
 更多资讯，请关注：
