@@ -2,75 +2,34 @@
 ---
 
 
-## 视频|波兰人和新中国联邦人在救援乌克兰难民行动中情同手足！
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2224053/)
+## 文贵爆料3.24: 东航飞机失事背后的真相
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2224063/)
 
-波兰人和新中国联邦人在救援乌克兰难民行动中情同手足
+撰稿：Skagen
 
-3月16日，新中国联邦搭建在梅迪卡救援基地的大帐篷内，
+在2022年3月23日的直播中，郭文贵先生揭露了东航飞机失事的真相是人为的自杀行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图像-3-5.jpg)
+图片：东航网站已经换成黑白色，纪念死难的机组人员和乘客
 
-波兰义工送来了亲自烤好的新鲜面包和三大箱热汤，热气腾腾、香味扑鼻，
+郭先生认识欧洲航空业的一位大佬。这位大佬认为：根据他们收到的飞行数据，这显然是一次人为操作，是一次自杀行为。
 
-加上新中国联邦现场提供的NFSC现磨咖啡，
+这位大佬强调了他的技术背景，并表示他的假设不是阴谋，而是基于数据，包括波音公司的数据 。
 
-为难民营里劳心劳力且通常只能吃到一些干粮的难民和义工献上了一顿可口的大餐。
+他描述了整个过程。这是一个自今年1月就开始计划的自杀行动。那些死于坠机的人，包括机长、机组人员和其他许多人都是由该人精心安排的。飞机被决绝拉上天，然后直接就推下去，所有的通讯都被切断了。
 
-3月16日，波兰第二大广播电台ZET记者拉法尔在梅迪卡难民营采访了新中国联邦前线记者妮可，
+“他把他该带的，都带走了”，这位欧洲航空业大佬补充说。
 
-拉法尔随后在其推特上报道了新中国联邦的救援行动：“在梅迪卡，
+郭先生说，”这个人他给共产党、给政府都留了言。如果中国共产党还有一点良知，就应该公布他的遗言”。
 
-最大的难民救援帐篷是由新中国联邦人搭建的，支持普京的共产党当局不代表中国人，
+郭先生公布了这个故事背后的悲催真相。这个人的钱都被他的雇主骗走了，他的家人也被中共折磨。此外，自从他注射了中共病毒疫苗后，早晚也活不长了。他的一些家人就已经死于中共病毒疫苗，自己也负债累累。
 
-共产党是一个独裁政权。我们与乌克兰人民并肩作战！”
+郭文贵先生说，随着中共病毒疫苗的爆发，在中共的社会中会出现大量的报复性事件。中国人互相伤害、报复社会的事件将不足为奇，如火车、飞机、医疗和汽车事故以及中毒。各种事情将会频发，谁能预测得了?
 
-3月17日，波兰边境口岸城市梅迪卡当地一家药店的女药剂师，
+郭先生最后说：共产党正在毁掉人类世界，不赶快灭了共产党，共产党就会灭了这个世界。
 
-赠送新中国联邦救援团队一箱医用消毒酒精，
+新闻来源：
 
-这恰好正是战友们要去订货的医用物资，可谓心心相印、雪中送炭啊！
-
-新中国联邦人、乌克兰人和波兰人都受到共产极权的统治、剥削和迫害，
-
-在与共产主义势不两立的态度上我们是决绝的、一致的，我们患难与共、情同手足！
-
-【盖文】：我们和乌克兰人站在一起！得道者多助，
-
-得道的乌克兰人得到了全世界的大力支持和援助，
-
-得道的新中国联邦人得到了全世界的认可和赞许，
-
-热心和好客的波兰人为乌克兰人和新中国联邦人极尽地主之宜！
-
-波兰人和新中国联邦人在救援乌克兰难民行动中情同手足！
-
-Polish people and Chinese people from the New Federal State of China are working together like brothers and sisters in the rescue of Ukrainian refugees!
-
-3月16日，新中国联邦搭建在梅迪卡救援基地的大帐篷内，波兰义工送来了亲自烤好的新鲜面包和三大箱热汤，热气腾腾、香味扑鼻。新中国联邦的义工为现场难民们提供的NFSC现磨咖啡，香气四溢。美食加咖啡让帐篷里那些被迫逃离家园、惊恐疲惫的难民们感受到了爱与温暖，家一样的味道让他们暂时忘却了战争，得以放松。
-
-On March 16th, inside the large tent set up by the New Federal State of China at the Medyka rescue base, Polish volunteers brought in homemade fresh bread and three large boxes of hot soup, which were hot and smelled delicious.  The volunteers of the New Federal State of China provided freshly ground coffee to the refugees on site. While the refugees were forced to flee their homes and were frightened and tired, the delicious food and coffee in the tent made them feel comforted, and the home-like taste made them forget the war for a while and relax.
-
-3月16日，波兰第二大广播电台ZET记者拉法尔在梅迪卡难民营采访了新中国联邦前线记者妮可，拉法尔随后在其推特上报道了新中国联邦的救援行动：“在梅迪卡，最大的难民救援帐篷是由新中国联邦人搭建的，支持普京的共产党当局不代表中国人，共产党是一个独裁政权。我们与乌克兰人民并肩作战！”
-
-On March 16th, Rafal, a reporter for ZET, the second largest radio station in Poland, interviewed NFSC frontline reporter Nicole in the Medyka refugee camp, and Rafal later reported on NFSC’s rescue operation on his Twitter account: “In Medyka, the largest refugee rescue tent was set up by the NFSC,. The pro-Putin Chinese Communist Party do not represent the Chinese, the Chinese Communist Party is a dictatorial regime. We stand side by side with the Ukrainian people!”
-
-3月17日，波兰边境口岸城市梅迪卡当地一家药店的女药剂师，赠送新中国联邦救援团队一箱医用消毒酒精，这恰好正是战友们要去订货的医用物资，可谓是心心相通、雪中送炭啊！
-
-On March 17th, a female pharmacist from a local pharmacy in the Polish border crossing city of Medyka presented the New Federal State of China rescue team with a box of medical disinfectant alcohol, which happened to be the medical supplies that the fellow fighters were going to order. It was an act full of empathy and perfect timing!
-
-新中国联邦人、乌克兰人和波兰人都受到共产极权的统治、剥削和迫害，在与共产主义势不两立的态度上我们是决绝的、一致的，我们患难与共、情同手足！
-
-The people from the New Federal State of China, Ukraine and Poland, all of whom were victims of exploitation and persecution by communist totalitarianism are united in our defiance against communism.  We share hardships together and love each other like family!
-
-【盖文】：我们和乌克兰人站在一起！得道者多助，得道的乌克兰人得到了全世界的大力支持和援助，得道的新中国联邦人得到了全世界的认可和赞许，热心和好客的波兰人为乌克兰人和新中国联邦人极尽地主之宜！
-
-[GETTER] We stand with the Ukrainians! The righteous Ukrainians have received great support and assistance from all over the world, the righteous New Federal State of China has received worldwide recognition and praise, and the warm-hearted and hospitable Polish have done their best to be hosts for the Ukrainians and the New Federal State of China!
-
-【撰稿】：6zero4
-
-【翻译】关键时刻
-【剪辑】皮皮虾
-
-发布：奇门遁甲
+[Miles Guo broadcast March 23 Wednesday](https://gettr.com/post/p11h7xt9462)
 
  
 

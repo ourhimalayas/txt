@@ -2,20 +2,25 @@
 ---
 
 
-## 共产党把整个最美好的、最勤劳的中华民族变成了荒凉的死亡之谷的精神境界
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2224138/)
+## 拜登政府正在对中共实施二级制裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2224152/)
 
-《2022年03月15日文贵大直播》节选
+作者：加拿大温哥华扬帆农场 – 文莱
 
-一旦中国发动战争，谁会去救济我们？ 现在全世界都恨中国人，而且中国人现在穷得连饭都吃不饱，连养老保险都没有，连社保都没有是不是？ 你每天提着裤子去支持俄罗斯，你简直是疯了。共产党现在把整个的一个最美好的，最勤劳的一个族类变成了一个荒凉的死亡之谷的精神境界，中国人每次行动、每次张嘴说话都在拉仇恨，就怕全世界不恨我们。
+据【零对冲】3月22日报道，美国国务卿布林肯日前宣布，将对中共各级官员实施更多签证限制，以打击和惩罚该政权继续猖狂支持俄罗斯对抗和逃避西方制裁的恶行。
 
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2828.png)图片来源：https://dubaiburjkhalifas.com
 
-素材，剪辑，字幕：小蜜蜂 | 发布：James文棟
 
-更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
+据悉，尽管拜登政府尚未公布将受到签证限制的中共官员名单和人数，但该措施被认为是前川普政府所制定相同政策的加强版，并将更有效地禁止中共官员及其家属进入美国。
 
+对此，文贵先生指出，美国政府目前正在全力对中共国实施二级制裁，对象包括其主要媒体平台，电信公司，各大银行以及粮食机构，特别是中共在海外的代理人，例如吴征和单伟健等，都将成为被围剿的首要目标。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源：[US Unexpectedly Sanctions China Officials Hours After Demanding Beijing Condemn Russia | ZeroHedge](https://www.zerohedge.com/markets/us-expands-travel-bans-chinese-officials-hours-after-demanding-beijing-condemn-russia)
 
  
 
