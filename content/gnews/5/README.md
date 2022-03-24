@@ -2,44 +2,14 @@
 ---
 
 
-## 以太坊的区块链正在接近一个巨大的转折点，可能会推动以太币的市场价值超过比特币
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2221280/)
+## 【 蓝枫法律 】 第四十七期 – 法律你我她：残障人士权利及相关法律 &#8211; PPT展示
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2221299/)
 
-翻译整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-24-下午4.17.31.png)图片来源：互联网
-第二大加密货币以太币背后的区块链很快将进行一次备受瞩目的升级，这可能会导致更多机构投资者将资金投入网络，并帮助提升以太币的价格。
+#### **加拿大温哥华扬帆农场 – 蓝枫法律**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-280.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-162.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-139.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-88.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-95.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-62.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/20-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/21-5.png)
+**直播视频：**[**https://gettr.com/post/p10ut5f638a**](https://gettr.com/post/p10ut5f638a)
 
-此次升级的目的是使区块链以太坊更具可扩展性、安全性和可持续性。这一技术的提升将淘汰之前被世人所诟病的，需要消耗巨大能量的加密货币开采技术。
-
-截至目前，比特币是市场价值最大的加密货币，超过8040亿美元。但以太币–目前市值超过3600亿美元–在被称为 “合并 “的基础设施升级后，可能成为领导者。
-
-虽然时间表还没有确定，但行业观察人士推测，”合并 “可能在今年夏天发生。投资者已经在为此下注，而且资金量非常大。
-
-除了为以太坊提供动力外，以太坊还被去中心化金融（DeFi）应用和不可伪造的代币项目（NFT）所采用，因此升级可能会大幅提高其估值。
-
-转向权益证明将使能源使用减少 “99%
-
-以太坊目前依赖于所谓的工作证明，其中矿工必须完成复杂的算法，以验证交易并创造新的加密货币。这一过程需要大量的计算机功率，并且由于其对环境的影响而经常受到批评。
-
-目前，以太坊有工作证明链和权益证明链在平行运行。虽然两条链都有验证者，但目前只有工作证明链在处理用户的交易。一旦合并完成，以太坊的区块链将完全转向权益证明链，称为信标链，使加密货币的挖矿技术变得过时。
-
-因此，据预测，以太坊的能源消耗将减少99%。由于减少了对环境的影响，人们认为更多的机构投资者会想要购买以太币，使用其区块链，投资其网络，并创造更大的采用率。
-
-以太坊开发者上周成功测试了这种转变，作为合并的最后准备工作的一部分，这增加了围绕升级潜力的看涨情绪。
-
-虽然“合并“预计在几个月前就会完成，后被推迟，但以太坊开发者Tim Beiko告诉彭博社，”今年如果没有灾难性的事件发生，可以完成。”
-
-通过与权益证明链的合并，以前由矿工赚取的费用将转为由权益质押者赚取。IntoTheBlock报道说：”这预计将导致7%至12%的质押奖励。
-
-他说，转向权益证明的做法实际上会提高安全性，防止潜在的黑客攻击。
-
-他说：”在权益证明下，如果发生攻击，我们可以简单地升级网络，删除攻击者的硬币。
-
-原文链接：[Ethereum’s blockchain is nearing a huge turning point that could push Ether’s market value ahead of Bitcoin’s](https://fortune.com/2022/03/23/ethereum-merge-bitcoin/)
-
-* * *
-
-*编辑&发布：长岛开心*
+**编辑****/****发文：蓝枫法律栏目**
 
  
 

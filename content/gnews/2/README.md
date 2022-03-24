@@ -2,42 +2,36 @@
 ---
 
 
-## 普京入侵乌克兰后第一位与克里姆林宫决裂的高级官员
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2221297/)
+## 中日财经爆┃中共将在俄罗斯推出银联双标卡 帮助逃避西方制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221386/)
 
-翻译整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-24-下午4.26.37.png)图片来源：互联网
-阿纳托利-丘拜斯已经辞去了弗拉基米尔-普京总统特使的职务，这是普京一个月前发动对乌克兰的入侵以来，第一位与克里姆林宫决裂的高级官员。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
+俄罗斯被西方踢出SWIFT系统后，众多俄罗斯银行转投中共银联系统，以逃避西方经济制裁。与此同时，美国政府严正警告中共不要帮助俄罗斯逃避金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-163.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.ixbt.com/img/n1/news/2022/2/1/62161_0_large.jpg&amp;imgrefurl=https://digitnews.in/more-than-a-third-of-russians-intend-to-issue-a-mir-card-unionpay/&amp;tbnid=jBWBWg0B43DiPM&amp;vet=12ahUKEwjkvKHYod72AhV_TPUHHZpABRoQMygDegUIARC9AQ..i&amp;docid=MxS-nADtKzunXM&amp;w=1800&amp;h=960&amp;q=UnionPay&amp;ved=2ahUKEwjkvKHYod72AhV_TPUHHZpABRoQMygDegUIARC9AQ)
 
-克里姆林宫发言人德米特里-佩斯科夫周三告诉俄新社，丘拜斯已经辞职，并补充说他是自己主动辞职的。
+俄罗斯被西方踢出SWIFT系统后，众多俄罗斯银行转投中共银联系统，以逃避西方经济制裁。
 
-熟悉此事的一位消息人士告诉路透社，曾经担任前总统叶利钦办公室主任的丘拜斯离开了普京与国际组织关系的特别代表的职位。
+俄罗斯卫星通讯社3月23日报道，广受俄罗斯人欢迎的维萨和万事达卡暂停运营后，俄罗斯客户对中国银联支付系统需求旺盛，甚至造成俄罗斯银行相关服务跟不上其需求的现象。现在，俄罗斯市场的大多数参与者尚未与银联合作。因此，许多俄罗斯银行计划在不久的将来推出MIR-银联双标卡。
 
-他于2020年被任命为该职位，负责 “实现可持续发展的目标”，几天后，他辞去了自2008年以来经营的国家技术公司Rusnano的负责人。
+与此同时，美国政府严正警告中共不要帮助俄罗斯逃避金融制裁。于3月23日，美国总统拜登警告中共，不要帮普京逃避制裁带来的出口管制，或帮忙俄处理被禁止的金融交易。
 
-据路透社不愿透露姓名的消息人士称，丘拜斯因乌克兰的冲突而辞职，也已离开该国。其中一位消息人士说，他不打算返回俄罗斯。
+美国总统国家安全事务助理沙利文表示，G7很快将会宣布统一对策，以确保俄罗斯不能在中共或他国帮助下，逃避西方对其入侵乌克兰的制裁。
 
-丘拜斯是叶戈尔-盖达尔(Yegor Gaidar)领导下的一小群有影响力的经济学家之一，他们试图巩固俄罗斯的后苏联转型，这使数千万前苏联公民陷入贫困。
+信息来源：
 
-他是混乱的后苏维埃时代最杰出的俄罗斯人之一。敌人认为他是克里姆林宫的傀儡主人，在20世纪90年代的私有化中把一个前超级大国的资产卖给了一小群寡头。
+[俄罗斯客户对中国银联支付系统需求旺盛](https://www.163.com/dy/article/H359SMHK0534A4SC.html)
+[樱花时政┃拜登警告中共 不要帮助俄罗斯逃避制裁](https://gnews.org/zh-hans/2221050/)
 
-但对支持者来说，丘拜斯是一位英雄，他为在俄罗斯建立市场经济而奋斗–并防止其陷入内战。当麻烦出现时，后苏维埃时代的俄罗斯往往向丘拜斯求助。
-
-在1998年的危机中，叶利钦让丘拜斯同意接受国际货币基金组织的贷款。然后，他被任命为国有电力垄断企业的负责人。
-
-普京在1999年的一系列采访中说，当普京通过搬到莫斯科开始他的权力崛起时，丘拜斯取消了普京在克里姆林宫给他提供的工作机会。
-
-近年来，丘拜斯继续呼吁进行经济改革，是与俄罗斯政府有关的最引人注目的自由主义者之一。
-
-入侵事件发生后不久，丘拜斯写道，自从盖达尔2009年去世后，整个时代已经过去。
-
-丘拜斯说：”看来盖达尔比我更了解战略风险 – 而我错了。”
-
-原文链接：[Anatoly Chubais: Senior Kremlin official resigns](https://www.aljazeera.com/news/2022/3/23/anatoly-chubais-senior-kremlin-official-resigns)
-
-* * *
-
-*编辑&发布：长岛开心*
+编辑：东京樱花团/逢⑦必变
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
 
 
