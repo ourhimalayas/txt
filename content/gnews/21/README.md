@@ -2,32 +2,26 @@
 ---
 
 
-## 美国前国务卿奥尔布赖特去世
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2218779/)
+## 为严惩中共侵犯人权 美议员提案取消其永久最惠国地位
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2218847/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**撰稿：日本东京方舟农场  海星**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MADELEINE-ALBRIGHT.jpg)
+3月22日，美国众议院议员史密斯（Chris Smith）宣布，他将联合跨党派议员推出取消中共国永久贸易最惠国地位的法案，以严惩其侵犯人权的暴行。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-39.jpg)（图片来源：美联社）
 
-图片来源：法新社
+据《自由时报》报导，长期关注中共人权问题的史密斯议员于22日提出取消中共国永久贸易最惠国地位的法案。该法案得到了纽约民主党议员苏澳齐（Thomas Suozzi）和威斯康辛州共和党议员帝芬尼（Tom Tiffany）的联署，将中共国的贸易地位与其人权状况挂钩，并要求总统每年都必须证实中共在人权方面做出了很大改善才能给予其正常贸易关系地位。
 
-美国前国务卿马德琳奥尔布赖特周三因癌症去世，享年 84 岁。 她是第一位担任这个职位的女性。她的家人在周三的一份声明中宣布了这一消息。
+史密斯补充说，俄罗斯将因为普京侵略乌克兰而失去贸易最惠国地位，而在此时，中共却对俄罗斯表示支持。因此，现在提出重新评估中共国永久贸易最惠国地位的法案显得特别及时。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FOjfZodXIAg_ugS.jpg)
+此前，3位美国参议院议员科顿（Tom Cotton）、殷霍夫（Jim Inhofe）和史考特（Rick Scott）在参议院上也提出了取消中共国永久贸易最惠国地位的法案。
 
+参考链接：
+1. [https://news.ltn.com.tw/news/world/breakingnews/3868760](https://news.ltn.com.tw/news/world/breakingnews/3868760)
 
-她是比尔克林顿从 1997 年开始的第二个任期内的第一位女性，此前曾担任美国驻联合国大使。 克林顿被选下台后，她还于 2001 年离开美国政府，后来在纽约证券交易所工作。
-
-奥尔布赖特出生于布拉格的玛丽亚娜·科贝洛娃（Marie Jana Korbelova）。 她的父亲是捷克斯洛伐克的一名外交官——在那里的共产主义政变后，他于 1948 年与家人逃往美国。 女儿玛德琳当时十一岁。 由于她不是出生在美国，她从未被允许竞选总统。
-
-直到 1990 年代中期，奥尔布赖特才得知她来自一个犹太家庭，并且她的 25 名亲戚在大屠杀期间被谋杀。
-
-在 2020 年出版《地狱和其他旅行目的地》一书之际接受 WELT 采访时，她对弗拉基米尔·普京的俄罗斯所带来的日益严重的危险表示担忧：“我多年来一直是苏联方面的专家，我关注所有直到今天，俄罗斯的事态发展非常密切。 我遇到了普京。 他破坏了中欧和东欧的民主，并对美国产生了怀疑。
-
-🔗 [https://www.welt.de/politik/ausland/article237740469/Mit-84-Jahren-Fruehere-US-Aussenministerin-Madeleine-Albright-ist-tot.html](https://www.welt.de/politik/ausland/article237740469/Mit-84-Jahren-Fruehere-US-Aussenministerin-Madeleine-Albright-ist-tot.html)
-
-编辑发表： Shuizhuyu
+总编：青城道姑
+校对发布：Linda
 
  
 
