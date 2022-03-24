@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-最新战况播报
+![img](https://media.gettr.com/group20/origin/2022/03/24/04/94bda7eb-3f87-5ac5-d0cb-5f170605477e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/24/2022 2:34 AM (UTC)`
 
 2022-3-23《鸡血王喜币大作战》 第一百四十三集 嘉宾：Nick、七里香
@@ -146,13 +153,6 @@ In this report published by #Spanish press #Republica, the #NFSC and #ROLF #huma
 
 A very popular young singer, Tsewang Lobu, in the Tibetan community as well as mainland China. He was an absolute supporter of the New Federal State of China and the Whistleblower Movement. He was threatened by the Chinese Communist State Security for spreading the real truth of the big live broadcast of the Whistleblower Movement. After claiming to have set himself on fire in protest, Tsewang Lobu was killed and burned by brutal Chinese Communist police at the age of just 25.<br/>中国大陆非常受欢迎的年轻藏族歌手才旺罗布是爆料革命新中国联邦的绝对支持者。因为传播爆料革命大直播的真实信息，受到中共国安威胁。才旺罗布声称自焚表达抗议后，被残暴的中共警察打死后焚烧，年仅25岁。
 ![img](https://media.gettr.com/group8/origin/2022/03/23/18/6bb47e6a-b367-7442-8055-01acdad91654/out.jpg)
-
----
-
-`@miles 3/23/2022 5:25 PM (UTC)`
-
-2022/03/23  今天我第一次用Hpay 在G｜Fashion 网站上购买了衣服，非常的便捷和快速，这是具有历史性的时刻！ 从来没有一个数字货币能在一个实体店这样的快速交易付款。  你可以在世界的任何角落用Hpay 来购买GF的产品，绝对的跨国界，全球化! 你只需要扫一下二维码，点击付款即可！  简直太棒了， 希望大家都来体验一下这种快捷便利的付款方式，给你不一样的消费体验！@gfashion @DDNYC 
-![img](https://media.gettr.com/group12/getter/2022/03/23/17/588009e5-fe08-299a-cbb4-c233fdad3605/bae260f3567d27806cbbcdcd4a43a41e.jpg)
 
 ---
 

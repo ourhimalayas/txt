@@ -2,11 +2,11 @@
 ---
 
 
-## 中共对外开战对内内战的开始（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220525/)
+## Hpay的好处（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220626/)
 
 **PPT制作:玉米地的小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11.30-11.40-（2）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11.50-12.00-（7）.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

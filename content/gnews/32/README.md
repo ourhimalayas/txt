@@ -2,35 +2,33 @@
 ---
 
 
-## 泽连斯基痛批联合国不作为并呼吁改革
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2220011/)
+## 澳洲亿万富豪克莱夫·帕尔默在感染新冠病毒后选择服用伊维菌素和羟氯喹
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2220015/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpKCQGZI.jpg)乌克兰总统泽连斯基23日在日本国会发表视频演讲
-据美国之音3月24日报道，乌克兰总统泽连斯基23日在日本国会发表演说，赞扬日本是亚洲第一个对俄罗斯施压的国家。他痛批联合国在制止侵略上无能为力，呼吁对联合国进行改革，对俄罗斯加强施压。由于俄罗斯是联合国安理会拥有否决权的常任理事国，因此可以有效阻止联合国安理会就俄罗斯入侵乌克兰进行谴责或采取反制行动。
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608.png)![Finally, Clive Palmer to pay out $110m](https://cdn.newsapi.com.au/image/v1/aa09d6efb8ea298e2ef7d02a273fbdf2)图片来自网络
+帕尔默先生于今年2月27日感染了新冠病毒，被紧急送进医院。医生告诉他，他的肺部发炎，需要进入急救室并上呼吸机，遭到帕尔默先生的拒绝。
 
-在俄罗斯入侵乌克兰之后，岸田政府谴责俄罗斯的侵略暴行以及将包括核武在内的战略打击力量置于戒备状态的威胁行为。日本政府对莫斯科金融机构和官员以及白俄罗斯实施了严厉制裁。日本也向乌克兰提供了价值几百万美元的人道主义和其他援助。
+在他的家中，一个由四名医生组成的团队听取了美国专家关于如何治疗的指示。帕尔默先生说他被注射了超强的类固醇药物—地塞米松，以保持他肺部功能。
 
-日本是全世界唯一一个遭受过核打击的国家，1995年日本奥姆真理教在东京地铁发动沙林毒气案和2011年日本福岛核泄漏的影响迄今仍在。泽连斯基特别提醒日本国会议员要警惕俄军攻击乌克兰核电站以及占领切尔诺贝利核灾遗址可能带来的危险。
+曾经治疗过美国前总统特朗普的专家团队为帕尔默先生注入了五种抗病毒药物的鸡尾酒，其中包括伊维菌素和羟氯喹。
 
-为了获得更广泛的国际支援以及对俄罗斯的核制裁最大化，泽连斯基接连对欧洲议会以及英国、美国、德国、加拿大、意大利、日本等国国会发表演说，还预定对法国议会和北约峰会发表演说。联合国的确如泽连斯基所说，需要改革甚至废除。
+医生告诉他，如果没有这些抗病毒药物的干预，他很可能会有生命危险，因为他已经67岁了，而且体重偏高。服药10小时后，病情开始好转。
 
-中共国长期以来的种族灭绝行为联合国视而不见，甚至吸收中共国成为联合国人权理事会成员。“铁链女”事件轰动全球，第一夫人彭丽媛居然是联合国妇女儿童特使。冬季奥运会、残奥会均在中共国召开，这本身就是巨大的讽刺。上百万维吾尔人至今仍在中共国集中营里垂死挣扎，俄罗斯在乌克兰境内屠杀平民，联合国在哪里？联合国有什么行为制止战争并帮助乌克兰人逃离杀戮？联合国已经成了中共国的党支部，在中共和俄罗斯的暴行面前唯唯诺诺。
+帕尔默先生没有接种新冠疫苗。坚决反对新冠疫苗的强制接种政策。帕尔默先生说，这次濒临死亡的经历并没有改变他对接种新冠疫苗的看法。
 
-新闻参考链接：[https://www.voachinese.com/a/zelensky-slams-un-urges-reform-in-address-to-japan-20220323/6497759.html](https://www.voachinese.com/a/zelensky-slams-un-urges-reform-in-address-to-japan-20220323/6497759.html)
+帕尔默先生曾在2020年初，进口了 500 万剂，超过1吨的硫酸羟氯喹，准备用于新冠病毒的早期治疗。但由于澳大利亚药品管理局的强烈干预，这些硫酸羟氯喹被销毁。
 
-编辑：胖丁
+目前，澳大利亚负责评估新冠病毒治疗方法的安全性和有效性的治疗药物协会尚未批准用伊维菌素或羟氯喹治疗新冠病毒。
 
-* * *
+帕尔默先生在今年一月宣布，他将在今年5月举行的联邦选举中竞选澳大利亚参议员。这次生病不可避免地会影响他的竞选活动。他说，我仍然没有完全康复，很容易疲惫。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+消息来源：[Clive Palmer refused ICU treatment while battling COVID-19 in favour of taking ivermectin and hydroxychloroquine](https://www.skynews.com.au/australia-news/coronavirus/clive-palmer-refused-icu-treatment-while-battling-covid19-in-favour-of-taking-ivermectin-and-hydroxychloroquine/news-story/c6fc9735e2e93c2a2ebbc987198e2f9c)
+[反对新冠疫苗强制接种的澳大利亚亿万富豪克莱夫·帕尔默宣布竞选澳州参议员](https://gnews.org/zh-hans/1879090/)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*审核：喜国公民*
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
