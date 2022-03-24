@@ -2,35 +2,36 @@
 ---
 
 
-## 美国警告因支持俄罗斯而制裁中共，吓坏亚洲其他国家
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220370/)
+## “圣彼得堡的阴谋”将清算中共国的一切
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2220460/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/381f2a6c965f09d40315ea2461e5479d.jpg)
+3月23日大直播中，郭先生与战友分享俄乌战争接下来的可能走势。
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/np_file_148638.jpeg)President Joe Biden speaks at an event celebrating the reauthorization of the Violence Against Women Act, at the White House in Washington on Wednesday, March 16, 2022. (Kenny Holston/The New York Times)
-根据商业世界3月23日报道，美国总统拜登警告称，如果中共国支持俄罗斯，将会有不明的后果。这让亚洲小国家担心，它们会因为对普京的战争保持中立而受到类似的惩罚。
+俄罗斯对乌克兰的这场战争，普京所谓的保守估计是一周之内结束，但目前已经持续一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一个是打小规模的核战争，一个是只能停战。停战要找担保人来调停，郭先生直播中提到“圣彼得堡的阴谋”，就俄罗斯让中共国来做担保人停止这场战争，表面上看体现中共国的大国风范，联合国都做不到的事情中共国做成了。但是实际上，这会让全世界所有的中国人，信用、宗教、金融受到全方位长时间的制裁，不会再有人卖给中共国粮食，整个世界可能都要与中国人为敌。
 
-东南亚将在今年举办两次会议——二十国集团峰会和亚太经合组织论坛，通常会将拜登、普京和中共国领导人习近平聚集在一个屋檐下。准备举办峰会的两个国家——印度尼西亚和泰国，开始担心被夹在中间，尽管距离峰会还有几个月的时间，甚至不清楚普京是否会出现。
+众所周知中国共产党要挟十四亿中国人，从金钱等方面予以俄罗斯支持，并且在中东的小规模军事冲突中，军事武器无人机的提供者都是中共，只要中共在，世界上的邪恶犯罪只会越来越恶劣。习近平会把这些全部都栽赃嫁祸给美国。此次如若圣彼得堡的阴谋得逞，在全世界都知道中共是俄罗斯入侵的支持者之下，习近平出来调停战争无非是再一次用停战的借口要挟全世界，更加剧世界对无辜中国人的仇恨。
 
-据一位不愿透露姓名的知情人士透露，印尼外交部长雷特诺·马尔苏迪私下对美国威胁要对中共国实施二级制裁表示担忧，因为雅加达领导人认为北京对这场战争的立场是中立的。
+新中国联邦致力于消灭共产党解救中国人。
 
-据《国家报》报道，泰国还担心，如果美国及其盟国因俄罗斯参与而抵制亚太经合组织峰会，泰国将被迫选边站队。该报告援引泰国皇家武装部队安全中心——该国军方的一个情报部门指出，​​俄罗斯已将八名亚太经合组织成员列入黑名单，并警告说，如果战争持续下去，将对成员经济体实施更多制裁。
+撰稿、发布：骄子
 
-新加坡副总理王瑞杰周二在一次会议上说：“即使在入侵乌克兰之前，多边世界秩序就已经因大国之间的战略紧张局势而承受着相当大的压力。当前的危机将进一步加剧这些裂痕，并对国际法治构成严重威胁。”
+reference：
 
-在普京吞并克里米亚之后，俄罗斯于2014年被驱逐出八国集团，而克里米亚是在克里姆林宫支持的乌克兰领导层被推翻之后发生的。尽管如此，将俄罗斯从G-20或亚太经合组织中剔除要困难得多，因为后者拥有更多成员，其中包括普京的主要外交支持者之一中共国。
+[https://gettr.com/post/p11ke0ac549](https://gettr.com/post/p11ke0ac549)
 
-新闻来源：[US threat to sanction China over Russia support is spooking other nations in Asia](https://www.bworldonline.com/us-threat-to-sanction-china-over-russia-support-is-spooking-other-nations-in-asia/)
+* * *
 
-发布： tianzhihuan
+欢迎订阅我们的GNews账号：
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

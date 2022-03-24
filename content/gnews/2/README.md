@@ -2,38 +2,20 @@
 ---
 
 
-## 春天的思考
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2221202/)
+## 视频｜比利时病毒专家警告，疫苗接种者被变成无症状病毒传播者❗️❗️
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2221206/)
 
-作者： 香草山教育部–蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2588.jpg)
+翻译：波士顿五月花—-小南瓜，编辑：波士顿五月花—-思澈
 
-院子里的姹紫嫣红，提示着，春天已经来到。
+基特•凡登•波希博士（Dr. Geert Vanden Bossche）是比利时布鲁塞尔的一位病毒专家， 在中共病毒疫情肆虐环境中不断提醒人们警惕中共病毒疫苗。 下面就是他们最近一次在rumble  上的波希医生的公开讨论节选。
 
-我们在思考，侵略者铁蹄，何时离开别人家乡？
+短评：可以得出的结论是疫苗和疫苗接种者成了病毒传播者， 不仅没有达到群体免疫，反而是循环往复看不到群体免疫的希望。不能打现在所谓的冠状病毒疫苗,  不仅不能群体免疫还有可能**群体艾滋病，** 那将是多么可怕的事情。现在挥瑞疫苗公司和美国卫生部还在推进第三针， 理由是， 2针没有防止omicron 变种， 第3针有望达到其目的。
 
-那片肥沃的黑土地，眼看着就要荒凉，苦难的人们，该怎么度过粮荒？
+素材来源：[https://rumble.com/vy5po3-we-are-doing-the-opposite-of-herd-immunitywe-are-turning-the-jabbed-into-as.html](https://rumble.com/vy5po3-we-are-doing-the-opposite-of-herd-immunitywe-are-turning-the-jabbed-into-as.html)
 
-硝烟弥漫中的悲凉，炮火中的悲壮，无不在书写着 一个民族不屈的精。
+*发布：思澈*
 
-勇敢的乌克兰的人们，我祈求上苍对你们怜悯，上位者放下野心，屠刀不再汹涌。
 
-春天已经来到，谁也挡不住的色彩。就这样涂满了山坡和树木，勇敢的乌克兰人民 将会在战火中永生，他们用鲜血开启了 一个新的文明。
-
-编辑/审核/发稿：Bronx Bombers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6E878D77-D03C-44C7-A803-4046B28027C2.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

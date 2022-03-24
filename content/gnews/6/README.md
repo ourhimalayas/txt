@@ -2,42 +2,42 @@
 ---
 
 
-## 抱怨———通向开悟之门
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2221143/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221162/)
 
-作者：香草山医疗组火星人
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-3.png)
-每一种负面情绪都是促进我们进步的阶梯，抱怨是一种具有自我保护意识的负面情绪，它的出现一般意味着个人利益受到影响，往往是遇见构成威胁的竞争对手，然后做出的一系列行为，比如：埋怨、发怒、举报、严重者编造事实、污蔑诽谤等。事实上由于反应过激导致以上行为，也就是人为夸大了危险的存在，属于一种认知偏差。它也是一种不正常的心理模式，如果没有外界干预它会一直运行下去，对自己和周围人的危害会越来越大，从这一点说七哥在用心来帮助每一位战友的成长。当受到批评的时候只有抛弃所谓的面子和虚荣心，才能听进去不会生气和尴尬，不然只能说明我们没有活在当下。
+整理：枳实
+美工：精灵蓝
 
-抱怨并不是与生俱来，每个人来到世界上都是带着好奇和喜悦，在慢慢的长大过程中我们精神上的尘土越积越厚，不信你看看三岁之前的幼儿是如何面对陌生人和模式环境的，他们的眼中没有恐惧，从幼儿园到小学中学成人你会发现笑容离我而去，换来的就是抱怨愤怒焦虑和恐惧，就像哲学家罗素所说，人生来只是无知但不愚蠢，教育让人变得愚蠢，正如一个正常的孩子六岁之前能辨识出五颜六色但教育会让他黑白不分。最终的结果取决于所接受的教育模式——启智或者洗脑。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@9BSYAU7D_7@M795L.png)图片：雅典娜农场设计组 精灵蓝
 
-在中共教育中我们接受更多的就是抱怨和打击别人， 记忆中的学校教育就是各种惩罚，比如站讲台上自扇耳光，迟到了站外面别人下课你不能，还有奇葩的抬头看太阳，朝你吐吐沫等等可以说完全文革那一套压在几岁的孩子身上，这样的故事估计会发生在大多数中国人身上，对当时很不公平你又不能对着老师申诉，因为会招来更多的惩罚，这种情况下就会出现软性的对抗——抱怨，这是最低级的也是最安全的对抗方式，所以我们都是曾经受伤的小孩，我们要包容。
 
-人天生就是爱好和平，从脑部核磁共振得到佐证，当人们进行社交链接和利他行为时脑部部分区域出现蛋白质沉积，人们就会出现喜悦的心情。
+雅典娜疫情更新（2022年 3月23日）
 
-如何彻底祛除抱怨情绪？抱怨是对过往不公平积累起来的负面情绪。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GJE2JN4FGMHHDHUTFR0770.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/UK2BG6YDRMVHD7DY3.png)
+[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月23日改进.pdf)
 
-1.对过往的事情做个了断，分清对错，“你的所有感受都是有道理的，尤其是那些灰暗的感受，内心充满痛苦的人只要明白这样一个简单的道理，他们的痛苦就会减轻很多”。如果你认为父母有错，当你细致的审视与父母的关系，尊重了自己对父母的愤怒，于是这份愤怒就真的可以放下，愤怒放下后，对他们的爱更能充分表达出来。这时你会感觉顿时轻松下来了，没有了多余的能力让你去发泄。
+数据来源：
 
-2.抱怨还有一种情况来自于过激反应，也就是扩大了自己的危机感，根本问题是没有活在当下，意识停留在过往的故事中或者未来的幻想中，这时候应该调整呼吸用心感受你的一呼一吸，让意识回归自我，停留在自己身上，这种强烈的自我感受让你注意力集中在此时此刻，因为你担心的实际上来自于已经过去的或者未来没有都没发生的，属于臆想幻想，只有当下才是最有力量的也是最安全的最容易把控的。此时此刻，没有问题。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-也就是七哥的打坐能让我们强烈的感受身体！持续这种感觉你就不会感觉到任何危险和焦虑！
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-七哥就是榜样，跟着他走成就另一个他！
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-编辑/审核/发稿：Bronx Bombers
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6E878D77-D03C-44C7-A803-4046B28027C2.jpeg)
+[covidlive.com.au](https://covidlive.com.au/)
 
-**更多资讯，更多关注**
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发布：tianzhihuan
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

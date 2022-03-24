@@ -2,20 +2,29 @@
 ---
 
 
-## 视频｜比利时病毒专家警告，疫苗接种者被变成无症状病毒传播者❗️❗️
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2221206/)
+## 俄乌战争｜不堪千夫所指 雀巢宣布停止在俄销售咖啡等产品
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2221279/)
 
-翻译：波士顿五月花—-小南瓜，编辑：波士顿五月花—-思澈
+**图/文：CP**
+**发布时间｜24/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/不堪千夫所指-雀巢宣佈停止在俄銷售咖啡等產品.jpg)
 
-基特•凡登•波希博士（Dr. Geert Vanden Bossche）是比利时布鲁塞尔的一位病毒专家， 在中共病毒疫情肆虐环境中不断提醒人们警惕中共病毒疫苗。 下面就是他们最近一次在rumble  上的波希医生的公开讨论节选。
-
-短评：可以得出的结论是疫苗和疫苗接种者成了病毒传播者， 不仅没有达到群体免疫，反而是循环往复看不到群体免疫的希望。不能打现在所谓的冠状病毒疫苗,  不仅不能群体免疫还有可能**群体艾滋病，** 那将是多么可怕的事情。现在挥瑞疫苗公司和美国卫生部还在推进第三针， 理由是， 2针没有防止omicron 变种， 第3针有望达到其目的。
-
-素材来源：[https://rumble.com/vy5po3-we-are-doing-the-opposite-of-herd-immunitywe-are-turning-the-jabbed-into-as.html](https://rumble.com/vy5po3-we-are-doing-the-opposite-of-herd-immunitywe-are-turning-the-jabbed-into-as.html)
-
-*发布：思澈*
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
 
+自俄罗斯入侵乌克兰之后，多间国际企业纷纷宣布抵制俄罗斯，惟全球最大食品公司雀巢（Nestle）迟迟未有加入行动，引发网民发起杯葛行动。
+
+早前乌克兰总统泽连斯基(Volodymyr Zelensky)在对瑞士民众发表演说时也点名批评雀巢说：“在我们的孩子不断丧命时，它仍照常与俄罗斯做生意，这样行为与它的宣传口号『Good Food，Good Life （优质食品、美好生活）』不符。”就连国际黑客组织Anonymous（匿名者）亦声称入侵该公司资料库以示抗议，并谴责该公司未完全撤出俄罗斯市场。
+
+重重压力之下，雀巢周三（23日）终于宣布停止在俄罗斯出售旗下大部份热门产品，包括Nespresso咖啡、Kitkat朱古力及Nesquik可可粉等品牌都会即时下架，预计金额将达17亿瑞士法郎（约18.3亿美元）。雀巢表示，在俄乌战争存续期间，雀巢将只专注于提供必需食品，仅维持供应婴幼儿食品、兽医用专门食品及医疗保健产品等。
+
+据统计，现时有超过400家跨国企业停止在俄业务，惟食品及消费品巨头联合利华（Unilever）、达能（Danone）及雀巢迟迟不愿撤出，被乌克兰外交部点名威胁实施制裁后，三家企业纷纷作出让步，现时仅保留对俄罗斯奶制品、纸尿片等必需品的供应。
+
+來源｜[fortune](https://fortune.com/2022/03/23/nestle-anonymous-leak-hack-russia-business-kitkat-nesquik/)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 
