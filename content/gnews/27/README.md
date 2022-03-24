@@ -2,33 +2,25 @@
 ---
 
 
-## 今日盖特大V推荐 — 每日信号（Tim Pool）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2219608/)
+## 警方判定自由車隊與縱火案無關
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2219808/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2740-e1648081983217.png)
-盖特链接： [https://gettr.com/user/dailysignal](https://gettr.com/user/dailysignal)
+作者：加拿大溫哥華揚帆農場 – 采編： 文萊 –  編譯撰稿： 晨熹
 
-**每日信号自述：**
+據加拿大【真北方】3月21日報道，渥太華警方日前已正式確認，發起反疫苗護照運動的自由車隊與當時抗議現場附近的故意縱火案毫無關聯。
 
-关于政治和政策问题的高质量、可信的新闻报道对于知情和自由的社会至关重要。在@heritage的支持下带给你
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2742.png)图片来源：网络
-**每日信号简介**：
-
-每日信号（The Daily Signal）是一家美国保守派政治媒体新闻网站，成立于 2014年6月。该刊物关注政治、政策和文化，并从保守的角度提供政治评论。它由保守派智囊团、传统基金会出版。
-
-每日信号出版物报道了美国国内外[的](https://en.m.wikipedia.org/wiki/Foreign_policy)政治和公共政策问题，并以专注于它认为未报道或报道不足的事件。该网站依据于原始的调查报道，旨在成为一个公正的新闻来源。
-
-编撰：洛杉矶盘古农场 — 心照
-
-校审：洛杉矶盘古农场 — 郭友(文苏)
-
-发布：洛杉矶盘古农场 —子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2735.png)圖片來源：The True North
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+據悉，警方現已對發生於2 月 6 日的渥太華市區公寓縱火案中的一名嫌犯提起刑事訴訟，而另一名已被確認的嫌犯正在追捕之中。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+報道指出，為將反疫苗護照抗議運動的參與者抹黑為極端恐怖分子，包括渥太華市長以及多名自由黨議員，此前都曾在不同場合公開將該縱火案歸咎於自由車隊的卡車司機，並最終通過以上栽贓陷害手段，違法啟動了[緊急狀態法]對和平集會進行了鎮壓。
+
+校對編輯：硫酸羥氯喹64
+
+發稿：青青
+
+新聞來源： [https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/](https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/)
 
  
 
