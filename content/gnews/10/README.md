@@ -2,34 +2,19 @@
 ---
 
 
-## 今日盖特大V推荐 — 每日信号（The Daily Signal）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2224169/)
+## 香港经历大灾难后一定会重生
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2224170/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2829-e1648144725545.png)
-盖特链接： [https://gettr.com/user/dailysignal](https://gettr.com/user/dailysignal)
+《2022年03月17日文贵大直播》节选
 
-**每日信号自述：**
+二战香港人80%的人给杀光 。130万人，最后剩了不到20万人。 香港的半岛酒店就是当时的日本的日军总部。在香港的中环，还有今天的潜水湾大街上，无数个女孩儿光着个屁股，拿绳栓着一串一串当性奴，比“锁链女”还惨……最后英军来了，也不是你想象的对香港人就像亲爹亲娘一样，不是的。 英军当时很排华。当时就在那个铜锣湾 英国人是站在台下面看跑马，中国人是在外面看，而且另外一边，你不能碰人家英国人，你是小猪猡，离得远点，种族歧视很严重。英军不是在香港都是绝对的好，它有很多错误，很多(不)人道，但肯定比共产党好，比日本人好得多。 就这样，香港最后成了这么伟大的港。
 
-关于政治和政策问题的高质量、可信的新闻报道对于知情和自由的社会至关重要。在@heritage的支持下带给你
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2742.png)图片来源：网络
-**每日信号简介：**
+* * *
 
-每日信号（The Daily Signal）是一家美国保守派政治媒体新闻网站，成立于 2014年6月。该刊物关注政治、政策和文化，并从保守的角度提供政治评论。它由保守派智囊团、传统基金会出版。
+素材，剪辑，字幕：小蜜蜂 | 发布：James文棟
 
-每日信号出版物报道了美国国内外[的](https://en.m.wikipedia.org/wiki/Foreign_policy)政治和公共政策问题，并以专注于它认为未报道或报道不足的事件。该网站依据于原始的调查报道，旨在成为一个公正的新闻来源。
-
-编撰：洛杉矶盘古农场 — 心照
-
-校审：洛杉矶盘古农场 — 郭友(文苏)
-
-发布：洛杉矶盘古农场 —子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 7:00 PM (UTC)`
+
+
+![img](https://media.gettr.com/group23/origin/2022/03/24/18/ce279f72-a6f3-f9b9-b079-3d3cd052012b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayadcfarm 3/21/2022 5:36 PM (UTC)`
@@ -152,13 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 3/23/2022 Miles Guo: Xi Jinping managed to accomplish the following three things that he had planned to do before he came to power: 1) purge of the Party; 2) taking down the Princelings of the CCP; and 3) bringing down the warlords and wealthy tycoons. Xi is ruthless, and such a personality is very much like that of the head of a gang. He will reduce to ashes those whom he is determined to eliminate. He will support whoever he likes even if they are demons.<br/><br/>3/23/2022 文贵直播：习近平上台前要做三件事：1）清党；2）干掉太子；3）干掉军阀财阀，他都做到了；习混不吝的个性很像黑社会老大，决心要办的人必将其挫骨扬灰，对上眼的人哪怕是魔也要挺<br/>
 ![img](https://media.gettr.com/group5/getter/2022/03/24/06/6a0d6a06-2325-cd84-98a7-b77e18156a45/out.jpg)
-
----
-
-`@miles 3/24/2022 7:02 AM (UTC)`
-
-3/23/2022 Miles Guo: The CCP caused the death of 80 million people in the Cultural Revolution and hundreds of thousands in the Siege of Changchun. The Soviet Union was the country that caused the most harm to China. First, the CCP came from the evil communist demon of the Soviet Union. Second, the Soviet army killed countless Chinese and robbed enormous lands from China. Third, the Soviet Union wanted to turn China into its colony and treat the Chinese as slaves. Without the Sino-Soviet split and the establishment of diplomatic relations between China and the US, China would be even worse off than it already is.<br/><br/><br/>3/23/2022 文贵直播：中共造成八千万人死于文革，几十万人死于长春围城；前苏联是对中国伤害最大的国家：一，中共源于苏联的共产邪灵；二，苏军杀害了无数中国人，掠夺大片土地；三，苏联妄图把中国变成殖民地，把中国人当奴隶；若无中苏断交，中美建交，中国处境会更糟糕
-![img](https://media.gettr.com/group46/getter/2022/03/24/07/21317328-1bd3-118c-ea5a-9d7a0086ff6a/out.jpg)
 
 ---
 

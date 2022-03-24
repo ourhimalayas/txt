@@ -2,22 +2,38 @@
 ---
 
 
-## 北约官员估计入侵乌克兰一个月以来，俄军有多达15000名士兵死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224156/)
+## 俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（3/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224160/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16481441181.png)图片来源：NBC新闻
-据《真正美国之声》（Real America’s Voice）3月24日报道，本周三（3月23日），一位北约官员说，在过去一个月里，由于乌克兰人对入侵的俄罗斯军队进行了顽强的抵抗，估计已有7000至15000名俄军士兵死亡。
+翻译：zicoround
 
-这位匿名的北约高级军官告诉《美联社》，他们根据公开来源情报、乌克兰政府的信息以及俄罗斯有意和无意发布的信息来评估俄罗斯的损失，俄军估计有3万至4万名士兵被杀或受伤。考虑到估计有超过15万名俄军士兵参与了入侵，伤亡率可能高达26%。相比之下，苏联在入侵阿富汗的头十年间损失的士兵不到15000名，美国在近20年的阿富汗战争中损失的军人不到2500名。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 
-但前中情局军事分析师杰弗里·埃德蒙兹（Jeffrey Edmonds）认为7千人的死亡数字有些估计过高，真实数字更可能是4千或5千人。“通常情况下我们认为，如果军队失去三分之一的部队就没有战斗力了。因为通常在心理上，当有三分之一的人死亡或被撤离战斗之后，部队通常就不能很好地运作了。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-98.jpg)
 
-据报道，俄军现状也在恶化。乌克兰军方周二声称，俄军物资只能维持三天，供应链正濒临崩溃。
+同一天，英国首相约翰逊承诺支援乌克兰。与约翰逊会谈后，泽伦斯基总统在推特上明确表示：“在24日的重要会议前夕，收到了约翰逊的支持保证。（我们）讨论了对抗行动的经过和对乌克兰的国防援助。”
 
-*责编：白夜*
+**对乌克兰的持续攻击**
 
-新闻来源：[Up to 15,000 Russian troops dead one month into Ukraine invasion: NATO](https://americasvoice.news/justthenews/15000-russian-troops-dead-one-month-ukraine-invasion-nato/)
+自俄入侵开始以来，乌克兰4400万人口中的近四分之一被迫离开他们熟悉的家园。
+
+首都基乌市市长克里奇科说，“俄军对首都进行的攻击还在持续”，基乌已有264名平民在俄军的攻击中丧生。然而，他明确表示，基乌附近的马卡里夫和伊尔平已被乌军夺回。
+
+**接上篇：**[俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（2/3）](https://gnews.org/zh-hans/2224151/)
+
+**新闻来源：**【news.goo.ne.jp】[ロシアのウクライナ侵攻1カ月、西側は制裁強化　プーチン政権に亀裂も = 国際 – 写真 – goo ニュース](https://news.goo.ne.jp/picture/world/reuters-20220324022.html)| 发布时间：2022年03月24日
+
+审核：BryanW
+校对：宫米叶
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-98.jpg)
 
  
 

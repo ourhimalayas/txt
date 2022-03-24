@@ -2,25 +2,32 @@
 ---
 
 
-## 大部分加拿大人希望加强制裁俄罗斯
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
+## 未注射疫苗并感染了中共病毒的亿万富翁因伊维菌素和羟氯喹而得救
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2223827/)
 
-作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
+####  撰稿：彩虹   
 
-据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
+#### 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16481399011.png)图片来源：PerthNow
+根据《天空新闻台》的报道，澳大利亚亿万富翁帕尔默（Clive Palmer）感染了中共病毒（COVID-19），但在接受了曾经治疗过美国前总统川普的专家团队指导后，身体正在康复中。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
+报道说，现年67岁的帕尔默并没有接种过中共病毒疫苗，2月27日，他在悉尼感染了中共病毒变体德尔塔（Delta），被紧急送往了平达拉医院（Pindara Hospital）。
 
+这位据说身价180亿美元的富翁接受了第一次采访时说，自己被注射了超强的类固醇——地塞米松，以保持肺部功能。
 
-报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
+然后，医生告诉他，他的了双肺炎（double pneumonia）和感染了中共病毒，将被送往ICU并上呼吸机。此时，他的高级职员已经与备受争议的胃肠病学家博罗迪（Thomas Borody）教授取得联系，后者组织了美国专家进行干预。
 
-据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
+于是，帕尔默开始回家接受治疗，一个由四名医生组成的团队听取了美国专家关于如何治疗的指示，为其注入了五种抗病毒药物的鸡尾酒，而这支总部设在美国的团队则利用与澳大利亚医生的放大电话来监测帕尔默的治疗进展情况。
 
-校对编辑：硫酸羟氯喹64
+帕尔默说，“美国专家，其中几位是为川普治疗中共病毒的专家，对不使用呼吸机非常坚决。有人告诉我，如果没有那个周日晚上的抗病毒干预，我很可能在五个小时内就会死亡。但我在10个小时内就开始好转了。”
 
-发稿：青青
+而报道指出，美国专家使用的所谓鸡尾酒疗法，注入了五种抗病毒药物，其中就包括伊维菌素（Ivermectin）和羟氯喹（Hydroxychloroquine）。
 
-新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
+*责编：白夜*
+
+**新闻来源**
+
+[Clive Palmer refused ICU treatment while battling COVID-19 in favour of taking ivermectin and hydroxychloroquine](https://www.skynews.com.au/australia-news/coronavirus/clive-palmer-refused-icu-treatment-while-battling-covid19-in-favour-of-taking-ivermectin-and-hydroxychloroquine/news-story/c6fc9735e2e93c2a2ebbc987198e2f9c)
 
  
 

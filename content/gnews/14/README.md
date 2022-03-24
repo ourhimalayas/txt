@@ -2,39 +2,25 @@
 ---
 
 
-## 俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（2/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224151/)
+## 拜登政府正在对中共实施二级制裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2224152/)
 
-翻译：zicoround
+作者：加拿大温哥华扬帆农场 – 文莱
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+据【零对冲】3月22日报道，美国国务卿布林肯日前宣布，将对中共各级官员实施更多签证限制，以打击和惩罚该政权继续猖狂支持俄罗斯对抗和逃避西方制裁的恶行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-98.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2828.png)图片来源：https://dubaiburjkhalifas.com
 
-**西方的应对**
 
-当天，美国总统拜登离开美国，前往比利时和波兰访问，将会就俄罗斯入侵乌克兰和对俄制裁等问题进行磋商。他将于24日在布鲁塞尔出席北约紧急峰会、G7国家首脑和欧盟政府首脑峰会，磋商国际合作支持乌克兰的议题。
+据悉，尽管拜登政府尚未公布将受到签证限制的中共官员名单和人数，但该措施被认为是前川普政府所制定相同政策的加强版，并将更有效地禁止中共官员及其家属进入美国。
 
-北约紧急峰会前，秘书长斯托尔滕贝格在一次记者会上宣布，有可能决定，在靠近俄罗斯的东欧增加防御能力。他明确表示，由于乌克兰危机，北约需要重新考虑其长期遏制力和防御态势，该议题将在6月的马德里例行峰会上进行磋商。
+对此，文贵先生指出，美国政府目前正在全力对中共国实施二级制裁，对象包括其主要媒体平台，电信公司，各大银行以及粮食机构，特别是中共在海外的代理人，例如吴征和单伟健等，都将成为被围剿的首要目标。
 
-然而，斯托尔滕贝格也表示，北约不会向乌克兰部署军队，“向乌克兰提供支援极为重要。同时，防止这场冲突发展成北约和俄罗斯之间的全面战争也是极为重要的”。
+校对编辑：硫酸羟氯喹64
 
-**接上篇：**[俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（1/3）](https://gnews.org/zh-hans/2224121/)
-**接下篇：**俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（3/3）
+发稿：青青
 
-**新闻来源：**【news.goo.ne.jp】[ロシアのウクライナ侵攻1カ月、西側は制裁強化　プーチン政権に亀裂も = 国際 – 写真 – goo ニュース](https://news.goo.ne.jp/picture/world/reuters-20220324022.html)| 发布时间：2022年03月24日
-
-审核：BryanW
-校对：宫米叶
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+新闻来源：[US Unexpectedly Sanctions China Officials Hours After Demanding Beijing Condemn Russia | ZeroHedge](https://www.zerohedge.com/markets/us-expands-travel-bans-chinese-officials-hours-after-demanding-beijing-condemn-russia)
 
  
 

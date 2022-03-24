@@ -2,28 +2,32 @@
 ---
 
 
-## 北京累计接种6000万剂毒疫苗，或后果严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2216875/)
+## 疫情｜韩国累计确诊数破千万大关 重症及死亡率持续居高不下
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2220538/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-118.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2F5630979%2Fimages%2F4f8e0945577e456981bf7dd71e0625a1.JPG&amp;imgrefurl=http%3A%2F%2Fwww.gov.cn%2Fxinwen%2F2021-08%2F12%2Fcontent_5630979.htm&amp;tbnid=qZXwQYF-4Mc5bM&amp;vet=12ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ..i&amp;docid=7aDBHwfrkPe6oM&amp;w=800&amp;h=533&amp;q=%E6%8E%A5%E7%A7%8D&amp;ved=2ahUKEwjX2tGrl9z2AhW4VPEDHYreCH8QMygNegUIARCbAQ)
-3月23日每日经济报报道，截至2022年3月22日，北京市累计报告接种中共病毒（新冠病毒Covid-19）疫苗5999.59万剂次，累计接种2283.80万人。
+**图/文：CP**
+**发布时间｜24/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國累計確診數破千萬大關-重症及死亡率持續高企.jpg)
 
-截至2022年3月22日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗323460.1万剂次。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-在两个月前的1月8号北青网报道，根据北京市卫健委刚刚发布的消息，截至2022年1月7日，北京市累计报告接种新冠病毒疫苗5725.15万剂次，累计接种2247.80万人。
 
-2021年人口普查北京总人数：全市总人口（常住人口）为2189.3095人，时至今日累计接种2283.80万人，接种人口已超出全市常住人口90多万，接种中共病毒疫苗5725.15万剂次，累计接种毒疫苗已接近超出全市人口三倍数量。
+韩国 Omicron 确诊病例数持续于高峰位徘徊，防疫部门周三(23日）公布，过去 24 小时，新增病例 49 万 881 例，累计确诊人数突破 1,000 万，即 1,042 万 7,247例，约为韩国人口的20%。若不计重复感染，相当于每5名韩国人中有一人染疫。
 
-毒疫苗引起人体各种不适症状灾难频频出现，而中共大力掩盖否认是毒疫苗造成的后遗症，中共政府以防疫为借口，懒政管理施行“一刀切”，把防控措施做到层层加码，强制隔离强制接种毒疫苗，大面积的次生灾害和毒疫苗灾难将随时到来。
+韩国政府原本估计新冠肺炎的单日确诊率会在本月12至22日间见顶，23 日达至最高峰 50 万，之后稳定回落。而且按照其他国家经验，当累计确诊数达到整体人口两成时，疫情扩散可望开始减慢，但据目前形势来看，韩国防疫部门对此持悲观态度。
 
-消息来源：
+要知道，直至今年2月6日，韩国总体病例总数才刚刚突破 100 万例，这期间经历了近 746 天（自2020 年 1 月 20 日确诊首例国内病例起计），但仅仅一个半月后，累计病例就突破了 1000 万大关。换句话说，在七成韩国民众都完成疫苗加强剂注射的情况下，今年1月1日起至今累计病例 930.5919 万例，占总体病例的93.65%。
 
-[【北京市累计报告接种新冠病毒疫苗5999.59万剂次，累计接种2283.80万人】](https://ms.mbd.baidu.com/r/Di5TTKjwwo?f=cp&amp;rs=397575460&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=26a48bfa4bb9d34c&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+最为重要的是，不仅确诊率未见趋缓，死亡及重症人数亦维持在高峰位，22日报告384人新冠死亡个案，连续第6天单日死亡人数超过 300 例。另外，重症亦连续第 16 天维持超过 1,000 例（1,084例），全国重症病床使用率已经接近70%。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+目前，韩国已经成为全球单日确诊人数最多的国家。因此，当地专家认为，随着21日起放宽限聚至8人，且传播力更强的Omicron亚型BA.2病例剧增，预计疫情趋缓还需要一段时间。
+
+**来源｜**[**Hani.kr**](https://www.hani.co.kr/arti/english_edition/e_national/1035977.html)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
