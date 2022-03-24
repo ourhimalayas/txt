@@ -2,38 +2,34 @@
 ---
 
 
-## 中日财经爆┃中共将在俄罗斯推出银联双标卡 帮助逃避西方制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221386/)
+## 大直播后记：躺平币因大升级而推迟面世
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2221433/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-俄罗斯被西方踢出SWIFT系统后，众多俄罗斯银行转投中共银联系统，以逃避西方经济制裁。与此同时，美国政府严正警告中共不要帮助俄罗斯逃避金融制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-163.png)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.ixbt.com/img/n1/news/2022/2/1/62161_0_large.jpg&amp;imgrefurl=https://digitnews.in/more-than-a-third-of-russians-intend-to-issue-a-mir-card-unionpay/&amp;tbnid=jBWBWg0B43DiPM&amp;vet=12ahUKEwjkvKHYod72AhV_TPUHHZpABRoQMygDegUIARC9AQ..i&amp;docid=MxS-nADtKzunXM&amp;w=1800&amp;h=960&amp;q=UnionPay&amp;ved=2ahUKEwjkvKHYod72AhV_TPUHHZpABRoQMygDegUIARC9AQ)
+整理：美哥、铁血丹心
+编辑：小红帽
 
-俄罗斯被西方踢出SWIFT系统后，众多俄罗斯银行转投中共银联系统，以逃避西方经济制裁。
-
-俄罗斯卫星通讯社3月23日报道，广受俄罗斯人欢迎的维萨和万事达卡暂停运营后，俄罗斯客户对中国银联支付系统需求旺盛，甚至造成俄罗斯银行相关服务跟不上其需求的现象。现在，俄罗斯市场的大多数参与者尚未与银联合作。因此，许多俄罗斯银行计划在不久的将来推出MIR-银联双标卡。
-
-与此同时，美国政府严正警告中共不要帮助俄罗斯逃避金融制裁。于3月23日，美国总统拜登警告中共，不要帮普京逃避制裁带来的出口管制，或帮忙俄处理被禁止的金融交易。
-
-美国总统国家安全事务助理沙利文表示，G7很快将会宣布统一对策，以确保俄罗斯不能在中共或他国帮助下，逃避西方对其入侵乌克兰的制裁。
-
-信息来源：
-
-[俄罗斯客户对中国银联支付系统需求旺盛](https://www.163.com/dy/article/H359SMHK0534A4SC.html)
-[樱花时政┃拜登警告中共 不要帮助俄罗斯逃避制裁](https://gnews.org/zh-hans/2221050/)
-
-编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1647493741430-3.jpg)图片来源：雅典娜农场设计组（614）
 
 
+第一，比特币流通成本太高了。第二，以太币也很夸张。未来你大面积地使用和交易时，你就使用不了。还有加密技术的一代和二代是天壤之别，在使用度，感受度都有天壤之别。第三，数据链的币更夸张，非常的快，极为准确。热钱包和冷钱包，你绝对没法破解。安全性也完全不一样，而且还有更多的发展空间。
+
+未来是什么情况？第三代币，你能把它放到一个电子表里边，能储存数据里边的1/3的信息，就存在一块儿表里。你想这个有多可怕。现在一个超级电脑才能放下一个中心，这很可怕。但是他告诉我说，如果真正去中心化的币，你要真做的话，我可以告诉你，我给你加密到准量子储存（水平），就是没人可破了。这一下我来兴趣了，我说，这样的话，能不能让这个币在全球（流通）？
+
+我今天直播最想说的是，为什么人家的财富被限制？花钱被限制？这是绝不可接受的。在全世界，它已经不是共产党的问题了，是全人类的问题。如果我们这个币能解决在全球任何地方，就是CDN这个公司，有它网络的地方就可以花这个币，而且这个币的定价和稳定性极好，绝对精准化。就发展完，咱不要了或者找一个组织委托，现在有全球有7000多家专给人家来写数字化币的人，他们联合写出一种程序放上去，它就自然生成躺平币。也就是你到这个Gnews上看一次，得到一个币。例如，到其他地方，比如说买面包，你买面包多少钱一个币，都是固定化的。大家劳动即财富，财富既享用，享受就任何人不能管，全球化，无国界。
+
+这把他弄得兴奋得不行了。他说，你愿意拿出这些钱来做？我说，我当然愿意拿出钱，我可以一分钱回报不要。我说，我找所有投资者。我找了第一个投资者就是一个我们新加坡的战友。我说，你愿不愿意做这个事情？就我这一嗓子喊出去，多少个战友要捐。就是用近10亿美元建一个人类上最安全的，加密的，让这些穷人永远享受不受控制的躺平币。所以这个（躺平币推出的）时间可能会推迟。这个时间可能会推迟到9月、10月甚至年底，但是这个币绝对比原来咱设想的躺平币（更好）。那个时候（躺平币）主要是对咱华人，还很狭隘，还局限在爆料革命。现在我想真正能拯救人类的币。
+
+你知道接下来的两三年，未来世界上什么最值钱吗？你们四个都能回答我吗？ 未来人类生活当中，你使用的东西什么会最值钱？我告诉你，第一就是水，人类可以有新的能源，人类可以有各种代替能源，但是真正的，大自然的水会比什么都贵。第二就是食物，就是我们吃的，基本所需的饭，未来几年绝对会贵到你无法（想象）。黄金，钻石对你来讲绝对是累赘。什么汽车，房子，你忘掉吧。你们绝对要相信我。
+
+参考资料：[郭文贵先生2022年3月23日大直播](https://www.gettr.com/streaming/p11h7xt9462)
+
+发布*：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

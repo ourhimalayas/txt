@@ -2,37 +2,44 @@
 ---
 
 
-## 新西兰放宽强制疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221199/)
+## 以太坊的区块链正在接近一个巨大的转折点，可能会推动以太币的市场价值超过比特币
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2221280/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-新西兰政府宣布,将逐步放松管制,包括废除许多职业要求的强制疫苗接种。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-268.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F11%2F2021-11-09T004936Z_566761956_RC2OQQ9IIAMM_RTRMADP_3_HEALTH-CORONAVIRUS-NEWZEALAND.jpg%3Fresize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.)
+翻译整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-24-下午4.17.31.png)图片来源：互联网
+第二大加密货币以太币背后的区块链很快将进行一次备受瞩目的升级，这可能会导致更多机构投资者将资金投入网络，并帮助提升以太币的价格。
 
-新西兰政府3月23日宣布,除医疗相关人员等部分职业外,从4月4日深夜开始废除警察和教育相关人员等疫苗强制接种。
+此次升级的目的是使区块链以太坊更具可扩展性、安全性和可持续性。这一技术的提升将淘汰之前被世人所诟病的，需要消耗巨大能量的加密货币开采技术。
 
-2月份以来，新西兰反对强制疫苗接种和长期管制，并在国会前进行抗议示威和静座的活动不断,政府还进行了逮捕。 随着放宽强制疫苗接种,进入餐馆等场所时也不需要出示接种证明。
+截至目前，比特币是市场价值最大的加密货币，超过8040亿美元。但以太币–目前市值超过3600亿美元–在被称为 “合并 “的基础设施升级后，可能成为领导者。
 
-参考链接：[ニュージーランド　ワクチン接種義務規制を緩和へ](https://news.yahoo.co.jp/articles/aab83f6c8046a7a7b4a8f6f601997f01b177a103)
+虽然时间表还没有确定，但行业观察人士推测，”合并 “可能在今年夏天发生。投资者已经在为此下注，而且资金量非常大。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+除了为以太坊提供动力外，以太坊还被去中心化金融（DeFi）应用和不可伪造的代币项目（NFT）所采用，因此升级可能会大幅提高其估值。
 
+转向权益证明将使能源使用减少 “99%
 
+以太坊目前依赖于所谓的工作证明，其中矿工必须完成复杂的算法，以验证交易并创造新的加密货币。这一过程需要大量的计算机功率，并且由于其对环境的影响而经常受到批评。
 
+目前，以太坊有工作证明链和权益证明链在平行运行。虽然两条链都有验证者，但目前只有工作证明链在处理用户的交易。一旦合并完成，以太坊的区块链将完全转向权益证明链，称为信标链，使加密货币的挖矿技术变得过时。
 
+因此，据预测，以太坊的能源消耗将减少99%。由于减少了对环境的影响，人们认为更多的机构投资者会想要购买以太币，使用其区块链，投资其网络，并创造更大的采用率。
 
+以太坊开发者上周成功测试了这种转变，作为合并的最后准备工作的一部分，这增加了围绕升级潜力的看涨情绪。
 
+虽然“合并“预计在几个月前就会完成，后被推迟，但以太坊开发者Tim Beiko告诉彭博社，”今年如果没有灾难性的事件发生，可以完成。”
 
+通过与权益证明链的合并，以前由矿工赚取的费用将转为由权益质押者赚取。IntoTheBlock报道说：”这预计将导致7%至12%的质押奖励。
 
+他说，转向权益证明的做法实际上会提高安全性，防止潜在的黑客攻击。
+
+他说：”在权益证明下，如果发生攻击，我们可以简单地升级网络，删除攻击者的硬币。
+
+原文链接：[Ethereum’s blockchain is nearing a huge turning point that could push Ether’s market value ahead of Bitcoin’s](https://fortune.com/2022/03/23/ethereum-merge-bitcoin/)
+
+* * *
+
+*编辑&发布：长岛开心*
 
  
 

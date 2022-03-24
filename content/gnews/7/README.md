@@ -2,28 +2,27 @@
 ---
 
 
-## 中日财经爆┃俄罗斯大打能源牌 暂停向里海管道输油
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221371/)
+## 中日财经爆┃中共将在俄罗斯推出银联双标卡 帮助逃避西方制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221386/)
 
 撰稿：东京樱花团/喜马拉雅的微尘
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-3月23日，里海管道联盟负责人表示，已暂停向管道输送石油。当前，西方国家正对俄罗斯经济实施严厉制裁，而俄罗斯正在利用对欧洲能源的控制来与西方博弈。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-282.png)
-[图片来源](https://frontierindia.com/caspian-sea-pipeline-damaged-by-a-storm-oil-prices-set-to-rise-further/)
+俄罗斯被西方踢出SWIFT系统后，众多俄罗斯银行转投中共银联系统，以逃避西方经济制裁。与此同时，美国政府严正警告中共不要帮助俄罗斯逃避金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-163.png)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.ixbt.com/img/n1/news/2022/2/1/62161_0_large.jpg&amp;imgrefurl=https://digitnews.in/more-than-a-third-of-russians-intend-to-issue-a-mir-card-unionpay/&amp;tbnid=jBWBWg0B43DiPM&amp;vet=12ahUKEwjkvKHYod72AhV_TPUHHZpABRoQMygDegUIARC9AQ..i&amp;docid=MxS-nADtKzunXM&amp;w=1800&amp;h=960&amp;q=UnionPay&amp;ved=2ahUKEwjkvKHYod72AhV_TPUHHZpABRoQMygDegUIARC9AQ)
 
-当地时间3月23日，里海管道联盟（Caspian Pipeline Consortium）负责人表示，已暂停向管道输送石油，而港口储油罐内的石油足够使用到24日。
+俄罗斯被西方踢出SWIFT系统后，众多俄罗斯银行转投中共银联系统，以逃避西方经济制裁。
 
-该负责人表示，20日，当地一场罕见的风暴破坏了俄罗斯新罗西斯克港口3条浮动输油臂，一条损坏，另有一条需要进行检查。由于缺少进口配件等原因，维修工作将至少持续数周。
+俄罗斯卫星通讯社3月23日报道，广受俄罗斯人欢迎的维萨和万事达卡暂停运营后，俄罗斯客户对中国银联支付系统需求旺盛，甚至造成俄罗斯银行相关服务跟不上其需求的现象。现在，俄罗斯市场的大多数参与者尚未与银联合作。因此，许多俄罗斯银行计划在不久的将来推出MIR-银联双标卡。
 
-俄罗斯管道大规模中断，加剧供应短缺忧虑。俄罗斯的一份声明称，通过里海管道联盟(CPC)管道出口的原油超过每天100万桶(占全球供应量的1%以上)。这条穿越哈萨克斯坦的输油管道线路，由于暴风雨损坏的泊位而被暂停。对此，俄罗斯副总理诺瓦克称，里海石油管线的石油供应可能会完全停止长达两个月。由此可看出，里海石油管线受损可能会严重影响全球石油市场。
+与此同时，美国政府严正警告中共不要帮助俄罗斯逃避金融制裁。于3月23日，美国总统拜登警告中共，不要帮普京逃避制裁带来的出口管制，或帮忙俄处理被禁止的金融交易。
 
-里海管道联盟总裁尼古拉戈尔班尼亚表示，受泊位损坏影响，里海管道联盟旗下里海管道的对意大利、法国、美国和西班牙的石油出口能力可能下降66%至80%。
+美国总统国家安全事务助理沙利文表示，G7很快将会宣布统一对策，以确保俄罗斯不能在中共或他国帮助下，逃避西方对其入侵乌克兰的制裁。
 
-俄罗斯计划要求欧洲国家在购买天然气时以卢布支付。这一措施加深与西方的对峙，并可能加剧欧洲自1970年代以来最严重的能源紧缩。据报道，俄罗斯总统普京周三（3月23日）表示，俄罗斯今后将坚持要求“不友好国家”只以卢布支付俄罗斯天然气出口的费用。普京解释说，向欧盟和美国供应俄罗斯商品，并接受欧元、美元和其他一些货币的付款，“毫无意义”。
+信息来源：
 
-当前，西方国家正对俄罗斯经济实施严厉制裁，而俄罗斯正在利用对欧洲能源的控制来与西方博弈。
-
-信息来源：[兴业投资（英国）-原油日评：管道中断&卢布结算，国际油价创两周新高-220324-研报-期货研究-慧博投研资讯](http://www.hibor.com.cn/data/fc1b909167eece968cd3d90ad52d52c9.html)
+[俄罗斯客户对中国银联支付系统需求旺盛](https://www.163.com/dy/article/H359SMHK0534A4SC.html)
+[樱花时政┃拜登警告中共 不要帮助俄罗斯逃避制裁](https://gnews.org/zh-hans/2221050/)
 
 编辑：东京樱花团/逢⑦必变
 发布：东京樱花团/yuxingcao01
@@ -33,6 +32,8 @@
 [**郭文贵先生Gettr**](https://gettr.com/user/miles)
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 [**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
 
  
 
