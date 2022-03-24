@@ -2,35 +2,43 @@
 ---
 
 
-## 有声|巴西最高法院的裁决禁止使用Telegram
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224292/)
+## 英国最贫穷的城镇之一如何成为逃离中共国的香港人的天堂
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224294/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
+编译：七龙珠
 
-巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 
-当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
+在英国灰暗的冬天里，在一个异常晴朗的日子里，大约30名香港人聚集在黑池（Blackpool）的一个自助餐厅上，黑池是英国最贫困城市之一。
 
-巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id13062220-UK-airport-02@1200x1200-450x253-1.png)图片来源：文苳晴／大纪元
 
-目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
+有些人已经在国内呆了几个月，大多数人只呆了几周。我的左边坐着一位中年妇女，她和她20多岁的儿子在11天前刚刚抵达黑池。
 
-文字版原文：[巴西最高法院的裁决禁止使用Telegram](https://gnews.org/zh-hans/2211699/)
+“我的英语不是很好”她笑着道歉。在我们周围，每个人都继续用广东话交谈，我一个字都听不懂。
 
-音频处理：Fei797
-发稿：Fei797
+“我们都在谈论香港，我们最后的话题总是围绕着香港”坐在我对面的约翰尼解释说，看到我不解的脸。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+这群人的年龄和社会经济地位各不相同，但他们都有一个共同点，那就是在北京于2020年通过有争议的《国家安全法》后“被迫逃离”香港，该法被其反对者视为对香港在“一国两制”原则下享有的自由的决定性打击，中共政府则辩护称，国安法是对香港社会维稳的必要。
+
+**参考资料：**[bbc][Cómo una de las ciudades más pobres de Reino Unido se convirtió en un refugio para hongkoneses que huyeron de China](https://www.bbc.com/mundo/noticias-internacional-60349780)
+
+审核：Aries的星
+校对：小东
+发布：信心的选择
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

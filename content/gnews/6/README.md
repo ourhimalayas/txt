@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：新中国联邦NFSC咖啡
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2224329/)
+## 七哥金句：新中国联邦的一个考场&#8211;乌克兰现场救援行动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2224364/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1-1-2-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-1.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

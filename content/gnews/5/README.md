@@ -2,18 +2,29 @@
 ---
 
 
-## 七哥金句：新中国联邦的一个考场&#8211;乌克兰现场救援行动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2224364/)
+## 俄罗斯国防部长退出视线后重新露面
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2224372/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句-1.jpg)
-发布：枫叶红了
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/XJHDKE4S6JNHJOWJXVSTKTJJKM.jpg)
+
+
+图片来源：路透社
+
+俄罗斯强大的国防部长在俄罗斯与乌克兰的战争期间退出公众视野数日后，于周四在官方媒体播放的一小段视频片段中重新露面。
+
+在俄罗斯 RIA 通讯社播出的视频中，普京远程会见了他的安理会时，俄罗斯总统弗拉基米尔·普京的亲密盟友谢尔盖·绍伊古出现在高级官员的分屏上。
+
+一些俄罗斯媒体周三表示，这位 66 岁的部长已经 12 天没有露面，这引发了人们对其下落的猜测。
+
+克里姆林宫发言人德米特里佩斯科夫周四淡化了这种猜测，称绍伊古有很多事情要做，他没有花很多时间在媒体上露面是可以理解的。
+
+“国防部长现在有很多想法。一项特殊的军事行动正在进行中。现在不是媒体活动的时候，”佩斯科夫告诉记者。
+
+🔗 [https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/](https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/)
+
+编辑发表： Shuizhuyu
 
  
 
