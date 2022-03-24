@@ -2,31 +2,35 @@
 ---
 
 
-## 美国将接受多达10万名乌克兰难民
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224230/)
+## 有声|巴西最高法院的裁决禁止使用Telegram
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224292/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16481473661.png)CBC.ca
-据美国周刊今日报道，拜登政府的一名高级官员周四表示，美国将接受10万名乌克兰难民，这是美国迄今最大的一项承诺，在援助欧洲难民的国家中也是首当其冲。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
 
-这位官员说，为了履行这一承诺，美国正在考虑为逃离战争的难民提供通往美国的各种法律途径。同时正在考虑通过难民收容计划接收乌克兰难民，或者提供人道主义假释或签证，允许难民进入该国。
+巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
 
-拜登政府将 “扩大和开发新项目”，以有助于这项工作的实施，重点是帮助有家人居住在美国的难民。
+当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
 
-政府还将重点关注逃离乌克兰战争的弱势难民，特别是 “LGBTQI” （女同性恋、男同性恋、双性恋、跨性别、同性恋和两性生活）和个人、有医疗需求的人、第三国国民，和记者等。
+巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
 
-去年10月，乔·拜登总统将2022财年允许进入美国的难民人数提高到12.5万人。这一数字比前总统唐纳德·川普设定的每年1.5万难民上限大幅增加。
+目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
 
-这位官员说，预计大多数流离失所的乌克兰公民将希望留在邻国或欧洲其他地方”。
+文字版原文：[巴西最高法院的裁决禁止使用Telegram](https://gnews.org/zh-hans/2211699/)
 
-这一声明正值拜登总统忙碌之际，他正在布鲁塞尔与北约和欧盟官员会面，讨论他们对乌克兰战争的协调反应。峰会结束后，拜登将于周五前往波兰。本月早些时候，美国国务卿安东尼·布林肯访问了一个波兰边境城镇，该城镇在东欧接受乌克兰难民。
+音频处理：Fei797
+发稿：Fei797
 
-*责编：白夜*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-[Source](https://www.newsweek.com/us-will-accept-100000-ukrainians-fleeing-war-1691414)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
