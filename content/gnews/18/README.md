@@ -2,32 +2,35 @@
 ---
 
 
-## 乌克兰称已击毁一艘大型俄罗斯登陆舰
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2224240/)
+## 有声|巴西最高法院的裁决禁止使用Telegram
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224292/)
 
-乌克兰周四表示，它已经在俄罗斯占领的亚速海伯迪安斯克（Berdiansk）港口摧毁了一艘大型俄罗斯登陆支援舰奥尔斯克（Orsk）号。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B-1.jpg)union-trader.com
-路透社能够确认的视频画面是从伯迪安斯克内部拍摄的，画面显示码头的大火中冒出一股烟柱，并有爆炸的闪光。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
 
-录像中看到两艘船（其中一艘似乎已经损坏）驶出码头，第三艘船正在燃烧。
+巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
 
-路透社无法确认影片中着火的是否是奥尔斯克号。俄罗斯官员没有立即回应关于支援船被毁的报道的评论请求。
+当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
 
-俄罗斯周一表示，这艘船停靠在被围困的港口城市马里乌波尔西南70公里（45英里）的伯迪安斯克港口，俄罗斯武装部队新闻机构明星（Zvezda）网站强调了该港口对俄罗斯供应线的重要性。
+巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
 
-“是的，它被摧毁了。”乌克兰国防部副部长汉娜·马尔亚尔（Hanna Malyar）在被问及奥尔斯克号时说。她说，这艘船能够装载45辆装甲运兵车和400人。
+目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
 
-作为莫斯科一个月前发起的所谓 “特别军事行动 ”的一部分，俄罗斯军队已经夺取了亚速海沿岸的大部分乌克兰海岸，拒绝投降的只有马里乌波尔。“不管这些损失是由什么样的部队和手段造成的，我们可以肯定地说，这次行动是成功的。”乌克兰国防部发言人奥列克桑德·莫图兹扬克（Oleksander Motuzyanyk）在电视发布会上说。
+文字版原文：[巴西最高法院的裁决禁止使用Telegram](https://gnews.org/zh-hans/2211699/)
 
-**快评：**一时半会儿俄乌战争还停不下来，甚至将陷入更惨烈的境地。普京发起战争完全为了自己的私利，却将俄乌两国人民置于危险之中，死去的都是平民和士兵。
+音频处理：Fei797
+发稿：Fei797
 
-郭先生一再警告，2022年是人类历史上最黑暗的一刻。这场战争很残酷，但很快人们发现比这场战争更惨的是疫苗灾害。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-参考链接：
-[https://www.newsmax.com/newsfront/video-ship-russia-destroyed/2022/03/24/id/1062772/](https://www.newsmax.com/newsfront/video-ship-russia-destroyed/2022/03/24/id/1062772/)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

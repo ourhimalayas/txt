@@ -2,45 +2,58 @@
 ---
 
 
-## 美国宣布对乌克兰入侵俄罗斯实施新制裁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2224406/)
+## 预防新冠 消毒空气
+` PureLotusHeart(莲心不染 or Dawn）` [轉載自GNews](https://gnews.org/zh-hans/2224413/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+加拿大温哥华扬帆农场 – 莲心不染
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cmmonline.com_.jpg)*图片来源：cmmonline.com*
+新冠病毒主要是通过空气传染的，特别是奥米康的传染性特别强，所以为了预防新冠病毒在家里或者集体场所的交叉感染，除了消毒房间物件后，更重要的是要消毒空气。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/XFV4CAT7D5MNZM5N4P2CZAOOJQ.jpg)
+以下是消毒空气的一些具体方法，与大家分享。希望对乌克兰前线救援队预防新冠扩散，对家人感染了新冠，和平时需要去办公室上班的人士有所帮助。
 
+交叉感染高风险区，也就是需要消毒的场所：
 
-图片来源：路透社
+1）家庭生活：家里的卧室，厕所，厨房，起居室等
+2）集体生活：空气流通不好的公共室内场所，如公用厕所，大巴，合住的酒店房间的厕所。
+3）工作场所：工作团队专用一个厕所，可以降低外来风险。
 
-随着华盛顿对数十家俄罗斯国防公司、数百名议会成员和该国最大银行的首席执行官实施新的制裁，美国及其盟国周四就其入侵乌克兰加大了对莫斯科的压力。
+消毒空气的几种方法：
 
-美国财政部还在其网站上发布了指导意见，警告称涉及俄罗斯的黄金相关交易可能会受到美国当局的制裁，此举旨在阻止俄罗斯逃避现有制裁。
+1）睡房每天早晚至少两次打开窗户，让新鲜空气进来，最好有对流。科学研究表明开窗后，每分钟空气中的病毒浓度可以减少50%。
+2）喷洒或雾化有杀毒功能的精油，比如茶树精油。可以在口罩，衣领和枕头上喷洒少量的纯天然的茶树精油，减少吸入的病毒浓度。上飞机后，对着座位和周围的空气喷洒茶树精油杀菌。这个方法安全可靠方便。
+3）喷雾化消毒药水。这个方法的残留物对人体不太好，可以用在公共厕所，但最好不要用在家里或酒店睡房。
+4）使用负离子/紫外线/臭氧的空气消毒机器。挑选对人体安全的设备。
+5）熏香：需要使用一种具有消毒功能的对人体无害的香，印度和日本生产用于人口密度高的聚集地如庙宇的香。挑选对人体无害的，这种方法非常方便，易于携带，有效范围大，达到整个房间。
 
-“我们在这里的目的是有条不紊地取消俄罗斯曾经作为国际经济秩序参与者所享有的利益和特权，”一名高级政府官员在不愿透露姓名的情况下说。
+有些西方大教堂使用乳香和末药熏香，可以在人群中使用，吸入不但对人体无害，而且具有杀菌作用，这是最安全有效的方法，但是好的乳香末药比较难得，而且使用有技巧。
 
-自一个月前俄罗斯军队入侵乌克兰以来，美国及其盟国已经实施了多轮制裁，包括针对该国最大的贷方和总统弗拉基米尔·普京，这是二战以来对欧洲国家的最大袭击。
+4）脖子上可以挂一个小型的空气清新器，这是美国著名的医生Dr. Joseph Mercola 推荐的,可以清洁身体周围1米左右空气中的细菌和病毒，使用锂电池，可以维持数小时，然后可以用USB充电。价格在100美元左右，在Doctor Joseph mercola 的网站上可以买到。Dr. Mercola上过几次班农战斗室，班农先生对他高度赞赏，非常尊重。这个可以在公众场所人口密度高的地方用。
 
-财政部在一份声明中表示，新的制裁目标包括 40 多家国防公司，包括国有的战术导弹公司和与其有关联的 28 家公司，以及其总经理。
+以下是我个人使用后感到性价比好的消毒的设备（附网购链接)，仅供参考。
 
-财政部表示，华盛顿的行动与欧盟、英国和加拿大采取的类似措施一致。英国已经受到制裁的企业集团生产俄罗斯用于对付乌克兰的海军系统和武器，包括 Kh-31，这是一种高速机载导弹，已广泛用于莫斯科的进攻。
+1）个人：挂在脖子上的空气清洁器（锂电池，USB充电）[US$100左右](https://www.mercolamarket.com/product/2837/1/personal-air-purifier-1-unit)
 
-新名单上的其他公司包括俄罗斯军用、民用和军用直升机的弹药制造商，以及财政部称最初设计用于监视但已被“重新利用”并用于攻击乌克兰军队的无人机。
+2）房间，厕所和大巴的空气清洁器（110至240V电压均可）
 
-财政部还对俄罗斯议会杜马的 328 名成员以及俄罗斯最大的银行 Sberbank (SBER.MM) 的负责人赫尔曼·格雷夫实施了制裁，财政部称格雷夫与普京关系密切。
+5平方米的空间（厕所）：[US$63左右](https://www.mercolamarket.com/product/2019/1/room-air-purifier)
 
-美国上个月表示，美国银行必须切断与 Sberbank 的代理银行关系，允许银行相互之间进行支付并在全球范围内转移资金，但并未冻结其资产。
+85平方米（酒店房间和大巴，家庭）：[US$200左右](https://www.mercolamarket.com/product/2836/1/tabletop-air-purifier-1-unit)
 
-周四，美国还针对同样受到美国制裁的 Sovcombank 的 17 名董事会成员，以及普京、他的公司和家人的长期盟友根纳季·蒂姆琴科 (Gennady Timchenko)。
+3）移动供电电池（大巴上或厕所里用）：110-220v左右，可以储存1.5度电，多种接口，可以用酒店的电源或发动机充电。是市场上适合野外使用的，最可靠，最安全，最方便，最简单的电池之一。
 
-这位官员说，美国警告普京，如果他入侵乌克兰，它将面临迅速而严重的后果，他们已经兑现了这一威胁。这位官员指出，该国正面临着严重的通货膨胀和经济痛苦，这将把它赶出世界前 20 大经济体。俄罗斯将很快面临在 21 世纪竞争的思想、人才和技术的严重短缺，而普京将面临他自己制造的战略失败。
+可以放在大巴或厕所里为上面的消毒器连续供电3-4天。
 
-美国国家安全顾问杰克沙利文本周早些时候表示，美国将与盟国就俄罗斯加入世界最大经济体的 G20 集团进行磋商。
+最好买多个同一型号的，[这样可以把2个同样的充电接口插在一个移动电池上同时充电，缩短一半充电时间](https://www.amazon.com/Jackery-Portable-Explorer-Generator-Overlanding/dp/B09GK7SXHM?ref_=ast_sto_dp)。
 
-制裁及其经济后果可以通过有效地使莫斯科因其经济萎缩而失去资格，从而使谈判变得更容易。
+4）消毒用的[熏香](https://www.amazon.com/Sai-Baba-Nag-Champa-Purification/dp/B07DMHQ4RQ/ref=sxin_14_ac_d_rm_mod_primary_new?ac_md=1-1-c2F0eWEgc2FpIGJhYmEgbmFnY2hhbXBh-ac_d_rm_rm_rm&amp;cv_ct_cx=Satya+Sai+Baba&amp;keywords=Satya+Sai+Baba&amp;pd_rd_i=B07DMHQ4RQ&amp;pd_rd_r=a7661502-8790-434a-bee7-99e8b8977918&amp;pd_rd_w=bc9pP&amp;pd_rd_wg=FaxHq&amp;pf_rd_p=1dcacca2-86c1-44b6-b509-8cf93960a908&amp;pf_rd_r=V8X1734CWPMV4WCABQ01&amp;psc=1&amp;qid=1647709560&amp;sbo=RZvfv%2F%2FHxDF%2BO5021pAnSA%3D%3D&amp;sr=1-2-12d4272d-8adb-4121-8624-135149aa9081)
 
-🔗 [https://www.reuters.com/world/g7-eu-announce-measures-stop-russia-avoiding-sanctions-us-official-2022-03-24/](https://www.reuters.com/world/g7-eu-announce-measures-stop-russia-avoiding-sanctions-us-official-2022-03-24/)
+熏香的[香座](https://www.amazon.com/Wooden-Incense-Handmade-Utilities-Accessories/dp/B09MQC83XF/ref=sr_1_14_sspa?crid=N9BFUF8P28DC&amp;keywords=Incense%2BSticks%2BHolder%2BBamboo&amp;qid=1647709779&amp;s=home-garden&amp;sprefix=incense%2Bsticks%2Bholder%2Bbamboo%2Cgarden%2C69&amp;sr=1-14-spons&amp;spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzVUdDRjQwS1lKWTlaJmVuY3J5cHRlZElkPUEwOTAyMzczMklTUE5ROU5GNlpEViZlbmNyeXB0ZWRBZElkPUEwNjc2NzQwMkdSTllFUlE5OEtVSSZ3aWRnZXROYW1lPXNwX210ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU&amp;th=1)
 
-编辑发表： Shuizhuyu
+安全的[熏香点火器](https://www.amazon.com/dp/B003IJHYJU/ref=cm_sw_r_awdo_M1H9X0R7190SB5WZ8C27)
+
+大家可以在室外篝火边围坐，篝火边空气相对安全。感谢前线战友的无私奉献！祝大家健康平安！
+
+编辑/上传： 云起时
 
  
 
