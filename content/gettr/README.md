@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 12:30 PM (UTC)`
+
+2022.03.24 早 《新中国联邦新闻》最新救援数据； 乌克兰救援行动将成为拯救无数华人的传奇； 习近平不改侵台野心
+![img](https://media.gettr.com/group42/origin/2022/03/24/12/d543ff81-4d72-e43c-e995-427104828ca3/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 3/24/2022 11:11 AM (UTC)`
@@ -51,13 +58,6 @@
 
 【Ukraine Rescue】03/22/22 Ukraine children see a broadcasting volunteer of the NFSC and approach to give warm hugs. It is heartwarming and the volunteers felt so loved.<br/><br/><br/>【乌克兰救援】03/22/22 乌克兰小朋友看到正在直播中的新中国联邦战友，主动冲上前来拥抱。战友感受到爱，觉得很暖心。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group40/getter/2022/03/24/10/ec524a17-1972-2762-ed15-ba5aa7f8d1c4/out.jpg)
-
----
-
-`@miles 3/24/2022 10:25 AM (UTC)`
-
-3月24日：这是真的吗？太惨烈了，如果这个视频是真的．这百分之百是机长强制……断连强控自杀的结果！😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭【七哥，这是您说的那个航班坠毁前视频。中国东方航空MU5735航班，】
-![img](https://media.gettr.com/group44/getter/2022/03/24/10/cc55c53e-c8d3-583e-f7b5-2bf2df5ab4c2/out.jpg)
 
 ---
 
