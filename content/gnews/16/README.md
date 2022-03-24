@@ -2,26 +2,25 @@
 ---
 
 
-## 幸存者援助组织（TAPS）在乌克兰前线提供援助
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2223324/)
+## 波兰驱逐45名冒充外交官的俄罗斯间谍
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2223395/)
 
-**撰稿：日本东京方舟农场  北极**
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-据Fox News网站3月22日报道，在俄罗斯入侵乌克兰的战争爆发后，乌克兰境内的幸存者援助组织（Tragedy Assistance Program for Survivors，缩写TAPS）一直在为第聂伯罗市（Dnipro）的乌克兰军队、国民警卫队、警察和流离失所者提供援助行动。
+据《世界新闻网》3月23日报道，波兰内政部长今日宣布，波兰驱逐了45名冒充外交人员的俄罗斯间谍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-290.png)乌克兰境内的幸存者援助组织（Tragedy Assistance Program for Survivors，缩写TAPS）。（图片来自Fox News）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.jpg)(右)波兰内政部长卡明斯基（Mariusz Kaminski）（图片来自路透社）
 
-在过去的四周里，该团队每天为10，000多人提供热餐、药品和住房，同时努力满足乌克兰军队的需求。
+据报道，早前波兰反间谍机构《国内安全局》（ABW）表示，已确认45名俄罗斯外交人员涉嫌担任间谍，要求波兰外交部将他们驱逐出境。国内安全局发言人札林（Stanislaw Zaryn）称，这些犯嫌的活动对波兰内部和外部安全皆构成威胁。
 
-TAPS International创始人邦妮·卡罗尔（Bonnie Carroll）说，团队成员基本上是在帮助任何需要他们照顾的人，因为每个人都在为自由而战。“尤其在周围有战争威胁的情况下，你随时面临着因火箭袭击而失去生命的危险。然而，他们都抱有誓死的决心。”她解释说。
+波兰内政部长卡明斯基（Mariusz Kaminski）今日则在推特发文称：“我们正在拆除我们国内的俄罗斯特工网络。”
 
-乌克兰境内的TAPS分支创建于2015年，以美国的TAPS International为蓝本。当时俄罗斯支持的乌克兰顿巴斯（Donbas）地区的分离主义分子开始在境内武装冲突，导致大量乌克兰家庭因为战争失去亲人。
-
-卡罗尔说，TAPS组织成员的亲人大多数已经被战火被带走了，他们表示再没有什么可以失去的了。对他们来说，现在不会让他们的土地被夺走。
+对此，俄罗斯外交部表示，如果俄罗斯外交人员遭波兰驱逐出境，俄方将进行报复。
 
 参考链接：
-[https://reurl.cc/2Dq8pX](https://reurl.cc/2Dq8pX)
+[https://www.worldjournal.com/wj/story/121480/6187398](https://www.worldjournal.com/wj/story/%20121480/6187398)
 
+编辑：幽蘭自得
 总编：老孙
 校对发布：爱放飞
 

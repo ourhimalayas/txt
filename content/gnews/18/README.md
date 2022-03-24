@@ -2,8 +2,8 @@
 ---
 
 
-## 20220323郭文贵大直播 ：财富成了统治人民的最重要的工具（2）
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2223308/)
+## 20220323郭文贵大直播 ：未来的欧洲是乌克兰的欧洲 中国人将是被世界最恨的人
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2223339/)
 
 作者：东京樱花团小视频组
 

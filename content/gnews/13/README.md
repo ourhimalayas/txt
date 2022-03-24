@@ -2,34 +2,28 @@
 ---
 
 
-## 【G时新闻】欧洲航空业大佬告诉文贵先生飞机坠机是人为的自杀事件！
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2223346/)
+## 乌克兰在战争中的损失难以估量
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2223501/)
 
-作者：加拿大温哥华扬帆农场 – 播报：-莉李鲤 – 视频制作：文雅
+作者：纽约香草山教育部 Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，据联合国当天发布的一份最新报道显示，自俄罗斯入侵乌克兰以来，战争已经使乌克兰超过90% 的居民陷入贫困和极度脆弱的困境，长此以往，乌克兰经济可能会倒退20年。
 
-大家好！今天的主题是 欧洲航空业大佬告诉文贵飞机坠机的真相！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-7.jpeg)
 
-空客和波音飞机在飞行当中，所有的飞行数据，传到本航空公司。 本国国家航空数据中心和飞机制造厂， 还有黑盒子。 他告诉文贵先生中国共产党一定会宣布黑盒子损坏无可恢复。根据掌握的数据，完全是人为的操作、自杀性的。
+数据表明，俄乌战争已经让超过一千八百万人受到影响，他们当中的绝大多数业已流离失所。在乌克兰境内，二分之一的当地企业已完全关闭，其余的则被迫以远低于正常产能的方式运营。同时，乌克兰邻国一直在努力接纳超过 300 万难民。这一系列相关人员所需要的补贴每月超过4.3亿美金。
 
-这并不是阴谋论这是完全个人蓄谋已久，早在今年的1月份开始，组织这场自杀事情。 包括机组机长，这么多人，这都是他精心安排的。 而且是决绝地把飞机拉上天，直接给你推下去，切断了所有的通信。 他把他该带的都带走了，并且他给共产党、给政府，都留了言：共产党如果有良知，应该把东西放出来。
+目前，联合国开发署和难民署正在合作制定新的重建计划，用以通过创收和就业来支持难民和收容社区。此外，美国联邦政府近期也为在美乌克兰人提供申请临时保护身份的渠道。据悉，约有七万五千乌克兰人将有可能在美国获得临时驱逐救济和工作许可证。
 
-为什么报复？原因就是他所有的钱，都被公司给骗走了，他的家人受到了共产党的虐待。他认为自己打了疫苗，早晚也活不长，况且家人已经有打疫苗死亡的。他还欠了一屁股债。 大家明白了吗，这多恐怖！共产党的欺负、虐待、打疫苗导致家人死亡、他的钱被公司骗走。
+参考链接：
+1. [Ukraine war: $100 billion in infrastructure damage, and counting](https://moderndiplomacy.eu/2022/03/21/ukraine-war-100-billion-in-infrastructure-damage-and-counting/)
+2. [U.S. lawyers line up to aid Ukrainians with immigration relief](https://www.reuters.com/legal/litigation/us-lawyers-line-up-aid-ukrainians-with-immigration-relief-2022-03-22/)
 
-这件事件未来将给所有中国人带来互相伤害、报复社会，不可预测的疫苗灾难，以及疫苗导致的人对社会报复的各种突发事件。火车、飞机、医疗放毒、车祸，开始各种事情频发，就像这次事件一旦人上了飞机，谁也无法预测！ 我们新中国联邦人个个都明白只有早日灭掉中共，铲除这个万恶之源才能真正挽救人类还一切之真相于人！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-视频链接：[https://gettr.com/post/p11n7p19f27](https://gettr.com/post/p11n7p19f27)
-
-编辑/上传：蔚蓝之境
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2799.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2801.png)
+总编/编辑/审核：Irene木木
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

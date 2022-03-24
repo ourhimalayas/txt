@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 4:32 PM (UTC)`
+
+【Ukraine Rescue】03/24/22 “Although most people do not know about the NFSC and ROLF, we are here to show the world our presence and mission through rescue operations,” said the volunteer Jing Liang.<br/><br/><br/>【乌克兰救援】03/24/22 志愿者精粮战友表示：虽然大多数人并不知道新中国联邦和法治基金，但是我们就是要通过救援行动展示给世界我们的存在和使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group15/getter/2022/03/24/16/6ced5d87-8d34-067f-6b2c-afc830c20d6a/out.jpg)
+
+---
+
 `@miles 3/24/2022 4:15 PM (UTC)`
 
 3/23/2022 Miles Guo: After the Xi-Obama meeting failed, Xi felt he was humiliated and was so angry that he directly flew to Russia to ally with Putin. From then one, these two evil forces have been in cahoots to destroy America.<br/><br/>3/23/2022 文贵直播: 习奥会失败后，习恼羞成怒直飞俄罗斯与普京结盟，从此两股邪恶力量会师意在置美国于死地！<br/><br/><br/>
@@ -150,13 +157,6 @@
 
 【Ukraine Rescue】03/20/22  Xiao Xiao Su introduces to the Ukrainian refugees that the mission of the NFSC is to save people and eliminate the CCP: Once the CCP is eliminated, all evils in the world will be eradicated and there will be no more wars.<br/><br/>【乌克兰救援】03/20/22 小小酥战友向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group43/getter/2022/03/24/02/a6eefbf3-4a81-3707-7aa5-2917234a91d2/out.jpg)
-
----
-
-`@miles 3/24/2022 1:35 AM (UTC)`
-
-2022.03.23 晚《新中国联邦新闻访谈》众议院两党议员推出取消中共国永久最惠国待遇法案；Akamai和彭博社接连报道喜联储，释放重要启动讯号；对九指妖的民事诉讼取得重大胜利；秦刚接受CBS直播采访，继续胡搅蛮缠；俄军强行将数千乌克兰儿童拐带到俄罗斯
-![img](https://media.gettr.com/group14/origin/2022/03/22/01/892d18d7-53a3-9d8e-2a7b-e6fe114c88b1/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
