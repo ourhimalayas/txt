@@ -2,24 +2,24 @@
 ---
 
 
-## 联合国安理会未能通过俄罗斯提出的乌克兰人道主义局势决议草案
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2221984/)
+## 樱花头条┃美国参议院一致决议 谴责普金为战犯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222146/)
 
-编辑：波士顿五月花—-思澈
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+美国参议院一致通过一项决议，谴责俄罗斯总统弗拉基米尔·普京为战犯。
 
-投票结果为俄罗斯与中共国2票赞成，13票弃权，决议未能通过。
+信息来源：
+[https://gettr.com/post/p1097zzdb0a](https://gettr.com/post/p1097zzdb0a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13F94C22-E585-455B-8D87-EE511777ADE7.jpeg)
-
-安理会成员3月23日以2票赞成、0票反对、13票弃权的投票结果就一份由俄罗斯、白俄罗斯、朝鲜和叙利亚提交的有关“乌克兰人道主义状况”的决议草案进行表决。由于表决没有获得至少9票赞成，草案未能获得通过。 中共国和俄罗斯投了赞成票**。**
-
-短评：中共和普京两个邪恶罪犯狼狈为奸绑架乌克兰人民，这如同郭文贵先生所说的，“罪犯强奸了受害人，还要受害人喊高潮感谢强奸犯。”
-
-素材来源：[https://news.un.org/zh/story/2022/03/1100942](https://news.un.org/zh/story/2022/03/1100942)
-
-*发布：思澈*
-
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

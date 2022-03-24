@@ -2,8 +2,8 @@
 ---
 
 
-## 20220323郭文贵大直播 ：俄乌之战全世界将认为中国人是元凶
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2222098/)
+## 20220323郭文贵大直播 ：躺平币就是让全球穷人能购买水和食物
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2222217/)
 
 作者：东京樱花团小视频组
 
