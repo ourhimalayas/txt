@@ -2,31 +2,42 @@
 ---
 
 
-## 乌克兰称已击毁一艘大型俄罗斯登陆舰
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2224240/)
+## 英国最贫穷的城镇之一如何成为逃离中共国的香港人的天堂
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224294/)
 
-乌克兰周四表示，它已经在俄罗斯占领的亚速海伯迪安斯克（Berdiansk）港口摧毁了一艘大型俄罗斯登陆支援舰奥尔斯克（Orsk）号。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B-1.jpg)union-trader.com
-路透社能够确认的视频画面是从伯迪安斯克内部拍摄的，画面显示码头的大火中冒出一股烟柱，并有爆炸的闪光。
+编译：七龙珠
 
-录像中看到两艘船（其中一艘似乎已经损坏）驶出码头，第三艘船正在燃烧。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 
-路透社无法确认影片中着火的是否是奥尔斯克号。俄罗斯官员没有立即回应关于支援船被毁的报道的评论请求。
+在英国灰暗的冬天里，在一个异常晴朗的日子里，大约30名香港人聚集在黑池（Blackpool）的一个自助餐厅上，黑池是英国最贫困城市之一。
 
-俄罗斯周一表示，这艘船停靠在被围困的港口城市马里乌波尔西南70公里（45英里）的伯迪安斯克港口，俄罗斯武装部队新闻机构明星（Zvezda）网站强调了该港口对俄罗斯供应线的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/id13062220-UK-airport-02@1200x1200-450x253-1.png)图片来源：文苳晴／大纪元
 
-“是的，它被摧毁了。”乌克兰国防部副部长汉娜·马尔亚尔（Hanna Malyar）在被问及奥尔斯克号时说。她说，这艘船能够装载45辆装甲运兵车和400人。
+有些人已经在国内呆了几个月，大多数人只呆了几周。我的左边坐着一位中年妇女，她和她20多岁的儿子在11天前刚刚抵达黑池。
 
-作为莫斯科一个月前发起的所谓 “特别军事行动 ”的一部分，俄罗斯军队已经夺取了亚速海沿岸的大部分乌克兰海岸，拒绝投降的只有马里乌波尔。“不管这些损失是由什么样的部队和手段造成的，我们可以肯定地说，这次行动是成功的。”乌克兰国防部发言人奥列克桑德·莫图兹扬克（Oleksander Motuzyanyk）在电视发布会上说。
+“我的英语不是很好”她笑着道歉。在我们周围，每个人都继续用广东话交谈，我一个字都听不懂。
 
-**快评：**一时半会儿俄乌战争还停不下来，甚至将陷入更惨烈的境地。普京发起战争完全为了自己的私利，却将俄乌两国人民置于危险之中，死去的都是平民和士兵。
+“我们都在谈论香港，我们最后的话题总是围绕着香港”坐在我对面的约翰尼解释说，看到我不解的脸。
 
-郭先生一再警告，2022年是人类历史上最黑暗的一刻。这场战争很残酷，但很快人们发现比这场战争更惨的是疫苗灾害。
+这群人的年龄和社会经济地位各不相同，但他们都有一个共同点，那就是在北京于2020年通过有争议的《国家安全法》后“被迫逃离”香港，该法被其反对者视为对香港在“一国两制”原则下享有的自由的决定性打击，中共政府则辩护称，国安法是对香港社会维稳的必要。
 
-参考链接：
-[https://www.newsmax.com/newsfront/video-ship-russia-destroyed/2022/03/24/id/1062772/](https://www.newsmax.com/newsfront/video-ship-russia-destroyed/2022/03/24/id/1062772/)
+**参考资料：**[bbc][Cómo una de las ciudades más pobres de Reino Unido se convirtió en un refugio para hongkoneses que huyeron de China](https://www.bbc.com/mundo/noticias-internacional-60349780)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+审核：Aries的星
+校对：小东
+发布：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+
+
+
+
 
  
 

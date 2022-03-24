@@ -2,33 +2,27 @@
 ---
 
 
-## 郭文贵精品视频-政治策略家预测ElonMusk 一句话将改变战争的格局
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2224514/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224576/)
 
-撰稿：澳喜cindy
-![](https://assets.gnews.org/wp-content/uploads/2022/03/849DF313-4ABE-43E5-855E-93924798F5A6.png)
-郭先生跟Elon Musk是朋友，也了解他这么多年的艰苦探索、科学创新的过程。他说：“以前很多人在媒体上对他各种污言秽语。作为上市公司的一个老板，曾经被人称为骗子，认为他是个神经病，没人理，没人问，甚至骂他是杂种。”
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV2.jpg)
 
-如今Elon Musk在这次俄乌战争关乎几十亿人的生死存亡的关键时刻，对狂言要用导弹毁灭乌克兰15个核电站的普京发起了挑战！“普京你找个没人的地方，你来发核弹，不要告诉我时间，也不要通知我，也别告诉我数量，你尽管射，看射谁脑袋上”。
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚](https://gnews.org/zh-hans/2220072/)
 
-如果有人说Elon Musk是在吹牛。试想，他作为上市公司的CEO，如果他做不到，令因为这件事情买入他的公司股票的投资者造成严重的损失，那么他是承受不了这个代价的。
+音频处理：Fei797
+发稿：Fei797
 
-目前，Elon Musk发明的星链wifi 已经在乌克兰人道救援前线派上了用场，保证了前线的通讯信号良好。使得全世界人们能即时收到前线的资讯。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-“普京和习近平是最后两个无知的混蛋，对世界的认知完全不知道。他输在了对世界最重要的科技的认知。这场战争是科技战争，普京简直是无知到了极点，他跟习太阳几乎是科盲，世界的战争跟人已经没有关系了，只跟科技有关系。”
-
-“Elon Musk发推单挑普京，邪恶轴心中共俄罗斯闹得再欢，Elon Musk吹一口气就能让俄罗斯和中共的核弹在被窝里炸了”。因此，中共内部亮起黄灯，并连夜紧急会议商讨对台作战新的对策。
-
-“Elon Musk讲的这句最精彩的话， 对我的人生来讲，超过‘耶稣复活’这四字力量。 我用什么话形容都不为过。我为这句话我死一万次我都愿意。人类的文明战争将彻底改变。”郭先生兴奋的溢于言表。
-
-
-图片来自网络 自制影片
-普京原来威胁乌克兰要用导弹炸毁乌克兰15座核电站，现在也不敢了。如果他还执意要那么做，就会被Elon Musk的“金箍罩”挡回去，炸他自己。这真的是世界人民的大幸，关键时刻拯救了人类，免于被核毁灭。
-
-独裁者因其狂妄对当代世界完全没有认知。当代世界的战争只和科技有关。Elon Musk对普京下的战书是人类有史以来最牛的话，它改写了人类的文明和战争！
-
-*发布：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

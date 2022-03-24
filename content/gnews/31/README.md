@@ -2,22 +2,24 @@
 ---
 
 
-## 北约官员估计入侵乌克兰一个月以来，俄军有多达15000名士兵死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224156/)
+## 北约加强准备工作防御“化学、生物、辐射和核”威胁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224193/)
 
 #### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16481441181.png)图片来源：NBC新闻
-据《真正美国之声》（Real America’s Voice）3月24日报道，本周三（3月23日），一位北约官员说，在过去一个月里，由于乌克兰人对入侵的俄罗斯军队进行了顽强的抵抗，估计已有7000至15000名俄军士兵死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16481455551.png)图片来源：油管
+据《华盛顿观察家报》（Washingtong Examiner）3月24日报道，北约官员担心，由于俄罗斯对乌克兰的入侵没有按计划进行，普京可能会诉诸于核武器或者化学武器。因此，他们在3月24的北约峰会上宣布，北约将加强对“化学、生物、放射性和核威胁”的防御准备工作。
 
-这位匿名的北约高级军官告诉《美联社》，他们根据公开来源情报、乌克兰政府的信息以及俄罗斯有意和无意发布的信息来评估俄罗斯的损失，俄军估计有3万至4万名士兵被杀或受伤。考虑到估计有超过15万名俄军士兵参与了入侵，伤亡率可能高达26%。相比之下，苏联在入侵阿富汗的头十年间损失的士兵不到15000名，美国在近20年的阿富汗战争中损失的军人不到2500名。
+北约领导人在一份声明中说：“我们已经准备好让那些在网络空间伤害我们的人付出代价，并且正在增加信息交流和态势感知（situational awareness），加强民事准备，并提高我们对虚假信息的反应能力。同时，我们还将加强对化学、生物、放射性和核威胁的防御工作。”
 
-但前中情局军事分析师杰弗里·埃德蒙兹（Jeffrey Edmonds）认为7千人的死亡数字有些估计过高，真实数字更可能是4千或5千人。“通常情况下我们认为，如果军队失去三分之一的部队就没有战斗力了。因为通常在心理上，当有三分之一的人死亡或被撤离战斗之后，部队通常就不能很好地运作了。”
+此前，俄国政府指控美国、北约盟国和乌克兰准备对俄军使用生物武器，美国和北约称这一指控表明了俄军下一步可能采取的行动，因为俄罗斯通常会诬陷对手以图在未来实施不良行为。
 
-据报道，俄军现状也在恶化。乌克兰军方周二声称，俄军物资只能维持三天，供应链正濒临崩溃。
+北约秘书长延斯·斯托尔滕贝格 (Jens Stoltenberg) 在国家元首和政府首脑会议后告诉记者：“我们的最高军事指挥官沃尔特斯将军已经启动了北约的化学、生物、辐射和核防御元素，盟国正在部署额外的化学、生物以及核防御措施，以加强我们现有的和新的后援团体。”
+
+在上周将普京称为“战争罪犯”的美国总统拜登本周三在启程前往欧洲之前警告说，俄军有可能使用生物或者化学武器，这才是“真正的威胁”。
 
 *责编：白夜*
 
-新闻来源：[Up to 15,000 Russian troops dead one month into Ukraine invasion: NATO](https://americasvoice.news/justthenews/15000-russian-troops-dead-one-month-ukraine-invasion-nato/)
+新闻来源：[NATO boosts ‘chemical, biological, radiological and nuclear’ threat readiness](https://www.washingtonexaminer.com/policy/defense-national-security/nato-boosts-chemical-biological-radiological-and-nuclear-threat-readiness)
 
  
 
