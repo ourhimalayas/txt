@@ -2,31 +2,35 @@
 ---
 
 
-## 疫情｜韩国累计确诊数破千万大关 重症及死亡率持续居高不下
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2220538/)
+## 澳新银行成为第一家铸造稳定币的澳大利亚银行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2220679/)
 
-**图/文：CP**
-**发布时间｜24/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國累計確診數破千萬大關-重症及死亡率持續高企.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/727bc5ffb559b746ab6bcd2e6d6b4400.jpeg)图片来源：www.theaustralian.com.au
 
 
-韩国 Omicron 确诊病例数持续于高峰位徘徊，防疫部门周三(23日）公布，过去 24 小时，新增病例 49 万 881 例，累计确诊人数突破 1,000 万，即 1,042 万 7,247例，约为韩国人口的20%。若不计重复感染，相当于每5名韩国人中有一人染疫。
+根据路透社3月24日报道，澳新银行集团（ANZ.AX）周四表示，该公司进行了一次澳元稳定币支付，这是一项具有里程碑意义的交易。澳新银行成为澳大利亚第一家铸造与该国货币挂钩的数字资产的银行。
 
-韩国政府原本估计新冠肺炎的单日确诊率会在本月12至22日间见顶，23 日达至最高峰 50 万，之后稳定回落。而且按照其他国家经验，当累计确诊数达到整体人口两成时，疫情扩散可望开始减慢，但据目前形势来看，韩国防疫部门对此持悲观态度。
+稳定币是一种数字资产，旨在保持其相对于另一种资产的价值稳定，并经常用作其他加密货币的门户或在去中心化金融系统中产生收入。
 
-要知道，直至今年2月6日，韩国总体病例总数才刚刚突破 100 万例，这期间经历了近 746 天（自2020 年 1 月 20 日确诊首例国内病例起计），但仅仅一个半月后，累计病例就突破了 1000 万大关。换句话说，在七成韩国民众都完成疫苗加强剂注射的情况下，今年1月1日起至今累计病例 930.5919 万例，占总体病例的93.65%。
+澳新银行表示，已通过数字资产投资平台Zerocap向一家私人数字资产财富管理公司Victor Smorgon Group交付了澳元稳定币A$DC。
 
-最为重要的是，不仅确诊率未见趋缓，死亡及重症人数亦维持在高峰位，22日报告384人新冠死亡个案，连续第6天单日死亡人数超过 300 例。另外，重症亦连续第 16 天维持超过 1,000 例（1,084例），全国重症病床使用率已经接近70%。
+澳大利亚储备银行(RBA)去年表示，该公司开始铸造与澳元挂钩的数字资产。数字钱包的增长可能允许交换由澳大利亚央行支持的代币或数字形式的货币，尽管中央银行仍然对数字货币持怀疑态度。
 
-目前，韩国已经成为全球单日确诊人数最多的国家。因此，当地专家认为，随着21日起放宽限聚至8人，且传播力更强的Omicron亚型BA.2病例剧增，预计疫情趋缓还需要一段时间。
+澳新银行表示，该公司已经使用智能合约铸造了3000万澳元稳定币A$DC。这些稳定币在双方之间转移，后来又兑换回法定货币。
 
-**来源｜**[**Hani.kr**](https://www.hani.co.kr/arti/english_edition/e_national/1035977.html)
+新闻来源：[ANZ becomes first Australian bank to mint stablecoin](https://www.reuters.com/business/finance/anz-becomes-first-australian-bank-mint-stablecoin-2022-03-23/)
 
-* * *
+发布：tianzhihuan
 
-**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

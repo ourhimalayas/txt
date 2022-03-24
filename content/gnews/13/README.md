@@ -2,35 +2,40 @@
 ---
 
 
-## 澳新银行成为第一家铸造稳定币的澳大利亚银行
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2220679/)
+## 乌克兰总统泽连斯基：俄罗斯准备使用生化武器
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2220691/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+来自新加坡早报 /
+2022年3月24日 10:36 AM 报导
+采集：玫瑰新闻组
 
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/727bc5ffb559b746ab6bcd2e6d6b4400.jpeg)图片来源：www.theaustralian.com.au
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-1.jpg)
 
 
-根据路透社3月24日报道，澳新银行集团（ANZ.AX）周四表示，该公司进行了一次澳元稳定币支付，这是一项具有里程碑意义的交易。澳新银行成为澳大利亚第一家铸造与该国货币挂钩的数字资产的银行。
 
-稳定币是一种数字资产，旨在保持其相对于另一种资产的价值稳定，并经常用作其他加密货币的门户或在去中心化金融系统中产生收入。
 
-澳新银行表示，已通过数字资产投资平台Zerocap向一家私人数字资产财富管理公司Victor Smorgon Group交付了澳元稳定币A$DC。
 
-澳大利亚储备银行(RBA)去年表示，该公司开始铸造与澳元挂钩的数字资产。数字钱包的增长可能允许交换由澳大利亚央行支持的代币或数字形式的货币，尽管中央银行仍然对数字货币持怀疑态度。
+![乌克兰总统泽连斯基昨午向日本国会发表视频演说。（法新社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-03/japan-russia-ukraine-conflict-100933.jpg?VersionId=P14M2J2M6vSe__JnwM_OvSr0tu4cu2f_&amp;itok=ikbLCOQ1)乌克兰总统泽连斯基昨午向日本国会发表视频演说。（法新社）
 
-澳新银行表示，该公司已经使用智能合约铸造了3000万澳元稳定币A$DC。这些稳定币在双方之间转移，后来又兑换回法定货币。
 
-新闻来源：[ANZ becomes first Australian bank to mint stablecoin](https://www.reuters.com/business/finance/anz-becomes-first-australian-bank-mint-stablecoin-2022-03-23/)
+以下原文內容：
+乌克兰总统泽连斯基周三（3月23日）向日本国会发表视频演说时称，俄罗斯正在准备使用沙林等的化学武器进行攻击。
 
-发布：tianzhihuan
+据日本共同社报道，这是海外政要首次在日本国会发表视频演说。演说由参众两院主办，除参众两院议长、首相岸田文雄和外长林芳正等出席。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+泽连斯基在演说时指出，为阻止侵略引发的海啸，各国必须禁止与俄罗斯之间的贸易。他称通过对俄罗斯加强施压，才能够恢复和平。他寻求对持续进攻的俄罗斯继续实施经济制裁。
+
+谈到乌克兰境内惨状，泽连斯基称，“被投下千枚以上导弹”。他说，包括儿童在内有数千人遇难，并称“甚至无法安葬被杀掉的人”。他还强调战争结束后力争快速重建家园，包括让避难民众回国。
+
+泽连斯基还批评俄军占据1986年发生事故的切尔诺贝利核电站，称“俄罗斯把核物质处理场变成了战场”。他对核物质扩散危害环境表示关切，并希望能对俄军使用核武器的可能性加以牵制。在谈及俄军炮击扎波罗热核电站，泽连斯基说，乌克兰境内核电站处于危险形势。
+
+迄今为止，泽连斯基已在[美国](http://www.zaobao.com/realtime/world/story20220314-1252285)、[英国](http://www.zaobao.com/realtime/world/story20220309-1250448)、[德国](http://www.zaobao.com/realtime/world/story20220317-1253315)等议会发表视频线演说，呼吁支持乌克兰。
+
+新闻链接：
+[泽连斯基：俄罗斯准备使用生化武器](https://www.zaobao.com.sg/realtime/world/story20220324-1255491)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

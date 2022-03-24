@@ -2,20 +2,23 @@
 ---
 
 
-## 乌克兰战争：无人机捕捉到马里乌波尔的破坏情况
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220233/)
+## 嘴炮威慑！俄驻联合国公使：若遭受北约威胁有权动用核武
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220307/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
+俄乌战火延烧，外界关心俄罗斯总统普京是否动用核武，克里姆林宫发言人佩斯科夫事前表示「若俄遭生存威胁就会」。俄罗斯派驻联合国的公使纪柏梁（Dmitry Polyanskiy）今日指出，「若俄罗斯遭受北约的威胁，俄罗斯有权利按下核武按钮」。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/efc206ed-ecbd-4ff1-aa9b-91ddfc48e258.jpg)图片来源：民视新闻
 
+简评：据郭文贵先生爆料称，俄罗斯动用核武器的概率几乎是零，马斯克也公开挑战普京，敢发核武器让其在俄罗斯头上炸。在动用核武器是自掘坟墓的情况下，俄驻联合国公使竟然还用嘴炮威胁，看来俄罗斯久攻不下乌克兰真的是急火攻心了！
 
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022324W0092](https://www.ftvnews.com.tw/news/detail/2022324W0092)
 
+撰稿/发布：一叶知秋
 
-03/23/2022 乌克兰战争：乌克兰城市马里乌波尔遭受了无情的轰炸，当局说自俄罗斯入侵以来，该市90%的地方被破坏或完全摧毁
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
