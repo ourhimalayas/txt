@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 10:11 PM (UTC)`
+
+3/24/2022 Miles Guo’s GETTR: Don’t let the China Eastern plane crash distract us; what happened to our fellow fighters at various CCP banks recently demonstrate that there is nothing real in Communist China, all are fake or fabricated; if the CCP is not eliminated, there won’t be any sunshine or a glimpse of justice in humanity<br/><br/>3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义<br/><br/>
+![img](https://media.gettr.com/group36/getter/2022/03/24/22/6139b995-407e-4de6-c021-0bbf5c523fcf/out.jpg)
+
+---
+
 `@miles 3/24/2022 9:56 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-24
@@ -152,13 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 【Ukraine Rescue】03/22/22 Refugees are packing up and waiting to leave, a family of 7 or 8 people are all women and children , no men; off camera everyone is busy working now,multinational journalists are enjoying the NFSC Coffee in our big rescue tent.<br/><br/><br/>【乌克兰救援】03/22/22 难民正在收拾行装等待出发，一个7、8人的家庭都是妇女儿童，没有男人；镜头之外大家都在忙碌，多国记者在大帐蓬中享用新中国联邦咖啡。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
 ![img](https://media.gettr.com/group23/getter/2022/03/24/10/39e3a056-7ce0-7514-45e7-2d614e3f410c/out.jpg)
-
----
-
-`@miles 3/24/2022 10:44 AM (UTC)`
-
-【Ukraine Rescue】03/22/22 Ukraine children see a broadcasting volunteer of the NFSC and approach to give warm hugs. It is heartwarming and the volunteers felt so loved.<br/><br/><br/>【乌克兰救援】03/22/22 乌克兰小朋友看到正在直播中的新中国联邦战友，主动冲上前来拥抱。战友感受到爱，觉得很暖心。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group40/getter/2022/03/24/10/ec524a17-1972-2762-ed15-ba5aa7f8d1c4/out.jpg)
 
 ---
 
