@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 11:22 PM (UTC)`
+
+2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
+![img](https://media.gettr.com/group33/origin/2022/03/24/22/84ca6e39-3313-1906-d256-62dbe30d3c50/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/24/2022 11:00 PM (UTC)`
 
 2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
@@ -154,13 +161,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.24 EST
 ![img](https://media.gettr.com/group26/origin/2022/03/24/11/80baaa6e-8062-2c59-ce50-93ad70631aae/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 11:24 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月23日第19天当日救援统计：<br/>Medyka救援站接待：约65人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7362人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 19 - Date: March 23, 2022 :<br/>Medyka Rescue Station Reception: about 65 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7362 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group22/getter/2022/03/24/11/57758597-6955-8e0b-cd37-659492d334bf/340f69dced2c4a11be116dd98be16050.jpg)
 
 ---
 
