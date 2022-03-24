@@ -2,38 +2,61 @@
 ---
 
 
-## 北约谴责俄罗斯核威胁，抨击中共为莫斯科提供政治支持
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2220796/)
+## 继新浪微博被套上绞索后还会有哪些媒体&amp;国企&amp;通讯企业
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2220814/)
 
-#### 撰稿：彩虹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/脏活儿_副本.jpg)
+据[中国新浪微博被美国证监会列入退市风险名单](http://www.18sz.com/news/show.php?itemid=12996)（2022-03-24 来源：路透社 环宇视展国际会展网）
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-15.jpg)图片来源：NATO
-根据《新闻极限》3月23日的报道，周三，北约（NATO）秘书长斯托尔滕贝格（Jens Stoltenberg）谴责俄罗斯的“核威胁示威”，并谴责中共国向莫斯科提供政治支持。
+【核心提示：中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。 根据SEC网站的最新披露，微博可在4月13日前提交证据，以证明被认定错误。
 
-斯托尔滕贝格是在布鲁塞尔举行的北约领导人峰会前的一次新闻发布会上发表上述言论的，而此前几个小时，克里姆林宫发言人佩斯科夫（Dmitry Peskov）拒绝取消核攻击的威胁。
+中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，但微博可在4月13日前提交证据，以证明被认定错误。（图）
 
-斯托尔滕贝格告诉记者说，“俄罗斯必须停止其核威胁示威的行为，这是危险的，也是不负责任的。任何使用核武器的行为都将从根本上改变冲突的性质。而俄罗斯必须明白，核战争永远不应该打，他们也永远不可能赢得一场核战争。”
+中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。
 
-报道说，与此相关的是，美国总统拜登周二警告说，普京可能对乌克兰采取化学或生物武器攻击。拜登说：“我认为这才是一个真正的威胁。”
+据路透社报道，根据SEC网站的最新披露，微博可在4月13日前提交证据，以证明被认定错误。
 
-拜登定于周三在布鲁塞尔降落，周四在北约总部与领导人会面，讨论下一步行动。然后他将出席七国集团（Group of Seven）讨论乌克兰局势的会议并发表讲话。
+SEC并称，被临时认定的发行人若认为被认定错误，将有15个工作日与委员会工作人员联系，并应在信函中附上证据支持。发行人在最终确定之前不受外国公司问责法要求约束。
 
-对此，斯托尔滕贝格警告说，北约已准备好应对“任何威胁，任何攻击”。
+此前SEC网站披露的暂定名单将百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药依据《外国公司问责法》认定为有退市风险的“相关发行人”。
 
-他告诉记者，“我们面临着一个根本性变化的安全环境，专制独裁国家越来越准备使用武力来达到他们的目的。北京已经和莫斯科一起质疑独立国家选择自己道路的权利，中共向俄罗斯提供政治支持，包括公开散布谎言和错误信息。”
+微博美股周三（23日）隔夜宽幅震荡，一度大跌10.1%，最终小幅收低0.6%，同期纳斯达克金龙中国指数收高1.3%，延续近期反弹。
 
-斯托尔滕贝格周三也告诉记者说，他预计各国领导人将呼吁中共“履行其作为联合国安理会成员的责任，不要支持俄罗斯的战争行为……并与世界其他国家一起呼吁立即和平地结束这场战争”。
+消息人士称，中国监管机构已要求包括阿里巴巴、百度和京东在内的部分在美上市公司做好披露更多审计信息的准备。目前中国政府正努力确保国内公司继续在纽约上市。
 
-报道认为，就俄罗斯本身而言，它一再指责华盛顿和基辅阴谋对其部队使用化学武器，而北约和拜登都强烈否认了这一点，拜登表示，普京（Vladimir Putin）总统继续强调这一说法，正是表明他在为自己使用这些武器寻找借口。
+路透社分析指，中国监管机构的最新举措表明，北京愿意做出一些让步，以解决中美之间长期以来就审计问题上的僵局。审计僵局已使美国对中国企业的数千亿美元投资面临风险。】
 
-文章指出，与此同时，西方领导人越来越担心，北京除了替俄罗斯政治宣传鹦鹉学舌外，还可能寻求为其提供物质支持，从而进一步（支持俄罗斯）入侵乌克兰。
+郭文贵先生在[2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://www.gettr.com/streaming/p10y5j870c5) 提到的是——
 
-同时，文章分析认为，中共一直在展示其作为政治和经济超级大国的力量，人们都在担心中共国正在从俄罗斯的乌克兰行动中吸取教训，并计划自己的入侵行动，以侵占台湾。
+【马上，也可能今天，也可能下一周，中国的共产党的这些媒体还有企业，都会受到美国的制裁，这叫美国制定的内部政策，叫对中共先给他“放几个蚊子咬咬他”，让他知道疼的感受。马上把它几个媒体平台彻底制裁。】
 
-**新闻来源**
+【你们最近发现了整个世界对海外任何和共产党有交易有联系的在西方世界，这不叫排华战争，这是一个干干净净地清理华人当中和共产党有关系的人，已经开始了。然后接下来大家会看到对共产党的媒体、国企、通讯企业，会超出你想象的制裁。】
 
-[NATO Warns Russia Against ‘Nuclear Saber-Rattling,’ Demands China Stop Fostering Lies](https://www.newsmax.com/newsfront/nato-russia-china-ukraine/2022/03/23/id/1062631/)
+对照[中国新浪微博被美国证监会列入退市风险名单](http://www.18sz.com/news/show.php?itemid=12996)和郭先生的直播，我们可以确定知道的就是在接下来中共在西方沉默的力量将接二连三被清除，这也是美国早就开始的Clean the Room行动的最新成果，在这一次美国和西方的“打扫房屋”行动中，第一个上砧板的新浪微博，接下来还有哪些作为中共帮凶的国企、通讯企业被套上绞索？让我们拭目以待。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
