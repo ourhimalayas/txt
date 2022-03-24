@@ -2,33 +2,28 @@
 ---
 
 
-## 澳洲亿万富豪克莱夫·帕尔默在感染新冠病毒后选择服用伊维菌素和羟氯喹
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2220015/)
+## 中日财经爆| 新浪微博被SEC例入退市风险名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2220123/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608.png)![Finally, Clive Palmer to pay out $110m](https://cdn.newsapi.com.au/image/v1/aa09d6efb8ea298e2ef7d02a273fbdf2)图片来自网络
-帕尔默先生于今年2月27日感染了新冠病毒，被紧急送进医院。医生告诉他，他的肺部发炎，需要进入急救室并上呼吸机，遭到帕尔默先生的拒绝。
+撰稿：东京樱花团/peterwong
 
-在他的家中，一个由四名医生组成的团队听取了美国专家关于如何治疗的指示。帕尔默先生说他被注射了超强的类固醇药物—地塞米松，以保持他肺部功能。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新浪微博被SEC例入退市风险名单.png)[图片来源](https://www.bbc.com/zhongwen/simp/business-59578844)
 
-曾经治疗过美国前总统特朗普的专家团队为帕尔默先生注入了五种抗病毒药物的鸡尾酒，其中包括伊维菌素和羟氯喹。
+美国当地时间3月23日，中共国社交媒体平台——新浪微博，遭美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。
 
-医生告诉他，如果没有这些抗病毒药物的干预，他很可能会有生命危险，因为他已经67岁了，而且体重偏高。服药10小时后，病情开始好转。
+此前SEC网站披露的暂定名单将百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药依据《外国公司问责法》认定为有退市风险的“相关发行人”。
 
-帕尔默先生没有接种新冠疫苗。坚决反对新冠疫苗的强制接种政策。帕尔默先生说，这次濒临死亡的经历并没有改变他对接种新冠疫苗的看法。
+SEC并称，被临时认定的发行人若认为被认定错误，将有15个工作日与委员会工作人员联系，并应在信函中附上证据支持。发行人在最终确定之前不受外国公司问责法要求约束。
 
-帕尔默先生曾在2020年初，进口了 500 万剂，超过1吨的硫酸羟氯喹，准备用于新冠病毒的早期治疗。但由于澳大利亚药品管理局的强烈干预，这些硫酸羟氯喹被销毁。
+微博美股周三隔夜宽幅震荡，一度大跌10.1%，最终小幅收低0.6%。
 
-目前，澳大利亚负责评估新冠病毒治疗方法的安全性和有效性的治疗药物协会尚未批准用伊维菌素或羟氯喹治疗新冠病毒。
+消息来源:
 
-帕尔默先生在今年一月宣布，他将在今年5月举行的联邦选举中竞选澳大利亚参议员。这次生病不可避免地会影响他的竞选活动。他说，我仍然没有完全康复，很容易疲惫。
+[**新浪微博遭美国证监会列入退市风险名单 为名单上第六家中概股**](https://cn.reuters.com/article/weibo-sec-watchlist-0323-wedn-idCNKCS2LL03J?il=0)
 
-消息来源：[Clive Palmer refused ICU treatment while battling COVID-19 in favour of taking ivermectin and hydroxychloroquine](https://www.skynews.com.au/australia-news/coronavirus/clive-palmer-refused-icu-treatment-while-battling-covid19-in-favour-of-taking-ivermectin-and-hydroxychloroquine/news-story/c6fc9735e2e93c2a2ebbc987198e2f9c)
-[反对新冠疫苗强制接种的澳大利亚亿万富豪克莱夫·帕尔默宣布竞选澳州参议员](https://gnews.org/zh-hans/1879090/)
-
-*审核：喜国公民*
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

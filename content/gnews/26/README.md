@@ -2,31 +2,34 @@
 ---
 
 
-## 【G时新闻】克里姆林宫希望只有 “生存威胁”的情况下使用核武器
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2219364/)
+## 今日盖特大V推荐 — 卡尔·本杰明（Carl Benjamin）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2219702/)
 
-作者：加拿大温哥华扬帆农场 – 播报：悠然 – 视频制作：文雅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2747.png)
+盖特链接： [https://gettr.com/user/carlbenjamin](https://gettr.com/user/carlbenjamin)
 
-克里姆林宫发言人德米特里·佩斯科Dmitri Peskow周二在美国有线电视新闻网国际频道表示：“我们有一个众所周知的内部安全概念。你可以在那里读到使用核武器的所有理由”。
+**卡尔·本杰明自述：**
 
-克里姆林宫发言人针对CNN记者Christiane Amanpour强调提出，关于他是否“相信或确信”俄罗斯总统弗拉基米尔·普京不会在与乌克兰的冲突中使用核弹时回答道：“如果我们的国家受到生存威胁，那么就可以按照我们的概念使用它（核弹）。”
-与五角大楼等方面关于俄罗斯前进受阻的信息相反，佩斯科Peskow表示，在乌克兰的军事行动“正在完全按照预定计划进行”。俄罗斯军队希望“消除乌克兰的军事潜力”，这是“行动的主要目标”之一。
-与此同时，克里姆林宫发言人表示，莫斯科在乌克兰的部队“只针对军事目标和物体”。与此相反，乌克兰、西方政府和人权组织指责俄罗斯也在袭击平民。
-同时，鉴于乌克兰战争的发展，联合国秘书长安东尼奥·古特雷斯不再排除核战争的可能性。俄罗斯将核大国的威慑性武器置于待命状态，这一发展令人毛骨悚然。古特雷斯上周在纽约表示：“曾经不可想象的核冲突前景，现在又回到了可能发生的范围。”在此，联合国负责人改变了语气：他之前曾将使用核武器的可能性描述为“难以想象”。
+英国自由主义者
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2748.png)图片来源：网络
+**卡尔·本杰明简介：**
 
-视频链接：https://gettr.com/post/p11g40t1ee9
+卡尔·本杰明（Carl Benjamin 生于1979年），也以其在线化名阿卡德的萨尔贡而闻名，是英国反女权主义YouTuber和政治评论员。作为欧洲怀疑主义右翼英国独立党(UKIP)的前成员。
 
-上传：兴旺
+卡尔·本杰明自 Gamergate 以来，他一直专注于宣传英国脱欧和批评女权主义、伊斯兰教、身份政治，以及他认为媒体和其他机构的政治正确性。本杰明被多家媒体描述为政治上的“右翼”和“极右翼”。他否认对他的政治的这种描述，而是称自己为“古典自由主义者”。
 
-* * *
+编撰：洛杉矶盘古农场 — 心照
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+校审：洛杉矶盘古农场 — 郭友(文苏)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+发布：洛杉矶盘古农场 —子萍
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

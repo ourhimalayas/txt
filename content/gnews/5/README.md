@@ -2,44 +2,43 @@
 ---
 
 
-## 有声|香草山对魏丽红诈骗团伙的诉讼取得重大胜利
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2220045/)
+## 微博抖音平台发布公告对东航事件禁止“不当言论”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220133/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月22日，来自长岛伟哥盖特消息：香草山农场代表战友们对九指妖魏丽红团伙欺诈行为的民事诉讼取得重大胜利。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2020年开始，魏丽红告诉爆料革命战友，她可以帮助战友投资GTV，战友们纷纷汇款到魏丽红指定账号。随后，魏丽红及其同伙陈其声（海洋），利用战友们对她的信任，非法挪用战友们的投资款去进行个人房地产投资，并企图通过非法手段侵吞战友的投资款。魏丽红团伙的险恶居心暴露后，战友们要求其退还投资款，被其以种种借口拖延和拒绝。有见及此，战友们向农场求助，香草山农场代表战友们对魏丽红诈骗团伙提起诉讼，要求其退还战友们的投资款。
+整理：gardeniahu
+编辑：文泓
 
-3月14日，亚利桑那州联邦法庭作出判决，认定魏丽红及其同伙陈其声（海洋）无故拒绝到庭应答诉讼，因此以香草山农场为原告，对其欺诈行为的诉讼，可以在他们缺席的状况下继续进行。
-
-被告陈其声在法庭决定的当天，通过其律师向法庭递交了取消这一判决动议的申请，并表示愿意与香草山农场合作，以避免进一步的不利判决。
-
-3月14日的法庭判决，再次验证爆料革命的“唯真不破”，任何企图把手伸进战友腰包的人，都不会成功，并要负上相应的法律责任。正义可能会延迟，但永远不会缺席！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
 
 
 
 
 
-文字版原文：[香草山对魏丽红诈骗团伙的诉讼取得重大胜利](https://gnews.org/zh-hans/2212987/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@I3W2SS81NMDFJX5SE.png)图片来源：DW & 雅典娜设计组
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+3月21日，东航MU5735客机事件牵动人心，很多网友通过各自媒体平台关注事件动态，祈愿平安。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+当日晚间，微博管理员发布公告称，在巡查中发现，个别网友发布幸灾乐祸、调侃灾难等不当言论，对此，站方坚决反对并严肃处置。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+截至目前，站方根据《微博社区公约》等相关规定，对违规的25个账号，视程度采取禁言30天至永久禁言处置，并清理违规内容。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+微博表示，如发现相关违规内容，用户可通过前台举报投诉入口和 @微博管理员方式进行举报，我们将及时予以处置。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+对于该事件抖音也发布公告称，目前事故正在调查和处理中，抖音在此提醒广大用户，在平台发布相关信息、内容要遵守真实、客观原则，不借助热点事件蹭热、玩梗，更不要主动挑起、参与网暴相关人员。与此同时，平台将运用策略模型 + 技术手段严加管控。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+中共国一向严加管控自媒体，严禁自媒体对敏感事件作出评论，只有政府所谓伟光正的权威声音，如有违反从禁言甚至封禁账号处罚。
 
+参考链接：[微博抖音等公告：禁止蹭空难热度及发表不当言论](https://news.sina.cn/2022-03-21/detail-imcwiwss7327804.d.html?from=wap)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

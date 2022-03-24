@@ -2,25 +2,33 @@
 ---
 
 
-## 警方判定自由車隊與縱火案無關
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2219808/)
+## 英军助力！训练乌克兰使用「星光飞弹」打击俄军战机
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220061/)
 
-作者：加拿大溫哥華揚帆農場 – 采編： 文萊 –  編譯撰稿： 晨熹
-
-據加拿大【真北方】3月21日報道，渥太華警方日前已正式確認，發起反疫苗護照運動的自由車隊與當時抗議現場附近的故意縱火案毫無關聯。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2735.png)圖片來源：The True North
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
 
 
-據悉，警方現已對發生於2 月 6 日的渥太華市區公寓縱火案中的一名嫌犯提起刑事訴訟，而另一名已被確認的嫌犯正在追捕之中。
 
-報道指出，為將反疫苗護照抗議運動的參與者抹黑為極端恐怖分子，包括渥太華市長以及多名自由黨議員，此前都曾在不同場合公開將該縱火案歸咎於自由車隊的卡車司機，並最終通過以上栽贓陷害手段，違法啟動了[緊急狀態法]對和平集會進行了鎮壓。
 
-校對編輯：硫酸羥氯喹64
 
-發稿：青青
+俄罗斯入侵乌克兰仍在继续，面对全球的制裁俄罗斯并没有停战的苗头！美国与北大西洋公约组织（NATO）盟国为了帮助乌克兰抵抗侵略持续输送防卫性武器给乌克兰，强化抵御俄国战力。
 
-新聞來源： [https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/](https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/php5yiYPR-1.jpg)图片来源：法新社
+
+如今英国军方宣布，他们已训练乌军使用反战机飞弹“星光飞弹”（Starstreak），可有效打击俄空军的主力米格战机。
+
+简评：在全球制裁俄罗斯的背景下，俄罗斯有中共国的金援与兵工厂，乌克兰有西方国家提供的包括武器在内的各种援助与指导训练，就算成为消耗战，普京用屁股想想也打不赢的，独裁者的野心妄想只能加速其灭亡！
+
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3868814](https://news.ltn.com.tw/news/world/breakingnews/3868814)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
+
 
  
 

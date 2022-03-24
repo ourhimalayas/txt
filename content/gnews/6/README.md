@@ -2,22 +2,32 @@
 ---
 
 
-## 乌官方：杰斯纳河一座桥樑遭俄军炸毁
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220037/)
+## 中日财经爆| 俄罗斯对“不友好国家”将开始以卢布结算出售天然气
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2220131/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/photo-output-4.jpg)图片来源：@cgtr推特
+撰稿：东京樱花团/peterwong
 
-据LTN报道，俄罗斯侵略乌克兰迈入第29天，俄军持续加大对各城的炮袭力度，力求推进。据乌国官方稍早的说法，俄军摧毁了杰斯纳河（Desna river）上一座桥樑，切断了连通北部战略城市切尔尼戈夫（Chernihiv）至首都基辅（Kyiv）的关键道路。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯对不友好国家将开始以卢布结算出售天然气.png)
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3869946](https://news.ltn.com.tw/news/world/breakingnews/3869946)
+俄罗斯总统普京周三（3月23日）表示，俄罗斯将开始以卢布结算向“不友好国家”出售天然气。
 
-撰稿/发布：一叶知秋
+普京表示，这些调整只会影响支付货币，俄政府和央行有一周时间来想出如何将这些操作转为由卢布结算的解决方案。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+《不友好国家名单》为俄罗斯联邦政府于2021年5月13日发布的一份声称对俄国不友善国家的名单。
 
+2022年2月24日，俄罗斯军事入侵乌克兰，遭遇西方各民主国家制裁。2022年3月5日，俄罗斯发布更新的名单。
+
+截至2022年3月5日，该名单包括的国家如下：
+
+阿尔巴尼亚、澳大利亚、安道尔、欧洲联盟、爱尔兰、爱沙尼亚、奥地利、比利时、保加利亚、波兰、葡萄牙、马耳他、法国、芬兰、德国、丹麦、拉脱维亚、立陶宛、卢森堡、罗马尼亚、克罗地亚、荷兰、捷克、西班牙、希腊、匈牙利、斯洛伐克、斯洛文尼亚、塞浦路斯、瑞典、意大利、北马其顿、冰岛、摩纳哥、密克罗尼西亚联邦、美国、台湾、挪威、列支敦士登、黑山、韩国、加拿大、新加坡、新西兰、圣马力诺、日本、瑞士、英国（包括英属海外领土泽西岛、安圭拉、维尔京群岛、直布罗陀）、乌克兰。
+
+消息来源:
+
+[普京称俄罗斯将开始以卢布结算向“不友好国家”出售天然气](https://cn.reuters.com/article/russia-selling-gas-rouble-0323-wedn-idCNKCS2LL034?il=0)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
