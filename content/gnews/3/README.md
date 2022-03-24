@@ -2,26 +2,26 @@
 ---
 
 
-## 北约秘书长呼吁中共明确谴责俄罗斯 强调将让俄国付出代价
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2222934/)
+## 联合国称俄罗斯难以取胜 应谈判停火
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2223012/)
 
-北大西洋公约组织（NATO）秘书长史托腾柏格今天敦促中共明确谴责俄罗斯入侵乌克兰行动，并呼吁中共不要提供给俄国政治等支持，强调北约会让俄罗斯付出代价。
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月22日，联合国秘书长古特雷斯在一份声明中指出，俄罗斯的这次侵略战争无法获得胜利，俄方应尽快停火并与乌克兰进行谈判。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-54.jpg)
+声明中，古特雷斯认为，俄军虽然可以炸毁乌克兰的一座城市，但乌克兰人的精神不能被征服，因此，莫斯科当局注定不可能在这场战争中取胜。而俄罗斯作为“侵略者”对乌克兰平民恐怖的系统性攻击已经让乌克兰沦为人间地狱。目前，一万多万乌克兰人被迫逃离了他们的家园和祖国。为此，俄罗斯持续这样的侵略战争是荒唐且不可被接受的。与此同时，墨西哥和法国正在努力起草一项决议，要求联合国保护乌克兰平民、民用基础设施和人道主义工作者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3352690c-d731-471c-85aa-882693caad62.jpg)图片来源：北大西洋公约组织官网
+而乌克兰总统泽连斯基则在次日的演说中表示，俄罗斯已经占领了乌克兰包括切尔诺贝利在内的大型核电厂，且俄军或将在接下来的行动中使用生化武器及核武器。对此，乌克兰希望国际社会可以继续对俄罗斯施压，并停止与俄罗斯的贸易，从而使得这场战争可以尽快结束。
 
-中共迄未加入国际社会强烈抨击俄罗斯挥军乌克兰的行列，拒绝谴责俄国总统普京的侵略行径。史托腾柏格表示，乌克兰人民和军队正为他们的自由和权利而战，北约有决心会让俄罗斯付出代价，结束这场残酷的战争。
+参考链接：
+1. [UN秘書長：俄羅斯這場仗贏不了！籲雙方快上談判桌認真討論停火](https://www.rti.org.tw/news/view/id/2128025)
+2. [日國會演說 澤倫斯基：盼日本持續對俄制裁施壓](https://news.ltn.com.tw/news/world/breakingnews/3869581)
 
-简评：北约点名中共明确谴责俄罗斯，强调将让俄国付出代价。在这个节骨眼上，中共想玩表面模糊背地支持的手段，基本已经行不通了。假如中共不明确谴责俄罗斯的态度，俄罗斯付出的代价中共也得有一份。调头支持正义，还是继续助纣为虐，中共你选吧！一步错，万丈深渊！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022324W0307](https://www.ftvnews.com.tw/news/detail/2022324W0307)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+总编/编辑/审核: Irene木木
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

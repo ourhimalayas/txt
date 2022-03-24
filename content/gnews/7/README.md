@@ -2,39 +2,25 @@
 ---
 
 
-## 樱花数据分析┃英格兰：接种次数越多越易感染，三针接种者感染风险最高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222879/)
+## 佣兵团唯一女兵！23岁意大利正妹赴乌参战
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2222956/)
 
-撰稿：东京樱花团/TV
-制图：东京樱花团/chuansang
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高1.png)
+俄乌战争持续延烧，乌克兰总统泽伦斯基曾宣布组建国际防御兵团（外籍兵团），号召外国勇士来共同抵御俄罗斯，世界各地的勇者也纷纷响应。对此，就有一位意大利正妹飞行员加入外籍兵团，是目前国际特种部队中唯一的女性。
 
-英格兰政府发布了第十一周疫苗监督数据[1]。通过三针接种者、未接种者的每百万人感染人数计算出三针接种者的感染风险显示，三针接种者的感染风险每周都在增加（图1）。其中18-79岁人口的感染风险为未接种者的3倍以上，60-69岁人口更是达到了4倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3581164-PH.jpg)图片来源：《giuliajschiff》IG
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高2.png)
+报导提到，朱莉娅自从俄国2月24日侵乌以来，一直在前线作战，而且她也是外籍兵团中，唯一一名女性。她也强调，「我不是来当佣兵的，我来这里是为了与手无寸铁的人民站在一起」。
 
-按之前文章[2]的计算方法，我们进一步计算出了相对于未接种者，一针接种人群的感染风险(图2)。综合一针、两针、三针的结果，可见除了18岁以下及80以上人群，均呈现接种次数越多，更易感染的结果。这与丹麦数据[3]一致。
+简评：谁说女子不如男！作为佣兵团的唯一女性，23岁朱莉娅的举动令多少男子汗颜。战争中，有保卫家乡的，有为国征战的，而意大利朱莉娅的信念是为了与手无寸铁的人民站在一起！这样崇高的信念值得全世界为她点赞！祝您一切顺利平安！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高3.png)
+新闻来源：[三立新闻网](https://www.setn.com/News.aspx?NewsID=1090118&amp;utm_source=setn.com&amp;utm_medium=viewall&amp;utm_campaign=viewallnews)
 
-这个数据再次证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
+撰稿/发布：一叶知秋
 
-（注：本文为《樱花数据分析》第二十一期）
-
-数据来源：
-[1][COVID-19 vaccine surveillance report Week 11](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1061532/Vaccine_surveillance_report_-_week_11.pdf)
-[2][樱花数据分析┃英格兰：三针接种者感染风险持续上升，成为最易感染人群！](https://gnews.org/zh-hans/2191606/)
-**[3]**[樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2205218/)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

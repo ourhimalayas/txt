@@ -2,28 +2,34 @@
 ---
 
 
-## 拜登出席北约紧急峰会应对俄乌局势
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2222814/)
+## Gettr宣布与独立记者Andy Ngo合作
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2222839/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/nato-biden-ukraine-russia.jpg)图片来源：CBS News
-根据《NBC News》3月24 日报道，在俄乌战争一个月之际，美国总统拜登周四与西方盟友聚集在欧洲，支持基辅，用新的制裁措施惩罚莫斯科。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/MYQ5TIEQN5ETVLKDFOQS32Z6UM-scaled.jpg)
+3月24日，gettr宣布与独立记者Andy Ngo建立新的合作伙伴关系。Andy Ngo表示他将在gettr上制作一个名为“每周通知”的独家新闻节目，提供他独到的政治评论和分析。
 
-乌克兰总统泽伦斯基在布鲁塞尔的北约峰会上通过视频链接发表讲话，敦促增加对他的国家的军事援助。乌克兰领导人从首都通过视频信息召集各国支持基辅的正义反抗，这已成为乌克兰不畏艰险地反抗的象征和使俄罗斯很难进一步前行。
+据悉Andy Ngo是全球领先的独立记者之一，他在《纽约时报》开设了专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。他是一个无所畏惧的人，以报道和录像示威而闻名。因他坚持言论自由的报道，受到了暴力和死亡威胁，以及无数所谓的法律法规审查。他表示很期待与新的受众在gettr上互动。
 
-拜登和美国盟友将讨论对乌克兰的援助、对俄罗斯的新制裁、加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
+Gettr CEO Jason Miller表示很自豪能够Andy Ngo这样勇敢的记者合作，很开心为他提供gettr这样的平台，使得他能够与他的数百万用户分享讯息。目前新闻和言论自由都受到大科技媒体的审查，只有gettr是一个政治辩论和重要讯息都可以自由流动的地方。
 
-据一位高级政府官员说，白宫已经成立了一个国家安全官员小组，以计划应对普京使用化学武器的情况。熟悉拜登政府想法的一位消息人士说，美国预计还将宣布欢迎多达10万名逃离战争的难民的计划。
+撰稿、发布：骄子
 
-美国国防部一位高级官员周三表示，在战场上，乌克兰军队已经成功地将俄罗斯军队逼退到基辅东部，挫败了俄罗斯向首都的推进。
+* * *
 
-原文链接：
-[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
+欢迎订阅我们的GNews账号：
 
-编辑，发稿 Spirit
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
 
+ 
 
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

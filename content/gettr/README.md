@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 2:49 PM (UTC)`
+
+大实话今天搬到@yezhaoying
+> `@yezhaoying 3/24/2022 2:44 PM (UTC)`<br/>叶钊颖-郝海东-飞飞 《大实话·第十五场》： “新中国联邦除恶扬善，灭共之战一定会赢！”   2022-03-24
+![img](https://media.gettr.com/group13/origin/2022/03/24/14/7820e217-8090-c568-430f-190de1275e09/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/24/2022 1:22 PM (UTC)`
 
  3月24号：尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！
@@ -149,14 +157,6 @@
 
 3/23/2022 Miles Guo: The CCP is trying to take advantage of the wars in the Middle East to push for digital RMB settlement of oil trade in order to bring down the US dollar and the world financial system and to dominate the world. The West will not be able to impose sanctions on the CCP. Xi will not give up invading Taiwan. The whole world will go after the Chinese people, but only the New Federal State of China can save us!<br/><br/>3/23/2022 文贵直播：中共妄图利用中东的战乱推行数字人民币结算石油交易，以打垮美元和世界金融体系并称霸世界，届时西方将无法制裁中共；习不会放弃打台湾；中国人面临全世界的清算，唯有新中国联邦才能拯救我们！<br/>
 ![img](https://media.gettr.com/group41/getter/2022/03/24/01/94f9e28c-b2d9-4a40-9ce5-0a79b05a40fc/out.jpg)
-
----
-
-`@miles 3/24/2022 1:09 AM (UTC)`
-
- 3月23日：聪明，专业的有良知的战友！
-> `@clark228 3/23/2022 1:29 AM (UTC)`<br/>强烈要求中国民航局公布QACVR（驾驶舱窃听器）的内容。<br/>郭先生在2018年就爆料过ccp给所有飞机安装了窃听器。<br/>而中国民航局不顾厂家多次反对，强行在驾驶舱安装QACVR窃听器。用来监听飞行员的谈话，这个设备最多可连续记录3个月的录音，每个航空公司都可以自行提取录音。而黑匣子只能保存30到50分钟的录音。<br/><br/><br/>以前，飞行员在驾驶舱可以随便聊天吐槽，然而安装QACVR以后，飞行员生怕说错一句话，就会遭致领导的打压。民航局也利用窃听器大搞飞行作风整顿，即，标准喊话说错一个字，检查单读的不大声都会被领导考评。更别提闲聊了，长期在如此压抑的飞行环境中，你觉得飞行员好能是正常人吗？<br/><br/>飞机失事了，民航局闭口不提QACVR的事情，你们想帮CCP隐瞒什么了？<br/>驾驶舱是一个没人权、没自由、极度压抑、时刻被监听的地方、飞行员还能是正常人吗？<br/>
-![img](https://media.gettr.com/group26/getter/2022/03/23/01/6da56f83-33c6-e59b-5f08-42064a2fca64/3ffaff896efb48ceb179c8e33f62c230.jpg)
 
 ---
 
