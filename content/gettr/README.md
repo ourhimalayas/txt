@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 11:00 PM (UTC)`
+
+2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
+![img](https://media.gettr.com/group33/origin/2022/03/24/22/84ca6e39-3313-1906-d256-62dbe30d3c50/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@dailybeats 3/24/2022 5:13 AM (UTC)`
+
+Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Yulia. Yulia and her 87 years old grandmother fled from Kharkiv, where there is no food, no water, no electricity, no anything. People are dying there. In 2022, people are dying of these things. It’s a big tragedy! <br/><br/>#stopthewar #takedowntheccp #help #ukrainian
+![img](https://media.gettr.com/group14/origin/2022/03/24/05/d0d95afc-4b49-0697-5b05-63f003265f80/out.jpg)
+
+---
+
 `@miles 3/24/2022 10:11 PM (UTC)`
 
 3/24/2022 Miles Guo’s GETTR: Don’t let the China Eastern plane crash distract us; what happened to our fellow fighters at various CCP banks recently demonstrate that there is nothing real in Communist China, all are fake or fabricated; if the CCP is not eliminated, there won’t be any sunshine or a glimpse of justice in humanity<br/><br/>3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义<br/><br/>
@@ -145,20 +161,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月23日第19天当日救援统计：<br/>Medyka救援站接待：约65人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7362人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 19 - Date: March 23, 2022 :<br/>Medyka Rescue Station Reception: about 65 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7362 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group22/getter/2022/03/24/11/57758597-6955-8e0b-cd37-659492d334bf/340f69dced2c4a11be116dd98be16050.jpg)
-
----
-
-`@miles 3/24/2022 10:55 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group11/origin/2022/03/24/05/67f75190-6a68-6745-88f0-42e0044bbf06/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 10:49 AM (UTC)`
-
-【Ukraine Rescue】03/22/22 Refugees are packing up and waiting to leave, a family of 7 or 8 people are all women and children , no men; off camera everyone is busy working now,multinational journalists are enjoying the NFSC Coffee in our big rescue tent.<br/><br/><br/>【乌克兰救援】03/22/22 难民正在收拾行装等待出发，一个7、8人的家庭都是妇女儿童，没有男人；镜头之外大家都在忙碌，多国记者在大帐蓬中享用新中国联邦咖啡。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
-![img](https://media.gettr.com/group23/getter/2022/03/24/10/39e3a056-7ce0-7514-45e7-2d614e3f410c/out.jpg)
 
 ---
 

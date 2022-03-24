@@ -2,34 +2,20 @@
 ---
 
 
-## 中国外交部长王毅突访塔利班掌权的阿富汗
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2224842/)
+## 只有消灭中国共产党才能拯救全人类
+` 英里农场 MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2224859/)
 
-**撰稿：日本东京方舟农场 JIHO**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/平面文宣-英里农场.jpeg)
+**这个平面文宣以新中国联邦的蓝色为底色；以冲击力的拳头为主要元素，代表我们强有力的行动；上面是中英文文字，下面是俄文关键文字，表达我们新中国联邦人最本质的追求和要表达的最关键信息。 整体文宣冲击力强、简单好记忆、容易识别！**
 
-根据路透喀布尔3月24日消息，中国外交部长王毅周四访问喀布尔，会见阿富汗外长，阿富汗外交部发言人表示，这是自去年塔利班掌权以来中国官员的最高级别访问，也是在国际社会许多人对塔利班关闭女子高中感到愤怒之后的一天。
+**【Ukraine Rescue】In Medyka, Poland. The rescue team members of NFSC who love peace and justice are risking their lives to save others’. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
+【乌克兰救援】波兰梅迪卡，热爱和平和正义的新中国联邦救援团队人员正冒着生命危险在救助别人的生命！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-19.png)**图片来自德国之声网站**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FINAL-VERSION-color-1-1-3.png)
 
-阿富汗外交部发言人发表声明称，王毅会见了阿富汗代理外长阿米尔·汗·穆塔奇，讨论政治和经济关系，包括开始在采矿业开展工作以及阿富汗在中国“一带一路”基础设施中可能发挥的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-4.png)欢迎加入我们农场的DISCORD
 
-中国是包括巴基斯坦和卡塔尔在内的仅有的几个自塔利班于8月接管阿富汗以来向该国派遣部长的国家之一。
-
-包括北京在内的外国政府对正式承认塔利班政府持保留态度，许多人说塔利班需要证明他们对人权、反恐和包容性治理的承诺。
-
-这次访问是在一天前全球广泛谴责塔利班政府之后进行的，当时它出人意料地命令高中女生回家，在本周早些时候表示学校将对所有学生开放后的政策突然大转弯。
-
-中国将于本月晚些时候主办地区外长会议，声明称穆塔奇也将参加会议。
-
-“穆塔奇部长补充说，新（政府）带来的安全为包括中国在内的外国投资在阿富汗奠定了基础，除了在新政府的全力支持下与阿富汗人在经济增长和稳定方面合作外，还确保了他们的利益， ”外交部发言人阿卜杜勒·卡哈尔·巴尔基说。
-
-同样在周四，外交部表示，俄罗斯驻阿富汗特使扎米尔·卡布洛夫访问了喀布尔，并会见了穆塔奇，讨论了政治和经济关系。
-
-参考链接：
-[https://reurl.cc/Go0gXZ](https://reurl.cc/Go0gXZ)
-
-总编：老孙
-校对发布：Linda
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-3.png)欢迎关注我们的盖特
 
  
 

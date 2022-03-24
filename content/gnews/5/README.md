@@ -2,46 +2,34 @@
 ---
 
 
-## 欧盟批准实施在危机期间使用的快速反应军事力量
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2224707/)
+## 被停职的希腊医疗卫生工作者的绝食活动
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2224763/)
 
-作者：纽约香草山农场 – 四季
+#### 编译 意大利达芬奇农场 小白鸽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+自去年九月起，希腊约有7500名医疗卫生工作者被迫终止工作、无薪水，这种状况已经持续了数月。意大利政府也在近期对医疗卫生工作人员的新冠疫苗强制令延长至2022年12月31日。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-24-alle-18.39.41.png)图片来源：eventiavversinews.it
+如果你们去希腊或是去意大利度假， 不要忘记那儿有成千上万的家庭正在挨饿并靠借钱生活。
 
+已经崩溃的希腊国家医疗卫生体系现在少了7500人。
 
+他们中许多人已经在卫生部门前露营了几个月。
 
+到目前为止，还没有一家媒体包括希腊突出报道这一现象。
 
+以“优先尊重人权”为自居的民主欧洲——雅典发生这样的抗议活动。
 
-据[网关专家](https://www.thegatewaypundit.com/2022/03/eu-approves-implementation-rapid-response-force-used-crisis-occur/)3月23日报道，在俄罗斯对乌克兰进行无理和无端的侵略后，当战争重新回到欧洲之际，欧盟外交部长和国防部长周一就一项安全战略达成协议，*该战略*规定在危机发生时可迅速部署多达5000人组成的部队。
+当这些被停职的医疗卫生工作者看到政府如此冷淡地拒绝了他们的对话请求后，他们当中的五人同时开始绝食。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/eu-torn-flag-safe-image-600x400-1.jpg)[图片来源](https://www.thegatewaypundit.com/2022/03/eu-approves-implementation-rapid-response-force-used-crisis-occur/)
-
-作为新批准的 “战略指南针”战略的一部分，该战略旨在到2030年加强欧盟的安全和防御政策。彼时，快速部署部队将能够进行陆地和海上演习， “加强军事流动性”，并将在 “危机时刻 “处理问题。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+简评：作为医疗卫生工作者， 他们深知绝食对他们的身体健康意味着什么，会付出多大的代价的。但是他们看到“民主正在消亡，宪法正在被抛弃”。这促使这些来自全希腊的被迫停职的医疗工作者，组织起来，以绝食来抗议新冠疫苗暴政。
 
 
 
+参考链接：
 
+[https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit](https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit)
+
+编辑、上传：Xiao beige
 
  
 
