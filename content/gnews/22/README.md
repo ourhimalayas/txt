@@ -2,26 +2,19 @@
 ---
 
 
-## 拜登政府正在对中共实施二级制裁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2224152/)
+## 香港经历大灾难后一定会重生
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2224170/)
 
-作者：加拿大温哥华扬帆农场 – 文莱
+《2022年03月17日文贵大直播》节选
 
-据【零对冲】3月22日报道，美国国务卿布林肯日前宣布，将对中共各级官员实施更多签证限制，以打击和惩罚该政权继续猖狂支持俄罗斯对抗和逃避西方制裁的恶行。
+二战香港人80%的人给杀光 。130万人，最后剩了不到20万人。 香港的半岛酒店就是当时的日本的日军总部。在香港的中环，还有今天的潜水湾大街上，无数个女孩儿光着个屁股，拿绳栓着一串一串当性奴，比“锁链女”还惨……最后英军来了，也不是你想象的对香港人就像亲爹亲娘一样，不是的。 英军当时很排华。当时就在那个铜锣湾 英国人是站在台下面看跑马，中国人是在外面看，而且另外一边，你不能碰人家英国人，你是小猪猡，离得远点，种族歧视很严重。英军不是在香港都是绝对的好，它有很多错误，很多(不)人道，但肯定比共产党好，比日本人好得多。 就这样，香港最后成了这么伟大的港。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2828.png)图片来源：https://dubaiburjkhalifas.com
+* * *
 
+素材，剪辑，字幕：小蜜蜂 | 发布：James文棟
 
-据悉，尽管拜登政府尚未公布将受到签证限制的中共官员名单和人数，但该措施被认为是前川普政府所制定相同政策的加强版，并将更有效地禁止中共官员及其家属进入美国。
-
-对此，文贵先生指出，美国政府目前正在全力对中共国实施二级制裁，对象包括其主要媒体平台，电信公司，各大银行以及粮食机构，特别是中共在海外的代理人，例如吴征和单伟健等，都将成为被围剿的首要目标。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[US Unexpectedly Sanctions China Officials Hours After Demanding Beijing Condemn Russia | ZeroHedge](https://www.zerohedge.com/markets/us-expands-travel-bans-chinese-officials-hours-after-demanding-beijing-condemn-russia)
-
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

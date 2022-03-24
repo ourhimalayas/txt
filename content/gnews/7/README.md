@@ -2,22 +2,14 @@
 ---
 
 
-## 有声|巴西最高法院的裁决禁止使用Telegram
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224292/)
+## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月22日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224322/)
 
 配音：香草山教育部 – 子兵
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-9to5Mac新闻网18日报道，根据巴西最高法院的一项裁决，因Telegram应用程序共享危险内容方面不符合地方当局的规定将在巴西被禁止使用。Telegram 随时会从苹果的 App Store 和巴西的其他数字平台下架。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-5.jpg)
 
-巴西通过对Telegram的长期查，确定该应用程序已被巴西政界人士用来分享假新闻，Telegram 上还有多个犯罪集团和渠道的报道，它们提供了对毒品、武器和其他非法内容的访问。
-
-当巴西联邦警察要求 Telegram 取缔这些团体并提供有关其成员的数据时，Telegram 从未对这些请求作任何回应，最高法院大法官亚历山大·德·莫赖斯（Alexandre de Morais）表示，Telegram 表现出“对巴西司法的蔑视”，他周五下令巴西所有互联网提供商和数字平台采取措施，停止 Telegram 在该国的服务。
-
-巴西通信监管机构 ANATEL 通知所有公司遵守最高法院的裁决。不遵守该决定的公司将被处以每天 100,000 雷亚尔（20,000 美元）的罚款。这也包括苹果和谷歌，因为两家公司都通过他们的应用商店分发 Telegram。
-
-目前，Telegram 仍在巴西运营，但该应用程序可能随时会从当地互联网下架——除非 Telegram 决定与最高法院合作。
-
-文字版原文：[巴西最高法院的裁决禁止使用Telegram](https://gnews.org/zh-hans/2211699/)
+文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月22日晚](https://gnews.org/zh-hans/2213756/)
 
 音频处理：Fei797
 发稿：Fei797
