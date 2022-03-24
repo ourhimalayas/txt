@@ -2,43 +2,28 @@
 ---
 
 
-## 独家报道：卢克石油的全球贸易缩减业务
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2224446/)
+## 【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224457/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**撰稿：Grace**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YNXFECE3ZJNT3IRIOFW6J5CKCU.jpg)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-24-at-4.39.33-PM.jpeg)图片来源：盖特
+据《千禧年邮报》（The Post Millennial）3月24日报道，盖特（GETTR）周四宣布与《千禧年邮报》的编辑Andy Ngo建立新的伙伴关系。 这位独立记者将在社交媒体平台上为一个名为 “每周通知 ”(Weekly Notice)的新闻节目制作独家内容。
 
+据报道，Andy 将讨论他的报道，并提供政治评论以及分析，而且“不受审查或影子禁令的威胁”。
 
-图片来源：路透社
+盖特首席执行官杰森·米勒 （Jason Miller）说：“ 我们很自豪能够与像Andy Ngo这样无所畏惧的记者合作，给他一个平台，让他能够与盖特在全球的数百万用户分享他的重要报道。新闻和言论自由都受到来自大公司审查制度和有偏见的自由派媒体的攻击，盖特致力于争取一个重要信息和政治辩论能够自由流动的空间。”
 
-据三位知情人士透露，俄罗斯能源巨头卢克石油 (LKOH.MM) 的瑞士贸易部门在西方制裁后削减了资本供应以保证近 10 亿美元的追加保证金后，已经缩减了业务。 .
+Andy表示，他期待着在盖特上与新观众接触。
 
-交易商称，每天处理超过 360 万桶原油的 Litasco 目前正专注于向卢克石油的欧洲炼油厂输送原油并销售精炼产品。
+Andy说：“那些多年来试图用暴力、死亡威胁、法律战和审查运动使我沉默的人已经失败，并将继续失败。”
 
-上月底俄罗斯入侵乌克兰后，美国和英国针对俄罗斯的能源出口实施制裁，许多欧盟公司对俄罗斯采取了严厉措施，包括冻结其央行资产。
+迄今为止，盖特在全球拥有500万注册用户。在2021年7月4日正式推出后不到三天，这个快速发展的平台就获得了第一百万用户，创造了历史，这一天盖特宣布从暴虐的硅谷寡头手中 “独立”。
 
-美国和其他欧洲国家并未禁止与卢克石油公司开展业务，但能源公司、托运人和贸易公司出于担心未来可能在没有警告的情况下实施制裁，自行限制了与俄罗斯公司的贸易。
+Andy是《纽约时报》畅销书《Unmasked》的作者。这本书揭露了Antifa组织破坏民主的激进计划内幕。Andy冒着安全风险报道美国的极左暴力极端主义。他在2019年经历了一次Antifa组织的残酷袭击，在俄勒冈州波特兰市的街头报道时，再次遭到Antifa组织的袭击。
 
-Litasco 的一位发言人在一份声明中表示，“我们的企业活动自然会暂时减少，以确保我们能够在充足的流动资金池内运营。”
-
-俄罗斯公司和俄罗斯石油的主要买家一直无法从西方银行开立信用证来支付购买费用。 由于信用问题，贸易公司对与 Litasco 的交易变得谨慎。
-
-两名消息人士告诉路透社，Litasco 被告知停止对冲原油以保存现金。该发言人表示，Litasco 有一个“允许自由对冲以促进有效利用保证金的战术流程”。
-
-卢克石油没有回应置评请求。卢克石油贸易商正在将原油运入其欧洲炼油厂并推销其精炼产品，但该公司已大幅减少为炼油厂供应或交易购买第三方原油。 Litasco表示，它没有改变供应炼油厂的政策。
-
-据该公司网站称，卢克石油集团在俄罗斯拥有四家炼油厂，在意大利、罗马尼亚和保加利亚拥有另外三家炼油厂。它还拥有荷兰一家炼油厂 45% 的权益。据该公司称，这些炼油厂的总产能为 8040 万吨。
-
-据一位贸易商称，Litasco 还大幅减少了交易天然气和电力以及碳排放，去年这些交易贡献了数亿美元的收入。
-
-“天然气和电力是 Litasco 的一项长期战略，虽然活动的强度和部署的资本可能会因市场条件而异，但这仍然是未来的核心战略，”发言人说。
-
-汽油和柴油的所有燃料交易均由 Litasco 交易部门完成。一位资深交易消息人士告诉路透社，Litasco 可能会保留与其核心能源资产相关的交易员。 Litasco 表示不会对其员工的就业状况发表评论。
-
-🔗 [https://www.reuters.com/business/energy/exclusive-lukoils-global-trading-arm-scales-back-operations-following-sanctions-2022-03-24/](https://www.reuters.com/business/energy/exclusive-lukoils-global-trading-arm-scales-back-operations-following-sanctions-2022-03-24/)
-
-编辑发表： Shuizhuyu
+**新闻来源：**[GETTR partners with Andy Ngo for weekly news show](https://thepostmillennial.com/gettr-partners-with-andy-ngo-for-weekly-news-show)
 
  
 

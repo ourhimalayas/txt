@@ -2,31 +2,30 @@
 ---
 
 
-## 有声|恒大再次暂停港交所交易中共房地产崩盘在即
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224365/)
+## 俄罗斯国防部长退出视线后重新露面
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2224372/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间3月21日，中国恒大、恒大汽车和恒大物业再次暂停在港交所的交易。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-这并不是恒大第一次暂停股票交易，早在去年爆雷前的9月16日，恒大就在上海交易所和深圳交易所，对旗下的9支债券进行了停牌。今年1月3日恒大也在港交所停牌。随之而来的就是港股从年初开始，一直到3月14日跌破2万点，跌落到1万8千点的惨状。并且在郭先生爆料后，中共不顾恒大、阳光城等众多房地产企业爆出无法偿债、被中共国企接盘等负面信息，仍疯狂地扭转港股的颓势。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/XJHDKE4S6JNHJOWJXVSTKTJJKM.jpg)
 
-郭先生在3月21日的盖特视频中强调，接下来新中国联邦战友需要关注的两件事之一，就是将在几个月内发生的，中共房地产的爆雷、墙内经济崩溃、以及香港经济的崩塌。
 
-文字版原文：[恒大再次暂停港交所交易中共房地产崩盘在即](https://gnews.org/zh-hans/2214762/)
+图片来源：路透社
 
-音频处理：Fei797
-发稿：Fei797
+俄罗斯强大的国防部长在俄罗斯与乌克兰的战争期间退出公众视野数日后，于周四在官方媒体播放的一小段视频片段中重新露面。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+在俄罗斯 RIA 通讯社播出的视频中，普京远程会见了他的安理会时，俄罗斯总统弗拉基米尔·普京的亲密盟友谢尔盖·绍伊古出现在高级官员的分屏上。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一些俄罗斯媒体周三表示，这位 66 岁的部长已经 12 天没有露面，这引发了人们对其下落的猜测。
+
+克里姆林宫发言人德米特里佩斯科夫周四淡化了这种猜测，称绍伊古有很多事情要做，他没有花很多时间在媒体上露面是可以理解的。
+
+“国防部长现在有很多想法。一项特殊的军事行动正在进行中。现在不是媒体活动的时候，”佩斯科夫告诉记者。
+
+🔗 [https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/](https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

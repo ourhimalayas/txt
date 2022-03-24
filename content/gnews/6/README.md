@@ -2,40 +2,30 @@
 ---
 
 
-## 灭共段子——神雕侠侣第一集 李莫愁回忆与陆展元的那一夜相识&#8230;..
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2224611/)
+## 【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2224704/)
 
-撰稿：东京樱花团/Loveland
+作者：加拿大温哥华扬帆农场 –播报：七彩虹-视频制作：文雅
 
-李莫愁正在森林练剑，忽然发现陆展元被人用箭射伤，于是把他扶到山洞……
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-21.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fi1.hdslb.com%2Fbfs%2Farchive%2Fcd0158b161d2024e45cc0891ec18b712a97f7af0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bilibili.com%2Fvideo%2FBV17b411e7v6%2F&amp;tbnid=a0lT0MjMJtnXjM&amp;vet=10CCAQMyh3ahcKEwjY2dmUut_2AhUAAAAAHQAAAAAQAg..i&amp;docid=08Xj85DTIkWDoM&amp;w=1220&amp;h=762&amp;q=%E7%A5%9E%E9%9B%95%E4%BE%A0%E4%BE%A3&amp;ved=0CCAQMyh3ahcKEwjY2dmUut_2AhUAAAAAHQAAAAAQAg)
-陆展元醒来看到莫愁：姑娘，是你救了我……
+乌克兰总统弗拉基米尔·泽连斯基(Volodymyr Zelenskiy)周一表示，为结束战争而与俄罗斯达成的任何“妥协”都需要由乌克兰人在公投中投票决定。
 
-莫愁：恩，你中了共产主义毒，这瓶蜂蜜给你解毒……
+泽连斯基在接受乌克兰公共广播频道Suspilne的采访时说：“人民将不得不开口，对这种或那种形式的妥协做出回应。至于它们（妥协模式）是什么样子，这是我们（两国）谈判的主题和乌俄之间（要达成）的谅解。”
 
-陆展元：多少钱？我给你转账。
+他说，在任何公投中可能提出的问题均可能涉及被俄罗斯军队占领的领土，包括克里米亚；或涉及乌克兰放弃加入北约以换取某些国家向乌方提供的安全保证。
 
-莫愁：一个币就行。
+视频链接：[https://gettr.com/post/p11oqs82372](https://gettr.com/post/p11oqs82372)
 
-陆展元：发账号给你转。
+上传：文莱
 
-莫愁：二维码扫就行。
+* * *
 
-付完喜币，陆展元接过蜂蜜却发出呻吟声。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-莫愁：对不起，我不知你受伤，如果你不介意我来喂你。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-陆展元：你刷牙了没有就喂我？
-
-莫愁：你真坏，不知羞耻，不理你了，我一直有刷牙的。
-
-导演：停一下，你俩调情功力挺深呢，想双休？
-
-[信息来源](https://gettr.com/post/p11n10b541e)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

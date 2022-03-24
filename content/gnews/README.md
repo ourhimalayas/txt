@@ -15,74 +15,74 @@
 
 ---
 
-### [美国大陪审团裁定中共“千人计划” 骨干签证欺诈罪成立](/content/gnews/1/README.md)
+### [中国外交部长王毅突访塔利班掌权的阿富汗](/content/gnews/1/README.md)
  ` 日本東京方舟農場`
 
-### [欧盟批准实施在危机期间使用的快速反应军事力量](/content/gnews/2/README.md)
+### [美国SEC将中共社交媒体新浪微博列入退市风险名单](/content/gnews/2/README.md)
+ ` 日本東京方舟農場`
+
+### [被停职的希腊医疗卫生工作者的绝食活动](/content/gnews/3/README.md)
+ ` xiaobaige`
+
+### [美国大陪审团裁定中共“千人计划” 骨干签证欺诈罪成立](/content/gnews/4/README.md)
+ ` 日本東京方舟農場`
+
+### [欧盟批准实施在危机期间使用的快速反应军事力量](/content/gnews/5/README.md)
  ` 纽约香草山MOS02`
 
-### [【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投](/content/gnews/3/README.md)
+### [【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投](/content/gnews/6/README.md)
  ` G-时新闻`
 
-### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/4/README.md)
+### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [【G时新闻】美国国务院正式宣布俄军队对乌犯下战争罪](/content/gnews/5/README.md)
+### [【G时新闻】美国国务院正式宣布俄军队对乌犯下战争罪](/content/gnews/8/README.md)
  ` G-时新闻`
 
-### [灭共段子——神雕侠侣第一集 李莫愁回忆与陆展元的那一夜相识&#8230;..](/content/gnews/6/README.md)
+### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/7/README.md)
+### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚](/content/gnews/9/README.md)
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [乌克兰：重新定义现代特种部队在地面战争中的作用](/content/gnews/10/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [被全世界围剿的瑞士信贷](/content/gnews/11/README.md)
+### [被全世界围剿的瑞士信贷](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](/content/gnews/12/README.md)
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [郭文贵精品视频-政治策略家预测ElonMusk 一句话将改变战争的格局](/content/gnews/13/README.md)
+### [郭文贵精品视频-政治策略家预测ElonMusk 一句话将改变战争的格局](/content/gnews/14/README.md)
  ` cindy`
 
-### [救援前线钢琴曲](/content/gnews/14/README.md)
+### [救援前线钢琴曲](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](/content/gnews/15/README.md)
+### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2018年8月7日 郭文贵先生船上直播 全文字版](/content/gnews/16/README.md)
+### [2018年8月7日 郭文贵先生船上直播 全文字版](/content/gnews/17/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目](/content/gnews/17/README.md)
+### [【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [独家报道：卢克石油的全球贸易缩减业务](/content/gnews/18/README.md)
+### [独家报道：卢克石油的全球贸易缩减业务](/content/gnews/19/README.md)
  ` Shuizhuyu`
 
-### [2022年3月24日，全球中共病毒疫情情况汇总](/content/gnews/19/README.md)
+### [2022年3月24日，全球中共病毒疫情情况汇总](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [预防新冠 消毒空气](/content/gnews/20/README.md)
+### [预防新冠 消毒空气](/content/gnews/21/README.md)
  ` PureLotusHeart(莲心不染 or Dawn）`
 
-### [【粤语配音】2022年3月24日：共产党官员资产被查封的时刻到来了](/content/gnews/21/README.md)
+### [【粤语配音】2022年3月24日：共产党官员资产被查封的时刻到来了](/content/gnews/22/README.md)
  ` MOS香港部`
 
-### [俄罗斯国防部长退出视线后重新露面](/content/gnews/22/README.md)
+### [俄罗斯国防部长退出视线后重新露面](/content/gnews/23/README.md)
  ` Shuizhuyu`
-
-### [有声|恒大再次暂停港交所交易中共房地产崩盘在即](/content/gnews/23/README.md)
- ` MOSREC`
 
 ### [中国人因中共成为俄乌战争元凶，新中国联邦是中国人唯一选择](/content/gnews/24/README.md)
  ` YALUN 亚伦`
@@ -132,14 +132,14 @@
 ### [国际社会应对中共威胁的最新动向](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [老药新用：乙酰半胱氨酸（NAC）不仅治疗冠状病毒感染，还有可能解毒疫苗](/content/gnews/40/README.md)
- ` 波士顿五月花农场`
-
-### [大部分加拿大人希望加强制裁俄罗斯](/content/gnews/41/README.md)
+### [大部分加拿大人希望加强制裁俄罗斯](/content/gnews/40/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共国的科技泡沫已经破灭](/content/gnews/42/README.md)
+### [中共国的科技泡沫已经破灭](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [【G时新闻】澳洲富豪克莱夫·帕尔默在感染新冠病毒后选择服用伊维菌素和羟氯喹](/content/gnews/42/README.md)
+ ` G-时新闻`
 
 ### [波兰驱逐45名冒充外交官的俄罗斯间谍](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
