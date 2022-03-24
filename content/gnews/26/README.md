@@ -2,29 +2,37 @@
 ---
 
 
-## 俄乌战争｜不堪千夫所指 雀巢宣布停止在俄销售咖啡等产品
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2221279/)
+## 法治基金志愿者向乌克兰难民介绍新中国联邦的灭共使命
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221284/)
 
-**图/文：CP**
-**发布时间｜24/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/不堪千夫所指-雀巢宣佈停止在俄銷售咖啡等產品.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+整理/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-24_15-55-15.png)图片来源：郭文贵先生盖特视频截图
 
 
-自俄罗斯入侵乌克兰之后，多间国际企业纷纷宣布抵制俄罗斯，惟全球最大食品公司雀巢（Nestle）迟迟未有加入行动，引发网民发起杯葛行动。
+3月20日，在波兰梅迪卡救援中心，新中国联邦和法治基金志愿者小小酥向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。
 
-早前乌克兰总统泽连斯基(Volodymyr Zelensky)在对瑞士民众发表演说时也点名批评雀巢说：“在我们的孩子不断丧命时，它仍照常与俄罗斯做生意，这样行为与它的宣传口号『Good Food，Good Life （优质食品、美好生活）』不符。”就连国际黑客组织Anonymous（匿名者）亦声称入侵该公司资料库以示抗议，并谴责该公司未完全撤出俄罗斯市场。
+小小酥说：“刚才这位女士说，她很吃惊，中国人会在这个地方。”
 
-重重压力之下，雀巢周三（23日）终于宣布停止在俄罗斯出售旗下大部份热门产品，包括Nespresso咖啡、Kitkat朱古力及Nesquik可可粉等品牌都会即时下架，预计金额将达17亿瑞士法郎（约18.3亿美元）。雀巢表示，在俄乌战争存续期间，雀巢将只专注于提供必需食品，仅维持供应婴幼儿食品、兽医用专门食品及医疗保健产品等。
+随后小小酥向这位乌克兰女士介绍道：“我们来这里是希望帮助到人们，由衷地希望能够提供援助。而且，我们希望告诉人们，我们要消灭中国共产党。
 
-据统计，现时有超过400家跨国企业停止在俄业务，惟食品及消费品巨头联合利华（Unilever）、达能（Danone）及雀巢迟迟不愿撤出，被乌克兰外交部点名威胁实施制裁后，三家企业纷纷作出让步，现时仅保留对俄罗斯奶制品、纸尿片等必需品的供应。
+乌克兰女士答道：“我们明白了。”
 
-來源｜[fortune](https://fortune.com/2022/03/23/nestle-anonymous-leak-hack-russia-business-kitkat-nesquik/)
+小小酥继续道：“我们要消灭中共，因为只要灭了中共，世界上的邪恶就会被铲除。这样就不会有战争了。”
 
-* * *
+乌克兰女士表示支持：“祝你们好运！”
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+资料来源：[郭文贵先生2022年3月24日盖特视频](https://www.gettr.com/post/p11kynr1068)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 10:55 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group11/origin/2022/03/24/05/67f75190-6a68-6745-88f0-42e0044bbf06/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/24/2022 10:49 AM (UTC)`
 
 【Ukraine Rescue】03/22/22 Refugees are packing up and waiting to leave, a family of 7 or 8 people are all women and children , no men; off camera everyone is busy working now,multinational journalists are enjoying the NFSC Coffee in our big rescue tent.<br/><br/><br/>【乌克兰救援】03/22/22 难民正在收拾行装等待出发，一个7、8人的家庭都是妇女儿童，没有男人；镜头之外大家都在忙碌，多国记者在大帐蓬中享用新中国联邦咖啡。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
@@ -148,13 +155,6 @@
 
 How a team of Italian journalists see the New Federal State of China. They produced such a beautiful piece! Thank you!<br/><br/>意大利记者眼中的新中国联邦：意大利记者团队采访新中国联邦前线记者精粮……，其制作的关于新中国联邦前线救援的视频精美绝伦
 ![img](https://media.gettr.com/group27/getter/2022/03/23/23/344cd4f0-5738-5766-f3ca-4872dedd6257/out.jpg)
-
----
-
-`@miles 3/23/2022 11:00 PM (UTC)`
-
-2022.03.23 NFSC News  No survivors found from the abnormal China Eastern Airlines crash； Medyka Frontline Fellow fighters Visit Local Refugee Reception Center 
-![img](https://media.gettr.com/group42/origin/2022/03/23/22/dd19f301-f5cc-e039-f903-4c2ef37e6067/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

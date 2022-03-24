@@ -2,23 +2,34 @@
 ---
 
 
-## 救援信息：坦克人 CCP ≠GHINESE
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2221621/)
+## 大直播后记：天地修行尊重天法，逆势而为中俄必亡
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2221742/)
 
-Communism is the cancer of this civilized world. From 1989 when the Chinese people rebelled against the dictatorship of the Chinese Communist Party to 2022 when the Ukrainian people rebelled against the invasion of the communist Putin. Human ignorance, selfishness, stupidity, and greed have led to the survival of communism to this day.
-If we do not destroy communism and the biggest incarnation of communism, the Communist Party of China, the disaster of the Chinese people for 70 years and the disaster that the Ukrainian people are suffering now will spread throughout the world.
+整理：Guojunior、红红火火
+编辑：文泓
 
-共产主义是这个文明世界的毒瘤。从1989年中国人民反抗中国共产党的独裁统治到2022年乌克兰人民反抗共产主义普京的入侵。人类的无知、自私、愚昧、贪婪导致共产主义存活至今。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TFSCKDCPFJCD09951.png)图片来源：雅典娜设计组
 
-如果我们不消灭共产主义，不消灭共产主义的最大化身中国共产党，中国人民70年的灾难以及乌克兰人民现在遭受的灾难将会蔓延整个世界。
 
-字幕+视频制作 ：洛杉矶盘古农场-庚子
-审片 ：洛杉矶盘古农场-银龙
-发布 ：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+**郭先生：**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+这是一个基本的规律。什么叫自然？自然就是天法，这个地球的存在就是天法，你在天法之间修行先要知天法，那就是你要尊重天法。装神弄鬼就是无知的表现、作死的表现，千万不要执着。有人说，我练你得尊重我，我跟你不一样，我有什么样子……这都是不对的，你练你的，不要在乎这种感觉，别想别人的生活，特别重要，别进执着圈了，谢谢。
+
+**嘉宾：**
+
+我有两个问题，其一，俄乌战争俄罗斯海陆空三线完败，就如拜登总统所言，俄罗斯面对的是一个强大的隐形对手，我认为俄罗斯的对手就是一个无形的商业帝国。如果中国参战，那么中国将以什么方式参战呢？还有第二个问题，如果中国的习太阳为俄罗斯作担保的话，那会不会出现一个像以前70年代末毛泽东（习太阳）死了以后，中国再出现一个像邓小平一样的人物和美国走在了一起，继续忽悠中国老百姓？让我们灭共的计划又延长了几十年了，谢谢。
+
+**郭先生：**
+
+我给你简单的回答，共产党支持俄罗斯，关键就是金钱上，具体就是在通讯服务、战略物资方面，在联合国跟俄打配合等，再有就是媒体上、网络上。战争打的都是钱，你永远别忘了战争都离不开钱啊！现在全世界都支持乌克兰，欧美支持乌克兰，俄罗斯那点破钱，怎么能够比得过？中共和你的钱加一起，跟美国和欧洲比，就差远了。欧洲和美国加一起40万亿GDP，世界50%的GDP，欧洲20万亿美元GDP，美国20万亿美元GDP，这可是保守的数字。还有个日本呢是不是？还有个英国呢？这些国家加一起应该是GDP70%到80%，所以中共加上俄罗斯差得很远的。
+
+资料来源：[2022年3月23日 文贵大直播](https://gettr.com/streaming/p11h7xt9462)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
