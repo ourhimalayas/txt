@@ -2,20 +2,28 @@
 ---
 
 
-## 只有消灭中国共产党才能拯救全人类
-` 英里农场 MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2224859/)
+## 加拿大联合工会主席被指控收受贿赂
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2224979/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/平面文宣-英里农场.jpeg)
-**这个平面文宣以新中国联邦的蓝色为底色；以冲击力的拳头为主要元素，代表我们强有力的行动；上面是中英文文字，下面是俄文关键文字，表达我们新中国联邦人最本质的追求和要表达的最关键信息。 整体文宣冲击力强、简单好记忆、容易识别！**
+加拿大温哥华扬帆农场-薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/thestar.com_.jpg)图源：thestar.com
+加拿大[CP24]23日报道，联合工会( Unifor )刚退休的前主席杰瑞·迪亚斯接受病毒快速检测试剂盒供应商5万美元被指控，他推广测试盒给成员企业，部分雇主购买了这些测试盒。
 
-**【Ukraine Rescue】In Medyka, Poland. The rescue team members of NFSC who love peace and justice are risking their lives to save others’. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
-【乌克兰救援】波兰梅迪卡，热爱和平和正义的新中国联邦救援团队人员正冒着生命危险在救助别人的生命！新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。**
+1 月 20 日，迪亚斯把这笔贿金的一半2.5万美元给了联合工会的一名员工，该员工依照联合工会准则上交了这笔钱并进行投诉。经内部调查，工会财务主管拉娜·佩恩表示，迪亚斯被指控违反了联合工会章程中的道德准则和民主惯例。没有成员可以凌驾于宪法之上，即使是最高级别的民选官员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FINAL-VERSION-color-1-1-3.png)
+联合工会执行委员会将就此事举行听证会，要求迪亚斯参与。然而迪亚斯却借口由于健康问题损害了他的判断力，目前在医生的建议下寻求治疗，无法参与调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-4.png)欢迎加入我们农场的DISCORD
+目前此事未进入刑事调查阶段，工会正寻求法律咨询。迪亚斯是联合工会的第一任全国主席。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-3.png)欢迎关注我们的盖特
+新闻链接：
+
+[Jerry Dias accepted money from COVID-19 rapid test supplier, Unifor alleges](https://www.cp24.com/news/jerry-dias-accepted-money-from-covid-19-rapid-test-supplier-unifor-alleges-1.5831349)
+
+* * *
+
+编辑、上传：月亮之上
+
+
 
  
 

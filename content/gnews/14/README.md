@@ -2,27 +2,24 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月23日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224518/)
+## 樱花时政┃深析：令人战栗的暗杀普京计划
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2224592/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/NFSC-4.jpg)
+撰稿：东京樱花团/ haruka春香
 
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](https://gnews.org/zh-hans/2218534/)
+目前，冻结俄罗斯央行的资产、及国际结算网络SWIFT中排除7家主要银行后，禁止原油进口、取消低关税贸易优惠等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-126.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220324-00000005-friday-000-3-view.jpg?exp=10800)
+西方国家正在加强对入侵乌克兰的俄罗斯的经济制裁。永久中立国瑞士也参与制裁。因为很多俄罗斯富豪都在该国拥有财产，因此损失的扩大是不可避免的。“俄罗斯经济越来越疲软。乌克兰入侵前1美元=70卢布出头的汇率，在决定排除在SWIFT之外后，下降到了120卢布。结果，银行自动取款机（ATM）连日来排起了长龙。据说4月份将导致外币国债违约（不履行债务）。”如果经济崩溃，就更不用说战争了。也就是说，国民的生活将陷入困境。“支撑普京总统的是被称为‘奥里加希’的俄罗斯新兴财阀和资产家。他们几乎垄断了天然资源和与外国的事业，获得了巨大的利益，以此向普京总统表示忠诚。但由于严厉的经济制裁，该利益体系正在崩溃。在‘奥里加希’中，甚至出现了对入侵乌克兰提出异议并反对普京总统的动向。”
 
-音频处理：Fei797
-发稿：Fei797
+3月20日，乌克兰国防部情报总局长在Facebook上发表了冲击性文章。开头是这样写的。“暗杀、突发死亡、事故……”俄罗斯高层正在寻找拿掉普京的可能性。俄罗斯政界和财界上层正在组建反普京集团。他们的目的是让普京下台。恢复因入侵乌克兰而失去的与西方国家的经济联系。据悉，接班人也已确定。他就是俄罗斯联邦安全局（FSB）局长博尔特尼科夫。他出身于前苏联情报机构“克格勃”，从2008年5月开始在职。据悉，因俄罗斯入侵乌克兰遇到了前所未有的阻碍，普京总统与他发生了矛盾。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+乌克兰当局揭露的暗杀普京总统的计划真的有可能实现吗？熟知俄罗斯局势的筑波大学教授中村逸郎这样说道。“有较大可能性。据悉，普京总统从6年前开始就患有无法控制自己行动的疾病。因为身体和精神的均衡感，不能进行正常判断的可能性很大。这有可能导致欲将俄罗斯逼入绝境的反西方情绪不断高涨。掌权20年的普京总统也不会再冷静地倾听。”暗杀情报有可能是乌克兰方面任意散布的，但是即使逃脱了暗杀，也不能继续留在原有的地位上，独裁者的最后时刻会到来吗？
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+信息来源：[ウクライナが警告した「プーチンに迫る戦慄の暗殺計画」の深層](https://news.yahoo.co.jp/articles/3169e11bd8f87db26a669cd95644063c47f8d08c)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,137 +15,137 @@
 
 ---
 
-### [只有消灭中国共产党才能拯救全人类](/content/gnews/1/README.md)
+### [加拿大联合工会主席被指控收受贿赂](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（二）](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [最真心的救援与最醇香的咖啡](/content/gnews/3/README.md)
  ` 英里农场 MG FARM`
 
-### [恒大在延迟公布年度业绩并设立7月底的重组目标](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
+### [马斯克的一句话对共产党内部极大震撼](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [中国外交部长王毅突访塔利班掌权的阿富汗](/content/gnews/3/README.md)
- ` 日本東京方舟農場`
+### [只有消灭中国共产党才能拯救全人类](/content/gnews/5/README.md)
+ ` 英里农场 MG FARM`
 
-### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/4/README.md)
+### [美将增加对欧天然气供应以解决欧洲对俄气依赖](/content/gnews/6/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [被停职的希腊医疗卫生工作者的绝食活动](/content/gnews/5/README.md)
+### [被停职的希腊医疗卫生工作者的绝食活动](/content/gnews/8/README.md)
  ` xiaobaige`
 
-### [一位95岁高龄乌克兰老人对普京的质问](/content/gnews/6/README.md)
+### [一位95岁高龄乌克兰老人对普京的质问](/content/gnews/9/README.md)
  ` DC政经`
 
-### [【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投](/content/gnews/7/README.md)
+### [【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/8/README.md)
+### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/11/README.md)
  ` 秘密翻译组-原创组`
 
-### [【G时新闻】美国国务院正式宣布俄军队对乌犯下战争罪](/content/gnews/9/README.md)
+### [【G时新闻】美国国务院正式宣布俄军队对乌犯下战争罪](/content/gnews/12/README.md)
  ` G-时新闻`
 
-### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/10/README.md)
+### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/11/README.md)
+### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚](/content/gnews/12/README.md)
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [被全世界围剿的瑞士信贷](/content/gnews/13/README.md)
+### [被全世界围剿的瑞士信贷](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](/content/gnews/14/README.md)
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [郭文贵精品视频-政治策略家预测ElonMusk 一句话将改变战争的格局](/content/gnews/15/README.md)
+### [郭文贵精品视频-政治策略家预测ElonMusk 一句话将改变战争的格局](/content/gnews/18/README.md)
  ` cindy`
 
-### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](/content/gnews/16/README.md)
+### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2018年8月7日 郭文贵先生船上直播 全文字版](/content/gnews/17/README.md)
+### [2018年8月7日 郭文贵先生船上直播 全文字版](/content/gnews/20/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目](/content/gnews/18/README.md)
+### [【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [独家报道：卢克石油的全球贸易缩减业务](/content/gnews/19/README.md)
+### [独家报道：卢克石油的全球贸易缩减业务](/content/gnews/22/README.md)
  ` Shuizhuyu`
 
-### [2022年3月24日，全球中共病毒疫情情况汇总](/content/gnews/20/README.md)
+### [2022年3月24日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [预防新冠 消毒空气](/content/gnews/21/README.md)
+### [预防新冠 消毒空气](/content/gnews/24/README.md)
  ` PureLotusHeart(莲心不染 or Dawn）`
 
-### [【粤语配音】2022年3月24日：共产党官员资产被查封的时刻到来了](/content/gnews/22/README.md)
+### [【粤语配音】2022年3月24日：共产党官员资产被查封的时刻到来了](/content/gnews/25/README.md)
  ` MOS香港部`
 
-### [俄罗斯国防部长退出视线后重新露面](/content/gnews/23/README.md)
+### [俄罗斯国防部长退出视线后重新露面](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [中国人因中共成为俄乌战争元凶，新中国联邦是中国人唯一选择](/content/gnews/24/README.md)
+### [中国人因中共成为俄乌战争元凶，新中国联邦是中国人唯一选择](/content/gnews/27/README.md)
  ` YALUN 亚伦`
 
-### [英国最贫穷的城镇之一如何成为逃离中共国的香港人的天堂](/content/gnews/25/README.md)
+### [英国最贫穷的城镇之一如何成为逃离中共国的香港人的天堂](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（03/24/2022）](/content/gnews/26/README.md)
+### [五月花简报（03/24/2022）](/content/gnews/29/README.md)
  ` mayflowertranslate`
 
-### [乌克兰称已击毁一艘大型俄罗斯登陆舰](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [俄罗斯在乌克兰东部投入化学武器部队&#8211;英国情报消息](/content/gnews/28/README.md)
+### [俄罗斯在乌克兰东部投入化学武器部队&#8211;英国情报消息](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国将接受多达10万名乌克兰难民](/content/gnews/29/README.md)
+### [美国将接受多达10万名乌克兰难民](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国或制定《祖国统一法》–吞并台湾向蔡英文政权施压 （2/2）](/content/gnews/30/README.md)
+### [中共国或制定《祖国统一法》–吞并台湾向蔡英文政权施压 （2/2）](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [北约加强准备工作防御“化学、生物、辐射和核”威胁](/content/gnews/31/README.md)
+### [北约加强准备工作防御“化学、生物、辐射和核”威胁](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国或制定《祖国统一法》&#8211;吞并台湾向蔡英文政权施压 （1/2）](/content/gnews/32/README.md)
+### [中共国或制定《祖国统一法》&#8211;吞并台湾向蔡英文政权施压 （1/2）](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [北约官员估计入侵乌克兰一个月以来，俄军有多达15000名士兵死亡](/content/gnews/33/README.md)
+### [北约官员估计入侵乌克兰一个月以来，俄军有多达15000名士兵死亡](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登政府正在对中共实施二级制裁](/content/gnews/34/README.md)
+### [拜登政府正在对中共实施二级制裁](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [空中巴士的技术人员:东航坠机是自杀式报复社会行动](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵爆料3.24: 东航飞机失事背后的真相](/content/gnews/36/README.md)
+### [文贵爆料3.24: 东航飞机失事背后的真相](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`
 
-### [郭文贵先生回应拜登政府：中共向俄罗斯提供的不仅仅是武器](/content/gnews/37/README.md)
+### [郭文贵先生回应拜登政府：中共向俄罗斯提供的不仅仅是武器](/content/gnews/38/README.md)
  ` 秘密翻译组-原创组`
 
-### [乌克兰最大钢铁厂遭俄军炸毁](/content/gnews/38/README.md)
+### [乌克兰最大钢铁厂遭俄军炸毁](/content/gnews/39/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [国际社会应对中共威胁的最新动向](/content/gnews/39/README.md)
+### [国际社会应对中共威胁的最新动向](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [大部分加拿大人希望加强制裁俄罗斯](/content/gnews/40/README.md)
+### [大部分加拿大人希望加强制裁俄罗斯](/content/gnews/41/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共国的科技泡沫已经破灭](/content/gnews/41/README.md)
+### [中共国的科技泡沫已经破灭](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【G时新闻】澳洲富豪克莱夫·帕尔默在感染新冠病毒后选择服用伊维菌素和羟氯喹](/content/gnews/42/README.md)
+### [【G时新闻】澳洲富豪克莱夫·帕尔默在感染新冠病毒后选择服用伊维菌素和羟氯喹](/content/gnews/43/README.md)
  ` G-时新闻`
 
-### [波兰驱逐45名冒充外交官的俄罗斯间谍](/content/gnews/43/README.md)
+### [波兰驱逐45名冒充外交官的俄罗斯间谍](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
-
-### [【G时新闻】美国宣布对部分中共国官员实施签证限制](/content/gnews/44/README.md)
- ` G-时新闻`
 
 ### [俄国将领及士兵以史上最快速度阵亡 创二战以来最高纪录](/content/gnews/45/README.md)
  ` 蓝莲花农场`

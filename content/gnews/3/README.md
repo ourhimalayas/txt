@@ -2,34 +2,21 @@
 ---
 
 
-## 中国外交部长王毅突访塔利班掌权的阿富汗
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2224842/)
+## 最真心的救援与最醇香的咖啡
+` 英里农场 MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2224944/)
 
-**撰稿：日本东京方舟农场 JIHO**
+视频：救援前线战友
 
-根据路透喀布尔3月24日消息，中国外交部长王毅周四访问喀布尔，会见阿富汗外长，阿富汗外交部发言人表示，这是自去年塔利班掌权以来中国官员的最高级别访问，也是在国际社会许多人对塔利班关闭女子高中感到愤怒之后的一天。
+字幕与文稿：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-19.png)**图片来自德国之声网站**
+**【Ukraine Rescue】In Medyka, Poland. ●The two reporters from the British Daily Express and The Sun say that the coffee of the New Federal State of China is the best coffee they have ever had. ●The NFSC big tent with coffee becomes a resting and meeting place for many international rescuers and journalists. ●It is the only rescue point on the front line with 24-hour service. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
+【乌克兰救援】波兰梅迪卡，英国《每日快报》和 《太阳报》的记者说新中国联邦的咖啡是他们喝过的最好的咖啡！新中国联邦的大帐篷成为很多国际救援人士和记者休息点和会面的地方，我们的帐篷也成为前线唯一24小时服务的救援点。新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。**
 
-阿富汗外交部发言人发表声明称，王毅会见了阿富汗代理外长阿米尔·汗·穆塔奇，讨论政治和经济关系，包括开始在采矿业开展工作以及阿富汗在中国“一带一路”基础设施中可能发挥的作用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FINAL-VERSION-color-1-1-4.png)
 
-中国是包括巴基斯坦和卡塔尔在内的仅有的几个自塔利班于8月接管阿富汗以来向该国派遣部长的国家之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-5.png)欢迎加入我们农场DISCORD
 
-包括北京在内的外国政府对正式承认塔利班政府持保留态度，许多人说塔利班需要证明他们对人权、反恐和包容性治理的承诺。
-
-这次访问是在一天前全球广泛谴责塔利班政府之后进行的，当时它出人意料地命令高中女生回家，在本周早些时候表示学校将对所有学生开放后的政策突然大转弯。
-
-中国将于本月晚些时候主办地区外长会议，声明称穆塔奇也将参加会议。
-
-“穆塔奇部长补充说，新（政府）带来的安全为包括中国在内的外国投资在阿富汗奠定了基础，除了在新政府的全力支持下与阿富汗人在经济增长和稳定方面合作外，还确保了他们的利益， ”外交部发言人阿卜杜勒·卡哈尔·巴尔基说。
-
-同样在周四，外交部表示，俄罗斯驻阿富汗特使扎米尔·卡布洛夫访问了喀布尔，并会见了穆塔奇，讨论了政治和经济关系。
-
-参考链接：
-[https://reurl.cc/Go0gXZ](https://reurl.cc/Go0gXZ)
-
-总编：老孙
-校对发布：Linda
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-4.png)欢迎关注我们的盖特
 
  
 
