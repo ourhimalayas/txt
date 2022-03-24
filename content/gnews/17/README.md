@@ -2,61 +2,43 @@
 ---
 
 
-## 03/24每日播报｜社媒消息: 蓬佩奥 班农先生
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2221088/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221162/)
 
-**By :[秘翻北美时评](https://gettr.com/post/p11m464fafc)**
+整理：枳实
+美工：精灵蓝
 
-***[2022-03-24](https://gettr.com/post/p11m464fafc)***
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-267.jpg)
-**一、[蓬佩奥3月23日在盖特发文：](https://gettr.com/post/p11dvifc238)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@9BSYAU7D_7@M795L.png)图片：雅典娜农场设计组 精灵蓝
 
-**伊朗革命卫队的核心任务是散播恐惧，它必须继续留在恐怖组织名单里。 **
 
-【盖文转Axios报道，据称，拜登政府正在权衡是否放弃对伊朗革命卫队的恐怖组织认定，以换取伊朗缓和该地区局势的公开承诺。多名消息人士称，在关于恢复2015年伊朗核协议的间接谈判中，放弃这一认定是最后也是最棘手的问题之一。前总统川普在2018年退出了伊朗核协议，并对伊朗实施了“最大压力”行动。一年后，川普政府将伊斯兰革命卫队定为外国恐怖组织。蓬佩奥、前国家安全顾问罗伯特·奥布莱恩和前国家情报总监约翰·拉特克利夫在一份声明中说，将伊朗革命卫队从美国的恐怖组织黑名单中移除将是“危险的屈服“，是在否认伊朗革命卫队的核心任务是散播恐惧这一基本事实。】
+雅典娜疫情更新（2022年 3月23日）
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-158.jpg)
-**二、[班农先生3月23日在盖特发文：](https://gettr.com/post/p11eloabd1f)**
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GJE2JN4FGMHHDHUTFR0770.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/UK2BG6YDRMVHD7DY3.png)
+[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月23日改进.pdf)
 
-**美国记者内奥米·沃尔夫 (Naomi Wolf) 在《战斗室》节目中说，新冠大流行期间，带口罩的孩子智商下降了20点，那些强迫儿童带口罩的人犯下了战争罪。**
+数据来源：
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-121.jpg)
-**三、[《大纪元时报》3月24日在盖特发文：](https://gettr.com/post/p11jr9yd0ff)**
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-**曾在川普政府的新冠疫情工作组担任特别顾问的斯科特·阿特拉斯 (Scott Atlas)说：“应对新冠大流行的限制性政策在很大程度上是失败的，我们需要对这些‘破坏性’措施进行问责。” **
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-【盖文转报道，有25年的学术、医学和临床实践研究背景的阿特拉斯说：“我们需要对那些实施了失败政策的人追责。”这些错误政策、限制性措施包括封锁、隔离、关闭学校和企业以及强制年轻人接种新冠疫苗。“有90多万美国人死于新冠，数百万的家庭被摧毁，然而负责新冠政策的人却没有变化，我不明白这种情况怎么可能发生。”根据美国疾控中心的数据，截至3月22日，美国的新冠死亡人数为97万3220人，全球最高。“我们看到了相关证据，证明这些限制性措施和新冠策略是失败的，必须承认这一点，必须有问责制，否则我们永远无法恢复对这些机构甚至科学本身的信任，直到我们获得真相。”】
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-84.jpg)
-**四、[信息战3月24日在盖特发文：](https://gettr.com/post/p11kbss4aa3)**
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-**美国航空、联合航空、达美航空和西南航空公司的首席执行官要求拜登政府取消口罩强制令，他们说该要求没有任何意义。 **
+[covidlive.com.au](https://covidlive.com.au/)
 
-【盖文转报道，多家大型航空公司和物流公司的CEO本周三发表了一份联合声明，他们认为，鉴于新冠感染率和死亡率正在下降，拜登政府应考虑放弃口罩强制规定。CEO们在美国航空公司贸易协会分发的一封信中写道：“现在是时候废除联邦运输旅行限制了，包括国际旅行前的测试要求和联邦口罩规定，这些限制令不再符合当前流行病环境的现实。另外，科学证据明确支持取消口罩规定，最近发布的CDC框架表明，99%的美国人口不再需要在室内戴口罩。多项研究总结说，飞机机舱是最安全的室内环境之一，因为空气高度过滤并且持续流动。”美国运输安全管理局将在4月18日审查有关公共交通的口罩规定。】
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-**秘翻新闻 巴拉克 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-87.png)
-**五、[Newsmax 3月23日在盖特发文：](https://gettr.com/post/p11ha1x49d8)**
+发布：tianzhihuan
 
-**台湾国防部长邱国正说，台湾正在考虑将目前四个月的义务兵役期延长。 **
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-【盖文转报道，随着中共对台湾施加的压力越来越大，以及俄罗斯对乌克兰的入侵，都促使台湾人讨论如何加强民防。邱国正表示，四个月的军事训练显然不够，如果再加上替代役对防卫作战没帮助，因此未来会将义务兵役期延长，年底前会提出研拟报告。此前执政的民进党和国民党的政府为了在台北和北京之间的紧张局势得到缓解时讨好年轻选民，将义务兵役期从两年多削减到目前的四个月。台湾的军队与中共的军队相比相形见绌，但战略家们希望能经过出色的训练来帮助他们在冲突中获得优势。目前台湾政府还在制定一系列的改革预备役培训的计划。】
-
-**秘翻新闻 Stephanie 编译报道**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-52.jpg)
-**六、[郭文贵先生3月24日在盖特发文：](https://gettr.com/post/p11ha1x49d8) **
-
-在西班牙媒体Republica发表的这份报告中，提到了新中共联邦和法治基金在波兰梅迪卡的人道主义救援活动。“在戴维和他的钢琴旁边，是整个难民营中规模最大、建造最好的帐篷。该帐篷是新中国联邦的。这是一个以推翻中共政府为最终目标的非营利组织。我们的帐篷是所有建起的帐篷里最好的。我们甚至为难民提供了 Wi-Fi。我们想让世界知道，一个没有共产主义的中国会是一个更好的中国。”
-
-**秘翻新闻 巴拉克 编辑报道 **
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

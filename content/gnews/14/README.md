@@ -2,37 +2,29 @@
 ---
 
 
-## 新西兰放宽强制疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221199/)
+## 俄乌战争｜不堪千夫所指 雀巢宣布停止在俄销售咖啡等产品
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2221279/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-新西兰政府宣布,将逐步放松管制,包括废除许多职业要求的强制疫苗接种。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-268.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F11%2F2021-11-09T004936Z_566761956_RC2OQQ9IIAMM_RTRMADP_3_HEALTH-CORONAVIRUS-NEWZEALAND.jpg%3Fresize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.)
+**图/文：CP**
+**发布时间｜24/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/不堪千夫所指-雀巢宣佈停止在俄銷售咖啡等產品.jpg)
 
-新西兰政府3月23日宣布,除医疗相关人员等部分职业外,从4月4日深夜开始废除警察和教育相关人员等疫苗强制接种。
-
-2月份以来，新西兰反对强制疫苗接种和长期管制，并在国会前进行抗议示威和静座的活动不断,政府还进行了逮捕。 随着放宽强制疫苗接种,进入餐馆等场所时也不需要出示接种证明。
-
-参考链接：[ニュージーランド　ワクチン接種義務規制を緩和へ](https://news.yahoo.co.jp/articles/aab83f6c8046a7a7b4a8f6f601997f01b177a103)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
 
+自俄罗斯入侵乌克兰之后，多间国际企业纷纷宣布抵制俄罗斯，惟全球最大食品公司雀巢（Nestle）迟迟未有加入行动，引发网民发起杯葛行动。
 
+早前乌克兰总统泽连斯基(Volodymyr Zelensky)在对瑞士民众发表演说时也点名批评雀巢说：“在我们的孩子不断丧命时，它仍照常与俄罗斯做生意，这样行为与它的宣传口号『Good Food，Good Life （优质食品、美好生活）』不符。”就连国际黑客组织Anonymous（匿名者）亦声称入侵该公司资料库以示抗议，并谴责该公司未完全撤出俄罗斯市场。
 
+重重压力之下，雀巢周三（23日）终于宣布停止在俄罗斯出售旗下大部份热门产品，包括Nespresso咖啡、Kitkat朱古力及Nesquik可可粉等品牌都会即时下架，预计金额将达17亿瑞士法郎（约18.3亿美元）。雀巢表示，在俄乌战争存续期间，雀巢将只专注于提供必需食品，仅维持供应婴幼儿食品、兽医用专门食品及医疗保健产品等。
 
+据统计，现时有超过400家跨国企业停止在俄业务，惟食品及消费品巨头联合利华（Unilever）、达能（Danone）及雀巢迟迟不愿撤出，被乌克兰外交部点名威胁实施制裁后，三家企业纷纷作出让步，现时仅保留对俄罗斯奶制品、纸尿片等必需品的供应。
 
+來源｜[fortune](https://fortune.com/2022/03/23/nestle-anonymous-leak-hack-russia-business-kitkat-nesquik/)
 
+* * *
 
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

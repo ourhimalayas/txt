@@ -2,42 +2,35 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221162/)
+## 樱花时政┃美将制裁俄国家杜马议员 -波兰冻结俄大使馆银行账户
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221263/)
 
-整理：枳实
-美工：精灵蓝
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
+俄乌谈判遭遇重大困难之际，美欧随即进一步升级了对俄制裁。
+据美国《华尔街日报》3月22日报道，拜登政府正准备对俄罗斯国家杜马（议会下院）的大多数成员实施制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-281.png)
+根据美国官员与内部文件披露，拜登计划在访问欧洲期间，最早于周四（3月24日）宣布对俄罗斯国家杜马300多名议员实施制裁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@9BSYAU7D_7@M795L.png)图片：雅典娜农场设计组 精灵蓝
+当地时间23日，俄罗斯驻波兰大使表示，波兰冻结了俄罗斯大使馆在华沙的银行账户。
+
+与此同时，当地时间23日，国际劳工组织也宣布中止与俄罗斯的合作。
+
+信息来源：
+
+[美媒：拜登将宣布对俄国家杜马300多名议员实施新制裁](https://finance.sina.com.cn/world/2022-03-23/doc-imcwiwss7578371.shtml)
+[俄驻波兰大使：波兰冻结了俄罗斯大使馆在华沙的银行账户](https://www.sohu.com/a/532210021_119038)
+
+编辑：东京樱花团/逢⑦必变
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
 
-雅典娜疫情更新（2022年 3月23日）
-
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GJE2JN4FGMHHDHUTFR0770.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/UK2BG6YDRMVHD7DY3.png)
-[2022年3月21日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月23日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
