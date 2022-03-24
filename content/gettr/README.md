@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 9:56 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-24
+![img](https://media.gettr.com/group35/origin/2022/03/24/21/130e4346-446f-76cc-4480-9edf99ea5b0b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/24/2022 7:00 PM (UTC)`
 
 
@@ -152,13 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 【Ukraine Rescue】03/22/22 Ukraine children see a broadcasting volunteer of the NFSC and approach to give warm hugs. It is heartwarming and the volunteers felt so loved.<br/><br/><br/>【乌克兰救援】03/22/22 乌克兰小朋友看到正在直播中的新中国联邦战友，主动冲上前来拥抱。战友感受到爱，觉得很暖心。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group40/getter/2022/03/24/10/ec524a17-1972-2762-ed15-ba5aa7f8d1c4/out.jpg)
-
----
-
-`@miles 3/24/2022 7:03 AM (UTC)`
-
-3/23/2022 Miles Guo: Xi Jinping managed to accomplish the following three things that he had planned to do before he came to power: 1) purge of the Party; 2) taking down the Princelings of the CCP; and 3) bringing down the warlords and wealthy tycoons. Xi is ruthless, and such a personality is very much like that of the head of a gang. He will reduce to ashes those whom he is determined to eliminate. He will support whoever he likes even if they are demons.<br/><br/>3/23/2022 文贵直播：习近平上台前要做三件事：1）清党；2）干掉太子；3）干掉军阀财阀，他都做到了；习混不吝的个性很像黑社会老大，决心要办的人必将其挫骨扬灰，对上眼的人哪怕是魔也要挺<br/>
-![img](https://media.gettr.com/group5/getter/2022/03/24/06/6a0d6a06-2325-cd84-98a7-b77e18156a45/out.jpg)
 
 ---
 

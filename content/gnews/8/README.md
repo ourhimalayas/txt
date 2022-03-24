@@ -2,27 +2,27 @@
 ---
 
 
-## 新中国联邦为难民提供温暖的庇护所
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2224512/)
+## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月23日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224518/)
 
-编写：文宝
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/NFSC-4.jpg)
 
-视频：前线战友
+文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月23日早](https://gnews.org/zh-hans/2218534/)
 
-**【Ukraine Rescue】On March/12, in Medyka, Poland. Most Ukrainian refugees will be brought into our NFSC big tent because our rescue tent is the biggest on the front line. There are sufficient supplies to help people to get through the tough times.  NFSC rescue team are the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!**
+音频处理：Fei797
+发稿：Fei797
 
-**【乌克兰救援】3月/12日波兰梅迪卡，大多数乌克兰难民都来到我们新中国联邦的帐篷，因为这个帐篷在前线是最大的，也有充足的物资供应来帮助人们度过艰难的日子。新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FINAL-VERSION-color-1-1-1.png)
-
-欢迎加入英里农场的discord
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-1.png)
-
-欢迎关注英里农场盖特
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-1.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
