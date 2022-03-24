@@ -2,8 +2,8 @@
 ---
 
 
-## 20220323郭文贵大直播 ：战争演变 地中海三国一定会参与战争
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2222243/)
+## 20220323郭文贵大直播 ：文贵先生告诉我们2022年是人类最黑暗的一年
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2222271/)
 
 作者：东京樱花团小视频组
 

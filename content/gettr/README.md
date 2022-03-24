@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 12:52 PM (UTC)`
+
+<br/>3/24/2022 法国一家保险公司拒绝理赔一位投有数百万人寿保险的富商：这位富商因为注射中共疫苗而死亡，保险公司及法院认定他在知晓该疫苗属实验性药物，且有副作用的情况下仍选择接种的行为，这种选择被认定是‘自杀’。<br/><br/>03/24/2022 French insurance company refuses to pay out to a wealthy businessman with millions of dollars in life insurance: after he died from the Covid vaccine, the insurance company and the court decided that he chose to receive this Covid vaccine despite knowing that it was an experimental drug and had side effects, a choice that was deemed ‘suicidal’<br/>
+![img](https://media.gettr.com/group32/getter/2022/03/24/12/6d848c3a-e386-0f16-f73d-ab179d80a124/out.jpg)
+
+---
+
 `@miles 3/24/2022 12:30 PM (UTC)`
 
 2022.03.24 早 《新中国联邦新闻》最新救援数据； 乌克兰救援行动将成为拯救无数华人的传奇； 习近平不改侵台野心
@@ -150,13 +157,6 @@
 
 3/23/2022 Miles Guo: Moved by the NFSC & ROLF Ukraine rescue operation, a rich Ukrainian tycoon resolutely decided to return to Ukraine to fight. Ukraine will win, and Russia will disintegrate. The CCP may participate in the small-scale nuclear war that Russia is likely to launch. There is a 50% chance that CCP will serve as the mediator and guarantor in the Russia-Ukraine war, which will make the Chinese people the most hated people of humanity in the future.<br/><br/>3/23/2022 文贵直播：乌克兰富豪被新中国联邦救援所感动，毅然决定回国作战；乌克兰必胜，俄罗斯将解体；中共或参加俄罗斯可能打的小型核战争；中共有50%的可能性当俄乌之战的调解国和担保人，这将让中国人成为未来全人类最恨的人<br/>
 ![img](https://media.gettr.com/group13/getter/2022/03/23/23/b7280255-7012-b35a-9d71-3260fdfceedb/out.jpg)
-
----
-
-`@miles 3/23/2022 11:34 PM (UTC)`
-
-3月23号：共产党的网军密集的出现，像今天这个情况，就像当年报海航和王岐山．傅政华．孟建柱．孙力军料时网军用的方式密集度一样！这说明这件事更可能是真实的了，可能比我们知道的还坏，他们的恐惧就是我们的武器，他们的恐惧就是真相！【两位战友发的文贵先生对关于东航坠机真相的爆料推，是真的点了中共的穴了！放出大把五毛疯狗出来乱喷！这也是毒针发作的症状吧？真TMD low!🤮🤮🤮】
-![img](https://media.gettr.com/group22/getter/2022/03/23/23/7d684259-ccfc-900f-e3ba-701ef7b253e5/65f541ee176e4cec6b44baa4a3ec0fbb.jpg)
 
 ---
 
