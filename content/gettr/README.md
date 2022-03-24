@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 10:49 AM (UTC)`
+
+【Ukraine Rescue】03/22/22 Refugees are packing up and waiting to leave, a family of 7 or 8 people are all women and children , no men; off camera everyone is busy working now,multinational journalists are enjoying the NFSC Coffee in our big rescue tent.<br/><br/><br/>【乌克兰救援】03/22/22 难民正在收拾行装等待出发，一个7、8人的家庭都是妇女儿童，没有男人；镜头之外大家都在忙碌，多国记者在大帐蓬中享用新中国联邦咖啡。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/><br/>
+![img](https://media.gettr.com/group23/getter/2022/03/24/10/39e3a056-7ce0-7514-45e7-2d614e3f410c/out.jpg)
+
+---
+
+`@miles 3/24/2022 10:44 AM (UTC)`
+
+【Ukraine Rescue】03/22/22 Ukraine children see a broadcasting volunteer of the NFSC and approach to give warm hugs. It is heartwarming and the volunteers felt so loved.<br/><br/><br/>【乌克兰救援】03/22/22 乌克兰小朋友看到正在直播中的新中国联邦战友，主动冲上前来拥抱。战友感受到爱，觉得很暖心。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group40/getter/2022/03/24/10/ec524a17-1972-2762-ed15-ba5aa7f8d1c4/out.jpg)
+
+---
+
 `@miles 3/24/2022 10:25 AM (UTC)`
 
 3月24日：这是真的吗？太惨烈了，如果这个视频是真的．这百分之百是机长强制……断连强控自杀的结果！😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭【七哥，这是您说的那个航班坠毁前视频。中国东方航空MU5735航班，】
@@ -141,20 +155,6 @@ How a team of Italian journalists see the New Federal State of China. They produ
 
 2022.03.23 NFSC News  No survivors found from the abnormal China Eastern Airlines crash； Medyka Frontline Fellow fighters Visit Local Refugee Reception Center 
 ![img](https://media.gettr.com/group42/origin/2022/03/23/22/dd19f301-f5cc-e039-f903-4c2ef37e6067/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/23/2022 10:12 PM (UTC)`
-
-3/23/2022 Miles Guo: The truth about the China Eastern Airlines plane crash was a man-made suicidal act! In retaliation for the CCP's mistreatment of him, the death of his family from the COVID vaccine and being cheated out of money by the government and the company, someone had orchestrated the plane crash since January. With the outbreak of the COVID vaccine disaster, there will be numerous incidents of retaliation against society in Communist China. The CCP is destroying the world, so we must take down the CCP ASAP!<br/><br/><br/>3/23/2022 文贵直播：东航空难的真相是人为的自杀事件！为了报复中共对其虐待、家人打疫苗死以及被政府和公司骗钱，有人从1月份开始精心策划了这场空难；随着疫苗灾难的爆发，中共国报复社会的事件将层出不穷，中共在毁灭世界，必须赶紧灭共！
-![img](https://media.gettr.com/group27/getter/2022/03/23/22/7fccaf58-62c0-321c-d526-f4d4904c64c6/out.jpg)
-
----
-
-`@miles 3/23/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-23
-![img](https://media.gettr.com/group44/origin/2022/03/23/21/ffcf082f-fd8b-6dab-b240-b0d3912e4b3a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
