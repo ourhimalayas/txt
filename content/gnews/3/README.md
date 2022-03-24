@@ -2,11 +2,11 @@
 ---
 
 
-## Hpay的好处（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220626/)
+## 中国人要懂得感恩（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220675/)
 
-**PPT制作:玉米地的小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11.50-12.00-（7）.jpg)
+**PPT制作:WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：40-11：47-001-1.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

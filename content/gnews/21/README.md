@@ -2,91 +2,37 @@
 ---
 
 
-## 国务卿布林肯：美国政府评估俄罗斯军队成员在乌克兰已犯下战争罪
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2220336/)
+## 视频|俄乌战争最新信息(截止3月21日)
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2220375/)
 
-国务卿布林肯： 根据目前掌握的信息，美国政府评估俄罗斯军队成员在乌克兰已犯下战争罪。我们将继续与盟友和合作伙伴共享信息，并追究责任。
+制作：香草山视频部
 
+(1) 在基辅西部：3月20日，俄军在基辅西北部没有进行任何进攻行动。乌克兰总参谋部称，俄军继续加强在已经占领的地区修筑防御阵地，准备后勤补给，并扩大其火控系统。乌克兰总参谋部以前没有提到俄罗斯对火控系统的重视，现在这一评估表明，俄军在放弃未来几周包围基辅的计划后，可能正在寻求为扩大对基辅的炮击和导弹袭击创造条件，试图让火炮进入有效射程范围，俄军同时继续用多管火箭炮袭击日托米尔地区。
 
+(2) 在基辅东部：俄军在过去24小时内加强了基辅东北部的防御阵地，据说开始部署地雷，并且继续炮击整个乌克兰东北部的平民定居点。而乌克兰军队3月20日在布罗瓦里周围发动了局部反击。乌克兰总参谋部报告说，乌克兰部队切断了俄罗斯部队在布罗瓦里附近的燃料和食品供应，并摧毁了俄罗斯第6坦克团的一个未指明的分队，包括又一辆俄军补给车也在切尔尼戈夫地区被摧毁。
 
-> Based on information currently available, the U.S. government assesses that members of Russia’s forces have committed war crimes in Ukraine. We will continue to share information with allies and partners, and pursue accountability.
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2022](https://twitter.com/SecBlinken/status/1506724525660151814?ref_src=twsrc%5Etfw)
+(3) 在苏梅：由于俄罗斯的炮击，一个容量为50吨的氨气罐被损坏，有轻微的氨气泄漏，在当地时间7:15时得到有效控制，至当地时间07:49，本次氨气泄漏事故得到完全控制。企业员工已开始定期进行工艺流程修复工作，其他单位也已经完成了相关工作。
 
+(4) 哈尔科夫继续遭受炮击，在过去24小时内发生8起火灾，救援和搜索行动正在进行中。
 
+(5) 俄罗斯空袭和炮击Avdiyivka，至少有1人死亡，2人受伤针，电力供应已经中断。
 
-国务卿布林肯： 我们很幸运有Nicholas Burns [@USAmbChina](https://twitter.com/USAmbChina) 担任我们在北京的大使。他将很快完成所需的隔离，并开始在这个关键时刻有效管理美中关系的工作。
+(6) 俄罗斯军队继续向马里乌波尔缓慢推进，俄军和代理人部队继续炮击该市，包括使用温压弹，但没有任何重大的实质性领土变化。欧盟外交政策负责人何塞普-博雷尔说，在马里乌波尔发生的事情是”大规模战争罪行”。
 
+(7) 在赫尔松方向：乌军在米科拉耶夫周围有不断的反击。乌军总参谋部进一步表示，俄罗斯部队在3月20日没有在南部方向进行任何进攻行动，而是优先补充兵力和物资以恢复战力。 而俄罗斯国防部声称，黑海舰队战舰在3月20日用Kalibr导弹打击了米科拉耶夫的乌军仓库。另外，据说叛徒萨尔多的助手帕夫卢沙·斯洛博德奇科夫在赫尔松被枪杀。
 
+(8) 奥德萨地区行政当局负责人Serhiy Bratchuk称：由于俄罗斯海军炮兵在敖德萨的早晨炮击，数座房屋被毁，暂时没有收到人员伤亡的消息。同时，乌军也用大炮向俄罗斯军舰开火，又有俄罗斯无人机在敖德萨上空被击落。
 
-> We are lucky to have [@USAmbChina](https://twitter.com/USAmbChina?ref_src=twsrc%5Etfw) Nicholas Burns as our Ambassador in Beijing. He will soon complete his required quarantine and begin his work to effectively manage the U.S.-PRC relationship at this critical time. [pic.twitter.com/3W9jC3ObXo](https://t.co/3W9jC3ObXo)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2022](https://twitter.com/SecBlinken/status/1506734770327375875?ref_src=twsrc%5Etfw)
+(9) 俄罗斯国防部称：乌克兰西部罗夫诺地区的一处军事设施被巡航导弹击中，乌克兰罗夫诺地区国家管理局局长维塔利-科瓦尔也确认，被击中的是该地区的一个军事训练场。
 
+(10) 乌克兰军事情报局（GUR）3月20日报告称，另一批与叶夫根尼-普里戈津和瓦格纳集团有关的雇佣兵于3月20日开始抵达乌克兰。GUR声称，该集团旨在刺杀乌克兰的最高军事和政治领导人，包括泽伦斯基、安德烈-叶尔马克和丹尼斯-什米哈尔。乌克兰政府声称，由于俄军常规行动渐趋失败，俄罗斯正在转向暗杀计划 。
 
+发稿：林礼
 
-众议员迈克·加西亚： 拜登总统失败的阿富汗撤军继续产生全球影响。在全世界关注欧洲危机蔓延之际，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与塔利班谈判采矿合同。美国决不能忽视我们最大的威胁——[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 【转华尔街日报：美国撤出后,中共国追逐阿富汗的矿产财富 中国公司正在与塔利班谈判以开采世界上最大的未开发铜储量之一的矿】
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)'s failed Afghanistan withdrawal continues to have global implications. While the world watches the crisis unfold in Europe, the CCP is negotiating mining contracts with the Taliban. America must not take its eye off of our greatest threat – China.[https://t.co/A2u7Ry8M0a](https://t.co/A2u7Ry8M0a)
-> — Rep. Mike Garcia (@RepMikeGarcia) [March 23, 2022](https://twitter.com/RepMikeGarcia/status/1506706139467198473?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 试图对马里乌波尔 [#Marioupol](https://twitter.com/hashtag/Marioupol?src=hashtag_click) 做出最后决定性的推进 总有一天，每个人都会听到勇敢的人不顾一切地捍卫这座城市的令人难以置信的故事
-
-
-
-> [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) trying to make a final decisive push on [#Marioupol](https://twitter.com/hashtag/Marioupol?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> One day everyone will hear the incredible stories of the brave men defending the city right now against all the odds
-> — Marco Rubio (@marcorubio) [March 23, 2022](https://twitter.com/marcorubio/status/1506631739875151891?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 我正在前往欧洲的路上，以召集国际社会支持 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click)，并确保 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 为他选择的战争付出沉重的经济代价。
-
-
-
-> I’m on my way to Europe to rally the international community in support of Ukraine and ensure Putin pays a severe economic cost for his war of choice. [pic.twitter.com/4UJpyitOko](https://t.co/4UJpyitOko)
-> — President Biden (@POTUS) [March 23, 2022](https://twitter.com/POTUS/status/1506643748880633859?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克尓·麦考尔(众议院军事委员会资深成员)： 泽连斯基总统已经请求设立禁飞区，我们可以在北约飞机不飞越乌克兰上空的情况下给他这个禁飞区。 如果我们提供像 S-300 (地对空导弹)这样的正确援助，我们就可以扭转局势，并给予 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 他们一直要求的东西。 【附麦考尔议员接受福克斯采访视频】
-
-
-
-> President Zelensky has pleaded for a no-fly zone, and we can give that to him without NATO aircrafts going across the skies of Ukraine. If we send in the correct aid like S-300's, we can turn the tide and give Ukraine what they've been asking for. [pic.twitter.com/l3rylH6f8Z](https://t.co/l3rylH6f8Z)
-> — Michael McCaul (@RepMcCaul) [March 23, 2022](https://twitter.com/RepMcCaul/status/1506689752896049155?ref_src=twsrc%5Etfw)
-
-
-
-众议员李·泽尔丁： 名人不应获得纽约市 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 疫苗强制接种的任何特殊豁免。相反，政府应该完全取消这项强制措施。最重要的是，任何因为没有打疫苗而被解雇的人都应该回到工作岗位并给他们补发工资！
-
-
-
-> Celebrities shouldn’t receive any special exemption to NYC’s COVID shot mandate. Instead, the government should just get rid of the mandate altogether. On top of that, anyone who has been fired for not getting the shot should get their job back with backpay!
-> — Lee Zeldin (@RepLeeZeldin) [March 24, 2022](https://twitter.com/RepLeeZeldin/status/1506794445949255681?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 
-拜登在布鲁塞尔应该说的四件事： 
-1. 北约成员国必须最终兑现承诺，将2%的GDP用于国防 
-2. 欧洲必须摆脱俄罗斯天然气 
-3. 给泽伦斯基赢得胜利所需的一切 
-4. 明确俄罗斯使用大规模杀伤性武器的红线——包括美国的干预
-
-
-
-> Four things Biden should say in Brussels:
-> 1. NATO members MUST finally step up to its commitment to spend 2% GDP on defense 
-> 2. Europe must ween off of Russian gas
-> 3. Give Zelensky what he needs to win 
-> 4. Establish clear red lines on Russia using WMDs – including US intervention
-> — Rep. Mike Waltz (@michaelgwaltz) [March 24, 2022](https://twitter.com/michaelgwaltz/status/1506791528378810370?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -2,20 +2,12 @@
 ---
 
 
-## 乌克兰战争：无人机捕捉到马里乌波尔的破坏情况
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220233/)
+## 普京的发言人拒绝排除使用核武器的可能性
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220302/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
-
-
-
-
-
-03/23/2022 乌克兰战争：乌克兰城市马里乌波尔遭受了无情的轰炸，当局说自俄罗斯入侵以来，该市90%的地方被破坏或完全摧毁
+03/23/2022 福克斯新闻：普京的发言人拒绝排除使用核武器的可能性。几乎任何事情都可以作为他们合理使用核武器的理由。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
-
 
  
 
