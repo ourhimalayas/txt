@@ -2,11 +2,11 @@
 ---
 
 
-## 孙力军刘彦平被抓始末（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220430/)
+## 战友站出来帮七哥分担（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220504/)
 
-**PPT制作: 0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11.10-11.20-（6）.jpg)
+**PPT制作:玉米地的小蜗牛 ；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11.20-11.30-（7）.jpg)
 *发布：*tianzhihuan
 
 更多资讯，请关注：

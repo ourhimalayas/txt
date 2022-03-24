@@ -2,30 +2,36 @@
 ---
 
 
-## 英国验尸官证实： 两名阿斯利康疫苗接种者死于凝血障碍！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2220389/)
+## “圣彼得堡的阴谋”将清算中共国的一切
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2220460/)
 
-撰稿：东京樱花团/Calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英国验尸官证实：-两名阿斯利康疫苗接种者死于凝血障碍！.jpeg)[图片来源](https://childrenshealthdefense.org/defender/uk-residents-died-blood-clotting-astrazeneca-vaccine/)
-本周，在两起关于疫苗的死亡病例中，英国验尸官得出结论，接种阿斯利康新冠肺炎疫苗的2人死于该疫苗引起的凝血障碍，该疫苗使用与授权在美国紧急使用的强生新冠肺炎疫苗相同的腺病毒技术。来自南约克郡的34岁母亲洛克伍德在注射阿斯利康疫苗九天后于2021年3月死于灾难性的脑出血。洛克伍德抱怨在接种疫苗八天后头痛得厉害。接着她的病情迅速恶化，住院17小时后被宣布死亡。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/381f2a6c965f09d40315ea2461e5479d.jpg)
+3月23日大直播中，郭先生与战友分享俄乌战争接下来的可能走势。
 
-英国国家卫生局于2021年5月7日更改了关于阿斯利康疫苗的指南建议，建议40岁以下的健康人应该避免接种疫苗，因为可能存在凝血并发症。助理验尸官Tanyka Rawden说，在Dudley去世时，潜在的致命性凝血问题“不是这种疫苗的已知和公认的并发症。在我看来，关于疫苗的官方指导建议已经改变了”，她说。
+俄罗斯对乌克兰的这场战争，普京所谓的保守估计是一周之内结束，但目前已经持续一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一个是打小规模的核战争，一个是只能停战。停战要找担保人来调停，郭先生直播中提到“圣彼得堡的阴谋”，就俄罗斯让中共国来做担保人停止这场战争，表面上看体现中共国的大国风范，联合国都做不到的事情中共国做成了。但是实际上，这会让全世界所有的中国人，信用、宗教、金融受到全方位长时间的制裁，不会再有人卖给中共国粮食，整个世界可能都要与中国人为敌。
 
-英国政府的数据显示，在估计2490万剂阿斯利康第一剂疫苗和2420万剂阿斯利康第二剂疫苗后，有437例报告病例和78例凝血死亡。据各种新闻来源称，2021年4月，包括德国、法国、意大利和西班牙在内的许多欧洲国家暂停使用阿斯利康疫苗，此前专家在一些疫苗接种者身上发现了危险的血栓。
+众所周知中国共产党要挟十四亿中国人，从金钱等方面予以俄罗斯支持，并且在中东的小规模军事冲突中，军事武器无人机的提供者都是中共，只要中共在，世界上的邪恶犯罪只会越来越恶劣。习近平会把这些全部都栽赃嫁祸给美国。此次如若圣彼得堡的阴谋得逞，在全世界都知道中共是俄罗斯入侵的支持者之下，习近平出来调停战争无非是再一次用停战的借口要挟全世界，更加剧世界对无辜中国人的仇恨。
 
-其中一位研究疫苗并发症的科学家写道：
+新中国联邦致力于消灭共产党解救中国人。
 
-“我们确实观察到静脉血栓事件的发生率增加，对应于每 100,000 次疫苗接种 11 次额外的静脉血栓事件，并且包括在 282,572 名疫苗接种者中观察到 7 次事件与 0.3 次预期事件相比，脑静脉血栓形成率明显增加。”
+撰稿、发布：骄子
 
-郭文贵先生一直预警在今年5月份以后全世界的疫苗灾难将会逐步爆发。到那个时侯，将会有更多的人死于致命的共产党病毒疫苗。就像文贵先生说的“病毒不是最恐怖的，病毒疫苗才是最终的目的。” 因此唯有消灭中共才有可能结束这一切的黑暗和恐怖。
+reference：
 
-**信息来源：**
+[https://gettr.com/post/p11ke0ac549](https://gettr.com/post/p11ke0ac549)
 
-[Two UK Residents Died of Blood-Clotting Disorders Linked to AstraZeneca Vaccine, Coroners Confirm • Children’s Health Defense](https://childrenshealthdefense.org/defender/uk-residents-died-blood-clotting-astrazeneca-vaccine/)
+* * *
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-3.jpg)
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
