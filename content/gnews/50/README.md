@@ -2,36 +2,29 @@
 ---
 
 
-## 泰国禁止使用加密货币支付商品和服务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220856/)
+## 俄乌战争｜不堪千夫所指 雀巢宣布停止在俄销售咖啡等产品
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2221279/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文：CP**
+**发布时间｜24/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/不堪千夫所指-雀巢宣佈停止在俄銷售咖啡等產品.jpg)
 
-翻译：攀登者
-编辑：jocozoner
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-53.png)图片来源：雅典娜设计组
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
 
-据《新印度快报》讯，泰国证券交易委员会3月23日宣布，禁止使用加密货币来支付商品及服务费用。
+自俄罗斯入侵乌克兰之后，多间国际企业纷纷宣布抵制俄罗斯，惟全球最大食品公司雀巢（Nestle）迟迟未有加入行动，引发网民发起杯葛行动。
 
-该规定将从4月1日起生效，目前并未禁止利用加密货币进行投资。在过去一年中，经当地交易所推广后，加密货币在泰国正变得愈加流行。
+早前乌克兰总统泽连斯基(Volodymyr Zelensky)在对瑞士民众发表演说时也点名批评雀巢说：“在我们的孩子不断丧命时，它仍照常与俄罗斯做生意，这样行为与它的宣传口号『Good Food，Good Life （优质食品、美好生活）』不符。”就连国际黑客组织Anonymous（匿名者）亦声称入侵该公司资料库以示抗议，并谴责该公司未完全撤出俄罗斯市场。
 
-泰国证交会表示，他们正在采取行动，保护该国货币金融体系的稳定，杜绝洗钱和其他网络犯罪所带来的威胁。
+重重压力之下，雀巢周三（23日）终于宣布停止在俄罗斯出售旗下大部份热门产品，包括Nespresso咖啡、Kitkat朱古力及Nesquik可可粉等品牌都会即时下架，预计金额将达17亿瑞士法郎（约18.3亿美元）。雀巢表示，在俄乌战争存续期间，雀巢将只专注于提供必需食品，仅维持供应婴幼儿食品、兽医用专门食品及医疗保健产品等。
 
-该规定还特别禁止推广用于支付的加密货币，以及基于此目的分发相关软件和设备。
+据统计，现时有超过400家跨国企业停止在俄业务，惟食品及消费品巨头联合利华（Unilever）、达能（Danone）及雀巢迟迟不愿撤出，被乌克兰外交部点名威胁实施制裁后，三家企业纷纷作出让步，现时仅保留对俄罗斯奶制品、纸尿片等必需品的供应。
 
-它还表示，从事数字资产业务的运营商必须事先告知客户这项禁令，如果他们违反了该规定，他们的帐户就将被冻结。
+來源｜[fortune](https://fortune.com/2022/03/23/nestle-anonymous-leak-hack-russia-business-kitkat-nesquik/)
 
-新闻链接：[Thailand bans crypto-currency payments for goods and services](https://www.newindianexpress.com/world/2022/mar/23/thailand-bans-crypto-currency-payments-for-goods-and-services-2433419.html)
+* * *
 
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

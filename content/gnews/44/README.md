@@ -2,23 +2,25 @@
 ---
 
 
-## 樱花头条┃波兰第二大广播电台ZET报道 中共不代表中国人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221973/)
+## 俄国将领及士兵以史上最快速度阵亡 创二战以来最高纪录
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2222788/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/03245.png)
-波兰第二大广播电台ZET 在推特账号上报道了“中共不代表中国人”.
+北约统计，短短4周内，多达4万名俄罗斯士兵被歼灭、受伤或被俘。西方官员周一表示，在不到一个月的时间里，俄罗斯侵略乌克兰的战争中至少失去6名高级将领和15位高级指挥官，创二战以来最高纪录，归咎通讯故障和数十万应征入伍的俄国年轻士兵缺乏纪律。
 
-信息来源：[https://gettr.com/post/p10er5j083d](https://gettr.com/post/p10er5j083d)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-22.png)图片来源：UkraineWorld
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO-1-3.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+因此，指挥官难以向前线传达命令，将校被迫亲上第一线指挥，也因为士兵伤亡惨重，俄军恼羞成怒，对平民区狂轰滥炸洩愤，滥杀无辜。俄国将领及士兵以史上最快速度阵亡，俄罗斯最终恐兵败乌克兰！
+
+简评：年迈多病的普京被野心与欲望冲昏了头脑，在习大神的教唆下发起了一场突如其来的战争。狂妄的普京本以为乌克兰没有准备好，结果发现是自己没有准备好。如今俄罗斯将领士兵损失惨重，乌克兰在国际援助下越战越勇，普京这次的如意算盘打错了，俄罗斯兵败乌克兰几乎已成定局！普京！不要再执迷不悟了！回头是岸是你最好的下场！
+
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E4%BF%84%E5%9C%8B%E5%B0%87%E9%A0%98%E5%8F%8A%E5%A3%AB%E5%85%B5%E4%BB%A5%E5%8F%B2%E4%B8%8A%E6%9C%80%E5%BF%AB%E9%80%9F%E5%BA%A6%E9%99%A3%E4%BA%A1-%E4%BF%84%E7%BE%85%E6%96%AF%E6%9C%80%E7%B5%82%E6%81%90%E5%85%B5%E6%95%97%E7%83%8F%E5%85%8B%E8%98%AD-064946063.html)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
