@@ -2,44 +2,61 @@
 ---
 
 
-## 岸田文雄强烈抗议俄方暂停北方四岛和平谈判
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220746/)
+## 继新浪微博被套上绞索后还会有哪些媒体&amp;国企&amp;通讯企业
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2220814/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/脏活儿_副本.jpg)
+据[中国新浪微博被美国证监会列入退市风险名单](http://www.18sz.com/news/show.php?itemid=12996)（2022-03-24 来源：路透社 环宇视展国际会展网）
 
-翻译：li yan li
-编辑：jocozoner
+【核心提示：中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。 根据SEC网站的最新披露，微博可在4月13日前提交证据，以证明被认定错误。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
+中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，但微博可在4月13日前提交证据，以证明被认定错误。（图）
 
+中国社交媒体平台新浪微博被美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。
 
-朝日新闻报道，3月22日，岸田文雄首相强烈抗议俄罗斯宣布不打算继续与日本进行和平条约谈判，并在有争议的北方领土上采取限制性措施。
+据路透社报道，根据SEC网站的最新披露，微博可在4月13日前提交证据，以证明被认定错误。
 
-俄罗斯外交部3月21日作出这一宣布，以报复日本加入西方国家行列对俄罗斯实施经济和其他制裁。
+SEC并称，被临时认定的发行人若认为被认定错误，将有15个工作日与委员会工作人员联系，并应在信函中附上证据支持。发行人在最终确定之前不受外国公司问责法要求约束。
 
-“目前的局势完全源于俄罗斯对乌克兰的入侵。”岸田在3月22日的上议院预算委员会会议上表示，“俄罗斯试图将此推给日俄关系，这是极其不合适的，绝对不能接受。日本对此表示强烈抗议。”
+此前SEC网站披露的暂定名单将百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药依据《外国公司问责法》认定为有退市风险的“相关发行人”。
 
-关于日本北方领土的谈判，一开始就没有进展。二战结束时，北海道附近的四个岛屿被苏联军队占领，其状态一直维持至今。
+微博美股周三（23日）隔夜宽幅震荡，一度大跌10.1%，最终小幅收低0.6%，同期纳斯达克金龙中国指数收高1.3%，延续近期反弹。
 
-俄罗斯的最新公告还包括暂停其他措施，包括允许前日本居民无需签证访问这四个岛屿。
+消息人士称，中国监管机构已要求包括阿里巴巴、百度和京东在内的部分在美上市公司做好披露更多审计信息的准备。目前中国政府正努力确保国内公司继续在纽约上市。
 
-莫斯科还称其将退出北方领土上的所有联合经济活动。
+路透社分析指，中国监管机构的最新举措表明，北京愿意做出一些让步，以解决中美之间长期以来就审计问题上的僵局。审计僵局已使美国对中国企业的数千亿美元投资面临风险。】
 
-俄罗斯外交部称，由于日本蓄意的反俄政策，任何由于俄方措施而造成的日方损失，日方将承担所有责任。
+郭文贵先生在[2022年3月20日 文贵大直播：俄罗斯中将莫德维切夫被干死成俄乌战争的最大转折点；大量外资撤离香港及大陆中共国面临世界经济严峻形势](https://www.gettr.com/streaming/p10y5j870c5) 提到的是——
 
-岸田还表示，日方基本立场没有改变，依然愿意通过与俄方签署和平条约而解决北方争议领土问题。
+【马上，也可能今天，也可能下一周，中国的共产党的这些媒体还有企业，都会受到美国的制裁，这叫美国制定的内部政策，叫对中共先给他“放几个蚊子咬咬他”，让他知道疼的感受。马上把它几个媒体平台彻底制裁。】
 
-日本对俄罗斯的制裁包括冻结俄罗斯金融机构、相关组织和政治领导人的资产。石油提炼设备也被添加到限制向俄罗斯出口的产品清单中，因为它们有可能被转化为军事用途。
+【你们最近发现了整个世界对海外任何和共产党有交易有联系的在西方世界，这不叫排华战争，这是一个干干净净地清理华人当中和共产党有关系的人，已经开始了。然后接下来大家会看到对共产党的媒体、国企、通讯企业，会超出你想象的制裁。】
 
-新闻链接：[Kishida: Russia’s halting of peace treaty talks ‘unacceptable’](https://www.asahi.com/ajw/articles/14578730)
+对照[中国新浪微博被美国证监会列入退市风险名单](http://www.18sz.com/news/show.php?itemid=12996)和郭先生的直播，我们可以确定知道的就是在接下来中共在西方沉默的力量将接二连三被清除，这也是美国早就开始的Clean the Room行动的最新成果，在这一次美国和西方的“打扫房屋”行动中，第一个上砧板的新浪微博，接下来还有哪些作为中共帮凶的国企、通讯企业被套上绞索？让我们拭目以待。
 
-发布：tianzhihuan
+撰稿：喜马拉雅的肉夹馍；
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 10:25 AM (UTC)`
+
+3月24日：这是真的吗？太惨烈了，如果这个视频是真的．这百分之百是机长强制……断连强控自杀的结果！😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭【七哥，这是您说的那个航班坠毁前视频。中国东方航空MU5735航班，】
+![img](https://media.gettr.com/group44/getter/2022/03/24/10/cc55c53e-c8d3-583e-f7b5-2bf2df5ab4c2/out.jpg)
+
+---
+
 `@miles 3/24/2022 7:03 AM (UTC)`
 
 3/23/2022 Miles Guo: Xi Jinping managed to accomplish the following three things that he had planned to do before he came to power: 1) purge of the Party; 2) taking down the Princelings of the CCP; and 3) bringing down the warlords and wealthy tycoons. Xi is ruthless, and such a personality is very much like that of the head of a gang. He will reduce to ashes those whom he is determined to eliminate. He will support whoever he likes even if they are demons.<br/><br/>3/23/2022 文贵直播：习近平上台前要做三件事：1）清党；2）干掉太子；3）干掉军阀财阀，他都做到了；习混不吝的个性很像黑社会老大，决心要办的人必将其挫骨扬灰，对上眼的人哪怕是魔也要挺<br/>
@@ -148,13 +155,6 @@ How a team of Italian journalists see the New Federal State of China. They produ
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-23
 ![img](https://media.gettr.com/group44/origin/2022/03/23/21/ffcf082f-fd8b-6dab-b240-b0d3912e4b3a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/23/2022 9:52 PM (UTC)`
-
-3/23/2022 Miles Guo: Although the CCP did not supply Russia with weapons, it has provided funds, food supplies, intelligence, and communication systems, hasn’t it? The whole world will believe that the Chinese people are the “culprits”. This is the most worrisome!<br/><br/><br/>3/23/2022 文贵直播：中共虽未直接向俄罗斯提供武器，但难道没提供资金、粮食补给、以及情报和通讯系统吗？全世界会认为中国人是“元凶”，这是最令人担心的！<br/><br/>
-![img](https://media.gettr.com/group31/getter/2022/03/23/21/13e2e12e-bb95-6d15-964d-ec1a10bc2d9e/out.jpg)
 
 ---
 
