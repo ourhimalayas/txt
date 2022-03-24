@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 1:35 AM (UTC)`
+
+2022.03.23 晚《新中国联邦新闻访谈》众议院两党议员推出取消中共国永久最惠国待遇法案；Akamai和彭博社接连报道喜联储，释放重要启动讯号；对九指妖的民事诉讼取得重大胜利；秦刚接受CBS直播采访，继续胡搅蛮缠；俄军强行将数千乌克兰儿童拐带到俄罗斯
+![img](https://media.gettr.com/group14/origin/2022/03/22/01/892d18d7-53a3-9d8e-2a7b-e6fe114c88b1/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/24/2022 1:17 AM (UTC)`
 
 3/23/2022 Miles Guo: What is the “the St. Petersburg Agenda”? As long as the CCP mediates the Russia-Ukraine war, Communist China will be sanctioned and held accountable by the whole world. Food crises, political disasters, and the collapse of the financial system, religions, and credibility will happen in Communist China. The CCP is providing drones to the Middle East and is sowing discord over there, while blaming the Americans for the chaos in the Middle East.<br/><br/>3/23/2022 文贵直播：什么是“圣彼得堡的阴谋”？只要中共调解俄乌战争，中共国将被全世界制裁和清算，中共国将发生粮食危机、政治灾难以及金融、宗教和信用的崩塌；中共在中东提供无人机、挑拨离间却甩锅给美国人<br/>
@@ -145,13 +152,6 @@ A very popular young singer, Tsewang Lobu, in the Tibetan community as well as m
 
 Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscrescue #nfsc新中国联邦
 ![img](https://media.gettr.com/group43/origin/2022/03/23/13/4d120241-14b5-7d39-d368-7162128cf313/bc2f8bdb5f3d6e5a65859489afb3f23a.jpg)
-
----
-
-`@miles 3/23/2022 1:13 PM (UTC)`
-
-【Ukraine Rescue】 03/20/2022 The NFSC & ROLF Ukraine Humanitarian Rescue Operation – Poland Rescue Base Frontline Report: The employed security team greatly relieved the pressure of the fellow fighters, which enables the fellow fighters to have more time to rest and avoid excessive fatigue and physical discomfort.<br/><br/><br/>【乌克兰救援】03/20/2022 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报道：雇佣的安保团队大大缓解了战友的压力，晚上值夜班，白天也主动服务难民，并做一些小事。这样使得战友有更充分的时间休息，避免过于疲劳身体不适。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group8/getter/2022/03/23/13/fbfa2876-2353-a5aa-088c-bbff4199e549/out.jpg)
 
 ---
 

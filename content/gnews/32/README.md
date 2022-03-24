@@ -2,36 +2,19 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月23日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2218534/)
+## 视频|基輔4棟大樓遭砲擊數十死
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2218196/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-20.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-23.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.03.23早 《NFSC新闻》](https://gettr.com/streaming/p11gsoa0090)
-[2022.03.23早《NFSC新闻访谈》](https://gettr.com/streaming/p11grr82ae6)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-20.jpeg)
+制作：大直播短视频组- Dawns
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+审核/编辑/发稿：呼吸的雾霾（文小呼吸 ）
 
 **更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-21.png)
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

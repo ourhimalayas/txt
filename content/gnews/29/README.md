@@ -2,16 +2,16 @@
 ---
 
 
-## 西媒头条 — 第194期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218717/)
+## 视频|宣传救援联系信息【脱敏】
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2218202/)
 
-制作：蚂蚁兄弟
+制作：大直播短视频组- dyb(文忙)
+文案：爱米粒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+【主标题】男儿的眼泪 
+【副标题】据星空新闻3月19日消息，约80名尚在培训中的新征乌克兰士兵在睡梦中丧生于俄军的夜间轰炸。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220323.001.jpeg)
-
-发稿：信心的选择
+审核/编辑/发稿：呼吸的雾霾（文小呼吸 ）
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
@@ -19,8 +19,6 @@
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

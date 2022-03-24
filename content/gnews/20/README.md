@@ -2,20 +2,31 @@
 ---
 
 
-## 【秘翻在线】美国国务院正式宣布俄罗斯军队在乌克兰犯有战争罪！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2219266/)
+## 西班牙记者采访并报道了新中国联邦援乌营地
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2219165/)
 
-#### 撰稿：西枫westca
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16480780581.png)   图片来源：网络照片
-3月23日美国国务卿布林肯在声明中指出，自发动无端和不公正的选择战争以来，俄罗斯总统弗拉基米尔·普京发动了无情的暴力，在乌克兰各地造成了死亡和破坏，俄军不分青红皂白的攻击和蓄意针对平民的攻击，以及其他暴行。俄罗斯军队摧毁了公寓楼、学校、医院、关键基础设施、民用车辆、购物中心和救护车，造成数千名无辜平民伤亡。经确认，许多被袭击的地方属于平民区，如马里乌波尔妇产医院和马里乌波尔剧院。他们在乌克兰这样做的行为再次震惊了世界，正如泽伦斯基总统所说，”使乌克兰人民沉浸在鲜血和泪水中”。
+**作者：Nicole**
+**编辑：Candy**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西班牙.png)
+Nicole, [Mar 23, 2022 at 10:14 AM]西班牙媒体Republica的记者刚才给我发了他们报道梅蒂卡难民营的报道文章链接：
 
-该声明基于我们都看到的无数破坏和痛苦的叙述和图像，即普京的部队在乌克兰犯下了战争罪行。布林肯还说，蓄意以平民为目标是一种战争罪。
+[https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/](https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/)
 
-根据目前获得的信息，美国政府经评估认定：俄罗斯军队成员在乌克兰犯下了战争罪。国务院和其他美国政府专家正在记录和评估乌克兰潜在的战争罪行。美国政府将继续跟踪有关战争罪的报告，并将酌情与盟国、合作伙伴以及国际机构和组织分享我们收集的信息。我们致力于利用一切现有工具追究责任，包括刑事起诉。
+内容包括过境的难民、其他国际营救机构、战地音乐家Davide Mortella和对新中国联邦的报道。
 
-*责编：白夜*
+这是对新中国联邦报道的中文翻译：
 
-**新闻来源：**[War Crimes by Russia’s Forces in Ukraine – United States Department of State](https://www.state.gov/war-crimes-by-russias-forces-in-ukraine/)
+在大卫（Davide）和他的钢琴旁边，是整个难民营中规模最大、建造最好的营救设施是新中国联邦的帐篷， 他们是一个以推翻中共政府为最终目标的团体。“我们的帐篷是所有帐篷中设施最好的，我们还为难民提供Wi-Fi。我们要让世界知道，一个没有中国共产党的中国是一个更加美好的中国” 在场的义工说。
+![Image](https://media.discordapp.net/attachments/950448401529577502/956225214625218590/image.png?width=553&amp;height=369)图片来源：republica.com
+***编者按：**借用别人的一句话：你若盛开，蝴蝶自来；你若精彩，天自安排。我们新中国联邦人只做我们认为对的事情，坚持唯真不破，不用考虑别人的看法，到时会有正义的人们跟随，并得到他们的支持。*
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

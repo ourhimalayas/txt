@@ -2,16 +2,13 @@
 ---
 
 
-## 2022年3月23日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218495/)
+## 视频|英国首相言西方绝不能妥协，与普京关系再回不去从前「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2218194/)
 
-制作：DT新闻组
+制作：大直播短视频组- 隧道尽头的光
+文案：聪宁
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**中共的杀戮还在继续……**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0571.jpg)
-
-发稿：信心的选择
+审核/编辑/发稿：呼吸的雾霾（文小呼吸 ）
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
@@ -19,8 +16,6 @@
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
