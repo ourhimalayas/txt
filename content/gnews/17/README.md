@@ -2,24 +2,30 @@
 ---
 
 
-## 樱花头条┃波兰第二大广播电台ZET报道 中共不代表中国人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221973/)
+## 【G叻睇真D】西方法律将惩治海外伪民运和中共代理人
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2222150/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/03245.png)
-波兰第二大广播电台ZET 在推特账号上报道了“中共不代表中国人”.
+主       播：加拿大温哥华扬帆农场 – yuyu
+视频制作：加拿大温哥华扬帆农场 – Gracelshan
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+据3月16日[美国司法部]公开的信息显示：该部门日前已正式起诉中共在海外的多名伪民运者。并指控他们在美国非法充当中共政权代理人期间，恶意收集异议人士信息，骚扰、抹黑、监视以及暴力攻击美国公民等。
 
-信息来源：[https://gettr.com/post/p10er5j083d](https://gettr.com/post/p10er5j083d)
+据悉，本次包括王书君在内的五名被指控疑犯中，目前除2人在逃外，其余3人全部被捕归案，并或将分别面临5至25年不等的刑期惩罚。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO-1-3.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+报道指出：包括吴征和单伟健等绝大多数在美国、加拿大、日本、澳大利亚以及新西兰等国，与中共有密切交易联系的代理人和海外欺民贼，都正在被当地司法机关调查和清理。在难逃西方法律制裁的情况下，入狱或被遣反回中共国将是其最终的结局。
 
+编辑/上传：一叶
+盖特链接：[https://gettr.com/post/p11jnnq9c0a](https://gettr.com/post/p11jnnq9c0a)
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

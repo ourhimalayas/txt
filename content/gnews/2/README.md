@@ -2,16 +2,13 @@
 ---
 
 
-## 20220323郭文贵大直播 ：躺平币就是让全球穷人能购买水和食物
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2222217/)
+## 中共已就安倍晋三与蔡英文的通话向日方提出严正交涉
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2222331/)
 
-作者：东京樱花团小视频组
+03/23/2022 中共外交部发言人汪文斌：台湾没有什么“总统”，中方已就安倍晋三与蔡英文的通话向日方提出严正交涉。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

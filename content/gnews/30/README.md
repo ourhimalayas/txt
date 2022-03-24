@@ -2,38 +2,24 @@
 ---
 
 
-## 法治基金志愿者向乌克兰难民介绍新中国联邦的灭共使命
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221284/)
+## 中日财经爆┃中美贸易部分商品的关税豁免
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221633/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/Garrettw
 
-整理/编辑：小红帽
+当地时间23日，美国贸易代表办公室发布声明，宣布重新豁免对352项从中国进口商品的关税，该新规定将适用于在2021年10月12日至2022年12月31日之间进口自中国的商品。去年10月，美国贸易代表办公室宣布，拟重新豁免549项中国进口商品的关税，并就此征询公众意见。时隔近半年之后，美国贸易代表办公室23日发布声明，确认对此前拟重新豁免关税的549项中国进口商品中的352项进行确认。该办公室表示，当天美方的决定，是在全面征求公众意见、并与美国相关机构协商后的结果。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-24_15-55-15.png)图片来源：郭文贵先生盖特视频截图
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-63.png)[图片来源](https://weibo.com/cctvxinwen)
 
+美国贸易办公室释放的“豁免部分中国进口商品关税”的信号，是走的哪一步棋？请继续关注的Gnews的相关新闻。
 
-3月20日，在波兰梅迪卡救援中心，新中国联邦和法治基金志愿者小小酥向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。
+消息来源：
+1、[中美贸易商品关税](https://weibo.com/cctvxinwen)
+2、[USTR Issues Determination of Reinstatement of Certain Exclusions from China Section 301 Tariffs](https://ustr.gov/about-us/policy-offices/press-office/press-releases/2022/march/ustr-issues-determination-reinstatement-certain-exclusions-china-section-301-tariffs)
 
-小小酥说：“刚才这位女士说，她很吃惊，中国人会在这个地方。”
-
-随后小小酥向这位乌克兰女士介绍道：“我们来这里是希望帮助到人们，由衷地希望能够提供援助。而且，我们希望告诉人们，我们要消灭中国共产党。
-
-乌克兰女士答道：“我们明白了。”
-
-小小酥继续道：“我们要消灭中共，因为只要灭了中共，世界上的邪恶就会被铲除。这样就不会有战争了。”
-
-乌克兰女士表示支持：“祝你们好运！”
-
-资料来源：[郭文贵先生2022年3月24日盖特视频](https://www.gettr.com/post/p11kynr1068)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
