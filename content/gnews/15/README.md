@@ -2,48 +2,37 @@
 ---
 
 
-## 中共利用在俄经商中小企业帮助俄罗斯逃避制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2219779/)
+## 有声|单伟建出任阿里巴巴新任独立董事
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2219812/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+阿里巴巴22日发布公告，计划扩大100亿美元的美股回购规模，将回购总额从150亿美元上调至250亿美元，有效期至2024年3月，为期两年。这是自2017年以来，阿里巴巴第三次增加回购计划总额。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-12.jpg)
+与此同时，阿里巴巴还宣布，委任太盟投资集团执行董事单伟建为董事会独立董事，兼审计委员会成员，任命期于3月31日生效。
 
-整理：gardeniahu
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5N3F1POMK54JCLN16.png)图片来源：TASS & 雅典娜设计组
+早前，郭文贵先生曾多次爆光单伟建的真实身份是中共高级特务，不仅是中共千人计划的重要推手，也是蓝金黄美国政要的关键人物。
 
 
-据大纪元3月23日报道，中共驻俄罗斯大使馆官员近日对在莫斯科经商的中国小企业主称，“要抓住危机中的商机”。分析认为，这可能是中共帮助俄罗斯缓解国际制裁的方法。
 
-乌克兰战争爆发后，美国、欧盟、英国、日本等众多国家联合对俄罗斯进行了制裁，以推动停火。截至3月17日已经有400多家国际企业和协会组织宣布部分或全部退出俄罗斯市场、暂停对俄罗斯投资，大多数是欧美和日韩企业。
+文字版原文：[单伟建出任阿里巴巴新任独立董事](https://gnews.org/zh-hans/2214926/)
 
-但是，中共始终拒绝谴责俄罗斯，并批评国际制裁，声称要与俄罗斯保持“正常贸易关系”。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-俄罗斯孔子文化促进会官方微信账号3月21日发文说，中共驻俄罗斯大使张汉晖于莫斯科当地时间3月20日召集当地十多名侨团和华商代表开会，让他们“不要等”，要“填补俄罗斯市场‘空白’”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-张汉晖把当前的情况描述成“重大机遇”**，称“大型企业经贸往来的结算方式、供应链，遇到很大困难，甚至中断。此时，正是我们民营和中小企业发挥作用的时候。”**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-他还称：“**从国家层面，正根据新的情况，在尽快调整和理顺各种渠道，尤其是结算、物流等突出问题，搭建新的平台**。”
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-对于中国小企业在乌克兰危机中的角色，《华盛顿邮报》3月11日曾引述彼得森国际经济研究所研究员马永哲的分析表示，中共任何违反制裁（俄罗斯）的行为都可能由损失较少的小型企业去做。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-报导还引述龙洲经讯咨询公司分析师的话说：“中共政府可能希望援助俄罗斯，但它无法保证那些违反规定的中国企业免受严重制裁。”
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-**华为在俄罗斯受到网络攻击之后，称“立即驰援俄罗斯，已经展开网络维护，帮助俄罗斯建立移动宽带系统”。**
-
-**大疆公司在乌克兰危机爆发后，其无人机被指限制乌克兰军队使用“航空镜”技术的能力，但为俄罗斯提供了重要的空中侦察优势。**
-
-熟悉美中商业环境运作的美国律师丹‧哈里斯3月22日分析说，如果中共继续支持俄罗斯，同样的事情（制裁）也会发生在中共国身上。
-
-参考链接：[俄乌爆发战争 中共驻俄大使动员华商抓住商机](https://www.epochtimes.com/gb/22/3/22/n13665645.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

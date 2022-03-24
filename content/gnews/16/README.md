@@ -2,41 +2,25 @@
 ---
 
 
-## 有声|联合国称乌克兰1000万平民被迫逃离家园
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2219775/)
+## 警方判定自由車隊與縱火案無關
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2219808/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月20日，联合国难民事务高级专员菲利普·格兰迪表示，俄罗斯的侵略战争已造成乌克兰900多平民死亡，1000万人逃离家园。他们要么在国内流离失所，要么在国外成为难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-9.jpg)
-联合国人权事务高级专员公署指出，乌克兰平民的伤亡大多来自爆炸性武器，即俄军的重炮、多管火箭、导弹以及飞机轰炸所致。另外该机构表示，由于他们在乌克兰当地的监督小组无法取得并核实一些遭到俄军狂轰滥炸城市的伤亡报告，真实的百姓死伤人数应该更高。
+作者：加拿大溫哥華揚帆農場 – 采編： 文萊 –  編譯撰稿： 晨熹
 
-20日，乌克兰副总理表示，该国将开放7 条人道主义走廊，为平民提供安全通道，让他们离开前线地区。但在一些城市，俄罗斯的炮击阻止或减缓了平民的疏散。
+據加拿大【真北方】3月21日報道，渥太華警方日前已正式確認，發起反疫苗護照運動的自由車隊與當時抗議現場附近的故意縱火案毫無關聯。
 
-联合国难民署表示，自2月24日俄罗斯入侵开始以来，已有超过 300 万难民逃离乌克兰。
-
-而根据相关的统计，2020年的乌克兰人口总数为4413万人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2735.png)圖片來源：The True North
 
 
+據悉，警方現已對發生於2 月 6 日的渥太華市區公寓縱火案中的一名嫌犯提起刑事訴訟，而另一名已被確認的嫌犯正在追捕之中。
 
-文字版原文：[联合国称乌克兰1000万平民被迫逃离家园](https://gnews.org/zh-hans/2214706/)
+報道指出，為將反疫苗護照抗議運動的參與者抹黑為極端恐怖分子，包括渥太華市長以及多名自由黨議員，此前都曾在不同場合公開將該縱火案歸咎於自由車隊的卡車司機，並最終通過以上栽贓陷害手段，違法啟動了[緊急狀態法]對和平集會進行了鎮壓。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+校對編輯：硫酸羥氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+發稿：青青
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新聞來源： [https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/](https://tnc.news/2022/03/21/ottawa-police-admit-freedom-convoy-unconnected-to-arson-attempt/)
 
  
 
