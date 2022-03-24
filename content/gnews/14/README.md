@@ -2,41 +2,37 @@
 ---
 
 
-## 数家央行与国际清算银行合作开展数字货币支付业务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220690/)
+## 前线战友接受“台湾+”英文媒体采访
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220725/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-翻译：li yan li
-编辑：jocozoner
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
+作者：纽约磐石农场 – 在远方
 
 
-据道琼斯通讯社报道，四家中央银行与国际清算银行合作创建了一个支付平台原型，以期能对各国央行发行的数字货币进行国际结算。
 
-3月22日，国际清算银行创新中心、澳大利亚储备银行、马来西亚中央银行、新加坡金融管理局以及南非储备银行共同宣布该平台已经搭建完成，他们认为金融机构借此可对以上各国央行发行的数字货币直接进行交易。
-
-该集团在一份声明中说，该平台被称为“邓巴计划”（Project Dunbar），他们希望通过此架构来减少对中介机构的依赖，以及处理跨境交易的成本和时间。
-
-在开发该平台的过程中，参与的各国央行表示，他们解决了诸如如何对有权利使用CBDC1进行交易的实体进行认证，以及如何解决不同国家的支付监管差异等问题。
-
-1. 央行数字货币
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-国际清算银行新加坡创新中心负责人安德鲁·麦科马克（Andrew McCormack）说：“邓巴计划表明，可以通过强大技术手段实施的治理机制，我们完全可以解决信任和共享控制的关键问题，这都为未来全球和区域平台的发展奠定了基础。”
 
-麦科马克先生还补充说，允许实体直接持有不同司法管辖区的CBDC并进行交易，可以减少跨境支付对中介机构的需求。
+3月22日，郭文贵先生盖特视频表示，乌克兰前线救援战地记者妮可接受了台湾首家面向国际观众的英文媒体“台湾+”的采访。妮可表示，新中国联邦支持台湾人民的民主自由，并永远与国际正义力量站在一起。
 
-新闻链接：[Central banks, BIS team up on digital-currency payments](https://www.marketwatch.com/story/central-banks-bis-team-up-on-digital-currency-payments-271647930605)
+在采访过程中，台湾媒体清楚了解到乌克兰国际救援由法治基金赞助，参与者是热爱和平、自由和法制的新中国联邦人组成，正在为乌克兰难民提供人道主义救援，并致力于摧毁邪恶的中国共产党。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-12.jpg)
+此外，采访也对台湾现在享有的自由民主表示担忧，妮可说到：如果中共侵略台湾，国际社会将会为台湾提供大力支持，新中国联邦也将为所有被中共镇压和虐待的人们提供人道主义救援。并强调国际社会给予乌克兰人民越多的支持，中共实施人权暴行的可能性就越小，消灭中共是保障世界和平、法治与自由的唯一途径。
 
-发布：tianzhihuan
+参考链接：
+[【乌克兰救援】03/19/2022 台湾+是台湾首家面向国际观众的英文媒体，主持人问妮可对习近平武力威胁台湾的看法。](https://www.gettr.com/post/p11av1wba1d)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/：zhong
+审核：Ivy001
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,31 +2,38 @@
 ---
 
 
-## 疫情｜韩国累计确诊数破千万大关 重症及死亡率持续居高不下
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2220538/)
+## 国际反贪组织已锁定普京盟友170亿美元资产
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220722/)
 
-**图/文：CP**
-**发布时间｜24/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國累計確診數破千萬大關-重症及死亡率持續高企.jpg)
-
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+作者：纽约磐石农场 – 在远方
 
 
-韩国 Omicron 确诊病例数持续于高峰位徘徊，防疫部门周三(23日）公布，过去 24 小时，新增病例 49 万 881 例，累计确诊人数突破 1,000 万，即 1,042 万 7,247例，约为韩国人口的20%。若不计重复感染，相当于每5名韩国人中有一人染疫。
 
-韩国政府原本估计新冠肺炎的单日确诊率会在本月12至22日间见顶，23 日达至最高峰 50 万，之后稳定回落。而且按照其他国家经验，当累计确诊数达到整体人口两成时，疫情扩散可望开始减慢，但据目前形势来看，韩国防疫部门对此持悲观态度。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-要知道，直至今年2月6日，韩国总体病例总数才刚刚突破 100 万例，这期间经历了近 746 天（自2020 年 1 月 20 日确诊首例国内病例起计），但仅仅一个半月后，累计病例就突破了 1000 万大关。换句话说，在七成韩国民众都完成疫苗加强剂注射的情况下，今年1月1日起至今累计病例 930.5919 万例，占总体病例的93.65%。
 
-最为重要的是，不仅确诊率未见趋缓，死亡及重症人数亦维持在高峰位，22日报告384人新冠死亡个案，连续第6天单日死亡人数超过 300 例。另外，重症亦连续第 16 天维持超过 1,000 例（1,084例），全国重症病床使用率已经接近70%。
 
-目前，韩国已经成为全球单日确诊人数最多的国家。因此，当地专家认为，随着21日起放宽限聚至8人，且传播力更强的Omicron亚型BA.2病例剧增，预计疫情趋缓还需要一段时间。
+台媒22日报道，国际反贪腐组织“组织犯罪与贪腐举报计划”将联手英国《卫报》以及其它25家媒体，追踪与普京有关联的俄罗斯富豪资产，目前已锁定的资产价值已超过170亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpg)
+官网资料显示，普京执政22年已构建稳固的权势关系网络，结合富豪、政客及体制既得利益者，协助巩固普京政权，并从中获取报酬。“组织犯罪与贪腐举报计划”从”积极参与普京政权的压迫和腐败 “的人名清单开始，将对相关资产进行追踪，后续会将追踪到的资产编入定期更新的数据库，供公众查看和使用。
 
-**来源｜**[**Hani.kr**](https://www.hani.co.kr/arti/english_edition/e_national/1035977.html)
+据悉，资产追踪已经列出了与普京关系密切的寡头和亲信在境外持有的巨额财富，包括房产、私人飞机、公司股票、游艇及豪宅的等近150项资产，总价值约170亿美元。在接下来的几周内，其追踪范围还将持续扩大。
 
-* * *
+参考链接：
+1. [追追追！劍指普廷盟友 「海外資產追蹤器」已揭露至少4900億](https://news.ltn.com.tw/news/world/breakingnews/3867301)
+2. [Introducing a project to track down and catalogue the vast wealth held outside Russia by oligarchs and key figures close to Russian President Vladimir Putin**.**](https://www.occrp.org/en/asset-tracker/)
 
-**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑：zhong
+审核：Ivy001
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

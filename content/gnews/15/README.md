@@ -2,35 +2,37 @@
 ---
 
 
-## 澳新银行成为第一家铸造稳定币的澳大利亚银行
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2220679/)
+## 向世界揭露PAG金融诈骗集团的真面目
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220724/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/727bc5ffb559b746ab6bcd2e6d6b4400.jpeg)图片来源：www.theaustralian.com.au
+作者：纽约香草山教育部 – Naughty(文行)
 
 
-根据路透社3月24日报道，澳新银行集团（ANZ.AX）周四表示，该公司进行了一次澳元稳定币支付，这是一项具有里程碑意义的交易。澳新银行成为澳大利亚第一家铸造与该国货币挂钩的数字资产的银行。
 
-稳定币是一种数字资产，旨在保持其相对于另一种资产的价值稳定，并经常用作其他加密货币的门户或在去中心化金融系统中产生收入。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-澳新银行表示，已通过数字资产投资平台Zerocap向一家私人数字资产财富管理公司Victor Smorgon Group交付了澳元稳定币A$DC。
 
-澳大利亚储备银行(RBA)去年表示，该公司开始铸造与澳元挂钩的数字资产。数字钱包的增长可能允许交换由澳大利亚央行支持的代币或数字形式的货币，尽管中央银行仍然对数字货币持怀疑态度。
 
-澳新银行表示，该公司已经使用智能合约铸造了3000万澳元稳定币A$DC。这些稳定币在双方之间转移，后来又兑换回法定货币。
+郭文贵先生在3月22日的盖特中透露，中共从马云手上抢走阿里巴巴后，现在又委托共产党特务头子单伟健作为阿里巴巴的审计员。郭先生指出，PAG 太平联盟就是中国共产党的金融诈骗机构，单伟健的整个家族是共产党豢养的专业特务。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-10.jpg)
+郭先生表示，爆料革命一定要让美国人知道到底是谁在偷美国人的养老保险；一定要让美国人知道太平联盟就是中共的海航、吴征、房地产、腾讯、北方工业等包括HBO的投资者；一定要让美国认清单伟健的PAG这个金融诈骗集团是共产党伸向西方社会养老金的最重要的打手。
 
-新闻来源：[ANZ becomes first Australian bank to mint stablecoin](https://www.reuters.com/business/finance/anz-becomes-first-australian-bank-mint-stablecoin-2022-03-23/)
+郭先生向所有投资过PAG和购买过其金融产品的人表示，未来一定会让单伟健和PAG终生待在监狱里，一定会让PAG作出N倍的赔偿。
 
-发布：tianzhihuan
+参考链接：
+[郭先生盖特视频：3月22号：尊敬的战友们好．世界经济大战……粮食大战……已经前面开始！](https://gettr.com/post/p11bpsp95fb) （2:35-4:48）
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：zhong
+编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

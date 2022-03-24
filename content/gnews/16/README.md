@@ -2,21 +2,37 @@
 ---
 
 
-## 视频|96岁纳粹集中营幸存乌克兰人被普京杀害
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2220668/)
+## 喜联储主席谈加密货币在俄乌战争中的角色
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220723/)
 
-制作：香草山视频部
+作者：纽约香草山金融部 – ILOVE战神
 
-3月22日，据盖特消息显示，纳粹集中营幸存者、 96岁的乌克兰人罗曼琴科在其位于哈尔科夫的公寓中被俄罗斯军队炮击杀害。
-德国布亨瓦特集中营纪念馆的资料证实，1926年出生的罗曼琴科于二战期间被纳粹在乌克兰逮捕，随后，其被送至矿场奴役。很长一段时间里，罗曼琴科辗转在布亨瓦特、布尼木恩德、多拉和伯根-波尔森四座纳粹集中营中。二战结束后，幸存的罗曼琴科成为了纳粹暴行的亲历者与见证人。 然而，由于俄军无差别的炮火攻击，96岁高龄的罗曼琴科近日在自己的公寓内被杀害。
-对此，乌克兰外长指责俄军的杀害行为是不可原谅的暴力罪行，而乌克兰总统办公室发言人也指出，俄罗斯将此次侵略战争定义为所谓的“去纳粹化”更是纯粹的谎言。至于布亨瓦特集中营纪念馆则表示，罗曼琴科从希特勒集中营里幸存，却在百岁之际被普京屠杀，这让人感到非常震惊。
 
-发稿：qiutian（邱甜）
 
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+3月18日，喜联储主席威廉·杰伊先生接受彭博社记者专访，谈到了加密货币及其在俄乌战争中扮演的角色。众所周知，在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。而在俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-13.jpg)
+加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。威廉先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，可以轻松解决加密货币被作为非法活动的媒介。
+
+加密货币平台对客户进行详尽的客户认证将不可避免，威廉先生更表示：已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。
+
+参考链接：
+[Putin’s War Could Make Central Banks a Crypto Battlefield](https://www.bloombergquint.com/gadfly/putin-s-war-will-put-central-bankers-on-the-cryptocurrency-frontlines)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：zhong
+编辑：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
