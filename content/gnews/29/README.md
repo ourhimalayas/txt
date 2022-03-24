@@ -2,10 +2,10 @@
 ---
 
 
-## 国际反贪组织已锁定普京盟友170亿美元资产
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220722/)
+## 喜联储主席谈加密货币在俄乌战争中的角色
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220723/)
 
-作者：纽约磐石农场 – 在远方
+作者：纽约香草山金融部 – ILOVE战神
 
 
 
@@ -13,20 +13,19 @@
 
 
 
-台媒22日报道，国际反贪腐组织“组织犯罪与贪腐举报计划”将联手英国《卫报》以及其它25家媒体，追踪与普京有关联的俄罗斯富豪资产，目前已锁定的资产价值已超过170亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpg)
-官网资料显示，普京执政22年已构建稳固的权势关系网络，结合富豪、政客及体制既得利益者，协助巩固普京政权，并从中获取报酬。“组织犯罪与贪腐举报计划”从”积极参与普京政权的压迫和腐败 “的人名清单开始，将对相关资产进行追踪，后续会将追踪到的资产编入定期更新的数据库，供公众查看和使用。
+3月18日，喜联储主席威廉·杰伊先生接受彭博社记者专访，谈到了加密货币及其在俄乌战争中扮演的角色。众所周知，在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。而在俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-13.jpg)
+加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。威廉先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，可以轻松解决加密货币被作为非法活动的媒介。
 
-据悉，资产追踪已经列出了与普京关系密切的寡头和亲信在境外持有的巨额财富，包括房产、私人飞机、公司股票、游艇及豪宅的等近150项资产，总价值约170亿美元。在接下来的几周内，其追踪范围还将持续扩大。
+加密货币平台对客户进行详尽的客户认证将不可避免，威廉先生更表示：已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。
 
 参考链接：
-1. [追追追！劍指普廷盟友 「海外資產追蹤器」已揭露至少4900億](https://news.ltn.com.tw/news/world/breakingnews/3867301)
-2. [Introducing a project to track down and catalogue the vast wealth held outside Russia by oligarchs and key figures close to Russian President Vladimir Putin**.**](https://www.occrp.org/en/asset-tracker/)
+[Putin’s War Could Make Central Banks a Crypto Battlefield](https://www.bloombergquint.com/gadfly/putin-s-war-will-put-central-bankers-on-the-cryptocurrency-frontlines)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑：zhong
-审核：Ivy001
+总编：zhong
+编辑：飞虹
 校对/发稿：为真不破20
 
 
