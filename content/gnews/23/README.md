@@ -2,24 +2,27 @@
 ---
 
 
-## 7News 《全球视点》东航空难依然不会有真相
-` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2224031/)
+## 拜登联合欧盟加大对俄罗斯制裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2224052/)
 
-制作：宁南
+作者：加拿大温哥华扬帆农场 – 自由法兰西
 
-The truth of China Eastern air crash is uncovered yet
+据【路透社】3月22日报道，美国总统拜登将在本周访问欧洲期间加强与欧盟合作，并同时宣布对俄罗斯实施新的制裁措施。
 
-A tragic air crash killed 132 compatriots instantly.
-The progress of human civilization is the history of fighting against wars, disease, disaster, starvation, etc.
-Therefore, if human beings want to progress, they must reveal the truth behind these factors that affect human life, so as to promote social progress and better protect the safety of human life and property.
-However, under the rule of the CCP, nothing can have the truth. As Mr. Guo Wengui said: Nothing in the Communist Party is true!
-一起惨烈的空难瞬间夺取了132位同胞鲜活的生命。
-人类文明进步的历程，就是对抗战争、疾病、灾难、饥饿等对生命摧残的历史。
-所以人类要进步，就要揭示这些影响人类生命因素背后的真相，
-才会推动社会进步，更好地保障人类生命财产安全。
-然而在中共统治下，任何一件事情都不可能有真相。如同郭文贵先生说的那样：共产党没有一样是真的！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2823.png)图片来源：路透社
 
-排版上传：文勇
+
+报道称，拜登将于次日前往北约和欧盟总部所在地布鲁塞尔与各国领导人会面，并随即推出对普京政权的进一步制裁计划。新计划不仅将重点放在更严厉的制裁上，还将努力联合打击所有逃避该制裁的行为。
+
+此外，拜登也将就中共国与俄罗斯的战略伙伴关系进行讨论。由于习近平当局始终参与普京对乌克兰的侵略战争，因此，美国的首要目标是确保中共不会通过物资或军事援助来支持俄罗斯。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源1： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
+
+新闻来源2：[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
 
  
 

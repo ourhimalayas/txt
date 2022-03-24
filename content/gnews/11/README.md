@@ -2,34 +2,39 @@
 ---
 
 
-## 为摆脱对俄罗斯能源的依赖，欧盟要求各国储备天然气
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2224145/)
+## 俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（3/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224160/)
 
-**撰稿：温哥华圆成农场 文舞两道**
+翻译：zicoround
 
-在俄罗斯军事入侵乌克兰后，欧盟急于摆脱对俄罗斯能源的依赖，强制要求各国在需求紧张的冬季来临之前储备天然气。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 
-欧盟执行机构欧盟委员会23日宣布了应对俄罗斯入侵乌克兰导致石油价格上涨的能源问题的有关措施，提出了强制要求欧盟各国储备天然气的修改法案。欧盟要求各成员国在今年11月之前天然气的储存量至少达到80%以上，从明年起储存量不能低于90%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-98.jpg)
 
-此外，在实现天然气供应商多元化的同时，成立专门的工作组，以欧盟的名义统一团购天然气，以便在采购谈判中处于有利地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/89B87B95-D3F1-46FF-A6A2-21A88B5A507A.jpeg)照片来源：[https://www3.nhk.or.jp/news/html/20220324/k10013548621000.html](https://www3.nhk.or.jp/news/html/20220324/k10013548621000.html)
-欧盟证实，去年进口的天然气中从俄罗斯采购的约占45%，进口原油的27%都来自于俄罗斯。在俄罗斯军事入侵乌克兰后，欧盟加快了摆脱对俄罗斯能源依赖的步伐。
+同一天，英国首相约翰逊承诺支援乌克兰。与约翰逊会谈后，泽伦斯基总统在推特上明确表示：“在24日的重要会议前夕，收到了约翰逊的支持保证。（我们）讨论了对抗行动的经过和对乌克兰的国防援助。”
 
-欧盟将于本月24日和25日在比利时布鲁塞尔举行首脑会议，讨论对应措施。
+**对乌克兰的持续攻击**
 
-信息来源：
+自俄入侵开始以来，乌克兰4400万人口中的近四分之一被迫离开他们熟悉的家园。
 
-[EU ロシアのエネルギー資源依存脱却で天然ガス備蓄義務化へ](https://www3.nhk.or.jp/news/html/20220324/k10013548621000.html)
+首都基乌市市长克里奇科说，“俄军对首都进行的攻击还在持续”，基乌已有264名平民在俄军的攻击中丧生。然而，他明确表示，基乌附近的马卡里夫和伊尔平已被乌军夺回。
 
-**校对：卢卡斯**
+**接上篇：**[俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（2/3）](https://gnews.org/zh-hans/2224151/)
 
-**发布：歪桑**
+**新闻来源：**【news.goo.ne.jp】[ロシアのウクライナ侵攻1カ月、西側は制裁強化　プーチン政権に亀裂も = 国際 – 写真 – goo ニュース](https://news.goo.ne.jp/picture/world/reuters-20220324022.html)| 发布时间：2022年03月24日
 
-20220324
+审核：BryanW
+校对：宫米叶
+发稿：信心的选择
 
-更多资讯请关注：
-｜[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)｜
-![](https://assets.gnews.org/wp-content/uploads/2022/02/農場文宣-3-4.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-98.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

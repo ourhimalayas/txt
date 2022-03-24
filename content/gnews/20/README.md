@@ -2,26 +2,23 @@
 ---
 
 
-## 白宫对三百多名俄罗斯议员及有关公司实施制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224051/)
+## 视频|前線战友接受“台湾+”英．文媒体采访
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2224070/)
 
-####   撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16481421681.png)图片来源：KFOR
-据《国会山报》3月24日报道，周四，拜登政府宣布对300多名俄罗斯议员和几十家与入侵乌克兰的战争行动有关的国有企业实施制裁。该制裁的宣布正是拜登在布鲁塞尔会见北约盟国和七国集团领导人，讨论如何应对俄罗斯对乌克兰的入侵期间。
+制作：香草山视频部
 
-根据报道，该制裁针对的是俄罗斯立法机构国家杜马的328名成员，以及国家杜马这个实体本身。
+3月22日，郭文贵先生盖特视频表示，乌克兰前线救援战地记者妮可接受了台湾首家面向国际观众的英文媒体“台湾+”的采访。妮可表示，新中国联邦支持台湾人民的民主自由，并永远与国际正义力量站在一起。
 
-同时，美国还制裁了罗斯最大的金融机构之一Sovcombank的17名董事会成员，以及48家为俄罗斯战争行动生产设备的俄罗斯国防企业，包括生产直升机和战术导弹的国防企业。
+在采访过程中，台湾媒体清楚了解到乌克兰国际救援由法治基金赞助，参与者是热爱和平、自由和法制的新中国联邦人组成，正在为乌克兰难民提供人道主义救援，并致力于摧毁邪恶的中国共产党。
 
-此外，拜登政府还宣布对俄罗斯最大金融机构Sberbank的负责人赫尔曼·格雷夫（Herman Gref）和俄罗斯总统普京的朋友富商季姆琴科（Gennady Timchenko）实施制裁。
+此外，采访也对台湾现在享有的自由民主表示担忧，妮可说到：如果中共侵略台湾，国际社会将会为台湾提供大力支持，新中国联邦也将为所有被中共镇压和虐待的人们提供人道主义救援。并强调国际社会给予乌克兰人民越多的支持，中共实施人权暴行的可能性就越小，消灭中共是保障世界和平、法治与自由的唯一途径。
+发稿：文敬
 
-文章说，除了拜登政府推出的新制裁措施外，美国及其欧洲盟友还推出了一项旨在更好地执行对俄罗斯现有制裁措施的倡议。
-
-*责编：白夜*
-
-**新闻来源**
-
-[US announces sanctions on Russian lawmakers, defense companies](https://thehill.com/homenews/administration/599542-us-announces-sanctions-on-russian-lawmakers-defense-companies)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

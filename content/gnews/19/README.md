@@ -2,27 +2,24 @@
 ---
 
 
-## 拜登联合欧盟加大对俄罗斯制裁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2224052/)
+## 视频|新中国联邦救援公告
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2224102/)
 
-作者：加拿大温哥华扬帆农场 – 自由法兰西
+制作：香草山视频部
 
-据【路透社】3月22日报道，美国总统拜登将在本周访问欧洲期间加强与欧盟合作，并同时宣布对俄罗斯实施新的制裁措施。
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米；蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+请播放视频：https://www.gettr.com/post/pzvg8vdf4f
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2823.png)图片来源：路透社
+中国共产党是全世界灾难的根源，我们和乌克兰人站在一起。只有消灭中国共产党才能拯救全人类。感谢大家收看新中国联邦新闻，我们下次再见。
+发稿 ：文敬
 
-
-报道称，拜登将于次日前往北约和欧盟总部所在地布鲁塞尔与各国领导人会面，并随即推出对普京政权的进一步制裁计划。新计划不仅将重点放在更严厉的制裁上，还将努力联合打击所有逃避该制裁的行为。
-
-此外，拜登也将就中共国与俄罗斯的战略伙伴关系进行讨论。由于习近平当局始终参与普京对乌克兰的侵略战争，因此，美国的首要目标是确保中共不会通过物资或军事援助来支持俄罗斯。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源1： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
-
-新闻来源2：[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
