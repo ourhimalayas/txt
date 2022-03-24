@@ -2,37 +2,37 @@
 ---
 
 
-## 新西兰放宽强制疫苗接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221199/)
+## 法治基金志愿者向乌克兰难民介绍新中国联邦的灭共使命
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2221284/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-新西兰政府宣布,将逐步放松管制,包括废除许多职业要求的强制疫苗接种。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-268.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2021%2F11%2F2021-11-09T004936Z_566761956_RC2OQQ9IIAMM_RTRMADP_3_HEALTH-CORONAVIRUS-NEWZEALAND.jpg%3Fresize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-新西兰政府3月23日宣布,除医疗相关人员等部分职业外,从4月4日深夜开始废除警察和教育相关人员等疫苗强制接种。
+整理/编辑：小红帽
 
-2月份以来，新西兰反对强制疫苗接种和长期管制，并在国会前进行抗议示威和静座的活动不断,政府还进行了逮捕。 随着放宽强制疫苗接种,进入餐馆等场所时也不需要出示接种证明。
-
-参考链接：[ニュージーランド　ワクチン接種義務規制を緩和へ](https://news.yahoo.co.jp/articles/aab83f6c8046a7a7b4a8f6f601997f01b177a103)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-24_15-55-15.png)图片来源：郭文贵先生盖特视频截图
 
 
+3月20日，在波兰梅迪卡救援中心，新中国联邦和法治基金志愿者小小酥向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。
 
+小小酥说：“刚才这位女士说，她很吃惊，中国人会在这个地方。”
 
+随后小小酥向这位乌克兰女士介绍道：“我们来这里是希望帮助到人们，由衷地希望能够提供援助。而且，我们希望告诉人们，我们要消灭中国共产党。
 
+乌克兰女士答道：“我们明白了。”
 
+小小酥继续道：“我们要消灭中共，因为只要灭了中共，世界上的邪恶就会被铲除。这样就不会有战争了。”
 
+乌克兰女士表示支持：“祝你们好运！”
 
+资料来源：[郭文贵先生2022年3月24日盖特视频](https://www.gettr.com/post/p11kynr1068)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,14 +2,25 @@
 ---
 
 
-## 【 蓝枫法律 】 第四十七期 – 法律你我她：残障人士权利及相关法律 &#8211; PPT展示
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2221299/)
+## 千人部队一半阵亡！俄罗斯大兵崩溃开坦克辗自家指挥官
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2221506/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-280.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-162.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-139.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-105.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-88.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-95.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/7-62.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/12-36.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/13-25.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/14-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/19-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/20-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/21-5.png)
-**直播视频：**[**https://gettr.com/post/p10ut5f638a**](https://gettr.com/post/p10ut5f638a)
+近日俄罗斯上校指挥官梅德韦杰夫（Yuri Medvedev）被送医治疗影片，被俄军方流出，并在网路上疯传，然而乌克兰记者齐姆巴留克（Roman Tsymbaliuk）却指出，梅德韦杰夫受伤并不是因为战事，而是被自家士兵开坦克辗过。
 
-**编辑****/****发文：蓝枫法律栏目**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d30b291f-b80d-42e8-800d-790581dc90ed.jpg)图片来源：MikeSington
+
+齐姆巴留克22日表示，俄罗斯一支在乌克兰北部战线，1500人的旅级部队，在对战中人员死伤约750人，导致一名坦克兵当场崩溃，直接辗过指挥官下肢，梅德韦杰夫事后被送往白俄罗斯医院救治，目前两人无后续消息传出。
+
+简评：战争中士兵多如提线木偶一般，甚至不知道为什么而战！崩溃的士兵开坦克碾压指挥官，只是残酷战争中的一角，他们渴望的只是停战而不是厮杀！俄罗斯的大兵们，请抛掉那该死的命令，为普京殉葬真的不值得！
+
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022324W0121](https://www.ftvnews.com.tw/news/detail/2022324W0121)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

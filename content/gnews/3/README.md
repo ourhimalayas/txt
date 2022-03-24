@@ -2,20 +2,23 @@
 ---
 
 
-## 【 蓝枫法律 】 中共国身心障碍者相关法律
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2221452/)
+## 救援信息：坦克人 CCP ≠GHINESE
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2221621/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
+Communism is the cancer of this civilized world. From 1989 when the Chinese people rebelled against the dictatorship of the Chinese Communist Party to 2022 when the Ukrainian people rebelled against the invasion of the communist Putin. Human ignorance, selfishness, stupidity, and greed have led to the survival of communism to this day.
+If we do not destroy communism and the biggest incarnation of communism, the Communist Party of China, the disaster of the Chinese people for 70 years and the disaster that the Ukrainian people are suffering now will spread throughout the world.
 
-中共国是2008年7月1日通过的残疾人保障法，大家也知道2008年北京奥运会是在7月份召开的，他其实就是流氓要穿上西装才能参加奥运会。他虽然是2008年才批准的残疾人权利公约，但身心障碍的人在求学求职各个方面遇到的阻碍其实是非常大的。CCP现在把法轮功人士、宗教维权人士、民主运动人士都关进精神病院进行虐待。2013年草拟的残疾人教育法到现在为止都没有通过，官方指导原则依然允许高校拒绝一些障碍的考生录取特定的专业，其实这就是有法不依，执法不严。
+共产主义是这个文明世界的毒瘤。从1989年中国人民反抗中国共产党的独裁统治到2022年乌克兰人民反抗共产主义普京的入侵。人类的无知、自私、愚昧、贪婪导致共产主义存活至今。
 
-2013年7月有一个河南的考生叫宋义成，因为视觉障碍遭到天津中医药大学的退档，这在当时引起了很多关注。另外一个就是河南的智障人士叫谭劲松，应征当地的法治办，虽然他的笔试成绩是第一名却被淘汰，这些都是对于残疾和身心障碍者就业歧视的非常严重的表现。
+如果我们不消灭共产主义，不消灭共产主义的最大化身中国共产党，中国人民70年的灾难以及乌克兰人民现在遭受的灾难将会蔓延整个世界。
 
-最近也看了国家卫纪委针对打了新冠疫苗之后患白血病的相关文件，其核心就是维稳。他最怕国内的老百姓或者是NGO组织团结起来，为某一个弱势群体争取权利。所以他们首先想到的不是解决你的问题而是把你的嘴巴捂住，很出名的苏联笑话就是不解决问题，我们直接解决提出问题的人。
+字幕+视频制作 ：洛杉矶盘古农场-庚子
+审片 ：洛杉矶盘古农场-银龙
+发布 ：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**直播视频：**[**https://gettr.com/post/p10ut5f638a**](https://gettr.com/post/p10ut5f638a)
-
-**编辑****/****发文：蓝枫法律栏目**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
