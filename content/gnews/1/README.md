@@ -2,11 +2,13 @@
 ---
 
 
-## 3/23/2022 文贵直播：什么是“圣彼得堡的阴谋”？只要中共调解俄乌战争，中共国将被全世界制裁和清算，中共国将发生粮食危机、政治灾难以及金融、宗教和信用的崩塌
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2219829/)
+## 韩国感染中共病毒累计超1000万例 占人口五分之一
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2219859/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220324-1-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

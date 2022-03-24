@@ -2,12 +2,10 @@
 ---
 
 
-## 视频|主播录制呼吁联系救援，俄军入侵乌克兰已有20多天「脱敏」
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2218191/)
+## 视频|基輔4棟大樓遭砲擊數十死
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2218196/)
 
-制作：大直播短视频组- Miller（文迷樂）
-文案：晨熹
-录制：MC文艺
+制作：大直播短视频组- Dawns
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
 审核/编辑/发稿：呼吸的雾霾（文小呼吸 ）
 
