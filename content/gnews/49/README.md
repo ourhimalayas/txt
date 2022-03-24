@@ -2,34 +2,92 @@
 ---
 
 
-## 樱花时政┃美众院两党议员提案取消中共国永久最惠国待遇
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2219005/)
+## 国务卿布林肯：美国政府评估俄罗斯军队成员在乌克兰已犯下战争罪
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2220336/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-144.png)图片来源本文链接
-2022年3月23日，美国之音，长期关心中共国人权事务的美国国会共和党众议员克里斯·史密斯(Chris Smith)星期二(3月22日)宣布，他联袂两党议员在本星期推出了一项旨在取消中共国永久贸易最惠国地位的法案。史密斯众议员说，这部法案要“取消中国共产党的永久性正常贸易关系地位，以惩罚其令人发指的人权暴行——特别包括该政权对维吾尔人和其他中亚少数族裔持续进行的种族灭绝和强迫劳动”。
+国务卿布林肯： 根据目前掌握的信息，美国政府评估俄罗斯军队成员在乌克兰已犯下战争罪。我们将继续与盟友和合作伙伴共享信息，并追究责任。
 
-来自新泽西州的史密斯众议员推出的议案得到了来自纽约州的民主党众议员汤姆·苏奥奇(Tom Suozzi)和来自威斯康星州的共和党众议员汤姆·蒂凡尼(Tom Tiffany)的联署。这部法案要求把中共国的贸易地位重新与其人权状况挂钩。法案还要求，美国总统每年都必须证实中共国政府在改善人权方面付出了认真与持续的努力才能给予中共国正常贸易关系地位。
 
-1980年代，美国政府曾逐年审议中共国的贸易最惠国待遇，但每年都予以延长。在中共国共产党政府1989年暴力镇压天安门民主运动后，美国国会1990年决定不再延长中共国的贸易最惠国地位，但被老布什总统否决。此后，每年中共国都有在美国国会的年度审议期间因为人权问题而丧失贸易最惠国地位的可能。1994年，克林顿行政当局将中共国的贸易地位与人权状况脱钩。1998年，美国立法将贸易最惠国待遇更名为正常贸易关系地位。2000年，美国给予中共国永久性正常贸易关系地位，这也为中共国加入世界贸易组织铺平道路。
 
-当年反对把中共国人权与贸易脱钩的史密斯众议员批评历届行政当局给了中共国共产党践踏人权的“免费通行证”。“如果不是多数也是许多的商界和政界领袖长期以来都落入了那种‘中共国幻想’，一方面忽视践踏人权，一方面声称增加贸易将使中共国更像我们，”史密斯在一项声明中说。“无论当时和现在，这都不符合事实。”史密斯说：“俄罗斯有可能因为普京侵略乌克兰而失去永久性正常贸易关系地位，中共国对俄罗斯的支持使得对中共国贸易优惠待遇进行重新评估变得尤为及时。”
+> Based on information currently available, the U.S. government assesses that members of Russia’s forces have committed war crimes in Ukraine. We will continue to share information with allies and partners, and pursue accountability.
+> — Secretary Antony Blinken (@SecBlinken) [March 23, 2022](https://twitter.com/SecBlinken/status/1506724525660151814?ref_src=twsrc%5Etfw)
 
-“当决策者延长中共国的永久性正常贸易关系地位时，他们声称这将在美国国内引来一个繁荣的新时代，同时为中共国的政治改革、人权改善和更公平的劳动实践铺路。然而，我们都知道实际发生的情况并非如此，”蒂凡尼众议员说。“过去20年来，我们看到美国的制造业蒙受损失，而中共国共产党的精英分子却变得比任何时候都更加富有、更加无情、也更加危险，他们从事系统性的践踏人权、奴役和种族灭绝。中共国独裁政权的行为没有任何正常可言，美国再也承受不起在‘永久性’的基础上为这种行为助力了。”
 
-“尼克松总统首次去中共国已经50年了，我们总是相信，中共国政府对我们的生活方式、我们的民主和我们的经济制度接触越多，他们就会变得越来越像我们，并珍惜人权和自由市场，”苏奥奇众议员说。“这根本就没有发生。我们现在比任何时候都必须挺身而出，反对中共国对维吾尔人和西藏人犯下的罪行和它对香港民主的破坏。我们不能继续允许中共国不受惩罚地任意行事并通过以其他国家为代价而行使欺骗的手段来颠覆基于规则的秩序。现在是时候了，国会必须明确表示，如果中共国政府拒绝履行它对本国公民和国际社会的义务，它将面临严重的后果，包括有可能被取消永久性正常贸易关系。”
 
-本月早些时候，三位美国共和党籍参议员——来自阿肯色州的汤姆·科顿(Tom Cotton)、来自俄克拉荷马州的吉姆·英霍夫(Jim Inhofe)和来自佛罗里达州的里克·斯科特(Rick Scott)在参议院提出了取消中共国永久性正常贸易关系的法案。 推出法案与法案获得众议院或参议院委员会及全院通过还有一段距离。一部法案必须由众议院和参议院两院通过同样版本，并由总统签署，才能成为法律。
+国务卿布林肯： 我们很幸运有Nicholas Burns [@USAmbChina](https://twitter.com/USAmbChina) 担任我们在北京的大使。他将很快完成所需的隔离，并开始在这个关键时刻有效管理美中关系的工作。
 
-在俄罗斯入侵乌克兰后，拜登总统宣布将取消俄罗斯的永久性正常贸易关系地位，众议院已经以压倒多数表决通过暂停俄罗斯的这项贸易待遇。参议院多数党领袖、来自纽约州的民主党人查克·舒默(Chuck Schumer)星期二在院会发言，呼吁参议院尽快通过相关法案。
 
-消息来源：
 
-[呼吁将贸易人权重新挂钩：众院两党议员推出取消中共国永久最惠国待遇法案](https://www.voachinese.com/a/congressman-chris-smith-introduces-new-legislation-to-strip-the-chinese-communist-party-of-its-trade-status-20220322/6496701.html)
+> We are lucky to have [@USAmbChina](https://twitter.com/USAmbChina?ref_src=twsrc%5Etfw) Nicholas Burns as our Ambassador in Beijing. He will soon complete his required quarantine and begin his work to effectively manage the U.S.-PRC relationship at this critical time. [pic.twitter.com/3W9jC3ObXo](https://t.co/3W9jC3ObXo)
+> — Secretary Antony Blinken (@SecBlinken) [March 23, 2022](https://twitter.com/SecBlinken/status/1506734770327375875?ref_src=twsrc%5Etfw)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
+众议员迈克·加西亚： 拜登总统失败的阿富汗撤军继续产生全球影响。在全世界关注欧洲危机蔓延之际，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与塔利班谈判采矿合同。美国决不能忽视我们最大的威胁——[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 【转华尔街日报：美国撤出后,中共国追逐阿富汗的矿产财富 中国公司正在与塔利班谈判以开采世界上最大的未开发铜储量之一的矿】
+
+
+
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)'s failed Afghanistan withdrawal continues to have global implications. While the world watches the crisis unfold in Europe, the CCP is negotiating mining contracts with the Taliban. America must not take its eye off of our greatest threat – China.[https://t.co/A2u7Ry8M0a](https://t.co/A2u7Ry8M0a)
+> — Rep. Mike Garcia (@RepMikeGarcia) [March 23, 2022](https://twitter.com/RepMikeGarcia/status/1506706139467198473?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 试图对马里乌波尔 [#Marioupol](https://twitter.com/hashtag/Marioupol?src=hashtag_click) 做出最后决定性的推进 总有一天，每个人都会听到勇敢的人不顾一切地捍卫这座城市的令人难以置信的故事
+
+
+
+> [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) trying to make a final decisive push on [#Marioupol](https://twitter.com/hashtag/Marioupol?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 
+> One day everyone will hear the incredible stories of the brave men defending the city right now against all the odds
+> — Marco Rubio (@marcorubio) [March 23, 2022](https://twitter.com/marcorubio/status/1506631739875151891?ref_src=twsrc%5Etfw)
+
+
+
+拜登总统： 我正在前往欧洲的路上，以召集国际社会支持 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click)，并确保 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 为他选择的战争付出沉重的经济代价。
+
+
+
+> I’m on my way to Europe to rally the international community in support of Ukraine and ensure Putin pays a severe economic cost for his war of choice. [pic.twitter.com/4UJpyitOko](https://t.co/4UJpyitOko)
+> — President Biden (@POTUS) [March 23, 2022](https://twitter.com/POTUS/status/1506643748880633859?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克尓·麦考尔(众议院军事委员会资深成员)： 泽连斯基总统已经请求设立禁飞区，我们可以在北约飞机不飞越乌克兰上空的情况下给他这个禁飞区。 如果我们提供像 S-300 (地对空导弹)这样的正确援助，我们就可以扭转局势，并给予 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 他们一直要求的东西。 【附麦考尔议员接受福克斯采访视频】
+
+
+
+> President Zelensky has pleaded for a no-fly zone, and we can give that to him without NATO aircrafts going across the skies of Ukraine. If we send in the correct aid like S-300's, we can turn the tide and give Ukraine what they've been asking for. [pic.twitter.com/l3rylH6f8Z](https://t.co/l3rylH6f8Z)
+> — Michael McCaul (@RepMcCaul) [March 23, 2022](https://twitter.com/RepMcCaul/status/1506689752896049155?ref_src=twsrc%5Etfw)
+
+
+
+众议员李·泽尔丁： 名人不应获得纽约市 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 疫苗强制接种的任何特殊豁免。相反，政府应该完全取消这项强制措施。最重要的是，任何因为没有打疫苗而被解雇的人都应该回到工作岗位并给他们补发工资！
+
+
+
+> Celebrities shouldn’t receive any special exemption to NYC’s COVID shot mandate. Instead, the government should just get rid of the mandate altogether. On top of that, anyone who has been fired for not getting the shot should get their job back with backpay!
+> — Lee Zeldin (@RepLeeZeldin) [March 24, 2022](https://twitter.com/RepLeeZeldin/status/1506794445949255681?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 
+拜登在布鲁塞尔应该说的四件事： 
+1. 北约成员国必须最终兑现承诺，将2%的GDP用于国防 
+2. 欧洲必须摆脱俄罗斯天然气 
+3. 给泽伦斯基赢得胜利所需的一切 
+4. 明确俄罗斯使用大规模杀伤性武器的红线——包括美国的干预
+
+
+
+> Four things Biden should say in Brussels:
+> 1. NATO members MUST finally step up to its commitment to spend 2% GDP on defense 
+> 2. Europe must ween off of Russian gas
+> 3. Give Zelensky what he needs to win 
+> 4. Establish clear red lines on Russia using WMDs – including US intervention
+> — Rep. Mike Waltz (@michaelgwaltz) [March 24, 2022](https://twitter.com/michaelgwaltz/status/1506791528378810370?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

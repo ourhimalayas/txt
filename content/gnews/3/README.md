@@ -2,24 +2,33 @@
 ---
 
 
-## 视频|新中国联邦救援公告
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2224102/)
+## 今日盖特大V推荐 — 每日信号（The Daily Signal）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2224169/)
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2829-e1648144725545.png)
+盖特链接： [https://gettr.com/user/dailysignal](https://gettr.com/user/dailysignal)
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米；蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-请播放视频：https://www.gettr.com/post/pzvg8vdf4f
+**每日信号自述：**
 
-中国共产党是全世界灾难的根源，我们和乌克兰人站在一起。只有消灭中国共产党才能拯救全人类。感谢大家收看新中国联邦新闻，我们下次再见。
-发稿 ：文敬
+关于政治和政策问题的高质量、可信的新闻报道对于知情和自由的社会至关重要。在@heritage的支持下带给你
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2742.png)图片来源：网络
+**每日信号简介：**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+每日信号（The Daily Signal）是一家美国保守派政治媒体新闻网站，成立于 2014年6月。该刊物关注政治、政策和文化，并从保守的角度提供政治评论。它由保守派智囊团、传统基金会出版。
+
+每日信号出版物报道了美国国内外[的](https://en.m.wikipedia.org/wiki/Foreign_policy)政治和公共政策问题，并以专注于它认为未报道或报道不足的事件。该网站依据于原始的调查报道，旨在成为一个公正的新闻来源。
+
+编撰：洛杉矶盘古农场 — 心照
+
+校审：洛杉矶盘古农场 — 郭友(文苏)
+
+发布：洛杉矶盘古农场 —子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

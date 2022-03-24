@@ -2,27 +2,39 @@
 ---
 
 
-## 拜登联合欧盟加大对俄罗斯制裁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2224052/)
+## 俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（2/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224151/)
 
-作者：加拿大温哥华扬帆农场 – 自由法兰西
+翻译：zicoround
 
-据【路透社】3月22日报道，美国总统拜登将在本周访问欧洲期间加强与欧盟合作，并同时宣布对俄罗斯实施新的制裁措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2823.png)图片来源：路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-98.jpg)
 
+**西方的应对**
 
-报道称，拜登将于次日前往北约和欧盟总部所在地布鲁塞尔与各国领导人会面，并随即推出对普京政权的进一步制裁计划。新计划不仅将重点放在更严厉的制裁上，还将努力联合打击所有逃避该制裁的行为。
+当天，美国总统拜登离开美国，前往比利时和波兰访问，将会就俄罗斯入侵乌克兰和对俄制裁等问题进行磋商。他将于24日在布鲁塞尔出席北约紧急峰会、G7国家首脑和欧盟政府首脑峰会，磋商国际合作支持乌克兰的议题。
 
-此外，拜登也将就中共国与俄罗斯的战略伙伴关系进行讨论。由于习近平当局始终参与普京对乌克兰的侵略战争，因此，美国的首要目标是确保中共不会通过物资或军事援助来支持俄罗斯。
+北约紧急峰会前，秘书长斯托尔滕贝格在一次记者会上宣布，有可能决定，在靠近俄罗斯的东欧增加防御能力。他明确表示，由于乌克兰危机，北约需要重新考虑其长期遏制力和防御态势，该议题将在6月的马德里例行峰会上进行磋商。
 
-校对编辑：硫酸羟氯喹64
+然而，斯托尔滕贝格也表示，北约不会向乌克兰部署军队，“向乌克兰提供支援极为重要。同时，防止这场冲突发展成北约和俄罗斯之间的全面战争也是极为重要的”。
 
-发稿：青青
+**接上篇：**[俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（1/3）](https://gnews.org/zh-hans/2224121/)
+**接下篇：**俄入侵乌一个月后，西方强化制裁，普京政权现裂痕（3/3）
 
-新闻来源1： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
+**新闻来源：**【news.goo.ne.jp】[ロシアのウクライナ侵攻1カ月、西側は制裁強化　プーチン政権に亀裂も = 国際 – 写真 – goo ニュース](https://news.goo.ne.jp/picture/world/reuters-20220324022.html)| 发布时间：2022年03月24日
 
-新闻来源2：[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
+审核：BryanW
+校对：宫米叶
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
 
  
 

@@ -2,244 +2,75 @@
 ---
 
 
-## 视频|乌克兰历史年表
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223974/)
+## 视频|波兰人和新中国联邦人在救援乌克兰难民行动中情同手足！
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2224053/)
 
-香草山 铭心
+波兰人和新中国联邦人在救援乌克兰难民行动中情同手足
 
-乌克兰历史年表
+3月16日，新中国联邦搭建在梅迪卡救援基地的大帐篷内，
 
-公元882年–基輔羅斯公國
+波兰义工送来了亲自烤好的新鲜面包和三大箱热汤，热气腾腾、香味扑鼻，
 
-[是東斯拉夫人為主體的早期國家,定都基輔]
+加上新中国联邦现场提供的NFSC现磨咖啡，
 
-公元988年—引入東正教
+为难民营里劳心劳力且通常只能吃到一些干粮的难民和义工献上了一顿可口的大餐。
 
-[弗拉基米爾大帝全面引入東正教,為東歐的基督教寞定基礎]
+3月16日，波兰第二大广播电台ZET记者拉法尔在梅迪卡难民营采访了新中国联邦前线记者妮可，
 
-公元1019年–智者雅羅斯拉夫
+拉法尔随后在其推特上报道了新中国联邦的救援行动：“在梅迪卡，
 
-[他開創基活罪斯坐前河盛世,基輔成為東歐主要的政治和文化中心]
+最大的难民救援帐篷是由新中国联邦人搭建的，支持普京的共产党当局不代表中国人，
 
-公元1223年–蒙古入侵
+共产党是一个独裁政权。我们与乌克兰人民并肩作战！”
 
-[拔都帶領蒙古軍隊偵查基輔羅斯,5位大公陣亡]
+3月17日，波兰边境口岸城市梅迪卡当地一家药店的女药剂师，
 
-公元1240年–欽察汗國
+赠送新中国联邦救援团队一箱医用消毒酒精，
 
-[基輔羅斯公國的統治宣告結束]
+这恰好正是战友们要去订货的医用物资，可谓心心相印、雪中送炭啊！
 
-公元1349年
+新中国联邦人、乌克兰人和波兰人都受到共产极权的统治、剥削和迫害，
 
-[立陶宛逐漸吞併烏克蘭西部及北部大部分地區]
+在与共产主义势不两立的态度上我们是决绝的、一致的，我们患难与共、情同手足！
 
-公元1441年–克里米亞汗國
+【盖文】：我们和乌克兰人站在一起！得道者多助，
 
-[擺脫了欽察汗國,並征服了現代烏克蘭南部大部分地區]
+得道的乌克兰人得到了全世界的大力支持和援助，
 
-公元1569年–盧布林聯合
+得道的新中国联邦人得到了全世界的认可和赞许，
 
-[波蘭立陶宛聯邦誕生,烏克蘭被納入波蘭的統治]
+热心和好客的波兰人为乌克兰人和新中国联邦人极尽地主之宜！
 
-公元1648年–赫梅利尼茨墓起義
+波兰人和新中国联邦人在救援乌克兰难民行动中情同手足！
 
-[由烏克蘭國父博格丹帶領哥薩克王宾與農夫對抗波爾]
+Polish people and Chinese people from the New Federal State of China are working together like brothers and sisters in the rescue of Ukrainian refugees!
 
-公元1649年–哥薩克色長國
+3月16日，新中国联邦搭建在梅迪卡救援基地的大帐篷内，波兰义工送来了亲自烤好的新鲜面包和三大箱热汤，热气腾腾、香味扑鼻。新中国联邦的义工为现场难民们提供的NFSC现磨咖啡，香气四溢。美食加咖啡让帐篷里那些被迫逃离家园、惊恐疲惫的难民们感受到了爱与温暖，家一样的味道让他们暂时忘却了战争，得以放松。
 
-[在烏克蘭被視為現代獨立國家的先驅]
+On March 16th, inside the large tent set up by the New Federal State of China at the Medyka rescue base, Polish volunteers brought in homemade fresh bread and three large boxes of hot soup, which were hot and smelled delicious.  The volunteers of the New Federal State of China provided freshly ground coffee to the refugees on site. While the refugees were forced to flee their homes and were frightened and tired, the delicious food and coffee in the tent made them feel comforted, and the home-like taste made them forget the war for a while and relax.
 
-公元1654年–佩列平斯拉夫條約
+3月16日，波兰第二大广播电台ZET记者拉法尔在梅迪卡难民营采访了新中国联邦前线记者妮可，拉法尔随后在其推特上报道了新中国联邦的救援行动：“在梅迪卡，最大的难民救援帐篷是由新中国联邦人搭建的，支持普京的共产党当局不代表中国人，共产党是一个独裁政权。我们与乌克兰人民并肩作战！”
 
-[開始了將會長國轉變為俄羅斯附庸國的過程]
+On March 16th, Rafal, a reporter for ZET, the second largest radio station in Poland, interviewed NFSC frontline reporter Nicole in the Medyka refugee camp, and Rafal later reported on NFSC’s rescue operation on his Twitter account: “In Medyka, the largest refugee rescue tent was set up by the NFSC,. The pro-Putin Chinese Communist Party do not represent the Chinese, the Chinese Communist Party is a dictatorial regime. We stand side by side with the Ukrainian people!”
 
-公元1657年–毀滅時代
+3月17日，波兰边境口岸城市梅迪卡当地一家药店的女药剂师，赠送新中国联邦救援团队一箱医用消毒酒精，这恰好正是战友们要去订货的医用物资，可谓是心心相通、雪中送炭啊！
 
-[結果波蘭立陶宛聯邦、俄國和奥斯曼市型瓜分烏克蘭]
+On March 17th, a female pharmacist from a local pharmacy in the Polish border crossing city of Medyka presented the New Federal State of China rescue team with a box of medical disinfectant alcohol, which happened to be the medical supplies that the fellow fighters were going to order. It was an act full of empathy and perfect timing!
 
-公元1700年–大北方戰争
+新中国联邦人、乌克兰人和波兰人都受到共产极权的统治、剥削和迫害，在与共产主义势不两立的态度上我们是决绝的、一致的，我们患难与共、情同手足！
 
-[俄國波得大帝打敗瑞典,令東烏克蘭對俄國的向心力大為增強]
+The people from the New Federal State of China, Ukraine and Poland, all of whom were victims of exploitation and persecution by communist totalitarianism are united in our defiance against communism.  We share hardships together and love each other like family!
 
-公元1764年–廢除酋長國
+【盖文】：我们和乌克兰人站在一起！得道者多助，得道的乌克兰人得到了全世界的大力支持和援助，得道的新中国联邦人得到了全世界的认可和赞许，热心和好客的波兰人为乌克兰人和新中国联邦人极尽地主之宜！
 
-[葉卡捷琳娜二世廢除哥薩克長國,正式吞併東烏克蘭]
+[GETTER] We stand with the Ukrainians! The righteous Ukrainians have received great support and assistance from all over the world, the righteous New Federal State of China has received worldwide recognition and praise, and the warm-hearted and hospitable Polish have done their best to be hosts for the Ukrainians and the New Federal State of China!
 
-公元1783年
+【撰稿】：6zero4
 
-[俄國吞併克里米亞汗國,接管烏克蘭南部]
-
-公元1795年–瓜分波蘭
-
-[俄國獲得西烏克蘭地區,現代烏克蘭疆士大致成形]
-
-公元1795年–俄國化政策
-
-[俄國開始在烏克蘭全境區行俄國化政策,压制烏克蘭文化]
-
-公元1834年
-
-[俄國成立圣弗拉米尔·基辅帝國大学]
-
-公元1863年
-
-「俄國幾乎禁止所有烏克蘭語出版物]
-
-公元1876年–埃姆斯政命
-
-[全面禁止使用烏克蘭語的出版物及戲劇和演講]
-
-公元1895年–首次提出『克蘭人』
-
-『烏克蘭人」首次正式被作為民族提出]
-
-公元1905年–俄國革命1905
-
-[使埃姆斯政命失效,大大促進烏克爾文化復興]
-
-公元1917年–二月革命
-
-[烏克蘭成立議會中央拉達]
-
-公元1917年–烏克蘭獨立戰爭
-
-[鳥克蕑境內各國勢力爆發衝突 促使烏克蘭蘇維埃政權成立]
-
-公元1919年–烏克蘭蘇維埃政權成立
-
-[烏克蘭蘇維埃社會主義共和國成立]
-
-公元1922年–加盟蘇聯
-
-[烏克蘭正式加盟蘇聯 成為蘇聯第三個加盟共和國]
-
-公元1923年–本土化政策
-
-[烏克蘭民族文化因而迎來復兴]
-
-公元1932年–烏克蘭大饑荒
-
-[史太林集體農業化造成烏克蘭約300萬至700萬人死亡]
-
-公元1939年8月23日–蘇德互不侵犯條約
-
-[蘇德瓜分波蘭,烏克蘭西部彼蘇聯吞拼]
-
-公元1941年8月23日–基輔戰役
-
-[德國佔領烏克蘭全境,二戰期間成為戰爭的重災區]
-
-公元1943年11月6日
-
-[蘇軍重返基輔,次年重奪整個烏克蘭]
-
-公元1945年10月24–烏克蘭入聯
-
-[烏克蘭作為一個非獨立國家 成為聯合國創始成員國之一]
-
-公元1954年2月19日–克里米亞劃歸鳥克蘭
-
-[蘇聯領導人赫魯曉夫把克里米亞半島劃歸烏克蘭]
-
-公元1986年4月26日–切爾諾具爾核事故
-
-[輻射外洩引發嚴重後果,蘇聯官方向世界和本國人民隱瞞事件真相]
-
-公元1989年9月8日–烏克蘭人民運動成立
-
-「隨即在利洪夫發動遊行,抗議蘇聯及要求烏克蘭希臘天主教會合法化,人數高峰达20萬]
-
-公元1990年10月2日–花崗岩革命
-
-[帳蓬首次出現在十月革命廣場,即現今的獨立廣場]
-
-公元1991年8月24日–烏克蘭獨立
-
-[烏克蘭政府發表國家獨立宣言,正式脫離蘇聯，國名為烏克蘭]
-
-公元1996年6月28日–新憲法通過
-
-[確定烏克蘭為主權、獨立、民主的法制國家,賈行共和制]
-
-公元1996年7月19日–首次獨立出戰奧運
-
-[烏克蘭首次以獨立國家身份出戰奥運,在亞特蘭大取得有史以來最佳成績]
-
-公元1995年9月2日–貨幣改革
-
-[有格里夫納取代通貨膨脹而貶值的卡博瓦内特幣]
-
-公元1997年12月5日
-
-[烏克蘭首位太空人進入太空]
-
-公元2004年11月22日–橙色革命
-
-[烏克蘭總統大選存在嚴重貪污舞弊，引發全國一系列抗議和政治事件]
-
-公元2010年2月25日–亞努科維奇復出
-
-[其當選後承諾會帶領烏克蘭加入歐盟]
-
-公元2013年1月21日–廣場革命
-
-[亞努科維奇拒絕簽署烏克蘭-歐盟一體化協議，而引發的全國示威運動]
-
-公元2014年2月22日–亞努科維寄街咨
-
-[亞努科維奇逃往俄羅斯,議會隨即對其進行彈劾]
-
-公元2014年2月23日–俄國吞併克里米亞
-
-「俄羅斯派遣軍隊進駐克里米亞]
-
-公元2014年2月23日–頓巴斯戰爭
-
-[親俄武装分子佔據頓涅茨克和盧甘斯克地區，該地區主權仍屬烏克蘭]
-
-公元2014 1月17
-
-[亲俄武装分子在烏克南東部击落馬來西正客機,歲上298人全部罹難]
-
-公元2015年2月1日–新明斯克協議
-
-[烏克蘭賦予頓巴斯地區特殊自治地位,使烏克蘭東部局势降温]
-
-公元2019年1月5日–烏克蘭正教會建立
-
-[烏克蘭成功建立自己的東正教教會; 獨立於俄羅斯教會的監督]
-
-公元2019年5月20日–澤連斯基上台
-
-[喜劇演員澤連斯基以壓倒性優势蠃得總統選举]
-
-公元2022年2月3日
-
-[俄羅斯集結大量軍隊到烏俄邊境 俄罹斯已著手準備入侵烏克蘭]
-
-公元2022年2月21日
-
-[俄羅斯總統普京公開承認頓涅茨克和盧甘斯克的獨立地位]
-
-2022年2月24日–俄羅斯全面入侵烏克蕑
-
-烏俄戰爭全面爆發
-
-我們正在捍衛我們的獨立和我們的國家
-
-烏克蘭人不會向俄羅斯屈服
-
-我們不會放下任何武器
-
-我們將奮戰到底…
-
-—第六任鳥克蘭總統：弗拉基米爾 •澤連斯基-
-
-
+【翻译】关键时刻
+【剪辑】皮皮虾
 
 发布：奇门遁甲
-
-
 
  
 

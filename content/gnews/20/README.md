@@ -2,30 +2,24 @@
 ---
 
 
-## 乌克兰最大钢铁厂遭俄军炸毁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223903/)
+## 7News 《全球视点》东航空难依然不会有真相
+` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2224031/)
 
-作者：加拿大温哥华扬帆农场 – 自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1.jpg)
+制作：宁南
 
+The truth of China Eastern air crash is uncovered yet
 
-据《雅虎财经》3月21日报道，位于乌克兰马里乌波尔地区的[亚速钢铁厂]当天被俄军定点炸毁。
+A tragic air crash killed 132 compatriots instantly.
+The progress of human civilization is the history of fighting against wars, disease, disaster, starvation, etc.
+Therefore, if human beings want to progress, they must reveal the truth behind these factors that affect human life, so as to promote social progress and better protect the safety of human life and property.
+However, under the rule of the CCP, nothing can have the truth. As Mr. Guo Wengui said: Nothing in the Communist Party is true!
+一起惨烈的空难瞬间夺取了132位同胞鲜活的生命。
+人类文明进步的历程，就是对抗战争、疾病、灾难、饥饿等对生命摧残的历史。
+所以人类要进步，就要揭示这些影响人类生命因素背后的真相，
+才会推动社会进步，更好地保障人类生命财产安全。
+然而在中共统治下，任何一件事情都不可能有真相。如同郭文贵先生说的那样：共产党没有一样是真的！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2819.png)图片来源：雅虎财经
-
-
-报道称，乌克兰是世界上第12大钢铁生产国，而拥有4万多名员工的[亚速钢铁厂]则是该国最大的钢铁产品生产企业，它的被摧毁将严重影响乌克兰乃至整个欧洲今后的基础建设经济。
-
-据悉，尽管[亚速钢铁厂]在俄军入侵之后暂时关闭，但仍有该企业的4000多名员工和家属被困于当地的防空洞内，并需要获得紧急救助和及时撤离。而该厂最后一次停产发生在纳粹德国入侵乌克兰的1941年。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1-e1648141621189.jpg)
-
+排版上传：文勇
 
  
 

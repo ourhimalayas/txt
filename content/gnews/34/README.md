@@ -2,28 +2,37 @@
 ---
 
 
-## 拜登出席北约紧急峰会应对俄乌局势
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2222814/)
+## 中共国的科技泡沫已经破灭
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2223766/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/nato-biden-ukraine-russia.jpg)图片来源：CBS News
-根据《NBC News》3月24 日报道，在俄乌战争一个月之际，美国总统拜登周四与西方盟友聚集在欧洲，支持基辅，用新的制裁措施惩罚莫斯科。
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-24-172824-1.jpg)图片来源：xataka.com
+如我们所知，中共国的情况并没有好转。其科技巨头们蓬勃发展的日子似乎已经过去。去年夏天，习近平剪掉了这些巨头中许多人的“翅膀”，现在他们以毁灭性的方式影响着市场。
 
-乌克兰总统泽伦斯基在布鲁塞尔的北约峰会上通过视频链接发表讲话，敦促增加对他的国家的军事援助。乌克兰领导人从首都通过视频信息召集各国支持基辅的正义反抗，这已成为乌克兰不畏艰险地反抗的象征和使俄罗斯很难进一步前行。
+中共国的大型科技公司正在倒闭中，中共国的互联网公司在股票市场上的估值创下历史新低。在过去快速扩张的几年里，它们享受了溢价估值，但大规模的抛售导致泡沫完全破裂。
 
-拜登和美国盟友将讨论对乌克兰的援助、对俄罗斯的新制裁、加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
+截至3月15日，腾讯已经损失了5300亿美元，阿里巴巴也是如此，已经损失了近5220亿美元，他们两大巨头是科技市场蓬勃发展趋势中的大玩家，而这一趋势也影响到了美团（减少2546亿美元）甚至是小米（减少561亿美元）等其他公司。
 
-据一位高级政府官员说，白宫已经成立了一个国家安全官员小组，以计划应对普京使用化学武器的情况。熟悉拜登政府想法的一位消息人士说，美国预计还将宣布欢迎多达10万名逃离战争的难民的计划。
+事实上，中共国的纳斯达克——恒生指数，在最近几周暴跌，自一年前的峰值以来损失了65%。过去几天，在监管机构明显打算放松对“大科技”公司的迫害后，这些估值出现了反弹，但是中共国大科技公司的前景并不乐观。
 
-美国国防部一位高级官员周三表示，在战场上，乌克兰军队已经成功地将俄罗斯军队逼退到基辅东部，挫败了俄罗斯向首都的推进。
+腾讯，告别增长。中共国科技领域的宠儿正处于低迷状态。监管机构现在正寻求将其微信支付名人分拆为一个独立的金融公司，这可能会削弱人们对其庞大的社交网络微信的兴趣，而且该公司正准备进行大量的裁员。
 
-原文链接：
-[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
+阿里巴巴及其创始人马云，2020年11月，他的金融部门蚂蚁集团的IPO被暂停，这看起来将成为一个重磅炸弹，不是以马云所期望的方式。
 
-编辑，发稿 Spirit
+这是一系列挫折的开始，使阿里巴巴的情况受到影响。其股价跌得如此之低，以至于该公司试图利用回购的机会来推高股价：这并没有起到作用。至少没有像预期的那样，在未来的事情发生之前，阿里巴巴是中共国科技巨头陨落的另一个伟大例子。
 
+新闻来源：[xataka.com ] [La burbuja tech de China ha explotado: Alibaba está en caída libre y a Tencent no le va mucho mejor](https://www.xataka.com/empresas-y-economia/burbuja-tech-china-explota-alibaba-esta-caida-libre-a-tencent-no-le-esta-yendo-mucho-mejor)
 
+审核：Aries的星
+校对：小东
+发布：Nuevo唐人
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

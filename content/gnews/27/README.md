@@ -2,25 +2,30 @@
 ---
 
 
-## 大部分加拿大人希望加强制裁俄罗斯
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
+## 乌克兰最大钢铁厂遭俄军炸毁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223903/)
 
-作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
-
-据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
+作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1.jpg)
 
 
-报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
+据《雅虎财经》3月21日报道，位于乌克兰马里乌波尔地区的[亚速钢铁厂]当天被俄军定点炸毁。
 
-据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2819.png)图片来源：雅虎财经
+
+
+报道称，乌克兰是世界上第12大钢铁生产国，而拥有4万多名员工的[亚速钢铁厂]则是该国最大的钢铁产品生产企业，它的被摧毁将严重影响乌克兰乃至整个欧洲今后的基础建设经济。
+
+据悉，尽管[亚速钢铁厂]在俄军入侵之后暂时关闭，但仍有该企业的4000多名员工和家属被困于当地的防空洞内，并需要获得紧急救助和及时撤离。而该厂最后一次停产发生在纳粹德国入侵乌克兰的1941年。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
+新闻来源： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1-e1648141621189.jpg)
+
 
  
 

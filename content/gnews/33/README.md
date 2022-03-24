@@ -2,34 +2,26 @@
 ---
 
 
-## Gettr宣布与独立记者Andy Ngo合作
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2222839/)
+## 大部分加拿大人希望加强制裁俄罗斯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/MYQ5TIEQN5ETVLKDFOQS32Z6UM-scaled.jpg)
-3月24日，gettr宣布与独立记者Andy Ngo建立新的合作伙伴关系。Andy Ngo表示他将在gettr上制作一个名为“每周通知”的独家新闻节目，提供他独到的政治评论和分析。
+作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
 
-据悉Andy Ngo是全球领先的独立记者之一，他在《纽约时报》开设了专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。他是一个无所畏惧的人，以报道和录像示威而闻名。因他坚持言论自由的报道，受到了暴力和死亡威胁，以及无数所谓的法律法规审查。他表示很期待与新的受众在gettr上互动。
+据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
 
-Gettr CEO Jason Miller表示很自豪能够Andy Ngo这样勇敢的记者合作，很开心为他提供gettr这样的平台，使得他能够与他的数百万用户分享讯息。目前新闻和言论自由都受到大科技媒体的审查，只有gettr是一个政治辩论和重要讯息都可以自由流动的地方。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
 
-撰稿、发布：骄子
 
-* * *
+报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
 
-欢迎订阅我们的GNews账号：
+据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
+发稿：青青
 
- 
+新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
 
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
