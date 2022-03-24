@@ -2,28 +2,30 @@
 ---
 
 
-## 加拿大联合工会主席被指控收受贿赂
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2224979/)
+## 拜登赴欧促孤立俄罗斯　推动盟友示警中共别站错队
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2224980/)
 
-加拿大温哥华扬帆农场-薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/thestar.com_.jpg)图源：thestar.com
-加拿大[CP24]23日报道，联合工会( Unifor )刚退休的前主席杰瑞·迪亚斯接受病毒快速检测试剂盒供应商5万美元被指控，他推广测试盒给成员企业，部分雇主购买了这些测试盒。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWGETTR.jpg)
+美国总统拜登昨晚抵达比利时布鲁塞尔，今天出席包括北大西洋公约组织（NATO）、 七大工业国集团（G7）及欧洲联盟等3大领袖会议，对外联合西方盟友团结抗衡俄罗斯侵略乌克兰。
 
-1 月 20 日，迪亚斯把这笔贿金的一半2.5万美元给了联合工会的一名员工，该员工依照联合工会准则上交了这笔钱并进行投诉。经内部调查，工会财务主管拉娜·佩恩表示，迪亚斯被指控违反了联合工会章程中的道德准则和民主惯例。没有成员可以凌驾于宪法之上，即使是最高级别的民选官员。
+在马不停蹄行程中，拜登更进一步推动国际舞台上孤立俄罗斯，在北约会后记者会上回覆媒体提问是否认为应该将俄罗斯逐出G20时，他说「我的答案是肯定的」，指俄罗斯应该被排除在G20之外。
 
-联合工会执行委员会将就此事举行听证会，要求迪亚斯参与。然而迪亚斯却借口由于健康问题损害了他的判断力，目前在医生的建议下寻求治疗，无法参与调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3527857-PH.jpg)图片来源：SETN
 
-目前此事未进入刑事调查阶段，工会正寻求法律咨询。迪亚斯是联合工会的第一任全国主席。
+拜登说逐出的决定由G20的所有成员国决定，但紧接着说如果G20中有国家反对，那么他认为应该让乌克兰以观察员身份参加G20的会议。
 
-新闻链接：
+他此行除推动对俄罗斯加大制裁及孤立外，也剑指中共是背后支持俄罗斯侵略的藏镜人角色，他说向中共领导人习近平明确表示，如果中共在这场战争中帮助俄罗斯领导人普京，将会有后果。
 
-[Jerry Dias accepted money from COVID-19 rapid test supplier, Unifor alleges](https://www.cp24.com/news/jerry-dias-accepted-money-from-covid-19-rapid-test-supplier-unifor-alleges-1.5831349)
+简评：全世界都知道中共是俄乌战争的元凶，中共想藏也藏不住了，认清现实站好队是中共唯一的出路。如果中共在这场战争中帮助俄罗斯领导人普京，将会有后果。帮助绝对有了而且是大大的，金钱，情报，物资，提供地盘造武器……除了出兵帮助估计啥都给了。如今给了中共一个选边站的机会，再不弃恶从善，拜登很愤怒，后果很严重！
 
-* * *
+新闻来源：[https://www.setn.com/News.aspx?NewsID=1090182](https://www.setn.com/News.aspx?NewsID=1090182)
 
-编辑、上传：月亮之上
+撰稿/发布：一叶知秋
 
-
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -2,22 +2,69 @@
 ---
 
 
-## 最真心的救援与最醇香的咖啡
-` 英里农场 MG FARM` [轉載自GNews](https://gnews.org/zh-hans/2224944/)
+## 北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224978/)
 
-视频：救援前线战友
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+【接上篇：[北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](https://gnews.org/zh-hans/2224473/)】
 
-字幕与文稿：文宝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2844-edited.png)time.com
 
-**【Ukraine Rescue】In Medyka, Poland. ●The two reporters from the British Daily Express and The Sun say that the coffee of the New Federal State of China is the best coffee they have ever had. ●The NFSC big tent with coffee becomes a resting and meeting place for many international rescuers and journalists. ●It is the only rescue point on the front line with 24-hour service. NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The Chinese Communist Party is the root cause of all disasters globally. Taking down the Chinese Communist Party is the only way to save humanity!
-【乌克兰救援】波兰梅迪卡，英国《每日快报》和 《太阳报》的记者说新中国联邦的咖啡是他们喝过的最好的咖啡！新中国联邦的大帐篷成为很多国际救援人士和记者休息点和会面的地方，我们的帐篷也成为前线唯一24小时服务的救援点。新中国联邦救援团队是和邪恶共产党战斗的新中国人，中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。**
+罗戈津以其虚张声势而闻名，他没有明确表示西方的哪些行动会被视为干涉，但他的评论几乎肯定反映了克里姆林宫内部的想法。普京警告西方，在乌克兰上空设立禁飞区的企图将使其卷入与俄罗斯的冲突。西方国家已经表示，他们不会设立禁飞区来保护乌克兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FINAL-VERSION-color-1-1-4.png)
+当美国总统拜登前往欧洲与主要盟国就对莫斯科的新制裁和对乌克兰的更多军事援助进行会晤时，他警告说，存在着俄罗斯可能使用化学武器的“真正威胁”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-5.png)欢迎加入我们农场DISCORD
+在与拜登会面的前夕，欧盟国家签署了对乌克兰的另一项5亿欧元（5.5亿美元）的军事援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-4.png)欢迎关注我们的盖特
+泽伦斯基呼吁西方国家在面对俄罗斯向“一些伙伴”“游说其利益”以使其站在自己一边的努力时保持团结，并在其全国讲话中指出，乌克兰尚未收到其要求的战斗机或现代防空系统。他说乌克兰还需要坦克和反舰系统。
 
+他说：“这一个月来，我们一直在保卫自己，防止有人企图摧毁我们，把我们从地球上抹去。”
+
+美国国务卿安东尼-布林肯说，美国已经确定俄罗斯军队在乌克兰犯下了战争罪，它将努力起诉犯罪者。他列举了不分青红皂白或故意袭击平民以及破坏公寓楼、学校、医院、购物中心和其他场所的证据。
+
+然而，俄罗斯的主要目标仍未实现，包括在基辅，由于双方争夺多个郊区的控制权，周三基辅的炮击和枪声几乎持续不断，震撼了整个城市。市长维塔利-克里琴科说，自战争爆发以来，首都至少有264名平民被杀。
+
+周三的炮击还夺走了另一名记者的生命。独立的俄罗斯新闻媒体The Insider称，俄罗斯记者Oksana Baulina在基辅的一个街区被杀。
+
+在南部，被包围的港口城市马里乌波尔经历了战争中最严重的破坏，经历了数周的轰炸，现在是逐街逐巷的战斗。但乌克兰军队阻止了它的沦陷，挫败了莫斯科的明显企图，即完全确保从俄罗斯到克里米亚的陆地桥梁，该城市于2014年从乌克兰夺取。
+
+泽伦斯基说，该市仍有10万名平民，战前有43万人。向被困者运送急需的食物和其他物资的努力常常失败。
+
+泽伦斯基指责俄罗斯军队扣押了一个人道主义车队。副总理伊里娜-韦列舒克（Iryna Vereshchuk）说，俄罗斯人扣押了11名巴士司机和4名救援人员以及他们的车辆。
+
+在一个多星期前的最后一次更新中，马里乌波尔官员说至少有2300人死亡，但真正的死亡人数可能更多。过去一周的空袭摧毁了一个剧院和一所艺术学校，平民在那里避难。
+
+在被围困的北部城市切尔尼戈夫，地区长官维亚切斯拉夫-乔斯说，俄罗斯军队轰炸并摧毁了一座用于运送援助物资和疏散平民的桥梁。
+
+逃离切尔尼戈夫后抵达波兰的卡捷琳娜-米特克维奇(Kateryna Mytkevich)在谈到她所看到的情况时抹去了眼泪。39岁的米特克维奇说，这座城市没有煤气、电力或自来水，整个街区都被摧毁了。
+
+她说：“我不明白为什么我们有这样的诅咒。”
+
+尽管有很多相反的证据，克里姆林宫发言人德米特里-佩斯科夫坚持认为，军事行动正在“严格按照”计划进行。
+
+这位北约官员说，估计有3万至4万名俄罗斯士兵被杀或受伤。在最后一次更新中，俄罗斯在3月2日说，有近500名士兵被杀，近1600人受伤。
+
+乌克兰还声称已经杀死了六名俄罗斯将军。俄罗斯承认只有一名将军死亡。
+
+北约的数字代表了该联盟自战争开始以来对俄罗斯伤亡的首次公开估计。美国政府在很大程度上拒绝提供对俄罗斯或乌克兰伤亡人数的估计，称现有信息的可靠性令人怀疑。
+
+【完结】
+
+来源：【time.com】[Up to 15,000 Russian Soldiers Killed in Ukraine, NATO Estimates](https://time.com/6160174/russian-soldiers-killed-ukraine/)
+
+* * *
+
+审核：Aries的星
+校对：小东
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
