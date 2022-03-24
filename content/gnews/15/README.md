@@ -2,112 +2,50 @@
 ---
 
 
-## 视频|联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223828/)
+## 新报告审查中共国企业在拉丁美洲的人权侵犯行为
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2223877/)
 
-联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
+![](https://assets.gnews.org/wp-content/uploads/2022/03/bac5e989fce88281b0342d260b64311.jpg)图片来源：Efraín Ramos
+来源于《国际人权联合会》网站2022年03月23日的报道， 在联合国人权理事会第49届会议的框架内，包括国际人权联合会(FIDH)在内的60多个民间社会组织今天发布了一份新报告，评估了分布在9个拉丁美洲国家的26个中共国项目，发现了中共政府不遵守人权和环境国际标准的模式。
 
-据英国【卫报】报道：
+中共国已成为拉美大型开发项目融资和建设的战略主体，对拉美人的生活和权利产生直接影响。这令人担忧，尤其是因为该地区已有21个国家加入了中共国的“一带一路”倡议(BRI)，这是一项在近70个国家和国际组织中投资的全球基础设施发展战略。
 
-联合国国际法院(ICJ)当地时间16日责令俄罗斯停止2月24日在乌克兰领土上开始的军事行动。
+中共国政府参加了三个周期的普遍定期审议(普遍定期审议：2009年、2013年和2018年)，在上一个周期中，就中共国融资和投资、人权与环境的整体情况(CICDHA) 准备了八份**“**影子报告(Shadow Reports)**”**，内容涉及其在拉丁美洲的公司和银行活动的域外责任。由于这一倡导过程，中共国承担了多项承诺，接受了六项建议，这些建议与政府履行域外义务相对应，旨在尊重和保护其在中共国境外的所有业务运营中的人权和环境。
 
-乌克兰在战争期间就向设在荷兰海牙的联合国国际法院提起针对俄罗斯的诉讼。
+这份名为《人权与中共国在拉丁美洲的商业活动》的报告根据对中共国参与的26 个项目中侵犯人权和自然权利的情况的审查，评估了中共国在其最近的普遍定期审议中采纳的建议的遵守情况。该报告涉及23个财团和至少6家银行，他们参与了采矿(12个)、水力发电(6个)、石油和天然气(3个) 以及其他(5个)领域的项目开发。
 
-联合国国际法院于3月7日就乌克兰诉俄罗斯案举行听证会。
+本报告的总体结论是，中共国政府在履行上一次普遍定期审议中做出的承诺方面没有做出足够的努力，2018年描述的侵权模式仍然是系统性的。在重大调查结果中，在24个案件中，存在侵犯了在健康环境和不受损害的环境中生活的权利；在18起案件中，存在参与权以及自由、事先和知情的协商和同意权利受到侵犯，其中在一半的案件中，土地、领土和适足住房权受到侵犯。同样，对基本公民、政治和劳工权利、个人和集体权利等的侵犯也不断发生。
 
-国际法院以13比2的票数裁定俄罗斯应立即停止在乌克兰的特别军事行动，
+面对这些证据，编写报告的组织提出了几项建议，包括中共国政府应制定《商业与人权行动计划》，采取紧急措施，确保其实体遵守其域外义务，防止对所涉社区的环境、人权和领土造成影响。
 
-在法庭上，只有俄罗斯和中国法官对该命令投了反对票，
+这些组织要求在拉丁美洲经营的中共国银行和公司在整个项目周期内进行尽职调查，并采用司法和内部机制，为中共国实体造成的社会和环境影响提供充分和及时的反应和补救，包括为侵犯人权行为的受害者提供司法救济，以便他们在其国家或中共国的管辖范围内提出赔偿要求。
 
-法院称没有看到任何证据支持克里姆林宫为战争辩护。
+他们还要求控制机制、透明度和公民社会的信息获取，并要求将与保护人权、环境和自然资源可持续性相关的问责条款纳入贸易协定。
 
-据英国媒体报道，国际法院院长琼•多诺霍(Joan Donoghue)表示，
+最后，该集体还向中共国公司和实体，以及在普遍定期审议框架内向中共国提出建议的政府提出具体意见和建议。
 
-“法院认为，乌克兰有合理的权利不受俄罗斯军事行动的影响。”
+**简评：**
 
-从国际法庭中国法官投票态度，
+在拉美展开的一带一路计划，就连中共国自己的报告都承认存在着问题：由于担心项目会对环境造成污染，以及会给当地居民以及他们的生计带来危害，在拉美地区的大多数项目都遭到了当地的群众的强烈反对。例如，中石化在哥斯达黎加莫因港和厄瓜多尔亚苏尼国家公园的炼油厂项目就面临着人们对于其环境影响的担忧。前者由于首次评估存在严重疏漏而遭到了国家环境部长的反对，而后者则因为80万人签署请愿书而被政府叫停；阿根廷的孔多克里夫和拉巴朗科萨水电大坝在未进行环境影响评估的情况下就开工建设，而最终被阿根廷最高法院下令叫停；由于企业倾向于雇佣中国人而非当地工人，特别是管理和高层技术人员，劳工侵权问题多多……
 
-可见中共是支持俄罗斯独裁者普京入侵乌克兰。
+为什么中共国的一带一路与各国的合作都存在着环境破坏和人权侵犯等相同的问题？往前追溯不难发现，中共执政这一路走来就是一部权力斗争史，拉帮结派，党同伐异，其中自然就少不了行贿受贿，封官许愿，走关系，官官相护。试想管理层的精力都耗费在政治上扳手腕，他们还有什么闲心去关注环保与人权？套用老百姓的说法：扯蛋的事很专业，专业的事很扯蛋。通过中共在中华大地上的管理就可以看出，发展都是建立在不惜破坏环境的基础上，而诸如新疆西藏法轮功等所谓不安定因素，更是不顾其人权大肆迫害……中共对自己人都这样没有专业性的野蛮对待，对其他还会更好？
 
-联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
+所有相信中共及其管辖下的财阀或团队还能够自我修正，自我补缺的人都是对中共还报有幻想，他们还将继续受骗。只有打破对中共的所有幻想，正如新中国联邦的战友们的呐喊和正在践行的事：中共是造成一切邪恶的根源，唯有消灭中共才能真正解决所有邪恶的问题。
 
-The UN International Court of Justice ordered
+新闻链接：[New report examines rights violations by Chinese business activities in Latin America](https://www.fidh.org/en/issues/globalisation-human-rights/business-and-human-rights/violations-chinese-business-latin-america-report)
 
-Russia to halt invasion of Ukraine
+翻译/简评：Brianchow / PR：村民彼得潘
 
-据英国【卫报】报道：
+* * *
 
-联合国国际法院(ICJ)当地时间3月16日责令俄罗斯停止2月24日在乌克兰领土上开始的军事行动。
-
-The UN international court of justice(ICJ) ordered Russia on March 16th local time
-
-to immediately suspend military operations that it commenced on 24 February 2022 in the territory of Ukraine.
-
-乌克兰在战争初始，就针对俄罗斯的非法入侵，向设在荷兰海牙的联合国国际法院提起诉讼。
-
-Ukraine filed a lawsuit against Russia’s illegal invasion at the beginning of the war
-
-with the United Nations International Court of Justice in The Hague, Netherlands.
-
-联合国国际法院于3月7日就乌克兰诉俄罗斯案举行听证会。
-
-The UN International Court of Justice held a hearing in the Ukraine v. Russia case on March 7th.
-
-3月16日国际法院最终以13比2的票数裁定俄罗斯应立即停止在乌克兰的特别军事行动，在法庭上，
-
-The International Court of Justice finally ruled by 13 votes to 2 on March 16th
-
-that Russia should immediately halt its military operations in Ukraine,
-
-只有俄罗斯和中国法官对该命令投了反对票，法院称没有看到任何证据支持克里姆林宫为战争辩护。
-
-with only Russian and Chinese judges voting against the order in a court
-
-that said it saw no evidence to support the Kremlin’s defense of the war.
-
-据英国媒体报道，国际法院院长琼•多诺霍(Joan Donoghue)表示，“法院认为，
-
-乌克兰有合理的权利不受俄罗斯军事行动的干预”。
-
-“The court considers that Ukraine has a plausible right not to
-
-be subjected to military operations by the Russian Federation” said Joan Donoghue,
-
-the court president, according to British media reports.
-
-从国际法庭中国法官投票态度来看，中共显然是站在俄罗斯一边。
-
-Judging from the voting attitude of the Chinese judges in the international court, it is clear that the Chinese Communist Party is on the side of Russia.
-
-中共支持俄罗斯独裁者普京入侵乌克兰，与西方主张和平的民主国家为敌，下场一定会和普京政府一样被世界文明所淘汰，被世界正义力量所消灭！
-
-By supporting the Russian dictator Vladimir Putin’s invasion of Ukraine,
-
-the Chinese Communist Party is an enemy of the Western pro-peace democracies and will surely end up like Putin’s government,
-
-eliminated from world civilization and wiped out by the forces of world justice!
-
-【盖文】联合国国际法院以13比2的票数裁定要求俄罗斯停止2月24日在乌克兰领土上开始的军事行动，其中俄罗斯与中国法官投反对票，从国际法庭中国法官投票态度，可见中共是支持俄罗斯独裁者普京入侵乌克兰。
-
-The United Nations International Court of Justice (ICJ) voted 13-2 to demand that Russia stop the military operations
-
-that commenced on February 24th in the territory of Ukraine, with Russian and Chinese judges voting against the decision.
-
-The attitude of the Chinese judges voting at the ICJ shows that the Chinese Communist Party supports the invasion of Ukraine by Russian dictator Vladimir Putin.
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-【撰稿】纽约香草山农场教育部-马克文、朱丽叶
-
-【审稿】阳光玫瑰
-
-【翻译】关键时刻
-
-【剪辑】Jesse(文博)
-
-【资料链接】】https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine
-
-发布：奇门遁甲
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

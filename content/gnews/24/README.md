@@ -2,48 +2,26 @@
 ---
 
 
-## 命中注定有了他
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2223704/)
+## 大部分加拿大人希望加强制裁俄罗斯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
 
-作者：蓝之灵（Hortensia )
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2810.png)
+作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
+
+据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
 
 
-拯救地球多少次
-今生奇遇遇见他
-命中注定有了他
-心情好似开了花
-![](https://assets.gnews.org/wp-content/uploads/2022/03/32F64492-68AF-4E44-9DA5-825F32D126C8.jpeg)
-遇见他
-古藤老树都发芽
-如似清风抚头发
-春夏秋冬都开花
-迷失的信仰回了家
-迷途的人儿
-重新出发
-感谢他
-感谢今生遇见他
-重建联邦需要他
-子孙后代需要他
-拯救人类需要他
-灭掉共匪见爸妈
-我们今生追随他
-追随他
-完成使命
-向更高的维度
-进发
+报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B6CF6668-4CF3-46A4-B349-47D413F1DEFD.jpeg)
+据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
 
-**编辑**/**校正**/**发稿：**玫瑰圓
+校对编辑：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[**纽约香草山农场**GTV-**香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场**GTV-MOS TALK **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2814.png)
+发稿：青青
+
+新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

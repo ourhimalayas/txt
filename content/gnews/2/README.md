@@ -2,24 +2,26 @@
 ---
 
 
-## 视频|喜联储主席谈加密货币在俄乌战争中的角色
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223958/)
+## 白宫对三百多名俄罗斯议员及有关公司实施制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224051/)
 
-制作：香草山视频部
+####   撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16481421681.png)图片来源：KFOR
+据《国会山报》3月24日报道，周四，拜登政府宣布对300多名俄罗斯议员和几十家与入侵乌克兰的战争行动有关的国有企业实施制裁。该制裁的宣布正是拜登在布鲁塞尔会见北约盟国和七国集团领导人，讨论如何应对俄罗斯对乌克兰的入侵期间。
 
-3月18日，喜联储主席威廉·杰伊先生接受彭博社记者专访，谈到了加密货币及其在俄乌战争中扮演的角色。众所周知，在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。而在俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。
+根据报道，该制裁针对的是俄罗斯立法机构国家杜马的328名成员，以及国家杜马这个实体本身。
 
-加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。威廉先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，可以轻松解决加密货币被作为非法活动的媒介。
+同时，美国还制裁了罗斯最大的金融机构之一Sovcombank的17名董事会成员，以及48家为俄罗斯战争行动生产设备的俄罗斯国防企业，包括生产直升机和战术导弹的国防企业。
 
-加密货币平台对客户进行详尽的客户认证将不可避免，威廉先生更表示：已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。
+此外，拜登政府还宣布对俄罗斯最大金融机构Sberbank的负责人赫尔曼·格雷夫（Herman Gref）和俄罗斯总统普京的朋友富商季姆琴科（Gennady Timchenko）实施制裁。
 
-发稿：文敬
+文章说，除了拜登政府推出的新制裁措施外，美国及其欧洲盟友还推出了一项旨在更好地执行对俄罗斯现有制裁措施的倡议。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+*责编：白夜*
+
+**新闻来源**
+
+[US announces sanctions on Russian lawmakers, defense companies](https://thehill.com/homenews/administration/599542-us-announces-sanctions-on-russian-lawmakers-defense-companies)
 
  
 

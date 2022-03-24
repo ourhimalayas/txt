@@ -2,34 +2,37 @@
 ---
 
 
-## 俄罗斯侵略行为屡受挫 国际制裁进一步加码
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2223674/)
+## 中共国的科技泡沫已经破灭
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2223766/)
 
-作者：纽约磐石农场 在远方, 日本东京方舟农场 Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月22日，据相关媒体报道，企业家埃隆·马斯克向乌克兰提供的星链卫星终端正在帮助乌克兰军方摧毁入侵的俄罗斯坦克。
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-24-172824-1.jpg)图片来源：xataka.com
+如我们所知，中共国的情况并没有好转。其科技巨头们蓬勃发展的日子似乎已经过去。去年夏天，习近平剪掉了这些巨头中许多人的“翅膀”，现在他们以毁灭性的方式影响着市场。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-6.jpeg)
+中共国的大型科技公司正在倒闭中，中共国的互联网公司在股票市场上的估值创下历史新低。在过去快速扩张的几年里，它们享受了溢价估值，但大规模的抛售导致泡沫完全破裂。
 
-另据乌克兰内政部顾问发布的消息显示，由于俄罗斯士兵在乌克兰境内会使用当地的手机号码，乌克兰情报单位通过定期向这些号码发送劝降短信而成功说服一名俄罗斯士兵驾驶一辆T-72坦克向乌方投降。在乌克兰当局通过卫星无人机确认过安全后，这名俄罗斯士兵目前已经被妥善安置在保护区内。这名士兵也透露，俄军内部目前粮食供应严重不足，且管理相当混乱，很多俄罗斯军人已经逃离了战场。
+截至3月15日，腾讯已经损失了5300亿美元，阿里巴巴也是如此，已经损失了近5220亿美元，他们两大巨头是科技市场蓬勃发展趋势中的大玩家，而这一趋势也影响到了美团（减少2546亿美元）甚至是小米（减少561亿美元）等其他公司。
 
-而鉴于莫斯科当局坚持发动的对乌侵略战争，国际社会正在进一步推动对俄罗斯的制裁。当天，78架俄罗斯飞机在境外被扣押。同时，包括美国在内的西方国家将禁止企业向俄罗斯供应民用飞机和相关零部件。此外，美国两党参议员正在与财政部讨论冻结俄罗斯约一千三百二十亿美元的全部黄金储备。而波兰政府也在当天提议，将俄罗斯逐出二十大工业集团，即G20组织。目前，该提议已经得到了正面的回应。
+事实上，中共国的纳斯达克——恒生指数，在最近几周暴跌，自一年前的峰值以来损失了65%。过去几天，在监管机构明显打算放松对“大科技”公司的迫害后，这些估值出现了反弹，但是中共国大科技公司的前景并不乐观。
 
-参考链接：
-1. [俄羅斯交通部長：78架俄飛機在國外被扣押](https://news.ltn.com.tw/news/world/breakingnews/3868554)
-2. [同袍全落跑！ 俄兵開T-72戰車投降 烏國將重賞](https://news.ltn.com.tw/news/world/breakingnews/3868327)
-3. [Report: Ukrainian drones destroying Russian tanks with help from Elon Musk’s satellites](Ukrainian%20drones%20destroying%20Russian%20tanks%20with%20help%20from%20Elon%20Musk's%20satellites)
-4. [Senators, Yellen to Discuss Freezing Russia’s Gold Assets](https://www.newsmax.com/politics/economy-gold-treasury-janet-yellen/2022/03/22/id/1062470/)
-5. [受不了俄羅斯！波蘭建議「踢出G20」](https://news.ltn.com.tw/news/world/breakingnews/3868357)
+腾讯，告别增长。中共国科技领域的宠儿正处于低迷状态。监管机构现在正寻求将其微信支付名人分拆为一个独立的金融公司，这可能会削弱人们对其庞大的社交网络微信的兴趣，而且该公司正准备进行大量的裁员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+阿里巴巴及其创始人马云，2020年11月，他的金融部门蚂蚁集团的IPO被暂停，这看起来将成为一个重磅炸弹，不是以马云所期望的方式。
 
-审核/总编：Irene木木
-编辑：Irene木木，静言
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这是一系列挫折的开始，使阿里巴巴的情况受到影响。其股价跌得如此之低，以至于该公司试图利用回购的机会来推高股价：这并没有起到作用。至少没有像预期的那样，在未来的事情发生之前，阿里巴巴是中共国科技巨头陨落的另一个伟大例子。
 
+新闻来源：[xataka.com ] [La burbuja tech de China ha explotado: Alibaba está en caída libre y a Tencent no le va mucho mejor](https://www.xataka.com/empresas-y-economia/burbuja-tech-china-explota-alibaba-esta-caida-libre-a-tencent-no-le-esta-yendo-mucho-mejor)
 
+审核：Aries的星
+校对：小东
+发布：Nuevo唐人
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
