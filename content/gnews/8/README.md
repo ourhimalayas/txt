@@ -2,25 +2,44 @@
 ---
 
 
-## 大部分加拿大人希望加强制裁俄罗斯
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
+## 视频|寻找“锁链女”事件真相的义士被中共拘留
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223912/)
 
-作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
+网名为“乌衣”、微博名为“我能抱起120斤” 与微博名为”小梦姐姐小拳拳”的两名90后女生，
 
-据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
+在“锁链女”事件曝光后第一时间前往徐州丰县探访并报道“锁链女”事件，
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
+随后还多次前往丰县探寻并报道事件真相，
 
+但很快被丰县警方拘留。“我能抱起120斤”女生被拘数天获释后，
 
-报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
+在2月底曾通过微博讲述她在看守所遭受的非人经历，
 
-据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
+指责警方在拘留期间羞辱她、虐待她。
 
-校对编辑：硫酸羟氯喹64
+3月4日，“我能抱起120斤”再次被合肥、
 
-发稿：青青
+六安、徐州三地警方联合抓捕，此后她就一直处于失联状态。
 
-新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
+直到3月15日，在“我能抱起120斤”失联的第14天，
+
+才从她妹妹口中得知，其家乡沛县警方已上门向她父亲宣读了拘留通知书，
+
+以“寻衅滋事”的罪名已被沛县警方拘留，
+
+却不但不给纸质通知书，更不许拍照和录音。
+
+【盖文】我们中国人都是中共锁链下的奴隶，都是共产党铁锁下的“锁链女”，邪恶的中共是一切罪恶和邪恶的根源！中共套在我们脖子上和灵魂上的铁锁已斑驳，封在我们嘴巴上和鼻子上的封口胶带已发霉，砸碎中共强加在我们身上的铁锁与胶带是我们这代人的责任与使命！
+
+【撰稿】6zero4
+
+【审稿】呼吸的雾霾（文小呼吸）
+
+【剪辑】山城麻辣烫
+
+【链接】https://www.rfa.org/mandarin/Xinwen/6-03172022130143.html
+
+发布：奇门遁甲
 
  
 

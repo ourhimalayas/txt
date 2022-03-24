@@ -2,34 +2,28 @@
 ---
 
 
-## Gettr宣布与独立记者Andy Ngo合作
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2222839/)
+## 波兰驱逐45名冒充外交官的俄罗斯间谍
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2223395/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/MYQ5TIEQN5ETVLKDFOQS32Z6UM-scaled.jpg)
-3月24日，gettr宣布与独立记者Andy Ngo建立新的合作伙伴关系。Andy Ngo表示他将在gettr上制作一个名为“每周通知”的独家新闻节目，提供他独到的政治评论和分析。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-据悉Andy Ngo是全球领先的独立记者之一，他在《纽约时报》开设了专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。他是一个无所畏惧的人，以报道和录像示威而闻名。因他坚持言论自由的报道，受到了暴力和死亡威胁，以及无数所谓的法律法规审查。他表示很期待与新的受众在gettr上互动。
+据《世界新闻网》3月23日报道，波兰内政部长今日宣布，波兰驱逐了45名冒充外交人员的俄罗斯间谍。
 
-Gettr CEO Jason Miller表示很自豪能够Andy Ngo这样勇敢的记者合作，很开心为他提供gettr这样的平台，使得他能够与他的数百万用户分享讯息。目前新闻和言论自由都受到大科技媒体的审查，只有gettr是一个政治辩论和重要讯息都可以自由流动的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.jpg)(右)波兰内政部长卡明斯基（Mariusz Kaminski）（图片来自路透社）
 
-撰稿、发布：骄子
+据报道，早前波兰反间谍机构《国内安全局》（ABW）表示，已确认45名俄罗斯外交人员涉嫌担任间谍，要求波兰外交部将他们驱逐出境。国内安全局发言人札林（Stanislaw Zaryn）称，这些犯嫌的活动对波兰内部和外部安全皆构成威胁。
 
-* * *
+波兰内政部长卡明斯基（Mariusz Kaminski）今日则在推特发文称：“我们正在拆除我们国内的俄罗斯特工网络。”
 
-欢迎订阅我们的GNews账号：
+对此，俄罗斯外交部表示，如果俄罗斯外交人员遭波兰驱逐出境，俄方将进行报复。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+参考链接：
+[https://www.worldjournal.com/wj/story/121480/6187398](https://www.worldjournal.com/wj/story/%20121480/6187398)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
+编辑：幽蘭自得
+总编：老孙
+校对发布：爱放飞
 
- 
-
- 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

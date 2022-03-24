@@ -2,110 +2,60 @@
 ---
 
 
-## 视频|联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223828/)
+## 视频|中共“动态清零”防疫政策下不做核酸检测违法！
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223957/)
 
-联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
+中共“动态清零”防疫政策下不做核酸检测违法
 
-据英国【卫报】报道：
+近日，一名被封控在中共国广东省深圳市福田区共产党病毒疫情管控区家里的男子，
 
-联合国国际法院(ICJ)当地时间16日责令俄罗斯停止2月24日在乌克兰领土上开始的军事行动。
+因十几天没做核酸检测而被3名福田区警察上门抓走。
 
-乌克兰在战争期间就向设在荷兰海牙的联合国国际法院提起针对俄罗斯的诉讼。
+警察先是质问大门的封条是不是该男子自己撕掉的，
 
-联合国国际法院于3月7日就乌克兰诉俄罗斯案举行听证会。
+并大声呵斥他为何十几天没做核酸检测。
 
-国际法院以13比2的票数裁定俄罗斯应立即停止在乌克兰的特别军事行动，
+该男子有理有据地表示做不做核酸检测是自己个人的事情，这并不构成违法！
 
-在法庭上，只有俄罗斯和中国法官对该命令投了反对票，
+但警察却坚称这已构成违法。
 
-法院称没有看到任何证据支持克里姆林宫为战争辩护。
+该男子据理反驳：“我在家里门都没法出，危及谁了？
 
-据英国媒体报道，国际法院院长琼•多诺霍(Joan Donoghue)表示，
+”无言以对的警察恼羞成怒后立即动手将该男子抓捕。
 
-“法院认为，乌克兰有合理的权利不受俄罗斯军事行动的影响。”
+近日中共国还有另一个也是因为不服从强制核酸检测的案例，
 
-从国际法庭中国法官投票态度，
+4名穿防护服的防疫工作人员、5名警察和一名社区工作人员总共10人组成的“大部队“，
 
-可见中共是支持俄罗斯独裁者普京入侵乌克兰。
+直接破门闯入一间民宅将一名男子从床上抓捕起来，
 
-联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
+该男子因拒绝社区工作人员反复为其佩戴口罩而踹了她一脚，
 
-The UN International Court of Justice ordered
+防疫工作人员和警察立即蜂拥而上将该男子按倒在地，
 
-Russia to halt invasion of Ukraine
+随即将赤着双脚的男子双臂反剪带走。
 
-据英国【卫报】报道：
+【盖文】中共是一切灾难的根源，只有消灭中共才能拯救同胞和人类！
 
-联合国国际法院(ICJ)当地时间3月16日责令俄罗斯停止2月24日在乌克兰领土上开始的军事行动。
+中共这种“动态清零”的极端防疫政策，将不做核酸检测视同违法犯罪行为来暴力强制执行，
 
-The UN international court of justice(ICJ) ordered Russia on March 16th local time
+这种反人类、反社会的野蛮防疫措施造成的人道灾难，比病毒本身引起的疾病灾难更严重！
 
-to immediately suspend military operations that it commenced on 24 February 2022 in the territory of Ukraine.
+其实中共对老百姓做不做核酸，甚至死多少老百姓丝毫不在乎，
 
-乌克兰在战争初始，就针对俄罗斯的非法入侵，向设在荷兰海牙的联合国国际法院提起诉讼。
-
-Ukraine filed a lawsuit against Russia’s illegal invasion at the beginning of the war
-
-with the United Nations International Court of Justice in The Hague, Netherlands.
-
-联合国国际法院于3月7日就乌克兰诉俄罗斯案举行听证会。
-
-The UN International Court of Justice held a hearing in the Ukraine v. Russia case on March 7th.
-
-3月16日国际法院最终以13比2的票数裁定俄罗斯应立即停止在乌克兰的特别军事行动，在法庭上，
-
-The International Court of Justice finally ruled by 13 votes to 2 on March 16th
-
-that Russia should immediately halt its military operations in Ukraine,
-
-只有俄罗斯和中国法官对该命令投了反对票，法院称没有看到任何证据支持克里姆林宫为战争辩护。
-
-with only Russian and Chinese judges voting against the order in a court
-
-that said it saw no evidence to support the Kremlin’s defense of the war.
-
-据英国媒体报道，国际法院院长琼•多诺霍(Joan Donoghue)表示，“法院认为，
-
-乌克兰有合理的权利不受俄罗斯军事行动的干预”。
-
-“The court considers that Ukraine has a plausible right not to
-
-be subjected to military operations by the Russian Federation” said Joan Donoghue,
-
-the court president, according to British media reports.
-
-从国际法庭中国法官投票态度来看，中共显然是站在俄罗斯一边。
-
-Judging from the voting attitude of the Chinese judges in the international court, it is clear that the Chinese Communist Party is on the side of Russia.
-
-中共支持俄罗斯独裁者普京入侵乌克兰，与西方主张和平的民主国家为敌，下场一定会和普京政府一样被世界文明所淘汰，被世界正义力量所消灭！
-
-By supporting the Russian dictator Vladimir Putin’s invasion of Ukraine,
-
-the Chinese Communist Party is an enemy of the Western pro-peace democracies and will surely end up like Putin’s government,
-
-eliminated from world civilization and wiped out by the forces of world justice!
-
-【盖文】联合国国际法院以13比2的票数裁定要求俄罗斯停止2月24日在乌克兰领土上开始的军事行动，其中俄罗斯与中国法官投反对票，从国际法庭中国法官投票态度，可见中共是支持俄罗斯独裁者普京入侵乌克兰。
-
-The United Nations International Court of Justice (ICJ) voted 13-2 to demand that Russia stop the military operations
-
-that commenced on February 24th in the territory of Ukraine, with Russian and Chinese judges voting against the decision.
-
-The attitude of the Chinese judges voting at the ICJ shows that the Chinese Communist Party supports the invasion of Ukraine by Russian dictator Vladimir Putin.
+中共在乎的是老百姓在其淫威下屈服不屈服的问题！
 
 
 
-【撰稿】纽约香草山农场教育部-马克文、朱丽叶
+【撰稿】香草山信息部–6zero4
 
-【审稿】阳光玫瑰
+【审稿】香草山信息部–呼吸的雾霾（文小呼吸）
 
-【翻译】关键时刻
+【剪辑】香草山视频部–玉米地里战斗鸡
 
-【剪辑】Jesse(文博)
+【链接】https://gettr.com/post/p10pbu641fc
 
-【资料链接】】https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine
+[https://gettr.com/post/p10qsrb24b3](https://gettr.com/post/p10qsrb24b3)
 
 发布：奇门遁甲
 

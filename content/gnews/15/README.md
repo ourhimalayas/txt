@@ -2,32 +2,112 @@
 ---
 
 
-## 圣彼得堡的阴谋 习近平的春秋大梦 最终都由中国人买单
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2223696/)
+## 视频|联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223828/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
+
+据英国【卫报】报道：
+
+联合国国际法院(ICJ)当地时间16日责令俄罗斯停止2月24日在乌克兰领土上开始的军事行动。
+
+乌克兰在战争期间就向设在荷兰海牙的联合国国际法院提起针对俄罗斯的诉讼。
+
+联合国国际法院于3月7日就乌克兰诉俄罗斯案举行听证会。
+
+国际法院以13比2的票数裁定俄罗斯应立即停止在乌克兰的特别军事行动，
+
+在法庭上，只有俄罗斯和中国法官对该命令投了反对票，
+
+法院称没有看到任何证据支持克里姆林宫为战争辩护。
+
+据英国媒体报道，国际法院院长琼•多诺霍(Joan Donoghue)表示，
+
+“法院认为，乌克兰有合理的权利不受俄罗斯军事行动的影响。”
+
+从国际法庭中国法官投票态度，
+
+可见中共是支持俄罗斯独裁者普京入侵乌克兰。
+
+联合国国际法院下令要求俄罗斯停止对乌克兰发动的战争
+
+The UN International Court of Justice ordered
+
+Russia to halt invasion of Ukraine
+
+据英国【卫报】报道：
+
+联合国国际法院(ICJ)当地时间3月16日责令俄罗斯停止2月24日在乌克兰领土上开始的军事行动。
+
+The UN international court of justice(ICJ) ordered Russia on March 16th local time
+
+to immediately suspend military operations that it commenced on 24 February 2022 in the territory of Ukraine.
+
+乌克兰在战争初始，就针对俄罗斯的非法入侵，向设在荷兰海牙的联合国国际法院提起诉讼。
+
+Ukraine filed a lawsuit against Russia’s illegal invasion at the beginning of the war
+
+with the United Nations International Court of Justice in The Hague, Netherlands.
+
+联合国国际法院于3月7日就乌克兰诉俄罗斯案举行听证会。
+
+The UN International Court of Justice held a hearing in the Ukraine v. Russia case on March 7th.
+
+3月16日国际法院最终以13比2的票数裁定俄罗斯应立即停止在乌克兰的特别军事行动，在法庭上，
+
+The International Court of Justice finally ruled by 13 votes to 2 on March 16th
+
+that Russia should immediately halt its military operations in Ukraine,
+
+只有俄罗斯和中国法官对该命令投了反对票，法院称没有看到任何证据支持克里姆林宫为战争辩护。
+
+with only Russian and Chinese judges voting against the order in a court
+
+that said it saw no evidence to support the Kremlin’s defense of the war.
+
+据英国媒体报道，国际法院院长琼•多诺霍(Joan Donoghue)表示，“法院认为，
+
+乌克兰有合理的权利不受俄罗斯军事行动的干预”。
+
+“The court considers that Ukraine has a plausible right not to
+
+be subjected to military operations by the Russian Federation” said Joan Donoghue,
+
+the court president, according to British media reports.
+
+从国际法庭中国法官投票态度来看，中共显然是站在俄罗斯一边。
+
+Judging from the voting attitude of the Chinese judges in the international court, it is clear that the Chinese Communist Party is on the side of Russia.
+
+中共支持俄罗斯独裁者普京入侵乌克兰，与西方主张和平的民主国家为敌，下场一定会和普京政府一样被世界文明所淘汰，被世界正义力量所消灭！
+
+By supporting the Russian dictator Vladimir Putin’s invasion of Ukraine,
+
+the Chinese Communist Party is an enemy of the Western pro-peace democracies and will surely end up like Putin’s government,
+
+eliminated from world civilization and wiped out by the forces of world justice!
+
+【盖文】联合国国际法院以13比2的票数裁定要求俄罗斯停止2月24日在乌克兰领土上开始的军事行动，其中俄罗斯与中国法官投反对票，从国际法庭中国法官投票态度，可见中共是支持俄罗斯独裁者普京入侵乌克兰。
+
+The United Nations International Court of Justice (ICJ) voted 13-2 to demand that Russia stop the military operations
+
+that commenced on February 24th in the territory of Ukraine, with Russian and Chinese judges voting against the decision.
+
+The attitude of the Chinese judges voting at the ICJ shows that the Chinese Communist Party supports the invasion of Ukraine by Russian dictator Vladimir Putin.
 
 
 
-圣彼得堡的阴谋！！！俄罗斯面前两大选择：1. 打核战；2. 和解，但是在中共国的参与之下。只要中国人参与调解，无论战争结果如何，中国将被视为罪魁祸首。习近平还在做世界大国的梦，认为通过战争，制造区域混乱，发展数字人民币，可以通过控制石油、天然气、供应链等，打垮世界经济和美元。中共疯狂的后果，是要所有中国人都背负罪名，承担难以想象的后果。
+【撰稿】纽约香草山农场教育部-马克文、朱丽叶
 
-**视频来源: 20220323—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田**
+【审稿】阳光玫瑰
 
-**更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
+【翻译】关键时刻
 
+【剪辑】Jesse(文博)
 
+【资料链接】】https://www.theguardian.com/world/2022/mar/16/un-international-court-of-justice-orders-russia-to-halt-invasion-of-ukraine
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
-
-
+发布：奇门遁甲
 
  
 
