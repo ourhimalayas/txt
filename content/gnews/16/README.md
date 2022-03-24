@@ -2,38 +2,29 @@
 ---
 
 
-## 喜联储主席谈加密货币在俄乌战争中的角色
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220723/)
+## 有声 ｜美正式指认俄罗斯犯下战争罪
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2220785/)
 
-作者：纽约香草山金融部 – ILOVE战神
+**By:秘翻新闻**
 
+**2022-03-24**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111111111.jpg)
+[路透社](https://www.reuters.com/world/us-assesses-russian-forces-committed-war-crimes-ukraine-blinken-2022-03-23/)华盛顿3 月 23 日报道，美国国务卿布林肯周三表示，已评估俄罗斯军队成员在乌克兰犯下战争罪行，并补充说结论是基于对乌克兰的“仔细审查”。
 
+布林肯在一份声明中表示，美国将继续追踪有关战争罪的报告，并将与盟国、国际机构分享收集到的信息，并补充说，法院将最终负责确定任何被指控的罪行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+布林肯表示，我们致力于使用所有可用的工具来追究责任，包括刑事起诉。
 
+自 2 月 24 日开始入侵乌克兰以来，莫斯科尚未占领任何一个最大的城市。但这是自第二次世界大战以来对欧洲国家的最大袭击，截止目前，预计平民伤亡已达数千人。联合国估计自俄军入侵以来，已有超过 350 万人逃离乌克兰。
 
+布林肯还表示，有大量可信的报道称，俄罗斯驻乌克兰军队不分青红皂白地无差别攻击，造成平民伤害，甚至可能存在故意针对平民的袭击。例如被俄军围困的马里乌波尔市。
 
-3月18日，喜联储主席威廉·杰伊先生接受彭博社记者专访，谈到了加密货币及其在俄乌战争中扮演的角色。众所周知，在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。而在俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-13.jpg)
-加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。威廉先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，可以轻松解决加密货币被作为非法活动的媒介。
+（秘翻新闻 自由信仰 编译报道）
 
-加密货币平台对客户进行详尽的客户认证将不可避免，威廉先生更表示：已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。
+发布:星星
 
-参考链接：
-[Putin’s War Could Make Central Banks a Crypto Battlefield](https://www.bloombergquint.com/gadfly/putin-s-war-will-put-central-bankers-on-the-cryptocurrency-frontlines)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编：zhong
-编辑：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,37 @@
 ---
 
 
-## 数家央行与国际清算银行合作开展数字货币支付业务
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2220690/)
+## 喜联储主席谈加密货币在俄乌战争中的角色
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2220723/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-翻译：li yan li
-编辑：jocozoner
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/20-5.png)图片来源：雅典娜设计组
+作者：纽约香草山金融部 – ILOVE战神
 
 
-据道琼斯通讯社报道，四家中央银行与国际清算银行合作创建了一个支付平台原型，以期能对各国央行发行的数字货币进行国际结算。
 
-3月22日，国际清算银行创新中心、澳大利亚储备银行、马来西亚中央银行、新加坡金融管理局以及南非储备银行共同宣布该平台已经搭建完成，他们认为金融机构借此可对以上各国央行发行的数字货币直接进行交易。
-
-该集团在一份声明中说，该平台被称为“邓巴计划”（Project Dunbar），他们希望通过此架构来减少对中介机构的依赖，以及处理跨境交易的成本和时间。
-
-在开发该平台的过程中，参与的各国央行表示，他们解决了诸如如何对有权利使用CBDC1进行交易的实体进行认证，以及如何解决不同国家的支付监管差异等问题。
-
-1. 央行数字货币
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-国际清算银行新加坡创新中心负责人安德鲁·麦科马克（Andrew McCormack）说：“邓巴计划表明，可以通过强大技术手段实施的治理机制，我们完全可以解决信任和共享控制的关键问题，这都为未来全球和区域平台的发展奠定了基础。”
 
-麦科马克先生还补充说，允许实体直接持有不同司法管辖区的CBDC并进行交易，可以减少跨境支付对中介机构的需求。
+3月18日，喜联储主席威廉·杰伊先生接受彭博社记者专访，谈到了加密货币及其在俄乌战争中扮演的角色。众所周知，在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。而在俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-13.jpg)
+加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。威廉先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，可以轻松解决加密货币被作为非法活动的媒介。
 
-新闻链接：[Central banks, BIS team up on digital-currency payments](https://www.marketwatch.com/story/central-banks-bis-team-up-on-digital-currency-payments-271647930605)
+加密货币平台对客户进行详尽的客户认证将不可避免，威廉先生更表示：已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。
 
-发布：tianzhihuan
+参考链接：
+[Putin’s War Could Make Central Banks a Crypto Battlefield](https://www.bloombergquint.com/gadfly/putin-s-war-will-put-central-bankers-on-the-cryptocurrency-frontlines)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：zhong
+编辑：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

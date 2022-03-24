@@ -2,24 +2,36 @@
 ---
 
 
-## 嘴炮威慑！俄驻联合国公使：若遭受北约威胁有权动用核武
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220307/)
+## “圣彼得堡的阴谋”将清算中共国的一切
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2220460/)
 
-俄乌战火延烧，外界关心俄罗斯总统普京是否动用核武，克里姆林宫发言人佩斯科夫事前表示「若俄遭生存威胁就会」。俄罗斯派驻联合国的公使纪柏梁（Dmitry Polyanskiy）今日指出，「若俄罗斯遭受北约的威胁，俄罗斯有权利按下核武按钮」。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/381f2a6c965f09d40315ea2461e5479d.jpg)
+3月23日大直播中，郭先生与战友分享俄乌战争接下来的可能走势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/efc206ed-ecbd-4ff1-aa9b-91ddfc48e258.jpg)图片来源：民视新闻
+俄罗斯对乌克兰的这场战争，普京所谓的保守估计是一周之内结束，但目前已经持续一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一个是打小规模的核战争，一个是只能停战。停战要找担保人来调停，郭先生直播中提到“圣彼得堡的阴谋”，就俄罗斯让中共国来做担保人停止这场战争，表面上看体现中共国的大国风范，联合国都做不到的事情中共国做成了。但是实际上，这会让全世界所有的中国人，信用、宗教、金融受到全方位长时间的制裁，不会再有人卖给中共国粮食，整个世界可能都要与中国人为敌。
 
-简评：据郭文贵先生爆料称，俄罗斯动用核武器的概率几乎是零，马斯克也公开挑战普京，敢发核武器让其在俄罗斯头上炸。在动用核武器是自掘坟墓的情况下，俄驻联合国公使竟然还用嘴炮威胁，看来俄罗斯久攻不下乌克兰真的是急火攻心了！
+众所周知中国共产党要挟十四亿中国人，从金钱等方面予以俄罗斯支持，并且在中东的小规模军事冲突中，军事武器无人机的提供者都是中共，只要中共在，世界上的邪恶犯罪只会越来越恶劣。习近平会把这些全部都栽赃嫁祸给美国。此次如若圣彼得堡的阴谋得逞，在全世界都知道中共是俄罗斯入侵的支持者之下，习近平出来调停战争无非是再一次用停战的借口要挟全世界，更加剧世界对无辜中国人的仇恨。
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022324W0092](https://www.ftvnews.com.tw/news/detail/2022324W0092)
+新中国联邦致力于消灭共产党解救中国人。
 
-撰稿/发布：一叶知秋
+撰稿、发布：骄子
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+reference：
 
+[https://gettr.com/post/p11ke0ac549](https://gettr.com/post/p11ke0ac549)
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
