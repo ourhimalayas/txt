@@ -2,36 +2,36 @@
 ---
 
 
-## “圣彼得堡的阴谋”将清算中共国的一切
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2220460/)
+## 澳新银行成为第一家铸造稳定币的澳大利亚银行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2220679/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/381f2a6c965f09d40315ea2461e5479d.jpg)
-3月23日大直播中，郭先生与战友分享俄乌战争接下来的可能走势。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯对乌克兰的这场战争，普京所谓的保守估计是一周之内结束，但目前已经持续一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一个是打小规模的核战争，一个是只能停战。停战要找担保人来调停，郭先生直播中提到“圣彼得堡的阴谋”，就俄罗斯让中共国来做担保人停止这场战争，表面上看体现中共国的大国风范，联合国都做不到的事情中共国做成了。但是实际上，这会让全世界所有的中国人，信用、宗教、金融受到全方位长时间的制裁，不会再有人卖给中共国粮食，整个世界可能都要与中国人为敌。
+翻译/编辑：小红帽
 
-众所周知中国共产党要挟十四亿中国人，从金钱等方面予以俄罗斯支持，并且在中东的小规模军事冲突中，军事武器无人机的提供者都是中共，只要中共在，世界上的邪恶犯罪只会越来越恶劣。习近平会把这些全部都栽赃嫁祸给美国。此次如若圣彼得堡的阴谋得逞，在全世界都知道中共是俄罗斯入侵的支持者之下，习近平出来调停战争无非是再一次用停战的借口要挟全世界，更加剧世界对无辜中国人的仇恨。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/727bc5ffb559b746ab6bcd2e6d6b4400.jpeg)图片来源：www.theaustralian.com.au
 
-新中国联邦致力于消灭共产党解救中国人。
 
-撰稿、发布：骄子
+根据路透社3月24日报道，澳新银行集团（ANZ.AX）周四表示，该公司进行了一次澳元稳定币支付，这是一项具有里程碑意义的交易。澳新银行成为澳大利亚第一家铸造与该国货币挂钩的数字资产的银行。
 
-reference：
+稳定币是一种数字资产，旨在保持其相对于另一种资产的价值稳定，并经常用作其他加密货币的门户或在去中心化金融系统中产生收入。
 
-[https://gettr.com/post/p11ke0ac549](https://gettr.com/post/p11ke0ac549)
+澳新银行表示，已通过数字资产投资平台Zerocap向一家私人数字资产财富管理公司Victor Smorgon Group交付了澳元稳定币A$DC。
 
-* * *
+澳大利亚储备银行(RBA)去年表示，该公司开始铸造与澳元挂钩的数字资产。数字钱包的增长可能允许交换由澳大利亚央行支持的代币或数字形式的货币，尽管中央银行仍然对数字货币持怀疑态度。
 
-欢迎订阅我们的GNews账号：
+澳新银行表示，该公司已经使用智能合约铸造了3000万澳元稳定币A$DC。这些稳定币在双方之间转移，后来又兑换回法定货币。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+新闻来源：[ANZ becomes first Australian bank to mint stablecoin](https://www.reuters.com/business/finance/anz-becomes-first-australian-bank-mint-stablecoin-2022-03-23/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/fedb27d1d204b68955faa3d77311a234.png)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

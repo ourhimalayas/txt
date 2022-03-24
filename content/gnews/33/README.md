@@ -2,33 +2,30 @@
 ---
 
 
-## 英军助力！训练乌克兰使用「星光飞弹」打击俄军战机
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2220061/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2220072/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
-
-
-
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-18.png)
 
 
-俄罗斯入侵乌克兰仍在继续，面对全球的制裁俄罗斯并没有停战的苗头！美国与北大西洋公约组织（NATO）盟国为了帮助乌克兰抵抗侵略持续输送防卫性武器给乌克兰，强化抵御俄国战力。
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/php5yiYPR-1.jpg)图片来源：法新社
+编辑：Stay文苑
 
-如今英国军方宣布，他们已训练乌军使用反战机飞弹“星光飞弹”（Starstreak），可有效打击俄空军的主力米格战机。
+发稿：Stay文苑
 
-简评：在全球制裁俄罗斯的背景下，俄罗斯有中共国的金援与兵工厂，乌克兰有西方国家提供的包括武器在内的各种援助与指导训练，就算成为消耗战，普京用屁股想想也打不赢的，独裁者的野心妄想只能加速其灭亡！
+新闻：[https://gettr.com/post/p11k6tl92dd](https://gettr.com/post/p11k6tl92dd)
+访谈：[https://gettr.com/post/p11k7s17f11](https://gettr.com/post/p11k7s17f11)
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3868814](https://news.ltn.com.tw/news/world/breakingnews/3868814)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-3.png)
 
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

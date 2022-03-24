@@ -2,18 +2,39 @@
 ---
 
 
-## Hpay的好处（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2220658/)
+## 烏克蘭總統澤連斯基：俄羅斯準備使用生化武器
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2220715/)
 
-**PPT制作:WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11.50-12.00-（10）.jpg)
-*发布：*tianzhihuan
+來自新加坡早報 /
+2022年3月24日 10:36 AM 報導
+採集：玫瑰新聞組
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻.jpg)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3242.jpg)烏克蘭總統澤連斯基昨午向日本國會發表視頻演說。 （法新社）
+
+以下原文內容：
+烏克蘭總統澤連斯基週三（3月23日）向日本國會發表視頻演說時稱，俄羅斯正在準備使用沙林等的化學武器進行攻擊。
+
+據日本共同社報導，這是海外政要首次在日本國會發表視頻演說。演說由參眾兩院主辦，除參眾兩院議長、首相岸田文雄和外長林芳正等出席。
+
+澤連斯基在演說時指出，為阻止侵略引發的海嘯，各國必須禁止與俄羅斯之間的貿易。他稱通過對俄羅斯加強施壓，才能夠恢復和平。他尋求對持續進攻的俄羅斯繼續實施經濟制裁。
+
+談到烏克蘭境內慘狀，澤連斯基稱，“被投下千枚以上導彈”。他說，包括兒童在內有數千人遇難，並稱“甚至無法安葬被殺掉的人”。他還強調戰爭結束後力爭快速重建家園，包括讓避難民眾回國。
+
+澤連斯基還批評俄軍佔據1986年發生事故的切爾諾貝利核電站，稱“俄羅斯把核物質處理場變成了戰場”。他對核物質擴散危害環境表示關切，並希望能對俄軍使用核武器的可能性加以牽制。在談及俄軍砲擊扎波羅熱核電站，澤連斯基說，烏克蘭境內核電站處於危險形勢。
+
+迄今為止，澤連斯基已在美國、英國、德國等議會發表視頻線演說，呼籲支持烏克蘭。
+
+新聞鏈接：
+[澤連斯基：俄羅斯準備使用生化武器](https://www.zaobao.com.sg/realtime/world/story20220324-1255491)
+
+**審核校對：Barry Jack
+上傳排版：V在途中**
 
  
 

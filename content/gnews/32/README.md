@@ -2,30 +2,22 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2220072/)
+## 中國銀行在安省的抵押貸款額飆升
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2220104/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-18.png)
+作者：加拿大溫哥華揚帆農場 – 采編：文萊 – 翻譯編輯：文所未聞
 
+據加拿大《環球郵報》3月23日報道，在過去六年中，中國銀行在安省的住宅抵押貸款金額大幅上升，並造成大量資金正從BC省流向安大略。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2761.png)
+據悉，多倫多市外國人的住宅房地產擁有率全加拿大最高，約為4%。而中國銀行一直在當地廣泛開展針對中國客戶的金融業務。僅2021年，該銀行在安省的未償還抵押貸款總額就達到10.5億加元，與2015年同比增加了650%
 
-校对：Stay文苑
+目前，加拿大整體房地產市場火熱，除了通脹因素外，從中共國流入的大量資金也是推動房價上漲的主要原因之一。但隨著中共國未來被西方經濟製裁後所導致的全球金融危機，以及各種疫苗災難之下，加拿大房地產泡沫的破滅將不可避免。
 
-编辑：Stay文苑
+校對編輯：硫酸羥氯喹64
 
-发稿：Stay文苑
+發稿：青青
 
-新闻：[https://gettr.com/post/p11k6tl92dd](https://gettr.com/post/p11k6tl92dd)
-访谈：[https://gettr.com/post/p11k7s17f11](https://gettr.com/post/p11k7s17f11)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-3.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+原文鏈接：[https://www.theglobeandmail.com/business/article-bank-of-chinas-mortgage-lending-soars-in-ontario-wanes-in-bc/](https://www.theglobeandmail.com/business/article-bank-of-chinas-mortgage-lending-soars-in-ontario-wanes-in-bc/)
 
  
 

@@ -2,20 +2,12 @@
 ---
 
 
-## 乌克兰战争：无人机捕捉到马里乌波尔的破坏情况
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220233/)
+## 约翰·柯比： 明确证据表明俄罗斯军队正在犯下战争罪行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220262/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
-
-
-
-
-
-03/23/2022 乌克兰战争：乌克兰城市马里乌波尔遭受了无情的轰炸，当局说自俄罗斯入侵以来，该市90%的地方被破坏或完全摧毁
+03/22/2022 约翰·柯比：美国当然看到了明确的证据，证明俄罗斯军队正在犯下战争罪，并敦促普京寻求“外交选择” 来结束在乌克兰的战争
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
-
 
  
 

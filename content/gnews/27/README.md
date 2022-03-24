@@ -2,12 +2,20 @@
 ---
 
 
-## 【乌克兰救援】小小酥战友向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220179/)
+## 乌克兰战争：无人机捕捉到马里乌波尔的破坏情况
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2220233/)
 
-【乌克兰救援】03/20/2022 小小酥战友向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-21-下午11.47.34-2.png)
+
+
+
+
+
+03/23/2022 乌克兰战争：乌克兰城市马里乌波尔遭受了无情的轰炸，当局说自俄罗斯入侵以来，该市90%的地方被破坏或完全摧毁
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-23-104908.jpg)
+
 
  
 
