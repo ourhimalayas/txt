@@ -2,27 +2,23 @@
 ---
 
 
-## 拜登联合欧盟加大对俄罗斯制裁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2224052/)
+## 视频|前線战友接受“台湾+”英．文媒体采访
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2224070/)
 
-作者：加拿大温哥华扬帆农场 – 自由法兰西
+制作：香草山视频部
 
-据【路透社】3月22日报道，美国总统拜登将在本周访问欧洲期间加强与欧盟合作，并同时宣布对俄罗斯实施新的制裁措施。
+3月22日，郭文贵先生盖特视频表示，乌克兰前线救援战地记者妮可接受了台湾首家面向国际观众的英文媒体“台湾+”的采访。妮可表示，新中国联邦支持台湾人民的民主自由，并永远与国际正义力量站在一起。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2823.png)图片来源：路透社
+在采访过程中，台湾媒体清楚了解到乌克兰国际救援由法治基金赞助，参与者是热爱和平、自由和法制的新中国联邦人组成，正在为乌克兰难民提供人道主义救援，并致力于摧毁邪恶的中国共产党。
 
+此外，采访也对台湾现在享有的自由民主表示担忧，妮可说到：如果中共侵略台湾，国际社会将会为台湾提供大力支持，新中国联邦也将为所有被中共镇压和虐待的人们提供人道主义救援。并强调国际社会给予乌克兰人民越多的支持，中共实施人权暴行的可能性就越小，消灭中共是保障世界和平、法治与自由的唯一途径。
+发稿：文敬
 
-报道称，拜登将于次日前往北约和欧盟总部所在地布鲁塞尔与各国领导人会面，并随即推出对普京政权的进一步制裁计划。新计划不仅将重点放在更严厉的制裁上，还将努力联合打击所有逃避该制裁的行为。
-
-此外，拜登也将就中共国与俄罗斯的战略伙伴关系进行讨论。由于习近平当局始终参与普京对乌克兰的侵略战争，因此，美国的首要目标是确保中共不会通过物资或军事援助来支持俄罗斯。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源1： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
-
-新闻来源2：[https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569](https://www.ndtv.com/world-news/us-president-joe-biden-europe-trip-targets-western-unity-new-sanctions-against-russia-2837569)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

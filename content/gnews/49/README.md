@@ -2,91 +2,31 @@
 ---
 
 
-## 国务卿布林肯：美国政府评估俄罗斯军队成员在乌克兰已犯下战争罪
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2220336/)
+## 疫情｜韩国累计确诊数破千万大关 重症及死亡率持续居高不下
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2220538/)
 
-国务卿布林肯： 根据目前掌握的信息，美国政府评估俄罗斯军队成员在乌克兰已犯下战争罪。我们将继续与盟友和合作伙伴共享信息，并追究责任。
+**图/文：CP**
+**发布时间｜24/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國累計確診數破千萬大關-重症及死亡率持續高企.jpg)
 
-
-
-> Based on information currently available, the U.S. government assesses that members of Russia’s forces have committed war crimes in Ukraine. We will continue to share information with allies and partners, and pursue accountability.
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2022](https://twitter.com/SecBlinken/status/1506724525660151814?ref_src=twsrc%5Etfw)
-
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
-国务卿布林肯： 我们很幸运有Nicholas Burns [@USAmbChina](https://twitter.com/USAmbChina) 担任我们在北京的大使。他将很快完成所需的隔离，并开始在这个关键时刻有效管理美中关系的工作。
+韩国 Omicron 确诊病例数持续于高峰位徘徊，防疫部门周三(23日）公布，过去 24 小时，新增病例 49 万 881 例，累计确诊人数突破 1,000 万，即 1,042 万 7,247例，约为韩国人口的20%。若不计重复感染，相当于每5名韩国人中有一人染疫。
 
+韩国政府原本估计新冠肺炎的单日确诊率会在本月12至22日间见顶，23 日达至最高峰 50 万，之后稳定回落。而且按照其他国家经验，当累计确诊数达到整体人口两成时，疫情扩散可望开始减慢，但据目前形势来看，韩国防疫部门对此持悲观态度。
 
+要知道，直至今年2月6日，韩国总体病例总数才刚刚突破 100 万例，这期间经历了近 746 天（自2020 年 1 月 20 日确诊首例国内病例起计），但仅仅一个半月后，累计病例就突破了 1000 万大关。换句话说，在七成韩国民众都完成疫苗加强剂注射的情况下，今年1月1日起至今累计病例 930.5919 万例，占总体病例的93.65%。
 
-> We are lucky to have [@USAmbChina](https://twitter.com/USAmbChina?ref_src=twsrc%5Etfw) Nicholas Burns as our Ambassador in Beijing. He will soon complete his required quarantine and begin his work to effectively manage the U.S.-PRC relationship at this critical time. [pic.twitter.com/3W9jC3ObXo](https://t.co/3W9jC3ObXo)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2022](https://twitter.com/SecBlinken/status/1506734770327375875?ref_src=twsrc%5Etfw)
+最为重要的是，不仅确诊率未见趋缓，死亡及重症人数亦维持在高峰位，22日报告384人新冠死亡个案，连续第6天单日死亡人数超过 300 例。另外，重症亦连续第 16 天维持超过 1,000 例（1,084例），全国重症病床使用率已经接近70%。
 
+目前，韩国已经成为全球单日确诊人数最多的国家。因此，当地专家认为，随着21日起放宽限聚至8人，且传播力更强的Omicron亚型BA.2病例剧增，预计疫情趋缓还需要一段时间。
 
+**来源｜**[**Hani.kr**](https://www.hani.co.kr/arti/english_edition/e_national/1035977.html)
 
-众议员迈克·加西亚： 拜登总统失败的阿富汗撤军继续产生全球影响。在全世界关注欧洲危机蔓延之际，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 正在与塔利班谈判采矿合同。美国决不能忽视我们最大的威胁——[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 【转华尔街日报：美国撤出后,中共国追逐阿富汗的矿产财富 中国公司正在与塔利班谈判以开采世界上最大的未开发铜储量之一的矿】
+* * *
 
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)'s failed Afghanistan withdrawal continues to have global implications. While the world watches the crisis unfold in Europe, the CCP is negotiating mining contracts with the Taliban. America must not take its eye off of our greatest threat – China.[https://t.co/A2u7Ry8M0a](https://t.co/A2u7Ry8M0a)
-> — Rep. Mike Garcia (@RepMikeGarcia) [March 23, 2022](https://twitter.com/RepMikeGarcia/status/1506706139467198473?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 俄罗斯 [#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) 试图对马里乌波尔 [#Marioupol](https://twitter.com/hashtag/Marioupol?src=hashtag_click) 做出最后决定性的推进 总有一天，每个人都会听到勇敢的人不顾一切地捍卫这座城市的令人难以置信的故事
-
-
-
-> [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) trying to make a final decisive push on [#Marioupol](https://twitter.com/hashtag/Marioupol?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> One day everyone will hear the incredible stories of the brave men defending the city right now against all the odds
-> — Marco Rubio (@marcorubio) [March 23, 2022](https://twitter.com/marcorubio/status/1506631739875151891?ref_src=twsrc%5Etfw)
-
-
-
-拜登总统： 我正在前往欧洲的路上，以召集国际社会支持 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click)，并确保 [#普京](https://twitter.com/hashtag/%E6%99%AE%E4%BA%AC?src=hashtag_click) 为他选择的战争付出沉重的经济代价。
-
-
-
-> I’m on my way to Europe to rally the international community in support of Ukraine and ensure Putin pays a severe economic cost for his war of choice. [pic.twitter.com/4UJpyitOko](https://t.co/4UJpyitOko)
-> — President Biden (@POTUS) [March 23, 2022](https://twitter.com/POTUS/status/1506643748880633859?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克尓·麦考尔(众议院军事委员会资深成员)： 泽连斯基总统已经请求设立禁飞区，我们可以在北约飞机不飞越乌克兰上空的情况下给他这个禁飞区。 如果我们提供像 S-300 (地对空导弹)这样的正确援助，我们就可以扭转局势，并给予 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 他们一直要求的东西。 【附麦考尔议员接受福克斯采访视频】
-
-
-
-> President Zelensky has pleaded for a no-fly zone, and we can give that to him without NATO aircrafts going across the skies of Ukraine. If we send in the correct aid like S-300's, we can turn the tide and give Ukraine what they've been asking for. [pic.twitter.com/l3rylH6f8Z](https://t.co/l3rylH6f8Z)
-> — Michael McCaul (@RepMcCaul) [March 23, 2022](https://twitter.com/RepMcCaul/status/1506689752896049155?ref_src=twsrc%5Etfw)
-
-
-
-众议员李·泽尔丁： 名人不应获得纽约市 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 疫苗强制接种的任何特殊豁免。相反，政府应该完全取消这项强制措施。最重要的是，任何因为没有打疫苗而被解雇的人都应该回到工作岗位并给他们补发工资！
-
-
-
-> Celebrities shouldn’t receive any special exemption to NYC’s COVID shot mandate. Instead, the government should just get rid of the mandate altogether. On top of that, anyone who has been fired for not getting the shot should get their job back with backpay!
-> — Lee Zeldin (@RepLeeZeldin) [March 24, 2022](https://twitter.com/RepLeeZeldin/status/1506794445949255681?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 
-拜登在布鲁塞尔应该说的四件事： 
-1. 北约成员国必须最终兑现承诺，将2%的GDP用于国防 
-2. 欧洲必须摆脱俄罗斯天然气 
-3. 给泽伦斯基赢得胜利所需的一切 
-4. 明确俄罗斯使用大规模杀伤性武器的红线——包括美国的干预
-
-
-
-> Four things Biden should say in Brussels:
-> 1. NATO members MUST finally step up to its commitment to spend 2% GDP on defense 
-> 2. Europe must ween off of Russian gas
-> 3. Give Zelensky what he needs to win 
-> 4. Establish clear red lines on Russia using WMDs – including US intervention
-> — Rep. Mike Waltz (@michaelgwaltz) [March 24, 2022](https://twitter.com/michaelgwaltz/status/1506791528378810370?ref_src=twsrc%5Etfw)
-
-
+**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 

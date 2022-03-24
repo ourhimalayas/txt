@@ -2,16 +2,24 @@
 ---
 
 
-## 视频|突发！东航MU5735航班在广西境内坠毁！
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2223998/)
+## 7News 《全球视点》东航空难依然不会有真相
+` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2224031/)
 
-2022年3月21日，东航一架波音737-800客机在执飞昆明至广州的航班MU5735时，于广西梧州藤县琅南镇莫埌村附近山区坠毁并引发山火，广西当局已派遣多个市县总共超过500名消防人员到场搜救，迄今没有人员生还迹象。 该客机注册编号为B-1791，交付于2015年6月22日，机龄6.8年，属单通道喷气客机，采用162座两级客舱布局，即12座商务舱加150座经济舱，机上人员共132人，其中旅客123人、机组9人。 MU5735航班预计北京时间13:10从昆明长水机场起飞，实际起飞时间13:15，原定15:05抵达广州白云机场。该航班起飞后一直维持着约8869米的海拔高度飞行，14:19到达梧州境内后突然以每小时845公里的速度骤降，14:22从雷达屏幕中失去联系，当时飞机的飞行高度为海拔982米。 【盖文】从当地森林防火监控视频里面看到的画面看，客机是以头部朝地面呈自由落体状态垂直坠向山头的，这种自杀式飞机坠毁非常罕见，很难用机械故障等常规科学理论来解释。也许跟2014年3月8日的马航MH370航班失踪事件类似，因中共内斗机上有核心人物被对方用郭先生提到的中共特有的飞机“牵引技术”强行坠毁；也许正如郭先生早已预料的那样，因为接种中共病毒疫苗的飞行员突然病发，产生误操作而导致客机自杀式坠毁。中共是一切灾难的根源！
+制作：宁南
 
-【撰稿】6zero4
+The truth of China Eastern air crash is uncovered yet
 
-【视频】小叮咛
+A tragic air crash killed 132 compatriots instantly.
+The progress of human civilization is the history of fighting against wars, disease, disaster, starvation, etc.
+Therefore, if human beings want to progress, they must reveal the truth behind these factors that affect human life, so as to promote social progress and better protect the safety of human life and property.
+However, under the rule of the CCP, nothing can have the truth. As Mr. Guo Wengui said: Nothing in the Communist Party is true!
+一起惨烈的空难瞬间夺取了132位同胞鲜活的生命。
+人类文明进步的历程，就是对抗战争、疾病、灾难、饥饿等对生命摧残的历史。
+所以人类要进步，就要揭示这些影响人类生命因素背后的真相，
+才会推动社会进步，更好地保障人类生命财产安全。
+然而在中共统治下，任何一件事情都不可能有真相。如同郭文贵先生说的那样：共产党没有一样是真的！
 
-发布：奇门遁甲
+排版上传：文勇
 
  
 

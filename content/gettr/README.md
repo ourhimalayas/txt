@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 3/21/2022 5:36 PM (UTC)`
+
+#精粮采访 #新中国联邦 <br/><br/>#乌克兰救援 行动跟踪报道(中英文字幕版)。<br/>今天采访的是一位墨西哥裔美国画家罗宾先生，画家在一面白色背景墙上创作，"这个发生的战争让我感到难过","我不想错过这个历史时刻来来抗议",要写上“立即停止战争”字样。他认为画笔就是他的武器，整个创作大概还需要6天...<br/>人们爱与正义的力量正在汇聚成海洋,定能淹没战争的炮火!!💖👍<br/><br/>❤️NFSC Press #FineFood Report from NFSC's #UkraineRescue. He Interviews with a Mexican American painter Mr. Robenz ,who is drawing on a white background wall. We can see some words “STOP THE WAR NOW” on the painting. He agrees the brush is his weapon and the unfinished painting may need six days.
+![img](https://media.gettr.com/group39/origin/2022/03/21/17/6a4c80ab-47bb-5738-4969-dde97bb5113a/out.jpg)
+
+---
+
 `@miles 3/24/2022 5:51 PM (UTC)`
 
 03/24/2022  Ukraine Frontline Updates <br/><br/>乌克兰前线 战时战报 2022年3月24日更新【NFSC News】
@@ -150,13 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 3/23/2022 Miles Guo: The CCP caused the death of 80 million people in the Cultural Revolution and hundreds of thousands in the Siege of Changchun. The Soviet Union was the country that caused the most harm to China. First, the CCP came from the evil communist demon of the Soviet Union. Second, the Soviet army killed countless Chinese and robbed enormous lands from China. Third, the Soviet Union wanted to turn China into its colony and treat the Chinese as slaves. Without the Sino-Soviet split and the establishment of diplomatic relations between China and the US, China would be even worse off than it already is.<br/><br/><br/>3/23/2022 文贵直播：中共造成八千万人死于文革，几十万人死于长春围城；前苏联是对中国伤害最大的国家：一，中共源于苏联的共产邪灵；二，苏军杀害了无数中国人，掠夺大片土地；三，苏联妄图把中国变成殖民地，把中国人当奴隶；若无中苏断交，中美建交，中国处境会更糟糕
 ![img](https://media.gettr.com/group46/getter/2022/03/24/07/21317328-1bd3-118c-ea5a-9d7a0086ff6a/out.jpg)
-
----
-
-`@miles 3/24/2022 6:56 AM (UTC)`
-
-3/23/2022 Miles Guo: Putin told Xi Jinping that conservatively speaking, it would only take one week to take Ukraine. Putin was tricked by the Moscow faction into waging a war against Ukraine and was told that it would take three days at most for the war to be over. The KGB faction originated from St. Petersburg is the shadow government of Russia, who knows the West very well and is against Putin the most.<br/><br/>3/23/2022 文贵直播：普京告诉习近平，保守需要一周拿下乌克兰；普京被莫斯科派骗去打乌克兰，说顶多三天就打完；圣彼得堡出的克格勃派是俄罗斯的影子政府，他们懂西方，也最反对普京<br/>
-![img](https://media.gettr.com/group15/getter/2022/03/24/06/dd42eaf9-a378-0669-b908-5d83cb9560de/out.jpg)
 
 ---
 
