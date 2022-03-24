@@ -2,39 +2,45 @@
 ---
 
 
-## 樱花数据分析┃英格兰：接种次数越多越易感染，三针接种者感染风险最高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222879/)
+## 乌克兰将收到超过200万瓶碘酒
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2222918/)
 
-撰稿：东京樱花团/TV
-制图：东京樱花团/chuansang
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/REsize.jpg)
 
-英格兰政府发布了第十一周疫苗监督数据[1]。通过三针接种者、未接种者的每百万人感染人数计算出三针接种者的感染风险显示，三针接种者的感染风险每周都在增加（图1）。其中18-79岁人口的感染风险为未接种者的3倍以上，60-69岁人口更是达到了4倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-48.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高2.png)
+（图片来自原文）
 
-按之前文章[2]的计算方法，我们进一步计算出了相对于未接种者，一针接种人群的感染风险(图2)。综合一针、两针、三针的结果，可见除了18岁以下及80以上人群，均呈现接种次数越多，更易感染的结果。这与丹麦数据[3]一致。
+此时此刻，俄罗斯军队已经控制乌克兰的两个核电站：切尔诺贝利和扎波罗热，后者是欧洲最大的核电站。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英格兰：接种次数越多越易感染，三针接种者感染风险最高3.png)
+众所周知，碘可以防止人类甲状腺吸收放射性物质。
 
-这个数据再次证明了，每一次疫苗接种都在伤害人体免疫系统。继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。
+在未来几个小时内，乌克兰将收到超过200万份碘剂。
 
-（注：本文为《樱花数据分析》第二十一期）
+据Ukrinform记者报道，最高拉达（Verkhovna Rada Committee ）国家卫生、医疗和健康保险委员会主席米哈伊洛-拉杜茨基（Mykhailo Radutskyi）在一个全国性的电话会议上分享了这个消息。
 
-数据来源：
-[1][COVID-19 vaccine surveillance report Week 11](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1061532/Vaccine_surveillance_report_-_week_11.pdf)
-[2][樱花数据分析┃英格兰：三针接种者感染风险持续上升，成为最易感染人群！](https://gnews.org/zh-hans/2191606/)
-**[3]**[樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2205218/)
+据称，碘剂、非处方镇静剂等药品供应的延迟是由于俄罗斯的侵略引发的。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+所有乌克兰制药公司都已开足马力生产。
+
+拉杜茨基认为，在未来的日子里，药店会有足够的数量。此外，荷尔蒙药物短缺将在未来几天解决。同时，不排除其他药品短缺的可能性–主要是由已经提到的物流方面的问题。
+
+在俄罗斯侵略的头几周，大多数药店，特别是商业药店，仍然关闭。
+
+拉杜茨基强调说，最主要的是药店现在尽可能地开放。
+
+此外，拉杜茨基保证，卫生部将很快解决向被俄罗斯军队攻击的灾区运送药品的问题。
+
+拉杜茨基呼吁乌克兰人不要囤积超过一个月的药品。
+
+据卫生部长维克多-利亚什科（Viktor Liashko）称，目前乌克兰至少有10,000家药店在运营。
+
+这位官员保证，国内有足够的药品和医护人员。已经建立了跨药店网络的药品交付。部长说，如果药店没有特定的药品，顾客应该联系卫生部的热线电话：080 060 20 19。
+
+新闻来源链接：[https://www.ukrinform.net/rubric-society/3436516-over-2m-iodine-does-to-be-delivered-to-ukraine.html](https://www.ukrinform.net/rubric-society/3436516-over-2m-iodine-does-to-be-delivered-to-ukraine.html)
+
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 
