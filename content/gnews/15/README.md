@@ -2,23 +2,11 @@
 ---
 
 
-## 视频|人类是否将走入第三次世界大战【晓理订制】
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2222664/)
+## 3/23/2022 文贵直播：普京告诉习近平，保守需要一周拿下乌克兰；普京被莫斯科派骗去打乌克兰，说顶多三天就打完
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2222737/)
 
-文案编辑 :@Miyali7768
+秘密翻译组-北美组
 
-制作团队: 大直播短视频组
-
-视频剪辑: @Amanda11
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11.png)
-审核/编辑/发稿：qiutian（邱甜）
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

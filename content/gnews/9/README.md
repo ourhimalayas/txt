@@ -2,26 +2,34 @@
 ---
 
 
-## 【G时新闻】东航失事飞机的黑匣子已找到
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2222720/)
+## Gettr宣布与独立记者Andy Ngo合作
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2222839/)
 
-作者：加拿大温哥华扬帆农场 – 播报：文广 – 视频制作：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/logo-2.png)
-多家境外媒体3月23日报道，救援当局周三说，周一在中共国南部地区坠毁的载有132人的东方航空公司波音飞机上的一个黑匣子已经被找到。 但是一位消防官员说，由于恶劣的天气和广西坠机地点恶劣的山地地形阻碍了搜救行动，机上人员生还的机会较少。 当局说，飞机的残骸和一些人的遗体已被找到。 据报道，这架B737-800型飞机从云南省昆明市飞往东南部城市广州，在从大约8900米的巡航高度突然下降两分钟后失去了雷达联系。 当局说，坠机后没有发现幸存者，位于现场的黑匣子可能是驾驶舱的语音记录器。中共国表示，机上没有外国公民。 总部位于上海的中国东方航空公司是中共国三大航空运营商之一，在天合联盟下拥有700多架波音和空客飞机。坠机事件发生后，它已经暂停了所有B737-800飞机的飞行。 快评：刚刚结束的文贵大直播里，郭先生爆料称这次飞机失事根据数据显示完全是人为因素导致的，肇事者为这次行动准备了数月之久。 郭先生还说，那类似的事故在中共国还将不断出现。 太可怕了，为了报复就人为制造空难。中共真地将它统治的国变成了人间地狱。不灭中共，人类无法得到拯救。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/MYQ5TIEQN5ETVLKDFOQS32Z6UM-scaled.jpg)
+3月24日，gettr宣布与独立记者Andy Ngo建立新的合作伙伴关系。Andy Ngo表示他将在gettr上制作一个名为“每周通知”的独家新闻节目，提供他独到的政治评论和分析。
 
-视频链接：[https://www.gettr.com/post/p11ju4n20e3](https://www.gettr.com/post/p11ju4n20e3)
+据悉Andy Ngo是全球领先的独立记者之一，他在《纽约时报》开设了专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。他是一个无所畏惧的人，以报道和录像示威而闻名。因他坚持言论自由的报道，受到了暴力和死亡威胁，以及无数所谓的法律法规审查。他表示很期待与新的受众在gettr上互动。
 
-编辑/发文 -【让子弹飞飞飞】
+Gettr CEO Jason Miller表示很自豪能够Andy Ngo这样勇敢的记者合作，很开心为他提供gettr这样的平台，使得他能够与他的数百万用户分享讯息。目前新闻和言论自由都受到大科技媒体的审查，只有gettr是一个政治辩论和重要讯息都可以自由流动的地方。
+
+撰稿、发布：骄子
 
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
+
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

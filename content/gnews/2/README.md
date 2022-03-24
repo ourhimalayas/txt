@@ -2,28 +2,26 @@
 ---
 
 
-## 拜登出席北约紧急峰会应对俄乌局势
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2222814/)
+## 习近平不改侵台野心
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2222917/)
 
-加拿大温哥华扬帆农场 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2022/03/nato-biden-ukraine-russia.jpg)图片来源：CBS News
-根据《NBC News》3月24 日报道，在俄乌战争一个月之际，美国总统拜登周四与西方盟友聚集在欧洲，支持基辅，用新的制裁措施惩罚莫斯科。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月23日的大直播中，郭文贵先生再次提到了习近平及其他中共高官对台湾的侵略企图。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-122.jpg)
+郭先生透露，早在2007年，习近平就已经显示出了对台湾的野心。彼时，习近平将台湾问题作为自己掌权后必须迅速解决的一个事项。为此，他还扬言，如果美国对台湾出手相助，中共就会让台湾永沉大海，从而绝不给台湾任何偏向美国的机会。至今，习近平的这一态度仍然分毫未变。此外，中共官员也曾多次流露出在台湾制造地震的想法，即利用导弹引发7级以上的地震就可造成台湾社会的彻底瘫痪。
 
-乌克兰总统泽伦斯基在布鲁塞尔的北约峰会上通过视频链接发表讲话，敦促增加对他的国家的军事援助。乌克兰领导人从首都通过视频信息召集各国支持基辅的正义反抗，这已成为乌克兰不畏艰险地反抗的象征和使俄罗斯很难进一步前行。
+郭先生也爆料称，在俄乌战争之后，习近平欣喜地认为俄罗斯是一个值得学习研究的模板。习近平甚至在党内宣称，俄乌战争证明了中共应当对台湾实行迅速、狠毒和不惜一切的战略模式。
 
-拜登和美国盟友将讨论对乌克兰的援助、对俄罗斯的新制裁、加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
+参考链接：[**2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难**](https://www.gettr.com/streaming/p11h7xt9462)
 
-据一位高级政府官员说，白宫已经成立了一个国家安全官员小组，以计划应对普京使用化学武器的情况。熟悉拜登政府想法的一位消息人士说，美国预计还将宣布欢迎多达10万名逃离战争的难民的计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-美国国防部一位高级官员周三表示，在战场上，乌克兰军队已经成功地将俄罗斯军队逼退到基辅东部，挫败了俄罗斯向首都的推进。
-
-原文链接：
-[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
-
-编辑，发稿 Spirit
-
-
-
+总编: Irene木木
+编辑: 玫瑰圓
+审核：Ivy001
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
