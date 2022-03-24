@@ -2,24 +2,22 @@
 ---
 
 
-## 二战来最惨纪录 攻乌俄军第15位高级指挥官阵亡
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2219806/)
+## 樱花时政┃美国认定俄罗斯军队是“战争罪”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2219864/)
 
-据报俄罗斯已折损入侵乌克兰以来第15名军事高级指挥官，目前俄国正出现二次大战结束以来，最严重的高级指挥官阵亡纪录。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2753.png)[图片来源](https://news.yahoo.co.jp/articles/8adfe8c7b9ace2a9e1850ac218f62a3cd23460cb/images/000)
+据法新社报道，美国国务卿安东尼·布林肯23日宣布。美国认定俄罗斯军队在乌克兰犯下战争罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-21.png)图片来源：美联社
+上周，总统乔·拜登指责俄罗斯总统弗拉基米尔·普京是“战犯”。 第二天，布林肯同意拜登的观点，他说：“以平民为目标的攻击是战争罪。”
 
-英国「太阳报」美国网路版披露，俄罗斯陆战队第810近卫队上校指挥官夏洛夫（Alexey Sharov）在乌克兰东南部港市马立波（Mariupol）遭乌克兰军队击毙。
+布林肯在一份声明中说：“根据目前掌握的信息，美国政府已确定俄罗斯军人在乌克兰犯下战争罪行。”
 
-新闻来源：[https://udn.com/news/story/122663/6186846?list\_ch2\_index](https://udn.com/news/story/122663/6186846?list_ch2_index)
+信息来源：[米、ロシア軍が「戦争犯罪」と認定](https://news.yahoo.co.jp/articles/5fa7d785b9d93823a32bdd82a8add246113009d8)
 
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,25 @@
 ---
 
 
-## 今日盖特大V推荐 — 苏兹·奥曼秀（Suze Orman Show）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2219514/)
+## 今日盖特大V推荐 — 卡尔·本杰明（Carl Benjamin）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2219702/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2733-e1648081144398.png)
-盖特链接：[https://gettr.com/user/Suzeorman](https://gettr.com/user/Suzeorman)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2747.png)
+盖特链接： [https://gettr.com/user/carlbenjamin](https://gettr.com/user/carlbenjamin)
 
-**苏兹·奥曼自述：**
+**卡尔·本杰明自述：**
 
-艾美奖获奖电视节目主持人, 纽约时报畅销书第一作者, 励志演说家和美国最值得信赖的个人理财专家
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2734.png)图片来自网络
-**苏兹·奥曼简介：**
+英国自由主义者
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2748.png)图片来源：网络
+**卡尔·本杰明简介：**
 
-苏珊·林恩 “苏兹” 奥曼 (Susan Lynn “Suze” Orman 生于1951年6月5日）是美国财务顾问，作家和播客主持人。1987 年，她创立了Suze Orman金融集团。 作为财务顾问，她的工作在2002年至2015年期间在CNBC上播出的Suze Orman Show中获得了关注。
+卡尔·本杰明（Carl Benjamin 生于1979年），也以其在线化名阿卡德的萨尔贡而闻名，是英国反女权主义YouTuber和政治评论员。作为欧洲怀疑主义右翼英国独立党(UKIP)的前成员。
 
-奥曼已连续撰写了十本《纽约时报》关于个人理财的畅销书。 她曾两次入选“时代100位影响力人物”名单，获得两次艾美奖和八次格雷西奖。
+卡尔·本杰明自 Gamergate 以来，他一直专注于宣传英国脱欧和批评女权主义、伊斯兰教、身份政治，以及他认为媒体和其他机构的政治正确性。本杰明被多家媒体描述为政治上的“右翼”和“极右翼”。他否认对他的政治的这种描述，而是称自己为“古典自由主义者”。
 
-奥曼撰写, 联合制作和主持了9部PBS特别节目，并出现在多个电视节目中。她曾作为嘉宾参加过奥普拉·温弗瑞秀约29次，拉里·金现场演出超过30次。奥曼目前是“Suze Orman Women & Money Podcast”的播客主持人。
+编撰：洛杉矶盘古农场 — 心照
 
-编撰：洛杉矶盘古农场 — 郭友(文苏)
-
-校审：洛杉矶盘古农场 —心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
 
 发布：洛杉矶盘古农场 —子萍
 

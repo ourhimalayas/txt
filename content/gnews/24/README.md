@@ -2,20 +2,35 @@
 ---
 
 
-## 【秘翻在线】美国国务院正式宣布俄罗斯军队在乌克兰犯有战争罪！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2219266/)
+## 今日盖特大V推荐 — 苏兹·奥曼秀（Suze Orman Show）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2219514/)
 
-#### 撰稿：西枫westca
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16480780581.png)   图片来源：网络照片
-3月23日美国国务卿布林肯在声明中指出，自发动无端和不公正的选择战争以来，俄罗斯总统弗拉基米尔·普京发动了无情的暴力，在乌克兰各地造成了死亡和破坏，俄军不分青红皂白的攻击和蓄意针对平民的攻击，以及其他暴行。俄罗斯军队摧毁了公寓楼、学校、医院、关键基础设施、民用车辆、购物中心和救护车，造成数千名无辜平民伤亡。经确认，许多被袭击的地方属于平民区，如马里乌波尔妇产医院和马里乌波尔剧院。他们在乌克兰这样做的行为再次震惊了世界，正如泽伦斯基总统所说，”使乌克兰人民沉浸在鲜血和泪水中”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2733-e1648081144398.png)
+盖特链接：[https://gettr.com/user/Suzeorman](https://gettr.com/user/Suzeorman)
 
-该声明基于我们都看到的无数破坏和痛苦的叙述和图像，即普京的部队在乌克兰犯下了战争罪行。布林肯还说，蓄意以平民为目标是一种战争罪。
+**苏兹·奥曼自述：**
 
-根据目前获得的信息，美国政府经评估认定：俄罗斯军队成员在乌克兰犯下了战争罪。国务院和其他美国政府专家正在记录和评估乌克兰潜在的战争罪行。美国政府将继续跟踪有关战争罪的报告，并将酌情与盟国、合作伙伴以及国际机构和组织分享我们收集的信息。我们致力于利用一切现有工具追究责任，包括刑事起诉。
+艾美奖获奖电视节目主持人, 纽约时报畅销书第一作者, 励志演说家和美国最值得信赖的个人理财专家
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2734.png)图片来自网络
+**苏兹·奥曼简介：**
 
-*责编：白夜*
+苏珊·林恩 “苏兹” 奥曼 (Susan Lynn “Suze” Orman 生于1951年6月5日）是美国财务顾问，作家和播客主持人。1987 年，她创立了Suze Orman金融集团。 作为财务顾问，她的工作在2002年至2015年期间在CNBC上播出的Suze Orman Show中获得了关注。
 
-**新闻来源：**[War Crimes by Russia’s Forces in Ukraine – United States Department of State](https://www.state.gov/war-crimes-by-russias-forces-in-ukraine/)
+奥曼已连续撰写了十本《纽约时报》关于个人理财的畅销书。 她曾两次入选“时代100位影响力人物”名单，获得两次艾美奖和八次格雷西奖。
+
+奥曼撰写, 联合制作和主持了9部PBS特别节目，并出现在多个电视节目中。她曾作为嘉宾参加过奥普拉·温弗瑞秀约29次，拉里·金现场演出超过30次。奥曼目前是“Suze Orman Women & Money Podcast”的播客主持人。
+
+编撰：洛杉矶盘古农场 — 郭友(文苏)
+
+校审：洛杉矶盘古农场 —心照
+
+发布：洛杉矶盘古农场 —子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

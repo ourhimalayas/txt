@@ -2,21 +2,30 @@
 ---
 
 
-## 共产党绑架中国人破坏世界和平
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2219851/)
+## 樱花时政┃美国宣布俄罗斯犯下战争罪 强调追究责任
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2219887/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：东京樱花团 文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2756.png)照片来源：本文链接
+据NHK新闻3月24日报道，美国国务卿布林肯23日发表声明，正式宣布俄罗斯军队对乌克兰的军事入侵是犯下了战争罪。
 
-*发布：陶子*
+声明说，有“许多无差别的攻击和故意以平民为目标的攻击”的可靠报告，这是对公开信息和情报机构分析得出的结论。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](http://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+应各国要求，位于荷兰海牙的国际刑事法院正在调查俄罗斯军队入侵乌克兰涉嫌犯下的战争罪和反人类罪。
 
+此前，美国宣布已开始调查此事，拜登总统严厉谴责普京总统是战犯，国务卿布林肯也做了同样表述。
+
+布林肯在一份声明中说：“美国政府将继续跟进对俄罗斯战争罪行的调查，并与盟友和国际组织分享信息。我们将尽全力追究责任。“
+
+同日，俄罗斯外交部宣布将美国外交官驱逐出境。理由是对此前美国驱逐12名俄罗斯外交官的反制措施。
+
+在23日的新闻发布会上，美国国务院发言人普莱斯说：”保持沟通渠道畅通是至关重要的，特别是在紧张局势或冲突加剧的时候。“他说：”如果我们的人员受到进一步限制，这将使美国驻俄罗斯大使馆更难继续开展工作。”
+
+消息来源：[米 「ロシア軍 戦争犯罪行った」と声明 責任追及する考え強調](https://www3.nhk.or.jp/news/html/20220324/k10013548631000.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

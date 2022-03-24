@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 2:07 AM (UTC)`
+
+【Ukraine Rescue】03/20/22  Xiao Xiao Su introduces to the Ukrainian refugees that the mission of the NFSC is to save people and eliminate the CCP: Once the CCP is eliminated, all evils in the world will be eradicated and there will be no more wars.<br/><br/>【乌克兰救援】03/20/22 小小酥战友向逃离出来的乌克兰难民介绍新中国联邦救人灭共的使命：只要灭了中共，世界上的邪恶就会被铲除，就不会再有战争。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group43/getter/2022/03/24/02/a6eefbf3-4a81-3707-7aa5-2917234a91d2/out.jpg)
+
+---
+
 `@miles 3/24/2022 1:35 AM (UTC)`
 
 2022.03.23 晚《新中国联邦新闻访谈》众议院两党议员推出取消中共国永久最惠国待遇法案；Akamai和彭博社接连报道喜联储，释放重要启动讯号；对九指妖的民事诉讼取得重大胜利；秦刚接受CBS直播采访，继续胡搅蛮缠；俄军强行将数千乌克兰儿童拐带到俄罗斯
@@ -145,13 +152,6 @@ A very popular young singer, Tsewang Lobu, in the Tibetan community as well as m
 `@miles 3/23/2022 2:00 PM (UTC)`
 
 3-23日：❤️❤️❤️ <br/><br/>https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0
-
----
-
-`@miles 3/23/2022 1:34 PM (UTC)`
-
-Ukraine Frontline Updates 乌克兰前线 战时战报<br/>#ukrainerescue #nfscrescue #nfsc新中国联邦
-![img](https://media.gettr.com/group43/origin/2022/03/23/13/4d120241-14b5-7d39-d368-7162128cf313/bc2f8bdb5f3d6e5a65859489afb3f23a.jpg)
 
 ---
 

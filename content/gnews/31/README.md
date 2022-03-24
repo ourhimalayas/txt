@@ -2,24 +2,26 @@
 ---
 
 
-## 2022年3月23日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2218495/)
+## 为严惩中共侵犯人权 美议员提案取消其永久最惠国地位
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2218847/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-**中共的杀戮还在继续……**
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0571.jpg)
+3月22日，美国众议院议员史密斯（Chris Smith）宣布，他将联合跨党派议员推出取消中共国永久贸易最惠国地位的法案，以严惩其侵犯人权的暴行。
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-39.jpg)（图片来源：美联社）
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+据《自由时报》报导，长期关注中共人权问题的史密斯议员于22日提出取消中共国永久贸易最惠国地位的法案。该法案得到了纽约民主党议员苏澳齐（Thomas Suozzi）和威斯康辛州共和党议员帝芬尼（Tom Tiffany）的联署，将中共国的贸易地位与其人权状况挂钩，并要求总统每年都必须证实中共在人权方面做出了很大改善才能给予其正常贸易关系地位。
+
+史密斯补充说，俄罗斯将因为普京侵略乌克兰而失去贸易最惠国地位，而在此时，中共却对俄罗斯表示支持。因此，现在提出重新评估中共国永久贸易最惠国地位的法案显得特别及时。
+
+此前，3位美国参议院议员科顿（Tom Cotton）、殷霍夫（Jim Inhofe）和史考特（Rick Scott）在参议院上也提出了取消中共国永久贸易最惠国地位的法案。
+
+参考链接：
+1. [https://news.ltn.com.tw/news/world/breakingnews/3868760](https://news.ltn.com.tw/news/world/breakingnews/3868760)
+
+总编：青城道姑
+校对发布：Linda
 
  
 
