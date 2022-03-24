@@ -2,25 +2,27 @@
 ---
 
 
-## 俄国将领及士兵以史上最快速度阵亡 创二战以来最高纪录
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2222788/)
+## 拜登出席北约紧急峰会应对俄乌局势
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2222814/)
 
-北约统计，短短4周内，多达4万名俄罗斯士兵被歼灭、受伤或被俘。西方官员周一表示，在不到一个月的时间里，俄罗斯侵略乌克兰的战争中至少失去6名高级将领和15位高级指挥官，创二战以来最高纪录，归咎通讯故障和数十万应征入伍的俄国年轻士兵缺乏纪律。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/03/nato-biden-ukraine-russia.jpg)图片来源：CBS News
+根据《NBC News》3月24 日报道，在俄乌战争一个月之际，美国总统拜登周四与西方盟友聚集在欧洲，支持基辅，用新的制裁措施惩罚莫斯科。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-22.png)图片来源：UkraineWorld
+乌克兰总统泽伦斯基在布鲁塞尔的北约峰会上通过视频链接发表讲话，敦促增加对他的国家的军事援助。乌克兰领导人从首都通过视频信息召集各国支持基辅的正义反抗，这已成为乌克兰不畏艰险地反抗的象征和使俄罗斯很难进一步前行。
 
-因此，指挥官难以向前线传达命令，将校被迫亲上第一线指挥，也因为士兵伤亡惨重，俄军恼羞成怒，对平民区狂轰滥炸洩愤，滥杀无辜。俄国将领及士兵以史上最快速度阵亡，俄罗斯最终恐兵败乌克兰！
+拜登和美国盟友将讨论对乌克兰的援助、对俄罗斯的新制裁、加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
 
-简评：年迈多病的普京被野心与欲望冲昏了头脑，在习大神的教唆下发起了一场突如其来的战争。狂妄的普京本以为乌克兰没有准备好，结果发现是自己没有准备好。如今俄罗斯将领士兵损失惨重，乌克兰在国际援助下越战越勇，普京这次的如意算盘打错了，俄罗斯兵败乌克兰几乎已成定局！普京！不要再执迷不悟了！回头是岸是你最好的下场！
+据一位高级政府官员说，白宫已经成立了一个国家安全官员小组，以计划应对普京使用化学武器的情况。熟悉拜登政府想法的一位消息人士说，美国预计还将宣布欢迎多达10万名逃离战争的难民的计划。
 
-新闻来源：[yahoo](https://tw.news.yahoo.com/%E4%BF%84%E5%9C%8B%E5%B0%87%E9%A0%98%E5%8F%8A%E5%A3%AB%E5%85%B5%E4%BB%A5%E5%8F%B2%E4%B8%8A%E6%9C%80%E5%BF%AB%E9%80%9F%E5%BA%A6%E9%99%A3%E4%BA%A1-%E4%BF%84%E7%BE%85%E6%96%AF%E6%9C%80%E7%B5%82%E6%81%90%E5%85%B5%E6%95%97%E7%83%8F%E5%85%8B%E8%98%AD-064946063.html)
+美国国防部一位高级官员周三表示，在战场上，乌克兰军队已经成功地将俄罗斯军队逼退到基辅东部，挫败了俄罗斯向首都的推进。
 
-撰稿/发布：一叶知秋
+原文链接：
+[https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+编辑，发稿 Spirit
+
+
 
  
 

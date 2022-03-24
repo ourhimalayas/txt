@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 5:51 PM (UTC)`
+
+03/24/2022  Ukraine Frontline Updates <br/><br/>乌克兰前线 战时战报 2022年3月24日更新【NFSC News】
+![img](https://media.gettr.com/group40/origin/2022/03/24/17/18da84b1-b73b-6869-9f36-daa839387bb7/5d3d0412b4623337886f0970206ba177.jpeg)
+
+---
+
+`@miles 3/24/2022 5:40 PM (UTC)`
+
+
+![img](https://media.gettr.com/group12/origin/2022/03/24/17/dc18dab4-f4c1-d6db-f226-67feef170d9e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/24/2022 4:54 PM (UTC)`
 
 The war has been going on for 26 days，The NFSC rescue has also entered its 17th day,<br/>As an increasing number of refugees were rescued, our rescue operation has become more and more professional, and the comrades have been a more harmonious group from setting up camps, stockpiling supplies, taking photos and recording videos, to live streams, interviews, and reports. It shows that we are working hard<br/>战争已经持续26天，我们新中国联邦的救援也已经进入了第17 天，随着救助的人数越来越多，我们的救援工作越来越专业，战友之间的合作越来越融洽，从搭建营地，到储备物资，从摄影、录像，到直播、采访、报道，都体现了我们在用心做事
@@ -143,20 +157,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 3/23/2022 Miles Guo: Putin told Xi Jinping that conservatively speaking, it would only take one week to take Ukraine. Putin was tricked by the Moscow faction into waging a war against Ukraine and was told that it would take three days at most for the war to be over. The KGB faction originated from St. Petersburg is the shadow government of Russia, who knows the West very well and is against Putin the most.<br/><br/>3/23/2022 文贵直播：普京告诉习近平，保守需要一周拿下乌克兰；普京被莫斯科派骗去打乌克兰，说顶多三天就打完；圣彼得堡出的克格勃派是俄罗斯的影子政府，他们懂西方，也最反对普京<br/>
 ![img](https://media.gettr.com/group15/getter/2022/03/24/06/dd42eaf9-a378-0669-b908-5d83cb9560de/out.jpg)
-
----
-
-`@miles 3/24/2022 6:51 AM (UTC)`
-
-3/23/2022 Miles Guo: Why would Putin and Xi Jinping join forces to take down Europe and the US? The CCP reminded Putin that the Color Revolution in Ukraine would threaten his political career, and Putin in turn convinced Xi that the same fate will happen to the CCP once Putin’s regime collapses.<br/><br/><br/>3/23/2022 文贵直播: 为什么普京和习近平要联手干掉欧美？中共提醒普京意识到乌克兰的颜色革命可能会威胁到自己的政治生命，普京转而让习相信普京政权一旦倒台，中共也会遭遇同样的下场<br/><br/><br/>
-![img](https://media.gettr.com/group42/getter/2022/03/24/06/383c7e75-bbb2-6a28-720a-e75571ee38b4/out.jpg)
-
----
-
-`@miles 3/24/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-最新战况播报
-![img](https://media.gettr.com/group20/origin/2022/03/24/04/94bda7eb-3f87-5ac5-d0cb-5f170605477e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

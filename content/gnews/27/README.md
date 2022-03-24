@@ -2,30 +2,26 @@
 ---
 
 
-## 【G时新闻】喜马拉雅交易所创建崭新数字金融系统
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2223632/)
+## 大部分加拿大人希望加强制裁俄罗斯
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
 
-作者：加拿大温哥华扬帆农场 – 播报：悠然 – 视频制作：文雅
+作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
 
-据美国著名互联网技术服务公司[Akamai]3月18日报道，[喜马拉雅交易所]向世界提供了一种旨在对抗极端价格波动的全新数字货币，其主要目标之一是为未来数字时代提供革命性的金融解决方案。
+据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
 
-[Akamai公司]称，很荣幸[喜联储]这家极具创新精神的数字货币交易所不仅选择该公司通过托管服务提供商 [Teneo] 为其客户提供前所未有的数字货币交易体验，同时还依靠多种 Akamai 技术解决方案来确保客户在交易期间的安全，以及在线交易平台快速可靠地运行。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
 
-[喜联储]首席信息与安全官[巴希尔]对此表示，与 Akamai 和 Teneo 这两家如此出色的网络安全技术伙伴合作，使得喜交所能够对未来数字货币交易提供一种快速、可靠和安全的最佳方式。
 
-视频链接：[https://gettr.com/post/p11lgmj236c](https://gettr.com/post/p11lgmj236c)
+报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
 
-编辑/上传：蔚蓝之境
+据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
 
-————————————————————————————————————
+校对编辑：硫酸羟氯喹64
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+发稿：青青
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2809.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2813.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

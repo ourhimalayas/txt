@@ -2,37 +2,56 @@
 ---
 
 
-## 中共国的科技泡沫已经破灭
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2223766/)
+## 战火纷飞无春天
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2223838/)
 
-编译：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-24-172824-1.jpg)图片来源：xataka.com
-如我们所知，中共国的情况并没有好转。其科技巨头们蓬勃发展的日子似乎已经过去。去年夏天，习近平剪掉了这些巨头中许多人的“翅膀”，现在他们以毁灭性的方式影响着市场。
+作者：香草山健身部 新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2818.png)
+春暖花开、姹紫嫣红，
+本是最美四月天。
+可是世界的那一边，
+乌克兰的勇士在战火中死去，
+侵略者的铁蹄还在递进。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7D206AEA-5921-4192-8490-E2BADD8973BC.jpeg)
+乌克兰的人们跨着身边炸碎的死体，
+抱着孩子还在黑暗中逃亡。
+她们离开的家园处处充斥着荒凉、荒废，
+苦难的人们没有春天，
+热爱和平的世界没有春天。
+硝烟弥漫的残忍世界，
+多少年轻的生命在炮火中悲壮而逝，
+书写着乌克兰的勇敢和团结，
+一个民族不屈不饶的精神，
+任凭邪恶野心汹涌，屠刀无情，
+也挡不住英雄冲为先锋的坚定步伐，
+都只为了妻兒美好的未来，
+乌克兰男人没有懦夫。
+都只为了给丈夫爱的温暖，
+给孩子蓝色的天空，
+美丽的乌克兰女人没有一个是弱者，
+伟大的民族在战火中如凤凰涅槃，
+用鲜血开启了一个新的文明。
+感谢你，勇敢的民族，
+是你带来正义的力量，
+感谢你，不屈的民族，
+是你为世界勇抵邪恶，
+灭共的我们永远跟你们站在一起，
+因为都是同一个人类，
+同一个信仰，
+自由、民主、法治，
+荣耀归伟大的乌克兰囯和人民。
 
-中共国的大型科技公司正在倒闭中，中共国的互联网公司在股票市场上的估值创下历史新低。在过去快速扩张的几年里，它们享受了溢价估值，但大规模的抛售导致泡沫完全破裂。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/B6CF6668-4CF3-46A4-B349-47D413F1DEFD.jpeg)
 
-截至3月15日，腾讯已经损失了5300亿美元，阿里巴巴也是如此，已经损失了近5220亿美元，他们两大巨头是科技市场蓬勃发展趋势中的大玩家，而这一趋势也影响到了美团（减少2546亿美元）甚至是小米（减少561亿美元）等其他公司。
-
-事实上，中共国的纳斯达克——恒生指数，在最近几周暴跌，自一年前的峰值以来损失了65%。过去几天，在监管机构明显打算放松对“大科技”公司的迫害后，这些估值出现了反弹，但是中共国大科技公司的前景并不乐观。
-
-腾讯，告别增长。中共国科技领域的宠儿正处于低迷状态。监管机构现在正寻求将其微信支付名人分拆为一个独立的金融公司，这可能会削弱人们对其庞大的社交网络微信的兴趣，而且该公司正准备进行大量的裁员。
-
-阿里巴巴及其创始人马云，2020年11月，他的金融部门蚂蚁集团的IPO被暂停，这看起来将成为一个重磅炸弹，不是以马云所期望的方式。
-
-这是一系列挫折的开始，使阿里巴巴的情况受到影响。其股价跌得如此之低，以至于该公司试图利用回购的机会来推高股价：这并没有起到作用。至少没有像预期的那样，在未来的事情发生之前，阿里巴巴是中共国科技巨头陨落的另一个伟大例子。
-
-新闻来源：[xataka.com ] [La burbuja tech de China ha explotado: Alibaba está en caída libre y a Tencent no le va mucho mejor](https://www.xataka.com/empresas-y-economia/burbuja-tech-china-explota-alibaba-esta-caida-libre-a-tencent-no-le-esta-yendo-mucho-mejor)
-
-审核：Aries的星
-校对：小东
-发布：Nuevo唐人
+**编辑**/**校正**/**发稿：**玫瑰圓
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+[**纽约香草山农场**GTV-**香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**GTV-MOS TALK **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2824.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
