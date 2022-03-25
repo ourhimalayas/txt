@@ -2,11 +2,11 @@
 ---
 
 
-## Hpay的更新及飞机坠落事件（七）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226694/)
+## 喜币的正义属性以及七哥练功打坐与修行的体会（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226814/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-07.jpeg)
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：00-11：10-05.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

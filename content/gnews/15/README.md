@@ -2,36 +2,27 @@
 ---
 
 
-## 美国大陪审团认定中共CAIEP雇员犯有签证欺诈罪
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2226576/)
+## 秘翻在线：川普起诉克林顿等人在其 &#8220;俄罗斯丑闻 &#8220;中相互勾结
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2226676/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-13.28.10.png)
-3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画像１-3.png)（图片源自本文链接）
+３月２５日CNN消息：美国前总统特朗普24日宣布，前国务卿希拉里-克林顿、民主党全国委员会（DNC）等26人和组织提起了大范围诉讼。诉讼称，这些人密谋实施了使我在2016年的总统选举中落败的行动。在其过程中，他们制定了将我与俄罗斯联手的虚假指控。
 
-根据法院文件和证据显示，59岁的柳忠三以欺诈方式为中共雇员获取J-1研究学者签证，使得中共可以利用这些雇员进行非法活动。柳向美国政府及机构隐瞒了此项非法工作。
+投诉中提到的那些人是特朗普长期以来指责的涉及 “深层国家”（影子政府）的针对他的阴谋。具体而言，是包括前联邦调查局（FBI）局长詹姆斯-科米、前英国间谍克里斯托弗-斯蒂尔和他的同事，以及克林顿的竞选顾问在内的几位联邦调查局官员。
 
-据悉柳忠三是中国国际人员交流协会CAIEP骨干成员，通过该机构获得的J-1签证并非在美国研究部门做访问学者，而是为中共工作，甚至招募美国研究人员为中共工作。柳曾经在2019年因涉嫌签证欺诈罪被捕，当时中共华为盗窃美国技术，受到川普政府的一些制裁。
+这份提交给佛罗里达州一家法院的诉状称，在’调查对手’、’分析数据’以及其它政治策略的幌子下，被告无耻地试图破坏公众的信心，并联手只为一个目的服务。即，诽谤唐纳德-J-川普。
 
-柳被判定一项共谋欺骗美国罪和签证欺诈罪，将定于7月11日判刑，最高面临五年监禁。
+这份超过108页的诉状要求对民主党人和政府官员的各种罪行进行赔偿，包括基于阴谋的威胁、恶意起诉、计算机欺诈和窃取机密数据，金额超过2400万美元。
 
-reference：
+另一方面，诉状内容还包括一些与事实不符的陈述和因夸大而产生的虚假主张。他们就是川普过去曾提到过几十次的那些人。
 
-[https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
+诉讼状内容显示，克林顿和民主党官员雇用律师和调查员编造信息，将川普与俄罗斯联系起来。然后，他们将这些谎言传播给媒体和政府。 其既定目的是减低川普在2016年总统选举中获胜的几率。
 
-撰稿、发布：骄子
+川普称，联邦调查局中的 “克林顿支持者 “对此不正行为给予了配合。他们滥用职权，出于政治上的敌意而对我进行调查。
 
-* * *
+信息源：[トランプ氏、クリントン氏や民主党全国委など提訴　「ロシア疑惑」を共謀と主張（CNN.co.jp） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/8752eeca0eff29e423358b2963a8832b77d7e826)
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

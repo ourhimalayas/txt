@@ -2,28 +2,25 @@
 ---
 
 
-## 接种率83.1%的以色列中共病毒病例感染率创新高
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2226277/)
+## 加拿大联合工会主席被指收受贿赂
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2226306/)
 
-翻译与编辑：灭共文明、冰糖葫芦喵
+采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
 
-《网关专家》3月23日报道，**根据以色列卫生部本周二发布的数据，周一以色列确诊了14460例新病毒病例。在这些感染者中，83.1%接种了疫苗，16.1%未接种，其余0.8%未列入疫苗接种状态。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/以色列-e1648181771144.jpg)图片来自原文。
-据报道，病毒感染系数从1周前的1.00上升到1.33，**表明病毒正在扩散，而且还在加速扩散。重症患者人数也有所增加。**
-
-根据《以色列国家新闻》报道，**从1月末到2月末，每天报告的中共病毒感染症病例大幅减少，但这是一个月以来的最高值。**一天前，确诊病例12929例，周六只有7801例，周五只有7125例。
-
-最近，**检测结果呈阳性的比例也有所上升，**周一进行的所有检测中有16.64%呈阳性。一周前，只有10.96%的检测结果呈阳性。
-
-报道称，上个月早些时候，以色列伊奇洛夫医院院长在最近的采访中透露，**在他们医院报告的中共病毒重症病例中，70%至80%的人完全接种了疫苗。**
-
-伊奇洛夫医院冠状病毒病房主任雅科夫·杰里斯（Yaakov Jerris）表示，**报告的大多数严重病例都接种了疫苗，他们至少接种了三针。因此，疫苗对于预防严重疾病不可信。**
-
-新闻来源链接：
-
-[Israel’s Covid-19 Cases Surge – 83.1% are Vaccinated – Infection Rate Rise to Highest Level in a Month (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/israels-covid-19-cases-surge-83-1-vaccinated-infection-rate-rise-highest-level-month/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-99.jpg)图片来源：HILL TIMES
 
 
+据加拿大[CP24]3月23日报道，[联合工会]前主席迪亚斯因收受病毒检测试剂盒供应商的贿赂而遭到内部员工投诉揭发。
+
+报道称，迪亚斯在获得供应商5万加元之后，将其测试盒产品推广给联合工会的成员企业使用，部分企业雇主因此购买了这些防疫产品。事发之后，作为最高级别的民选官员，该主席被指控违反了行业准则和相关法规。
+
+据悉，[联合工会]将就此事举行听证会，尽管迪亚斯以健康问题拒绝出席，但执行委员会正努力寻求法律途径来起诉该工会的第一任全国主席。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源： [Jerry Dias accepted money from COVID-19 rapid test supplier, Unifor alleges](https://www.cp24.com/news/jerry-dias-accepted-money-from-covid-19-rapid-test-supplier-unifor-alleges-1.5831349)
 
  
 
