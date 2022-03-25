@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@jackposobiec 3/24/2022 5:39 PM (UTC)`
+
+The Great Decoupling has begun
+
+---
+
 `@miles 3/24/2022 11:59 PM (UTC)`
 
 2022.03.24《The Fringe》 Episode 154
@@ -152,13 +160,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 2022.03.24早 新中国联邦新闻访谈   美国政府正式评定俄军在乌克兰犯下战争罪   国际刑事法院会发挥何种作用	拜登抵达布鲁塞尔  参加欧盟   北约及G7重要峰会   更多对俄制裁箭在弦上   郭先生最新爆料   中共国会站出来或者做担保   或者参与战争   但结局都注定
 ![img](https://media.gettr.com/group47/origin/2022/03/24/13/201ba427-a135-1523-060b-7fa030a51eeb/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/24/2022 12:52 PM (UTC)`
-
-<br/>3/24/2022 法国一家保险公司拒绝理赔一位投有数百万人寿保险的富商：这位富商因为注射中共疫苗而死亡，保险公司及法院认定他在知晓该疫苗属实验性药物，且有副作用的情况下仍选择接种的行为，这种选择被认定是‘自杀’。<br/><br/>03/24/2022 French insurance company refuses to pay out to a wealthy businessman with millions of dollars in life insurance: after he died from the Covid vaccine, the insurance company and the court decided that he chose to receive this Covid vaccine despite knowing that it was an experimental drug and had side effects, a choice that was deemed ‘suicidal’<br/>
-![img](https://media.gettr.com/group32/getter/2022/03/24/12/6d848c3a-e386-0f16-f73d-ab179d80a124/out.jpg)
 
 ---
 
