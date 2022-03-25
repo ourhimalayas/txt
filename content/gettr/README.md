@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 11:37 PM (UTC)`
+
+2022.03.25《The Fringe》 Episode 155   DOJ Takes Legal Actions against CCP Agents
+![img](https://media.gettr.com/group46/origin/2022/03/25/23/e94e9a85-3655-456c-4b6e-4a97dced1b09/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/25/2022 11:27 PM (UTC)`
+
+How to buy items on GFashion.com via HPay?<br/>Step 1: Log in to GFashion.com<br/>Step 2: Choose items that you like<br/>Step 3: Confirm your payment method, and choose HPay<br/>Step 4: Scan the QR code from your HPay app on your phone<br/>Step 5: confirm your payment. Done!<br/><br/>如何使用HPay在GFashion网站上买商品？<br/>第一步：登陆GFashion网站<br/>第二步：选择您喜欢的产品<br/>第三步：确认付款，然后选择HPay<br/>第四步：自动生成二维码，用手机HPay app扫码付款<br/>支付成功！<br/>#hpay #gfashion #buygfashionviahpay #hcointothemoon #hcoin #hdollar
+![img](https://media.gettr.com/group44/origin/2022/03/25/23/a811612b-8764-34c1-5557-8a7e0b5067db/bab5af3eb82ab124e3f6330b829661a1.jpg)
+
+---
+
 `@miles 3/25/2022 11:15 PM (UTC)`
 
 Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working with a Christian organization. Since the wife is a Ukrainian and being able to translate, they came to the refugee camp as volunteers.<br/>新中国联邦法制基金自愿者精糧，采访了一对法国夫妇。他们在一个基督教组织工作。由于妻子是乌克兰人，能够做翻译，他们作为志愿者来到了难民营。
@@ -144,21 +158,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 2022.03.24 晚 《新中国联邦新闻》中共企图利用人民币石油化称霸世界； 郭文贵先生爆东航坠机事件真相
 ![img](https://media.gettr.com/group29/origin/2022/03/25/00/375758dc-41ea-d6e7-0fc8-4af4456a3420/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@jackposobiec 3/24/2022 5:39 PM (UTC)`
-
-The Great Decoupling has begun
-
----
-
-`@miles 3/24/2022 11:59 PM (UTC)`
-
-2022.03.24《The Fringe》 Episode 154
-![img](https://media.gettr.com/group7/origin/2022/03/24/23/e57d39e9-d1c4-e224-b8e9-18f40f8129e0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
