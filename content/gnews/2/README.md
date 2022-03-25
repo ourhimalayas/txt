@@ -2,33 +2,31 @@
 ---
 
 
-## 中日财经爆┃最新国际报告：中共海外项目普遍违反国际人权和环境标准
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226438/)
+## 疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226442/)
 
-**撰稿：东京樱花团/Calvin**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
-国际人权联合会（FIDH）在内的60多个民间组织发布了一份新报告，该报告评估了9个拉丁美洲国家的26个中共国项目，发现中共政府不遵守国际人权和国际环境标准的商业运营模式。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-32.png)[图片来源](https://www.fidh.org/en/issues/globalisation-human-rights/business-and-human-rights/violations-chinese-business-latin-america-report)
-在联合国人权理事会第四十九届会议框架内，60多个民间社会组织——其中包括国际人权联合会（FIDH）——今天（3月25日）发布了一份新报告，该报告评估了9个拉丁美洲国家的26个中共国项目，发现中共政府不遵守国际人权和国际环境标准的商业运营模式。
+**图/文｜CP **
+**发布时间｜25/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國新冠死亡率逐日攀升-喪葬業全行告急.jpg)
 
-中共国已成为拉丁美洲大型发展项目融资和建设的战略参与者，对拉丁美洲人的生活和权利产生了直接影响。更令人担忧的是，该地区21个国家已经加入了中共“一带一路”倡议（BRI），这是一项投资于近70个国家和国际组织的全球基础设施发展战略。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-中共政府参加了三个周期的普遍定期审议（普遍定期审议：2009年、2013年和2018年），在最后一个周期中，中国投融资、人权与环境有关部门共同编写了八份关于其公司和银行在拉丁美洲活动的域外责任的报告。由于这一宣传过程，中共做出了几项承诺，接受了六项建议，包括履行在中国境外所有商业业务中尊重和保护人权和环境的域外义务。
 
-该报告题为《拉丁美洲的人权与中国商业活动》，根据对中共参与的26个项目中侵犯人权和自然权利行为的审查，评估了中国在最新普遍定期审议中通过的建议的遵守情况。该报告涉及23个财团和至少6家银行，它们参与开发采矿（12个）、水电（6个）、石油和天然气（3个）以及其他（5个）部门的项目。
+韩国卫生当局周二（22日）报告新增384 例 COVID-19 死亡个案，连续第六天超过 300 例，总死亡人数达到 13,141 人。而上个月的每日死亡人数均低于 100 人。
 
-本报告的总体结论是，中共政府没有做出足够的努力来履行上次普遍定期审议中做出的承诺，2018年描述的侵犯权利模式仍然是系统性的。在此次重大调查的结果中发现，24起案件侵犯了在健康环境中和无损害环境中生活的权利；在18起案件中，侵犯了参与权以及自由、事先和知情协商和同意权，一半案件侵犯了土地权、领土权和适足住房权。同样，中共在拉丁美洲的一些商业项目经常存在违反基本民事、政治行为的行为。
+由于 COVID-19 死亡人数在短期内急速增加，殡仪馆首当其冲受到巨大压力。首尔国立大学医院负责人吴成铉表示，最近几周，该院的 13 个殡仪馆几乎全数爆满，加上火化设施有每日可承受的上限，死者家属经常不得不延后葬礼。据公开数据显示，韩国公共火葬设施的日容量已经从 3 月 4 日的 1,044 例增加至 1,424 例。
 
-信息来源：[New report examines rights violations by Chinese business activities in Latin America](https://www.fidh.org/en/issues/globalisation-human-rights/business-and-human-rights/violations-chinese-business-latin-america-report)
+对此，韩国中央灾害与安全对策本部宣布，提高全国公共火葬场的容量，并指示殡仪馆增加更多的冰箱来储存死者，以应对日益增加的 Covid-19 死亡人数。
 
-**编辑：东京樱花团/喜马拉雅的微尘**
-**发布：东京樱花团/**yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-4.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+目前，当局已将全部 60 个公共火葬场的每日熔炉作业量增加到每单位 7 次，同时建议地方政府暂时允许当地火化设施跨区域处理其他地区的尸体，另外，由于全国 1,136 家殡仪馆的最高可容纳仅8,706 具尸体，因此，卫生官员要求各殡仪馆务必尽快安装额外的冰柜或带冷却系统的房间来增加容量。
+
+不过，这仍然不足以缓解类似首尔这样的人口大都市正面临的尸体积压难题。
+
+**来源｜**[**thestatesman**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)**、**[**abcNews**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 
