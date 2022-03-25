@@ -2,8 +2,8 @@
 ---
 
 
-## 20220323文贵大直播：战争打得都是钱 将来俄罗斯中国一定被肢解
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2228037/)
+## 20220323文贵大直播：疫苗灾难导致互害的报复社会行为将越来越多
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2228081/)
 
 作者：东京樱花团小视频组
 

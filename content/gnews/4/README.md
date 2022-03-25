@@ -2,28 +2,40 @@
 ---
 
 
-## 联大以压倒性多数通过决议要求俄罗斯停战 中共国依然弃权
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228565/)
+## 克里斯汀·安德森火力全开 痛斥特鲁多为暴君！
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228682/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+**翻译: 里奇**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+北约成员国今天在布鲁塞尔开会讨论俄罗斯对乌克兰的战争。
 
-3月24日，联合国大会以压倒性多数通过了一项决议，要求俄罗斯立即停止对乌克兰的战争，而中共国再一次弃权。
+包括加拿大贾斯汀·特鲁多在内的北约领导人今天出席了会议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-22.png)（图片来自美联社）
+今天早些时候，克罗地亚政治家米斯拉夫·科拉库西奇当面指责加拿大总理贾斯汀·特鲁多的独裁行为。
 
-据《德国之声》报道，这项决议由乌克兰推出，并得到80多个国家联署。决议要求俄罗斯立即停止战争，还要求保护所有平民、平民设施以及人道和医务工作者和记者。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip克里斯汀·安德森火力全开-痛斥特鲁多为暴君！.png)
 
-经过一番表决后，这项决议获140票支持，5票反对和38票弃权。表决结果基本与3月2日的联大表决类似，当时有141个国家谴责俄罗斯入侵并呼吁俄罗斯立即撤军。
+加拿大总理特鲁多在布鲁塞尔与北约会晤。一位克罗地亚政治家借此机会以独裁者称号来迎接他。今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森 (Christine Margarete Anderson) 担任欧洲议会的德国替代 (AfD) 议员，再次撂倒暴君特鲁多。
 
-对这项人道主义决议投反对票的五个国家也是当时投反对票的五国：俄罗斯、白俄罗斯、厄立特里亚、朝鲜和叙利亚。
+克里斯汀·安德森（Christine Anderson）：“那么这样一位公开钦佩中共国完全独裁政权的首相……他践踏基本权利，仅仅因为人们敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子……根本不应该被允许在这个屋子里说话。
 
-关于俄乌战争，中共国的态度一直备受关注。在3月2日联合国决议上中共国投弃权票之后，世界各国已多次呼吁其谴责俄罗斯的入侵行为，但遗憾的是，这一次中共国又投了弃权票。
+”特鲁多先生：你是民主的耻辱。请不要打扰我们。”
 
-参考链接：
-[https://reurl.cc/yQVpd8](https://reurl.cc/yQVpd8)
+太棒了！干得好，克里斯汀·安德森！
 
-总编：青城道姑
-校对发布：Linda
+**新闻来源**: [thegatewaypundit][Christine Anderson Brings THE FIRE: Second European Official Calls Out Tyrant Justin Trudeau to His Face! (VIDEO)](https://www.thegatewaypundit.com/2022/03/christine-anderson-brings-fire-second-european-official-calls-tyrant-justin-trudeau-face-video/)
+
+**审核：文乐
+校对：花羽
+发布：信心满满**
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
 
  
 

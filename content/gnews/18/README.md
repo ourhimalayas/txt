@@ -2,41 +2,22 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2228279/)
+## 乌克兰国家银行限制每月10万格里夫纳的准现金业务和个人海外转账
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2228304/)
 
-**整理：枳实**
-**美工：精灵蓝**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2935.png)
-图片：雅典娜农场设计组精灵蓝
+翻译：雄起（酷翻组）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/wukelanguojiayinhang.jpeg)
+乌克兰国家银行（NBU）已经限制了每月等价10万格里夫纳（UAH）的准现金业务以及使用付款人和收款人的银行卡信息将资金转移到国外个人账户（P2P转账）。
 
-雅典娜疫情更新（2022年 3月25日）
+国家银行3月21日第58号决议批准了相关修改，该决议已在其网站上公布并已生效。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+据悉，准现金业务包括充值电子钱包、经纪或外汇账户、支付旅行支票和购买虚拟资产。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2936.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2937.png)
-[2022年3月25日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月25日改进.pdf)
+相关链接：
+[NBU limits UAH 100,000/month quasi cash operations and P2P transfers abroad](https://en.interfax.com.ua/news/general/816704.html)
 
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+审核校对：Barry Jack
+上传排版：F
 
  
 
