@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登警告粮食短缺将成为现实
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2228532/)
+## 拜登总统表示，如果俄在乌使用化学武器，我们 “将回应”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2228566/)
 
-03/24/2022 拜登警告说，粮食短缺将成为现实。 制裁的代价不仅是强加给俄罗斯，还有许多其他国家。
+03/24/2022 美国总统乔·拜登表示，应将俄罗斯驱逐出20国集团，如果俄罗斯在乌克兰使用化学武器，美国和北约将作出回应
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,22 +2,32 @@
 ---
 
 
-## 世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2227929/)
+## 芬兰将向乌克兰提供更多的国防装备
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228033/)
 
-视频：东京樱花团/战友520
-![](https://gnews.org/4a73b664-8608-45ba-b6e2-f6da9f19d7c6)
-月18日，世界CDN巨头Akamai 官网发文，表示很高兴达成与喜马拉雅交易所的合作，并在文中介绍了喜交所的运营目标，基本运行结构和强大的安全防御系统。Akamai与喜马拉雅交易所达成合作，标志着喜币、喜美元迈出里程碑式的一步。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/103-1.jpeg)
-信息来源： 世界CDN巨头Akamai在官网隆重介绍喜马拉雅交易所 超链接：[https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/](https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/%E3%80%91%EF%BC%88%E6%B3%A8%E9%87%8A%EF%BC%9A%E4%BF%A1%E6%81%AF%E6%9D%A5%E6%BA%90%E4%BB%A5%E8%B6%85%E9%93%BE%E6%8E%A5%E7%9A%84%E6%96%B9%E5%BC%8F%E4%BD%93%E7%8E%B0%EF%BC%8C%E8%AE%BE%E7%BD%AE%E4%B8%BA%E5%9C%A8new)
-Himalaya Exchange Creates a New Digital Financial System 
+撰稿：JIHO
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-20.png)图为芬兰国防部长安蒂·凯科宁 图片来自Ilta-Sanomat
+根据芬兰MTV新闻3月24号消息，芬兰国防部通报芬兰将向乌克兰提供更多的国防装备。为了确保援助物资的交付，该部没有具体说明向乌克兰运送物资的时间表和方式。
 
-超链接：[https://www.akamai.com/blog/edge/himalaya-exchange](https://www.akamai.com/blog/edge/himalaya-exchange%E3%80%91)
+这次援助的内容也没有公开，例如，现在是否将武器与其他国防装备一起交付给乌克兰。
 
-编辑：东京樱花团/曲别针 
-发布：东京樱花团/bohdan博赫丹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997.png)
+据该部称，提供援助不会危及芬兰自身的防御能力。
 
+– 这些运输有其自身的风险，这就是为什么我们有如此严格的信息线。我希望这被理解，这么做可能有些智慧在里面，国防部长安蒂·凯科宁在议会对记者发表评论。
+
+– 北约和欧盟都建议，正是出于安全原因，这种克制的路线是相当明智的。
+
+今天，芬兰总统绍利·尼尼斯托就政府提议对此事作出正式决定。
+
+芬兰此前曾向乌克兰运送过包括武器在内的国防装备。2月底，芬兰决定运送2500支突击步枪、15万发子弹、1500支一次性步枪和75000包战斗弹药。甚至在此之前，帐篷、防弹背心和头盔已经被送往乌克兰。
+
+在俄罗斯进行了一个月的大规模侵略战争期间，乌克兰要求欧洲国家提供与国防和军备有关的物质援助。
+
+参考链接：
+[https://www.mtvuutiset.fi/artikkeli/suomi-antaa-lisaa-puolustustarvikkeita-ukrainaan/8386516?mtv\_ref=twb\_uutiset\_uusimmat#gs.v0uhs4](https://www.mtvuutiset.fi/artikkeli/suomi-antaa-lisaa-puolustustarvikkeita-ukrainaan/8386516?mtv_ref=twb_uutiset_uusimmat#gs.v0uhs4)
+
+总编：青城道姑
+校对发布：Linda
 
  
 

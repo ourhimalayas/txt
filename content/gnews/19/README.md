@@ -2,42 +2,24 @@
 ---
 
 
-## 澳洲政商大佬逃离医院 竟靠这些药战胜新冠病毒
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2228587/)
+## 资本逃离香港意味着中美之战已经开始
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2228647/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-6.png)
-撰稿：一碗兰州（文远）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-51.jpg)图片来自网络
-据英国每日邮报报道，澳大利亚政治名人、亿万富翁克莱夫·帕尔墨(Clive Palmer)感染新冠病毒（中共病毒）后呼吸困难，他拒绝了医院使用呼吸机的建议，回家后使用伊维菌素、羟氯喹等药物逐渐恢复了健康。
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月20日的大直播中，郭先生表示，资本逃离香港跟疫情与中共病毒疫苗无关，而是投资者已经意识到，中美之战已经彻底打响。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-91.jpg)
+根据郭先生所掌握的情报，香港的投资者绝大部分已经认识到，中共与美国之间的对决已经拉开了帷幕。自俄乌战争爆发以来，美中两国多轮谈判与视频会晤，都清楚地表明中共与俄罗斯站在了同一阵营，共同对付西方民主国家。美国民众普遍认为，拜登政府对待中共和俄罗斯过于软弱，因此美国政府必将有进一步的行动。无论中共是否攻打台湾，美国对中共的金融与经济制裁，必将传导到香港股市。
 
-2月27日，帕尔墨先生感染了Delta型新冠病毒（中共病毒）后被紧急送往澳大利亚黄金海岸的Pindara私立医院，在重症监护室，他拒绝了医务人员给他使用呼吸机的建议，随即离开医院返回家中。
+参考链接：[3/20/2022 文贵直播：资本逃离香港跟疫情和疫苗无关，而是因为投资者意识到中美之战已经开始；比特币被伊朗、华尔街、沼泽地、中共和俄罗斯控制，2%的人拥有96.6%的人的比特币，比特币就是个骗局！](https://www.gettr.com/post/p11ezix2b51)
 
-他的同事联系了美国肠胃病学家和伊维菌素倡导者Thomas Borody教授，后者带来了美国专家团队，通过网络诊疗，使用包括伊维菌素、羟氯喹在内的药物，仅仅十个小时内病情开始好转。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture3-12.jpg)
-图片来自网络：克莱夫·帕尔默在豪宅中接受治疗，救护车在旁边待命
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-帕尔墨先生告诉澳大利亚天空新闻：“否则我会死的，毫无疑问。“
-
-“有人告诉我，如果没有那个星期天晚上的抗病毒干预，我可能会在五小时内死去。”
-
-“美国专家，其中有几位为川普治疗过新冠肺炎，他们非常坚决不使用呼吸机。”
-
-“我对美国医生有信心，我不是在批评Pindara（医院）的人，他们认为通风是必要的，但我有其他建议，我坚持了下来。”
-
-尽管澳洲政府建议民众接种疫苗，但帕尔墨先生依旧没有接种疫苗的打算，他称这是“最佳选择(pro choice)“。
-
-现年68岁的克莱夫·帕尔墨是澳洲矿业巨头、前议员和澳大利亚联合党的创始人，以22亿美元资产位列全球福布斯财富排行榜第1426位。
-
-参考消息：
-
-美国每日邮报：[Unvaxxed Clive Palmer credits controversial drugs with saving his life and beating Covid – after mining magnate fled hospital when doctors wanted to put him on a ventilator](https://www.dailymail.co.uk/news/article-10646249/Clive-Palmer-claims-DIED-Coviud-without-ivermectin.html)
-
-福布斯网排名：[Clive Palmer](https://www.forbes.com/profile/clive-palmer/?sh=d7483a54a970)
-
-*审核：信心满满*
-
-*发布：信心满满*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+总编: 宁文静
+编辑: 飞虹
+审核：Irene木木
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,36 @@
 ---
 
 
-## 有声|联合国称俄罗斯难以取胜 应谈判停火
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2228731/)
+## 岸田首相派遣古河法务大臣前往波兰接收难民
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228926/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月22日，联合国秘书长古特雷斯在一份声明中指出，俄罗斯的这次侵略战争无法获得胜利，俄方应尽快停火并与乌克兰进行谈判。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-54.jpg)
-声明中，古特雷斯认为，俄军虽然可以炸毁乌克兰的一座城市，但乌克兰人的精神不能被征服，因此，莫斯科当局注定不可能在这场战争中取胜。而俄罗斯作为“侵略者”对乌克兰平民恐怖的系统性攻击已经让乌克兰沦为人间地狱。目前，一万多万乌克兰人被迫逃离了他们的家园和祖国。为此，俄罗斯持续这样的侵略战争是荒唐且不可被接受的。与此同时，墨西哥和法国正在努力起草一项决议，要求联合国保护乌克兰平民、民用基础设施和人道主义工作者。
+翻译：Orpheus
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/sw-1.jpg)图片来源：NHK新闻
 
-而乌克兰总统泽连斯基则在次日的演说中表示，俄罗斯已经占领了乌克兰包括切尔诺贝利在内的大型核电厂，且俄军或将在接下来的行动中使用生化武器及核武器。对此，乌克兰希望国际社会可以继续对俄罗斯施压，并停止与俄罗斯的贸易，从而使得这场战争可以尽快结束。
+日本时间25日凌晨1点前，岸田首相在比利时会见了正在访问的波兰总理莫拉维茨基，并告知他打算派遣法务大臣古川作为其特使前往波兰，推进乌克兰难民的收容。
 
+其中，岸田首相表示，”俄罗斯对乌克兰的侵略是一个严重的形势，不仅在欧洲，而且动摇了包含亚洲在内的整个国际秩序的基础，我们把它当作自己的事情，正在为了实施严格的制裁并给予乌克兰支持”。
 
+两位领导人随后一致认为，有必要以坚定的决心支持正在努力捍卫自己家园的乌克兰人民。
 
-文字版原文：[联合国称俄罗斯难以取胜 应谈判停火](https://gnews.org/zh-hans/2223012/)
+岸田首相解释说，我国正在建立一个系统来接收流离失所的乌克兰人，并支持他们的日常生活。他告诉首相，他打算派遣法务大臣古川作为特使前往波兰，以便准确评估当地居民的需求。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+岸田首相还与加拿大总理特鲁多和北约秘书长斯托尔滕贝格进行了简短会晤，并确认他们将在处理乌克兰局势方面密切合作。
+
+参考链接：[岸田首相 避難民受け入れのため 古川法相をポーランドに派遣へ | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220325/k10013550691000.html)
+
+* * *
+
+审核：BryanW
+校对/发稿：宫米叶
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,27 @@
 ---
 
 
-## 有声|乌克兰在战争中的损失难以估量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2228915/)
+## 七哥谈灭共的芯片—格芯（4）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2229001/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月23日，据联合国当天发布的一份最新报道显示，自俄罗斯入侵乌克兰以来，战争已经使乌克兰超过90% 的居民陷入贫困和极度脆弱的困境，长此以往，乌克兰经济可能会倒退20年。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-7.jpeg)
-数据表明，俄乌战争已经让超过一千八百万人受到影响，他们当中的绝大多数业已流离失所。在乌克兰境内，二分之一的当地企业已完全关闭，其余的则被迫以远低于正常产能的方式运营。同时，乌克兰邻国一直在努力接纳超过 300 万难民。这一系列相关人员所需要的补贴每月超过4.3亿美金。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥谈灭共的芯片—格芯（4）.png)[图片来源](https://www.chinatimes.com/realtimenews/20211028005440-260410?chdtv)
 
-目前，联合国开发署和难民署正在合作制定新的重建计划，用以通过创收和就业来支持难民和收容社区。此外，美国联邦政府近期也为在美乌克兰人提供申请临时保护身份的渠道。据悉，约有七万五千乌克兰人将有可能在美国获得临时驱逐救济和工作许可证。
+现代的芯片最核心的东西是什么呢？大家没有注意到，就是全世界都在抢的是芯片的整个的工人。
 
+过去只说技术，它有摩尔定律，每18个月来一次。现在已经摩尔定律已经完全屈服于，就是谁来给你生产？它不受百分之百的机械化，机械人的。那么这些人生产的，真的是大陆、台湾、新加坡、亚洲人是最多的。但现在很多人已经被共产党给撵到外面来了，也就是说现在生产基地基本上往欧洲。你看现在七千个人在纽泽西，三千个人在burlington(伯林顿)，然后在整个新加坡有五千人，然后现在他们要在日本建一个大的一个基地。
 
+信息源：谢谢文远战友提供素材
 
-
-
-文字版原文：[乌克兰在战争中的损失难以估量](https://gnews.org/zh-hans/2223501/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

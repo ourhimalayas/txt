@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|俄罗斯侵略行为屡受挫 国际制裁进一步加码
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2228983/)
+## 七哥谈灭共的芯片—格芯（5）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2229025/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间3月22日，据相关媒体报道，企业家埃隆·马斯克向乌克兰提供的星链卫星终端正在帮助乌克兰军方摧毁入侵的俄罗斯坦克。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-6.jpeg)
-另据乌克兰内政部顾问发布的消息显示，由于俄罗斯士兵在乌克兰境内会使用当地的手机号码，乌克兰情报单位通过定期向这些号码发送劝降短信而成功说服一名俄罗斯士兵驾驶一辆T-72坦克向乌方投降。在乌克兰当局通过卫星无人机确认过安全后，这名俄罗斯士兵目前已经被妥善安置在保护区内。这名士兵也透露，俄军内部目前粮食供应严重不足，且管理相当混乱，很多俄罗斯军人已经逃离了战场。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥谈灭共的芯片—格芯（5）.png)[图片来源](https://upload.wikimedia.org/wikipedia/commons/9/95/Aerial_photograph_of_Globalfoundries_Dresden.jpg)
 
-而鉴于莫斯科当局坚持发动的对乌侵略战争，国际社会正在进一步推动对俄罗斯的制裁。当天，78架俄罗斯飞机在境外被扣押。同时，包括美国在内的西方国家将禁止企业向俄罗斯供应民用飞机和相关零部件。此外，美国两党参议员正在与财政部讨论冻结俄罗斯约一千三百二十亿美元的全部黄金储备。而波兰政府也在当天提议，将俄罗斯逐出二十大工业集团，即G20组织。目前，该提议已经得到了正面的回应。
+说实在话，格芯跟喜币，跟我们G系列的升值，那差太远了，是吧？而且他们的老板也都投了我们的，是不是？他都投了我们的，这就证明了这一点了嘛。
 
+那对我们最重要的是在技术领域，我们有话语权。我们没有话语权以后，那在技术领域我们会失去很多的。例如，我们未来自己的通信系统，我们一定会做的。我们在太空一定会发射我们自己的卫星的，我们新中国联邦一定会发射自己卫星的。自己的卫星我们用的芯片一定不会来自别人的，我们必须百分之百保证安全。
 
+就象我们昨天晚上还在进行的那个事情，去救我们的战友的时候，用的就是一个我们完全的一个合作者的自己研发的手机系统，把战友给救出来了，绝对安全，绝对保密，绝对高科技。但是未来这种系统一定属于我们的，所以它对我们的意义深远之处，是在于技术上我们的独特性和安全性，还有稳定的投资。再一个我们在世界上科技领域的地位。
 
-文字版原文：[俄罗斯侵略行为屡受挫 国际制裁进一步加码](https://gnews.org/zh-hans/2223674/)
+信息源：感谢文远战友提供素材
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
