@@ -2,28 +2,35 @@
 ---
 
 
-## 媒体宣传隔离营的美好生活
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2228299/)
+## MV版Hcoin To the Moon上线106天第40次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2228402/)
 
-作者：东京樱花团  阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/媒体宣传隔离营的美好生活.jpg)
+3/25/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线106天第40次位列匈牙利iTunes热门音乐视频榜榜首，第55次位列前三名
 
-港府花费巨资由中建集团独家承建的方舱隔离营，因内部设施简陋，医疗资源不足，后勤能力薄弱，备受入住市民批评。但昨日有媒体采访入住青衣隔离营的市民，指营房间宽敞，有冷暖空调和名牌床褥，致电要求有求必应，职员贴心提供雨伞和雨衣方便患者出入公厕，饭食良好，生活物资一应俱全，对当局让她入住舒适的隔离设施表示感恩。
+* * *
 
-分布在香港各区的方舱隔离营可以容纳超过5万港人，这些简陋的仓房设计与其标榜的隔离防疫牛头不对马嘴，房间多人居住，共用卫生设施，仓房前后间距短，根本不符合传染病防治要求，何况检测试剂的准确性不及五成，很多假阳性的市民被押送入营，与真阳性者混居而被感染。隔离营只需要一周时间就能完工，似乎很切合强制防疫政策，但管理如此庞大的隔离营却不是一朝一夕的事，隔離營醫生和患者的比例為1：700，内地医生入住后，比例稍微提高到3：700，可见港府根本没有往隔离营投入医疗资源的念头，更别提会真正救治被他们囚禁在此的患者。被检测呈阳性的市民都被要求入住各区的隔离营，入营的市民满心期待能得到及时有效的治疗早日回家，有些人甚至带备了干粮，因为没有人会奢望隔离营有多好的服务提供。但让人大失所望的事情不断发生，有入营的市民经过多日的检测均呈阴性，但却被拒绝离开营地；有身患慢性疾病的市民缺乏药物，却被告知要自行解决，但又禁止离开营地；有阳性市民入营多日都没有医生提供药物；饭菜供应更是一团糟，味道怪异甚至有变质之疑，有市民不甘被长期羁押，冲出营房集体抗议，夜空下的隔离营不时传出阵阵嘶吼和豪哭声，有市民将大量营内生活的影片和照片公布在社交平台上，引发港人极大的愤慨，但港府兴建隔离营的步伐并未停止。昨日有媒体独家采访方舱隔离营的市民分享营中的美好生活，新闻报道字里行间都流露出隔离营的人文关怀，给人营造出入住隔离营是一种享受的错觉。如果这事发生在往日的香港，其可信程度一定非常高，但如今在中共独裁下的香港，人人都明白这些美好的文字只不过是用来掩饰中共邪恶政权的罪恶罢了。被中共赤化的港府绝不会意识到政策对市民造成的伤害，只会加大文宣的投入，用更大的假来遮盖之前的丑恶。
+[【PDF 下载】Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-资料来源：
-[獨家｜確診者入住青衣方艙醫院 大讚設備好服務佳](https://hd.stheadline.com/news/realtime/hk/2322805/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E7%8D%A8%E5%AE%B6-%E7%A2%BA%E8%A8%BA%E8%80%85%E5%85%A5%E4%BD%8F%E9%9D%92%E8%A1%A3%E6%96%B9%E8%89%99%E9%86%AB%E9%99%A2-%E5%A4%A7%E8%AE%9A%E8%A8%AD%E5%82%99%E5%A5%BD%E6%9C%8D%E5%8B%99%E4%BD%B3)
+* * *
 
-*校对：东京樱花团/文小白
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+
+
+[【PDF 下载】Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

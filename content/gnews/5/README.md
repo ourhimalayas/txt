@@ -2,28 +2,27 @@
 ---
 
 
-## 美情报评估俄罗斯导弹故障率达60%
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228231/)
+## 七哥说—第59期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228351/)
 
-**撰稿：日本东京方舟农场  子辰**
+**制作：Inzaghi**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
+**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-24_10.02.19.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_9.45.55.png)
 
-3月24日，路透社引述三位了解情报的美国官员的消息说，俄乌之战中，俄罗斯用于攻击乌克兰的一些精确制导导弹的故障率高达60%。
+发稿：信心满满
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-41.jpg)（图片来自大纪元 ）
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
 
-据悉，出于信息敏感，这些官员没有提供评估证据，或透露是什么原因导致俄罗斯导弹的高失败率。但是这一披露可能有助于解释，为什么俄罗斯自入侵以来未能达到大多数人认为的基本目标，而导弹高故障率可能包括从发射失败到导弹在撞击时未能爆炸等各种情况。
 
-美国国防官员告诉媒体，根据五角大楼的评估，俄乌开战以来，俄罗斯已经发射了超过1,100枚各类导弹，其中数据取决于发射的导弹类型，有时失败率可能超过50%。其中两名官员说，失败率高达60%。
-
-另据华盛顿智库战略与国际研究中心的导弹防御项目显示，俄罗斯在乌克兰部署了两种类型的空射巡航导弹，即Kh-555和Kh-101,路透社采访的两位专家说，20%及以上的故障都被认为是高的。
-
-此外，俄罗斯在乌克兰战争中一直使用导弹轰炸，包括武器库在内的军事目标进行打击，数据显示，都有很高的失败率。
-
-参考链接： 
-[https://www.epochtimes.com/gb/22/3/25/n13671253.htm](https://www.epochtimes.com/gb/22/3/25/n13671253.htm)
-
-总编：青城道姑
-校对发布：Linda
 
  
 

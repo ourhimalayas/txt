@@ -2,27 +2,25 @@
 ---
 
 
-## 俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226041/)
+## 樱花时政┃瑞士已冻结超过61亿美元的俄受制裁资产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226140/)
 
-**图/文｜CP**
-**发布时间｜25/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英國進一步制裁俄羅斯-涉及65個實體及個人.jpg)
+撰稿：东京樱花团/上善若水
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+瑞士联邦经济事务官员欧文·布林格3月24日表示，瑞士已冻结价值57.5亿瑞士法郎（约合61.7亿美元）的俄在瑞资产，总额将继续增加，已涉及近900个人和62家公司。自中立国瑞士因俄罗斯入侵乌克兰而开始对其采取欧盟制裁以来，该国政府一直拒绝估计被冻结或可能受到制裁的俄罗斯资产规模。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-127.jpg)[图片来源](https://www.trtworld.com/business/switzerland-freezes-over-6b-worth-of-russian-assets-under-sanctions-55776)
+布林格指出：“所引用的远远超过50亿瑞士法郎的数字是瞬时数字，随着进一步报告的出现和欧盟制裁名单的潜在增加这个数字会进一步上升。”
 
+自俄乌战争爆发后，瑞士联邦委员会2月28日举行特别会议，决定参与欧盟对俄制裁计划，冻结俄有关个人和机构资产，禁止瑞士公司与被制裁对象进行业务往来。
 
-**英国外交大臣卓慧思（Liz Truss）周四（24日）宣布新一轮对俄罗斯的制裁措施，涉及65个实体及个人，主要针对战略行业、银行和商业精英。**实体方面，包括俄罗斯铁路﹑生产俄罗斯无人机的国防公司Kronshtadt、瓦格纳集团（据称是负责暗杀泽连斯基的俄罗斯雇佣军组织）、全球最大的钻石生产商 Alrosa 及6间银行等。而个人方面，万富翁石油大亨尤金·施维德勒（Eugene Shvidler）、俄罗斯外长拉夫罗夫继女波琳娜·科瓦列娃（Polina Kovaleva），以及被俄军扶植成梅利托波尔（Melitopol）代理市长的丹尼尔琴科（Galina Danilchenko）。
+据欧盟3月22日介绍，目前，欧盟采取的相关制裁措施总共适用于俄罗斯及白俄罗斯的877名个人和62个实体。
 
-所有被制裁对象在英国的资产将全部冻结，并禁止往返英国。预计实体总资产达 5000 亿英镑，寡头及家属的个人净资产超过1500亿英镑。自俄罗斯入侵乌克兰以来，英国已经制裁了俄罗斯1000多名个人和企业。
+信息来源：[瑞士已冻结超过61亿美元的受制裁俄罗斯在瑞资产](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220325-%E7%91%9E%E5%A3%AB%E5%B7%B2%E5%86%BB%E7%BB%93%E8%B6%85%E8%BF%8761%E4%BA%BF%E7%BE%8E%E5%85%83%E7%9A%84%E5%8F%97%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E7%91%9E%E8%B5%84%E4%BA%A7)
 
-卓慧思表示：“这些企业寡头与受雇的暴徒合谋杀害无辜的百姓，为此，让他们付出应有代价是合乎公义的。普京不应该再抱有任何幻想，我们和盟友们团结一致，会继续收紧对俄罗斯的经济制裁，以确保他们对乌克兰的侵略失败。”
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-來源｜[Gov.UK](https://www.gov.uk/government/news/foreign-secretary-announces-65-new-russian-sanctions-to-cut-off-vital-industries-fuelling-putins-war-machine)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

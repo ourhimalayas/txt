@@ -2,41 +2,30 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2228279/)
+## 广东访民：被诬陷去过疫区关酒店变相维稳
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228364/)
 
-**整理：枳实**
-**美工：精灵蓝**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2935.png)
-图片：雅典娜农场设计组精灵蓝
+**撰稿：日本东京方舟农场  子辰**
 
-雅典娜疫情更新（2022年 3月25日）
+近期，广东访民郑志鹏在北京被蹲守的地方官员截回惠州，构陷他从疫区回来需医学观察14天，最终被变相维稳关进一家私设的隔离酒店。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-42.jpg)（图片来自大纪元 ）
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2936.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2937.png)
-[2022年3月25日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月25日改进.pdf)
+据悉，郑志鹏家住惠阳区良井镇北联村。2008年，他因一场车祸造成骨盆受伤，未获公正赔偿，此后他坚持维权，并举报医院犯罪黑幕。期间他经历了当局的无数次关押、判刑，抄家、软禁，遭受手脚被绑铁链酷刑，警察还曾逼他跳楼自杀。
 
-数据来源：
+郑志鹏说，为了躲避维稳，他的手机一直关机不能正常使用，自上访以来，自己被监控15年了，而且一直是超高压管控，他说自己已经是一种风向标了，有什么会议，或是香港或什么地方有事情就会被维稳。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+郑志鹏向大纪元记者说，“参与此次维稳的官员有惠阳区副区长、惠阳区公安分局局长林筱山、惠阳区良井镇政府副书记曹宏宇、惠阳区良井派出所所长宋国兵、惠阳区良井镇政府武装部部长、村委和驻京办人员等。”
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+郑志鹏说，他的家门外被安装了摄像头，365天全家人都被全方位监控。他的母亲因长年被监控和骚扰，几年前心脏出现问题。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+不能解决问题，就把提出问题的人解决了，邪恶的中共政府对打压上访人员的力度随着老百姓上访数量的增多，日趋激烈。而正如新中国联邦创始人郭文贵先生所说，只有消灭了最邪恶的中共，这些问题才能彻底得到解决。
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+参考链接： 
+[https://www.epochtimes.com/gb/22/3/25/n13672042.htm](https://www.epochtimes.com/gb/22/3/25/n13672042.htm)
 
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+总编：青城道姑
+校对发布：Linda
 
  
 

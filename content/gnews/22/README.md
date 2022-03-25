@@ -2,29 +2,24 @@
 ---
 
 
-## 财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2227949/)
+## 郭文贵先生警告世人的“千万不要打疫苗❗️真正的疫苗灾难还没有来临❗️”再一次被证实
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2227957/)
 
-**图/文｜CP **
-**发布时间｜25/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/貝萊德CEO：俄烏戰爭終結全球化-加快數字貨幣發展.jpg)
+编译：波士顿五月花—-思澈
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+美国一线医生警告，到2022年秋季将会百万人因为疫苗被感染艾滋病。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/29CBBBBB-9717-4136-B36B-7F28B4186B44.jpeg)
+
+美国医生伊丽莎白•伊兹（Elizabeth EADS)博士是一位行医25年的一线医生，她在接受采访时说，她治疗的中共病毒疫苗接种者因为注射了三次疫苗而出现了艾滋病症状，她和她的同事用伊维菌素，硫酸羟氯喹以及其他抗寄生虫药物尽力治疗因为注射疫苗而患病的人。伊兹博士进一步解释说，病人接种的中共病毒疫苗越多，他们的自身免疫和神经退行性症状就越严重，并称第三剂疫苗为 “致命一击”。因为加强针对免疫系统是毁灭性的，疫苗中的尖峰蛋白即是慢病毒，伊兹博士指出，尖峰慢病毒是由艾滋病毒和艾滋病以及SARS和MERS组成的。未来几个月毒疫苗的损害情况会更严重，将有更多的艾滋病病例被诊断出来，特别是在18-39岁的人群中。而在中年人即40岁至50岁的人，免疫系统可能会在明年崩溃。
+
+短评：郭文贵先生从毒疫苗的出现就开始警告世人“千万不要打疫苗❗️真正的疫苗灾难还没有开始降临❗️”
+
+素材来源：[https://uncutnews.ch/frontline-doktor-millionen-werden-bis-zum-herbst-aids-von-den-covid-impfstoffen-bekommen/](https://uncutnews.ch/frontline-doktor-millionen-werden-bis-zum-herbst-aids-von-den-covid-impfstoffen-bekommen/)
+
+*发布：思澈*
 
 
-全球最大资产管理公司贝莱德/黑岩（BlackRock）行政总裁芬克（Larry Fink）周四（24日）公布了一份写给股东的公开信，他在信中写到，俄罗斯对乌克兰发起的战争预示着30年的全球化已经终结，因为这场冲突颠覆了自 1990 年冷战结束以来形成的世界秩序，并将产生持久的全球经济后果。
-
-芬克警告指，过去两年全球因疫情导政的供应链中断，令全球通胀加剧。俄乌战争的爆发更进一步令供应链大规模地重新定位，促使企业退出全球供应链，让各国央行在价格上涨或经济活动减少之间做出艰难的选择。
-
-另外，芬克特别提到战争对数字货币的影响，他认为这场战争会促使各国重新评估对货币的依赖性，贝莱德亦因客户对加密货币的兴趣增加，而正在研究数字货币和稳定币以及相关技术。他指出，“一个精心设计的全球数字支付系统，可以加强国际交易的结算，同时降低洗黑钱和贪腐的风险。”
-
-芬克在信中所表达的观点与去年接受采访时的说法有很多变化，当时芬克对记者表示，他对数字货币的波动性有担忧，并认为现时将它视为一种交易工具还为时过早。
-
-來源｜[BlackRock](https://www.blackrock.com/corporate/investor-relations/larry-fink-chairmans-letter)、[Forbes](https://www.forbes.com/sites/sergeiklebnikov/2022/03/24/blackrock-ceo-larry-fink-says-russia-ukraine-war-is-upending-world-order-and-will-end-globalization/?sh=1368c14057eb)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

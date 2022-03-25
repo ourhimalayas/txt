@@ -2,22 +2,12 @@
 ---
 
 
-## 乌克兰国家银行限制每月10万格里夫纳的准现金业务和个人海外转账
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2228304/)
+## 欧盟议会成员克里斯蒂娜·安德森：贾斯廷·特鲁多是民主社会的耻辱
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2228489/)
 
-翻译：雄起（酷翻组）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/wukelanguojiayinhang.jpeg)
-乌克兰国家银行（NBU）已经限制了每月等价10万格里夫纳（UAH）的准现金业务以及使用付款人和收款人的银行卡信息将资金转移到国外个人账户（P2P转账）。
+03/23/2022 欧盟议会成员克里斯蒂娜·安德森 ：贾斯廷·特鲁多不应被允许在欧洲议会讲话，因为他是民主社会的耻辱。
 
-国家银行3月21日第58号决议批准了相关修改，该决议已在其网站上公布并已生效。
-
-据悉，准现金业务包括充值电子钱包、经纪或外汇账户、支付旅行支票和购买虚拟资产。
-
-相关链接：
-[NBU limits UAH 100,000/month quasi cash operations and P2P transfers abroad](https://en.interfax.com.ua/news/general/816704.html)
-
-审核校对：Barry Jack
-上传排版：F
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
