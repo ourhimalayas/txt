@@ -2,40 +2,29 @@
 ---
 
 
-## 樱花FM|樱花时政:乌副总理怒斥赵立坚：德不配位有辱国格！
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229696/)
+## 喜联储致力于打造最安全稳定的金融系统
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229953/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032523.png)
+作者：银河系农场 骄子， 澳喜农场 Leo M
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月23日的大直播中，郭先生指出，喜联储摒弃了当今金融系统对财富的控制，以严格的法律KYC，最先进稳定的技术，保障财富拥有者自由地、安全地支配合法资产。
 
-日前，针对中共外交部公开反对美国向乌克兰提供武器援助，乌克兰副总理予以公开驳斥。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-7.jpeg)
 
-乌副总理韦列舒克对中共外交部发言人有关反对美国向乌克兰提供武器，宣称乌克兰缺少食物和毯子的发言十分反感。
+郭先生解释，911之后，美国的金融机构和各大银行以反恐为名，恶意要挟控制财富；加拿大卡车司机被政府打压，冻结银行账户；澳大利亚警察暴打示威者等等。民主国家通过控制私有资金和资产，达到控制个人自由的目的。当然，独裁政府更是利用钱来限制人权和自由，对个人财富形成极大威胁。
 
-“中共外交部最近公开反对美国向乌提供武器，据称是担心导致更多平民伤亡。”乌副总理斥责道：“作为乌克兰政府一员，我想对中共国发言人说：这是极不严肃的，配不上所谓的的大国地位!”
+郭先生说，喜币自创立到现在5个多月，已经涨了400多倍，并且在全世界数字货币市场大震荡期间，没有发生巨大的涨跌波动。世界金融家惊讶于这样前瞻性、革命性的系统设计，可以在世界的任何一个角落，点到点支付，速度极快，安全和隐私有保障。这样的金融系统当然会被大多数人认可。喜联储正致力于打造这样一个安全、稳定、不受政府要挟和控制的平台。
 
-她呼吁北京停止支持正在轰炸乌居民区的俄军，她表示，乌克兰居民不缺毯子，缺的是覆盖他们居住区天空的安全。
+最后，郭先生再一次强调，拥有喜币，善待财富。喜币未来会开发智慧功能，引导人们过有道德的生活，对作恶的政府或个人进行限制追责。喜币要成为正义的财富，远离一切邪恶。
 
-她还表示，中共外交部发言人说，乌克兰需要食物与睡袋，还说要向我们提供食物、婴儿食品、睡袋、毛毯、防水被褥。她反问道，什么被褥？俄国人正在轰炸我们城市的住宅区。我们需要防空设施来关闭平民的天空。什么防水毯子？我建议，中共外交部应该问问我们上周在俄罗斯炮击中转移出来的160名中共国学生的意见。
+参考链接： [2022年3月23日 文贵大直播](https://gettr.com/post/p11h7xt9462)
 
-韦列舒克说，我们不需要毯子和床铺。我们需要武器来保卫我们的土地。而且我们呼吁中共停止支持俄军对乌克兰城市居民区的轰炸！”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-文字版原文：
+总编/编辑/审核：宁文静
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-
-| [樱花时政┃乌副总理怒斥赵立坚：德不配位有辱国格！](https://gnews.org/zh-hans/2201529/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,35 +2,27 @@
 ---
 
 
-## 特鲁多在欧盟议会中被当众唾弃
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229713/)
+## 特鲁多在欧盟议会被唾弃
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2229954/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+作者：加拿大温哥华扬帆农场-薇文
 
-编译撰稿：加拿大温哥华杨帆农场 – 薇文
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2966.png)图片来源：TSUN
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-7.jpg)图片来源：thepostmillennial
+[多伦多太阳报]24日报道，周三(23日)在布鲁塞尔举行的欧盟议会全体会议上，几位议员直指特鲁多，谴责他应对自由车队的抗议活动侵犯人权，是“最恶劣的独裁统治”。
 
+克罗地亚欧盟议员科拉库西奇，怒批特鲁多用马匹践踏妇女、封锁单亲父母的银行账户， 践踏了欧洲和全世界无数公民为之献身的基本价值观和人权，在特鲁多貌似自由主义的靴子下，加拿大已成为 “侵犯公民权利的象征”。
 
-据[多伦多太阳报]3月24日报道，日前在布鲁塞尔举行的欧盟议会全体会议上，多位议员称特鲁多为“最恶劣的独裁统治者”，并强烈谴责其此前在镇压加拿大自由车队的抗议活动中侵犯人权。
+德国安德森议员表示，特鲁多对自由车队的处理方式，是一切民主的耻辱。一个公开钦佩中国独裁制度，把自己公民当恐怖分子迫害和定罪的总理，不该被允许在欧盟议会发言。罗马尼亚议员因特鲁多到会而拒绝出席会议，称特鲁多不能来欧盟议会向普京传授民主课程。另一位德国议员明确表态不要给特鲁多这样的人在欧盟这样的民主之家任何发言机会。其他欧盟议员也表达了类似的看法。
 
-会议期间，克罗地亚议员怒批特鲁多指使皇家骑警恶意冲撞残疾妇女、恣意封锁抗议者的银行账户，践踏了欧洲乃至全世界无数公民为之献身的民主价值观和人权自由。在特鲁多极权主义的铁腕下，其政府已沦为为侵犯公民权利的象征。
+新闻链接：
 
-德国议员则表示，特鲁多对自由车队的处理方式是一切民主的耻辱。一个公开钦佩中共独裁制度，把加拿大公民诬陷为恐怖分子并加以迫害和定罪的总理，没有资格在欧盟议会上发言。
+[‘DICTATORSHIP OF THE WORST KIND’: European MPs blast Trudeau for COVID ‘rights violation’](https://torontosun.com/news/world/dictatorship-of-the-worst-kind-european-mps-blast-trudeau-for-covid-rights-violation)
 
-此外，罗马尼亚议员因特鲁多到会而拒绝出席会议，称特鲁多无德无能来欧盟议会向普京传授民主课程。而另一位德国议员则明确表态称，像特鲁多这样的独裁者不配在欧盟这样的民主之家有任何发言机会。
+* * *
 
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [‘DICTATORSHIP OF THE WORST KIND’: European MPs blast Trudeau for COVID ‘rights violation’](https://torontosun.com/news/world/dictatorship-of-the-worst-kind-european-mps-blast-trudeau-for-covid-rights-violation)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
+采编：文莱， 编译撰稿：薇文， 编辑发稿：硫酸羟氯喹64
 
  
 

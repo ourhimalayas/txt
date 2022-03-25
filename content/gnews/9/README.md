@@ -2,36 +2,31 @@
 ---
 
 
-## 樱花FM|消灭中共！ 拯救乌克兰战火中的人们！
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229687/)
+## 安省废水数据显示中共病毒急剧增加
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2229753/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032520.png)
+作者：加拿大温哥华扬帆农场-文莱
 
-中共是世界灾难的根源，只有消灭中共才能拯救全人类。
-
-我们在乌克兰救援前线，用行动告诉世界我们热爱和平、中共不能代表中国人，我们是消灭邪恶中共的新中国人。
-
-我们在前线搭起了资源充足，温馨的大帐篷，向乌克兰救援前线需要帮助的难民、母亲、儿童施以援手，为他们提供温暖和安全的港湾。
-
-需要救援的同胞和国际友人请与我们联系。
-
-文字版原文：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
 
-| [消灭中共！ 拯救乌克兰战火中的人们！](https://gnews.org/zh-hans/2201403/) |   |
-| --- | --- |
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2964.png)图片来源：YAHOO
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据加拿大媒体【CTV新闻】3月24日报道，安大略省的市政府废水检测显示出，安省的各个地方都检测到中共病毒持续增加的迹象，这表明安大略省的大流行病数量正在上升。
+
+报道称，安省日前取消了其大流行病的限制，包括许多室内空间的容量限制，但观察人士表示，在全省范围内的水中检测到的病毒载量增加了两万八千例活跃病例，此数据在大约六天内翻了一番。不过专家认为重新开启安省的封锁限制还为时过早，但其他相对的措施将会制定以限制病毒传染。
+
+据悉，安省废除新冠限制后的废水增加本是意料之中，但因其上涨速度过快导致专业人士对其展开调查，此外从废水检测中发现一种新的病毒株正在形成，它超过50%的BA.2是奥密克戎变体，虽然本身并不危险，但传播性明显更高。
+
+链接：[Ontario COVID wastewater data points to increase in cases | CTV News](https://toronto.ctvnews.ca/ontario-wastewater-testing-shows-sustained-increase-in-covid-19-rates-1.5831893)
+
+* * *
+
+编译撰稿：文莱， 编辑发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
 
  
 

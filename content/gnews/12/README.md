@@ -2,24 +2,32 @@
 ---
 
 
-## 马克龙警告：我们将进入一个史无前例的粮食危机
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2229514/)
+## 樱花FM|樱花时政:遍地戾气！邯郸司机连撞14人，疑是报复社会！
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229694/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://lh6.googleusercontent.com/divnGUx_r-Bi8Qt8CEtrootywaDorZXdHrqnfG-zhcRgACSJvAnl-xPyPglvLz0ZEvlVbxJ_45IxWj-2GXn9ZouhBf5JYYUAZ91wtFvkCqLPaCmJCvtWHjWB-_OpHe1Dj52pzXcL)
 
-乌克兰危机的关键点是乌克兰和俄罗斯都是谷物生产大国。马克龙宣布了一项新的“粮食互助”活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-25-alle-12.11.15-2.png)imolaoggi.it
-马克龙说：“作为现任欧盟理事会主席，我希望与非洲联盟直接联系，发起‘农场’倡议。”这一目的是“缓解这场危机”。首先制定商业应急计划，释放一些国家的库存，并防止今年夏天出现生产短缺，帮助有依赖性的国家增加产量。马克龙警告说：“我们正在进入一个史无前例的粮食危机。”
+2022年3月20日16时40分左右，邯郸市人民路与滏河大街交叉口西南侧发生一起交通肇事事故，一辆白色福特牌小轿车在非机动车道内撞上多辆非机动车，现场14人受伤，市交巡警支队迅速到现场处置，第一时间将受伤人员送往医院救治，目前4人经抢救无效死亡，肇事司机当场被控制。
 
-简评： 文贵先生近期告诉我们未来最贵的东西是水、粮食，而且现在西方国家也在大量地购买粮食。爆料革命有真实的信息和情报，它是我们的诺亚方舟。
+当前，中共国内社会极端压抑，戾气丛生，报复社会的事件层出不穷，从砍杀小学生到开车无差别撞人比比皆是。要破除中国人身上越来越重的戾气，唯有灭共！
+
+文字版原文：
 
 
+| [樱花时政┃遍地戾气！邯郸司机连撞14人，疑是报复社会！](https://gnews.org/zh-hans/2201533/) |   |
+| --- | --- |
 
-参考链接：
 
-[https://www.imolaoggi.it/2022/03/25/macron-stiamo-entrando-in-una-crisi-alimentare-senza-precedenti/](https://www.imolaoggi.it/2022/03/25/macron-stiamo-entrando-in-una-crisi-alimentare-senza-precedenti/)
-
-编辑、上传：Xiao baige
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
