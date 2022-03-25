@@ -2,36 +2,26 @@
 ---
 
 
-## 特鲁多在欧盟议会中被当众唾弃
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229713/)
+## 俄乌战局最新消息汇总
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229729/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+作者：蓝莲花农场 文斌
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截止当地时间3月23日，俄军试图向基辅西北约70公里处的特里耶夫斯克推进，但被击退，也没有在基辅东郊及周边进行新的推进，目前继续用迫击炮和火箭弹轰炸该市。但乌总参谋部报告，乌军从俄罗斯最前沿阵地西侧发起反击，收复被俄军占领的领土，包括解放了马卡里夫镇。另据当地官员称，乌军在伊尔平、布卡和霍斯托梅尔包围了俄军，呈现出包围之势。伊尔平市长声称，乌军已夺回了该城市的80%。但外界尚无法证实这些信息。在切尔尼戈夫和苏梅，战斗一直在持续，但没有发生实质性的变化。据总参谋部报告，俄罗斯人正在继续挖掘工事，布置雷区，表明俄罗斯人在这些地区已经转入防御状态，但对切尔尼戈夫的炮击和空袭彻夜不停。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-上午11.21.30.png)
+在过去24小时里，哈尔科夫遭到了44次坦克、榴弹炮和迫击炮的轰击，140次多管火箭炮的轰击，包括巡航导弹袭击。俄军努力向卢甘斯克和顿涅茨克州推进，昨天还被发现再次使用磷燃烧弹。马里乌波尔的巷战仍在继续。乌克兰海军报告称，俄军鳄鱼级两栖登陆舰在别尔江斯克港被摧毁。在赫尔松和米科拉耶夫交界处发生激战。乌军再一次击落了一架俄机和巡航导弹。
 
-编译撰稿：加拿大温哥华杨帆农场 – 薇文
+尽管最近几天对奥德萨持续炮击，但由于黑海舰队继续参与马里乌波尔战役，降低了近期在奥德萨附近进行两栖登陆的可能性。乌克兰军事情报称，俄军正考虑封锁刻赤大桥，以防止俄罗斯人离开克里米亚，估计这一行动对俄军和政府人员家属会产生恐慌反应。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+更多俄乌局势消息，请持续关注本节目的后续报道。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-7.jpg)图片来源：thepostmillennial
-
-
-据[多伦多太阳报]3月24日报道，日前在布鲁塞尔举行的欧盟议会全体会议上，多位议员称特鲁多为“最恶劣的独裁统治者”，并强烈谴责其此前在镇压加拿大自由车队的抗议活动中侵犯人权。
-
-会议期间，克罗地亚议员怒批特鲁多指使皇家骑警恶意冲撞残疾妇女、恣意封锁抗议者的银行账户，践踏了欧洲乃至全世界无数公民为之献身的民主价值观和人权自由。在特鲁多极权主义的铁腕下，其政府已沦为为侵犯公民权利的象征。
-
-德国议员则表示，特鲁多对自由车队的处理方式是一切民主的耻辱。一个公开钦佩中共独裁制度，把加拿大公民诬陷为恐怖分子并加以迫害和定罪的总理，没有资格在欧盟议会上发言。
-
-此外，罗马尼亚议员因特鲁多到会而拒绝出席会议，称特鲁多无德无能来欧盟议会向普京传授民主课程。而另一位德国议员则明确表态称，像特鲁多这样的独裁者不配在欧盟这样的民主之家有任何发言机会。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [‘DICTATORSHIP OF THE WORST KIND’: European MPs blast Trudeau for COVID ‘rights violation’](https://torontosun.com/news/world/dictatorship-of-the-worst-kind-european-mps-blast-trudeau-for-covid-rights-violation)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
-
+编辑：宁文静
+总编：静言
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

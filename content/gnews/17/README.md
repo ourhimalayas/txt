@@ -2,40 +2,39 @@
 ---
 
 
-## 樱花FM|樱花深度报道：中俄友谊是否如他们领导人说的那样无上限？（二）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229879/)
+## 北约峰会发表联合声明 多项对俄新制裁进入议题
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2230078/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032527.png)
+作者：加拿大温哥华扬帆农场 Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，北约峰会在比利时布鲁塞尔北约总部举行。会议持续了近2个小时，有多项对俄罗斯的新制裁进入讨论议题。会后发布了《北约成员国元首和政府首脑联合声明》。
 
-【编者按】在俄罗斯入侵乌克兰前不到一个月，习近平与普京签署了一份联合声明，宣布“两国友谊无止境”。俄罗斯领导人普京对一个他大大低估的国家乌克兰发动了一场战争时，他的误判越来越清楚。乌克兰的勇敢抵抗和西方世界的经济制裁，是对俄罗斯领导人的羞辱——或者更糟糕的结局是，普京将被赶下台。这对于希望在 2022 年底获得第三个中共总书记任期的习近平来说，今年是高风险的一年，因为违反了中共内部权力交接规则。他不想被看到正在支持一个失败者。中俄友谊是否还是“坚如磐石”？本文作了精彩的分析。本文原文发表于《经济学家》2022年3月17日中国专栏上，原文题目是：“[China’s friendship with Russia has boundaries, despite what their leaders say](https://www.economist.com/china/chinas-friendship-with-russia-has-boundaries-despite-what-their-leaders-say/21808197)”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpeg)
 
-但无论战争如何展开，中国都将与克里姆林宫的关系视为增强中国实力的手段，而不是俄罗斯。据报道，美国与盟国政府共享情报，显示俄罗斯已向中国请求无人机、地对空导弹和其他军事援助。中国外交部称这些报道为“虚假信息”。习近平不想为普京的战争分担责任，尽管他可能是“最好的朋友”。也没有迹象表明中国会通过利用西方心烦意乱的时候来迅速攻击台湾，台湾是中国声称拥有主权的 2400 万人口的岛屿民主国家。与似乎乐于对全球秩序发起巨大挑战的普京不同，习近平似乎更加谨慎。
+联合声明做出了三个方面的重要决定：
 
-一个原因是经济上的。中国国有企业的老板们不安地注视着这场战争。许多人不仅在俄罗斯而且在乌克兰都有大量业务。国有食品巨头中粮集团将乌克兰视为重要基地。国有企业招商局集团在黑海沿岸的乌克兰城市敖德萨拥有港口码头，该城市对俄罗斯的袭击处于高度戒备状态。 2020 年，乌克兰东北部城市哈尔科夫同意从中国国有铁路集团中车集团购买 40 辆地铁车厢。由于哈尔科夫的地铁站现在挤满了躲避俄罗斯袭击的家庭，合同处于危险之中。
+一、呼吁所有国家，包括中共国，维护国际秩序，遵守《联合国宪章》中规定的主权和领土完整原则，不以任何方式支持俄罗斯的战争，不采取任何帮助俄罗斯规避制裁的行动。
 
-俄罗斯喜欢吹捧其与中国的商业联系。 2 月 4 日，普京在北京访问期间公布了一项多年来价值 1180 亿美元的石油和天然气交易，预示着该交易是“转向东方”的一部分。中国谴责西方对俄罗斯的制裁。但它与俄罗斯的经济联系将越来越受到限制。
+二、北约大门向乌克兰敞开。继续向乌克兰提供各种选项的援助。
 
-石油和天然气在贸易关系中占主导地位。俄罗斯是中国第三大天然气供应国。 2020 年，中国购买了俄罗斯近三分之一的原油出口。但两国最近达成的能源协议很难快速解决俄罗斯的经济困境。 2021年，中国通过连接两国的唯一管道西伯利亚电力从俄罗斯进口的天然气仅100亿立方米，远低于欧洲进口的1750亿立方米。研究公司加韦卡尔（Gavekal）的分析师指出，即使中国对欧洲取消的化石燃料出口有兴趣，但相关领域并没有通过管道与中国联系起来，因此很难在其他地方弥补损失的销售。
+三、攻击北约成员国的任何一国，都将被视为对整个北约的攻击。
 
-（未完待续）
+据悉，乌克兰总统泽伦斯基在峰会上发表了视频演讲，敦促北约增加对乌克兰的军事援助。他强调乌克兰用行动证明自己已经达到了北约标准，为欧洲和世界的共同安全做出重大的贡献。北约应该用最强大的防御联盟维持世界和平。
 
-文字版原文：
+拜登宣布了美国对俄罗斯实施的新制裁，表示将欢迎10万名逃离乌克兰战争的难民，并建议将俄罗斯从20国集团中剔除。拜登还与盟友讨论了加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
 
+英国首相鲍里斯·约翰逊表示，该国将向乌克兰军队增派6000枚导弹，以帮助抵御俄罗斯入侵者。同时，北约和七国集团领导人应想办法摆脱俄罗斯的石油和天然气，重塑全球能源安全。约翰逊说，这只是一个开始。北约必须长期支持一个自由和民主的乌克兰进行的国防保卫战。
 
-| [樱花深度报道┃中俄友谊是否如他们领导人说的那样无上限？（二）](https://gnews.org/zh-hans/2191455/) |  |
-| --- | --- |
+参考链接：
+1. [Biden meets with NATO allies as war hits one-month mark](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
+2. [Statement by NATO Heads of State and Government](https://www.nato.int/cps/en/natohq/official_texts_193719.htm?utm_source=social+media&amp;utm_medium=Twitter&amp;utm_campaign=statement&amp;fbclid=IwAR32SZ79g1XvqJdpTu1TaQpfK-sGmXreeTdZlt2hLC09d75kfLqdQLhOjnM)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+总编/编辑/审核：宁文静
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

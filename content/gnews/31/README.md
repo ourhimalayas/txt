@@ -2,18 +2,89 @@
 ---
 
 
-## 上海市东方医院护士夜晚突发哮喘，疫情管控期间多家医院拒诊，延误救治致死
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2229237/)
+## 安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2229503/)
 
-撰稿：东京樱花团/曲别针
+**Jessica Wachter
+杰西卡·沃赫特**
 
-3月25日，上海市东方医院官网称，周盛妮为我院护士，一直在院内从事科室相关工作。3月23日在家中哮喘发作，用药后无法缓解。19时许，家属驾车送其就诊。我院南院急诊部因疫情防控需要，正暂时关闭，进行环境采样和消毒，家属遂将病人送到仁济医院东院救治。23时许，周盛妮同志因抢救无效去世。 上海市东方医院表示，周盛妮同志工作勤恳，任劳任怨，是一名优秀的白衣天使。周盛妮同志的不幸去世，是我院的损失，我们对她的去世深感痛心，对她的亲属致以诚挚慰问！ 作为上海的一名护士，在哮喘发作后，拨打120后叫不到急救车，辗转跑了几家医院，由于疫情封控关诊不收治病人，均遭拒诊，甚至其中还包括了自己所在的医院。 周护士在23日夜晚突发哮喘，本能地就近前往自己的工作单位东方医院南院急诊救助，因东方医院南院急诊停诊，周护士以为是本院职工可以进去求救，保安“恪尽职守”没让他们进去，然后前往近10公里外浦东唯一提供急诊服务的仁济医院东院救治，因耽误太久病发身亡，死于仁济医院急诊，终年49岁。 上海发生疫情以来，大量医院急诊停诊，大量的医护人员被抽调去做核酸采集工作。像类似东方医院护士的悲剧，在中国这片土地上不断地重复上演。 有网友质疑，难道真的只要不是新冠病毒直接死人，其他再怎么死人，都是抗疫胜利？
+As you’ve heard today the Commission is considering proposing rules
+正如你今天所听到的，委员会正在考虑提出的规则
 
-信息来源：
-上海市东方医院官网：[https://www.easthospital.cn/](https://www.easthospital.cn/%E3%80%91)
-新浪微博：weibo.com
-编辑：东京樱花团/荆轲 发布：东京樱花团/bohdan博赫丹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+to enhance and standardized climate disclosure
+来加强和规范气候信息披露
+
+These proposals would require public companies
+这些提议将要求上市公司
+
+to provide in their registration statements
+在他们的注册声明
+
+and annual reports certain information on risks
+和年度报告中提供有关风险的某些信息
+
+that climate poses to short, medium and long term financial performance
+关于气候对短期、中期和长期财务业绩的影响
+
+And on steps the company plans to take to mitigate this risk
+以及公司计划采取的措施来减轻这种风险
+
+such as an internal carbon price if there is one
+例如内部碳价格，如果有的话
+
+scenario analysis if the company does it
+如果公司情景分析这样做的话
+
+transition plans if the company has them
+如果公司有过渡计划
+
+or targets if the company has set them
+或公司设定的目标
+
+Public companies would also disclose governance around climate issues
+除了风险披露和公司应对措施，上市公司
+
+Besides the disclosures on risk and on the company’s response
+还将披露围绕气候问题的治理
+
+the proposed rules would require disclosure on current financial impacts
+拟议规则将要求披露目前因气候相关事件和过渡活动
+
+and on financial expenditures due to climate related events and transition activities
+引起的财务影响和财政支出
+
+Finally, the rule would require disclosure about the carbon footprint
+最后，该规则将要求通过范围一和范围二的
+
+through sculpt one and two GHG emissions and scope three
+温室气体排放和范围三的碳足迹披露
+
+if scope three emissions are material or used
+如果范围三排放是实质性的或被用作
+
+as part of the climate related target or goal
+气候相关目标或目标的一部分
+
+* * *
+
+Date:03/23/2022
+原视频标题: SEC expected to introduce climate disclosure rules, forcing publicly traded companies to report on emissions and “climate change” risks
+安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
+原视频日期：2022/03/21
+原视频链接[**https://twitter.com/disclosetv/status/1505929622835417088?s=24**](https://twitter.com/disclosetv/status/1505929622835417088?s=24)
+任务编号：KE460（4060）
+视频时间段 : 0:00-1:07
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

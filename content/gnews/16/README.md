@@ -2,30 +2,31 @@
 ---
 
 
-## 喜联储致力于打造最安全稳定的金融系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229953/)
+## 【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2230079/)
 
-作者：银河系农场 骄子， 澳喜农场 Leo M
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月23日的大直播中，郭先生指出，喜联储摒弃了当今金融系统对财富的控制，以严格的法律KYC，最先进稳定的技术，保障财富拥有者自由地、安全地支配合法资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+作者：加拿大温哥华扬帆农场 G时新闻 – 播报：yuyu-视频制作：文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-7.jpeg)
+据英国【每日内幕】3月21日报道，加拿大政府的最新疫情数据显示，与未接种“新冠病毒”疫苗者的自然免疫系统相比，完全接种人群平均损失了74%的免疫系统能力。
 
-郭先生解释，911之后，美国的金融机构和各大银行以反恐为名，恶意要挟控制财富；加拿大卡车司机被政府打压，冻结银行账户；澳大利亚警察暴打示威者等等。民主国家通过控制私有资金和资产，达到控制个人自由的目的。当然，独裁政府更是利用钱来限制人权和自由，对个人财富形成极大威胁。
+据悉，目前该疫苗已对接种者造成了巨大健康损害，与未接种者相比，已注射过两剂疫苗的人群感染“新冠病毒”的可能性要高出3.8倍，而因此死亡可能性则高出 3.3 倍。此外，三联疫苗接种人群的情况更为严峻，因为与未接种者相比，前者死亡的可能性要高出 5.1 倍。
 
-郭先生说，喜币自创立到现在5个多月，已经涨了400多倍，并且在全世界数字货币市场大震荡期间，没有发生巨大的涨跌波动。世界金融家惊讶于这样前瞻性、革命性的系统设计，可以在世界的任何一个角落，点到点支付，速度极快，安全和隐私有保障。这样的金融系统当然会被大多数人认可。喜联储正致力于打造这样一个安全、稳定、不受政府要挟和控制的平台。
+以上所有官方数据均表明，大部分已完全接种疫苗者的免疫系统现在都遭受到了巨大的损害，并因此已逐渐发展为类似与艾滋病的获得性免疫缺陷综合症。
 
-最后，郭先生再一次强调，拥有喜币，善待财富。喜币未来会开发智慧功能，引导人们过有道德的生活，对作恶的政府或个人进行限制追责。喜币要成为正义的财富，远离一切邪恶。
+上传：兴旺
 
-参考链接： [2022年3月23日 文贵大直播](https://gettr.com/post/p11h7xt9462)
+视频连接：https://www.gettr.com/post/p11osvx8cfc
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+* * *
 
-总编/编辑/审核：宁文静
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

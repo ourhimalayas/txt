@@ -2,34 +2,51 @@
 ---
 
 
-## 有声|爆发冲突至今俄方拒与美军事领袖通话
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2223614/)
+## 新西兰财经G乐部2022年3月24日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2224137/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
-据中央社23日综合外电报导，华盛顿邮报（The Washington Post）报导，俄乌战争爆发至今，美国国防高层官员曾主动与俄罗斯官员联系，但都未获得回应。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image001-2.png)
-美国国防部发言人柯比（John Kirby）表示，自俄军入侵乌克兰以来，美国国防部长奥斯汀（Lloyd Austin）和参谋首长联席会议主席密利（Mark Milley）曾试图与俄国国防部长萧依古（Sergei Shoigu）和武装部队参谋总长吉拉西莫夫（Valery Gerasimov）通电话，但迄今都遭到拒绝。
+采集整理：蚂蚁的城堡
 
-美俄之间的外交关系也已恶化，俄国本周警告美国，由于美国总统拜登称俄国总统普京（Vladimir Putin）是战犯，恐使两国断交；此外，俄方通知莫斯科美国大使馆，俄国正在驱逐部分美国外交官。
+提纲：
 
-根据华盛顿邮报，美国官员表示，国务卿布林肯（Antony Blinken）与俄国外交部长在此期间也没有联系；柯比指出，两国国防官员保持联系在此时此刻至关重要。
+1、哈尔滨成首个解除限售二线城市
 
-美方今天表示，已正式认定俄国在乌克兰犯下战争罪行，因为双方冲突造成了数千人死亡，包括有数百平民在医院、艺术中心和防空洞遭炮击丧生。
+2、海底捞巨亏40亿增收不增利
 
-[【援引连结】](https://www.cna.com.tw/news/aopl/202203240282.aspx)
+3、腾讯去年4季度净利骤降25%，连续两季负增长
 
-**推出問題，敲出真相，爆料在路上！
-請關注和訂閱我們的以下帳號：新西蘭伊甸農場蓋特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】蓋特帳號：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西蘭Gnews】蓋特帳號：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新聞】蓋特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特帳號：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
+4、美国将新浪微博列入退市风险名单
+
+正文
+
+**1、哈尔滨成首个解除限售二线城市**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2832.png)
+3月23日，据哈尔滨市政府网站消息，哈尔滨市住房和城乡建设局发布公示，经报请市政府同意，鉴于《哈尔滨市人民政府办公厅关于进一步加强房地产市场调控工作的通知》（以下简称《通知》）（哈政办规[2018]12号）已完成其阶段性调控使命，拟予以废止。国家统计局最新数据显示，2022年2月份，哈尔滨新建商品住宅销售价格环比下降0.9%，同比下降3.8%；二手住宅销售价格环比下降1%，同比下降3.4%。自2021年8月份至今，哈尔滨新房价格已连续7个月下跌。
+
+链接：[https://finance.sina.com.cn/chanjing/cyxw/2022-03-24/doc-imcwipii0182330.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-03-24/doc-imcwipii0182330.shtml)
+
+**2、海底捞巨亏40亿增收不增利**
+![图像](https://media.gettr.com/group3/origin/2022/03/24/05/f58a900f-6769-8b9b-ae4c-18ebc7ef726d/900cb3a4c75428fef3c08ea70ffb1116_500x0.png)
+23日晚间，海底捞发布业绩公告，2021年实现收入411.1亿元，同比2020年增长43.7%；亏损41.6亿元，其中计提由于闭店计划处置长期资产的一次性损失超过36.5亿元。与利润一并下滑的是节节败退的股价，自高点以来已跌逾80%，多只持仓海底捞的基金也损失不菲。
+
+链接 ：：[https://finance.eastmoney.com/a/202203242320964858.html](https://finance.eastmoney.com/a/202203242320964858.html)
+
+**3、腾讯去年4季度净利骤降25%，连续两季负增长**
+![图像](https://media.gettr.com/group14/origin/2022/03/24/05/66f957fd-1181-00cf-39f9-0d5553882acf/a3fbf6568151cabe8d1d2f1cc037d442_500x0.png)
+3月23日，互联网科技巨头腾讯发布了2021年财报。2021年全年，腾讯总收入为5601.2亿元，同比增长16%。国际财务报告准则下，公司权益持有人应占盈利2248.22亿元，同比增长41%。不过，非国际财务报告准则下，腾讯权益持有人应占盈利1237.88亿元 （Non-IFRS），同比仅增长1%，是近十年来增幅最低的一年。2021年Q4净利润（Non-IFRS）248.8亿元，同比下降25%，这是腾讯连续第二个季度出现单季净利负增长。
+
+链接： [https://finance.sina.com.cn/stock/s/2022-03-24/doc-imcwiwss7800349.shtml](https://finance.sina.com.cn/stock/s/2022-03-24/doc-imcwiwss7800349.shtml)
+
+**4、美国将新浪微博列入退市风险名单**
+![图像](https://media.gettr.com/group27/origin/2022/03/24/05/8ef7c0b1-66fb-9d2d-981e-52a86da86ea1/fb6bba9cb42a6e3cd1adb5fde6144b97_500x0.png)
+美国当地时间3月23日，中共国社交媒体平台新浪微博遭美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。拜登政府周三警告中国，不要利用制裁俄罗斯带来的商业机会，不要帮助俄罗斯规避出口管制，也不要处理其被禁止的金融交易，以寻求阻止中国援助受到制裁打击的俄罗斯。美国商务部长雷蒙多表示，如果中国企业向俄罗斯出口用美国技术制造的半导体，美国将“绝对”会实施出口管制，此举可能“使中国企业基本关门”。
+
+链接 ：[https://cn.reuters.com/article/china-stock-0324-noon-idCNKCS2LL0B5?il=0](https://cn.reuters.com/article/china-stock-0324-noon-idCNKCS2LL0B5?il=0)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
