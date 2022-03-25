@@ -15,122 +15,122 @@
 
 ---
 
-### [美国总统拜登到访波兰“枢纽城市”热舒夫](/content/gnews/1/README.md)
+### [樱花时政┃中共的策略：对所有人说谎！](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国总统拜登到访波兰“枢纽城市”热舒夫](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [精糧在梅迪卡采访来自法国的夫妻](/content/gnews/2/README.md)
+### [德拉吉：关于军费开支我们将尊重与北约的承诺](/content/gnews/3/README.md)
+ ` xiaobaige`
+
+### [精糧在梅迪卡采访来自法国的夫妻](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱](/content/gnews/3/README.md)
+### [3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022/03/25 文贵先生直播重点大纲](/content/gnews/4/README.md)
+### [2022/03/25 文贵先生直播重点大纲](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022年3月25日大直播速记精萃](/content/gnews/5/README.md)
+### [2022年3月25日大直播速记精萃](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [美司法部宣布给予认证俄罗斯黑客的人1000万美元奖励](/content/gnews/6/README.md)
+### [美司法部宣布给予认证俄罗斯黑客的人1000万美元奖励](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [特鲁多呼吁欧洲团结起来进一步援助乌克兰并制裁俄罗斯](/content/gnews/7/README.md)
+### [特鲁多呼吁欧洲团结起来进一步援助乌克兰并制裁俄罗斯](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [视频|失去母亲的男孩跪在妈妈身旁悲痛万分](/content/gnews/8/README.md)
+### [视频|失去母亲的男孩跪在妈妈身旁悲痛万分](/content/gnews/10/README.md)
  ` 爆料视频`
 
-### [视频|但愿你的眼睛，只看得到笑容](/content/gnews/9/README.md)
+### [乱世之中 如何保持良好的状态](/content/gnews/11/README.md)
+ ` XINYUAN`
+
+### [视频|但愿你的眼睛，只看得到笑容](/content/gnews/12/README.md)
  ` 爆料视频`
 
-### [为应对俄乌战争北约紧急峰会如期进行](/content/gnews/10/README.md)
+### [为应对俄乌战争北约紧急峰会如期进行](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [2022/03/25 英喜时事速递](/content/gnews/11/README.md)
+### [2022/03/25 英喜时事速递](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大增强对俄罗斯航班的禁飞令](/content/gnews/12/README.md)
+### [加拿大增强对俄罗斯航班的禁飞令](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多在欧盟议会中被当众唾弃](/content/gnews/13/README.md)
- ` 扬帆枫叶快讯`
-
-### [欧洲不可能与俄航天局合作](/content/gnews/14/README.md)
+### [欧洲不可能与俄航天局合作](/content/gnews/16/README.md)
  ` Shuizhuyu`
 
-### [2018月7月24号 王健之死现场 采访特别节目](/content/gnews/15/README.md)
+### [2018月7月24号 王健之死现场 采访特别节目](/content/gnews/17/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [五月花简报（03/25/2022）](/content/gnews/16/README.md)
+### [五月花简报（03/25/2022）](/content/gnews/18/README.md)
  ` mayflowertranslate`
 
-### [芬兰切断俄国与欧盟最后的运输系统](/content/gnews/17/README.md)
+### [芬兰切断俄国与欧盟最后的运输系统](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [报道称沙特阿拉伯阿美石油公司石油设施发生巨大火灾](/content/gnews/18/README.md)
+### [报道称沙特阿拉伯阿美石油公司石油设施发生巨大火灾](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄罗斯纳税人为普京的行政和生活开支多付了40%](/content/gnews/19/README.md)
+### [俄罗斯纳税人为普京的行政和生活开支多付了40%](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登称由于普京入侵乌克兰，全球将面临粮食短缺](/content/gnews/20/README.md)
+### [拜登称由于普京入侵乌克兰，全球将面临粮食短缺](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [印度称与中共国关系在边界紧张的情况下不可能正常进行](/content/gnews/21/README.md)
+### [印度称与中共国关系在边界紧张的情况下不可能正常进行](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [塔利班承诺解决中共“所有关切”](/content/gnews/22/README.md)
+### [塔利班承诺解决中共“所有关切”](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加媒体掩盖特鲁多在欧洲议会遭受的谴责](/content/gnews/23/README.md)
+### [加媒体掩盖特鲁多在欧洲议会遭受的谴责](/content/gnews/25/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【转】截至3.24 俄乌战事汇总（3）](/content/gnews/24/README.md)
+### [【转】截至3.24 俄乌战事汇总（3）](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [两名男子就旅行疫苗强制起诉特鲁多政府](/content/gnews/25/README.md)
+### [两名男子就旅行疫苗强制起诉特鲁多政府](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月25日早](/content/gnews/26/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月25日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [新中国联邦驻波兰营地未雨绸缪建帐篷](/content/gnews/27/README.md)
+### [新中国联邦驻波兰营地未雨绸缪建帐篷](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|这世界有那么多人，多幸运，我还有我们](/content/gnews/28/README.md)
+### [视频|这世界有那么多人，多幸运，我还有我们](/content/gnews/30/README.md)
  ` 爆料视频`
 
-### [CDC将COVID-19的死亡人数降低了数万人](/content/gnews/29/README.md)
+### [CDC将COVID-19的死亡人数降低了数万人](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/03/22 墙内世界](/content/gnews/30/README.md)
+### [2022/03/22 墙内世界](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2022/03/20 墙内世界](/content/gnews/31/README.md)
+### [2022/03/20 墙内世界](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏](/content/gnews/32/README.md)
+### [【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏](/content/gnews/34/README.md)
  ` G-时新闻`
 
-### [加拿大禁止其士兵加入乌克兰外国军团](/content/gnews/33/README.md)
+### [加拿大禁止其士兵加入乌克兰外国军团](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [特鲁多在欧盟议会中被当众唾弃](/content/gnews/34/README.md)
+### [特鲁多在欧盟议会中被当众唾弃](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄罗斯第49军司令列赞采夫中将被击毙](/content/gnews/35/README.md)
+### [俄罗斯第49军司令列赞采夫中将被击毙](/content/gnews/37/README.md)
  ` 温哥华扬帆农场`
 
-### [上海市东方医院护士夜晚突发哮喘，疫情管控期间多家医院拒诊，延误救治致死](/content/gnews/36/README.md)
+### [上海市东方医院护士夜晚突发哮喘，疫情管控期间多家医院拒诊，延误救治致死](/content/gnews/38/README.md)
  ` KarmaLabs`
 
-### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/37/README.md)
+### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
-
-### [《历史的今天》2022.03.25](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [网曝唐山市警察严查私自出门人员 违者被抓拘留](/content/gnews/39/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [乌克兰国家银行限制每月10万格里夫纳的准现金业务和个人海外转账](/content/gnews/40/README.md)
  ` 喜马拉雅农场新西兰站`

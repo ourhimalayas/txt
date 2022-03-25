@@ -2,40 +2,40 @@
 ---
 
 
-## 2022/03/20 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2230258/)
+## CDC将COVID-19的死亡人数降低了数万人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230372/)
 
-1. 3月17日，中共国各地管理如此混乱的核酸检测现场比比皆是。中共的每日必检核酸政策，在应对防疫上就是笑话。
-2. 3月17日，#居家隔离。疫情持续了两三年，中共利用高科技手段监控人民的手段也愈发成熟。整个中共国如今就是一个大型监狱场。
-3. 3月16日，广东深圳。市民做完核酸检测得到通行证后，依然被工作人员以防疫之名禁止通行。
-4. 中共社区政府为了防止不服从管理的居民翻墙逃出，网格化管理下的城市小区围墙之上，加装电网成为了常规操作。
-5. 3月18日，上海黄浦区。抓获封控区内翻墙人员即现场奖励500元人民币的动员视频被曝光。
-6. 3月18日，广东深圳随处可见管控百姓的警力。中共如此强大的国家机器为什么不会用在解救那些被锁链锁住24年的女孩子身上？？？
-7. 近日，广东深圳。管控区男子居家十几天未做核酸、未出门，被中共警察以危害公共安全罪的名义逮捕。
-8. 3月18日，广东深圳。在防控区内的市民不知是遇到了怎样的压力，深夜跪倒在路边崩溃咆哮。
-9. 3月13日，上海。防疫工作者突然晕倒，全身抽搐长达6分钟。各国政府强推接种疫苗后，您是否经常看到这样晕倒抽搐的景象？为什么会如此？
-10. 中共政府应对各地出现疫情的方法是粗暴封控，封锁之后没有任何后续保障的应对措施。粗暴残忍的政策对个体商户们来说，意味着随时将面临一场灭顶的灾难。
-11. 3月14日，河北廊坊。抗疫一线志愿者在消杀现场得知姥姥去世，朝着家的方向磕头送别姥姥。
-12. 防疫人员父亲去世，因疫情防控需要，无法及时回家奔丧，朝老家方向跪拜。残暴的中共政权乐于宣传为了“祖国”，奉献个人的无人性报道。
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2983.png)图片来源：justthenews.com
 
+美国疾病控制和预防中心将近期 COVID-19 的总死亡人数降低了7.2万多人。
 
-- *１，搜集：Free20200604、加油干吧总加速师 、Filon*
-- *２，听写：Seven-Star Ant / Filon*
-- *3，翻译： Cathy r*
-- *4，PR：yyshere*
+据 CDC 称，美国政府的算法将26个州的新冠死亡的相关人数多算了72,277人，特别是包括24%（416）的儿科死亡人数。
 
+3月15日，CDC 网站上的数据被篡改了，原因是在一个脚注中被解释为“编码逻辑错误”。
+
+CDC 更新的新冠病毒导致的总死亡人数约为96.9万。这一变化接近7.5%，这代表了在总死亡人数如此接近100万的情况下的一个重大差异。
+
+由于 COVID-19 导致的小儿死亡数字的大幅下降使全国的总人数达到1341人。儿童已占所有 COVID-19 病例的约19%，尽管所有儿童 COVID-19 病例中只有0.00%-0.01%导致死亡。
+
+上周，CDC 主任罗谢尔·瓦伦斯基（Rochelle Walensky）在一封信中讨论了“数据现代化计划”（Data Modernization Initiative），该计划旨在使 CDC 的数据更加准确。这些努力是在立法者和媒体成员要求政府卫生机构提供更真实的新冠报告，之后的几个月。
+
+时至今日，CDC 的新冠死亡人数并没有明确区分是否因 COVID-19 而死亡的人，这可能会导致少计算了美国的新冠死亡人数。
+
+新闻来源：[justthenews.com] [CDC lowers COVID-19 death count by tens of thousands](https://justthenews.com/politics-policy/coronavirus/cdc-lowers-covid-19-death-count-tens-thousands?utm_source=justthenews.com&amp;utm_medium=feed&amp;utm_campaign=external-news-aggregators) | 发布时间：2022年03月23日
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-25
+![img](https://media.gettr.com/group17/origin/2022/03/25/21/39e26bc0-9460-90aa-65b0-9bd4d46a273a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@youzi_yinhe 3/25/2022 1:43 AM (UTC)`
@@ -154,13 +161,6 @@ The Great Decoupling has begun
 
 Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Yulia. Yulia and her 87 years old grandmother fled from Kharkiv, where there is no food, no water, no electricity, no anything. People are dying there. In 2022, people are dying of these things. It’s a big tragedy! <br/><br/>#stopthewar #takedowntheccp #help #ukrainian
 ![img](https://media.gettr.com/group14/origin/2022/03/24/05/d0d95afc-4b49-0697-5b05-63f003265f80/out.jpg)
-
----
-
-`@miles 3/24/2022 10:11 PM (UTC)`
-
-3/24/2022 Miles Guo’s GETTR: Don’t let the China Eastern plane crash distract us; what happened to our fellow fighters at various CCP banks recently demonstrate that there is nothing real in Communist China, all are fake or fabricated; if the CCP is not eliminated, there won’t be any sunshine or a glimpse of justice in humanity<br/><br/>3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义<br/><br/>
-![img](https://media.gettr.com/group36/getter/2022/03/24/22/6139b995-407e-4de6-c021-0bbf5c523fcf/out.jpg)
 
 ---
 
