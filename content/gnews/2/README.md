@@ -2,38 +2,39 @@
 ---
 
 
-## 樱花FM|樱花时政：俄军将数千名乌克兰平民强制转移到俄罗斯境内偏远地区
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229180/)
+## 有声|郭先生解析俄罗斯侵略乌克兰的结局
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229417/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03258.png)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生也在3月23日的大直播中解析了俄罗斯侵略乌克兰的三种结局。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-85.jpg)
+郭先生认为，习近平有很大的可能性将代表中国共产党成为俄罗斯入侵乌克兰战争和谈时的调解国，以及监督俄罗斯履行协议的担保国。到那时，中共必将与俄罗斯一起两国人民，继续威胁全世界。更甚者，中共或许会帮助俄罗斯加剧现有的战争侵略行为。另外，波罗的海三国也可能会和俄罗斯以及白俄罗斯开战，甚至可能将战争升级到小型动用核武器的地步。
 
-正受到俄军猛烈攻击的乌克兰东南部的港口城市马里乌波尔（Mariupol）市议会于3月19日发表声明，称一些居民被强行转移到了俄罗斯境内。
+但郭先生指出，由于西方世界目前已经认定中共是俄罗斯背后的金主，且全球很少有人可以或愿意将中国人与中共区分开来，因此，上述各种情况均会对中国百姓造成根据大的影响。
 
-该声明称，在过去一周里，有数千人被带走。俄罗斯军队将人们从一个有1千多名妇女和儿童避难的体育馆中非法赶走。
-
-据说，这些居民的手机显示他们被送到了俄罗斯的偏远地区。
-
-博伊琴科市长谴责了俄罗斯军方的行为，认为这与二战期间纳粹德国强行驱逐犹太人的行为一样残暴。 他说：”在21世纪，人们被强行带往另一个国家，这是不可想象的。
-
-俄军的疯狂举动令人费解，无辜平民的命运令人担心。
-
-文字版原文：
+为此，郭先生提醒各位战友，一定要保护好自己和家人，并拥有一个良好的心态。在此基础上，战友们可以在自己的能力范围内继续传播真相，以及“中共不等于中国人”的这一事实。
 
 
-| [樱花时政┃俄军将数千名乌克兰平民强制转移到俄罗斯境内偏远地区](https://gnews.org/zh-hans/2196532/) |   |
-| --- | --- |
 
+文字版原文：[郭先生解析俄罗斯侵略乌克兰的结局](https://gnews.org/zh-hans/2222938/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

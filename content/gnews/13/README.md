@@ -2,25 +2,31 @@
 ---
 
 
-## 视频|世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2229074/)
+## 【秘翻时评】王毅飞阿富汗后 无预警抵达新德里会晤印度外长
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2229223/)
 
-视频：东京樱花团/战友520
+By:**[秘翻时评](https://gettr.com/post/p11tp5r5df1)**
 
+**[2022‑03‑25](https://gettr.com/post/p11tp5r5df1)**
 
+**晚间新闻：**
 
-3月18日，世界CDN巨头Akamai 官网发文，表示很高兴达成与喜马拉雅交易所的合作，并在文中介绍了喜交所的运营目标，基本运行结构和强大的安全防御系统。Akamai与喜马拉雅交易所达成合作，标志着喜币、喜美元迈出里程碑式的一步。
+1.王毅飞阿富汗后 无预警抵达新德里会晤印度外长
+2.平壤试射新洲际飞弹 美制裁参与俄企与朝鲜实体
+3.所罗门拟与中共合作 澳大利亚表达忧虑
 
-信息来源：
+**评论内容：**
 
-[世界CDN巨头Akamai在官网隆重介绍喜马拉雅交易所](https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/)
+\*上海疫情爆发，医疗系统几近瘫痪
+\*我们要活到脱钩后美好时代的到来
+\*中共是俄乌战争的元凶，中国人醒来吧
 
-[Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
+Gettr链接：[**https://gettr.com/post/p11tp5r5df1**](https://gettr.com/post/p11tp5r5df1)
 
-编辑：东京樱花团/曲别针
+发布 : 恩典
 
-发布：东京樱花团/bohdan博赫丹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/金妞是.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

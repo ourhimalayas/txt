@@ -2,23 +2,47 @@
 ---
 
 
-## 中共亲苏派与亲美派的巨大差异
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229159/)
+## 有声|命中注定有了他
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229365/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月23日的大直播中，郭文贵先生指出，中共是被苏联共产邪魔附体的组织，其对国人的屠杀远超日本侵华战争。中共内分亲苏派与亲美派，两派的巨大差异与争斗，是导致中共国走向的关键因素。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-41.jpg)
-亲美派则认为中国需要改革开放，亲苏派却把老百姓当作奴隶看待。历史上俄罗斯侵占了中国大片领土，一手策划了将外蒙古从中华民国分裂出去的事件，还曾计划对中共国进行外科手术式的核打击，企图把中国人从地球上消灭，而正是美国人出手才制止了苏联的疯狂念头。因此，中共内部任何一个亲苏派都是极为可怕的。亲苏还是亲美，对中共国的未来也是一个决定因素。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+拯救地球多少次
+今生奇遇遇见他
+命中注定有了他
+心情好似开了花
+遇见他
+古藤老树都发芽
+如似清风抚头发
+春夏秋冬都开花
+迷失的信仰回了家
+迷途的人儿
+重新出发
+感谢他
+感谢今生遇见他
+重建联邦需要他
+子孙后代需要他
+拯救人类需要他
+灭掉共匪见爸妈
+我们今生追随他
+追随他
+完成使命
+向更高的维度
+进发
 
-参考链接：[3/24/2022 文贵盖特：中共跟世界脱钩是中国人的福气，但我们一定要活到脱钩后美好时代的到来；中共是俄乌战争的元凶已经成为世界主要话题，中国人醒来吧，不要再给共产党背黑锅了！](https://www.gettr.com/user/miles)
+文字版原文：[命中注定有了他](https://gnews.org/zh-hans/2223704/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+音频处理：Fei797
+发稿：Fei797
 
-总编: 宁文静
-编辑: 静言
-审核: 宁文静
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 

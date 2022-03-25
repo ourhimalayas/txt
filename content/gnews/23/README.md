@@ -2,29 +2,41 @@
 ---
 
 
-## 人类未来战争基本是利用高科技进行的远程战争
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2228675/)
+## 克里斯汀·安德森火力全开 痛斥特鲁多为暴君！
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228682/)
 
-撰稿：追着曙光跑
+**翻译: 里奇**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+北约成员国今天在布鲁塞尔开会讨论俄罗斯对乌克兰的战争。
 
-![](https://cdn.discordapp.com/attachments/954726325787164672/956183088008929310/model.png)
+包括加拿大贾斯汀·特鲁多在内的北约领导人今天出席了会议。
 
+今天早些时候，克罗地亚政治家米斯拉夫·科拉库西奇当面指责加拿大总理贾斯汀·特鲁多的独裁行为。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip克里斯汀·安德森火力全开-痛斥特鲁多为暴君！.png)
 
-3月25日，郭文贵先生在大直播上指出，经过这次的俄乌战争，人类未来的战争基本都是利用高科技进行远程的战争，人体接触式的战争会越来越少。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-25-at-10.38.52-PM.jpeg)
-在俄乌战争中，通过利用高科技手段，俄罗斯军队的行踪时刻被锁定，而且很快就被乌克兰人民掌握并攻克。现在俄乌战争已经持续一个月，俄罗斯要在一个星期内拿下乌克兰的狂言不攻自破。
+加拿大总理特鲁多在布鲁塞尔与北约会晤。一位克罗地亚政治家借此机会以独裁者称号来迎接他。今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森 (Christine Margarete Anderson) 担任欧洲议会的德国替代 (AfD) 议员，再次撂倒暴君特鲁多。
 
-郭先生继续指出，未来不可能再有国家大量养着军人跟国外打仗。所有跟国外的战争基本上是科技战争和经济战争，这两种战争都是非接触式的战争，未来会有各种表现方式；再有就是核武器战争，但这是毁灭性的。
+克里斯汀·安德森（Christine Anderson）：“那么这样一位公开钦佩中共国完全独裁政权的首相……他践踏基本权利，仅仅因为人们敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子……根本不应该被允许在这个屋子里说话。
 
-现在养着大量军队的国家，是属于内部人民的军队，是为了对付本国人民的，就像中共的军队，其建立军队目的为了对付本国人民，而不是为了对付外国的入侵。
+”特鲁多先生：你是民主的耻辱。请不要打扰我们。”
 
-郭先生最后指出，以往的战争，从拿刀和剑，发展到拿枪，再到拿导弹。现在由于牵引和通讯技术的改变，谁控制着世界的通讯权，以及控制着空中的高科技技术，比如导弹、反导弹以及反反导弹等技术，就可以直接控制着发射系统而赢得战争。
+太棒了！干得好，克里斯汀·安德森！
 
-*发布：追着曙光跑*
+**新闻来源**: [thegatewaypundit][Christine Anderson Brings THE FIRE: Second European Official Calls Out Tyrant Justin Trudeau to His Face! (VIDEO)](https://www.thegatewaypundit.com/2022/03/christine-anderson-brings-fire-second-european-official-calls-tyrant-justin-trudeau-face-video/)
 
-信息来源：[2022年3月25日文贵大直播](https://gettr.com/streaming/p11tme3b4de)
-![](https://cdn.discordapp.com/attachments/954726325787164672/956183311103959040/TUBIAO-X.jpg)
+**审核：文乐
+校对：花羽
+发布：信心满满**
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
