@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 2:17 AM (UTC)`
+
+3/23/2022 Miles Guo: Xu Jiayin is behaving like a mentally ill person just because he has a surveillance device on his body. Hong Kong is covering up the pandemic, only 1 death is reported for 5 deaths. 1,700 people died in just one district in Shenzhen. The pandemic in Communist China is out of control, causing more deaths than you could imagine. The world is stockpiling food like crazy, and Communist China may end up in a situation where people are reduced to cannibalism!<br/><br/>3/23/2022 文贵直播：许家印表现得像精神病只因身上安着监控器；香港掩盖疫情，死5人只报1人，深圳仅一个区就死了1700人，中共国疫情失控造成的死亡超乎想象；全世界正在疯狂屯粮，中共国可能会达到人吃人的境地！<br/>
+![img](https://media.gettr.com/group35/getter/2022/03/25/02/6a64a532-7736-339f-297a-25388b3e94cf/out.jpg)
+
+---
+
 `@miles 3/25/2022 2:01 AM (UTC)`
 
 3/23/2022 Miles Guo: The CCP would rather destroy Taiwan by creating earthquakes than make it an unsinkable aircraft carrier. Xi Jinping had the ambition to take Taiwan as early as 2007. The Russia-Ukraine war has made Xi believe that he must launch a quicker and fiercer attack on Taiwan at all costs.<br/><br/>3/23/2022 文贵直播：中共宁可通过制造地震毁掉台湾，也不让台湾成为永不沉没的航空母舰；习近平早在2007年就有意要拿下台湾；俄乌之战让习认为要更快、更狠且不惜一切代价地打台湾<br/><br/><br/>
@@ -152,13 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 3/23/2022 Miles Guo: After the Xi-Obama meeting failed, Xi felt he was humiliated and was so angry that he directly flew to Russia to ally with Putin. From then one, these two evil forces have been in cahoots to destroy America.<br/><br/>3/23/2022 文贵直播: 习奥会失败后，习恼羞成怒直飞俄罗斯与普京结盟，从此两股邪恶力量会师意在置美国于死地！<br/><br/><br/>
 ![img](https://media.gettr.com/group16/getter/2022/03/24/16/2b043e9e-e80c-bbe4-7513-671cbb50e2ff/out.jpg)
-
----
-
-`@miles 3/24/2022 4:07 PM (UTC)`
-
-3/23/2022 Miles Guo: Learning from Russia, what kind of disasters will be brought to the Chinese people when the worldwide exclusion of Chinese takes place? The US is preparing the secondary sanctions against the CCP, whose telecom companies, media, banks, food agencies, and spies such as Bruno Wu and Weijian Shan will all be sanctioned. Although the overseas Chinese will encounter crises, people in Communist China will be so miserable that you can't imagine!<br/><br/><br/>3/23/2022 文贵直播：以俄罗斯为前车之鉴，全球排华时会给华人带来什么样的灾难？美国在准备给中共的二级制裁，中共的通信企业、媒体、银行、粮食机构以及吴征和单伟建等特务都逃不掉；海外华人虽然会遇到危机，但国内却会惨到你无法想像！<br/><br/>
-![img](https://media.gettr.com/group34/getter/2022/03/24/16/8acdcf04-3183-2d49-992c-c3420abedad9/out.jpg)
 
 ---
 
