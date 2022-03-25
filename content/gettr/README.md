@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 11:15 PM (UTC)`
+
+Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working with a Christian organization. Since the wife is a Ukrainian and being able to translate, they came to the refugee camp as volunteers.<br/>新中国联邦法制基金自愿者精糧，采访了一对法国夫妇。他们在一个基督教组织工作。由于妻子是乌克兰人，能够做翻译，他们作为志愿者来到了难民营。
+![img](https://media.gettr.com/group8/origin/2022/03/25/23/df90b66e-db6f-9b62-566f-cc3c8e524664/out.jpg)
+
+---
+
+`@miles 3/25/2022 11:11 PM (UTC)`
+
+03/25/2022  Ukraine Frontline Updates <br/>乌克兰前线 战时战报 2022年3月25日更新【NFSC news】<br/>#ukrainerescue #ukrainerussiawar #nfscnews
+![img](https://media.gettr.com/group33/origin/2022/03/25/23/0ebfb07c-523f-9c30-e0bb-f8cf749a6b46/a45353efc4558b3538950b20b9db06c1.jpg)
+
+---
+
 `@miles 3/25/2022 11:01 PM (UTC)`
 
 2022.03.25 NFSC News  CCP‘s Attempt To Achieve Its Global Hegemony With Petro-RMB； Miles Guo Revealed the Truth About the China Eastern Aircraft Crash
@@ -145,20 +159,6 @@ The Great Decoupling has begun
 
 2022.03.24《The Fringe》 Episode 154
 ![img](https://media.gettr.com/group7/origin/2022/03/24/23/e57d39e9-d1c4-e224-b8e9-18f40f8129e0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 11:58 PM (UTC)`
-
-3/24/2022 Miles Guo’s GETTR: The CCP’s decoupling from the world would be a blessing for the Chinese people, but we must survive till that wonderful time comes after the decoupling. The CCP being the culprit of the Russia-Ukraine war has become one of the main topics of the world. Chinese people should wake up. Otherwise, we’ll be blamed for what the evil CCP has done!<br/><br/><br/>3/24/2022 文贵盖特：中共跟世界脱钩是中国人的福气，但我们一定要活到脱钩后美好时代的到来；中共是俄乌战争的元凶已经成为世界主要话题，中国人醒来吧，不要再给共产党背黑锅了！<br/>
-![img](https://media.gettr.com/group17/getter/2022/03/24/23/fb9f7363-5aa9-9b8a-1346-a00729c5925f/out.jpg)
-
----
-
-`@miles 3/24/2022 11:22 PM (UTC)`
-
-2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
-![img](https://media.gettr.com/group33/origin/2022/03/24/22/84ca6e39-3313-1906-d256-62dbe30d3c50/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
