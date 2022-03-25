@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 10:09 AM (UTC)`
+
+3/23/2022 Miles Guo: The entire world stands with Ukraine. The total GDP of Europe, the US, UK and Japan accounts for 70% of the world’s GDP. Russia will never win the Russia-Ukraine war even with the CCP’s support. Russia and Communist China will definitely disintegrate. Chinese people will live happily and safely in the country without the CCP.<br/><br/>3/23/2022 文贵直播: 全世界都站在乌克兰一边，欧美英日的GDP总和占世界的70%，俄罗斯即使背后有中共支持也打不赢俄乌战争；俄罗斯和中共国会被解体。在没有了中共的国度里，中国人会过得非常幸福、安全<br/>
+![img](https://media.gettr.com/group3/getter/2022/03/25/10/6e99d6d1-2ee0-3d1a-a354-ce524a9af9df/out.jpg)
+
+---
+
 `@miles 3/25/2022 5:34 AM (UTC)`
 
 3/23/2022 Miles Guo: Now the most absurd thing is happening to humanity in the world. The wealth obtained by individual labor is subject to various supervision and restrictions; the New Federal State of China is developing a truly decentralized, stable and secure digital currency-- “Tangping Coin”, which will be circulated globally without limitation for the benefit of all mankind<br/><br/>3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类<br/>
@@ -152,13 +159,6 @@ Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Y
 
 
 ![img](https://media.gettr.com/group12/origin/2022/03/24/17/dc18dab4-f4c1-d6db-f226-67feef170d9e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 4:54 PM (UTC)`
-
-The war has been going on for 26 days，The NFSC rescue has also entered its 17th day,<br/>As an increasing number of refugees were rescued, our rescue operation has become more and more professional, and the comrades have been a more harmonious group from setting up camps, stockpiling supplies, taking photos and recording videos, to live streams, interviews, and reports. It shows that we are working hard<br/>战争已经持续26天，我们新中国联邦的救援也已经进入了第17 天，随着救助的人数越来越多，我们的救援工作越来越专业，战友之间的合作越来越融洽，从搭建营地，到储备物资，从摄影、录像，到直播、采访、报道，都体现了我们在用心做事
-![img](https://media.gettr.com/group11/origin/2022/03/24/16/7464b0d7-547d-cb42-25d5-b910113ebb9b/out.jpg)
 
 ---
 
