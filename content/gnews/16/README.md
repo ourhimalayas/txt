@@ -2,30 +2,29 @@
 ---
 
 
-## 【Top News】俄罗斯资深改革者丘拜斯辞去普京特使职务
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2227092/)
+## 世界金融监管机构加强审查加密货币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227121/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2881.png)
-（Anatoly Chubais 于 2020 年 12 月被任命为普京的特别代表。 照片：法新社）
+作者：香草山农场 – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据路透社3月21日报导，在当前俄乌战争局势下，因对加密货币被用于规避制裁的担忧，由 20 国集团经济体的金融监管机构、中央银行和财政部官员组成的金融稳定委员会成员帕特里克·阿姆斯特朗，在伦敦举行的城市与金融会议上表示，正在监视与加密货币有关的各种情况。
 
-2022 年 3 月 24 日，据新西兰RNZ报道，阿纳托利·丘拜斯 (Anatoly Chubais) 已辞去总统弗拉基米尔·普京 (Vladimir Putin) 国际特使的职务，这是自俄罗斯入侵乌克兰以来辞职的最高级官员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-48.png)
 
-俄罗斯报道称，他目前和妻子在土耳其。Chubais 的任务是在国际上协调俄罗斯的可持续发展目标。战争开始后，他张贴了一张被谋杀的反对派人物的照片，这被视为一种批评姿态。他在 Facebook 上发布了鲍里斯·涅姆佐夫 (Boris Nemtsov)的照片，没有任何评论。他也没有对他的辞职发表评论。
+此外，英国金融服务大臣在该会议上表示，英国已将加密资产纳入反洗钱和恐怖主义融资的打击范围内，并支持对加密资产进行执法。欧盟也于此前发布相关指导意见，确认对俄罗斯包括加密资产在内的贷款和信贷进行制裁。
 
-一位消息人士告诉塔斯社，他已经离开俄罗斯，并辞去普京总统特别代表的职务。克里姆林宫发言人德米特里佩斯科夫说：“是的，丘拜斯是自愿辞职的。但无论他是离开“俄罗斯”还是留下，那都是他的个人事务。”除了佩斯科夫先生和外交部长谢尔盖·拉夫罗夫外，最近几周，俄总统圈子中很少有人公开露面。
+链接：
 
-乌克兰总统顾问米哈伊洛·波多利亚克周三表示，有趣的是，国防部长谢尔盖·绍伊古和总参谋长瓦列里·格拉西莫夫这两名高级安全人员以及俄罗斯特工部门的负责人“无处可寻”。
+- [Global regulators monitor crypto use in Ukraine war](https://www.reuters.com/article/crypto-currency-regulator-idCAKCN2LI0OH)
 
-丘拜斯并不被视为克里姆林宫的内部人士，他最出名的是他在苏联解体后的 1990 年代帮助改革俄罗斯经济的有争议的角色。鲍里斯·叶利钦总统领导下的大量私有化帮助创造了大量非常富有的寡头。反对派人士对丘拜斯先生的辞职不以为然。
 
-几名俄罗斯国家电视台记者也已经辞职，包括第一频道编辑玛丽娜·奥夫扬尼科娃，她举着一张写着“停止战争！”的海报。在黄金时段的新闻广播中，告诉俄罗斯人他们被骗了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-[【援引链接】](https://www.rnz.co.nz/news/world/463900/russian-veteran-reformer-chubais-quits-job-as-putin-envoy)
-
-**采集/撰稿：米拉雅
-审阅/天赐良闻
-上传/CharlieNZ查理**
-
+总编：雪梨
+编辑：飞虹/雪梨
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
