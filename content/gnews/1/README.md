@@ -2,30 +2,45 @@
 ---
 
 
-## 拜登赴欧促孤立俄罗斯　推动盟友示警中共别站错队
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2224980/)
+## 联合国儿童基金会：一半以上的乌克兰儿童流离失所
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2225071/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWGETTR.jpg)
-美国总统拜登昨晚抵达比利时布鲁塞尔，今天出席包括北大西洋公约组织（NATO）、 七大工业国集团（G7）及欧洲联盟等3大领袖会议，对外联合西方盟友团结抗衡俄罗斯侵略乌克兰。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-在马不停蹄行程中，拜登更进一步推动国际舞台上孤立俄罗斯，在北约会后记者会上回覆媒体提问是否认为应该将俄罗斯逐出G20时，他说「我的答案是肯定的」，指俄罗斯应该被排除在G20之外。
+#### 整理/编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3527857-PH.jpg)图片来源：SETN
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-24.png)图片来源：Hindustan Times & 雅典娜设计组
 
-拜登说逐出的决定由G20的所有成员国决定，但紧接着说如果G20中有国家反对，那么他认为应该让乌克兰以观察员身份参加G20的会议。
 
-他此行除推动对俄罗斯加大制裁及孤立外，也剑指中共是背后支持俄罗斯侵略的藏镜人角色，他说向中共领导人习近平明确表示，如果中共在这场战争中帮助俄罗斯领导人普京，将会有后果。
+3月24日，据全球救援组织联合国儿童基金会称，乌克兰持续一个月的战争已导致430万儿童流离失所，占该国儿童人口的一半以上。
 
-简评：全世界都知道中共是俄乌战争的元凶，中共想藏也藏不住了，认清现实站好队是中共唯一的出路。如果中共在这场战争中帮助俄罗斯领导人普京，将会有后果。帮助绝对有了而且是大大的，金钱，情报，物资，提供地盘造武器……除了出兵帮助估计啥都给了。如今给了中共一个选边站的机会，再不弃恶从善，拜登很愤怒，后果很严重！
+联合国机构表示，180万儿童作为难民进入邻国，另有250万儿童在俄罗斯入侵后在乌克兰境内迁徙。
 
-新闻来源：[https://www.setn.com/News.aspx?NewsID=1090182](https://www.setn.com/News.aspx?NewsID=1090182)
+联合国儿童基金会执行主任凯瑟琳·拉塞尔在一份声明中说：“这场战争造成了二战以来最短时间内的大规模儿童流离失所，这是一个严峻的标志性事件，将对几代人产生持久的影响。”
 
-撰稿/发布：一叶知秋
+同期，世界卫生组织(WHO)报告了52起袭击事件，影响了全国各地的医疗保健设施，乌克兰教育和科学部报告了500多个教育设施受损。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+“儿童所依赖的基本基础设施，包括医院、学校和庇护平民的建筑物，绝不能受到攻击，”联合国儿童基金会高级官员宣称。
+
+与此同时，目前乌克兰约有140万人无法获得安全用水；460万人的水供应有限面临完全断水的威胁，超过450,000名6至23个月大的婴儿需要补充食品支持。
+
+“儿童的安全、福祉和获得基本服务的机会都受到不间断的可怕暴力的威胁，”拉塞尔说。
+
+据联合国人权事务高级专员办事处估计，自2月24日战争开始以来，乌克兰已有78名儿童丧生，105人受伤。这些数字仅包括联合国能够证实的报告，这意味着它说，实际造成的损失可能要高得多。
+
+参考链接：
+
+1、[Russia-Ukraine war: Roman Abramovich may be key to peace, says Kyiv (afr.com)](https://www.afr.com/world/europe/i-have-never-seen-such-cruelty-ukrainians-flee-in-their-millions-20220324-p5a7dr)
+
+2、[One month of war leaves more than half of Ukraine’s children displaced | | UN News](https://news.un.org/en/story/2022/03/1114592)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

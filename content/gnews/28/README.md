@@ -2,42 +2,29 @@
 ---
 
 
-## 英国最贫穷的城镇之一如何成为逃离中共国的香港人的天堂
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224294/)
+## 俄罗斯国防部长退出视线后重新露面
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2224372/)
 
-编译：七龙珠
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-
-在英国灰暗的冬天里，在一个异常晴朗的日子里，大约30名香港人聚集在黑池（Blackpool）的一个自助餐厅上，黑池是英国最贫困城市之一。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/id13062220-UK-airport-02@1200x1200-450x253-1.png)图片来源：文苳晴／大纪元
-
-有些人已经在国内呆了几个月，大多数人只呆了几周。我的左边坐着一位中年妇女，她和她20多岁的儿子在11天前刚刚抵达黑池。
-
-“我的英语不是很好”她笑着道歉。在我们周围，每个人都继续用广东话交谈，我一个字都听不懂。
-
-“我们都在谈论香港，我们最后的话题总是围绕着香港”坐在我对面的约翰尼解释说，看到我不解的脸。
-
-这群人的年龄和社会经济地位各不相同，但他们都有一个共同点，那就是在北京于2020年通过有争议的《国家安全法》后“被迫逃离”香港，该法被其反对者视为对香港在“一国两制”原则下享有的自由的决定性打击，中共政府则辩护称，国安法是对香港社会维稳的必要。
-
-**参考资料：**[bbc][Cómo una de las ciudades más pobres de Reino Unido se convirtió en un refugio para hongkoneses que huyeron de China](https://www.bbc.com/mundo/noticias-internacional-60349780)
-
-审核：Aries的星
-校对：小东
-发布：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/XJHDKE4S6JNHJOWJXVSTKTJJKM.jpg)
 
 
+图片来源：路透社
 
+俄罗斯强大的国防部长在俄罗斯与乌克兰的战争期间退出公众视野数日后，于周四在官方媒体播放的一小段视频片段中重新露面。
 
+在俄罗斯 RIA 通讯社播出的视频中，普京远程会见了他的安理会时，俄罗斯总统弗拉基米尔·普京的亲密盟友谢尔盖·绍伊古出现在高级官员的分屏上。
+
+一些俄罗斯媒体周三表示，这位 66 岁的部长已经 12 天没有露面，这引发了人们对其下落的猜测。
+
+克里姆林宫发言人德米特里佩斯科夫周四淡化了这种猜测，称绍伊古有很多事情要做，他没有花很多时间在媒体上露面是可以理解的。
+
+“国防部长现在有很多想法。一项特殊的军事行动正在进行中。现在不是媒体活动的时候，”佩斯科夫告诉记者。
+
+🔗 [https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/](https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/)
+
+编辑发表： Shuizhuyu
 
  
 

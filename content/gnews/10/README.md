@@ -2,30 +2,29 @@
 ---
 
 
-## 【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2224704/)
+## 中共运-8反潜机在南海坠毁
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2224920/)
 
-作者：加拿大温哥华扬帆农场 –播报：七彩虹-视频制作：文雅
+编译：波士顿五月花—-思澈
 
-乌克兰总统弗拉基米尔·泽连斯基(Volodymyr Zelenskiy)周一表示，为结束战争而与俄罗斯达成的任何“妥协”都需要由乌克兰人在公投中投票决定。
+经证实中共运-8反潜机在南海海域坠毁，至少有10名军人在执行任务时遇难，大部分是校、尉级军官。
 
-泽连斯基在接受乌克兰公共广播频道Suspilne的采访时说：“人民将不得不开口，对这种或那种形式的妥协做出回应。至于它们（妥协模式）是什么样子，这是我们（两国）谈判的主题和乌俄之间（要达成）的谅解。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/005843FE-525C-4D5F-B342-8DFA59F6A0DC.jpeg)
 
-他说，在任何公投中可能提出的问题均可能涉及被俄罗斯军队占领的领土，包括克里米亚；或涉及乌克兰放弃加入北约以换取某些国家向乌方提供的安全保证。
+三月初世界聚焦俄罗斯入侵乌克兰期间中共一架运-8反潜战斗机坠落南海。
 
-视频链接：[https://gettr.com/post/p11oqs82372](https://gettr.com/post/p11oqs82372)
+三月22日，微博用户「张超微博」发布一份共10人的遇难名单，并请大家记住「**黑色三月**」。「张超微博」虽未写这些人是在运-8反潜机事故中遇难，但名单中10人都是海、空军飞行员，全部来自中共92697部队，该部队是海军航空兵部队，配置运-8反潜战机，而且这10人都是在3月1日遭遇不幸，恐怕不是巧合。
 
-上传：文莱
+坠机之初，中共在南海邻近海域发布禁航区从事搜救、军事训练遮盖消息，但一位长期关注南海军事动态的越南军事记者于3月6日在推特曝光，3月1日下午1架中共运-8反潜机在海南岛三亚市西南海域失联。台湾国防部稍晚也证实这一消息。
 
-* * *
+中共官方至今未见发布军机坠毁消息及相关回应。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+素材来源：[https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659](https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+*发布：思澈*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

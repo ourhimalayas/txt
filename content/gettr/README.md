@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/24/2022 11:59 PM (UTC)`
+
+2022.03.24《The Fringe》 Episode 154
+![img](https://media.gettr.com/group7/origin/2022/03/24/23/e57d39e9-d1c4-e224-b8e9-18f40f8129e0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/24/2022 11:58 PM (UTC)`
+
+3/24/2022 Miles Guo’s GETTR: The CCP’s decoupling from the world would be a blessing for the Chinese people, but we must survive till that wonderful time comes after the decoupling. The CCP being the culprit of the Russia-Ukraine war has become one of the main topics of the world. Chinese people should wake up. Otherwise, we’ll be blamed for what the evil CCP has done!<br/><br/><br/>3/24/2022 文贵盖特：中共跟世界脱钩是中国人的福气，但我们一定要活到脱钩后美好时代的到来；中共是俄乌战争的元凶已经成为世界主要话题，中国人醒来吧，不要再给共产党背黑锅了！<br/>
+![img](https://media.gettr.com/group17/getter/2022/03/24/23/fb9f7363-5aa9-9b8a-1346-a00729c5925f/out.jpg)
+
+---
+
 `@miles 3/24/2022 11:22 PM (UTC)`
 
 2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
@@ -145,22 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 <br/>3/24/2022 法国一家保险公司拒绝理赔一位投有数百万人寿保险的富商：这位富商因为注射中共疫苗而死亡，保险公司及法院认定他在知晓该疫苗属实验性药物，且有副作用的情况下仍选择接种的行为，这种选择被认定是‘自杀’。<br/><br/>03/24/2022 French insurance company refuses to pay out to a wealthy businessman with millions of dollars in life insurance: after he died from the Covid vaccine, the insurance company and the court decided that he chose to receive this Covid vaccine despite knowing that it was an experimental drug and had side effects, a choice that was deemed ‘suicidal’<br/>
 ![img](https://media.gettr.com/group32/getter/2022/03/24/12/6d848c3a-e386-0f16-f73d-ab179d80a124/out.jpg)
-
----
-
-`@miles 3/24/2022 12:30 PM (UTC)`
-
-2022.03.24 早 《新中国联邦新闻》最新救援数据； 乌克兰救援行动将成为拯救无数华人的传奇； 习近平不改侵台野心
-![img](https://media.gettr.com/group42/origin/2022/03/24/12/d543ff81-4d72-e43c-e995-427104828ca3/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 3/24/2022 11:11 AM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢NFSC UKRAINE FRONTLINE RESCUE LIVE BROADCAST on 2022.03.24 EST
-![img](https://media.gettr.com/group26/origin/2022/03/24/11/80baaa6e-8062-2c59-ce50-93ad70631aae/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

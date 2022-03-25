@@ -2,20 +2,30 @@
 ---
 
 
-## 樱花时政┃泽伦斯基总统牌枕头？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2224593/)
+## 【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2224704/)
 
-撰稿：东京樱花团/ haruka春香
+作者：加拿大温哥华扬帆农场 –播报：七彩虹-视频制作：文雅
 
-全世界订单纷至沓来，收益捐献给支援团体。乌克兰抵抗俄罗斯入侵的象征——泽伦斯基总统在意想不到的地方也受到了人们的关注。面带微笑的泽伦斯基总统的脸印得与实物差不多大小的枕头。简单大胆的设计成为话题后，来自全世界的订单纷至沓来。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-49.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220324-00010030-abemav-000-1-view.jpg?exp=10800)
-设计该枕头的一名捷克设计师表示：“‘泽伦斯基枕头’卖出了2000多个，现在也在持续增加”，“枕头收入被捐赠给了支援乌克兰的慈善团体。”
+乌克兰总统弗拉基米尔·泽连斯基(Volodymyr Zelenskiy)周一表示，为结束战争而与俄罗斯达成的任何“妥协”都需要由乌克兰人在公投中投票决定。
 
-信息来源：[ゼレンスキー大統領が枕に!? 世界中から注文が殺到、収益は支援団体に寄付](https://news.yahoo.co.jp/articles/a48403fd184dd39d6d24a03937d83127f5acb656)
+泽连斯基在接受乌克兰公共广播频道Suspilne的采访时说：“人民将不得不开口，对这种或那种形式的妥协做出回应。至于它们（妥协模式）是什么样子，这是我们（两国）谈判的主题和乌俄之间（要达成）的谅解。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+他说，在任何公投中可能提出的问题均可能涉及被俄罗斯军队占领的领土，包括克里米亚；或涉及乌克兰放弃加入北约以换取某些国家向乌方提供的安全保证。
+
+视频链接：[https://gettr.com/post/p11oqs82372](https://gettr.com/post/p11oqs82372)
+
+上传：文莱
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
