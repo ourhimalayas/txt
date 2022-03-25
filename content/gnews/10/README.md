@@ -2,39 +2,44 @@
 ---
 
 
-## 【Top News】美国宣布制裁与朝鲜有联系的俄罗斯实体
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2227542/)
+## 樱花FM|郭文贵先生2022年3月18日盖特视频（二）（2分49秒）全文字版
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2227590/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2911.png)
-© AP Photo / Luis M. Alvarez
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/郭文贵先生2022年3月18日盖特视频（二）（2分49秒）全文字版.png)
 
-据俄罗斯卫星通讯社华盛顿3月25日报道，美国国务院发布消息称，因违反对伊朗、朝鲜和叙利亚的制裁，美国宣布对一名俄罗斯个人，以及俄罗斯、中共国和朝鲜多个实体实施制裁。
+战友们，我早上五点到现在，我在办公室，大使馆，上午开几个小时律师的会，下午和瑞秋、罗伊、长岛哥，一下午再开五个会，回来我还得锻炼，不要给自己理由放弃，不要给自己懦弱、懒，有任何借口。
 
-消息称，“美国宣布对俄罗斯和朝鲜境内的五个实体和个人，以及中共国的一个实体实施制裁。”
+我上午咋说的？我前天咋说的，兄弟姐妹，共产党永远会选最毒那个药，因为他过去毒死了中共老百姓，他活着，但这回习太阳和拜登总统的通话，你看明白了吗？天灭中国。
 
-美国国务院表示，作为对“为朝鲜导弹计划提供敏感材料”的回应，采取了多项限制性措施，制裁期限为两年。
+星期六不直播，星期天直播，后天直播。
 
-美国是在《伊朗、朝鲜和叙利亚不扩散法案》框架内采取限制性措施的。
+我们前线的很多战友们都染上病了，务必保重啊，兄弟姐妹们，我一听咱自己的歌，咋这么带劲儿嘞?真带劲儿！
 
-【援引链接】[https://sputniknews.cn/20220325/1040275540.html](https://sputniknews.cn/20220325/1040275540.html)
+哎呀，七哥眼袋下去了，是吧？叫卧蚕，是吧，是吧？看着很蚕是吧？
 
-采集/撰稿：米拉雅
-审阅/天赐良闻
-上传/CharlieNZ查理
+啊，嗯，啥都不说啦，同学们，战友们，谁是同学啊？别忘了锻炼，同学们，该行动啦，关键时刻要行动。
 
-推出问题，敲出真相，爆料在路上！
+啊，共产党你完球蛋了，我要继续锻炼去了，兄弟姐妹们。啥都不说了，星期天见。
 
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：
+稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)
+文字版原文：
 
-【Gnews Top News New Zealand】盖特账号：[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)
 
-【新西兰Gnews】盖特账号：[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)
+| [郭文贵先生2022年3月18日盖特视频（二）（2分49秒）全文字版](https://gnews.org/zh-hans/2189169/) |  |
+| --- | --- |
 
-【玫瑰看新闻】盖特账号号：[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)
 
-ROSE NEWS推特账号：[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
+*编辑：东京樱花团/asket   
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

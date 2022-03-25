@@ -2,31 +2,22 @@
 ---
 
 
-## 秘翻新闻｜传俄军已接“战争结束日”命令
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2227248/)
+## 视频|世界金融监管机构加强审查加密货币
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2227537/)
 
-**By:[秘翻新闻](https://gettr.com/post/p11rtvxb0fe)**
+制作：香草山视频部
 
-**[2022-03-25](https://gettr.com/post/p11rtvxb0fe)**
+据路透社3月21日报导，在当前俄乌战争局势下，因对加密货币被用于规避制裁的担忧，由 20 国集团经济体的金融监管机构、中央银行和财政部官员组成的金融稳定委员会成员帕特里克·阿姆斯特朗，在伦敦举行的城市与金融会议上表示，正在监视与加密货币有关的各种情况。
+此外，英国金融服务大臣在该会议上表示，英国已将加密资产纳入反洗钱和恐怖主义融资的打击范围内，并支持对加密资产进行执法。欧盟也于此前发布相关指导意见，确认对俄罗斯包括加密资产在内的贷款和信贷进行制裁。
 
-**新闻内容**:
+发稿：文敬
 
-**1. 上海医疗系统近崩溃 民揭染疫人数惊人**
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-**2. 网曝唐山市警察严查私自出门人员 违者被抓拘留**
-
-**3. 俄乌战争已使多达4万名俄军受损**
-
-**4. 联合国通过乌克兰人道问题决议**
-
-**5. 美国制定计划以防俄罗斯使用化学和核武器**
-
-**🔗Gettr链接：**[**https://gettr.com/post/p11rtvxb0fe**](https://gettr.com/post/p11rtvxb0fe)
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

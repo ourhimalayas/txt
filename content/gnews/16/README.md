@@ -2,29 +2,30 @@
 ---
 
 
-## 北约峰会主张加强防御，应对俄乌局势
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227127/)
+## 日本民调：对新冠疫苗不信任急剧增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227396/)
 
-作者：温哥华扬帆农场 – 動物農莊裡的小螞蟻Michael.Tonny#1290
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月24日，北约紧急峰会正式开幕。在开幕式上，北约秘书长延斯·斯托尔滕贝格强调，继续向俄罗斯总统普京施加压力，同时主张北约加强防御，应对蔓延到欧洲和世界的经济和安全后果。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2904.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia-cldnry.s-nbcnews.com%2Fimage%2Fupload%2Ft_fit-760w%2Cf_auto%2Cq_auto%3Abest%2Fnewscms%2F2021_26%2F3487224%2F210628-japan-vaccine-se-532p.jpg&amp;imgrefurl=https%3A%2F%2Fwww.nbcnews.com%2Fnews%2Folympi)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-65.png)
+日本冲绳县3月17日发布了关于新冠病毒疫苗的民意调查结果。结果显示，没有接种过1次疫苗的原因是“因为不了解”占最多为73%，“当被问及“怎样才能让您接种疫苗？”答“不希望接种”者占47%。
 
-拜登在周三抵达时表示，希望推动盟国对俄罗斯实施新的制裁，并称相关禁令、抵制和惩罚所削弱俄罗斯的经济实力。
+调查以1月24日—2月10日居住在县内的12岁以上为对象在网上进行的。参加人数为1万1353人。 在没有接种过1次疫苗的1476人中询问，理由第1位(可以多次回答)，“个人自由”是71%,第2位是，“害怕副作用”还有“感觉没有必要”也分别是50%以上。担心有不孕风险”是27%。
 
-链接：
+县民调机构分析，“对疫苗的不安感和对行政信息持怀疑态度”是不接种的原因。为提高接种率的目标，决定3月中旬集中播放电视广告。
 
-- [Extraordinary Summit of NATO Heads of State and Government](https://www.nato.int/cps/en/natohq/events_193216.htm)
-- [Biden pledges new Ukraine aid, warns Russia on chem weapons](https://apnews.com/article/russia-ukraine-putin-biden-business-g-7-summit-9f6705e72533496f513c3540881d348e)
+信息来源：[「未知のワクチンだから」 73%　未接種の理由1位　沖縄で県民1万人意識調査　「希望しない」47%](https://www.okinawatimes.co.jp/articles/-/927722)
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO-1-14.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多信息，更多关注**
+[**乌克兰救援官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场委员会联盟Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟驻全球服务中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编/编辑：雪梨
-审核：雪梨
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
