@@ -2,30 +2,28 @@
 ---
 
 
-## 安省废水数据显示中共病毒急剧增加
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2229753/)
+## 喜联储致力于打造最安全稳定的金融系统
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229953/)
 
-作者：加拿大温哥华扬帆农场-文莱
+作者：银河系农场 骄子， 澳喜农场 Leo M
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月23日的大直播中，郭先生指出，喜联储摒弃了当今金融系统对财富的控制，以严格的法律KYC，最先进稳定的技术，保障财富拥有者自由地、安全地支配合法资产。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-7.jpeg)
 
+郭先生解释，911之后，美国的金融机构和各大银行以反恐为名，恶意要挟控制财富；加拿大卡车司机被政府打压，冻结银行账户；澳大利亚警察暴打示威者等等。民主国家通过控制私有资金和资产，达到控制个人自由的目的。当然，独裁政府更是利用钱来限制人权和自由，对个人财富形成极大威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2964.png)图片来源：YAHOO
+郭先生说，喜币自创立到现在5个多月，已经涨了400多倍，并且在全世界数字货币市场大震荡期间，没有发生巨大的涨跌波动。世界金融家惊讶于这样前瞻性、革命性的系统设计，可以在世界的任何一个角落，点到点支付，速度极快，安全和隐私有保障。这样的金融系统当然会被大多数人认可。喜联储正致力于打造这样一个安全、稳定、不受政府要挟和控制的平台。
 
+最后，郭先生再一次强调，拥有喜币，善待财富。喜币未来会开发智慧功能，引导人们过有道德的生活，对作恶的政府或个人进行限制追责。喜币要成为正义的财富，远离一切邪恶。
 
-据加拿大媒体【CTV新闻】3月24日报道，安大略省的市政府废水检测显示出，安省的各个地方都检测到中共病毒持续增加的迹象，这表明安大略省的大流行病数量正在上升。
+参考链接： [2022年3月23日 文贵大直播](https://gettr.com/post/p11h7xt9462)
 
-报道称，安省日前取消了其大流行病的限制，包括许多室内空间的容量限制，但观察人士表示，在全省范围内的水中检测到的病毒载量增加了两万八千例活跃病例，此数据在大约六天内翻了一番。不过专家认为重新开启安省的封锁限制还为时过早，但其他相对的措施将会制定以限制病毒传染。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-据悉，安省废除新冠限制后的废水增加本是意料之中，但因其上涨速度过快导致专业人士对其展开调查，此外从废水检测中发现一种新的病毒株正在形成，它超过50%的BA.2是奥密克戎变体，虽然本身并不危险，但传播性明显更高。
-
-链接：[Ontario COVID wastewater data points to increase in cases | CTV News](https://toronto.ctvnews.ca/ontario-wastewater-testing-shows-sustained-increase-in-covid-19-rates-1.5831893)
-
-* * *
-
-编译撰稿：文莱， 编辑发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+总编/编辑/审核：宁文静
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

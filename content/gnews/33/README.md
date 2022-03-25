@@ -2,38 +2,36 @@
 ---
 
 
-## 美欧协议不再进口俄罗斯天然气
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2228528/)
+## 岸田首相派遣古河法务大臣前往波兰接收难民
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228926/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-20.20.26.png)
-3月25日，美国总统拜登和欧盟的冯布莱恩宣布，欧盟不再进口俄罗斯天然气，转而与美国达成天然气进口协议。
+翻译：Orpheus
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/sw-1.jpg)图片来源：NHK新闻
 
-据悉过去几年，俄罗斯是欧盟最大的能源供应国，周三普京要求“不友好国家”使用卢布结算天然气贸易，不再使用美元和欧元。拜登总统与欧盟主席冯布莱恩的联合声明表示，欧盟要从过去的依赖俄罗斯天然气能源走向独立，为当地居民和企业提供可负担的清洁能源。双方会成立一个联合工作队，加快能源转型。
+日本时间25日凌晨1点前，岸田首相在比利时会见了正在访问的波兰总理莫拉维茨基，并告知他打算派遣法务大臣古川作为其特使前往波兰，推进乌克兰难民的收容。
 
-据知情人士称，此项工作局限性较大。美国探索增加能源产量，欧洲转向发展清洁能源，是从长远角度的考量。美国天然气出口商下周将与德国买家会面。
+其中，岸田首相表示，”俄罗斯对乌克兰的侵略是一个严重的形势，不仅在欧洲，而且动摇了包含亚洲在内的整个国际秩序的基础，我们把它当作自己的事情，正在为了实施严格的制裁并给予乌克兰支持”。
 
+两位领导人随后一致认为，有必要以坚定的决心支持正在努力捍卫自己家园的乌克兰人民。
 
+岸田首相解释说，我国正在建立一个系统来接收流离失所的乌克兰人，并支持他们的日常生活。他告诉首相，他打算派遣法务大臣古川作为特使前往波兰，以便准确评估当地居民的需求。
 
-reference：
+岸田首相还与加拿大总理特鲁多和北约秘书长斯托尔滕贝格进行了简短会晤，并确认他们将在处理乌克兰局势方面密切合作。
 
-[https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports](https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports)
-
-[https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
-
-撰稿、发布：骄子
+参考链接：[岸田首相 避難民受け入れのため 古川法相をポーランドに派遣へ | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220325/k10013550691000.html)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+审核：BryanW
+校对/发稿：宫米叶
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

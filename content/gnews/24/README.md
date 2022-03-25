@@ -2,25 +2,30 @@
 ---
 
 
-## 安省废水内新冠病毒数量激增
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229360/)
+## 樱花FM|新中国联邦用心关爱战乱中的乌克兰小天使
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229686/)
 
-采编/撰稿：加拿大温哥华杨帆农场 – 文莱
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032529.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-32-2.jpg)图片来源：yahoo
+每一位孩子都是坠入凡间的天使，乌克兰的孩子们虽然身处战乱，但是孩子们的每一次微笑都值得珍惜，足以融化枪炮的狰狞，在人们的心中绽放绚丽的玫瑰。新中国联邦与法治基金在救援前线为孩子们提供了可爱的玩具，精心布置的儿童游戏区，让孩子们可以远离战争的喧嚣，拥有一片心灵的伊甸园。我们懂你们，我们与你们在一起。
+
+文字版原文：
 
 
-据【CTV新闻】3月24日报道，安大略多个市政化验结果显示，在被检测的废水样本中，“新冠病毒”数量均出现持续增加的迹象，这表明该省病毒感染人数呈上升趋势。
+| [新中国联邦用心关爱战乱中的乌克兰小天使](https://gnews.org/zh-hans/2201319/) |   |
+| --- | --- |
 
-报道称，尽管安省目前已取消了绝大部分疫情限制，但在全省范围内被抽样分析的废水中，“新冠病毒”含量却成几何倍数增长。不过有卫生专家认为，暂无必要因此重新开启安省的封锁政策。
 
-据悉，安省卫生部门认为废水中的病毒数量增加并不意外，但因其上升速度过快而促使专业机构正对此展开调查。此外，从废水检测中发现了一种新的奥密克戎变体，虽然并不危险，但传播性明显更高。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [Ontario COVID wastewater data points to increase in cases | CTV News](https://toronto.ctvnews.ca/ontario-wastewater-testing-shows-sustained-increase-in-covid-19-rates-1.5831893)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

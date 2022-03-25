@@ -2,29 +2,27 @@
 ---
 
 
-## 喜联储致力于打造最安全稳定的金融系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229953/)
+## 加拿大增强对俄罗斯航班的禁飞令
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2230106/)
 
-作者：银河系农场 骄子， 澳喜农场 Leo M
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月23日的大直播中，郭先生指出，喜联储摒弃了当今金融系统对财富的控制，以严格的法律KYC，最先进稳定的技术，保障财富拥有者自由地、安全地支配合法资产。
+采编：加拿大温哥华杨帆农场 – 青青/晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-7.jpeg)
+编辑撰稿：硫酸羟氯喹64
 
-郭先生解释，911之后，美国的金融机构和各大银行以反恐为名，恶意要挟控制财富；加拿大卡车司机被政府打压，冻结银行账户；澳大利亚警察暴打示威者等等。民主国家通过控制私有资金和资产，达到控制个人自由的目的。当然，独裁政府更是利用钱来限制人权和自由，对个人财富形成极大威胁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-7.jpg)图片来源：ctv
 
-郭先生说，喜币自创立到现在5个多月，已经涨了400多倍，并且在全世界数字货币市场大震荡期间，没有发生巨大的涨跌波动。世界金融家惊讶于这样前瞻性、革命性的系统设计，可以在世界的任何一个角落，点到点支付，速度极快，安全和隐私有保障。这样的金融系统当然会被大多数人认可。喜联储正致力于打造这样一个安全、稳定、不受政府要挟和控制的平台。
 
-最后，郭先生再一次强调，拥有喜币，善待财富。喜币未来会开发智慧功能，引导人们过有道德的生活，对作恶的政府或个人进行限制追责。喜币要成为正义的财富，远离一切邪恶。
+据【CTV新闻】3月21日报道，俄罗斯航空公司一架商用客机近日以人道主义救援为由，规避了进入加拿大领空的禁令。对此联邦政府已进一步收紧对该国的禁飞令。
 
-参考链接： [2022年3月23日 文贵大直播](https://gettr.com/post/p11h7xt9462)
+上月底，俄航 111 航班在谎称其为人道主义救援后，被获准穿越加拿大领空，并从迈阿密飞往莫斯科。由于民航局没有实际权力阻止俄罗斯飞机进入加拿大领空，因此，所有违规行为都会报告给加拿大交通部，并与警方和军方合作做出回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+据悉，在实施禁飞令之前，每周约有 140 架俄罗斯航班穿越加拿大领空。同时，加拿大海域对所有俄罗斯拥有或悬挂俄罗斯国旗的船只关闭。目前，交通部正在对该事件进行调查并表示：禁飞令不包括人道主义航班的任何豁免，这是对俄罗斯入侵乌克兰进行制裁的一部分。
 
-总编/编辑/审核：宁文静
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑：硫酸羟氯喹64
 
+发稿：文明(添草灭共)
+
+新闻来源： [https://www.ctvnews.ca/politics/canada-tightens-ban-on-russian-aircraft-to-include-humanitarian-flights-1.5828119](https://www.ctvnews.ca/politics/canada-tightens-ban-on-russian-aircraft-to-include-humanitarian-flights-1.5828119)
 
  
 

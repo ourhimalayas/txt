@@ -2,25 +2,26 @@
 ---
 
 
-## 马克龙警告：我们将进入一个史无前例的粮食危机
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2229514/)
+## 日媒称俄乌战争应区分独裁者和国家概念
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229728/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月22日，日本媒体在关于俄罗斯侵略乌克兰战争的节目中，强调独裁者和国家两个概念的区别。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-上午11.21.15.png)
+主持人首先谈及只有挫败俄罗斯，才能阻止包括中共国在内的独裁专制政权妄图以军事力量改变世界地理版图的野心。嘉宾兴梠先生表示赞同，但马上纠正道，不是要挫败俄罗斯这个国家，而是挫败普京和身边的极个别人。因为这场对乌克兰的侵略战争不是俄罗斯民族或国家发起的，而是普京个人将国家权力私有化之后，作为独裁者发起的。仇视北约的不是俄罗斯，而是掌管俄罗斯政治体制的少数几个人。
 
-乌克兰危机的关键点是乌克兰和俄罗斯都是谷物生产大国。马克龙宣布了一项新的“粮食互助”活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-25-alle-12.11.15-2.png)imolaoggi.it
-马克龙说：“作为现任欧盟理事会主席，我希望与非洲联盟直接联系，发起‘农场’倡议。”这一目的是“缓解这场危机”。首先制定商业应急计划，释放一些国家的库存，并防止今年夏天出现生产短缺，帮助有依赖性的国家增加产量。马克龙警告说：“我们正在进入一个史无前例的粮食危机。”
+兴梠先生特别强调，这种独裁体制国家里的国民才是真正的受害者。无论是当前的普京还是以前的毛泽东，均利用媒体和教育对国内百姓进行洗脑，使民众成为其独裁政权的提线木偶。而觉醒后看清其真相的民众，纷纷逃离这些独裁国家。独裁国家的最好结局就是人民自己起来反抗，实现政权更迭。同时，西方民主国家真正该探讨的，就是如何消灭这种让人感到恐惧的独裁政权。
 
-简评： 文贵先生近期告诉我们未来最贵的东西是水、粮食，而且现在西方国家也在大量地购买粮食。爆料革命有真实的信息和情报，它是我们的诺亚方舟。
+参考链接：[20220322日本東京電視台 1.嘉賓興梠先生（之前也犀利點評過CCP冬奧會）強調，侵略烏克蘭不是俄羅斯挑起的，而是普京和普京身邊人挑起的…](https://www.gettr.com/post/p11m3q6e94d)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-
-参考链接：
-
-[https://www.imolaoggi.it/2022/03/25/macron-stiamo-entrando-in-una-crisi-alimentare-senza-precedenti/](https://www.imolaoggi.it/2022/03/25/macron-stiamo-entrando-in-una-crisi-alimentare-senza-precedenti/)
-
-编辑、上传：Xiao baige
-
+编辑：静言
+总编：宁文静
+审核：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

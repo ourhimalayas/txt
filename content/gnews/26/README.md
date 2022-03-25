@@ -2,29 +2,43 @@
 ---
 
 
-## 2022.3.25大直播 俄乌战争撕下独裁者的伪装
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2229306/)
+## 有声|郭文贵先生爆东航坠机事件真相
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229669/)
 
-撰稿：大浪小水花
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-25-at-8.38.43-PM.jpeg)
 
 
-郭文贵先生在2022年3月25日大直播中再次提到了这次俄乌战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093703-1280x720-1.jpg)
 
-郭先生指出这次俄乌战争是对俄罗斯军事的一次大检验、大悲哀、大暴露，是全世界国家和政客对军事、科技认知的一场大颠覆。
 
-作为世界第二大军事强国的俄罗斯，世界上有超过一半的国家将近五十亿人口使用它的武器，开战前没有人会想到俄罗斯入侵乌克兰会打成这个样子。
+对于东航坠机事件，郭文贵先生在3月23日大直播中爆料，根据相关技术数据，该事件是一场蓄谋已久、精心策划的自杀行为。郭先生表示，根据当事人给中共的留言，因财产被骗，家人受虐，又因接种疫苗，深恐自己和家人都将因此导致死亡，自1月起，他精心策划这起报复性的事件，导致灾难性伤害。
 
-俄罗斯用四五十年前苏联进攻阿富汗的人海战术进攻乌克兰，叫嚣一个星期拿下乌克兰，结果被打的溃不成军。俄罗斯现在已经没有生力军可用，俄罗斯的武器装备在乌克兰人面前不堪一击。最糟糕的是俄罗斯的通信，它居然还在用GPS。可见俄罗斯的军事装备劣质到什么程度。
+在中共国，除不可预测的疫苗灾难，疫苗灾难导致报复社会的突发事件恐将接踵而至。
 
-郭先生指出，除了武器、通信、供给、战术之外，最夸张的是俄罗斯虚假的宣传。现在大家都有通讯，全世界都在看着俄罗斯电台无耻的严肃的撒谎。
 
-郭先生提到，山东一位退下来的中将表示，虽然这场战争俄罗斯打的如此不堪，但如果让共产党现在跟俄罗斯打，一定会被俄罗斯打趴下。因为中共怕部队造反，一切集中化管理，所以俄罗斯只需要把中共的几个中心一炸，中共就结束了。
 
-郭先生透露，这场俄乌战争，让中共绝大多数将军一致认为中国在未来的几十年内和西方军事抗衡的可能性绝对是零。
 
-参考链接：[2022年3月25日文贵大直播](https://gettr.com/streaming/p11tme3b4de)
+
+文字版原文：[郭文贵先生爆东航坠机事件真相](https://gnews.org/zh-hans/2226536/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

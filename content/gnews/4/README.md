@@ -2,36 +2,27 @@
 ---
 
 
-## 加拿大禁止其士兵加入乌克兰外国军团
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
+## 救助难民的形形色色（侧面报道新中国联邦乌克兰救援）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230201/)
 
-作者：加拿大温哥华扬帆农场-活力人生
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2973.png)图片来源：西班牙巴塞罗那喜悦农场
+在波兰的乌克兰边境，世界各国的民间团体(NGO)聚集在一起，帮助难民。个性帐篷林立，并不精美，却像盛会一样热闹。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+在离海关检查站最近的地方扎营的，是以色列的医疗团体。他们的代表阿亚拉女士（音）是一位黑发美女。她说：“我也会为那些想去以色列的人做介绍指南。”据说乌克兰有10多万犹太裔，渊源很深。这里也是音乐剧《屋顶上的小提琴手》的舞台。
 
+再往前走，一名身穿圣诞老人的英国男子，正在分发巧克力。难民们疲惫的表情也得到了些许缓和。突然间，咖喱的味道……我回头一看，一名穿戴头巾的印度裔男子正在搅动着锅子。“请品尝我的自傲之作。”他一边说着递出了纸碟。是锡克教徒的团体。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
+循着传来中文的方向走去，是在美中国人的救援团体。帐篷上，画着红色的中共国旗和大大的叉。负责的女性说：“中共国正支持俄罗斯，所以连我们都被冷眼相对。这是为了表明我们与中国共产党无关的举措。”事实上，这些似乎是由与习近平政权对立的流亡中国富豪出资。在帐篷里，他们分发着杯面（方便面）。
 
-
-据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
-
-加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
-
-艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
-
-加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
-
-新闻链接：
-
-[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
+参考链接：[【パリの窓】難民支援いろいろ – 産経ニュース (sankei.com)](https://www.sankei.com/article/20220325-PTTB4DGZA5K6BENI2D5HKY2XAE/)
 
 * * *
 
-编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
-
-
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,44 +2,26 @@
 ---
 
 
-## 有声|郭文贵先生爆东航坠机事件真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229669/)
+## 俄乌战局最新消息汇总
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229729/)
 
-配音：香草山佛教部 – 李傻
+作者：蓝莲花农场 文斌
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截止当地时间3月23日，俄军试图向基辅西北约70公里处的特里耶夫斯克推进，但被击退，也没有在基辅东郊及周边进行新的推进，目前继续用迫击炮和火箭弹轰炸该市。但乌总参谋部报告，乌军从俄罗斯最前沿阵地西侧发起反击，收复被俄军占领的领土，包括解放了马卡里夫镇。另据当地官员称，乌军在伊尔平、布卡和霍斯托梅尔包围了俄军，呈现出包围之势。伊尔平市长声称，乌军已夺回了该城市的80%。但外界尚无法证实这些信息。在切尔尼戈夫和苏梅，战斗一直在持续，但没有发生实质性的变化。据总参谋部报告，俄罗斯人正在继续挖掘工事，布置雷区，表明俄罗斯人在这些地区已经转入防御状态，但对切尔尼戈夫的炮击和空袭彻夜不停。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-上午11.21.30.png)
+在过去24小时里，哈尔科夫遭到了44次坦克、榴弹炮和迫击炮的轰击，140次多管火箭炮的轰击，包括巡航导弹袭击。俄军努力向卢甘斯克和顿涅茨克州推进，昨天还被发现再次使用磷燃烧弹。马里乌波尔的巷战仍在继续。乌克兰海军报告称，俄军鳄鱼级两栖登陆舰在别尔江斯克港被摧毁。在赫尔松和米科拉耶夫交界处发生激战。乌军再一次击落了一架俄机和巡航导弹。
 
+尽管最近几天对奥德萨持续炮击，但由于黑海舰队继续参与马里乌波尔战役，降低了近期在奥德萨附近进行两栖登陆的可能性。乌克兰军事情报称，俄军正考虑封锁刻赤大桥，以防止俄罗斯人离开克里米亚，估计这一行动对俄军和政府人员家属会产生恐慌反应。
 
+更多俄乌局势消息，请持续关注本节目的后续报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093703-1280x720-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-
-对于东航坠机事件，郭文贵先生在3月23日大直播中爆料，根据相关技术数据，该事件是一场蓄谋已久、精心策划的自杀行为。郭先生表示，根据当事人给中共的留言，因财产被骗，家人受虐，又因接种疫苗，深恐自己和家人都将因此导致死亡，自1月起，他精心策划这起报复性的事件，导致灾难性伤害。
-
-在中共国，除不可预测的疫苗灾难，疫苗灾难导致报复社会的突发事件恐将接踵而至。
-
-
-
-
-
-文字版原文：[郭文贵先生爆东航坠机事件真相](https://gnews.org/zh-hans/2226536/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+编辑：宁文静
+总编：静言
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

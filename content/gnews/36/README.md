@@ -2,29 +2,38 @@
 ---
 
 
-## 美情报评估俄罗斯导弹故障率达60%
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228231/)
+## 美欧协议不再进口俄罗斯天然气
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2228528/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-20.20.26.png)
+3月25日，美国总统拜登和欧盟的冯布莱恩宣布，欧盟不再进口俄罗斯天然气，转而与美国达成天然气进口协议。
 
-3月24日，路透社引述三位了解情报的美国官员的消息说，俄乌之战中，俄罗斯用于攻击乌克兰的一些精确制导导弹的故障率高达60%。
+据悉过去几年，俄罗斯是欧盟最大的能源供应国，周三普京要求“不友好国家”使用卢布结算天然气贸易，不再使用美元和欧元。拜登总统与欧盟主席冯布莱恩的联合声明表示，欧盟要从过去的依赖俄罗斯天然气能源走向独立，为当地居民和企业提供可负担的清洁能源。双方会成立一个联合工作队，加快能源转型。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-41.jpg)（图片来自大纪元 ）
+据知情人士称，此项工作局限性较大。美国探索增加能源产量，欧洲转向发展清洁能源，是从长远角度的考量。美国天然气出口商下周将与德国买家会面。
 
-据悉，出于信息敏感，这些官员没有提供评估证据，或透露是什么原因导致俄罗斯导弹的高失败率。但是这一披露可能有助于解释，为什么俄罗斯自入侵以来未能达到大多数人认为的基本目标，而导弹高故障率可能包括从发射失败到导弹在撞击时未能爆炸等各种情况。
 
-美国国防官员告诉媒体，根据五角大楼的评估，俄乌开战以来，俄罗斯已经发射了超过1,100枚各类导弹，其中数据取决于发射的导弹类型，有时失败率可能超过50%。其中两名官员说，失败率高达60%。
 
-另据华盛顿智库战略与国际研究中心的导弹防御项目显示，俄罗斯在乌克兰部署了两种类型的空射巡航导弹，即Kh-555和Kh-101,路透社采访的两位专家说，20%及以上的故障都被认为是高的。
+reference：
 
-此外，俄罗斯在乌克兰战争中一直使用导弹轰炸，包括武器库在内的军事目标进行打击，数据显示，都有很高的失败率。
+[https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports](https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports)
 
-参考链接： 
-[https://www.epochtimes.com/gb/22/3/25/n13671253.htm](https://www.epochtimes.com/gb/22/3/25/n13671253.htm)
+[https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
 
-总编：青城道姑
-校对发布：Linda
+撰稿、发布：骄子
 
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
