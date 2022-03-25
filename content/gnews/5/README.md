@@ -2,41 +2,28 @@
 ---
 
 
-## 樱花FM|樱花深度报道：中俄友谊是否如他们领导人说的那样无上限？（二）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229879/)
+## 盖特宣布与知名独立记者安迪·恩戈合作
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2230016/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032527.png)
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月24日，盖特官方宣布，将与独立记者安迪·恩戈建立新的合作伙伴关系。恩戈表示，他将在盖特上制作名为“每周通知”的独家新闻节目，提供独到的政治评论和分析。
 
-【编者按】在俄罗斯入侵乌克兰前不到一个月，习近平与普京签署了一份联合声明，宣布“两国友谊无止境”。俄罗斯领导人普京对一个他大大低估的国家乌克兰发动了一场战争时，他的误判越来越清楚。乌克兰的勇敢抵抗和西方世界的经济制裁，是对俄罗斯领导人的羞辱——或者更糟糕的结局是，普京将被赶下台。这对于希望在 2022 年底获得第三个中共总书记任期的习近平来说，今年是高风险的一年，因为违反了中共内部权力交接规则。他不想被看到正在支持一个失败者。中俄友谊是否还是“坚如磐石”？本文作了精彩的分析。本文原文发表于《经济学家》2022年3月17日中国专栏上，原文题目是：“[China’s friendship with Russia has boundaries, despite what their leaders say](https://www.economist.com/china/chinas-friendship-with-russia-has-boundaries-despite-what-their-leaders-say/21808197)”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-10.jpeg)
 
-但无论战争如何展开，中国都将与克里姆林宫的关系视为增强中国实力的手段，而不是俄罗斯。据报道，美国与盟国政府共享情报，显示俄罗斯已向中国请求无人机、地对空导弹和其他军事援助。中国外交部称这些报道为“虚假信息”。习近平不想为普京的战争分担责任，尽管他可能是“最好的朋友”。也没有迹象表明中国会通过利用西方心烦意乱的时候来迅速攻击台湾，台湾是中国声称拥有主权的 2400 万人口的岛屿民主国家。与似乎乐于对全球秩序发起巨大挑战的普京不同，习近平似乎更加谨慎。
+据悉，安迪·恩戈是全球领先的独立记者之一，在《纽约时报》开设专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。恩戈是一个无所畏惧的新闻战士，因坚持言论自由的报道，遭受过暴力和死亡威胁，以及无数所谓的法律法规审查。他表示，很期待与新的受众在盖特上互动。
 
-一个原因是经济上的。中国国有企业的老板们不安地注视着这场战争。许多人不仅在俄罗斯而且在乌克兰都有大量业务。国有食品巨头中粮集团将乌克兰视为重要基地。国有企业招商局集团在黑海沿岸的乌克兰城市敖德萨拥有港口码头，该城市对俄罗斯的袭击处于高度戒备状态。 2020 年，乌克兰东北部城市哈尔科夫同意从中国国有铁路集团中车集团购买 40 辆地铁车厢。由于哈尔科夫的地铁站现在挤满了躲避俄罗斯袭击的家庭，合同处于危险之中。
+盖特CEO米勒先生表示，很荣幸能够与安迪·恩戈这样勇敢的记者合作，为他提供自由言论平台，能够与数百万用户分享讯息。在新闻和言论自由均受到大科技媒体严苛审查的当下，盖特将一直保持政治辩论和重要讯息自由流动，以吸引更多民众自由分享自己的理念与言论。
 
-俄罗斯喜欢吹捧其与中国的商业联系。 2 月 4 日，普京在北京访问期间公布了一项多年来价值 1180 亿美元的石油和天然气交易，预示着该交易是“转向东方”的一部分。中国谴责西方对俄罗斯的制裁。但它与俄罗斯的经济联系将越来越受到限制。
+参考链接：[GETTR Announces Partnership with Independent Journalist Andy Ngo](https://about.gettr.com/press/gettr-announces-partnership-with-independent-journalist-andy-ngo)
 
-石油和天然气在贸易关系中占主导地位。俄罗斯是中国第三大天然气供应国。 2020 年，中国购买了俄罗斯近三分之一的原油出口。但两国最近达成的能源协议很难快速解决俄罗斯的经济困境。 2021年，中国通过连接两国的唯一管道西伯利亚电力从俄罗斯进口的天然气仅100亿立方米，远低于欧洲进口的1750亿立方米。研究公司加韦卡尔（Gavekal）的分析师指出，即使中国对欧洲取消的化石燃料出口有兴趣，但相关领域并没有通过管道与中国联系起来，因此很难在其他地方弥补损失的销售。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-（未完待续）
-
-文字版原文：
-
-
-| [樱花深度报道┃中俄友谊是否如他们领导人说的那样无上限？（二）](https://gnews.org/zh-hans/2191455/) |  |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+总编：宁文静
+编辑：静言
+审核：Ivy001
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,34 @@
 ---
 
 
-## 喜联储致力于打造最安全稳定的金融系统
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229953/)
+## 加拿大禁止其士兵加入乌克兰外国军团
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
 
-作者：银河系农场 骄子， 澳喜农场 Leo M
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月23日的大直播中，郭先生指出，喜联储摒弃了当今金融系统对财富的控制，以严格的法律KYC，最先进稳定的技术，保障财富拥有者自由地、安全地支配合法资产。
+作者：加拿大温哥华扬帆农场-活力人生
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-7.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
-郭先生解释，911之后，美国的金融机构和各大银行以反恐为名，恶意要挟控制财富；加拿大卡车司机被政府打压，冻结银行账户；澳大利亚警察暴打示威者等等。民主国家通过控制私有资金和资产，达到控制个人自由的目的。当然，独裁政府更是利用钱来限制人权和自由，对个人财富形成极大威胁。
 
-郭先生说，喜币自创立到现在5个多月，已经涨了400多倍，并且在全世界数字货币市场大震荡期间，没有发生巨大的涨跌波动。世界金融家惊讶于这样前瞻性、革命性的系统设计，可以在世界的任何一个角落，点到点支付，速度极快，安全和隐私有保障。这样的金融系统当然会被大多数人认可。喜联储正致力于打造这样一个安全、稳定、不受政府要挟和控制的平台。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
 
-最后，郭先生再一次强调，拥有喜币，善待财富。喜币未来会开发智慧功能，引导人们过有道德的生活，对作恶的政府或个人进行限制追责。喜币要成为正义的财富，远离一切邪恶。
 
-参考链接： [2022年3月23日 文贵大直播](https://gettr.com/post/p11h7xt9462)
+据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
 
-总编/编辑/审核：宁文静
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
+
+加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
+
+新闻链接：
+
+[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
+
+* * *
+
+编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
 
 
  
