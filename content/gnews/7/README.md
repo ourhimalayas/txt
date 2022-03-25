@@ -2,31 +2,19 @@
 ---
 
 
-## 有声｜美国与欧盟抨击俄罗斯已越过野蛮红线
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2226553/)
+## Hpay的更新及飞机坠落事件（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226694/)
 
-**By:秘翻新闻**
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-07.jpeg)
+*发布：陶子*
 
-**2022-03-25**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-25-13.25.49.jpg)
-[《路透社》](https://www.reuters.com/world/europe/invasion-milestone-ukraine-urges-solidarity-western-leaders-gather-2022-03-24/)布鲁塞尔3月24日报道，周四，西方领导人大举向乌克兰提供军事和人道主义援助，并谴责俄罗斯对乌克兰的入侵是野蛮行径。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
-报道称，在布鲁塞尔举行的三方峰会上，跨大西洋联盟北约、七国集团以及欧洲领导人，共同讨论了俄罗斯入侵乌克兰的残暴行径。
-
-北约宣布，计划在乌克兰附近的四个东欧国家部署新的作战部队。与此同时，美国和英国增加了援助，并将制裁范围扩大到新的目标，其中包括一名女子，伦敦称她是俄罗斯外交部长的继女。
-
-拜登在布鲁塞尔表示，现在最重要的事情是美国与西方盟国要保持统一。
-
-与此同时，英国首相鲍里斯·约翰逊表示，普京已经越过了野蛮的红线。
-
-据联合国的数据显示，俄乌战争战争以来，已造成数千人死亡，360万人逃离乌克兰，城市被摧毁，并迫使半数以上的乌克兰儿童离开家园。
-
-（秘翻新闻  冰糖葫芦喵 编译报道）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

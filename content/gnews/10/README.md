@@ -2,21 +2,23 @@
 ---
 
 
-## 郭文贵先生爆东航坠机事件真相
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2226536/)
+## 7News《全球视点》俄乌战争将成为中华民族最大的灾难
+` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2226666/)
 
-编辑/总编: 雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093703.jpg)
-对于东航坠机事件，郭文贵先生在3月23日大直播中爆料，根据相关技术数据，该事件是一场蓄谋已久、精心策划的自杀行为。郭先生表示，根据当事人给中共的留言，因财产被骗，家人受虐，又因接种疫苗，深恐自己和家人都将因此导致死亡，自1月起，他精心策划这起报复性的事件，导致灾难性伤害。
+制作：宁南
 
-在中共国，除不可预测的疫苗灾难，疫苗灾难导致报复社会的突发事件恐将接踵而至。
+Russia-Ukraine war will cause catastrophe of Chinese
 
-视频链接：[3/23/2022 文贵直播](https://gettr.com/post/p11juzl42ca)
+How can Russia, which is less than one-tenth of China’s GDP, have the courage to launch this war of aggression against the West?
+European and American that are well versed in capitalism are well aware that the CCP is the financial master behind Russia and the culprit of this war.
+What Xi Jinping, the dictator who dreams of an emperor, has done in this battle between righteousness and evil of mankind will bring an irresistible catastrophe to the Chinese nation.
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-128.jpg)
+不足中国GDP十分之一的俄罗斯，如何对抗西方，有胆量发动这场侵略战争呢？
+深谙资本主义的欧美都清楚地知道，中共就是俄罗斯背后的金主，是这场战争的元凶。
+习近平，这个做着皇帝梦的独裁者，在这场人类正邪之战中的所作所为，将带给中华民族无法抗拒的巨大灾难。
 
-校对/发稿: 浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
+排版上传：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

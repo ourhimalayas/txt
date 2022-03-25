@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大联合工会主席被指收受贿赂
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2226306/)
+## 视频|德国音乐家Davide Martello 在难民营为法治基金所有的捐赠者弹奏钢琴曲
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2226341/)
 
-采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
+制作：大直播短视频组- Hart文双
+文案：Hart文双
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-99.jpg)图片来源：HILL TIMES
+审核/编辑/发稿：为真不破20
 
 
-据加拿大[CP24]3月23日报道，[联合工会]前主席迪亚斯因收受病毒检测试剂盒供应商的贿赂而遭到内部员工投诉揭发。
 
-报道称，迪亚斯在获得供应商5万加元之后，将其测试盒产品推广给联合工会的成员企业使用，部分企业雇主因此购买了这些防疫产品。事发之后，作为最高级别的民选官员，该主席被指控违反了行业准则和相关法规。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
 
-据悉，[联合工会]将就此事举行听证会，尽管迪亚斯以健康问题拒绝出席，但执行委员会正努力寻求法律途径来起诉该工会的第一任全国主席。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：文明(添草灭共)
-
-新闻来源： [Jerry Dias accepted money from COVID-19 rapid test supplier, Unifor alleges](https://www.cp24.com/news/jerry-dias-accepted-money-from-covid-19-rapid-test-supplier-unifor-alleges-1.5831349)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
