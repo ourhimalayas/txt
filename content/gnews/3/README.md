@@ -2,28 +2,36 @@
 ---
 
 
-## 俄罗斯在千岛群岛举行超过3000人的军事演习，或对日本进行牵制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230467/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2230513/)
 
-翻译：天天
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2990-edited.png)图片来源：雅虎新闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
 
-3月25日，俄罗斯国防部宣布，俄罗斯已经开始在包括北方领土在内的千岛群岛进行3000多人参加的军事演习。由于日本正在加强的对俄罗斯的制裁，此举被认为是俄罗斯针对日本的牵制。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-25.png)
 
-俄罗斯在克利尔群岛(千岛列岛)开始军事演习，这是日本和俄罗斯领土问题的舞台。俄罗斯国防部东方军管区新闻发言人亚历山大·戈尔戴耶夫上校12日说。
+文章仅代表作者本人观点，与Gnews无关
 
-据俄罗斯国防部称，超过3000名士兵和几百辆车已经开始在千岛群岛，包括北方领土进行军事演习。 这次演习旨在拦截试图在岛上登陆的部队和伞兵。
+视频参看：
+[2022.03.25早 《NFSC新闻》](https://gettr.com/streaming/p11tqyza7b5)
+[2022.03.25早《NFSC新闻访谈》](https://gettr.com/streaming/p11to3zb200)
 
-在北方领土和其他地方的演习是俄罗斯宣布暂停与日本的和平条约谈判以来的首次演习，这是对日本向入侵乌克兰的俄罗斯进行制裁的一种威慑。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-参考链接：[ロシアが千島列島で3000人以上の軍事演習　日本へのけん制か（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b0e3c76c6d4cbac273e8d87efa6cc928592c8558)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
 
-* * *
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-审核：BryanW
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

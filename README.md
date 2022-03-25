@@ -15,71 +15,71 @@
 
 ---
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月25日早](/content/gnews/1/README.md)
- ` 纽约香草山MOS01`
+### [【转】截至3.24 俄乌战事汇总（3）](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [今日盖特大V推荐 — 大卫·马尔泰罗（Davide martello）](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯在千岛群岛举行超过3000人的军事演习，或对日本进行牵制](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [邪恶的共产党正在跑步奔向地狱](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文贵爆料 3.25：女孩打下坦克——“钢铁洪流”的时代就此落幕](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [加拿大疫苗限乘令结束时间或推迟](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [共匪鼓励农副业后现又毁林还耕凸显人间疾苦](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [GETTR首席执行官告诉法国总统辩论，所有的目光将通过GETTR的直播功能聚焦在法国](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [CDC将COVID-19的死亡人数降低了数万人](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [大卫·马丁医生因强制疫苗起诉乔·拜登](/content/gnews/10/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [2022年3月25日，全球中共病毒疫情情况汇总](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [为应对俄乌战争北约紧急峰会如期进行](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [欧洲议会议员：贾斯汀·特鲁多是独裁者](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022/03/22 墙内世界](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【G时新闻】北约官员估计入侵乌克兰一个月以来，俄军有多达15000名士兵死亡](/content/gnews/15/README.md)
- ` G-时新闻`
-
-### [2022/03/20 墙内世界](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新加坡3月31日将重新开放边境](/content/gnews/17/README.md)
+### [两名男子就旅行疫苗强制起诉特鲁多政府](/content/gnews/2/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G叻睇真D】粤语新闻电视台-美国总统拜登和欧盟加大对俄罗斯制裁](/content/gnews/18/README.md)
- ` G-时新闻`
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月25日早](/content/gnews/3/README.md)
+ ` 纽约香草山MOS01`
 
-### [英国政府数据证实疫苗接种是一场灾难](/content/gnews/19/README.md)
+### [今日盖特大V推荐 — 大卫·马尔泰罗（Davide martello）](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [俄罗斯在千岛群岛举行超过3000人的军事演习，或对日本进行牵制](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [邪恶的共产党正在跑步奔向地狱](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [文贵爆料 3.25：女孩打下坦克——“钢铁洪流”的时代就此落幕](/content/gnews/7/README.md)
+ ` 秘密翻译组-原创组`
+
+### [加拿大疫苗限乘令结束时间或推迟](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大政府讨论用数字ID追踪疫苗接种](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [共匪鼓励农副业后现又毁林还耕凸显人间疾苦](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏](/content/gnews/21/README.md)
+### [【G时新闻】联大通过决议要求俄罗斯停战并保护平民 中共弃权](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [北约峰会发表联合声明 多项对俄新制裁进入议题](/content/gnews/22/README.md)
- ` NFSC News`
+### [GETTR首席执行官告诉法国总统辩论，所有的目光将通过GETTR的直播功能聚焦在法国](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [CDC将COVID-19的死亡人数降低了数万人](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [大卫·马丁医生因强制疫苗起诉乔·拜登](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [2022年3月25日，全球中共病毒疫情情况汇总](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [为应对俄乌战争北约紧急峰会如期进行](/content/gnews/15/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [2022/03/22 墙内世界](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022/03/20 墙内世界](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新加坡3月31日将重新开放边境](/content/gnews/18/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [【G叻睇真D】粤语新闻电视台-美国总统拜登和欧盟加大对俄罗斯制裁](/content/gnews/19/README.md)
+ ` G-时新闻`
+
+### [英国政府数据证实疫苗接种是一场灾难](/content/gnews/20/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [加拿大政府讨论用数字ID追踪疫苗接种](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏](/content/gnews/22/README.md)
+ ` G-时新闻`
 
 ### [加拿大禁止其士兵加入乌克兰外国军团](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
@@ -138,38 +138,38 @@
 ### [美情报评估俄罗斯导弹故障率达60%](/content/gnews/41/README.md)
  ` 日本東京方舟農場`
 
-### [芬兰将向乌克兰提供更多的国防装备](/content/gnews/42/README.md)
- ` 日本東京方舟農場`
-
-### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/43/README.md)
+### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/42/README.md)
  ` 關注組`
 
-### [世界金融监管机构加强审查加密货币](/content/gnews/44/README.md)
+### [世界金融监管机构加强审查加密货币](/content/gnews/43/README.md)
  ` NFSC News`
 
-### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/45/README.md)
+### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/44/README.md)
  ` 關注組`
 
-### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/46/README.md)
+### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/47/README.md)
+### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/46/README.md)
  ` 關注組`
 
-### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/48/README.md)
+### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/47/README.md)
  ` 關注組`
 
-### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/49/README.md)
+### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/48/README.md)
  ` 美国政要直译推`
 
-### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/50/README.md)
+### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/51/README.md)
+### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部2022年3月24日:财经新闻整理](/content/gnews/52/README.md)
+### [新西兰财经G乐部2022年3月24日:财经新闻整理](/content/gnews/51/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [文贵爆料3.24: 东航飞机失事背后的真相](/content/gnews/52/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

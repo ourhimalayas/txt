@@ -2,40 +2,39 @@
 ---
 
 
-## CDC将COVID-19的死亡人数降低了数万人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230372/)
+## 共匪鼓励农副业后现又毁林还耕凸显人间疾苦
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2230427/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2983.png)图片来源：justthenews.com
+**【国内新闻短评】**
 
-美国疾病控制和预防中心将近期 COVID-19 的总死亡人数降低了7.2万多人。
+丈农尺2022年3月22日刊载：多地现退林、退塘、退宅还耕？2022年耕地政策有变，农民早准备
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2986.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2987.png)图片来源：网络
+**短评：**
 
-据 CDC 称，美国政府的算法将26个州的新冠死亡的相关人数多算了72,277人，特别是包括24%（416）的儿科死亡人数。
+近日，共匪各个网络平台随处可见大量和强拆一样暴力强行毁林毁塘毁宅所谓还耕的现场视频，数不胜数金灿灿挂满枝头还未摘收的果树被挖机直接毁掉，数不胜数还未捞起鱼儿的鱼塘被铲车直接填平，数不胜数的猪圈被无情移平只剩下生猪露天哀嚎，数不胜数已装修入住多年的房屋被推倒造成屋主流离失所……
 
-3月15日，CDC 网站上的数据被篡改了，原因是在一个脚注中被解释为“编码逻辑错误”。
+以前，有很多农民在农田耕地上种植各种粮食和瓜果蔬菜，也有很多农民听从共匪的电视农业致富频道洗脑在农田耕地上发展花卉果树种植业和肉类鱼类养殖业，还有很多农民顺从共匪城镇化以及现代化新农村的洗脑与行为约束外出打工盖楼买房，农村的楼房很多都是在村委会批的田地上盖起来的，一栋栋楼房也被共匪誉为现代化新农村的靓丽风景线以及所谓小康社会的经典标志。
 
-CDC 更新的新冠病毒导致的总死亡人数约为96.9万。这一变化接近7.5%，这代表了在总死亡人数如此接近100万的情况下的一个重大差异。
+随着共匪在全球制造释放病毒、强打毒疫苗对大陆及全球经济造成的重创，共匪深知有史以来最大的失业潮与经济危机即将到来；随着共匪妄想和侵略乌克兰一样侵略台湾，将生物战争的第三次世界大战引入更加惨无人道的火战，共匪也深知有史以来最严重的粮食危机同样即将到来。于是，近期广西多地开始暴力强行毁林所谓还耕，江苏多地开始暴力强行退塘所谓还耕，河南多地开始暴力强行退宅所谓还耕。很多农民以及网友都在感叹种植户养殖户损失的同时，对共匪无视自然规律经济规律的流氓罪行悲愤万千泪流满面，也开始和大跃进大文革时期一样再次深刻地意识到共匪破坏耕地毁坏劳动果实劳民伤财的狠心与破坏力已经上了一个新的台阶。
 
-由于 COVID-19 导致的小儿死亡数字的大幅下降使全国的总人数达到1341人。儿童已占所有 COVID-19 病例的约19%，尽管所有儿童 COVID-19 病例中只有0.00%-0.01%导致死亡。
+其实，前几年，有关农村耕地所谓“非农化”和“非粮化”利用的消息并不多见，相关的流氓政策也没现在这么密集出台。主要是因为现在不同于之前，现阶段共匪制造释放病毒强打毒疫苗造成的国际粮食局势极不稳定，为了保住共匪所谓国产粮、藏粮于地，从未有过的流氓毁林毁塘毁宅问题，就自然到了集中重点出现的时刻。
 
-上周，CDC 主任罗谢尔·瓦伦斯基（Rochelle Walensky）在一封信中讨论了“数据现代化计划”（Data Modernization Initiative），该计划旨在使 CDC 的数据更加准确。这些努力是在立法者和媒体成员要求政府卫生机构提供更真实的新冠报告，之后的几个月。
+农村毁林、毁塘、毁宅还耕的依据是什么？自然是毫无依据。非法流氓政权共匪自古以来做任何事情都是心血来潮朝令夕改，所有的法律都是根据暴政需要事先起草，没有事先起草的就临时起草。
 
-时至今日，CDC 的新冠死亡人数并没有明确区分是否因 COVID-19 而死亡的人，这可能会导致少计算了美国的新冠死亡人数。
+流氓共匪治下就是把活着的人往死里逼，然后告诉想死的人要好好活着，于是，所有的人都半死不活生不如死。共匪现在不仅要统治14亿中国人，还妄想奴役全世界，让全人类都半死不活生不如死。流氓共匪，你该下地狱了。
 
-新闻来源：[justthenews.com] [CDC lowers COVID-19 death count by tens of thousands](https://justthenews.com/politics-policy/coronavirus/cdc-lowers-covid-19-death-count-tens-thousands?utm_source=justthenews.com&amp;utm_medium=feed&amp;utm_campaign=external-news-aggregators) | 发布时间：2022年03月23日
+新闻链接：
+**[https://mo.mbd.baidu.com/r/Dh3GYmhnX2?f=cp&u=6ed98881e290868c&urlext=%7B%22cuid%22%3A%22l8S08gaGSu0ji2icl8Hsul8THigUuSaz0i2D8\_872aKr0qqSB%22%7D](https://mo.mbd.baidu.com/r/Dh3GYmhnX2?f=cp&amp;u=6ed98881e290868c&amp;urlext=%7B%22cuid%22%3A%22l8S08gaGSu0ji2icl8Hsul8THigUuSaz0i2D8_872aKr0qqSB%22%7D)**
 
-* * *
+素材：洛杉矶盘古农场 — 归去来兮
+评论：洛杉矶盘古农场 — 归去来兮
+编审：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

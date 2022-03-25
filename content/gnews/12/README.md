@@ -2,28 +2,40 @@
 ---
 
 
-## 为应对俄乌战争北约紧急峰会如期进行
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2230333/)
+## CDC将COVID-19的死亡人数降低了数万人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230372/)
 
-编译：加拿大温哥华杨帆农场 – Spirit
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2983.png)图片来源：justthenews.com
 
-编辑撰稿：加拿大温哥华杨帆农场 – 硫酸羟氯喹64
+美国疾病控制和预防中心将近期 COVID-19 的总死亡人数降低了7.2万多人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-5-2.jpg)图片来源：nbcnews
+据 CDC 称，美国政府的算法将26个州的新冠死亡的相关人数多算了72,277人，特别是包括24%（416）的儿科死亡人数。
 
+3月15日，CDC 网站上的数据被篡改了，原因是在一个脚注中被解释为“编码逻辑错误”。
 
-据美国《NBC新闻》3月24 日报道，在俄乌战争爆发一个月之后，美国和欧盟以及北约各国领导人当天齐聚布鲁塞尔，商讨进一步支持乌克兰和采取更严厉措施制裁普京政权。
+CDC 更新的新冠病毒导致的总死亡人数约为96.9万。这一变化接近7.5%，这代表了在总死亡人数如此接近100万的情况下的一个重大差异。
 
-报道称，乌克兰总统泽伦斯基在本次峰会中发表电视讲话，敦促欧美增加军事援助，以支持乌克兰抵御俄军入侵。峰会还讨论了加强北约在东欧的军事行动以及应对俄军可能使用化学武器和发动核攻击等议题。
+由于 COVID-19 导致的小儿死亡数字的大幅下降使全国的总人数达到1341人。儿童已占所有 COVID-19 病例的约19%，尽管所有儿童 COVID-19 病例中只有0.00%-0.01%导致死亡。
 
-据悉，拜登政府此前已成立了国家安全小组，并还将宣布接收多达10万名逃离战火的乌克兰难民计划。目前，乌克兰军队已将俄军击退至基辅市区东部，并成功挫败了其向首都推进的战争计划。
+上周，CDC 主任罗谢尔·瓦伦斯基（Rochelle Walensky）在一封信中讨论了“数据现代化计划”（Data Modernization Initiative），该计划旨在使 CDC 的数据更加准确。这些努力是在立法者和媒体成员要求政府卫生机构提供更真实的新冠报告，之后的几个月。
 
-校对编辑：硫酸羟氯喹64
+时至今日，CDC 的新冠死亡人数并没有明确区分是否因 COVID-19 而死亡的人，这可能会导致少计算了美国的新冠死亡人数。
 
-发稿：文明(添草灭共)
+新闻来源：[justthenews.com] [CDC lowers COVID-19 death count by tens of thousands](https://justthenews.com/politics-policy/coronavirus/cdc-lowers-covid-19-death-count-tens-thousands?utm_source=justthenews.com&amp;utm_medium=feed&amp;utm_campaign=external-news-aggregators) | 发布时间：2022年03月23日
 
-新闻来源： [https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
+* * *
 
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
