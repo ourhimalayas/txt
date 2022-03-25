@@ -2,41 +2,33 @@
 ---
 
 
-## 中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226459/)
+## 有声｜上海医疗系统近崩溃 民揭染疫人数惊人
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2226628/)
 
-**撰稿：东京樱花团**/Calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-1-12.png)[**图片来源**](https://www.foxbusiness.com/markets/chinas-zte-exits-probation-after-us-court-ruling)
+**By**:**秘翻新闻**
 
-**一位美国法官周二（3月22日）裁定，结束中兴通讯公司2017年非法向伊朗和朝鲜运送美国技术的五年缓刑。**
+**2022-03-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FCCA50FE-59FE-4C26-B9BF-2E4A6CBC2D01.jpeg)(Photo by STR/AFP via Getty Images)
+**[新唐人](https://www.ntdtv.com/gb/2022/03/24/a103381956.html)**北京时间3月25日消息。最近上海染疫人数居高不下，医疗系统几近瘫痪。
 
-**在得知美国地区法官Ed Kinkeade在德克萨斯州的决定后，中兴通讯股票的交易在深圳和香港市场开盘前暂停。**
+截止3月24号，上海已公布15个疫情高中风险地区，许多社区被封控，一些大型医院被征用改为隔离医院，收治重症患者，体育馆也改为隔离点，收治轻症患者。医疗系统已不堪重负。
 
-**该裁决是在该公司缓刑期的最后一天做出的，中兴通讯被指控通过涉嫌通过签证欺诈将中国公民带到美国的中兴通讯进行研究的行为违反了缓刑期的条例。**
+此前，上海已启动应急预案，增开临时隔离收治点，并要求各个地方都要增设定点医院收治感染者。
 
-**根据去年3月起诉书透露，一名前中兴通讯研究主任和一名佐治亚理工学院教授涉嫌密谋将中国公民至少从2014年到2018年带到美国，同时持有该大学赞助的J-1签证在中兴通讯从事技术研究。**
+网传上海浦东北蔡21号发现了8000多例无症状感染者，上海官方称这是不实消息。
 
-**虽然中兴通讯没有在佐治亚州亚特兰大待决的签证案件中被指控，但法官上周在达拉斯就欺诈指控举行了听证会，该指控可能违反了中兴通讯的缓刑期的条例。 Kinkeade在周二的裁决中发现中兴通讯对前中兴通讯主任的行为负有法律责任，但决定不对中兴通讯采取任何进一步行动。**
+有民众爆料称，来自当地派出所家人的消息表示，这是真的，这8000多例被分散了，每天只上报几百例。
 
-**中兴通讯已经达到缓刑的最高期限，该公司辩称，也已经被处以最高刑罚。作为2017年认罪的一部分，中兴通讯向美国政府支付了8.92亿美元。**
+此外，有视频显示，3月23号，周浦医院的护士长与院方交涉中，哭诉护士们的辛苦，
 
-**法官写道，把这个“开放式的关于合法的工具的问题留给法院吧”。**
+称护士们没日没夜地采样，连续36小时没有睡觉，大家的神经已经濒临崩溃边缘；医院的门窗也被全部封死，空气流通受阻，这让医护们感到极度不安；医院的清洁工和保安全部辞职了。
 
-**尽管做出了有利的裁决，但法官鼓励政府对公司提出任何合理的指控以及刑事或民事处罚。**
+（秘翻新闻 二丫编辑）
 
-信息来源：
+发布:星星
 
-[US judge rules in favour of China’s ZTE, ending probation | Business and Economy | Al Jazeera](https://www.aljazeera.com/economy/2022/3/23/us-judge-rules-in-favor-of-chinas-zte-ending-probation)
-
-**编辑：东京樱花团/喜马拉雅的微尘**
-**发布：东京樱花团/**yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,32 @@
 ---
 
 
-## 美国大陪审团认定中共CAIEP雇员犯有签证欺诈罪
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2226576/)
+## 联合国大会通过改善乌克兰人道主义危机决议
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2226813/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-13.28.10.png)
-3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
+**撰稿：文舞两道**
 
-根据法院文件和证据显示，59岁的柳忠三以欺诈方式为中共雇员获取J-1研究学者签证，使得中共可以利用这些雇员进行非法活动。柳向美国政府及机构隐瞒了此项非法工作。
+3月24日，位于纽约的联合国总部召开紧急特别会议，讨论法国等国提出的要求改善乌克兰人道主义状况的决议。该决议谴责俄罗斯入侵乌克兰造成严重的人道危机，并敦促俄罗斯立即停火，以保护平民以及他们赖以生存的住房、学习及医院等基本设施的安全。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7D20286F-9D3F-45F6-8647-93997E1B0A0B.png)照片来源：NHK
+决议以超过三分之二投票国家的支持获得通过，其中140个国家投票赞成，俄罗斯、白俄罗斯、叙利亚、朝鲜、厄立特里亚5国反对，中共国等38个国家弃权。据报道，表决结果公布之时，联合国会场一片欢呼之声。
 
-据悉柳忠三是中国国际人员交流协会CAIEP骨干成员，通过该机构获得的J-1签证并非在美国研究部门做访问学者，而是为中共工作，甚至招募美国研究人员为中共工作。柳曾经在2019年因涉嫌签证欺诈罪被捕，当时中共华为盗窃美国技术，受到川普政府的一些制裁。
+决议通过后，俄罗斯驻联合国大使内文贾辩称：“政治被优先考虑。该决议无法弥补现场实际发生的情况。”
 
-柳被判定一项共谋欺骗美国罪和签证欺诈罪，将定于7月11日判刑，最高面临五年监禁。
+在3月2日的联合国大会上，同样通过了一项关于要求俄罗斯立即停火、撤出在乌克兰的所有部队并保护平民和基础设施的联大决议。该决议也获得了141国赞成，俄罗斯等5国反对，中共国等35个国家投票弃权。两次投票结果几乎相同，凸显国际社会反对战争、维护和平的一致和坚定立场。
 
-reference：
+3月23日，联合国安理会还针对一份由俄罗斯、白俄罗斯、朝鲜和叙利亚等国提交的有关“乌克兰人道主义状况”的决议草案进行表决。由于该决议完全没有提及俄罗斯入侵乌克兰的问题，遭到欧美国家的一致谴责和反对，仅获得中国和俄罗斯2票赞成未能通过决议。
 
-[https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
+**信息来源：**[NHK：国連総会 ウクライナの人道状況改善求める決議案を採択](https://www3.nhk.or.jp/news/html/20220325/k10013550661000.html)
 
-撰稿、发布：骄子
+**编辑：MQ**
 
-* * *
+**发布：歪桑的幽霓鞚**
 
-欢迎订阅我们的GNews账号：
+20220325
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 11:53 AM (UTC)`
+
+2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易
+![img](https://media.gettr.com/group11/origin/2022/03/25/11/8c5b20c9-d29a-efac-f4ac-90ed245aa80c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/25/2022 10:42 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -152,13 +159,6 @@ Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Y
 
 #精粮采访 #新中国联邦 <br/><br/>#乌克兰救援 行动跟踪报道(中英文字幕版)。<br/>今天采访的是一位墨西哥裔美国画家罗宾先生，画家在一面白色背景墙上创作，"这个发生的战争让我感到难过","我不想错过这个历史时刻来来抗议",要写上“立即停止战争”字样。他认为画笔就是他的武器，整个创作大概还需要6天...<br/>人们爱与正义的力量正在汇聚成海洋,定能淹没战争的炮火!!💖👍<br/><br/>❤️NFSC Press #FineFood Report from NFSC's #UkraineRescue. He Interviews with a Mexican American painter Mr. Robenz ,who is drawing on a white background wall. We can see some words “STOP THE WAR NOW” on the painting. He agrees the brush is his weapon and the unfinished painting may need six days.
 ![img](https://media.gettr.com/group39/origin/2022/03/21/17/6a4c80ab-47bb-5738-4969-dde97bb5113a/out.jpg)
-
----
-
-`@miles 3/24/2022 5:51 PM (UTC)`
-
-03/24/2022  Ukraine Frontline Updates <br/><br/>乌克兰前线 战时战报 2022年3月24日更新【NFSC News】
-![img](https://media.gettr.com/group40/origin/2022/03/24/17/18da84b1-b73b-6869-9f36-daa839387bb7/5d3d0412b4623337886f0970206ba177.jpeg)
 
 ---
 

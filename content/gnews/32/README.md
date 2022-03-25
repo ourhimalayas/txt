@@ -2,32 +2,36 @@
 ---
 
 
-## 日本冲绳12人接种新冠疫苗后死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226456/)
+## 美国大陪审团认定中共CAIEP雇员犯有签证欺诈罪
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2226576/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2878.png)[图片来源](https://www.japantimes.co.jp/news/2022/03/22/national/japan-fully-lifts-covid-quasi-emergency-measures-18-prefectures/)
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-13.28.10.png)
+3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
 
-日本冲绳县议会文教卫生委员会保健医疗部疫苗接种战略课课长城间敦透露，22日，在县文教卫生委员议会上，石原朝子为接种新冠病毒疫苗后引起过敏反应等4人答辨，确定根据疫苗接种法成为医疗费和医疗津贴的支付对象。
+根据法院文件和证据显示，59岁的柳忠三以欺诈方式为中共雇员获取J-1研究学者签证，使得中共可以利用这些雇员进行非法活动。柳向美国政府及机构隐瞒了此项非法工作。
 
-厚生劳动省的审查小组在22日前承认了因新冠病毒疫苗导致健康损害的需要救济。根据县的说法，被认定的是过敏等副反应。据厚生劳动省报道,迄今为止全国有1084件申请，只有566人得与认证。
+据悉柳忠三是中国国际人员交流协会CAIEP骨干成员，通过该机构获得的J-1签证并非在美国研究部门做访问学者，而是为中共工作，甚至招募美国研究人员为中共工作。柳曾经在2019年因涉嫌签证欺诈罪被捕，当时中共华为盗窃美国技术，受到川普政府的一些制裁。
 
-县内也发现接种新冠疫苗后有12人死亡。但是接种的因果关系不被认可。到15日为止有28件救济申请，包括1件死亡的临时救济金,其余24件正在审议中。
+柳被判定一项共谋欺骗美国罪和签证欺诈罪，将定于7月11日判刑，最高面临五年监禁。
 
-日本全国今年2月20日为止，约有1500人因疫苗接种而死亡，但是没有被因果关系认可。
+reference：
 
-信息来源：[コロナワクチン接種後に沖縄で12人死亡　因果関係は不明　アレルギーなど健康被害4人は国が救済へ](https://news.yahoo.co.jp/articles/a7510ea89763a89c2f7b7c6e42536ac7a7aaa50d)
+[https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-5.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+撰稿、发布：骄子
 
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

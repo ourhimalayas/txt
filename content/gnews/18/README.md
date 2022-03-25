@@ -2,29 +2,32 @@
 ---
 
 
-## 日本民调：对新冠疫苗不信任急剧增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227396/)
+## 芬兰将向乌克兰提供更多的国防装备
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228033/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2904.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia-cldnry.s-nbcnews.com%2Fimage%2Fupload%2Ft_fit-760w%2Cf_auto%2Cq_auto%3Abest%2Fnewscms%2F2021_26%2F3487224%2F210628-japan-vaccine-se-532p.jpg&amp;imgrefurl=https%3A%2F%2Fwww.nbcnews.com%2Fnews%2Folympi)
+撰稿：JIHO
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-20.png)图为芬兰国防部长安蒂·凯科宁 图片来自Ilta-Sanomat
+根据芬兰MTV新闻3月24号消息，芬兰国防部通报芬兰将向乌克兰提供更多的国防装备。为了确保援助物资的交付，该部没有具体说明向乌克兰运送物资的时间表和方式。
 
-日本冲绳县3月17日发布了关于新冠病毒疫苗的民意调查结果。结果显示，没有接种过1次疫苗的原因是“因为不了解”占最多为73%，“当被问及“怎样才能让您接种疫苗？”答“不希望接种”者占47%。
+这次援助的内容也没有公开，例如，现在是否将武器与其他国防装备一起交付给乌克兰。
 
-调查以1月24日—2月10日居住在县内的12岁以上为对象在网上进行的。参加人数为1万1353人。 在没有接种过1次疫苗的1476人中询问，理由第1位(可以多次回答)，“个人自由”是71%,第2位是，“害怕副作用”还有“感觉没有必要”也分别是50%以上。担心有不孕风险”是27%。
+据该部称，提供援助不会危及芬兰自身的防御能力。
 
-县民调机构分析，“对疫苗的不安感和对行政信息持怀疑态度”是不接种的原因。为提高接种率的目标，决定3月中旬集中播放电视广告。
+– 这些运输有其自身的风险，这就是为什么我们有如此严格的信息线。我希望这被理解，这么做可能有些智慧在里面，国防部长安蒂·凯科宁在议会对记者发表评论。
 
-信息来源：[「未知のワクチンだから」 73%　未接種の理由1位　沖縄で県民1万人意識調査　「希望しない」47%](https://www.okinawatimes.co.jp/articles/-/927722)
+– 北约和欧盟都建议，正是出于安全原因，这种克制的路线是相当明智的。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO-1-14.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多信息，更多关注**
-[**乌克兰救援官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场委员会联盟Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟驻全球服务中心Discord](https://discord.gg/zv8j42srdN)**
+今天，芬兰总统绍利·尼尼斯托就政府提议对此事作出正式决定。
+
+芬兰此前曾向乌克兰运送过包括武器在内的国防装备。2月底，芬兰决定运送2500支突击步枪、15万发子弹、1500支一次性步枪和75000包战斗弹药。甚至在此之前，帐篷、防弹背心和头盔已经被送往乌克兰。
+
+在俄罗斯进行了一个月的大规模侵略战争期间，乌克兰要求欧洲国家提供与国防和军备有关的物质援助。
+
+参考链接：
+[https://www.mtvuutiset.fi/artikkeli/suomi-antaa-lisaa-puolustustarvikkeita-ukrainaan/8386516?mtv\_ref=twb\_uutiset\_uusimmat#gs.v0uhs4](https://www.mtvuutiset.fi/artikkeli/suomi-antaa-lisaa-puolustustarvikkeita-ukrainaan/8386516?mtv_ref=twb_uutiset_uusimmat#gs.v0uhs4)
+
+总编：青城道姑
+校对发布：Linda
 
  
 

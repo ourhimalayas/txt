@@ -2,36 +2,29 @@
 ---
 
 
-## 俄愿接受比特币作油气支付方式 美欧联手打击规避制裁
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2226910/)
+## 日本民调：对新冠疫苗不信任急剧增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227396/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-下午2.28.54.png)图片来源：互联网
-据CNBC周四（3月24日）报道，俄罗斯杜马能源委员会主席帕维尔 扎瓦尔尼(Pavel Zavalny)在周四的新闻发布会上表示愿意用比特币作为其石油和天然气出口的支付方式。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2904.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia-cldnry.s-nbcnews.com%2Fimage%2Fupload%2Ft_fit-760w%2Cf_auto%2Cq_auto%3Abest%2Fnewscms%2F2021_26%2F3487224%2F210628-japan-vaccine-se-532p.jpg&amp;imgrefurl=https%3A%2F%2Fwww.nbcnews.com%2Fnews%2Folympi)
 
-在周四举行的视频新闻发布会上，俄罗斯杜马能源委员会主席扎瓦尔尼在翻译后的讲话中表示，当涉及到中国（中共国）或土耳其等“友好”国家时，俄罗斯愿意在支付方式上更加灵活。[1]
+日本冲绳县3月17日发布了关于新冠病毒疫苗的民意调查结果。结果显示，没有接种过1次疫苗的原因是“因为不了解”占最多为73%，“当被问及“怎样才能让您接种疫苗？”答“不希望接种”者占47%。
 
-扎瓦尔尼在翻译评论中说：“长期以来，我们一直在向中国（中共国）提议转用卢布和人民币的本国货币结算。”“在土耳其，将是里拉和卢布。”“你也可以交易比特币，”他说。[1]
+调查以1月24日—2月10日居住在县内的12岁以上为对象在网上进行的。参加人数为1万1353人。 在没有接种过1次疫苗的1476人中询问，理由第1位(可以多次回答)，“个人自由”是71%,第2位是，“害怕副作用”还有“感觉没有必要”也分别是50%以上。担心有不孕风险”是27%。
 
-尽管俄罗斯愿意接受比特币作为支付其油气支付方式，但美国和欧盟将联合打击可能非法利用数字货币规避欧美对俄罗斯的制裁
+县民调机构分析，“对疫苗的不安感和对行政信息持怀疑态度”是不接种的原因。为提高接种率的目标，决定3月中旬集中播放电视广告。
 
-美国拜登总统3月9日签署《关于确保负责任地发展数字资产》的行政命令，该命令要求通过监管、监督、技术措施等，减轻滥用数字资产带来的非法金融和国家安全风险。数字资产也可用作规避美国和外国金融制裁制度以及其他工具和当局的工具。美国担任FATF主席同时，领导该组织制定并采用了第一个数字资产国际标准，其中包括制定数字资产的 AML/CFT 标准。
+信息来源：[「未知のワクチンだから」 73%　未接種の理由1位　沖縄で県民1万人意識調査　「希望しない」47%](https://www.okinawatimes.co.jp/articles/-/927722)
 
-3月24日，美国拜登总统和欧盟主席冯德莱恩联合声明，共同合作推进打击非法使用数字资产，包括在规避针对俄罗斯无端军事入侵乌克兰而实施的多边制裁方面的潜在滥用。按照金融行动特别工作组 (FATF) 的标准推进数字资产的反洗钱和打击恐怖主义融资 (AML/CFT)。【2】
-
-任何数字货币如比特币如果被利用于购买俄罗斯石油天然气支付上，规避美欧对俄罗斯的制裁，将被美欧联合采取行动措施，而郭先生直播爆料，94%的比特币在1.8%的人手里边控制着，中共和华尔街是背后绝对控制者，而中共正是俄侵乌背后金主，所以比特币必然消失，喜币腾飞。
-
-因此俄乌战争也是数字货币的一场战争，以喜币为代表的“良心币”与被邪恶利用的比特币之战。
-
-参考链接：
-
-【1】[随着西方制裁的加剧，俄罗斯正在考虑出售其石油和天然气以换取比特币](https://www.cnbc.com/2022/03/24/russia-might-take-bitcoin-as-payment-for-oil-and-gas-as-sanctions-rise.html)
-
-【2】[拜登总统和冯 德莱恩 主席 的联合声明](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
-
-* * *
-
-*编辑&发布：长岛开心*
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO-1-14.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多信息，更多关注**
+[**乌克兰救援官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场委员会联盟Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟驻全球服务中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
