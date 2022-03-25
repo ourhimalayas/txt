@@ -2,39 +2,30 @@
 ---
 
 
-## 有声|郭先生解析俄罗斯侵略乌克兰的结局
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229417/)
+## 战友当自强
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2229643/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生也在3月23日的大直播中解析了俄罗斯侵略乌克兰的三种结局。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-85.jpg)
-郭先生认为，习近平有很大的可能性将代表中国共产党成为俄罗斯入侵乌克兰战争和谈时的调解国，以及监督俄罗斯履行协议的担保国。到那时，中共必将与俄罗斯一起两国人民，继续威胁全世界。更甚者，中共或许会帮助俄罗斯加剧现有的战争侵略行为。另外，波罗的海三国也可能会和俄罗斯以及白俄罗斯开战，甚至可能将战争升级到小型动用核武器的地步。
+撰稿：东京樱花团/兔子坡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/战友当自强.png)
+乌克兰救援中发生的一些问题，七哥发了火，这些问题是每一个中国人的劣根性，一个中国人是一条龙，三个中国人是一条虫，柏杨先生的《丑陋的中国人》都是写的这些问题。
 
-但郭先生指出，由于西方世界目前已经认定中共是俄罗斯背后的金主，且全球很少有人可以或愿意将中国人与中共区分开来，因此，上述各种情况均会对中国百姓造成根据大的影响。
+中国这片土地，几千年来有先进性也有落后性，我们每一个身上都有问题，有问题是现实，就看我们怎么面对这个问题。
 
-为此，郭先生提醒各位战友，一定要保护好自己和家人，并拥有一个良好的心态。在此基础上，战友们可以在自己的能力范围内继续传播真相，以及“中共不等于中国人”的这一事实。
+- 战友身上有任何问题，都是战友内部的问题，和我们与共产党之间你死我活的矛盾不一样，和我们与九指妖之类的矛盾也不一样。不论战友有多大的问题，他们都是战友，都舍命参加了救援，他们没有把事情做好，不代表他们没有付出。
+- 知道了缺点就要改。要以郭先生为榜样：我从茅屎坑出来，我身上有屎味，但是我在改。人要有一股勇气，就是面对自己的勇气，要认识到自己的不足，要改正自己的不足。
+- 将来新中国联邦胜利了，会遇到无数有各种各样问题的同胞，战友们可能会改正自己的错误，他们可能不会改。我们会受到各种各样的伤害，但是我们是战友，是新中国联邦人，我们不会同胞有问题就抛弃同胞。我们会整理好我们的心情，去做更加重要的事情。
 
 
+我们这支队伍，七哥是领袖，他鼓励这只队伍，他鞭打这只队伍，战友们遇到事情，不要动气，不要动怒，做好我们的事情，我们最终会改变这个国家。
 
-文字版原文：[郭先生解析俄罗斯侵略乌克兰的结局](https://gnews.org/zh-hans/2222938/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,48 +2,41 @@
 ---
 
 
-## 有声|命中注定有了他
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229365/)
+## 樱花FM|樱花时政:日本阿联酋外长会谈就乌俄局势石油危机交换意见
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229382/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-拯救地球多少次
-今生奇遇遇见他
-命中注定有了他
-心情好似开了花
-遇见他
-古藤老树都发芽
-如似清风抚头发
-春夏秋冬都开花
-迷失的信仰回了家
-迷途的人儿
-重新出发
-感谢他
-感谢今生遇见他
-重建联邦需要他
-子孙后代需要他
-拯救人类需要他
-灭掉共匪见爸妈
-我们今生追随他
-追随他
-完成使命
-向更高的维度
-进发
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032516.png)
 
-文字版原文：[命中注定有了他](https://gnews.org/zh-hans/2223704/)
+日本外长林芳正在出访阿联酋期间，于日本时间3月21日凌晨，与阿联酋外长阿卜杜拉举行了会谈。
 
-音频处理：Fei797
-发稿：Fei797
+双方就乌克兰局势和其他问题交换了意见，两位外长确认将继续在各种外交谈判中进行合作，以保护国际秩序的基础。两位外长还确认了俄罗斯不应威胁或使用核武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+在会谈中林外长表示，俄罗斯的军事行动侵犯了乌克兰的主权和领土完整，是对国际法的严重违反。此外，林外长还对高油价表示关切，希望阿联酋作为主要产油国，为稳定国际石油市场做出进一步贡献。
 
+阿卜杜拉外长则表示愿意与日本合作，称与日本的战略伙伴的关系是不可动摇的。
+
+阿联酋供应日本约30%的原油进口，日本公司也在阿联酋生产原油。
+
+在俄罗斯军事入侵乌克兰的背景下，石油消费国要求产油国进一步增产，以应对油价飙升，但产油国仍保持谨慎态度。阿联酋也对自己的额外增产表示出消极态度。
+
+文字版原文：
+
+
+| [樱花时政┃日本阿联酋外长会谈就乌俄局势石油危机交换意见](https://gnews.org/zh-hans/2200686/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,24 @@
 ---
 
 
-## 美欧协议不再进口俄罗斯天然气
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2228528/)
+## 资本逃离香港意味着中美之战已经开始
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2228647/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-20.20.26.png)
-3月25日，美国总统拜登和欧盟的冯布莱恩宣布，欧盟不再进口俄罗斯天然气，转而与美国达成天然气进口协议。
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月20日的大直播中，郭先生表示，资本逃离香港跟疫情与中共病毒疫苗无关，而是投资者已经意识到，中美之战已经彻底打响。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-91.jpg)
+根据郭先生所掌握的情报，香港的投资者绝大部分已经认识到，中共与美国之间的对决已经拉开了帷幕。自俄乌战争爆发以来，美中两国多轮谈判与视频会晤，都清楚地表明中共与俄罗斯站在了同一阵营，共同对付西方民主国家。美国民众普遍认为，拜登政府对待中共和俄罗斯过于软弱，因此美国政府必将有进一步的行动。无论中共是否攻打台湾，美国对中共的金融与经济制裁，必将传导到香港股市。
 
-据悉过去几年，俄罗斯是欧盟最大的能源供应国，周三普京要求“不友好国家”使用卢布结算天然气贸易，不再使用美元和欧元。拜登总统与欧盟主席冯布莱恩的联合声明表示，欧盟要从过去的依赖俄罗斯天然气能源走向独立，为当地居民和企业提供可负担的清洁能源。双方会成立一个联合工作队，加快能源转型。
+参考链接：[3/20/2022 文贵直播：资本逃离香港跟疫情和疫苗无关，而是因为投资者意识到中美之战已经开始；比特币被伊朗、华尔街、沼泽地、中共和俄罗斯控制，2%的人拥有96.6%的人的比特币，比特币就是个骗局！](https://www.gettr.com/post/p11ezix2b51)
 
-据知情人士称，此项工作局限性较大。美国探索增加能源产量，欧洲转向发展清洁能源，是从长远角度的考量。美国天然气出口商下周将与德国买家会面。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-
-
-reference：
-
-[https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports](https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports)
-
-[https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
+总编: 宁文静
+编辑: 飞虹
+审核：Irene木木
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

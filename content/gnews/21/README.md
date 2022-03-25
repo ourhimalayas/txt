@@ -2,25 +2,36 @@
 ---
 
 
-## “圣彼得堡阴谋”将清算中共国的一切
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2228863/)
+## 岸田首相派遣古河法务大臣前往波兰接收难民
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228926/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月23日的大直播中，郭文贵先生与战友们分享了俄乌战争接下来的可能走势。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-65.jpg)
-郭先生说，对于俄罗斯发起的这场战争，普京最初认为保守估计一周之内结束，但目前已经持续了一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一是打小规模的核战争，二是停战。但停战需要找担保人来调停，普京的“圣彼得堡阴谋”，就是让中共来做担保人，停止这场战争。表面上看体现了中共国的大国风范，但实际上，这会让全世界视国人为敌，在金融、信用、宗教等各方面进行全方位、长时间的限制或制裁，政治灾难不可避免。
+翻译：Orpheus
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/sw-1.jpg)图片来源：NHK新闻
 
-郭先生指出，真相不会永远被掩盖。中共的所作所为，会在“圣彼得堡阴谋”下彻底暴露，但也会加剧世界对无辜中国人的仇恨。战友们需做好心理准备。
+日本时间25日凌晨1点前，岸田首相在比利时会见了正在访问的波兰总理莫拉维茨基，并告知他打算派遣法务大臣古川作为其特使前往波兰，推进乌克兰难民的收容。
 
-参考链接：[3/23/2022 文贵直播：什么是“圣彼得堡的阴谋”？只要中共调解俄乌战争，中共国将被全世界制裁和清算，中共国将发生粮食危机、政治灾难以及金融、宗教和信用的崩塌；中共在中东提供无人机、挑拨离间却甩锅给美国人](https://gettr.com/post/p11ke0ac549)
+其中，岸田首相表示，”俄罗斯对乌克兰的侵略是一个严重的形势，不仅在欧洲，而且动摇了包含亚洲在内的整个国际秩序的基础，我们把它当作自己的事情，正在为了实施严格的制裁并给予乌克兰支持”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+两位领导人随后一致认为，有必要以坚定的决心支持正在努力捍卫自己家园的乌克兰人民。
 
-总编: 宁文静
-编辑/审核：飞虹
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+岸田首相解释说，我国正在建立一个系统来接收流离失所的乌克兰人，并支持他们的日常生活。他告诉首相，他打算派遣法务大臣古川作为特使前往波兰，以便准确评估当地居民的需求。
+
+岸田首相还与加拿大总理特鲁多和北约秘书长斯托尔滕贝格进行了简短会晤，并确认他们将在处理乌克兰局势方面密切合作。
+
+参考链接：[岸田首相 避難民受け入れのため 古川法相をポーランドに派遣へ | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220325/k10013550691000.html)
+
+* * *
+
+审核：BryanW
+校对/发稿：宫米叶
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

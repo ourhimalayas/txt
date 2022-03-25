@@ -2,32 +2,39 @@
 ---
 
 
-## 樱花FM|樱花时政：俄乌战况 俄首用高超音速导弹，乌总统呼吁谈判
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229381/)
+## 有声|乌克兰救援行动将成为拯救无数华人的传奇
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229480/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://lh4.googleusercontent.com/i1ekA7KsC_foJctVMuwxUYtLVxAbZe3Sa5GCK5hSQBecj4Ne3tyvlvsEdW9YXsHe0FFNPwVsjk1sZwbveEfQEeEQuDZ0jYy2DqlnTJ_QGKBRBxw_pnpqlao4EpyW1gTpqRKo-bII)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月20日，郭文贵先生在大直播中表示，波兰前线救援战友所展现出的新中国联邦人的良好形象正在时刻影响着世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-159.jpg)
+郭先生指出，新中国联邦人肩负使命救助乌克兰难民的举动已经充分向全世界说明，我们跟中共的假恶丑截然相反。这当中，救援团队将新中国联邦人对天地、对人、对动物的敬畏和爱护之心展现给了世人。
 
-俄罗斯承认在作战行动中使用了高超音速导弹，与此同时，乌克兰总统泽伦斯基再次呼吁和平谈判。乌克兰空军发言人伊格纳特表示：“匕首”航空导弹系统发射了高超音速气动弹道导弹目标杰利亚京的大型导弹和航空弹药军用仓库。
+郭先生还补充道，乌克兰前线救援行动将成为拯救无数中国人的史诗般的传奇，这也将尽可能地防止海外排华事件和其他灾难性的人道事故发生。为此，即使面临着种种阻力，郭先生也决定不计代价地将救援行动继续进行下去。
 
-高超音速导弹可达音速5倍以上，在飞行中具机动性，改变自己在大气层中的高度，运动轨迹无法预测。由于其目标设定要到最后一刻才暴露，因此，难以在常规空防系统被发现和拦截。俄军收紧对亚速海港口马里乌波尔的包围，乌克兰“暂时”失去通往亚速海的道路。乌方的声明还指出，俄军在向米科莱夫逼近时被防御部队阻止。周六当天，乌克兰总统泽伦斯基在脸书上发布视频呼吁：“现在是会面、会谈的时候，是时候恢复乌克兰的领土完整性及公平正义。否则，俄罗斯的损失将如此巨大，以至于几代人都不足以恢复。” 他认为，这将是“俄罗斯弥补错误的唯一机会”。乌克兰方面周六表示，一名俄将军在克里米亚北部赫尔松郊外的一个机场被击毙，并称他是自2月24日入侵开始以来被击毙的第五名将军。目前俄军的攻势总体上仍然基本停滞不前，俄军在首都基辅以东约30公里处，面临着激烈的抵抗。乌克兰对俄军供应线的严厉打击，俄军“基本的必需品，如食品和燃料”已经无法正常补给。
-
-文字版原文：
-
-
-| [樱花时政┃俄乌战况：俄首用高超音速导弹，乌总统呼吁谈判](https://gnews.org/zh-hans/2200682/) |   |
-| --- | --- |
+郭先生也示警海内外同胞称，如果14亿中国老百姓以及全球的海外侨胞还不能尽快觉醒，那他们将会面临比“锁链女”更悲惨的命运。
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+
+文字版原文：[乌克兰救援行动将成为拯救无数华人的传奇](https://gnews.org/zh-hans/2222813/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

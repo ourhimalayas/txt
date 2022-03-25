@@ -2,25 +2,32 @@
 ---
 
 
-## 安省废水内新冠病毒数量激增
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229360/)
+## 樱花FM|樱花时政：俄乌战况 俄首用高超音速导弹，乌总统呼吁谈判
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229381/)
 
-采编/撰稿：加拿大温哥华杨帆农场 – 文莱
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://lh4.googleusercontent.com/i1ekA7KsC_foJctVMuwxUYtLVxAbZe3Sa5GCK5hSQBecj4Ne3tyvlvsEdW9YXsHe0FFNPwVsjk1sZwbveEfQEeEQuDZ0jYy2DqlnTJ_QGKBRBxw_pnpqlao4EpyW1gTpqRKo-bII)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-32-2.jpg)图片来源：yahoo
+俄罗斯承认在作战行动中使用了高超音速导弹，与此同时，乌克兰总统泽伦斯基再次呼吁和平谈判。乌克兰空军发言人伊格纳特表示：“匕首”航空导弹系统发射了高超音速气动弹道导弹目标杰利亚京的大型导弹和航空弹药军用仓库。
+
+高超音速导弹可达音速5倍以上，在飞行中具机动性，改变自己在大气层中的高度，运动轨迹无法预测。由于其目标设定要到最后一刻才暴露，因此，难以在常规空防系统被发现和拦截。俄军收紧对亚速海港口马里乌波尔的包围，乌克兰“暂时”失去通往亚速海的道路。乌方的声明还指出，俄军在向米科莱夫逼近时被防御部队阻止。周六当天，乌克兰总统泽伦斯基在脸书上发布视频呼吁：“现在是会面、会谈的时候，是时候恢复乌克兰的领土完整性及公平正义。否则，俄罗斯的损失将如此巨大，以至于几代人都不足以恢复。” 他认为，这将是“俄罗斯弥补错误的唯一机会”。乌克兰方面周六表示，一名俄将军在克里米亚北部赫尔松郊外的一个机场被击毙，并称他是自2月24日入侵开始以来被击毙的第五名将军。目前俄军的攻势总体上仍然基本停滞不前，俄军在首都基辅以东约30公里处，面临着激烈的抵抗。乌克兰对俄军供应线的严厉打击，俄军“基本的必需品，如食品和燃料”已经无法正常补给。
+
+文字版原文：
 
 
-据【CTV新闻】3月24日报道，安大略多个市政化验结果显示，在被检测的废水样本中，“新冠病毒”数量均出现持续增加的迹象，这表明该省病毒感染人数呈上升趋势。
+| [樱花时政┃俄乌战况：俄首用高超音速导弹，乌总统呼吁谈判](https://gnews.org/zh-hans/2200682/) |   |
+| --- | --- |
 
-报道称，尽管安省目前已取消了绝大部分疫情限制，但在全省范围内被抽样分析的废水中，“新冠病毒”含量却成几何倍数增长。不过有卫生专家认为，暂无必要因此重新开启安省的封锁政策。
 
-据悉，安省卫生部门认为废水中的病毒数量增加并不意外，但因其上升速度过快而促使专业机构正对此展开调查。此外，从废水检测中发现了一种新的奥密克戎变体，虽然并不危险，但传播性明显更高。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [Ontario COVID wastewater data points to increase in cases | CTV News](https://toronto.ctvnews.ca/ontario-wastewater-testing-shows-sustained-increase-in-covid-19-rates-1.5831893)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
