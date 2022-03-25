@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 7:27 PM (UTC)`
+
+【Ukraine Rescue】03/25/22 Frontline rescue members put the ROLF and NFSC's labels on the rescue supplies. The NFSC stands with the Ukrainian people. We are the NEW CHINESE people who are taking down the evil Chinese Communist Party!  #CCP≠Chinese <br/><br/>【乌克兰救援】03/25/22 前线救援战友们把法治基金和新中国联邦的救援物资贴上标识。新中国联邦与乌克兰人民站在一起。我们是消灭共产党的新中国联邦人！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group3/origin/2022/03/25/19/323780a3-c53d-5310-f115-9163c82d9ade/out.jpg)
+
+---
+
 `@miles 3/25/2022 5:32 PM (UTC)`
 
 
@@ -150,13 +157,6 @@ Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Y
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-24
 ![img](https://media.gettr.com/group35/origin/2022/03/24/21/130e4346-446f-76cc-4480-9edf99ea5b0b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 7:00 PM (UTC)`
-
-
-![img](https://media.gettr.com/group23/origin/2022/03/24/18/ce279f72-a6f3-f9b9-b079-3d3cd052012b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
