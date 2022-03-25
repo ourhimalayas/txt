@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 2:32 AM (UTC)`
+
+
+![img](https://media.gettr.com/group44/origin/2022/03/25/02/9fa20293-5cf3-3f85-3cd1-57e36ef87acc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/25/2022 2:17 AM (UTC)`
 
 3/23/2022 Miles Guo: Xu Jiayin is behaving like a mentally ill person just because he has a surveillance device on his body. Hong Kong is covering up the pandemic, only 1 death is reported for 5 deaths. 1,700 people died in just one district in Shenzhen. The pandemic in Communist China is out of control, causing more deaths than you could imagine. The world is stockpiling food like crazy, and Communist China may end up in a situation where people are reduced to cannibalism!<br/><br/>3/23/2022 文贵直播：许家印表现得像精神病只因身上安着监控器；香港掩盖疫情，死5人只报1人，深圳仅一个区就死了1700人，中共国疫情失控造成的死亡超乎想象；全世界正在疯狂屯粮，中共国可能会达到人吃人的境地！<br/>
@@ -152,13 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 【Ukraine Rescue】03/24/22 “Although most people do not know about the NFSC and ROLF, we are here to show the world our presence and mission through rescue operations,” said the volunteer Jing Liang.<br/><br/><br/>【乌克兰救援】03/24/22 志愿者精粮战友表示：虽然大多数人并不知道新中国联邦和法治基金，但是我们就是要通过救援行动展示给世界我们的存在和使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
 ![img](https://media.gettr.com/group15/getter/2022/03/24/16/6ced5d87-8d34-067f-6b2c-afc830c20d6a/out.jpg)
-
----
-
-`@miles 3/24/2022 4:15 PM (UTC)`
-
-3/23/2022 Miles Guo: After the Xi-Obama meeting failed, Xi felt he was humiliated and was so angry that he directly flew to Russia to ally with Putin. From then one, these two evil forces have been in cahoots to destroy America.<br/><br/>3/23/2022 文贵直播: 习奥会失败后，习恼羞成怒直飞俄罗斯与普京结盟，从此两股邪恶力量会师意在置美国于死地！<br/><br/><br/>
-![img](https://media.gettr.com/group16/getter/2022/03/24/16/2b043e9e-e80c-bbe4-7513-671cbb50e2ff/out.jpg)
 
 ---
 

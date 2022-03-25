@@ -2,26 +2,28 @@
 ---
 
 
-## 中共运-8反潜机在南海坠毁
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2224920/)
+## 联大通过决议要求俄罗斯停战并保护平民 中共弃权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2225138/)
 
-编译：波士顿五月花—-思澈
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-21.jpg)联大通过决议要求俄罗斯停战并保护平民 中共弃权 网络图片
+据美国之音3月25日报道，联合国大会3月24日以140票支持、5票反对和38票弃权通过一项由乌克兰推出的决议，要求莫斯科立即停止针对乌克兰的战争，并保护所有平民和平民设施以及人道和医务工作者和记者。该决议得到80多个国家支持，中共国投了弃权票。
 
-经证实中共运-8反潜机在南海海域坠毁，至少有10名军人在执行任务时遇难，大部分是校、尉级军官。
+联合国大会决议不具备法律约束力，但是在国际道义方面具有分量，而且联大通过的这项决议向莫斯科就其采取的行动发出了明确讯息。俄罗斯被国际社会进一步孤立。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/005843FE-525C-4D5F-B342-8DFA59F6A0DC.jpeg)
+俄罗斯对乌克兰的侵略战争造成了二战以来最大的人道危机。仅仅一个月，已有350万乌克兰人逃入邻国，超过一半乌克兰儿童流离失所，涉及450万儿童，乌克兰大约1200万人需要人道援助。美国准备为乌克兰额外再提供10亿多美元的人道主义资金。世界各国和慈善组织纷纷为乌克兰提供各种援助，新中国联邦与国际救援组织合作，第一时间派出救援团队赶赴战区救助中国同胞、乌克兰人民和所有需要帮助的人们逃离战场。战争无情人有情，新中国联邦人爱好和平，反对战争，支持乌克兰！
 
-三月初世界聚焦俄罗斯入侵乌克兰期间中共一架运-8反潜战斗机坠落南海。
+新闻参考链接：[https://www.voachinese.com/a/at-un-international-community-demands-russia-stop-war-aid-ukrainians-20220324/6499756.html](https://www.voachinese.com/a/at-un-international-community-demands-russia-stop-war-aid-ukrainians-20220324/6499756.html)
 
-三月22日，微博用户「张超微博」发布一份共10人的遇难名单，并请大家记住「**黑色三月**」。「张超微博」虽未写这些人是在运-8反潜机事故中遇难，但名单中10人都是海、空军飞行员，全部来自中共92697部队，该部队是海军航空兵部队，配置运-8反潜战机，而且这10人都是在3月1日遭遇不幸，恐怕不是巧合。
+* * *
 
-坠机之初，中共在南海邻近海域发布禁航区从事搜救、军事训练遮盖消息，但一位长期关注南海军事动态的越南军事记者于3月6日在推特曝光，3月1日下午1架中共运-8反潜机在海南岛三亚市西南海域失联。台湾国防部稍晚也证实这一消息。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-中共官方至今未见发布军机坠毁消息及相关回应。
 
-素材来源：[https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659](https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659)
+编辑：【英国伦敦喜庄园编辑部】
 
-*发布：思澈*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

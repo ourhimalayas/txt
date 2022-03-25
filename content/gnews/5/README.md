@@ -2,18 +2,17 @@
 ---
 
 
-## 俄乌战争对中国人的危害以及结果的爆料（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225570/)
+## 前线动物救援
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2225680/)
 
-#### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-10_9-20一1-1.png)
-*发布：陶子*
+视频：救援前线战友 字幕与文稿：文宝
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+**【Frontline Animal Rescue 】At 12:30 local time in Poland on March 16, Polish volunteers greeted more than 40 rescued cats and puppies from the border. The pet’s name was written on the outside of each pet carrier. Caring families are waiting to adopt them. Protections for natural environments and animal habitats to let all life coexist harmoniously is one of the visions of the New Federal State of China.
+【前线动物救援】3月16日波兰当地时间中午12点半，波兰义工从边境迎接了被营救出来的40多只猫咪和小狗，每个装宠物的运输箱外面都写着宠物的名字，每个小动物都已经找到了一个领养它们的家庭。保护大自然和动物生态，万物和谐共生是新中国联邦的愿景之一。**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-10.png)DISCORD
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-9.png)GETTR
 
  
 
