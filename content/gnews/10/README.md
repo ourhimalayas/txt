@@ -2,22 +2,32 @@
 ---
 
 
-## 乌克兰国家银行限制每月10万格里夫纳的准现金业务和个人海外转账
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2228304/)
+## 视频| 救援【非脱敏】
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2228342/)
 
-翻译：雄起（酷翻组）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/wukelanguojiayinhang.jpeg)
-乌克兰国家银行（NBU）已经限制了每月等价10万格里夫纳（UAH）的准现金业务以及使用付款人和收款人的银行卡信息将资金转移到国外个人账户（P2P转账）。
+制作：大直播短视频组
 
-国家银行3月21日第58号决议批准了相关修改，该决议已在其网站上公布并已生效。
+视频制作: Hart文双
 
-据悉，准现金业务包括充值电子钱包、经纪或外汇账户、支付旅行支票和购买虚拟资产。
+文案：爱米粒
 
-相关链接：
-[NBU limits UAH 100,000/month quasi cash operations and P2P transfers abroad](https://en.interfax.com.ua/news/general/816704.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-11.png)
 
-审核校对：Barry Jack
-上传排版：F
+【爱尔兰是一个慈善伟大的国家】爱尔兰时报3月18日消息, 在都柏林，一位87岁退休老人收留乌克兰难民一家三口
+
+审核/编辑/发稿：Yuki jiang
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+
+**更多资讯，更多关注**
+
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
