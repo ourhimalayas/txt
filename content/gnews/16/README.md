@@ -2,27 +2,27 @@
 ---
 
 
-## 世界金融监管机构加强审查加密货币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227121/)
+## 北约峰会主张加强防御，应对俄乌局势
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227127/)
 
-作者：香草山农场 – 柳是多水土透
+作者：温哥华扬帆农场 – 動物農莊裡的小螞蟻Michael.Tonny#1290
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社3月21日报导，在当前俄乌战争局势下，因对加密货币被用于规避制裁的担忧，由 20 国集团经济体的金融监管机构、中央银行和财政部官员组成的金融稳定委员会成员帕特里克·阿姆斯特朗，在伦敦举行的城市与金融会议上表示，正在监视与加密货币有关的各种情况。
+3月24日，北约紧急峰会正式开幕。在开幕式上，北约秘书长延斯·斯托尔滕贝格强调，继续向俄罗斯总统普京施加压力，同时主张北约加强防御，应对蔓延到欧洲和世界的经济和安全后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-48.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-65.png)
 
-此外，英国金融服务大臣在该会议上表示，英国已将加密资产纳入反洗钱和恐怖主义融资的打击范围内，并支持对加密资产进行执法。欧盟也于此前发布相关指导意见，确认对俄罗斯包括加密资产在内的贷款和信贷进行制裁。
+拜登在周三抵达时表示，希望推动盟国对俄罗斯实施新的制裁，并称相关禁令、抵制和惩罚所削弱俄罗斯的经济实力。
 
 链接：
 
-- [Global regulators monitor crypto use in Ukraine war](https://www.reuters.com/article/crypto-currency-regulator-idCAKCN2LI0OH)
+- [Extraordinary Summit of NATO Heads of State and Government](https://www.nato.int/cps/en/natohq/events_193216.htm)
+- [Biden pledges new Ukraine aid, warns Russia on chem weapons](https://apnews.com/article/russia-ukraine-putin-biden-business-g-7-summit-9f6705e72533496f513c3540881d348e)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：雪梨
-编辑：飞虹/雪梨
-审核：木木
+总编/编辑：雪梨
+审核：雪梨
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

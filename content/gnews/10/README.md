@@ -2,43 +2,39 @@
 ---
 
 
-## 普京的女人和孩子可能被瑞士遣送回俄罗斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2227413/)
+## 【Top News】美国宣布制裁与朝鲜有联系的俄罗斯实体
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2227542/)
 
-#### 翻译：li yan li
-编辑：Mttfly
+![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2911.png)
+© AP Photo / Luis M. Alvarez
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4b42f864f60f0306.jpg)卡巴耶娃被前苏联时期体操教练伊琳娜·维纳（Irina Viner）带走 | 图片 Polaris / eyevine
-阿林娜·卡巴耶娃（Alina Maratovna Kabaeva）是艺术体操历史上最有成就的体操运动员之一。她拥有2枚奥运会奖牌、14枚世界锦标赛奖牌和25枚欧洲锦标赛奖牌。
+据俄罗斯卫星通讯社华盛顿3月25日报道，美国国务院发布消息称，因违反对伊朗、朝鲜和叙利亚的制裁，美国宣布对一名俄罗斯个人，以及俄罗斯、中共国和朝鲜多个实体实施制裁。
 
-卡巴耶娃美丽、有才华，被认为是俄罗斯最有资历与地位的女人。但今天，她有一个相当不受欢迎的称号——“俄罗斯的爱娃·布劳恩”。爱娃·布劳恩是希特勒的长期伴侣，并于人生最后近40小时内成为希特勒的妻子，两人于地堡的房间内共同自杀。
+消息称，“美国宣布对俄罗斯和朝鲜境内的五个实体和个人，以及中共国的一个实体实施制裁。”
 
-据消息人士透露，普京的奥运金牌体操运动员情妇正带着他们的四个孩子躲在瑞士某处非常隐秘和安全的小屋中。随着俄罗斯入侵乌克兰变得更加激烈，卡巴耶娃也面临着越来越多被引渡回俄罗斯的请求。
+美国国务院表示，作为对“为朝鲜导弹计划提供敏感材料”的回应，采取了多项限制性措施，制裁期限为两年。
 
-这位运动员和俄罗斯总统之间的恋情最早是在2008年传出的，据说她在2015年参加活动时已经怀上了普京的孩子。
+美国是在《伊朗、朝鲜和叙利亚不扩散法案》框架内采取限制性措施的。
 
-现年38岁的卡巴耶娃曾是一名体操运动员，后来转为政治家，人们普遍认为她是弗拉基米尔·普京的女友，也可能是其妻子。许多俄罗斯人认为，卡巴耶娃是普京与现年62岁的前第一夫人柳德米拉婚姻破裂的原因，后者是普京两个成年女儿的母亲。
+【援引链接】[https://sputniknews.cn/20220325/1040275540.html](https://sputniknews.cn/20220325/1040275540.html)
 
-据称，尽管克里姆林宫一直否认关于两人之间关系的报道。但有传言她为俄罗斯总统生了四个孩子。
+采集/撰稿：米拉雅
+审阅/天赐良闻
+上传/CharlieNZ查理
 
-“是时候让爱娃·布劳恩与她的元首团聚了！”在本月25日左右，将近64,000人在Change.org上向瑞士政府提交了一份请愿书，并将卡巴耶娃与在柏林地堡里与阿道夫·希特勒结婚的女人进行了比较。
+推出问题，敲出真相，爆料在路上！
 
-在向瑞士政府提交的请愿书中恳求道：“请决定此人在贵国的居住权是否合理”，“瑞士是时候采取行动了。”
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：
 
-如果她最近确实逃往瑞士，目前还不清楚她可能会留下来多久。卡巴耶娃在瑞士的居住权问题，使得瑞士政府有可能将其遣送回俄罗斯。
+[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)
 
-俄乌战争爆发以来，由于普京对乌克兰的入侵，迄今已有数千人被杀，超过一百万人被迫成为难民逃亡。
+【Gnews Top News New Zealand】盖特账号：[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)
 
-参考链接：[Alina Kabaeva – the star gymnast who became Putin’s ‘Eva Braun’](https://www.afr.com/world/europe/alina-kabaeva-the-star-gymnast-who-became-putin-s-eva-braun-20220324-p5a7l8)
+【新西兰Gnews】盖特账号：[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)
 
-发布：Frank2021
+【玫瑰看新闻】盖特账号号：[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+ROSE NEWS推特账号：[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
 
  
 
