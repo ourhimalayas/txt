@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥回答习太阳之后中国的未来以及躺平币的进展（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226865/)
+## 躺平币面世要推迟会有大升级（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2227001/)
 
-#### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：10-11：20-02.jpeg)
+#### PPT制作: 小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：20-11：30-01.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

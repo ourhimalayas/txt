@@ -2,11 +2,13 @@
 ---
 
 
-## 喜币的正义属性以及七哥练功打坐与修行的体会（七）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226832/)
+## 七哥回答习太阳之后中国的未来以及躺平币的进展（八）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226956/)
 
-#### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：00-11：10-07.jpeg)
+#### PPT制作: 小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：10-11：20-08.jpeg)
+
+
 *发布：陶子*
 
 更多资讯，请关注：

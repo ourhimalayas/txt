@@ -2,31 +2,30 @@
 ---
 
 
-## 疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226442/)
+## 台湾｜俄乌战争引爆外资大量出走 创历史新高
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226501/)
 
-**图/文｜CP **
-**发布时间｜25/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國新冠死亡率逐日攀升-喪葬業全行告急.jpg)
+圖/文 zhong｜25/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-25.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+23日报导，俄乌战争爆发加剧外资对中共侵略台湾的担忧，导致外资抛售价值约4800亿台币的股票。外媒引述分析人士称为“外资史上空前出走潮”。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+兆丰国际投顾协理黄国伟于报导中表示，外资抛售了价值约4800亿台币的股票，期外资抛售台股刷新纪录，比2008年全球金融海啸时金额更大。2021年，外资抛售价值近4462亿台币的股票，2022年俄乌战争爆发导致外资抛售台湾股票已超过去年总和。
+
+根据彭博社的相关数据，本周海外投资者在短短两天内净卖出约 46 亿美元的台湾股票，周一是有记录以来的第二高单日撤资。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1190x-1.jpg)图：彭博社
+黄进一步表示，近期外资大量出走并未使台湾股市受到灾难性损失，原因在于台湾部分银行大量收购吸收了外资出走的冲击。此外，台湾的投资者认为俄乌战争与中共对台侵略是不同的情形，因此大部分人对台股的信心并未受到影响。
+
+台积电占据晶片代工产业领导地位，占台股权值比28.8761%(2022/2/25数据)，被视为是台股的指标。外媒报导称，自 2 月底以来，其股价在台北和纽约均下跌了 3% 以上。Refinitiv 的数据显示，台湾的科技股也落后于大盘，同期台湾科技股指数下跌 2%。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.45.26.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.46.34.png)
 
 
-韩国卫生当局周二（22日）报告新增384 例 COVID-19 死亡个案，连续第六天超过 300 例，总死亡人数达到 13,141 人。而上个月的每日死亡人数均低于 100 人。
-
-由于 COVID-19 死亡人数在短期内急速增加，殡仪馆首当其冲受到巨大压力。首尔国立大学医院负责人吴成铉表示，最近几周，该院的 13 个殡仪馆几乎全数爆满，加上火化设施有每日可承受的上限，死者家属经常不得不延后葬礼。据公开数据显示，韩国公共火葬设施的日容量已经从 3 月 4 日的 1,044 例增加至 1,424 例。
-
-对此，韩国中央灾害与安全对策本部宣布，提高全国公共火葬场的容量，并指示殡仪馆增加更多的冰箱来储存死者，以应对日益增加的 Covid-19 死亡人数。
-
-目前，当局已将全部 60 个公共火葬场的每日熔炉作业量增加到每单位 7 次，同时建议地方政府暂时允许当地火化设施跨区域处理其他地区的尸体，另外，由于全国 1,136 家殡仪馆的最高可容纳仅8,706 具尸体，因此，卫生官员要求各殡仪馆务必尽快安装额外的冰柜或带冷却系统的房间来增加容量。
-
-不过，这仍然不足以缓解类似首尔这样的人口大都市正面临的尸体积压难题。
-
-**来源｜**[**thestatesman**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)**、**[**abcNews**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)
+来源｜[bloomberg](https://www.bloomberg.com/news/articles/2022-03-08/foreign-exodus-from-taiwan-s-stocks-is-rapidly-gaining-pace)、[CNN](https://edition.cnn.com/2022/03/23/investing/taiwan-investment-jitters-russia-ukraine-intl-hnk/index.html)
 
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

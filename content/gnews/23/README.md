@@ -2,41 +2,36 @@
 ---
 
 
-## 中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226459/)
+## 美国大陪审团认定中共CAIEP雇员犯有签证欺诈罪
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2226576/)
 
-**撰稿：东京樱花团**/Calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-1-12.png)[**图片来源**](https://www.foxbusiness.com/markets/chinas-zte-exits-probation-after-us-court-ruling)
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-13.28.10.png)
+3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
 
-**一位美国法官周二（3月22日）裁定，结束中兴通讯公司2017年非法向伊朗和朝鲜运送美国技术的五年缓刑。**
+根据法院文件和证据显示，59岁的柳忠三以欺诈方式为中共雇员获取J-1研究学者签证，使得中共可以利用这些雇员进行非法活动。柳向美国政府及机构隐瞒了此项非法工作。
 
-**在得知美国地区法官Ed Kinkeade在德克萨斯州的决定后，中兴通讯股票的交易在深圳和香港市场开盘前暂停。**
+据悉柳忠三是中国国际人员交流协会CAIEP骨干成员，通过该机构获得的J-1签证并非在美国研究部门做访问学者，而是为中共工作，甚至招募美国研究人员为中共工作。柳曾经在2019年因涉嫌签证欺诈罪被捕，当时中共华为盗窃美国技术，受到川普政府的一些制裁。
 
-**该裁决是在该公司缓刑期的最后一天做出的，中兴通讯被指控通过涉嫌通过签证欺诈将中国公民带到美国的中兴通讯进行研究的行为违反了缓刑期的条例。**
+柳被判定一项共谋欺骗美国罪和签证欺诈罪，将定于7月11日判刑，最高面临五年监禁。
 
-**根据去年3月起诉书透露，一名前中兴通讯研究主任和一名佐治亚理工学院教授涉嫌密谋将中国公民至少从2014年到2018年带到美国，同时持有该大学赞助的J-1签证在中兴通讯从事技术研究。**
+reference：
 
-**虽然中兴通讯没有在佐治亚州亚特兰大待决的签证案件中被指控，但法官上周在达拉斯就欺诈指控举行了听证会，该指控可能违反了中兴通讯的缓刑期的条例。 Kinkeade在周二的裁决中发现中兴通讯对前中兴通讯主任的行为负有法律责任，但决定不对中兴通讯采取任何进一步行动。**
+[https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
 
-**中兴通讯已经达到缓刑的最高期限，该公司辩称，也已经被处以最高刑罚。作为2017年认罪的一部分，中兴通讯向美国政府支付了8.92亿美元。**
+撰稿、发布：骄子
 
-**法官写道，把这个“开放式的关于合法的工具的问题留给法院吧”。**
+* * *
 
-**尽管做出了有利的裁决，但法官鼓励政府对公司提出任何合理的指控以及刑事或民事处罚。**
+欢迎订阅我们的GNews账号：
 
-信息来源：
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-[US judge rules in favour of China’s ZTE, ending probation | Business and Economy | Al Jazeera](https://www.aljazeera.com/economy/2022/3/23/us-judge-rules-in-favor-of-chinas-zte-ending-probation)
-
-**编辑：东京樱花团/喜马拉雅的微尘**
-**发布：东京樱花团/**yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

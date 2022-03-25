@@ -2,36 +2,29 @@
 ---
 
 
-## 美国大陪审团认定中共CAIEP雇员犯有签证欺诈罪
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2226576/)
+## 躺平币历经技术革新 拥有者自由享受财富
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2226645/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-13.28.10.png)
-3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
+撰稿：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
+在3月23日的大直播中，郭文贵先生透露，躺平币将经历技术革新，实现真正去中心化，并在全世界自由、安全地流通。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093702.jpg)
+郭先生表示，目前，第二代数字货币技术的交易成本约为300美金，而即将到来的第三代可降低到3美金左右，且第三代区块链加密技术有望实现准量子型，速度迅捷，准确率极高，便于储存。与此同时，转账功能不受任何地域、时间限制，不受银行、政府监管，真正实现去中心化。
 
-根据法院文件和证据显示，59岁的柳忠三以欺诈方式为中共雇员获取J-1研究学者签证，使得中共可以利用这些雇员进行非法活动。柳向美国政府及机构隐瞒了此项非法工作。
+郭先生表示，躺平币将回归货币的本质，劳动即财富，财富即享用。在未来的支付系统中，作为流动性极强的数字货币，躺平币将覆盖水、食物、柴米油盐等最常用的生活场景。
 
-据悉柳忠三是中国国际人员交流协会CAIEP骨干成员，通过该机构获得的J-1签证并非在美国研究部门做访问学者，而是为中共工作，甚至招募美国研究人员为中共工作。柳曾经在2019年因涉嫌签证欺诈罪被捕，当时中共华为盗窃美国技术，受到川普政府的一些制裁。
+视频链接：[躺平币的发行 将从7月份往后推迟](https://gettr.com/post/p11id8zf16c)
 
-柳被判定一项共谋欺骗美国罪和签证欺诈罪，将定于7月11日判刑，最高面临五年监禁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-128.jpg)
 
-reference：
+编辑：飞虹/雪梨
 
-[https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
+总编：雪梨
 
-撰稿、发布：骄子
+审核：木木
 
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif)
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
