@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 5:34 AM (UTC)`
+
+3/23/2022 Miles Guo: Now the most absurd thing is happening to humanity in the world. The wealth obtained by individual labor is subject to various supervision and restrictions; the New Federal State of China is developing a truly decentralized, stable and secure digital currency-- “Tangping Coin”, which will be circulated globally without limitation for the benefit of all mankind<br/><br/>3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类<br/>
+![img](https://media.gettr.com/group23/getter/2022/03/25/05/ae66177e-36c8-a48b-76ac-e6847566d261/out.jpg)
+
+---
+
 `@miles 3/25/2022 5:22 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -152,13 +159,6 @@ Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Y
 
 The war has been going on for 26 days，The NFSC rescue has also entered its 17th day,<br/>As an increasing number of refugees were rescued, our rescue operation has become more and more professional, and the comrades have been a more harmonious group from setting up camps, stockpiling supplies, taking photos and recording videos, to live streams, interviews, and reports. It shows that we are working hard<br/>战争已经持续26天，我们新中国联邦的救援也已经进入了第17 天，随着救助的人数越来越多，我们的救援工作越来越专业，战友之间的合作越来越融洽，从搭建营地，到储备物资，从摄影、录像，到直播、采访、报道，都体现了我们在用心做事
 ![img](https://media.gettr.com/group11/origin/2022/03/24/16/7464b0d7-547d-cb42-25d5-b910113ebb9b/out.jpg)
-
----
-
-`@miles 3/24/2022 4:49 PM (UTC)`
-
-This humanitarian operation of NFSC brought a great shock to our international friends<br/>Mr.Miles mention one of his friends in a broadcasting,<br/>He had left Ukraine before the war,<br/>However, when he saw the Ukrainian’s resistance and NFSC’s aid,<br/>He was moved and return to the Ukrainian front without any hesitation. <br/>Joined this war to resist Russians. <br/>The situation of war is shifting dramatically.<br/>Putin’s so called “Conservative estimate of one week to take Ukraine”<br/>By far, is getting stuck a whole month.<br/>This friend who left but returned Ukraine, is just a small example.<br/>新中国联邦的此次救援行动给国际友人带来巨大震撼，<br/>郭先生在直播中说到他的一位朋友，<br/>本来在开战前以离开了乌克兰，<br/>但是看到新中国联邦的救援和乌克兰人民的抵抗，<br/>他感动了，毅然回到乌克兰前线，<br/>参与这场抵抗俄罗斯的战争。<br/>战争的形式在急剧转变，<br/>普京所谓的"保守估计一周拿下乌克兰",<br/>目前已经是整整一个月的战争僵持。<br/>#ukrainerescue #nfsc新中国联邦
-![img](https://media.gettr.com/group6/origin/2022/03/24/16/b0963309-a9c5-1bfc-f101-d8d8d9e892fa/out.jpg)
 
 ---
 
