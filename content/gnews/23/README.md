@@ -2,35 +2,22 @@
 ---
 
 
-## 加拿大禁止其士兵加入乌克兰外国军团
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
+## 加拿大政府讨论用数字ID追踪疫苗接种
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230138/)
 
-作者：加拿大温哥华扬帆农场-活力人生
+加拿大温哥华扬帆农场-硫酸羟氯喹64, 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-50.jpg)（图片：tnc.news）
+加拿大网媒《True North》3月22日报道，2月1日，加拿大公共服务学院就如何用数字ID追踪国民疫苗接种召开了研讨会，由创新、科学和经济发展部副部长比罗多主持。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+比罗多认为，身份识别在大流行病期间很重要，政府任何时候都需要验证身份，跟踪疫苗接种，并用它来识别那些未接种疫苗的人。在本次CCP病毒流行期间，安省已经开始通过政府提供的二维码来颁发疫苗接种证明。但数字身份的普及需要私营公司和政府一起合作，并期待加拿大未来能成为数字身份领域的先驱。
 
+推行数字身份的根本是为了更好地统治人民。CCP病毒肆虐二年多来，特鲁多政府不去病毒溯源，反而大力鼓吹致伤致残无数的疫苗接种，并想借机推广数字身份，然而大卡车运动已经向世人证明，觉醒的人民不是那么好忽悠的！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
-
-
-据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
-
-加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
-
-艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
-
-加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
-
-新闻链接：
-
-[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
+原文链接：[https://tnc.news/2022/03/22/federal-panel-event-discusses-digital-ids-for-tracking-future-vaccinations/](https://tnc.news/2022/03/22/federal-panel-event-discusses-digital-ids-for-tracking-future-vaccinations/)
 
 * * *
 
-编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
-
+编辑、上传：月亮之上
 
  
 

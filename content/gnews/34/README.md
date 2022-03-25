@@ -2,88 +2,30 @@
 ---
 
 
-## 安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2229503/)
+## 樱花FM|新中国联邦用心关爱战乱中的乌克兰小天使
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229686/)
 
-**Jessica Wachter
-杰西卡·沃赫特**
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032529.png)
 
-As you’ve heard today the Commission is considering proposing rules
-正如你今天所听到的，委员会正在考虑提出的规则
+每一位孩子都是坠入凡间的天使，乌克兰的孩子们虽然身处战乱，但是孩子们的每一次微笑都值得珍惜，足以融化枪炮的狰狞，在人们的心中绽放绚丽的玫瑰。新中国联邦与法治基金在救援前线为孩子们提供了可爱的玩具，精心布置的儿童游戏区，让孩子们可以远离战争的喧嚣，拥有一片心灵的伊甸园。我们懂你们，我们与你们在一起。
 
-to enhance and standardized climate disclosure
-来加强和规范气候信息披露
+文字版原文：
 
-These proposals would require public companies
-这些提议将要求上市公司
 
-to provide in their registration statements
-在他们的注册声明
+| [新中国联邦用心关爱战乱中的乌克兰小天使](https://gnews.org/zh-hans/2201319/) |   |
+| --- | --- |
 
-and annual reports certain information on risks
-和年度报告中提供有关风险的某些信息
 
-that climate poses to short, medium and long term financial performance
-关于气候对短期、中期和长期财务业绩的影响
-
-And on steps the company plans to take to mitigate this risk
-以及公司计划采取的措施来减轻这种风险
-
-such as an internal carbon price if there is one
-例如内部碳价格，如果有的话
-
-scenario analysis if the company does it
-如果公司情景分析这样做的话
-
-transition plans if the company has them
-如果公司有过渡计划
-
-or targets if the company has set them
-或公司设定的目标
-
-Public companies would also disclose governance around climate issues
-除了风险披露和公司应对措施，上市公司
-
-Besides the disclosures on risk and on the company’s response
-还将披露围绕气候问题的治理
-
-the proposed rules would require disclosure on current financial impacts
-拟议规则将要求披露目前因气候相关事件和过渡活动
-
-and on financial expenditures due to climate related events and transition activities
-引起的财务影响和财政支出
-
-Finally, the rule would require disclosure about the carbon footprint
-最后，该规则将要求通过范围一和范围二的
-
-through sculpt one and two GHG emissions and scope three
-温室气体排放和范围三的碳足迹披露
-
-if scope three emissions are material or used
-如果范围三排放是实质性的或被用作
-
-as part of the climate related target or goal
-气候相关目标或目标的一部分
-
-* * *
-
-Date:03/23/2022
-原视频标题: SEC expected to introduce climate disclosure rules, forcing publicly traded companies to report on emissions and “climate change” risks
-安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
-原视频日期：2022/03/21
-原视频链接[**https://twitter.com/disclosetv/status/1505929622835417088?s=24**](https://twitter.com/disclosetv/status/1505929622835417088?s=24)
-任务编号：KE460（4060）
-视频时间段 : 0:00-1:07
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

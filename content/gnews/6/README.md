@@ -2,199 +2,53 @@
 ---
 
 
-## 邪恶的共产党正在跑步奔向地狱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2230464/)
+## 两名男子就旅行疫苗强制起诉特鲁多政府
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2230524/)
 
-从3月底到4月份
-Desde finales de marzo hasta abril
+3月24日《真北方》（True North）报道，由于在加拿大登上商业航班或火车旅行的联邦疫苗接种强制令尚未结束，两名男子已经对特鲁多政府提起诉讼，要求取消这一限制。【1】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C-3.jpg)news.yahoo.com
+肖恩·里卡德（Shaun Rickard）是英国公民，作为永久居民在加拿大生活了30年，是一家承包企业的老板。他没有接种COVID-19疫苗。里卡德和另一名男子卡尔·哈里森（Karl Harrison）已经向法院提出挑战，反对政府针对未接种疫苗的加拿大人的旅行限制。
 
-你会看到在中东
-Verás en el Medio Oriente
+在接受真北方的独家采访时，里卡德解释说，“不能旅行是个问题。特别是由于这些限制禁止他探访在英国的家人，包括他患有老年痴呆症的父亲。”
 
-整个能源和战争中的更凶险的事情发生
-Sucederá algo más siniestra en conjunto con la energía y la guerra
+在创建了一个推特账户和在GoFundMe上募捐以推翻疫苗强制令后，里卡德获得了数千名追随者，并从支持者那里筹集了超过22,000美元。但他说，他被禁止使用推特，由于推特切断了他与支持者的联系，他关闭了GoFundMe的账号。
 
-然后是台湾
-Luego es Taiwán
+上月底在渥太华结束的自由车队运动也曾主张取消疫情限制。虽然该车队行动与诉讼无关，但里卡德仍然支持渥太华的抗议活动。
 
-记住我今天说的话
-Recuerda lo que dije hoy
+“我百分之百地支持卡车司机，现在也是如此。”他告诉真北方。
 
-我知道共产党想干什么
-Yo sé lo que está pensando el PCCh
+“让我们把话说清楚。这不像他们坐在议会的房子里。卡车司机他们是在马路上，在外面。主流媒体对他们的描述已经变得……卑劣。”
 
-只有放毒
-Sólo descargar el virus
+律师萨姆·普雷斯维洛斯（Sam Presvelos）正在帮助处理里卡德的案件。据他说，对特鲁多政府的诉讼强调了这些规定缺乏科学依据。
 
-发动另外一场能源和区域性战争
-Lanzar otra guerra energética y regional
+“本案的真正重点只是在看科学与否。” 普雷斯维洛斯说，“与旅行有关的Covid的案件在所有案件中占1%。而这关乎所有的旅行。如果在一家杂货店，你感染的机会是1%，我们是否要告诉未接种疫苗的人你不能买杂货？”
 
-大家看着中东吧
-Todos vean a Medio Oriente
+虽然类似的诉讼，如前萨斯喀彻温省省长布莱恩·佩克福德（Brian Peckford）提出的诉讼，提出强制令的违宪性质，但普雷斯维洛斯强调了不同的方法。
 
-然后是台湾
-Después es Taiwán
+他说：“人们需要了解的是，如果说你的宪章权利不是绝对的，这意味着你拥有的任何宪章权利都可能被政府违反。”
 
-最后是把它(共产党)自己作死
-Finalmente, este PCCh buscará la muerte
+他解释说，这些规定并不相称，也不具有最小的侵犯性，“这项政策更多的是鼓励人们接种疫苗，而不是保护旅行者的健康和安全。”
 
-中国共产党刚刚在内部说
-El PCCh acaba de decir internamente
+虽然批评政府行为的人被贴上了反科学和不关心他人的标签，但普雷斯维洛斯希望向本案的观察者保证，“无论主流媒体和政客们怎么说，我们都是站在同一战线上的”。“我们希望人们是健康的，我们希望人们是安全的。”
 
-大肆宣传我们有了两年到两年半的储备粮食
-Anunciando exageradamente que tenemos reservas de alimentos para dos o dos años y medio
+普雷斯维洛斯说，反击特鲁多政府的旅行疫苗强制令的几起诉讼已经合并，它们将在同一时间线上进行。该诉讼定于9月1日在联邦法院进行。
 
-18亿吨的粮食
-1.8 mil millones de toneladas de alimentos
+**特评：**来自加拿大民间的力量一直在推动各项疫情限制令的逐步取消。享誉世界的卡车司机自由车队行动就是典型的一个草根运动，很大程度上对加拿大各级政府取消封锁、口罩强制令和疫苗强制令等发挥了影响力，但依然被传统媒体贬低甚至诋毁。
 
-中国人需要
-La necesidad China
+这次又有两名普通人要花钱起诉联邦政府，要求取消对未接种疫苗人的旅行限制。这两个人的起诉新闻只被《真北方》独家报道出来。
 
-不要说一天所谓的3两肉
-No digas los llamados 3 taeles de carne al día
+《真北方》是一个保守派的小众媒体，它在2021年8月11日报道称“自由党人隐藏了获得6100万美元补贴的媒体公司的名字“【2】，它本身不属于接受了特鲁多自由党给经费支持的媒体。
 
-18亿吨粮食乘以2.5是多少
-¿Qué es 1.8 mil millones de toneladas de alimentos multiplicado por 2,5?
+去年9月写了《1000多家媒体在选举前获得自由党政府的资助》【3】一文的作者感慨道，“现在我们知道原因了。媒体控制是一个政府能够永久统治一个国家的条件。在较小的范围内，它是贾斯汀·特鲁多连续三次胜利的材料。”
 
-35亿吨
-3.5 mil millones de toneladas
+岂止如此？这次两年多的疫情控制和强制疫苗政策的实施，没有这些帮特鲁多政府说话、被特鲁多控制的传统媒体助纣为虐，哪里能制造得出？疫苗灾难很快即将真正显现，疫苗接种率高达80-90%的加拿大人还没有让特鲁多政府罢休，还在鼓励人们接种加强针，据说特鲁多已经给加拿大人准备了10剂的接种量。太疯狂了。
 
-(相当于)中国人啥也不吃只吃面
-(Equivalente a) que los chinos no coman nada sino únicamente fideos
+参考链接：
+【1】[https://tnc.news/2022/03/24/two-men-launch-lawsuit-against-vaccination-travel-requirement/](https://tnc.news/2022/03/24/two-men-launch-lawsuit-against-vaccination-travel-requirement/)
+【2】[https://tnc.news/2021/08/11/liberals-hide-names-of-media-companies-given-61-million-in-subsidies/](https://tnc.news/2021/08/11/liberals-hide-names-of-media-companies-given-61-million-in-subsidies/)
+【3】[https://capforcanada.com/over-1000-media-outlets-receive-liberal-government-funding-in-advance-of-election/](https://capforcanada.com/over-1000-media-outlets-receive-liberal-government-funding-in-advance-of-election/)
 
-两年半
-Dos años y medio
-
-35亿吨的粮食
-3.5 mil millones de toneladas de alimentos
-
-是把全世界粮食不是50%买走了
-No compró el 50% de los alimentos del mundo
-
-是300%买走了
-Sino el 300%
-
-也就是明年没有收割的粮食
-Es decir, el grano que no se cosechará el próximo año
-
-已经在共产党的粮库里了
-Ya están en el depósito de granos del PCCh
-
-它在恐惧什么, 它在骗什么
-¿A qué le teme, a qué engaña?
-
-你们还记得1958年吗
-Ustedes se acuerdan en el año 1958
-
-我还没出生的时候
-Aún no habia nacido
-
-你们还没出生的时候
-Y ustedes tampoco
-
-毛泽东见印度的一个总统的时候
-Cuando Mao Zedong se reunió con un presidente de la India
-
-告诉人家说
-Le dijo
-
-你看我们中国这个粮食
-Mira nuestros alimentos en China
-
-产太多了, 怎么处理啊
-Tengo muchísimos alimentos, ¿qué debo hacer?
-
-尼赫鲁
-Nehru
-
-一本正经地说
-Dijo honestamente
-
-我们可以考虑帮你解决这个问题
-Podemos considerar en ayudarte a resolver este problema
-
-我们帮你消化一部分
-Te ayudamos a digerir parte de ella
-
-1958年(饿)死了多少人
-¿Cuántas personas murieron de (hambre) en 1958?
-
-几千万人
-Decenas de millones
-
-共产党毛泽东对着尼赫鲁, 抽着烟翘着二郎腿
-El PCCh Mao Zedong fumando un cigarrillo con las piernas cruzadas frente a Nehru
-
-就那一分钟说话中间平均死多少人
-¿Cuántas personas murieron en promedio en ese minuto de conversación?
-
-今天中共又来了
-El PCCh está aquí de nuevo hoy
-
-我们粮食已经储备了2.5年
-Hemos almacenado alimentos durante dos años y medio
-
-然后印刷出了中国叫钢镚
-Y luego imprimió en chino llamado moneda de pequeña dominación hecha de metal
-
-我从小叫钢镚
-Desde pequeño me llaman moneda de pequeña dominación hecha de metal
-
-过去是银币
-Eran monedas de plata en el pasado
-
-镍币, 现在已经变成钢镚
-Monedas de níquel, ahora se ha convertido en moneda de pequeña dominación hecha de metal
-
-然后(新的)纸币还马上要出现
-Y pronto llegarán los (nuevos) billetes
-
-还要废掉一部分
-Y se eliminarán una parte
-
-就是中国人
-Si los chinos
-再不醒来
-No se despiertan
-
-不是去地狱做猪狗
-No es ir al infierno a ser cochinos y perros
-
-真的连死都找不着毛
-Sino que no conseguirán realmente ni pelos cuando mueren
-
-最后我告诉你们, 兄弟姐妹们
-Finalmente les digo, hermanos y hermanas
-
-这些都不是最恐惧的
-Todo esto no es lo temeroso
-
-战争, 中东, 放毒
-Las guerras, el Medio Oriente, descarga de virus
-
-最恐惧的是疫苗灾难
-Lo más temeroso es el desastre de las vacunas
-
-* * *
-
-日期：03/24/2022
-原视频标题：邪恶的共产党正在跑步奔向地狱
-El malvado PCCh está corriendo hacia el infierno
-
-原视频日期：03/19/2021
-原视频网址：**[https://gettr.com/post/p10pmqg6f0c](https://gettr.com/post/p10pmqg6f0c)**
-任务编号：KC482(4045)
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

@@ -2,32 +2,25 @@
 ---
 
 
-## 【G时新闻】联大通过决议要求俄罗斯停战并保护平民 中共弃权
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2230416/)
+## 美国房产销售连续四个月下降
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2230465/)
 
-作者：加拿大温哥华扬帆农场 – 播报：悠然 – 视频制作：文雅
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2991.png)
-据美国之音3月25日报道，联合国大会3月24日以140票支持、5票反对和38票弃权通过一项由乌克兰推出的决议，要求莫斯科立即停止针对乌克兰的战争，并保护所有平民和平民设施以及人道和医务工作者和记者。该决议得到80多个国家支持，中共国投了弃权票。
+编译：文宝
 
-联合国大会决议不具备法律约束力，但是在国际道义方面具有分量，而且联大通过的这项决议向莫斯科就其采取的行动发出了明确讯息。俄罗斯被国际社会进一步孤立。 俄罗斯对乌克兰的侵略战争造成了二战以来最大的人道危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-143.png)
 
-仅仅一个月，已有350万乌克兰人逃入邻国，超过一半乌克兰儿童流离失所，涉及450万儿童，乌克兰大约1200万人需要人道援助。美国准备为乌克兰额外再提供10亿美元的人道主义资金。
+**美国2 月份房屋销售量（已经签合同但还没有交割的房屋量）比 1 月份下降 4.1%。这是销售的连续第四个月下降，与 2021 年 2 月相比，销售下降了 5.4%，这是房地产市场最繁忙季节的一个严峻的信号。现在，新抵押贷款的月供中位数在典型消费者收入中所占的份额要大得多， 与 1 月份相比，2 月份它上涨了 8.3%。**
 
-世界各国和慈善组织纷纷为乌克兰提供各种援助，新中国联邦与国际救援组织合作，第一时间派出救援团队赶赴战区救助中国同胞、乌克兰人民和所有需要帮助的人们逃离战场。战争无情人有情，新中国联邦人爱好和平，反对战争，支持乌克兰。
+**由于这个数字是基于 2 月份签订的合同，当时抵押贷款利率真正开始起飞，它是市场对新利率环境反应的有力指标，尤其是在进入关键的春季时。**
 
-视频链接：[https://gettr.com/post/p11tjayaa3e](https://gettr.com/post/p11tjayaa3e)
 
-编辑/上传：蔚蓝之境
 
-————————————————————————————————————
+原文链接：[https://www.cnbc.com/2022/03/25/home-sales-fall-in-february-ahead-of-key-spring-selling-season.html](https://www.cnbc.com/2022/03/25/home-sales-fall-in-february-ahead-of-key-spring-selling-season.html)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-14.png)DISCORD
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-13.png)GETTR
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2988.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
