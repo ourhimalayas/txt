@@ -2,25 +2,12 @@
 ---
 
 
-## 特鲁多在欧洲议会讲话中攻击自由车队抗议者
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2231228/)
+## 3月25日文贵大直播要点（图片1-6）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2231252/)
 
-作者：加拿大温哥华扬帆农场-晨熹
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3016.png)图片来源：The Post Millennial
-
-
-据加拿大媒体【后千禧年】3月24日报道，加拿大总理特鲁多本周三在欧洲议会讲话时谴责“民主制度正在削弱”。
-
-他在讲话中还特别攻击了渥太华二月份的自由车队抗议者，“我们都看到反疫苗和反政府抗议演变为非法占领我们的社区，封锁我们的边界”，“他们假装有简单的解决方案来消除人们的恐惧”，称其领导人是“愤世嫉俗的民粹主义者试图利用民众的焦虑情绪”。
-
-特鲁多在讲话中还表示，为日渐消弱的民主制度而战是“摆在我们面前的工作”。
-
-新闻来源：[https://thepostmillennial.com/watch-justin-trudeau-attacks-freedom-convoy-protesters-in-speech-to-european-parliament](https://thepostmillennial.com/watch-justin-trudeau-attacks-freedom-convoy-protesters-in-speech-to-european-parliament)
-
-* * *
-
-编译撰稿：晨熹， 编辑校对：硫酸羟氯喹64
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/03/BA6C9881-7462-4831-9A39-E2084EBEE216.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/B4682D4F-045B-44D7-8D0F-D534B78CE568.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/19727C22-6DAC-4D17-AF4F-274516C26381.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/8CF10D76-192C-4F43-A7ED-02E77E371715.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/270FED27-C8DB-4C5B-B086-B2BBFBABAE8A.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/80922BE9-84DD-4E58-92B5-B4B4C5D691DC.jpeg)
+发布： 水涨船高
 
  
 
