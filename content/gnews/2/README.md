@@ -2,39 +2,42 @@
 ---
 
 
-## 美国务院官方认定俄罗斯犯下战争罪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2227777/)
+## 灭共段子——神雕侠侣第二级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227921/)
 
-**翻译：噜噜咪**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2927.png)美国国务卿安东尼·布林肯23日宣布认定俄罗斯在乌克兰犯下战争罪。（路透社照片）
+撰稿：东京樱花团/Loveland
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-168.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fi1.hdslb.com%2Fbfs%2Farchive%2Fcd0158b161d2024e45cc0891ec18b712a97f7af0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bilibili.com%2Fvideo%2FBV17b411e7v6%2F&amp;tbnid=a0lT0MjMJtnXjM&amp;vet=10CCAQMyh3ahcKEwjY2dmUut_2AhUAAAAAHQAAAAAQAg..i&amp;docid=08Xj85DTIkWDoM&amp;w=1220&amp;h=762&amp;q=%E7%A5%9E%E9%9B%95%E4%BE%A0%E4%BE%A3&amp;ved=0CCAQMyh3ahcKEwjY2dmUut_2AhUAAAAAHQAAAAAQAg)
+杨过被带到桃花岛后因被大武小武误会吃郭芙的醋，于是决定教训杨过。
 
-美国国务院全文如下：
+拳来脚去，杨过被摁倒在地，大武道：杨过，认输吧。
 
-自从俄罗斯总统弗拉基米尔·普京发起他无端和不公正的战争以来，他发动了无情的暴力，在整个乌克兰造成死亡和破坏。我们已经看到许多关于不分青红皂白的攻击和故意针对平民的攻击以及其他暴行的可信报告。俄罗斯军队摧毁了公寓楼、学校、医院、重要的基础设施、民用车辆、购物中心和救护车，导致成千上万的无辜平民死亡或受伤。俄罗斯军队袭击的许多地点都可以清楚地识别为平民设施。这包括马里乌波尔妇产医院，正如联合国人权事务高级专员办事处在3月11日的报告中明确指出的。它还包括对马里乌波尔一家剧院的袭击，该剧院上清楚地标有“дети”——从空中可以看到俄语中“儿童”的巨大字样。普京的部队在车臣的格罗兹尼和叙利亚的阿勒颇使用了这些相同的战术，他们加强了对城市的轰炸，以摧毁人民的意志。他们在乌克兰这
+杨过：把我关了这么久，想我认输？不可能！我要吃饭，我们要生活！
 
-样做的企图再次震惊了世界，正如泽伦斯基总统清醒地证明的那样，“让乌克兰人民沐浴在血与泪中”。
+郭芙：你还不回农村还有块地先自保，在城里等饿死啊？
 
-在俄罗斯军队继续其野蛮攻击的每一天，包括妇女和儿童在内的无辜平民被杀和受伤的人数都在攀升。截至3月22日，被围困的马里乌波尔的官员说，仅在该市就有超过2400名平民被杀。不包括马里乌波尔的破坏，联合国已正式确认有超过2500名平民伤亡，包括死亡和受伤，并强调实际人数可能更高。
+杨过一脚把大武踢晕，小武一看马上给大武运功疗伤，大武醒了过来……
 
-上周，我赞同拜登总统的说法，根据我们都看到的无数破坏和痛苦的描述和图像，普京的部队在乌克兰犯下了战争罪。我当时指出，故意以平民为目标是一种战争罪。我强调，国务院和其他美国政府专家正在记录和评估乌克兰的潜在战争罪行。
+杨过和郭芙大惊失色：尼玛！腊肉复活了？！我滴个乖乖.吓死俺了……
 
-今天，我可以宣布，根据目前掌握的信息，美国政府评估认为，俄罗斯军队的成员在乌克兰犯下了战争罪。
+这时郭大侠和黄蓉赶到，看了下大武的伤势：过儿，你用了几成功力？
 
-我们的评估是基于对公共和情报来源的现有信息的仔细审查。与任何被指控的罪行一样，对该罪行有管辖权的法院最终负责确定具体案件的刑事罪责。美国政府将继续追踪有关战争罪的报告，并将酌情与盟友、伙伴以及国际机构和组织分享我们收集的信息。我们致力于利用一切可用的工具追究责任，包括刑事起诉。
+杨过：二级
 
-**素材：peacelv**
-**素材链接：**[ state.gov][War Crimes by Russia’s Forces in Ukraine](https://www.state.gov/war-crimes-by-russias-forces-in-ukraine/#.YjttS3WWKF8.twitter)
+导演吐血：二级的？剧本明明是一级的……
 
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
+几人齐声道：大冷天演一级的得多冷？切，栖息（粤语：神经）
+
+信息来源：[https://gettr.com/post/p11rz2x4c78](https://gettr.com/post/p11rz2x4c78)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

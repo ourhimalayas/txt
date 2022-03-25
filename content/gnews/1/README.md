@@ -2,27 +2,29 @@
 ---
 
 
-## 鼓舞民众坚持下去！泽伦斯基：乌克兰离胜利越来越近了
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2227806/)
+## 财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2227949/)
 
-乌克兰遭遇俄军进犯已进入第30天，乌克兰总统泽伦斯基发表谈话时指出，目前乌国离胜利越来越近了，盼能鼓舞民众继续坚持下去。
+**图/文｜CP **
+**发布时间｜25/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/貝萊德CEO：俄烏戰爭終結全球化-加快數字貨幣發展.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpMGIbKb.jpg)图片来源：美联社
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-泽伦斯基说：这是（俄侵乌）的第30天，已经一个月了，如果俄罗斯早知道他们会面临这样的（状况），我相信俄军肯定会害怕来到这里（指乌克兰）。
 
-泽伦斯基接着提到，世界已对俄国实施了具有破坏性的制裁手段，而他也正在跟各国商讨，未来将达成新的制裁协议。
+全球最大资产管理公司贝莱德/黑岩（BlackRock）行政总裁芬克（Larry Fink）周四（24日）公布了一份写给股东的公开信，他在信中写到，俄罗斯对乌克兰发起的战争预示着30年的全球化已经终结，因为这场冲突颠覆了自 1990 年冷战结束以来形成的世界秩序，并将产生持久的全球经济后果。
 
-简评：坚持就是胜利！就像郭文贵先生经常开玩笑说的坚持20秒一样！乌克兰已经把俄罗斯拖入了持久战的泥淖，外加国际对俄的制裁越来越猛烈，俄罗斯与背后的元凶中共已经支撑不了多久了！胜利终归乌克兰，那个日子不远了！
+芬克警告指，过去两年全球因疫情导政的供应链中断，令全球通胀加剧。俄乌战争的爆发更进一步令供应链大规模地重新定位，促使企业退出全球供应链，让各国央行在价格上涨或经济活动减少之间做出艰难的选择。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3871445](https://news.ltn.com.tw/news/world/breakingnews/3871445)
+另外，芬克特别提到战争对数字货币的影响，他认为这场战争会促使各国重新评估对货币的依赖性，贝莱德亦因客户对加密货币的兴趣增加，而正在研究数字货币和稳定币以及相关技术。他指出，“一个精心设计的全球数字支付系统，可以加强国际交易的结算，同时降低洗黑钱和贪腐的风险。”
 
-撰稿/发布：一叶知秋
+芬克在信中所表达的观点与去年接受采访时的说法有很多变化，当时芬克对记者表示，他对数字货币的波动性有担忧，并认为现时将它视为一种交易工具还为时过早。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+來源｜[BlackRock](https://www.blackrock.com/corporate/investor-relations/larry-fink-chairmans-letter)、[Forbes](https://www.forbes.com/sites/sergeiklebnikov/2022/03/24/blackrock-ceo-larry-fink-says-russia-ukraine-war-is-upending-world-order-and-will-end-globalization/?sh=1368c14057eb)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

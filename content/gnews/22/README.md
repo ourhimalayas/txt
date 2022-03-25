@@ -2,27 +2,27 @@
 ---
 
 
-## 美警告中共国，严禁向俄出口芯片
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227119/)
+## 世界金融监管机构加强审查加密货币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227121/)
 
-作者：温哥华扬帆农场 – 動物農莊裡的小螞蟻Michael.Tonny#1290
+作者：香草山农场 – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日，美国商务部长雷蒙多表示，如果中共国公司对俄罗斯出售以美国技术制造的芯片，美国将实施出口管控，甚至停止出口。
+据路透社3月21日报导，在当前俄乌战争局势下，因对加密货币被用于规避制裁的担忧，由 20 国集团经济体的金融监管机构、中央银行和财政部官员组成的金融稳定委员会成员帕特里克·阿姆斯特朗，在伦敦举行的城市与金融会议上表示，正在监视与加密货币有关的各种情况。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-59.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-48.png)
 
-雷蒙多称，美国正在对任何可能违反该管制规定的国家进行监测，并将对任何违反规定的国家实施制裁。世界关注中共与俄罗斯的关系，和中共在俄乌战争中的表态。中共国的半导体公司严重依赖美国技术，一旦违反相关规定，将受到严厉的制裁。
+此外，英国金融服务大臣在该会议上表示，英国已将加密资产纳入反洗钱和恐怖主义融资的打击范围内，并支持对加密资产进行执法。欧盟也于此前发布相关指导意见，确认对俄罗斯包括加密资产在内的贷款和信贷进行制裁。
 
 链接：
 
-- [U.S. will ‘absolutely’ hit Chinese firms if they violate export controls on Russia, says Raimondo](https://www.reuters.com/world/asia-pacific/us-will-absolutely-hit-chinese-firms-if-they-violate-export-controls-russia-says-2022-03-23/)
-- [美英达成新贸易协议 削减英国钢铝、美国摩托车和波旁威士忌进口关税](https://cn.reuters.com/article/us-uk-trade-deal-metals-wine-0323-idCNKCS2LK092)
+- [Global regulators monitor crypto use in Ukraine war](https://www.reuters.com/article/crypto-currency-regulator-idCAKCN2LI0OH)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编/编辑：雪梨
-审核：飞虹
+总编：雪梨
+编辑：飞虹/雪梨
+审核：木木
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
