@@ -2,70 +2,73 @@
 ---
 
 
-## GFashion在在线奢侈时尚行业打响名声
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2227683/)
+## 【Top News】乌克兰战争中逃离家园的乌克兰人如缓慢滴水变成了洪流
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2227726/)
 
-**翻译：噜噜咪**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2917.png)
+**数周以来一直有警告：俄罗斯军队正在边境附近集结。总统弗拉基米尔**·**普京打算夺取对乌克兰的控制权。入侵即将来临。准备好。**
 
+**但这怎么可能呢？自从世界这个地区的大多数人听到坦克入侵的雷声以来，已经有好几代人了。这是麦当劳、**Netflix **的时代。对于许多乌克兰人来说，这似乎是不可能的。即便是总统沃洛迪米尔**·**泽连斯基（**Volodymyr Zelenskyy**），他现在是一位没有刮胡子、穿着** T **恤的领导人，他将他的人民从坚固的掩体中召集起来，他在** 1 **月下旬表示，威胁似乎并不比一年前更糟。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2914.png)
+**然后，在** 2 **月** 24 **日，事情发生了。**
 
-今天，普通消费者比历史上任何时候都更加信息灵通以及拥有更多的选择。
+**导弹袭击了乌克兰各地的目标。坦克和士兵流过边境。俄罗斯军队似乎很快就会到达首都基辅。**
 
-要吸引这些精明的顾客，需要一个能充分了解他们以及他们不断变化的品味和喜好的品牌。
+**相反，敏捷、全副武装的乌克兰士兵和志愿者凶猛地保护着他们的国家，减缓了俄罗斯机械化军队的前进速度。普京的挫败感与日俱增，随之而来的是俄罗斯军队的残暴，他们开始轰炸城市，杀害俄罗斯总统声称他正在保护的人。**
 
-所有产品都是如此，包括服装和饰品。随着每天都有新的参与者进入时尚界，品牌适应并与时俱进是至关重要的。
+**每天都有越来越多的人逃离这个国家。每天，死亡人数都在攀升。**
 
-这需要一种前瞻性的方法，而GFASHION品牌深谙此道。该品牌正在引导个性化的力量。
+**星期四是入侵发动的一个月。美联社的摄影师每天都在那里。**
 
-GFASHION是一个全球性的奢侈品牌，在革新行业方面引起了人们的关注。该品牌拥有一个不断增长的世界知名设计师和艺术家的名册，是高质量工艺和原创性的缩影。
+\_\_\_
 
-该团队拥有一些世界上最著名的奢侈时尚领域的开拓者，而且这个名单还在不断增加。
+**在袭击发生后的几个小时内，逃离家园的乌克兰人的缓慢滴水变成了洪流。他们挤满了火车和公共汽车。他们的汽车堵塞了道路。暴力事件震惊了乌克兰，因为第一批民用建筑被俄罗斯袭击摧毁。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2918.png)
+2 **月** 24 **日，当他们离开** Sievierodonetsk **时，一名妇女和儿童从公共汽车的窗外凝视。（美联社照片**/Vadim Ghirda**）**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2919.png)
+2 **月** 25 **日，在基辅遭到火箭袭击后，**Natali Sevriukova **在她家旁边哭泣。（美联社照片**/Emilio Morenatti**）**
 
-每一季，该品牌都会寻找新鲜的、新兴的设计师和制造商，增加其人才库，并确保它保持其高标准和生产风格。
+\_\_\_
 
-这个人才库中的每一个人都具有高度的天赋和创新精神。
+**随着入侵的凶猛程度越来越明显，恐惧蔓延开来。一名儿童在即将被围困的马里乌波尔市被杀。乌克兰军队开始打击入侵者。成千上万的人逃离了这个国家，包括乌克兰人和许多来这个国家工作、学习、度假的外国人。医院转移到地下以躲避袭击，试图保护最脆弱的人。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2920.png)
+2 **月** 27 **日，在马里乌波尔市医院的医疗车上，一名在住宅区遭到炮击时丧生的女孩的尸体。（美联社照片**/Evgeniy Maloletka**）**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2921.png)
+2 **月** 27 **日在哈尔科夫战斗后，一辆俄罗斯装甲运兵车在损坏和废弃的车辆中燃烧。（美联社照片**/Marienko Andrew**）**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2922.png)
+2 **月** 27 **日，非洲居民在利沃夫火车站内的站台等候。（美联社照片**/**伯纳特**·**阿曼格）**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2923.png)
+2 **月** 28 **日，在基辅，一个用作防空洞的地下室里，一名肿瘤患者在他母亲旁边休息。（美联社照片**/Emilio Morenatti**）**
 
-GFASHION品牌并不遵循时尚日历，而是每月推出新的胶囊系列，每件都比前一件更好。
+\_\_\_
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2916.png)
+**随着数以千计的武器分发给几天前还是教师、工程师或看门人的人，乌克兰的文职志愿军不断壮大。一些志愿者在战斗开始几天后死亡。志愿者开始分发食物、尿布、医疗用品等。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2924.png)
+3 **月** 1 **日，停尸房的工作人员在布罗瓦里的一家医院查看一名被杀害的乌克兰领土防御部队志愿者的尸体。（美联社照片**/Efrem Lukatsky**）**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2925.png)
+3 **月** 2 **日，乌克兰总统弗拉基米尔**·**泽连斯基出现在利沃夫的电视上时，乌克兰志愿者对捐赠的食物进行分类。**
 
-每件作品都是一种声明，是对设计师和制作人的原创性和工艺的证明。这些衣服反映了设计师的个性，也反映了他们在一个不断发展的世界中改变现状的决心。
+**（美联社照片**/Bernat Armangue**）**
 
-这个无与伦比的创意团队来自世界各地，帮助消费者通过他们所穿的衣服和所创造的形象充分表达自己。该品牌计划继续增加这一队伍，确保创造力和质量。
+[https://apnews.com/article/russia-ukraine-putin-zelenskyy-europe-5095691ab6a2c0b12874aa4fa30e23cf](https://apnews.com/article/russia-ukraine-putin-zelenskyy-europe-5095691ab6a2c0b12874aa4fa30e23cf)
 
-与许多时尚品牌不同的是，GFASHION并没有停留在为顾客补充最喜欢的作品上。通过其沉浸式数字平台，该品牌的客户可以与设计师和创作者进行一对一的互动。
+**采集/撰稿：米拉雅
+审阅/天赐良闻
+上传/CharlieNZ查理**
 
-每件作品都有一个故事，从构思到采购和制造，可以窥见创作过程。该品牌还策划了一系列的配件，以帮助每个客户找到表达他们独特风格的东西。
+推出问题，敲出真相，爆料在路上！
 
-无论你是摇滚明星、艺人还是单纯的时尚达人，在GFASHION都有适合你的东西。
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：
 
-可持续发展对GFASHION团队来说非常重要，他们一直在思考未来。其最终目标是建立一个设计师和工匠的大联盟，确保品牌在每一次创新中保持领先。
+[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)
 
-对其客户来说，这意味着比其他地方有更多的选择，并能获得市场上最好的作品。同时，与其他品牌相比，他们能以更亲民的价格获得最前沿的款式。
+【Gnews Top News New Zealand】盖特账号：[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)
 
-GFASHION仍然致力于在未来的许多年里为其客户提供难以找到的奢侈品。
+【新西兰Gnews】盖特账号：[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)
 
-该团队的目标是不断创新，决不允许其设计的质量下降。
+【玫瑰看新闻】盖特账号号：[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)
 
-尽管处于一个竞争激烈的空间，该品牌并不打算妥协其价值和原则。相反，它希望以其高质量的设计和对卓越的承诺而闻名。
-
-它还希望成为寻找独特服装来表达自己风格的客户的首选品牌。
-
-**素材：文舞**
-**素材链接：**[gq.co.za ][GFASHION is creating a name in the online luxury fashion business](https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0)
-
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
-
+ROSE NEWS推特账号：[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)
 
  
 
