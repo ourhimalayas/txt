@@ -2,35 +2,28 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2230513/)
+## 西媒头条 — 第196期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230570/)
 
-作者：香草山翻译部
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220325.001.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-25.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.03.25早 《NFSC新闻》](https://gettr.com/streaming/p11tqyza7b5)
-[2022.03.25早《NFSC新闻访谈》](https://gettr.com/streaming/p11to3zb200)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
+发稿：信心的选择
 
 **更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+
+
+
+
 
  
 

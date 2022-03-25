@@ -2,24 +2,35 @@
 ---
 
 
-## 美国房产销售连续四个月下降
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2230465/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2230513/)
 
-编译：文宝
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-143.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
 
-**美国2 月份房屋销售量（已经签合同但还没有交割的房屋量）比 1 月份下降 4.1%。这是销售的连续第四个月下降，与 2021 年 2 月相比，销售下降了 5.4%，这是房地产市场最繁忙季节的一个严峻的信号。现在，新抵押贷款的月供中位数在典型消费者收入中所占的份额要大得多， 与 1 月份相比，2 月份它上涨了 8.3%。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-25.png)
 
-**由于这个数字是基于 2 月份签订的合同，当时抵押贷款利率真正开始起飞，它是市场对新利率环境反应的有力指标，尤其是在进入关键的春季时。**
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.03.25早 《NFSC新闻》](https://gettr.com/streaming/p11tqyza7b5)
+[2022.03.25早《NFSC新闻访谈》](https://gettr.com/streaming/p11to3zb200)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-原文链接：[https://www.cnbc.com/2022/03/25/home-sales-fall-in-february-ahead-of-key-spring-selling-season.html](https://www.cnbc.com/2022/03/25/home-sales-fall-in-february-ahead-of-key-spring-selling-season.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-14.png)DISCORD
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-13.png)GETTR
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
 
  
 
