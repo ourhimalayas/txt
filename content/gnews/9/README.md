@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥讲修自行车的故事（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225381/)
+## 今年是人类有史以来最黑暗的一年（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225489/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-30_8-40一5.png)
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-00_9-10二1.png)
 *发布：陶子*
 
 更多资讯，请关注：

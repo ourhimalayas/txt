@@ -15,50 +15,50 @@
 
 ---
 
-### [我们不可能永远做得完美 但我们一定尽量的做到最好（二）](/content/gnews/1/README.md)
+### [秘翻在线：乌克兰副总理发布消息俄乌首次交换战俘](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄乌战争对中国人的危害以及结果的爆料（二）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [我们不可能永远做得完美 但我们一定尽量的做到最好（一）](/content/gnews/2/README.md)
+### [不是我不明白，只是这个世界变化快](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [东航空难：中国民航局称黑匣子严重损坏](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [俄乌战争对中国人的危害以及结果的爆料（一）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [这场前线的救援行动是一个人格、道德、人性的考验场（三）](/content/gnews/3/README.md)
+### [【 蓝枫法律 】 新中国联邦未来的身心障碍者法律](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [今年是人类有史以来最黑暗的一年（二）](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [3/23/2022 文贵直播：中共宁可通过制造地震毁掉台湾，也不让台湾成为永不沉没的航空母舰；习近平早在2007年就有意要拿下台湾](/content/gnews/4/README.md)
+### [一群乌克兰工程师自发组成IT大军，他们的目标是要「俄罗斯回到石器时代」](/content/gnews/8/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [今年是人类有史以来最黑暗的一年（一）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [3/23/2022 文贵直播：许家印表现得像精神病只因身上安着监控器；香港掩盖疫情，死5人只报1人，深圳仅一个区就死了1700人，中共国疫情失控造成的死亡超乎想象](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [这场前线的救援行动是一个人格、道德、人性的考验场（二）](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
+### [习近平的性格带来中国灾难](/content/gnews/11/README.md)
+ ` 纽约香草山MOS02`
 
-### [拜登總統的演講，強調了美國將反對獨裁者和想要當皇帝的人對烏克蘭人民的侵略，世界人民團結一心。](/content/gnews/6/README.md)
+### [【 蓝枫法律 】 加拿大身心障碍者权利相关法律概述](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [拜登總統的演講，強調了美國將反對獨裁者和想要當皇帝的人對烏克蘭人民的侵略，世界人民團結一心。](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [这场前线的救援行动是一个人格、道德、人性的考验场（一）](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [美联储主席鲍威尔认为加密货币需要新的监管](/content/gnews/8/README.md)
+### [美联储主席鲍威尔认为加密货币需要新的监管](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [七哥讲修自行车的故事（五）](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [3/24/2022 文贵盖特：中共跟世界脱钩是中国人的福气，但我们一定要活到脱钩后美好时代的到来；中共是俄乌战争的元凶已经成为世界主要话题，中国人醒来吧，不要再给共产党背黑锅了](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
-
-### [救援一线视频实拍](/content/gnews/11/README.md)
- ` 加拿大温哥华英里农场`
-
-### [乌克兰又传捷报！传俄军登陆舰2毁2伤](/content/gnews/12/README.md)
- ` 蓝莲花农场`
-
-### [北约领导人联合声明：不以任何方式支持俄罗斯](/content/gnews/13/README.md)
+### [北约领导人联合声明：不以任何方式支持俄罗斯](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵先生2022年3月24日盖特视频（9分36秒）全文字版](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -81,26 +81,26 @@
 ### [美将增加对欧天然气供应以解决欧洲对俄气依赖](/content/gnews/22/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/23/README.md)
+### [郭文贵精品视频-俄罗斯普京的心腹中将莫德维切夫被干掉](/content/gnews/23/README.md)
+ ` cindy`
+
+### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [被停职的希腊医疗卫生工作者的绝食活动](/content/gnews/24/README.md)
+### [被停职的希腊医疗卫生工作者的绝食活动](/content/gnews/25/README.md)
  ` xiaobaige`
 
-### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/25/README.md)
+### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/26/README.md)
  ` 秘密翻译组-原创组`
 
-### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/26/README.md)
+### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/27/README.md)
+### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [被全世界围剿的瑞士信贷](/content/gnews/28/README.md)
+### [被全世界围剿的瑞士信贷](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
-
-### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [预防新冠 消毒空气](/content/gnews/30/README.md)
  ` PureLotusHeart(莲心不染 or Dawn）`

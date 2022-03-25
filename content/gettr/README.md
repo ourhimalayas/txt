@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 2:01 AM (UTC)`
+
+3/23/2022 Miles Guo: The CCP would rather destroy Taiwan by creating earthquakes than make it an unsinkable aircraft carrier. Xi Jinping had the ambition to take Taiwan as early as 2007. The Russia-Ukraine war has made Xi believe that he must launch a quicker and fiercer attack on Taiwan at all costs.<br/><br/>3/23/2022 文贵直播：中共宁可通过制造地震毁掉台湾，也不让台湾成为永不沉没的航空母舰；习近平早在2007年就有意要拿下台湾；俄乌之战让习认为要更快、更狠且不惜一切代价地打台湾<br/><br/><br/>
+![img](https://media.gettr.com/group27/getter/2022/03/25/02/44af4d59-b546-fa84-e5b4-0b3a56735f19/out.jpg)
+
+---
+
 `@miles 3/25/2022 1:25 AM (UTC)`
 
 2022.03.24 晚《新中国联邦新闻访谈》我们理解不了的灾难；邪恶一分钟没休息；出境新闻
@@ -152,14 +159,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
 3/23/2022 Miles Guo: Learning from Russia, what kind of disasters will be brought to the Chinese people when the worldwide exclusion of Chinese takes place? The US is preparing the secondary sanctions against the CCP, whose telecom companies, media, banks, food agencies, and spies such as Bruno Wu and Weijian Shan will all be sanctioned. Although the overseas Chinese will encounter crises, people in Communist China will be so miserable that you can't imagine!<br/><br/><br/>3/23/2022 文贵直播：以俄罗斯为前车之鉴，全球排华时会给华人带来什么样的灾难？美国在准备给中共的二级制裁，中共的通信企业、媒体、银行、粮食机构以及吴征和单伟建等特务都逃不掉；海外华人虽然会遇到危机，但国内却会惨到你无法想像！<br/><br/>
 ![img](https://media.gettr.com/group34/getter/2022/03/24/16/8acdcf04-3183-2d49-992c-c3420abedad9/out.jpg)
-
----
-
-`@miles 3/24/2022 2:49 PM (UTC)`
-
-大实话今天搬到@yezhaoying
-> `@yezhaoying 3/24/2022 2:44 PM (UTC)`<br/>叶钊颖-郝海东-飞飞 《大实话·第十五场》： “新中国联邦除恶扬善，灭共之战一定会赢！”   2022-03-24
-![img](https://media.gettr.com/group13/origin/2022/03/24/14/7820e217-8090-c568-430f-190de1275e09/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

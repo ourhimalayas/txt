@@ -2,11 +2,11 @@
 ---
 
 
-## 我们不可能永远做得完美 但我们一定尽量的做到最好（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225442/)
+## 俄乌战争对中国人的危害以及结果的爆料（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225601/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-00_9-10一1-1.png)
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-10_9-20一2-1.png)
 *发布：陶子*
 
 更多资讯，请关注：

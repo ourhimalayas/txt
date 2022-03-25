@@ -2,11 +2,11 @@
 ---
 
 
-## 这场前线的救援行动是一个人格、道德、人性的考验场（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225389/)
+## 今年是人类有史以来最黑暗的一年（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225494/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-40_8-50一1.png)
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-00_9-10二2.png)
 *发布：陶子*
 
 更多资讯，请关注：
