@@ -2,16 +2,20 @@
 ---
 
 
-## 天灭中共 美国司法小试锋芒全球灭共箭在弦上
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2230805/)
+## 加拿大增强对俄罗斯航班的禁飞令
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2230949/)
 
-文贵大直播20220325
+加拿大温哥华扬帆农场    平民正道
 
-撰稿：文仁（功成）大卫观星人（DC）伞兵（香草山）
+据【CTV新闻】3月21日报道，俄罗斯航空公司一架商用客机近日以人道主义救援为由，规避了进入加拿大领空的禁令。对此联邦政府已进一步收紧对该国的禁飞令。
 
-美工：长颈鹿（雅典娜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-15.png)
-*发布：Theodosia*
+上月底，俄航 111 航班在谎称其为人道主义救援后，被获准穿越加拿大领空，并从迈阿密飞往莫斯科。由于民航局没有实际权力阻止俄罗斯飞机进入加拿大领空，因此，所有违规行为都会报告给加拿大交通部，并与警方和军方合作做出回应。
+
+据悉，在实施禁飞令之前，每周约有 140 架俄罗斯航班穿越加拿大领空。同时，加拿大海域对所有俄罗斯拥有或悬挂俄罗斯国旗的船只关闭。目前，交通部正在对该事件进行调查并表示：禁飞令不包括人道主义航班的任何豁免，这是对俄罗斯入侵乌克兰进行制裁的一部分。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

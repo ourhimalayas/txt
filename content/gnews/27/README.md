@@ -2,24 +2,20 @@
 ---
 
 
-## 2022年3月25日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230352/)
+## 视频|这世界有那么多人，多幸运，我还有我们
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2230418/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+制作：澳喜要闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0611.jpg)
+审核/编辑/发稿：谐趣园
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

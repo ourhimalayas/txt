@@ -2,88 +2,32 @@
 ---
 
 
-## 安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2229503/)
+## 俄罗斯第49军司令列赞采夫中将被击毙
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2229496/)
 
-**Jessica Wachter
-杰西卡·沃赫特**
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-As you’ve heard today the Commission is considering proposing rules
-正如你今天所听到的，委员会正在考虑提出的规则
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-to enhance and standardized climate disclosure
-来加强和规范气候信息披露
+俄罗斯在乌克兰战争中又一位将军被乌克兰武装力量击毙，48岁的雅科夫·列赞采夫（Yakov Rezantsev）中将在乌克兰武装部队的一次攻击中丧生，列赞采夫曾任南方军区第49合成军军长。一名军人说，雅科夫·列赞采夫中将在入侵开始的第四天曾告诉他们，战争很快就会结束。
 
-These proposals would require public companies
-这些提议将要求上市公司
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-25_22-41-25.png)
 
-to provide in their registration statements
-在他们的注册声明
+俄方迄今尚未确认列赞采夫死亡，分析人士认为，俄罗斯指挥官现在的伤亡率比二战以来的任何武装冲突都要高。
 
-and annual reports certain information on risks
-和年度报告中提供有关风险的某些信息
+专家们表示，俄罗斯高级军官倒下的原因可能有一个目录。此前有报道称俄罗斯军队的装备和电子设备不可靠，以及下属害怕做出快速决定。俄罗斯军队没有主动性，没有士官团，下级没有主动感，他们等着被告知该怎么做。而乌克兰人的狙击手非常非常好，当俄罗斯指挥系统崩溃时，他们能够瞄准关键人物。
 
-that climate poses to short, medium and long term financial performance
-关于气候对短期、中期和长期财务业绩的影响
+西方消息人士称，许多俄罗斯将领被杀是因为他们被推到比平时更靠近前线的地方，以提高俄罗斯士兵的士气，或者需要他们的资历才能让部队前进。一位不愿透露姓名的外交官说，俄罗斯将军们必须奋力到前线才能完成他们的命令。俄罗斯在入侵仅四天，第一个将军就去世了，而在此后的短短三周内，大量俄罗斯军事领导人在战斗中丧生。
 
-And on steps the company plans to take to mitigate this risk
-以及公司计划采取的措施来减轻这种风险
+俄罗斯还在采用斯大林第二次世界大战的“行刑队”，造成俄罗斯军队士气低落。据报道，普京和克里姆林宫在他们自己的军队之后派出行刑队，下令杀死任何试图逃跑的俄罗斯人。乌克兰安全部门声称，战俘告诉他们俄罗斯可怕的战术，俄罗斯“行刑队的枪把他们自己的士兵当作目标瞄准了。
 
-such as an internal carbon price if there is one
-例如内部碳价格，如果有的话
+有报道称，车臣部队被派往试图阻止俄罗斯士兵逃跑。根据基辅发布的俄罗斯战俘的视频显示，俄罗斯战俘在镜头前说，他们宁愿选择退出而不是继续战斗。
 
-scenario analysis if the company does it
-如果公司情景分析这样做的话
+参考数据：
 
-transition plans if the company has them
-如果公司有过渡计划
+[Russian general who bragged ‘war would be over quickly’ killed in Ukraine strike](https://www.mirror.co.uk/news/world-news/breaking-russian-general-killed-strike-26554643)
 
-or targets if the company has set them
-或公司设定的目标
-
-Public companies would also disclose governance around climate issues
-除了风险披露和公司应对措施，上市公司
-
-Besides the disclosures on risk and on the company’s response
-还将披露围绕气候问题的治理
-
-the proposed rules would require disclosure on current financial impacts
-拟议规则将要求披露目前因气候相关事件和过渡活动
-
-and on financial expenditures due to climate related events and transition activities
-引起的财务影响和财政支出
-
-Finally, the rule would require disclosure about the carbon footprint
-最后，该规则将要求通过范围一和范围二的
-
-through sculpt one and two GHG emissions and scope three
-温室气体排放和范围三的碳足迹披露
-
-if scope three emissions are material or used
-如果范围三排放是实质性的或被用作
-
-as part of the climate related target or goal
-气候相关目标或目标的一部分
-
-* * *
-
-Date:03/23/2022
-原视频标题: SEC expected to introduce climate disclosure rules, forcing publicly traded companies to report on emissions and “climate change” risks
-安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
-原视频日期：2022/03/21
-原视频链接[**https://twitter.com/disclosetv/status/1505929622835417088?s=24**](https://twitter.com/disclosetv/status/1505929622835417088?s=24)
-任务编号：KE460（4060）
-视频时间段 : 0:00-1:07
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

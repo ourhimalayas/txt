@@ -2,44 +2,33 @@
 ---
 
 
-## 波兰宣布驱逐45名俄罗斯间谍
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230779/)
+## 欧洲不可能与俄航天局合作
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2230939/)
 
-翻译：wenwu
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/800px-ISS-36_HTV-4_berthing_2.jpg)
 
-波兰政府发言人米哈乌·德沃奇克（Michał Dworczyk）周三（23日）在接受波兰电视台采访时说：“在波兰境内的俄罗斯间谍活动正变得越来越激烈”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3001-edited.png)图片来源：elamerican.com
+图片来源：维基百科
 
-波兰政府发言人斯坦尼斯瓦夫·扎林（Stanisław Żaryn）周三宣布，外交部已经传唤了俄罗斯大使，并表示将把45名俄罗斯外交官从波兰驱逐出去。
+俄罗斯航天局局长周四表示，欧洲通过对其机构实施制裁破坏了合作，旨在发射欧洲卫星的火箭现在将用于俄罗斯公司或对莫斯科友好的国家。
 
-扎林在华沙举行的新闻发布会上说，特工部门已经准备了一份“来自俄罗斯外交官”的45人名单，这些人将被送交外交部驱逐，理由是他们“为俄罗斯情报部门工作”。
+俄航天局负责人德米特里·罗戈津在接受中共国电视采访时表示，这将适用于大约 10 枚火箭。
 
-政府发言人说，波兰外交部还召见了俄罗斯驻华沙大使谢尔盖·安德烈耶夫（Sergey Andreiev）；在华沙逮捕了该市注册办公室的一名雇员，罪名是为俄罗斯从事间谍活动。
+罗戈津说：“此时此刻，在欧洲航天局和整个欧盟对（俄罗斯）在乌克兰进行的特别军事行动采取了疯狂的立场并对俄罗斯航天局实施制裁之后，我们认为不可能进一步合作。”
 
-根据一份官方声明，这名身份未被披露的男子“提供了可能损害波兰共和国的新闻和信息”，并将应检察官的要求被还押至少三个月。
+自俄罗斯于 2 月 24 日入侵乌克兰并受到国际制裁浪潮的打击以来，太空裂痕产生了切实的影响。
 
-政府发言人德沃奇克周三在接受波兰电视台采访时说：“有时我们没有意识到看似微不足道的信息对情报工作有多么重要，例如，在当地机构记录的信息；在登记处，有很多关于获得波兰公民身份或居留证后改名的人的信息，而间谍可以利用这一点。”
+欧洲航天局上周表示，将暂停与俄航天局在 ExoMars 漫游者任务上的合作，寻找火星表面的生命迹象。
 
-3月1日，俄罗斯驻波兰大使提到了两国关系的“恶化”，他说“两国关系从来都不是一帆风顺的”，但在他说由于入侵乌克兰而在波兰爆发的“歇斯底里”（译者注：活跃的俄罗斯间谍活动）之后，两国关系“变得更加糟糕”。
+周一，英国卫星企业 OneWeb 表示，由于莫斯科在最后一刻提出要求，该公司取消了 3 月 4 日从位于哈萨克斯坦的俄罗斯拜科努尔航天发射场发射 36 颗卫星的计划，已与埃隆·马斯克 (Elon Musk) 的 SpaceX 签订了将其卫星送入轨道的合同。
 
-**新闻来源：**[elamerican.com] [Poland Announces Expulsion of 45 Russian Diplomats for Espionage Activities](https://elamerican.com/poland-announces-expulsion-45-russian-diplomats-espionage-activities/) |发布时间：2022年03月23日
+罗戈津此前曾表示，对俄罗斯实施的制裁可能会“破坏”美俄在国际空间站上的伙伴关系，两名俄罗斯人和一名美国人将于 3 月 30 日从该空间站返回地球。
 
-* * *
+🔗 [https://www.reuters.com/business/aerospace-defense/russian-space-chief-says-rocket-launches-europe-will-be-replaced-2022-03-24/](https://www.reuters.com/business/aerospace-defense/russian-space-chief-says-rocket-launches-europe-will-be-replaced-2022-03-24/)
 
-审核：文乐
-校对：花羽
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+编辑发表： Shuizhuyu
 
  
 

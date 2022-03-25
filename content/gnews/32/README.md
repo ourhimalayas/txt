@@ -2,26 +2,36 @@
 ---
 
 
-## 俄乌战局最新消息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229729/)
+## 加拿大禁止其士兵加入乌克兰外国军团
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
 
-作者：蓝莲花农场 文斌
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截止当地时间3月23日，俄军试图向基辅西北约70公里处的特里耶夫斯克推进，但被击退，也没有在基辅东郊及周边进行新的推进，目前继续用迫击炮和火箭弹轰炸该市。但乌总参谋部报告，乌军从俄罗斯最前沿阵地西侧发起反击，收复被俄军占领的领土，包括解放了马卡里夫镇。另据当地官员称，乌军在伊尔平、布卡和霍斯托梅尔包围了俄军，呈现出包围之势。伊尔平市长声称，乌军已夺回了该城市的80%。但外界尚无法证实这些信息。在切尔尼戈夫和苏梅，战斗一直在持续，但没有发生实质性的变化。据总参谋部报告，俄罗斯人正在继续挖掘工事，布置雷区，表明俄罗斯人在这些地区已经转入防御状态，但对切尔尼戈夫的炮击和空袭彻夜不停。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-上午11.21.30.png)
-在过去24小时里，哈尔科夫遭到了44次坦克、榴弹炮和迫击炮的轰击，140次多管火箭炮的轰击，包括巡航导弹袭击。俄军努力向卢甘斯克和顿涅茨克州推进，昨天还被发现再次使用磷燃烧弹。马里乌波尔的巷战仍在继续。乌克兰海军报告称，俄军鳄鱼级两栖登陆舰在别尔江斯克港被摧毁。在赫尔松和米科拉耶夫交界处发生激战。乌军再一次击落了一架俄机和巡航导弹。
+作者：加拿大温哥华扬帆农场-活力人生
 
-尽管最近几天对奥德萨持续炮击，但由于黑海舰队继续参与马里乌波尔战役，降低了近期在奥德萨附近进行两栖登陆的可能性。乌克兰军事情报称，俄军正考虑封锁刻赤大桥，以防止俄罗斯人离开克里米亚，估计这一行动对俄军和政府人员家属会产生恐慌反应。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
-更多俄乌局势消息，请持续关注本节目的后续报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
 
-编辑：宁文静
-总编：静言
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
+
+加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
+
+艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
+
+加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
+
+新闻链接：
+
+[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
+
+* * *
+
+编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
