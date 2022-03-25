@@ -2,10 +2,18 @@
 ---
 
 
-## 3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2225253/)
+## 这场前线的救援行动是一个人格、道德、人性的考验场（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225423/)
 
-秘密翻译组-北美组
+#### PPT制作: WinterGuo ；开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-40_8-50一3.png)
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

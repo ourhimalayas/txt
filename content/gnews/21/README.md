@@ -2,34 +2,28 @@
 ---
 
 
-## 被停职的希腊医疗卫生工作者的绝食活动
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2224763/)
+## 中共运-8反潜机在南海坠毁
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2224920/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+编译：波士顿五月花—-思澈
 
-自去年九月起，希腊约有7500名医疗卫生工作者被迫终止工作、无薪水，这种状况已经持续了数月。意大利政府也在近期对医疗卫生工作人员的新冠疫苗强制令延长至2022年12月31日。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-24-alle-18.39.41.png)图片来源：eventiavversinews.it
-如果你们去希腊或是去意大利度假， 不要忘记那儿有成千上万的家庭正在挨饿并靠借钱生活。
+经证实中共运-8反潜机在南海海域坠毁，至少有10名军人在执行任务时遇难，大部分是校、尉级军官。
 
-已经崩溃的希腊国家医疗卫生体系现在少了7500人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/005843FE-525C-4D5F-B342-8DFA59F6A0DC.jpeg)
 
-他们中许多人已经在卫生部门前露营了几个月。
+三月初世界聚焦俄罗斯入侵乌克兰期间中共一架运-8反潜战斗机坠落南海。
 
-到目前为止，还没有一家媒体包括希腊突出报道这一现象。
+三月22日，微博用户「张超微博」发布一份共10人的遇难名单，并请大家记住「**黑色三月**」。「张超微博」虽未写这些人是在运-8反潜机事故中遇难，但名单中10人都是海、空军飞行员，全部来自中共92697部队，该部队是海军航空兵部队，配置运-8反潜战机，而且这10人都是在3月1日遭遇不幸，恐怕不是巧合。
 
-以“优先尊重人权”为自居的民主欧洲——雅典发生这样的抗议活动。
+坠机之初，中共在南海邻近海域发布禁航区从事搜救、军事训练遮盖消息，但一位长期关注南海军事动态的越南军事记者于3月6日在推特曝光，3月1日下午1架中共运-8反潜机在海南岛三亚市西南海域失联。台湾国防部稍晚也证实这一消息。
 
-当这些被停职的医疗卫生工作者看到政府如此冷淡地拒绝了他们的对话请求后，他们当中的五人同时开始绝食。
+中共官方至今未见发布军机坠毁消息及相关回应。
 
-简评：作为医疗卫生工作者， 他们深知绝食对他们的身体健康意味着什么，会付出多大的代价的。但是他们看到“民主正在消亡，宪法正在被抛弃”。这促使这些来自全希腊的被迫停职的医疗工作者，组织起来，以绝食来抗议新冠疫苗暴政。
+素材来源：[https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659](https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659)
+
+*发布：思澈*
 
 
-
-参考链接：
-
-[https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit](https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit)
-
-编辑、上传：Xiao beige
 
  
 

@@ -2,20 +2,35 @@
 ---
 
 
-## 樱花时政┃泽伦斯基总统牌枕头？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2224593/)
+## 被停职的希腊医疗卫生工作者的绝食活动
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2224763/)
 
-撰稿：东京樱花团/ haruka春香
+#### 编译 意大利达芬奇农场 小白鸽
 
-全世界订单纷至沓来，收益捐献给支援团体。乌克兰抵抗俄罗斯入侵的象征——泽伦斯基总统在意想不到的地方也受到了人们的关注。面带微笑的泽伦斯基总统的脸印得与实物差不多大小的枕头。简单大胆的设计成为话题后，来自全世界的订单纷至沓来。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-49.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220324-00010030-abemav-000-1-view.jpg?exp=10800)
-设计该枕头的一名捷克设计师表示：“‘泽伦斯基枕头’卖出了2000多个，现在也在持续增加”，“枕头收入被捐赠给了支援乌克兰的慈善团体。”
+自去年九月起，希腊约有7500名医疗卫生工作者被迫终止工作、无薪水，这种状况已经持续了数月。意大利政府也在近期对医疗卫生工作人员的新冠疫苗强制令延长至2022年12月31日。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-24-alle-18.39.41.png)图片来源：eventiavversinews.it
+如果你们去希腊或是去意大利度假， 不要忘记那儿有成千上万的家庭正在挨饿并靠借钱生活。
 
-信息来源：[ゼレンスキー大統領が枕に!? 世界中から注文が殺到、収益は支援団体に寄付](https://news.yahoo.co.jp/articles/a48403fd184dd39d6d24a03937d83127f5acb656)
+已经崩溃的希腊国家医疗卫生体系现在少了7500人。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+他们中许多人已经在卫生部门前露营了几个月。
+
+到目前为止，还没有一家媒体包括希腊突出报道这一现象。
+
+以“优先尊重人权”为自居的民主欧洲——雅典发生这样的抗议活动。
+
+当这些被停职的医疗卫生工作者看到政府如此冷淡地拒绝了他们的对话请求后，他们当中的五人同时开始绝食。
+
+简评：作为医疗卫生工作者， 他们深知绝食对他们的身体健康意味着什么，会付出多大的代价的。但是他们看到“民主正在消亡，宪法正在被抛弃”。这促使这些来自全希腊的被迫停职的医疗工作者，组织起来，以绝食来抗议新冠疫苗暴政。
+
+
+
+参考链接：
+
+[https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit](https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit)
+
+编辑、上传：Xiao beige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

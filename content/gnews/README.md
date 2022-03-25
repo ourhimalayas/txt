@@ -15,91 +15,91 @@
 
 ---
 
-### [北约领导人联合声明：不以任何方式支持俄罗斯](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [西方警告普京，他将为入侵乌克兰付出惨重代价](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [郭文贵先生2022年3月24日盖特视频（9分36秒）全文字版](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [被基因疫苗感染的细胞将被识别为威胁，没有例外！](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [字里画外有乾坤](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰总统在日本国会线上演讲 呼吁对俄继续制裁](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄大买黄金躲制裁？美财政部禁止与俄国黄金交易](/content/gnews/9/README.md)
- ` 蓝莲花农场`
-
-### [联大通过决议要求俄罗斯停战并保护平民 中共弃权](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [桑切斯呼吁中共国在乌克兰战争中发挥“建设性”作用](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|喜联储主席谈加密货币在俄乌战争中的角色](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [有声|国际反贪组织已锁定普京盟友170亿美元资产](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [俄寡头阿布的两艘总价值10亿美元超级游艇正在逃避制裁](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2018年8月5日郭文贵先生直播全文字版](/content/gnews/15/README.md)
- ` 温哥华扬帆农场《文贵大直播》全文听写组`
-
-### [马斯克的一句话对共产党内部极大震撼](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共运-8反潜机在南海坠毁](/content/gnews/17/README.md)
- ` mayflowertranslate`
-
-### [七哥讲修自行车的故事（一）](/content/gnews/18/README.md)
+### [我们不可能永远做得完美 但我们一定尽量的做到最好（二）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [美将增加对欧天然气供应以解决欧洲对俄气依赖](/content/gnews/19/README.md)
- ` 波士顿五月花农场金融部`
+### [我们不可能永远做得完美 但我们一定尽量的做到最好（一）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
 
-### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/20/README.md)
- ` 秘密翻译组-原创组`
+### [这场前线的救援行动是一个人格、道德、人性的考验场（三）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
 
-### [被停职的希腊医疗卫生工作者的绝食活动](/content/gnews/21/README.md)
- ` xiaobaige`
+### [3/23/2022 文贵直播：中共宁可通过制造地震毁掉台湾，也不让台湾成为永不沉没的航空母舰；习近平早在2007年就有意要拿下台湾](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
 
-### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/22/README.md)
- ` 秘密翻译组-原创组`
+### [这场前线的救援行动是一个人格、道德、人性的考验场（二）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [有声|美国司法部对五名中共特务采取法律行动](/content/gnews/23/README.md)
- ` MOSREC`
+### [拜登總統的演講，強調了美國將反對獨裁者和想要當皇帝的人對烏克蘭人民的侵略，世界人民團結一心。](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/24/README.md)
+### [这场前线的救援行动是一个人格、道德、人性的考验场（一）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [美联储主席鲍威尔认为加密货币需要新的监管](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥讲修自行车的故事（五）](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [3/24/2022 文贵盖特：中共跟世界脱钩是中国人的福气，但我们一定要活到脱钩后美好时代的到来；中共是俄乌战争的元凶已经成为世界主要话题，中国人醒来吧，不要再给共产党背黑锅了](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [救援一线视频实拍](/content/gnews/11/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [乌克兰又传捷报！传俄军登陆舰2毁2伤](/content/gnews/12/README.md)
+ ` 蓝莲花农场`
+
+### [北约领导人联合声明：不以任何方式支持俄罗斯](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义](/content/gnews/14/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵先生2022年3月24日盖特视频（9分36秒）全文字版](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/25/README.md)
+### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [被全世界围剿的瑞士信贷](/content/gnews/26/README.md)
- ` 秘密翻译组-原创组`
+### [乌克兰总统在日本国会线上演讲 呼吁对俄继续制裁](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](/content/gnews/27/README.md)
+### [联大通过决议要求俄罗斯停战并保护平民 中共弃权](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [俄寡头阿布的两艘总价值10亿美元超级游艇正在逃避制裁](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
+### [泪尽](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [2022年3月24日，全球中共病毒疫情情况汇总](/content/gnews/29/README.md)
+### [中共运-8反潜机在南海坠毁](/content/gnews/21/README.md)
+ ` mayflowertranslate`
+
+### [美将增加对欧天然气供应以解决欧洲对俄气依赖](/content/gnews/22/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/23/README.md)
+ ` 秘密翻译组-原创组`
+
+### [被停职的希腊医疗卫生工作者的绝食活动](/content/gnews/24/README.md)
+ ` xiaobaige`
+
+### [普京将自己焊死在“人类公敌”、“世界战犯”、“独夫民贼”的历史耻辱柱上](/content/gnews/25/README.md)
+ ` 秘密翻译组-原创组`
+
+### [樱花时政┃泽伦斯基总统牌枕头？](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [被全世界围剿的瑞士信贷](/content/gnews/28/README.md)
+ ` 秘密翻译组-原创组`
+
+### [北约估计有多达15000名俄罗斯士兵在乌克兰被杀害（一）](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [预防新冠 消毒空气](/content/gnews/30/README.md)

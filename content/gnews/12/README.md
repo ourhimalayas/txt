@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|喜联储主席谈加密货币在俄乌战争中的角色
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2225097/)
+## 乌克兰又传捷报！传俄军登陆舰2毁2伤
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2225299/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月18日，喜联储主席威廉·杰伊先生接受彭博社记者专访，谈到了加密货币及其在俄乌战争中扮演的角色。众所周知，在土耳其里拉大幅贬值后，里拉在加密货币稳定币市场中的份额从0.3%跃升至26%。而在俄罗斯被严厉制裁后，以卢布计价的Tether稳定币的交易量正在大量增加。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-13.jpg)
-加密货币的发展对现有的金融秩序构成了风险，并为非法活动和逃避制裁提供了途径。威廉先生表示，如果监管机构密切合作，为加密货币运营商提供明确和协调的指导方针，可以轻松解决加密货币被作为非法活动的媒介。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWGETTR.jpg)
+乌克兰又传捷报！乌克兰海军24日稍早表示，乌国南部、正被俄军占领亚速海畔的别尔江斯克（Berdyansk）港内，一艘俄军黑海舰队大型登陆舰「奥尔斯克号」（Orsk）已被摧毁，别尔江斯克港爆炸火光、黑烟直窜的影片也在网路上疯传。
 
-加密货币平台对客户进行详尽的客户认证将不可避免，威廉先生更表示：已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续存在并扩张。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpBqN26U.jpg)图片来源：乌克兰海军脸书
 
+乌克兰情报部队则指出，乌军对别尔江斯克港口袭击，俄军共有两艘登陆舰被毁，「奥尔斯克号」全毁、「萨托夫号」（Saratov）舰体受损严重，俄军被迫直接炸沉，另两艘登陆舰「库尼科夫号」（Kunikov）和「新切尔卡斯克号」（Novocherkassk）受不等程度损伤，被迫离开港口，舰上约有200至300人。
 
+面对如此疯传的消息，俄罗斯尚未证实相关消息，若属实势必重挫俄军士气。
 
-文字版原文：[喜联储主席谈加密货币在俄乌战争中的角色](https://gnews.org/zh-hans/2220723/)
+简评：一鼓作气，再而衰，三而竭！普大帝一鼓作气的攻乌计划因乌克兰的顽强抵抗而挫败；如今乌克兰频传捷报，俄军士气渐衰；中共作为幕后元凶被北约点名，若证实助俄侵乌后果严重自己想，俄罗斯穷途末路临“竭”不远！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+俄军登陆舰2毁2伤，陆军没占得优势，海军又完蛋了，普大帝赶快一口老血涌上心头嘎嘣吧！你若完蛋，是对全世界最大的贡献！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3870583](https://news.ltn.com.tw/news/world/breakingnews/3870583)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 
