@@ -2,36 +2,18 @@
 ---
 
 
-## 俄愿接受比特币作油气支付方式 美欧联手打击规避制裁
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2226910/)
+## 躺平币面世要推迟会有大升级（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2227012/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-下午2.28.54.png)图片来源：互联网
-据CNBC周四（3月24日）报道，俄罗斯杜马能源委员会主席帕维尔 扎瓦尔尼(Pavel Zavalny)在周四的新闻发布会上表示愿意用比特币作为其石油和天然气出口的支付方式。
+#### PPT制作: 小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11：20-11：30-02.jpeg)
+*发布：陶子*
 
-在周四举行的视频新闻发布会上，俄罗斯杜马能源委员会主席扎瓦尔尼在翻译后的讲话中表示，当涉及到中国（中共国）或土耳其等“友好”国家时，俄罗斯愿意在支付方式上更加灵活。[1]
-
-扎瓦尔尼在翻译评论中说：“长期以来，我们一直在向中国（中共国）提议转用卢布和人民币的本国货币结算。”“在土耳其，将是里拉和卢布。”“你也可以交易比特币，”他说。[1]
-
-尽管俄罗斯愿意接受比特币作为支付其油气支付方式，但美国和欧盟将联合打击可能非法利用数字货币规避欧美对俄罗斯的制裁
-
-美国拜登总统3月9日签署《关于确保负责任地发展数字资产》的行政命令，该命令要求通过监管、监督、技术措施等，减轻滥用数字资产带来的非法金融和国家安全风险。数字资产也可用作规避美国和外国金融制裁制度以及其他工具和当局的工具。美国担任FATF主席同时，领导该组织制定并采用了第一个数字资产国际标准，其中包括制定数字资产的 AML/CFT 标准。
-
-3月24日，美国拜登总统和欧盟主席冯德莱恩联合声明，共同合作推进打击非法使用数字资产，包括在规避针对俄罗斯无端军事入侵乌克兰而实施的多边制裁方面的潜在滥用。按照金融行动特别工作组 (FATF) 的标准推进数字资产的反洗钱和打击恐怖主义融资 (AML/CFT)。【2】
-
-任何数字货币如比特币如果被利用于购买俄罗斯石油天然气支付上，规避美欧对俄罗斯的制裁，将被美欧联合采取行动措施，而郭先生直播爆料，94%的比特币在1.8%的人手里边控制着，中共和华尔街是背后绝对控制者，而中共正是俄侵乌背后金主，所以比特币必然消失，喜币腾飞。
-
-因此俄乌战争也是数字货币的一场战争，以喜币为代表的“良心币”与被邪恶利用的比特币之战。
-
-参考链接：
-
-【1】[随着西方制裁的加剧，俄罗斯正在考虑出售其石油和天然气以换取比特币](https://www.cnbc.com/2022/03/24/russia-might-take-bitcoin-as-payment-for-oil-and-gas-as-sanctions-rise.html)
-
-【2】[拜登总统和冯 德莱恩 主席 的联合声明](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
-
-* * *
-
-*编辑&发布：长岛开心*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

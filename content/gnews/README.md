@@ -15,98 +15,98 @@
 
 ---
 
-### [躺平币面世要推迟会有大升级（一）](/content/gnews/1/README.md)
+### [为什么灭共由北到南](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥回答习太阳之后中国的未来以及躺平币的进展（九）](/content/gnews/2/README.md)
+### [最终只有新中国联邦能帮中国人](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥回答习太阳之后中国的未来以及躺平币的进展（八）](/content/gnews/3/README.md)
+### [中共想在中东乱世把中东能源人民币化干掉美元](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [【Top News】朝鲜试射失败后发射“远程”弹道导弹](/content/gnews/4/README.md)
- ` topnews`
-
-### [七哥回答习太阳之后中国的未来以及躺平币的进展（七）](/content/gnews/5/README.md)
+### [中共在中东挑拨离间](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [视频|马斯克母亲声援乌克兰「脱敏-带海报」](/content/gnews/6/README.md)
- ` 爆料视频`
-
-### [七哥回答习太阳之后中国的未来以及躺平币的进展（六）](/content/gnews/7/README.md)
+### [躺平币面世要推迟会有大升级（四）](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [俄愿接受比特币作油气支付方式 美欧联手打击规避制裁](/content/gnews/8/README.md)
+### [2018年8月12日 郭文贵先生直播 全文字版](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
+
+### [躺平币面世要推迟会有大升级（三）](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [躺平币面世要推迟会有大升级（二）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [美国评估俄军袭乌导弹失败率最高达60%](/content/gnews/9/README.md)
  ` 波士顿五月花农场金融部`
 
-### [阿联酋支持俄罗斯承认叙利亚阿萨德地位](/content/gnews/9/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [七哥回答习太阳之后中国的未来以及躺平币的进展（五）](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [视频|斯汀歌曲声援乌克兰「脱敏」](/content/gnews/11/README.md)
+### [视频|马斯克母亲声援乌克兰「脱敏-带海报」](/content/gnews/10/README.md)
  ` 爆料视频`
 
-### [有声｜联大通过乌克兰人道问题决议](/content/gnews/12/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [俄愿接受比特币作油气支付方式 美欧联手打击规避制裁](/content/gnews/11/README.md)
+ ` 波士顿五月花农场金融部`
 
-### [视频|伟大的乌克兰女战士「脱敏」](/content/gnews/13/README.md)
+### [视频|斯汀歌曲声援乌克兰「脱敏」](/content/gnews/12/README.md)
  ` 爆料视频`
 
-### [有声｜美将制裁违反《不扩散法》的中俄朝实体和个人](/content/gnews/14/README.md)
+### [有声｜联大通过乌克兰人道问题决议](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [联合国大会通过改善乌克兰人道主义危机决议](/content/gnews/15/README.md)
+### [视频|伟大的乌克兰女战士「脱敏」](/content/gnews/14/README.md)
+ ` 爆料视频`
+
+### [有声｜美将制裁违反《不扩散法》的中俄朝实体和个人](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [联合国大会通过改善乌克兰人道主义危机决议](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [俄军入侵乌克兰一个月 战局陷入焦灼](/content/gnews/16/README.md)
+### [俄军入侵乌克兰一个月 战局陷入焦灼](/content/gnews/17/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声｜最后通牒 俄军传接最终命令 “战争结束日”曝光](/content/gnews/17/README.md)
+### [有声｜最后通牒 俄军传接最终命令 “战争结束日”曝光](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线：川普起诉克林顿等人在其 &#8220;俄罗斯丑闻 &#8220;中相互勾结](/content/gnews/18/README.md)
+### [秘翻在线：川普起诉克林顿等人在其 &#8220;俄罗斯丑闻 &#8220;中相互勾结](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国务院正式宣布：俄罗斯在乌克兰犯下战争罪](/content/gnews/19/README.md)
+### [美国务院正式宣布：俄罗斯在乌克兰犯下战争罪](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [躺平币历经技术革新 拥有者自由享受财富](/content/gnews/20/README.md)
+### [躺平币历经技术革新 拥有者自由享受财富](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [有声｜上海医疗系统近崩溃 民揭染疫人数惊人](/content/gnews/21/README.md)
+### [有声｜上海医疗系统近崩溃 民揭染疫人数惊人](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [港深疫情失控 粮食危机迫在眉睫](/content/gnews/22/README.md)
+### [港深疫情失控 粮食危机迫在眉睫](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [美国大陪审团认定中共CAIEP雇员犯有签证欺诈罪](/content/gnews/23/README.md)
+### [美国大陪审团认定中共CAIEP雇员犯有签证欺诈罪](/content/gnews/24/README.md)
  ` 银河歌舞厅`
 
-### [郭文贵先生爆东航坠机事件真相](/content/gnews/24/README.md)
+### [郭文贵先生爆东航坠机事件真相](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/25/README.md)
+### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/26/README.md)
  ` 關注組`
 
-### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/26/README.md)
+### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本冲绳12人接种新冠疫苗后死亡](/content/gnews/27/README.md)
+### [日本冲绳12人接种新冠疫苗后死亡](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/28/README.md)
+### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/29/README.md)
  ` 關注組`
 
-### [官员称，美国评估部分俄罗斯导弹的故障率高达60%](/content/gnews/29/README.md)
+### [官员称，美国评估部分俄罗斯导弹的故障率高达60%](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大联合工会主席被指收受贿赂](/content/gnews/30/README.md)
+### [加拿大联合工会主席被指收受贿赂](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [卢卡申科发表煽动性言论，澳大利亚制裁白俄罗斯](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [中共企图利用人民币石油化称霸世界](/content/gnews/32/README.md)
  ` NFSC News`

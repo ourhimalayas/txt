@@ -2,12 +2,11 @@
 ---
 
 
-## 七哥回答习太阳之后中国的未来以及躺平币的进展（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226956/)
+## 中共想在中东乱世把中东能源人民币化干掉美元
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2227081/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：10-11：20-08.jpeg)
-
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
 *发布：陶子*
 

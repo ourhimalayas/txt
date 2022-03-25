@@ -2,11 +2,12 @@
 ---
 
 
-## 躺平币面世要推迟会有大升级（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2227001/)
+## 为什么灭共由北到南
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2227096/)
 
-#### PPT制作: 小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11：20-11：30-01.jpeg)
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
 *发布：陶子*
 
 更多资讯，请关注：
