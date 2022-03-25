@@ -2,48 +2,22 @@
 ---
 
 
-## 美国评估俄军袭乌导弹失败率最高达60%
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2227000/)
+## 世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2227929/)
 
-素材：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-下午2.41.03.png)图片来源：互联网
-三位熟悉有关情报的美国官员对路透社说，美国政府的评估认为，在某些天，俄罗斯用来攻击乌克兰的精确制导导弹的失败率高达60%。
+视频：东京樱花团/战友520
+![](https://gnews.org/4a73b664-8608-45ba-b6e2-f6da9f19d7c6)
+月18日，世界CDN巨头Akamai 官网发文，表示很高兴达成与喜马拉雅交易所的合作，并在文中介绍了喜交所的运营目标，基本运行结构和强大的安全防御系统。Akamai与喜马拉雅交易所达成合作，标志着喜币、喜美元迈出里程碑式的一步。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/103-1.jpeg)
+信息来源： 世界CDN巨头Akamai在官网隆重介绍喜马拉雅交易所 超链接：[https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/](https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/%E3%80%91%EF%BC%88%E6%B3%A8%E9%87%8A%EF%BC%9A%E4%BF%A1%E6%81%AF%E6%9D%A5%E6%BA%90%E4%BB%A5%E8%B6%85%E9%93%BE%E6%8E%A5%E7%9A%84%E6%96%B9%E5%BC%8F%E4%BD%93%E7%8E%B0%EF%BC%8C%E8%AE%BE%E7%BD%AE%E4%B8%BA%E5%9C%A8new)
+Himalaya Exchange Creates a New Digital Financial System 
 
-这些官员披露的这一情况有可能帮助解释为什么入侵乌克兰已有一个月的俄军虽然号称实力远强于乌军，却未能实现可能被多数专家认为的基本目标，比如消灭乌克兰空军的战力。
+超链接：[https://www.akamai.com/blog/edge/himalaya-exchange](https://www.akamai.com/blog/edge/himalaya-exchange%E3%80%91)
 
-这些因事涉敏感信息而要求匿名的美国官员并没有提供支持这种评估的证据，也没有披露俄罗斯导弹高失败率的具体原因。
+编辑：东京樱花团/曲别针 
+发布：东京樱花团/bohdan博赫丹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997.png)
 
-路透社无法独立证实这一数字。克里姆林宫和俄罗斯国防部暂时没有回复置评请求。
-
-这类高失败率有可能包括从发射失败到导弹落地时未能爆炸等各种问题。
-
-本星期，美国国防官员对记者们说，五角大楼的评估认为，战争开始以来，俄罗斯发射了超过1100枚各类导弹。美国官员到目前为止没有说有多少俄军导弹击中或没有击中目标。
-
-三名美国官员援引美方情报说，美国估计，俄罗斯导弹的失败率因每天而异，取决于所发射导弹的类型，有时可能超过50%。他们中有两人说，失败率最高达60%。
-
-其中一名官员说，情报显示，俄罗斯空中发射的巡航导弹每天情况不同，失败率在20%到60%之间。
-
-根据智库战略与国际研究中心(CSIS)的导弹防御项目(Missile Defense Project)，俄罗斯在乌克兰动用了两种空射巡航导弹——Kh-555与Kh-101。
-
-路透社表示无法确定空射巡航导弹的标准失败率。路透社采访的两位专家说，任何超过20%的失败率都被认为是高的。
-
-美国相信，俄罗斯本月早些时候动用了从俄罗斯领空发射的空射巡航导弹袭击了靠近波兰边界的一处乌克兰军事基地，那三位美国官员中的其中一人对路透社说，那次袭击的导弹失败率就特别高。据乌克兰当局说，那次袭击造成35人丧生。
-
-导弹袭击一直是俄军这次入侵的一个特点。俄罗斯宣布用导弹袭击武器库等军事目标。
-
-入侵已经夺去了数千乌克兰人的生命，并迫使乌克兰4400万人口中的四分之一逃离家园。炮击和轰炸击中了乌克兰城市的居民区、学校和医院，这些城市包括哈尔科夫和被围攻的亚述海港城马里乌波尔。
-
-俄罗斯声称是在乌克兰展开“特别军事行动”，并否认把攻击目标对准平民。
-
-(本文依据了路透社的报道。)
-
-原文链接：
-
-【1】[路透社援引美官员：美国评估俄军袭乌导弹失败率最高达60%](https://www.voachinese.com/a/us-assesses-up-to-60-failure-rate-for-some-russian-missiles-officials-say-20220324/6501012.html)
-
-* * *
-
-*编辑&发布：长岛开心*
 
  
 

@@ -2,33 +2,38 @@
 ---
 
 
-## 【G时新闻】美国总统拜登出席北约紧急峰会应对俄乌局势
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2228352/)
+## 美欧协议不再进口俄罗斯天然气
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2228528/)
 
-作者：加拿大温哥华扬帆农场 – 播报：文广 – 视频制作：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-根据《NBC News》3月24 日报道，在俄乌战争一个月之际，美国总统拜登周四与西方盟友聚集在欧洲，支持基辅，用新的制裁措施惩罚莫斯科。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-20.20.26.png)
+3月25日，美国总统拜登和欧盟的冯布莱恩宣布，欧盟不再进口俄罗斯天然气，转而与美国达成天然气进口协议。
 
-乌克兰总统泽伦斯基在布鲁塞尔的北约峰会上通过视频链接发表讲话，敦促增加对他的国家的军事援助。乌克兰领导人从首都通过视频信息召集各国支持基辅的正义反抗，这已成为乌克兰不畏艰险地反抗的象征和使俄罗斯很难进一步前行。
+据悉过去几年，俄罗斯是欧盟最大的能源供应国，周三普京要求“不友好国家”使用卢布结算天然气贸易，不再使用美元和欧元。拜登总统与欧盟主席冯布莱恩的联合声明表示，欧盟要从过去的依赖俄罗斯天然气能源走向独立，为当地居民和企业提供可负担的清洁能源。双方会成立一个联合工作队，加快能源转型。
 
-拜登和美国盟友将讨论对乌克兰的援助、对俄罗斯的新制裁、加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
+据知情人士称，此项工作局限性较大。美国探索增加能源产量，欧洲转向发展清洁能源，是从长远角度的考量。美国天然气出口商下周将与德国买家会面。
 
-据一位高级政府官员说，白宫已经成立了一个国家安全官员小组，以计划应对普京使用化学武器的情况。熟悉拜登政府想法的一位消息人士说，美国预计还将宣布欢迎多达10万名逃离战争的难民的计划。
 
-美国国防部一位高级官员周三表示，在战场上，乌克兰军队已经成功地将俄罗斯军队逼退到基辅东部，挫败了俄罗斯向首都的推进。
 
-编辑/上传：一叶
-盖特链接：[https://www.gettr.com/post/p11oovx1591](https://www.gettr.com/post/p11oovx1591)
+reference：
+
+[https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports](https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports)
+
+[https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
+
+撰稿、发布：骄子
 
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
-- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

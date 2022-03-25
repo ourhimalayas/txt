@@ -2,66 +2,35 @@
 ---
 
 
-## 听说
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2228319/)
+## MV版Hcoin To the Moon上线106天第40次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2228402/)
 
-作者：蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-5.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2404.jpg)
+3/25/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线106天第40次位列匈牙利iTunes热门音乐视频榜榜首，第55次位列前三名
 
-我听说
-俄罗斯死了
-十五位将官
-我也听说
-俄罗斯死了
-九千名士兵
-我听说
-亚述营依然在抵抗
-虽然被污名纳粹
-没有受半点儿影响
-我听说
-马里乌波尔已经断了粮
-却没有人投降
+* * *
 
-我听说
-勇敢的乌克兰勇士
-在一点点的
-夺回家乡
-我听说
-边境的难民们
-毅然返回家乡
+[【PDF 下载】Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-我好想听说
-普金断了命毁了肠
-阎王面前泪涕滂
-我更想听说
-失去命的
-也有中国共产党
+* * *
 
-请春风带去温暖阳光
-送给乌克兰的英雄
-让他们心情舒畅
-勇敢果决上了战场
-把侵略者赶出国土
-接回远离家乡的人们
-生息修养
-在这片土地上
-再一次
-种菜种粮
-乌克兰的勇敢精神
-绽放光芒
-源远流长
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-**审核/编辑/发稿** **春草**
+[【PDF 下载】Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Friday-25-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

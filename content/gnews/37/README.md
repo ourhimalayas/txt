@@ -2,25 +2,30 @@
 ---
 
 
-## 樱花时政┃瑞士已冻结超过61亿美元的俄受制裁资产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226140/)
+## 台湾｜俄乌战争引爆外资大量出走 创历史新高
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226501/)
 
-撰稿：东京樱花团/上善若水
+圖/文 zhong｜25/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-25.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+23日报导，俄乌战争爆发加剧外资对中共侵略台湾的担忧，导致外资抛售价值约4800亿台币的股票。外媒引述分析人士称为“外资史上空前出走潮”。
 
-瑞士联邦经济事务官员欧文·布林格3月24日表示，瑞士已冻结价值57.5亿瑞士法郎（约合61.7亿美元）的俄在瑞资产，总额将继续增加，已涉及近900个人和62家公司。自中立国瑞士因俄罗斯入侵乌克兰而开始对其采取欧盟制裁以来，该国政府一直拒绝估计被冻结或可能受到制裁的俄罗斯资产规模。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-127.jpg)[图片来源](https://www.trtworld.com/business/switzerland-freezes-over-6b-worth-of-russian-assets-under-sanctions-55776)
-布林格指出：“所引用的远远超过50亿瑞士法郎的数字是瞬时数字，随着进一步报告的出现和欧盟制裁名单的潜在增加这个数字会进一步上升。”
+兆丰国际投顾协理黄国伟于报导中表示，外资抛售了价值约4800亿台币的股票，期外资抛售台股刷新纪录，比2008年全球金融海啸时金额更大。2021年，外资抛售价值近4462亿台币的股票，2022年俄乌战争爆发导致外资抛售台湾股票已超过去年总和。
 
-自俄乌战争爆发后，瑞士联邦委员会2月28日举行特别会议，决定参与欧盟对俄制裁计划，冻结俄有关个人和机构资产，禁止瑞士公司与被制裁对象进行业务往来。
+根据彭博社的相关数据，本周海外投资者在短短两天内净卖出约 46 亿美元的台湾股票，周一是有记录以来的第二高单日撤资。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1190x-1.jpg)图：彭博社
+黄进一步表示，近期外资大量出走并未使台湾股市受到灾难性损失，原因在于台湾部分银行大量收购吸收了外资出走的冲击。此外，台湾的投资者认为俄乌战争与中共对台侵略是不同的情形，因此大部分人对台股的信心并未受到影响。
 
-据欧盟3月22日介绍，目前，欧盟采取的相关制裁措施总共适用于俄罗斯及白俄罗斯的877名个人和62个实体。
+台积电占据晶片代工产业领导地位，占台股权值比28.8761%(2022/2/25数据)，被视为是台股的指标。外媒报导称，自 2 月底以来，其股价在台北和纽约均下跌了 3% 以上。Refinitiv 的数据显示，台湾的科技股也落后于大盘，同期台湾科技股指数下跌 2%。
 
-信息来源：[瑞士已冻结超过61亿美元的受制裁俄罗斯在瑞资产](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220325-%E7%91%9E%E5%A3%AB%E5%B7%B2%E5%86%BB%E7%BB%93%E8%B6%85%E8%BF%8761%E4%BA%BF%E7%BE%8E%E5%85%83%E7%9A%84%E5%8F%97%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E7%91%9E%E8%B5%84%E4%BA%A7)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.45.26.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.46.34.png)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
+来源｜[bloomberg](https://www.bloomberg.com/news/articles/2022-03-08/foreign-exodus-from-taiwan-s-stocks-is-rapidly-gaining-pace)、[CNN](https://edition.cnn.com/2022/03/23/investing/taiwan-investment-jitters-russia-ukraine-intl-hnk/index.html)
+
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 
