@@ -2,24 +2,24 @@
 ---
 
 
-## 面对制裁 俄罗斯欲将马里乌波尔市变为战争“灰烬”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2221576/)
+## 秦刚接受美媒采访做实中共支持俄罗斯立场
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2221574/)
 
-作者：纽约香草山教育部-Noemi
+作者：美国纽约香草山农场 – 文鹰
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-外媒22日消息，乌克兰马里乌波尔市一位官员表示，马里乌波尔的街市正在饱受俄军入侵和轰炸的猛烈摧残，俄罗斯的猛烈空袭正在将被围困的马里乌波尔变成“死亡的灰烬”。
+3月22日，一则盖特消息转发了美国媒体采访中共驻美大使秦刚的过程。主持人问到中共是否向俄罗斯提供了资金及军事援助时，秦大使承认中共国援助了药品、食物、睡袋和婴儿奶粉，但否认向俄乌战争任何一方提供武器和弹药，辩称中共持反对战争的政治立场。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-84.jpg)
+当主持人提出俄罗斯外长称中俄是紧密关系时，秦刚承认中俄有共同的利益和信任关系基础，中俄的关系是在WTO规则法律框架下进行的。被问到习近平为什么没有谴责普京的入侵行为和制止入侵时。秦确认习在战争第二天与普京通了电话，并建议普京通过谈判解决问题，但否认习支持普京的入侵。
 
-据了解本次轰炸得原因是，乌克兰在一天前拒绝了俄罗斯要求其投降的最后通牒，美国和欧洲则计划实施更多制裁来惩罚入侵乌克兰的莫斯科。马里乌波尔市仍有数十万普通民众被困在多个建筑物内无法撤离，他们当下难以获得任何食物、水、电力或暖气。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-83.jpg)
-马里乌波尔副市长奥尔洛夫称，该市受到了俄军最严酷的全面封锁，最近未能收到任何人道主义救援。每天约有50～100颗的炸弹被俄军投掷到了这里，这座城市已经被死亡和哭声包围了。
+郭先生早在战争开始时就透露过，中共国有大量的货运航班，秘密飞往俄境内援助普京。这一次秦刚为普京的侵乌战争狡辩，只能让美国和西方政府更清晰地认识中共的真面目。
 
-参考链接：[Russian strikes turning Mariupol into ‘ashes’ as West plans more sanctions](https://www.reuters.com/world/russian-air-strikes-wreak-havoc-mariupol-turning-ukrainian-city-ashes-2022-03-22/)
+参考链接：[秦刚否认中共国向俄罗斯提供军事援助，而只是提供食品、睡袋和药品](https://gettr.com/post/p11bgiwa9d6)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
 总编：zhong
 编辑：飞虹
-审核：飞虹
+审核：Irene木木
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

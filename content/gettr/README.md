@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 5:22 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group24/origin/2022/03/25/04/23fab483-12e3-01de-f364-b58060373ec4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/25/2022 2:32 AM (UTC)`
 
 
@@ -152,13 +159,6 @@ The war has been going on for 26 days，The NFSC rescue has also entered its 17t
 
 This humanitarian operation of NFSC brought a great shock to our international friends<br/>Mr.Miles mention one of his friends in a broadcasting,<br/>He had left Ukraine before the war,<br/>However, when he saw the Ukrainian’s resistance and NFSC’s aid,<br/>He was moved and return to the Ukrainian front without any hesitation. <br/>Joined this war to resist Russians. <br/>The situation of war is shifting dramatically.<br/>Putin’s so called “Conservative estimate of one week to take Ukraine”<br/>By far, is getting stuck a whole month.<br/>This friend who left but returned Ukraine, is just a small example.<br/>新中国联邦的此次救援行动给国际友人带来巨大震撼，<br/>郭先生在直播中说到他的一位朋友，<br/>本来在开战前以离开了乌克兰，<br/>但是看到新中国联邦的救援和乌克兰人民的抵抗，<br/>他感动了，毅然回到乌克兰前线，<br/>参与这场抵抗俄罗斯的战争。<br/>战争的形式在急剧转变，<br/>普京所谓的"保守估计一周拿下乌克兰",<br/>目前已经是整整一个月的战争僵持。<br/>#ukrainerescue #nfsc新中国联邦
 ![img](https://media.gettr.com/group6/origin/2022/03/24/16/b0963309-a9c5-1bfc-f101-d8d8d9e892fa/out.jpg)
-
----
-
-`@miles 3/24/2022 4:32 PM (UTC)`
-
-【Ukraine Rescue】03/24/22 “Although most people do not know about the NFSC and ROLF, we are here to show the world our presence and mission through rescue operations,” said the volunteer Jing Liang.<br/><br/><br/>【乌克兰救援】03/24/22 志愿者精粮战友表示：虽然大多数人并不知道新中国联邦和法治基金，但是我们就是要通过救援行动展示给世界我们的存在和使命。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group15/getter/2022/03/24/16/6ced5d87-8d34-067f-6b2c-afc830c20d6a/out.jpg)
 
 ---
 

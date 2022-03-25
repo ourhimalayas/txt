@@ -2,22 +2,25 @@
 ---
 
 
-## 视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2226300/)
+## 视频|救援队搭建的温暖的帐篷成为乌难民临时的家
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2226334/)
 
-制作：香草山视频部
+制作：大直播短视频组- 文果
+文案：晨熹＃9383
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+审核/编辑/发稿：为真不破20
 
-发稿：qiutian（邱甜）
 
-**更多资讯，更多关注
 
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
 
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

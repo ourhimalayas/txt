@@ -2,48 +2,29 @@
 ---
 
 
-## 官员称，美国评估部分俄罗斯导弹的故障率高达60%
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2226324/)
+## 【Top News】联大通过决议 要求俄立即停止对乌作战
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2226423/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2877.png)
+法新社联合国总部24日消息，联合国大会（UN General Assembly）24日通过一项不具约束力的新决议，要求俄罗斯“立即”停止在乌克兰境内的战争。
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/daoand.jpeg)图片来源：https://eurasiantimes.com/
-根据路透社3月25日报道，三名了解情报的美国官员告诉路透社，美国评估称，俄罗斯用于攻击乌克兰的一些精确制导导弹的失败率高达60%。
+这项决议在纽约联合国总部获140个国家投下支持票、38国弃权、5国反对。现场随后传出掌声。
 
-这一披露可能有助于解释为什么俄罗斯自一个月前入侵以来未能实现大多数人认为的基本目标，例如解除乌克兰的空军作战能力。
+联合国大会2日曾通过一项不具约束力的类似决议，要求俄国立即停止使用武力，当时有141国支持该决议。
 
-由于信息的敏感性，不愿透露姓名的美国官员没有提供证据来支持评估，也没有透露究竟是什么导致了俄罗斯导弹的高故障率。
+乌克兰在联合国大会紧急会议上，提出原由法国和墨西哥准备的新决议案。
 
-路透社无法独立核实这些数字。
+南非提出与之打对台的决议案，内容并未直接点名俄罗斯，结果只获得50票支持、67票反对、36票弃权，没有通过。
 
-克里姆林宫和俄罗斯国防部没有立即回应置评请求。
+通过的决议文明确点名俄罗斯，“要求俄罗斯联邦立即停止对乌克兰的战争行为，特别是一切对平民和民间目标的攻击”。
 
-如此高的故障率可能包括从发射失败到导弹在撞击时未能爆炸的任何情况。
+美国驻联合国大使汤玛斯-葛林斐德（Linda Thomas-Greenfield）说，这项决议向有能力停止暴力的那个人提出呼吁，也就是俄国总统普京（Vladimir Putin）。
 
-美国国防官员本周告诉记者，五角大楼评估称，自战争开始以来，俄罗斯已经发射了1100多枚各种类型的导弹。到目前为止，美国官员尚未说明其中有多少导弹成功击中了目标，有多少导弹没有成功。
+[【援引链接】](https://www.swissinfo.ch/chi/afp/%E8%81%94%E5%A4%A7%E9%80%9A%E8%BF%87%E5%86%B3%E8%AE%AE-%E8%A6%81%E6%B1%82%E4%BF%84%E7%AB%8B%E5%8D%B3%E5%81%9C%E6%AD%A2%E5%AF%B9%E4%B9%8C%E4%BD%9C%E6%88%98/47462404)
 
-三名美国官员援引美国情报称，美国估计俄罗斯的失败率每天都在变化。这取决于发射的导弹类型，有时可能超过50%。他们中的两个人说这一比率高达60%。
-
-其中一名官员表示，情报显示，俄罗斯空射巡航导弹的失败率在20%至 60%范围内，具体取决于日期。
-
-据战略与国际研究中心智库导弹防御项目称，俄罗斯在乌克兰部署了两种空射巡航导弹，即Kh-555和Kh-101。
-
-路透社无法确定空射巡航导弹的标准故障率是多少。路透社采访的两名专家表示，任何20%及以上的失败率都将被认为是高的。
-
-美国认为，俄罗斯本月初从俄罗斯领空发射了空射巡航导弹，当时它袭击了靠近波兰边境的一个乌克兰军事基地。其中一名美国官员告诉路透社，这次袭击的失败率特别高。据乌克兰当局称，这次袭击造成35人死亡。
-
-导弹袭击一直是俄罗斯入侵的一个特点，当时俄罗斯宣布对包括武器库在内的军事目标进行打击。
-
-新闻来源：[Exclusive: U.S. assesses up to 60% failure rate for some Russian missiles, officials say](https://www.reuters.com/business/aerospace-defense/exclusive-us-assesses-up-60-failure-rate-some-russian-missiles-officials-say-2022-03-24/)
-
-发布： tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**采集**/**撰稿：米拉雅**
+**审阅**/**天赐良闻**
+**上传/CharlieNZ查理**
 
  
 

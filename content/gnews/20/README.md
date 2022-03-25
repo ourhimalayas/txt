@@ -2,25 +2,21 @@
 ---
 
 
-## 【疫情3月24日】美国中共病毒死亡人数超过100万
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2226260/)
+## 中共企图利用人民币石油化称霸世界
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2226293/)
 
-翻译与编辑：冰糖葫芦喵
+编辑/总编: 雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
+在3月23日大直播中，郭文贵先生爆料，中共企图借由中东战争，控制中东能源，推行数字人民币结算石油，实现人民币石油化，挑战美元地位，摆脱西方制裁，打垮美国和欧洲的能源供应链。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093704.jpg)
+另一方面，中共侵占台湾，意在摧毁美国的芯片和技术供应链。届时，全球金融危机，粮食危机、社会秩序崩塌、供应链体系崩溃，中共妄图以此称霸世界。面对世界的清算，唯有新中国联邦能拯救中国人民。
 
-《网关专家》3月24日报道，**据跟踪网站worldometer的数据，自2019年中共病毒爆发以来，美东时间周四（3月24日），已有100多万美国人死于该病毒。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/million-covid.jpg)美国中共病毒感染数和死亡数（图片源自本文）
-据报道，**即使美国政府强制推行接种中共病毒疫苗，也有超过60万人死于中共病毒，但是媒体的反应对此消息却很冷淡。**
+参考链接：[郭文贵先生3月23日盖文](https://gettr.com/post/p11ksp71dc9)
 
-众所周知，**安东尼·福奇资助了中共武汉病毒实验室，他制定的疫苗残暴政策对拯救美国人毫无帮助。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-128.jpg)
 
-而且，**福奇被怀疑是通过阻止美国人获得伊维菌素、硫酸羟氯喹等预防药物和治疗药物，和阻止美国人通过自然免疫强推实验性毒疫苗，而杀死了数万名美国人。**
-
-新闻来能链接：
-
-[Grim Milestone: US Coronavirus Deaths Pass One Million Mark – More Than 600,000 Deaths Under Joe Biden (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/grim-milestone-us-coronavirus-deaths-pass-one-million-mark-600000-joe-biden/)
-
-
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

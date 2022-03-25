@@ -2,21 +2,41 @@
 ---
 
 
-## 视频|国际社会应对中共威胁的最新动向
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2226278/)
+## 卢卡申科发表煽动性言论，澳大利亚制裁白俄罗斯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2226305/)
 
-制作：香草山视频部
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-3月23日，据相关媒体消息显示，美国总统拜登将于本周四前往布鲁塞尔参加北约和G7盟国会议。会上，各成员国将就向乌克兰提供武器装备和人道主义援助、乌克兰难民危机问题，以及惩治中共对俄罗斯入侵乌克兰战争的支持等议题做出讨论。据了解，鉴于拜登与习近平并未通过视频会议达成任何共识，拜登总统将寻求与欧洲国家一起对中共做出应对，用以谴责中共对俄罗斯入侵的物质支持。
-此外，为了贯彻美国在印太地区的和平计划，联邦政府近日任命前美国国务院朝鲜政策特别代表尹汝尚为总统特使，牵头与马绍尔群岛、密克罗尼西亚联邦和帕劳三个具有重要战略意义的太平洋岛国进行谈判。消息人士指出，中共近年来一直借由旅游及贸易活动对这些太平洋岛国展开经济攻势，从而为其在此区域建立军事据点打下基础。虽然近期俄乌局势牵引着世界的注意，但美国将持续致力于印太计划，以便应对中共逐渐扩张的军事野心。
-与此同时，欧盟议会外交委员会也在一份草案中也将台湾列为重要伙伴和民主盟友，尤其在中共快速军事扩张并多次蓄意破坏印太地区和平的前提下，欧盟将与台湾一同维护印太地区的和平稳定及航行自由。
+翻译/编辑：文泓
 
-发稿：qiutian（邱甜）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/P82R3RMLIYXQ3XLFM8.png)图片来源：Wion & 雅典娜设计组
 
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+
+白俄罗斯总统亚历山大·卢卡申科表示，向乌克兰部署武装维和人员的提议可能引发另一场全球战争。诡异的是，俄罗斯军队驻扎在白俄罗斯，并一直利用这个东欧国家作为入侵乌克兰的平台。
+
+但是，尽管卢卡申科先生迄今为止没有亲自入侵乌克兰，但他谴责了最近要求派遣维和人员进入战区的请求，并表示：“这将意味着第三次世界大战，情况非常严重。”
+
+波兰上周表示，将在下一次北约峰会上呼吁在乌克兰派驻维和特派团。波兰执政党领袖雅罗斯瓦夫·卡钦斯基也表示，应立即向乌克兰部署一支具有自卫能力的国际维和部队。
+
+“这将是一个为和平而努力的使命，提供人道主义援助，但同时它也将受到适当军队和武装力量的保护，”他说。
+
+然而，从战争一开始，俄罗斯总统普京就警告说，国际社会卷入这场冲突将导致“你历史上从未见过的后果”。普京发表上述言论后，迅速采取行动将俄罗斯的核力量置于高度戒备状态。
+
+白俄罗斯发表煽动性言论之际，澳大利亚政府宣布对明斯克和莫斯科的知名人士实施进一步制裁。
+
+新制裁将针对22名“俄罗斯宣传员和散步虚假信息人员”以及卢卡申科总统及其家人。
+
+外交部长玛丽斯·佩恩在周五的一份声明中说：“在俄罗斯入侵乌克兰一个月后，推出这些最新举措将继续我们确保俄罗斯和那些支持其非法、无端入侵其民主邻国的人付出高昂代价。”
+
+参考链接：[Alexander Lukashenko warns peacekeepers in Ukraine could trigger World War III as Australia slaps sanctions on the Belarusian President | Sky News Australia](https://www.skynews.com.au/world-news/alexander-lukashenko-warns-peacekeepers-in-ukraine-could-trigger-ww3-as-australia-slaps-sanctions-on-the-belarusian-president/news-story/b4ff6ec7897f1879da85245bfba81059)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
