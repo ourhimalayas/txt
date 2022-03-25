@@ -2,36 +2,31 @@
 ---
 
 
-## 加拿大禁止其士兵加入乌克兰外国军团
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
+## 【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2230079/)
 
-作者：加拿大温哥华扬帆农场-活力人生
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+作者：加拿大温哥华扬帆农场 G时新闻 – 播报：yuyu-视频制作：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+据英国【每日内幕】3月21日报道，加拿大政府的最新疫情数据显示，与未接种“新冠病毒”疫苗者的自然免疫系统相比，完全接种人群平均损失了74%的免疫系统能力。
 
+据悉，目前该疫苗已对接种者造成了巨大健康损害，与未接种者相比，已注射过两剂疫苗的人群感染“新冠病毒”的可能性要高出3.8倍，而因此死亡可能性则高出 3.3 倍。此外，三联疫苗接种人群的情况更为严峻，因为与未接种者相比，前者死亡的可能性要高出 5.1 倍。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
+以上所有官方数据均表明，大部分已完全接种疫苗者的免疫系统现在都遭受到了巨大的损害，并因此已逐渐发展为类似与艾滋病的获得性免疫缺陷综合症。
 
+上传：兴旺
 
-据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
-
-加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
-
-艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
-
-加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
-
-新闻链接：
-
-[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
+视频连接：https://www.gettr.com/post/p11osvx8cfc
 
 * * *
 
-编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

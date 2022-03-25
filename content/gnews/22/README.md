@@ -2,30 +2,199 @@
 ---
 
 
-## 文贵爆料 3.25：女孩打下坦克——“钢铁洪流”的时代就此落幕
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2230459/)
+## 邪恶的共产党正在跑步奔向地狱
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2230464/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-25-at-8.38.43-PM.jpeg)
-战争是一面镜子，它不仅照出了人性的“冷酷、残暴、偏执”，也映出了人们的“愚蠢、短视和无知”。此次俄乌战争，完全颠覆了人们的认知，让旧的战争理念彻底崩塌，让曾经无比辉煌的“钢铁洪流”成了一个笑话，而高精尖科技却大放异彩，其中脱颖而出的是决胜于千里之外的“星链、通信、大数据和AI技术”，它们创造了战争的神话，也告诉了人们：“战争，我主沉浮”。
+从3月底到4月份
+Desde finales de marzo hasta abril
 
-郭文贵先生在3月25日的大直播中说，此次俄乌战争是俄罗斯军事的大悲哀、大暴露，是在通信、补给、战术、武器领域的一次完败，而所谓的世界级领导人、大投资者，和沼泽地却误判形势。
+你会看到在中东
+Verás en el Medio Oriente
 
-过去，世界上超过一半的国家、超过一半的人口都买俄罗斯的武器，但此次俄乌战争却是俄罗斯军事的大悲哀、大暴露，是全世界政客对军队、军事、科技认知的一场大暴露。你们想想，在战争前，全世界有几个人能预测出战争的结果？
+整个能源和战争中的更凶险的事情发生
+Sucederá algo más siniestra en conjunto con la energía y la guerra
 
-在战前，世界级的领导人、大投资者，和所谓让人佩服的沼泽地，认为不会超过一星期俄罗斯一定拿下乌克兰，美国、欧洲只会虚张声势，不会有任何动作，而他们的技术资源、通信资源也会在两周后到，那时乌克兰已经沦陷了，而普京可能已挥军直指波罗的海三国，而且认为俄罗斯的卢布不但不会降，还会大涨，石油会、天然气会暴涨。
+然后是台湾
+Luego es Taiwán
 
-这场战争俄罗斯仍沿用二战时的站桩排队，前后补给、空战进入的战法。这是二战中期时的战法，当时希特勒攻打法国、英国，莫斯科，以及红军反攻都是用这个打法。时间已经过去快一个世纪了，还用这办法。最可怕的是，俄罗斯虽然是坦克最大的出口国，它的坦克却不堪一击，“女孩扛着个刺导弹就把它打下来了”。
+记住我今天说的话
+Recuerda lo que dije hoy
 
-当年俄罗斯原苏联就攻打阿富汗时，用同样的办法，十几万部队冲进去，要一星期拿下，但阿富汗人用这种肩扛式导弹，把它的飞机把和坦克打回去了。现在同样说三天拿下乌克兰，保守的话一个星期，结果被揍成这个样子。如今它能使用的部队不过三十万人，而兵员已经没了，只能发动全民作战了。
+我知道共产党想干什么
+Yo sé lo que está pensando el PCCh
 
-可怕的是一个卖武器的国家，现在却没武器用了，这包括所有坦克用的补给，飞机上挂的导弹，更可怕的是通信设备，如GPS的所有中转器大多数来自于越南、中国，印度和台湾。最夸张的是除了通信、补给、战术、武器外，它的整个宣传战略全是假的。
+只有放毒
+Sólo descargar el virus
 
-郭先生说，这次战争告诉中共，中国在未来几十年内和西方军事抗衡的可能性绝对是零。
+发动另外一场能源和区域性战争
+Lanzar otra guerra energética y regional
 
-参考链接：
+大家看着中东吧
+Todos vean a Medio Oriente
 
-[2022年3月25日 文贵直播](https://gettr.com/streaming/p11tme3b4de)
+然后是台湾
+Después es Taiwán
+
+最后是把它(共产党)自己作死
+Finalmente, este PCCh buscará la muerte
+
+中国共产党刚刚在内部说
+El PCCh acaba de decir internamente
+
+大肆宣传我们有了两年到两年半的储备粮食
+Anunciando exageradamente que tenemos reservas de alimentos para dos o dos años y medio
+
+18亿吨的粮食
+1.8 mil millones de toneladas de alimentos
+
+中国人需要
+La necesidad China
+
+不要说一天所谓的3两肉
+No digas los llamados 3 taeles de carne al día
+
+18亿吨粮食乘以2.5是多少
+¿Qué es 1.8 mil millones de toneladas de alimentos multiplicado por 2,5?
+
+35亿吨
+3.5 mil millones de toneladas
+
+(相当于)中国人啥也不吃只吃面
+(Equivalente a) que los chinos no coman nada sino únicamente fideos
+
+两年半
+Dos años y medio
+
+35亿吨的粮食
+3.5 mil millones de toneladas de alimentos
+
+是把全世界粮食不是50%买走了
+No compró el 50% de los alimentos del mundo
+
+是300%买走了
+Sino el 300%
+
+也就是明年没有收割的粮食
+Es decir, el grano que no se cosechará el próximo año
+
+已经在共产党的粮库里了
+Ya están en el depósito de granos del PCCh
+
+它在恐惧什么, 它在骗什么
+¿A qué le teme, a qué engaña?
+
+你们还记得1958年吗
+Ustedes se acuerdan en el año 1958
+
+我还没出生的时候
+Aún no habia nacido
+
+你们还没出生的时候
+Y ustedes tampoco
+
+毛泽东见印度的一个总统的时候
+Cuando Mao Zedong se reunió con un presidente de la India
+
+告诉人家说
+Le dijo
+
+你看我们中国这个粮食
+Mira nuestros alimentos en China
+
+产太多了, 怎么处理啊
+Tengo muchísimos alimentos, ¿qué debo hacer?
+
+尼赫鲁
+Nehru
+
+一本正经地说
+Dijo honestamente
+
+我们可以考虑帮你解决这个问题
+Podemos considerar en ayudarte a resolver este problema
+
+我们帮你消化一部分
+Te ayudamos a digerir parte de ella
+
+1958年(饿)死了多少人
+¿Cuántas personas murieron de (hambre) en 1958?
+
+几千万人
+Decenas de millones
+
+共产党毛泽东对着尼赫鲁, 抽着烟翘着二郎腿
+El PCCh Mao Zedong fumando un cigarrillo con las piernas cruzadas frente a Nehru
+
+就那一分钟说话中间平均死多少人
+¿Cuántas personas murieron en promedio en ese minuto de conversación?
+
+今天中共又来了
+El PCCh está aquí de nuevo hoy
+
+我们粮食已经储备了2.5年
+Hemos almacenado alimentos durante dos años y medio
+
+然后印刷出了中国叫钢镚
+Y luego imprimió en chino llamado moneda de pequeña dominación hecha de metal
+
+我从小叫钢镚
+Desde pequeño me llaman moneda de pequeña dominación hecha de metal
+
+过去是银币
+Eran monedas de plata en el pasado
+
+镍币, 现在已经变成钢镚
+Monedas de níquel, ahora se ha convertido en moneda de pequeña dominación hecha de metal
+
+然后(新的)纸币还马上要出现
+Y pronto llegarán los (nuevos) billetes
+
+还要废掉一部分
+Y se eliminarán una parte
+
+就是中国人
+Si los chinos
+再不醒来
+No se despiertan
+
+不是去地狱做猪狗
+No es ir al infierno a ser cochinos y perros
+
+真的连死都找不着毛
+Sino que no conseguirán realmente ni pelos cuando mueren
+
+最后我告诉你们, 兄弟姐妹们
+Finalmente les digo, hermanos y hermanas
+
+这些都不是最恐惧的
+Todo esto no es lo temeroso
+
+战争, 中东, 放毒
+Las guerras, el Medio Oriente, descarga de virus
+
+最恐惧的是疫苗灾难
+Lo más temeroso es el desastre de las vacunas
+
+* * *
+
+日期：03/24/2022
+原视频标题：邪恶的共产党正在跑步奔向地狱
+El malvado PCCh está corriendo hacia el infierno
+
+原视频日期：03/19/2021
+原视频网址：**[https://gettr.com/post/p10pmqg6f0c](https://gettr.com/post/p10pmqg6f0c)**
+任务编号：KC482(4045)
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
