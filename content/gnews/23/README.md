@@ -2,22 +2,27 @@
 ---
 
 
-## 加拿大政府讨论用数字ID追踪疫苗接种
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230138/)
+## 大卫·马丁医生因强制疫苗起诉乔·拜登
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230365/)
 
-加拿大温哥华扬帆农场-硫酸羟氯喹64, 自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-50.jpg)（图片：tnc.news）
-加拿大网媒《True North》3月22日报道，2月1日，加拿大公共服务学院就如何用数字ID追踪国民疫苗接种召开了研讨会，由创新、科学和经济发展部副部长比罗多主持。
+作者：加拿大温哥华扬帆农场-重生之鹰
 
-比罗多认为，身份识别在大流行病期间很重要，政府任何时候都需要验证身份，跟踪疫苗接种，并用它来识别那些未接种疫苗的人。在本次CCP病毒流行期间，安省已经开始通过政府提供的二维码来颁发疫苗接种证明。但数字身份的普及需要私营公司和政府一起合作，并期待加拿大未来能成为数字身份领域的先驱。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2985.png)图片来源：expose
 
-推行数字身份的根本是为了更好地统治人民。CCP病毒肆虐二年多来，特鲁多政府不去病毒溯源，反而大力鼓吹致伤致残无数的疫苗接种，并想借机推广数字身份，然而大卡车运动已经向世人证明，觉醒的人民不是那么好忽悠的！
 
-原文链接：[https://tnc.news/2022/03/22/federal-panel-event-discusses-digital-ids-for-tracking-future-vaccinations/](https://tnc.news/2022/03/22/federal-panel-event-discusses-digital-ids-for-tracking-future-vaccinations/)
+在最近的一次采访中，大卫·马丁博士讨论了3月3日在犹他州对拜登政府强制疫苗政策发起的一项联邦诉讼。其中还包括：卫生与公众服务部(HHS)主任;医疗保险和医疗补助计划的负责人;以及医疗保险和医疗补助服务中心(CMS)的任务主管等。
+
+Covid – 19疫苗的创始人帕特里克·根特波本月早些时候采访了马丁博士，他解释说:由于注射疫苗，人体变成了一个生物武器工厂，制造刺突蛋白，这是一种带有来自SARS-CoV-2的基因序列的预定病原体:一种美国代码中预定生物武器清单上的已知毒素。注射并不刺激对SARS-CoV-2的任何免疫力。
+
+这一诉讼非常明确地指出，使用“疫苗接种”一词本质上是为了误导公众。这是为了混淆视听。它应该被称为辉瑞生物技术公司和Moderna在美国证券交易委员会的文件中所称的基因疗法。
+
+第一次诉讼引发了一系列其他诉讼，最终发现了我一直在说的犯罪阴谋。因为我们在取证过程中，会得到重罪的证据。下一个案例中，我们会得到更多的重罪信息。
+
+新闻链接：[https://dailyexpose.uk/2022/03/23/david-martin-files-lawsuit-against-joe-biden/](https://dailyexpose.uk/2022/03/23/david-martin-files-lawsuit-against-joe-biden/)
 
 * * *
 
-编辑、上传：月亮之上
+编译撰稿：重生之鹰， 编辑发稿：硫酸羟氯喹64
 
  
 

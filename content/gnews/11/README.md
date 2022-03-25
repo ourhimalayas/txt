@@ -2,199 +2,60 @@
 ---
 
 
-## 邪恶的共产党正在跑步奔向地狱
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2230464/)
+## 【转】截至3.24 俄乌战事汇总（3）
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2230531/)
 
-从3月底到4月份
-Desde finales de marzo hasta abril
+#### 采集：文洋
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16482298701.png)
+1. 波兰总理莫拉维茨基说：波兰、斯洛文尼亚和捷克共和国已经准备了一个 “支持乌克兰的10点计划”。
+其中包括切断所有俄罗斯银行与SWIFT的联系，将俄罗斯排除在所有国际组织之外，暂停俄罗斯人的签证，对ER和 “寡头的商业随从 “进行制裁，禁止俄罗斯船只进入港口，关闭进出俄罗斯的陆路旅行。
+2. Spotify音乐正在终止其在俄罗斯的业务。
+3. 普京将无法快速离开莫斯科。由于制裁，从莫斯科到圣彼得堡的高速公路（HSL）的建设处于危险之中。这个1.4万亿卢布的项目从2010年代初开始讨论，并在去年获得批准，现在已经变得不可行了，因为进口价格上涨、交通情况恶化。
+4. 拜登：世界历史上最严厉的针对俄罗斯的 “惩罚性制裁 “已经到位，但新的制裁将随之而来。
+5. 路透社报道：中国中石化暂停在俄罗斯价值5亿美元的投资项目。中国石化是亚洲最大的能源和化工企业之一。
+6. 拜登在热舒夫会见了驻扎在那里的美国军队，并与他们一起吃了比萨。
+7. 俄罗斯的沃罗涅日地区议员公开反对乌克兰战争。
+尼娜-别利亚耶娃说：我反对普京作出的决定，反对今天在乌克兰主权国家领土上发生的行动。我认为正在发生的事情是一种战争罪。
+8. 乌克兰总统办公室主任阿列克谢：俄罗斯第200（多么不幸的名字）摩托化步枪旅被摧毁。在648名军事人员中，只有3人幸存下来。而且有两名幸存者受伤了。
+9. 波兰将向乌克兰难民支付儿童津贴。
+从3月26日起，他们可以为每个18岁以下的孩子每月领取500兹罗提，约116美元。
+10. 从中东地区招募雇佣兵加入俄军的国际渠道已被拆除。
+11. 美国总统乔-拜登抵达热舒夫。他将在这里会见波兰总统安杰伊-杜达。
+12. 俄罗斯总参谋部声明：乌克兰武装部队和国民警卫队的损失已超过14000人。
+13. 俄罗斯总参谋部声明：乌克兰空军和防空系统在一个月内几乎被完全摧毁，海军部队也不复存在。
+14. 俄罗斯总参谋部声明：乌克兰的16个主要军用机场被击中。
+15. 俄罗斯总参谋部声明：乌克兰军工综合体的30家关键企业被击中。
+16. 普京的 “卐 “字形图案被取缔。德国巴伐利亚州将公开展示 “Z “形标志定为犯罪，因为这是俄罗斯侵略乌克兰的象征。
+司法部长Georg Eisenreich在慕尼黑对德国新闻社说：巴伐利亚州的检察官正在对那些公开支持违反国际法的侵略战争的人采取一致的措施。我们不接受为违反国际法的罪行辩护。
+17. 波兰总统办公室表示，波兰总统的飞机在前往热舒夫与拜登会面的途中在华沙因故障紧急降落。
+18. 土耳其总统埃尔多安称乌克兰和俄罗斯已对6个问题中的4点达成共识：
+①乌克兰放弃加入北约的路线。
+②授予俄语官方地位。
+③非军事化（拒绝部署进攻性武器）。
+④集体安全问题。
+土耳其总统补充说，乌克兰在承认俄罗斯在克里米亚以及 “民主共和国 “和 “解放军 “共和国的地位问题上没有做出让步。
+19. 俄罗斯联邦通信、资讯科技和大众传媒监督局封锁了俄罗斯境内的拉脱维亚语网站Delfi。
+20. 拜登承诺向欧盟国家提供足够的天然气，使它们能够在 “2030年前 “停止购买俄罗斯天然气。
+21. 一名牧师在别尔哥罗德地区的一个村庄遭到炮击时死亡。
+死者是奥列格-阿特莫夫大牧师。炮击发生时，他在朱拉夫列夫卡村，在那里担任单位指挥官的助理，负责与信众的工作。
+22. 俄罗斯亿万富翁皮奥特-阿文含泪向《金融时报》讲述了制裁下的英国生活
+①我们的生意被毁了。我们30年来所建立的一切现在都被彻底毁掉了。我们必须以某种方式开始新的生活。
+②法律上我们不能触及该业务。英国当局甚至不敢与我本人见面。我们非常害怕当局。
+③我可以雇佣一个清洁工或司机吗？我不开车，也许我的继女会开车。我们现在都不知道要如何生存。
+④英国律师不愿意与俄罗斯人合作。我被告知，要改变所实施的制裁几乎是不可能的。
+23. 阿尔汉格尔斯克纸浆和造纸厂报告说，在进口化学品短缺的情况下，它开始生产未漂白的纸张
+由于欧洲生产商停止交付白纸和漂白纸浆生产所需的化学品，俄罗斯一些地区出现了办公用纸的短缺。
+24. 《金融时报》：普京亲自批准阿布拉莫维奇参加与乌克兰的会谈
+据该报称，在得到普京的许可后，罗曼-阿布拉莫维奇会见了乌克兰总统办公室的一名高级官员，帮助组织谈判进程。
+25. 俄罗斯国家杜马议长沃洛金建议参议员普罗努什金因散布虚假信息而辞职。
+26. 马里乌波尔当局称，俄罗斯飞机对戏剧院的轰炸已造成约300人死亡。
+27. 马什报告说，弗拉基米尔-日里诺夫斯基已经死亡
+28. 英国国防部在其对战争的日常分析中报告说，乌克兰人已经成功地重新控制了基辅以东的城镇和防御阵地，距离首都最多35公里。
+29. 芬兰报纸《赫尔辛格报》（Helsingin Sanomat）：圣彼得堡和赫尔辛基之间的Allegro列车将于3月28日停止运行。
+30. 基辅的650个防空洞已经连接了Wi-Fi。据基辅数字化转型负责人彼得-奥伦奇（Petr Olenych）说，这几乎占了所收到的申请的70%。
+31. 俄罗斯中央银行保证，来自外汇储备的所有黄金都在俄罗斯银行在该国境内的金库中。
+在报告的黄金储备方面，截至2022年1月1日，俄罗斯拥有约2301657吨，价值约1330亿美元，占俄罗斯黄金总储备的21.1%。它是世界上第五大经济体。
 
-你会看到在中东
-Verás en el Medio Oriente
-
-整个能源和战争中的更凶险的事情发生
-Sucederá algo más siniestra en conjunto con la energía y la guerra
-
-然后是台湾
-Luego es Taiwán
-
-记住我今天说的话
-Recuerda lo que dije hoy
-
-我知道共产党想干什么
-Yo sé lo que está pensando el PCCh
-
-只有放毒
-Sólo descargar el virus
-
-发动另外一场能源和区域性战争
-Lanzar otra guerra energética y regional
-
-大家看着中东吧
-Todos vean a Medio Oriente
-
-然后是台湾
-Después es Taiwán
-
-最后是把它(共产党)自己作死
-Finalmente, este PCCh buscará la muerte
-
-中国共产党刚刚在内部说
-El PCCh acaba de decir internamente
-
-大肆宣传我们有了两年到两年半的储备粮食
-Anunciando exageradamente que tenemos reservas de alimentos para dos o dos años y medio
-
-18亿吨的粮食
-1.8 mil millones de toneladas de alimentos
-
-中国人需要
-La necesidad China
-
-不要说一天所谓的3两肉
-No digas los llamados 3 taeles de carne al día
-
-18亿吨粮食乘以2.5是多少
-¿Qué es 1.8 mil millones de toneladas de alimentos multiplicado por 2,5?
-
-35亿吨
-3.5 mil millones de toneladas
-
-(相当于)中国人啥也不吃只吃面
-(Equivalente a) que los chinos no coman nada sino únicamente fideos
-
-两年半
-Dos años y medio
-
-35亿吨的粮食
-3.5 mil millones de toneladas de alimentos
-
-是把全世界粮食不是50%买走了
-No compró el 50% de los alimentos del mundo
-
-是300%买走了
-Sino el 300%
-
-也就是明年没有收割的粮食
-Es decir, el grano que no se cosechará el próximo año
-
-已经在共产党的粮库里了
-Ya están en el depósito de granos del PCCh
-
-它在恐惧什么, 它在骗什么
-¿A qué le teme, a qué engaña?
-
-你们还记得1958年吗
-Ustedes se acuerdan en el año 1958
-
-我还没出生的时候
-Aún no habia nacido
-
-你们还没出生的时候
-Y ustedes tampoco
-
-毛泽东见印度的一个总统的时候
-Cuando Mao Zedong se reunió con un presidente de la India
-
-告诉人家说
-Le dijo
-
-你看我们中国这个粮食
-Mira nuestros alimentos en China
-
-产太多了, 怎么处理啊
-Tengo muchísimos alimentos, ¿qué debo hacer?
-
-尼赫鲁
-Nehru
-
-一本正经地说
-Dijo honestamente
-
-我们可以考虑帮你解决这个问题
-Podemos considerar en ayudarte a resolver este problema
-
-我们帮你消化一部分
-Te ayudamos a digerir parte de ella
-
-1958年(饿)死了多少人
-¿Cuántas personas murieron de (hambre) en 1958?
-
-几千万人
-Decenas de millones
-
-共产党毛泽东对着尼赫鲁, 抽着烟翘着二郎腿
-El PCCh Mao Zedong fumando un cigarrillo con las piernas cruzadas frente a Nehru
-
-就那一分钟说话中间平均死多少人
-¿Cuántas personas murieron en promedio en ese minuto de conversación?
-
-今天中共又来了
-El PCCh está aquí de nuevo hoy
-
-我们粮食已经储备了2.5年
-Hemos almacenado alimentos durante dos años y medio
-
-然后印刷出了中国叫钢镚
-Y luego imprimió en chino llamado moneda de pequeña dominación hecha de metal
-
-我从小叫钢镚
-Desde pequeño me llaman moneda de pequeña dominación hecha de metal
-
-过去是银币
-Eran monedas de plata en el pasado
-
-镍币, 现在已经变成钢镚
-Monedas de níquel, ahora se ha convertido en moneda de pequeña dominación hecha de metal
-
-然后(新的)纸币还马上要出现
-Y pronto llegarán los (nuevos) billetes
-
-还要废掉一部分
-Y se eliminarán una parte
-
-就是中国人
-Si los chinos
-再不醒来
-No se despiertan
-
-不是去地狱做猪狗
-No es ir al infierno a ser cochinos y perros
-
-真的连死都找不着毛
-Sino que no conseguirán realmente ni pelos cuando mueren
-
-最后我告诉你们, 兄弟姐妹们
-Finalmente les digo, hermanos y hermanas
-
-这些都不是最恐惧的
-Todo esto no es lo temeroso
-
-战争, 中东, 放毒
-Las guerras, el Medio Oriente, descarga de virus
-
-最恐惧的是疫苗灾难
-Lo más temeroso es el desastre de las vacunas
-
-* * *
-
-日期：03/24/2022
-原视频标题：邪恶的共产党正在跑步奔向地狱
-El malvado PCCh está corriendo hacia el infierno
-
-原视频日期：03/19/2021
-原视频网址：**[https://gettr.com/post/p10pmqg6f0c](https://gettr.com/post/p10pmqg6f0c)**
-任务编号：KC482(4045)
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

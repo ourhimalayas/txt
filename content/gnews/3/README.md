@@ -2,29 +2,30 @@
 ---
 
 
-## 西媒头条 — 第196期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230570/)
+## 加拿大进一步收紧对俄罗斯飞机的飞行禁令
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230628/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+##### 作者：加拿大温哥华扬帆农场 – 采编: 青青              编译：晨熹         
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/AP.jpg)图片来源: AP
+据加拿大CTV电视网3月21日报道，俄罗斯航空公司一架商用客机2月27日谎称人道主义航班，规避了进入加拿大领空的禁令。对此联邦政府表示已经进一步收紧对俄罗斯飞机的飞行禁令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220325.001.jpeg)
+目前加拿大运输部正在对此事件进一步调查。交通部长奥马尔·阿尔加布拉表示，政府关闭加拿大领空对俄罗斯航班开放的决定不包括人道主义航班的任何豁免，这是对俄罗斯入侵乌克兰的惩罚性决定的一部分。
 
-发稿：信心的选择
+阿尔加布拉同时也承认，俄罗斯对加拿大飞机实施了同样的报复性措施。加拿大以及其他航空公司目前需要通过更高的成本和更长的线路，以处理飞往印度和韩国等亚洲目的地的航线。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+新闻来源：[https://www.ctvnews.ca/politics/canada-tightens-ban-on-russian-aircraft-to-include-humanitarian-flights-1.5828119](https://www.ctvnews.ca/politics/canada-tightens-ban-on-russian-aircraft-to-include-humanitarian-flights-1.5828119)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+编辑/上传 – 云起时
 
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,35 @@
 ---
 
 
-## 加拿大疫苗限乘令结束时间或推迟
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230453/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2230513/)
 
-加拿大温哥华扬帆农场-活力人生
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CBC.png)图片来源：CBC
-据【加拿大广播公司】3月23日报道，随着加拿大中共病毒感染病例下降，多个省份已经取消疫苗护照和对未接种者的限制措施。但未接种者仍无法乘坐飞机或火车进行国内或国际旅行。
+作者：香草山翻译部
 
-针对未接种疫苗者的飞机或火车限乘令来自加拿大联邦层面。加拿大首席公共卫生官谭咏诗博士说，目前联邦机构正在审查针对旅行者和联邦工作人员的疫苗限制政策，并评估结束这些限制的可能性。但她同时表示，由于目前全球COVID-19感染病例数的反弹，可能会使结束限制的时间推迟。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
 
-目前，有超过 85% 的5 岁以上的加拿大人已经完全接种了中共病毒疫苗，50% 以上的加拿大成年人接种了疫苗加强针。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-25.png)
 
-参考链接: [https://www.cbc.ca/news/business/unvaccinated-travel-canada-1.6393668](https://www.cbc.ca/news/business/unvaccinated-travel-canada-1.6393668)
+文章仅代表作者本人观点，与Gnews无关
 
-* * *
+视频参看：
+[2022.03.25早 《NFSC新闻》](https://gettr.com/streaming/p11tqyza7b5)
+[2022.03.25早《NFSC新闻访谈》](https://gettr.com/streaming/p11to3zb200)
 
-编辑、上传：月亮之上
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-31.png)
 
  
 
