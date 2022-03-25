@@ -2,25 +2,18 @@
 ---
 
 
-## 视频|盖特参与赞助法国总统大选前辩论会
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2226279/)
+## 中共在中东的谋划（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226355/)
 
-制作：香草山视频部
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：20-10：30-03.jpeg)
+*发布：陶子*
 
-3月22日，据盖特新闻网报道，盖特平台已经与法国保守派杂志《当前价值》合作，成为法国总统大选前参选者“价值观大辩论”的主要赞助商。
-
-活动当天，法国总统候选人埃里克·泽穆尔、瓦莱里·佩克雷斯以及国民联盟发言人乔丹·巴代拉和代表现任总统和连任候选人马克龙的法国公民事务部长夏帕将一同出席。届时，盖特会在巴黎圆顶球场独家直播整场活动。
-
-据《当前价值》的总监透露，一直以来，该杂志都是大型科技公司言论审查制度的受害者。但盖特作为一个自由言论的平台，其正在向世人提供信息获取的替代方案，从而给予了公众一些新的希望。
-
-对此，盖特创始人兼首席执行官杰森·米勒先生表示，盖特为能够赞助这场总统选前辩论而感到自豪。同时，盖特将确保法国人民在总统大选之前可以确切地知道每位候选人的立场。另一方面，鉴于大型科技公司多次干预民主进程的做法，盖特正在为言论自由而战。因此，哪怕受到任何审查方面的威胁，盖特都将成为法国总统竞选活动中实时更新的信息发源地。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

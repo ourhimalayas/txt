@@ -2,26 +2,35 @@
 ---
 
 
-## 接种率83.1%的以色列中共病毒病例感染率创新高
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2226277/)
+## 消息人士透露原定于4月举行的北京车展被推迟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226339/)
 
-翻译与编辑：灭共文明、冰糖葫芦喵
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-6.png)
 
-《网关专家》3月23日报道，**根据以色列卫生部本周二发布的数据，周一以色列确诊了14460例新病毒病例。在这些感染者中，83.1%接种了疫苗，16.1%未接种，其余0.8%未列入疫苗接种状态。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/以色列-e1648181771144.jpg)图片来自原文。
-据报道，病毒感染系数从1周前的1.00上升到1.33，**表明病毒正在扩散，而且还在加速扩散。重症患者人数也有所增加。**
 
-根据《以色列国家新闻》报道，**从1月末到2月末，每天报告的中共病毒感染症病例大幅减少，但这是一个月以来的最高值。**一天前，确诊病例12929例，周六只有7801例，周五只有7125例。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-303.png)（图片源自本文链接）
+3月25日路透社北京消息：据消息人士称，由于中共病毒(新冠病毒)在中共国的扩散，”北京国际汽车展览会 “组办方推迟了原定于4月下旬举行的活动。
 
-最近，**检测结果呈阳性的比例也有所上升，**周一进行的所有检测中有16.64%呈阳性。一周前，只有10.96%的检测结果呈阳性。
+新的日程尚未确定，组办方目前对评论请求未作出回应。
 
-报道称，上个月早些时候，以色列伊奇洛夫医院院长在最近的采访中透露，**在他们医院报告的中共病毒重症病例中，70%至80%的人完全接种了疫苗。**
+中共国最近感染人数骤增，一些省份已经实行了出行限制。
 
-伊奇洛夫医院冠状病毒病房主任雅科夫·杰里斯（Yaakov Jerris）表示，**报告的大多数严重病例都接种了疫苗，他们至少接种了三针。因此，疫苗对于预防严重疾病不可信。**
+中共病毒原因，２０２０年的北京车展也曾被从4月推迟到9月。
 
-新闻来源链接：
+信息来源：[北京モーターショー、コロナで4月予定が延期に＝関係筋（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/ee70f629e9d76a2921734846f63bcee3f0e4ef04)
 
-[Israel’s Covid-19 Cases Surge – 83.1% are Vaccinated – Infection Rate Rise to Highest Level in a Month (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/israels-covid-19-cases-surge-83-1-vaccinated-infection-rate-rise-highest-level-month/)
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
+
 
 
 

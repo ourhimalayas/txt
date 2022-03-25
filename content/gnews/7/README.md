@@ -2,21 +2,18 @@
 ---
 
 
-## 视频|国际社会应对中共威胁的最新动向
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2226278/)
+## 中共在中东的谋划（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226340/)
 
-制作：香草山视频部
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：20-10：30-02.jpeg)
+*发布：陶子*
 
-3月23日，据相关媒体消息显示，美国总统拜登将于本周四前往布鲁塞尔参加北约和G7盟国会议。会上，各成员国将就向乌克兰提供武器装备和人道主义援助、乌克兰难民危机问题，以及惩治中共对俄罗斯入侵乌克兰战争的支持等议题做出讨论。据了解，鉴于拜登与习近平并未通过视频会议达成任何共识，拜登总统将寻求与欧洲国家一起对中共做出应对，用以谴责中共对俄罗斯入侵的物质支持。
-此外，为了贯彻美国在印太地区的和平计划，联邦政府近日任命前美国国务院朝鲜政策特别代表尹汝尚为总统特使，牵头与马绍尔群岛、密克罗尼西亚联邦和帕劳三个具有重要战略意义的太平洋岛国进行谈判。消息人士指出，中共近年来一直借由旅游及贸易活动对这些太平洋岛国展开经济攻势，从而为其在此区域建立军事据点打下基础。虽然近期俄乌局势牵引着世界的注意，但美国将持续致力于印太计划，以便应对中共逐渐扩张的军事野心。
-与此同时，欧盟议会外交委员会也在一份草案中也将台湾列为重要伙伴和民主盟友，尤其在中共快速军事扩张并多次蓄意破坏印太地区和平的前提下，欧盟将与台湾一同维护印太地区的和平稳定及航行自由。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
