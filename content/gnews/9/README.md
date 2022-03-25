@@ -2,39 +2,29 @@
 ---
 
 
-## 有声|习近平不改侵台野心
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229036/)
+## 樱花时政┃普京的“魔女围猎” 俄罗斯高层多人辞职和失踪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2229073/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/普京的魔女围猎-俄罗斯高层多人辞职和失踪.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220325-00010015-abemav-000-1-view.jpg?exp=10800)
+俄罗斯国际文传电讯社报道说，总统特别代表阿纳托利·朱维斯已辞职。就普京政府自入侵乌克兰后首次辞去高层职务一事，白宫发言人佩斯科夫表示：“朱维斯自愿辞职。是离开还是不离开俄罗斯是他自己的问题。”西方媒体报道说：“朱维斯因为反对俄罗斯入侵乌克兰，已离开俄罗斯。”另外，被认为是普京总统心腹的国防部长肖伊格和军参谋总长格拉西莫夫最近也没有在公开场合露面。乌克兰总统顾问波德里亚克表示：“两位国防首脑的身影已‘无处可寻’，很是蹊跷。”
 
+据悉，这对俄罗斯来说是非常重要的人物，包括普京总统在内的3人中有2人聚在一起，就可以启动核武器开关。2月份普京总统指示包括核在内的“抑制力部队”进入戒备状态的时候，肖伊格国防长官用凶险的表情点了点头。
 
-在3月23日的大直播中，郭文贵先生再次提到了习近平及其他中共高官对台湾的侵略企图。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-122.jpg)
-郭先生透露，早在2007年，习近平就已经显示出了对台湾的野心。彼时，习近平将台湾问题作为自己掌权后必须迅速解决的一个事项。为此，他还扬言，如果美国对台湾出手相助，中共就会让台湾永沉大海，从而绝不给台湾任何偏向美国的机会。至今，习近平的这一态度仍然分毫未变。此外，中共官员也曾多次流露出在台湾制造地震的想法，即利用导弹引发7级以上的地震就可造成台湾社会的彻底瘫痪。
+英国媒体《镜报》报道说：“普京总统开始了对身边人的‘魔女围猎’。报道试图找出战争不顺利的‘替罪者’”，并暗示了因军队的计划泄露到西方而愤怒的普京和国防部长肖伊格消失的关联性。
 
-郭先生也爆料称，在俄乌战争之后，习近平欣喜地认为俄罗斯是一个值得学习研究的模板。习近平甚至在党内宣称，俄乌战争证明了中共应当对台湾实行迅速、狠毒和不惜一切的战略模式。
+信息来源：
 
+[プーチン大統領の“魔女狩り”か… ロシアで高官の辞職と失踪相次ぐ](https://news.yahoo.co.jp/articles/8b182e0745579d9733c765437b0fcfea5af8c88b)
 
-
-文字版原文：[习近平不改侵台野心](https://gnews.org/zh-hans/2222917/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

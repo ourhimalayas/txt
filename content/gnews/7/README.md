@@ -2,31 +2,35 @@
 ---
 
 
-## 七哥谈灭共的芯片—格芯（6）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2229053/)
+## 新州24日：7人感染病毒去世，其均接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2229075/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥谈灭共的芯片—格芯（6）.png)[图片来源](https://www.ntdtv.com/gb/2020/05/18/a102850115.html)
-现在是高科技能源的新时代。
+#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
 
-“烧油的动力时代” 要结束了，就像现在电动汽车的兴起。你看看这世界，美国一个Elon Musk代表中国半个国家的经济体量，代表70个落后国家的经济体量的总和都不止。
+#### 编辑/整理：小鱼儿
 
-未来所有的汽车都是用区块链技术，所有的电池都是区块链技术。如果电池不用区块链技术，电池就会成为炸弹，汽车就会成为这样的炸弹。无人驾驶汽车的时代就不可能到来，它会成为武器。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture109.png)图片来源：雅典娜设计组&Reddit
 
-接下来就是AI，这种技术的核心，最重要就是那个芯片。这个芯片要被谁掌握了，那他就可以控制你。IMB的2NM没有任何人可以掌握，这个芯片未来是跟我们的格芯一起生产。
 
-AI用在我们这些电池上，技术上，它是个相互的关系。没有电池，没有加密技术，没有这样的芯片，你没有AI。然后5G、AI，这就是咱们整个新中国联邦的大版图之一，那才是我们的城邦，那才是我们的未来！
+新南威尔士州卫生部3月24日报告，7人感染新冠病毒去世，其中4人接种三剂疫苗，3人接种两剂疫苗。去世者中，1人40多岁，1人60多岁，2人80多岁，3人90多岁。
 
-信息源：感谢文远战友提供素材
+七人中，两名来自悉尼北部，一名来自悉尼内西区，两名来自贝壳港地区，一名来自中海岸地区，一名来自中央海岸。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+自大流行开始以来，新州与新冠病毒相关的死亡总数达到 2,044 人。
+
+另外，据Zelenko医生介绍，多次接种疫苗的人群，免疫力被破坏。这就是为什么，以色利的殡葬业者看到的死亡数量，是以往的10倍甚至1000倍，而且很多是年轻人。甚至，大约50%的以色利人患有艾滋病。
+
+参考资料：[COVID-19 (Coronavirus) statistics  | 24 March NSW](https://www.health.nsw.gov.au/news/Pages/20220324_00.aspx)
+
+[Dr Zelenko talk about vaccines  destroy immune system](https://twitter.com/jersey1712/status/1507004106572918788?s=21&amp;t=dNNmmeaek2oFj88MVwjNzA)
+
+发布：Frank2021
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

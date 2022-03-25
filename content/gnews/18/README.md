@@ -2,25 +2,41 @@
 ---
 
 
-## “圣彼得堡阴谋”将清算中共国的一切
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2228863/)
+## 白宫新闻秘书再次感染新冠病毒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228888/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月23日的大直播中，郭文贵先生与战友们分享了俄乌战争接下来的可能走势。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-65.jpg)
-郭先生说，对于俄罗斯发起的这场战争，普京最初认为保守估计一周之内结束，但目前已经持续了一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一是打小规模的核战争，二是停战。但停战需要找担保人来调停，普京的“圣彼得堡阴谋”，就是让中共来做担保人，停止这场战争。表面上看体现了中共国的大国风范，但实际上，这会让全世界视国人为敌，在金融、信用、宗教等各方面进行全方位、长时间的限制或制裁，政治灾难不可避免。
+**编译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
+白宫新闻秘书简·普萨基 (Jen Psaki )周二宣布，尽管她已经“完全接种了疫苗”，但她第二次感染了 COVID-19，这迫使她选择不陪同总统拜登本周前往欧洲参加北约峰会特别活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip白宫新闻秘书再次感染新冠病毒.png)华盛顿特区 – 3 月 4 日：白宫新闻秘书 Jen Psaki 在 2022 年 3 月 4 日的每日新闻发布会上回答问题
+普萨基在周二下午的一条推文中宣布了这一消息，就在她计划与总统一起前往欧洲进行预定旅行的前一天，拜登将与北约盟国坐下来讨论俄罗斯和乌克兰之间正在进行的战争。
 
-郭先生指出，真相不会永远被掩盖。中共的所作所为，会在“圣彼得堡阴谋”下彻底暴露，但也会加剧世界对无辜中国人的仇恨。战友们需做好心理准备。
+“今天早上，为了准备去欧洲旅行，我进行了 PCR 测试， 结果测试结果呈阳性，这意味着我将遵守 CDC 的指导，不再参加总统的欧洲之行，”普萨基写道。
 
-参考链接：[3/23/2022 文贵直播：什么是“圣彼得堡的阴谋”？只要中共调解俄乌战争，中共国将被全世界制裁和清算，中共国将发生粮食危机、政治灾难以及金融、宗教和信用的崩塌；中共在中东提供无人机、挑拨离间却甩锅给美国人](https://gettr.com/post/p11ke0ac549)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获白宫新闻秘书再次感染新冠病毒1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+普萨基说：“出于高度透明，我今天分享了我的阳性测试的消息。”此后，拜登的病毒检测呈阴性。
 
-总编: 宁文静
-编辑/审核：飞虹
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“多亏了疫苗，我只出现了轻微的症状，”普萨基继续说道，并补充说她将遵循“白宫 COVID-19 协议”，在家工作，直到完成为期五天的隔离期并获得检测阴性后。
+
+这不是普萨基第一次检测出 COVID-19 呈阳性。这也不是她第一次因为她的诊断而错过一次重要的国际峰会。2021年10 月，就在拜登前往罗马参加 G-20 峰会之前，白宫新闻秘书的新冠病毒检测呈阳性。
+
+上周，前总统奥巴马和副总统卡玛拉·哈里斯的丈夫道格·埃姆霍夫宣布，尽管都打了三针疫苗，他们还是都感染了冠状病毒。
+
+本周，前第一夫人希拉里·克林顿也表示她感染了新冠病毒。在他们的声明中，克林顿、埃姆霍夫和奥巴马对获得他们的实验性 COVID-19 疫苗表示感谢，并敦促其他人接受注射。
+
+尽管公共卫生专家普遍承认注射并不能阻止病毒的传播，但还是鼓动人们接受。尽管倡导者认为注射可以减轻 COVID-19 的症状，但随着时间的推移，注射的功效已显示出稳步下降。
+
+**评论：无语，应该保护人们免受Covid病毒的所谓疫苗，竟让完全接种的普萨基第二次感染，让接受了3剂疫苗的政要感染，却还感谢有着辉瑞自己报告的两千多种不良反应，包括死亡！**
+
+**新闻来源**：[lifesitenews.com][White House press secretary Jen Psaki gets COVID again, won’t join Biden for NATO summit in Europe](https://www.lifesitenews.com/news/white-house-press-secretary-gets-covid-again-wont-join-biden-on-europe-trip-for-nato-summit/)
+
+***审核：文乐
+校对：花羽
+发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

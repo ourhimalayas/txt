@@ -15,86 +15,86 @@
 
 ---
 
-### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/1/README.md)
+### [樱花FM|中共官员批评西方对俄罗斯的制裁 &#8220;越来越不合理&#8221;](/content/gnews/1/README.md)
+ ` 樱花FM`
+
+### [防止中共干预澳洲大学科研，朝野两党出台反制措施建议](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [中共亲苏派与亲美派的巨大差异](/content/gnews/3/README.md)
+ ` NFSC News`
+
+### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/4/README.md)
  ` 秘密翻译组金融团队`
 
-### [文贵大直播 3/25 真相之下，如此不堪的邪共军事“实力”](/content/gnews/2/README.md)
+### [文贵大直播 3/25 真相之下，如此不堪的邪共军事“实力”](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [3/23/2022 文贵直播: 全世界都站在乌克兰一边，欧美英日的GDP总和占世界的70%，俄罗斯即使背后有中共支持也打不赢俄乌战争；俄罗斯和中共国会被解体](/content/gnews/3/README.md)
+### [3/23/2022 文贵直播: 全世界都站在乌克兰一边，欧美英日的GDP总和占世界的70%，俄罗斯即使背后有中共支持也打不赢俄乌战争；俄罗斯和中共国会被解体](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [新州24日：7人感染病毒去世，其均接种疫苗](/content/gnews/4/README.md)
+### [新州24日：7人感染病毒去世，其均接种疫苗](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步](/content/gnews/5/README.md)
+### [视频|世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步](/content/gnews/8/README.md)
  ` KarmaLabs`
 
-### [樱花时政┃普京的“魔女围猎” 俄罗斯高层多人辞职和失踪](/content/gnews/6/README.md)
+### [樱花时政┃普京的“魔女围猎” 俄罗斯高层多人辞职和失踪](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈灭共的芯片—格芯（6）](/content/gnews/7/README.md)
+### [七哥谈灭共的芯片—格芯（6）](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [波罗的海三国将大概率参与乌克兰的对俄战争](/content/gnews/8/README.md)
+### [波罗的海三国将大概率参与乌克兰的对俄战争](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|习近平不改侵台野心](/content/gnews/9/README.md)
+### [有声|习近平不改侵台野心](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类](/content/gnews/10/README.md)
+### [3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈灭共的芯片—格芯（5）](/content/gnews/11/README.md)
+### [七哥谈灭共的芯片—格芯（5）](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登宣布新的乌克兰援助和俄罗斯制裁](/content/gnews/12/README.md)
- ` 波士顿五月花农场`
-
-### [有声|俄罗斯侵略行为屡受挫 国际制裁进一步加码](/content/gnews/13/README.md)
+### [有声|俄罗斯侵略行为屡受挫 国际制裁进一步加码](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [中共助纣为虐 国人被指元凶](/content/gnews/14/README.md)
+### [中共助纣为虐 国人被指元凶](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [岸田首相派遣古河法务大臣前往波兰接收难民](/content/gnews/15/README.md)
+### [岸田首相派遣古河法务大臣前往波兰接收难民](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|乌克兰在战争中的损失难以估量](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [白宫新闻秘书再次感染新冠病毒](/content/gnews/17/README.md)
+### [白宫新闻秘书再次感染新冠病毒](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“圣彼得堡阴谋”将清算中共国的一切](/content/gnews/18/README.md)
+### [“圣彼得堡阴谋”将清算中共国的一切](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [秘翻在线：退休5年的铁道部部长也逃不过被清算的命运](/content/gnews/19/README.md)
+### [秘翻在线：退休5年的铁道部部长也逃不过被清算的命运](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [网曝唐山市警察严查私自出门人员 违者被抓拘留](/content/gnews/20/README.md)
+### [网曝唐山市警察严查私自出门人员 违者被抓拘留](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [克里斯汀·安德森火力全开 痛斥特鲁多为暴君！](/content/gnews/21/README.md)
+### [克里斯汀·安德森火力全开 痛斥特鲁多为暴君！](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [人类未来战争基本是利用高科技进行的远程战争](/content/gnews/22/README.md)
+### [人类未来战争基本是利用高科技进行的远程战争](/content/gnews/23/README.md)
  ` thedawn`
 
-### [资本逃离香港意味着中美之战已经开始](/content/gnews/23/README.md)
+### [资本逃离香港意味着中美之战已经开始](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [秘翻在线：中共宵禁式的防疫管理下牺牲的都是底层老百姓](/content/gnews/24/README.md)
+### [秘翻在线：中共宵禁式的防疫管理下牺牲的都是底层老百姓](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“3·21”东航MU5735第二个黑匣子无影无踪，死无对证了❗️](/content/gnews/25/README.md)
+### [“3·21”东航MU5735第二个黑匣子无影无踪，死无对证了❗️](/content/gnews/26/README.md)
  ` mayflowertranslate`
 
-### [拜登总统抵达布鲁塞尔参加紧急北约峰会](/content/gnews/26/README.md)
+### [拜登总统抵达布鲁塞尔参加紧急北约峰会](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [联大以压倒性多数通过决议要求俄罗斯停战 中共国依然弃权](/content/gnews/27/README.md)
- ` 日本東京方舟農場`
 
 ### [拜登警告粮食短缺将成为现实](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

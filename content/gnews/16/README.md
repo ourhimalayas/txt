@@ -2,40 +2,26 @@
 ---
 
 
-## 有声|乌克兰在战争中的损失难以估量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2228915/)
+## 中共助纣为虐 国人被指元凶
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2228950/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月23日，据联合国当天发布的一份最新报道显示，自俄罗斯入侵乌克兰以来，战争已经使乌克兰超过90% 的居民陷入贫困和极度脆弱的困境，长此以往，乌克兰经济可能会倒退20年。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-7.jpeg)
-数据表明，俄乌战争已经让超过一千八百万人受到影响，他们当中的绝大多数业已流离失所。在乌克兰境内，二分之一的当地企业已完全关闭，其余的则被迫以远低于正常产能的方式运营。同时，乌克兰邻国一直在努力接纳超过 300 万难民。这一系列相关人员所需要的补贴每月超过4.3亿美金。
+作者：香草山教育部 Naughty(文行)，澳喜农场 Leo M
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日大直播中，郭文贵先生就美国总统拜登表示俄乌战争中，中共国没有向俄罗斯提供武器一事，进行了深度分析。郭先生指出，拜登的这种说法，实际意在强调中共国向俄方提供了除武器以外的一切支持，包括资金、粮食、通讯、情报等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-59.jpg)
+郭先生说，尽管驻美大使秦刚在接受美国媒体采访时，一再否认中共国向俄罗斯提供了军事援助，但由于中共国所有的武器技术都是来自俄罗斯，在黑龙江、牡丹江、鸭绿江属于俄罗斯的武器加工厂就多达70家，俄罗斯不需要中共国提供武器。战争的本质就是烧钱。人民币石油化，数字人民币对美国的挑战，其帮助远远大于俄乌战争本身。
 
-目前，联合国开发署和难民署正在合作制定新的重建计划，用以通过创收和就业来支持难民和收容社区。此外，美国联邦政府近期也为在美乌克兰人提供申请临时保护身份的渠道。据悉，约有七万五千乌克兰人将有可能在美国获得临时驱逐救济和工作许可证。
+郭先生警告，由于中共和俄罗斯如此密切的合作，西方人已认识到，中共国是俄罗斯入侵乌克兰的元凶而不只是帮凶，俄罗斯仅是被操纵的替死鬼。俄乌战争将使中国人陷入悲惨的境地。这是中国人难以承受的结果。
 
+参考链接：[**2022年3月23日 文贵大直播：俄乌战争实为世界与俄中的政治大较量；战后世界经济政治变化与中国人的灾难**](https://gettr.com/streaming/p11h7xt9462)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-
-
-文字版原文：[乌克兰在战争中的损失难以估量](https://gnews.org/zh-hans/2223501/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+总编: 宁文静
+编辑: 静言
+审核: 宁文静
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
