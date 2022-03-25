@@ -2,34 +2,31 @@
 ---
 
 
-## 朝鲜在东海岸发射可能的弹道导弹
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2227830/)
+## 视频|爱尔兰是一个慈善伟大的国家【非脱敏】
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2228027/)
 
-翻译 : 里奇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-25-113228.jpg)图片来源: newsmax
+制作：大直播短视频组
 
-韩国和日本军方表示，朝鲜周四向其东海岸附近海域发射了至少一枚弹道导弹，这是自上周据报道一枚导弹在半空中爆炸以来的首次明显试射。
+视频制作: 文生
 
-韩国参谋长联席会议表示，他们发现朝鲜发射了一枚“不明发射体”。
+文案：爱米粒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-11.png)
+在都柏林，一位87岁退休老人收留乌克兰难民一家三口，爱尔兰时报3月18日消息
 
-日本政府也报道了这次发射，并表示它可能是一枚弹道导弹。
+审核/编辑/发稿：Yuki jiang
 
-韩国军方表示，3 月 16 日，朝鲜发射了一枚疑似导弹，该导弹似乎在平壤上空升空后不久爆炸，有报道称拥有核武器的朝鲜正试图试射其迄今为止最大的导弹。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
 
-美国和韩国警告称，朝鲜可能准备自 2017 年以来首次全射程发射洲际弹道导弹 (ICBM)，这违反了联合国安理会 (UNSC) 的决议。
-
-新闻来源: [newsmax][N.Korea Fires Possible Ballistic Missile Off East Coast](https://www.newsmax.com/newsfront/north-korea-fires-missile/2022/03/24/id/1062679/)
-
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
 **更多资讯，更多关注**
+
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
+
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
+
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

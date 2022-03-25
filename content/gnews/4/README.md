@@ -2,37 +2,16 @@
 ---
 
 
-## 视频|普京可能被驱逐
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2227956/)
+## 20220323文贵大直播：疫苗灾难导致互害的报复社会行为将越来越多
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2228081/)
 
-制作：大直播短视频组
+作者：东京樱花团小视频组
 
-视频制作: 方寸之间（Old\_Fang）
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
-文案：晓理
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-11.png)
-乌克兰国防情报总局表示，俄罗斯总统弗拉基米尔·普京可能很快就会被驱逐出克 里姆林宫，以”恢复与西方的经济联系”。
-
-审核/编辑/发稿：Yuki jiang
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
-
-**更多资讯，更多关注**
-
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
-
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

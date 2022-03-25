@@ -2,26 +2,29 @@
 ---
 
 
-## 视频|新中国联邦乌克兰救援行动仍在继续
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2227657/)
+## 财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2227949/)
 
-制作：香草山视频部
+**图/文｜CP **
+**发布时间｜25/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/貝萊德CEO：俄烏戰爭終結全球化-加快數字貨幣發展.jpg)
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。同时，自当地时间3月5日起，乌克兰免费救援巴士将于每天下午从利沃夫出发，前往波兰。
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-求助方式及详细信息请参考以下视频。（请播放视频，视频时长1’19’’）
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-视频链接：https://www.gettr.com/post/pzvg8vdf4f
 
-中国共产党是全世界灾难的根源，我们和乌克兰人站在一起。只有消灭中国共产党才能拯救全人类。感谢大家收看新中国联邦新闻，我们下次再见。
-发稿：文敬
+全球最大资产管理公司贝莱德/黑岩（BlackRock）行政总裁芬克（Larry Fink）周四（24日）公布了一份写给股东的公开信，他在信中写到，俄罗斯对乌克兰发起的战争预示着30年的全球化已经终结，因为这场冲突颠覆了自 1990 年冷战结束以来形成的世界秩序，并将产生持久的全球经济后果。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+芬克警告指，过去两年全球因疫情导政的供应链中断，令全球通胀加剧。俄乌战争的爆发更进一步令供应链大规模地重新定位，促使企业退出全球供应链，让各国央行在价格上涨或经济活动减少之间做出艰难的选择。
+
+另外，芬克特别提到战争对数字货币的影响，他认为这场战争会促使各国重新评估对货币的依赖性，贝莱德亦因客户对加密货币的兴趣增加，而正在研究数字货币和稳定币以及相关技术。他指出，“一个精心设计的全球数字支付系统，可以加强国际交易的结算，同时降低洗黑钱和贪腐的风险。”
+
+芬克在信中所表达的观点与去年接受采访时的说法有很多变化，当时芬克对记者表示，他对数字货币的波动性有担忧，并认为现时将它视为一种交易工具还为时过早。
+
+來源｜[BlackRock](https://www.blackrock.com/corporate/investor-relations/larry-fink-chairmans-letter)、[Forbes](https://www.forbes.com/sites/sergeiklebnikov/2022/03/24/blackrock-ceo-larry-fink-says-russia-ukraine-war-is-upending-world-order-and-will-end-globalization/?sh=1368c14057eb)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 
