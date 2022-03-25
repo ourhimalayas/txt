@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 5:32 PM (UTC)`
+
+
+![img](https://media.gettr.com/group13/origin/2022/03/25/17/9490b1e3-8606-4365-1f4b-9a4606b6b0f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/25/2022 5:07 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月24日第20天当日救援统计：<br/>Medyka救援站接待：约50人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7412人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 20 - Date: March 24, 2022 :<br/>Medyka Rescue Station Reception: about 50 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7412 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -150,15 +157,6 @@ Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Y
 
 
 ![img](https://media.gettr.com/group23/origin/2022/03/24/18/ce279f72-a6f3-f9b9-b079-3d3cd052012b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 3/21/2022 5:36 PM (UTC)`
-
-#精粮采访 #新中国联邦 <br/><br/>#乌克兰救援 行动跟踪报道(中英文字幕版)。<br/>今天采访的是一位墨西哥裔美国画家罗宾先生，画家在一面白色背景墙上创作，"这个发生的战争让我感到难过","我不想错过这个历史时刻来来抗议",要写上“立即停止战争”字样。他认为画笔就是他的武器，整个创作大概还需要6天...<br/>人们爱与正义的力量正在汇聚成海洋,定能淹没战争的炮火!!💖👍<br/><br/>❤️NFSC Press #FineFood Report from NFSC's #UkraineRescue. He Interviews with a Mexican American painter Mr. Robenz ,who is drawing on a white background wall. We can see some words “STOP THE WAR NOW” on the painting. He agrees the brush is his weapon and the unfinished painting may need six days.
-![img](https://media.gettr.com/group39/origin/2022/03/21/17/6a4c80ab-47bb-5738-4969-dde97bb5113a/out.jpg)
 
 ---
 
