@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 1:25 AM (UTC)`
+
+2022.03.24 晚《新中国联邦新闻访谈》我们理解不了的灾难；邪恶一分钟没休息；出境新闻
+![img](https://media.gettr.com/group9/origin/2022/03/25/01/2fcb0e36-c249-dc4c-11ce-c88f24adb9d9/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/25/2022 12:49 AM (UTC)`
 
 2022.03.24 晚 《新中国联邦新闻》中共企图利用人民币石油化称霸世界； 郭文贵先生爆东航坠机事件真相
@@ -153,13 +160,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 大实话今天搬到@yezhaoying
 > `@yezhaoying 3/24/2022 2:44 PM (UTC)`<br/>叶钊颖-郝海东-飞飞 《大实话·第十五场》： “新中国联邦除恶扬善，灭共之战一定会赢！”   2022-03-24
 ![img](https://media.gettr.com/group13/origin/2022/03/24/14/7820e217-8090-c568-430f-190de1275e09/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/24/2022 1:22 PM (UTC)`
-
- 3月24号：尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！
-![img](https://media.gettr.com/group47/getter/2022/03/24/13/6afdead0-b262-6f38-a7f4-d308e1cc5ac5/out.jpg)
 
 ---
 
