@@ -2,28 +2,38 @@
 ---
 
 
-## 联合国大会压倒性通过决议，要求俄罗斯立即停战！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2227109/)
+## 中日财经爆| 欧盟拒绝用卢布购买俄天然气 寻求替代方案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227201/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWGETTR.jpg)
-俄罗斯入侵乌克兰已超过1个月，联合国大会（UN General Assembly）在当地时间24日压倒性通过决议，要求俄罗斯立即停止在乌克兰的战争，并加强保护平民。不过该决议并不具有约束力。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/欧盟拒绝用卢布购买俄天然气-寻求替代方案.png)[图片来源](https://www.worldfinance.com/markets/russias-irkutsk-oil-becomes-one-of-the-biggest-producers-of-oil-and-gas)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/38652937-c909-44f3-a2ab-0cff0f978620.jpg)图片来源：United Nations
+路透社3月24日报导，欧盟寻求迅速遏制对俄罗斯化石燃料的依赖，将和美国于周五公布一项协议，向欧洲供应更多的美国液化天然气(LNG)。
 
-综合外媒报导，联合国大会以140票国家赞成、5票反对、38票弃权通过由美国和20几个国家共同提出的提案。
+欧洲最大的天然气供应国俄罗斯入侵乌克兰，将已经很高的能源价格推到了创纪录的水平，并促使欧盟承诺今年将俄罗斯的天然气使用量减少三分之二，方法是增加从其他国家的进口并迅速扩大可再生能源。
 
-通过的决议文写到，「要求俄罗斯联邦立即停止对乌克兰的战争行为，特别是停止一切对平民和民用目标的攻击」，并且还要求要保护平民、医疗人员、救援人员和记者。
+消息人士称，美国总统拜登周四在布鲁塞尔出席欧盟领导人峰会时承诺，美国今年向欧洲提供的液化天然气将比之前的计划至少增加150亿立方米。该协议还将包括2023年美国向欧盟出口更多的液化天然气。
 
-简评：虽然该决议不具有约束力，但具有一定的政治威慑力。当各国联合起来反对普京时，即使普京一意孤行，也能对背后的元凶中共起到敲山振虎的效果。虽然流氓基本不听呼吁只臣服于拳头，至少能让战火中的人民感到些温暖吧，因为这世界还没有忘了他们！
+俄罗斯是欧盟最大的天然气供应国，2021年共向欧盟输送1,550亿立方米的天然气。其中大部分是通过管道输送，150亿立方米是液化天然气。
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022325W0012](https://www.ftvnews.com.tw/news/detail/2022325W0012)
+俄罗斯周三表示，包括欧盟成员国在内的“不友好”国家必须开始用卢布购买俄罗斯的石油和天然气。这加剧了对欧洲天然气供应可能中断的担忧。
 
-撰稿/发布：一叶知秋
+周四，一些欧盟领导人表示，这一要求与供应合同相抵触。
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+“没有人会用卢布付款，”斯洛文尼亚总理Janez Jansa说。
+
+消息来源:
+[欧盟与美国达成液化天然气协议 拒绝以卢布购买俄气要求–消息人士](https://cn.reuters.com/article/eu-usa-gas-deal-sources-0324-thur-idCNKCS2LM034?il=0)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -15,62 +15,62 @@
 
 ---
 
-### [乌克兰摇滚乐团主唱在音乐节向世界发声](/content/gnews/1/README.md)
- ` G-NEWS TAIWAN`
+### [中日财经爆| Severstal成俄乌战争以来首家美元债违约俄罗斯企业](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯纳粹行为，将四十万乌克兰人强行带入俄罗斯境内](/content/gnews/2/README.md)
+### [樱花FM|中日财经爆：日本冻结俄罗斯高官资产，又增加15人和9个团体](/content/gnews/2/README.md)
+ ` 樱花FM`
+
+### [中日财经爆| 潘石屹收电费赚差价 SOHO再被罚1.15亿](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆| 欧盟拒绝用卢布购买俄天然气 寻求替代方案](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中日财经爆| 俄乌战争后“前所未见”的资金流出中共国](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文•贵天成——文贵先生谈“圣彼得堡”（三）](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中日财经爆| 欧盟就反科技巨头垄断法案达成临时协议](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄罗斯纳粹行为，将四十万乌克兰人强行带入俄罗斯境内](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [每日快报：中共国外长将与印度外长进行突然会面](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [联合国大会压倒性通过决议，要求俄罗斯立即停战！](/content/gnews/4/README.md)
- ` 蓝莲花农场`
-
-### [为什么灭共由北到南](/content/gnews/5/README.md)
+### [为什么灭共由北到南](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [最终只有新中国联邦能帮中国人](/content/gnews/6/README.md)
+### [最终只有新中国联邦能帮中国人](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [中共想在中东乱世把中东能源人民币化干掉美元](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [中共在中东挑拨离间](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [2018年8月12日 郭文贵先生直播 全文字版](/content/gnews/9/README.md)
- ` 温哥华扬帆农场《文贵大直播》全文听写组`
-
-### [美国评估俄军袭乌导弹失败率最高达60%](/content/gnews/10/README.md)
+### [美国评估俄军袭乌导弹失败率最高达60%](/content/gnews/11/README.md)
  ` 波士顿五月花农场金融部`
 
-### [视频|马斯克母亲声援乌克兰「脱敏-带海报」](/content/gnews/11/README.md)
+### [视频|马斯克母亲声援乌克兰「脱敏-带海报」](/content/gnews/12/README.md)
  ` 爆料视频`
 
-### [俄愿接受比特币作油气支付方式 美欧联手打击规避制裁](/content/gnews/12/README.md)
+### [俄愿接受比特币作油气支付方式 美欧联手打击规避制裁](/content/gnews/13/README.md)
  ` 波士顿五月花农场金融部`
 
-### [视频|斯汀歌曲声援乌克兰「脱敏」](/content/gnews/13/README.md)
+### [视频|斯汀歌曲声援乌克兰「脱敏」](/content/gnews/14/README.md)
  ` 爆料视频`
 
-### [有声｜联大通过乌克兰人道问题决议](/content/gnews/14/README.md)
+### [有声｜联大通过乌克兰人道问题决议](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频|伟大的乌克兰女战士「脱敏」](/content/gnews/15/README.md)
+### [视频|伟大的乌克兰女战士「脱敏」](/content/gnews/16/README.md)
  ` 爆料视频`
 
-### [有声｜美将制裁违反《不扩散法》的中俄朝实体和个人](/content/gnews/16/README.md)
+### [有声｜美将制裁违反《不扩散法》的中俄朝实体和个人](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [联合国大会通过改善乌克兰人道主义危机决议](/content/gnews/17/README.md)
+### [联合国大会通过改善乌克兰人道主义危机决议](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [俄军入侵乌克兰一个月 战局陷入焦灼](/content/gnews/18/README.md)
+### [俄军入侵乌克兰一个月 战局陷入焦灼](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
-
-### [有声｜最后通牒 俄军传接最终命令 “战争结束日”曝光](/content/gnews/19/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [秘翻在线：川普起诉克林顿等人在其 &#8220;俄罗斯丑闻 &#8220;中相互勾结](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
