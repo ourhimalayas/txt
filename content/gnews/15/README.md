@@ -2,87 +2,24 @@
 ---
 
 
-## 拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2225912/)
+## 樱花时政┃瑞士已冻结超过61亿美元的俄受制裁资产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226140/)
 
-**拜登总统：**
-我宣布对 400 多名 [#俄罗斯](https://gettr.com/hashtag/%23%E4%BF%84%E7%BD%97%E6%96%AF) 精英、立法者和国防公司实施额外制裁，以回应普京在乌克兰的战争选择。 他们个人从克里姆林宫的政策中获益，他们应该共享疼痛。
+撰稿：东京樱花团/上善若水
 
+瑞士联邦经济事务官员欧文·布林格3月24日表示，瑞士已冻结价值57.5亿瑞士法郎（约合61.7亿美元）的俄在瑞资产，总额将继续增加，已涉及近900个人和62家公司。自中立国瑞士因俄罗斯入侵乌克兰而开始对其采取欧盟制裁以来，该国政府一直拒绝估计被冻结或可能受到制裁的俄罗斯资产规模。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-127.jpg)[图片来源](https://www.trtworld.com/business/switzerland-freezes-over-6b-worth-of-russian-assets-under-sanctions-55776)
+布林格指出：“所引用的远远超过50亿瑞士法郎的数字是瞬时数字，随着进一步报告的出现和欧盟制裁名单的潜在增加这个数字会进一步上升。”
 
+自俄乌战争爆发后，瑞士联邦委员会2月28日举行特别会议，决定参与欧盟对俄制裁计划，冻结俄有关个人和机构资产，禁止瑞士公司与被制裁对象进行业务往来。
 
-> I’m announcing additional sanctions on over 400 Russian elites, lawmakers, and defense companies in response to Putin’s war of choice in Ukraine.
->  
-> They personally gain from the Kremlin’s policies, and they should share in the pain.
-> — President Biden (@POTUS) [March 24, 2022](https://twitter.com/POTUS/status/1506986001176141836?ref_src=twsrc%5Etfw)
+据欧盟3月22日介绍，目前，欧盟采取的相关制裁措施总共适用于俄罗斯及白俄罗斯的877名个人和62个实体。
 
+信息来源：[瑞士已冻结超过61亿美元的受制裁俄罗斯在瑞资产](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220325-%E7%91%9E%E5%A3%AB%E5%B7%B2%E5%86%BB%E7%BB%93%E8%B6%85%E8%BF%8761%E4%BA%BF%E7%BE%8E%E5%85%83%E7%9A%84%E5%8F%97%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%9C%A8%E7%91%9E%E8%B5%84%E4%BA%A7)
 
-
-**拜登总统：**
-北约从未像今天这样团结。 入侵乌克兰后，普京的现状与他的图谋完全相反。
-
-
-
-> NATO has never been more united than it is today. 
-> 
-> Putin is getting exactly the opposite of what he intended to have as a consequence of going into Ukraine.
-> — Joe Biden (@JoeBiden) [March 25, 2022](https://twitter.com/JoeBiden/status/1507160840566460416?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：**
-今天，我们宣布对位于俄罗斯、朝鲜和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的六名支持朝鲜和叙利亚导弹和扩散计划的人实施制裁。世界必须对朝鲜和叙利亚推进其核扩散计划的努力保持警惕。
-
-
-
-> Today, we are announcing sanctions against six persons located in Russia, the DPRK, and the PRC for supporting missile and proliferation programs in the DPRK and Syria. The world must remain vigilant of efforts by the DPRK and Syria to advance their proliferation programs.
-> — Secretary Antony Blinken (@SecBlinken) [March 25, 2022](https://twitter.com/SecBlinken/status/1507154922848100353?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院：**
-美国总统在比利时布鲁塞尔发表讲话：“北约从未像今天这样团结一致。普京进入乌克兰的结果与他的意图完全相反。”完整发言请看：
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) speaking in Brussels, Belgium: “[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) has never been more united than it is today. Putin is getting exactly the opposite of what he intended to have as a consequence of going into Ukraine.” Full remarks: [https://t.co/TO1M997Wxe](https://t.co/TO1M997Wxe). [pic.twitter.com/5NgdW5xjcu](https://t.co/5NgdW5xjcu)
-> — Department of State (@StateDept) [March 24, 2022](https://twitter.com/StateDept/status/1507116888895246342?ref_src=twsrc%5Etfw)
-
-
-
-**参议员瑞克·斯科特: **
-随着俄罗斯对乌克兰发动战争并威胁西方，朝鲜发射弹道导弹，[#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 加强对 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 的侵略，拜登选择软弱而不是实力。 这个可怜的提议甚至赶不上拜登肆虐的通货膨胀。 【转国会山报推文：拜登要求提供8130亿美元的国防和国家安全支出：报告（附链接）】
-
-
-
-> As Russia wages war on Ukraine & threatens the West, North Korea launches ballistic missiles & Communist China heightens aggression toward Taiwan, Biden chooses weakness over strength. 
-> 
-> This pathetic proposal doesn’t even keep up with Biden’s raging inflation. [https://t.co/cbl4bvoV1x](https://t.co/cbl4bvoV1x)
-> — Rick Scott (@SenRickScott) [March 24, 2022](https://twitter.com/SenRickScott/status/1507096765811539988?ref_src=twsrc%5Etfw)
-
-
-
-**众议员吉姆·班克斯：**
-俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 正在利用签证计划在美国发展其国营媒体。 传播 [#共产主义](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89) 宣传不是“高技能”，也不利于美国人民/经济。 这必须结束！ 【转axios新闻网：宣传人员探足“高技能”签证计划 记录显示，外国宣传机构 —— 包括来自俄罗斯和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的宣传机构 —— 利用美国的一项旨在吸引高技能工人来美的签证计划，将其记者、编辑和制片人安置在他们的美国前哨。】
-
-
-
-> Russia and China are exploiting visa programs to grow their state-run media outlets in the US.
->  
-> Spreading communist propaganda is not a "high skill" and does not benefit the American people/economy. This must end![https://t.co/LWnyJVW8Xd](https://t.co/LWnyJVW8Xd)
-> — Jim Banks (@RepJimBanks) [March 24, 2022](https://twitter.com/RepJimBanks/status/1507076848672546817?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克·华尔兹: **
-如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 要阻止将俄罗斯从G20中驱逐出去,我们需要让俄罗斯经济变得无关紧要,但如果习近平不断向普京输送生命线,我们就无法做到这一点 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 最想要的是进入欧洲市场和美元.我们需要把这作为抓手 【视频中华尔兹说:中俄狼狈为奸,针对中共国暗地里对俄的支持要有相应的制裁】
-
-
-
-> If China is going to block expelling Russia from the G20, we need to make the Russian economy irrelevant but we can't do that if Xi keeps throwing Putin lifelines.
-> 
-> What China wants most is access to European markets & American dollars. We need to start using that as leverage. [pic.twitter.com/13yyhgY9Sn](https://t.co/13yyhgY9Sn)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 25, 2022](https://twitter.com/michaelgwaltz/status/1507168136461647876?ref_src=twsrc%5Etfw)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
 
  

@@ -2,11 +2,11 @@
 ---
 
 
-## 对台湾尽力而为就好（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226109/)
+## 七哥回忆当年和高岗夫人谈及中共内部的亲苏派和亲美派（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226258/)
 
 #### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-30_9-40二1-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-00_10-10一1.png)
 *发布：陶子*
 
 更多资讯，请关注：

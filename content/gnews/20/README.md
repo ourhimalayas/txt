@@ -2,30 +2,31 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月24日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2225706/)
+## 无苗欧文彻底解禁！半年抗争终于回归
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2225846/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-25.png)
+据3月25日虎扑体育报道，纽约即将执行新政策，这也意味着篮网球员凯里-欧文正式获准出战篮网主场的比赛。坚决不打中共病毒疫苗的欧文经过半年的坚持，终于迎来了彻底回归！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-19.png)
-校对：Stay文苑
+**欧文疫苗事件全时间线回顾**
 
-编辑：Stay文苑
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-297.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-170.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-140.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-106.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-89.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-97.png)图片来源：虎扑体育
 
-发稿：Stay文苑
 
-新闻：[https://gettr.com/post/p11qho43142](https://gettr.com/post/p11qho43142)
-访谈：[https://gettr.com/post/p11qllq03a2](https://gettr.com/post/p11qllq03a2)
+经过181天的艰难抗争，欧文顶住了来自全世界舆论声讨的压力，终于用行动捍卫了自己的立场，更是用行动捍卫了自由！坚定的无苗族！欧文！MVP！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
+新闻来源：[虎扑体育](https://lite.hupu.com/cs/hotevent?pageId=77&amp;night=0)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

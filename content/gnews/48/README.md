@@ -2,27 +2,28 @@
 ---
 
 
-## 樱花时政┃中共“千人计划”骨干成员欺骗美国签证获刑入狱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221813/)
+## 对民主自由的恐惧让普京发动战争
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2221584/)
 
-撰稿：东京樱花团/皓月当空郭
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+郭文贵先生在3月22日的盖特中谈到普京要拿下乌克兰的根本原因，就是害怕乌克兰民主自由的政治气候传播到俄罗斯，害怕乌克兰良好的社会民主体制，民天下的政治制度让俄罗斯人看到真相，都渴望拥有乌克兰的社会制度，从而导致自己独裁统治的终结。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-82.jpg)
+郭先生表示中国也是一样，如果中国人能够看到现在的台湾，日本人们的生活和社会制度，就不会有人支持CCP去打台湾。
 
-据美国之音3月24日报道：美国司法部3月23日宣布：美国一个大陪审团认定新泽西州一名华裔男子隐瞒为中共国政府雇员骗取美国签证罪名成立。他将面临长达五年的监禁。
+郭先生指出奴隶们一旦意识到自己被奴役，就会起来消灭掉奴隶主。这次俄乌战争，不是因为欧洲武器东扩，而是欧洲和乌克兰的政治文明和民主社会体制让普京感到了恐惧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-20.jpg)图片来源于本文链接
+参考链接：[世界经济大战……粮食大战……已经前面开始！](https://gettr.com/post/p11bpsp95fb)
 
-新泽西州李堡镇居民，今年59岁的柳忠三(Zhongsan Liu) 被控在主管中国国际人才交流协会驻当地办事处工作期间以欺骗手段为中共国政府雇员申请并获得美国访问学者(J-1)签证，有关人士在获得签证后主要并非在美国研究部门做访问学者，而是在中国国际人才交流协会为中共国政府工作，包括招募美国研究人员为中共国政府工作。法庭指控柳忠三帮助这些中共国政府雇员造假，以便能继续留在美国非法为中共国政府工作。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-中共国的官方资料显示，中国国际人才交流协会隶属科技部外国专家局，主要工作是“聘请外国专家来华工作、选派中共国管理和技术人员赴境外实习培训、协助中外组织发展友好往来和经济关系。” 该协会是实施中共国“千人计划”的一个主要机构。
+总编：zhong
+编辑：zhong
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-这一事件，再此验证了文贵先生引领的爆料革命几年前的爆料，就是中共“2025”和“千人计划”，包括“孔子学院”等等！如今中共这些偷盗计划和“三F方案”已经被西方所看清，这一宣判表示美国已在行动中！而新中国联邦所倡导的与西方实现“千年和平”，也必将被西方所欢迎和认可！
-
-消息来源：
-[美国一个大陪审团认定“千人计划”骨干欺骗美国签证罪名成立](https://www.voachinese.com/a/6498882.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

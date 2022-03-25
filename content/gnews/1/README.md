@@ -2,11 +2,11 @@
 ---
 
 
-## 习是个什么样的人（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226144/)
+## 七哥谈俄罗斯和前苏联政治（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226276/)
 
 #### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-46_9-50一2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10_10-20一1.png)
 *发布：陶子*
 
 更多资讯，请关注：

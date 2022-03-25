@@ -2,27 +2,25 @@
 ---
 
 
-## 俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226041/)
+## 视频|港深疫情失控 粮食危机迫在眉睫
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2226169/)
 
-**图/文｜CP**
-**发布时间｜25/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/英國進一步制裁俄羅斯-涉及65個實體及個人.jpg)
+制作：香草山视频部
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+郭文贵先生在3月23日大直播中表示，中共病毒疫情在香港、深圳已失控。
 
+根据战友提供的情报，港共政府瞒报中共病毒死亡人数，实际死亡人数恐超上报数量的5倍；仅仅在深圳某区，每天约1700人死于中共病毒。而在病毒肆虐，和战争的当下，粮食危机已迫在眉睫。
 
-**英国外交大臣卓慧思（Liz Truss）周四（24日）宣布新一轮对俄罗斯的制裁措施，涉及65个实体及个人，主要针对战略行业、银行和商业精英。**实体方面，包括俄罗斯铁路﹑生产俄罗斯无人机的国防公司Kronshtadt、瓦格纳集团（据称是负责暗杀泽连斯基的俄罗斯雇佣军组织）、全球最大的钻石生产商 Alrosa 及6间银行等。而个人方面，万富翁石油大亨尤金·施维德勒（Eugene Shvidler）、俄罗斯外长拉夫罗夫继女波琳娜·科瓦列娃（Polina Kovaleva），以及被俄军扶植成梅利托波尔（Melitopol）代理市长的丹尼尔琴科（Galina Danilchenko）。
+发稿：Daxia
 
-所有被制裁对象在英国的资产将全部冻结，并禁止往返英国。预计实体总资产达 5000 亿英镑，寡头及家属的个人净资产超过1500亿英镑。自俄罗斯入侵乌克兰以来，英国已经制裁了俄罗斯1000多名个人和企业。
+![图片](https://media.discordapp.net/attachments/942386408801337424/948070260186161232/3.png?width=268&amp;height=369)
 
-卓慧思表示：“这些企业寡头与受雇的暴徒合谋杀害无辜的百姓，为此，让他们付出应有代价是合乎公义的。普京不应该再抱有任何幻想，我们和盟友们团结一致，会继续收紧对俄罗斯的经济制裁，以确保他们对乌克兰的侵略失败。”
-
-來源｜[Gov.UK](https://www.gov.uk/government/news/foreign-secretary-announces-65-new-russian-sanctions-to-cut-off-vital-industries-fuelling-putins-war-machine)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
