@@ -17,6 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@youzi_yinhe 3/25/2022 1:43 AM (UTC)`
+
+关于之前采访妮可以后，日本产经新闻3/25发出以下报道，<br/><br/>文章标题～多样的难民支援<br/>日本产经新闻 巴黎分社社长 三井美奈女士<br/><br/>（前部分省略）<br/>〜这时候我听到有中文，于是我就过去看，发现那是一个在美国生活的中国人的救援团体。 在他们的帐篷上画着一面红色的中国国旗被打了一个大大的叉的标志。 <br/><br/>一位女负责人对我说：'由于中国支持俄罗斯，使我们也遭遇了冷眼，这是一次表明我们与中国共产党无关的行动"。 <br/><br/>事实上，据说这个活动是由反对习近平政权的流亡中国人富豪资助的。 <br/><br/>看到在帐篷里，有在给难民分发方便面(杯面)。<br/><br/><br/>@witchpeace @Miles 
+![img](https://media.gettr.com/group42/getter/2022/03/25/01/c48025c0-7cb9-6bc5-beb7-7a19ef6fee03/14c23bfcea3d472345b0eece45e851e3.jpg)
+> `@miles 3/22/2022 11:54 AM (UTC)`<br/>【Ukraine Rescue】03/18/22 Nicole introduces the NFSC Ukraine Rescue Operation to the Director of the Japanese 'Sankei Shimbun' in Paris (Mina Mitsubishi-Ikuma): Our volunteers from all over the world have successfully rescued 1838 refugees and Chinese from Ukraine. Although the CCP has been sabotaging our rescue efforts, we have proven through our actions that we are not only different from the CCP, but are determined to take it down.<br/><br/>【乌克兰救援】03/18/22 妮可向日本‘产经新闻’驻法国巴黎分社的社长 (Mina Mitsubishi-Ikuma)介绍新中国联邦乌克兰救援行动：我们来自世界各地的志愿者已经成功从乌克兰救出了1838名难民及华人。尽管中共一直在破坏我们的救援工作，但我们用实际行动证明了我们不仅不同于中共，而且立志于铲除中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group14/getter/2022/03/22/11/b6dbed12-e23d-277c-dd20-714356198ae6/out.jpg)
+
+---
+
 `@miles 3/25/2022 7:27 PM (UTC)`
 
 【Ukraine Rescue】03/25/22 Frontline rescue members put the ROLF and NFSC's labels on the rescue supplies. The NFSC stands with the Ukrainian people. We are the NEW CHINESE people who are taking down the evil Chinese Communist Party!  #CCP≠Chinese <br/><br/>【乌克兰救援】03/25/22 前线救援战友们把法治基金和新中国联邦的救援物资贴上标识。新中国联邦与乌克兰人民站在一起。我们是消灭共产党的新中国联邦人！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -150,13 +161,6 @@ Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Y
 
 3/24/2022 Miles Guo’s GETTR: Don’t let the China Eastern plane crash distract us; what happened to our fellow fighters at various CCP banks recently demonstrate that there is nothing real in Communist China, all are fake or fabricated; if the CCP is not eliminated, there won’t be any sunshine or a glimpse of justice in humanity<br/><br/>3/24/2022 文贵盖特：不要让东航飞机的事情转移我们的视线，这些天墙内战友在各地银行的遭遇可以看出来中共国大地没什么是真的、都是假的，不灭共，人间不会有任何阳光和正义<br/><br/>
 ![img](https://media.gettr.com/group36/getter/2022/03/24/22/6139b995-407e-4de6-c021-0bbf5c523fcf/out.jpg)
-
----
-
-`@miles 3/24/2022 9:56 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-24
-![img](https://media.gettr.com/group35/origin/2022/03/24/21/130e4346-446f-76cc-4480-9edf99ea5b0b/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
