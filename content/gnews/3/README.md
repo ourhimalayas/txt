@@ -2,21 +2,10 @@
 ---
 
 
-## 视频|失去母亲的男孩跪在妈妈身旁悲痛万分
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2230984/)
+## 3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2231106/)
 
-制作：大直播短视频组- 文果
-文案：爱米粒
-
-审核/编辑/发稿：谐趣园
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+秘密翻译组-北美组
 
  
 

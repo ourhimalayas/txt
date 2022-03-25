@@ -2,20 +2,33 @@
 ---
 
 
-## 芬兰切断俄国与欧盟最后的运输系统
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2230877/)
+## 欧洲不可能与俄航天局合作
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2230939/)
 
-撰稿：西枫westca
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-21.jpg) 图片来源：Mauri Ratilaninen/Shutterstock
-据早报3月25日讯，芬兰铁路公司宣布，芬兰政府已下令自3月28日起暂停彼得堡和赫尔辛基之间的火车服务。关闭俄罗斯与欧盟之间的铁路连接。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/800px-ISS-36_HTV-4_berthing_2.jpg)
 
-运营商VR表示，芬兰政府的决定是基于俄罗斯入侵乌克兰后欧盟对俄罗斯实施的制裁。由于欧盟已经对俄罗斯关闭了领空，导致俄罗斯与欧洲之间的航班暂停， 保持这条火车线路服务的原因是允许在俄罗斯的芬兰人返国的主要出发路线。这是目前俄罗斯和欧盟之间唯一仍在运营的铁路服务。此举进一步将俄罗斯与全球运输系统隔离开来。
 
-同时美国及其盟国加大了就入侵乌克兰问题向俄罗斯施加压力，美国对数十家俄罗斯国防公司、数百名国会议员和该国最大银行的首席执行官施加新的制裁。
+图片来源：维基百科
 
-**新闻来源：**[芬兰暂停衔接俄欧的最后运营火车服务 | 早报 (zaobao.com.sg)](https://www.zaobao.com.sg/realtime/world/story20220325-1256050)
+俄罗斯航天局局长周四表示，欧洲通过对其机构实施制裁破坏了合作，旨在发射欧洲卫星的火箭现在将用于俄罗斯公司或对莫斯科友好的国家。
+
+俄航天局负责人德米特里·罗戈津在接受中共国电视采访时表示，这将适用于大约 10 枚火箭。
+
+罗戈津说：“此时此刻，在欧洲航天局和整个欧盟对（俄罗斯）在乌克兰进行的特别军事行动采取了疯狂的立场并对俄罗斯航天局实施制裁之后，我们认为不可能进一步合作。”
+
+自俄罗斯于 2 月 24 日入侵乌克兰并受到国际制裁浪潮的打击以来，太空裂痕产生了切实的影响。
+
+欧洲航天局上周表示，将暂停与俄航天局在 ExoMars 漫游者任务上的合作，寻找火星表面的生命迹象。
+
+周一，英国卫星企业 OneWeb 表示，由于莫斯科在最后一刻提出要求，该公司取消了 3 月 4 日从位于哈萨克斯坦的俄罗斯拜科努尔航天发射场发射 36 颗卫星的计划，已与埃隆·马斯克 (Elon Musk) 的 SpaceX 签订了将其卫星送入轨道的合同。
+
+罗戈津此前曾表示，对俄罗斯实施的制裁可能会“破坏”美俄在国际空间站上的伙伴关系，两名俄罗斯人和一名美国人将于 3 月 30 日从该空间站返回地球。
+
+🔗 [https://www.reuters.com/business/aerospace-defense/russian-space-chief-says-rocket-launches-europe-will-be-replaced-2022-03-24/](https://www.reuters.com/business/aerospace-defense/russian-space-chief-says-rocket-launches-europe-will-be-replaced-2022-03-24/)
+
+编辑发表： Shuizhuyu
 
  
 
