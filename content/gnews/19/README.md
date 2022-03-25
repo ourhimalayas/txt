@@ -2,28 +2,36 @@
 ---
 
 
-## 盖特宣布与知名独立记者安迪·恩戈合作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2230016/)
+## 英国政府数据证实疫苗接种是一场灾难
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230165/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月24日，盖特官方宣布，将与独立记者安迪·恩戈建立新的合作伙伴关系。恩戈表示，他将在盖特上制作名为“每周通知”的独家新闻节目，提供独到的政治评论和分析。
+作者：加拿大温哥华扬帆农场 – 重生之鹰
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-10.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2971.png)
 
-据悉，安迪·恩戈是全球领先的独立记者之一，在《纽约时报》开设专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。恩戈是一个无所畏惧的新闻战士，因坚持言论自由的报道，遭受过暴力和死亡威胁，以及无数所谓的法律法规审查。他表示，很期待与新的受众在盖特上互动。
 
-盖特CEO米勒先生表示，很荣幸能够与安迪·恩戈这样勇敢的记者合作，为他提供自由言论平台，能够与数百万用户分享讯息。在新闻和言论自由均受到大科技媒体严苛审查的当下，盖特将一直保持政治辩论和重要讯息自由流动，以吸引更多民众自由分享自己的理念与言论。
+3月24日来自《The Expose》网站的消息称，英国卫生安全局发布了最新疫苗检测报告。从2月14日至3月13日共22日期间的数据显示，接种两针到三针的人带来了绝大多数中共病毒病例数、住院数和死亡数，数据证明了实验性疫苗接种是一个绝对的灾难。
 
-参考链接：[GETTR Announces Partnership with Independent Journalist Andy Ngo](https://about.gettr.com/press/gettr-announces-partnership-with-independent-journalist-andy-ngo)
+1）病例数
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+本报告期英国共有947555例中共病毒病例，接种疫苗的人群有774991例（其中三针619128例），占到了令人震惊的全部病例的82%。
 
-总编：宁文静
-编辑：静言
-审核：Ivy001
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2）住院数
+
+本报告期英格兰总共有6536例住院治疗，接种疫苗的人群住院人数为5187人（其中三针4115例），占所有中共病毒住院人数的79%。
+
+3）死亡数
+
+本报告期共有5084人死于中共病毒，其中接种了三种疫苗的人群占了3687人。而未接种疫苗的人群只有401人。总体而言，接种疫苗的人群占这四周内所有Covid-19死亡人数的92.2%，共有4683人死亡。
+
+而在Omicron高峰时期，接种疫苗的人群占中共病毒死亡人数的75%，如果Covid-19注射在预防住院和死亡方面的有效性真的高达95%，你可能不会看到这样接种疫苗的人群死亡率大幅攀升的数据，不是吗？
+
+链接：[https://dailyexpose.uk/2022/03/24/uk-gov-data-92-percent-covid-deaths-fully-vaccinated/](https://dailyexpose.uk/2022/03/24/uk-gov-data-92-percent-covid-deaths-fully-vaccinated/)
+
+* * *
+
+编译撰稿：重生之鹰， 编辑发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

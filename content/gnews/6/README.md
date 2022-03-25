@@ -2,24 +2,22 @@
 ---
 
 
-## 2022年3月25日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230352/)
+## 加拿大疫苗限乘令结束时间或推迟
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230453/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+加拿大温哥华扬帆农场-活力人生
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CBC.png)图片来源：CBC
+据【加拿大广播公司】3月23日报道，随着加拿大中共病毒感染病例下降，多个省份已经取消疫苗护照和对未接种者的限制措施。但未接种者仍无法乘坐飞机或火车进行国内或国际旅行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0611.jpg)
+针对未接种疫苗者的飞机或火车限乘令来自加拿大联邦层面。加拿大首席公共卫生官谭咏诗博士说，目前联邦机构正在审查针对旅行者和联邦工作人员的疫苗限制政策，并评估结束这些限制的可能性。但她同时表示，由于目前全球COVID-19感染病例数的反弹，可能会使结束限制的时间推迟。
 
-发稿：信心的选择
+目前，有超过 85% 的5 岁以上的加拿大人已经完全接种了中共病毒疫苗，50% 以上的加拿大成年人接种了疫苗加强针。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+参考链接: [https://www.cbc.ca/news/business/unvaccinated-travel-canada-1.6393668](https://www.cbc.ca/news/business/unvaccinated-travel-canada-1.6393668)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+* * *
+
+编辑、上传：月亮之上
 
  
 

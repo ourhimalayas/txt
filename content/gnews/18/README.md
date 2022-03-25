@@ -2,36 +2,31 @@
 ---
 
 
-## 加拿大禁止其士兵加入乌克兰外国军团
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
+## 【G叻睇真D】粤语新闻电视台-美国总统拜登和欧盟加大对俄罗斯制裁
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2230224/)
 
-作者：加拿大温哥华扬帆农场-活力人生
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+作者：加拿大温哥华扬帆农场 G时新闻 – 播报：yuyu-视频制作：gracelshan
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+据【路透社】3月22日报道，美国总统拜登将在本周访问欧洲期间加强与欧盟合作，并同时宣布对俄罗斯实施新的制裁措施。
 
+报道称，拜登将于次日前往北约和欧盟总部所在地布鲁塞尔与各国领导人会面，并随即推出对普京政权的进一步制裁计划。新计划不仅将重点放在更严厉的制裁上，还将努力联合打击所有逃避该制裁的行为。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
+此外，拜登也将就中共国与俄罗斯的战略伙伴关系进行讨论。由于习近平当局始终参与普京对乌克兰的侵略战争，因此，美国的首要目标是确保中共不会通过物资或军事援助来支持俄罗斯。
 
+上传：兴旺
 
-据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
-
-加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
-
-艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
-
-加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
-
-新闻链接：
-
-[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
+视频连接：https://gettr.com/post/p11p9lwf3bc
 
 * * *
 
-编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

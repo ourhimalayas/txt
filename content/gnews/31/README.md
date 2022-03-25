@@ -2,88 +2,35 @@
 ---
 
 
-## 安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2229503/)
+## 特鲁多在欧盟议会中被当众唾弃
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229713/)
 
-**Jessica Wachter
-杰西卡·沃赫特**
+采编：加拿大温哥华杨帆农场 – 文莱
 
-As you’ve heard today the Commission is considering proposing rules
-正如你今天所听到的，委员会正在考虑提出的规则
+编译撰稿：加拿大温哥华杨帆农场 – 薇文
 
-to enhance and standardized climate disclosure
-来加强和规范气候信息披露
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
-These proposals would require public companies
-这些提议将要求上市公司
 
-to provide in their registration statements
-在他们的注册声明
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-7.jpg)图片来源：thepostmillennial
 
-and annual reports certain information on risks
-和年度报告中提供有关风险的某些信息
 
-that climate poses to short, medium and long term financial performance
-关于气候对短期、中期和长期财务业绩的影响
+据[多伦多太阳报]3月24日报道，日前在布鲁塞尔举行的欧盟议会全体会议上，多位议员称特鲁多为“最恶劣的独裁统治者”，并强烈谴责其此前在镇压加拿大自由车队的抗议活动中侵犯人权。
 
-And on steps the company plans to take to mitigate this risk
-以及公司计划采取的措施来减轻这种风险
+会议期间，克罗地亚议员怒批特鲁多指使皇家骑警恶意冲撞残疾妇女、恣意封锁抗议者的银行账户，践踏了欧洲乃至全世界无数公民为之献身的民主价值观和人权自由。在特鲁多极权主义的铁腕下，其政府已沦为为侵犯公民权利的象征。
 
-such as an internal carbon price if there is one
-例如内部碳价格，如果有的话
+德国议员则表示，特鲁多对自由车队的处理方式是一切民主的耻辱。一个公开钦佩中共独裁制度，把加拿大公民诬陷为恐怖分子并加以迫害和定罪的总理，没有资格在欧盟议会上发言。
 
-scenario analysis if the company does it
-如果公司情景分析这样做的话
+此外，罗马尼亚议员因特鲁多到会而拒绝出席会议，称特鲁多无德无能来欧盟议会向普京传授民主课程。而另一位德国议员则明确表态称，像特鲁多这样的独裁者不配在欧盟这样的民主之家有任何发言机会。
 
-transition plans if the company has them
-如果公司有过渡计划
+校对编辑：硫酸羟氯喹64
 
-or targets if the company has set them
-或公司设定的目标
+发稿：文明(添草灭共)
 
-Public companies would also disclose governance around climate issues
-除了风险披露和公司应对措施，上市公司
+新闻来源： [‘DICTATORSHIP OF THE WORST KIND’: European MPs blast Trudeau for COVID ‘rights violation’](https://torontosun.com/news/world/dictatorship-of-the-worst-kind-european-mps-blast-trudeau-for-covid-rights-violation)
 
-Besides the disclosures on risk and on the company’s response
-还将披露围绕气候问题的治理
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 
-the proposed rules would require disclosure on current financial impacts
-拟议规则将要求披露目前因气候相关事件和过渡活动
-
-and on financial expenditures due to climate related events and transition activities
-引起的财务影响和财政支出
-
-Finally, the rule would require disclosure about the carbon footprint
-最后，该规则将要求通过范围一和范围二的
-
-through sculpt one and two GHG emissions and scope three
-温室气体排放和范围三的碳足迹披露
-
-if scope three emissions are material or used
-如果范围三排放是实质性的或被用作
-
-as part of the climate related target or goal
-气候相关目标或目标的一部分
-
-* * *
-
-Date:03/23/2022
-原视频标题: SEC expected to introduce climate disclosure rules, forcing publicly traded companies to report on emissions and “climate change” risks
-安全与交易委员会预计将引入气候披露规则，迫使上市公司报告排放和“气候变化”风险
-原视频日期：2022/03/21
-原视频链接[**https://twitter.com/disclosetv/status/1505929622835417088?s=24**](https://twitter.com/disclosetv/status/1505929622835417088?s=24)
-任务编号：KE460（4060）
-视频时间段 : 0:00-1:07
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场-恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
