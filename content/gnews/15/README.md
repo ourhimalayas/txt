@@ -2,31 +2,66 @@
 ---
 
 
-## 拜登：如俄罗斯在乌克兰动用化武 北约将回应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2225613/)
+## 有声|秦刚接受美媒采访
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2225718/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-23.jpg)拜登：如俄罗斯在乌克兰动用化武 北约将回应 网络图片
-据美国之音3月25日报道，美国总统乔·拜登24日表示，如果俄罗斯在乌克兰使用化学武器，西方军事联盟将做出回应。应当把俄罗斯开除出由主要经济体组成的20国集团，允许乌克兰参加20国集团会议。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+唯唯诺诺
+秦大使被逼上了场
+受采访问话
+你俄爹帮还是不帮
+孝顺儿子中国共产党
 
-拜登表示，美国承诺提供超过10亿美元的人道主义援助，“以救援受到乌克兰战争影响的数百万乌克兰人”。美国将欢迎10万乌克兰人并投入3.2亿美元来支持乌克兰和邻国的民主韧性并捍卫这些国家的人权。
+眼看着俄爹被扁
+实在受了伤
+心里疼面上装
+支支吾吾
+秦刚英文实在不咋样
+说不清道不明
+真话假话都不敢讲
+习帝他算盘打的
+霹雳啪啦响
+这亲爹怎么帮
+好儿子我才能不受伤
+瞒天过海
+不让人发现千万别穿帮
+好为难秦大屎
+搜肠刮肚没有话讲
+理不足气不壮
+像只老鼠爆了光
+呜呼哀哉中共国
+劣币驱逐良币
+人才早就都跑光
+剩下奴才蠢材
+搞贪污个个牛叉样
+银样蜡枪头
+摆不上台面
+似秦刚溜须拍马
+可以不重样
+这正经台面
+哪里是老鼠的战场
+只想把爹和娘叫得响
+小小心灵受了伤
+恨不能找个洞
+深深把身藏
+这厉害国的大使
+就是这么个怂样
 
-乌克兰总统泽连斯基呼吁北约组织领导人“没有限制地”向乌克兰提供更多武器。俄罗斯穷兵黩武发动乌克兰战争，没有料到会遭到乌克兰的顽强抵抗，俄军伤亡惨重。被国际社会孤立和制裁的普京孤注一掷，准备动用生物和化学武器。如果普京胆敢走到这一步，就是加快自己的灭亡，爱好和平的人们会像乌克兰人民一样起来反抗，把独裁者和战争的发起者普京送进地狱。
+文字版原文：[秦刚接受美媒采访](https://gnews.org/zh-hans/2216495/)
 
-新闻参考链接：[https://www.voachinese.com/a/biden-vows-nato-action-if-russia-uses-chemical-weapons-20220324/6500475.html](https://www.voachinese.com/a/biden-vows-nato-action-if-russia-uses-chemical-weapons-20220324/6500475.html)
+音频处理：Fei797
+发稿：Fei797
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

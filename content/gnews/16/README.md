@@ -2,27 +2,31 @@
 ---
 
 
-## 有声|梅迪卡前线战友考察当地最大难民疏散中心
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2225602/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月24日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2225706/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月21日梅迪卡前线消息，目前通过我们救援中心附近的边境关口入境的乌克兰难民减少了很多，大卫等前线战友驱车15分钟到当地最大的难民疏散中心进行考察，了解那里的情况。 从画面中可以看到，与边境口岸相比，这里更为宽敞，有更多当地以及国际救援机构提供服务，服务内容也更加多样、全面，虽然难民数量众多，但秩序井然。 前线战友希望从中取长补短，在保障安全的前提下，为难民提供更多、更好的服务，也让更多人了解到新中国联邦和新中国联邦人。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-25.png)
 
-文字版原文：[梅迪卡前线战友考察当地最大难民疏散中心](https://gnews.org/zh-hans/2214255/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-19.png)
+校对：Stay文苑
 
-音频处理：Fei797
-发稿：Fei797
+编辑：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p11qho43142](https://gettr.com/post/p11qho43142)
+访谈：[https://gettr.com/post/p11qllq03a2](https://gettr.com/post/p11qllq03a2)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

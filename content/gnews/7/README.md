@@ -2,17 +2,51 @@
 ---
 
 
-## 救援物资管理现场
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2225797/)
+## 墨尔本研究人员开发的两种新的新冠疫苗开始临床试验
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2225955/)
 
-视频：救援前线战友 字幕与文稿：文宝
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-298.png)图片来自网络
+《ABC News》近日报道，墨尔本正在开发两种新的新冠疫苗的临床试验将开始，研究人员称这可能会提高对奥米克戎变体的免疫力。
 
-**【Ukraine Rescue】❤️❤️At 10am on Thursday, March 17th, on the campsite of the Rule of Law Foundation and the New Federal State of China, Wenyao and other rescue members are organizing the rescue supplies. We are very grateful that there are so many ordinary people around the world who do not know each other, supporting this great humanitarian rescue action. We thank all the kind people who donated to ROLF. 💪💪NFSC rescue team is the NEW CHINESE who is taking down the EVIL Chinese Communist Party. The CCP is the root cause of all disasters globally. Taking down the CCP is the only way to save humanity! 【乌克兰救援】❤️❤️3月17日星期四上午10点。在我们法治基金和新中国联邦的营地上，文耀和战友们在整理救援物资，感谢国际社会这么多素不相识的普通人，他们都在支持着这场伟大的人道主义救援行动，新中国联邦救援团队是和邪恶共产党战斗的新中国人！中国共产党是全世界灾难的根源，只有消灭中国共产党才能拯救全人类。**
+这两种疫苗是由多尔蒂研究所和莫纳什药物科学研究所 (MIPS) 的研究人员研制的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-11.png)DISCORD
+这些试验将评估疫苗作为第四剂疫苗的有效性，并将涉及已经接种过三剂疫苗的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-10.png)GETTR
+研究人员表示，这些疫苗与现有疫苗不同，因为它们针对的是病毒刺突蛋白的尖端，即受体结合域 (RBD)。
 
+RBD蛋白疫苗利用部分病毒蛋白引发免疫反应，而RBD mRNA疫苗利用病毒的基因序列。
+
+墨尔本大学研究员乔治亚·德利扬尼斯在多尔蒂研究所进行了大部分 RBD 蛋白疫苗实验，他表示，该疫苗在临床前试验中诱导了高水平的抗体。
+
+“RBD 蛋白疫苗诱导的免疫哪怕在打了加强针100天后仍可以保护小鼠免受 SARS-CoV-2 病毒感染的攻击。”德利扬尼斯博士说。
+
+“除了在小鼠体内诱导对贝塔变体产生强烈的中和抗体免疫外，它还保留了中和原始祖先菌株的潜力，初步的实验室研究表明，它对包括德尔塔和奥米克戎在内的其他变体具有中和活性。”
+
+领导 RBD mRNA 疫苗开发的 MIPS 的科林·波顿表示，研究人员对成功的临床试验充满信心。
+
+“与 RBD 蛋白疫苗一样，RBD mRNA 疫苗在小鼠模型中诱导高水平的 RBD 特异性抗体并保护免受病毒攻击，”波顿教授说。
+
+“我们有充分的理由认为这两种疫苗都会在临床上表现良好。”
+
+如果临床试验证明成功，候选疫苗将是第一个完全在澳大利亚境内开发的新冠疫苗。
+
+多尔蒂研究所的莎朗·勒温表示，对新冠疫苗选择的需求将继续很大。
+
+“这两种疫苗的生产效率很高，并且可以快速修改以结合未来变体中出现的不同或多个 RBD 突变，”勒温教授说。
+
+“此外，澳大利亚需要有能力生产自己的疫苗，以确保在未来发生全球短缺时我们自己的供应，并为全球对新冠疫苗的需求做出贡献。”
+
+在没有从中共手里拿到原始毒株的情况下，任何所谓的新冠疫苗研发都是徒劳无功。澳大利亚作为一个疫苗大国是不撞南墙不回头，铁了心要在疫苗的路上越走越远，就是不肯引用药物治疗。在世界各国纷纷取消新冠疫苗强制的情况下澳洲仍然坚持疫苗强制令不松口，可见澳洲一定会为此付出惨痛的代价。
+
+参考链接：
+
+[https://www.abc.net.au/news/2022-03-25/trials-to-begin-on-new-australian-covid-vaccines/100938258](https://www.abc.net.au/news/2022-03-25/trials-to-begin-on-new-australian-covid-vaccines/100938258)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
