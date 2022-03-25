@@ -2,30 +2,22 @@
 ---
 
 
-## 乌克兰最大钢铁厂遭俄军炸毁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223903/)
+## 北约官员估计入侵乌克兰一个月以来，俄军有多达15000名士兵死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224156/)
 
-作者：加拿大温哥华扬帆农场 – 自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1.jpg)
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16481441181.png)图片来源：NBC新闻
+据《真正美国之声》（Real America’s Voice）3月24日报道，本周三（3月23日），一位北约官员说，在过去一个月里，由于乌克兰人对入侵的俄罗斯军队进行了顽强的抵抗，估计已有7000至15000名俄军士兵死亡。
 
+这位匿名的北约高级军官告诉《美联社》，他们根据公开来源情报、乌克兰政府的信息以及俄罗斯有意和无意发布的信息来评估俄罗斯的损失，俄军估计有3万至4万名士兵被杀或受伤。考虑到估计有超过15万名俄军士兵参与了入侵，伤亡率可能高达26%。相比之下，苏联在入侵阿富汗的头十年间损失的士兵不到15000名，美国在近20年的阿富汗战争中损失的军人不到2500名。
 
-据《雅虎财经》3月21日报道，位于乌克兰马里乌波尔地区的[亚速钢铁厂]当天被俄军定点炸毁。
+但前中情局军事分析师杰弗里·埃德蒙兹（Jeffrey Edmonds）认为7千人的死亡数字有些估计过高，真实数字更可能是4千或5千人。“通常情况下我们认为，如果军队失去三分之一的部队就没有战斗力了。因为通常在心理上，当有三分之一的人死亡或被撤离战斗之后，部队通常就不能很好地运作了。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2819.png)图片来源：雅虎财经
+据报道，俄军现状也在恶化。乌克兰军方周二声称，俄军物资只能维持三天，供应链正濒临崩溃。
 
+*责编：白夜*
 
-报道称，乌克兰是世界上第12大钢铁生产国，而拥有4万多名员工的[亚速钢铁厂]则是该国最大的钢铁产品生产企业，它的被摧毁将严重影响乌克兰乃至整个欧洲今后的基础建设经济。
-
-据悉，尽管[亚速钢铁厂]在俄军入侵之后暂时关闭，但仍有该企业的4000多名员工和家属被困于当地的防空洞内，并需要获得紧急救助和及时撤离。而该厂最后一次停产发生在纳粹德国入侵乌克兰的1941年。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1-e1648141621189.jpg)
-
+新闻来源：[Up to 15,000 Russian troops dead one month into Ukraine invasion: NATO](https://americasvoice.news/justthenews/15000-russian-troops-dead-one-month-ukraine-invasion-nato/)
 
  
 

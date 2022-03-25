@@ -2,25 +2,34 @@
 ---
 
 
-## 大部分加拿大人希望加强制裁俄罗斯
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
+## 文贵爆料3.24: 东航飞机失事背后的真相
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2224063/)
 
-作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
+撰稿：Skagen
 
-据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
+在2022年3月23日的直播中，郭文贵先生揭露了东航飞机失事的真相是人为的自杀行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图像-3-5.jpg)
+图片：东航网站已经换成黑白色，纪念死难的机组人员和乘客
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
+郭先生认识欧洲航空业的一位大佬。这位大佬认为：根据他们收到的飞行数据，这显然是一次人为操作，是一次自杀行为。
 
+这位大佬强调了他的技术背景，并表示他的假设不是阴谋，而是基于数据，包括波音公司的数据 。
 
-报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
+他描述了整个过程。这是一个自今年1月就开始计划的自杀行动。那些死于坠机的人，包括机长、机组人员和其他许多人都是由该人精心安排的。飞机被决绝拉上天，然后直接就推下去，所有的通讯都被切断了。
 
-据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
+“他把他该带的，都带走了”，这位欧洲航空业大佬补充说。
 
-校对编辑：硫酸羟氯喹64
+郭先生说，”这个人他给共产党、给政府都留了言。如果中国共产党还有一点良知，就应该公布他的遗言”。
 
-发稿：青青
+郭先生公布了这个故事背后的悲催真相。这个人的钱都被他的雇主骗走了，他的家人也被中共折磨。此外，自从他注射了中共病毒疫苗后，早晚也活不长了。他的一些家人就已经死于中共病毒疫苗，自己也负债累累。
 
-新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
+郭文贵先生说，随着中共病毒疫苗的爆发，在中共的社会中会出现大量的报复性事件。中国人互相伤害、报复社会的事件将不足为奇，如火车、飞机、医疗和汽车事故以及中毒。各种事情将会频发，谁能预测得了?
+
+郭先生最后说：共产党正在毁掉人类世界，不赶快灭了共产党，共产党就会灭了这个世界。
+
+新闻来源：
+
+[Miles Guo broadcast March 23 Wednesday](https://gettr.com/post/p11h7xt9462)
 
  
 

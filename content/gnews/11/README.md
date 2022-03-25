@@ -2,34 +2,37 @@
 ---
 
 
-## 被停职的希腊医疗卫生工作者的绝食活动
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2224763/)
+## 有声|国际反贪组织已锁定普京盟友170亿美元资产
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2225052/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+台媒22日报道，国际反贪腐组织“组织犯罪与贪腐举报计划”将联手英国《卫报》以及其它25家媒体，追踪与普京有关联的俄罗斯富豪资产，目前已锁定的资产价值已超过170亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpg)
+官网资料显示，普京执政22年已构建稳固的权势关系网络，结合富豪、政客及体制既得利益者，协助巩固普京政权，并从中获取报酬。“组织犯罪与贪腐举报计划”从”积极参与普京政权的压迫和腐败 “的人名清单开始，将对相关资产进行追踪，后续会将追踪到的资产编入定期更新的数据库，供公众查看和使用。
 
-自去年九月起，希腊约有7500名医疗卫生工作者被迫终止工作、无薪水，这种状况已经持续了数月。意大利政府也在近期对医疗卫生工作人员的新冠疫苗强制令延长至2022年12月31日。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-24-alle-18.39.41.png)图片来源：eventiavversinews.it
-如果你们去希腊或是去意大利度假， 不要忘记那儿有成千上万的家庭正在挨饿并靠借钱生活。
-
-已经崩溃的希腊国家医疗卫生体系现在少了7500人。
-
-他们中许多人已经在卫生部门前露营了几个月。
-
-到目前为止，还没有一家媒体包括希腊突出报道这一现象。
-
-以“优先尊重人权”为自居的民主欧洲——雅典发生这样的抗议活动。
-
-当这些被停职的医疗卫生工作者看到政府如此冷淡地拒绝了他们的对话请求后，他们当中的五人同时开始绝食。
-
-简评：作为医疗卫生工作者， 他们深知绝食对他们的身体健康意味着什么，会付出多大的代价的。但是他们看到“民主正在消亡，宪法正在被抛弃”。这促使这些来自全希腊的被迫停职的医疗工作者，组织起来，以绝食来抗议新冠疫苗暴政。
+据悉，资产追踪已经列出了与普京关系密切的寡头和亲信在境外持有的巨额财富，包括房产、私人飞机、公司股票、游艇及豪宅的等近150项资产，总价值约170亿美元。在接下来的几周内，其追踪范围还将持续扩大。
 
 
 
-参考链接：
+文字版原文：[国际反贪组织已锁定普京盟友170亿美元资产](https://gnews.org/zh-hans/2220722/)
 
-[https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit](https://www.eventiavversinews.it/grecia-sciopero-della-fame-degli-operatori-sanit)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-编辑、上传：Xiao beige
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

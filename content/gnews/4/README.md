@@ -2,37 +2,37 @@
 ---
 
 
-## 有声|国际反贪组织已锁定普京盟友170亿美元资产
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2225052/)
+## 字里画外有乾坤
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2225211/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-台媒22日报道，国际反贪腐组织“组织犯罪与贪腐举报计划”将联手英国《卫报》以及其它25家媒体，追踪与普京有关联的俄罗斯富豪资产，目前已锁定的资产价值已超过170亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpg)
-官网资料显示，普京执政22年已构建稳固的权势关系网络，结合富豪、政客及体制既得利益者，协助巩固普京政权，并从中获取报酬。“组织犯罪与贪腐举报计划”从”积极参与普京政权的压迫和腐败 “的人名清单开始，将对相关资产进行追踪，后续会将追踪到的资产编入定期更新的数据库，供公众查看和使用。
+**作者：**无相
+**编辑：**翼族
 
-据悉，资产追踪已经列出了与普京关系密切的寡头和亲信在境外持有的巨额财富，包括房产、私人飞机、公司股票、游艇及豪宅的等近150项资产，总价值约170亿美元。在接下来的几周内，其追踪范围还将持续扩大。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6CFE3592-559A-42E7-896F-037EA6F580D3.jpg)Flickr.com
 
 
+立轴铺案细端详，
+蛤蟆凝神抖官腔。
+颇费周章频颌首，
+曲意附和假承欢。
 
-文字版原文：[国际反贪组织已锁定普京盟友170亿美元资产](https://gnews.org/zh-hans/2220722/)
+战战兢兢从旁坐，
+浑身冒汗脸茫然。
+似蚕咋瞅尾又翘，
+再问脑内煮米浆。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+我的强项是担担，
+山路二百不换肩。
+你若不识该多好？
+你我兄弟演一场。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*发布：翼族*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,42 +2,28 @@
 ---
 
 
-## 英国最贫穷的城镇之一如何成为逃离中共国的香港人的天堂
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2224294/)
+## 【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224457/)
 
-编译：七龙珠
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-24-at-4.39.33-PM.jpeg)图片来源：盖特
+据《千禧年邮报》（The Post Millennial）3月24日报道，盖特（GETTR）周四宣布与《千禧年邮报》的编辑Andy Ngo建立新的伙伴关系。 这位独立记者将在社交媒体平台上为一个名为 “每周通知 ”(Weekly Notice)的新闻节目制作独家内容。
 
-在英国灰暗的冬天里，在一个异常晴朗的日子里，大约30名香港人聚集在黑池（Blackpool）的一个自助餐厅上，黑池是英国最贫困城市之一。
+据报道，Andy 将讨论他的报道，并提供政治评论以及分析，而且“不受审查或影子禁令的威胁”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/id13062220-UK-airport-02@1200x1200-450x253-1.png)图片来源：文苳晴／大纪元
+盖特首席执行官杰森·米勒 （Jason Miller）说：“ 我们很自豪能够与像Andy Ngo这样无所畏惧的记者合作，给他一个平台，让他能够与盖特在全球的数百万用户分享他的重要报道。新闻和言论自由都受到来自大公司审查制度和有偏见的自由派媒体的攻击，盖特致力于争取一个重要信息和政治辩论能够自由流动的空间。”
 
-有些人已经在国内呆了几个月，大多数人只呆了几周。我的左边坐着一位中年妇女，她和她20多岁的儿子在11天前刚刚抵达黑池。
+Andy表示，他期待着在盖特上与新观众接触。
 
-“我的英语不是很好”她笑着道歉。在我们周围，每个人都继续用广东话交谈，我一个字都听不懂。
+Andy说：“那些多年来试图用暴力、死亡威胁、法律战和审查运动使我沉默的人已经失败，并将继续失败。”
 
-“我们都在谈论香港，我们最后的话题总是围绕着香港”坐在我对面的约翰尼解释说，看到我不解的脸。
+迄今为止，盖特在全球拥有500万注册用户。在2021年7月4日正式推出后不到三天，这个快速发展的平台就获得了第一百万用户，创造了历史，这一天盖特宣布从暴虐的硅谷寡头手中 “独立”。
 
-这群人的年龄和社会经济地位各不相同，但他们都有一个共同点，那就是在北京于2020年通过有争议的《国家安全法》后“被迫逃离”香港，该法被其反对者视为对香港在“一国两制”原则下享有的自由的决定性打击，中共政府则辩护称，国安法是对香港社会维稳的必要。
+Andy是《纽约时报》畅销书《Unmasked》的作者。这本书揭露了Antifa组织破坏民主的激进计划内幕。Andy冒着安全风险报道美国的极左暴力极端主义。他在2019年经历了一次Antifa组织的残酷袭击，在俄勒冈州波特兰市的街头报道时，再次遭到Antifa组织的袭击。
 
-**参考资料：**[bbc][Cómo una de las ciudades más pobres de Reino Unido se convirtió en un refugio para hongkoneses que huyeron de China](https://www.bbc.com/mundo/noticias-internacional-60349780)
-
-审核：Aries的星
-校对：小东
-发布：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
-
-
-
-
+**新闻来源：**[GETTR partners with Andy Ngo for weekly news show](https://thepostmillennial.com/gettr-partners-with-andy-ngo-for-weekly-news-show)
 
  
 
