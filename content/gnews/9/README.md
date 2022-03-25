@@ -2,33 +2,39 @@
 ---
 
 
-## 樱花时政┃G7：我们将追究普京等人的责任
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2228991/)
+## 有声|习近平不改侵台野心
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229036/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-七国集团领导人峰会3月24日在比利时首都布鲁塞尔举行，欧盟主席冯德莱恩、欧洲理事会主席米歇尔和北约秘书长斯托尔滕贝格也应邀参会。会后，七国集团领导人发表了联合声明强调，“鉴于俄罗斯无理、无端和非法的侵略以及普京总统对独立和主权的乌克兰的选择战争，进一步加强我们的合作。我们将与乌克兰政府和人民站在一起。”
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2952.png)（图片来源于本文链接）
 
-声明称：“我们团结一致，决心恢复和平与稳定，维护国际法。在联合国大会2022年3月2日的决议之后，我们将继续与国际社会的绝大多数人站在一起，谴责俄罗斯的军事侵略及其继续造成的痛苦和生命损失。”
+在3月23日的大直播中，郭文贵先生再次提到了习近平及其他中共高官对台湾的侵略企图。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-122.jpg)
+郭先生透露，早在2007年，习近平就已经显示出了对台湾的野心。彼时，习近平将台湾问题作为自己掌权后必须迅速解决的一个事项。为此，他还扬言，如果美国对台湾出手相助，中共就会让台湾永沉大海，从而绝不给台湾任何偏向美国的机会。至今，习近平的这一态度仍然分毫未变。此外，中共官员也曾多次流露出在台湾制造地震的想法，即利用导弹引发7级以上的地震就可造成台湾社会的彻底瘫痪。
 
-声明称：“我们仍然对人民和包括医院和学校在内的民用基础设施受到的破坏性攻击感到震惊并予以谴责。我们欢迎国际机制的调查，包括国际刑事法院检察官的调查。我们将收集战争罪的证据。
+郭先生也爆料称，在俄乌战争之后，习近平欣喜地认为俄罗斯是一个值得学习研究的模板。习近平甚至在党内宣称，俄乌战争证明了中共应当对台湾实行迅速、狠毒和不惜一切的战略模式。
 
-声明称：“普京有义务立即遵守国际法院的命令，暂停其2022年2月24日在乌境内开始的军事行动，不再拖延。我们还敦促俄罗斯从乌克兰全境撤出其军事力量和装备。我们敦促所有国家不要向俄罗斯提供军事或其他援助，帮助其继续侵略乌克兰。我们将对任何此类援助保持警惕。”
 
-声明称：“我们将不遗余力地追究普京总统和这次侵略的策划者和支持者，包括白俄罗斯的卢卡申科政权，对他们的行为负责。为此，我们将继续与我们在世界各地的盟友和伙伴一起努力。”
 
-信息来源： [七国集团领导人联合声明：我们将不遗余力地追究普京等人对这场入侵的责任](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220324-%E4%B8%83%E5%9B%BD%E9%9B%86%E5%9B%A2%E9%A2%86%E5%AF%BC%E4%BA%BA%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E-%E6%88%91%E4%BB%AC%E5%B0%86%E4%B8%8D%E9%81%97%E4%BD%99%E5%8A%9B%E5%9C%B0%E8%BF%BD%E7%A9%B6%E6%99%AE%E4%BA%AC%E7%AD%89%E4%BA%BA%E5%AF%B9%E8%BF%99%E5%9C%BA%E5%85%A5%E4%BE%B5%E7%9A%84%E8%B4%A3%E4%BB%BB)
+文字版原文：[习近平不改侵台野心](https://gnews.org/zh-hans/2222917/)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO-1-14.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

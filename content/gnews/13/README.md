@@ -2,40 +2,37 @@
 ---
 
 
-## 白宫新闻秘书再次感染新冠病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228888/)
+## 有声|俄罗斯侵略行为屡受挫 国际制裁进一步加码
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2228983/)
 
-**编译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
-白宫新闻秘书简·普萨基 (Jen Psaki )周二宣布，尽管她已经“完全接种了疫苗”，但她第二次感染了 COVID-19，这迫使她选择不陪同总统拜登本周前往欧洲参加北约峰会特别活动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip白宫新闻秘书再次感染新冠病毒.png)华盛顿特区 – 3 月 4 日：白宫新闻秘书 Jen Psaki 在 2022 年 3 月 4 日的每日新闻发布会上回答问题
-普萨基在周二下午的一条推文中宣布了这一消息，就在她计划与总统一起前往欧洲进行预定旅行的前一天，拜登将与北约盟国坐下来讨论俄罗斯和乌克兰之间正在进行的战争。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月22日，据相关媒体报道，企业家埃隆·马斯克向乌克兰提供的星链卫星终端正在帮助乌克兰军方摧毁入侵的俄罗斯坦克。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-6.jpeg)
+另据乌克兰内政部顾问发布的消息显示，由于俄罗斯士兵在乌克兰境内会使用当地的手机号码，乌克兰情报单位通过定期向这些号码发送劝降短信而成功说服一名俄罗斯士兵驾驶一辆T-72坦克向乌方投降。在乌克兰当局通过卫星无人机确认过安全后，这名俄罗斯士兵目前已经被妥善安置在保护区内。这名士兵也透露，俄军内部目前粮食供应严重不足，且管理相当混乱，很多俄罗斯军人已经逃离了战场。
 
-“今天早上，为了准备去欧洲旅行，我进行了 PCR 测试， 结果测试结果呈阳性，这意味着我将遵守 CDC 的指导，不再参加总统的欧洲之行，”普萨基写道。
+而鉴于莫斯科当局坚持发动的对乌侵略战争，国际社会正在进一步推动对俄罗斯的制裁。当天，78架俄罗斯飞机在境外被扣押。同时，包括美国在内的西方国家将禁止企业向俄罗斯供应民用飞机和相关零部件。此外，美国两党参议员正在与财政部讨论冻结俄罗斯约一千三百二十亿美元的全部黄金储备。而波兰政府也在当天提议，将俄罗斯逐出二十大工业集团，即G20组织。目前，该提议已经得到了正面的回应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获白宫新闻秘书再次感染新冠病毒1.png)
 
-普萨基说：“出于高度透明，我今天分享了我的阳性测试的消息。”此后，拜登的病毒检测呈阴性。
 
-“多亏了疫苗，我只出现了轻微的症状，”普萨基继续说道，并补充说她将遵循“白宫 COVID-19 协议”，在家工作，直到完成为期五天的隔离期并获得检测阴性后。
+文字版原文：[俄罗斯侵略行为屡受挫 国际制裁进一步加码](https://gnews.org/zh-hans/2223674/)
 
-这不是普萨基第一次检测出 COVID-19 呈阳性。这也不是她第一次因为她的诊断而错过一次重要的国际峰会。2021年10 月，就在拜登前往罗马参加 G-20 峰会之前，白宫新闻秘书的新冠病毒检测呈阳性。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-上周，前总统奥巴马和副总统卡玛拉·哈里斯的丈夫道格·埃姆霍夫宣布，尽管都打了三针疫苗，他们还是都感染了冠状病毒。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-本周，前第一夫人希拉里·克林顿也表示她感染了新冠病毒。在他们的声明中，克林顿、埃姆霍夫和奥巴马对获得他们的实验性 COVID-19 疫苗表示感谢，并敦促其他人接受注射。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-尽管公共卫生专家普遍承认注射并不能阻止病毒的传播，但还是鼓动人们接受。尽管倡导者认为注射可以减轻 COVID-19 的症状，但随着时间的推移，注射的功效已显示出稳步下降。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**评论：无语，应该保护人们免受Covid病毒的所谓疫苗，竟让完全接种的普萨基第二次感染，让接受了3剂疫苗的政要感染，却还感谢有着辉瑞自己报告的两千多种不良反应，包括死亡！**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**新闻来源**：[lifesitenews.com][White House press secretary Jen Psaki gets COVID again, won’t join Biden for NATO summit in Europe](https://www.lifesitenews.com/news/white-house-press-secretary-gets-covid-again-wont-join-biden-on-europe-trip-for-nato-summit/)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-***审核：文乐
-校对：花羽
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-1.jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

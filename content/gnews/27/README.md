@@ -2,38 +2,29 @@
 ---
 
 
-## 美欧协议不再进口俄罗斯天然气
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2228528/)
+## 联大以压倒性多数通过决议要求俄罗斯停战 中共国依然弃权
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228565/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-20.20.26.png)
-3月25日，美国总统拜登和欧盟的冯布莱恩宣布，欧盟不再进口俄罗斯天然气，转而与美国达成天然气进口协议。
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-据悉过去几年，俄罗斯是欧盟最大的能源供应国，周三普京要求“不友好国家”使用卢布结算天然气贸易，不再使用美元和欧元。拜登总统与欧盟主席冯布莱恩的联合声明表示，欧盟要从过去的依赖俄罗斯天然气能源走向独立，为当地居民和企业提供可负担的清洁能源。双方会成立一个联合工作队，加快能源转型。
+3月24日，联合国大会以压倒性多数通过了一项决议，要求俄罗斯立即停止对乌克兰的战争，而中共国再一次弃权。
 
-据知情人士称，此项工作局限性较大。美国探索增加能源产量，欧洲转向发展清洁能源，是从长远角度的考量。美国天然气出口商下周将与德国买家会面。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-22.png)（图片来自美联社）
 
+据《德国之声》报道，这项决议由乌克兰推出，并得到80多个国家联署。决议要求俄罗斯立即停止战争，还要求保护所有平民、平民设施以及人道和医务工作者和记者。
 
+经过一番表决后，这项决议获140票支持，5票反对和38票弃权。表决结果基本与3月2日的联大表决类似，当时有141个国家谴责俄罗斯入侵并呼吁俄罗斯立即撤军。
 
-reference：
+对这项人道主义决议投反对票的五个国家也是当时投反对票的五国：俄罗斯、白俄罗斯、厄立特里亚、朝鲜和叙利亚。
 
-[https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports](https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports)
+关于俄乌战争，中共国的态度一直备受关注。在3月2日联合国决议上中共国投弃权票之后，世界各国已多次呼吁其谴责俄罗斯的入侵行为，但遗憾的是，这一次中共国又投了弃权票。
 
-[https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
+参考链接：
+[https://reurl.cc/yQVpd8](https://reurl.cc/yQVpd8)
 
-撰稿、发布：骄子
+总编：青城道姑
+校对发布：Linda
 
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
