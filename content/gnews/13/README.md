@@ -2,33 +2,41 @@
 ---
 
 
-## 【G时新闻】拜登总统发推称 将对俄罗斯实施新一轮制裁
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2228537/)
+## 克里斯汀·安德森火力全开 痛斥特鲁多为暴君！
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228682/)
 
-作者：加拿大温哥华扬帆农场 – 播报：文广 – 视频制作：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-据彭博社3月24的消息，俄罗斯入侵乌克兰战争，已经持续一个月，为加大对俄罗斯的压力，美国宣布对俄罗斯的精英、立法者和国防公司实施新的一系列制裁。
+**翻译: 里奇**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+北约成员国今天在布鲁塞尔开会讨论俄罗斯对乌克兰的战争。
 
-将对俄罗斯的400多名个人和实体实施全面制裁，包括俄罗斯杜马下议院的328名议员、十几名俄罗斯精英和48家俄罗斯国防公司。
+包括加拿大贾斯汀·特鲁多在内的北约领导人今天出席了会议。
 
-拜登总统在推文中说：“我宣布对 400 多名俄罗斯精英、立法者和国防公司实施额外制裁，以回应普京在乌克兰的选择战争。” “他们个人从克里姆林宫的政策中获益，他们应该分担痛苦。”
+今天早些时候，克罗地亚政治家米斯拉夫·科拉库西奇当面指责加拿大总理贾斯汀·特鲁多的独裁行为。
 
-本次制裁将打击俄罗斯联邦储蓄银行行长兼普京的顾问赫尔曼·格雷夫、俄罗斯亿万富翁季姆琴科、他的公司和家庭成员，以及俄罗斯金融机构Sovcombank的17名董事会成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip克里斯汀·安德森火力全开-痛斥特鲁多为暴君！.png)
 
-据白宫称，被制裁的国防公司包括俄罗斯直升机公司、战术导弹公司、高精密系统公司、材料制造公司NPK Tekhmash
+加拿大总理特鲁多在布鲁塞尔与北约会晤。一位克罗地亚政治家借此机会以独裁者称号来迎接他。今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森 (Christine Margarete Anderson) 担任欧洲议会的德国替代 (AfD) 议员，再次撂倒暴君特鲁多。
 
-编辑/上传：一叶
-盖特链接：[https://www.gettr.com/post/p11okbsb37a](https://www.gettr.com/post/p11okbsb37a)
+克里斯汀·安德森（Christine Anderson）：“那么这样一位公开钦佩中共国完全独裁政权的首相……他践踏基本权利，仅仅因为人们敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子……根本不应该被允许在这个屋子里说话。
 
-* * *
+”特鲁多先生：你是民主的耻辱。请不要打扰我们。”
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+太棒了！干得好，克里斯汀·安德森！
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
-- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+**新闻来源**: [thegatewaypundit][Christine Anderson Brings THE FIRE: Second European Official Calls Out Tyrant Justin Trudeau to His Face! (VIDEO)](https://www.thegatewaypundit.com/2022/03/christine-anderson-brings-fire-second-european-official-calls-tyrant-justin-trudeau-face-video/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
+**审核：文乐
+校对：花羽
+发布：信心满满**
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

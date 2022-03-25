@@ -2,37 +2,51 @@
 ---
 
 
-## 中共国的科技泡沫已经破灭
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2223766/)
+## 新西兰财经G乐部2022年3月24日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2224137/)
 
-编译：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-24-172824-1.jpg)图片来源：xataka.com
-如我们所知，中共国的情况并没有好转。其科技巨头们蓬勃发展的日子似乎已经过去。去年夏天，习近平剪掉了这些巨头中许多人的“翅膀”，现在他们以毁灭性的方式影响着市场。
+采集整理：蚂蚁的城堡
 
-中共国的大型科技公司正在倒闭中，中共国的互联网公司在股票市场上的估值创下历史新低。在过去快速扩张的几年里，它们享受了溢价估值，但大规模的抛售导致泡沫完全破裂。
+提纲：
 
-截至3月15日，腾讯已经损失了5300亿美元，阿里巴巴也是如此，已经损失了近5220亿美元，他们两大巨头是科技市场蓬勃发展趋势中的大玩家，而这一趋势也影响到了美团（减少2546亿美元）甚至是小米（减少561亿美元）等其他公司。
+1、哈尔滨成首个解除限售二线城市
 
-事实上，中共国的纳斯达克——恒生指数，在最近几周暴跌，自一年前的峰值以来损失了65%。过去几天，在监管机构明显打算放松对“大科技”公司的迫害后，这些估值出现了反弹，但是中共国大科技公司的前景并不乐观。
+2、海底捞巨亏40亿增收不增利
 
-腾讯，告别增长。中共国科技领域的宠儿正处于低迷状态。监管机构现在正寻求将其微信支付名人分拆为一个独立的金融公司，这可能会削弱人们对其庞大的社交网络微信的兴趣，而且该公司正准备进行大量的裁员。
+3、腾讯去年4季度净利骤降25%，连续两季负增长
 
-阿里巴巴及其创始人马云，2020年11月，他的金融部门蚂蚁集团的IPO被暂停，这看起来将成为一个重磅炸弹，不是以马云所期望的方式。
+4、美国将新浪微博列入退市风险名单
 
-这是一系列挫折的开始，使阿里巴巴的情况受到影响。其股价跌得如此之低，以至于该公司试图利用回购的机会来推高股价：这并没有起到作用。至少没有像预期的那样，在未来的事情发生之前，阿里巴巴是中共国科技巨头陨落的另一个伟大例子。
+正文
 
-新闻来源：[xataka.com ] [La burbuja tech de China ha explotado: Alibaba está en caída libre y a Tencent no le va mucho mejor](https://www.xataka.com/empresas-y-economia/burbuja-tech-china-explota-alibaba-esta-caida-libre-a-tencent-no-le-esta-yendo-mucho-mejor)
+**1、哈尔滨成首个解除限售二线城市**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2832.png)
+3月23日，据哈尔滨市政府网站消息，哈尔滨市住房和城乡建设局发布公示，经报请市政府同意，鉴于《哈尔滨市人民政府办公厅关于进一步加强房地产市场调控工作的通知》（以下简称《通知》）（哈政办规[2018]12号）已完成其阶段性调控使命，拟予以废止。国家统计局最新数据显示，2022年2月份，哈尔滨新建商品住宅销售价格环比下降0.9%，同比下降3.8%；二手住宅销售价格环比下降1%，同比下降3.4%。自2021年8月份至今，哈尔滨新房价格已连续7个月下跌。
 
-审核：Aries的星
-校对：小东
-发布：Nuevo唐人
+链接：[https://finance.sina.com.cn/chanjing/cyxw/2022-03-24/doc-imcwipii0182330.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-03-24/doc-imcwipii0182330.shtml)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
+**2、海底捞巨亏40亿增收不增利**
+![图像](https://media.gettr.com/group3/origin/2022/03/24/05/f58a900f-6769-8b9b-ae4c-18ebc7ef726d/900cb3a4c75428fef3c08ea70ffb1116_500x0.png)
+23日晚间，海底捞发布业绩公告，2021年实现收入411.1亿元，同比2020年增长43.7%；亏损41.6亿元，其中计提由于闭店计划处置长期资产的一次性损失超过36.5亿元。与利润一并下滑的是节节败退的股价，自高点以来已跌逾80%，多只持仓海底捞的基金也损失不菲。
+
+链接 ：：[https://finance.eastmoney.com/a/202203242320964858.html](https://finance.eastmoney.com/a/202203242320964858.html)
+
+**3、腾讯去年4季度净利骤降25%，连续两季负增长**
+![图像](https://media.gettr.com/group14/origin/2022/03/24/05/66f957fd-1181-00cf-39f9-0d5553882acf/a3fbf6568151cabe8d1d2f1cc037d442_500x0.png)
+3月23日，互联网科技巨头腾讯发布了2021年财报。2021年全年，腾讯总收入为5601.2亿元，同比增长16%。国际财务报告准则下，公司权益持有人应占盈利2248.22亿元，同比增长41%。不过，非国际财务报告准则下，腾讯权益持有人应占盈利1237.88亿元 （Non-IFRS），同比仅增长1%，是近十年来增幅最低的一年。2021年Q4净利润（Non-IFRS）248.8亿元，同比下降25%，这是腾讯连续第二个季度出现单季净利负增长。
+
+链接： [https://finance.sina.com.cn/stock/s/2022-03-24/doc-imcwiwss7800349.shtml](https://finance.sina.com.cn/stock/s/2022-03-24/doc-imcwiwss7800349.shtml)
+
+**4、美国将新浪微博列入退市风险名单**
+![图像](https://media.gettr.com/group27/origin/2022/03/24/05/8ef7c0b1-66fb-9d2d-981e-52a86da86ea1/fb6bba9cb42a6e3cd1adb5fde6144b97_500x0.png)
+美国当地时间3月23日，中共国社交媒体平台新浪微博遭美国证监会（SEC）列入退市风险名单，成为第六家被列入该名单的在美上市公司。拜登政府周三警告中国，不要利用制裁俄罗斯带来的商业机会，不要帮助俄罗斯规避出口管制，也不要处理其被禁止的金融交易，以寻求阻止中国援助受到制裁打击的俄罗斯。美国商务部长雷蒙多表示，如果中国企业向俄罗斯出口用美国技术制造的半导体，美国将“绝对”会实施出口管制，此举可能“使中国企业基本关门”。
+
+链接 ：[https://cn.reuters.com/article/china-stock-0324-noon-idCNKCS2LL0B5?il=0](https://cn.reuters.com/article/china-stock-0324-noon-idCNKCS2LL0B5?il=0)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

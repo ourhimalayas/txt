@@ -2,29 +2,41 @@
 ---
 
 
-## 财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2227949/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2228279/)
 
-**图/文｜CP **
-**发布时间｜25/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/貝萊德CEO：俄烏戰爭終結全球化-加快數字貨幣發展.jpg)
+**整理：枳实**
+**美工：精灵蓝**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2935.png)
+图片：雅典娜农场设计组精灵蓝
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+雅典娜疫情更新（2022年 3月25日）
 
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-全球最大资产管理公司贝莱德/黑岩（BlackRock）行政总裁芬克（Larry Fink）周四（24日）公布了一份写给股东的公开信，他在信中写到，俄罗斯对乌克兰发起的战争预示着30年的全球化已经终结，因为这场冲突颠覆了自 1990 年冷战结束以来形成的世界秩序，并将产生持久的全球经济后果。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2936.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2937.png)
+[2022年3月25日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月25日改进.pdf)
 
-芬克警告指，过去两年全球因疫情导政的供应链中断，令全球通胀加剧。俄乌战争的爆发更进一步令供应链大规模地重新定位，促使企业退出全球供应链，让各国央行在价格上涨或经济活动减少之间做出艰难的选择。
+数据来源：
 
-另外，芬克特别提到战争对数字货币的影响，他认为这场战争会促使各国重新评估对货币的依赖性，贝莱德亦因客户对加密货币的兴趣增加，而正在研究数字货币和稳定币以及相关技术。他指出，“一个精心设计的全球数字支付系统，可以加强国际交易的结算，同时降低洗黑钱和贪腐的风险。”
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-芬克在信中所表达的观点与去年接受采访时的说法有很多变化，当时芬克对记者表示，他对数字货币的波动性有担忧，并认为现时将它视为一种交易工具还为时过早。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-來源｜[BlackRock](https://www.blackrock.com/corporate/investor-relations/larry-fink-chairmans-letter)、[Forbes](https://www.forbes.com/sites/sergeiklebnikov/2022/03/24/blackrock-ceo-larry-fink-says-russia-ukraine-war-is-upending-world-order-and-will-end-globalization/?sh=1368c14057eb)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-* * *
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

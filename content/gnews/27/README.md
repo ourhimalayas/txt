@@ -2,32 +2,22 @@
 ---
 
 
-## 芬兰将向乌克兰提供更多的国防装备
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228033/)
+## 乌克兰国家银行限制每月10万格里夫纳的准现金业务和个人海外转账
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2228304/)
 
-撰稿：JIHO
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-20.png)图为芬兰国防部长安蒂·凯科宁 图片来自Ilta-Sanomat
-根据芬兰MTV新闻3月24号消息，芬兰国防部通报芬兰将向乌克兰提供更多的国防装备。为了确保援助物资的交付，该部没有具体说明向乌克兰运送物资的时间表和方式。
+翻译：雄起（酷翻组）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/wukelanguojiayinhang.jpeg)
+乌克兰国家银行（NBU）已经限制了每月等价10万格里夫纳（UAH）的准现金业务以及使用付款人和收款人的银行卡信息将资金转移到国外个人账户（P2P转账）。
 
-这次援助的内容也没有公开，例如，现在是否将武器与其他国防装备一起交付给乌克兰。
+国家银行3月21日第58号决议批准了相关修改，该决议已在其网站上公布并已生效。
 
-据该部称，提供援助不会危及芬兰自身的防御能力。
+据悉，准现金业务包括充值电子钱包、经纪或外汇账户、支付旅行支票和购买虚拟资产。
 
-– 这些运输有其自身的风险，这就是为什么我们有如此严格的信息线。我希望这被理解，这么做可能有些智慧在里面，国防部长安蒂·凯科宁在议会对记者发表评论。
+相关链接：
+[NBU limits UAH 100,000/month quasi cash operations and P2P transfers abroad](https://en.interfax.com.ua/news/general/816704.html)
 
-– 北约和欧盟都建议，正是出于安全原因，这种克制的路线是相当明智的。
-
-今天，芬兰总统绍利·尼尼斯托就政府提议对此事作出正式决定。
-
-芬兰此前曾向乌克兰运送过包括武器在内的国防装备。2月底，芬兰决定运送2500支突击步枪、15万发子弹、1500支一次性步枪和75000包战斗弹药。甚至在此之前，帐篷、防弹背心和头盔已经被送往乌克兰。
-
-在俄罗斯进行了一个月的大规模侵略战争期间，乌克兰要求欧洲国家提供与国防和军备有关的物质援助。
-
-参考链接：
-[https://www.mtvuutiset.fi/artikkeli/suomi-antaa-lisaa-puolustustarvikkeita-ukrainaan/8386516?mtv\_ref=twb\_uutiset\_uusimmat#gs.v0uhs4](https://www.mtvuutiset.fi/artikkeli/suomi-antaa-lisaa-puolustustarvikkeita-ukrainaan/8386516?mtv_ref=twb_uutiset_uusimmat#gs.v0uhs4)
-
-总编：青城道姑
-校对发布：Linda
+审核校对：Barry Jack
+上传排版：F
 
  
 

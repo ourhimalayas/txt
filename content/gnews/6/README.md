@@ -2,24 +2,30 @@
 ---
 
 
-## 资本逃离香港意味着中美之战已经开始
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2228647/)
+## 七哥谈灭共芯片—格芯（3）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2228981/)
 
-作者：纽约磐石农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月20日的大直播中，郭先生表示，资本逃离香港跟疫情与中共病毒疫苗无关，而是投资者已经意识到，中美之战已经彻底打响。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-91.jpg)
-根据郭先生所掌握的情报，香港的投资者绝大部分已经认识到，中共与美国之间的对决已经拉开了帷幕。自俄乌战争爆发以来，美中两国多轮谈判与视频会晤，都清楚地表明中共与俄罗斯站在了同一阵营，共同对付西方民主国家。美国民众普遍认为，拜登政府对待中共和俄罗斯过于软弱，因此美国政府必将有进一步的行动。无论中共是否攻打台湾，美国对中共的金融与经济制裁，必将传导到香港股市。
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+台湾的台积电，TSMC，如果共产党只要打台湾，它基本上就完了。
 
-参考链接：[3/20/2022 文贵直播：资本逃离香港跟疫情和疫苗无关，而是因为投资者意识到中美之战已经开始；比特币被伊朗、华尔街、沼泽地、中共和俄罗斯控制，2%的人拥有96.6%的人的比特币，比特币就是个骗局！](https://www.gettr.com/post/p11ezix2b51)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥谈灭共芯片—格芯（3）.png)[图片来源](https://lights.ofweek.com/2021-11/ART-8110-2200-30532667.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+战争开启，军事芯片肯定涨十倍，百倍都有可能。格芯将是欧洲和美洲唯一可靠的芯片供应商，销售量可以增长10倍以上，它一定是3500亿到5000亿的市值。如果打台湾了，真把台积电国有化了，它绝对马上上万亿。新的一个芯片王国会诞生。
 
-总编: 宁文静
-编辑: 飞虹
-审核：Irene木木
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+但是不打台湾，格芯会是多少呢？我觉得它是绝对稳定的，基本上是不会赔的。即使经济危机来了，它也不会赔，因为你车还得用芯片，它是个必需品。而且它还有一个T3马上要公布，技术上更新，它只能会更好。TSMC干掉了，我们的格芯就涨一百倍一千倍，不干掉格芯也会涨，它俩要一联合就能全球控制。
+
+信息源：感谢文远战友提供素材
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

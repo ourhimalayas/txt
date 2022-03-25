@@ -2,16 +2,13 @@
 ---
 
 
-## 时事要闻2022年3月24日
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2227495/)
+## 【乌克兰救援】志愿者精粮战友表示：虽然大多数人并不知道新中国联邦和法治基金，但是我们就是要通过救援行动展示给世界我们的存在
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2228190/)
 
-作者：东京樱花团小视频组
+【乌克兰救援】03/24/2022 志愿者精粮战友表示：虽然大多数人并不知道新中国联邦和法治基金，但是我们就是要通过救援行动展示给世界我们的存在
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

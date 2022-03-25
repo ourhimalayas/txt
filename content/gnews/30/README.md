@@ -2,22 +2,28 @@
 ---
 
 
-## 世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2227929/)
+## 美情报评估俄罗斯导弹故障率达60%
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2228231/)
 
-视频：东京樱花团/战友520
-![](https://gnews.org/4a73b664-8608-45ba-b6e2-f6da9f19d7c6)
-月18日，世界CDN巨头Akamai 官网发文，表示很高兴达成与喜马拉雅交易所的合作，并在文中介绍了喜交所的运营目标，基本运行结构和强大的安全防御系统。Akamai与喜马拉雅交易所达成合作，标志着喜币、喜美元迈出里程碑式的一步。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/103-1.jpeg)
-信息来源： 世界CDN巨头Akamai在官网隆重介绍喜马拉雅交易所 超链接：[https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/](https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/%E3%80%91%EF%BC%88%E6%B3%A8%E9%87%8A%EF%BC%9A%E4%BF%A1%E6%81%AF%E6%9D%A5%E6%BA%90%E4%BB%A5%E8%B6%85%E9%93%BE%E6%8E%A5%E7%9A%84%E6%96%B9%E5%BC%8F%E4%BD%93%E7%8E%B0%EF%BC%8C%E8%AE%BE%E7%BD%AE%E4%B8%BA%E5%9C%A8new)
-Himalaya Exchange Creates a New Digital Financial System 
+**撰稿：日本东京方舟农场  子辰**
 
-超链接：[https://www.akamai.com/blog/edge/himalaya-exchange](https://www.akamai.com/blog/edge/himalaya-exchange%E3%80%91)
+3月24日，路透社引述三位了解情报的美国官员的消息说，俄乌之战中，俄罗斯用于攻击乌克兰的一些精确制导导弹的故障率高达60%。
 
-编辑：东京樱花团/曲别针 
-发布：东京樱花团/bohdan博赫丹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-41.jpg)（图片来自大纪元 ）
 
+据悉，出于信息敏感，这些官员没有提供评估证据，或透露是什么原因导致俄罗斯导弹的高失败率。但是这一披露可能有助于解释，为什么俄罗斯自入侵以来未能达到大多数人认为的基本目标，而导弹高故障率可能包括从发射失败到导弹在撞击时未能爆炸等各种情况。
+
+美国国防官员告诉媒体，根据五角大楼的评估，俄乌开战以来，俄罗斯已经发射了超过1,100枚各类导弹，其中数据取决于发射的导弹类型，有时失败率可能超过50%。其中两名官员说，失败率高达60%。
+
+另据华盛顿智库战略与国际研究中心的导弹防御项目显示，俄罗斯在乌克兰部署了两种类型的空射巡航导弹，即Kh-555和Kh-101,路透社采访的两位专家说，20%及以上的故障都被认为是高的。
+
+此外，俄罗斯在乌克兰战争中一直使用导弹轰炸，包括武器库在内的军事目标进行打击，数据显示，都有很高的失败率。
+
+参考链接： 
+[https://www.epochtimes.com/gb/22/3/25/n13671253.htm](https://www.epochtimes.com/gb/22/3/25/n13671253.htm)
+
+总编：青城道姑
+校对发布：Linda
 
  
 
