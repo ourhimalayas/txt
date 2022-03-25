@@ -2,25 +2,30 @@
 ---
 
 
-## 大部分加拿大人希望加强制裁俄罗斯
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223781/)
+## 郭文贵先生回应拜登政府：中共向俄罗斯提供的不仅仅是武器
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2224017/)
 
-作者：加拿大温哥华扬帆农场 – 采编：Ucool优酷 – 编译撰稿：硫酸羟氯喹64
+撰稿：Skagen
 
-据加拿大【CTV新闻】3月22日报道，最新民调显示，大多数加拿大人都支持增加对俄罗斯的经济制裁，并希望联邦政府能采取措施将乌克兰难民空运到加拿大。
+美国国家安全顾问杰克.沙利文周二表示，美国拜登政府在与中国国家主席习近平会谈后表示，没有看到中国向俄罗斯提供军事装备。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2811.png)图片来源：[Canada and Ukraine Handshake International Friendship Relations, Flag Background Stock Image – Image of diplomatic, country: 137519863 (dreamstime.com)](https://www.dreamstime.com/canada-ukraine-handshake-international-friendship-relations-flag-background-canada-ukraine-handshake-international-image137519863)
+在3月23日星期三的直播中 ，郭文贵先生对这一表述作出回应。他以讽刺的方式说：就这一个词啊！“中国没有向俄罗斯提供武器”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-8.jpg)
+虽然中共声称没有向俄罗斯提供武器，“但它是不是提供了资金、食品供应、情报和通信系统？”，郭先生连续提出了质问。
 
+郭先生解释说，中国之所以不会向俄罗斯提供武器，是因为本身中共国的武器技术大多就来自于俄罗斯。此外，在黑龙江、牡丹江和鸭绿江有70多家俄罗斯拥有的武器制造商，例如，代码3011的军工厂就是100%由俄罗斯拥有的。
 
-报道称，该调查是在俄乌战争爆发近一个月后进行的，约63%的加拿大民众认为，即使会导致能源产品价格的上涨也仍然会支持对俄罗斯的全面制裁
+郭先生说：”为什么俄罗斯还需要中共国提供武器？俄罗斯可以自己把中共国把武器拉回去。这是个玩的很深的游戏，普通人看不透。”
 
-据悉，由于担心与俄罗斯发生军事冲突，以及北约的直接介入所导致的战争升级，加拿大及其盟国目前仍拒绝在乌克兰建立禁飞区，但部分受访者则坚持表示有必要建立禁飞区以有效对抗俄军的恣意入侵。
+但是，郭文贵确信，美国人最终会弄清楚谁在幕后操纵，全世界都会同意中共国是元凶，而不是帮凶。中国人民将被认为是元凶和头号罪犯，俄罗斯只是一个被操纵的替罪羊。
 
-校对编辑：硫酸羟氯喹64
+令郭先生深感忧虑的是，世界领导人和有影响力的人不断告诉郭先生，中国人是元凶，他们是战争的创始人、创造者和操纵者。
 
-发稿：青青
+然而，郭先生继续向台湾朋友发出警告信息，鉴于习近平的个性，习近平一定会攻打台湾。
 
-新闻链接：[Ukraine: Canada supports more sanctions against Russia | CTV News](https://www.ctvnews.ca/canada/canadians-support-more-sanctions-compared-to-war-with-russia-survey-1.5829929)
+新闻来源：
+
+[Miles Guo broadcast March 23 Wednesday](https://gettr.com/post/p11h7xt9462)
 
  
 

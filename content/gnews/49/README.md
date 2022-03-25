@@ -2,27 +2,25 @@
 ---
 
 
-## 秦刚接受美媒采访做实中共支持俄罗斯立场
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2221574/)
+## 俄国将领及士兵以史上最快速度阵亡 创二战以来最高纪录
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2222788/)
 
-作者：美国纽约香草山农场 – 文鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月22日，一则盖特消息转发了美国媒体采访中共驻美大使秦刚的过程。主持人问到中共是否向俄罗斯提供了资金及军事援助时，秦大使承认中共国援助了药品、食物、睡袋和婴儿奶粉，但否认向俄乌战争任何一方提供武器和弹药，辩称中共持反对战争的政治立场。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-84.jpg)
-当主持人提出俄罗斯外长称中俄是紧密关系时，秦刚承认中俄有共同的利益和信任关系基础，中俄的关系是在WTO规则法律框架下进行的。被问到习近平为什么没有谴责普京的入侵行为和制止入侵时。秦确认习在战争第二天与普京通了电话，并建议普京通过谈判解决问题，但否认习支持普京的入侵。
+北约统计，短短4周内，多达4万名俄罗斯士兵被歼灭、受伤或被俘。西方官员周一表示，在不到一个月的时间里，俄罗斯侵略乌克兰的战争中至少失去6名高级将领和15位高级指挥官，创二战以来最高纪录，归咎通讯故障和数十万应征入伍的俄国年轻士兵缺乏纪律。
 
-郭先生早在战争开始时就透露过，中共国有大量的货运航班，秘密飞往俄境内援助普京。这一次秦刚为普京的侵乌战争狡辩，只能让美国和西方政府更清晰地认识中共的真面目。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-22.png)图片来源：UkraineWorld
 
-参考链接：[秦刚否认中共国向俄罗斯提供军事援助，而只是提供食品、睡袋和药品](https://gettr.com/post/p11bgiwa9d6)
+因此，指挥官难以向前线传达命令，将校被迫亲上第一线指挥，也因为士兵伤亡惨重，俄军恼羞成怒，对平民区狂轰滥炸洩愤，滥杀无辜。俄国将领及士兵以史上最快速度阵亡，俄罗斯最终恐兵败乌克兰！
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+简评：年迈多病的普京被野心与欲望冲昏了头脑，在习大神的教唆下发起了一场突如其来的战争。狂妄的普京本以为乌克兰没有准备好，结果发现是自己没有准备好。如今俄罗斯将领士兵损失惨重，乌克兰在国际援助下越战越勇，普京这次的如意算盘打错了，俄罗斯兵败乌克兰几乎已成定局！普京！不要再执迷不悟了！回头是岸是你最好的下场！
 
-总编：zhong
-编辑：飞虹
-审核：Irene木木
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E4%BF%84%E5%9C%8B%E5%B0%87%E9%A0%98%E5%8F%8A%E5%A3%AB%E5%85%B5%E4%BB%A5%E5%8F%B2%E4%B8%8A%E6%9C%80%E5%BF%AB%E9%80%9F%E5%BA%A6%E9%99%A3%E4%BA%A1-%E4%BF%84%E7%BE%85%E6%96%AF%E6%9C%80%E7%B5%82%E6%81%90%E5%85%B5%E6%95%97%E7%83%8F%E5%85%8B%E8%98%AD-064946063.html)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，请关注：**
+[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
+[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
+[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
 
  
 

@@ -2,26 +2,29 @@
 ---
 
 
-## 加拿大联合工会主席被指收受贿赂
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2226306/)
+## 有声｜俄乌战争已使多达4万名俄军受损
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2226417/)
 
-采编/编译撰稿：加拿大温哥华杨帆农场 – 薇文
+**By:秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-99.jpg)图片来源：HILL TIMES
+**2022-03-25**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-25-13.17.05.jpg)
+据[TheLeoTerrell](https://theleoterrell.com/as-many-as-40000-russian-troops-killed-wounded-captured-or-mia-in-ukraine/)3月24日报道，一位北约官员告诉NBC新闻，北约估计，在俄罗斯入侵乌克兰的第一个月里，有多达4万名俄罗斯军队已经死亡、受伤、被俘或失踪。
 
+据这位匿名的官员透露，其中有7000至15000名俄罗斯军队已经死亡。
 
-据加拿大[CP24]3月23日报道，[联合工会]前主席迪亚斯因收受病毒检测试剂盒供应商的贿赂而遭到内部员工投诉揭发。
+俄罗斯此前一直拒绝公开披露他们的部队在入侵乌克兰期间有多少人死亡。俄罗斯发言人德米特里·佩斯科夫周二表示，披露数字是俄罗斯国防部的 “专属特权”。
 
-报道称，迪亚斯在获得供应商5万加元之后，将其测试盒产品推广给联合工会的成员企业使用，部分企业雇主因此购买了这些防疫产品。事发之后，作为最高级别的民选官员，该主席被指控违反了行业准则和相关法规。
+报道称，这个消息是在五角大楼宣布俄罗斯的战斗力自其入侵开始以来大幅下降后不久发布的。
 
-据悉，[联合工会]将就此事举行听证会，尽管迪亚斯以健康问题拒绝出席，但执行委员会正努力寻求法律途径来起诉该工会的第一任全国主席。
+据《福克斯新闻》报道，俄军数周来未能在入侵中取得进展，美国一名高级国防官员表示，一些俄罗斯军队甚至 “正在遭受冻伤”，“因为他们缺乏适当的防寒装备，以适应他们所处的环境”。
 
-校对编辑：硫酸羟氯喹64
+（秘翻新闻 Grace 编辑报道）
 
-发稿：文明(添草灭共)
+发布:星星
 
-新闻来源： [Jerry Dias accepted money from COVID-19 rapid test supplier, Unifor alleges](https://www.cp24.com/news/jerry-dias-accepted-money-from-covid-19-rapid-test-supplier-unifor-alleges-1.5831349)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

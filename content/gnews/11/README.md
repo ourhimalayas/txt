@@ -2,29 +2,29 @@
 ---
 
 
-## 【Top News】联大通过决议 要求俄立即停止对乌作战
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2226423/)
+## 俄罗斯考虑在出售石油天然气时接受比特币付款
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2226511/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2877.png)
-法新社联合国总部24日消息，联合国大会（UN General Assembly）24日通过一项不具约束力的新决议，要求俄罗斯“立即”停止在乌克兰境内的战争。
+编译：文宝
 
-这项决议在纽约联合国总部获140个国家投下支持票、38国弃权、5国反对。现场随后传出掌声。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-63.png)
 
-联合国大会2日曾通过一项不具约束力的类似决议，要求俄国立即停止使用武力，当时有141国支持该决议。
+面对西方国家对其入侵乌克兰的严厉制裁，俄罗斯正在考虑接受比特币作为其石油和天然气出口的支付方式。
+在3月24日的视频新闻发布会上，俄罗斯国家杜马能源委员会主席Pavel Zavalny表示，当涉及到中国或土耳其等“友好”国家时，俄罗斯愿意在支付方式上更加灵活，买方的国家法定货币以及比特币被视为支付俄罗斯能源出口的替代方式。
 
-乌克兰在联合国大会紧急会议上，提出原由法国和墨西哥准备的新决议案。
+Pavel Zavalny说：“长期以来，我们一直在向中国提议转用卢布和人民币结算。” “在土耳其，将是里拉和卢布，你也可以交易比特币，”他说。
 
-南非提出与之打对台的决议案，内容并未直接点名俄罗斯，结果只获得50票支持、67票反对、36票弃权，没有通过。
+比特币在过去 24 小时内上涨近 4%，至约 44,000 美元。 在有关 Zavalny 言论的新闻报道首次出现时，加密货币的价格飙升。
 
-通过的决议文明确点名俄罗斯，“要求俄罗斯联邦立即停止对乌克兰的战争行为，特别是一切对平民和民间目标的攻击”。
+Pavel Zavalny还重复强调了普京周三的要求：“不友好”国家应以俄罗斯卢布支付天然气费用。 “如果他们想购买，让他们用硬通货支付，这对我们来说是黄金，或者在我们方便的时候支付，这是本国货币。
 
-美国驻联合国大使汤玛斯-葛林斐德（Linda Thomas-Greenfield）说，这项决议向有能力停止暴力的那个人提出呼吁，也就是俄国总统普京（Vladimir Putin）。
+尽管美国已禁止进口俄罗斯石油作为其对莫斯科对乌克兰战争的反应的一部分，但是鉴于欧盟对俄罗斯能源的严重依赖，部分原因是在冬季为房屋供暖，因此欧盟不太可能效仿美国的制裁措施。
 
-[【援引链接】](https://www.swissinfo.ch/chi/afp/%E8%81%94%E5%A4%A7%E9%80%9A%E8%BF%87%E5%86%B3%E8%AE%AE-%E8%A6%81%E6%B1%82%E4%BF%84%E7%AB%8B%E5%8D%B3%E5%81%9C%E6%AD%A2%E5%AF%B9%E4%B9%8C%E4%BD%9C%E6%88%98/47462404)
+原文链接：[https://www.cnbc.com/2022/03/24/russia-might-take-bitcoin-as-payment-for-oil-and-gas-as-sanctions-rise.html](https://www.cnbc.com/2022/03/24/russia-might-take-bitcoin-as-payment-for-oil-and-gas-as-sanctions-rise.html)
 
-**采集**/**撰稿：米拉雅**
-**审阅**/**天赐良闻**
-**上传/CharlieNZ查理**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-13.png)DISCORD
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-12.png)GETTR
 
  
 

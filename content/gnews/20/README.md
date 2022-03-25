@@ -2,21 +2,25 @@
 ---
 
 
-## 中共企图利用人民币石油化称霸世界
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2226293/)
+## 视频|战火中的乌克兰
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2226336/)
 
-编辑/总编: 雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
-在3月23日大直播中，郭文贵先生爆料，中共企图借由中东战争，控制中东能源，推行数字人民币结算石油，实现人民币石油化，挑战美元地位，摆脱西方制裁，打垮美国和欧洲的能源供应链。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093704.jpg)
-另一方面，中共侵占台湾，意在摧毁美国的芯片和技术供应链。届时，全球金融危机，粮食危机、社会秩序崩塌、供应链体系崩溃，中共妄图以此称霸世界。面对世界的清算，唯有新中国联邦能拯救中国人民。
+制作：大直播短视频组- 肌肉猫Elva
 
-参考链接：[郭文贵先生3月23日盖文](https://gettr.com/post/p11ksp71dc9)
+审核/编辑/发稿：为真不破20
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-128.jpg)
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+
+
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

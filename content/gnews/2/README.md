@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥点评PPT和过往参与直播的战友们的精彩时刻（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226519/)
+## Hpay的更新及飞机坠落事件（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226644/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10：30-10：40-03.jpeg)
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-02.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

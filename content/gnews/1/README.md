@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈CDN网络权威对喜币的认可（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226532/)
+## Hpay的更新及飞机坠落事件（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226649/)
 
-#### PPT制作: WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10：40-10：50-01.jpeg)
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10：50-11：00-03.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

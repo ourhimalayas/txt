@@ -2,32 +2,21 @@
 ---
 
 
-## 疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226442/)
+## 郭文贵先生爆东航坠机事件真相
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2226536/)
 
-**图/文｜CP **
-**发布时间｜25/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國新冠死亡率逐日攀升-喪葬業全行告急.jpg)
+编辑/总编: 雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093703.jpg)
+对于东航坠机事件，郭文贵先生在3月23日大直播中爆料，根据相关技术数据，该事件是一场蓄谋已久、精心策划的自杀行为。郭先生表示，根据当事人给中共的留言，因财产被骗，家人受虐，又因接种疫苗，深恐自己和家人都将因此导致死亡，自1月起，他精心策划这起报复性的事件，导致灾难性伤害。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+在中共国，除不可预测的疫苗灾难，疫苗灾难导致报复社会的突发事件恐将接踵而至。
 
+视频链接：[3/23/2022 文贵直播](https://gettr.com/post/p11juzl42ca)
 
-韩国卫生当局周二（22日）报告新增384 例 COVID-19 死亡个案，连续第六天超过 300 例，总死亡人数达到 13,141 人。而上个月的每日死亡人数均低于 100 人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-128.jpg)
 
-由于 COVID-19 死亡人数在短期内急速增加，殡仪馆首当其冲受到巨大压力。首尔国立大学医院负责人吴成铉表示，最近几周，该院的 13 个殡仪馆几乎全数爆满，加上火化设施有每日可承受的上限，死者家属经常不得不延后葬礼。据公开数据显示，韩国公共火葬设施的日容量已经从 3 月 4 日的 1,044 例增加至 1,424 例。
-
-对此，韩国中央灾害与安全对策本部宣布，提高全国公共火葬场的容量，并指示殡仪馆增加更多的冰箱来储存死者，以应对日益增加的 Covid-19 死亡人数。
-
-目前，当局已将全部 60 个公共火葬场的每日熔炉作业量增加到每单位 7 次，同时建议地方政府暂时允许当地火化设施跨区域处理其他地区的尸体，另外，由于全国 1,136 家殡仪馆的最高可容纳仅8,706 具尸体，因此，卫生官员要求各殡仪馆务必尽快安装额外的冰柜或带冷却系统的房间来增加容量。
-
-不过，这仍然不足以缓解类似首尔这样的人口大都市正面临的尸体积压难题。
-
-**来源｜**[**thestatesman**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)**、**[**abcNews**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
-
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,37 @@
 ---
 
 
-## 樱花时政┃美商务部长警告中共勿要出售芯片支援俄罗斯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2222114/)
+## 中共国的科技泡沫已经破灭
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2223766/)
 
-撰稿：东京樱花团/盐和光
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-24-172824-1.jpg)图片来源：xataka.com
+如我们所知，中共国的情况并没有好转。其科技巨头们蓬勃发展的日子似乎已经过去。去年夏天，习近平剪掉了这些巨头中许多人的“翅膀”，现在他们以毁灭性的方式影响着市场。
 
-3月24日观察者网报道，当地23日，雷蒙多对路透社称，所有中国的半导体公司都依赖美国的软件来制造芯片，因此它们受到（美国）控制。“如果我们发现它们向俄罗斯出售芯片，那我们会通过拒绝这些企业使用（美国）软件的方式，来让它们彻底关门。我们已经完全准备好这么做了。”
+中共国的大型科技公司正在倒闭中，中共国的互联网公司在股票市场上的估值创下历史新低。在过去快速扩张的几年里，它们享受了溢价估值，但大规模的抛售导致泡沫完全破裂。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-124.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fn.sinaimg.cn%2Ftech%2Ftransform%2F165%2Fw630h335%2F20210317%2F5528-kmkptxe1569619.png&amp;imgrefurl=https%3A%2F%2Fwww.btubang.com%2F16985.html&amp;tbnid=TY3puWYB6n0pSM&amp;vet=12ahUKEwjZvpG-0N72AhWK0OAKHSPmBqAQMygIegUIARDJAQ..i&amp;docid=st_Cvq2k7PEwNM&amp;w=630&amp;h=335&amp;q=%E8%8A%AF%E7%89%87&amp;ved=2ahUKEwjZvpG-0N72AhWK0OAKHSPmBqAQMygIegUIARDJAQ#imgrc=TY3puWYB6n0pSM&amp;imgdii=jVjWV76cLVDJwM)
+截至3月15日，腾讯已经损失了5300亿美元，阿里巴巴也是如此，已经损失了近5220亿美元，他们两大巨头是科技市场蓬勃发展趋势中的大玩家，而这一趋势也影响到了美团（减少2546亿美元）甚至是小米（减少561亿美元）等其他公司。
 
-她说，美国“每时每刻”都在监视是否有人可能违反其对俄罗斯的全面出口管制。一旦有任何国家出现违背美国制裁的情况，美国都将对该国行为进行打击。
+事实上，中共国的纳斯达克——恒生指数，在最近几周暴跌，自一年前的峰值以来损失了65%。过去几天，在监管机构明显打算放松对“大科技”公司的迫害后，这些估值出现了反弹，但是中共国大科技公司的前景并不乐观。
 
-此次警告中共国的官员是美国现任商务部长吉娜·雷蒙多曾就读于哈佛大学和耶鲁大学，获得法学博士学位，属于民主党温和派。
+腾讯，告别增长。中共国科技领域的宠儿正处于低迷状态。监管机构现在正寻求将其微信支付名人分拆为一个独立的金融公司，这可能会削弱人们对其庞大的社交网络微信的兴趣，而且该公司正准备进行大量的裁员。
 
-与此同时美国国家安全顾问沙利文周三表示，拜登计划本周在布鲁塞尔与欧洲和北约领导人举行紧急会谈时，宣布对俄罗斯政治人物和寡头实施新一轮制裁。
+阿里巴巴及其创始人马云，2020年11月，他的金融部门蚂蚁集团的IPO被暂停，这看起来将成为一个重磅炸弹，不是以马云所期望的方式。
 
-得道多助失道寡助，入侵乌克兰致使俄罗斯现在受到5532项国际制裁，数字还在增长，俄罗斯将不可能抗得住来自全世界的排斥，在现有对俄制裁的基础上，全世界还准备再加码继续制裁入侵者战争狂人。
+这是一系列挫折的开始，使阿里巴巴的情况受到影响。其股价跌得如此之低，以至于该公司试图利用回购的机会来推高股价：这并没有起到作用。至少没有像预期的那样，在未来的事情发生之前，阿里巴巴是中共国科技巨头陨落的另一个伟大例子。
 
-中共在俄罗斯入侵乌克兰前，两国签订了新的1份合同：10年1亿吨石油、30年480亿立方天然气的合同，使用欧元结算，不使用美元，不论是放开进口俄罗斯小麦还是进口高级石油，到如今直接运送武器弹药支持俄罗斯攻打乌克兰，中共都在用实际行动来表明自己对俄罗斯入侵在乌克兰的支持，也必将迎来和入侵者同等待遇的制裁。
+新闻来源：[xataka.com ] [La burbuja tech de China ha explotado: Alibaba está en caída libre y a Tencent no le va mucho mejor](https://www.xataka.com/empresas-y-economia/burbuja-tech-china-explota-alibaba-esta-caida-libre-a-tencent-no-le-esta-yendo-mucho-mejor)
 
-消息来源：[【美商务部长再威胁：发现中企卖俄芯片，就让它们关门】](https://me.mbd.baidu.com/r/DklhlAGWkM?f=cp&amp;rs=301525149&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0419f1818d54d407&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+审核：Aries的星
+校对：小东
+发布：Nuevo唐人
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
