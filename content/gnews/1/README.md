@@ -2,30 +2,26 @@
 ---
 
 
-## 财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2227949/)
+## 日本东京樱花团 中文新闻播报第32期
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2228024/)
 
-**图/文｜CP **
-**发布时间｜25/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/貝萊德CEO：俄烏戰爭終結全球化-加快數字貨幣發展.jpg)
+新闻内容摘要：
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+- 1.新中国联邦波兰边境梅迪卡救助站接待难民人数统计数据
+- 2.乌克兰泽伦斯基总统23日下午6点在日本国会进行了线上演说
+- 3.3月23日文贵先生直播时说东航空难的真相是人为的自杀事件
+- 4.西班牙媒体Republica发表的报道中，提到了新中国联邦和法治基金在波兰梅迪卡的人道主义救援活动
+- 5.西方国家的严厉制裁导致了俄罗斯货币卢布的暴跌
+- 6.韩国连续3周新冠肺炎新冠肺炎新感染病例出现最多
+- 7.乌克兰总统泽伦斯基在23日晚上发布了呼吁俄罗斯入侵1个月的24日开始在世界各地进行反战示威的视频
 
 
-全球最大资产管理公司贝莱德/黑岩（BlackRock）行政总裁芬克（Larry Fink）周四（24日）公布了一份写给股东的公开信，他在信中写到，俄罗斯对乌克兰发起的战争预示着30年的全球化已经终结，因为这场冲突颠覆了自 1990 年冷战结束以来形成的世界秩序，并将产生持久的全球经济后果。
+**播报：东京樱花团-优妃**
 
-芬克警告指，过去两年全球因疫情导政的供应链中断，令全球通胀加剧。俄乌战争的爆发更进一步令供应链大规模地重新定位，促使企业退出全球供应链，让各国央行在价格上涨或经济活动减少之间做出艰难的选择。
-
-另外，芬克特别提到战争对数字货币的影响，他认为这场战争会促使各国重新评估对货币的依赖性，贝莱德亦因客户对加密货币的兴趣增加，而正在研究数字货币和稳定币以及相关技术。他指出，“一个精心设计的全球数字支付系统，可以加强国际交易的结算，同时降低洗黑钱和贪腐的风险。”
-
-芬克在信中所表达的观点与去年接受采访时的说法有很多变化，当时芬克对记者表示，他对数字货币的波动性有担忧，并认为现时将它视为一种交易工具还为时过早。
-
-來源｜[BlackRock](https://www.blackrock.com/corporate/investor-relations/larry-fink-chairmans-letter)、[Forbes](https://www.forbes.com/sites/sergeiklebnikov/2022/03/24/blackrock-ceo-larry-fink-says-russia-ukraine-war-is-upending-world-order-and-will-end-globalization/?sh=1368c14057eb)
+**发布： 东京樱花团-eiei**
 
 * * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
-
+![此图像的alt属性为空；文件名为erweima.png](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

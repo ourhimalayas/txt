@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 10:42 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group20/origin/2022/03/25/09/f93c60d4-6cfc-e4e6-e171-4e46efa7001f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/25/2022 10:09 AM (UTC)`
 
 3/23/2022 Miles Guo: The entire world stands with Ukraine. The total GDP of Europe, the US, UK and Japan accounts for 70% of the world’s GDP. Russia will never win the Russia-Ukraine war even with the CCP’s support. Russia and Communist China will definitely disintegrate. Chinese people will live happily and safely in the country without the CCP.<br/><br/>3/23/2022 文贵直播: 全世界都站在乌克兰一边，欧美英日的GDP总和占世界的70%，俄罗斯即使背后有中共支持也打不赢俄乌战争；俄罗斯和中共国会被解体。在没有了中共的国度里，中国人会过得非常幸福、安全<br/>
@@ -152,13 +159,6 @@ Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Y
 
 03/24/2022  Ukraine Frontline Updates <br/><br/>乌克兰前线 战时战报 2022年3月24日更新【NFSC News】
 ![img](https://media.gettr.com/group40/origin/2022/03/24/17/18da84b1-b73b-6869-9f36-daa839387bb7/5d3d0412b4623337886f0970206ba177.jpeg)
-
----
-
-`@miles 3/24/2022 5:40 PM (UTC)`
-
-
-![img](https://media.gettr.com/group12/origin/2022/03/24/17/dc18dab4-f4c1-d6db-f226-67feef170d9e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

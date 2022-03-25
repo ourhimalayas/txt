@@ -2,41 +2,26 @@
 ---
 
 
-## 灭共段子——神雕侠侣第二级
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227921/)
+## 邪恶中共，洗脑操控！！！
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2228005/)
 
-撰稿：东京樱花团/Loveland
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-168.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fi1.hdslb.com%2Fbfs%2Farchive%2Fcd0158b161d2024e45cc0891ec18b712a97f7af0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bilibili.com%2Fvideo%2FBV17b411e7v6%2F&amp;tbnid=a0lT0MjMJtnXjM&amp;vet=10CCAQMyh3ahcKEwjY2dmUut_2AhUAAAAAHQAAAAAQAg..i&amp;docid=08Xj85DTIkWDoM&amp;w=1220&amp;h=762&amp;q=%E7%A5%9E%E9%9B%95%E4%BE%A0%E4%BE%A3&amp;ved=0CCAQMyh3ahcKEwjY2dmUut_2AhUAAAAAHQAAAAAQAg)
-杨过被带到桃花岛后因被大武小武误会吃郭芙的醋，于是决定教训杨过。
+韩国正道农场
 
-拳来脚去，杨过被摁倒在地，大武道：杨过，认输吧。
+撰稿：无名小卒
 
-杨过：把我关了这么久，想我认输？不可能！我要吃饭，我们要生活！
+上传：祁明
 
-郭芙：你还不回农村还有块地先自保，在城里等饿死啊？
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2517-15.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220325_154313.png)
+看看，陕西师范大学在俄乌战争中干些什么？图片显示陕西省思政课（就是之前的政治课）教师要在“中共陕西省委教育工委”及“陕西省教育厅”的指导下再由“全国高校思政课‘手拉手’集体备课中心”（陕西师范大学――陕西省）“陕西师范大学马克思主义学院”牵头出面培训思政课老师们，所谓“引导学生正确认识‘乌克兰局势’”。
 
-杨过一脚把大武踢晕，小武一看马上给大武运功疗伤，大武醒了过来……
+看见这图片心里立马想骂人，只要不是揣着明白装糊涂的人都能看明白，这就是赤裸裸的洗脑教育，明目张胆的要教育师范生颠倒黑白，统一思想认识，而师范生将来就是学生的老师啊，也就是中共国宣称的所谓“人类灵魂的工程师”这是多么邪恶的行为呐？比当初的德国纳粹有过之而无不及，这也是俄罗斯开始侵略乌克兰，网络上的所谓“俄粉”这么多的原因之所在。
 
-杨过和郭芙大惊失色：尼玛！腊肉复活了？！我滴个乖乖.吓死俺了……
+笔者希望让更多的人们看见、明白中共恶毒及其险恶用心，当中共做出更疯狂的举动时能对世界各地的华人能存有点恻隐之心也就能让笔者有点安慰了。
 
-这时郭大侠和黄蓉赶到，看了下大武的伤势：过儿，你用了几成功力？
+“中共不亡，百姓亡” Take Down The CCP！
 
-杨过：二级
 
-导演吐血：二级的？剧本明明是一级的……
-
-几人齐声道：大冷天演一级的得多冷？切，栖息（粤语：神经）
-
-信息来源：[https://gettr.com/post/p11rz2x4c78](https://gettr.com/post/p11rz2x4c78)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
