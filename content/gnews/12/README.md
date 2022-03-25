@@ -2,21 +2,25 @@
 ---
 
 
-## 视频|马斯克母亲声援乌克兰「脱敏-带海报」
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2226916/)
+## 樱花FM|疯狂的习近平危矣
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2227227/)
 
-视频制作：Dawns
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11.png)
-审核/编辑/发稿：浪迹天涯
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2883.png)
+2022年3月17日郭先生大直播爆料：丁薛祥，朱学军，韩立平秘书，习近平都能控制？我才不相信呢！你怎么知道谁不会用手指甲往水里弹点啥呢？普京只要别疯狂，停战，欧洲会是大欧洲，美国更强大。然后习近平一定会打台湾。可能在打前他就会被灭掉。我不相信中国会有20大，即便有10%的概率，我不相信习近平能保住他的权力。2025，绝对没有共产党。这场战争，最大的受益者，除了美国，就是我们新中国联邦人！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_-540x720.png)
+中共已经没有20大，即使有10%的可能有20大，也不会是习近平掌权。很有可能习近平被内部发动政变干掉，然后江泽民、曾庆红重新掌权！但是，最终他们也逃不了病毒疫苗的责任，逃不掉爆料革命的揭露，后面很可能与新中国联邦谈判，他们和平交出政权换取家族和部分财产的平安。相信以曾庆红为代表的江家帮比习近平有智慧的多的多的多，会看清国际形势会和平的放弃权力，让中国人真真正正拥有一人一票的选举权！！
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11.png)
+文字版原文：
+
+
+| [疯狂的习近平危矣](https://gnews.org/zh-hans/2184641/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

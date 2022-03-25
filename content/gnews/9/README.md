@@ -2,19 +2,36 @@
 ---
 
 
-## 为什么灭共由北到南
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2227096/)
+## 中日财经爆|美国宣布对俄罗斯追加制裁 或将俄踢出G20
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227250/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/美国宣布对俄罗斯追加制裁-或将俄踢出G20.png)[图片来源](https://www.aa.com.tr/en/americas/us-allies-announce-new-sanctions-on-russia-over-ukraine-war-/2544787)
+因俄罗斯对乌克兰的入侵没有停止，美国及其盟国3月24日对数十家俄罗斯国防公司、数百名国会议员和该国最大银行的首席执行官施加新的制裁。
 
-*发布：陶子*
+自俄罗斯军队一个月前入侵乌克兰、发动了自二战以来对一个欧洲国家最大规模的攻击以来，美国及其盟友已经实施了几轮制裁，包括对俄罗斯最大的银行和总统普京的制裁。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+美国财政部在一份声明中表示，新的制裁目标包括40多家国防公司，包括国有的战术导弹集团(Tactical Missiles Corp)和28家与之有关联的公司，以及他们的负责人。
+
+美国财政部表示，华盛顿的行动与欧盟、英国和加拿大采取的类似措施一致。
+
+财政部还对328名俄罗斯国家杜马(Duma)议员和俄罗斯最大的银行－俄罗斯联邦储蓄银行(Sberbank)行长Herman Gref实施了制裁。财政部称他是普京的亲密伙伴。
+
+这位政府官员说，美国曾警告普京，如果他入侵乌克兰，将面临迅速和严重的后果，现在这些威胁得到兑现。这位官员指出，俄罗斯正面临严重的通胀和经济痛苦，这将把它排挤出世界前20大经济体。
+
+美国国家安全顾问苏利文本周早些时候表示，美国将与盟国就是否将俄罗斯开除出20国集团(G20)一事进行磋商。美国总统拜登周四表示，他认为应该把俄罗斯开除出G20。
+
+消息来源:
+[美国宣布对俄罗斯的新一轮制裁措施 涉及国防公司、议员及黄金交易](https://cn.reuters.com/article/us-russia-new-sanctions-0325-idCNKCS2LM046?il=0)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
