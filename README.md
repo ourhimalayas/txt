@@ -15,65 +15,65 @@
 
 ---
 
-### [樱花FM|中共官员批评西方对俄罗斯的制裁 &#8220;越来越不合理&#8221;](/content/gnews/1/README.md)
+### [樱花FM|樱花时政：习近平的阴险毒辣让人无法想象的可怕](/content/gnews/1/README.md)
  ` 樱花FM`
 
-### [防止中共干预澳洲大学科研，朝野两党出台反制措施建议](/content/gnews/2/README.md)
+### [樱花FM|樱花时政：俄军将数千名乌克兰平民强制转移到俄罗斯境内偏远地区](/content/gnews/2/README.md)
+ ` 樱花FM`
+
+### [樱花FM|纽约时报：俄罗斯在入侵乌克兰前，向中共寻求支持](/content/gnews/3/README.md)
+ ` 樱花FM`
+
+### [樱花FM|拜登警告中共：若向俄罗斯提供“物质支持’，将面临严重后果！](/content/gnews/4/README.md)
+ ` 樱花FM`
+
+### [樱花FM|中共官员批评西方对俄罗斯的制裁 &#8220;越来越不合理&#8221;](/content/gnews/5/README.md)
+ ` 樱花FM`
+
+### [防止中共干预澳洲大学科研，朝野两党出台反制措施建议](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [中共亲苏派与亲美派的巨大差异](/content/gnews/3/README.md)
+### [加拿大或推迟结束疫苗护照旅行限制日期](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共亲苏派与亲美派的巨大差异](/content/gnews/8/README.md)
  ` NFSC News`
 
-### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/4/README.md)
+### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/9/README.md)
  ` 秘密翻译组金融团队`
 
-### [文贵大直播 3/25 真相之下，如此不堪的邪共军事“实力”](/content/gnews/5/README.md)
+### [文贵大直播 3/25 真相之下，如此不堪的邪共军事“实力”](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [3/23/2022 文贵直播: 全世界都站在乌克兰一边，欧美英日的GDP总和占世界的70%，俄罗斯即使背后有中共支持也打不赢俄乌战争；俄罗斯和中共国会被解体](/content/gnews/6/README.md)
+### [3/23/2022 文贵直播: 全世界都站在乌克兰一边，欧美英日的GDP总和占世界的70%，俄罗斯即使背后有中共支持也打不赢俄乌战争；俄罗斯和中共国会被解体](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [新州24日：7人感染病毒去世，其均接种疫苗](/content/gnews/7/README.md)
+### [新州24日：7人感染病毒去世，其均接种疫苗](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步](/content/gnews/8/README.md)
+### [视频|世界CDN巨头Akamai与喜马拉雅交易所达成合作，喜币、喜美元迈出里程碑式的一步](/content/gnews/13/README.md)
  ` KarmaLabs`
 
-### [樱花时政┃普京的“魔女围猎” 俄罗斯高层多人辞职和失踪](/content/gnews/9/README.md)
+### [樱花时政┃普京的“魔女围猎” 俄罗斯高层多人辞职和失踪](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈灭共的芯片—格芯（6）](/content/gnews/10/README.md)
+### [七哥谈灭共的芯片—格芯（6）](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [波罗的海三国将大概率参与乌克兰的对俄战争](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|习近平不改侵台野心](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类](/content/gnews/13/README.md)
+### [3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [七哥谈灭共的芯片—格芯（5）](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|俄罗斯侵略行为屡受挫 国际制裁进一步加码](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [中共助纣为虐 国人被指元凶](/content/gnews/16/README.md)
+### [中共助纣为虐 国人被指元凶](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [岸田首相派遣古河法务大臣前往波兰接收难民](/content/gnews/17/README.md)
+### [岸田首相派遣古河法务大臣前往波兰接收难民](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [白宫新闻秘书再次感染新冠病毒](/content/gnews/18/README.md)
+### [白宫新闻秘书再次感染新冠病毒](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“圣彼得堡阴谋”将清算中共国的一切](/content/gnews/19/README.md)
+### [“圣彼得堡阴谋”将清算中共国的一切](/content/gnews/20/README.md)
  ` NFSC News`
-
-### [秘翻在线：退休5年的铁道部部长也逃不过被清算的命运](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [网曝唐山市警察严查私自出门人员 违者被抓拘留](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
@@ -114,59 +114,59 @@
 ### [美情报评估俄罗斯导弹故障率达60%](/content/gnews/33/README.md)
  ` 日本東京方舟農場`
 
-### [【乌克兰救援】志愿者精粮战友表示：虽然大多数人并不知道新中国联邦和法治基金，但是我们就是要通过救援行动展示给世界我们的存在](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [一个战斗在基辅前线的平民的故事——应对战争有两种方式：一种是坐以待毙，一种是战斗。](/content/gnews/35/README.md)
+### [一个战斗在基辅前线的平民的故事——应对战争有两种方式：一种是坐以待毙，一种是战斗。](/content/gnews/34/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [芬兰将向乌克兰提供更多的国防装备](/content/gnews/36/README.md)
+### [芬兰将向乌克兰提供更多的国防装备](/content/gnews/35/README.md)
  ` 日本東京方舟農場`
 
-### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/37/README.md)
+### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/36/README.md)
  ` 關注組`
 
-### [时事要闻2022年3月24日](/content/gnews/38/README.md)
+### [时事要闻2022年3月24日](/content/gnews/37/README.md)
  ` Tokyo Sakura Video Group`
 
-### [秘翻新闻｜传俄军已接“战争结束日”命令](/content/gnews/39/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美国评估俄军袭乌导弹失败率最高达60%](/content/gnews/40/README.md)
+### [美国评估俄军袭乌导弹失败率最高达60%](/content/gnews/38/README.md)
  ` 波士顿五月花农场金融部`
 
-### [俄愿接受比特币作油气支付方式 美欧联手打击规避制裁](/content/gnews/41/README.md)
+### [俄愿接受比特币作油气支付方式 美欧联手打击规避制裁](/content/gnews/39/README.md)
  ` 波士顿五月花农场金融部`
 
-### [联合国大会通过改善乌克兰人道主义危机决议](/content/gnews/42/README.md)
+### [联合国大会通过改善乌克兰人道主义危机决议](/content/gnews/40/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声｜上海医疗系统近崩溃 民揭染疫人数惊人](/content/gnews/43/README.md)
+### [秘翻在线：川普起诉克林顿等人在其 &#8220;俄罗斯丑闻 &#8220;中相互勾结](/content/gnews/41/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声｜上海医疗系统近崩溃 民揭染疫人数惊人](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/44/README.md)
+### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/43/README.md)
  ` 關注組`
 
-### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/45/README.md)
+### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/46/README.md)
+### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/45/README.md)
  ` 關注組`
 
-### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/47/README.md)
+### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/46/README.md)
  ` 關注組`
 
-### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/48/README.md)
+### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/47/README.md)
  ` 美国政要直译推`
 
-### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/49/README.md)
+### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/50/README.md)
+### [中共国疫苗接种超32亿针，好比戴三个避孕套仍怀孕却没人怀疑套套的质量！](/content/gnews/49/README.md)
  ` 秘密翻译组-原创组`
 
-### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/51/README.md)
+### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中国人因中共成为俄乌战争元凶，新中国联邦是中国人唯一选择](/content/gnews/51/README.md)
+ ` YALUN 亚伦`
 
 ### [新西兰财经G乐部2022年3月24日:财经新闻整理](/content/gnews/52/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

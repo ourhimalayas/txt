@@ -2,33 +2,31 @@
 ---
 
 
-## 有声｜上海医疗系统近崩溃 民揭染疫人数惊人
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2226628/)
+## 台湾｜俄乌战争引爆外资大量出走 创历史新高
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226501/)
 
-**By**:**秘翻新闻**
+圖/文 zhong｜25/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-25.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+23日报导，俄乌战争爆发加剧外资对中共侵略台湾的担忧，导致外资抛售价值约4800亿台币的股票。外媒引述分析人士称为“外资史上空前出走潮”。
 
-**2022-03-25**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FCCA50FE-59FE-4C26-B9BF-2E4A6CBC2D01.jpeg)(Photo by STR/AFP via Getty Images)
-**[新唐人](https://www.ntdtv.com/gb/2022/03/24/a103381956.html)**北京时间3月25日消息。最近上海染疫人数居高不下，医疗系统几近瘫痪。
+兆丰国际投顾协理黄国伟于报导中表示，外资抛售了价值约4800亿台币的股票，期外资抛售台股刷新纪录，比2008年全球金融海啸时金额更大。2021年，外资抛售价值近4462亿台币的股票，2022年俄乌战争爆发导致外资抛售台湾股票已超过去年总和。
 
-截止3月24号，上海已公布15个疫情高中风险地区，许多社区被封控，一些大型医院被征用改为隔离医院，收治重症患者，体育馆也改为隔离点，收治轻症患者。医疗系统已不堪重负。
+根据彭博社的相关数据，本周海外投资者在短短两天内净卖出约 46 亿美元的台湾股票，周一是有记录以来的第二高单日撤资。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1190x-1.jpg)图：彭博社
+黄进一步表示，近期外资大量出走并未使台湾股市受到灾难性损失，原因在于台湾部分银行大量收购吸收了外资出走的冲击。此外，台湾的投资者认为俄乌战争与中共对台侵略是不同的情形，因此大部分人对台股的信心并未受到影响。
 
-此前，上海已启动应急预案，增开临时隔离收治点，并要求各个地方都要增设定点医院收治感染者。
+台积电占据晶片代工产业领导地位，占台股权值比28.8761%(2022/2/25数据)，被视为是台股的指标。外媒报导称，自 2 月底以来，其股价在台北和纽约均下跌了 3% 以上。Refinitiv 的数据显示，台湾的科技股也落后于大盘，同期台湾科技股指数下跌 2%。
 
-网传上海浦东北蔡21号发现了8000多例无症状感染者，上海官方称这是不实消息。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.45.26.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.46.34.png)
 
-有民众爆料称，来自当地派出所家人的消息表示，这是真的，这8000多例被分散了，每天只上报几百例。
 
-此外，有视频显示，3月23号，周浦医院的护士长与院方交涉中，哭诉护士们的辛苦，
-
-称护士们没日没夜地采样，连续36小时没有睡觉，大家的神经已经濒临崩溃边缘；医院的门窗也被全部封死，空气流通受阻，这让医护们感到极度不安；医院的清洁工和保安全部辞职了。
-
-（秘翻新闻 二丫编辑）
-
-发布:星星
+来源｜[bloomberg](https://www.bloomberg.com/news/articles/2022-03-08/foreign-exodus-from-taiwan-s-stocks-is-rapidly-gaining-pace)、[CNN](https://edition.cnn.com/2022/03/23/investing/taiwan-investment-jitters-russia-ukraine-intl-hnk/index.html)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

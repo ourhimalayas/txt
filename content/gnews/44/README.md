@@ -2,30 +2,40 @@
 ---
 
 
-## 台湾｜俄乌战争引爆外资大量出走 创历史新高
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226501/)
+## 中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226459/)
 
-圖/文 zhong｜25/03/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-25.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-23日报导，俄乌战争爆发加剧外资对中共侵略台湾的担忧，导致外资抛售价值约4800亿台币的股票。外媒引述分析人士称为“外资史上空前出走潮”。
+**撰稿：东京樱花团**/Calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-1-12.png)[**图片来源**](https://www.foxbusiness.com/markets/chinas-zte-exits-probation-after-us-court-ruling)
 
-兆丰国际投顾协理黄国伟于报导中表示，外资抛售了价值约4800亿台币的股票，期外资抛售台股刷新纪录，比2008年全球金融海啸时金额更大。2021年，外资抛售价值近4462亿台币的股票，2022年俄乌战争爆发导致外资抛售台湾股票已超过去年总和。
+**一位美国法官周二（3月22日）裁定，结束中兴通讯公司2017年非法向伊朗和朝鲜运送美国技术的五年缓刑。**
 
-根据彭博社的相关数据，本周海外投资者在短短两天内净卖出约 46 亿美元的台湾股票，周一是有记录以来的第二高单日撤资。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1190x-1.jpg)图：彭博社
-黄进一步表示，近期外资大量出走并未使台湾股市受到灾难性损失，原因在于台湾部分银行大量收购吸收了外资出走的冲击。此外，台湾的投资者认为俄乌战争与中共对台侵略是不同的情形，因此大部分人对台股的信心并未受到影响。
+**在得知美国地区法官Ed Kinkeade在德克萨斯州的决定后，中兴通讯股票的交易在深圳和香港市场开盘前暂停。**
 
-台积电占据晶片代工产业领导地位，占台股权值比28.8761%(2022/2/25数据)，被视为是台股的指标。外媒报导称，自 2 月底以来，其股价在台北和纽约均下跌了 3% 以上。Refinitiv 的数据显示，台湾的科技股也落后于大盘，同期台湾科技股指数下跌 2%。
+**该裁决是在该公司缓刑期的最后一天做出的，中兴通讯被指控通过涉嫌通过签证欺诈将中国公民带到美国的中兴通讯进行研究的行为违反了缓刑期的条例。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.45.26.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.46.34.png)
+**根据去年3月起诉书透露，一名前中兴通讯研究主任和一名佐治亚理工学院教授涉嫌密谋将中国公民至少从2014年到2018年带到美国，同时持有该大学赞助的J-1签证在中兴通讯从事技术研究。**
 
+**虽然中兴通讯没有在佐治亚州亚特兰大待决的签证案件中被指控，但法官上周在达拉斯就欺诈指控举行了听证会，该指控可能违反了中兴通讯的缓刑期的条例。 Kinkeade在周二的裁决中发现中兴通讯对前中兴通讯主任的行为负有法律责任，但决定不对中兴通讯采取任何进一步行动。**
 
-来源｜[bloomberg](https://www.bloomberg.com/news/articles/2022-03-08/foreign-exodus-from-taiwan-s-stocks-is-rapidly-gaining-pace)、[CNN](https://edition.cnn.com/2022/03/23/investing/taiwan-investment-jitters-russia-ukraine-intl-hnk/index.html)
+**中兴通讯已经达到缓刑的最高期限，该公司辩称，也已经被处以最高刑罚。作为2017年认罪的一部分，中兴通讯向美国政府支付了8.92亿美元。**
 
-* * *
+**法官写道，把这个“开放式的关于合法的工具的问题留给法院吧”。**
 
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+**尽管做出了有利的裁决，但法官鼓励政府对公司提出任何合理的指控以及刑事或民事处罚。**
+
+信息来源：
+
+[US judge rules in favour of China’s ZTE, ending probation | Business and Economy | Al Jazeera](https://www.aljazeera.com/economy/2022/3/23/us-judge-rules-in-favor-of-chinas-zte-ending-probation)
+
+**编辑：东京樱花团/喜马拉雅的微尘**
+**发布：东京樱花团/**yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

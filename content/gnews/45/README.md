@@ -2,40 +2,31 @@
 ---
 
 
-## 中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2226459/)
+## 疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226442/)
 
-**撰稿：东京樱花团**/Calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-1-12.png)[**图片来源**](https://www.foxbusiness.com/markets/chinas-zte-exits-probation-after-us-court-ruling)
+**图/文｜CP **
+**发布时间｜25/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國新冠死亡率逐日攀升-喪葬業全行告急.jpg)
 
-**一位美国法官周二（3月22日）裁定，结束中兴通讯公司2017年非法向伊朗和朝鲜运送美国技术的五年缓刑。**
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-**在得知美国地区法官Ed Kinkeade在德克萨斯州的决定后，中兴通讯股票的交易在深圳和香港市场开盘前暂停。**
 
-**该裁决是在该公司缓刑期的最后一天做出的，中兴通讯被指控通过涉嫌通过签证欺诈将中国公民带到美国的中兴通讯进行研究的行为违反了缓刑期的条例。**
+韩国卫生当局周二（22日）报告新增384 例 COVID-19 死亡个案，连续第六天超过 300 例，总死亡人数达到 13,141 人。而上个月的每日死亡人数均低于 100 人。
 
-**根据去年3月起诉书透露，一名前中兴通讯研究主任和一名佐治亚理工学院教授涉嫌密谋将中国公民至少从2014年到2018年带到美国，同时持有该大学赞助的J-1签证在中兴通讯从事技术研究。**
+由于 COVID-19 死亡人数在短期内急速增加，殡仪馆首当其冲受到巨大压力。首尔国立大学医院负责人吴成铉表示，最近几周，该院的 13 个殡仪馆几乎全数爆满，加上火化设施有每日可承受的上限，死者家属经常不得不延后葬礼。据公开数据显示，韩国公共火葬设施的日容量已经从 3 月 4 日的 1,044 例增加至 1,424 例。
 
-**虽然中兴通讯没有在佐治亚州亚特兰大待决的签证案件中被指控，但法官上周在达拉斯就欺诈指控举行了听证会，该指控可能违反了中兴通讯的缓刑期的条例。 Kinkeade在周二的裁决中发现中兴通讯对前中兴通讯主任的行为负有法律责任，但决定不对中兴通讯采取任何进一步行动。**
+对此，韩国中央灾害与安全对策本部宣布，提高全国公共火葬场的容量，并指示殡仪馆增加更多的冰箱来储存死者，以应对日益增加的 Covid-19 死亡人数。
 
-**中兴通讯已经达到缓刑的最高期限，该公司辩称，也已经被处以最高刑罚。作为2017年认罪的一部分，中兴通讯向美国政府支付了8.92亿美元。**
+目前，当局已将全部 60 个公共火葬场的每日熔炉作业量增加到每单位 7 次，同时建议地方政府暂时允许当地火化设施跨区域处理其他地区的尸体，另外，由于全国 1,136 家殡仪馆的最高可容纳仅8,706 具尸体，因此，卫生官员要求各殡仪馆务必尽快安装额外的冰柜或带冷却系统的房间来增加容量。
 
-**法官写道，把这个“开放式的关于合法的工具的问题留给法院吧”。**
+不过，这仍然不足以缓解类似首尔这样的人口大都市正面临的尸体积压难题。
 
-**尽管做出了有利的裁决，但法官鼓励政府对公司提出任何合理的指控以及刑事或民事处罚。**
+**来源｜**[**thestatesman**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)**、**[**abcNews**](https://www.thestatesman.com/world/s-korea-increases-capacity-crematoriums-cope-covid-deaths-1503053845.html)
 
-信息来源：
+* * *
 
-[US judge rules in favour of China’s ZTE, ending probation | Business and Economy | Al Jazeera](https://www.aljazeera.com/economy/2022/3/23/us-judge-rules-in-favor-of-chinas-zte-ending-probation)
-
-**编辑：东京樱花团/喜马拉雅的微尘**
-**发布：东京樱花团/**yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-10.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 

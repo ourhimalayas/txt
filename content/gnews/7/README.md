@@ -2,35 +2,25 @@
 ---
 
 
-## 新州24日：7人感染病毒去世，其均接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2229075/)
+## 加拿大或推迟结束疫苗护照旅行限制日期
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229163/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+编译撰稿：加拿大温哥华杨帆农场 – 活力人生
 
-#### 编辑/整理：小鱼儿
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture109.png)图片来源：雅典娜设计组&Reddit
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-2-17.jpg)图片来源：cbc
 
 
-新南威尔士州卫生部3月24日报告，7人感染新冠病毒去世，其中4人接种三剂疫苗，3人接种两剂疫苗。去世者中，1人40多岁，1人60多岁，2人80多岁，3人90多岁。
+据【加拿大广播公司】3月23日报道，随着疫情趋缓，尽管多个省份已取消疫苗护照和对未接种者的限制措施。但未接种者仍无法乘坐飞机或火车进行国内或国际旅行。
 
-七人中，两名来自悉尼北部，一名来自悉尼内西区，两名来自贝壳港地区，一名来自中海岸地区，一名来自中央海岸。
+对此，加拿大首席公共卫生官谭咏诗声称：联邦政府正在审查针对旅行者和联邦工作人员的疫苗限制政策，并评估取消该政策的可能性。但由于全球疫情的不停反复，可能会使结束限制的时间被无限期推迟。
 
-自大流行开始以来，新州与新冠病毒相关的死亡总数达到 2,044 人。
+据悉，目前有超过 85% 的5 岁以上加拿大人已完全接种了“新冠病毒”疫苗，而有至少50% 以上的成年人被注射了该疫苗加强针。
 
-另外，据Zelenko医生介绍，多次接种疫苗的人群，免疫力被破坏。这就是为什么，以色利的殡葬业者看到的死亡数量，是以往的10倍甚至1000倍，而且很多是年轻人。甚至，大约50%的以色利人患有艾滋病。
+校对编辑：硫酸羟氯喹64
 
-参考资料：[COVID-19 (Coronavirus) statistics  | 24 March NSW](https://www.health.nsw.gov.au/news/Pages/20220324_00.aspx)
+发稿：文明(添草灭共)
 
-[Dr Zelenko talk about vaccines  destroy immune system](https://twitter.com/jersey1712/status/1507004106572918788?s=21&amp;t=dNNmmeaek2oFj88MVwjNzA)
-
-发布：Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+原文链接： [https://www.cbc.ca/news/business/unvaccinated-travel-canada-1.6393668](https://www.cbc.ca/news/business/unvaccinated-travel-canada-1.6393668)
 
  
 
