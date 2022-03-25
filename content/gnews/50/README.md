@@ -2,23 +2,27 @@
 ---
 
 
-## 樱花头条┃波兰第二大广播电台ZET报道 中共不代表中国人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221973/)
+## 面对制裁 俄罗斯欲将马里乌波尔市变为战争“灰烬”
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2221576/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/03245.png)
-波兰第二大广播电台ZET 在推特账号上报道了“中共不代表中国人”.
+作者：纽约香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒22日消息，乌克兰马里乌波尔市一位官员表示，马里乌波尔的街市正在饱受俄军入侵和轰炸的猛烈摧残，俄罗斯的猛烈空袭正在将被围困的马里乌波尔变成“死亡的灰烬”。
 
-信息来源：[https://gettr.com/post/p10er5j083d](https://gettr.com/post/p10er5j083d)
+据了解本次轰炸得原因是，乌克兰在一天前拒绝了俄罗斯要求其投降的最后通牒，美国和欧洲则计划实施更多制裁来惩罚入侵乌克兰的莫斯科。马里乌波尔市仍有数十万普通民众被困在多个建筑物内无法撤离，他们当下难以获得任何食物、水、电力或暖气。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-83.jpg)
+马里乌波尔副市长奥尔洛夫称，该市受到了俄军最严酷的全面封锁，最近未能收到任何人道主义救援。每天约有50～100颗的炸弹被俄军投掷到了这里，这座城市已经被死亡和哭声包围了。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO-1-3.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+参考链接：[Russian strikes turning Mariupol into ‘ashes’ as West plans more sanctions](https://www.reuters.com/world/russian-air-strikes-wreak-havoc-mariupol-turning-ukrainian-city-ashes-2022-03-22/)
+
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+总编：zhong
+编辑：飞虹
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

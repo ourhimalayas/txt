@@ -2,31 +2,18 @@
 ---
 
 
-## 无苗欧文彻底解禁！半年抗争终于回归
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2225846/)
+## 战友们在今年能做点什么（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226064/)
 
-据3月25日虎扑体育报道，纽约即将执行新政策，这也意味着篮网球员凯里-欧文正式获准出战篮网主场的比赛。坚决不打中共病毒疫苗的欧文经过半年的坚持，终于迎来了彻底回归！
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-30_9-40一1-1.png)
+*发布：陶子*
 
-**欧文疫苗事件全时间线回顾**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-297.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-170.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-140.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4-106.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5-89.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6-97.png)图片来源：虎扑体育
-
-
-经过181天的艰难抗争，欧文顶住了来自全世界舆论声讨的压力，终于用行动捍卫了自己的立场，更是用行动捍卫了自由！坚定的无苗族！欧文！MVP！
-
-新闻来源：[虎扑体育](https://lite.hupu.com/cs/hotevent?pageId=77&amp;night=0)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

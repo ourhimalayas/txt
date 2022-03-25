@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰总统在日本国会线上演讲 呼吁对俄继续制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2225144/)
+## G7领导人联合声明：全力追究普京等人的战争责任
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2225145/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220325-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220325-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)

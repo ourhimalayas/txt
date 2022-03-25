@@ -2,27 +2,28 @@
 ---
 
 
-## 樱花时政┃中共“千人计划”骨干成员欺骗美国签证获刑入狱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221813/)
+## 秦刚接受美媒采访做实中共支持俄罗斯立场
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2221574/)
 
-撰稿：东京樱花团/皓月当空郭
+作者：美国纽约香草山农场 – 文鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月22日，一则盖特消息转发了美国媒体采访中共驻美大使秦刚的过程。主持人问到中共是否向俄罗斯提供了资金及军事援助时，秦大使承认中共国援助了药品、食物、睡袋和婴儿奶粉，但否认向俄乌战争任何一方提供武器和弹药，辩称中共持反对战争的政治立场。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-84.jpg)
+当主持人提出俄罗斯外长称中俄是紧密关系时，秦刚承认中俄有共同的利益和信任关系基础，中俄的关系是在WTO规则法律框架下进行的。被问到习近平为什么没有谴责普京的入侵行为和制止入侵时。秦确认习在战争第二天与普京通了电话，并建议普京通过谈判解决问题，但否认习支持普京的入侵。
 
-据美国之音3月24日报道：美国司法部3月23日宣布：美国一个大陪审团认定新泽西州一名华裔男子隐瞒为中共国政府雇员骗取美国签证罪名成立。他将面临长达五年的监禁。
+郭先生早在战争开始时就透露过，中共国有大量的货运航班，秘密飞往俄境内援助普京。这一次秦刚为普京的侵乌战争狡辩，只能让美国和西方政府更清晰地认识中共的真面目。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-20.jpg)图片来源于本文链接
+参考链接：[秦刚否认中共国向俄罗斯提供军事援助，而只是提供食品、睡袋和药品](https://gettr.com/post/p11bgiwa9d6)
 
-新泽西州李堡镇居民，今年59岁的柳忠三(Zhongsan Liu) 被控在主管中国国际人才交流协会驻当地办事处工作期间以欺骗手段为中共国政府雇员申请并获得美国访问学者(J-1)签证，有关人士在获得签证后主要并非在美国研究部门做访问学者，而是在中国国际人才交流协会为中共国政府工作，包括招募美国研究人员为中共国政府工作。法庭指控柳忠三帮助这些中共国政府雇员造假，以便能继续留在美国非法为中共国政府工作。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-中共国的官方资料显示，中国国际人才交流协会隶属科技部外国专家局，主要工作是“聘请外国专家来华工作、选派中共国管理和技术人员赴境外实习培训、协助中外组织发展友好往来和经济关系。” 该协会是实施中共国“千人计划”的一个主要机构。
+总编：zhong
+编辑：飞虹
+审核：Irene木木
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-这一事件，再此验证了文贵先生引领的爆料革命几年前的爆料，就是中共“2025”和“千人计划”，包括“孔子学院”等等！如今中共这些偷盗计划和“三F方案”已经被西方所看清，这一宣判表示美国已在行动中！而新中国联邦所倡导的与西方实现“千年和平”，也必将被西方所欢迎和认可！
-
-消息来源：
-[美国一个大陪审团认定“千人计划”骨干欺骗美国签证罪名成立](https://www.voachinese.com/a/6498882.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

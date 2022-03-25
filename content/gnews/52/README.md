@@ -2,24 +2,24 @@
 ---
 
 
-## 中日财经爆┃中美贸易部分商品的关税豁免
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221633/)
+## 美国北约警告白俄罗斯可能参战
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2221572/)
 
-撰稿：东京樱花团/Garrettw
+作者：纽约磐石农场-在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+台媒22日报道，美国及北约均有官员指出，白俄罗斯总统卢卡申科已经准备支持普京，白俄罗斯参战的可能性逐渐升高。对此，美国有官员表示，白俄罗斯上个月通过法律，同意让俄罗斯驻军并部署核武器，不过目前尚没有实际动向。北约官员则认为，普京目前亟需所有方面的支持，同时俄罗斯试图从乌克兰西部边界斩断北约的军援，因此白俄罗斯参战的可能性极高。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-85.jpg)
+白俄罗斯是否参战一事尚未明确，截至目前仅内部消息人士向媒体披露。而白俄罗斯自俄罗斯自开始入侵乌克兰以来，根据北约情报及雷达监控显示，俄罗斯长期利用白俄罗斯领土当作空军行动的跳板。
 
-当地时间23日，美国贸易代表办公室发布声明，宣布重新豁免对352项从中国进口商品的关税，该新规定将适用于在2021年10月12日至2022年12月31日之间进口自中国的商品。去年10月，美国贸易代表办公室宣布，拟重新豁免549项中国进口商品的关税，并就此征询公众意见。时隔近半年之后，美国贸易代表办公室23日发布声明，确认对此前拟重新豁免关税的549项中国进口商品中的352项进行确认。该办公室表示，当天美方的决定，是在全面征求公众意见、并与美国相关机构协商后的结果。
+参考链接：[北約、美國都示警：白俄羅斯近日可能參戰](https://news.ltn.com.tw/news/world/breakingnews/3868461)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-63.png)[图片来源](https://weibo.com/cctvxinwen)
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-美国贸易办公室释放的“豁免部分中国进口商品关税”的信号，是走的哪一步棋？请继续关注的Gnews的相关新闻。
-
-消息来源：
-1、[中美贸易商品关税](https://weibo.com/cctvxinwen)
-2、[USTR Issues Determination of Reinstatement of Certain Exclusions from China Section 301 Tariffs](https://ustr.gov/about-us/policy-offices/press-office/press-releases/2022/march/ustr-issues-determination-reinstatement-certain-exclusions-china-section-301-tariffs)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+总编：zhong
+编辑：飞虹
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

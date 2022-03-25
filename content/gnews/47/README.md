@@ -2,27 +2,23 @@
 ---
 
 
-## 波兰驱逐45名冒充外交官的俄罗斯间谍
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2223395/)
+## 樱花头条┃波兰第二大广播电台ZET报道 中共不代表中国人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2221973/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/03245.png)
+波兰第二大广播电台ZET 在推特账号上报道了“中共不代表中国人”.
 
-据《世界新闻网》3月23日报道，波兰内政部长今日宣布，波兰驱逐了45名冒充外交人员的俄罗斯间谍。
+信息来源：[https://gettr.com/post/p10er5j083d](https://gettr.com/post/p10er5j083d)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.jpg)(右)波兰内政部长卡明斯基（Mariusz Kaminski）（图片来自路透社）
-
-据报道，早前波兰反间谍机构《国内安全局》（ABW）表示，已确认45名俄罗斯外交人员涉嫌担任间谍，要求波兰外交部将他们驱逐出境。国内安全局发言人札林（Stanislaw Zaryn）称，这些犯嫌的活动对波兰内部和外部安全皆构成威胁。
-
-波兰内政部长卡明斯基（Mariusz Kaminski）今日则在推特发文称：“我们正在拆除我们国内的俄罗斯特工网络。”
-
-对此，俄罗斯外交部表示，如果俄罗斯外交人员遭波兰驱逐出境，俄方将进行报复。
-
-参考链接：
-[https://www.worldjournal.com/wj/story/121480/6187398](https://www.worldjournal.com/wj/story/%20121480/6187398)
-
-编辑：幽蘭自得
-总编：老孙
-校对发布：爱放飞
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO-1-3.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-3.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
