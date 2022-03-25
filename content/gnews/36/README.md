@@ -2,34 +2,34 @@
 ---
 
 
-## 特鲁多在欧盟议会中被当众唾弃
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229713/)
+## 加拿大禁止其士兵加入乌克兰外国军团
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
-
-编译撰稿：加拿大温哥华杨帆农场 – 薇文
+作者：加拿大温哥华扬帆农场-活力人生
 
 - ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-7.jpg)图片来源：thepostmillennial
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
 
 
-据[多伦多太阳报]3月24日报道，日前在布鲁塞尔举行的欧盟议会全体会议上，多位议员称特鲁多为“最恶劣的独裁统治者”，并强烈谴责其此前在镇压加拿大自由车队的抗议活动中侵犯人权。
+据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
 
-会议期间，克罗地亚议员怒批特鲁多指使皇家骑警恶意冲撞残疾妇女、恣意封锁抗议者的银行账户，践踏了欧洲乃至全世界无数公民为之献身的民主价值观和人权自由。在特鲁多极权主义的铁腕下，其政府已沦为为侵犯公民权利的象征。
+加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
 
-德国议员则表示，特鲁多对自由车队的处理方式是一切民主的耻辱。一个公开钦佩中共独裁制度，把加拿大公民诬陷为恐怖分子并加以迫害和定罪的总理，没有资格在欧盟议会上发言。
+艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
 
-此外，罗马尼亚议员因特鲁多到会而拒绝出席会议，称特鲁多无德无能来欧盟议会向普京传授民主课程。而另一位德国议员则明确表态称，像特鲁多这样的独裁者不配在欧盟这样的民主之家有任何发言机会。
+加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
 
-校对编辑：硫酸羟氯喹64
+新闻链接：
 
-发稿：文明(添草灭共)
+[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
 
-新闻来源： [‘DICTATORSHIP OF THE WORST KIND’: European MPs blast Trudeau for COVID ‘rights violation’](https://torontosun.com/news/world/dictatorship-of-the-worst-kind-european-mps-blast-trudeau-for-covid-rights-violation)
+* * *
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
 
 
  

@@ -2,36 +2,65 @@
 ---
 
 
-## DC大中华时事：中方回应北约轰炸南联盟23周年
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2231167/)
+## 2022年3月25日文贵先生直播摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2231221/)
 
-*编辑：文顾 / 作图：*hans（文玄）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220325-2.jpg)
+视频连接：[2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易](https://gettr.com/streaming/p11tme3b4de)
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+1、G-Fashion使用H-Pay支付，数学货币到实体店交易，是真正的商业行为，意义巨大；
 
-#   墙国妄语每日驳
+2、俄乌战争：俄罗斯号称世界第二大军事强国，170个国家（世界70%国家）武器供应国，俄飞机坦克，被一个乌克兰的小女孩毒刺导弹全部打烂，俄媒体完全造假虚假宣传；
 
-### **08.. **[习近平同英国首相约翰逊通电话](http://baijiahao.baidu.com/s?id=1728270677438147388)
+3、如果俄中开打，中开始占上风，但俄稳住后，只需3小时灭共；
 
-***简评：***世界已经逐渐与中共国脱钩，文明国家都在俄乌战争中认清了中共的邪恶。习还自以为是的与西方国家元首通话，对内表示出与西方世界关系还没有断，对外妄图以俄乌战争调停者身份自居，实际上坚决站在普京一边，选择与邪恶为伍，把自己牢牢绑在俄罗斯普京的战车，西方对中共国的制裁一定会到来。
+4、俄罗斯重量级人物要把家人送到美国避险；
 
-### 08..[东航：航班失联前机组没有挂出任何紧急代码](https://www.sohu.com/a/532672994_267106?editor=%E9%BD%90%E6%B1%9D%E9%92%B0%20UN970&amp;scm=1104.0.0.0&amp;spm=smpc.home.top-news2.1.1648242271817w4FvCcM)
+5、未来战争，人的战争会越来越少，科技战争，远程，经济战争（像打游戏）谁控制了通讯权，谁控制战争；
 
-***简评：***中共国不断弱化黑匣子数据能否解密，就是郭文贵先生依据世界顶级航空专家的判断，说出了坠机可能是人为自杀导致的。不管中共如何找理由拒绝公布真相，业界人士根据已有的飞行数据和坠机表现都有了自己的判断。唯有中共国的假和互害模式还会继续存在，只有彻底消灭中共，中国人才能真正找回对自身的救赎。
+6、现在的病毒，不仅仅是新病毒。是3针疫苗+omicron +COVID19的综合结果；
 
-### [08..中方回应北约轰炸南联盟23周年：北约为战争而活](https://www.sohu.com/a/532654448_115376?editor=%E9%BD%90%E6%B1%9D%E9%92%B0%20UN970&amp;scm=1104.0.0.0&amp;spm=smpc.home.top-news3.2.1648242271817w4FvCcM&amp;_f=index_news_7)
+7、美国司法部刑事起诉五名中共特务：三名被抓，两名在逃，代表中共国家安全部工作；
 
-***简评：***中共对内不断洗脑民众，宣称北约是战争机器。但它从不告诉民众为什么北约轰炸南联盟。正是南联盟在塞尔维亚地区犯下了种族大屠杀，北约才出兵解救塞尔维亚人民的。中共国为什么每次都选择与独裁和邪恶站在一起，因为它本身就是独裁和邪恶的化身。如果美国和西方世界消灭了所有的独裁统治，中共也就灭亡了，这就是中共不断洗脑国内群众的原因。当人民知道了真相，中共一天也不会在中华大地上存活。
+8、中共刚刚派出几组人，专门对付文贵先生、王雁平，还有英国的喜联储的人；
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/956886526455857173/1.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/956886590377062440/2.PNG?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/956886688393744464/3.PNG?width=1043&amp;height=586)
+9、这几年文贵先生面对中共的法律超限战太难了，180多次法庭问话，不能有一次错误，2017年4月19日文贵先生要爆海航的料，2017年4月18日太平联盟状告文贵先生，9月11日文贵先生申请政治庇护，同一天吴征替马蕊案付律师费；
 
+10、 东航事件：所有的中共国飞机强制安装 QACVR录音系统，即时传输，100%不会被破坏，为啥不公开？
 
+11、明天早上 8点开始G-Clubs抽奖，大约8千至1万人登记，礼物总价值200万美元；
 
+12、H-Pay 在G-Fashion的应用，意义巨大，3-5周，还有重大消息；
 
-*编辑：*文顾
-*作图：hans（文玄）
-发布：文顾*
+13、中国房地产：在中国，房子只要一套能住的就可以，多出一套都是棺材；
+
+14、中国人只有真正掌握的货币的权力，才能有安全感，才能明白财富的意义！新中国联邦人会创造任何人不能掠夺的货币权力——铸币权！喜币躺平币，是世界最安全，永远不可剥夺财富的创造者；
+
+15、国内疫情封城就是失控了；
+
+**注：大直播音频——**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

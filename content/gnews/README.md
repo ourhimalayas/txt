@@ -15,154 +15,154 @@
 
 ---
 
-### [2022年3月25日文贵先生直播摘要及音频—银河系农场](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [樱花时政┃中共媒体为何不报道俄罗斯的“生物武器风险”？](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃俄吹牛被揍，扬言海上进军的军舰被摧毁](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [灭共段子——早灭共党不买高价菜](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [DC大中华时事：中方回应北约轰炸南联盟23周年](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [灭共段子](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃中共的策略：对所有人说谎！](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【文炬拾字】当宗教沦为邪恶工具](/content/gnews/8/README.md)
+### [民调显示多数加拿大人支持取消对CBC的资助](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [精糧采访埃及的红新月会志愿者](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [3月25日文贵大直播要点（图片1-6）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
 
-### [美国总统拜登到访波兰“枢纽城市”热舒夫](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022/03/25 文贵先生直播重点大纲](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022年3月25日大直播速记精萃](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [美司法部宣布给予认证俄罗斯黑客的人1000万美元奖励](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [视频|失去母亲的男孩跪在妈妈身旁悲痛万分](/content/gnews/15/README.md)
- ` 爆料视频`
-
-### [视频|但愿你的眼睛，只看得到笑容](/content/gnews/16/README.md)
- ` 爆料视频`
-
-### [为应对俄乌战争北约紧急峰会如期进行](/content/gnews/17/README.md)
- ` 扬帆枫叶快讯`
-
-### [2022/03/25 英喜时事速递](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大增强对俄罗斯航班的禁飞令](/content/gnews/19/README.md)
- ` 扬帆枫叶快讯`
-
-### [五月花简报（03/25/2022）](/content/gnews/20/README.md)
- ` mayflowertranslate`
-
-### [芬兰切断俄国与欧盟最后的运输系统](/content/gnews/21/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [报道称沙特阿拉伯阿美石油公司石油设施发生巨大火灾](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [俄罗斯纳税人为普京的行政和生活开支多付了40%](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜登称由于普京入侵乌克兰，全球将面临粮食短缺](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [印度称与中共国关系在边界紧张的情况下不可能正常进行](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [塔利班承诺解决中共“所有关切”](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【转】截至3.24 俄乌战事汇总（3）](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [两名男子就旅行疫苗强制起诉特鲁多政府](/content/gnews/28/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [新中国联邦驻波兰营地未雨绸缪建帐篷](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频|这世界有那么多人，多幸运，我还有我们](/content/gnews/30/README.md)
- ` 爆料视频`
-
-### [CDC将COVID-19的死亡人数降低了数万人](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2022/03/22 墙内世界](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2022/03/20 墙内世界](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏](/content/gnews/34/README.md)
- ` G-时新闻`
-
-### [加拿大禁止其士兵加入乌克兰外国军团](/content/gnews/35/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [特鲁多在欧盟议会中被当众唾弃](/content/gnews/36/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [俄罗斯第49军司令列赞采夫中将被击毙](/content/gnews/37/README.md)
- ` 温哥华扬帆农场`
-
-### [上海市东方医院护士夜晚突发哮喘，疫情管控期间多家医院拒诊，延误救治致死](/content/gnews/38/README.md)
- ` KarmaLabs`
-
-### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/39/README.md)
- ` 秘密翻译组金融团队`
-
-### [乌克兰国家银行限制每月10万格里夫纳的准现金业务和个人海外转账](/content/gnews/40/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美情报评估俄罗斯导弹故障率达60%](/content/gnews/41/README.md)
+### [美枪械制造商助乌克兰人抵抗普京](/content/gnews/3/README.md)
  ` 日本東京方舟農場`
 
-### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/42/README.md)
+### [特鲁多在欧洲议会讲话中攻击自由车队抗议者](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [2022年3月25日文贵先生直播摘要及音频—银河系农场](/content/gnews/5/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [樱花时政┃中共媒体为何不报道俄罗斯的“生物武器风险”？](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃俄吹牛被揍，扬言海上进军的军舰被摧毁](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [灭共段子——早灭共党不买高价菜](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [灭共段子](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃中共的策略：对所有人说谎！](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【文炬拾字】当宗教沦为邪恶工具](/content/gnews/11/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [精糧采访埃及的红新月会志愿者](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国总统拜登到访波兰“枢纽城市”热舒夫](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [精糧在梅迪卡采访来自法国的夫妻](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022/03/25 文贵先生直播重点大纲](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022年3月25日大直播速记精萃](/content/gnews/17/README.md)
+ ` 雅典娜GNotes`
+
+### [美司法部宣布给予认证俄罗斯黑客的人1000万美元奖励](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [视频|失去母亲的男孩跪在妈妈身旁悲痛万分](/content/gnews/19/README.md)
+ ` 爆料视频`
+
+### [视频|但愿你的眼睛，只看得到笑容](/content/gnews/20/README.md)
+ ` 爆料视频`
+
+### [为应对俄乌战争北约紧急峰会如期进行](/content/gnews/21/README.md)
+ ` 扬帆枫叶快讯`
+
+### [2022/03/25 英喜时事速递](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大增强对俄罗斯航班的禁飞令](/content/gnews/23/README.md)
+ ` 扬帆枫叶快讯`
+
+### [五月花简报（03/25/2022）](/content/gnews/24/README.md)
+ ` mayflowertranslate`
+
+### [芬兰切断俄国与欧盟最后的运输系统](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [报道称沙特阿拉伯阿美石油公司石油设施发生巨大火灾](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄罗斯纳税人为普京的行政和生活开支多付了40%](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [印度称与中共国关系在边界紧张的情况下不可能正常进行](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [两名男子就旅行疫苗强制起诉特鲁多政府](/content/gnews/29/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [新中国联邦驻波兰营地未雨绸缪建帐篷](/content/gnews/30/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频|这世界有那么多人，多幸运，我还有我们](/content/gnews/31/README.md)
+ ` 爆料视频`
+
+### [CDC将COVID-19的死亡人数降低了数万人](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022/03/22 墙内世界](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2022/03/20 墙内世界](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏](/content/gnews/35/README.md)
+ ` G-时新闻`
+
+### [加拿大禁止其士兵加入乌克兰外国军团](/content/gnews/36/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [特鲁多在欧盟议会中被当众唾弃](/content/gnews/37/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [俄罗斯第49军司令列赞采夫中将被击毙](/content/gnews/38/README.md)
+ ` 温哥华扬帆农场`
+
+### [上海市东方医院护士夜晚突发哮喘，疫情管控期间多家医院拒诊，延误救治致死](/content/gnews/39/README.md)
+ ` KarmaLabs`
+
+### [3/25/2022国际财经快讯：高盛准备领导软银Arm的美国首次公开募股；世界银行批准向哥伦比亚提供8.3亿美元贷款](/content/gnews/40/README.md)
+ ` 秘密翻译组金融团队`
+
+### [乌克兰国家银行限制每月10万格里夫纳的准现金业务和个人海外转账](/content/gnews/41/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美情报评估俄罗斯导弹故障率达60%](/content/gnews/42/README.md)
+ ` 日本東京方舟農場`
+
+### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/43/README.md)
  ` 關注組`
 
-### [世界金融监管机构加强审查加密货币](/content/gnews/43/README.md)
+### [世界金融监管机构加强审查加密货币](/content/gnews/44/README.md)
  ` NFSC News`
 
-### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/44/README.md)
+### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/45/README.md)
  ` 關注組`
 
-### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/45/README.md)
+### [中日财经爆┃美国法官裁定中兴通讯结束“缓刑期”](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/46/README.md)
+### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/47/README.md)
  ` 關注組`
 
-### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/47/README.md)
+### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/48/README.md)
  ` 關注組`
 
-### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/48/README.md)
+### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/49/README.md)
  ` 美国政要直译推`
 
-### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃深析：令人战栗的暗杀普京计划](/content/gnews/50/README.md)
+### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [新西兰财经G乐部2022年3月24日:财经新闻整理](/content/gnews/51/README.md)

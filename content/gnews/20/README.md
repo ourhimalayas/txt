@@ -2,16 +2,20 @@
 ---
 
 
-## 五月花简报（03/25/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2230904/)
+## 视频|但愿你的眼睛，只看得到笑容
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2230971/)
 
-编辑：波士顿五月花—-冲天一怒
+制作：澳喜要闻 童媚
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6CC1F103-32C3-4399-AC60-67E68C145120.jpeg)
+审核/编辑/发稿：谐趣园
 
-*发布：思澈*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
 
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
