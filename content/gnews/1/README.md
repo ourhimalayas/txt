@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈俄罗斯和前苏联政治（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226276/)
+## 七哥谈俄罗斯和前苏联政治（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226299/)
 
 #### PPT制作: Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10_10-20一1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10_10-20一5.png)
 *发布：陶子*
 
 更多资讯，请关注：

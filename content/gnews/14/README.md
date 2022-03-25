@@ -2,26 +2,23 @@
 ---
 
 
-## 欧议会成员称加拿大特鲁多是最糟糕的独裁者
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2226160/)
+## 视频|习近平不改侵台野心
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2226263/)
 
-翻译与编辑：冰糖葫芦喵、灭共文明
+制作：香草山视频部
 
-《网关专家》3月24日报道，**欧洲议会成员、克罗地亚政客米斯拉夫·柯拉库希奇****在北约举行会谈的时候，当面指责加拿大总理贾斯廷·特鲁多的独裁行为，称他的行为像一个“最糟糕的独裁者”。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Croatian-Politician-to-Trudeau-e1648180490776.jpg)**欧洲议会成员米斯拉夫·柯拉库希奇**（图片来自原文）
-据报道，**加拿大总理特鲁多在布鲁塞尔与北约举行会谈，这名来自克罗地亚的欧洲政客在欧洲议会的演讲中，羞辱了加拿大总理贾斯廷·特鲁多。**
+在3月23日的大直播中，郭文贵先生再次提到了习近平及其他中共高官对台湾的侵略企图。
 
-这一耻辱发生在周二，当时特鲁多和其他北约领导人在比利时会面，讨论俄罗斯入侵乌克兰对俄采取的行动。
+郭先生透露，早在2007年，习近平就已经显示出了对台湾的野心。彼时，习近平将台湾问题作为自己掌权后必须迅速解决的一个事项。为此，他还扬言，如果美国对台湾出手相助，中共就会让台湾永沉大海，从而绝不给台湾任何偏向美国的机会。至今，习近平的这一态度仍然分毫未变。此外，中共官员也曾多次流露出在台湾制造地震的想法，即利用导弹引发7级以上的地震就可造成台湾社会的彻底瘫痪。
 
-周二，**欧洲议会成员米斯拉夫·柯拉库希奇在特鲁多之后发表讲话，称特鲁多的《紧急安全法案》践踏了加拿大人的权利。**
+郭先生也爆料称，在俄乌战争之后，习近平欣喜地认为俄罗斯是一个值得学习研究的模板。习近平甚至在党内宣称，俄乌战争证明了中共应当对台湾实行迅速、狠毒和不惜一切的战略模式。
 
-柯拉库希奇还说，**特鲁多派骑警骑着马碾过自己的人民，真是太丢人了。**
+发稿：林礼
 
-新闻来源链接：
-
-[Croatian Politician Says Canadian Prime Minister Trudeau Is Acting Like a Dictator “of the Worst Kind” to His Face (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/croatian-politician-says-canadian-prime-minister-trudeau-acting-like-dictator-worst-kind-face/)
-
-
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

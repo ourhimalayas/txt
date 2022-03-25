@@ -2,21 +2,18 @@
 ---
 
 
-## 视频|俄罗斯侵略行为屡受挫 国际制裁进一步加码
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2226271/)
+## 七哥谈俄罗斯和前苏联政治（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2226290/)
 
-制作：香草山视频部
+#### PPT制作: Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10_10-20一3.png)
+*发布：陶子*
 
-当地时间3月22日，据相关媒体报道，企业家埃隆·马斯克向乌克兰提供的星链卫星终端正在帮助乌克兰军方摧毁入侵的俄罗斯坦克。
-另据乌克兰内政部顾问发布的消息显示，由于俄罗斯士兵在乌克兰境内会使用当地的手机号码，乌克兰情报单位通过定期向这些号码发送劝降短信而成功说服一名俄罗斯士兵驾驶一辆T-72坦克向乌方投降。在乌克兰当局通过卫星无人机确认过安全后，这名俄罗斯士兵目前已经被妥善安置在保护区内。这名士兵也透露，俄军内部目前粮食供应严重不足，且管理相当混乱，很多俄罗斯军人已经逃离了战场。
-而鉴于莫斯科当局坚持发动的对乌侵略战争，国际社会正在进一步推动对俄罗斯的制裁。当天，78架俄罗斯飞机在境外被扣押。同时，包括美国在内的西方国家将禁止企业向俄罗斯供应民用飞机和相关零部件。此外，美国两党参议员正在与财政部讨论冻结俄罗斯约一千三百二十亿美元的全部黄金储备。而波兰政府也在当天提议，将俄罗斯逐出二十大工业集团，即G20组织。目前，该提议已经得到了正面的回应。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
