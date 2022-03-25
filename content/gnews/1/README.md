@@ -2,23 +2,31 @@
 ---
 
 
-## 相信共产党 走进火葬场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2229693/)
+## 安省废水数据显示中共病毒急剧增加
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2229753/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/相信共产党-走进火葬场.png)
-2022年3月24日，廊坊市一患者现在廊坊万福医院，下身已经流血流脓，万福医院一直赶病患走，让转到市医院，市医院现在只接收新冠病人，可是医院让病患要不就转院，要不就把人领回家，一直赶病患，现在哪个医院都不收治，真是太可怜了！
+作者：加拿大温哥华扬帆农场-文莱
 
-因为疫情医院只接受新冠患者，别的病人只能在家等死，这就是所谓世界强国！ 现在，号称盛世的中共国因为疫情防控还有无数个病患得不到救治！在中共盗国贼眼中，他们根本不拿老百姓当人，仅仅只是一群奴隶吧了！相信共产党，走进火葬！团结起来，站立起来，加入新中国联邦，干掉中共这个邪恶政权，让中共在这个邪恶势力在地球上永远消失！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2964.png)图片来源：YAHOO
+
+
+据加拿大媒体【CTV新闻】3月24日报道，安大略省的市政府废水检测显示出，安省的各个地方都检测到中共病毒持续增加的迹象，这表明安大略省的大流行病数量正在上升。
+
+报道称，安省日前取消了其大流行病的限制，包括许多室内空间的容量限制，但观察人士表示，在全省范围内的水中检测到的病毒载量增加了两万八千例活跃病例，此数据在大约六天内翻了一番。不过专家认为重新开启安省的封锁限制还为时过早，但其他相对的措施将会制定以限制病毒传染。
+
+据悉，安省废除新冠限制后的废水增加本是意料之中，但因其上涨速度过快导致专业人士对其展开调查，此外从废水检测中发现一种新的病毒株正在形成，它超过50%的BA.2是奥密克戎变体，虽然本身并不危险，但传播性明显更高。
+
+链接：[Ontario COVID wastewater data points to increase in cases | CTV News](https://toronto.ctvnews.ca/ontario-wastewater-testing-shows-sustained-increase-in-covid-19-rates-1.5831893)
+
+* * *
+
+编译撰稿：文莱， 编辑发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
 
  
 

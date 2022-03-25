@@ -2,34 +2,35 @@
 ---
 
 
-## 樱花FM|新中国联邦为乌克兰儿童提供暖心救援服务
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229546/)
+## 特鲁多在欧盟议会中被当众唾弃
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229713/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://lh5.googleusercontent.com/k9jB6efb3P1dJF3kAl1HI9ZINp2eq8andQ0QX9Cc0cNhMEJwAdPFQkcyhpNc09CycWZ79Ee8FvO5DuXJHf_z0wMy2oUPVR-P2aZo5cauWOVHForLndqlRmeYdHxffWCs9Fg-qS4k)
+采编：加拿大温哥华杨帆农场 – 文莱
 
-新中国联邦人为乌克兰儿童提供的儿童专属角落和小礼物。法治基金新中国联邦的大帐篷为战乱中的孩子们带来温暖和快乐。
+编译撰稿：加拿大温哥华杨帆农场 – 薇文
 
-3月16日波兰当地时间 早上9:30分 西班牙一家电视台来到法治基金新中国联邦大帐篷做早间新闻，当这位摄影师听说我们是消灭邪恶中国共产党的新中国人，中共是全世界灾难的根源，只有消灭中共才能拯救全人类时
-
-他说： “你们做的非常好！ 我很为你们自豪！”
-
-文字版原文：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
 
-| [新中国联邦为乌克兰儿童提供暖心救援服务](https://gnews.org/zh-hans/2201302/) |   |
-| --- | --- |
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-7.jpg)图片来源：thepostmillennial
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据[多伦多太阳报]3月24日报道，日前在布鲁塞尔举行的欧盟议会全体会议上，多位议员称特鲁多为“最恶劣的独裁统治者”，并强烈谴责其此前在镇压加拿大自由车队的抗议活动中侵犯人权。
+
+会议期间，克罗地亚议员怒批特鲁多指使皇家骑警恶意冲撞残疾妇女、恣意封锁抗议者的银行账户，践踏了欧洲乃至全世界无数公民为之献身的民主价值观和人权自由。在特鲁多极权主义的铁腕下，其政府已沦为为侵犯公民权利的象征。
+
+德国议员则表示，特鲁多对自由车队的处理方式是一切民主的耻辱。一个公开钦佩中共独裁制度，把加拿大公民诬陷为恐怖分子并加以迫害和定罪的总理，没有资格在欧盟议会上发言。
+
+此外，罗马尼亚议员因特鲁多到会而拒绝出席会议，称特鲁多无德无能来欧盟议会向普京传授民主课程。而另一位德国议员则明确表态称，像特鲁多这样的独裁者不配在欧盟这样的民主之家有任何发言机会。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源： [‘DICTATORSHIP OF THE WORST KIND’: European MPs blast Trudeau for COVID ‘rights violation’](https://torontosun.com/news/world/dictatorship-of-the-worst-kind-european-mps-blast-trudeau-for-covid-rights-violation)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+
 
  
 

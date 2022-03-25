@@ -2,38 +2,41 @@
 ---
 
 
-## 美欧协议不再进口俄罗斯天然气
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2228528/)
+## 克里斯汀·安德森火力全开 痛斥特鲁多为暴君！
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228682/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-25-at-20.20.26.png)
-3月25日，美国总统拜登和欧盟的冯布莱恩宣布，欧盟不再进口俄罗斯天然气，转而与美国达成天然气进口协议。
+**翻译: 里奇**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+北约成员国今天在布鲁塞尔开会讨论俄罗斯对乌克兰的战争。
 
-据悉过去几年，俄罗斯是欧盟最大的能源供应国，周三普京要求“不友好国家”使用卢布结算天然气贸易，不再使用美元和欧元。拜登总统与欧盟主席冯布莱恩的联合声明表示，欧盟要从过去的依赖俄罗斯天然气能源走向独立，为当地居民和企业提供可负担的清洁能源。双方会成立一个联合工作队，加快能源转型。
+包括加拿大贾斯汀·特鲁多在内的北约领导人今天出席了会议。
 
-据知情人士称，此项工作局限性较大。美国探索增加能源产量，欧洲转向发展清洁能源，是从长远角度的考量。美国天然气出口商下周将与德国买家会面。
+今天早些时候，克罗地亚政治家米斯拉夫·科拉库西奇当面指责加拿大总理贾斯汀·特鲁多的独裁行为。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip克里斯汀·安德森火力全开-痛斥特鲁多为暴君！.png)
 
+加拿大总理特鲁多在布鲁塞尔与北约会晤。一位克罗地亚政治家借此机会以独裁者称号来迎接他。今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森 (Christine Margarete Anderson) 担任欧洲议会的德国替代 (AfD) 议员，再次撂倒暴君特鲁多。
 
-reference：
+克里斯汀·安德森（Christine Anderson）：“那么这样一位公开钦佩中共国完全独裁政权的首相……他践踏基本权利，仅仅因为人们敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子……根本不应该被允许在这个屋子里说话。
 
-[https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports](https://www.bloomberg.com/news/articles/2022-03-24/u-s-strikes-deal-to-help-europe-replace-russian-gas-imports)
+”特鲁多先生：你是民主的耻辱。请不要打扰我们。”
 
-[https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/24/joint-statement-by-president-biden-and-president-von-der-leyen/)
+太棒了！干得好，克里斯汀·安德森！
 
-撰稿、发布：骄子
+**新闻来源**: [thegatewaypundit][Christine Anderson Brings THE FIRE: Second European Official Calls Out Tyrant Justin Trudeau to His Face! (VIDEO)](https://www.thegatewaypundit.com/2022/03/christine-anderson-brings-fire-second-european-official-calls-tyrant-justin-trudeau-face-video/)
 
-* * *
+**审核：文乐
+校对：花羽
+发布：信心满满**
 
-欢迎订阅我们的GNews账号：
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

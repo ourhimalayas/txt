@@ -2,41 +2,36 @@
 ---
 
 
-## 克里斯汀·安德森火力全开 痛斥特鲁多为暴君！
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228682/)
+## 岸田首相派遣古河法务大臣前往波兰接收难民
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2228926/)
 
-**翻译: 里奇**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-北约成员国今天在布鲁塞尔开会讨论俄罗斯对乌克兰的战争。
+翻译：Orpheus
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/sw-1.jpg)图片来源：NHK新闻
 
-包括加拿大贾斯汀·特鲁多在内的北约领导人今天出席了会议。
+日本时间25日凌晨1点前，岸田首相在比利时会见了正在访问的波兰总理莫拉维茨基，并告知他打算派遣法务大臣古川作为其特使前往波兰，推进乌克兰难民的收容。
 
-今天早些时候，克罗地亚政治家米斯拉夫·科拉库西奇当面指责加拿大总理贾斯汀·特鲁多的独裁行为。
+其中，岸田首相表示，”俄罗斯对乌克兰的侵略是一个严重的形势，不仅在欧洲，而且动摇了包含亚洲在内的整个国际秩序的基础，我们把它当作自己的事情，正在为了实施严格的制裁并给予乌克兰支持”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/tempsnip克里斯汀·安德森火力全开-痛斥特鲁多为暴君！.png)
+两位领导人随后一致认为，有必要以坚定的决心支持正在努力捍卫自己家园的乌克兰人民。
 
-加拿大总理特鲁多在布鲁塞尔与北约会晤。一位克罗地亚政治家借此机会以独裁者称号来迎接他。今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森 (Christine Margarete Anderson) 担任欧洲议会的德国替代 (AfD) 议员，再次撂倒暴君特鲁多。
+岸田首相解释说，我国正在建立一个系统来接收流离失所的乌克兰人，并支持他们的日常生活。他告诉首相，他打算派遣法务大臣古川作为特使前往波兰，以便准确评估当地居民的需求。
 
-克里斯汀·安德森（Christine Anderson）：“那么这样一位公开钦佩中共国完全独裁政权的首相……他践踏基本权利，仅仅因为人们敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子……根本不应该被允许在这个屋子里说话。
+岸田首相还与加拿大总理特鲁多和北约秘书长斯托尔滕贝格进行了简短会晤，并确认他们将在处理乌克兰局势方面密切合作。
 
-”特鲁多先生：你是民主的耻辱。请不要打扰我们。”
+参考链接：[岸田首相 避難民受け入れのため 古川法相をポーランドに派遣へ | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220325/k10013550691000.html)
 
-太棒了！干得好，克里斯汀·安德森！
+* * *
 
-**新闻来源**: [thegatewaypundit][Christine Anderson Brings THE FIRE: Second European Official Calls Out Tyrant Justin Trudeau to His Face! (VIDEO)](https://www.thegatewaypundit.com/2022/03/christine-anderson-brings-fire-second-european-official-calls-tyrant-justin-trudeau-face-video/)
-
-**审核：文乐
-校对：花羽
-发布：信心满满**
+审核：BryanW
+校对/发稿：宫米叶
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-15.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
