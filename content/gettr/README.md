@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 12:49 AM (UTC)`
+
+2022.03.24 晚 《新中国联邦新闻》中共企图利用人民币石油化称霸世界； 郭文贵先生爆东航坠机事件真相
+![img](https://media.gettr.com/group29/origin/2022/03/25/00/375758dc-41ea-d6e7-0fc8-4af4456a3420/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@jackposobiec 3/24/2022 5:39 PM (UTC)`
@@ -153,13 +160,6 @@ This humanitarian operation of NFSC brought a great shock to our international f
 
  3月24号：尊敬的战友们好……共产党就面临着全球经济脱钩．次级经济制裁……官员资产被查封的灾难时刻到来！共产党你玩啦！
 ![img](https://media.gettr.com/group47/getter/2022/03/24/13/6afdead0-b262-6f38-a7f4-d308e1cc5ac5/out.jpg)
-
----
-
-`@miles 3/24/2022 1:18 PM (UTC)`
-
-2022.03.24早 新中国联邦新闻访谈   美国政府正式评定俄军在乌克兰犯下战争罪   国际刑事法院会发挥何种作用	拜登抵达布鲁塞尔  参加欧盟   北约及G7重要峰会   更多对俄制裁箭在弦上   郭先生最新爆料   中共国会站出来或者做担保   或者参与战争   但结局都注定
-![img](https://media.gettr.com/group47/origin/2022/03/24/13/201ba427-a135-1523-060b-7fa030a51eeb/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

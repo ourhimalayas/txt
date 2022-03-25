@@ -2,31 +2,35 @@
 ---
 
 
-## 泽伦斯基瑞典演说 示警俄有意挺进波罗的海
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2225036/)
+## 桑切斯呼吁中共国在乌克兰战争中发挥“建设性”作用
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2225118/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWGETTR.jpg)
-乌克兰总统泽伦斯基24日在瑞典国会进行视讯演讲，从两国相同的国旗顏色、对和平的共同嚮往，泽伦斯基呼吁瑞典协助乌克兰战后重建。
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+西班牙首相佩德罗-桑切斯呼吁中共国在解决乌克兰战争中发挥“建设性”作用，这场战争自俄罗斯入侵以来已经持续了一个月。桑切斯在抵达北约特别峰会时发表的声明中向中共国发出了这一呼吁，该峰会正在分析盟国应继续对俄罗斯入侵乌克兰作出的反应。
 
-泽伦斯基说，过去一个月非常的黑暗，俄罗斯在乌克兰轰炸平民生活区，包括学校、医院、甚至幼儿园，简单的说，就是要破坏所有的基础建设。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2858.png)elperiodico.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-23.png)图片来源：路透社
+桑切斯再次敦促俄罗斯总统弗拉基米尔-普京“停止战争”，撤回俄罗斯一个多月前在乌克兰部署的部队。不幸的是，“这没有发生”，这意味着“爆炸、死亡和受伤在不断扩大”，以及在邻国的350多万难民和乌克兰境内的数百万的流离失所者，他再次向乌克兰表示西班牙的“声援”。
 
-若乌克兰不抵抗俄罗斯的侵略，那么乌克兰以及瑞典，还有世界各国所维护的自由价值就会消失。而邻近俄罗斯的所有国家也将会处于危险当中。
+桑切斯指出，美国总统乔-拜登和联盟其他领导人正在参加的这次峰会，将有助于继续研究“如何协调和加强”对“普京战争”的反应。他还表示，在“弗拉基米尔-普京发动的非法、不公正和绝对无理的战争”。
 
-就连瑞典也难逃危险，瑞典跟俄罗斯只隔着一座波罗的海，俄罗斯的媒体最近已经在讨论，要如何占领瑞典在波罗的海上的第一大岛哥特兰岛（GotlandIsland）。俄罗斯若真的挺进波罗的海，则欧洲的和平将会受到根本的威胁。
+会议还将用于研究“提高威慑能力的必要性”和如何为乌克兰提供资金，以及讨论“中共国在解决这场冲突中要发挥什么作用”。他补充说：“西班牙将始终主张发挥建设性的作用”。
 
-简评：今日乌克兰在为周边国家受难，不跟乌克兰站在一起，明日受难的就会是你们！普京的野心不会罢休，威胁的不只是乌克兰，在抗俄的立场上不仅有共同的价值，还有共同的敌人！乌克兰失守，周边国也会遭殃，团结起来抗俄才是唯一出路！乌克兰需要你们，你们同样需要乌克兰！
+来源：【elperiodico.com】[Sánchez acude a la cumbre de la OTAN con la propuesta de que China medie ante Rusia](https://www.elperiodico.com/es/politica/20220324/sanchez-otan-guerra-ucrania-china-rusia-13422557)
 
-新闻来源：[https://udn.com/news/story/122663/6189599?list\_ch2\_index](https://udn.com/news/story/122663/6189599?list_ch2_index)
+* * *
 
-撰稿/发布：一叶知秋
+审核：Aries的星
+校对：小东
+发布：花羽
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,30 @@
 ---
 
 
-## 有声|美国司法部对五名中共特务采取法律行动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2224645/)
+## 【G时新闻】泽连斯基表示与俄罗斯的任何妥协都需要公投
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2224704/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生今日在盖特分享一则消息时指出，美国司法部已经开始对中共特务采取法律行动。
+作者：加拿大温哥华扬帆农场 –播报：七彩虹-视频制作：文雅
 
-根据美国司法部公布的官方消息显示，当局16日正式对王书军、林启明等5名中共特务提起诉讼，指控他们协助中共进行跨囯“猎狐行动”，非法镇压异见人士，涉及的罪名包括：监视美国公民、散布谣言，行贿联邦雇员，安装窃听设备，甚至计划人身攻击美国候选参议员等等。若罪名成立，这五人将面临10至20年的最高刑罚。
+乌克兰总统弗拉基米尔·泽连斯基(Volodymyr Zelenskiy)周一表示，为结束战争而与俄罗斯达成的任何“妥协”都需要由乌克兰人在公投中投票决定。
 
-美国司法部官员表示，中共跨国镇压的行为，挑战了美国的法治精神，违反了美国法律，与美国的基本价值观背道而驰。美国绝不容忍中共特务这些犯罪行为。司法部必须捍卫美国公民和任何在美人士的安全和自由。
+泽连斯基在接受乌克兰公共广播频道Suspilne的采访时说：“人民将不得不开口，对这种或那种形式的妥协做出回应。至于它们（妥协模式）是什么样子，这是我们（两国）谈判的主题和乌俄之间（要达成）的谅解。”
 
-郭先生同时上传了一段他早前发表的个人观点，勉励战友继续前行，不卑不亢，靠自己的决心、毅力、勇气，坚定的向彻底灭共的方向前进。
+他说，在任何公投中可能提出的问题均可能涉及被俄罗斯军队占领的领土，包括克里米亚；或涉及乌克兰放弃加入北约以换取某些国家向乌方提供的安全保证。
 
-文字版原文：[美国司法部对五名中共特务采取法律行动](https://gnews.org/zh-hans/2214927/)
+视频链接：[https://gettr.com/post/p11oqs82372](https://gettr.com/post/p11oqs82372)
 
-音频处理：Fei797
-发稿：Fei797
+上传：文莱
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

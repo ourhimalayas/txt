@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|国际反贪组织已锁定普京盟友170亿美元资产
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2225052/)
+## 联大通过决议要求俄罗斯停战并保护平民 中共弃权
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2225138/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-台媒22日报道，国际反贪腐组织“组织犯罪与贪腐举报计划”将联手英国《卫报》以及其它25家媒体，追踪与普京有关联的俄罗斯富豪资产，目前已锁定的资产价值已超过170亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-6.jpg)
-官网资料显示，普京执政22年已构建稳固的权势关系网络，结合富豪、政客及体制既得利益者，协助巩固普京政权，并从中获取报酬。“组织犯罪与贪腐举报计划”从”积极参与普京政权的压迫和腐败 “的人名清单开始，将对相关资产进行追踪，后续会将追踪到的资产编入定期更新的数据库，供公众查看和使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-21.jpg)联大通过决议要求俄罗斯停战并保护平民 中共弃权 网络图片
+据美国之音3月25日报道，联合国大会3月24日以140票支持、5票反对和38票弃权通过一项由乌克兰推出的决议，要求莫斯科立即停止针对乌克兰的战争，并保护所有平民和平民设施以及人道和医务工作者和记者。该决议得到80多个国家支持，中共国投了弃权票。
 
-据悉，资产追踪已经列出了与普京关系密切的寡头和亲信在境外持有的巨额财富，包括房产、私人飞机、公司股票、游艇及豪宅的等近150项资产，总价值约170亿美元。在接下来的几周内，其追踪范围还将持续扩大。
+联合国大会决议不具备法律约束力，但是在国际道义方面具有分量，而且联大通过的这项决议向莫斯科就其采取的行动发出了明确讯息。俄罗斯被国际社会进一步孤立。
+
+俄罗斯对乌克兰的侵略战争造成了二战以来最大的人道危机。仅仅一个月，已有350万乌克兰人逃入邻国，超过一半乌克兰儿童流离失所，涉及450万儿童，乌克兰大约1200万人需要人道援助。美国准备为乌克兰额外再提供10亿多美元的人道主义资金。世界各国和慈善组织纷纷为乌克兰提供各种援助，新中国联邦与国际救援组织合作，第一时间派出救援团队赶赴战区救助中国同胞、乌克兰人民和所有需要帮助的人们逃离战场。战争无情人有情，新中国联邦人爱好和平，反对战争，支持乌克兰！
+
+新闻参考链接：[https://www.voachinese.com/a/at-un-international-community-demands-russia-stop-war-aid-ukrainians-20220324/6499756.html](https://www.voachinese.com/a/at-un-international-community-demands-russia-stop-war-aid-ukrainians-20220324/6499756.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-文字版原文：[国际反贪组织已锁定普京盟友170亿美元资产](https://gnews.org/zh-hans/2220722/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
