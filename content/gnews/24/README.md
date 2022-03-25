@@ -2,28 +2,29 @@
 ---
 
 
-## 【秘翻在线】盖特将与Andy Ngo合作推出独家新闻节目
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2224457/)
+## 俄罗斯国防部长退出视线后重新露面
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2224372/)
 
-**撰稿：Grace**
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-24-at-4.39.33-PM.jpeg)图片来源：盖特
-据《千禧年邮报》（The Post Millennial）3月24日报道，盖特（GETTR）周四宣布与《千禧年邮报》的编辑Andy Ngo建立新的伙伴关系。 这位独立记者将在社交媒体平台上为一个名为 “每周通知 ”(Weekly Notice)的新闻节目制作独家内容。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/XJHDKE4S6JNHJOWJXVSTKTJJKM.jpg)
 
-据报道，Andy 将讨论他的报道，并提供政治评论以及分析，而且“不受审查或影子禁令的威胁”。
 
-盖特首席执行官杰森·米勒 （Jason Miller）说：“ 我们很自豪能够与像Andy Ngo这样无所畏惧的记者合作，给他一个平台，让他能够与盖特在全球的数百万用户分享他的重要报道。新闻和言论自由都受到来自大公司审查制度和有偏见的自由派媒体的攻击，盖特致力于争取一个重要信息和政治辩论能够自由流动的空间。”
+图片来源：路透社
 
-Andy表示，他期待着在盖特上与新观众接触。
+俄罗斯强大的国防部长在俄罗斯与乌克兰的战争期间退出公众视野数日后，于周四在官方媒体播放的一小段视频片段中重新露面。
 
-Andy说：“那些多年来试图用暴力、死亡威胁、法律战和审查运动使我沉默的人已经失败，并将继续失败。”
+在俄罗斯 RIA 通讯社播出的视频中，普京远程会见了他的安理会时，俄罗斯总统弗拉基米尔·普京的亲密盟友谢尔盖·绍伊古出现在高级官员的分屏上。
 
-迄今为止，盖特在全球拥有500万注册用户。在2021年7月4日正式推出后不到三天，这个快速发展的平台就获得了第一百万用户，创造了历史，这一天盖特宣布从暴虐的硅谷寡头手中 “独立”。
+一些俄罗斯媒体周三表示，这位 66 岁的部长已经 12 天没有露面，这引发了人们对其下落的猜测。
 
-Andy是《纽约时报》畅销书《Unmasked》的作者。这本书揭露了Antifa组织破坏民主的激进计划内幕。Andy冒着安全风险报道美国的极左暴力极端主义。他在2019年经历了一次Antifa组织的残酷袭击，在俄勒冈州波特兰市的街头报道时，再次遭到Antifa组织的袭击。
+克里姆林宫发言人德米特里佩斯科夫周四淡化了这种猜测，称绍伊古有很多事情要做，他没有花很多时间在媒体上露面是可以理解的。
 
-**新闻来源：**[GETTR partners with Andy Ngo for weekly news show](https://thepostmillennial.com/gettr-partners-with-andy-ngo-for-weekly-news-show)
+“国防部长现在有很多想法。一项特殊的军事行动正在进行中。现在不是媒体活动的时候，”佩斯科夫告诉记者。
+
+🔗 [https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/](https://www.reuters.com/world/europe/russias-defence-minister-resurfaces-after-dropping-out-view-2022-03-24/)
+
+编辑发表： Shuizhuyu
 
  
 

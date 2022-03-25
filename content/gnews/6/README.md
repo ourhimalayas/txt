@@ -2,30 +2,28 @@
 ---
 
 
-## 拜登赴欧促孤立俄罗斯　推动盟友示警中共别站错队
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2224980/)
+## 中共运-8反潜机在南海坠毁
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2224920/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWGETTR.jpg)
-美国总统拜登昨晚抵达比利时布鲁塞尔，今天出席包括北大西洋公约组织（NATO）、 七大工业国集团（G7）及欧洲联盟等3大领袖会议，对外联合西方盟友团结抗衡俄罗斯侵略乌克兰。
+编译：波士顿五月花—-思澈
 
-在马不停蹄行程中，拜登更进一步推动国际舞台上孤立俄罗斯，在北约会后记者会上回覆媒体提问是否认为应该将俄罗斯逐出G20时，他说「我的答案是肯定的」，指俄罗斯应该被排除在G20之外。
+经证实中共运-8反潜机在南海海域坠毁，至少有10名军人在执行任务时遇难，大部分是校、尉级军官。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3527857-PH.jpg)图片来源：SETN
+![](https://assets.gnews.org/wp-content/uploads/2022/03/005843FE-525C-4D5F-B342-8DFA59F6A0DC.jpeg)
 
-拜登说逐出的决定由G20的所有成员国决定，但紧接着说如果G20中有国家反对，那么他认为应该让乌克兰以观察员身份参加G20的会议。
+三月初世界聚焦俄罗斯入侵乌克兰期间中共一架运-8反潜战斗机坠落南海。
 
-他此行除推动对俄罗斯加大制裁及孤立外，也剑指中共是背后支持俄罗斯侵略的藏镜人角色，他说向中共领导人习近平明确表示，如果中共在这场战争中帮助俄罗斯领导人普京，将会有后果。
+三月22日，微博用户「张超微博」发布一份共10人的遇难名单，并请大家记住「**黑色三月**」。「张超微博」虽未写这些人是在运-8反潜机事故中遇难，但名单中10人都是海、空军飞行员，全部来自中共92697部队，该部队是海军航空兵部队，配置运-8反潜战机，而且这10人都是在3月1日遭遇不幸，恐怕不是巧合。
 
-简评：全世界都知道中共是俄乌战争的元凶，中共想藏也藏不住了，认清现实站好队是中共唯一的出路。如果中共在这场战争中帮助俄罗斯领导人普京，将会有后果。帮助绝对有了而且是大大的，金钱，情报，物资，提供地盘造武器……除了出兵帮助估计啥都给了。如今给了中共一个选边站的机会，再不弃恶从善，拜登很愤怒，后果很严重！
+坠机之初，中共在南海邻近海域发布禁航区从事搜救、军事训练遮盖消息，但一位长期关注南海军事动态的越南军事记者于3月6日在推特曝光，3月1日下午1架中共运-8反潜机在海南岛三亚市西南海域失联。台湾国防部稍晚也证实这一消息。
 
-新闻来源：[https://www.setn.com/News.aspx?NewsID=1090182](https://www.setn.com/News.aspx?NewsID=1090182)
+中共官方至今未见发布军机坠毁消息及相关回应。
 
-撰稿/发布：一叶知秋
+素材来源：[https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659](https://www.newsweek.com/chinese-military-aircraft-crashed-south-china-sea-taiwan-intel-report-1686659)
 
-**更多资讯，请关注：**
-[多伦多蓝莲花农场 Gettr](https://gettr.com/user/Blue_Lotus)
-[多伦多蓝莲花农场 YouTube](https://www.youtube.com/channel/UCy1z2nsBLlE7BZyS_a_BMWw)
-[多伦多蓝莲花农场 Discord](https://discord.gg/awC74U4YwJ)
+*发布：思澈*
+
+
 
  
 
