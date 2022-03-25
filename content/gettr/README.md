@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 11:01 PM (UTC)`
+
+2022.03.25 NFSC News  CCP‘s Attempt To Achieve Its Global Hegemony With Petro-RMB； Miles Guo Revealed the Truth About the China Eastern Aircraft Crash
+![img](https://media.gettr.com/group19/origin/2022/03/25/23/fbbb858b-89b6-18d5-774e-9518653081ac/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/25/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-25
@@ -152,15 +159,6 @@ The Great Decoupling has begun
 
 2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
 ![img](https://media.gettr.com/group33/origin/2022/03/24/22/84ca6e39-3313-1906-d256-62dbe30d3c50/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@dailybeats 3/24/2022 5:13 AM (UTC)`
-
-Fine Food from NFSC& ROLF in Medyka refugee camp interviewed Ukrainian Refugee Yulia. Yulia and her 87 years old grandmother fled from Kharkiv, where there is no food, no water, no electricity, no anything. People are dying there. In 2022, people are dying of these things. It’s a big tragedy! <br/><br/>#stopthewar #takedowntheccp #help #ukrainian
-![img](https://media.gettr.com/group14/origin/2022/03/24/05/d0d95afc-4b49-0697-5b05-63f003265f80/out.jpg)
 
 ---
 
