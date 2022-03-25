@@ -2,18 +2,32 @@
 ---
 
 
-## 这个世界 谁主沉浮
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2230686/)
+## 【G时新闻】法国富商因注射毒疫苗死亡的理赔金被拒！被认定是‘自杀’。
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2230687/)
 
-文贵大直播20220325
+作者：加拿大温哥华扬帆农场 – 播报：莉李鲤 – 视频制作：文雅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+根据文贵先生3/24/2022 盖文：＂法国一家保险公司拒绝理赔一位投有数百万人寿保险的富商：这位富商因为注射中共疫苗而死亡，保险公司及法院认定他在知晓该疫苗属实验性药物，且有副作用的情况下仍选择接种的行为，这种选择被认定是‘自杀’。＂
 
-文案知道：顽童（纽伦堡正义）
+达沃斯党和中共的金融资本联合控制了西方社会养老退休基金的天量公众财富、也控制了全球的商业人寿保险公司的海量公众财富。
 
-撰稿：Poplar（盘古）青山（英喜）
+西方各国政府用纳税人的税金资助研发并购买达沃斯及中共资本控制的中共病毒疫苗生产厂家的产品，他们用欺骗谎言通过各国政府强制纳税人注射毒疫苗，注射前让人们署实验性药物的免责声明，纳税人用自己交的税金把自己给毒杀了，他们毒杀纳税人不仅不用负任何法律责任，达沃斯及中共资本还可以免于支付毒疫苗致死者的养老退休金，以及商业保险投保者的死亡理赔金，既杀人又灭口，抢劫西方民主国家纳税人的巨量财富。政府由于立法强制免费提供给纳税人注射毒疫苗，政府也找不到责任人来承担作恶的责任。
 
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-14.png)
-*发布：Theodosia*
+中共与集权是祸害世界的利器，哪里有中共的金融集权，哪里就有金融灾难，哪里更有人民遭受的苦难。中共是万恶之源，就像文贵先生说的那样跟著共产党直奔火葬场！
+
+编辑/上传：一叶
+盖特链接：[https://gettr.com/post/p11tbt0019d](https://gettr.com/post/p11tbt0019d)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
+
 
  
 

@@ -2,31 +2,24 @@
 ---
 
 
-## 2022/03/22 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2230297/)
+## 2022年3月25日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230352/)
 
-1. 3月19日，广东深圳。 男子因中共粗暴无保障的封控政策压力，致情绪失控向封控警察哭诉。一句“我要生活、我要养家糊口啊”道出疫情之下中共国普通打工人的无奈现状。
-2. 3月19日，广东广州。外卖员被城管扣下送餐车，当场急哭：“下跪也行，打我也行，我要养家。”
-3. 3月19日，山东淄博。因中共在全国严格执行封控凭证出行，山东老人癌症晚期外出就医，被社区工作人员索要“待死证明”。
-4. 3月3日，广东某地一眼看不到尽头的，用于执行封控政策的医护工作人员视频画面。
-5. 3月18日，疫情下的上海，10米一间隔的控制人员。疫情下控制百姓的人员使用上，中共政府永远不会让其出现缺口。
-6. 3月19日，广东东莞。为了防止任何一人有可能溜出封控区，当地政府使用探照灯24小时监控防线。
-7. 3月19日，被封锁的广东深圳福田区沙嘴一坊市民，通过敲击铁栅栏向外界传递需要物资配送的不满信号。
-8. 3月15日，疫情爆发下的吉林长春。中共一线党员工作者在雨雪中面向党旗向党宣誓。
-9. 3月20日，河北邯郸发生一起严重交通事故，一辆小型私家车在非机动车道内撞上多辆等待红灯的非机动车，现场十多人被撞倒受伤。截止21日已致四人抢救无效身亡。
-10. 3月19日，四川泸州。因中共认为中国大陆的大气污染是由农村地区烧柴火导致，各地农村陆续出现禁烧柴火封灶台的荒谬行为。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0611.jpg)
 
-* * *
+发稿：信心的选择
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
 
  
 
