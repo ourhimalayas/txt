@@ -2,32 +2,18 @@
 ---
 
 
-## 这都不是啥事! 一场战争两种表述中共内硬外软
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2225657/)
+## 国内未来的惨局将无法想象（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225737/)
 
-撰稿/配图：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/这都不是啥事-一场战争两种表述中共内硬外软.png)
+#### PPT制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20_9-30一4-1.png)
+*发布：陶子*
 
-2022年03月24日，大纪元报导，美国政府对中共在俄乌战争中扮演的角色，给出严厉警告后，就该议题，中共在国内批评北约利用乌克兰打代理人战争；但其在国际上，中共的表态则含混暧昧。就同一个议题，针对不同场合、不同受众，中共采取不同宣传策略和不同侧重点。
-
-美国总统拜登与中共领导人习近平结束通话次日（3月19日），中共外交部副部长乐玉成在北京清华大学“战略与安全国际论坛”上称，北约和美国应为俄乌战争负责。乐玉成还称，之所以欧洲会重燃战火，“应反思冷战思维和强权政治”，北约组织应与华约组织一样消失在历史的进程中，而不是更加团结并向东威胁俄罗斯的安全。
-
-与乐玉成强硬、具攻击性的言论相比，中共驻美大使秦刚在拜习通话两天后（20日）面对美国媒体则表现得低调内敛，在阐释对俄乌战争所持立场时含混暧昧。 3月20日，秦刚接受美国哥伦比亚广播公司（CBS）专访时表态称，中共不会提供武器弹药支持俄罗斯对乌克兰战争，并会提供帮助以缓和危机。在被问到为何中共不能公开谴责俄罗斯入侵行为时，秦刚称，那是幼稚无用。主持人追问，“如不谴责、不阻止俄方推进战争，（中共）又如何能提供帮助？”秦刚则没正面回答。
-
-中共不是一个基于事实上的合作者或者对手，中共是一个典型的投机主义者。有机会抓住机会，没机会创造机会也要把持舆论制高点。与中共的合作和谈判，不能基于以信任为基础的普世价值，你必须明确定位中共是一个对手，是一个毫无底线什么着都敢用什么着都敢使的近似魔鬼的对手，你才能打开自己为自己所设的思维局限，才能不至于陷入中共给你制造的舆论漩涡而不能自拔，才能精准应对准确出击。清晰地认清中共，定位中共才是战胜邪恶的第一要务。
-
-消息来源：
-[一场战争两种表述 中共内宣外宣异调](https://www.epochtimes.com/gb/22/3/24/n13668971.htm)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

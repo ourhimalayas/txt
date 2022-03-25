@@ -2,30 +2,30 @@
 ---
 
 
-## 拜登：如俄罗斯在乌克兰动用化武 北约将回应
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2225613/)
+## 樱花时政┃中共隐瞒运八反潜机失事 疑有六名飞行员遇难
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2225716/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-23.jpg)拜登：如俄罗斯在乌克兰动用化武 北约将回应 网络图片
-据美国之音3月25日报道，美国总统乔·拜登24日表示，如果俄罗斯在乌克兰使用化学武器，西方军事联盟将做出回应。应当把俄罗斯开除出由主要经济体组成的20国集团，允许乌克兰参加20国集团会议。
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/中共隐瞒运八反潜机失事-疑有六名飞行员遇难.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fcantonese%2Fnews%2Fhtm%2Ftw-jet-03102022153639.html%2F%40%40images%2Fimage&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fcantonese%2Fnews%2Fhtm%2Ftw-jet-03102022153639.html&amp;tbnid=JRxODO9jkh4XbM&amp;ve)
+中共解放军一架运8反潜机本月初在南中国海失事，疑有至少六名飞行员罹难，他们的遗体近日已运返家乡安葬。
 
-拜登表示，美国承诺提供超过10亿美元的人道主义援助，“以救援受到乌克兰战争影响的数百万乌克兰人”。美国将欢迎10万乌克兰人并投入3.2亿美元来支持乌克兰和邻国的民主韧性并捍卫这些国家的人权。
+据香港东网报道，六名罹难飞行员被运往烈士陵园安葬，他们是徐文、郑福浩、周兴玉、黄高明、张帝和邱明典。其中黄高明和周兴玉的墓志铭显示，两人生前隶属解放军92697部队飞行人员，黄高明的军衔为海军上尉，周兴玉为海军中尉，两人本月1日在执行任务时遇难。
 
-乌克兰总统泽连斯基呼吁北约组织领导人“没有限制地”向乌克兰提供更多武器。俄罗斯穷兵黩武发动乌克兰战争，没有料到会遭到乌克兰的顽强抵抗，俄军伤亡惨重。被国际社会孤立和制裁的普京孤注一掷，准备动用生物和化学武器。如果普京胆敢走到这一步，就是加快自己的灭亡，爱好和平的人们会像乌克兰人民一样起来反抗，把独裁者和战争的发起者普京送进地狱。
+另据台湾《自由时报》报道，台湾国防部副部长柏鸿辉和国安局也于本月10日称坠机事件属实！
 
-新闻参考链接：[https://www.voachinese.com/a/biden-vows-nato-action-if-russia-uses-chemical-weapons-20220324/6500475.html](https://www.voachinese.com/a/biden-vows-nato-action-if-russia-uses-chemical-weapons-20220324/6500475.html)
+中共运八反潜机月初就在南海失事，而国内新闻避而不谈，中共本来炫耀军力，恐吓台湾，但还是心虚，知道自己的军事装备和训练水平就是假！东航坠机事件，中共依然会隐瞒真相！2022年是有史以来最黑暗的一年，短短不到一个月，中共军机坠海，东航坠机，邯郸汽车疯狂撞人，多起跳楼事件，未来还有多起层出不穷的各种事件！
 
-* * *
+信息来源：
+[港媒：解放军运8反潜机本月初失事 六飞行员遗体运返家乡安葬](https://www.zaobao.com.sg/news/china/story20220323-1255001)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

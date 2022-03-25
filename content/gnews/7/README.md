@@ -2,11 +2,11 @@
 ---
 
 
-## 俄乌战争对中国人的危害以及结果的爆料（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225661/)
+## 国内未来的惨局将无法想象（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2225739/)
 
 #### PPT制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-10_9-20一4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-20_9-30一5-1.png)
 *发布：陶子*
 
 更多资讯，请关注：
