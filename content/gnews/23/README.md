@@ -2,36 +2,26 @@
 ---
 
 
-## 特鲁多在欧盟议会中被当众唾弃
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2229713/)
+## 日媒称俄乌战争应区分独裁者和国家概念
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2229728/)
 
-采编：加拿大温哥华杨帆农场 – 文莱
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月22日，日本媒体在关于俄罗斯侵略乌克兰战争的节目中，强调独裁者和国家两个概念的区别。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-上午11.21.15.png)
+主持人首先谈及只有挫败俄罗斯，才能阻止包括中共国在内的独裁专制政权妄图以军事力量改变世界地理版图的野心。嘉宾兴梠先生表示赞同，但马上纠正道，不是要挫败俄罗斯这个国家，而是挫败普京和身边的极个别人。因为这场对乌克兰的侵略战争不是俄罗斯民族或国家发起的，而是普京个人将国家权力私有化之后，作为独裁者发起的。仇视北约的不是俄罗斯，而是掌管俄罗斯政治体制的少数几个人。
 
-编译撰稿：加拿大温哥华杨帆农场 – 薇文
+兴梠先生特别强调，这种独裁体制国家里的国民才是真正的受害者。无论是当前的普京还是以前的毛泽东，均利用媒体和教育对国内百姓进行洗脑，使民众成为其独裁政权的提线木偶。而觉醒后看清其真相的民众，纷纷逃离这些独裁国家。独裁国家的最好结局就是人民自己起来反抗，实现政权更迭。同时，西方民主国家真正该探讨的，就是如何消灭这种让人感到恐惧的独裁政权。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+参考链接：[20220322日本東京電視台 1.嘉賓興梠先生（之前也犀利點評過CCP冬奧會）強調，侵略烏克蘭不是俄羅斯挑起的，而是普京和普京身邊人挑起的…](https://www.gettr.com/post/p11m3q6e94d)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-3-7.jpg)图片来源：thepostmillennial
-
-
-据[多伦多太阳报]3月24日报道，日前在布鲁塞尔举行的欧盟议会全体会议上，多位议员称特鲁多为“最恶劣的独裁统治者”，并强烈谴责其此前在镇压加拿大自由车队的抗议活动中侵犯人权。
-
-会议期间，克罗地亚议员怒批特鲁多指使皇家骑警恶意冲撞残疾妇女、恣意封锁抗议者的银行账户，践踏了欧洲乃至全世界无数公民为之献身的民主价值观和人权自由。在特鲁多极权主义的铁腕下，其政府已沦为为侵犯公民权利的象征。
-
-德国议员则表示，特鲁多对自由车队的处理方式是一切民主的耻辱。一个公开钦佩中共独裁制度，把加拿大公民诬陷为恐怖分子并加以迫害和定罪的总理，没有资格在欧盟议会上发言。
-
-此外，罗马尼亚议员因特鲁多到会而拒绝出席会议，称特鲁多无德无能来欧盟议会向普京传授民主课程。而另一位德国议员则明确表态称，像特鲁多这样的独裁者不配在欧盟这样的民主之家有任何发言机会。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源： [‘DICTATORSHIP OF THE WORST KIND’: European MPs blast Trudeau for COVID ‘rights violation’](https://torontosun.com/news/world/dictatorship-of-the-worst-kind-european-mps-blast-trudeau-for-covid-rights-violation)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-
-
+编辑：静言
+总编：宁文静
+审核：宁文静
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

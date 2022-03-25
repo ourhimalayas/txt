@@ -2,28 +2,28 @@
 ---
 
 
-## 盖特宣布与知名独立记者安迪·恩戈合作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2230016/)
+## 加拿大增强对俄罗斯航班的禁飞令
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2230106/)
 
-作者：银河系农场 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月24日，盖特官方宣布，将与独立记者安迪·恩戈建立新的合作伙伴关系。恩戈表示，他将在盖特上制作名为“每周通知”的独家新闻节目，提供独到的政治评论和分析。
+采编：加拿大温哥华杨帆农场 – 青青/晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-10.jpeg)
+编辑撰稿：硫酸羟氯喹64
 
-据悉，安迪·恩戈是全球领先的独立记者之一，在《纽约时报》开设专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。恩戈是一个无所畏惧的新闻战士，因坚持言论自由的报道，遭受过暴力和死亡威胁，以及无数所谓的法律法规审查。他表示，很期待与新的受众在盖特上互动。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-7.jpg)图片来源：ctv
 
-盖特CEO米勒先生表示，很荣幸能够与安迪·恩戈这样勇敢的记者合作，为他提供自由言论平台，能够与数百万用户分享讯息。在新闻和言论自由均受到大科技媒体严苛审查的当下，盖特将一直保持政治辩论和重要讯息自由流动，以吸引更多民众自由分享自己的理念与言论。
 
-参考链接：[GETTR Announces Partnership with Independent Journalist Andy Ngo](https://about.gettr.com/press/gettr-announces-partnership-with-independent-journalist-andy-ngo)
+据【CTV新闻】3月21日报道，俄罗斯航空公司一架商用客机近日以人道主义救援为由，规避了进入加拿大领空的禁令。对此联邦政府已进一步收紧对该国的禁飞令。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+上月底，俄航 111 航班在谎称其为人道主义救援后，被获准穿越加拿大领空，并从迈阿密飞往莫斯科。由于民航局没有实际权力阻止俄罗斯飞机进入加拿大领空，因此，所有违规行为都会报告给加拿大交通部，并与警方和军方合作做出回应。
 
-总编：宁文静
-编辑：静言
-审核：Ivy001
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据悉，在实施禁飞令之前，每周约有 140 架俄罗斯航班穿越加拿大领空。同时，加拿大海域对所有俄罗斯拥有或悬挂俄罗斯国旗的船只关闭。目前，交通部正在对该事件进行调查并表示：禁飞令不包括人道主义航班的任何豁免，这是对俄罗斯入侵乌克兰进行制裁的一部分。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源： [https://www.ctvnews.ca/politics/canada-tightens-ban-on-russian-aircraft-to-include-humanitarian-flights-1.5828119](https://www.ctvnews.ca/politics/canada-tightens-ban-on-russian-aircraft-to-include-humanitarian-flights-1.5828119)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

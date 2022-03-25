@@ -2,40 +2,44 @@
 ---
 
 
-## 北约峰会发表联合声明 多项对俄新制裁进入议题
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2230078/)
+## 美国将接收多达10万名乌克兰难民
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230151/)
 
-作者：加拿大温哥华扬帆农场 Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，北约峰会在比利时布鲁塞尔北约总部举行。会议持续了近2个小时，有多项对俄罗斯的新制裁进入讨论议题。会后发布了《北约成员国元首和政府首脑联合声明》。
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2969.png)图片来源：npr.org
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-6.jpeg)
+美国政府一位高级官员周四（24日）告诉与拜登总统同行的记者，美国将接纳多达10万名因为俄罗斯入侵乌克兰而流亡海外的乌克兰人。
 
-联合声明做出了三个方面的重要决定：
+这位官员说，虽然大多数流亡海外的乌克兰人希望留在欧洲，但美国政府希望利用其难民接纳计划以及假释制度和移民及非移民签证，来接纳乌克兰人，并指出乌克兰裔美国人急于欢迎这群乌克兰人；该官员说，包括 LGBTQI 人群、有医疗需求的人群以及记者和持不同政见者在内的弱势人群，也将被优先考虑。
 
-一、呼吁所有国家，包括中共国，维护国际秩序，遵守《联合国宪章》中规定的主权和领土完整原则，不以任何方式支持俄罗斯的战争，不采取任何帮助俄罗斯规避制裁的行动。
+第二位官员告诉记者，拜登计划宣布再为乌克兰人和邻国的难民提供10亿美元的人道主义援助资金；第三位官员说，拜登政府、七国集团和欧盟也在采取行动，阻止俄罗斯销售旨在支撑卢布的大约20%的黄金储备。
 
-二、北约大门向乌克兰敞开。继续向乌克兰提供各种选项的援助。
+拜登今天在布鲁塞尔（Brussels）期间宣布的其他消息包括：
 
-三、攻击北约成员国的任何一国，都将被视为对整个北约的攻击。
+1，美国将对300多名俄罗斯杜马成员和40多家俄罗斯国防公司，以及俄罗斯储蓄银行负责人、普京顾问赫尔曼·格雷夫（Herman Gref）和寡头根纳季·季姆琴科（Gennady Timchenko）实施全面封锁制裁。其中一些制裁措施使美国与它的盟友已经采取的行动保持一致；
 
-据悉，乌克兰总统泽伦斯基在峰会上发表了视频演讲，敦促北约增加对乌克兰的军事援助。他强调乌克兰用行动证明自己已经达到了北约标准，为欧洲和世界的共同安全做出重大的贡献。北约应该用最强大的防御联盟维持世界和平。
+2，美国、七国集团和欧盟将启动一项新的制裁规避举措，以防止中共国或其他国家帮助俄罗斯银行在国外开展业务；
 
-拜登宣布了美国对俄罗斯实施的新制裁，表示将欢迎10万名逃离乌克兰战争的难民，并建议将俄罗斯从20国集团中剔除。拜登还与盟友讨论了加强北约东翼的行动以及如何应对克里姆林宫使用化学甚至核攻击等议题。
+3，七国集团将宣布，国际组织和多边论坛不应再以“正常的方式”与俄罗斯开展活动。值得注意的是，俄罗斯是20国集团的成员；
 
-英国首相鲍里斯·约翰逊表示，该国将向乌克兰军队增派6000枚导弹，以帮助抵御俄罗斯入侵者。同时，北约和七国集团领导人应想办法摆脱俄罗斯的石油和天然气，重塑全球能源安全。约翰逊说，这只是一个开始。北约必须长期支持一个自由和民主的乌克兰进行的国防保卫战。
+4，美国将为全球粮食安全提供110亿美元，因为乌克兰的小麦生产将在下一季受阻，这对中东和北非构成特别威胁；
 
-参考链接：
-1. [Biden meets with NATO allies as war hits one-month mark](https://www.nbcnews.com/news/world/live-blog/ukraine-russia-war-live-updates-biden-meet-nato-allies-n1292873)
-2. [Statement by NATO Heads of State and Government](https://www.nato.int/cps/en/natohq/official_texts_193719.htm?utm_source=social+media&amp;utm_medium=Twitter&amp;utm_campaign=statement&amp;fbclid=IwAR32SZ79g1XvqJdpTu1TaQpfK-sGmXreeTdZlt2hLC09d75kfLqdQLhOjnM)
+5，美国将为一项欧洲民主复原力计划提供3.2亿美元，包括努力记录和保存乌克兰冲突中潜在战争罪的证据，并帮助摩尔多瓦等国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+新闻来源：[npr.org] [The U.S. will take in up to 100,000 Ukrainian refugees fleeing the war](https://www.npr.org/2022/03/24/1088506487/us-ukraine-refugees) |发布时间：2022年03月24日
 
-总编/编辑/审核：宁文静
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
 
-
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

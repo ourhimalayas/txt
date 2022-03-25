@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/25/2022 5:07 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月24日第20天当日救援统计：<br/>Medyka救援站接待：约50人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7412人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 20 - Date: March 24, 2022 :<br/>Medyka Rescue Station Reception: about 50 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7412 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group28/getter/2022/03/25/17/d74148f5-e2af-47a9-aa89-0c512ba4a9d8/14965bfb18b01e222b2bee6074a73820.jpg)
+
+---
+
 `@miles 3/25/2022 11:53 AM (UTC)`
 
 2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易
@@ -110,13 +117,6 @@ The Great Decoupling has begun
 ---
 
 `@miles 3/24/2022 11:22 PM (UTC)`
-
-2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
-![img](https://media.gettr.com/group33/origin/2022/03/24/22/84ca6e39-3313-1906-d256-62dbe30d3c50/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/24/2022 11:00 PM (UTC)`
 
 2022.03.24 NFSC News  Real Reason Behind Putin's Invasion of Ukraine；  Facing sanctions, Russian troops seek to turn Mariupol into ashes
 ![img](https://media.gettr.com/group33/origin/2022/03/24/22/84ca6e39-3313-1906-d256-62dbe30d3c50/9548d67018b19975dcafea4c4484666a.png)

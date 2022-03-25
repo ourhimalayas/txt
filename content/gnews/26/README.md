@@ -2,43 +2,30 @@
 ---
 
 
-## 有声|郭文贵先生爆东航坠机事件真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2229669/)
+## 樱花FM|新中国联邦用心关爱战乱中的乌克兰小天使
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2229686/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032529.png)
 
+每一位孩子都是坠入凡间的天使，乌克兰的孩子们虽然身处战乱，但是孩子们的每一次微笑都值得珍惜，足以融化枪炮的狰狞，在人们的心中绽放绚丽的玫瑰。新中国联邦与法治基金在救援前线为孩子们提供了可爱的玩具，精心布置的儿童游戏区，让孩子们可以远离战争的喧嚣，拥有一片心灵的伊甸园。我们懂你们，我们与你们在一起。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093703-1280x720-1.jpg)
-
-
-对于东航坠机事件，郭文贵先生在3月23日大直播中爆料，根据相关技术数据，该事件是一场蓄谋已久、精心策划的自杀行为。郭先生表示，根据当事人给中共的留言，因财产被骗，家人受虐，又因接种疫苗，深恐自己和家人都将因此导致死亡，自1月起，他精心策划这起报复性的事件，导致灾难性伤害。
-
-在中共国，除不可预测的疫苗灾难，疫苗灾难导致报复社会的突发事件恐将接踵而至。
+文字版原文：
 
 
+| [新中国联邦用心关爱战乱中的乌克兰小天使](https://gnews.org/zh-hans/2201319/) |   |
+| --- | --- |
 
 
-
-文字版原文：[郭文贵先生爆东航坠机事件真相](https://gnews.org/zh-hans/2226536/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
