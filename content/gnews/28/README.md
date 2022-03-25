@@ -2,31 +2,21 @@
 ---
 
 
-## 台湾｜俄乌战争引爆外资大量出走 创历史新高
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226501/)
+## 郭文贵先生爆东航坠机事件真相
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2226536/)
 
-圖/文 zhong｜25/03/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-25.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-23日报导，俄乌战争爆发加剧外资对中共侵略台湾的担忧，导致外资抛售价值约4800亿台币的股票。外媒引述分析人士称为“外资史上空前出走潮”。
+编辑/总编: 雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093703.jpg)
+对于东航坠机事件，郭文贵先生在3月23日大直播中爆料，根据相关技术数据，该事件是一场蓄谋已久、精心策划的自杀行为。郭先生表示，根据当事人给中共的留言，因财产被骗，家人受虐，又因接种疫苗，深恐自己和家人都将因此导致死亡，自1月起，他精心策划这起报复性的事件，导致灾难性伤害。
 
-兆丰国际投顾协理黄国伟于报导中表示，外资抛售了价值约4800亿台币的股票，期外资抛售台股刷新纪录，比2008年全球金融海啸时金额更大。2021年，外资抛售价值近4462亿台币的股票，2022年俄乌战争爆发导致外资抛售台湾股票已超过去年总和。
+在中共国，除不可预测的疫苗灾难，疫苗灾难导致报复社会的突发事件恐将接踵而至。
 
-根据彭博社的相关数据，本周海外投资者在短短两天内净卖出约 46 亿美元的台湾股票，周一是有记录以来的第二高单日撤资。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1190x-1.jpg)图：彭博社
-黄进一步表示，近期外资大量出走并未使台湾股市受到灾难性损失，原因在于台湾部分银行大量收购吸收了外资出走的冲击。此外，台湾的投资者认为俄乌战争与中共对台侵略是不同的情形，因此大部分人对台股的信心并未受到影响。
+视频链接：[3/23/2022 文贵直播](https://gettr.com/post/p11juzl42ca)
 
-台积电占据晶片代工产业领导地位，占台股权值比28.8761%(2022/2/25数据)，被视为是台股的指标。外媒报导称，自 2 月底以来，其股价在台北和纽约均下跌了 3% 以上。Refinitiv 的数据显示，台湾的科技股也落后于大盘，同期台湾科技股指数下跌 2%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-128.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.45.26.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.46.34.png)
-
-
-来源｜[bloomberg](https://www.bloomberg.com/news/articles/2022-03-08/foreign-exodus-from-taiwan-s-stocks-is-rapidly-gaining-pace)、[CNN](https://edition.cnn.com/2022/03/23/investing/taiwan-investment-jitters-russia-ukraine-intl-hnk/index.html)
-
-* * *
-
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
-
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

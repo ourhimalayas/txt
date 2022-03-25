@@ -2,36 +2,29 @@
 ---
 
 
-## 中日财经爆|美国宣布对俄罗斯追加制裁 或将俄踢出G20
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227250/)
+## 日本民调：对新冠疫苗不信任急剧增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2227396/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/美国宣布对俄罗斯追加制裁-或将俄踢出G20.png)[图片来源](https://www.aa.com.tr/en/americas/us-allies-announce-new-sanctions-on-russia-over-ukraine-war-/2544787)
-因俄罗斯对乌克兰的入侵没有停止，美国及其盟国3月24日对数十家俄罗斯国防公司、数百名国会议员和该国最大银行的首席执行官施加新的制裁。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2904.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia-cldnry.s-nbcnews.com%2Fimage%2Fupload%2Ft_fit-760w%2Cf_auto%2Cq_auto%3Abest%2Fnewscms%2F2021_26%2F3487224%2F210628-japan-vaccine-se-532p.jpg&amp;imgrefurl=https%3A%2F%2Fwww.nbcnews.com%2Fnews%2Folympi)
 
-自俄罗斯军队一个月前入侵乌克兰、发动了自二战以来对一个欧洲国家最大规模的攻击以来，美国及其盟友已经实施了几轮制裁，包括对俄罗斯最大的银行和总统普京的制裁。
+日本冲绳县3月17日发布了关于新冠病毒疫苗的民意调查结果。结果显示，没有接种过1次疫苗的原因是“因为不了解”占最多为73%，“当被问及“怎样才能让您接种疫苗？”答“不希望接种”者占47%。
 
-美国财政部在一份声明中表示，新的制裁目标包括40多家国防公司，包括国有的战术导弹集团(Tactical Missiles Corp)和28家与之有关联的公司，以及他们的负责人。
+调查以1月24日—2月10日居住在县内的12岁以上为对象在网上进行的。参加人数为1万1353人。 在没有接种过1次疫苗的1476人中询问，理由第1位(可以多次回答)，“个人自由”是71%,第2位是，“害怕副作用”还有“感觉没有必要”也分别是50%以上。担心有不孕风险”是27%。
 
-美国财政部表示，华盛顿的行动与欧盟、英国和加拿大采取的类似措施一致。
+县民调机构分析，“对疫苗的不安感和对行政信息持怀疑态度”是不接种的原因。为提高接种率的目标，决定3月中旬集中播放电视广告。
 
-财政部还对328名俄罗斯国家杜马(Duma)议员和俄罗斯最大的银行－俄罗斯联邦储蓄银行(Sberbank)行长Herman Gref实施了制裁。财政部称他是普京的亲密伙伴。
-
-这位政府官员说，美国曾警告普京，如果他入侵乌克兰，将面临迅速和严重的后果，现在这些威胁得到兑现。这位官员指出，俄罗斯正面临严重的通胀和经济痛苦，这将把它排挤出世界前20大经济体。
-
-美国国家安全顾问苏利文本周早些时候表示，美国将与盟国就是否将俄罗斯开除出20国集团(G20)一事进行磋商。美国总统拜登周四表示，他认为应该把俄罗斯开除出G20。
-
-消息来源:
-[美国宣布对俄罗斯的新一轮制裁措施 涉及国防公司、议员及黄金交易](https://cn.reuters.com/article/us-russia-new-sanctions-0325-idCNKCS2LM046?il=0)
+信息来源：[「未知のワクチンだから」 73%　未接種の理由1位　沖縄で県民1万人意識調査　「希望しない」47%](https://www.okinawatimes.co.jp/articles/-/927722)
 
 *编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+发布：东京樱花团/平安卿卿*
+![此图像的alt属性为空；文件名为LOGO-1-14.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多信息，更多关注**
+[**乌克兰救援官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**全球喜马拉雅农场委员会联盟Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟驻全球服务中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
