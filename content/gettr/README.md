@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 4:54 AM (UTC)`
+
+【Ukraine Rescue】03/24/22 Xiao Xiao Su reported that the volunteers now have a reduced workload and are in better physical condition. The infected volunteers almost all test negative now. There is less refugee foot traffic than before. Everything is going in the right direction.<br/><br/><br/>【乌克兰救援】03/24/22 小小酥战友介绍，前线义工工作量已经减少，战友体能得到缓解。染病战友基本全部转阴。难民人流量出现减少。一切在向好的方向发展。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group36/getter/2022/03/26/04/de9724ed-dae4-8f0b-f8ab-cd5d0be92add/out.jpg)
+
+---
+
 `@miles 3/26/2022 4:34 AM (UTC)`
 
 【Ukraine Rescue】03/24/22 Volunteer Xiaoxiaosu reported: all the volunteers keep on alert of unknown Chinese for fear that the incident of Russian spies might happen in the base camp.<br/><br/>【乌克兰救援】03/24/22  小小酥战友报道：因担心出现俄罗斯间谍那种现象，战友们对出现的陌生华人都会提高警惕。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -153,13 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 【Ukraine Rescue】03/25/22 Frontline rescue members put the ROLF and NFSC's labels on the rescue supplies. The NFSC stands with the Ukrainian people. We are the NEW CHINESE people who are taking down the evil Chinese Communist Party!  #CCP≠Chinese <br/><br/>【乌克兰救援】03/25/22 前线救援战友们把法治基金和新中国联邦的救援物资贴上标识。新中国联邦与乌克兰人民站在一起。我们是消灭共产党的新中国联邦人！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group3/origin/2022/03/25/19/323780a3-c53d-5310-f115-9163c82d9ade/out.jpg)
-
----
-
-`@miles 3/25/2022 5:32 PM (UTC)`
-
-
-![img](https://media.gettr.com/group13/origin/2022/03/25/17/9490b1e3-8606-4365-1f4b-9a4606b6b0f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

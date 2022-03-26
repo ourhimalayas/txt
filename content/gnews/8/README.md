@@ -2,18 +2,24 @@
 ---
 
 
-## 爆料革命正在告诉你钥匙在哪（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232796/)
+## 视频|这世界有那么多人，多幸运，我还有我们
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232813/)
 
-**PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-13-一-scaled.jpg)
-发布：tianzhihuan
+制作：澳喜要闻
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+审核/编辑/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+
+
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
