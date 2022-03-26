@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 4:33 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️1⃣️：GF 限定款蓝色鳄鱼皮夹克（单价：$80,000.00）<br/>奖品数量：1<br/>获奖者：<br/>LM77486<br/>Discord: 海阔天空#9646<br/>获奖者来自洛杉矶盘古农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️1⃣️: GFASHION Exotic Skin Jacket- Crocodile—Blue (Unit Value: $80,000.00)<br/>Number of Prizes: 1<br/>The winner is: <br/>LM77486<br/>Discord: 海阔天空#9646<br/>The winner is from the Himalaya LA Pangu!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group17/getter/2022/03/26/16/b3621172-0ce3-976c-e0ba-bcea949bc52b/d6836f5b4190b4c54ae3465ae46c872d.jpg)
+
+---
+
+`@miles 3/26/2022 4:29 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️0⃣️：GF 支持者套装 (单价: $440.00)<br/>奖品数量：100<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️0⃣️: GFASHION Supporter Outfit (Unit Value: $440.00) <br/>Number of Prizes: 100<br/>The winners are as following:<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group29/getter/2022/03/26/16/30b86be3-9d67-4860-ccb9-da12f574e62b/3ab84850a5ace50c7351b8e19b73f5b1.jpg)
+
+---
+
 `@miles 3/26/2022 4:23 PM (UTC)`
 
 【G|Clubs 2022年会 G|Talks】<br/><br/>恭喜所有中奖会员！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 Anniversary by G|Clubs 】<br/><br/>Congratulations to all winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -142,22 +156,6 @@ G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限�
 
 3/25/2022 Miles Guo: Shopping at GFashion with Himalaya Pay is the qualitative change I brought up a few weeks ago. Being able to make transactions with digital currency in a retail store is of great significance，and it was a 100% commercial sale.<br/><br/>3/25/2022 文贵直播：用HPay在GFashion购物是就是文贵几周前说的质的改变，在实体店能用数字货币交易的意义重大，是100%的商业销售<br/>
 ![img](https://media.gettr.com/group10/getter/2022/03/26/05/d49f0274-27ba-2b35-ef8d-1e38755ca375/out.jpg)
-
----
-
-`@miles 3/26/2022 5:23 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group27/origin/2022/03/26/04/64bc9f23-c4ed-7e07-d42e-d278e5c48709/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 3/26/2022 2:54 AM (UTC)`
-
-Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka Poland Interview with Volunteers of NFSC: King and  Steve
-![img](https://media.gettr.com/group44/origin/2022/03/26/02/3fafcded-5b6f-f48b-a759-7ebbc11f99a9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
