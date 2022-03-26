@@ -2,29 +2,33 @@
 ---
 
 
-## 拜登走访波乌边境 将乌克兰人抗俄比喻天安门
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2233341/)
+## 北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是&#8221;暴君&#8221;
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2233436/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-24.jpg)拜登走访波乌边境 将乌克兰人抗俄比喻天安门 网络图片
-据中央社新闻3月26日报道，俄罗斯军事入侵乌克兰满一个月，美国总统拜登造访距离乌克兰边境80公里处的波兰热舒夫市。他赞赏乌克兰人的勇气与韧性，将乌克兰人抵抗侵略的行为描述为天安门广场。
+作者：日本东京方舟农场—Miyali7768(文玉）
 
-拜登对现场协助人道救援的团队表示，乌克兰已有1000万人流离失所，380万人逃往他国，还有成千上万的人被俄罗斯军队围困。拜登宣布再提供10亿美元对乌克兰的人道援助，并将接收10万名乌克兰难民。
+据网关专家新闻网24日报道，今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森（ Christine Margarete Anderson）在鲁塞尔举行的北约成员国讨论俄罗斯对乌克兰的战争的会议发言中当面指责加拿大总理克鲁多是“暴君”
 
-西方国家提到天安门广场，一般是指“六四事件”，也就是1989年6月4日北京天安门广场民主运动遭到中共当局的血腥镇压。中共国有几次改变政权走向民主的机会，不过中共善于钻营，再加上西方世界的贪婪和包庇，让中共逃脱了惩罚。但是西方世界养虎为患，中共壮大之后给整个世界带来了无穷无尽的灾难。现在俄乌战争的背后推手就是中共，病毒和疫苗灾难的背后推手也是中共。中共一日不除，世界灾难一日不止。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-37.png)
 
-新闻参考链接：[https://www.cna.com.tw/news/aopl/202203260005.aspx](https://www.cna.com.tw/news/aopl/202203260005.aspx)
+在今年2月1日，加拿大总理特鲁多启用《紧急状态法》来镇压卡车司机抗议强制疫苗活动，包括拖走抗议者的卡车、冻结抗议者的个人和公司银行账户、暂停他们的车辆保险等卑劣手段，派出的皇家骑警对抗议者更是肆意践踏，造成多名示威者受伤，毁掉了加拿大皇家骑警一直保持的良好声誉，在世界上引起共公愤。
 
-* * *
+安德森在此次北约会议上说特鲁多是一位公开钦佩中共基本独裁政权的首相，仅仅因为加拿大民众敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子。安德森认为特鲁多不应该被允许在北约会议上说话，因为特鲁多践踏了基本人权，是民主的耻辱。北约领导人出席了会议。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+资料链接：[https://www.thegatewaypundit.com/2022/03/christine-anderson-brings-fire-second-european-official-calls-tyrant-justin-trudeau-face-video/](https://www.thegatewaypundit.com/2022/03/christine-anderson-brings-fire-second-european-official-calls-tyrant-justin-trudeau-face-video/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑/校对/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
 
 
  

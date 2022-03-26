@@ -2,24 +2,36 @@
 ---
 
 
-## 俄乌战争似乎进入到了新阶段
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2233364/)
+## 战友们做好准备应对有史以来最黑暗的一年
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2233448/)
 
-#### 撰稿：彩虹
+作者：纽约香草山教育部 -Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+郭文贵先生在2022年3月23日的大直播中谈到，这场俄乌战争的最后主导者绝对不是普京，而是中国的“习太阳”。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-2-4.jpg)图片来源：以色列时报
-据《新闻极限》3月25日引述美联社文章报道，战争似乎进入了一个新的阶段，因为驻乌克兰的俄罗斯军队似乎已经将其重点从针对基辅的地面进攻转移到优先考虑莫斯科所谓的解放有争议的顿巴斯（Donbas）地区，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-43.png)
 
-报道说，周五，乌克兰总统泽连斯基(Volodymyr Zelenskyy)再次呼吁俄罗斯通过谈判结束战争，他说乌克兰不会同意为了和平而放弃任何领土。
+郭先生指出当中国站出来的时候，俄乌战争可能会有几种戏剧性的结局.。 第一，俄罗斯打小型核武器战争，中国也参与战争。 第二，中国作为调解国，为俄罗斯作担保。 还有20%的可能是波罗的海国跟俄罗斯和白俄罗斯混战，死更多人，最终普京被消灭，然后再和谈，最后俄罗斯缴枪不杀。
 
-而普京的部队在乌克兰许多地方正面临着巨大压力，美国和其他国家正在加速向乌克兰转移武器和物资。最近几天，美国官员表示，他们看到了乌克兰保卫者在一些地区以有限的方式发动攻势的证据。
+郭先生指出，无论哪个结果发生，中国人都将成为人类历史上，未来100年、1000年，全人类上最恨的人，大家都要面临排华的危机，但最惨的不是海外战友，而是墙内。
 
-于是，文章说，现在认为这是否意味着普京总统已经缩减了他在乌克兰的野心，似乎还为时过早，但俄罗斯本周的军事行动表明，他们认识到了乌克兰令人惊讶的顽强抵抗。俄罗斯支持的分离主义分子自2014年以来一直控制着乌克兰东部顿巴斯的部分地区。
+郭先生称，俄乌战争开启了真正的潘多拉盒子，病毒、疫苗、饥荒等灾难会接踵而至。尤其粮食危机，现在全球都在疯狂囤积粮食，墙内真可能要很快到达人吃人的境况。 郭先生重申2022年今年是人类有史以来最黑暗的一年，战友们要做好心理准备。
 
-**新闻来源**
+资料链接：[https://gettr.com/post/p11r8no3573](https://gettr.com/post/p11r8no3573)
 
-[New Phase of Ukraine War? Russia Shifts Focus](https://www.newsmax.com/newsfront/russia-ukraine-war-the-latest/2022/03/25/id/1062992/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
+
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
+
 
  
 

@@ -2,21 +2,15 @@
 ---
 
 
-## 视频|他是新中国联邦永远的朋友「非脱敏」（中英文字幕）
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2233375/)
+## 视频|精品视频 新中国联邦大帐篷NFSC RESCUE TENT「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2233465/)
 
-文案编辑：澳喜要闻
-
-制作团队：澳喜要闻
+【撰稿人】Hart文双
+【翻译供稿】童媚
+【视频制作】Hart文双
+【制作团队】大直播短视频组
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-Davide Martello是意大利裔德国钢琴家。
-自2011年以来，他带着钢琴一直在世界各地演奏；
-他先后在阿富汗、土耳其等地进行多次表演。
-他的身影，總是出现在动荡不安的角落；
-这次，他出现在波乌邊境的救援前线，走近了梅迪卡新中国联邦的救援站；用音乐疗愈失去家园的心灵，传播愛与和平。
-Davide Martello, an Italian-German pianist, has been taking his piano to perform all over the world since 2011. He has been performed in Afghanistan, Turkey and many other countries. His figure always can be found in the most turbulent corners. This time, he appeared in the front line of rescue on the border of Poland and Ukraine. He approached the rescue station supplied by the New Federal State of China in Medyka, using his music as a remedy and relief for those are suffering the sorrowness of losing their home. His music symbolises love and peace.
-
-【新闻来源】NFSC前线素材
+【素材来源】[https://discord.com/channels/872153398588370944/950448401529577502](https://discord.com/channels/872153398588370944/950448401529577502)
 
 审核/编辑/发稿：qiutian（邱甜）
 

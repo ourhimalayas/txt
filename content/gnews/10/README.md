@@ -2,23 +2,30 @@
 ---
 
 
-## 视频|梅迪卡前线染疫战友绝大多数已复阴
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2233301/)
+## 视频|他是新中国联邦永远的朋友「非脱敏」（中英文字幕）
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2233375/)
 
-制作：香草山视频部
+文案编辑：澳喜要闻
 
-3月24日郭文贵先生的一则盖特显示，波乌边境梅迪卡救援站的前线战友传来消息，自3月初新中国联邦和法治基金人道救援开始以来，累计约有30名战友感染中共病毒，目前绝大多数已转阴。
+制作团队：澳喜要闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+Davide Martello是意大利裔德国钢琴家。
+自2011年以来，他带着钢琴一直在世界各地演奏；
+他先后在阿富汗、土耳其等地进行多次表演。
+他的身影，總是出现在动荡不安的角落；
+这次，他出现在波乌邊境的救援前线，走近了梅迪卡新中国联邦的救援站；用音乐疗愈失去家园的心灵，传播愛与和平。
+Davide Martello, an Italian-German pianist, has been taking his piano to perform all over the world since 2011. He has been performed in Afghanistan, Turkey and many other countries. His figure always can be found in the most turbulent corners. This time, he appeared in the front line of rescue on the border of Poland and Ukraine. He approached the rescue station supplied by the New Federal State of China in Medyka, using his music as a remedy and relief for those are suffering the sorrowness of losing their home. His music symbolises love and peace.
 
-自3月20日从利沃夫到克拉科夫的大巴救援行动暂时告一段落以来，战友们都陆续集结至波兰前线梅迪卡救援站，累计已超过70人。基于对中共病毒的了解，前线战友都有服用药物进行预防。但仍有一些战友防范意识不足，因没有严格执行正确佩戴口罩等措施而感染。目前，在随队医生及联盟医疗团队的通力合作下，战友们已陆续战胜病毒归队。
+【新闻来源】NFSC前线素材
 
-郭先生在最近两期大直播中反复寄语战友们，无论每日到达救援站的难民数量多少，前线战友都要保持良好的战斗力，以便随时准备实施救援。
-
-发稿：Daxia
+审核/编辑/发稿：qiutian（邱甜）
 
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
