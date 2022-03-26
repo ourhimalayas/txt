@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 3:56 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品9⃣️：GF 限定款黑色鳄鱼皮夹克 （单价：$80,000.00）<br/>奖品数量：1<br/>获奖者：<br/>XC36652<br/>Discord: 跟随七哥定点清除#5606<br/>获奖者来自加拿大温哥华扬帆农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 9⃣️： GFASHION Exotic Skin Jacket- Crocodile--Black (Unit Value: $80,000.00)<br/>Number of Prizes: 1<br/>The winner is: <br/>XC36652<br/>Discord: 跟随七哥定点清除#5606<br/>The winner is from the Vancouver Sailing Farm!<br/><br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group12/getter/2022/03/26/15/e97a6c98-d60d-0667-56fe-b5266b0a4c5c/cc690e2dcdbdf3a6c9a50c2284c601d8.jpg)
+
+---
+
 `@miles 3/26/2022 3:53 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品8⃣️：GF黑铑金信仰之星戒指 (单价: $380.00)<br/>奖品数量：200<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 8⃣️: GFASHION Star Ring--Black Rhodium (Unit Value: $380.00) <br/>Number of Prizes: 200<br/>The winners are as following<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -151,13 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 【Ukraine Rescue】03/24/22 Xiao Xiao Su reported that the volunteers now have a reduced workload and are in better physical condition. The infected volunteers almost all test negative now. There is less refugee foot traffic than before. Everything is going in the right direction.<br/><br/><br/>【乌克兰救援】03/24/22 小小酥战友介绍，前线义工工作量已经减少，战友体能得到缓解。染病战友基本全部转阴。难民人流量出现减少。一切在向好的方向发展。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group36/getter/2022/03/26/04/de9724ed-dae4-8f0b-f8ab-cd5d0be92add/out.jpg)
-
----
-
-`@miles 3/26/2022 4:34 AM (UTC)`
-
-【Ukraine Rescue】03/24/22 Volunteer Xiaoxiaosu reported: all the volunteers keep on alert of unknown Chinese for fear that the incident of Russian spies might happen in the base camp.<br/><br/>【乌克兰救援】03/24/22  小小酥战友报道：因担心出现俄罗斯间谍那种现象，战友们对出现的陌生华人都会提高警惕。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group42/getter/2022/03/26/04/ed92e44d-f70a-a6ac-f58d-4f2ccbfaddfe/out.jpg)
 
 ---
 

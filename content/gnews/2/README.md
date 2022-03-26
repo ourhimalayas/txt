@@ -2,22 +2,30 @@
 ---
 
 
-## 新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236233/)
+## 有声|“圣彼得堡阴谋”将清算中共国的一切
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236392/)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+在3月23日的大直播中，郭文贵先生与战友们分享了俄乌战争接下来的可能走势。
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+郭先生说，对于俄罗斯发起的这场战争，普京最初认为保守估计一周之内结束，但目前已经持续了一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一是打小规模的核战争，二是停战。但停战需要找担保人来调停，普京的“圣彼得堡阴谋”，就是让中共来做担保人，停止这场战争。表面上看体现了中共国的大国风范，但实际上，这会让全世界视国人为敌，在金融、信用、宗教等各方面进行全方位、长时间的限制或制裁，政治灾难不可避免。
 
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+郭先生指出，真相不会永远被掩盖。中共的所作所为，会在“圣彼得堡阴谋”下彻底暴露，但也会加剧世界对无辜中国人的仇恨。战友们需做好心理准备。
 
-参考链接：[《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
+文字版原文：[“圣彼得堡阴谋”将清算中共国的一切](https://gnews.org/zh-hans/2228863/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+音频处理：Fei797
+发稿：Fei797
 
-总编：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 

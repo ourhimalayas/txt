@@ -2,44 +2,28 @@
 ---
 
 
-## 沙特阿美公司Saudi Aramco储油设施被导弹袭击后油价应声走高
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2234832/)
+## 怕影响经济！上海感染人数创新高坚持不封城
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2234776/)
 
-来自新加坡早报 /
-2022年3月26日 10:09 AM 报导
-采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+据联合新闻网报道，上海25日新增38例本土中共病毒疫情确诊、2,231例本土无症状感染者，单日新增总感染人数再创新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220326214713464.jpg)图片来源：路透
 
+针对封城建议，上海疫情防控领导小组专家组成员、复旦大学上海医学院副院长吴凡坚决表示：「不行」。她强调，上海一旦封城，甚至会影响全球经济。
 
+简评：中共从来都是带血的GDP，只要能创造价值哪管百姓死活，疫情期间也是如此，上海感染人数创新高不封城，怕的是影响经济从不考虑人身健康！中共经济崩塌在即，为了苟延残喘也是拼了，如此操作无异于引鸩止渴，问题集体爆发中共死的更快！
 
+新闻来源：[联合新闻网](https://udn.com/news/story/7332/6193771?from=udn_ch2_menu_v2_main_index)
 
+撰稿/发布：一叶知秋
 
-![沙特阿美（Saudi Aramco）位于吉达的储油设施被袭击后引发了火患，但没有人员伤亡。（法新社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/images/202203/20220326/saudi-yemen-conflict-213057.jpg?itok=c8xm6rwd)沙特阿美（Saudi Aramco）位于吉达的储油设施被袭击后引发了火患，但没有人员伤亡。（法新社）
-
-
-以下原文內容：
-
-（早报讯）沙特阿拉伯的一个石油储存设施遭导弹袭击，标志着这个全球主要石油出口地区紧张局势升级。胡塞武装宣称对沙特阿美（Saudi Aramco）设施的袭击负责，油价应声走高。
-
-路透社报道，沙特国有石油巨头沙特阿美位于吉达的设施周五（3月25日）被袭击后，两个储油罐发生了火患，但没有人员伤亡。
-
-沙特能源部随即发表声明称，沙特将不会对胡塞武装袭击行动造成的全球市场石油供应短缺负责。
-
-美国国务卿布林肯说，美国强烈谴责胡塞武装对沙特储油设施的袭击行动。
-
-彭博社分析，虽然这个位于吉达的存储设施侧重于沙特国内需求，对全球原油市场影响不大，但袭击事件升级仍令石油贸易商感到担忧，原油每桶价格已超过100美元（约135新元）。
-
-沙特本周早前警告，石油供应面临风险，并呼吁美国采取更多行动来应对背后有伊朗支持的胡塞武装发动的袭击。周五沙特又重申了这一信息。
-
-沙特国防部发言人在周五袭击发生后说：“这种激进行动针对石油设施，旨在试图影响能源安全和全球经济。”
-
-新闻链接：
-[沙特储油设施被导弹袭击 油价应声走高](https://www.zaobao.com.sg/realtime/world/story20220326-1256194)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
