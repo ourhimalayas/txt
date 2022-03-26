@@ -2,49 +2,38 @@
 ---
 
 
-## “匿名者”黑客联盟入侵了俄罗斯中央银行和养老基金
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2235472/)
+## 迪拜即将推出一亿美元的数字资产基金
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235209/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/grafik-34.png)网络图片
-据台湾英文新闻网3月24日报道，去中心化的国际黑客组织“匿名者”本周宣布，它们入侵了俄罗斯中央银行和一家养老基金，发起了“打印机攻击”，并准备攻击俄罗斯的有形基础设施。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
 
-自2月24日俄罗斯开始入侵乌克兰以来，“匿名者”发起了一场网络战，其中包括入侵俄罗斯政府和国有媒体网站、工业控制系统、克里姆林宫网站以及俄罗斯各地的数百个监控摄像头。该集体的一名代表告知台湾新闻，它于周二（3月22日）还侵入了俄罗斯联邦养老基金。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-222-2.jpg)图片来源: 网络
 
-据该代表称，“匿名者”已经“删除”了该基金在俄罗斯许多地区的数据库、服务器数据和备份。受影响的地区包括莫斯科州、阿穆尔州、布里亚特、图瓦共和国、斯摩棱斯克州、普斯科夫州、加里宁格勒州和阿尔泰共和国。该组织警告说，“只要乌克兰有平民伤亡，对俄罗斯的袭击就会继续”。截至发稿时，俄罗斯联邦养老基金的网站仍处于离线状态。
+该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
 
-《国际财经时报》周三（3月23日）援引“匿名者”的话说，它正准备对俄罗斯的基础设施发起网络攻击。匿名人士警告说，俄罗斯将很快开始攻击非盟国的有形基础设施，而“匿名者”也准备攻击破坏俄罗斯的有形基础设施作为报复。
-
-周四（3月24日），“匿名者”宣布入侵了俄罗斯联邦中央银行。它表示将在48小时内发布超过35,000个包含“秘密协议”的文件。
-
-本周早些时候，周一（3月21日），该组织还宣布对俄罗斯的156台打印机发起了“打印机攻击”。该组织声称已打印了40,000多份。
-
-**简评：**
-
-2021年10月4日，脸书及旗下两大网络社交平台Instagram和WhatsApp的网站和应用程序出现将近7个小时的集体宕机。郭文贵先生在随后的大直播中透露普京是此次事件的幕后黑手，目的是为了警告扎克伯格。从那次事件中我们可以看到俄罗斯的黑客实力非同一般。俄罗斯黑客别人的能力强，防守黑客的能力自然也不会弱。
-
-然而，本文却透露了“匿名者”国际黑客组织对俄罗斯的中央银行、养老基金、俄政府和国有企业等众多目标展开了大规模的网络攻击行动，并且取得了相当的成功。在这此网络战争中我们看到了与正在地面和空中进行的火战非常相似的结果，那就是实力雄厚的俄罗斯并未在战争中占得任何便宜。
-
-和俄军对垒的“匿名者”组织和乌克兰军队有一个共同点：那就是去中心化。乌克兰军队的作战权力下放到班排，极大地提高了部队的灵活性、隐蔽性、突发性和进攻效率，依靠先进的单兵作战武器，不断地歼灭俄军的装甲车辆和有生力量，而自身则伤亡极小。“匿名者”本身就是一个去中心化的组织，只要有相同想法或是理念，任何人都可以加入。普京非法武装入侵乌克兰引发了全世界的愤怒，“匿名者”对俄罗斯的成功入侵，一方面表明了全球黑客和IT人员对乌克兰的支持；另一方面也证明了在当今的互联网时代，公民可以直接参到对全球性的问题中，不再像以往那样需要通过政府来代表。
-
-更值得一提的是去中心化的加密货币也在这场战争中发挥着前所未有的作用。乌克兰政府在战争开始就开放了加密货币地址和钱包，使其能够直接接收这些电子货币，在短时间内就筹集数百万美元来应对俄罗斯入侵。
-
-总之，当今科技的发展为诸如货币、组织、军事、政治等等各个方面的去中心化提供了技术保证。今日的去中心化就如十八世纪的第一次工业革命，代表了科技和社会的进步，也代表了更强的生产力和实力。而当今世界中以中共、普京的俄罗斯为代表的独裁体制中，独裁者为了维护其自身的独裁统治地位，根本不会允许任何去中心化在其体制内发生。因此，我们可以判断出普京必将会在这场战争中惨败，而以中共为代表的独裁邪恶体制也必将很快灭亡。
-
-新闻链接：[https://www.taiwannews.com.tw/en/news/4483904](https://www.taiwannews.com.tw/en/news/4483904)
-
-*翻译/简评：新街口 / PR：Harvey（叶知秋）*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+相关链接:
 
+[https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+
+
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑/校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

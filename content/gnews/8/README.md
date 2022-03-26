@@ -2,33 +2,86 @@
 ---
 
 
-## 波罗的海三国议长访问乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236554/)
+## 有声|战火纷飞无春天
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236566/)
 
-作者：纽约香草山农场-saner三二，Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，据相关媒体报道，波罗的海三国，即立陶宛、爱沙尼亚和拉脱维亚的议长于当天陆续抵达乌克兰首都基辅，与总统泽连斯基及其他政府官员会面。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+春暖花开、姹紫嫣红，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-6.jpeg)
+人家最美四月天，
 
-据悉，波罗的海三国与乌克兰共同签署的一份联合声明显示，乌克兰正在为共享价值而战，所有自由民主国家都应在政治、防卫、人道和经济等领域竭尽所能地向其提供协助。为此，三国会持续支持乌克兰尽快加入欧盟。同时，三国也将推动北大西洋公约组织继续维持门户开放的政策，并开始为乌克兰的重建作准备。
+可是世界的那一边，
 
-另一方面，三国议长也在声明中呼吁国际社会立即在乌克兰领空设置“禁航区”，用以避免当地平民大规模的伤亡。至于俄罗斯方面，三国则敦促全球各国彻底停止与俄罗斯的贸易活动，并持续政治孤立俄罗斯，而俄罗斯在所有国际组织和实体的会员资格则需要被暂停或撤销。
+乌克兰的勇士在战火中死去，
 
-三国议长也强调，绝不能让犯下战争罪行的俄罗斯有机会逃避惩罚。因此，各国必须协助国际法院和国际刑事法院尽快完成详实的调查，并执行所有必要程序。
+侵略者的铁蹄还在递进，
 
-同一天，立陶宛与乌克兰两国的国防部长也就乌克兰的防御工作进行了交流。其中，两国政府确认将继续维持合作关系。此外，立陶宛国防部长也表示，立陶宛将不仅在口头上支持乌克兰，其已经向乌克兰提供了第一枚毒刺导弹。
+乌克兰的人们跨着身边炸碎的死体，
 
-参考链接：
-1. [https://twitter.com/a\_anusauskas/status/1506674407116316685?s=21](https://twitter.com/a_anusauskas/status/1506674407116316685?s=21)
-2. [https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21](https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21)
-3. [Baltic parliament speakers visit Kyiv, address Verkhovna Rada of Ukraine](https://news.err.ee/1608542443/baltic-parliament-speakers-visit-kyiv-address-verkhovna-rada-of-ukraine)
+抱着孩子还在黑暗中逃亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+她们离开的家园处处充斥着荒凉、荒废、
 
-审核/总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
+苦难的人们没有春天，
+
+热爱和平的世界没有春天。
+
+硝烟弥漫的残忍世界，
+
+多少年轻的生命在炮火中悲壮而逝，
+
+书写着乌克兰的勇敢和团结，
+
+一个民族不屈的精神，
+
+任凭邪恶野心汹涌，屠刀无情，
+
+也挡不住英雄冲为先锋的坚定步伐，
+
+都只为了妻女美好的未来，
+
+乌克兰男人没有懦夫。
+
+都只为了给丈夫爱的温暖，
+
+给孩子蓝色的天空，
+
+美丽的乌克兰女人没有一个是弱者，
+
+伟大的民族在战火中如凤凰涅槃，
+
+用鲜血开启了一个新的文明。
+
+感谢你，勇敢的民族，
+
+是你带来正义的力量，
+
+感谢你，不屈的民族，
+
+是你为世界勇抵邪恶，
+
+灭共的我们永远跟你们站在一起，
+
+因为都是同一个人类，
+
+同一个信仰， 自由、民主、法制，
+
+荣耀归伟大的乌克兰！
+
+文字版原文：[战火纷飞无春天](https://gnews.org/zh-hans/2223787/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 

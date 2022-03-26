@@ -2,36 +2,29 @@
 ---
 
 
-## 有声|俄乌战局陷入胶着 普京两种可能结局
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236343/)
+## 天基移动电话网络公司与SpaceX签署发射协议
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236471/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在3月20的《文贵大直播》中，综合多方情报和战争局势的发展，郭先生认为独裁者普京不会停止战争，会面临两种最有可能发生的结局。
+【作者】纽约香草山农场 健身部 文真
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+目前唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间的蜂窝宽带网络。
+据悉，该公司总部位于美国德州，并在英国设有基地。该公司计划今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来测试与手机进行标注频率通信，并在未来发射BlueBird卫星。
+据该公司管理者透露，其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。
 
-第一种，普京的家人说服普京让步，或者通过各种渠道让乌克兰让步，达到所谓体面的和解，这是目前让伤亡不再扩大的理想结局。
+[https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
 
-第二种，普京被内部人灭掉，或者普京按下核按钮之时，正义的力量在通信或科技领域进行干预，使核打击化为乌有，普京接受战争罪的审判。
+[https://video.foxnews.com/v/6301852036001#sp=show-clips](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
 
-郭先生表示，根据某国情报部门提供的信息，普京被灭掉的可能性更大。一旦普京政权被颠覆，俄罗斯人民受到的金融制裁就会被取消。这种示范效应对中共国的同胞来说，可谓影响巨大。
+校对/发稿：菩提树
 
-郭先生指出，现在全世界都认为普京和和习近平这两个独裁者互相壮胆互相利用，普京是发动战争的罪犯，习近平是普京的金主，两人已经无法摆脱干系。普京的覆灭对中共官员而言，震慑之余，更会加剧内斗，加速中共政权的土崩瓦解。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
 
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
 
-
-文字版原文：[俄乌战局陷入胶着 普京两种可能结局](https://gnews.org/zh-hans/2211668/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
