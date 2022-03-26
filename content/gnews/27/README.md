@@ -2,32 +2,26 @@
 ---
 
 
-## 未来的战争只会是高科技的较量
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2235307/)
+## 香港疫情失控 墙内粮荒在即
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2235349/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1920x1080.jpg)
-3月25日的大直播中，文贵先生与战友分享俄乌战争的目前局势。
+作者：纽约磐石农 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，郭文贵先生在大直播中透露，中共病毒已经在香港完全失控，与此同时，由于疫情、战争等所带来的饥荒正在逼近中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.27.58-PM.png)
+郭先生解释道，某知情战友早先爆料称，港共政府正在极力隐瞒香港当地因中共病毒疫情死亡的人数。目前，香港当局每日仅通报真实死亡数据的20%，即一千多例死亡患者中仅有约两百人被公布。至于中共国内，仅深圳一个区一天就有高达一千七百例中共病毒死亡患者，而该病毒在墙内已经完全失控，且其对中国人的伤害程度将超出所有人的想象。
 
-俄罗斯在对乌克兰的战争中，使用的战略以及科技以及武器，包括大外宣都极其落后，但若让中共国对阵俄罗斯，中共国几乎没有赢的概率。郭先生说党内一些真正懂军事和武器的人透露，中共国尽管可能一开始会占据某些优势，但俄罗斯经过几个小时的调整马上会转败为胜。中共国尚不能赢得处于劣势的俄罗斯，竟然还打算灭掉世界科技最发达的国家美国。并且由于习近平政府超级集权，导致党内和军队的多数人根本不是用来对外的，习近平政府真正要防的是从内部开始的斗争。内部当然会泄密给外部，这相当于中共任何战略部署都是透明的，全部输掉。
+郭先生还补充道，中共近期也收紧了对相关人员的监控：许家印必须全天佩戴中共的监控器和电子脚镣，为此，他不得不违心称赞习近平和中共经济。
 
-郭先生说未来的战争一切都是以科技和经济为主，接触性的战争会越来越少。郭先生形容从此以后的战争都是远程的，像打电子游戏一样，谁控制了牵引和通讯权以及太空科技，谁就是赢家。不可能再有国家会有大量的肉体军人。目前有大量军队的国家，如俄罗斯和中共国，军人大多数都是用来暴力维稳自己的国民，而并不是像旧时代那样出征抵抗敌国的。
+然而，郭先生也提到，俄乌战争开启了真正的潘多拉盒子：出于对大饥荒的恐惧，近日，全球各国都在抢购粮食。但郭先生预警称，中共国必将很快面临粮荒的困境，人吃人的惨剧或将随之到来。
 
-郭先生此前的直播中曾提到，人类经过此次疫苗灾难以后，地球上将不再有战争，人类同胞之间会走向和平。
+参考链接：[3/23/2022 文贵直播](https://www.gettr.com/post/p11r8no3573)
 
-撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

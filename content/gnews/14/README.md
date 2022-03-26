@@ -2,26 +2,30 @@
 ---
 
 
-## GCLUB年度盛会暨GTALKS2022抽奖活动如期开幕
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2235864/)
+## 有声|绿委提案：禁五星旗在台湾飘扬
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2235916/)
 
-作者：加拿大温哥华杨帆农场-硫酸羟氯喹64
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
+【大纪元3月24日讯】民进党立委王定宇24日提案，增订《国安法》2-3及5-3条款，针对中华人民共和国的党政军之象征物（包含旗歌等）不可在台湾悬挂和宣传，如为匪宣传、公共场所展示五星旗最高可罚5万元。采取符合比例原则之罚则，盼委员会尽速一读。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-9.jpg)在台湾，看到五星旗已经不是新鲜事，但公开悬挂五星旗，宣扬中华人民共和国的国家认同，却让本土社团看不下去，要求政府立法禁止。
+王定宇指出，中国迄今为止没有放弃武力犯台，对台湾来讲是唯一且巨大的威胁存在。基于对等互惠原则，中华人民共和国境内是不容许中华民国国旗或其他象征物存在，甚至于会以《国安法》论罪，加上从这次乌克兰事件来看，国家的民心、士气是最重要的国防要件之一，基于台湾社会主流民意长期的要求，因此提出此修法草案。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-15-edited.jpg)图片来源：盖特
+此外，也设有除外条款，若为国际会议、国际活动或经我国政府核定的相关活动，如参加世运会、戏剧拍摄使用、文化教育使用等（万国旗等相关使用）不在此限。
 
+[【援引连结】](https://www.epochtimes.com/gb/22/3/24/n13669853.htm)
 
-据3月26日盖特直播消息，全球喜马拉雅农场瞩目，新中国联邦万众期盼的GCLUB年度抽奖典礼暨GTALKS2022用爱把文化相连活动，于当天美东时间上午9点隆重开幕。
-
-GCLCB创建人郭文贵先生携该公司行政总裁，来自波多黎各的Limmery女士，以及喜马拉雅联盟小新女士着GCLUB最新款服饰，盛装出席了本次活动典礼的开幕式。文贵先生寄语表示：在此激动时刻，兴奋欢欣的心情难以平复，并衷心希望所有GCLUB会员能用喜币为自己的父母，亲人和爱人带去这些世所罕有的珍贵礼物。
-
-据悉，本次GCLUB年度典礼活动，不仅将呈现各农场精心准备的表演节目，还有由该公司提供的包括：兰博基尼和奔驰跑车以及GCLUB各款高质精美的服饰礼品等总数1800件抽奖物品。
-
-GCLUB大奖跌宕起伏，幸运会员谁主沉浮！敬请期盼！
-
-* * *
-
-撰稿：硫酸羟氯喹64
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

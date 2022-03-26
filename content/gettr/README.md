@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 3:53 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品8⃣️：GF黑铑金信仰之星戒指 (单价: $380.00)<br/>奖品数量：200<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 8⃣️: GFASHION Star Ring--Black Rhodium (Unit Value: $380.00) <br/>Number of Prizes: 200<br/>The winners are as following<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group46/getter/2022/03/26/15/2b4e970c-0083-eb17-ced8-c2820346cc5b/d5692c7c615fab137331c4af240291b1.jpg)
+
+---
+
 `@miles 3/26/2022 3:22 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品7⃣️：GF年会专属限定版帽子 (单价: $250.00)<br/>奖品数量：550<br/>获奖者如图<br/><br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 7⃣️: GFASHION Limited Edition Hat (Unit Value: $250.00) <br/>Number of Prizes: 550<br/>The winners are as following:<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -151,13 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 【Ukraine Rescue】03/24/22 Volunteer Xiaoxiaosu reported: all the volunteers keep on alert of unknown Chinese for fear that the incident of Russian spies might happen in the base camp.<br/><br/>【乌克兰救援】03/24/22  小小酥战友报道：因担心出现俄罗斯间谍那种现象，战友们对出现的陌生华人都会提高警惕。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
 ![img](https://media.gettr.com/group42/getter/2022/03/26/04/ed92e44d-f70a-a6ac-f58d-4f2ccbfaddfe/out.jpg)
-
----
-
-`@miles 3/26/2022 3:43 AM (UTC)`
-
-3/25/2022 Miles Guo: Hands-on tutorial on how to easily buy GFashion clothes online with Himalaya Pay<br/><br/>3/25/2022 文贵直播：手把手教大家如何用HPay在线轻松购买GFashion<br/><br/>
-![img](https://media.gettr.com/group3/getter/2022/03/26/03/d86ed3ff-482a-2ca3-87ce-f2486d89c781/out.jpg)
 
 ---
 
