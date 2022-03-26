@@ -2,41 +2,30 @@
 ---
 
 
-## 拜登访波提“天安门广场” 称乌抵抗比六四更加英勇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2234229/)
+## 俄罗斯大型登陆舰遭乌军击毁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234281/)
 
-翻译：文乐
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-乔·拜登总统正在访问波兰，该国首当其冲地受到大批乌克兰人逃离对他们国家的冲击。
+作者：纽约磐石农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月24日外媒报导，乌克兰军方宣布将一艘停泊在乌克兰亚速海畔、别尔江斯克港内的俄海军登陆舰击毁，还配上了一段长达7分半钟的视频予以证实。
 
-拜登先生的第一站是热舒夫镇(Rzeszów)，距离乌克兰东南部边境不到100公里（62英里）。他和安杰伊·杜达总统( Andrzej Duda)听取了有关人道主义救援响应的简报，拜登先生会见了驻扎在那里的美国服役部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-39.jpg)
 
-在讲话中，总统重申了他认为弗拉基米尔·普京是战犯的信念，并将乌克兰公民的勇敢抵抗描述为“天安门广场的平方”(译注：更为英勇的抗暴行动)。总统还表示，他对无法越过边境亲眼目睹局势感到失望，暗示十分担忧安全问题——对这次访问已有很多猜测。
+据悉，遭到击毁的俄军舰为黑海舰队大型登陆舰“奥尔斯克号”。乌克兰情报部门表示，乌军对别尔江斯克港口发动袭击，导致俄国占领军共有两艘登陆舰被毁，其中“奥尔斯克号”全毁，“萨托夫号”舰体受损严重，俄军被迫将其炸沉自毁。另外两艘登陆舰“库尼科夫号”和“新切尔卡斯克号”也有不同程度受损，在遭到袭击后第一时间逃离了港口，同时港口一间存放弹药与燃料的俄军仓库被毁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3101-edited.png)图片来源：网际网路
+据美国一位作家在推文中发出的即时卫星照片，俄军登陆舰爆炸起火，浓烟在外太空清晰可见，还可以看到另外两艘登陆舰在港口外海面绕行。
 
-两位总统将于周六在华沙正式会晤。
+参考链接：
 
-这次访问是在周四与北约、七国集团和欧盟领导人在布鲁塞尔举行的一系列马拉松式会议之后进行的。拜登先生说，这次特别峰会证明了美国及其盟国在面对俄罗斯在欧洲的侵略时团结一致。
+- [拍得一清二楚！俄登陸艦遇襲爆炸大火 7分半過程連衛星都看到](https://news.ltn.com.tw/news/world/breakingnews/3871118)
 
-领导人会晤时，对俄罗斯实施了多项新的制裁，总统表示他还希望把俄罗斯踢出“二十国集团”。他强调，是否这样做由该组织来决定，并补充说，另一种选择是让乌克兰作为观察员参加。
 
-评论：拜登亲赴欧洲前线，展示了美国支持乌克兰的决心。拜登又用“天安门广场事件”点出了这个共产党最敏感的死穴，几乎是在说中共正是这次入侵乌克兰的幕后黑手，俄罗斯和中共国是并列的流氓国家。也许这句话是为即将到来的对中共国的制裁而铺路。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-来源：【independent.co.uk】[Biden news – live: President calls Ukraine ‘Tiananmen Square, squared’ as he’s blocked from visit to border](https://www.independent.co.uk/news/world/americas/us-politics/biden-news-president-poland-food-b2044329.html)
-
-* * *
-
-审核：Bryan W
-校对: 五通庙
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-13.jpeg)
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
