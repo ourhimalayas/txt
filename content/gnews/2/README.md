@@ -2,28 +2,35 @@
 ---
 
 
-## 美国将加强施压中共国
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2235877/)
+## MV版Hcoin To the Moon上线107天第41次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235959/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+3/26/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线107天第41次位列匈牙利iTunes热门音乐视频榜榜首，第56次位列前三名
 
-近日，美国贸易代表戴琪接受路透社采访时表示，美国正准备新的中（共）国贸易政策，将更积极施压中共。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-311.jpg)图为美国贸易代表戴琪（Katherine Tai）（图片来自GettyImages）
+[【PDF 下载】Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-据《路透社》报道，戴琪（Katherine Tai）本周在接受采访时指出，美国正准备新的中（共）国贸易政策做法，强调会更积极施压中共国。她并未提供相关细节，但指华府需要新的、更有效率的工具，来捍卫经济利益，强化对中共国的竞争力。
+* * *
 
-戴琪表示，美国不会停止推动挑战中共国，促使其改革，但美国不能再袖手旁观，等中共国做决定。她强调：“我们需要把规则翻到新的一页。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
 
-路透引述知情人士称，美国的这一新政策可能是开始新的贸易调查，这或将导致对中共国商品征收关税，甚至禁运。
 
-现在，中共国面临着来自世界最大经济体美国的警告——不要帮助俄罗斯入侵乌克兰。
+[【PDF 下载】Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Saturday-26-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-参考链接：
-[https://jp.reuters.com/article/us-tai-china-trade-policy-0326-idCNKCS2LN028](https://jp.reuters.com/article/us-tai-china-trade-policy-0326-idCNKCS2LN028)
-
-总编：老孙
-校对发布：爱放飞
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

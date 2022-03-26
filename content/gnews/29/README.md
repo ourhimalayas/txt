@@ -2,28 +2,31 @@
 ---
 
 
-## 怕影响经济！上海感染人数创新高坚持不封城
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2234776/)
+## 拜登把乌克兰抵抗俄罗斯入侵比喻为 “天安门广场&#8221;事件
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2234851/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-据联合新闻网报道，上海25日新增38例本土中共病毒疫情确诊、2,231例本土无症状感染者，单日新增总感染人数再创新高。
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-26-下午7.02.05.png)图片来源：互联网
+在靠近乌克兰边境的热舒夫着陆后，拜登谈到了乌克兰公民奋起反抗俄罗斯入侵的勇敢精神，把他们比作抵抗中国政府镇压的抗议者，赞扬了乌克兰人面对俄罗斯坦克的勇敢精神。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220326214713464.jpg)图片来源：路透
+‘当你看到一个30岁的女人拿着步枪站在坦克前时，我们谈谈在天安门广场发生了什么？这就是天安门广场，’拜登说。
 
-针对封城建议，上海疫情防控领导小组专家组成员、复旦大学上海医学院副院长吴凡坚决表示：「不行」。她强调，上海一旦封城，甚至会影响全球经济。
+他指的是1989年北京镇压学生争取民主，反抗政府的标志性画面，当时一个孤独的男人站在天安门广场的政府军队坦克的前面，试图阻止中共政府的镇压。
 
-简评：中共从来都是带血的GDP，只要能创造价值哪管百姓死活，疫情期间也是如此，上海感染人数创新高不封城，怕的是影响经济从不考虑人身健康！中共经济崩塌在即，为了苟延残喘也是拼了，如此操作无异于引鸩止渴，问题集体爆发中共死的更快！
+在乌克兰也有类似的场景，普通公民用他们的身体和个人的呼吁来试图阻止俄罗斯的装甲车–甚至在乌克兰军队用美国和盟国提供的武器炸毁俄罗斯设备时，乌克兰人民也付出了代价。
 
-新闻来源：[联合新闻网](https://udn.com/news/story/7332/6193771?from=udn_ch2_menu_v2_main_index)
+拜登周五还对富有传奇色彩的第182空降师的成员发表了讲话—称赞部队既协助救援，又帮助保护北约的东翼。
 
-撰稿/发布：一叶知秋
+波兰总统杜达在当天早些时候遭遇了明显的飞机失误，他感谢美国军队提供的安全保障和总部设在美国的非政府组织协助的救援工作。他称在他的国家的大约200万乌克兰难民为 “客人”。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+对于美国军队，他说：”他们在保卫波兰边境的安全，也在保卫整个欧洲社会的安全。
+
+原文链接：[Biden says he was NOT allowed to cross the border into Ukraine, refers to the invasion as ‘Tiananmen Square squared’ and talks about women standing in front of Russian tanks alongside Polish President Duda](https://www.dailymail.co.uk/news/article-10652821/Biden-refers-Ukraine-invasion-Tiananmen-Square-squared.html)
+
+* * *
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

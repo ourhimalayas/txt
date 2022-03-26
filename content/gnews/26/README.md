@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯军方高层人士突然从公众视野中消失了
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235095/)
+## 俄罗斯威胁说，如果北约维和人员进入乌克兰，将进行 &#8220;全球核战争&#8221;
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235114/)
 
-03/24/2022 在俄罗斯自冷战以来最大的冲突中，一些俄罗斯高级官员的下落被质疑
+03/24/2022 俄罗斯威胁说，如果北约维和人员进入乌克兰，将进行 “全球核战争”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
