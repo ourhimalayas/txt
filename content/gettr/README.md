@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 12:35 AM (UTC)`
+
+2022.03.25 晚 《新中国联邦新闻》中共末日与数字货币触发瑞士政府作出改变； 美国能产生无数马斯克 中共独裁体制扼杀文明
+![img](https://media.gettr.com/group13/origin/2022/03/26/00/b92efe3a-4ef9-5a02-dc66-9a12a5491329/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/26/2022 12:28 AM (UTC)`
+
+3/25/2022 Miles Guo: Himalaya Coin and Tangping Coin will become the most reliable, secure, convenient, and least-cost digital currency of the world. Both will be the creators of undeprivable personal wealth; Chinese people should have faith that justice will always be served and our strength will speak for itself; Chinese people will be set free only after they have achieved freedom of faith and financial independence.<br/><br/>3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)；一定要坚信正义并靠实力; 中国人在拥有真正的信仰和财务自由时，才能得解放<br/>
+![img](https://media.gettr.com/group5/getter/2022/03/26/00/ea7f4693-91e3-dbae-1298-e067735abd82/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayadcfarm 3/25/2022 6:29 PM (UTC)`
@@ -146,20 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
 ![img](https://media.gettr.com/group24/origin/2022/03/25/04/23fab483-12e3-01de-f364-b58060373ec4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/25/2022 2:32 AM (UTC)`
-
-
-![img](https://media.gettr.com/group44/origin/2022/03/25/02/9fa20293-5cf3-3f85-3cd1-57e36ef87acc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/25/2022 2:17 AM (UTC)`
-
-3/23/2022 Miles Guo: Xu Jiayin is behaving like a mentally ill person just because he has a surveillance device on his body. Hong Kong is covering up the pandemic, only 1 death is reported for 5 deaths. 1,700 people died in just one district in Shenzhen. The pandemic in Communist China is out of control, causing more deaths than you could imagine. The world is stockpiling food like crazy, and Communist China may end up in a situation where people are reduced to cannibalism!<br/><br/>3/23/2022 文贵直播：许家印表现得像精神病只因身上安着监控器；香港掩盖疫情，死5人只报1人，深圳仅一个区就死了1700人，中共国疫情失控造成的死亡超乎想象；全世界正在疯狂屯粮，中共国可能会达到人吃人的境地！<br/>
-![img](https://media.gettr.com/group35/getter/2022/03/25/02/6a64a532-7736-339f-297a-25388b3e94cf/out.jpg)
 
 ---
 
