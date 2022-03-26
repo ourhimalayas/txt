@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|中共助纣为虐 国人被指元凶
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236484/)
+## 以太坊正在向产权证明（PoS）区块链过渡
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236521/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日大直播中，郭文贵先生就美国总统拜登表示俄乌战争中，中共国没有向俄罗斯提供武器一事，进行了深度分析。郭先生指出，拜登的这种说法，实际意在强调中共国向俄方提供了除武器以外的一切支持，包括资金、粮食、通讯、情报等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-59.jpg)
-郭先生说，尽管驻美大使秦刚在接受美国媒体采访时，一再否认中共国向俄罗斯提供了军事援助，但由于中共国所有的武器技术都是来自俄罗斯，在黑龙江、牡丹江、鸭绿江属于俄罗斯的武器加工厂就多达70家，俄罗斯不需要中共国提供武器。战争的本质就是烧钱。人民币石油化，数字人民币对美国的挑战，其帮助远远大于俄乌战争本身。
+【作者】纽约香草山农场 健身部 文真
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+以太坊正在从工作证明（PoW）转向产权证明（PoS）的共识机制。如果一切按计划，作为世界第二大加密货币的以太坊，将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
+比特币和以太坊目前使用工作证明算法来确保安全，即”矿工 “解决加密难题，竞争验证新交易区块的权利。成功的矿工会以加密货币作为他们工作的奖励。
+产权证明是区块链网络为实现分布式共识的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
+对比工作证明，产权证明有诸多优势：
+首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。
+第二，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。
+第三，导致网络中出现更多的节点，对中心化有更强的免疫力。
+最后，扩展以太坊网络的一个关键升级，对区块链的支持更强。
+使用产权证明后，验证者不必相互争夺，在能源和计算硬件上花费巨大。相反，他们的加密货币缓存，或产权，允许他们参加抽奖。那些被选中的人获得了验证一组交易的权力（并因此获得更多的加密货币）。表现出不良行为的验证者会受到惩罚——他们会失去一部分股权。
+以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该系统一直在平行运行，而且正在将实际执行交易和用户资产的转移合并到新的系统。
 
-郭先生警告，由于中共和俄罗斯如此密切的合作，西方人已认识到，中共国是俄罗斯入侵乌克兰的元凶而不只是帮凶，俄罗斯仅是被操纵的替死鬼。俄乌战争将使中国人陷入悲惨的境地。这是中国人难以承受的结果。
+[https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
 
+[https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
 
+校对/发稿：菩提树
 
-文字版原文：[中共助纣为虐 国人被指元凶](https://gnews.org/zh-hans/2228950/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTu**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
 
  
 

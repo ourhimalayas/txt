@@ -2,19 +2,10 @@
 ---
 
 
-## 美、英及欧盟对“普京核心集团”的寡头实施毁灭性制裁
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2236578/)
+## 3/25/2022 文贵直播: 以出口武器著称的号称世界第二大军事强国的俄罗斯在俄乌战争中的表现令人大跌眼镜。他们的装备、补给和通讯都停留在二战水平，但在冠冕堂皇的虚假宣传方面却和中共、北朝鲜如出一辙
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2236621/)
 
-制作：大直播短视频组- 红桃Q
-文案：晨熹
-
-审核/编辑/发稿：谐趣园
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+秘密翻译组-北美组
 
  
 

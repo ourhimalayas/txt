@@ -15,110 +15,110 @@
 
 ---
 
-### [美、英及欧盟对“普京核心集团”的寡头实施毁灭性制裁](/content/gnews/1/README.md)
- ` 爆料视频`
-
-### [有声|战火纷飞无春天](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [拜登警告“粮食短缺”即将成为现实](/content/gnews/3/README.md)
- ` NFSC News`
-
-### [日本内阁会议：禁止对俄罗斯出口奢侈品](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [波罗的海三国议长访问乌克兰](/content/gnews/5/README.md)
- ` NFSC News`
-
-### [俄罗斯政权内部异变&#8230;&#8230;要人辞职、杳无音信， &#8220;政变在所难免&#8221;（下）](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共联合国投票彰显对俄罗斯的支持](/content/gnews/7/README.md)
- ` NFSC News`
-
-### [以太坊正在向产权证明（PoS）区块链过渡](/content/gnews/8/README.md)
- ` 科海拾星`
-
-### [【修罗短评】郭先生的破产与共匪的破产](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [俄罗斯政权内部异变&#8230;&#8230;要人辞职、杳无音信， &#8220;政变在所难免&#8221;(上)](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|中共助纣为虐 国人被指元凶](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [中共国拥有核武器情况](/content/gnews/12/README.md)
- ` 温哥华扬帆农场`
-
-### [天基移动电话网络公司与SpaceX签署发射协议](/content/gnews/13/README.md)
- ` 科海拾星`
-
-### [有声|【信仰之声】“无我”的生命](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [乌克兰总统表示粮食出口不足将打击许多国家](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [有声|俄乌战局陷入胶着 普京两种可能结局](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|比特币去中心化骗局](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月21日晚](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦乌克兰救援行动对全球华人的影响](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|喜马拉雅币一周分析与总结（3月14日-3月20日）](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [红场传来鸽派言论，强人政治开始撕裂](/content/gnews/21/README.md)
- ` 纽约香草山MOS02`
-
-### [2022/03/26 英喜时事速递](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [前线快讯每日播送 &#8211; Peterson Pierre 博士“不打疫苗更安全”](/content/gnews/23/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/24/README.md)
- ` NFSC News`
-
-### [俄乌战局最近消息汇总](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [中共洗脑工具之样板戏](/content/gnews/26/README.md)
- ` NFSC News`
-
-### [【G时新闻】GFASHION开始接受使用HPAY支付](/content/gnews/27/README.md)
- ` G-时新闻`
-
-### [普京计划出席G20峰会，有呼吁将其排除在外](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [乌俄首次换囚！19名蛇岛「X俄」勇士获释](/content/gnews/29/README.md)
- ` 蓝莲花农场`
-
-### [文贵先生直播精要 2022/03/25](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌俄战争以来首次！拜登会见乌克兰外长防长](/content/gnews/31/README.md)
- ` 蓝莲花农场`
-
-### [Gclub年会26日举办 奖品丰厚](/content/gnews/32/README.md)
- ` GTV News Talk`
-
-### [GCLUB年度盛会暨GTALKS2022抽奖活动如期开幕](/content/gnews/33/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？新中国联邦希望战友们都具备辨别真假善恶的能力；若中俄开战，中共必败；中共军方人士认未来几十年之内，中共和西方进行军事抗衡的能力为零！](/content/gnews/34/README.md)
+### [3/25/2022 文贵直播: 以出口武器著称的号称世界第二大军事强国的俄罗斯在俄乌战争中的表现令人大跌眼镜。他们的装备、补给和通讯都停留在二战水平，但在冠冕堂皇的虚假宣传方面却和中共、北朝鲜如出一辙](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [与乌克兰紧急救援前线现场感想（3）：New China Face](/content/gnews/35/README.md)
- ` 澳喜农场`
+### [有声|中共操控全球金融集權、搶劫人類財富、導致即將到來的疫苗災難和金融災難](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [拜登以天安门形容乌克兰](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [美、英及欧盟对“普京核心集团”的寡头实施毁灭性制裁](/content/gnews/4/README.md)
+ ` 爆料视频`
+
+### [有声|战火纷飞无春天](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [拜登警告“粮食短缺”即将成为现实](/content/gnews/6/README.md)
+ ` NFSC News`
+
+### [日本内阁会议：禁止对俄罗斯出口奢侈品](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [波罗的海三国议长访问乌克兰](/content/gnews/8/README.md)
+ ` NFSC News`
+
+### [俄罗斯政权内部异变&#8230;&#8230;要人辞职、杳无音信， &#8220;政变在所难免&#8221;（下）](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共联合国投票彰显对俄罗斯的支持](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [以太坊正在向产权证明（PoS）区块链过渡](/content/gnews/11/README.md)
+ ` 科海拾星`
+
+### [【修罗短评】郭先生的破产与共匪的破产](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [俄罗斯政权内部异变&#8230;&#8230;要人辞职、杳无音信， &#8220;政变在所难免&#8221;(上)](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|中共助纣为虐 国人被指元凶](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [中共国拥有核武器情况](/content/gnews/15/README.md)
+ ` 温哥华扬帆农场`
+
+### [天基移动电话网络公司与SpaceX签署发射协议](/content/gnews/16/README.md)
+ ` 科海拾星`
+
+### [有声|【信仰之声】“无我”的生命](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [乌克兰总统表示粮食出口不足将打击许多国家](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|俄乌战局陷入胶着 普京两种可能结局](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|比特币去中心化骗局](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月21日晚](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [红场传来鸽派言论，强人政治开始撕裂](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022/03/26 英喜时事速递](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [前线快讯每日播送 &#8211; Peterson Pierre 博士“不打疫苗更安全”](/content/gnews/24/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/25/README.md)
+ ` NFSC News`
+
+### [俄乌战局最近消息汇总](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [中共洗脑工具之样板戏](/content/gnews/27/README.md)
+ ` NFSC News`
+
+### [【G时新闻】GFASHION开始接受使用HPAY支付](/content/gnews/28/README.md)
+ ` G-时新闻`
+
+### [普京计划出席G20峰会，有呼吁将其排除在外](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [乌俄首次换囚！19名蛇岛「X俄」勇士获释](/content/gnews/30/README.md)
+ ` 蓝莲花农场`
+
+### [文贵先生直播精要 2022/03/25](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [乌俄战争以来首次！拜登会见乌克兰外长防长](/content/gnews/32/README.md)
+ ` 蓝莲花农场`
+
+### [Gclub年会26日举办 奖品丰厚](/content/gnews/33/README.md)
+ ` GTV News Talk`
+
+### [GCLUB年度盛会暨GTALKS2022抽奖活动如期开幕](/content/gnews/34/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？新中国联邦希望战友们都具备辨别真假善恶的能力；若中俄开战，中共必败；中共军方人士认未来几十年之内，中共和西方进行军事抗衡的能力为零！](/content/gnews/35/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [乌国防部脸书：俄军战损约16，400名人员，575辆坦克](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
