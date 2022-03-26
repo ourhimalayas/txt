@@ -2,31 +2,31 @@
 ---
 
 
-## 乔-拜登前往欧洲参加北约、欧盟和七国集团峰会
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2232898/)
+## 有声｜拜登访波兰 将俄入侵乌克兰比做天安门事件
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2233078/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-63.png)
+By:**秘翻新闻**
 
-（图片来自原文）
+**2022-03-26**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-321.png)图片来源 Brendan SMIALOWSKI/AFP
+[大纪元3月26日报道，拜登总统周五（3月25日）访问波兰，在赞扬乌克兰人勇气的同时，将俄罗斯入侵乌克兰比做中共国89年天安门广场血腥镇压事件，并再次谴责普京在乌克兰犯下战争罪。](https://www.epochtimes.com/gb/22/3/25/n13673419.htm)
 
-随着俄罗斯入侵乌克兰进入第二个月，华盛顿和布鲁塞尔都对冲突的结局感到担忧。虽然俄罗斯总统弗拉基米尔-普京(Vladimir Putin)迅速攻占乌克兰的计划被挫败，但他的战术变得更加无情，平民目标被炸毁，人道主义工作被阻断，甚至普京可能会诉诸更具破坏性的轰炸，使用化学武器甚至是核武器。
+[综合媒体报导，拜登周五下午抵达波兰热舒夫（Rzeszow）的机场，该机场距离乌克兰西部城市利沃夫（Lviv）约170公里（105英里）。](https://www.epochtimes.com/gb/22/3/25/n13673419.htm)
 
-美国总统拜登和欧洲领导人周三（3月23日）在布鲁塞尔举行三个独立的峰会时，将规划下一阶段如何应对俄罗斯入侵乌克兰的这场人道危机。
+[拜登称赞乌克兰人在抵抗俄罗斯方面表现出的骨气，并举了一名30岁女子拿着步枪站在一辆俄军坦克前的例子。](https://www.epochtimes.com/gb/22/3/25/n13673419.htm)
 
-这些领导人将讨论如何向这个饱受战争蹂躏的国家——乌克兰输送更多的武器和人道主义援助。
+[拜登在波兰举行的难民危机联合简报会上对记者说：当看到一名30岁的女子拿着步枪站在一辆坦克前，让我想起天安门广场发生的事情。](https://www.epochtimes.com/gb/22/3/25/n13673419.htm)
 
-在比利时首都举行的北约特别峰会、七国集团经济会议和欧洲理事会峰会上，这些领导人将讨论如何加强对克里姆林宫的制裁。
+[拜登对驻波兰美军说：你们正处于民主国家和独裁者之间的斗争之中。你们所做的事情很重要。](https://www.epochtimes.com/gb/22/3/25/n13673419.htm)
 
-预计他们还将敦促中国不要在冲突中站在俄罗斯一边，并警告北京，如果中共向莫斯科提供军事支持或破坏西方的制裁，将有 “严重后果”，在全球经济中的地位可能会受到威胁。
+[拜登后来感叹自己无法与难民会面，他此前曾表示希望这样做。拜登周四（3月24日）表示，美国将欢迎10万乌克兰难民，并投入超过10亿美元的人道主义援助。](https://www.epochtimes.com/gb/22/3/25/n13673419.htm)
 
-这些会议旨在强调西方国家团结一致反对俄罗斯入侵，并对乌克兰表示声援，乌克兰总统弗拉基米尔-泽连斯基(Volodymyr Zelensky)最近几天在其议会发表了一系列讲话。
+秘翻新闻 二丫编辑报道
 
-新闻来源链接：[https://inews.co.uk/news/joe-biden-travels-to-europe-for-nato-eu-g7-summits-where-western-leaders-will-plan-next-steps-1533065?ITO=newsnow](https://inews.co.uk/news/joe-biden-travels-to-europe-for-nato-eu-g7-summits-where-western-leaders-will-plan-next-steps-1533065?ITO=newsnow)
+发布 : 恩典
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

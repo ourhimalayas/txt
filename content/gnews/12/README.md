@@ -2,27 +2,47 @@
 ---
 
 
-## 有声｜美国最高法院允许限制部署未接种疫苗的军人
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2232879/)
+## 视频|Medyka的一天开始了（中英文脱敏）
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2233063/)
 
-**By:秘翻新闻**
+【制作团队】澳喜要闻
 
-**2022-03-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2022-03-26-下午12_Fotor.png)图片源自:原文
-据**[《福克斯新闻》](https://www.foxnews.com/politics/supreme-court-allows-pentagon-to-limit-deployment-of-unvaccinated-service-members)**3月25日报道，美国最高法院暂时批准了五角大楼的请求，限制部署未接种中共病毒疫苗的现役军人，这些军人基于宗教豁免理由拒绝注射疫苗。
+【视频剪辑】澳喜要闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+Medyka的一天开始了。
+厚厚的毛毯温暖心的寒冷。
+摆放整齐的物资给有需要的人选择。
+这个角落今天能给多少孩子欢乐？
+你会是我的新主人吗？
+NFSC的咖啡香让匆忙的脚步驻足。
+帐篷是暂时休整的“家园”。
+忙碌了一天，夜幕再次降临。
+依然繁忙的身影，准备补充第二天的物资。
+检修设备，保障营地安全。
+累了倦了，这样休息吧。
+因为明天一定又是充满希望的一天，
+Medyka’s day begins.
+Thick blankets to warm the cold of the heart.
+Neatly arranged supplies for those in need to choose from.
+How many children can this corner give joy to today?
+Will you be my new host?
+The aroma of coffee at NFSC makes the hurried footsteps stop.
+The tent is a “home” for temporary rest and recuperation.
+After a busy day, night falls again.
+Still busy, ready to replenish supplies for the next day.
+Checking and repairing equipment to ensure the safety of the camp.
+Tired and weary, let’s rest like this.
+Because tomorrow must be another day full of hope.
+【新闻来源】NFSC素材库
 
-美国最高法大法官塞缪尔·阿利托对此决定表示强烈反对，他表示：法院对 35 名军人被告做出了极大的不公正决定，这些军人自愿承担了苛刻和危险的职责来保卫我们的国家。而现在这些人似乎受到了海军的糟糕对待，法院却将这一切置之不理。
+审核/编辑/发稿：qiutian（邱甜）
 
-据报道，争议在于美国海军是否有权限制部署未接种疫苗人员。此前由35名海豹突击队队员和其他海军特种作战人员提起的，关于阻止五角大楼执行强制疫苗接种政策的诉讼，在一个下级法院已经得到批准。
-
-代表海豹突击队的第一自由研究所军事事务主任迈克·贝里（Mike Berry）说：法院狭义的判决不会阻止我们确保美国军人行使宗教自由的权利。正如反对此次决定的阿利托法官所说，这是一个巨大的不公正。
-
-（秘翻新闻 Grace 编辑报道）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-3.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,41 @@
 ---
 
 
-## 视频|新中国联邦救援营地的灯火 为在黑夜中流离失所的难民带来温暖与希望
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232846/)
+## 澳大利亚放宽更多旅行限制以吸引游客
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2232921/)
 
-制作：大直播短视频组- 青梅煮酒
-文案：爱米粒
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-新中国联邦救援营地的灯火 为在黑夜中流离失所的难民带来温暖与希望
-丰沛的物资和周到的服务展现新中国联邦人对他人无私的关爱
-儿童玩耍的小天地
-每日提神醒脑必需的自助咖啡区
-可随手取用的温暖厚实的毛毯
-赶快把手机充饱电，跟亲人们报平安
-这里有充足的食品、水果补充
+翻译/编辑：小红帽
 
-大爱无界 与乌克兰同在
-我们是灭共的新中国联邦人
-
-审核/编辑/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/shutterstock_32168770-scaled-1.jpg)图片来源：www.australianchamber.com.au
 
 
+根据APP3月26日报道，随着澳大利亚联邦政府放宽限制，以使旅行恢复到大流行前的水平，国际游客被敦促预订飞往澳大利亚的航班。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+近两年的边境限制已经削弱了澳大利亚一度繁荣的旅游业。
 
+但澳大利亚政府希望放宽旅行规则以吸引更多游客前往。
 
+虽然国际旅客仍需要完全接种新冠疫苗，但从4月17日起，他们将不再需要新冠病毒检测结果呈阴性才能登上飞往澳大利亚的航班。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+卫生部长格雷格·亨特（Greg Hunt）宣布，该规定将与游轮禁令一起终止。
+
+贸易部长丹·特汉（Dan Tehan）周五宣布对旅游业提供新的支持。
+
+澳大利亚政府将为旅行社和旅游安排服务提供商提供7550万美元，以继续运营和重新预订旅行积分。
+
+三年内再追加6,000万澳元将吸引更多来自新国际市场的游客，包括对商业活动竞标基金的额外支持，吸引大型活动到澳大利亚。
+
+新闻来源：[Australia to ease more travel restrictions](https://www.aap.com.au/news/australia-to-ease-more-travel-restrictions/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

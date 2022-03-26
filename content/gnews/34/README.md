@@ -2,27 +2,30 @@
 ---
 
 
-## 中共国首都北京故宫附近冒起漫天浓烟
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2231645/)
+## 泽伦斯基：俄军阵亡逾1.6万 乌克兰从马立波救出3.7万
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2231658/)
 
-**撰稿：日本东京方舟农场  海星**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+泽伦斯基指出，俄罗斯损失的人数已超过16,000人，其中还有高级将领，到目前为止，还没有关于被杀的俄罗斯将军上校或海军上将的报导，然而，在这个数字中，包含一名占领者军队的指挥官和一名黑海海军的指挥官。
 
-3月25日，中共微博等社交媒体平台传出多个北京故宫上空漫天浓烟的视频。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/e591986e-710b-4809-bf0b-4eb6d7ee7c21.jpg)图片来源：Volodymyr Zelensky脸书
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-45.jpg)（图片来源：YouTube）
+2名北约高级军事官员周三时则估计，在乌克兰行动中丧生的俄罗斯士兵人数在 7,000至15,000 人之间。美国官员也预估，俄军死亡人数落在7,000至14,000间。
 
-据《自由时报》报导，今天下午5点左右，在微博等社交媒体平台上传出的多个视频显示，北京故宮附近冒起浓浓黑烟，还有行人停在路旁观看。
+泽伦斯基进一步表示，过去一周乌克兰确保了18条人道主义走廊的安全，并设法从被围困的马立波营救了37,606人，其中26,477人被带到扎波罗热。
 
-报道称，“故宫着火”的话题一度引发网友讨论，不过目前在微博搜索此关键词，已看不到相关结果，疑似遭到中共封锁。也有网友猜测失火地点可能不在故宫。
+简评：俄军为了攻下乌克兰不惜屠杀平民，乌军为了保卫家乡尽其所力救援，独裁与民主两国对平民的关怀高下立判。一个拿人民性命当儿戏的国家没有理由去为它卖命，俄罗斯的大兵们醒醒吧！
 
-截至目前，官方仍未证实该消息。
+新闻来源：[民视新闻](https://www.ftvnews.com.tw/news/detail/2022326W0009)
 
-参考链接：
- [https://news.ltn.com.tw/news/world/breakingnews/3872114](https://news.ltn.com.tw/news/world/breakingnews/3872114)
+撰稿/发布：一叶知秋
 
-总编：老孙
-校对发布：Linda
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

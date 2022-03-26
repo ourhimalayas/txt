@@ -2,30 +2,22 @@
 ---
 
 
-## 俄罗斯在乌克兰的损失超过原苏联在阿富汗的损失
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2233056/)
+## 俄规避制裁 比特币被牵入漩涡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2233170/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-55.jpg)
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-175.jpg)
+图片来源： 网络图片合成
 
-（图片来自原文）
+据美国“商业内幕（Business Insider）”网3月25日报道，俄罗斯下议院能源委员会负责人24日表示，俄罗斯愿意接受“友好国家”使用比特币购买石油和天然气。
 
-据北约估计，自2月24日，俄罗斯总统弗拉基米尔-普京(Vladimir Putin)对乌克兰发动入侵攻击以来，已有多达15000名俄罗斯军人被杀，多达40000俄罗斯军人死亡、受伤、被俘或失踪。这对克里姆林宫造成重大打击，普京试图在几天内迅速遣散乌克兰政府。
+对于“敌对国家”，普京政府宣布收取卢布，欧洲天然气价格在23日飙升了 30%，陷入困境的卢布兑美元汇率也升到了95 以上的三周高位。24日，俄下议院能源委员会主席扎瓦尔尼（Pavel Zavalny）在电视新闻发布会上称，西方国家须支付卢布或黄金的同时，中国和土耳其这些“友好国家”可以支付他们各自的国家货币、甚至是比特币。扎瓦尔尼作为下议院议员，其言论应该仅代表一项提议，而非既定政策。但此消息发布后，根据“币虎（CoinGecko）”交易平台数据，比特币价格次日上涨 2%、至 43,851 美元。
 
-尽管俄罗斯向乌克兰派遣了超过15万名军队，但普京在最近几周的地面攻势中取得的进展微乎其微。
+俄罗斯在 2 月初（入侵乌克兰之前）刚刚正式承认了比特币和其他加密资产为货币。目前尚不清楚将俄罗斯如何与中国在比特币支付上合作，因为北京去年刚刚宣布所有加密货币交易非法。
 
-因为乌克兰战士用游击战术和西方武器延缓或停止了俄罗斯军队的前进进度，俄罗斯军队开始使用炸弹和猛烈的炮击在远处摧毁乌克兰城市。
+能源是俄罗斯最重要的收入来源，据路透社报道，2021 年石油和天然气贸易为其带来了 1190 亿美元收入。俄罗斯入侵乌克兰后受到多方制裁，其银行已被禁止使用国际 SWIFT 支付系统，但欧洲央行行长拉加德（Christine Lagarde）本周曾提醒，俄罗斯私营企业正在使用加密货币来规避制裁。
 
-3月12日，泽连斯基说，约有1300名乌克兰军人在行动中被杀。
-
-3月23日，周三，乌克兰总统弗拉基米尔-泽连斯基说，有数千名乌克兰百姓在冲突中丧生，包括至少121名儿童。
-
-乌克兰军队继续保卫几个重要城市，包括首都基辅，并开始采取行动，夺回俄罗斯人最近获得的领土。
-
-新闻来源链接：[https://www.newsmax.com/newsfront/nato-russia-ukraine/2022/03/23/id/1062633/](https://www.newsmax.com/newsfront/nato-russia-ukraine/2022/03/23/id/1062633/)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+**新闻来源：** [Russian lawmaker proposes accepting bitcoin for its oil and gas exports from ‘friendly’ countries like China and Turkey](https://markets.businessinsider.com/news/currencies/russia-bitcoin-oil-gas-friendly-countries-china-turkey-energy-minister-2022-3)
 
  
 

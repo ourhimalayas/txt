@@ -2,75 +2,224 @@
 ---
 
 
-## 潘石屹一天连吃15张罚单，被罚1.15亿！
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2231671/)
+## 前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2231672/)
 
-编辑： 文宝
+Jake Tapper (CNN anchor)
+杰克·塔珀（CNN 主播）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
+Right now we know the Russians are working on four major fronts
+现在我们知道俄罗斯人正在四个主要战线上工作
 
+There’s Kyiv, there’s Kharkiv
+有基辅，有哈尔科夫
 
-北京市场监督管理局官网信息显示，3月21日，**SOHO中国旗下15家物业管理公司因加收电费等违法行为被处罚款1.15亿元。**
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0325%2F8e0bc6c9j00r99dmc0015d200u000k0g00ff00a9.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-SOHO中国旗下北京搜厚物业管理有限公司负责运营北京银河SOHO、SOHO尚都、丹棱SOHO、前门SOHO、中关村SOHO、丽泽SOHO、SOHO北京公馆、三里屯SOHO、望京SOHO、朝阳门SOHO、光华路SOHO、朝外SOHO、建外SOHO、SOHO嘉盛中心等项目的**15家物业管理公司存在加收电费、在电费中加收其他费用等违法行为，共计违法收取费用7685.84万元****，被北京市各区市场监督管理部门责令返还违法收取费用，并处罚款总计1.15亿元。**
+there’s obviously the Dnipro region，the separate regions,
+显然有第聂伯地区，不同的区域
 
-工商信息显示，北京搜厚物业管理有限公司为SOHO中国子公司，负责运营SOHO中国旗下商写项目的物业管理。
+and then of course, Crimea
+当然还有克里米亚
 
-**潘石屹拟7折卖房**
+But the state it does seem as right now
+但它现在看起来确实是这样的状态
 
-**收入全部用于降负债**
+we’re hearing that it’s something of a stalemate
+我们听说目前是一个僵局
 
-3月10日，SOHO中国官微披露，潘石屹宣布拟以七折价格销售3.2万平米京沪两地的部分物业，**潘石屹也明确回应了外界对于资金流向的猜测，他表示此次销售房源的收入将全部用于降负债，不会用作股票分红。**
+What is going wrong for the Russians right now?
+俄罗斯人现在出了什么问题？
 
-“公司的债近期到期，‘欠债还钱’天经地义，我们不会拖欠任何人、任何单位的钱。我们相信市场没有‘卖出不去的货，只有卖不出去的价’，所以我们决定血本甩卖。”
+Gen. David Petraeus (Ret) Former CIA Director
+大卫·彼得雷乌斯将军（退役）前中央情报局局长
 
-**SOHO中国称，为了优化资产结构、缓解资金压力，其以七折价格推出了3.2万平米的房源**，覆盖银河SOHO、三里屯SOHO、SOHO东海广场、SOHO中山广场等９个项目，全部坐落在北京上海的城市核心地段，涵盖办公、商业及公寓各类业态，其中不乏含有租约的房源及整层房源。
+Well, an awful lot, actually it’s a stalemate
+好吧，很多，实际上这是一个僵局
 
-21世纪经济报道查询半年报发现，截至2021年6月30日，SOHO中国持有的租赁物业面积总计为83.065万平方米，此次出售的房源面积约占总面积的3.85%。
+but we should know it’s a bloody stalemate
+但我们应该知道这是一场血腥的僵局
 
-据悉，SOHO中国希望通过此次调整“减负”前行，以更加灵活的姿态应对市场变化，寻求长期健康的发展，同时，SOHO中国还将佣金奖金比例提高到交易额的4%。
+Jake Tapper
+杰克·塔珀
 
-目前SOHO中国净资产负债率约为44%，截至2021年年底，SOHO中国的平均出租率为83.4%，其中上海古北SOHO实现满租、北京丽泽SOHO出租率也突破了80%，均达到两个项目入市以来的最高水平。
+right
+是的
 
-**SOHO中国7折甩卖的物业真便宜吗？**
+Gen. David Petraeus
+大卫·彼得雷乌斯将军
 
-从微信“SOHO中国公开租售平台”小程序可以看到，该公司此次计划出售的“资产包”主要包括位于北京的银河SOHO、中关村SOHO、朝外SOHO、SOHO北京公馆、朝阳门SOHO、三里屯SOHO、建外SOHO，以及上海的SOHO中山广场、SOHO东海广场9个项目。
+This is not a cease-fire, and also arguably, it’s a battle of attrition
+这不是停火，也可以说这是一场消耗战
 
-这些项目涵盖办公、商业及公寓各类业态，其中不乏包含租约及市场稀缺的整层房源。
+It’s a stalemate on the battlefield
+这是战场上的僵局
 
-其中银河SOHO在售的房源共有15套，其中11套皆在D座，剩余4套则分别为B座7层的20709室至20711室，以及A座12层整层办公室，该层待售面积2831.14平方米，挂牌价格每平方米4.8万元。
+Again, with lots of continued damage on both sides
+而且，双方都有很多持续的伤害
 
-**据粗略计算，这批资产所含待售房源的挂牌总价在13亿元左右。**
+lots of destruction, especially from the Russians
+大量破坏，尤其是来自俄罗斯人的破坏
 
-按SOHO中国的说法，这些拟出售物业都是“租金回报稳定，投资性价比极高”的优质房源。数据显示，2021年上半年，此次7折出售的9个物业中，有4个物业出租率达90%以上。
+But there’s a battle of attrition, in a sense between the will in Kyiv in the country
+但是这是一场消耗战，从某种意义上说，在基辅的国家意志
 
-**SOHO中国在文章中积极自荐称，“7折出售不失为一个捡漏的好机会”。**
+and then between that in Moscow and especially in the Kremlin
+和莫斯科的意志之间，特别是在克里姆林宫
 
-但北京青年报记者经过查询发现，**多个项目7折后价格仍高于周边项目售价，或仅是持平。**也就是说，SOHO中国打完7折的售价跟市场价相比并没有较大的差别。记者在链家APP搜索相关的房源信息发现，银河SOHO一套拟出售房源面积173.58平方米，挂牌单价仅为41307元每平方米。建外SOHO在售房源有33套，其2月的参加均价为55067元，挂牌价格大致分布在在49000元每平方米到58000元每平方米之间。
+as their economy, their financial system and all the rest of that is just collapsing
+因为他们的经济、金融系统和所有其他的东西都在崩溃
 
-**去年，潘石屹连收多张罚单**
+But what you see up here, this is the main effort
+但是你在这里看到的，这是主要的努力
 
-2021年12月7日，上海市市场监督管理局披露，因存在向商户加价多收电费的电力价格违法行为，**北京搜厚物业管理有限公司上海多家分公司于日前连续收到7份行政处罚，被处以警告并合计罚款8664万元。**北京搜厚物业管理有限公司为SOHO中国旗下全资子公司。
+we can come in and show that
+我们可以来展示
 
-**潘石屹名下建华置地因偷税被罚7.09亿元**
+Jake Tapper
+杰克·塔珀
 
-2021年12月17日，潘石屹时隔10天再接罚单，**由其担任法人的北京建华置地因偷逃税被北京市税务稽查部门依法罚款7.09亿元。**
+You want to look at that?
+你想看那个吗？
 
-据国家税务总局北京市税务局网站披露，经查，北京建华置地有限公司，在SOHO尚都项目（二、三期）土地增值税清算和企业所得税汇算清缴中，违规多扣成本，进行虚假申报，少缴土地增值税和企业所得税1.98亿元。
+Gen. David Petraeus
+大卫·彼得雷乌斯将军
 
-根据《中华人民共和国税收征收管理法》《中华人民共和国行政处罚法》等法律法规规定，**税务部门依法追缴税款、加收滞纳金并处2.5倍罚款共计7.09亿元。**
+Sure, that’s do that
+好的，让我们看这里
 
-信息显示，北京建华置地有限公司成立于1994年，SOHO中国持股60%，北京市华远置业有限公司持股40%，潘石屹为法定代表人，并任董事长，副董事长为张欣。
+Jake Tapper
+杰克·塔珀
 
-早在去年10月22日，国家税务总局北京市税务局即通报，称接到对SOHO中国下属企业北京建华置地有限公司涉嫌偷逃税款问题的举报后，北京市税务局稽查局经税收大数据分析研判，依法对其实施立案检查。
+So here’s Kyiv，right now, they seem to have been
+所以这里是基辅，现在，他们似乎已经
 
-截至发稿，SOHO中国股价为1.57港元/股，跌幅1.26%，市值81.6亿港元。
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0325%2F6c91f895j00r99dmc0036d200u000yzg00u000yz.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-原文链接：[https://www.163.com/dy/article/H391VL0405199NPP.html](https://www.163.com/dy/article/H391VL0405199NPP.html)
+they haven’t been able to, here’s Kiev right now
+他们没能做到，这里是基辅
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-20.png)
+and they haven’t been able to get in there
+他们无法进入那里
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-19.png)
+Gen. David Petraeus
+大卫·彼得雷乌斯将军
+
+Now, you’ve really seen no big change to these lines for about two weeks
+现在，你真的看到这些线路大约两周没有大的变化
+
+The Ukrainians have actually been counter attacking around in here
+乌克兰人实际上一直在这里反击
+
+but very local counter attacks
+是局部激烈的反击
+
+Here the Russians are actually digging in
+俄罗斯人实际上正在这里挖掘
+
+They’re actually digging holes for their tanks
+他们实际上是在为他们的坦克挖洞
+
+because they’ve taken such losses
+因为他们已经承受了如此大的损失
+
+And they’re really not quite within artillery range of the center of the city
+而且他们真的不在市中心的炮火范围内
+
+They have rockets, missiles, bombs and everything else
+他们有火箭、导弹、炸弹和其他一切
+
+that we’ve seen in their rumbling these little villages that are on the outside
+我们在他们隆隆声中看到这些在外面的小村庄
+
+Keep in mind, this is 320 square miles
+请记住，这是方圆320平方英里的范围
+
+compared with New York City, all of which is 300 miles in total
+与纽约市总共300英里相比
+
+So again, pretty much a stalemate here
+再说一次，这里几乎陷入僵局
+
+but again, very much a bloody one
+但又一次，非常血腥的战斗
+
+But if we go in now, let’s go down to the the south
+但是如果我们现在进去，让我们下到南方
+
+Jake Tapper
+杰克·塔珀
+
+So let’s look at this corridor because this is important
+所以让我们看看这条走廊，因为这很重要
+
+You’re right, We have Russian troops just absolutely pumped pummeling Mariupol
+你是对的，我们有俄罗斯军队绝对抽空了马里乌波尔
+
+we’ve heard this these horrible stories about citizens being taken out into rigs camps of sorts
+我们听说过这些关于公民被带入俄罗斯集中营的可怕故事
+
+and that city just being devastated
+那个城市刚刚被摧毁
+
+Right, but Russia has reportedly established a land cordon
+对，但据报道俄罗斯已经建立了陆地警戒线
+
+between the Donbas region which is here
+在这里的顿巴斯地区
+
+and Crimea, which they seized in 2014
+和俄罗斯在 2014 年占领的克里米亚之间的地区
+
+Gen. David Petraeus
+大卫·彼得雷乌斯将军
+
+So which they wanted for a long time, this is important
+所以他们想要很久了，这很重要
+
+spans all across here it’s very important
+横跨这里，这很重要
+
+Mariupol has not yet fallen
+马里乌波尔还没有倒下
+
+it is out of food, fuel, water, everything except for heart
+马里乌波尔没有食物、燃料、水，除了坚定的勇气，一切都没有了
+
+They are still fighting very hard
+他们仍然在非常努力地战斗
+
+This is the first place where the Russians are having to do no kidding urban fighting
+这是俄罗斯人不得不认真的做巷战的第一个地方
+
+having to go building to building every single room
+在这种情况下，必须挨家挨户地检查
+
+has to be cleared in this kind of endeavor
+每一个房间都必须清理干净
+
+And they’re finding out that it is very soldier intensive
+他们发现这非常耗费兵力
+
+and it just eats away at the reserves and forces that you have
+它只会吞噬你拥有的储备和部队力量
+
+**原视频链接**[https://twitter.com/cnn/status/1505546788383698946?s=24](https://twitter.com/cnn/status/1505546788383698946?s=24)
+
+Date:03/22/2022
+原视频标题: “It’s a battle of attrition. It’s a stalemate on the battlefield with lots of continued damage on both sides, lots of destruction.” Former CIA Dir. Gen. David Petraeus
+前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局，双方都有很多持续的伤害，很多破坏”
+原视频日期：2022/03/21
+原视频链接https://twitter.com/cnn/status/1505546788383698946?s=24
+任务编号：4053
+视频时间段 : 0:00-2:39
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

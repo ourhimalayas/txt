@@ -2,41 +2,38 @@
 ---
 
 
-## 澳大利亚放宽更多旅行限制以吸引游客
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2232921/)
+## 因乌克兰战争股票市场涨跌互现
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2233103/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-64.png)
 
-翻译/编辑：小红帽
+（图片来自原文）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/shutterstock_32168770-scaled-1.jpg)图片来源：www.australianchamber.com.au
+由于投资者紧张地跟踪乌克兰战争的发展，达成外交解决方案的努力进展缓慢，整个股市在过去一周的涨势似乎暂时已经结束。
 
+周四（3月24日）股市涨跌不一，因为投资者在考虑通货膨胀激增和央行大幅加息计划的影响，但由于担心俄罗斯的进一步制裁可能打击本已稀少的供应，油价仍然高涨。
 
-根据APP3月26日报道，随着澳大利亚联邦政府放宽限制，以使旅行恢复到大流行前的水平，国际游客被敦促预订飞往澳大利亚的航班。
+石油市场的飙升煽动了已经达到天际的通货膨胀–美国的通货膨胀率达到40年来的最高水平，英国的通货膨胀率达到30年来的最高水平–给中央银行带来压力，要求它们在价格失控之前收紧货币政策。
 
-近两年的边境限制已经削弱了澳大利亚一度繁荣的旅游业。
+有鉴于此，美联储已经变得越来越鹰派。
 
-但澳大利亚政府希望放宽旅行规则以吸引更多游客前往。
+所有的目光都集中在本周的北约会议上，预计乔-拜登和其他领导人将讨论进一步惩罚莫斯科长达一个月的入侵，而欧盟仍在辩论可能对俄罗斯石油实施禁运。
 
-虽然国际旅客仍需要完全接种新冠疫苗，但从4月17日起，他们将不再需要新冠病毒检测结果呈阴性才能登上飞往澳大利亚的航班。
+俄罗斯警告说，黑海港口附近的一个码头的维修可能需要两个月的时间，导致每天的出口量下降约100万桶，这增加了对供应的担忧。
 
-卫生部长格雷格·亨特（Greg Hunt）宣布，该规定将与游轮禁令一起终止。
+两种主要合约周三都上涨了5%以上–布伦特原油回到了120美元以上–它们在亚洲早盘继续上涨，然后在下午回落。
 
-贸易部长丹·特汉（Dan Tehan）周五宣布对旅游业提供新的支持。
+对伊朗核协议进展的猜测提供了一点支持，这可能会导致德黑兰的原油重新进入世界市场。
 
-澳大利亚政府将为旅行社和旅游安排服务提供商提供7550万美元，以继续运营和重新预订旅行积分。
+在上周宣布提高四分之一个点之后，银行老板杰罗姆-鲍威尔(Jerome Powell)周一表示，如果价格涨势不放缓，官员们可能不止一次地提高利率，甚至以牺牲经济复苏为代价，提高多达半个点。
 
-三年内再追加6,000万澳元将吸引更多来自新国际市场的游客，包括对商业活动竞标基金的额外支持，吸引大型活动到澳大利亚。
+下一步收紧金融约束的前景正在对股市造成压力。
 
-新闻来源：[Australia to ease more travel restrictions](https://www.aap.com.au/news/australia-to-ease-more-travel-restrictions/)
+新闻来源链接：[https://www.ibtimes.com/equity-markets-mixed-oil-falls-investors-track-ukraine-war-3449097](https://www.ibtimes.com/equity-markets-mixed-oil-falls-investors-track-ukraine-war-3449097)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+本文作者：Rebecca (一切心皆不可得！)
+上传排版：Hong
 
  
 
