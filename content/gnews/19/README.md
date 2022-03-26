@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯军方高层人士突然从公众视野中消失了
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235095/)
+## 俄罗斯士兵用坦克碾压其指挥官以示抗议
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235222/)
 
-03/24/2022 在俄罗斯自冷战以来最大的冲突中，一些俄罗斯高级官员的下落被质疑
+03/24/2022 据报道，一名俄罗斯士兵对的入侵乌克兰行动感到愤怒，驾驶坦克冲向他的上校，碾过他的腿。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
