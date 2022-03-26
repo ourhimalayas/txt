@@ -2,37 +2,22 @@
 ---
 
 
-## 俄军队控制了切尔诺贝利工业区已造成3人死亡
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237038/)
+## 樱花时政┃美国FCC将中国电信、移动列入国安威胁清单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237132/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-翻译与编辑：冰糖葫芦喵、灭共文明
+撰稿：东京樱花团/上善若水
 
-《路透社》乌克兰利沃夫3月26日报道，**乌克兰斯拉维季奇市长尤里·富米切夫称，俄罗斯军队已经控制了乌克兰的斯拉维季奇市，并造成3人死亡。**该市位于乌克兰北部第聂伯河左岸，距离首都基辅200公里，由基辅负责管辖。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/切尔诺贝利工业区-e1648329054393.jpg)切尔诺贝利（图片来源：网络）
-报道称，**斯拉维季奇市坐落在切尔诺贝利周围的一个安全禁区外。**1986年，切尔诺贝利发生了世界上最严重的核灾难。
+美国联邦通信委员会（FCC）周五（3月25日）将俄罗斯卡巴斯基实验室、中国电信（美洲）公司和中国移动（美国）公司列入“对美国国家安全构成威胁的通信设备和服务”清单。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-134.jpg)（图片来源于本文链接）
+美国联邦通讯委员会主席罗森沃塞尔在一份声明中表示：“今天的行动是联邦通信委员会正在努力的最新举措，作为整个政府举措的一部分，以加强美国的通信网络，抵御国家安全威胁。”被列入这份名单意味着FCC每年80亿美元的万能服务金的资金不得用于购买或维护这些公司的产品。
 
-市长尤里·富米切夫在Facebook上的一篇帖子称，**从今天起这个城市就被俄罗斯占领了，但我们仍鉴定的保卫我们的城市。**
+该基金用于支持乡村地区、低收入消费者以及学校、图书馆和医院等设施的电信服务。去年10月，美国联邦通信委员撤销了美国对中国电信（美洲）有限公司的授权，称其“受到中国政府的利用、影响和控制”。联邦通信委员会在决定将中国电信公司列入“国家安全威胁”名单时，引用了其先前拒绝或撤销中国电信在美业务运营授权的决定。
 
-报道称，**国际原子能机构**(International Atomic Energy Agency)在一份声明中表示，**正在密切关注事态发展，并对工作人员轮换进出核电站的能力表示担忧。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/国际原子能机构.jpg)国际原子能机构（图片来源：dreamstime)
-乌克兰中将帕夫柳克（Alexander Pavlyuk）在发表讲话时，没有描述这座城市是如何被占领的，但他说，**一些居民展开一面巨大的乌克兰国旗，高呼“光荣属于乌克兰”的口号，以示抗议。**
+信息来源：[美国FCC将中国电信和中国移动列入国安威胁清单 – DW](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BDfcc%E5%B0%86%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1%E5%92%8C%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8%E5%88%97%E5%85%A5%E5%9B%BD%E5%AE%89%E5%A8%81%E8%83%81%E6%B8%85%E5%8D%95/a-61267699)
 
-他还表示，**俄罗斯人向空中开枪驱散了市中心的抗议活动，并向人群投掷了眩晕手榴弹。**
-
-乌克兰总统顾问奥列克西·阿雷斯托维奇(Oleksiy Arestovych)表示，**该镇已经成为战争的新热点。**
-
-新闻来源链接：
-
-[Russian forces take control of Chernobyl workers’ town, three dead, Interfax Ukraine reports | Reuters](https://www.reuters.com/world/europe/kyiv-region-head-says-russian-forces-have-seized-chernobyl-workers-town-2022-03-26/)
-
-**更多资讯，更多关注**：
-
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

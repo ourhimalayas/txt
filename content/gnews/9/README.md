@@ -2,41 +2,37 @@
 ---
 
 
-## 【商见你我他】第47期新闻简讯（三）
-` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2236870/)
+## 俄军队控制了切尔诺贝利工业区已造成3人死亡
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237038/)
 
-编辑： 波士顿五月花DM/Nanfeng99
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6451-1.jpg)
-1）北约峰会发表联合声明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵、灭共文明
 
-3月24日，北约峰会在比利时布鲁塞尔北约总部举行。会后发布了《北约成员国元首和政府首脑联合声明》。声明中三个重要决定：一、呼吁所有国家，包括中共国，维护国际秩序，遵守《联合国宪章》中规定的主权和领土完整原则，不以任何方式支持俄罗斯的战争，不采取任何帮助俄罗斯规避制裁的行动。二、北约大门向乌克兰敞开。继续向乌克兰提供各种选项的援助。三、攻击北约成员国的任何一国，都将被视为对整个北约的攻击。
+《路透社》乌克兰利沃夫3月26日报道，**乌克兰斯拉维季奇市长尤里·富米切夫称，俄罗斯军队已经控制了乌克兰的斯拉维季奇市，并造成3人死亡。**该市位于乌克兰北部第聂伯河左岸，距离首都基辅200公里，由基辅负责管辖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/切尔诺贝利工业区-e1648329054393.jpg)切尔诺贝利（图片来源：网络）
+报道称，**斯拉维季奇市坐落在切尔诺贝利周围的一个安全禁区外。**1986年，切尔诺贝利发生了世界上最严重的核灾难。
 
-2）英国首相将向乌克兰增派导弹
+市长尤里·富米切夫在Facebook上的一篇帖子称，**从今天起这个城市就被俄罗斯占领了，但我们仍鉴定的保卫我们的城市。**
 
-3月24日，英国首相鲍里斯·约翰逊在北约峰会上表示，该国将向乌克兰军队增派6000枚导弹，以帮助抵御俄罗斯入侵者。约翰逊说，这只是一个开始，北约必须长期支持一个自由和民主的乌克兰进行的国防保卫战。
+报道称，**国际原子能机构**(International Atomic Energy Agency)在一份声明中表示，**正在密切关注事态发展，并对工作人员轮换进出核电站的能力表示担忧。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/国际原子能机构.jpg)国际原子能机构（图片来源：dreamstime)
+乌克兰中将帕夫柳克（Alexander Pavlyuk）在发表讲话时，没有描述这座城市是如何被占领的，但他说，**一些居民展开一面巨大的乌克兰国旗，高呼“光荣属于乌克兰”的口号，以示抗议。**
 
-3）乌克兰一半以上的儿童赶出家园
+他还表示，**俄罗斯人向空中开枪驱散了市中心的抗议活动，并向人群投掷了眩晕手榴弹。**
 
-据联合国称，俄罗斯于 2 月 24 日发动的入侵已造成数千人死亡，摧毁了城市，并将乌克兰一半以上的儿童赶出家园。该机构表示，自俄军袭击乌克兰以来的一个月内，共有超过 430 万儿童流离失所，它说，乌克兰的儿童人口估计为750万。
+乌克兰总统顾问奥列克西·阿雷斯托维奇(Oleksiy Arestovych)表示，**该镇已经成为战争的新热点。**
 
-4）印度加密税收规则已正式签署为法律，4月1日起开始正式
+新闻来源链接：
 
-印度国家议会3月25日通过一项税收提案，印度加密投资者将为其收益支付 30 %的资本利得税。除了资本利得税外，印度人在进行加密货币交易时还必须支付 1 %的源头扣除税（TDS），以及加密货币礼物的税款，并且不能对损失进行扣除。印度的加密货币征税法将于4月1日生效。
+[Russian forces take control of Chernobyl workers’ town, three dead, Interfax Ukraine reports | Reuters](https://www.reuters.com/world/europe/kyiv-region-head-says-russian-forces-have-seized-chernobyl-workers-town-2022-03-26/)
 
-5）外资大量流出中国股市，投资者重新评估地缘政治风险
+**更多资讯，更多关注**：
 
-外媒3月25日报道，从截至3月24日的资金流出情况看，3月份通过陆股通流出的资金可能创下2014年该机制启动以来第二大月度流出量。最大月度流出发生在2020年3月，那时中国病毒疫情冲击了全球市场，境外投资者净卖出106亿美元的境内股票。本月境外投资者已抛售95亿美元的中国内地股票。
-
-新闻来源：[https://www.reuters.com/world/europe/invasion-milestone-ukraine-urges-solidarity-western-leaders-gather-2022-03-24/](https://www.reuters.com/world/europe/invasion-milestone-ukraine-urges-solidarity-western-leaders-gather-2022-03-24/)
-
-[https://www.bitpush.news/articles/2353090](https://www.bitpush.news/articles/2353090)
-
-[https://cn.wsj.com/articles/](https://cn.wsj.com/articles/)
-
-审核/发布：DM
-
-封面图片：DM
-
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
