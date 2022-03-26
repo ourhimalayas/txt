@@ -2,38 +2,32 @@
 ---
 
 
-## 迪拜即将推出一亿美元的数字资产基金
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235209/)
+## 未来的战争只会是高科技的较量
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2235307/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1920x1080.jpg)
+3月25日的大直播中，文贵先生与战友分享俄乌战争的目前局势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-222-2.jpg)图片来源: 网络
+俄罗斯在对乌克兰的战争中，使用的战略以及科技以及武器，包括大外宣都极其落后，但若让中共国对阵俄罗斯，中共国几乎没有赢的概率。郭先生说党内一些真正懂军事和武器的人透露，中共国尽管可能一开始会占据某些优势，但俄罗斯经过几个小时的调整马上会转败为胜。中共国尚不能赢得处于劣势的俄罗斯，竟然还打算灭掉世界科技最发达的国家美国。并且由于习近平政府超级集权，导致党内和军队的多数人根本不是用来对外的，习近平政府真正要防的是从内部开始的斗争。内部当然会泄密给外部，这相当于中共任何战略部署都是透明的，全部输掉。
 
-该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
+郭先生说未来的战争一切都是以科技和经济为主，接触性的战争会越来越少。郭先生形容从此以后的战争都是远程的，像打电子游戏一样，谁控制了牵引和通讯权以及太空科技，谁就是赢家。不可能再有国家会有大量的肉体军人。目前有大量军队的国家，如俄罗斯和中共国，军人大多数都是用来暴力维稳自己的国民，而并不是像旧时代那样出征抵抗敌国的。
 
-据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
+郭先生此前的直播中曾提到，人类经过此次疫苗灾难以后，地球上将不再有战争，人类同胞之间会走向和平。
 
+撰稿、发布：骄子
 
+* * *
 
-相关链接:
+欢迎订阅我们的GNews账号：
 
-[https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-
-
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

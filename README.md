@@ -15,145 +15,145 @@
 
 ---
 
-### [有声|上海疫情大爆发 陆家嘴金融中心遭封控](/content/gnews/1/README.md)
+### [普京计划出席G20峰会，有呼吁将其排除在外](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【G时新闻】美国总统拜登到访波兰“枢纽城市”热舒夫](/content/gnews/2/README.md)
+ ` G-时新闻`
+
+### [有声|上海疫情大爆发 陆家嘴金融中心遭封控](/content/gnews/3/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [MV版Hcoin To the Moon上线107天第41次位列匈牙利iTunes热门MV榜首](/content/gnews/2/README.md)
+### [MV版Hcoin To the Moon上线107天第41次位列匈牙利iTunes热门MV榜首](/content/gnews/4/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌俄战争以来首次！拜登会见乌克兰外长防长](/content/gnews/3/README.md)
+### [乌俄战争以来首次！拜登会见乌克兰外长防长](/content/gnews/5/README.md)
  ` 蓝莲花农场`
 
-### [世界各国核武器拥有情况](/content/gnews/4/README.md)
+### [世界各国核武器拥有情况](/content/gnews/6/README.md)
  ` 温哥华扬帆农场`
 
-### [Gclub年会26日举办 奖品丰厚](/content/gnews/5/README.md)
+### [Gclub年会26日举办 奖品丰厚](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [有声|绿委提案：禁五星旗在台湾飘扬](/content/gnews/6/README.md)
+### [有声|绿委提案：禁五星旗在台湾飘扬](/content/gnews/8/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声|朝鲜新发射的导弹可能落在日本专属经济区内](/content/gnews/7/README.md)
+### [GCLUB年度盛会暨GTALKS2022抽奖活动如期开幕](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|朝鲜新发射的导弹可能落在日本专属经济区内](/content/gnews/10/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？新中国联邦希望战友们都具备辨别真假善恶的能力；若中俄开战，中共必败；中共军方人士认未来几十年之内，中共和西方进行军事抗衡的能力为零！](/content/gnews/8/README.md)
+### [3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？新中国联邦希望战友们都具备辨别真假善恶的能力；若中俄开战，中共必败；中共军方人士认未来几十年之内，中共和西方进行军事抗衡的能力为零！](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共土改—全民斗地主割韭菜](/content/gnews/9/README.md)
+### [中共土改—全民斗地主割韭菜](/content/gnews/12/README.md)
  ` 历史组`
 
-### [有声|面对制裁 俄罗斯欲将马里乌波尔市变为战争“灰烬”](/content/gnews/10/README.md)
+### [有声|面对制裁 俄罗斯欲将马里乌波尔市变为战争“灰烬”](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [3/25/2022 文贵直播：用HPay在GFashion购物是就是文贵几周前说的质的改变，在实体店能用数字货币交易的意义重大，是100%的商业销售](/content/gnews/11/README.md)
+### [3/25/2022 文贵直播：用HPay在GFashion购物是就是文贵几周前说的质的改变，在实体店能用数字货币交易的意义重大，是100%的商业销售](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国媒体记录 俄袭击乌克兰医疗设施包括民居逾30起](/content/gnews/12/README.md)
+### [美国媒体记录 俄袭击乌克兰医疗设施包括民居逾30起](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [中共房地产的大崩塌即将到来](/content/gnews/13/README.md)
+### [中共房地产的大崩塌即将到来](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【粤语配音】2022年3月25日：七哥爆料的根本原因](/content/gnews/14/README.md)
+### [【粤语配音】2022年3月25日：七哥爆料的根本原因](/content/gnews/17/README.md)
  ` MOS香港部`
 
-### [乌国防部脸书：俄军战损约16，400名人员，575辆坦克](/content/gnews/15/README.md)
+### [乌国防部脸书：俄军战损约16，400名人员，575辆坦克](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [美国及世界疫情简报（03-26-2022）](/content/gnews/16/README.md)
+### [美国及世界疫情简报（03-26-2022）](/content/gnews/19/README.md)
  ` 波士顿五月花农场`
 
-### [“匿名者”黑客联盟入侵了俄罗斯中央银行和养老基金](/content/gnews/17/README.md)
+### [“匿名者”黑客联盟入侵了俄罗斯中央银行和养老基金](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [权利不能私有，财富不能公有](/content/gnews/18/README.md)
+### [权利不能私有，财富不能公有](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/19/README.md)
+### [北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [未来战争将转型为高科技远程作战](/content/gnews/20/README.md)
+### [未来战争将转型为高科技远程作战](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [香港疫情失控 墙内粮荒在即](/content/gnews/21/README.md)
+### [香港疫情失控 墙内粮荒在即](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [未来的战争只会是高科技的较量](/content/gnews/22/README.md)
+### [未来的战争只会是高科技的较量](/content/gnews/25/README.md)
  ` 银河歌舞厅`
 
-### [视频|多国政要接种疫苗后确诊中共病毒](/content/gnews/23/README.md)
- ` MOSVIDEO`
-
-### [视频|新中国联邦乌克兰救援-波兰基地前线报导](/content/gnews/24/README.md)
- ` MOSVIDEO`
-
-### [迪拜即将推出一亿美元的数字资产基金](/content/gnews/25/README.md)
+### [迪拜即将推出一亿美元的数字资产基金](/content/gnews/26/README.md)
  ` GTV News Talk`
 
-### [俄罗斯威胁说，如果北约维和人员进入乌克兰，将进行 &#8220;全球核战争&#8221;](/content/gnews/26/README.md)
+### [俄罗斯威胁说，如果北约维和人员进入乌克兰，将进行 &#8220;全球核战争&#8221;](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [教育-人生的影响](/content/gnews/27/README.md)
+### [俄罗斯军方高层人士突然从公众视野中消失了](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [教育-人生的影响](/content/gnews/29/README.md)
  ` 纽约香草山MOS02`
 
-### [樱花时政┃惨！乌克兰战场超过25%俄军将领竟被“斩首”](/content/gnews/28/README.md)
+### [樱花时政┃惨！乌克兰战场超过25%俄军将领竟被“斩首”](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登把乌克兰抵抗俄罗斯入侵比喻为 “天安门广场&#8221;事件](/content/gnews/29/README.md)
+### [拜登把乌克兰抵抗俄罗斯入侵比喻为 “天安门广场&#8221;事件](/content/gnews/31/README.md)
  ` 波士顿五月花农场金融部`
 
-### [怕影响经济！上海感染人数创新高坚持不封城](/content/gnews/30/README.md)
+### [沙特阿美公司Saudi Aramco储油设施被导弹袭击后油价应声走高](/content/gnews/32/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [怕影响经济！上海感染人数创新高坚持不封城](/content/gnews/33/README.md)
  ` 蓝莲花农场`
 
-### [樱花头条┃美国对中共官员采取限制性签证发放](/content/gnews/31/README.md)
+### [樱花头条┃美国对中共官员采取限制性签证发放](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案](/content/gnews/32/README.md)
+### [樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登政府将为美国老年人注射中共病毒疫苗第二加强针](/content/gnews/33/README.md)
+### [拜登政府将为美国老年人注射中共病毒疫苗第二加强针](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登再次警告北京，斯图尔滕贝格谴责中共国](/content/gnews/34/README.md)
+### [拜登再次警告北京，斯图尔滕贝格谴责中共国](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [报告：在战争期间俄罗斯对记者犯下148宗罪](/content/gnews/35/README.md)
+### [报告：在战争期间俄罗斯对记者犯下148宗罪](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
 
-### [樱花头条┃蔡英文和安倍视讯 日华恳大会通过挺台决议文](/content/gnews/36/README.md)
+### [樱花头条┃蔡英文和安倍视讯 日华恳大会通过挺台决议文](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰强大的防空能力迫使俄空军使用无人机](/content/gnews/37/README.md)
+### [乌克兰强大的防空能力迫使俄空军使用无人机](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [一切谎言在真实互联网时代都会不攻自破](/content/gnews/38/README.md)
+### [一切谎言在真实互联网时代都会不攻自破](/content/gnews/41/README.md)
  ` 银河歌舞厅`
 
-### [乌克兰军方在脸书发布消息澄清摧毁俄罗斯登陆舰](/content/gnews/39/README.md)
- ` 日本东京方舟农场`
-
-### [“3•21”东航MU5735遇难家属的诉求](/content/gnews/40/README.md)
+### [“3•21”东航MU5735遇难家属的诉求](/content/gnews/42/README.md)
  ` mayflowertranslate`
 
-### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/41/README.md)
+### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄军方公布军人阵亡数大幅增加 数据依然可疑](/content/gnews/42/README.md)
- ` 波士顿五月花农场金融部`
-
-### [祖国，我爱你！](/content/gnews/43/README.md)
+### [祖国，我爱你！](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃拜登将入侵乌克兰比作天安门事件](/content/gnews/44/README.md)
+### [樱花时政┃拜登将入侵乌克兰比作天安门事件](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃日本政府研究劳动者工资数字支付问题](/content/gnews/45/README.md)
+### [中日财经爆┃日本政府研究劳动者工资数字支付问题](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃安理会就朝鲜发射导弹举行紧急会议 美中对立](/content/gnews/46/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中日财经爆┃日本三大银行宣布 停止与俄罗斯最大银行的美元交易](/content/gnews/47/README.md)
+### [樱花时政┃安理会就朝鲜发射导弹举行紧急会议 美中对立](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [财经｜俄乌战争导致大中华圈外资大量出逃](/content/gnews/48/README.md)

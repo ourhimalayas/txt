@@ -2,34 +2,49 @@
 ---
 
 
-## 有声|上海疫情大爆发 陆家嘴金融中心遭封控
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2235960/)
+## 普京计划出席G20峰会，有呼吁将其排除在外
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2236175/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
-【大纪元3月24日讯】上海疫情大规模爆发，陆家嘴的金融机构也难幸免。尽管上海市官方没有说封城，但上海市民认为实际上就处于封城状况。官方称这一波疫情阳性患者超过5千，但民间认为真实人数可能更多。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-15.jpg)陆家嘴街道是上海金融中心，23日晚通知陆家嘴街道封48小时，是否解封看核酸检测情况。图为19日上海陆家嘴金融中心核酸检测。（视频截图）
-上海卫健委今早（24日）公布，23日上海新增阳性本土病例983例。截至3月23日，这一波疫情累计通报阳性病例5963例，含确诊病例248例、无症状5715例。
+据《华盛顿邮报》作者：[Amy Cheng](https://www.washingtonpost.com/people/amy-cheng/)和[Adela Suliman](https://www.washingtonpost.com/people/adela-suliman/)，2022年3月23日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3149-e1648306671712.png)3月10日，俄罗斯总统弗拉基米尔-普京在莫斯科, 与政府官员电话会议。
+图片来源：Mikhail Klimentyev/AP
+俄罗斯驻东南亚国家大使周三表示，俄罗斯总统弗拉基米尔-普京计划出席今年由印度尼西亚主办的20国集团峰会。据报道，西方国家正试图将莫斯科排除在20国集团之外，这是一个世界上最大经济体的集会。
 
-此前一天，有知情者表示，上海疫情被上面认为是失控状态，所以22日晚就说派国务院疫情督察组进驻上海展开调查。外地是不允许上海人前往的，会被举报。
+“这取决于许多、许多事情，包括正在好转的抗疫形势。到目前为止……”大使柳德米拉-沃罗比娃在谈到普京出席时说。
 
-此前有知情者披露，上海至少赶建了三个新的方舱医院。也有知情者表示，光上海浦东北蔡就发现八千多例阳性病例，官方在分批通报，每天报八九百例。
+她说：“10月在巴厘岛举行的20国集团论坛将重点讨论经济问题，而不是乌克兰战争。”她补充，她知道有人试图将俄罗斯驱逐出全球经济俱乐部。
+
+“不仅是20国集团，西方的许多组织现在都在试图驱逐俄罗斯，”沃罗比耶娃说：“西方的反应绝对是不相称的。”她认为，将俄罗斯驱逐出经济论坛将使各国更难解决全球“经济问题”。
+
+沃罗比耶娃还赞扬了印度尼西亚的“坚定立场”，并敦促它不要在西方压力下屈服。
+
+本周，波兰经济发展和技术部长Piotr Nowak在与美国商务部长Gina Raimondo会面时提议将俄罗斯排除在20国集团之外。
+
+白宫国家安全顾问杰克-沙利文星期二也说：“关于20国集团的问题……我们认为，在国际机构和国际社会中，俄罗斯不能一切照旧。”
+
+他说：“至于特定的机构和特定的决定，我们希望与我们的盟友协商，在作出任何进一步的声明之前，与我们在这些机构的伙伴协商。”
+
+俄罗斯在八国集团的成员资格，由主要工业化国家组成的组织，在普京2014年吞并克里米亚后被暂停。
+
+然而，任何将俄罗斯排除在论坛之外的举动都可能遭到其他国家的否决。中共国在周三称俄罗斯是20国集团的 “重要成员”。
+
+在欧洲，拜登总统本周正在旅行，预计将宣布一套新的针对俄罗斯的制裁措施，德国总理奥拉夫-肖尔茨说，20国集团成员将不得不决定这个问题，但优先事项仍然是关注建立和平。
+
+文章有删减。
+
+文章来源: [https://www.washingtonpost.com/world/2022/03/23/putin-russia-g20-economy-ukraine-war/](https://www.washingtonpost.com/world/2022/03/23/putin-russia-g20-economy-ukraine-war/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
 
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[【援引连结】](https://www.epochtimes.com/gb/22/3/24/n13669853.htm)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

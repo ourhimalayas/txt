@@ -2,27 +2,26 @@
 ---
 
 
-## 视频|多国政要接种疫苗后确诊中共病毒
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2235268/)
+## 未来战争将转型为高科技远程作战
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2235359/)
 
-制作：香草山视频部
+作者：澳喜农场 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在3月25日的大直播中指出，人类未来将更多地依赖高科技进行远程战争，近身作战的模式将逐渐被淘汰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.40.43-PM.png)
+郭先生解释称，在此次俄乌战争中，俄罗斯本想在一星期内结束入侵，但由于乌克兰当局利用高科技手段时时锁定俄罗斯军队的行踪，从而导致莫斯科政府的狂妄企图宣告破灭。
 
-3月22日，美过前总统克林顿的夫人希拉里中共病毒检测呈现阳性。当天，白宫新闻秘书珍·普萨基中共病毒检测也呈阳性，这是她第二次出现阳性，不过症状轻微，她还表示转阴后很快回到工作岗位。本月早些时候，前总统奥巴马也确诊中共病毒阳性。
+郭先生也补充道，未来，使用大规模军事人员的作战方式将被科技战争和经济战争取代。在这种非接触式战争的模式下，豢养军队的政策将逐渐淡出历史。因此，那些仍旧保留大批军队的国家基本上都是以此镇压本国人民，而非对外作战。此外，虽然核武器也将是未来作战的工具之一，但鉴于其毁灭性的特质，它也很难会轻易出现在战场之中。
 
-另外，挪威国王、德国新任总统夫妇，均在23日传出了确认感染中共病毒的消息。
+郭先生也强调道，时至今日，因为牵引和通讯技术的改变，掌握世界通讯权以及空中高科技的一方将直接主导战争的走向。
 
-据悉，现年85岁的挪威国王已完全接种三剂中共病毒疫苗，德国总统也在2021年11月12日接种了第三针加强针。而希拉里和普萨基也都是在接种后确诊的。
+参考链接：[2022年3月25日 文贵大直播](https://gettr.com/streaming/p11tme3b4de)
 
-多国高级政要在接种疫苗后密集确诊的事实再一次说明，中共病毒疫苗根本没有效果，甚至会增加感染风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
