@@ -2,40 +2,43 @@
 ---
 
 
-## 美国英国加拿大对缅甸实施新的制裁措施
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2234770/)
+## 沙特阿美公司Saudi Aramco储油设施被导弹袭击后油价应声走高
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2234832/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+来自新加坡早报 /
+2022年3月26日 10:09 AM 报导
+采集：玫瑰新闻组
 
-翻译：li yan li
-编辑：朝花夕拾
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-106.jpg)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-1.jpg)
 
 
-据军事新闻报道，美国、英国和加拿大针对缅甸空军和“军火商”在2021年2月政变中夺取政权的将军们继续对平民进行攻击实施新的制裁。
 
-美国的制裁针对三名被指控的缅甸军火商以及与他们有关的公司，还有被制裁的军火商Tay Zaw（代扎）控制的两家企业。
 
-美国还对第66轻步兵师采取了措施，这支部队被指责于去年圣诞节前夕在克耶邦东南部将约30名平民活活烧死在汽车里。
 
-英国对那些为空军采购和供应武器的军火商和公司采取了行动。包括空军司令赫吞昂将军，他是缅甸经济控股有限公司（MEHL）的董事，也是一个重要的军事集团。
+![沙特阿美（Saudi Aramco）位于吉达的储油设施被袭击后引发了火患，但没有人员伤亡。（法新社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/images/202203/20220326/saudi-yemen-conflict-213057.jpg?itok=c8xm6rwd)沙特阿美（Saudi Aramco）位于吉达的储油设施被袭击后引发了火患，但没有人员伤亡。（法新社）
 
-加拿大在其制裁黑名单上也增加了四名个人，包括赫吞昂和两家公司。
 
-自从2021年2月1日从缅甸民选政府手中夺取权力并拘留平民领袖昂山素季以来，将军们对反对其统治的人发动了一场残酷的运动，把和平抗议者和平民作为目标。据一直在监测局势的政治犯援助协会称，有1700多人在镇压中被杀，数千人因空袭而被迫离开家园。
+以下原文內容：
 
-美国国务卿安东尼·布林肯在一份声明中说：我们将继续对军事政权和那些支持它的人施加压力，直到它停止暴力并恢复缅甸的民主之路。
+（早报讯）沙特阿拉伯的一个石油储存设施遭导弹袭击，标志着这个全球主要石油出口地区紧张局势升级。胡塞武装宣称对沙特阿美（Saudi Aramco）设施的袭击负责，油价应声走高。
 
-新闻链接：[https://www.aljazeera.com/news/2022/3/26/us-uk-canada-target-myanmar-airforce-arms-dealers](https://www.aljazeera.com/news/2022/3/26/us-uk-canada-target-myanmar-airforce-arms-dealers)
+路透社报道，沙特国有石油巨头沙特阿美位于吉达的设施周五（3月25日）被袭击后，两个储油罐发生了火患，但没有人员伤亡。
 
-发布：tianzhihuan
+沙特能源部随即发表声明称，沙特将不会对胡塞武装袭击行动造成的全球市场石油供应短缺负责。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+美国国务卿布林肯说，美国强烈谴责胡塞武装对沙特储油设施的袭击行动。
+
+彭博社分析，虽然这个位于吉达的存储设施侧重于沙特国内需求，对全球原油市场影响不大，但袭击事件升级仍令石油贸易商感到担忧，原油每桶价格已超过100美元（约135新元）。
+
+沙特本周早前警告，石油供应面临风险，并呼吁美国采取更多行动来应对背后有伊朗支持的胡塞武装发动的袭击。周五沙特又重申了这一信息。
+
+沙特国防部发言人在周五袭击发生后说：“这种激进行动针对石油设施，旨在试图影响能源安全和全球经济。”
+
+新闻链接：
+[沙特储油设施被导弹袭击 油价应声走高](https://www.zaobao.com.sg/realtime/world/story20220326-1256194)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

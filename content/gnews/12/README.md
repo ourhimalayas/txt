@@ -2,26 +2,25 @@
 ---
 
 
-## 拜登政府将为美国老年人注射中共病毒疫苗第二加强针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2234692/)
+## 樱花头条┃美国对中共官员采取限制性签证发放
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
 
-#### 撰稿：彩虹 
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+美国国务卿布林肯最新电视讲话：
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-133.jpg)图片来源：CNN
-据《国会山报》3月25日文章，多位人士告诉《纽约时报》，拜登政府将为美国人提供中共病毒（COVID-19）疫苗第二加强针。
+将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
 
-文章说，50岁以上的人将能够获得辉瑞-生物技术公司（Pfizer-BioNTech）或莫德纳（Moderna）公司疫苗的第二加强针注射。
+信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
 
-然而，消息人士告诉《纽约时报》，由于政府必须计算和预测新的一波中共病毒疫情何时可能再次袭击美国，因此许多问题令该加强针计划复杂化。问题之一就是政府希望在新的中共病毒浪潮来临之前提供第二针注射，目的就是为了不让新注射的疫苗的保护作用在中共病毒新浪潮来临时却失效了。
-
-其他的问题还包括如何向民众解释为何要推行该注射计划，以及第二加强针的保护作用能持续多长时间。
-
-报道指，由于中共病毒变体BA.2开始成为了美国感染的主要变体，目前还不清楚这一波中共病毒疫情与过去的相比会有多危险。
-
-**新闻来源**
-
-[White House to announce second COVID-19 booster for older Americans: report](https://thehill.com/policy/healthcare/599852-white-house-to-announce-second-covid-19-booster-for-older-americans-report)
+*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

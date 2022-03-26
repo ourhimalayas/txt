@@ -2,23 +2,24 @@
 ---
 
 
-## 乌克兰军方在脸书发布消息澄清摧毁俄罗斯登陆舰
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234396/)
+## 乌克兰强大的防空能力迫使俄空军使用无人机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234631/)
 
 **撰稿：日本东京方舟农场 北极**
 
-据国会山报（The Hill）3月25日报道，乌克兰军方周五在脸书发布消息澄清，萨拉托夫（Saratov）号大型登陆舰在别尔江斯克港（Berdyansk port）被摧毁，而并非此前声称的奥尔斯克（Orsk）号。
+据Ukrinform 3月26日报道，俄乌战争中，乌克兰强大的防空系统严重削弱了俄罗斯空军载人飞机的战斗力，因此俄空军计划使用更多的无人机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-18.jpeg)亚速海地图示意图。（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-8.jpeg)英国国防部在其推特（Twitter）上发布的更新信息（图片来自推特）
 
-根据最新消息，在亚速（Azov）作战区，除萨拉托夫号大型登陆舰在别尔江斯克港被摧毁外，另外两艘大型登陆舰凯撒·库尼科夫（Caesar Kunikov）和新切尔卡斯克（Novocherkassk）号也受损。
+来自英国国防部在其推特（Twitter）上发布的更新信息显示， 强大的乌克兰防空系统严重打击了越过战争前线的俄空军载人飞行，因此俄罗斯被迫转向使用更多的无人机。
 
-俄罗斯尚未对这一事件发表评论。
+据该推特声明，英国已经制裁了65个为俄罗斯非法入侵乌克兰提供支持的个人和实体。受制裁者包括生产俄罗斯无人机的国防公司克朗斯塔特（Kronshtadt），以及俄罗斯猎户座无人机和其他无人机的生产商。
 
 参考链接：
-[https://reurl.cc/xOrDVb](https://reurl.cc/xOrDVb)
+1. [https://reurl.cc/125x0p](https://reurl.cc/125x0p)
+2. [https://twitter.com/DefenceHQ/status/1507480978553552902](https://twitter.com/DefenceHQ/status/1507480978553552902)
 
-总编： 老孙
+总编：老孙
 校对发布：文曦
 
  
