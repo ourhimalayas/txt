@@ -2,24 +2,44 @@
 ---
 
 
-## 俄罗斯暗示可能将退守乌东部地区
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236792/)
+## 堪萨斯州参议院投票允许医生为新冠开羟氯喹和伊维菌素
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236818/)
 
 翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3184-edited.png)图片来源：childrenshealthdefense.org
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
+堪萨斯州参议院（The Kansas State Senate）周四（24日）投票允许医疗机构开具和配发伊维菌素和羟氯喹（HCQ）等药物，用于中共病毒（COVID-19）的标签外治疗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-3.jpg)图片来源：美联社
+标签外药物法案（[HB2280](http://www.kslegislature.org/li/b2021_22/measures/hb2280/)）以21比16的投票结果通过。它适用于任何美国食品和药物管理局（FDA）批准的非受控物质的药物。
 
-官员们周五（25日）表示，乌克兰境内的俄罗斯部队似乎已经将他们的重点从针对首都基辅的地面进攻，转移到优先考虑莫斯科所谓的解放乌克兰工业东部有争议的顿巴斯（Donbas）地区，这表明战争进入了另一个的阶段（译者注：俄罗斯死伤过大而选择退守）。
+堪萨斯州的法案还将要求托儿所和公立学校无条件批准家长为其子女，关于疫苗强制令申请的宗教豁免请求。
 
-现在说这将导致什么，似乎还为时过早。弗拉基米尔·普京（Vladimir Putin）总统是否已经缩减了他的野心，以寻求战争的出路？一些俄罗斯军队最近在基辅附近采取的掘地三尺的防御工事表明，他们认识到了乌克兰令人惊讶的顽强抵抗。
+据《堪萨斯城之星》（The Kansas City Star）[报道](https://www.kansascity.com/news/politics-government/article259715350.html)，该法案现已提交给众议院，但距离推翻民主党州长劳拉·凯利（Laura Kelly）的否决权所需的超级多数票还差6票。
 
-一位美国分析人士说，另一方面，俄罗斯军队可能旨在以更狭窄的重点继续进行战争，不一定是作为终局，而是从早期的失败中重整旗鼓，将顿巴斯作为一个新的台阶。
+共和党参议员马克·斯蒂芬（Mark Steffen）[告诉](https://www.cjonline.com/story/news/politics/2022/03/24/kansas-senate-passes-ivermectin-hydroxychloroquine-off-label-covid-treatment-pharmacists-bill/7150014001/)《托皮卡资本日报》（Topeka Capital-Journal）：“我完全相信，该法案在参议院的通过将获得全国性的关注，并有助于让中共病毒感染者恢复健康。”
 
-普京的部队在该国许多地方面临巨大压力，美国和其他国家正在加速向乌克兰[转让武器和物资](https://apnews.com/article/russia-ukraine-biden-business-warsaw-europe-c905f43858e7966afb3b6cbfbed82b46)。最近几天，美国官员表示，他们看到了乌克兰保卫者在一些地区以有限的方式展开攻势的证据。本周早些时候，他们设法袭击了黑海沿岸港口的一艘大型俄罗斯船只。
+许多医生和药剂师拒绝将伊维菌素作为中共病毒的治疗方法——尽管研究表明它是[有效的](https://childrenshealthdefense.org/defender/ivermectin-effective-treatment-covid-research/)——因为这种治疗方案没有被美国食品和药物管理局（FDA）批准。
 
-**新闻来源：**[apnews.com] [Russians shift focus from Kyiv — scaling back goals in war?](https://apnews.com/article/russia-ukraine-putin-europe-nato-971463587011b3bf19dde7abb35889ad) |发布时间：2022年03月25日
+FDA [指出](https://www.fda.gov/animal-veterinary/product-safety-information/faq-covid-19-and-ivermectin-intended-animals)：应该避免使用伊维菌素来预防或治疗 COVID-19，因为伊维菌素对中共病毒的疗效和药品安全性尚未确定…然而，“前线COVID-19重症监护联盟”（Front Line COVID-19 Critical Care Alliance）的医生称伊维菌素是“医学史上最安全的、低成本的、广泛使用的药物之一”。
+
+麻醉师斯蒂芬正在接受堪萨斯州治疗艺术委员会的调查，因为他为 COVID-19 感染者开出了伊维菌素的处方。他[说](https://kansasreflector.com/2022/03/24/senate-narrowly-adopts-bill-affirming-access-to-off-label-drugs-for-covid-19/)，他相信成千上万的堪萨斯人和数十万美国人已经不必因为有效的治疗方案被“禁止宣传”，而不得不死亡。
+
+斯蒂芬说：“研究压倒性地表明，如果早期对中共病毒使用伊维菌素进行治疗，将有高达85%的机会减少住院率和死亡率。”
+
+羟氯喹同样被大多数医疗机构所回避，仍然是一种未经批准的治疗中共病毒的药物，尽管疾病控制和预防中心（CDC）早在2005年就知道这种[药物](https://pubmed.ncbi.nlm.nih.gov/16115318/)对 SARS 冠状病毒有效。
+
+HB2280 还包括要求药剂师填写治疗中共病毒的药物处方——也就是，禁止他们仅以某种药物已被用于治疗中共病毒为由，而拒绝填写（伊维菌素或羟氯喹）处方。
+
+民主党立法者辛蒂·霍斯克（Cindy Holscher）[认为](https://www.cjonline.com/story/news/politics/2022/03/24/kansas-senate-passes-ivermectin-hydroxychloroquine-off-label-covid-treatment-pharmacists-bill/7150014001/)这很麻烦：“有了这项规定，医生可以在中共病毒的幌子下开出堕胎药物的处方，而药剂师必须填写它。”
+
+堪萨斯州是通过立法解决中共病毒标签外治疗的最新一个州。事实上，超过[28个州](https://track.govhawk.com/reports/2lWe3/public)已经提出或通过了限制医疗委员会权力的立法，明确允许中共病毒的标签外治疗，或两者兼而有之，这是来自州医疗委员会联合会（Federation of State Medical Boards）的信息。
+
+正如《捍卫者》本月早些时候报道的那样，新罕布什尔州众议院（New Hampshire House）于3月16日投票允许伊维菌素作为中共病毒的治疗药物，在新罕布什尔州销售。
+
+新罕布什尔州 [HB1022](https://track.govhawk.com/public/bills/1546861) 法案允许药剂师通过长期订单配发伊维菌素，这实际上是让其成为非处方药；该法案仍需得到新罕布什尔州参议院的批准，它还防止该州的医疗许可委员会对开具该药物的医生，进行处罚。
+
+**新闻来源：**[childrenshealthdefense.org] [Kansas Senate Votes to Allow Doctors to Prescribe Ivermectin, HCQ for COVID](https://childrenshealthdefense.org/defender/kansas-senate-votes-allow-doctors-prescribe-ivermectin-hcq-covid/) | 发布时间：2022年03月25日
 
 * * *
 
@@ -33,7 +53,7 @@
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
 
  
 

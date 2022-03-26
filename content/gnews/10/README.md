@@ -2,20 +2,40 @@
 ---
 
 
-## 樱花时政┃威慑中共国的时间不多了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237149/)
+## 有声|多国政要接种疫苗后确诊中共病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2237221/)
 
-撰稿：东京樱花团/加一颗稻草
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月22日，美过前总统克林顿的夫人希拉里中共病毒检测呈现阳性。当天，白宫新闻秘书珍·普萨基中共病毒检测也呈阳性，这是她第二次出现阳性，不过症状轻微，她还表示转阴后很快回到工作岗位。本月早些时候，前总统奥巴马也确诊中共病毒阳性。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-14.jpg)
+另外，挪威国王、德国新任总统夫妇，均在23日传出了确认感染中共病毒的消息。
 
-我们不能让俄罗斯入侵乌克兰分散我们对中国共产党构成的威胁的注意力。就在本周，中共国驻美国大使公开拒绝谴责俄罗斯的入侵。尽管习近平和中共政府否认了这一点，但中共一直在与俄罗斯直接协调并相互比较，因为中共国有吞并台湾的野心，即使普京现在正在吞并乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-19.jpg)[图片来源](https://static.foxnews.com/foxnews.com/content/uploads/2022/02/Putin-Xi.jpg)
-中共国必须明白，在这场冲突中向俄罗斯提供财政或军事援助的任何决定都将直接违反国际和平努力，并将导致对其经济的严重制裁。拜登总统有机会明确这一点，防止中共国破坏国际社会，阻止他们将这场冲突升级到更加危险的程度。如果执行得当，这还有一个额外的好处，那就是在俄罗斯和中共国之间建立一个非常公开的楔子。对中共国建立有意义的威慑的时间已经不多了。
+据悉，现年85岁的挪威国王已完全接种三剂中共病毒疫苗，德国总统也在2021年11月12日接种了第三针加强针。而希拉里和普萨基也都是在接种后确诊的。
 
-消息来源：[Time is running out to deter China](https://www.foxnews.com/opinion/time-running-out-deter-china)
+多国高级政要在接种疫苗后密集确诊的事实再一次说明，中共病毒疫苗根本没有效果，甚至会增加感染风险。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
+文字版原文：[多国政要接种疫苗后确诊中共病毒](https://gnews.org/zh-hans/2234278/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

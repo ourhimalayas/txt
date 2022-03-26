@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|法治基金在乌克兰的人道救援行动仍在继续
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236768/)
+## 俄罗斯暗示可能将退守乌东部地区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236792/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/15-13.png)
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+翻译：wenwu
 
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-3.jpg)图片来源：美联社
 
+官员们周五（25日）表示，乌克兰境内的俄罗斯部队似乎已经将他们的重点从针对首都基辅的地面进攻，转移到优先考虑莫斯科所谓的解放乌克兰工业东部有争议的顿巴斯（Donbas）地区，这表明战争进入了另一个的阶段（译者注：俄罗斯死伤过大而选择退守）。
 
-文字版原文：[法治基金在乌克兰的人道救援行动仍在继续](https://gnews.org/zh-hans/2234276/)
+现在说这将导致什么，似乎还为时过早。弗拉基米尔·普京（Vladimir Putin）总统是否已经缩减了他的野心，以寻求战争的出路？一些俄罗斯军队最近在基辅附近采取的掘地三尺的防御工事表明，他们认识到了乌克兰令人惊讶的顽强抵抗。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+一位美国分析人士说，另一方面，俄罗斯军队可能旨在以更狭窄的重点继续进行战争，不一定是作为终局，而是从早期的失败中重整旗鼓，将顿巴斯作为一个新的台阶。
+
+普京的部队在该国许多地方面临巨大压力，美国和其他国家正在加速向乌克兰[转让武器和物资](https://apnews.com/article/russia-ukraine-biden-business-warsaw-europe-c905f43858e7966afb3b6cbfbed82b46)。最近几天，美国官员表示，他们看到了乌克兰保卫者在一些地区以有限的方式展开攻势的证据。本周早些时候，他们设法袭击了黑海沿岸港口的一艘大型俄罗斯船只。
+
+**新闻来源：**[apnews.com] [Russians shift focus from Kyiv — scaling back goals in war?](https://apnews.com/article/russia-ukraine-putin-europe-nato-971463587011b3bf19dde7abb35889ad) |发布时间：2022年03月25日
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发稿：信心的选择
+
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-15.jpeg)
 
  
 

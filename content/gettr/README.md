@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 11:36 PM (UTC)`
+
+2022.03.26 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA   LAS OPERACIONES DE RESCATE DEL NEFC Y LA FEDD EN UCRANIA HAN OBTENIDO UNA GRAN REPERCUSIÓN
+![img](https://media.gettr.com/group44/origin/2022/03/26/23/74123b99-323c-9394-210d-9fe519d2649c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/26/2022 11:04 PM (UTC)`
 
 2022.03.26 NFSC News  CCP Virus Outbreaks Lockdown Measures Cause Secondary Disasters in Shanghai； Fully-Vaccinated Political Figures Infected With the CCP Virus
@@ -147,13 +154,6 @@
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品5⃣️：奔驰CLS (单价: $72,950.00)<br/>奖品数量：1<br/>获奖者：<br/>0049578<br/>Discord: 舔刚毛#5512<br/>中奖者来自日本银河系农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 5⃣️: Mercedes CLS Coupe (Unit Value: $72,950.00)  <br/>Number of Prizes: 1<br/>The winner is: <br/>0049578<br/>Discord: 舔刚毛#5512<br/>The winner is from Himalaya Japan Galaxy!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group46/getter/2022/03/26/14/20421744-937a-6655-1ff6-87dcd9a46a5e/48969f2683575073b26bf4868b9699b1.jpg)
-
----
-
-`@miles 3/26/2022 2:53 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品4⃣️：GF 钻石玫瑰金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，悉尼奥喜农场，洛杉矶盘古农场，东京樱花团，伦敦喜庄园，新西兰伊甸农场，首尔天池农场，纽约香草山农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 4⃣️: GFASHION Diamond Whistle - Rose Gold (Unit Value: $7,499.00) <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya Australia Aussie Farm, Himalaya LA Pangu, Himalaya Tokyo Sakura Group, Himalaya London Club UK, Himalaya New Zealand Auckland Eden Domain, Himalaya Korea Seoul Heaven Lake Farm, Himalaya New York Mountains of Spices Farm!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group46/getter/2022/03/26/14/f76abf08-546f-35cd-9033-7f07252774f8/1f73a39c53e55862194e6c68fe39be99.jpg)
 
 ---
 

@@ -2,24 +2,28 @@
 ---
 
 
-## 樱花时政┃俄军在乌克兰战场陷入僵局
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237137/)
+## 简报：美国务院宣布向乌克兰提供1亿美元的民用安全援助
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237172/)
 
-撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵
 
-俄军队依照入侵计划锁定了几个城市，但却无法真正占领这些城市：包括切尔尼戈夫、苏米、哈尔科夫、米科拉耶夫、马里乌波尔，于是开始实施车臣战略——狂轰滥炸。
+《路透社》特拉维夫3月26日报道，**周六，美国国务院表示，美国计划再向乌克兰提供1亿美元的民事安全援助。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/民用安全援助-e1648333043284.jpg)3月26日，乌克兰郊外一位老人在摧毁的房子上爬梯子（图片来源：路透社）
+美国国务卿布林肯(Antony Blinken)在一份声明中说，**这些援助将用于建设乌克兰内政部的能力，以帮助“边境安全，维持民事执法职能，并保护关键的政府基础设施”。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-43.png)图片来源于本文链接
+此前**，美国已经向乌克兰提供20亿美元的军事援助以及10亿美元的人道主义援助。**
 
-他们急于求成，军队越来越多地集中在顿巴斯，而在其他战线上只是暂时守住阵地而已。”俄方一开始要迅速压垮对方的野心缺乏必要的手段。首先是情报，俄罗斯太空部队徒有虚名，俄军从一开始轰炸乌防空部队的行动遭遇失败。俄军缺乏军事卫星——根据法国方面的信息，可用的军事卫星只有16颗。
+新闻来源链接：
 
-在俄军第一个月发动的攻势中，面对机动且极有效率的乌军阵地，其地面炮兵的制导弹药也很匮乏。加之乌克兰进入解冻期，这将阻碍俄军的行动一直到5月，其众多的坦克被迫以纵队形式在道路上行进，在很大程度上被迫停留在乌公路网上。乌军队对桥梁的破坏在阻滞俄军前进中也发挥了关键作用，俄军最初的战术是，夺下马里乌波尔之后，当第聂伯罗锁链被敲断，从东北部和克里米亚南部的钳形包围就会完成。届时，俄军将控制四分之一乌领土，现在看来，不过是美丽的幻想，俄军目前完全陷入了僵局。
+[U.S. to provide $100 million in civilian security assistance to Ukraine | Reuters](https://www.reuters.com/world/us-provide-100-million-civilian-security-assistance-ukraine-state-dept-2022-03-26/)
 
-信息来源：[侵乌一月俄军在乌克兰陷入僵局 – RFI](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220325-%E4%BE%B5%E4%B9%8C%E4%B8%80%E6%9C%88-%E4%BF%84%E5%86%9B%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E9%99%B7%E5%85%A5%E5%83%B5%E5%B1%80)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

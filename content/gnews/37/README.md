@@ -2,34 +2,25 @@
 ---
 
 
-## 波罗的海三国议长访问乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236554/)
+## 日本内阁会议：禁止对俄罗斯出口奢侈品
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236555/)
 
-作者：纽约香草山农场-saner三二，Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，据相关媒体报道，波罗的海三国，即立陶宛、爱沙尼亚和拉脱维亚的议长于当天陆续抵达乌克兰首都基辅，与总统泽连斯基及其他政府官员会面。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
+日本政府在3月25日的内阁会议上决定，为了加强对俄罗斯的制裁，禁止奢侈品出口俄罗斯，将资产冻结对象扩大至俄罗斯政府官员与新兴商业寡头资本等的相关者。
+视频来源：雅虎新闻
+我们从3月25日的内阁会议了解到，禁止对俄罗斯出口奢侈品等措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-6.jpeg)
+另外，关于资产冻结，政府决定扩大目标至俄罗斯政府官员和新兴商业垄断资本相关者。 岸田首相表明，在比利时举行的G7会议：主要7国首脑会议结束后，“奢侈品的出口禁止措施从（会议结束后）下一周开始进行”。此外，岸田首相还表示为了应对俄罗斯采用了撤回日本贸易上的优惠措施等保障“最惠国待遇”的法律修正案，以及使用数字资产来规避制裁，已经准备好向本届国会提交进一步加强金融制裁的有效性的法律修正案。
 
-据悉，波罗的海三国与乌克兰共同签署的一份联合声明显示，乌克兰正在为共享价值而战，所有自由民主国家都应在政治、防卫、人道和经济等领域竭尽所能地向其提供协助。为此，三国会持续支持乌克兰尽快加入欧盟。同时，三国也将推动北大西洋公约组织继续维持门户开放的政策，并开始为乌克兰的重建作准备。
+参考链接：[ロシアへの“ぜいたく品”輸出禁止～閣議で了解（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dabe6bc616d389d4a67f369503cf6c663ee7da39)
 
-另一方面，三国议长也在声明中呼吁国际社会立即在乌克兰领空设置“禁航区”，用以避免当地平民大规模的伤亡。至于俄罗斯方面，三国则敦促全球各国彻底停止与俄罗斯的贸易活动，并持续政治孤立俄罗斯，而俄罗斯在所有国际组织和实体的会员资格则需要被暂停或撤销。
+* * *
 
-三国议长也强调，绝不能让犯下战争罪行的俄罗斯有机会逃避惩罚。因此，各国必须协助国际法院和国际刑事法院尽快完成详实的调查，并执行所有必要程序。
-
-同一天，立陶宛与乌克兰两国的国防部长也就乌克兰的防御工作进行了交流。其中，两国政府确认将继续维持合作关系。此外，立陶宛国防部长也表示，立陶宛将不仅在口头上支持乌克兰，其已经向乌克兰提供了第一枚毒刺导弹。
-
-参考链接：
-1. [https://twitter.com/a\_anusauskas/status/1506674407116316685?s=21](https://twitter.com/a_anusauskas/status/1506674407116316685?s=21)
-2. [https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21](https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21)
-3. [Baltic parliament speakers visit Kyiv, address Verkhovna Rada of Ukraine](https://news.err.ee/1608542443/baltic-parliament-speakers-visit-kyiv-address-verkhovna-rada-of-ukraine)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-审核/总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
