@@ -2,12 +2,36 @@
 ---
 
 
-## 基斯•凯洛格：帮助乌克兰赢得战争是千载难逢的重置世界的好机会
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232776/)
+## 视频|新中国联邦救援营地的灯火 为在黑夜中流离失所的难民带来温暖与希望
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232846/)
 
-03/24/2022 退休中将基斯•凯洛格：帮助乌克兰赢得战争是千载难逢重置世界的好机会，因为这可以威慑中共、北朝鲜、伊朗等极权国家。
+制作：大直播短视频组- 青梅煮酒
+文案：爱米粒
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+新中国联邦救援营地的灯火 为在黑夜中流离失所的难民带来温暖与希望
+丰沛的物资和周到的服务展现新中国联邦人对他人无私的关爱
+儿童玩耍的小天地
+每日提神醒脑必需的自助咖啡区
+可随手取用的温暖厚实的毛毯
+赶快把手机充饱电，跟亲人们报平安
+这里有充足的食品、水果补充
+
+大爱无界 与乌克兰同在
+我们是灭共的新中国联邦人
+
+审核/编辑/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+
+
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

@@ -17,6 +17,29 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 5:28 AM (UTC)`
+
+3/25/2022 Miles Guo: Shopping at GFashion with Himalaya Pay is the qualitative change I brought up a few weeks ago. Being able to make transactions with digital currency in a retail store is of great significance，and it was a 100% commercial sale.<br/><br/>3/25/2022 文贵直播：用HPay在GFashion购物是就是文贵几周前说的质的改变，在实体店能用数字货币交易的意义重大，是100%的商业销售<br/>
+![img](https://media.gettr.com/group10/getter/2022/03/26/05/d49f0274-27ba-2b35-ef8d-1e38755ca375/out.jpg)
+
+---
+
+`@miles 3/26/2022 5:23 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group27/origin/2022/03/26/04/64bc9f23-c4ed-7e07-d42e-d278e5c48709/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 3/26/2022 2:54 AM (UTC)`
+
+Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka Poland Interview with Volunteers of NFSC: King and  Steve
+![img](https://media.gettr.com/group44/origin/2022/03/26/02/3fafcded-5b6f-f48b-a759-7ebbc11f99a9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/26/2022 4:54 AM (UTC)`
 
 【Ukraine Rescue】03/24/22 Xiao Xiao Su reported that the volunteers now have a reduced workload and are in better physical condition. The infected volunteers almost all test negative now. There is less refugee foot traffic than before. Everything is going in the right direction.<br/><br/><br/>【乌克兰救援】03/24/22 小小酥战友介绍，前线义工工作量已经减少，战友体能得到缓解。染病战友基本全部转阴。难民人流量出现减少。一切在向好的方向发展。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -135,31 +158,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 2022.03.25 NFSC News  CCP‘s Attempt To Achieve Its Global Hegemony With Petro-RMB； Miles Guo Revealed the Truth About the China Eastern Aircraft Crash
 ![img](https://media.gettr.com/group19/origin/2022/03/25/23/fbbb858b-89b6-18d5-774e-9518653081ac/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/25/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-25
-![img](https://media.gettr.com/group17/origin/2022/03/25/21/39e26bc0-9460-90aa-65b0-9bd4d46a273a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@youzi_yinhe 3/25/2022 1:43 AM (UTC)`
-
-关于之前采访妮可以后，日本产经新闻3/25发出以下报道，<br/><br/>文章标题～多样的难民支援<br/>日本产经新闻 巴黎分社社长 三井美奈女士<br/><br/>（前部分省略）<br/>〜这时候我听到有中文，于是我就过去看，发现那是一个在美国生活的中国人的救援团体。 在他们的帐篷上画着一面红色的中国国旗被打了一个大大的叉的标志。 <br/><br/>一位女负责人对我说：'由于中国支持俄罗斯，使我们也遭遇了冷眼，这是一次表明我们与中国共产党无关的行动"。 <br/><br/>事实上，据说这个活动是由反对习近平政权的流亡中国人富豪资助的。 <br/><br/>看到在帐篷里，有在给难民分发方便面(杯面)。<br/><br/><br/>@witchpeace @Miles 
-![img](https://media.gettr.com/group42/getter/2022/03/25/01/c48025c0-7cb9-6bc5-beb7-7a19ef6fee03/14c23bfcea3d472345b0eece45e851e3.jpg)
-> `@miles 3/22/2022 11:54 AM (UTC)`<br/>【Ukraine Rescue】03/18/22 Nicole introduces the NFSC Ukraine Rescue Operation to the Director of the Japanese 'Sankei Shimbun' in Paris (Mina Mitsubishi-Ikuma): Our volunteers from all over the world have successfully rescued 1838 refugees and Chinese from Ukraine. Although the CCP has been sabotaging our rescue efforts, we have proven through our actions that we are not only different from the CCP, but are determined to take it down.<br/><br/>【乌克兰救援】03/18/22 妮可向日本‘产经新闻’驻法国巴黎分社的社长 (Mina Mitsubishi-Ikuma)介绍新中国联邦乌克兰救援行动：我们来自世界各地的志愿者已经成功从乌克兰救出了1838名难民及华人。尽管中共一直在破坏我们的救援工作，但我们用实际行动证明了我们不仅不同于中共，而且立志于铲除中共。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group14/getter/2022/03/22/11/b6dbed12-e23d-277c-dd20-714356198ae6/out.jpg)
-
----
-
-`@miles 3/25/2022 7:27 PM (UTC)`
-
-【Ukraine Rescue】03/25/22 Frontline rescue members put the ROLF and NFSC's labels on the rescue supplies. The NFSC stands with the Ukrainian people. We are the NEW CHINESE people who are taking down the evil Chinese Communist Party!  #CCP≠Chinese <br/><br/>【乌克兰救援】03/25/22 前线救援战友们把法治基金和新中国联邦的救援物资贴上标识。新中国联邦与乌克兰人民站在一起。我们是消灭共产党的新中国联邦人！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group3/origin/2022/03/25/19/323780a3-c53d-5310-f115-9163c82d9ade/out.jpg)
 
 ---
 

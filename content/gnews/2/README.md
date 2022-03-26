@@ -2,27 +2,27 @@
 ---
 
 
-## 乔-拜登前往欧洲参加北约、欧盟和七国集团峰会
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2232898/)
+## 俄罗斯在乌克兰的损失超过原苏联在阿富汗的损失
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2233056/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-63.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-55.jpg)
 
 （图片来自原文）
 
-随着俄罗斯入侵乌克兰进入第二个月，华盛顿和布鲁塞尔都对冲突的结局感到担忧。虽然俄罗斯总统弗拉基米尔-普京(Vladimir Putin)迅速攻占乌克兰的计划被挫败，但他的战术变得更加无情，平民目标被炸毁，人道主义工作被阻断，甚至普京可能会诉诸更具破坏性的轰炸，使用化学武器甚至是核武器。
+据北约估计，自2月24日，俄罗斯总统弗拉基米尔-普京(Vladimir Putin)对乌克兰发动入侵攻击以来，已有多达15000名俄罗斯军人被杀，多达40000俄罗斯军人死亡、受伤、被俘或失踪。这对克里姆林宫造成重大打击，普京试图在几天内迅速遣散乌克兰政府。
 
-美国总统拜登和欧洲领导人周三（3月23日）在布鲁塞尔举行三个独立的峰会时，将规划下一阶段如何应对俄罗斯入侵乌克兰的这场人道危机。
+尽管俄罗斯向乌克兰派遣了超过15万名军队，但普京在最近几周的地面攻势中取得的进展微乎其微。
 
-这些领导人将讨论如何向这个饱受战争蹂躏的国家——乌克兰输送更多的武器和人道主义援助。
+因为乌克兰战士用游击战术和西方武器延缓或停止了俄罗斯军队的前进进度，俄罗斯军队开始使用炸弹和猛烈的炮击在远处摧毁乌克兰城市。
 
-在比利时首都举行的北约特别峰会、七国集团经济会议和欧洲理事会峰会上，这些领导人将讨论如何加强对克里姆林宫的制裁。
+3月12日，泽连斯基说，约有1300名乌克兰军人在行动中被杀。
 
-预计他们还将敦促中国不要在冲突中站在俄罗斯一边，并警告北京，如果中共向莫斯科提供军事支持或破坏西方的制裁，将有 “严重后果”，在全球经济中的地位可能会受到威胁。
+3月23日，周三，乌克兰总统弗拉基米尔-泽连斯基说，有数千名乌克兰百姓在冲突中丧生，包括至少121名儿童。
 
-这些会议旨在强调西方国家团结一致反对俄罗斯入侵，并对乌克兰表示声援，乌克兰总统弗拉基米尔-泽连斯基(Volodymyr Zelensky)最近几天在其议会发表了一系列讲话。
+乌克兰军队继续保卫几个重要城市，包括首都基辅，并开始采取行动，夺回俄罗斯人最近获得的领土。
 
-新闻来源链接：[https://inews.co.uk/news/joe-biden-travels-to-europe-for-nato-eu-g7-summits-where-western-leaders-will-plan-next-steps-1533065?ITO=newsnow](https://inews.co.uk/news/joe-biden-travels-to-europe-for-nato-eu-g7-summits-where-western-leaders-will-plan-next-steps-1533065?ITO=newsnow)
+新闻来源链接：[https://www.newsmax.com/newsfront/nato-russia-ukraine/2022/03/23/id/1062633/](https://www.newsmax.com/newsfront/nato-russia-ukraine/2022/03/23/id/1062633/)
 
 本文作者：Rebecca (一切心皆不可得！)
 上传排版：Hong
