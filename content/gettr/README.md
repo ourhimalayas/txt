@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 6:23 AM (UTC)`
+
+3/25/2022 Miles Guo: Why did even the world-class politicians and the Swamp misjudge the Russia-Ukraine war in the first place? The New Federal State of China hopes its fellow fighters to have the ability to distinguish between true and false, and good and evil. If Communist China and Russia went to war, the CCP would be defeated for sure. Those in the CCP’s military believe that within the next few decades, the CCP will have no military to confront the West whatsoever!<br/><br/>3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？新中国联邦希望战友们都具备辨别真假善恶的能力；若中俄开战，中共必败；中共军方人士认未来几十年之内，中共和西方进行军事抗衡的能力为零！<br/>
+![img](https://media.gettr.com/group39/getter/2022/03/26/06/6c7ab1ae-3e45-b1c1-fa62-0cd8d2ce4a2c/out.jpg)
+
+---
+
 `@miles 3/26/2022 5:28 AM (UTC)`
 
 3/25/2022 Miles Guo: Shopping at GFashion with Himalaya Pay is the qualitative change I brought up a few weeks ago. Being able to make transactions with digital currency in a retail store is of great significance，and it was a 100% commercial sale.<br/><br/>3/25/2022 文贵直播：用HPay在GFashion购物是就是文贵几周前说的质的改变，在实体店能用数字货币交易的意义重大，是100%的商业销售<br/>
@@ -151,13 +158,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 03/25/2022  Ukraine Frontline Updates <br/>乌克兰前线 战时战报 2022年3月25日更新【NFSC news】<br/>#ukrainerescue #ukrainerussiawar #nfscnews
 ![img](https://media.gettr.com/group33/origin/2022/03/25/23/0ebfb07c-523f-9c30-e0bb-f8cf749a6b46/a45353efc4558b3538950b20b9db06c1.jpg)
-
----
-
-`@miles 3/25/2022 11:01 PM (UTC)`
-
-2022.03.25 NFSC News  CCP‘s Attempt To Achieve Its Global Hegemony With Petro-RMB； Miles Guo Revealed the Truth About the China Eastern Aircraft Crash
-![img](https://media.gettr.com/group19/origin/2022/03/25/23/fbbb858b-89b6-18d5-774e-9518653081ac/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

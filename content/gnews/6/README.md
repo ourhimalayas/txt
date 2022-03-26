@@ -2,27 +2,25 @@
 ---
 
 
-## 有声｜占领基辅受阻 俄罗斯重新设定战争目标
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2233132/)
+## 视频|邦女神在行动！「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2233258/)
 
-By:**秘翻新闻**
+制作：大直播短视频组
 
-**2022-03-26**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-178.png)图片来源 路透社
-[《路透社》乌克兰3月25日报道，周五，俄罗斯暗示将缩减在乌克兰的野心，把重点转移到乌克兰东部由俄罗斯支持独立的领土上。目前乌克兰军队正发起攻势，试图夺回首都基辅以外的城镇。](https://www.reuters.com/world/us/ukraine-urges-halt-russias-assault-biden-heads-poland-2022-03-25/)
+文案编辑：Mary Ann Evans RayChan(小笔民）
 
-[据军事分析人士称，新的目标会让普京更容易宣布一场挽回颜面的胜利。](https://www.reuters.com/world/us/ukraine-urges-halt-russias-assault-biden-heads-poland-2022-03-25/)
+视频剪辑：RayChan(小笔民）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻来源】前线素材
 
-[一份英国情报报告称，乌克兰发动了反攻，将俄罗斯人逼回了东部。这次反击，以及俄军因补给问题撤退，使得乌克兰重新占领了基辅以东35公里的城镇和防御阵地。](https://www.reuters.com/world/us/ukraine-urges-halt-russias-assault-biden-heads-poland-2022-03-25/)
+审核/编辑/发稿：qiutian（邱甜）
 
-[据报道，乌克兰称已有1.5万名俄罗斯士兵死亡。基辅附近的战线已经僵持了几个星期，两支主要的俄罗斯装甲部队被困在基辅西北部和东部。](https://www.reuters.com/world/us/ukraine-urges-halt-russias-assault-biden-heads-poland-2022-03-25/)
-
-秘翻新闻 冰糖葫芦喵编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-3.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

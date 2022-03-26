@@ -2,224 +2,83 @@
 ---
 
 
-## 前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2231672/)
+## 中共国空调经销商吐槽销量下滑显著
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2231707/)
 
-Jake Tapper (CNN anchor)
-杰克·塔珀（CNN 主播）
+编辑：文宝
 
-Right now we know the Russians are working on four major fronts
-现在我们知道俄罗斯人正在四个主要战线上工作
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0325%2F2053cfc4j00r9a5mz00h8c001ai00u4g.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
 
-There’s Kyiv, there’s Kharkiv
-有基辅，有哈尔科夫
+进入3月以来，南方地区多地升温，湖南最高温触及27℃，广东局部气温则飙升至32℃。炎热的天气下，线下家电市场却显得十分冷清，有着十余年传统的“抢空调”大战效果大打折扣。
 
-there’s obviously the Dnipro region，the separate regions,
-显然有第聂伯地区，不同的区域
+2月底，格力、美的、海尔等品牌的“抢空调”大战开启，全品类家电参与促销，优惠有送大米、抽汽车、买四免一等。不过，多位家电经销商向时代财经表示，今年活动效果不如往年。
 
-and then of course, Crimea
-当然还有克里米亚
+根据GFK中怡康监测数据，从2月28日-3月20日，线下市场空调零售额、零售量均同比下滑，其中3月14日-20日分别同比减少37%、43.5%，且2021年空调市场零售规模未恢复到疫情前2019年的水平。
 
-But the state it does seem as right now
-但它现在看起来确实是这样的状态
+资深产业经济观察家梁振鹏对时代财经表示，从家电进入电商平台以来，线下渠道的家电出货量占比逐渐萎缩，疫情也给实体店带来巨大冲击，但线下渠道会长期存在，未来趋势是多渠道共存。
 
-we’re hearing that it’s something of a stalemate
-我们听说目前是一个僵局
+“火三月”消失？促销一届不如一届
 
-What is going wrong for the Russians right now?
-俄罗斯人现在出了什么问题？
+时代财经了解到，每年春节过后的3月，是空调行业传统开盘期，市场随之进入“火三月、红四月”的超级促销周期。
 
-Gen. David Petraeus (Ret) Former CIA Director
-大卫·彼得雷乌斯将军（退役）前中央情报局局长
+2009年，格力推出“万人空巷抢格力”活动，先认筹后购买，模式与如今电商平台预付定金类似，美的空调以“火三月”跟进促销。自此，以格力、美的为首的“抢空调”大战持续至今，且从空调单品延伸至全品类家电，每年三月如期上演。
 
-Well, an awful lot, actually it’s a stalemate
-好吧，很多，实际上这是一个僵局
+“抢空调”大战以线下渠道为主。时代财经观察到，2月底开始，格力、美的等品牌陆续启动认筹，国美的空调促销范围涵盖则包括格力、美的、海信、科龙、奥克斯、卡萨帝等品牌。
 
-but we should know it’s a bloody stalemate
-但我们应该知道这是一场血腥的僵局
+以美的为例，其在线上线下同时开展“火三月”活动，消费者预交50元认筹并购机，有全年价保权益，获赠美的电烤箱，全屋家电买四免一。
 
-Jake Tapper
-杰克·塔珀
+“整体市场低迷，销量相比历届有很大下滑。”山东美的经销商崔勇接受时代财经采访时表示，截至3月22日，今年3月销售额比2019年同期下降了50%，也比不上去年同期。
 
-right
-是的
+另一山东美的经销商则透露，今年三月家电销售额比去年少两三成，而三、四月的市场要靠空调去带动，空调行情差，冰箱、洗衣机销售也不会好。
 
-Gen. David Petraeus
-大卫·彼得雷乌斯将军
+“以前活动确实人多，这两年不行了。” 江苏格力经销商何向东观察到，现在家电行业促销活动越来越多，消费者对当前的促销活动好像并不买账，也因此有很多同行退出了家电市场。
 
-This is not a cease-fire, and also arguably, it’s a battle of attrition
-这不是停火，也可以说这是一场消耗战
+广东格力经销商陈宇则退出了促销活动，2021年和今年的3月都没有参与促销，因为价格和线上比没优势。据他观察，今年的“抢空调”大战声势小了一些。
 
-It’s a stalemate on the battlefield
-这是战场上的僵局
+河南一国美电器卖场经营者任超对时代财经表示，2021年3月的业绩是今年同期的5倍。他和崔勇把促销效果不好归结于空调价格的上涨。
 
-Again, with lots of continued damage on both sides
-而且，双方都有很多持续的伤害
+时代财经观察到，网上流传诸多空调涨价文件，落款时间集中在2月下旬到3月中旬，涉及美的、海尔、TCL、奥克斯等品牌，原因均包含原材料价格的攀升。
 
-lots of destruction, especially from the Russians
-大量破坏，尤其是来自俄罗斯人的破坏
+对于今年“抢空调”大战销售情况和涨价文件虚实，时代财经联系格力电器和美的集团，格力电器3月23日回应称，从目前线上线下的整体情况看，今年3月家用空调板块销量和去年同期相比在稳步提升。但由于3月还未结束，无法提供具体的销售数据。而截至发稿，美的方面未回应。
 
-But there’s a battle of attrition, in a sense between the will in Kyiv in the country
-但是这是一场消耗战，从某种意义上说，在基辅的国家意志
+值得注意的是，往年3月，家电企业普遍会携新品参加中国家电及消费电子博览会（AWE），但今年展会由于疫情延期，3月上市的家电新品也明显变少。
 
-and then between that in Moscow and especially in the Kremlin
-和莫斯科的意志之间，特别是在克里姆林宫
+“卖家电一夜暴富的时代过去了”
 
-as their economy, their financial system and all the rest of that is just collapsing
-因为他们的经济、金融系统和所有其他的东西都在崩溃
+时代财经了解到，就在五六年前，3月的“万人空巷抢空调”还能轰动一方，活动现场犹如春运的火车站，今年的活动情况却映射出了家电线下渠道的尴尬。
 
-But what you see up here, this is the main effort
-但是你在这里看到的，这是主要的努力
+任超把线下渠道冷清归结于渠道混乱，他透露，当前家电行业窜货现象严重，微商可以卖大品牌家电，水果摊、小卖部也有进货渠道，且价格低廉，专卖店、家电卖场竞争力变弱。
 
-we can come in and show that
-我们可以来展示
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0325%2F206f5338j00r9a5n1014hc001tq01dag.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+更多受访者则提到了电商平台的冲击。2021年11月，浙江省电子商务促进会发布的《中国家电电商行业研究报告》显示，2021年上半年，家电销售渠道进一步向线上转移，线上家电产品零售额为2303亿元，同比增长20.4%，线上渠道占整体家电零售额的53.65%。
 
-Jake Tapper
-杰克·塔珀
+而根据《中国电子报》、电子信息产业网发布的《2015年中国家电网购分析报告》，2015年，我国家电网购市场规模（不包括移动终端）在整体家电消费总额仅为16%。
 
-You want to look at that?
-你想看那个吗？
+“卖家电一夜暴富的时代过去了。”孙龙从事家电行业12年，据他观察，以前3月家电大促销时，消费者购买欲强，经销商利润空间大，能够迅速积累资本，但现在很难做到了。
 
-Gen. David Petraeus
-大卫·彼得雷乌斯将军
+他向时代财经表示，如今家电购买渠道有很多，比如京东、天猫、苏宁网上商城等线上平台，消费者选择变多了，比价也容易，价格是非常透明的，经销商们养家糊口没问题，但很难再赚取高额利润。
 
-Sure, that’s do that
-好的，让我们看这里
+在梁振鹏看来，线下专家店、家电卖场客流减少，主要是因为电子商务的冲击，5年前消费者还会对比线上线下哪个渠道更便宜，如今很多人图方便，已经养成在网上买家电的习惯。
 
-Jake Tapper
-杰克·塔珀
+“不管线下实体店有什么样的促销活动，（很多）消费者压根就不去。”不过，他也提到，消费者在购买几万元或者十几万元的家电时，一般还是会去实体店看看。
 
-So here’s Kyiv，right now, they seem to have been
-所以这里是基辅，现在，他们似乎已经
+陈宇在小乡镇卖格力，他表示，老乡们消费水平有限，体验店很难做，高端产品也很难销售，很多同行尝试到市区卖高端家电，也纷纷倒闭了。
 
-they haven’t been able to, here’s Kiev right now
-他们没能做到，这里是基辅
+谈及未来趋势，梁振鹏认为，未来家电市场会多渠道并存，包括电商平台、专卖店、线下体验店，建材城、家居城也会出现更多家电品牌，因为很多消费者把买家电前置到装修环节。
 
-and they haven’t been able to get in there
-他们无法进入那里
+他举例说，很多装修公司提供橱柜定制，需要配置洗碗机、蒸箱、冰箱等家电做整套设计，配置家电的精装修楼盘也越来越多，家电和家居建材的销售渠道可以融合在一起。
 
-Gen. David Petraeus
-大卫·彼得雷乌斯将军
+在财经评论员郭施亮看来，家电线上线下渠道的话语权争夺还是非常激烈，格力董明珠店以及电商平台的线下体验店是未来的方向。
 
-Now, you’ve really seen no big change to these lines for about two weeks
-现在，你真的看到这些线路大约两周没有大的变化
+在销售渠道方面，格力电器向时代财经表示，公司一直是线上线下结合的形式，目前线下门店也在积极向体验店转型。除了日常的直播带货，公司也在积极探索更多的渠道变革。
 
-The Ukrainians have actually been counter attacking around in here
-乌克兰人实际上一直在这里反击
+财经评论员郭施亮对时代财经表示，空调行业相对饱和，家电企业需要找出新的盈利增长点，例如开拓海外市场、提升产品多元化。此外，政策可引导以旧换新，或者推进过期家电退休措施，以激活存量市场。
 
-but very local counter attacks
-是局部激烈的反击
+原文链接：[https://www.163.com/dy/article/H3A4JRB10530KP1K.html](https://www.163.com/dy/article/H3A4JRB10530KP1K.html)
 
-Here the Russians are actually digging in
-俄罗斯人实际上正在这里挖掘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-21.png)DISCORD
 
-They’re actually digging holes for their tanks
-他们实际上是在为他们的坦克挖洞
-
-because they’ve taken such losses
-因为他们已经承受了如此大的损失
-
-And they’re really not quite within artillery range of the center of the city
-而且他们真的不在市中心的炮火范围内
-
-They have rockets, missiles, bombs and everything else
-他们有火箭、导弹、炸弹和其他一切
-
-that we’ve seen in their rumbling these little villages that are on the outside
-我们在他们隆隆声中看到这些在外面的小村庄
-
-Keep in mind, this is 320 square miles
-请记住，这是方圆320平方英里的范围
-
-compared with New York City, all of which is 300 miles in total
-与纽约市总共300英里相比
-
-So again, pretty much a stalemate here
-再说一次，这里几乎陷入僵局
-
-but again, very much a bloody one
-但又一次，非常血腥的战斗
-
-But if we go in now, let’s go down to the the south
-但是如果我们现在进去，让我们下到南方
-
-Jake Tapper
-杰克·塔珀
-
-So let’s look at this corridor because this is important
-所以让我们看看这条走廊，因为这很重要
-
-You’re right, We have Russian troops just absolutely pumped pummeling Mariupol
-你是对的，我们有俄罗斯军队绝对抽空了马里乌波尔
-
-we’ve heard this these horrible stories about citizens being taken out into rigs camps of sorts
-我们听说过这些关于公民被带入俄罗斯集中营的可怕故事
-
-and that city just being devastated
-那个城市刚刚被摧毁
-
-Right, but Russia has reportedly established a land cordon
-对，但据报道俄罗斯已经建立了陆地警戒线
-
-between the Donbas region which is here
-在这里的顿巴斯地区
-
-and Crimea, which they seized in 2014
-和俄罗斯在 2014 年占领的克里米亚之间的地区
-
-Gen. David Petraeus
-大卫·彼得雷乌斯将军
-
-So which they wanted for a long time, this is important
-所以他们想要很久了，这很重要
-
-spans all across here it’s very important
-横跨这里，这很重要
-
-Mariupol has not yet fallen
-马里乌波尔还没有倒下
-
-it is out of food, fuel, water, everything except for heart
-马里乌波尔没有食物、燃料、水，除了坚定的勇气，一切都没有了
-
-They are still fighting very hard
-他们仍然在非常努力地战斗
-
-This is the first place where the Russians are having to do no kidding urban fighting
-这是俄罗斯人不得不认真的做巷战的第一个地方
-
-having to go building to building every single room
-在这种情况下，必须挨家挨户地检查
-
-has to be cleared in this kind of endeavor
-每一个房间都必须清理干净
-
-And they’re finding out that it is very soldier intensive
-他们发现这非常耗费兵力
-
-and it just eats away at the reserves and forces that you have
-它只会吞噬你拥有的储备和部队力量
-
-**原视频链接**[https://twitter.com/cnn/status/1505546788383698946?s=24](https://twitter.com/cnn/status/1505546788383698946?s=24)
-
-Date:03/22/2022
-原视频标题: “It’s a battle of attrition. It’s a stalemate on the battlefield with lots of continued damage on both sides, lots of destruction.” Former CIA Dir. Gen. David Petraeus
-前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局，双方都有很多持续的伤害，很多破坏”
-原视频日期：2022/03/21
-原视频链接https://twitter.com/cnn/status/1505546788383698946?s=24
-任务编号：4053
-视频时间段 : 0:00-2:39
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-20.png)GETTR
 
  
 
