@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 8:20 PM (UTC)`
+
+
+![img](https://media.gettr.com/group38/origin/2022/03/26/20/7e222da1-ee3a-9db4-3e1e-b8710f215343/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/26/2022 7:30 PM (UTC)`
 
 
@@ -147,13 +154,6 @@
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品3：奔驰GLE COUPE (单价: $76,500.00)<br/>奖品数量：1<br/>获奖者：<br/>LM58406<br/>Discord: 郁金香#8584<br/>中奖者来自洛杉矶盘古农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 3: Mercedes GLE Coupe (Unit Value: $76,500.00)  <br/>Number of Prizes: 1<br/>The winner is: <br/>LM58406<br/>Discord: 郁金香#8584<br/>The winner is from Himalaya LA Pangu!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group14/getter/2022/03/26/14/ad841d72-284c-c01e-28bb-b37ab55e5b01/d759c068f20b7f58ded7ccbcee873e6d.jpg)
-
----
-
-`@miles 3/26/2022 2:33 PM (UTC)`
-
-G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图：<br/>中奖者来自联盟，首尔天池农场，波士顿五月花农场，(原)多伦多枫叶农场，东京樱花团和新西兰伊甸农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 2: GFASHION Diamond Whistle - Yellow Gold (Unit Value: $7,499.00)  <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya Korea Seoul Heaven Lake Farm, Himalaya Boston Mayflower Farm, Himalaya Toronto Maple Leaf, Himalaya Tokyo-Ark and Himalaya New Zealand Auckland Eden Domain! <br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group14/getter/2022/03/26/14/be1b035c-a542-cd59-37ff-da9359c35ac9/43906357a5b1afe5c523f60e4dc9b704.jpg)
 
 ---
 
