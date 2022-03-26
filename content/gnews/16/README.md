@@ -2,24 +2,19 @@
 ---
 
 
-## 流媒体音乐巨头Spotify退出俄罗斯市场
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2231628/)
+## 七哥对救援前线战友们的嘱咐，染病可能就是疫苗和病毒结合
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231664/)
 
-编译：文宝
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-99.png)
-Spotify周五（3月25日）表示，它将完全退出俄罗斯，因为最近限制新闻运营的法律可能会使流媒体的员工和听众面临风险。 它预计到 4 月底将完全暂停运营。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-Spotify 退出俄罗斯的决定突显了西方媒体公司需要取得平衡，因为他们希望向俄罗斯公民提供新闻，同时面临与该国入侵乌克兰和该国商业环境相关的重大挑战。
+*发布：陶子*
 
-Spotify 以音乐流媒体而闻名，但它也托管和分发一系列包含政治内容的播客。
-
-
-
-原文链接： [https://www.cnbc.com/2022/03/25/spotify-pulls-out-of-russia-citing-new-laws-restricting-free-expression.html](https://www.cnbc.com/2022/03/25/spotify-pulls-out-of-russia-citing-new-laws-restricting-free-expression.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-19.png)DISCORD
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-18.png)GETTR
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

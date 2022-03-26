@@ -2,15 +2,16 @@
 ---
 
 
-## 未来战争就是科技战争
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231653/)
+## 北约秘书长延斯-斯托尔滕贝格说，俄罗斯可能正试图为在乌克兰使用化学武器制造借口
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2231691/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+作者：东京樱花团小视频组
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

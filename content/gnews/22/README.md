@@ -2,63 +2,97 @@
 ---
 
 
-## 受伤的俄罗斯士兵挤满了白俄罗斯的医院
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2231324/)
+## 北约决定在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加4个战斗群，使总数达到8个
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2231611/)
 
-**翻译：【日本东京方舟农场】**Skyfrog
+**美国驻北约代表团：** 
+在北约[@NATO](https://twitter.com/NATO)峰会上，领导人们决定在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加4个战斗群，使总数达到8个。这进一步加强了我们的长期威慑和防御，并且是相称的和非升级性的。
+北约盟国 [#NATO](https://www.gettr.com/hashtag/%23NATO) 支持与乌克兰团结一致 [#UnitedWithUkraine](https://www.gettr.com/hashtag/%23UnitedWithUkraine) 维护其自卫权。 盟国将继续提供进一步的政治和实际支持，在网络安全和防止化学、生物、放射和核威胁方面提供援助。
+北约 [#NATO](https://www.gettr.com/hashtag/%23NATO) 正在为合作伙伴提供量身定制的支持，以抵制俄罗斯的恶意影响。 北约@NATO盟国呼吁包括 [#中共国](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 在内的所有国家，促进和平解决冲突，并避免对俄罗斯战争努力的支持。 完整声明 【北约国家元首和政府首脑的声明 （布鲁塞尔 2022 年 3月 24日）】
 
-自俄罗斯军队于2月24日入侵乌克兰以来，俄罗斯国防部只报告了一次军事伤亡：截至3月2日，俄方说有 498 名士兵被杀，1,597人受伤。另一方面，乌克兰官员表示，俄罗斯方面至少有14,200人死亡。可能的是，双方都没有说实话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-44.jpg)（图片来源： www.dw.com）
 
-据白俄罗斯媒体报道和电报频道报道，许多受伤的俄罗斯士兵正在被送往白俄罗斯接受治疗，然后再被运送到俄罗斯。白俄罗斯领导人亚历山大·卢卡申科证实说，经过五天的战争，160至170名俄罗斯士兵在戈梅利、马济尔和另一个白俄罗斯城镇接受了治疗。
+> At the [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Summit leaders decided to establish 4 additional battlegroups in Bulgaria, Hungary, Romania, and Slovakia, bringing the total to 8. This further strengthens our long-term deterrence and defense and is proportionate and non-escalatory. [pic.twitter.com/YxlqDDkaHd](https://t.co/YxlqDDkaHd)
+> — US Mission to NATO (@USNATO) [March 24, 2022](https://twitter.com/USNATO/status/1507002609973927944?ref_src=twsrc%5Etfw)
 
-四位消息人士告诉德国之声，这些白俄罗斯南部城市有俄罗斯士兵。此外，他们说在离乌克兰边境不远的纳罗夫利亚设立了野战医院。一位消息人士告诉德国之声，许多受伤的士兵“没有胳膊、腿、耳朵和眼睛”抵达马兹尔。他们说，有的来得太晚，已经生了坏疽：“假如及时带回来，四肢还可以抢救。”
 
-消息人士称，一些伤员已经五天没吃东西了，到达时无法辨别方向，还想给父母打电话：“这些受伤的士兵大多是2003年出生的，来自俄罗斯的贫困地区，基本上还是孩子。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/02.jpg)（图片来源：dw.com;今年2月份俄罗斯和白俄罗斯在白俄罗斯进行了军事演习）
-另一位不直接参与医疗救治但对情况非常了解的消息人士称，戈梅利地区的一家医院正在“不间断”地进行手术，每晚最达 50 次，包括对平民的常规手术。这位知情人士说，外科医生经常不得不截掉俄罗斯士兵的肢体。
 
-“医院人满为患，”消息人士称，并要求不要公开医院的位置。
+**拜登总统**：
+今天下午在波兰，我收到了关于俄罗斯入侵乌克兰的人道主义应对的简报。 美国准备再提供 10 亿美元用于人道主义援助，并欢迎多达 10 万乌克兰人和其他逃离俄罗斯侵略的人来美国。
 
-有几个人告诉德国之声，死去的士兵也被运往白俄罗斯。然而，没有人能给出一个准确的数字。
 
-德国之声联系过的许多医生拒绝谈论治疗俄罗斯士兵的事情。两位消息人士称，医生必须签署保密协议。
 
-白俄罗斯医疗团结基金会证实，所有医院都受到严格控制。
+> This afternoon in Poland, I received a briefing on the humanitarian response to Russia’s invasion of Ukraine. The United States is prepared to provide an additional $1 billion for humanitarian assistance and welcome up to 100,000 Ukrainians and others fleeing Russian aggression.
+> — President Biden (@POTUS) [March 25, 2022](https://twitter.com/POTUS/status/1507425374564663355?ref_src=twsrc%5Etfw)
 
-一位发言人说：“工作人员中有克格勃或联邦安全局的人员。所有建筑物都受到监视。理论上有可能透露信息的医生们已经从医院中撤出，并由俄罗斯人取代。”并补充说，许多医生医院员工不敢谈论他们看到或做过的事情。这位发言人说，由于白俄罗斯的医院人满为患，“如果可能的话，伤员们正通过火车被运送到俄罗斯”，并证实有大量士兵死亡。
 
-**白俄罗斯不参与战争**
 
-白俄罗斯卫生部尚未解决向俄罗斯军人提供医疗服务的问题。柏林自由大学弗里德里希·梅内克历史研究所的西亚雷·博赫丹告诉德国之声，从国际人道法的角度来看，向受伤的俄罗斯士兵提供援助并不等同于参与战争。
+**众议员加拉格尔新闻办公室**： 
+拜登政府震慑普京的 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 战争失败了，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 记下了。
+加拉格尔议员和苏利文议员[@SenDanSullivan](https://twitter.com/SenDanSullivan) 指出了从这些错误中我们应该吸取的教训，确保威慑不会在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 再次失败。 
+【转福克斯新闻，乌克兰战争为阻止中共国入侵台湾提供了重要的经验教训】
 
-“在战场及周边区域，每个人必须帮助所有的伤员，无论他们属于哪支军队，”他说。
 
-然而，他解释说，该论点存在法律上的细微差别，并且由于俄罗斯并未正式将冲突描述为战争，因此国际公约的规范不一定适用。克里姆林宫选择将这场战争称为“特别行动”，这也使在白俄罗斯接受治疗的俄罗斯士兵的状况变得复杂。
 
-博赫丹说，他不认为白俄罗斯当局明确想要隐瞒他们的医院为俄罗斯士兵提供治疗，并将他们的沉默归咎于该国已经形成的制度和官僚文化。
+> The Biden administration failed to deter Putin's war in Ukraine and the CCP is taking notes. 
+> 
+> Rep. Gallagher and [@SenDanSullivan](https://twitter.com/SenDanSullivan?ref_src=twsrc%5Etfw) outline lessons we should learn from these mistakes to ensure deterrence doesn't fail again in Taiwan. [https://t.co/5Fs3Tu5z1q](https://t.co/5Fs3Tu5z1q)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 25, 2022](https://twitter.com/RepGallagher/status/1507349429795315712?ref_src=twsrc%5Etfw)
 
-**卢卡申科不想卷入战争**
 
-博赫丹说，卢卡申科不想参与对乌克兰的入侵，并且正在“尽其所能”不被卷入其中。
 
-“对于白俄罗斯来说，重要的是表明它没有对乌克兰采取任何严重措施，而是被迫与俄罗斯合作，”博赫丹说。 “可以说，白俄罗斯医院接收受伤士兵的事实是俄罗斯方面的一种温和参与形式。但从人道主义的角度来看，这不是参与战争。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/03-1.jpg)（图片来源： dw.com；白俄罗斯领导人卢卡申科表示不想参与对乌克兰的入侵。）
-他补充说，俄罗斯将其军事装备通过白俄罗斯领土运往乌克兰也可能使明斯克成为同谋，但法院需要审理此案才能判定是否属实。 目前尚不清楚的是，白俄罗斯政府是否有权决定是否让这些设备通过。
+**白宫**： 
+美国和欧盟委员会正在建立一个联合工作组，以确保乌克兰和欧洲的能源安全，并减少欧洲对俄罗斯化石燃料的依赖。 阅读更多：（附白宫官网链接）
 
-“有个情况让人生疑，”博赫丹说，并补充说，卢卡申科面临的事实是，来白俄罗斯进行演习的俄罗斯军队正在参与对乌克兰的袭击。
 
-他的结论是，乌克兰和俄罗斯正在为战争做准备，并在双方的前线采取适当措施，但白俄罗斯没有。 这就是为什么受伤的士兵现在在白俄罗斯的民用医院接受治疗的原因。
 
-注：本文仅代表作者观点。
+> The United States and European Commission are establishing a joint Task Force to ensure energy security for Ukraine and Europe and reduce Europe’s dependence on Russian fossil fuels.
+> Read more: [https://t.co/oczv9Ftjjr](https://t.co/oczv9Ftjjr)
+> — The White House (@WhiteHouse) [March 25, 2022](https://twitter.com/WhiteHouse/status/1507360640062603268?ref_src=twsrc%5Etfw)
 
-原文链接：
-[https://www.dw.com/en/wounded-russian-soldiers-fill-belarusian-hospitals/a-61181434](https://www.dw.com/en/wounded-russian-soldiers-fill-belarusian-hospitals/a-61181434)
 
-素材採編：妙喜小油鍋
-校对：妙喜小油鍋
-发布：Linda
+
+**众议员迈克·加西亚**： 
+正如我所警告的那样——我们不能忽视对美国的真正威胁：#中共国。 [#中共](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) [#CCP](https://www.gettr.com/hashtag/%23CCP) 越来越多地推动台湾脱离联合国机构和其他国际组织，旨在将其确立为中共国 (的一部分)。 
+【转纽约时报：报告称，中共国推动孤立台湾，需要美国采取行动 中共官员正在加大力度迫使联合国机构、政府、公司甚至学校表示台湾是中共国的一部分。】
+
+我们必须与 [#台湾](https://www.gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 站在一起，现在就击垮 [#中共国](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD)。 这就是为什么我写信给拜登总统@POTUS，要求他通过一切可用的经济和外交工具对中共国“施压”，以确保 [#中共](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 无法支持俄罗斯。 
+【附众议院官网文：迈克·加西亚带领立法者呼吁拜登总统“加大对中共国的压力”】
+
+
+
+> As I have warned- we cannot take our eye off the real threat to the United States: China.
+> 
+> The CCP is increasingly pushing for Taiwan to be isolated from United Nations agencies and other international organizations, aiming to establish it as China.[https://t.co/ndNNi8ak6C](https://t.co/ndNNi8ak6C)
+> — Rep. Mike Garcia (@RepMikeGarcia) [March 25, 2022](https://twitter.com/RepMikeGarcia/status/1507400358913581066?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本**： 
+美国正在考虑将伊朗石油推向全球市场并允许他们开发核武器，这是荒谬的。 我们不要忘记，俄罗斯正在代表我们谈判这笔交易。 
+【附福克斯采访视频：布莱克本就（拜登政府）考虑让步、重启伊朗核协议进行评论】
+
+
+
+> It’s absurd the U.S. is considering pushing Iranian oil into the global market and allowing them to develop nuclear weapons. 
+> 
+> And let’s not forget that Russia is negotiating the deal on our behalf. [pic.twitter.com/clzRvQFRnQ](https://t.co/clzRvQFRnQ)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 25, 2022](https://twitter.com/MarshaBlackburn/status/1507431149177651206?ref_src=twsrc%5Etfw)
+
+
+
+**前副国务卿基思·克拉奇**： 
+我对(诺贝尔)提名甚感惶恐(自身渺小)。 它反映了我们团队利用“信任原则”来建立民主国家“清洁网络联盟”，以抵御科技独裁主义、维护 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 民主和结束 [#新疆](https://twitter.com/hashtag/%E6%96%B0%E7%96%86?src=hashtag_click) 种族灭绝的辛勤工作。 信任对和平至关重要！
+【转推文：2022年诺贝尔奖被提名人基思·克拉奇对“可信协作”的愿景是对独裁主义的强力解毒剂，尤其是在这个险恶时刻。 他的“信任原则”是 21 世纪联合民主国家的典范。 更多内容见福布斯报道】
+
+
+
+> I am truly humbled by the nomination. It reflects the hard work of our team using the Trust Principle to build the Clean Network Alliance of Democracies to defend against tech authoritarianism, preserve Taiwan's democracy & end genocide in Xinjiang. Trust is essential for peace [https://t.co/gU8BCnfQrz](https://t.co/gU8BCnfQrz)
+> — Keith J. Krach (@KeithJKrach) [March 24, 2022](https://twitter.com/KeithJKrach/status/1507114126727737358?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
