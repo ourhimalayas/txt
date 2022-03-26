@@ -2,31 +2,25 @@
 ---
 
 
-## 拜登警告“粮食短缺”即将成为现实
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236565/)
+## 日本内阁会议：禁止对俄罗斯出口奢侈品
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236555/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，据外媒消息显示，美国总统拜登当天在布鲁塞尔举行的新闻发布会上确认，全球粮食短缺问题将成为现实。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
+日本政府在3月25日的内阁会议上决定，为了加强对俄罗斯的制裁，禁止奢侈品出口俄罗斯，将资产冻结对象扩大至俄罗斯政府官员与新兴商业寡头资本等的相关者。
+视频来源：雅虎新闻
+我们从3月25日的内阁会议了解到，禁止对俄罗斯出口奢侈品等措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-9.jpeg)
+另外，关于资产冻结，政府决定扩大目标至俄罗斯政府官员和新兴商业垄断资本相关者。 岸田首相表明，在比利时举行的G7会议：主要7国首脑会议结束后，“奢侈品的出口禁止措施从（会议结束后）下一周开始进行”。此外，岸田首相还表示为了应对俄罗斯采用了撤回日本贸易上的优惠措施等保障“最惠国待遇”的法律修正案，以及使用数字资产来规避制裁，已经准备好向本届国会提交进一步加强金融制裁的有效性的法律修正案。
 
-拜登提到，世界因战争对俄罗斯做出的制裁正在使得很多国家一同承担了相应代价，当中包括美国和欧洲。此前，俄罗斯和乌克兰在小麦方面一直是欧洲的粮仓，但如今，战争减少了乌克兰的生产，而制裁则阻止了其他国家与俄罗斯的贸易。
+参考链接：[ロシアへの“ぜいたく品”輸出禁止～閣議で了解（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/dabe6bc616d389d4a67f369503cf6c663ee7da39)
 
-为此，美国和欧洲各国近期在峰会期间反复讨论了关于粮食短缺的问题，以及一些可以采取的应对措施。拜登透露，国际社会或将敦促所有欧洲和其他国家结束对向国外运送粮食的贸易限制，同时，美国可以提供人道主义援助方面的重大投资。
+* * *
 
-据了解，目前，美国从食品到燃料再到供应等各个方面的消费价格一直在上涨，且随着乌克兰冲突的持续，人们越来越担心这类价格上涨或许将不再减弱，反而愈演愈烈。
-
-参考链接：[BREAKING: Biden says ‘food shortages are gonna be real’](Biden%20says%20'food%20shortages%20are%20gonna%20be%20real')
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑/审核：飞虹
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

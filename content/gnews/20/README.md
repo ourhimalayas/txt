@@ -2,31 +2,31 @@
 ---
 
 
-## 拜登以天安门形容乌克兰
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236582/)
+## 拜登警告“粮食短缺”即将成为现实
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236565/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
-美国总统乔·拜登(Joe Biden)3月25日在波兰乌的克兰边境附近访问时，将俄罗斯入侵乌克兰比作中国通过行使武力镇压示威的1989年天安门(Tiananmen)事件。
+作者：日本东京方舟农场 Miyali7768(文玉）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，据外媒消息显示，美国总统拜登当天在布鲁塞尔举行的新闻发布会上确认，全球粮食短缺问题将成为现实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3174.png)图片来源：雅虎新闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-9.jpeg)
 
-拜登赞赏乌克兰在对抗俄军入侵中展现出风骨，还提及一名30岁女性手持步枪站在坦克前的画面，“我的意思是，谈谈在天安门广场发生的事情，这就是天安门广场。”此外，他还重申俄总统普廷是一名“战争犯”。
+拜登提到，世界因战争对俄罗斯做出的制裁正在使得很多国家一同承担了相应代价，当中包括美国和欧洲。此前，俄罗斯和乌克兰在小麦方面一直是欧洲的粮仓，但如今，战争减少了乌克兰的生产，而制裁则阻止了其他国家与俄罗斯的贸易。
 
-拜登在与驻扎在当地的美军士兵，以及大量主动援助来自乌克兰难民的积极分子的集会中，称赞乌克兰人对俄罗斯表现出的“骨气”。当谈到一个女人拿着来福枪面对坦克的例子时，他说：“就像发生在天安门广场的事情一样。”（影响是天安门事件的几何倍数）
+为此，美国和欧洲各国近期在峰会期间反复讨论了关于粮食短缺的问题，以及一些可以采取的应对措施。拜登透露，国际社会或将敦促所有欧洲和其他国家结束对向国外运送粮食的贸易限制，同时，美国可以提供人道主义援助方面的重大投资。
 
-此外，对于俄罗斯总统弗拉基米尔·普京(Vladimir Putin)，他明确表示：“坦率地说，我认为他是战争罪犯。”他说：“（普京）也满足它本身的法律定义。”
+据了解，目前，美国从食品到燃料再到供应等各个方面的消费价格一直在上涨，且随着乌克兰冲突的持续，人们越来越担心这类价格上涨或许将不再减弱，反而愈演愈烈。
 
-拜登此後将前往首都华沙，与波兰首脑们举行会谈。
+参考链接：[BREAKING: Biden says ‘food shortages are gonna be real’](Biden%20says%20'food%20shortages%20are%20gonna%20be%20real')
 
-参考链接：[バイデン氏、ウクライナ侵攻を天安門になぞらえ（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/228abe91cf449c30bc7000a224a6cee68feff180)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-* * *
+总编：Irene木木
+编辑/审核：飞虹
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-审核：BryanW
-校对：天天
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

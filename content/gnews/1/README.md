@@ -2,18 +2,18 @@
 ---
 
 
-## 压迫加拿大人的疫苗政令仍未彻底解除
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236914/)
+## 特鲁多的欧洲演讲遭罗马尼亚等国议员抵制或谴责
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236988/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：文明(添草灭共)
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱 、编译：晨熹
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据加拿大媒体【真北方】3月25日报道，目前全国各地似乎都开始逐步取消新冠疫情的限制，但部分地区还在坚持接种疫苗的规定，甚至同一司法管辖区内出现相互冲突的政令。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3185.png)
-新不伦瑞克省已经废除疫苗护照，并宣布3月28日开始全面接种疫苗将不再是其公共服务部门的就业条件，然而该省的圣约翰市却仍对其雇员执行强制疫苗；不列颠哥伦比亚是最晚宣布取消限制的省份，然而在4月8日解除限制前仍在执行严厉的疫苗授权，解雇了数千名去年因该政策而被迫休假的公共雇员。维多利亚市却未采取省政府的立场，宣布将邀请25名在1月份因不接种疫苗被无薪休假的雇员复职。据悉，该省其他市政当局也在效仿这一举措。
+据加拿大媒体【真北方】3月24日报道， 欧洲议会罗马尼亚议员克里斯蒂安·特尔赫什周三针对特鲁多在欧洲议会的演讲进行了猛烈抨击，拒绝出席并引用特鲁多侵犯公民权利的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3187.png)
+特尔赫什直言不讳地批评特鲁多镇压和平的自由车队抗议者。指责他虚伪地宣讲民主，同时在国内废除自由和权利。克罗地亚和德国的欧洲议会议员都分别表达了对特鲁多出席欧洲议会的不满，认为是“任何民主的耻辱”。
 
-报道称，目前全国各地的疫苗接种政策错综复杂且仍在不断变化，联邦机构、各省、市政府、甚至个别企业都可以要求雇员提供疫苗接种证明。
+据悉，这是特鲁多本月第二次出访并讨论乌克兰战争，他因对待加拿大自由示威者的方式而受到欧洲议员的一连串谴责。
 
-原文链接：[https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/](https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/)
+新闻来源：[https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/](https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/)
 
 编辑/上传 – 文永
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
