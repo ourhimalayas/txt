@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰官方表示，俄罗斯军舰在被占领的别尔江斯克港被摧毁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232427/)
+## 美国增援武器帮助乌克兰军队
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232538/)
 
-03/23/2022 BBC新闻：乌克兰官方表示，一艘俄罗斯登陆舰在被占领的乌克兰港口城市别尔江斯克被摧毁。
+03/24/2022 福克斯新闻：作为8亿美元援助计划的一部分，美国向乌克兰军队提供更多武器以帮助他们。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

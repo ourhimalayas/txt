@@ -2,12 +2,26 @@
 ---
 
 
-## 沙特阿美石油公司储油设施被袭
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232504/)
+## 7News《全球视点》 无视生命，中共防疫再酿人道灾难
+` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2232636/)
 
-03/25/2022 据报道，沙特首都吉达的阿美石油公司的储油设施遭到胡塞武装的袭击，爆炸画面令人震惊。
+制作：宁南
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+Ignoring lives, CCP pandemic prevention made more humanitarian disaster
+CCP, the sponsor behind Russia-Ukraine war supporting invasion caused
+a huge humanitarian catastrophe across Europe.
+Millions of people are homeless, tens of millions lived in fear of war.
+As the war continues, an even greater humanitarian catastrophe is coming.
+Disregarding life and having no bottom line is the bloodthirsty nature of the CCP, not its incompetence in governing the country at all.
+The common people are the slaves that the CCP needs to completely tame, not ordinary citizens.
+At present, the CCP’s so-called “dynamic clearing” epidemic prevention policy has once again created a humanitarian disaster on the land of China, adding blood debt.
+中共在俄乌战争中充当背后金主角色，支持俄罗斯入侵乌克兰，造成了巨大的波及整个欧洲的人道主义灾难。数百万人流离失所，上千万人生活在战争的恐惧中。随着战争的持续，可能还将上演更大的人道灾难。
+
+无视生命、毫无底线是中共嗜血的本性，根本不是治理国家的无能。老百姓是中共需要彻底驯服的奴隶，而不是普通的公民。
+
+目前中共所谓的‘动态清零’防疫政策，再一次在中华大地上酿造了人道主义灾难，再添血债。
+
+排版上传：文勇
 
  
 

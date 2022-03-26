@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 3:43 AM (UTC)`
+
+3/25/2022 Miles Guo: Hands-on tutorial on how to easily buy GFashion clothes online with Himalaya Pay<br/><br/>3/25/2022 文贵直播：手把手教大家如何用HPay在线轻松购买GFashion<br/><br/>
+![img](https://media.gettr.com/group3/getter/2022/03/26/03/d86ed3ff-482a-2ca3-87ce-f2486d89c781/out.jpg)
+
+---
+
 `@miles 3/26/2022 3:13 AM (UTC)`
 
 3/25/2022 Miles Guo: Whoever survives the two or three years after the COVID vaccine disaster hits will be a winner! I hope the fellow fighters stay away from the collapse of the real estate, finance, and the CCP, and all kinds of natural disasters and food shortages. Sell your extra properties and be prepared for the disasters. The Whistleblowers' Movement is helping us to pursue human nature, which is the key for us to go to faraway places.<br/><br/>3/25/2022 文贵直播：只要活过疫苗灾难到来后的两三年就是赢家！希望战友远离房地产、金融和中共的崩塌以及各种自然灾害和粮荒，卖掉多余的房产并做好应对灾难的准备；爆料革命在帮我们找到人的性情的这把钥匙，从而载我们到更远的地方<br/>
@@ -153,13 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月24日第20天当日救援统计：<br/>Medyka救援站接待：约50人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7412人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 20 - Date: March 24, 2022 :<br/>Medyka Rescue Station Reception: about 50 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7412 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group28/getter/2022/03/25/17/d74148f5-e2af-47a9-aa89-0c512ba4a9d8/14965bfb18b01e222b2bee6074a73820.jpg)
-
----
-
-`@miles 3/25/2022 11:53 AM (UTC)`
-
-2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易
-![img](https://media.gettr.com/group11/origin/2022/03/25/11/8c5b20c9-d29a-efac-f4ac-90ed245aa80c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

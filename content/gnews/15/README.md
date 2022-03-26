@@ -2,13 +2,19 @@
 ---
 
 
-## 视频|乌克兰士兵的葬礼「非脱敏」
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232447/)
+## 视频|孩子眼中的世界「非脱敏」（中英双语）
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232602/)
 
 制作：大直播短视频组
 
-视频剪辑： Dawns
+文案编辑：RayChan(小笔民)
+
+视频剪辑：RayChan(小笔民)
+
+字幕翻译：Mary Ann Evans
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻来源】前线素材
+
 审核/编辑/发稿：qiutian（邱甜）
 
 **更多资讯，更多关注**

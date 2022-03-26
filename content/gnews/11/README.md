@@ -2,13 +2,25 @@
 ---
 
 
-## 美国增援武器帮助乌克兰军队
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232538/)
+## 视频|战火中最暖的礼物「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232685/)
 
-03/24/2022 福克斯新闻：作为8亿美元援助计划的一部分，美国向乌克兰军队提供更多武器以帮助他们。
+制作：大直播短视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+文案编辑：Mary Ann Eva
 
+视频剪辑：RayChan(小笔民)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【新闻来源】前线素材
+
+审核/编辑/发稿：qiutian（邱甜）
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

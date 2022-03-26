@@ -2,26 +2,18 @@
 ---
 
 
-## 7News《全球视点》 无视生命，中共防疫再酿人道灾难
-` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2232636/)
+## 别作恶这世界是有神的（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232760/)
 
-制作：宁南
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-二-scaled.jpg)
+发布：tianzhihuan
 
-Ignoring lives, CCP pandemic prevention made more humanitarian disaster
-CCP, the sponsor behind Russia-Ukraine war supporting invasion caused
-a huge humanitarian catastrophe across Europe.
-Millions of people are homeless, tens of millions lived in fear of war.
-As the war continues, an even greater humanitarian catastrophe is coming.
-Disregarding life and having no bottom line is the bloodthirsty nature of the CCP, not its incompetence in governing the country at all.
-The common people are the slaves that the CCP needs to completely tame, not ordinary citizens.
-At present, the CCP’s so-called “dynamic clearing” epidemic prevention policy has once again created a humanitarian disaster on the land of China, adding blood debt.
-中共在俄乌战争中充当背后金主角色，支持俄罗斯入侵乌克兰，造成了巨大的波及整个欧洲的人道主义灾难。数百万人流离失所，上千万人生活在战争的恐惧中。随着战争的持续，可能还将上演更大的人道灾难。
-
-无视生命、毫无底线是中共嗜血的本性，根本不是治理国家的无能。老百姓是中共需要彻底驯服的奴隶，而不是普通的公民。
-
-目前中共所谓的‘动态清零’防疫政策，再一次在中华大地上酿造了人道主义灾难，再添血债。
-
-排版上传：文勇
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
