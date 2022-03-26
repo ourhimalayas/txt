@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 3:22 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品7⃣️：GF年会专属限定版帽子 (单价: $250.00)<br/>奖品数量：550<br/>获奖者如图<br/><br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 7⃣️: GFASHION Limited Edition Hat (Unit Value: $250.00) <br/>Number of Prizes: 550<br/>The winners are as following:<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group27/getter/2022/03/26/15/2a2f0bfd-baf2-7842-9c1d-da27eedddf18/9ff6f860c8aba0ffc5f5ec3cdee9d3d5.jpg)
+
+---
+
 `@miles 3/26/2022 3:03 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品6⃣️：GF 限定款白色鳄鱼皮夹克 （单价：$80,000.00）<br/>奖品数量：1<br/>获奖者：<br/>0032904<br/>Discord: 推墙的人#9308<br/>中奖者来自纽约香草山农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 6⃣️: GFASHION Exotic Skin Jacket- Crocodile--White (Unit Value: $80,000.00) <br/>Number of Prizes: 1<br/>The winner is: <br/>0032904<br/>Discord: 推墙的人#9308<br/>The winner is from the New York Mountains of Spices Farm!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -151,13 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 3/25/2022 Miles Guo: Hands-on tutorial on how to easily buy GFashion clothes online with Himalaya Pay<br/><br/>3/25/2022 文贵直播：手把手教大家如何用HPay在线轻松购买GFashion<br/><br/>
 ![img](https://media.gettr.com/group3/getter/2022/03/26/03/d86ed3ff-482a-2ca3-87ce-f2486d89c781/out.jpg)
-
----
-
-`@miles 3/26/2022 3:13 AM (UTC)`
-
-3/25/2022 Miles Guo: Whoever survives the two or three years after the COVID vaccine disaster hits will be a winner! I hope the fellow fighters stay away from the collapse of the real estate, finance, and the CCP, and all kinds of natural disasters and food shortages. Sell your extra properties and be prepared for the disasters. The Whistleblowers' Movement is helping us to pursue human nature, which is the key for us to go to faraway places.<br/><br/>3/25/2022 文贵直播：只要活过疫苗灾难到来后的两三年就是赢家！希望战友远离房地产、金融和中共的崩塌以及各种自然灾害和粮荒，卖掉多余的房产并做好应对灾难的准备；爆料革命在帮我们找到人的性情的这把钥匙，从而载我们到更远的地方<br/>
-![img](https://media.gettr.com/group43/getter/2022/03/26/03/c85a7f22-f363-aca8-dcbf-1765345fe728/out.jpg)
 
 ---
 
