@@ -2,38 +2,27 @@
 ---
 
 
-## 迪拜即将推出一亿美元的数字资产基金
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235209/)
+## Gclub年会26日举办 奖品丰厚
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235926/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
+作者：澳喜农场 Leo M
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+3月25日文贵大直播透露，2022年的Gclub年会将在3月26日举办。年会将举办抽奖活动，已在线登记参与抽奖的卡约8000张，奖品金额大约200万美元，数量超过1000个。
+![](https://cdn.discordapp.com/attachments/714848986988544060/931788430185222154/2021-Huracan_EVO_Fluo_Capsule-5.png)
+郭先生介绍，按金额计算，美国的抽奖活动普遍来说中奖率为万分之一，最高的可以达到千分之一。有推友计算得知，Gclub年会的中奖率是这个最高中奖率的5（全部买的是5万卡）到25倍（全部买的是1万卡），而且Gclub会员每年都可以抽奖。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-222-2.jpg)图片来源: 网络
+郭先生表示，相比于中共国的福利彩票等把奖品都私下安排好的假的抽奖活动，Gclub年会的抽奖是真实的，有很高的命中率，每个人都可以亲身体验到抽奖的快乐。
 
-该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
+分析人士指出，由于Gclub会员能够以折扣价购买GFashion，而随着喜币的流通进入GFashion等全球实体店，G系列正在产生意义重大的联动效应。
 
-据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
-
-
-
-相关链接:
-
-[https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-
-
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：Petite abeille
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

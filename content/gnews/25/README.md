@@ -2,26 +2,30 @@
 ---
 
 
-## 未来战争将转型为高科技远程作战
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2235359/)
+## 乌俄首次换囚！19名蛇岛「X俄」勇士获释
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2236151/)
 
-作者：澳喜农场 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在3月25日的大直播中指出，人类未来将更多地依赖高科技进行远程战争，近身作战的模式将逐渐被淘汰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.40.43-PM.png)
-郭先生解释称，在此次俄乌战争中，俄罗斯本想在一星期内结束入侵，但由于乌克兰当局利用高科技手段时时锁定俄罗斯军队的行踪，从而导致莫斯科政府的狂妄企图宣告破灭。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+根据乌克兰议会表示，在总统泽伦斯基的命令下，乌克兰将从沉船中救出的11名俄军，换回19名驻守在蛇岛（Zmiinyi Island），曾怒呛「俄罗斯军舰，去你X的！」的乌军，而这也是双方首度达成换囚协议。
 
-郭先生也补充道，未来，使用大规模军事人员的作战方式将被科技战争和经济战争取代。在这种非接触式战争的模式下，豢养军队的政策将逐渐淡出历史。因此，那些仍旧保留大批军队的国家基本上都是以此镇压本国人民，而非对外作战。此外，虽然核武器也将是未来作战的工具之一，但鉴于其毁灭性的特质，它也很难会轻易出现在战场之中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/563075c7-2c24-42e6-8341-c8fa98da9207.jpg)图片来源：Verkhovna Rada of Ukraine – Ukrainian Parliament
 
-郭先生也强调道，时至今日，因为牵引和通讯技术的改变，掌握世界通讯权以及空中高科技的一方将直接主导战争的走向。
+当时乌克兰最初表示，蛇岛的所有部队已经阵亡，后来才澄清多名守军仍活着，但遭到俄罗斯俘虏。
 
-参考链接：[2022年3月25日 文贵大直播](https://gettr.com/streaming/p11tme3b4de)
+乌克兰边防局表示，官员一直在努力解救蛇岛的士兵，「我们的士兵将搭乘蓝宝石号返回家园，该船曾遭俄罗斯占领者夺走，而据双边所签订的交换条款，蓝宝石号也将返回乌国，随后转送至土耳其的港口。」
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+简评：作为敌对双方换俘虏11比19，数字上乌克兰赢了；乌克兰善待俘虏，被俘虏的俄军估计不想回去为普京卖命了，被换回的乌军祖国一直关心着他们，人心上乌克兰也赢了。祝福「X俄」勇士们重获自由，11名俄军则重回地狱！
 
-编辑/总编/审核：Irene木木
-校正/发稿：我不在这里
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[https://news.ttv.com.tw/news/11103260001000W](https://news.ttv.com.tw/news/11103260001000W)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,33 @@
 ---
 
 
-## 怕影响经济！上海感染人数创新高坚持不封城
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2234776/)
+## 北约峰会点名批评中共支持俄罗斯侵略行为
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2235360/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-据联合新闻网报道，上海25日新增38例本土中共病毒疫情确诊、2,231例本土无症状感染者，单日新增总感染人数再创新高。
+作者：纽约香草山农场 侠肝义胆，纽约磐石农 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，据相关媒体报道，在近日于比利时首都布鲁塞尔举行的北约峰会上，北约各国就俄乌战争的应对问题上点明批评了中共支持俄罗斯侵略乌克兰的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.37.12-PM.png)
+据悉，自俄罗斯入侵乌克兰以来，中共当局非但没有对莫斯科当局有任何谴责表态，其还声称西方民主国家不该军事支援乌克兰。更甚者，中共大肆宣传俄罗斯编造的关于美国在乌生物实验室的谣言，妄图乘机将罪责甩给美国。此外，多方消息证实，中共私下对普京政府施以经济和军事援助。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220326214713464.jpg)图片来源：路透
+对此，北约在会后的联合声明中指出，任何国家，尤其是中共国有义务维护国际秩序和《联合国宪章》中所规定的主权和领土完整原则。鉴于中共官员近期发表的有关俄乌战争的公开言论，北约各国警告中共立即停止散布俄罗斯编造的谎言，特别是关于俄乌战争和北约的虚假消息。同时，北约要求中共不得以任何方式支持俄罗斯的侵略战争，亦不能采取任何措施帮助俄罗斯逃避国际社会的制裁，从而真正促进俄乌战争的和平解决。
 
-针对封城建议，上海疫情防控领导小组专家组成员、复旦大学上海医学院副院长吴凡坚决表示：「不行」。她强调，上海一旦封城，甚至会影响全球经济。
+报道也提及，北约峰会的前一天，北约秘书长斯图尔滕贝格曾公开指责中共对俄罗斯提供的政治支持，包括帮助俄罗斯散布公然的谎言和错误信息。
 
-简评：中共从来都是带血的GDP，只要能创造价值哪管百姓死活，疫情期间也是如此，上海感染人数创新高不封城，怕的是影响经济从不考虑人身健康！中共经济崩塌在即，为了苟延残喘也是拼了，如此操作无异于引鸩止渴，问题集体爆发中共死的更快！
+参考链接：
 
-新闻来源：[联合新闻网](https://udn.com/news/story/7332/6193771?from=udn_ch2_menu_v2_main_index)
+1. [3月24日北约峰会召开后发表联合声明](https://gettr.com/post/p11oz4ibe08)
+2. [北约峰会：加强全方位防御 点名中共莫骑墙](https://www.epochtimes.com/gb/22/3/24/n13670597.htm/amp)
+3. [北約點名中國支持俄羅斯 解放軍連夜發聲明撇清](https://news.ltn.com.tw/news/world/breakingnews/3871105)
 
-撰稿/发布：一叶知秋
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑：飞虹，小鹿妞妞
+总编：Irene木木
+审核：飞虹
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

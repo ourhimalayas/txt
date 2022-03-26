@@ -2,30 +2,22 @@
 ---
 
 
-## 有声|对民主自由的恐惧让普京发动战争
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2235801/)
+## 新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236233/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生在3月22日的盖特中谈到普京要拿下乌克兰的根本原因，就是害怕乌克兰民主自由的政治气候传播到俄罗斯，害怕乌克兰良好的社会民主体制，民天下的政治制度让俄罗斯人看到真相，都渴望拥有乌克兰的社会制度，从而导致自己独裁统治的终结。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-郭先生表示中国也是一样，如果中国人能够看到现在的台湾，日本人们的生活和社会制度，就不会有人支持CCP去打台湾。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-郭先生指出奴隶们一旦意识到自己被奴役，就会起来消灭掉奴隶主。这次俄乌战争，不是因为欧洲武器东扩，而是欧洲和乌克兰的政治文明和民主社会体制让普京感到了恐惧。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-文字版原文：[对民主自由的恐惧让普京发动战争](https://gnews.org/zh-hans/2221584/)
+参考链接：[《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+总编：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 

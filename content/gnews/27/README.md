@@ -2,32 +2,30 @@
 ---
 
 
-## 未来的战争只会是高科技的较量
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2235307/)
+## 乌俄战争以来首次！拜登会见乌克兰外长防长
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2235940/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1920x1080.jpg)
-3月25日的大直播中，文贵先生与战友分享俄乌战争的目前局势。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+美国总统拜登今日在波兰首都华沙与乌克兰两位部长级官员会面，这是自乌俄爆发战事以来，拜登首次与乌克兰高层面对面会谈。
 
-俄罗斯在对乌克兰的战争中，使用的战略以及科技以及武器，包括大外宣都极其落后，但若让中共国对阵俄罗斯，中共国几乎没有赢的概率。郭先生说党内一些真正懂军事和武器的人透露，中共国尽管可能一开始会占据某些优势，但俄罗斯经过几个小时的调整马上会转败为胜。中共国尚不能赢得处于劣势的俄罗斯，竟然还打算灭掉世界科技最发达的国家美国。并且由于习近平政府超级集权，导致党内和军队的多数人根本不是用来对外的，习近平政府真正要防的是从内部开始的斗争。内部当然会泄密给外部，这相当于中共任何战略部署都是透明的，全部输掉。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEZfAg1.jpg)图片来源：美联社
 
-郭先生说未来的战争一切都是以科技和经济为主，接触性的战争会越来越少。郭先生形容从此以后的战争都是远程的，像打电子游戏一样，谁控制了牵引和通讯权以及太空科技，谁就是赢家。不可能再有国家会有大量的肉体军人。目前有大量军队的国家，如俄罗斯和中共国，军人大多数都是用来暴力维稳自己的国民，而并不是像旧时代那样出征抵抗敌国的。
+根据外媒提供的照片显示，拜登在国务卿布林肯以及的国防部长奥斯汀陪同下，于华沙的万豪酒店会见了乌克兰外交部长库列巴与乌克兰国防部长列兹尼科夫。
 
-郭先生此前的直播中曾提到，人类经过此次疫苗灾难以后，地球上将不再有战争，人类同胞之间会走向和平。
+《美联社》指出，拜登晚些时候将发表重要演说。根据白宫安全顾问苏利文的说法，拜登的演讲与「未来挑战的迫切性」、「在乌克兰发生的冲突对全世界代表着什么」以及「为何自由世界应团结面对俄罗斯的侵略是如此的重要」等主题有关。
 
-撰稿、发布：骄子
+简评：中共作为俄乌战争的元凶，前几天刚刚被点名敲打不要援助俄罗斯，如今拜登总统亲赴乌克兰来关注战事，作为打手的普京政权又要催促中共了。中俄阴谋已大白于天下，明的硬刚又打不过，若不主动止战，马上就要被关门打狗了！
 
-* * *
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3872880](https://news.ltn.com.tw/news/world/breakingnews/3872880)
 
-欢迎订阅我们的GNews账号：
+撰稿/发布：一叶知秋
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,36 @@
 ---
 
 
-## 【G时新闻】GFASHION开始接受使用HPAY支付
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2236177/)
+## 有声|俄乌战局陷入胶着 普京两种可能结局
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236343/)
 
-作者：加拿大温哥华扬帆农场 – 播报：-莉李鲤 – 视频制作：文雅
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3152.png)
-大家好！今天的主题是GFASHION开始接受使用HPAY支付！
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在3月20的《文贵大直播》中，综合多方情报和战争局势的发展，郭先生认为独裁者普京不会停止战争，会面临两种最有可能发生的结局。
 
-3月25日大直播中，文贵先生要求后台导播战友演示如何使用HPAY购买GASHION。我们看到操作很快就完成了，从选好一件单品，到支付订单，HPAY如此顺滑衔接。郭先生表示我们的操作系统可以更加便捷，比如可以使用Gfashion和HPAY账号关联，一步登录，一步支付，给客户带来更加完美的购物体验。
+第一种，普京的家人说服普京让步，或者通过各种渠道让乌克兰让步，达到所谓体面的和解，这是目前让伤亡不再扩大的理想结局。
 
-HPAY自推出到现在，是数字货币支付和转账无缝丝滑体验的标杆。郭先生此前无数次提到过很多用户使用HPAY互相转账，来回转着玩。因为这种体验是传统银行和支付从未给予的，安全隐私且秒到。
+第二种，普京被内部人灭掉，或者普京按下核按钮之时，正义的力量在通信或科技领域进行干预，使核打击化为乌有，普京接受战争罪的审判。
 
-目前市场上的数字货币包括比特币等，不仅没有支付系统，更加不存在流通，电子支付系统如wise、Paypal、支付宝、微信支付等，背后都是银行和金融，他们使用各种方式来控制和奴役人类的财富。
+郭先生表示，根据某国情报部门提供的信息，普京被灭掉的可能性更大。一旦普京政权被颠覆，俄罗斯人民受到的金融制裁就会被取消。这种示范效应对中共国的同胞来说，可谓影响巨大。
 
-数字货币时代的支付系统HPAY打破了这些奴役，而GASHION目前是是衣食住行中的衣，未来人类的方方面面都会接入数字货币。货币的本质就是人类生产力的交换，从喜币系统上线不过数月，就已经与GASHION实现了生产力交换。而那些打着所谓货币性质的各种币，多数已经沦为洗钱币。
-
-从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到彻底解放！
-
-视频链接：[https://gettr.com/post/p11zpa4e3b5](https://gettr.com/post/p11zpa4e3b5)
-
-编辑/上传：蔚蓝之境
-
-————————————————————————————————————
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3153.png)
+郭先生指出，现在全世界都认为普京和和习近平这两个独裁者互相壮胆互相利用，普京是发动战争的罪犯，习近平是普京的金主，两人已经无法摆脱干系。普京的覆灭对中共官员而言，震慑之余，更会加剧内斗，加速中共政权的土崩瓦解。
 
 
+
+文字版原文：[俄乌战局陷入胶着 普京两种可能结局](https://gnews.org/zh-hans/2211668/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

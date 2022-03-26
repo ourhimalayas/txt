@@ -2,26 +2,26 @@
 ---
 
 
-## 樱花头条┃美国对中共官员采取限制性签证发放
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
+## 未来战争将转型为高科技远程作战
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2235359/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-美国国务卿布林肯最新电视讲话：
+作者：澳喜农场 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在3月25日的大直播中指出，人类未来将更多地依赖高科技进行远程战争，近身作战的模式将逐渐被淘汰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.40.43-PM.png)
+郭先生解释称，在此次俄乌战争中，俄罗斯本想在一星期内结束入侵，但由于乌克兰当局利用高科技手段时时锁定俄罗斯军队的行踪，从而导致莫斯科政府的狂妄企图宣告破灭。
 
-将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
+郭先生也补充道，未来，使用大规模军事人员的作战方式将被科技战争和经济战争取代。在这种非接触式战争的模式下，豢养军队的政策将逐渐淡出历史。因此，那些仍旧保留大批军队的国家基本上都是以此镇压本国人民，而非对外作战。此外，虽然核武器也将是未来作战的工具之一，但鉴于其毁灭性的特质，它也很难会轻易出现在战场之中。
 
-信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
+郭先生也强调道，时至今日，因为牵引和通讯技术的改变，掌握世界通讯权以及空中高科技的一方将直接主导战争的走向。
 
-*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+参考链接：[2022年3月25日 文贵大直播](https://gettr.com/streaming/p11tme3b4de)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+
+编辑/总编/审核：Irene木木
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

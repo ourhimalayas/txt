@@ -2,37 +2,38 @@
 ---
 
 
-## 报告：在战争期间俄罗斯对记者犯下148宗罪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234675/)
+## 迪拜即将推出一亿美元的数字资产基金
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235209/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
 
-据News Week 3月26报道，总部位于基辅的大众信息研究所（IMI）周四发布的一份报告指，俄罗斯军方在2月24日至3月23日期间杀害了5名记者，打伤了另外7名记者，并参与了至少136宗针对乌克兰媒体成员的罪行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-222-2.jpg)图片来源: 网络
 
-报告显示，在3月13日，美国屡获殊荣的《时代》杂志记者布伦特·雷诺（Brent Renaud），在基辅郊区伊尔彭（Irpen）的一个检查站被俄军开枪打死。3月14日，福克斯新闻摄制组的两名成员，爱尔兰摄影师皮埃尔·扎克热夫斯基（Pierre Zakrzewski）和乌克兰制片人奥列克桑德拉·库夫什诺娃Oleksandra Kuvshynova，死于俄军炮击戈连卡（Gorenka）村。另有包括福克斯新闻记者本杰明·霍尔（Benjamin Hall）在内的七名记者被俄军打伤。
+该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3-3.jpeg)总部位于乌克兰的大众信息研究所表示，俄罗斯在入侵乌克兰期间至少应对148起针对记者的犯罪负责。2022年3月23日，基辅市长维塔利·克里琴科（Vitali Klitschko）和他的兄弟弗拉基米尔·克里琴科（Wladimir Klitschko）在乌克兰基辅发表讲话时，媒体成员被拍照。（图片来自News Week）
+据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
 
-IMI的报告还指责俄罗斯绑架了至少六名记者，对另外11人发出死亡威胁，并以媒体设施为目标故意向记者开枪。根据国际法，蓄意攻击记者被视为战争罪。
 
-周五，联合国（UN）警告说，记者以及乌克兰当地官员和反对入侵的社会活动家被俄军强迫失踪。联合国记录了15起涉及记者和活动人士的失踪案件，以及22起涉及地方官员的失踪案件。
 
-联合国乌克兰人权监测团团长玛蒂尔达·博格纳（Matilda Bogner）表示，在俄军占领区都会发生强迫失踪事件。
+相关链接:
 
-同样在周五，总部位于巴黎的无国界记者组织（RSF）指控，俄军威胁记者和当地媒体，阻止他们报道事实并强迫传播来自克里姆林宫的虚假宣传。
+[https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-无国界医生组织（MSF）负责人珍妮·卡维利尔（Jeanne Cavelier）在一份声明中指责，俄军轰炸电视塔和向标有“新闻媒体（Press）”的汽车开枪。“我们强烈谴责这些恐吓行为，并呼吁俄罗斯当局停止针对记者，他们将不得不在国际法庭上为自己的行为负责。“卡维利尔补充说
 
-此外，持不同意见的俄罗斯记者在国内也成为攻击目标。俄罗斯一家广播电台的前高级编辑阿列克谢·韦内迪克托夫（Alexei Venediktov）本周表示，他在莫斯科的公寓门口留下了一个被切断的猪头，旁边是一张印有犹太猪字样的乌克兰徽章贴纸。
 
-3月3日，韦内迪克托夫的前广播电台莫斯科“回声（Echo of Moscow）”因敢于批评入侵而被俄罗斯当局停止运营。
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-参考链接：
-[https://reurl.cc/Go3kNG](https://reurl.cc/Go3kNG)
+编辑/校正/发稿：Petite abeille
 
-总编： 老孙
-校对发布：文曦
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

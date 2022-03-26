@@ -2,31 +2,36 @@
 ---
 
 
-## 有声|“圣彼得堡阴谋”将清算中共国的一切
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236392/)
+## 以太坊正在向产权证明（PoS）区块链过渡
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236521/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在3月23日的大直播中，郭文贵先生与战友们分享了俄乌战争接下来的可能走势。
+【作者】纽约香草山农场 健身部 文真
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+以太坊正在从工作证明（PoW）转向产权证明（PoS）的共识机制。如果一切按计划，作为世界第二大加密货币的以太坊，将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
+比特币和以太坊目前使用工作证明算法来确保安全，即”矿工 “解决加密难题，竞争验证新交易区块的权利。成功的矿工会以加密货币作为他们工作的奖励。
+产权证明是区块链网络为实现分布式共识的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
+对比工作证明，产权证明有诸多优势：
+首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。
+第二，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。
+第三，导致网络中出现更多的节点，对中心化有更强的免疫力。
+最后，扩展以太坊网络的一个关键升级，对区块链的支持更强。
+使用产权证明后，验证者不必相互争夺，在能源和计算硬件上花费巨大。相反，他们的加密货币缓存，或产权，允许他们参加抽奖。那些被选中的人获得了验证一组交易的权力（并因此获得更多的加密货币）。表现出不良行为的验证者会受到惩罚——他们会失去一部分股权。
+以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该系统一直在平行运行，而且正在将实际执行交易和用户资产的转移合并到新的系统。
 
-郭先生说，对于俄罗斯发起的这场战争，普京最初认为保守估计一周之内结束，但目前已经持续了一个月之久。俄罗斯深陷战争泥潭，目前只有两个选择，一是打小规模的核战争，二是停战。但停战需要找担保人来调停，普京的“圣彼得堡阴谋”，就是让中共来做担保人，停止这场战争。表面上看体现了中共国的大国风范，但实际上，这会让全世界视国人为敌，在金融、信用、宗教等各方面进行全方位、长时间的限制或制裁，政治灾难不可避免。
+[https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
 
-郭先生指出，真相不会永远被掩盖。中共的所作所为，会在“圣彼得堡阴谋”下彻底暴露，但也会加剧世界对无辜中国人的仇恨。战友们需做好心理准备。
+[https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
 
-文字版原文：[“圣彼得堡阴谋”将清算中共国的一切](https://gnews.org/zh-hans/2228863/)
+校对/发稿：菩提树
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

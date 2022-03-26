@@ -2,30 +2,33 @@
 ---
 
 
-## 乌俄战争以来首次！拜登会见乌克兰外长防长
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2235940/)
+## 有声|中共内战外战大戏即将开始
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236337/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-美国总统拜登今日在波兰首都华沙与乌克兰两位部长级官员会面，这是自乌俄爆发战事以来，拜登首次与乌克兰高层面对面会谈。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+3月19日，郭文贵先生发布盖特视频表示，中共的内战、外战大戏即将开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEZfAg1.jpg)图片来源：美联社
+郭先生说，世界所有的邪恶和灾难，离开虚假就不能成立。中共以假治国、以骗治国，洗脑中共国人，致使很多人不辨是非、黑白、善恶、对错，是导致中共国的大邪、大恶、大灾的根本原因。许多人甚至对香股回到35000点抱有幻想，而侥幸往往是走向灾难的开端。
 
-根据外媒提供的照片显示，拜登在国务卿布林肯以及的国防部长奥斯汀陪同下，于华沙的万豪酒店会见了乌克兰外交部长库列巴与乌克兰国防部长列兹尼科夫。
+郭先生透露，其两位友人的公司，近期因世界供应链的问题及能源价格暴涨，经营难以为继。近日疫苗灾难在全世界各国，普遍引发了恐慌和大量非正常死亡事件。由于中共在背后支持俄罗斯侵略乌克兰，恐怕会导致海外排华事件发生。习近平和普京由于独裁和私欲，会绑架两国人民做他们的炮灰。中共即将对台湾的攻击，也自认为是内部事务，国际社会无权插手。
 
-《美联社》指出，拜登晚些时候将发表重要演说。根据白宫安全顾问苏利文的说法，拜登的演讲与「未来挑战的迫切性」、「在乌克兰发生的冲突对全世界代表着什么」以及「为何自由世界应团结面对俄罗斯的侵略是如此的重要」等主题有关。
+文明与野蛮的区别就在于是否同等尊重对待生命。文明社会制度下，无论人或动物，任何生命都应当得到尊重，伤害生命就应当受到惩罚。文明社会即使执行死刑，也会充分保障死刑犯的人格与尊严。而中共对其内部人士同样残忍。据中共内部人士透露，对孙力军、傅振华、孟建柱、和王岐山等人，将来极有可能通过注射毒针来执行死刑。
 
-简评：中共作为俄乌战争的元凶，前几天刚刚被点名敲打不要援助俄罗斯，如今拜登总统亲赴乌克兰来关注战事，作为打手的普京政权又要催促中共了。中俄阴谋已大白于天下，明的硬刚又打不过，若不主动止战，马上就要被关门打狗了！
+文字版原文：[中共内战外战大戏即将开始](https://gnews.org/zh-hans/2201600/)
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3872880](https://news.ltn.com.tw/news/world/breakingnews/3872880)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-撰稿/发布：一叶知秋
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

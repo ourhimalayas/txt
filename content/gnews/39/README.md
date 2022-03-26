@@ -2,26 +2,28 @@
 ---
 
 
-## 乌克兰强大的防空能力迫使俄空军使用无人机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234631/)
+## 怕影响经济！上海感染人数创新高坚持不封城
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2234776/)
 
-**撰稿：日本东京方舟农场 北极**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+据联合新闻网报道，上海25日新增38例本土中共病毒疫情确诊、2,231例本土无症状感染者，单日新增总感染人数再创新高。
 
-据Ukrinform 3月26日报道，俄乌战争中，乌克兰强大的防空系统严重削弱了俄罗斯空军载人飞机的战斗力，因此俄空军计划使用更多的无人机。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220326214713464.jpg)图片来源：路透
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-8.jpeg)英国国防部在其推特（Twitter）上发布的更新信息（图片来自推特）
+针对封城建议，上海疫情防控领导小组专家组成员、复旦大学上海医学院副院长吴凡坚决表示：「不行」。她强调，上海一旦封城，甚至会影响全球经济。
 
-来自英国国防部在其推特（Twitter）上发布的更新信息显示， 强大的乌克兰防空系统严重打击了越过战争前线的俄空军载人飞行，因此俄罗斯被迫转向使用更多的无人机。
+简评：中共从来都是带血的GDP，只要能创造价值哪管百姓死活，疫情期间也是如此，上海感染人数创新高不封城，怕的是影响经济从不考虑人身健康！中共经济崩塌在即，为了苟延残喘也是拼了，如此操作无异于引鸩止渴，问题集体爆发中共死的更快！
 
-据该推特声明，英国已经制裁了65个为俄罗斯非法入侵乌克兰提供支持的个人和实体。受制裁者包括生产俄罗斯无人机的国防公司克朗斯塔特（Kronshtadt），以及俄罗斯猎户座无人机和其他无人机的生产商。
+新闻来源：[联合新闻网](https://udn.com/news/story/7332/6193771?from=udn_ch2_menu_v2_main_index)
 
-参考链接：
-1. [https://reurl.cc/125x0p](https://reurl.cc/125x0p)
-2. [https://twitter.com/DefenceHQ/status/1507480978553552902](https://twitter.com/DefenceHQ/status/1507480978553552902)
+撰稿/发布：一叶知秋
 
-总编：老孙
-校对发布：文曦
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
