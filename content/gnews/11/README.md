@@ -2,24 +2,38 @@
 ---
 
 
-## 路透社报道 中国石化中止了与俄罗斯企业的合资协议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236731/)
+## 有声|盖特宣布与知名独立记者安迪·恩戈合作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236751/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
-【日经新闻 北京 多部田俊輔】据路透社报道，中共国有石油巨头中石化集团（Sinopec Group）已中止与俄罗斯石化公司西布尔（Sibur）的合资企业协议。 尽管反对欧美等国家的经济制裁，但因担忧制裁可能会影响中俄间的合资企业，中共国政府已敦促相关企业对其在俄业务保持谨慎。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3182.png)图片来源：日本经济新闻
-中石化已中止了与西布尔公司就其考虑投资5亿美元（600亿日元）建设的新石化厂协议。 两家公司已建立了一家中石化持股40%合资企业，计划2024年将一家利用当地天然气的石化厂投入运营，正在考虑扩大合作。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月24日，盖特官方宣布，将与独立记者安迪·恩戈建立新的合作伙伴关系。恩戈表示，他将在盖特上制作名为“每周通知”的独家新闻节目，提供独到的政治评论和分析。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-10.jpeg)
+据悉，安迪·恩戈是全球领先的独立记者之一，在《纽约时报》开设专栏，并且是《后千禧一代》的总编辑，还著有畅销书《揭开面纱：反法西斯组织摧毁民主的激进计划》。恩戈是一个无所畏惧的新闻战士，因坚持言论自由的报道，遭受过暴力和死亡威胁，以及无数所谓的法律法规审查。他表示，很期待与新的受众在盖特上互动。
 
-据相关人士称，除中石化外，中国石油天然气集团公司（CNPC中石油）和中国海洋石油总公司（CNOOC中海油集团）这三家国有石油巨头正在评估其在俄业务的状况。中共国政府已指示它们对收购俄罗斯资产保持谨慎
+盖特CEO米勒先生表示，很荣幸能够与安迪·恩戈这样勇敢的记者合作，为他提供自由言论平台，能够与数百万用户分享讯息。在新闻和言论自由均受到大科技媒体严苛审查的当下，盖特将一直保持政治辩论和重要讯息自由流动，以吸引更多民众自由分享自己的理念与言论。
 
-参考链接：[中国石化、ロシア企業との合弁協議を中止　ロイター報道: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOGM25DF30V20C22A3000000/)
 
-* * *
 
-审核：BryanW
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
+文字版原文：[盖特宣布与知名独立记者安迪·恩戈合作](https://gnews.org/zh-hans/2230016/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

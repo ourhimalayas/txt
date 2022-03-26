@@ -2,31 +2,24 @@
 ---
 
 
-## 有声|日媒称俄乌战争应区分独裁者和国家概念
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236718/)
+## 路透社报道 中国石化中止了与俄罗斯企业的合资协议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236731/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间3月22日，日本媒体在关于俄罗斯侵略乌克兰战争的节目中，强调独裁者和国家两个概念的区别。
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
+【日经新闻 北京 多部田俊輔】据路透社报道，中共国有石油巨头中石化集团（Sinopec Group）已中止与俄罗斯石化公司西布尔（Sibur）的合资企业协议。 尽管反对欧美等国家的经济制裁，但因担忧制裁可能会影响中俄间的合资企业，中共国政府已敦促相关企业对其在俄业务保持谨慎。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3182.png)图片来源：日本经济新闻
+中石化已中止了与西布尔公司就其考虑投资5亿美元（600亿日元）建设的新石化厂协议。 两家公司已建立了一家中石化持股40%合资企业，计划2024年将一家利用当地天然气的石化厂投入运营，正在考虑扩大合作。
 
-主持人首先谈及只有挫败俄罗斯，才能阻止包括中共国在内的独裁专制政权妄图以军事力量改变世界地理版图的野心。嘉宾兴梠先生表示赞同，但马上纠正道，不是要挫败俄罗斯这个国家，而是挫败普京和身边的极个别人。因为这场对乌克兰的侵略战争不是俄罗斯民族或国家发起的，而是普京个人将国家权力私有化之后，作为独裁者发起的。仇视北约的不是俄罗斯，而是掌管俄罗斯政治体制的少数几个人。
+据相关人士称，除中石化外，中国石油天然气集团公司（CNPC中石油）和中国海洋石油总公司（CNOOC中海油集团）这三家国有石油巨头正在评估其在俄业务的状况。中共国政府已指示它们对收购俄罗斯资产保持谨慎
 
-兴梠先生特别强调，这种独裁体制国家里的国民才是真正的受害者。无论是当前的普京还是以前的毛泽东，均利用媒体和教育对国内百姓进行洗脑，使民众成为其独裁政权的提线木偶。而觉醒后看清其真相的民众，纷纷逃离这些独裁国家。独裁国家的最好结局就是人民自己起来反抗，实现政权更迭。同时，西方民主国家真正该探讨的，就是如何消灭这种让人感到恐惧的独裁政权。
+参考链接：[中国石化、ロシア企業との合弁協議を中止　ロイター報道: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOGM25DF30V20C22A3000000/)
 
-文字版原文：[日媒称俄乌战争应区分独裁者和国家概念](https://gnews.org/zh-hans/2229728/)
+* * *
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核：BryanW
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

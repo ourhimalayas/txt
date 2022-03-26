@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 7:30 PM (UTC)`
+
+
+![img](https://media.gettr.com/group3/origin/2022/03/26/19/43e8a0c2-dfc8-7a4f-6aef-7a5d369587c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/26/2022 6:30 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️9⃣️：兰博基尼 Huracan (单价: $210,000.00)<br/>奖品数量：1<br/>获奖者：<br/>LM38286<br/>Discord: 铲共骑侠#9827<br/>获奖者来自纽约香草山农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️9⃣️: Lamborghini Huracan (Unit Value: $210,000.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>LM38286<br/>Discord: 铲共骑侠#9827<br/>The winner is from the New York Mountains of Spices Farm!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -147,13 +154,6 @@
 
 G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图：<br/>中奖者来自联盟，首尔天池农场，波士顿五月花农场，(原)多伦多枫叶农场，东京樱花团和新西兰伊甸农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 2: GFASHION Diamond Whistle - Yellow Gold (Unit Value: $7,499.00)  <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya Korea Seoul Heaven Lake Farm, Himalaya Boston Mayflower Farm, Himalaya Toronto Maple Leaf, Himalaya Tokyo-Ark and Himalaya New Zealand Auckland Eden Domain! <br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group14/getter/2022/03/26/14/be1b035c-a542-cd59-37ff-da9359c35ac9/43906357a5b1afe5c523f60e4dc9b704.jpg)
-
----
-
-`@miles 3/26/2022 1:44 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1：奔驰AMG GT4 (单价: $92,500.00)<br/>奖品数量：1<br/>获奖者：<br/>LM64133<br/>新西兰奥克兰伊甸农场<br/>discord：梦田#6641<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1: Mercedes AMG GT 4-door Coupe (Unit Value: $92,500.00) <br/>Number of Prizes: 1<br/>The winner is: <br/>LM64133<br/>Himalaya NewZealand Auckland Eden Farm<br/>discord：梦田#6641<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/><br/>
-![img](https://media.gettr.com/group16/getter/2022/03/26/13/82582cec-605a-25d2-66ae-766f590531dc/43a71897936ca91deb8782f5de4b660f.jpg)
 
 ---
 
