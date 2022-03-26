@@ -2,20 +2,38 @@
 ---
 
 
-## 樱花时政┃威慑中共国的时间不多了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237149/)
+## 有声|俄罗斯宣布将驱逐美国外交官
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2237231/)
 
-撰稿：东京樱花团/加一颗稻草
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，美国国务院发言人表示，美国驻莫斯科大使馆收到了一份被列为“不受欢迎的人”的外交官名单。此举被媒体解读为俄罗斯不满美国驱逐俄驻联合国外交官员，而做出的回应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3078.png)
+华盛顿上个月表示，出于国家安全考虑，将驱逐驻纽约联合国代表团的 12 名俄罗斯外交官，后来又宣布将驱逐另外一名在联合国工作的俄罗斯外交官，并称其为间谍。但俄罗斯否认了上述指控，并提交了这份“不受欢迎”的美外交官名单。
 
-我们不能让俄罗斯入侵乌克兰分散我们对中国共产党构成的威胁的注意力。就在本周，中共国驻美国大使公开拒绝谴责俄罗斯的入侵。尽管习近平和中共政府否认了这一点，但中共一直在与俄罗斯直接协调并相互比较，因为中共国有吞并台湾的野心，即使普京现在正在吞并乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-19.jpg)[图片来源](https://static.foxnews.com/foxnews.com/content/uploads/2022/02/Putin-Xi.jpg)
-中共国必须明白，在这场冲突中向俄罗斯提供财政或军事援助的任何决定都将直接违反国际和平努力，并将导致对其经济的严重制裁。拜登总统有机会明确这一点，防止中共国破坏国际社会，阻止他们将这场冲突升级到更加危险的程度。如果执行得当，这还有一个额外的好处，那就是在俄罗斯和中共国之间建立一个非常公开的楔子。对中共国建立有意义的威慑的时间已经不多了。
+美国国务院发言人指出，这是俄罗斯在美俄双边关系中最新做出的徒劳无益的一步，他补充说，现在最重要的是美俄应该保留必要的外交人员，以维持两国政府之间的正常沟通。据悉，美俄双方都没有具体说明有多少人受到影响，或者他们何时必须离境。
 
-消息来源：[Time is running out to deter China](https://www.foxnews.com/opinion/time-running-out-deter-china)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+文字版原文：[俄罗斯宣布将驱逐美国外交官](https://gnews.org/zh-hans/2234197/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,28 @@
 ---
 
 
-## 樱花时政┃乌情报总局局长：俄军队被乌线人渗透
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237133/)
+## 简报：美国务院宣布向乌克兰提供1亿美元的民用安全援助
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237172/)
 
-撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵
 
-乌情报局局长布达诺夫在说，乌动员了“非常多人”在俄战线后方进行游击战。乌领土上有非常多俄军，他们包围着乌多座城市。俄方的“误判”对乌克兰部队有利，“俄指挥部多次误判，而我们加以利用”。乌军队顽强抵抗凸显出，俄军作为全球第2大军力是个巨大笑话，它只不过是中世纪的兵力集中、老套战术而已。”布达诺夫接著指出，乌克兰有效利用了线人，“我们在俄军内部有很多线人，不只在俄军，还有他们的政治圈和领导阶层”。
+《路透社》特拉维夫3月26日报道，**周六，美国国务院表示，美国计划再向乌克兰提供1亿美元的民事安全援助。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/民用安全援助-e1648333043284.jpg)3月26日，乌克兰郊外一位老人在摧毁的房子上爬梯子（图片来源：路透社）
+美国国务卿布林肯(Antony Blinken)在一份声明中说，**这些援助将用于建设乌克兰内政部的能力，以帮助“边境安全，维持民事执法职能，并保护关键的政府基础设施”。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-69.png)图片来源于本文链接
+此前**，美国已经向乌克兰提供20亿美元的军事援助以及10亿美元的人道主义援助。**
 
-信息来源：[乌克兰国防部情报总局局长：俄罗斯军队被许多乌克兰线人渗透](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BDfcc%E5%B0%86%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1%E5%92%8C%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8%E5%88%97%E5%85%A5%E5%9B%BD%E5%AE%89%E5%A8%81%E8%83%81%E6%B8%85%E5%8D%95/a-61267699)
+新闻来源链接：
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[U.S. to provide $100 million in civilian security assistance to Ukraine | Reuters](https://www.reuters.com/world/us-provide-100-million-civilian-security-assistance-ukraine-state-dept-2022-03-26/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

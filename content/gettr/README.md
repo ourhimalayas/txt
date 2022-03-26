@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 11:04 PM (UTC)`
+
+2022.03.26 NFSC News  CCP Virus Outbreaks Lockdown Measures Cause Secondary Disasters in Shanghai； Fully-Vaccinated Political Figures Infected With the CCP Virus
+![img](https://media.gettr.com/group43/origin/2022/02/19/00/34bf8d77-03d2-b276-dc46-ab0c4794adbb/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/26/2022 8:20 PM (UTC)`
 
 
@@ -147,13 +154,6 @@
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品4⃣️：GF 钻石玫瑰金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，悉尼奥喜农场，洛杉矶盘古农场，东京樱花团，伦敦喜庄园，新西兰伊甸农场，首尔天池农场，纽约香草山农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 4⃣️: GFASHION Diamond Whistle - Rose Gold (Unit Value: $7,499.00) <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya Australia Aussie Farm, Himalaya LA Pangu, Himalaya Tokyo Sakura Group, Himalaya London Club UK, Himalaya New Zealand Auckland Eden Domain, Himalaya Korea Seoul Heaven Lake Farm, Himalaya New York Mountains of Spices Farm!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group46/getter/2022/03/26/14/f76abf08-546f-35cd-9033-7f07252774f8/1f73a39c53e55862194e6c68fe39be99.jpg)
-
----
-
-`@miles 3/26/2022 2:44 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品3：奔驰GLE COUPE (单价: $76,500.00)<br/>奖品数量：1<br/>获奖者：<br/>LM58406<br/>Discord: 郁金香#8584<br/>中奖者来自洛杉矶盘古农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 3: Mercedes GLE Coupe (Unit Value: $76,500.00)  <br/>Number of Prizes: 1<br/>The winner is: <br/>LM58406<br/>Discord: 郁金香#8584<br/>The winner is from Himalaya LA Pangu!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group14/getter/2022/03/26/14/ad841d72-284c-c01e-28bb-b37ab55e5b01/d759c068f20b7f58ded7ccbcee873e6d.jpg)
 
 ---
 

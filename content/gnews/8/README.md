@@ -2,24 +2,36 @@
 ---
 
 
-## 樱花时政┃俄军在乌克兰战场陷入僵局
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237137/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月26日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2237190/)
 
-撰稿：东京樱花团/上善若水
+作者：香草山翻译部
 
-俄军队依照入侵计划锁定了几个城市，但却无法真正占领这些城市：包括切尔尼戈夫、苏米、哈尔科夫、米科拉耶夫、马里乌波尔，于是开始实施车臣战略——狂轰滥炸。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-41.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-43.png)图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-26.png)
 
-他们急于求成，军队越来越多地集中在顿巴斯，而在其他战线上只是暂时守住阵地而已。”俄方一开始要迅速压垮对方的野心缺乏必要的手段。首先是情报，俄罗斯太空部队徒有虚名，俄军从一开始轰炸乌防空部队的行动遭遇失败。俄军缺乏军事卫星——根据法国方面的信息，可用的军事卫星只有16颗。
+文章仅代表作者本人观点，与Gnews无关
 
-在俄军第一个月发动的攻势中，面对机动且极有效率的乌军阵地，其地面炮兵的制导弹药也很匮乏。加之乌克兰进入解冻期，这将阻碍俄军的行动一直到5月，其众多的坦克被迫以纵队形式在道路上行进，在很大程度上被迫停留在乌公路网上。乌军队对桥梁的破坏在阻滞俄军前进中也发挥了关键作用，俄军最初的战术是，夺下马里乌波尔之后，当第聂伯罗锁链被敲断，从东北部和克里米亚南部的钳形包围就会完成。届时，俄军将控制四分之一乌领土，现在看来，不过是美丽的幻想，俄军目前完全陷入了僵局。
+视频参看：
+[2022.03.26早 《NFSC新闻》](https://gettr.com/streaming/p11zxxuf991)
+[2022.03.26早《NFSC新闻访谈》](https://gettr.com/streaming/p11zljx224e)
 
-信息来源：[侵乌一月俄军在乌克兰陷入僵局 – RFI](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220325-%E4%BE%B5%E4%B9%8C%E4%B8%80%E6%9C%88-%E4%BF%84%E5%86%9B%E5%9C%A8%E4%B9%8C%E5%85%8B%E5%85%B0%E9%99%B7%E5%85%A5%E5%83%B5%E5%B1%80)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-41.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

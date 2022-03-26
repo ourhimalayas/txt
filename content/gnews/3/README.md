@@ -2,28 +2,40 @@
 ---
 
 
-## 简报：美国务院宣布向乌克兰提供1亿美元的民用安全援助
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237172/)
+## 有声|俄罗斯称只接受卢布结算天然气贸易
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2237252/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-翻译与编辑：冰糖葫芦喵
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，普京宣布只接受以卢布支付的天然气贸易，波及的国家均是被普京政府认为“不友好”的国家，包括美国、加拿大，欧盟所有成员国、英国、乌克兰、黑山、瑞士、阿尔巴尼亚、安道尔、冰岛、列支敦士登、摩纳哥、挪威，圣马力诺、北马其顿、日本、韩国、澳大利亚、密克罗尼西亚、新西兰、新加坡和台湾等国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3076.png)
+而早在3月8日，美国已宣布禁止俄罗斯石油、天然气和煤炭进口，以此制裁俄罗斯对乌克兰的侵略。同日，英国宣布至2022年底，逐步禁止进口俄罗斯石油及石油产品，并考虑禁止进口俄天然气。稍后，欧盟也宣布将逐步减少对俄罗斯能源的依赖。
 
-《路透社》特拉维夫3月26日报道，**周六，美国国务院表示，美国计划再向乌克兰提供1亿美元的民事安全援助。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/民用安全援助-e1648333043284.jpg)3月26日，乌克兰郊外一位老人在摧毁的房子上爬梯子（图片来源：路透社）
-美国国务卿布林肯(Antony Blinken)在一份声明中说，**这些援助将用于建设乌克兰内政部的能力，以帮助“边境安全，维持民事执法职能，并保护关键的政府基础设施”。**
+普京拒绝美元和欧元等外币支付俄罗斯天然气，实属无奈之举。在电视会议上，普京煞有介事地强调，将在一周内实施该项政策。
 
-此前**，美国已经向乌克兰提供20亿美元的军事援助以及10亿美元的人道主义援助。**
 
-新闻来源链接：
 
-[U.S. to provide $100 million in civilian security assistance to Ukraine | Reuters](https://www.reuters.com/world/us-provide-100-million-civilian-security-assistance-ukraine-state-dept-2022-03-26/)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+
+文字版原文：[俄罗斯称只接受卢布结算天然气贸易](https://gnews.org/zh-hans/2234153/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
