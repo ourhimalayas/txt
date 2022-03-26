@@ -2,35 +2,29 @@
 ---
 
 
-## 红场传来鸽派言论，强人政治开始撕裂
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2236322/)
+## 有声|比特币去中心化骗局
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236342/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-2022年3月26日，俄罗斯前任总统、总理，俄罗斯安全委员会副主席梅德韦杰夫接受了俄新社采访。整个采访主要围绕着近期俄罗斯与西方社会就乌克兰战争问题展开。访谈中，梅德韦杰夫表达了三个主要观点：
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有。其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化背道而驰，其根本是由极少数人大量持有且高度中心化。由于比特币热搞饥饿营销，市面上传说2100万是比特币的总数量，但这个数量没有任何机构来监管。
 
-首先，梅德韦杰夫认为，那些即不全面也不真实的报道充斥在西方媒体中。他们如同对待过去的朝鲜和古巴一样，正在全面抹煞和造谣俄罗斯。
+事实上，货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本，比特币也不可能运维成本如此高昂的支付系统。没有流通没有支付，这些原因导致了比特币只能沦为洗钱的工具。
 
-其次，因为乌克兰战争的问题，俄罗斯与西方社会的关系甚至比上世纪60、70年代美苏争霸的时代来得更差。而那些，在2010年，为人类和平，世界稳定，与美国奥巴马总统签订“新削减战略武器条约”共同付出过努力的俄罗斯官员，这次也在制裁名单中，梅德韦杰夫认为，显然对于他们而言，这种处理结果并不公平。
+文字版原文：[比特币去中心化骗局](https://gnews.org/zh-hans/2208017/)
 
-最后，梅德韦杰夫认为尽管俄罗斯在其安全受到威胁时会使用核武器，但是当下的谈判任然是最为正确的方式。
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-虽然此次访谈在俄罗斯、白俄罗斯国内报道时，编辑们普遍用“俄罗斯感受到了威胁，将用核武器反击”为题。但是实际上，细读梅德韦杰夫发表的言论，我们能很容易的发现，他在明确的暗示西方社会，并不是所有的俄罗斯官员都支持普京攻打乌克兰。反战的官员以及俄罗斯大量的寡头，并不希望俄乌战争持续下去。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
 
-梅德韦杰夫能够如此胆大的表达反战言论，大概率暗示着普京强人政治已经开始解体，与此同时，损失惨重的俄罗斯军队已经无力在乌克兰战场上持续进攻。西方社会的各类制裁，以及乌克兰军队的奋力抵抗，使得俄罗斯精英阶层的分化加剧。更为重要的是，俄罗斯反战派的各种积极行动似乎表明，他们希望得到西方社会某些公开的承诺，已解除他们推倒普京之后的后顾之忧。
-
-[https://lenta.ru/news/2022/03/26/coldwar/ https://www.belnovosti.by/politika/dmitriy-medvedev-zavil-o-sushchestvovanii-ugrozy-yadernoy-voyny](https://lenta.ru/news/2022/03/26/coldwar/%20https://www.belnovosti.by/politika/dmitriy-medvedev-zavil-o-sushchestvovanii-ugrozy-yadernoy-voyny)
-
-校对/发稿：菩提树
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B6CF6668-4CF3-46A4-B349-47D413F1DEFD.jpeg)
-
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

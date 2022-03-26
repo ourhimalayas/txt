@@ -2,26 +2,30 @@
 ---
 
 
-## GCLUB年度盛会暨GTALKS2022抽奖活动如期开幕
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2235864/)
+## 乌俄首次换囚！19名蛇岛「X俄」勇士获释
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2236151/)
 
-作者：加拿大温哥华杨帆农场-硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+根据乌克兰议会表示，在总统泽伦斯基的命令下，乌克兰将从沉船中救出的11名俄军，换回19名驻守在蛇岛（Zmiinyi Island），曾怒呛「俄罗斯军舰，去你X的！」的乌军，而这也是双方首度达成换囚协议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a-15-edited.jpg)图片来源：盖特
+![](https://assets.gnews.org/wp-content/uploads/2022/03/563075c7-2c24-42e6-8341-c8fa98da9207.jpg)图片来源：Verkhovna Rada of Ukraine – Ukrainian Parliament
 
+当时乌克兰最初表示，蛇岛的所有部队已经阵亡，后来才澄清多名守军仍活着，但遭到俄罗斯俘虏。
 
-据3月26日盖特直播消息，全球喜马拉雅农场瞩目，新中国联邦万众期盼的GCLUB年度抽奖典礼暨GTALKS2022用爱把文化相连活动，于当天美东时间上午9点隆重开幕。
+乌克兰边防局表示，官员一直在努力解救蛇岛的士兵，「我们的士兵将搭乘蓝宝石号返回家园，该船曾遭俄罗斯占领者夺走，而据双边所签订的交换条款，蓝宝石号也将返回乌国，随后转送至土耳其的港口。」
 
-GCLCB创建人郭文贵先生携该公司行政总裁，来自波多黎各的Limmery女士，以及喜马拉雅联盟小新女士着GCLUB最新款服饰，盛装出席了本次活动典礼的开幕式。文贵先生寄语表示：在此激动时刻，兴奋欢欣的心情难以平复，并衷心希望所有GCLUB会员能用喜币为自己的父母，亲人和爱人带去这些世所罕有的珍贵礼物。
+简评：作为敌对双方换俘虏11比19，数字上乌克兰赢了；乌克兰善待俘虏，被俘虏的俄军估计不想回去为普京卖命了，被换回的乌军祖国一直关心着他们，人心上乌克兰也赢了。祝福「X俄」勇士们重获自由，11名俄军则重回地狱！
 
-据悉，本次GCLUB年度典礼活动，不仅将呈现各农场精心准备的表演节目，还有由该公司提供的包括：兰博基尼和奔驰跑车以及GCLUB各款高质精美的服饰礼品等总数1800件抽奖物品。
+新闻来源：[https://news.ttv.com.tw/news/11103260001000W](https://news.ttv.com.tw/news/11103260001000W)
 
-GCLUB大奖跌宕起伏，幸运会员谁主沉浮！敬请期盼！
+撰稿/发布：一叶知秋
 
-* * *
-
-撰稿：硫酸羟氯喹64
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

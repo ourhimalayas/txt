@@ -2,30 +2,24 @@
 ---
 
 
-## 乌俄首次换囚！19名蛇岛「X俄」勇士获释
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2236151/)
+## 俄乌战局最近消息汇总
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236232/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-根据乌克兰议会表示，在总统泽伦斯基的命令下，乌克兰将从沉船中救出的11名俄军，换回19名驻守在蛇岛（Zmiinyi Island），曾怒呛「俄罗斯军舰，去你X的！」的乌军，而这也是双方首度达成换囚协议。
+作者：文斌
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截止当地时间3月25日，俄罗斯已经攻入了乌克兰马里乌波尔市的中心地区并占领了当地的圣母代祷教堂。消息显示，俄军强行将该市六千多居民掳至俄罗斯进内。而哈尔科夫市的一所邮局也被俄军炮火击中，造成6人死亡，15人受伤。 同时，俄罗斯军队在卢甘斯克州和顿涅茨克州的部分地区取得了些许进展，但其主要的几波攻势仍旧被乌克兰方击退。另外，俄乌双方在基辅日托米尔公路沿线、伊尔平和霍斯托梅尔一代的战斗仍在继续，同样的情形也出现在米科拉耶夫州和赫尔松州边界的局部地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-26-上午10.50.48-1.png)
+据乌克兰方的消息指出，虽然俄罗斯多次试图包围切尔尼戈夫，但其在近日的多次进攻均未取得胜利。而为了防止俄军再次试图从海上增援其在马里乌波尔和赫尔松附近的行动，乌克兰军队击沉了俄军一艘奥尔斯克号大型登陆舰。而在双方于哈尔科夫的交战中，乌军重创了俄罗斯第144摩步师第59坦克团的一个营级战术小组。 至于苏梅和赫尔松地区，俄军近期并未出现任何进攻举动，但其对苏梅市的炮轰却仍未停止。此外，俄罗斯在基辅的部队目前被迫处于防守之势，其甚至为了抵御乌克兰军队而修建了新的战壕线。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/563075c7-2c24-42e6-8341-c8fa98da9207.jpg)图片来源：Verkhovna Rada of Ukraine – Ukrainian Parliament
+更多消息，请持续关注本节目的后续报道。
 
-当时乌克兰最初表示，蛇岛的所有部队已经阵亡，后来才澄清多名守军仍活着，但遭到俄罗斯俘虏。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-乌克兰边防局表示，官员一直在努力解救蛇岛的士兵，「我们的士兵将搭乘蓝宝石号返回家园，该船曾遭俄罗斯占领者夺走，而据双边所签订的交换条款，蓝宝石号也将返回乌国，随后转送至土耳其的港口。」
-
-简评：作为敌对双方换俘虏11比19，数字上乌克兰赢了；乌克兰善待俘虏，被俘虏的俄军估计不想回去为普京卖命了，被换回的乌军祖国一直关心着他们，人心上乌克兰也赢了。祝福「X俄」勇士们重获自由，11名俄军则重回地狱！
-
-新闻来源：[https://news.ttv.com.tw/news/11103260001000W](https://news.ttv.com.tw/news/11103260001000W)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+编辑：Irene木木，静言
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

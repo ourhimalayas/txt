@@ -2,23 +2,31 @@
 ---
 
 
-## 新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236233/)
+## 有声|喜马拉雅币一周分析与总结（3月14日-3月20日）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236339/)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+过去一周，喜马拉雅币价格稳定在44美元左右，平均日交易量约5万枚喜币。喜币上市以来总交易量约3080万枚，占今年总发行量的仅约3.08%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+本周郭文贵先生在大直播中透露，喜币上市以来，已经让新中国联邦战友们获得了几百亿美元的收益，这让中共内部触动巨大。中共党内战友透露，喜币在数字货币行业的领先地位，高技术含量，高效的支付系统HPay以及未来的巨大的升值空间等，每一项都将对共产党造成致命打击。郭先生还表示，喜币未来不光会超过比特币，还会超过瑞士银行，会保证所有人财富的安全和隐私，但防止坏人的钱进入。喜币的价值未来将会在公链上由生产力和市场供需决定，并与各国法币无成本联通，真正体现出它对人类文明的贡献。
 
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+本周喜联储主席William先生在接受Bloomberg专栏记者采访时说：“由于银行系统受到金融制裁或俄乌战争的影响，人们会涌向加密货币以保护他们的资产并维持流动性。其中俄罗斯人在加密货币市场中非常活跃。” William先生表示，加密货币在被用作非法活动或逃避制裁的手段时确实令人担忧，但如果加密货币运营者配合监管者进行足够细致的KYC，这个问题就可以很容易解决。William先生还说，“我已经和很多资产管理者以及投资银行交流过，他们中的每一位都已经在研究或投资加密货币领域。加密货币市场会继续蓬勃发展。”
 
-参考链接：[《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
+文字版原文：[喜马拉雅币一周分析与总结（3月14日-3月20日）](https://gnews.org/zh-hans/2204964/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-总编：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

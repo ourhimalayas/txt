@@ -2,30 +2,38 @@
 ---
 
 
-## 乌俄战争以来首次！拜登会见乌克兰外长防长
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2235940/)
+## 【G时新闻】GFASHION开始接受使用HPAY支付
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2236177/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-美国总统拜登今日在波兰首都华沙与乌克兰两位部长级官员会面，这是自乌俄爆发战事以来，拜登首次与乌克兰高层面对面会谈。
+作者：加拿大温哥华扬帆农场 – 播报：-莉李鲤 – 视频制作：文雅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3152.png)
+大家好！今天的主题是GFASHION开始接受使用HPAY支付！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEZfAg1.jpg)图片来源：美联社
+3月25日大直播中，文贵先生要求后台导播战友演示如何使用HPAY购买GASHION。我们看到操作很快就完成了，从选好一件单品，到支付订单，HPAY如此顺滑衔接。郭先生表示我们的操作系统可以更加便捷，比如可以使用Gfashion和HPAY账号关联，一步登录，一步支付，给客户带来更加完美的购物体验。
 
-根据外媒提供的照片显示，拜登在国务卿布林肯以及的国防部长奥斯汀陪同下，于华沙的万豪酒店会见了乌克兰外交部长库列巴与乌克兰国防部长列兹尼科夫。
+HPAY自推出到现在，是数字货币支付和转账无缝丝滑体验的标杆。郭先生此前无数次提到过很多用户使用HPAY互相转账，来回转着玩。因为这种体验是传统银行和支付从未给予的，安全隐私且秒到。
 
-《美联社》指出，拜登晚些时候将发表重要演说。根据白宫安全顾问苏利文的说法，拜登的演讲与「未来挑战的迫切性」、「在乌克兰发生的冲突对全世界代表着什么」以及「为何自由世界应团结面对俄罗斯的侵略是如此的重要」等主题有关。
+目前市场上的数字货币包括比特币等，不仅没有支付系统，更加不存在流通，电子支付系统如wise、Paypal、支付宝、微信支付等，背后都是银行和金融，他们使用各种方式来控制和奴役人类的财富。
 
-简评：中共作为俄乌战争的元凶，前几天刚刚被点名敲打不要援助俄罗斯，如今拜登总统亲赴乌克兰来关注战事，作为打手的普京政权又要催促中共了。中俄阴谋已大白于天下，明的硬刚又打不过，若不主动止战，马上就要被关门打狗了！
+数字货币时代的支付系统HPAY打破了这些奴役，而GASHION目前是是衣食住行中的衣，未来人类的方方面面都会接入数字货币。货币的本质就是人类生产力的交换，从喜币系统上线不过数月，就已经与GASHION实现了生产力交换。而那些打着所谓货币性质的各种币，多数已经沦为洗钱币。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3872880](https://news.ltn.com.tw/news/world/breakingnews/3872880)
+从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到彻底解放！
 
-撰稿/发布：一叶知秋
+视频链接：[https://gettr.com/post/p11zpa4e3b5](https://gettr.com/post/p11zpa4e3b5)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+编辑/上传：蔚蓝之境
+
+————————————————————————————————————
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3153.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,34 @@
 ---
 
 
-## 有声|中共助纣为虐 国人被指元凶
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236484/)
+## 波罗的海三国议长访问乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236554/)
 
-配音：香草山佛教部 – 李傻
+作者：纽约香草山农场-saner三二，Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日大直播中，郭文贵先生就美国总统拜登表示俄乌战争中，中共国没有向俄罗斯提供武器一事，进行了深度分析。郭先生指出，拜登的这种说法，实际意在强调中共国向俄方提供了除武器以外的一切支持，包括资金、粮食、通讯、情报等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-59.jpg)
-郭先生说，尽管驻美大使秦刚在接受美国媒体采访时，一再否认中共国向俄罗斯提供了军事援助，但由于中共国所有的武器技术都是来自俄罗斯，在黑龙江、牡丹江、鸭绿江属于俄罗斯的武器加工厂就多达70家，俄罗斯不需要中共国提供武器。战争的本质就是烧钱。人民币石油化，数字人民币对美国的挑战，其帮助远远大于俄乌战争本身。
+当地时间3月24日，据相关媒体报道，波罗的海三国，即立陶宛、爱沙尼亚和拉脱维亚的议长于当天陆续抵达乌克兰首都基辅，与总统泽连斯基及其他政府官员会面。
 
-郭先生警告，由于中共和俄罗斯如此密切的合作，西方人已认识到，中共国是俄罗斯入侵乌克兰的元凶而不只是帮凶，俄罗斯仅是被操纵的替死鬼。俄乌战争将使中国人陷入悲惨的境地。这是中国人难以承受的结果。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-6.jpeg)
 
+据悉，波罗的海三国与乌克兰共同签署的一份联合声明显示，乌克兰正在为共享价值而战，所有自由民主国家都应在政治、防卫、人道和经济等领域竭尽所能地向其提供协助。为此，三国会持续支持乌克兰尽快加入欧盟。同时，三国也将推动北大西洋公约组织继续维持门户开放的政策，并开始为乌克兰的重建作准备。
 
+另一方面，三国议长也在声明中呼吁国际社会立即在乌克兰领空设置“禁航区”，用以避免当地平民大规模的伤亡。至于俄罗斯方面，三国则敦促全球各国彻底停止与俄罗斯的贸易活动，并持续政治孤立俄罗斯，而俄罗斯在所有国际组织和实体的会员资格则需要被暂停或撤销。
 
-文字版原文：[中共助纣为虐 国人被指元凶](https://gnews.org/zh-hans/2228950/)
+三国议长也强调，绝不能让犯下战争罪行的俄罗斯有机会逃避惩罚。因此，各国必须协助国际法院和国际刑事法院尽快完成详实的调查，并执行所有必要程序。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+同一天，立陶宛与乌克兰两国的国防部长也就乌克兰的防御工作进行了交流。其中，两国政府确认将继续维持合作关系。此外，立陶宛国防部长也表示，立陶宛将不仅在口头上支持乌克兰，其已经向乌克兰提供了第一枚毒刺导弹。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：
+1. [https://twitter.com/a\_anusauskas/status/1506674407116316685?s=21](https://twitter.com/a_anusauskas/status/1506674407116316685?s=21)
+2. [https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21](https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21)
+3. [Baltic parliament speakers visit Kyiv, address Verkhovna Rada of Ukraine](https://news.err.ee/1608542443/baltic-parliament-speakers-visit-kyiv-address-verkhovna-rada-of-ukraine)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTu**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+审核/总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

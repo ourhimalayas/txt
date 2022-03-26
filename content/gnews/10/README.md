@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|比特币去中心化骗局
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236342/)
+## 俄罗斯政权内部异变&#8230;&#8230;要人辞职、杳无音信， &#8220;政变在所难免&#8221;(上)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236497/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-3月20日大直播中郭先生与战友分享，比特币是伊朗、华尔街、沼泽地、俄罗斯和中共共同拥有。其中2%的人控制着96.5%的比特币，这和比特币一直宣传的去中心化背道而驰，其根本是由极少数人大量持有且高度中心化。由于比特币热搞饥饿营销，市面上传说2100万是比特币的总数量，但这个数量没有任何机构来监管。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
+在俄罗斯入侵乌克兰一个月后，普京政权内部出现了一系列不寻常的事件。 甚至有迹象表明，普京总统所依赖的情报部门正在酝酿一场 “政变”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3172.png)图片来源：读卖新闻
+3月23日，据透露，总统负责与国际组织协调的特别代表阿纳托利-丘拜斯因反对入侵乌克兰而辞职并离开了该国。
 
-事实上，货币的本质其一就是流通，由于数量的限制，比特币的流通交易成本极其昂贵，贵过人类制造黄金的成本，比特币也不可能运维成本如此高昂的支付系统。没有流通没有支付，这些原因导致了比特币只能沦为洗钱的工具。
+丘拜斯是一位自由主义者，在20世纪90年代苏联解体后担任叶利钦政府的总统秘书和第一副总理，并推动向市场经济转型的改革。 虽然他不是普京的亲信，但作为入侵后第一个离开政权的关键人物备受关注。
 
-文字版原文：[比特币去中心化骗局](https://gnews.org/zh-hans/2208017/)
+此前，前副总理阿尔卡季·德沃尔科维奇辞去了一个政府基金负责人的职务。德沃尔科维奇曾向美国媒体表达了他对入侵的反对意见。 支持普京的政权的一些新兴资本（商业寡头）也公开反对战争。
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+美国彭博通讯社报道说，最近由普京钦定的第三任中央银行行长纳比利纳在入侵开始后也宣布辞职。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-1.png)
+包括CNN在内的美国和欧洲媒体对国防部长谢尔盖-绍伊古的行踪在近两周内没有被披露，他们对此表示出强烈的关心
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+下一篇：[俄罗斯政权内部异变……要人辞职、杳无音信， “政变在所难免”（下）](https://gnews.org/zh-hans/2236528/)
+
+参考链接：[ロシア政権内部に異変…要人辞任・動静途絶、「クーデター辞さず」観測も : 国際 : ニュース : 読売新聞オンライン (yomiuri.co.jp)](https://www.yomiuri.co.jp/world/20220326-OYT1T50080/)
+
+* * *
+
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-15.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

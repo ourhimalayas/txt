@@ -2,29 +2,33 @@
 ---
 
 
-## 天基移动电话网络公司与SpaceX签署发射协议
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236471/)
+## 中共联合国投票彰显对俄罗斯的支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236525/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-目前唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间的蜂窝宽带网络。
-据悉，该公司总部位于美国德州，并在英国设有基地。该公司计划今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来测试与手机进行标注频率通信，并在未来发射BlueBird卫星。
-据该公司管理者透露，其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，据多家媒体报道，在联合国大会当天举行的第11届紧急特别会议的第二次会议投票中，由乌克兰提交的有关该国人道问题的决议获得了通过。
 
-[https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-11.jpeg)
 
-[https://video.foxnews.com/v/6301852036001#sp=show-clips](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
+资料显示，该决议由包括乌克兰、美国和英国在内的61个国家联合发起，决议旨在推动在当地建立人道主义走廊的进程，同时要求俄罗斯停止战斗并尽快撤军。此外，决议中也指责称，俄罗斯对乌克兰的军事行动已经造成了严重的不人道主义后果。 会上，该决议以140票赞成顺利得到了通过，而仅有的五张反对票中就包括了战争发起国俄罗斯。
 
-校对/发稿：菩提树
+值得注意的是，中共在此次投票中选择了弃权，但在前一天的联合国安理会上，中共却坚决支持俄罗斯发起的类似草案决议，其是除俄罗斯外唯一投赞成票的国家。有报道提及，俄罗斯的决议草案中没有涉及对发动战争的俄罗斯追责的条款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
+早先，郭文贵先生曾在直播中示警称，中共在此次俄乌战争中的拙劣表演可能会导致中国人在接下来的百年中为世界所憎恶。对此，分析人士指出，这两次联合国投票已经彰显了中共为虎作伥的行为，其或将再次为今后的排华危机埋下祸根。
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+参考链接：
+1. [联大通过乌克兰人道问题决议](https://news.un.org/zh/story/2022/03/1100982)
+2. [联大通过乌克兰提交的人道问题决议，中方弃权](https://www.sohu.com/a/532487592_115479)
+3. [俄乌局势昨夜今晨丨联合国安理会未通过乌克兰人道问题决议草案 中方呼吁尽 
+最大努力寻求共识](https://world.huanqiu.com/article/47Jj3iA7wj4)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+审核/总编：Irene木木
+编辑：玫瑰圓
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

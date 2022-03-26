@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 4:59 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️4⃣️：GF 钻石铂金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，洛杉矶盘古农场，纽约香草山农场，华盛顿DC农场，波士顿五月花农场，东京樱花团，新西兰伊甸农场！恭喜中奖者！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️4⃣️： GFASHION Diamond Whistle- White Gold (Unit Value: $7,499.00) <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya LA Pangu, Himalaya New York Mountains of Spices Farm, Himalaya Washington DC Farm, Himalaya Boston Mayflower Farm, Himalaya Tokyo Sakura Group, Himalaya New Zealand Auckland Eden Domain!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group30/getter/2022/03/26/16/6c46e221-108b-6c06-8c00-860ecf2dca55/45a6812415f001baeb832bc3594dda6f.jpg)
+
+---
+
+`@miles 3/26/2022 4:55 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️3⃣️：GF 黑铑金信仰之星手环 (单价: $2,400.00)<br/>奖品数量：40<br/>获奖者来自以下农场：日本银河系农场、喜马拉雅农场联盟、多伦多枫叶农场、、韩国首尔天池农场、东京樱花团、美国波士顿五月花农场、华盛顿DC农场、纽约香草山农场、洛杉矶盘古农场 ！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️3⃣️: GFASHION Star Bracelet--Black Rhodium (Unit Value: $2,400.00) <br/>Number of Prizes: 40<br/>The winners are from the following farms: Himalaya Japan Galaxy，Himalaya Global Alliance，Himalaya Toronto Maple Leaf（CA）， Himalaya Korea Seoul Heaven Lake Farm， Himalaya Tokyo Sakura Group，Himalaya Boston Mayflower Farm,  Himalaya Washington DC Farm, Himalaya New York Mountains of Spices Farm, Himalaya LA Pangu!<br/><br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group48/getter/2022/03/26/16/b761259c-466e-0801-57bc-e2620b98f91e/b68831c49595e947a33478d8c1571d95.jpg)
+
+---
+
 `@miles 3/26/2022 4:42 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️2⃣️：GF 钻石黑铑金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，(原)多伦多枫叶农场，洛杉矶盘古农场，首尔天池农场，东京银河系农场，纽约香草山农场，华盛顿DC农场，波士顿五月花农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️2⃣️: GFASHION Diamond Whistle- Black Rhodium (Unit Value: $7,499.00)<br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya Toronto Maple Leaf, Himalaya LA Pangu, Himalaya Japan Galaxy, Himalaya New York Mountains of Spices Farm, Himalaya Washington DC Farm, Himalaya Boston Mayflower Farm!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -142,20 +156,6 @@ G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限�
 
 <br/>3月26日：尊敬的战友们好！看了这个视频一直想吐，却吐不出来．咋办呢？
 ![img](https://media.gettr.com/group43/getter/2022/03/26/09/beeb681b-cb64-a8a0-aa61-1366ea00d9c9/out.jpg)
-
----
-
-`@miles 3/26/2022 8:42 AM (UTC)`
-
- 3月26号：尊敬的战友们好！一年一次的G 俱乐部年会将在三个小时左右隆重开幕……你们准备好了吗？💪💪💪💪❤️❤️❤️❤️❤️✡️✡️✡️✡️✡️✡️㊗️㊗️㊗️㊗️㊗️
-![img](https://media.gettr.com/group38/getter/2022/03/26/08/aeb9b3e0-b7dd-b194-2a11-20236ae1fc5f/83d7704037129b46c1d2f0399b7aa6c6.jpg)
-
----
-
-`@miles 3/26/2022 6:23 AM (UTC)`
-
-3/25/2022 Miles Guo: Why did even the world-class politicians and the Swamp misjudge the Russia-Ukraine war in the first place? The New Federal State of China hopes its fellow fighters to have the ability to distinguish between true and false, and good and evil. If Communist China and Russia went to war, the CCP would be defeated for sure. Those in the CCP’s military believe that within the next few decades, the CCP will have no military to confront the West whatsoever!<br/><br/>3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？新中国联邦希望战友们都具备辨别真假善恶的能力；若中俄开战，中共必败；中共军方人士认未来几十年之内，中共和西方进行军事抗衡的能力为零！<br/>
-![img](https://media.gettr.com/group39/getter/2022/03/26/06/6c7ab1ae-3e45-b1c1-fa62-0cd8d2ce4a2c/out.jpg)
 
 ---
 
