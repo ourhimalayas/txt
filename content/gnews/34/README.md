@@ -2,36 +2,34 @@
 ---
 
 
-## 以太坊正在向产权证明（PoS）区块链过渡
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236521/)
+## 波罗的海三国议长访问乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236554/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-以太坊正在从工作证明（PoW）转向产权证明（PoS）的共识机制。如果一切按计划，作为世界第二大加密货币的以太坊，将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
-比特币和以太坊目前使用工作证明算法来确保安全，即”矿工 “解决加密难题，竞争验证新交易区块的权利。成功的矿工会以加密货币作为他们工作的奖励。
-产权证明是区块链网络为实现分布式共识的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
-对比工作证明，产权证明有诸多优势：
-首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。
-第二，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。
-第三，导致网络中出现更多的节点，对中心化有更强的免疫力。
-最后，扩展以太坊网络的一个关键升级，对区块链的支持更强。
-使用产权证明后，验证者不必相互争夺，在能源和计算硬件上花费巨大。相反，他们的加密货币缓存，或产权，允许他们参加抽奖。那些被选中的人获得了验证一组交易的权力（并因此获得更多的加密货币）。表现出不良行为的验证者会受到惩罚——他们会失去一部分股权。
-以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该系统一直在平行运行，而且正在将实际执行交易和用户资产的转移合并到新的系统。
+作者：纽约香草山农场-saner三二，Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，据相关媒体报道，波罗的海三国，即立陶宛、爱沙尼亚和拉脱维亚的议长于当天陆续抵达乌克兰首都基辅，与总统泽连斯基及其他政府官员会面。
 
-[https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-6.jpeg)
 
-[https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
+据悉，波罗的海三国与乌克兰共同签署的一份联合声明显示，乌克兰正在为共享价值而战，所有自由民主国家都应在政治、防卫、人道和经济等领域竭尽所能地向其提供协助。为此，三国会持续支持乌克兰尽快加入欧盟。同时，三国也将推动北大西洋公约组织继续维持门户开放的政策，并开始为乌克兰的重建作准备。
 
-校对/发稿：菩提树
+另一方面，三国议长也在声明中呼吁国际社会立即在乌克兰领空设置“禁航区”，用以避免当地平民大规模的伤亡。至于俄罗斯方面，三国则敦促全球各国彻底停止与俄罗斯的贸易活动，并持续政治孤立俄罗斯，而俄罗斯在所有国际组织和实体的会员资格则需要被暂停或撤销。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
+三国议长也强调，绝不能让犯下战争罪行的俄罗斯有机会逃避惩罚。因此，各国必须协助国际法院和国际刑事法院尽快完成详实的调查，并执行所有必要程序。
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+同一天，立陶宛与乌克兰两国的国防部长也就乌克兰的防御工作进行了交流。其中，两国政府确认将继续维持合作关系。此外，立陶宛国防部长也表示，立陶宛将不仅在口头上支持乌克兰，其已经向乌克兰提供了第一枚毒刺导弹。
 
+参考链接：
+1. [https://twitter.com/a\_anusauskas/status/1506674407116316685?s=21](https://twitter.com/a_anusauskas/status/1506674407116316685?s=21)
+2. [https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21](https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21)
+3. [Baltic parliament speakers visit Kyiv, address Verkhovna Rada of Ukraine](https://news.err.ee/1608542443/baltic-parliament-speakers-visit-kyiv-address-verkhovna-rada-of-ukraine)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+审核/总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
