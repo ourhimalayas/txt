@@ -2,24 +2,36 @@
 ---
 
 
-## 路透社报道 中国石化中止了与俄罗斯企业的合资协议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236731/)
+## 有声|中共亲苏派与亲美派的巨大差异
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236735/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
-【日经新闻 北京 多部田俊輔】据路透社报道，中共国有石油巨头中石化集团（Sinopec Group）已中止与俄罗斯石化公司西布尔（Sibur）的合资企业协议。 尽管反对欧美等国家的经济制裁，但因担忧制裁可能会影响中俄间的合资企业，中共国政府已敦促相关企业对其在俄业务保持谨慎。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3182.png)图片来源：日本经济新闻
-中石化已中止了与西布尔公司就其考虑投资5亿美元（600亿日元）建设的新石化厂协议。 两家公司已建立了一家中石化持股40%合资企业，计划2024年将一家利用当地天然气的石化厂投入运营，正在考虑扩大合作。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月23日的大直播中，郭文贵先生指出，中共是被苏联共产邪魔附体的组织，其对国人的屠杀远超日本侵华战争。中共内分亲苏派与亲美派，两派的巨大差异与争斗，是导致中共国走向的关键因素。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-41.jpg)
+亲美派则认为中国需要改革开放，亲苏派却把老百姓当作奴隶看待。历史上俄罗斯侵占了中国大片领土，一手策划了将外蒙古从中华民国分裂出去的事件，还曾计划对中共国进行外科手术式的核打击，企图把中国人从地球上消灭，而正是美国人出手才制止了苏联的疯狂念头。因此，中共内部任何一个亲苏派都是极为可怕的。亲苏还是亲美，对中共国的未来也是一个决定因素。
 
-据相关人士称，除中石化外，中国石油天然气集团公司（CNPC中石油）和中国海洋石油总公司（CNOOC中海油集团）这三家国有石油巨头正在评估其在俄业务的状况。中共国政府已指示它们对收购俄罗斯资产保持谨慎
 
-参考链接：[中国石化、ロシア企業との合弁協議を中止　ロイター報道: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOGM25DF30V20C22A3000000/)
 
-* * *
+文字版原文：[中共亲苏派与亲美派的巨大差异](https://gnews.org/zh-hans/2229159/)
 
-审核：BryanW
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

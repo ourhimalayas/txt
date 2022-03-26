@@ -2,87 +2,31 @@
 ---
 
 
-## 有声|战火纷飞无春天
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236566/)
+## 拜登以天安门形容乌克兰
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236582/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-春暖花开、姹紫嫣红，
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
+美国总统乔·拜登(Joe Biden)3月25日在波兰乌的克兰边境附近访问时，将俄罗斯入侵乌克兰比作中国通过行使武力镇压示威的1989年天安门(Tiananmen)事件。
 
-人家最美四月天，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3174.png)图片来源：雅虎新闻
 
-可是世界的那一边，
+拜登赞赏乌克兰在对抗俄军入侵中展现出风骨，还提及一名30岁女性手持步枪站在坦克前的画面，“我的意思是，谈谈在天安门广场发生的事情，这就是天安门广场。”此外，他还重申俄总统普廷是一名“战争犯”。
 
-乌克兰的勇士在战火中死去，
+拜登在与驻扎在当地的美军士兵，以及大量主动援助来自乌克兰难民的积极分子的集会中，称赞乌克兰人对俄罗斯表现出的“骨气”。当谈到一个女人拿着来福枪面对坦克的例子时，他说：“就像发生在天安门广场的事情一样。”（影响是天安门事件的几何倍数）
 
-侵略者的铁蹄还在递进，
+此外，对于俄罗斯总统弗拉基米尔·普京(Vladimir Putin)，他明确表示：“坦率地说，我认为他是战争罪犯。”他说：“（普京）也满足它本身的法律定义。”
 
-乌克兰的人们跨着身边炸碎的死体，
+拜登此後将前往首都华沙，与波兰首脑们举行会谈。
 
-抱着孩子还在黑暗中逃亡。
+参考链接：[バイデン氏、ウクライナ侵攻を天安門になぞらえ（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/228abe91cf449c30bc7000a224a6cee68feff180)
 
-她们离开的家园处处充斥着荒凉、荒废、
+* * *
 
-苦难的人们没有春天，
-
-热爱和平的世界没有春天。
-
-硝烟弥漫的残忍世界，
-
-多少年轻的生命在炮火中悲壮而逝，
-
-书写着乌克兰的勇敢和团结，
-
-一个民族不屈的精神，
-
-任凭邪恶野心汹涌，屠刀无情，
-
-也挡不住英雄冲为先锋的坚定步伐，
-
-都只为了妻女美好的未来，
-
-乌克兰男人没有懦夫。
-
-都只为了给丈夫爱的温暖，
-
-给孩子蓝色的天空，
-
-美丽的乌克兰女人没有一个是弱者，
-
-伟大的民族在战火中如凤凰涅槃，
-
-用鲜血开启了一个新的文明。
-
-感谢你，勇敢的民族，
-
-是你带来正义的力量，
-
-感谢你，不屈的民族，
-
-是你为世界勇抵邪恶，
-
-灭共的我们永远跟你们站在一起，
-
-因为都是同一个人类，
-
-同一个信仰， 自由、民主、法制，
-
-荣耀归伟大的乌克兰！
-
-文字版原文：[战火纷飞无春天](https://gnews.org/zh-hans/2223787/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

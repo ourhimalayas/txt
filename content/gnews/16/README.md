@@ -2,31 +2,87 @@
 ---
 
 
-## 拜登警告“粮食短缺”即将成为现实
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236565/)
+## 有声|战火纷飞无春天
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236566/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+春暖花开、姹紫嫣红，
+
+人家最美四月天，
+
+可是世界的那一边，
+
+乌克兰的勇士在战火中死去，
+
+侵略者的铁蹄还在递进，
+
+乌克兰的人们跨着身边炸碎的死体，
+
+抱着孩子还在黑暗中逃亡。
+
+她们离开的家园处处充斥着荒凉、荒废、
+
+苦难的人们没有春天，
+
+热爱和平的世界没有春天。
+
+硝烟弥漫的残忍世界，
+
+多少年轻的生命在炮火中悲壮而逝，
+
+书写着乌克兰的勇敢和团结，
+
+一个民族不屈的精神，
+
+任凭邪恶野心汹涌，屠刀无情，
+
+也挡不住英雄冲为先锋的坚定步伐，
+
+都只为了妻女美好的未来，
+
+乌克兰男人没有懦夫。
+
+都只为了给丈夫爱的温暖，
+
+给孩子蓝色的天空，
+
+美丽的乌克兰女人没有一个是弱者，
+
+伟大的民族在战火中如凤凰涅槃，
+
+用鲜血开启了一个新的文明。
+
+感谢你，勇敢的民族，
+
+是你带来正义的力量，
+
+感谢你，不屈的民族，
+
+是你为世界勇抵邪恶，
+
+灭共的我们永远跟你们站在一起，
+
+因为都是同一个人类，
+
+同一个信仰， 自由、民主、法制，
+
+荣耀归伟大的乌克兰！
+
+文字版原文：[战火纷飞无春天](https://gnews.org/zh-hans/2223787/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，据外媒消息显示，美国总统拜登当天在布鲁塞尔举行的新闻发布会上确认，全球粮食短缺问题将成为现实。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-9.jpeg)
-
-拜登提到，世界因战争对俄罗斯做出的制裁正在使得很多国家一同承担了相应代价，当中包括美国和欧洲。此前，俄罗斯和乌克兰在小麦方面一直是欧洲的粮仓，但如今，战争减少了乌克兰的生产，而制裁则阻止了其他国家与俄罗斯的贸易。
-
-为此，美国和欧洲各国近期在峰会期间反复讨论了关于粮食短缺的问题，以及一些可以采取的应对措施。拜登透露，国际社会或将敦促所有欧洲和其他国家结束对向国外运送粮食的贸易限制，同时，美国可以提供人道主义援助方面的重大投资。
-
-据了解，目前，美国从食品到燃料再到供应等各个方面的消费价格一直在上涨，且随着乌克兰冲突的持续，人们越来越担心这类价格上涨或许将不再减弱，反而愈演愈烈。
-
-参考链接：[BREAKING: Biden says ‘food shortages are gonna be real’](Biden%20says%20'food%20shortages%20are%20gonna%20be%20real')
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑/审核：飞虹
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

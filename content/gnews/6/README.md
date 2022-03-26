@@ -2,31 +2,21 @@
 ---
 
 
-## 有声|日媒称俄乌战争应区分独裁者和国家概念
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236718/)
+## 三大评级机构撤销对俄罗斯的评级
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2236720/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间3月22日，日本媒体在关于俄罗斯侵略乌克兰战争的节目中，强调独裁者和国家两个概念的区别。
+编辑：文宝
 
-主持人首先谈及只有挫败俄罗斯，才能阻止包括中共国在内的独裁专制政权妄图以军事力量改变世界地理版图的野心。嘉宾兴梠先生表示赞同，但马上纠正道，不是要挫败俄罗斯这个国家，而是挫败普京和身边的极个别人。因为这场对乌克兰的侵略战争不是俄罗斯民族或国家发起的，而是普京个人将国家权力私有化之后，作为独裁者发起的。仇视北约的不是俄罗斯，而是掌管俄罗斯政治体制的少数几个人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/评级.jpg)
 
-兴梠先生特别强调，这种独裁体制国家里的国民才是真正的受害者。无论是当前的普京还是以前的毛泽东，均利用媒体和教育对国内百姓进行洗脑，使民众成为其独裁政权的提线木偶。而觉醒后看清其真相的民众，纷纷逃离这些独裁国家。独裁国家的最好结局就是人民自己起来反抗，实现政权更迭。同时，西方民主国家真正该探讨的，就是如何消灭这种让人感到恐惧的独裁政权。
+**3月26日电，据今日俄罗斯报道，全球三大信用评级机构——标准普尔、惠誉和穆迪撤销了对俄罗斯和俄罗斯实体的评级，以遵守欧盟对俄罗斯实施的与乌克兰有关的制裁。3月15日，作为一揽子经济制裁的一部分，欧盟禁止国际金融机构对俄罗斯和俄罗斯公司进行评级，并要求他们在4月15日前撤销评级。在退出之前，这三家评级机构都将俄罗斯主权债券的信用评级下调至垃圾级。此前，俄罗斯方面宣布，由于其在海外持有的大量外币已被冻结，只能以本国货币偿还债务。**
 
-文字版原文：[日媒称俄乌战争应区分独裁者和国家概念](https://gnews.org/zh-hans/2229728/)
+原文链接：[https://new.qq.com/omn/20220326/20220326A0ATLS00.html](https://new.qq.com/omn/20220326/20220326A0ATLS00.html)
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-23.png)DISCORD
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-22.png)GETTR
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
