@@ -2,33 +2,31 @@
 ---
 
 
-## 俄罗斯第49军司令列赞采夫中将被击毙
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2229496/)
+## 【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2230079/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+作者：加拿大温哥华扬帆农场 G时新闻 – 播报：yuyu-视频制作：文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+据英国【每日内幕】3月21日报道，加拿大政府的最新疫情数据显示，与未接种“新冠病毒”疫苗者的自然免疫系统相比，完全接种人群平均损失了74%的免疫系统能力。
 
-俄罗斯在乌克兰战争中又一位将军被乌克兰武装力量击毙，48岁的雅科夫·列赞采夫（Yakov Rezantsev）中将在乌克兰武装部队的一次攻击中丧生，列赞采夫曾任南方军区第49合成军军长。一名军人说，雅科夫·列赞采夫中将在入侵开始的第四天曾告诉他们，战争很快就会结束。
+据悉，目前该疫苗已对接种者造成了巨大健康损害，与未接种者相比，已注射过两剂疫苗的人群感染“新冠病毒”的可能性要高出3.8倍，而因此死亡可能性则高出 3.3 倍。此外，三联疫苗接种人群的情况更为严峻，因为与未接种者相比，前者死亡的可能性要高出 5.1 倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-25_22-41-25.png)
+以上所有官方数据均表明，大部分已完全接种疫苗者的免疫系统现在都遭受到了巨大的损害，并因此已逐渐发展为类似与艾滋病的获得性免疫缺陷综合症。
 
-俄方迄今尚未确认列赞采夫死亡，分析人士认为，俄罗斯指挥官现在的伤亡率比二战以来的任何武装冲突都要高。
+上传：兴旺
 
-专家们表示，俄罗斯高级军官倒下的原因可能有一个目录。此前有报道称俄罗斯军队的装备和电子设备不可靠，以及下属害怕做出快速决定。俄罗斯军队没有主动性，没有士官团，下级没有主动感，他们等着被告知该怎么做。而乌克兰人的狙击手非常非常好，当俄罗斯指挥系统崩溃时，他们能够瞄准关键人物。
+视频连接：https://www.gettr.com/post/p11osvx8cfc
 
-西方消息人士称，许多俄罗斯将领被杀是因为他们被推到比平时更靠近前线的地方，以提高俄罗斯士兵的士气，或者需要他们的资历才能让部队前进。一位不愿透露姓名的外交官说，俄罗斯将军们必须奋力到前线才能完成他们的命令。俄罗斯在入侵仅四天，第一个将军就去世了，而在此后的短短三周内，大量俄罗斯军事领导人在战斗中丧生。
+* * *
 
-俄罗斯还在采用斯大林第二次世界大战的“行刑队”，造成俄罗斯军队士气低落。据报道，普京和克里姆林宫在他们自己的军队之后派出行刑队，下令杀死任何试图逃跑的俄罗斯人。乌克兰安全部门声称，战俘告诉他们俄罗斯可怕的战术，俄罗斯“行刑队的枪把他们自己的士兵当作目标瞄准了。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-有报道称，车臣部队被派往试图阻止俄罗斯士兵逃跑。根据基辅发布的俄罗斯战俘的视频显示，俄罗斯战俘在镜头前说，他们宁愿选择退出而不是继续战斗。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-参考数据：
-
-[Russian general who bragged ‘war would be over quickly’ killed in Ukraine strike](https://www.mirror.co.uk/news/world-news/breaking-russian-general-killed-strike-26554643)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

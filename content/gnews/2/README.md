@@ -2,8 +2,8 @@
 ---
 
 
-## 所谓的世界大人物并没有多么厉害，我们的唯真不破太重要了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231627/)
+## 七哥对救援前线战友们的嘱咐，染病可能就是疫苗和病毒结合
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231664/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

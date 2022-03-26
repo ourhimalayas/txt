@@ -2,8 +2,8 @@
 ---
 
 
-## 俄罗斯重要人物大骂普京是疯子
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231615/)
+## 共产党买乌克兰废旧航母的内幕
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231659/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

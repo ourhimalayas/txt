@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 12:46 AM (UTC)`
+
+2022.03.25 晚 《新中国联邦新闻》中共末日与数字货币触发瑞士政府作出改变； 美国能产生无数马斯克 中共独裁体制扼杀文明
+![img](https://media.gettr.com/group35/origin/2022/03/26/00/c5ced433-b0fc-f58c-b016-1dd3b06a91b5/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/26/2022 12:35 AM (UTC)`
 
 2022.03.25 晚 《新中国联邦新闻》中共末日与数字货币触发瑞士政府作出改变； 美国能产生无数马斯克 中共独裁体制扼杀文明
@@ -153,13 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 3/23/2022 Miles Guo: Now the most absurd thing is happening to humanity in the world. The wealth obtained by individual labor is subject to various supervision and restrictions; the New Federal State of China is developing a truly decentralized, stable and secure digital currency-- “Tangping Coin”, which will be circulated globally without limitation for the benefit of all mankind<br/><br/>3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类<br/>
 ![img](https://media.gettr.com/group23/getter/2022/03/25/05/ae66177e-36c8-a48b-76ac-e6847566d261/out.jpg)
-
----
-
-`@miles 3/25/2022 5:22 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group24/origin/2022/03/25/04/23fab483-12e3-01de-f364-b58060373ec4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
