@@ -2,34 +2,30 @@
 ---
 
 
-## 拜登说普京“不能继续掌权”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2236936/)
+## 特鲁多的欧洲演讲遭罗马尼亚等国议员抵制或谴责
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236988/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱 、编译：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据加拿大媒体【真北方】3月24日报道， 欧洲议会罗马尼亚议员克里斯蒂安·特尔赫什周三针对特鲁多在欧洲议会的演讲进行了猛烈抨击，拒绝出席并引用特鲁多侵犯公民权利的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3187.png)
+特尔赫什直言不讳地批评特鲁多镇压和平的自由车队抗议者。指责他虚伪地宣讲民主，同时在国内废除自由和权利。克罗地亚和德国的欧洲议会议员都分别表达了对特鲁多出席欧洲议会的不满，认为是“任何民主的耻辱”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1155.jpg)
+据悉，这是特鲁多本月第二次出访并讨论乌克兰战争，他因对待加拿大自由示威者的方式而受到欧洲议员的一连串谴责。
 
+新闻来源：[https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/](https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/)
 
-图片来源：路透社
+编辑/上传 – 文永
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-美国总统乔拜登周六在一场激烈的演讲中表示，俄罗斯领导人普京 “不能继续掌权”，敦促世界民主国家团结起来支持乌克兰，尽管白宫后来表示，拜登并没有呼吁莫斯科改变政权。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-“看在上帝的份上，这个人不能继续掌权，”拜登在谴责普京在乌克兰长达一个月的战争是对全球自由和安全的攻击后，在华沙对人群说。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-这些评论使莫斯科与西方在入侵乌克兰方面的冲突急剧升级。但一名白宫官员表示，这些言论并不代表华盛顿政策的转变，即不寻求俄罗斯政权更迭。
-
-拜登在与逃离乌克兰战争到波兰首都的难民会面时称普京为“屠夫”。西方团结一致反对俄罗斯的入侵，但还补充说，北约是一个防御性安全联盟，从不寻求俄罗斯的灭亡。
-
-拜登的演讲是在华沙皇家城堡，数百名波兰民选官员、学生和美国大使馆工作人员面前发表的，其中许多人手持美国、波兰和乌克兰国旗。
-
-“西方现在比以往任何时候都更强大、更团结，”拜登说。
-
-拜登称与普京的斗争是一场“新的自由之战”，他说普京对“绝对权力”的渴望是俄罗斯的战略失败，也是对自二战以来基本上盛行的欧洲和平的直接挑战。
-
-🔗 [https://www.reuters.com/world/europe/biden-call-free-world-stand-against-putin-poland-speech-2022-03-26/](https://www.reuters.com/world/europe/biden-call-free-world-stand-against-putin-poland-speech-2022-03-26/)
-
-编辑发表： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,18 @@
 ---
 
 
-## 压迫加拿大人的疫苗政令仍未彻底解除
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236914/)
+## 盖特的独特性使其成为新时代媒体主流
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236944/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：文明(添草灭共)
+##### 作者：加拿大温哥华扬帆农场 – 采编/撰稿：文莱
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据加拿大媒体【真北方】3月25日报道，目前全国各地似乎都开始逐步取消新冠疫情的限制，但部分地区还在坚持接种疫苗的规定，甚至同一司法管辖区内出现相互冲突的政令。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3185.png)
-新不伦瑞克省已经废除疫苗护照，并宣布3月28日开始全面接种疫苗将不再是其公共服务部门的就业条件，然而该省的圣约翰市却仍对其雇员执行强制疫苗；不列颠哥伦比亚是最晚宣布取消限制的省份，然而在4月8日解除限制前仍在执行严厉的疫苗授权，解雇了数千名去年因该政策而被迫休假的公共雇员。维多利亚市却未采取省政府的立场，宣布将邀请25名在1月份因不接种疫苗被无薪休假的雇员复职。据悉，该省其他市政当局也在效仿这一举措。
+据加拿大自媒体【后千禧一代】3月24日报道，盖特周四宣布与《后千禧一代》的特约编辑安迪-恩戈建立合作伙伴关系，将确保该独立记者可在其社交媒体平台上为【每周通知】的新闻节目制作独家内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3186.png)
+报道称，恩戈将在盖特讨论他的个人报道、并提供政治评论和分析，恩戈表示期待在没有审查或影子禁令威胁的盖特上与观众互动。盖特首席执行官杰森米勒先生对此表示，盖特很自豪能为无所畏惧地追求真相的记者合作，并为其提供一个平台，盖特不但致力于抓住重要新闻，更要确保政治辩论的自由度。
 
-报道称，目前全国各地的疫苗接种政策错综复杂且仍在不断变化，联邦机构、各省、市政府、甚至个别企业都可以要求雇员提供疫苗接种证明。
+据悉，盖特在全球目前拥有500万注册用户，盖特在2021年7月4日正式推出不到三天就获得了第一百万用户，而随着推特等主流媒体平台的审查制度不断加强，知名的言论人士纷纷加入了盖特的行列，以向专制的硅谷寡头宣战。
 
-原文链接：[https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/](https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/)
+链接：[GETTR partners with Andy Ngo for weekly news show | The Post Millennial](https://thepostmillennial.com/gettr-partners-with-andy-ngo-for-weekly-news-show)
 
 编辑/上传 – 文永
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)

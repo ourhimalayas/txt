@@ -2,48 +2,28 @@
 ---
 
 
-## 普京计划出席G20峰会，有呼吁将其排除在外
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2236175/)
+## 天基移动电话网络公司与SpaceX签署发射协议
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236471/)
 
-据《华盛顿邮报》作者：[Amy Cheng](https://www.washingtonpost.com/people/amy-cheng/)和[Adela Suliman](https://www.washingtonpost.com/people/adela-suliman/)，2022年3月23日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3149-e1648306671712.png)3月10日，俄罗斯总统弗拉基米尔-普京在莫斯科, 与政府官员电话会议。
-图片来源：Mikhail Klimentyev/AP
-俄罗斯驻东南亚国家大使周三表示，俄罗斯总统弗拉基米尔-普京计划出席今年由印度尼西亚主办的20国集团峰会。据报道，西方国家正试图将莫斯科排除在20国集团之外，这是一个世界上最大经济体的集会。
+【作者】纽约香草山农场 健身部 文真
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+目前唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间的蜂窝宽带网络。
+据悉，该公司总部位于美国德州，并在英国设有基地。该公司计划今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来测试与手机进行标注频率通信，并在未来发射BlueBird卫星。
+据该公司管理者透露，其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。
 
-“这取决于许多、许多事情，包括正在好转的抗疫形势。到目前为止……”大使柳德米拉-沃罗比娃在谈到普京出席时说。
+[https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
 
-她说：“10月在巴厘岛举行的20国集团论坛将重点讨论经济问题，而不是乌克兰战争。”她补充，她知道有人试图将俄罗斯驱逐出全球经济俱乐部。
+[https://video.foxnews.com/v/6301852036001#sp=show-clips](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
 
-“不仅是20国集团，西方的许多组织现在都在试图驱逐俄罗斯，”沃罗比耶娃说：“西方的反应绝对是不相称的。”她认为，将俄罗斯驱逐出经济论坛将使各国更难解决全球“经济问题”。
+校对/发稿：菩提树
 
-沃罗比耶娃还赞扬了印度尼西亚的“坚定立场”，并敦促它不要在西方压力下屈服。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
 
-本周，波兰经济发展和技术部长Piotr Nowak在与美国商务部长Gina Raimondo会面时提议将俄罗斯排除在20国集团之外。
-
-白宫国家安全顾问杰克-沙利文星期二也说：“关于20国集团的问题……我们认为，在国际机构和国际社会中，俄罗斯不能一切照旧。”
-
-他说：“至于特定的机构和特定的决定，我们希望与我们的盟友协商，在作出任何进一步的声明之前，与我们在这些机构的伙伴协商。”
-
-俄罗斯在八国集团的成员资格，由主要工业化国家组成的组织，在普京2014年吞并克里米亚后被暂停。
-
-然而，任何将俄罗斯排除在论坛之外的举动都可能遭到其他国家的否决。中共国在周三称俄罗斯是20国集团的 “重要成员”。
-
-在欧洲，拜登总统本周正在旅行，预计将宣布一套新的针对俄罗斯的制裁措施，德国总理奥拉夫-肖尔茨说，20国集团成员将不得不决定这个问题，但优先事项仍然是关注建立和平。
-
-文章有删减。
-
-文章来源: [https://www.washingtonpost.com/world/2022/03/23/putin-russia-g20-economy-ukraine-war/](https://www.washingtonpost.com/world/2022/03/23/putin-russia-g20-economy-ukraine-war/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
 
  
 

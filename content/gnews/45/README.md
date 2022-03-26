@@ -2,25 +2,23 @@
 ---
 
 
-## 樱花时政┃拜登将入侵乌克兰比作天安门事件
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234131/)
+## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
 
-撰稿：东京樱花团/向海
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
 
-美国总统乔·拜登3月25日在波兰访问乌克兰边境时，把俄罗斯入侵乌克兰的比作1989年中共镇压示威活动的天安门事件。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-16.jpg)[图片来源](https://www.msn.com/ja-jp/news/world/%E3%83%90%E3%82%A4%E3%83%87%E3%83%B3%E6%B0%8F-%E3%82%A6%E3%82%AF%E3%83%A9%E3%82%A4%E3%83%8A%E4%BE%B5%E6%94%BB%E3%82%92%E5%A4%A9%E5%AE%89%E9%96%80%E3%81%AB%E3%81%AA%E3%81%9E%E3%82%89%E3%81%88/ar-AAVuHT7)
-拜登赞扬了驻扎在乌克兰的美国士兵和帮助从乌克兰流入的难民的活动人士，他称赞乌克兰人民向俄罗斯展示的“勇敢精神”。他提到了一个女人拿着步枪与坦克对峙的例子，说：“就像天安门广场发生的事情一样。”
+信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
 
-此外，对于俄罗斯总统弗拉基米尔·普京，他表示：“坦率地说，我认为他是一名战犯。” “他满足了法律上的所有定义”。
-
-此后，拜登先生将前往首都华沙，与波兰领导人会面。
-
-信息来源：[バイデン氏、ウクライナ侵攻を天安門になぞらえ](https://news.yahoo.co.jp/articles/228abe91cf449c30bc7000a224a6cee68feff180)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+*编辑：东京樱花团/asket、天路天道（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

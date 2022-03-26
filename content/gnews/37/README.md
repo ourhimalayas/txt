@@ -2,35 +2,30 @@
 ---
 
 
-## 【G时新闻】英国政府数据证实疫苗接种是一场灾难
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2235289/)
+## 乌俄首次换囚！19名蛇岛「X俄」勇士获释
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2236151/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-作者：加拿大温哥华扬帆农场 – 播报：文广 – 视频制作：Gracelshan
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+根据乌克兰议会表示，在总统泽伦斯基的命令下，乌克兰将从沉船中救出的11名俄军，换回19名驻守在蛇岛（Zmiinyi Island），曾怒呛「俄罗斯军舰，去你X的！」的乌军，而这也是双方首度达成换囚协议。
 
-3月24日来自《The Expose》网站的消息称，英国卫生安全局发布了最新疫苗检测报告。从2月14日至3月13日共22日期间的数据显示，接种两针到三针的人带来了绝大多数中共病毒病例数、住院数和死亡数，数据证明了实验性疫苗接种是一个绝对的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/563075c7-2c24-42e6-8341-c8fa98da9207.jpg)图片来源：Verkhovna Rada of Ukraine – Ukrainian Parliament
 
-1）病例数：本报告期英国共有947555例中共病毒病例，接种疫苗的人群有774991例（其中三针619128例），占到了令人震惊的全部病例的82%。
+当时乌克兰最初表示，蛇岛的所有部队已经阵亡，后来才澄清多名守军仍活着，但遭到俄罗斯俘虏。
 
-2）住院数：本报告期英格兰总共有6536例住院治疗，接种疫苗的人群住院人数为5187人（其中三针4115例），占所有中共病毒住院人数的79%。
+乌克兰边防局表示，官员一直在努力解救蛇岛的士兵，「我们的士兵将搭乘蓝宝石号返回家园，该船曾遭俄罗斯占领者夺走，而据双边所签订的交换条款，蓝宝石号也将返回乌国，随后转送至土耳其的港口。」
 
-3）死亡数：本报告期共有5084人死于中共病毒，其中接种了三种疫苗的人群占了3687人。而未接种疫苗的人群只有401人。总体而言，接种疫苗的人群占这四周内所有Covid-19死亡人数的92.2%，共有4683人死亡。
+简评：作为敌对双方换俘虏11比19，数字上乌克兰赢了；乌克兰善待俘虏，被俘虏的俄军估计不想回去为普京卖命了，被换回的乌军祖国一直关心着他们，人心上乌克兰也赢了。祝福「X俄」勇士们重获自由，11名俄军则重回地狱！
 
-而在Omicron高峰时期，接种疫苗的人群占中共病毒死亡人数的75%，如果Covid-19注射在预防住院和死亡方面的有效性真的高达95%，你可能不会看到这样接种疫苗的人群死亡率大幅攀升的数据，不是吗？
+新闻来源：[https://news.ttv.com.tw/news/11103260001000W](https://news.ttv.com.tw/news/11103260001000W)
 
-上传：兴旺
+撰稿/发布：一叶知秋
 
-视频链接：https://gettr.com/post/p11w4tab1ed
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

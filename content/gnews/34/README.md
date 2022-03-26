@@ -2,27 +2,24 @@
 ---
 
 
-## Gclub年会26日举办 奖品丰厚
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235926/)
+## 俄乌战局最近消息汇总
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236232/)
 
-作者：澳喜农场 Leo M
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-3月25日文贵大直播透露，2022年的Gclub年会将在3月26日举办。年会将举办抽奖活动，已在线登记参与抽奖的卡约8000张，奖品金额大约200万美元，数量超过1000个。
-![](https://cdn.discordapp.com/attachments/714848986988544060/931788430185222154/2021-Huracan_EVO_Fluo_Capsule-5.png)
-郭先生介绍，按金额计算，美国的抽奖活动普遍来说中奖率为万分之一，最高的可以达到千分之一。有推友计算得知，Gclub年会的中奖率是这个最高中奖率的5（全部买的是5万卡）到25倍（全部买的是1万卡），而且Gclub会员每年都可以抽奖。
+作者：文斌
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截止当地时间3月25日，俄罗斯已经攻入了乌克兰马里乌波尔市的中心地区并占领了当地的圣母代祷教堂。消息显示，俄军强行将该市六千多居民掳至俄罗斯进内。而哈尔科夫市的一所邮局也被俄军炮火击中，造成6人死亡，15人受伤。 同时，俄罗斯军队在卢甘斯克州和顿涅茨克州的部分地区取得了些许进展，但其主要的几波攻势仍旧被乌克兰方击退。另外，俄乌双方在基辅日托米尔公路沿线、伊尔平和霍斯托梅尔一代的战斗仍在继续，同样的情形也出现在米科拉耶夫州和赫尔松州边界的局部地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-26-上午10.50.48-1.png)
+据乌克兰方的消息指出，虽然俄罗斯多次试图包围切尔尼戈夫，但其在近日的多次进攻均未取得胜利。而为了防止俄军再次试图从海上增援其在马里乌波尔和赫尔松附近的行动，乌克兰军队击沉了俄军一艘奥尔斯克号大型登陆舰。而在双方于哈尔科夫的交战中，乌军重创了俄罗斯第144摩步师第59坦克团的一个营级战术小组。 至于苏梅和赫尔松地区，俄军近期并未出现任何进攻举动，但其对苏梅市的炮轰却仍未停止。此外，俄罗斯在基辅的部队目前被迫处于防守之势，其甚至为了抵御乌克兰军队而修建了新的战壕线。
 
-郭先生表示，相比于中共国的福利彩票等把奖品都私下安排好的假的抽奖活动，Gclub年会的抽奖是真实的，有很高的命中率，每个人都可以亲身体验到抽奖的快乐。
+更多消息，请持续关注本节目的后续报道。
 
-分析人士指出，由于Gclub会员能够以折扣价购买GFashion，而随着喜币的流通进入GFashion等全球实体店，G系列正在产生意义重大的联动效应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+编辑：Irene木木，静言
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

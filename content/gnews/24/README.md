@@ -2,35 +2,30 @@
 ---
 
 
-## 以太坊正在向产权证明（PoS）区块链过渡
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236521/)
+## 拜登警告“粮食短缺”即将成为现实
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236565/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-以太坊正在从工作证明（PoW）转向产权证明（PoS）的共识机制。如果一切按计划，作为世界第二大加密货币的以太坊，将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
-比特币和以太坊目前使用工作证明算法来确保安全，即”矿工 “解决加密难题，竞争验证新交易区块的权利。成功的矿工会以加密货币作为他们工作的奖励。
-产权证明是区块链网络为实现分布式共识的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
-对比工作证明，产权证明有诸多优势：
-首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。
-第二，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。
-第三，导致网络中出现更多的节点，对中心化有更强的免疫力。
-最后，扩展以太坊网络的一个关键升级，对区块链的支持更强。
-使用产权证明后，验证者不必相互争夺，在能源和计算硬件上花费巨大。相反，他们的加密货币缓存，或产权，允许他们参加抽奖。那些被选中的人获得了验证一组交易的权力（并因此获得更多的加密货币）。表现出不良行为的验证者会受到惩罚——他们会失去一部分股权。
-以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该系统一直在平行运行，而且正在将实际执行交易和用户资产的转移合并到新的系统。
+作者：日本东京方舟农场 Miyali7768(文玉）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，据外媒消息显示，美国总统拜登当天在布鲁塞尔举行的新闻发布会上确认，全球粮食短缺问题将成为现实。
 
-[https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-9.jpeg)
 
-[https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
+拜登提到，世界因战争对俄罗斯做出的制裁正在使得很多国家一同承担了相应代价，当中包括美国和欧洲。此前，俄罗斯和乌克兰在小麦方面一直是欧洲的粮仓，但如今，战争减少了乌克兰的生产，而制裁则阻止了其他国家与俄罗斯的贸易。
 
-校对/发稿：菩提树
+为此，美国和欧洲各国近期在峰会期间反复讨论了关于粮食短缺的问题，以及一些可以采取的应对措施。拜登透露，国际社会或将敦促所有欧洲和其他国家结束对向国外运送粮食的贸易限制，同时，美国可以提供人道主义援助方面的重大投资。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
+据了解，目前，美国从食品到燃料再到供应等各个方面的消费价格一直在上涨，且随着乌克兰冲突的持续，人们越来越担心这类价格上涨或许将不再减弱，反而愈演愈烈。
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+参考链接：[BREAKING: Biden says ‘food shortages are gonna be real’](Biden%20says%20'food%20shortages%20are%20gonna%20be%20real')
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：Irene木木
+编辑/审核：飞虹
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
