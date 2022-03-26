@@ -2,8 +2,8 @@
 ---
 
 
-## 水将是最贵的资源
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232689/)
+## 国内战友赶快卖掉房子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232736/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

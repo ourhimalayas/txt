@@ -2,12 +2,18 @@
 ---
 
 
-## 乌克兰总统呼吁北约无限制地增加对乌克兰的军事支持
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232741/)
+## 爆料革命正在告诉你钥匙在哪（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232796/)
 
-03/24/2022 乌克兰总统泽伦斯基呼吁北约领导人增加对其国家的军事支持。他还表示，俄罗斯下一步将把目标对准包括波兰在内的东欧地区的北约成员。
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-13-一-scaled.jpg)
+发布：tianzhihuan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

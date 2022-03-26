@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 4:34 AM (UTC)`
+
+【Ukraine Rescue】03/24/22 Volunteer Xiaoxiaosu reported: all the volunteers keep on alert of unknown Chinese for fear that the incident of Russian spies might happen in the base camp.<br/><br/>【乌克兰救援】03/24/22  小小酥战友报道：因担心出现俄罗斯间谍那种现象，战友们对出现的陌生华人都会提高警惕。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group42/getter/2022/03/26/04/ed92e44d-f70a-a6ac-f58d-4f2ccbfaddfe/out.jpg)
+
+---
+
 `@miles 3/26/2022 3:43 AM (UTC)`
 
 3/25/2022 Miles Guo: Hands-on tutorial on how to easily buy GFashion clothes online with Himalaya Pay<br/><br/>3/25/2022 文贵直播：手把手教大家如何用HPay在线轻松购买GFashion<br/><br/>
@@ -153,13 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 
 ![img](https://media.gettr.com/group13/origin/2022/03/25/17/9490b1e3-8606-4365-1f4b-9a4606b6b0f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/25/2022 5:07 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月24日第20天当日救援统计：<br/>Medyka救援站接待：约50人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7412人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 20 - Date: March 24, 2022 :<br/>Medyka Rescue Station Reception: about 50 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7412 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group28/getter/2022/03/25/17/d74148f5-e2af-47a9-aa89-0c512ba4a9d8/14965bfb18b01e222b2bee6074a73820.jpg)
 
 ---
 
