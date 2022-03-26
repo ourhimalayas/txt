@@ -2,47 +2,98 @@
 ---
 
 
-## 欧盟峰会对进口俄石油天然气问题产生分歧
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2231497/)
+## 北约决定在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加4个战斗群，使总数达到8个
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2231611/)
 
-翻译：噜噜咪
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-此前，乔·拜登在一系列峰会上展示了跨大西洋的团结，乌克兰总统沃洛基米尔·泽伦斯基慷慨激昂地呼吁提供更多军事援助以保卫他的国家，但欧盟领导人在是否停止从俄罗斯购买石油和天然气的问题上暴露了他们的分歧。
+**美国驻北约代表团：** 
+在北约[@NATO](https://twitter.com/NATO)峰会上，领导人们决定在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加4个战斗群，使总数达到8个。这进一步加强了我们的长期威慑和防御，并且是相称的和非升级性的。
+北约盟国 [#NATO](https://www.gettr.com/hashtag/%23NATO) 支持与乌克兰团结一致 [#UnitedWithUkraine](https://www.gettr.com/hashtag/%23UnitedWithUkraine) 维护其自卫权。 盟国将继续提供进一步的政治和实际支持，在网络安全和防止化学、生物、放射和核威胁方面提供援助。
+北约 [#NATO](https://www.gettr.com/hashtag/%23NATO) 正在为合作伙伴提供量身定制的支持，以抵制俄罗斯的恶意影响。 北约@NATO盟国呼吁包括 [#中共国](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 在内的所有国家，促进和平解决冲突，并避免对俄罗斯战争努力的支持。 完整声明 【北约国家元首和政府首脑的声明 （布鲁塞尔 2022 年 3月 24日）】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3034.png)美国总统乔·拜登与欧洲理事会主席查尔斯·米歇尔周四晚在布鲁塞尔
 
-在以北约领导人紧急会议开始，随后是七国集团会议的紧张外交日的第三次峰会上，欧盟领导人会见了美国总统，讨论俄罗斯对乌克兰的战争。
-拜登在抵达欧盟峰会时说：“我们在西方必须做的最重要的一件事是团结一致”。这是美国总统首次出席欧洲理事会会议。拜登说，俄罗斯总统普京“从一开始”就试图瓦解北约，团结对于阻止他至关重要。他说：“这是阻止这个家夥的唯一最重要的事情，在我们国家，我们认为他已经犯下了战争罪”。
-欧盟领导人本应听取泽伦斯基的视频讲话，在战争爆发四周后，他在电话会议上告诉他们，他们可能不会再看到他活着。
-欧洲理事会的会议充满了象征意义，但官员们抑制了进一步制裁的言论。波兰和波罗的海国家带头要求对俄罗斯采取更严厉的措施，包括禁止俄罗斯船只和公路车辆进入欧盟。波兰总理马特乌斯·莫拉维茨基说，欧盟需要通过制裁来“击垮”俄罗斯，他说这场战争已经变成了一场“大屠杀”。在提到苏联时，他说：“俄罗斯正试图重新建立‘邪恶帝国’”。
-拉脱维亚总理阿特尔斯·克里斯亚尼斯·卡林斯说，“能源制裁是欧盟应该考虑的一个‘严肃选项’，首先是石油和煤炭。”
-他说：“立即进行能源制裁，是阻止资金流入普京的金库的一种方式。我们每推迟一天制裁俄罗斯的经济，俄罗斯就保持了供养其军事机器的能力。”
-法国总统埃马纽埃尔·马克龙说，西方准备对俄罗斯实施进一步制裁，他说这些制裁正在产生影响。
-然而，从俄罗斯进口55%的天然气的德国已经警告说，立即禁止将导致失业，并让司机停止为他们的汽车加油。德国总理奥拉夫·肖尔茨周三说，停止使用俄罗斯能源“将意味着使我们国家和整个欧洲陷入衰退”。
-他得到了比利时首相亚历山大·德克罗的支持，他说石油禁运“将对欧洲经济产生破坏性影响，我认为没有必要”。
-在三周内进行了四轮影响深远的，针对普京、他的核心圈子和俄罗斯大部分经济范围的欧盟制裁后，欧盟领导人之间关于下一步行动的关系越来越紧张。
-卢森堡首相格扎维埃·贝泰尔认为，进一步的制裁应该是“对某些事情的反应”，指的是化学和生物武器，因为人们越来越担心普京会诉诸这些武器。“如果我们现在采取制裁，更多的制裁，情况仍然是现状，下一步将是什么？”
-斯洛维尼亚总理雅奈兹·扬沙是最近访问基辅的三位欧盟领导人之一，他说普京摧毁马利乌波尔已经越过了红线。“已经越过所有的红线了，所以我们不需要谈论化学和生物武器，也不需要等待使用这些武器。”
-俄罗斯占欧盟天然气进口量的45%左右，占石油进口量的25%，占煤炭进口量的45%，但有些国家的依赖程度要高得多。欧盟委员会表示，欧洲可以在“2030年之前”完全摆脱俄罗斯的化石燃料，并在一年内将天然气的消费量减少三分之二。
-迄今为止，欧盟领导人一直回避为逐步淘汰俄罗斯化石燃料设定一个期限。然而，根据一份峰会公报草案，他们准备就自愿联合购买天然气、液化天然气（LNG）和氢气达成协议，以试图利用集体购买力“抑制价格”。
-欧盟委员会主席乌苏拉·冯德莱恩说，美国将向欧盟提供额外的液化天然气，以取代通过海上油轮运输的俄罗斯天然气——她将此举称为“向前迈出的重要一步”。预计她将在周五与拜登一起宣布这一消息。美国已经是欧盟的最大液化天然气供应商。
-欧盟和美国还将讨论如何劝阻中共国向普京提供支持，无论是通过提供武器还是帮助俄罗斯逃避西方制裁。义大利总理马利奥·德拉吉说，中共国在和平进程中可能是至关重要的。“他们有很多筹码，所以我们都在等待他们使用这些筹码。”
-鲍里斯·约翰逊没有被邀请参加欧盟峰会。欧盟官员说，从来没有邀请这位英国首相的计划，并坚称这与他将乌克兰战争与英国脱欧投票相提并论的言论受到广泛谴责无关。冯德莱恩在北约总部发推文说，她与约翰逊进行了一次“良好的会晤”，他们讨论了欧盟和英国在制裁方面的合作。
 
-素材链接：【theguardian.com】[EU leaders wrangle with issue of oil and gas imports from Russia at summit](https://www.theguardian.com/world/2022/mar/24/eu-leaders-oil-gas-imports-russia-ukraine)
+> At the [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Summit leaders decided to establish 4 additional battlegroups in Bulgaria, Hungary, Romania, and Slovakia, bringing the total to 8. This further strengthens our long-term deterrence and defense and is proportionate and non-escalatory. [pic.twitter.com/YxlqDDkaHd](https://t.co/YxlqDDkaHd)
+> — US Mission to NATO (@USNATO) [March 24, 2022](https://twitter.com/USNATO/status/1507002609973927944?ref_src=twsrc%5Etfw)
 
-* * *
 
-审核：文乐
-校对：信心满满
-发布：花羽
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
+**拜登总统**：
+今天下午在波兰，我收到了关于俄罗斯入侵乌克兰的人道主义应对的简报。 美国准备再提供 10 亿美元用于人道主义援助，并欢迎多达 10 万乌克兰人和其他逃离俄罗斯侵略的人来美国。
+
+
+
+> This afternoon in Poland, I received a briefing on the humanitarian response to Russia’s invasion of Ukraine. The United States is prepared to provide an additional $1 billion for humanitarian assistance and welcome up to 100,000 Ukrainians and others fleeing Russian aggression.
+> — President Biden (@POTUS) [March 25, 2022](https://twitter.com/POTUS/status/1507425374564663355?ref_src=twsrc%5Etfw)
+
+
+
+**众议员加拉格尔新闻办公室**： 
+拜登政府震慑普京的 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 战争失败了，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 记下了。
+加拉格尔议员和苏利文议员[@SenDanSullivan](https://twitter.com/SenDanSullivan) 指出了从这些错误中我们应该吸取的教训，确保威慑不会在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 再次失败。 
+【转福克斯新闻，乌克兰战争为阻止中共国入侵台湾提供了重要的经验教训】
+
+
+
+> The Biden administration failed to deter Putin's war in Ukraine and the CCP is taking notes. 
+> 
+> Rep. Gallagher and [@SenDanSullivan](https://twitter.com/SenDanSullivan?ref_src=twsrc%5Etfw) outline lessons we should learn from these mistakes to ensure deterrence doesn't fail again in Taiwan. [https://t.co/5Fs3Tu5z1q](https://t.co/5Fs3Tu5z1q)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 25, 2022](https://twitter.com/RepGallagher/status/1507349429795315712?ref_src=twsrc%5Etfw)
+
+
+
+**白宫**： 
+美国和欧盟委员会正在建立一个联合工作组，以确保乌克兰和欧洲的能源安全，并减少欧洲对俄罗斯化石燃料的依赖。 阅读更多：（附白宫官网链接）
+
+
+
+> The United States and European Commission are establishing a joint Task Force to ensure energy security for Ukraine and Europe and reduce Europe’s dependence on Russian fossil fuels.
+> Read more: [https://t.co/oczv9Ftjjr](https://t.co/oczv9Ftjjr)
+> — The White House (@WhiteHouse) [March 25, 2022](https://twitter.com/WhiteHouse/status/1507360640062603268?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克·加西亚**： 
+正如我所警告的那样——我们不能忽视对美国的真正威胁：#中共国。 [#中共](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) [#CCP](https://www.gettr.com/hashtag/%23CCP) 越来越多地推动台湾脱离联合国机构和其他国际组织，旨在将其确立为中共国 (的一部分)。 
+【转纽约时报：报告称，中共国推动孤立台湾，需要美国采取行动 中共官员正在加大力度迫使联合国机构、政府、公司甚至学校表示台湾是中共国的一部分。】
+
+我们必须与 [#台湾](https://www.gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE) 站在一起，现在就击垮 [#中共国](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD)。 这就是为什么我写信给拜登总统@POTUS，要求他通过一切可用的经济和外交工具对中共国“施压”，以确保 [#中共](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 无法支持俄罗斯。 
+【附众议院官网文：迈克·加西亚带领立法者呼吁拜登总统“加大对中共国的压力”】
+
+
+
+> As I have warned- we cannot take our eye off the real threat to the United States: China.
+> 
+> The CCP is increasingly pushing for Taiwan to be isolated from United Nations agencies and other international organizations, aiming to establish it as China.[https://t.co/ndNNi8ak6C](https://t.co/ndNNi8ak6C)
+> — Rep. Mike Garcia (@RepMikeGarcia) [March 25, 2022](https://twitter.com/RepMikeGarcia/status/1507400358913581066?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本**： 
+美国正在考虑将伊朗石油推向全球市场并允许他们开发核武器，这是荒谬的。 我们不要忘记，俄罗斯正在代表我们谈判这笔交易。 
+【附福克斯采访视频：布莱克本就（拜登政府）考虑让步、重启伊朗核协议进行评论】
+
+
+
+> It’s absurd the U.S. is considering pushing Iranian oil into the global market and allowing them to develop nuclear weapons. 
+> 
+> And let’s not forget that Russia is negotiating the deal on our behalf. [pic.twitter.com/clzRvQFRnQ](https://t.co/clzRvQFRnQ)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 25, 2022](https://twitter.com/MarshaBlackburn/status/1507431149177651206?ref_src=twsrc%5Etfw)
+
+
+
+**前副国务卿基思·克拉奇**： 
+我对(诺贝尔)提名甚感惶恐(自身渺小)。 它反映了我们团队利用“信任原则”来建立民主国家“清洁网络联盟”，以抵御科技独裁主义、维护 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 民主和结束 [#新疆](https://twitter.com/hashtag/%E6%96%B0%E7%96%86?src=hashtag_click) 种族灭绝的辛勤工作。 信任对和平至关重要！
+【转推文：2022年诺贝尔奖被提名人基思·克拉奇对“可信协作”的愿景是对独裁主义的强力解毒剂，尤其是在这个险恶时刻。 他的“信任原则”是 21 世纪联合民主国家的典范。 更多内容见福布斯报道】
+
+
+
+> I am truly humbled by the nomination. It reflects the hard work of our team using the Trust Principle to build the Clean Network Alliance of Democracies to defend against tech authoritarianism, preserve Taiwan's democracy & end genocide in Xinjiang. Trust is essential for peace [https://t.co/gU8BCnfQrz](https://t.co/gU8BCnfQrz)
+> — Keith J. Krach (@KeithJKrach) [March 24, 2022](https://twitter.com/KeithJKrach/status/1507114126727737358?ref_src=twsrc%5Etfw)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

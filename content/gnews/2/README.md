@@ -2,11 +2,11 @@
 ---
 
 
-## 战友们不要分你我他，我们要团结（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232284/)
+## 海外欺民贼不犯贱他难受（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232392/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9：10-9：20-01.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-50-10-00-一-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

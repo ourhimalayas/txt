@@ -2,49 +2,28 @@
 ---
 
 
-## 拜登：普京使用化学武器将引发北约的反击
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2231247/)
+## 在西方加强对俄制裁之际 中共石化暂停了在俄项目
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2231292/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-美国总统乔·拜登（Joe Biden）在周四（24日）的新闻发布会上向全世界保证，如果俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在乌克兰使用化学武器，北约将作出反击。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3018-edited.png)breitbart.com
+《路透社》3月25日报道，消息人士路透社表示，**中共国有企业中石化集团 暂停了在俄罗斯的一项大型石化投资和天然气营销项目的谈判。并称**，**中石化在意识到西布尔的少数股东兼董事会成员Gennady Timchenko已被西方制裁后，暂停了该项目投资。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/中石化-e1648252955735.jpg)图片来源：路透社。
+据报道，中石化**暂停了一项价值5亿美元的天然气化工厂投资**，以及在中共国销售俄罗斯天然气的项目。**该计划是与俄罗斯最大的石化生产商西布尔（Sibur）合作，**开发一个类似于东西伯利亚价值100亿美元的阿穆尔**天然气化工厂的项目**，该项目40%由中石化持有，60%由西布尔持有，计划于2024年投产。
 
-“这将引发一种反击；反击的性质将取决于使用的性质。”拜登在被记者问及普京使用化学武器是否会促使北约采取行动时，回答说。
+据消息人士分析，**作为俄罗斯最重要的外交伙伴中共来说，西方主导的、出乎意料的严厉制裁也令其担心面临被制裁的风险。**
 
-但总统犹豫了一下，没有说具体的反击是什么。
+自俄罗斯2月24日入侵乌克兰后不久，**全球石油巨头壳牌、英国石油以及挪威国家石油公司承诺退出在俄罗斯的业务。**
 
-“无论你问的是北约是否会越过……我们会在当时做出这个（反击）决定，”他说，在回答时犹豫不决。
+其中两名消息人士称，**中共国黑龙江项目本身也面临着资金障碍，因为制裁可能会阻碍主要银行的融资，包括俄罗斯国有的俄罗斯联邦储蓄银行(Sberbank)和欧洲信贷机构。**
 
-白宫一直拒绝说使用化学武器将是美国的一条“红线”，因为前总统巴拉克·奥巴马（Barack Obama）在叙利亚承诺采取行动后，却并没有。
+新闻来源链接：
 
-拜登在新闻发布会上承认，制裁对普京没有威慑力，但希望在俄罗斯入侵乌克兰事情上，施加尽可能多的经济制裁。
+[Exclusive: China’s Sinopec pauses Russia projects, Beijing wary of sanctions | Reuters](https://www.reuters.com/business/energy/exclusive-chinas-sinopec-pauses-russia-projects-beijing-wary-sanctions-sources-2022-03-25/)
 
-总统拜登在与欧洲领导人和北约联盟领导人会晤后夸耀了他的外交政策经验。
 
-他说：“我处理外交政策的时间比现在参与这一进程的任何人，都长。”
 
-拜登多次警告说，普京很可能会使用化学武器，但拒绝分享任何情报来证明这种威胁。
-
-“我认为这是一个真正的威胁，”他在离开白宫前往欧洲时说。
-
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源：[breitbart.com] [Joe Biden: Vladimir Putin Using Chemical Weapons Would ‘Trigger a Response’ from NATO](https://www.breitbart.com/politics/2022/03/24/joe-biden-vladimir-putin-using-chemical-weapons-would-trigger-a-response-from-nato/)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,35 @@
 ---
 
 
-## 国际｜拜登吁将俄逐出G20 并收紧对中共商品的关税豁免
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2231805/)
+## 有声|美警告中共国，严禁向俄出口芯片
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2232119/)
 
-圖/文 zhong｜26/03/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-26.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-美国川普政府任内对中（共）国的2200多项产品提供关税豁免，以减轻某些行业和零售商的压力。大多数豁免许可在到期后就结束了，其中549项商品的豁免许可被延长一年，并于2020年底到期。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月23日，美国商务部长雷蒙多表示，如果中共国公司对俄罗斯出售以美国技术制造的芯片，美国将实施出口管控，甚至停止出口。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-59.png)
+雷蒙多称，美国正在对任何可能违反该管制规定的国家进行监测，并将对任何违反规定的国家实施制裁。世界关注中共与俄罗斯的关系，和中共在俄乌战争中的表态。中共国的半导体公司严重依赖美国技术，一旦违反相关规定，将受到严厉的制裁。
 
-经延长后于2020年底到期的549项商品，23日由美国贸易代表办公室（USTR）声明称，将对352项从中（共）国进口商品关税重新豁免，适用于在2021年10月12日至2022年12月31日之间进口自中（共）国的商品，包括泵和电动机等工业部件、某些汽车零部件和化学品、背包、自行车、吸尘器等消费品。
 
-这意味着，拜登政府收紧了原先川普政府的关税豁免政策，549项中只有352项重新豁免。
 
-## 拜登吁将俄逐出G20
+文字版原文：[美警告中共国，严禁向俄出口芯片](https://gnews.org/zh-hans/2227119/)
 
-美国总统拜登24日在布鲁塞尔表示，他支持将俄罗斯逐出20国集团（G20），如若不然，应让乌克兰加入，至少是G20大会观察员。此外，拜登总统称情俄罗斯可能动用生化武器侵略乌克兰，届时北约将根据实际情况决定是否军事回应。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-拜登总统在布鲁塞尔会晤北约和G7领导人会后，宣布相关制裁与欧洲盟友一致，并呼吁欧盟和先进民主国家G7都团结起来应对极权侵略；北约宣布强化东翼，在罗马尼亚、匈牙利、保加利亚和斯洛伐克部署4支战斗部队。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-来源｜[REUTERS](https://www.reuters.com/world/biden-says-he-thinks-russia-should-be-removed-g20-2022-03-24/)、[NYT](https://www.nytimes.com/2022/03/23/business/chinese-imports-tariffs.html)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-* * *
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

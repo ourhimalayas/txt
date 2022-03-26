@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥提醒大家一定要防范病毒，同时要站稳自己的立场（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232283/)
+## 海外欺民贼不犯贱他难受（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232381/)
 
-**PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8：50-9：01-04.jpg)
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-50-10-00-二-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

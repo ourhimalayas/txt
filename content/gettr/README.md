@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 2:32 AM (UTC)`
+
+
+![img](https://media.gettr.com/group28/origin/2022/03/26/02/85a6903e-a0fd-c739-7363-ceec6e73862a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/26/2022 1:26 AM (UTC)`
 
 2022.03.25 晚《新中国联邦新闻访谈》疫苗政治大行其道，疫苗经济即将崩溃，面对疫苗灾难，同胞们，何去何从？
@@ -28,13 +35,6 @@
 
 2022.03.25 晚 《新中国联邦新闻》中共末日与数字货币触发瑞士政府作出改变； 美国能产生无数马斯克 中共独裁体制扼杀文明
 ![img](https://media.gettr.com/group35/origin/2022/03/26/00/c5ced433-b0fc-f58c-b016-1dd3b06a91b5/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/26/2022 12:35 AM (UTC)`
-
-2022.03.25 晚 《新中国联邦新闻》中共末日与数字货币触发瑞士政府作出改变； 美国能产生无数马斯克 中共独裁体制扼杀文明
-![img](https://media.gettr.com/group13/origin/2022/03/26/00/b92efe3a-4ef9-5a02-dc66-9a12a5491329/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
