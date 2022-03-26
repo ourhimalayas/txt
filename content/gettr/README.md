@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 6:05 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品17：奔驰E Class (单价: $54,950.00)<br/>奖品数量：1<br/>获奖者：<br/>YH64884<br/>获奖者来自日本银河系农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 17: Mercedes E Class Sedan (Unit Value: $54,950.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>YH64884<br/>The winner is from the Himalaya Japan Galaxy!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group19/getter/2022/03/26/18/a393f9fc-65cb-b5a4-69a6-0436f6ba2f73/27760b999896067ff0aefa2af04483cf.jpg)
+
+---
+
+`@miles 3/26/2022 6:03 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️6⃣️：GCLUB 会员年费<br/>1.GCLUB 会员年费等级一 (单价: $500.00)<br/>数量：60<br/>2. GCLUB 会员年费等级二 (单价: $1,000.00)<br/>数量：56<br/>3. GCLUB 会员年费等级三 (单价: $1,500.00)<br/>数量：50<br/>4. GCLUB 会员年费等级四 (单价: $2,000.00)<br/>数量：40<br/>5. GCLUB 会员年费等级五 (单价: $2,500.00)<br/>数量：35<br/><br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️6⃣️: GCLUB Annual Fee Waive <br/>1.GCLUB Annual Fee Waive Tier 1 (Unit Value: $500.00) <br/>No.: 60<br/>2. GCLUB Annual Fee Waive Tier 2 (Unit Value: $1,000.00) <br/>No.: 56<br/>3.GCLUB Annual Fee Waive Tier 3 (Unit Value: $1,500.00) <br/>No.: 50<br/>4.GCLUB Annual Fee Waive Tier 4 (Unit Value: $2,000.00)<br/>No.: 40<br/>5. GCLUB Annual Fee Waive Tier 5 (Unit Value: $2,500.00) <br/>No.: 35<br/><br/>The winners are as following<br/><br/>Congratulations to the winners!🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group12/getter/2022/03/26/18/e52a9ae0-c364-99c6-5094-be94a2c0033b/aba4e6d00aa0eb711ecb275c7231dfaf.jpg)
+
+---
+
 `@miles 3/26/2022 5:10 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️5⃣️：GF 年会专属限定版T恤 (单价: $140.00)<br/>奖品数量：600<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️5⃣️: GFASHION  T-Shirt (Unit Value: $140.00) <br/>Number of Prizes: 600<br/>The winners are as following<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -142,20 +156,6 @@ G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限�
 
 
 ![img](https://media.gettr.com/group41/origin/2022/03/26/12/f1d708ef-47fc-9383-0b1c-a9ae5e8fc40f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/26/2022 10:43 AM (UTC)`
-
-【Ukraine Rescue】03/23/22 Interview with an Ukrainian Refugee who is ready to return Ukraine. The frontline rescue volunteers helped him print the ID to get back . His brother was injured during the bomb attack and he wants to return home and take care of his family. Rescue team wishes him all the best. NFSC, ROLF tent in Medyka is here to help more refugees who evacuate from Ukraine.<br/><br/>【乌克兰救援】03/23/22 采访一名想要回乌的乌克兰难民，前线救援队帮助他打印回乌的证件证明；他的兄弟在轰炸中受伤，他想回去照顾他的家人。前线救援队送上祝福，并表示新中国联邦，法治基金的救援帐篷愿意为更多从乌克兰撤离的难民提供帮助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group47/origin/2022/03/26/10/d0898ebe-36d5-72d1-7194-b1cdf3d4115c/out.jpg)
-
----
-
-`@miles 3/26/2022 10:32 AM (UTC)`
-
-【Ukraine Rescue】03/22/22 Nineteen-year-old girl, 2nd-gen NFSC fellow fighter Feather requests to go to the Ukraine border to greet refugees, because she wants to contribute her own part at the frontline, especially for the children. She feels strongly empathetic towards the refugees.<br/><br/><br/>【乌克兰救援】03/22/22  19岁新中国联邦爆二代女孩Feather在前线帮助难民，特别是孩子。她希望为救援行动出一份力，对难民的处境深切共情。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
-![img](https://media.gettr.com/group46/getter/2022/03/26/10/9ffe57f6-6de4-5e7e-09f2-3a30d4622a4d/out.jpg)
 
 ---
 

@@ -2,30 +2,19 @@
 ---
 
 
-## 拜登警告“粮食短缺”即将成为现实
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236565/)
+## 美、英及欧盟对“普京核心集团”的寡头实施毁灭性制裁
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2236578/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，据外媒消息显示，美国总统拜登当天在布鲁塞尔举行的新闻发布会上确认，全球粮食短缺问题将成为现实。
+制作：大直播短视频组- 红桃Q
+文案：晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-9.jpeg)
-
-拜登提到，世界因战争对俄罗斯做出的制裁正在使得很多国家一同承担了相应代价，当中包括美国和欧洲。此前，俄罗斯和乌克兰在小麦方面一直是欧洲的粮仓，但如今，战争减少了乌克兰的生产，而制裁则阻止了其他国家与俄罗斯的贸易。
-
-为此，美国和欧洲各国近期在峰会期间反复讨论了关于粮食短缺的问题，以及一些可以采取的应对措施。拜登透露，国际社会或将敦促所有欧洲和其他国家结束对向国外运送粮食的贸易限制，同时，美国可以提供人道主义援助方面的重大投资。
-
-据了解，目前，美国从食品到燃料再到供应等各个方面的消费价格一直在上涨，且随着乌克兰冲突的持续，人们越来越担心这类价格上涨或许将不再减弱，反而愈演愈烈。
-
-参考链接：[BREAKING: Biden says ‘food shortages are gonna be real’](Biden%20says%20'food%20shortages%20are%20gonna%20be%20real')
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑/审核：飞虹
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+审核/编辑/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
