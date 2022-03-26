@@ -2,26 +2,30 @@
 ---
 
 
-## 布达拉宫前被中共自焚的才旺罗布
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2233362/)
+## 视频|他是新中国联邦永远的朋友「非脱敏」（中英文字幕）
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2233375/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/才旺羅布-1.jpg)
-西藏之声3月16日报导，2月25日下午，26岁的西藏那曲藏人歌手才旺罗布，在西藏拉萨布达拉宫前广场马路中间的白塔上高喊口号，抗议中共的镇压，随后自焚。才旺罗布自焚后，警方随即将人带走。中共迅速封锁了整个广场，并对过往车辆的行车记录仪及民众的手机都进行了检查。数日后，传出才旺罗布已经身亡的消息。迫于中共严密监视，目前无法取得现场视频或音频等证据。但根据文贵先生3月23日大直播中指出，才旺罗布支持新中国联邦消灭中共邪恶体制，致力揭露传播中共偷假骗治国和随意迫害人权，导致中共将才旺罗布杀害后焚尸。
+文案编辑：澳喜要闻
 
-中共对西藏从1959年3.17大屠杀，2008年3.14镇压，至今约有50万藏人遭到杀害，中共极权统治西藏，从未停止迫害藏人，不仅强迫藏人汉化，实行对藏传佛教的清洗政策，还要求大部分的喇嘛接受共产主义思想，并要求藏区学校教育把爱国主义、伟大中华民族祖国、中国特色社会主义、爹亲娘亲不如党亲的种子埋入青少年的思想，彻底摧毁藏传佛教和西藏的传统文化，并在西藏培养拥护共产主义的藏人，试图让藏人从内部分裂，分化西藏族群。尽管达赖喇嘛与流亡藏人逃离中共国，藏人流亡印度、尼泊尔等地寻求庇护，却未能逃离中共各种手段的威胁，甚至收买尼泊尔与印度居民，告发藏匿的流亡藏人，大搞间谍活动、操纵尼泊尔的边境政策，削弱国际社会对西藏的支持。
+制作团队：澳喜要闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+Davide Martello是意大利裔德国钢琴家。
+自2011年以来，他带着钢琴一直在世界各地演奏；
+他先后在阿富汗、土耳其等地进行多次表演。
+他的身影，總是出现在动荡不安的角落；
+这次，他出现在波乌邊境的救援前线，走近了梅迪卡新中国联邦的救援站；用音乐疗愈失去家园的心灵，传播愛与和平。
+Davide Martello, an Italian-German pianist, has been taking his piano to perform all over the world since 2011. He has been performed in Afghanistan, Turkey and many other countries. His figure always can be found in the most turbulent corners. This time, he appeared in the front line of rescue on the border of Poland and Ukraine. He approached the rescue station supplied by the New Federal State of China in Medyka, using his music as a remedy and relief for those are suffering the sorrowness of losing their home. His music symbolises love and peace.
 
-**美国罗斯福总统在****1941****年国情咨文发表四大自由的演讲****，言论自由、信仰自由、免于匮乏的自由、免于恐惧的自由，自由是所有人都享有与生俱来的权利。人人具有追求人生尊严的能力，这些权利不是任何政府的恩赐，而是应受到所有政府的保护。建立在公正、容忍、尊严和尊重基础之上的自由，不分民族、宗教、政治从属或社会地位。**中共从文革大跃进、3.17屠杀西藏人、8964、一胎化，新疆种族灭绝、活摘器官、香港反送中被杀学生，长江水患、河南泄洪等各种人祸造成的天灾、湖北武汉新冠状病毒的爆发、西安等各地病毒封锁、疫苗灾难，到2022年的今天，中共统治下的中国人离自由民主法治的社会越来越远，中共不仅是14亿中国人的毒瘤，也是全世界灾难的根源，只有消灭中共才能拯救全人类。
+【新闻来源】NFSC前线素材
 
-回向才旺罗布战友和在中国所有追求自由民主的勇士
+审核/编辑/发稿：qiutian（邱甜）
 
-本文仅代表个人立场
-
-資料來源: [「中国好声音」西藏歌手惊传自焚身亡](https://www.storm.mg/article/4245574)
-
-祈祷万佛万神加持文贵先生与新中国联邦战友
-
-审核:Athena雅典娜 撰稿发布:Amitofu
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

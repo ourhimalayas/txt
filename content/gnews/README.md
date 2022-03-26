@@ -15,37 +15,37 @@
 
 ---
 
-### [航空公司CEO们敦促拜登结束强制测试和佩戴口罩的要求](/content/gnews/1/README.md)
+### [如果雨季再次达不到预期，东非数百万人将面临饥饿](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄乌战争似乎进入到了新阶段](/content/gnews/2/README.md)
+### [航空公司CEO们敦促拜登结束强制测试和佩戴口罩的要求](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [视频|他是新中国联邦永远的朋友「非脱敏」（中英文字幕）](/content/gnews/3/README.md)
+ ` 爆料视频`
+
+### [俄乌战争似乎进入到了新阶段](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [布达拉宫前被中共自焚的才旺罗布](/content/gnews/3/README.md)
+### [布达拉宫前被中共自焚的才旺罗布](/content/gnews/5/README.md)
  ` G-NEWS TAIWAN`
 
-### [拜登走访波乌边境 将乌克兰人抗俄比喻天安门](/content/gnews/4/README.md)
+### [拜登走访波乌边境 将乌克兰人抗俄比喻天安门](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国将接受10万名乌克兰难民](/content/gnews/5/README.md)
+### [美国将接受10万名乌克兰难民](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [大直播后记：被中共洗脑后的中国人，已经失去了对善恶的基本判断力](/content/gnews/6/README.md)
+### [大直播后记：被中共洗脑后的中国人，已经失去了对善恶的基本判断力](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [俄罗斯军队在乌克兰犯下战争罪](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [视频|俄罗斯称只接受卢布结算天然气贸易](/content/gnews/8/README.md)
+### [视频|俄罗斯称只接受卢布结算天然气贸易](/content/gnews/9/README.md)
  ` MOSVIDEO`
 
-### [视频|梅迪卡前线染疫战友绝大多数已复阴](/content/gnews/9/README.md)
+### [视频|梅迪卡前线染疫战友绝大多数已复阴](/content/gnews/10/README.md)
  ` MOSVIDEO`
 
-### [视频|习妄图称霸世界 不会放弃攻打台湾](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [视频|美国能产生无数马斯克 中共独裁体制扼杀文明（视频）](/content/gnews/11/README.md)
+### [视频|习妄图称霸世界 不会放弃攻打台湾](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
 ### [视频|奢侈品行业的新生代传奇——Gfashion](/content/gnews/12/README.md)
