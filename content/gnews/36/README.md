@@ -2,40 +2,21 @@
 ---
 
 
-## CDC将COVID-19的死亡人数降低了数万人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2230372/)
+## 芬兰切断俄国与欧盟最后的运输系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2230877/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2983.png)图片来源：justthenews.com
+撰稿：西枫westca
 
-美国疾病控制和预防中心将近期 COVID-19 的总死亡人数降低了7.2万多人。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-21.jpg) 图片来源：Mauri Ratilaninen/Shutterstock
+据早报3月25日讯，芬兰铁路公司宣布，芬兰政府已下令自3月28日起暂停彼得堡和赫尔辛基之间的火车服务。关闭俄罗斯与欧盟之间的铁路连接。
 
-据 CDC 称，美国政府的算法将26个州的新冠死亡的相关人数多算了72,277人，特别是包括24%（416）的儿科死亡人数。
+运营商VR表示，芬兰政府的决定是基于俄罗斯入侵乌克兰后欧盟对俄罗斯实施的制裁。由于欧盟已经对俄罗斯关闭了领空，导致俄罗斯与欧洲之间的航班暂停， 保持这条火车线路服务的原因是允许在俄罗斯的芬兰人返国的主要出发路线。这是目前俄罗斯和欧盟之间唯一仍在运营的铁路服务。此举进一步将俄罗斯与全球运输系统隔离开来。
 
-3月15日，CDC 网站上的数据被篡改了，原因是在一个脚注中被解释为“编码逻辑错误”。
+同时美国及其盟国加大了就入侵乌克兰问题向俄罗斯施加压力，美国对数十家俄罗斯国防公司、数百名国会议员和该国最大银行的首席执行官施加新的制裁。
 
-CDC 更新的新冠病毒导致的总死亡人数约为96.9万。这一变化接近7.5%，这代表了在总死亡人数如此接近100万的情况下的一个重大差异。
+**新闻来源：**[芬兰暂停衔接俄欧的最后运营火车服务 | 早报 (zaobao.com.sg)](https://www.zaobao.com.sg/realtime/world/story20220325-1256050)
 
-由于 COVID-19 导致的小儿死亡数字的大幅下降使全国的总人数达到1341人。儿童已占所有 COVID-19 病例的约19%，尽管所有儿童 COVID-19 病例中只有0.00%-0.01%导致死亡。
-
-上周，CDC 主任罗谢尔·瓦伦斯基（Rochelle Walensky）在一封信中讨论了“数据现代化计划”（Data Modernization Initiative），该计划旨在使 CDC 的数据更加准确。这些努力是在立法者和媒体成员要求政府卫生机构提供更真实的新冠报告，之后的几个月。
-
-时至今日，CDC 的新冠死亡人数并没有明确区分是否因 COVID-19 而死亡的人，这可能会导致少计算了美国的新冠死亡人数。
-
-新闻来源：[justthenews.com] [CDC lowers COVID-19 death count by tens of thousands](https://justthenews.com/politics-policy/coronavirus/cdc-lowers-covid-19-death-count-tens-thousands?utm_source=justthenews.com&amp;utm_medium=feed&amp;utm_campaign=external-news-aggregators) | 发布时间：2022年03月23日
-
-* * *
-
-审核：文乐
-校对：花羽
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

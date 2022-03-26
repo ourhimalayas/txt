@@ -2,8 +2,8 @@
 ---
 
 
-## 中俄开战，中国军队一定被俄罗斯打趴下
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231630/)
+## 欺民贼伪类假民运为了一点狗粮当共产党的枪害了无数中国人（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231680/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

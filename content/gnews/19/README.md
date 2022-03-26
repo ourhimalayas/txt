@@ -2,49 +2,25 @@
 ---
 
 
-## 拜登：普京使用化学武器将引发北约的反击
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2231247/)
+## 美FCC将中国电信和中国移动列入“安全风险清单”
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2231526/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-美国总统乔·拜登（Joe Biden）在周四（24日）的新闻发布会上向全世界保证，如果俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在乌克兰使用化学武器，北约将作出反击。
+采编：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3018-edited.png)breitbart.com
+**当地时间周五（3月25日），美国联邦[通信](https://www.163.com/keywords/9/1/901a4fe1/1.html)委员会（FCC）将卡巴斯基、[中国电信](https://news.163.com/news/search?keyword=%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1)和[中国移动](https://news.163.com/news/search?keyword=%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8)列入“对美国国家安全构成威胁的通信设备和服务”的清单。FCC依据2019年颁布的旨在保护美国通信网络安全的法律，进入清单的公司被认定对美国国家通信安全构成威胁。去年6月，FCC投票通过一项禁令，禁止在美国电信网络中使用清单中公司的设备。去年10月，美国国会参议院要求FCC不得再对已被列入清单的公司颁发新的设备牌照。**
 
-“这将引发一种反击；反击的性质将取决于使用的性质。”拜登在被记者问及普京使用化学武器是否会促使北约采取行动时，回答说。
+**目前该清单中有8家公司，分别为今日被列入的卡巴斯基实验室（AO Kaspersky Lab）、中国移动国际（美国）有限公司（China Mobile International USA Inc.）、中国电信美洲公司（China Telecom (Americas) Corp.），以及去年3月12日被列入的华为、中兴、海能达、海康威视和大华股份。**
 
-但总统犹豫了一下，没有说具体的反击是什么。
+**先前，FCC以国家安全考虑为由，吊销了中国电信等多家中企在美国的214牌照。不仅如此，FCC还曾在2019年否决了中国移动在美开展业务的申请，当时使用的理由同样是“可能严重危及美国国家安全”。所谓214牌照，是指根据《美国通信法》第214条规定，取得FCC颁发的国际电信业务授权。若公司没有214牌照，则不能在美国地区开展运营业务。**
 
-“无论你问的是北约是否会越过……我们会在当时做出这个（反击）决定，”他说，在回答时犹豫不决。
 
-白宫一直拒绝说使用化学武器将是美国的一条“红线”，因为前总统巴拉克·奥巴马（Barack Obama）在叙利亚承诺采取行动后，却并没有。
 
-拜登在新闻发布会上承认，制裁对普京没有威慑力，但希望在俄罗斯入侵乌克兰事情上，施加尽可能多的经济制裁。
+原文链接：[https://www.163.com/money/article/H3CB9B6D00258105.html](https://www.163.com/money/article/H3CB9B6D00258105.html)
 
-总统拜登在与欧洲领导人和北约联盟领导人会晤后夸耀了他的外交政策经验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-18.png)
 
-他说：“我处理外交政策的时间比现在参与这一进程的任何人，都长。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-17.png)
 
-拜登多次警告说，普京很可能会使用化学武器，但拒绝分享任何情报来证明这种威胁。
-
-“我认为这是一个真正的威胁，”他在离开白宫前往欧洲时说。
-
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源：[breitbart.com] [Joe Biden: Vladimir Putin Using Chemical Weapons Would ‘Trigger a Response’ from NATO](https://www.breitbart.com/politics/2022/03/24/joe-biden-vladimir-putin-using-chemical-weapons-would-trigger-a-response-from-nato/)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
