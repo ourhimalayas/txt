@@ -2,23 +2,25 @@
 ---
 
 
-## 樱花头条┃澳洲成立太空司令部 发展太空军抵御中俄威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234671/)
+## 乌克兰强大的防空能力迫使俄空军使用无人机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234631/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-澳洲成立太空司令部,发展太空军抵御中俄威胁.
+**撰稿：日本东京方舟农场 北极**
 
-信息来源：[https://gettr.com/post/p11g2kid4a0](https://gettr.com/post/p11g2kid4a0)
+据Ukrinform 3月26日报道，俄乌战争中，乌克兰强大的防空系统严重削弱了俄罗斯空军载人飞机的战斗力，因此俄空军计划使用更多的无人机。
 
-*编辑：东京樱花团/asket、行动（素材提供）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-8.jpeg)英国国防部在其推特（Twitter）上发布的更新信息（图片来自推特）
+
+来自英国国防部在其推特（Twitter）上发布的更新信息显示， 强大的乌克兰防空系统严重打击了越过战争前线的俄空军载人飞行，因此俄罗斯被迫转向使用更多的无人机。
+
+据该推特声明，英国已经制裁了65个为俄罗斯非法入侵乌克兰提供支持的个人和实体。受制裁者包括生产俄罗斯无人机的国防公司克朗斯塔特（Kronshtadt），以及俄罗斯猎户座无人机和其他无人机的生产商。
+
+参考链接：
+1. [https://reurl.cc/125x0p](https://reurl.cc/125x0p)
+2. [https://twitter.com/DefenceHQ/status/1507480978553552902](https://twitter.com/DefenceHQ/status/1507480978553552902)
+
+总编：老孙
+校对发布：文曦
 
  
 

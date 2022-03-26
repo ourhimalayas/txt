@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花头条┃俄罗斯中断与日本和平条约谈判 岸田文雄强烈抗议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234750/)
+## 【乌克兰救援】03/24/2022 前线义工体能得到缓解，染病人员基本康复，一切向好
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234780/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-俄罗斯中断与日本和平条约谈判,岸田文雄强烈抗议.
+【乌克兰救援】03/24/2022 小小酥战友介绍，前线义工工作量已经减少，战友体能得到缓解。染病战友基本全部转阴。难民人流量出现减少。一切在向好的方向发展。
 
-信息来源：[https://gettr.com/post/p119ldw25bb](https://gettr.com/post/p119ldw25bb)
-
-*编辑：东京樱花团/asket、asket（素材）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

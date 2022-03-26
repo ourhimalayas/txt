@@ -2,18 +2,12 @@
 ---
 
 
-## “3•21”东航MU5735遇难家属的诉求
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2234362/)
+## 辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234329/)
 
-编辑：波士顿五月花—-思澈
+03/23/2022 班农战斗室：一位参与审查辉瑞文件的志愿者有两个发现。一个是辉瑞是否将所有记录在案的副作用都报告给疫苗不良反应系统。另一个是辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准。
 
-中共邪恶至极，遇难家属没有知情权禁止在失事地点祭奠往生亲人。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/511F98D3-8366-491C-BDEF-DC7475AD5AE5.jpeg)
-
-*发布：思澈*
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
