@@ -2,42 +2,31 @@
 ---
 
 
-## 天空下着大雨，教室下着小雨
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2235658/)
+## 澳大利亚通胀来了
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2235716/)
 
-作者：香草山写作组—静水流深
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-又是潮呼呼湿漉漉下大雨的天气
-仿佛天空在哭诉
-中华大地上为何会有如此多的阴暗如此多的邪恶
-寒冷让学生们的小手冻得通红甚至生了冻疮
-还不得不拿着笔僵硬地在作业本上书写
-没有空调没有暖气没有任何供暖设备的教室
-无法抵挡严寒
+**撰稿：云彩**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-27.jpg)图片来自网络
+对于许多澳大利亚人来说，明显地感受到物价上涨的压力。近期爆发的俄乌战争和澳大利亚新州的大洪水进一步提高运输成本。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-61.png)
+Rocco Tripodi 是一位一直在墨尔本的维多利亚女王市场销售新鲜水果和蔬菜的摊主。最近几周，他先是把一篮草莓的价格从 2.50 澳元提高到 3澳元，不久之后又从 4 澳元提高到 5澳元。新鲜青豆飙升了约 30%，达到每公斤 15.99 澳元。Rocco Tripodi 表示，他刚刚收到供应商邮件，从4月起，某些蔬菜的价格将上涨50%到100% 。他需要转嫁这些成本到消费者。
 
-大雨浸满了教学楼的楼顶、教学楼的侧面
-顶楼的雨水渗透到教室里
-滴答滴答落下来
-打湿了书本
-打湿了地面
-雨水也顺着外墙渗透到教室墙壁里
-泛起一层层苔绿
+澳新银行经济学家最近将澳大利亚的水灾纳入了他们的下一次通胀预测，因为它既打击了农产品供应，又扰乱了许多服务的物流。尽管，这种打击将是暂时的。
 
-这就是乡村学校的教学场景
-然而校长办公室里却是刷新的墙壁和新装的空调
+俄罗斯和乌克兰是小麦的主要出口国之一。由于俄乌战争，出售面包摊主Mary-Jane Caiafa听到近期小麦价格上涨的消息。“我们担心一条面包可能会从大约 5 澳元涨到大约 10 澳元，”Mary-Jane Caiafa 说。“去年 2.95 美元的巧克力现在是今年 4.95 美元。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+澳大利亚品牌服装生产商 Kuwaii 刚刚提高了其标志性裤子的价格，从 289 澳元涨到了 299 澳元。这是 10 年来的第一次。 “生产、原材料和运输成本都增加了，”商店经理 Geordan Dragos 说。
 
-- 审核/编辑/发稿:qiutian（邱甜）
+最近几周，大型超市Woolworths 的老板 Brad Banducci 表示，货架上的货物整体可能上涨 2% 至 3%。“随着供应商批发成本的上涨，Woolworths 提高了红肉和包装食品的部分零售价格，”该公司本周发表的一份声明宣称。
 
+规模较小的连锁超市 Ritchies IGA 本周也警告称，由于洪水以及冷冻食品短缺，一些新鲜水果和蔬菜的价格飙升了 75%。本月，制造商 SPC 宣布由于燃料成本、小麦价格和锡成本的上涨，可能会导致平均一罐烤豆从 1.70 澳元涨到 2.20 澳元。
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+战争ˎ自然灾害和疫苗灾难让人类在经历着一场变革。独裁者和控制世界的大利益者为了自己的利益，牺牲绝大多数人的利益。希望民天下早日来临。
+
+*审核：云彩*
+
+*编辑：云彩*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

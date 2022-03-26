@@ -2,12 +2,20 @@
 ---
 
 
-## 金正恩出现在朝鲜发射导弹的影片之中
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235181/)
+## 视频|新中国联邦乌克兰救援-波兰基地前线报导
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2235256/)
 
-03/25/2022 朝鲜国家电视台播放了一部好莱坞风格的影片，据称显示金正恩和军方官员正在监督华星-17洲际弹道导弹的发射。这次发射引发了国际社会的谴责。
+制作：香草山视频部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+3月22日，据新中国联邦前线记者报导，在波兰救援基地，仍有许多乌克兰妇女儿童等待救援。波兰政府也已做好大巴救援安排，通过边检后，他们将陆续被安排登上救援大巴。来自世界各国的义工和工作人员一直辛勤地工作，为乌克兰人民提供帮助。
+
+发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

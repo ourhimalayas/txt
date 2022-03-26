@@ -2,30 +2,29 @@
 ---
 
 
-## 泽伦斯基：俄军阵亡逾1.6万 乌克兰从马立波救出3.7万
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2231658/)
+## 国际｜拜登吁将俄逐出G20 并收紧对中共商品的关税豁免
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2231805/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-泽伦斯基指出，俄罗斯损失的人数已超过16,000人，其中还有高级将领，到目前为止，还没有关于被杀的俄罗斯将军上校或海军上将的报导，然而，在这个数字中，包含一名占领者军队的指挥官和一名黑海海军的指挥官。
+圖/文 zhong｜26/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-26.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+美国川普政府任内对中（共）国的2200多项产品提供关税豁免，以减轻某些行业和零售商的压力。大多数豁免许可在到期后就结束了，其中549项商品的豁免许可被延长一年，并于2020年底到期。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/e591986e-710b-4809-bf0b-4eb6d7ee7c21.jpg)图片来源：Volodymyr Zelensky脸书
+经延长后于2020年底到期的549项商品，23日由美国贸易代表办公室（USTR）声明称，将对352项从中（共）国进口商品关税重新豁免，适用于在2021年10月12日至2022年12月31日之间进口自中（共）国的商品，包括泵和电动机等工业部件、某些汽车零部件和化学品、背包、自行车、吸尘器等消费品。
 
-2名北约高级军事官员周三时则估计，在乌克兰行动中丧生的俄罗斯士兵人数在 7,000至15,000 人之间。美国官员也预估，俄军死亡人数落在7,000至14,000间。
+这意味着，拜登政府收紧了原先川普政府的关税豁免政策，549项中只有352项重新豁免。
 
-泽伦斯基进一步表示，过去一周乌克兰确保了18条人道主义走廊的安全，并设法从被围困的马立波营救了37,606人，其中26,477人被带到扎波罗热。
+## 拜登吁将俄逐出G20
 
-简评：俄军为了攻下乌克兰不惜屠杀平民，乌军为了保卫家乡尽其所力救援，独裁与民主两国对平民的关怀高下立判。一个拿人民性命当儿戏的国家没有理由去为它卖命，俄罗斯的大兵们醒醒吧！
+美国总统拜登24日在布鲁塞尔表示，他支持将俄罗斯逐出20国集团（G20），如若不然，应让乌克兰加入，至少是G20大会观察员。此外，拜登总统称情俄罗斯可能动用生化武器侵略乌克兰，届时北约将根据实际情况决定是否军事回应。
 
-新闻来源：[民视新闻](https://www.ftvnews.com.tw/news/detail/2022326W0009)
+拜登总统在布鲁塞尔会晤北约和G7领导人会后，宣布相关制裁与欧洲盟友一致，并呼吁欧盟和先进民主国家G7都团结起来应对极权侵略；北约宣布强化东翼，在罗马尼亚、匈牙利、保加利亚和斯洛伐克部署4支战斗部队。
 
-撰稿/发布：一叶知秋
+来源｜[REUTERS](https://www.reuters.com/world/biden-says-he-thinks-russia-should-be-removed-g20-2022-03-24/)、[NYT](https://www.nytimes.com/2022/03/23/business/chinese-imports-tariffs.html)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

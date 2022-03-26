@@ -2,30 +2,53 @@
 ---
 
 
-## 中共房地产的大崩塌即将到来
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2235670/)
+## 又到Gclub年会
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2235731/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-2022年3月25日郭先生大直播：我们所有的爆料就是希望能挽救更多的中国人，我们所有的爆料的目的、讲的话题就希望中国人真的有少一点儿人倾家荡产，少一点儿人死在疫苗上，少一点人被别人骗走钱，少一点儿人倒在中共之前——中共要倒闭的时候那个黑夜里，不应该带走那么多无辜人！没有任何一个国家的房地产负债能超过50%还在经营，超过的那一定是骗局！中共的房地产绝对比棺材对你还残酷，它是一个让你活着虐待你的“棺材”，你只需要一套房子住就可以了，你再有任何所谓的投机、取巧、侥幸、还有度假什么豪宅，绝对你就是多了个“棺材”。因为中共的房地产是共产党给中国人套在你生命中的最大的一个“锁铐”！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-148.png)
-中共公布的中国房地产总量65万亿美元实际接近100万亿美元，美国这个国家的GDP20万亿美元，它的这个国家的房地产总值才三十几万亿美元。你一旦要买了那个房子你想想，100万亿美元的中共的房地产市场和美国30万亿美国的房地产市场，中国的经济GDP是15万亿、美国GDP是20万亿，中国是14亿人、美国是3.5亿人，中共的房地产是自己GDP的八倍到十倍，它一旦崩塌的时候一文不值，而且共产党会让你继续付贷款、会要你的命！
+作者：香草山健身部-新世界的一员
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_1-62.png)
 
-现在，中共国货币超发严重，房地产的泡沫与债务危机已形成了一个巨大的堰塞湖！任何一个决堤的话，后果都会不堪设想！中共国人口红利已经消失，居民储蓄严重下滑，更有许多人靠借债度日。中共海量的住房无法及时消化，而房地产的严重债务危机根本无法解决。随着中共经商环境恶化，大量外资的撤离，导致大量老百姓失业，会产生严重社会危机！中共严重经济危机，公务员的收入必将减少，加之中共内部你死我活的内斗，随着美联储的加息与缩表的组合拳，将地基建立在沙滩上的中共国将会被自己头上的巨大的“堰塞湖”瞬间摧毁，连一丝喘息的机会都没有！
+岁月如梭一晃又到了Gclub年会，
+梅开二度2022年，
+是兴奋也是幸福更是幸运，
+有生以来中国人有了公平公正的摸奖平台，
+也就只有灭共的新中国联邦，
+才有如此高回报高中奖几率真金白银的直播摸奖活动，
+中共国的摸奖早已是人尽皆知臭名昭著的形式主义、暗箱操作，
+而新中国联邦的唯真不破，
+人人都有机会获得头等奖！
+个个都是公平公正公开摸奖！
+战友们兴奋的等待这一天，
+要摸高贵的兰博基尼，
+要摸喜爱的奔驰跑车，
+就在眼前，垂手可得，
+只要参加就有机会获得，
+8000-10000人的参与，
+礼物总价值200万美元！
+远远高于西方的惯例千分之一，
+百万分之一的中奖率！
+而且年年有今朝。
+摸奖时间正到
+我听到了战友们心脏的欢唱，
+快快乐乐进场了，
+等待帅帅的七哥开直播，
+要看Gfashion大放光芒，
+晚上是新中国联邦的节日，
+恭祝战友们都中奖，
+祝福新中国联邦早灭共，
+胜利后的日子天天是喜悦的节日！
 
-战友们、同胞们，在这场血雨腥风的脆断到来之前赶紧加入新中国联邦，加入G系列，相信只有新中国联邦才是你的诺亚方舟……
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-消息来源:[2022年3月25日 文贵大直播](https://gettr.com/post/p11tme3b4de)
+- 审核/编辑/发稿:qiutian（邱甜）
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-4.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)****
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
