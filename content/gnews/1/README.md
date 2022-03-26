@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈宗教与神的存在（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232762/)
+## 爆料革命正在告诉你钥匙在哪（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232796/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-50-11-00（2）-一-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-13-一-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

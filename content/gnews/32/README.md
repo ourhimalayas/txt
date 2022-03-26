@@ -2,24 +2,26 @@
 ---
 
 
-## 流媒体音乐巨头Spotify退出俄罗斯市场
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2231628/)
+## 中共国首都北京故宫附近冒起漫天浓烟
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2231645/)
 
-编译：文宝
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-99.png)
-Spotify周五（3月25日）表示，它将完全退出俄罗斯，因为最近限制新闻运营的法律可能会使流媒体的员工和听众面临风险。 它预计到 4 月底将完全暂停运营。
+**撰稿：日本东京方舟农场  海星**
 
-Spotify 退出俄罗斯的决定突显了西方媒体公司需要取得平衡，因为他们希望向俄罗斯公民提供新闻，同时面临与该国入侵乌克兰和该国商业环境相关的重大挑战。
+3月25日，中共微博等社交媒体平台传出多个北京故宫上空漫天浓烟的视频。
 
-Spotify 以音乐流媒体而闻名，但它也托管和分发一系列包含政治内容的播客。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-45.jpg)（图片来源：YouTube）
 
+据《自由时报》报导，今天下午5点左右，在微博等社交媒体平台上传出的多个视频显示，北京故宮附近冒起浓浓黑烟，还有行人停在路旁观看。
 
+报道称，“故宫着火”的话题一度引发网友讨论，不过目前在微博搜索此关键词，已看不到相关结果，疑似遭到中共封锁。也有网友猜测失火地点可能不在故宫。
 
-原文链接： [https://www.cnbc.com/2022/03/25/spotify-pulls-out-of-russia-citing-new-laws-restricting-free-expression.html](https://www.cnbc.com/2022/03/25/spotify-pulls-out-of-russia-citing-new-laws-restricting-free-expression.html)
+截至目前，官方仍未证实该消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-19.png)DISCORD
+参考链接：
+ [https://news.ltn.com.tw/news/world/breakingnews/3872114](https://news.ltn.com.tw/news/world/breakingnews/3872114)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-18.png)GETTR
+总编：老孙
+校对发布：Linda
 
  
 

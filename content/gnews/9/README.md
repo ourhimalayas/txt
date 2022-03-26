@@ -2,8 +2,8 @@
 ---
 
 
-## 中共国疫情已经失控接下来会更惨，战友做好准备病毒没有过去
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232728/)
+## 国内战友赶快卖掉房子
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232736/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

@@ -2,11 +2,11 @@
 ---
 
 
-## 别作恶这世界是有神的（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232760/)
+## 爆料革命正在告诉你钥匙在哪（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232794/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-二-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-13-二-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

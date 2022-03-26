@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月25日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2232369/)
+## 英首相约翰逊：我们将加大对乌克兰的支持，帮助他们自卫
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232374/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-20.png)
+03/24/2022 英首相约翰逊：我们必须收紧对普京的经济钳制，加大对乌克兰的支持，帮助他们自卫。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p11x7bk305a](https://gettr.com/post/p11x7bk305a)
-访谈：[https://gettr.com/post/p11wujoe1f1](https://gettr.com/post/p11wujoe1f1)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

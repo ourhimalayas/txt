@@ -2,11 +2,11 @@
 ---
 
 
-## 中国疫情与大陆政治无关联
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232753/)
+## 别作恶这世界是有神的（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232782/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-50-11-00（1）2--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-四-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

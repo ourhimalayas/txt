@@ -2,10 +2,10 @@
 ---
 
 
-## 英首相约翰逊：我们将加大对乌克兰的支持，帮助他们自卫
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232374/)
+## 乌克兰官方表示，俄罗斯军舰在被占领的别尔江斯克港被摧毁
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232427/)
 
-03/24/2022 英首相约翰逊：我们必须收紧对普京的经济钳制，加大对乌克兰的支持，帮助他们自卫。
+03/23/2022 BBC新闻：乌克兰官方表示，一艘俄罗斯登陆舰在被占领的乌克兰港口城市别尔江斯克被摧毁。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

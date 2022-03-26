@@ -2,27 +2,13 @@
 ---
 
 
-## 视频|孩子眼中的世界「非脱敏」（中英双语）
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232602/)
+## 美国总统乔·拜登：北约从未像今天这样团结
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232660/)
 
-制作：大直播短视频组
+03/25/2022 乔·拜登：普京寄希望于北约的分裂……在我看来，他显然不认为我们能维持这种凝聚力。北约从来没有像今天这样团结。普京在进入乌克兰后得到的结果完全事与愿违。
 
-文案编辑：RayChan(小笔民)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-视频剪辑：RayChan(小笔民)
-
-字幕翻译：Mary Ann Evans
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【新闻来源】前线素材
-
-审核/编辑/发稿：qiutian（邱甜）
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
