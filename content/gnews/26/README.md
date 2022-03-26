@@ -2,41 +2,37 @@
 ---
 
 
-## 拜登访波提“天安门广场” 称乌抵抗比六四更加英勇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2234229/)
+## 多国政要接种疫苗后后确诊中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234278/)
 
-翻译：文乐
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-乔·拜登总统正在访问波兰，该国首当其冲地受到大批乌克兰人逃离对他们国家的冲击。
+作者：日本方舟农场 – Andy5；银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月22日，美过前总统克林顿的夫人希拉里中共病毒检测呈现阳性。当天，白宫新闻秘书珍·普萨基中共病毒检测也呈阳性，这是她第二次出现阳性，不过症状轻微，她还表示转阴后很快回到工作岗位。本月早些时候，前总统奥巴马也确诊中共病毒阳性。
 
-拜登先生的第一站是热舒夫镇(Rzeszów)，距离乌克兰东南部边境不到100公里（62英里）。他和安杰伊·杜达总统( Andrzej Duda)听取了有关人道主义救援响应的简报，拜登先生会见了驻扎在那里的美国服役部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-14.jpg)
 
-在讲话中，总统重申了他认为弗拉基米尔·普京是战犯的信念，并将乌克兰公民的勇敢抵抗描述为“天安门广场的平方”(译注：更为英勇的抗暴行动)。总统还表示，他对无法越过边境亲眼目睹局势感到失望，暗示十分担忧安全问题——对这次访问已有很多猜测。
+另外，挪威国王、德国新任总统夫妇，均在23日传出了确认感染中共病毒的消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3101-edited.png)图片来源：网际网路
+据悉，现年85岁的挪威国王已完全接种三剂中共病毒疫苗，德国总统也在2021年11月12日接种了第三针加强针。而希拉里和普萨基也都是在接种后确诊的。
 
-两位总统将于周六在华沙正式会晤。
+多国高级政要在接种疫苗后密集确诊的事实再一次说明，中共病毒疫苗根本没有效果，甚至会增加感染风险。
 
-这次访问是在周四与北约、七国集团和欧盟领导人在布鲁塞尔举行的一系列马拉松式会议之后进行的。拜登先生说，这次特别峰会证明了美国及其盟国在面对俄罗斯在欧洲的侵略时团结一致。
+参考链接：
 
-领导人会晤时，对俄罗斯实施了多项新的制裁，总统表示他还希望把俄罗斯踢出“二十国集团”。他强调，是否这样做由该组织来决定，并补充说，另一种选择是让乌克兰作为观察员参加。
+- [外媒：85岁挪威国王新冠病毒检测呈阳性，症状较轻微](https://rmh.pdnews.cn/Pc/ArtInfoApi/article?id=27452102)
+- [德国总统夫妇感染新冠病毒](https://news.sina.com.cn/w/2022-03-23/doc-imcwipii0000961.shtml)
+- [希拉里确诊普萨基二次感染，为何近来美国政要频频“中招”？](https://j.eastday.com/p/1648024513044354)
+- [Hillary Clinton tests positive for COVID-19](https://www.axios.com/hillary-clinton-covid-edbd4c6a-cade-44a2-8860-b6d9bdb97ecc.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=editorial&amp;utm_content=politics-clintoncovid&amp;s=09)
+- [White House press secretary Psaki has COVID, Biden tests negative](https://abcnews.go.com/Politics/white-house-press-secretary-psaki-covid-biden-tests/story?id=83602499&amp;utm_source=facebook&amp;utm_medium=news_tab)
 
-评论：拜登亲赴欧洲前线，展示了美国支持乌克兰的决心。拜登又用“天安门广场事件”点出了这个共产党最敏感的死穴，几乎是在说中共正是这次入侵乌克兰的幕后黑手，俄罗斯和中共国是并列的流氓国家。也许这句话是为即将到来的对中共国的制裁而铺路。
 
-来源：【independent.co.uk】[Biden news – live: President calls Ukraine ‘Tiananmen Square, squared’ as he’s blocked from visit to border](https://www.independent.co.uk/news/world/americas/us-politics/biden-news-president-poland-food-b2044329.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-* * *
-
-审核：Bryan W
-校对: 五通庙
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-13.jpeg)
+总编：飞虹
+编辑：静言
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

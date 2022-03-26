@@ -2,37 +2,37 @@
 ---
 
 
-## 美国将对俄罗斯实施新一轮制裁
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2233801/)
+## 财经｜俄乌战争导致大中华圈外资大量出逃
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2234066/)
 
-作者：澳喜 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒3月24的消息，俄罗斯入侵乌克兰战争，已经持续一个月，为加大对俄罗斯的压力，美国宣布对俄罗斯的精英、立法者和国防公司实施新的一系列制裁。
+圖/文 zhong｜26/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-1-14.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+俄乌局势引爆大中华圈外资出逃，23日[报导](https://gnews.org/zh-hant/2226315/)称俄乌战争爆发加剧外资对中共侵略台湾的担忧。过去一个月，台湾已流出156亿美元外资。从中国股市流出的资金在2月底后也进一步加剧，数据显示2月25日～3月25日北向资金净流出551.33亿元。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-26-下午3.41.55.png)圖擷取自/鉅亨
+另据华尔街日报报导，外国投资者3月以来，已退出约95亿美元的A股投资，反映在俄罗斯被金融孤立后，投资者重新评估地缘政治风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-324.png)
+## 中共债市
 
-将对俄罗斯的400多名个人和实体实施全面制裁，包括俄罗斯杜马下议院的328名议员、十几名俄罗斯精英和48家俄罗斯国防公司。
+国际金融协会数据显示，外资在2月减持中国债券的规模创纪录，但流入其它新兴市场的资金却保持增长，该机构强调“这之前从来没发生过”并分析认为可能原因有二：
 
-本次制裁将打击俄罗斯联邦储蓄银行负责人兼普京的顾问格雷夫、俄罗斯亿万富翁季姆琴科、他的公司和家庭成员，以及俄罗斯金融机构Sovcombank的17名董事会成员。
-
-据白宫称，被制裁的国防公司包括俄罗斯直升机公司、战术导弹公司、高精密系统公司、材料制造公司NPK Tekhmash等。
-
-参考链接：
-
-- [Russia Says Donbas Is Ukraine Focus in Possible Shift in Aim](https://www.bloomberg.com/news/articles/2022-03-25/russia-says-ukraine-operation-focused-on-donbas-interfax?srnd=premium-europe)
+1. 俄乌战争触发全球固定收益投资者赎回
+2. 俄罗斯央行受欧美制裁影响，促使莫斯科当局转卖中国债券来筹资
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+路透日前引用中债登资料计算，境外机构投资者2月减持中债登托管债券人民币（下同）669亿元，为2018年11月以来首度减持；其中减持国债354亿元，为2021年3月以来首次减持。
 
-编辑/校正/发稿：海阔天空1
+## 中共股市
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2月25日～3月25日北向资金净流出551.33亿元。分析认为除中美监管措施之外，部分外资担心美、欧对俄罗斯的制裁可能以某种方式蔓延到中国。
+
+报导指出，截至3月24日，当月通过与香港证交所连通的“沪港通”及“深港通”流出的资金可能成为自2014年该计划开始以来第二大的月度缩减量。历史上最大的一次发生在2020年3月，但当时是因新冠疫情震荡全球市场，境外投资者净卖出106亿美元的大陆股票。
+
+來源｜[工商](https://ctee.com.tw/news/china/616738.html)
+
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

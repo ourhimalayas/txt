@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 10:43 AM (UTC)`
+
+【Ukraine Rescue】03/23/22 Interview with an Ukrainian Refugee who is ready to return Ukraine. The frontline rescue volunteers helped him print the ID to get back . His brother was injured during the bomb attack and he wants to return home and take care of his family. Rescue team wishes him all the best. NFSC, ROLF tent in Medyka is here to help more refugees who evacuate from Ukraine.<br/><br/>【乌克兰救援】03/23/22 采访一名想要回乌的乌克兰难民，前线救援队帮助他打印回乌的证件证明；他的兄弟在轰炸中受伤，他想回去照顾他的家人。前线救援队送上祝福，并表示新中国联邦，法治基金的救援帐篷愿意为更多从乌克兰撤离的难民提供帮助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group47/origin/2022/03/26/10/d0898ebe-36d5-72d1-7194-b1cdf3d4115c/out.jpg)
+
+---
+
 `@miles 3/26/2022 10:32 AM (UTC)`
 
 【Ukraine Rescue】03/22/22 Nineteen-year-old girl, 2nd-gen NFSC fellow fighter Feather requests to go to the Ukraine border to greet refugees, because she wants to contribute her own part at the frontline, especially for the children. She feels strongly empathetic towards the refugees.<br/><br/><br/>【乌克兰救援】03/22/22  19岁新中国联邦爆二代女孩Feather在前线帮助难民，特别是孩子。她希望为救援行动出一份力，对难民的处境深切共情。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -151,13 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 3/25/2022 Miles Guo: We repeat the topic of the real estate and banks in Communist China because we hope more Chinese people will be saved when they learned the truth; the purpose of all the media and the so-called “big shots” in Communist China is either to take your life away or to take your money away; the real estate in Communist China is equivalent to a huge lifetime shackle on the Chinese people.<br/><br/>3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱; 中共的房地产就是套在中国人一生的最大的锁铐<br/>
 ![img](https://media.gettr.com/group45/getter/2022/03/26/00/03b020d1-9c62-6ebc-c69c-5f58519dfc31/out.jpg)
-
----
-
-`@miles 3/25/2022 11:37 PM (UTC)`
-
-2022.03.25《The Fringe》 Episode 155   DOJ Takes Legal Actions against CCP Agents
-![img](https://media.gettr.com/group46/origin/2022/03/25/23/e94e9a85-3655-456c-4b6e-4a97dced1b09/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
