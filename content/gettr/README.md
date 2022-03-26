@@ -17,10 +17,17 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/26/2022 6:05 PM (UTC)`
+`@miles 3/26/2022 6:15 PM (UTC)`
 
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品17：奔驰E Class (单价: $54,950.00)<br/>奖品数量：1<br/>获奖者：<br/>YH64884<br/>获奖者来自日本银河系农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 17: Mercedes E Class Sedan (Unit Value: $54,950.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>YH64884<br/>The winner is from the Himalaya Japan Galaxy!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group19/getter/2022/03/26/18/a393f9fc-65cb-b5a4-69a6-0436f6ba2f73/27760b999896067ff0aefa2af04483cf.jpg)
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️8⃣️：GF 限定款鸵鸟皮背心 (单价: $8,500.00)<br/>奖品数量：8<br/>获奖名单如图<br/>中奖者来自(原) 多伦多枫叶农场，纽约香草山农场，温哥华扬帆农场，东京银河系农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️8⃣️: GFASHION Exotic Skin Vest- Ostrich Leather(Unit Value: $8,500.00)<br/>Number of Prizes: 8<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Toronto Maple Leaf, Himalaya New York Mountains of Spices Farm, Himalaya Vancouver Sailing Farm, Himalaya Japan Galaxy!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group13/getter/2022/03/26/18/255cf92d-ad79-65aa-77c4-6d71f7752050/635a09df5523e42152a5a57fabd6280d.jpg)
+
+---
+
+`@miles 3/26/2022 6:13 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️7⃣️：奔驰E Class (单价: $54,950.00)<br/>奖品数量：1<br/>获奖者：<br/>YH64884<br/>获奖者来自日本银河系农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️7⃣️： Mercedes E Class Sedan (Unit Value: $54,950.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>YH64884<br/>The winner is from the Himalaya Japan Galaxy!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group21/getter/2022/03/26/18/a9c1f3c6-a4cb-3f94-9261-0390a47117cd/2e4b9d0a4b53db0aee3faf35f38c8b32.jpg)
 
 ---
 
@@ -149,13 +156,6 @@ G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限�
 
 [ENGLISH] SIMULTANEOUS INTERPRETATION⎢G|TALKS 2022: CONNECTING CULTURES THROUGH LOVE LIVE BROADCAST on 2022.03.26
 ![img](https://media.gettr.com/group15/origin/2022/03/26/12/b40ce652-8b3e-0d95-7ab9-7139c3431745/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/26/2022 1:00 PM (UTC)`
-
-
-![img](https://media.gettr.com/group41/origin/2022/03/26/12/f1d708ef-47fc-9383-0b1c-a9ae5e8fc40f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
