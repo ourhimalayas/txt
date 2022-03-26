@@ -2,26 +2,28 @@
 ---
 
 
-## 樱花头条┃美国对中共官员采取限制性签证发放
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
+## 怕影响经济！上海感染人数创新高坚持不封城
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2234776/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-美国国务卿布林肯最新电视讲话：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+据联合新闻网报道，上海25日新增38例本土中共病毒疫情确诊、2,231例本土无症状感染者，单日新增总感染人数再创新高。
 
-将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220326214713464.jpg)图片来源：路透
 
-信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
+针对封城建议，上海疫情防控领导小组专家组成员、复旦大学上海医学院副院长吴凡坚决表示：「不行」。她强调，上海一旦封城，甚至会影响全球经济。
 
-*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+简评：中共从来都是带血的GDP，只要能创造价值哪管百姓死活，疫情期间也是如此，上海感染人数创新高不封城，怕的是影响经济从不考虑人身健康！中共经济崩塌在即，为了苟延残喘也是拼了，如此操作无异于引鸩止渴，问题集体爆发中共死的更快！
 
+新闻来源：[联合新闻网](https://udn.com/news/story/7332/6193771?from=udn_ch2_menu_v2_main_index)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

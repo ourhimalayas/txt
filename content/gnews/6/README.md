@@ -2,20 +2,38 @@
 ---
 
 
-## 三大评级机构撤销对俄罗斯的评级
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2236720/)
+## 俄罗斯暗示可能将退守乌东部地区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236792/)
 
-编辑：文宝
+翻译：wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/评级.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
 
-**3月26日电，据今日俄罗斯报道，全球三大信用评级机构——标准普尔、惠誉和穆迪撤销了对俄罗斯和俄罗斯实体的评级，以遵守欧盟对俄罗斯实施的与乌克兰有关的制裁。3月15日，作为一揽子经济制裁的一部分，欧盟禁止国际金融机构对俄罗斯和俄罗斯公司进行评级，并要求他们在4月15日前撤销评级。在退出之前，这三家评级机构都将俄罗斯主权债券的信用评级下调至垃圾级。此前，俄罗斯方面宣布，由于其在海外持有的大量外币已被冻结，只能以本国货币偿还债务。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-3.jpg)图片来源：美联社
 
-原文链接：[https://new.qq.com/omn/20220326/20220326A0ATLS00.html](https://new.qq.com/omn/20220326/20220326A0ATLS00.html)
+官员们周五（25日）表示，乌克兰境内的俄罗斯部队似乎已经将他们的重点从针对首都基辅的地面进攻，转移到优先考虑莫斯科所谓的解放乌克兰工业东部有争议的顿巴斯（Donbas）地区，这表明战争进入了另一个的阶段（译者注：俄罗斯死伤过大而选择退守）。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-23.png)DISCORD
+现在说这将导致什么，似乎还为时过早。弗拉基米尔·普京（Vladimir Putin）总统是否已经缩减了他的野心，以寻求战争的出路？一些俄罗斯军队最近在基辅附近采取的掘地三尺的防御工事表明，他们认识到了乌克兰令人惊讶的顽强抵抗。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-22.png)GETTR
+一位美国分析人士说，另一方面，俄罗斯军队可能旨在以更狭窄的重点继续进行战争，不一定是作为终局，而是从早期的失败中重整旗鼓，将顿巴斯作为一个新的台阶。
+
+普京的部队在该国许多地方面临巨大压力，美国和其他国家正在加速向乌克兰[转让武器和物资](https://apnews.com/article/russia-ukraine-biden-business-warsaw-europe-c905f43858e7966afb3b6cbfbed82b46)。最近几天，美国官员表示，他们看到了乌克兰保卫者在一些地区以有限的方式展开攻势的证据。本周早些时候，他们设法袭击了黑海沿岸港口的一艘大型俄罗斯船只。
+
+**新闻来源：**[apnews.com] [Russians shift focus from Kyiv — scaling back goals in war?](https://apnews.com/article/russia-ukraine-putin-europe-nato-971463587011b3bf19dde7abb35889ad) |发布时间：2022年03月25日
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-15.jpeg)
 
  
 

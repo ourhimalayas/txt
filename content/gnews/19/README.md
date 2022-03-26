@@ -2,34 +2,31 @@
 ---
 
 
-## 波罗的海三国议长访问乌克兰
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236554/)
+## 拜登以天安门形容乌克兰
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236582/)
 
-作者：纽约香草山农场-saner三二，Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，据相关媒体报道，波罗的海三国，即立陶宛、爱沙尼亚和拉脱维亚的议长于当天陆续抵达乌克兰首都基辅，与总统泽连斯基及其他政府官员会面。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
+美国总统乔·拜登(Joe Biden)3月25日在波兰乌的克兰边境附近访问时，将俄罗斯入侵乌克兰比作中国通过行使武力镇压示威的1989年天安门(Tiananmen)事件。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3174.png)图片来源：雅虎新闻
 
-据悉，波罗的海三国与乌克兰共同签署的一份联合声明显示，乌克兰正在为共享价值而战，所有自由民主国家都应在政治、防卫、人道和经济等领域竭尽所能地向其提供协助。为此，三国会持续支持乌克兰尽快加入欧盟。同时，三国也将推动北大西洋公约组织继续维持门户开放的政策，并开始为乌克兰的重建作准备。
+拜登赞赏乌克兰在对抗俄军入侵中展现出风骨，还提及一名30岁女性手持步枪站在坦克前的画面，“我的意思是，谈谈在天安门广场发生的事情，这就是天安门广场。”此外，他还重申俄总统普廷是一名“战争犯”。
 
-另一方面，三国议长也在声明中呼吁国际社会立即在乌克兰领空设置“禁航区”，用以避免当地平民大规模的伤亡。至于俄罗斯方面，三国则敦促全球各国彻底停止与俄罗斯的贸易活动，并持续政治孤立俄罗斯，而俄罗斯在所有国际组织和实体的会员资格则需要被暂停或撤销。
+拜登在与驻扎在当地的美军士兵，以及大量主动援助来自乌克兰难民的积极分子的集会中，称赞乌克兰人对俄罗斯表现出的“骨气”。当谈到一个女人拿着来福枪面对坦克的例子时，他说：“就像发生在天安门广场的事情一样。”（影响是天安门事件的几何倍数）
 
-三国议长也强调，绝不能让犯下战争罪行的俄罗斯有机会逃避惩罚。因此，各国必须协助国际法院和国际刑事法院尽快完成详实的调查，并执行所有必要程序。
+此外，对于俄罗斯总统弗拉基米尔·普京(Vladimir Putin)，他明确表示：“坦率地说，我认为他是战争罪犯。”他说：“（普京）也满足它本身的法律定义。”
 
-同一天，立陶宛与乌克兰两国的国防部长也就乌克兰的防御工作进行了交流。其中，两国政府确认将继续维持合作关系。此外，立陶宛国防部长也表示，立陶宛将不仅在口头上支持乌克兰，其已经向乌克兰提供了第一枚毒刺导弹。
+拜登此後将前往首都华沙，与波兰首脑们举行会谈。
 
-参考链接：
-1. [https://twitter.com/a\_anusauskas/status/1506674407116316685?s=21](https://twitter.com/a_anusauskas/status/1506674407116316685?s=21)
-2. [https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21](https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21)
-3. [Baltic parliament speakers visit Kyiv, address Verkhovna Rada of Ukraine](https://news.err.ee/1608542443/baltic-parliament-speakers-visit-kyiv-address-verkhovna-rada-of-ukraine)
+参考链接：[バイデン氏、ウクライナ侵攻を天安門になぞらえ（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/228abe91cf449c30bc7000a224a6cee68feff180)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+* * *
 
-审核/总编：Irene木木
-编辑：静言
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
