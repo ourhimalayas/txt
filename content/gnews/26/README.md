@@ -2,35 +2,32 @@
 ---
 
 
-## 多国政要接种疫苗后后确诊中共病毒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234278/)
+## 西方国家准备应对俄可能使用的大规模杀伤性武器
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234279/)
 
-作者：日本方舟农场 – Andy5；银河系农场 – 骄子
+作者：华盛顿DC农场 – 自由信仰；纽约香草山教育部 – Naughty(文行)；纽约磐石农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月22日，美过前总统克林顿的夫人希拉里中共病毒检测呈现阳性。当天，白宫新闻秘书珍·普萨基中共病毒检测也呈阳性，这是她第二次出现阳性，不过症状轻微，她还表示转阴后很快回到工作岗位。本月早些时候，前总统奥巴马也确诊中共病毒阳性。
+外媒报导，3 月 24 日，一位高级政府官员表示，白宫已经成立了一个专家小组，以应对俄罗斯在乌克兰使用大规模杀伤性武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13-14.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-28-scaled.jpg)
 
-另外，挪威国王、德国新任总统夫妇，均在23日传出了确认感染中共病毒的消息。
+面对美国和北约国家的制裁，俄罗斯一再威胁会使用核武器。而对于他们关于乌克兰可能使用化学武器的指控，美国表示，俄罗斯放出这样的谎言，表明他们自己有可能率先诉诸化学武器。
 
-据悉，现年85岁的挪威国王已完全接种三剂中共病毒疫苗，德国总统也在2021年11月12日接种了第三针加强针。而希拉里和普萨基也都是在接种后确诊的。
+据悉，白宫国家安全委员会已于 2 月 28 日建立了一个战略小组，审查俄罗斯入侵乌克兰后发生的重大地缘政治变化。同时，还建立了另一个被称为“老虎队”的小组，研究未来三个月的各种潜在风险。这些小组负责为各种情况制定应急计划，其中就包括俄罗斯可能使用化学或生物武器等大规模杀伤性武器。
 
-多国高级政要在接种疫苗后密集确诊的事实再一次说明，中共病毒疫苗根本没有效果，甚至会增加感染风险。
+对于这一问题，其他西方国家也高度警觉，七国集团在25日北约峰会后发表声明，警告俄罗斯在与乌克兰作战期间不得使用生物、化学、核武器或相关材料，并表示将不遗余力地追究普京侵乌的责任。
 
 参考链接：
 
-- [外媒：85岁挪威国王新冠病毒检测呈阳性，症状较轻微](https://rmh.pdnews.cn/Pc/ArtInfoApi/article?id=27452102)
-- [德国总统夫妇感染新冠病毒](https://news.sina.com.cn/w/2022-03-23/doc-imcwipii0000961.shtml)
-- [希拉里确诊普萨基二次感染，为何近来美国政要频频“中招”？](https://j.eastday.com/p/1648024513044354)
-- [Hillary Clinton tests positive for COVID-19](https://www.axios.com/hillary-clinton-covid-edbd4c6a-cade-44a2-8860-b6d9bdb97ecc.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=editorial&amp;utm_content=politics-clintoncovid&amp;s=09)
-- [White House press secretary Psaki has COVID, Biden tests negative](https://abcnews.go.com/Politics/white-house-press-secretary-psaki-covid-biden-tests/story?id=83602499&amp;utm_source=facebook&amp;utm_medium=news_tab)
+- [U.S. making plans in case Russia uses chemical, nuclear weapons](https://www.reuters.com/world/us/us-making-plans-case-russia-uses-chemical-nuclear-weapons-2022-03-24/)
+- [G7領袖警告俄羅斯勿用化武 矢言追究蒲亭侵烏責任](https://www.cna.com.tw/news/aopl/202203250010.aspx)
+- [俄駐聯合國公使：北約若再威脅 俄有權使用核武](https://news.ltn.com.tw/news/world/breakingnews/3870151)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：飞虹
-编辑：静言
-审核：木木
+总编/编辑：飞虹
+审核：飞虹
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

@@ -2,26 +2,26 @@
 ---
 
 
-## 法治基金在乌克兰的人道救援行动仍在继续
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234276/)
+## 富商注射中共疫苗后死亡，保险公司拒赔
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234277/)
 
+作者：澳喜农场 – Leo M
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+3月24日，郭先生的盖特转发了一则视频，视频中，法国一家保险公司拒绝对一位投有数百万人寿保险的富商进行理赔。这位富商因为注射中共疫苗而死亡。保险公司及法院均认为，他是在知晓该疫苗属实验性药物，且有副作用的情况下仍选择了接种，因此他的死亡应被认定是“自杀”。保险条款一般都会明确说明，自杀以及实验性药物造成的死亡不在保险理赔的范围之内。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/15-13.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-21.png)
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+虽然这位富商的官司发生在法国，不过，美国的人寿保险委员会也表示，死于中共病毒疫苗不在本国保险的理赔范围内。
 
 参考链接：
 
-- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
+- [3/24/2022 法国一家保险公司拒绝理赔一位投有数百万人寿保险的富商](https://gettr.com/post/p11n7xpbc26)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：飞虹
+总编/编辑：飞虹
+审核：飞虹
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

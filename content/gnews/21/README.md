@@ -2,25 +2,34 @@
 ---
 
 
-## 乌克兰军方在脸书发布消息澄清摧毁俄罗斯登陆舰
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234396/)
+## 一切谎言在真实互联网时代都会不攻自破
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2234402/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-17.08.14.png)
+3月25日大直播中郭先生与战友分享俄罗斯对乌克兰的战争局势。
 
-据国会山报（The Hill）3月25日报道，乌克兰军方周五在脸书发布消息澄清，萨拉托夫（Saratov）号大型登陆舰在别尔江斯克港（Berdyansk port）被摧毁，而并非此前声称的奥尔斯克（Orsk）号。
+在俄罗斯对乌克兰的战争中，除了落后的作战部署，落后的战争科技和武器使用外，更夸张的一点是，在今天的互联网时代，俄罗斯使用谎言大外宣来进行这场战争。网友可以随时查看互联网地图数据，社交媒体几乎都有实时战况分享。俄罗斯电视台直播却使用最原始的宣传手段严肃认真一本正经地胡说八道，谎报军队实际推进数据，张口撒谎，说风就跟着雨点。并且从早前暴露的视频里还看到，俄军被俘士兵根本不知道自己在做什么，多说一句还会被苛责。这种把全世界人民当傻子的行为，也就只有中共国、俄罗斯和北朝鲜做得到，连非洲国家都汗颜此类掩耳盗铃之态。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-18.jpeg)亚速海地图示意图。（图片来自网络）
+而俄罗斯在进攻乌克兰之前普京曾经豪言“保守点一周内拿下乌克兰”，曾经的超级大佬类似中共国宋平这样的人物，最近在到处寻求欧美国家的庇护，他称普京已经发疯无可救药。在今天互联网的时代，人若失去判断真假善恶，屏蔽谎言的能力，一切战争和所谓的超级人物、沼泽地大佬都变得非常透明，不堪一击，郭先生所说“真得没什么了不起的”，所以爆料革命所坚持的唯真不破，才显得更加弥足珍贵。
 
-根据最新消息，在亚速（Azov）作战区，除萨拉托夫号大型登陆舰在别尔江斯克港被摧毁外，另外两艘大型登陆舰凯撒·库尼科夫（Caesar Kunikov）和新切尔卡斯克（Novocherkassk）号也受损。
+撰稿、发布：骄子
 
-俄罗斯尚未对这一事件发表评论。
+* * *
 
-参考链接：
-[https://reurl.cc/xOrDVb](https://reurl.cc/xOrDVb)
+欢迎订阅我们的GNews账号：
 
-总编： 老孙
-校对发布：文曦
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/018f34de-a337-46d2-84ec-698934085be3_MP4_AdobeCreativeCloudExpress.gif)
+
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

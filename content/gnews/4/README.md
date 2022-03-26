@@ -2,76 +2,36 @@
 ---
 
 
-## 樱花FM|东航坠机，十一个消息已经确认
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2234900/)
+## 离开乌克兰的难民数明显减少
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2235005/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032615.png)
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-据网易新闻消息，2022年3月21日，东航一架波音737客机（MU5735）在执行昆明——广州航班任务时坠毁。机上共有旅客123名（无外籍旅客），机组人员9名（飞行员3名，乘务员5名，安全员1名）。事发飞机为2015年6月22日引进，截至事故发生时共飞行8986架次，总计18239小时。对于大众关注的诸多问题，部分消息和数据已得到核实确认。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-十一个消息已经确认：
+根据联合国难民署的数据，截止到欧洲中部时间2022年3月25日中午12点，已有3,772,599名乌克兰人逃离家园，通过过境点进入邻国。
 
-1、  失联时间：21日14点15分
+乌克兰难民逃往邻国的主要路线是西部的波兰，西南部的斯洛伐克和匈牙利，南部的罗马尼亚和摩尔多瓦，也有部分老人进入东部的俄罗斯，极少数人进入北部的白俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-22_19-14-59.png)
+通过西部进入波兰的难民最多，已经达到2,236,314人，其次是罗马尼亚579,800人，摩尔多瓦379,204人、匈牙利342,738人、斯洛伐克267,702人。另外，由于入侵的俄罗斯军队对安全撤离通道的不断袭击和部分道路遭到破坏，也有271,254人逃往俄罗斯，6,341人逃往白俄罗斯。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-26_19-17-49.png)
+*注：上表数据总共为4,083,353人，联合国难民署给出的难民数为3,772,599人。主要是因为上表数据中，统计了穿越罗马尼亚和摩尔多瓦过境点的310,754人。*
 
-2、  坠毁时间：21日14点38分
+下图为每日难民数统计数据
 
-3、  坠机地点：悟州市藤县琅南镇莫埌村
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-26_19-23-48.png)
 
-4、  机上人员：132人，其中旅客123人、机组9人
+下表为自2月24日，俄罗斯入侵乌克兰以来，每日增加的难民数据统计
 
-5、  乘客情况：失事航班上没有外籍乘客
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Refugees-fleeing-Ukraine-since-24-February-2022-2-scaled.jpg)
 
-6、  执飞机型：波音737-800
+在3月6/7日，逃离乌克兰的难民数达到顶峰，分别为206,340人和206,472人。最近几日来，逃离乌克兰的难民数量有比较明显的减少，3月25日，已经降低到46,793人。这可能也反映出乌克兰战局的态势。
 
-7、  涉事飞机停飞情况：东航已全部停飞
+参考数据：
 
-8、  现场情况：最大残骸是有东航标识的机翼
+[Refugees fleeing Ukraine (since 24 February 2022)\*](https://data2.unhcr.org/en/situations/ukraine#_ga=2.145552950.347834342.1647858718-1165991609.1647167307)
 
-9、  现场已经搭建临时救援中心
-
-10、批谣小贴示：事故飞机是737-800，并非被停飞的737MAX
-
-11、 伤亡情况：机上人员全部遇难无生还
-
-四个消息待官方确认：
-
-1、  乘客名单：尚未正式公开
-
-2、  失事原因：还在调查中
-
-3、  飞行轨迹：2分钟内骤降数千米？
-
-4、  客机坠毁前姿态：机头朝下？
-
-五个疑问：
-
-1、  波音737飞机不是都停飞了，为什么又用这种飞机？
-
-2、  飞机从飞行高度短时间坠7000多米，有人为操控？
-
-3、  是不是飞机在执行航班任务过程中遇到了极端气象状况？
-
-4、  民航公司是否会限制同款飞机运营？
-
-5、  飞机坠落到山林，是否还有机上人员幸存的可能？
-
-文字版原文：
-
-
-| [东航坠机，十一个消息已经确认](https://gnews.org/zh-hans/2211712/) |  |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
