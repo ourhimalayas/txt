@@ -2,18 +2,23 @@
 ---
 
 
-## “3•21”东航MU5735遇难家属的诉求
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2234362/)
+## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
 
-编辑：波士顿五月花—-思澈
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
 
-中共邪恶至极，遇难家属没有知情权禁止在失事地点祭奠往生亲人。
+信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/511F98D3-8366-491C-BDEF-DC7475AD5AE5.jpeg)
-
-*发布：思澈*
-
-
+*编辑：东京樱花团/asket、天路天道（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

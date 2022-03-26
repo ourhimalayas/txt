@@ -2,28 +2,24 @@
 ---
 
 
-## 富商注射中共疫苗后死亡，保险公司拒赔
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234277/)
+## 樱花头条┃蔡英文和安倍视讯 日华恳大会通过挺台决议文
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234672/)
 
-作者：澳喜农场 – Leo M
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月24日，郭先生的盖特转发了一则视频，视频中，法国一家保险公司拒绝对一位投有数百万人寿保险的富商进行理赔。这位富商因为注射中共疫苗而死亡。保险公司及法院均认为，他是在知晓该疫苗属实验性药物，且有副作用的情况下仍选择了接种，因此他的死亡应被认定是“自杀”。保险条款一般都会明确说明，自杀以及实验性药物造成的死亡不在保险理赔的范围之内。
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+蔡英文与安倍视讯，日华恳大会通过挺台决议文。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/14-21.png)
+信息来源：[https://gettr.com/post/p11fmtv08fb](https://gettr.com/post/p11fmtv08fb)
 
-虽然这位富商的官司发生在法国，不过，美国的人寿保险委员会也表示，死于中共病毒疫苗不在本国保险的理赔范围内。
+*编辑：东京樱花团/asket 、珍珍（素材提供）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-参考链接：
-
-- [3/24/2022 法国一家保险公司拒绝理赔一位投有数百万人寿保险的富商](https://gettr.com/post/p11n7xpbc26)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

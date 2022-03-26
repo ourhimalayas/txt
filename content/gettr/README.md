@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 3/26/2022 12:24 PM (UTC)`
+
+[ENGLISH] SIMULTANEOUS INTERPRETATION⎢G|TALKS 2022: CONNECTING CULTURES THROUGH LOVE LIVE BROADCAST on 2022.03.26
+![img](https://media.gettr.com/group15/origin/2022/03/26/12/b40ce652-8b3e-0d95-7ab9-7139c3431745/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/26/2022 1:00 PM (UTC)`
+
+
+![img](https://media.gettr.com/group41/origin/2022/03/26/12/f1d708ef-47fc-9383-0b1c-a9ae5e8fc40f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/26/2022 10:43 AM (UTC)`
 
 【Ukraine Rescue】03/23/22 Interview with an Ukrainian Refugee who is ready to return Ukraine. The frontline rescue volunteers helped him print the ID to get back . His brother was injured during the bomb attack and he wants to return home and take care of his family. Rescue team wishes him all the best. NFSC, ROLF tent in Medyka is here to help more refugees who evacuate from Ukraine.<br/><br/>【乌克兰救援】03/23/22 采访一名想要回乌的乌克兰难民，前线救援队帮助他打印回乌的证件证明；他的兄弟在轰炸中受伤，他想回去照顾他的家人。前线救援队送上祝福，并表示新中国联邦，法治基金的救援帐篷愿意为更多从乌克兰撤离的难民提供帮助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -144,20 +160,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 🆘🇺🇦🆘来自乌克兰救援前线最新报道:<br/>精糧战友在Medyka边境采访来自美国加州的自愿者--作家杰米讲述乌克兰Lviv 利沃夫的所见所闻<br/>🇺🇦 杰米被乌克兰民族的团结，相互支持和强大的战斗士气所感染和感动！<br/>🇺🇦杰米呼吁大家继续广泛传播真相，戳穿普京操纵俄罗斯媒体报道虚假宣传！<br/>Jing Liang Interviews Volunteer-Writer Jamie from California on Medyka Border about what he saw in Lviv Lviv, Ukraine<br/> 🇺🇦 Jamie was infected and moved by the unity, mutual support and strong fighting morale of the Ukrainian! <br/>🇺🇦 Jamie calls on everyone to continue to spread the truth widely and against Putin's manipulation of the Russian media to report false propaganda!<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/>#NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
 ![img](https://media.gettr.com/group29/origin/2022/03/25/18/325f9e50-bc42-029c-4eb7-728562832c1a/out.jpg)
-
----
-
-`@miles 3/26/2022 12:10 AM (UTC)`
-
-3/25/2022 Miles Guo: Communist China’s real estate sector, with a value of nearly $100 trillion, will be worthless after it collapses, while the banks will continue to force the Lao Baixing to pay their mortgages. Through the banks and real estate, the CCP set up a trap to plunder the hard-earned money of the Chinese people.<br/><br/><br/>3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷；通过银行和房地产，中共做了个局来黑中国人的血汗钱<br/><br/><br/><br/>
-![img](https://media.gettr.com/group50/getter/2022/03/26/00/82dfdc3a-279d-407e-fa9a-d6514c4562bc/out.jpg)
-
----
-
-`@miles 3/26/2022 12:01 AM (UTC)`
-
-3/25/2022 Miles Guo: We repeat the topic of the real estate and banks in Communist China because we hope more Chinese people will be saved when they learned the truth; the purpose of all the media and the so-called “big shots” in Communist China is either to take your life away or to take your money away; the real estate in Communist China is equivalent to a huge lifetime shackle on the Chinese people.<br/><br/>3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱; 中共的房地产就是套在中国人一生的最大的锁铐<br/>
-![img](https://media.gettr.com/group45/getter/2022/03/26/00/03b020d1-9c62-6ebc-c69c-5f58519dfc31/out.jpg)
 
 ---
 

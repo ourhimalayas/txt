@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花头条┃蔡英文和安倍视讯 日华恳大会通过挺台决议文
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234672/)
+## 俄罗斯军方高层人士突然从公众视野中消失了
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235095/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-蔡英文与安倍视讯，日华恳大会通过挺台决议文。
+03/24/2022 在俄罗斯自冷战以来最大的冲突中，一些俄罗斯高级官员的下落被质疑
 
-信息来源：[https://gettr.com/post/p11fmtv08fb](https://gettr.com/post/p11fmtv08fb)
-
-*编辑：东京樱花团/asket 、珍珍（素材提供）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

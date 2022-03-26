@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯士兵用坦克碾压其指挥官以示抗议
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235222/)
+## 对普京的新打击：“另一名俄罗斯将军丧生”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235476/)
 
-03/24/2022 据报道，一名俄罗斯士兵对的入侵乌克兰行动感到愤怒，驾驶坦克冲向他的上校，碾过他的腿。
+03/25/2022 伦敦旗帜晚报新闻：对普京的新打击，“另一名俄罗斯将军丧生”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

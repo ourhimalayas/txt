@@ -2,28 +2,26 @@
 ---
 
 
-## 法治基金在乌克兰的人道救援行动仍在继续
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234276/)
+## 乌克兰强大的防空能力迫使俄空军使用无人机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234631/)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+**撰稿：日本东京方舟农场 北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/15-13.png)
+据Ukrinform 3月26日报道，俄乌战争中，乌克兰强大的防空系统严重削弱了俄罗斯空军载人飞机的战斗力，因此俄空军计划使用更多的无人机。
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-8.jpeg)英国国防部在其推特（Twitter）上发布的更新信息（图片来自推特）
 
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+来自英国国防部在其推特（Twitter）上发布的更新信息显示， 强大的乌克兰防空系统严重打击了越过战争前线的俄空军载人飞行，因此俄罗斯被迫转向使用更多的无人机。
+
+据该推特声明，英国已经制裁了65个为俄罗斯非法入侵乌克兰提供支持的个人和实体。受制裁者包括生产俄罗斯无人机的国防公司克朗斯塔特（Kronshtadt），以及俄罗斯猎户座无人机和其他无人机的生产商。
 
 参考链接：
+1. [https://reurl.cc/125x0p](https://reurl.cc/125x0p)
+2. [https://twitter.com/DefenceHQ/status/1507480978553552902](https://twitter.com/DefenceHQ/status/1507480978553552902)
 
-- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
+总编：老孙
+校对发布：文曦
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

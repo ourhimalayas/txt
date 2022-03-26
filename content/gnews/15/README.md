@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
+## 金正恩出现在朝鲜发射导弹的影片之中
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235181/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
+03/25/2022 朝鲜国家电视台播放了一部好莱坞风格的影片，据称显示金正恩和军方官员正在监督华星-17洲际弹道导弹的发射。这次发射引发了国际社会的谴责。
 
-信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
-
-*编辑：东京樱花团/asket、天路天道（素材）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

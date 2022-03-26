@@ -2,26 +2,40 @@
 ---
 
 
-## 迪拜即将推出一亿美元的数字资产基金
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235209/)
+## 如何检控普京的战争罪行
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235458/)
 
-作者：银河系农场—骄子
+作者：MOS – 柳是多水土透
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
+拜登公开称普京为战争罪犯，法务专家认为检察起诉将需数年时间，过程如下 :
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-222-2.jpg)图片来源: 网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-2022-3.jpg)图片来源: 网络
 
-该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
+战争罪的定义： 国际海牙刑事法庭（ICC）对战争罪定义为，“严重违反”二战后日内瓦条约。条约规定了战时国际人道法，违约行为含故意袭击平民，或攻击军事目标但带来“过大”平民伤亡 。
 
-据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
+乌克兰和西方同盟指控俄联邦军队无差别攻击平民，俄方否认指控 苏联在1954年签署加入日内瓦条约，俄罗斯在2019年取消了对一项条款的认可，但保持签约国的地位 。
+
+案件如何审查起诉： ICC首席检察官Karim Khan本月表明，已经着手调查发生在乌克兰战场上的可能的战争罪行。乌，俄均非ICC成员，并且俄不承认ICC管辖权，但乌克兰已许可其对2014年侵占克里米亚以来的暴行进行调查 。
+
+俄罗斯可能不配合ICC，任何庭审都将在被告被逮捕后进行。“但这不能阻止检方起诉，或是签发逮捕令”。美国大学法律教授Rebecca Hamilton说道 。
+
+证据标准： 若检方可展示“合理可信”的证据，表明战争罪行已经发生，ICC将发出逮捕令。定罪则要求控方证明被告罪行超过“合理怀疑”程度 。
+
+大多数罪名需要证实犯罪动机，可行的方法是检察官指出受袭区域无军事目标，并且进攻并非由事故引发。
+
+“如果袭击屡次发生，并且对方战略是瞄准城区的平民，那将成为动机的强有力证据” 。哈弗大学法学院教授Alex Whiting说到 。
+
+谁会成为被告： 战争罪案调查聚焦于士兵，指挥官，和国家领导人。检方可以展示证据，证明领导人指挥了违法攻击，或是明知犯罪发生但没有制止 。
+
+维也纳大学的国际法学家Astrid Reisinger Coracini认为，指控更高阶的领导将更困难，虽然轰炸马里乌波尔妇产医院和用作平民掩体的剧院符合战争罪定义，但取证会有难度。证人可能受威胁不愿出庭，莫斯科若不配合逮捕令，ICC也需等待疑犯旅行至海外才能引渡 。
+
+另一种可能性是，由联合国，或国际公约组成另外的特别军事法庭，来审查乌克兰战场上的战争罪。
 
 
 
 相关链接:
 
-[https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-
+[https://www.reuters.com/world/how-could-russias-putin-be-prosecuted-war-crimes-ukraine-2022-03-22/](https://www.reuters.com/world/how-could-russias-putin-be-prosecuted-war-crimes-ukraine-2022-03-22/)
 
 ![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 

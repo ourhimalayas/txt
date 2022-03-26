@@ -2,37 +2,37 @@
 ---
 
 
-## 多国政要接种疫苗后后确诊中共病毒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234278/)
+## 报告：在战争期间俄罗斯对记者犯下148宗罪
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234675/)
 
-作者：日本方舟农场 – Andy5；银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月22日，美过前总统克林顿的夫人希拉里中共病毒检测呈现阳性。当天，白宫新闻秘书珍·普萨基中共病毒检测也呈阳性，这是她第二次出现阳性，不过症状轻微，她还表示转阴后很快回到工作岗位。本月早些时候，前总统奥巴马也确诊中共病毒阳性。
+**撰稿：日本东京方舟农场 北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/13-14.jpg)
+据News Week 3月26报道，总部位于基辅的大众信息研究所（IMI）周四发布的一份报告指，俄罗斯军方在2月24日至3月23日期间杀害了5名记者，打伤了另外7名记者，并参与了至少136宗针对乌克兰媒体成员的罪行。
 
-另外，挪威国王、德国新任总统夫妇，均在23日传出了确认感染中共病毒的消息。
+报告显示，在3月13日，美国屡获殊荣的《时代》杂志记者布伦特·雷诺（Brent Renaud），在基辅郊区伊尔彭（Irpen）的一个检查站被俄军开枪打死。3月14日，福克斯新闻摄制组的两名成员，爱尔兰摄影师皮埃尔·扎克热夫斯基（Pierre Zakrzewski）和乌克兰制片人奥列克桑德拉·库夫什诺娃Oleksandra Kuvshynova，死于俄军炮击戈连卡（Gorenka）村。另有包括福克斯新闻记者本杰明·霍尔（Benjamin Hall）在内的七名记者被俄军打伤。
 
-据悉，现年85岁的挪威国王已完全接种三剂中共病毒疫苗，德国总统也在2021年11月12日接种了第三针加强针。而希拉里和普萨基也都是在接种后确诊的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3-3.jpeg)总部位于乌克兰的大众信息研究所表示，俄罗斯在入侵乌克兰期间至少应对148起针对记者的犯罪负责。2022年3月23日，基辅市长维塔利·克里琴科（Vitali Klitschko）和他的兄弟弗拉基米尔·克里琴科（Wladimir Klitschko）在乌克兰基辅发表讲话时，媒体成员被拍照。（图片来自News Week）
 
-多国高级政要在接种疫苗后密集确诊的事实再一次说明，中共病毒疫苗根本没有效果，甚至会增加感染风险。
+IMI的报告还指责俄罗斯绑架了至少六名记者，对另外11人发出死亡威胁，并以媒体设施为目标故意向记者开枪。根据国际法，蓄意攻击记者被视为战争罪。
+
+周五，联合国（UN）警告说，记者以及乌克兰当地官员和反对入侵的社会活动家被俄军强迫失踪。联合国记录了15起涉及记者和活动人士的失踪案件，以及22起涉及地方官员的失踪案件。
+
+联合国乌克兰人权监测团团长玛蒂尔达·博格纳（Matilda Bogner）表示，在俄军占领区都会发生强迫失踪事件。
+
+同样在周五，总部位于巴黎的无国界记者组织（RSF）指控，俄军威胁记者和当地媒体，阻止他们报道事实并强迫传播来自克里姆林宫的虚假宣传。
+
+无国界医生组织（MSF）负责人珍妮·卡维利尔（Jeanne Cavelier）在一份声明中指责，俄军轰炸电视塔和向标有“新闻媒体（Press）”的汽车开枪。“我们强烈谴责这些恐吓行为，并呼吁俄罗斯当局停止针对记者，他们将不得不在国际法庭上为自己的行为负责。“卡维利尔补充说
+
+此外，持不同意见的俄罗斯记者在国内也成为攻击目标。俄罗斯一家广播电台的前高级编辑阿列克谢·韦内迪克托夫（Alexei Venediktov）本周表示，他在莫斯科的公寓门口留下了一个被切断的猪头，旁边是一张印有犹太猪字样的乌克兰徽章贴纸。
+
+3月3日，韦内迪克托夫的前广播电台莫斯科“回声（Echo of Moscow）”因敢于批评入侵而被俄罗斯当局停止运营。
 
 参考链接：
+[https://reurl.cc/Go3kNG](https://reurl.cc/Go3kNG)
 
-- [外媒：85岁挪威国王新冠病毒检测呈阳性，症状较轻微](https://rmh.pdnews.cn/Pc/ArtInfoApi/article?id=27452102)
-- [德国总统夫妇感染新冠病毒](https://news.sina.com.cn/w/2022-03-23/doc-imcwipii0000961.shtml)
-- [希拉里确诊普萨基二次感染，为何近来美国政要频频“中招”？](https://j.eastday.com/p/1648024513044354)
-- [Hillary Clinton tests positive for COVID-19](https://www.axios.com/hillary-clinton-covid-edbd4c6a-cade-44a2-8860-b6d9bdb97ecc.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=editorial&amp;utm_content=politics-clintoncovid&amp;s=09)
-- [White House press secretary Psaki has COVID, Biden tests negative](https://abcnews.go.com/Politics/white-house-press-secretary-psaki-covid-biden-tests/story?id=83602499&amp;utm_source=facebook&amp;utm_medium=news_tab)
+总编： 老孙
+校对发布：文曦
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编：飞虹
-编辑：静言
-审核：木木
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

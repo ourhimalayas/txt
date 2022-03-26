@@ -2,24 +2,25 @@
 ---
 
 
-## 乌克兰军方在脸书发布消息澄清摧毁俄罗斯登陆舰
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234396/)
+## 樱花头条┃美国对中共官员采取限制性签证发放
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+美国国务卿布林肯最新电视讲话：
 
-据国会山报（The Hill）3月25日报道，乌克兰军方周五在脸书发布消息澄清，萨拉托夫（Saratov）号大型登陆舰在别尔江斯克港（Berdyansk port）被摧毁，而并非此前声称的奥尔斯克（Orsk）号。
+将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-18.jpeg)亚速海地图示意图。（图片来自网络）
+信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
 
-根据最新消息，在亚速（Azov）作战区，除萨拉托夫号大型登陆舰在别尔江斯克港被摧毁外，另外两艘大型登陆舰凯撒·库尼科夫（Caesar Kunikov）和新切尔卡斯克（Novocherkassk）号也受损。
-
-俄罗斯尚未对这一事件发表评论。
-
-参考链接：
-[https://reurl.cc/xOrDVb](https://reurl.cc/xOrDVb)
-
-总编： 老孙
-校对发布：文曦
+*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
