@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 3/25/2022 6:29 PM (UTC)`
+
+🆘🇺🇦🆘来自乌克兰救援前线最新报道:<br/>精糧战友在Medyka边境采访来自美国加州的自愿者--作家杰米讲述乌克兰Lviv 利沃夫的所见所闻<br/>🇺🇦 杰米被乌克兰民族的团结，相互支持和强大的战斗士气所感染和感动！<br/>🇺🇦杰米呼吁大家继续广泛传播真相，戳穿普京操纵俄罗斯媒体报道虚假宣传！<br/>Jing Liang Interviews Volunteer-Writer Jamie from California on Medyka Border about what he saw in Lviv Lviv, Ukraine<br/> 🇺🇦 Jamie was infected and moved by the unity, mutual support and strong fighting morale of the Ukrainian! <br/>🇺🇦 Jamie calls on everyone to continue to spread the truth widely and against Putin's manipulation of the Russian media to report false propaganda!<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/>#NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
+![img](https://media.gettr.com/group29/origin/2022/03/25/18/325f9e50-bc42-029c-4eb7-728562832c1a/out.jpg)
+
+---
+
 `@miles 3/26/2022 12:10 AM (UTC)`
 
 3/25/2022 Miles Guo: Communist China’s real estate sector, with a value of nearly $100 trillion, will be worthless after it collapses, while the banks will continue to force the Lao Baixing to pay their mortgages. Through the banks and real estate, the CCP set up a trap to plunder the hard-earned money of the Chinese people.<br/><br/><br/>3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷；通过银行和房地产，中共做了个局来黑中国人的血汗钱<br/><br/><br/><br/>
@@ -151,13 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 3/23/2022 Miles Guo: Xu Jiayin is behaving like a mentally ill person just because he has a surveillance device on his body. Hong Kong is covering up the pandemic, only 1 death is reported for 5 deaths. 1,700 people died in just one district in Shenzhen. The pandemic in Communist China is out of control, causing more deaths than you could imagine. The world is stockpiling food like crazy, and Communist China may end up in a situation where people are reduced to cannibalism!<br/><br/>3/23/2022 文贵直播：许家印表现得像精神病只因身上安着监控器；香港掩盖疫情，死5人只报1人，深圳仅一个区就死了1700人，中共国疫情失控造成的死亡超乎想象；全世界正在疯狂屯粮，中共国可能会达到人吃人的境地！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/03/25/02/6a64a532-7736-339f-297a-25388b3e94cf/out.jpg)
-
----
-
-`@miles 3/25/2022 2:01 AM (UTC)`
-
-3/23/2022 Miles Guo: The CCP would rather destroy Taiwan by creating earthquakes than make it an unsinkable aircraft carrier. Xi Jinping had the ambition to take Taiwan as early as 2007. The Russia-Ukraine war has made Xi believe that he must launch a quicker and fiercer attack on Taiwan at all costs.<br/><br/>3/23/2022 文贵直播：中共宁可通过制造地震毁掉台湾，也不让台湾成为永不沉没的航空母舰；习近平早在2007年就有意要拿下台湾；俄乌之战让习认为要更快、更狠且不惜一切代价地打台湾<br/><br/><br/>
-![img](https://media.gettr.com/group27/getter/2022/03/25/02/44af4d59-b546-fa84-e5b4-0b3a56735f19/out.jpg)
 
 ---
 

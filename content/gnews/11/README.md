@@ -2,65 +2,102 @@
 ---
 
 
-## 2022年3月25日文贵先生直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2231221/)
+## 科技灭共 教育治国系列之芯片技术（4）
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2231471/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220325-2.jpg)
-视频连接：[2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易](https://gettr.com/streaming/p11tme3b4de)
+**芯片技术导言**
 
-1、G-Fashion使用H-Pay支付，数学货币到实体店交易，是真正的商业行为，意义巨大；
+**作者**：Sima(正道主义)（英喜） 足球队长\_Capitain8（香草山）
 
-2、俄乌战争：俄罗斯号称世界第二大军事强国，170个国家（世界70%国家）武器供应国，俄飞机坦克，被一个乌克兰的小女孩毒刺导弹全部打烂，俄媒体完全造假虚假宣传；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/download-1-4.jpg)网络图片
 
-3、如果俄中开打，中开始占上风，但俄稳住后，只需3小时灭共；
+在前面的第三讲里，我们介绍了简单逻辑电路的设计步骤。今天我们就分别来讨论芯片设计的几种主要方法。我们首先从早期比较经典的方法谈起，那就是用计算机软件在电脑屏幕上画出逻辑电路图，然后转化为多层的物理平面图。在电脑上画出电路原理图，被称作是芯片的前端设计，把它转化为多层的物理平面图，被称作是芯片的后端设计。
 
-4、俄罗斯重量级人物要把家人送到美国避险；
+芯片的前端设计和后端设计，都需要经过验证它们符合设计规范，然后把多层的物理平面图，送去晶片制造厂，生产出芯片。
 
-5、未来战争，人的战争会越来越少，科技战争，远程，经济战争（像打游戏）谁控制了通讯权，谁控制战争；
+**早期的集成电路设计：**
+第一步，把电路原理图输入到计算机的原理图编辑器中。
+第二步，引导计算机的电路仿真系统来对设计进行分析和验证。
+第三步，基于采用制造工艺的物理设计规范（design rules），进行多层的几何平面图形设计。
 
-6、现在的病毒，不仅仅是新病毒。是3针疫苗+omicron +COVID19的综合结果；
+而芯片制造厂所需要的完备电路设计，就是多层的几何平面图形。这真是出乎不少人的意料和想象。
 
-7、美国司法部刑事起诉五名中共特务：三名被抓，两名在逃，代表中共国家安全部工作；
+**集成电路的前端设计：**
+我们先介绍现代集成电路最重要的形式——CMOS电路。“CMOS”代表“互补对称金属氧化物半导体”，CMOS 器件的主要特点是低静态功耗和高抗噪性。CMOS反相器是一个非常简单的逻辑门。
 
-8、中共刚刚派出几组人，专门对付文贵先生、王雁平，还有英国的喜联储的人；
+**逻辑电路的表达式：**
+**1.非门的逻辑符号 （Inverter logic Gate）**
 
-9、这几年文贵先生面对中共的法律超限战太难了，180多次法庭问话，不能有一次错误，2017年4月19日文贵先生要爆海航的料，2017年4月18日太平联盟状告文贵先生，9月11日文贵先生申请政治庇护，同一天吴征替马蕊案付律师费；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3029.png)
 
-10、 东航事件：所有的中共国飞机强制安装 QACVR录音系统，即时传输，100%不会被破坏，为啥不公开？
+**2.非门的晶体管电路图（CMOS）**
 
-11、明天早上 8点开始G-Clubs抽奖，大约8千至1万人登记，礼物总价值200万美元；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3036.png)
 
-12、H-Pay 在G-Fashion的应用，意义巨大，3-5周，还有重大消息；
+我们来看一看输入到原理图编辑器中的反相器（非门）。
 
-13、中国房地产：在中国，房子只要一套能住的就可以，多出一套都是棺材；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3038.png)
 
-14、中国人只有真正掌握的货币的权力，才能有安全感，才能明白财富的意义！新中国联邦人会创造任何人不能掠夺的货币权力——铸币权！喜币躺平币，是世界最安全，永远不可剥夺财富的创造者；
+得到了电路原理图，就可以调用计算机电路仿真软件来对设计进行分析和验证。
 
-15、国内疫情封城就是失控了；
+**电路仿真结果：**
 
-**注：大直播音频——**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3039.png)
 
-编辑整理：文俊；
+电路仿真的结果可以得到很多有用的信息，比如状态转换时间、功率消耗等。如果发现不符合设计规范的地方，就可以及时修改。
 
-发布：黎明之前；
+**集成电路的后端设计（Layout）**：
+现在来看看简单的反相器的布局平面设计（CMOS 工艺）。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+同样，从电路原理图中，我们可以看到器件标注的几何尺寸，它们是布局设计的依据。电脑平面布局的软件，此时被调用来做设计。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+1. **平面布局示意图（layout）**
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3040.png)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+** 2. 反相器的横截面图**
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3042.png)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+从横截面图可以看出，这个基本逻辑门，至少要用四到五层平面掩膜，才能在硅晶片上被“刻画”出来。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**小结：**
+集成电路的前端设计以电原理图为中心的方法，有不少好处：
+• 原理图设计师和平面布局（layout）工程师可以并行工作
+• 提高工作效率，例如将以前原理图的某些部分重新使用
+• 平滑连接到平面布局前的电路仿真和信号分析
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+在数字集成电路的早期时代，对于一些常用的小型逻辑电路，比如译码器、计数器等，都会被做成芯片。
+但是，当集成电路越来越复杂，芯片上的晶体管数量达到百万的时候，可以看到，这种设计方法在时间和人力成本上就完全无法承受了。
+
+因此，集成电路设计的需求，大大促进了电子设计自动化（EDA）行业，由此发展出了基于硬件描述语言（HDL）的设计和验证流程，这种流程可以使用代码文本来描述电路的功能与结构。我们知道，计算机最擅长处理的信息表达方式，是文本和代码，计算机最方便重复使用的信息格式，也是文本和代码。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032210.jpg)
+
+我们下一讲就来讨论使用HDL代码来描述电路，相比于电路原理图而言，这是一种更加有效率的设计方法。
+
+**参考资料：**
+
+1. [Front-End Electronic Design and Schematic Capture](https://www.cadence.com/ko_KR/home/tools/pcb-design-and-analysis/design-authoring.html)
+
+
+2. [FULL-CUSTOM MASK LAYOUT DESIGN](http://lad.dsc.ufcg.edu.br/epfl/ch03.html)
+
+*校对/审核：仙女儿-文善*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

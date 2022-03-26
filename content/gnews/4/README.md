@@ -2,26 +2,19 @@
 ---
 
 
-## 美国抵押贷款利率飙升至接近 5%
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2231382/)
+## 数字货币现场交易的意义，交易方式的一切都改变了
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2231603/)
 
-编译 ：文宝
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-60.png)
-**据 Mortgage News Daily 报道，美国3月25日星期五 30 年期固定抵押贷款的平均利率大幅上涨，上涨 24 个基点至 4.95%。快于预期的利率上升打压了抵押贷款和再融资贷款的需求。由于利率和价格都大幅上涨，抵押贷款支付的中位数现在比一年前高出 20% 以上。**
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-**Mortgage News Daily 首席运营官 Matthew Graham 表示：“这是本周的第二次，这使本周与 2013 年货币政策紧缩以来最糟糕的一周相提并论——这是我们几天前没有看到受到合理挑战的记录。” .**
+*发布：陶子*
 
-**随着美国 10 年期国债收益率的飙升，该利率飙升。 抵押贷款利率松散地跟随该收益率，但并非完全如此。 抵押贷款利率也受到抵押贷款支持债券需求的影响。 美联储正在缩减其对这些资产的持有量，并且还在提高利率。**
-
-
-
-原文链接： [https://www.cnbc.com/2022/03/25/mortgage-rate-soars-closer-to-5percent-in-its-second-huge-jump-this-week.html](https://www.cnbc.com/2022/03/25/mortgage-rate-soars-closer-to-5percent-in-its-second-huge-jump-this-week.html)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-17.png)DISCORD
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-16.png)GETTR
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

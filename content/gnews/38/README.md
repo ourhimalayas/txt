@@ -2,32 +2,35 @@
 ---
 
 
-## 俄罗斯第49军司令列赞采夫中将被击毙
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2229496/)
+## 加拿大禁止其士兵加入乌克兰外国军团
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2230077/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+作者：加拿大温哥华扬帆农场-活力人生
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-2.jpg)
 
-俄罗斯在乌克兰战争中又一位将军被乌克兰武装力量击毙，48岁的雅科夫·列赞采夫（Yakov Rezantsev）中将在乌克兰武装部队的一次攻击中丧生，列赞采夫曾任南方军区第49合成军军长。一名军人说，雅科夫·列赞采夫中将在入侵开始的第四天曾告诉他们，战争很快就会结束。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-25_22-41-25.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2967-edited.png)图片来源：theguardian
 
-俄方迄今尚未确认列赞采夫死亡，分析人士认为，俄罗斯指挥官现在的伤亡率比二战以来的任何武装冲突都要高。
 
-专家们表示，俄罗斯高级军官倒下的原因可能有一个目录。此前有报道称俄罗斯军队的装备和电子设备不可靠，以及下属害怕做出快速决定。俄罗斯军队没有主动性，没有士官团，下级没有主动感，他们等着被告知该怎么做。而乌克兰人的狙击手非常非常好，当俄罗斯指挥系统崩溃时，他们能够瞄准关键人物。
+据【卫报】3月24日报道，加拿大禁止其士兵自行加入乌克兰的外国军团参与对俄作战，因为军方担心被俘的加拿大军人可能被普京当局用作宣传工具。
 
-西方消息人士称，许多俄罗斯将领被杀是因为他们被推到比平时更靠近前线的地方，以提高俄罗斯士兵的士气，或者需要他们的资历才能让部队前进。一位不愿透露姓名的外交官说，俄罗斯将军们必须奋力到前线才能完成他们的命令。俄罗斯在入侵仅四天，第一个将军就去世了，而在此后的短短三周内，大量俄罗斯军事领导人在战斗中丧生。
+加拿大国防副参谋长弗朗西斯·艾伦中将3月23日在加拿大议会国防委员会讲话时说，军方高层已发布命令，禁止全职服役人员和兼职预备役人员前往乌克兰加入新成立的外国军团，该禁令也适用于正在休假的士兵。
 
-俄罗斯还在采用斯大林第二次世界大战的“行刑队”，造成俄罗斯军队士气低落。据报道，普京和克里姆林宫在他们自己的军队之后派出行刑队，下令杀死任何试图逃跑的俄罗斯人。乌克兰安全部门声称，战俘告诉他们俄罗斯可怕的战术，俄罗斯“行刑队的枪把他们自己的士兵当作目标瞄准了。
+艾伦还表示，被俘的加拿大人可能成为俄方的宣传工具，克里姆林宫希望在战场上遭受重大损失的情况下发动自己的信息战。
 
-有报道称，车臣部队被派往试图阻止俄罗斯士兵逃跑。根据基辅发布的俄罗斯战俘的视频显示，俄罗斯战俘在镜头前说，他们宁愿选择退出而不是继续战斗。
+加拿大拥有世界第二大的乌克兰侨民群体。此前加拿大也提出愿意接受“无限”数量的乌克兰人寻求临时避难。
 
-参考数据：
+新闻链接：
 
-[Russian general who bragged ‘war would be over quickly’ killed in Ukraine strike](https://www.mirror.co.uk/news/world-news/breaking-russian-general-killed-strike-26554643)
+[https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion](https://www.theguardian.com/world/2022/mar/24/canada-bars-soldiers-joining-ukraine-foreign-legion)
 
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+* * *
+
+编译撰稿：活力人生， 编辑发稿：硫酸羟氯喹64
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b.jpg)
+
 
  
 

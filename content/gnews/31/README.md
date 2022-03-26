@@ -2,20 +2,16 @@
 ---
 
 
-## 视频|这世界有那么多人，多幸运，我还有我们
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2230418/)
+## 五月花简报（03/25/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2230904/)
 
-制作：澳喜要闻
+编辑：波士顿五月花—-冲天一怒
 
-审核/编辑/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6CC1F103-32C3-4399-AC60-67E68C145120.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+*发布：思澈*
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
 
  
 
