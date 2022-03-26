@@ -2,34 +2,39 @@
 ---
 
 
-## GFASHION开始接受使用HPAY支付
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2233168/)
+## 俄罗斯用坦克发动战争，乌克兰启动战争NFT的收集工作，支持该国 “军队和平民”
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2233230/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2020-12-15-at-1.27.35-PM-1020x641-1.png)
-3月25日大直播中，后台导播战友演示如何使用HPAY购买GASHION。我们看到操作很快就完成了，从选好一件单品，到支付订单，HPAY如此顺滑衔接。郭先生表示我们的操作系统可以更加便捷，比如可以使用Gfashion和HPAY账号关联，一步登录，一步支付，给客户带来更加完美的购物体验。
+翻译 / 整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-26-下午1.59.33.png)  图片来源：dialymail.com
+全球支持：NFT展示鲍里斯-约翰逊的推特和七国集团的旗帜
 
-HPAY自推出到现在，是数字货币支付和转账无缝丝滑体验的标杆。郭先生此前无数次提到过很多用户使用HPAY互相转账，来回转着玩。因为这种体验是传统银行和支付从未给予的，安全隐私且秒到。
+乌克兰正试图通过出售基于俄罗斯战争关键事件的NFT来筹集资金。
 
-目前市场上的数字货币包括比特币等，不仅没有支付系统，更加不存在流通，电子支付系统如wise、Paypal、支付宝、微信支付等，背后都是银行和金融，他们使用各种方式来控制和奴役人类的财富。数字货币时代的支付系统HPAY打破了这些奴役，而GASHION目前是是衣食住行中的衣，未来人类的方方面面都会接入数字货币。货币的本质就是人类生产力的交换，从喜币系统上线不过数月，就已经与GASHION实现了生产力交换。而那些打着所谓货币性质的各种币，多数已经沦为洗钱币。
+NFT即不可伪造的代币是独特的计算机文件，作为所有权的数字证书，可以是歌曲或艺术作品等创意产品的形式。
 
-从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到解放。
+乌克兰这次共有54个NFTs将在网上上市，涵盖俄罗斯入侵的前三天，并将在下周初开始销售。
 
+入侵四天后，乌克兰开始发行老式的战争债券以资助军事行动。
 
+现在，它正在尝试一个非常现代的举措–通过出售基于迄今为止与俄罗斯战争的关键事件的NFT来筹集资金。
 
-撰稿、发布：骄子
+NFTs或称不可伪造的代币是独特的计算机文件，作为从一首歌到一件艺术品的数字所有权证书。
+
+所有募集的资金将用于支持乌克兰的 “军队和平民”。副总理米哈伊洛-费多罗夫(Mykhailo Fedorov)在推特上发布了这项募集活动，“当俄罗斯使用坦克摧毁乌克兰时，我们依靠的是革命性的区块链技术。”
+
+标题为’元宇宙历史，战争博物馆”，每张都将展示一个 “重大事件”，并配有艺术家的插图。
+
+其中一张涉及到一位母亲在基辅地铁里分娩，而另一张则是鲍里斯-约翰逊在推特上呼吁召开北约峰会。
+
+原文链接：[’While Russia uses tanks to destroy Ukraine, we rely on revolutionary blockchain tech’: Ukraine’s Vice PM launches collection of 54 NFTs to support country’s ‘army and civilians’](https://www.dailymail.co.uk/news/article-10654161/While-Russia-uses-tanks-destroy-Ukraine-rely-revolutionary-blockchain-tech.html)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+*编辑&发布：长岛开心*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,24 @@
 ---
 
 
-## 俄罗斯用坦克发动战争，乌克兰启动战争NFT的收集工作，支持该国 “军队和平民”
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2233230/)
+## 俄乌战争似乎进入到了新阶段
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2233364/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-26-下午1.59.33.png)  图片来源：dialymail.com
-全球支持：NFT展示鲍里斯-约翰逊的推特和七国集团的旗帜
+#### 撰稿：彩虹
 
-乌克兰正试图通过出售基于俄罗斯战争关键事件的NFT来筹集资金。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-2-4.jpg)图片来源：以色列时报
+据《新闻极限》3月25日引述美联社文章报道，战争似乎进入了一个新的阶段，因为驻乌克兰的俄罗斯军队似乎已经将其重点从针对基辅的地面进攻转移到优先考虑莫斯科所谓的解放有争议的顿巴斯（Donbas）地区，
 
-NFT即不可伪造的代币是独特的计算机文件，作为所有权的数字证书，可以是歌曲或艺术作品等创意产品的形式。
+报道说，周五，乌克兰总统泽连斯基(Volodymyr Zelenskyy)再次呼吁俄罗斯通过谈判结束战争，他说乌克兰不会同意为了和平而放弃任何领土。
 
-乌克兰这次共有54个NFTs将在网上上市，涵盖俄罗斯入侵的前三天，并将在下周初开始销售。
+而普京的部队在乌克兰许多地方正面临着巨大压力，美国和其他国家正在加速向乌克兰转移武器和物资。最近几天，美国官员表示，他们看到了乌克兰保卫者在一些地区以有限的方式发动攻势的证据。
 
-入侵四天后，乌克兰开始发行老式的战争债券以资助军事行动。
+于是，文章说，现在认为这是否意味着普京总统已经缩减了他在乌克兰的野心，似乎还为时过早，但俄罗斯本周的军事行动表明，他们认识到了乌克兰令人惊讶的顽强抵抗。俄罗斯支持的分离主义分子自2014年以来一直控制着乌克兰东部顿巴斯的部分地区。
 
-现在，它正在尝试一个非常现代的举措–通过出售基于迄今为止与俄罗斯战争的关键事件的NFT来筹集资金。
+**新闻来源**
 
-NFTs或称不可伪造的代币是独特的计算机文件，作为从一首歌到一件艺术品的数字所有权证书。
-
-所有募集的资金将用于支持乌克兰的 “军队和平民”。副总理米哈伊洛-费多罗夫(Mykhailo Fedorov)在推特上发布了这项募集活动，“当俄罗斯使用坦克摧毁乌克兰时，我们依靠的是革命性的区块链技术。”
-
-标题为’元宇宙历史，战争博物馆”，每张都将展示一个 “重大事件”，并配有艺术家的插图。
-
-其中一张涉及到一位母亲在基辅地铁里分娩，而另一张则是鲍里斯-约翰逊在推特上呼吁召开北约峰会。
-
-原文链接：[’While Russia uses tanks to destroy Ukraine, we rely on revolutionary blockchain tech’: Ukraine’s Vice PM launches collection of 54 NFTs to support country’s ‘army and civilians’](https://www.dailymail.co.uk/news/article-10654161/While-Russia-uses-tanks-destroy-Ukraine-rely-revolutionary-blockchain-tech.html)
-
-* * *
-
-*编辑&发布：长岛开心*
-
-
+[New Phase of Ukraine War? Russia Shifts Focus](https://www.newsmax.com/newsfront/russia-ukraine-war-the-latest/2022/03/25/id/1062992/)
 
  
 

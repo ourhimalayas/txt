@@ -2,36 +2,50 @@
 ---
 
 
-## 战友们做好准备应对有史以来最黑暗的一年
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2233448/)
+## 樱花FM|樱花时政:秦刚在美电台受访“打官腔” 引发严重质疑
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2233654/)
 
-作者：纽约香草山教育部 -Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
-郭文贵先生在2022年3月23日的大直播中谈到，这场俄乌战争的最后主导者绝对不是普京，而是中国的“习太阳”。
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/秦刚在美电台受访打官腔-引发严重质疑.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-43.png)
+中共驻美大使秦刚3月20日接受美国哥伦比亚广播公司（CBS）政论节目“面相全民”（Face The Nation）节目主持人Margaret Brennan的直播采访。在9分钟内被主持人打断了23次之多，女主持对秦刚的中共式官腔非常不满，并对其说辞表示严重怀疑。
 
-郭先生指出当中国站出来的时候，俄乌战争可能会有几种戏剧性的结局.。 第一，俄罗斯打小型核武器战争，中国也参与战争。 第二，中国作为调解国，为俄罗斯作担保。 还有20%的可能是波罗的海国跟俄罗斯和白俄罗斯混战，死更多人，最终普京被消灭，然后再和谈，最后俄罗斯缴枪不杀。
+在整个采访中，秦刚回避了北京是否会向俄罗斯提供武器和经济支援的问题，辩称中国将与俄罗斯整个亲密盟友保持“正常”的贸易关系。
 
-郭先生指出，无论哪个结果发生，中国人都将成为人类历史上，未来100年、1000年，全人类上最恨的人，大家都要面临排华的危机，但最惨的不是海外战友，而是墙内。
+对于主持人就北京是否会向俄罗斯提供经济援助的追问，秦刚说，“中国与俄罗斯有正常的贸易、经济、金融、能源合作。这是两个主权国家之间的正常事务”。
 
-郭先生称，俄乌战争开启了真正的潘多拉盒子，病毒、疫苗、饥荒等灾难会接踵而至。尤其粮食危机，现在全球都在疯狂囤积粮食，墙内真可能要很快到达人吃人的境况。 郭先生重申2022年今年是人类有史以来最黑暗的一年，战友们要做好心理准备。
+在即将结束采访之前，主持人向秦刚问道：您谈到联合国的重要性及中国尊重联合国。联合国一个人权小组表示，有可靠报告指出有100万维吾尔人被秘密关押在大型集中营里，联合国人权事务高级专员即将访华，他们在中国能自由访问吗？
 
-资料链接：[https://gettr.com/post/p11r8no3573](https://gettr.com/post/p11r8no3573)
+秦大使：我完全反对这种指控。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
+主持人：但他们在中国能自由访问吗？
 
-编辑/校对/发稿：Daxia
+秦大使：不存在所谓的侵犯人权行为。
 
+主持人：中方会让他们自由访问吗？
+
+秦大使：我们正与人权高专人士保持密切沟通，并已达成共识。
+
+主持人：我们的时间到了，感谢接受访问。
+
+秦大使：谢谢你的邀请。
+
+文字版原文：
+
+
+| [樱花时政┃秦刚在美电台受访“打官腔” 引发严重质疑](https://gnews.org/zh-hans/2203538/) |  |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-72.png)
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

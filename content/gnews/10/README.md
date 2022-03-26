@@ -2,30 +2,39 @@
 ---
 
 
-## 视频|他是新中国联邦永远的朋友「非脱敏」（中英文字幕）
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2233375/)
+## 樱花FM|东航133人客机失事
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2233580/)
 
-文案编辑：澳喜要闻
+音频：东京樱花团/战友520
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/东航133人客机失事.png)
 
-制作团队：澳喜要闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-Davide Martello是意大利裔德国钢琴家。
-自2011年以来，他带着钢琴一直在世界各地演奏；
-他先后在阿富汗、土耳其等地进行多次表演。
-他的身影，總是出现在动荡不安的角落；
-这次，他出现在波乌邊境的救援前线，走近了梅迪卡新中国联邦的救援站；用音乐疗愈失去家园的心灵，传播愛与和平。
-Davide Martello, an Italian-German pianist, has been taking his piano to perform all over the world since 2011. He has been performed in Afghanistan, Turkey and many other countries. His figure always can be found in the most turbulent corners. This time, he appeared in the front line of rescue on the border of Poland and Ukraine. He approached the rescue station supplied by the New Federal State of China in Medyka, using his music as a remedy and relief for those are suffering the sorrowness of losing their home. His music symbolises love and peace.
+突发，东方航空mu5735，搭载133人的波音737客机，由昆明飞向广州，在广西梧州藤县掉落，并引发山火。目前救援队伍已经集结正在靠近，伤亡情况未明。
 
-【新闻来源】NFSC前线素材
+高空坠落引发火灾，飞机上的人怕是凶多吉少了！
 
-审核/编辑/发稿：qiutian（邱甜）
+诡异的是，1992年的南航坠机，也是波音737客机，也是133人，也是广西！
 
+一个政权灭亡之前，往往天灾人祸频发引以征兆，从去年郑州水灾，到今年中共大地疫情复燃，全国各地化工厂爆炸，可谓生灵涂炭！
+
+这个腐朽没落的中共邪恶政权罄竹难书天怒人怨，至今留在地球上是所有人的耻辱！
+
+文字版原文：
+
+
+| [东航133人客机失事](https://gnews.org/zh-hans/2203402/) |  |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
