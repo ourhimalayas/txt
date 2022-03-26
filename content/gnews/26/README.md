@@ -2,30 +2,30 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月25日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2232369/)
+## 拜登访问波兰：称俄入侵乌克兰犹如当年的天安门事件
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2232627/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-20.png)
+**撰稿：日本东京方舟农场  子辰**
 
+3月25日，拜登总统访问了波兰，称赞了勇敢的乌克兰人，同时将俄罗斯入侵乌克兰比做是89年天安门广场血腥镇压事件，并再次谴责普京在乌克兰犯下战争罪。
 
-校对：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-301.jpg)（图片来自大纪元）
 
-编辑：Stay文苑
+拜登总统于周五下午抵达波兰热舒夫（Rzeszow）的一个机场，该机场距离乌克兰西部城市利沃夫（Lviv）约170公里（105英里）。目前利沃夫已成为乌克兰流离失所者的主要集结地。
 
-发稿：Stay文苑
+拜登在波兰举行的难民危机联合简报会上对记者说道，乌克兰人在抵抗俄罗斯方面表现出的勇气是值得赞扬的，并举了一名30岁女子拿着步枪站在一辆俄军坦克前的例子。拜登说，“当你看到一名30岁的女子拿着步枪站在一辆坦克前，就犹如在天安门广场发生的事情。这就是天安门广场。”
 
-新闻：[https://gettr.com/post/p11x7bk305a](https://gettr.com/post/p11x7bk305a)
-访谈：[https://gettr.com/post/p11wujoe1f1](https://gettr.com/post/p11wujoe1f1)
+拜登对驻波兰美军说，“你们正处于民主国家和独裁者之间的斗争之中。你们所做的事情很有意义。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
+拜登还表达了自己无法与难民会面的遗憾，尽管此前曾希望到乌克兰亲眼目睹那边的情况。不过拜登3月24日就已表示，美国将欢迎10万乌克兰难民，并投入超过10亿美元的人道主义援助。同时再次谴责了俄罗斯总统普京是一名“战争犯”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+俄入侵战打响后，勇敢的乌克兰人自动拿起枪，承担起保卫国家的任务。他们当中有的人之前从未拿过枪，有的原本移民国外，但又专门赶回国加入到抗击俄军的战斗中。勇敢的乌克兰人一次次刷新着历史，致使普京号称几天内拿下乌克兰的口号，变为了自己的打脸工具。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/3/25/n13673419.htm](https://www.epochtimes.com/gb/22/3/25/n13673419.htm)
+
+总编：老孙
+校对发布：爱放飞
 
  
 

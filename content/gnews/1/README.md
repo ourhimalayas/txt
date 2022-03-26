@@ -2,18 +2,34 @@
 ---
 
 
-## 视频|资本逃离香港意味着中美之战已经开始
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2233290/)
+## 航空公司CEO们敦促拜登结束强制测试和佩戴口罩的要求
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2233376/)
 
-制作：香草山视频部
+评论：***当大众担心疫苗强制何时会停的时候，郭文贵先生告诉世界，大概在22年2-3月份会有大的转折，此时我们见证了各国逐渐取消各种COVID-19限制和疫苗强制令，也目睹了独裁者普京对乌克兰的侵略战争。在战争阴霾下，似乎中共病毒和疫苗危机突然离我们远去。但是，郭文贵先生告诫大家，严重疫苗灾难在5月份就会到来，战友们千万不要心存侥幸、掉以轻心。***
 
-在3月20日的大直播中，郭先生表示，资本逃离香港跟疫情与中共病毒疫苗无关，而是投资者已经意识到，中美之战已经彻底打响。根据郭先生所掌握的情报，香港的投资者绝大部分已经认识到，中共与美国之间的对决已经拉开了帷幕。自俄乌战争爆发以来，美中两国多轮谈判与视频会晤，都清楚地表明中共与俄罗斯站在了同一阵营，共同对付西方民主国家。美国民众普遍认为，拜登政府对待中共和俄罗斯过于软弱，因此美国政府必将有进一步的行动。无论中共是否攻打台湾，美国对中共的金融与经济制裁，必将传导到香港股市。
+据《美国有线电视新闻网》记者：Pete Muntean，2022年3月23日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3053.png)图片来源：纽约时报
+(CNN商业报道)10家航空公司和货运公司的首席执行官们签署了一封致美国总统乔·拜登的信，称他应该结束对国际旅客运输中强制佩戴口罩和检测的要求。
 
-发稿：林礼
+行业组织—美国航空在一封新信件中写道：“现在是政府取消联邦运输旅行限制的时候了——包括国际出发前的测试要求和佩戴口罩规定——根据目前的流行病学环境，现有防疫限制措施已不合时宜。”
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+阿拉斯加航空(Alaska Airlines)、美国航空(American Airlines)、阿特拉斯航空(Atlas Air Worldwide)、达美航空(Delta Air Lines)、联邦快递(FedEx Express)、夏威夷航空(Hawaiian Airlines)、捷蓝航空(JetBlue Airways)、西南航空(Southwest Airlines)、联合航空(United Airlines)和UPS航空公司的首席执行官们签署了这封信。
+
+本月早些时候，白宫将航空运输佩戴口罩的规定期限推迟到4月18日。白宫表示，相关政府机构将与美国疾病控制和预防中心协商，讨论此项规定是否会提前到期，以及在什么情况下需要恢复。
+
+在CEO们签署此封信之前，美国疾病控制与预防中心主任罗谢尔·瓦伦斯基博士周三表示，Omicron亚型BA.2似乎不会导致更严重的Covid-19症状，但它比最初的菌株更具传染性。
+
+文章来源: **[https://edition.cnn.com/2022/03/23/business/airline-ceo-mask-mandate-testing-requirements/index.html](https://edition.cnn.com/2022/03/23/business/airline-ceo-mask-mandate-testing-requirements/index.html)**
+
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – WenXiong
+编辑：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
