@@ -2,33 +2,34 @@
 ---
 
 
-## 俄罗斯政权内部异变&#8230;&#8230;要人辞职、杳无音信， &#8220;政变在所难免&#8221;(上)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236497/)
+## 波罗的海三国议长访问乌克兰
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236554/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
-在俄罗斯入侵乌克兰一个月后，普京政权内部出现了一系列不寻常的事件。 甚至有迹象表明，普京总统所依赖的情报部门正在酝酿一场 “政变”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3172.png)图片来源：读卖新闻
-3月23日，据透露，总统负责与国际组织协调的特别代表阿纳托利-丘拜斯因反对入侵乌克兰而辞职并离开了该国。
+作者：纽约香草山农场-saner三二，Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，据相关媒体报道，波罗的海三国，即立陶宛、爱沙尼亚和拉脱维亚的议长于当天陆续抵达乌克兰首都基辅，与总统泽连斯基及其他政府官员会面。
 
-丘拜斯是一位自由主义者，在20世纪90年代苏联解体后担任叶利钦政府的总统秘书和第一副总理，并推动向市场经济转型的改革。 虽然他不是普京的亲信，但作为入侵后第一个离开政权的关键人物备受关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-6.jpeg)
 
-此前，前副总理阿尔卡季·德沃尔科维奇辞去了一个政府基金负责人的职务。德沃尔科维奇曾向美国媒体表达了他对入侵的反对意见。 支持普京的政权的一些新兴资本（商业寡头）也公开反对战争。
+据悉，波罗的海三国与乌克兰共同签署的一份联合声明显示，乌克兰正在为共享价值而战，所有自由民主国家都应在政治、防卫、人道和经济等领域竭尽所能地向其提供协助。为此，三国会持续支持乌克兰尽快加入欧盟。同时，三国也将推动北大西洋公约组织继续维持门户开放的政策，并开始为乌克兰的重建作准备。
 
-美国彭博通讯社报道说，最近由普京钦定的第三任中央银行行长纳比利纳在入侵开始后也宣布辞职。
+另一方面，三国议长也在声明中呼吁国际社会立即在乌克兰领空设置“禁航区”，用以避免当地平民大规模的伤亡。至于俄罗斯方面，三国则敦促全球各国彻底停止与俄罗斯的贸易活动，并持续政治孤立俄罗斯，而俄罗斯在所有国际组织和实体的会员资格则需要被暂停或撤销。
 
-包括CNN在内的美国和欧洲媒体对国防部长谢尔盖-绍伊古的行踪在近两周内没有被披露，他们对此表示出强烈的关心
+三国议长也强调，绝不能让犯下战争罪行的俄罗斯有机会逃避惩罚。因此，各国必须协助国际法院和国际刑事法院尽快完成详实的调查，并执行所有必要程序。
 
-下一篇：[俄罗斯政权内部异变……要人辞职、杳无音信， “政变在所难免”（下）](https://gnews.org/zh-hans/2236528/)
+同一天，立陶宛与乌克兰两国的国防部长也就乌克兰的防御工作进行了交流。其中，两国政府确认将继续维持合作关系。此外，立陶宛国防部长也表示，立陶宛将不仅在口头上支持乌克兰，其已经向乌克兰提供了第一枚毒刺导弹。
 
-参考链接：[ロシア政権内部に異変…要人辞任・動静途絶、「クーデター辞さず」観測も : 国際 : ニュース : 読売新聞オンライン (yomiuri.co.jp)](https://www.yomiuri.co.jp/world/20220326-OYT1T50080/)
+参考链接：
+1. [https://twitter.com/a\_anusauskas/status/1506674407116316685?s=21](https://twitter.com/a_anusauskas/status/1506674407116316685?s=21)
+2. [https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21](https://twitter.com/oleksiireznikov/status/1506674947883769868?s=21)
+3. [Baltic parliament speakers visit Kyiv, address Verkhovna Rada of Ukraine](https://news.err.ee/1608542443/baltic-parliament-speakers-visit-kyiv-address-verkhovna-rada-of-ukraine)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
 
-审核：BryanW
-校对：天天
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-15.jpeg)
+审核/总编：Irene木木
+编辑：静言
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
