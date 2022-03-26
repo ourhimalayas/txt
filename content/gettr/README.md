@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 3:13 AM (UTC)`
+
+3/25/2022 Miles Guo: Whoever survives the two or three years after the COVID vaccine disaster hits will be a winner! I hope the fellow fighters stay away from the collapse of the real estate, finance, and the CCP, and all kinds of natural disasters and food shortages. Sell your extra properties and be prepared for the disasters. The Whistleblowers' Movement is helping us to pursue human nature, which is the key for us to go to faraway places.<br/><br/>3/25/2022 文贵直播：只要活过疫苗灾难到来后的两三年就是赢家！希望战友远离房地产、金融和中共的崩塌以及各种自然灾害和粮荒，卖掉多余的房产并做好应对灾难的准备；爆料革命在帮我们找到人的性情的这把钥匙，从而载我们到更远的地方<br/>
+![img](https://media.gettr.com/group43/getter/2022/03/26/03/c85a7f22-f363-aca8-dcbf-1765345fe728/out.jpg)
+
+---
+
 `@miles 3/26/2022 2:58 AM (UTC)`
 
 
@@ -153,13 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易
 ![img](https://media.gettr.com/group11/origin/2022/03/25/11/8c5b20c9-d29a-efac-f4ac-90ed245aa80c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/25/2022 10:42 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group20/origin/2022/03/25/09/f93c60d4-6cfc-e4e6-e171-4e46efa7001f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

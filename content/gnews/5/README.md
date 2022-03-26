@@ -2,12 +2,18 @@
 ---
 
 
-## 乌克兰官方表示，俄罗斯军舰在被占领的别尔江斯克港被摧毁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232427/)
+## 国内房地产和银行的危机（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232519/)
 
-03/23/2022 BBC新闻：乌克兰官方表示，一艘俄罗斯登陆舰在被占领的乌克兰港口城市别尔江斯克被摧毁。
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-31-10-40-五-scaled.jpg)
+发布：tianzhihuan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

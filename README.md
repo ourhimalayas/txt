@@ -15,131 +15,131 @@
 
 ---
 
-### [七哥介绍G-Fashion新衣服和喜币在实体店支付的意义（四）](/content/gnews/1/README.md)
+### [中共想在中东乱世把中东能源人民币化干掉美元](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [七哥介绍G-Fashion新衣服和喜币在实体店支付的意义（三）](/content/gnews/2/README.md)
+### [中美房地产的比较](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥介绍G-Fashion新衣服和喜币在实体店支付的意义（二）](/content/gnews/3/README.md)
+### [大直播后记：G-Fashion的理念和H-Pay在实体店支付](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [中国人对世界、真相的认知（情愿崇拜邪恶和权势，缺乏正义和良知）（一）](/content/gnews/4/README.md)
+### [中共国房地产是棺材](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [乌克兰官方表示，俄罗斯军舰在被占领的别尔江斯克港被摧毁](/content/gnews/5/README.md)
+### [国内房地产和银行的危机（五）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [国内房地产和银行的危机（四）](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [中共媒体骗命骗钱](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [国内房地产和银行的危机（三）](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [沙特阿美石油公司储油设施被袭](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [无人机活靶！ 俄军战车躲树林无所遁形 遭乌国精准火炮摧毁](/content/gnews/6/README.md)
- ` 蓝莲花农场`
-
-### [英首相约翰逊：我们将加大对乌克兰的支持，帮助他们自卫](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [莫德纳表示，其低剂量 COVID 疫苗适用于6岁以下的儿童](/content/gnews/8/README.md)
- ` 日本東京方舟農場`
-
-### [独家报道：中国监管机构要求一些在美国上市的公司做好披露审计信息的准备](/content/gnews/9/README.md)
+### [英国宣布紧急削减燃油税以应对生活成本危机](/content/gnews/10/README.md)
  ` 日本东京方舟农场`
 
-### [昆州2%学生感染新冠，政府因通风审计而受到抨击](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [视频|宣传前线救援进展（非脱敏）](/content/gnews/11/README.md)
+### [视频|乌克兰士兵的葬礼「非脱敏」](/content/gnews/11/README.md)
  ` 爆料视频`
 
-### [3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
+### [乌克兰官方表示，俄罗斯军舰在被占领的别尔江斯克港被摧毁](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大直播后记：未来世界上最贵的是水](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
+### [英首相约翰逊：我们将加大对乌克兰的支持，帮助他们自卫](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [20220323文贵大直播：第三次世界大战的起因及其演绎，新中国联邦将用喜金融收拾战场](/content/gnews/14/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月25日晚](/content/gnews/14/README.md)
+ ` 纽约香草山MOS01`
+
+### [莫德纳表示，其低剂量 COVID 疫苗适用于6岁以下的儿童](/content/gnews/15/README.md)
+ ` 日本東京方舟農場`
+
+### [独家报道：中国监管机构要求一些在美国上市的公司做好披露审计信息的准备](/content/gnews/16/README.md)
+ ` 日本东京方舟农场`
+
+### [昆州2%学生感染新冠，政府因通风审计而受到抨击](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [视频|宣传前线救援进展（非脱敏）](/content/gnews/18/README.md)
+ ` 爆料视频`
+
+### [20220323文贵大直播：第三次世界大战的起因及其演绎，新中国联邦将用喜金融收拾战场](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)](/content/gnews/15/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|美警告中共国，严禁向俄出口芯片](/content/gnews/16/README.md)
+### [有声|美警告中共国，严禁向俄出口芯片](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|北约峰会主张加强防御，应对俄乌局势](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [中国人无常识无真假善恶分辨能力（二）](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [国际｜拜登吁将俄逐出G20 并收紧对中共商品的关税豁免](/content/gnews/19/README.md)
+### [国际｜拜登吁将俄逐出G20 并收紧对中共商品的关税豁免](/content/gnews/21/README.md)
  ` 關注組`
 
-### [2022年3月26日《樱花快报》：中共病毒导致去年美国3/4县人口自然减少](/content/gnews/20/README.md)
+### [2022年3月26日《樱花快报》：中共病毒导致去年美国3/4县人口自然减少](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国空调经销商吐槽销量下滑显著](/content/gnews/21/README.md)
+### [中共国空调经销商吐槽销量下滑显著](/content/gnews/23/README.md)
  ` 加拿大温哥华英里农场`
 
-### [前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局](/content/gnews/22/README.md)
+### [前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [潘石屹一天连吃15张罚单，被罚1.15亿！](/content/gnews/23/README.md)
+### [潘石屹一天连吃15张罚单，被罚1.15亿！](/content/gnews/25/README.md)
  ` 加拿大温哥华英里农场`
 
-### [泽伦斯基：俄军阵亡逾1.6万 乌克兰从马立波救出3.7万](/content/gnews/24/README.md)
+### [泽伦斯基：俄军阵亡逾1.6万 乌克兰从马立波救出3.7万](/content/gnews/26/README.md)
  ` 蓝莲花农场`
 
-### [中共国首都北京故宫附近冒起漫天浓烟](/content/gnews/25/README.md)
+### [中共国首都北京故宫附近冒起漫天浓烟](/content/gnews/27/README.md)
  ` 日本東京方舟農場`
 
-### [流媒体音乐巨头Spotify退出俄罗斯市场](/content/gnews/26/README.md)
+### [流媒体音乐巨头Spotify退出俄罗斯市场](/content/gnews/28/README.md)
  ` 加拿大温哥华英里农场`
 
-### [北约决定在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加4个战斗群，使总数达到8个](/content/gnews/27/README.md)
+### [北约决定在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加4个战斗群，使总数达到8个](/content/gnews/29/README.md)
  ` 美国政要直译推`
 
-### [谈古论今 | 猛醒吧——疫苗灾难让你的人寿保险打了水漂！](/content/gnews/28/README.md)
+### [谈古论今 | 猛醒吧——疫苗灾难让你的人寿保险打了水漂！](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美FCC将中国电信和中国移动列入“安全风险清单”](/content/gnews/29/README.md)
+### [美FCC将中国电信和中国移动列入“安全风险清单”](/content/gnews/31/README.md)
  ` 加拿大温哥华英里农场`
 
-### [欧盟峰会对进口俄石油天然气问题产生分歧](/content/gnews/30/README.md)
+### [欧盟峰会对进口俄石油天然气问题产生分歧](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [朝鲜大规模试射新型洲际弹道导弹](/content/gnews/31/README.md)
+### [朝鲜大规模试射新型洲际弹道导弹](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [受伤的俄罗斯士兵挤满了白俄罗斯的医院](/content/gnews/32/README.md)
+### [受伤的俄罗斯士兵挤满了白俄罗斯的医院](/content/gnews/34/README.md)
  ` 日本東京方舟農場`
 
-### [在西方加强对俄制裁之际 中共石化暂停了在俄项目](/content/gnews/33/README.md)
+### [在西方加强对俄制裁之际 中共石化暂停了在俄项目](/content/gnews/35/README.md)
  ` 蓝莲花农场`
 
-### [民调显示多数加拿大人支持取消对CBC的资助](/content/gnews/34/README.md)
+### [民调显示多数加拿大人支持取消对CBC的资助](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [美枪械制造商助乌克兰人抵抗普京](/content/gnews/35/README.md)
+### [美枪械制造商助乌克兰人抵抗普京](/content/gnews/37/README.md)
  ` 日本東京方舟農場`
 
-### [拜登：普京使用化学武器将引发北约的反击](/content/gnews/36/README.md)
+### [拜登：普京使用化学武器将引发北约的反击](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [特鲁多在欧洲议会讲话中攻击自由车队抗议者](/content/gnews/37/README.md)
+### [特鲁多在欧洲议会讲话中攻击自由车队抗议者](/content/gnews/39/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [樱花时政┃中共媒体为何不报道俄罗斯的“生物武器风险”？](/content/gnews/38/README.md)
+### [樱花时政┃中共的策略：对所有人说谎！](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃中共的策略：对所有人说谎！](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [精糧采访埃及的红新月会志愿者](/content/gnews/40/README.md)
+### [精糧采访埃及的红新月会志愿者](/content/gnews/41/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国总统拜登到访波兰“枢纽城市”热舒夫](/content/gnews/41/README.md)
+### [美国总统拜登到访波兰“枢纽城市”热舒夫](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [精糧在梅迪卡采访来自法国的夫妻](/content/gnews/42/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [俄罗斯纳税人为普京的行政和生活开支多付了40%](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
