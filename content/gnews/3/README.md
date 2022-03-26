@@ -2,30 +2,34 @@
 ---
 
 
-## 压迫加拿大人的疫苗政令仍未彻底解除
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236914/)
+## 拜登说普京“不能继续掌权”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2236936/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据加拿大媒体【真北方】3月25日报道，目前全国各地似乎都开始逐步取消新冠疫情的限制，但部分地区还在坚持接种疫苗的规定，甚至同一司法管辖区内出现相互冲突的政令。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3185.png)
-新不伦瑞克省已经废除疫苗护照，并宣布3月28日开始全面接种疫苗将不再是其公共服务部门的就业条件，然而该省的圣约翰市却仍对其雇员执行强制疫苗；不列颠哥伦比亚是最晚宣布取消限制的省份，然而在4月8日解除限制前仍在执行严厉的疫苗授权，解雇了数千名去年因该政策而被迫休假的公共雇员。维多利亚市却未采取省政府的立场，宣布将邀请25名在1月份因不接种疫苗被无薪休假的雇员复职。据悉，该省其他市政当局也在效仿这一举措。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-报道称，目前全国各地的疫苗接种政策错综复杂且仍在不断变化，联邦机构、各省、市政府、甚至个别企业都可以要求雇员提供疫苗接种证明。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1155.jpg)
 
-原文链接：[https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/](https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/)
 
-编辑/上传 – 文永
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+图片来源：路透社
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+美国总统乔拜登周六在一场激烈的演讲中表示，俄罗斯领导人普京 “不能继续掌权”，敦促世界民主国家团结起来支持乌克兰，尽管白宫后来表示，拜登并没有呼吁莫斯科改变政权。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+“看在上帝的份上，这个人不能继续掌权，”拜登在谴责普京在乌克兰长达一个月的战争是对全球自由和安全的攻击后，在华沙对人群说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+这些评论使莫斯科与西方在入侵乌克兰方面的冲突急剧升级。但一名白宫官员表示，这些言论并不代表华盛顿政策的转变，即不寻求俄罗斯政权更迭。
+
+拜登在与逃离乌克兰战争到波兰首都的难民会面时称普京为“屠夫”。西方团结一致反对俄罗斯的入侵，但还补充说，北约是一个防御性安全联盟，从不寻求俄罗斯的灭亡。
+
+拜登的演讲是在华沙皇家城堡，数百名波兰民选官员、学生和美国大使馆工作人员面前发表的，其中许多人手持美国、波兰和乌克兰国旗。
+
+“西方现在比以往任何时候都更强大、更团结，”拜登说。
+
+拜登称与普京的斗争是一场“新的自由之战”，他说普京对“绝对权力”的渴望是俄罗斯的战略失败，也是对自二战以来基本上盛行的欧洲和平的直接挑战。
+
+🔗 [https://www.reuters.com/world/europe/biden-call-free-world-stand-against-putin-poland-speech-2022-03-26/](https://www.reuters.com/world/europe/biden-call-free-world-stand-against-putin-poland-speech-2022-03-26/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

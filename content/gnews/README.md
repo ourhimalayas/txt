@@ -21,14 +21,14 @@
 ### [盖特的独特性使其成为新时代媒体主流](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [压迫加拿大人的疫苗政令仍未彻底解除](/content/gnews/3/README.md)
+### [拜登说普京“不能继续掌权”](/content/gnews/3/README.md)
+ ` Shuizhuyu`
+
+### [压迫加拿大人的疫苗政令仍未彻底解除](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [DC每日热点0326](/content/gnews/4/README.md)
+### [DC每日热点0326](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国经济崩塌信号——京东大裁员](/content/gnews/5/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [【商见你我他】第47期新闻简讯（三）](/content/gnews/6/README.md)
  ` MayflowerBiz`
