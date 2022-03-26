@@ -2,41 +2,30 @@
 ---
 
 
-## 澳大利亚放宽更多旅行限制以吸引游客
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2232921/)
+## 拜登走访波乌边境 将乌克兰人抗俄比喻天安门
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2233341/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-24.jpg)拜登走访波乌边境 将乌克兰人抗俄比喻天安门 网络图片
+据中央社新闻3月26日报道，俄罗斯军事入侵乌克兰满一个月，美国总统拜登造访距离乌克兰边境80公里处的波兰热舒夫市。他赞赏乌克兰人的勇气与韧性，将乌克兰人抵抗侵略的行为描述为天安门广场。
 
-翻译/编辑：小红帽
+拜登对现场协助人道救援的团队表示，乌克兰已有1000万人流离失所，380万人逃往他国，还有成千上万的人被俄罗斯军队围困。拜登宣布再提供10亿美元对乌克兰的人道援助，并将接收10万名乌克兰难民。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/shutterstock_32168770-scaled-1.jpg)图片来源：www.australianchamber.com.au
+西方国家提到天安门广场，一般是指“六四事件”，也就是1989年6月4日北京天安门广场民主运动遭到中共当局的血腥镇压。中共国有几次改变政权走向民主的机会，不过中共善于钻营，再加上西方世界的贪婪和包庇，让中共逃脱了惩罚。但是西方世界养虎为患，中共壮大之后给整个世界带来了无穷无尽的灾难。现在俄乌战争的背后推手就是中共，病毒和疫苗灾难的背后推手也是中共。中共一日不除，世界灾难一日不止。
+
+新闻参考链接：[https://www.cna.com.tw/news/aopl/202203260005.aspx](https://www.cna.com.tw/news/aopl/202203260005.aspx)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-根据APP3月26日报道，随着澳大利亚联邦政府放宽限制，以使旅行恢复到大流行前的水平，国际游客被敦促预订飞往澳大利亚的航班。
+编辑：【英国伦敦喜庄园编辑部】
 
-近两年的边境限制已经削弱了澳大利亚一度繁荣的旅游业。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-但澳大利亚政府希望放宽旅行规则以吸引更多游客前往。
 
-虽然国际旅客仍需要完全接种新冠疫苗，但从4月17日起，他们将不再需要新冠病毒检测结果呈阴性才能登上飞往澳大利亚的航班。
-
-卫生部长格雷格·亨特（Greg Hunt）宣布，该规定将与游轮禁令一起终止。
-
-贸易部长丹·特汉（Dan Tehan）周五宣布对旅游业提供新的支持。
-
-澳大利亚政府将为旅行社和旅游安排服务提供商提供7550万美元，以继续运营和重新预订旅行积分。
-
-三年内再追加6,000万澳元将吸引更多来自新国际市场的游客，包括对商业活动竞标基金的额外支持，吸引大型活动到澳大利亚。
-
-新闻来源：[Australia to ease more travel restrictions](https://www.aap.com.au/news/australia-to-ease-more-travel-restrictions/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
