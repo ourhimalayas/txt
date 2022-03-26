@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 12:10 AM (UTC)`
+
+3/25/2022 Miles Guo: Communist China’s real estate sector, with a value of nearly $100 trillion, will be worthless after it collapses, while the banks will continue to force the Lao Baixing to pay their mortgages. Through the banks and real estate, the CCP set up a trap to plunder the hard-earned money of the Chinese people.<br/><br/><br/>3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷；通过银行和房地产，中共做了个局来黑中国人的血汗钱<br/><br/><br/><br/>
+![img](https://media.gettr.com/group50/getter/2022/03/26/00/82dfdc3a-279d-407e-fa9a-d6514c4562bc/out.jpg)
+
+---
+
+`@miles 3/26/2022 12:01 AM (UTC)`
+
+3/25/2022 Miles Guo: We repeat the topic of the real estate and banks in Communist China because we hope more Chinese people will be saved when they learned the truth; the purpose of all the media and the so-called “big shots” in Communist China is either to take your life away or to take your money away; the real estate in Communist China is equivalent to a huge lifetime shackle on the Chinese people.<br/><br/>3/25/2022 文贵直播：再谈国内房地产和银行，我们所有的爆料都是希望挽救更多的中国人；国内所有的媒体和所谓大咖不是要你的命、就是骗你的钱; 中共的房地产就是套在中国人一生的最大的锁铐<br/>
+![img](https://media.gettr.com/group45/getter/2022/03/26/00/03b020d1-9c62-6ebc-c69c-5f58519dfc31/out.jpg)
+
+---
+
 `@miles 3/25/2022 11:37 PM (UTC)`
 
 2022.03.25《The Fringe》 Episode 155   DOJ Takes Legal Actions against CCP Agents
@@ -144,20 +158,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 3/23/2022 Miles Guo: The CCP would rather destroy Taiwan by creating earthquakes than make it an unsinkable aircraft carrier. Xi Jinping had the ambition to take Taiwan as early as 2007. The Russia-Ukraine war has made Xi believe that he must launch a quicker and fiercer attack on Taiwan at all costs.<br/><br/>3/23/2022 文贵直播：中共宁可通过制造地震毁掉台湾，也不让台湾成为永不沉没的航空母舰；习近平早在2007年就有意要拿下台湾；俄乌之战让习认为要更快、更狠且不惜一切代价地打台湾<br/><br/><br/>
 ![img](https://media.gettr.com/group27/getter/2022/03/25/02/44af4d59-b546-fa84-e5b4-0b3a56735f19/out.jpg)
-
----
-
-`@miles 3/25/2022 1:25 AM (UTC)`
-
-2022.03.24 晚《新中国联邦新闻访谈》我们理解不了的灾难；邪恶一分钟没休息；出境新闻
-![img](https://media.gettr.com/group9/origin/2022/03/25/01/2fcb0e36-c249-dc4c-11ce-c88f24adb9d9/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/25/2022 12:49 AM (UTC)`
-
-2022.03.24 晚 《新中国联邦新闻》中共企图利用人民币石油化称霸世界； 郭文贵先生爆东航坠机事件真相
-![img](https://media.gettr.com/group29/origin/2022/03/25/00/375758dc-41ea-d6e7-0fc8-4af4456a3420/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

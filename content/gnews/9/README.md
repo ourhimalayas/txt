@@ -2,26 +2,49 @@
 ---
 
 
-## 特鲁多在欧洲议会讲话中攻击自由车队抗议者
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2231228/)
+## 拜登：普京使用化学武器将引发北约的反击
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2231247/)
 
-作者：加拿大温哥华扬帆农场-晨熹
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+美国总统乔·拜登（Joe Biden）在周四（24日）的新闻发布会上向全世界保证，如果俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在乌克兰使用化学武器，北约将作出反击。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3016.png)图片来源：The Post Millennial
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3018-edited.png)breitbart.com
 
+“这将引发一种反击；反击的性质将取决于使用的性质。”拜登在被记者问及普京使用化学武器是否会促使北约采取行动时，回答说。
 
-据加拿大媒体【后千禧年】3月24日报道，加拿大总理特鲁多本周三在欧洲议会讲话时谴责“民主制度正在削弱”。
+但总统犹豫了一下，没有说具体的反击是什么。
 
-他在讲话中还特别攻击了渥太华二月份的自由车队抗议者，“我们都看到反疫苗和反政府抗议演变为非法占领我们的社区，封锁我们的边界”，“他们假装有简单的解决方案来消除人们的恐惧”，称其领导人是“愤世嫉俗的民粹主义者试图利用民众的焦虑情绪”。
+“无论你问的是北约是否会越过……我们会在当时做出这个（反击）决定，”他说，在回答时犹豫不决。
 
-特鲁多在讲话中还表示，为日渐消弱的民主制度而战是“摆在我们面前的工作”。
+白宫一直拒绝说使用化学武器将是美国的一条“红线”，因为前总统巴拉克·奥巴马（Barack Obama）在叙利亚承诺采取行动后，却并没有。
 
-新闻来源：[https://thepostmillennial.com/watch-justin-trudeau-attacks-freedom-convoy-protesters-in-speech-to-european-parliament](https://thepostmillennial.com/watch-justin-trudeau-attacks-freedom-convoy-protesters-in-speech-to-european-parliament)
+拜登在新闻发布会上承认，制裁对普京没有威慑力，但希望在俄罗斯入侵乌克兰事情上，施加尽可能多的经济制裁。
+
+总统拜登在与欧洲领导人和北约联盟领导人会晤后夸耀了他的外交政策经验。
+
+他说：“我处理外交政策的时间比现在参与这一进程的任何人，都长。”
+
+拜登多次警告说，普京很可能会使用化学武器，但拒绝分享任何情报来证明这种威胁。
+
+“我认为这是一个真正的威胁，”他在离开白宫前往欧洲时说。
+
+（文章仅代表作者观点与GNEWS无关）
+
+新闻来源：[breitbart.com] [Joe Biden: Vladimir Putin Using Chemical Weapons Would ‘Trigger a Response’ from NATO](https://www.breitbart.com/politics/2022/03/24/joe-biden-vladimir-putin-using-chemical-weapons-would-trigger-a-response-from-nato/)
 
 * * *
 
-编译撰稿：晨熹， 编辑校对：硫酸羟氯喹64
+审核：文乐
+校对：阿伯塔
+发布：花羽
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
