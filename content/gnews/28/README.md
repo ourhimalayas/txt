@@ -2,36 +2,33 @@
 ---
 
 
-## 以太坊正在向产权证明（PoS）区块链过渡
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236521/)
+## 中共联合国投票彰显对俄罗斯的支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236525/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-以太坊正在从工作证明（PoW）转向产权证明（PoS）的共识机制。如果一切按计划，作为世界第二大加密货币的以太坊，将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
-比特币和以太坊目前使用工作证明算法来确保安全，即”矿工 “解决加密难题，竞争验证新交易区块的权利。成功的矿工会以加密货币作为他们工作的奖励。
-产权证明是区块链网络为实现分布式共识的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
-对比工作证明，产权证明有诸多优势：
-首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。
-第二，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。
-第三，导致网络中出现更多的节点，对中心化有更强的免疫力。
-最后，扩展以太坊网络的一个关键升级，对区块链的支持更强。
-使用产权证明后，验证者不必相互争夺，在能源和计算硬件上花费巨大。相反，他们的加密货币缓存，或产权，允许他们参加抽奖。那些被选中的人获得了验证一组交易的权力（并因此获得更多的加密货币）。表现出不良行为的验证者会受到惩罚——他们会失去一部分股权。
-以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该系统一直在平行运行，而且正在将实际执行交易和用户资产的转移合并到新的系统。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月24日，据多家媒体报道，在联合国大会当天举行的第11届紧急特别会议的第二次会议投票中，由乌克兰提交的有关该国人道问题的决议获得了通过。
 
-[https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-11.jpeg)
 
-[https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/](http://1.https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/%202.%20https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
+资料显示，该决议由包括乌克兰、美国和英国在内的61个国家联合发起，决议旨在推动在当地建立人道主义走廊的进程，同时要求俄罗斯停止战斗并尽快撤军。此外，决议中也指责称，俄罗斯对乌克兰的军事行动已经造成了严重的不人道主义后果。 会上，该决议以140票赞成顺利得到了通过，而仅有的五张反对票中就包括了战争发起国俄罗斯。
 
-校对/发稿：菩提树
+值得注意的是，中共在此次投票中选择了弃权，但在前一天的联合国安理会上，中共却坚决支持俄罗斯发起的类似草案决议，其是除俄罗斯外唯一投赞成票的国家。有报道提及，俄罗斯的决议草案中没有涉及对发动战争的俄罗斯追责的条款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
+早先，郭文贵先生曾在直播中示警称，中共在此次俄乌战争中的拙劣表演可能会导致中国人在接下来的百年中为世界所憎恶。对此，分析人士指出，这两次联合国投票已经彰显了中共为虎作伥的行为，其或将再次为今后的排华危机埋下祸根。
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+参考链接：
+1. [联大通过乌克兰人道问题决议](https://news.un.org/zh/story/2022/03/1100982)
+2. [联大通过乌克兰提交的人道问题决议，中方弃权](https://www.sohu.com/a/532487592_115479)
+3. [俄乌局势昨夜今晨丨联合国安理会未通过乌克兰人道问题决议草案 中方呼吁尽 
+最大努力寻求共识](https://world.huanqiu.com/article/47Jj3iA7wj4)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+审核/总编：Irene木木
+编辑：玫瑰圓
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

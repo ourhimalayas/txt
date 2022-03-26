@@ -2,30 +2,37 @@
 ---
 
 
-## 特鲁多的欧洲演讲遭罗马尼亚等国议员抵制或谴责
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236988/)
+## 俄军队控制了切尔诺贝利工业区已造成3人死亡
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237038/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱 、编译：晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据加拿大媒体【真北方】3月24日报道， 欧洲议会罗马尼亚议员克里斯蒂安·特尔赫什周三针对特鲁多在欧洲议会的演讲进行了猛烈抨击，拒绝出席并引用特鲁多侵犯公民权利的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3187.png)
-特尔赫什直言不讳地批评特鲁多镇压和平的自由车队抗议者。指责他虚伪地宣讲民主，同时在国内废除自由和权利。克罗地亚和德国的欧洲议会议员都分别表达了对特鲁多出席欧洲议会的不满，认为是“任何民主的耻辱”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵、灭共文明
 
-据悉，这是特鲁多本月第二次出访并讨论乌克兰战争，他因对待加拿大自由示威者的方式而受到欧洲议员的一连串谴责。
+《路透社》乌克兰利沃夫3月26日报道，**乌克兰斯拉维季奇市长尤里·富米切夫称，俄罗斯军队已经控制了乌克兰的斯拉维季奇市，并造成3人死亡。**该市位于乌克兰北部第聂伯河左岸，距离首都基辅200公里，由基辅负责管辖。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/切尔诺贝利工业区-e1648329054393.jpg)切尔诺贝利（图片来源：网络）
+报道称，**斯拉维季奇市坐落在切尔诺贝利周围的一个安全禁区外。**1986年，切尔诺贝利发生了世界上最严重的核灾难。
 
-新闻来源：[https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/](https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/)
+市长尤里·富米切夫在Facebook上的一篇帖子称，**从今天起这个城市就被俄罗斯占领了，但我们仍鉴定的保卫我们的城市。**
 
-编辑/上传 – 文永
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+报道称，**国际原子能机构**(International Atomic Energy Agency)在一份声明中表示，**正在密切关注事态发展，并对工作人员轮换进出核电站的能力表示担忧。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/国际原子能机构.jpg)国际原子能机构（图片来源：dreamstime)
+乌克兰中将帕夫柳克（Alexander Pavlyuk）在发表讲话时，没有描述这座城市是如何被占领的，但他说，**一些居民展开一面巨大的乌克兰国旗，高呼“光荣属于乌克兰”的口号，以示抗议。**
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+他还表示，**俄罗斯人向空中开枪驱散了市中心的抗议活动，并向人群投掷了眩晕手榴弹。**
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+乌克兰总统顾问奥列克西·阿雷斯托维奇(Oleksiy Arestovych)表示，**该镇已经成为战争的新热点。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+新闻来源链接：
+
+[Russian forces take control of Chernobyl workers’ town, three dead, Interfax Ukraine reports | Reuters](https://www.reuters.com/world/europe/kyiv-region-head-says-russian-forces-have-seized-chernobyl-workers-town-2022-03-26/)
+
+**更多资讯，更多关注**：
+
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

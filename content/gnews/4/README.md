@@ -2,18 +2,18 @@
 ---
 
 
-## 盖特的独特性使其成为新时代媒体主流
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236944/)
+## 特鲁多的欧洲演讲遭罗马尼亚等国议员抵制或谴责
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2236988/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编/撰稿：文莱
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱 、编译：晨熹
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-据加拿大自媒体【后千禧一代】3月24日报道，盖特周四宣布与《后千禧一代》的特约编辑安迪-恩戈建立合作伙伴关系，将确保该独立记者可在其社交媒体平台上为【每周通知】的新闻节目制作独家内容。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3186.png)
-报道称，恩戈将在盖特讨论他的个人报道、并提供政治评论和分析，恩戈表示期待在没有审查或影子禁令威胁的盖特上与观众互动。盖特首席执行官杰森米勒先生对此表示，盖特很自豪能为无所畏惧地追求真相的记者合作，并为其提供一个平台，盖特不但致力于抓住重要新闻，更要确保政治辩论的自由度。
+据加拿大媒体【真北方】3月24日报道， 欧洲议会罗马尼亚议员克里斯蒂安·特尔赫什周三针对特鲁多在欧洲议会的演讲进行了猛烈抨击，拒绝出席并引用特鲁多侵犯公民权利的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3187.png)
+特尔赫什直言不讳地批评特鲁多镇压和平的自由车队抗议者。指责他虚伪地宣讲民主，同时在国内废除自由和权利。克罗地亚和德国的欧洲议会议员都分别表达了对特鲁多出席欧洲议会的不满，认为是“任何民主的耻辱”。
 
-据悉，盖特在全球目前拥有500万注册用户，盖特在2021年7月4日正式推出不到三天就获得了第一百万用户，而随着推特等主流媒体平台的审查制度不断加强，知名的言论人士纷纷加入了盖特的行列，以向专制的硅谷寡头宣战。
+据悉，这是特鲁多本月第二次出访并讨论乌克兰战争，他因对待加拿大自由示威者的方式而受到欧洲议员的一连串谴责。
 
-链接：[GETTR partners with Andy Ngo for weekly news show | The Post Millennial](https://thepostmillennial.com/gettr-partners-with-andy-ngo-for-weekly-news-show)
+新闻来源：[https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/](https://tnc.news/2022/03/24/romanian-parliamentarian-boycotted-trudeau-eu-speech/)
 
 编辑/上传 – 文永
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
