@@ -2,30 +2,44 @@
 ---
 
 
-## 泽伦斯基：俄军阵亡逾1.6万 乌克兰从马立波救出3.7万
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2231658/)
+## 瞄准大型科技巨头，欧盟通过意义深远的《数字市场法》
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2232847/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-泽伦斯基指出，俄罗斯损失的人数已超过16,000人，其中还有高级将领，到目前为止，还没有关于被杀的俄罗斯将军上校或海军上将的报导，然而，在这个数字中，包含一名占领者军队的指挥官和一名黑海海军的指挥官。
+#### **【雅典娜观察】和您一起洞察世界**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/e591986e-710b-4809-bf0b-4eb6d7ee7c21.jpg)图片来源：Volodymyr Zelensky脸书
+翻译/编辑：文泓
 
-2名北约高级军事官员周三时则估计，在乌克兰行动中丧生的俄罗斯士兵人数在 7,000至15,000 人之间。美国官员也预估，俄军死亡人数落在7,000至14,000间。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-176.png)图片来源：Sdquarter & 雅典娜设计组
 
-泽伦斯基进一步表示，过去一周乌克兰确保了18条人道主义走廊的安全，并设法从被围困的马立波营救了37,606人，其中26,477人被带到扎波罗热。
 
-简评：俄军为了攻下乌克兰不惜屠杀平民，乌军为了保卫家乡尽其所力救援，独裁与民主两国对平民的关怀高下立判。一个拿人民性命当儿戏的国家没有理由去为它卖命，俄罗斯的大兵们醒醒吧！
+未来美国科技巨头将不得不遵守欧盟更严格的规定。周四，来自欧盟国家和欧洲议会的谈判代表在布鲁塞尔就《数字市场法》达成一致。
 
-新闻来源：[民视新闻](https://www.ftvnews.com.tw/news/detail/2022326W0009)
+新法律影响应用商店、在线广告、电子商务、消息服务和其他日常数字工具等。据报道，供应商正被迫做出根本性的改变。
 
-撰稿/发布：一叶知秋
+《**数字市场法》（****DMA****）**旨在遏制欧盟内部互联网巨头的市场力量，并确保更公平的市场竞争。如涉及在线优惠时，应该会给消费者更多的选择自由。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+在千禧年之初，欧盟就制定了全面的互联网规则。时至今日，人们不止一次地抱怨互联网行业存在法律真空，来自模拟世界的竞争法未能阻止用户和市场力量迅速集中在少数科技巨头手中。
+
+新法律针对某些科技巨头，这些公司是商业用户通往最终消费者的重要门户。首先，美国公司谷歌、亚马逊、Facebook和苹果很可能会受到影响。未来，这些所谓的看门人将不得不遵守一定的规章制度。如果发生违规行为，他们将面临严厉的制裁——直至并包括公司分拆。
+
+诸如苹果公司必须允许其应用商店的替代品来安装各种应用程序。该公司曾警告过这一变化，强调这种放松会损害平台的安全性。
+
+新的欧盟法律还将允许Spotify（流媒体服务商）和Epic Games（在线游戏公司）等公司在苹果应用商店上使用苹果以外的支付方式。
+
+除其他事项外，“守门人”将被禁止在中央服务中对自己的产品和报价给予优于竞争对手的待遇。
+
+如亚马逊将被禁止使用外部卖家收集的数据为自己的服务提供竞争性产品；用户应该能够更频繁地删除预装的应用程序；消费者也应该能够使用一项服务，而不必同意在守门人的所有报价中进行数据捆绑。
+
+参考链接：[Die EU einigt sich auf strenge Vorgaben für Internetriesen (watson.ch)](https://www.watson.ch/digital/wirtschaft/420014973-die-eu-einigt-sich-auf-strenge-vorgaben-fuer-internetriesen)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

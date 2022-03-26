@@ -2,29 +2,30 @@
 ---
 
 
-## 世界金融监管机构加强审查加密货币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227121/)
+## 泽伦斯基：俄军阵亡逾1.6万 乌克兰从马立波救出3.7万
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2231658/)
 
-作者：香草山农场 – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社3月21日报导，在当前俄乌战争局势下，因对加密货币被用于规避制裁的担忧，由 20 国集团经济体的金融监管机构、中央银行和财政部官员组成的金融稳定委员会成员帕特里克·阿姆斯特朗，在伦敦举行的城市与金融会议上表示，正在监视与加密货币有关的各种情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+泽伦斯基指出，俄罗斯损失的人数已超过16,000人，其中还有高级将领，到目前为止，还没有关于被杀的俄罗斯将军上校或海军上将的报导，然而，在这个数字中，包含一名占领者军队的指挥官和一名黑海海军的指挥官。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-48.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/e591986e-710b-4809-bf0b-4eb6d7ee7c21.jpg)图片来源：Volodymyr Zelensky脸书
 
-此外，英国金融服务大臣在该会议上表示，英国已将加密资产纳入反洗钱和恐怖主义融资的打击范围内，并支持对加密资产进行执法。欧盟也于此前发布相关指导意见，确认对俄罗斯包括加密资产在内的贷款和信贷进行制裁。
+2名北约高级军事官员周三时则估计，在乌克兰行动中丧生的俄罗斯士兵人数在 7,000至15,000 人之间。美国官员也预估，俄军死亡人数落在7,000至14,000间。
 
-链接：
+泽伦斯基进一步表示，过去一周乌克兰确保了18条人道主义走廊的安全，并设法从被围困的马立波营救了37,606人，其中26,477人被带到扎波罗热。
 
-- [Global regulators monitor crypto use in Ukraine war](https://www.reuters.com/article/crypto-currency-regulator-idCAKCN2LI0OH)
+简评：俄军为了攻下乌克兰不惜屠杀平民，乌军为了保卫家乡尽其所力救援，独裁与民主两国对平民的关怀高下立判。一个拿人民性命当儿戏的国家没有理由去为它卖命，俄罗斯的大兵们醒醒吧！
 
+新闻来源：[民视新闻](https://www.ftvnews.com.tw/news/detail/2022326W0009)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+撰稿/发布：一叶知秋
 
-总编：雪梨
-编辑：飞虹/雪梨
-审核：木木
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

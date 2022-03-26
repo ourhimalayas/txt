@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 1:44 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1：奔驰AMG GT4 (单价: $92,500.00)<br/>奖品数量：1<br/>获奖者：<br/>LM64133<br/>新西兰奥克兰伊甸农场<br/>discord：梦田#6641<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1: Mercedes AMG GT 4-door Coupe (Unit Value: $92,500.00) <br/>Number of Prizes: 1<br/>The winner is: <br/>LM64133<br/>Himalaya NewZealand Auckland Eden Farm<br/>discord：梦田#6641<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/><br/>
+![img](https://media.gettr.com/group16/getter/2022/03/26/13/82582cec-605a-25d2-66ae-766f590531dc/43a71897936ca91deb8782f5de4b660f.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 3/26/2022 12:24 PM (UTC)`
@@ -151,15 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 3/25/2022 Miles Guo: Himalaya Coin and Tangping Coin will become the most reliable, secure, convenient, and least-cost digital currency of the world. Both will be the creators of undeprivable personal wealth; Chinese people should have faith that justice will always be served and our strength will speak for itself; Chinese people will be set free only after they have achieved freedom of faith and financial independence.<br/><br/>3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)；一定要坚信正义并靠实力; 中国人在拥有真正的信仰和财务自由时，才能得解放<br/>
 ![img](https://media.gettr.com/group5/getter/2022/03/26/00/ea7f4693-91e3-dbae-1298-e067735abd82/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 3/25/2022 6:29 PM (UTC)`
-
-🆘🇺🇦🆘来自乌克兰救援前线最新报道:<br/>精糧战友在Medyka边境采访来自美国加州的自愿者--作家杰米讲述乌克兰Lviv 利沃夫的所见所闻<br/>🇺🇦 杰米被乌克兰民族的团结，相互支持和强大的战斗士气所感染和感动！<br/>🇺🇦杰米呼吁大家继续广泛传播真相，戳穿普京操纵俄罗斯媒体报道虚假宣传！<br/>Jing Liang Interviews Volunteer-Writer Jamie from California on Medyka Border about what he saw in Lviv Lviv, Ukraine<br/> 🇺🇦 Jamie was infected and moved by the unity, mutual support and strong fighting morale of the Ukrainian! <br/>🇺🇦 Jamie calls on everyone to continue to spread the truth widely and against Putin's manipulation of the Russian media to report false propaganda!<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/>#NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine
-![img](https://media.gettr.com/group29/origin/2022/03/25/18/325f9e50-bc42-029c-4eb7-728562832c1a/out.jpg)
 
 ---
 
