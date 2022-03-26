@@ -2,29 +2,36 @@
 ---
 
 
-## 世界金融监管机构加强审查加密货币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2227121/)
+## 有声|北约将在罗马尼亚、保加利亚、匈牙利和斯洛伐克部署战斗群
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2226513/)
 
-作者：香草山农场 – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社3月21日报导，在当前俄乌战争局势下，因对加密货币被用于规避制裁的担忧，由 20 国集团经济体的金融监管机构、中央银行和财政部官员组成的金融稳定委员会成员帕特里克·阿姆斯特朗，在伦敦举行的城市与金融会议上表示，正在监视与加密货币有关的各种情况。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
+2022年3月24日,据俄罗斯卫星通讯社报道，北约领导人们商定在罗马尼亚、保加利亚、匈牙利和斯洛伐克部署4个战斗群，加强北约的东翼。他们还决定加强对乌克兰的支持，其中包括防止化学、核和网络威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image001-5.jpg)© AFP 2022 / KENZO TRIBOUILLARD
+北大西洋公约组织(North Atlantic Treaty Organization, 简称﹕北约)领导人将抵达该组织在布鲁塞尔的总部参加紧急会议，目的是加强北约的东翼力量，并向乌克兰提供援助。美国总统拜登(Joe Biden)周三抵达布鲁塞尔，他将参加北约会议和其他会议，并将访问波兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image003-17.jpg)周四，北约秘书长斯托尔滕贝格在抵达北约国家元首峰会现场（图片来源：BENOIT DOPPAGNE/ZUMA PRESS）
+在布鲁塞尔举行的乌克兰问题北约紧急峰会结束后的声明中称：”我们将在保加利亚、匈牙利、罗马尼亚和斯洛伐克设立四个额外的多国战斗群。”战斗群是随时可以战斗的作战编队。在最后的声明中还称，北约国家将大幅增加自己的国防开支。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-48.png)
-
-此外，英国金融服务大臣在该会议上表示，英国已将加密资产纳入反洗钱和恐怖主义融资的打击范围内，并支持对加密资产进行执法。欧盟也于此前发布相关指导意见，确认对俄罗斯包括加密资产在内的贷款和信贷进行制裁。
-
-链接：
-
-- [Global regulators monitor crypto use in Ukraine war](https://www.reuters.com/article/crypto-currency-regulator-idCAKCN2LI0OH)
+北约秘书长斯托尔滕贝格(Jens Stoltenberg)周四早间抵达峰会现场，他表示，盟国“面临着一代人以来最严重的安全危机”，所指是俄罗斯入侵乌克兰事件。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：雪梨
-编辑：飞虹/雪梨
-审核：木木
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[【援引连结】](https://cn.wsj.com/articles/%E5%8C%97%E7%BA%A6%E9%A2%86%E5%AF%BC%E4%BA%BA%E5%B0%86%E6%8A%B5%E8%BE%BE%E5%B8%83%E9%B2%81%E5%A1%9E%E5%B0%94%E5%8F%82%E5%8A%A0%E7%B4%A7%E6%80%A5%E5%B3%B0%E4%BC%9A-11648110670)
+
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：**
+**新西兰伊甸农场盖特：**
+[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)
+**【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)
+**新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)
+**【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

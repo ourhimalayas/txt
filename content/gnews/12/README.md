@@ -2,42 +2,25 @@
 ---
 
 
-## 中共国：中国电信和中国移动被美国联邦通信委员会（FCC）列入国家安全威胁名单
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2234751/)
+## 樱花头条┃美国对中共官员采取限制性签证发放
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
 
-来自新加坡早报 /
-2022年3月26日 10:00 AM 报导
-采集：玫瑰新闻组
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+美国国务卿布林肯最新电视讲话：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-2.jpg)
+将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
 
+信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
 
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3172.jpg)
-
-以下原文內容：
-
-
-
-美国联邦通信委员会（FCC）昨天（25日）宣布，将中国电信美洲公司和中国移动美国子公司列入其对美国国家安全构成威胁的通讯设备和服务商名单。俄罗斯卡巴斯基（AO Kaspersky Lab）也被列入该名单。
-
-根据路透社报道，美国联邦通讯委员会主席罗森沃塞尔（Jessica Rosenworcel）在一份声明中说：“今天的行动是联邦通信委员会正在努力的最新举措，作为整个政府举措的一部分，以加强美国的通信网络，抵御国家安全威胁。”
-
-这意味着FCC每年83亿美元（约112亿新元）的万能服务基金（Universal Service Fund）的资金将不再被用于购买或维护这些公司的产品。
-
-中国驻美国大使馆昨天没有立即发表评论。中国商务部本月早些时候批评了FCC的行动，称中方将采取必要措施，坚决维护中国企业合法权益。
-
-两家中国电信公司没有立即回应置评请求。
-
-2019年的一项法律要求FCC公布和更新一份对国家安全或美国人民的安全构成不可接受的风险的通信设备和服务商清单。FCC去年3月指定华为技术有限公司、中兴通讯、深圳海能达、杭州海康威视数码科技有限公司和浙江大华科技股份有限公司这五家公司对美国国家安全构成威胁。这也是第一批被列入美国电信监管机构“涵盖名单”的公司。
-
-新闻链接：
-[中国电信和中国移动被FCC列入国家安全威胁名单](https://www.zaobao.com.sg/realtime/china/story20220326-1256192)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

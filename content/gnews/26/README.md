@@ -2,35 +2,35 @@
 ---
 
 
-## 七国集团阻止俄罗斯出售黄金储备
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234280/)
+## 多国政要接种疫苗后后确诊中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234278/)
 
-作者：纽约香草山教育部-Naughty(文行)；日本东京方舟农场-Miyali7768(文玉）
+作者：日本方舟农场 – Andy5；银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月24日外媒报导，七国集团领导人当天在布鲁塞尔的北约总部会晤，一致同意打击俄罗斯出售黄金储备以支撑卢布的能力，阻止莫斯科方面逃避西方金融制裁的企图，加大对普京政权的经济惩罚力度。
+3月22日，美过前总统克林顿的夫人希拉里中共病毒检测呈现阳性。当天，白宫新闻秘书珍·普萨基中共病毒检测也呈阳性，这是她第二次出现阳性，不过症状轻微，她还表示转阴后很快回到工作岗位。本月早些时候，前总统奥巴马也确诊中共病毒阳性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-47.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-14.jpg)
 
-他们在一份声明中表示,七国集团领导人和欧盟将继续共同努力，削弱俄罗斯利用其国际储备支撑俄罗斯经济和资助普京战争的能力，包括明确与俄罗斯联邦中央银行有关的任何涉及黄金的交易都要受到现有制裁的限制。
+另外，挪威国王、德国新任总统夫妇，均在23日传出了确认感染中共病毒的消息。
 
-美国的一名高级官员表示，俄罗斯的黄金储备可能价值1000 亿至 1400 亿美元，有迹象表明该国央行正试图利用这些储备来“支撑卢布”。
+据悉，现年85岁的挪威国王已完全接种三剂中共病毒疫苗，德国总统也在2021年11月12日接种了第三针加强针。而希拉里和普萨基也都是在接种后确诊的。
 
-同一天，美国财政部发布公告，禁止与俄罗斯进行黄金交易。财政部说，禁令是根据总统拜登已经签署的行政命令发布的。
-
-美国财政部在官网中指出：“美国人不得参与任何涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金或俄罗斯联邦财政部的交易，包括与黄金有关交易。”
-
-美国最大的黄金交易营运商芝加哥商品交易所集团，本月稍早时候已经暂停了与六家俄罗斯炼金商的交易。
+多国高级政要在接种疫苗后密集确诊的事实再一次说明，中共病毒疫苗根本没有效果，甚至会增加感染风险。
 
 参考链接：
 
-- [G7 to crack down on Russia’s ability to sell its gold](https://www.ft.com/content/76e52790-7d3d-4303-a8c4-441da2aa39a8)
-- [俄用黃金規避制裁…拜登簽行政令 禁止與俄黃金交易](https://www.worldjournal.com/wj/story/121469/6190277)
+- [外媒：85岁挪威国王新冠病毒检测呈阳性，症状较轻微](https://rmh.pdnews.cn/Pc/ArtInfoApi/article?id=27452102)
+- [德国总统夫妇感染新冠病毒](https://news.sina.com.cn/w/2022-03-23/doc-imcwipii0000961.shtml)
+- [希拉里确诊普萨基二次感染，为何近来美国政要频频“中招”？](https://j.eastday.com/p/1648024513044354)
+- [Hillary Clinton tests positive for COVID-19](https://www.axios.com/hillary-clinton-covid-edbd4c6a-cade-44a2-8860-b6d9bdb97ecc.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=editorial&amp;utm_content=politics-clintoncovid&amp;s=09)
+- [White House press secretary Psaki has COVID, Biden tests negative](https://abcnews.go.com/Politics/white-house-press-secretary-psaki-covid-biden-tests/story?id=83602499&amp;utm_source=facebook&amp;utm_medium=news_tab)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编/编辑：飞虹
-审核：飞虹
+总编：飞虹
+编辑：静言
+审核：木木
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
