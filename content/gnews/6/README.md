@@ -2,34 +2,46 @@
 ---
 
 
-## 大直播后记：七哥谈宗教与神的存在
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2234569/)
+## 俄罗斯在阿夫迪耶夫卡使用了新的 “旋风-S”多管火箭炮导弹
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2234632/)
 
-整理：美哥、Damon
-编辑：小红帽
+翻译：雄起（酷翻组）
+采集：玫瑰新闻组
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/47d7060da2cdf6b4.png)图片来源：雅典娜农场设计组（614）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻.jpg)
 
 
-为什么我在清风看守所能活着出来。大家想一想，这60个被枪毙的人，任何人跟我比，我都排在他们枪毙的前面，这是肯定的。
 
-第二个，我从清风看守所出来的时候，完全是负资产。我离开老家，我爹赶着牛车把我送上去。我裹着几床被子，拿被单裹着，身上只有三四十块钱。到了高码头，坐上了那个拥挤的叮咣啷的客车，随时可能翻车。这样折腾几趟，到达郑州，寄人篱下。从开始到今天，包括到后来你看到盖裕达，成立公司。裕达当年发生的事情，到这个北京盘古、奥运会，刘志华等等，包括我逃出来，有些事情是无法解释的，我就是一个最好的例子。
 
-我也跟你们讲过“过阴”，跟八弟见面谈话。就是在那个梦中的，所谓“过阴”的那个道家，佛家手段。还有一个在武当山上结交的高人，和所有的中国的，所谓高僧大德，你给我找出任何一个人，中国的现在活着的还没活着，从达赖喇嘛到到五台山到释永信。任何一个泰山上的道长，黄道长、赵道长、张道长，你给我找任何一个。西方所有的梵蒂冈活着的教宗，没有哪个跟我没见过的。包括这些国家的大宗教，包括整个沙特中东的大阿訇，最牛叉的埃及，所有的穆斯林，很多的院校，哪个我没见过？
 
-我可以告诉大家，很多事我也不能给大家唠一唠，但我告诉你，最终我相信人是有主人的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3111.png)掉落在阿夫迪夫卡地区的俄罗斯 “旋风-S “多管火箭炮弹的控制单元9B706的碎片。 2022年3月
 
-为什么上万亿年了，地球和其他星球相撞，撞出来一个月亮。然后，地球从水状态撞到了今天的岩石状态，然后有水，有土，有一年四季，天上下雨，下雪，形成了磁场。最关键的是磁场，引力场。这个引力场是什么？然后有水。咱们今天的碳水化合物，碳水化合物就成了我们的肉体。肉体还带着灵魂。灵魂完了，灵魂有没有记忆呢？如果没有记忆，精子和卵子是否能把们人类上万年来的所有的记忆都记下来呢？说人是猴子变的，现在猴子咋不变人了呢？很简单的道理，那么人类上的分秒、海拔、热度，月球和我们之间，还有银河系与我们之间有什么关系呢？任何一个东西砸到我们地球上，就像恐龙事件一样。为什么有规律？电脑无法解密？最后我们研究出了芯片。现在人类又造出共产党病毒，然后打到你身体的新冠疫苗的40万亿分子。
+俄军用新的 “旋风-S “多管火箭系统导弹袭击了乌克兰的阿夫迪夫卡市。
 
-参考资料：[郭文贵先生2022年3月23日大直播](https://www.gettr.com/streaming/p11h7xt9462)
+Militarnyi报道了此事。
 
-发布*：tianzhihuan*
+警方对俄军袭击阿夫迪耶夫卡平民的事件进行了审前调查。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+“平民中有人死亡，有人受伤。至少有15所房屋被毁，”警察办公室的人说。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3112.png)警方关于炮击阿夫迪夫卡的报告。 3月20日
+
+警方还展示了一张9B706控制装置的照片，该装置来自所谓的 “高精度 “300毫米9M544/9M549火箭推进式榴弹，用于“旋风-C”多管火箭发射器。
+
+这些控制单元是由俄罗斯研究和生产协会SPLAV开发的。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3113.png)用于 “旋风-S “多管火箭炮导弹的控制系统9B706单元
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3117.png)
+
+M544/9M549火箭弹被设计用来摧毁装甲和非装甲车辆，以及人员兵力。
+
+新闻链接：
+
+[https://mil.in.ua/en/news/russia-used-new-tornado-s-mlrs-missiles-in-avdiyivka/?\_\_cf\_chl\_f\_tk=fKww7j7HWqEZSH2sY6zLggMZoCivMFJQIC88wwUz\_YM-1647937455-0-gaNycGzNB6U](https://mil.in.ua/en/news/russia-used-new-tornado-s-mlrs-missiles-in-avdiyivka/?__cf_chl_f_tk=fKww7j7HWqEZSH2sY6zLggMZoCivMFJQIC88wwUz_YM-1647937455-0-gaNycGzNB6U)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

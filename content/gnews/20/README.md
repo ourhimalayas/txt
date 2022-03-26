@@ -2,29 +2,26 @@
 ---
 
 
-## 七国集团阻止俄罗斯出售黄金储备
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234280/)
+## 西方国家准备应对俄可能使用的大规模杀伤性武器
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234279/)
 
-作者：纽约香草山教育部-Naughty(文行)；日本东京方舟农场-Miyali7768(文玉）
+作者：华盛顿DC农场 – 自由信仰；纽约香草山教育部 – Naughty(文行)；纽约磐石农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月24日外媒报导，七国集团领导人当天在布鲁塞尔的北约总部会晤，一致同意打击俄罗斯出售黄金储备以支撑卢布的能力，阻止莫斯科方面逃避西方金融制裁的企图，加大对普京政权的经济惩罚力度。
+外媒报导，3 月 24 日，一位高级政府官员表示，白宫已经成立了一个专家小组，以应对俄罗斯在乌克兰使用大规模杀伤性武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-47.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-28-scaled.jpg)
 
-他们在一份声明中表示,七国集团领导人和欧盟将继续共同努力，削弱俄罗斯利用其国际储备支撑俄罗斯经济和资助普京战争的能力，包括明确与俄罗斯联邦中央银行有关的任何涉及黄金的交易都要受到现有制裁的限制。
+面对美国和北约国家的制裁，俄罗斯一再威胁会使用核武器。而对于他们关于乌克兰可能使用化学武器的指控，美国表示，俄罗斯放出这样的谎言，表明他们自己有可能率先诉诸化学武器。
 
-美国的一名高级官员表示，俄罗斯的黄金储备可能价值1000 亿至 1400 亿美元，有迹象表明该国央行正试图利用这些储备来“支撑卢布”。
+据悉，白宫国家安全委员会已于 2 月 28 日建立了一个战略小组，审查俄罗斯入侵乌克兰后发生的重大地缘政治变化。同时，还建立了另一个被称为“老虎队”的小组，研究未来三个月的各种潜在风险。这些小组负责为各种情况制定应急计划，其中就包括俄罗斯可能使用化学或生物武器等大规模杀伤性武器。
 
-同一天，美国财政部发布公告，禁止与俄罗斯进行黄金交易。财政部说，禁令是根据总统拜登已经签署的行政命令发布的。
-
-美国财政部在官网中指出：“美国人不得参与任何涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金或俄罗斯联邦财政部的交易，包括与黄金有关交易。”
-
-美国最大的黄金交易营运商芝加哥商品交易所集团，本月稍早时候已经暂停了与六家俄罗斯炼金商的交易。
+对于这一问题，其他西方国家也高度警觉，七国集团在25日北约峰会后发表声明，警告俄罗斯在与乌克兰作战期间不得使用生物、化学、核武器或相关材料，并表示将不遗余力地追究普京侵乌的责任。
 
 参考链接：
 
-- [G7 to crack down on Russia’s ability to sell its gold](https://www.ft.com/content/76e52790-7d3d-4303-a8c4-441da2aa39a8)
-- [俄用黃金規避制裁…拜登簽行政令 禁止與俄黃金交易](https://www.worldjournal.com/wj/story/121469/6190277)
+- [U.S. making plans in case Russia uses chemical, nuclear weapons](https://www.reuters.com/world/us/us-making-plans-case-russia-uses-chemical-nuclear-weapons-2022-03-24/)
+- [G7領袖警告俄羅斯勿用化武 矢言追究蒲亭侵烏責任](https://www.cna.com.tw/news/aopl/202203250010.aspx)
+- [俄駐聯合國公使：北約若再威脅 俄有權使用核武](https://news.ltn.com.tw/news/world/breakingnews/3870151)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
