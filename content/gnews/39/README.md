@@ -2,43 +2,41 @@
 ---
 
 
-## 瞄准大型科技巨头，欧盟通过意义深远的《数字市场法》
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2232847/)
+## 澳大利亚放宽更多旅行限制以吸引游客
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2232921/)
 
-#### **【雅典娜观察】和您一起洞察世界**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：文泓
+翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2-176.png)图片来源：Sdquarter & 雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/shutterstock_32168770-scaled-1.jpg)图片来源：www.australianchamber.com.au
 
 
-未来美国科技巨头将不得不遵守欧盟更严格的规定。周四，来自欧盟国家和欧洲议会的谈判代表在布鲁塞尔就《数字市场法》达成一致。
+根据APP3月26日报道，随着澳大利亚联邦政府放宽限制，以使旅行恢复到大流行前的水平，国际游客被敦促预订飞往澳大利亚的航班。
 
-新法律影响应用商店、在线广告、电子商务、消息服务和其他日常数字工具等。据报道，供应商正被迫做出根本性的改变。
+近两年的边境限制已经削弱了澳大利亚一度繁荣的旅游业。
 
-《**数字市场法》（****DMA****）**旨在遏制欧盟内部互联网巨头的市场力量，并确保更公平的市场竞争。如涉及在线优惠时，应该会给消费者更多的选择自由。
+但澳大利亚政府希望放宽旅行规则以吸引更多游客前往。
 
-在千禧年之初，欧盟就制定了全面的互联网规则。时至今日，人们不止一次地抱怨互联网行业存在法律真空，来自模拟世界的竞争法未能阻止用户和市场力量迅速集中在少数科技巨头手中。
+虽然国际旅客仍需要完全接种新冠疫苗，但从4月17日起，他们将不再需要新冠病毒检测结果呈阴性才能登上飞往澳大利亚的航班。
 
-新法律针对某些科技巨头，这些公司是商业用户通往最终消费者的重要门户。首先，美国公司谷歌、亚马逊、Facebook和苹果很可能会受到影响。未来，这些所谓的看门人将不得不遵守一定的规章制度。如果发生违规行为，他们将面临严厉的制裁——直至并包括公司分拆。
+卫生部长格雷格·亨特（Greg Hunt）宣布，该规定将与游轮禁令一起终止。
 
-诸如苹果公司必须允许其应用商店的替代品来安装各种应用程序。该公司曾警告过这一变化，强调这种放松会损害平台的安全性。
+贸易部长丹·特汉（Dan Tehan）周五宣布对旅游业提供新的支持。
 
-新的欧盟法律还将允许Spotify（流媒体服务商）和Epic Games（在线游戏公司）等公司在苹果应用商店上使用苹果以外的支付方式。
+澳大利亚政府将为旅行社和旅游安排服务提供商提供7550万美元，以继续运营和重新预订旅行积分。
 
-除其他事项外，“守门人”将被禁止在中央服务中对自己的产品和报价给予优于竞争对手的待遇。
+三年内再追加6,000万澳元将吸引更多来自新国际市场的游客，包括对商业活动竞标基金的额外支持，吸引大型活动到澳大利亚。
 
-如亚马逊将被禁止使用外部卖家收集的数据为自己的服务提供竞争性产品；用户应该能够更频繁地删除预装的应用程序；消费者也应该能够使用一项服务，而不必同意在守门人的所有报价中进行数据捆绑。
-
-参考链接：[Die EU einigt sich auf strenge Vorgaben für Internetriesen (watson.ch)](https://www.watson.ch/digital/wirtschaft/420014973-die-eu-einigt-sich-auf-strenge-vorgaben-fuer-internetriesen)
+新闻来源：[Australia to ease more travel restrictions](https://www.aap.com.au/news/australia-to-ease-more-travel-restrictions/)
 
 发布：tianzhihuan
 
-**更多资讯，请关注：**
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

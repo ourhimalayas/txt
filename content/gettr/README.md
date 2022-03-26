@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 10:32 AM (UTC)`
+
+【Ukraine Rescue】03/22/22 Nineteen-year-old girl, 2nd-gen NFSC fellow fighter Feather requests to go to the Ukraine border to greet refugees, because she wants to contribute her own part at the frontline, especially for the children. She feels strongly empathetic towards the refugees.<br/><br/><br/>【乌克兰救援】03/22/22  19岁新中国联邦爆二代女孩Feather在前线帮助难民，特别是孩子。她希望为救援行动出一份力，对难民的处境深切共情。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group46/getter/2022/03/26/10/9ffe57f6-6de4-5e7e-09f2-3a30d4622a4d/out.jpg)
+
+---
+
 `@miles 3/26/2022 9:34 AM (UTC)`
 
 <br/>3月26日：尊敬的战友们好！看了这个视频一直想吐，却吐不出来．咋办呢？
@@ -151,13 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 2022.03.25《The Fringe》 Episode 155   DOJ Takes Legal Actions against CCP Agents
 ![img](https://media.gettr.com/group46/origin/2022/03/25/23/e94e9a85-3655-456c-4b6e-4a97dced1b09/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/25/2022 11:27 PM (UTC)`
-
-How to buy items on GFashion.com via HPay?<br/>Step 1: Log in to GFashion.com<br/>Step 2: Choose items that you like<br/>Step 3: Confirm your payment method, and choose HPay<br/>Step 4: Scan the QR code from your HPay app on your phone<br/>Step 5: confirm your payment. Done!<br/><br/>如何使用HPay在GFashion网站上买商品？<br/>第一步：登陆GFashion网站<br/>第二步：选择您喜欢的产品<br/>第三步：确认付款，然后选择HPay<br/>第四步：自动生成二维码，用手机HPay app扫码付款<br/>支付成功！<br/>#hpay #gfashion #buygfashionviahpay #hcointothemoon #hcoin #hdollar
-![img](https://media.gettr.com/group44/origin/2022/03/25/23/a811612b-8764-34c1-5557-8a7e0b5067db/bab5af3eb82ab124e3f6330b829661a1.jpg)
 
 ---
 
