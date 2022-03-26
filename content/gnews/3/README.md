@@ -2,34 +2,28 @@
 ---
 
 
-## 有声|上海疫情大爆发 陆家嘴金融中心遭封控
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2235960/)
+## 中共洗脑工具之样板戏
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236231/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
-【大纪元3月24日讯】上海疫情大规模爆发，陆家嘴的金融机构也难幸免。尽管上海市官方没有说封城，但上海市民认为实际上就处于封城状况。官方称这一波疫情阳性患者超过5千，但民间认为真实人数可能更多。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-15.jpg)陆家嘴街道是上海金融中心，23日晚通知陆家嘴街道封48小时，是否解封看核酸检测情况。图为19日上海陆家嘴金融中心核酸检测。（视频截图）
-上海卫健委今早（24日）公布，23日上海新增阳性本土病例983例。截至3月23日，这一波疫情累计通报阳性病例5963例，含确诊病例248例、无症状5715例。
+作者：纽约香草山农场-静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+样板戏，全称革命样板戏或八个样板戏，是中共官方在1967至1976年间指定中央文革小组负责制作的各式戏剧，其中代表性的作品包括京剧《智取威虎山》、《红灯记》，芭蕾舞剧《红色娘子军》、《白毛女》以及交响音乐《沙家浜》等。样板戏可以算是主要反映当时极左政治立场的所谓“舞台艺术作品”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-26-上午10.50.42-1.png)
+1956年3月，中共在北京举行的京剧演出大会开始将工农兵作为主要角色，用以突出阶级对立。到了1967年5月，八个样板戏在北京各剧场同时上演，并获得党魁毛泽东的极力吹捧。其后，江青更是借由主导样板戏的机会开始活跃于中共的政治舞台核心。直至 1968年，中共通过鼓动民众唱样板戏、跳忠字舞等活动大肆洗脑百姓，从而控制他们只服从于毛泽东与中共的独裁统治。
 
-此前一天，有知情者表示，上海疫情被上面认为是失控状态，所以22日晚就说派国务院疫情督察组进驻上海展开调查。外地是不允许上海人前往的，会被举报。
+资料显示，样板戏具有反传统、造神、服从、移情和禁欲等几个主要特征。这当中，样板戏通过描写中共进行武装斗争建设所谓的新生活，来巩固中共的极权统治并将毛泽东神话为统率国民的偶像。此外，样板戏还竭力将中共政党与普通民众定义为主仆或君臣关系，给百姓灌输无限忠诚和无条件顺从等思想。
 
-此前有知情者披露，上海至少赶建了三个新的方舱医院。也有知情者表示，光上海浦东北蔡就发现八千多例阳性病例，官方在分批通报，每天报八九百例。
+时至今日，自习近平修宪以来，中共再次将所谓的“红色题材”作品搬上舞台，企图再次回到毛泽东造神时期。据悉，歌剧《白毛女》和芭蕾舞剧《红色娘子军》近期配上了现代的舞台声光科技，正在以更魔幻澎湃的形式洗脑中共国内的普通百姓。
 
+参考链接：[样板戏（维基百科）](https://zh.m.wikipedia.org/wiki/%E6%A0%B7%E6%9D%BF%E6%88%8F)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-[【援引连结】](https://www.epochtimes.com/gb/22/3/24/n13669853.htm)
-
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
+编辑：Jack Li文阳
+总编：Irene木木
+审核：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
