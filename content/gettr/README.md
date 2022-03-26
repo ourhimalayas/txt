@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 2:33 PM (UTC)`
+
+G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图：<br/>中奖者来自联盟，首尔天池农场，波士顿五月花农场，(原)多伦多枫叶农场，东京樱花团和新西兰伊甸农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 2: GFASHION Diamond Whistle - Yellow Gold (Unit Value: $7,499.00)  <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya Korea Seoul Heaven Lake Farm, Himalaya Boston Mayflower Farm, Himalaya Toronto Maple Leaf, Himalaya Tokyo-Ark and Himalaya New Zealand Auckland Eden Domain! <br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group14/getter/2022/03/26/14/be1b035c-a542-cd59-37ff-da9359c35ac9/43906357a5b1afe5c523f60e4dc9b704.jpg)
+
+---
+
 `@miles 3/26/2022 1:44 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1：奔驰AMG GT4 (单价: $92,500.00)<br/>奖品数量：1<br/>获奖者：<br/>LM64133<br/>新西兰奥克兰伊甸农场<br/>discord：梦田#6641<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1: Mercedes AMG GT 4-door Coupe (Unit Value: $92,500.00) <br/>Number of Prizes: 1<br/>The winner is: <br/>LM64133<br/>Himalaya NewZealand Auckland Eden Farm<br/>discord：梦田#6641<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/><br/>
@@ -151,13 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 2022.03.25 晚 《新中国联邦新闻》中共末日与数字货币触发瑞士政府作出改变； 美国能产生无数马斯克 中共独裁体制扼杀文明
 ![img](https://media.gettr.com/group35/origin/2022/03/26/00/c5ced433-b0fc-f58c-b016-1dd3b06a91b5/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/26/2022 12:28 AM (UTC)`
-
-3/25/2022 Miles Guo: Himalaya Coin and Tangping Coin will become the most reliable, secure, convenient, and least-cost digital currency of the world. Both will be the creators of undeprivable personal wealth; Chinese people should have faith that justice will always be served and our strength will speak for itself; Chinese people will be set free only after they have achieved freedom of faith and financial independence.<br/><br/>3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)；一定要坚信正义并靠实力; 中国人在拥有真正的信仰和财务自由时，才能得解放<br/>
-![img](https://media.gettr.com/group5/getter/2022/03/26/00/ea7f4693-91e3-dbae-1298-e067735abd82/out.jpg)
 
 ---
 

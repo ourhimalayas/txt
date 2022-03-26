@@ -2,36 +2,23 @@
 ---
 
 
-## 报告：在战争期间俄罗斯对记者犯下148宗罪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2234675/)
+## 樱花头条┃蔡英文和安倍视讯 日华恳大会通过挺台决议文
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234672/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+蔡英文与安倍视讯，日华恳大会通过挺台决议文。
 
-据News Week 3月26报道，总部位于基辅的大众信息研究所（IMI）周四发布的一份报告指，俄罗斯军方在2月24日至3月23日期间杀害了5名记者，打伤了另外7名记者，并参与了至少136宗针对乌克兰媒体成员的罪行。
+信息来源：[https://gettr.com/post/p11fmtv08fb](https://gettr.com/post/p11fmtv08fb)
 
-报告显示，在3月13日，美国屡获殊荣的《时代》杂志记者布伦特·雷诺（Brent Renaud），在基辅郊区伊尔彭（Irpen）的一个检查站被俄军开枪打死。3月14日，福克斯新闻摄制组的两名成员，爱尔兰摄影师皮埃尔·扎克热夫斯基（Pierre Zakrzewski）和乌克兰制片人奥列克桑德拉·库夫什诺娃Oleksandra Kuvshynova，死于俄军炮击戈连卡（Gorenka）村。另有包括福克斯新闻记者本杰明·霍尔（Benjamin Hall）在内的七名记者被俄军打伤。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3-3.jpeg)总部位于乌克兰的大众信息研究所表示，俄罗斯在入侵乌克兰期间至少应对148起针对记者的犯罪负责。2022年3月23日，基辅市长维塔利·克里琴科（Vitali Klitschko）和他的兄弟弗拉基米尔·克里琴科（Wladimir Klitschko）在乌克兰基辅发表讲话时，媒体成员被拍照。（图片来自News Week）
-
-IMI的报告还指责俄罗斯绑架了至少六名记者，对另外11人发出死亡威胁，并以媒体设施为目标故意向记者开枪。根据国际法，蓄意攻击记者被视为战争罪。
-
-周五，联合国（UN）警告说，记者以及乌克兰当地官员和反对入侵的社会活动家被俄军强迫失踪。联合国记录了15起涉及记者和活动人士的失踪案件，以及22起涉及地方官员的失踪案件。
-
-联合国乌克兰人权监测团团长玛蒂尔达·博格纳（Matilda Bogner）表示，在俄军占领区都会发生强迫失踪事件。
-
-同样在周五，总部位于巴黎的无国界记者组织（RSF）指控，俄军威胁记者和当地媒体，阻止他们报道事实并强迫传播来自克里姆林宫的虚假宣传。
-
-无国界医生组织（MSF）负责人珍妮·卡维利尔（Jeanne Cavelier）在一份声明中指责，俄军轰炸电视塔和向标有“新闻媒体（Press）”的汽车开枪。“我们强烈谴责这些恐吓行为，并呼吁俄罗斯当局停止针对记者，他们将不得不在国际法庭上为自己的行为负责。“卡维利尔补充说
-
-此外，持不同意见的俄罗斯记者在国内也成为攻击目标。俄罗斯一家广播电台的前高级编辑阿列克谢·韦内迪克托夫（Alexei Venediktov）本周表示，他在莫斯科的公寓门口留下了一个被切断的猪头，旁边是一张印有犹太猪字样的乌克兰徽章贴纸。
-
-3月3日，韦内迪克托夫的前广播电台莫斯科“回声（Echo of Moscow）”因敢于批评入侵而被俄罗斯当局停止运营。
-
-参考链接：
-[https://reurl.cc/Go3kNG](https://reurl.cc/Go3kNG)
-
-总编： 老孙
-校对发布：文曦
+*编辑：东京樱花团/asket 、珍珍（素材提供）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

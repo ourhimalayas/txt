@@ -2,12 +2,23 @@
 ---
 
 
-## 【乌克兰救援】03/24/2022 因担心间谍破坏，战友们时刻提高警惕
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234716/)
+## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
 
-【乌克兰救援】03/24/2022 小小酥战友报道：因担心出现俄罗斯间谍那种现象，战友们对出现的陌生华人都会提高警惕。
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
+
+*编辑：东京樱花团/asket、天路天道（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
