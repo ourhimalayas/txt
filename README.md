@@ -15,59 +15,59 @@
 
 ---
 
-### [中国人无常识无真假善恶分辨能力（二）](/content/gnews/1/README.md)
+### [3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [骗子中共不懂现代技术（一）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [中国人无常识无真假善恶分辨能力（一）](/content/gnews/2/README.md)
+### [秘翻在线：俄强化攻占地控制6000乌克兰人被押送俄罗斯](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [现在和未来的战争是不接触的科技战争、经济战争（二）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [俄罗斯人看不起中国人](/content/gnews/3/README.md)
+### [3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [乌克兰女子挡俄坦克！拜登：这就是「天安门广场」](/content/gnews/6/README.md)
+ ` 蓝莲花农场`
+
+### [有声|北约峰会主张加强防御，应对俄乌局势](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [中国人无常识无真假善恶分辨能力（二）](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [中国人到处认共产党这黑爹](/content/gnews/4/README.md)
+### [有声|美国务院正式宣布：俄罗斯在乌克兰犯下战争罪](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [中国人无常识无真假善恶分辨能力（一）](/content/gnews/10/README.md)
  ` 雅典娜GNotes`
 
-### [2022年3月26日《樱花快报》：中共病毒导致去年美国3/4县人口自然减少](/content/gnews/5/README.md)
+### [俄罗斯人看不起中国人](/content/gnews/11/README.md)
+ ` 雅典娜GNotes`
+
+### [北京传染病专家泄医院收治感染者病例数 证官方数字造假](/content/gnews/12/README.md)
+ ` 日本東京方舟農場`
+
+### [中国人到处认共产党这黑爹](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [2022年3月26日《樱花快报》：中共病毒导致去年美国3/4县人口自然减少](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欺民贼伪类假民运不撒谎不犯贱活不了（五）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [有声|世界金融监管机构加强审查加密货币](/content/gnews/7/README.md)
+### [有声|世界金融监管机构加强审查加密货币](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [欺民贼伪类假民运不撒谎不犯贱活不了（六）](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [欺民贼伪类假民运不撒谎不犯贱活不了（四）](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [2022年3月26日《樱花简报》：岸田强烈抗议北朝鲜导弹落入日本专属经济区](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|美国北约警告白俄罗斯可能参战](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [欺民贼伪类假民运不撒谎不犯贱活不了（三）](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [有声|秦刚接受美媒采访做实中共支持俄罗斯立场](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [中共国空调经销商吐槽销量下滑显著](/content/gnews/14/README.md)
+### [中共国空调经销商吐槽销量下滑显著](/content/gnews/16/README.md)
  ` 加拿大温哥华英里农场`
 
-### [北约秘书长延斯-斯托尔滕贝格说，俄罗斯可能正试图为在乌克兰使用化学武器制造借口](/content/gnews/15/README.md)
- ` Tokyo Sakura Video Group`
-
-### [前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局](/content/gnews/16/README.md)
+### [前中央情报局局长大卫·彼得雷乌斯将军：“这是一场消耗战，这是战场上的僵局](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [潘石屹一天连吃15张罚单，被罚1.15亿！](/content/gnews/17/README.md)
+### [潘石屹一天连吃15张罚单，被罚1.15亿！](/content/gnews/18/README.md)
  ` 加拿大温哥华英里农场`
-
-### [七哥对救援前线战友们的嘱咐，染病可能就是疫苗和病毒结合](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
 
 ### [泽伦斯基：俄军阵亡逾1.6万 乌克兰从马立波救出3.7万](/content/gnews/19/README.md)
  ` 蓝莲花农场`
@@ -129,47 +129,47 @@
 ### [美司法部宣布给予认证俄罗斯黑客的人1000万美元奖励](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2022/03/25 英喜时事速递](/content/gnews/39/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [芬兰切断俄国与欧盟最后的运输系统](/content/gnews/40/README.md)
+### [芬兰切断俄国与欧盟最后的运输系统](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯纳税人为普京的行政和生活开支多付了40%](/content/gnews/41/README.md)
+### [俄罗斯纳税人为普京的行政和生活开支多付了40%](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [两名男子就旅行疫苗强制起诉特鲁多政府](/content/gnews/42/README.md)
+### [两名男子就旅行疫苗强制起诉特鲁多政府](/content/gnews/41/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [CDC将COVID-19的死亡人数降低了数万人](/content/gnews/42/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [2022/03/22 墙内世界](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/44/README.md)
+### [【G叻睇真D】粤语新闻电视台-加拿大“新冠病毒”疫苗者免疫系统遭到严重破坏](/content/gnews/44/README.md)
+ ` G-时新闻`
+
+### [财经｜贝莱德CEO：俄乌战争终结全球化 加快数字货币发展](/content/gnews/45/README.md)
  ` 關注組`
 
-### [世界金融监管机构加强审查加密货币](/content/gnews/45/README.md)
+### [世界金融监管机构加强审查加密货币](/content/gnews/46/README.md)
  ` NFSC News`
 
-### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/46/README.md)
+### [台湾｜俄乌战争引爆外资大量出走 创历史新高](/content/gnews/47/README.md)
  ` 關注組`
 
-### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/47/README.md)
+### [疫情｜韩国新冠死亡率逐日攀升 丧葬业全行告急](/content/gnews/48/README.md)
  ` 關注組`
 
-### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/48/README.md)
+### [俄乌战争｜英国进一步制裁俄罗斯 涉及65个实体及个人](/content/gnews/49/README.md)
  ` 關注組`
 
-### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/49/README.md)
+### [拜登总统宣布对400多名俄罗斯精英、立法者和国防公司实施额外制裁](/content/gnews/50/README.md)
  ` 美国政要直译推`
 
-### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/50/README.md)
+### [G7领导人联合声明：全力追究普京等人的战争责任](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生回应拜登政府：中共向俄罗斯提供的不仅仅是武器](/content/gnews/51/README.md)
+### [郭文贵先生回应拜登政府：中共向俄罗斯提供的不仅仅是武器](/content/gnews/52/README.md)
  ` 秘密翻译组-原创组`
-
-### [乌克兰最大钢铁厂遭俄军炸毁](/content/gnews/52/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
 ### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
