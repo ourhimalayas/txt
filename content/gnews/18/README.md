@@ -2,36 +2,28 @@
 ---
 
 
-## 俄罗斯用坦克发动战争，乌克兰启动战争NFT的收集工作，支持该国 “军队和平民”
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2233230/)
+## 拜登走访波乌边境 将乌克兰人抗俄比喻天安门
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2233341/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-26-下午1.59.33.png)  图片来源：dialymail.com
-全球支持：NFT展示鲍里斯-约翰逊的推特和七国集团的旗帜
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-24.jpg)拜登走访波乌边境 将乌克兰人抗俄比喻天安门 网络图片
+据中央社新闻3月26日报道，俄罗斯军事入侵乌克兰满一个月，美国总统拜登造访距离乌克兰边境80公里处的波兰热舒夫市。他赞赏乌克兰人的勇气与韧性，将乌克兰人抵抗侵略的行为描述为天安门广场。
 
-乌克兰正试图通过出售基于俄罗斯战争关键事件的NFT来筹集资金。
+拜登对现场协助人道救援的团队表示，乌克兰已有1000万人流离失所，380万人逃往他国，还有成千上万的人被俄罗斯军队围困。拜登宣布再提供10亿美元对乌克兰的人道援助，并将接收10万名乌克兰难民。
 
-NFT即不可伪造的代币是独特的计算机文件，作为所有权的数字证书，可以是歌曲或艺术作品等创意产品的形式。
+西方国家提到天安门广场，一般是指“六四事件”，也就是1989年6月4日北京天安门广场民主运动遭到中共当局的血腥镇压。中共国有几次改变政权走向民主的机会，不过中共善于钻营，再加上西方世界的贪婪和包庇，让中共逃脱了惩罚。但是西方世界养虎为患，中共壮大之后给整个世界带来了无穷无尽的灾难。现在俄乌战争的背后推手就是中共，病毒和疫苗灾难的背后推手也是中共。中共一日不除，世界灾难一日不止。
 
-乌克兰这次共有54个NFTs将在网上上市，涵盖俄罗斯入侵的前三天，并将在下周初开始销售。
-
-入侵四天后，乌克兰开始发行老式的战争债券以资助军事行动。
-
-现在，它正在尝试一个非常现代的举措–通过出售基于迄今为止与俄罗斯战争的关键事件的NFT来筹集资金。
-
-NFTs或称不可伪造的代币是独特的计算机文件，作为从一首歌到一件艺术品的数字所有权证书。
-
-所有募集的资金将用于支持乌克兰的 “军队和平民”。副总理米哈伊洛-费多罗夫(Mykhailo Fedorov)在推特上发布了这项募集活动，“当俄罗斯使用坦克摧毁乌克兰时，我们依靠的是革命性的区块链技术。”
-
-标题为’元宇宙历史，战争博物馆”，每张都将展示一个 “重大事件”，并配有艺术家的插图。
-
-其中一张涉及到一位母亲在基辅地铁里分娩，而另一张则是鲍里斯-约翰逊在推特上呼吁召开北约峰会。
-
-原文链接：[’While Russia uses tanks to destroy Ukraine, we rely on revolutionary blockchain tech’: Ukraine’s Vice PM launches collection of 54 NFTs to support country’s ‘army and civilians’](https://www.dailymail.co.uk/news/article-10654161/While-Russia-uses-tanks-destroy-Ukraine-rely-revolutionary-blockchain-tech.html)
+新闻参考链接：[https://www.cna.com.tw/news/aopl/202203260005.aspx](https://www.cna.com.tw/news/aopl/202203260005.aspx)
 
 * * *
 
-*编辑&发布：长岛开心*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
