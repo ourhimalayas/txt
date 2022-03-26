@@ -2,25 +2,31 @@
 ---
 
 
-## 视频|宣传前线救援进展（非脱敏）
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2232282/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月25日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2232369/)
 
-制作：大直播短视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-20.png)
 
-文案编辑：爱米粒
 
-视频剪辑：文果
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【文案内容】 英国达人秀评委阿曼达·霍尔顿（Amanda Holden）在波兰梅迪卡新中国联邦救援营地拍摄声援乌克兰的视频
+校对：Stay文苑
 
-审核/编辑/发稿：qiutian（邱甜）
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p11x7bk305a](https://gettr.com/post/p11x7bk305a)
+访谈：[https://gettr.com/post/p11wujoe1f1](https://gettr.com/post/p11wujoe1f1)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

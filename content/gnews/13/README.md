@@ -2,10 +2,10 @@
 ---
 
 
-## 英首相约翰逊：我们将加大对乌克兰的支持，帮助他们自卫
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232374/)
+## 沙特阿美石油公司储油设施被袭
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232504/)
 
-03/24/2022 英首相约翰逊：我们必须收紧对普京的经济钳制，加大对乌克兰的支持，帮助他们自卫。
+03/25/2022 据报道，沙特首都吉达的阿美石油公司的储油设施遭到胡塞武装的袭击，爆炸画面令人震惊。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

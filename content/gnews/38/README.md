@@ -2,49 +2,28 @@
 ---
 
 
-## 拜登：普京使用化学武器将引发北约的反击
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2231247/)
+## 民调显示多数加拿大人支持取消对CBC的资助
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2231274/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-美国总统乔·拜登（Joe Biden）在周四（24日）的新闻发布会上向全世界保证，如果俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在乌克兰使用化学武器，北约将作出反击。
+作者：加拿大温哥华扬帆农场-晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3018-edited.png)breitbart.com
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3017.png)圖片來源：True North
 
-“这将引发一种反击；反击的性质将取决于使用的性质。”拜登在被记者问及普京使用化学武器是否会促使北约采取行动时，回答说。
 
-但总统犹豫了一下，没有说具体的反击是什么。
+据加拿大媒体【真北方】3月23日报道，安格斯·里德研究所上周发布的一项新民调显示，如果保守党承诺取消为国家广播公司提供资金64% 的加拿大人会考虑投票给他们。
 
-“无论你问的是北约是否会越过……我们会在当时做出这个（反击）决定，”他说，在回答时犹豫不决。
+去年CBC从政府获得约14亿加元资金，占其收入70%。特鲁多还承诺在此基础上将再增加 4 亿美元，以减少其广告依赖。
 
-白宫一直拒绝说使用化学武器将是美国的一条“红线”，因为前总统巴拉克·奥巴马（Barack Obama）在叙利亚承诺采取行动后，却并没有。
+上个月的另一项民调显示，加拿大人正失去对传统媒体的信任，支持取消对 CBC 的资助。
 
-拜登在新闻发布会上承认，制裁对普京没有威慑力，但希望在俄罗斯入侵乌克兰事情上，施加尽可能多的经济制裁。
+加拿大纳税人联合会（CTF）2月份发起请愿，呼吁特鲁多结束每年为 CBC 提供的 10 亿加元资金，并取消 6 亿加元的媒体救助计划。请愿书在发起一周后就收到了 52,000 个签名。CTF 联邦主任弗朗格·特拉扎诺表示“这是一个强烈的信号，有许多加拿大纳税人非常关注政府每年向 CBC 提供的金额”。
 
-总统拜登在与欧洲领导人和北约联盟领导人会晤后夸耀了他的外交政策经验。
-
-他说：“我处理外交政策的时间比现在参与这一进程的任何人，都长。”
-
-拜登多次警告说，普京很可能会使用化学武器，但拒绝分享任何情报来证明这种威胁。
-
-“我认为这是一个真正的威胁，”他在离开白宫前往欧洲时说。
-
-（文章仅代表作者观点与GNEWS无关）
-
-新闻来源：[breitbart.com] [Joe Biden: Vladimir Putin Using Chemical Weapons Would ‘Trigger a Response’ from NATO](https://www.breitbart.com/politics/2022/03/24/joe-biden-vladimir-putin-using-chemical-weapons-would-trigger-a-response-from-nato/)
+新闻来源：[https://tnc.news/2022/03/23/majority-of-canadians-support-defunding-the-cbc-poll/](https://tnc.news/2022/03/23/majority-of-canadians-support-defunding-the-cbc-poll/)
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发布：花羽
+编译撰稿：晨熹， 编辑发稿：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-5.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

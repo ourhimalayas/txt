@@ -2,12 +2,19 @@
 ---
 
 
-## 沙特阿美石油公司储油设施被袭
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2232504/)
+## 中共富豪都会死得很惨
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232575/)
 
-03/25/2022 据报道，沙特首都吉达的阿美石油公司的储油设施遭到胡塞武装的袭击，爆炸画面令人震惊。
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 
