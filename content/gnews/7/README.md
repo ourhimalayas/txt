@@ -2,41 +2,32 @@
 ---
 
 
-## 中国政府两年来抗疫失败令民众厌倦和愤怒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2234199/)
+## 中日财经爆┃FCC将中国电信和中国移动美国分公司列入国家安全威胁名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234537/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理编辑：东京樱花团丨peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FCC将中国电信和中国移动美国分公司列入国家安全威胁名单.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2022/0326/20220326060559980.jpg)
 
-翻译/编辑：小红帽
+美国联邦通信委员会（FCC）3月25日宣布，将中国电信美洲公司、中国移动美国子公司、俄罗斯卡巴斯基（Kaspersky）列入对美国国家安全构成威胁的通讯设备和服务商名单。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/china.jpeg)图片来源：www.usnews.com
+2019年的一项法律要求FCC公布和更新一份对国家安全或美国人民的安全构成不可接受的风险的通信设备和服务商清单。去年，FCC指定了五家中共国公司，这是第一批被列入美国电信监管机构“涵盖名单”的公司。
 
+这意味着FCC每年83亿美元的万能服务基金（Universal Service Fund）的资金将不再被用于购买或维护这些公司的产品。
 
-根据CCN3月26日报道，两年来，中国人在很大程度上容忍生活在世界上最严格的新冠病毒控制措施之下。
+FCC于2021年3月指定华为技术有限公司、中兴通讯、深圳海能达、杭州海康威视数码科技有限公司和浙江大华科技股份有限公司对美国国家安全构成威胁。
 
-受限制的边界、持续的数字跟踪以及在出现少数病例时进行大规模检测和快速封锁，这些都是在海外大流行病肆虐之际，为了相对没有新冠病毒的生活而做出的交换。
+消息来源：
+[**美国FCC将中国电信和中国移动的美国分支列入国家安全威胁名单**](https://cn.reuters.com/article/us-fcc-list-china-mobile-0326-idCNKCS2LN039?il=0)
 
-但中国迄今未能控制其最新的疫情，这引发了沮丧的民众在网上的抱怨，有关北京当局的零新冠病毒战略的质疑首次成为主流。
-
-据社交媒体帖子称，网上分享的视频显示，周日在深圳科技中心，在限制措施比预定时间长了几天后，居民在一个封锁区进行抗议。
-
-“你们不能这样做——我们需要吃饭和付房租，”根据网上分享的一段视频，可以听到一群抗议者中的一名男子痛苦地对站在高高的塑料屏障后面的医护人员痛苦地大叫。
-
-“解封！我们要求解封！”其他人在第二个视频中大喊。
-
-本月初，在另一个例子中，在视频片段中可以看到，在广州市，成千上万的人试图逃离在一个贸易展览会上被突然封锁的局面。在发现一个阳性病例后，一些人跳过栅栏，以避免被封锁在会场内。
-
-在中国两年多的抗疫斗争中，这样的场面在很大程度上是前所未有的。自2020年初以来，在中国最严重的疫情中，数百万人仍然被封锁，病例继续攀升。
-
-新闻来源：[China doesn’t have a Covid exit plan. Two years in, people are fed up and angry](https://www.cnnphilippines.com/world/2022/3/26/china-covid-frustration-exit-plan.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 9:34 AM (UTC)`
+
+<br/>3月26日：尊敬的战友们好！看了这个视频一直想吐，却吐不出来．咋办呢？
+![img](https://media.gettr.com/group43/getter/2022/03/26/09/beeb681b-cb64-a8a0-aa61-1366ea00d9c9/out.jpg)
+
+---
+
 `@miles 3/26/2022 8:42 AM (UTC)`
 
  3月26号：尊敬的战友们好！一年一次的G 俱乐部年会将在三个小时左右隆重开幕……你们准备好了吗？💪💪💪💪❤️❤️❤️❤️❤️✡️✡️✡️✡️✡️✡️㊗️㊗️㊗️㊗️㊗️
@@ -151,13 +158,6 @@ Frontline Rescue Operations in Ukraine.<br/>British Freelance Writer in Medyka P
 
 How to buy items on GFashion.com via HPay?<br/>Step 1: Log in to GFashion.com<br/>Step 2: Choose items that you like<br/>Step 3: Confirm your payment method, and choose HPay<br/>Step 4: Scan the QR code from your HPay app on your phone<br/>Step 5: confirm your payment. Done!<br/><br/>如何使用HPay在GFashion网站上买商品？<br/>第一步：登陆GFashion网站<br/>第二步：选择您喜欢的产品<br/>第三步：确认付款，然后选择HPay<br/>第四步：自动生成二维码，用手机HPay app扫码付款<br/>支付成功！<br/>#hpay #gfashion #buygfashionviahpay #hcointothemoon #hcoin #hdollar
 ![img](https://media.gettr.com/group44/origin/2022/03/25/23/a811612b-8764-34c1-5557-8a7e0b5067db/bab5af3eb82ab124e3f6330b829661a1.jpg)
-
----
-
-`@miles 3/25/2022 11:15 PM (UTC)`
-
-Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working with a Christian organization. Since the wife is a Ukrainian and being able to translate, they came to the refugee camp as volunteers.<br/>新中国联邦法制基金自愿者精糧，采访了一对法国夫妇。他们在一个基督教组织工作。由于妻子是乌克兰人，能够做翻译，他们作为志愿者来到了难民营。
-![img](https://media.gettr.com/group8/origin/2022/03/25/23/df90b66e-db6f-9b62-566f-cc3c8e524664/out.jpg)
 
 ---
 
