@@ -2,24 +2,28 @@
 ---
 
 
-## 流媒体音乐巨头Spotify退出俄罗斯市场
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2231628/)
+## 国际｜拜登吁将俄逐出G20 并收紧对中共商品的关税豁免
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2231805/)
 
-编译：文宝
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-99.png)
-Spotify周五（3月25日）表示，它将完全退出俄罗斯，因为最近限制新闻运营的法律可能会使流媒体的员工和听众面临风险。 它预计到 4 月底将完全暂停运营。
+圖/文 zhong｜26/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-26.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+美国川普政府任内对中（共）国的2200多项产品提供关税豁免，以减轻某些行业和零售商的压力。大多数豁免许可在到期后就结束了，其中549项商品的豁免许可被延长一年，并于2020年底到期。
 
-Spotify 退出俄罗斯的决定突显了西方媒体公司需要取得平衡，因为他们希望向俄罗斯公民提供新闻，同时面临与该国入侵乌克兰和该国商业环境相关的重大挑战。
+经延长后于2020年底到期的549项商品，23日由美国贸易代表办公室（USTR）声明称，将对352项从中（共）国进口商品关税重新豁免，适用于在2021年10月12日至2022年12月31日之间进口自中（共）国的商品，包括泵和电动机等工业部件、某些汽车零部件和化学品、背包、自行车、吸尘器等消费品。
 
-Spotify 以音乐流媒体而闻名，但它也托管和分发一系列包含政治内容的播客。
+这意味着，拜登政府收紧了原先川普政府的关税豁免政策，549项中只有352项重新豁免。
 
+## 拜登吁将俄逐出G20
 
+美国总统拜登24日在布鲁塞尔表示，他支持将俄罗斯逐出20国集团（G20），如若不然，应让乌克兰加入，至少是G20大会观察员。此外，拜登总统称情俄罗斯可能动用生化武器侵略乌克兰，届时北约将根据实际情况决定是否军事回应。
 
-原文链接： [https://www.cnbc.com/2022/03/25/spotify-pulls-out-of-russia-citing-new-laws-restricting-free-expression.html](https://www.cnbc.com/2022/03/25/spotify-pulls-out-of-russia-citing-new-laws-restricting-free-expression.html)
+拜登总统在布鲁塞尔会晤北约和G7领导人会后，宣布相关制裁与欧洲盟友一致，并呼吁欧盟和先进民主国家G7都团结起来应对极权侵略；北约宣布强化东翼，在罗马尼亚、匈牙利、保加利亚和斯洛伐克部署4支战斗部队。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-19.png)DISCORD
+来源｜[REUTERS](https://www.reuters.com/world/biden-says-he-thinks-russia-should-be-removed-g20-2022-03-24/)、[NYT](https://www.nytimes.com/2022/03/23/business/chinese-imports-tariffs.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-18.png)GETTR
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

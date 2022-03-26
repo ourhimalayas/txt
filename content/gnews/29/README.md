@@ -2,42 +2,37 @@
 ---
 
 
-## 澳大利亚放宽更多旅行限制以吸引游客
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2232921/)
+## 美国将对俄罗斯实施新一轮制裁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2233801/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：澳喜 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒3月24的消息，俄罗斯入侵乌克兰战争，已经持续一个月，为加大对俄罗斯的压力，美国宣布对俄罗斯的精英、立法者和国防公司实施新的一系列制裁。
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-324.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/shutterstock_32168770-scaled-1.jpg)图片来源：www.australianchamber.com.au
+将对俄罗斯的400多名个人和实体实施全面制裁，包括俄罗斯杜马下议院的328名议员、十几名俄罗斯精英和48家俄罗斯国防公司。
+
+本次制裁将打击俄罗斯联邦储蓄银行负责人兼普京的顾问格雷夫、俄罗斯亿万富翁季姆琴科、他的公司和家庭成员，以及俄罗斯金融机构Sovcombank的17名董事会成员。
+
+据白宫称，被制裁的国防公司包括俄罗斯直升机公司、战术导弹公司、高精密系统公司、材料制造公司NPK Tekhmash等。
+
+参考链接：
+
+- [Russia Says Donbas Is Ukraine Focus in Possible Shift in Aim](https://www.bloomberg.com/news/articles/2022-03-25/russia-says-ukraine-operation-focused-on-donbas-interfax?srnd=premium-europe)
 
 
-根据APP3月26日报道，随着澳大利亚联邦政府放宽限制，以使旅行恢复到大流行前的水平，国际游客被敦促预订飞往澳大利亚的航班。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-近两年的边境限制已经削弱了澳大利亚一度繁荣的旅游业。
+编辑/校正/发稿：海阔天空1
 
-但澳大利亚政府希望放宽旅行规则以吸引更多游客前往。
-
-虽然国际旅客仍需要完全接种新冠疫苗，但从4月17日起，他们将不再需要新冠病毒检测结果呈阴性才能登上飞往澳大利亚的航班。
-
-卫生部长格雷格·亨特（Greg Hunt）宣布，该规定将与游轮禁令一起终止。
-
-贸易部长丹·特汉（Dan Tehan）周五宣布对旅游业提供新的支持。
-
-澳大利亚政府将为旅行社和旅游安排服务提供商提供7550万美元，以继续运营和重新预订旅行积分。
-
-三年内再追加6,000万澳元将吸引更多来自新国际市场的游客，包括对商业活动竞标基金的额外支持，吸引大型活动到澳大利亚。
-
-新闻来源：[Australia to ease more travel restrictions](https://www.aap.com.au/news/australia-to-ease-more-travel-restrictions/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

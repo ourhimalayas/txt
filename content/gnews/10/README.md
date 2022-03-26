@@ -2,35 +2,22 @@
 ---
 
 
-## 樱花FM|七哥谈灭共的芯片——格芯（1）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2234004/)
+## 樱花时政┃胡塞武装攻击沙特石油设施
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234093/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥谈灭共的芯片——格芯（1）-1.png)
-格芯的上市，这是个世界的大事，不是一个什么新中国联邦的大事，它是世界的大事。
+撰稿：东京樱花团/
 
-因为未来和我们爆料革命的整个金融系统、数字区块链的所有技术有关系。我们未来的芯片当我们有主导权的时候，我们就主导了更多的技术，我们有更多的话语权，它属于新中国联邦的。
+沙特阿拉伯的石油设施遭到也门反政府势力胡塞武装的袭击，导致2个石油桶发生火灾。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-24.jpg)
+沙特阿拉伯官方通讯社25日报道说，位于西吉达的国营石油公司沙特拉美石油公司的设施遭到邻国也门反政府势力胡什派的攻击，从2个油罐中起火。没有人员伤亡，火灾被扑灭了。
 
-从芯片的生产，到芯片的合成，到芯片的保密，到外太空的交易系统。数字货币关键的问题：支付、兑现、安全、保密。我们这叫中心化的币，和去中心化的交易系统，和去中心化的技术，天下无敌，这些技术的核心的核心就是芯片。
+沙特阿拉伯能源部长谴责攻击说:”这将对世界能源市场产生影响。”胡塞派25日发表声明称，用弹道导弹和无人机攻击了沙特各地。
 
-我们未来有自己的通信系统，我们在太空一定会发射我们自己的卫星，我们新中国联邦一定会发射自己卫星的。自己的卫星我们用的芯片一定不会来自别人的，我们必须百分之百保证安全。
+信息来源：[サウジ石油施設をフーシ派が攻撃「市場に影響必至」](https://news.yahoo.co.jp/articles/a45afb1543775a22bc7b512f6ca3591b530c9ce2)
 
-文字版原文：
-
-
-| [七哥谈灭共的芯片——格芯（1）](https://gnews.org/zh-hans/2209198/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
