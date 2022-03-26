@@ -15,58 +15,58 @@
 
 ---
 
-### [伪类及路大脑袋之流，犯贱都已经习惯了（二）](/content/gnews/1/README.md)
+### [七哥介绍G-Fashion新衣服和喜币在实体店支付的意义（四）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [海外欺民贼不犯贱他难受（一）](/content/gnews/2/README.md)
+### [七哥介绍G-Fashion新衣服和喜币在实体店支付的意义（三）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [海外欺民贼不犯贱他难受（二）](/content/gnews/3/README.md)
+### [七哥介绍G-Fashion新衣服和喜币在实体店支付的意义（二）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [七哥谈以前在美国被欺民贼和共产党派人威胁的经历（一）](/content/gnews/4/README.md)
+### [中国人对世界、真相的认知（情愿崇拜邪恶和权势，缺乏正义和良知）（一）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [英首相约翰逊：我们将加大对乌克兰的支持，帮助他们自卫](/content/gnews/5/README.md)
+### [乌克兰官方表示，俄罗斯军舰在被占领的别尔江斯克港被摧毁](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [七哥谈以前在美国被欺民贼和共产党派人威胁的经历（四）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
+### [无人机活靶！ 俄军战车躲树林无所遁形 遭乌国精准火炮摧毁](/content/gnews/6/README.md)
+ ` 蓝莲花农场`
 
-### [莫德纳表示，其低剂量 COVID 疫苗适用于6岁以下的儿童](/content/gnews/7/README.md)
+### [英首相约翰逊：我们将加大对乌克兰的支持，帮助他们自卫](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [莫德纳表示，其低剂量 COVID 疫苗适用于6岁以下的儿童](/content/gnews/8/README.md)
  ` 日本東京方舟農場`
 
-### [独家报道：中国监管机构要求一些在美国上市的公司做好披露审计信息的准备](/content/gnews/8/README.md)
+### [独家报道：中国监管机构要求一些在美国上市的公司做好披露审计信息的准备](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [昆州2%学生感染新冠，政府因通风审计而受到抨击](/content/gnews/9/README.md)
+### [昆州2%学生感染新冠，政府因通风审计而受到抨击](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [视频|宣传前线救援进展（非脱敏）](/content/gnews/10/README.md)
+### [视频|宣传前线救援进展（非脱敏）](/content/gnews/11/README.md)
  ` 爆料视频`
 
-### [3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷](/content/gnews/11/README.md)
+### [3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [大直播后记：未来世界上最贵的是水](/content/gnews/12/README.md)
+### [大直播后记：未来世界上最贵的是水](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [20220323文贵大直播：第三次世界大战的起因及其演绎，新中国联邦将用喜金融收拾战场](/content/gnews/13/README.md)
+### [20220323文贵大直播：第三次世界大战的起因及其演绎，新中国联邦将用喜金融收拾战场](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)](/content/gnews/14/README.md)
+### [3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|美警告中共国，严禁向俄出口芯片](/content/gnews/15/README.md)
+### [有声|美警告中共国，严禁向俄出口芯片](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|北约峰会主张加强防御，应对俄乌局势](/content/gnews/16/README.md)
+### [有声|北约峰会主张加强防御，应对俄乌局势](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [中国人无常识无真假善恶分辨能力（二）](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
-
-### [中国人无常识无真假善恶分辨能力（一）](/content/gnews/18/README.md)
+### [中国人无常识无真假善恶分辨能力（二）](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
 ### [国际｜拜登吁将俄逐出G20 并收紧对中共商品的关税豁免](/content/gnews/19/README.md)

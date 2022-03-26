@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈以前在美国被欺民贼和共产党派人威胁的经历（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232377/)
+## 中国人对世界、真相的认知（情愿崇拜邪恶和权势，缺乏正义和良知）（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232465/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-40-9-50-一-scaled.jpg)
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-11-10-16-一-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：

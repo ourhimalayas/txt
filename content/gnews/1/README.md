@@ -2,11 +2,11 @@
 ---
 
 
-## 伪类及路大脑袋之流，犯贱都已经习惯了（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232399/)
+## 七哥介绍G-Fashion新衣服和喜币在实体店支付的意义（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232482/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-50-10-00-二-1-scaled.jpg)
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-20-10-30-四-scaled.jpg)
 发布：tianzhihuan
 
 **更多资讯，请关注：
