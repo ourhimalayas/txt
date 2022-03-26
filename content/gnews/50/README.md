@@ -2,30 +2,30 @@
 ---
 
 
-## 郭文贵先生回应拜登政府：中共向俄罗斯提供的不仅仅是武器
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2224017/)
+## 台湾｜俄乌战争引爆外资大量出走 创历史新高
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2226501/)
 
-撰稿：Skagen
+圖/文 zhong｜25/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-25.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+23日报导，俄乌战争爆发加剧外资对中共侵略台湾的担忧，导致外资抛售价值约4800亿台币的股票。外媒引述分析人士称为“外资史上空前出走潮”。
 
-美国国家安全顾问杰克.沙利文周二表示，美国拜登政府在与中国国家主席习近平会谈后表示，没有看到中国向俄罗斯提供军事装备。
+兆丰国际投顾协理黄国伟于报导中表示，外资抛售了价值约4800亿台币的股票，期外资抛售台股刷新纪录，比2008年全球金融海啸时金额更大。2021年，外资抛售价值近4462亿台币的股票，2022年俄乌战争爆发导致外资抛售台湾股票已超过去年总和。
 
-在3月23日星期三的直播中 ，郭文贵先生对这一表述作出回应。他以讽刺的方式说：就这一个词啊！“中国没有向俄罗斯提供武器”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/捕获-8.jpg)
-虽然中共声称没有向俄罗斯提供武器，“但它是不是提供了资金、食品供应、情报和通信系统？”，郭先生连续提出了质问。
+根据彭博社的相关数据，本周海外投资者在短短两天内净卖出约 46 亿美元的台湾股票，周一是有记录以来的第二高单日撤资。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1190x-1.jpg)图：彭博社
+黄进一步表示，近期外资大量出走并未使台湾股市受到灾难性损失，原因在于台湾部分银行大量收购吸收了外资出走的冲击。此外，台湾的投资者认为俄乌战争与中共对台侵略是不同的情形，因此大部分人对台股的信心并未受到影响。
 
-郭先生解释说，中国之所以不会向俄罗斯提供武器，是因为本身中共国的武器技术大多就来自于俄罗斯。此外，在黑龙江、牡丹江和鸭绿江有70多家俄罗斯拥有的武器制造商，例如，代码3011的军工厂就是100%由俄罗斯拥有的。
+台积电占据晶片代工产业领导地位，占台股权值比28.8761%(2022/2/25数据)，被视为是台股的指标。外媒报导称，自 2 月底以来，其股价在台北和纽约均下跌了 3% 以上。Refinitiv 的数据显示，台湾的科技股也落后于大盘，同期台湾科技股指数下跌 2%。
 
-郭先生说：”为什么俄罗斯还需要中共国提供武器？俄罗斯可以自己把中共国把武器拉回去。这是个玩的很深的游戏，普通人看不透。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.45.26.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-25-下午12.46.34.png)
 
-但是，郭文贵确信，美国人最终会弄清楚谁在幕后操纵，全世界都会同意中共国是元凶，而不是帮凶。中国人民将被认为是元凶和头号罪犯，俄罗斯只是一个被操纵的替罪羊。
 
-令郭先生深感忧虑的是，世界领导人和有影响力的人不断告诉郭先生，中国人是元凶，他们是战争的创始人、创造者和操纵者。
+来源｜[bloomberg](https://www.bloomberg.com/news/articles/2022-03-08/foreign-exodus-from-taiwan-s-stocks-is-rapidly-gaining-pace)、[CNN](https://edition.cnn.com/2022/03/23/investing/taiwan-investment-jitters-russia-ukraine-intl-hnk/index.html)
 
-然而，郭先生继续向台湾朋友发出警告信息，鉴于习近平的个性，习近平一定会攻打台湾。
+* * *
 
-新闻来源：
-
-[Miles Guo broadcast March 23 Wednesday](https://gettr.com/post/p11h7xt9462)
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

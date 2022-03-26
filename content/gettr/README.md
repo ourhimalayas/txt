@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 8:42 AM (UTC)`
+
+ 3月26号：尊敬的战友们好！一年一次的G 俱乐部年会将在三个小时左右隆重开幕……你们准备好了吗？💪💪💪💪❤️❤️❤️❤️❤️✡️✡️✡️✡️✡️✡️㊗️㊗️㊗️㊗️㊗️
+![img](https://media.gettr.com/group38/getter/2022/03/26/08/aeb9b3e0-b7dd-b194-2a11-20236ae1fc5f/83d7704037129b46c1d2f0399b7aa6c6.jpg)
+
+---
+
 `@miles 3/26/2022 6:23 AM (UTC)`
 
 3/25/2022 Miles Guo: Why did even the world-class politicians and the Swamp misjudge the Russia-Ukraine war in the first place? The New Federal State of China hopes its fellow fighters to have the ability to distinguish between true and false, and good and evil. If Communist China and Russia went to war, the CCP would be defeated for sure. Those in the CCP’s military believe that within the next few decades, the CCP will have no military to confront the West whatsoever!<br/><br/>3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？新中国联邦希望战友们都具备辨别真假善恶的能力；若中俄开战，中共必败；中共军方人士认未来几十年之内，中共和西方进行军事抗衡的能力为零！<br/>
@@ -151,13 +158,6 @@ How to buy items on GFashion.com via HPay?<br/>Step 1: Log in to GFashion.com<br
 
 Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working with a Christian organization. Since the wife is a Ukrainian and being able to translate, they came to the refugee camp as volunteers.<br/>新中国联邦法制基金自愿者精糧，采访了一对法国夫妇。他们在一个基督教组织工作。由于妻子是乌克兰人，能够做翻译，他们作为志愿者来到了难民营。
 ![img](https://media.gettr.com/group8/origin/2022/03/25/23/df90b66e-db6f-9b62-566f-cc3c8e524664/out.jpg)
-
----
-
-`@miles 3/25/2022 11:11 PM (UTC)`
-
-03/25/2022  Ukraine Frontline Updates <br/>乌克兰前线 战时战报 2022年3月25日更新【NFSC news】<br/>#ukrainerescue #ukrainerussiawar #nfscnews
-![img](https://media.gettr.com/group33/origin/2022/03/25/23/0ebfb07c-523f-9c30-e0bb-f8cf749a6b46/a45353efc4558b3538950b20b9db06c1.jpg)
 
 ---
 

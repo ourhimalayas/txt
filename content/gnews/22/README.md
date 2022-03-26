@@ -2,10 +2,10 @@
 ---
 
 
-## 中共利用抖音帮助俄罗斯在国际传播虚假新闻
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234018/)
+## 疫情恶化，上海封城抢菜荒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234090/)
 
-03/24/2022 章家敦在电视连线中表明字节跳动通过抖音帮助俄罗斯在国际传播虚假新闻，新用户注册后45分钟内会被推送相关虚假信息。
+03/24/2022 疫情恶化，上海封城抢菜荒
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

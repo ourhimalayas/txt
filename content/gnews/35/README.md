@@ -2,42 +2,34 @@
 ---
 
 
-## 澳大利亚放宽更多旅行限制以吸引游客
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2232921/)
+## GFASHION开始接受使用HPAY支付
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2233168/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2020-12-15-at-1.27.35-PM-1020x641-1.png)
+3月25日大直播中，后台导播战友演示如何使用HPAY购买GASHION。我们看到操作很快就完成了，从选好一件单品，到支付订单，HPAY如此顺滑衔接。郭先生表示我们的操作系统可以更加便捷，比如可以使用Gfashion和HPAY账号关联，一步登录，一步支付，给客户带来更加完美的购物体验。
 
-翻译/编辑：小红帽
+HPAY自推出到现在，是数字货币支付和转账无缝丝滑体验的标杆。郭先生此前无数次提到过很多用户使用HPAY互相转账，来回转着玩。因为这种体验是传统银行和支付从未给予的，安全隐私且秒到。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/shutterstock_32168770-scaled-1.jpg)图片来源：www.australianchamber.com.au
+目前市场上的数字货币包括比特币等，不仅没有支付系统，更加不存在流通，电子支付系统如wise、Paypal、支付宝、微信支付等，背后都是银行和金融，他们使用各种方式来控制和奴役人类的财富。数字货币时代的支付系统HPAY打破了这些奴役，而GASHION目前是是衣食住行中的衣，未来人类的方方面面都会接入数字货币。货币的本质就是人类生产力的交换，从喜币系统上线不过数月，就已经与GASHION实现了生产力交换。而那些打着所谓货币性质的各种币，多数已经沦为洗钱币。
+
+从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到解放。
 
 
-根据APP3月26日报道，随着澳大利亚联邦政府放宽限制，以使旅行恢复到大流行前的水平，国际游客被敦促预订飞往澳大利亚的航班。
 
-近两年的边境限制已经削弱了澳大利亚一度繁荣的旅游业。
+撰稿、发布：骄子
 
-但澳大利亚政府希望放宽旅行规则以吸引更多游客前往。
+* * *
 
-虽然国际旅客仍需要完全接种新冠疫苗，但从4月17日起，他们将不再需要新冠病毒检测结果呈阴性才能登上飞往澳大利亚的航班。
+欢迎订阅我们的GNews账号：
 
-卫生部长格雷格·亨特（Greg Hunt）宣布，该规定将与游轮禁令一起终止。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-贸易部长丹·特汉（Dan Tehan）周五宣布对旅游业提供新的支持。
-
-澳大利亚政府将为旅行社和旅游安排服务提供商提供7550万美元，以继续运营和重新预订旅行积分。
-
-三年内再追加6,000万澳元将吸引更多来自新国际市场的游客，包括对商业活动竞标基金的额外支持，吸引大型活动到澳大利亚。
-
-新闻来源：[Australia to ease more travel restrictions](https://www.aap.com.au/news/australia-to-ease-more-travel-restrictions/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMB_dfGrfR.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

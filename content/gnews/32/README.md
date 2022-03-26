@@ -2,42 +2,37 @@
 ---
 
 
-## 法治基金志愿者向西班牙媒体介绍新中国联邦的灭共愿景
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2233169/)
+## 美国将对俄罗斯实施新一轮制裁
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2233801/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：澳喜 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒3月24的消息，俄罗斯入侵乌克兰战争，已经持续一个月，为加大对俄罗斯的压力，美国宣布对俄罗斯的精英、立法者和国防公司实施新的一系列制裁。
 
-整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-324.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot_from_2022-03-26_13-39-33.png)图片来源：郭文贵先生盖特视频截图
+将对俄罗斯的400多名个人和实体实施全面制裁，包括俄罗斯杜马下议院的328名议员、十几名俄罗斯精英和48家俄罗斯国防公司。
+
+本次制裁将打击俄罗斯联邦储蓄银行负责人兼普京的顾问格雷夫、俄罗斯亿万富翁季姆琴科、他的公司和家庭成员，以及俄罗斯金融机构Sovcombank的17名董事会成员。
+
+据白宫称，被制裁的国防公司包括俄罗斯直升机公司、战术导弹公司、高精密系统公司、材料制造公司NPK Tekhmash等。
+
+参考链接：
+
+- [Russia Says Donbas Is Ukraine Focus in Possible Shift in Aim](https://www.bloomberg.com/news/articles/2022-03-25/russia-says-ukraine-operation-focused-on-donbas-interfax?srnd=premium-europe)
 
 
-3月19日，在波兰梅迪卡救援中心，新中国联邦和法治基金志愿者妮可接受西班牙数字媒体La Reublica采访时说，中共是纸老虎，只要全世界同仇敌忾，一定能够铲除制造所有战争和麻烦的中共。最终让13亿中国同胞与全世界人们一样，享有民主、自由、法治。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-以下是采访的部分对话内容。
+编辑/校正/发稿：海阔天空1
 
-La Reublica记者：“你们到底是不是中国来的呢？”
-
-妮可：“这个是个很好的问题。我们来自新中国联邦。你听说过新中国联邦吗？我们新中国联邦是一群致力于推翻中共政权的中国人。我们要打倒中共，帮助13亿中国人民获得自由。你可以看一下我的马甲。”
-
-La Reublica记者：“这是一个问题，你能在中共国穿这个马甲吗？”
-
-妮可：“不能，因为如果人们在中国大陆穿这件马甲，他们会立即被灭口或被谋杀，而且你永远不会知道他们的下落。这就是为什么，我们在中共眼里中被视为头号敌人的原因。但我们之所以还在做这些，是因为中共是所有全球危机和人道主义危机的根源。你看看，发生在香港人身上的事情和台湾的事件。中共威胁台湾并准备发起战争。在每一个独裁政权的背后，你总能找到中共在其中的作用。因此，这就是为什么热爱自由的新中国联邦人要打倒中共的原因。因为我们要恢复人性。我们想让这个世界变得更美好。这个世界不需要共产主义。共产主义已经夺走了数亿人的生命。不仅是在中国，而且在前苏联，东欧也是如此。因此，我认为这就是新中国联邦人打倒中共的原因。因为我们想拯救人类，而且我们想给所有的人带来更多和平，爱和自由。”
-
-La Reublica记者：“但你认为你们能实现目标吗？因为中共政府是如此地庞大和强大。”
-
-妮可：“他们就像一只纸老虎。你听说过这个说法吗？他们没有牙齿，看起来很强大，但他们没有信仰，上帝也不会帮助它们。然而，那些相信自由和正义的人，会得到全世界所有人民的支持。而新中国联邦有很多很多来自世界各地的支持者。最重要的是，我们得到了上帝的祝福。我相信，这是一项正义的事业，这就是为什么正义会胜利，所以我们不惧怕中共。因为中共正在崩溃。早在20多年前，你有没有想到，前苏联和东欧阵营的共产主义会在一夜之间崩溃。没人能想到吧？所以这随时都可能发生。不要害怕中国共产党，他们非常软弱，而且正在失去民心民愿。他们不仅对中国人，还对香港人和台湾人做了很多反人类的暴行，而且在世界各地制造了很多的问题，所以中共是人类的敌人。”
-
-资料来源：[郭文贵先生2022年3月23日盖特视频](https://www.gettr.com/post/p11frqh0133)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

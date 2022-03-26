@@ -2,10 +2,10 @@
 ---
 
 
-## 疫情恶化，上海封城抢菜荒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234090/)
+## 章家敦：拜登政府向中共发送了太多的空头警告
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234147/)
 
-03/24/2022 疫情恶化，上海封城抢菜荒
+03/24/2022 章家敦：拜登政府向中共发送了太多的空头警告，除非我们真正地对他们实施制裁，否则中共国不会朝正确的方向发展。华尔街在主导拜登政府决策
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

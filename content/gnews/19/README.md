@@ -2,24 +2,28 @@
 ---
 
 
-## 梅迪卡前线染疫战友绝大多数已复阴
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234052/)
+## 奢侈品行业的新生代传奇——Gfashion
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2234109/)
 
-撰稿：澳喜农场-Leo M
+撰稿：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-7.png)
-3月24日郭文贵先生的一则盖特显示，波乌边境梅迪卡救援站的前线战友传来消息，自3月初新中国联邦和法治基金人道救援开始以来，累计约有30名战友感染中共病毒，目前绝大多数已转阴。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3072.png)
-自3月20日从利沃夫到克拉科夫的大巴救援行动暂时告一段落以来，战友们都陆续集结至波兰前线梅迪卡救援站，累计已超过70人。基于对中共病毒的了解，前线战友都有服用药物进行预防。但仍有一些战友防范意识不足，因没有严格执行正确佩戴口罩等措施而感染。目前，在随队医生及联盟医疗团队的通力合作下，战友们已陆续战胜病毒归队。
+3月22日，据国外某时尚杂志报道，Gfashion创造了线上时尚品牌的传奇。现在的时尚消费者比任何时候都要精明，不断提升的品位和追求个性化是这个时代消费者的特点。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3074.png)
+Gfashion 的服装与配饰正在引导个性化的前瞻力量。属于Gfashion的每一个设计师都极具天赋，新鲜、高标准的设计风格无处不在。这些来自世界各地的不同设计作品彰显了设计师的个性以及变革中的时代呼声。Gfashion通过仿真数字平台为客户提供一对一的互动服务，每个作品都是一个故事，从概念、采购、设计到成品。无论什么人，在Gfashion都可以找到适合你的东西，它总是在筹谋未来，思考创新，以求客户可以以最低廉的价格得到最最尖端的产品。
 
-郭先生在最近两期大直播中反复寄语战友们，无论每日到达救援站的难民数量多少，前线战友都要保持良好的战斗力，以便随时准备实施救援。
+尽管目前Gfashion面临激烈的竞争，但它不会选择牺牲一贯的价值原则，自始至终力求以高质量的精工设计和对品质的严谨承诺，并且越来越成为那些喜欢独特风格客户的首选品牌。
 
-新闻来源: [2022年3月24号郭文贵先生盖特](https://gettr.com/post/p11mkh81816)
+参考链接：
+
+[GFASHION is creating a name in the online luxury fashion business](https://www.gq.co.za/style/gfashion-is-creating-a-name-in-the-online-luxury-fashion-business-0a738559-ffca-4407-a323-4dfbd9370cb0)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-128-524x720.jpg)
 
-编辑：小鹿妞妞
+编辑：百香果
 
-总编/审核: 飞虹
+总编：飞虹
+
+审核: Ivy001
 
 校对/发稿: 浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-7.png)

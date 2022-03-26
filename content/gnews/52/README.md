@@ -2,12 +2,30 @@
 ---
 
 
-## 美国疾控中心删除了数万例与中共病毒相关的死亡案例
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2201662/)
+## 乌克兰最大钢铁厂遭俄军炸毁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2223903/)
 
-03/19/2022 班农战斗室：美国疾控中心删除了数万例与中共病毒相关的死亡案例，其中包含了将近四分之一18周岁以下死亡案例，他们将其归咎于编码错误。这就是一条欺诈利益链，辉瑞在欺诈，食品药品管理局在欺诈，现在是疾控中心在欺诈。
+作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+据《雅虎财经》3月21日报道，位于乌克兰马里乌波尔地区的[亚速钢铁厂]当天被俄军定点炸毁。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2819.png)图片来源：雅虎财经
+
+
+报道称，乌克兰是世界上第12大钢铁生产国，而拥有4万多名员工的[亚速钢铁厂]则是该国最大的钢铁产品生产企业，它的被摧毁将严重影响乌克兰乃至整个欧洲今后的基础建设经济。
+
+据悉，尽管[亚速钢铁厂]在俄军入侵之后暂时关闭，但仍有该企业的4000多名员工和家属被困于当地的防空洞内，并需要获得紧急救助和及时撤离。而该厂最后一次停产发生在纳粹德国入侵乌克兰的1941年。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html](https://finance.yahoo.com/news/one-europe-biggest-iron-steel-151125530.html)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-1-e1648141621189.jpg)
+
 
  
 
