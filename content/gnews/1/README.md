@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登总统用天安门坦克人比喻勇敢的乌克兰人民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235046/)
+## 金正恩出现在朝鲜发射导弹的影片之中
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2235181/)
 
-03/25/2022 拜登总统用天安门（坦克人）比喻勇敢的乌克兰人民
+03/25/2022 朝鲜国家电视台播放了一部好莱坞风格的影片，据称显示金正恩和军方官员正在监督华星-17洲际弹道导弹的发射。这次发射引发了国际社会的谴责。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

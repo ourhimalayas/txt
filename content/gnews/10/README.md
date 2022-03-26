@@ -2,37 +2,38 @@
 ---
 
 
-## 樱花FM|护士好帮手——机器人，有望进入医疗第一线
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2234899/)
+## 美众议院推出取消中共国永久最惠国待遇法案
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2234985/)
 
-音频：东京樱花团/战友520
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032614.png)
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+周二3月22日，美国共和党众议员Chris Smith宣布，他联合两党议员Tom Tiffany和Tom Suozzi推出一项法案，旨在取消中共国的永久贸易最惠国待遇。
 
-因受新冠病毒的影响，本来就严重缺人的医疗第一线情况更加严峻。如何减轻医护工作人员的负担成了一个大问题。3月21日，在日本北九州市八幡东区的八幡市立医院进行了一次“在机器人协助下护理人员一个人搬运医疗床”的实验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-2022-1.jpg)图片来源: 网络
 
-医疗床通常由两名护理人员搬运移动，由于医疗床连同病人再加上医疗设备，非常沉重，这给护理人员的腰部带来很大的负担，这也是导致医护人员离职的主要原因之一。
+据悉议员Chris Smith长期关注中共国的人权问题，他推出这项法案意在惩治中共国犯下的人权暴行，特别是对新疆维吾尔族和其他中亚少数民族持续进行的种族灭族和强迫劳动等罪恶行径。
 
-本次试验使用的机器人高95厘米，宽45厘米，深42厘米，重约50公斤。它有一个内置的电池和马达，可以协助护士抬起医疗床的床框移动。医疗床连同病人和医疗设备大约有300公斤重，但有机器人的协助只需要一名护理人员就可以移动，而且所需力量只要以前的十分之一就可以了。医疗设备制造商Leaf公司（小仓北区），希望能够得到医院的合作尽快将其投入实际使用。
+该项法案要求把中共国贸易优惠待遇和其人权状况挂钩，美国总统必须每年证实中共国在改善人权做出了努力，才会给予中共正常的贸易优惠政策，否则不允，甚至取消。
 
-副院长冈本好司说：“有了这些机器人设备，医生和护士将能够集中精力从事他们原来的医疗工作。安全方面也很重要，我们希望共同合作进一步的改进。”另外，Leaf公司总裁森政男表示：“希望在2023年尽快将其商业化。”
-
-文字版原文：
+俄罗斯入侵乌克兰后，拜登总统宣布取消俄罗斯的永久正常贸易待遇。本月早些时候，美国共和党议员Tom Cotton、Jim Inhofe和Rick Scott曾在参议院提出取消中共国永久性正常贸易关系的法案。
 
 
-| [护士好帮手——机器人，有望进入医疗第一线](https://gnews.org/zh-hans/2211211/) |  |
-| --- | --- |
 
+相关链接:
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+[https://tw.news.yahoo.com/美眾院兩黨議員推出取消中國永久最惠國待遇法案-024400012.html](https://tw.news.yahoo.com/%E7%BE%8E%E7%9C%BE%E9%99%A2%E5%85%A9%E9%BB%A8%E8%AD%B0%E5%93%A1%E6%8E%A8%E5%87%BA%E5%8F%96%E6%B6%88%E4%B8%AD%E5%9C%8B%E6%B0%B8%E4%B9%85%E6%9C%80%E6%83%A0%E5%9C%8B%E5%BE%85%E9%81%87%E6%B3%95%E6%A1%88-024400012.html)
+
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑/校正/发稿：Petite abeille
+
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
