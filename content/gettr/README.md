@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 6:30 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️9⃣️：兰博基尼 Huracan (单价: $210,000.00)<br/>奖品数量：1<br/>获奖者：<br/>LM38286<br/>Discord: 铲共骑侠#9827<br/>获奖者来自纽约香草山农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️9⃣️: Lamborghini Huracan (Unit Value: $210,000.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>LM38286<br/>Discord: 铲共骑侠#9827<br/>The winner is from the New York Mountains of Spices Farm!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group30/getter/2022/03/26/18/bc8dc3bc-6ac3-9eed-f24b-bb6fdc1e4283/af41dbfb260b686c23dfcd93a6332b38.jpg)
+
+---
+
 `@miles 3/26/2022 6:15 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️8⃣️：GF 限定款鸵鸟皮背心 (单价: $8,500.00)<br/>奖品数量：8<br/>获奖名单如图<br/>中奖者来自(原) 多伦多枫叶农场，纽约香草山农场，温哥华扬帆农场，东京银河系农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️8⃣️: GFASHION Exotic Skin Vest- Ostrich Leather(Unit Value: $8,500.00)<br/>Number of Prizes: 8<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Toronto Maple Leaf, Himalaya New York Mountains of Spices Farm, Himalaya Vancouver Sailing Farm, Himalaya Japan Galaxy!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -147,15 +154,6 @@ G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限�
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1：奔驰AMG GT4 (单价: $92,500.00)<br/>奖品数量：1<br/>获奖者：<br/>LM64133<br/>新西兰奥克兰伊甸农场<br/>discord：梦田#6641<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1: Mercedes AMG GT 4-door Coupe (Unit Value: $92,500.00) <br/>Number of Prizes: 1<br/>The winner is: <br/>LM64133<br/>Himalaya NewZealand Auckland Eden Farm<br/>discord：梦田#6641<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/><br/>
 ![img](https://media.gettr.com/group16/getter/2022/03/26/13/82582cec-605a-25d2-66ae-766f590531dc/43a71897936ca91deb8782f5de4b660f.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 3/26/2022 12:24 PM (UTC)`
-
-[ENGLISH] SIMULTANEOUS INTERPRETATION⎢G|TALKS 2022: CONNECTING CULTURES THROUGH LOVE LIVE BROADCAST on 2022.03.26
-![img](https://media.gettr.com/group15/origin/2022/03/26/12/b40ce652-8b3e-0d95-7ab9-7139c3431745/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,11 +2,31 @@
 ---
 
 
-## 3/25/2022 文贵直播: 以出口武器著称的号称世界第二大军事强国的俄罗斯在俄乌战争中的表现令人大跌眼镜。他们的装备、补给和通讯都停留在二战水平，但在冠冕堂皇的虚假宣传方面却和中共、北朝鲜如出一辙
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2236621/)
+## 有声|日媒称俄乌战争应区分独裁者和国家概念
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236718/)
 
-秘密翻译组-北美组
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月22日，日本媒体在关于俄罗斯侵略乌克兰战争的节目中，强调独裁者和国家两个概念的区别。
 
+主持人首先谈及只有挫败俄罗斯，才能阻止包括中共国在内的独裁专制政权妄图以军事力量改变世界地理版图的野心。嘉宾兴梠先生表示赞同，但马上纠正道，不是要挫败俄罗斯这个国家，而是挫败普京和身边的极个别人。因为这场对乌克兰的侵略战争不是俄罗斯民族或国家发起的，而是普京个人将国家权力私有化之后，作为独裁者发起的。仇视北约的不是俄罗斯，而是掌管俄罗斯政治体制的少数几个人。
+
+兴梠先生特别强调，这种独裁体制国家里的国民才是真正的受害者。无论是当前的普京还是以前的毛泽东，均利用媒体和教育对国内百姓进行洗脑，使民众成为其独裁政权的提线木偶。而觉醒后看清其真相的民众，纷纷逃离这些独裁国家。独裁国家的最好结局就是人民自己起来反抗，实现政权更迭。同时，西方民主国家真正该探讨的，就是如何消灭这种让人感到恐惧的独裁政权。
+
+文字版原文：[日媒称俄乌战争应区分独裁者和国家概念](https://gnews.org/zh-hans/2229728/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,22 @@
 ---
 
 
-## 红场传来鸽派言论，强人政治开始撕裂
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2236322/)
+## 天基移动电话网络公司与SpaceX签署发射协议
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2236471/)
 
-作者：香草山健身部-正道新闻
+【作者】纽约香草山农场 健身部 文真
 ![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-2022年3月26日，俄罗斯前任总统、总理，俄罗斯安全委员会副主席梅德韦杰夫接受了俄新社采访。整个采访主要围绕着近期俄罗斯与西方社会就乌克兰战争问题展开。访谈中，梅德韦杰夫表达了三个主要观点：
+目前唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间的蜂窝宽带网络。
+据悉，该公司总部位于美国德州，并在英国设有基地。该公司计划今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来测试与手机进行标注频率通信，并在未来发射BlueBird卫星。
+据该公司管理者透露，其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。
 
-首先，梅德韦杰夫认为，那些即不全面也不真实的报道充斥在西方媒体中。他们如同对待过去的朝鲜和古巴一样，正在全面抹煞和造谣俄罗斯。
+[https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
 
-其次，因为乌克兰战争的问题，俄罗斯与西方社会的关系甚至比上世纪60、70年代美苏争霸的时代来得更差。而那些，在2010年，为人类和平，世界稳定，与美国奥巴马总统签订“新削减战略武器条约”共同付出过努力的俄罗斯官员，这次也在制裁名单中，梅德韦杰夫认为，显然对于他们而言，这种处理结果并不公平。
-
-最后，梅德韦杰夫认为尽管俄罗斯在其安全受到威胁时会使用核武器，但是当下的谈判任然是最为正确的方式。
-
-虽然此次访谈在俄罗斯、白俄罗斯国内报道时，编辑们普遍用“俄罗斯感受到了威胁，将用核武器反击”为题。但是实际上，细读梅德韦杰夫发表的言论，我们能很容易的发现，他在明确的暗示西方社会，并不是所有的俄罗斯官员都支持普京攻打乌克兰。反战的官员以及俄罗斯大量的寡头，并不希望俄乌战争持续下去。
-
-梅德韦杰夫能够如此胆大的表达反战言论，大概率暗示着普京强人政治已经开始解体，与此同时，损失惨重的俄罗斯军队已经无力在乌克兰战场上持续进攻。西方社会的各类制裁，以及乌克兰军队的奋力抵抗，使得俄罗斯精英阶层的分化加剧。更为重要的是，俄罗斯反战派的各种积极行动似乎表明，他们希望得到西方社会某些公开的承诺，已解除他们推倒普京之后的后顾之忧。
-
-[https://lenta.ru/news/2022/03/26/coldwar/ https://www.belnovosti.by/politika/dmitriy-medvedev-zavil-o-sushchestvovanii-ugrozy-yadernoy-voyny](https://lenta.ru/news/2022/03/26/coldwar/%20https://www.belnovosti.by/politika/dmitriy-medvedev-zavil-o-sushchestvovanii-ugrozy-yadernoy-voyny)
+[https://video.foxnews.com/v/6301852036001#sp=show-clips](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760%202.%20https://video.foxnews.com/v/6301852036001#sp=show-clips)
 
 校对/发稿：菩提树
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B6CF6668-4CF3-46A4-B349-47D413F1DEFD.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1-1.png)
 
 更多资讯，更多关注
 乌克兰救援UkraineRescue官方Gettr

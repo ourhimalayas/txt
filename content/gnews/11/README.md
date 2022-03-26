@@ -2,31 +2,37 @@
 ---
 
 
-## 拜登警告“粮食短缺”即将成为现实
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2236565/)
+## 有声|中共国内经济现状速览
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2236628/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+进入3月份下旬，中共国网红餐饮品牌纷纷裁员，头部互联网公司加入裁员行列，失业率飙升。中共国多家房地产企业违约，多只金融产品亏损，人民收入锐减。
+
+从去年年中开始，在线教育机构纷纷裁员，进入3月份下旬，裁员潮已波及字节跳动、百度、滴滴、爱奇艺等互联网企业，甚至连阿里、腾讯、京东也加入裁员大军。而随着消费的降级和缩减，网红餐饮品牌文和友、喜茶、瑞幸咖啡等均爆出裁员消息。
+
+本月18 日至23日，新力控股、佳兆业、融信中国、恒大等10家房地产企业宣布，无法如期公布2021财务年报。华夏幸福再次宣布债务违约，阳光城在首次宣布境内债务违约后，公司股东于22日被动减持公司股份。尽管如此，中共继续操控股市，无视房地产负面消息，继续拉高房地产股市。
+
+3月22日，中共国多只理财产品被爆本金大幅亏损。相关数据显示，截至3月15日，中共国六个月内所有在运行的理财产品中，2352只跌破净值。其中，工商银行发行的一只名为“鑫得利”的理财产品，第一期单位净值已从最高1.1561跌至0.6252，年内回撤幅度超过了45%。一向以稳健著称的银行理财产品，已经不再是资金“避风港”。
+
+在保险行业方面，中共国也极尽造假之能事。据悉，来自上海的章先生，在过去9年内，被骗买下29种太平洋人寿保险产品，总计支付保费800多万元。该事件经媒体披露，银保监会介入调查后发现，章先生的部分保单涉嫌被伪造签名、虚构投保人与被保人关系等。
+
+种种迹象表明，中共国内已深陷经济困境。而随着中概股被抛弃，港股的崩盘，中共国经济即将濒临崩溃。
+
+文字版原文：[中共国内经济现状速览](https://gnews.org/zh-hans/2227122/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月24日，据外媒消息显示，美国总统拜登当天在布鲁塞尔举行的新闻发布会上确认，全球粮食短缺问题将成为现实。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-9.jpeg)
-
-拜登提到，世界因战争对俄罗斯做出的制裁正在使得很多国家一同承担了相应代价，当中包括美国和欧洲。此前，俄罗斯和乌克兰在小麦方面一直是欧洲的粮仓，但如今，战争减少了乌克兰的生产，而制裁则阻止了其他国家与俄罗斯的贸易。
-
-为此，美国和欧洲各国近期在峰会期间反复讨论了关于粮食短缺的问题，以及一些可以采取的应对措施。拜登透露，国际社会或将敦促所有欧洲和其他国家结束对向国外运送粮食的贸易限制，同时，美国可以提供人道主义援助方面的重大投资。
-
-据了解，目前，美国从食品到燃料再到供应等各个方面的消费价格一直在上涨，且随着乌克兰冲突的持续，人们越来越担心这类价格上涨或许将不再减弱，反而愈演愈烈。
-
-参考链接：[BREAKING: Biden says ‘food shortages are gonna be real’](Biden%20says%20'food%20shortages%20are%20gonna%20be%20real')
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Irene木木
-编辑/审核：飞虹
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
