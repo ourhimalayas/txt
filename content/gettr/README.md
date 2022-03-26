@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 1:26 AM (UTC)`
+
+2022.03.25 晚《新中国联邦新闻访谈》疫苗政治大行其道，疫苗经济即将崩溃，面对疫苗灾难，同胞们，何去何从？
+![img](https://media.gettr.com/group3/origin/2022/03/14/01/ae7df8ff-9b34-2fe2-4bee-fc6ebc75f10a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/26/2022 12:46 AM (UTC)`
 
 2022.03.25 晚 《新中国联邦新闻》中共末日与数字货币触发瑞士政府作出改变； 美国能产生无数马斯克 中共独裁体制扼杀文明
@@ -153,13 +160,6 @@ Fine Food from the NFSC&ROLF, interviewed with a France couple. They are working
 
 3/23/2022 Miles Guo: The entire world stands with Ukraine. The total GDP of Europe, the US, UK and Japan accounts for 70% of the world’s GDP. Russia will never win the Russia-Ukraine war even with the CCP’s support. Russia and Communist China will definitely disintegrate. Chinese people will live happily and safely in the country without the CCP.<br/><br/>3/23/2022 文贵直播: 全世界都站在乌克兰一边，欧美英日的GDP总和占世界的70%，俄罗斯即使背后有中共支持也打不赢俄乌战争；俄罗斯和中共国会被解体。在没有了中共的国度里，中国人会过得非常幸福、安全<br/>
 ![img](https://media.gettr.com/group3/getter/2022/03/25/10/6e99d6d1-2ee0-3d1a-a354-ce524a9af9df/out.jpg)
-
----
-
-`@miles 3/25/2022 5:34 AM (UTC)`
-
-3/23/2022 Miles Guo: Now the most absurd thing is happening to humanity in the world. The wealth obtained by individual labor is subject to various supervision and restrictions; the New Federal State of China is developing a truly decentralized, stable and secure digital currency-- “Tangping Coin”, which will be circulated globally without limitation for the benefit of all mankind<br/><br/>3/23/2022 文贵直播：现在人类无比荒唐的事情发生了：个人劳动获得的财富受到各种监督限制；新中国联邦正在研发真正去中心化、稳定安全、无国界限制、可全球流通的“躺平币”，造福全人类<br/>
-![img](https://media.gettr.com/group23/getter/2022/03/25/05/ae66177e-36c8-a48b-76ac-e6847566d261/out.jpg)
 
 ---
 
