@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/26/2022 5:10 PM (UTC)`
+
+【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️5⃣️：GF 年会专属限定版T恤 (单价: $140.00)<br/>奖品数量：600<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️5⃣️: GFASHION  T-Shirt (Unit Value: $140.00) <br/>Number of Prizes: 600<br/>The winners are as following<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
+![img](https://media.gettr.com/group3/getter/2022/03/26/17/dad07d1e-71c1-1ca1-f3bb-bfbc398679e2/9830d4e3e94c431f02f0d56eed5d4fe8.jpg)
+
+---
+
 `@miles 3/26/2022 4:59 PM (UTC)`
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️4⃣️：GF 钻石铂金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，洛杉矶盘古农场，纽约香草山农场，华盛顿DC农场，波士顿五月花农场，东京樱花团，新西兰伊甸农场！恭喜中奖者！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️4⃣️： GFASHION Diamond Whistle- White Gold (Unit Value: $7,499.00) <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya LA Pangu, Himalaya New York Mountains of Spices Farm, Himalaya Washington DC Farm, Himalaya Boston Mayflower Farm, Himalaya Tokyo Sakura Group, Himalaya New Zealand Auckland Eden Domain!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
@@ -149,13 +156,6 @@ G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品2：GF 钻石黄金限�
 
 【Ukraine Rescue】03/22/22 Nineteen-year-old girl, 2nd-gen NFSC fellow fighter Feather requests to go to the Ukraine border to greet refugees, because she wants to contribute her own part at the frontline, especially for the children. She feels strongly empathetic towards the refugees.<br/><br/><br/>【乌克兰救援】03/22/22  19岁新中国联邦爆二代女孩Feather在前线帮助难民，特别是孩子。她希望为救援行动出一份力，对难民的处境深切共情。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
 ![img](https://media.gettr.com/group46/getter/2022/03/26/10/9ffe57f6-6de4-5e7e-09f2-3a30d4622a4d/out.jpg)
-
----
-
-`@miles 3/26/2022 9:34 AM (UTC)`
-
-<br/>3月26日：尊敬的战友们好！看了这个视频一直想吐，却吐不出来．咋办呢？
-![img](https://media.gettr.com/group43/getter/2022/03/26/09/beeb681b-cb64-a8a0-aa61-1366ea00d9c9/out.jpg)
 
 ---
 
