@@ -2,39 +2,10 @@
 ---
 
 
-## 有声|美国务院正式宣布：俄罗斯在乌克兰犯下战争罪
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2231807/)
+## 3/25/2022 文贵直播：喜币和躺平币一定是未来世界上最稳定、最安全、最快捷、最低成本、永不可被剥夺的私人财富的创造者(铸币权)
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2232156/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3 月 23 日，美国国务卿布林肯发表官方声明，基于公共信息和情报，美国认定俄罗斯军队在乌克兰犯下战争罪。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/S__8093699.jpg)
-声明表示，俄罗斯军队摧毁了公寓楼、学校、医院、关键基础设施、民用车辆、购物中心和救护车，致使数千名无辜平民伤亡。
-
-在随后的新闻发布会上，美国国务院全球刑事司法大使Beth Van Schaack女士重申，美国政府将继续追踪战争罪报告，并将酌情与盟国、合作伙伴以及国际机构和组织分享信息。（请播放视频，视频时长2‘17“）
-
-
-
-
-
-文字版原文：[美国务院正式宣布：俄罗斯在乌克兰犯下战争罪](https://gnews.org/zh-hans/2226668/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+秘密翻译组-北美组
 
  
 

@@ -2,10 +2,18 @@
 ---
 
 
-## 3/25/2022 文贵直播：中共国近100万亿美元市值的房地产崩溃后将一文不值，而银行却会继续强迫老百姓还房贷
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2232237/)
+## 战友们不要分你我他，我们要团结（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2232292/)
 
-秘密翻译组-北美组
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9：10-9：20-02.jpg)
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,35 +2,28 @@
 ---
 
 
-## 有声|世界金融监管机构加强审查加密货币
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2231772/)
+## 国际｜拜登吁将俄逐出G20 并收紧对中共商品的关税豁免
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2231805/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社3月21日报导，在当前俄乌战争局势下，因对加密货币被用于规避制裁的担忧，由 20 国集团经济体的金融监管机构、中央银行和财政部官员组成的金融稳定委员会成员帕特里克·阿姆斯特朗，在伦敦举行的城市与金融会议上表示，正在监视与加密货币有关的各种情况。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-48.png)
-此外，英国金融服务大臣在该会议上表示，英国已将加密资产纳入反洗钱和恐怖主义融资的打击范围内，并支持对加密资产进行执法。欧盟也于此前发布相关指导意见，确认对俄罗斯包括加密资产在内的贷款和信贷进行制裁。
+圖/文 zhong｜26/03/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-26.png)**更多資訊請關注官方[蓋特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+美国川普政府任内对中（共）国的2200多项产品提供关税豁免，以减轻某些行业和零售商的压力。大多数豁免许可在到期后就结束了，其中549项商品的豁免许可被延长一年，并于2020年底到期。
 
+经延长后于2020年底到期的549项商品，23日由美国贸易代表办公室（USTR）声明称，将对352项从中（共）国进口商品关税重新豁免，适用于在2021年10月12日至2022年12月31日之间进口自中（共）国的商品，包括泵和电动机等工业部件、某些汽车零部件和化学品、背包、自行车、吸尘器等消费品。
 
+这意味着，拜登政府收紧了原先川普政府的关税豁免政策，549项中只有352项重新豁免。
 
-文字版原文：[世界金融监管机构加强审查加密货币](https://gnews.org/zh-hans/2227121/)
+## 拜登吁将俄逐出G20
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+美国总统拜登24日在布鲁塞尔表示，他支持将俄罗斯逐出20国集团（G20），如若不然，应让乌克兰加入，至少是G20大会观察员。此外，拜登总统称情俄罗斯可能动用生化武器侵略乌克兰，届时北约将根据实际情况决定是否军事回应。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+拜登总统在布鲁塞尔会晤北约和G7领导人会后，宣布相关制裁与欧洲盟友一致，并呼吁欧盟和先进民主国家G7都团结起来应对极权侵略；北约宣布强化东翼，在罗马尼亚、匈牙利、保加利亚和斯洛伐克部署4支战斗部队。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+来源｜[REUTERS](https://www.reuters.com/world/biden-says-he-thinks-russia-should-be-removed-g20-2022-03-24/)、[NYT](https://www.nytimes.com/2022/03/23/business/chinese-imports-tariffs.html)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+* * *
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 
