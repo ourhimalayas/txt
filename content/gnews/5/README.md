@@ -2,43 +2,31 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“G-Club”（十八）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2240665/)
+## 有声|美国能产生无数马斯克 中共独裁体制扼杀文明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240731/)
 
-#### 整理： BENJ1
-编辑：李易通
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月20日大直播中，郭文贵先生高度赞赏马斯克对普京下的战书，称其宣告了独裁政权对人类的核讹诈终将被解除。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Picturea1.png)图片来源：雅典娜设计组
+在回应为何一个外来移民能够在美国达成解救天下苍生的巨大成就时，郭先生指出，美国的体制使其可以荟萃全世界精英并让他们自由发展，这是美国强大的根本原因。
 
+据统计，80%-86%的美国精英都是新移民。二战后，美国开始招募德国、苏联以及全球的科学家，涵盖互联网、半导体工业、芯片、生物及太空科技等各个领域。来自世界各国的精英们让美国一次又一次腾飞。与之相反，在自称雄伟强大的中共国，国内外精英均没有生存和发挥才能的环境与机会。
 
-郭文贵先生2021年6月12日直播
+文字版原文：[美国能产生无数马斯克 中共独裁体制扼杀文明](https://gnews.org/zh-hans/2233558/)
 
-战友们，那盖特所有这些未来都跟G-TV连在一起的，因为盖特有最重要的新的技术，未来一定要直播。我现在给这100多个大咖私下跟他们建议，我说你们过去发所谓的Twitter推文改变了世界，现在一定要直播，郭文贵有资格告诉你直播的力量，只要你直播你的感觉会不一样，只要你是直播，讲你自己的故事、只要讲真话，我说你就是永远的胜者。你别讲假话别糊弄人，讲一次谎话就完蛋。
+音频处理：Fei797
+发稿：Fei797
 
-所以说，它的直播流串数据都要跟G-TV连在一起，G-TV还有所有的盖特的东西都要马上分享到G-News，然后就到喜联储去使用，兄弟姐妹们，你们想想这啥概念吧。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-所有这些人，未来我们都会鼓励他加入G-Club俱乐部，我们要把这些人更多得发展成G-Club会员，你想想这个G-Club会成什么样？G-Club然后G-Fashion，那G-Fashion未来就是G-Mall啊，G-Mall是连接万物，啥没有啊？千万别小看了G-Club，G-Club的功能一旦扩展开来，线上线下这个力量大了去了。
-
-在病毒期间，财富增长的唯一一个人， 全世界最牛的——LV集团、M&H、Rag&Bone，不仅财富增长，甚至创造世界第一，他财富增长的主要原因不光是时尚，他是多元化的，一下子就起来了。
-
-你想想G-Club了得了吗？兄弟姐妹们，咱们中国人最爱急功近利，还有一个说放弃就放弃，战友们千万千万Hold住你那卡，大家一定要记住这句话，等到7月4号、7月17号以后你们就明白了。今天我相信大家都收到很多好消息，我就不多说了。
-
-郭文贵先生2021年6月23日直播
-
-那么你拿着卡的人，一定要记住七哥说的话，那是一个通往喜马拉雅的通行证，G-Club将是你打开世界的大门，一个最好的通行证。头两天，我们那个G-Club的总裁Limary，你看那个女孩在生活中非常瘦的脸，特别特别漂亮。头两天到了纽约来开会，她和我们的G-Club的文骁交流，还采访了七哥关于G-Club未来的规划。
-
-G-Club卡未来是和战友们一起打造的一个能认识数以百万千万的同胞的卡。当你拿着同一个卡的时候，这都是你的同胞、你的战友、可信任的人。你们拥有同样的生活方式、同样的资源甚至同样的机会、同样的未来。
-
-资料来源：郭先生GTV、盖特直播
-
-发布：Frank2021
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

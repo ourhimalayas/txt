@@ -2,25 +2,12 @@
 ---
 
 
-## 樱花头条┃美国对中共官员采取限制性签证发放
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
+## 辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234329/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-美国国务卿布林肯最新电视讲话：
+03/23/2022 班农战斗室：一位参与审查辉瑞文件的志愿者有两个发现。一个是辉瑞是否将所有记录在案的副作用都报告给疫苗不良反应系统。另一个是辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准。
 
-将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
-
-信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
-
-*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

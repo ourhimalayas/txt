@@ -2,40 +2,64 @@
 ---
 
 
-## 澳洲急诊科及择期手术的等待时间出现飙升
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2240287/)
+## 天主教NFL踢球手说宁可退役也不打疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2240308/)
 
-撰稿：Gradient Boost
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pexels-pixabay-263402-scaled.jpg)网络图片
-在新一轮爆发的Omicron变种病毒袭击澳大利亚的卫生系统后，急诊科的等待时间和择期手术的等待名单已经人满为患。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-22.jpg)
 
-澳大利亚医学协会 (AMA) 的年度公共卫生系统报告了该国各州CCP病毒大流行对公共卫生系统所造成的损失。报告显示，目前澳大利亚有超过 754,000 人正在等待手术，等待手术一年以上的人数比例较过去增加了两倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3245.png)堪萨斯城酋长队的哈里森·巴特克（Harrison Butker） 图片来源：Jamie Squire/Getty Images
 
-AMA 主席 Omar Khorshid 博士说，该报告详细说明了卫生系统所承受的巨大压力：“澳大利亚迫切需要为其公立医院系统制定恢复计划。我们需要适当的资金来清理积压的择期手术，并建立足够的能力来满足社区不断增长的需求。”
+堪萨斯城酋长队的一名天主教超级碗冠军球员表示，他宁愿离开 NFL，也不愿接受冠状病毒疫苗注射。
 
-其中一个关键问题是“隐藏等待名单”，它指的是在公立医院系统中等待专科医生的门诊病人患者数量。由于 Omicron 爆发期间对各医疗部门施加的限制，维多利亚州的居民现在正面临最长的非紧急择期手术等待时间。只有 62% 的二类患者（即需要在 90 天内接受治疗的患者）能够接受他们的择期手术。
+哈里森·巴特克说，与他听说的其他球队相比，酋长队更愿意接受个人对疫苗和口罩的决定。
 
-由于去年CCP病毒的流行，塔斯马尼亚州也创下了非紧急择期手术的极长等待时间。目前在塔斯马尼亚州，有超过 59,000 名患者正在等待就诊于公共卫生系统的专家，其中部分患者需要等待近 800 天才能够见到神经外科医生——这还是在紧急的情况下。只有 36% 的第二类患者在 90 天内接受了手术。
+“我认为我们不应该在一个国家……我们必须决定……我是否必须接受这个东西，我是否必须把这玩意戴脸上只是为了…… 像正常人一样生活，”巴特克在 3 月 20 日的“脱离”（Breakaway）节目中说道，这是一个由“美国转折点”赞助并由乔恩·鲁特 （Jon Root）主持的体育节目。
 
-截至目前，择期手术等待时间表现最好的地区是悉尼所在的新南威尔士州，超过 87% 的患者可以在 90 天内接受手术。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3246.png)图片来自文中视频截图
 
-*编辑：Gradient Boost*
+他说，当谈到 COVID 注射或测试协议时，很多队员觉得他们“别无选择”。“这几乎就像是你的义务，你必须遵守这些协议，否则你将失去工作，你会被裁掉。”
 
-*发布：Gradient boost*
+巴特克说，如果是这样的话，他和他的妻子“完全同意 [他] 远离足球”。“**我会坚持我的原则，我不会妥协，如果这是我的最后一个赛季，那就这样吧。”**
 
-新闻参考链接：
+**“**我认为……在某些方面，我是很多人的榜样，比如，‘哇，你知道，也许我应该再有担当一点，’”巴特克建议道。
 
-[9 News](https://www.9news.com.au/national/australia-health-system-buckles-under-pressure-elective-surgery-waiting-times-blow-out/6ee04980-06e4-4f7d-98dc-366e8732f399)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+他告诉鲁特，**他将信仰和家庭置于橄榄球之上**。
+
+“橄榄球不是我的生活，它是我的工作，我喜欢它……但你知道我是上帝的孩子，我是丈夫和父亲，而这比足球更重要，”布特克告诉鲁特他参加并服务于拉丁弥撒。
+
+他说他“准备离开，并寻找另一种方式来养家糊口。”
+
+鲁特是一名新教徒，他向巴特克询问参加传统拉丁弥撒 (TLM) 的事。酋长队的踢球手邀请鲁特和他一起去纽约的弥撒。
+
+“我喜欢它的传统方面，因为我认为，现在就像我们生活在一个一切都如此快节奏的世界，”鲁特回应道。“人们，当他们想到去教堂坐一个多小时，他们认为这是最疯狂的事情。”
+
+巴特克在节目结束时说，**男子气概正在受到攻击，他的婚姻不是“合同”**。
+
+“这是一个美好的约定，”巴特克说。他想继续利用他的平台来强调父亲的重要性。
+
+“它从一家之主开始，也就是父亲、丈夫，”巴特克说。
+
+**参考链接：**[Catholic NFL kicker says he would quit football before getting the COVID jab](https://www.lifesitenews.com/news/catholic-nfl-kicker-says-his-family-and-faith-are-more-important-than-football/)
+
+* * *
+
+审核：文乐
+校对：信心满满
+发稿：信心的选择
+
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-20.jpeg)
+
+
+
+
 
  
 

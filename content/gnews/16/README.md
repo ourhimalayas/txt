@@ -2,39 +2,24 @@
 ---
 
 
-## 有声|未来战争将转型为高科技远程作战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240555/)
+## 视频|G-FASHION开始接受使用HPAY以HDO购物
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2240612/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-郭文贵先生在3月25日的大直播中指出，人类未来将更多地依赖高科技进行远程战争，近身作战的模式将逐渐被淘汰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.40.43-PM.png)
-郭先生解释称，在此次俄乌战争中，俄罗斯本想在一星期内结束入侵，但由于乌克兰当局利用高科技手段时时锁定俄罗斯军队的行踪，从而导致莫斯科政府的狂妄企图宣告破灭。
+制作：香草山视频部
 
-郭先生也补充道，未来，使用大规模军事人员的作战方式将被科技战争和经济战争取代。在这种非接触式战争的模式下，豢养军队的政策将逐渐淡出历史。因此，那些仍旧保留大批军队的国家基本上都是以此镇压本国人民，而非对外作战。此外，虽然核武器也将是未来作战的工具之一，但鉴于其毁灭性的特质，它也很难会轻易出现在战场之中。
+3月25日，郭文贵先生在大直播中表示，G-FASHION公司从3月24日开始，正式接受消费者使用HPAY支付平台以H DOLLAR数字货币购买该公司设计出品的高品质时尚服饰，创下了数字货币在使用、流通上的新的里程碑。从后台战友的演示中我们可以看到，操作很快就可以完成，能给客户带来完美的购物体验。
 
-郭先生也强调道，时至今日，因为牵引和通讯技术的改变，掌握世界通讯权以及空中高科技的一方将直接主导战争的走向。
+第一代虚拟币比特币打开了人类非实体性货币的视野，但是它所标榜去中心化的特性也使其沦入无人管理、无人负责的困境，只被炒家拿来做为投机金融系统的工具。 第二代虚拟币虽然改善了比特币的少许缺点，但一样无法满足做为流通性货币的要求。
 
+喜联储发行的喜美元HDO及喜币HCN，采行严格的KYC审核制度，在开户阶段就先排除了有问题的客户。并用新的区块链技术来达到保障客户隐私及快速转款的实用性要求。 这是目前唯一具有区块链技术加密优点，又兼具市场实用流通性及可监管性的数字货币。 此次G-FASHION开放使用HPAY及H DOLLAR的方式支付货款，将开启数字货币的新纪元。
 
+从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到解放。
 
-文字版原文：[未来战争将转型为高科技远程作战](https://gnews.org/zh-hans/2235359/)
+发稿：Daxia
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
