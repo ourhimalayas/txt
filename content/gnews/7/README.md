@@ -2,30 +2,19 @@
 ---
 
 
-## 大量俄军被乌兵俘虏画面曝！网嘲：他们终于有饭吃了！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2238939/)
+## 秘翻在线：布林肯斡旋中东 寻求对乌支援
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2239010/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-俄乌交战已来到第31天，双方战事仍胶着，乌克兰总统泽伦斯基昨日再次呼吁西方国家加强对乌克兰的军援，「乌克兰只需要北约1%的坦克和飞机」，泽伦斯基强调，乌克兰要求的不多，也不会再要跟多，但等待北约军援已经足足等了31天了。
+撰稿：加贝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-11.jpg)（图片来源：本文链接）
+据ARAB3月27日消息，美国国务卿安东尼.布林肯将于周日、周一在内盖夫沙漠会见以色列、摩洛哥、埃及、巴林和阿联酋官员，并举行“历史性”会议。布林肯此行旨在“借纪念阿以双边关系改善之机，对乌克兰施以更多援助”。俄乌战争导致的小麦短缺、共同应对伊朗核威胁也是其中两个议题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/943a8a54-8963-462d-bbe7-fdeed04cfd70.jpg)图片来源：民视新闻
+笔者认为：能源、食品、地区安全是布林肯此行的主要目的，攘外必先安其内。俄乌战争的发展趋势也不约而同受到上述因素影响。
 
-今曝光一段大量俄军被俘虏的影片，只见数十位俄罗斯士兵用双手抱着头趴在地上，被乌兵团团包围，但乌克兰士兵仅叫俄兵不要动，并未做出伤害他们的举动。
+信息来源：[https://www.arabnews.com/node/2051141/middle-east](https://www.arabnews.com/node/2051141/middle-east)
 
-因此引来不少网友留言「可怜，趴的像狗」、「谁愿意打仗」、「普京看到自己士兵被俘虏作何感想？」、「看了好难过，别打仗了吧」。不过也有人讽刺「俄军被俘虏，心里应该很开心终于有饭吃了！」。
+责编：待命（文晓）
 
-简评：可怜的俄罗斯大兵，没有战死沙场就在被俘虏的路上，为独裁的普京卖命心虚了吗？乌克兰善待俘虏，抓紧的弃恶从善投降吧，不要再作恶了！止战！和平！
-
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022327W0041](https://www.ftvnews.com.tw/news/detail/2022327W0041)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

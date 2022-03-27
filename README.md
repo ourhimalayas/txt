@@ -15,61 +15,61 @@
 
 ---
 
-### [文•贵天成：文贵先生谈“牵引技术”](/content/gnews/1/README.md)
+### [俄乌开战一个月纪念日前夕，泽连斯基演讲呼吁全球正义民众为了人类的自由抗议俄罗斯暴行](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [与乌克兰紧急救援前线现场感想（6）：NFSC 咖啡和奶](/content/gnews/2/README.md)
+### [一个孩子对乌克兰战争的看法（五）- —俄罗斯士兵也受到伤害](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [英国制星际导弹已准备好部署在乌克兰](/content/gnews/3/README.md)
+### [《历史的今天》2022.03.27](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文•贵天成：文贵先生谈“牵引技术”](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：布林肯斡旋中东 寻求对乌支援](/content/gnews/4/README.md)
+### [与乌克兰紧急救援前线现场感想（6）：NFSC 咖啡和奶](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [英国制星际导弹已准备好部署在乌克兰](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：布林肯斡旋中东 寻求对乌支援](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜拜登华沙演说称“普京不能继续掌权” 白宫极速澄清](/content/gnews/5/README.md)
+### [俄乌战争｜拜登华沙演说称“普京不能继续掌权” 白宫极速澄清](/content/gnews/8/README.md)
  ` 關注組`
 
-### [遏制中共国的时间已经不多了](/content/gnews/6/README.md)
+### [遏制中共国的时间已经不多了](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [大量俄军被乌兵俘虏画面曝！网嘲：他们终于有饭吃了！](/content/gnews/7/README.md)
- ` 蓝莲花农场`
-
-### [灭共段子┃搭棚大师保障电力供应](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [菲利普·布里德洛夫将军：随着普京受到一系列挫败，俄乌局势会变得越来越糟糕](/content/gnews/9/README.md)
+### [菲利普·布里德洛夫将军：随着普京受到一系列挫败，俄乌局势会变得越来越糟糕](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [朝鲜测试其“最大的洲际弹道导弹”](/content/gnews/10/README.md)
+### [朝鲜测试其“最大的洲际弹道导弹”](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登表示普京“不能继续掌权”](/content/gnews/11/README.md)
+### [拜登表示普京“不能继续掌权”](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [侵略者普京抱怨西方正在发起“取消俄罗斯”运动](/content/gnews/12/README.md)
+### [侵略者普京抱怨西方正在发起“取消俄罗斯”运动](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国总统拜登对中国发出警告：站在俄罗斯一边一定会后悔](/content/gnews/13/README.md)
+### [美国总统拜登对中国发出警告：站在俄罗斯一边一定会后悔](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北约称7,000至15,000名俄罗斯军人在乌克兰丧生](/content/gnews/14/README.md)
+### [北约称7,000至15,000名俄罗斯军人在乌克兰丧生](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [惊恐的俄罗斯士兵告诉奶奶他正遭受严寒和炮轰的威胁，他特别想“离开”乌克兰](/content/gnews/15/README.md)
+### [惊恐的俄罗斯士兵告诉奶奶他正遭受严寒和炮轰的威胁，他特别想“离开”乌克兰](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美最高法院阻止下级法院对海豹突击队和新冠疫苗的裁决](/content/gnews/16/README.md)
+### [美最高法院阻止下级法院对海豹突击队和新冠疫苗的裁决](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国志愿兵出现在乌克兰前线](/content/gnews/17/README.md)
+### [美国志愿兵出现在乌克兰前线](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国总统乔·拜登告诉波兰总统，普京没有能力分裂北约](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [切尔尼戈夫的平民百姓在俄罗斯军队的炮击中艰难求生](/content/gnews/19/README.md)
+### [美国总统乔·拜登告诉波兰总统，普京没有能力分裂北约](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [俄乌战争｜Anonymous 如期公布俄央行数据库 料更多机密陆续有来](/content/gnews/20/README.md)

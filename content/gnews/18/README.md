@@ -2,10 +2,10 @@
 ---
 
 
-## 美国总统乔·拜登告诉波兰总统，普京没有能力分裂北约
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238705/)
+## 美国志愿兵出现在乌克兰前线
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238743/)
 
-03/26/2022 美国总统乔·拜登告诉波兰总统安杰伊·杜达，普京没有能力分裂北约，并强调了北约国家之间的强大纽带
+03/25/2022 一名美国退伍军人发布的视频表明，与乌克兰军队并肩作战的国际军团正在发挥越来越积极的作用
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
