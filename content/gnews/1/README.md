@@ -2,27 +2,41 @@
 ---
 
 
-## 今日盖特大V推荐 — 摩根·泽格斯（Morgan Zegers）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2237475/)
+## 据乌克兰军方通报：俄罗斯中将瑞桑瑟夫被炸死亡
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2237480/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/aulj9-n7nko-7.jpg)
-盖特链接：[https://gettr.com/user/morganzegers](https://gettr.com/user/morganzegers)
+来自新加坡早报 /
+2022年3月26日 10:39 PM 报导
+采集：玫瑰新闻组
 
-摩根·泽格斯自述：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-2.jpg)
 
-美国青年反对社会主义创始人兼首席执行官
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-26-155656.png)图片来源：网络
-**摩根·泽格斯简介：**
 
-摩根·泽格斯（Morgan Zegers，生于1997年）是一位著名的政治家。她反对社会主义，为了解决这个问题，她创立了美国青年反社会主义（YAAS）组织，并任首席执行官。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+![瑞桑瑟夫中将是俄罗斯第49集团军最高指挥官。（互联网）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-03/eluosijiangjunzhenwang.jpg?VersionId=N9xjhlQhhz04W6DBg1.Or1zy8MVgw_Vq&amp;itok=W0YkPbp7)瑞桑瑟夫中将是俄罗斯第49集团军最高指挥官。（互联网）
+
+
+以下原文內容：
+
+乌克兰军方周六（3月26日）通报，俄罗斯中将瑞桑瑟夫（Yakov Rezantsev）在南部城市赫尔松（Kherson）炮击中阵亡。
+
+综合美国有线电视新闻网（CNN）和英国广播公司（BBC）报道，瑞桑瑟夫是俄罗斯第49集团军最高指挥官。
+
+有西方官员说，他是第七名在乌克兰阵亡的俄罗斯将领，也是俄军在这次战事中阵亡的第二名中将。
+
+俄罗斯国防部尚未回应乌克兰的说法。
+
+美国CNN3月20日曾报道，俄罗斯黑海舰队副司令、一级舰长安德烈·尼古拉耶维奇·帕利（Andrei Nikolayevich Paly）在乌克兰南部港口城市马里乌波尔（Mariupol）地区的战斗中阵亡。
+
+这则消息获得两名俄罗斯官员塞瓦斯托波尔（Sevastopol）市长拉兹沃扎耶夫和塞瓦斯托波尔的俄罗斯议员阿尔塔巴耶娃证实。
+
+新闻链接：
+[乌军方：俄罗斯中将瑞桑瑟夫阵亡](https://www.zaobao.com.sg/realtime/world/story20220326-1256370)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

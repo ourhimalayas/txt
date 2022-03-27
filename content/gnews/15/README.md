@@ -2,29 +2,43 @@
 ---
 
 
-## 郭文贵精品视频-政治策略家论圣彼得堡的阴谋
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2237264/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237291/)
 
-撰稿：澳喜cindy
-![](https://assets.gnews.org/wp-content/uploads/2022/03/849DF313-4ABE-43E5-855E-93924798F5A6.png)
-俄乌局势紧张，俄罗斯继续无差别地狂轰烂炸。战争已持续一个月了。据报道：俄罗斯目前已有1.5万士兵和5位将军死亡，但仍然没有成功占领一个大的城市。
+整理：枳实
+美工：精灵蓝
 
-在这次俄乌战争中，中共虽未直接向俄罗斯提供武器，但是否提供资金、粮食补给、以及情报和通讯系统呢？中国的武器都来自俄罗斯，当然根本不用中国提供。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N25GZVUAF45LLEH0VM.png)图片：雅典娜农场设计组 精灵蓝
 
-据郭先生情报得知：在黑龙江、牡丹江、鸭绿江，属于俄罗斯的武器加工厂就达70多个，3011军工厂是100%俄罗斯拥有，因此全世界都会认为中国人是元凶而不是帮凶，俄罗斯则是被操纵的替死鬼。
 
-郭先生认为：接下来战争的走势有几种可能：第一，中国有可能直接参与战争；第二，中国作为调解国，习太阳作为担保人，对双方进行调解，普京以此对国内做交代，可能性超过50%；第三，波罗的海三国、白俄罗斯等都卷入战争，数千万人死亡，然后再回来谈判，可能性超过20%。
+雅典娜疫情更新（2022年 3月26日）
 
-俄罗斯已经认识到，现在要么核战，要么和解，但谈判和解一定要让中国扮演重要角色，这就是圣彼得堡阴谋。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/MNAS9G@I11P54UA1ZTGN.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-329.png)
+[2022年3月26日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月26日改进.pdf)
 
-俄方的阴谋的意图可能是：抱团取暖，俄方自己的力量太薄弱，以防中共倒戈，放弃普京？
+数据来源：
 
-只要中国参与了调解，中国将被全世界金融制裁，中国将没有任何地方可以买到粮食，中国人走到全世界都会被当成元凶，乌克兰死亡的灵魂会找中国人算账，政治灾难将永不可挽回，中国人都将是战后最被恨的人。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-无论如何，习近平还没开战就已跟普京一道被欧美称为“战犯”了！郭先生预判普京的下场要么被他自己放的核导弹炸死，要么被内部人做掉。如果是这样的话，这将促使习近平身边的人干掉习。如不干死独裁，中国老百姓将受到国际严厉经济制裁，缺粮缺各种物资，就将出现重大的人道灾难。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-*发搞：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

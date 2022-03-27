@@ -2,43 +2,66 @@
 ---
 
 
-## 【G时新闻】拜登：普京使用化学武器将引发北约的反击
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2237352/)
+## 2022年3月26日G-Clubs年会摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2237383/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-作者：加拿大温哥华扬帆农场 – 播报：悠然 – 视频制作：文雅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220326_副本.jpg)
+视频连接：[G CLUB2022年年会](https://gettr.com/streaming/p11z7ye4d5a)
 
-美国总统乔·拜登（Joe Biden）在周四（24日）的新闻发布会上向全世界保证，如果俄罗斯总统弗拉基米尔·普京（Vladimir Putin）在乌克兰使用化学武器，北约将作出反击。
+1、有G-Clubs卡的战友们一定要给父母，爱人，及亲人买，这是今天参加年会最有意义的事情；
 
-“这将引发一种反击；反击的性质将取决于使用的性质。”拜登在被记者问及普京使用化学武器是否会促使北约采取行动时，回答说。 但总统犹豫了一下，没有说具体的反击是什么。
+2、G-Fashion用是老的鳄鱼皮，会有证明文件，稀有时间的艺术品；
 
-“无论你问的是北约是否会越过……我们会在当时做出这个（反击）决定，”他说，在回答时犹豫不决。
+3、文贵先生刚刚爆料，今天G-Clubs年会直播用的是新G-TV直播平台；
 
-白宫一直拒绝说使用化学武器将是美国的一条“红线”，因为前总统巴拉克·奥巴马（Barack Obama）在叙利亚承诺采取行动后，却并没有。
+4、第一辆奔驰，新西兰奥克兰伊甸农场：梦田#6641；
 
-拜登在新闻发布会上承认，制裁对普京没有威慑力，但希望在俄罗斯入侵乌克兰事情上，施加尽可能多的经济制裁。
+5、第二辆奔驰，洛杉矶盘古农场: 郁金香#8584；
 
-总统拜登在与欧洲领导人和北约联盟领导人会晤后夸耀了他的外交政策经验。
+6、第三辆奔驰，日本银河系农场：舔刚毛#5512；
 
-他说：“我处理外交政策的时间比现在参与这一进程的任何人，都长。”
+7、价值$80000白色鳄鱼皮夹克，纽约香草山农场：推墙的人#9308；
 
-拜登多次警告说，普京很可能会使用化学武器，但拒绝分享任何情报来证明这种威胁。
+8、价值$80000黑色鳄鱼皮夹克，扬帆农场：跟随七哥定点清除#5606；
 
-“我认为这是一个真正的威胁，”他在离开白宫前往欧洲时说。
+9、价值$80000蓝色鳄鱼皮夹克，盘古农场：海阔天空#9646；
 
-盖特链接：[https://gettr.com/post/p11y1pf7ec5](https://gettr.com/post/p11y1pf7ec5)
+10、总后台草根小哥，魔女，文贵先生，代表老郭家，现在郭姓是中共国第一敏感姓氏；
 
-编辑/发文 – 春雨
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+11、第四辆奔驰，获奖者来自日本银河系农场；
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+12、拜登要和泽连斯基在华沙会面；
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+13、中共国内部开始讨论要不要抛弃俄罗斯和美国站在一起时，习近平决定坚持和普京站在一起，干掉西方；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+14、兰博基尼，终极大奖，纽约香草山农场：铲共骑侠#9827；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

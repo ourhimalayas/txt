@@ -2,43 +2,19 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237291/)
+## 郭文贵精品视频-中共控制中东能源就是要能源人民币化
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/2237324/)
 
-整理：枳实
-美工：精灵蓝
+撰稿：澳喜cindy
+![](https://assets.gnews.org/wp-content/uploads/2022/03/849DF313-4ABE-43E5-855E-93924798F5A6.png)
+最近的中东局势正如郭先生一个星期前预判的那样：中共将用其最擅长的挑拨离间手段，挑起中东各国之间的矛盾，使其产生互相乱战。在各方打得不可开交的时候，中共出来做和事佬，从而骗取各方的信任和感恩，并把祸端甩锅给美国人。从而获得自己最大的利益- 能源的控制权。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N25GZVUAF45LLEH0VM.png)图片：雅典娜农场设计组 精灵蓝
+中东各国接受人民币石油化，对美国的美元地位发起挑战，然后再把人民币变成完全中心化的数字人民币，中共就可以任意洗钱。当中共羽翼丰满之时就开始向欧美摊牌。以“世界第一大负责任的党”自居，重组联合国。此时，美国再制裁都不起作用了。那时，中共早已不用美元了。反而中共控制了中东的能源，可以不给欧美油、气。这就是中共正在实施的中东“潘多拉魔盒”的灭掉美国的计划。
 
+习要趁乱控制中东能源，而把中东能源人民币化是其核心宗旨。习不会因为俄罗斯在乌克兰受阻等问题就不打台湾了。打台湾就是要抢夺芯片，打垮美国的技术供应链，及控制欧美的中东天然气供应链。到那时，世界的金融系统市场将崩盘，社会秩序崩盘，供应链都将会出大问题。到时候所有人都会找中国算账。只有新中国联邦人能帮助世界解决最根本的祸根，灭掉中国共产党！
 
-雅典娜疫情更新（2022年 3月26日）
-
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/MNAS9G@I11P54UA1ZTGN.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-329.png)
-[2022年3月26日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月26日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*发布：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
