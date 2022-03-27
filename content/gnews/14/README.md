@@ -2,37 +2,34 @@
 ---
 
 
-## 确认：失事的东航飞机上132名乘客全部遇难
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237717/)
+## 有声|俄乌战争后效应，外资大规模撤离大陆
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2237807/)
 
-翻译与编辑：冰糖葫芦喵
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-1.png)
+【大纪元3月25日讯】 国际金融协会的最新报告显示，自俄罗斯向乌克兰开战以来，外资正在以前所未有的规模从中共国大陆撤离。海外投资者担心，美国和欧盟对俄罗斯的制裁可能以某种方式蔓延到中共国大陆。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-16.jpg)近期外资撤离中国的步伐呈现加快趋势，对中国产业经济的影响非常巨大。 (Lam Yik Fei/Getty Images)
+境外投资者本月已抛售95亿美元的中共国大陆股票。据华尔街日报报导，截至3月24日，3月份通过陆股通流出中共国大陆的资金可能创下2014年该机制启动以来第二大月度流出量。
 
-《英国卫报》3月26日报道，**中共国民航局表示，本周在中共国广西梧州市山区坠毁的东航MU5735航班上的132名乘客已经确认全部遇难。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/东航全部遇难-scaled-e1648344208348.jpg)东方航空5735号航班132名乘客全部遇难（图片来源：网络）
-许多遇难者家属已经等待了几天，救援队伍在森林密布的山坡上搜寻飞机残骸和周一坠机事故的幸存者迹象。
+报导分析指，众多的跨国企业之所以如此快速对侵乌战争做出回应，部分原因是对这场社交媒体全球动员的最热战争的反应攸关企业形象，而许多大企业的执行长官都公开承诺，要全力投入企业社会责任。
 
-报道称，中共国民用航空局官员在新闻发布会上表示，**3月21日，中国东方航空公司MU5735航班的123名乘客和9名机组人员全部遇难。其中，120名受害者的身份已经通过DNA鉴定确定。**
+南卡罗来纳大学、国际商业教授马可斯表示，若中共犯了与俄罗斯同样错误，发动残暴战争，企业也不能视而不见，否则将会得罪更大范围的世人。
 
-航空官员证实，他们**发现了一个据信是驾驶舱语音记录器的黑匣子，这应该会为坠机原因提供重要线索。**
 
-据这一事件令航空管理部门表示，他们在崎岖的地形中搜寻证据，几乎可以肯定，**这是中共国近30年来最致命的一起空难**。
 
-**郭文贵先生在3月23日大直播中爆料，欧洲技术专家根据相关数据分析，中共波音737飞机坠毁是一场蓄谋已久的报复式自杀事件。**
+[【援引连结】](https://www.epochtimes.com/gb/22/3/25/n13673050.htm/amp)
 
-郭先生还说，根据当事人留给中共的遗言，**因其财产被骗，家人收到虐待。一家人因接种疫苗后，害怕疫苗副作用给自己和家人带来疾病与死亡**，所以当事人精心策划这起自杀性飞机坠毁事件。
-
-新闻来源链接：
-
-[All 132 people on board crashed China Eastern plane confirmed dead | China | The Guardian](https://www.theguardian.com/world/2022/mar/26/all-132-people-on-board-crashed-china-eastern-plane-confirmed-dead)
-
-[(7) 2022年3月23日 文贵大直播【精选3】当全世界都认为中共是元凶的时候中国人会很惨；很多国家都在准备粮食，粮食将会出问题；台湾最大的问题是卖台贼 – YouTube](https://www.youtube.com/watch?v=wq8pswtw4-g)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,11 +2,16 @@
 ---
 
 
-## 20220325文贵大直播：这个世界很疯狂，正与邪都看不清，真的连猪狗都不如！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237569/)
+## 20220325文贵大直播：喜币进入实体店，意义重大
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237610/)
 
 作者：东京樱花团小视频组
 
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

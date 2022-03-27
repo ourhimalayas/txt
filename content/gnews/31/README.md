@@ -2,23 +2,42 @@
 ---
 
 
-## 樱花时政┃塔利班禁止无男性监护人的女性乘坐航班
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237143/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237291/)
 
-撰稿：东京樱花团/加一颗稻草
+整理：枳实
+美工：精灵蓝
 
-巴基斯坦伊斯兰堡，美联社，两名阿富汗航空公司官员周六表示，阿富汗塔利班统治者拒绝让数十名女性登机，其中包括一些海外航班，因为她们在没有男性监护人的情况下旅行。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-18.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/16297c8fff9845029618866cdbb6cbb0/3000.jpeg)
-由于害怕塔利班的影响而不愿透露姓名的官员说，数十名周五抵达喀布尔国际机场登上国内和国际航班的女性被告知，如果没有男性监护人，她们不能这样做。 据其中一名官员称，其中一些女性是返回海外家园的双重国籍，其中一些来自加拿大。官员们说，女性被拒绝登上Kam Air和国有的阿丽亚娜航空公司飞往伊斯兰堡、迪拜和土耳其的航班。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N25GZVUAF45LLEH0VM.png)图片：雅典娜农场设计组 精灵蓝
 
-一位官员说，该命令来自塔利班领导层。这位官员说，到周六，一些独自旅行的女性获准登上阿丽亚娜航空公司飞往西部赫拉特省的航班。然而，当他们获得许可时，他们已经错过了航班，他说。
 
-消息来源：[Officials: Taliban blocked unaccompanied women from flights](https://apnews.com/article/afghanistan-travel-business-pakistan-lifestyle-febfbef58116fd063e1a5ef780762e56)
+雅典娜疫情更新（2022年 3月26日）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/MNAS9G@I11P54UA1ZTGN.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-329.png)
+[2022年3月26日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月26日改进.pdf)
 
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

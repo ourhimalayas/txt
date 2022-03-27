@@ -2,28 +2,38 @@
 ---
 
 
-## 乌西大城利维夫遭袭击 燃料库被毁酿5伤
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237889/)
+## 有声|波兰驱逐45名冒充外交官俄罗斯间谍俄扬言报复
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238006/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-乌克兰西部城市利维夫（Lviv）26日遭到4枚火箭弹袭击，其中两枚击中一个燃料库，导致5人受伤。《路透》报导指出，这是自俄罗斯入侵以来对利维夫最重大的攻击。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据中央社23日报道，波兰内政部长卡明斯基今天宣布，波国“驱逐了45名冒充外交人员的俄罗斯间谍”。俄方已表明其外交官若遭驱逐，将进行报复。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-2022-5.jpg)图片来源: 网络
+国内安全局发言人札林（Stanislaw Zaryn）称：“国内安全局已制订了一份45人名单，这些人以外交活动为掩护，在波兰工作。”他在推特上说45名人员名单已交给外交部， “ABW要求将他们驱逐出波兰领土。”这位发言人在推文补充说犯嫌的活动对波兰内部和外部安全皆构成威胁。 卡明斯基（Mariusz Kaminski）也在推特上发文称：”我们正在拆除我们国内的俄罗斯特工网路。”波兰反间谍机构“国内安全局”（ABW）表示，已确认45名俄罗斯外交人员涉嫌担任间谍，要求波兰外交部将他们驱逐出境。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxOd1ul.jpg)图片来源：路透
+俄罗斯新闻社（RIA）援引俄国外交部的话报导，如果俄罗斯外交人员遭波兰驱逐出境，俄方将进行报复。
 
-根据《路透》报导，利维夫州州长柯齐斯基表示，两枚火箭弹击中一个燃料库后导致5人受伤，另外两枚则是击中了一家兵工厂。由于利维夫距离波兰边境仅有60公里，利维夫市长萨多维在记者会中指出，俄军今日的攻击行动是在向人在波兰的美国总统拜登「致意」，而且俄军是从2014年被并吞的克里米亚塞瓦斯托波尔（Sevastopol）发射的。
 
-简评：死猪不怕开水烫，将死之人甚癫狂！俄军从克里米亚发射火箭弹向来波兰的拜登“致意”，来表明普京誓吞乌克兰的野心。明明是老虎在玩狗子，狗子却逞强的挑逗老虎，老虎动口之日就是狗子呜呼之时，等拜登总统玩腻了，普京离成为丧家犬不远了。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3873049](https://news.ltn.com.tw/news/world/breakingnews/3873049)
+文字版原文：[波兰驱逐45名冒充外交官俄罗斯间谍俄扬言报复](https://gnews.org/zh-hans/2235646/)
 
-撰稿/发布：一叶知秋
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

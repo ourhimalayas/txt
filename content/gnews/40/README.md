@@ -2,24 +2,39 @@
 ---
 
 
-## 路透社报道 中国石化中止了与俄罗斯企业的合资协议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236731/)
+## 俄罗斯暗示可能将退守乌东部地区
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236792/)
 
-翻译：zicoround
+翻译：wenwu
+
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
-【日经新闻 北京 多部田俊輔】据路透社报道，中共国有石油巨头中石化集团（Sinopec Group）已中止与俄罗斯石化公司西布尔（Sibur）的合资企业协议。 尽管反对欧美等国家的经济制裁，但因担忧制裁可能会影响中俄间的合资企业，中共国政府已敦促相关企业对其在俄业务保持谨慎。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3182.png)图片来源：日本经济新闻
-中石化已中止了与西布尔公司就其考虑投资5亿美元（600亿日元）建设的新石化厂协议。 两家公司已建立了一家中石化持股40%合资企业，计划2024年将一家利用当地天然气的石化厂投入运营，正在考虑扩大合作。
 
-据相关人士称，除中石化外，中国石油天然气集团公司（CNPC中石油）和中国海洋石油总公司（CNOOC中海油集团）这三家国有石油巨头正在评估其在俄业务的状况。中共国政府已指示它们对收购俄罗斯资产保持谨慎
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1000-3.jpg)图片来源：美联社
 
-参考链接：[中国石化、ロシア企業との合弁協議を中止　ロイター報道: 日本経済新聞 (nikkei.com)](https://www.nikkei.com/article/DGXZQOGM25DF30V20C22A3000000/)
+官员们周五（25日）表示，乌克兰境内的俄罗斯部队似乎已经将他们的重点从针对首都基辅的地面进攻，转移到优先考虑莫斯科所谓的解放乌克兰工业东部有争议的顿巴斯（Donbas）地区，这表明战争进入了另一个的阶段（译者注：俄罗斯死伤过大而选择退守）。
+
+现在说这将导致什么，似乎还为时过早。弗拉基米尔·普京（Vladimir Putin）总统是否已经缩减了他的野心，以寻求战争的出路？一些俄罗斯军队最近在基辅附近采取的掘地三尺的防御工事表明，他们认识到了乌克兰令人惊讶的顽强抵抗。
+
+一位美国分析人士说，另一方面，俄罗斯军队可能旨在以更狭窄的重点继续进行战争，不一定是作为终局，而是从早期的失败中重整旗鼓，将顿巴斯作为一个新的台阶。
+
+普京的部队在该国许多地方面临巨大压力，美国和其他国家正在加速向乌克兰[转让武器和物资](https://apnews.com/article/russia-ukraine-biden-business-warsaw-europe-c905f43858e7966afb3b6cbfbed82b46)。最近几天，美国官员表示，他们看到了乌克兰保卫者在一些地区以有限的方式展开攻势的证据。本周早些时候，他们设法袭击了黑海沿岸港口的一艘大型俄罗斯船只。
+
+**新闻来源：**[apnews.com] [Russians shift focus from Kyiv — scaling back goals in war?](https://apnews.com/article/russia-ukraine-putin-europe-nato-971463587011b3bf19dde7abb35889ad) |发布时间：2022年03月25日
 
 * * *
 
-审核：BryanW
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
+审核：文乐
+校对：阿伯塔
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-15.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

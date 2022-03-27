@@ -2,21 +2,18 @@
 ---
 
 
-## Gclub年会26日举办 奖品丰厚
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235926/)
+## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
 
-作者：澳喜农场 Leo M
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-3月25日文贵大直播透露，2022年的Gclub年会将在3月26日举办。年会将举办抽奖活动，已在线登记参与抽奖的卡约8000张，奖品金额大约200万美元，数量超过1000个。
-![](https://cdn.discordapp.com/attachments/714848986988544060/931788430185222154/2021-Huracan_EVO_Fluo_Capsule-5.png)
-郭先生介绍，按金额计算，美国的抽奖活动普遍来说中奖率为万分之一，最高的可以达到千分之一。有推友计算得知，Gclub年会的中奖率是这个最高中奖率的5（全部买的是5万卡）到25倍（全部买的是1万卡），而且Gclub会员每年都可以抽奖。
+撰稿：东京樱花团/樱花传媒
+![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
 
-郭先生表示，相比于中共国的福利彩票等把奖品都私下安排好的假的抽奖活动，Gclub年会的抽奖是真实的，有很高的命中率，每个人都可以亲身体验到抽奖的快乐。
+信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
 
-分析人士指出，由于Gclub会员能够以折扣价购买GFashion，而随着喜币的流通进入GFashion等全球实体店，G系列正在产生意义重大的联动效应。
-
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
-
+*编辑：东京樱花团/asket、天路天道（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**

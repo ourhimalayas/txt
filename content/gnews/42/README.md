@@ -2,29 +2,30 @@
 ---
 
 
-## 三大巨头银行集团全面停止与俄罗斯最大银行的美元交易…日企和员工使用占多
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236633/)
+## 乌俄首次换囚！19名蛇岛「X俄」勇士获释
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2236151/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-19.jpg)
-三菱UFJ、三井住友、瑞穗三大银行集团26日起，决定全面停止与俄罗斯最大银行俄罗斯联邦储蓄银行的美元交易。配合美国政府在对俄罗斯联邦储蓄银行加入制裁对象一事步调一致。今后与俄罗斯直接以能源为主用美元结算的贸易，需要能够替代美元的汇款途径。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+根据乌克兰议会表示，在总统泽伦斯基的命令下，乌克兰将从沉船中救出的11名俄军，换回19名驻守在蛇岛（Zmiinyi Island），曾怒呛「俄罗斯军舰，去你X的！」的乌军，而这也是双方首度达成换囚协议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3175.png)图片来源：雅虎新闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/563075c7-2c24-42e6-8341-c8fa98da9207.jpg)图片来源：Verkhovna Rada of Ukraine – Ukrainian Parliament
 
-三家集团各自的相关人员透露，美国政府将从美国时间3月26日起，停止俄罗斯联邦储蓄银行及其25家子公司银行间结算和汇款等交易。三家集团根据美国实施制裁的宗旨，决定在俄罗斯与日本的交易中也采取同样的措施。其中三菱UFJ停止了与俄罗斯之间除日元外的所有外币交易。
+当时乌克兰最初表示，蛇岛的所有部队已经阵亡，后来才澄清多名守军仍活着，但遭到俄罗斯俘虏。
 
-此前，这三家集团已经停止与被踢出国际结算网（SWIFT）的俄罗斯第二大VTB银行和俄罗斯银行等金融机构的所有货币交易。不受制裁的俄罗斯联邦储蓄银行是向俄罗斯汇款为数不多的渠道之一。
+乌克兰边防局表示，官员一直在努力解救蛇岛的士兵，「我们的士兵将搭乘蓝宝石号返回家园，该船曾遭俄罗斯占领者夺走，而据双边所签订的交换条款，蓝宝石号也将返回乌国，随后转送至土耳其的港口。」
 
-俄罗斯联邦储蓄银行是由进驻俄罗斯的日企及其员工使用的。作为制裁对象之外的能源以美元交易居多，如果不能汇款，将对日本企业的贸易产生大范围影响。在这种情况下，设在俄罗斯的欧洲银行被视为替代渠道。
+简评：作为敌对双方换俘虏11比19，数字上乌克兰赢了；乌克兰善待俘虏，被俘虏的俄军估计不想回去为普京卖命了，被换回的乌军祖国一直关心着他们，人心上乌克兰也赢了。祝福「X俄」勇士们重获自由，11名俄军则重回地狱！
 
-参考链接：[３メガバンクＧ、ロシア最大手銀とのドル取引を全面停止へ…日系企業や従業員利用（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4a05a5e1b21d6ecb60c43f8aa69434cf33d4dac0)
+新闻来源：[https://news.ttv.com.tw/news/11103260001000W](https://news.ttv.com.tw/news/11103260001000W)
 
-* * *
+撰稿/发布：一叶知秋
 
-审核：BryanW
-校对：天天
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

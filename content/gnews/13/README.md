@@ -2,8 +2,8 @@
 ---
 
 
-## 20220325文贵大直播：所有中国飞机里面都装了一个额外的即时回传录音录像装置
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237748/)
+## 20220325文贵大直播：喜币让人真正实现劳动获得的财富不受掠夺
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237815/)
 
 作者：东京樱花团小视频组
 
