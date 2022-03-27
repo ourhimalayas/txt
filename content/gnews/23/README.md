@@ -2,20 +2,23 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾（3月16日至23日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241195/)
+## 天基移动电话网络公司将发射测试卫星
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241194/)
 
-作者：DC农场–火来
+作者：纽约香草山农场 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月16日至3月23日，除中共国外，全球新增中共病毒确诊患者1154万余例，同比上周下降了6.63 %；此外，本周新增确诊死亡病例超过34313例，同比上周下降了11.1%。本周，全球新增确诊病例数和新增确诊死亡病例数均较一周前略有下降。截至3月23日，除中共国外，全球累计接种了80.4亿剂中共病毒疫苗，同比16日的累计接种数据增长了0.886%.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.15.png)
-3月16日，美国新罕布什尔州议会投票通过关于伊维菌素使用的法案，法案规定伊维菌素在新州为非处方药，在美国，新州将率先成为无需处方便可在药店购买伊维菌素的州。3月18日，继辉瑞公司之后，莫德纳公司也向美国FDA提交了针对成年人的第二剂中共疫苗加强针的使用许可申请，3月23日，莫德纳进而发表声明表示，希望FDA能够将第二剂加强针的使用许可扩大到6岁以下的儿童。3月22日，白宫官员称，美国目前没有足够的经费为全美国人提供免费的第二剂中共病毒加强针。3月22日，辉瑞宣布将通过联合国儿童基金会，向贫穷国家发放四百万份辉瑞研发的治疗中共病毒的药物Paxlovid，并且已经有超过30家公司申请生产Paxlovid的仿制药。
+目前，唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署了一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间科技的蜂窝宽带网络。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.08.png)
+据悉，该公司总部位于美国德州，其计划在今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来与手机进行标准频率通信，并将在未来发射BlueBird卫星。
+
+其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。基于太空网络科技的新兴通信技术，不但会改写现有移动通信系统，而且会彻底消灭中共等独裁政权蒙蔽民众的网络防火墙。
+
+参考链接：[Space-based mobile phone network AST SpaceMobile signs launch deal with Elon Musk rocket company SpaceX](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-编辑：Zion 文恩
-总编：Zion 文恩
-审核：Zion 文恩
+总编：Zion文恩
+审核：NFSCNews 科技组
 校正/发稿：呼吸的雾霾（文小呼吸）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

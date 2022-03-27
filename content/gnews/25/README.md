@@ -2,26 +2,33 @@
 ---
 
 
-## 俄乌开战后 拜登首次会见乌克兰外长防长
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241193/)
+## 【G时新闻】乌国防部脸书：俄军战损惨重
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2241085/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒报道，3月26日，美国总统拜登在波兰首都华沙，会见了乌克兰外长与防长。这是自俄乌战争爆发以来，拜登首次与乌克兰高层面对面会谈。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.03.png)
-据悉，拜登总统在国务卿布林肯、国防部长奥斯汀的陪同下，在华沙的万豪酒店会见了乌克兰外交部长库列巴、乌克兰国防部长列兹尼科夫。
+![此图像的alt属性为空；文件名为111111.png](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+作者：加拿大温哥华扬帆农场 – 播报：七彩虹 – 视频制作：Gracelshan
 
-另据报道，拜登将在会谈之后发表重要演说。白宫安全顾问苏利文表示，拜登总统的演讲包括未来挑战的紧迫性、乌克兰战事意味着什么，以及自由世界团结面对俄罗斯侵略的重要性等内容。
+据ukrinform网站 3月26日报道，乌克兰国防部的脸书（Facebook）账号公布的俄罗斯军队战斗损失数据显示，俄军战斗减员约16,4000人，损失575辆坦克。
 
-参考链接：[烏俄衝突以來首次 拜登會見烏克蘭外長防長](https://news.ltn.com.tw/news/world/breakingnews/3872880)
+截至脸书发帖时，俄军战损数据还包括：1，640辆装甲运兵车，293个火炮系统，91个多管火箭发射系统（MLRS），51个防空作战系统，117架飞机，127架直升机，1,131辆车辆，7艘舰艇，73个油箱，56个作战和战术级别的无人机，19个特种装备单位和2个移动短程弹道导弹（SRBM）系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+乌克兰国防部表示，由于俄乌战争仍在继续，数据将持续保持更新。
 
-编辑：文真
-总编：Zion文恩
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在另一篇Gnews文章中报道自2月24日俄罗斯总统普京宣布开始全面入侵乌克兰以来，已有6位俄罗斯将军，一位黑海舰队副司令被击毙。超过25%的在乌克兰战场的俄军将领被斩首。
+![此图像的alt属性为空；文件名为111111.png](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+上传：兴旺
+
+视频链接：https://gettr.com/post/p1225te6807
+
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

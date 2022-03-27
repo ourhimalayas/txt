@@ -2,30 +2,32 @@
 ---
 
 
-## 樱花时政┃美贸易代表继续对中共国施压
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239448/)
+## G-FASHION开始接受使用HPAY以HDO购物
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239438/)
 
-撰稿：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
-在本月23日美国贸易办公司宣布重新豁免352项中共国进口商品关税后不久，拜登政府再次就贸易问题对华施压。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-42.jpg)
-据路透社3月25日报道，美国贸易代表戴琪本周接受该媒体采访时称，美国不会再“袖手旁观”（sitting on its hands），将以更积极的态度向世界第二大经济体中共国施压，要求其改变美国所谓“扭曲市场贸易”做法。戴琪声称，美国正准备采取一种新的对华贸易政策，通过更新的、更有效的措施来捍卫自身经济利益，更好地与中共国竞争，但她并未提供具体细节。“我们不会停止敦促和挑战中共国，让中共国进行改革和变革。但我们没办法继续袖手旁观，坐等中共国做出决定。我们需要翻开游戏规则新的一页。”戴琪说。
+撰稿：纽约香草山医疗部-云豹；银河系农场-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
+3月25日，郭文贵先生在大直播中表示，G-FASHION公司从3月24日开始，正式接受消费者使用HPAY支付平台以H DOLLAR数字货币购买该公司设计出品的高品质时尚服饰，创下了数字货币在使用、流通上的新的里程碑。从后台战友的演示中我们可以看到，操作很快就可以完成，能给客户带来完美的购物体验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3200.png)
+第一代虚拟币比特币打开了人类非实体性货币的视野，但是它所标榜去中心化的特性也使其沦入无人管理、无人负责的困境，只被炒家拿来做为投机金融系统的工具。 第二代虚拟币虽然改善了比特币的少许缺点，但一样无法满足做为流通性货币的要求。
 
-美国贸易办公室释放的“豁免部分中共国进口商品关税”的信号在本月23号，让中共先可以对墙内群众暂时洗脑一下，突然间对中共国继续施压的极速转弯，拜登政府的老牌政客懂得如何玩中共，此次他的波兰的访问及公开讲话，表面说普京及俄罗斯实际是在警告中共“柏林墙已经到了，就像当年里根总统访问德国一样”。只不过拜登这次是杀“俄罗斯”给“中共”看。中共倒塌的日子屈指可数了……
+喜联储发行的喜美元HDO及喜币HCN，采行严格的KYC审核制度，在开户阶段就先排除了有问题的客户。并用新的区块链技术来达到保障客户隐私及快速转款的实用性要求。 这是目前唯一具有区块链技术加密优点，又兼具市场实用流通性及可监管性的数字货币。 此次G-FASHION开放使用HPAY及H DOLLAR的方式支付货款，将开启数字货币的新纪元。
 
-消息来源：
-[美国贸易代表：美国将加大对中共国的施压](https://baijiahao.baidu.com/s?id=1728375312023381554&amp;wfr=spider&amp;for=pc)
+从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到解放。
 
-[Remarks As Prepared for Delivery of Ambassador Katherine Tai Outlining the Biden-Harris Administration’s “New Approach to the U.S.-China Trade Relationship”](https://ustr.gov/about-us/policy-offices/press-office/speeches-and-remarks/2021/october/remarks-prepared-delivery-ambassador-katherine-tai-outlining-biden-harris-administrations-new)
+参考链接：
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+[如何使用HPay在GFashion网站上买商品](https://gettr.com/post/p11w6er414b)
+
+[2022年3月25日 文贵大直播](https://gettr.com/post/p11tme3b4de)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1.png)
+
+编辑/总编/审核: 飞虹
+
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
+
 
  
 

@@ -2,22 +2,28 @@
 ---
 
 
-## 中共国近20家房企以各种原因延迟披露年报
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2241491/)
+## 俄罗斯军队因伤亡正在重新整合
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2241505/)
 
-编辑：文宝
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F3dd2e62aj00r9cjuw0020c000u000lig.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-南方+房产频道记者获悉，又有更多南方产业智库上市房企60健康指数重点监测要延迟披露年报了。3月25日，大悦城（000031.SZ）发布公告称，大悦城控股集团股份有限公司原定于2022年3月30日披露2021年年度报告，因受新冠肺炎疫情影响，2021年度审计工作和年度报告编制工作预计完成时间晚于预期。为确保公司信息披露的完整性和准确性，经向深圳证券交易所申请，公司2021年年度报告披露时间由2022年3月30日变更为2022年4月12日。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-就在大悦城发布公告同一天，中国奥园（03883.HK）亦发布公告称，2021年度业绩可能无法遵守上市规则第13.49(1)条的规定于2022年3月31日前刊发。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
-根据媒体公开报道，截至目前，以种理由申请或预警延期发布财报的涉房类企业已达近20家，包括大悦城、奥园、新力控股、融信中国、融信服务、富力地产、世茂集团、世茂服务、融创中国、中国恒大、恒大物业、恒大汽车、景业名邦、佳兆业、明发集团、宝龙地产、宝龙商业、三盛控股、阳光100中国等。
 
-原文链接：[https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w\_house](https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w_house)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4XGRTUDKKBNAXN4GYHGGGOHMBM.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-33.png)DISCORD
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-32.png)GETTR
+图片来源：路透社
+
+据乌克兰总参谋部称，许多俄罗斯部队正在白俄罗斯移动。与此同时，乌克兰北部切尔尼戈夫的居民不得不忍受没有电、水和暖气的情况。
+
+根据乌克兰方面的观察，在乌克兰的俄罗斯袭击者由于损失惨重，正试图重新整合。因此，乌克兰总参谋部在周日下午的报告中说，白俄罗斯的许多俄罗斯部队都在行动。其目的是取代缩小的部队，提供食物、燃料和弹药的供应，并将伤病士兵运走。该信息最初无法独立核实。
+
+同时，它说：“敌人正在继续对乌克兰进行全面武装侵略。” 俄罗斯军队继续试图占领北部的切尔尼戈夫市。东南部的鲁比什内、北顿涅茨克和马里乌波尔等城市的战斗仍在继续。据周六报道，总参谋部证实重新夺回了该国东北部苏梅附近的重要城镇特罗斯特贾内茨。
+
+🔗 [https://www.welt.de/politik/ausland/article237808799/Ukraine-Krieg-Russische-Truppen-gruppieren-sich-wegen-schwerer-Verluste-um.html](https://www.welt.de/politik/ausland/article237808799/Ukraine-Krieg-Russische-Truppen-gruppieren-sich-wegen-schwerer-Verluste-um.html)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -2,31 +2,40 @@
 ---
 
 
-## 【G时新闻】俄罗斯侵略战争造成430万乌克兰儿童流离失所
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2240944/)
+## 有声|Gclub年会26日举办 奖品丰厚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240666/)
 
-![此图像的alt属性为空；文件名为111111.png](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-作者：加拿大温哥华扬帆农场 – 播报：yuyu – 视频制作：Gracelshan
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月25日文贵大直播透露，2022年的Gclub年会将在3月26日举办。年会将举办抽奖活动，已在线登记参与抽奖的卡约8000张，奖品金额大约200万美元，数量超过1000个。
+![](https://cdn.discordapp.com/attachments/714848986988544060/931788430185222154/2021-Huracan_EVO_Fluo_Capsule-5.png)
+郭先生介绍，按金额计算，美国的抽奖活动普遍来说中奖率为万分之一，最高的可以达到千分之一。有推友计算得知，Gclub年会的中奖率是这个最高中奖率的5（全部买的是5万卡）到25倍（全部买的是1万卡），而且Gclub会员每年都可以抽奖。
 
-根据联合国儿童基金会3月24日的消息，俄罗斯入侵乌克兰一个月以来，已经导致430万乌克兰儿童流离失所，占该国儿童人口的一半以上。其中，超过180万儿童作为难民进入邻国，另有250万儿童现在仍在乌克兰境内东躲西藏。
+郭先生表示，相比于中共国的福利彩票等把奖品都私下安排好的假的抽奖活动，Gclub年会的抽奖是真实的，有很高的命中率，每个人都可以亲身体验到抽奖的快乐。
 
-联合国儿童基金会执行主任凯瑟琳·拉塞尔说，这场战争造成了二战以来短时间内最大规模儿童失去家园的凄惨境遇。这是一个严峻的里程碑，可能对子孙后代产生持久而深刻的影响，导致儿童的人身安全、基本福利，以及获得基本社会服务的机会，都受到无休止的威胁。
+分析人士指出，由于Gclub会员能够以折扣价购买GFashion，而随着喜币的流通进入GFashion等全球实体店，G系列正在产生意义重大的联动效应。
 
-拉塞尔说，在短短几周内，战争给乌克兰的孩子们带来了如此巨大的伤害，儿童迫切需要和平与保护。联合国儿童基金会应呼吁立即停火并保护儿童免受战争伤害。儿童赖以生存的基本基础设施，包括医院、学校和庇护平民的建筑物，绝不能受到攻击。
-![此图像的alt属性为空；文件名为image-2996.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
-上传：兴旺
 
-视频链接：https://gettr.com/post/p1219z6e758
 
-* * *
+文字版原文：[Gclub年会26日举办 奖品丰厚](https://gnews.org/zh-hans/2235926/)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
