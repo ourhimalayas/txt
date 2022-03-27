@@ -2,40 +2,30 @@
 ---
 
 
-## 澳洲急诊科及择期手术的等待时间出现飙升
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2240287/)
+## 普京可能试图强加乌克兰“朝鲜和韩国”企图
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2240318/)
 
-撰稿：Gradient Boost
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午9.21.42.png)图片来源：互联网
+乌克兰国防部情报部门负责人基里洛·布达诺夫旅长周日（27日）在Facebook上表示普京正在考虑乌克兰的“韩国”情景，即企图分裂乌克兰，认为乌克兰人民反击使普京计划很困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pexels-pixabay-263402-scaled.jpg)网络图片
-在新一轮爆发的Omicron变种病毒袭击澳大利亚的卫生系统后，急诊科的等待时间和择期手术的等待名单已经人满为患。
+乌克兰国防部主要情报局在[脸](https://www.facebook.com/DefenceIntelligenceofUkraine/posts/279413631036731)书（Facebook）上发表声明：“在基辅附近的失败和无法推翻乌克兰中央政府之后，普京已经在改变主要的作战方向——南部和东部。有理由相信他正在考虑乌克兰的“韩国”情景。就是试图在我国的无人区和被占领区之间划出一条线。实际上，这是在乌克兰制造朝鲜和韩国的企图。毕竟，他绝对不能吞下整个国家。”乌克兰国防部情报部门负责人基里洛·布达诺夫旅长说。【1】
 
-澳大利亚医学协会 (AMA) 的年度公共卫生系统报告了该国各州CCP病毒大流行对公共卫生系统所造成的损失。报告显示，目前澳大利亚有超过 754,000 人正在等待手术，等待手术一年以上的人数比例较过去增加了两倍。
+他坚信俄罗斯法西斯政权仍然与在克里米亚建立陆地走廊的问题有关。但实施该计划的主要问题是我们牢不可破的马里乌波尔，他已经削减了敌人的重要力量。【1】
 
-AMA 主席 Omar Khorshid 博士说，该报告详细说明了卫生系统所承受的巨大压力：“澳大利亚迫切需要为其公立医院系统制定恢复计划。我们需要适当的资金来清理积压的择期手术，并建立足够的能力来满足社区不断增长的需求。”
+“占领者将试图将被占领土统一为一个反对独立乌克兰的准国家实体。我们已经看到在被占领土上建立“平行”权力当局并迫使人们拒绝格里夫纳的努力。也许他们也想在国际上进行交易。但是我们公民在被占领土上的抵抗和集会，武装部队的反击和逐步释放 – 使敌人计划的实施大大复杂化。此外，乌克兰游击队的总季节即将开始。那么俄罗斯人将面临一个相关的场景——如何生存，”布达诺夫总结道。【1】
 
-其中一个关键问题是“隐藏等待名单”，它指的是在公立医院系统中等待专科医生的门诊病人患者数量。由于 Omicron 爆发期间对各医疗部门施加的限制，维多利亚州的居民现在正面临最长的非紧急择期手术等待时间。只有 62% 的二类患者（即需要在 90 天内接受治疗的患者）能够接受他们的择期手术。
+美国国防部高级官员在周五（25日）简报会上表示在乌克兰，俄罗斯的活动现在更关注顿巴斯而不是基辅。【2】
 
-由于去年CCP病毒的流行，塔斯马尼亚州也创下了非紧急择期手术的极长等待时间。目前在塔斯马尼亚州，有超过 59,000 名患者正在等待就诊于公共卫生系统的专家，其中部分患者需要等待近 800 天才能够见到神经外科医生——这还是在紧急的情况下。只有 36% 的第二类患者在 90 天内接受了手术。
+原文链接：
 
-截至目前，择期手术等待时间表现最好的地区是悉尼所在的新南威尔士州，超过 87% 的患者可以在 90 天内接受手术。
+【1】[普京可能试图强加乌克兰“韩国”情景](https://www.facebook.com/DefenceIntelligenceofUkraine/posts/279413631036731)
 
-*编辑：Gradient Boost*
+【2】[在乌克兰，俄罗斯的活动现在更关注顿巴斯而不是基辅](https://www.defense.gov/News/News-Stories/Article/Article/2979270/in-ukraine-russian-activity-now-more-focused-on-donbas-than-kyiv/)
 
-*发布：Gradient boost*
+* * *
 
-新闻参考链接：
-
-[9 News](https://www.9news.com.au/national/australia-health-system-buckles-under-pressure-elective-surgery-waiting-times-blow-out/6ee04980-06e4-4f7d-98dc-366e8732f399)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+*编辑&发布：长岛开心*
 
  
 

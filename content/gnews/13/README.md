@@ -2,40 +2,50 @@
 ---
 
 
-## 美国或将批准对老年人进行第四次CCP病毒疫苗接种
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2240238/)
+## 独裁者之死—萨达姆
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2240303/)
 
-撰稿：Gradient Boost
+作者：香草山写作组—静言
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1212D.jpg)
-据美媒报道，拜登政府很可能最早在下周为美国的老年人群体提供第二次CCP病毒疫苗加强针服务，也就是第四剂CCP病毒疫苗。
 
-两位熟悉政府计划的消息人士称，美国食品和药物管理局计划在下周授权50 岁以上的成年人接种第四剂辉瑞和莫德纳 mRNA 疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-11.png)
+伊拉克所在的地区在历史上被称为“美索不达米亚”，是人类文明摇篮中最早的一个。伊拉克的国教为伊斯兰教，大多数为穆斯林。伊拉克的社会具有多元性，至少由三个主体族群构成，分别是：萨达姆代表的的逊尼派，占45%左右；萨德尔代表的的什叶派，占40%；库尔德人占总人口大约15%左右。
 
-一位匿名的消息人士在接受采访时表示，预计美国疾病控制和预防中心很快就会提出所谓的“许可建议”，这意味着第四剂CCP病毒疫苗不会被正式受到推荐，但仍然可以提供给“需要的人”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8ab0f3c358fe93128ef6989894f62fad.jpg)图源网络
 
-加州斯克里普斯转化研究所所长Topol博士表示，任何想要接种第四剂CCP病毒的人都可以前往药房进行接种，只需说他们因为免疫力低下需要再来上一针——接种疫苗似乎变成了与购买维生素保健品和日用品等同的活动。
+伊拉克及整个中东周边等国都由逊尼派掌权。逊尼派自认为是正统派，什叶派是异端。虽然伊拉克什叶派人口也比较多，但逊尼派掌握着国家大权。
 
-这一计划的细节则首先是由《纽约时报》公开的。同时值得注意的是，目前提供第四剂CCP病毒疫苗的决定或将绕过 FDA 和 CDC 的独立科学顾问小组——这些机构通常会召开审查会议并根据评估结果提出建议。
+什叶派非常不满意逊尼派长期执政。在伊拉克近代时期，什叶派不断造反起义，在同属什叶派的伊朗支持下反对伊拉克逊尼派政府。萨达姆1979年上台以后，对于什叶派的反抗，独裁者萨达姆毫不手软，将什叶派进行肉体消灭。1991年和1999年，萨达姆政权两次残酷镇压什叶派暴动，屠杀了3万多什叶派民众，还对他们直接使用化学武器。
 
-根据部分学者的说法，接种第四剂CCP病毒疫苗的60岁以上以色列老年人相较仅注射三针的对照组能够额外获得三个月的“增强保护”。问题是三个月过去之后有该怎样呢？是否再申请给老年人群体注射第五针CCP病毒疫苗？这是否意味着每过一个季度，人们就需要注射新的CCP病毒疫苗？看来笔者过去估计的“一年一针”还是太过保守。
+萨达姆生活极度奢侈，自己兴建了二十多个行宫。他的两个儿子乌代和库赛，更是骄奢淫逸、无恶不作、疯狂挥霍，搞得伊拉克是乌烟瘴气。正是萨达姆的独裁暴政和家族式贪腐之风使得伊拉克走向灭亡。
 
-*编辑：Gradient Boost*
+对外，萨达姆随着自己总统地位的稳固和对权利欲望的飙升，想进一步统一阿拉伯世界，摆脱美国，发起一系列侵略行动，如：1990年发动科威特战争，入侵了美国庇护下的科威特，掠夺石油，触动了美国的底线。五个月后，美国带领联军发动海湾战争，将伊拉克军队赶出科威特。
 
-*发布：Gradient Boost*
+2003年，萨达姆被美俘虏后政权垮台，逊尼派不甘心失败形成反美实力，出现了诸如伊斯兰国这种极端势力。为了对付伊斯兰国和逊尼派极端分子，美国开始借助什叶派和库尔德人对萨达姆极为痛恨的力量，选择在宰牲节这天，2006年12月30日，把萨达姆绞死。
 
-新闻参考链接：
+曾目睹行刑过程的官员说，六十九岁的萨达姆，被黑布包住脖子，套上粗麻绳，被引导走向绞刑台。曾遭其迫害的什叶派欣喜雀跃，纷纷上街手舞足蹈并呜枪庆祝；伊拉克官员和行刑人员其后围着尸体手舞足蹈。行刑地点是在巴格达北区萨达姆时代军事情报总部，极具象征价值，因为那里曾是萨达姆政权下的刑求和行刑中心之一。
 
-[9 News](https://www.9news.com.au/world/coronavirus-us-updates-us-to-permit-second-booster-vaccine-shots-for-older-adults/3ef03a2b-d353-4a75-ab4f-f96c547386bb)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
+参考来源“
+1.[伊拉克](https://zh.wikipedia.org/wiki/伊拉克)
+2.[当初为什么要杀死萨达姆](https://wukong.toutiao.com/question/6626322711482204419/)
+3.[萨达姆伏法 临死不改桀骜不驯本性](https://www.epochtimes.com/gb/6/12/31/n1574266.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-69.jpg)
+
+
+
+编辑/校对/发稿：兰兰
+
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-12.png)
+
 
  
 

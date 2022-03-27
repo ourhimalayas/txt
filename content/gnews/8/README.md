@@ -2,64 +2,41 @@
 ---
 
 
-## 天主教NFL踢球手说宁可退役也不打疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2240308/)
+## 有声|中共联合国投票彰显对俄罗斯的支持
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240332/)
 
-编译： Jenny Ball
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月24日，据多家媒体报道，在联合国大会当天举行的第11届紧急特别会议的第二次会议投票中，由乌克兰提交的有关该国人道问题的决议获得了通过。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-11.jpeg)
+资料显示，该决议由包括乌克兰、美国和英国在内的61个国家联合发起，决议旨在推动在当地建立人道主义走廊的进程，同时要求俄罗斯停止战斗并尽快撤军。此外，决议中也指责称，俄罗斯对乌克兰的军事行动已经造成了严重的不人道主义后果。 会上，该决议以140票赞成顺利得到了通过，而仅有的五张反对票中就包括了战争发起国俄罗斯。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-22.jpg)
+值得注意的是，中共在此次投票中选择了弃权，但在前一天的联合国安理会上，中共却坚决支持俄罗斯发起的类似草案决议，其是除俄罗斯外唯一投赞成票的国家。有报道提及，俄罗斯的决议草案中没有涉及对发动战争的俄罗斯追责的条款。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3245.png)堪萨斯城酋长队的哈里森·巴特克（Harrison Butker） 图片来源：Jamie Squire/Getty Images
+早先，郭文贵先生曾在直播中示警称，中共在此次俄乌战争中的拙劣表演可能会导致中国人在接下来的百年中为世界所憎恶。对此，分析人士指出，这两次联合国投票已经彰显了中共为虎作伥的行为，其或将再次为今后的排华危机埋下祸根。
 
-堪萨斯城酋长队的一名天主教超级碗冠军球员表示，他宁愿离开 NFL，也不愿接受冠状病毒疫苗注射。
 
-哈里森·巴特克说，与他听说的其他球队相比，酋长队更愿意接受个人对疫苗和口罩的决定。
 
-“我认为我们不应该在一个国家……我们必须决定……我是否必须接受这个东西，我是否必须把这玩意戴脸上只是为了…… 像正常人一样生活，”巴特克在 3 月 20 日的“脱离”（Breakaway）节目中说道，这是一个由“美国转折点”赞助并由乔恩·鲁特 （Jon Root）主持的体育节目。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3246.png)图片来自文中视频截图
 
-他说，当谈到 COVID 注射或测试协议时，很多队员觉得他们“别无选择”。“这几乎就像是你的义务，你必须遵守这些协议，否则你将失去工作，你会被裁掉。”
+文字版原文：[中共联合国投票彰显对俄罗斯的支持](https://gnews.org/zh-hans/2236525/)
 
-巴特克说，如果是这样的话，他和他的妻子“完全同意 [他] 远离足球”。“**我会坚持我的原则，我不会妥协，如果这是我的最后一个赛季，那就这样吧。”**
-
-**“**我认为……在某些方面，我是很多人的榜样，比如，‘哇，你知道，也许我应该再有担当一点，’”巴特克建议道。
-
-他告诉鲁特，**他将信仰和家庭置于橄榄球之上**。
-
-“橄榄球不是我的生活，它是我的工作，我喜欢它……但你知道我是上帝的孩子，我是丈夫和父亲，而这比足球更重要，”布特克告诉鲁特他参加并服务于拉丁弥撒。
-
-他说他“准备离开，并寻找另一种方式来养家糊口。”
-
-鲁特是一名新教徒，他向巴特克询问参加传统拉丁弥撒 (TLM) 的事。酋长队的踢球手邀请鲁特和他一起去纽约的弥撒。
-
-“我喜欢它的传统方面，因为我认为，现在就像我们生活在一个一切都如此快节奏的世界，”鲁特回应道。“人们，当他们想到去教堂坐一个多小时，他们认为这是最疯狂的事情。”
-
-巴特克在节目结束时说，**男子气概正在受到攻击，他的婚姻不是“合同”**。
-
-“这是一个美好的约定，”巴特克说。他想继续利用他的平台来强调父亲的重要性。
-
-“它从一家之主开始，也就是父亲、丈夫，”巴特克说。
-
-**参考链接：**[Catholic NFL kicker says he would quit football before getting the COVID jab](https://www.lifesitenews.com/news/catholic-nfl-kicker-says-his-family-and-faith-are-more-important-than-football/)
-
-* * *
-
-审核：文乐
-校对：信心满满
-发稿：信心的选择
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-20.jpeg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
