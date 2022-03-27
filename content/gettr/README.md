@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 7:18 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月25日第21天当日救援统计：<br/>Medyka救援站接待：约80人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7492人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 21 - Date: March 25, 2022 :<br/>Medyka Rescue Station Reception: about 80 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7492 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group12/getter/2022/03/27/07/5b0f2b00-2b99-2820-633a-fc433ee0fd97/09bc8d86bf86cbc817f1f09df513df1e.jpg)
+
+---
+
 `@miles 3/27/2022 5:16 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️4⃣️：GF 钻石铂金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，洛杉矶盘古农场，纽约香草山农场，华盛顿DC农场，波士顿五月花农场，东京樱花团，新西兰伊甸农场！恭喜中奖者！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️4⃣️： GFASHION Diamond Whistle- White Gold (Unit Value: $7,499.00) <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya LA Pangu, Himalaya New York Mountains of Spices Farm, Himalaya Washington DC Farm, Himalaya Boston Mayflower Farm, Himalaya Tokyo Sakura Group, Himalaya New Zealand Auckland Eden Domain!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group30/getter/2022/03/26/16/6c46e221-108b-6c06-8c00-860ecf2dca55/45a6812415f001baeb832bc3594dda6f.jpg)
-
----
-
-`@miles 3/26/2022 4:55 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️3⃣️：GF 黑铑金信仰之星手环 (单价: $2,400.00)<br/>奖品数量：40<br/>获奖者来自以下农场：日本银河系农场、喜马拉雅农场联盟、多伦多枫叶农场、、韩国首尔天池农场、东京樱花团、美国波士顿五月花农场、华盛顿DC农场、纽约香草山农场、洛杉矶盘古农场 ！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️3⃣️: GFASHION Star Bracelet--Black Rhodium (Unit Value: $2,400.00) <br/>Number of Prizes: 40<br/>The winners are from the following farms: Himalaya Japan Galaxy，Himalaya Global Alliance，Himalaya Toronto Maple Leaf（CA）， Himalaya Korea Seoul Heaven Lake Farm， Himalaya Tokyo Sakura Group，Himalaya Boston Mayflower Farm,  Himalaya Washington DC Farm, Himalaya New York Mountains of Spices Farm, Himalaya LA Pangu!<br/><br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group48/getter/2022/03/26/16/b761259c-466e-0801-57bc-e2620b98f91e/b68831c49595e947a33478d8c1571d95.jpg)
 
 ---
 
