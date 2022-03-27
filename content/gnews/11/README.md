@@ -2,30 +2,20 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月26日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2237960/)
+## 秘翻在线：拜登在波兰的演讲中说普京：不要继续执政了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2238080/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-40.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-21.png)
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-37.png)（图片源自本文链接）
+3月27日每日新闻消息： 一位美国白宫官员在拜登讲话后立即向记者解释说，拜登不是在谈论政权更迭，意思是不允许（普京）在邻国或地区行使权力。同一天，俄罗斯总统发言人佩斯科夫回应路透社说，选举俄罗斯总统的是 “俄罗斯人民”，而不是拜登先生。
 
+拜登先生从23日开始访问比利时和波兰，与欧洲领导人就应对乌克兰危机进行会谈，并在26日结束访问时发表讲话。 拜登先生说：”这不是几天或几个月内就能获胜的事情。我们需要为未来的长期战斗做好准备。 乌克兰的抵抗是 “为将所有争取自由民主的人们连结到一起的民主原则而战”。
 
-校对：Stay文苑
+同时，拜登先生强调，美国在欧洲的部队不是为了打击俄罗斯军队，而是为了保护我们的北大西洋公约组织（NATO）盟友。他敦促俄罗斯 “一刻也不要想入侵北约地区”。
 
-编辑：Stay文苑
+在演讲之前，拜登先生与逃离乌克兰的难民进行了互动。在会场，即华沙体育场，他抱起小孩子，与他们交谈，并听取了那些惜别丈夫和父亲逃离的妇女的故事。之后，他告诉记者，希望每个孩子都能为他们正在（在祖国）战斗的父亲、祖父和兄弟祈祷。在被问及普京时，他指责普京就是个屠夫。
 
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p122ky3cd33](https://gettr.com/post/p122ky3cd33)
-访谈：[https://gettr.com/post/p1231idc833](https://gettr.com/post/p1231idc833)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-4.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+信息源：[バイデン氏、プーチン氏へ「権力の座にとどまるな」 ポーランドで演説 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%83%90%E3%82%A4%E3%83%87%E3%83%B3%E6%B0%8F-%E3%83%97%E3%83%BC%E3%83%81%E3%83%B3%E6%B0%8F%E3%81%B8-%E6%A8%A9%E5%8A%9B%E3%81%AE%E5%BA%A7%E3%81%AB%E3%81%A8%E3%81%A9%E3%81%BE%E3%82%8B%E3%81%AA-%E3%83%9D%E3%83%BC%E3%83%A9%E3%83%B3%E3%83%89%E3%81%A7%E6%BC%94%E8%AA%AC/ar-AAVx7CL?ocid=msedgntp&amp;cvid=c0e703725df7451888088a90cbd1c926)
 
  
 

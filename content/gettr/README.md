@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 3:39 AM (UTC)`
+
+我们是消灭邪恶共产党的新中国联邦人<br/>We are the citizens of the New Federal State of China. Our mission is to take down the evil Chinese Communist Party.<br/><br/>共产党是全球灾难的根源<br/>The Chinese Communist Party is at the root of all global disasters.<br/><br/>拯救人类的手段是消灭共产党<br/>The only Way to save humanity is to take down the Chinese Communist Party.<br/><br/>我们与乌克兰人民站在一起🇺🇦<br/>We stand with the Ukrainian People🇺🇦<br/><br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group46/getter/2022/03/27/03/425ee53e-a39f-9b29-b8bc-a92c641c9c89/out.jpg)
+
+---
+
 `@miles 3/27/2022 2:30 AM (UTC)`
 
 
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️2⃣️：GF 钻石黑铑金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，(原)多伦多枫叶农场，洛杉矶盘古农场，首尔天池农场，东京银河系农场，纽约香草山农场，华盛顿DC农场，波士顿五月花农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️2⃣️: GFASHION Diamond Whistle- Black Rhodium (Unit Value: $7,499.00)<br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya Toronto Maple Leaf, Himalaya LA Pangu, Himalaya Japan Galaxy, Himalaya New York Mountains of Spices Farm, Himalaya Washington DC Farm, Himalaya Boston Mayflower Farm!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group24/getter/2022/03/26/16/6d8319a1-9766-a95a-069e-59bfb3131083/6dd54b9bac0ff1e0540302e65d982eb5.jpg)
-
----
-
-`@miles 3/26/2022 4:33 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️1⃣️：GF 限定款蓝色鳄鱼皮夹克（单价：$80,000.00）<br/>奖品数量：1<br/>获奖者：<br/>LM77486<br/>Discord: 海阔天空#9646<br/>获奖者来自洛杉矶盘古农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️1⃣️: GFASHION Exotic Skin Jacket- Crocodile—Blue (Unit Value: $80,000.00)<br/>Number of Prizes: 1<br/>The winner is: <br/>LM77486<br/>Discord: 海阔天空#9646<br/>The winner is from the Himalaya LA Pangu!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group17/getter/2022/03/26/16/b3621172-0ce3-976c-e0ba-bcea949bc52b/d6836f5b4190b4c54ae3465ae46c872d.jpg)
 
 ---
 

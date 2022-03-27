@@ -2,40 +2,28 @@
 ---
 
 
-## 有声|香港疫情失控 墙内粮荒在即
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238044/)
+## 俄军弃甲逃脱！乌克兰宣布光复托斯提也纳
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2238166/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日，郭文贵先生在大直播中透露，中共病毒已经在香港完全失控，与此同时，由于疫情、战争等所带来的饥荒正在逼近中共国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.27.58-PM.png)
-郭先生解释道，某知情战友早先爆料称，港共政府正在极力隐瞒香港当地因中共病毒疫情死亡的人数。目前，香港当局每日仅通报真实死亡数据的20%，即一千多例死亡患者中仅有约两百人被公布。至于中共国内，仅深圳一个区一天就有高达一千七百例中共病毒死亡患者，而该病毒在墙内已经完全失控，且其对中国人的伤害程度将超出所有人的想象。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+乌克兰今天表示，乌军已重新夺回东北部近俄罗斯边界城市托斯提也纳（Trostianets）。俄罗斯入侵乌克兰已有月余，托斯提也纳是最早落入莫斯科手中的城市之一。
 
-郭先生还补充道，中共近期也收紧了对相关人员的监控：许家印必须全天佩戴中共的监控器和电子脚镣，为此，他不得不违心称赞习近平和中共经济。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-27.png)图片来源：路透
 
-然而，郭先生也提到，俄乌战争开启了真正的潘多拉盒子：出于对大饥荒的恐惧，近日，全球各国都在抢购粮食。但郭先生预警称，中共国必将很快面临粮荒的困境，人吃人的惨剧或将随之到来。
+法新社报导，乌克兰国防部在社群媒体援引第93旅的战报说：苏米地区（Sumy）城市托斯提也纳已自俄罗斯占领中光复。国防部声明说，俄军已逃离托斯提也纳，将武器、装备和弹药都拋弃在后。
 
+乌克兰在数个地区对俄军展开反击以来，这次夺下托斯提也纳，会是乌军最重大斩获之一。
 
+新闻来源：[联合新闻网](https://udn.com/news/story/122663/6194607?from=udn-ch1_breaknews-1-0-news)
 
-文字版原文：[香港疫情失控 墙内粮荒在即](https://gnews.org/zh-hans/2235349/)
+撰稿/发布：一叶知秋
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

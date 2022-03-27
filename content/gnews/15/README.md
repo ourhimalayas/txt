@@ -2,21 +2,25 @@
 ---
 
 
-## 乌西大城利维夫遭袭击 燃料库被毁酿5伤
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237889/)
+## 研究显示：俄乌战争以来中共对北约的网络攻击增加了116%
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237927/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-乌克兰西部城市利维夫（Lviv）26日遭到4枚火箭弹袭击，其中两枚击中一个燃料库，导致5人受伤。《路透》报导指出，这是自俄罗斯入侵以来对利维夫最重大的攻击。
+翻译与编辑：冰糖葫芦喵
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxOd1ul.jpg)图片来源：路透
+《福克斯新闻网》3月26日报道，**网络安全公司Check Point Research分析，对比俄罗斯入侵乌克兰前后的趋势显示，来自中共国IP地址的网络攻击在全球范围内增加了72%，对北约国家的攻击增加了116%。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/中共网络攻击-e1648346492520.jpeg)中共黑客网络攻击（图片来源：网络）
+据报道，Check Point软件部门的数据组经理Omer Dembinsky在一份电子邮件声明中表示，随着俄罗斯和乌克兰冲突的加剧，该部门的研究人员很清楚的分析出，**黑客正在利用中共国的服务器在全世界发动网络攻击，特别是北约国家。**
 
-根据《路透》报导，利维夫州州长柯齐斯基表示，两枚火箭弹击中一个燃料库后导致5人受伤，另外两枚则是击中了一家兵工厂。由于利维夫距离波兰边境仅有60公里，利维夫市长萨多维在记者会中指出，俄军今日的攻击行动是在向人在波兰的美国总统拜登「致意」，而且俄军是从2014年被并吞的克里米亚塞瓦斯托波尔（Sevastopol）发射的。
+研究人员登宾斯基说，**这些服务器也可能被中共国国内和国外的黑客使用**。这种趋势可能有很多含义。例如，这**种攻击增长可以表明，现在在哪里建立和运营一项服务是容易和便宜的，或者在哪里隐藏攻击的真正来源更合适。**它还可以显示全球网络流量在此时此刻是如何被路由的。”
 
-简评：死猪不怕开水烫，将死之人甚癫狂！俄军从克里米亚发射火箭弹向来波兰的拜登“致意”，来表明普京誓吞乌克兰的野心。明明是老虎在玩狗子，狗子却逞强的挑逗老虎，老虎动口之日就是狗子呜呼之时，等拜登总统玩腻了，普京离成为丧家犬不远了。
+星期二，美国联邦调查局局长克里斯托弗·雷在底特律经济俱乐部发表讲话时说，今天，乌克兰的冲突仍在继续，**我们特别关注俄罗斯情报机构以及他们所保护和支持的网络犯罪集团构成的破坏性网络威胁**。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3873049](https://news.ltn.com.tw/news/world/breakingnews/3873049)
+本周早些时候，美国联邦调查局(FBI)宣布，**将与私营部门合作，打击针对美国实体的外国网络攻击。**
 
-撰稿/发布：一叶知秋
+新闻来源链接：
+
+[Chinese cyberattacks on NATO countries increase 116% since Russia’s invasion of Ukraine: study | Fox Business](https://www.foxbusiness.com/technology/chinese-cyberattacks-nato-increase-ukraine)
 
 **更多资讯，更多关注
 [乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
