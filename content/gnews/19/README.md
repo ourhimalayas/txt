@@ -2,10 +2,10 @@
 ---
 
 
-## 拜登终于承认乌克兰战争将导致全球粮食短缺
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238309/)
+## 班农战斗室采访新中国联邦在乌克兰救援的志愿者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238341/)
 
-03/25/2022 在班农战斗室长时间的警告后，拜登终于承认乌克兰战争将导致全球粮食短缺
+03/25/2022 班农战斗室采访新中国联邦在乌克兰救援的志愿者——精粮：我们正在做中国政府本应该做的事情
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

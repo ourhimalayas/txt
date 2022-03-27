@@ -2,106 +2,65 @@
 ---
 
 
-## 拜登总统: 我给乌克兰人民的信息,我们与你们站在一起。
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2237368/)
+## 2022年3月26日G-Clubs年会摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2237383/)
 
-**拜登总统**： 
-我给乌克兰人民的信息，就是我今天向乌克兰外交部长和国防部长传达的信息：我们与你们站在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220326_副本.jpg)
+视频连接：[G CLUB2022年年会](https://gettr.com/streaming/p11z7ye4d5a)
 
+1、有G-Clubs卡的战友们一定要给父母，爱人，及亲人买，这是今天参加年会最有意义的事情；
 
+2、G-Fashion用是老的鳄鱼皮，会有证明文件，稀有时间的艺术品；
 
-> My message to the people of Ukraine is the message I delivered today to the Ukrainian Foreign Minister and Defense Minister: We stand with you.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507817666601435138?ref_src=twsrc%5Etfw)
+3、文贵先生刚刚爆料，今天G-Clubs年会直播用的是新G-TV直播平台；
 
+4、第一辆奔驰，新西兰奥克兰伊甸农场：梦田#6641；
 
+5、第二辆奔驰，洛杉矶盘古农场: 郁金香#8584；
 
-**拜登总统**： 
-我们重新投入到争取自由的伟大斗争中。 一场民主与独裁、自由与镇压之间的战斗。 这场战斗也不会在几天或几个月内获胜。 我们需要为未来的长期斗争做好准备。
+6、第三辆奔驰，日本银河系农场：舔刚毛#5512；
 
+7、价值$80000白色鳄鱼皮夹克，纽约香草山农场：推墙的人#9308；
 
+8、价值$80000黑色鳄鱼皮夹克，扬帆农场：跟随七哥定点清除#5606；
 
-> We are engaged anew in a great battle for freedom.
->  
-> A battle between democracy and autocracy. Between liberty and repression.
->  
-> This battle will not be won in days or months either. We need to steel ourselves for the long fight ahead.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507782139315638283?ref_src=twsrc%5Etfw)
+9、价值$80000蓝色鳄鱼皮夹克，盘古农场：海阔天空#9646；
 
+10、总后台草根小哥，魔女，文贵先生，代表老郭家，现在郭姓是中共国第一敏感姓氏；
 
+11、第四辆奔驰，获奖者来自日本银河系农场；
 
-**拜登总统**： 
-今天，我会见了乌克兰外长德米特罗·库莱巴和国防部长奥列克西·列兹尼科夫。 我们讨论了我们团结世界支持 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 的努力、以及美国提供的重要军事和人道主义援助。
+12、拜登要和泽连斯基在华沙会面；
 
+13、中共国内部开始讨论要不要抛弃俄罗斯和美国站在一起时，习近平决定坚持和普京站在一起，干掉西方；
 
+14、兰博基尼，终极大奖，纽约香草山农场：铲共骑侠#9827；
 
-> Today, I met with Ukraine’s Foreign Minister Dmytro Kuleba and Minister of Defense Oleksii Reznikov. We discussed our efforts to rally the world in support of Ukraine and the significant military and humanitarian assistance the United States is providing. [pic.twitter.com/N8bvuua19c](https://t.co/N8bvuua19c)
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507719879213867009?ref_src=twsrc%5Etfw)
+**注：大直播音频正在制作和上传中，敬请关注——**
 
+**（大直播音频位置）**
 
+编辑整理：文俊；
 
-**美国务卿安东尼·布林肯**： 
-今天离开华沙前往以色列和约旦河西岸、摩洛哥和阿尔及利亚。 在我们努力建立广泛的合作伙伴关系时，期待与老朋友取得联系并加深纽带关系。
+发布：黎明之前；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-> Leaving Warsaw today for Israel and the West Bank, Morocco, and Algeria. Looking forward to connecting with old friends and deepening ties as we work to build on our wide-ranging partnerships. [pic.twitter.com/wbUo82qphZ](https://t.co/wbUo82qphZ)
-> — Secretary Antony Blinken (@SecBlinken) [March 26, 2022](https://twitter.com/SecBlinken/status/1507750709495832577?ref_src=twsrc%5Etfw)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-**拜登总统**： 
-普京胆敢说他正在对乌克兰“去纳粹化”。 这个谎言不只是愤世嫉俗。这是在耍流氓。 
-泽连斯基总统是民主选举产生的。 他是犹太人 —— 他父亲的家人在纳粹大屠杀中被杀绝了。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-> Putin has the gall to say he is “de-Nazifying” Ukraine.
-> 
-> This lie isn’t just cynical. It is obscene. 
-> 
-> President Zelenskyy was democratically elected. He is Jewish — his father’s family was wiped out in the Nazi Holocaust.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507838900554842115?ref_src=twsrc%5Etfw)
-
-
-
-**比尔.格茨**： 
-本周华盛顿时报[@WashTimes](https://twitter.com/WashTimes)内幕专栏：俄罗斯高超音速导弹袭击显示美国在超高速导弹方面落后于莫斯科和北京； 拜登告诉习，美国不会改变（中国）共产主义制度； 太平洋司令部指挥官谈 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 威胁 【附时报专栏报道链接】
-
-
-
-> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Russian hypersonic missile strike shows US lags behind both Moscow and Beijing in ultra high-speed missiles; Biden told Xi US would not change communist system; Pacom commander on China threat [https://t.co/Qgd15LYLo1](https://t.co/Qgd15LYLo1)
-> — Bill Gertz (@BillGertz) [March 25, 2022](https://twitter.com/BillGertz/status/1507472973808037890?ref_src=twsrc%5Etfw)
-
-
-
-**前副国务卿基思·克拉奇**： 
-谢谢沃尔茨议员@michaelgwaltz。 自由总是受到普京、#习近平、哈梅内伊等极权主义者的攻击。 但是，如果自由世界按照我们共同的价值观统一起来，那就有希望了。 确保高科技是值得信赖的技术是确保下一代自由的关键。 
-【转众议员迈克·沃尔茨推文：基思·克拉奇一直在为维吾尔人、香港和台湾不懈地发声，非常应该获得诺贝尔和平奖。 我们需要更多像他这样的商界领袖站出来对抗 [#中共](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 的掠夺行为。】
-
-
-
-> Thank you [@michaelgwaltz](https://twitter.com/michaelgwaltz?ref_src=twsrc%5Etfw). Freedom is always under attack from totalitarians like Putin, Xi, Khamenei, and their ilk. But there’s hope if the free world is unified along our shared values. Ensuring high tech is trusted tech is the key to securing freedom for the next generation. [https://t.co/LGCnP0wKwI](https://t.co/LGCnP0wKwI)
-> — Keith J. Krach (@KeithJKrach) [March 26, 2022](https://twitter.com/KeithJKrach/status/1507743925284614149?ref_src=twsrc%5Etfw)
-
-
-
-**众议院外事委员会共和党**： 
-委员会领袖麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)对于财长耶伦称对中共的制裁不是“必要或适当的”言论的回应：“我对拜登政府又一次公开展示未能抓住 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 所构成的日益严重的威胁感到非常担忧。 
-
-“[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对人权、民主价值观、和美国国家安全利益的无情攻击已经证明，他们是不值得信任的。取消(对中共的)制裁与拜登政府现在应该说的是相反的……
-
-完整声明在这里:【附众议院官网发文：麦考尔回应财长有关中共国的危险言论】
-
-
-
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw)'s response to [@SecYellen](https://twitter.com/SecYellen?ref_src=twsrc%5Etfw) saying sanctions against the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) weren't "necessary or appropriate": "I’m extremely concerned by yet another public display of the Biden administration’s failure to grasp the growing threat posed by the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw).
-> — House Foreign Affairs GOP (@HouseForeignGOP) [March 26, 2022](https://twitter.com/HouseForeignGOP/status/1507833004999196673?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

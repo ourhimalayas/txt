@@ -2,20 +2,12 @@
 ---
 
 
-## 雅典娜时报-第245期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2238701/)
+## 美国志愿兵出现在乌克兰前线
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238743/)
 
-#### 《雅典娜时报》汇聚全球新闻时事
+03/25/2022 一名美国退伍军人发布的视频表明，与乌克兰军队并肩作战的国际军团正在发挥越来越积极的作用
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/957496129560395776/155.png?width=856&amp;height=1275)![圖片](https://media.discordapp.net/attachments/825592691433668612/957496129937866772/155_1.png?width=856&amp;height=1275)
-*发布：陶子*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,21 +2,29 @@
 ---
 
 
-## 视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2238643/)
+## 俄乌战争｜Anonymous 如期公布俄央行数据库 料更多机密陆续有来
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2238646/)
 
-制作：香草山视频部
+**图/文｜CP **
+**发布时间｜27/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Anonymous-如期公佈俄央行數據庫-料更多機密陸續有來.jpg)
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-发稿：qiutian（邱甜）
 
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+全球最大黑客组织 Anonymous（匿名者）24日曾向俄罗斯总统普京发出警告，声称已入侵俄罗斯中央银行，如果普京不停止对乌克兰的入侵，他们将在48小时内公开该银行28GB的数据库，包括35000份机密文件。
+
+Anonymous周六（26日）如期将超过28GB的俄央行数据库公开，当中包括不少俄罗斯特权阶层的金融信息。就目前爆光的文件来看，涉及范围涵盖银行发票、内部通讯、文件、备忘录、对账单、其他关联银行的股东姓名、银行执照、知名客户个人信息、财务纪录等等，最早可追溯至1999年。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Anonymous-如期公佈俄央行數據庫-料更多機密陸續有來.jpeg)
+不仅如此，Anonymous 还特意录了一段视频给普京，称他们会在下周发布更多机密文件，包括克林姆林宫向俄罗斯民众隐瞒的经济数据、与北约、欧盟、美国政府以及主要金融机构之间的非法联系、台底协议、闭门会议纪录等等都将会陆续爆光。（视频可点击 [Gettr](https://gettr.com/post/p124t5i2cab) 观看）
+
+Anonymous 对普京说：“弗拉基米尔·普京，没有什么秘密是安全的，我们无处不在，我们在你的宫殿里，我们在你吃饭的地方，我们在你的餐桌旁，我们在你的房间里，在你睡觉的地方。”
+
+来源｜[Kyivpost](https://www.kyivpost.com/eastern-europe/anonymous-hacks-russias-central-state-bank-secret-data-exposure-promised.html)、[Anonymous](https://twitter.com/YourAnonTV/status/1507427538745896966?s=20&amp;t=16kMRmmdpdvQN0pyqTeUhQ)
+
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

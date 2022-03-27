@@ -2,65 +2,20 @@
 ---
 
 
-## 2022年3月26日G-Clubs年会摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2237383/)
+## 美国即将对中国企业进行更多制裁
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2237400/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220326_副本.jpg)
-视频连接：[G CLUB2022年年会](https://gettr.com/streaming/p11z7ye4d5a)
+中国共产党的这些媒体还有企业都会受到美国的制裁。这叫美国制定的内部政策，叫对中共先给他放几个蚊子咬咬他，让他知道疼的感受。
 
-1、有G-Clubs卡的战友们一定要给父母，爱人，及亲人买，这是今天参加年会最有意义的事情；
+**【郭先生直播摘要】2022.3.20 美国即将对中国企业进行更多制****裁**
 
-2、G-Fashion用是老的鳄鱼皮，会有证明文件，稀有时间的艺术品；
+**郭先生****:**
 
-3、文贵先生刚刚爆料，今天G-Clubs年会直播用的是新G-TV直播平台；
+我今天顺便给你们爆个料，你们脱不脱看你们的。我爆完这个料，你们脱不脱看你们的，今天反正我看你们没想脱的样子。
 
-4、第一辆奔驰，新西兰奥克兰伊甸农场：梦田#6641；
+马上也可能今天，也可能下一周，中国共产党的这些媒体还有企业都会受到美国的制裁。这叫美国制定的内部政策。叫对中共先给他放几个蚊子咬咬他，让他知道疼的感受。马上把它几个媒体平台彻底制裁。最后我要告诉大家，真的今年是人类上最黑暗的一年，也是最有希望的一年。我相信今年完后你想再看到普京和习近平比登天都难。每一天都在好消息传来，你看着接下来美国对共产党放几个蚊子咬咬它。我再告诉你的，你会看到美国人很聪明地会去咬谁，会去咬谁？还有海外欺民贼。记得七哥2018年爆料说过了吗？你们还记得吗，文空？我说海外欺民贼只要和共产党合作的都得被抓，一个都不会逃过。你知道海外欺民贼有多少人现在被美国FBI调查，多少人在加拿大在澳大利亚？鸡腿潘肯定被遣送回国。鸡腿潘”在澳大利亚肯定被遣返回国。还有那个朱万利在新西兰的，朱万利肯定被遣返回国。还有在日本的相林，还有咸鸭蛋，还有高冰尘和博讯，博讯韦石已经在美国在监狱了！还有史诺！我跟你保证，路大脑袋 蛇妖闫，九指妖100%进监狱！你走着看。你们最近发现了，整个世界对海外任何与共产党有交易有联系的，在西方世界这不叫排华战争。这是一个干干净净地清理华人当中和共产党有关系的人，已经开始了。然后接下来大家会看到对共产党的媒体 国企 通讯企业，会超出你想象的制裁。
 
-5、第二辆奔驰，洛杉矶盘古农场: 郁金香#8584；
-
-6、第三辆奔驰，日本银河系农场：舔刚毛#5512；
-
-7、价值$80000白色鳄鱼皮夹克，纽约香草山农场：推墙的人#9308；
-
-8、价值$80000黑色鳄鱼皮夹克，扬帆农场：跟随七哥定点清除#5606；
-
-9、价值$80000蓝色鳄鱼皮夹克，盘古农场：海阔天空#9646；
-
-10、总后台草根小哥，魔女，文贵先生，代表老郭家，现在郭姓是中共国第一敏感姓氏；
-
-11、第四辆奔驰，获奖者来自日本银河系农场；
-
-12、拜登要和泽连斯基在华沙会面；
-
-13、中共国内部开始讨论要不要抛弃俄罗斯和美国站在一起时，习近平决定坚持和普京站在一起，干掉西方；
-
-14、兰博基尼，终极大奖，纽约香草山农场：铲共骑侠#9827；
-
-**注：大直播音频正在制作和上传中，敬请关注——**
-
-**（大直播音频位置）**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+视频剪辑：GC | 听写：雨山溪桥客|翻译：阿基米德 |校对：tonyj |视频制作+字幕：刀锋舞者|编辑&发布：叶子
 
  
 
