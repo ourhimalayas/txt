@@ -2,32 +2,40 @@
 ---
 
 
-## 研究显示：俄乌战争以来中共对北约的网络攻击增加了116%
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237927/)
+## 有声|香港疫情失控 墙内粮荒在即
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238044/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-翻译与编辑：冰糖葫芦喵
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，郭文贵先生在大直播中透露，中共病毒已经在香港完全失控，与此同时，由于疫情、战争等所带来的饥荒正在逼近中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.27.58-PM.png)
+郭先生解释道，某知情战友早先爆料称，港共政府正在极力隐瞒香港当地因中共病毒疫情死亡的人数。目前，香港当局每日仅通报真实死亡数据的20%，即一千多例死亡患者中仅有约两百人被公布。至于中共国内，仅深圳一个区一天就有高达一千七百例中共病毒死亡患者，而该病毒在墙内已经完全失控，且其对中国人的伤害程度将超出所有人的想象。
 
-《福克斯新闻网》3月26日报道，**网络安全公司Check Point Research分析，对比俄罗斯入侵乌克兰前后的趋势显示，来自中共国IP地址的网络攻击在全球范围内增加了72%，对北约国家的攻击增加了116%。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中共网络攻击-e1648346492520.jpeg)中共黑客网络攻击（图片来源：网络）
-据报道，Check Point软件部门的数据组经理Omer Dembinsky在一份电子邮件声明中表示，随着俄罗斯和乌克兰冲突的加剧，该部门的研究人员很清楚的分析出，**黑客正在利用中共国的服务器在全世界发动网络攻击，特别是北约国家。**
+郭先生还补充道，中共近期也收紧了对相关人员的监控：许家印必须全天佩戴中共的监控器和电子脚镣，为此，他不得不违心称赞习近平和中共经济。
 
-研究人员登宾斯基说，**这些服务器也可能被中共国国内和国外的黑客使用**。这种趋势可能有很多含义。例如，这**种攻击增长可以表明，现在在哪里建立和运营一项服务是容易和便宜的，或者在哪里隐藏攻击的真正来源更合适。**它还可以显示全球网络流量在此时此刻是如何被路由的。”
+然而，郭先生也提到，俄乌战争开启了真正的潘多拉盒子：出于对大饥荒的恐惧，近日，全球各国都在抢购粮食。但郭先生预警称，中共国必将很快面临粮荒的困境，人吃人的惨剧或将随之到来。
 
-星期二，美国联邦调查局局长克里斯托弗·雷在底特律经济俱乐部发表讲话时说，今天，乌克兰的冲突仍在继续，**我们特别关注俄罗斯情报机构以及他们所保护和支持的网络犯罪集团构成的破坏性网络威胁**。
 
-本周早些时候，美国联邦调查局(FBI)宣布，**将与私营部门合作，打击针对美国实体的外国网络攻击。**
 
-新闻来源链接：
+文字版原文：[香港疫情失控 墙内粮荒在即](https://gnews.org/zh-hans/2235349/)
 
-[Chinese cyberattacks on NATO countries increase 116% since Russia’s invasion of Ukraine: study | Fox Business](https://www.foxbusiness.com/technology/chinese-cyberattacks-nato-increase-ukraine)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

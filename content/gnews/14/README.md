@@ -2,37 +2,20 @@
 ---
 
 
-## 有声|波兰驱逐45名冒充外交官俄罗斯间谍俄扬言报复
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238006/)
+## 秘翻在线：拜登在波兰的演讲中说普京：不要继续执政了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2238080/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中央社23日报道，波兰内政部长卡明斯基今天宣布，波国“驱逐了45名冒充外交人员的俄罗斯间谍”。俄方已表明其外交官若遭驱逐，将进行报复。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-2022-5.jpg)图片来源: 网络
-国内安全局发言人札林（Stanislaw Zaryn）称：“国内安全局已制订了一份45人名单，这些人以外交活动为掩护，在波兰工作。”他在推特上说45名人员名单已交给外交部， “ABW要求将他们驱逐出波兰领土。”这位发言人在推文补充说犯嫌的活动对波兰内部和外部安全皆构成威胁。 卡明斯基（Mariusz Kaminski）也在推特上发文称：”我们正在拆除我们国内的俄罗斯特工网路。”波兰反间谍机构“国内安全局”（ABW）表示，已确认45名俄罗斯外交人员涉嫌担任间谍，要求波兰外交部将他们驱逐出境。”
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-37.png)（图片源自本文链接）
+3月27日每日新闻消息： 一位美国白宫官员在拜登讲话后立即向记者解释说，拜登不是在谈论政权更迭，意思是不允许（普京）在邻国或地区行使权力。同一天，俄罗斯总统发言人佩斯科夫回应路透社说，选举俄罗斯总统的是 “俄罗斯人民”，而不是拜登先生。
 
-俄罗斯新闻社（RIA）援引俄国外交部的话报导，如果俄罗斯外交人员遭波兰驱逐出境，俄方将进行报复。
+拜登先生从23日开始访问比利时和波兰，与欧洲领导人就应对乌克兰危机进行会谈，并在26日结束访问时发表讲话。 拜登先生说：”这不是几天或几个月内就能获胜的事情。我们需要为未来的长期战斗做好准备。 乌克兰的抵抗是 “为将所有争取自由民主的人们连结到一起的民主原则而战”。
 
+同时，拜登先生强调，美国在欧洲的部队不是为了打击俄罗斯军队，而是为了保护我们的北大西洋公约组织（NATO）盟友。他敦促俄罗斯 “一刻也不要想入侵北约地区”。
 
+在演讲之前，拜登先生与逃离乌克兰的难民进行了互动。在会场，即华沙体育场，他抱起小孩子，与他们交谈，并听取了那些惜别丈夫和父亲逃离的妇女的故事。之后，他告诉记者，希望每个孩子都能为他们正在（在祖国）战斗的父亲、祖父和兄弟祈祷。在被问及普京时，他指责普京就是个屠夫。
 
-文字版原文：[波兰驱逐45名冒充外交官俄罗斯间谍俄扬言报复](https://gnews.org/zh-hans/2235646/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+信息源：[バイデン氏、プーチン氏へ「権力の座にとどまるな」 ポーランドで演説 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%83%90%E3%82%A4%E3%83%87%E3%83%B3%E6%B0%8F-%E3%83%97%E3%83%BC%E3%83%81%E3%83%B3%E6%B0%8F%E3%81%B8-%E6%A8%A9%E5%8A%9B%E3%81%AE%E5%BA%A7%E3%81%AB%E3%81%A8%E3%81%A9%E3%81%BE%E3%82%8B%E3%81%AA-%E3%83%9D%E3%83%BC%E3%83%A9%E3%83%B3%E3%83%89%E3%81%A7%E6%BC%94%E8%AA%AC/ar-AAVx7CL?ocid=msedgntp&amp;cvid=c0e703725df7451888088a90cbd1c926)
 
  
 

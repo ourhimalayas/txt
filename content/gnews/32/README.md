@@ -2,20 +2,43 @@
 ---
 
 
-## 樱花时政┃威慑中共国的时间不多了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237149/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237291/)
 
-撰稿：东京樱花团/加一颗稻草
+整理：枳实
+美工：精灵蓝
 
-我们不能让俄罗斯入侵乌克兰分散我们对中国共产党构成的威胁的注意力。就在本周，中共国驻美国大使公开拒绝谴责俄罗斯的入侵。尽管习近平和中共政府否认了这一点，但中共一直在与俄罗斯直接协调并相互比较，因为中共国有吞并台湾的野心，即使普京现在正在吞并乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-19.jpg)[图片来源](https://static.foxnews.com/foxnews.com/content/uploads/2022/02/Putin-Xi.jpg)
-中共国必须明白，在这场冲突中向俄罗斯提供财政或军事援助的任何决定都将直接违反国际和平努力，并将导致对其经济的严重制裁。拜登总统有机会明确这一点，防止中共国破坏国际社会，阻止他们将这场冲突升级到更加危险的程度。如果执行得当，这还有一个额外的好处，那就是在俄罗斯和中共国之间建立一个非常公开的楔子。对中共国建立有意义的威慑的时间已经不多了。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N25GZVUAF45LLEH0VM.png)图片：雅典娜农场设计组 精灵蓝
 
-消息来源：[Time is running out to deter China](https://www.foxnews.com/opinion/time-running-out-deter-china)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+雅典娜疫情更新（2022年 3月26日）
+
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/MNAS9G@I11P54UA1ZTGN.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-329.png)
+[2022年3月26日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月26日改进.pdf)
+
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,34 @@
 ---
 
 
-## 有声|香港疫情失控 墙内粮荒在即
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238044/)
+## 如果普京使用化学武器或核武器，北约将被迫做出反应
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2238139/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日，郭文贵先生在大直播中透露，中共病毒已经在香港完全失控，与此同时，由于疫情、战争等所带来的饥荒正在逼近中共国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.27.58-PM.png)
-郭先生解释道，某知情战友早先爆料称，港共政府正在极力隐瞒香港当地因中共病毒疫情死亡的人数。目前，香港当局每日仅通报真实死亡数据的20%，即一千多例死亡患者中仅有约两百人被公布。至于中共国内，仅深圳一个区一天就有高达一千七百例中共病毒死亡患者，而该病毒在墙内已经完全失控，且其对中国人的伤害程度将超出所有人的想象。
+####   撰稿：彩虹     
 
-郭先生还补充道，中共近期也收紧了对相关人员的监控：许家印必须全天佩戴中共的监控器和电子脚镣，为此，他不得不违心称赞习近平和中共经济。
+#### 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3193.png)图片来源：NATO
+据《国会山报》3月26日的文章，北约副秘书长杰瓦纳（Mircea Geoana）在接受《美联社》采访时说，如果俄罗斯在对乌克兰的战争中使用化学武器或核武器，北约将作出反应。
 
-然而，郭先生也提到，俄乌战争开启了真正的潘多拉盒子：出于对大饥荒的恐惧，近日，全球各国都在抢购粮食。但郭先生预警称，中共国必将很快面临粮荒的困境，人吃人的惨剧或将随之到来。
+杰瓦纳是罗马尼亚前外交部长和驻美国大使，他说，“北约是一个防御性联盟，但它也是一个核联盟，如果他们对乌克兰使用化学武器或其他种类的高端系统，这将从根本上改变普京先生对乌克兰发动的战争的性质”。
 
+杰瓦纳强调说，“我可以保证，北约已经准备好做出相应的反应”。
 
+杰瓦纳不愿向美联社详细说明这些相应的行动可能是什么，但他的这些评论是在俄罗斯官员拒绝说俄罗斯不会在入侵中使用化学或核武器的背景下发表的。
 
-文字版原文：[香港疫情失控 墙内粮荒在即](https://gnews.org/zh-hans/2235349/)
+根据报道，随着战争持续了一个多月，俄罗斯方面变得更加绝望，俄罗斯军队之前认为他们将在几天内占领乌克兰。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+杰瓦纳分析说，“普京先生可能相信他自己的后帝国主义幻想，认为乌克兰人将张开双臂欢迎他们。事实上，他们得到的是非常激烈的抵抗。我们相信，今天，即使仍有增援部队进入乌克兰，俄罗斯也不拥有占领整个乌克兰的力量和能力”。俄罗斯总统普京在决定发动这场战争时没有计算到“乌克兰军队的勇敢”和“西方政治（联盟）的团结”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+报道说，北约估计，自俄罗斯入侵乌克兰以来，有超过4万名俄罗斯军队被杀、受伤或被俘。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+对此，杰瓦纳提醒，“我们看到，就目前而言，俄罗斯的军事规划正试图重新评估局势，试图弥补他们在战争第一个月所遭受的人员和物质上的巨大损失”。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+*责编：白夜*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**新闻来源**
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[NATO official says alliance would be forced to take action if Russia uses chemical, nuclear weapons](https://thehill.com/policy/international/599877-nato-official-says-alliance-would-be-forced-to-take-action-if-russia)
 
  
 

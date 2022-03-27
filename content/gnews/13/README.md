@@ -2,32 +2,37 @@
 ---
 
 
-## 拜登会晤波兰总统，并说普京不能继续执政
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2238034/)
+## 有声|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238086/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-1-1.jpg)拜登会晤波兰总统，并说普京不能继续执政 网络图片
-据美国之音3月27日报道，美国总统拜登在华沙与波兰总统杜达会晤时强调，俄罗斯总统普京入侵乌克兰是莫斯科的战略失败，普京不能继续执政。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-拜登在华沙市长和波兰总理的陪同下前往华沙一个体育馆看望乌克兰难民，拜登之前承诺美国将接纳10万难民。北约成员国波兰已经接受了200多万乌克兰难民。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-拜登随后在华沙发表关于“此刻利害关系”的讲话。拜登表示，西方帮助乌克兰抵御俄罗斯的入侵，事关为全世界几代人捍卫民主。他说，“此刻的考验是有史以来的考验，不亚于对二战结束以来建立的以规则为基础的国际秩序的一次直接挑战”。拜登在讲话中称赞了乌克兰人民的抵抗精神。拜登还向俄罗斯民众发出了呼吁。他说，“这不是你们的本意，这不是你为你们家庭和你们的儿童所应得的未来”。拜登讲话时，包括乌克兰难民在内大约有3000人观看讲话的视频直播。
-
-俄罗斯对乌克兰发动的战争团结了北约和西方。北约是防御性联盟，从未寻求俄罗斯的消亡。但俄罗斯的野心绝不止一个乌克兰。乌克兰的抵抗也是西方世界联合抵抗俄罗斯和中共国两大邪恶轴心国。俄乌战争就是由普京和习近平这两个独裁者发动起来的。美国定义普京为“战犯”，不能继续执政，中共种族灭绝政权更不具备执政的合法性。
-
-新闻参考链接：[https://www.voachinese.com/a/biden-met-polish-president-20220326/6502940.html](https://www.voachinese.com/a/biden-met-polish-president-20220326/6502940.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+文字版原文：[新中国联邦和法治基金在乌克兰的人道救援行动仍在继续](https://gnews.org/zh-hans/2236233/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

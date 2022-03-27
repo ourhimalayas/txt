@@ -2,39 +2,36 @@
 ---
 
 
-## 中共必打台湾 俄乌之战促习速战
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2238223/)
+## 朝鲜试射远程洲际导弹，美国呼吁更严厉制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2238261/)
 
-作者：纽约香草山教育部 Naughty(文行)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+#### 整理：li yan li
+编辑：文泓 
 
-
-在2022年3月23日大直播中，郭文贵先生指出，台湾海峡最近的频发地震，让他怀疑这是中共的诡计。因为他几年前就曾听中共军方说过，只需要人为制造几次地震就可以攻下台湾，如果震级超过7.8级就可以彻底毁掉台湾岛。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-470.jpeg)
-
-郭先生提到，2007年习近平还没当总书记的时候，就曾明确谈到他对台湾的态度，表示台湾问题必须在他的任期内解决。能谈就不打，能少打不多打，但台湾必须要收回。习还特别提到，如果有外国势力干预，他宁可让台湾沉默也不能让台湾成为美国永不沉没的航空母舰，不能让台湾成为美国的第51个州。
-
-郭先生表示他很了解习的个性，到目前为止习从来没有改变对台湾的态度。郭先生得到情报称，俄乌开战后，习喜出望外，他表示俄乌之战给攻打台湾提供了样板，证明要攻打台湾必须要速战狠战。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-471.jpeg)
-
-编辑/校对/发稿：文敬
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片10-5.png)图片来源：The Japan Times & 雅典娜设计组
 
 
+3月25日，据德国之声报道，在朝鲜宣布成功试射其有史以来最大的洲际弹道导弹火星-17，美国呼吁国际社会对朝鲜进行更严厉的国际制裁。
+
+周四朝鲜发射的导弹是朝鲜自2017年以来首次全射程发射的洲际弹道导弹。这枚导弹比朝鲜之前试射的任何导弹都飞得更高、飞行时间也更长，也代表着平壤在发展可能能够将核弹头发射到美国任何地方的武器方面迈出的重要一步。
+
+美国常驻联合国代表托马斯·格林菲尔德周五在由15个成员组成的安理会会议上宣布推动新的制裁。她说，此举将跟进朝鲜在2017年最后一次试验后实施的制裁。当时安理会确定，未来朝鲜再次发射导弹，将采取进一步措施。
+
+会后，除了俄罗斯和中国之外的安理会常任理事国，英国、法国和美国和其他12个国家发表了一份联合声明，敦促联合国成员国特别是安理成员国采取更多行动。声明说：“朝鲜的行为表明它决心继续推进其武器计划，它的挑衅行为不断升级，而安理会却保持沉默。”
+
+发表联合声明的国家还包括安理会非常任理事国巴西、爱尔兰和挪威，以及德国、日本和韩国。
+
+新闻链接：[朝鲜还有“更多库存” 美国呼吁更严制裁](https://www.dw.com/zh/%E6%9C%9D%E9%B2%9C%E8%BF%98%E6%9C%89%E6%9B%B4%E5%A4%9A%E5%BA%93%E5%AD%98-%E7%BE%8E%E5%9B%BD%E5%91%BC%E5%90%81%E6%9B%B4%E4%B8%A5%E5%88%B6%E8%A3%81/a-61268359)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
