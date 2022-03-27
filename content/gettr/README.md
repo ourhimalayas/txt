@@ -17,9 +17,9 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 3/27/2022 8:36 PM (UTC)`
+`@miles 3/27/2022 8:47 PM (UTC)`
 
-香草山访谈《医学视角》第37期：前线战友ccp病毒感染后的治疗汇报
+全球首播 NFSC health 新中国联邦 喜健康 系列节目之《医学视角》第一期：前线战友ccp病毒感染后的治疗汇报
 ![img](https://media.gettr.com/group40/origin/2022/03/27/20/38c139ad-99e9-c69e-d8d4-1c81d2a8b418/9548d67018b19975dcafea4c4484666a.png)
 
 ---
