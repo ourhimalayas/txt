@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 10:03 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-27 <br/>For English @Gtranslators_1
+![img](https://media.gettr.com/group29/origin/2022/03/27/22/230b81a7-ce2c-bf08-3be4-cf3a9b59979e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/27/2022 8:47 PM (UTC)`
 
 全球首播 NFSC health 新中国联邦 喜健康 系列节目之《医学视角》第一期：前线战友ccp病毒感染后的治疗汇报
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 ❤️Fellow fighter #FineFood Report from #NFSC's #UkraineRescue :  #Trolleys- the “red blood cells” for the refugees at Medyka. Why ? Here is from volunteer Mr. #Neil's communication talks : Trolleys that full of items are for the people here in the line on the #Ukraine side of the border. To prevent #HumanTrafficking, the Ukraine border officials have to very carefully check out the people in line.<br/>❤️#精糧战友采访 #新中国联邦 #乌克兰救援 跟踪报道：<br/>#小推车- 这是难民的运输“红细胞”。 为什么呢？来听一下志愿者 #尼尔先生 沟通交谈：这些装满用品的推车是为边境乌克兰那边排队的的人准备的，为了避免 #贩卖人口 事情发生， #乌克兰 边检人员必须非常小心的检查排队的人。<br/><br/>❤️We are the NEW CHINESE (#NFSC) who is taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP. <br/>We stand with the Ukrainians
 ![img](https://media.gettr.com/group36/origin/2022/03/26/12/e8f96b63-0104-5768-9b2b-6806fb344531/out.jpg)
-
----
-
-`@miles 3/26/2022 11:36 PM (UTC)`
-
-2022.03.26 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA   LAS OPERACIONES DE RESCATE DEL NEFC Y LA FEDD EN UCRANIA HAN OBTENIDO UNA GRAN REPERCUSIÓN
-![img](https://media.gettr.com/group44/origin/2022/03/26/23/74123b99-323c-9394-210d-9fe519d2649c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

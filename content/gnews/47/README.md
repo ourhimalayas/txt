@@ -2,21 +2,20 @@
 ---
 
 
-## 【#G时新闻】 北约峰会德国政治家当面称加拿大总理特鲁多是暴君
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2237094/)
+## 樱花时政┃威慑中共国的时间不多了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237149/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-作者：加拿大温哥华扬帆农场 – 播报：莉李鲤 – 视频制作：文雅
- 大家好！今天的主题是北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”！&lt;br&gt;&lt;br&gt;据网关专家新闻网24日报道，今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森（ Christine Margarete Anderson）在鲁塞尔举行的北约成员国讨论俄罗斯对乌克兰的战争的会议发言中当面指责加拿大总理克鲁多是“暴君” 在今年2月1日，加拿大总理特鲁多启用《紧急状态法》来镇压卡车司机抗议强制疫苗活动，包括拖走抗议者的卡车、冻结抗议者的个人和公司银行账户、暂停他们的车辆保险等卑劣手段，派出的皇家骑警对抗议者更是肆意践踏，造成多名示威者受伤，毁掉了加拿大皇家骑警一直保持的良好声誉，在世界上引起共公愤。&lt;br&gt;&lt;br&gt;安德森在此次北约会议上说特鲁多是一位公开钦佩中共基本独裁政权的首相，仅仅因为加拿大民众敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子。安德森认为特鲁多不应该被允许在北约会议上说话，因为特鲁多践踏了基本人权，是民主的耻辱。北约领导人出席了会议。&lt;br&gt;&lt;br&gt;编辑/上传：青青&lt;br&gt;盖特链接：&lt;a rel=”noreferrer noopener” href=”https://gettr.com/post/p11zfpj4166″ target=”\_blank”&gt;https://gettr.com/post/p11zfpj4166&lt;/a&gt; &lt;br&gt; 
-* * *
+撰稿：东京樱花团/加一颗稻草
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+我们不能让俄罗斯入侵乌克兰分散我们对中国共产党构成的威胁的注意力。就在本周，中共国驻美国大使公开拒绝谴责俄罗斯的入侵。尽管习近平和中共政府否认了这一点，但中共一直在与俄罗斯直接协调并相互比较，因为中共国有吞并台湾的野心，即使普京现在正在吞并乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-19.jpg)[图片来源](https://static.foxnews.com/foxnews.com/content/uploads/2022/02/Putin-Xi.jpg)
+中共国必须明白，在这场冲突中向俄罗斯提供财政或军事援助的任何决定都将直接违反国际和平努力，并将导致对其经济的严重制裁。拜登总统有机会明确这一点，防止中共国破坏国际社会，阻止他们将这场冲突升级到更加危险的程度。如果执行得当，这还有一个额外的好处，那就是在俄罗斯和中共国之间建立一个非常公开的楔子。对中共国建立有意义的威慑的时间已经不多了。
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+消息来源：[Time is running out to deter China](https://www.foxnews.com/opinion/time-running-out-deter-china)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

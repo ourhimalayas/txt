@@ -2,30 +2,52 @@
 ---
 
 
-## 莫斯科和基辅下周的新谈判
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2241422/)
+## 饮鸩止渴！中共国开始救房产市场
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2241461/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+编辑：文宝
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukrainian-Foreign-Minister-Kuleba-speaks-during-a-news-conference.jpg)
+**【小编提示】房地产是中共经济的命脉之所在，也是腐败官员的财富来源，CCP是不可能主动放弃房地产的，这种饮鸩止渴式的救市在短期会有作用，但是最终只会让结果更加糟糕！**
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F6ed6b18dj00r9b9e6003cd200nw00fxg00nw00fx.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
 
 
-图片来源：路透社
+就房地产市场而言，全国下行压力加剧，购房者观望情绪愈加浓重。
 
-俄罗斯和乌克兰的代表希望下周再次亲自会面，进行和平谈判。最近，各代表团在网上进行了磋商。土耳其再次被讨论为东道国。
+而今年以来，全国多地接连迎来“解绑”楼市的消息。数据显示，2022年开局至今全国已有超40城发布了各种力度的房地产宽松政策。
 
-经过大约两周的在线和平谈判，乌克兰和俄罗斯代表团现在希望再次亲自会面。俄罗斯代表团团长弗拉基米尔·梅丁斯基（Vladimir Medinski）周日在 Telegram 上写道，计划在周二和周三举行一次会议。乌克兰谈判代表戴维·阿拉恰米亚（David Arachamija）也证实了计划在 Facebook 上举行的个人会议，但谈到周一的开始，并将土耳其命名为东道国。土耳其方面最初没有确认。
+如广州、深圳、菏泽、重庆、赣州、佛山、南通、温州等城市，出台的宽松政策包括取消“认房又认贷”、降低首付比例、下调房贷利率、放宽公积金贷款等利好。
 
-俄罗斯对乌克兰的侵略战争于2月24日开始后不久，两国代表团开始谈判。在白俄罗斯边境地区举行了三场面对面会谈后，会谈以视频会议的形式进行。乌克兰要求停止战斗并撤出俄罗斯军队。莫斯科要求基辅放弃加入北约，北约承认该国东部的分离主义地区为独立国家，并承认俄罗斯对被吞并的克里米亚半岛的统治。
+且广西范围内，在今年也有多个城市迎来了“救市”政策。
 
-乌克兰外长德米特罗·库莱巴和他的俄罗斯同事谢尔盖·拉夫罗夫于 3 月 10 日在土耳其会晤。 然而，当时在安塔利亚的会谈并没有带来任何重大进展。
+这会，终于轮到桂林了！
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F1a677b1fj00r9b9e7002ed200nw00hxg00nw00hx.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+3月25日，桂林住房公积金管理中心接连发布了两则通知：**《桂林市住房公积金管理委员会关于调整住房公积金贷款有关政策的通知》**（市公积金管〔2022〕2号）和**《桂林市住房公积金管理委员会关于高层次人才使用住房公积金贷款有关政策的通知》**（市公积金管〔2022〕3号）。
 
-🔗 [https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html](https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html)
+**桂林住房公积金政策调整**
 
-编辑发表： Shuizhuyu
+《关于调整住房公积金贷款有关政策的通知》显示，为进一步支持住房公积金缴存职工购建自住住房需求，促进我市房地产市场健康平稳发展，现对我市住房公积金贷款有关政策做出以下调整：
+
+职工在申请住房公积金贷款时，应连续**正常缴存住房公积金24个月(含)以上调整为12个月(含)以上**。
+
+也就是说，普通职工正常缴存住房公积金时间只要达到1年以后，就能使用公积金贷款买房。
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F2602badfj00r9b9e60030d200u000yxg00g200io.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+此外，根据《关于高层次人才使用住房公积金贷款有关政策的通知》，桂林为桂林市引进的高层次人才办理个人住房公积金贷款制定以下政策：
+
+高层次人才在我市购买住房的，申请个人住房公积金贷款时可享受优惠政策：**申请贷款时应连续缴存6个月（含）以上；最高贷款额度可放宽至我市住房公积金最高贷款额度的1.5倍。**
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F601347a3j00r9b9e7003md200si00y7g00g200j9.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+也就是说，符合条件的高层次人才正常缴存住房公积金时间只要达到半年，就能使用公积金贷款买房，且**最高额度可达60万元**。以上两个通知的政策均从2022年5月1日开始执行。
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F4532b02ej00r9b9e7003ed200nw00hxg00nw00hx.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+
+
+原文链接：[https://www.163.com/dy/article/H3BLO7II0515EA2B.html?f=post2020\_dy\_recommends](https://www.163.com/dy/article/H3BLO7II0515EA2B.html?f=post2020_dy_recommends)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-32.png)DISCORD
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-31.png)GETTR
+
+
 
  
 

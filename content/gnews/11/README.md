@@ -2,38 +2,20 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月27日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2241444/)
+## 未来导致水贵的三个因素-文字及视频
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2241481/)
 
-作者：香草山翻译部
+供稿：聪宁
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-32.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-27.png)
-
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：
-[2022.03.27早 《NFSC新闻》](https://gettr.com/streaming/p124w9p0a5f)
-[2022.03.27早《NFSC新闻访谈》](https://gettr.com/streaming/p125dgx0ee2)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-24.jpeg)
-
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-32.png)
-
-
-
+水之稀缺是因为现在地球上的淡水是越来越少的，每年从天上下的雨和下的雪雪水，还有这个地区的供应等。
+影响水贵的三个因素：
+第一，人类的人口从过去10亿增长到75亿，这个水的用量和地球原来存在水量，它是完全矛盾的。就是供需，这是个绝对值。
+第二，就是现在地球变暖，现在的淡水越来越少。
+第三，现在人喝水比原来讲究。由于人过去喝哪儿水都行，喝沟儿里水喝那里的水都行，现在的水呀，不是说就想怎么喝就怎么喝，要净水，还有更多的安全和要求。未来的水等运到城市里，当你达到喝的条件，包括公用水成本会高很多很多，特别象这种瓶装水的，那你就不能想象了，随便的一个瓶装水未来都是现在的在10倍、50倍的价格，一定是这结局的！
+所以水是人类增长，地球变暖，还有整个人的身体的需要的质量的标准的改变和运输成本等这整个一切的增加，水是最贵的!
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
