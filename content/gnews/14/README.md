@@ -2,28 +2,24 @@
 ---
 
 
-## 躲过中共病毒疫苗灾难就是人生赢家
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241134/)
+## 天基移动电话网络公司将发射测试卫星
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241194/)
 
-作者：纽约磐石农场 在远方
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目前，唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署了一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间科技的蜂窝宽带网络。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.08.png)
+据悉，该公司总部位于美国德州，其计划在今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来与手机进行标准频率通信，并将在未来发射BlueBird卫星。
 
-在3月25日的大直播中，郭文贵先生表示，只要躲过中共病毒疫苗灾难，两三年之后就是人生赢家。爆料革命让新中国联邦人“无苗有币”，成为大赢家。
+其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。基于太空网络科技的新兴通信技术，不但会改写现有移动通信系统，而且会彻底消灭中共等独裁政权蒙蔽民众的网络防火墙。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-12.jpeg)
+参考链接：[Space-based mobile phone network AST SpaceMobile signs launch deal with Elon Musk rocket company SpaceX](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760)
 
-郭先生说，全世界至暗时刻的标志是疫苗灾难。只要在疫苗灾难开始后的两三年内，不病死、不饿死、不给共产党陪葬，就是人生最大赢家。这也是郭先生全力爆料，并频繁进行大直播的根本原因。
-
-郭先生希望，中国同胞能尽快逃出房地产崩塌、金融崩塌、中共灭亡、社会动乱、战争频发、自然灾害、粮食危机等灾难。并建议，在保证正常生活的前提下，尽快处理掉多余的房产。
-
-郭先生表示，人性情的本质是人的灵魂与肉体的结合，也是人的根本动力。当今在中共国，金钱至上、人们缺乏信仰，占有、欺骗、虚妄和幻想充斥脑海。只有爆料革命是在去除人的贪、嗔、痴、慢、疑，让人找回自我真性情，从而开启人类新篇章。
-
-参考链接：[3/25/2022 文贵直播：只要活过疫苗灾难到来后的两三年就是赢家！](https://www.gettr.com/post/p11xhu53432)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
 总编：Zion文恩
-审核/编辑：文真
-校正/发稿：谐趣园
+审核：NFSCNews 科技组
+校正/发稿：呼吸的雾霾（文小呼吸）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
