@@ -2,34 +2,23 @@
 ---
 
 
-## 埃隆·马斯克将采取行动对付推特
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2241453/)
+## 中共国近20家房企以各种原因延迟披露年报
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2241491/)
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/twitter-1.jpg)图片来源：Twitter
-据美国《每日电邮》26日报道，埃隆-马斯克周六暗示，可能会推出一个新的社交媒体平台来对抗推特，因为他认为推特不保护言论自由，从根本上破坏了民主。
+编辑：文宝
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F3dd2e62aj00r9cjuw0020c000u000lig.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+南方+房产频道记者获悉，又有更多南方产业智库上市房企60健康指数重点监测要延迟披露年报了。3月25日，大悦城（000031.SZ）发布公告称，大悦城控股集团股份有限公司原定于2022年3月30日披露2021年年度报告，因受新冠肺炎疫情影响，2021年度审计工作和年度报告编制工作预计完成时间晚于预期。为确保公司信息披露的完整性和准确性，经向深圳证券交易所申请，公司2021年年度报告披露时间由2022年3月30日变更为2022年4月12日。
 
-上周四，马斯克在推特上进行了一项 “推特算法是否应该开放源代码”的民调，他担心推特算法中的偏见会对公共话语产生重大影响。有110多万人参与投票，82.7%的人表示肯定。
+就在大悦城发布公告同一天，中国奥园（03883.HK）亦发布公告称，2021年度业绩可能无法遵守上市规则第13.49(1)条的规定于2022年3月31日前刊发。
 
-周五，马斯克发起第二轮民调，针对推特是否严格遵守了言论自由这一原则。他认为言论自由对一个民主国家正常运行至关重要。他提醒投票者认真对待，因为投票结果很重要。当天就获得200多万票，其中70.4%表示否定。
+根据媒体公开报道，截至目前，以种理由申请或预警延期发布财报的涉房类企业已达近20家，包括大悦城、奥园、新力控股、融信中国、融信服务、富力地产、世茂集团、世茂服务、融创中国、中国恒大、恒大物业、恒大汽车、景业名邦、佳兆业、明发集团、宝龙地产、宝龙商业、三盛控股、阳光100中国等。
 
-周六，马斯克继续跟进，问推特不遵守言论自由原则，是否需要一个新平台。
+原文链接：[https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w\_house](https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w_house)
 
-马斯克自称是言论自由的绝对主义者，他在向乌克兰提供星链宽带服务的同时，反对因入侵乌克兰而对俄罗斯媒体进行审查，并拒绝封锁俄罗斯新闻来源。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-33.png)DISCORD
 
-新闻来源：[‘Doesn’t Sound Very Balanced’: Elon Musk Hints He May Launch ‘New Platform’ To Take On Twitter](https://www.dailywire.com/news/doesnt-sound-very-balanced-elon-musk-hints-he-may-launch-new-platform-to-take-on-twitter)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-32.png)GETTR
 
-编辑/上传 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

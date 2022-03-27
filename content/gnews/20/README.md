@@ -2,22 +2,26 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾（3月16日至23日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241195/)
+## 亚速尔群岛一周来12000次的地震群不平常
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2241234/)
 
-作者：DC农场–火来
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月16日至3月23日，除中共国外，全球新增中共病毒确诊患者1154万余例，同比上周下降了6.63 %；此外，本周新增确诊死亡病例超过34313例，同比上周下降了11.1%。本周，全球新增确诊病例数和新增确诊死亡病例数均较一周前略有下降。截至3月23日，除中共国外，全球累计接种了80.4亿剂中共病毒疫苗，同比16日的累计接种数据增长了0.886%.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.15.png)
-3月16日，美国新罕布什尔州议会投票通过关于伊维菌素使用的法案，法案规定伊维菌素在新州为非处方药，在美国，新州将率先成为无需处方便可在药店购买伊维菌素的州。3月18日，继辉瑞公司之后，莫德纳公司也向美国FDA提交了针对成年人的第二剂中共疫苗加强针的使用许可申请，3月23日，莫德纳进而发表声明表示，希望FDA能够将第二剂加强针的使用许可扩大到6岁以下的儿童。3月22日，白宫官员称，美国目前没有足够的经费为全美国人提供免费的第二剂中共病毒加强针。3月22日，辉瑞宣布将通过联合国儿童基金会，向贫穷国家发放四百万份辉瑞研发的治疗中共病毒的药物Paxlovid，并且已经有超过30家公司申请生产Paxlovid的仿制药。
+大西洋上的一个葡萄牙火山岛上的居民正在撤离，因为已经检测到了数以千计的地震群，可能预示着未来的火山喷发活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/t.jpg)trupawn.com
+据《每日快报》报道，在亚速尔群岛，圣豪尔赫（Sao Jorge）的一些居民已经收拾好行李，离开了这个小岛，因为自上周六以来记录了12000多次地震，人们担心一场潜在的更大灾难正潜伏在前方。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+“火山发现”（VolcanoDiscovery）说，地震群 “可能是由10-15公里深处的岩浆侵入引起的，可能表明未来会有新的喷发活动”。大约200次地震的震级高达3.3级。
 
-编辑：Zion 文恩
-总编：Zion 文恩
-审核：Zion 文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周三，亚速尔群岛地震火山信息和监测中心（CIVISA）将火山警报提高到4级，标志着自1808年以来火山首次爆发的 “真正可能性”。
+
+地震学家（Joao Fontiela）告诉卢萨（Lusa）新闻社，每年 “圣豪尔赫的地震很少”，但 “我们现在谈论的是成千上万的地震”。他正在该岛周围设立地震监测站，以监测事态发展。
+
+亚速尔群岛地震火山信息和监测中心说，“没有证据表明火山喷发即将发生”。但该机构表示，不应忽视火山爆发。它指出，地震群是不正常的。
+
+参考链接：
+[https://www.zerohedge.com/weather/swarm-12000-earthquakes-rattles-azores-island-sparks-speculation-volcanic-eruption](https://www.zerohedge.com/weather/swarm-12000-earthquakes-rattles-azores-island-sparks-speculation-volcanic-eruption)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
