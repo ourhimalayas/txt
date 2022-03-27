@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|未来战争将转型为高科技远程作战
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240555/)
+## 视频|法国、土耳其、希腊将在马里乌波尔展开人道救援
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2240626/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-郭文贵先生在3月25日的大直播中指出，人类未来将更多地依赖高科技进行远程战争，近身作战的模式将逐渐被淘汰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.40.43-PM.png)
-郭先生解释称，在此次俄乌战争中，俄罗斯本想在一星期内结束入侵，但由于乌克兰当局利用高科技手段时时锁定俄罗斯军队的行踪，从而导致莫斯科政府的狂妄企图宣告破灭。
+制作：香草山视频部
 
-郭先生也补充道，未来，使用大规模军事人员的作战方式将被科技战争和经济战争取代。在这种非接触式战争的模式下，豢养军队的政策将逐渐淡出历史。因此，那些仍旧保留大批军队的国家基本上都是以此镇压本国人民，而非对外作战。此外，虽然核武器也将是未来作战的工具之一，但鉴于其毁灭性的特质，它也很难会轻易出现在战场之中。
+据国外媒体3月25日报导，法国总统马克龙日布鲁塞尔欧盟峰会后表示，法国将与希腊和土耳其联手展开人道救援行动，从被俄军攻击的马里乌波尔市撤出所有希望离开该市的民众。
 
-郭先生也强调道，时至今日，因为牵引和通讯技术的改变，掌握世界通讯权以及空中高科技的一方将直接主导战争的走向。
+马克龙称，他将在48到72小时内与俄罗斯总统普京展开讨论，以敲定细节和执行方案。他表示希望能救出尽可能多的人，并在几天内尽快开始撤离。
 
+马克龙说，法国官员与马里乌波尔市长通话后得知，还有15万人被困在市内，情况危急。
 
+马里乌波尔市政府则表示，该市已经有2000余人丧命于战火。
 
-文字版原文：[未来战争将转型为高科技远程作战](https://gnews.org/zh-hans/2235359/)
+据悉，俄罗斯试图将被其吞并的克里米亚半岛与东部由莫斯科控制的地区连接起来，因此将这座港口城市作为了其对乌克兰残酷打击的主要焦点。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+发稿：Daxia
+
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
