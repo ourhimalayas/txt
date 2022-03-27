@@ -2,27 +2,24 @@
 ---
 
 
-## 民调显示有4成家长担心口罩会伤害孩子的身心健康
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2239198/)
+## 部分政商精英误判俄乌战事
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239327/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约磐石农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月25日的《文贵大直播》中，郭文贵先生指出，部分世界政商精英和资本大鳄对俄乌战争的发展严重误判。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-27-at-7.39.09-PM.png)
+在俄乌开战前，许多世界政商精英都认为，俄罗斯有能力在开战后的一周内全面掌控乌克兰。他们天真地认为，美国与欧洲开始只会言论支持乌克兰，而实质性的技术与通信支援最快也会在两周后到达，届时，乌克兰已经沦陷；俄将转战进攻波罗的海三国。部分资本大鳄更是认为，俄罗斯将通过此战彻底垄断北欧的石油、天然气等自然资源，届时，卢布都会暴涨，世界大多数国家都会换成俄式武器装备。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3-5.jpg)图片来源：网关专家
-《国会山报》（The Hill）和《新闻极限》（Newsmax）报道称，政治新闻网站Politico与哈佛大学进行的一项民意调查发现，大概有40%的家长认为戴口罩对孩子健康有害，妨碍了他们的社会学习和互动。
+然而，事实证明他们的判断完全错误——俄罗斯的部队在乌克兰前线连连受挫，军心不稳；普京的军方心腹谢尔盖·绍伊古离奇消失。反观乌克兰一方，妇女儿童有条不紊地撤离家园，青壮年男儿为妻儿家眷背水一战，在现代信息科技指导下屡屡击破俄军的进攻。普京和他的独裁者盟友习近平为了逞口舌之快，不惜动用核武器震慑。然而，独裁者的傲慢与偏见，让他们无视以当代信息科技为基础的防御系统会在核武启动的第一时间使之瘫痪。
 
-这项在3月1日至3月7日期间进行的调查采访了478名有孩子在上学的家长。40%的家长说学校的口罩强制令伤害了孩子的整体就学经验，近50%的家长认为没有什么区别，11%的人说口罩对孩子有益处。
+参考链接：[3/25/2022 文贵直播: 为什么连世界级的政治家和沼泽地一开始都对俄乌战争做出误判？](https://gettr.com/streaming/p11tme3b4de)
 
-在认为戴口罩会伤害孩子的家长中，46%的家长觉得戴口罩影响了学生的社会学习和互动，约39%认为口罩影响了孩子的情绪和心理健康。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-哈佛大学陈曾熙公共卫生学院的卫生政策和政治分析名誉教授罗伯特·布兰登(Robert Blendon)表示：“即使在民主党掌权的州或地区，也有相当数量的家长认为口罩政策正在伤害他们的孩子。如果是伤害孩子的事情，家长的反应会特别强烈，任何影响家人的事情都会不成比例的改变人们思考事情的方式。”有52%的独立家长表示，为了孩子的安全，没有必要戴口罩。
-
-全美各地已解除口罩强制令，多数学区也不再要求学生戴口罩。总的来说，当被问及是否有必要让孩子在学校戴口罩以免感染新冠病毒及其变种奥米炕时，家长们的意见基本一致。共有51%的人说有必要；47%的人说没有必要；还有2%的人不知道。
-
-拜登政府正密切观察新冠奥米炕亚变种BA.2在欧洲肆虐的情况，白宫官员警告说，可能有必要恢复戴口罩等防疫措施。新冠疫情爆发以来，校园口罩令向来是个争议话题，部分家长甚至因此抗议校方的决定。支持校园口罩强制令的人士则认为，这能保护学生避免感染新冠病毒，即便学生已经接种了新冠疫苗。
-
-新闻来源：[4 in 10 parents say mask-wearing in school harmed their children: poll](https://thehill.com/blogs/blog-briefing-room/news/599882-4-in-10-parents-say-mask-wearing-in-school-harmed-their?rl=1)[46% of Parents Believe School Mask Mandates Hurt Students’ Social Skills](https://www.newsmax.com/newsfront/school-mask-mandates-children/2022/03/25/id/1062934/)
-
+编辑/总编/审核：Zion文恩
+校正/发稿：我不在这里
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

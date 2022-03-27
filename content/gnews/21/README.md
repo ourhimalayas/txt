@@ -2,40 +2,24 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（1）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2239689/)
+## 冬天来了，春天还会远吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239816/)
 
-**整理：**雅典娜情报组（BENJ1）
-**编辑：**翼族
+撰稿：东京樱花团/深藏不露
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8722907_121220-cc-covid-vaccine-side-effects-img.png)ABC7
+美国总统乔·拜登周六在波兰发表演讲，严厉批评俄罗斯总统普京，多次称他为“独裁者”，并表示他在乌克兰入侵后“不能继续掌权”。拜登說，世界民主国家要为与普京政府的长期冲突做好准备！拜登在波兰演讲中还特意强调：俄罗斯人民不是我们的敌人！拜登把俄罗斯人民和普京政权分开，好熟悉的桥段，郭文贵先生领导的爆料革命就一直对外强调：中国共产党不等于中国人！通过拜登的讲话，再次验证爆料革命提出的中国共产党不等于中国人已经一定得到国际社会正义人士的认可！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-161.png)
+郭先生在2022年Gclubs年会爆料：面对白宫态度强硬下达最后通牒，邪恶的中共崇祯帝习近平却一意孤行仍然坚持联俄灭美，铁了心的要和普京站在一起！现在，拜登总统和全球正义力量已经正式打响围剿普京的战斗！愚蠢的中共崇祯帝习近平却非要一条道走到黑，最后的结果一定如铁板图所预言的那样撞山而亡！！
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-55.jpg)
 
-**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+冬天来了，春天还会远吗？不可一世的中共崇祯帝习近平的铁杆普京已经深陷泥潭不能自拔！如今世界局势如同冬天虽然很寒冷，但是寒冷的冬天过后就会迎来美好的春天！邪恶中共习近平政权你完了！中国老百姓翘首以盼的春天已经不会遥远……
 
-**疫情|辉瑞疫苗副作用 打完的大家还好吗？**
+消息来源：[2022年3月26日 Gclub2022年年会](https://gettr.com/post/p11z7ye4d5a)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-160.png)小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-71.png)小红书
-
-
-1. 在辉瑞试验研究的46,000参与者中，有42,000人有不良反应，1200人死亡。FDA的规定是，在接受一种实验性试验药物后30天内只要有一个人死亡就会结束试验。但是辉瑞疫苗继续使用。
-2. 我因为不打Booster【**注：**加强针】失业了，讽刺的是，打了Booster的同事们，全阳了，幼儿园也关门了（不是因为要隔离，而是因为没老师），我工作的最后两天全天戴N95，不停洗手，用酒精喷雾喷自己的衣服，用医用级别的消毒剂疯狂消毒工作地方，开窗通风。然后午休时间坐在车里吃饭，然后换新口罩。我觉得认真做好防护工作，比拿着生命健康冒险打Booster更有效。
-3. 我打完两针以后，心脏跳的很慢，心慌，胸闷（fluttered heart/shortness of breath/这是辉瑞官方介绍给的副作用），在美国CDC网站，说第三针至少半年以后打，NZ傻Jacinda【**注：**新西兰总理】不管大家死活，强制大家扎，希望大家都注意防护，注意安全。
-
-
-**参考链接：**[疫情|辉瑞疫苗副作用 打完的大家还好吗？](http://www.xiaohongshu.com/discovery/item/6222a4e3000000000102fb70?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648209097)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

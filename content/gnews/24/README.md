@@ -2,31 +2,70 @@
 ---
 
 
-## 樱花时政┃美贸易代表继续对中共国施压
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239448/)
+## 樱花深度报道┃俄乌战争带给中共的恐惧（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239732/)
 
-撰稿：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
-在本月23日美国贸易办公司宣布重新豁免352项中共国进口商品关税后不久，拜登政府再次就贸易问题对华施压。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-42.jpg)
-据路透社3月25日报道，美国贸易代表戴琪本周接受该媒体采访时称，美国不会再“袖手旁观”（sitting on its hands），将以更积极的态度向世界第二大经济体中共国施压，要求其改变美国所谓“扭曲市场贸易”做法。戴琪声称，美国正准备采取一种新的对华贸易政策，通过更新的、更有效的措施来捍卫自身经济利益，更好地与中共国竞争，但她并未提供具体细节。“我们不会停止敦促和挑战中共国，让中共国进行改革和变革。但我们没办法继续袖手旁观，坐等中共国做出决定。我们需要翻开游戏规则新的一页。”戴琪说。
+编译：东京樱花团/Hopkins
 
-美国贸易办公室释放的“豁免部分中共国进口商品关税”的信号在本月23号，让中共先可以对墙内群众暂时洗脑一下，突然间对中共国继续施压的极速转弯，拜登政府的老牌政客懂得如何玩中共，此次他的波兰的访问及公开讲话，表面说普京及俄罗斯实际是在警告中共“柏林墙已经到了，就像当年里根总统访问德国一样”。只不过拜登这次是杀“俄罗斯”给“中共”看。中共倒塌的日子屈指可数了……
+【编者按】中国共产党正在密切关注，并且记录俄罗斯在乌克兰面临的困难。这可能让北京对其“统一台湾”计划三思而后行。台湾在几个方面与乌克兰相似。台湾是美国的长期盟友，有着西方的人生观。这是一个或多或少基于自由、自由市场，和民主价值观的强大社会。从经济上讲，全球约三分之二的经济依赖于台湾制造的芯片。现在莫斯科和北京都有充分的理由感到担忧和恐惧。
 
-消息来源：
-[美国贸易代表：美国将加大对中共国的施压](https://baijiahao.baidu.com/s?id=1728375312023381554&amp;wfr=spider&amp;for=pc)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-136.jpg)
 
-[Remarks As Prepared for Delivery of Ambassador Katherine Tai Outlining the Biden-Harris Administration’s “New Approach to the U.S.-China Trade Relationship”](https://ustr.gov/about-us/policy-offices/press-office/speeches-and-remarks/2021/october/remarks-prepared-delivery-ambassador-katherine-tai-outlining-biden-harris-administrations-new)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
+（图片说明）2022年3月11日，全国人民代表大会闭幕会议在北京人民大会堂举行。警卫的右方是中国领导人习近平的形象。（Noel Celis/AFP via Getty Images）
+
+中国共产党正在密切关注，并且记录俄罗斯在乌克兰面临的困难。
+
+在乌克兰，很多事情都是值得注意的。
+
+**乌克兰效应**
+
+许多人预计，俄罗斯对乌克兰的胜利只需要几天时间。当然，他们没想到乌克兰总统弗拉基米尔‧泽连斯基（Volodymyr Zelensky），一名于2019年当选的前演员、喜剧演员和政治新手，会站出来对抗弗拉基米尔‧普京（Vladimir Putin）的入侵军队。
+
+但他做到了。
+
+今天，差不多一个月后，俄罗斯仍在困境之中。事实证明，乌克兰的抵抗比莫斯科所预想的要强硬得多。
+
+**西方的重大反应**
+
+此外，西方对入侵的反应肯定也比预期的要大。美国、波兰、德国和其它国家已经为乌克兰提供了便携式和高效的反坦克和防空武器、医疗用品，以及更多帮助阻止俄罗斯军队前进的武器。
+
+但到目前为止，最重要的因素是在泽连斯基无畏的领导下乌克兰人民的决心。鉴于乌克兰所经历的历史，这不应该令人惊讶。
+
+**乌克兰在俄罗斯统治下的惨痛历史**
+
+数以百万计的乌克兰人记得在俄罗斯统治下作为苏维埃联邦国家的生活。由于几十年的共产主义统治仍然活在人们的记忆中，乌克兰人没有兴趣再次成为俄罗斯的附庸。他们享受着他们在共和国中拥有的自由。尽管可能存在缺陷，但他们享受着选举的权利，以及相对广泛的公民权利和经济机会。
+
+此外，俄罗斯不是经济活力的典范。相反，它基本上是一个拥有核武器的加油站，碰巧在广阔的小麦和大麦田旁边出售军事硬件。
+
+所以，乌克兰人怎能不战斗到死，以防止被俄罗斯化呢？
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-54.jpg)
+
+（图片说明）2022年3月13日，乌克兰士兵走在乌克兰基辅西北部伊尔平市（Irpin）附近一座被毁桥梁旁的临时小径上。（Aris Messinis/AFP via Getty Images）
+
+普京的西方噩梦和军事弱点
+
+现实情况是，从1991年到今天，乌克兰人在很大程度上已经变得西化。
+
+这正是普京的看法。他最近哀叹西方对俄罗斯和乌克兰文化的负面影响，这说明了一切。
+
+具有讽刺意味的是，普京不必把目光投向乌克兰，就能看到西方的影响力。它就在那里，在俄罗斯社会中也是如此。
+
+这一事实可能部分解释了为什么俄罗斯军队在乌克兰的表现不那么出色。总的来说，俄罗斯年轻人更有可能对玩视频战争游戏更感兴趣，而不是实际参加战争，特别是在许多俄罗斯人有着密切家庭关系的乌克兰。
+
+（未完待续）
+
+*作者简介：*
+
+*詹姆斯**‧**戈里（James Gorrie ）是《中国危机》（The China Crisis）（威利出版社，Wiley， 2013年）的作者。他的博客是TheBananaRepublican.com。他住在南加州。*
+
+信息来源：[*The CCP’s Struggle With Western Liberalism*](https://www.theepochtimes.com/the-ccps-struggle-with-western-liberalism_4349005.html)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

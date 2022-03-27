@@ -2,25 +2,30 @@
 ---
 
 
-## 捷克参议员呼吁改革联合国：决不能允许俄罗斯捣乱
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2239655/)
+## 堪萨斯州允许将伊维菌素和羟氯喹作为治疗中共病毒的药物
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2239778/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Kansas-ivermectin-hydroxychloroquine-feature.jpg)
+3月25日周四，堪萨斯州参议院通过一项投票，允许医疗保健商开具伊维菌素和羟氯喹作为治疗中共病毒的药物。
 
-据kyivpost网站3月26日报道，捷克参议员帕维尔·费舍尔（Pavel Fischer）周六接受采访时表示，俄罗斯联邦违反了《联合国宪章》，对乌克兰进行军事侵略，必须对联合国做出改革。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-32.png)捷克参议院外交事务委员会主席，前总统候选人帕维尔·菲舍尔。（图片来自kyivpost）
-捷克参议院外交事务委员会主席、前总统候选人帕维尔·费舍尔在接受乌克兰市政厅报（Guildhall）采访时说，“俄罗斯联邦违反国际法的所有准则，对乌克兰进行军事侵略，违反了《联合国宪章》。联合国的创建是为了避免欧洲的战争。“
+该法案还要求托儿所和公立学校批准家长因宗教豁免不给孩子接种中共病毒疫苗的请求，且不深究对这种宗教的虔诚度。
 
-费舍尔指出，俄罗斯做为侵略者无权阻止联合国讨论这样一场非法的军事冲突，许多平民无缘无故地死亡，马里乌波尔市已成为世界末日的象征。联合国必须做出改革。”
+据悉此前由于美国FDA的规定，很多医生和药剂师拒绝使用伊维菌素和羟氯喹作为治疗中共病毒的药物，尽管这两种药物是非常有效的。曾经为感染中共病毒的患者开具伊维菌素的医生还被调查。堪萨斯州该项法案目前已经提交众议院。新罕布什尔州已经通过类似法案。
 
-费舍尔谴责称，俄罗斯军队正在乌克兰犯下战争罪，并将在国际法庭受到审判。
+撰稿、发布：骄子
 
-参考链接：
-[https://reurl.cc/veZmWa](https://reurl.cc/veZmWa)
+* * *
 
-总编： 老孙
-校对发布：Linda
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
