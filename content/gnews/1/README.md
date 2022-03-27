@@ -2,27 +2,29 @@
 ---
 
 
-## 拜登波兰演讲称不能让普京继续掌权
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2239614/)
+## 今日盖特大V推荐 — 图尔西·加巴德（Tulsi Gabbard）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2239636/)
 
-**撰稿：日本东京方舟农场   Miyali7768(文玉) **
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3211.png)
+盖特链接： [**https://gettr.com/user/tulsigabbard**](https://gettr.com/user/tulsigabbard)
 
-据《中央社》3月26日报道，俄罗斯挥军入侵乌克兰逾一个月，美国总统拜登26日在波兰严厉抨击俄罗斯总统普京，称普京是“刽子手“不能让他”继续掌权”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-53.jpg)（图片来自图取自facebook.com/POTUS）
-《中央社》援引《法新社》报导，美国总统拜登（Joe Biden）26日在波兰首都华沙（Warsaw）皇家城堡（Royal Castle）发表激昂演说，形容俄罗斯发动入侵乌克兰战争是一场“战略失败”。同时明确警告俄罗斯，切勿入侵北大西洋公约组织（NATO）“一吋”领土，重申集体捍卫北约盟国的“神圣义务“。
+**图尔西·加巴德自述：**
 
-拜登在演讲中把乌克兰对抗俄罗斯入侵比拟成与对抗苏联的“自由战争“，警告全世界必须准备好”长期抗战“，并向现场听众和乌克兰人保证，”我们与你们站在一起“。
+2020年总统候选人、前国会议员、士兵、冲浪者、瑜伽、素食。 查询：http://tulsigabbard.com（观点不反映国防部立场）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3212.png)图片来源：网络
+**图尔西·加巴德简介：**
 
-另外，拜登向俄罗斯老百姓表示，俄罗斯人民“不是我们的敌人”，西方国家对俄罗斯祭出的严厉经济制裁的措施，归咎于俄罗斯总统普京。
+图尔西·加巴德（Tulsi Gabbard，生于1981年4月12日）是美国政治家和美国陆军预备役军官，2020年总统候选人，前国会议员。
 
-在演讲结尾，拜登表示，“我们将会拥有一个迥然不同未来，植根于民主和原则、希望与光明的更美好未来，看在老天爷的份上，不能让这个家伙继续掌权。”
+2002年，图尔西·加巴德当选为夏威夷众议院议员。2013年至2021年，她当选为代表夏威夷第二选区的美国众议院议员。2020年，她是美国总统选举民主党初选候选人之一。她是第一个信仰印度教的美国国会议员，也是第一个萨摩亚裔美国国会议员。
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202203270009.aspx](https://www.cna.com.tw/news/aopl/202203270009.aspx)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：幽蘭自得
-总编：老孙
-校对发布：Linda
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

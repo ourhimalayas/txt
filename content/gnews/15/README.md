@@ -2,8 +2,8 @@
 ---
 
 
-## 中国房地产一旦崩塌 共产党会让人民继续付贷款
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239443/)
+## 中国在未来几十年内和西方军事抗衡的可能性是零
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239469/)
 
 台灣寶島農場
 
