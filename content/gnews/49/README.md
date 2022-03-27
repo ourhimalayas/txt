@@ -2,20 +2,30 @@
 ---
 
 
-## 樱花时政┃威慑中共国的时间不多了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237149/)
+## 俄乌战争｜Anonymous 如期公布俄央行数据库 料更多机密陆续有来
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2238646/)
 
-撰稿：东京樱花团/加一颗稻草
+**图/文｜CP **
+**发布时间｜27/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Anonymous-如期公佈俄央行數據庫-料更多機密陸續有來.jpg)
 
-我们不能让俄罗斯入侵乌克兰分散我们对中国共产党构成的威胁的注意力。就在本周，中共国驻美国大使公开拒绝谴责俄罗斯的入侵。尽管习近平和中共政府否认了这一点，但中共一直在与俄罗斯直接协调并相互比较，因为中共国有吞并台湾的野心，即使普京现在正在吞并乌克兰。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-19.jpg)[图片来源](https://static.foxnews.com/foxnews.com/content/uploads/2022/02/Putin-Xi.jpg)
-中共国必须明白，在这场冲突中向俄罗斯提供财政或军事援助的任何决定都将直接违反国际和平努力，并将导致对其经济的严重制裁。拜登总统有机会明确这一点，防止中共国破坏国际社会，阻止他们将这场冲突升级到更加危险的程度。如果执行得当，这还有一个额外的好处，那就是在俄罗斯和中共国之间建立一个非常公开的楔子。对中共国建立有意义的威慑的时间已经不多了。
+[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
 
-消息来源：[Time is running out to deter China](https://www.foxnews.com/opinion/time-running-out-deter-china)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+全球最大黑客组织 Anonymous（匿名者）24日曾向俄罗斯总统普京发出警告，声称已入侵俄罗斯中央银行，如果普京不停止对乌克兰的入侵，他们将在48小时内公开该银行28GB的数据库，包括35000份机密文件。
+
+Anonymous周六（26日）如期将超过28GB的俄央行数据库公开，当中包括不少俄罗斯特权阶层的金融信息。就目前爆光的文件来看，涉及范围涵盖银行发票、内部通讯、文件、备忘录、对账单、其他关联银行的股东姓名、银行执照、知名客户个人信息、财务纪录等等，最早可追溯至1999年。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Anonymous-如期公佈俄央行數據庫-料更多機密陸續有來.jpeg)
+不仅如此，Anonymous 还特意录了一段视频给普京，称他们会在下周发布更多机密文件，包括克林姆林宫向俄罗斯民众隐瞒的经济数据、与北约、欧盟、美国政府以及主要金融机构之间的非法联系、台底协议、闭门会议纪录等等都将会陆续爆光。（视频可点击 [Gettr](https://gettr.com/post/p124t5i2cab) 观看）
+
+Anonymous 对普京说：“弗拉基米尔·普京，没有什么秘密是安全的，我们无处不在，我们在你的宫殿里，我们在你吃饭的地方，我们在你的餐桌旁，我们在你的房间里，在你睡觉的地方。”
+
+来源｜[Kyivpost](https://www.kyivpost.com/eastern-europe/anonymous-hacks-russias-central-state-bank-secret-data-exposure-promised.html)、[Anonymous](https://twitter.com/YourAnonTV/status/1507427538745896966?s=20&amp;t=16kMRmmdpdvQN0pyqTeUhQ)
+
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,19 +2,37 @@
 ---
 
 
-## 我们的救援马甲要重新设计，全球派发，因为这一刻马上来了
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2241863/)
+## 【#G时新闻】北约峰会德国政治家当面称加拿大总理特鲁多是暴君
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2241899/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+##### 播  报：加拿大温哥华扬帆农场 – 莉李鲤
 
-*发布：陶子*
+##### 视频制作：加拿大温哥华扬帆农场 – 文雅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”！
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+大家好！今天的主题是北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”！
+
+据网关专家新闻网24日报道，今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森（ Christine Margarete Anderson）在鲁塞尔举行的北约成员国讨论俄罗斯对乌克兰的战争的会议发言中当面指责加拿大总理克鲁多是“暴君”
+
+在今年2月1日，加拿大总理特鲁多启用《紧急状态法》来镇压卡车司机抗议强制疫苗活动，包括拖走抗议者的卡车、冻结抗议者的个人和公司银行账户、暂停他们的车辆保险等卑劣手段，派出的皇家骑警对抗议者更是肆意践踏，造成多名示威者受伤，毁掉了加拿大皇家骑警一直保持的良好声誉，在世界上引起共公愤。
+
+安德森在此次北约会议上说特鲁多是一位公开钦佩中共基本独裁政权的首相，仅仅因为加拿大民众敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子。安德森认为特鲁多不应该被允许在北约会议上说话，因为特鲁多践踏了基本人权，是民主的耻辱。北约领导人出席了会议。
+
+盖特链接：https://gettr.com/post/p11zfpj4166
+
+编辑/发文 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
 
  
 

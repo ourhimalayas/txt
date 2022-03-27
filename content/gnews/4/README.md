@@ -2,58 +2,26 @@
 ---
 
 
-## 乌克兰被炸城市惨状：上帝已远离马里乌波尔（1/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2241910/)
+## 乌克兰副总理：俄军像纳粹一样将乌克兰人关押进过滤营
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2241973/)
 
-翻译：噜噜咪
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3270-edited.png)图片来源：theguardian.com
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16484237591.png)    图片来源：每日邮报
+据《新闻极限》（Newsmax）3月27日报道，乌克兰副总理伊琳娜·韦列舒克（Iryna Vereshchuk）3月26日在接受《Current Time》采访时说，来自该国被围困城市的乌克兰人被带到俄罗斯境内，并被关进营地，在那里被过滤和筛查，就像纳粹德国一样。
 
-2月24日凌晨3点50分，50岁的伊丽娜·普鲁德科娃在Telegram上收到她24岁的女儿瓦莱丽娅的信息，她住在乌克兰的首都基辅。
+韦列舒克说：“那些被强迫带走的乌克兰人被分为值得信赖的和不可靠的，他们的文件被拿走，并被检查是否有纹身。儿童从他们的父母身边被带走，孤儿院或寄宿学校的儿童也被带走，尚不知他们被带往何处。”她同时指出，上周六有4000多人从马里乌波尔（Mariupol）成功撤离。然而，他们不得不步行离开，因为俄军不允许大巴车进入该城市。另外还发生过俄军炮击人道主义车队或以其他方式拖延他们前进的情况。
 
-“你在听普京讲话吗？”瓦莱丽娅的信息写道。“这完全是一团糟。有一个特别的军事行动”。
+同时，俄军正在强行将人们带往诺沃亚佐夫斯克 (Novoazovsk)市。她证实，该市所在领域自2014年就不受乌克兰控制。韦列舒克说：“我们已经写了各种各样的信，向国际社会大声疾呼这是非法行为。我们没有在那里开辟一条通道，它不安全。现在建立的所有过滤营（filtration camps）都要遵守《日内瓦公约》（Geneva Conventions）。过滤营是纯粹的违法行为，这肯定会导致刑事后果。我知道在顿巴斯（Donbas）、顿涅茨克（Donetsk）和卢甘斯克（Lugansk）
 
-凌晨4点08分，瓦莱丽娅再次发来消息。“妈妈，基辅正在遭受炮击”。
+也有这样的过滤营。”
 
-坐在她位于马里乌波尔市绿树成荫的基洛夫斯基住宅区九层公寓楼一楼的小公寓里，伊丽娜知道她必须做什么。
+韦列舒克补充说：“有关过滤营的信息来自那些离开马里乌波尔的人，以及那些看到儿童、妇女和老人是如何在他们眼皮底下被带走的人。至于人数，据我们所知，大概有4万人被强行驱逐到俄罗斯，还有人被强行从基辅郊区带到俄罗斯和顿巴斯，他们的命运仍然未知。乌克兰当局正在尽一切可能寻找他们并把他们送回自己的祖国，包括要求红十字会如果在罗斯托夫（Rostov）开设代表处，必须确保人们被带到其在乌克兰的家园，而不是未知的方向。”
 
-她已经收拾好一个小提包，里面装着钱、一些可能用来换取食物和住所的珠宝，以及家庭文件。
+据《国际文传电讯社》（Interfax）报道，俄罗斯国防部说，自2月24日以来，已有近44万居民被疏散到俄罗斯，包括9.1万多名儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3306.png)`伊丽娜和2月24日与他们一起离开的一个两岁的家庭成员在一起`
+*责编：白夜*
 
-她的丈夫，46岁的亚历山大那天早上争辩说，他们可以再多呆一两天来处理他们的事务。我告诉他，“我们必须离开，这是最后的机会”。
-
-当伊丽娜匆忙收拾行李时，亚历山大带着他们的奔驰W212在公寓楼后面的西部石油集团加油站加满汽油。一条长长的汽车队伍已经先到了那里。
-
-当亚历山大紧张地等待时，夜空突然亮起了震耳欲聋的雷声，这种声音即使在靠近乌克兰军队与亲俄分裂分子在顿涅茨克和卢甘斯克的八年战争前线的城市也是不常见的。
-
-战争已经控制了马里乌波尔——而且还没有松手。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3307.png)汽车司机排队离开马里乌波尔。路透社照片
-
-这是一个基于日记和采访那些在难以想象的耐力考验中幸存下来的人的故事，一个城市被迅速和残酷地摧毁，在这个过程中，人类最好和最坏的一面都展现出来了。这是一个持续的故事，充满了死亡、苦难和心痛，通过泪水记录和讲述。
-
-当伊丽娜和亚历山大，以及他的父母、一个侄女和她两岁的儿子，从马里乌波尔沿着沃洛达斯卡亚高速公路向北疾驶时，51岁的记者纳迪娅·苏霍鲁科娃正在市中心向北一英里多的公寓里睡觉。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3308.png)马里乌波尔外被俄罗斯炮击破坏的乌克兰军事设施。美联社照片
-
-接下篇：[乌克兰被炸城市惨状：上帝已远离马里乌波尔（2/5）](https://gnews.org/zh-hans/2241109/)
-
-**参考链接：**[‘God has left Mariupol’: diary entries chart horror of besieged city in Ukraine](https://www.theguardian.com/world/2022/mar/25/mariupol-diary-entries-besieged-ukraine)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-20.jpeg)
+新闻来源：[Ukrainian Official: Russia Putting Ukrainians Into Camps, Like ‘Nazi Germany’](https://www.newsmax.com/newsfront/russia-ukraine-camps-iryna-vereshchuk/2022/03/27/id/1063071/)
 
  
 

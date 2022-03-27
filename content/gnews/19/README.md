@@ -2,35 +2,28 @@
 ---
 
 
-## 美财长耶伦赞同加密货币的创新称需要被监管
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
+## 国内专业人士质疑核酸检测办法合理性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2241674/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
-据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
+撰稿/配图：东京樱花团/Ob
 
-周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
+“我知道，我刚才给您讲了普通人都理解，我们做核酸还还不用我们自己花钱，对吧政府花钱，我们都理解为了为了是检测出感染者。你刚才也说了啊，可能政府考虑到了室内空气不好流通是吧不容易流通、容易感染，所以玩到室外了这个都不是好办法。”
 
-她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-12.png)[图片来源](https://j.eastday.com/p/162918704977010970)
 
-她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
+“我们有更好的办法，政府可以采纳，也可以测核酸。国务院采样方式当中有三种，一个是鼻试子，一个是咽拭子，就一个抠鼻子，一个捅嗓子的，还有一个是测痰液。而我们都知道，在痰液的话那个病毒含量是最高的。为什么要六轮核酸你知道吗？”
 
-展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
+“我搞专业的知道，你看新闻都知道了，抠嗓子抠鼻子他测的不准，他一次测不出来，有的测十次才测出来，但测痰液一次就可能测出来，准确率非常高，比鼻炎石子高百分之三十以上。为什么非要捅鼻子呢？有痰的可以吐痰呀，没有痰的吐唾液可以呀，你在一家里边我们四口人。”
 
-报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
+“在家里边都吐好痰之后，分好袋儿，你做好标记在那排队都不用摘口罩，往那一放，你们就采样就测呗，这不是很好的办法吗？”
 
-新闻来源链接：
+[消息来源](https://res.wx.qq.com/voice/getvoice?mediaid=MzA5MzgwMzQ1OV8yMjQ3NDg1Mjgz&amp;voice_type=1)
 
-[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,20 @@
 ---
 
 
-## 莫斯科和基辅下周的新谈判
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2241422/)
+## 未来导致水贵的三个因素-文字及视频
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2241481/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+供稿：聪宁
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukrainian-Foreign-Minister-Kuleba-speaks-during-a-news-conference.jpg)
-
-
-图片来源：路透社
-
-俄罗斯和乌克兰的代表希望下周再次亲自会面，进行和平谈判。最近，各代表团在网上进行了磋商。土耳其再次被讨论为东道国。
-
-经过大约两周的在线和平谈判，乌克兰和俄罗斯代表团现在希望再次亲自会面。俄罗斯代表团团长弗拉基米尔·梅丁斯基（Vladimir Medinski）周日在 Telegram 上写道，计划在周二和周三举行一次会议。乌克兰谈判代表戴维·阿拉恰米亚（David Arachamija）也证实了计划在 Facebook 上举行的个人会议，但谈到周一的开始，并将土耳其命名为东道国。土耳其方面最初没有确认。
-
-俄罗斯对乌克兰的侵略战争于2月24日开始后不久，两国代表团开始谈判。在白俄罗斯边境地区举行了三场面对面会谈后，会谈以视频会议的形式进行。乌克兰要求停止战斗并撤出俄罗斯军队。莫斯科要求基辅放弃加入北约，北约承认该国东部的分离主义地区为独立国家，并承认俄罗斯对被吞并的克里米亚半岛的统治。
-
-乌克兰外长德米特罗·库莱巴和他的俄罗斯同事谢尔盖·拉夫罗夫于 3 月 10 日在土耳其会晤。 然而，当时在安塔利亚的会谈并没有带来任何重大进展。
-
-🔗 [https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html](https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html)
-
-编辑发表： Shuizhuyu
-
+水之稀缺是因为现在地球上的淡水是越来越少的，每年从天上下的雨和下的雪雪水，还有这个地区的供应等。
+影响水贵的三个因素：
+第一，人类的人口从过去10亿增长到75亿，这个水的用量和地球原来存在水量，它是完全矛盾的。就是供需，这是个绝对值。
+第二，就是现在地球变暖，现在的淡水越来越少。
+第三，现在人喝水比原来讲究。由于人过去喝哪儿水都行，喝沟儿里水喝那里的水都行，现在的水呀，不是说就想怎么喝就怎么喝，要净水，还有更多的安全和要求。未来的水等运到城市里，当你达到喝的条件，包括公用水成本会高很多很多，特别象这种瓶装水的，那你就不能想象了，随便的一个瓶装水未来都是现在的在10倍、50倍的价格，一定是这结局的！
+所以水是人类增长，地球变暖，还有整个人的身体的需要的质量的标准的改变和运输成本等这整个一切的增加，水是最贵的!
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
