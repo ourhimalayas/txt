@@ -2,20 +2,16 @@
 ---
 
 
-## 氢燃料电池迎重大突破 成本大降
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238877/)
+## 灭共段子┃搭棚大师保障电力供应
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238934/)
 
-撰稿：东京樱花团/上善若水
+撰稿：东京樱花团/发条橙
+
+视频：东京樱花团/俪影
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-美国康奈尔大学发现，一种掺氮、碳涂层的镍阳极可以催化氢燃料电池中的一个重要反应，而其成本仅为目使用的贵金属的一小部分。这项新发现会加速氢燃料电池的应用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-183.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.twintek.com%2Fimg%2Fhydrogen-fuel-cell-testing-hero.jpg&amp;imgrefurl=https%3A%2F%2Fwww.twintek.com%2Fhydrogen-fuel-testing&amp;tbnid=VaWsTK_AAKdXjM&amp;vet=12ahUKEwi2u4TD3eX2AhUHgJQKHXmUD_UQMygOegUIARDVAQ..i&amp;d)
-美国康奈尔大学发现，一种掺氮、碳涂层的镍阳极可以催化氢燃料电池中的一个重要反应，而其成本仅为目使用的贵金属的一小部分。这项新发现会加速氢燃料电池的应用。
+郭先生说，战祸不息，救援不止。人道救援，我们是认真的。 行动落到实处，做事关注细节。 七星帐篷旁边搭起小雨棚，专为发电机挡雨而设。为即将到来的雨季做准备。 义工和志愿者共同晋级搭棚大师，为日夜工作的小红发电机共同撑起一片天。
 
-氢燃料电池作为高效、清洁的能源，在汽车和其他应用领域有着巨大的前景。他们正在寻找碱性燃料电池中使用的活性、廉价、耐用的催化剂。最近的非贵金属HOR电催化剂实验需要克服两个主要挑战：由于氢键能太强而导致的固有活性低，以及由于金属氧化物生成迅速钝化而导致的耐久性差（续航里程缩短）镍电极表面镍氧化物的存在大大减缓了氢氧化反应。氮掺杂碳涂层起到了保护层的作用，增强了HOR动力学，使反应速度更快，效率更高。石墨烯涂层在镍电极上的存在阻止了镍氧化物的形成，大大提高了电极的寿命，这种新型阳极的使用将大大降低价格，使碱性燃料电池在更广泛的领域得到应用。”
-
-信息来源：
-
-[氢燃料电池迎重大突破！新型碳涂层镍阳极有望取代贵金属 成本大降](https://news.mydrivers.com/1/822/822534.htm)
+盖特链接：[https://gettr.com/post/p11ygj30cfa](https://gettr.com/post/p11ygj30cfa)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

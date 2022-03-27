@@ -2,36 +2,29 @@
 ---
 
 
-## 樱花时政┃美国总统拜登称普京不能继续执政
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238854/)
+## 氢燃料电池迎重大突破 成本大降
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238877/)
 
-撰稿：东京樱花团 文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美国总统拜登称普京不能继续执政.png)[图片来源](https://www.cnbc.com/2022/03/26/biden-says-putin-cannot-remain-in-power-in-sweeping-speech-on-russian-invasion-of-ukraine.html)
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+美国康奈尔大学发现，一种掺氮、碳涂层的镍阳极可以催化氢燃料电池中的一个重要反应，而其成本仅为目使用的贵金属的一小部分。这项新发现会加速氢燃料电池的应用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-183.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.twintek.com%2Fimg%2Fhydrogen-fuel-cell-testing-hero.jpg&amp;imgrefurl=https%3A%2F%2Fwww.twintek.com%2Fhydrogen-fuel-testing&amp;tbnid=VaWsTK_AAKdXjM&amp;vet=12ahUKEwi2u4TD3eX2AhUHgJQKHXmUD_UQMygOegUIARDVAQ..i&amp;d)
+美国康奈尔大学发现，一种掺氮、碳涂层的镍阳极可以催化氢燃料电池中的一个重要反应，而其成本仅为目使用的贵金属的一小部分。这项新发现会加速氢燃料电池的应用。
 
-据NHK3月27日早间新闻报道，26日美国总统拜登在波兰发表演讲，强烈谴责普京入侵乌克兰的行为，表示不应该让普京继续执政。
-
-正在欧洲访问对乌克兰支持的拜登总统3月26日在波兰首都华沙发表演讲，为支持乌克兰的国外之旅划上了句号。
-
-拜登总统称俄罗斯正在通过军事侵略攻击民主本身。拜登总统表示，’俄罗斯正在压制民主，并试图在其他国家做同样的事情’，’普京下了狠手，但很明显，这场战争是一场战略失败’。
-
-拜登强烈谴责普京总统，称 “不能让这个人继续执政”。拜登表示，”普京能够而且必须结束这场战争”，呼吁结束军事侵略。
-
-然而，在演讲结束后，一位白宫高级官员立即解释说，总统并没有讨论政权更迭，拜登的评论旨在表示不会容忍对邻国和其他国家使用武力的行为。
-
-作为回应，俄罗斯总统府发言人佩斯科夫说：”这不是拜登可以的决定的。是俄罗斯人民决定谁是俄罗斯的总统”。
+氢燃料电池作为高效、清洁的能源，在汽车和其他应用领域有着巨大的前景。他们正在寻找碱性燃料电池中使用的活性、廉价、耐用的催化剂。最近的非贵金属HOR电催化剂实验需要克服两个主要挑战：由于氢键能太强而导致的固有活性低，以及由于金属氧化物生成迅速钝化而导致的耐久性差（续航里程缩短）镍电极表面镍氧化物的存在大大减缓了氢氧化反应。氮掺杂碳涂层起到了保护层的作用，增强了HOR动力学，使反应速度更快，效率更高。石墨烯涂层在镍电极上的存在阻止了镍氧化物的形成，大大提高了电极的寿命，这种新型阳极的使用将大大降低价格，使碱性燃料电池在更广泛的领域得到应用。”
 
 信息来源：
-[米バイデン大統領 プーチン氏「権力の座に残してはいけない」](https://www3.nhk.or.jp/news/html/20220327/k10013553951000.html)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[氢燃料电池迎重大突破！新型碳涂层镍阳极有望取代贵金属 成本大降](https://news.mydrivers.com/1/822/822534.htm)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

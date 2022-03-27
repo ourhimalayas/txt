@@ -2,25 +2,18 @@
 ---
 
 
-## 灭共段子┃搭棚大师保障电力供应
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238934/)
+## 秘翻在线：布林肯斡旋中东 寻求对乌支援
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2239010/)
 
-撰稿：东京樱花团/发条橙
+撰稿：加贝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-11.jpg)（图片来源：本文链接）
+据ARAB3月27日消息，美国国务卿安东尼.布林肯将于周日、周一在内盖夫沙漠会见以色列、摩洛哥、埃及、巴林和阿联酋官员，并举行“历史性”会议。布林肯此行旨在“借纪念阿以双边关系改善之机，对乌克兰施以更多援助”。俄乌战争导致的小麦短缺、共同应对伊朗核威胁也是其中两个议题。
 
-视频：东京樱花团/俪影
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-郭先生说，战祸不息，救援不止。人道救援，我们是认真的。 行动落到实处，做事关注细节。 七星帐篷旁边搭起小雨棚，专为发电机挡雨而设。为即将到来的雨季做准备。 义工和志愿者共同晋级搭棚大师，为日夜工作的小红发电机共同撑起一片天。
+笔者认为：能源、食品、地区安全是布林肯此行的主要目的，攘外必先安其内。俄乌战争的发展趋势也不约而同受到上述因素影响。
 
-盖特链接：[https://gettr.com/post/p11ygj30cfa](https://gettr.com/post/p11ygj30cfa)
+信息来源：[https://www.arabnews.com/node/2051141/middle-east](https://www.arabnews.com/node/2051141/middle-east)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+责编：待命（文晓）
 
  
 
