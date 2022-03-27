@@ -15,77 +15,77 @@
 
 ---
 
-### [俄乌开战一个月纪念日前夕，泽连斯基演讲呼吁全球正义民众为了人类的自由抗议俄罗斯暴行](/content/gnews/1/README.md)
+### [喜币从数字货币到实体交易](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [俄罗斯第二名中将命丧赫尔松指挥所](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [一个孩子对乌克兰战争的看法（五）- —俄罗斯士兵也受到伤害](/content/gnews/2/README.md)
- ` 澳喜农场`
+### [喜币已进入实体店使用阶段](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
 
-### [《历史的今天》2022.03.27](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [欺民贼即使没有共产党，还是习惯撒谎](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
 
-### [文•贵天成：文贵先生谈“牵引技术”](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [与乌克兰紧急救援前线现场感想（6）：NFSC 咖啡和奶](/content/gnews/5/README.md)
- ` 澳喜农场`
-
-### [英国制星际导弹已准备好部署在乌克兰](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线：布林肯斡旋中东 寻求对乌支援](/content/gnews/7/README.md)
+### [民调显示有4成家长担心口罩会伤害孩子的身心健康](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜拜登华沙演说称“普京不能继续掌权” 白宫极速澄清](/content/gnews/8/README.md)
- ` 關注組`
-
-### [遏制中共国的时间已经不多了](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [菲利普·布里德洛夫将军：随着普京受到一系列挫败，俄乌局势会变得越来越糟糕](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [朝鲜测试其“最大的洲际弹道导弹”](/content/gnews/11/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [拜登表示普京“不能继续掌权”](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [侵略者普京抱怨西方正在发起“取消俄罗斯”运动](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国总统拜登对中国发出警告：站在俄罗斯一边一定会后悔](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [北约称7,000至15,000名俄罗斯军人在乌克兰丧生](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [惊恐的俄罗斯士兵告诉奶奶他正遭受严寒和炮轰的威胁，他特别想“离开”乌克兰](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美最高法院阻止下级法院对海豹突击队和新冠疫苗的裁决](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国志愿兵出现在乌克兰前线](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国总统乔·拜登告诉波兰总统，普京没有能力分裂北约](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [俄乌战争｜Anonymous 如期公布俄央行数据库 料更多机密陆续有来](/content/gnews/20/README.md)
- ` 關注組`
-
-### [主流媒体获美国纳税人10亿美元，虚假宣传疫苗的效果](/content/gnews/21/README.md)
+### [俄罗斯进攻受阻，各方评论员认为普金困局频现](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共制造释放病毒又说不参加核酸检测触犯刑法真邪恶](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [研究动态：中共病毒大流行期间的学习评估](/content/gnews/7/README.md)
+ ` 澳喜农场`
 
-### [波兰媒体FAKT于3月12日发表了标题为“全世界聚集乌克兰的边界携手相助：锡克族、华人和火枪手”的文章](/content/gnews/23/README.md)
+### [俄乌开战一个月纪念日前夕，泽连斯基演讲呼吁全球正义民众为了人类的自由抗议俄罗斯暴行](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [一个孩子对乌克兰战争的看法（五）- —俄罗斯士兵也受到伤害](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [共产党做局榨干中国人民全部血汗钱](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [《历史的今天》2022.03.27](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文•贵天成：文贵先生谈“牵引技术”](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [与乌克兰紧急救援前线现场感想（6）：NFSC 咖啡和奶](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [英国制星际导弹已准备好部署在乌克兰](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [俄乌战争｜拜登华沙演说称“普京不能继续掌权” 白宫极速澄清](/content/gnews/15/README.md)
+ ` 關注組`
+
+### [遏制中共国的时间已经不多了](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [菲利普·布里德洛夫将军：随着普京受到一系列挫败，俄乌局势会变得越来越糟糕](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [纽约市长允许未接种中共病毒疫苗的运动员参加主场比赛](/content/gnews/24/README.md)
+### [朝鲜测试其“最大的洲际弹道导弹”](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登表示普京“不能继续掌权”](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美最高法院阻止下级法院对海豹突击队和新冠疫苗的裁决](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [俄乌战争｜Anonymous 如期公布俄央行数据库 料更多机密陆续有来](/content/gnews/21/README.md)
+ ` 關注組`
+
+### [主流媒体获美国纳税人10亿美元，虚假宣传疫苗的效果](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共制造释放病毒又说不参加核酸检测触犯刑法真邪恶](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [波兰媒体FAKT于3月12日发表了标题为“全世界聚集乌克兰的边界携手相助：锡克族、华人和火枪手”的文章](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [班农战斗室采访新中国联邦在乌克兰救援的志愿者](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
@@ -126,35 +126,35 @@
 ### [美国即将对中国企业进行更多制裁](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登的华沙演讲的更多节选，该演讲被比作罗纳德-里根的传奇性演讲](/content/gnews/38/README.md)
+### [2022年3月26日G-Clubs年会摘要及音频—银河系农场](/content/gnews/38/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [拜登的华沙演讲的更多节选，该演讲被比作罗纳德-里根的传奇性演讲](/content/gnews/39/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [樱花时政┃威慑中共国的时间不多了](/content/gnews/39/README.md)
+### [樱花时政┃威慑中共国的时间不多了](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [也门胡塞武装暂停对沙特阿拉伯的袭击三天](/content/gnews/40/README.md)
+### [文贵视角3.25: 房地产业的崩溃对中共国意味着什么？](/content/gnews/41/README.md)
+ ` 秘密翻译组-原创组`
+
+### [也门胡塞武装暂停对沙特阿拉伯的袭击三天](/content/gnews/42/README.md)
  ` Shuizhuyu`
 
-### [中共国经济崩塌信号——京东大裁员](/content/gnews/41/README.md)
+### [中共国经济崩塌信号——京东大裁员](/content/gnews/43/README.md)
  ` 加拿大温哥华英里农场`
 
-### [【商见你我他】第47期新闻简讯（三）](/content/gnews/42/README.md)
+### [【商见你我他】第47期新闻简讯（三）](/content/gnews/44/README.md)
  ` MayflowerBiz`
 
-### [生不起！中共国人口出生率下降冲击医院产科](/content/gnews/43/README.md)
+### [生不起！中共国人口出生率下降冲击医院产科](/content/gnews/45/README.md)
  ` 加拿大温哥华英里农场`
 
-### [堪萨斯州参议院投票允许医生为新冠开羟氯喹和伊维菌素](/content/gnews/44/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [欧盟引入 《数字市场法》加强IT公司监管](/content/gnews/45/README.md)
+### [欧盟引入 《数字市场法》加强IT公司监管](/content/gnews/46/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [中共国茅台酒价“崩跌”](/content/gnews/46/README.md)
+### [中共国茅台酒价“崩跌”](/content/gnews/47/README.md)
  ` 加拿大温哥华英里农场`
-
-### [乌克兰总统表示粮食出口不足将打击许多国家](/content/gnews/47/README.md)
- ` 纽约香草山MOS02`
 
 ### [迪拜即将推出一亿美元的数字资产基金](/content/gnews/48/README.md)
  ` GTV News Talk`

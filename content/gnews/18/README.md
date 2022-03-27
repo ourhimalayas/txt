@@ -2,10 +2,10 @@
 ---
 
 
-## 美国志愿兵出现在乌克兰前线
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238743/)
+## 朝鲜测试其“最大的洲际弹道导弹”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238882/)
 
-03/25/2022 一名美国退伍军人发布的视频表明，与乌克兰军队并肩作战的国际军团正在发挥越来越积极的作用
+03/25/2022 在西方领导人齐聚欧洲探讨解决乌克兰冲突之际，朝鲜测试其“最大的洲际弹道导弹”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
