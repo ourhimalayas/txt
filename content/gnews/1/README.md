@@ -2,24 +2,12 @@
 ---
 
 
-## 2022年3月27日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2240453/)
+## WION新闻：中共外交部长王毅为什么要拜访印度？因为由于入侵乌克兰，俄罗斯被全世界抵制，而中共希望金砖国家和上海合作组织保持完整，这没有印度的支持是不可能的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2240528/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+03/25/2022 WION新闻：中共外交部长王毅为什么要拜访印度？因为由于入侵乌克兰，俄罗斯被全世界抵制，而中共希望金砖国家和上海合作组织保持完整，这没有印度的支持是不可能的。但是除非中共从边境撤军，否则印度不可能与中共进行有意义的对话
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0678.jpg)
-
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-20.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

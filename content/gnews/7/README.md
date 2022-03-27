@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯似乎在乌克兰战争中改变战略
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2240355/)
+## 19名蛇岛的乌克兰士兵在被俘后获释
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2240434/)
 
-03/26/2022 美国情报官员称，随着乌克兰战争的持续，俄罗斯似乎正在改变其战略
+03/27/2022 19名蛇岛的乌克兰士兵被俘后获释，作为交换，乌克兰释放了11名俄罗斯平民水手
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
