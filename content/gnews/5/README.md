@@ -2,26 +2,24 @@
 ---
 
 
-## 林芳正外相说应联手强化对逃避制裁的措施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238796/)
+## 俄乌战争爆发后网络攻击北约国家的中共国IP数猛增116%
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2238856/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/林芳正外相说应联手强化对逃避制裁的措施.png)（图片源自本文链接）
-共同通信社3月27日消息：日本外交部长林芳正27日在NHK的节目中表示，俄罗斯受到日本、美国、欧洲等国家的制裁。现在有必要与有关国家合作，防止出现某些国家帮助俄罗斯 “逃避制裁 “。考虑到中共最有可能对俄罗斯给予援助，如何堵住这个漏洞以避免俄罗斯逃过制裁，是今后要解决的问题。
+#### 翻译/撰稿：zzballack
 
-强化对逃避制裁的措施，是根据七国集团（G7）领导人的联合声明做出的。他说，作为一个可能的案例，比如俄罗斯作为产油国，以低价向其它国家供应石油以赚取外汇。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-17.jpg)图片来源：美联社
+据《福克斯商业新闻台》（Fox Business）3月27日报道，网络安全公司Check Point Research研究了俄罗斯2月24日入侵乌克兰前后网络攻击的趋势，结果发现来自中共国IP地址的、针对北约国家的网络攻击增加了116%。同时，来自中共国IP的网络攻击在全球范围内也上升了72%。
 
-信息来源：
-[林外相、制裁逃れ阻止へ連携　ロシア支援の中国念頭（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4c4899cd03b0e90dd0a19bd48fb01809ade45ecf)
+Check Point软件公司的数据组经理奥莫尔·德姆宾斯基（Omer Dembinsky）在一份电子邮件中说：“随着俄乌冲突的加剧，我们看到源自中共国IP地址的网络攻击大幅增加。”他指出，尽管该公司尚无法将攻击事件和中共政府联系起来，因为在网络安全方面，如果没有更多的证据，很难确定归属。但研究人员清楚，黑客正在利用中共国的服务器在全世界范围内发动网络攻击，特别是针对北约国家。
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+上周，来自中共国IP地址对全球各国的攻击，比俄乌战争前三周高出60%。这一增幅明显高于同一时间段内全球网络攻击的总体增幅。
+
+德姆宾斯基说：“这些服务器很可能被中共国国内外的黑客使用。这一增长趋势可能有许多含义。例如，现在在哪里建立和运营一项服务是容易或便宜的，或者在哪里隐藏攻击的真正来源更合适。”
+
+美国联邦调查局（FBI）本周早些时候宣布，它将与私营部门合作，打击针对美国实体的外国网络攻击。FBI局长克里斯托弗‧雷（Christoper Wray）3月22日在底特律经济俱乐部发表讲话时表示，随着俄乌冲突的持续肆虐，要特别关注俄罗斯情报部门以及他们保护和支持的网络犯罪团伙构成的破坏性网络威胁，并补充说来自伊朗等其他国家的攻击也值得关注。
+
+新闻来源：[Chinese cyberattacks on NATO countries increase 116% since Russia’s invasion of Ukraine: study](https://www.foxbusiness.com/technology/chinese-cyberattacks-nato-increase-ukraine)
 
  
 

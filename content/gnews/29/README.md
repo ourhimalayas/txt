@@ -2,32 +2,34 @@
 ---
 
 
-## 美将中共国的电信、移动与俄国的卡巴斯基列入黑名单
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238229/)
+## 美国大陪审团认定中共CAIEP骨干成员犯有签证欺诈罪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238230/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：银河系农场 – 骄子
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月26日国外媒体报导，美国联邦通信委员会FCC于当日将俄国的卡巴斯基实验室、中共国的电信美洲公司与移动国际美国有限公司，列入了对美国国家安全构成威胁的黑名单。FCC委员卡尔表示，新名单将有助保护美国的网络免于中共国和俄国国家支持的公司的威胁。
+3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-48.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-44.png)
 
-FCC曾在2021年把中共国的华为技术有限公司和中兴通讯等5家公司列入首批黑名单。卡巴斯基则是首家被FCC列入黑名单的俄罗斯公司。
+根据法院文件和证据，59岁的柳忠三是中共国际人员交流协会CAIEP的骨干成员，该协会名义上是一个非政府机构，实际上受中共政府领导，为中共政府工作。
 
-美国官员长期以来一直警告，使用卡巴斯基软件可能让美国网络受到俄罗斯网络攻击的风险，美国相关部门则于2017年正式禁止该公司的旗舰防毒产品进入联邦网络。
+柳首先通过该协会获得了J-1研究学者签证，但之后并未在美国研究部门做访问学者，而是开始管理该协会在新泽西州Fort Lee的一个办事处。
 
-总部设于莫斯科的卡巴斯基始终否认自己是俄罗斯政府的工具，他们表示对FCC的决定感到失望，声称美国此举毫无依据。
+从2017年到2019年9月，柳与他人合作，为多名中共政府的雇员骗取了J-1研究学者签证，以使这些雇员在美国为中共非法工作。此外，该机构还招聘了一些美国的科学家、学者、工程师和其他专家到中共国工作。同时，他们向国务院和国土安全部隐瞒了这些工作。
 
-中共国被制裁的两家公司尚未做出回应，中共国驻美国大使馆已经跳出来批评FCC滥用国家力量，恶意攻击中共国公司，要求美方立即停止对中共国企业的无理打压，并声称会采取必要措施维护中企的合法权益。
+柳被判定一项共谋欺骗美国罪和签证欺诈罪，定于7月11日判刑，最高将面临五年监禁。
 
 参考链接：
 
-- [U.S. FCC adds Russia’s Kaspersky, China telecom firms to national security threat list](https://www.reuters.com/business/media-telecom/us-fcc-adds-ao-kaspersky-lab-china-telecom-firms-national-security-threat-list-2022-03-25/)
+- [Chinese Government Employee Convicted of Participating in Conspiracy to Defraud the United States and Fraudulently Obtain U.S. Visas](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
+- [Chinese Government Employee Arrested in Visa Fraud Scheme](https://www.nytimes.com/2019/09/17/nyregion/chinese-government-visa-fraud.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编/编辑：飞虹
-审核：飞虹
+总编：飞虹
+编辑：Ivy001
+审核：木木
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
