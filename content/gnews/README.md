@@ -15,47 +15,47 @@
 
 ---
 
-### [文·贵天成——文贵先生谈“G-Club”（二十）](/content/gnews/1/README.md)
+### [【G时新闻】俄罗斯暗示可能将退守乌东部地区](/content/gnews/1/README.md)
+ ` G-时新闻`
+
+### [文贵大直播要点（2022年3月27日）](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
+
+### [文·贵天成——文贵先生谈“G-Club”（二十）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日首相称俄乌战争可能导致战后世界最大危机](/content/gnews/2/README.md)
+### [日首相称俄乌战争可能导致战后世界最大危机](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022.3.27大直播 郭文贵先生叮嘱前线战友 安全第一 去留自便](/content/gnews/3/README.md)
+### [2022.3.27大直播 郭文贵先生叮嘱前线战友 安全第一 去留自便](/content/gnews/5/README.md)
  ` 秘密翻译组-原创组`
 
-### [战时的动物福利（二）](/content/gnews/4/README.md)
+### [战时的动物福利（二）](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成——文贵先生谈“G-Club”（十九）](/content/gnews/5/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（十九）](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美国能产生无数马斯克 中共独裁体制扼杀文明](/content/gnews/6/README.md)
+### [有声|美国能产生无数马斯克 中共独裁体制扼杀文明](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|战友们做好准备应对有史以来最黑暗的一年](/content/gnews/7/README.md)
+### [2022年3月27日文贵先生大直播速记](/content/gnews/9/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [有声|战友们做好准备应对有史以来最黑暗的一年](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|Gclub年会26日举办 奖品丰厚](/content/gnews/8/README.md)
+### [有声|Gclub年会26日举办 奖品丰厚](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“G-Club”（十八）](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [2022年3月27日郭先生大直播 文字同步精要](/content/gnews/11/README.md)
+### [2022年3月27日郭先生大直播 文字同步精要](/content/gnews/12/README.md)
  ` 焦點20分`
 
-### [“我们是消灭邪恶中国共产党的新中国联邦人”赢得了世界的赞许](/content/gnews/12/README.md)
+### [“我们是消灭邪恶中国共产党的新中国联邦人”赢得了世界的赞许](/content/gnews/13/README.md)
  ` thedawn`
 
-### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/13/README.md)
+### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/14/README.md)
  ` MOSREC`
-
-### [突发：普京狂轰利沃夫的目标是针对美国总统拜登](/content/gnews/14/README.md)
- ` 纽约香草山MOS02`
 
 ### [视频|法国、土耳其、希腊将在马里乌波尔展开人道救援](/content/gnews/15/README.md)
  ` MOSVIDEO`

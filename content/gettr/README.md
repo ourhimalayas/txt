@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 4:39 PM (UTC)`
+
+ 3月27号：科学政治．和政治科学的最好代表．就是这个孙子……能把谎言说成这个样子，敢这么说，真的佩服共产党的流氓政府的勇气……
+![img](https://media.gettr.com/group8/getter/2022/03/27/16/64ff6cf6-430b-47ee-bb39-04cac109b529/out.jpg)
+
+---
+
+`@miles 3/27/2022 4:37 PM (UTC)`
+
+ 3月27号：世界上人权最好的国家🙈原来就是这样子的😢共产党，你还要个x脸吗？
+![img](https://media.gettr.com/group50/getter/2022/03/27/16/ad38289e-580e-b36f-d103-2e533f475a79/out.jpg)
+
+---
+
+`@miles 3/27/2022 4:29 PM (UTC)`
+
+
+![img](https://media.gettr.com/group26/origin/2022/03/27/16/ac22cf6b-2f6b-4b5c-2408-254e9297d6db/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/27/2022 12:09 PM (UTC)`
 
 
@@ -137,27 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 
 ![img](https://media.gettr.com/group38/origin/2022/03/26/20/7e222da1-ee3a-9db4-3e1e-b8710f215343/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/26/2022 7:30 PM (UTC)`
-
-
-![img](https://media.gettr.com/group3/origin/2022/03/26/19/43e8a0c2-dfc8-7a4f-6aef-7a5d369587c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/26/2022 6:30 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️9⃣️：兰博基尼 Huracan (单价: $210,000.00)<br/>奖品数量：1<br/>获奖者：<br/>LM38286<br/>Discord: 铲共骑侠#9827<br/>获奖者来自纽约香草山农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️9⃣️: Lamborghini Huracan (Unit Value: $210,000.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>LM38286<br/>Discord: 铲共骑侠#9827<br/>The winner is from the New York Mountains of Spices Farm!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group30/getter/2022/03/26/18/bc8dc3bc-6ac3-9eed-f24b-bb6fdc1e4283/af41dbfb260b686c23dfcd93a6332b38.jpg)
-
----
-
-`@miles 3/26/2022 6:15 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️8⃣️：GF 限定款鸵鸟皮背心 (单价: $8,500.00)<br/>奖品数量：8<br/>获奖名单如图<br/>中奖者来自(原) 多伦多枫叶农场，纽约香草山农场，温哥华扬帆农场，东京银河系农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️8⃣️: GFASHION Exotic Skin Vest- Ostrich Leather(Unit Value: $8,500.00)<br/>Number of Prizes: 8<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Toronto Maple Leaf, Himalaya New York Mountains of Spices Farm, Himalaya Vancouver Sailing Farm, Himalaya Japan Galaxy!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group13/getter/2022/03/26/18/255cf92d-ad79-65aa-77c4-6d71f7752050/635a09df5523e42152a5a57fabd6280d.jpg)
 
 ---
 
