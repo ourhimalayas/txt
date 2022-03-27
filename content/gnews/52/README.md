@@ -2,18 +2,16 @@
 ---
 
 
-## 樱花头条┃美国对中共官员采取限制性签证发放
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
+## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
 
 撰稿：东京樱花团/樱花传媒
 ![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-美国国务卿布林肯最新电视讲话：
+呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
 
-将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
+信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
 
-信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
-
-*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
+*编辑：东京樱花团/asket、天路天道（素材）
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
