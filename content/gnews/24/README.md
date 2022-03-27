@@ -2,40 +2,31 @@
 ---
 
 
-## 有声|Gclub年会26日举办 奖品丰厚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240666/)
+## 有声|美国能产生无数马斯克 中共独裁体制扼杀文明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240731/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月25日文贵大直播透露，2022年的Gclub年会将在3月26日举办。年会将举办抽奖活动，已在线登记参与抽奖的卡约8000张，奖品金额大约200万美元，数量超过1000个。
-![](https://cdn.discordapp.com/attachments/714848986988544060/931788430185222154/2021-Huracan_EVO_Fluo_Capsule-5.png)
-郭先生介绍，按金额计算，美国的抽奖活动普遍来说中奖率为万分之一，最高的可以达到千分之一。有推友计算得知，Gclub年会的中奖率是这个最高中奖率的5（全部买的是5万卡）到25倍（全部买的是1万卡），而且Gclub会员每年都可以抽奖。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月20日大直播中，郭文贵先生高度赞赏马斯克对普京下的战书，称其宣告了独裁政权对人类的核讹诈终将被解除。
 
-郭先生表示，相比于中共国的福利彩票等把奖品都私下安排好的假的抽奖活动，Gclub年会的抽奖是真实的，有很高的命中率，每个人都可以亲身体验到抽奖的快乐。
+在回应为何一个外来移民能够在美国达成解救天下苍生的巨大成就时，郭先生指出，美国的体制使其可以荟萃全世界精英并让他们自由发展，这是美国强大的根本原因。
 
-分析人士指出，由于Gclub会员能够以折扣价购买GFashion，而随着喜币的流通进入GFashion等全球实体店，G系列正在产生意义重大的联动效应。
+据统计，80%-86%的美国精英都是新移民。二战后，美国开始招募德国、苏联以及全球的科学家，涵盖互联网、半导体工业、芯片、生物及太空科技等各个领域。来自世界各国的精英们让美国一次又一次腾飞。与之相反，在自称雄伟强大的中共国，国内外精英均没有生存和发挥才能的环境与机会。
 
+文字版原文：[美国能产生无数马斯克 中共独裁体制扼杀文明](https://gnews.org/zh-hans/2233558/)
 
+音频处理：Fei797
+发稿：Fei797
 
-文字版原文：[Gclub年会26日举办 奖品丰厚](https://gnews.org/zh-hans/2235926/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

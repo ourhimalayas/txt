@@ -2,25 +2,25 @@
 ---
 
 
-## 文贵爆料 3.27：拜登演讲，直击战争屠夫
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2241133/)
+## 天基移动电话网络公司将发射测试卫星
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241194/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/c0fc0cbc-abb8-4d4c-bbd0-b758100c68f2.jpg)
-每个时代都不缺少“狂人”和“疯子”，很不幸，这个时代出现的是“战争狂人”。帝国之梦，如同那虚幻飘渺的海市蜃楼，让他痴迷，让他疯狂，为此，不惜裹挟一国之苍生走向地狱。然而，近日拜登演讲中的一句话——”看在上帝的份上，这个人不能继续执政。”让普京成为千夫所指。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目前，唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署了一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间科技的蜂窝宽带网络。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.08.png)
+据悉，该公司总部位于美国德州，其计划在今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来与手机进行标准频率通信，并将在未来发射BlueBird卫星。
 
-郭文贵先生在3月27日的大直播中说，这句话的分量超过了当年里根总统“推倒柏林墙”的演讲，跨越了美国国际规则的底线，它把俄罗斯和普京分开了，并且他说，俄罗斯人也是受害者，欢迎你们回到国际的大家庭来。拜登真让我刮目相看。
+其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。基于太空网络科技的新兴通信技术，不但会改写现有移动通信系统，而且会彻底消灭中共等独裁政权蒙蔽民众的网络防火墙。
 
-在演讲中，拜登虽然没把中共和中国人分开，但也在不断敲打着中共。中共自以为可以影响或掌控拜登，但却忽略了一点，拜登在其40多年的政客生涯中，从未对中共友好过，玩的只是利益和战略。奥巴马的时代其实是拜登的时代，那次让习近平受辱的好戏，背后的始作俑者就是拜登。
+参考链接：[Space-based mobile phone network AST SpaceMobile signs launch deal with Elon Musk rocket company SpaceX](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760)
 
-拜登的此次演讲意味着，1，联合国基本解体，印度、中国、俄罗斯全部出局。2，因为团结，欧洲变成了大欧洲，乌克兰将是未来欧洲的精神图腾，欧洲将北上化，肢解俄罗斯，从以西欧为中心变为以东欧为中心。3，美国是最大的赢家，中国会解体，印度和西方的关系会回到二战前，日本会回到世界超级大国的行列。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-郭先生说，这次演讲标志着人类的巨变，而且它会因疫苗灾难被放大，被加速。人类的经济和政治版图，将在今年年底或明年发生彻底的变化，新中国联邦将是最大赢家。
-
-参考链接：
-
-[2022年3月27日 文贵直播](https://gettr.com/streaming/p124vkgc8a0)
-
+总编：Zion文恩
+审核：NFSCNews 科技组
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

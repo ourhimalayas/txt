@@ -2,34 +2,22 @@
 ---
 
 
-## 特鲁多与新民主党组成 “社会主义联盟 ”
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2241149/)
+## 视频|童心在战火中燃烧
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2241199/)
 
-##### 作者：加拿大温哥华扬帆农场 – 采编：文莱              编译撰稿：自由法兰西🇫🇷
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/CDC.jpg)*图片来源：CDC*
-加拿大网媒《千禧后》(The Post Millennial)3月25日报道，自由党与新民主党签订的《信任与供应协议》让一些保守党议员敲响了警钟，称该协议是 “社会主义联盟”。
+制作：大直播短视频组- Amanda11
+文案：净土
 
-保守党领导层候选人波利耶夫称，该协议可能会推动加拿大有史以来最激进的经济议程，特鲁多关于增加开支和提高税收的承诺表明，他较传统的自由党人更为左倾。
+审核/编辑/发稿：谐趣园
 
-协议于3月22日生效，特鲁多称该协议将有助于避开众议院的“有毒”党派，在这个不稳定的时期，政府可以肯定地采取行动，并让事情发生。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
 
-在去年联邦大选中，特鲁多领导的自由党获胜，但未能赢得众议院过半数席位，只是以少数党政府的局面执政；而与新民主党的联合，可以确保自由党稳定执政到2025年任期结束。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-两党联手，是为了国家稳定，还是党的稳定？！在大卡车运动中因集权手段饱受诟病的特鲁多政府再次受到质疑！加拿大，危险！
-
-原文链接：[https://thepostmillennial.com/trudeau-has-formed-socialist-coalition-with-ndp-pierre-poilievre](https://thepostmillennial.com/trudeau-has-formed-socialist-coalition-with-ndp-pierre-poilievre)
-
-编辑/上传 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

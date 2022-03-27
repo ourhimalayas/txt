@@ -2,58 +2,63 @@
 ---
 
 
-## 战时的动物福利（二）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2240741/)
+## 文·贵天成——文贵先生谈“G-Club”（二十）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2240823/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3247-edited.png)乌克兰难民阿纳斯塔西娅在逃离基辅并穿越波兰梅迪卡的边境后，与她的狗坐在一起。Milos Bicanski/We Animals Media
+#### **整理：BENJI**
+**编辑：朝花夕拾**
 
-**如何在战争中保护动物**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043-1.jpg)圖片來源：雅典娜設計組
 
-根据国际人道主义法（IHL）专家Jerome de Hemptinne的研究，动物在很大程度上被排除在日内瓦公约和海牙公约等战时条约之外。也有一些例外，如保护濒危物种的多边公约，但即使动物的法律地位在近几十年来有所发展，将动物保护纳入国际人道主义法仍然具有挑战性。
 
-Hemptinne写道，除了保护平民本身，国际人道主义法一般还保护“民用物体”，如学校、住宅和礼拜场所，但尚不清楚民用物体是否必须是无生命物体才值得保护。如果是这样，根据定义，它将不包括动物。但国际人道主义法公约也不会将动物列入“民用”的保护类别。正如它们在和平时期经常做的那样，战时的动物存在于一个法律灰色地带。
+**郭文贵****先生****2021年8月3日直播**
 
-但在他2017年的论文《战争中的动物保护》中，Hemptinne详细介绍了战争中动物保护的一些进展情况。
+我希望再一次告诉大家,G-Club将是G系列的未來金融和所有和爆料革命战友们，未來走世界的一个通行证，也是未來新中国联邦护照的前身，严格讲，它就是最早期的新中国联邦的身份证。
 
-首先，在1977年，日内瓦公约增加了附加议定书，给予交战方之间的非军事区以保护。Hemptinne写道：“如果交战方同意将全球物种高度多样性的地区正式列为‘非军事区’，那么对这些地区的保护就会得到加强。”
+还有一个,我不认为你们有任何理由,谁能告诉我G-Club你有赔钱吗?你既能享受这样的待遇,看看我们G-Club在G-Fashion的,G-Fashion现在很多都是战友在里边儿,想一想它未来带来的价值,G-Club和全世界正在准备的联盟和G-Club的未来。你拿五万美元、两万美元买个卡,你要觉得不值,战友就不要再买啦,很简单。
 
-第二，《日内瓦第四公约》第53条禁止占领国毁坏私人和公共财产，除非是军事行动绝对必要。“当某些动物被认为是私人或公共财产的物品时，这一条款可以为其提供最低限度的保护”，Hemptinne补充说。
+如果你要认为G-Fashion和未来G-Club和新中国联邦,作为一个它的识别身份和未来在世界上有尊严。大家想想你做不到的。七哥能把你带入的那个层次只能坐650,你能做到吗?没加入G-Club,你能做到?能做到,你不要去买G-Club!你不要去买G-Fashion,那么多名牌就买名牌去,就这么简单。
 
-还有更广泛的努力正在进行中，以保护紧急情况下的动物，如战争，以及自然灾害。动物福利组织Four Paws的全球事务和抗灾主管Jackson Zee告诉我：“当我们谈论人道主义援助时，需要将动物纳入考虑范围。”
+**郭文贵****先生****2021年8月7日直播**
 
-为此，Four Paws与欧盟成员国合作，将动物福利纳入欧盟公民保护机制，这是一个为改善该地区的备灾和救灾而建立的框架。动物福利的语言在很大程度上是象征性的，但Zee说这是第一步。他的组织现在正用它来游说欧盟成员国将动物纳入其国家灾害规划，并预留资源以在灾害响应中实施动物保护。
+为什么G-Fashion和G-Club在一起?G-Club只有和G-Fashion在一起才合法合规。G-Fashion为什么要和G-Club在一起?G-Fashion只有和G-Club，G-Fashion才能成为世界上最最先进的时尚的力量和能达到G-Fashion为新中国联邦打造以中国文化回归东方的目的。
 
-Four Paws对联合国也采取了类似的做法。2018年，该组织帮助确保在欧盟/联合国关于减少灾害风险的峰会上使用动物福利语言。“这主要是精神上的，因为它没有金钱上的标签”，Zee说。“我们将推动这项工作，以便在每个国家（欧盟）的国家基础上采用。目前，意大利是唯一一个完全采用这一做法的国家”。
+那就是把时尚和政治和尊严和自由和信仰综合到一起的一个平台,因为G-Club的会员就是未来新中国联邦的主干力量。同时,G-Fashion是新中国联邦老中青年少的人与世界失去的这个几百年东西方文明结合的一个寻找密码的工具和平台。
 
-这些政策努力只是一个漫长而不确定的开始，即使动物保护被纳入战争法，在冲突中执行这些规则也会像执行旨在保护每年死于战争的数万名人类的法律一样困难，甚至更加困难。目前，Zee和他的许多同事都在关注乌克兰，因为“四爪动物”在当地有工作人员协助救援工作，并在该组织位于多马兹尔的熊庇护所看护动物。
+也是G-Fashion和G-club共同打造出来一个财富和拥有身份。最后是新中国联邦护照和新中国联邦人在世界第一批被认可、被尊重、安全合法的财富和尊严的结合体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3253-edited.png)在乌克兰基辅地区的白石熊收容所的一只棕熊。Thomas Machowicz/We Animals Media
+我可以告诉大家,G-Fashion、G-club 能给爆料革命战友带来的财富,带来的时尚,能带来的尊严和带来的方便,没有任何人可以做到,只有G-club、G-Fashion。
 
-Zee也把目光投向了未来。“这项努力将持续很长一段时间”，他告诉我。“这只是个开始……所以我们现在所做的努力需要继续推动，从现在开始的几个月，最终希望能得到恢复”。
+G-Club绝对不会无限期地卖卡,到了一定的时候一定会停止,停止的时候卡一定会升值,我相信。咱下一次当你看出G-Fashion的网站更新,G-Fashion推出商品的时候,我告诉大家,你们一定毫不犹豫,一点不能带上个人感情地来点评G-Fashion。
 
-俄罗斯对乌克兰的入侵和过去许多战争一样，暴露了动物在人类生活中的关键作用。当我们与宠物分离时，我们会不遗余力地去寻找它们，因为它们提供的陪伴可能和人类同伴提供的陪伴一样有意义，有时甚至更有意义。当冲突杀死野生动物时，它也伤害了人类依赖的生态系统。当农场被破坏时，食物来源和人们的生计也被破坏。
+往期回顾：
+[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
+[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
+[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
+[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
+[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
+[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
+[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
+[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
+[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
+[文·贵天成——文贵先生生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
+[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
+[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
+[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
 
-动物福利和人类繁荣常常被对立起来，仿佛福利是一种零和游戏。但是人类健康和动物健康，无论在战时还是和平时期，都是密不可分的。
+*发布：wenly*
 
-【接上篇：[战时的动物福利（一）](https://gnews.org/zh-hans/2240600/)】
-
-**参考链接：**A[nimal welfare in wartime](https://www.vox.com/22996601/animal-welfare-ukraine-wartime-international-humanitarian-law)
-
-* * *
-
-审核：Aries的星
-校对：信心满满
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-20.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

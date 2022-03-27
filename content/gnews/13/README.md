@@ -2,33 +2,34 @@
 ---
 
 
-## GClubs年会共襄盛举 律师战友获终极大奖
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241094/)
+## 特鲁多与新民主党组成 “社会主义联盟 ”
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2241149/)
 
-作者：纽约香草山  宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月26日，GClubs 2022年年会在纽约总部隆重开幕，历时近六小时。会上不仅有来自全球各农场精心打造的节目，更有颁奖嘉宾为会员抽取的包括汽车、饰品、衣物等在内的共计1800个奖项。
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱              编译撰稿：自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/CDC.jpg)*图片来源：CDC*
+加拿大网媒《千禧后》(The Post Millennial)3月25日报道，自由党与新民主党签订的《信任与供应协议》让一些保守党议员敲响了警钟，称该协议是 “社会主义联盟”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-14.jpeg)
+保守党领导层候选人波利耶夫称，该协议可能会推动加拿大有史以来最激进的经济议程，特鲁多关于增加开支和提高税收的承诺表明，他较传统的自由党人更为左倾。
 
-据郭先生解释，原本应该在今年一月份举行的年度盛会，为了让更多的会员搭上这列时尚、尊贵的幸运之车，特意延迟了两个月。然而，突如其来的俄乌战争，又给世界带来了动荡和灾难。因此，乌克兰前线救援基地的战友作为开奖嘉宾，赋予了今年年会不同寻常的意义。
+协议于3月22日生效，特鲁多称该协议将有助于避开众议院的“有毒”党派，在这个不稳定的时期，政府可以肯定地采取行动，并让事情发生。
 
-与去年不同，G-Fashion作为GClubs的实体平台，为本次年会提供了主持与嘉宾的礼服，和部分奖品。这些充满设计感的服装、饰品，因凝聚灭共的信仰而显示出特别的时代底蕴，象征着GClubs会员独树一帜的勇气和决心。
+在去年联邦大选中，特鲁多领导的自由党获胜，但未能赢得众议院过半数席位，只是以少数党政府的局面执政；而与新民主党的联合，可以确保自由党稳定执政到2025年任期结束。
 
-今年的奖品还包括四辆奔驰车，和一辆兰博基尼跑车。这份终极大奖，被香草山农场的知名战友“铲共奇侠”所得。铲共奇侠律师不但在联盟一系列法律诉讼中，作出了重要贡献。而且，已经帮助多位战友获得合法美国工作签证和居住身份。
+两党联手，是为了国家稳定，还是党的稳定？！在大卡车运动中因集权手段饱受诟病的特鲁多政府再次受到质疑！加拿大，危险！
 
-正如郭先生常说，“天道酬勤，地道酬仁”。只有从不犹疑、从不畏惧的战友，才能驾驭爆料革命这辆世界顶级跑车。
+原文链接：[https://thepostmillennial.com/trudeau-has-formed-socialist-coalition-with-ndp-pierre-poilievre](https://thepostmillennial.com/trudeau-has-formed-socialist-coalition-with-ndp-pierre-poilievre)
 
-参考链接：[G|CLUBS2022年年会](https://gettr.com/post/p11z7ye4d5a)
+编辑/上传 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-总编：Zion文恩
-审核/编辑：文真
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
