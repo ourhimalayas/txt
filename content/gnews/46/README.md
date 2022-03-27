@@ -2,38 +2,30 @@
 ---
 
 
-## 迪拜即将推出一亿美元的数字资产基金
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235209/)
+## 乌俄战争以来首次！拜登会见乌克兰外长防长
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2235940/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+美国总统拜登今日在波兰首都华沙与乌克兰两位部长级官员会面，这是自乌俄爆发战事以来，拜登首次与乌克兰高层面对面会谈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-222-2.jpg)图片来源: 网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpEZfAg1.jpg)图片来源：美联社
 
-该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
+根据外媒提供的照片显示，拜登在国务卿布林肯以及的国防部长奥斯汀陪同下，于华沙的万豪酒店会见了乌克兰外交部长库列巴与乌克兰国防部长列兹尼科夫。
 
-据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
+《美联社》指出，拜登晚些时候将发表重要演说。根据白宫安全顾问苏利文的说法，拜登的演讲与「未来挑战的迫切性」、「在乌克兰发生的冲突对全世界代表着什么」以及「为何自由世界应团结面对俄罗斯的侵略是如此的重要」等主题有关。
 
+简评：中共作为俄乌战争的元凶，前几天刚刚被点名敲打不要援助俄罗斯，如今拜登总统亲赴乌克兰来关注战事，作为打手的普京政权又要催促中共了。中俄阴谋已大白于天下，明的硬刚又打不过，若不主动止战，马上就要被关门打狗了！
 
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3872880](https://news.ltn.com.tw/news/world/breakingnews/3872880)
 
-相关链接:
+撰稿/发布：一叶知秋
 
-[https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-
-
-![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-编辑/校正/发稿：Petite abeille
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

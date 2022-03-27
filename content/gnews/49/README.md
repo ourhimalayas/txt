@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花头条┃蔡英文和安倍视讯 日华恳大会通过挺台决议文
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234672/)
+## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
 
 撰稿：东京樱花团/樱花传媒
 ![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-蔡英文与安倍视讯，日华恳大会通过挺台决议文。
+呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
 
-信息来源：[https://gettr.com/post/p11fmtv08fb](https://gettr.com/post/p11fmtv08fb)
+信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
 
-*编辑：东京樱花团/asket 、珍珍（素材提供）
+*编辑：东京樱花团/asket、天路天道（素材）
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**

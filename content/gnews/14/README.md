@@ -2,22 +2,12 @@
 ---
 
 
-## 7News 《全球视点》喜币，星际文明时代金融界的星链
-` 握笔之南` [轉載自GNews](https://gnews.org/zh-hans/2238282/)
+## 拜登终于承认乌克兰战争将导致全球粮食短缺
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238309/)
 
-制作：宁南
+03/25/2022 在班农战斗室长时间的警告后，拜登终于承认乌克兰战争将导致全球粮食短缺
 
-HCN, a financial starlink in interstellar era
-
-The Starlink network service system played a huge role in Ukraine’s military operations. Without the communication guarantee of the Starlink, Ukraine’s war for freedom may be more difficult, and there may not be so much accurate information to achieve precise strikes and beheadings of aggressors !
-Towards a world of interstellar civilization, everything is changing dramatically.
-The Hcoin and Hpay system created and designed by Miles Guo can be described as a star chain for the financial world in the future era of interstellar civilization!
-
-星链网络服务系统在乌克兰军事行动中发挥了巨大作用。如果没有星链系统的通讯保障，乌克兰的自由之战可能会更加艰难，可能就没有那么多精确的情报，无法实现对侵略者精准的打击和斩首！
-迈向星际文明的世界，一切都在巨变。
-由郭文贵先生创建设计的喜币及喜联储系统，可谓是面向未来星际文明时代金融界的星链！
-
-排版上传：文勇
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
