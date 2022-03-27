@@ -2,106 +2,38 @@
 ---
 
 
-## 拜登总统: 我给乌克兰人民的信息,我们与你们站在一起。
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2237368/)
+## 1月6日事件委员会将投票决定是否对两名前特朗普助手进行藐视指控
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2237516/)
 
-**拜登总统**： 
-我给乌克兰人民的信息，就是我今天向乌克兰外交部长和国防部长传达的信息：我们与你们站在一起。
+**翻译：【日本东京方舟农场】山豆根后**
 
+华盛顿（美联社）——调查国会冲击事件的众议院委员会周四表示，他们已计划在下周进行投票，以考虑对两名前总统唐纳德·特朗普的助手提以藐视国会的指控。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-50.jpg)（图片来源：apnews.com）
 
-> My message to the people of Ukraine is the message I delivered today to the Ukrainian Foreign Minister and Defense Minister: We stand with you.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507817666601435138?ref_src=twsrc%5Etfw)
+该委员会将于周一举行会议，讨论是否建议对特朗普的前贸易顾问彼得·纳瓦罗（Peter Navarro）和前白宫通讯助理丹·斯卡维诺（Dan Scavino）提起可能的司法诉讼。
 
+这次会议意味着该小组最近正努力追究在调查2021年1月6日骚动事件过程中不予以合作的证人的责任。那时，支持特朗普的骚乱者们冲进了国会大厦，希望阻止国会认证民主党人乔·拜登（Joe Biden）赢得了总统大选。
 
+该委员会在2月初传唤了纳瓦罗，力图质询这位特朗普的盟友有关2020年大选中存在选举舞弊行为的虚假主张。尽管纳瓦罗试图利用行政特权来避免配合，但拜登政府本月否认了他和特朗普的另一位前助手，前国家安全顾问迈克尔·弗林的相关主张，称这种主张既不合理，也不符合国家利益。
 
-**拜登总统**： 
-我们重新投入到争取自由的伟大斗争中。 一场民主与独裁、自由与镇压之间的战斗。 这场战斗也不会在几天或几个月内获胜。 我们需要为未来的长期斗争做好准备。
+在周四的一份声明中，纳瓦罗称委员会的投票是“一次对行政特权的前所未有的党派攻击。委员会非常清楚特朗普总统援引了行政特权，这不是我的权限可以收回的。”
 
+纳瓦罗认为“委员会对于毫无争议地可适用行政特权的最高级别白宫官员个人提出刑事指控还为时过早。” 他说，这场争端似乎“不可避免地会走向”最高法院，在得出决议之前，众议院委员会“应该停止其骚扰和恐吓的策略”。
 
+去年9月被传唤的斯卡维诺的律师没有立即回复本社寻求置评的消息。去年秋天，委员会主席、密西西比州民主党众议员本尼·汤普森（Bennie Thompson）在阐明斯卡维诺的配合对于调查的必要性时表示，1月6日时斯卡维诺显然与特朗普在一起，并且当天可能有“与他相关的录像和推特材料”。
 
-> We are engaged anew in a great battle for freedom.
->  
-> A battle between democracy and autocracy. Between liberty and repression.
->  
-> This battle will not be won in days or months either. We need to steel ourselves for the long fight ahead.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507782139315638283?ref_src=twsrc%5Etfw)
+该委员会此前曾投票建议以无视国会传票为由对特朗普长期盟友史蒂夫·班农（Steve Bannon）提出过藐视指控，以及对特朗普幕僚长马克·梅多斯（Mark Meadows）提出了同样的指控，因为他停止了与该委员会的合作。众议院全体议员随后批准了这两项藐视国会的指控。
 
+随后班农被联邦大陪审团起诉，目前正在等待司法部的诉讼官司。司法部还没有对梅多斯采取任何行动。
 
+注：本文仅代表作者观点。美联社撰稿人吉尔科尔文对本报告亦有贡献。
 
-**拜登总统**： 
-今天，我会见了乌克兰外长德米特罗·库莱巴和国防部长奥列克西·列兹尼科夫。 我们讨论了我们团结世界支持 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 的努力、以及美国提供的重要军事和人道主义援助。
+原文链接：
+[https://apnews.com/article/capitol-siege-donald-trump-dan-scavino-peter-navarro-congress-b5c9085920141bc373ea567c1484377a](https://apnews.com/article/capitol-siege-donald-trump-dan-scavino-peter-navarro-congress-b5c9085920141bc373ea567c1484377a)
 
-
-
-> Today, I met with Ukraine’s Foreign Minister Dmytro Kuleba and Minister of Defense Oleksii Reznikov. We discussed our efforts to rally the world in support of Ukraine and the significant military and humanitarian assistance the United States is providing. [pic.twitter.com/N8bvuua19c](https://t.co/N8bvuua19c)
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507719879213867009?ref_src=twsrc%5Etfw)
-
-
-
-**美国务卿安东尼·布林肯**： 
-今天离开华沙前往以色列和约旦河西岸、摩洛哥和阿尔及利亚。 在我们努力建立广泛的合作伙伴关系时，期待与老朋友取得联系并加深纽带关系。
-
-
-
-> Leaving Warsaw today for Israel and the West Bank, Morocco, and Algeria. Looking forward to connecting with old friends and deepening ties as we work to build on our wide-ranging partnerships. [pic.twitter.com/wbUo82qphZ](https://t.co/wbUo82qphZ)
-> — Secretary Antony Blinken (@SecBlinken) [March 26, 2022](https://twitter.com/SecBlinken/status/1507750709495832577?ref_src=twsrc%5Etfw)
-
-
-
-**拜登总统**： 
-普京胆敢说他正在对乌克兰“去纳粹化”。 这个谎言不只是愤世嫉俗。这是在耍流氓。 
-泽连斯基总统是民主选举产生的。 他是犹太人 —— 他父亲的家人在纳粹大屠杀中被杀绝了。
-
-
-
-> Putin has the gall to say he is “de-Nazifying” Ukraine.
-> 
-> This lie isn’t just cynical. It is obscene. 
-> 
-> President Zelenskyy was democratically elected. He is Jewish — his father’s family was wiped out in the Nazi Holocaust.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507838900554842115?ref_src=twsrc%5Etfw)
-
-
-
-**比尔.格茨**： 
-本周华盛顿时报[@WashTimes](https://twitter.com/WashTimes)内幕专栏：俄罗斯高超音速导弹袭击显示美国在超高速导弹方面落后于莫斯科和北京； 拜登告诉习，美国不会改变（中国）共产主义制度； 太平洋司令部指挥官谈 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 威胁 【附时报专栏报道链接】
-
-
-
-> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Russian hypersonic missile strike shows US lags behind both Moscow and Beijing in ultra high-speed missiles; Biden told Xi US would not change communist system; Pacom commander on China threat [https://t.co/Qgd15LYLo1](https://t.co/Qgd15LYLo1)
-> — Bill Gertz (@BillGertz) [March 25, 2022](https://twitter.com/BillGertz/status/1507472973808037890?ref_src=twsrc%5Etfw)
-
-
-
-**前副国务卿基思·克拉奇**： 
-谢谢沃尔茨议员@michaelgwaltz。 自由总是受到普京、#习近平、哈梅内伊等极权主义者的攻击。 但是，如果自由世界按照我们共同的价值观统一起来，那就有希望了。 确保高科技是值得信赖的技术是确保下一代自由的关键。 
-【转众议员迈克·沃尔茨推文：基思·克拉奇一直在为维吾尔人、香港和台湾不懈地发声，非常应该获得诺贝尔和平奖。 我们需要更多像他这样的商界领袖站出来对抗 [#中共](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 的掠夺行为。】
-
-
-
-> Thank you [@michaelgwaltz](https://twitter.com/michaelgwaltz?ref_src=twsrc%5Etfw). Freedom is always under attack from totalitarians like Putin, Xi, Khamenei, and their ilk. But there’s hope if the free world is unified along our shared values. Ensuring high tech is trusted tech is the key to securing freedom for the next generation. [https://t.co/LGCnP0wKwI](https://t.co/LGCnP0wKwI)
-> — Keith J. Krach (@KeithJKrach) [March 26, 2022](https://twitter.com/KeithJKrach/status/1507743925284614149?ref_src=twsrc%5Etfw)
-
-
-
-**众议院外事委员会共和党**： 
-委员会领袖麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)对于财长耶伦称对中共的制裁不是“必要或适当的”言论的回应：“我对拜登政府又一次公开展示未能抓住 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 所构成的日益严重的威胁感到非常担忧。 
-
-“[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对人权、民主价值观、和美国国家安全利益的无情攻击已经证明，他们是不值得信任的。取消(对中共的)制裁与拜登政府现在应该说的是相反的……
-
-完整声明在这里:【附众议院官网发文：麦考尔回应财长有关中共国的危险言论】
-
-
-
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw)'s response to [@SecYellen](https://twitter.com/SecYellen?ref_src=twsrc%5Etfw) saying sanctions against the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) weren't "necessary or appropriate": "I’m extremely concerned by yet another public display of the Biden administration’s failure to grasp the growing threat posed by the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw).
-> — House Foreign Affairs GOP (@HouseForeignGOP) [March 26, 2022](https://twitter.com/HouseForeignGOP/status/1507833004999196673?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
+校对：妙喜小油鍋
+发布：Linda
 
  
 

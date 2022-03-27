@@ -2,42 +2,34 @@
 ---
 
 
-## 据乌克兰军方通报：俄罗斯中将瑞桑瑟夫被炸死亡
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2237480/)
+## 有声|美国FCC将中共国电信和中共国移动的美国分支列入国家安全威胁名单
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2237649/)
 
-来自新加坡早报 /
-2022年3月26日 10:39 PM 报导
-采集：玫瑰新闻组
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
+【路透华盛顿3月25日】  美国联邦通信委员会(FCC)周五宣布，将俄罗斯卡巴斯基实验室（AO Kaspersky Lab）、中共国电信(0728.HK)美洲公司和中共国移动(0941.HK)美国子公司列入其对美国国家安全构成威胁的通讯设备和服务商名单。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image003-19.jpg) 2021年10月26日，美联邦通信委员会发布新闻稿宣布撤销中共国电信美洲公司在美运营许可
+2019年的一项法律要求FCC公布和更新一份对国家安全或美国人民的安全构成不可接受的风险的通信设备和服务商清单。去年，FCC指出了五家中国公司，这是第一批被列入美国电信监管机构“涵盖名单”的公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-2.jpg)
+这意味着FCC每年83亿美元的万能服务基金(Universal Service Fund)的资金将不再被用于购买和维护这些公司的产品。
 
-
-
-
-
-![瑞桑瑟夫中将是俄罗斯第49集团军最高指挥官。（互联网）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-03/eluosijiangjunzhenwang.jpg?VersionId=N9xjhlQhhz04W6DBg1.Or1zy8MVgw_Vq&amp;itok=W0YkPbp7)瑞桑瑟夫中将是俄罗斯第49集团军最高指挥官。（互联网）
+FCC于2021年3月指出华为技术有限公司、中兴通讯(000063.SZ)、深圳海能达(002583.SZ)、杭州海康威视数码科技有限公司(002415.SZ)和浙江大华科技股份有限公司(002236.SZ)对美国国家安全构成威胁。
 
 
-以下原文內容：
 
-乌克兰军方周六（3月26日）通报，俄罗斯中将瑞桑瑟夫（Yakov Rezantsev）在南部城市赫尔松（Kherson）炮击中阵亡。
+[【援引连结】](https://cn.reuters.com/article/us-fcc-list-china-mobile-0326-idCNKCS2LN039)
 
-综合美国有线电视新闻网（CNN）和英国广播公司（BBC）报道，瑞桑瑟夫是俄罗斯第49集团军最高指挥官。
-
-有西方官员说，他是第七名在乌克兰阵亡的俄罗斯将领，也是俄军在这次战事中阵亡的第二名中将。
-
-俄罗斯国防部尚未回应乌克兰的说法。
-
-美国CNN3月20日曾报道，俄罗斯黑海舰队副司令、一级舰长安德烈·尼古拉耶维奇·帕利（Andrei Nikolayevich Paly）在乌克兰南部港口城市马里乌波尔（Mariupol）地区的战斗中阵亡。
-
-这则消息获得两名俄罗斯官员塞瓦斯托波尔（Sevastopol）市长拉兹沃扎耶夫和塞瓦斯托波尔的俄罗斯议员阿尔塔巴耶娃证实。
-
-新闻链接：
-[乌军方：俄罗斯中将瑞桑瑟夫阵亡](https://www.zaobao.com.sg/realtime/world/story20220326-1256370)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

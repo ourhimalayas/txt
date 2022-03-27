@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 1:07 AM (UTC)`
+
+2022.03.26 晚《新中国联邦新闻访谈》俄乌最新局势分析；中共俄乌局势大外宣造假登峰造极；中共宣传疫情封城救助，网民发视频称根本没补贴；德国病理学家的发现Covid 疫苗损伤证据
+![img](https://media.gettr.com/group43/origin/2022/03/27/01/ed1cdc96-a4d6-d33f-5d61-069536430685/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/27/2022 12:51 AM (UTC)`
 
 3/25/2022 Miles Guo: Although Russia, the so-called world's second largest military power, is known for exporting weapons, it has been doing surprisingly poorly in the Russia-Ukraine war. Their equipment, supplies, and communication remain at the level of WWII, but in terms of running grandiose misinformation campaigns, Russia is the same as the CCP and North Korea!<br/><br/>3/25/2022 文贵直播: 以出口武器著称的号称世界第二大军事强国的俄罗斯在俄乌战争中的表现令人大跌眼镜。他们的装备、补给和通讯都停留在二战水平，但在冠冕堂皇的虚假宣传方面却和中共、北朝鲜如出一辙！<br/>
@@ -151,13 +158,6 @@
 
 【G|Clubs 2022年会 G|Talks】<br/><br/>恭喜所有中奖会员！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 Anniversary by G|Clubs 】<br/><br/>Congratulations to all winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group24/getter/2022/03/26/16/dc096fd6-11ce-7710-94e6-4eb918a6fbf6/out.jpg)
-
----
-
-`@miles 3/26/2022 3:56 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品9⃣️：GF 限定款黑色鳄鱼皮夹克 （单价：$80,000.00）<br/>奖品数量：1<br/>获奖者：<br/>XC36652<br/>Discord: 跟随七哥定点清除#5606<br/>获奖者来自加拿大温哥华扬帆农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 9⃣️： GFASHION Exotic Skin Jacket- Crocodile--Black (Unit Value: $80,000.00)<br/>Number of Prizes: 1<br/>The winner is: <br/>XC36652<br/>Discord: 跟随七哥定点清除#5606<br/>The winner is from the Vancouver Sailing Farm!<br/><br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group12/getter/2022/03/26/15/e97a6c98-d60d-0667-56fe-b5266b0a4c5c/cc690e2dcdbdf3a6c9a50c2284c601d8.jpg)
 
 ---
 
