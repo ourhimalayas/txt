@@ -36,34 +36,34 @@
 ### [有声|战友们做好准备应对有史以来最黑暗的一年](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“G-Club”（十八）](/content/gnews/8/README.md)
+### [有声|Gclub年会26日举办 奖品丰厚](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [文·贵天成——文贵先生谈“G-Club”（十八）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”](/content/gnews/9/README.md)
+### [有声|北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [2022年3月27日郭先生大直播 文字同步精要](/content/gnews/10/README.md)
+### [2022年3月27日郭先生大直播 文字同步精要](/content/gnews/11/README.md)
  ` 焦點20分`
 
-### [“我们是消灭邪恶中国共产党的新中国联邦人”赢得了世界的赞许](/content/gnews/11/README.md)
+### [“我们是消灭邪恶中国共产党的新中国联邦人”赢得了世界的赞许](/content/gnews/12/README.md)
  ` thedawn`
 
-### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/12/README.md)
+### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [突发：普京狂轰利沃夫的目标是针对美国总统拜登](/content/gnews/13/README.md)
+### [突发：普京狂轰利沃夫的目标是针对美国总统拜登](/content/gnews/14/README.md)
  ` 纽约香草山MOS02`
 
-### [视频|法国、土耳其、希腊将在马里乌波尔展开人道救援](/content/gnews/14/README.md)
+### [视频|法国、土耳其、希腊将在马里乌波尔展开人道救援](/content/gnews/15/README.md)
  ` MOSVIDEO`
 
-### [视频|拜登将乌克兰人民的英勇抵抗比作“六四”事件](/content/gnews/15/README.md)
+### [视频|拜登将乌克兰人民的英勇抵抗比作“六四”事件](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [视频|乌克兰击毙第七位俄高级将领 俄哑弹率高达六成](/content/gnews/16/README.md)
- ` MOSVIDEO`
-
-### [视频|G-FASHION开始接受使用HPAY以HDO购物](/content/gnews/17/README.md)
+### [视频|乌克兰击毙第七位俄高级将领 俄哑弹率高达六成](/content/gnews/17/README.md)
  ` MOSVIDEO`
 
 ### [战时的动物福利（一）](/content/gnews/18/README.md)
