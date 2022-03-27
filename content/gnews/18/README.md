@@ -2,35 +2,31 @@
 ---
 
 
-## 如果普京使用化学武器或核武器，北约将被迫做出反应
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2238139/)
+## 中共报告单日新增本土病例5600例 民生哀鸣
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238231/)
 
-####   撰稿：彩虹     
+作者：纽约香草山教育部 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月26日，中共官方媒体宣布，全国25日新增的本土中共病毒感染病例达到了5600例之多，其中包括1280例的本土确诊病例和4320例本土无症状感染病例。这些激增的病例数字再次加剧了普通民众对中共“清零”式防疫政策的不满情绪。
 
-#### 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3193.png)图片来源：NATO
-据《国会山报》3月26日的文章，北约副秘书长杰瓦纳（Mircea Geoana）在接受《美联社》采访时说，如果俄罗斯在对乌克兰的战争中使用化学武器或核武器，北约将作出反应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-51.png)
 
-杰瓦纳是罗马尼亚前外交部长和驻美国大使，他说，“北约是一个防御性联盟，但它也是一个核联盟，如果他们对乌克兰使用化学武器或其他种类的高端系统，这将从根本上改变普京先生对乌克兰发动的战争的性质”。
+根据中共发布的数据，国内的疫情目前呈遍地开花的态势，而上海市也已明显失控。上海市政府通报的消息称，当地25日单日新增2269例，其中无症状感染者为2231例，相较于前一日的979例呈爆发式增长态势。
 
-杰瓦纳强调说，“我可以保证，北约已经准备好做出相应的反应”。
+部分上海市民表示，因疫情加剧，一些地区的解封期限被一再后延，而每日的新鲜食品供应已面临严重短缺。一位市民在接受采访时抱怨称，中共的政策每天都在变化，食物价格每天都在上涨。而市民们需要每天凌晨5点就起来订购，却仍不能保证订单的正常交付。中共当局的防疫政策已比病毒疫情本身更让人感到恐惧和愤怒。
 
-杰瓦纳不愿向美联社详细说明这些相应的行动可能是什么，但他的这些评论是在俄罗斯官员拒绝说俄罗斯不会在入侵中使用化学或核武器的背景下发表的。
+参考链接：
 
-根据报道，随着战争持续了一个多月，俄罗斯方面变得更加绝望，俄罗斯军队之前认为他们将在几天内占领乌克兰。
+- [中國大陸新增5600例本土疫情](https://tw.news.yahoo.com/%E4%B8%AD%E5%9C%8B%E5%A4%A7%E9%99%B8%E6%96%B0%E5%A2%9E-5600-%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%96%AB%E6%83%85-023528183.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN_XCMGGwFWHpXvYlZQ4BoPG5d6c8_spo8Y_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w)
+- [Frustration with Covid response grows in China as daily cases near 5,000](https://www.theguardian.com/world/2022/mar/25/frustration-with-chinas-covid-response-grows-as-daily-cases-near-5000)
 
-杰瓦纳分析说，“普京先生可能相信他自己的后帝国主义幻想，认为乌克兰人将张开双臂欢迎他们。事实上，他们得到的是非常激烈的抵抗。我们相信，今天，即使仍有增援部队进入乌克兰，俄罗斯也不拥有占领整个乌克兰的力量和能力”。俄罗斯总统普京在决定发动这场战争时没有计算到“乌克兰军队的勇敢”和“西方政治（联盟）的团结”。
 
-报道说，北约估计，自俄罗斯入侵乌克兰以来，有超过4万名俄罗斯军队被杀、受伤或被俘。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-对此，杰瓦纳提醒，“我们看到，就目前而言，俄罗斯的军事规划正试图重新评估局势，试图弥补他们在战争第一个月所遭受的人员和物质上的巨大损失”。
-
-*责编：白夜*
-
-**新闻来源**
-
-[NATO official says alliance would be forced to take action if Russia uses chemical, nuclear weapons](https://thehill.com/policy/international/599877-nato-official-says-alliance-would-be-forced-to-take-action-if-russia)
-
+总编/编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

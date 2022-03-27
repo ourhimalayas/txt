@@ -2,21 +2,36 @@
 ---
 
 
-## 秘翻在线：拜登在波兰的演讲中说普京：不要继续执政了
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2238080/)
+## 美国大陪审团认定中共CAIEP骨干成员犯有签证欺诈罪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238230/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-37.png)（图片源自本文链接）
-3月27日每日新闻消息： 一位美国白宫官员在拜登讲话后立即向记者解释说，拜登不是在谈论政权更迭，意思是不允许（普京）在邻国或地区行使权力。同一天，俄罗斯总统发言人佩斯科夫回应路透社说，选举俄罗斯总统的是 “俄罗斯人民”，而不是拜登先生。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
 
-拜登先生从23日开始访问比利时和波兰，与欧洲领导人就应对乌克兰危机进行会谈，并在26日结束访问时发表讲话。 拜登先生说：”这不是几天或几个月内就能获胜的事情。我们需要为未来的长期战斗做好准备。 乌克兰的抵抗是 “为将所有争取自由民主的人们连结到一起的民主原则而战”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-44.png)
 
-同时，拜登先生强调，美国在欧洲的部队不是为了打击俄罗斯军队，而是为了保护我们的北大西洋公约组织（NATO）盟友。他敦促俄罗斯 “一刻也不要想入侵北约地区”。
+根据法院文件和证据，59岁的柳忠三是中共国际人员交流协会CAIEP的骨干成员，该协会名义上是一个非政府机构，实际上受中共政府领导，为中共政府工作。
 
-在演讲之前，拜登先生与逃离乌克兰的难民进行了互动。在会场，即华沙体育场，他抱起小孩子，与他们交谈，并听取了那些惜别丈夫和父亲逃离的妇女的故事。之后，他告诉记者，希望每个孩子都能为他们正在（在祖国）战斗的父亲、祖父和兄弟祈祷。在被问及普京时，他指责普京就是个屠夫。
+柳首先通过该协会获得了J-1研究学者签证，但之后并未在美国研究部门做访问学者，而是开始管理该协会在新泽西州Fort Lee的一个办事处。
 
-信息源：[バイデン氏、プーチン氏へ「権力の座にとどまるな」 ポーランドで演説 (msn.com)](https://www.msn.com/ja-jp/news/world/%E3%83%90%E3%82%A4%E3%83%87%E3%83%B3%E6%B0%8F-%E3%83%97%E3%83%BC%E3%83%81%E3%83%B3%E6%B0%8F%E3%81%B8-%E6%A8%A9%E5%8A%9B%E3%81%AE%E5%BA%A7%E3%81%AB%E3%81%A8%E3%81%A9%E3%81%BE%E3%82%8B%E3%81%AA-%E3%83%9D%E3%83%BC%E3%83%A9%E3%83%B3%E3%83%89%E3%81%A7%E6%BC%94%E8%AA%AC/ar-AAVx7CL?ocid=msedgntp&amp;cvid=c0e703725df7451888088a90cbd1c926)
+从2017年到2019年9月，柳与他人合作，为多名中共政府的雇员骗取了J-1研究学者签证，以使这些雇员在美国为中共非法工作。此外，该机构还招聘了一些美国的科学家、学者、工程师和其他专家到中共国工作。同时，他们向国务院和国土安全部隐瞒了这些工作。
 
+柳被判定一项共谋欺骗美国罪和签证欺诈罪，定于7月11日判刑，最高将面临五年监禁。
+
+参考链接：
+
+- [Chinese Government Employee Convicted of Participating in Conspiracy to Defraud the United States and Fraudulently Obtain U.S. Visas](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
+- [Chinese Government Employee Arrested in Visa Fraud Scheme](https://www.nytimes.com/2019/09/17/nyregion/chinese-government-visa-fraud.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：飞虹
+编辑：Ivy001
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
