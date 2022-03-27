@@ -2,21 +2,36 @@
 ---
 
 
-## 郭文贵精品视频-政治策略家论普京究竟为什么要打乌克兰
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2237145/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月26日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2237190/)
 
-撰稿：澳喜cindy
-![](https://assets.gnews.org/wp-content/uploads/2022/03/849DF313-4ABE-43E5-855E-93924798F5A6.png)
-郭先生告诉我们：习近平、普京为轴心的邪恶五国联盟从习近平刚上任为主席的2012年就开始了。他们两个人都向往着消灭美帝国主义的基督教文明，实行自己为奴隶主的奴隶社会主义。习近平所欣赏的普京又是个自觉是欧洲的老大，踌躇满志，总想让前苏联的辉煌再次降临到俄罗斯。
+作者：香草山翻译部
 
-很多年前江泽民、胡锦涛、习近平都明确提醒过普京要防范颜色革命，而民主、法制体制的乌克兰是颜色革命的最前线。俄乌的民间交流很频繁。普京意识到乌克兰将是对自己最大的危害，同时普京也让习认识到，将来俄罗斯如果被干掉，习也会被干掉，所以二人要合作干掉欧洲和美国，两个军事大国的独裁者就结成了生死联盟。几个月前习近平给了普京1万亿美元现金，以支持俄罗斯对乌克兰的入侵行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-41.png)
 
-“独裁者临死都不会放下对权力的执着，普京和习太阳也不会例外。普京攻打乌克兰的根本原因就是：怕乌克兰的民天下的制度的优越性被俄罗斯的民众真正懂得并觉醒”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-26.png)
 
-郭先生还一针见血地说到。“人民不要对政客抱有丝毫幻想，甚至美国这个国家，历史上也有流氓总统，大多数都是混蛋的东西。但是美国这个国家，之所以伟大就伟大在政治系统。美国这个国家法治、政治和老百姓的系统真的是太伟大了”。所以才能吸引全世界精英移民到美国，为美国的持续繁荣、发展发挥了重要的作用。才使得世界有美国为首的基督教文明的国家带领其他西方文明国家团结起来，一起群殴这几个邪恶联盟，才使得世界人民能有一个和平、美好的未来。
+文章仅代表作者本人观点，与Gnews无关
 
-*发搞：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
+视频参看：
+[2022.03.26早 《NFSC新闻》](https://gettr.com/streaming/p11zxxuf991)
+[2022.03.26早《NFSC新闻访谈》](https://gettr.com/streaming/p11zljx224e)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-23.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-41.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,36 @@
 ---
 
 
-## 简报：美国务院宣布向乌克兰提供1亿美元的民用安全援助
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237172/)
+## 有声|富商注射中共疫苗后死亡，保险公司拒赔
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2237210/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-翻译与编辑：冰糖葫芦喵
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月24日，郭先生的盖特转发了一则视频，视频中，法国一家保险公司拒绝对一位投有数百万人寿保险的富商进行理赔。这位富商因为注射中共疫苗而死亡。保险公司及法院均认为，他是在知晓该疫苗属实验性药物，且有副作用的情况下仍选择了接种，因此他的死亡应被认定是“自杀”。保险条款一般都会明确说明，自杀以及实验性药物造成的死亡不在保险理赔的范围之内。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/14-21.png)
+虽然这位富商的官司发生在法国，不过，美国的人寿保险委员会也表示，死于中共病毒疫苗不在本国保险的理赔范围内。
 
-《路透社》特拉维夫3月26日报道，**周六，美国国务院表示，美国计划再向乌克兰提供1亿美元的民事安全援助。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/民用安全援助-e1648333043284.jpg)3月26日，乌克兰郊外一位老人在摧毁的房子上爬梯子（图片来源：路透社）
-美国国务卿布林肯(Antony Blinken)在一份声明中说，**这些援助将用于建设乌克兰内政部的能力，以帮助“边境安全，维持民事执法职能，并保护关键的政府基础设施”。**
 
-此前**，美国已经向乌克兰提供20亿美元的军事援助以及10亿美元的人道主义援助。**
 
-新闻来源链接：
+文字版原文：[富商注射中共疫苗后死亡，保险公司拒赔](https://gnews.org/zh-hans/2234277/)
 
-[U.S. to provide $100 million in civilian security assistance to Ukraine | Reuters](https://www.reuters.com/world/us-provide-100-million-civilian-security-assistance-ukraine-state-dept-2022-03-26/)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

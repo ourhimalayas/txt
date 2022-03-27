@@ -2,19 +2,66 @@
 ---
 
 
-## 郭文贵精品视频-中共控制中东能源就是要能源人民币化
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2237324/)
+## 2022年3月26日G-Clubs年会摘要及音频—银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2237383/)
 
-撰稿：澳喜cindy
-![](https://assets.gnews.org/wp-content/uploads/2022/03/849DF313-4ABE-43E5-855E-93924798F5A6.png)
-最近的中东局势正如郭先生一个星期前预判的那样：中共将用其最擅长的挑拨离间手段，挑起中东各国之间的矛盾，使其产生互相乱战。在各方打得不可开交的时候，中共出来做和事佬，从而骗取各方的信任和感恩，并把祸端甩锅给美国人。从而获得自己最大的利益- 能源的控制权。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220326_副本.jpg)
+视频连接：[G CLUB2022年年会](https://gettr.com/streaming/p11z7ye4d5a)
 
-中东各国接受人民币石油化，对美国的美元地位发起挑战，然后再把人民币变成完全中心化的数字人民币，中共就可以任意洗钱。当中共羽翼丰满之时就开始向欧美摊牌。以“世界第一大负责任的党”自居，重组联合国。此时，美国再制裁都不起作用了。那时，中共早已不用美元了。反而中共控制了中东的能源，可以不给欧美油、气。这就是中共正在实施的中东“潘多拉魔盒”的灭掉美国的计划。
+1、有G-Clubs卡的战友们一定要给父母，爱人，及亲人买，这是今天参加年会最有意义的事情；
 
-习要趁乱控制中东能源，而把中东能源人民币化是其核心宗旨。习不会因为俄罗斯在乌克兰受阻等问题就不打台湾了。打台湾就是要抢夺芯片，打垮美国的技术供应链，及控制欧美的中东天然气供应链。到那时，世界的金融系统市场将崩盘，社会秩序崩盘，供应链都将会出大问题。到时候所有人都会找中国算账。只有新中国联邦人能帮助世界解决最根本的祸根，灭掉中国共产党！
+2、G-Fashion用是老的鳄鱼皮，会有证明文件，稀有时间的艺术品；
 
-*发布：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
+3、文贵先生刚刚爆料，今天G-Clubs年会直播用的是新G-TV直播平台；
+
+4、第一辆奔驰，新西兰奥克兰伊甸农场：梦田#6641；
+
+5、第二辆奔驰，洛杉矶盘古农场: 郁金香#8584；
+
+6、第三辆奔驰，日本银河系农场：舔刚毛#5512；
+
+7、价值$80000白色鳄鱼皮夹克，纽约香草山农场：推墙的人#9308；
+
+8、价值$80000黑色鳄鱼皮夹克，扬帆农场：跟随七哥定点清除#5606；
+
+9、价值$80000蓝色鳄鱼皮夹克，盘古农场：海阔天空#9646；
+
+10、总后台草根小哥，魔女，文贵先生，代表老郭家，现在郭姓是中共国第一敏感姓氏；
+
+11、第四辆奔驰，获奖者来自日本银河系农场；
+
+12、拜登要和泽连斯基在华沙会面；
+
+13、中共国内部开始讨论要不要抛弃俄罗斯和美国站在一起时，习近平决定坚持和普京站在一起，干掉西方；
+
+14、兰博基尼，终极大奖，纽约香草山农场：铲共骑侠#9827；
+
+**注：大直播音频正在制作和上传中，敬请关注——**
+
+**（大直播音频位置）**
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord****群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

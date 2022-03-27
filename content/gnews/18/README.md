@@ -2,24 +2,20 @@
 ---
 
 
-## 樱花时政┃塔利班禁止无男性监护人的女性乘坐航班
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237143/)
+## 樱花时政┃威慑中共国的时间不多了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237149/)
 
 撰稿：东京樱花团/加一颗稻草
 
-巴基斯坦伊斯兰堡，美联社，两名阿富汗航空公司官员周六表示，阿富汗塔利班统治者拒绝让数十名女性登机，其中包括一些海外航班，因为她们在没有男性监护人的情况下旅行。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-18.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/16297c8fff9845029618866cdbb6cbb0/3000.jpeg)
-由于害怕塔利班的影响而不愿透露姓名的官员说，数十名周五抵达喀布尔国际机场登上国内和国际航班的女性被告知，如果没有男性监护人，她们不能这样做。 据其中一名官员称，其中一些女性是返回海外家园的双重国籍，其中一些来自加拿大。官员们说，女性被拒绝登上Kam Air和国有的阿丽亚娜航空公司飞往伊斯兰堡、迪拜和土耳其的航班。
+我们不能让俄罗斯入侵乌克兰分散我们对中国共产党构成的威胁的注意力。就在本周，中共国驻美国大使公开拒绝谴责俄罗斯的入侵。尽管习近平和中共政府否认了这一点，但中共一直在与俄罗斯直接协调并相互比较，因为中共国有吞并台湾的野心，即使普京现在正在吞并乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-19.jpg)[图片来源](https://static.foxnews.com/foxnews.com/content/uploads/2022/02/Putin-Xi.jpg)
+中共国必须明白，在这场冲突中向俄罗斯提供财政或军事援助的任何决定都将直接违反国际和平努力，并将导致对其经济的严重制裁。拜登总统有机会明确这一点，防止中共国破坏国际社会，阻止他们将这场冲突升级到更加危险的程度。如果执行得当，这还有一个额外的好处，那就是在俄罗斯和中共国之间建立一个非常公开的楔子。对中共国建立有意义的威慑的时间已经不多了。
 
-一位官员说，该命令来自塔利班领导层。这位官员说，到周六，一些独自旅行的女性获准登上阿丽亚娜航空公司飞往西部赫拉特省的航班。然而，当他们获得许可时，他们已经错过了航班，他说。
-
-消息来源：[Officials: Taliban blocked unaccompanied women from flights](https://apnews.com/article/afghanistan-travel-business-pakistan-lifestyle-febfbef58116fd063e1a5ef780762e56)
+消息来源：[Time is running out to deter China](https://www.foxnews.com/opinion/time-running-out-deter-china)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

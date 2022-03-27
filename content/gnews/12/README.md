@@ -2,30 +2,37 @@
 ---
 
 
-## 意大利药品管理局对第四剂新冠疫苗加强针说“不”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2237202/)
+## 有声|俄罗斯宣布将驱逐美国外交官
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2237231/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，美国国务院发言人表示，美国驻莫斯科大使馆收到了一份被列为“不受欢迎的人”的外交官名单。此举被媒体解读为俄罗斯不满美国驱逐俄驻联合国外交官员，而做出的回应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3078.png)
+华盛顿上个月表示，出于国家安全考虑，将驱逐驻纽约联合国代表团的 12 名俄罗斯外交官，后来又宣布将驱逐另外一名在联合国工作的俄罗斯外交官，并称其为间谍。但俄罗斯否认了上述指控，并提交了这份“不受欢迎”的美外交官名单。
 
-第四剂新冠疫苗是针对弱势群体吗？要不要扩展至所有人？意大利药品管理局对德拉吉政府的回答是至少目前还不行，因为缺乏足够的数据，这是专家们所强调的。这一决定是历史性的。在大流行病期间，该机构实际上从未反对过政府行政部门的要求。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-26-alle-23.18.07.png)图片来源：ilparagone.it
-意大利药品管理局（AIFA）的科学技术委员会在2022年3月24日开始针对某些特别群体的新冠疫苗加强针可行性进行评估。考虑到可使用数据的复杂性，委员会决定有必要进行进一步调查，将国际上的科学证据与意大利正在进行的研究数据结合起来。
-
-这一公告也打消了将第四剂加强针扩大到目前没有义务接种第四剂疫苗的人群的可能性。尤其是最近几周，针对是否应为70多岁的人接种疫苗的讨论， 卫生部顾问沃尔特•里恰尔迪(Walter Ricciardi )持赞成意见。而病毒专家马泰奥•巴塞蒂( Matteo Bassetti)对意大利药品管理局的决定表示赞赏。
-
-意大利药品管理局的决定是在感染数据继续保持良好形势的时候做出的：在过去的几个小时里，发现了超过82.000个阳性病例，这一趋势与前几周的趋势一致， 但并没有给医院的重症监护造成压力。而此时似乎还没有第五波疫情的迹象，因此推广第四剂加强针被推迟。
-
-参考链接：
-
-[ttps://www.ilparagone.it/attualita/laifa-dice-no-alla-quarta-dose-la-clamorosa-decisione-sui-vaccini/](//www.ilparagone.it/attualita/laifa-dice-no-alla-quarta-dose-la-clamorosa-decisione-sui-vaccini/)
+美国国务院发言人指出，这是俄罗斯在美俄双边关系中最新做出的徒劳无益的一步，他补充说，现在最重要的是美俄应该保留必要的外交人员，以维持两国政府之间的正常沟通。据悉，美俄双方都没有具体说明有多少人受到影响，或者他们何时必须离境。
 
 
 
+文字版原文：[俄罗斯宣布将驱逐美国外交官](https://gnews.org/zh-hans/2234197/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑、上传： Xiao baige
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
