@@ -2,8 +2,8 @@
 ---
 
 
-## 拜登会让普京滚蛋
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2241895/)
+## 拜登没有将中国人和共产党分开
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2241960/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

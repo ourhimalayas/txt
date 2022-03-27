@@ -2,22 +2,31 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾（3月16日至23日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241195/)
+## 莫斯科和基辅下周的新谈判
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2241422/)
 
-作者：DC农场–火来
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月16日至3月23日，除中共国外，全球新增中共病毒确诊患者1154万余例，同比上周下降了6.63 %；此外，本周新增确诊死亡病例超过34313例，同比上周下降了11.1%。本周，全球新增确诊病例数和新增确诊死亡病例数均较一周前略有下降。截至3月23日，除中共国外，全球累计接种了80.4亿剂中共病毒疫苗，同比16日的累计接种数据增长了0.886%.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.15.png)
-3月16日，美国新罕布什尔州议会投票通过关于伊维菌素使用的法案，法案规定伊维菌素在新州为非处方药，在美国，新州将率先成为无需处方便可在药店购买伊维菌素的州。3月18日，继辉瑞公司之后，莫德纳公司也向美国FDA提交了针对成年人的第二剂中共疫苗加强针的使用许可申请，3月23日，莫德纳进而发表声明表示，希望FDA能够将第二剂加强针的使用许可扩大到6岁以下的儿童。3月22日，白宫官员称，美国目前没有足够的经费为全美国人提供免费的第二剂中共病毒加强针。3月22日，辉瑞宣布将通过联合国儿童基金会，向贫穷国家发放四百万份辉瑞研发的治疗中共病毒的药物Paxlovid，并且已经有超过30家公司申请生产Paxlovid的仿制药。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
-编辑：Zion 文恩
-总编：Zion 文恩
-审核：Zion 文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukrainian-Foreign-Minister-Kuleba-speaks-during-a-news-conference.jpg)
+
+
+图片来源：路透社
+
+俄罗斯和乌克兰的代表希望下周再次亲自会面，进行和平谈判。最近，各代表团在网上进行了磋商。土耳其再次被讨论为东道国。
+
+经过大约两周的在线和平谈判，乌克兰和俄罗斯代表团现在希望再次亲自会面。俄罗斯代表团团长弗拉基米尔·梅丁斯基（Vladimir Medinski）周日在 Telegram 上写道，计划在周二和周三举行一次会议。乌克兰谈判代表戴维·阿拉恰米亚（David Arachamija）也证实了计划在 Facebook 上举行的个人会议，但谈到周一的开始，并将土耳其命名为东道国。土耳其方面最初没有确认。
+
+俄罗斯对乌克兰的侵略战争于2月24日开始后不久，两国代表团开始谈判。在白俄罗斯边境地区举行了三场面对面会谈后，会谈以视频会议的形式进行。乌克兰要求停止战斗并撤出俄罗斯军队。莫斯科要求基辅放弃加入北约，北约承认该国东部的分离主义地区为独立国家，并承认俄罗斯对被吞并的克里米亚半岛的统治。
+
+乌克兰外长德米特罗·库莱巴和他的俄罗斯同事谢尔盖·拉夫罗夫于 3 月 10 日在土耳其会晤。 然而，当时在安塔利亚的会谈并没有带来任何重大进展。
+
+🔗 [https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html](https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
