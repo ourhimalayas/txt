@@ -2,31 +2,34 @@
 ---
 
 
-## 樱花时政┃美贸易代表继续对中共国施压
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239448/)
+## 樱花时政┃中共制造中东乱局 也门与沙特冲突升级 联合国秘书长谴责袭击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239717/)
 
-撰稿：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
-在本月23日美国贸易办公司宣布重新豁免352项中共国进口商品关税后不久，拜登政府再次就贸易问题对华施压。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-42.jpg)
-据路透社3月25日报道，美国贸易代表戴琪本周接受该媒体采访时称，美国不会再“袖手旁观”（sitting on its hands），将以更积极的态度向世界第二大经济体中共国施压，要求其改变美国所谓“扭曲市场贸易”做法。戴琪声称，美国正准备采取一种新的对华贸易政策，通过更新的、更有效的措施来捍卫自身经济利益，更好地与中共国竞争，但她并未提供具体细节。“我们不会停止敦促和挑战中共国，让中共国进行改革和变革。但我们没办法继续袖手旁观，坐等中共国做出决定。我们需要翻开游戏规则新的一页。”戴琪说。
+**撰稿：东京樱花团/山顶闲人**
 
-美国贸易办公室释放的“豁免部分中共国进口商品关税”的信号在本月23号，让中共先可以对墙内群众暂时洗脑一下，突然间对中共国继续施压的极速转弯，拜登政府的老牌政客懂得如何玩中共，此次他的波兰的访问及公开讲话，表面说普京及俄罗斯实际是在警告中共“柏林墙已经到了，就像当年里根总统访问德国一样”。只不过拜登这次是杀“俄罗斯”给“中共”看。中共倒塌的日子屈指可数了……
+3月26日，联合国秘书长发言人杜雅里克（Stephane Dujarric）今天声明表示：“秘书长强烈谴责最近在也门的冲突升高。”
+![此图像的alt属性为空；文件名为1-320.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/1-320.jpg)[图片来源](https://hd.stheadline.com/news/realtime/wo/2323104/%E5%8D%B3%E6%99%82-%E5%9C%8B%E9%9A%9B-%E6%B2%99%E7%89%B9%E6%B2%B9%E5%BA%AB%E9%81%87%E8%A5%B2%E8%B5%B7%E7%81%AB-%E8%83%A1%E5%A1%9E%E6%AD%A6%E8%A3%9D%E6%89%BF%E8%AA%8D%E8%B2%AC%E4%BB%BB)
+也门叛军最近一波攻击，包括25日攻击一座炼油厂引发大火，而沙特吉达（Jeddah）世界一级方程式赛车赛道就在附近，当时电视正在转播练习赛。
 
-消息来源：
-[美国贸易代表：美国将加大对中共国的施压](https://baijiahao.baidu.com/s?id=1728375312023381554&amp;wfr=spider&amp;for=pc)
+今天稍早，沙特为首的联军对也门首都沙那（Sanaa）和港市荷台达（Hodeida）发动空袭作为回应。荷台达是国际人道援助的主要入口。联合国声明说，对沙那的攻击，据报造成8名平民丧生。
 
-[Remarks As Prepared for Delivery of Ambassador Katherine Tai Outlining the Biden-Harris Administration’s “New Approach to the U.S.-China Trade Relationship”](https://ustr.gov/about-us/policy-offices/press-office/speeches-and-remarks/2021/october/remarks-prepared-delivery-ambassador-katherine-tai-outlining-biden-harris-administrations-new)
+伊朗撑腰的“青年运动”团体（Huthis）2014年夺下沙那后，沙特为首的联军便介入，支持也门政府对抗叛军。这场战争将满7周年，如今双方再度交火。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+今天稍早，青年运动宣称和沙特联军停战3天，而“永久”休兵则悬而待决。法新社报导，沙特方面尚未有即时回应。
 
+杜里雅克表示，秘书长古特瑞斯重申“呼吁各方展现最大的节制力”，并且应紧急达成协议以终结战争。
+
+联合国声明也指出，联军攻击在也门摧毁了数艘满载爆裂物的船只，也损毁了联合国职员在沙那的住处。
+
+今天有数千民众在也门首都游行、谴责战争。联合国表示，这场战争直接或间接地夺走数十万条人命，并让数以百万计的人濒于饥荒边缘。
+
+众所周知，也门叛军主要背后支持者为伊朗政府，而给伊朗政府大量资金和军事援助的是中共政权。中共才是袭击沙特炼油设施背后真正元凶。而作为被袭击对象的沙特，作为一个世界产油大国，却与中共暗通款曲，利用此次袭击借机推高世界油价，加速世界经济崩溃，又与中共同谋利用“石油人民币”交易，打击美元地位，以此冲击美国为首的西方各国货币支付系统。另外，也门叛军与沙特之间的冲突不断升级，造成大量的当地难民涌入欧洲各国，将令已经涌入大量乌克兰难民的欧洲各国不堪重负，粮食、日用品等民生物资进一步短缺，难民中混入恐怖分子让当地治安恶化，经欧洲各国经济变得更加雪上加霜。中共作为中东乱局的幕后推手，必将受到世界正义力量的联合围剿，其寿终正寝之日已不再遥远。
+
+信息来源：[叶门冲突升温 联合国秘书长谴责并吁克制](https://www.rfi.fr/cn/%E5%8F%B6%E9%97%A8%E5%86%B2%E7%AA%81%E5%8D%87%E6%B8%A9-%E8%81%94%E5%90%88%E5%9B%BD%E7%A7%98%E4%B9%A6%E9%95%BF%E8%B0%B4%E8%B4%A3%E5%B9%B6%E5%90%81%E5%85%8B%E5%88%B6)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![此图像的alt属性为空；文件名为yht.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

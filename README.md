@@ -15,127 +15,127 @@
 
 ---
 
-### [MV版Hcoin To the Moon上线108天第42次位列匈牙利iTunes热门MV榜首](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [躲过中共病毒疫苗灾难就是人生赢家](/content/gnews/1/README.md)
+ ` NFSC News`
 
-### [2022/03/27 英喜时事速递](/content/gnews/2/README.md)
+### [文贵爆料 3.27：拜登演讲，直击战争屠夫](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
+
+### [谎言在互联网时代都会不攻自破](/content/gnews/3/README.md)
+ ` NFSC News`
+
+### [时事要闻2022年3月26日](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [GClubs年会共襄盛举 律师战友获终极大奖](/content/gnews/5/README.md)
+ ` NFSC News`
+
+### [俄罗斯第七名将军在乌克兰被杀](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G时新闻】俄罗斯暗示可能将退守乌东部地区](/content/gnews/3/README.md)
+### [MV版Hcoin To the Moon上线108天第42次位列匈牙利iTunes热门MV榜首](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【转】截至3.27 俄乌战事汇总（2）](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022/03/27 英喜时事速递](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【G时新闻】俄罗斯暗示可能将退守乌东部地区](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [文贵大直播要点（2022年3月27日）](/content/gnews/4/README.md)
+### [文贵大直播要点（2022年3月27日）](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [拜登：看在上帝的份上这个人不能继续执政](/content/gnews/5/README.md)
+### [拜登：看在上帝的份上这个人不能继续执政](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G时新闻】拜登称俄罗斯普京是屠夫不能继续执政](/content/gnews/6/README.md)
+### [【G时新闻】拜登称俄罗斯普京是屠夫不能继续执政](/content/gnews/13/README.md)
  ` G-时新闻`
 
-### [文·贵天成——文贵先生谈“G-Club”（二十）](/content/gnews/7/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（二十）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日首相称俄乌战争可能导致战后世界最大危机](/content/gnews/8/README.md)
+### [日首相称俄乌战争可能导致战后世界最大危机](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022.3.27大直播 郭文贵先生叮嘱前线战友 安全第一 去留自便](/content/gnews/9/README.md)
+### [2022.3.27大直播 郭文贵先生叮嘱前线战友 安全第一 去留自便](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [战时的动物福利（二）](/content/gnews/10/README.md)
+### [战时的动物福利（二）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成——文贵先生谈“G-Club”（十九）](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|美国能产生无数马斯克 中共独裁体制扼杀文明](/content/gnews/12/README.md)
+### [有声|美国能产生无数马斯克 中共独裁体制扼杀文明](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [2022年3月27日文贵先生大直播速记](/content/gnews/13/README.md)
+### [2022年3月27日文贵先生大直播速记](/content/gnews/19/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|战友们做好准备应对有史以来最黑暗的一年](/content/gnews/14/README.md)
+### [有声|战友们做好准备应对有史以来最黑暗的一年](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|Gclub年会26日举办 奖品丰厚](/content/gnews/15/README.md)
+### [有声|Gclub年会26日举办 奖品丰厚](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [2022年3月27日郭先生大直播 文字同步精要](/content/gnews/16/README.md)
- ` 焦點20分`
-
-### [“我们是消灭邪恶中国共产党的新中国联邦人”赢得了世界的赞许](/content/gnews/17/README.md)
- ` thedawn`
-
-### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/18/README.md)
+### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [视频|法国、土耳其、希腊将在马里乌波尔展开人道救援](/content/gnews/19/README.md)
+### [视频|法国、土耳其、希腊将在马里乌波尔展开人道救援](/content/gnews/23/README.md)
  ` MOSVIDEO`
 
-### [战时的动物福利（一）](/content/gnews/20/README.md)
+### [战时的动物福利（一）](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|未来战争将转型为高科技远程作战](/content/gnews/21/README.md)
+### [有声|未来战争将转型为高科技远程作战](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [3/27/2022国内经济财经周报：CDN巨头隆重介绍喜交所，Hpay让您秒变时尚达人；地产巨头推迟刊发业绩公告](/content/gnews/22/README.md)
+### [3/27/2022国内经济财经周报：CDN巨头隆重介绍喜交所，Hpay让您秒变时尚达人；地产巨头推迟刊发业绩公告](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [2022年3月27日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
+### [2022年3月27日，全球中共病毒疫情情况汇总](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [3/27/2022国际财经快讯：拜登将提议对亿万富翁征收最低税；美国将俄罗斯卡巴斯基和中国电信列入国家安全威胁名单](/content/gnews/24/README.md)
+### [3/27/2022国际财经快讯：拜登将提议对亿万富翁征收最低税；美国将俄罗斯卡巴斯基和中国电信列入国家安全威胁名单](/content/gnews/28/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰战争：世卫组织称对卫生设施的袭击每天都在增加](/content/gnews/25/README.md)
+### [乌克兰战争：世卫组织称对卫生设施的袭击每天都在增加](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普京可能试图强加乌克兰“朝鲜和韩国”企图](/content/gnews/26/README.md)
+### [普京可能试图强加乌克兰“朝鲜和韩国”企图](/content/gnews/30/README.md)
  ` 波士顿五月花农场金融部`
 
-### [美国及世界疫情简报（03-27-2022）](/content/gnews/27/README.md)
+### [美国及世界疫情简报（03-27-2022）](/content/gnews/31/README.md)
  ` 波士顿五月花农场`
 
-### [天主教NFL踢球手说宁可退役也不打疫苗](/content/gnews/28/README.md)
+### [天主教NFL踢球手说宁可退役也不打疫苗](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲急诊科及择期手术的等待时间出现飙升](/content/gnews/29/README.md)
+### [澳洲急诊科及择期手术的等待时间出现飙升](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
 
-### [拜登在波兰访问北约东侧的美军部队](/content/gnews/30/README.md)
+### [拜登在波兰访问北约东侧的美军部队](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [沙特阿美石油公司吉达油库遭胡塞武装袭击](/content/gnews/31/README.md)
+### [沙特阿美石油公司吉达油库遭胡塞武装袭击](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [冬天来了，春天还会远吗？](/content/gnews/32/README.md)
+### [冬天来了，春天还会远吗？](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄乌战争之后出现的中东危机](/content/gnews/33/README.md)
- ` 秘密翻译组-原创组`
-
-### [堪萨斯州允许将伊维菌素和羟氯喹作为治疗中共病毒的药物](/content/gnews/34/README.md)
+### [堪萨斯州允许将伊维菌素和羟氯喹作为治疗中共病毒的药物](/content/gnews/37/README.md)
  ` 银河歌舞厅`
 
-### [樱花时政┃中共制造中东乱局 也门与沙特冲突升级 联合国秘书长谴责袭击](/content/gnews/35/README.md)
+### [樱花时政┃中共制造中东乱局 也门与沙特冲突升级 联合国秘书长谴责袭击](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [捷克参议员呼吁改革联合国：决不能允许俄罗斯捣乱](/content/gnews/36/README.md)
- ` 日本東京方舟農場`
-
-### [拜登将乌克兰人民的英勇抵抗比作“六四”事件](/content/gnews/37/README.md)
+### [拜登将乌克兰人民的英勇抵抗比作“六四”事件](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [樱花时政┃美贸易代表继续对中共国施压](/content/gnews/38/README.md)
+### [樱花时政┃美贸易代表继续对中共国施压](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [G-FASHION开始接受使用HPAY以HDO购物](/content/gnews/39/README.md)
- ` NFSC News`
-
-### [国民党高官亲属为中共卖命的悲惨命运](/content/gnews/40/README.md)
- ` NFSC News`
-
-### [破解粉饰俄乌战争的虚假理由](/content/gnews/41/README.md)
+### [G-FASHION开始接受使用HPAY以HDO购物](/content/gnews/41/README.md)
  ` NFSC News`
 
 ### [部分政商精英误判俄乌战事](/content/gnews/42/README.md)
