@@ -2,8 +2,8 @@
 ---
 
 
-## 躺平币将是最稳定最安全的私人财富
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239365/)
+## 共产党的科技战技术未成熟
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239415/)
 
 台灣寶島農場
 

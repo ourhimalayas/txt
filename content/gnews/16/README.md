@@ -2,27 +2,32 @@
 ---
 
 
-## 樱花时政┃拜登访问波兰 赞扬乌克兰人民的英勇抵抗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239406/)
+## G-FASHION开始接受使用HPAY以HDO购物
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239438/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-对波兰展开正式访问的美国总统拜登，周五抵达距乌克兰边境不远的热舒夫市实地了解现况。拜登25日搭乘空军一号转赴波兰热舒夫市，这里距离乌克兰仅80公里。拜登首先前往美军基地，与派驻美军第82空降师官兵共享比萨。拜登随后将与波兰总统杜达会晤。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-189.png)
-拜登在热舒夫发表讲话说：“当你看到一个三十多岁的女子站在一辆坦克前，手持步枪，(这情景）令人想到发生在1989年北京的事情，那就是天安门广场。”拜登以此称赞乌克兰人民的“勇气”和“韧性”。拜登并再次将普京称为“战犯”。拜登对现场协助人道救援的团队表示，目前已有1000万人流离失所，380万人逃往他国，还有成千上万的人遭到俄罗斯军队围困。应持续扩大协助，与乌克兰政府密切协调为了帮助乌克兰，拜登此前宣布再提供10亿美元的人道援助，并将接收1万名乌克兰难民。
+撰稿：纽约香草山医疗部-云豹；银河系农场-骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
+3月25日，郭文贵先生在大直播中表示，G-FASHION公司从3月24日开始，正式接受消费者使用HPAY支付平台以H DOLLAR数字货币购买该公司设计出品的高品质时尚服饰，创下了数字货币在使用、流通上的新的里程碑。从后台战友的演示中我们可以看到，操作很快就可以完成，能给客户带来完美的购物体验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3200.png)
+第一代虚拟币比特币打开了人类非实体性货币的视野，但是它所标榜去中心化的特性也使其沦入无人管理、无人负责的困境，只被炒家拿来做为投机金融系统的工具。 第二代虚拟币虽然改善了比特币的少许缺点，但一样无法满足做为流通性货币的要求。
 
-信息来源：
+喜联储发行的喜美元HDO及喜币HCN，采行严格的KYC审核制度，在开户阶段就先排除了有问题的客户。并用新的区块链技术来达到保障客户隐私及快速转款的实用性要求。 这是目前唯一具有区块链技术加密优点，又兼具市场实用流通性及可监管性的数字货币。 此次G-FASHION开放使用HPAY及H DOLLAR的方式支付货款，将开启数字货币的新纪元。
 
-[拜登访问波兰 赞扬乌克兰人民的英勇抵抗”令人想到天安门广场”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220325-%E6%8B%9C%E7%99%BB%E8%AE%BF%E9%97%AE%E6%B3%A2%E5%85%B0-%E8%B5%9E%E6%89%AC%E4%B9%8C%E5%85%8B%E5%85%B0%E4%BA%BA%E6%B0%91%E7%9A%84%E8%8B%B1%E5%8B%87%E6%8A%B5%E6%8A%97-%E4%BB%A4%E4%BA%BA%E6%83%B3%E5%88%B0%E5%A4%A9%E5%AE%89%E9%97%A8%E5%B9%BF%E5%9C%BA)
+从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到解放。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+参考链接：
+
+[如何使用HPay在GFashion网站上买商品](https://gettr.com/post/p11w6er414b)
+
+[2022年3月25日 文贵大直播](https://gettr.com/post/p11tme3b4de)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1.png)
+
+编辑/总编/审核: 飞虹
+
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
+
 
  
 
