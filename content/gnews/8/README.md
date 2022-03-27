@@ -2,12 +2,25 @@
 ---
 
 
-## 拜登表示普京“不能继续掌权”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238855/)
+## 灭共段子┃搭棚大师保障电力供应
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238934/)
 
-03/26/2022 美国总统乔·拜登在波兰华沙的皇家城堡前发表演讲称，弗拉基米尔·普京不能继续掌权。他表示俄罗斯在这场战争上无疑已经战略失败。俄罗斯永远无法在乌克兰取得胜利。
+撰稿：东京樱花团/发条橙
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+视频：东京樱花团/俪影
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+郭先生说，战祸不息，救援不止。人道救援，我们是认真的。 行动落到实处，做事关注细节。 七星帐篷旁边搭起小雨棚，专为发电机挡雨而设。为即将到来的雨季做准备。 义工和志愿者共同晋级搭棚大师，为日夜工作的小红发电机共同撑起一片天。
+
+盖特链接：[https://gettr.com/post/p11ygj30cfa](https://gettr.com/post/p11ygj30cfa)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

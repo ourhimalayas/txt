@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 8:25 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group38/origin/2022/03/27/07/2a67a00a-26de-a453-a8b8-6ff5418ea7ea/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/27/2022 7:18 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月25日第21天当日救援统计：<br/>Medyka救援站接待：约80人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7492人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 21 - Date: March 25, 2022 :<br/>Medyka Rescue Station Reception: about 80 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7492 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️5⃣️：GF 年会专属限定版T恤 (单价: $140.00)<br/>奖品数量：600<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️5⃣️: GFASHION  T-Shirt (Unit Value: $140.00) <br/>Number of Prizes: 600<br/>The winners are as following<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group3/getter/2022/03/26/17/dad07d1e-71c1-1ca1-f3bb-bfbc398679e2/9830d4e3e94c431f02f0d56eed5d4fe8.jpg)
-
----
-
-`@miles 3/26/2022 4:59 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️4⃣️：GF 钻石铂金限定版信仰之星哨子 (单价: $7,499.00)<br/>奖品数量：15<br/>获奖名单如图<br/>中奖者来自联盟，洛杉矶盘古农场，纽约香草山农场，华盛顿DC农场，波士顿五月花农场，东京樱花团，新西兰伊甸农场！恭喜中奖者！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️4⃣️： GFASHION Diamond Whistle- White Gold (Unit Value: $7,499.00) <br/>Number of Prizes: 15<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Global Alliance, Himalaya LA Pangu, Himalaya New York Mountains of Spices Farm, Himalaya Washington DC Farm, Himalaya Boston Mayflower Farm, Himalaya Tokyo Sakura Group, Himalaya New Zealand Auckland Eden Domain!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group30/getter/2022/03/26/16/6c46e221-108b-6c06-8c00-860ecf2dca55/45a6812415f001baeb832bc3594dda6f.jpg)
 
 ---
 

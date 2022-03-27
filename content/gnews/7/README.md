@@ -2,30 +2,30 @@
 ---
 
 
-## 氢燃料电池迎重大突破 成本大降
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2238877/)
+## 大量俄军被乌兵俘虏画面曝！网嘲：他们终于有饭吃了！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2238939/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-美国康奈尔大学发现，一种掺氮、碳涂层的镍阳极可以催化氢燃料电池中的一个重要反应，而其成本仅为目使用的贵金属的一小部分。这项新发现会加速氢燃料电池的应用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-183.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.twintek.com%2Fimg%2Fhydrogen-fuel-cell-testing-hero.jpg&amp;imgrefurl=https%3A%2F%2Fwww.twintek.com%2Fhydrogen-fuel-testing&amp;tbnid=VaWsTK_AAKdXjM&amp;vet=12ahUKEwi2u4TD3eX2AhUHgJQKHXmUD_UQMygOegUIARDVAQ..i&amp;d)
-美国康奈尔大学发现，一种掺氮、碳涂层的镍阳极可以催化氢燃料电池中的一个重要反应，而其成本仅为目使用的贵金属的一小部分。这项新发现会加速氢燃料电池的应用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+俄乌交战已来到第31天，双方战事仍胶着，乌克兰总统泽伦斯基昨日再次呼吁西方国家加强对乌克兰的军援，「乌克兰只需要北约1%的坦克和飞机」，泽伦斯基强调，乌克兰要求的不多，也不会再要跟多，但等待北约军援已经足足等了31天了。
 
-氢燃料电池作为高效、清洁的能源，在汽车和其他应用领域有着巨大的前景。他们正在寻找碱性燃料电池中使用的活性、廉价、耐用的催化剂。最近的非贵金属HOR电催化剂实验需要克服两个主要挑战：由于氢键能太强而导致的固有活性低，以及由于金属氧化物生成迅速钝化而导致的耐久性差（续航里程缩短）镍电极表面镍氧化物的存在大大减缓了氢氧化反应。氮掺杂碳涂层起到了保护层的作用，增强了HOR动力学，使反应速度更快，效率更高。石墨烯涂层在镍电极上的存在阻止了镍氧化物的形成，大大提高了电极的寿命，这种新型阳极的使用将大大降低价格，使碱性燃料电池在更广泛的领域得到应用。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/943a8a54-8963-462d-bbe7-fdeed04cfd70.jpg)图片来源：民视新闻
 
-信息来源：
+今曝光一段大量俄军被俘虏的影片，只见数十位俄罗斯士兵用双手抱着头趴在地上，被乌兵团团包围，但乌克兰士兵仅叫俄兵不要动，并未做出伤害他们的举动。
 
-[氢燃料电池迎重大突破！新型碳涂层镍阳极有望取代贵金属 成本大降](https://news.mydrivers.com/1/822/822534.htm)
+因此引来不少网友留言「可怜，趴的像狗」、「谁愿意打仗」、「普京看到自己士兵被俘虏作何感想？」、「看了好难过，别打仗了吧」。不过也有人讽刺「俄军被俘虏，心里应该很开心终于有饭吃了！」。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+简评：可怜的俄罗斯大兵，没有战死沙场就在被俘虏的路上，为独裁的普京卖命心虚了吗？乌克兰善待俘虏，抓紧的弃恶从善投降吧，不要再作恶了！止战！和平！
 
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022327W0041](https://www.ftvnews.com.tw/news/detail/2022327W0041)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

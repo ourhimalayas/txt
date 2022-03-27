@@ -2,30 +2,36 @@
 ---
 
 
-## 大量俄军被乌兵俘虏画面曝！网嘲：他们终于有饭吃了！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2238939/)
+## 英国制星际导弹已准备好部署在乌克兰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2239070/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-俄乌交战已来到第31天，双方战事仍胶着，乌克兰总统泽伦斯基昨日再次呼吁西方国家加强对乌克兰的军援，「乌克兰只需要北约1%的坦克和飞机」，泽伦斯基强调，乌克兰要求的不多，也不会再要跟多，但等待北约军援已经足足等了31天了。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/943a8a54-8963-462d-bbe7-fdeed04cfd70.jpg)图片来源：民视新闻
+翻译/编辑：小红帽
 
-今曝光一段大量俄军被俘虏的影片，只见数十位俄罗斯士兵用双手抱着头趴在地上，被乌兵团团包围，但乌克兰士兵仅叫俄兵不要动，并未做出伤害他们的举动。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7197356932_5c701e93f6_b.jpg)图片来源：https://eurasiantimes.com
 
-因此引来不少网友留言「可怜，趴的像狗」、「谁愿意打仗」、「普京看到自己士兵被俘虏作何感想？」、「看了好难过，别打仗了吧」。不过也有人讽刺「俄军被俘虏，心里应该很开心终于有饭吃了！」。
 
-简评：可怜的俄罗斯大兵，没有战死沙场就在被俘虏的路上，为独裁的普京卖命心虚了吗？乌克兰善待俘虏，抓紧的弃恶从善投降吧，不要再作恶了！止战！和平！
+根据Mail Online3月26日报道，本·华莱士（Ben Wallace）说，英国制造的星际（Starstreak）导弹已准备好在乌克兰部署，很快就会即击落普京的喷气式飞机。
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022327W0041](https://www.ftvnews.com.tw/news/detail/2022327W0041)
+乌克兰将首次在冲突中部署英国制造的防空导弹，这可能会使弗拉基米尔·普京（Vladimir Putin）因灾难性入侵而受到进一步羞辱。
 
-撰稿/发布：一叶知秋
+国防部长本·华莱士周日告诉《每日邮报》，星际系统–一种肩扛式导弹，以超过音速三倍的速度飞行，可以击落低空飞行的敌方喷气式飞机，已经准备好立即投入使用。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+消息传出之际，乌克兰总统泽连斯基（Volodymyr Zelensky）声称普京正在缩减入侵规模，因为他受到“强有力的打击”，并失去了超过16,000名士兵。
+
+华莱士先生说，第一批乌克兰军队已经接受过训练，现在正与星际系统一起部署。英国“比其他任何人都做得更多”来帮助这个饱受战争蹂躏的国家。
+
+新闻来源：[British-made Starstreak missiles are ready to be deployed in Ukraine to take down Putin’s jets imminently, says Ben Wallace](https://www.dailymail.co.uk/news/article-10655657/British-Starstreak-missiles-ready-deployed-Ukraine.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
