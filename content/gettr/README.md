@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 12:09 PM (UTC)`
+
+
+![img](https://media.gettr.com/group37/origin/2022/03/27/11/41fe9a7a-f3ed-7573-ba9c-b7bd2f931577/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/27/2022 10:02 AM (UTC)`
 
 Winston (GTV UK Live Host): What more can we do to convince these Chinese people trapped in the middle of the war that the only way out for them is through the NFSC?<br/><br/>Mr. Steve Bannon: The rescue operation is a heroic effort and reinforces what Miles talks about "New China" and the "New Chinese", and it's obviously to get Chinese citizens and nationals out safely of the war zone in Ukraine.<br/>The CCP is going to smear that because they never want to show the dignity and the nobleness of LaoBaiXing because they're not doing it. The CCP is after you means you're doing great works.<br/><br/>Winston：我们还能做些什么来说服这些被困在战争中的中国人相信他们唯一的出路是通过新中国联邦？<br/><br/>Bannon：这次救援行动是一个英勇的壮举，它真的印证了郭先生所描述的“新中国”和“新中国人”，他们的投入程度都是为了让中国公民和国民安全地离开乌克兰的战区。中共永远不想向公众展示老百性的尊严和高尚，因为他们自己无法做到。中共对你们穷追不舍时，说明你们的工作做得格外出色！
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️8⃣️：GF 限定款鸵鸟皮背心 (单价: $8,500.00)<br/>奖品数量：8<br/>获奖名单如图<br/>中奖者来自(原) 多伦多枫叶农场，纽约香草山农场，温哥华扬帆农场，东京银河系农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️8⃣️: GFASHION Exotic Skin Vest- Ostrich Leather(Unit Value: $8,500.00)<br/>Number of Prizes: 8<br/>Winner’s List are shown in the screenshot<br/>The winners are from the Himalaya Toronto Maple Leaf, Himalaya New York Mountains of Spices Farm, Himalaya Vancouver Sailing Farm, Himalaya Japan Galaxy!<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group13/getter/2022/03/26/18/255cf92d-ad79-65aa-77c4-6d71f7752050/635a09df5523e42152a5a57fabd6280d.jpg)
-
----
-
-`@miles 3/26/2022 6:13 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️7⃣️：奔驰E Class (单价: $54,950.00)<br/>奖品数量：1<br/>获奖者：<br/>YH64884<br/>获奖者来自日本银河系农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️7⃣️： Mercedes E Class Sedan (Unit Value: $54,950.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>YH64884<br/>The winner is from the Himalaya Japan Galaxy!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group21/getter/2022/03/26/18/a9c1f3c6-a4cb-3f94-9261-0390a47117cd/2e4b9d0a4b53db0aee3faf35f38c8b32.jpg)
 
 ---
 

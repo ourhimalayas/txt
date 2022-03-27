@@ -2,30 +2,26 @@
 ---
 
 
-## 乌克兰击毙第七位俄高级将领 俄哑弹率高达六成
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239470/)
+## 拜登将乌克兰人民的英勇抵抗比作“六四”事件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239499/)
 
-撰稿：华盛顿DC农场-自由信仰；纽约香草山农场-文鹰
+撰稿：日本东京方舟农场—Miyali7768(文玉）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
-3 月 25 日，乌克兰媒体报道，在赫尔松附近的乔尔诺巴耶夫卡，乌克兰军方击毙了俄军第49集团军司令雅科夫·列赞采夫中将。乌克兰总统办公室主任顾问阿列斯托维奇证实了这个消息。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3202.png)图片来自：https://i0.wp.com/groundreport.in
-根据乌克兰的报道，此前已经有六名俄军将领被乌克兰军方击毙。在美国和北约国家的援助下，先进的高科技武器，高效的情报能力，以及人工智能AI技术的应用，进入乌克兰战场的俄罗斯高级将领几乎轻易就被精准定位，继而斩首。列赞采夫是第七名在乌克兰被击毙的俄军高级将领。
+据外媒3月25日报道，美国总统拜登在结束北约峰会和G7峰会后飞往波兰与乌克兰边境，当天抵达波兰城市热舒夫，访问了驻扎在波乌边境的美国陆军第82空降师，与官兵一起吃披萨、自拍，并听取了乌克兰人道援助简报。
 
-另一方面，三名美国情报官员透露，美国评估俄罗斯攻击乌克兰的精确制导导弹，有高达60%的失败率。乌克兰社交媒体也证实，他们发现未引爆俄军巡航导弹的比例非常高。俄罗斯在高科技领域的落后，与乌克兰的顽强抵抗，导致普京一周拿下乌克兰的闪电战计划落空，陷入了乌克兰的边境胶着战的泥坑。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3203.png)图片来自：https://cloudfront-us-east-1.images.arcpublishing.com
 
-参考链接：
+拜登赞赏乌克兰在对抗俄军入侵中展现出的风骨，提及一名30岁女性手持步枪站在坦克前的行为，称这个画面犹如1989年在北京天安门广场发生的“8964”反抗独裁、争取民主自由事件，并强调，“我的意思是，这就是天安门广场”。此外，他还重申普京是一名“战争犯”。
 
-[Ще один генерал: ЗСУ знищили командувача 49-ї армії РФ – радник Єрмака](https://www.pravda.com.ua/news/2022/03/25/7334482/)
+俄乌战争发生后，联合国估计目前约有200万乌克兰难民涌入波兰。
 
-[A 60% Dud Rate for Precision-Guided Munitions Explains a Lot of Russia’s Problems in Ukraine](https://redstate.com/streiff/2022/03/24/a-60-dud-rate-for-precision-guided-munitions-explains-a-lot-of-russias-problems-in-ukraine-n540644)
+美国为了应对俄军入侵乌克兰，在欧洲加派了2万美军驻守，使欧洲的美军总数达到了10万人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1.png)
+参考链接：[烏克蘭女子擋在俄國坦克前 拜登比擬為「天安門事件」](https://news.ltn.com.tw/news/world/breakingnews/3872304)
 
-编辑：Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-2.png)
 
-总编：飞虹
-
-审核：木木
+编辑/总编/审核: 飞虹
 
 校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
