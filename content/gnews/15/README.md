@@ -2,39 +2,32 @@
 ---
 
 
-## 有声|香港疫情失控 墙内粮荒在即
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238044/)
+## 解冻部长级交流前，澳总理拒绝会晤中共国新任大使
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2238256/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日，郭文贵先生在大直播中透露，中共病毒已经在香港完全失控，与此同时，由于疫情、战争等所带来的饥荒正在逼近中共国。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.27.58-PM.png)
-郭先生解释道，某知情战友早先爆料称，港共政府正在极力隐瞒香港当地因中共病毒疫情死亡的人数。目前，香港当局每日仅通报真实死亡数据的20%，即一千多例死亡患者中仅有约两百人被公布。至于中共国内，仅深圳一个区一天就有高达一千七百例中共病毒死亡患者，而该病毒在墙内已经完全失控，且其对中国人的伤害程度将超出所有人的想象。
+![莫里森将就增强澳洲国防发表演讲10年划拨1850亿美元](https://s.rfi.fr/media/display/ad849350-96c1-11ea-85b1-005056bff430/1589515135122_GBV2OJ8O2.1-2.jpg)澳大利亚总理莫里森（资料图）
+据美国之音3月27日报道，澳大利亚总理斯考特∙莫里森表示，在北京解冻两国部长级交流之前，他不适合会晤中共国新任驻澳大利亚大使肖千，并对中共国加强与太平洋岛国所罗门群岛安全关系表示关切。
 
-郭先生还补充道，中共近期也收紧了对相关人员的监控：许家印必须全天佩戴中共的监控器和电子脚镣，为此，他不得不违心称赞习近平和中共经济。
+中共国与澳大利亚的关系近年来日益恶化。北京新任驻澳大利亚大使肖千今年1月底上任后，态度友善许多。肖千此前会晤了澳大利亚外长马里斯∙佩恩，但是莫里森拒绝与肖千会晤，并表示，除非两国首先解冻部长级交流。
 
-然而，郭先生也提到，俄乌战争开启了真正的潘多拉盒子：出于对大饥荒的恐惧，近日，全球各国都在抢购粮食。但郭先生预警称，中共国必将很快面临粮荒的困境，人吃人的惨剧或将随之到来。
+太平洋岛国所罗门群岛将与中共国加强安全合作伙伴关系。莫里森表示，太平洋国家一直作为一个大家庭集体出现，澳大利亚是其中一员，新西兰也是。澳大利亚是所罗门群岛单一最大的发展伙伴。莫里森和反对党工党领袖阿尔巴尼斯都对中共国可能将军事安全之手伸到澳大利亚的后院表示关切。
+
+因为澳大利亚对中共国在香港问题和病毒事件的质疑，导致中澳关系破裂，中共国对澳洲采取一系列报复措施。中共的无赖嘴脸在世界上臭名昭著，面对质疑不敢接受调查，一言不合就翻脸。但事实终究是掩盖不住的，病毒溯源一定会进行下去，香港也会在未来劫后重生，永远灭亡的是中共。
+
+新闻参考链接：[https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html](https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-文字版原文：[香港疫情失控 墙内粮荒在即](https://gnews.org/zh-hans/2235349/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

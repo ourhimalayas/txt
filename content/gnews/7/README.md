@@ -2,32 +2,27 @@
 ---
 
 
-## 解冻部长级交流前，澳总理拒绝会晤中共国新任大使
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2238256/)
+## 乌空军司令部呼吁：不设禁飞区 就提供防空武器
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2238321/)
 
-![莫里森将就增强澳洲国防发表演讲10年划拨1850亿美元](https://s.rfi.fr/media/display/ad849350-96c1-11ea-85b1-005056bff430/1589515135122_GBV2OJ8O2.1-2.jpg)澳大利亚总理莫里森（资料图）
-据美国之音3月27日报道，澳大利亚总理斯考特∙莫里森表示，在北京解冻两国部长级交流之前，他不适合会晤中共国新任驻澳大利亚大使肖千，并对中共国加强与太平洋岛国所罗门群岛安全关系表示关切。
+**撰稿：日本东京方舟农场 北极**
 
-中共国与澳大利亚的关系近年来日益恶化。北京新任驻澳大利亚大使肖千今年1月底上任后，态度友善许多。肖千此前会晤了澳大利亚外长马里斯∙佩恩，但是莫里森拒绝与肖千会晤，并表示，除非两国首先解冻部长级交流。
+据ukrinform网站3月27日报道，乌克兰空军司令部周日在脸书（Facebook）上向西方国家呼吁，既然不同意在乌克兰设立禁飞区，那就多给我们武器吧。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-30.png)乌克兰地面防空系统截图。（图片来自ukrinform）
+乌克兰空军司令部在脸书上发帖称，俄军连续两天使用空中打击模式，向乌克兰境内城市发射了数十枚巡航和弹道导弹。
 
-太平洋岛国所罗门群岛将与中共国加强安全合作伙伴关系。莫里森表示，太平洋国家一直作为一个大家庭集体出现，澳大利亚是其中一员，新西兰也是。澳大利亚是所罗门群岛单一最大的发展伙伴。莫里森和反对党工党领袖阿尔巴尼斯都对中共国可能将军事安全之手伸到澳大利亚的后院表示关切。
+周日当天，俄军向利沃夫发射了六枚导弹，击中了一个燃料库和一个装甲工厂。“很明显，为什么利沃夫今天会成为普京的目标？这是给予美国拜登总统的政治打击，他就在距离利沃夫导弹飞行10分钟的地方。”乌克兰空军警告说。
 
-因为澳大利亚对中共国在香港问题和病毒事件的质疑，导致中澳关系破裂，中共国对澳洲采取一系列报复措施。中共的无赖嘴脸在世界上臭名昭著，面对质疑不敢接受调查，一言不合就翻脸。但事实终究是掩盖不住的，病毒溯源一定会进行下去，香港也会在未来劫后重生，永远灭亡的是中共。
+北约避免战争进一步升级，不同意在乌克兰设立禁飞区，以色列也拒绝向乌克兰提供“铁穹”防空系统，导致乌克兰军队制空能力明显弱于俄罗斯。
 
-新闻参考链接：[https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html](https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html)
+乌克兰空军司令部呼吁，现在是时候做出决定并将西方制造的先进防空导弹系统以及F-15，F-16或F-18飞机移交给乌克兰，以便乌克兰守军可以在平等的实力下与敌军作战。
 
-编辑：胖丁
+参考链接：
+1.[https://reurl.cc/RjZXGD](https://reurl.cc/RjZXGD)
+2.[https://www.facebook.com/kpszsu/posts/341463411354947](https://www.facebook.com/kpszsu/posts/341463411354947)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：老孙
+校对发布：Linda
 
  
 
