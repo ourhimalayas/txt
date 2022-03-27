@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 8:36 PM (UTC)`
+
+香草山访谈《医学视角》第37期：前线战友ccp病毒感染后的治疗汇报
+![img](https://media.gettr.com/group40/origin/2022/03/27/20/38c139ad-99e9-c69e-d8d4-1c81d2a8b418/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/27/2022 5:59 PM (UTC)`
 
 
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 2022.03.26 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA   LAS OPERACIONES DE RESCATE DEL NEFC Y LA FEDD EN UCRANIA HAN OBTENIDO UNA GRAN REPERCUSIÓN
 ![img](https://media.gettr.com/group44/origin/2022/03/26/23/74123b99-323c-9394-210d-9fe519d2649c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/26/2022 11:04 PM (UTC)`
-
-2022.03.26 NFSC News  CCP Virus Outbreaks Lockdown Measures Cause Secondary Disasters in Shanghai； Fully-Vaccinated Political Figures Infected With the CCP Virus
-![img](https://media.gettr.com/group43/origin/2022/02/19/00/34bf8d77-03d2-b276-dc46-ab0c4794adbb/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
