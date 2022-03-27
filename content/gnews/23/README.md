@@ -2,32 +2,34 @@
 ---
 
 
-## 今日盖特大V推荐 — 吉娜·卡拉诺（Gina Carano）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2237518/)
+## 美国与欧盟警告 俄利用黄金储备逃避经济制裁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237570/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/afhex-pm48i.jpg)
-**盖特链接：** [https://gettr.com/user/ginacarano](https://gettr.com/user/ginacarano)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵、灭共文明
 
-**吉娜·卡拉诺锡自述：**
+《零对冲》3月25日报道，**在周四举行的与乌克兰有关的三次紧急峰会之后，七国集团领导人在本周末同意推出新的措施，寻求打击俄罗斯逃避美国和欧盟领导的金融制裁的能力。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/普京和黄金.jpg)俄罗斯总统普京（图片来源：零对冲）
+据报道，白宫周四的声明，**七国集团和欧盟宣布制裁规避倡议，以防止规避和回填我们前所未有的制裁；继续削弱俄罗斯联邦中央银行部署包括黄金在内的国际储备的能力。**
 
-**instagram.com/ginajcarano**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/zz.jpg)图片来源：网络
-**吉娜·卡拉诺简介：**
+该声明还详细说明，美国及其盟国将 继续共同努力，**削弱俄罗斯部署其国际储备以支撑俄罗斯经济和资助普京战争的能力，**包括明确说明任何涉及**与俄罗斯联邦中央银行有关的黄金交易都在现有制裁范围内。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯黄金.jpg)截至2022年1月31日，俄罗斯央行的黄金储备（图片来源：福布斯）
+报道指出，普京经过多年的储备积累，目前，**俄罗斯**在拥有最大黄金储备的国家中排名第五，**估计约有2300吨黄金储备。**
 
-吉娜·卡拉诺全名吉娜·乔伊·卡拉诺（Gina Joy Carano，生于1982年4月16日）是美国女演员、电视名人、健身模特和前综合格斗选手。
+周四，俄罗斯国会能源委员会主席帕维尔-扎瓦尼在的新闻发布会上表示，**俄罗斯现在对接受不同货币的购买出口物品**，首先是天然气，这取决于买方的首选**支付方式，还有黄金等 “硬通货”。**但同时强调，**对不友好国家要求用本国货币卢布来支付购买天然气。**
 
-从2006年到2009年，吉娜·卡拉诺参加了精英极限战斗（EliteXC）和综合格斗（Strikeforce）比赛，并创造了 7胜1负的战绩，被称为“女子综合格斗的面孔”，尽管卡拉诺拒绝了这个称号。她和克里斯蒂安·贾斯蒂诺（Cris Cyborg）是第一批在2009年综合格斗（Strikeforce）比赛中登上大型综合格斗比赛的女性。卡拉诺在职业综合格斗第一次输给钢骨后退出了格斗赛场。
+周五，**俄罗斯银行宣布计划开始以固定价格从俄罗斯银行购买黄金。**
 
-从擂台过渡到银幕后，2011年吉娜·卡拉诺首次担任动作片《乱线》的主角；2013年出演了《速度与激情6》；2016年《死侍》等。卡拉诺还在2019年至2020年的Disney+（电视网）太空西部系列《曼达洛人》的前两季中饰演卡拉沙丘。
+新闻来源链接：
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[https://www.zerohedge.com/markets/us-g7-allies-go-after-russias-ability-sell-gold-sanctions-evasion-lifeline](https://www.zerohedge.com/markets/us-g7-allies-go-after-russias-ability-sell-gold-sanctions-evasion-lifeline)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

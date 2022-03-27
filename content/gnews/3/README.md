@@ -2,38 +2,35 @@
 ---
 
 
-## 有声|波兰驱逐45名冒充外交官俄罗斯间谍俄扬言报复
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238006/)
+## 乔·拜登说弗拉基米尔·普京“不能在继续掌权”
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2238147/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据中央社23日报道，波兰内政部长卡明斯基今天宣布，波国“驱逐了45名冒充外交人员的俄罗斯间谍”。俄方已表明其外交官若遭驱逐，将进行报复。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-2022-5.jpg)图片来源: 网络
-国内安全局发言人札林（Stanislaw Zaryn）称：“国内安全局已制订了一份45人名单，这些人以外交活动为掩护，在波兰工作。”他在推特上说45名人员名单已交给外交部， “ABW要求将他们驱逐出波兰领土。”这位发言人在推文补充说犯嫌的活动对波兰内部和外部安全皆构成威胁。 卡明斯基（Mariusz Kaminski）也在推特上发文称：”我们正在拆除我们国内的俄罗斯特工网路。”波兰反间谍机构“国内安全局”（ABW）表示，已确认45名俄罗斯外交人员涉嫌担任间谍，要求波兰外交部将他们驱逐出境。”
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-314.jpg)图片来自网络
+《每日电讯报》近日报道，美国总统乔·拜登在华沙向民众发表激动人心的演讲时警告说，弗拉基米尔·普京“不能继续掌权”。
 
-俄罗斯新闻社（RIA）援引俄国外交部的话报导，如果俄罗斯外交人员遭波兰驱逐出境，俄方将进行报复。
+拜登在访问波兰首都时表示，俄罗斯总统是“一心想重建帝国的独裁者”，但他“永远不会抹杀人民对自由的热爱”。
 
+他说普京的日子应该屈指可数，并补充说：“看在上帝的份上，这个人不能继续掌权。”
 
+然而，白宫在拜登发表讲话后迅速进行了干预，称他并不呼吁俄罗斯改变政权。
 
-文字版原文：[波兰驱逐45名冒充外交官俄罗斯间谍俄扬言报复](https://gnews.org/zh-hans/2235646/)
+在拜登先生访问期间，距离波兰边境仅 40 英里的乌克兰城市利沃夫发生了多起被认为是由导弹引起的强烈爆炸。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+拜登表示，一些老一辈人对二战的记忆仍然记忆犹新，而普京入侵乌克兰可能会带来“数十年的战争”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+这位美国总统表示，欧洲必须为“未来的长期战斗”做好准备，因为冲突可能需要几个月的时间才能解决。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+这次拜登总统讲话意义重大，和当年里根总统在1987年6月12日在柏林墙前的 “Tear down this wall!”（推倒这堵墙）意义等同。普京掌权多一日，国际制裁就多一天。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+参考链接：
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[https://www.telegraph.co.uk/world-news/2022/03/26/ukraine-news-live-russia-war-latest-putin-weapons-zelensky/](https://www.telegraph.co.uk/world-news/2022/03/26/ukraine-news-live-russia-war-latest-putin-weapons-zelensky/)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+*编辑：金生水*
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

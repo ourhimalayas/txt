@@ -2,28 +2,40 @@
 ---
 
 
-## 乌西大城利维夫遭袭击 燃料库被毁酿5伤
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237889/)
+## 有声|香港疫情失控 墙内粮荒在即
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2238044/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-乌克兰西部城市利维夫（Lviv）26日遭到4枚火箭弹袭击，其中两枚击中一个燃料库，导致5人受伤。《路透》报导指出，这是自俄罗斯入侵以来对利维夫最重大的攻击。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，郭文贵先生在大直播中透露，中共病毒已经在香港完全失控，与此同时，由于疫情、战争等所带来的饥荒正在逼近中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.27.58-PM.png)
+郭先生解释道，某知情战友早先爆料称，港共政府正在极力隐瞒香港当地因中共病毒疫情死亡的人数。目前，香港当局每日仅通报真实死亡数据的20%，即一千多例死亡患者中仅有约两百人被公布。至于中共国内，仅深圳一个区一天就有高达一千七百例中共病毒死亡患者，而该病毒在墙内已经完全失控，且其对中国人的伤害程度将超出所有人的想象。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxOd1ul.jpg)图片来源：路透
+郭先生还补充道，中共近期也收紧了对相关人员的监控：许家印必须全天佩戴中共的监控器和电子脚镣，为此，他不得不违心称赞习近平和中共经济。
 
-根据《路透》报导，利维夫州州长柯齐斯基表示，两枚火箭弹击中一个燃料库后导致5人受伤，另外两枚则是击中了一家兵工厂。由于利维夫距离波兰边境仅有60公里，利维夫市长萨多维在记者会中指出，俄军今日的攻击行动是在向人在波兰的美国总统拜登「致意」，而且俄军是从2014年被并吞的克里米亚塞瓦斯托波尔（Sevastopol）发射的。
+然而，郭先生也提到，俄乌战争开启了真正的潘多拉盒子：出于对大饥荒的恐惧，近日，全球各国都在抢购粮食。但郭先生预警称，中共国必将很快面临粮荒的困境，人吃人的惨剧或将随之到来。
 
-简评：死猪不怕开水烫，将死之人甚癫狂！俄军从克里米亚发射火箭弹向来波兰的拜登“致意”，来表明普京誓吞乌克兰的野心。明明是老虎在玩狗子，狗子却逞强的挑逗老虎，老虎动口之日就是狗子呜呼之时，等拜登总统玩腻了，普京离成为丧家犬不远了。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3873049](https://news.ltn.com.tw/news/world/breakingnews/3873049)
 
-撰稿/发布：一叶知秋
+文字版原文：[香港疫情失控 墙内粮荒在即](https://gnews.org/zh-hans/2235349/)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,18 @@
 ---
 
 
-## 樱花头条┃蔡英文和安倍视讯 日华恳大会通过挺台决议文
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234672/)
+## 樱花头条┃美国对中共官员采取限制性签证发放
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
 
 撰稿：东京樱花团/樱花传媒
 ![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-蔡英文与安倍视讯，日华恳大会通过挺台决议文。
+美国国务卿布林肯最新电视讲话：
 
-信息来源：[https://gettr.com/post/p11fmtv08fb](https://gettr.com/post/p11fmtv08fb)
+将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
 
-*编辑：东京樱花团/asket 、珍珍（素材提供）
+信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
+
+*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
