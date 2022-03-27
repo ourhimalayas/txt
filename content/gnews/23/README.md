@@ -2,42 +2,43 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237291/)
+## 2022/3/27 银河快讯：三家日本巨型银行暂停与俄罗斯最大银行的美元交易；一月至三月日本GDP预测年化-0.24％
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2237413/)
 
-整理：枳实
-美工：精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d7f26b473ca844cb9d5aaecce8e64e46_1648261752_l.jpeg)
+[图片来源](https://article.auone.jp/detail/1/3/6/307_6_r_20220326_1648252622499150)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N25GZVUAF45LLEH0VM.png)图片：雅典娜农场设计组 精灵蓝
+**1．三家日本巨型银行暂停与俄罗斯最大银行的美元交易**
 
+[据读卖新闻报道，三菱UFJ、三井住友和瑞穗三家银行从3月26日起暂停与俄罗斯最大银行Zberbank的所有美元交易。这与美国政府将Zberbank加入其制裁的步伐是一致的。与俄罗斯的贸易，包括一直以美元结算的能源，现在将需要其他的汇款方式。](https://news.yahoo.co.jp/articles/4a05a5e1b21d6ecb60c43f8aa69434cf33d4dac0)
 
-雅典娜疫情更新（2022年 3月26日）
+**2．岸田首相和美国驻日本大使向广岛原子弹爆炸受害者纪念碑献花致敬**
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/MNAS9G@I11P54UA1ZTGN.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-329.png)
-[2022年3月26日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月26日改进.pdf)
+[据NHK报道，3月26日下午，岸田首相与美国驻日本大使伊曼纽尔大使参观了广岛和平公园，参观了原子弹爆炸博物馆，随后两人一起向原子弹受害者纪念碑献花，并为受害者祈祷。岸田首相与伊曼纽尔大使交换了意见，他说：“俄罗斯使用核武器的可能性确实令人担忧，但使用大规模毁灭性武器决不能发生。”对此，伊曼纽尔大使说：“俄罗斯对非法战争的反应是全球性的，而不仅仅是美国和欧洲。”](https://www3.nhk.or.jp/news/html/20220326/k10013553131000.html)
 
-数据来源：
+**3． 自民党秘书长：考虑额外的中长期经济措施**
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[NHK 3月26日报道，关于针对乌克兰局势后价格上涨的经济措施，自民党秘书长莫吉强调，这些措施旨在最大限度地减少对日本经济的影响，并表示除了立即采取紧急措施外，预计还将考虑采取中期和长期措施。鉴于乌克兰局势导致物价上涨，岸田首相将于 29 日指示在下月底之前制定进一步的经济措施。](https://www3.nhk.or.jp/news/html/20220326/k10013553471000.html)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+**4．一月至三月日本GDP预测年化-0.24％**
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[据NHK 3月26日报道，私营部门的预测已编制完成，从1月到本月的GDP（国内生产总值）的实际增长率按年化计算将是-0.24%。分析称，这是由于欧米克荣毒株的疫情传播导致消费支出下降。这比上个月的预测平均值低了两个百分点，即正1.70%，是两个季度以来的首次负增长。从下个月开始的季度，由于取消了防止疾病蔓延措施后消费的恢复，预计会有5.05%的高年化增长率，但许多人对包括与乌克兰局势有关的油价上涨感到担忧。](https://www3.nhk.or.jp/news/html/20220326/k10013552751000.html)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+**5．数字化支付工资问题再次开始讨论**
 
-[covidlive.com.au](https://covidlive.com.au/)
+[时事通信社3月25日报道，劳动政策委员会的一个分部会恢复了对解禁“数字支付工资”的讨论。日本政府和企业方对解除禁令持积极态度，但无法预见具体时间表。工人委员会成员的回应，表达了对安全性和确定性的疑问。](https://news.yahoo.co.jp/articles/6ea236975b9750fc345ff9ffcb9a5d7721b6f495)
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+**6．日本各地银行系统故障，ATM无法使用**
 
-发布：tianzhihuan
+[据朝日新闻报道，3月26日，日本全国各地的区域银行出现了系统故障，包括自动取款机中断等。这种情况似乎从中午时分开始在几家银行发生，包括足利银行（枥木）、北九州银行（福冈）、十六银行（岐阜）、常阳银行（茨城）、南都银行（奈良）、百十四银行（香川）、山口银行和百济银行（广岛）。据说都是区域性银行，使用由IBM运营的联合系统。金融服务局了解情况，但还没有确定恢复的时间表。](https://news.yahoo.co.jp/articles/648f400302e93a9763196f195d928cd43657f66b)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**【日本银河系农场-阿尔法星球】**
+
+素材：文德
+
+作者：帆間知津
+
+校对：windfish
 
  
 

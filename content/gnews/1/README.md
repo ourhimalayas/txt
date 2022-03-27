@@ -2,8 +2,8 @@
 ---
 
 
-## 20220325文贵大直播：中国房地产市值100万亿美元是GDP的十倍 必将崩塌
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237795/)
+## 20220325文贵大直播：性情的本质就是灵魂和肉体结合的结果，中国人需要找到信仰的钥匙
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237879/)
 
 作者：东京樱花团小视频组
 
