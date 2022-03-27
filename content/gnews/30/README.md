@@ -2,46 +2,58 @@
 ---
 
 
-## 用脚投票——著名基金经理清仓A股和港股
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2236786/)
+## 堪萨斯州参议院投票允许医生为新冠开羟氯喹和伊维菌素
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236818/)
 
-编辑：文宝
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3184-edited.png)图片来源：childrenshealthdefense.org
 
-3月25日，私募大佬、深圳东方港湾投资管理股份有限公司董事长但斌在微博回应媒体报道“私募大佬但斌疑似空仓 上百只产品净值几乎零波动”。
+堪萨斯州参议院（The Kansas State Senate）周四（24日）投票允许医疗机构开具和配发伊维菌素和羟氯喹（HCQ）等药物，用于中共病毒（COVID-19）的标签外治疗。
 
-但斌：每次重大决定都不容易
+标签外药物法案（[HB2280](http://www.kslegislature.org/li/b2021_22/measures/hb2280/)）以21比16的投票结果通过。它适用于任何美国食品和药物管理局（FDA）批准的非受控物质的药物。
 
-根据媒体报道，但斌旗下上百只产品疑似空仓或轻仓运行。
+堪萨斯州的法案还将要求托儿所和公立学校无条件批准家长为其子女，关于疫苗强制令申请的宗教豁免请求。
 
-回应称，其实每次重大决定都不容易，都要付出相当的“心智”，也要承担相应的后果与结局……东方港湾经过08年与白酒危机之后，在我们卖出原则里面加了一条“遇到系统性风险”也会考虑卖出暂避，18年修订的《时间的玫瑰》里面也有谈及。今年以来乌克兰危机及之后的衍生风险是我们的聚焦点，当然也包括其它一些思考……
-![](https://inews.gtimg.com/newsapp_bt/0/14670648219/1000)
-从2021年2月始至2022年2月，整整一年我们的A股与港股投资做的非常不好，我常常自责也经常反思、思考——投资理念交织社会环境的变化该如何进行投资取舍……
+据《堪萨斯城之星》（The Kansas City Star）[报道](https://www.kansascity.com/news/politics-government/article259715350.html)，该法案现已提交给众议院，但距离推翻民主党州长劳拉·凯利（Laura Kelly）的否决权所需的超级多数票还差6票。
 
-我是一个普通投资人，有幸和中国资本市场共同成长……但一路走来遇到过很多挑战，我希望能克服成长路上的困难，像过往一样，迎来更美好的未来！加油。
+共和党参议员马克·斯蒂芬（Mark Steffen）[告诉](https://www.cjonline.com/story/news/politics/2022/03/24/kansas-senate-passes-ivermectin-hydroxychloroquine-off-label-covid-treatment-pharmacists-bill/7150014001/)《托皮卡资本日报》（Topeka Capital-Journal）：“我完全相信，该法案在参议院的通过将获得全国性的关注，并有助于让中共病毒感染者恢复健康。”
 
-但斌是知名大V，也是知名私募东方港湾投资管理公司的创始人、掌门人、基金经理，东方港湾投资管理公司属于管理规模较大的头部私募，中基协官网和三方平台数据最新显示规模为100亿元以上。
-![](https://inews.gtimg.com/newsapp_bt/0/14667401252/1000)
-私募排排网数据显示，自3月以来，但斌旗下产品均已更新了3次净值，但几乎所有产品的净值波动都趋近于0。而其他更新净值的私募产品，受3月市场大跌影响，均出现大幅回撤。
-![](https://inews.gtimg.com/newsapp_bt/0/14667401361/1000)
-据此推测，可能早在2月底，但斌就已经大幅降低仓位，而上一次但斌疑似空仓还是2018年下半年。不过，当时短短半年后，市场就在极度悲观下启动了长达2年多的牛市。但斌也大幅提高了产品仓位，净值不断攀升。
+许多医生和药剂师拒绝将伊维菌素作为中共病毒的治疗方法——尽管研究表明它是[有效的](https://childrenshealthdefense.org/defender/ivermectin-effective-treatment-covid-research/)——因为这种治疗方案没有被美国食品和药物管理局（FDA）批准。
 
-手握270亿“子弹”！
+FDA [指出](https://www.fda.gov/animal-veterinary/product-safety-information/faq-covid-19-and-ivermectin-intended-animals)：应该避免使用伊维菌素来预防或治疗 COVID-19，因为伊维菌素对中共病毒的疗效和药品安全性尚未确定…然而，“前线COVID-19重症监护联盟”（Front Line COVID-19 Critical Care Alliance）的医生称伊维菌素是“医学史上最安全的、低成本的、广泛使用的药物之一”。
 
-3月23日，在东方港湾成立18周年的纪念日上，但斌首度披露了公司资金规模，称目前东方港湾管理规模接近300亿。
+麻醉师斯蒂芬正在接受堪萨斯州治疗艺术委员会的调查，因为他为 COVID-19 感染者开出了伊维菌素的处方。他[说](https://kansasreflector.com/2022/03/24/senate-narrowly-adopts-bill-affirming-access-to-off-label-drugs-for-covid-19/)，他相信成千上万的堪萨斯人和数十万美国人已经不必因为有效的治疗方案被“禁止宣传”，而不得不死亡。
 
-若按10%计算，即但斌目前持仓市值约30亿，手中仍有270亿元的子弹，接下来何时加仓也将备受市场关注。
+斯蒂芬说：“研究压倒性地表明，如果早期对中共病毒使用伊维菌素进行治疗，将有高达85%的机会减少住院率和死亡率。”
 
-对于但斌的“空仓”，不少私募告诉券商中国记者，一方面其产品躲过了近期市场的大跌，避免了因产品回撤过大而被动减仓的痛苦，对客户是一种负责的态度；但另一方面，从中长期收益角度看，目前是底部区域，空仓风险比高仓位大。
+羟氯喹同样被大多数医疗机构所回避，仍然是一种未经批准的治疗中共病毒的药物，尽管疾病控制和预防中心（CDC）早在2005年就知道这种[药物](https://pubmed.ncbi.nlm.nih.gov/16115318/)对 SARS 冠状病毒有效。
 
-也有投资者表示，但斌都清仓了，牛市不远了。2018年下半年，但斌曾卖出茅台等股票，空仓近半年，似乎就是历史大底，还好他后来买回来了。
+HB2280 还包括要求药剂师填写治疗中共病毒的药物处方——也就是，禁止他们仅以某种药物已被用于治疗中共病毒为由，而拒绝填写（伊维菌素或羟氯喹）处方。
 
-本周，股票市场继续低位震荡，一批私募产品或将触及预警线和清盘线，投资压力加大。私募排排网数据显示，截至3月25日，累计净值低于0.85的证券私募产品共有5842只，累计净值低于0.8元的产品有4162只，累计净值低于0.75元的产品有2949只。
+民主党立法者辛蒂·霍斯克（Cindy Holscher）[认为](https://www.cjonline.com/story/news/politics/2022/03/24/kansas-senate-passes-ivermectin-hydroxychloroquine-off-label-covid-treatment-pharmacists-bill/7150014001/)这很麻烦：“有了这项规定，医生可以在中共病毒的幌子下开出堕胎药物的处方，而药剂师必须填写它。”
 
-原文链接：[https://new.qq.com/omn/20220326/20220326A0AP2100.html](https://new.qq.com/omn/20220326/20220326A0AP2100.html)
+堪萨斯州是通过立法解决中共病毒标签外治疗的最新一个州。事实上，超过[28个州](https://track.govhawk.com/reports/2lWe3/public)已经提出或通过了限制医疗委员会权力的立法，明确允许中共病毒的标签外治疗，或两者兼而有之，这是来自州医疗委员会联合会（Federation of State Medical Boards）的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-25.png)DISCORD
+正如《捍卫者》本月早些时候报道的那样，新罕布什尔州众议院（New Hampshire House）于3月16日投票允许伊维菌素作为中共病毒的治疗药物，在新罕布什尔州销售。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-24.png)GETTR
+新罕布什尔州 [HB1022](https://track.govhawk.com/public/bills/1546861) 法案允许药剂师通过长期订单配发伊维菌素，这实际上是让其成为非处方药；该法案仍需得到新罕布什尔州参议院的批准，它还防止该州的医疗许可委员会对开具该药物的医生，进行处罚。
+
+**新闻来源：**[childrenshealthdefense.org] [Kansas Senate Votes to Allow Doctors to Prescribe Ivermectin, HCQ for COVID](https://childrenshealthdefense.org/defender/kansas-senate-votes-allow-doctors-prescribe-ivermectin-hcq-covid/) | 发布时间：2022年03月25日
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
 
  
 

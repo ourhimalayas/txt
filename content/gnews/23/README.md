@@ -2,37 +2,24 @@
 ---
 
 
-## 俄军队控制了切尔诺贝利工业区已造成3人死亡
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237038/)
+## 樱花时政┃塔利班禁止无男性监护人的女性乘坐航班
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237143/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-翻译与编辑：冰糖葫芦喵、灭共文明
+撰稿：东京樱花团/加一颗稻草
 
-《路透社》乌克兰利沃夫3月26日报道，**乌克兰斯拉维季奇市长尤里·富米切夫称，俄罗斯军队已经控制了乌克兰的斯拉维季奇市，并造成3人死亡。**该市位于乌克兰北部第聂伯河左岸，距离首都基辅200公里，由基辅负责管辖。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/切尔诺贝利工业区-e1648329054393.jpg)切尔诺贝利（图片来源：网络）
-报道称，**斯拉维季奇市坐落在切尔诺贝利周围的一个安全禁区外。**1986年，切尔诺贝利发生了世界上最严重的核灾难。
+巴基斯坦伊斯兰堡，美联社，两名阿富汗航空公司官员周六表示，阿富汗塔利班统治者拒绝让数十名女性登机，其中包括一些海外航班，因为她们在没有男性监护人的情况下旅行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-18.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/16297c8fff9845029618866cdbb6cbb0/3000.jpeg)
+由于害怕塔利班的影响而不愿透露姓名的官员说，数十名周五抵达喀布尔国际机场登上国内和国际航班的女性被告知，如果没有男性监护人，她们不能这样做。 据其中一名官员称，其中一些女性是返回海外家园的双重国籍，其中一些来自加拿大。官员们说，女性被拒绝登上Kam Air和国有的阿丽亚娜航空公司飞往伊斯兰堡、迪拜和土耳其的航班。
 
-市长尤里·富米切夫在Facebook上的一篇帖子称，**从今天起这个城市就被俄罗斯占领了，但我们仍鉴定的保卫我们的城市。**
+一位官员说，该命令来自塔利班领导层。这位官员说，到周六，一些独自旅行的女性获准登上阿丽亚娜航空公司飞往西部赫拉特省的航班。然而，当他们获得许可时，他们已经错过了航班，他说。
 
-报道称，**国际原子能机构**(International Atomic Energy Agency)在一份声明中表示，**正在密切关注事态发展，并对工作人员轮换进出核电站的能力表示担忧。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/国际原子能机构.jpg)国际原子能机构（图片来源：dreamstime)
-乌克兰中将帕夫柳克（Alexander Pavlyuk）在发表讲话时，没有描述这座城市是如何被占领的，但他说，**一些居民展开一面巨大的乌克兰国旗，高呼“光荣属于乌克兰”的口号，以示抗议。**
+消息来源：[Officials: Taliban blocked unaccompanied women from flights](https://apnews.com/article/afghanistan-travel-business-pakistan-lifestyle-febfbef58116fd063e1a5ef780762e56)
 
-他还表示，**俄罗斯人向空中开枪驱散了市中心的抗议活动，并向人群投掷了眩晕手榴弹。**
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-乌克兰总统顾问奥列克西·阿雷斯托维奇(Oleksiy Arestovych)表示，**该镇已经成为战争的新热点。**
 
-新闻来源链接：
-
-[Russian forces take control of Chernobyl workers’ town, three dead, Interfax Ukraine reports | Reuters](https://www.reuters.com/world/europe/kyiv-region-head-says-russian-forces-have-seized-chernobyl-workers-town-2022-03-26/)
-
-**更多资讯，更多关注**：
-
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

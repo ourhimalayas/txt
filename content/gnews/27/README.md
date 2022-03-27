@@ -2,58 +2,34 @@
 ---
 
 
-## 堪萨斯州参议院投票允许医生为新冠开羟氯喹和伊维菌素
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2236818/)
+## 中共国经济崩塌信号——京东大裁员
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2236872/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3184-edited.png)图片来源：childrenshealthdefense.org
+编辑：文宝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/京东.jpg)
+大厂裁员前赴后继，继阿里、腾讯之后，京东集团加入裁员大军。在多个职场类社交软件上，注册ID带有“京东员工”标识的一大波用户怨声载道。
 
-堪萨斯州参议院（The Kansas State Senate）周四（24日）投票允许医疗机构开具和配发伊维菌素和羟氯喹（HCQ）等药物，用于中共病毒（COVID-19）的标签外治疗。
+据内部高层人士透露，目前裁员确已启动，涉及京东零售、京东国际、京喜等多个业务部门，目前人力资源（简称“HR”）在约谈各个业务部门负责人，并给出明确的裁员比例，要求各负责人尽快“动手”终止与下属员工的劳动合同，2022年3月31日为此轮离职的deadline（最后期限）。
 
-标签外药物法案（[HB2280](http://www.kslegislature.org/li/b2021_22/measures/hb2280/)）以21比16的投票结果通过。它适用于任何美国食品和药物管理局（FDA）批准的非受控物质的药物。
+对于网传的“裁员比例高达50%”的说法，多个业务部门负责人称，不实！比如20个人的部门，裁员人数为4人，比例差不多在20%左右。赔偿比例初步设定为N+1(“N”指的是每工作1年支付1个月工资的经济补偿)。
 
-堪萨斯州的法案还将要求托儿所和公立学校无条件批准家长为其子女，关于疫苗强制令申请的宗教豁免请求。
+另有消息称，京东这波裁员，目前听到最高比列的是75%，来自商提线下广告部门；听到最惨的：被京东房产忽悠买了环京的房子，然后被裁了。多年经验且不愿具名的的京东集团HR人士透露，实际上，京东每年都有优化计划（裁员计划）。只不过今年裁员比例高了些，和大环境有关。
+![](https://inews.gtimg.com/newsapp_bt/0/14666518020/1000)
+被裁员工面临着前所未有的生存压力；裁员时间紧，任务重，全流程参与裁员的一线HR不仅身心备受考验，三观也遭遇冲击。据上述人士称，有经验的HRBP(HRBP是企业派驻到各个业务或事业部的人力资源负责人)在听到裁员风声后，若是Headcount（员工总人数，以下简称“HC”）还未冻结，就会紧急招募一批新人，一旦裁员令下达，先拿新人开刀。
 
-据《堪萨斯城之星》（The Kansas City Star）[报道](https://www.kansascity.com/news/politics-government/article259715350.html)，该法案现已提交给众议院，但距离推翻民主党州长劳拉·凯利（Laura Kelly）的否决权所需的超级多数票还差6票。
+一般而言，公司给出固定的裁员比例，裁够了比例即可，新招聘的员工可以在试用期直接解除劳动关系，相比转正后的正式员工解聘难度大大降低，此外裁新员工还可以保住原有的组织架构。按照“N+1”的赔偿惯例，解聘新人，裁员成本较低。尽管这对新人来说不够公平，但在裁员大潮中，大厂HR老炮惯用此手段来降低劳资纠纷。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/京东大裁员.png)
+疫情和互联网调控政策之下，被外界艳羡的互联网大厂也难成避风港，百度、腾讯、阿里已经或即将祭出裁员刀。隶属于百度移动生态用户体验设计中心（也就是大UE)，专门从事自动驾驶视觉设计的整条业务线被裁撤，手机百度、商业产品等多个部门也大幅裁员；腾讯的重灾区则是PCG（简称“平台与内容事业群”）和云与智慧产业事业群（简称“CSIG”），有服务于腾讯企业发展事业群（简称“CDG”）的猎头公司负责人称，从2022年1月开始，
 
-共和党参议员马克·斯蒂芬（Mark Steffen）[告诉](https://www.cjonline.com/story/news/politics/2022/03/24/kansas-senate-passes-ivermectin-hydroxychloroquine-off-label-covid-treatment-pharmacists-bill/7150014001/)《托皮卡资本日报》（Topeka Capital-Journal）：“我完全相信，该法案在参议院的通过将获得全国性的关注，并有助于让中共病毒感染者恢复健康。”
+腾讯集团的HC开开关关，目前编制在CDG且服务CSIG业务线的HC已经关闭，与云业务相关的各个业务线均在梳理和优化员工。腾讯云内部人士在3月16日确认称，裁员计划已经明确，马上就会启动。
 
-许多医生和药剂师拒绝将伊维菌素作为中共病毒的治疗方法——尽管研究表明它是[有效的](https://childrenshealthdefense.org/defender/ivermectin-effective-treatment-covid-research/)——因为这种治疗方案没有被美国食品和药物管理局（FDA）批准。
+原文链接：[https://new.qq.com/omn/20220325/20220325A02JVM00.html](https://new.qq.com/omn/20220325/20220325A02JVM00.html)
 
-FDA [指出](https://www.fda.gov/animal-veterinary/product-safety-information/faq-covid-19-and-ivermectin-intended-animals)：应该避免使用伊维菌素来预防或治疗 COVID-19，因为伊维菌素对中共病毒的疗效和药品安全性尚未确定…然而，“前线COVID-19重症监护联盟”（Front Line COVID-19 Critical Care Alliance）的医生称伊维菌素是“医学史上最安全的、低成本的、广泛使用的药物之一”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-27.png)DISCORD
 
-麻醉师斯蒂芬正在接受堪萨斯州治疗艺术委员会的调查，因为他为 COVID-19 感染者开出了伊维菌素的处方。他[说](https://kansasreflector.com/2022/03/24/senate-narrowly-adopts-bill-affirming-access-to-off-label-drugs-for-covid-19/)，他相信成千上万的堪萨斯人和数十万美国人已经不必因为有效的治疗方案被“禁止宣传”，而不得不死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-26.png)GETTR
 
-斯蒂芬说：“研究压倒性地表明，如果早期对中共病毒使用伊维菌素进行治疗，将有高达85%的机会减少住院率和死亡率。”
 
-羟氯喹同样被大多数医疗机构所回避，仍然是一种未经批准的治疗中共病毒的药物，尽管疾病控制和预防中心（CDC）早在2005年就知道这种[药物](https://pubmed.ncbi.nlm.nih.gov/16115318/)对 SARS 冠状病毒有效。
-
-HB2280 还包括要求药剂师填写治疗中共病毒的药物处方——也就是，禁止他们仅以某种药物已被用于治疗中共病毒为由，而拒绝填写（伊维菌素或羟氯喹）处方。
-
-民主党立法者辛蒂·霍斯克（Cindy Holscher）[认为](https://www.cjonline.com/story/news/politics/2022/03/24/kansas-senate-passes-ivermectin-hydroxychloroquine-off-label-covid-treatment-pharmacists-bill/7150014001/)这很麻烦：“有了这项规定，医生可以在中共病毒的幌子下开出堕胎药物的处方，而药剂师必须填写它。”
-
-堪萨斯州是通过立法解决中共病毒标签外治疗的最新一个州。事实上，超过[28个州](https://track.govhawk.com/reports/2lWe3/public)已经提出或通过了限制医疗委员会权力的立法，明确允许中共病毒的标签外治疗，或两者兼而有之，这是来自州医疗委员会联合会（Federation of State Medical Boards）的信息。
-
-正如《捍卫者》本月早些时候报道的那样，新罕布什尔州众议院（New Hampshire House）于3月16日投票允许伊维菌素作为中共病毒的治疗药物，在新罕布什尔州销售。
-
-新罕布什尔州 [HB1022](https://track.govhawk.com/public/bills/1546861) 法案允许药剂师通过长期订单配发伊维菌素，这实际上是让其成为非处方药；该法案仍需得到新罕布什尔州参议院的批准，它还防止该州的医疗许可委员会对开具该药物的医生，进行处罚。
-
-**新闻来源：**[childrenshealthdefense.org] [Kansas Senate Votes to Allow Doctors to Prescribe Ivermectin, HCQ for COVID](https://childrenshealthdefense.org/defender/kansas-senate-votes-allow-doctors-prescribe-ivermectin-hcq-covid/) | 发布时间：2022年03月25日
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-16.jpeg)
 
  
 

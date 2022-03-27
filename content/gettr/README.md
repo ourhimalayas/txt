@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 12:30 AM (UTC)`
+
+2022.03.26 晚《新中国联邦新闻》共产党做局榨干中国人民全部血汗钱； 所有的爆料都是为了挽救更多的中国人
+![img](https://media.gettr.com/group17/origin/2022/03/27/00/7dbafde1-fe5c-9312-f3d1-88143cd76bff/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayadcfarm 3/26/2022 10:18 PM (UTC)`
@@ -151,13 +158,6 @@
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品8⃣️：GF黑铑金信仰之星戒指 (单价: $380.00)<br/>奖品数量：200<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 8⃣️: GFASHION Star Ring--Black Rhodium (Unit Value: $380.00) <br/>Number of Prizes: 200<br/>The winners are as following<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group46/getter/2022/03/26/15/2b4e970c-0083-eb17-ced8-c2820346cc5b/d5692c7c615fab137331c4af240291b1.jpg)
-
----
-
-`@miles 3/26/2022 3:22 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品7⃣️：GF年会专属限定版帽子 (单价: $250.00)<br/>奖品数量：550<br/>获奖者如图<br/><br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 7⃣️: GFASHION Limited Edition Hat (Unit Value: $250.00) <br/>Number of Prizes: 550<br/>The winners are as following:<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group27/getter/2022/03/26/15/2a2f0bfd-baf2-7842-9c1d-da27eedddf18/9ff6f860c8aba0ffc5f5ec3cdee9d3d5.jpg)
 
 ---
 

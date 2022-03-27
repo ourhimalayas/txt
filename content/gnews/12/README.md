@@ -2,38 +2,19 @@
 ---
 
 
-## 有声|俄罗斯宣布将驱逐美国外交官
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2237231/)
+## 郭文贵精品视频-中共控制中东能源就是要能源人民币化
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/2237324/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日，美国国务院发言人表示，美国驻莫斯科大使馆收到了一份被列为“不受欢迎的人”的外交官名单。此举被媒体解读为俄罗斯不满美国驱逐俄驻联合国外交官员，而做出的回应。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3078.png)
-华盛顿上个月表示，出于国家安全考虑，将驱逐驻纽约联合国代表团的 12 名俄罗斯外交官，后来又宣布将驱逐另外一名在联合国工作的俄罗斯外交官，并称其为间谍。但俄罗斯否认了上述指控，并提交了这份“不受欢迎”的美外交官名单。
+撰稿：澳喜cindy
+![](https://assets.gnews.org/wp-content/uploads/2022/03/849DF313-4ABE-43E5-855E-93924798F5A6.png)
+最近的中东局势正如郭先生一个星期前预判的那样：中共将用其最擅长的挑拨离间手段，挑起中东各国之间的矛盾，使其产生互相乱战。在各方打得不可开交的时候，中共出来做和事佬，从而骗取各方的信任和感恩，并把祸端甩锅给美国人。从而获得自己最大的利益- 能源的控制权。
 
-美国国务院发言人指出，这是俄罗斯在美俄双边关系中最新做出的徒劳无益的一步，他补充说，现在最重要的是美俄应该保留必要的外交人员，以维持两国政府之间的正常沟通。据悉，美俄双方都没有具体说明有多少人受到影响，或者他们何时必须离境。
+中东各国接受人民币石油化，对美国的美元地位发起挑战，然后再把人民币变成完全中心化的数字人民币，中共就可以任意洗钱。当中共羽翼丰满之时就开始向欧美摊牌。以“世界第一大负责任的党”自居，重组联合国。此时，美国再制裁都不起作用了。那时，中共早已不用美元了。反而中共控制了中东的能源，可以不给欧美油、气。这就是中共正在实施的中东“潘多拉魔盒”的灭掉美国的计划。
 
+习要趁乱控制中东能源，而把中东能源人民币化是其核心宗旨。习不会因为俄罗斯在乌克兰受阻等问题就不打台湾了。打台湾就是要抢夺芯片，打垮美国的技术供应链，及控制欧美的中东天然气供应链。到那时，世界的金融系统市场将崩盘，社会秩序崩盘，供应链都将会出大问题。到时候所有人都会找中国算账。只有新中国联邦人能帮助世界解决最根本的祸根，灭掉中国共产党！
 
-
-文字版原文：[俄罗斯宣布将驱逐美国外交官](https://gnews.org/zh-hans/2234197/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*发布：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
