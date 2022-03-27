@@ -2,8 +2,8 @@
 ---
 
 
-## 20220325文贵大直播：中国房地产市值100万亿美元是GDP的十倍 必将崩塌
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237795/)
+## 20220325文贵大直播：喜币让人真正实现劳动获得的财富不受掠夺
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237815/)
 
 作者：东京樱花团小视频组
 

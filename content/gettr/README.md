@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 2:30 AM (UTC)`
+
+
+![img](https://media.gettr.com/group36/origin/2022/03/27/02/1593a18d-d2bc-374e-de30-896627209477/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/27/2022 1:56 AM (UTC)`
 
 King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s War Room: : We are doing what the Chinese government should have been doing.<br/><br/>班农战斗室采访新中国联邦在乌克兰救援的志愿者——精粮：我们正在做中国政府本应该做的事情
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️1⃣️：GF 限定款蓝色鳄鱼皮夹克（单价：$80,000.00）<br/>奖品数量：1<br/>获奖者：<br/>LM77486<br/>Discord: 海阔天空#9646<br/>获奖者来自洛杉矶盘古农场！<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️1⃣️: GFASHION Exotic Skin Jacket- Crocodile—Blue (Unit Value: $80,000.00)<br/>Number of Prizes: 1<br/>The winner is: <br/>LM77486<br/>Discord: 海阔天空#9646<br/>The winner is from the Himalaya LA Pangu!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group17/getter/2022/03/26/16/b3621172-0ce3-976c-e0ba-bcea949bc52b/d6836f5b4190b4c54ae3465ae46c872d.jpg)
-
----
-
-`@miles 3/26/2022 4:29 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️0⃣️：GF 支持者套装 (单价: $440.00)<br/>奖品数量：100<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️0⃣️: GFASHION Supporter Outfit (Unit Value: $440.00) <br/>Number of Prizes: 100<br/>The winners are as following:<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group29/getter/2022/03/26/16/30b86be3-9d67-4860-ccb9-da12f574e62b/3ab84850a5ace50c7351b8e19b73f5b1.jpg)
 
 ---
 
