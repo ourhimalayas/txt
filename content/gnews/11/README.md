@@ -2,39 +2,36 @@
 ---
 
 
-## 有声|Gclub年会26日举办 奖品丰厚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240666/)
+## 有声|战友们做好准备应对有史以来最黑暗的一年
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240699/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月25日文贵大直播透露，2022年的Gclub年会将在3月26日举办。年会将举办抽奖活动，已在线登记参与抽奖的卡约8000张，奖品金额大约200万美元，数量超过1000个。
-![](https://cdn.discordapp.com/attachments/714848986988544060/931788430185222154/2021-Huracan_EVO_Fluo_Capsule-5.png)
-郭先生介绍，按金额计算，美国的抽奖活动普遍来说中奖率为万分之一，最高的可以达到千分之一。有推友计算得知，Gclub年会的中奖率是这个最高中奖率的5（全部买的是5万卡）到25倍（全部买的是1万卡），而且Gclub会员每年都可以抽奖。
-
-郭先生表示，相比于中共国的福利彩票等把奖品都私下安排好的假的抽奖活动，Gclub年会的抽奖是真实的，有很高的命中率，每个人都可以亲身体验到抽奖的快乐。
-
-分析人士指出，由于Gclub会员能够以折扣价购买GFashion，而随着喜币的流通进入GFashion等全球实体店，G系列正在产生意义重大的联动效应。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
 
+郭文贵先生在2022年3月23日的大直播中谈到，这场俄乌战争的最后主导者绝对不是普京，而是中国的“习太阳”。
 
-文字版原文：[Gclub年会26日举办 奖品丰厚](https://gnews.org/zh-hans/2235926/)
+郭先生指出当中国站出来的时候，俄乌战争可能会有几种戏剧性的结局.。 第一，俄罗斯打小型核武器战争，中国也参与战争。 第二，中国作为调解国，为俄罗斯作担保。 还有20%的可能是波罗的海国跟俄罗斯和白俄罗斯混战，死更多人，最终普京被消灭，然后再和谈，最后俄罗斯缴枪不杀。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+郭先生指出，无论哪个结果发生，中国人都将成为人类历史上，未来100年、1000年，全人类上最恨的人，大家都要面临排华的危机，但最惨的不是海外战友，而是墙内。
+
+郭先生称，俄乌战争开启了真正的潘多拉盒子，病毒、疫苗、饥荒等灾难会接踵而至。尤其粮食危机，现在全球都在疯狂囤积粮食，墙内真可能要很快到达人吃人的境况。 郭先生重申2022年今年是人类有史以来最黑暗的一年，战友们要做好心理准备。
+
+文字版原文：[战友们做好准备应对有史以来最黑暗的一年](https://gnews.org/zh-hans/2233448/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
