@@ -2,40 +2,31 @@
 ---
 
 
-## 有声|北约峰会点名批评中共支持俄罗斯侵略行为
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240636/)
+## 有声|美国能产生无数马斯克 中共独裁体制扼杀文明
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240731/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间3月24日，据相关媒体报道，在近日于比利时首都布鲁塞尔举行的北约峰会上，北约各国就俄乌战争的应对问题上点明批评了中共支持俄罗斯侵略乌克兰的行为。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-26-at-9.37.12-PM.png)
-据悉，自俄罗斯入侵乌克兰以来，中共当局非但没有对莫斯科当局有任何谴责表态，其还声称西方民主国家不该军事支援乌克兰。更甚者，中共大肆宣传俄罗斯编造的关于美国在乌生物实验室的谣言，妄图乘机将罪责甩给美国。此外，多方消息证实，中共私下对普京政府施以经济和军事援助。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月20日大直播中，郭文贵先生高度赞赏马斯克对普京下的战书，称其宣告了独裁政权对人类的核讹诈终将被解除。
 
-对此，北约在会后的联合声明中指出，任何国家，尤其是中共国有义务维护国际秩序和《联合国宪章》中所规定的主权和领土完整原则。鉴于中共官员近期发表的有关俄乌战争的公开言论，北约各国警告中共立即停止散布俄罗斯编造的谎言，特别是关于俄乌战争和北约的虚假消息。同时，北约要求中共不得以任何方式支持俄罗斯的侵略战争，亦不能采取任何措施帮助俄罗斯逃避国际社会的制裁，从而真正促进俄乌战争的和平解决。
+在回应为何一个外来移民能够在美国达成解救天下苍生的巨大成就时，郭先生指出，美国的体制使其可以荟萃全世界精英并让他们自由发展，这是美国强大的根本原因。
 
-报道也提及，北约峰会的前一天，北约秘书长斯图尔滕贝格曾公开指责中共对俄罗斯提供的政治支持，包括帮助俄罗斯散布公然的谎言和错误信息。
+据统计，80%-86%的美国精英都是新移民。二战后，美国开始招募德国、苏联以及全球的科学家，涵盖互联网、半导体工业、芯片、生物及太空科技等各个领域。来自世界各国的精英们让美国一次又一次腾飞。与之相反，在自称雄伟强大的中共国，国内外精英均没有生存和发挥才能的环境与机会。
 
+文字版原文：[美国能产生无数马斯克 中共独裁体制扼杀文明](https://gnews.org/zh-hans/2233558/)
 
+音频处理：Fei797
+发稿：Fei797
 
-文字版原文：[北约峰会点名批评中共支持俄罗斯侵略行为](https://gnews.org/zh-hans/2235360/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

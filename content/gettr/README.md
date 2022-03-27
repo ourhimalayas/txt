@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 5:59 PM (UTC)`
+
+
+![img](https://media.gettr.com/group10/origin/2022/03/27/17/a9e0650a-1c8d-d2a4-8397-e9df10682182/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/27/2022 4:39 PM (UTC)`
 
  3月27号：科学政治．和政治科学的最好代表．就是这个孙子……能把谎言说成这个样子，敢这么说，真的佩服共产党的流氓政府的勇气……
@@ -151,13 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 2022.03.26 NFSC News  CCP Virus Outbreaks Lockdown Measures Cause Secondary Disasters in Shanghai； Fully-Vaccinated Political Figures Infected With the CCP Virus
 ![img](https://media.gettr.com/group43/origin/2022/02/19/00/34bf8d77-03d2-b276-dc46-ab0c4794adbb/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/26/2022 8:20 PM (UTC)`
-
-
-![img](https://media.gettr.com/group38/origin/2022/03/26/20/7e222da1-ee3a-9db4-3e1e-b8710f215343/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

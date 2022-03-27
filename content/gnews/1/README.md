@@ -2,29 +2,30 @@
 ---
 
 
-## 躲过中共病毒疫苗灾难就是人生赢家
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241134/)
+## 加拿大保守党候选人提议五年内禁止进口石油
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2241239/)
 
-作者：纽约磐石农场 在远方
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱        编译：晨熹         
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/nixolympla.com_.jpg)图片来源：nixolympla.com
+据加拿大媒体【真北方】3月25日报道， 加拿大保守党领袖候选人皮埃尔·波利耶夫表示，如果他成为总理，他将在五年内停止进口海外石油。
 
-在3月25日的大直播中，郭文贵先生表示，只要躲过中共病毒疫苗灾难，两三年之后就是人生赢家。爆料革命让新中国联邦人“无苗有币”，成为大赢家。
+波利耶夫是正在寻求保守党领导权的 10 名候选人之一，他承诺将增加本国的石油产量，以减少对进口石油的依赖。其计划将纽芬兰的石油产量翻一番，并支持将西方石油通过管道或铁路输送到加拿大东部，尽管这面临现有基础设施的挑战。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-12.jpeg)
+加拿大拥有世界第三大石油储量。但在2019年，魁北克和加拿大大西洋地区使用的石油仍有一半以上来自海外，其中包括沙特阿拉伯和俄罗斯。
 
-郭先生说，全世界至暗时刻的标志是疫苗灾难。只要在疫苗灾难开始后的两三年内，不病死、不饿死、不给共产党陪葬，就是人生最大赢家。这也是郭先生全力爆料，并频繁进行大直播的根本原因。
+新闻来源：[https://tnc.news/2022/03/25/pierre-poilievre-proposes-ban-on-foreign-oil-within-five-years/](https://tnc.news/2022/03/25/pierre-poilievre-proposes-ban-on-foreign-oil-within-five-years/)
 
-郭先生希望，中国同胞能尽快逃出房地产崩塌、金融崩塌、中共灭亡、社会动乱、战争频发、自然灾害、粮食危机等灾难。并建议，在保证正常生活的前提下，尽快处理掉多余的房产。
+编辑/上传 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-郭先生表示，人性情的本质是人的灵魂与肉体的结合，也是人的根本动力。当今在中共国，金钱至上、人们缺乏信仰，占有、欺骗、虚妄和幻想充斥脑海。只有爆料革命是在去除人的贪、嗔、痴、慢、疑，让人找回自我真性情，从而开启人类新篇章。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-参考链接：[3/25/2022 文贵直播：只要活过疫苗灾难到来后的两三年就是赢家！](https://www.gettr.com/post/p11xhu53432)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
-
-总编：Zion文恩
-审核/编辑：文真
-校正/发稿：谐趣园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
