@@ -2,18 +2,12 @@
 ---
 
 
-## 美欧全面联手出击 独裁政权奄奄一息
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2239953/)
+## NewsNation新闻：俄罗斯高官及知名记者因反对入侵乌克兰离职
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2240050/)
 
-文贵大直播20220327
+03/25/2022 NewsNation新闻：一些俄罗斯高官及知名记者因反对入侵乌克兰离职。其中非常著名的两位官员是普京的国际关系特使阿纳托利**·**丘拜斯，及曾为俄罗斯副总理的阿尔卡季**·**德沃尔科维奇。外交事务委员会的高级研究员查尔斯·库普干评论说，这两位人士的离任可能为更多高官下决心离开铺路，也可能促使普京与乌克兰进行谈判
 
-文案指导：顽童（纽伦堡正义）
-
-执笔：文仁（功成）不着急（意大利）
-
-美工：Bobby（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-21.png)
-*发布：Theodosia*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

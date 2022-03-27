@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯炮弹击中哈尔科夫排队等待援助的平民
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2240109/)
+## 白俄罗斯志愿者军团正式宣誓加入乌克兰军队
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2240268/)
 
-03/25/2022 在哈尔科夫排队等待援助的平民被俄罗斯军队炮弹击中
+03/26/2022 白俄罗斯志愿者军团正式宣誓加入乌克兰军队
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,29 +2,13 @@
 ---
 
 
-## 【秘翻北美时评】全球排华时会给华人带来什么样的灾难
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2227895/)
+## 辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2234329/)
 
-By:**[秘翻北美时评](https://gettr.com/post/p11qmaq44d4)**
+03/23/2022 班农战斗室：一位参与审查辉瑞文件的志愿者有两个发现。一个是辉瑞是否将所有记录在案的副作用都报告给疫苗不良反应系统。另一个是辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准。
 
-***[2022-03-25](https://gettr.com/post/p11qmaq44d4)***
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-
-**今日主题：**
-
-**1. 美国制定计划以防俄罗斯使用化学和核武器 **
-
-**2. 港衞生界议员 单日逾万确诊未必反映实况 **
-
-**3. 全球排华时会给华人带来什么样的灾难**
-
-🔗**链接：**[https://gettr.com/post/p11qmaq44d4](https://gettr.com/post/p11qmaq44d4)
-
-发布：陸柒陸捌
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-02-19-171240-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
