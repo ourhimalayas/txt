@@ -2,8 +2,8 @@
 ---
 
 
-## 喜币从数字货币到实体交易
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239286/)
+## 躺平币将是最稳定最安全的私人财富
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239365/)
 
 台灣寶島農場
 

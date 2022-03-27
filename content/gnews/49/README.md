@@ -2,26 +2,38 @@
 ---
 
 
-## 樱花头条┃美国对中共官员采取限制性签证发放
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234749/)
+## 迪拜即将推出一亿美元的数字资产基金
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2235209/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-美国国务卿布林肯最新电视讲话：
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+3月23日周三，迪拜一家风险投资公司Cypher Capital宣布，它将启动一项价值1亿美元的基金项目，旨在投资数字货币资产。
 
-将对中国政府官员采取限制性签证发放措施，呼吁中国政府停止在新疆的种族灭绝、在西藏自治区、香港和世界其他地区的人权侵犯的违法行为，同时，拜登政府越来越关注对于中国在支持俄罗斯军事入侵的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/26-03-222-2.jpg)图片来源: 网络
 
-信息来源：[https://gettr.com/post/p119opj9050](https://gettr.com/post/p119opj9050)
+该基金由公司创始人提供，它还将投资分散式金融平台，区块链应用程序和数字货币游戏等项目，这些投资将会是100%的数字资产。创始人还说还计划在迪拜开设一个加密、区块链和数字货币资产中心，为初创企业提供工作空间和法律指导、技术咨询等服务，使得创业者可以向投资者推销他们的创意，将该地区发展成为以数字货币为重点的行业社区。
 
-*编辑：东京樱花团/asket、立正道（素材）小水手（素材）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+据悉Cypher Capital目前管理着1000万美元的资产，平均每月部署200-500万美元，专注投资中东、北非和南亚地区，该公司目标是在三年内管理10亿美元资产。
+
+
+
+相关链接:
+
+[https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/middle-east/dubai-firm-cypher-capital-says-launches-100-mln-digital-asset-fund-2022-03-23/?taid=623af6ac52440400013c1345&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+
+
+![This image has an empty alt attribute; its file name is March-1-2.png](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+编辑/校正/发稿：Petite abeille
+
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

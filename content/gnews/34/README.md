@@ -2,28 +2,36 @@
 ---
 
 
-## 乌西大城利维夫遭袭击 燃料库被毁酿5伤
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237889/)
+## 美国大陪审团认定中共CAIEP骨干成员犯有签证欺诈罪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238230/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-乌克兰西部城市利维夫（Lviv）26日遭到4枚火箭弹袭击，其中两枚击中一个燃料库，导致5人受伤。《路透》报导指出，这是自俄罗斯入侵以来对利维夫最重大的攻击。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpxOd1ul.jpg)图片来源：路透
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-44.png)
 
-根据《路透》报导，利维夫州州长柯齐斯基表示，两枚火箭弹击中一个燃料库后导致5人受伤，另外两枚则是击中了一家兵工厂。由于利维夫距离波兰边境仅有60公里，利维夫市长萨多维在记者会中指出，俄军今日的攻击行动是在向人在波兰的美国总统拜登「致意」，而且俄军是从2014年被并吞的克里米亚塞瓦斯托波尔（Sevastopol）发射的。
+根据法院文件和证据，59岁的柳忠三是中共国际人员交流协会CAIEP的骨干成员，该协会名义上是一个非政府机构，实际上受中共政府领导，为中共政府工作。
 
-简评：死猪不怕开水烫，将死之人甚癫狂！俄军从克里米亚发射火箭弹向来波兰的拜登“致意”，来表明普京誓吞乌克兰的野心。明明是老虎在玩狗子，狗子却逞强的挑逗老虎，老虎动口之日就是狗子呜呼之时，等拜登总统玩腻了，普京离成为丧家犬不远了。
+柳首先通过该协会获得了J-1研究学者签证，但之后并未在美国研究部门做访问学者，而是开始管理该协会在新泽西州Fort Lee的一个办事处。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3873049](https://news.ltn.com.tw/news/world/breakingnews/3873049)
+从2017年到2019年9月，柳与他人合作，为多名中共政府的雇员骗取了J-1研究学者签证，以使这些雇员在美国为中共非法工作。此外，该机构还招聘了一些美国的科学家、学者、工程师和其他专家到中共国工作。同时，他们向国务院和国土安全部隐瞒了这些工作。
 
-撰稿/发布：一叶知秋
+柳被判定一项共谋欺骗美国罪和签证欺诈罪，定于7月11日判刑，最高将面临五年监禁。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+参考链接：
+
+- [Chinese Government Employee Convicted of Participating in Conspiracy to Defraud the United States and Fraudulently Obtain U.S. Visas](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
+- [Chinese Government Employee Arrested in Visa Fraud Scheme](https://www.nytimes.com/2019/09/17/nyregion/chinese-government-visa-fraud.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：飞虹
+编辑：Ivy001
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
