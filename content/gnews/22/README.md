@@ -2,36 +2,25 @@
 ---
 
 
-## 英国制星际导弹已准备好部署在乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2239070/)
+## 所有的爆料都是为了挽救更多的中国人
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239197/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿: 纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-35.png)
+在3月25日的大直播中，郭文贵先生表示，他所有的爆料都是为了争取挽救更多的国人。他所有的爆料与所选择的话题，都是真心希望能有更多的国人避免倾家荡产的结局，希望更多的人能躲过疫苗劫难，希望更多的人不给中共陪葬。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3198.png)
+中共国的媒体只有两种，一种是洗脑让人民走上不归路，另一种就是忽悠并榨干老百姓的财产，即一个骗命一个骗钱。
 
-翻译/编辑：小红帽
+大直播则完全不同，它阻止国人注射中共病毒疫苗，挽救了无数人的性命。揭露中共房地产的真相也是一样，没有任何一个国家的房地产在负债超过50%后还能经营下去，否则一定是骗局。中共国的房地产对来百姓来说像棺材一样残酷，让人民求生不能求死不得。任何在房地产上的投机取巧与侥幸，都会导致灾难性的后果。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7197356932_5c701e93f6_b.jpg)图片来源：https://eurasiantimes.com
+参考链接： [3/25/2022 文贵直播](https://www.gettr.com/post/p11x8oz863a)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-2.png)
 
-根据Mail Online3月26日报道，本·华莱士（Ben Wallace）说，英国制造的星际（Starstreak）导弹已准备好在乌克兰部署，很快就会即击落普京的喷气式飞机。
+编辑/总编/审核：飞虹
 
-乌克兰将首次在冲突中部署英国制造的防空导弹，这可能会使弗拉基米尔·普京（Vladimir Putin）因灾难性入侵而受到进一步羞辱。
-
-国防部长本·华莱士周日告诉《每日邮报》，星际系统–一种肩扛式导弹，以超过音速三倍的速度飞行，可以击落低空飞行的敌方喷气式飞机，已经准备好立即投入使用。
-
-消息传出之际，乌克兰总统泽连斯基（Volodymyr Zelensky）声称普京正在缩减入侵规模，因为他受到“强有力的打击”，并失去了超过16,000名士兵。
-
-华莱士先生说，第一批乌克兰军队已经接受过训练，现在正与星际系统一起部署。英国“比其他任何人都做得更多”来帮助这个饱受战争蹂躏的国家。
-
-新闻来源：[British-made Starstreak missiles are ready to be deployed in Ukraine to take down Putin’s jets imminently, says Ben Wallace](https://www.dailymail.co.uk/news/article-10655657/British-Starstreak-missiles-ready-deployed-Ukraine.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

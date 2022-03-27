@@ -2,36 +2,33 @@
 ---
 
 
-## 美国大陪审团认定中共CAIEP骨干成员犯有签证欺诈罪
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238230/)
+## 解冻部长级交流前，澳总理拒绝会晤中共国新任大使
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2238256/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
+![莫里森将就增强澳洲国防发表演讲10年划拨1850亿美元](https://s.rfi.fr/media/display/ad849350-96c1-11ea-85b1-005056bff430/1589515135122_GBV2OJ8O2.1-2.jpg)澳大利亚总理莫里森（资料图）
+据美国之音3月27日报道，澳大利亚总理斯考特∙莫里森表示，在北京解冻两国部长级交流之前，他不适合会晤中共国新任驻澳大利亚大使肖千，并对中共国加强与太平洋岛国所罗门群岛安全关系表示关切。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-44.png)
+中共国与澳大利亚的关系近年来日益恶化。北京新任驻澳大利亚大使肖千今年1月底上任后，态度友善许多。肖千此前会晤了澳大利亚外长马里斯∙佩恩，但是莫里森拒绝与肖千会晤，并表示，除非两国首先解冻部长级交流。
 
-根据法院文件和证据，59岁的柳忠三是中共国际人员交流协会CAIEP的骨干成员，该协会名义上是一个非政府机构，实际上受中共政府领导，为中共政府工作。
+太平洋岛国所罗门群岛将与中共国加强安全合作伙伴关系。莫里森表示，太平洋国家一直作为一个大家庭集体出现，澳大利亚是其中一员，新西兰也是。澳大利亚是所罗门群岛单一最大的发展伙伴。莫里森和反对党工党领袖阿尔巴尼斯都对中共国可能将军事安全之手伸到澳大利亚的后院表示关切。
 
-柳首先通过该协会获得了J-1研究学者签证，但之后并未在美国研究部门做访问学者，而是开始管理该协会在新泽西州Fort Lee的一个办事处。
+因为澳大利亚对中共国在香港问题和病毒事件的质疑，导致中澳关系破裂，中共国对澳洲采取一系列报复措施。中共的无赖嘴脸在世界上臭名昭著，面对质疑不敢接受调查，一言不合就翻脸。但事实终究是掩盖不住的，病毒溯源一定会进行下去，香港也会在未来劫后重生，永远灭亡的是中共。
 
-从2017年到2019年9月，柳与他人合作，为多名中共政府的雇员骗取了J-1研究学者签证，以使这些雇员在美国为中共非法工作。此外，该机构还招聘了一些美国的科学家、学者、工程师和其他专家到中共国工作。同时，他们向国务院和国土安全部隐瞒了这些工作。
+新闻参考链接：[https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html](https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html)
 
-柳被判定一项共谋欺骗美国罪和签证欺诈罪，定于7月11日判刑，最高将面临五年监禁。
+编辑：胖丁
 
-参考链接：
+* * *
 
-- [Chinese Government Employee Convicted of Participating in Conspiracy to Defraud the United States and Fraudulently Obtain U.S. Visas](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
-- [Chinese Government Employee Arrested in Visa Fraud Scheme](https://www.nytimes.com/2019/09/17/nyregion/chinese-government-visa-fraud.html)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-总编：飞虹
-编辑：Ivy001
-审核：木木
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

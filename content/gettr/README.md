@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 10:02 AM (UTC)`
+
+Winston (GTV UK Live Host): What more can we do to convince these Chinese people trapped in the middle of the war that the only way out for them is through the NFSC?<br/><br/>Mr. Steve Bannon: The rescue operation is a heroic effort and reinforces what Miles talks about "New China" and the "New Chinese", and it's obviously to get Chinese citizens and nationals out safely of the war zone in Ukraine.<br/>The CCP is going to smear that because they never want to show the dignity and the nobleness of LaoBaiXing because they're not doing it. The CCP is after you means you're doing great works.<br/><br/>Winston：我们还能做些什么来说服这些被困在战争中的中国人相信他们唯一的出路是通过新中国联邦？<br/><br/>Bannon：这次救援行动是一个英勇的壮举，它真的印证了郭先生所描述的“新中国”和“新中国人”，他们的投入程度都是为了让中国公民和国民安全地离开乌克兰的战区。中共永远不想向公众展示老百性的尊严和高尚，因为他们自己无法做到。中共对你们穷追不舍时，说明你们的工作做得格外出色！
+![img](https://media.gettr.com/group43/origin/2022/03/27/10/a0def862-c5ab-9ae9-1a85-5ca9eea0bc59/out.jpg)
+
+---
+
+`@miles 3/27/2022 9:59 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月26日第22天当日救援统计：<br/>Medyka救援站接待：约42人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7534人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 22 - Date: March 26, 2022 :<br/>Medyka Rescue Station Reception: about 42 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7534 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group43/getter/2022/03/27/09/3ea6d5ea-5a2b-5b33-cbb7-68417d02f2f3/0da9ed8bf0cf90e740be3af2117fbfaa.jpg)
+
+---
+
 `@miles 3/27/2022 8:25 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -144,20 +158,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️7⃣️：奔驰E Class (单价: $54,950.00)<br/>奖品数量：1<br/>获奖者：<br/>YH64884<br/>获奖者来自日本银河系农场!<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️7⃣️： Mercedes E Class Sedan (Unit Value: $54,950.00)<br/>Number of Prizes: 1<br/>The winner is:<br/>YH64884<br/>The winner is from the Himalaya Japan Galaxy!<br/><br/>Congratulations to the winner！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group21/getter/2022/03/26/18/a9c1f3c6-a4cb-3f94-9261-0390a47117cd/2e4b9d0a4b53db0aee3faf35f38c8b32.jpg)
-
----
-
-`@miles 3/26/2022 6:03 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️6⃣️：GCLUB 会员年费<br/>1.GCLUB 会员年费等级一 (单价: $500.00)<br/>数量：60<br/>2. GCLUB 会员年费等级二 (单价: $1,000.00)<br/>数量：56<br/>3. GCLUB 会员年费等级三 (单价: $1,500.00)<br/>数量：50<br/>4. GCLUB 会员年费等级四 (单价: $2,000.00)<br/>数量：40<br/>5. GCLUB 会员年费等级五 (单价: $2,500.00)<br/>数量：35<br/><br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️6⃣️: GCLUB Annual Fee Waive <br/>1.GCLUB Annual Fee Waive Tier 1 (Unit Value: $500.00) <br/>No.: 60<br/>2. GCLUB Annual Fee Waive Tier 2 (Unit Value: $1,000.00) <br/>No.: 56<br/>3.GCLUB Annual Fee Waive Tier 3 (Unit Value: $1,500.00) <br/>No.: 50<br/>4.GCLUB Annual Fee Waive Tier 4 (Unit Value: $2,000.00)<br/>No.: 40<br/>5. GCLUB Annual Fee Waive Tier 5 (Unit Value: $2,500.00) <br/>No.: 35<br/><br/>The winners are as following<br/><br/>Congratulations to the winners!🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group12/getter/2022/03/26/18/e52a9ae0-c364-99c6-5094-be94a2c0033b/aba4e6d00aa0eb711ecb275c7231dfaf.jpg)
-
----
-
-`@miles 3/26/2022 5:10 PM (UTC)`
-
-【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️5⃣️：GF 年会专属限定版T恤 (单价: $140.00)<br/>奖品数量：600<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️5⃣️: GFASHION  T-Shirt (Unit Value: $140.00) <br/>Number of Prizes: 600<br/>The winners are as following<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group3/getter/2022/03/26/17/dad07d1e-71c1-1ca1-f3bb-bfbc398679e2/9830d4e3e94c431f02f0d56eed5d4fe8.jpg)
 
 ---
 
