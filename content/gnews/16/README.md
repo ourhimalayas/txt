@@ -2,30 +2,44 @@
 ---
 
 
-## 樱花时政┃美贸易代表继续对中共国施压
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2239448/)
+## 拜登称普京不能继续执政的评论引发震惊：他确实呼吁政权更迭
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2239570/)
 
-撰稿：东京樱花团/Garrettw
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
-在本月23日美国贸易办公司宣布重新豁免352项中共国进口商品关税后不久，拜登政府再次就贸易问题对华施压。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-42.jpg)
-据路透社3月25日报道，美国贸易代表戴琪本周接受该媒体采访时称，美国不会再“袖手旁观”（sitting on its hands），将以更积极的态度向世界第二大经济体中共国施压，要求其改变美国所谓“扭曲市场贸易”做法。戴琪声称，美国正准备采取一种新的对华贸易政策，通过更新的、更有效的措施来捍卫自身经济利益，更好地与中共国竞争，但她并未提供具体细节。“我们不会停止敦促和挑战中共国，让中共国进行改革和变革。但我们没办法继续袖手旁观，坐等中共国做出决定。我们需要翻开游戏规则新的一页。”戴琪说。
+撰写：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图像-4-2.jpg)
+图片：*Getty Images*
 
-美国贸易办公室释放的“豁免部分中共国进口商品关税”的信号在本月23号，让中共先可以对墙内群众暂时洗脑一下，突然间对中共国继续施压的极速转弯，拜登政府的老牌政客懂得如何玩中共，此次他的波兰的访问及公开讲话，表面说普京及俄罗斯实际是在警告中共“柏林墙已经到了，就像当年里根总统访问德国一样”。只不过拜登这次是杀“俄罗斯”给“中共”看。中共倒塌的日子屈指可数了……
+拜登在周六的演讲中说，普京是一个 “一心想重建帝国的独裁者”，乌克兰 “永远不可能成为俄罗斯的胜利品”，“看在上帝份上，这个人不能继续掌权。”
 
-消息来源：
-[美国贸易代表：美国将加大对中共国的施压](https://baijiahao.baidu.com/s?id=1728375312023381554&amp;wfr=spider&amp;for=pc)
+拜登周六的演讲在有线电视新闻界中引起了强烈反响。拜登的言论让很多人措手不及，并引起了美国对 “将普京总统赶下台 ”的政策是否有变化的疑问。
 
-[Remarks As Prepared for Delivery of Ambassador Katherine Tai Outlining the Biden-Harris Administration’s “New Approach to the U.S.-China Trade Relationship”](https://ustr.gov/about-us/policy-offices/press-office/speeches-and-remarks/2021/october/remarks-prepared-delivery-ambassador-katherine-tai-outlining-biden-harris-administrations-new)
+随后白宫很快表示，拜登并不是在呼吁政权更迭，而是在强调普京不能对其邻国行使权力。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**福克斯新闻分析**
+
+福克斯新闻的埃里克.肖恩在直播中问道：”你认为在那次演讲中，总统是在呼吁政权更迭，基本上是在向俄罗斯人和寡头发出信号，将普京赶出去？”
+
+福克斯撰稿人丽贝卡.格兰特回应肖恩说：“拜登的这番话令人震惊。我认为这在美俄外交史上是史无前例的，这使美俄关系陷入深深的冰点。这是一个巨大而惊人的启示。”
+
+“绝对的，他确实呼吁进行政权更迭。让我们看看国务院或白宫后来是否试图收回那句话，” 格兰特补充说。
+
+**BBC驻北美记者安东尼·泽克尔（Anthony Zurcher）分析**
+
+这显然是在试图扭转局面，人们担心这会给普京施加更大的压力，让他更加不安。
+
+因为普京是一个军事上苦苦挣扎的国家的领导人，而且还控制着一个核武库，美国方面担心的是，他们不想把普京逼到墙角。直接呼吁政权更迭可能导致不稳定，增加不可预测性。
+
+在这种情况下，你最不想要的就是不可预测性。
+
+新闻来源：
+
+1.[BBC新闻](https://www.bbc.com/zhongwen/simp/world-60892223)
+2.[TheWrap](https://www.thewrap.com/biden-putin-cannot-remain-in-power-triggers-shocked-reaction/)
+3.[CBSNEWS](https://www.youtube.com/watch?v=UbpNWyV6rKc)
+
+
+
+
 
  
 

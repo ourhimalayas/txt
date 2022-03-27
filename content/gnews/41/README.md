@@ -2,21 +2,36 @@
 ---
 
 
-## 美国即将对中国企业进行更多制裁
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2237400/)
+## 美国大陪审团认定中共CAIEP骨干成员犯有签证欺诈罪
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238230/)
 
-中国共产党的这些媒体还有企业都会受到美国的制裁。这叫美国制定的内部政策，叫对中共先给他放几个蚊子咬咬他，让他知道疼的感受。
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月23日，美国联邦陪审团判定中共政府雇员柳忠三犯有签证欺诈罪。
 
-**【郭先生直播摘要】2022.3.20 美国即将对中国企业进行更多制****裁**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-44.png)
 
-**郭先生****:**
+根据法院文件和证据，59岁的柳忠三是中共国际人员交流协会CAIEP的骨干成员，该协会名义上是一个非政府机构，实际上受中共政府领导，为中共政府工作。
 
-我今天顺便给你们爆个料，你们脱不脱看你们的。我爆完这个料，你们脱不脱看你们的，今天反正我看你们没想脱的样子。
+柳首先通过该协会获得了J-1研究学者签证，但之后并未在美国研究部门做访问学者，而是开始管理该协会在新泽西州Fort Lee的一个办事处。
 
-马上也可能今天，也可能下一周，中国共产党的这些媒体还有企业都会受到美国的制裁。这叫美国制定的内部政策。叫对中共先给他放几个蚊子咬咬他，让他知道疼的感受。马上把它几个媒体平台彻底制裁。最后我要告诉大家，真的今年是人类上最黑暗的一年，也是最有希望的一年。我相信今年完后你想再看到普京和习近平比登天都难。每一天都在好消息传来，你看着接下来美国对共产党放几个蚊子咬咬它。我再告诉你的，你会看到美国人很聪明地会去咬谁，会去咬谁？还有海外欺民贼。记得七哥2018年爆料说过了吗？你们还记得吗，文空？我说海外欺民贼只要和共产党合作的都得被抓，一个都不会逃过。你知道海外欺民贼有多少人现在被美国FBI调查，多少人在加拿大在澳大利亚？鸡腿潘肯定被遣送回国。鸡腿潘”在澳大利亚肯定被遣返回国。还有那个朱万利在新西兰的，朱万利肯定被遣返回国。还有在日本的相林，还有咸鸭蛋，还有高冰尘和博讯，博讯韦石已经在美国在监狱了！还有史诺！我跟你保证，路大脑袋 蛇妖闫，九指妖100%进监狱！你走着看。你们最近发现了，整个世界对海外任何与共产党有交易有联系的，在西方世界这不叫排华战争。这是一个干干净净地清理华人当中和共产党有关系的人，已经开始了。然后接下来大家会看到对共产党的媒体 国企 通讯企业，会超出你想象的制裁。
+从2017年到2019年9月，柳与他人合作，为多名中共政府的雇员骗取了J-1研究学者签证，以使这些雇员在美国为中共非法工作。此外，该机构还招聘了一些美国的科学家、学者、工程师和其他专家到中共国工作。同时，他们向国务院和国土安全部隐瞒了这些工作。
 
-视频剪辑：GC | 听写：雨山溪桥客|翻译：阿基米德 |校对：tonyj |视频制作+字幕：刀锋舞者|编辑&发布：叶子
+柳被判定一项共谋欺骗美国罪和签证欺诈罪，定于7月11日判刑，最高将面临五年监禁。
 
+参考链接：
+
+- [Chinese Government Employee Convicted of Participating in Conspiracy to Defraud the United States and Fraudulently Obtain U.S. Visas](https://www.justice.gov/opa/pr/chinese-government-employee-convicted-participating-conspiracy-defraud-united-states-and)
+- [Chinese Government Employee Arrested in Visa Fraud Scheme](https://www.nytimes.com/2019/09/17/nyregion/chinese-government-visa-fraud.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：飞虹
+编辑：Ivy001
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
