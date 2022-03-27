@@ -2,33 +2,63 @@
 ---
 
 
-## 日首相称俄乌战争可能导致战后世界最大危机
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2240783/)
+## 文·贵天成——文贵先生谈“G-Club”（二十）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2240823/)
 
-共同社3月27日报道，日本首相岸田文雄周日表示，俄罗斯对乌克兰的入侵有可能动摇国际秩序的基础，并有可能导致世界陷入二战以来的 “最大危机”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/C-4.jpg)kfindtech.com
-岸田在国防学院的毕业典礼上发表讲话说，日本将不排除从根本上加强其防卫能力的任何选择，因为政府的目标是在年底前修订国家安全战略这一长期指导方针，以及关于其防卫建设的其他两个关键文件。
+#### **整理：BENJI**
+**编辑：朝花夕拾**
 
-他说，日本决心支持乌克兰，因为随着俄罗斯对这个东欧国家的攻击不断拖延，它与其他国家的行动将决定国际社会的未来状态。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043-1.jpg)圖片來源：雅典娜設計組
 
-外交和国防专家说，俄罗斯对乌克兰的单边攻击可能会使中共国有胆量攻击台湾，北京认为台湾是一个叛逆的省份，等待在必要时通过武力统一。
 
-首相在东京西南的横须贺举行的仪式上说：“在印太地区，特别是在东亚，决不允许用武力单方面改变现状。”
+**郭文贵****先生****2021年8月3日直播**
 
-岸田说，“鉴于中共国近年来越来越大胆地试图单方面改变东海和南海的现状，以及朝鲜连续发射弹道导弹，我国周围的安全环境正变得明显更加严重。”
+我希望再一次告诉大家,G-Club将是G系列的未來金融和所有和爆料革命战友们，未來走世界的一个通行证，也是未來新中国联邦护照的前身，严格讲，它就是最早期的新中国联邦的身份证。
 
-他强调了加强自卫队和日本海上保安厅之间合作的重要性，因为中共国宣称对尖阁列岛拥有主权，尖阁列岛是日本在东中国海管理的一群无人居住的小岛，经常在附近派船投射其力量。
+还有一个,我不认为你们有任何理由,谁能告诉我G-Club你有赔钱吗?你既能享受这样的待遇,看看我们G-Club在G-Fashion的,G-Fashion现在很多都是战友在里边儿,想一想它未来带来的价值,G-Club和全世界正在准备的联盟和G-Club的未来。你拿五万美元、两万美元买个卡,你要觉得不值,战友就不要再买啦,很简单。
 
-在周日的仪式上，防卫大臣岸信夫说，“任何人都可以看到，日本周边地区和世界正在进入动荡的时代”。
+如果你要认为G-Fashion和未来G-Club和新中国联邦,作为一个它的识别身份和未来在世界上有尊严。大家想想你做不到的。七哥能把你带入的那个层次只能坐650,你能做到吗?没加入G-Club,你能做到?能做到,你不要去买G-Club!你不要去买G-Fashion,那么多名牌就买名牌去,就这么简单。
 
-**快评：**“日本将不排除从根本上加强其防卫能力的任何选择”，这句意味深长，不用很长时间，二战结束后对日本的军事限制将被取消。
+**郭文贵****先生****2021年8月7日直播**
 
-今天文贵大直播中郭先生告诉世界，在俄乌战争延续1个月多的时候美国拜登总统到了波兰前线并发表了重要的演讲，这标志着世界的政治版图已经发生巨变。日本这次坚定地站在乌克兰一边后将成为赢家，在中共国与俄罗斯被解体后日本将发展为亚洲的大国。
+为什么G-Fashion和G-Club在一起?G-Club只有和G-Fashion在一起才合法合规。G-Fashion为什么要和G-Club在一起?G-Fashion只有和G-Club，G-Fashion才能成为世界上最最先进的时尚的力量和能达到G-Fashion为新中国联邦打造以中国文化回归东方的目的。
 
-参考链接：
-[https://english.kyodonews.net/news/2022/03/9988a951d39a-kishida-says-ukraine-crisis-may-lead-world-to-greatest-postwar-crisis.html](https://english.kyodonews.net/news/2022/03/9988a951d39a-kishida-says-ukraine-crisis-may-lead-world-to-greatest-postwar-crisis.html)
+那就是把时尚和政治和尊严和自由和信仰综合到一起的一个平台,因为G-Club的会员就是未来新中国联邦的主干力量。同时,G-Fashion是新中国联邦老中青年少的人与世界失去的这个几百年东西方文明结合的一个寻找密码的工具和平台。
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+也是G-Fashion和G-club共同打造出来一个财富和拥有身份。最后是新中国联邦护照和新中国联邦人在世界第一批被认可、被尊重、安全合法的财富和尊严的结合体。
+
+我可以告诉大家,G-Fashion、G-club 能给爆料革命战友带来的财富,带来的时尚,能带来的尊严和带来的方便,没有任何人可以做到,只有G-club、G-Fashion。
+
+G-Club绝对不会无限期地卖卡,到了一定的时候一定会停止,停止的时候卡一定会升值,我相信。咱下一次当你看出G-Fashion的网站更新,G-Fashion推出商品的时候,我告诉大家,你们一定毫不犹豫,一点不能带上个人感情地来点评G-Fashion。
+
+往期回顾：
+[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
+[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
+[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
+[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
+[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
+[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
+[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
+[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
+[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
+[文·贵天成——文贵先生生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
+[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
+[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
+[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
+
+*发布：wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

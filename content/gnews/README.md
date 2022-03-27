@@ -15,62 +15,62 @@
 
 ---
 
-### [日首相称俄乌战争可能导致战后世界最大危机](/content/gnews/1/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（二十）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日首相称俄乌战争可能导致战后世界最大危机](/content/gnews/2/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022.3.27大直播 郭文贵先生叮嘱前线战友 安全第一 去留自便](/content/gnews/2/README.md)
+### [2022.3.27大直播 郭文贵先生叮嘱前线战友 安全第一 去留自便](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [战时的动物福利（二）](/content/gnews/3/README.md)
+### [战时的动物福利（二）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成——文贵先生谈“G-Club”（十九）](/content/gnews/4/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（十九）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美国能产生无数马斯克 中共独裁体制扼杀文明](/content/gnews/5/README.md)
+### [有声|美国能产生无数马斯克 中共独裁体制扼杀文明](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声|战友们做好准备应对有史以来最黑暗的一年](/content/gnews/6/README.md)
+### [有声|战友们做好准备应对有史以来最黑暗的一年](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [文·贵天成——文贵先生谈“G-Club”（十八）](/content/gnews/7/README.md)
+### [文·贵天成——文贵先生谈“G-Club”（十八）](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”](/content/gnews/8/README.md)
+### [有声|北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [“我们是消灭邪恶中国共产党的新中国联邦人”赢得了世界的赞许](/content/gnews/9/README.md)
+### [2022年3月27日郭先生大直播 文字同步精要](/content/gnews/10/README.md)
+ ` 焦點20分`
+
+### [“我们是消灭邪恶中国共产党的新中国联邦人”赢得了世界的赞许](/content/gnews/11/README.md)
  ` thedawn`
 
-### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/10/README.md)
+### [有声|北约峰会点名批评中共支持俄罗斯侵略行为](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [突发：普京狂轰利沃夫的目标是针对美国总统拜登](/content/gnews/11/README.md)
+### [突发：普京狂轰利沃夫的目标是针对美国总统拜登](/content/gnews/13/README.md)
  ` 纽约香草山MOS02`
 
-### [视频|法国、土耳其、希腊将在马里乌波尔展开人道救援](/content/gnews/12/README.md)
+### [视频|法国、土耳其、希腊将在马里乌波尔展开人道救援](/content/gnews/14/README.md)
  ` MOSVIDEO`
 
-### [视频|拜登将乌克兰人民的英勇抵抗比作“六四”事件](/content/gnews/13/README.md)
+### [视频|拜登将乌克兰人民的英勇抵抗比作“六四”事件](/content/gnews/15/README.md)
  ` MOSVIDEO`
 
-### [视频|乌克兰击毙第七位俄高级将领 俄哑弹率高达六成](/content/gnews/14/README.md)
+### [视频|乌克兰击毙第七位俄高级将领 俄哑弹率高达六成](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [视频|喜币躺平币一定是不可剥夺私人财富的创造者](/content/gnews/15/README.md)
+### [视频|G-FASHION开始接受使用HPAY以HDO购物](/content/gnews/17/README.md)
  ` MOSVIDEO`
 
-### [视频|G-FASHION开始接受使用HPAY以HDO购物](/content/gnews/16/README.md)
- ` MOSVIDEO`
-
-### [战时的动物福利（一）](/content/gnews/17/README.md)
+### [战时的动物福利（一）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|未来战争将转型为高科技远程作战](/content/gnews/18/README.md)
+### [有声|未来战争将转型为高科技远程作战](/content/gnews/19/README.md)
  ` MOSREC`
-
-### [文·贵天成——文贵先生谈“G-Club”（十七）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [3/27/2022国内经济财经周报：CDN巨头隆重介绍喜交所，Hpay让您秒变时尚达人；地产巨头推迟刊发业绩公告](/content/gnews/20/README.md)
  ` 秘密翻译组金融团队`
@@ -156,26 +156,26 @@
 ### [樱花时政┃威慑中共国的时间不多了](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [23天持续封城致民众饿死](/content/gnews/48/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [樱花头条┃美国对中共官员采取限制性签证发放](/content/gnews/49/README.md)
+### [樱花头条┃美国对中共官员采取限制性签证发放](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案](/content/gnews/50/README.md)
+### [樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/51/README.md)
+### [辉瑞在已有400多死亡病例记录在案的情况下得到了FDA的批准](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫情恶化，上海封城抢菜荒](/content/gnews/52/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [原中央委员盛光祖配合审查调查](/content/gnews/53/README.md)
+### [原中央委员盛光祖配合审查调查](/content/gnews/51/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中共国空调经销商吐槽销量下滑显著](/content/gnews/54/README.md)
+### [中共国空调经销商吐槽销量下滑显著](/content/gnews/52/README.md)
  ` 加拿大温哥华英里农场`
+
+### [潘石屹一天连吃15张罚单，被罚1.15亿！](/content/gnews/53/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [中共国首都北京故宫附近冒起漫天浓烟](/content/gnews/54/README.md)
+ ` 日本東京方舟農場`
 
 ### [美国疾控中心删除了数万例与中共病毒相关的死亡案例](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
