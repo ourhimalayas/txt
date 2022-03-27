@@ -2,28 +2,38 @@
 ---
 
 
-## 国内专业人士质疑核酸检测办法合理性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2241674/)
+## 有声|拜登在波兰结束演讲时呼吁罢免普京
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2241804/)
 
-撰稿/配图：东京樱花团/Ob
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+3月26日据美联社报道，拜登在波兰结束演讲时呼吁罢免普京，他说：“看在上帝的份上，这个人不能继续掌权。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image001-6.jpg)2022年3月26日，美国总统拜登在波兰华沙的皇家城堡，发表了关于俄罗斯入侵乌克兰的演讲。 AP – Evan Vucci
+美国总统拜登在波兰首都华沙皇家城堡发表演讲时,严厉抨击俄罗斯总统普京，普京的侵乌战略已彻底失败。他表示：“看在上帝的份上，这个人不能继续执政，俄罗斯人民，不是我们的敌人。我拒绝相信你们会赞成杀害无辜的儿童和老人，也拒绝相信你们会接受医院、学校、产房遭到俄罗斯导弹和炸弹的轰炸。”
 
-“我知道，我刚才给您讲了普通人都理解，我们做核酸还还不用我们自己花钱，对吧政府花钱，我们都理解为了为了是检测出感染者。你刚才也说了啊，可能政府考虑到了室内空气不好流通是吧不容易流通、容易感染，所以玩到室外了这个都不是好办法。”
+拜登总统还强调：“俄罗斯人民，你们不值得去参加这场战争。普京能够而且必须结束这场战争”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-12.png)[图片来源](https://j.eastday.com/p/162918704977010970)
+拜登同时表示，“这场战争不会很快结束，’民主与独裁的斗争 ‘不会在数日或者数月之内赢得，面对一场长期的战斗，我们必须武装起来。”
 
-“我们有更好的办法，政府可以采纳，也可以测核酸。国务院采样方式当中有三种，一个是鼻试子，一个是咽拭子，就一个抠鼻子，一个捅嗓子的，还有一个是测痰液。而我们都知道，在痰液的话那个病毒含量是最高的。为什么要六轮核酸你知道吗？”
+拜登重申，我们始终站在乌克兰一边。美国不希望介入这场战争与俄罗斯打仗。但是他警告莫斯科，”你们休想进入北约领土一厘米！”
 
-“我搞专业的知道，你看新闻都知道了，抠嗓子抠鼻子他测的不准，他一次测不出来，有的测十次才测出来，但测痰液一次就可能测出来，准确率非常高，比鼻炎石子高百分之三十以上。为什么非要捅鼻子呢？有痰的可以吐痰呀，没有痰的吐唾液可以呀，你在一家里边我们四口人。”
-
-“在家里边都吐好痰之后，分好袋儿，你做好标记在那排队都不用摘口罩，往那一放，你们就采样就测呗，这不是很好的办法吗？”
-
-[消息来源](https://res.wx.qq.com/voice/getvoice?mediaid=MzA5MzgwMzQ1OV8yMjQ3NDg1Mjgz&amp;voice_type=1)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+拜登宣布，这场战争对俄罗斯而言已经是一个战略失败。
 
 
+
+[【援引连结】](https://apnews.com/article/ap-news-alert-europe-poland-78774506b37f5bced5749f6f36ead29d)
+
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

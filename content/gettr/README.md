@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 11:01 PM (UTC)`
+
+2022.03.27 NFSC News  British Media Freelancer Interviews NFSC Rescue Team Members； Young NFSC Member Feather Works at Frontline of Rescue Effort
+![img](https://media.gettr.com/group20/origin/2022/03/27/22/581ede76-4226-1ecb-c42c-a85d8762b898/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/27/2022 10:03 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-27 <br/>For English @Gtranslators_1
@@ -149,15 +156,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 今天是 G|CLUB 会员的喜庆日子,看到一个个战友的开心快乐,我们华盛顿DC农场的战友们用这个视频,表达对 G|CLUB会员的祝福!🙏💖🌹
 ![img](https://media.gettr.com/group12/origin/2022/03/26/22/88115d2f-7997-c599-fe41-273125fce77e/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 3/26/2022 12:51 PM (UTC)`
-
-❤️Fellow fighter #FineFood Report from #NFSC's #UkraineRescue :  #Trolleys- the “red blood cells” for the refugees at Medyka. Why ? Here is from volunteer Mr. #Neil's communication talks : Trolleys that full of items are for the people here in the line on the #Ukraine side of the border. To prevent #HumanTrafficking, the Ukraine border officials have to very carefully check out the people in line.<br/>❤️#精糧战友采访 #新中国联邦 #乌克兰救援 跟踪报道：<br/>#小推车- 这是难民的运输“红细胞”。 为什么呢？来听一下志愿者 #尼尔先生 沟通交谈：这些装满用品的推车是为边境乌克兰那边排队的的人准备的，为了避免 #贩卖人口 事情发生， #乌克兰 边检人员必须非常小心的检查排队的人。<br/><br/>❤️We are the NEW CHINESE (#NFSC) who is taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP. <br/>We stand with the Ukrainians
-![img](https://media.gettr.com/group36/origin/2022/03/26/12/e8f96b63-0104-5768-9b2b-6806fb344531/out.jpg)
 
 ---
 
