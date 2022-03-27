@@ -2,39 +2,22 @@
 ---
 
 
-## 有声|美国将对俄罗斯实施新一轮制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240423/)
+## 视频|喜币躺平币一定是不可剥夺私人财富的创造者
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2240613/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据外媒3月24的消息，俄罗斯入侵乌克兰战争，已经持续一个月，为加大对俄罗斯的压力，美国宣布对俄罗斯的精英、立法者和国防公司实施新的一系列制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-324.png)
-将对俄罗斯的400多名个人和实体实施全面制裁，包括俄罗斯杜马下议院的328名议员、十几名俄罗斯精英和48家俄罗斯国防公司。
+制作：香草山视频部
 
-本次制裁将打击俄罗斯联邦储蓄银行负责人兼普京的顾问格雷夫、俄罗斯亿万富翁季姆琴科、他的公司和家庭成员，以及俄罗斯金融机构Sovcombank的17名董事会成员。
+在3月25日的大直播中，郭文贵先生表示，喜币和躺平币将会真正赋予中国人民铸币权，中国人只有在财务自由和拥有信仰的情况下才能获得解放。未来新中国联邦人一定会拥有一个不受任何人管理并且合法的货币。只有掌握了财富的权力，相信私人财富不可被掠夺，中国人才会获得安全感。
 
-据白宫称，被制裁的国防公司包括俄罗斯直升机公司、战术导弹公司、高精密系统公司、材料制造公司NPK Tekhmash等。
+早在2017年郭先生就曾说过，权力不能私有化，财富不能公有化，中共的习近平与俄罗斯的普京，将权力私有化导致了国家的灾难，各国对个人合法财富的控制和限制也会导致人类走向灾难。
 
+喜币与躺平币，一定是世界上最稳定、最安全、最快捷、最低成本、永远不可被剥夺的私人财富的创造者。中共的数字货币是一个巨大的骗局，任何被集权控制的数字货币或者法币，政府都可能让它们随时消失，并且不用承担任何法律责任。喜币和躺平币是未来的数字化区块链货币，拥有加密、不可重复、不可篡改、不可剥夺、点到点、无国界、无制约、无第三方、永恒存在等特征，是个人的真正财富。
 
+发稿：Daxia
 
-文字版原文：[美国将对俄罗斯实施新一轮制裁](https://gnews.org/zh-hans/2233801/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 
