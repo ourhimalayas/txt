@@ -2,42 +2,53 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237291/)
+## 拜登的华沙演讲的更多节选，该演讲被比作罗纳德-里根的传奇性演讲
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2237367/)
 
-整理：枳实
-美工：精灵蓝
+来源：NEXTA LIVE
+当地时间3月26日
+编辑：jake心锁
+![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-23-05-10-20-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/PHOTO-2022-03-27-07-40-14.jpg)
+- 制裁使卢布变成了灰烬，我们已经打击了俄罗斯经济的核心，所以他们无法为战争提供资金。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N25GZVUAF45LLEH0VM.png)图片：雅典娜农场设计组 精灵蓝
+
+- 这场战争对俄罗斯来说已经是一场失败。俄罗斯人生活在一个独裁者的统治之下，因为出来抗议而入狱。一个月内已经有20万俄罗斯人离开该国。
 
 
-雅典娜疫情更新（2022年 3月26日）
+- 俄罗斯希望我们减少北约在其边界附近的存在，但现在它已经增加了许多倍。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/MNAS9G@I11P54UA1ZTGN.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-329.png)
-[2022年3月26日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月26日改进.pdf)
 
-数据来源：
+- 美国将接收10万名来自乌克兰的难民。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+- 俄罗斯永远不会打败乌克兰。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+- 正在发生的事情是对二战后世界秩序的挑战。
 
-[covidlive.com.au](https://covidlive.com.au/)
 
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+#### **美国总统拜登在波兰华沙就俄乌冲突发表演讲摘要**
 
-发布：tianzhihuan
+1.拜登在华沙演讲的主要节选内容
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+2.西方需要为即将到来的民主与专制之间的长期斗争做好准备。
+
+3.俄罗斯人与现代世界隔绝。你们是一个21世纪的国家。现在你们是一个19世纪的国家。
+
+4.俄罗斯的寡头们是这场战争的设计师。我们已经从他们那里拿走了一切。
+
+5.俄罗斯人不是我们的敌人。普京不应该继续执政。
+
+6.欧洲应该摆脱俄罗斯的能源，美国准备为此提供帮助。
+
+7.几个世纪以来，乌克兰人一直在为自己的自由而战。
+
+8.普京设定了一个他不会实现的目标。
+
+9.美国军队在欧洲不是为了与俄罗斯武装部队交战。
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

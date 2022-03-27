@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/27/2022 1:56 AM (UTC)`
+
+King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s War Room: : We are doing what the Chinese government should have been doing.<br/><br/>班农战斗室采访新中国联邦在乌克兰救援的志愿者——精粮：我们正在做中国政府本应该做的事情
+![img](https://media.gettr.com/group46/getter/2022/03/27/01/39e262ee-c048-ece8-c210-91bdae04707f/out.jpg)
+
+---
+
 `@miles 3/27/2022 1:07 AM (UTC)`
 
 2022.03.26 晚《新中国联邦新闻访谈》俄乌最新局势分析；中共俄乌局势大外宣造假登峰造极；中共宣传疫情封城救助，网民发视频称根本没补贴；德国病理学家的发现Covid 疫苗损伤证据
@@ -151,13 +158,6 @@
 
 【G|Clubs 2022年会G|Talks中奖名单】<br/><br/>奖品1⃣️0⃣️：GF 支持者套装 (单价: $440.00)<br/>奖品数量：100<br/>获奖者如图<br/><br/>恭喜中奖者！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 by G|Clubs Sweepstakes Winner’s List】<br/><br/>Prize 1⃣️0⃣️: GFASHION Supporter Outfit (Unit Value: $440.00) <br/>Number of Prizes: 100<br/>The winners are as following:<br/><br/>Congratulations to the winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
 ![img](https://media.gettr.com/group29/getter/2022/03/26/16/30b86be3-9d67-4860-ccb9-da12f574e62b/3ab84850a5ace50c7351b8e19b73f5b1.jpg)
-
----
-
-`@miles 3/26/2022 4:23 PM (UTC)`
-
-【G|Clubs 2022年会 G|Talks】<br/><br/>恭喜所有中奖会员！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁<br/><br/>【G|Talks 2022 Anniversary by G|Clubs 】<br/><br/>Congratulations to all winners！🎉🎉🎉🎉🎉🎉🎉🎁🎁🎁🎁🎁🎁🎁
-![img](https://media.gettr.com/group24/getter/2022/03/26/16/dc096fd6-11ce-7710-94e6-4eb918a6fbf6/out.jpg)
 
 ---
 

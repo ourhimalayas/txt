@@ -15,38 +15,38 @@
 
 ---
 
-### [20220325文贵大直播：性情的本质就是灵魂和肉体结合的结果，中国人需要找到信仰的钥匙](/content/gnews/1/README.md)
+### [乌西大城利维夫遭袭击 燃料库被毁酿5伤](/content/gnews/1/README.md)
+ ` 蓝莲花农场`
+
+### [20220325文贵大直播：性情的本质就是灵魂和肉体结合的结果，中国人需要找到信仰的钥匙](/content/gnews/2/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220325文贵大直播：房地产是中共给中国人拷的最大的锁拷](/content/gnews/2/README.md)
+### [20220325文贵大直播：房地产是中共给中国人拷的最大的锁拷](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [乌克兰战争让东南亚经济倍感压力](/content/gnews/3/README.md)
+### [乌克兰战争让东南亚经济倍感压力](/content/gnews/4/README.md)
  ` 日本東京方舟農場`
 
-### [拜登称普京“不能继续掌权”](/content/gnews/4/README.md)
+### [拜登称普京“不能继续掌权”](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [20220325文贵大直播：喜币让人真正实现劳动获得的财富不受掠夺](/content/gnews/5/README.md)
+### [20220325文贵大直播：喜币让人真正实现劳动获得的财富不受掠夺](/content/gnews/6/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声|俄乌战争后效应，外资大规模撤离大陆](/content/gnews/6/README.md)
+### [有声|俄乌战争后效应，外资大规模撤离大陆](/content/gnews/7/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [20220325文贵大直播：中国房地产市值100万亿美元是GDP的十倍 必将崩塌](/content/gnews/7/README.md)
+### [20220325文贵大直播：中国房地产市值100万亿美元是GDP的十倍 必将崩塌](/content/gnews/8/README.md)
  ` Tokyo Sakura Video Group`
 
-### [站起来说不！——来自新冠疫苗受害者的呐喊](/content/gnews/8/README.md)
+### [站起来说不！——来自新冠疫苗受害者的呐喊](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [北约领导人已准备好“大幅增兵”以应对普京对乌克兰的战争](/content/gnews/9/README.md)
+### [北约领导人已准备好“大幅增兵”以应对普京对乌克兰的战争](/content/gnews/10/README.md)
  ` 日本東京方舟農場`
 
-### [20220325文贵大直播：所有中国飞机里面都装了一个额外的即时回传录音录像装置](/content/gnews/10/README.md)
+### [20220325文贵大直播：所有中国飞机里面都装了一个额外的即时回传录音录像装置](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
-
-### [有声|随着西方制裁措施加码,汇丰加强对全球俄罗斯客户的审查](/content/gnews/11/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [确认：失事的东航飞机上132名乘客全部遇难](/content/gnews/12/README.md)
  ` 蓝莲花农场`
@@ -90,68 +90,68 @@
 ### [拜登总统: 我给乌克兰人民的信息,我们与你们站在一起。](/content/gnews/25/README.md)
  ` 美国政要直译推`
 
-### [全球疫情疫苗数据更新](/content/gnews/26/README.md)
+### [拜登的华沙演讲的更多节选，该演讲被比作罗纳德-里根的传奇性演讲](/content/gnews/26/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [全球疫情疫苗数据更新](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月26日早](/content/gnews/27/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月26日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [樱花时政┃威慑中共国的时间不多了](/content/gnews/28/README.md)
+### [樱花时政┃威慑中共国的时间不多了](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谷歌、亚马逊、奈飞、脸书：与德国东部新的直接连接](/content/gnews/29/README.md)
+### [谷歌、亚马逊、奈飞、脸书：与德国东部新的直接连接](/content/gnews/30/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [樱花时政┃塔利班禁止无男性监护人的女性乘坐航班](/content/gnews/30/README.md)
+### [樱花时政┃塔利班禁止无男性监护人的女性乘坐航班](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [也门胡塞武装暂停对沙特阿拉伯的袭击三天](/content/gnews/31/README.md)
+### [也门胡塞武装暂停对沙特阿拉伯的袭击三天](/content/gnews/32/README.md)
  ` Shuizhuyu`
 
-### [中共国经济崩塌信号——京东大裁员](/content/gnews/32/README.md)
+### [中共国经济崩塌信号——京东大裁员](/content/gnews/33/README.md)
  ` 加拿大温哥华英里农场`
 
-### [【商见你我他】第47期新闻简讯（三）](/content/gnews/33/README.md)
+### [【商见你我他】第47期新闻简讯（三）](/content/gnews/34/README.md)
  ` MayflowerBiz`
 
-### [生不起！中共国人口出生率下降冲击医院产科](/content/gnews/34/README.md)
+### [生不起！中共国人口出生率下降冲击医院产科](/content/gnews/35/README.md)
  ` 加拿大温哥华英里农场`
 
-### [堪萨斯州参议院投票允许医生为新冠开羟氯喹和伊维菌素](/content/gnews/35/README.md)
+### [堪萨斯州参议院投票允许医生为新冠开羟氯喹和伊维菌素](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [欧盟引入 《数字市场法》加强IT公司监管](/content/gnews/36/README.md)
+### [欧盟引入 《数字市场法》加强IT公司监管](/content/gnews/37/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [俄罗斯暗示可能将退守乌东部地区](/content/gnews/37/README.md)
+### [俄罗斯暗示可能将退守乌东部地区](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [用脚投票——著名基金经理清仓A股和港股](/content/gnews/38/README.md)
+### [用脚投票——著名基金经理清仓A股和港股](/content/gnews/39/README.md)
  ` 加拿大温哥华英里农场`
 
-### [中共国茅台酒价“崩跌”](/content/gnews/39/README.md)
+### [中共国茅台酒价“崩跌”](/content/gnews/40/README.md)
  ` 加拿大温哥华英里农场`
 
-### [沙特石油设施遭攻击可能进一步导致油价上涨](/content/gnews/40/README.md)
+### [沙特石油设施遭攻击可能进一步导致油价上涨](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [三大巨头银行集团全面停止与俄罗斯最大银行的美元交易…日企和员工使用占多](/content/gnews/41/README.md)
+### [三大巨头银行集团全面停止与俄罗斯最大银行的美元交易…日企和员工使用占多](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰总统表示粮食出口不足将打击许多国家](/content/gnews/42/README.md)
+### [乌克兰总统表示粮食出口不足将打击许多国家](/content/gnews/43/README.md)
  ` 纽约香草山MOS02`
 
-### [乌俄首次换囚！19名蛇岛「X俄」勇士获释](/content/gnews/43/README.md)
+### [乌俄首次换囚！19名蛇岛「X俄」勇士获释](/content/gnews/44/README.md)
  ` 蓝莲花农场`
 
-### [乌俄战争以来首次！拜登会见乌克兰外长防长](/content/gnews/44/README.md)
+### [乌俄战争以来首次！拜登会见乌克兰外长防长](/content/gnews/45/README.md)
  ` 蓝莲花农场`
 
-### [Gclub年会26日举办 奖品丰厚](/content/gnews/45/README.md)
+### [Gclub年会26日举办 奖品丰厚](/content/gnews/46/README.md)
  ` GTV News Talk`
-
-### [乌国防部脸书：俄军战损约16，400名人员，575辆坦克](/content/gnews/46/README.md)
- ` 日本东京方舟农场`
 
 ### [樱花头条┃美国对中共官员采取限制性签证发放](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
