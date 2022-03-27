@@ -2,33 +2,37 @@
 ---
 
 
-## 解冻部长级交流前，澳总理拒绝会晤中共国新任大使
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2238256/)
+## 沙俄吞并中华国土的历史简述
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2238286/)
 
-![莫里森将就增强澳洲国防发表演讲10年划拨1850亿美元](https://s.rfi.fr/media/display/ad849350-96c1-11ea-85b1-005056bff430/1589515135122_GBV2OJ8O2.1-2.jpg)澳大利亚总理莫里森（资料图）
-据美国之音3月27日报道，澳大利亚总理斯考特∙莫里森表示，在北京解冻两国部长级交流之前，他不适合会晤中共国新任驻澳大利亚大使肖千，并对中共国加强与太平洋岛国所罗门群岛安全关系表示关切。
+作者：香草山写作组 – 静言
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中俄两国领土原本并不接壤。17世纪，沙俄东越乌拉尔山脉，征服西伯利亚后，两国成为邻国。自彼得一世开始，沙俄将扩张范围指向我国的蒙古、黑龙江流域和西北地区。
 
-中共国与澳大利亚的关系近年来日益恶化。北京新任驻澳大利亚大使肖千今年1月底上任后，态度友善许多。肖千此前会晤了澳大利亚外长马里斯∙佩恩，但是莫里森拒绝与肖千会晤，并表示，除非两国首先解冻部长级交流。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-38.png)
 
-太平洋岛国所罗门群岛将与中共国加强安全合作伙伴关系。莫里森表示，太平洋国家一直作为一个大家庭集体出现，澳大利亚是其中一员，新西兰也是。澳大利亚是所罗门群岛单一最大的发展伙伴。莫里森和反对党工党领袖阿尔巴尼斯都对中共国可能将军事安全之手伸到澳大利亚的后院表示关切。
+1689年9月，沙俄与清政府签订《尼布楚条约》。清政府代表在谈判时一再退让，把从贝加尔湖到外兴安岭一线，南到额尔古纳河，包括尼布楚在内的大片领土让与俄国，加上1727年的《布连斯奇界约》，贝加尔湖周围地区总共约100万平方公里的土地，均被让与俄国。
 
-因为澳大利亚对中共国在香港问题和病毒事件的质疑，导致中澳关系破裂，中共国对澳洲采取一系列报复措施。中共的无赖嘴脸在世界上臭名昭著，面对质疑不敢接受调查，一言不合就翻脸。但事实终究是掩盖不住的，病毒溯源一定会进行下去，香港也会在未来劫后重生，永远灭亡的是中共。
+1790年，约十万平方公里的库页岛，被沙俄暗中吞并。1840年，清朝原属邦哈萨克地区，被沙俄侵占，该邦面积约百万平方公里。1840年，沙俄并吞原清朝属邦布鲁特，约十万平方公里。1858年，沙俄通过中俄《瑷珲条约》，迫使清政府割让了黑龙江以北、外兴安岭以南60多万平方公里的中国领土。1860年，又通过中俄《北京条约》，进一步把乌苏里江以东40万平方公里的土地完全划归俄国。
 
-新闻参考链接：[https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html](https://www.voachinese.com/a/scott-morrison-rules-out-meeting-with-chinese-ambassador-until-beijing-s-diplomatic-freeze-starts-to-thaw-20220326/6502819.html)
+1864年，沙俄依据中俄《北京条约》的有关规定，强迫清政府签订《中俄勘分西北界约记》，割占了巴尔喀什湖以东、以南44万多平方公里的中国领土。同时，新疆边界有一些零星的领土在条约之外被俄国强占，现归属中亚各国。
 
-编辑：胖丁
+1881～1884年，沙俄又通过《中俄改订条约》，即《伊犁条约》，及其续签的5个子条约，再次侵占了中国西部7万多平方公里的领土。1895年，沙俄联合英国瓜分新疆极西，帕米尔高原地区的领土，沙俄获得其中约1万平方公里。
 
-* * *
+1900年，沙俄出兵侵占江东三十六屯约3600平方公里的土地，屠杀6000多名中国居民。1911年，沙俄唆使外蒙古独立，面积达157万平方公里，中国因俄国而失去外蒙古。1921年，沙俄唆使面积达17万平方公里的唐努乌梁海地区独立，并加紧实施殖民扩张计划，直到苏联时期，唐努乌梁海正式被其吞并。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：
+
+- [俄罗斯占领中国的150万平方千米的土地，什么时候可以收回？](https://3g.163.com/dy/article/DUTLHF0F0523KDC7.html?referFrom=google&amp;spss=adap_dy)
+- [沙俄和苏联割占中国领土列表](https://zh.m.wikipedia.org/wiki/%E6%B2%99%E4%BF%84%E5%92%8C%E8%8B%8F%E8%81%94%E5%89%B2%E5%8D%A0%E4%B8%AD%E5%9B%BD%E9%A2%86%E5%9C%9F%E5%88%97%E8%A1%A8)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+总编：飞虹
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
