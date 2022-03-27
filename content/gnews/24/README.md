@@ -2,33 +2,33 @@
 ---
 
 
-## 乌克兰击毙第七位俄高级将领 俄哑弹率高达六成
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239470/)
+## G-FASHION开始接受使用HPAY以HDO购物
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239438/)
 
-撰稿：华盛顿DC农场-自由信仰；纽约香草山农场-文鹰
+撰稿：纽约香草山医疗部-云豹；银河系农场-骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
-3 月 25 日，乌克兰媒体报道，在赫尔松附近的乔尔诺巴耶夫卡，乌克兰军方击毙了俄军第49集团军司令雅科夫·列赞采夫中将。乌克兰总统办公室主任顾问阿列斯托维奇证实了这个消息。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3202.png)图片来自：https://i0.wp.com/groundreport.in
-根据乌克兰的报道，此前已经有六名俄军将领被乌克兰军方击毙。在美国和北约国家的援助下，先进的高科技武器，高效的情报能力，以及人工智能AI技术的应用，进入乌克兰战场的俄罗斯高级将领几乎轻易就被精准定位，继而斩首。列赞采夫是第七名在乌克兰被击毙的俄军高级将领。
+3月25日，郭文贵先生在大直播中表示，G-FASHION公司从3月24日开始，正式接受消费者使用HPAY支付平台以H DOLLAR数字货币购买该公司设计出品的高品质时尚服饰，创下了数字货币在使用、流通上的新的里程碑。从后台战友的演示中我们可以看到，操作很快就可以完成，能给客户带来完美的购物体验。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3200.png)
+第一代虚拟币比特币打开了人类非实体性货币的视野，但是它所标榜去中心化的特性也使其沦入无人管理、无人负责的困境，只被炒家拿来做为投机金融系统的工具。 第二代虚拟币虽然改善了比特币的少许缺点，但一样无法满足做为流通性货币的要求。
 
-另一方面，三名美国情报官员透露，美国评估俄罗斯攻击乌克兰的精确制导导弹，有高达60%的失败率。乌克兰社交媒体也证实，他们发现未引爆俄军巡航导弹的比例非常高。俄罗斯在高科技领域的落后，与乌克兰的顽强抵抗，导致普京一周拿下乌克兰的闪电战计划落空，陷入了乌克兰的边境胶着战的泥坑。
+喜联储发行的喜美元HDO及喜币HCN，采行严格的KYC审核制度，在开户阶段就先排除了有问题的客户。并用新的区块链技术来达到保障客户隐私及快速转款的实用性要求。 这是目前唯一具有区块链技术加密优点，又兼具市场实用流通性及可监管性的数字货币。 此次G-FASHION开放使用HPAY及H DOLLAR的方式支付货款，将开启数字货币的新纪元。
+
+从人与人之间的转账，到HPAY可以直接用于支付GFASHION，可以说是爆料革命的一小步，但却是人类进入数字货币时代的一大步。传统银行以及拥有铸币权和定价权的主权国家，将不再拥有控制人类财富和人身安全的能力，人类终将得到解放。
 
 参考链接：
 
-[Ще один генерал: ЗСУ знищили командувача 49-ї армії РФ – радник Єрмака](https://www.pravda.com.ua/news/2022/03/25/7334482/)
+[如何使用HPay在GFashion网站上买商品](https://gettr.com/post/p11w6er414b)
 
-[A 60% Dud Rate for Precision-Guided Munitions Explains a Lot of Russia’s Problems in Ukraine](https://redstate.com/streiff/2022/03/24/a-60-dud-rate-for-precision-guided-munitions-explains-a-lot-of-russias-problems-in-ukraine-n540644)
+[2022年3月25日 文贵大直播](https://gettr.com/post/p11tme3b4de)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1.png)
 
-编辑：Ivy001
+编辑/总编/审核: 飞虹
 
-总编：飞虹
-
-审核：木木
-
-校对/发稿：浪迹天涯
+校对/发稿: 浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

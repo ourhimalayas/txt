@@ -2,24 +2,39 @@
 ---
 
 
-## 捷克参议员呼吁改革联合国：决不能允许俄罗斯捣乱
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2239655/)
+## COVID-19疫苗副作用集萃（1）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2239689/)
 
-**撰稿：日本东京方舟农场 北极**
+**整理：**雅典娜情报组（BENJ1）
+**编辑：**翼族
 
-据kyivpost网站3月26日报道，捷克参议员帕维尔·费舍尔（Pavel Fischer）周六接受采访时表示，俄罗斯联邦违反了《联合国宪章》，对乌克兰进行军事侵略，必须对联合国做出改革。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-32.png)捷克参议院外交事务委员会主席，前总统候选人帕维尔·菲舍尔。（图片来自kyivpost）
-捷克参议院外交事务委员会主席、前总统候选人帕维尔·费舍尔在接受乌克兰市政厅报（Guildhall）采访时说，“俄罗斯联邦违反国际法的所有准则，对乌克兰进行军事侵略，违反了《联合国宪章》。联合国的创建是为了避免欧洲的战争。“
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/8722907_121220-cc-covid-vaccine-side-effects-img.png)ABC7
 
-费舍尔指出，俄罗斯做为侵略者无权阻止联合国讨论这样一场非法的军事冲突，许多平民无缘无故地死亡，马里乌波尔市已成为世界末日的象征。联合国必须做出改革。”
 
-费舍尔谴责称，俄罗斯军队正在乌克兰犯下战争罪，并将在国际法庭受到审判。
+**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-参考链接：
-[https://reurl.cc/veZmWa](https://reurl.cc/veZmWa)
+**疫情|辉瑞疫苗副作用 打完的大家还好吗？**
 
-总编： 老孙
-校对发布：Linda
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-160.png)小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-71.png)小红书
+
+
+1. 在辉瑞试验研究的46,000参与者中，有42,000人有不良反应，1200人死亡。FDA的规定是，在接受一种实验性试验药物后30天内只要有一个人死亡就会结束试验。但是辉瑞疫苗继续使用。
+2. 我因为不打Booster【**注：**加强针】失业了，讽刺的是，打了Booster的同事们，全阳了，幼儿园也关门了（不是因为要隔离，而是因为没老师），我工作的最后两天全天戴N95，不停洗手，用酒精喷雾喷自己的衣服，用医用级别的消毒剂疯狂消毒工作地方，开窗通风。然后午休时间坐在车里吃饭，然后换新口罩。我觉得认真做好防护工作，比拿着生命健康冒险打Booster更有效。
+3. 我打完两针以后，心脏跳的很慢，心慌，胸闷（fluttered heart/shortness of breath/这是辉瑞官方介绍给的副作用），在美国CDC网站，说第三针至少半年以后打，NZ傻Jacinda【**注：**新西兰总理】不管大家死活，强制大家扎，希望大家都注意防护，注意安全。
+
+
+**参考链接：**[疫情|辉瑞疫苗副作用 打完的大家还好吗？](http://www.xiaohongshu.com/discovery/item/6222a4e3000000000102fb70?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648209097)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
