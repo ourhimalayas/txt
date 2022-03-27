@@ -2,36 +2,25 @@
 ---
 
 
-## 英国制星际导弹已准备好部署在乌克兰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2239070/)
+## 共产党做局榨干中国人民全部血汗钱
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2239143/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-35.png)
+在3月25日的大直播中，郭文贵先生表示，中共的房地产崩溃后将一文不值，其内幕则是共产党做局，通过银行和房地产榨干中国人的最后一滴血汗钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3197.png)
+郭先生说，中共国14亿人口，15万亿美元的GDP，房地产实际为100万亿美元，是GDP的8-10倍。美国房地产总值仅有30万亿美元，是GDP的约1.5倍。当年日本房地产崩塌时总值才是GDP的3倍左右，崩塌后国内经济数十年难以恢复。即使在2008年的世界经济危机中，美国房地产总量也没有超过GDP的3.5倍。
 
-翻译/编辑：小红帽
+中共国的房地产崩塌时房产将一文不值，不但如此，共产党还要逼迫老百姓继续偿还银行贷款，把人民逼上绝路。中共的一党专政让它能够在背后做局，即共产党卖地、地产商卖房、银行放贷，榨干中国人的每一分钱。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7197356932_5c701e93f6_b.jpg)图片来源：https://eurasiantimes.com
+参考链接：https://www.gettr.com/post/p11x05xf7c6
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-1-1.png)
 
-根据Mail Online3月26日报道，本·华莱士（Ben Wallace）说，英国制造的星际（Starstreak）导弹已准备好在乌克兰部署，很快就会即击落普京的喷气式飞机。
+编辑/总编/审核: 飞虹
 
-乌克兰将首次在冲突中部署英国制造的防空导弹，这可能会使弗拉基米尔·普京（Vladimir Putin）因灾难性入侵而受到进一步羞辱。
-
-国防部长本·华莱士周日告诉《每日邮报》，星际系统–一种肩扛式导弹，以超过音速三倍的速度飞行，可以击落低空飞行的敌方喷气式飞机，已经准备好立即投入使用。
-
-消息传出之际，乌克兰总统泽连斯基（Volodymyr Zelensky）声称普京正在缩减入侵规模，因为他受到“强有力的打击”，并失去了超过16,000名士兵。
-
-华莱士先生说，第一批乌克兰军队已经接受过训练，现在正与星际系统一起部署。英国“比其他任何人都做得更多”来帮助这个饱受战争蹂躏的国家。
-
-新闻来源：[British-made Starstreak missiles are ready to be deployed in Ukraine to take down Putin’s jets imminently, says Ben Wallace](https://www.dailymail.co.uk/news/article-10655657/British-Starstreak-missiles-ready-deployed-Ukraine.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-35.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

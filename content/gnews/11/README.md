@@ -2,26 +2,22 @@
 ---
 
 
-## 民调显示有4成家长担心口罩会伤害孩子的身心健康
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2239198/)
+## 乌克兰总统泽连斯基计划在奥斯卡颁奖典礼上发表演讲
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2239266/)
 
 #### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-3-5.jpg)图片来源：网关专家
-《国会山报》（The Hill）和《新闻极限》（Newsmax）报道称，政治新闻网站Politico与哈佛大学进行的一项民意调查发现，大概有40%的家长认为戴口罩对孩子健康有害，妨碍了他们的社会学习和互动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-135.jpg)图片来源：纽约邮报
+据《网关专家》（Gateway Pundit）3月26日报道，有报道说前演员、现任乌克兰总统弗拉基米尔·泽连斯基 (Volodymyr Zelenskyy) 一直在与美国电影艺术与科学学院（The Academy of Motion Picture Arts and Sciences）进行谈判，目的是在3月27日的奥斯卡颁奖典礼直播中视频亮相。
 
-这项在3月1日至3月7日期间进行的调查采访了478名有孩子在上学的家长。40%的家长说学校的口罩强制令伤害了孩子的整体就学经验，近50%的家长认为没有什么区别，11%的人说口罩对孩子有益处。
+据《纽约邮报》（New York Post）报道，学院官员仍在就是否真的允许泽连斯基短暂出现在颁奖典礼节目中展开辩论。目前尚不清楚是直播连线还是播放视频讲话。消息人士透露，争论的焦点是，随着俄乌冲突持续恶化，奥斯卡颁奖典礼是否应该保持非政治性。
 
-在认为戴口罩会伤害孩子的家长中，46%的家长觉得戴口罩影响了学生的社会学习和互动，约39%认为口罩影响了孩子的情绪和心理健康。
+据说负责电视转播今年奥斯卡颁奖典礼的美国广播公司（ABC）已表态支持让泽连斯基露面发表声明。与此同时，出生于乌克兰的美国女演员米拉·库尼斯（Mila Kunis）预计将在颁奖典礼上发表讲话。库尼斯与丈夫艾希顿·库奇（Ashton Kutcher）已经为乌克兰难民筹集了3500万美元。泽连斯基此前对库奇和库尼斯的筹款活动表示感谢。
 
-哈佛大学陈曾熙公共卫生学院的卫生政策和政治分析名誉教授罗伯特·布兰登(Robert Blendon)表示：“即使在民主党掌权的州或地区，也有相当数量的家长认为口罩政策正在伤害他们的孩子。如果是伤害孩子的事情，家长的反应会特别强烈，任何影响家人的事情都会不成比例的改变人们思考事情的方式。”有52%的独立家长表示，为了孩子的安全，没有必要戴口罩。
+3月21日，泽连斯基在推特上分享了自己与这对好莱坞夫妇参加视频会议时的照片。他写道：“库奇和库尼斯是首批回应我们悲痛的人之一。他们已经筹集了3500万美元，并将其用以帮助难民。感谢他们的支持，他们的决心令人印象深刻，他们鼓舞了世界。”
 
-全美各地已解除口罩强制令，多数学区也不再要求学生戴口罩。总的来说，当被问及是否有必要让孩子在学校戴口罩以免感染新冠病毒及其变种奥米炕时，家长们的意见基本一致。共有51%的人说有必要；47%的人说没有必要；还有2%的人不知道。
-
-拜登政府正密切观察新冠奥米炕亚变种BA.2在欧洲肆虐的情况，白宫官员警告说，可能有必要恢复戴口罩等防疫措施。新冠疫情爆发以来，校园口罩令向来是个争议话题，部分家长甚至因此抗议校方的决定。支持校园口罩强制令的人士则认为，这能保护学生避免感染新冠病毒，即便学生已经接种了新冠疫苗。
-
-新闻来源：[4 in 10 parents say mask-wearing in school harmed their children: poll](https://thehill.com/blogs/blog-briefing-room/news/599882-4-in-10-parents-say-mask-wearing-in-school-harmed-their?rl=1)[46% of Parents Believe School Mask Mandates Hurt Students’ Social Skills](https://www.newsmax.com/newsfront/school-mask-mandates-children/2022/03/25/id/1062934/)
+新闻来源：[Ukrainian President Zelenskyy Negotiating Speaking at the Oscars](https://www.thegatewaypundit.com/2022/03/ukrainian-president-zelenskyy-negotiating-speaking-oscars/)
 
  
 

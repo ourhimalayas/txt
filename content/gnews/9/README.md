@@ -2,8 +2,8 @@
 ---
 
 
-## 喜币已进入实体店使用阶段
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239226/)
+## 喜币从数字货币到实体交易
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2239286/)
 
 台灣寶島農場
 
