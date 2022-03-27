@@ -2,22 +2,38 @@
 ---
 
 
-## 中共国近20家房企以各种原因延迟披露年报
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2241491/)
+## 乌称俄企图分裂乌克兰 要求西方提供更多武器援助
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241532/)
 
-编辑：文宝
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F3dd2e62aj00r9cjuw0020c000u000lig.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-南方+房产频道记者获悉，又有更多南方产业智库上市房企60健康指数重点监测要延迟披露年报了。3月25日，大悦城（000031.SZ）发布公告称，大悦城控股集团股份有限公司原定于2022年3月30日披露2021年年度报告，因受新冠肺炎疫情影响，2021年度审计工作和年度报告编制工作预计完成时间晚于预期。为确保公司信息披露的完整性和准确性，经向深圳证券交易所申请，公司2021年年度报告披露时间由2022年3月30日变更为2022年4月12日。
+翻译与编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《路透社》乌克兰利沃夫3月27日报道，周日，**乌克兰军事情报部门负责人基利洛.布达诺夫(Kyrylo Budanov)表示，俄罗斯希望将乌克兰一分为二，这是试图在乌克兰建立朝鲜和韩国。他誓言要发动“全面的”游击战，以防止乌克兰被瓜分。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰援助-e1648413653347.jpg)3月27日，救援人员在利沃夫一处被巡航导弹击中的燃料储存设施处工作（路透社）
+周日，**乌克兰总统泽伦斯基敦促西方向乌克兰提供坦克、飞机和导弹，帮助乌克兰抵御俄罗斯军队**。基辅政府表示，俄罗斯军队正越来越多地瞄准燃料和粮食仓库。
 
-就在大悦城发布公告同一天，中国奥园（03883.HK）亦发布公告称，2021年度业绩可能无法遵守上市规则第13.49(1)条的规定于2022年3月31日前刊发。
+报道称，**经过4周多的俄乌冲突,俄罗斯没能占领一家乌克兰的重大城市**。而俄罗斯周五表示要缩减其野心，将专注于确保乌克兰东部的分裂分子地区。
 
-根据媒体公开报道，截至目前，以种理由申请或预警延期发布财报的涉房类企业已达近20家，包括大悦城、奥园、新力控股、融信中国、融信服务、富力地产、世茂集团、世茂服务、融创中国、中国恒大、恒大物业、恒大汽车、景业名邦、佳兆业、明发集团、宝龙地产、宝龙商业、三盛控股、阳光100中国等。
+周日，**自称为卢甘斯克人民共和国的一名当地领导人表示，该地区可能很快就是否加入俄罗斯举行公投，**就像2014年俄罗斯占领乌克兰半岛后克里米亚发生的那样。
 
-原文链接：[https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w\_house](https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w_house)
+当时，克里米亚人以压倒多数投票决定脱离乌克兰，加入俄罗斯，但是世界上很多国家拒绝承认这一投票。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-33.png)DISCORD
+报道指出，**乌克兰外交部发言人奥列格·尼科连科（Oleg Nikolenko）驳斥了有关乌克兰东部举行公投的说法。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄外交部发言人.jpeg)乌克兰外交部发言人奥列格·尼科连科（图片来源：网络）
+尼科连科称，**所有在临时占领地区举行的虚假公投都是无效的，将没有法律效力。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-32.png)GETTR
+自俄罗斯入侵乌克兰以来，联合国已经证实，**乌克兰全国有1119名平民死亡，1790人受伤，但表示实际死亡人数可能更高。**乌克兰周日表示，**到目前为止，冲突已造成139名儿童死亡，超过205人受伤。**
+
+新闻来源链接：
+
+[Ukraine says Russia wants to split nation, calls for more arms | Reuters](https://www.reuters.com/world/europe/rockets-strike-ukraines-lviv-biden-says-putin-cannot-remain-power-2022-03-27/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+
 
  
 

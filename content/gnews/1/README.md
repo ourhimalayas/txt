@@ -2,24 +2,35 @@
 ---
 
 
-## 樱花时政┃中共向斯里兰卡提供紧急粮食援助 党造大饥荒将再现
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2241656/)
+## 美财长耶伦赞同加密货币的创新称需要被监管
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
 
-撰稿：东京樱花团/加一颗稻草
+翻译与编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
+据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
 
-中共国驻斯里兰卡大使戚振宏昨天（25日）说，应斯里兰卡政府请求，考虑到斯里兰卡眼下缺粮困难，中共国政府决定向斯提供紧急粮食援助。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-56.jpg)[图片来源](https://kknews.cc/zh-my/travel/o39zob5.html)
-2022年是中斯建交65周年和《米胶协定》签署70周年。据了解，1952年12月18日，中共国与斯里兰卡（旧称锡兰）政府签订第一个《中国与锡兰关于橡胶和大米的五年贸易协定》（俗称《米胶协议》），即我国每年以27万吨大米换取锡兰5万吨橡胶。该协定从1952年执行到1982年，长达30年。其中，橡胶的进口由中国进出口公司（中国中化集团公司前身）具体负责。其中包括1958年至1962年大饥荒期间。
+周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
 
-如今由于俄罗斯入侵乌克兰的战争的影响，世界粮食危机迫在眉睫，中共国内粮食短缺更加严峻，国内粮食需求每年缺口30%的情况下，中共不顾国内百姓面临的生存需求继续出口粮食，依然进行“宁与外鬼,不给家奴”魔鬼统治。必将会给老百姓带来饥饿和贫困的灾难。
+她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
 
-郭先生在大直播中无数次的预警粮食危机即将爆发，战友们一定要做好准备。俗话说“福无双至，祸不单行”。历史上瘟疫、天灾、战争、饥荒都是互相伴随着发生，这次也不会例外。祈愿相信并信仰“正道主义”的战友远离灾难，家人平安。
+她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
 
-消息来源：[中国将向斯里兰卡提供紧急粮食援助](https://www.zaobao.com.sg/realtime/china/story20220326-1256360)
+展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
+
+新闻来源链接：
+
+[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

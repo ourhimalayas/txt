@@ -2,40 +2,26 @@
 ---
 
 
-## 有声|Gclub年会26日举办 奖品丰厚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2240666/)
+## 俄乌开战后 拜登首次会见乌克兰外长防长
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241193/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月25日文贵大直播透露，2022年的Gclub年会将在3月26日举办。年会将举办抽奖活动，已在线登记参与抽奖的卡约8000张，奖品金额大约200万美元，数量超过1000个。
-![](https://cdn.discordapp.com/attachments/714848986988544060/931788430185222154/2021-Huracan_EVO_Fluo_Capsule-5.png)
-郭先生介绍，按金额计算，美国的抽奖活动普遍来说中奖率为万分之一，最高的可以达到千分之一。有推友计算得知，Gclub年会的中奖率是这个最高中奖率的5（全部买的是5万卡）到25倍（全部买的是1万卡），而且Gclub会员每年都可以抽奖。
+作者：纽约磐石农场—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒报道，3月26日，美国总统拜登在波兰首都华沙，会见了乌克兰外长与防长。这是自俄乌战争爆发以来，拜登首次与乌克兰高层面对面会谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.03.png)
+据悉，拜登总统在国务卿布林肯、国防部长奥斯汀的陪同下，在华沙的万豪酒店会见了乌克兰外交部长库列巴、乌克兰国防部长列兹尼科夫。
 
-郭先生表示，相比于中共国的福利彩票等把奖品都私下安排好的假的抽奖活动，Gclub年会的抽奖是真实的，有很高的命中率，每个人都可以亲身体验到抽奖的快乐。
+另据报道，拜登将在会谈之后发表重要演说。白宫安全顾问苏利文表示，拜登总统的演讲包括未来挑战的紧迫性、乌克兰战事意味着什么，以及自由世界团结面对俄罗斯侵略的重要性等内容。
 
-分析人士指出，由于Gclub会员能够以折扣价购买GFashion，而随着喜币的流通进入GFashion等全球实体店，G系列正在产生意义重大的联动效应。
+参考链接：[烏俄衝突以來首次 拜登會見烏克蘭外長防長](https://news.ltn.com.tw/news/world/breakingnews/3872880)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-
-文字版原文：[Gclub年会26日举办 奖品丰厚](https://gnews.org/zh-hans/2235926/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+编辑：文真
+总编：Zion文恩
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,31 @@
 ---
 
 
-## 堪萨斯州允许将伊维菌素和羟氯喹作为治疗中共病毒的药物
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2239778/)
+## 普京已经开始清洗他的内部圈子！
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2239872/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Kansas-ivermectin-hydroxychloroquine-feature.jpg)
-3月25日周四，堪萨斯州参议院通过一项投票，允许医疗保健商开具伊维菌素和羟氯喹作为治疗中共病毒的药物。
+编译：波士顿五月花—-思澈
 
-该法案还要求托儿所和公立学校批准家长因宗教豁免不给孩子接种中共病毒疫苗的请求，且不深究对这种宗教的虔诚度。
+一切都没有按普京大帝的计划进行，俄罗斯的军事失败显示出俄罗斯领导层的裂痕。
 
-据悉此前由于美国FDA的规定，很多医生和药剂师拒绝使用伊维菌素和羟氯喹作为治疗中共病毒的药物，尽管这两种药物是非常有效的。曾经为感染中共病毒的患者开具伊维菌素的医生还被调查。堪萨斯州该项法案目前已经提交众议院。新罕布什尔州已经通过类似法案。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/E845C09C-E67E-49EB-A764-9D870F48142D.jpeg)
 
-撰稿、发布：骄子
+俄罗斯入侵乌克兰已经一个月还没有实现普京的既定计划，随着入侵的拖延，普京已经开始清洗他的内部圈子。
 
-* * *
+俄罗斯国民警卫队负责人罗曼·加夫里洛夫已被普京解职，负责在乌克兰招募间谍和分散军事行动注意力的最高情报官员及其副手都已被软禁，甚至被认为普京的接班人俄罗斯国防部长绍伊古处境艰难。
 
-欢迎订阅我们的GNews账号：
+一些与普京关系密切的人已经公开反对这场战争，一群俄罗斯军官表示，入侵乌克兰是“毫无意义和极其危险的”，并且威胁到俄罗斯的未来。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+自3月19日以来，至少有13名俄罗斯高级将领和指挥官在乌克兰的战斗中丧生。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+俄罗斯指挥官正在向前线移动，以重新点燃对乌克兰的入侵。
+
+素材来源：[https://www.businessinsider.de/politik/putin-berater-nervoes-weil-der-ukraine-krieg-zum-fiasko-wurde-b/](https://www.businessinsider.de/politik/putin-berater-nervoes-weil-der-ukraine-krieg-zum-fiasko-wurde-b/)
+
+*发布：思澈*
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

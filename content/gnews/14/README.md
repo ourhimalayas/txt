@@ -2,28 +2,26 @@
 ---
 
 
-## 莫斯科和基辅下周的新谈判
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2241422/)
+## 俄罗斯军队因伤亡正在重新整合
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2241505/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
 - ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukrainian-Foreign-Minister-Kuleba-speaks-during-a-news-conference.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/4XGRTUDKKBNAXN4GYHGGGOHMBM.jpg)
 
 
 图片来源：路透社
 
-俄罗斯和乌克兰的代表希望下周再次亲自会面，进行和平谈判。最近，各代表团在网上进行了磋商。土耳其再次被讨论为东道国。
+据乌克兰总参谋部称，许多俄罗斯部队正在白俄罗斯移动。与此同时，乌克兰北部切尔尼戈夫的居民不得不忍受没有电、水和暖气的情况。
 
-经过大约两周的在线和平谈判，乌克兰和俄罗斯代表团现在希望再次亲自会面。俄罗斯代表团团长弗拉基米尔·梅丁斯基（Vladimir Medinski）周日在 Telegram 上写道，计划在周二和周三举行一次会议。乌克兰谈判代表戴维·阿拉恰米亚（David Arachamija）也证实了计划在 Facebook 上举行的个人会议，但谈到周一的开始，并将土耳其命名为东道国。土耳其方面最初没有确认。
+根据乌克兰方面的观察，在乌克兰的俄罗斯袭击者由于损失惨重，正试图重新整合。因此，乌克兰总参谋部在周日下午的报告中说，白俄罗斯的许多俄罗斯部队都在行动。其目的是取代缩小的部队，提供食物、燃料和弹药的供应，并将伤病士兵运走。该信息最初无法独立核实。
 
-俄罗斯对乌克兰的侵略战争于2月24日开始后不久，两国代表团开始谈判。在白俄罗斯边境地区举行了三场面对面会谈后，会谈以视频会议的形式进行。乌克兰要求停止战斗并撤出俄罗斯军队。莫斯科要求基辅放弃加入北约，北约承认该国东部的分离主义地区为独立国家，并承认俄罗斯对被吞并的克里米亚半岛的统治。
+同时，它说：“敌人正在继续对乌克兰进行全面武装侵略。” 俄罗斯军队继续试图占领北部的切尔尼戈夫市。东南部的鲁比什内、北顿涅茨克和马里乌波尔等城市的战斗仍在继续。据周六报道，总参谋部证实重新夺回了该国东北部苏梅附近的重要城镇特罗斯特贾内茨。
 
-乌克兰外长德米特罗·库莱巴和他的俄罗斯同事谢尔盖·拉夫罗夫于 3 月 10 日在土耳其会晤。 然而，当时在安塔利亚的会谈并没有带来任何重大进展。
-
-🔗 [https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html](https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html)
+🔗 [https://www.welt.de/politik/ausland/article237808799/Ukraine-Krieg-Russische-Truppen-gruppieren-sich-wegen-schwerer-Verluste-um.html](https://www.welt.de/politik/ausland/article237808799/Ukraine-Krieg-Russische-Truppen-gruppieren-sich-wegen-schwerer-Verluste-um.html)
 
 编辑发表： Shuizhuyu
 
