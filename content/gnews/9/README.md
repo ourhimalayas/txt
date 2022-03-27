@@ -2,33 +2,28 @@
 ---
 
 
-## 乌克兰女兵心声（2）：我需要成为黑暗中的一盏灯
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2239969/)
+## 中日财经爆┃中共国经济将变的更坏
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2240007/)
 
-撰稿&翻译：喜妈
+撰稿：东京樱花团/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+无论中共政府如何对外宣称本国的经济持续向好，中共国的经济不断变坏已是不争的事实。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-43.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F1407A%2Fproduction%2F_108224028_gettyimages-156309834.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fbusiness-49160536&amp;tbnid=-wwXS477razOEM&amp;vet=12ahUKEwjdpu39peb2AhWTsyoKHcTQBkMQMygEegUIARC-AQ..i&amp;docid=C11d_JxQWgSR9M&amp;w=640&amp;h=360&amp;q=%E4%B8%AD%E5%9B%BD%E7%BB%8F%E6%B5%8E&amp;ved=2ahUKEwjdpu39peb2AhWTsyoKHcTQBkMQMygEegUIARC-AQ)
+在中共病毒（新冠病毒Covid-19）的爆发和俄罗斯入侵乌克兰的双重危机之前，中共的经济政策制定就已经陷入困境。尽管当局试图消除大量增加的金融杠杆，引导国家经济远离威胁，同时确保足够的增长以维持社会稳定。但是对于习近平及其幕僚来说，挑战仍在不断增加。
 
-视频&字幕：喜安娜
+上个月（2月）人民币兑美元汇率达到近四年来的最高水平后，目前已经回落了约1%。鉴于美国和中共国央行之间的巨大分歧，人民币进一步下跌的压力可能会增加。人民币大幅走低，是否将有助于增强中共国的贸易竞争力不得而知。但人民币的疲软往往会刺激资本进一步的外逃。
 
-乌克兰正在进行的保卫自己国家的战争，反击俄罗斯普京所发起的侵略战争，是极为艰苦的。到今天为止，已经超过一个月的抗争。可是乌克兰人民没有退缩。
+新闻来源：[China’s Bad News Just Keeps Getting Worse](https://www.bloomberg.com/news/newsletters/2022-03-26/china-s-bad-news-just-keeps-getting-worse-new-economy-saturday)
 
-视频内容：
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-11.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-我意识到我不能仅仅是站着，坐在家里，我需要做一些对我的国家来说是重要的事情。也许挑战，也许艰难，也许甚至会杀了我。但我是一个有用的人。我不能只为自己活。我需要成为黑暗中的一盏灯。我有点累，但未来之后我们的胜利。为了我们的胜利，为了完成我们所有的计划，我们在这个世界上胜出。
-
-综上所述，笔者认为，这个乌克兰女兵身上所反映出来的一种精神，是乌克兰可以屹立在世界的原因。一个女人，没有从战争中，死亡的威胁中走开，而是勇敢地坚持战斗，这是多么让人赞叹而尊敬的举动。
-
-这样的一个乌克兰女性，没有想到自己女性的特殊存在，而找到理由让自己受到保护；反而是通过自己的付出为他人形成一种激励。她做着自己觉得应有责任的事情，对她的国家来说重要的事情。她准备好为这样的责任付出生命。
-
-力挺乌克兰，胜利属于正义勇敢的乌克兰人民。
-
-参考消息：
-
-[https://www.washingtonpost.com/world/2022/03/20/russia-ukraine-war-news-putin-live-updates/](https://www.washingtonpost.com/world/2022/03/20/russia-ukraine-war-news-putin-live-updates/)
-
-编辑：五饼二鱼
-
-发布：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
