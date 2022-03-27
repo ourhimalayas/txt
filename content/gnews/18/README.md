@@ -2,26 +2,13 @@
 ---
 
 
-## 无家可归！乌克兰90岁老妇 被迫撤到800公里外的波兰
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2238345/)
+## 波兰媒体FAKT于3月12日发表了标题为“全世界聚集乌克兰的边界携手相助：锡克族、华人和火枪手”的文章
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2238368/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-乌克兰首都基辅以北的切尔尼戈夫（Chernihiv），遭到俄军不断地围攻，当地90岁老妇莫利博（Olha Moliboha）被迫撤离到800公里之外的波兰普热梅希尔（Przemysl），她透露切尔尼戈夫当地已经没地方可住了。
+03/12/2022 波兰媒体FAKT于3月12日发表了标题为“全世界聚集乌克兰的边界携手相助：锡克族、华人和火枪手”的文章。文章中报道了对新中国联邦志愿者妮可的采访视频。在采访视频中妮可介绍到：新中国联邦乌克兰救援行动已经解救出100余名华人和350名各国人士，并与其它国际救援组织一起成功将100名波兰孤儿安全送到巴塞罗那。这次战争是一场巨大的人道灾难，大量妇女儿童成为无辜受害者
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpCpxLrD.jpg)图片来源：法新社
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-莫利博在普热梅希尔火车站受访时，眼眶含泪地表示切尔尼戈夫已经断水断电，「俄军攻击并轰炸了我们，他们摧毁了城市的一切，好多妇女和孩子都死了，我们所有的房子都被摧毁了，没有地方住了。」
-
-新闻来源：[自由时报](https://news.ltn.com.tw/news/world/breakingnews/3873154)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

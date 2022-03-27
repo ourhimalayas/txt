@@ -2,20 +2,20 @@
 ---
 
 
-## 视频|今日的俄乌战局最近消息汇总
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2238635/)
+## 雅典娜时报-第245期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2238701/)
 
-制作：香草山视频部
+#### 《雅典娜时报》汇聚全球新闻时事
 
-截止当地时间3月25日，俄罗斯已经攻入了乌克兰马里乌波尔市的中心地区并占领了当地的圣母代祷教堂。消息显示，俄军强行将该市六千多居民掳至俄罗斯境内。而哈尔科夫市的一所邮局也被俄军炮火击中，造成6人死亡，15人受伤。 同时，俄罗斯军队在卢甘斯克州和顿涅茨克州的部分地区取得了些许进展，但其主要的几波攻势仍旧被乌克兰方击退。另外，俄乌双方在基辅日托米尔公路沿线、伊尔平和霍斯托梅尔一代的战斗仍在继续，同样的情形也出现在米科拉耶夫州和赫尔松州边界的局部地区。
-据乌克兰方的消息指出，虽然俄罗斯多次试图包围切尔尼戈夫，但其在近日的多次进攻均未取得胜利。而为了防止俄军再次试图从海上增援其在马里乌波尔和赫尔松附近的行动，乌克兰军队击沉了俄军一艘奥尔斯克号大型登陆舰。而在双方于哈尔科夫的交战中，乌军重创了俄罗斯第144摩步师第59坦克团的一个营级战术小组。 至于苏梅和赫尔松地区，俄军近期并未出现任何进攻举动，但其对苏梅市的炮轰却仍未停止。此外，俄罗斯在基辅的部队目前被迫处于防守之势，其甚至为了抵御乌克兰军队而修建了新的战壕线。
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/957496129560395776/155.png?width=856&amp;height=1275)![圖片](https://media.discordapp.net/attachments/825592691433668612/957496129937866772/155_1.png?width=856&amp;height=1275)
+*发布：陶子*
 
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
