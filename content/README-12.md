@@ -16,6 +16,8 @@
 ---
 ## 頁面 12/41 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [41](/content/README-41.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版2020年11月28日郭先生GTV直播](/content/2020/11/20201128-640822.md)
+
 [文字版2020年11月27日郭先生GTV直播](/content/2020/11/20201127-640673.md)
 
 [文字版：2020年11月14日郭文贵先生直播连线香草山](/content/2020/11/20201123-5538570264251162424.md)
@@ -63,8 +65,6 @@
 [文字版：2020年8月29日郭先生GTV直播连线台湾游行战友](/content/2020/09/20200909-3958441803573956074.md)
 
 [文字版：2020年8月29日郭先生GTV直播连线图桑游行战友  ](/content/2020/09/20200909-4793138191271001277.md)
-
-[文字版：2020年8月29日郭先生GTV直播连线温哥华游行战友](/content/2020/09/20200909-7406434220057898701.md)
 
 
 ## 頁面 12/41 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [41](/content/README-41.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
