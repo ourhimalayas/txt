@@ -2,106 +2,43 @@
 ---
 
 
-## 拜登总统: 我给乌克兰人民的信息,我们与你们站在一起。
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2237368/)
+## 2022/3/27 银河快讯：三家日本巨型银行暂停与俄罗斯最大银行的美元交易；一月至三月日本GDP预测年化-0.24％
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2237413/)
 
-**拜登总统**： 
-我给乌克兰人民的信息，就是我今天向乌克兰外交部长和国防部长传达的信息：我们与你们站在一起。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d7f26b473ca844cb9d5aaecce8e64e46_1648261752_l.jpeg)
+[图片来源](https://article.auone.jp/detail/1/3/6/307_6_r_20220326_1648252622499150)
 
+**1．三家日本巨型银行暂停与俄罗斯最大银行的美元交易**
 
+[据读卖新闻报道，三菱UFJ、三井住友和瑞穗三家银行从3月26日起暂停与俄罗斯最大银行Zberbank的所有美元交易。这与美国政府将Zberbank加入其制裁的步伐是一致的。与俄罗斯的贸易，包括一直以美元结算的能源，现在将需要其他的汇款方式。](https://news.yahoo.co.jp/articles/4a05a5e1b21d6ecb60c43f8aa69434cf33d4dac0)
 
-> My message to the people of Ukraine is the message I delivered today to the Ukrainian Foreign Minister and Defense Minister: We stand with you.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507817666601435138?ref_src=twsrc%5Etfw)
+**2．岸田首相和美国驻日本大使向广岛原子弹爆炸受害者纪念碑献花致敬**
 
+[据NHK报道，3月26日下午，岸田首相与美国驻日本大使伊曼纽尔大使参观了广岛和平公园，参观了原子弹爆炸博物馆，随后两人一起向原子弹受害者纪念碑献花，并为受害者祈祷。岸田首相与伊曼纽尔大使交换了意见，他说：“俄罗斯使用核武器的可能性确实令人担忧，但使用大规模毁灭性武器决不能发生。”对此，伊曼纽尔大使说：“俄罗斯对非法战争的反应是全球性的，而不仅仅是美国和欧洲。”](https://www3.nhk.or.jp/news/html/20220326/k10013553131000.html)
 
+**3． 自民党秘书长：考虑额外的中长期经济措施**
 
-**拜登总统**： 
-我们重新投入到争取自由的伟大斗争中。 一场民主与独裁、自由与镇压之间的战斗。 这场战斗也不会在几天或几个月内获胜。 我们需要为未来的长期斗争做好准备。
+[NHK 3月26日报道，关于针对乌克兰局势后价格上涨的经济措施，自民党秘书长莫吉强调，这些措施旨在最大限度地减少对日本经济的影响，并表示除了立即采取紧急措施外，预计还将考虑采取中期和长期措施。鉴于乌克兰局势导致物价上涨，岸田首相将于 29 日指示在下月底之前制定进一步的经济措施。](https://www3.nhk.or.jp/news/html/20220326/k10013553471000.html)
 
+**4．一月至三月日本GDP预测年化-0.24％**
 
+[据NHK 3月26日报道，私营部门的预测已编制完成，从1月到本月的GDP（国内生产总值）的实际增长率按年化计算将是-0.24%。分析称，这是由于欧米克荣毒株的疫情传播导致消费支出下降。这比上个月的预测平均值低了两个百分点，即正1.70%，是两个季度以来的首次负增长。从下个月开始的季度，由于取消了防止疾病蔓延措施后消费的恢复，预计会有5.05%的高年化增长率，但许多人对包括与乌克兰局势有关的油价上涨感到担忧。](https://www3.nhk.or.jp/news/html/20220326/k10013552751000.html)
 
-> We are engaged anew in a great battle for freedom.
->  
-> A battle between democracy and autocracy. Between liberty and repression.
->  
-> This battle will not be won in days or months either. We need to steel ourselves for the long fight ahead.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507782139315638283?ref_src=twsrc%5Etfw)
+**5．数字化支付工资问题再次开始讨论**
 
+[时事通信社3月25日报道，劳动政策委员会的一个分部会恢复了对解禁“数字支付工资”的讨论。日本政府和企业方对解除禁令持积极态度，但无法预见具体时间表。工人委员会成员的回应，表达了对安全性和确定性的疑问。](https://news.yahoo.co.jp/articles/6ea236975b9750fc345ff9ffcb9a5d7721b6f495)
 
+**6．日本各地银行系统故障，ATM无法使用**
 
-**拜登总统**： 
-今天，我会见了乌克兰外长德米特罗·库莱巴和国防部长奥列克西·列兹尼科夫。 我们讨论了我们团结世界支持 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 的努力、以及美国提供的重要军事和人道主义援助。
+[据朝日新闻报道，3月26日，日本全国各地的区域银行出现了系统故障，包括自动取款机中断等。这种情况似乎从中午时分开始在几家银行发生，包括足利银行（枥木）、北九州银行（福冈）、十六银行（岐阜）、常阳银行（茨城）、南都银行（奈良）、百十四银行（香川）、山口银行和百济银行（广岛）。据说都是区域性银行，使用由IBM运营的联合系统。金融服务局了解情况，但还没有确定恢复的时间表。](https://news.yahoo.co.jp/articles/648f400302e93a9763196f195d928cd43657f66b)
 
+**【日本银河系农场-阿尔法星球】**
 
+素材：文德
 
-> Today, I met with Ukraine’s Foreign Minister Dmytro Kuleba and Minister of Defense Oleksii Reznikov. We discussed our efforts to rally the world in support of Ukraine and the significant military and humanitarian assistance the United States is providing. [pic.twitter.com/N8bvuua19c](https://t.co/N8bvuua19c)
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507719879213867009?ref_src=twsrc%5Etfw)
+作者：帆間知津
 
-
-
-**美国务卿安东尼·布林肯**： 
-今天离开华沙前往以色列和约旦河西岸、摩洛哥和阿尔及利亚。 在我们努力建立广泛的合作伙伴关系时，期待与老朋友取得联系并加深纽带关系。
-
-
-
-> Leaving Warsaw today for Israel and the West Bank, Morocco, and Algeria. Looking forward to connecting with old friends and deepening ties as we work to build on our wide-ranging partnerships. [pic.twitter.com/wbUo82qphZ](https://t.co/wbUo82qphZ)
-> — Secretary Antony Blinken (@SecBlinken) [March 26, 2022](https://twitter.com/SecBlinken/status/1507750709495832577?ref_src=twsrc%5Etfw)
-
-
-
-**拜登总统**： 
-普京胆敢说他正在对乌克兰“去纳粹化”。 这个谎言不只是愤世嫉俗。这是在耍流氓。 
-泽连斯基总统是民主选举产生的。 他是犹太人 —— 他父亲的家人在纳粹大屠杀中被杀绝了。
-
-
-
-> Putin has the gall to say he is “de-Nazifying” Ukraine.
-> 
-> This lie isn’t just cynical. It is obscene. 
-> 
-> President Zelenskyy was democratically elected. He is Jewish — his father’s family was wiped out in the Nazi Holocaust.
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507838900554842115?ref_src=twsrc%5Etfw)
-
-
-
-**比尔.格茨**： 
-本周华盛顿时报[@WashTimes](https://twitter.com/WashTimes)内幕专栏：俄罗斯高超音速导弹袭击显示美国在超高速导弹方面落后于莫斯科和北京； 拜登告诉习，美国不会改变（中国）共产主义制度； 太平洋司令部指挥官谈 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 威胁 【附时报专栏报道链接】
-
-
-
-> This week’s Inside the Ring column [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): Russian hypersonic missile strike shows US lags behind both Moscow and Beijing in ultra high-speed missiles; Biden told Xi US would not change communist system; Pacom commander on China threat [https://t.co/Qgd15LYLo1](https://t.co/Qgd15LYLo1)
-> — Bill Gertz (@BillGertz) [March 25, 2022](https://twitter.com/BillGertz/status/1507472973808037890?ref_src=twsrc%5Etfw)
-
-
-
-**前副国务卿基思·克拉奇**： 
-谢谢沃尔茨议员@michaelgwaltz。 自由总是受到普京、#习近平、哈梅内伊等极权主义者的攻击。 但是，如果自由世界按照我们共同的价值观统一起来，那就有希望了。 确保高科技是值得信赖的技术是确保下一代自由的关键。 
-【转众议员迈克·沃尔茨推文：基思·克拉奇一直在为维吾尔人、香港和台湾不懈地发声，非常应该获得诺贝尔和平奖。 我们需要更多像他这样的商界领袖站出来对抗 [#中共](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 的掠夺行为。】
-
-
-
-> Thank you [@michaelgwaltz](https://twitter.com/michaelgwaltz?ref_src=twsrc%5Etfw). Freedom is always under attack from totalitarians like Putin, Xi, Khamenei, and their ilk. But there’s hope if the free world is unified along our shared values. Ensuring high tech is trusted tech is the key to securing freedom for the next generation. [https://t.co/LGCnP0wKwI](https://t.co/LGCnP0wKwI)
-> — Keith J. Krach (@KeithJKrach) [March 26, 2022](https://twitter.com/KeithJKrach/status/1507743925284614149?ref_src=twsrc%5Etfw)
-
-
-
-**众议院外事委员会共和党**： 
-委员会领袖麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)对于财长耶伦称对中共的制裁不是“必要或适当的”言论的回应：“我对拜登政府又一次公开展示未能抓住 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 所构成的日益严重的威胁感到非常担忧。 
-
-“[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对人权、民主价值观、和美国国家安全利益的无情攻击已经证明，他们是不值得信任的。取消(对中共的)制裁与拜登政府现在应该说的是相反的……
-
-完整声明在这里:【附众议院官网发文：麦考尔回应财长有关中共国的危险言论】
-
-
-
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw)'s response to [@SecYellen](https://twitter.com/SecYellen?ref_src=twsrc%5Etfw) saying sanctions against the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) weren't "necessary or appropriate": "I’m extremely concerned by yet another public display of the Biden administration’s failure to grasp the growing threat posed by the [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw).
-> — House Foreign Affairs GOP (@HouseForeignGOP) [March 26, 2022](https://twitter.com/HouseForeignGOP/status/1507833004999196673?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
+校对：windfish
 
  
 

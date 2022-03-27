@@ -2,11 +2,20 @@
 ---
 
 
-## 20220325文贵大直播：这个世界很疯狂，正与邪都看不清，真的连猪狗都不如！
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237569/)
+## 视频|乌克兰救援图片合集「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2237648/)
 
-作者：东京樱花团小视频组
+【视频制作】 Dawns
+【视频长度】大直播短视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+审核/编辑/发稿：Daxia
 
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

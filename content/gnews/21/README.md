@@ -2,42 +2,20 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237291/)
+## 美国即将对中国企业进行更多制裁
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2237400/)
 
-整理：枳实
-美工：精灵蓝
+中国共产党的这些媒体还有企业都会受到美国的制裁。这叫美国制定的内部政策，叫对中共先给他放几个蚊子咬咬他，让他知道疼的感受。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/N25GZVUAF45LLEH0VM.png)图片：雅典娜农场设计组 精灵蓝
+**【郭先生直播摘要】2022.3.20 美国即将对中国企业进行更多制****裁**
 
+**郭先生****:**
 
-雅典娜疫情更新（2022年 3月26日）
+我今天顺便给你们爆个料，你们脱不脱看你们的。我爆完这个料，你们脱不脱看你们的，今天反正我看你们没想脱的样子。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/MNAS9G@I11P54UA1ZTGN.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-329.png)
-[2022年3月26日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月26日改进.pdf)
+马上也可能今天，也可能下一周，中国共产党的这些媒体还有企业都会受到美国的制裁。这叫美国制定的内部政策。叫对中共先给他放几个蚊子咬咬他，让他知道疼的感受。马上把它几个媒体平台彻底制裁。最后我要告诉大家，真的今年是人类上最黑暗的一年，也是最有希望的一年。我相信今年完后你想再看到普京和习近平比登天都难。每一天都在好消息传来，你看着接下来美国对共产党放几个蚊子咬咬它。我再告诉你的，你会看到美国人很聪明地会去咬谁，会去咬谁？还有海外欺民贼。记得七哥2018年爆料说过了吗？你们还记得吗，文空？我说海外欺民贼只要和共产党合作的都得被抓，一个都不会逃过。你知道海外欺民贼有多少人现在被美国FBI调查，多少人在加拿大在澳大利亚？鸡腿潘肯定被遣送回国。鸡腿潘”在澳大利亚肯定被遣返回国。还有那个朱万利在新西兰的，朱万利肯定被遣返回国。还有在日本的相林，还有咸鸭蛋，还有高冰尘和博讯，博讯韦石已经在美国在监狱了！还有史诺！我跟你保证，路大脑袋 蛇妖闫，九指妖100%进监狱！你走着看。你们最近发现了，整个世界对海外任何与共产党有交易有联系的，在西方世界这不叫排华战争。这是一个干干净净地清理华人当中和共产党有关系的人，已经开始了。然后接下来大家会看到对共产党的媒体 国企 通讯企业，会超出你想象的制裁。
 
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+视频剪辑：GC | 听写：雨山溪桥客|翻译：阿基米德 |校对：tonyj |视频制作+字幕：刀锋舞者|编辑&发布：叶子
 
  
 

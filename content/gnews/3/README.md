@@ -2,8 +2,8 @@
 ---
 
 
-## 20220325文贵大直播：喜币严格意义上的直接购买，是跨出商业运用的最重要一步
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237620/)
+## 20220325文贵大直播：所有中国飞机里面都装了一个额外的即时回传录音录像装置
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2237748/)
 
 作者：东京樱花团小视频组
 

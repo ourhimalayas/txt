@@ -2,37 +2,32 @@
 ---
 
 
-## 俄军队控制了切尔诺贝利工业区已造成3人死亡
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237038/)
+## 也门胡塞武装暂停对沙特阿拉伯的袭击三天
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2237041/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-翻译与编辑：冰糖葫芦喵、灭共文明
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-《路透社》乌克兰利沃夫3月26日报道，**乌克兰斯拉维季奇市长尤里·富米切夫称，俄罗斯军队已经控制了乌克兰的斯拉维季奇市，并造成3人死亡。**该市位于乌克兰北部第聂伯河左岸，距离首都基辅200公里，由基辅负责管辖。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/切尔诺贝利工业区-e1648329054393.jpg)切尔诺贝利（图片来源：网络）
-报道称，**斯拉维季奇市坐落在切尔诺贝利周围的一个安全禁区外。**1986年，切尔诺贝利发生了世界上最严重的核灾难。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1156.jpg)
 
-市长尤里·富米切夫在Facebook上的一篇帖子称，**从今天起这个城市就被俄罗斯占领了，但我们仍鉴定的保卫我们的城市。**
 
-报道称，**国际原子能机构**(International Atomic Energy Agency)在一份声明中表示，**正在密切关注事态发展，并对工作人员轮换进出核电站的能力表示担忧。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/国际原子能机构.jpg)国际原子能机构（图片来源：dreamstime)
-乌克兰中将帕夫柳克（Alexander Pavlyuk）在发表讲话时，没有描述这座城市是如何被占领的，但他说，**一些居民展开一面巨大的乌克兰国旗，高呼“光荣属于乌克兰”的口号，以示抗议。**
+图片来源：路透社
 
-他还表示，**俄罗斯人向空中开枪驱散了市中心的抗议活动，并向人群投掷了眩晕手榴弹。**
+也门的胡塞组织周六表示，将暂停对沙特阿拉伯的导弹和无人机袭击三天，这是一项和平倡议，如果沙特领导的在也门作战的联军停止空袭并取消港口限制，这可能是一项持久承诺。
 
-乌克兰总统顾问奥列克西·阿雷斯托维奇(Oleksiy Arestovych)表示，**该镇已经成为战争的新热点。**
+胡塞组织政治办公室负责人马赫迪·马沙特在电视上播放的讲话中说，该组织还宣布在也门暂停地面进攻行动三天，包括在产气区马里卜。
 
-新闻来源链接：
+这是一个真诚的邀请和切实可行的步骤，以重建信任，将各方从谈判的舞台带到行动的舞台，”马沙特说。
 
-[Russian forces take control of Chernobyl workers’ town, three dead, Interfax Ukraine reports | Reuters](https://www.reuters.com/world/europe/kyiv-region-head-says-russian-forces-have-seized-chernobyl-workers-town-2022-03-26/)
+单方面倡议是在伊朗结盟集团与沙特领导的联盟之间的战争进入第八个年头之际，最近几个月暴力事件恶化。这场冲突导致数万人丧生，其中大部分是平民，并使数百万人面临饥饿和疾病。
 
-**更多资讯，更多关注**：
+周六，沙特领导的联军空袭了胡塞控制的海港荷台达和萨利夫，一天前，该组织对沙特阿拉伯发动了广泛袭击，包括吉达的一处石油设施发动袭击，引发了一场大火，引发了一场巨大的火灾。
 
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+简评：郭先生在大直播中多次警告过， 中共要在中东搞事情， 这个算不算其中之一呢？中东是中共的下一个搞乱世界的目标， 王毅已经到访了阿富汗，前后脚就有胡塞武装对沙特石油设施袭击， 是巧合吗？
+
+🔗 [https://www.reuters.com/world/middle-east/yemens-houthis-suspend-strikes-saudi-arabia-three-days-political-office-head-2022-03-26/](https://www.reuters.com/world/middle-east/yemens-houthis-suspend-strikes-saudi-arabia-three-days-political-office-head-2022-03-26/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

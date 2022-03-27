@@ -2,42 +2,31 @@
 ---
 
 
-## 短视频：以公共安全的名义为极权主义政权铺平道路
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2237453/)
+## 今日盖特大V推荐 — 吉娜·卡拉诺（Gina Carano）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2237518/)
 
-翻译：不要代表我Kari
-校对：Lish
-视频：qingjing|
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/03/afhex-pm48i.jpg)
+**盖特链接：** [https://gettr.com/user/ginacarano](https://gettr.com/user/ginacarano)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/PPT-1.jpg)图片来源：视频截屏
+**吉娜·卡拉诺锡自述：**
 
+**instagram.com/ginajcarano**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/zz.jpg)图片来源：网络
+**吉娜·卡拉诺简介：**
 
-Aaron kheriaty医生：前加利福尼亚大学尔湾分校医学伦理学主任，今年1月因拒绝接种新冠疫苗而被院方解雇。
+吉娜·卡拉诺全名吉娜·乔伊·卡拉诺（Gina Joy Carano，生于1982年4月16日）是美国女演员、电视名人、健身模特和前综合格斗选手。
 
-界定什么是公共卫生紧急事件的门槛被（政府）故意地忽视，此前也从未被定义过。因此，这种紧急状态被无限期地持续下去，看不到尽头。
+从2006年到2009年，吉娜·卡拉诺参加了精英极限战斗（EliteXC）和综合格斗（Strikeforce）比赛，并创造了 7胜1负的战绩，被称为“女子综合格斗的面孔”，尽管卡拉诺拒绝了这个称号。她和克里斯蒂安·贾斯蒂诺（Cris Cyborg）是第一批在2009年综合格斗（Strikeforce）比赛中登上大型综合格斗比赛的女性。卡拉诺在职业综合格斗第一次输给钢骨后退出了格斗赛场。
 
-随着强制疫苗和疫苗护照同时出现，大家看到了我所说的生物安全监控制度。
+从擂台过渡到银幕后，2011年吉娜·卡拉诺首次担任动作片《乱线》的主角；2013年出演了《速度与激情6》；2016年《死侍》等。卡拉诺还在2019年至2020年的Disney+（电视网）太空西部系列《曼达洛人》的前两季中饰演卡拉沙丘。
 
-数字技术、公共卫生和警察权力的紧密结合使他们（“合法地”）对我们的个人隐私进行侵犯，这种侵略性的管控措施是前所未有的。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**时刻谨记，这种使用公共健康和公共安全的借口在历史上一直被用来为极权主义政权铺平道路，这是（纳粹）德国的警示。贯穿纳粹统治德国的整个历史都是依据魏****玛宪****法第****48条，****该****条允****许****在****紧****急情况下****暂****停德国法律。**
-
-还记得在法国大革命期间进行恐怖统治的臭名昭著的组织吗？——它被称为公共安全委员会。
-
-正如伟大的前苏联持不同政见者亚历山大·索尔仁尼琴所感叹的那样，**只要我们团结一致对抗共同的威胁，我们就可以轻松击败它。**那我们为什么没有这样做呢？ 那是因为我们对自由的热爱不够，我们急匆匆欣然屈从于（前苏联共产主义的）强权暴政，之后在我们身上发生的一切都是咎由自取，罪有应得。
-
-前车之鉴，我们不会走同样的道路，我的朋友们，这就是我们在这里的原因。我们将站在一起，以和平和非暴力的方式共同抵抗，我们要有坚定的勇气，不妥协不让步。上帝保佑你们所有人。谢谢你们！
-
-视频链接：[Dr. Aaron Kheriaty warns of history repeating itself “The pretext of public health and public safety historically has been used to pave the way for a totalitarian regimes” https://t.co/C4VcXxVMJT” / Twitter](/t.co/C4VcXxVMJT%22%20/%20Twitter)
-
-发布：文泓
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,28 +2,31 @@
 ---
 
 
-## 简报：美国务院宣布向乌克兰提供1亿美元的民用安全援助
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2237172/)
+## 意大利药品管理局对第四剂新冠疫苗加强针说“不”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2237202/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-翻译与编辑：冰糖葫芦喵
+#### 编译 意大利达芬奇农场 小白鸽
 
-《路透社》特拉维夫3月26日报道，**周六，美国国务院表示，美国计划再向乌克兰提供1亿美元的民事安全援助。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/民用安全援助-e1648333043284.jpg)3月26日，乌克兰郊外一位老人在摧毁的房子上爬梯子（图片来源：路透社）
-美国国务卿布林肯(Antony Blinken)在一份声明中说，**这些援助将用于建设乌克兰内政部的能力，以帮助“边境安全，维持民事执法职能，并保护关键的政府基础设施”。**
+第四剂新冠疫苗是针对弱势群体吗？要不要扩展至所有人？意大利药品管理局对德拉吉政府的回答是至少目前还不行，因为缺乏足够的数据，这是专家们所强调的。这一决定是历史性的。在大流行病期间，该机构实际上从未反对过政府行政部门的要求。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-26-alle-23.18.07.png)图片来源：ilparagone.it
+意大利药品管理局（AIFA）的科学技术委员会在2022年3月24日开始针对某些特别群体的新冠疫苗加强针可行性进行评估。考虑到可使用数据的复杂性，委员会决定有必要进行进一步调查，将国际上的科学证据与意大利正在进行的研究数据结合起来。
 
-此前**，美国已经向乌克兰提供20亿美元的军事援助以及10亿美元的人道主义援助。**
+这一公告也打消了将第四剂加强针扩大到目前没有义务接种第四剂疫苗的人群的可能性。尤其是最近几周，针对是否应为70多岁的人接种疫苗的讨论， 卫生部顾问沃尔特•里恰尔迪(Walter Ricciardi )持赞成意见。而病毒专家马泰奥•巴塞蒂( Matteo Bassetti)对意大利药品管理局的决定表示赞赏。
 
-新闻来源链接：
+意大利药品管理局的决定是在感染数据继续保持良好形势的时候做出的：在过去的几个小时里，发现了超过82.000个阳性病例，这一趋势与前几周的趋势一致， 但并没有给医院的重症监护造成压力。而此时似乎还没有第五波疫情的迹象，因此推广第四剂加强针被推迟。
 
-[U.S. to provide $100 million in civilian security assistance to Ukraine | Reuters](https://www.reuters.com/world/us-provide-100-million-civilian-security-assistance-ukraine-state-dept-2022-03-26/)
+参考链接：
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+[ttps://www.ilparagone.it/attualita/laifa-dice-no-alla-quarta-dose-la-clamorosa-decisione-sui-vaccini/](//www.ilparagone.it/attualita/laifa-dice-no-alla-quarta-dose-la-clamorosa-decisione-sui-vaccini/)
+
+
+
+
+
+
+
+编辑、上传： Xiao baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
