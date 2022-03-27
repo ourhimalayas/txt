@@ -2,22 +2,32 @@
 ---
 
 
-## 中共国近20家房企以各种原因延迟披露年报
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2241491/)
+## 快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241561/)
 
-编辑：文宝
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0326%2F3dd2e62aj00r9cjuw0020c000u000lig.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-南方+房产频道记者获悉，又有更多南方产业智库上市房企60健康指数重点监测要延迟披露年报了。3月25日，大悦城（000031.SZ）发布公告称，大悦城控股集团股份有限公司原定于2022年3月30日披露2021年年度报告，因受新冠肺炎疫情影响，2021年度审计工作和年度报告编制工作预计完成时间晚于预期。为确保公司信息披露的完整性和准确性，经向深圳证券交易所申请，公司2021年年度报告披露时间由2022年3月30日变更为2022年4月12日。
+翻译与编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《路透社》华沙3月27日报道，**周日，乌克兰卫生部副部长奥列克西•亚雷缅科(Oleksii Iaremenko)表示，俄罗斯仍在继续轰炸，但抵达乌克兰的人道主义救援物资数量开始减少。他表示迫切需要更多的支持，并呼吁其他组织提供援助。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/乌人道主义援助-e1648415061155.jpg)为乌克兰提供的医疗援助物资在华沙肖邦机场的仓库中（路透社）
+据报道，**亚雷缅科在华沙肖邦机场附近的一个货仓里说，他对国际社会迄今提供的援助表示感谢。这批运往乌克兰的货物包括金属床、纱布、哮喘吸入器和氧气浓缩器等。**
 
-就在大悦城发布公告同一天，中国奥园（03883.HK）亦发布公告称，2021年度业绩可能无法遵守上市规则第13.49(1)条的规定于2022年3月31日前刊发。
+他告诉路透社，上个星期，我们看到人道主义援助的水平有所下降。**我们希望国际上能增加寻找新的资源，因为俄罗斯的侵略正在增加，他们正在轰炸平民**。
 
-根据媒体公开报道，截至目前，以种理由申请或预警延期发布财报的涉房类企业已达近20家，包括大悦城、奥园、新力控股、融信中国、融信服务、富力地产、世茂集团、世茂服务、融创中国、中国恒大、恒大物业、恒大汽车、景业名邦、佳兆业、明发集团、宝龙地产、宝龙商业、三盛控股、阳光100中国等。
+他说:“**我们的要求是，如果你们能够支持，请立即支持。”**“不要等几周或几个月，因为我们现在就需要支持。”
 
-原文链接：[https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w\_house](https://www.163.com/dy/article/H3DF7IVQ055004XG.html?clickfrom=w_house)
+根据联合国的数据，俄罗斯五谷入侵乌克兰的冲突已经造成了一场人道主义危机，估计有1000万人流离失所，接近该国人口的四分之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-33.png)DISCORD
+新闻来源链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-32.png)GETTR
+[Humanitarian aid for Ukraine is dwindling, says health official | Reuters](https://www.reuters.com/world/europe/humanitarian-aid-ukraine-is-dwindling-says-health-official-2022-03-27/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+
 
  
 
