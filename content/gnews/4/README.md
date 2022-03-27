@@ -2,31 +2,34 @@
 ---
 
 
-## 莫斯科和基辅下周的新谈判
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2241422/)
+## 埃隆·马斯克将采取行动对付推特
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2241453/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+##### 作者：加拿大温哥华扬帆农场 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/twitter-1.jpg)图片来源：Twitter
+据美国《每日电邮》26日报道，埃隆-马斯克周六暗示，可能会推出一个新的社交媒体平台来对抗推特，因为他认为推特不保护言论自由，从根本上破坏了民主。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+上周四，马斯克在推特上进行了一项 “推特算法是否应该开放源代码”的民调，他担心推特算法中的偏见会对公共话语产生重大影响。有110多万人参与投票，82.7%的人表示肯定。
 
+周五，马斯克发起第二轮民调，针对推特是否严格遵守了言论自由这一原则。他认为言论自由对一个民主国家正常运行至关重要。他提醒投票者认真对待，因为投票结果很重要。当天就获得200多万票，其中70.4%表示否定。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukrainian-Foreign-Minister-Kuleba-speaks-during-a-news-conference.jpg)
+周六，马斯克继续跟进，问推特不遵守言论自由原则，是否需要一个新平台。
 
+马斯克自称是言论自由的绝对主义者，他在向乌克兰提供星链宽带服务的同时，反对因入侵乌克兰而对俄罗斯媒体进行审查，并拒绝封锁俄罗斯新闻来源。
 
-图片来源：路透社
+新闻来源：[‘Doesn’t Sound Very Balanced’: Elon Musk Hints He May Launch ‘New Platform’ To Take On Twitter](https://www.dailywire.com/news/doesnt-sound-very-balanced-elon-musk-hints-he-may-launch-new-platform-to-take-on-twitter)
 
-俄罗斯和乌克兰的代表希望下周再次亲自会面，进行和平谈判。最近，各代表团在网上进行了磋商。土耳其再次被讨论为东道国。
+编辑/上传 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-经过大约两周的在线和平谈判，乌克兰和俄罗斯代表团现在希望再次亲自会面。俄罗斯代表团团长弗拉基米尔·梅丁斯基（Vladimir Medinski）周日在 Telegram 上写道，计划在周二和周三举行一次会议。乌克兰谈判代表戴维·阿拉恰米亚（David Arachamija）也证实了计划在 Facebook 上举行的个人会议，但谈到周一的开始，并将土耳其命名为东道国。土耳其方面最初没有确认。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-俄罗斯对乌克兰的侵略战争于2月24日开始后不久，两国代表团开始谈判。在白俄罗斯边境地区举行了三场面对面会谈后，会谈以视频会议的形式进行。乌克兰要求停止战斗并撤出俄罗斯军队。莫斯科要求基辅放弃加入北约，北约承认该国东部的分离主义地区为独立国家，并承认俄罗斯对被吞并的克里米亚半岛的统治。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-乌克兰外长德米特罗·库莱巴和他的俄罗斯同事谢尔盖·拉夫罗夫于 3 月 10 日在土耳其会晤。 然而，当时在安塔利亚的会谈并没有带来任何重大进展。
-
-🔗 [https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html](https://www.welt.de/politik/ausland/article237819707/Neue-Verhandlungen-zwischen-Moskau-und-Kiew-in-den-kommenden-Tagen.html)
-
-编辑发表： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
