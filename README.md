@@ -15,92 +15,92 @@
 
 ---
 
-### [【粤语配音】2022年3月27日： 拜登演讲的意义](/content/gnews/1/README.md)
+### [3/27/2022 文贵直播：拜登的波兰演讲意味着什么？](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022年3月27日文贵先生直播摘要及音频—银河系农场](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【G时新闻】拜登访问波兰：称俄入侵乌克兰犹如当年的天安门事件](/content/gnews/3/README.md)
+ ` G-时新闻`
+
+### [【G时新闻】盖特的独特性使其成为新时代媒体主流](/content/gnews/4/README.md)
+ ` G-时新闻`
+
+### [【粤语配音】2022年3月27日： 拜登演讲的意义](/content/gnews/5/README.md)
  ` MOS香港部`
 
-### [新中国联邦救援乌克兰活动，被日本主流媒体羞涩地报道了，续篇](/content/gnews/2/README.md)
+### [新中国联邦救援乌克兰活动，被日本主流媒体羞涩地报道了，续篇](/content/gnews/6/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [澳大利亚总理拒绝会见中共国新任驻澳大使](/content/gnews/3/README.md)
+### [澳大利亚总理拒绝会见中共国新任驻澳大使](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰副总理：俄军像纳粹一样将乌克兰人关押进过滤营](/content/gnews/4/README.md)
+### [乌克兰副总理：俄军像纳粹一样将乌克兰人关押进过滤营](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登没有将中国人和共产党分开](/content/gnews/5/README.md)
+### [拜登没有将中国人和共产党分开](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [【G时新闻】拜登称俄罗斯普京是屠夫不能继续执政](/content/gnews/6/README.md)
+### [【G时新闻】拜登称俄罗斯普京是屠夫不能继续执政](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [今生跟定七哥](/content/gnews/7/README.md)
+### [今生跟定七哥](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [泽连斯基说乌克兰准备讨论中立地位](/content/gnews/8/README.md)
+### [泽连斯基说乌克兰准备讨论中立地位](/content/gnews/12/README.md)
  ` 加拿大温哥华英里农场`
 
-### [俄罗斯军队占领切尔诺贝利核电站附近城镇造成技术人员无法更换休息](/content/gnews/9/README.md)
+### [俄罗斯军队占领切尔诺贝利核电站附近城镇造成技术人员无法更换休息](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [乌克兰被炸城市惨状：上帝已远离马里乌波尔（1/5）](/content/gnews/10/README.md)
+### [乌克兰被炸城市惨状：上帝已远离马里乌波尔（1/5）](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [政治家没有好人只有是否专业是否正义](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [【#G时新闻】北约峰会德国政治家当面称加拿大总理特鲁多是暴君](/content/gnews/12/README.md)
+### [【#G时新闻】北约峰会德国政治家当面称加拿大总理特鲁多是暴君](/content/gnews/15/README.md)
  ` G-时新闻`
 
-### [拜登会让普京滚蛋](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [欧美达成天然气协议 以减少欧洲对俄能源依赖](/content/gnews/14/README.md)
+### [欧美达成天然气协议 以减少欧洲对俄能源依赖](/content/gnews/16/README.md)
  ` 日本東京方舟農場`
 
-### [在寻找东航遇难者的过程中，中共持续进行信息审查](/content/gnews/15/README.md)
+### [在寻找东航遇难者的过程中，中共持续进行信息审查](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马斯克打出一记重拳：普京比我有钱](/content/gnews/16/README.md)
+### [马斯克打出一记重拳：普京比我有钱](/content/gnews/18/README.md)
  ` 蓝莲花农场`
 
-### [上海民生物资紧缺 物价连夜暴涨](/content/gnews/17/README.md)
+### [上海民生物资紧缺 物价连夜暴涨](/content/gnews/19/README.md)
  ` 日本東京方舟農場`
 
-### [美财长耶伦赞同加密货币的创新称需要被监管](/content/gnews/18/README.md)
+### [美财长耶伦赞同加密货币的创新称需要被监管](/content/gnews/20/README.md)
  ` 蓝莲花农场`
 
-### [国内专业人士质疑核酸检测办法合理性](/content/gnews/19/README.md)
+### [国内专业人士质疑核酸检测办法合理性](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国内专业人士质疑疫苗的科学性](/content/gnews/20/README.md)
+### [国内专业人士质疑疫苗的科学性](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有灵性的土地](/content/gnews/21/README.md)
+### [有灵性的土地](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃中共向斯里兰卡提供紧急粮食援助 党造大饥荒将再现](/content/gnews/22/README.md)
+### [樱花时政┃中共向斯里兰卡提供紧急粮食援助 党造大饥荒将再现](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃向乌克兰运送物资，德国出发的“铁路桥梁”](/content/gnews/23/README.md)
+### [樱花时政┃向乌克兰运送物资，德国出发的“铁路桥梁”](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2020年3月对今天世界的预判](/content/gnews/24/README.md)
+### [郭文贵先生2020年3月对今天世界的预判](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持](/content/gnews/25/README.md)
+### [快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持](/content/gnews/27/README.md)
  ` 蓝莲花农场`
 
-### [2022/03/27文贵先生直播重点大纲](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [乌称俄企图分裂乌克兰 要求西方提供更多武器援助](/content/gnews/27/README.md)
+### [乌称俄企图分裂乌克兰 要求西方提供更多武器援助](/content/gnews/28/README.md)
  ` 蓝莲花农场`
 
-### [3/28/2022 银河快讯:岸田首相: &#8220;入侵乌克兰, 可能发展为战后最大危机&#8221;；日本外相号召合作以防止俄罗斯逃避制裁](/content/gnews/28/README.md)
+### [3/28/2022 银河快讯:岸田首相: &#8220;入侵乌克兰, 可能发展为战后最大危机&#8221;；日本外相号召合作以防止俄罗斯逃避制裁](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [未来导致水贵的三个因素-文字及视频](/content/gnews/29/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [NFSC新闻、NFSC新闻访谈简报|2022年3月27日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`

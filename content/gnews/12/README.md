@@ -2,37 +2,24 @@
 ---
 
 
-## 【#G时新闻】北约峰会德国政治家当面称加拿大总理特鲁多是暴君
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2241899/)
+## 泽连斯基说乌克兰准备讨论中立地位
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2241939/)
 
-##### 播  报：加拿大温哥华扬帆农场 – 莉李鲤
+编译：文宝
 
-##### 视频制作：加拿大温哥华扬帆农场 – 文雅
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”！
 
-大家好！今天的主题是北约峰会德国政治家克里斯蒂娜·玛格丽特·安德森当面称加拿大总理特鲁多是”暴君”！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Ukraine-2.jpg)
+乌克兰总统泽连斯基说，他的国家准备讨论采用中立地位，作为与俄罗斯达成的和平协议的一部分，尽管协议需要得到第三方的保证并付诸全民公决。
 
-据网关专家新闻网24日报道，今天晚些时候，德国政治家克里斯蒂娜·玛格丽特·安德森（ Christine Margarete Anderson）在鲁塞尔举行的北约成员国讨论俄罗斯对乌克兰的战争的会议发言中当面指责加拿大总理克鲁多是“暴君”
+“安全保障和中立，我们国家的非核地位。我们已经准备好去争取。这是最重要的一点，”泽连斯基在与俄罗斯记者的90分钟视频讲话中说。
 
-在今年2月1日，加拿大总理特鲁多启用《紧急状态法》来镇压卡车司机抗议强制疫苗活动，包括拖走抗议者的卡车、冻结抗议者的个人和公司银行账户、暂停他们的车辆保险等卑劣手段，派出的皇家骑警对抗议者更是肆意践踏，造成多名示威者受伤，毁掉了加拿大皇家骑警一直保持的良好声誉，在世界上引起共公愤。
+泽连斯基说，虽然他的政府在与俄罗斯的会谈中讨论了在乌克兰使用俄语的问题，但俄罗斯的其他要求，如非军事化，目前还没有放在桌面上。他说，乌克兰境内讲俄语的城市在入侵期间已经被摧毁。
 
-安德森在此次北约会议上说特鲁多是一位公开钦佩中共基本独裁政权的首相，仅仅因为加拿大民众敢于反对他的变态民主概念，就将自己的公民迫害和定罪为恐怖分子。安德森认为特鲁多不应该被允许在北约会议上说话，因为特鲁多践踏了基本人权，是民主的耻辱。北约领导人出席了会议。
+原文链接：[https://www.cnbc.com/2022/03/27/russia-ukraine-live-updates.html](https://www.cnbc.com/2022/03/27/russia-ukraine-live-updates.html)
 
-盖特链接：https://gettr.com/post/p11zfpj4166
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-35.png)DISCORD
 
-编辑/发文 -【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/gettr-34.png)GETTR
 
  
 
