@@ -2,33 +2,22 @@
 ---
 
 
-## 【G时新闻】乌国防部脸书：俄军战损惨重
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2241085/)
+## 一周疫情、疫苗信息回顾（3月16日至23日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241195/)
 
-![此图像的alt属性为空；文件名为111111.png](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-作者：加拿大温哥华扬帆农场 – 播报：七彩虹 – 视频制作：Gracelshan
+作者：DC农场–火来
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年3月16日至3月23日，除中共国外，全球新增中共病毒确诊患者1154万余例，同比上周下降了6.63 %；此外，本周新增确诊死亡病例超过34313例，同比上周下降了11.1%。本周，全球新增确诊病例数和新增确诊死亡病例数均较一周前略有下降。截至3月23日，除中共国外，全球累计接种了80.4亿剂中共病毒疫苗，同比16日的累计接种数据增长了0.886%.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.15.png)
+3月16日，美国新罕布什尔州议会投票通过关于伊维菌素使用的法案，法案规定伊维菌素在新州为非处方药，在美国，新州将率先成为无需处方便可在药店购买伊维菌素的州。3月18日，继辉瑞公司之后，莫德纳公司也向美国FDA提交了针对成年人的第二剂中共疫苗加强针的使用许可申请，3月23日，莫德纳进而发表声明表示，希望FDA能够将第二剂加强针的使用许可扩大到6岁以下的儿童。3月22日，白宫官员称，美国目前没有足够的经费为全美国人提供免费的第二剂中共病毒加强针。3月22日，辉瑞宣布将通过联合国儿童基金会，向贫穷国家发放四百万份辉瑞研发的治疗中共病毒的药物Paxlovid，并且已经有超过30家公司申请生产Paxlovid的仿制药。
 
-据ukrinform网站 3月26日报道，乌克兰国防部的脸书（Facebook）账号公布的俄罗斯军队战斗损失数据显示，俄军战斗减员约16,4000人，损失575辆坦克。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-截至脸书发帖时，俄军战损数据还包括：1，640辆装甲运兵车，293个火炮系统，91个多管火箭发射系统（MLRS），51个防空作战系统，117架飞机，127架直升机，1,131辆车辆，7艘舰艇，73个油箱，56个作战和战术级别的无人机，19个特种装备单位和2个移动短程弹道导弹（SRBM）系统。
-
-乌克兰国防部表示，由于俄乌战争仍在继续，数据将持续保持更新。
-
-在另一篇Gnews文章中报道自2月24日俄罗斯总统普京宣布开始全面入侵乌克兰以来，已有6位俄罗斯将军，一位黑海舰队副司令被击毙。超过25%的在乌克兰战场的俄军将领被斩首。
-![此图像的alt属性为空；文件名为111111.png](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-上传：兴旺
-
-视频链接：https://gettr.com/post/p1225te6807
-
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+编辑：Zion 文恩
+总编：Zion 文恩
+审核：Zion 文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

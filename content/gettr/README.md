@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 1:14 AM (UTC)`
+
+2022.03.27 晚《新中国联邦新闻访谈》伊维菌素和羟氯喹的用药原理和主要事项； 疫苗副作用及解毒方法； 医生答战友疑问
+![img](https://media.gettr.com/group29/origin/2022/03/28/01/d7cabd59-a465-bc5a-9928-c70d75c10886/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/28/2022 1:04 AM (UTC)`
 
 3/27/2022 Miles Guo: The danger of the dictators is the absence of the bottom line. Qin Gang shamelessly told the US that the CCP has no upper limit, but with a bottom line. The statement made by Putin and Xi that “there is no upper limit to our collaborations” will make countless Chinese people pay a dear price. Biden debunked the lie that Russia went to Ukraine to seize the Nazis in his speech. Those dictators who fool the world will end up making a fool of themselves.<br/><br/><br/>3/27/2022 文贵直播：独裁者的危险在于无底线，秦刚无耻地告诉美国说中共无上限，有底线；普习二人所谓“我们合作无上限”将让无数中国人付出巨大代价；拜登在演讲中揭穿了俄罗斯去乌克兰抓纳粹的谎言；愚弄天下的独裁者必被天下愚<br/>
@@ -147,13 +154,6 @@ Winston (GTV UK Live Host): What more can we do to convince these Chinese people
 
 King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s War Room: : We are doing what the Chinese government should have been doing.<br/><br/>班农战斗室采访新中国联邦在乌克兰救援的志愿者——精粮：我们正在做中国政府本应该做的事情
 ![img](https://media.gettr.com/group46/getter/2022/03/27/01/39e262ee-c048-ece8-c210-91bdae04707f/out.jpg)
-
----
-
-`@miles 3/27/2022 1:07 AM (UTC)`
-
-2022.03.26 晚《新中国联邦新闻访谈》俄乌最新局势分析；中共俄乌局势大外宣造假登峰造极；中共宣传疫情封城救助，网民发视频称根本没补贴；德国病理学家的发现Covid 疫苗损伤证据
-![img](https://media.gettr.com/group43/origin/2022/03/27/01/ed1cdc96-a4d6-d33f-5d61-069536430685/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
