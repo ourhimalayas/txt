@@ -2,8 +2,8 @@
 ---
 
 
-## 大英帝国是欧洲最清廉的政府
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2246096/)
+## 乌克兰是颜色革命的最前线
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2246177/)
 
 台灣寶島農場
 

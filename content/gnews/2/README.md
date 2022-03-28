@@ -2,39 +2,28 @@
 ---
 
 
-## 有声|中共对东航空难第二个黑匣子的报道失常
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246190/)
+## 樱花时政┃美菲举行最大规模联合军演 威慑中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2246312/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月25日，中共官方媒体新华社首先引用中国民航报消息称，已经找到3月21日坠毁的东航客机搭载的第二个黑匣子。该消息迅速占领各大新闻平台，一时间被各类新闻App纷纷推送。但半小时后，新华社又辟谣称，还没有找到第二个黑匣子，要求以指挥部新闻发布会的信息为准。目前，关于找到第二个黑匣子的新闻已经被中共全网删除。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-62.png)
-中共官方称，已找到记录飞机驾驶仓语音部分的第一个黑匣子，但受损严重，已经交往北京相关部门处理。不少媒体强调，搜救人员正在全力寻找第二个黑匣子，即记录航班飞行数据的记录器。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+菲律宾和美国于3月28日在菲律宾吕宋岛开始了名为“Balikatan”的定期联合演习。据美国军方称，来自两国军方的总共8900名人员参加本次有史以来规模最大的演习。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花时政┃美菲举行最大规模联合军演-威慑中共国.png)[图片来源](https://www.google.com/search?q=Balikatan&amp;sxsrf=APq-WBuoW4XeJ6xJ1oGqd9P4FA3MmWUOMg:1648468675294&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=tT2eB9g1CqH4rM%252C4-)
+截止4月8日，双方将在海上安全和人道援助方面进行训练，以加强相互间的实用操作性，其目的是遏制正在加强在印太地区进行海洋扩张的中共国。
 
-墙内百姓也开始质疑官方自相矛盾的说法。有人指出，当初新华社称已找到第二个黑匣子的新闻，应该是交由7个记者、1个校对、1个编辑、1个审核者审阅后才发出来的。而新华社马上否定的做法实在让人不解。有民众表示，“看样子，第二个黑匣子很难找到了”。
+“Balikatan”演习在2020年因中共病毒被取消。2021年规模缩小后又重新开始。本次演习，菲律宾军方有3800名和5100名美军参加。开幕式上，美方临时代理大使表示，两国间的联盟“在维护印度太平洋地区的和平与安全方面发挥了重要作用。”
 
-观察人士表示，这个现状，似乎印证了3月23日郭文贵先生在大直播中称这场空难实属人为操作、中共一定会极力掩盖的惊天爆料。
+信息源：
+[米と比、過去最大の合同演習　インド太平洋で中国けん制](https://news.yahoo.co.jp/articles/9c2039bb6ee87f9630dbc969fd976f5947e51937#:~:text=%E7%B1D%E5%9B%BD%E3%81%91%E3%82%93%E5%88%B6)
 
-
-
-文字版原文：[中共对东航空难第二个黑匣子的报道失常](https://gnews.org/zh-hans/2238285/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

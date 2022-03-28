@@ -2,8 +2,8 @@
 ---
 
 
-## 独裁的危险是没有底线的
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2246071/)
+## 共产党唯一跟苏联翻脸的就是毛泽东
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2246161/)
 
 台灣寶島農場
 

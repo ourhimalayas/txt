@@ -15,77 +15,77 @@
 
 ---
 
-### [3/27/2022 文贵直播：为什么说灭掉习近平就是灭掉中国共产党？干掉习近平已成为中共内部共识；中共遭全世界痛恨，唯有灭共才能保命、保财、报仇；有新中国联邦在，灭共后绝不会出现假民主真独裁](/content/gnews/1/README.md)
+### [俄侵乌已造成143名儿童被杀 216名儿童受伤](/content/gnews/1/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [樱花时政┃美菲举行最大规模联合军演 威慑中共国](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [能源问题不再是各国较量的主因素](/content/gnews/3/README.md)
+ ` 银河歌舞厅`
+
+### [3/27/2022 文贵直播: 很多体制内的人在暗中保护我们的战友，并对新中国联邦在乌克兰的救援行动表示钦佩。不要寄希望于美国帮我们灭共，最终干倒习近平和共产党的一定是国内人！](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|中共对东航空难第二个黑匣子的报道失常](/content/gnews/2/README.md)
+### [有声|中共报告单日新增本土病例5600例 民生哀鸣](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [乌克兰国会议员指控：俄罗斯士兵强奸乌克兰妇女](/content/gnews/3/README.md)
+### [伦敦数千人集会声援乌克兰](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [乌克兰是颜色革命的最前线](/content/gnews/4/README.md)
+### [3/27/2022 文贵直播：为什么说灭掉习近平就是灭掉中国共产党？干掉习近平已成为中共内部共识；中共遭全世界痛恨，唯有灭共才能保命、保财、报仇；有新中国联邦在，灭共后绝不会出现假民主真独裁](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|中共对东航空难第二个黑匣子的报道失常](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [乌克兰国会议员指控：俄罗斯士兵强奸乌克兰妇女](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [乌克兰是颜色革命的最前线](/content/gnews/10/README.md)
  ` G-NEWS TAIWAN`
 
-### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十三）](/content/gnews/5/README.md)
+### [樱花时政┃联俄两线开火各取所需 中共加速全球自动灭共进程（十三）](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃俄罗斯或失去常任理事国的特权，时隔40年再次召开ESS](/content/gnews/6/README.md)
+### [樱花时政┃俄罗斯或失去常任理事国的特权，时隔40年再次召开ESS](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产党唯一跟苏联翻脸的就是毛泽东](/content/gnews/7/README.md)
+### [共产党唯一跟苏联翻脸的就是毛泽东](/content/gnews/13/README.md)
  ` G-NEWS TAIWAN`
 
-### [2022是人类有史上最黑暗的一年](/content/gnews/8/README.md)
+### [2022是人类有史上最黑暗的一年](/content/gnews/14/README.md)
  ` G-NEWS TAIWAN`
 
-### [海航王健死因被披露时 中共放出机器人网军进行攻击](/content/gnews/9/README.md)
+### [海航王健死因被披露时 中共放出机器人网军进行攻击](/content/gnews/15/README.md)
  ` GTV News Talk`
 
-### [大英帝国是欧洲最清廉的政府](/content/gnews/10/README.md)
- ` G-NEWS TAIWAN`
-
-### [2022/03/27 文贵先生直播精要](/content/gnews/11/README.md)
+### [2022/03/27 文贵先生直播精要](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [樱花时政┃俄罗斯外长拉夫罗夫将访问印度](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [独裁的危险是没有底线的](/content/gnews/13/README.md)
- ` G-NEWS TAIWAN`
-
-### [乌克兰政府：俄罗斯入侵让乌方经济破坏损失超5600亿美元](/content/gnews/14/README.md)
+### [乌克兰政府：俄罗斯入侵让乌方经济破坏损失超5600亿美元](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [马斯克自曝确诊中共病毒 自称几乎没症状](/content/gnews/15/README.md)
+### [马斯克自曝确诊中共病毒 自称几乎没症状](/content/gnews/18/README.md)
  ` 蓝莲花农场`
 
-### [乔拜登警告普京，它将“回应”化学武器的使用，中共支持俄罗斯侵略战争将面临严重后果](/content/gnews/16/README.md)
+### [乔拜登警告普京，它将“回应”化学武器的使用，中共支持俄罗斯侵略战争将面临严重后果](/content/gnews/19/README.md)
  ` GTV News Talk`
 
-### [乌克兰救援前线报道3.28.2022：首篇以NFSC营地为主题的采访报道来自西班牙媒体Republica](/content/gnews/17/README.md)
+### [乌克兰救援前线报道3.28.2022：首篇以NFSC营地为主题的采访报道来自西班牙媒体Republica](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [上海疫情爆发分区封城 中共股市随之下滑](/content/gnews/18/README.md)
+### [上海疫情爆发分区封城 中共股市随之下滑](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [瑞典将取消对所有第三国旅行者的中共病毒入境禁令](/content/gnews/19/README.md)
+### [瑞典将取消对所有第三国旅行者的中共病毒入境禁令](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [以色列总理贝內特与美国国务卿布林肯会面](/content/gnews/20/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [COVID-19疫苗副作用集萃（2022.3.28B）](/content/gnews/21/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.28B）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：防疫“优等生”上海因疫情爆发进行“压茬推进”式管控](/content/gnews/22/README.md)
+### [秘翻在线：防疫“优等生”上海因疫情爆发进行“压茬推进”式管控](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果](/content/gnews/23/README.md)
- ` G-时新闻`
-
-### [俄乌停战磋商预计于28日在土耳其举行](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [秘翻在线：如果你不好意思说被裁员了 那就说毕业了](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
