@@ -2,27 +2,25 @@
 ---
 
 
-## 加拿大联邦机构仍顽固执行现行疫苗政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242477/)
+## 视频|为谁而战 2022.03.27
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2242569/)
 
-作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
+作：大直播短视频组
 
-据加拿大【真北方】3月25日报道，尽管全国各地都逐步取消了疫情限制措施，但联邦政府和部分省份还仍在坚持疫苗接种政策，甚至在同一司法管辖区内出现了相互冲突。
+撰稿人：一只蚂蚁
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3332.png)图品来源：tnc
+视频剪辑：方寸之间（Old\_Fang）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【文案目标】乌克兰新闻 晓理制作
 
+审核/编辑/发稿：qiutian（邱甜）
 
-报道称，新不伦瑞克省现虽已废除疫苗护照，但该省的圣约翰市政府却仍对其雇员执行强制疫苗规定；BC省是最晚取消卫生限制的省份，但目前仍在实施苛刻的疫苗授权，并已解雇了数千名因此而被迫休假的公共雇员。相反，维多利亚市却未采取省政府的政策，而宣布将对未接种疫苗的雇员复职。
-
-目前，全国各地的疫苗接种政策错综复杂，变化不断，但联邦政府机构、部分省、市政府，甚至个别企业仍顽固要求其雇员提供疫苗接种证明。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/](https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/)
-
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

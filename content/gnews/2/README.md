@@ -2,8 +2,8 @@
 ---
 
 
-## 七哥谈才布罗旺（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2242587/)
+## 在七哥心里共产党已经灭亡
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2242605/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

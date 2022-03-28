@@ -2,25 +2,25 @@
 ---
 
 
-## 加拿大安省將保持疫情限製措施的解除狀態
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242304/)
+## 首都渥太华再现反疫苗政策抗议行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242363/)
 
-作者：加拿大溫哥華揚帆農場 – 文萊 – 晨熹
+作者：加拿大温哥华扬帆农场 – 青青 – 文明(添草灭共)
 
-據加拿大【後千禧年】3月26日報道，安大略省長福特當天表示，盡管新冠病毒感染人數持續變化，但其政府將繼續保持各項衛生限製措施的解除狀態，直至疫情可能再次惡化為止。
+据加拿大【ctv新闻】3月26日报道，在特鲁多政府的皇家骑警将反疫苗护照运动的卡车司机们驱离首都的一个多月后，大量抗议者在当天又再次返回并集结在渥太华市中心。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3326.png)圖片來源：TPM
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3330.png)图片来源：ctvnews
 
 
-福特以上言論是專門針對日前發布的[安省廢水監測數據報告]而作出的。該報告結果明確顯示：近期安大略區域內的新冠病毒傳播程度不僅日益增強，而且還出現了大量新的病毒變體。
+报道称，数百辆来自魁北克的汽车在市中心缓缓绕行，鸣笛抗议。 本次示威活动的组织者表示，在所有不合理的疫情限制措施被当局取消之前将不会离开渥太华。
 
-對此，流行病專家博格奇醫生警告稱：盡管安省大部分人都已完全接種了疫苗，但這並非意味著疫情已經結束，特別是新的奧密克戎病毒在過去三個月內的廣泛傳播，都凸顯疫情限製措施的重要性。
+据悉，尽管自由党政府计划在4月底前取消所有的卫生防疫限制，但在全国范围内没有疫苗护照仍然不能自由地旅行，而且所有未接种疫苗的大学生都将继续被拒绝进入校园。 渥太华警方当天表示，大约有300辆参与示威活动的汽车穿过主要市区街道，但目前尚未出现与抗议活动发生冲突的相关报道。
 
-校對編輯：硫酸羥氯喹64
+校对编辑：硫酸羟氯喹64
 
-發稿：青青
+发稿：青青
 
-新聞來源： [https://thepostmillennial.com/ford-has-no-plans-to-reimpose](https://thepostmillennial.com/ford-has-no-plans-to-reimpose)
+原文链接： [https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342](https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342)
 
  
 
