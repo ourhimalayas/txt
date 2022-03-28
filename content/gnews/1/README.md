@@ -2,8 +2,8 @@
 ---
 
 
-## 愚人者愚天下者必被天下「狱」
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245822/)
+## 2025年一定不会有共产党
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245925/)
 
 台灣寶島農場
 

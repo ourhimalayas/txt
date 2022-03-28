@@ -15,83 +15,83 @@
 
 ---
 
-### [愚人者愚天下者必被天下「狱」](/content/gnews/1/README.md)
+### [2025年一定不会有共产党](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [狮城快讯: 李显龙对美国进行八天的工作访问](/content/gnews/2/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [俄罗斯高技术人才因入侵乌克兰而逃离该国](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [樱花时政┃参议员卢比奥揭示了俄罗斯使用生化武器的“最可能”情况](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [狮城快讯：美欧推动G20排斥俄罗斯，印尼政府态度暧昧](/content/gnews/5/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [视频|我们在做本应由中国政府做的事情](/content/gnews/6/README.md)
- ` MOSVIDEO`
-
-### [【G时新闻】普京可能试图强加乌克兰“朝鲜和韩国”企图](/content/gnews/7/README.md)
- ` G-时新闻`
-
-### [奥密克隆株感染深刻的后遗症，导致6成患者休职](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声｜中共国宣布最大规模城市——上海分阶段封锁](/content/gnews/9/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [【G时新闻】埃隆·马斯克考虑采取行动对付推特](/content/gnews/10/README.md)
- ` G-时新闻`
-
-### [有声｜香港第5波疫情致七千多人死亡](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [自我独立与尊重别人是民主的基础](/content/gnews/12/README.md)
- ` 银河歌舞厅`
-
-### [秘翻在线：防疫“优等生”上海因疫情爆发进行“压茬推进”式管控](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果](/content/gnews/14/README.md)
- ` G-时新闻`
-
-### [炮火中的葬礼](/content/gnews/15/README.md)
- ` 银河歌舞厅`
-
-### [英国将在未来几周内公布加密货币监管计划](/content/gnews/16/README.md)
+### [瑞典将取消对所有第三国旅行者的中共病毒入境禁令](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：如果你不好意思说被裁员了 那就说毕业了](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
+### [习自认为拜登对他佩服的五体投地](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
 
-### [澳洲政府扩大首次置业者担保计划](/content/gnews/18/README.md)
- ` 走进澳洲`
+### [精粮接受战斗室采访:向整个世界展示新中国人的样子](/content/gnews/4/README.md)
+ ` 波士顿五月花农场`
 
-### [澳洲拟消减燃油税六个月，缓解生活成本上升压力](/content/gnews/19/README.md)
- ` 走进澳洲`
+### [狮城快讯：美国和菲律宾将举行规模空前的联合军演](/content/gnews/5/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [直播的无限魅力](/content/gnews/20/README.md)
+### [以色列总理贝內特与美国国务卿布林肯会面](/content/gnews/6/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [视频|日本高官提出改革联合国安理会的要点](/content/gnews/7/README.md)
+ ` MOSVIDEO`
+
+### [视频|日本三大型银行终止与俄最大银行的美元交易](/content/gnews/8/README.md)
+ ` MOSVIDEO`
+
+### [视频|拜登华沙演讲 俄罗斯永远不可能战胜乌克兰](/content/gnews/9/README.md)
+ ` MOSVIDEO`
+
+### [视频|俄乌战争是对全世界政客关于世界认知的一场检验](/content/gnews/10/README.md)
+ ` MOSVIDEO`
+
+### [视频|我们在做本应由中国政府做的事情](/content/gnews/11/README.md)
+ ` MOSVIDEO`
+
+### [视频|俄防长久未公开露面 乌克兰称其心脏病发作](/content/gnews/12/README.md)
+ ` MOSVIDEO`
+
+### [视频|美国警告 俄罗斯可能一进步侵略他国](/content/gnews/13/README.md)
+ ` MOSVIDEO`
+
+### [奥密克隆株感染深刻的后遗症，导致6成患者休职](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [自我独立与尊重别人是民主的基础](/content/gnews/15/README.md)
  ` 银河歌舞厅`
 
-### [심근염 환자의 50%는 백신 접종 후 5년 이내에 사망](/content/gnews/21/README.md)
- ` 祁明`
+### [秘翻在线：防疫“优等生”上海因疫情爆发进行“压茬推进”式管控](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [日本东京樱花团 中文新闻播报第35期](/content/gnews/22/README.md)
- ` Tokyo Sakura Video Group`
+### [【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果](/content/gnews/17/README.md)
+ ` G-时新闻`
 
-### [岸田首相在日本防卫大学毕业典礼上对毕业生训示，入侵乌克兰是 &#8220;取决于事态发展是战后最大的危机&#8221;](/content/gnews/23/README.md)
+### [俄乌停战磋商预计于28日在土耳其举行](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海今天开始封城❗️❗️](/content/gnews/24/README.md)
- ` mayflowertranslate`
+### [炮火中的葬礼](/content/gnews/19/README.md)
+ ` 银河歌舞厅`
 
-### [秘翻在线:饥荒近在眼前](/content/gnews/25/README.md)
+### [英国将在未来几周内公布加密货币监管计划](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：如果你不好意思说被裁员了 那就说毕业了](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西方真正的软实力叫做信仰](/content/gnews/26/README.md)
+### [澳洲政府扩大首次置业者担保计划](/content/gnews/22/README.md)
+ ` 走进澳洲`
+
+### [澳洲拟消减燃油税六个月，缓解生活成本上升压力](/content/gnews/23/README.md)
+ ` 走进澳洲`
+
+### [直播的无限魅力](/content/gnews/24/README.md)
  ` 银河歌舞厅`
+
+### [심근염 환자의 50%는 백신 접종 후 5년 이내에 사망](/content/gnews/25/README.md)
+ ` 祁明`
+
+### [岸田首相在日本防卫大学毕业典礼上对毕业生训示，入侵乌克兰是 &#8220;取决于事态发展是战后最大的危机&#8221;](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [大选前通货膨胀加剧，澳大利亚总理面临预算考验](/content/gnews/27/README.md)
  ` 走进澳洲`

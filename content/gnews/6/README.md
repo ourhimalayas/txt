@@ -2,25 +2,41 @@
 ---
 
 
-## 视频|我们在做本应由中国政府做的事情
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2245781/)
+## 以色列总理贝內特与美国国务卿布林肯会面
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2245820/)
 
-制作：香草山视频部
+来自N12news/
+编译：GM
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/不理肯-1.jpg)
+会上，贝内特强调了以色列对维也纳会谈和核协议的立场，强调以色列反对將伊朗革命卫队从恐怖组织名单中除名。
 
-3月25日，班农战斗室连线采访了新中国联邦、法治基金在乌克兰前线救援中心的精粮战友，了解前线的救援情况。
+以色列总理贝内特在耶路撒冷与美国国务卿布林肯发表联合声明：“我们正在更新旧的和平，并用亚伯拉罕协议的新能量重新注入它，我们正在共同努力克服旧的黑暗势力，建设更多美好、更光辉？更多出人意料的新未来。”
 
-精粮战友详细介绍了前线面对的环境、战友们所做的一些具体工作、对乌克兰难民提供的帮助，并表明了自己和战友们希望通过行动表明新中国人热爱自由、和平的决心。
+以色列总理贝内特对国务卿布林肯说：“正如我与您分享的那样，我们对將伊朗革命卫队从恐怖组织名单中删除的意图感到担𣏞。他们的下属胡塞武装仅在周末才在沙特阿拉伯发动了一次严重袭击。我希望美国在这个关键问题上听到该地区关注的声音。”
 
-谈到中共对前线战友救援行动的阻挠，精粮战友介绍了中共如何发布虚假信息、抹黑新中国联邦的救援行动，以及战友如何坚持把同胞救援到安全的地点，并强调说，我们正在做本应由中国政府做的事情。
+编者：2019年，川普政府將伊朗革命卫队定为“外国恐怖组织”（FTO)，美国首次將外国官方军事机构定为恐怖组织。拜登政府考虑將伊朗革命卫队移出恐怖组织名单 恐对以色列构成重大威胁，若美国解除对伊朗核制裁，伊朗可以更多支持黎巴嫩真主党、存在加萨法哈马斯和伊斯兰圣战组织、在也门的青年运动，以及在叙利亚和伊拉克的多个团体，他们可以会对以色列发动更多恐怖袭击和攻击。
 
-班农先生对新中国联邦和新中国人的形象给予了充分的肯定和称赞。
+新闻链接：[https://twitter.com/N12News/status/1508051647603298309?t=bNVX0DE0V6A7WfqtJEtmiw&s=08](https://twitter.com/N12News/status/1508051647603298309?t=bNVX0DE0V6A7WfqtJEtmiw&amp;s=08)
 
-发稿：Daxia
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
+> רה"מ [@naftalibennett](https://twitter.com/naftalibennett?ref_src=twsrc%5Etfw) פנה למזכיר המדינה [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): "כפי ששיתפתי אותך, אנו מודאגים מהכוונה להסיר מרשימת ארגוני הטרור את משמרות המהפכה. שלוחותיהם, החות'ים, ביצעו רק בסוף השבוע פיגוע קשה בסעודיה. אני מקווה שארה"ב תשמע את הקולות המודאגים מהאזור בסוגיה קריטית זו"[@yaronavraham](https://twitter.com/yaronavraham?ref_src=twsrc%5Etfw)
+> — החדשות – N12 (@N12News) [March 27, 2022](https://twitter.com/N12News/status/1508052367333281794?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> ראש הממשלה [@naftalibennett](https://twitter.com/naftalibennett?ref_src=twsrc%5Etfw) נפגש עם מזכיר המדינה האמריקני [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw). בפגישה הדגיש בנט את העמדה הישראלית ביחס לשיחות וינה ולהסכם הגרעין, בדגש על התנגדותה של ישראל להוצאת משמרות המהפכה מרשימת ארגוני הטרור
+> 
+> 📷קובי גדעון, לע"מ [pic.twitter.com/mIb8M0UDXC](https://t.co/mIb8M0UDXC)
+> — החדשות – N12 (@N12News) [March 27, 2022](https://twitter.com/N12News/status/1508049938801954816?ref_src=twsrc%5Etfw)
+
+
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

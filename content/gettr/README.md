@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 12:30 PM (UTC)`
+
+2022.03.28 早 《新中国联邦新闻》黄色救援马甲醒目标语区分中共与新中国人； 新中国联邦两周年纪念活动正式启动
+![img](https://media.gettr.com/group48/origin/2022/03/01/13/72c339ef-f26c-5cb0-c985-b4fba74493cd/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/28/2022 10:11 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 3/27/2022 Miles Guo: What are the implications of Biden’s speech in Poland? 1) The UN has basically disintegrated, with the CCP, India, and Russia ousted; 2) the European countries are unprecedentedly united, and Ukraine will be the center of Europe; and 3) the US will be the biggest winner. The world’s landscape will undergo a major change. Regarding Biden's speech, the ultimate winners will be the citizens of the New Federal State of China, who have not got the COVID jabs, are taking down the CCP, and own the Himalaya Coins.<br/><br/><br/>3/27/2022 文贵直播：拜登的波兰演讲意味着什么？1）联合国基本解体，中印俄出局；2）欧洲各国前所未有的团结一致，欧洲将以乌克兰为中心，3）美国是最大的赢家；世界格局将巨变；拜登演讲里的最大赢家是无苗灭共有币的新中国联邦人<br/>
 ![img](https://media.gettr.com/group39/getter/2022/03/28/01/df13b306-640f-d815-1236-3d60f57f4ac1/out.jpg)
-
----
-
-`@miles 3/28/2022 12:30 AM (UTC)`
-
-2022.03.27 晚 《新中国联邦新闻》我们在做本应由中国政府做的事情； 俄乌战争是对全世界政客关于世界认知的一场检验
-![img](https://media.gettr.com/group47/origin/2022/03/28/00/70f18e70-e4d5-c431-19d6-99673cfb953b/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

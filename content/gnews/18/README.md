@@ -2,40 +2,38 @@
 ---
 
 
-## 澳洲政府扩大首次置业者担保计划
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2245451/)
+## 俄乌停战磋商预计于28日在土耳其举行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2245498/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
+就俄罗斯入侵乌克兰问题，两国代表团预计将于28日在土耳其伊斯坦布尔面谈进行停战谈判。
+视频来源：goo新闻
+据土耳其政府称，普京总统和埃尔多安总统于27日进行了电话会谈，并同意俄乌双方代表团在伊斯坦布尔举行停战磋商。
 
-整理/编辑：文泓
+乌克兰谈判代表表示，将于28日至30日进行面谈，而一位俄罗斯代表团成员表示，（谈判）时间为29日至30日。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/T4I5@ZJ353QP96K1MIV@KU.png)图片来源： & 雅典娜设计组
+停战谈判的主要焦点是乌克兰的“中立化”和“非军事化”。
 
+27日，泽连斯基总统在接受俄媒体采访时说，认为“中立化”必须由第三方担保和公民投票。
 
-联邦政府将在周二的预算案中公布扩大住房担保计划（Home Guarantee Scheme），用以帮助更多澳大利亚人购置他们的第一套住房。
+他还表示，“拒绝”俄罗斯的“非军事化”要求。
 
-受益于住房保障计划的名额将几乎翻倍，达每年五万个名额。**从****7****月****1****日起，首次置业担保计划（****First Home Guarantee Scheme****）的名额每年将有约****3.5****万个，以支持首次置业者以最少****5%****的首付购买新房或现房。**
+俄罗斯监管机构发出警告，俄罗斯媒体不得报道他们的此次采访。据路透社报道，具体原因并没有透露。
 
-为单亲家长提供低至2%首付的家庭住房保障（Family Home Guarantee）名额每年将增至5000个，新的边远地区家庭住房保障计划（Regional Home Guarantee）将支持一万人——包括非首次置业者和永久居民——在澳大利亚各地区建造或购买新房产。
+与此同时，（美国）政府官员被追问到美国总统拜登批评俄罗斯总统普京“不能再掌权”的言论。
 
-上述计划对收入的要求为：单身人士收入上限为12.5万澳元，配偶双方收入上限为20万澳元。
+27日，国务卿布林肯强调，没有要求俄罗斯更换体制的战略。
 
-澳大利亚国库部长乔希·弗莱登伯格表示，住房担保计划的扩大将有助于“让更多的澳大利亚人实现拥有住房的愿望”。
+他说：“美国对俄罗斯或任何国家没有旨在更替体制的目标战略。这取决于（当事国的人民，即）俄罗斯的人民。”
 
-他说：“这意味着帮助更多的单亲家长以低至2%的首付购房，帮助更多支付低至5%首付的首次置业者购房。”
+参考链接：[停戦協議、28日にもトルコで行われる見通し(日テレNEWS24) – goo ニュース](https://news.goo.ne.jp/article/ntv_news24/world/ntv_news24-2022032808117256.html)
 
-“我们同样支持我们边远地区的人民，每年在新的边远地区住房担保计划中提供一万个名额，以帮助符合条件的购房者在该地区购买或建造新房。”
+* * *
 
-参考链接：[联邦预算扩大首次置业者支持计划](https://www.sbs.com.au/chinese/mandarin/zh-hans/government-to-expand-first-home-buyers-scheme-in-budget-increase-infrastructure-spending)
-
-发布*：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+审核：BryanW
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
