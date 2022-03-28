@@ -2,25 +2,26 @@
 ---
 
 
-## 首都渥太华再现反疫苗政策抗议行动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242363/)
+## 加拿大联邦机构仍顽固执行现行疫苗政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242477/)
 
-作者：加拿大温哥华扬帆农场 – 青青 – 文明(添草灭共)
+作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
 
-据加拿大【ctv新闻】3月26日报道，在特鲁多政府的皇家骑警将反疫苗护照运动的卡车司机们驱离首都的一个多月后，大量抗议者在当天又再次返回并集结在渥太华市中心。
+据加拿大【真北方】3月25日报道，尽管全国各地都逐步取消了疫情限制措施，但联邦政府和部分省份还仍在坚持疫苗接种政策，甚至在同一司法管辖区内出现了相互冲突。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3330.png)图片来源：ctvnews
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3332.png)图品来源：tnc
 
 
-报道称，数百辆来自魁北克的汽车在市中心缓缓绕行，鸣笛抗议。 本次示威活动的组织者表示，在所有不合理的疫情限制措施被当局取消之前将不会离开渥太华。
+报道称，新不伦瑞克省现虽已废除疫苗护照，但该省的圣约翰市政府却仍对其雇员执行强制疫苗规定；BC省是最晚取消卫生限制的省份，但目前仍在实施苛刻的疫苗授权，并已解雇了数千名因此而被迫休假的公共雇员。相反，维多利亚市却未采取省政府的政策，而宣布将对未接种疫苗的雇员复职。
 
-据悉，尽管自由党政府计划在4月底前取消所有的卫生防疫限制，但在全国范围内没有疫苗护照仍然不能自由地旅行，而且所有未接种疫苗的大学生都将继续被拒绝进入校园。 渥太华警方当天表示，大约有300辆参与示威活动的汽车穿过主要市区街道，但目前尚未出现与抗议活动发生冲突的相关报道。
+目前，全国各地的疫苗接种政策错综复杂，变化不断，但联邦政府机构、部分省、市政府，甚至个别企业仍顽固要求其雇员提供疫苗接种证明。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342](https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342)
+原文链接： [https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/](https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/)
+
 
  
 

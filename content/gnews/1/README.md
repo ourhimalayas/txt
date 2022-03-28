@@ -2,40 +2,30 @@
 ---
 
 
-## 灭共段子┃文贵大直播
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242697/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2242820/)
 
-*撰稿：东京樱花团/保和
-视频：东京樱花团/俪影*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/灭共段子┃文贵大直播1.png)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-22.png)
 
-盖特上线新闻看 今晚直播有陪伴
 
-昨天年会战友笑 不像中共假投票
+校对：Stay文苑
 
-美国总统波兰去 普京屠夫拜登指
+编辑：Stay文苑
 
-俄乌战争屡受挫 中共经济快嗝屁
+发稿：Stay文苑
 
-世界格局大转变 文明国家灭共起
+新闻：[https://gettr.com/post/p128vrkf6ec](https://gettr.com/post/p128vrkf6ec)
+访谈：[https://gettr.com/post/p128x648c0b](https://gettr.com/post/p128x648c0b)
 
-中共治下全部乱 早灭包子救苍生
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-24.jpeg)
 
-人与自然和平处 全球灭共透天机
-
-铲共当属新联邦 人人灭共当自强
-
-盖特链接：[https://gettr.com/post/p125ba0ebc5](https://gettr.com/post/p125ba0ebc5)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
