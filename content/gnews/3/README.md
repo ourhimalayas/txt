@@ -2,30 +2,32 @@
 ---
 
 
-## 乌克兰：哈尔科夫附近的马拉罗汉村被收复
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2247954/)
+## 加拿大教堂自发组织捐助支持乌克兰
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2247993/)
 
-**反攻在进行，乌克兰军队已从俄罗斯人手中解放第一批村庄。其中一个离哈尔科夫只有四公里。**
+##### 作者：加拿大温哥华扬帆农场 – **青青（采编）、文莱（撰稿）**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-9.png)
 
-作者：AFP/str/原文发布于2022年3月28日18:48 (CET)
-翻译：LK
+据加拿大媒体【CTV新闻】3月26日报道，加拿大安大略省东部的社区继续向乌克兰提供援助支持，乌克兰抗争精神同时鼓舞着全世界人民共同合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-4-3.jpg)图片: 哈尔科夫的一名乌克兰特警。/德新社/Felipe Dana
+报道称，当地居民携带着许许多多的救援物资前往梅特兰的圣詹姆斯圣公会教堂，并且该教堂正在与海道上另外两座教堂合作。此次合作行动为乌克兰难民收集了大量的医疗和个人护理用品，同时也彰显了加拿大北方的热情与正义。
 
+据悉，加拿大不同地区的社区通过自主捐助的方式帮助乌克兰，乌克兰奋勇抗争的状态也得到了世界的敬畏，因此世界不同国家的人民会站起来合作共助以抵抗独裁霸权。
 
-乌克兰军队夺回了乌克兰东部城市哈尔科夫附近的一个村庄。一名法新社记者周一报道说，几天前还在俄罗斯控制之下的马拉罗汉，目前可在这里看到死亡的俄罗斯士兵和被摧毁的军车。据哈尔科夫市市长说，俄罗斯军队从村里用大炮轰击该城镇。
+[新闻链接](https://ottawa.ctvnews.ca/medical-supply-donations-flood-maitland-ont-church-to-support-ukraine-1.5836154)
 
-Ihor Terechow说：“我们的部队在解放马拉罗汉，这一点非常重要，因为他们不断从那里炮击城市的居民区。”该村位于哈尔科夫以东约四公里处。
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-**乌克兰：俄罗斯士兵躲在森林和地窖里**
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-据乌克兰军方称，上周中开始对在马拉罗汉的俄罗斯阵地进行袭击。一名乌克兰士兵说，由于俄罗斯士兵躲在地窖和周围的森林里，所以花了几天时间来保护这个村庄。他估计，至少有25名俄罗斯士兵被杀。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-周一，大部分被毁坏的村庄很安静。两名俄罗斯士兵的尸体躺在一条小巷里，至少还有两具尸体被扔进了一口井里。再往北几公里，乌克兰军队袭击了驻扎着俄罗斯炮兵的维尔基夫卡村的俄罗斯阵地。
-
-原文链接：[https://www.berliner-zeitung.de/news/ukrainische-streitkraefte-erobern-ortschaft-bei-charkiw-zurueck-li.219375](https://www.berliner-zeitung.de/news/ukrainische-streitkraefte-erobern-ortschaft-bei-charkiw-zurueck-li.219375)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,30 @@
 ---
 
 
-## 普京尚未准备好在和平谈判前妥协
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2247973/)
+## 新中国联邦是世界的亮点
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2248001/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：纽约香草山健身部 幸福鸟
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+早晨醒来，看见远在北京的父亲在微信上发给我的文章，题为《遇事最有水平的思维方式》。文章呼吁“在混沌中寻找亮点，通过亮点拥抱光明”，因为人的惯性思维是：“更关注哪里出了问题，而不是哪里有亮点。” 就像一张白纸上有一个小黑点，分明白色占据了大部分，但大多数人看到的只是那个小黑点。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+这篇文章写得真好！我很欣赏文章中提到的培根所说过的话：“欣赏者心中有朝霞，漠视者心中尽荒芜。” 其中道理何其深邃啊！亮点思维是让人心情愉悦的根本，懂得珍惜和欣赏生活中我们所拥有的美好的人和事，而不是只把注意力放在那些让我们痛苦、担忧、恐惧、不安、不愉快的事情上，按理说我们只要掌握了亮点思维就应该能够生活在美丽的人间天堂里。然而，这一切都必须建立在文明、有尊严、有自由、衣食无忧、老有所依这些基础上，少了这些前提，人就只能是为生存而活着，哪有心情去欣赏风花雪月？又怎能产生亮点思维？
 
+再点开微信，看见上海的姐姐发来的上海人在封城前夜疯狂抢购物资的视频。在独裁统治下的中共国，要想维护人的尊严和拥有自由谈何容易！邪恶的中共一手制造的中共病毒，疫苗和乌克兰战争灾难让全球人人自危，惶惶不可终日！中共不灭，世界不得安宁！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/S2L7ITYBXBJV3OWXLFZMZHU7PM.jpg)
+庆幸的是，新中国联邦是世界的亮点，也给人类带来无限的希望！让我们一起努力，跟随七哥早日灭共！让我们带着对灭亡后的美好未来的憧憬，去迎接能够用亮点思维生活在美丽人间天堂的美好日子的到来！相信这天很快就会到来的！
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-图片来源：路透社
+审核/编辑/发稿: 谐趣园
 
-乌克兰和俄罗斯周一准备进行两周多以来的首次面对面和平谈判，但一名美国高级官员表示，俄罗斯总统普京似乎并未准备好就结束战争做出妥协。
-
-乌克兰外交部长表示，停火是乌克兰对会谈的最大希望，会谈定于周二在伊斯坦布尔举行，此前土耳其总统塔伊普·埃尔多安（Tayyip Erdogan）周日与俄罗斯总统普京（Vladimir Putin）进行了交谈。
-
-有报道称，俄罗斯亿万富翁兼调解人罗曼·阿布拉莫维奇和乌克兰和平谈判代表在本月在基辅举行会议后出现疑似中毒症状，突显了谈判的紧张局势。
-
-周二的会谈将是自 3 月 10 日外交部长之间的激烈会晤以来的首次面对面会谈，这表明随着俄罗斯的入侵已经停滞和制裁已经打击到国内，幕后发生了转变。
-
-乌克兰官员曾表示，在看到乌克兰顽强抵抗和俄罗斯损失惨重之后，俄罗斯可能更愿意妥协。但美国国务院一名高级官员表示，普京并没有给人这种印象。
-
-🔗 [https://www.reuters.com/business/aerospace-defense/ukraine-insists-territorial-integrity-talks-resume-2022-03-28/](https://www.reuters.com/business/aerospace-defense/ukraine-insists-territorial-integrity-talks-resume-2022-03-28/)
-
-编辑发表： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
