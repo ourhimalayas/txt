@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 3:18 AM (UTC)`
+
+3/27/2022 Miles Guo: Xi Jinping will invade Taiwan anyway! Both Putin and Xi believe that their families will be taken out if they don’t defeat Europe and the US. Xi believes that only by taking Taiwan can he prevent democracy and freedom from spreading to Mainland China. Putin and Xi couldn’t care less about the Lao Baixing’s life and death, but their insanity can’t destroy the world. Both will certainly be taken down!<br/><br/>3/27/2022 文贵直播：习近平不论如何都会打台湾！普和习认为如果不干掉欧美，他们自己和家人就会被干掉；习觉得只有拿下台湾才不会让民主自由之风会吹到大陆；普和习毫不在乎老百姓的死活，但他们的疯狂毁灭不了世界，他俩将100%被灭<br/>
+![img](https://media.gettr.com/group47/getter/2022/03/28/03/c3f5a346-4074-d646-f9b1-b23b1a0b057a/out.jpg)
+
+---
+
+`@miles 3/28/2022 3:14 AM (UTC)`
+
+3/27/2022 Miles Guo: Why is it that taking down Xi Jinping is taking down the CCP? Eliminating Xi has become the consensus within the CCP. The whole world hates the CCP, and only by taking down the CCP can we save our lives, safeguard our wealth, and take revenge. With the New Federal State of China, real dictatorship under the guise of fake democracy can never emerge after the CCP is taken down.<br/><br/><br/>3/27/2022 文贵直播：为什么说灭掉习近平就是灭掉中国共产党？干掉习近平已成为中共内部共识；中共遭全世界痛恨，唯有灭共才能保命、保财、报仇；有新中国联邦在，灭共后绝不会出现假民主真独裁<br/>
+![img](https://media.gettr.com/group44/getter/2022/03/28/03/2f3d7d4e-63d1-fd97-cdd8-7e2c8f258883/out.jpg)
+
+---
+
 `@miles 3/28/2022 2:08 AM (UTC)`
 
 
@@ -140,20 +154,6 @@ Winston (GTV UK Live Host): What more can we do to convince these Chinese people
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group31/origin/2022/03/27/04/4a8c901e-ceca-ff00-1217-9edf9125d672/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 3:39 AM (UTC)`
-
-我们是消灭邪恶共产党的新中国联邦人<br/>We are the citizens of the New Federal State of China. Our mission is to take down the evil Chinese Communist Party.<br/><br/>共产党是全球灾难的根源<br/>The Chinese Communist Party is at the root of all global disasters.<br/><br/>拯救人类的手段是消灭共产党<br/>The only Way to save humanity is to take down the Chinese Communist Party.<br/><br/>我们与乌克兰人民站在一起🇺🇦<br/>We stand with the Ukrainian People🇺🇦<br/><br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group46/getter/2022/03/27/03/425ee53e-a39f-9b29-b8bc-a92c641c9c89/out.jpg)
-
----
-
-`@miles 3/27/2022 2:30 AM (UTC)`
-
-
-![img](https://media.gettr.com/group36/origin/2022/03/27/02/1593a18d-d2bc-374e-de30-896627209477/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,30 +2,20 @@
 ---
 
 
-## 大直播后记：世界完成三大重要转变
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2242329/)
+## 2022年3月28日《樱花快报》：上海中共病毒爆发 紧急封城！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242479/)
 
-#### 整理：清水冷香、北酒仙翁
-编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220328快报.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-73.png)图片来源：雅典娜设计组
-
-
-英国告诉你是为什么大英帝国一千年创造了民主。尊重别人、自我解决，关键时候走到前线上去，集体决定。这是为什么一个集体生活，几乎日本这个群居的国家一个岛国。，所谓团队上最好的，但是在这一场（战争）当中却是绝对从上往下百分之八十五的人认为日本开宣战权，这不是政治操作，这是民心。说到这儿拜登这一场演讲意味着什么，世界到了三个重大的转变已经彻底结束，这是不可思议的。世界的所谓的联合国基本解体，没有什么五个常任理事国了，印度、中国基本上就是出局了，俄罗斯出局了。联合国结束了，国际规则重新打破，即使存在未来一定是日本加入，乌克兰这都要被提名，肯定了吧。
-
-第二，欧洲前所未有的团结和一致的行动包括脱欧的英国形成了真正的大欧洲，但是欧洲将未来精神图腾就是乌克兰，也就是欧洲北上肢解俄罗斯。已经从西欧的中心变成了东欧的中心，现在的人类从地中海转向死海，而且是科技化，任何人改变不了。大家现在发现乌克兰没粮食，俄罗斯没粮食，你们会饿肚子的，不减产美女，而且是各种科技工程师都在那儿，它最最需要的，欧洲人的效率团结勇气都在乌克兰。
-
-第三，大家看到没有，美国是最大的赢家，一个伊隆·马斯克就把全球的军事给改变完了，很多还没上呢，人家已经各国专家预测美国有无数个伊隆·马斯克，可以改变这个规则。 唯独中国没有，中国和印度这一回我也告诉大家，直接中国解体，一定会解体。印度这个国家在西方这一次的跟西方之间关系退回到真的一百年差不多，二战以前。这个人类的变化是无法想象的。最后又将日本从二战后的日本直接拉回到世界上超级大国行列。今天七哥给你们解读，今天拜登这个演讲毫不夸张。我自己跟旁边人说，我说你们一定要记住，今天是人类上一切的改变，一切的一切的一切的改变，而这个改变接着因为疫苗会无限扩大，会加速这个概念的具体。
-
-资料来源：[郭文贵先生3月27日大直播](https://gettr.com/streaming/p124vkgc8a0)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

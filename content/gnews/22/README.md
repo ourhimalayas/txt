@@ -2,11 +2,13 @@
 ---
 
 
-## 3/27/2022 文贵直播：独裁者的危险在于无底线，秦刚无耻地告诉美国说中共无上限，有底线；普习二人所谓“我们合作无上限”将让无数中国人付出巨大代价
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2242152/)
+## 小泉进次郎从4月起就任自民党主席
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242162/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/20220328-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

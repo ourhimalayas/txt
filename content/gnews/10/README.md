@@ -2,41 +2,30 @@
 ---
 
 
-## 灭共段子┃疫核团传
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242676/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2242820/)
 
-撰稿：东京樱花团/发条橙
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/灭共段子┃疫核团传.png)[图片来源](http://www.jiangsu.gov.cn/art/2021/7/26/art_31260_9897924.html)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-22.png)
 
-神助拳，疫核团，借着疫情闹中原。
 
-全城人，做核酸，医保基金全掏干。
+校对：Stay文苑
 
-捅香蕉，捅海鲜，万物都要捅一圈。
+编辑：Stay文苑
 
-防护服，捏棉签，一根入魂透鼻咽。
+发稿：Stay文苑
 
-红袖箍，成大官，不服就把红码安。
+新闻：[https://gettr.com/post/p128vrkf6ec](https://gettr.com/post/p128vrkf6ec)
+访谈：[https://gettr.com/post/p128x648c0b](https://gettr.com/post/p128x648c0b)
 
-封小区，拉黄线，不给出门买菜饭。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-24.jpeg)
 
-老百姓，成囚犯，封到精神已错乱。
-
-防疫办，唯独盼，疫情封城永不断。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/灭共段子┃疫核团传2.png)
-
-盖特链接：[https://gettr.com/post/p1259vi4aec](https://gettr.com/post/p1259vi4aec)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
