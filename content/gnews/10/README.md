@@ -2,64 +2,37 @@
 ---
 
 
-## 诗歌《瘟疫季节的理解力》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2247344/)
+## 【G时新闻】欧美达成天然气协议 以减少欧洲对俄能源依赖
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2247365/)
 
-整理：vale
+**播  报：加拿大温哥华扬帆农场 -【悠然】**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
+**视频制作：加拿大温哥华扬帆农场 -【文雅】**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3438.png)
+3月25日，欧盟委员会主席冯德莱恩（Ursula von der Leyen）和美国总统拜登（Joe Biden）在布鲁塞尔共同签署一项协议，即美国将在2022年底前向欧洲国家供应至少150亿立方米的液化天然气，以减少该地区对俄罗斯燃料进口的依赖。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0940.jpg)
+据《德国之声》报道，拜登宣布，到 2030 年，美国将每年向欧盟市场提供 500 亿立方米的额外液化天然气。
 
-## **瘟疫季节的理解力**
+冯德莱恩指出，这500亿立方米的天然气将取代俄罗斯1/3的天然气，她强调，他们希望将欧洲的能源供应从俄罗斯转向安全的供应商，实现多样化。
 
-瘟疫蔓延的季节
+据了解，欧洲最大的天然气供应国俄罗斯，因入侵乌克兰将已经很高的能源价格推到了创纪录的水平，并促使欧盟承诺今年将俄罗斯的天然气使用量减少三分之二。
 
-我内心乱石穿空
+另外，俄罗斯23日还表示，包括欧盟成员国在内的”不友好”国家必须开始用卢布购买俄罗斯的石油和天然气。这加剧了对欧洲天然气供应可能中断的担忧。
 
-我已经注意到其中有一块石头
+视频链接：[https://gettr.com/post/p129ybtd9a6](https://gettr.com/post/p129ybtd9a6)
 
-像官方那样改不了撒谎的习性
+编辑/上传：蔚蓝之境
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3439.png)
+————————————————————————————————————
 
-这很好，尘土中盲目跟风的人们
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-每增加一次苦难，对我的理解力
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-就又多了一层。幸福的边缘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3440.png)
 
-苦难的中心。就是这个国家
-
-比宇宙还大，却小于一首诗
-
-是的，我曾经拥抱过这个国家
-
-沾染上了一种名叫孤独的病毒
-
-无论在哪里，我的心情都很沉重
-
-我并不后悔我在人间写诗这件事
-
-因为有你，亲爱的，看起来你也并不轻松
-
-怎么办呢？更多轻浮者盗用了你我的忧患
-
-2020.2.16.简言居
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发布：信心的选择
-
-当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
 
  
 

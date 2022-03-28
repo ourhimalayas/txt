@@ -2,8 +2,8 @@
 ---
 
 
-## 20220327郭文贵大直播 ：新中国联邦两周年纪念活动正式启动
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246962/)
+## 20220327郭文贵大直播 ：再次验证爆料革命有万佛万神的庇佑
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246982/)
 
 作者：东京樱花团小视频组
 

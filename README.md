@@ -15,88 +15,88 @@
 
 ---
 
-### [2022年3月28日，全球中共病毒疫情情况汇总](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [精糧在梅迪卡报道波兰政府提供警备上的援助](/content/gnews/2/README.md)
+### [DC每日热点0328](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [苹果削减几款热销品的产量](/content/gnews/3/README.md)
+### [喜币进入实体店意义重大-7哥视频](/content/gnews/2/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [2022年3月28日，全球中共病毒疫情情况汇总](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [精糧在梅迪卡报道波兰政府提供警备上的援助](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [苹果削减几款热销品的产量](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年3月28日:财经新闻整理](/content/gnews/4/README.md)
+### [新西兰财经G乐部2022年3月28日:财经新闻整理](/content/gnews/6/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [马斯克“认真思考”要建立一个新的社交媒体平台](/content/gnews/5/README.md)
+### [马斯克“认真思考”要建立一个新的社交媒体平台](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国全网封杀基努-里维斯](/content/gnews/6/README.md)
+### [中共国全网封杀基努-里维斯](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战争前的情报暗战与北美教练出离平静的愤怒](/content/gnews/7/README.md)
+### [俄乌战争前的情报暗战与北美教练出离平静的愤怒](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [【G时新闻】欧美达成天然气协议 以减少欧洲对俄能源依赖](/content/gnews/8/README.md)
+### [【G时新闻】欧美达成天然气协议 以减少欧洲对俄能源依赖](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [G7同意拒绝俄罗斯以卢布支付天然气的要求](/content/gnews/9/README.md)
+### [G7同意拒绝俄罗斯以卢布支付天然气的要求](/content/gnews/11/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [诗歌《瘟疫季节的理解力》](/content/gnews/10/README.md)
+### [诗歌《瘟疫季节的理解力》](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前线快讯 ™ 每日剂量 &#8211; 彼得森皮埃尔博士的“数据不支持疫苗”](/content/gnews/11/README.md)
+### [前线快讯 ™ 每日剂量 &#8211; 彼得森皮埃尔博士的“数据不支持疫苗”](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [【转】截至3.28 俄乌战事汇总](/content/gnews/12/README.md)
+### [【转】截至3.28 俄乌战事汇总](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我们的目标之一就是要展现新中国联邦人的人道主义精神](/content/gnews/13/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [福奇终于承认自然免疫力](/content/gnews/14/README.md)
+### [福奇终于承认自然免疫力](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [精糧在梅迪卡波兰难民营采访乌克兰难民](/content/gnews/15/README.md)
+### [精糧在梅迪卡波兰难民营采访乌克兰难民](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [融创到期债务无法兑付，中共房地产泡沫加速破裂](/content/gnews/16/README.md)
+### [融创到期债务无法兑付，中共房地产泡沫加速破裂](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [联盟工作汇报文字版2022.3.27](/content/gnews/17/README.md)
+### [联盟工作汇报文字版2022.3.27](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [俄乌明天将在土耳其举行面对面谈判](/content/gnews/18/README.md)
+### [俄乌明天将在土耳其举行面对面谈判](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [2022/03/28英喜时事速递](/content/gnews/19/README.md)
+### [2022/03/28英喜时事速递](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜马拉雅币一周分析与总结（3月21日-3月27日）](/content/gnews/20/README.md)
+### [喜马拉雅币一周分析与总结（3月21日-3月27日）](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [以太坊正在向产权证明区块链转型](/content/gnews/21/README.md)
+### [以太坊正在向产权证明区块链转型](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [中共大疆为俄军飞弹导航 德国零售商下架其无人机商品](/content/gnews/22/README.md)
+### [中共大疆为俄军飞弹导航 德国零售商下架其无人机商品](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [COVID-19疫苗副作用集萃（2022.3.28C）](/content/gnews/23/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.28C）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球领导人无法再否认的噩梦：暴涨的肥料和粮食短缺](/content/gnews/24/README.md)
+### [全球领导人无法再否认的噩梦：暴涨的肥料和粮食短缺](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [东航坠机机上人员全部遇难 中共称找到第二个黑匣子](/content/gnews/25/README.md)
+### [东航坠机机上人员全部遇难 中共称找到第二个黑匣子](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [乌克兰用火车向欧洲出口玉米](/content/gnews/26/README.md)
+### [乌克兰用火车向欧洲出口玉米](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [20220327郭文贵大直播 ：再次验证爆料革命有万佛万神的庇佑](/content/gnews/27/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220327郭文贵大直播 ：新中国联邦两周年纪念活动正式启动](/content/gnews/28/README.md)
+### [20220327郭文贵大直播 ：再次验证爆料革命有万佛万神的庇佑](/content/gnews/28/README.md)
  ` Tokyo Sakura Video Group`
 
 ### [前球星警告不要让英国变得像中共国一样失去言论自由](/content/gnews/29/README.md)

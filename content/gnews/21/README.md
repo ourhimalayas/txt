@@ -2,10 +2,10 @@
 ---
 
 
-## 以太坊正在向产权证明区块链转型
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247045/)
+## 喜马拉雅币一周分析与总结（3月21日-3月27日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247046/)
 
-作者：纽约香草山农场 -文真
+作者：纽约香草山金融部 – ILOVE战神
 
 
 
@@ -13,17 +13,20 @@
 
 
 
-3月23日，外媒报导称，作为世界第二大加密货币的以太坊，正在从工作证明共识机制转向产权证明共识机制。按计划，以太坊将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
+过去一周喜马拉雅币价格回落至40美元左右，平均日交易量约8万枚喜币。喜币上市以来总交易量约3140万枚，占今年总发行量的仅约3.14%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-8.jpg)
+3月21日，世界互联网内容分发网络CDN与云计算巨头阿卡迈科技公司在其推特账号上发布了介绍喜马拉雅交易所的文章。文章介绍了喜币结合最前沿区块链技术的稳定双币系统以及喜支付App。文章指出，网络信息安全仍然是加密货币面临的主要挑战，并宣布阿卡迈科技将与其合作伙伴，互联网服务提供商Teneo，一起为喜交所提供网络安全服务，确保喜币交易的快速、可靠、安全。阿卡迈科技提供了世界上最大的分布式计算平台之一，并承担了全球15%-30%的网络流量。与阿卡迈的合作体现出喜交所走在了网络安全的最前沿。
 
-产权证明是区块链网络为实现分布式共识建立的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-9.jpg)
-对比工作证明，产权证明共识机制有诸多优势：首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。其次，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。再次，网络中会出现更多节点，对中心化有更强的免疫力。最后，将扩展以太坊网络的一个关键升级，对区块链的支持力更强。
+本周郭文贵先生在大直播中透露，喜币会为中国人创造一个财富不可能被任何人剥夺的金融机构。传统的法币被政府随意操纵，政府可以不负责任。加密数字货币不可剥夺、不可篡改，无国界，无第三方，无制约，而且永恒存在。新中国联邦将拥有铸币权。喜币和躺平币一定是世界上最稳定，最安全，最快捷，最低成本，永远不可被剥夺的私人财富的创造者。相比之下，共产党的房地产、银行只能让人走向死亡。中国人只有获得财务解放，信仰解放，才能辨别真假、识善恶，中华民族才能得救。郭先生本周还透露，俄罗斯富豪阿布很早就投资了喜币，并作为核心资产长期持有。
 
-使用产权证明共识机制后，验证者不必相互争夺，在能源和计算硬件上花费巨大。以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该区块链一直在平行运作，而且正在将实际执行交易和用户资产的转移合并到新的系统。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-68.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-16.png)
 
 参考链接：
-1. [BLOCKCHAIN Proof of stake](https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/)
-2. [PROOF-OF-STAKE (POS)](https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
+1. [As #cryptocurrency evolves so does the threat landscape. Take a look at how Akamai is protecting @himalayaxchange against #DDoS attacks](https://twitter.com/Akamai/status/1505874372229218305)
+2. [Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
+3. [喜交所官网： HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
