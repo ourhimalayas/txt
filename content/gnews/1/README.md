@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥说自己信命
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243645/)
+## 新能源和无皇有主的时代
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243895/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10.10-10.20-2--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10-10-20-1--scaled.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

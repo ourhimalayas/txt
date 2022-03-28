@@ -2,11 +2,11 @@
 ---
 
 
-## 新中国联邦得天助，做事情要抓重点（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243602/)
+## 法国这个国家不可能有未来
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243870/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-50-9-002-四-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-05-10-10-02--scaled.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

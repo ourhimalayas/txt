@@ -2,11 +2,11 @@
 ---
 
 
-## 新中国联邦得天助，做事情要抓重点（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243540/)
+## 唤醒了日本和德国两个好战之国，一旦发动战争那是不可想象的（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243854/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-50-9-002-三-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-05-10-10-一-scaled.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

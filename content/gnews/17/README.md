@@ -2,29 +2,29 @@
 ---
 
 
-## 有声｜乌克兰称切尔诺贝利的俄军或造成二次核扩散
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2243344/)
+## 有声⎪俄警告媒体:不要报道对乌克兰总统的采访
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2243391/)
 
 By:**秘翻新闻**
 
 **2022-03-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-64.png)图片来源 路透社
-[据路透社当地时间3月27日报道，乌克兰副总理周日指责俄罗斯在切尔诺贝利核电站禁区进行军事化行为，称这种行为可能会使欧洲大部分地区面临辐射危险，同时她还敦促联合国派遣一个特派团评估风险。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/封面2-1.jpg)图片源自:路透社
+**[《路透社》](https://www.reuters.com/world/europe/russia-warns-media-dont-report-interview-with-ukrainian-president-2022-03-27/)**伦敦3月27日报道。周日，俄罗斯通讯监管机构告诉俄罗斯媒体，不要报道对乌克兰总统泽伦斯基的采访，并表示已开始对采访过泽伦斯基的媒体展开调查。
 
-[韦列舒克表示，俄军正在运送大量陈旧且维护不善的武器，这可能会损坏在该核电站周围建造的安全壳。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+报道称，该监督机构在社交媒体上的发布和其网站上的一份简短声明称，许多俄罗斯媒体都对泽伦斯基进行了采访。
 
-[韦列舒克在她的 Telegram 账户上指出俄军这种不负责任和不专业的危险行为，并呼吁联合国安理会立即采取措施，禁止在切尔诺贝利核电站周围做出军事化行为，并组织一个特派团，以消除俄军导致切尔诺贝利灾难再次发生的风险。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+据报道，此前，泽伦斯基接受了几家俄罗斯出版物的采访。
 
-[她还表示，若欧洲资助建造的安全壳受损，将不可避免地导致大量放射性粉尘和污染物释放到大气中，不仅在乌克兰，还将扩散到其他欧洲国家。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+俄罗斯媒体监管机构警告俄罗斯媒体，必须避免发表这一采访，但没有给出警告的理由。
 
-[路透社无法立即核实韦列舒克的说法。但俄军在入侵的前几天占领了切尔诺贝利站，并一度阻止在那里的维护人员离开。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+俄罗斯检察官说，将就采访中的言论和发表采访的合法性提出法律意见。
 
-秘翻新闻 文洋编译报道
+（秘翻新闻  冰糖葫芦喵 编译报道）
 
-发布 : 恩典
+发布:星星
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-328.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

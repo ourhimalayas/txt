@@ -2,35 +2,26 @@
 ---
 
 
-## 美财长耶伦赞同加密货币的创新称需要被监管
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
+## 援乌营地：幼小的心灵 坚定的信念
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2242919/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
-据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
+**作者、编辑：Candy**
+**视频提供：小小酥**
 
-周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
+波兰时间3月27日：在新中国联邦和法治基金援乌营地的儿童娱乐角，又一波小朋友在此享受一段没有战争的快乐时光。就在这短暂的时间里，一位小女孩画出了自己的情感和心愿：一颗热爱乌克兰的心因战争而受伤，希望战争早日结束，来修复那颗爱国之心。
 
-她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
+前不久在我们的七星大帐蓬里，有一个画了同样题材的小女孩仍然历历在目，她们的年龄看起来相差无几，都因逃离战争而到此休息。虽然她们可能来自乌克兰不同的地方，但她们都表达了相同的感情：因为遭受俄罗斯的侵略战争而悲伤，但那颗幼小的爱国的心没有变，更愿战争早日结束，回到自己热爱的国家。
 
-她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
+乌克兰民族之所以成为受人尊敬的民族，因为他们有着拳拳的爱国之心、顽强的战斗意志、坚定的必胜信念，绝不会主动放下武器、向侵略到自己国土的敌人屈膝投降！妈妈们带着孩子们有礼貌、有尊严地接受着帮助，我们也能从这些幼小的孩子们身上，看到这个民族教育的成功。
 
-展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
+***发布：Candy***
 
-报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
-新闻来源链接：
-
-[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

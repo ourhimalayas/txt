@@ -2,89 +2,58 @@
 ---
 
 
-## 拜登总统致俄罗斯人民：你们不是我们的敌人
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2243063/)
+## 《避风港Haven》直播内容精选（第二十六集·下）
+` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2243203/)
 
-**拜登总统：** 
-致俄罗斯人民：你们不是我们的敌人。 美国人民与你们和乌克兰渴望和平的勇敢公民们站在一起。 【附拜登在波兰华沙的演讲视频】
+视频剪辑：黑嫂子
+**现场问诊 **
 
-
-
-> To the Russian people: You are not our enemy.
->  
-> The American people stand with you and the brave citizens in Ukraine who want peace. [pic.twitter.com/gsbtNYLKDt](https://t.co/gsbtNYLKDt)
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507850953835307011?ref_src=twsrc%5Etfw)
+1. 100%的青蒿素粉和青蒿琥酯哪个对解疫苗毒更好呢？
 
 
+**答：青蒿琥酯是青蒿素进一步提练而来的，如果说青蒿素可以被人体利用10%左右的话，那青蒿琥酯可以利用到70–80%，所以说青蒿琥酯的药用价值更大。**
 
-**拜登总统： **
-一心重建帝国的独裁者永远不会抹去人民对自由的热爱。 残暴永远不会磨灭他们的自由意志。 乌克兰永远不会成为俄罗斯的胜利。
-
-
-
-> A dictator bent on rebuilding an empire will never erase a people’s love for liberty.
->  
-> Brutality will never grind down their will to be free.
->  
-> Ukraine will never be a victory for Russia.
-> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507893569645912064?ref_src=twsrc%5Etfw)
+1. 我有一个朋友，墙内的20多岁，大约是去年六七月份打的疫苗，没打第三针。一个月前出现了胸闷，现在胸闷没有了，但是感觉肺部有问题，躺下去就不好喘气儿想咳嗽，但是没有痰，不发烧。他自己感觉跑步会舒服一些。请问医生，这个是不是疫苗的反应啊？为什么会觉得运动后舒服呢？有这些反应是不是证明已经很严重？但我现在还没有说服他吃青蒿素解毒，应该劝他去医院做哪些项目检查啊？
 
 
+**答：首先他出现胸闷，可能是血栓在心脏部位；后来出现呼吸障碍，也可能栓塞在肺部。就是说血栓在血液循环是活动性的。循环速度加快，血流就可带着血栓走向任何一个目的地；可能他的血栓很小，运动过后觉得自己症状稍有缓解是因为栓子移向它处，但是症状还会回来，因为血栓在闭合的循环里。他应该做的检查就是血液炎症及免疫学生化指标检查, 如ESR,CRP, D-dimer, IgE, 免疫细胞学检查。**
 
-**拜登总统： **
-帮助乌克兰难民不是波兰或任何国家应该独自承担的事情。 世界上所有的民主国家都有责任提供帮助。 乌克兰人民可以指望美国履行其责任。 我们将欢迎 10万乌克兰难民。
-
-
-
-> Helping Ukrainian refugees is not something Poland or any nation should carry alone.
->  
-> All the world’s democracies have a responsibility to help. And the people of Ukraine can count on the United States to meet its responsibility. 
-> 
-> We will welcome 100,000 Ukrainian refugees.
-> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507870489821290505?ref_src=twsrc%5Etfw)
+1. 我上周用车接送了戴口罩的刚刚阳性转阴性的战友们，还和轻症的阳性转阴的战友们一起吃了饭，需要吃什么药吗？还是只继续喝黑孜然籽油和芹菜汁就可以了？
 
 
+答：与病毒感染者近距离接触, 应该预防性服用一周的治疗量，按照病毒感染治疗（方案节目后面有0）。
 
-**美国务卿安东尼·布林肯：**
-很高兴今天在以色列与外交部长亚伊尔·拉皮德[@yairlapid](https://twitter.com/yairlapid)会面，讨论重要的全球问题，例如普京总统对乌克兰及其人民的野蛮袭击、以及伊朗带来的挑战。 美国对以色列的承诺是铁定的。
-
-
-
-> Good to be in Israel and meet with Foreign Minister [@yairlapid](https://twitter.com/yairlapid?ref_src=twsrc%5Etfw) today to discuss important global issues such as President Putin’s brutal attack on Ukraine and its people and challenges posed by Iran. The U.S. commitment to Israel is ironclad. [pic.twitter.com/XGRVMVQ7Ks](https://t.co/XGRVMVQ7Ks)
-> — Secretary Antony Blinken (@SecBlinken) [March 27, 2022](https://twitter.com/SecBlinken/status/1508058763923701763?ref_src=twsrc%5Etfw)
+1. 感染OMICRON之后，经过伊维菌素、红霉素、维生素、阿奇霉素和NAC的治疗后五天就转阴了，请问体内还有病毒吗？
 
 
+**答：肯定有的。PCR核酸检查本就是个错误, 抗原抗体检测也只有一半一下的准确率。而病毒有它自己的生命周期，就是说虽然检测结果是阴性，不等于说病毒的刺突蛋白就不存在了，体细胞内可以有隐藏, 只是抗体检测不到。建议青蒿素排毒**。
 
-**前副国务卿基思·克拉奇： **
-谢谢@RepHarshbarger。 我感谢您为促进自由和确保美国投资者不会在不知不觉中资助中国共产党的军事集结、技术威权主义和侵犯人权行为（包括 [#新疆大屠杀](https://gettr.com/hashtag/%23%E6%96%B0%E7%96%86%E5%A4%A7%E5%B1%A0%E6%9D%80) [#UyghurGenocide](https://gettr.com/hashtag/%23UyghurGenocide) ）所做的努力。 【转众议员戴安娜·哈什巴格推文：我很高兴看到民主的强烈拥护者@KeithJKrach 被提名获得 2022 年诺贝尔和平奖。 他对和平的不懈追求、对台湾的倡导以及对和平国际关系的重新构想，使基思成为真正的候选人。 恭喜！】
-
-
-
-> Thank you [@RepHarshbarger](https://twitter.com/RepHarshbarger?ref_src=twsrc%5Etfw). I appreciate your efforts to advance freedom and ensure American investors aren’t unknowingly financing the Chinese Communist Party’s military buildup, techno-authoritarianism, and human rights abuses, including the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/B4PRPyeF59](https://t.co/B4PRPyeF59)
-> — Keith J. Krach (@KeithJKrach) [March 27, 2022](https://twitter.com/KeithJKrach/status/1508098997583548423?ref_src=twsrc%5Etfw)
+1. 国内疫情报告数字是X+Y，X代表确诊，Y代表无症状，Y甚至是X的数十倍，这在疫情爆发以来是前所未有的，请问为什么呢？
 
 
+**答：这是事实,只是疫情初期,真相被掩盖。有正常免疫力的人，在生命某一个阶段完全可能接触过某种冠状病毒，因为很多流感病毒就是冠状病毒，只要你接触过感染过，你就有相应的抗体，而且通常有终身免疫记忆。那么对于这次的OMICRON或其他形式的变异病毒，即便你被感染了，但因为体内已经有针对冠状病毒的抗体，所以可以没有症状或症状很轻，你自己觉得可能是受凉了，过两、三天就好了。**
 
-**参议员玛莎.布莱克本：** 
-塔利班政府正在对阿富汗妇女实施新的监护人规则。 这是我们灾难性地离开阿富汗的结果。
-
-
-
-> The Taliban government is imposing new chaperone rules on Afghan women. This is the result of our disastrous departure from Afghanistan.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 27, 2022](https://twitter.com/MarshaBlackburn/status/1508174111935238150?ref_src=twsrc%5Etfw)
+1. 请问没打疫苗但感染过病毒的人也会有刺突蛋白脱落吗？这种情况的刺突蛋白脱落和打了疫苗的刺突蛋白脱落有什么区别？
 
 
+**答：接种了疫苗的人,体内被一次性地注入海量的刺突蛋白，而被天然病毒自然感染，相应的病毒的载量是有限的，病毒复制和解体有自己的周期和规律，不可能与疫苗注入体内的上十万亿的刺突蛋白数量相比. 所以, 没有足量的刺突蛋白, 哪里来的脱落？脱落和刺突蛋白数量是有正向相关性的。**
 
-**众议员迈克.沃尔茨： **
-我不是不同意拜登的评论，即对乌克兰的凶残袭击在普京的统治结束之前不会停止。 但改变需要来自俄罗斯人民。 拜登关于政权更迭的建议将融入普京的宣传活动，他将利用这些活动巩固自己的权力。 【附视频：沃尔茨就俄罗斯残暴入侵乌克兰、及白宫称拜登没呼吁俄罗斯改变政权作评论】
+**风平浪静 — 圣经分享：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3937.jpg)By: Jenny![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3938-2.jpg)By: Jenny 
+**中共国就是罪恶之城索多玛与蛾摩拉。邪党用无神论绑架中华民族70多年，罪恶罄竹难书：锁链女能被虐24年，文贵先生所爆料的孟建柱居然“性虐祖孙三代”，乌克兰人民在流血流泪，公渣们却垂涎那里的美女。桩桩件件全无道德底线，像极了那罪恶之城多玛和蛾摩拉，人们淫乱狂妄，不敬畏神明，不懂得关爱同类。**
 
+[《避风港Haven》26集直播链接](https://gettr.com/post/p11ckiva482)
 
+[《避风港Haven》直播内容精选（第二十六集·上）](https://gnews.org/zh-hans/2243102/)
 
-> I don't disagree with Biden's comments that the murderous attack in Ukraine won't end until Putin's reign ends.
-> 
-> BUT change needs to come from the Russian people. Biden's suggestion of regime change will feed into Putin's propaganda campaign that he'll use to solidify his power. [pic.twitter.com/UxR84iR90A](https://t.co/UxR84iR90A)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508247586595028993?ref_src=twsrc%5Etfw)
+听写：Gloria/丹文
 
+文稿整理：Gloria
+
+视频剪辑：黑嫂子
+
+编辑/发布：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2022/03/预防方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/治疗方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3856.jpg)
 
 
  
