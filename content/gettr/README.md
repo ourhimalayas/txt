@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 5:01 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group16/origin/2022/03/28/04/30c591c0-c9ca-3c59-f99a-a9b2c0c75f88/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/28/2022 4:45 AM (UTC)`
 
 3/27/2022 Miles Guo: The preparatory committee for the second anniversary of the founding of the New Federal State of China was officially formed today!<br/><br/>3/27/2022 文贵直播: 新中国联邦成立两周年纪念活动筹备委员会于今天正式成立！<br/><br/>
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
  3月27号：科学政治．和政治科学的最好代表．就是这个孙子……能把谎言说成这个样子，敢这么说，真的佩服共产党的流氓政府的勇气……
 ![img](https://media.gettr.com/group8/getter/2022/03/27/16/64ff6cf6-430b-47ee-bb39-04cac109b529/out.jpg)
-
----
-
-`@miles 3/27/2022 4:37 PM (UTC)`
-
- 3月27号：世界上人权最好的国家🙈原来就是这样子的😢共产党，你还要个x脸吗？
-![img](https://media.gettr.com/group50/getter/2022/03/27/16/ad38289e-580e-b36f-d103-2e533f475a79/out.jpg)
 
 ---
 
