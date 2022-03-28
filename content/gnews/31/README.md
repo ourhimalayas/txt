@@ -2,43 +2,56 @@
 ---
 
 
-## 有声|七国集团阻止俄罗斯出售黄金储备
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246648/)
+## 特鲁多先生：你是任何民主国家的耻辱！请不要让我们看到你出现（在这里）
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2246761/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月24日外媒报导，七国集团领导人当天在布鲁塞尔的北约总部会晤，一致同意打击俄罗斯出售黄金储备以支撑卢布的能力，阻止莫斯科方面逃避西方金融制裁的企图，加大对普京政权的经济惩罚力度。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-47.jpg)
-他们在一份声明中表示,七国集团领导人和欧盟将继续共同努力，削弱俄罗斯利用其国际储备支撑俄罗斯经济和资助普京战争的能力，包括明确与俄罗斯联邦中央银行有关的任何涉及黄金的交易都要受到现有制裁的限制。
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+在请Christine Anderson女士发言，提出她的观点。谢谢。
 
-美国的一名高级官员表示，俄罗斯的黄金储备可能价值1000 亿至 1400 亿美元，有迹象表明该国央行正试图利用这些储备来“支撑卢布”。
+基于第195条，我想指出，加拿大总理特鲁多先生根据第144条（欧洲议会议事规则第144条：关于违反人权、民主和法治的辩论）在本议会发言更合适。
 
-同一天，美国财政部发布公告，禁止与俄罗斯进行黄金交易。财政部说，禁令是根据总统拜登已经签署的行政命令发布的。
+这一条是专门用来辩论侵犯人权、民主和法治的行为的，而特鲁多先生显然就是这样。一个公开钦佩中国独裁制度的总理，一个践踏基本权利，仅仅因为自己的公民敢于站出来反对他变态的民主概念，就把他们当作恐怖分子来迫害和定罪的总理，根本就不应该被允许在议会里发言。
 
-美国财政部在官网中指出：“美国人不得参与任何涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金或俄罗斯联邦财政部的交易，包括与黄金有关交易。”
+特鲁多先生，你是任何民主国家的耻辱，请不要让我们看到你出现（在这里），谢谢。
 
-美国最大的黄金交易营运商芝加哥商品交易所集团，本月稍早时候已经暂停了与六家俄罗斯炼金商的交易。
+翻译注：翻译为 “一个公开钦佩中国独裁制度的总理”
+
+素材提供：文倩
+软件听写：蓝色天空
+听写校对：小白咖啡馆
+文稿翻译：小白咖啡馆
+翻译校对：啊啊小苹果
+字幕添加：小白咖啡馆
+最终审核：文倩
+
+编辑上传：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
+
+更多加拿大溫哥華揚帆農場的頻道，請關註：
+
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
 
 
 
-文字版原文：[七国集团阻止俄罗斯出售黄金储备](https://gnews.org/zh-hans/2234280/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+更多加拿大溫哥華揚帆農場的頻道，請關註：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

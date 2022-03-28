@@ -2,35 +2,36 @@
 ---
 
 
-## 美疾控中心：5-11岁儿童疫苗接种者更易感染病毒且感染率最高
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2242151/)
+## 拜登在乌克兰的演讲改变世界
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2243241/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《网关专家》3月27日报道，**根据美国疾病控制中心（CDC）的最新数据，自开始收集数据以来，5-11岁接种疫苗的儿童的中共病毒感染率高于未接种疫苗的同龄人。在所有年龄组中，他们的感染率是全美最高。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-14-at-3-e1648426538319.jpg)图片来源：网关专家。
-报道指出，在几个月前批准了针对5岁儿童的中共病毒疫苗后，虽然**有许多证据表明这种疫苗会促进病毒在他们中间的传播，但美国专制的公共卫生机构仍在推进其接种计划，甚至为更小的儿童接种疫苗。**
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在3月27日大直播中，深入讲解了美国拜登总统在乌克兰发表演讲的重大意义。郭先生称，拜登的乌克兰演讲将会彻底改变世界政治、地域、经济和文化。
 
-最令人担忧的是，关于**5-11岁儿童**的最新数据显示，在所有其他接种疫苗的年龄组中，他们的**感染率全美最高，但是美国联邦政府还在持续推动为越来越小的儿童接种疫苗。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-13.jpeg)
 
-**此前，美国疾控中心已经承认，中共病毒不能阻止病毒的传播，**但是福奇领导的公共卫生机构**所谓专家们正准备授权进行第四针加强针，并努力为婴儿和幼儿的疫苗开绿灯。**
+郭先生说，拜登总统的讲话是人类一切转变的开始，世界将迎来大变革。
 
-据报道，在不到一年半的时间里，VAERS已经记录了超过一百万例mRNA 疫苗的不良副作用，**包括超过2万6000例死亡，1万4827例铃音麻痹，3万7133例心肌炎/心包炎，以及4万8342例永久性残疾报告，**等等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FOupOfmVkAA2QcV.jpg)2022年3月的心肌炎病例数量是2021年全年的一半以上。（openvaers.com）
-据世界上有良心的、真正的专家们在这几个月来一直警告，**mRNA疫苗是有史以来向公众推行的最危险的疫苗。**报告的数量，特别是那些严重的报告，是一个令人震惊的数字，对任何其他疫苗来说都是前所未有的。
+首先，国际规则被打破，联合国基本解体，中共国、印度、和俄罗斯将出局，未来日本将加入联合国。
 
-有消息称，**在过去，如果疫苗与两位数的死亡有关，就会被撤下隐瞒，更不用说数以万计的死亡。**
+第二，英国和欧洲达到前所未有的团结，形成大欧洲。德国对世界的军事影响增强，取代俄罗斯。坚强不屈的乌克兰传承了欧洲精神。以乌克兰为中心的东欧将成为欧洲科技、能源和经济的中心。欧洲受能源制约的时代将彻底结束。
 
-新闻来源链接：
+第三，美国是最大的赢家，会诞生无数改变世界的新兴领域。太空资源和太阳能等新能源将得到广泛应用。
 
-[Latest CDC Data Shows That Vaccinated Children Aged 5-11 Are Now MORE Likely to Catch Covid Than Their Unvaccinated Peers (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/latest-cdc-data-shows-vaccinated-children-aged-5-11-now-likely-catch-covid-unvaccinated-peers/)
+最后，拜登的乌克兰演讲的内容虽然针对俄罗斯普京，但实质将矛头指向中共习近平。中共国最终一定会被解体。印度倒退回到二战以前。日本会重新成为超级大国。美国会开始重视亚洲。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+今年年底至明年，世界将在最短的时间内，完成人类千年政治版图，进入”无皇有主“的时代。
+
+参考链接：[2022年3月27日 文贵大直播](https://gettr.com/streaming/p124vkgc8a0)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：文真
+编辑：Jack Li文阳   
+审核：Ivy001
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

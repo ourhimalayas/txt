@@ -2,10 +2,10 @@
 ---
 
 
-## 乌克兰用火车向欧洲出口玉米
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247003/)
+## 以太坊正在向产权证明区块链转型
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247045/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山农场 -文真
 
 
 
@@ -13,20 +13,21 @@
 
 
 
-3月27日外媒报道，乌克兰利沃夫的APK-Inform农业咨询公司表示，由于俄罗斯入侵，乌克兰海港仍然受到封锁，贸易商已开始通过火车向欧洲出口玉米。第一批数千吨玉米已经被运送到乌克兰西部的陆地边境。
+3月23日，外媒报导称，作为世界第二大加密货币的以太坊，正在从工作证明共识机制转向产权证明共识机制。按计划，以太坊将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
 
-乌克兰是全球主要的谷物种植国和出口国，传统上，几乎所有出口都是通过黑海港口运输的，战前每月的粮食出口量超过500万吨。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-14.jpg)
-APK-Inform公司上周曾表示，乌克兰在2021年 7月至2022年6月期间的谷物出口总量应该能达到4400万吨。但由于战争导致的物流问题，预计3月至6月只有100万吨谷物离开该国。
+产权证明是区块链网络为实现分布式共识建立的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-9.jpg)
+对比工作证明，产权证明共识机制有诸多优势：首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。其次，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。再次，网络中会出现更多节点，对中心化有更强的免疫力。最后，将扩展以太坊网络的一个关键升级，对区块链的支持力更强。
 
-乌克兰运输当局则表示，从乌克兰到欧洲的火车每月最多可以出口60万吨谷物。
+使用产权证明共识机制后，验证者不必相互争夺，在能源和计算硬件上花费巨大。以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该区块链一直在平行运作，而且正在将实际执行交易和用户资产的转移合并到新的系统。
 
 参考链接：
-[Ukraine exports first grain by train to Europe, APK-Inform says](https://www.reuters.com/world/europe/ukraine-exports-first-grain-by-train-europe-apk-inform-2022-03-27/)
+1. [BLOCKCHAIN Proof of stake](https://www.technologyreview.com/2022/02/23/1044960/proof-of-stake-cryptocurrency/)
+2. [PROOF-OF-STAKE (POS)](https://ethereum.org/en/developers/docs/consensus-mechanisms/pos/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：飞虹
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 

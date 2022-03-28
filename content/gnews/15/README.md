@@ -2,28 +2,39 @@
 ---
 
 
-## 乌克兰市长被俘 民众示威逼俄军撤退放人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246925/)
+## 俄飞弹攻击乌克兰西部城市利沃夫
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247002/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-据外媒报道，3月26日，俄军进军乌克兰北部城市斯拉夫帝奇市，占领一家医院，并俘虏了该市市长。 斯拉夫帝奇位于基辅北部100公里，该市在1986年切尔诺贝利核电站事故后建立，主要用于安置核电站的员工。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-28-上午11.23.45.png)
-市长被俘后，数以百计的民众举着乌克兰国旗涌上街头，抗议俄罗斯的入侵。俄军鸣枪示警并向人群投掷震撼弹，但民众并未因此退怯，反而有很多人走上街头。最终俄军被逼退回城市外围，并释放了市长。
+作者：纽约香草山教育部 – Naughty(文行)
 
-斯拉夫帝奇市长福米契夫，获释后相民众表示感谢，并表示，被俘期间他与俄军交涉，俄军同意在乌克兰军队不入驻该市的情况下，保证该市的安全。他补充说，由于俄军要求市民交出武器，并撤销当地的军警，政府会安排专人巡逻以维护治安。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+3月26日，外媒报导，乌克兰利沃夫当局表示，有四枚火箭弹击中了乌克兰西部城市利沃夫，这是俄罗斯入侵以来对该市最严重的袭击。
+
+利沃夫州长柯齐斯基称，26日下午3点左右，两枚火箭弹击中了该市东郊的一个燃料库，造成五人受伤，两枚火箭弹后来击中了一家军用工厂。他呼吁民众在空袭警报解除前，务必待在室内。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-13.jpg)
+利沃夫距离波兰边境70公里，当时，美国总统拜登正在波兰访问，表达对北约成员国波兰的强力支持。
+
+这座位于乌克兰西部的城市战前有人口约71.7万，自俄罗斯入侵以来，该市几乎没有受到战争影响，因此已成为逃离乌克兰东部、南部和中部战火严重地区的数千户家庭的避难所，以及逃离乌克兰的人们的中转中心。战争开始后，一些国家驻乌克兰的外交官也从基辅转移到了这里。
 
 参考链接：
-1.[烏克蘭市長被俘 市民無懼開火上街示威逼俄軍撤退放人](https://www.cna.com.tw/news/aopl/202203270070.aspx)
-2.[Ukrainian mayor taken hostage, released after protesters push Russian troops back](https://nypost.com/2022/03/26/ukraine-mayor-taken-hostage-released-after-protesters-push-troops-back/)
+[Rocket attacks hit Lviv in western Ukraine as Biden visits Poland](https://www.aljazeera.com/amp/news/2022/3/26/russian-rocket-attacks-hit-ukraines-lviv)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-编辑：文真
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

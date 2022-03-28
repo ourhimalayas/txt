@@ -2,40 +2,90 @@
 ---
 
 
-## 澳洲急诊科及择期手术的等待时间出现飙升
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2240287/)
+## 拜登总统致俄罗斯人民：你们不是我们的敌人
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2243063/)
 
-撰稿：Gradient Boost
+**拜登总统：** 
+致俄罗斯人民：你们不是我们的敌人。 美国人民与你们和乌克兰渴望和平的勇敢公民们站在一起。 【附拜登在波兰华沙的演讲视频】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pexels-pixabay-263402-scaled.jpg)网络图片
-在新一轮爆发的Omicron变种病毒袭击澳大利亚的卫生系统后，急诊科的等待时间和择期手术的等待名单已经人满为患。
 
-澳大利亚医学协会 (AMA) 的年度公共卫生系统报告了该国各州CCP病毒大流行对公共卫生系统所造成的损失。报告显示，目前澳大利亚有超过 754,000 人正在等待手术，等待手术一年以上的人数比例较过去增加了两倍。
 
-AMA 主席 Omar Khorshid 博士说，该报告详细说明了卫生系统所承受的巨大压力：“澳大利亚迫切需要为其公立医院系统制定恢复计划。我们需要适当的资金来清理积压的择期手术，并建立足够的能力来满足社区不断增长的需求。”
+> To the Russian people: You are not our enemy.
+>  
+> The American people stand with you and the brave citizens in Ukraine who want peace. [pic.twitter.com/gsbtNYLKDt](https://t.co/gsbtNYLKDt)
+> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507850953835307011?ref_src=twsrc%5Etfw)
 
-其中一个关键问题是“隐藏等待名单”，它指的是在公立医院系统中等待专科医生的门诊病人患者数量。由于 Omicron 爆发期间对各医疗部门施加的限制，维多利亚州的居民现在正面临最长的非紧急择期手术等待时间。只有 62% 的二类患者（即需要在 90 天内接受治疗的患者）能够接受他们的择期手术。
 
-由于去年CCP病毒的流行，塔斯马尼亚州也创下了非紧急择期手术的极长等待时间。目前在塔斯马尼亚州，有超过 59,000 名患者正在等待就诊于公共卫生系统的专家，其中部分患者需要等待近 800 天才能够见到神经外科医生——这还是在紧急的情况下。只有 36% 的第二类患者在 90 天内接受了手术。
 
-截至目前，择期手术等待时间表现最好的地区是悉尼所在的新南威尔士州，超过 87% 的患者可以在 90 天内接受手术。
+**拜登总统： **
+一心重建帝国的独裁者永远不会抹去人民对自由的热爱。 残暴永远不会磨灭他们的自由意志。 乌克兰永远不会成为俄罗斯的胜利。
 
-*编辑：Gradient Boost*
 
-*发布：Gradient boost*
 
-新闻参考链接：
+> A dictator bent on rebuilding an empire will never erase a people’s love for liberty.
+>  
+> Brutality will never grind down their will to be free.
+>  
+> Ukraine will never be a victory for Russia.
+> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507893569645912064?ref_src=twsrc%5Etfw)
 
-[9 News](https://www.9news.com.au/national/australia-health-system-buckles-under-pressure-elective-surgery-waiting-times-blow-out/6ee04980-06e4-4f7d-98dc-366e8732f399)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/TUBIAO-X.jpg)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+
+**拜登总统： **
+帮助乌克兰难民不是波兰或任何国家应该独自承担的事情。 世界上所有的民主国家都有责任提供帮助。 乌克兰人民可以指望美国履行其责任。 我们将欢迎 10万乌克兰难民。
+
+
+
+> Helping Ukrainian refugees is not something Poland or any nation should carry alone.
+>  
+> All the world’s democracies have a responsibility to help. And the people of Ukraine can count on the United States to meet its responsibility. 
+> 
+> We will welcome 100,000 Ukrainian refugees.
+> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507870489821290505?ref_src=twsrc%5Etfw)
+
+
+
+**美国务卿安东尼·布林肯：**
+很高兴今天在以色列与外交部长亚伊尔·拉皮德[@yairlapid](https://twitter.com/yairlapid)会面，讨论重要的全球问题，例如普京总统对乌克兰及其人民的野蛮袭击、以及伊朗带来的挑战。 美国对以色列的承诺是铁定的。
+
+
+
+> Good to be in Israel and meet with Foreign Minister [@yairlapid](https://twitter.com/yairlapid?ref_src=twsrc%5Etfw) today to discuss important global issues such as President Putin’s brutal attack on Ukraine and its people and challenges posed by Iran. The U.S. commitment to Israel is ironclad. [pic.twitter.com/XGRVMVQ7Ks](https://t.co/XGRVMVQ7Ks)
+> — Secretary Antony Blinken (@SecBlinken) [March 27, 2022](https://twitter.com/SecBlinken/status/1508058763923701763?ref_src=twsrc%5Etfw)
+
+
+
+**前副国务卿基思·克拉奇： **
+谢谢@RepHarshbarger。 我感谢您为促进自由和确保美国投资者不会在不知不觉中资助中国共产党的军事集结、技术威权主义和侵犯人权行为（包括 [#新疆大屠杀](https://gettr.com/hashtag/%23%E6%96%B0%E7%96%86%E5%A4%A7%E5%B1%A0%E6%9D%80) [#UyghurGenocide](https://gettr.com/hashtag/%23UyghurGenocide) ）所做的努力。 【转众议员戴安娜·哈什巴格推文：我很高兴看到民主的强烈拥护者@KeithJKrach 被提名获得 2022 年诺贝尔和平奖。 他对和平的不懈追求、对台湾的倡导以及对和平国际关系的重新构想，使基思成为真正的候选人。 恭喜！】
+
+
+
+> Thank you [@RepHarshbarger](https://twitter.com/RepHarshbarger?ref_src=twsrc%5Etfw). I appreciate your efforts to advance freedom and ensure American investors aren’t unknowingly financing the Chinese Communist Party’s military buildup, techno-authoritarianism, and human rights abuses, including the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/B4PRPyeF59](https://t.co/B4PRPyeF59)
+> — Keith J. Krach (@KeithJKrach) [March 27, 2022](https://twitter.com/KeithJKrach/status/1508098997583548423?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本：** 
+塔利班政府正在对阿富汗妇女实施新的监护人规则。 这是我们灾难性地离开阿富汗的结果。
+
+
+
+> The Taliban government is imposing new chaperone rules on Afghan women. This is the result of our disastrous departure from Afghanistan.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 27, 2022](https://twitter.com/MarshaBlackburn/status/1508174111935238150?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克.沃尔茨： **
+我不是不同意拜登的评论，即对乌克兰的凶残袭击在普京的统治结束之前不会停止。 但改变需要来自俄罗斯人民。 拜登关于政权更迭的建议将融入普京的宣传活动，他将利用这些活动巩固自己的权力。 【附视频：沃尔茨就俄罗斯残暴入侵乌克兰、及白宫称拜登没呼吁俄罗斯改变政权作评论】
+
+
+
+> I don't disagree with Biden's comments that the murderous attack in Ukraine won't end until Putin's reign ends.
+> 
+> BUT change needs to come from the Russian people. Biden's suggestion of regime change will feed into Putin's propaganda campaign that he'll use to solidify his power. [pic.twitter.com/UxR84iR90A](https://t.co/UxR84iR90A)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508247586595028993?ref_src=twsrc%5Etfw)
+
+
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 东航坠机机上人员全部遇难 中共称找到第二个黑匣子
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247005/)
+## 喜马拉雅币一周分析与总结（3月21日-3月27日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247046/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山金融部 – ILOVE战神
 
 
 
@@ -13,21 +13,24 @@
 
 
 
-中共官方媒体26日称，国家民航局副局长胡振江当晚接受记者采访时证实，坠机现场没有生命迹象，123名乘客和9名机组人员已全部遇难。搜索小组早些时候曾表示，已经确定了机上120人的DNA。
+过去一周喜马拉雅币价格回落至40美元左右，平均日交易量约8万枚喜币。喜币上市以来总交易量约3140万枚，占今年总发行量的仅约3.14%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-8.jpg)
+3月21日，世界互联网内容分发网络CDN与云计算巨头阿卡迈科技公司在其推特账号上发布了介绍喜马拉雅交易所的文章。文章介绍了喜币结合最前沿区块链技术的稳定双币系统以及喜支付App。文章指出，网络信息安全仍然是加密货币面临的主要挑战，并宣布阿卡迈科技将与其合作伙伴，互联网服务提供商Teneo，一起为喜交所提供网络安全服务，确保喜币交易的快速、可靠、安全。阿卡迈科技提供了世界上最大的分布式计算平台之一，并承担了全球15%-30%的网络流量。与阿卡迈的合作体现出喜交所走在了网络安全的最前沿。
 
-另据中共官媒27日上午的消息，当地时间27日上午9点20分左右，在撞击点东侧山坡坡面1.5米的土层下，消防员发现一橙色罐体，经专家确认，是“3·21”东航飞行事故客机的第二个黑匣子。但同时称，数据存储单元外观较为完好，记录器其他部分损毁严重。目前，第二个黑匣子已经被交给航空专家，准备后续的译码工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-11.jpg)
-此前，中共的报道称，另一个黑匣子于3月23日被发现，已送往北京接受专家检查。
+本周郭文贵先生在大直播中透露，喜币会为中国人创造一个财富不可能被任何人剥夺的金融机构。传统的法币被政府随意操纵，政府可以不负责任。加密数字货币不可剥夺、不可篡改，无国界，无第三方，无制约，而且永恒存在。新中国联邦将拥有铸币权。喜币和躺平币一定是世界上最稳定，最安全，最快捷，最低成本，永远不可被剥夺的私人财富的创造者。相比之下，共产党的房地产、银行只能让人走向死亡。中国人只有获得财务解放，信仰解放，才能辨别真假、识善恶，中华民族才能得救。郭先生本周还透露，俄罗斯富豪阿布很早就投资了喜币，并作为核心资产长期持有。
 
-观察人士称，事实上，东航的飞机都已经安装了可以将运行数据进行实时传输的通信系统，官方如此大费周章地在黑匣子上做文章，无非是希望为掩盖空难真相、编造虚假证据留出足够的时间。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-68.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-16.png)
 
 参考链接：
-1.[China confirms all on board China Eastern plane died in crash](https://www.reuters.com/world/china/chinese-search-team-yet-find-second-black-box-plane-crash-2022-03-26/)
-2. [第二个黑匣子，找到了！](https://news.sohu.com/a/533054389_120099886)
+1. [As #cryptocurrency evolves so does the threat landscape. Take a look at how Akamai is protecting @himalayaxchange against #DDoS attacks](https://twitter.com/Akamai/status/1505874372229218305)
+2. [Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
+3. [喜交所官网： HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-总编/编辑/审核：飞虹
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 

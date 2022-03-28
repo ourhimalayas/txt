@@ -2,33 +2,35 @@
 ---
 
 
-## 疫情｜日本解禁后首个周末 各地确诊数明显上升
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2243765/)
+## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
 
-**图/文：CP**
-**发布时间｜28/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本解禁後首個週末-各地確診數明顯上升.jpg)
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+## 美国“国家民主基金会”访台
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
 
 
-昨日（27日）是日本全面解除防疫限制后的首个周末，各地旅游景点人头涌涌，惟疫情仍未平息，东京都、大坂府、冲绳县等地新增确诊病例均高于上个周日，其中以冲绳疫情恶化最为明显，每10万人口染疫数连两天居全国之冠。
 
-NHK报道，东京都新增7,844宗确诊，较上周日增加1,300多宗，另新增9人死亡。东京都重症患者较前一天增加1人，为36人。都内累计122万749宗确诊。邻近东京都的埼玉县新增3,939宗确诊，较上周日增600多宗，至今累计病例数41万4,203宗，包括1,356人死亡。
+> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
+> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
-大坂府新增3,493例，较上周日多约580例，累计78万1,081例，包括4,606人死亡。大坂府重症患者跟前一天一样，同为96人。
 
-冲绳县最近疫情恶化速度较快，周日新增838例，连续3天单日新增逾800例，较上周日增加161例，至今累计病例数11万8,843例。驻冲绳美军基地群组新增16例，至今累计1万1,400例。
 
-冲绳县是第一个进入第6波疫情的县，也提早其他地方解除“防止蔓延等重点措施”。县政府指，3月下旬到4月上旬国内人潮移动将变为频繁，“将进入全国性感染增加的局面”。
+威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
 
-日本全国每10万人口染疫数平均213.28人，冲绳县以330.01人连两天居各地之冠，东京都以317.29人次之、埼玉县以296.13人排名第3；茨城县与神奈川县分居第4名及第5名。
+外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
 
-**來源｜**[**NHK**](https://www3.nhk.or.jp/news/html/20220327/k10013554741000.html)
+## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
+
+[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
+
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
 
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 
