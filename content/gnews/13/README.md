@@ -2,29 +2,130 @@
 ---
 
 
-## 视频|国民党高官亲属为中共卖命的悲惨命运
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2243916/)
+## 美国和俄罗斯缺乏沟通可能导致战争升级
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2243957/)
 
-制作：香草山视频部
+Michael A. Smerconish
+迈克尔 A. 斯梅尔科尼什
 
-20世纪，国民党历史上有一批身居高位的官员，他们身边的一群亲属为中共工作，专门收集情报、策反国民党官员，成为中共统战中的棋子。中共篡国后，他们选择留在大陆，继续效忠中共。然而，这个选择让他们掉入了万劫不复的深渊。
-1）张学思恶魔缠身
-张学思，张作霖第四个儿子，年轻时秘密加入共产党。在大哥张学良的介绍下，进入中央军校学习，毕业后到东北军当过军官。1938年张学思去了延安，曾担任过中共辽宁省政府主席、辽宁军区司令员。中共建国后，担任东北大学校长、海军副参谋长等职。1955年被授予少将军衔。
-文革爆发后，张学思因有与国民党牵连的历史而被捕，遭罢免职位并关押。在关押期间，张学思给中共领导写信“我以党性和生命向党保证，我绝不是叛徒、特务、反革命分子”，但没有任何回应。张学思受到中共长期的残酷迫害，临死之际幡然悔悟，愤然写下“恶魔缠身”，“恶魔”二字直指中共。
-2）国民党元老居正女儿女婿双亡
-居瀛棣，国民党政府司法院院长居正之女，丈夫祁式潜。夫妻二人长期为中共地下党做重要工作，多次受到中共领导人刘少奇、陈毅的接见。文革期间，祁式潜被打成叛徒受到迫害，服毒自杀。妻子居瀛棣也被迫害致死，儿子关入监狱。
-3)陈布雷爱女陈琏自杀
-陈布雷被称为“蒋中正之文胆”，国民党重要智囊人物。陈布雷爱女陈琏和丈夫袁永熙用父亲的身份作掩护，长期为中共搜集情报。中共篡国后，袁永熙担任过清华大学党委书记。1957年，袁永熙被打成右派，开除党籍，陈琏被迫和他离婚。文革爆发后，陈琏自认为自己历史很干净。然而，造反派在其家里找出一张蒋介石夫妇吊唁陈布雷时与其家人的合影照片，将其打成“叛徒”，有口难辨的陈琏选择跳楼自杀
-中共体制就如同一台绞肉机，无论为其贡献多大，立下多少汗马功劳，都会被这部机器残害、虐杀，难逃悲剧的命运。
-【信息链接】
-[https://www.wiki.zh-cn.nina.az/%E4%B8%9C%E5%8C%97%E5%B8%AE%E5%8F%9B%E5%85%9A%E6%8A%95%E6%95%8C%E5%8F%8D%E9%9D%A9%E5%91%BD%E9%9B%86%E5%9B%A2%E6%A1%88.html https://zh.wikipedia.org/wiki/%E5%B1%85%E6%AD%A3 https://zh.wikipedia.org/wiki/%E8%A2%81%E6%B0%B8%E7%86%99](https://www.wiki.zh-cn.nina.az/%E4%B8%9C%E5%8C%97%E5%B8%AE%E5%8F%9B%E5%85%9A%E6%8A%95%E6%95%8C%E5%8F%8D%E9%9D%A9%E5%91%BD%E9%9B%86%E5%9B%A2%E6%A1%88.html%20https://zh.wikipedia.org/wiki/%E5%B1%85%E6%AD%A3%20https://zh.wikipedia.org/wiki/%E8%A2%81%E6%B0%B8%E7%86%99)
+How is this deconfliction channel supposed to operate?
+这个消除冲突的渠道应该如何运作？
 
-发稿：qiutian（邱甜）
+Adm. James Stavridis (Ret) Former NATO Supreme Allied commander
+詹姆斯·斯塔夫里迪斯上将（退役）前北约最高盟军指挥官
 
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+It’s supposed to be very simple
+它应该是非常的简单
+
+You are be able as a leader to reach out
+作为一名领导者有能力去联系
+
+and almost literally pick up a phone and be talking to your counterpart
+几乎真的拿起电话就能和你的同行交谈
+
+And it’s not quite that seamless
+而且它不是那么的完美
+
+but as Supreme Allied Commander of NATO for four years
+但作为担任过四年的北约盟军最高指挥官
+
+when I wanted to talk to the Supreme Commander of the Russian Armed Forces, general Nikolai Makarov
+当我想与俄罗斯武装部队最高指挥官尼古拉·马卡罗夫将军交谈时
+
+I would say to my communications officer
+我会对我的通讯官说
+
+hey, we really ought to touch base with the general about this aspect of counter piracy operations
+嘿，我们真的应该就反海盗行动的这方面与将军联系
+
+or submarine forces in the Arctic or whatever we wanted to deconflict, Michael
+或北极的潜艇部队或任何我们想要消除冲突的东西，迈克尔
+
+and I could be on a phone call with him, literally within the hour
+我可以在一个小时内和他通电话
+
+and I think that’s been the norm between US authorities chairman，Secretary of Defense over the years
+我认为这是多年来美国当局主席、国防部长之间的常态
+
+even during the Cold War
+甚至在冷战期间
+
+so it’s very concerning，and just to close on this point
+因此，这非常令人担忧，而且就这一点而言，我想说的是
+
+people think perhaps, well, you know
+人们认为也许，嗯，你知道
+
+we’re not going to get into war with Russia
+我们不会与俄罗斯开战
+
+it will escalate you know, how did World War One start?
+但它会升级，你知道，第一次世界大战是如何开始的？
+
+It started with an assassin’s bullet in a dusty corner of the Ottoman of the Austro Hungarian empire 1914
+它始于1914年奥匈帝国奥斯曼帝国尘土飞扬的角落里的刺客子弹
+
+lack of communications, armies mobilizing
+随之缺乏交流，军队动员起来
+
+lost control of that ladder of vertical escalation
+失去对阶梯式直线升级的控制
+
+By 1918, 20 million dead in Europe
+截至1918年，欧洲有2000万人死亡
+
+it can happen we need direct communication
+这可能发生，我们需要直接沟通
+
+Michael A. Smerconish
+迈克尔 A. 斯梅尔科尼什
+
+Admiral, If Vladimir Putin wanted them to pick up the phone
+上将, 如果弗拉基米尔·普京想让他们接电话
+
+presumably they would, right?
+大概他们会的，对吧？
+
+this comes from him?
+这来自他的决定？
+
+Adm. James Stavridis
+詹姆斯·斯塔夫里迪斯上将
+
+You have to assume that Putin has said shut down communications
+你必须假设普京说过要关闭沟通
+
+because Putin wants to create more angst, more of worry, more fear
+因为普京想要制造更多的焦虑、更多的担忧、更多的恐惧
+
+less certainty about what he’s going to do next
+不太确定是他接下来想要做的
+
+It’s part of his style in crisis
+这是他在危机中的风格的一部分
+
+but it’s a very dangerous maneuver at this particular moment
+但在这个特殊的时刻这是一个非常危险的动作
+
+* * *
+
+Date:03/26/2022
+原视频标题: U.S. & Russia lack of communication could lead to escalation
+美国和俄罗斯缺乏沟通可能导致战争升级
+原视频日期：2022/03/26
+原视频链接**[https://twitter.com/cnn/status/1507714897093742597?s=24](https://twitter.com/cnn/status/1507714897093742597?s=24)**
+任务编号：KE462（4092）
+视频时间段 : 0:00-2:02
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

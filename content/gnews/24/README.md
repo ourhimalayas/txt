@@ -2,20 +2,25 @@
 ---
 
 
-## 秘翻在线：美国务卿布林肯谴责ISIS组织发动恐袭
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2243369/)
+## 援乌营地：忙里偷闲 服务战友
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243413/)
 
-撰稿：加贝
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-43.jpg)（图片来源：本文链接）
-据耶路撒冷邮报3月28日报道，周日晚上两名以色列边防警察被恐怖分子射杀、十二人受伤。ISIS（伊斯兰国组织）声称对本次袭击负责。参加内盖夫峰会的所有国家外长都谴责了这次袭击，以色列外交部长亚尔拉皮德说“此次恐怖袭击的目的是企图打破以色列和平安定的现状”。
+**作者、编辑：Candy
+视频提供：小小酥**
 
-另一位高级官员表示“尽管遭到袭击，峰会仍将继续进行”。美国国务卿安东尼·布林肯在推特上谴责了这次袭击，称其为“毫无意义的暴力和谋杀行为”。
+这是工作在新中国联邦和法治基金驻波兰梅迪卡援救中心营地的战友Allen，从美国来此的第二批志愿者。他本是发廊的老板，所以前一段时间我们看到他曾给营地的战友们理发，使战友们变得精神抖擞，充满了精气神！
 
-笔者观点：此次恐袭事件，正值美国国务卿布林肯出访中东、中共国外交部长王毅与阿富汗塔利班政权会谈期间。其背后目的，不难得出答案。
+今天他又帮战友们做起了午饭，虽然是简单家常菜鸡蛋炒西红柿，但看Allen战友做得非常认真，做出的炒菜肯定香喷喷的引人垂涎。既被称为战地理发师，现在华丽转身，又成了战地大厨师！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西红柿.png)图片来源：Nicole![Image](https://media.discordapp.net/attachments/825592691433668613/957874038426984448/206990c7-f833-444e-98ce-691b939fb796.jpg?width=656&amp;height=369)图片来源：telegram救援前线
+战友们经过这次救援活动，不但帮助了乌克兰难民，也积累了不少实战经验；战友之间所结下的战友情还能进一步加深，使我们的新中国联邦产生更强的凝聚力，从而更好地向世人展示新中国联邦人的形象。
 
-信息来源：[https://www.jpost.com/breaking-news/article-702476](https://www.jpost.com/breaking-news/article-702476)
+***发布：Candy***
 
-责编：Eric Kim
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

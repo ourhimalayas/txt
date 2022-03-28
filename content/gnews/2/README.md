@@ -2,11 +2,11 @@
 ---
 
 
-## 消灭共产党是中国人证明给世界唯一的选择（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244044/)
+## 七哥谈俄罗斯富豪阿布拉莫维奇（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244155/)
 
-**PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40-10-50-五--scaled.jpg)
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-七--scaled.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

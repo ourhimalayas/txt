@@ -2,26 +2,22 @@
 ---
 
 
-## 援乌营地：幼小的心灵 坚定的信念
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2242919/)
+## 中日财经爆┃俄乌战争推高全球钢材价格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2243047/)
 
-**作者、编辑：Candy**
-**视频提供：小小酥**
+撰稿：东京樱花团/上善若水
 
-波兰时间3月27日：在新中国联邦和法治基金援乌营地的儿童娱乐角，又一波小朋友在此享受一段没有战争的快乐时光。就在这短暂的时间里，一位小女孩画出了自己的情感和心愿：一颗热爱乌克兰的心因战争而受伤，希望战争早日结束，来修复那颗爱国之心。
+俄罗斯和乌克兰都是重要的钢材供应商，尤其是出售给钢铁冶金业者进行轧制的半成品。如今，因为制裁供应中断影响欧洲，导致全球价格攀升。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-58.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.moneycontrol.com%2Fstatic-mcnews%2F2021%2F05%2Fsteel-1.jpg%3Fimpolicy%3Dwebsite%26width%3D770%26height%3D431&amp;imgrefurl=https%3A%2F%2Fwww.moneycontrol.com%2Fnews%2Fbusiness%2Fmarkets%2Fsteel-price)
+欧盟于3月中旬禁止进口俄罗斯钢材。据欧盟委员会的声明，这一措施针对着俄罗斯33亿欧元的收入。钢材价格更是应声而起。轧钢卷的价格从每吨600美元升至1400美元。而厚钢板的价格则从每吨650美元涨到近2000美元。这不仅对建筑业，对汽车工业也影响很大。
 
-前不久在我们的七星大帐蓬里，有一个画了同样题材的小女孩仍然历历在目，她们的年龄看起来相差无几，都因逃离战争而到此休息。虽然她们可能来自乌克兰不同的地方，但她们都表达了相同的感情：因为遭受俄罗斯的侵略战争而悲伤，但那颗幼小的爱国的心没有变，更愿战争早日结束，回到自己热爱的国家。
+钢材价格达到如此之高，这是由于乌和俄不仅出口成品，也出口钢锭（brame）、钢坯(billette)，甚至销售给钢铁冶金业者的半成品。俄乌两国占行业65%的份额，主要供应欧洲的比利时和意大利。还有，俄也生产用于制造再生钢的直接还原铁(DRI) 和实心铸铁（fonte solide）。因此，供应受到限制在各层次都能感受得到。
 
-乌克兰民族之所以成为受人尊敬的民族，因为他们有着拳拳的爱国之心、顽强的战斗意志、坚定的必胜信念，绝不会主动放下武器、向侵略到自己国土的敌人屈膝投降！妈妈们带着孩子们有礼貌、有尊严地接受着帮助，我们也能从这些幼小的孩子们身上，看到这个民族教育的成功。
+信息来源：**[欧美制裁俄罗斯带起全球钢价](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20220327-%E6%AC%A7%E7%BE%8E%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%B8%A6%E8%B5%B7%E5%85%A8%E7%90%83%E9%92%A2%E4%BB%B7)**
 
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
