@@ -2,27 +2,42 @@
 ---
 
 
-## 中共大疆为俄军飞弹导航 德国零售商下架其无人机商品
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2247010/)
+## 喜马拉雅币一周分析与总结（3月21日-3月27日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247046/)
 
-**撰稿：日本东京方舟农场  海星**
+作者：纽约香草山金融部 – ILOVE战神
 
-据《自由时报》3月28日报导，乌克兰副总理费多罗夫（Mykhailo Fedorov）指控中共大疆为俄军飞弹提供导航，德国最大电子零售商MediaMarktSaturn考量后，直接下架大疆无人机商品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-335.jpg)（图片来源：法新社）
 
-该报导称，费多罗夫于3月16日在推特上发表了一封致中共大疆公司的公开信。信中指出，俄罗斯军队使用大疆产品为其导弹提供导航，并呼吁大疆停止与俄罗斯来往。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-对此，大批网友自发组织在大疆海外社交平台账号、海外合作伙伴账号以及德国商户MediaMarktSaturn的账号下留言，表示中共大疆支持俄乌战争，要求封杀该公司。MediaMarktSaturn考量后，决定停止销售大疆无人机。
 
-此前，大疆曾辩称，其产品均作为民用，不适用于军事用途。然而，早在2017年美国陆军实验室和海军便已发现大疆无人机存在收集美军地理资讯、影音等敏感资料的安全隐患，要求军队停止、移除大疆设备，卸除电池、存储媒介。
+
+过去一周喜马拉雅币价格回落至40美元左右，平均日交易量约8万枚喜币。喜币上市以来总交易量约3140万枚，占今年总发行量的仅约3.14%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-8.jpg)
+3月21日，世界互联网内容分发网络CDN与云计算巨头阿卡迈科技公司在其推特账号上发布了介绍喜马拉雅交易所的文章。文章介绍了喜币结合最前沿区块链技术的稳定双币系统以及喜支付App。文章指出，网络信息安全仍然是加密货币面临的主要挑战，并宣布阿卡迈科技将与其合作伙伴，互联网服务提供商Teneo，一起为喜交所提供网络安全服务，确保喜币交易的快速、可靠、安全。阿卡迈科技提供了世界上最大的分布式计算平台之一，并承担了全球15%-30%的网络流量。与阿卡迈的合作体现出喜交所走在了网络安全的最前沿。
+
+本周郭文贵先生在大直播中透露，喜币会为中国人创造一个财富不可能被任何人剥夺的金融机构。传统的法币被政府随意操纵，政府可以不负责任。加密数字货币不可剥夺、不可篡改，无国界，无第三方，无制约，而且永恒存在。新中国联邦将拥有铸币权。喜币和躺平币一定是世界上最稳定，最安全，最快捷，最低成本，永远不可被剥夺的私人财富的创造者。相比之下，共产党的房地产、银行只能让人走向死亡。中国人只有获得财务解放，信仰解放，才能辨别真假、识善恶，中华民族才能得救。郭先生本周还透露，俄罗斯富豪阿布很早就投资了喜币，并作为核心资产长期持有。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-68.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-16.png)
 
 参考链接：
-1.[https://ec.ltn.com.tw/article/breakingnews/3874721](https://ec.ltn.com.tw/article/breakingnews/3874721)
-2.[https://www.epochtimes.com/gb/21/1/18/n12696443.htm](https://www.epochtimes.com/gb/21/1/18/n12696443.htm)
+1. [As #cryptocurrency evolves so does the threat landscape. Take a look at how Akamai is protecting @himalayaxchange against #DDoS attacks](https://twitter.com/Akamai/status/1505874372229218305)
+2. [Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
+3. [喜交所官网： HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
 
-总编：老孙
-校对发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
