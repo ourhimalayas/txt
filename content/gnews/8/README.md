@@ -2,29 +2,16 @@
 ---
 
 
-## 西媒头条 — 第197期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2246792/)
+## 20220327郭文贵大直播 ：GCLUB会员是所有被害同胞的希望
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246915/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+作者：东京樱花团小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西媒头条.jpeg)
-
-发稿：Nuevo唐人
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
 * * *
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
