@@ -2,40 +2,31 @@
 ---
 
 
-## 阿联酋17岁高尔夫天才小将突发心脏病去世
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243918/)
+## 新冠疫情蔓延 中共国最大城市上海全面封城
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2243992/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2022/03/02660000-0aff-0242-ad0e-08da0e9223ec_w1023_r1_s.jpg)3月25日，身穿防护服的医务人员在上海一座被封闭小区的临时护墙外进行检查。（路透社图片）
 
-翻译：li yan li
-编辑：文泓
+据美国之音3月27日报道，中共国国家卫生健康委员会通报，在过去24小时内，上海新增3450名无症状感染者。中共国上海当局宣布分两个阶段实施全面封城措施。在封控期间和封控区域内，住宅区实施封闭式管理，所有居民不得外出；所有企业实施封闭生产或居家办公；公交系统全面停运。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/F8UB2ZGQVE_UR_O4_YRJ.png)图片来源：US Day News & 雅典娜设计组
+3450人感染，一个拥有2600万居民的上海就全面封城了。这样的比例让人疑惑，惨无人道的“清零”式防疫政策让人不寒而栗。中共国之前的封城已经病死、饿死无数人，因为中共加强物理管控，实施信息封锁，再加上隐瞒了真实的感染和死亡数据，不明真相的老百姓还能够忍受。随着封锁措施越来越严厉，再加上控制不住的疫苗病毒大爆发，封城带来的结果会是：要么老百姓被饿死在家里，要么老百姓奋起反抗。
+
+[新闻参考链接](https://www.voachinese.com/a/shanghai-reports-new-daily-record-for-asymptomatic-covid-cases-20220327/6503570.html)
+
+*编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-这位17岁的丹麦选手是阿联酋高尔夫联盟的功勋奖章获得者，今年2月他因为心脏骤停，陷入了昏迷。医生判断昏迷是不可逆的，他的去世，给今年的Slync.io迪拜沙漠精英赛蒙上了一层阴影。
+编辑：【英国伦敦喜庄园编辑部】
 
-“这是一个艰难的时刻，但我们想记住维格是一个多么伟大的男孩”，维格母亲在接受海湾新闻采访时说：“他赢得了一场又一场的比赛，是我们生活中的一盏明灯。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-另一位有前途的高尔夫球手托比·毕晓普说：“维戈的态度和职业道德是首屈一指的，努力达到他自己设定的高标准。他留下的遗产将永远被铭记。”
 
-在阿联酋高尔夫俱乐部，阿联酋排名第一的斯凯克和国际明星希尔也被这一消息感到震惊。
-
-卓美亚高尔夫庄园的声明说：“我们对初级会员维格·索伦森的去世感到非常难过。维格是俱乐部和迪拜社区内备受尊敬的高尔夫球手，他赢得了2020年EGF青少年荣誉勋章和2021年男子荣誉勋章。”
-
-他的学校惠林顿宝石学校说，学校的每个人都会怀念维格。
-
-截至当前，阿联酋疫苗完全接种率为97%。
-
-新闻链接：[UAE golf mourns loss of promising youngster Viggo Sorensen | Golf-uae – Gulf News](https://gulfnews.com/sport/golf-in-uae/local/uae-golf-mourns-loss-of-promising-youngster-viggo-sorensen-1.85397286)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

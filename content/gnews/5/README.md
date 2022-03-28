@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈俄罗斯富豪阿布拉莫维奇（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244127/)
+## 七哥谈俄罗斯富豪阿布拉莫维奇（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244261/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-八--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-一--scaled.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

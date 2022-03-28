@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈俄罗斯富豪阿布拉莫维奇（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244162/)
+## Gclub晚会以及新GTV约翰的错误决定（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244328/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-00-11-10-三--scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-六-scaled.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：
