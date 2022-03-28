@@ -2,12 +2,30 @@
 ---
 
 
-## 俄罗斯在有争议的千岛群岛举行军演
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2242817/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2242820/)
 
-03/27/2022 据日本媒体和俄罗斯国际文传电讯社报道，在两国和谈中止的几天后，俄罗斯东方部队在千岛群岛进行了一次军演，有3000多名士兵和数百架设备参与演习。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-22.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p128vrkf6ec](https://gettr.com/post/p128vrkf6ec)
+访谈：[https://gettr.com/post/p128x648c0b](https://gettr.com/post/p128x648c0b)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-24.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

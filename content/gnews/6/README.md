@@ -2,22 +2,33 @@
 ---
 
 
-## 中日财经爆┃俄乌战争推高全球钢材价格
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2243047/)
+## 中日财经爆┃战火中的乌克兰如何组织经济生活
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2243123/)
 
 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/战火中的乌克兰如何组织经济生活.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia.npr.org%2Fassets%2Fimg%2F2022%2F03%2F24%2Fgettyimages-1239386352_custom-f349c6f5a505898a32cba0047f7a524fa77c097d-s1100-c50.jpg&amp;imgrefurl=https%3A%2F%2Fwww.npr.org%2F2022%2F03%2F24%2F1088519053%2Fa)T
 
-俄罗斯和乌克兰都是重要的钢材供应商，尤其是出售给钢铁冶金业者进行轧制的半成品。如今，因为制裁供应中断影响欧洲，导致全球价格攀升。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-58.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.moneycontrol.com%2Fstatic-mcnews%2F2021%2F05%2Fsteel-1.jpg%3Fimpolicy%3Dwebsite%26width%3D770%26height%3D431&amp;imgrefurl=https%3A%2F%2Fwww.moneycontrol.com%2Fnews%2Fbusiness%2Fmarkets%2Fsteel-price)
-欧盟于3月中旬禁止进口俄罗斯钢材。据欧盟委员会的声明，这一措施针对着俄罗斯33亿欧元的收入。钢材价格更是应声而起。轧钢卷的价格从每吨600美元升至1400美元。而厚钢板的价格则从每吨650美元涨到近2000美元。这不仅对建筑业，对汽车工业也影响很大。
+乌克兰政府估算，截至到3月中旬，战争给乌克兰带来的破坏相当于5000亿美元。那处在战争中的乌克兰怎么样组织安排国家的经济生活？
 
-钢材价格达到如此之高，这是由于乌和俄不仅出口成品，也出口钢锭（brame）、钢坯(billette)，甚至销售给钢铁冶金业者的半成品。俄乌两国占行业65%的份额，主要供应欧洲的比利时和意大利。还有，俄也生产用于制造再生钢的直接还原铁(DRI) 和实心铸铁（fonte solide）。因此，供应受到限制在各层次都能感受得到。
+自从2月24日俄军队发动战争以来，乌克兰就控制了资本流动，对外汇出境实行筛选。乌政府要用外汇去买食品、药品和燃料这三类必需品，当然他们也取消了这三类必需品的入关关税。乌的出口被国家监管了，国内基本的食品需要凭票定量出售 。部分商品的售价被规定了上限。
 
-信息来源：**[欧美制裁俄罗斯带起全球钢价](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20220327-%E6%AC%A7%E7%BE%8E%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%B8%A6%E8%B5%B7%E5%85%A8%E7%90%83%E9%92%A2%E4%BB%B7)**
+乌政府现在把土地借给农民们，让他们到西部去耕种，乌农业部长表示，2022年春季播种量将比 2021 年少两倍。在乌克兰重新组织经济生活的过程中，乌政府起了关键作用，他们不但要安排生产，重新组织物流，还要确保企业能够活下去，要给老百姓经济补贴。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+政府把企业税降到2%， 另外给中小企业提供低利率的贷款，这样农民们也可以借钱。另外政府也为在战争中失去工作的50万乌克兰人每人提供200欧元补助。
+
+信息来源：
+[战火中的乌克兰如何组织经济生活](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E6%8A%A5%E7%BA%B8%E6%91%98%E8%A6%81/20220327-%E6%88%98%E7%81%AB%E4%B8%AD%E7%9A%84%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A6%82%E6%9E%9C%E7%BB%84%E7%BB%87%E7%BB%8F%E6%B5%8E%E7%94%9F%E6%B4%)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,29 @@
 ---
 
 
-## 快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241561/)
+## 日本高官提出改革联合国安理会的要点
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241537/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《路透社》华沙3月27日报道，**周日，乌克兰卫生部副部长奥列克西•亚雷缅科(Oleksii Iaremenko)表示，俄罗斯仍在继续轰炸，但抵达乌克兰的人道主义救援物资数量开始减少。他表示迫切需要更多的支持，并呼吁其他组织提供援助。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌人道主义援助-e1648415061155.jpg)为乌克兰提供的医疗援助物资在华沙肖邦机场的仓库中（路透社）
-据报道，**亚雷缅科在华沙肖邦机场附近的一个货仓里说，他对国际社会迄今提供的援助表示感谢。这批运往乌克兰的货物包括金属床、纱布、哮喘吸入器和氧气浓缩器等。**
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+当地时间3月27日，日本官房副长官木原先生接受日本媒体采访时表示，联合国安理会需要进行改革，尤其是在常任理事国的“一票否决权”上的改革。
 
-他告诉路透社，上个星期，我们看到人道主义援助的水平有所下降。**我们希望国际上能增加寻找新的资源，因为俄罗斯的侵略正在增加，他们正在轰炸平民**。
+在3月23日于日本国会发表的视频演讲中，乌克兰总统泽连斯基指出，联合国安理会没有在这场侵略中完成应有的使命。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-91.jpg)
+木原副官房长官指出联合国安理会的改革需要做到以下三点：第一，增加常任理事国的数量；第二，同时增加非常任理事国的数量；第三，需要限制一票否决权的滥用。
 
-他说:“**我们的要求是，如果你们能够支持，请立即支持。”**“不要等几周或几个月，因为我们现在就需要支持。”
+他还表示，俄罗斯作为本月的安理会轮值主席国，非但没有尽到保护和平的职责，还向世界展示了其意图进行领土扩张的野心。在这种情况下全世界应当考虑，限制常任理事国在安理会表决中进行一票否决的效力。
 
-根据联合国的数据，俄罗斯五谷入侵乌克兰的冲突已经造成了一场人道主义危机，估计有1000万人流离失所，接近该国人口的四分之一。
+参考链接：[20220327日本富士電視台](https://www.gettr.com/post/p124g4v408f)
 
-新闻来源链接：
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-[Humanitarian aid for Ukraine is dwindling, says health official | Reuters](https://www.reuters.com/world/europe/humanitarian-aid-ukraine-is-dwindling-says-health-official-2022-03-27/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-
+总编：飞虹
+编辑：飞虹
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

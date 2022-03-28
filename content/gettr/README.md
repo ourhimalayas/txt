@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 4:14 AM (UTC)`
+
+Socialism and communism are the eternal poison of human beings. As a Polish driver, we have suffered from the scourge of communism as well as the Soviets. However, the Polish people once suffered from communism is now happening to the people of mainland China; the former Soviet Union was poisoned by communism, but the Russian people are still suffering from the slavery and destruction of the communist dictatorial legacy of Putin.<br/>社会主义、共产主义是人类永远的荼毒，身为波兰人的司机和苏联人一样都曾饱受共产主义的祸害，和如今自由民主的波兰生活相比，自由民主法治的伟大与美好显而易见。然而，波兰人曾经饱受的共产主义的戕害如今正发生在中国大陆人民身上；被共产主义荼毒过的前苏联虽然解体，但俄罗斯人民至今依然遭受共产主义独裁遗毒普京的奴役与摧残。
+![img](https://media.gettr.com/group39/origin/2022/03/28/04/8c3815ec-1d86-ff61-715f-568081e6c1fd/out.jpg)
+
+---
+
 `@miles 3/28/2022 4:07 AM (UTC)`
 
 War brings infinite disaster and death, we don't want it, we pray for peace. The days of joy and happiness have become farther and farther away, the dead air, the ruined houses, flower, and trees, and living beings! As a member of the New Federal State of China, we will definitely help the people of Ukraine, because the CCP is behind Putin of Russia!<br/>战争带来的是无限的灾难和死亡，我们不想，我们祈求和平。那快乐和幸福的日子已经变得越来越遥远，死寂的空气，破坏殆尽的房屋、花木、生灵！作为新中国联邦人必将帮助乌克兰人民，因为俄罗斯普京的背后就是中共！
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 
 ![img](https://media.gettr.com/group37/origin/2022/03/27/11/41fe9a7a-f3ed-7573-ba9c-b7bd2f931577/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 10:02 AM (UTC)`
-
-Winston (GTV UK Live Host): What more can we do to convince these Chinese people trapped in the middle of the war that the only way out for them is through the NFSC?<br/><br/>Mr. Steve Bannon: The rescue operation is a heroic effort and reinforces what Miles talks about "New China" and the "New Chinese", and it's obviously to get Chinese citizens and nationals out safely of the war zone in Ukraine.<br/>The CCP is going to smear that because they never want to show the dignity and the nobleness of LaoBaiXing because they're not doing it. The CCP is after you means you're doing great works.<br/><br/>Winston：我们还能做些什么来说服这些被困在战争中的中国人相信他们唯一的出路是通过新中国联邦？<br/><br/>Bannon：这次救援行动是一个英勇的壮举，它真的印证了郭先生所描述的“新中国”和“新中国人”，他们的投入程度都是为了让中国公民和国民安全地离开乌克兰的战区。中共永远不想向公众展示老百性的尊严和高尚，因为他们自己无法做到。中共对你们穷追不舍时，说明你们的工作做得格外出色！
-![img](https://media.gettr.com/group43/origin/2022/03/27/10/a0def862-c5ab-9ae9-1a85-5ca9eea0bc59/out.jpg)
 
 ---
 

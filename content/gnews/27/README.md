@@ -2,28 +2,31 @@
 ---
 
 
-## 欧美达成天然气协议 以减少欧洲对俄能源依赖
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2241856/)
+## 俄防长久未公开露面 乌克兰称其心脏病发作
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241544/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+据国外媒体3月26日报导，乌克兰内政部长25日推特发文称，俄罗斯国防部长绍伊古自3月中旬以来就没有出席公开活动，是因为他的心脏出现了问题。
 
-3月25日，欧盟委员会主席冯德莱恩（Ursula von der Leyen）和美国总统拜登（Joe Biden）在布鲁塞尔共同签署一项协议，即美国将在2022年底前向欧洲国家供应至少150亿立方米的液化天然气，以减少该地区对俄罗斯燃料进口的依赖。
+据悉，绍伊古已经连续12天未公开露面，直到24日才出现在俄国的电视屏幕上，显示他正坐在角落参加普京召开的视频会议，但画面仅持续了几秒钟，有些闪烁，而且没有任何声音。此前，有传言称绍伊古因进攻乌克兰出师不利受到了普京的处分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-92.jpg)
+克里姆林宫发言人培斯科夫在简报中迅速否认了绍伊古身体有恙的传闻，并称其正在忙于处理特殊军事行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-55.jpg)图为美国总统拜登和欧盟委员会主席冯德莱恩在布鲁塞尔会面（图片来自德国之声）
+事实上，不只绍伊古，俄武装部队总参谋长瓦列里·格拉西莫夫自3月11日之后也未再公开现身，引发了诸多猜测。俄罗斯总参谋部情报总局局长科斯秋科夫也被爆出健康状况恶化。
 
-据《德国之声》报道，拜登宣布，到 2030 年，美国将每年向欧盟市场提供 500 亿立方米的额外液化天然气。
+分析人士称，无论在战场上还是在国内，俄罗斯高层状况频出，有可能迫使普京采取更为极端的措施。
 
-冯德莱恩指出，这500亿立方米的天然气将取代俄罗斯1/3的天然气，她强调，他们希望将欧洲的能源供应从俄罗斯转向安全的供应商，实现多样化。
+参考链接：[俄國防長久未公開露面 烏克蘭官員稱他心臟病發](https://www.cna.com.tw/news/aopl/202203260025.aspx)
 
-据了解，欧洲最大的天然气供应国俄罗斯，因入侵乌克兰将已经很高的能源价格推到了创纪录的水平，并促使欧盟承诺今年将俄罗斯的天然气使用量减少三分之二。
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-另外，俄罗斯23日还表示，包括欧盟成员国在内的”不友好”国家必须开始用卢布购买俄罗斯的石油和天然气。这加剧了对欧洲天然气供应可能中断的担忧。
-
-参考链接：
-[https://reurl.cc/3j2K9O](https://reurl.cc/3j2K9O)
-
-总编：青城道姑
-校对发布： Linda
+总编：飞虹
+编辑：飞虹
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

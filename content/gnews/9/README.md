@@ -2,28 +2,90 @@
 ---
 
 
-## 樱花时政┃泽连斯基：俄军必须为战争罪行担责
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2243030/)
+## 拜登总统致俄罗斯人民：你们不是我们的敌人
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2243063/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基：俄军必须为战争罪行担责.png)[图片来源](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/lf2-03152022135319.html)
+**拜登总统：** 
+致俄罗斯人民：你们不是我们的敌人。 美国人民与你们和乌克兰渴望和平的勇敢公民们站在一起。 【附拜登在波兰华沙的演讲视频】
 
-泽连斯基3月26日在向全国发表的视频讲话中表示，俄军正在破坏使乌克兰成为一个国家的一切，但俄军将为此承担责任。
 
-俄军队正在蓄意杀害平民，摧毁居民区，瞄准避难所和医院、学校和大学。甚至是教堂，甚至是大屠杀纪念馆!”；泽连斯基说：“俄军正是接到了这样的命令：摧毁使我们国家民族的一切象征，我们的人民，我们的文化。这正是80年前纳粹分子试图占领欧洲的方式。这正是占领者在乌克兰的行为方式。没有人会原谅他们，将会有责任。就像77年前一样，很可能不是在纽伦堡。但其意义将是相似的。你们会看到的，每个人都会看到，每个人。我们保证。荣耀归于我们所有的英雄! 荣耀归于乌克兰!”
 
-信息来源：
-[泽连斯基：俄军正摧毁我们国家民族的一切，但他们将为此承担责任](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220327-%E6%B3%BD%E8%BF%9E%E6%96%AF%E5%9F%BA-%E4%BF%84%E5%86%9B%E6%AD%A3%E7%A0%B4%E6%91%A7%E6%AF%81%E6%88%91%E4%BB%AC%E5%9B%BD%E5%AE%B6%E6%B0%91%E6%97%8F%E7%9A%84%E4%B8%80%E5%88%87%EF%BC%8C%E4%BD%86%E4%BB%96%E4%BB%)
+> To the Russian people: You are not our enemy.
+>  
+> The American people stand with you and the brave citizens in Ukraine who want peace. [pic.twitter.com/gsbtNYLKDt](https://t.co/gsbtNYLKDt)
+> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507850953835307011?ref_src=twsrc%5Etfw)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+
+**拜登总统： **
+一心重建帝国的独裁者永远不会抹去人民对自由的热爱。 残暴永远不会磨灭他们的自由意志。 乌克兰永远不会成为俄罗斯的胜利。
+
+
+
+> A dictator bent on rebuilding an empire will never erase a people’s love for liberty.
+>  
+> Brutality will never grind down their will to be free.
+>  
+> Ukraine will never be a victory for Russia.
+> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507893569645912064?ref_src=twsrc%5Etfw)
+
+
+
+**拜登总统： **
+帮助乌克兰难民不是波兰或任何国家应该独自承担的事情。 世界上所有的民主国家都有责任提供帮助。 乌克兰人民可以指望美国履行其责任。 我们将欢迎 10万乌克兰难民。
+
+
+
+> Helping Ukrainian refugees is not something Poland or any nation should carry alone.
+>  
+> All the world’s democracies have a responsibility to help. And the people of Ukraine can count on the United States to meet its responsibility. 
+> 
+> We will welcome 100,000 Ukrainian refugees.
+> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507870489821290505?ref_src=twsrc%5Etfw)
+
+
+
+**美国务卿安东尼·布林肯：**
+很高兴今天在以色列与外交部长亚伊尔·拉皮德[@yairlapid](https://twitter.com/yairlapid)会面，讨论重要的全球问题，例如普京总统对乌克兰及其人民的野蛮袭击、以及伊朗带来的挑战。 美国对以色列的承诺是铁定的。
+
+
+
+> Good to be in Israel and meet with Foreign Minister [@yairlapid](https://twitter.com/yairlapid?ref_src=twsrc%5Etfw) today to discuss important global issues such as President Putin’s brutal attack on Ukraine and its people and challenges posed by Iran. The U.S. commitment to Israel is ironclad. [pic.twitter.com/XGRVMVQ7Ks](https://t.co/XGRVMVQ7Ks)
+> — Secretary Antony Blinken (@SecBlinken) [March 27, 2022](https://twitter.com/SecBlinken/status/1508058763923701763?ref_src=twsrc%5Etfw)
+
+
+
+**前副国务卿基思·克拉奇： **
+谢谢@RepHarshbarger。 我感谢您为促进自由和确保美国投资者不会在不知不觉中资助中国共产党的军事集结、技术威权主义和侵犯人权行为（包括 [#新疆大屠杀](https://gettr.com/hashtag/%23%E6%96%B0%E7%96%86%E5%A4%A7%E5%B1%A0%E6%9D%80) [#UyghurGenocide](https://gettr.com/hashtag/%23UyghurGenocide) ）所做的努力。 【转众议员戴安娜·哈什巴格推文：我很高兴看到民主的强烈拥护者@KeithJKrach 被提名获得 2022 年诺贝尔和平奖。 他对和平的不懈追求、对台湾的倡导以及对和平国际关系的重新构想，使基思成为真正的候选人。 恭喜！】
+
+
+
+> Thank you [@RepHarshbarger](https://twitter.com/RepHarshbarger?ref_src=twsrc%5Etfw). I appreciate your efforts to advance freedom and ensure American investors aren’t unknowingly financing the Chinese Communist Party’s military buildup, techno-authoritarianism, and human rights abuses, including the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/B4PRPyeF59](https://t.co/B4PRPyeF59)
+> — Keith J. Krach (@KeithJKrach) [March 27, 2022](https://twitter.com/KeithJKrach/status/1508098997583548423?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本：** 
+塔利班政府正在对阿富汗妇女实施新的监护人规则。 这是我们灾难性地离开阿富汗的结果。
+
+
+
+> The Taliban government is imposing new chaperone rules on Afghan women. This is the result of our disastrous departure from Afghanistan.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 27, 2022](https://twitter.com/MarshaBlackburn/status/1508174111935238150?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克.沃尔茨： **
+我不是不同意拜登的评论，即对乌克兰的凶残袭击在普京的统治结束之前不会停止。 但改变需要来自俄罗斯人民。 拜登关于政权更迭的建议将融入普京的宣传活动，他将利用这些活动巩固自己的权力。 【附视频：沃尔茨就俄罗斯残暴入侵乌克兰、及白宫称拜登没呼吁俄罗斯改变政权作评论】
+
+
+
+> I don't disagree with Biden's comments that the murderous attack in Ukraine won't end until Putin's reign ends.
+> 
+> BUT change needs to come from the Russian people. Biden's suggestion of regime change will feed into Putin's propaganda campaign that he'll use to solidify his power. [pic.twitter.com/UxR84iR90A](https://t.co/UxR84iR90A)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508247586595028993?ref_src=twsrc%5Etfw)
+
+
 
  
 
