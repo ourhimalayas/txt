@@ -2,28 +2,27 @@
 ---
 
 
-## 俄乌战争！联合国：至少1119名乌克兰平民丧生
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2242412/)
+## 加拿大联邦机构仍顽固执行现行疫苗政策
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242477/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-自2月24日至3月26日的统计数据显示，伤亡平民名单包括15名女童、32名男童，以及52名性别不详的儿童。
+作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/98b146be-ff78-4609-b95a-4c9cee804f7e.jpg)图片来源：泽伦斯基IG
+据加拿大【真北方】3月25日报道，尽管全国各地都逐步取消了疫情限制措施，但联邦政府和部分省份还仍在坚持疫苗接种政策，甚至在同一司法管辖区内出现了相互冲突。
 
-联国人权办公室认为，在部分冲突严重的地区，伤亡报告较慢，另有许多报告仍待验证，因此乌国的实际死亡人数将远高于上述估计。多数平民伤亡皆是由大范围爆炸性武器所造成，包括重型火炮、多管火箭系统、飞弹和空袭轰炸等。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3332.png)图品来源：tnc
 
-简评：政治是肮脏的，当政治被独裁者把控是血腥暴力的肮脏。人类创造了武器，却在战场上杀死人类，无辜受害的多是平民。这场“最终之战”不知还要带走多少的人，中俄唇亡齿寒，普习灭才能停止战火，独裁灭才能世界大同！
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022328W0012](https://www.ftvnews.com.tw/news/detail/2022328W0012)
+报道称，新不伦瑞克省现虽已废除疫苗护照，但该省的圣约翰市政府却仍对其雇员执行强制疫苗规定；BC省是最晚取消卫生限制的省份，但目前仍在实施苛刻的疫苗授权，并已解雇了数千名因此而被迫休假的公共雇员。相反，维多利亚市却未采取省政府的政策，而宣布将对未接种疫苗的雇员复职。
 
-撰稿/发布：一叶知秋
+目前，全国各地的疫苗接种政策错综复杂，变化不断，但联邦政府机构、部分省、市政府，甚至个别企业仍顽固要求其雇员提供疫苗接种证明。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/](https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

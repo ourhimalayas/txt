@@ -2,25 +2,33 @@
 ---
 
 
-## 樱花时政┃泽连斯基准备与俄罗斯讨论乌克兰“中立化”问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242608/)
+## 灭共段子┃文贵大直播
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242697/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基准备与俄罗斯讨论乌克兰中立化问题.png)[图片来源](https://news.yahoo.co.jp/articles/e4b9302a7051aae99c84942320cc3a8c86defbce/images/000)
-俄罗斯和乌克兰之间的停火谈判将在土耳其举行。泽连斯基总统表示，他已准备好与俄罗斯方面讨论乌克兰的“中立化”问题。
+*撰稿：东京樱花团/保和
+视频：东京樱花团/俪影*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/灭共段子┃文贵大直播1.png)
 
-泽连斯基总统27日在接受俄罗斯独立媒体采访时表示，他“准备与俄方讨论”乌克兰中立化的问题，这需要第三国的安全保障和全民公投的同意。
+盖特上线新闻看 今晚直播有陪伴
 
-如放弃加入北大西洋公约组织，同时有关国家还需要一个框架来保障乌克兰的安全。
+昨天年会战友笑 不像中共假投票
 
-此外，他还表示，“在俄军驻扎期间国民不能去进行投票”，并要求俄军撤出。
+美国总统波兰去 普京屠夫拜登指
 
-他还表示，他希望在被俄罗斯实际控制的一部分东顿布斯地区与俄罗斯达成折中方案。
+俄乌战争屡受挫 中共经济快嗝屁
 
-信息来源：
-[【速報】ゼレンスキー大統領　“中立化”「ロシア側と議論する用意ある」](https://news.yahoo.co.jp/articles/3cceac7b01b41cd8ba6fed466304a2ec03e16e36)
+世界格局大转变 文明国家灭共起
 
-*校对：东京樱花团/喜马拉雅的微尘
+中共治下全部乱 早灭包子救苍生
+
+人与自然和平处 全球灭共透天机
+
+铲共当属新联邦 人人灭共当自强
+
+盖特链接：[https://gettr.com/post/p125ba0ebc5](https://gettr.com/post/p125ba0ebc5)
+
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**

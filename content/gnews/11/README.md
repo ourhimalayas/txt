@@ -2,26 +2,37 @@
 ---
 
 
-## 加拿大联邦机构仍顽固执行现行疫苗政策
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242477/)
+## 有声|天基移动电话网络公司将发射测试卫星
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2242578/)
 
-作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目前，唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署了一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间科技的蜂窝宽带网络。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-27-%E4%B8%8B%E5%8D%881.44.08.png)
+据悉，该公司总部位于美国德州，其计划在今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来与手机进行标准频率通信，并将在未来发射BlueBird卫星。
 
-据加拿大【真北方】3月25日报道，尽管全国各地都逐步取消了疫情限制措施，但联邦政府和部分省份还仍在坚持疫苗接种政策，甚至在同一司法管辖区内出现了相互冲突。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3332.png)图品来源：tnc
+其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。基于太空网络科技的新兴通信技术，不但会改写现有移动通信系统，而且会彻底消灭中共等独裁政权蒙蔽民众的网络防火墙。
 
 
-报道称，新不伦瑞克省现虽已废除疫苗护照，但该省的圣约翰市政府却仍对其雇员执行强制疫苗规定；BC省是最晚取消卫生限制的省份，但目前仍在实施苛刻的疫苗授权，并已解雇了数千名因此而被迫休假的公共雇员。相反，维多利亚市却未采取省政府的政策，而宣布将对未接种疫苗的雇员复职。
 
-目前，全国各地的疫苗接种政策错综复杂，变化不断，但联邦政府机构、部分省、市政府，甚至个别企业仍顽固要求其雇员提供疫苗接种证明。
+文字版原文：[天基移动电话网络公司将发射测试卫星](https://gnews.org/zh-hans/2241194/)
 
-校对编辑：硫酸羟氯喹64
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-发稿：青青
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接： [https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/](https://tnc.news/2022/03/25/conflicting-vaccination-policies-plague-two-provinces/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

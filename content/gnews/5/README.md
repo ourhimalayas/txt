@@ -2,22 +2,24 @@
 ---
 
 
-## 七哥谈才布罗旺（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2242587/)
+## 乌军反攻！收复哈尔科夫周边村落
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2242654/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9547dc2a-456c-4da6-a036-5874c0cce6f7.jpg)图片来源：美联社
 
-*发布：陶子*
+据民视新闻3月28日报道，俄罗斯入侵乌克兰超过一个月，乌国最新宣布收复东部多座遭俄军占领的村庄，美国有线电视CNN查核证实，乌军已控制第二大城哈尔科夫附近的维尔基夫卡，并在更北方的苏梅市附近取得成功，收复数个聚落。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022328W0041](https://www.ftvnews.com.tw/news/detail/2022328W0041)
 
+撰稿/发布：一叶知秋
 
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

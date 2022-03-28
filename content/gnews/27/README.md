@@ -2,26 +2,35 @@
 ---
 
 
-## 樱花时政┃向乌克兰运送物资，德国出发的“铁路桥梁”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2241651/)
+## 美财长耶伦赞同加密货币的创新称需要被监管
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
 
-撰稿：东京樱花团/ haruka春香
+翻译与编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
+据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
 
-法新社，被红色火车头牵引的8节货运列车从德国首都柏林市中心缓慢驶出，目的地是乌克兰。这是向遭受俄罗斯侵略的乌克兰提供人道主义支援物资的“铁路桥梁”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-137.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220327-00000031-jij_afp-000-4-view.jpg?exp=10800)
-用4天的时间将大量的粮食和生活必需品运往1000公里以外的目的地，送到需要帮助的人们那里。德国铁路(DB)的这一措施，是向东西冷战(Cold War)时期被前苏联封锁的柏林运送物资的“大空运作战”铁路版。在德国，大空降作战被称为“空中桥梁”。DB货物运输部门首长尼克塔（Sigrid Nikutta）表示，在波兰、乌克兰两国的铁路合作下，“仅用4天时间”就完成了运输准备。目前，物资定期运往乌克兰。
+周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
 
-货物列车载着从德国各地企业和个人通过支援团体收到的物品和从企业和超市连锁店直接捐赠的物品，每隔一天晚上从柏林出发。装满断奶食品、生理用品、小型电器、医药品、床垫、毛毯等的集装箱在抵达波兰后，交给当地司机处理。如送到乌克兰后，由该国国营铁路公司接手。DB货物运输部门的宣传负责人Michael Schmidt表示，“铁路桥梁”受到俄罗斯军队的攻击的危险是有限的。“我们没有运武器，也没有运石油。”施密特还表示：“俄罗斯有必要维持良好的（乌克兰铁路）基础建设状态，因此在侵略开始后也没有受到攻击。”尼克塔自豪地说：“到目前为止，所有的货物列车都安全抵达乌克兰各地。”
+她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
 
-信息来源：
+她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
 
-[ウクライナへ支援物資輸送 独ベルリン発「鉄道の橋」](https://news.yahoo.co.jp/articles/726cd00e4a916473e56303c98c9f8bc121ac270e)
+展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
 
+新闻来源链接：
 
+[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

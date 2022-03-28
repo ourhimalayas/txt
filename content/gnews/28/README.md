@@ -2,31 +2,24 @@
 ---
 
 
-## 快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241561/)
+## 樱花时政┃向乌克兰运送物资，德国出发的“铁路桥梁”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2241651/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《路透社》华沙3月27日报道，**周日，乌克兰卫生部副部长奥列克西•亚雷缅科(Oleksii Iaremenko)表示，俄罗斯仍在继续轰炸，但抵达乌克兰的人道主义救援物资数量开始减少。他表示迫切需要更多的支持，并呼吁其他组织提供援助。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌人道主义援助-e1648415061155.jpg)为乌克兰提供的医疗援助物资在华沙肖邦机场的仓库中（路透社）
-据报道，**亚雷缅科在华沙肖邦机场附近的一个货仓里说，他对国际社会迄今提供的援助表示感谢。这批运往乌克兰的货物包括金属床、纱布、哮喘吸入器和氧气浓缩器等。**
+撰稿：东京樱花团/ haruka春香
 
-他告诉路透社，上个星期，我们看到人道主义援助的水平有所下降。**我们希望国际上能增加寻找新的资源，因为俄罗斯的侵略正在增加，他们正在轰炸平民**。
+法新社，被红色火车头牵引的8节货运列车从德国首都柏林市中心缓慢驶出，目的地是乌克兰。这是向遭受俄罗斯侵略的乌克兰提供人道主义支援物资的“铁路桥梁”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-137.jpg)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220327-00000031-jij_afp-000-4-view.jpg?exp=10800)
+用4天的时间将大量的粮食和生活必需品运往1000公里以外的目的地，送到需要帮助的人们那里。德国铁路(DB)的这一措施，是向东西冷战(Cold War)时期被前苏联封锁的柏林运送物资的“大空运作战”铁路版。在德国，大空降作战被称为“空中桥梁”。DB货物运输部门首长尼克塔（Sigrid Nikutta）表示，在波兰、乌克兰两国的铁路合作下，“仅用4天时间”就完成了运输准备。目前，物资定期运往乌克兰。
 
-他说:“**我们的要求是，如果你们能够支持，请立即支持。”**“不要等几周或几个月，因为我们现在就需要支持。”
+货物列车载着从德国各地企业和个人通过支援团体收到的物品和从企业和超市连锁店直接捐赠的物品，每隔一天晚上从柏林出发。装满断奶食品、生理用品、小型电器、医药品、床垫、毛毯等的集装箱在抵达波兰后，交给当地司机处理。如送到乌克兰后，由该国国营铁路公司接手。DB货物运输部门的宣传负责人Michael Schmidt表示，“铁路桥梁”受到俄罗斯军队的攻击的危险是有限的。“我们没有运武器，也没有运石油。”施密特还表示：“俄罗斯有必要维持良好的（乌克兰铁路）基础建设状态，因此在侵略开始后也没有受到攻击。”尼克塔自豪地说：“到目前为止，所有的货物列车都安全抵达乌克兰各地。”
 
-根据联合国的数据，俄罗斯五谷入侵乌克兰的冲突已经造成了一场人道主义危机，估计有1000万人流离失所，接近该国人口的四分之一。
+信息来源：
 
-新闻来源链接：
+[ウクライナへ支援物資輸送 独ベルリン発「鉄道の橋」](https://news.yahoo.co.jp/articles/726cd00e4a916473e56303c98c9f8bc121ac270e)
 
-[Humanitarian aid for Ukraine is dwindling, says health official | Reuters](https://www.reuters.com/world/europe/humanitarian-aid-ukraine-is-dwindling-says-health-official-2022-03-27/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
 
  

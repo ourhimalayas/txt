@@ -2,34 +2,49 @@
 ---
 
 
-## 有声|乌克兰报告称马里乌波尔剧院空袭造成300人死亡
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2242450/)
+## 飞行员呼吁加拿大人为反对大流行封锁发声
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2242503/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
-据美联社乌克兰基辅3月26日报导，乌克兰当局周五表示，上周俄罗斯对马里乌波尔剧院的空袭造成约300 人死亡，该剧院被用作避难所，这将使其成为这场战争迄今为止对平民最致命的袭击。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image009-5.jpg)
-剧院的流血事件再次激发了对于莫斯科通过杀害平民（无论是故意还是不分青红皂白地开火）犯下战争罪的指控。
+##### 素材：小菠萝
+翻译：Julia
+校对：Lish
+字幕：qingjing
+编辑：Mttfly
 
-与此同时，美国表示，俄罗斯军队似乎已经停止了旨在占领首都基辅的地面攻势，这可能预示着莫斯科的战争目标正在显著缩小，或进一步缩小，并将更多精力集中在获得顿巴斯的控制权上。克里姆林宫似乎证实了这一转变。
+自2019年大流行封锁以来，全球各国人民不停“赂秦割地”，不断被政客们蚕食自由。服役32年的加拿大飞行员，在社交媒体上发出呼吁：“请不要在沉默了！”正是为了自己的孩子与未来，加拿大人才应该站出来，持续抵抗强制疫苗政策。
 
-乌克兰总统泽连斯基再次呼吁俄罗斯通过谈判结束战争，但他坚决地表示，乌克兰不会为了和平而同意放弃其任何领土。
+以下是视频内容：
 
+请不要再沉默了！
 
+乔丹·彼得森（Jordan Peterson）说：站出来说话不安全，但不说话更不安全。要么为站出来说话而付出代价，要么为成为奴隶而付出代价。
 
-[【援引连结】](https://apnews.com/article/russia-ukraine-zelenskyy-kyiv-europe-moscow-b56759e5d40db18e94bef8e42db23e47)
+武装和警察部门的女士们先生们，我们为你们、你们的配偶、父母及孩子鼓掌。在过去的几个月里，和我们所有人一样，你们经历了的起起伏伏。多年来，你们以巨大的代价甚至是光荣牺牲来保护我们。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+我请你们不要玷污这段历史，不要玷污你的职责。我们都将为沉默和盲目的服从付出惨痛的代价。如果你们的行为违反了你们的良心和誓言，说明我们正走向黑暗的地方。做一个有勇气的人吧！
+
+现在，你可能会说我要等到他们继续要求我走得太离谱的时候，我再站出来讲话。但是，这和飞机以100节的速度冲下跑道没有什么不同，那时就太晚了。这是你该出手的时侯了。现在是站出来说话，强化你对誓言的承诺的时候了。我们需要一堵勇气之墙，来填满这个国家公民的缺口。
+
+最后，我们每个人的生活中都有一个独特的召唤。这时，我们要不惜一切代价讲真话。你可能会告诉自己这将付出太多，因为你有家庭，你有未来。但恰恰是你的家庭和他们的未来。我们的家庭和我们的未来是我们必须站出来说话的理由。
+
+如果我们用我们的沉默使黑暗的工具得逞，我们的孩子就没有未来。不要搞错，我们正处于一场为我们的未来而战的战斗中。强制疫苗政策的抵抗将是一场漫长的战斗，这一切只是刚刚开始。
+
+但是我们不会让他们这样的。善终将战胜恶，但需要大批可敬的人愿意做出牺牲。我们的牺牲意愿和这些专制者对我们的权力，这两者之间有着直接的关系。为了更大的事业，即使遭受再大的损失也感到喜悦的人们，终究会解除这些权力的武装的。
+
+因此，对那些试图控制我们生活的政府和领导层，我要说，你可以拿走我们的收入、我们的事业，你可以拿走我们的家、我们舒适的生活，但你拿不走我们的尊严。你不能夺走我们的自由选择权，但你永远也偷不走我们全部意志、为自由而战的决心。
+
+我的加拿大自由爱好者们，让国家知道我们不会沉默，我们不会在对真理和自由的承诺中退缩。愿上帝保佑我们这片光荣而自由的土地。
+
+视频来源：[PILOT CALLS ON CANADIANS TO HAVE COURAGE | THESCOOP.US](https://www.bitchute.com/video/1tqaa8OciK7D/)
+
+*发布：Mttfly*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
