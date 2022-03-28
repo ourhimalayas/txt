@@ -2,11 +2,11 @@
 ---
 
 
-## Gclub晚会以及新GTV约翰的错误决定（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244276/)
+## 七哥宣布新中国联邦2周年纪念活动从今天正式启动（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244419/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-10-11-20-八-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-40-11-50-二-scaled.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：
