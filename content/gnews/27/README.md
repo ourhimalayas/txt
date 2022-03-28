@@ -2,34 +2,35 @@
 ---
 
 
-## 大选前通货膨胀加剧，澳大利亚总理面临预算考验
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2244857/)
+## 澳洲拟消减燃油税六个月，缓解生活成本上升压力
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2245422/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏   
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-1.jpg)图片来源：https://www.thestatesman.com/world/aus-pm-rules-funding-free-rapid-covid-tests-1503035920.html
-根据NIKKEI Asia3月28日报道，澳大利亚保守派政府在周二的选举前预算中面临着一项艰巨的任务，因为它希望通过帮助因生活成本上升而受到伤害的家庭来扭转其低迷的人气，同时还试图表现出对财政负责。
+整理/编辑：文泓
 
-堪培拉的财政状况自三个月前的年中审查以来，估计已经改善了200亿澳元（150亿美元），这得益于其主要商品出口价格的飙升和国内消费的强劲反弹。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6GEAKKQODV71LHYC3AK.png)图片来源：雅典娜设计组
 
-经济学家们现在预计，五年内赤字将累计减少900亿澳元，这为总理斯科特·莫里森提供了一个乐观的环境，他必须在5月前举行选举。事实上，在过去几个月，他在民调中一直处于落后地位。
 
-对莫里森有利的是，尽管有新冠病毒（COVID-19）的封锁，但2021年的经济仍活跃地增长了4.2%。这一势头预计今年也会保持下去，国内生产总值预计将增长4.25%。
+3月28日，据澳大利亚人报报道，财政部长乔什·弗莱登伯格将在本周二公布第四份财政预算案时宣布将燃油税（fuel excise）削减10至20分，为期六个月，以立即减轻澳洲驾车者的生活成本。
 
-在俄罗斯入侵乌克兰导致油价飙升的推动下，澳大利亚本季度的整体通胀率预计将达到4.5%。澳大利亚东海岸的洪水造成的广泛破坏也加剧了这一流行病对全球供应链的持续破坏，进而导致日常用品的价格飙升。
+虽然执政的联盟党一些高级部长和行业团体反对这一举措，但预算中仍将对每升44.2分的燃油税进行临时性的大幅的削减，以应对汽油和全球石油价格的飙升。
 
-与此同时，工资增长停留在2%左右，也成为莫里森的一个政治难题。
+经过几周的预算前讨论，政府的生活成本解决方案被认为将包括一次性的$250的补贴，财长和总理抵制了汽车和基础设施游说团体关于保持目前的燃油税水平的呼吁。
 
-新闻来源：[Australia PM faces budget test as inflation flares before election](https://asia.nikkei.com/Economy/Australia-PM-faces-budget-test-as-inflation-flares-before-election)
+虽然燃油税的削减程度预计不会像新西兰那样高——新西兰在3月14日将燃料使用费每升减少25分，为期三个月。但澳洲的方案实施时间将更长。
 
-发布：tianzhihuan
+弗莱登伯格先生说，预算中的（降低）生活成本措施，预计将对多达1000万中低收入工薪阶层带来缓解，将为应对非常高的燃料价格提供即时的救济。“国际紧张局势所导致的结果，自今年年初以来，每桶石油上涨了50%——这已经传导到国内的加油站。我们认识到这种压力，”他说。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+参考链接：[预算前瞻：削减燃油税以减轻生活成本](https://cn.theaustralian.com.au/2022/03/28/65039/)
+
+发布*：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

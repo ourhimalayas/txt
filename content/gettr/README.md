@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 1:37 PM (UTC)`
+
+2022.03.28 早《新中国联邦新闻访谈》欧美制裁俄罗斯推升全球钢价； 数字人民币开始应用于结算工程款； 美国宣布想乌克兰追加一亿美元民事安全援助； 所罗门群岛与中共进行安全合作谈判引担忧； 新中国联邦前线救援进行时
+![img](https://media.gettr.com/group15/origin/2022/03/28/13/2b349006-45c2-3e7c-aeee-c76ff83ee042/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/28/2022 1:34 PM (UTC)`
+
+2022.03.28 早《新中国联邦新闻访谈》欧美制裁俄罗斯推升全球钢价； 数字人民币开始应用于结算工程款； 美国宣布想乌克兰追加一亿美元民事安全援助； 所罗门群岛与中共进行安全合作谈判引担忧； 新中国联邦前线救援进行时
+![img](https://media.gettr.com/group15/origin/2022/03/28/13/2b349006-45c2-3e7c-aeee-c76ff83ee042/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/28/2022 12:30 PM (UTC)`
 
 2022.03.28 早 《新中国联邦新闻》黄色救援马甲醒目标语区分中共与新中国人； 新中国联邦两周年纪念活动正式启动
@@ -140,20 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 2022.03.27 晚《新中国联邦新闻访谈》伊维菌素和羟氯喹的用药原理和主要事项； 疫苗副作用及解毒方法； 医生答战友疑问
 ![img](https://media.gettr.com/group29/origin/2022/03/28/01/d7cabd59-a465-bc5a-9928-c70d75c10886/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/28/2022 1:04 AM (UTC)`
-
-3/27/2022 Miles Guo: The danger of the dictators is the absence of the bottom line. Qin Gang shamelessly told the US that the CCP has no upper limit, but with a bottom line. The statement made by Putin and Xi that “there is no upper limit to our collaborations” will make countless Chinese people pay a dear price. Biden debunked the lie that Russia went to Ukraine to seize the Nazis in his speech. Those dictators who fool the world will end up making a fool of themselves.<br/><br/><br/>3/27/2022 文贵直播：独裁者的危险在于无底线，秦刚无耻地告诉美国说中共无上限，有底线；普习二人所谓“我们合作无上限”将让无数中国人付出巨大代价；拜登在演讲中揭穿了俄罗斯去乌克兰抓纳粹的谎言；愚弄天下的独裁者必被天下愚<br/>
-![img](https://media.gettr.com/group7/getter/2022/03/28/01/f15b2ca5-5690-ade6-2fb2-1f478d580d28/out.jpg)
-
----
-
-`@miles 3/28/2022 1:00 AM (UTC)`
-
-3/27/2022 Miles Guo: What are the implications of Biden’s speech in Poland? 1) The UN has basically disintegrated, with the CCP, India, and Russia ousted; 2) the European countries are unprecedentedly united, and Ukraine will be the center of Europe; and 3) the US will be the biggest winner. The world’s landscape will undergo a major change. Regarding Biden's speech, the ultimate winners will be the citizens of the New Federal State of China, who have not got the COVID jabs, are taking down the CCP, and own the Himalaya Coins.<br/><br/><br/>3/27/2022 文贵直播：拜登的波兰演讲意味着什么？1）联合国基本解体，中印俄出局；2）欧洲各国前所未有的团结一致，欧洲将以乌克兰为中心，3）美国是最大的赢家；世界格局将巨变；拜登演讲里的最大赢家是无苗灭共有币的新中国联邦人<br/>
-![img](https://media.gettr.com/group39/getter/2022/03/28/01/df13b306-640f-d815-1236-3d60f57f4ac1/out.jpg)
 
 ---
 

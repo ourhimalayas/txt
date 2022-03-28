@@ -2,34 +2,39 @@
 ---
 
 
-## 樱花时政┃俄罗斯外长拉夫罗夫将访问印度
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2246081/)
+## 有声|中共对东航空难第二个黑匣子的报道失常
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246190/)
 
-撰稿：东京樱花团/ haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-彭博社，俄罗斯外长拉夫罗夫本周将访问印度首都新德里。《印度日报》援引多名不愿透露姓名的官员的话进行了报道。普京总统发动乌克兰军事侵略之后，这将是最高级别的俄罗斯高层访问。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月25日，中共官方媒体新华社首先引用中国民航报消息称，已经找到3月21日坠毁的东航客机搭载的第二个黑匣子。该消息迅速占领各大新闻平台，一时间被各类新闻App纷纷推送。但半小时后，新华社又辟谣称，还没有找到第二个黑匣子，要求以指挥部新闻发布会的信息为准。目前，关于找到第二个黑匣子的新闻已经被中共全网删除。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-62.png)
+中共官方称，已找到记录飞机驾驶仓语音部分的第一个黑匣子，但受损严重，已经交往北京相关部门处理。不少媒体强调，搜救人员正在全力寻找第二个黑匣子，即记录航班飞行数据的记录器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯外长拉夫罗夫将访问印度.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Frs1.huanqiucdn.cn%2Fdp%2Fapi%2Ffiles%2FimageDir%2Fd5d85a51274fa5347c04f137736e0ee6u5.jpg&amp;imgrefurl=https%3A%2F%2Fworld.huanqiu.com%2Farticle%2F41ZMamLmEuH&amp;tbnid=EAWJh8ALrND0WM&amp;vet=12ahUKEwj1z8j16-j2AhWQYvEDHWP6Bj4QMygBegUIARCrAQ..i&amp;docid=rE8ehM13zrGwDM&amp;w=1020&amp;h=648&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E5%A4%96%E9%95%BF%E6%8B%89%E5%A4%AB%E7%BD%97%E5%A4%AB&amp;ved=2ahUKEwj1z8j16-j2AhWQYvEDHWP6Bj4QMygBegUIARCrAQ)
+墙内百姓也开始质疑官方自相矛盾的说法。有人指出，当初新华社称已找到第二个黑匣子的新闻，应该是交由7个记者、1个校对、1个编辑、1个审核者审阅后才发出来的。而新华社马上否定的做法实在让人不解。有民众表示，“看样子，第二个黑匣子很难找到了”。
 
-据该报报道，两国当局者将就俄罗斯产原油在印度销售和在国际银行间通信协会（SWIFT）的国际结算网络之外，用卢比卢布支付石油等购买资金的方案进行协商。
+观察人士表示，这个现状，似乎印证了3月23日郭文贵先生在大直播中称这场空难实属人为操作、中共一定会极力掩盖的惊天爆料。
 
-考虑在与印度、俄罗斯的交易中用卢比或卢布结算。上周，中共国外长王毅访问印度，就俄罗斯在乌克兰发动战争和历经2年的中印边境问题的胶着状态进行了讨论。另外，来自美日澳印章4国框架“Quad（日米豪印战略对话）”的其他成员要求印度对俄罗斯采取更加严厉的态度。中共国和印度并没有就入侵乌克兰问题指责俄罗斯。
 
-印度外交部对询问确认拉夫罗夫外交长官访问日程的短信还没有做出回答。
 
-信息来源：
-[停戦交渉、トルコで再開へ　ロシアが国家分断画策か　ウクライナ「朝鮮半島化」警戒](https://news.yahoo.co.jp/articles/ad4239a0b9a73b534f48d0e661af07c3a70dbab3)
+文字版原文：[中共对东航空难第二个黑匣子的报道失常](https://gnews.org/zh-hans/2238285/)
 
-*校核：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

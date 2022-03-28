@@ -2,8 +2,8 @@
 ---
 
 
-## 独裁的危险是没有底线的
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2246071/)
+## 乌克兰是颜色革命的最前线
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2246177/)
 
 台灣寶島農場
 
