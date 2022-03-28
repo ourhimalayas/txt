@@ -2,8 +2,8 @@
 ---
 
 
-## 美国重欧轻亚政策跟信仰，种族纽带、核心利益有关
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245443/)
+## GCLUB是走向未来的通行证
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245584/)
 
 台灣寶島農場
 

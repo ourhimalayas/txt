@@ -2,25 +2,23 @@
 ---
 
 
-## 新的空袭—切尔诺贝利核电站周围发生火灾
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2244858/)
+## 上海今天开始封城❗️❗️
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2245107/)
 
-**周日晚间几座乌克兰城市再次成为俄罗斯空袭的目标。**
+编辑：波士顿五月花—-思澈
 
-作者：dpa/orf/dlf/est/原文发布于2022年3月28日10:19 (CET)
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-3-4.jpg)图片：哈尔科夫州政府的大楼也被摧毁。（Aris Messinis/AFP）
+2022/03/28星期一早上五点开始上海正式进入半封闭状态
 
-据乌克兰媒体报道，首都基辅以及卢茨克、罗夫诺和哈尔科夫等地发生多起爆炸。在乌克兰西北部的卢兹克，一个燃料库被击中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2672FB4F-4EA0-4AA3-9210-8CF751BCEC2D.jpeg)
 
-乌克兰领导人指责俄罗斯军队采取了“非人道战术”。其中包括封锁人道主义走廊和封锁被围困的城市。
+上海市政府已于当地时间周日晚间通过其在社交媒体应用程序微信上的渠道宣布了这些措施，现正在分两个阶段进入封闭状态。从周一早上5点开始，黄浦江以东的地区已经开始被封闭，从周五开始，黄浦江以西的市中心将被隔离。在封闭期间居民不许离开家，并且必须接受核酸检测。住家将被封锁，这一突如其来的消息导致了周日晚上超市外排长队囤积性购买。
 
-据乌克兰当局称，切尔诺贝利核废墟周围再次发生火灾。该区由俄罗斯部队占领。乌克兰要求联合国安理会为该核电站建立一个特别保护区。
+素材来源：[https://www.handelsblatt.com/politik/international/null-covid-strategie-mehr-als-3500-coronafaelle-chinas-finanzmetropole-schanghai-geht-in-den-corona-lockdown/28204428.html](https://www.handelsblatt.com/politik/international/null-covid-strategie-mehr-als-3500-coronafaelle-chinas-finanzmetropole-schanghai-geht-in-den-corona-lockdown/28204428.html)
 
-原文链接：[https://brf.be/international/1588785/](https://brf.be/international/1588785/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+*发布：思澈*
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
