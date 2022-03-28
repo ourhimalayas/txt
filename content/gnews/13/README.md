@@ -2,35 +2,42 @@
 ---
 
 
-## 上海疫情爆发分区封城 中共股市随之下滑
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2245906/)
+## 乌克兰救援前线报道3.28.2022：首篇以NFSC营地为主题的采访报道来自西班牙媒体Republica
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2245973/)
 
-作者：纽约香草山教育部-Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-彭博社3月28日报道，中共国股市今日大幅下跌，原因是上海当局为抗击中共病毒爆发宣布了即将大规模分区封城的消息，这也由此引发了人们对于中共商业运营中断和国民经济即将走向崩塌的担忧。
+整撰：奔跑吧黄小鸭
+![](https://assets.gnews.org/wp-content/uploads/2022/03/J.Cortees_Nicole-que-vive-en-Est.jpg)身着“灭共马甲”的Nicole在NFSC营地 （图片来源 西班牙媒体republica）
+西班牙媒体Republica在3月26日刊登了一篇名为《梅迪卡最壮观的展馆是中国馆，尽管是反共的》文章，这是自前线救援营地搭建以来，迄今为止唯一一篇单独以新中国联邦为主题的文字报道，文章详尽介绍了大救援行动为乌克兰难民提供的援助和新中国联邦要消灭中共的使命。
 
-据了解，本周一早些时候，CSI 300指数下跌了2%，然后微调了部分损失，原因是上海市当局表示将分为两个阶段封城，以进行大规模的核酸测试闪电战。消费股领跌中共国大陆和香港市场，其中，白酒制造商贵州茅台、运动服装制造商李宁和安踏体育用品有限公司均对基准指数构成了沉重压力。
+这篇署名为“科尔特斯”的文章是继3月19日该名作者发布一篇以广泛记录梅迪卡难民中心的文章，简要介绍新中国联邦法治基金的救援营地之后，再次单独以新中国联邦为主提撰写的一篇采访报道。
 
-众所周知，上海是许多国际公司的中共国总部所在地，也是中共国内最大的港口。此次的封城政策明显加剧了中共国股市的不确定性。此前，受乌克兰战争和中概股随时可能大规模退市的影响，中共股市就已使得投资者们在应对监管不利因素方面身心俱疲。
+他在整个篇幅中以图文并茂地形式记录了NFSC营地为乌克兰难民提供买免费的现磨咖啡、Wi-Fi、食物，牛奶，婴儿尿布等一应俱全的物资，还有7\*24小时全天候的电力、供暖和人工值守。记者讲叙自己看到几名乌克兰儿童在NFSC营地里开心地玩耍，孩子们在这里似乎忘记了战争的存在。他为在难民中心能看到这么巨大的、设施齐全的空间感到“傻眼”，或许更让他感到震惊的是他的采访对象——前线记者Nicole和她的一席话。
 
-交银国际首席策略师郝红对此评论称，上海市作为中共国的经济中心，占据了4.32万亿元即4%的国内GDP。此次上海的疫情封锁政策无疑将会严重影响到中共国的股市交易，交易量可能会因此大幅下降。同时，中共国的其他城市亦可能效仿上海的防疫政策，这将使中共2022年的GDP总值受到严重影响。
+从早期救援团队释放出的采访录像中，我们分明能感到记者最初的困惑，Nicole和NFSC营地志愿者们的中国面孔和清一色身穿的荧光绿马甲让记者感到不解，因为马甲背后的标识是**“中国共产党不等于中国”**。因此他在采访时第一个问题是，”你们到底是不是中国来的？”
 
-香港京华山研究主管彭伟新亦发表评论称，考虑到今年疲软的中共股市起点，上海的部分封城政策和疫情扩散到其他地区的潜力将使中共国更难以实现5.5%的GDP增长目标。
+当Nicole一边告诉他们，我们来自新中国联邦，我们是要帮助13亿中国人民获得自由的新中国人，我们要消灭中国共产党，一边转过身让他们仔细看身上这件“灭共马甲”的背后还有“新中国联邦”的标记。
 
-【来源】[https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN\_XCMGGwFWHpXvYlZQ4BoPG5d6c8\_spo8Y\_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w](https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia%20https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN_XCMGGwFWHpXvYlZQ4BoPG5d6c8_spo8Y_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w)
+记者的第二个问题来了，“你在中共国能穿这件背心吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+Nicole告诉他，穿着这件夹克的人要么立即被监禁，要么被灭口，会再也没有他们的下落，这就是新中国联邦要消灭中共的原因之一。然后跟他说，造成这场全球危机和人道灾难的罪魁祸首、香港和台湾正在经历的等等事情中，都能找到中共的身影, 新中国联邦希望世界成为一个更美好的地方，因为这个世界不需要共产主义，以及共产主义对全世界造成的人道灾难……
 
-- 审核/编辑/发稿:qiutian（邱甜）
+记者的第三个问题是，“你认为你们能实现目标吗？因为中共政府是如此的庞大和有力量。”
+
+Nicole给了记者一个全新的说法——**“纸老虎“**，她告诉他，中国共产党就像一只“纸老虎”，看起来强大，但它已失去民心，20多年前发生在前苏联和东欧共产主义在一夜之间崩溃的事情，随时都有可能出现在中共身上……
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-61.jpg)图片来自Gettr视频截图
+记者的第四个问题是，“你们在这里具体做些什么？”Nicole回答说，新中国联邦有很多来自世界各地的支持者，从支持者那里获得了数百万美元的资金，所以才可以建造这样大规模的救援营地，在这里每天接待500至1 000名乌克兰难民……
+
+新中国联邦不仅以营地的设施齐全和人性的救援服务吸引了Republica记者的注意，更以自信的形象让他感觉印象深刻，很显然，这是记者第一次听说把中国、中国人与中国共产党区分开来，以及有人要消灭中国共产党。但这并不影响他用醒目的粗体字**“中国共产党不等于中国”**和**“纸老虎”**作为文章的小标题，并同时附上“三个女孩在新中国联邦帐篷内玩耍“、”身着新中国联邦和不等于中共标识的灭共背心的背影“、”大救援行动累计救援信息的海报“、”NFSC帐篷的外景“和”身穿灭共背心的Nicole微笑着一手比着V字“的多张NFSC营地拍摄的照片。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-44.jpg)图片来源西班牙媒体Republica
+除了西班牙的Republica之外，还陆续有波兰最畅销报纸FAKT、波兰第二大广播电台ZET、波兰Newsweek（即新闻周刊）、日本产经新闻等媒体陆续刊登了对NFSC营地的采访报道。这些媒体在报道中普遍认可新中国联邦法治基金对乌克兰难民提供的鼎力援助，也都明确表述新中国联邦不同于中共政府，这是一个要推翻中国共产党，让13亿中国人民拥有美好未来的组织。
+
+参考链接：
+
+1. 采访录像：[MILES GUO on GETTR: “【Ukraine Rescue】03/19/2022 Nic…”](https://gettr.com/post/p11frqh0133)
+2. 第一篇报道：[在乌克兰边境：梅迪卡，破碎梦想的波兰巴比伦 (republica.com)](https://www.republica.com/internacional/en-la-frontera-ucraniana-medyka-la-babilonia-polaca-de-los-suenos-rotos-20220319-11481413687/amp/)
+3. 第二篇报道：[梅迪卡最壮观的展馆是中国馆，尽管是反共的 (republica.com)](https://www.republica.com/internacional/el-pabellon-mas-imponente-de-medyka-es-chino-aunque-anticomunista-20220326-17471417084/)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
