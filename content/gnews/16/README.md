@@ -2,36 +2,27 @@
 ---
 
 
-## 光影传镜：俄乌战争下的难民
-` 新西兰农场【光影传镜】` [轉載自GNews](https://gnews.org/zh-hans/2244078/)
+## 中共病毒已致全球650万人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244214/)
 
-**编辑：喜马拉雅光影传镜**
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/中共病毒已致全球650万人死亡.png)[图片来源](https://www.nippon.com/en/news/reu20210820KBN2FL0DX/)
+路透社统计,全球新冠肺炎（中共病毒）感染者超过4亿7934万人,死亡人数达到649万7252人。
 
-乌克兰的胜利和乌克兰的和平是可以实现的。
-对我们来说，它们将比全世界的金银铜器更有价值。
-那么，现在…
-我们站起来了! 我们在坚持! 我们会赢的!
+自2019年12月中国首次确诊病例以来,已在全世界210多个国家和地区报告感染病例。
 
-照片：
+信息来源：
+[情報ＢＯＸ：新型コロナウイルス、世界の感染者4億7934万人超　死者649.7万人](https://jp.reuters.com/article/worldNews/idJPKCN2LP0DL)
 
-Alfons Cabrera, Carol Guzy, Serhii Korovainyi, Maximilian Clarke, Max Levin, Pavel Petrov, Chris McGrath
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.32-PM-1.jpeg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.32-PM-2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.33-PM-1-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.33-PM-2-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.33-PM-3-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.33-PM-4.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.34-PM-1-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.34-PM-2.jpeg)
-
-
-
-
-乌克兰曾经很美。但现在它将变得伟大，因为我们的人民。光荣的乌克兰。复兴的伟大工程。为了人民。为了我们国家和整个欧洲的发展。
-
-照片：Wojciech Grzedzinski， Salwan Georges， Alexander Ermochenko， Ron Haviv， Bulent Kilic， Petros Giannakouris， Paula Bronstein， Katya Moskalyuk
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.34-PM-3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.35-PM-1.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.35-PM-2.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-27-at-5.10.35-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

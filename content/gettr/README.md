@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 7:44 AM (UTC)`
+
+3/27/2022 Miles Guo: Although Biden did not directly differentiate between the CCP and the Chinese people in his speech, many things he said were implicitly targeted at Communist China and differentiating Russia from Putin is a good thing for the Chinese people. I believe that most of the CCP members are good people. The right decisions must be based upon logic and common sense. The problem of the CCP is that it no longer has a proper understanding of the world.<br/><br/>3/27/2022 文贵直播：拜登演讲虽未直接提到区分中共和中国人，但他有很多话是暗中针对中共国的，区分俄罗斯和普京对中国人是好事；文贵相信绝大多数中共党员是好人；正确的决策要基于逻辑和常识，中共的问题在于其失去了对世界的正确认识<br/>
+![img](https://media.gettr.com/group40/getter/2022/03/28/07/0033ca37-ac8d-2c40-bf44-55f7bdb1af7b/out.jpg)
+
+---
+
 `@miles 3/28/2022 5:16 AM (UTC)`
 
 3/27/2022 Miles Guo: The CCP’s 70-year rule has completely devastated the beautiful mountains and rivers of China! Many international friends trust the New Federal State of China and have offered advice to control the pollution of water and soil in China. I am increasingly confident that we can resolve the environmental issues of China!<br/><br/>3/27/2022 文贵直播: 中共70年的统治把中国美丽的山河损毁殆尽！多位国际友人信任新中国联邦并提出了治理中国水土污染的建议。文贵越来越有信心解决中国的环境问题！<br/>
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 全球首播 NFSC health 新中国联邦 喜健康 系列节目之《医学视角》第一期：前线战友ccp病毒感染后的治疗汇报
 ![img](https://media.gettr.com/group40/origin/2022/03/27/20/38c139ad-99e9-c69e-d8d4-1c81d2a8b418/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/27/2022 5:59 PM (UTC)`
-
-
-![img](https://media.gettr.com/group10/origin/2022/03/27/17/a9e0650a-1c8d-d2a4-8397-e9df10682182/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

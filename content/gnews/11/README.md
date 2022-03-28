@@ -2,26 +2,22 @@
 ---
 
 
-## 中共病毒已致全球650万人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244214/)
+## 视频|部分政商精英误判俄乌战事
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2244329/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/中共病毒已致全球650万人死亡.png)[图片来源](https://www.nippon.com/en/news/reu20210820KBN2FL0DX/)
-路透社统计,全球新冠肺炎（中共病毒）感染者超过4亿7934万人,死亡人数达到649万7252人。
+制作：香草山视频部
 
-自2019年12月中国首次确诊病例以来,已在全世界210多个国家和地区报告感染病例。
+在3月25日的《文贵大直播》中，郭文贵先生指出，部分世界政商精英和资本大鳄对俄乌战争的发展严重误判。
 
-信息来源：
-[情報ＢＯＸ：新型コロナウイルス、世界の感染者4億7934万人超　死者649.7万人](https://jp.reuters.com/article/worldNews/idJPKCN2LP0DL)
+在俄乌开战前，许多世界政商精英都认为，俄罗斯有能力在开战后的一周内全面掌控乌克兰。他们天真地认为，美国与欧洲开始只会言论支持乌克兰，而实质性的技术与通信支援最快也会在两周后到达，届时，乌克兰已经沦陷；俄将转战进攻波罗的海三国。部分资本大鳄更是认为，俄罗斯将通过此战彻底垄断北欧的石油、天然气等自然资源，届时，卢布都会暴涨，世界大多数国家都会换成俄式武器装备。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+然而，事实证明他们的判断完全错误——俄罗斯的部队在乌克兰前线连连受挫，军心不稳；普京的军方心腹谢尔盖·绍伊古离奇消失。反观乌克兰一方，妇女儿童有条不紊地撤离家园，青壮年男儿为妻儿家眷背水一战，在现代信息科技指导下屡屡击破俄军的进攻。普京和他的独裁者盟友习近平为了逞口舌之快，不惜动用核武器震慑。然而，独裁者的傲慢与偏见，让他们无视以当代信息科技为基础的防御系统会在核武启动的第一时间使之瘫痪。
+
+发稿：林礼
+
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

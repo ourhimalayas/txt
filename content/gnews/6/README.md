@@ -2,22 +2,17 @@
 ---
 
 
-## 视频|部分政商精英误判俄乌战事
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2244329/)
+## 七哥宣布新中国联邦2周年纪念活动从今天正式启动（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244430/)
 
-制作：香草山视频部
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-40-11-50-一-scaled.jpg)
+发布：tianzhihuan
 
-在3月25日的《文贵大直播》中，郭文贵先生指出，部分世界政商精英和资本大鳄对俄乌战争的发展严重误判。
-
-在俄乌开战前，许多世界政商精英都认为，俄罗斯有能力在开战后的一周内全面掌控乌克兰。他们天真地认为，美国与欧洲开始只会言论支持乌克兰，而实质性的技术与通信支援最快也会在两周后到达，届时，乌克兰已经沦陷；俄将转战进攻波罗的海三国。部分资本大鳄更是认为，俄罗斯将通过此战彻底垄断北欧的石油、天然气等自然资源，届时，卢布都会暴涨，世界大多数国家都会换成俄式武器装备。
-
-然而，事实证明他们的判断完全错误——俄罗斯的部队在乌克兰前线连连受挫，军心不稳；普京的军方心腹谢尔盖·绍伊古离奇消失。反观乌克兰一方，妇女儿童有条不紊地撤离家园，青壮年男儿为妻儿家眷背水一战，在现代信息科技指导下屡屡击破俄军的进攻。普京和他的独裁者盟友习近平为了逞口舌之快，不惜动用核武器震慑。然而，独裁者的傲慢与偏见，让他们无视以当代信息科技为基础的防御系统会在核武启动的第一时间使之瘫痪。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
