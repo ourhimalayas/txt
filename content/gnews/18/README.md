@@ -2,39 +2,25 @@
 ---
 
 
-## 有声|躲过中共病毒疫苗灾难就是人生赢家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2242604/)
+## 首都渥太华再现反疫苗政策抗议行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242363/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月25日的大直播中，郭文贵先生表示，只要躲过中共病毒疫苗灾难，两三年之后就是人生赢家。爆料革命让新中国联邦人“无苗有币”，成为大赢家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-12.jpeg)
-郭先生说，全世界至暗时刻的标志是疫苗灾难。只要在疫苗灾难开始后的两三年内，不病死、不饿死、不给共产党陪葬，就是人生最大赢家。这也是郭先生全力爆料，并频繁进行大直播的根本原因。
+作者：加拿大温哥华扬帆农场 – 青青 – 文明(添草灭共)
 
-郭先生希望，中国同胞能尽快逃出房地产崩塌、金融崩塌、中共灭亡、社会动乱、战争频发、自然灾害、粮食危机等灾难。并建议，在保证正常生活的前提下，尽快处理掉多余的房产。
+据加拿大【ctv新闻】3月26日报道，在特鲁多政府的皇家骑警将反疫苗护照运动的卡车司机们驱离首都的一个多月后，大量抗议者在当天又再次返回并集结在渥太华市中心。
 
-郭先生表示，人性情的本质是人的灵魂与肉体的结合，也是人的根本动力。当今在中共国，金钱至上、人们缺乏信仰，占有、欺骗、虚妄和幻想充斥脑海。只有爆料革命是在去除人的贪、嗔、痴、慢、疑，让人找回自我真性情，从而开启人类新篇章。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3330.png)图片来源：ctvnews
 
 
+报道称，数百辆来自魁北克的汽车在市中心缓缓绕行，鸣笛抗议。 本次示威活动的组织者表示，在所有不合理的疫情限制措施被当局取消之前将不会离开渥太华。
 
-文字版原文：[躲过中共病毒疫苗灾难就是人生赢家](https://gnews.org/zh-hans/2241134/)
+据悉，尽管自由党政府计划在4月底前取消所有的卫生防疫限制，但在全国范围内没有疫苗护照仍然不能自由地旅行，而且所有未接种疫苗的大学生都将继续被拒绝进入校园。 渥太华警方当天表示，大约有300辆参与示威活动的汽车穿过主要市区街道，但目前尚未出现与抗议活动发生冲突的相关报道。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发稿：青青
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接： [https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342](https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342)
 
  
 

@@ -2,32 +2,31 @@
 ---
 
 
-## 特鲁多大言不惭 欧洲之行四处碰壁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2242815/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2242820/)
 
-##### 作者：加拿大温哥华扬帆农场 -采编：文莱        翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/thepostmillennial.com_.jpg)*图片来源：thepostmillennial.com*
-据加拿大自由媒体《后千禧年》3月25日报道，加拿大总理特鲁多在周五发表声明，称其“欧洲一行”为“成功之旅”。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-22.png)
 
-据悉，在声明中，特鲁多谴责了普京的战争行径，并重申加拿大对欧洲-大西洋安全的坚定承诺。同时特鲁多称加拿大自由车队组织者为民粹主义者。
 
-据报道，各国对其言论并不买账。在特鲁多的讲话之后，欧洲的政治家们当面批评了这位总理，说他的行为像一个独裁者。在前几天，德国的欧洲议会议员公开批评特鲁多违反了 “民主、人权和法制”，称他是 “民主的耻辱”。
+校对：Stay文苑
 
-与中共有着千丝万缕联系的人，把自己的公民当作恐怖分子来迫害和定罪的人，大谈特谈民主和法制，本身就是一件非常滑稽的事情。特鲁多的欧洲之旅清楚地表明，全球对CCP以及与CCP同流合污的人的谴责和抛弃已经公开化、不可逆转，而且愈演愈烈。
+编辑：Stay文苑
 
-[原文链接](https://thepostmillennial.com/justin-trudeau-boasts-about-successful-trip-to-europe)
+发稿：Stay文苑
 
-编辑/上传 – 云起时
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+新闻：[https://gettr.com/post/p128vrkf6ec](https://gettr.com/post/p128vrkf6ec)
+访谈：[https://gettr.com/post/p128x648c0b](https://gettr.com/post/p128x648c0b)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-24.jpeg)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,32 @@
 ---
 
 
-## 维多利亚州州长安德鲁斯新冠阳性
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2242901/)
+## 中日财经爆| 上海封城 特斯拉停工
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242912/)
 
-翻译/校对：lish
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城-特斯拉停工.png)[图片来源](https://www.zhev.com.cn/news/show-1646634193.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/E4JME_UY09UJVX69CS1N.png)图片来源： abc.net.au&雅典娜设计组
+路透社3月28日报导，两位知情人士表示，美国汽车制造商特斯拉上海工厂将停产四天。上海周日晚间宣布“封城”，周一起分两批开展封控核酸筛查。
 
+面对严峻的本土中共病毒疫情，中国最大城市、金融中心上海市进一步升级管控，将自周一（3月28日）起以黄浦江为界分两批对全市进行封控核酸筛查。
 
-安德鲁斯周一发表声明说，他已经收到了快速抗原测试的结果，并有 “轻微的症状”，包括喉咙痛和体温。而在12月下旬，其在社交媒体上发布了他接种第三针新冠疫苗的消息。
+本次核酸筛查分为两批。第一批，浦东、浦南及毗邻区域先行实施封控，开展核酸筛查，4月1日5时解封。同时，浦西地区重点区域继续实施封控管理。
 
-安德鲁斯表示将隔离七天。”到目前为止，Cath和孩子们的检测结果为阴性。由于他们是密切接触者，他们也将在未来七天内隔离，”他说。
+特斯拉上海超级工厂正是位于上海浦东新区南汇新城镇，消息人士称，特斯拉已通知工人和供应商。
 
-周一，维多利亚州报告了8739个新的新冠病例，但没有新的死亡病例。该州有252人住院，有56,997个确证病例。
+消息来源：
+[特斯拉上海工厂停产四天 以遵守防疫封控措施–消息](https://cn.reuters.com/article/tesla-shanghai-covid-0328-idCNKCS2LP062?il=0)
 
-副总理詹姆斯·梅利诺（James Merlino）将担任代理总理，至少到下周一。
-
-这一阳性结果意味着安德鲁斯将错过本周三晚上在MCG举行的谢恩·沃恩的追悼会。
-
-参考链接：[Victorian Premier Daniel Andrews tests positive for COVID-19 – ABC News](https://www.abc.net.au/news/2022-03-28/victorian-premier-daniel-andrews-tests-positive-for-covid-19/100944146)
-
-**发布：**tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

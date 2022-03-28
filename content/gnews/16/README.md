@@ -2,31 +2,37 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.28）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2242663/)
+## 有声|谎言在互联网时代都会不攻自破
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2242624/)
 
-**整理：**雅典娜情报组（BENJ1）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1.png)雅典娜设计组
-**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月25日大直播中，郭文贵先生分享了关于俄乌战争的更多信息。在俄罗斯入侵乌克兰的战争中，除了落后的作战部署和武器使用、落后的军事科技，更夸张的一点是，在当今互联网时代，俄罗斯公然使用谎言来宣传这场战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-12.jpeg)
+网友可以随时在互联网、社交媒体查看实时战况。俄罗斯电视台直播却使用最低级的宣传手段，张口撒谎，谎报军队实际推进数据。从早前暴露的视频里还看到，俄军被俘士兵曝光，他们根本不知道自己在做什么，多问一句还会被苛责。而在俄罗斯进攻乌克兰之前，普京曾妄言，“保守点一周内拿下乌克兰”。普京的疯狂已经无可救药。
 
-[往期集萃链接](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+在互联网的时代，真实信息的及时传播，有利于民众看清真假善恶，分辨谎言。因此，一切战争和所谓的超级人物、沼泽地大佬都变得非常透明。正如郭先生所说，爆料革命所坚持的唯真不破，才显得更加弥足珍贵。
 
-**一针辉瑞后心肌炎？**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-164.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-75.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-44.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-26.png)
-2021.12.4，第一针辉瑞，当时打完手臂疼，心悸，偶尔心脏刺痛，大概过一个月缓解。不是很敢打第二针。直到四天前，忽然连续心悸，持续性的心脏狂跳，砰砰砰砰，突突突突，人很不舒服，晚上睡觉都担心自己会猝死。我一个人带着孩子，感觉压力好大。
 
-昨天早上，心脏还是狂跳，怕得去看急诊，从停车场走到急诊窗口，讲话就喘气。四个小时的时间，做了心电图、验血和X光，医生说一切正常，让我再跟家庭医生follow up【**注：**跟进】。总算放下点心回到家，家庭医生听我描述，给我再约了心脏彩超和背holster【**注：**一种防护的肩带】。虽说不能自己吓自己，但此刻我刚做了点家务又开始狂跳和累，还是好怕……疫情改变了一切。
 
-参考链接：[一针辉瑞后心肌炎？](https://www.xiaohongshu.com/discovery/item/6223c2a7000000000102ef81?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648209495)
+文字版原文：[谎言在互联网时代都会不攻自破](https://gnews.org/zh-hans/2241108/)
 
-*发布：翼族*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
