@@ -2,8 +2,8 @@
 ---
 
 
-## 20220327郭文贵大直播 ：拜登演讲未区分共产党与中国人 拜登整个政治生涯都没对中国友好过
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246859/)
+## 20220327郭文贵大直播 ：能源制约欧洲已成过去 重亚轻欧无皇有主的时代正时到来
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246882/)
 
 作者：东京樱花团小视频组
 

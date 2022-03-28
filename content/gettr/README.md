@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 5:36 PM (UTC)`
+
+The new Chinese of New Federal State of China, the comrades of the Whistleblower Movement, after affected by the CCP virus, quickly recovered and returned to the Ukrainian-Polish border to continue humanitarian rescue operations. This completely shows the image of peace-loving and mutual help of the new Chinese people who are different from the Chinese Communist Party<br/>新中国联邦人，爆料革命的战友们在感染中共病毒后，很快就恢复了健康，又重新回到了乌克兰与波兰边境，继续我们的人道主义救援行动。这完全展现了不同于中国共产党的新中国人爱好和平、互帮互助的形象
+![img](https://media.gettr.com/group39/origin/2022/03/28/17/61f76561-ae15-0c96-4570-870cd9b0577c/out.jpg)
+
+---
+
 `@miles 3/28/2022 5:13 PM (UTC)`
 
 “The most spacious tent in Medyka belongs to Chinese who are anti Chinese Communist Party.” Spanish media Republica introduced the ROLF and NFSC’s humanitarian rescue site near the Ukraine border using the above mentioned words.<br/> 梅迪卡最有气势的中国反共人的帐篷“ 西班牙媒体Republica以这样的标题介绍了法治基金新中国联邦在乌克兰边境Medyka的国际人道营救中心。<br/>https://gnews.org/zh-hans/2245465/
@@ -148,13 +155,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 3/27/2022 Miles Guo: Xi Jinping will invade Taiwan anyway! Both Putin and Xi believe that their families will be taken out if they don’t defeat Europe and the US. Xi believes that only by taking Taiwan can he prevent democracy and freedom from spreading to Mainland China. Putin and Xi couldn’t care less about the Lao Baixing’s life and death, but their insanity can’t destroy the world. Both will certainly be taken down!<br/><br/>3/27/2022 文贵直播：习近平不论如何都会打台湾！普和习认为如果不干掉欧美，他们自己和家人就会被干掉；习觉得只有拿下台湾才不会让民主自由之风会吹到大陆；普和习毫不在乎老百姓的死活，但他们的疯狂毁灭不了世界，他俩将100%被灭<br/>
 ![img](https://media.gettr.com/group47/getter/2022/03/28/03/c3f5a346-4074-d646-f9b1-b23b1a0b057a/out.jpg)
-
----
-
-`@miles 3/28/2022 3:14 AM (UTC)`
-
-3/27/2022 Miles Guo: Why is it that taking down Xi Jinping is taking down the CCP? Eliminating Xi has become the consensus within the CCP. The whole world hates the CCP, and only by taking down the CCP can we save our lives, safeguard our wealth, and take revenge. With the New Federal State of China, real dictatorship under the guise of fake democracy can never emerge after the CCP is taken down.<br/><br/><br/>3/27/2022 文贵直播：为什么说灭掉习近平就是灭掉中国共产党？干掉习近平已成为中共内部共识；中共遭全世界痛恨，唯有灭共才能保命、保财、报仇；有新中国联邦在，灭共后绝不会出现假民主真独裁<br/>
-![img](https://media.gettr.com/group44/getter/2022/03/28/03/2f3d7d4e-63d1-fd97-cdd8-7e2c8f258883/out.jpg)
 
 ---
 
