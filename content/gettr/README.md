@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 8:42 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月27日第23天当日救援统计：<br/>Medyka救援站接待：约31人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7565人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 23 - Date: March 27, 2022 :<br/>Medyka Rescue Station Reception: about 31 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7565 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group46/getter/2022/03/28/08/e3fa0916-4874-9492-89c2-aac69f1fd94f/6a1902b59fb52c33b276d6c09d721d1f.jpg)
+
+---
+
 `@miles 3/28/2022 7:44 AM (UTC)`
 
 3/27/2022 Miles Guo: Although Biden did not directly differentiate between the CCP and the Chinese people in his speech, many things he said were implicitly targeted at Communist China and differentiating Russia from Putin is a good thing for the Chinese people. I believe that most of the CCP members are good people. The right decisions must be based upon logic and common sense. The problem of the CCP is that it no longer has a proper understanding of the world.<br/><br/>3/27/2022 文贵直播：拜登演讲虽未直接提到区分中共和中国人，但他有很多话是暗中针对中共国的，区分俄罗斯和普京对中国人是好事；文贵相信绝大多数中共党员是好人；正确的决策要基于逻辑和常识，中共的问题在于其失去了对世界的正确认识<br/>
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-27 <br/>For English @Gtranslators_1
 ![img](https://media.gettr.com/group29/origin/2022/03/27/22/230b81a7-ce2c-bf08-3be4-cf3a9b59979e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 8:47 PM (UTC)`
-
-全球首播 NFSC health 新中国联邦 喜健康 系列节目之《医学视角》第一期：前线战友ccp病毒感染后的治疗汇报
-![img](https://media.gettr.com/group40/origin/2022/03/27/20/38c139ad-99e9-c69e-d8d4-1c81d2a8b418/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

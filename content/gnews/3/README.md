@@ -2,35 +2,42 @@
 ---
 
 
-## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
+## 美国联邦通信委员会吊销中共在美214牌照
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2244758/)
 
-图文/zhong｜28/3/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-## 美国“国家民主基金会”访台
+撰稿：子喜太一
 
-台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/282.jpg)图片来自网络
+美国联邦通信委员会简称FCC，于当地时间3月16日以“国家安全”为由撤销中信国际电讯美国公司的214牌照（国际电信业务牌照）。FCC3月25日宣布将中国电信美洲公司、中国移动国际（美国）有限公司、俄罗斯卡巴斯基实验室等列入“对美国国家安全构成威胁的通信设备和服务”清单。
 
+早在2019年，FCC就曾以“国家安全”为由，拒绝了中国移动国际美国子公司“214牌照”的申请。2021年10月，FCC又吊销了中国电信美洲公司在美国的214牌照。
 
+中共驻华盛顿使馆和中共工信部发表声明，对FCC决定表达坚决反对，认为美方仅凭主观揣测和怀疑就吊销其214牌照，不符合美国市场化国家形象，损害全球消费者的正常权益。
 
-> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
-> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
+美国是法治国家，FCC对中共国电信业务的牌照吊销，是经历了几年的调查取证而最终得出的结论。郭文贵先生在爆料革命的直播中多次提到，中共利用各种手段窃取美国的情报和大数据，在美开展的各种移动电信业务当然是最好的窃取平台，中共怎会放过。
 
+继俄罗斯侵略乌克兰的战争爆发以来，世界上独裁主义和民主主义两大阵营就彻底撕破脸公开交战了！俄罗斯已被定位战争罪犯，另一个独裁大国就是中共国，这次对中共国的电信牌照吊销，就是对CCP进行切割的其中一个步骤而已，接下来会有更多更致命的措施一一放出，直至彻底剿灭中共为止。
 
+美国已经正式加入这场消灭中共的战斗，中共也已绑在了死亡战车上，世界将会大变，新的世界格局和阵营即将到来！
 
-威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
+*编辑：Gradient Boost*
 
-外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
+*发稿：mgjxs*
 
-## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
+新闻参考链接：[联合新闻网](https://udn.com/news/story/7331/6195056?from=udn-catebreaknews_ch2)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
 
-[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
+更多资讯，更多关注
 
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
+[乌克兰救援UkraineRescue官方Gettr](乌克兰救援UkraineRescue官方Gettr)
 
-* * *
+[郭文贵先生Gettr](郭文贵先生Gettr)
 
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+[全球喜马拉雅农场联盟委员会Gettr](全球喜马拉雅农场联盟委员会Gettr)
+
+[喜马拉雅联盟大使馆全球客服中心Discord](喜马拉雅联盟大使馆全球客服中心Discord)
 
  
 

@@ -2,67 +2,36 @@
 ---
 
 
-## 随着新冠病例激增，上海将分两个阶段进行封城和测试
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2244666/)
+## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-342.png)图片来自网络
-《路透社》近日报道，中国金融中心上海周日表示，在报告无症状感染者的每日新记录后，将分两个阶段封锁该市，在 9 天内进行新冠检测。
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+## 美国“国家民主基金会”访台
 
-当局表示，他们将把上海一分为二，以穿城而过的黄浦江为向导。河流以东和西部的一些地区将在 3 月 28 日至 4 月 1 日期间进行封锁和测试。其余地区将在 4 月 1 日至 5 日期间进行封锁和测试。
+台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
 
-市政府在其官方微信公众号上表示，这些地区的公共交通，包括叫车服务，将在封锁后暂停，并补充说，未经批准的车辆将不允许上路。
 
-它还表示，除了那些参与提供公共服务或供应食品的公司和工厂，在封锁期间，所有公司和工厂都将暂停生产或远程工作。
 
-政府补充说：“请公众支持、理解和配合全市疫情防控工作，有序参与核酸检测。”
+> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
+> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
-上海近一个月来一直在与新的新冠病例激增作斗争，周六它报告了自中国最初爆发疫情消退以来的最高每日病例数。全市新增无症状病例2631例，占当日全国新增无症状病例近60%，新增有症状病例47例。
 
-尽管按照全球标准来看，上海的病例数量仍然不多，但这座拥有 2600 万人口的城市已成为中国“零新冠”战略的试验场，因为它试图控制高传染性的奥米克戎变种。
 
-上海当局此前曾抵制城市的广泛封锁以避免破坏其经济稳定，并选择了一种更定制的“切片和网格化”方法，其中包括对社区进行逐个检查。
+威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
 
-**股票交易**
+外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
 
-该市拥有特斯拉、大众和中国最大的芯片制造商中芯国际等公司的工厂，以及许多国际公司的中国大陆总部。
+## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
 
-上海证券交易所周日表示，将在这个“特殊”的病毒控制时期努力保持资本市场的稳定运行。
+[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
 
-它表示，交易所将继续审查寻求在以科技为重点的科创板上市的公司的股票销售计划，加强与发行人和承销商的在线沟通，并为虚拟首次亮相仪式提供免费服务。
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
 
-它补充说，如果上市公司受到大流行限制的影响，该交易所还将允许上市公司推迟提交季度或年度报告，并将加快受病毒影响公司的债券发行审批。
+* * *
 
-**挫折**
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
-上海市卫健委周日表示，已有超过 1400 万上海居民进行了抗原检测。
-
-但一些居民抱怨看似无休止的测试循环和结束传播链的零碎方法，有些人说零新冠病毒的成本太高了。
-
-中国其他地方也感到沮丧。
-
-本月早些时候，在社交媒体上分享的镜头中，东北城市沉阳的一群人在又一轮新冠测试中沮丧地大喊大叫，他们敲打着服装市场的窗户。
-
-3月26日，中国报告了4448例新的无症状感染者，高于一天前的4430例，其中东北部吉林省新增1007例，目前处于封锁状态。
-
-该国报告了 1254 例有症状的新确诊病例，低于一天前的 1335 例。在新病例中，有 1217 例在本地传播，而一天前为 1280 例。
-
-3 月 26 日没有死亡报告，死亡人数为 4638 人。截至 3 月 26 日，中国大陆已确认 143240 例新冠病例。
-
-个人认为中共国现阶段无法做到国外共存躺平的做法，是由许多客观条件制约的。
-
-遗憾的是，中共无法把这些客观原因如实理性地说出来，只是一味地政治化抗疫手段。极力地抹黑国外抗疫手段为资本家的只看重经济，而标榜自己是所谓的人民至上。长达2年多的洗脑已经给大多数中国人定下了思维习惯。
-
-这种做法的坏处是把自己架在了道德至高点，把清零政策变成了政治正确。怎样找到政治借口和科学防疫的平衡已经成为目前中共面临的两难。
-
-参考链接：
-
-[https://www.reuters.com/world/china/china-reports-1254-new-covid-cases-march-26-vs-1335-day-earlier-2022-03-27/](https://www.reuters.com/world/china/china-reports-1254-new-covid-cases-march-26-vs-1335-day-earlier-2022-03-27/)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
