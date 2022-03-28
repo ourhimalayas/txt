@@ -2,51 +2,38 @@
 ---
 
 
-## 埃隆·马斯克认为普京才是世界首富
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2245071/)
+## 2022/03/23 教皇方济各：战争没有胜利，双方皆输
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2245099/)
 
-翻译：聖地香港
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3382.png)图片来源:news.yahoo.com
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032606.jpg)[GETTR视频链接](https://gettr.com/post/p11m5pd06b2)
 
-- 埃隆·马斯克（Elon Musk）认为俄罗斯总统弗拉基米尔·普京（Vladimir Putin）比他更富有。
-- 马斯克在2021年超越亚马逊的杰夫·贝索斯（Jeff Bezos）成为世界首富。
-- 马斯克在接受Axel Springer媒体首席执行官Mathias Döpfner采访时对普京做出了评价。
+**视频字幕：**
+
+**教皇方济各**：我想用一点时间来纪念战争的受害者。我听到人们无家可归、逃离家园、死亡和受伤，双方都有很多战士殒落这些死亡的讯息。我们祈求生命之主将我们从战争的死亡中解救出来。在战争中一切皆输，一切，战争没有胜利，一切都是失败。解决的办法是为和平而共同努力。就像圣经所说，把武器变成和平的工具。让我们一起向圣母祈祷！
+
+**简评：**
+
+俄乌战争在继续，教皇方济各表示战争中一切皆输，战争没有胜利，向圣母祈祷和平！
+
+战争给参战国双方带来了巨大的生命和财产的损失，非战争国也同样。乌克兰和俄罗斯都是产粮大国，这场战争不知何时才能结束，但是一个月的战争已经导致几百万乌克兰人流离失所，粮食产量剧减，世界范围内的粮荒已经不可避免。战争摧毁了一切。
+
+*字幕：雨中漫步|听写：云岭|翻译：Roberts|校对：Blue|简评/文字整理/编辑：胖丁*
 
 
-埃隆·马斯克是有记录以来最富有的人，但他认为普京可能比他更为富有。
-
-这位特斯拉的首席执行官在2021年底财富超过亚马逊的杰夫·贝索斯重获世界首富头衔。
-
-Axel Springer是Insider的母公司，Axel Springer媒体首席执行官Mathias Döpfner在最近对马斯克的一次采访中问道：“作为身价约2600亿美元，成为世界首富的感觉如何？”
-
-马斯克回答道：“我确信普京比我富有得多。”
-
-俄罗斯总统弗拉基米尔·普京的巨额财富仍然是一个谜，因为没有人确切知道具体数额，或者藏在哪里。黑海一座价值 14 亿美元的宫殿和价值 400 万美元的摩纳哥公寓据称与普京有关。
-
-有人猜测这位俄罗斯总统可能是世界上最富有的人，金融家比尔·布劳德（Bill Browder）在 2017 年作证说，他认为普京 “已经积累了 2000 亿美元的不义之财” 。
-
-普京入侵乌克兰后，美国和西方国家对俄罗斯、普京的主要盟友和俄罗斯总统本人实施了制裁。
-
-在马斯克与 Döpfner 就普京入侵的讨论中，这位特斯拉的首席执行官表示，制止普京势在必行。
-
-马斯克说：“我认为美国政府所做的比人们知道的要多，只是并没有公开。但必须要采取更严厉的措施，我们不能让普京吞并乌克兰。这太疯狂了。”
-
-**素材：peacelv**
-
-素材链接：[Elon Musk — officially the world’s richest man — says he thinks ‘Putin is significantly richer than me’](https://news.yahoo.com/elon-musk-officially-worlds-richest-175705343.html)
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

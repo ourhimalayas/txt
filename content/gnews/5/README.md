@@ -2,17 +2,17 @@
 ---
 
 
-## 樱花头条┃拜登或制裁三百多俄罗斯议员
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2245023/)
+## 樱花头条┃台湾凌晨连发8次地震
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2245066/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-拜登访欧将祭新措施，或制裁三百多俄议员。
+台湾凌晨连发8次地震，施工桥梁断裂！
 
 信息来源：
-[https://www.gettr.com/post/p11mb0q2c9d](https://www.gettr.com/post/p11mb0q2c9d)
+[https://www.gettr.com/post/p11gbdeabd7](https://www.gettr.com/post/p11gbdeabd7)
 
-*编辑：东京樱花团/asket、天路天道（素材）
+*编辑：东京樱花团/asket、包子（素材）、太白（素材）
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**

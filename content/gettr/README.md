@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 10:11 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group45/origin/2022/03/28/07/6211ac39-8eb4-8fc7-1b63-3e94c50da3ae/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/28/2022 9:32 AM (UTC)`
 
 3/27/2022 Miles Guo: The biggest crisis in China is food shortages. The CCP’s extremely ruthless counter-epidemic policies will leave countless people without a burial place. The world will be dragged into the darkest times, which will last for two to three years as the result of the CCP virus outbreaks and the COVID vaccine disasters. After taking down the CCP, not only will this pandemic be over, the COVID vaccine disasters will also pass. Putin, the Iranian government, Kim Jong-un, and other evil regimes that are in bed with the CCP will all cease to exist with the collapse of the CCP.<br/><br/>3/27/2022 文贵直播：国内最大的危机就是粮食短缺；中共极端无情的抗疫政策会让无数人死无葬身之地；全世界会因为病毒再度爆发和疫苗灾难陷入两到三年的至暗时刻；灭共后不仅病毒会消失，疫苗灾难会过去，普京、伊朗政府、金正恩等与中共为伍的邪恶轴心政权都会随之消亡<br/>
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 2022.03.27 晚 《新中国联邦新闻》我们在做本应由中国政府做的事情； 俄乌战争是对全世界政客关于世界认知的一场检验
 ![img](https://media.gettr.com/group47/origin/2022/03/28/00/70f18e70-e4d5-c431-19d6-99673cfb953b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/27/2022 11:01 PM (UTC)`
-
-2022.03.27 NFSC News  British Media Freelancer Interviews NFSC Rescue Team Members； Young NFSC Member Feather Works at Frontline of Rescue Effort
-![img](https://media.gettr.com/group20/origin/2022/03/27/22/581ede76-4226-1ecb-c42c-a85d8762b898/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

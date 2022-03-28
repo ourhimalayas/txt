@@ -2,17 +2,17 @@
 ---
 
 
-## 樱花头条┃俄罗斯驱逐美国驻俄外交官
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244984/)
+## 樱花头条┃普金顾问因乌克兰战争辞职 离开俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2245001/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-俄罗斯驱逐美国驻俄外交官
+普金顾问因乌克兰战争辞职离开俄罗斯。
 
 信息来源：
 [https://www.gettr.com/post/p11m6upa9d8](https://www.gettr.com/post/p11m6upa9d8)
 
-*编辑：东京樱花团/asket、行动（素材）
+*编辑：东京樱花团/asket、小水手（素材）
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
