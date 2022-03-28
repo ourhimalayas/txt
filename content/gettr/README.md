@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 1:04 AM (UTC)`
+
+3/27/2022 Miles Guo: The danger of the dictators is the absence of the bottom line. Qin Gang shamelessly told the US that the CCP has no upper limit, but with a bottom line. The statement made by Putin and Xi that “there is no upper limit to our collaborations” will make countless Chinese people pay a dear price. Biden debunked the lie that Russia went to Ukraine to seize the Nazis in his speech. Those dictators who fool the world will end up making a fool of themselves.<br/><br/><br/>3/27/2022 文贵直播：独裁者的危险在于无底线，秦刚无耻地告诉美国说中共无上限，有底线；普习二人所谓“我们合作无上限”将让无数中国人付出巨大代价；拜登在演讲中揭穿了俄罗斯去乌克兰抓纳粹的谎言；愚弄天下的独裁者必被天下愚<br/>
+![img](https://media.gettr.com/group7/getter/2022/03/28/01/f15b2ca5-5690-ade6-2fb2-1f478d580d28/out.jpg)
+
+---
+
+`@miles 3/28/2022 1:00 AM (UTC)`
+
+3/27/2022 Miles Guo: What are the implications of Biden’s speech in Poland? 1) The UN has basically disintegrated, with the CCP, India, and Russia ousted; 2) the European countries are unprecedentedly united, and Ukraine will be the center of Europe; and 3) the US will be the biggest winner. The world’s landscape will undergo a major change. Regarding Biden's speech, the ultimate winners will be the citizens of the New Federal State of China, who have not got the COVID jabs, are taking down the CCP, and own the Himalaya Coins.<br/><br/><br/>3/27/2022 文贵直播：拜登的波兰演讲意味着什么？1）联合国基本解体，中印俄出局；2）欧洲各国前所未有的团结一致，欧洲将以乌克兰为中心，3）美国是最大的赢家；世界格局将巨变；拜登演讲里的最大赢家是无苗灭共有币的新中国联邦人<br/>
+![img](https://media.gettr.com/group39/getter/2022/03/28/01/df13b306-640f-d815-1236-3d60f57f4ac1/out.jpg)
+
+---
+
 `@miles 3/28/2022 12:30 AM (UTC)`
 
 2022.03.27 晚 《新中国联邦新闻》我们在做本应由中国政府做的事情； 俄乌战争是对全世界政客关于世界认知的一场检验
@@ -140,20 +154,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 2022.03.26 晚《新中国联邦新闻访谈》俄乌最新局势分析；中共俄乌局势大外宣造假登峰造极；中共宣传疫情封城救助，网民发视频称根本没补贴；德国病理学家的发现Covid 疫苗损伤证据
 ![img](https://media.gettr.com/group43/origin/2022/03/27/01/ed1cdc96-a4d6-d33f-5d61-069536430685/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 12:51 AM (UTC)`
-
-3/25/2022 Miles Guo: Although Russia, the so-called world's second largest military power, is known for exporting weapons, it has been doing surprisingly poorly in the Russia-Ukraine war. Their equipment, supplies, and communication remain at the level of WWII, but in terms of running grandiose misinformation campaigns, Russia is the same as the CCP and North Korea!<br/><br/>3/25/2022 文贵直播: 以出口武器著称的号称世界第二大军事强国的俄罗斯在俄乌战争中的表现令人大跌眼镜。他们的装备、补给和通讯都停留在二战水平，但在冠冕堂皇的虚假宣传方面却和中共、北朝鲜如出一辙！<br/>
-![img](https://media.gettr.com/group47/getter/2022/03/27/00/e7b8d0a3-7a2e-c387-1212-e4c113424499/out.jpg)
-
----
-
-`@miles 3/27/2022 12:30 AM (UTC)`
-
-2022.03.26 晚《新中国联邦新闻》共产党做局榨干中国人民全部血汗钱； 所有的爆料都是为了挽救更多的中国人
-![img](https://media.gettr.com/group17/origin/2022/03/27/00/7dbafde1-fe5c-9312-f3d1-88143cd76bff/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
