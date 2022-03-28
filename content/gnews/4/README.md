@@ -2,18 +2,30 @@
 ---
 
 
-## 美国总统拜登在周六讲话：俄罗斯总统普金不应该继续掌权
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2247992/)
+## 蒙特利尔大学教授支持俄罗斯言论遭学生排斥
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2248013/)
 
-供稿：Cici
-翻译：Cici
-发稿：am夏天
-农场部门：德国纽伦堡正义农场
+##### 作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-16.jpg)
 
-白宫正试图在拜登总统周六的讲话中回顾一个重要时刻。总统在波兰华沙的演讲结束时说：”看在上帝的份上，这个人不能继续掌权。”他在讲话中宣布俄罗斯总统弗拉基米尔普京不应该继续掌权。”总统的观点是，不能允许普京行使权力，在他的邻居或地区。他没有讨论普京在俄罗斯的权力或政权更迭，”这位官员在一封电子邮件中说。
+据加拿大《环球邮报》3月28日报道，蒙特利尔大学一名历史系教授因在其社交媒体上发表支持俄罗斯入侵乌克兰的言论而被两名学生发起谴责请愿书。日前已收到175个签名支持。请愿书称，迈克尔教授虽然长期从事历史研究，但在俄罗斯入侵乌克兰的战争中传播俄罗斯当局的观点，误导了数千名学生，应该免去他论文导师的职务。
 
-(The Hill) – The White House is attempting to walk back a major moment in President Biden’s remarks on Saturday .” The president said at the end of his speech in Warsaw, Poland.： “For God’s sake, this man cannot remain in power,” he declared that Russian President Vladimir Putin should not remain in power. “The president’s point was that Putin cannot be allowed to exercise power, over his neighbours or the region. He was not discussing Putin’s power in Russia, or regime change,” the official said in an email.
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+据悉，该教授在推特上的发文引用了俄罗斯官方媒体机构的观点，称俄军入侵乌克兰的原因是反对”乌克兰的法西斯政府”和清洗”渗透到乌克兰政府的纳粹分子”。其推特和脸书账户近期被删除，其本人也未就请愿书作出回应。
+
+[新闻链接](https://www.theglobeandmail.com/canada/article-students-launch-petition-against-university-of-montreal-professor-over/)
+
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
