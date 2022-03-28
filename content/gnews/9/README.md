@@ -2,44 +2,126 @@
 ---
 
 
-## 经济衰退要来了吗？艾伦·格林斯潘说：答案就在男士内裤里
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2243896/)
+## 美国和俄罗斯缺乏沟通可能导致战争升级
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2243957/)
 
-评论：***格林斯潘的内裤理论在2009年的金融危机时就应验了。类似还有口红效应，都被作为经济兴衰的表象而被众人所知，虽然充满了趣味，但其与经济形势之间的相关性和准确率还需验证。***
+Michael A. Smerconish
+迈克尔 A. 斯梅尔科尼什
 
-据《美国有线电视新闻网（CNN）》作者：Nicole Goodkind，2022年3月26日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3365.png)艾伦·格林斯潘。图片来源：《盖蒂图片社》
-前美联储主席艾伦·格林斯潘对男士内裤有着浓厚的兴趣。
+How is this deconfliction channel supposed to operate?
+这个消除冲突的渠道应该如何运作？
 
-不是因为他专注于不断发展的服装时尚，而是他将内裤销售视为一个关键的经济预测指标。
+Adm. James Stavridis (Ret) Former NATO Supreme Allied commander
+詹姆斯·斯塔夫里迪斯上将（退役）前北约最高盟军指挥官
 
-听起来很奇怪，但这只是专家们尝试预测经济繁荣和萧条的诸多奇怪方式之一。
+It’s supposed to be very simple
+它应该是非常的简单
 
-“他曾经告诉我……最私密的衣物是男士内裤，因为除了更衣室里的人，没有外人看到它，而且谁在乎呢？” 美国国家公共电台（NPR）的长期记者罗伯特克鲁维奇（Robert Krulwich）多年前谈到格林斯潘。男士内裤的销售通常是稳定的，“所以少数情况下如果它下降，就意味着男人们因为缺钱，而苦恼到了决定不更换内裤的地步”。
+You are be able as a leader to reach out
+作为一名领导者有能力去联系
 
-男士内裤指数支持了格林斯潘的理论：美国男士内裤的销量在2007年至2009年大萧条期间显著下降，但随着经济复苏，销量在2010年再次增长。
+and almost literally pick up a phone and be talking to your counterpart
+几乎真的拿起电话就能和你的同行交谈
 
-还有一些技术性较低、更有趣的经济衰退衡量标准。以下是经济学家追踪美国经济健康状况的一些奇怪但半准确的方式。
+And it’s not quite that seamless
+而且它不是那么的完美
 
-**摩天大楼高耸入云**
+but as Supreme Allied Commander of NATO for four years
+但作为担任过四年的北约盟军最高指挥官
 
-“摩天大楼指数”：当我们接近萧条时，超高层建筑的数量就会增加——当一座打破世界最高记录的建筑建成时，经济衰退或经济危机迫在眉睫。
+when I wanted to talk to the Supreme Commander of the Russian Armed Forces, general Nikolai Makarov
+当我想与俄罗斯武装部队最高指挥官尼古拉·马卡罗夫将军交谈时
 
-**口红提神醒脑**
+I would say to my communications officer
+我会对我的通讯官说
 
-雅诗兰黛的董事长伦纳德·劳德（Leonard Lauder）在2001年9月11日之后的经济低迷时期创建了“口红指数”。他注意到化妆品，尤其是口红的购买往往与经济成反比，因为女性会寻求价廉一些的小商品，而非购买更昂贵的商品。在2001年秋季里，美国的口红销量增长了11%。而早在大萧条时期，化妆品销售额整体增长了25%。
+hey, we really ought to touch base with the general about this aspect of counter piracy operations
+嘿，我们真的应该就反海盗行动的这方面与将军联系
 
-**手指快乐滑动屏幕**
+or submarine forces in the Arctic or whatever we wanted to deconflict, Michael
+或北极的潜艇部队或任何我们想要消除冲突的东西，迈克尔
 
-像Match这样的约会网站，在萧条时期收入提升。该公司公布了自2009年大衰退期间七年来最强劲的第四季度收益。2020年，随着新冠病毒肆虐，其股价在2020年3月至2021年3月间飙升了141%之高。
+and I could be on a phone call with him, literally within the hour
+我可以在一个小时内和他通电话
 
-文章来源：**[https://www.cnn.com/2022/03/26/economy/recession-underwear-alan-greenspan/index.html](https://www.cnn.com/2022/03/26/economy/recession-underwear-alan-greenspan/index.html)**
+and I think that’s been the norm between US authorities chairman，Secretary of Defense over the years
+我认为这是多年来美国当局主席、国防部长之间的常态
 
-翻译：洛杉矶盘古农场 – maru
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – maru
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
+even during the Cold War
+甚至在冷战期间
+
+so it’s very concerning，and just to close on this point
+因此，这非常令人担忧，而且就这一点而言，我想说的是
+
+people think perhaps, well, you know
+人们认为也许，嗯，你知道
+
+we’re not going to get into war with Russia
+我们不会与俄罗斯开战
+
+it will escalate you know, how did World War One start?
+但它会升级，你知道，第一次世界大战是如何开始的？
+
+It started with an assassin’s bullet in a dusty corner of the Ottoman of the Austro Hungarian empire 1914
+它始于1914年奥匈帝国奥斯曼帝国尘土飞扬的角落里的刺客子弹
+
+lack of communications, armies mobilizing
+随之缺乏交流，军队动员起来
+
+lost control of that ladder of vertical escalation
+失去对阶梯式直线升级的控制
+
+By 1918, 20 million dead in Europe
+截至1918年，欧洲有2000万人死亡
+
+it can happen we need direct communication
+这可能发生，我们需要直接沟通
+
+Michael A. Smerconish
+迈克尔 A. 斯梅尔科尼什
+
+Admiral, If Vladimir Putin wanted them to pick up the phone
+上将, 如果弗拉基米尔·普京想让他们接电话
+
+presumably they would, right?
+大概他们会的，对吧？
+
+this comes from him?
+这来自他的决定？
+
+Adm. James Stavridis
+詹姆斯·斯塔夫里迪斯上将
+
+You have to assume that Putin has said shut down communications
+你必须假设普京说过要关闭沟通
+
+because Putin wants to create more angst, more of worry, more fear
+因为普京想要制造更多的焦虑、更多的担忧、更多的恐惧
+
+less certainty about what he’s going to do next
+不太确定是他接下来想要做的
+
+It’s part of his style in crisis
+这是他在危机中的风格的一部分
+
+but it’s a very dangerous maneuver at this particular moment
+但在这个特殊的时刻这是一个非常危险的动作
+
+* * *
+
+Date:03/26/2022
+原视频标题: U.S. & Russia lack of communication could lead to escalation
+美国和俄罗斯缺乏沟通可能导致战争升级
+原视频日期：2022/03/26
+原视频链接**[https://twitter.com/cnn/status/1507714897093742597?s=24](https://twitter.com/cnn/status/1507714897093742597?s=24)**
+任务编号：KE462（4092）
+视频时间段 : 0:00-2:02
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场-恩典
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

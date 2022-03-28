@@ -15,56 +15,56 @@
 
 ---
 
-### [视频|俄乌开战后 拜登首次会见乌克兰外长防长](/content/gnews/1/README.md)
- ` MOSVIDEO`
-
-### [3月27日 文贵大直播要点（图片1-8）](/content/gnews/2/README.md)
- ` 波士顿五月花农场`
-
-### [阿联酋17岁高尔夫天才小将突发心脏病去世](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [分析人士称朝鲜“怪物”洲际弹道导弹的图像可能来自早先的发射](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [视频|国民党高官亲属为中共卖命的悲惨命运](/content/gnews/5/README.md)
- ` MOSVIDEO`
-
-### [大直播后记：独裁者的本质](/content/gnews/6/README.md)
+### [消灭共产党是中国人证明给世界唯一的选择（一）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [很多共产党员都是好人 不要相信美国灭共（四）](/content/gnews/7/README.md)
+### [消灭共产党是中国人证明给世界唯一的选择（五）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [视频|GClubs年会共襄盛举 律师战友获终极大奖](/content/gnews/8/README.md)
+### [消灭共产党是中国人证明给世界唯一的选择（四）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [消灭共产党是中国人证明给世界唯一的选择（三）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [消灭共产党是中国人证明给世界唯一的选择（二）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [视频|一周疫情、疫苗信息回顾（3月16日至23日）](/content/gnews/6/README.md)
  ` MOSVIDEO`
 
-### [经济衰退要来了吗？艾伦·格林斯潘说：答案就在男士内裤里](/content/gnews/9/README.md)
+### [大直播后记：被救中国人看清中共国没有对逝者的尊敬](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
+
+### [视频|基移动电话网络公司将发射测试卫星](/content/gnews/8/README.md)
+ ` MOSVIDEO`
+
+### [美国和俄罗斯缺乏沟通可能导致战争升级](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|破解粉饰俄乌战争的虚假理由](/content/gnews/10/README.md)
+### [大直播后记： 奇迹和天意](/content/gnews/10/README.md)
+ ` 雅典娜GNotes`
+
+### [视频|俄乌开战后 拜登首次会见乌克兰外长防长](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
-### [视频|俄乌战争战情更新 (截止3月26日)](/content/gnews/11/README.md)
- ` MOSVIDEO`
-
-### [新三从四得](/content/gnews/12/README.md)
+### [阿联酋17岁高尔夫天才小将突发心脏病去世](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫情｜日本解禁后首个周末 各地确诊数明显上升](/content/gnews/13/README.md)
+### [视频|国民党高官亲属为中共卖命的悲惨命运](/content/gnews/13/README.md)
+ ` MOSVIDEO`
+
+### [大直播后记：独裁者的本质](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [疫情｜日本解禁后首个周末 各地确诊数明显上升](/content/gnews/15/README.md)
  ` 關注組`
 
-### [众议员麦考尔：美国必须现在就开始武装台湾](/content/gnews/14/README.md)
+### [众议员麦考尔：美国必须现在就开始武装台湾](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [融创高负债销售下滑陷公司债兑付危机](/content/gnews/15/README.md)
+### [融创高负债销售下滑陷公司债兑付危机](/content/gnews/17/README.md)
  ` 波士顿五月花农场金融部`
-
-### [有声｜乌克兰人在中国社媒展开攻势 展示真实战况](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [大直播后记：如果日本开放宣战权对世界的意义](/content/gnews/17/README.md)
- ` 雅典娜GNotes`
 
 ### [报告：科学家们现在正在研究 “自我传播的疫苗&#8221;，可以从已接种疫苗的人群中跳到未接种疫苗的人群](/content/gnews/18/README.md)
  ` 波士顿五月花农场金融部`
@@ -93,14 +93,14 @@
 ### [中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大直播后记：美国的软实力](/content/gnews/27/README.md)
- ` 雅典娜GNotes`
-
-### [拜登：“不能再让普京掌权”](/content/gnews/28/README.md)
+### [拜登：“不能再让普京掌权”](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/29/README.md)
+### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/28/README.md)
  ` 關注組`
+
+### [【秘翻北美时评】 Gclub盛大年会抽奖活动的重大意义](/content/gnews/29/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
 ### [2022年3月27日大直播速记精萃](/content/gnews/30/README.md)
  ` 雅典娜GNotes`

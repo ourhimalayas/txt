@@ -2,21 +2,17 @@
 ---
 
 
-## 视频|俄乌开战后 拜登首次会见乌克兰外长防长
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2243929/)
+## 消灭共产党是中国人证明给世界唯一的选择（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244070/)
 
-制作：香草山视频部
+**PPT制作：小蜗牛 ；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-40-10-50-一--scaled.jpg)
+发布：tianzhihuan
 
-外媒报道，3月26日，美国总统拜登在波兰首都华沙，会见了乌克兰外长与防长。这是自俄乌战争爆发以来，拜登首次与乌克兰高层面对面会谈。
-据悉，拜登总统在国务卿布林肯、国防部长奥斯汀的陪同下，在华沙的万豪酒店会见了乌克兰外交部长库列巴、乌克兰国防部长列兹尼科夫。
-另据报道，拜登将在会谈之后发表重要演说。白宫安全顾问苏利文表示，拜登总统的演讲包括未来挑战的紧迫性、乌克兰战事意味着什么，以及自由世界团结面对俄罗斯侵略的重要性等内容。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
