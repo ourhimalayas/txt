@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@globalalliance 3/28/2022 5:24 PM (UTC)`
+
+When you come to Medika, you need a local mobile phone card and WiFi to contact your family. The New Federal State of China (#NFSC) has united with a mobile phone card company to provide free mobile phone cards and WiFi. And the WiFi password is our goal: take down the #CCP!<br/>来到梅迪卡的难⺠，需要当地手机卡和WiFi与家人联络。 #新中国联邦 联合一家手机卡公司，提供免费的手机卡和WiFi。而WiFi的密码就是我们的目标： #灭掉中共!
+![img](https://media.gettr.com/group6/origin/2022/03/28/17/4d28bed0-452c-848a-a8f6-8b92f68b34d9/out.jpg)
+
+---
+
+`@miles 3/28/2022 5:45 PM (UTC)`
+
+
+![img](https://media.gettr.com/group18/origin/2022/03/28/17/99f37362-414e-3fa2-5cc3-fb012b954ec0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/28/2022 5:36 PM (UTC)`
 
 The new Chinese of New Federal State of China, the comrades of the Whistleblower Movement, after affected by the CCP virus, quickly recovered and returned to the Ukrainian-Polish border to continue humanitarian rescue operations. This completely shows the image of peace-loving and mutual help of the new Chinese people who are different from the Chinese Communist Party<br/>新中国联邦人，爆料革命的战友们在感染中共病毒后，很快就恢复了健康，又重新回到了乌克兰与波兰边境，继续我们的人道主义救援行动。这完全展现了不同于中国共产党的新中国人爱好和平、互帮互助的形象
@@ -141,20 +157,6 @@ The NFSC has drawn increasing international attention in regards to humanitarian
 
 The frontline base camp of the New Federal State of China receives rescue supplies from all over the world on a daily basis and has become a central base camp for receiving supplies.<br/>Mainstream media from the world came to our rescue center for interviews and news reports, which are constantly featured on their channels.<br/>Our base camp has been endorsed by international humanitarian rescue teams and has become a meeting center for local NGOs.<br/>Our presence showed that the Chinese Communist Party does not represent the Chinese people. With our actions, we are telling the world that we will definitely take down the Chinese Communist Party.<br/>新中国联邦前线营地，每天都收到来自世界各地的救援物资，已经成为接收物资的核心营地。世界各地的主流媒体，都会来到我们的营救中心进行采访和报道，我们的营地也得到了国际人道主义救援团队认可。<br/>我们的出现证明了，中共不能代表中国人。我们用行动告诉世界，一定会消灭中国共产党。
 ![img](https://media.gettr.com/group25/origin/2022/03/28/03/ed138a08-919e-ae6f-62f2-13bdc9798f2f/out.jpg)
-
----
-
-`@miles 3/28/2022 3:42 AM (UTC)`
-
-3/27/2022 Miles Guo: Many people within the CCP’s system are secretly protecting our fellow fighters and have shown their admiration for the NFSC & ROLF Ukraine rescue operation. Never pin our hope on the US to help us take down the CCP. It will surely be those in the CCP’s system that will take down both Xi Jinping and the CCP!<br/><br/>3/27/2022 文贵直播: 很多体制内的人在暗中保护我们的战友，并对新中国联邦在乌克兰的救援行动表示钦佩。不要寄希望于美国帮我们灭共，最终干倒习近平和共产党的一定是国内人！<br/>
-![img](https://media.gettr.com/group16/getter/2022/03/28/03/385b31ea-e2db-12bf-0486-9327945f4e98/out.jpg)
-
----
-
-`@miles 3/28/2022 3:18 AM (UTC)`
-
-3/27/2022 Miles Guo: Xi Jinping will invade Taiwan anyway! Both Putin and Xi believe that their families will be taken out if they don’t defeat Europe and the US. Xi believes that only by taking Taiwan can he prevent democracy and freedom from spreading to Mainland China. Putin and Xi couldn’t care less about the Lao Baixing’s life and death, but their insanity can’t destroy the world. Both will certainly be taken down!<br/><br/>3/27/2022 文贵直播：习近平不论如何都会打台湾！普和习认为如果不干掉欧美，他们自己和家人就会被干掉；习觉得只有拿下台湾才不会让民主自由之风会吹到大陆；普和习毫不在乎老百姓的死活，但他们的疯狂毁灭不了世界，他俩将100%被灭<br/>
-![img](https://media.gettr.com/group47/getter/2022/03/28/03/c3f5a346-4074-d646-f9b1-b23b1a0b057a/out.jpg)
 
 ---
 
