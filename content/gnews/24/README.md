@@ -2,26 +2,24 @@
 ---
 
 
-## 中共病毒已致全球650万人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244214/)
+## 疫情｜台湾疫情爆发 外界忧：步入香港后尘
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244406/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/中共病毒已致全球650万人死亡.png)[图片来源](https://www.nippon.com/en/news/reu20210820KBN2FL0DX/)
-路透社统计,全球新冠肺炎（中共病毒）感染者超过4亿7934万人,死亡人数达到649万7252人。
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Purple-DJ-Music-Channel-2.png)追踪疫情关注组[盖特](https://gettr.com/user/mightygroup)｜**Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+据中央流行疫情指挥中心数据，台湾本土疫情多点爆发，部分感染源无法明确。27日新增83例确诊，疫情足迹遍布高雄、新竹、双北、基隆、台东等多县市。又基隆小吃店衍生警察群聚案、大潭电厂群聚案仍持续扩大，并未有好转迹象。28日，则新增34例本土确诊个案。
 
-自2019年12月中国首次确诊病例以来,已在全世界210多个国家和地区报告感染病例。
+值得关注的是，基隆小吃店衍生警察群聚局经定序后，发现与目前台湾本土疫情的病毒株不同，疑惟越南境外疑入病毒株。
 
-信息来源：
-[情報ＢＯＸ：新型コロナウイルス、世界の感染者4億7934万人超　死者649.7万人](https://jp.reuters.com/article/worldNews/idJPKCN2LP0DL)
+其中，大潭电厂群聚案备受关注，该电厂发电量占全台逾10%，外界担忧近日台湾供电可能因电厂群聚而更受影响。经济部长王美花28日受访表示，大潭电厂群聚确诊有增加可能，但目前已快速匡列。原定4月1日将松绑的口罩禁令，因疫情升温经防疫指挥官陈时中公布，将暂时改为不松绑。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+有媒体采访陈时中提到“是否担心台湾步入香港后尘”，陈苦笑称“绝对不想”。此外，[上海疫情升温](https://gnews.org/zh-hans/2243287/)实施分批封城一事，经济部长王美花于立院经济委员会业务报告时称：经工业局联系当地台厂，确认产线尚未受到影响，惟可能影响出货部分。
+
+来源｜[Newtalk](https://newtalk.tw/news/view/2022-03-28/730302)、[YAHOO](https://tw.news.yahoo.com/大潭電廠群聚案今確診數恐增-王美花-確診者中有本國員工回到社區-051703933.html)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 

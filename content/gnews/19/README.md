@@ -2,33 +2,34 @@
 ---
 
 
-## 大直播后记：我们就是消灭共产党的新中国联邦人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244464/)
+## 乌克兰：计划举行新的停火谈判
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2244545/)
 
-整理：文晋、奮鬥
-编辑：小红帽
+**乌克兰和俄罗斯希望在本周再次与对方举行直接会谈。代表团将在土耳其的伊斯坦布尔举行会议。**
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/47d7060da2cdf6b4.png)图片来源：雅典娜农场设计组（614）
+作者：dpa/dlf/orf/dlf/vrt/est/原文发布于2022年3月28日06:43 (CET)
+翻译：LK
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-13.jpg)图片：乌克兰和俄罗斯之间的和平谈判（2022年3月2日的档案照片）：Maxim Guchek/Belta/AFP
 
 
-Nicole在前线真的是瘦了好多，她是亲身拿着命到前线的。
+一位乌克兰谈判代表说，下一轮谈判将于周一开始，持续到周三。俄罗斯代表团团长Medinski 确认了一次会议，但提到周二和周三是时间框架。土耳其方面最初没有确认。
 
-我很惊讶，竟然有人讨论说，我们不要一见人就说“我们是消灭共产党的中国人”。我非常惊讶。这真的就不亚于有人跟我说：“七哥，你们是不是不要说灭共”一样。我觉得不管谁说了，不管谁讨论了，你这个人都是有问题的。而且为了这个新中国联邦，我们一定要要找出谁说过这话。这个事情是很危险的。这就像两口子过日子一样，都过了很长时间，突然你提出来一个问题：“你是男的，女的？”你这不是侮辱我吗？对不对？我们就是灭共的，一切都是为了灭共。
+在白俄罗斯边境地区举行了三次面对面的会议之后，在过去的两个星期里，谈判只通过视频会议进行。
 
-这个问题让我们思考很多。但是，前线最近发生的事情，让我们更加知道，真的是灭共容易，而灭你心中的那个共，灭掉你心中的那个红毒，难上加难，比登天难！
+没有公开宣布达成停火努力的具体进展。双方均称会谈非常艰难。
 
-接下来，现在正在看直播的玉米地小妹赶快给Gfashion设计团队，新中国联邦的设计团队出个方案，把前线这个马甲，大家已经认可了的–“Take down the Chinese communism Party”，后边就是“消灭中国共产党”的这句话，把它真正的用最现代的科技，让战友可以在黑夜中穿上。
+**泽连斯基：普京在拖延战争**
 
-参考资料：[郭文贵先生2022年3月27日大直播](https://www.gettr.com/streaming/p124vkgc8a0)
+乌克兰总统泽伦斯基表示，他准备研究乌克兰成为中立国的可能性。泽伦斯基在接受俄罗斯记者采访时这样说。然而，最终将必须由乌克兰公民通过公投来决定。
 
-发布*：tianzhihuan*
+乌克兰的中立是俄罗斯在停火谈判中的主要诉求之一。在这种情况下，乌克兰将不得不放弃加入北约。然而，泽连斯基事先承诺过这一点。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+在采访中，泽连斯基指责俄罗斯总统普京在拖延和平谈判。俄罗斯媒体监督机构Roskomnadzor已经警告俄罗斯媒体不要发表该采访。在俄罗斯，俄罗斯军队对乌克兰的入侵只能正式称为“特别军事行动”。此外，一项新的媒体法规定，对涉嫌有关俄罗斯武装部队的虚假新闻可判处最高15年的监禁。（*dpa/dlf/orf/dlf/vrt/est*）
 
+原文链接：[https://brf.be/international/1588795/](https://brf.be/international/1588795/)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
