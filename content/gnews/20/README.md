@@ -2,28 +2,35 @@
 ---
 
 
-## 大直播后记：直播是每个战友用生命和时间在救助还未觉醒的人
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244470/)
+## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
 
-整理：清水冷香 北酒仙翁
-编辑：李易通
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+## 美国“国家民主基金会”访台
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648099708680-1.jpg)图片来源：雅典娜设计组
+台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
 
 
-一个不懂得珍惜别人劳动的人，不珍惜别人时间的人，不懂得尊重别人的人，你一定不会活得快乐和健康。因为你找不到生活中的乐趣。一个杯子你喝完咖啡扔一边去了，一个水杯扔一边去了，人家外国人，文明国家的人，对一个不同的水晶杯，人家享受，慢慢地放，慢慢地喝，别人说一个谢谢，他会很认真地回复说，谢谢你。一个生活中极不严谨，焦躁不安，你不会抓到生活的本质。我每次直播看到大家，我发自内心的本能的希望同心同框的人的家人们和他都健康、平安，这辈子没有多少人能和你同心同框，不是全人类都可以和你同心同框，也不是所有人都愿意和你同心同框，你愿意他愿意，也不是有这缘分的。
 
-上次直播我以为说出了山姆的名字，结果没说出他的名字，结果就有战友告诉我说，“今天你没点山姆名字。”把我吓一大跳，我说我点了啊，对方说我听到没有，就有人在乎你说的话，你没有说出名字，就有人替你鸣不平。火来和飞飞直播，有战友给我发信息，七哥你应该和火来和飞飞来一次直播。我说为什么，他说火来讲的很多观点和飞飞的观点很有深度，我们这里谁谁对他们的看法关于这个病情和疫情很重视。这件事情的背后反应的是多少人，看过所有的直播，经过深思熟虑后，废多半天劲才找到七哥。我今天再次直播前我想告诉大家，直播是我们每个人拿生命拿时间给大家分享的救命的信息。看到前线刚才的连线，这是在战争中的连线，我们没有一分利益，战友在冒着生命危险。
+> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
+> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
-精粮他有父母，又有兄弟姐妹，明道有孩子有家人，小Sara有父母有家人，富二代有家人，而且这些人家庭条件都不差。我家里人，包括你七嫂多次说，她看着战友在前线就担心呀什么的，然后就说，看这些孩子家里都经济条件不错，她就担心，惦记得慌，不行快回来吧。作为一个女人有这种想法是可以理解的，我心里压力也特别大。所有有良知的人都知道，每个人像Nicole她不缺钱，她就敢冒着这种失去生命和感染疾病的风险走到了前线。所以说我们中国墙内的人和墙外的人，当我们看到这一幕的时候，我们人类上中国人从来没有过像我们这样真实的直播，还要被全世界看到，还要承担法律责任，还要接受批评，甚至还要有遭受导弹轰炸的风险，然后我们还救人。
 
-资料来源：[2022年3月27日 文贵大直播](https://gettr.com/streaming/p124vkgc8a0)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
+
+外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
+
+## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
+
+[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
+
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
+
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

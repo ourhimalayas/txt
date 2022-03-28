@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 9:32 AM (UTC)`
+
+3/27/2022 Miles Guo: The biggest crisis in China is food shortages. The CCP’s extremely ruthless counter-epidemic policies will leave countless people without a burial place. The world will be dragged into the darkest times, which will last for two to three years as the result of the CCP virus outbreaks and the COVID vaccine disasters. After taking down the CCP, not only will this pandemic be over, the COVID vaccine disasters will also pass. Putin, the Iranian government, Kim Jong-un, and other evil regimes that are in bed with the CCP will all cease to exist with the collapse of the CCP.<br/><br/>3/27/2022 文贵直播：国内最大的危机就是粮食短缺；中共极端无情的抗疫政策会让无数人死无葬身之地；全世界会因为病毒再度爆发和疫苗灾难陷入两到三年的至暗时刻；灭共后不仅病毒会消失，疫苗灾难会过去，普京、伊朗政府、金正恩等与中共为伍的邪恶轴心政权都会随之消亡<br/>
+![img](https://media.gettr.com/group7/getter/2022/03/28/09/481792dd-94b2-0409-1d52-e27a8f9c0371/out.jpg)
+
+---
+
 `@miles 3/28/2022 8:42 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月27日第23天当日救援统计：<br/>Medyka救援站接待：约31人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7565人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 23 - Date: March 27, 2022 :<br/>Medyka Rescue Station Reception: about 31 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7565 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 2022.03.27 NFSC News  British Media Freelancer Interviews NFSC Rescue Team Members； Young NFSC Member Feather Works at Frontline of Rescue Effort
 ![img](https://media.gettr.com/group20/origin/2022/03/27/22/581ede76-4226-1ecb-c42c-a85d8762b898/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/27/2022 10:03 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-27 <br/>For English @Gtranslators_1
-![img](https://media.gettr.com/group29/origin/2022/03/27/22/230b81a7-ce2c-bf08-3be4-cf3a9b59979e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

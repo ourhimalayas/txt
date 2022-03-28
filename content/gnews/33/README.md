@@ -2,25 +2,22 @@
 ---
 
 
-## 援乌营地：忙里偷闲 服务战友
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243413/)
+## 众议员麦考尔：美国必须现在就开始武装台湾
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2243553/)
 
-**作者、编辑：Candy
-视频提供：小小酥**
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16484452811.png)图片来源：雅虎
+据《新闻极限》3月27日报道，周日，众议员麦考尔（Michael McCaul）说，美国必须“现在”就开始武装台湾，而不是等到中共国入侵台湾时。
 
-这是工作在新中国联邦和法治基金驻波兰梅迪卡援救中心营地的战友Allen，从美国来此的第二批志愿者。他本是发廊的老板，所以前一段时间我们看到他曾给营地的战友们理发，使战友们变得精神抖擞，充满了精气神！
+这位德克萨斯州共和党人在CNN的“国情咨文（State of the Union）”节目中说：“下一只落地的鞋子可能是台湾”，中共总书记习近平正密切关注乌克兰发生的事情，但“我们不能犯我们在乌克兰所犯的错误，等到入侵之后再去武装他们”。麦考尔表示，他不相信中共国和习近平会在促成乌克兰和平方面发挥建设性作用。
 
-今天他又帮战友们做起了午饭，虽然是简单家常菜鸡蛋炒西红柿，但看Allen战友做得非常认真，做出的炒菜肯定香喷喷的引人垂涎。既被称为战地理发师，现在华丽转身，又成了战地大厨师！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西红柿.png)图片来源：Nicole![Image](https://media.discordapp.net/attachments/825592691433668613/957874038426984448/206990c7-f833-444e-98ce-691b939fb796.jpg?width=656&amp;height=369)图片来源：telegram救援前线
-战友们经过这次救援活动，不但帮助了乌克兰难民，也积累了不少实战经验；战友之间所结下的战友情还能进一步加深，使我们的新中国联邦产生更强的凝聚力，从而更好地向世人展示新中国联邦人的形象。
+麦考尔指出，“他们是建立在欺骗基础上的同盟。还记得北京奥运会吗，这个龌龊的联盟，手拉手站在一起，普京和中共习主席谴责民主和自由以及领土侵略，差不多表达的是我们建立了一个无限的伙伴关系”。
 
-***发布：Candy***
+同时，麦考尔说，他不相信周末的北约峰会制定了任何关于帮助乌克兰的“主动规则”。麦考尔认为美国需要向乌克兰提供所需的武器，如S-300防空导弹等。也认为尽管北约不能直接为乌克兰提供禁飞区，但“可以提供工具让他们自己制造”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**新闻来源**
+
+[McCaul Calls on US to Start Arming Taiwan ‘Right Now’](https://www.newsmax.com/politics/michael-mccaul-taiwan-china-ukraine/2022/03/27/id/1063082/)
 
  
 

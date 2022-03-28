@@ -2,25 +2,36 @@
 ---
 
 
-## 视频| 融创到期债务无法兑付，中共房地产泡沫加速破裂
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2244736/)
+## 西方真正的软实力叫做信仰
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2244876/)
 
-制作：香草山视频部
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-15.jpg)
+3月27日大直播中，郭先生与战友分享拜登在华沙的演讲具有的深意。
 
-3月25日，融创房地产在上海证券交易所发布债券存续公告，称融创于2020年和2021年发行的两笔债券，债券余额分别为40.00亿元人民币和20.00亿元人民币，兑付付息日分别为2022年4月1日和4月2日。由于公司面临阶段性的资金压力，预计无法于上述债券兑付日及付息日前筹措到足额兑付兑息资金，拟于近期与债券持有人就上述债券的展期及延期支付事宜进行沟通。
+郭先生说拜登的演讲有一句话，上帝啊，普京快停手吧（“for god‘s sake，this man(Putin) cannot remain in power”）这句话具有非凡的历史意义，它的重要超过了肯尼迪“我是柏林人”和里根“推到柏林墙”相加的总和。
 
-面对债务压力，融创称正在拟定解决方案，计划提供融创中国董事会主席孙宏斌的无限连带责任担保作为增信措施。这是继去年11月孙宏斌自掏腰包，以无息贷款的形式借给融创近29亿元人民币后，再次用以个人担保的形式向融创融资。
+郭先生提到，当年希拉里的一句话“美国要靠软实力影响世界”，共产党经过长达一年的研究，得出软实力是媒体、网络、正义人权民主等等。共产党对世界的无知超出了常人想象，他们认定美国四年一换总统，有两党斗争，有钟摆效应，共产党想当然觉得能够利用一些手段来挑拨美国内部混乱，从而达到搞弱美国杀掉白人统治全球的计划。因为共产党没有信仰，所以他们从未见过真正信仰的样子，他们从来不知道真正的信仰是比核武器还厉害的存在。美国重欧轻亚的战略一方面是利益，另一方面就是共同的信仰。
 
-根据郭先生爆料，相比恒大，融创的债务爆雷对中共房地产的冲击会更为强烈。随着墙内中共病毒和疫苗灾难的不断加剧，中共经济已是强弩之末，会有更多的房企无法偿还债务而爆雷。击穿中共房地产泡沫的多米诺骨牌正一张张倒下。
+拜登在演讲中祷告，求上帝带走普京。毫无疑问，这是人类的上天真实存在的证据，无神论共产党永远不会明白。
 
-发稿：呼吸的雾霾（文小呼吸）
+撰稿、发布：骄子
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+* * *
 
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp_Video_2022-03-26_at_6_00_56_PM_AdobeCreativeCloudExpress.gif)
+
+ 
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

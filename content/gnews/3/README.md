@@ -2,30 +2,35 @@
 ---
 
 
-## 四个欧洲国家驱逐20名俄罗斯外交官
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2244824/)
+## 专家称在俄罗斯入侵乌克兰的问题上中共国正走在一条非常微妙的道路
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2244952/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-周五保加利亚要求 10 名俄罗斯外交官在 72 小时内离开该国，立陶宛驱逐了4名俄罗斯外交官，拉脱维亚和爱沙尼亚各驱逐了3名俄罗斯外交官。
-![Exterior view on the Russian Embassy in Riga](https://www.aljazeera.com/wp-content/uploads/2022/03/h_54220737.jpg?resize=770%2C513)[File: Toms Kalnins/EPA]
+撰稿：小湫
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image1-23-1.jpg)图片来自网络
+一位军事专家表示，在处理俄罗斯入侵乌克兰的态度上，中共国正在走一条非常微妙的道路，并预测中共国将很难在冲突中保持中立。
 
+自从俄罗斯总统普京决定对乌克兰发动战争以来，中共政府官员一直试图表现出他们理解双方的立场，而没有采取态度鲜明的立场。
 
-拉脱维亚外交部长林凯维奇在推特上表示，这些外交官是在一项协调一致的行动中被驱逐的，考虑到俄罗斯对乌克兰的持续侵略，这些活动与他们的外交地位相悖。 爱沙尼亚外交部在一份声明中表示，它已经驱逐了俄罗斯外交官，因为他们破坏了爱沙尼亚的安全，并为俄罗斯的军事行动辩护。
+3月14日，中共驻乌克兰大使范先功在利沃夫对当地官员们表示，每个国家都拥有自己的主权。我们将永远尊重你们的国家，我们将在平等互利的基础上发展关系。我们将尊重乌克兰人选择的道路，因为这是每个国家的主权。我们将对乌克兰面临的局势采取负责任的行动。我们看到了乌克兰人民是多么的团结，这意味着它的力量。
 
-保加利亚外交部在一份声明中表示，已向俄罗斯驻首都索非亚大使递交了一份正式照会，要求 10 名外交官在 72 小时内离开保加利亚，理由是他们涉嫌参与与其外交身份不符的活动。 俄罗斯外交部发言人扎哈罗娃表示：“所有无理驱逐俄罗斯外交官的行为都将得到俄罗斯的回应。”
+范在利沃夫讲这番话之前的几周，中共国家主席习近平在俄罗斯军队开始对乌克兰发动战争之际，表示了对普京的支持。同时表示，要拒绝冷战思维，尊重所有国家合理的安全行动。
 
-参考链接：[Four European countries expel 20 Russian diplomats](https://www.aljazeera.com/news/2022/3/18/four-european-countries-expel-20-russian-diplomats)
+美国国家安全顾问杰克•沙利文(Jake Sullivan) 3月13日表示，如果中共国在经济上支持俄罗斯入侵乌克兰，中共国将面临严重的后果。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+约克镇研究所的创始人和主席，、前海军军官、前海军副部长Seth Cropsey，告诉福克斯新闻数字，中国正在走一条非常窄的道路。他们走的是一条两边很陡的山脊，而这个山脊正变得越来越窄。随着战争的继续，它将变得像一把剃刀。中共国处于一个非常不适合的位置，在国际调解方面没有经验。如果中共国采取行动阻止俄罗斯对乌克兰的战争，这将导致中共国和俄罗斯之间的裂痕，这不符合他们的利益。所以我认为，中国为了结束乌克兰冲突而对俄罗斯施加影响的可能性很低。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+他还表示，俄罗斯和中国的长期目标有很大的不同，在考虑乌克兰问题时不能忽视这一点。很明显，普京在寻求报复，这是他所说的20世纪最大的地缘政治灾难，也就是苏联的终结。这意味着将俄罗斯边境恢复到苏联存在时的样子。但我认为中共国有更大的野心，它不是区域性的，而是全球性的。我认为，中国领导人非常清楚，无论是现在还是将来，这两者都会发生冲突。
+
+最后他补充到，如果不了解俄罗斯和中共国的长期目标之间的区别，你就无法有效地思考乌克兰问题。
+
+参考信息：
+
+[China is walking a ‘very slender path’ with Russia’s invasion of Ukraine, expert says](https://www.foxnews.com/world/china-very-slender-path-russia-invasion-ukraine)
+
+*审核：Rosa*
+
+*发布：Rosa*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

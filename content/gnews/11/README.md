@@ -2,26 +2,34 @@
 ---
 
 
-## 视频|乌克兰用火车向欧洲出口玉米
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2244734/)
+## 大选前通货膨胀加剧，澳大利亚总理面临预算考验
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2244857/)
 
-制作：香草山视频部
+#### 【雅典娜快讯】，紧贴时代脉搏   
 
-3月27日外媒报道，乌克兰利沃夫的APK-Inform农业咨询公司表示，由于俄罗斯入侵，乌克兰海港仍然受到封锁，贸易商已开始通过火车向欧洲出口玉米。第一批数千吨玉米已经被运送到乌克兰西部的陆地边境。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-1.jpg)图片来源：https://www.thestatesman.com/world/aus-pm-rules-funding-free-rapid-covid-tests-1503035920.html
+根据NIKKEI Asia3月28日报道，澳大利亚保守派政府在周二的选举前预算中面临着一项艰巨的任务，因为它希望通过帮助因生活成本上升而受到伤害的家庭来扭转其低迷的人气，同时还试图表现出对财政负责。
 
-乌克兰是全球主要的谷物种植国和出口国，传统上，几乎所有出口都是通过黑海港口运输的，战前每月的粮食出口量超过500万吨。
+堪培拉的财政状况自三个月前的年中审查以来，估计已经改善了200亿澳元（150亿美元），这得益于其主要商品出口价格的飙升和国内消费的强劲反弹。
 
-APK-Inform公司上周曾表示，乌克兰在2021年 7月至2022年6月期间的谷物出口总量应该能达到4400万吨。但由于战争导致的物流问题，预计3月至6月只有100万吨谷物离开该国。
+经济学家们现在预计，五年内赤字将累计减少900亿澳元，这为总理斯科特·莫里森提供了一个乐观的环境，他必须在5月前举行选举。事实上，在过去几个月，他在民调中一直处于落后地位。
 
-乌克兰运输当局则表示，从乌克兰到欧洲的火车每月最多可以出口60万吨谷物。
+对莫里森有利的是，尽管有新冠病毒（COVID-19）的封锁，但2021年的经济仍活跃地增长了4.2%。这一势头预计今年也会保持下去，国内生产总值预计将增长4.25%。
 
-发稿：呼吸的雾霾（文小呼吸）
+在俄罗斯入侵乌克兰导致油价飙升的推动下，澳大利亚本季度的整体通胀率预计将达到4.5%。澳大利亚东海岸的洪水造成的广泛破坏也加剧了这一流行病对全球供应链的持续破坏，进而导致日常用品的价格飙升。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+与此同时，工资增长停留在2%左右，也成为莫里森的一个政治难题。
+
+新闻来源：[Australia PM faces budget test as inflation flares before election](https://asia.nikkei.com/Economy/Australia-PM-faces-budget-test-as-inflation-flares-before-election)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
