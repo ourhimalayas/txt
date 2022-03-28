@@ -2,36 +2,35 @@
 ---
 
 
-## 泽连斯基表示，愿意在顿巴斯地区与俄罗斯达成妥协
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2244616/)
+## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
 
-#### 撰稿：彩虹
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+## 美国“国家民主基金会”访台
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-18.jpg)图片来源：网络
-据《纽约邮报》3月27日引述路透社报道说，周日，乌克兰总统泽连斯基(Volodymyr Zelensky)表示，鉴于试图迫使俄罗斯军队完全离开乌克兰将导致第三次世界大战的发生，他愿意在顿巴斯地区与俄罗斯达成妥协。
+台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
 
-这一惊人的报道紧接着来自于乌克兰最高军事情报官员的信息，这位官员表示，他认为俄罗斯正在放弃攻占该国首都基辅，转而关注该国的南部和东部地区，也就是说，俄罗斯试图将乌克兰一分为二。
 
-根据基里尔·布达诺夫（Kirill Budanov）准将称，“（俄罗斯）将试图在我国未被占领的地区和被占领的地区之间强加一条分界线。这是企图在乌克兰制造南北朝鲜。”
 
-为此，布达诺夫警告说，乌克兰人将发起游击战作为回应。“全面的乌克兰游击战的季节很快就会开始。然后，留给俄罗斯人面对的境遇是：如何生存。”
+> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
+> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
-俄罗斯曾预计对乌克兰的战争会很快结束，但它还没有拿下乌克兰的一个主要城市。于是俄罗斯似乎再次将重点放在顿巴斯，在顿巴斯地区。乌克兰政府和分离主义分子之间的战斗已经持续了近十年。
 
-报道说，泽连斯基对该地区的最新评论，以及俄罗斯报告显示的战略变化，都可能预示着战争进入一个新的阶段，一个更快结束的阶段，其结局可能就在眼前。
 
-泽连斯基是在周日与俄罗斯知名独立记者的视频对话中发表评论的，当时他补充说，作为协议的一部分，他的国家愿意采取中立地位。他用俄语说：“安全保障和中立，我们国家的非核地位，我们已经准备好了”。
+威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
 
-虽然该计划的细节模糊不清，但泽连斯基说，任何交易都将由第三方斡旋，并在乌克兰进行公投。他明确表示，只有在俄罗斯从乌克兰撤军的条件下，才有可能达成这样的协议。
+外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
 
-他告诉这群不被允许在自己国家报道谈话内容的俄罗斯记者，在乌克兰造成的破坏远远超过了克里姆林宫在车臣的战争。
+## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
 
-文章指出，这位乌克兰总统还对西方国家说了尖锐批评。他在周日的一次演讲中说：“我今天和马里乌波尔的保卫者交谈过，我一直与他们保持联系。他们的决心、英雄气概和坚定性令人震惊。如果那些31天来一直在考虑如何移交几十架喷气式飞机和坦克的人有他们百分之一的勇气就好了。”
+[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
 
-**新闻来源**
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
 
-[Ukraine is willing to compromise on Donbass to end war: Zelensky](https://nypost.com/2022/03/27/zelensky-willing-to-adopt-neutral-status-to-end-the-war/)
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

@@ -2,47 +2,35 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.28B）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2245645/)
+## 上海疫情爆发分区封城 中共股市随之下滑
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2245906/)
 
-**整理：**雅典娜情报组（BENJ1）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1.png)雅典娜设计组
-**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+彭博社3月28日报道，中共国股市今日大幅下跌，原因是上海当局为抗击中共病毒爆发宣布了即将大规模分区封城的消息，这也由此引发了人们对于中共商业运营中断和国民经济即将走向崩塌的担忧。
 
-[往期集萃链接](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+据了解，本周一早些时候，CSI 300指数下跌了2%，然后微调了部分损失，原因是上海市当局表示将分为两个阶段封城，以进行大规模的核酸测试闪电战。消费股领跌中共国大陆和香港市场，其中，白酒制造商贵州茅台、运动服装制造商李宁和安踏体育用品有限公司均对基准指数构成了沉重压力。
 
-**疫情|安徽智飞新冠疫苗副作用 打完的大家还好吗？**
+众所周知，上海是许多国际公司的中共国总部所在地，也是中共国内最大的港口。此次的封城政策明显加剧了中共国股市的不确定性。此前，受乌克兰战争和中概股随时可能大规模退市的影响，中共股市就已使得投资者们在应对监管不利因素方面身心俱疲。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-142.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-23.jpg)小红书
+交银国际首席策略师郝红对此评论称，上海市作为中共国的经济中心，占据了4.32万亿元即4%的国内GDP。此次上海的疫情封锁政策无疑将会严重影响到中共国的股市交易，交易量可能会因此大幅下降。同时，中共国的其他城市亦可能效仿上海的防疫政策，这将使中共2022年的GDP总值受到严重影响。
 
+香港京华山研究主管彭伟新亦发表评论称，考虑到今年疲软的中共股市起点，上海的部分封城政策和疫情扩散到其他地区的潜力将使中共国更难以实现5.5%的GDP增长目标。
 
-1. 去年9月打完安徽智飞的第三针疫苗，12月学期末的时候突然开始过敏，去医院开了药之后再没出现过。结果刚开学就又开始脖子和脸痒痒的起小红疹。以前从来没有这么容易就过敏的，后来（看）小红书无意间发现好多姐妹也是打完疫苗之后变成易过敏体质了。咱们就是说它还会恢复回去吗，有什么办法吗，姐妹们？
-2. 我儿子打完疫苗得了葡萄膜炎。免疫系统的病。
-3. 我21年3月打的第二针，之后7月过敏性鼻炎到现在，过敏性鼻炎引发过敏性结膜炎，之后最近感觉还引发了过敏型变异哮喘。问题是我从小到大对啥都不过敏，生活环境也一直相同，就莫名奇妙噢。
-4. 我打完开始荨麻疹从去年9月份到现在。以前从来没有得过。关键是我老公也是，他从小也没得过荨麻疹。
-5. 过敏算什么？癌症，肿瘤，红斑狼疮太多了。这都是自愿的，一切后果自己承担。
-6. 我打了两针新冠疫苗，突发荨麻疹要崩溃了，持续了3个月。
-7. 我是科兴，非经期出血，胃不舒服，背痛，现在紫癜……治疗中
-8. 我老公打完得了带状疱疹，我得了玫瑰糠疹，无敌了。
-9. 我打完第一针开始月经推迟，第二针开始胃炎持续了三个月，第三针刚打完还不知道。
-10. 我家孩子也是打完疫苗三两天头脸部过敏，以前能用的护肤品，现在都不能用了，一用就过敏，也不知道能不能恢复如初。
-11. 2021年5月份打的第一针之后，月经不正常连续3个月，6月份打的第二针，过了2个月以后出现症状了，困扰了一个多月，得了荨麻疹，我从没有得过啥荨麻疹湿疹啥的，还在想我怎么会得这个病呢，钱也没少花，药膏没少买都不管用，后来打针吃中药几天就好了，这几个月再也没犯，所以这第三针我是死活不会再打了。
+【来源】[https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN\_XCMGGwFWHpXvYlZQ4BoPG5d6c8\_spo8Y\_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w](https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia%20https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN_XCMGGwFWHpXvYlZQ4BoPG5d6c8_spo8Y_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-参考链接：[疫情|安徽智飞新冠疫苗副作用 打完的大家还好吗？](https://www.xiaohongshu.com/discovery/item/622cb900000000002103dc9f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648448769)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
