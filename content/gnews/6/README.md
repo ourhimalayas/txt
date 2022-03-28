@@ -2,8 +2,8 @@
 ---
 
 
-## 国家安危情况下没有个人主义
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245282/)
+## 拜登是专业政客
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245396/)
 
 台灣寶島農場
 

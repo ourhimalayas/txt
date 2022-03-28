@@ -2,8 +2,8 @@
 ---
 
 
-## 德国默克尔和美国基辛格两位恶人
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245305/)
+## 美国重欧轻亚政策跟信仰，种族纽带、核心利益有关
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245443/)
 
 台灣寶島農場
 

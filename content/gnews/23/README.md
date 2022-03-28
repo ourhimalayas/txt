@@ -2,28 +2,35 @@
 ---
 
 
-## 俄罗斯袭击乌克兰利沃夫的导弹摧毁了石油设施，导致5人受伤（1/3）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2244797/)
+## 大选前通货膨胀加剧，澳大利亚总理面临预算考验
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2244857/)
 
-翻译：zicoround
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
-【每日新闻】据路透社报道，26日在乌克兰西部的中心城市利沃夫，有俄军的导弹摧毁了一个石油储存基地等设施。据乌媒体报道，首都基乌（乌克兰语）仍遭俄军包围，其郊区因炮击受损，而东南部马里乌波尔的平民被强行带走。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3375.png)图片来源：雅虎新闻
-据来自当地的报道，当天有四枚导弹落在利沃夫郊区，摧毁了石油储存基地和军工厂。还有一枚导弹飞入利沃夫市，损毁了基础设施。 利沃夫州长透露，有5人在袭击中受伤。
+#### 【雅典娜快讯】，紧贴时代脉搏   
 
-利沃夫位于波兰边境以东约60公里处。 袭击发生时，美国总统拜登正到访波兰首都华沙。 利沃夫市长萨多维表示，这次袭击是（俄罗斯）对拜登先生的“问候”，说明俄方知道美国总统到访邻国。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-1.jpg)图片来源：https://www.thestatesman.com/world/aus-pm-rules-funding-free-rapid-covid-tests-1503035920.html
+根据NIKKEI Asia3月28日报道，澳大利亚保守派政府在周二的选举前预算中面临着一项艰巨的任务，因为它希望通过帮助因生活成本上升而受到伤害的家庭来扭转其低迷的人气，同时还试图表现出对财政负责。
 
-在利沃夫郊区，机场附近的一家飞机修理厂于18日遭到巡航导弹袭击，但截止目前，与该国东部、南部和北部地区相比，局势总体平稳。 因此，一些国家已将其大使馆职能从基乌移至利沃夫，大量来自乌其他地区的避难者滞留于利沃夫。 许多国外媒体也将其总部设在该市。
+堪培拉的财政状况自三个月前的年中审查以来，估计已经改善了200亿澳元（150亿美元），这得益于其主要商品出口价格的飙升和国内消费的强劲反弹。
 
-下一篇：[俄罗斯袭击乌克兰利沃夫的导弹摧毁了石油设施，导致5人受伤（2/3）](https://gnews.org/zh-hans/2244832/)
+经济学家们现在预计，五年内赤字将累计减少900亿澳元，这为总理斯科特·莫里森提供了一个乐观的环境，他必须在5月前举行选举。事实上，在过去几个月，他在民调中一直处于落后地位。
 
-参考链接：[ロシア、ウクライナ・リビウにミサイル　石油施設破壊　5人負傷（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/76f51b28fc8f07bb454fb943c00a7b563f910ebe)
+对莫里森有利的是，尽管有新冠病毒（COVID-19）的封锁，但2021年的经济仍活跃地增长了4.2%。这一势头预计今年也会保持下去，国内生产总值预计将增长4.25%。
 
-* * *
+在俄罗斯入侵乌克兰导致油价飙升的推动下，澳大利亚本季度的整体通胀率预计将达到4.5%。澳大利亚东海岸的洪水造成的广泛破坏也加剧了这一流行病对全球供应链的持续破坏，进而导致日常用品的价格飙升。
 
-审核：BryanW
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+与此同时，工资增长停留在2%左右，也成为莫里森的一个政治难题。
+
+新闻来源：[Australia PM faces budget test as inflation flares before election](https://asia.nikkei.com/Economy/Australia-PM-faces-budget-test-as-inflation-flares-before-election)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

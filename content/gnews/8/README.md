@@ -2,8 +2,8 @@
 ---
 
 
-## 拜登把独裁普京与俄罗斯人区分开了
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245251/)
+## 德国默克尔和美国基辛格两位恶人
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245305/)
 
 台灣寶島農場
 
