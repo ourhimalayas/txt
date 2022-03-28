@@ -2,39 +2,25 @@
 ---
 
 
-## 乌称俄企图分裂乌克兰 要求西方提供更多武器援助
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241532/)
+## 天基移动电话网络公司将发射测试卫星
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241194/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《路透社》乌克兰利沃夫3月27日报道，周日，**乌克兰军事情报部门负责人基利洛.布达诺夫(Kyrylo Budanov)表示，俄罗斯希望将乌克兰一分为二，这是试图在乌克兰建立朝鲜和韩国。他誓言要发动“全面的”游击战，以防止乌克兰被瓜分。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰援助-e1648413653347.jpg)3月27日，救援人员在利沃夫一处被巡航导弹击中的燃料储存设施处工作（路透社）
-周日，**乌克兰总统泽伦斯基敦促西方向乌克兰提供坦克、飞机和导弹，帮助乌克兰抵御俄罗斯军队**。基辅政府表示，俄罗斯军队正越来越多地瞄准燃料和粮食仓库。
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目前，唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署了一项多发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间科技的蜂窝宽带网络。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.08.png)
+据悉，该公司总部位于美国德州，其计划在今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来与手机进行标准频率通信，并将在未来发射BlueBird卫星。
 
-报道称，**经过4周多的俄乌冲突,俄罗斯没能占领一家乌克兰的重大城市**。而俄罗斯周五表示要缩减其野心，将专注于确保乌克兰东部的分裂分子地区。
+其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。基于太空网络科技的新兴通信技术，不但会改写现有移动通信系统，而且会彻底消灭中共等独裁政权蒙蔽民众的网络防火墙。
 
-周日，**自称为卢甘斯克人民共和国的一名当地领导人表示，该地区可能很快就是否加入俄罗斯举行公投，**就像2014年俄罗斯占领乌克兰半岛后克里米亚发生的那样。
+参考链接：[Space-based mobile phone network AST SpaceMobile signs launch deal with Elon Musk rocket company SpaceX](https://www.business-live.co.uk/technology/space-based-mobile-phone-network-23392760)
 
-当时，克里米亚人以压倒多数投票决定脱离乌克兰，加入俄罗斯，但是世界上很多国家拒绝承认这一投票。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-报道指出，**乌克兰外交部发言人奥列格·尼科连科（Oleg Nikolenko）驳斥了有关乌克兰东部举行公投的说法。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄外交部发言人.jpeg)乌克兰外交部发言人奥列格·尼科连科（图片来源：网络）
-尼科连科称，**所有在临时占领地区举行的虚假公投都是无效的，将没有法律效力。**
-
-自俄罗斯入侵乌克兰以来，联合国已经证实，**乌克兰全国有1119名平民死亡，1790人受伤，但表示实际死亡人数可能更高。**乌克兰周日表示，**到目前为止，冲突已造成139名儿童死亡，超过205人受伤。**
-
-新闻来源链接：
-
-[Ukraine says Russia wants to split nation, calls for more arms | Reuters](https://www.reuters.com/world/europe/rockets-strike-ukraines-lviv-biden-says-putin-cannot-remain-power-2022-03-27/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-
-
+总编：Zion文恩
+审核：NFSCNews 科技组
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

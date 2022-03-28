@@ -2,33 +2,22 @@
 ---
 
 
-## 快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241561/)
+## 一周疫情、疫苗信息回顾（3月16日至23日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241195/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《路透社》华沙3月27日报道，**周日，乌克兰卫生部副部长奥列克西•亚雷缅科(Oleksii Iaremenko)表示，俄罗斯仍在继续轰炸，但抵达乌克兰的人道主义救援物资数量开始减少。他表示迫切需要更多的支持，并呼吁其他组织提供援助。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌人道主义援助-e1648415061155.jpg)为乌克兰提供的医疗援助物资在华沙肖邦机场的仓库中（路透社）
-据报道，**亚雷缅科在华沙肖邦机场附近的一个货仓里说，他对国际社会迄今提供的援助表示感谢。这批运往乌克兰的货物包括金属床、纱布、哮喘吸入器和氧气浓缩器等。**
+作者：DC农场–火来
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2022年3月16日至3月23日，除中共国外，全球新增中共病毒确诊患者1154万余例，同比上周下降了6.63 %；此外，本周新增确诊死亡病例超过34313例，同比上周下降了11.1%。本周，全球新增确诊病例数和新增确诊死亡病例数均较一周前略有下降。截至3月23日，除中共国外，全球累计接种了80.4亿剂中共病毒疫苗，同比16日的累计接种数据增长了0.886%.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.15.png)
+3月16日，美国新罕布什尔州议会投票通过关于伊维菌素使用的法案，法案规定伊维菌素在新州为非处方药，在美国，新州将率先成为无需处方便可在药店购买伊维菌素的州。3月18日，继辉瑞公司之后，莫德纳公司也向美国FDA提交了针对成年人的第二剂中共疫苗加强针的使用许可申请，3月23日，莫德纳进而发表声明表示，希望FDA能够将第二剂加强针的使用许可扩大到6岁以下的儿童。3月22日，白宫官员称，美国目前没有足够的经费为全美国人提供免费的第二剂中共病毒加强针。3月22日，辉瑞宣布将通过联合国儿童基金会，向贫穷国家发放四百万份辉瑞研发的治疗中共病毒的药物Paxlovid，并且已经有超过30家公司申请生产Paxlovid的仿制药。
 
-他告诉路透社，上个星期，我们看到人道主义援助的水平有所下降。**我们希望国际上能增加寻找新的资源，因为俄罗斯的侵略正在增加，他们正在轰炸平民**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-他说:“**我们的要求是，如果你们能够支持，请立即支持。”**“不要等几周或几个月，因为我们现在就需要支持。”
-
-根据联合国的数据，俄罗斯五谷入侵乌克兰的冲突已经造成了一场人道主义危机，估计有1000万人流离失所，接近该国人口的四分之一。
-
-新闻来源链接：
-
-[Humanitarian aid for Ukraine is dwindling, says health official | Reuters](https://www.reuters.com/world/europe/humanitarian-aid-ukraine-is-dwindling-says-health-official-2022-03-27/)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-
-
+编辑：Zion 文恩
+总编：Zion 文恩
+审核：Zion 文恩
+校正/发稿：呼吸的雾霾（文小呼吸）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

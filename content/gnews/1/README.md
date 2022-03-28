@@ -2,20 +2,34 @@
 ---
 
 
-## 七哥谈未来新能源
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2242383/)
+## 有声|乌克兰报告称马里乌波尔剧院空袭造成300人死亡
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2242450/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+据美联社乌克兰基辅3月26日报导，乌克兰当局周五表示，上周俄罗斯对马里乌波尔剧院的空袭造成约300 人死亡，该剧院被用作避难所，这将使其成为这场战争迄今为止对平民最致命的袭击。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image009-5.jpg)
+剧院的流血事件再次激发了对于莫斯科通过杀害平民（无论是故意还是不分青红皂白地开火）犯下战争罪的指控。
 
-*发布：陶子*
+与此同时，美国表示，俄罗斯军队似乎已经停止了旨在占领首都基辅的地面攻势，这可能预示着莫斯科的战争目标正在显著缩小，或进一步缩小，并将更多精力集中在获得顿巴斯的控制权上。克里姆林宫似乎证实了这一转变。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+乌克兰总统泽连斯基再次呼吁俄罗斯通过谈判结束战争，但他坚决地表示，乌克兰不会为了和平而同意放弃其任何领土。
 
+
+
+[【援引连结】](https://apnews.com/article/russia-ukraine-zelenskyy-kyiv-europe-moscow-b56759e5d40db18e94bef8e42db23e47)
+
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

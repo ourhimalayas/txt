@@ -2,26 +2,31 @@
 ---
 
 
-## 国内专业人士质疑核酸检测办法合理性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2241674/)
+## 快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241561/)
 
-撰稿/配图：东京樱花团/Ob
+翻译与编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《路透社》华沙3月27日报道，**周日，乌克兰卫生部副部长奥列克西•亚雷缅科(Oleksii Iaremenko)表示，俄罗斯仍在继续轰炸，但抵达乌克兰的人道主义救援物资数量开始减少。他表示迫切需要更多的支持，并呼吁其他组织提供援助。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/乌人道主义援助-e1648415061155.jpg)为乌克兰提供的医疗援助物资在华沙肖邦机场的仓库中（路透社）
+据报道，**亚雷缅科在华沙肖邦机场附近的一个货仓里说，他对国际社会迄今提供的援助表示感谢。这批运往乌克兰的货物包括金属床、纱布、哮喘吸入器和氧气浓缩器等。**
 
-“我知道，我刚才给您讲了普通人都理解，我们做核酸还还不用我们自己花钱，对吧政府花钱，我们都理解为了为了是检测出感染者。你刚才也说了啊，可能政府考虑到了室内空气不好流通是吧不容易流通、容易感染，所以玩到室外了这个都不是好办法。”
+他告诉路透社，上个星期，我们看到人道主义援助的水平有所下降。**我们希望国际上能增加寻找新的资源，因为俄罗斯的侵略正在增加，他们正在轰炸平民**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-12.png)[图片来源](https://j.eastday.com/p/162918704977010970)
+他说:“**我们的要求是，如果你们能够支持，请立即支持。”**“不要等几周或几个月，因为我们现在就需要支持。”
 
-“我们有更好的办法，政府可以采纳，也可以测核酸。国务院采样方式当中有三种，一个是鼻试子，一个是咽拭子，就一个抠鼻子，一个捅嗓子的，还有一个是测痰液。而我们都知道，在痰液的话那个病毒含量是最高的。为什么要六轮核酸你知道吗？”
+根据联合国的数据，俄罗斯五谷入侵乌克兰的冲突已经造成了一场人道主义危机，估计有1000万人流离失所，接近该国人口的四分之一。
 
-“我搞专业的知道，你看新闻都知道了，抠嗓子抠鼻子他测的不准，他一次测不出来，有的测十次才测出来，但测痰液一次就可能测出来，准确率非常高，比鼻炎石子高百分之三十以上。为什么非要捅鼻子呢？有痰的可以吐痰呀，没有痰的吐唾液可以呀，你在一家里边我们四口人。”
+新闻来源链接：
 
-“在家里边都吐好痰之后，分好袋儿，你做好标记在那排队都不用摘口罩，往那一放，你们就采样就测呗，这不是很好的办法吗？”
+[Humanitarian aid for Ukraine is dwindling, says health official | Reuters](https://www.reuters.com/world/europe/humanitarian-aid-ukraine-is-dwindling-says-health-official-2022-03-27/)
 
-[消息来源](https://res.wx.qq.com/voice/getvoice?mediaid=MzA5MzgwMzQ1OV8yMjQ3NDg1Mjgz&amp;voice_type=1)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
 
 
  

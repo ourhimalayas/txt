@@ -2,26 +2,35 @@
 ---
 
 
-## 上海民生物资紧缺 物价连夜暴涨
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2241759/)
+## 美财长耶伦赞同加密货币的创新称需要被监管
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
 
-**撰稿：日本东京方舟农场  海星**
+翻译与编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
+据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
 
-近期，中共上海以疫情蔓延为由扩大封锁范围，导致当地民众生活物资紧缺，物价连夜暴涨。
+周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-54.jpg)（图片来源：微博）
+她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
 
-据《中央社》报导，上海政府声称当地出现了大量无症状感染者，已成疫情重灾区，许多社区为配合政府，采取了严厉的封锁措施，导致民众采购生鲜、民生物资难度增加，由于民众被迫居家隔离，生活物资需求大增，从而出现外送骑士无法及时供应的现象，加上苛刻的封锁规定下，外省市的菜要送往上海并不容易，造成当地民生物资紧缺，物价连夜暴涨。
+她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
 
-据悉，微博网友日前发现上海高岛屋百货超市的1顆白菜价格已高达77.9元 ，也有网友曝光上海联华超市土豆卖出107.8元/公斤的天价，一个土豆标价52.61元，两个小一点的土豆标价62.52元，甚至有居民已经断粮，她说：“封闭10天了吧，家里吃的东西都已经没有了，没人管的，只管你做不做核酸。”
+展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
 
-参考链接：
-1.[https://www.cna.com.tw/news/acn/202203270042.aspx](https://www.cna.com.tw/news/acn/202203270042.aspx)
-2.[https://www.ntdtv.com/gb/2022/03/27/a103384723.html](https://www.ntdtv.com/gb/2022/03/27/a103384723.html)
+报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
 
-总编：青城道姑
-校对发布：Linda
+新闻来源链接：
 
+[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
