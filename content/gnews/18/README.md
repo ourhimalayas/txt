@@ -2,25 +2,32 @@
 ---
 
 
-## 德拉吉告诉泽连斯基意大利将努力制止战争
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2248331/)
+## 联邦政府40年向中共贷款$3.64亿
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2248365/)
 
-#### 编译 达芬奇农场 小白鸽
+##### 作者：加拿大温哥华扬帆农场 – 文莱（采编）、自由法兰西（编译撰稿）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-12.png)
 
-3月28日下午乌克兰总统泽连斯基与意大利总理德拉吉进行了新的通话。会谈的中心是近期在乌克兰的冲突和正在发生的人道危机。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-28-alle-21.46.35.png)图片来源：Adnkronos.com 
-泽连斯基对俄罗斯封锁人道主义走廊以及继续包围和轰炸包括学校在内的城市，造成包括儿童在内的平民伤亡表示遗憾。德拉吉重申了意大利政府对乌克兰当局和人民的坚定支持，以及意大利完全愿意为结束战争和解决乌克兰危机做出贡献。
+加拿大网媒《真北方》3月27日报道，自20世纪80年代以来，加拿大联邦政府总计向中共提供了168笔出口贷款，贷款总额为3.64亿加币。其中，147笔是40或50年的无息贷款，其他21笔贷款利率从1%到9%不等。
 
-泽连斯基在推特上写道：“ 我继续与意大利总理德拉吉进行对话。我与他讨论了反对俄罗斯侵略的斗争，并感谢他们提供的重要人道主义和国防支持。乌克兰人民会记住这一点。我们感谢意大利愿意加入创建一个乌克兰安全保障体系。”这说明意大利愿意成为保障乌克兰国家安全的一部分，成为结束俄罗斯入侵的和平协议的组成部分。
+这些钱是根据加拿大《出口发展法》，通过“加拿大账户”贷出的。联邦政府称，贷款的初衷是为了确保加拿大出口商能更好地与外国对手竞争。与其他国家相比，根据该法案向中共国提供的贷款金额最多。据悉，如果收到贷款的国家拒绝还款，那么这些贷款可能永远不会被偿还，贷款变成赠款，而产生的任何损失都会由加拿大纳税人承担。
 
-参考链接：
+虽然2021年2月，加拿大国会投票认定中共对维吾尔族实行种族灭绝，但之后自由党政府一直继续向中共提供贷款。中共病毒早已证明，西方用纳税人的钱向邪恶的中共体制输血，助长了中共妄图称霸世界的野心，应尽早停止！
 
-[https://www.adnkronos.com/ucraina-draghi-a-zelensky-impegno-italia-per-fermare-la-guerra\_7AKDPVngm0XYycFc4RnHnp](https://www.adnkronos.com/ucraina-draghi-a-zelensky-impegno-italia-per-fermare-la-guerra_7AKDPVngm0XYycFc4RnHnp)
+[新闻链接](https://tnc.news/2022/03/27/364-million-in-zero-and-low-interest-loans-given-to-china-since-1980/)
 
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-编辑、上传： Xiao baige
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

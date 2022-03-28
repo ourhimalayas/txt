@@ -2,20 +2,35 @@
 ---
 
 
-## 埃隆马斯克称推特必须被新的平台取代
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2248439/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2248515/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-28.png)
 
-据美国[每日电邮]3月26日报道，SpaceX总裁埃隆-马斯克当天表示，由于对言论自由及民主长期以来的破坏和践踏，推特必须被新的社交媒体平台所取代。
+文章仅代表作者本人观点，与Gnews无关
 
-据悉，针对马斯克两天前在推特上进行的名为”推特算法是否应该开放源代码”的民调，在投票的2百多万人中，82.7%参与者表示了肯定。而对于“推特是否严格遵守了言论自由这一原则”的问题时，有70.4%的投票者表示否定。对此，马斯克表示，需要有另外的社交媒体平台来代替推特。
+视频参看：
+[2022.03.28早 《NFSC新闻》](https://gettr.com/streaming/p12b1habf28)
+[2022.03.28早《NFSC新闻访谈》](https://gettr.com/streaming/p12biew65bc)
 
-报道称，马斯克被公认为是言论自由的积极倡导者，他以向乌克兰全面提供星链互联网宽带服务，来反击俄罗斯对入侵乌克兰所采取的媒体审查，并对被封锁的俄罗斯媒体提供真实的新闻来源。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
 
-编辑： 平民正道    发布：平民正道
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+
+
 
  
 
