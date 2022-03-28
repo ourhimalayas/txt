@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 9:46 PM (UTC)`
+
+20220328 NFSC health新中国联邦|喜健康 系列节目之《正道医疗》第二期
+![img](https://media.gettr.com/group6/origin/2022/03/28/21/11891c5a-7395-20d3-d453-a5f2e4fca01c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@longwood 3/28/2022 6:48 PM (UTC)`
@@ -152,13 +159,6 @@ Socialism and communism are the eternal poison of human beings. As a Polish driv
 
 War brings infinite disaster and death, we don't want it, we pray for peace. The days of joy and happiness have become farther and farther away, the dead air, the ruined houses, flower, and trees, and living beings! As a member of the New Federal State of China, we will definitely help the people of Ukraine, because the CCP is behind Putin of Russia!<br/>战争带来的是无限的灾难和死亡，我们不想，我们祈求和平。那快乐和幸福的日子已经变得越来越遥远，死寂的空气，破坏殆尽的房屋、花木、生灵！作为新中国联邦人必将帮助乌克兰人民，因为俄罗斯普京的背后就是中共！
 ![img](https://media.gettr.com/group26/origin/2022/03/28/04/d3691267-7a55-ddff-a368-968e891db140/out.jpg)
-
----
-
-`@miles 3/28/2022 4:03 AM (UTC)`
-
-The NFSC has drawn increasing international attention in regards to humanitarian rescue operations including traditional media. A popular Polish newspaper, FAKT, has conducted an interview with Nicole. FAKT learned about more than 550 Chinese and Ukrainians have been saved by the NFSC in a week, including 100 children who have fled Ukraine’s warzone to Poland then finally arrived in Spain safely.<br/>新中国联邦在乌克兰边境的救援行动，引发越来越多关注，也包括传统媒体。波兰知名的报纸FAKT（事实）采访了Nicole，知道一周内有550多中国人及乌克兰人被救助，其中有100名儿童已经从战区安全抵达西班牙。
-![img](https://media.gettr.com/group26/origin/2022/03/28/04/8431e416-762f-b5d2-abad-66fd88608571/out.jpg)
 
 ---
 

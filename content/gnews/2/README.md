@@ -2,22 +2,20 @@
 ---
 
 
-## 有声|我们在做本应由中国政府做的事情
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248141/)
+## 有声|俄乌开战后 拜登首次会见乌克兰外长防长
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248189/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月25日，班农战斗室连线采访了新中国联邦、法治基金在乌克兰前线救援中心的精粮战友，了解前线的救援情况。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+外媒报道，3月26日，美国总统拜登在波兰首都华沙，会见了乌克兰外长与防长。这是自俄乌战争爆发以来，拜登首次与乌克兰高层面对面会谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-27-%E4%B8%8B%E5%8D%881.44.03.png)
+据悉，拜登总统在国务卿布林肯、国防部长奥斯汀的陪同下，在华沙的万豪酒店会见了乌克兰外交部长库列巴、乌克兰国防部长列兹尼科夫。
 
-精粮战友详细介绍了前线面对的环境、战友们所做的一些具体工作、对乌克兰难民提供的帮助，并表明了自己和战友们希望通过行动表明新中国人热爱自由、和平的决心。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-87.jpg)
-谈到中共对前线战友救援行动的阻挠，精粮战友介绍了中共如何发布虚假信息、抹黑新中国联邦的救援行动，以及战友如何坚持把同胞救援到安全的地点，并强调说，我们正在做本应由中国政府做的事情。
-
-班农先生对新中国联邦和新中国人的形象给予了充分的肯定和称赞。
+另据报道，拜登将在会谈之后发表重要演说。白宫安全顾问苏利文表示，拜登总统的演讲包括未来挑战的紧迫性、乌克兰战事意味着什么，以及自由世界团结面对俄罗斯侵略的重要性等内容。
 
 
 
-文字版原文：[我们在做本应由中国政府做的事情](https://gnews.org/zh-hans/2241538/)
+文字版原文：[俄乌开战后 拜登首次会见乌克兰外长防长](https://gnews.org/zh-hans/2241193/)
 
 音频处理：Tom Li
 发稿：Tom Li
@@ -34,7 +32,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,12 +2,16 @@
 ---
 
 
-## 乌克兰驻美大使：为了获胜，我们需要源源不断的物资支持
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2247851/)
+## 五月花简报（03/28/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2247965/)
 
-03/27/2022 乌克兰驻美大使奥克萨娜·马卡洛娃：为了获胜，我们需要源源不断的物资支持，我们需要工具和各种武器。我们会坚守阵地，并捍卫我们的每一寸领土。
+编辑：波士顿五月花—-冲天一怒
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/D31B4BFB-E957-4461-9731-7D66E9A767BD.jpeg)
+
+*发布：思澈*
+
+
 
  
 

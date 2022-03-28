@@ -2,38 +2,34 @@
 ---
 
 
-## 有声|日本三大型银行终止与俄最大银行的美元交易
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248101/)
+## 自由党-新民主党合作意味着大幅增税
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2248157/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒资讯：日本三菱UFJ、三井住友和瑞穗三家大型银行集团决定从3月26日起全面停止与俄罗斯最大的银行——兹贝尔银行的美元交易。三家银行与俄罗斯之前以美元结算的所有贸易活动，都需要用其他汇款方式替代。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-89.jpg)
-据三家银行的官员透露，由于美国政府将从美国时间26日起，暂停与兹贝尔银行及其25家子公司之间的银行间结算和转账等交易，三菱UFJ、三井住友和瑞穗集团决定跟进美方的制裁，在日本采取类似的交易管制措施。 其中，三菱UFJ的制裁涵盖除日元以外的所有外币交易。
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-10.png)
 
-迄今为止，这三家集团已经停止了与俄罗斯第二大银行VTB银行以及多个俄罗斯金融机构的交易，这些金融机构已被排除在多项国际金融支付、结算系统之外。
+加拿大网媒《真北方》3月26日报道，随着自由党和新民主党的联合，纳税人即将迎来高税收。
 
+因特鲁多政府六年来鲁莽的财政管理，加拿大目前背负着1万亿加币的债务，仅每月国债利息就高达20多亿加币。随着不断加息，这个数字只会更高。政府迫不及待地寻找新的途径创收，首当其冲的就是新民主党一直叫嚣的财富税，但最终结果将是所有纳税人遭殃。
 
+十年前由于开征财富税，法国曾在一年中失去了12000名富人，最终该税种被废除。而对认为财富税跟自己无关的普通人来说，当联邦所得税刚开始被引入时，目标只是2%收入最高的人群，而现在，却是每个纳税人都在缴纳所得税。财富税可以遵循同样的路径，循序渐进，最终波及每一个人。
 
-文字版原文：[日本三大型银行终止与俄最大银行的美元交易](https://gnews.org/zh-hans/2241535/)
+政府当务之急，应该是提高税款使用效益；大幅增税，只会让已经左倾的加拿大变的更加失去吸引力，引起富人大逃亡！
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+[新闻链接](https://tnc.news/2022/03/26/guest-op-ed-liberal-ndp-deal-will-mean-major-tax-hikes/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

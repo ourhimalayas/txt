@@ -2,30 +2,42 @@
 ---
 
 
-## 蒙特利尔大学教授支持俄罗斯言论遭学生排斥
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2248013/)
+## 有声|北约评估俄军伤亡已达3-4万人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248058/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111-16.jpg)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-据加拿大《环球邮报》3月28日报道，蒙特利尔大学一名历史系教授因在其社交媒体上发表支持俄罗斯入侵乌克兰的言论而被两名学生发起谴责请愿书。日前已收到175个签名支持。请愿书称，迈克尔教授虽然长期从事历史研究，但在俄罗斯入侵乌克兰的战争中传播俄罗斯当局的观点，误导了数千名学生，应该免去他论文导师的职务。
 
-据悉，该教授在推特上的发文引用了俄罗斯官方媒体机构的观点，称俄军入侵乌克兰的原因是反对”乌克兰的法西斯政府”和清洗”渗透到乌克兰政府的纳粹分子”。其推特和脸书账户近期被删除，其本人也未就请愿书作出回应。
 
-[新闻链接](https://www.theglobeandmail.com/canada/article-students-launch-petition-against-university-of-montreal-professor-over/)
+![](https://static.dw.com/image/61131076_303.jpg)
+华尔街日报3月23日报道，据一名北约高级军官称，俄罗斯在乌克兰战场的伤亡人数可能在 30,000 至 40,000人之间。
 
-编辑/上传 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+这位不愿透露姓名的北约军官，在该联盟位于比利时的军事总部的简报中表示，自 2 月 24 日入侵邻国以来，已有 7,000 至 15,000 名俄罗斯人丧生。根据他的计算，估计有 30,000 至 40,000 名俄罗斯人伤亡，即在战争中，每有一名士兵死亡，一支军队就会遭受三名受伤士兵。伤亡人员包括在行动中阵亡和在行动中受伤，以及在行动中被俘或失踪的人。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+本周早些时候，西方情报官员将俄军的死亡人数“合理估计”为 10,000 人。如果属实，这将是二战以来俄军伤亡人数最多的一次。 这一数字与俄罗斯报纸《共青团真理报》周二的报道接近，该报道援引俄罗斯国防部的数据，证实有 9,861 名士兵死亡。然而，这篇文章很快被删除，该报后来指责黑客在其网站上植入假新闻。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+文字版原文：[北约评估俄军伤亡已达3-4万人](https://gnews.org/zh-hans/2243242/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
