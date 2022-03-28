@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 2:08 AM (UTC)`
+
+
+![img](https://media.gettr.com/group40/origin/2022/02/28/03/f791dbb9-a0ce-9b7d-6b01-0b63dc7e5562/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/28/2022 1:14 AM (UTC)`
 
 2022.03.27 晚《新中国联邦新闻访谈》伊维菌素和羟氯喹的用药原理和主要事项； 疫苗副作用及解毒方法； 医生答战友疑问
@@ -147,13 +154,6 @@ Winston (GTV UK Live Host): What more can we do to convince these Chinese people
 
 
 ![img](https://media.gettr.com/group36/origin/2022/03/27/02/1593a18d-d2bc-374e-de30-896627209477/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 1:56 AM (UTC)`
-
-King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s War Room: : We are doing what the Chinese government should have been doing.<br/><br/>班农战斗室采访新中国联邦在乌克兰救援的志愿者——精粮：我们正在做中国政府本应该做的事情
-![img](https://media.gettr.com/group46/getter/2022/03/27/01/39e262ee-c048-ece8-c210-91bdae04707f/out.jpg)
 
 ---
 
