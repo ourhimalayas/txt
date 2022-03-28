@@ -2,20 +2,35 @@
 ---
 
 
-## 加拿大保守党计划长期禁止石油进口
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2248405/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2248515/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-28.png)
 
-据媒体【真北方】3月25日报道， 加拿大保守党主席候选人波利耶夫当天表示，在当选为该国总理后，他将主张在五年内停止从海外进口石油。
+文章仅代表作者本人观点，与Gnews无关
 
-作为保守党党魁的主要候选人之一，波利耶夫公开承诺将提高加拿大的石油产量，例如将纽芬兰省的石油产量翻番等，以减少对进口石油的依赖并增加本国的就业率。
+视频参看：
+[2022.03.28早 《NFSC新闻》](https://gettr.com/streaming/p12b1habf28)
+[2022.03.28早《NFSC新闻访谈》](https://gettr.com/streaming/p12biew65bc)
 
-尽管加拿大的石油储备量位居世界第三，但目前包括魁北克和该国大西洋地区省份所使用的石油仍有超过一半以上来自沙特阿拉伯和俄罗斯。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
 
-编辑： 平民正道    发布：平民正道
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+
+
 
  
 

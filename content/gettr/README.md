@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 11:12 PM (UTC)`
+
+3/27/2022 Miles Guo: Fellow fighter, Jing Liang, talks about his feelings of interviewing the Ukrainian refugees and giving warmth to the refugee children. The NFSC & ROLF Ukraine rescue let us Chinese people show the world a new image of us. Despite the threats from the war, fellow fighters on the front line are practicing the humanitarian spirit with their sincerity and strengths, and their morale remains very strong!<br/><br/>3/27/2022 文贵直播：精糧战友谈采访乌克兰难民和为难民孩子送温暖的感受；新中国联邦法治基金救援让我们华人向世界展示了新的形象；前线的战友们冒着战火的威胁，用真心和实力在践行着人道精神，士气不减！<br/>
+![img](https://media.gettr.com/group10/getter/2022/03/28/23/7de57457-e96e-aada-15da-33069d8752c0/out.jpg)
+
+---
+
 `@miles 3/28/2022 11:01 PM (UTC)`
 
 2022.03.28 NFSC News  Since Russia-Ukraine War Biden Meets Ukraine's Foreign and Defense Ministers for the First Time； We Are Doing What the Communist Chinese Government Should Have Been Doing
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 3/27/2022 Miles Guo: Although Biden did not directly differentiate between the CCP and the Chinese people in his speech, many things he said were implicitly targeted at Communist China and differentiating Russia from Putin is a good thing for the Chinese people. I believe that most of the CCP members are good people. The right decisions must be based upon logic and common sense. The problem of the CCP is that it no longer has a proper understanding of the world.<br/><br/>3/27/2022 文贵直播：拜登演讲虽未直接提到区分中共和中国人，但他有很多话是暗中针对中共国的，区分俄罗斯和普京对中国人是好事；文贵相信绝大多数中共党员是好人；正确的决策要基于逻辑和常识，中共的问题在于其失去了对世界的正确认识<br/>
 ![img](https://media.gettr.com/group40/getter/2022/03/28/07/0033ca37-ac8d-2c40-bf44-55f7bdb1af7b/out.jpg)
-
----
-
-`@miles 3/28/2022 5:16 AM (UTC)`
-
-3/27/2022 Miles Guo: The CCP’s 70-year rule has completely devastated the beautiful mountains and rivers of China! Many international friends trust the New Federal State of China and have offered advice to control the pollution of water and soil in China. I am increasingly confident that we can resolve the environmental issues of China!<br/><br/>3/27/2022 文贵直播: 中共70年的统治把中国美丽的山河损毁殆尽！多位国际友人信任新中国联邦并提出了治理中国水土污染的建议。文贵越来越有信心解决中国的环境问题！<br/>
-![img](https://media.gettr.com/group26/getter/2022/03/28/05/e733daa9-43a9-1d04-3679-9202491828a4/out.jpg)
 
 ---
 

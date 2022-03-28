@@ -2,33 +2,43 @@
 ---
 
 
-## 医药公司正在用化学有毒物质氧化石墨烯,CCP病毒,疫苗,口罩，PCR测试拭子在伤害每位民众
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2247352/)
+## 马斯克“认真思考”要建立一个新的社交媒体平台
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2247431/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-0:05 你好，事实调查者和真相寻求者。我是美国前线医生Peterson Pierre博士，为您带来今天的前线快讯。那么去年，一些来自西班牙的研究人员…
-0:15 你好，我叫伊尼戈-蒙托亚。
-0:18 …发现辉瑞公司的疫苗中含有大量的氧化石墨烯。因此，对于那些不知情的人来说，氧化石墨烯是一种从石墨中提取的东西，它是一种已知的有毒材料。当他们观察疫苗本身时，他们发现它含有747纳克的氧化石墨烯，这意味着疫苗中超过99%的材料是氧化石墨烯。为什么这很糟糕呢？嗯，我们知道它是有毒的。我们知道它对肝脏和肾脏有害。我们知道，氧化石墨烯还可以导致肺部肉芽肿。我们基于动物研究知道这一点，所以这很可怕。我们也知道，一旦氧化石墨烯进入这些组织，身体很难将其排出体外。他们还发现口罩，某些口罩中含有一定量的氧化石墨烯。甚至用于PCR测试的棉签也有氧化石墨烯，不管这些疫苗是否有效，当然我们知道它们无效，它们实际上是用一种你的身体很难摆脱的有毒物质来毒害你，这是明摆着的事实。由氧化石墨烯引起的症状与由COVID引起的症状非常相似。女士们，先生们，现在真实新闻在下一个前线快报中继续。
+编译： Jenny Ball
 
-素材提供：蓝色天空
-软件听写：蓝色天空
-听写校对：蓝天灵梦
-文稿翻译：Spirit
-翻译校对：啊啊小苹果
-字幕补充：杰尼龟
-最终审核：CTQ
-发布/上传: hongyeca
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3441-edited.png)埃隆·马斯克于 2022 年 3 月 22 日在德国格伦海德出席新的特斯拉电动汽车超级工厂的开幕式。Patrick Pleul/Pool 来自 REUTERS
+
+路透社 3 月 27 日 – 特斯拉公司首席执行官埃隆·马斯克 (Elon Musk) 正在“认真考虑”建立一个新的社交媒体平台，这位亿万富翁周六在一条推文中表示。
+
+马斯克正在回答一位 Twitter 用户的问题，即他是否会考虑建立一个社交媒体平台，该平台由开源算法和一个优先考虑言论自由的算法组成，并且宣传最少。
+
+马斯克本人是 Twitter 的多产用户，他最近一直批评社交媒体平台及其政策。他曾表示，该公司不遵守言论自由原则，正在破坏民主。
+
+他的推文是在他发布推特民意调查后的第二天发布的，该民意调查询问用户: 是否认为twitter遵守言论自由原则，超过 70% 的人投票“不”。
+
+“这次民意调查的结果很重要,请仔细投票，”他周五表示。
+
+如果马斯克决定创建一个新平台，他将加入越来越多的科技公司组合，这些公司将自己定位为言论自由的拥护者，并希望吸引那些认为自己的观点在 Twitter , Meta Platform 的 Facebook 和 Alphabet 旗下的 Google 的 YouTube等平台上受到压制的用户。
+
+**参考链接：**[Elon Musk giving ‘serious thought’ to build a new social media platform](https://www.reuters.com/technology/elon-musk-giving-serious-thought-build-new-social-media-platform-2022-03-27/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+审核：文乐
+校对：阿伯塔
+发稿：信心的选择
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
