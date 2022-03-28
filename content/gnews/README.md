@@ -15,116 +15,116 @@
 
 ---
 
-### [今日盖特大V推荐 — 拉塞尔·布兰德（Russell Brand）](/content/gnews/1/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月28日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [今日盖特大V推荐 — 拉塞尔·布兰德（Russell Brand）](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [埃隆马斯克称推特必须被新的平台取代](/content/gnews/2/README.md)
+### [埃隆马斯克称推特必须被新的平台取代](/content/gnews/3/README.md)
  ` 扬帆枫叶快讯`
 
-### [加国防部禁止其军人参与俄乌战争](/content/gnews/3/README.md)
+### [加国防部禁止其军人参与俄乌战争](/content/gnews/4/README.md)
  ` 扬帆枫叶快讯`
 
-### [多数加拿大人反对联邦政府资助传统媒体](/content/gnews/4/README.md)
+### [多数加拿大人反对联邦政府资助传统媒体](/content/gnews/5/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大保守党计划长期禁止石油进口](/content/gnews/5/README.md)
+### [加拿大保守党计划长期禁止石油进口](/content/gnews/6/README.md)
  ` 扬帆枫叶快讯`
 
-### [西班牙媒体：灭掉中共的新中国联邦人](/content/gnews/6/README.md)
+### [西班牙媒体：灭掉中共的新中国联邦人](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [加拿大联邦机构仍顽固执行现行疫苗政策](/content/gnews/7/README.md)
+### [加拿大联邦机构仍顽固执行现行疫苗政策](/content/gnews/8/README.md)
  ` 扬帆枫叶快讯`
 
-### [首都渥太华再现反疫苗政策抗议活动](/content/gnews/8/README.md)
+### [首都渥太华再现反疫苗政策抗议活动](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [安省将持续解禁疫情限制措施](/content/gnews/9/README.md)
+### [安省将持续解禁疫情限制措施](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [联邦政府40年向中共贷款$3.64亿](/content/gnews/10/README.md)
+### [联邦政府40年向中共贷款$3.64亿](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共一边释放病毒一边用无人机假防疫凸显自由无望](/content/gnews/11/README.md)
+### [中共一边释放病毒一边用无人机假防疫凸显自由无望](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [灭共段子——当前疫情](/content/gnews/12/README.md)
+### [灭共段子——当前疫情](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德拉吉告诉泽连斯基意大利将努力制止战争](/content/gnews/13/README.md)
+### [德拉吉告诉泽连斯基意大利将努力制止战争](/content/gnews/14/README.md)
  ` xiaobaige`
 
-### [2022年中共各地的清明祭扫](/content/gnews/14/README.md)
+### [2022年中共各地的清明祭扫](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [把疫情当生意? 中共高价销售辉瑞防疫药成本100卖2300元](/content/gnews/15/README.md)
+### [把疫情当生意? 中共高价销售辉瑞防疫药成本100卖2300元](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|部分政商精英误判俄乌战事](/content/gnews/16/README.md)
+### [有声|部分政商精英误判俄乌战事](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [五月花简报（03/28/2022）](/content/gnews/17/README.md)
+### [五月花简报（03/28/2022）](/content/gnews/18/README.md)
  ` mayflowertranslate`
 
-### [乌克兰：哈尔科夫附近的马拉罗汉村被收复](/content/gnews/18/README.md)
+### [乌克兰：哈尔科夫附近的马拉罗汉村被收复](/content/gnews/19/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [印度抢购廉价的俄罗斯石油，中共国可能是下一个目标（一）](/content/gnews/19/README.md)
+### [印度抢购廉价的俄罗斯石油，中共国可能是下一个目标（一）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰人已经成功渗透到俄罗斯军事、政治和金融领导层的许多部门，并利用这些信息](/content/gnews/20/README.md)
+### [乌克兰人已经成功渗透到俄罗斯军事、政治和金融领导层的许多部门，并利用这些信息](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [俄罗斯期待中共国拯救其经济免受西方制裁影响](/content/gnews/21/README.md)
+### [俄罗斯期待中共国拯救其经济免受西方制裁影响](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年3月28日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
+### [2022年3月28日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [苹果削减几款热销品的产量](/content/gnews/23/README.md)
+### [苹果削减几款热销品的产量](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年3月28日:财经新闻整理](/content/gnews/24/README.md)
+### [新西兰财经G乐部2022年3月28日:财经新闻整理](/content/gnews/25/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [马斯克“认真思考”要建立一个新的社交媒体平台](/content/gnews/25/README.md)
+### [马斯克“认真思考”要建立一个新的社交媒体平台](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战争前的情报暗战与北美教练出离平静的愤怒](/content/gnews/26/README.md)
+### [俄乌战争前的情报暗战与北美教练出离平静的愤怒](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [G7同意拒绝俄罗斯以卢布支付天然气的要求](/content/gnews/27/README.md)
+### [G7同意拒绝俄罗斯以卢布支付天然气的要求](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [医药公司正在用化学有毒物质氧化石墨烯,CCP病毒,疫苗,口罩，PCR测试拭子在伤害每位民众](/content/gnews/28/README.md)
+### [医药公司正在用化学有毒物质氧化石墨烯,CCP病毒,疫苗,口罩，PCR测试拭子在伤害每位民众](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [【转】截至3.28 俄乌战事汇总](/content/gnews/29/README.md)
+### [【转】截至3.28 俄乌战事汇总](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [融创到期债务无法兑付，中共房地产泡沫加速破裂](/content/gnews/30/README.md)
+### [融创到期债务无法兑付，中共房地产泡沫加速破裂](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [2022年3月26日 年度G｜CLUBS年会直播 全文字版](/content/gnews/31/README.md)
+### [2022年3月26日 年度G｜CLUBS年会直播 全文字版](/content/gnews/32/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [联盟工作汇报文字版2022.3.27](/content/gnews/32/README.md)
+### [联盟工作汇报文字版2022.3.27](/content/gnews/33/README.md)
  ` 纽约香草山MOS02`
 
-### [2022/03/28英喜时事速递](/content/gnews/33/README.md)
+### [2022/03/28英喜时事速递](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜马拉雅币一周分析与总结（3月21日-3月27日）](/content/gnews/34/README.md)
+### [喜马拉雅币一周分析与总结（3月21日-3月27日）](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [以太坊正在向产权证明区块链转型](/content/gnews/35/README.md)
+### [以太坊正在向产权证明区块链转型](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [全球领导人无法再否认的噩梦：暴涨的肥料和粮食短缺](/content/gnews/36/README.md)
+### [全球领导人无法再否认的噩梦：暴涨的肥料和粮食短缺](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [东航坠机机上人员全部遇难 中共称找到第二个黑匣子](/content/gnews/37/README.md)
- ` NFSC News`
 
 ### [乌克兰市长被俘 民众示威逼俄军撤退放人](/content/gnews/38/README.md)
  ` NFSC News`

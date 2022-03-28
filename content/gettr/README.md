@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 11:01 PM (UTC)`
+
+2022.03.28 NFSC News  Since Russia-Ukraine War Biden Meets Ukraine's Foreign and Defense Ministers for the First Time； We Are Doing What the Communist Chinese Government Should Have Been Doing
+![img](https://media.gettr.com/group13/origin/2022/03/28/22/a9b7491e-450e-b60b-ada6-c0a7a61e2cae/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/28/2022 10:49 PM (UTC)`
 
 【Ukraine Rescue】03/27/2022 Little Sara reported that people were taking care of stray dogs at the rescue camp. Whoever came there, people or dogs, got help. This showed the greatness of humanity. She hopes people could show the same love if CCP invades Taiwan and disasters take place.<br/><br/>【乌克兰救援】03/27/2022 小Sara报道，梅迪卡营地有人在战乱中不忘救助流浪狗。人和狗都得到了关怀，显示了人性的光辉。希望如果中共侵略台湾造成灾难，人们也能展现相同的爱心。<br/><br/>
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 3/27/2022 Miles Guo: The CCP’s 70-year rule has completely devastated the beautiful mountains and rivers of China! Many international friends trust the New Federal State of China and have offered advice to control the pollution of water and soil in China. I am increasingly confident that we can resolve the environmental issues of China!<br/><br/>3/27/2022 文贵直播: 中共70年的统治把中国美丽的山河损毁殆尽！多位国际友人信任新中国联邦并提出了治理中国水土污染的建议。文贵越来越有信心解决中国的环境问题！<br/>
 ![img](https://media.gettr.com/group26/getter/2022/03/28/05/e733daa9-43a9-1d04-3679-9202491828a4/out.jpg)
-
----
-
-`@miles 3/28/2022 5:01 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group16/origin/2022/03/28/04/30c591c0-c9ca-3c59-f99a-a9b2c0c75f88/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
