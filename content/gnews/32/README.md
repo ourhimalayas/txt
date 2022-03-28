@@ -2,39 +2,42 @@
 ---
 
 
-## 有声|习妄图称霸世界 不会放弃攻打台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246754/)
+## 乌克兰人民呼吁抵制国际红十字委员会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2246771/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年3月23日大直播中指出，中共正试图在中东挑起战火，利用中东战乱推动人民币作为石油结算手段，控制中东和安哥拉的石油能源，然后用数字人民币代替其他洗钱渠道，控制俄罗斯的钱，取代美元的地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3066.png)
-郭先生重申，中东能源人民币化是中共的核心目标。一旦成功，会对美国和美元造成的威胁，严重性远远超过俄乌战争。之后中共会企图要挟和控制全世界，而西方世界将无力再对中共实施制裁。
+**日本东京方舟农场 北极**
 
-另外，习近平一定会同时攻打台湾，控制芯片技术，打垮美国和欧洲的供应链。到时整个世界会爆发粮食危机，金融崩盘，社会崩溃，所有供应链断裂。
+据乌克兰真理报（Українська правда）3月26日报道，乌克兰人民呼吁人们停止向国际红十字委员会（International Committee of the Red Cross , 缩写ICRC）捐款，并抵制该组织。
 
-郭先生指出，一系列灾难的发生让人类对宗教产生怀疑，放弃信仰，而醒来的人都会找中国人算账，到那时，新中国联邦是唯一能够提供帮助的组织。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3-4.jpeg)红十字国际委员会主席与谢尔盖·拉夫罗夫握手的照片已经在社交网络上疯传。（图片来自乌克兰真理报）
 
+据悉，乌克兰人民之所以抵制国际红十字会，主要有以下几个方面原因：
 
+首先，在俄乌战争期间，国际红十字会没有协助乌克兰建立人道主义走廊，导致大量难民无法逃离战争区域，造成平民伤亡；
 
-文字版原文：[习妄图称霸世界 不会放弃攻打台湾](https://gnews.org/zh-hans/2233889/)
+第二点，战争已爆发一月余，国际红十字会仍然坚持称俄乌战争为“冲突”；
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+第三点，国际红十字会计划在顿河畔罗斯托夫（Rostov-on-Don）开设难民中心办事处，表面上是为了帮助俄军占领区的乌克兰人民，而实际上是将乌克兰人被绑架到俄罗斯偏远地区的行为合法化。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+第四点，国际红十字会主席彼得·毛雷尔 (Peter Maurer)与俄罗斯外长谢尔盖·拉夫罗夫（Sergey Lavrov）握手的照片已经在社交网络上疯传。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+乌克兰记者尼娜·库里亚塔（Nina Kuriata）在脸书（Facebook）上发起一份请愿书，敦促国际红十字会主席加强其在乌克兰的救助活动。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+库里亚塔指出，此前，他们还大摇大摆地通过俄罗斯占领区卢甘斯克人民共和国和顿涅茨克人民共和国（Luhansk People’s Republic and Donetsk People’s Republic, collectively，统称LDNR）的“过滤营”。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+援引英国inews网站的信息显示，被俄军驱逐出境的乌克兰人首先被带到所谓的过滤营地，经过俄罗斯军方过滤并检查和分类以后，从营地里被重新输送到俄罗斯的各个偏远城市，“过滤营”早在俄罗斯发起车臣战争时就因此得名。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+有乌克兰人士一阵见血地指出，与恐怖分子谈判并将乌克兰人民重新安置为人质，是最高程度的耻辱和人道主义犯罪。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+值得注意的是，乌克兰红十字会和国际红十字委员会是不同的组织。乌克兰红十字会在其官方Facebook页面上指出了这一点：乌克兰红十字会有一个专属的国家使命—只在乌克兰境内工作。
+
+参考链接：
+1. [https://reurl.cc/6E6mYy](https://reurl.cc/6E6mYy)
+2. [https://reurl.cc/Np7MLn](https://reurl.cc/Np7MLn)
+3. [https://reurl.cc/Go36Op](https://reurl.cc/Go36Op)
+
+总编： 青城道姑
+发布： 文曦
 
  
 

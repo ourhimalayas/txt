@@ -2,37 +2,56 @@
 ---
 
 
-## 有声|奢侈品行业的新生代传奇——Gfashion
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246715/)
+## 特鲁多先生：你是任何民主国家的耻辱！请不要让我们看到你出现（在这里）
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2246761/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月22日，据国外某时尚杂志报道，Gfashion创造了线上时尚品牌的传奇。现在的时尚消费者比任何时候都要精明，不断提升的品位和追求个性化是这个时代消费者的特点。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3074.png)
-Gfashion 的服装与配饰正在引导个性化的前瞻力量。属于Gfashion的每一个设计师都极具天赋，新鲜、高标准的设计风格无处不在。这些来自世界各地的不同设计作品彰显了设计师的个性以及变革中的时代呼声。Gfashion通过仿真数字平台为客户提供一对一的互动服务，每个作品都是一个故事，从概念、采购、设计到成品。无论什么人，在Gfashion都可以找到适合你的东西，它总是在筹谋未来，思考创新，以求客户可以以最低廉的价格得到最最尖端的产品。
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+在请Christine Anderson女士发言，提出她的观点。谢谢。
 
-尽管目前Gfashion面临激烈的竞争，但它不会选择牺牲一贯的价值原则，自始至终力求以高质量的精工设计和对品质的严谨承诺，并且越来越成为那些喜欢独特风格客户的首选品牌。
+基于第195条，我想指出，加拿大总理特鲁多先生根据第144条（欧洲议会议事规则第144条：关于违反人权、民主和法治的辩论）在本议会发言更合适。
+
+这一条是专门用来辩论侵犯人权、民主和法治的行为的，而特鲁多先生显然就是这样。一个公开钦佩中国独裁制度的总理，一个践踏基本权利，仅仅因为自己的公民敢于站出来反对他变态的民主概念，就把他们当作恐怖分子来迫害和定罪的总理，根本就不应该被允许在议会里发言。
+
+特鲁多先生，你是任何民主国家的耻辱，请不要让我们看到你出现（在这里），谢谢。
+
+翻译注：翻译为 “一个公开钦佩中国独裁制度的总理”
+
+素材提供：文倩
+软件听写：蓝色天空
+听写校对：小白咖啡馆
+文稿翻译：小白咖啡馆
+翻译校对：啊啊小苹果
+字幕添加：小白咖啡馆
+最终审核：文倩
+
+编辑上传：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
+
+更多加拿大溫哥華揚帆農場的頻道，請關註：
+
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
 
 
 
-文字版原文：[奢侈品行业的新生代传奇——Gfashion](https://gnews.org/zh-hans/2234109/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+更多加拿大溫哥華揚帆農場的頻道，請關註：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
