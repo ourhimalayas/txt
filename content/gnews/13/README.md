@@ -2,27 +2,35 @@
 ---
 
 
-## 视频|俄防长久未公开露面 乌克兰称其心脏病发作
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2245760/)
+## 上海疫情爆发分区封城 中共股市随之下滑
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2245906/)
 
-制作：香草山视频部
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+彭博社3月28日报道，中共国股市今日大幅下跌，原因是上海当局为抗击中共病毒爆发宣布了即将大规模分区封城的消息，这也由此引发了人们对于中共商业运营中断和国民经济即将走向崩塌的担忧。
 
-据国外媒体3月26日报导，乌克兰内政部长25日推特发文称，俄罗斯国防部长绍伊古自3月中旬以来就没有出席公开活动，是因为他的心脏出现了问题。
+据了解，本周一早些时候，CSI 300指数下跌了2%，然后微调了部分损失，原因是上海市当局表示将分为两个阶段封城，以进行大规模的核酸测试闪电战。消费股领跌中共国大陆和香港市场，其中，白酒制造商贵州茅台、运动服装制造商李宁和安踏体育用品有限公司均对基准指数构成了沉重压力。
 
-据悉，绍伊古已经连续12天未公开露面，直到24日才出现在俄国的电视屏幕上，显示他正坐在角落参加普京召开的视频会议，但画面仅持续了几秒钟，有些闪烁，而且没有任何声音。此前，有传言称绍伊古因进攻乌克兰出师不利受到了普京的处分。
+众所周知，上海是许多国际公司的中共国总部所在地，也是中共国内最大的港口。此次的封城政策明显加剧了中共国股市的不确定性。此前，受乌克兰战争和中概股随时可能大规模退市的影响，中共股市就已使得投资者们在应对监管不利因素方面身心俱疲。
 
-克里姆林宫发言人培斯科夫在简报中迅速否认了绍伊古身体有恙的传闻，并称其正在忙于处理特殊军事行动。
+交银国际首席策略师郝红对此评论称，上海市作为中共国的经济中心，占据了4.32万亿元即4%的国内GDP。此次上海的疫情封锁政策无疑将会严重影响到中共国的股市交易，交易量可能会因此大幅下降。同时，中共国的其他城市亦可能效仿上海的防疫政策，这将使中共2022年的GDP总值受到严重影响。
 
-事实上，不只绍伊古，俄武装部队总参谋长瓦列里·格拉西莫夫自3月11日之后也未再公开现身，引发了诸多猜测。俄罗斯总参谋部情报总局局长科斯秋科夫也被爆出健康状况恶化。
+香港京华山研究主管彭伟新亦发表评论称，考虑到今年疲软的中共股市起点，上海的部分封城政策和疫情扩散到其他地区的潜力将使中共国更难以实现5.5%的GDP增长目标。
 
-分析人士称，无论在战场上还是在国内，俄罗斯高层状况频出，有可能迫使普京采取更为极端的措施。
+【来源】[https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN\_XCMGGwFWHpXvYlZQ4BoPG5d6c8\_spo8Y\_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w](https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia%20https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN_XCMGGwFWHpXvYlZQ4BoPG5d6c8_spo8Y_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w)
 
-发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
+
 
 **更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,30 @@
 ---
 
 
-## 【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2245549/)
+## 自我独立与尊重别人是民主的基础
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2245595/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/shutterstock_631187453-scaled-1.jpg)
+3月27日大直播中郭先生与战友分享从世界各国目前对俄罗斯采取的制裁行动看到的民主国家与独裁国家的不同。
 
-##### 视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是主流媒体获美国纳税人10亿美元，虚假宣传疫苗的效果！
+郭先生提到中共独裁习近平此人极度奉行个人主义，把国家领导间的私人关系作为国与国外交的关系，并深以为然。习近平与拜登有一些利益交换，拜登作为老政客，这些都是政治手段，但习错以为这是美国整个国家的态度。而纵观拜登的从政之路，几乎都是对中共不利的政策，包括当年奥巴马对习近平的一番奚落，严格讲其背后操纵者是拜登。
 
-据曝光新闻网（The Exposé ）3月26日报道，卫生与公众服务部（HHS）应信息自由法案（FOIA）的要求向TheBlaze发布了信息。该信息显示，美国联邦政府购买了高达10亿美元的广告，作为建立新冠疫苗信心的媒体活动的一部分。
+美国的国家利益高于一切，并不是个人感情能够决定的。此次美国对乌克兰的支援，拜登在华沙的演讲，以及欧洲国家从各行各业全民参与的行动，另外还有日本重提宣战权，这些世界上的先进民主国家都在积极呼应。在全世界人类的生死面前，不会有个人情感，都是民意，就是经过了独立思考，以及尊重别人的前提下，共同做出的决定。这是民主与独裁的本质不同。独裁极度奉行个人崇拜，事事以自己利益为主，乃至拖垮整个国家。无论是普金还是习近平，他们的战争都是他们本人的战争，和任何俄罗斯人和中国人无关，但因为独裁，无数无辜的人都被裹挟其中。中国人只有消灭共产党，才能在地球上重新立足，否则将会永远远离世界。
 
-在过去一年中，花时间阅读新闻、观看电视新闻报道或浏览社交媒体的人，都极有可能接触过政府的广告。例如，发布到 YouTube 的 HHS 广告已被观看数百万次，以歌手埃尔顿·约翰爵士和演员迈克尔·凯恩爵士等名人为主角的广告成为新闻报道的主题。
+撰稿、发布：骄子
 
-但是，接种疫苗的效果却让人大跌眼镜。英国卫生安全局每周都会发布一份监测报告。2022 年 2 月 24 日的报告显示，在感染、住院或死于 COVID-19 的成年人中，有 85% 至 91% 已完全接种疫苗。
-
-盖特链接：https://gettr.com/post/p124v5f1500
-
-编辑/发文 -【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

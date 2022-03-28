@@ -2,8 +2,8 @@
 ---
 
 
-## 基辛格、默格尔绝对要受到审判
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245962/)
+## 习近平和普京的个人友谊，形成了两国战略关系
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2246036/)
 
 台灣寶島農場
 
