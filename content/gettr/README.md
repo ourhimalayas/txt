@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 4:07 AM (UTC)`
+
+War brings infinite disaster and death, we don't want it, we pray for peace. The days of joy and happiness have become farther and farther away, the dead air, the ruined houses, flower, and trees, and living beings! As a member of the New Federal State of China, we will definitely help the people of Ukraine, because the CCP is behind Putin of Russia!<br/>战争带来的是无限的灾难和死亡，我们不想，我们祈求和平。那快乐和幸福的日子已经变得越来越遥远，死寂的空气，破坏殆尽的房屋、花木、生灵！作为新中国联邦人必将帮助乌克兰人民，因为俄罗斯普京的背后就是中共！
+![img](https://media.gettr.com/group26/origin/2022/03/28/04/d3691267-7a55-ddff-a368-968e891db140/out.jpg)
+
+---
+
+`@miles 3/28/2022 4:03 AM (UTC)`
+
+The NFSC has drawn increasing international attention in regards to humanitarian rescue operations including traditional media. A popular Polish newspaper, FAKT, has conducted an interview with Nicole. FAKT learned about more than 550 Chinese and Ukrainians have been saved by the NFSC in a week, including 100 children who have fled Ukraine’s warzone to Poland then finally arrived in Spain safely.<br/>新中国联邦在乌克兰边境的救援行动，引发越来越多关注，也包括传统媒体。波兰知名的报纸FAKT（事实）采访了Nicole，知道一周内有550多中国人及乌克兰人被救助，其中有100名儿童已经从战区安全抵达西班牙。
+![img](https://media.gettr.com/group26/origin/2022/03/28/04/8431e416-762f-b5d2-abad-66fd88608571/out.jpg)
+
+---
+
+`@miles 3/28/2022 3:56 AM (UTC)`
+
+The frontline base camp of the New Federal State of China receives rescue supplies from all over the world on a daily basis and has become a central base camp for receiving supplies.<br/>Mainstream media from the world came to our rescue center for interviews and news reports, which are constantly featured on their channels.<br/>Our base camp has been endorsed by international humanitarian rescue teams and has become a meeting center for local NGOs.<br/>Our presence showed that the Chinese Communist Party does not represent the Chinese people. With our actions, we are telling the world that we will definitely take down the Chinese Communist Party.<br/>新中国联邦前线营地，每天都收到来自世界各地的救援物资，已经成为接收物资的核心营地。世界各地的主流媒体，都会来到我们的营救中心进行采访和报道，我们的营地也得到了国际人道主义救援团队认可。<br/>我们的出现证明了，中共不能代表中国人。我们用行动告诉世界，一定会消灭中国共产党。
+![img](https://media.gettr.com/group25/origin/2022/03/28/03/ed138a08-919e-ae6f-62f2-13bdc9798f2f/out.jpg)
+
+---
+
 `@miles 3/28/2022 3:42 AM (UTC)`
 
 3/27/2022 Miles Guo: Many people within the CCP’s system are secretly protecting our fellow fighters and have shown their admiration for the NFSC & ROLF Ukraine rescue operation. Never pin our hope on the US to help us take down the CCP. It will surely be those in the CCP’s system that will take down both Xi Jinping and the CCP!<br/><br/>3/27/2022 文贵直播: 很多体制内的人在暗中保护我们的战友，并对新中国联邦在乌克兰的救援行动表示钦佩。不要寄希望于美国帮我们灭共，最终干倒习近平和共产党的一定是国内人！<br/>
@@ -133,27 +154,6 @@
 
 Winston (GTV UK Live Host): What more can we do to convince these Chinese people trapped in the middle of the war that the only way out for them is through the NFSC?<br/><br/>Mr. Steve Bannon: The rescue operation is a heroic effort and reinforces what Miles talks about "New China" and the "New Chinese", and it's obviously to get Chinese citizens and nationals out safely of the war zone in Ukraine.<br/>The CCP is going to smear that because they never want to show the dignity and the nobleness of LaoBaiXing because they're not doing it. The CCP is after you means you're doing great works.<br/><br/>Winston：我们还能做些什么来说服这些被困在战争中的中国人相信他们唯一的出路是通过新中国联邦？<br/><br/>Bannon：这次救援行动是一个英勇的壮举，它真的印证了郭先生所描述的“新中国”和“新中国人”，他们的投入程度都是为了让中国公民和国民安全地离开乌克兰的战区。中共永远不想向公众展示老百性的尊严和高尚，因为他们自己无法做到。中共对你们穷追不舍时，说明你们的工作做得格外出色！
 ![img](https://media.gettr.com/group43/origin/2022/03/27/10/a0def862-c5ab-9ae9-1a85-5ca9eea0bc59/out.jpg)
-
----
-
-`@miles 3/27/2022 9:59 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月26日第22天当日救援统计：<br/>Medyka救援站接待：约42人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7534人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 22 - Date: March 26, 2022 :<br/>Medyka Rescue Station Reception: about 42 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7534 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group43/getter/2022/03/27/09/3ea6d5ea-5a2b-5b33-cbb7-68417d02f2f3/0da9ed8bf0cf90e740be3af2117fbfaa.jpg)
-
----
-
-`@miles 3/27/2022 8:25 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group38/origin/2022/03/27/07/2a67a00a-26de-a453-a8b8-6ff5418ea7ea/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 7:18 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月25日第21天当日救援统计：<br/>Medyka救援站接待：约80人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7492人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 21 - Date: March 25, 2022 :<br/>Medyka Rescue Station Reception: about 80 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7492 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group12/getter/2022/03/27/07/5b0f2b00-2b99-2820-633a-fc433ee0fd97/09bc8d86bf86cbc817f1f09df513df1e.jpg)
 
 ---
 
