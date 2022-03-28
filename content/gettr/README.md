@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 4:01 PM (UTC)`
+
+
+![img](https://media.gettr.com/group41/origin/2022/03/28/15/8facfd61-f793-390e-3a77-3672773f9614/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@miles 3/28/2022 4:07 AM (UTC)`
@@ -149,13 +156,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 
 ![img](https://media.gettr.com/group40/origin/2022/02/28/03/f791dbb9-a0ce-9b7d-6b01-0b63dc7e5562/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/28/2022 1:14 AM (UTC)`
-
-2022.03.27 晚《新中国联邦新闻访谈》伊维菌素和羟氯喹的用药原理和主要事项； 疫苗副作用及解毒方法； 医生答战友疑问
-![img](https://media.gettr.com/group29/origin/2022/03/28/01/d7cabd59-a465-bc5a-9928-c70d75c10886/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
