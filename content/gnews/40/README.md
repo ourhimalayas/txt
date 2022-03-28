@@ -2,35 +2,22 @@
 ---
 
 
-## 美财长耶伦赞同加密货币的创新称需要被监管
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
+## 中日财经爆┃俄乌战争推高全球钢材价格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2243047/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
-据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
+撰稿：东京樱花团/上善若水
 
-周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
+俄罗斯和乌克兰都是重要的钢材供应商，尤其是出售给钢铁冶金业者进行轧制的半成品。如今，因为制裁供应中断影响欧洲，导致全球价格攀升。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-58.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.moneycontrol.com%2Fstatic-mcnews%2F2021%2F05%2Fsteel-1.jpg%3Fimpolicy%3Dwebsite%26width%3D770%26height%3D431&amp;imgrefurl=https%3A%2F%2Fwww.moneycontrol.com%2Fnews%2Fbusiness%2Fmarkets%2Fsteel-price)
+欧盟于3月中旬禁止进口俄罗斯钢材。据欧盟委员会的声明，这一措施针对着俄罗斯33亿欧元的收入。钢材价格更是应声而起。轧钢卷的价格从每吨600美元升至1400美元。而厚钢板的价格则从每吨650美元涨到近2000美元。这不仅对建筑业，对汽车工业也影响很大。
 
-她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
+钢材价格达到如此之高，这是由于乌和俄不仅出口成品，也出口钢锭（brame）、钢坯(billette)，甚至销售给钢铁冶金业者的半成品。俄乌两国占行业65%的份额，主要供应欧洲的比利时和意大利。还有，俄也生产用于制造再生钢的直接还原铁(DRI) 和实心铸铁（fonte solide）。因此，供应受到限制在各层次都能感受得到。
 
-她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
+信息来源：**[欧美制裁俄罗斯带起全球钢价](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20220327-%E6%AC%A7%E7%BE%8E%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%B8%A6%E8%B5%B7%E5%85%A8%E7%90%83%E9%92%A2%E4%BB%B7)**
 
-展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
-
-报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
-
-新闻来源链接：
-
-[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

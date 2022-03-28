@@ -2,33 +2,36 @@
 ---
 
 
-## 联合国：乌克兰粮食短缺正在加剧
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2244223/)
+## 德州奥斯汀市议会通过决议支持数字货币支付区块链应用
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2244466/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/02870000-0aff-0242-8bb8-08da0feedd33_w1023_r1_s.jpg)乌克兰马里乌波尔的民众从一家粮食仓库领取饮用水（2022年3月18日）（美联社图片）
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-28-下午3.45.50.png)图片来自*2022*年*3*月*24*日奥斯汀市议会会议。来源：[*Austintexas.gov*](https://austintx.new.swagit.com/videos/156999?fbclid=IwAR01vMiJa2jGafWKzw7skdLCtp1ovMlM0rD7Cmmg2fEBbpgiaDh-j9F_W7E)
+美国德克萨斯州奥斯汀市上周四（3月24日）通过两项专注于加密货币和区块链创新的决议，准备成为美国的下一个加密货币中心。
 
-据美国之音3月28日报道，俄乌战争爆发后，乌克兰的粮食短缺正在加剧。联合国世界粮食计划署警告说，乌克兰的粮食供应链已经断裂，估计有45%的民众正在为缺粮发愁。计划署发言人菲里说，为数千万被困在乌克兰境内的民众提供粮食的系统正在停止运行。超市已经无货，粮库储备见底，战区家庭的粮食短缺更为严重，尤其是乌克兰东部城市马里乌波尔。
+早在2022 年 3 月 9 日，奥斯汀市议会议员 麦肯齐·凯利（Mackenzie Kelly）提出了一项决议，指示奥斯汀市经理[探索](https://austincouncilforum.org/viewtopic.php?f=2&amp;t=1556&amp;sid=9e229a98809043bfbe174896866b216f)加密货币的可能用例，以造福奥斯汀及其居民。该决议特别要求城市经理[研究](http://assets.austintexas.gov/austincouncilforum/66-20220309154643.pdf)该市如何采用比特币和其他加密货币进行金融交易。奥斯汀市长史蒂夫·阿德勒（Steve Adler）是她决议的共同发起人。【1】
 
-联合国儿童基金会说，俄乌战争导致430万乌克兰儿童流离失所，占乌克兰儿童一半以上。联合国人权事务高级专员办公室说，有1080多名乌克兰民众死亡，其中至少78%是儿童。
+凯利认为加密货币支付将成为一种有用的替代方案，让个人能够灵活地支付某些城市服务。她举例解释：如果没有银行账户但有加密货币，他们可以使用加密货币作为支付税款、电费、超速罚单等。【1】
 
-菲里说，世界粮食计划署已经调配了足够的粮食供乌克兰境内300万民众使用一个月。一个月之后呢？世界粮仓乌克兰因为战争导致粮食产量剧减，本国人民尚且挨饿，依靠乌克兰粮食进口的其他国家呢？粮荒即将在全球范围内爆发，再加上疫苗灾难近在眼前，邪恶中共和俄罗斯共同导演的这场人间悲剧不知道要吞噬多少人！
+除了凯利（Mackenzie Kelly）的决议外，阿德勒（Adler）关于区块链技术的决议也在奥斯汀 2022 年 3 月 24 日的工作会议上获得通过。市议会成员 Sabino Renteria介绍如果区块链技术能够让人们拥有并访问他们所有的记录，这项技术未来应用前景令人兴奋。【1】
 
-[新闻参考链接](https://www.voachinese.com/a/ukraine-running-out-of-food-20220327/6503744.html)
+虽然这两项决议都很有创意，但一些奥斯汀市议员在会议期间表达了担忧。市议员Leslie Pool提到，她对区块链实施的最大担忧是其 “缺乏一个中央机构”，她补充说：“我仍然认为加密货币太不稳定”。【1】
 
-*编辑：胖丁*
+此前，德州长格雷格·雅培（Greg Abbot）在[推特](https://twitter.com/GregAbbott_TX/status/1376408028875001868?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1376408028875001868%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https://cointelegraph.com/magazine/2021/12/07/crypto-city-guide-to-austin)上表示他是“加密法律提案的支持者”，他还补充说：“得克萨斯州应该在这方面发挥带头作用”。
+
+喜交所创新的稳定币（Himalaya Coin’HCN’ ）和浮动币（Himalaya Dollar ‘HDO’）双币系统设计，系统设计有中心化的负责任方，采用去中心化区块链技术，喜币还是自上市以来价格波动是所有数字货币中最为稳定的。喜联储对客户KYC，施行全球最严苛审核，严格防止洗钱以及非法交易。
+
+喜币（HCN）数量限制，20%黄金和80%美元锚定，每年发行10亿个，一百年，共计1000亿个。
+
+喜交所最近推出的喜支付应用程序（Himalaya Pay），它具备低成本、高效、安全，缩短消灭支付需求主体之间的距离，无限增进人与人之间的信任。它超越国家主权，物理限制，给每一个人财务自由，人格独立和自由，开发人的智慧，从而解放人类生产力。
+
+参考链接：
+
+【1】[奥斯汀是下一个美国加密中心吗？官员批准区块链决议](https://cointelegraph.com/news/is-austin-the-next-us-crypto-hub-officials-approve-blockchain-resolutions)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+*编辑&发布：长岛开心*
 
  
 

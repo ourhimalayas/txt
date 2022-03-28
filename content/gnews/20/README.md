@@ -2,27 +2,31 @@
 ---
 
 
-## 中共病毒已致全球650万人死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244214/)
+## 秘翻新闻｜中共国内疫苗 粮食灾难将吞噬生命无数
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2244459/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/中共病毒已致全球650万人死亡.png)[图片来源](https://www.nippon.com/en/news/reu20210820KBN2FL0DX/)
-路透社统计,全球新冠肺炎（中共病毒）感染者超过4亿7934万人,死亡人数达到649万7252人。
+**By:[秘翻新闻](https://gettr.com/post/p12a1z7e318)**
 
-自2019年12月中国首次确诊病例以来,已在全世界210多个国家和地区报告感染病例。
+**2022-03-28**
 
-信息来源：
-[情報ＢＯＸ：新型コロナウイルス、世界の感染者4億7934万人超　死者649.7万人](https://jp.reuters.com/article/worldNews/idJPKCN2LP0DL)
+**新闻内容:**
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**1. 香港第5波疫情致七千多人死亡**
 
+**2.** **援建方舱医院的农民工完工后被非人道对待致集体感染**
+
+**3.** **中共国宣布最大规模城市——上海分阶段封锁**
+
+**4.** **乌克兰称切尔诺贝利的俄军或造成二次核扩散**
+
+**5.** **CDC数据：5-11岁儿童接种中共病毒疫苗后更易感染**
+
+**🔗Gettr链接：[https://gettr.com/post/p12a1z7e318](https://gettr.com/post/p12a1z7e318)**
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-328.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

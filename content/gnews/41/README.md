@@ -2,32 +2,35 @@
 ---
 
 
-## 俄防长久未公开露面 乌克兰称其心脏病发作
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241544/)
+## 美疾控中心：5-11岁儿童疫苗接种者更易感染病毒且感染率最高
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2242151/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据国外媒体3月26日报导，乌克兰内政部长25日推特发文称，俄罗斯国防部长绍伊古自3月中旬以来就没有出席公开活动，是因为他的心脏出现了问题。
+翻译与编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《网关专家》3月27日报道，**根据美国疾病控制中心（CDC）的最新数据，自开始收集数据以来，5-11岁接种疫苗的儿童的中共病毒感染率高于未接种疫苗的同龄人。在所有年龄组中，他们的感染率是全美最高。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-14-at-3-e1648426538319.jpg)图片来源：网关专家。
+报道指出，在几个月前批准了针对5岁儿童的中共病毒疫苗后，虽然**有许多证据表明这种疫苗会促进病毒在他们中间的传播，但美国专制的公共卫生机构仍在推进其接种计划，甚至为更小的儿童接种疫苗。**
 
-据悉，绍伊古已经连续12天未公开露面，直到24日才出现在俄国的电视屏幕上，显示他正坐在角落参加普京召开的视频会议，但画面仅持续了几秒钟，有些闪烁，而且没有任何声音。此前，有传言称绍伊古因进攻乌克兰出师不利受到了普京的处分。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-92.jpg)
-克里姆林宫发言人培斯科夫在简报中迅速否认了绍伊古身体有恙的传闻，并称其正在忙于处理特殊军事行动。
+最令人担忧的是，关于**5-11岁儿童**的最新数据显示，在所有其他接种疫苗的年龄组中，他们的**感染率全美最高，但是美国联邦政府还在持续推动为越来越小的儿童接种疫苗。**
 
-事实上，不只绍伊古，俄武装部队总参谋长瓦列里·格拉西莫夫自3月11日之后也未再公开现身，引发了诸多猜测。俄罗斯总参谋部情报总局局长科斯秋科夫也被爆出健康状况恶化。
+**此前，美国疾控中心已经承认，中共病毒不能阻止病毒的传播，**但是福奇领导的公共卫生机构**所谓专家们正准备授权进行第四针加强针，并努力为婴儿和幼儿的疫苗开绿灯。**
 
-分析人士称，无论在战场上还是在国内，俄罗斯高层状况频出，有可能迫使普京采取更为极端的措施。
+据报道，在不到一年半的时间里，VAERS已经记录了超过一百万例mRNA 疫苗的不良副作用，**包括超过2万6000例死亡，1万4827例铃音麻痹，3万7133例心肌炎/心包炎，以及4万8342例永久性残疾报告，**等等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FOupOfmVkAA2QcV.jpg)2022年3月的心肌炎病例数量是2021年全年的一半以上。（openvaers.com）
+据世界上有良心的、真正的专家们在这几个月来一直警告，**mRNA疫苗是有史以来向公众推行的最危险的疫苗。**报告的数量，特别是那些严重的报告，是一个令人震惊的数字，对任何其他疫苗来说都是前所未有的。
 
-参考链接：[俄國防長久未公開露面 烏克蘭官員稱他心臟病發](https://www.cna.com.tw/news/aopl/202203260025.aspx)
+有消息称，**在过去，如果疫苗与两位数的死亡有关，就会被撤下隐瞒，更不用说数以万计的死亡。**
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+新闻来源链接：
 
-总编：飞虹
-编辑：飞虹
-审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[Latest CDC Data Shows That Vaccinated Children Aged 5-11 Are Now MORE Likely to Catch Covid Than Their Unvaccinated Peers (thegatewaypundit.com)](https://www.thegatewaypundit.com/2022/03/latest-cdc-data-shows-vaccinated-children-aged-5-11-now-likely-catch-covid-unvaccinated-peers/)
 
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

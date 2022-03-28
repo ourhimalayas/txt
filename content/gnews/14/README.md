@@ -2,17 +2,23 @@
 ---
 
 
-## 新中国联邦得天助，做事情要抓重点（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2244435/)
+## 樱花FM|中日财经爆：纽约联储总裁看好稳定币！
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2244551/)
 
-**PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-50-9-002-二-scaled.jpg)
-发布：tianzhihuan
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-5-8.png)
+美国纽约联邦储备银行行长威廉姆斯3月22日，就数字货币发表了他的看法。他说：“如果它被设计成与主要货币和黄金挂钩，且价格稳定，并受到适当监管，那将是有益的”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+在国际清算银行（BIS）主办的关于数字货币的小组讨论中，”稳定币可以在跨境支付中发挥非常有用的作用。这项技术也可用于一般的批发支付”。同时需要适当的法规来保护消费者和投资者。
+
+在回答有关其他加密资产（虚拟货币）的问题时，他表示，这些资产从根本上是有缺陷的。
+
+文字版原文：[中日财经爆▏纽约联储总裁看好稳定币！](https://gnews.org/zh-hans/2215478/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
 
  
 

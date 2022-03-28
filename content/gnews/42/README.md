@@ -2,30 +2,35 @@
 ---
 
 
-## 日本高官提出改革联合国安理会的要点
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241537/)
+## 美财长耶伦赞同加密货币的创新称需要被监管
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-当地时间3月27日，日本官房副长官木原先生接受日本媒体采访时表示，联合国安理会需要进行改革，尤其是在常任理事国的“一票否决权”上的改革。
+翻译与编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
+据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
 
-在3月23日于日本国会发表的视频演讲中，乌克兰总统泽连斯基指出，联合国安理会没有在这场侵略中完成应有的使命。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-91.jpg)
-木原副官房长官指出联合国安理会的改革需要做到以下三点：第一，增加常任理事国的数量；第二，同时增加非常任理事国的数量；第三，需要限制一票否决权的滥用。
+周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
 
-他还表示，俄罗斯作为本月的安理会轮值主席国，非但没有尽到保护和平的职责，还向世界展示了其意图进行领土扩张的野心。在这种情况下全世界应当考虑，限制常任理事国在安理会表决中进行一票否决的效力。
+她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
 
-参考链接：[20220327日本富士電視台](https://www.gettr.com/post/p124g4v408f)
+她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
 
-总编：飞虹
-编辑：飞虹
-审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
 
+新闻来源链接：
+
+[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

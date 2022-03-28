@@ -2,33 +2,26 @@
 ---
 
 
-## 疫情｜日本解禁后首个周末 各地确诊数明显上升
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2243765/)
+## 中共病毒已致全球650万人死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244214/)
 
-**图/文：CP**
-**发布时间｜28/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本解禁後首個週末-各地確診數明顯上升.jpg)
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/中共病毒已致全球650万人死亡.png)[图片来源](https://www.nippon.com/en/news/reu20210820KBN2FL0DX/)
+路透社统计,全球新冠肺炎（中共病毒）感染者超过4亿7934万人,死亡人数达到649万7252人。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+自2019年12月中国首次确诊病例以来,已在全世界210多个国家和地区报告感染病例。
 
+信息来源：
+[情報ＢＯＸ：新型コロナウイルス、世界の感染者4億7934万人超　死者649.7万人](https://jp.reuters.com/article/worldNews/idJPKCN2LP0DL)
 
-昨日（27日）是日本全面解除防疫限制后的首个周末，各地旅游景点人头涌涌，惟疫情仍未平息，东京都、大坂府、冲绳县等地新增确诊病例均高于上个周日，其中以冲绳疫情恶化最为明显，每10万人口染疫数连两天居全国之冠。
-
-NHK报道，东京都新增7,844宗确诊，较上周日增加1,300多宗，另新增9人死亡。东京都重症患者较前一天增加1人，为36人。都内累计122万749宗确诊。邻近东京都的埼玉县新增3,939宗确诊，较上周日增600多宗，至今累计病例数41万4,203宗，包括1,356人死亡。
-
-大坂府新增3,493例，较上周日多约580例，累计78万1,081例，包括4,606人死亡。大坂府重症患者跟前一天一样，同为96人。
-
-冲绳县最近疫情恶化速度较快，周日新增838例，连续3天单日新增逾800例，较上周日增加161例，至今累计病例数11万8,843例。驻冲绳美军基地群组新增16例，至今累计1万1,400例。
-
-冲绳县是第一个进入第6波疫情的县，也提早其他地方解除“防止蔓延等重点措施”。县政府指，3月下旬到4月上旬国内人潮移动将变为频繁，“将进入全国性感染增加的局面”。
-
-日本全国每10万人口染疫数平均213.28人，冲绳县以330.01人连两天居各地之冠，东京都以317.29人次之、埼玉县以296.13人排名第3；茨城县与神奈川县分居第4名及第5名。
-
-**來源｜**[**NHK**](https://www3.nhk.or.jp/news/html/20220327/k10013554741000.html)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
