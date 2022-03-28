@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 11:41 PM (UTC)`
+
+2022.03.28《The Fringe》 Episode 156
+![img](https://media.gettr.com/group42/origin/2022/03/28/23/ffdd9a4f-d45c-a653-ee0e-d8927cd014b6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/28/2022 11:12 PM (UTC)`
 
 3/27/2022 Miles Guo: Fellow fighter, Jing Liang, talks about his feelings of interviewing the Ukrainian refugees and giving warmth to the refugee children. The NFSC & ROLF Ukraine rescue let us Chinese people show the world a new image of us. Despite the threats from the war, fellow fighters on the front line are practicing the humanitarian spirit with their sincerity and strengths, and their morale remains very strong!<br/><br/>3/27/2022 文贵直播：精糧战友谈采访乌克兰难民和为难民孩子送温暖的感受；新中国联邦法治基金救援让我们华人向世界展示了新的形象；前线的战友们冒着战火的威胁，用真心和实力在践行着人道精神，士气不减！<br/>
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月27日第23天当日救援统计：<br/>Medyka救援站接待：约31人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7565人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 23 - Date: March 27, 2022 :<br/>Medyka Rescue Station Reception: about 31 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7565 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group46/getter/2022/03/28/08/e3fa0916-4874-9492-89c2-aac69f1fd94f/6a1902b59fb52c33b276d6c09d721d1f.jpg)
-
----
-
-`@miles 3/28/2022 7:44 AM (UTC)`
-
-3/27/2022 Miles Guo: Although Biden did not directly differentiate between the CCP and the Chinese people in his speech, many things he said were implicitly targeted at Communist China and differentiating Russia from Putin is a good thing for the Chinese people. I believe that most of the CCP members are good people. The right decisions must be based upon logic and common sense. The problem of the CCP is that it no longer has a proper understanding of the world.<br/><br/>3/27/2022 文贵直播：拜登演讲虽未直接提到区分中共和中国人，但他有很多话是暗中针对中共国的，区分俄罗斯和普京对中国人是好事；文贵相信绝大多数中共党员是好人；正确的决策要基于逻辑和常识，中共的问题在于其失去了对世界的正确认识<br/>
-![img](https://media.gettr.com/group40/getter/2022/03/28/07/0033ca37-ac8d-2c40-bf44-55f7bdb1af7b/out.jpg)
 
 ---
 
