@@ -2,25 +2,37 @@
 ---
 
 
-## 加拿大安省將保持疫情限製措施的解除狀態
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242304/)
+## 有声|中共必打台湾 俄乌之战促习速战
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2242468/)
 
-作者：加拿大溫哥華揚帆農場 – 文萊 – 晨熹
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在2022年3月23日大直播中，郭文贵先生指出，台湾海峡最近的频发地震，让他怀疑这是中共的诡计。因为他几年前就曾听中共军方说过，只需要人为制造几次地震就可以攻下台湾，如果震级超过7.8级就可以彻底毁掉台湾岛。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-470.jpeg)
+郭先生提到，2007年习近平还没当总书记的时候，就曾明确谈到他对台湾的态度，表示台湾问题必须在他的任期内解决。能谈就不打，能少打不多打，但台湾必须要收回。习还特别提到，如果有外国势力干预，他宁可让台湾沉默也不能让台湾成为美国永不沉没的航空母舰，不能让台湾成为美国的第51个州。
 
-據加拿大【後千禧年】3月26日報道，安大略省長福特當天表示，盡管新冠病毒感染人數持續變化，但其政府將繼續保持各項衛生限製措施的解除狀態，直至疫情可能再次惡化為止。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3326.png)圖片來源：TPM
+郭先生表示他很了解习的个性，到目前为止习从来没有改变对台湾的态度。郭先生得到情报称，俄乌开战后，习喜出望外，他表示俄乌之战给攻打台湾提供了样板，证明要攻打台湾必须要速战狠战。
 
 
-福特以上言論是專門針對日前發布的[安省廢水監測數據報告]而作出的。該報告結果明確顯示：近期安大略區域內的新冠病毒傳播程度不僅日益增強，而且還出現了大量新的病毒變體。
 
-對此，流行病專家博格奇醫生警告稱：盡管安省大部分人都已完全接種了疫苗，但這並非意味著疫情已經結束，特別是新的奧密克戎病毒在過去三個月內的廣泛傳播，都凸顯疫情限製措施的重要性。
+文字版原文：[中共必打台湾 俄乌之战促习速战](https://gnews.org/zh-hans/2238223/)
 
-校對編輯：硫酸羥氯喹64
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-發稿：青青
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新聞來源： [https://thepostmillennial.com/ford-has-no-plans-to-reimpose](https://thepostmillennial.com/ford-has-no-plans-to-reimpose)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

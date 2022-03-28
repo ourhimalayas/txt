@@ -2,25 +2,41 @@
 ---
 
 
-## 首都渥太华再现反疫苗政策抗议行动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242363/)
+## 有声|法国、土耳其、希腊将在马里乌波尔展开人道救援
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2242507/)
 
-作者：加拿大温哥华扬帆农场 – 青青 – 文明(添草灭共)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据国外媒体3月25日报导，法国总统马克龙日布鲁塞尔欧盟峰会后表示，法国将与希腊和土耳其联手展开人道救援行动，从被俄军攻击的马里乌波尔市撤出所有希望离开该市的民众。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-68.png)
+马克龙称，他将在48到72小时内与俄罗斯总统普京展开讨论，以敲定细节和执行方案。他表示希望能救出尽可能多的人，并在几天内尽快开始撤离。
 
-据加拿大【ctv新闻】3月26日报道，在特鲁多政府的皇家骑警将反疫苗护照运动的卡车司机们驱离首都的一个多月后，大量抗议者在当天又再次返回并集结在渥太华市中心。
+马克龙说，法国官员与马里乌波尔市长通话后得知，还有15万人被困在市内，情况危急。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3330.png)图片来源：ctvnews
+马里乌波尔市政府则表示，该市已经有2000余人丧命于战火。
+
+据悉，俄罗斯试图将被其吞并的克里米亚半岛与东部由莫斯科控制的地区连接起来，因此将这座港口城市作为了其对乌克兰残酷打击的主要焦点。
 
 
-报道称，数百辆来自魁北克的汽车在市中心缓缓绕行，鸣笛抗议。 本次示威活动的组织者表示，在所有不合理的疫情限制措施被当局取消之前将不会离开渥太华。
 
-据悉，尽管自由党政府计划在4月底前取消所有的卫生防疫限制，但在全国范围内没有疫苗护照仍然不能自由地旅行，而且所有未接种疫苗的大学生都将继续被拒绝进入校园。 渥太华警方当天表示，大约有300辆参与示威活动的汽车穿过主要市区街道，但目前尚未出现与抗议活动发生冲突的相关报道。
+文字版原文：[法国、土耳其、希腊将在马里乌波尔展开人道救援](https://gnews.org/zh-hans/2238235/)
 
-校对编辑：硫酸羟氯喹64
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-发稿：青青
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接： [https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342](https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
