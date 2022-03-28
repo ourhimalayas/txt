@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 10:49 PM (UTC)`
+
+【Ukraine Rescue】03/27/2022 Little Sara reported that people were taking care of stray dogs at the rescue camp. Whoever came there, people or dogs, got help. This showed the greatness of humanity. She hopes people could show the same love if CCP invades Taiwan and disasters take place.<br/><br/>【乌克兰救援】03/27/2022 小Sara报道，梅迪卡营地有人在战乱中不忘救助流浪狗。人和狗都得到了关怀，显示了人性的光辉。希望如果中共侵略台湾造成灾难，人们也能展现相同的爱心。<br/><br/>
+![img](https://media.gettr.com/group17/getter/2022/03/28/22/7224aa8d-90ed-4d16-7c65-eab31e924930/out.jpg)
+
+---
+
+`@miles 3/28/2022 10:41 PM (UTC)`
+
+3/27/2022 Miles Guo: The new vest that I designed for the NFSC & ROLF Ukraine rescue operation has not only effectively distinguished the Chinese from the CCP, but also has attracted a great deal of attention from the refugees and other volunteers in Medyka. Fellow fighters wearing the vest have built up the image of the citizens of the New Federal State of China on the international stage. How powerful their back view is!<br/><br/><br/>3/27/2022 文贵直播：文贵为新中国联邦乌克兰救援行动设计的新马甲不仅把中国人和中共有效地区分开来，而且还引起梅迪卡的难民和其他志愿者的极大关注；穿马甲的战友们在世界舞台上建立了新中国联邦人的形象，他们的背影是多么的有力！<br/>
+![img](https://media.gettr.com/group49/getter/2022/03/28/22/634840cd-e462-1317-ee1a-e70c7cef41a6/out.jpg)
+
+---
+
 `@miles 3/28/2022 10:25 PM (UTC)`
 
  3月28号：衷心地感谢所有在乌克兰战场前线兄弟姐妹们的付出和辛苦。你们今天做的一切！都是在拯救生命和拯救华人在世界上的形象和我们孩子的未来。
@@ -145,20 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group16/origin/2022/03/28/04/30c591c0-c9ca-3c59-f99a-a9b2c0c75f88/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/28/2022 4:45 AM (UTC)`
-
-3/27/2022 Miles Guo: The preparatory committee for the second anniversary of the founding of the New Federal State of China was officially formed today!<br/><br/>3/27/2022 文贵直播: 新中国联邦成立两周年纪念活动筹备委员会于今天正式成立！<br/><br/>
-![img](https://media.gettr.com/group9/getter/2022/03/28/04/2bfb8dbd-0392-88f8-132a-2837beb68d61/out.jpg)
-
----
-
-`@miles 3/28/2022 4:41 AM (UTC)`
-
-3/27/2022 Miles Guo: The vast majority of the CCP members are good people. It is the CCP’s evil system that must be taken down! The CCP’s system only serves the personal benefits of only a handful of people, and it has destroyed the environment for people to dwell and fails to provide good education, causing the lack of faith and the deterioration of social atmosphere.<br/><br/>3/27/2022 文贵直播: 大部分中共党员是好人，而要灭的是中共的邪恶体制！这个体制只服务于少数人的私利，破坏了人们的生存环境，不提供良好的教育，让人们信仰缺失，败坏了社会的风气<br/>
-![img](https://media.gettr.com/group17/getter/2022/03/28/04/b1117182-1670-b11b-0614-d88bc902a624/out.jpg)
 
 ---
 
