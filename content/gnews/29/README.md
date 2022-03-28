@@ -2,35 +2,41 @@
 ---
 
 
-## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
+## 文•贵天成——文贵先生谈“G-Club”（二十一）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2244681/)
 
-图文/zhong｜28/3/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-## 美国“国家民主基金会”访台
+整理： BENJ1
+编辑：李易通
 
-台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043-2.jpg)图片来源：雅典娜设计组
 
 
-> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
-> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
+郭文贵先生2021年8月9日直播
 
+你们不懂G-Fashion，不懂G-Club，没有人能解释的透彻。我们的行为不是个商业的结果，我们的商业行为不是以赚钱为目的的。
 
+什么叫国家？告诉我国家代表什么？第一个，强大的军队、强大的财富能力、强大的行动组织能力。什么叫国家？这是国家。什么叫经济？经济是干什么？经济是建立在强大的信用和强大的流通以及和人民相互之间能产生的剩余价值和物质流通这么一个重要的工具，但是它需要信用，它需要强大的政治实力作为后盾，这样经济才能安全。
 
-威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
+什么叫文化？文化就是对事物的统一认识和对事物真相的高质量认知，同时让你能找到愉悦、能找到未来、能找到快乐。文化可以告诉你你是从哪来的，你现在是谁，你未来去向哪里。
 
-外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
+最后就是宗教，宗教就是告诉你你未来能去哪，你现在怎么做，你未来能去哪；文化告诉你你过去从哪来的——历史，你现在是谁你在干什么。现在就是当下，未来你能去哪，文化上给你很多的认知、常识、善恶的辨别。
 
-## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
+所以国家的权力是整个一个国家认可的最高的执行力和国防安全给你安全的和所谓的法治给你安全保证的一个权力。经济是给你物质交流，人与人交流、物质交流和最高的质量和信用和生产力的保证的一个方式、一个工具。而文化告诉你你是谁，你在干什么，你未来能去哪，信仰就是你现在做什么你未来去哪。
 
-[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
+G-Club和G-Fashion是在干什么？它综合以上我们新中国联邦必须要拥有的东西，你过去是谁？你现在是谁、在干什么？你未来会去向何方？然后它给你提供国家级的安全和保障，让你的生产力和财富得到高质量的保护和成为你所方便使用的工具。然后会告诉你你这样做，你的尊严、体面都会得到实现后，你会去向何方，它是其中最重要的一环。
 
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
+当你有了我们爆料革命、新中国联邦这样的平台以后，你就会把我的过去、很多战友的过去、资源、金钱、能力、信息放在一起，它是最大的力量。
 
-* * *
+那这个平台是什么？就是G系列——整合所有全球和你有共同价值观、共同信仰的、共同的一个人生目标、同样的世界观和人生观的人，整合到一个平台上共同享有所有人的资源，你说它有多大？它叫G-Club、G-Fashion。
 
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+资料来源：郭先生GTV、盖特直播
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

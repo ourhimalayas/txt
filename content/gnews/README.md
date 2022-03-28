@@ -15,100 +15,100 @@
 
 ---
 
-### [有声｜中共严控东航空难家属 3人监视一个家庭](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [已到不接触式战争方式 中共还有机会吗](/content/gnews/2/README.md)
+### [愚人者愚天下者必被天下「狱」](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [有声｜香港第5波疫情致七千多人死亡](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [狮城快讯: 李显龙对美国进行八天的工作访问](/content/gnews/2/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [这场战争美国是最大赢家，中国一定会解体](/content/gnews/4/README.md)
- ` G-NEWS TAIWAN`
+### [俄罗斯高技术人才因入侵乌克兰而逃离该国](/content/gnews/3/README.md)
+ ` 温哥华扬帆农场`
 
-### [自我独立与尊重别人是民主的基础](/content/gnews/5/README.md)
- ` 银河歌舞厅`
+### [樱花时政┃参议员卢比奥揭示了俄罗斯使用生化武器的“最可能”情况](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GCLUB是走向未来的通行证](/content/gnews/6/README.md)
- ` G-NEWS TAIWAN`
+### [狮城快讯：美欧推动G20排斥俄罗斯，印尼政府态度暧昧](/content/gnews/5/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [秘翻在线：防疫“优等生”上海因疫情爆发进行“压茬推进”式管控](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
+### [视频|我们在做本应由中国政府做的事情](/content/gnews/6/README.md)
+ ` MOSVIDEO`
 
-### [大疆否认俄军方在乌克兰使用自己的无人机](/content/gnews/8/README.md)
- ` Shuizhuyu`
-
-### [财富的本质属性是财富的正义性](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果](/content/gnews/10/README.md)
+### [【G时新闻】普京可能试图强加乌克兰“朝鲜和韩国”企图](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [秘翻在线：世界在俄乌战事的影响下所面临的粮食危机](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
+### [奥密克隆株感染深刻的后遗症，导致6成患者休职](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [炮火中的葬礼](/content/gnews/12/README.md)
+### [有声｜中共国宣布最大规模城市——上海分阶段封锁](/content/gnews/9/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【G时新闻】埃隆·马斯克考虑采取行动对付推特](/content/gnews/10/README.md)
+ ` G-时新闻`
+
+### [有声｜香港第5波疫情致七千多人死亡](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [自我独立与尊重别人是民主的基础](/content/gnews/12/README.md)
  ` 银河歌舞厅`
 
-### [英国将在未来几周内公布加密货币监管计划](/content/gnews/13/README.md)
+### [秘翻在线：防疫“优等生”上海因疫情爆发进行“压茬推进”式管控](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果](/content/gnews/14/README.md)
+ ` G-时新闻`
+
+### [炮火中的葬礼](/content/gnews/15/README.md)
+ ` 银河歌舞厅`
+
+### [英国将在未来几周内公布加密货币监管计划](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：如果你不好意思说被裁员了 那就说毕业了](/content/gnews/14/README.md)
+### [秘翻在线：如果你不好意思说被裁员了 那就说毕业了](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲政府扩大首次置业者担保计划](/content/gnews/15/README.md)
+### [澳洲政府扩大首次置业者担保计划](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [新疆再教育营与纳粹集中营一样，是种族灭绝营](/content/gnews/16/README.md)
- ` 历史组`
-
-### [澳洲拟消减燃油税六个月，缓解生活成本上升压力](/content/gnews/17/README.md)
+### [澳洲拟消减燃油税六个月，缓解生活成本上升压力](/content/gnews/19/README.md)
  ` 走进澳洲`
 
-### [视频|曾经的“战斗民族”开始在“颤抖”-晓理定制「脱敏」](/content/gnews/18/README.md)
- ` 爆料视频`
-
-### [直播的无限魅力](/content/gnews/19/README.md)
+### [直播的无限魅力](/content/gnews/20/README.md)
  ` 银河歌舞厅`
 
-### [심근염 환자의 50%는 백신 접종 후 5년 이내에 사망](/content/gnews/20/README.md)
+### [심근염 환자의 50%는 백신 접종 후 5년 이내에 사망](/content/gnews/21/README.md)
  ` 祁明`
 
-### [朗诵佳作欣赏《不自由，毋宁死》](/content/gnews/21/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [普习合作无上限](/content/gnews/22/README.md)
- ` 祁明`
+### [日本东京樱花团 中文新闻播报第35期](/content/gnews/22/README.md)
+ ` Tokyo Sakura Video Group`
 
 ### [岸田首相在日本防卫大学毕业典礼上对毕业生训示，入侵乌克兰是 &#8220;取决于事态发展是战后最大的危机&#8221;](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022/03/23 著名网球运动员拉斐尔呼吸困难、身体疼痛](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [上海今天开始封城❗️❗️](/content/gnews/25/README.md)
+### [上海今天开始封城❗️❗️](/content/gnews/24/README.md)
  ` mayflowertranslate`
 
-### [秘翻在线:饥荒近在眼前](/content/gnews/26/README.md)
+### [秘翻在线:饥荒近在眼前](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西方真正的软实力叫做信仰](/content/gnews/27/README.md)
+### [西方真正的软实力叫做信仰](/content/gnews/26/README.md)
  ` 银河歌舞厅`
 
-### [大选前通货膨胀加剧，澳大利亚总理面临预算考验](/content/gnews/28/README.md)
+### [大选前通货膨胀加剧，澳大利亚总理面临预算考验](/content/gnews/27/README.md)
  ` 走进澳洲`
 
-### [台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会](/content/gnews/29/README.md)
+### [台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会](/content/gnews/28/README.md)
  ` 關注組`
 
-### [文•贵天成——文贵先生谈“G-Club”（二十一）](/content/gnews/30/README.md)
+### [文•贵天成——文贵先生谈“G-Club”（二十一）](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽连斯基表示，愿意在顿巴斯地区与俄罗斯达成妥协](/content/gnews/31/README.md)
+### [泽连斯基表示，愿意在顿巴斯地区与俄罗斯达成妥协](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：直播是每个战友用生命和时间在救助还未觉醒的人](/content/gnews/32/README.md)
+### [大直播后记：直播是每个战友用生命和时间在救助还未觉醒的人](/content/gnews/31/README.md)
+ ` 雅典娜GNotes`
+
+### [大直播后记：我们就是消灭共产党的新中国联邦人](/content/gnews/32/README.md)
  ` 雅典娜GNotes`
 
 ### [秘翻新闻｜中共国内疫苗 粮食灾难将吞噬生命无数](/content/gnews/33/README.md)
