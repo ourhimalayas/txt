@@ -15,61 +15,61 @@
 
 ---
 
-### [20220327郭文贵大直播 ：拜登演讲未区分共产党与中国人 拜登整个政治生涯都没对中国友好过](/content/gnews/1/README.md)
+### [20220327郭文贵大直播 ：新中国联邦两周年纪念活动正式启动](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220327郭文贵大直播 ：美国尝试了所有错误选项后 只剩下灭共唯一选择](/content/gnews/2/README.md)
- ` Tokyo Sakura Video Group`
-
-### [西媒头条 — 第197期](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [3/28/2022国际财经快讯：俄罗斯每周石油出口下降 26%；英国下令审查公共部门俄罗斯能源合同](/content/gnews/4/README.md)
- ` 秘密翻译组金融团队`
-
-### [20220327郭文贵大直播 ：中国政府不要脸 百姓如猪狗 请珍惜新中国联邦](/content/gnews/5/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|迪拜即将推出一亿美元的数字资产基金](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [乌克兰人民呼吁抵制国际红十字委员会](/content/gnews/7/README.md)
- ` 日本东京方舟农场`
-
-### [特鲁多先生：你是任何民主国家的耻辱！请不要让我们看到你出现（在这里）](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [20220327郭文贵大直播 ：美国有绝对的科技经济和军事实力碾压俄罗斯，对ccp更不在话下](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [柬埔寨首相谴责俄罗斯入侵乌克兰是 “侵略行为&#8221;](/content/gnews/10/README.md)
- ` 波士顿五月花农场金融部`
-
-### [20220327郭文贵大直播 ：世界格局将大变，美国会是最大赢家，中俄必将解体，日本重新回到世界大国行列，联合国会重组](/content/gnews/11/README.md)
- ` Tokyo Sakura Video Group`
-
-### [大直播后记：郭先生谈西藏歌手才旺](/content/gnews/12/README.md)
+### [大直播后记： 美国作出无人能改变的决定](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|美众议院推出取消中共国永久最惠国待遇法案](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [20220327郭文贵大直播 ：灭共后中国的环境污染有救](/content/gnews/14/README.md)
+### [20220327郭文贵大直播 ：GCLUB会员是所有被害同胞的希望](/content/gnews/3/README.md)
  ` Tokyo Sakura Video Group`
 
-### [美国及世界疫情简报（03-28-2022）](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
+### [20220327郭文贵大直播 ：能源制约欧洲已成过去 重亚轻欧无皇有主的时代正时到来](/content/gnews/4/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [因疫情严峻 上海无预警“分区分批封控”](/content/gnews/16/README.md)
+### [大直播后记：新能源和无皇有主的时代](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20220327郭文贵大直播 ：拜登演讲未区分共产党与中国人 拜登整个政治生涯都没对中国友好过](/content/gnews/6/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220327郭文贵大直播 ：美国尝试了所有错误选项后 只剩下灭共唯一选择](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [西媒头条 — 第197期](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [3/28/2022国际财经快讯：俄罗斯每周石油出口下降 26%；英国下令审查公共部门俄罗斯能源合同](/content/gnews/9/README.md)
+ ` 秘密翻译组金融团队`
+
+### [20220327郭文贵大直播 ：中国政府不要脸 百姓如猪狗 请珍惜新中国联邦](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声|迪拜即将推出一亿美元的数字资产基金](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [乌克兰人民呼吁抵制国际红十字委员会](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [有声|七国集团阻止俄罗斯出售黄金储备](/content/gnews/17/README.md)
+### [特鲁多先生：你是任何民主国家的耻辱！请不要让我们看到你出现（在这里）](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [20220327郭文贵大直播 ：美国有绝对的科技经济和军事实力碾压俄罗斯，对ccp更不在话下](/content/gnews/14/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [大直播后记：郭先生谈西藏歌手才旺](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|美众议院推出取消中共国永久最惠国待遇法案](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月25日晚](/content/gnews/18/README.md)
- ` MOSREC`
+### [美国及世界疫情简报（03-28-2022）](/content/gnews/17/README.md)
+ ` 波士顿五月花农场`
 
-### [有声|GClubs年会共襄盛举 律师战友获终极大奖](/content/gnews/19/README.md)
+### [因疫情严峻 上海无预警“分区分批封控”](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|七国集团阻止俄罗斯出售黄金储备](/content/gnews/19/README.md)
  ` MOSREC`
 
 ### [题目：俄罗斯因兵源缺乏招募“真主党”雇佣兵](/content/gnews/20/README.md)

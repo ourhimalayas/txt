@@ -2,33 +2,57 @@
 ---
 
 
-## 有声|美众议院推出取消中共国永久最惠国待遇法案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246687/)
+## 特鲁多先生：你是任何民主国家的耻辱！请不要让我们看到你出现（在这里）
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2246761/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-周二3月22日，美国共和党众议员Chris Smith宣布，他联合两党议员Tom Tiffany和Tom Suozzi推出一项法案，旨在取消中共国的永久贸易最惠国待遇。
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+在请Christine Anderson女士发言，提出她的观点。谢谢。
 
-据悉议员Chris Smith长期关注中共国的人权问题，他推出这项法案意在惩治中共国犯下的人权暴行，特别是对新疆维吾尔族和其他中亚少数民族持续进行的种族灭族和强迫劳动等罪恶行径。
+基于第195条，我想指出，加拿大总理特鲁多先生根据第144条（欧洲议会议事规则第144条：关于违反人权、民主和法治的辩论）在本议会发言更合适。
 
-该项法案要求把中共国贸易优惠待遇和其人权状况挂钩，美国总统必须每年证实中共国在改善人权做出了努力，才会给予中共正常的贸易优惠政策，否则不允，甚至取消。
+这一条是专门用来辩论侵犯人权、民主和法治的行为的，而特鲁多先生显然就是这样。一个公开钦佩中国独裁制度的总理，一个践踏基本权利，仅仅因为自己的公民敢于站出来反对他变态的民主概念，就把他们当作恐怖分子来迫害和定罪的总理，根本就不应该被允许在议会里发言。
 
-俄罗斯入侵乌克兰后，拜登总统宣布取消俄罗斯的永久正常贸易待遇。本月早些时候，美国共和党议员Tom Cotton、Jim Inhofe和Rick Scott曾在参议院提出取消中共国永久性正常贸易关系的法案。
+特鲁多先生，你是任何民主国家的耻辱，请不要让我们看到你出现（在这里），谢谢。
 
-文字版原文：[美众议院推出取消中共国永久最惠国待遇法案](https://gnews.org/zh-hans/2234985/)
+翻译注：翻译为 “一个公开钦佩中国独裁制度的总理”
 
-音频处理：Fei797
-发稿：Fei797
+素材提供：文倩
+软件听写：蓝色天空
+听写校对：小白咖啡馆
+文稿翻译：小白咖啡馆
+翻译校对：啊啊小苹果
+字幕添加：小白咖啡馆
+最终审核：文倩
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+编辑上传：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多加拿大溫哥華揚帆農場的頻道，請關註：
+
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
+
+更多加拿大溫哥華揚帆農場的頻道，請關註：
+
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
