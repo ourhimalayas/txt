@@ -15,29 +15,29 @@
 
 ---
 
-### [乌克兰：哈尔科夫附近的马拉罗汉村被收复](/content/gnews/1/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [G7拒绝以卢布购买俄天然气！](/content/gnews/2/README.md)
- ` 加拿大温哥华英里农场`
-
-### [俄原油出口跌至八个月最低](/content/gnews/3/README.md)
- ` 加拿大温哥华英里农场`
-
-### [拜登波兰演说七大指向-战犯](/content/gnews/4/README.md)
+### [美国总统拜登在周六讲话：俄罗斯总统普金不应该继续掌权](/content/gnews/1/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [印度买完800万桶俄原油，又加大进口俄煤炭](/content/gnews/5/README.md)
+### [普京尚未准备好在和平谈判前妥协](/content/gnews/2/README.md)
+ ` Shuizhuyu`
+
+### [乌克兰：哈尔科夫附近的马拉罗汉村被收复](/content/gnews/3/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [联合国秘书长强烈谴责也门冲突升级](/content/gnews/4/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [G7拒绝以卢布购买俄天然气！](/content/gnews/5/README.md)
  ` 加拿大温哥华英里农场`
 
-### [乌克兰驻美大使：为了获胜，我们需要源源不断的物资支持](/content/gnews/6/README.md)
+### [拜登波兰演说七大指向-战犯](/content/gnews/6/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [乌克兰驻美大使：为了获胜，我们需要源源不断的物资支持](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌克兰驻美大使：俄罗斯对乌克兰的入侵是残暴的种族灭绝行为](/content/gnews/7/README.md)
+### [乌克兰驻美大使：俄罗斯对乌克兰的入侵是残暴的种族灭绝行为](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [东莞文具龙头企业倒闭，产品曾占全球60%份额](/content/gnews/8/README.md)
- ` 加拿大温哥华英里农场`
 
 ### [《乌克兰游艇法案》是为了让俄罗斯寡头们对抗普京](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
