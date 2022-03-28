@@ -2,21 +2,44 @@
 ---
 
 
-## 2022年3月28日《樱花快报》：上海中共病毒爆发 紧急封城！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242479/)
+## 新移民大放异彩的国度：美国
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2242974/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220328快报.jpg)
+作者：纽约香草山农场教育部-马克文、朱丽叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://static01.nyt.com/images/2015/09/24/opinion/24downesWEB/24downesWEB-master1050.jpg)（JIM WILSON/THE NEW YORK TIMES）
+美国是个移民国家，是世界上民族和文化最多元的国家之一，每年有大量来自世界各地的移民来追求他们的美国梦，故美国有“民族大熔炉”之称。
+
+美国《独立宣言》宣告：“所有人，生而平等，并享有生命、自由和追求幸福的权利”。美国是一个民主、自由和机会平等的国家，任何人都有可能靠自己的努力迈向人生巅峰，而不必靠攀附权贵。
+
+美国历史上有几例新移民获得巨大成功的典型实例：
+
+1）埃隆·马斯克，1971年6月28日出生于南非，后移民美国。马斯克曾就读宾夕法尼亚大学和斯坦福大学，他创办了网络软件公司，X.com公司（后与其它公司合并为PayPal）。2002年马斯克创办SpaceX，该公司主要负责太空运输与航天制造。之后，马斯克成为特斯拉汽车公司的合伙人。2006年-2016年，他创立了太阳能、人工智能、神经科技等领域的公司。在2021年成为《时代》杂志年度风云人物，同时《福布斯》宣布马斯克已成为史上最富有的人，2022年2月马斯克入选美国国家工程院院士。乌克兰战争期间，马斯克为乌克兰方提供星链通讯服务。马斯克评价自己的成功：“要不是来美国，我肯定做不到”
+
+2）杨致远 1968年11月6日出生于中华民国台北市，10岁时与父母移民美国加州。杨致远毕业于斯坦福大学，是著名搜索引擎yahoo雅虎创始人，根据2005年《福布斯》杂志的统计，他的个人财富居世界第228位。
+
+3）阿诺·施瓦辛格 1947年7月30日出生于奥地利。1968年阿诺·施瓦辛格移居美国，在威斯康辛州立大学毕业，早期从事健身事业，后成为美国著名电影演员，他最著名的电影是1984年的《终结者》。2003年成为美国加州州长。 郭文贵先生评价说，今天美国取得经济科技世界第一的成就，80%都是新移民创造的。全世界优秀人才都涌向美国，主要原因是美国优越的政治制度，给普通百姓公平竞争、创造财富的机会。
+
+参考链接：
+
+[https://zh.wikipedia.org/zh-cn/%E4%BC%8A%E9%9A%86%C2%B7%E9%A9%AC%E6%96%AF%E5%85%8B](https://zh.wikipedia.org/zh-cn/%E4%BC%8A%E9%9A%86%C2%B7%E9%A9%AC%E6%96%AF%E5%85%8B)
+
+[https://zh.wikipedia.org/zh-cn/%E6%A5%8A%E8%87%B4%E9%81%A0](https://zh.wikipedia.org/zh-cn/%E6%A5%8A%E8%87%B4%E9%81%A0)
+
+[https://zh.wikipedia.org/wiki/%E9%98%BF%E8%AF%BA%C2%B7%E6%96%BD%E7%93%A6%E8%BE%9B%E6%A0%BC](https://zh.wikipedia.org/wiki/%E9%98%BF%E8%AF%BA%C2%B7%E6%96%BD%E7%93%A6%E8%BE%9B%E6%A0%BC)
+
+编辑/校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-471.jpeg)
+
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

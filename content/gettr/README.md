@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 4:45 AM (UTC)`
+
+3/27/2022 Miles Guo: The preparatory committee for the second anniversary of the founding of the New Federal State of China was officially formed today!<br/><br/>3/27/2022 文贵直播: 新中国联邦成立两周年纪念活动筹备委员会于今天正式成立！<br/><br/>
+![img](https://media.gettr.com/group9/getter/2022/03/28/04/2bfb8dbd-0392-88f8-132a-2837beb68d61/out.jpg)
+
+---
+
+`@miles 3/28/2022 4:41 AM (UTC)`
+
+3/27/2022 Miles Guo: The vast majority of the CCP members are good people. It is the CCP’s evil system that must be taken down! The CCP’s system only serves the personal benefits of only a handful of people, and it has destroyed the environment for people to dwell and fails to provide good education, causing the lack of faith and the deterioration of social atmosphere.<br/><br/>3/27/2022 文贵直播: 大部分中共党员是好人，而要灭的是中共的邪恶体制！这个体制只服务于少数人的私利，破坏了人们的生存环境，不提供良好的教育，让人们信仰缺失，败坏了社会的风气<br/>
+![img](https://media.gettr.com/group17/getter/2022/03/28/04/b1117182-1670-b11b-0614-d88bc902a624/out.jpg)
+
+---
+
 `@miles 3/28/2022 4:14 AM (UTC)`
 
 Socialism and communism are the eternal poison of human beings. As a Polish driver, we have suffered from the scourge of communism as well as the Soviets. However, the Polish people once suffered from communism is now happening to the people of mainland China; the former Soviet Union was poisoned by communism, but the Russian people are still suffering from the slavery and destruction of the communist dictatorial legacy of Putin.<br/>社会主义、共产主义是人类永远的荼毒，身为波兰人的司机和苏联人一样都曾饱受共产主义的祸害，和如今自由民主的波兰生活相比，自由民主法治的伟大与美好显而易见。然而，波兰人曾经饱受的共产主义的戕害如今正发生在中国大陆人民身上；被共产主义荼毒过的前苏联虽然解体，但俄罗斯人民至今依然遭受共产主义独裁遗毒普京的奴役与摧残。
@@ -140,20 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
  3月27号：世界上人权最好的国家🙈原来就是这样子的😢共产党，你还要个x脸吗？
 ![img](https://media.gettr.com/group50/getter/2022/03/27/16/ad38289e-580e-b36f-d103-2e533f475a79/out.jpg)
-
----
-
-`@miles 3/27/2022 4:29 PM (UTC)`
-
-
-![img](https://media.gettr.com/group26/origin/2022/03/27/16/ac22cf6b-2f6b-4b5c-2408-254e9297d6db/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 12:09 PM (UTC)`
-
-
-![img](https://media.gettr.com/group37/origin/2022/03/27/11/41fe9a7a-f3ed-7573-ba9c-b7bd2f931577/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

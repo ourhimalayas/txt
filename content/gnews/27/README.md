@@ -2,35 +2,26 @@
 ---
 
 
-## 美财长耶伦赞同加密货币的创新称需要被监管
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
+## 首都渥太华再现反疫苗政策抗议行动
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242363/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
-据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
+作者：加拿大温哥华扬帆农场 – 青青 – 文明(添草灭共)
 
-周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
+据加拿大【ctv新闻】3月26日报道，在特鲁多政府的皇家骑警将反疫苗护照运动的卡车司机们驱离首都的一个多月后，大量抗议者在当天又再次返回并集结在渥太华市中心。
 
-她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3330.png)图片来源：ctvnews
 
-她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
 
-展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
+报道称，数百辆来自魁北克的汽车在市中心缓缓绕行，鸣笛抗议。 本次示威活动的组织者表示，在所有不合理的疫情限制措施被当局取消之前将不会离开渥太华。
 
-报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
+据悉，尽管自由党政府计划在4月底前取消所有的卫生防疫限制，但在全国范围内没有疫苗护照仍然不能自由地旅行，而且所有未接种疫苗的大学生都将继续被拒绝进入校园。 渥太华警方当天表示，大约有300辆参与示威活动的汽车穿过主要市区街道，但目前尚未出现与抗议活动发生冲突的相关报道。
 
-新闻来源链接：
+校对编辑：硫酸羟氯喹64
 
-[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
+发稿：青青
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+原文链接： [https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342](https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,20 @@
 ---
 
 
-## 樱花头条┃呼吁将贸易人权重新挂钩：美众院两党议员提出取消中国永久最惠国待遇法案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2234715/)
+## 樱花时政┃威慑中共国的时间不多了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2237149/)
 
-撰稿：东京樱花团/樱花传媒
-![此图像的alt属性为空；文件名为LOGO.png](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-呼吁将贸易人权重新挂钩：众院两党议员推出取消中国永久最惠国待遇法案.
+撰稿：东京樱花团/加一颗稻草
 
-信息来源：[https://gettr.com/post/p11g8r10bf6](https://gettr.com/post/p11g8r10bf6)
+我们不能让俄罗斯入侵乌克兰分散我们对中国共产党构成的威胁的注意力。就在本周，中共国驻美国大使公开拒绝谴责俄罗斯的入侵。尽管习近平和中共政府否认了这一点，但中共一直在与俄罗斯直接协调并相互比较，因为中共国有吞并台湾的野心，即使普京现在正在吞并乌克兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-19.jpg)[图片来源](https://static.foxnews.com/foxnews.com/content/uploads/2022/02/Putin-Xi.jpg)
+中共国必须明白，在这场冲突中向俄罗斯提供财政或军事援助的任何决定都将直接违反国际和平努力，并将导致对其经济的严重制裁。拜登总统有机会明确这一点，防止中共国破坏国际社会，阻止他们将这场冲突升级到更加危险的程度。如果执行得当，这还有一个额外的好处，那就是在俄罗斯和中共国之间建立一个非常公开的楔子。对中共国建立有意义的威慑的时间已经不多了。
 
-*编辑：东京樱花团/asket、天路天道（素材）
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+消息来源：[Time is running out to deter China](https://www.foxnews.com/opinion/time-running-out-deter-china)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
