@@ -15,119 +15,119 @@
 
 ---
 
-### [秘翻新闻｜中共国内疫苗 粮食灾难将吞噬生命无数](/content/gnews/1/README.md)
+### [樱花FM|中日财经爆：纽约联储总裁看好稳定币！](/content/gnews/1/README.md)
+ ` 樱花FM`
+
+### [樱花FM|中日财经爆：日元加速贬值提振市场信心 助推东京股市重回28000点](/content/gnews/2/README.md)
+ ` 樱花FM`
+
+### [樱花FM|中日财经爆：日本2022财年107多万亿预算案获参议院通过](/content/gnews/3/README.md)
+ ` 樱花FM`
+
+### [樱花FM|中日财经爆：中共国教育部令高校领导半年内访百企促就业](/content/gnews/4/README.md)
+ ` 樱花FM`
+
+### [樱花FM|樱花时政：中共防疫灾难遍地民怨沸腾](/content/gnews/5/README.md)
+ ` 樱花FM`
+
+### [大直播后记：直播是每个战友用生命和时间在救助还未觉醒的人](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [樱花FM|樱花时政：俄封锁赫尔松市 乌30万公民面临人道灾难](/content/gnews/7/README.md)
+ ` 樱花FM`
+
+### [德州奥斯汀市议会通过决议支持数字货币支付区块链应用](/content/gnews/8/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [大直播后记：我们就是消灭共产党的新中国联邦人](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻新闻｜中共国内疫苗 粮食灾难将吞噬生命无数](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [串珠632:青蒿素伊维菌素是病毒和疫苗的解药](/content/gnews/2/README.md)
+### [串珠632:青蒿素伊维菌素是病毒和疫苗的解药](/content/gnews/11/README.md)
  ` 郭爆料串珠`
 
-### [大直播后记：特别设计的乌克兰救援马甲引起外国人关注](/content/gnews/3/README.md)
+### [大直播后记：特别设计的乌克兰救援马甲引起外国人关注](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [樱花时政┃美智库呼吁让台湾重返国际组织](/content/gnews/4/README.md)
+### [樱花时政┃美智库呼吁让台湾重返国际组织](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦得天助，做事情要抓重点（二）](/content/gnews/5/README.md)
+### [新中国联邦得天助，做事情要抓重点（二）](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [七哥宣布新中国联邦2周年纪念活动从今天正式启动（一）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [串珠631:病毒与疫苗是一场精心策划的人类大屠杀](/content/gnews/7/README.md)
+### [串珠631:病毒与疫苗是一场精心策划的人类大屠杀](/content/gnews/15/README.md)
  ` 郭爆料串珠`
 
-### [七哥宣布新中国联邦2周年纪念活动从今天正式启动（二）](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [中日财经爆┃防俄罗斯利用数字货币逃避制裁 日本加紧修订外汇法](/content/gnews/9/README.md)
+### [中日财经爆┃防俄罗斯利用数字货币逃避制裁 日本加紧修订外汇法](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜台湾疫情爆发 外界忧：步入香港后尘](/content/gnews/10/README.md)
+### [疫情｜台湾疫情爆发 外界忧：步入香港后尘](/content/gnews/17/README.md)
  ` 關注組`
 
-### [视频|部分政商精英误判俄乌战事](/content/gnews/11/README.md)
- ` MOSVIDEO`
-
-### [视频|躲过中共病毒疫苗灾难就是人生赢家](/content/gnews/12/README.md)
- ` MOSVIDEO`
-
-### [联合国：乌克兰粮食短缺正在加剧](/content/gnews/13/README.md)
+### [联合国：乌克兰粮食短缺正在加剧](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频|谎言在互联网时代都会不攻自破](/content/gnews/14/README.md)
- ` MOSVIDEO`
-
-### [有声｜援建方舱医院的农民工完工后被非人道对待致集体感染](/content/gnews/15/README.md)
+### [有声｜援建方舱医院的农民工完工后被非人道对待致集体感染](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共病毒已致全球650万人死亡](/content/gnews/16/README.md)
+### [中共病毒已致全球650万人死亡](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本40%新冠患者有明显后遗症](/content/gnews/17/README.md)
+### [日本40%新冠患者有明显后遗症](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯试图分裂乌克兰](/content/gnews/18/README.md)
+### [俄罗斯试图分裂乌克兰](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [03/28每日播报｜社媒消息: 泽伦科医生 爱德华·唐德](/content/gnews/19/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜郭文贵先生谈拜登华沙讲话的三个核心](/content/gnews/20/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [新冠疫情蔓延 中共国最大城市上海全面封城](/content/gnews/21/README.md)
+### [新冠疫情蔓延 中共国最大城市上海全面封城](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦人必将帮助乌克兰人民！](/content/gnews/22/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [疫情｜日本解禁后首个周末 各地确诊数明显上升](/content/gnews/23/README.md)
+### [疫情｜日本解禁后首个周末 各地确诊数明显上升](/content/gnews/24/README.md)
  ` 關注組`
 
-### [众议员麦考尔：美国必须现在就开始武装台湾](/content/gnews/24/README.md)
+### [众议员麦考尔：美国必须现在就开始武装台湾](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [融创高负债销售下滑陷公司债兑付危机](/content/gnews/25/README.md)
+### [融创高负债销售下滑陷公司债兑付危机](/content/gnews/26/README.md)
  ` 波士顿五月花农场金融部`
 
-### [报告：科学家们现在正在研究 “自我传播的疫苗&#8221;，可以从已接种疫苗的人群中跳到未接种疫苗的人群](/content/gnews/26/README.md)
+### [报告：科学家们现在正在研究 “自我传播的疫苗&#8221;，可以从已接种疫苗的人群中跳到未接种疫苗的人群](/content/gnews/27/README.md)
  ` 波士顿五月花农场金融部`
 
-### [上海追求“动态清零”，正在造成次生灾难和人道危机](/content/gnews/27/README.md)
+### [上海追求“动态清零”，正在造成次生灾难和人道危机](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [上海分区半封城应对中共病毒疫情失控](/content/gnews/28/README.md)
+### [上海分区半封城应对中共病毒疫情失控](/content/gnews/29/README.md)
  ` 波士顿五月花农场金融部`
 
-### [援乌营地：忙里偷闲 服务战友](/content/gnews/29/README.md)
+### [援乌营地：忙里偷闲 服务战友](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美欧达成能源合作协议，拜登对俄乌战争导致全球粮荒问题发出警告](/content/gnews/30/README.md)
+### [美欧达成能源合作协议，拜登对俄乌战争导致全球粮荒问题发出警告](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：美国务卿布林肯谴责ISIS组织发动恐袭](/content/gnews/31/README.md)
+### [秘翻在线：美国务卿布林肯谴责ISIS组织发动恐袭](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [上海突发“切块式封城”，中共防疫模式陷危机](/content/gnews/32/README.md)
+### [上海突发“切块式封城”，中共防疫模式陷危机](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”](/content/gnews/33/README.md)
+### [中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/34/README.md)
+### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/35/README.md)
  ` 關注組`
 
-### [2022年3月27日大直播速记精萃](/content/gnews/35/README.md)
+### [2022年3月27日大直播速记精萃](/content/gnews/36/README.md)
  ` 雅典娜GNotes`
 
-### [拜登总统致俄罗斯人民：你们不是我们的敌人](/content/gnews/36/README.md)
+### [拜登总统致俄罗斯人民：你们不是我们的敌人](/content/gnews/37/README.md)
  ` 美国政要直译推`
 
-### [中日财经爆┃俄乌战争推高全球钢材价格](/content/gnews/37/README.md)
+### [中日财经爆┃俄乌战争推高全球钢材价格](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [援乌营地：幼小的心灵 坚定的信念](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [美疾控中心：5-11岁儿童疫苗接种者更易感染病毒且感染率最高](/content/gnews/39/README.md)
  ` 蓝莲花农场`

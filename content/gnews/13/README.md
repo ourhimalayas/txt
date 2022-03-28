@@ -2,33 +2,31 @@
 ---
 
 
-## 联合国：乌克兰粮食短缺正在加剧
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2244223/)
+## 樱花时政┃美智库呼吁让台湾重返国际组织
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244441/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/02870000-0aff-0242-8bb8-08da0feedd33_w1023_r1_s.jpg)乌克兰马里乌波尔的民众从一家粮食仓库领取饮用水（2022年3月18日）（美联社图片）
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+美国智库德国马歇尔基金会呼吁，在当前中共利用强硬手段将台湾排除在联合国和其他组织之外的情况下，美国有必要与其盟友一起携手牵制中国。对中共不择手段威胁影响联合国的决策表示不满。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-144.jpg)[图片来源](https://www.eastasiantimes.com/end-the-ccp-taiwan-seeks-to-ban-the-chinese-communist-party-flag/)
+据WOW Korea报道：美国智库德国马歇尔基金会呼吁，在当前中共利用强硬手段将台湾排除在联合国和其他组织之外的情况下，美国有必要与其盟友一起携手牵制中共国。
 
-据美国之音3月28日报道，俄乌战争爆发后，乌克兰的粮食短缺正在加剧。联合国世界粮食计划署警告说，乌克兰的粮食供应链已经断裂，估计有45%的民众正在为缺粮发愁。计划署发言人菲里说，为数千万被困在乌克兰境内的民众提供粮食的系统正在停止运行。超市已经无货，粮库储备见底，战区家庭的粮食短缺更为严重，尤其是乌克兰东部城市马里乌波尔。
+该基金在对于从支持台湾政府的成果研究报告后指出，认为对于“中共对联合国的与日俱增的胁迫性和破坏性影响力”，美国政府必须率先给予压力。并举中共用强硬的外交政策的例子，例如中共在联合国文件中明确表示，台湾是 “中国的一个省。报告中还批评指出，自1971年联合国通过的阿尔巴尼亚决议，取代了中华人民共和国作为中国在联合国的唯一代表后对台湾的主权和地位却一字不提。之后多年来一直诱导改变对该决议的解释，将台湾解释为中共一部分的意图，还通过经济压力迫使许多国家接受这一解释，并将台湾排除在国际组织之外。
 
-联合国儿童基金会说，俄乌战争导致430万乌克兰儿童流离失所，占乌克兰儿童一半以上。联合国人权事务高级专员办公室说，有1080多名乌克兰民众死亡，其中至少78%是儿童。
+从对中共的军事、科技、企业、个人到经济等一系列的制裁，到以利益为中心的金融机构风向转变，不难看出中共体制已到了穷途末路之时。
 
-菲里说，世界粮食计划署已经调配了足够的粮食供乌克兰境内300万民众使用一个月。一个月之后呢？世界粮仓乌克兰因为战争导致粮食产量剧减，本国人民尚且挨饿，依靠乌克兰粮食进口的其他国家呢？粮荒即将在全球范围内爆发，再加上疫苗灾难近在眼前，邪恶中共和俄罗斯共同导演的这场人间悲剧不知道要吞噬多少人！
+信息来源
 
-[新闻参考链接](https://www.voachinese.com/a/ukraine-running-out-of-food-20220327/6503744.html)
+[米シンクタンクが国連の｢一つの中国｣解釈に異議](https://s.wowkorea.jp/news/read/341344/)
 
-*编辑：胖丁*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-7.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
