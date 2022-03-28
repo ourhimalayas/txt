@@ -2,40 +2,37 @@
 ---
 
 
-## 阿布拉莫维奇和乌克兰谈判代表出现中毒症状
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2248017/)
+## 有声|日本三大型银行终止与俄最大银行的美元交易
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248101/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒资讯：日本三菱UFJ、三井住友和瑞穗三家大型银行集团决定从3月26日起全面停止与俄罗斯最大的银行——兹贝尔银行的美元交易。三家银行与俄罗斯之前以美元结算的所有贸易活动，都需要用其他汇款方式替代。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-89.jpg)
+据三家银行的官员透露，由于美国政府将从美国时间26日起，暂停与兹贝尔银行及其25家子公司之间的银行间结算和转账等交易，三菱UFJ、三井住友和瑞穗集团决定跟进美方的制裁，在日本采取类似的交易管制措施。 其中，三菱UFJ的制裁涵盖除日元以外的所有外币交易。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+迄今为止，这三家集团已经停止了与俄罗斯第二大银行VTB银行以及多个俄罗斯金融机构的交易，这些金融机构已被排除在多项国际金融支付、结算系统之外。
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/UKRAINE-CRISIS-BRITAIN-SANCTIONS.jpg)
 
+文字版原文：[日本三大型银行终止与俄最大银行的美元交易](https://gnews.org/zh-hans/2241535/)
 
-图片来源：路透社
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-据媒体报道，在基辅会谈后，俄罗斯寡头罗曼·阿布拉莫维奇和乌克兰谈判小组的两名成员抱怨症状明显，他们感觉中毒。美国和乌克兰官员对这些报道表示怀疑。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-本月早些时候，媒体报道称，俄罗斯企业家罗曼·阿布拉莫维奇和其他与俄罗斯和平谈判的乌克兰参与者出现疑似中毒症状。美国《华尔街日报》、调查门户网站《Bellingcat》和英国《卫报》记者周一报道。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-该报提到了熟悉谈判的人。他们指责想要破坏谈判的“莫斯科强硬派”。阿布拉莫维奇的一位密友告诉《华尔街日报》，目前尚不清楚谁可能是这起事件的幕后黑手。此外，西方专家无法对这些症状做出解释。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-与此同时，谈判的乌克兰参与者否认他们中毒。据当地媒体报道，乌克兰谈判代表米哈伊洛·波多利亚克周一表示，谈判小组的所有成员工作正常。 “在信息领域，目前有很多猜测、不同版本的阴谋以及一种或另一种信息游戏的元素。”
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-早在早上，《华尔街日报》中被提及为受害者的 Rustem Umyerow 在 Facebook 上写道，他一切都很好。 “我很好。这是我对正在传播的所有八卦的回答。请不要相信任何未经证实的信息。我们也处于信息战之中。”
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-美国政府的一名代表也对这些报道表示怀疑。一位美国官员说，情报信息表明，很可能是环境暴露，而不是中毒。他不想评论细节。
-
-专家怀疑化学战剂中毒，正如“Bellingcat”报道的那样，会议于 3 月 3 日举行。症状会在晚上开始，直到早上才消退。研究平台的一名成员被要求接受化学武器专家的检查。
-
-专家说，这些症状很可能是由于化学战剂中毒。剂量太低，不会造成危及生命的伤害。最有可能的是被吓倒的。
-
-克里姆林宫上周四证实，阿布拉莫维奇最初作为调解人参与了乌克兰与俄罗斯之间的和平谈判。俄罗斯对乌克兰的袭击开始后，这位与俄罗斯总统弗拉基米尔·普京关系密切的 55 岁亿万富翁已受到欧盟和英国的制裁。切尔西足球俱乐部的老板也被英超俱乐部停职。
-
-🔗 [https://www.welt.de/politik/ausland/article237848933/Ukraine-Abramowitsch-und-ukrainische-Unterhaendler-erlitten-offenbar-Vergiftungssymptome.html](https://www.welt.de/politik/ausland/article237848933/Ukraine-Abramowitsch-und-ukrainische-Unterhaendler-erlitten-offenbar-Vergiftungssymptome.html)
-
-编辑发表： Shuizhuyu
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
