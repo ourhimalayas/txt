@@ -2,43 +2,32 @@
 ---
 
 
-## 乌克兰的民主制度是普京攻打乌克兰的根本原因
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2242798/)
+## 中日财经爆| 上海封城 特斯拉停工
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242912/)
 
-作者：澳喜—追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城-特斯拉停工.png)[图片来源](https://www.zhev.com.cn/news/show-1646634193.html)
 
+路透社3月28日报导，两位知情人士表示，美国汽车制造商特斯拉上海工厂将停产四天。上海周日晚间宣布“封城”，周一起分两批开展封控核酸筛查。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/普京-1.jpeg)
+面对严峻的本土中共病毒疫情，中国最大城市、金融中心上海市进一步升级管控，将自周一（3月28日）起以黄浦江为界分两批对全市进行封控核酸筛查。
 
-据郭文贵先生3月22日的盖特内容，普京入侵乌克兰的根本原因是乌克兰的自由、民主、法治的政治制度，普京担心这样优越的政治制度会唤醒俄罗斯民众，威胁到他在俄罗斯的独裁统治。
+本次核酸筛查分为两批。第一批，浦东、浦南及毗邻区域先行实施封控，开展核酸筛查，4月1日5时解封。同时，浦西地区重点区域继续实施封控管理。
 
-在当今实行自由、民主和法治的政治制度的国家里，人民的生活水平和社会福利远高于独裁国家。当独裁国家的人民看到这种鲜明对比的时候，就会反问，他们为什么不能拥有同样的生活。
+特斯拉上海超级工厂正是位于上海浦东新区南汇新城镇，消息人士称，特斯拉已通知工人和供应商。
 
-1991年苏联解体后，乌克兰恢复独立。乌克兰处于欧洲联盟和独联体的交界处，不仅是西方世界与俄罗斯地缘政治的交汇点，而且是天主教文明和东正教文明的交汇处。从1996年开始，乌克兰实行三权分立的民主制度，对普京的独裁统治是一种威胁。
+消息来源：
+[特斯拉上海工厂停产四天 以遵守防疫封控措施–消息](https://cn.reuters.com/article/tesla-shanghai-covid-0328-idCNKCS2LP062?il=0)
 
-普京于1999年出任俄罗斯总理，2000年首次当选总统，2004年成功连任，2008年卸任总统后，出任统一俄罗斯党主席兼政府总理，确立半总统制。2012年，普京第三次当选总统，并于2018年再次连任。自2000年算起，普京在俄罗斯已实际政权近22年。
-
-
-
-参考链接：
-
-[https://gettr.com/post/p11bpsp95fb](https://gettr.com/post/p11bpsp95fb)
-
-编辑/校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-471.jpeg)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
-
-
-
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

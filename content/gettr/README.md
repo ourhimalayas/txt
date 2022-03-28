@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 3:42 AM (UTC)`
+
+3/27/2022 Miles Guo: Many people within the CCP’s system are secretly protecting our fellow fighters and have shown their admiration for the NFSC & ROLF Ukraine rescue operation. Never pin our hope on the US to help us take down the CCP. It will surely be those in the CCP’s system that will take down both Xi Jinping and the CCP!<br/><br/>3/27/2022 文贵直播: 很多体制内的人在暗中保护我们的战友，并对新中国联邦在乌克兰的救援行动表示钦佩。不要寄希望于美国帮我们灭共，最终干倒习近平和共产党的一定是国内人！<br/>
+![img](https://media.gettr.com/group16/getter/2022/03/28/03/385b31ea-e2db-12bf-0486-9327945f4e98/out.jpg)
+
+---
+
 `@miles 3/28/2022 3:18 AM (UTC)`
 
 3/27/2022 Miles Guo: Xi Jinping will invade Taiwan anyway! Both Putin and Xi believe that their families will be taken out if they don’t defeat Europe and the US. Xi believes that only by taking Taiwan can he prevent democracy and freedom from spreading to Mainland China. Putin and Xi couldn’t care less about the Lao Baixing’s life and death, but their insanity can’t destroy the world. Both will certainly be taken down!<br/><br/>3/27/2022 文贵直播：习近平不论如何都会打台湾！普和习认为如果不干掉欧美，他们自己和家人就会被干掉；习觉得只有拿下台湾才不会让民主自由之风会吹到大陆；普和习毫不在乎老百姓的死活，但他们的疯狂毁灭不了世界，他俩将100%被灭<br/>
@@ -147,13 +154,6 @@ Winston (GTV UK Live Host): What more can we do to convince these Chinese people
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月25日第21天当日救援统计：<br/>Medyka救援站接待：约80人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7492人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 21 - Date: March 25, 2022 :<br/>Medyka Rescue Station Reception: about 80 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7492 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group12/getter/2022/03/27/07/5b0f2b00-2b99-2820-633a-fc433ee0fd97/09bc8d86bf86cbc817f1f09df513df1e.jpg)
-
----
-
-`@miles 3/27/2022 5:16 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group31/origin/2022/03/27/04/4a8c901e-ceca-ff00-1217-9edf9125d672/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,32 +2,28 @@
 ---
 
 
-## 快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241561/)
+## 欧美达成天然气协议 以减少欧洲对俄能源依赖
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2241856/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《路透社》华沙3月27日报道，**周日，乌克兰卫生部副部长奥列克西•亚雷缅科(Oleksii Iaremenko)表示，俄罗斯仍在继续轰炸，但抵达乌克兰的人道主义救援物资数量开始减少。他表示迫切需要更多的支持，并呼吁其他组织提供援助。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/乌人道主义援助-e1648415061155.jpg)为乌克兰提供的医疗援助物资在华沙肖邦机场的仓库中（路透社）
-据报道，**亚雷缅科在华沙肖邦机场附近的一个货仓里说，他对国际社会迄今提供的援助表示感谢。这批运往乌克兰的货物包括金属床、纱布、哮喘吸入器和氧气浓缩器等。**
+**撰稿：日本东京方舟农场  幽蘭自得**
 
-他告诉路透社，上个星期，我们看到人道主义援助的水平有所下降。**我们希望国际上能增加寻找新的资源，因为俄罗斯的侵略正在增加，他们正在轰炸平民**。
+3月25日，欧盟委员会主席冯德莱恩（Ursula von der Leyen）和美国总统拜登（Joe Biden）在布鲁塞尔共同签署一项协议，即美国将在2022年底前向欧洲国家供应至少150亿立方米的液化天然气，以减少该地区对俄罗斯燃料进口的依赖。
 
-他说:“**我们的要求是，如果你们能够支持，请立即支持。”**“不要等几周或几个月，因为我们现在就需要支持。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-55.jpg)图为美国总统拜登和欧盟委员会主席冯德莱恩在布鲁塞尔会面（图片来自德国之声）
 
-根据联合国的数据，俄罗斯五谷入侵乌克兰的冲突已经造成了一场人道主义危机，估计有1000万人流离失所，接近该国人口的四分之一。
+据《德国之声》报道，拜登宣布，到 2030 年，美国将每年向欧盟市场提供 500 亿立方米的额外液化天然气。
 
-新闻来源链接：
+冯德莱恩指出，这500亿立方米的天然气将取代俄罗斯1/3的天然气，她强调，他们希望将欧洲的能源供应从俄罗斯转向安全的供应商，实现多样化。
 
-[Humanitarian aid for Ukraine is dwindling, says health official | Reuters](https://www.reuters.com/world/europe/humanitarian-aid-ukraine-is-dwindling-says-health-official-2022-03-27/)
+据了解，欧洲最大的天然气供应国俄罗斯，因入侵乌克兰将已经很高的能源价格推到了创纪录的水平，并促使欧盟承诺今年将俄罗斯的天然气使用量减少三分之二。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+另外，俄罗斯23日还表示，包括欧盟成员国在内的”不友好”国家必须开始用卢布购买俄罗斯的石油和天然气。这加剧了对欧洲天然气供应可能中断的担忧。
 
+参考链接：
+[https://reurl.cc/3j2K9O](https://reurl.cc/3j2K9O)
+
+总编：青城道姑
+校对发布： Linda
 
  
 

@@ -2,33 +2,52 @@
 ---
 
 
-## 中日财经爆|康希诺靠中共病毒疫苗 营收暴涨172倍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2242871/)
+## COVID-19疫苗副作用集萃（2022.3.28A）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243046/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/康希诺靠中共病毒疫苗-营收暴涨172倍.png)[图片来源](http://www.cansinotech.com.cn/html/1/173/174/index.html)
+**整理：**雅典娜情报组（BENJ1）
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1.png)雅典娜设计组
+**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-生产中共病毒疫苗的康希诺生物股份公司3月27日发布业绩报告，2021年净利润19.14亿元，上年同期为亏损3.97亿元；营收43亿元，较上年的仅2,489万元增长近172倍。
+[往期集萃链接](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-刊登在上交所的公告并显示，公司去年四季度营收为12.14亿元，净利润为5.84亿元；第三季度营收与净利润分别为10.24亿元和3.97亿元。
+**加强针真的该不该打？**
 
-中共国官方数据，截至2022年3月26日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种新冠病毒疫苗32亿5141.2万剂次。
+听好多姐妹打了以后姨妈推迟不来，我不想打了，我这社区天天打电话催打针，好怕再推迟……主要在备孕，不打不行吗？
 
-一边是各医药公司和中共政府勾结，靠生产和销售中共病毒疫苗赚的盆满钵满，另一边已经是如此高的接种率，今年1月6日，钟南山在谈到疫苗接种情况时，他指出，根据评估中共国理论上已实现一定程度的群体免疫，但是如今中共病毒在国内各地不可控制的爆发，连上海市都不得不“封城”，足以证明中共病毒疫苗的无效性。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-139.jpg)小红书
 
-消息来源:
-[康希诺去年盈利超19亿元同比扭亏、营收暴涨近172倍 主因新冠疫苗商业化](https://cn.reuters.com/article/cansino-profit0327-sun-idCNKCS2LP011?il=0)
-[新冠病毒疫苗接种情况](http://www.nhc.gov.cn/jkj/s7915/202203/2ef60393c7f241b08a147e62501c5680.shtml)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-57.jpg)小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-27.jpg)小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-22.jpg)小红书
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-19.jpg)小红书
+
+
+**跟帖评论选集：**
+
+**Kiko兔兔图兔兔：**千万别打，打了就后悔，我排卵期出血，去医院看吃药也好不了，已经快4个月了，别听社区的，如果上天再给我一次机会，我绝不打第三针。
+
+**栗子：**我也不想打，打完第二针大姨妈推迟了半个月，结果今天收到短信让去打，不然可能变黄码，今天就打了。
+
+**别动我的凤梨 : **我也是去年打完两针后排卵期出血，以前都不会……你有去医院看吗？
+
+参考链接：[加强针真的该不该打？](https://www.xiaohongshu.com/discovery/item/622c0b4e000000000102bac1?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648436935)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

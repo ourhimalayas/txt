@@ -2,22 +2,39 @@
 ---
 
 
-## 一周疫情、疫苗信息回顾（3月16日至23日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241195/)
+## 乌称俄企图分裂乌克兰 要求西方提供更多武器援助
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241532/)
 
-作者：DC农场–火来
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2022年3月16日至3月23日，除中共国外，全球新增中共病毒确诊患者1154万余例，同比上周下降了6.63 %；此外，本周新增确诊死亡病例超过34313例，同比上周下降了11.1%。本周，全球新增确诊病例数和新增确诊死亡病例数均较一周前略有下降。截至3月23日，除中共国外，全球累计接种了80.4亿剂中共病毒疫苗，同比16日的累计接种数据增长了0.886%.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-27-下午1.44.15.png)
-3月16日，美国新罕布什尔州议会投票通过关于伊维菌素使用的法案，法案规定伊维菌素在新州为非处方药，在美国，新州将率先成为无需处方便可在药店购买伊维菌素的州。3月18日，继辉瑞公司之后，莫德纳公司也向美国FDA提交了针对成年人的第二剂中共疫苗加强针的使用许可申请，3月23日，莫德纳进而发表声明表示，希望FDA能够将第二剂加强针的使用许可扩大到6岁以下的儿童。3月22日，白宫官员称，美国目前没有足够的经费为全美国人提供免费的第二剂中共病毒加强针。3月22日，辉瑞宣布将通过联合国儿童基金会，向贫穷国家发放四百万份辉瑞研发的治疗中共病毒的药物Paxlovid，并且已经有超过30家公司申请生产Paxlovid的仿制药。
+翻译与编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《路透社》乌克兰利沃夫3月27日报道，周日，**乌克兰军事情报部门负责人基利洛.布达诺夫(Kyrylo Budanov)表示，俄罗斯希望将乌克兰一分为二，这是试图在乌克兰建立朝鲜和韩国。他誓言要发动“全面的”游击战，以防止乌克兰被瓜分。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/乌克兰援助-e1648413653347.jpg)3月27日，救援人员在利沃夫一处被巡航导弹击中的燃料储存设施处工作（路透社）
+周日，**乌克兰总统泽伦斯基敦促西方向乌克兰提供坦克、飞机和导弹，帮助乌克兰抵御俄罗斯军队**。基辅政府表示，俄罗斯军队正越来越多地瞄准燃料和粮食仓库。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+报道称，**经过4周多的俄乌冲突,俄罗斯没能占领一家乌克兰的重大城市**。而俄罗斯周五表示要缩减其野心，将专注于确保乌克兰东部的分裂分子地区。
 
-编辑：Zion 文恩
-总编：Zion 文恩
-审核：Zion 文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周日，**自称为卢甘斯克人民共和国的一名当地领导人表示，该地区可能很快就是否加入俄罗斯举行公投，**就像2014年俄罗斯占领乌克兰半岛后克里米亚发生的那样。
+
+当时，克里米亚人以压倒多数投票决定脱离乌克兰，加入俄罗斯，但是世界上很多国家拒绝承认这一投票。
+
+报道指出，**乌克兰外交部发言人奥列格·尼科连科（Oleg Nikolenko）驳斥了有关乌克兰东部举行公投的说法。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄外交部发言人.jpeg)乌克兰外交部发言人奥列格·尼科连科（图片来源：网络）
+尼科连科称，**所有在临时占领地区举行的虚假公投都是无效的，将没有法律效力。**
+
+自俄罗斯入侵乌克兰以来，联合国已经证实，**乌克兰全国有1119名平民死亡，1790人受伤，但表示实际死亡人数可能更高。**乌克兰周日表示，**到目前为止，冲突已造成139名儿童死亡，超过205人受伤。**
+
+新闻来源链接：
+
+[Ukraine says Russia wants to split nation, calls for more arms | Reuters](https://www.reuters.com/world/europe/rockets-strike-ukraines-lviv-biden-says-putin-cannot-remain-power-2022-03-27/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
