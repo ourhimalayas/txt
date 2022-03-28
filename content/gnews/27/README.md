@@ -2,28 +2,40 @@
 ---
 
 
-## GFashion重新定义时尚
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246411/)
+## 有声|习妄图称霸世界 不会放弃攻打台湾
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246754/)
 
-作者：银河系农场 骄子
+配音：香草山农场 – 蒙古鸿雁
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月26日，Gclubs2022年会盛典隆重举行。在直播现场，郭文贵先生和主持人都展示了数件GFASHION的单品。同时，向战友们分享时尚的意义。
+郭文贵先生在2022年3月23日大直播中指出，中共正试图在中东挑起战火，利用中东战乱推动人民币作为石油结算手段，控制中东和安哥拉的石油能源，然后用数字人民币代替其他洗钱渠道，控制俄罗斯的钱，取代美元的地位。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3066.png)
+郭先生重申，中东能源人民币化是中共的核心目标。一旦成功，会对美国和美元造成的威胁，严重性远远超过俄乌战争。之后中共会企图要挟和控制全世界，而西方世界将无力再对中共实施制裁。
 
-郭先生说，不同凡响的穿着会让人眼前一亮，GFASHION就有这样的作用。时尚代表一种对生活的态度，是人的精气神的延伸。郭先生回忆起母亲，尽管在困苦的年代，物质极度匮乏，但从未失去对生活的精神和韧劲。同样，俄罗斯入侵乌克兰后，从乌克兰逃离的难民都非常的体面，这也是时尚。
+另外，习近平一定会同时攻打台湾，控制芯片技术，打垮美国和欧洲的供应链。到时整个世界会爆发粮食危机，金融崩盘，社会崩溃，所有供应链断裂。
 
-与此同时，新中国联邦人正在乌克兰前线救援。郭先生特别邀请了前线的战友参与到年会的直播，并为年会抽奖，其中意义非同凡响。文耀战友表示，能代表新中国联播来的乌克兰前线，能够帮助，能够给予的人是最幸福的。
+郭先生指出，一系列灾难的发生让人类对宗教产生怀疑，放弃信仰，而醒来的人都会找中国人算账，到那时，新中国联邦是唯一能够提供帮助的组织。
 
-这是一次爱和时尚的交流。无论什么时代，都要拥有对上天的信仰，对生活的态度，活好当下的每一步。郭先生说，我们受到上天万神万佛的指引，一切力量来自上天。在年会上，我们Gclubs会员年轻、智慧、勤劳、勇敢、分享、无私。整个年会都体现了天意。
 
-参考链接：[G CLUB2022年年会](https://gettr.com/post/p11z7ye4d5a)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文字版原文：[习妄图称霸世界 不会放弃攻打台湾](https://gnews.org/zh-hans/2233889/)
 
-总编：文真
-编辑：Jack Li文阳   
-审核：文真
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

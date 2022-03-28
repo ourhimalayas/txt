@@ -2,8 +2,8 @@
 ---
 
 
-## 20220327郭文贵大直播 ：拜登演讲未区分共产党与中国人 拜登整个政治生涯都没对中国友好过
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246859/)
+## 20220327郭文贵大直播 ：再次验证爆料革命有万佛万神的庇佑
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246982/)
 
 作者：东京樱花团小视频组
 

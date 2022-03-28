@@ -2,57 +2,28 @@
 ---
 
 
-## 特鲁多先生：你是任何民主国家的耻辱！请不要让我们看到你出现（在这里）
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2246761/)
+## 欧洲议会将要求数字支付实名制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246923/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-在请Christine Anderson女士发言，提出她的观点。谢谢。
+作者：波士顿五月花农场 文雀
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+3月25日，据外媒报道，欧洲议会将在下周的委员会会议上，就是否阻止匿名加密货币支付进行投票表决。该委员会还计划限制各种方式的逃税，并要求实名登记。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-28-上午11.23.53.png)
+欧洲议会倾向同意对任何规模的数字货币支付进行身份检查，即KYC，以避免加密货币用于资助恐怖主义、虐待儿童等不法用途。即使是一直坚持匿名化交易应该受到保护的右翼议员，似乎也认可这一观点。议会将告知数字服务提供商不得进行或帮助任何被认为具有洗钱，或犯罪等高风险的转账。
 
-基于第195条，我想指出，加拿大总理特鲁多先生根据第144条（欧洲议会议事规则第144条：关于违反人权、民主和法治的辩论）在本议会发言更合适。
+阿西塔·坎科是负责收集议会对该法律意见的主要立法者之一，她表示，尽管在如何执行未托管钱包之间的交易方面存在不确定性，但希望将这些措施扩大到私人持有的加密货币资产。
 
-这一条是专门用来辩论侵犯人权、民主和法治的行为的，而特鲁多先生显然就是这样。一个公开钦佩中国独裁制度的总理，一个践踏基本权利，仅仅因为自己的公民敢于站出来反对他变态的民主概念，就把他们当作恐怖分子来迫害和定罪的总理，根本就不应该被允许在议会里发言。
+分析人士认为，欧盟立法者对数字货币的这一立场，实际上将使一直被视为避税天堂的英属维尔京群岛、开曼群岛，以及美国、土耳其、俄罗斯、中共香港、伊朗等等与脏钱交易相关的热点国家和地区，转账支付变得更加困难。
 
-特鲁多先生，你是任何民主国家的耻辱，请不要让我们看到你出现（在这里），谢谢。
+参考链接：[EU Lawmakers to Vote on Blocking Anonymous Crypto Payments, Documents Show](https://www.coindesk.com/policy/2022/03/25/eu-lawmakers-to-vote-on-blocking-anonymous-crypto-payments-documents-show/)
 
-翻译注：翻译为 “一个公开钦佩中国独裁制度的总理”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-素材提供：文倩
-软件听写：蓝色天空
-听写校对：小白咖啡馆
-文稿翻译：小白咖啡馆
-翻译校对：啊啊小苹果
-字幕添加：小白咖啡馆
-最终审核：文倩
-
-编辑上传：青青
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
-
-更多加拿大溫哥華揚帆農場的頻道，請關註：
-
-- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
-
-更多加拿大溫哥華揚帆農場的頻道，請關註：
-
-- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
-
-
-
-
+编辑：宁文静
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

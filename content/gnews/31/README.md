@@ -2,30 +2,44 @@
 ---
 
 
-## 马斯克自曝确诊中共病毒 自称几乎没症状
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2246016/)
+## 有声|七国集团阻止俄罗斯出售黄金储备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246648/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-马斯克今天在推特发文表示，据称又得了COVID-19（中共病毒），马斯克还在这句话后括弧写下「叹气」。不过马斯克表示，自己几乎没有任何症状。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月24日外媒报导，七国集团领导人当天在布鲁塞尔的北约总部会晤，一致同意打击俄罗斯出售黄金储备以支撑卢布的能力，阻止莫斯科方面逃避西方金融制裁的企图，加大对普京政权的经济惩罚力度。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-47.jpg)
+他们在一份声明中表示,七国集团领导人和欧盟将继续共同努力，削弱俄罗斯利用其国际储备支撑俄罗斯经济和资助普京战争的能力，包括明确与俄罗斯联邦中央银行有关的任何涉及黄金的交易都要受到现有制裁的限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/959ea830-af89-4bcd-a0f1-998452834dfa.jpg)图片来源：@elonmusk推特
+美国的一名高级官员表示，俄罗斯的黄金储备可能价值1000 亿至 1400 亿美元，有迹象表明该国央行正试图利用这些储备来“支撑卢布”。
 
-《路透社》报导，马斯克曾在2020年11月质疑中共病毒检测准确性，他声称，自己在同一天2次检测结果呈阳性，接着2次检测又呈现阴性。
+同一天，美国财政部发布公告，禁止与俄罗斯进行黄金交易。财政部说，禁令是根据总统拜登已经签署的行政命令发布的。
 
-马斯克事后表示，自己「很可能」是轻度病例，不过他仍持续质疑检测准确性。这次马斯克自曝确诊，但没说明是快筛还是PCR核酸检测。
+美国财政部在官网中指出：“美国人不得参与任何涉及俄罗斯联邦中央银行、俄罗斯联邦国家财富基金或俄罗斯联邦财政部的交易，包括与黄金有关交易。”
 
-简评：马斯克自曝又确诊中共病毒，真是悲催的消息，以马斯克的能力相信很快就没事的。中共病毒祸害全球，无人可以绝对幸免，只有灭共才能彻底消灭病毒疫情，希望这次马斯克能够有所警醒加入灭共的队伍，中共不灭，灾难不止！
+美国最大的黄金交易营运商芝加哥商品交易所集团，本月稍早时候已经暂停了与六家俄罗斯炼金商的交易。
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022328W0296](https://www.ftvnews.com.tw/news/detail/2022328W0296)
 
-撰稿/发布：一叶知秋
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+文字版原文：[七国集团阻止俄罗斯出售黄金储备](https://gnews.org/zh-hans/2234280/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220327郭文贵大直播 ：美国尝试了所有错误选项后 只剩下灭共唯一选择
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246816/)
+## 20220327郭文贵大直播 ：新中国联邦两周年纪念活动正式启动
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246962/)
 
 作者：东京樱花团小视频组
 
