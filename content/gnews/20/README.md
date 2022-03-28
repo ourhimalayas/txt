@@ -2,37 +2,60 @@
 ---
 
 
-## 上海突发“切块式封城”，中共防疫模式陷危机
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243329/)
+## 全球疫情疫苗数据更新（莫德纳制造了中共病毒？）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243445/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+整理：枳实
+美工：精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3360.png)图片：雅典娜设计组精灵蓝
+雅典娜疫情更新（2022年 3月27日）
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-整理/编辑：文泓
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3361.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3362.png)
+**莫德纳制造了中共病毒？**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/34.png)图片来源：Dimsum Daily & 雅典娜设计组
+近来，中共媒体，包括微信朋友圈广为散布一条新闻“已发布专利文件证实莫德纳（ Moderna） 制造了新冠病毒”。连很多一向致力于传播毒疫苗真相的一些独立媒体也在散播这条“新闻”。这条新闻声称，科学家在病毒的刺突蛋白中发现了莫德纳专利文件中的相同基因片段，因此认为莫德纳制造了病毒。但实际上，[正如每日邮报的报道](https://www.dailymail.co.uk/news/article-10542309/Fresh-lab-leak-fears-study-finds-genetic-code-Covids-spike-protein-linked-Moderna-patent.html)中引用的批评意见所说，这些莫德纳专利中的“相同的基因片段”只是刺突蛋白福林酶切位点附近的18对碱基对，实际上该序列广泛存在于细菌中，并非莫德纳的创造，因此这个发现并不能说明莫德纳制造了病毒，但这个广泛出现在细菌中的序列出现在病毒中，确实是不同寻常的，是病毒起源于实验室的一个重要佐证。
 
+这篇每日邮报的报道还总结了从中共在武汉隐瞒疫情开始以来的中共国内外一系列掩盖病毒起源真相，阻挠调查的种种行为一系列时间线大事记。
 
-上海市推行的“精准防疫”政策曾被官媒奉为“典范”。如今，这座拥有二千四百多万人口的超大型城市疫情大爆发，**目前疫情已外溢至全国21个省71个市，当局以黄埔江为界对全市切块式封控管理**。
+这个大事记中最近发生的事情是：
 
-3月27日，上海当局发布消息，**自28日起，该市以黄浦江为界分区分批实施核酸筛查。第一批，浦东、浦南及毗邻区域先行实施封控，开展核酸筛查，4月1日5时解封，**同期浦西地区重点区域继续实施封控管理；第二批，**4月1日3时起，按照层层推进的原则，对浦西地区实施封控，开展核****酸筛查，4月5日3时解封。**
+“2022 年 1 月：英国顶级科学家杰里米·法拉尔爵士泄露的电子邮件显示，他在 2020 年 2 月承认‘该病毒可能是人造的’是‘可能的解释’。但他继续将这一理论称为“阴谋论”。
 
-官方通报称，封控区域内，住宅小区实施封闭式管理，所有人员足不出户，人员和车辆只进不出。保障基本生活必需的外卖、快递等实行无接触配送，不得进入住宅小区。
+二月：法拉尔爵士被要求在美国国会宣誓接受质询。官员们希望他解释为什么他放弃了实验室泄漏理论。”
 
-同时，**当局暂停公交、地铁、轮渡、出租汽车、网约车运行。疫情防控、紧急就医、生活保障、城市运行、应急处置等相关车辆，经各区政府或各行业主管部门认定核实后通行，其余车辆非必要不上路**。
+从莫德纳制造新冠病毒的乌龙中，我们可以看出，作为中共病毒的元凶，中共散布假消息，搅浑水的能力相当了得。由此我们也可以理解，为什么从2017年郭先生开始爆料，开启爆料革命以来就一直坚持“唯真不破”，以真相作为最有力的武器。从2年多来的疫情疫苗灾难中，我们可以看出，获得真相，辨别真假善恶的能力，独立思考和思辨的能力决定了很多人生死安危。比如说打不打疫苗，信不信共产党，决定了是否“走向火葬场”等等，这样的例子太多了。佛家所言，“众生共业”，中共之所以能够存在，正是因为太多人被这个恶魔所蛊惑而不自知，尚未觉醒。只有足够人能够拨开迷雾，认识到中共才是这一切疫情和疫苗灾难的源头，人类才能走出这些苦难。
 
-在上海当局宣布封控管理升级后，当地市民开始恐慌性抢购市场商品，部分商品被抢购一空。此前，上海市场的商品价格普遍飙升。
+对每一个人来说，尤其是每一位华人来说，面对即将到来的病毒起源和毒疫苗追责的审判的怒潮，尤其是正在逼近的排华势头，能否认识到这些真相，辨别真假善恶，更是决定个人和家人命运的关键因素。
 
-尽管上海疫情升级，但上海当局之前并未如其它“重灾区”一样宣布“封城”。当地官员在26日的新闻发布会上还宣称，封城恐影响国家经济和全球经济。
+[2022年3月27日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月27日改进.pdf)
 
-参考链接：[上海“切块式封城”中共防疫模式陷危机](https://www.epochtimes.com/gb/22/3/26/n13675230.htm)
+数据来源：
 
-*发布：tianzhihuan*
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
+
+
 
  
 

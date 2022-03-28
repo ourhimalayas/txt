@@ -2,29 +2,38 @@
 ---
 
 
-## 有声｜国内疫苗和粮食两大灾难会使很多人失去生命
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2243462/)
+## 新三从四得
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243880/)
 
-By:**秘翻新闻**
+作者：敢想敢做
+编辑：无相
 
-**2022-03-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-53.png)图片来源 Gettr
-[在3月27日的文贵大直播中，郭文贵先生重提中共国内即将发生的疫苗和粮食危机这两大灾难，希望同胞做好准备。](https://gettr.com/streaming/p124vkgc8a0)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-108-scaled.jpg)雅典娜设计组（真霸）
 
-[郭先生表示，国内现在最大的危机，就是粮食危机。不管你待在哪里都得吃东西，要有食物、有水、有药。另外，国内最大的恐惧目前就是病毒，而且疫情一定会再次扩散。](https://gettr.com/streaming/p124vkgc8a0)
 
-[他说，不是中共敢放毒就有能力能管住毒，放毒却控制不住，这就是报应。中共国可笑的清零和灭疫政策，最终会让很多人连埋葬的地方都没有。这就是为何中共会发明尸体处理的气化方式。](https://gettr.com/streaming/p124vkgc8a0)
+**三从**
 
-[郭先生再次发出预警，5月全球的疫苗灾难即将到来，这段时间香港、大陆的疫情复发，都离不开疫苗的原因。这个困难时期会持续两到三年。在没有中共的时候，病毒就没了，这是天意。](https://gettr.com/streaming/p124vkgc8a0)
+中共从不会给你民主，
+中共从不会给你法治，
+中共从不会给你自由。
 
-[郭文贵先生最后还表示，到2025年，伊朗、普京、金正恩，都会被清除。但国内接种两到三针疫苗的感染人数、死亡和病乱，远不止现在的数量。希望同胞做好防范。](https://gettr.com/streaming/p124vkgc8a0)
+**四得**
 
-秘翻新闻 文洋编写报道
+中共不会让你得到尊严，
+中共不会让你感到正义，
+中共不会让你得到救援，
+中共更不会让你得到一分钱！
 
-发布 : 恩典
+所以请记住，你别想从中共身上得到丝毫好处，它只会让你感到处处充满了恐惧，让你终其一生在浑浑噩噩中度过。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

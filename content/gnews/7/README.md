@@ -2,22 +2,17 @@
 ---
 
 
-## 众议员麦考尔：美国必须现在就开始武装台湾
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2243553/)
+## 很多共产党员都是好人 不要相信美国灭共（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243913/)
 
-####  撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16484452811.png)图片来源：雅虎
-据《新闻极限》3月27日报道，周日，众议员麦考尔（Michael McCaul）说，美国必须“现在”就开始武装台湾，而不是等到中共国入侵台湾时。
+**PPT制作：小蜗牛 ；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-30-10-40-四-scaled.jpg)
+发布：tianzhihuan
 
-这位德克萨斯州共和党人在CNN的“国情咨文（State of the Union）”节目中说：“下一只落地的鞋子可能是台湾”，中共总书记习近平正密切关注乌克兰发生的事情，但“我们不能犯我们在乌克兰所犯的错误，等到入侵之后再去武装他们”。麦考尔表示，他不相信中共国和习近平会在促成乌克兰和平方面发挥建设性作用。
-
-麦考尔指出，“他们是建立在欺骗基础上的同盟。还记得北京奥运会吗，这个龌龊的联盟，手拉手站在一起，普京和中共习主席谴责民主和自由以及领土侵略，差不多表达的是我们建立了一个无限的伙伴关系”。
-
-同时，麦考尔说，他不相信周末的北约峰会制定了任何关于帮助乌克兰的“主动规则”。麦考尔认为美国需要向乌克兰提供所需的武器，如S-300防空导弹等。也认为尽管北约不能直接为乌克兰提供禁飞区，但“可以提供工具让他们自己制造”。
-
-**新闻来源**
-
-[McCaul Calls on US to Start Arming Taiwan ‘Right Now’](https://www.newsmax.com/politics/michael-mccaul-taiwan-china-ukraine/2022/03/27/id/1063082/)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

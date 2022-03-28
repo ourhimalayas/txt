@@ -2,29 +2,26 @@
 ---
 
 
-## 有声｜CDC数据：5-11岁儿童接种中共病毒疫苗后更易感染
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2243311/)
+## 援乌营地：忙里偷闲 服务战友
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243413/)
 
-**By:秘翻新闻**
+**作者、编辑：Candy
+视频提供：小小酥**
 
-**2022-03-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/封面1-2.jpg)图片来源:网关专家
-**[《网关专家》](https://www.thegatewaypundit.com/2022/03/latest-cdc-data-shows-vaccinated-children-aged-5-11-now-likely-catch-covid-unvaccinated-peers/)**3月27日报道，根据美国疾病控制中心（简称CDC）的最新数据，自开始收集数据以来，5-11岁接种疫苗的儿童的中共病毒感染率高于未接种疫苗的同龄人。
+这是工作在新中国联邦和法治基金驻波兰梅迪卡援救中心营地的战友Allen，从美国来此的第二批志愿者。他本是发廊的老板，所以前一段时间我们看到他曾给营地的战友们理发，使战友们变得精神抖擞，充满了精气神！
 
-报道指出，在几个月前批准了针对5岁儿童的中共病毒疫苗后，虽然有许多证据表明这种疫苗会促进病毒在他们中间的传播，但美国专制的公共卫生机构仍在推进其接种计划，甚至为更小的儿童接种疫苗。
+今天他又帮战友们做起了午饭，虽然是简单家常菜鸡蛋炒西红柿，但看Allen战友做得非常认真，做出的炒菜肯定香喷喷的引人垂涎。既被称为战地理发师，现在华丽转身，又成了战地大厨师！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西红柿.png)图片来源：Nicole![Image](https://media.discordapp.net/attachments/825592691433668613/957874038426984448/206990c7-f833-444e-98ce-691b939fb796.jpg?width=656&amp;height=369)图片来源：telegram救援前线
+战友们经过这次救援活动，不但帮助了乌克兰难民，也积累了不少实战经验；战友之间所结下的战友情还能进一步加深，使我们的新中国联邦产生更强的凝聚力，从而更好地向世人展示新中国联邦人的形象。
 
-最令人担忧的是，关于5-11岁儿童的最新数据显示，在所有其他接种疫苗的年龄组中，他们的感染率是美国最高的。
+***发布：Candy***
 
-此前CDC已经承认，中共病毒不能阻止病毒的传播，但是福奇领导的公共卫生机构所谓的专家们正准备授权进行第四针加强针，并努力为婴儿和幼儿的疫苗开绿灯。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
-据报道，在不到一年半的时间里，VAERS已经记录了超过一百万例mRNA 疫苗的不良副作用，包括超过2万6000例死亡，1万4827例铃音麻痹，3万7133例心肌炎/心包炎，以及4万8342例永久性残疾报告等等。
-
-（秘翻新闻  冰糖葫芦喵 编译报道）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

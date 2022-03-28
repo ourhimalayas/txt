@@ -2,17 +2,21 @@
 ---
 
 
-## 新能源和无皇有主的时代
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243895/)
+## 视频|俄乌开战后 拜登首次会见乌克兰外长防长
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2243929/)
 
-**PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-10-10-20-1--scaled.jpg)
-发布：tianzhihuan
+制作：香草山视频部
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+外媒报道，3月26日，美国总统拜登在波兰首都华沙，会见了乌克兰外长与防长。这是自俄乌战争爆发以来，拜登首次与乌克兰高层面对面会谈。
+据悉，拜登总统在国务卿布林肯、国防部长奥斯汀的陪同下，在华沙的万豪酒店会见了乌克兰外交部长库列巴、乌克兰国防部长列兹尼科夫。
+另据报道，拜登将在会谈之后发表重要演说。白宫安全顾问苏利文表示，拜登总统的演讲包括未来挑战的紧迫性、乌克兰战事意味着什么，以及自由世界团结面对俄罗斯侵略的重要性等内容。
+
+发稿：qiutian（邱甜）
+
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

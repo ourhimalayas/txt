@@ -2,17 +2,12 @@
 ---
 
 
-## 七哥谈流氓政客&#8212;默克尔
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243889/)
+## 3月27日 文贵大直播要点（图片1-8）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2243928/)
 
-**PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-05-10-10-03--scaled.jpg)
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4261C2DE-9315-4586-ACC8-8F7AD9AD3143.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/7863A3E6-9D6E-4F6B-BD27-B2F7277228EA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/22D1DE63-8831-47C3-8106-13C1103A04E3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/31D2F73B-79B2-4306-8493-6D277D500F15.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/03372A6B-0ED3-439B-B19E-D74C1DCB6706.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/703E6C07-95B2-48CD-BFC0-577615C9B921.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/A332A7BB-6AE9-4075-B87F-5D0CCC0EFE84.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/91BA5BD6-7674-4680-BBCB-91C01C55089F.jpeg)
+设计：水涨船高
 
  
 

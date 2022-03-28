@@ -2,17 +2,29 @@
 ---
 
 
-## 唤醒了日本和德国两个好战之国，一旦发动战争那是不可想象的（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2243839/)
+## 视频|国民党高官亲属为中共卖命的悲惨命运
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2243916/)
 
-**PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-05-10-10-二-scaled.jpg)
-发布：tianzhihuan
+制作：香草山视频部
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+20世纪，国民党历史上有一批身居高位的官员，他们身边的一群亲属为中共工作，专门收集情报、策反国民党官员，成为中共统战中的棋子。中共篡国后，他们选择留在大陆，继续效忠中共。然而，这个选择让他们掉入了万劫不复的深渊。
+1）张学思恶魔缠身
+张学思，张作霖第四个儿子，年轻时秘密加入共产党。在大哥张学良的介绍下，进入中央军校学习，毕业后到东北军当过军官。1938年张学思去了延安，曾担任过中共辽宁省政府主席、辽宁军区司令员。中共建国后，担任东北大学校长、海军副参谋长等职。1955年被授予少将军衔。
+文革爆发后，张学思因有与国民党牵连的历史而被捕，遭罢免职位并关押。在关押期间，张学思给中共领导写信“我以党性和生命向党保证，我绝不是叛徒、特务、反革命分子”，但没有任何回应。张学思受到中共长期的残酷迫害，临死之际幡然悔悟，愤然写下“恶魔缠身”，“恶魔”二字直指中共。
+2）国民党元老居正女儿女婿双亡
+居瀛棣，国民党政府司法院院长居正之女，丈夫祁式潜。夫妻二人长期为中共地下党做重要工作，多次受到中共领导人刘少奇、陈毅的接见。文革期间，祁式潜被打成叛徒受到迫害，服毒自杀。妻子居瀛棣也被迫害致死，儿子关入监狱。
+3)陈布雷爱女陈琏自杀
+陈布雷被称为“蒋中正之文胆”，国民党重要智囊人物。陈布雷爱女陈琏和丈夫袁永熙用父亲的身份作掩护，长期为中共搜集情报。中共篡国后，袁永熙担任过清华大学党委书记。1957年，袁永熙被打成右派，开除党籍，陈琏被迫和他离婚。文革爆发后，陈琏自认为自己历史很干净。然而，造反派在其家里找出一张蒋介石夫妇吊唁陈布雷时与其家人的合影照片，将其打成“叛徒”，有口难辨的陈琏选择跳楼自杀
+中共体制就如同一台绞肉机，无论为其贡献多大，立下多少汗马功劳，都会被这部机器残害、虐杀，难逃悲剧的命运。
+【信息链接】
+[https://www.wiki.zh-cn.nina.az/%E4%B8%9C%E5%8C%97%E5%B8%AE%E5%8F%9B%E5%85%9A%E6%8A%95%E6%95%8C%E5%8F%8D%E9%9D%A9%E5%91%BD%E9%9B%86%E5%9B%A2%E6%A1%88.html https://zh.wikipedia.org/wiki/%E5%B1%85%E6%AD%A3 https://zh.wikipedia.org/wiki/%E8%A2%81%E6%B0%B8%E7%86%99](https://www.wiki.zh-cn.nina.az/%E4%B8%9C%E5%8C%97%E5%B8%AE%E5%8F%9B%E5%85%9A%E6%8A%95%E6%95%8C%E5%8F%8D%E9%9D%A9%E5%91%BD%E9%9B%86%E5%9B%A2%E6%A1%88.html%20https://zh.wikipedia.org/wiki/%E5%B1%85%E6%AD%A3%20https://zh.wikipedia.org/wiki/%E8%A2%81%E6%B0%B8%E7%86%99)
+
+发稿：qiutian（邱甜）
+
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
