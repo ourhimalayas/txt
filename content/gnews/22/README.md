@@ -2,39 +2,27 @@
 ---
 
 
-## 东航坠机机上人员全部遇难 中共称找到第二个黑匣子
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247005/)
+## 中共大疆为俄军飞弹导航 德国零售商下架其无人机商品
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2247010/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+**撰稿：日本东京方舟农场  海星**
 
+据《自由时报》3月28日报导，乌克兰副总理费多罗夫（Mykhailo Fedorov）指控中共大疆为俄军飞弹提供导航，德国最大电子零售商MediaMarktSaturn考量后，直接下架大疆无人机商品。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-335.jpg)（图片来源：法新社）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+该报导称，费多罗夫于3月16日在推特上发表了一封致中共大疆公司的公开信。信中指出，俄罗斯军队使用大疆产品为其导弹提供导航，并呼吁大疆停止与俄罗斯来往。
 
+对此，大批网友自发组织在大疆海外社交平台账号、海外合作伙伴账号以及德国商户MediaMarktSaturn的账号下留言，表示中共大疆支持俄乌战争，要求封杀该公司。MediaMarktSaturn考量后，决定停止销售大疆无人机。
 
-
-中共官方媒体26日称，国家民航局副局长胡振江当晚接受记者采访时证实，坠机现场没有生命迹象，123名乘客和9名机组人员已全部遇难。搜索小组早些时候曾表示，已经确定了机上120人的DNA。
-
-另据中共官媒27日上午的消息，当地时间27日上午9点20分左右，在撞击点东侧山坡坡面1.5米的土层下，消防员发现一橙色罐体，经专家确认，是“3·21”东航飞行事故客机的第二个黑匣子。但同时称，数据存储单元外观较为完好，记录器其他部分损毁严重。目前，第二个黑匣子已经被交给航空专家，准备后续的译码工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-11.jpg)
-此前，中共的报道称，另一个黑匣子于3月23日被发现，已送往北京接受专家检查。
-
-观察人士称，事实上，东航的飞机都已经安装了可以将运行数据进行实时传输的通信系统，官方如此大费周章地在黑匣子上做文章，无非是希望为掩盖空难真相、编造虚假证据留出足够的时间。
+此前，大疆曾辩称，其产品均作为民用，不适用于军事用途。然而，早在2017年美国陆军实验室和海军便已发现大疆无人机存在收集美军地理资讯、影音等敏感资料的安全隐患，要求军队停止、移除大疆设备，卸除电池、存储媒介。
 
 参考链接：
-1.[China confirms all on board China Eastern plane died in crash](https://www.reuters.com/world/china/chinese-search-team-yet-find-second-black-box-plane-crash-2022-03-26/)
-2. [第二个黑匣子，找到了！](https://news.sohu.com/a/533054389_120099886)
+1.[https://ec.ltn.com.tw/article/breakingnews/3874721](https://ec.ltn.com.tw/article/breakingnews/3874721)
+2.[https://www.epochtimes.com/gb/21/1/18/n12696443.htm](https://www.epochtimes.com/gb/21/1/18/n12696443.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+总编：老孙
+校对发布：爱放飞
 
  
 
