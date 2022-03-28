@@ -2,42 +2,39 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（3月21日-3月27日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247046/)
+## 俄乌明天将在土耳其举行面对面谈判
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2247068/)
 
-作者：纽约香草山金融部 – ILOVE战神
+据共同社3月28日报道，乌克兰总统泽连斯基周日（3月27日）在接受俄罗斯记者采访时说，乌克兰准备讨论在与俄罗斯的停火谈判中采取 “中立 ”政策。
 
+他在网上采访中说，如果邻国保证乌克兰的安全，乌克兰愿意放弃加入北约组织的努力，这是俄罗斯所要求的。预计会谈将于周二（3月29日）在土耳其最大城市伊斯坦布尔面对面举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/U-5.jpg)compstudio.in
+泽连斯基表示，乌克兰可以与包括俄罗斯在内的邻国签署这样的协议，以换取其放弃加入北约的可能，但这样的计划需要付诸全国公民投票。
 
+泽连斯基发出这一信息时，俄罗斯对乌克兰的入侵已经进入第二个月，根据联合国周日公布的统计数字，数百万人流离失所，至少造成1119名平民死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+俄罗斯军队也遭受了大量的伤亡，他们对乌克兰首都基辅的推进在激烈的抵抗中停滞不前。
 
+俄罗斯当局禁止当地媒体报道这次用俄语进行的采访。
 
+泽连斯基说，俄罗斯军队需要首先撤出乌克兰，他说：“在外国军队在场的情况下，不可能举行全国公投”。
 
-过去一周喜马拉雅币价格回落至40美元左右，平均日交易量约8万枚喜币。喜币上市以来总交易量约3140万枚，占今年总发行量的仅约3.14%。目前喜币交易在全球尚未完全开放，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-8.jpg)
-3月21日，世界互联网内容分发网络CDN与云计算巨头阿卡迈科技公司在其推特账号上发布了介绍喜马拉雅交易所的文章。文章介绍了喜币结合最前沿区块链技术的稳定双币系统以及喜支付App。文章指出，网络信息安全仍然是加密货币面临的主要挑战，并宣布阿卡迈科技将与其合作伙伴，互联网服务提供商Teneo，一起为喜交所提供网络安全服务，确保喜币交易的快速、可靠、安全。阿卡迈科技提供了世界上最大的分布式计算平台之一，并承担了全球15%-30%的网络流量。与阿卡迈的合作体现出喜交所走在了网络安全的最前沿。
+他说，乌克兰不会寻求用武力夺回亲俄分裂分子控制的顿巴斯地区，也不会试图用武力夺回2014年被俄罗斯吞并的克里米亚。
 
-本周郭文贵先生在大直播中透露，喜币会为中国人创造一个财富不可能被任何人剥夺的金融机构。传统的法币被政府随意操纵，政府可以不负责任。加密数字货币不可剥夺、不可篡改，无国界，无第三方，无制约，而且永恒存在。新中国联邦将拥有铸币权。喜币和躺平币一定是世界上最稳定，最安全，最快捷，最低成本，永远不可被剥夺的私人财富的创造者。相比之下，共产党的房地产、银行只能让人走向死亡。中国人只有获得财务解放，信仰解放，才能辨别真假、识善恶，中华民族才能得救。郭先生本周还透露，俄罗斯富豪阿布很早就投资了喜币，并作为核心资产长期持有。
+总统建议有可能将此写入文件，并准备放弃发展核武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-68.png)
+泽连斯基说，乌克兰没有讨论非军事化的可能性，这是俄罗斯的另一个要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture2-16.png)
+土耳其周日表示，在其总统雷杰普·塔伊普·埃尔多安（Recep Tayyip Erdogan）与俄罗斯总统弗拉基米尔·普京进行电话交谈后，停火会谈将在伊斯坦布尔举行。俄罗斯政府表示，会谈将当面进行。
+
+**快评**：希望俄乌战争很快停下来，能在这次预计于明天在土耳其举行的面对面的谈判中达成停战协议吗？还不敢奢望。
+
+战争已经过了1个月，乌克兰各处焦土无数，4000多万人口中1100多万人流离失所，数百万人逃出乌克兰。郭先生昨天大直播里警告，接下来会出现更惨烈的状况，请在波兰前线参加救援的新中国联邦人做好准备。
 
 参考链接：
-1. [As #cryptocurrency evolves so does the threat landscape. Take a look at how Akamai is protecting @himalayaxchange against #DDoS attacks](https://twitter.com/Akamai/status/1505874372229218305)
-2. [Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
-3. [喜交所官网： HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
+[https://english.kyodonews.net/news/2022/03/b5201d32a20b-zelenskyy-ready-to-discuss-ukraine-neutrality-with-russia.html](https://english.kyodonews.net/news/2022/03/b5201d32a20b-zelenskyy-ready-to-discuss-ukraine-neutrality-with-russia.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

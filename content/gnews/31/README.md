@@ -2,8 +2,8 @@
 ---
 
 
-## 乌克兰用火车向欧洲出口玉米
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247003/)
+## 东航坠机机上人员全部遇难 中共称找到第二个黑匣子
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247005/)
 
 作者：纽约香草山教育部 – Naughty(文行)
 
@@ -13,16 +13,17 @@
 
 
 
-3月27日外媒报道，乌克兰利沃夫的APK-Inform农业咨询公司表示，由于俄罗斯入侵，乌克兰海港仍然受到封锁，贸易商已开始通过火车向欧洲出口玉米。第一批数千吨玉米已经被运送到乌克兰西部的陆地边境。
+中共官方媒体26日称，国家民航局副局长胡振江当晚接受记者采访时证实，坠机现场没有生命迹象，123名乘客和9名机组人员已全部遇难。搜索小组早些时候曾表示，已经确定了机上120人的DNA。
 
-乌克兰是全球主要的谷物种植国和出口国，传统上，几乎所有出口都是通过黑海港口运输的，战前每月的粮食出口量超过500万吨。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-14.jpg)
-APK-Inform公司上周曾表示，乌克兰在2021年 7月至2022年6月期间的谷物出口总量应该能达到4400万吨。但由于战争导致的物流问题，预计3月至6月只有100万吨谷物离开该国。
+另据中共官媒27日上午的消息，当地时间27日上午9点20分左右，在撞击点东侧山坡坡面1.5米的土层下，消防员发现一橙色罐体，经专家确认，是“3·21”东航飞行事故客机的第二个黑匣子。但同时称，数据存储单元外观较为完好，记录器其他部分损毁严重。目前，第二个黑匣子已经被交给航空专家，准备后续的译码工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-11.jpg)
+此前，中共的报道称，另一个黑匣子于3月23日被发现，已送往北京接受专家检查。
 
-乌克兰运输当局则表示，从乌克兰到欧洲的火车每月最多可以出口60万吨谷物。
+观察人士称，事实上，东航的飞机都已经安装了可以将运行数据进行实时传输的通信系统，官方如此大费周章地在黑匣子上做文章，无非是希望为掩盖空难真相、编造虚假证据留出足够的时间。
 
 参考链接：
-[Ukraine exports first grain by train to Europe, APK-Inform says](https://www.reuters.com/world/europe/ukraine-exports-first-grain-by-train-europe-apk-inform-2022-03-27/)
+1.[China confirms all on board China Eastern plane died in crash](https://www.reuters.com/world/china/chinese-search-team-yet-find-second-black-box-plane-crash-2022-03-26/)
+2. [第二个黑匣子，找到了！](https://news.sohu.com/a/533054389_120099886)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
