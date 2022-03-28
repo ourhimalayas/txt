@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 10:14 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-28 <br/>For English @Gtranslators_1
+![img](https://media.gettr.com/group36/origin/2022/03/28/22/49acfe5b-ca8d-65a8-d5cc-39c1dd62bffd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/28/2022 9:46 PM (UTC)`
 
 20220328 NFSC health新中国联邦|喜健康 系列节目之《正道医疗》第二期
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 Socialism and communism are the eternal poison of human beings. As a Polish driver, we have suffered from the scourge of communism as well as the Soviets. However, the Polish people once suffered from communism is now happening to the people of mainland China; the former Soviet Union was poisoned by communism, but the Russian people are still suffering from the slavery and destruction of the communist dictatorial legacy of Putin.<br/>社会主义、共产主义是人类永远的荼毒，身为波兰人的司机和苏联人一样都曾饱受共产主义的祸害，和如今自由民主的波兰生活相比，自由民主法治的伟大与美好显而易见。然而，波兰人曾经饱受的共产主义的戕害如今正发生在中国大陆人民身上；被共产主义荼毒过的前苏联虽然解体，但俄罗斯人民至今依然遭受共产主义独裁遗毒普京的奴役与摧残。
 ![img](https://media.gettr.com/group39/origin/2022/03/28/04/8c3815ec-1d86-ff61-715f-568081e6c1fd/out.jpg)
-
----
-
-`@miles 3/28/2022 4:07 AM (UTC)`
-
-War brings infinite disaster and death, we don't want it, we pray for peace. The days of joy and happiness have become farther and farther away, the dead air, the ruined houses, flower, and trees, and living beings! As a member of the New Federal State of China, we will definitely help the people of Ukraine, because the CCP is behind Putin of Russia!<br/>战争带来的是无限的灾难和死亡，我们不想，我们祈求和平。那快乐和幸福的日子已经变得越来越遥远，死寂的空气，破坏殆尽的房屋、花木、生灵！作为新中国联邦人必将帮助乌克兰人民，因为俄罗斯普京的背后就是中共！
-![img](https://media.gettr.com/group26/origin/2022/03/28/04/d3691267-7a55-ddff-a368-968e891db140/out.jpg)
 
 ---
 
