@@ -2,8 +2,8 @@
 ---
 
 
-## 联合国基本结束
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2242172/)
+## 普习独裁者最终会被消灭
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2242186/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

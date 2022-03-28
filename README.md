@@ -15,106 +15,106 @@
 
 ---
 
-### [普京习近平愚弄天下人](/content/gnews/1/README.md)
+### [20220325文贵大直播：文贵先生描述地球是有主人的，万事是有规律的](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [中共正在拉丁美洲和加勒比地区大肆扩张其影响力](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [普习独裁者最终会被消灭](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [与俄罗斯合作将是中国人付不完的代价](/content/gnews/2/README.md)
+### [普京习近平愚弄天下人](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [联合国基本结束](/content/gnews/3/README.md)
+### [与俄罗斯合作将是中国人付不完的代价](/content/gnews/5/README.md)
  ` 雅典娜GNotes`
 
-### [小泉进次郎从4月起就任自民党主席](/content/gnews/4/README.md)
+### [联合国基本结束](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [小泉进次郎从4月起就任自民党主席](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本可以三天拿下乌克兰](/content/gnews/5/README.md)
+### [日本可以三天拿下乌克兰](/content/gnews/8/README.md)
  ` 雅典娜GNotes`
 
-### [民主跟独裁是绝对对立的](/content/gnews/6/README.md)
+### [民主跟独裁是绝对对立的](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [3/27/2022 文贵直播：独裁者的危险在于无底线，秦刚无耻地告诉美国说中共无上限，有底线；普习二人所谓“我们合作无上限”将让无数中国人付出巨大代价](/content/gnews/7/README.md)
+### [3/27/2022 文贵直播：独裁者的危险在于无底线，秦刚无耻地告诉美国说中共无上限，有底线；普习二人所谓“我们合作无上限”将让无数中国人付出巨大代价](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯不可靠](/content/gnews/8/README.md)
+### [美疾控中心：5-11岁儿童疫苗接种者更易感染病毒且感染率最高](/content/gnews/11/README.md)
+ ` 蓝莲花农场`
+
+### [俄罗斯不可靠](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
 
-### [【G时新闻】解冻部长级交流前，澳总理拒绝会晤中共国新任大使](/content/gnews/9/README.md)
+### [【G时新闻】解冻部长级交流前，澳总理拒绝会晤中共国新任大使](/content/gnews/13/README.md)
  ` G-时新闻`
 
-### [大直播后记：拜登演讲将改变世界](/content/gnews/10/README.md)
+### [大直播后记：拜登演讲将改变世界](/content/gnews/14/README.md)
  ` 雅典娜GNotes`
 
-### [3/27/2022 文贵直播：拜登的波兰演讲意味着什么？](/content/gnews/11/README.md)
+### [3/27/2022 文贵直播：拜登的波兰演讲意味着什么？](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [【G时新闻】拜登访问波兰：称俄入侵乌克兰犹如当年的天安门事件](/content/gnews/12/README.md)
+### [【G时新闻】拜登访问波兰：称俄入侵乌克兰犹如当年的天安门事件](/content/gnews/16/README.md)
  ` G-时新闻`
 
-### [【G时新闻】盖特的独特性使其成为新时代媒体主流](/content/gnews/13/README.md)
+### [【G时新闻】盖特的独特性使其成为新时代媒体主流](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [【粤语配音】2022年3月27日： 拜登演讲的意义](/content/gnews/14/README.md)
- ` MOS香港部`
-
-### [澳大利亚总理拒绝会见中共国新任驻澳大使](/content/gnews/15/README.md)
+### [澳大利亚总理拒绝会见中共国新任驻澳大使](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登是奥巴马背后的决策者](/content/gnews/16/README.md)
- ` 雅典娜GNotes`
-
-### [泽连斯基说乌克兰准备讨论中立地位](/content/gnews/17/README.md)
+### [泽连斯基说乌克兰准备讨论中立地位](/content/gnews/19/README.md)
  ` 加拿大温哥华英里农场`
 
-### [欧美达成天然气协议 以减少欧洲对俄能源依赖](/content/gnews/18/README.md)
+### [欧美达成天然气协议 以减少欧洲对俄能源依赖](/content/gnews/20/README.md)
  ` 日本東京方舟農場`
 
-### [在寻找东航遇难者的过程中，中共持续进行信息审查](/content/gnews/19/README.md)
+### [在寻找东航遇难者的过程中，中共持续进行信息审查](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马斯克打出一记重拳：普京比我有钱](/content/gnews/20/README.md)
+### [马斯克打出一记重拳：普京比我有钱](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [上海民生物资紧缺 物价连夜暴涨](/content/gnews/21/README.md)
+### [上海民生物资紧缺 物价连夜暴涨](/content/gnews/23/README.md)
  ` 日本東京方舟農場`
 
-### [美财长耶伦赞同加密货币的创新称需要被监管](/content/gnews/22/README.md)
+### [美财长耶伦赞同加密货币的创新称需要被监管](/content/gnews/24/README.md)
  ` 蓝莲花农场`
 
-### [国内专业人士质疑核酸检测办法合理性](/content/gnews/23/README.md)
+### [国内专业人士质疑核酸检测办法合理性](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国内专业人士质疑疫苗的科学性](/content/gnews/24/README.md)
+### [国内专业人士质疑疫苗的科学性](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有灵性的土地](/content/gnews/25/README.md)
+### [有灵性的土地](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃中共向斯里兰卡提供紧急粮食援助 党造大饥荒将再现](/content/gnews/26/README.md)
+### [樱花时政┃中共向斯里兰卡提供紧急粮食援助 党造大饥荒将再现](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃向乌克兰运送物资，德国出发的“铁路桥梁”](/content/gnews/27/README.md)
+### [樱花时政┃向乌克兰运送物资，德国出发的“铁路桥梁”](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持](/content/gnews/28/README.md)
+### [快讯：乌卫生部表示对乌人道主义援助正在减少寻求更多支持](/content/gnews/30/README.md)
  ` 蓝莲花农场`
 
-### [乌称俄企图分裂乌克兰 要求西方提供更多武器援助](/content/gnews/29/README.md)
+### [乌称俄企图分裂乌克兰 要求西方提供更多武器援助](/content/gnews/31/README.md)
  ` 蓝莲花农场`
 
-### [3/28/2022 银河快讯:岸田首相: &#8220;入侵乌克兰, 可能发展为战后最大危机&#8221;；日本外相号召合作以防止俄罗斯逃避制裁](/content/gnews/30/README.md)
+### [3/28/2022 银河快讯:岸田首相: &#8220;入侵乌克兰, 可能发展为战后最大危机&#8221;；日本外相号召合作以防止俄罗斯逃避制裁](/content/gnews/32/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月27日早](/content/gnews/31/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月27日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [中共假借疫情让封锁、隔离成了控制老百姓的“最好手段”](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [一周疫情、疫苗信息回顾（3月16日至23日）](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [天基移动电话网络公司将发射测试卫星](/content/gnews/34/README.md)
+### [一周疫情、疫苗信息回顾（3月16日至23日）](/content/gnews/34/README.md)
  ` NFSC News`
 
 ### [【G时新闻】乌国防部脸书：俄军战损惨重](/content/gnews/35/README.md)
