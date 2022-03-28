@@ -2,57 +2,23 @@
 ---
 
 
-## 俄罗斯期待中共国拯救其经济免受西方制裁影响
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2247576/)
+## 围困中的乌克兰的城市马里乌波尔
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2247756/)
 
-编译：七龙珠
+供稿：Cici
+翻译：Cici
+发稿：am夏天
+农场部门：德国纽伦堡正义农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
+联合国世界粮食计划署发言人汤姆森·菲里（Tomson Phiri）在日内瓦接受记者采访时表示，南部城市马里乌波尔一直遭受俄罗斯的炮击，该市的局势比以往任何时候都更加令人绝望。为被困在乌克兰境内的数千万人提供食物的现有系统正在奔溃，“卡车和火车被毁，机场被炸，桥梁倒塌，超市被清空，仓库被掏空“。被围困的马里乌波尔正在耗尽最后的食物和水储备。自2月24日被围困以来，没有任何人道主义援助被允许进入该市。到达马里乌波尔的唯一途径是通过人道主义车队，但到目前为止，这些车队还没有获得通行。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/merlin_201319404_7fa92d2a-ac6c-469b-9513-b5c81f475599-master1050-edited.jpg)图片来源：cn.nytimes.com （ ALEXEI DRUZHININ）
+The city of Mariupol in Ukraine under siege
+Speaking in Geneva, Tomson Phiri, a spokesman for the U.N.’s World Food Program, said that the southern city of Mariupol has been under Russian shelling and the situation in the city is more desperate than ever. The existing systems for food for tens of millions of people trapped inside Ukraine were collapsing, with “trucks and trains destroyed, airports bombed, bridges collapsing, supermarkets being emptied and warehouses hollowed out.
+In the city of Mariupol, since the siege on 24 February, no humanitarian aid has been allowed into the city. the only way to reach Mariupol is through humanitarian convoys, which have so far not gained access”.
 
-在一个月的时间里，普京已经使俄罗斯的经济沉沦。入侵之前，俄罗斯的GDP同比增长了6.6%。入侵之后，莫斯科经济在跌入深渊。
-
-本财政年度的预测是灾难性的。如穆迪，预测会有超过14%的下滑。摩根大通和高盛等美国大型投资银行则更为谨慎，指出降幅将超过7%。在任何情况下，前景都不是很好的。它被隔离在国际轨道之外并受到制裁的打击，还面临着以危险速度增长的通货膨胀。经济聚焦（Focus Economics）的分析师说：“商品价格、供应链中断、货物短缺和卢布下跌，将把通货膨胀推到18%以上。”
-
-根据Carmignac战略投资委员会成员Frédéric Leroux的计算，在入侵之后，“俄罗斯债务债券几乎立即损失了60%到80%的价值。与此同时，在英国上市的俄罗斯股票——主要是银行、石油公司或其他工业商品的生产商，在2月16日至3月1日期间，在暂停交易之前，损失了92%至99%的价值”。
-
-**战略转折**
-
-**莫斯科在2018年出售了84%的美国债券，并减少了美元的使用**
-
-弗拉基米尔-普京在俄罗斯境内放有一颗定时炸弹。“西方前所未有的制裁的后果，将影响俄罗斯的普通消费者，俄政府将没有什么工具来支持家庭收入，这可能会助长不满和腐败以及社会经济状况的恶化，直到它们成为一种更广泛的反抗情绪”。EIU的分析师说：“战争持续的时间越长，这种情况就越有可能发生，但即使战争相对较快地结束，也可能会造成长期的问题。”
-
-然而，有许多因素表明，在乌克兰战争之前的一段时间里，俄罗斯一直在计划其经济的战略转折。与其说是向前飞行，不如说是在地缘政治方面向右边飞行：他们投靠于中共国。早在2018年，普京就决定撇清与西方的经济关系，于是在本年度的3月和5月之间，俄罗斯人甩掉了美国总债务的84%，约810亿美元，这是获得决策自主权的一种方式，再加上减少的外债和积累的巨额储备，为入侵乌克兰做好了准备。
-
-正如eToro的首席战略官Ben Laidler所回顾的，“俄罗斯与世界的金融联系，多年来一直在萎缩，2014年对克里米亚的非法吞并和第一次制裁加速了这种萎缩。外国投资者持有的200亿美元的俄罗斯债券，在全球超过1万亿美元的非当地货币计价的政府债券中还不到2%”。
-
-十多年来，俄罗斯的经济一直在与西方脱钩，似乎这是一个经过仔细考虑的计划的一部分，以寻找一个新的盟友。数据显示，自2005年以来，莫斯科与北京的贸易一直在稳步上升。中共国占俄罗斯贸易总额的18%。这一比例在十年内翻了一番。当莫斯科在2014年进入克里米亚时，美元几乎占了俄罗斯对中国出口的全部份额，从那时起，林肯绿币就开始下跌了。
-
-**经济的未来**
-
-**今天的俄罗斯与中共国的贸易流量是十年前的两倍：这是一个战略转变**
-
-“被逐出国际政治、经济和金融体系后，俄罗斯将转向东方，以巩固与中共国的联盟”。根据EIU的最新报告，“刚开始时是一种便利的婚姻，在过去十年中已经发展成为一种战略伙伴关系。 乌克兰战争本周将改变世界的十个方面。在北京冬奥会上，习近平主席和弗拉基米尔-普京总统宣布，他们的联盟将“没有上限”，并将“优于冷战时期的政治和军事联盟”。
-
-俄罗斯在得出“不太可能在欧洲安全秩序中获得发言权，以及在这一地区经济发展前景”的结论后，于2012年开始了转向了“东方的支点”。在能源、航空和海事、情报和军事事务，以及外交事务等领域帮助中共国，并作为回报的获得了资金和技术。对中共国来说，与俄罗斯的联盟提供了其北部边境的安全、自然资源和相同的专制方式，以及对西方的共同专制态度。
-
-**参考链接：**[Rusia se apoya en China para salvar su economía de las sanciones occidentales](https://www.lavanguardia.com/economia/20220328/8156708/rusia-apoya-china-salvar-economia-sanciones-occidentales.html)
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
-
+消息来源：联合国网站
+联合国最新公布的3月25日关于俄乌战争给乌克兰人民带来的人道灾难
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
