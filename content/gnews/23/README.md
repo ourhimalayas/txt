@@ -2,30 +2,28 @@
 ---
 
 
-## 能源问题不再是各国较量的主因素
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2246259/)
+## GFashion重新定义时尚
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246411/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Sandvik-Space-mining.jpg)
-3月27日大直播中郭先生提到，因俄罗斯入侵乌克兰看似给欧洲带来一些能源危机，但基于人类目前的科技和清洁能源发展，这已经不是制约因素。
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月26日，Gclubs2022年会盛典隆重举行。在直播现场，郭文贵先生和主持人都展示了数件GFASHION的单品。同时，向战友们分享时尚的意义。
 
-郭先生说未来的清洁能源将成为人类社会的主流，在不远的未来，不会再有中东石油、俄罗斯石油等依靠能源问题要挟世界。郭先生此前了解到的人类未来的某些科学技术完全可以避免能源问题。在2017年的时候就曾说过马斯克的星链技术可以改变人类的通讯以及战争模式，在俄乌战争的今天，已经得到验证。美国有像无数个马斯克这样的人，地球稀缺的能源完全可以去太空带回，另外也可以发展提炼型能源，从石油中提取的物质可以使用一千年不用充电。太阳能、核能电站的应用未来是全面普及的，包括取暖，全部都是清洁能源。
+郭先生说，不同凡响的穿着会让人眼前一亮，GFASHION就有这样的作用。时尚代表一种对生活的态度，是人的精气神的延伸。郭先生回忆起母亲，尽管在困苦的年代，物质极度匮乏，但从未失去对生活的精神和韧劲。同样，俄罗斯入侵乌克兰后，从乌克兰逃离的难民都非常的体面，这也是时尚。
 
-因为共产党在俄罗斯背后支持的这场对乌克兰的战争，美欧的关系已经趋于一体化，这更会激发一个强大的人类新文明，无皇有主的时代正式到来。
+与此同时，新中国联邦人正在乌克兰前线救援。郭先生特别邀请了前线的战友参与到年会的直播，并为年会抽奖，其中意义非同凡响。文耀战友表示，能代表新中国联播来的乌克兰前线，能够帮助，能够给予的人是最幸福的。
 
-撰稿、发布：骄子
+这是一次爱和时尚的交流。无论什么时代，都要拥有对上天的信仰，对生活的态度，活好当下的每一步。郭先生说，我们受到上天万神万佛的指引，一切力量来自上天。在年会上，我们Gclubs会员年轻、智慧、勤劳、勇敢、分享、无私。整个年会都体现了天意。
 
-* * *
+参考链接：[G CLUB2022年年会](https://gettr.com/post/p11z7ye4d5a)
 
-欢迎订阅我们的GNews账号：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
+总编：文真
+编辑：Jack Li文阳   
+审核：文真
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

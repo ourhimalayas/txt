@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@miles 3/28/2022 4:07 AM (UTC)`
+
+War brings infinite disaster and death, we don't want it, we pray for peace. The days of joy and happiness have become farther and farther away, the dead air, the ruined houses, flower, and trees, and living beings! As a member of the New Federal State of China, we will definitely help the people of Ukraine, because the CCP is behind Putin of Russia!<br/>战争带来的是无限的灾难和死亡，我们不想，我们祈求和平。那快乐和幸福的日子已经变得越来越遥远，死寂的空气，破坏殆尽的房屋、花木、生灵！作为新中国联邦人必将帮助乌克兰人民，因为俄罗斯普京的背后就是中共！
+![img](https://media.gettr.com/group26/origin/2022/03/28/04/d3691267-7a55-ddff-a368-968e891db140/out.jpg)
+
+---
+
 `@miles 3/28/2022 1:37 PM (UTC)`
 
 2022.03.28 早《新中国联邦新闻访谈》欧美制裁俄罗斯推升全球钢价； 数字人民币开始应用于结算工程款； 美国宣布想乌克兰追加一亿美元民事安全援助； 所罗门群岛与中共进行安全合作谈判引担忧； 新中国联邦前线救援进行时
@@ -147,13 +156,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 2022.03.27 晚《新中国联邦新闻访谈》伊维菌素和羟氯喹的用药原理和主要事项； 疫苗副作用及解毒方法； 医生答战友疑问
 ![img](https://media.gettr.com/group29/origin/2022/03/28/01/d7cabd59-a465-bc5a-9928-c70d75c10886/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/28/2022 1:04 AM (UTC)`
-
-3/27/2022 Miles Guo: The danger of the dictators is the absence of the bottom line. Qin Gang shamelessly told the US that the CCP has no upper limit, but with a bottom line. The statement made by Putin and Xi that “there is no upper limit to our collaborations” will make countless Chinese people pay a dear price. Biden debunked the lie that Russia went to Ukraine to seize the Nazis in his speech. Those dictators who fool the world will end up making a fool of themselves.<br/><br/><br/>3/27/2022 文贵直播：独裁者的危险在于无底线，秦刚无耻地告诉美国说中共无上限，有底线；普习二人所谓“我们合作无上限”将让无数中国人付出巨大代价；拜登在演讲中揭穿了俄罗斯去乌克兰抓纳粹的谎言；愚弄天下的独裁者必被天下愚<br/>
-![img](https://media.gettr.com/group7/getter/2022/03/28/01/f15b2ca5-5690-ade6-2fb2-1f478d580d28/out.jpg)
 
 ---
 

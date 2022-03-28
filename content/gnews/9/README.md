@@ -2,29 +2,16 @@
 ---
 
 
-## 历史的今天3月28日
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246485/)
+## 20220327郭文贵大直播 ：美国有绝对的科技经济和军事实力碾压俄罗斯，对ccp更不在话下
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246736/)
 
-作者：纽约香草山农场教育部 马克文，朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1959年3月28日，是中共国宣布的所谓 “西藏百万农奴解放纪念日” 。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-64.jpg)
-据历史资料记载，中共为了在西藏地区实行共产统治，对藏人进行了血腥暴力的“改造”。1959年3月，中共的残暴激起藏人的反抗，最终，爆发了大规模的抗暴起义。对此，中共派军队进行了武力镇压，西藏政府首脑第十四世达赖喇嘛与高官流亡印度。从此，中共对藏人开始了大规模的镇压和屠杀。藏人为了纪念这次反抗中共的起义，把1959年3月10日设立“西藏人民起义日”，每年3月10日藏人都会纪念这一事件。
+作者：东京樱花团小视频组
 
-中共在镇压西藏百姓起义后，竟然强奸民意，伪造历史，把1959年3月28日定为 “西藏百万农奴解放纪念日”，企图掩盖其在西藏的武装镇压暴行。
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
-藏人行政中央外交与新闻部秘书嘎玛秋英反驳道，中共当局声称于1959年3月28日解放西藏百万农奴，并让藏人当家作主，但实际上，这些宣传纯属伪造。中共自1949年开始非法侵占西藏，并屠杀无数藏人，摧毁数千座寺庙，对藏人造成的苦难难以计数。同时，嘎玛秋英还指出，虽然中共当局通过媒体竭力宣传西藏的 “发展” ，但事实上西藏境内的人权状况仍处于恶劣状态。
-
-欧洲议会西藏协调组官员认为，设立这个节日是对藏人史无前例的侮辱。
-
-参考链接：[西藏百万农奴解放纪念日](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E7%99%BE%E4%B8%87%E5%86%9C%E5%A5%B4%E8%A7%A3%E6%94%BE%E7%BA%AA%E5%BF%B5%E6%97%A5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：文真
-编辑/审核：Jack Li文阳   
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

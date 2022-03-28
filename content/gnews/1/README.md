@@ -2,8 +2,8 @@
 ---
 
 
-## 20220327郭文贵大直播 ：灭共后中国的环境污染有救
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246678/)
+## 20220327郭文贵大直播 ：拜登演讲未区分共产党与中国人 拜登整个政治生涯都没对中国友好过
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2246859/)
 
 作者：东京樱花团小视频组
 

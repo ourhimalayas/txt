@@ -2,29 +2,35 @@
 ---
 
 
-## 秘翻在线：防疫“优等生”上海因疫情爆发进行“压茬推进”式管控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2245583/)
+## 上海疫情爆发分区封城 中共股市随之下滑
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2245906/)
 
-**撰稿：葛大饼**
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+彭博社3月28日报道，中共国股市今日大幅下跌，原因是上海当局为抗击中共病毒爆发宣布了即将大规模分区封城的消息，这也由此引发了人们对于中共商业运营中断和国民经济即将走向崩塌的担忧。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-49.jpg)图片来源：  DW
-根据2022年3月28日多家媒体报道，中共新冠病毒在上海失控爆发（27日感染人数已达3500人），上海市政府因此发布通知：3月28日5时起，以黄浦江为界分区分批实施核酸筛查，上海正式步入“划江而封”的时代。
+据了解，本周一早些时候，CSI 300指数下跌了2%，然后微调了部分损失，原因是上海市当局表示将分为两个阶段封城，以进行大规模的核酸测试闪电战。消费股领跌中共国大陆和香港市场，其中，白酒制造商贵州茅台、运动服装制造商李宁和安踏体育用品有限公司均对基准指数构成了沉重压力。
 
-新闻解释这种轮流风控，有先有后的防疫措施，其实类似于在农业上的**压茬推进**—一茬接着一茬种，中间不休耕，不耽误农时，不让地闲。有上海网友调侃：“难道我们生来就是找茬的？”
+众所周知，上海是许多国际公司的中共国总部所在地，也是中共国内最大的港口。此次的封城政策明显加剧了中共国股市的不确定性。此前，受乌克兰战争和中概股随时可能大规模退市的影响，中共股市就已使得投资者们在应对监管不利因素方面身心俱疲。
 
-据通知要求，封控区域内，住宅小区实施封闭式管理，所有人员足不出户，人员和车辆只进不出；暂停公交、地铁、轮渡、出租汽车、网约车运行；所有企业实施封闭生产或居家办公，因工作需要的医务人员等凭工作证或单位证明可以正常出行；保障市民群众特别是孕产妇、血透、放化疗等特殊患者的应急就医需求。
+交银国际首席策略师郝红对此评论称，上海市作为中共国的经济中心，占据了4.32万亿元即4%的国内GDP。此次上海的疫情封锁政策无疑将会严重影响到中共国的股市交易，交易量可能会因此大幅下降。同时，中共国的其他城市亦可能效仿上海的防疫政策，这将使中共2022年的GDP总值受到严重影响。
 
-虽然此前有专家喊话上海绝不能封城，但是面临疫情失控爆发，上海目前采用重点区域+非重点区域、核酸检测+抗原自检的最小成本方式恢复日常生活。
+香港京华山研究主管彭伟新亦发表评论称，考虑到今年疲软的中共股市起点，上海的部分封城政策和疫情扩散到其他地区的潜力将使中共国更难以实现5.5%的GDP增长目标。
 
-由于上海连续高感染，医疗资源也奔溃了，网络上已经出现支援上海的热搜。
+【来源】[https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN\_XCMGGwFWHpXvYlZQ4BoPG5d6c8\_spo8Y\_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w](https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia%20https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN_XCMGGwFWHpXvYlZQ4BoPG5d6c8_spo8Y_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w)
 
-网格化，新疆式的防疫措施在中共掌控的地区轮流执行，无论是东方之珠香港，还是令人傲娇的“优等生”上海，都没逃得过这场运动式防疫。很多在上海的朋友反映买菜难的问题，在小区内经历了以物换物，无休止的核酸检测．．．郭先生提醒多次，远离大城市，躲在小城市和农村，备好生活物资和药品才有更多机率度过人类的最黑暗时期，一定要看着共产党被KO！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
 
-**[新闻来源](https://k.sina.cn/article_6914257879_19c1f33d7027019hlz.html?from=news&amp;subch=onews&amp;kdurlshow=1&amp;sinawapsharesource=newsapp&amp;wm=3200_0024)**
+- 审核/编辑/发稿:qiutian（邱甜）
 
-#  
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

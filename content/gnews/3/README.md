@@ -2,10 +2,28 @@
 ---
 
 
-## 3/27/2022 文贵直播：习近平不论如何都会打台湾！普和习认为如果不干掉欧美，他们自己和家人就会被干掉；习觉得只有拿下台湾才不会让民主自由之风会吹到大陆
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2246650/)
+## 西媒头条 — 第197期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2246792/)
 
-秘密翻译组-北美组
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西媒头条.jpeg)
+
+发稿：Nuevo唐人
+
+* * *
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+
+
+
 
  
 

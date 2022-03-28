@@ -2,41 +2,29 @@
 ---
 
 
-## 有声|美将中共国的电信、移动与俄国的卡巴斯基列入黑名单
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246333/)
+## 题目：俄罗斯因兵源缺乏招募“真主党”雇佣兵
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2246536/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月26日国外媒体报导，美国联邦通信委员会FCC于当日将俄国的卡巴斯基实验室、中共国的电信美洲公司与移动国际美国有限公司，列入了对美国国家安全构成威胁的黑名单。FCC委员卡尔表示，新名单将有助保护美国的网络免于中共国和俄国国家支持的公司的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-48.png)
-FCC曾在2021年把中共国的华为技术有限公司和中兴通讯等5家公司列入首批黑名单。卡巴斯基则是首家被FCC列入黑名单的俄罗斯公司。
+**撰稿：日本东京方舟农场   Miyali7768(文玉)**
 
-美国官员长期以来一直警告，使用卡巴斯基软件可能让美国网络受到俄罗斯网络攻击的风险，美国相关部门则于2017年正式禁止该公司的旗舰防毒产品进入联邦网络。
+据《自由时报》3月27日报道，因战事不顺，俄罗斯佣兵组织“瓦格那集团”（Wagner Group），日前与黎巴嫩什叶派武装组织“真主党”（Hezbollah）进行谈判，商讨招募佣兵加入侵略乌克兰的战斗事宜。
 
-总部设于莫斯科的卡巴斯基始终否认自己是俄罗斯政府的工具，他们表示对FCC的决定感到失望，声称美国此举毫无依据。
+由于北约组织和美国不断提供武器给乌克兰，加上乌国军民奋勇抵抗，俄罗斯入侵乌克兰战事不顺，俄罗斯目前正在叙利亚和中东地区招兵买马。
 
-中共国被制裁的两家公司尚未做出回应，中共国驻美国大使馆已经跳出来批评FCC滥用国家力量，恶意攻击中共国公司，要求美方立即停止对中共国企业的无理打压，并声称会采取必要措施维护中企的合法权益。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-3-2.jpg)（图片来自美联社）
 
+《自由时报》援引述利比亚“Al-Arabiya al-Hadas”电视台报道，俄罗斯佣兵组织“瓦格那集团”（Wagner Group）与黎巴嫩什叶派武装组织“真主党”（Hezbollah）在几天前已经敲定由真主党派出800名战士前往乌克兰作战，雇用一名战士的费用为每月1500 美元。
 
+报道称，参加乌克兰战争的雇佣武装分子是从身经百战的“阿巴斯”（Al-Abbas）和“拉德万”（ Al-Radwan）军营中招募的，第一阶段计划预定在3月29 日进行，届时载运200名佣兵的军机将从叙利亚大马士革起飞，前往白俄罗斯第二大城戈梅利（Gomel）一处空军基地集结待命。
 
-文字版原文：[美将中共国的电信、移动与俄国的卡巴斯基列入黑名单](https://gnews.org/zh-hans/2238229/)
+据了解，“真主党” 宗旨为消灭以色列，把西方势力逐出黎巴嫩，是1982年伊朗资助成立的什叶派伊斯兰政治和军事组织。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+参考链接：
+[https://news.ltn.com.tw/news/world/breakingnews/3873761](https://news.ltn.com.tw/news/world/breakingnews/3873761)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：幽蘭自得
+总编：青城道姑
+校对发布： 文曦
 
  
 
