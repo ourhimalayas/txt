@@ -2,20 +2,31 @@
 ---
 
 
-## 拜登没有将中国人和共产党分开
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2241960/)
+## 【G时新闻】解冻部长级交流前，澳总理拒绝会晤中共国新任大使
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2242109/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+作者：加拿大温哥华扬帆农场 – 播报：莉李鲤 – 视频制作：文雅
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+据美国之音3月27日报道，澳大利亚总理斯考特∙莫里森表示，在北京解冻两国部长级交流之前，他不适合会晤中共国新任驻澳大利亚大使肖千，并对中共国加强与太平洋岛国所罗门群岛安全关系表示关切。
 
-*发布：陶子*
+中共国与澳大利亚的关系近年来日益恶化。北京新任驻澳大利亚大使肖千今年1月底上任后，态度友善许多。肖千此前会晤了澳大利亚外长马里斯∙佩恩，但是莫里森拒绝与肖千会晤，并表示，除非两国首先解冻部长级交流。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+太平洋岛国所罗门群岛将与中共国加强安全合作伙伴关系。莫里森表示，太平洋国家一直作为一个大家庭集体出现，澳大利亚是其中一员，新西兰也是。澳大利亚是所罗门群岛单一最大的发展伙伴。莫里森和反对党工党领袖阿尔巴尼斯都对中共国可能将军事安全之手伸到澳大利亚的后院表示关切。
 
+因为澳大利亚对中共国在香港问题和病毒事件的质疑，导致中澳关系破裂，中共国对澳洲采取一系列报复措施。中共的无赖嘴脸在世界上臭名昭著，面对质疑不敢接受调查，一言不合就翻脸。但事实终究是掩盖不住的，病毒溯源一定会进行下去，香港也会在未来劫后重生，永远灭亡的是中共
+
+编辑/上传：一叶
+盖特链接：[https://gettr.com/post/p125jm2acda](https://gettr.com/post/p125jm2acda)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

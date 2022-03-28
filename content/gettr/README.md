@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 12:30 AM (UTC)`
+
+2022.03.27 晚 《新中国联邦新闻》我们在做本应由中国政府做的事情； 俄乌战争是对全世界政客关于世界认知的一场检验
+![img](https://media.gettr.com/group47/origin/2022/03/28/00/70f18e70-e4d5-c431-19d6-99673cfb953b/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/27/2022 11:01 PM (UTC)`
 
 2022.03.27 NFSC News  British Media Freelancer Interviews NFSC Rescue Team Members； Young NFSC Member Feather Works at Frontline of Rescue Effort
@@ -147,15 +154,6 @@ King,  a volunteer of NFSC's Ukraine rescue mission interviewed by Bannon’s Wa
 
 2022.03.26 晚《新中国联邦新闻》共产党做局榨干中国人民全部血汗钱； 所有的爆料都是为了挽救更多的中国人
 ![img](https://media.gettr.com/group17/origin/2022/03/27/00/7dbafde1-fe5c-9312-f3d1-88143cd76bff/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 3/26/2022 10:18 PM (UTC)`
-
-今天是 G|CLUB 会员的喜庆日子,看到一个个战友的开心快乐,我们华盛顿DC农场的战友们用这个视频,表达对 G|CLUB会员的祝福!🙏💖🌹
-![img](https://media.gettr.com/group12/origin/2022/03/26/22/88115d2f-7997-c599-fe41-273125fce77e/out.jpg)
 
 ---
 
