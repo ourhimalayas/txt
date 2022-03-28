@@ -2,51 +2,38 @@
 ---
 
 
-## 埃隆·马斯克认为普京才是世界首富
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2245071/)
+## 2022/03/23 著名网球运动员拉斐尔呼吸困难、身体疼痛
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2245145/)
 
-翻译：聖地香港
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3382.png)图片来源:news.yahoo.com
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032607.jpg)[GETTR视频链接](https://gettr.com/post/p11llyob1de)
 
-- 埃隆·马斯克（Elon Musk）认为俄罗斯总统弗拉基米尔·普京（Vladimir Putin）比他更富有。
-- 马斯克在2021年超越亚马逊的杰夫·贝索斯（Jeff Bezos）成为世界首富。
-- 马斯克在接受Axel Springer媒体首席执行官Mathias Döpfner采访时对普京做出了评价。
+**视频字幕：**
 
+**主持人**：拉斐尔，你的胸口怎么了？对你来说是第一次吗？
 
-埃隆·马斯克是有记录以来最富有的人，但他认为普京可能比他更为富有。
+**拉斐尔（Rafael Nadal，西班牙著名男子网球运动员）**：老实说，我不知道，昨天晚上比赛完之后发生的。昨天晚上结束得晚，今天早晨我还打球，你们可以想像。我有时间做许多事，但是没有时间去检查检查身体。不过我只能说，我呼吸特别困难。我不知道，呼吸的時候很疼，非常不舒服，但是老实说，他不是可以说这些话的人。即使很明显我今天不能做正常的事情，因为疼痛。老实说，很难受，我说了，我呼吸困难，我不知道是不是肋骨有问题，我不确定，但是呼吸的时候或者动的时候，这里好像针扎一样。因为疼痛，我有点晕。这种疼痛使我活动很受限制，不是平常那样的疼。我感觉很不好，因为呼吸受到影响，所以不仅仅是输了比赛的难过。输比赛我可以接受，老实说，在比赛结束之前，我已经开始不舒服了。
 
-这位特斯拉的首席执行官在2021年底财富超过亚马逊的杰夫·贝索斯重获世界首富头衔。
+**简评：**
 
-Axel Springer是Insider的母公司，Axel Springer媒体首席执行官Mathias Döpfner在最近对马斯克的一次采访中问道：“作为身价约2600亿美元，成为世界首富的感觉如何？”
+西班牙著名男子网球运动员拉斐尔输掉了一场比赛，不过让他感觉更不舒服的是身体的疼痛伴呼吸困难。在比赛开始之前，拉斐尔已经感觉不适，呼吸特别困难，而且呼吸的時候很疼，非常不舒服。
 
-马斯克回答道：“我确信普京比我富有得多。”
+拉斐尔2021年感染过新冠病毒，已经接种过疫苗。作为一个身体健康、成绩卓著的职业运动员，拉斐尔的状况让人怀疑与疫苗接种后心脏问题有关。已经有200多名职业运动员在比赛或者训练中突然倒地，都是接种疫苗后发生的，这也引起了全世界的关注。疫苗引起的副作用在解密的FDA文件中写明的就有1291种，任何一种发生在人身上都是巨大的灾难。到了疫苗灾难真正爆发的时候，这个世界会成为人间地狱。
 
-俄罗斯总统弗拉基米尔·普京的巨额财富仍然是一个谜，因为没有人确切知道具体数额，或者藏在哪里。黑海一座价值 14 亿美元的宫殿和价值 400 万美元的摩纳哥公寓据称与普京有关。
-
-有人猜测这位俄罗斯总统可能是世界上最富有的人，金融家比尔·布劳德（Bill Browder）在 2017 年作证说，他认为普京 “已经积累了 2000 亿美元的不义之财” 。
-
-普京入侵乌克兰后，美国和西方国家对俄罗斯、普京的主要盟友和俄罗斯总统本人实施了制裁。
-
-在马斯克与 Döpfner 就普京入侵的讨论中，这位特斯拉的首席执行官表示，制止普京势在必行。
-
-马斯克说：“我认为美国政府所做的比人们知道的要多，只是并没有公开。但必须要采取更严厉的措施，我们不能让普京吞并乌克兰。这太疯狂了。”
-
-**素材：peacelv**
-
-素材链接：[Elon Musk — officially the world’s richest man — says he thinks ‘Putin is significantly richer than me’](https://news.yahoo.com/elon-musk-officially-worlds-richest-175705343.html)
+*字幕：Vekap|听写：云岭|翻译：Roberts|校对：Blue|简评/文字整理/编辑：胖丁*
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

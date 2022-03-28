@@ -2,24 +2,22 @@
 ---
 
 
-## 樱花头条┃德国总统夫妇感染新冠病毒 希拉里检测阳性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2245051/)
+## 上海今天开始封城❗️❗️
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2245107/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-德国总理夫妇感染新冠病毒.德国总统曾已接种第三针疫苗;希拉里克林顿新冠病毒呈阳性.
+编辑：波士顿五月花—-思澈
 
-信息来源：
-[https://www.gettr.com/post/p11gfgafd0a](https://www.gettr.com/post/p11gfgafd0a)
+2022/03/28星期一早上五点开始上海正式进入半封闭状态
 
-*编辑：东京樱花团/asket、行动（素材）
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2672FB4F-4EA0-4AA3-9210-8CF751BCEC2D.jpeg)
+
+上海市政府已于当地时间周日晚间通过其在社交媒体应用程序微信上的渠道宣布了这些措施，现正在分两个阶段进入封闭状态。从周一早上5点开始，黄浦江以东的地区已经开始被封闭，从周五开始，黄浦江以西的市中心将被隔离。在封闭期间居民不许离开家，并且必须接受核酸检测。住家将被封锁，这一突如其来的消息导致了周日晚上超市外排长队囤积性购买。
+
+素材来源：[https://www.handelsblatt.com/politik/international/null-covid-strategie-mehr-als-3500-coronafaelle-chinas-finanzmetropole-schanghai-geht-in-den-corona-lockdown/28204428.html](https://www.handelsblatt.com/politik/international/null-covid-strategie-mehr-als-3500-coronafaelle-chinas-finanzmetropole-schanghai-geht-in-den-corona-lockdown/28204428.html)
+
+*发布：思澈*
+
+
 
  
 

@@ -2,33 +2,24 @@
 ---
 
 
-## 联合国：乌克兰粮食短缺正在加剧
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2244223/)
+## 疫情｜台湾疫情爆发 外界忧：步入香港后尘
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244406/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/02870000-0aff-0242-8bb8-08da0feedd33_w1023_r1_s.jpg)乌克兰马里乌波尔的民众从一家粮食仓库领取饮用水（2022年3月18日）（美联社图片）
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Purple-DJ-Music-Channel-2.png)追踪疫情关注组[盖特](https://gettr.com/user/mightygroup)｜**Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+据中央流行疫情指挥中心数据，台湾本土疫情多点爆发，部分感染源无法明确。27日新增83例确诊，疫情足迹遍布高雄、新竹、双北、基隆、台东等多县市。又基隆小吃店衍生警察群聚案、大潭电厂群聚案仍持续扩大，并未有好转迹象。28日，则新增34例本土确诊个案。
 
-据美国之音3月28日报道，俄乌战争爆发后，乌克兰的粮食短缺正在加剧。联合国世界粮食计划署警告说，乌克兰的粮食供应链已经断裂，估计有45%的民众正在为缺粮发愁。计划署发言人菲里说，为数千万被困在乌克兰境内的民众提供粮食的系统正在停止运行。超市已经无货，粮库储备见底，战区家庭的粮食短缺更为严重，尤其是乌克兰东部城市马里乌波尔。
+值得关注的是，基隆小吃店衍生警察群聚局经定序后，发现与目前台湾本土疫情的病毒株不同，疑惟越南境外疑入病毒株。
 
-联合国儿童基金会说，俄乌战争导致430万乌克兰儿童流离失所，占乌克兰儿童一半以上。联合国人权事务高级专员办公室说，有1080多名乌克兰民众死亡，其中至少78%是儿童。
+其中，大潭电厂群聚案备受关注，该电厂发电量占全台逾10%，外界担忧近日台湾供电可能因电厂群聚而更受影响。经济部长王美花28日受访表示，大潭电厂群聚确诊有增加可能，但目前已快速匡列。原定4月1日将松绑的口罩禁令，因疫情升温经防疫指挥官陈时中公布，将暂时改为不松绑。
 
-菲里说，世界粮食计划署已经调配了足够的粮食供乌克兰境内300万民众使用一个月。一个月之后呢？世界粮仓乌克兰因为战争导致粮食产量剧减，本国人民尚且挨饿，依靠乌克兰粮食进口的其他国家呢？粮荒即将在全球范围内爆发，再加上疫苗灾难近在眼前，邪恶中共和俄罗斯共同导演的这场人间悲剧不知道要吞噬多少人！
+有媒体采访陈时中提到“是否担心台湾步入香港后尘”，陈苦笑称“绝对不想”。此外，[上海疫情升温](https://gnews.org/zh-hans/2243287/)实施分批封城一事，经济部长王美花于立院经济委员会业务报告时称：经工业局联系当地台厂，确认产线尚未受到影响，惟可能影响出货部分。
 
-[新闻参考链接](https://www.voachinese.com/a/ukraine-running-out-of-food-20220327/6503744.html)
-
-*编辑：胖丁*
+来源｜[Newtalk](https://newtalk.tw/news/view/2022-03-28/730302)、[YAHOO](https://tw.news.yahoo.com/大潭電廠群聚案今確診數恐增-王美花-確診者中有本國員工回到社區-051703933.html)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 
