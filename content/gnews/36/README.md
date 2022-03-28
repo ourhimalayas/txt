@@ -2,22 +2,24 @@
 ---
 
 
-## 俄乌战争是对全世界政客关于世界认知的一场检验
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241534/)
+## 日本三大型银行终止与俄最大银行的美元交易
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241535/)
 
-作者：纽约香草山 -飞虹
+作者：日本东京方舟农场—Miyali7768(文玉
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月25日，在文贵大直播中，郭先生详细分析了俄罗斯军事力量的真正水平，并认为，从最初人们对俄罗斯的预期以及俄罗斯的实际表现来看，这场战争是全世界政客对军事、科技、世界认知的一次大暴露。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-88.jpg)
-郭先生认为，以出口武器著称、号称世界第二大军事强国的俄罗斯，在俄乌战争中的表现令人大跌眼镜，他们的装备、补给、通信以及战术都基本上停留在二战时期的水平，但在冠冕堂皇的虚假宣传方面，却能一本正经、堂而皇之地试图欺骗全世界，和中共、北朝鲜如出一辙。在西方文明国家强大的现代军事科技面前，他们终究难逃失败的命运。
+据外媒资讯：日本三菱UFJ、三井住友和瑞穗三家大型银行集团决定从3月26日起全面停止与俄罗斯最大的银行——兹贝尔银行的美元交易。三家银行与俄罗斯之前以美元结算的所有贸易活动，都需要用其他汇款方式替代。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-89.jpg)
+据三家银行的官员透露，由于美国政府将从美国时间26日起，暂停与兹贝尔银行及其25家子公司之间的银行间结算和转账等交易，三菱UFJ、三井住友和瑞穗集团决定跟进美方的制裁，在日本采取类似的交易管制措施。 其中，三菱UFJ的制裁涵盖除日元以外的所有外币交易。
 
-参考链接：[以出口武器著称的号称世界第二大军事强国的俄罗斯在俄乌战争中的表现令人大跌眼镜。](https://gettr.com/post/p122nf153a1)
+迄今为止，这三家集团已经停止了与俄罗斯第二大银行VTB银行以及多个俄罗斯金融机构的交易，这些金融机构已被排除在多项国际金融支付、结算系统之外。
+
+参考链接：[３メガバンクＧ、ロシア最大手銀とのドル取引を全面停止へ…日系企業や従業員利用](https://news.yahoo.co.jp/articles/4a05a5e1b21d6ecb60c43f8aa69434cf33d4dac0)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
 总编：飞虹
-编辑：飞虹
-审核：飞虹
+编辑：Zion文恩/飞虹
+审核：文恩
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)

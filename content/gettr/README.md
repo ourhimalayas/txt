@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/28/2022 5:16 AM (UTC)`
+
+3/27/2022 Miles Guo: The CCP’s 70-year rule has completely devastated the beautiful mountains and rivers of China! Many international friends trust the New Federal State of China and have offered advice to control the pollution of water and soil in China. I am increasingly confident that we can resolve the environmental issues of China!<br/><br/>3/27/2022 文贵直播: 中共70年的统治把中国美丽的山河损毁殆尽！多位国际友人信任新中国联邦并提出了治理中国水土污染的建议。文贵越来越有信心解决中国的环境问题！<br/>
+![img](https://media.gettr.com/group26/getter/2022/03/28/05/e733daa9-43a9-1d04-3679-9202491828a4/out.jpg)
+
+---
+
 `@miles 3/28/2022 5:01 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -147,13 +154,6 @@ The frontline base camp of the New Federal State of China receives rescue suppli
 
 
 ![img](https://media.gettr.com/group10/origin/2022/03/27/17/a9e0650a-1c8d-d2a4-8397-e9df10682182/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/27/2022 4:39 PM (UTC)`
-
- 3月27号：科学政治．和政治科学的最好代表．就是这个孙子……能把谎言说成这个样子，敢这么说，真的佩服共产党的流氓政府的勇气……
-![img](https://media.gettr.com/group8/getter/2022/03/27/16/64ff6cf6-430b-47ee-bb39-04cac109b529/out.jpg)
 
 ---
 

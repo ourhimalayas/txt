@@ -2,30 +2,35 @@
 ---
 
 
-## 我们在做本应由中国政府做的事情
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2241538/)
+## 美财长耶伦赞同加密货币的创新称需要被监管
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2241701/)
 
-作者：纽约香草山 -飞虹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月25日，班农战斗室连线采访了新中国联邦、法治基金在乌克兰前线救援中心的精粮战友，了解前线的救援情况。
+翻译与编辑：灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《雅虎新闻》3月25日报道，**美国财政部长珍妮特·耶伦(Janet Yellen)表示，她认识到加密货币的好处，并称其支付系统的创新可能是一件健康的事情。同时，希望美国财政部发布促进创新的监管指导。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/耶伦.jpg)美国财政部长珍妮特.耶伦（雅虎新闻）
+据报道，美国财政部长珍妮特·耶伦(Janet Yellen)**对加密货币提供的好处表示赞同**，称财政部希望为支持该领域创新的未来监管提供指导。
 
-精粮战友详细介绍了前线面对的环境、战友们所做的一些具体工作、对乌克兰难民提供的帮助，并表明了自己和战友们希望通过行动表明新中国人热爱自由、和平的决心。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-87.jpg)
-谈到中共对前线战友救援行动的阻挠，精粮战友介绍了中共如何发布虚假信息、抹黑新中国联邦的救援行动，以及战友如何坚持把同胞救援到安全的地点，并强调说，我们正在做本应由中国政府做的事情。
+周五，耶伦在接受CNBC采访时表示:“**加密货币的发展显然是突飞猛进的，现在它在很多美国人的投资决策中发挥的重要作用。**
 
-班农先生对新中国联邦和新中国人的形象给予了充分的肯定和称赞。
+她还说，**加密货币的好处是显而易见的，财政部也承认它在当前形势下发挥着越来越大的作用。**
 
-参考链接：[班农战斗室采访新中国联邦在乌克兰救援的志愿者](https://gettr.com/post/p123fjd77c2)
+她补充说，她对与金融稳定、消费者和投资者保护以及它们在非法交易中的使用有关的加密货币仍有一些担忧。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+展望未来，耶伦解释说，**她的目标是让财政部就加密货币的使用提出建议，以帮助建立一个促进创新的监管环境。**
 
-总编：飞虹
-编辑：飞虹
-审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+报道称，3月初，拜登总统**发布了一项有关加密货币的行政命令，重点关注消费者保护和减少与数字资产相关的犯罪。**耶伦解释说，**财政部正在努力应对相关网络攻击的威胁。**
 
+新闻来源链接：
+
+[Janet Yellen says crypto has its benefits and the Treasury hopes to offer guidance on regulations that foster ‘healthy innovation’ (yahoo.com)](https://news.yahoo.com/janet-yellen-says-crypto-benefits-164741194.html)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

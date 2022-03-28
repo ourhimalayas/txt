@@ -2,41 +2,37 @@
 ---
 
 
-## 北约评估俄军伤亡已达3-4万人
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2243242/)
+## 上海突发“切块式封城”，中共防疫模式陷危机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243329/)
 
-作者：华盛顿DC农场 自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理/编辑：文泓
 
-![](https://static.dw.com/image/61131076_303.jpg)
-
-华尔街日报3月23日报道，据一名北约高级军官称，俄罗斯在乌克兰战场的伤亡人数可能在 30,000 至 40,000人之间。
-
-这位不愿透露姓名的北约军官，在该联盟位于比利时的军事总部的简报中表示，自 2 月 24 日入侵邻国以来，已有 7,000 至 15,000 名俄罗斯人丧生。根据他的计算，估计有 30,000 至 40,000 名俄罗斯人伤亡，即在战争中，每有一名士兵死亡，一支军队就会遭受三名受伤士兵。伤亡人员包括在行动中阵亡和在行动中受伤，以及在行动中被俘或失踪的人。
-
-本周早些时候，西方情报官员将俄军的死亡人数“合理估计”为 10,000 人。如果属实，这将是二战以来俄军伤亡人数最多的一次。 这一数字与俄罗斯报纸《共青团真理报》周二的报道接近，该报道援引俄罗斯国防部的数据，证实有 9,861 名士兵死亡。然而，这篇文章很快被删除，该报后来指责黑客在其网站上植入假新闻。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/34.png)图片来源：Dimsum Daily & 雅典娜设计组
 
 
+上海市推行的“精准防疫”政策曾被官媒奉为“典范”。如今，这座拥有二千四百多万人口的超大型城市疫情大爆发，**目前疫情已外溢至全国21个省71个市，当局以黄埔江为界对全市切块式封控管理**。
 
-参考链接：
+3月27日，上海当局发布消息，**自28日起，该市以黄浦江为界分区分批实施核酸筛查。第一批，浦东、浦南及毗邻区域先行实施封控，开展核酸筛查，4月1日5时解封，**同期浦西地区重点区域继续实施封控管理；第二批，**4月1日3时起，按照层层推进的原则，对浦西地区实施封控，开展核****酸筛查，4月5日3时解封。**
 
-[https://www.wsj.com/articles/ukraine-humanitarian-crisis-worsens-as-biden-heads-to-europe-11648031069](https://www.wsj.com/articles/ukraine-humanitarian-crisis-worsens-as-biden-heads-to-europe-11648031069)
+官方通报称，封控区域内，住宅小区实施封闭式管理，所有人员足不出户，人员和车辆只进不出。保障基本生活必需的外卖、快递等实行无接触配送，不得进入住宅小区。
 
-[https://news.yahoo.com/russian-dead-casualties-ukraine-war-nato-171928734.html?fr=sycsrp\_catchall](https://news.yahoo.com/russian-dead-casualties-ukraine-war-nato-171928734.html?fr=sycsrp_catchall)
+同时，**当局暂停公交、地铁、轮渡、出租汽车、网约车运行。疫情防控、紧急就医、生活保障、城市运行、应急处置等相关车辆，经各区政府或各行业主管部门认定核实后通行，其余车辆非必要不上路**。
 
-编辑/校对/发稿：有莫举名
+在上海当局宣布封控管理升级后，当地市民开始恐慌性抢购市场商品，部分商品被抢购一空。此前，上海市场的商品价格普遍飙升。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-471.jpeg)
+尽管上海疫情升级，但上海当局之前并未如其它“重灾区”一样宣布“封城”。当地官员在26日的新闻发布会上还宣称，封城恐影响国家经济和全球经济。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-87.png)
+参考链接：[上海“切块式封城”中共防疫模式陷危机](https://www.epochtimes.com/gb/22/3/26/n13675230.htm)
 
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

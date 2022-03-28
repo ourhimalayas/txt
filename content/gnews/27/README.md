@@ -2,26 +2,28 @@
 ---
 
 
-## 首都渥太华再现反疫苗政策抗议行动
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2242363/)
+## 上海“封而不封”，生产企业停工损失惨重！
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2242965/)
 
-作者：加拿大温哥华扬帆农场 – 青青 – 文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+上海疫情严重，市卫生健康委主任邬惊雷指出，上海专门制定了工作方案，要求各医疗机构要切实保障急诊绿色通道的畅通，台商则表示，不管浦东、浦西，现在生产企业全部停工，无法进出货，损失惨重。
 
-据加拿大【ctv新闻】3月26日报道，在特鲁多政府的皇家骑警将反疫苗护照运动的卡车司机们驱离首都的一个多月后，大量抗议者在当天又再次返回并集结在渥太华市中心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220328111940348.jpg)图片来源：中新社
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3330.png)图片来源：ctvnews
+住在闵行区的新创公司老板林姓台商表示，这波疫情，让大陆金融中心上海几乎停摆，名义上「不封城」，但事实上就是「封城」，员工无法上班，生产企业无法进货出货，全数被关在社区里，复产遥遥无期。
 
+简评：上海疫情严重，为保经济名义上不封城，但实际的防控措施已达到“封城”效果。中共作为放毒者却无法控毒，外加中共病毒疫苗灾难的复合作用，未来灾难的程度不可预计。当下无法指望政府，疫情中的人们请做好个人防护，新中国联邦提供的解药是不可缺少的防疫必备，不可松懈一定要上心！
 
-报道称，数百辆来自魁北克的汽车在市中心缓缓绕行，鸣笛抗议。 本次示威活动的组织者表示，在所有不合理的疫情限制措施被当局取消之前将不会离开渥太华。
+新闻来源：[https://udn.com/news/story/7333/6196534](https://udn.com/news/story/7333/6196534)
 
-据悉，尽管自由党政府计划在4月底前取消所有的卫生防疫限制，但在全国范围内没有疫苗护照仍然不能自由地旅行，而且所有未接种疫苗的大学生都将继续被拒绝进入校园。 渥太华警方当天表示，大约有300辆参与示威活动的汽车穿过主要市区街道，但目前尚未出现与抗议活动发生冲突的相关报道。
+撰稿/发布：一叶知秋
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-原文链接： [https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342](https://ottawa.ctvnews.ca/convoy-returns-to-the-capital-weeks-after-the-end-of-the-freedom-convoy-protest-1.5836342)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
