@@ -2,28 +2,39 @@
 ---
 
 
-## 乌克兰市长被俘 民众示威逼俄军撤退放人
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246925/)
+## 乌克兰用火车向欧洲出口玉米
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247003/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-据外媒报道，3月26日，俄军进军乌克兰北部城市斯拉夫帝奇市，占领一家医院，并俘虏了该市市长。 斯拉夫帝奇位于基辅北部100公里，该市在1986年切尔诺贝利核电站事故后建立，主要用于安置核电站的员工。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-28-上午11.23.45.png)
-市长被俘后，数以百计的民众举着乌克兰国旗涌上街头，抗议俄罗斯的入侵。俄军鸣枪示警并向人群投掷震撼弹，但民众并未因此退怯，反而有很多人走上街头。最终俄军被逼退回城市外围，并释放了市长。
+作者：纽约香草山教育部 – Naughty(文行)
 
-斯拉夫帝奇市长福米契夫，获释后相民众表示感谢，并表示，被俘期间他与俄军交涉，俄军同意在乌克兰军队不入驻该市的情况下，保证该市的安全。他补充说，由于俄军要求市民交出武器，并撤销当地的军警，政府会安排专人巡逻以维护治安。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+3月27日外媒报道，乌克兰利沃夫的APK-Inform农业咨询公司表示，由于俄罗斯入侵，乌克兰海港仍然受到封锁，贸易商已开始通过火车向欧洲出口玉米。第一批数千吨玉米已经被运送到乌克兰西部的陆地边境。
+
+乌克兰是全球主要的谷物种植国和出口国，传统上，几乎所有出口都是通过黑海港口运输的，战前每月的粮食出口量超过500万吨。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-14.jpg)
+APK-Inform公司上周曾表示，乌克兰在2021年 7月至2022年6月期间的谷物出口总量应该能达到4400万吨。但由于战争导致的物流问题，预计3月至6月只有100万吨谷物离开该国。
+
+乌克兰运输当局则表示，从乌克兰到欧洲的火车每月最多可以出口60万吨谷物。
 
 参考链接：
-1.[烏克蘭市長被俘 市民無懼開火上街示威逼俄軍撤退放人](https://www.cna.com.tw/news/aopl/202203270070.aspx)
-2.[Ukrainian mayor taken hostage, released after protesters push Russian troops back](https://nypost.com/2022/03/26/ukraine-mayor-taken-hostage-released-after-protesters-push-troops-back/)
+[Ukraine exports first grain by train to Europe, APK-Inform says](https://www.reuters.com/world/europe/ukraine-exports-first-grain-by-train-europe-apk-inform-2022-03-27/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-编辑：文真
-总编：文真
-审核：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

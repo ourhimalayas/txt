@@ -2,38 +2,27 @@
 ---
 
 
-## 乌克兰用火车向欧洲出口玉米
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2247003/)
+## 中共大疆为俄军飞弹导航 德国零售商下架其无人机商品
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2247010/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+**撰稿：日本东京方舟农场  海星**
 
+据《自由时报》3月28日报导，乌克兰副总理费多罗夫（Mykhailo Fedorov）指控中共大疆为俄军飞弹提供导航，德国最大电子零售商MediaMarktSaturn考量后，直接下架大疆无人机商品。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-335.jpg)（图片来源：法新社）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+该报导称，费多罗夫于3月16日在推特上发表了一封致中共大疆公司的公开信。信中指出，俄罗斯军队使用大疆产品为其导弹提供导航，并呼吁大疆停止与俄罗斯来往。
 
+对此，大批网友自发组织在大疆海外社交平台账号、海外合作伙伴账号以及德国商户MediaMarktSaturn的账号下留言，表示中共大疆支持俄乌战争，要求封杀该公司。MediaMarktSaturn考量后，决定停止销售大疆无人机。
 
-
-3月27日外媒报道，乌克兰利沃夫的APK-Inform农业咨询公司表示，由于俄罗斯入侵，乌克兰海港仍然受到封锁，贸易商已开始通过火车向欧洲出口玉米。第一批数千吨玉米已经被运送到乌克兰西部的陆地边境。
-
-乌克兰是全球主要的谷物种植国和出口国，传统上，几乎所有出口都是通过黑海港口运输的，战前每月的粮食出口量超过500万吨。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-14.jpg)
-APK-Inform公司上周曾表示，乌克兰在2021年 7月至2022年6月期间的谷物出口总量应该能达到4400万吨。但由于战争导致的物流问题，预计3月至6月只有100万吨谷物离开该国。
-
-乌克兰运输当局则表示，从乌克兰到欧洲的火车每月最多可以出口60万吨谷物。
+此前，大疆曾辩称，其产品均作为民用，不适用于军事用途。然而，早在2017年美国陆军实验室和海军便已发现大疆无人机存在收集美军地理资讯、影音等敏感资料的安全隐患，要求军队停止、移除大疆设备，卸除电池、存储媒介。
 
 参考链接：
-[Ukraine exports first grain by train to Europe, APK-Inform says](https://www.reuters.com/world/europe/ukraine-exports-first-grain-by-train-europe-apk-inform-2022-03-27/)
+1.[https://ec.ltn.com.tw/article/breakingnews/3874721](https://ec.ltn.com.tw/article/breakingnews/3874721)
+2.[https://www.epochtimes.com/gb/21/1/18/n12696443.htm](https://www.epochtimes.com/gb/21/1/18/n12696443.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+总编：老孙
+校对发布：爱放飞
 
  
 

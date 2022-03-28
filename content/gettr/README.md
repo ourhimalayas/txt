@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@longwood 3/28/2022 6:48 PM (UTC)`
+
+欢迎晚上美东7点左右收看节目，国内逃出战友来电。
+![img](https://media.gettr.com/group39/getter/2022/03/28/18/f449ded0-5cb9-2cce-cd28-754621e7f81b/f353cc858cf9d7ca035a93d6934009a5.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@globalalliance 3/28/2022 5:24 PM (UTC)`
 
 When you come to Medika, you need a local mobile phone card and WiFi to contact your family. The New Federal State of China (#NFSC) has united with a mobile phone card company to provide free mobile phone cards and WiFi. And the WiFi password is our goal: take down the #CCP!<br/>来到梅迪卡的难⺠，需要当地手机卡和WiFi与家人联络。 #新中国联邦 联合一家手机卡公司，提供免费的手机卡和WiFi。而WiFi的密码就是我们的目标： #灭掉中共!
@@ -150,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 The NFSC has drawn increasing international attention in regards to humanitarian rescue operations including traditional media. A popular Polish newspaper, FAKT, has conducted an interview with Nicole. FAKT learned about more than 550 Chinese and Ukrainians have been saved by the NFSC in a week, including 100 children who have fled Ukraine’s warzone to Poland then finally arrived in Spain safely.<br/>新中国联邦在乌克兰边境的救援行动，引发越来越多关注，也包括传统媒体。波兰知名的报纸FAKT（事实）采访了Nicole，知道一周内有550多中国人及乌克兰人被救助，其中有100名儿童已经从战区安全抵达西班牙。
 ![img](https://media.gettr.com/group26/origin/2022/03/28/04/8431e416-762f-b5d2-abad-66fd88608571/out.jpg)
-
----
-
-`@miles 3/28/2022 3:56 AM (UTC)`
-
-The frontline base camp of the New Federal State of China receives rescue supplies from all over the world on a daily basis and has become a central base camp for receiving supplies.<br/>Mainstream media from the world came to our rescue center for interviews and news reports, which are constantly featured on their channels.<br/>Our base camp has been endorsed by international humanitarian rescue teams and has become a meeting center for local NGOs.<br/>Our presence showed that the Chinese Communist Party does not represent the Chinese people. With our actions, we are telling the world that we will definitely take down the Chinese Communist Party.<br/>新中国联邦前线营地，每天都收到来自世界各地的救援物资，已经成为接收物资的核心营地。世界各地的主流媒体，都会来到我们的营救中心进行采访和报道，我们的营地也得到了国际人道主义救援团队认可。<br/>我们的出现证明了，中共不能代表中国人。我们用行动告诉世界，一定会消灭中国共产党。
-![img](https://media.gettr.com/group25/origin/2022/03/28/03/ed138a08-919e-ae6f-62f2-13bdc9798f2f/out.jpg)
 
 ---
 

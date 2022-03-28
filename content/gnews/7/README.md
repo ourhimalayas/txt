@@ -2,43 +2,16 @@
 ---
 
 
-## 马斯克“认真思考”要建立一个新的社交媒体平台
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2247431/)
+## 喜币进入实体店意义重大-7哥视频
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2247547/)
 
-编译： Jenny Ball
+供稿：聪宁
+编辑发稿：am夏天
+喜马拉雅纽伦堡正义农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3441-edited.png)埃隆·马斯克于 2022 年 3 月 22 日在德国格伦海德出席新的特斯拉电动汽车超级工厂的开幕式。Patrick Pleul/Pool 来自 REUTERS
-
-路透社 3 月 27 日 – 特斯拉公司首席执行官埃隆·马斯克 (Elon Musk) 正在“认真考虑”建立一个新的社交媒体平台，这位亿万富翁周六在一条推文中表示。
-
-马斯克正在回答一位 Twitter 用户的问题，即他是否会考虑建立一个社交媒体平台，该平台由开源算法和一个优先考虑言论自由的算法组成，并且宣传最少。
-
-马斯克本人是 Twitter 的多产用户，他最近一直批评社交媒体平台及其政策。他曾表示，该公司不遵守言论自由原则，正在破坏民主。
-
-他的推文是在他发布推特民意调查后的第二天发布的，该民意调查询问用户: 是否认为twitter遵守言论自由原则，超过 70% 的人投票“不”。
-
-“这次民意调查的结果很重要,请仔细投票，”他周五表示。
-
-如果马斯克决定创建一个新平台，他将加入越来越多的科技公司组合，这些公司将自己定位为言论自由的拥护者，并希望吸引那些认为自己的观点在 Twitter , Meta Platform 的 Facebook 和 Alphabet 旗下的 Google 的 YouTube等平台上受到压制的用户。
-
-**参考链接：**[Elon Musk giving ‘serious thought’ to build a new social media platform](https://www.reuters.com/technology/elon-musk-giving-serious-thought-build-new-social-media-platform-2022-03-27/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
-
+喜币从前天它开始进入实体店，这个意义很大。大概在五六周之间，会有一个重大的消息，即将公布开始上线。同时你要看到整个喜联储的那个新的更新支付系统，你们一定要学会用。买车是人家用喜币买的，那个意义太大了，也就是说用喜币可以买任何东西。这个一下子就把喜币推向另外一个高峰。
+这回是交易系统在实体店用最科技的模式，就是中国人熟悉的叫微信，还有什么淘宝它是一模一样的。但是这个是全球化的，你阿里巴巴，你微信仅限中国人。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

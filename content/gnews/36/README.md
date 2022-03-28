@@ -2,40 +2,28 @@
 ---
 
 
-## 有声|习妄图称霸世界 不会放弃攻打台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246754/)
+## 欧洲议会将要求数字支付实名制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246923/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年3月23日大直播中指出，中共正试图在中东挑起战火，利用中东战乱推动人民币作为石油结算手段，控制中东和安哥拉的石油能源，然后用数字人民币代替其他洗钱渠道，控制俄罗斯的钱，取代美元的地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3066.png)
-郭先生重申，中东能源人民币化是中共的核心目标。一旦成功，会对美国和美元造成的威胁，严重性远远超过俄乌战争。之后中共会企图要挟和控制全世界，而西方世界将无力再对中共实施制裁。
+作者：波士顿五月花农场 文雀
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+3月25日，据外媒报道，欧洲议会将在下周的委员会会议上，就是否阻止匿名加密货币支付进行投票表决。该委员会还计划限制各种方式的逃税，并要求实名登记。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-28-上午11.23.53.png)
+欧洲议会倾向同意对任何规模的数字货币支付进行身份检查，即KYC，以避免加密货币用于资助恐怖主义、虐待儿童等不法用途。即使是一直坚持匿名化交易应该受到保护的右翼议员，似乎也认可这一观点。议会将告知数字服务提供商不得进行或帮助任何被认为具有洗钱，或犯罪等高风险的转账。
 
-另外，习近平一定会同时攻打台湾，控制芯片技术，打垮美国和欧洲的供应链。到时整个世界会爆发粮食危机，金融崩盘，社会崩溃，所有供应链断裂。
+阿西塔·坎科是负责收集议会对该法律意见的主要立法者之一，她表示，尽管在如何执行未托管钱包之间的交易方面存在不确定性，但希望将这些措施扩大到私人持有的加密货币资产。
 
-郭先生指出，一系列灾难的发生让人类对宗教产生怀疑，放弃信仰，而醒来的人都会找中国人算账，到那时，新中国联邦是唯一能够提供帮助的组织。
+分析人士认为，欧盟立法者对数字货币的这一立场，实际上将使一直被视为避税天堂的英属维尔京群岛、开曼群岛，以及美国、土耳其、俄罗斯、中共香港、伊朗等等与脏钱交易相关的热点国家和地区，转账支付变得更加困难。
 
+参考链接：[EU Lawmakers to Vote on Blocking Anonymous Crypto Payments, Documents Show](https://www.coindesk.com/policy/2022/03/25/eu-lawmakers-to-vote-on-blocking-anonymous-crypto-payments-documents-show/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-文字版原文：[习妄图称霸世界 不会放弃攻打台湾](https://gnews.org/zh-hans/2233889/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+编辑：宁文静
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
