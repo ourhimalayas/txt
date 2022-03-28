@@ -2,22 +2,28 @@
 ---
 
 
-## 中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2243327/)
+## 新中国联邦两周年纪念活动正式启动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2243218/)
 
-撰稿：东京樱花团/百花李香
+作者：纽约香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月27日，郭文贵先生在大直播中正式宣布，新中国联邦两周年纪念活动正式启动。
 
-日本首相岸田文雄在3月28日举行的参议院决算委员会会议上宣布，对俄罗斯的制裁，他将在本届议会会议上准备修改《外汇和外贸法》，以防止通过加密资产（数字货币）交易来逃避制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-15.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-140.jpg)图片来源
+新中国联邦两周年纪念活动将由喜马拉雅联盟委员会全面负责。总导演是草根小哥，长岛哥作为美国协调人，与老班长共同配合，是副总导演。所有农场主，作为喜联盟委员，必须全面参与组织工作。
 
-岸田首相表示，“基于我们对允许自由转换为加密资产将导致制裁出现漏洞这一问题的认识，我们希望做好准备，向本届国会提交《外汇法》修正案，以进一步加强制裁的有效性”。
+郭先生最后说道，从现在直到今年六月四号，惊喜和好消息将逐一到来。
 
-信息来源：[首相「対露制裁の『抜け道』防止」　外為法改正を準備](https://news.yahoo.co.jp/articles/0cfa1bf487e9bac3d6088ff537a295a8043dd087#:~:text=%E9%A6)
+参考链接：[2022年3月27日 文贵大直播](https://gettr.com/streaming/p124vkgc8a0)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/三月小图-1.png)
+
+总编：文真
+编辑：Jack Li文阳   
+审核：Ivy001
+校正/发稿：谐趣园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

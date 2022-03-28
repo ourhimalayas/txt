@@ -2,29 +2,27 @@
 ---
 
 
-## 历史的今天3月28日
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246485/)
+## 马斯克：普京比我更富有
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2246627/)
 
-作者：纽约香草山农场教育部 马克文，朱丽叶
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1959年3月28日，是中共国宣布的所谓 “西藏百万农奴解放纪念日” 。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-64.jpg)
-据历史资料记载，中共为了在西藏地区实行共产统治，对藏人进行了血腥暴力的“改造”。1959年3月，中共的残暴激起藏人的反抗，最终，爆发了大规模的抗暴起义。对此，中共派军队进行了武力镇压，西藏政府首脑第十四世达赖喇嘛与高官流亡印度。从此，中共对藏人开始了大规模的镇压和屠杀。藏人为了纪念这次反抗中共的起义，把1959年3月10日设立“西藏人民起义日”，每年3月10日藏人都会纪念这一事件。
+翻译/整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3418.png)图片来源：互联网
+特斯拉和SpaceX创始人埃隆-马斯克去年成为有记录以来最富有的人，超过了亚马逊创始人杰夫-贝佐斯。然而，在一次新的采访中，马斯克表示，他认为俄罗斯领导人弗拉基米尔-普京比我们大家想象的还要富有。
 
-中共在镇压西藏百姓起义后，竟然强奸民意，伪造历史，把1959年3月28日定为 “西藏百万农奴解放纪念日”，企图掩盖其在西藏的武装镇压暴行。
+马斯克是在与德国出版公司Axel Springer的CEO Mathias Döpfner交谈时说的。在回答关于成为世界上最富有的人的感觉时，马斯克回答说：”我确实认为普京明显比我富有”。
 
-藏人行政中央外交与新闻部秘书嘎玛秋英反驳道，中共当局声称于1959年3月28日解放西藏百万农奴，并让藏人当家作主，但实际上，这些宣传纯属伪造。中共自1949年开始非法侵占西藏，并屠杀无数藏人，摧毁数千座寺庙，对藏人造成的苦难难以计数。同时，嘎玛秋英还指出，虽然中共当局通过媒体竭力宣传西藏的 “发展” ，但事实上西藏境内的人权状况仍处于恶劣状态。
+普京的财富对外界来说仍然是个谜，金融家比尔-布劳德在2017年的一份证词中称，这位俄罗斯领导人藏有2000亿美元的资产。
 
-欧洲议会西藏协调组官员认为，设立这个节日是对藏人史无前例的侮辱。
+马斯克批评了俄罗斯正在进行的对乌克兰的入侵，他继续说：”我认为美国政府做的比人们可能意识到的要多。但它只是没有被公开。但做一些严肃的事情是很重要的。我们不能让普京接管乌克兰，这很疯狂”。
 
-参考链接：[西藏百万农奴解放纪念日](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E7%99%BE%E4%B8%87%E5%86%9C%E5%A5%B4%E8%A7%A3%E6%94%BE%E7%BA%AA%E5%BF%B5%E6%97%A5)
+马斯克的公司SpaceX早些时候在乌克兰启动了他们的Starlink项目，在俄罗斯武装部队破坏了该国部分地区的物理网络基础设施之后，SpaceX公司帮助当地人连接到互联网。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+原文：[World’s richest man Elon Musk says Vladimir Putin is “significantly richer”](https://yourstory.com/2022/03/worlds-richest-man-elon-musk-vladimir-putin-mathias-dopfner/amp)
 
-总编：文真
-编辑/审核：Jack Li文阳   
-校正/发稿：Fei797
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

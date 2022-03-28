@@ -15,83 +15,83 @@
 
 ---
 
-### [3/27/2022 文贵直播：国内最大的危机就是粮食短缺；中共极端无情的抗疫政策会让无数人死无葬身之地；全世界会因为病毒再度爆发和疫苗灾难陷入两到三年的至暗时刻](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [20220327郭文贵大直播 ：灭共后中国的环境污染有救](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [题目：俄罗斯因兵源缺乏招募“真主党”雇佣兵](/content/gnews/2/README.md)
+### [因疫情严峻 上海无预警“分区分批封控”](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [3/27/2022 文贵直播：拜登演讲虽未直接提到区分中共和中国人，但他有很多话是暗中针对中共国的，区分俄罗斯和普京对中国人是好事](/content/gnews/3/README.md)
+### [3/27/2022 文贵直播：习近平不论如何都会打台湾！普和习认为如果不干掉欧美，他们自己和家人就会被干掉；习觉得只有拿下台湾才不会让民主自由之风会吹到大陆](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [历史的今天3月28日](/content/gnews/4/README.md)
- ` NFSC News`
-
-### [普京阿道夫·希特勒附体 马里乌波尔4万人被掠走](/content/gnews/5/README.md)
- ` 温哥华扬帆农场`
-
-### [埃尼集团不会用卢布支付俄罗斯天然气](/content/gnews/6/README.md)
- ` xiaobaige`
-
-### [乌克兰人在中共国社交媒体展开攻势并传播真实战况](/content/gnews/7/README.md)
- ` 日本东京方舟农场`
-
-### [3/27/2022 文贵直播: 中共70年的统治把中国美丽的山河损毁殆尽！多位国际友人信任新中国联邦并提出了治理中国水土污染的建议。文贵越来越有信心解决中国的环境问题](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [7·24系列——中共对邪恶国家的军用无人机支持](/content/gnews/9/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花时政┃香港今夏恐再爆“离港潮” 民调显示1/4港人有意移民](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|两个演员的角逐](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [GFashion重新定义时尚](/content/gnews/12/README.md)
- ` NFSC News`
-
-### [3/27/2022 文贵直播: 新中国联邦成立两周年纪念活动筹备委员会于今天正式成立](/content/gnews/13/README.md)
- ` 秘密翻译组-北美组`
-
-### [有声|乌克兰击毙第七位俄高级将领 俄哑弹率高达六成](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [中共想甩也甩不掉！ 俄罗斯外长：中俄关系史上最牢固](/content/gnews/15/README.md)
- ` 蓝莲花农场`
-
-### [3/27/2022 文贵直播: 大部分中共党员是好人，而要灭的是中共的邪恶体制！这个体制只服务于少数人的私利，破坏了人们的生存环境，不提供良好的教育，让人们信仰缺失，败坏了社会的风气](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
-
-### [乌克兰星链卫星：马斯克称中俄若想摧毁非易事](/content/gnews/17/README.md)
- ` 日本东京方舟农场`
-
-### [有声|美将中共国的电信、移动与俄国的卡巴斯基列入黑名单](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [灭习与灭共的关系](/content/gnews/19/README.md)
- ` NFSC News`
-
-### [俄侵乌已造成143名儿童被杀 216名儿童受伤](/content/gnews/20/README.md)
+### [马斯克：普京比我更富有](/content/gnews/4/README.md)
  ` 波士顿五月花农场金融部`
 
-### [能源问题不再是各国较量的主因素](/content/gnews/21/README.md)
- ` 银河歌舞厅`
-
-### [3/27/2022 文贵直播: 很多体制内的人在暗中保护我们的战友，并对新中国联邦在乌克兰的救援行动表示钦佩。不要寄希望于美国帮我们灭共，最终干倒习近平和共产党的一定是国内人！](/content/gnews/22/README.md)
+### [3/27/2022 文贵直播：国内最大的危机就是粮食短缺；中共极端无情的抗疫政策会让无数人死无葬身之地；全世界会因为病毒再度爆发和疫苗灾难陷入两到三年的至暗时刻](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [伦敦数千人集会声援乌克兰](/content/gnews/23/README.md)
+### [有声|GClubs年会共襄盛举 律师战友获终极大奖](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [题目：俄罗斯因兵源缺乏招募“真主党”雇佣兵](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [乌克兰国会议员指控：俄罗斯士兵强奸乌克兰妇女](/content/gnews/24/README.md)
+### [3/27/2022 文贵直播：拜登演讲虽未直接提到区分中共和中国人，但他有很多话是暗中针对中共国的，区分俄罗斯和普京对中国人是好事](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [历史的今天3月28日](/content/gnews/9/README.md)
+ ` NFSC News`
+
+### [普京阿道夫·希特勒附体 马里乌波尔4万人被掠走](/content/gnews/10/README.md)
+ ` 温哥华扬帆农场`
+
+### [埃尼集团不会用卢布支付俄罗斯天然气](/content/gnews/11/README.md)
+ ` xiaobaige`
+
+### [乌克兰人在中共国社交媒体展开攻势并传播真实战况](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [樱花时政┃俄罗斯或失去常任理事国的特权，时隔40年再次召开ESS](/content/gnews/25/README.md)
+### [3/27/2022 文贵直播: 中共70年的统治把中国美丽的山河损毁殆尽！多位国际友人信任新中国联邦并提出了治理中国水土污染的建议。文贵越来越有信心解决中国的环境问题](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [7·24系列——中共对邪恶国家的军用无人机支持](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|两个演员的角逐](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [GFashion重新定义时尚](/content/gnews/16/README.md)
+ ` NFSC News`
+
+### [3/27/2022 文贵直播: 新中国联邦成立两周年纪念活动筹备委员会于今天正式成立](/content/gnews/17/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|乌克兰击毙第七位俄高级将领 俄哑弹率高达六成](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [乌克兰星链卫星：马斯克称中俄若想摧毁非易事](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|美将中共国的电信、移动与俄国的卡巴斯基列入黑名单](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [灭习与灭共的关系](/content/gnews/21/README.md)
+ ` NFSC News`
+
+### [俄侵乌已造成143名儿童被杀 216名儿童受伤](/content/gnews/22/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [能源问题不再是各国较量的主因素](/content/gnews/23/README.md)
+ ` 银河歌舞厅`
+
+### [伦敦数千人集会声援乌克兰](/content/gnews/24/README.md)
+ ` 日本东京方舟农场`
+
+### [乌克兰国会议员指控：俄罗斯士兵强奸乌克兰妇女](/content/gnews/25/README.md)
+ ` 日本东京方舟农场`
+
+### [樱花时政┃俄罗斯或失去常任理事国的特权，时隔40年再次召开ESS](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰政府：俄罗斯入侵让乌方经济破坏损失超5600亿美元](/content/gnews/26/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [马斯克自曝确诊中共病毒 自称几乎没症状](/content/gnews/27/README.md)
  ` 蓝莲花农场`
@@ -111,35 +111,35 @@
 ### [秘翻在线：如果你不好意思说被裁员了 那就说毕业了](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲政府扩大首次置业者担保计划](/content/gnews/33/README.md)
- ` 走进澳洲`
-
-### [澳洲拟消减燃油税六个月，缓解生活成本上升压力](/content/gnews/34/README.md)
- ` 走进澳洲`
-
-### [大选前通货膨胀加剧，澳大利亚总理面临预算考验](/content/gnews/35/README.md)
- ` 走进澳洲`
-
-### [台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会](/content/gnews/36/README.md)
+### [台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会](/content/gnews/33/README.md)
  ` 關注組`
 
-### [秘翻新闻｜中共国内疫苗 粮食灾难将吞噬生命无数](/content/gnews/37/README.md)
+### [秘翻新闻｜中共国内疫苗 粮食灾难将吞噬生命无数](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [疫情｜台湾疫情爆发 外界忧：步入香港后尘](/content/gnews/38/README.md)
+### [疫情｜台湾疫情爆发 外界忧：步入香港后尘](/content/gnews/35/README.md)
  ` 關注組`
 
-### [疫情｜日本解禁后首个周末 各地确诊数明显上升](/content/gnews/39/README.md)
+### [疫情｜日本解禁后首个周末 各地确诊数明显上升](/content/gnews/36/README.md)
  ` 關注組`
 
-### [上海追求“动态清零”，正在造成次生灾难和人道危机](/content/gnews/40/README.md)
+### [上海追求“动态清零”，正在造成次生灾难和人道危机](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”](/content/gnews/41/README.md)
+### [中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/42/README.md)
+### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/39/README.md)
  ` 關注組`
+
+### [拜登在乌克兰的演讲改变世界](/content/gnews/40/README.md)
+ ` NFSC News`
+
+### [新中国联邦两周年纪念活动正式启动](/content/gnews/41/README.md)
+ ` NFSC News`
+
+### [黄色救援马甲醒目标语区分中共与新中国人](/content/gnews/42/README.md)
+ ` NFSC News`
 
 ### [2022年3月27日大直播速记精萃](/content/gnews/43/README.md)
  ` 雅典娜GNotes`

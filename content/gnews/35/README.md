@@ -2,34 +2,24 @@
 ---
 
 
-## 大选前通货膨胀加剧，澳大利亚总理面临预算考验
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2244857/)
+## 疫情｜台湾疫情爆发 外界忧：步入香港后尘
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244406/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏   
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Purple-DJ-Music-Channel-2.png)追踪疫情关注组[盖特](https://gettr.com/user/mightygroup)｜**Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+据中央流行疫情指挥中心数据，台湾本土疫情多点爆发，部分感染源无法明确。27日新增83例确诊，疫情足迹遍布高雄、新竹、双北、基隆、台东等多县市。又基隆小吃店衍生警察群聚案、大潭电厂群聚案仍持续扩大，并未有好转迹象。28日，则新增34例本土确诊个案。
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-1.jpg)图片来源：https://www.thestatesman.com/world/aus-pm-rules-funding-free-rapid-covid-tests-1503035920.html
-根据NIKKEI Asia3月28日报道，澳大利亚保守派政府在周二的选举前预算中面临着一项艰巨的任务，因为它希望通过帮助因生活成本上升而受到伤害的家庭来扭转其低迷的人气，同时还试图表现出对财政负责。
+值得关注的是，基隆小吃店衍生警察群聚局经定序后，发现与目前台湾本土疫情的病毒株不同，疑惟越南境外疑入病毒株。
 
-堪培拉的财政状况自三个月前的年中审查以来，估计已经改善了200亿澳元（150亿美元），这得益于其主要商品出口价格的飙升和国内消费的强劲反弹。
+其中，大潭电厂群聚案备受关注，该电厂发电量占全台逾10%，外界担忧近日台湾供电可能因电厂群聚而更受影响。经济部长王美花28日受访表示，大潭电厂群聚确诊有增加可能，但目前已快速匡列。原定4月1日将松绑的口罩禁令，因疫情升温经防疫指挥官陈时中公布，将暂时改为不松绑。
 
-经济学家们现在预计，五年内赤字将累计减少900亿澳元，这为总理斯科特·莫里森提供了一个乐观的环境，他必须在5月前举行选举。事实上，在过去几个月，他在民调中一直处于落后地位。
+有媒体采访陈时中提到“是否担心台湾步入香港后尘”，陈苦笑称“绝对不想”。此外，[上海疫情升温](https://gnews.org/zh-hans/2243287/)实施分批封城一事，经济部长王美花于立院经济委员会业务报告时称：经工业局联系当地台厂，确认产线尚未受到影响，惟可能影响出货部分。
 
-对莫里森有利的是，尽管有新冠病毒（COVID-19）的封锁，但2021年的经济仍活跃地增长了4.2%。这一势头预计今年也会保持下去，国内生产总值预计将增长4.25%。
+来源｜[Newtalk](https://newtalk.tw/news/view/2022-03-28/730302)、[YAHOO](https://tw.news.yahoo.com/大潭電廠群聚案今確診數恐增-王美花-確診者中有本國員工回到社區-051703933.html)
 
-在俄罗斯入侵乌克兰导致油价飙升的推动下，澳大利亚本季度的整体通胀率预计将达到4.5%。澳大利亚东海岸的洪水造成的广泛破坏也加剧了这一流行病对全球供应链的持续破坏，进而导致日常用品的价格飙升。
+* * *
 
-与此同时，工资增长停留在2%左右，也成为莫里森的一个政治难题。
-
-新闻来源：[Australia PM faces budget test as inflation flares before election](https://asia.nikkei.com/Economy/Australia-PM-faces-budget-test-as-inflation-flares-before-election)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe EpidemicConcernGroup Gettr：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 

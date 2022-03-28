@@ -2,34 +2,64 @@
 ---
 
 
-## 樱花时政┃香港今夏恐再爆“离港潮” 民调显示1/4港人有意移民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2246436/)
+## 普京阿道夫·希特勒附体 马里乌波尔4万人被掠走
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2246473/)
 
-撰稿人：东京樱花团/山顶闲人
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-法新社28日报道，香港移民潮料将持续，因为一项民意调查显示，有24%受访者表示有计划移民，较大半年前上升四个百分点，值得注意的是，有关增幅是由“非民主派”受访者的响应造成。而影响他们移民的主要因素是个人自由等政治因素。
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/香港今夏恐再爆离港潮-民调显示14港人有意移民.png)[图片来源](https://i.epochtimes.com/assets/uploads/2021/07/id13060524-ttl7dayaa8_encrypt2545373486062460248.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-民意研究所在本月21日至24日以电邮接触六千多人，就受访者对香港未来的政经信心。结果发现，有65%受访者表示，没有计划“永久离开香港”，较去年8月的同类调查下降六个百分点。相反，准备中的有计划移民受访者有24%；另有9%表示“不知道/很难说”。
+除了被指控使用受到包括《日内瓦公约》在内的各种国际组织谴责的集束炸弹（cluster bombs）和真空炸弹（vacuum bombs）袭击乌克兰人；也有国际刑事法院检察官表示，有“合理依据”相信入侵乌克兰的俄罗斯军队犯了战争罪。俄罗斯试图对乌克兰造成的破坏是巨大的。
 
-值得注意的是，当中有35%自称“民主派支持者”表示有计划移民，与去年8月调查持平；而即使是自称“非民主派支持者”的受访者，亦有17%表示有计划移民，较上次同类调查上升五个百分点。不过，表示没有计划移民的仍是主流，在上述两类受访者中分别有51%和74%，但比例均较前下降。
+目前，入侵乌克兰的俄罗斯军队正在马里乌波尔（Mariupol）开展一场带有第二次世界大战纳粹恐怖（Nazi terror）特征的险恶行动。
 
-移民原因方面，“个人自由变差”是受访者设法移民的最主要因素，有35%；其次是“家人前途”和“香港政治”变差，分别有16%；接着是“个人的生活水平”变差(12%)和“香港的经济前景”变差(10%)等经济因素。另外，当被问及对未来政治环境有多大信心时，58%受访者表示“几无信心”或十分无信心，表示十分有信心或“几有信心”的，只有27%。港人对个人自由前景的看法，比例与政治环境前景相若；经济前景信心方面，49%受访者表示无信心，表示有信心的占25%，表示“一半半”的，占总数的23%。民研所副行政总裁钟剑华在发布会上指出，港人的移民原因以政治因素为主，经济次之，疫情因素最低。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-28_22-07-43.png)
 
-综上所述，自从2019年香港“反送中”运动之后，中共让国安、解放军化妆为香港警察大肆殴打和逮捕香港民主派和支持“反送中”民众。被自杀、被消失、被“送中”的香港高校学生更是数以万计。本来繁荣的香港在港共政府恐怖统治下成了人间地狱。就算原来不支持民主派的一部分民众，也意识到了香港不再是过去有人身自由的香港，尽快离开香港才能以求自保。郭先生多次在直播中强调香港将是我们心中的永远的圣城。本人相信香港民众一定能像乌克兰民众一样战胜邪恶的独裁政权。在中共土崩瓦解之后，香港民众一定能在狮子山下，重建一个真正自由民主的新香港。
+据英国《太阳报》报导，多达40,000名乌克兰人从被围困的马里乌波尔市被抢走，被迫成为俄罗斯的奴隶和劳工，其中许多人被带到俄罗斯西南部的塔甘罗格（Taganrog），以支持疯子普京声称的“解放”乌克兰，普京已经是阿道夫·希特勒（Adolf Hitler）附体。
 
-**新闻来源**
-[民调：四名港人一个有意移民　非民主派有计划离港比例升 移民潮今夏重临](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20220328-%E6%B0%91%E8%B0%83-%E5%9B%9B%E5%90%8D%E6%B8%AF%E4%BA%BA%E4%B8%80%E4%B8%AA%E6%9C%89%E6%84%8F%E7%A7%BB%E6%B0%91-%E9%9D%9E%E6%B0%91%E4%B8%BB%E6%B4%BE%E6%9C%89%E8%AE%A1%E5%88%92%E7%A6%BB%E6%B8%AF%E6%AF%94%E4%BE%8B%E5%8D%87-%E7%A7%BB%E6%B0%91%E6%BD%AE%E4%BB%8A%E5%A4%8F%E9%87%8D%E4%B8%B4)
+饱受战火摧残的马里乌波尔市副市长谢尔盖·奥尔洛夫（Sergei Orlov ）在掩体中专门发表讲话，揭示了被拖入敌方领土的平民的困境。俄罗斯军队冲进乌克兰人民像受惊的老鼠一样躲藏的地窖和地下室，并告诉他们：“你们还有15分钟的时间离开”。如果他们拒绝出来，建筑物就会被摧毁，所有人就会被埋葬，或者被杀死。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-28_22-06-55.png)
+
+奥尔洛夫说，“我们已经与那些告诉我们正在发生的事情的人取得了联系，他们被带到俄罗斯非常遥远的地区，为这个国家经济萧条的地区工作”。这是强迫劳动。他们必须为俄罗斯工作才能生存。
+
+乌克兰议员英娜·索夫森（Inna Sovsun）3月19日告诉时代电台（Times Radio），人们被带到“俄罗斯非常遥远的地区”，并“被迫签署文件说他们将在该地区停留两到三年，他们将在这些地区免费工作”。当被问及这是否是奴隶劳动时，她说：“是的，是的。它是。”
+
+被劫持的平民正在被俄罗斯人称之为“过滤”（filtration）的系统进行处理，并被带到敌后的亲普京东部城市顿涅茨克（Donetsk）、多库恰耶夫斯克（Dokuchaevsk）和斯塔罗贝舍沃（Starobeshevo）的集中营，然后检查成年人的身份证件，而男性则被脱衣搜身，以寻找是否存在表明支持乌克兰民族主义的纹身。
+
+奥尔洛夫先生说，那些被认为合适的工人随后被运送到甚至数千英里外需要劳动力的萧条地区。俄罗斯绑架者没收了他们的护照，无论他们过去的工作资历如何，大多数人只能在遭受社会剥夺的严峻地区得到了卑微的工作，他们必须使用临时工作许可证才能赚钱维持生计。
+
+与此同时，数百名儿童被从家人身边夺走，与战争孤儿一起关押，俄罗斯人将儿童与家人分开，并将他们关押在顿涅茨克的一家医院。这是残忍和不人道的战争罪行。上一次有这么多受恐吓的人被转移到欧洲各地是在第二次世界大战中，俄罗斯的行为与希特勒的纳粹战术的相似之处非常明显。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-28_22-08-18.png)
+
+现在很难想象，就一个多月前，这些人都在一个伟大的乌克兰城市幸福地生活着。
+
+上次一次乌克兰人发现自己被带到遥远的西伯利亚去工作还要追溯到二战时期，或许这次俄罗斯掠走的很多人不久也会来到遥远的俄罗斯东部。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-28_22-06-09.png)
+
+目前，马里乌波尔正受到俄罗斯军队四面八方的炮击，包括来自海上的军舰，俄罗斯军队已经控制了马里乌波尔市中心东部、北部和西北部的马里乌波尔郊区。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Snipaste_2022-03-28_22-08-35.png)
+
+估计仍有170,000人像鼹鼠（moles）一样生活在地下，其中多达20,000人是儿童。一位母亲说，她的婴儿没有食物了，她很饿。但面对如此反人类的俄罗斯侵略者，仍在坚守的马里乌波尔政府现在所能做的，恐怕除了祈祷能以某种方式度过难关，能够重建失去的城市，又能做什么呢？
+
+乌克兰人权组织ZMINA还指责俄罗斯政府进行有针对性的平民绑架活动。ZMINA的负责人Tetiana Pechochyk说：“普京无法占领乌克兰，所以他要占领乌克兰的人民。数十名平民被绑架，数万人被驱逐到俄罗斯”。而这些战争罪行针对的不是士兵而是记者、援助人员、民选官员、议会工作人员和平民。
+
+在此之前，联合国证实了至少36名平民被绑架和拘留的报告。但在马里乌波尔的《太阳报》消息人士透露，普京战争罪绑架活动的实际规模要大得多。
+
+参考数据：
+
+[RULES OF CONFLICT What is a war crime?](https://www.thesun.co.uk/news/17806713/what-is-a-war-crime/)
+
+[VLADOLF HITLER Putin likened to HITLER after ‘Ukrainians deported to work camps in distant parts of Russia’](https://www.thesun.co.uk/news/18011752/vladimir-putin-adolf-hitler-work-camps-ukraine-russia/)
+
+[ENSLAVED Barbaric Russians snatch 40,000 Ukrainians from cities & force them into slave labour](https://www.thesun.co.uk/news/18083576/russians-slave-labour-ukrainains/)
+
+[Up To 40,000 Ukrainians Have Been Forced Into ‘Slave Labour’ In Russia, Mariupol Official Claims](https://whatsnew2day.com/up-to-40000-ukrainians-have-been-forced-into-slave-labour-in-russia-mariupol-official-claims/)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 
