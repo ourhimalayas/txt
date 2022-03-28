@@ -2,33 +2,32 @@
 ---
 
 
-## 2022/03/24 辉瑞疫苗会面临法律诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2244785/)
+## 美国和菲律宾联军在对台地区展开军演
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2244849/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032602.jpg)[GETTR视频链接](https://gettr.com/post/p11yd7p6b5f)
+#### 【雅典娜快讯】，紧贴时代脉搏 
 
-**视频字幕：**
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/ap_c7b25c73341b49cdb01321bf8f79029d-900x506-1.jpg)图片来源：https://ktar.com/story/4972686/us-filipino-forces-start-war-drills-in-region-facing-taiwan/
+根据ABC新闻3月28日报道，美国和菲律宾军队于周一开始了多年来最大规模的战斗演习，其中将包括实弹演习、飞机袭击、城市战和海滩登陆，以展示美国在菲律宾北部与台湾海上边界附近的火力。
 
-**Dr. Naomi Wolf**：然后他说，这又是个头条：“我想知道为什么辉瑞公司会得到FDA的批准？在FDA考虑批准的时候，他们已经在VAERS报了400多例死亡。”他仔细阅读资料后得出结论，认定这是一个巨大的头条新闻，第一，因为所有这些不良反应、档案和给VAERS的报告；第二，他指出竞争疫苗的存在—非mRNA疫苗。它与政府机构没有利益冲突，被关闭了，辉瑞的疫苗造成死亡，却继续被推行。我需要明确一点，现在说律师们都心知肚明还为时尚早，他们还需要更多时间，但已经有完整的讨论，我不能透露，这里面发生了严重的事情，会有法律后果，他们都脱不了干系。
+这次年度演习名为肩并肩（Balikatan），将持续到4月8日，有近 9,000名士兵、海军、海军陆战队、空军和陆军部队参与，其中包括5,100名美国军事人员。这次演习旨在加强长期条约盟友的“能力和应对现实世界挑战的准备，”美国和菲律宾军方官员说。
 
-**简评：**
+鉴于战争演习相对接近台湾，中共可能会不赞成军演，因其声称台湾是中共国领土。但组织者表示，演习并未设想将任何特定国家作为目标。
 
-Dr. Naomi Wolf在谈到辉瑞疫苗时表示，在FDA考虑批准辉瑞疫苗的时候，辉瑞公司已经在VAERS报告400多例死亡。但辉瑞疫苗依然通过批准。而竞争疫苗—非mRNA疫苗，因为与政府机构没有利益冲突，被关闭了。律师们需要更多时间理清事情的缘由，但是会有法律后果，作恶者脱不了干系。
+“美国军队和菲律宾武装部队将共同训练，以扩大和推进共享的战术、技术和程序，并加强我们的应对能力和对现实世界挑战的准备，”美国第3 海军陆战队少将Jay Bargeron表示。“我们的联盟仍然是印太地区力量和稳定的关键来源。”
 
-*字幕：Vekap|听写：雨中漫步|翻译：Blue|校对：Roberts|简评/文字整理/编辑：胖丁*
+菲律宾北部的战斗演习是在台湾和中共国之间的紧张局势加剧的情况下举行的。但军事演习是一年前计划的，并未考虑台湾海峡反复出现的紧张局势。
 
-* * *
+新闻来源：[US, Filipino forces start war drills in region facing Taiwan](https://abcnews.go.com/US/wireStory/us-filipino-forces-start-war-drills-region-facing-83714728)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+发布：tianzhihuan
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

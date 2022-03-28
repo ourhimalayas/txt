@@ -2,36 +2,38 @@
 ---
 
 
-## 西方真正的软实力叫做信仰
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2244876/)
+## 2022/03/23 教皇方济各：战争没有胜利，双方皆输
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2245099/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111-15.jpg)
-3月27日大直播中，郭先生与战友分享拜登在华沙的演讲具有的深意。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032606.jpg)[GETTR视频链接](https://gettr.com/post/p11m5pd06b2)
 
-郭先生说拜登的演讲有一句话，上帝啊，普京快停手吧（“for god‘s sake，this man(Putin) cannot remain in power”）这句话具有非凡的历史意义，它的重要超过了肯尼迪“我是柏林人”和里根“推到柏林墙”相加的总和。
+**视频字幕：**
 
-郭先生提到，当年希拉里的一句话“美国要靠软实力影响世界”，共产党经过长达一年的研究，得出软实力是媒体、网络、正义人权民主等等。共产党对世界的无知超出了常人想象，他们认定美国四年一换总统，有两党斗争，有钟摆效应，共产党想当然觉得能够利用一些手段来挑拨美国内部混乱，从而达到搞弱美国杀掉白人统治全球的计划。因为共产党没有信仰，所以他们从未见过真正信仰的样子，他们从来不知道真正的信仰是比核武器还厉害的存在。美国重欧轻亚的战略一方面是利益，另一方面就是共同的信仰。
+**教皇方济各**：我想用一点时间来纪念战争的受害者。我听到人们无家可归、逃离家园、死亡和受伤，双方都有很多战士殒落这些死亡的讯息。我们祈求生命之主将我们从战争的死亡中解救出来。在战争中一切皆输，一切，战争没有胜利，一切都是失败。解决的办法是为和平而共同努力。就像圣经所说，把武器变成和平的工具。让我们一起向圣母祈祷！
 
-拜登在演讲中祷告，求上帝带走普京。毫无疑问，这是人类的上天真实存在的证据，无神论共产党永远不会明白。
+**简评：**
 
-撰稿、发布：骄子
+俄乌战争在继续，教皇方济各表示战争中一切皆输，战争没有胜利，向圣母祈祷和平！
+
+战争给参战国双方带来了巨大的生命和财产的损失，非战争国也同样。乌克兰和俄罗斯都是产粮大国，这场战争不知何时才能结束，但是一个月的战争已经导致几百万乌克兰人流离失所，粮食产量剧减，世界范围内的粮荒已经不可避免。战争摧毁了一切。
+
+*字幕：雨中漫步|听写：云岭|翻译：Roberts|校对：Blue|简评/文字整理/编辑：胖丁*
+
+
 
 * * *
 
-欢迎订阅我们的GNews账号：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp_Video_2022-03-26_at_6_00_56_PM_AdobeCreativeCloudExpress.gif)
+编辑：【英国伦敦喜庄园编辑部】
 
- 
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
- 
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

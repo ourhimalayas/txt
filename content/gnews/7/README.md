@@ -2,38 +2,30 @@
 ---
 
 
-## 2022/03/23 教皇方济各：战争没有胜利，双方皆输
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2245099/)
+## 乌克兰总统将颁发「和平奖」给撤出俄罗斯的国际企业
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2245278/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032606.jpg)[GETTR视频链接](https://gettr.com/post/p11m5pd06b2)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+自俄罗斯入侵乌克兰以来，已有不少跨国企业退出俄国市场以表谴责，而今乌国总统泽伦斯基宣布，将向这些企业颁发「和平奖」。
 
-**视频字幕：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpL7qPCG.jpg)图片来源：路透
 
-**教皇方济各**：我想用一点时间来纪念战争的受害者。我听到人们无家可归、逃离家园、死亡和受伤，双方都有很多战士殒落这些死亡的讯息。我们祈求生命之主将我们从战争的死亡中解救出来。在战争中一切皆输，一切，战争没有胜利，一切都是失败。解决的办法是为和平而共同努力。就像圣经所说，把武器变成和平的工具。让我们一起向圣母祈祷！
+根据《CNN》 报导，乌克兰总统办公室主任叶尔马克27日表示，那些坚守立场离开俄罗斯市场的公司应该得到乌克兰人和世界各地人民的尊重，为此总统泽伦斯基将颁发「和平奖」给这些企业。
 
-**简评：**
+叶尔马克同时呼吁其他还未撤出俄国的企业跟进，直言选择沉默也是共犯，「与战犯进行贸易，换来沾满鲜血的金钱是不可接受的！」
 
-俄乌战争在继续，教皇方济各表示战争中一切皆输，战争没有胜利，向圣母祈祷和平！
+简评：大商无算！因坚持正义良知而撤出俄罗斯的跨国企业可谓做到了“大商无算”，宁可损失利益而不赚沾满鲜血的金钱，得到乌克兰总统颁发的和平奖也是实至名归！舍得！舍得！有舍必有得！企业做的就是良知与信誉，坚持良知而弃俄助乌，舍小利而得世界美誉，因无算而大得！
 
-战争给参战国双方带来了巨大的生命和财产的损失，非战争国也同样。乌克兰和俄罗斯都是产粮大国，这场战争不知何时才能结束，但是一个月的战争已经导致几百万乌克兰人流离失所，粮食产量剧减，世界范围内的粮荒已经不可避免。战争摧毁了一切。
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3874499](https://news.ltn.com.tw/news/world/breakingnews/3874499)
 
-*字幕：雨中漫步|听写：云岭|翻译：Roberts|校对：Blue|简评/文字整理/编辑：胖丁*
+撰稿/发布：一叶知秋
 
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

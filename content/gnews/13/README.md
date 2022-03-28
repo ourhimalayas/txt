@@ -2,39 +2,20 @@
 ---
 
 
-## 2022/03/24 男孩接种疫苗比感染病毒更容易导致心肌炎
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2244879/)
+## 上海今天开始封城❗️❗️
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2245107/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/032604.jpg)[GETTR视频链接](https://gettr.com/post/p11yw1rdc9b)
+编辑：波士顿五月花—-思澈
 
-**视频字幕：**
+2022/03/28星期一早上五点开始上海正式进入半封闭状态
 
-**Vigilant Fox**：我们在做“信息自由”披露请求时，一直要求CDC告诉我们究竟有多少儿童死于新冠病毒。你知道他们最近怎么说的吗？他们说：“我们还没有真正跟踪过这方面的数据”。你们说什么？你们告诉我们儿童在死亡，所以我们需要疫苗，然而CDC并没有真的跟踪确切的中共病毒死亡数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2672FB4F-4EA0-4AA3-9210-8CF751BCEC2D.jpeg)
 
-但当我们看（死亡数据）时，大约在1000人左右。根据你所看的数据库种类，在新冠病毒期间，美国大约有850-1300名儿童因此病毒而死。这个国家有7500万儿童。如果死亡1300，那就是0。这意味着，从统计上来讲几乎儿童是0死亡。但你也必须意识到，如果只有850-1000人，那显然是病得最重的那些孩子。如果我们看一下这个，我相信你会看到，他们要么患有白血病或癌症，要么患有其他威胁生命的疾病，就像那些死于中共病毒的老人一样。
+上海市政府已于当地时间周日晚间通过其在社交媒体应用程序微信上的渠道宣布了这些措施，现正在分两个阶段进入封闭状态。从周一早上5点开始，黄浦江以东的地区已经开始被封闭，从周五开始，黄浦江以西的市中心将被隔离。在封闭期间居民不许离开家，并且必须接受核酸检测。住家将被封锁，这一突如其来的消息导致了周日晚上超市外排长队囤积性购买。
 
-因此，当我们给儿童注射疫苗时，我们现在知道可以引起心肌炎。从以色列给儿童注射疫苗的结果来看，他们发现在男孩中，注射疫苗后因为心肌炎住院比感染COVID住院的比例高3-6倍。所以我们可以明确地说，疫苗对男孩的危害更大，尤其是比病毒本身更危险。然而，我们的FDA和CDC监管机构仍在向儿童推广这种疫苗。所以人们真的应该意识到，除了你孩子的健康和安全之外，这里一定有别的事发生。
+素材来源：[https://www.handelsblatt.com/politik/international/null-covid-strategie-mehr-als-3500-coronafaelle-chinas-finanzmetropole-schanghai-geht-in-den-corona-lockdown/28204428.html](https://www.handelsblatt.com/politik/international/null-covid-strategie-mehr-als-3500-coronafaelle-chinas-finanzmetropole-schanghai-geht-in-den-corona-lockdown/28204428.html)
 
-**简评：**
-
-大流行期间，CDC一直强调儿童在死亡，需要接种疫苗。然而在请求“信息自由”时，CDC无法提供确切的儿童死亡数据，因为CDC并没有跟踪数据。美国大约有850-1300名儿童死于中共病毒，相比较全国7500万儿童几乎是零死亡。但这显然是病得最重的那些孩子，要么患有白血病或癌症，要么患有其他威胁生命的疾病。
-
-根据以色列的数据，疫苗对男孩的危害更大，甚至比病毒本身更危险，因为男孩注射疫苗后引起心肌炎住院的比例，比感染COVID后住院的比例高3-6倍。然而，FDA和CDC仍在向儿童推广疫苗。该如何灭绝人性，才会向这些没有自我生存能力的孩子下毒手！这是故意杀人罪，当处以人类最最严厉的惩罚！
-
-*字幕：雨中漫步|听写：云岭|翻译：致良知|校对：Roberts|简评/文字整理/编辑：胖丁*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+*发布：思澈*
 
 
 

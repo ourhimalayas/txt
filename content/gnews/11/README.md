@@ -2,24 +2,24 @@
 ---
 
 
-## 樱花头条┃德国总统夫妇感染新冠病毒 希拉里检测阳性
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2245051/)
+## 教皇方济各：在将人类从历史中抹去之前，是时候废除战争了
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2245178/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-德国总理夫妇感染新冠病毒.德国总统曾已接种第三针疫苗;希拉里克林顿新冠病毒呈阳性.
+编译 意大利达芬奇农场 小白鸽
 
-信息来源：
-[https://www.gettr.com/post/p11gfgafd0a](https://www.gettr.com/post/p11gfgafd0a)
+教皇再次规劝人们放下武器：“够了，停止战争，让我们认真对待和平。”这是教皇在3月27日在罗马圣彼得大广场主持诵念三钟经祈祷活动时发出的呼吁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-28-alle-11.59.51.png)图片来源：headtopics.com
+方济各说：“自入侵乌克兰以来已过去了一个多月，这场残酷而毫无意义的战争对我们每一个人来说都是一场失败。有必要拒绝战争，战争迫使父母埋葬他们的孩子，男人杀死他们甚至没有看到的兄弟，强权者做出决定，穷人死去。”教皇还谈到了因轰炸而逃离的孩子。“战争不仅摧毁了现在， 也摧毁了社会的未来。”
 
-*编辑：东京樱花团/asket、行动（素材）
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+教皇方济各还说：“每两个孩子中就有一个孩子逃离了乌克兰，这是在破坏未来，并在最小和最无辜的人中造成创伤。这是战争的兽性，是野蛮和熟读神明的行为。“
+
+然后教皇从宗座大楼书房窗口向圣彼得广场上的信徒和朝圣者发出警告：“面对自我毁灭的危险，在将人类从历史中抹去之前，人类该明白是时候废除战争了……我为每一位政治领导人祈祷，反思这一点，看着饱受折磨的乌克兰，了解每一天战争是如何使每个人的情况都变得更加糟糕。”最后教皇呼吁要放下武器， 认真对待和平。
+
+参考链接：
+
+[https://www.rainews.it/articoli/2022/03/papa-francesco–lora-di-abolire-la-guerra-prima-che-lei-cancelli-luomo-dalla-storia-c023fe38-e077-42af-91bc-761268d0b26a.html](https://www.rainews.it/articoli/2022/03/papa-francesco--lora-di-abolire-la-guerra-prima-che-lei-cancelli-luomo-dalla-storia-c023fe38-e077-42af-91bc-761268d0b26a.html)
+
+编辑、上传： Xiao baige
 
  
 

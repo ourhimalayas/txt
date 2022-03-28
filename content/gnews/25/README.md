@@ -2,34 +2,36 @@
 ---
 
 
-## 乌克兰：计划举行新的停火谈判
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2244545/)
+## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
 
-**乌克兰和俄罗斯希望在本周再次与对方举行直接会谈。代表团将在土耳其的伊斯坦布尔举行会议。**
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+## 美国“国家民主基金会”访台
 
-作者：dpa/dlf/orf/dlf/vrt/est/原文发布于2022年3月28日06:43 (CET)
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-13.jpg)图片：乌克兰和俄罗斯之间的和平谈判（2022年3月2日的档案照片）：Maxim Guchek/Belta/AFP
+台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
 
 
-一位乌克兰谈判代表说，下一轮谈判将于周一开始，持续到周三。俄罗斯代表团团长Medinski 确认了一次会议，但提到周二和周三是时间框架。土耳其方面最初没有确认。
 
-在白俄罗斯边境地区举行了三次面对面的会议之后，在过去的两个星期里，谈判只通过视频会议进行。
+> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
+> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
-没有公开宣布达成停火努力的具体进展。双方均称会谈非常艰难。
 
-**泽连斯基：普京在拖延战争**
 
-乌克兰总统泽伦斯基表示，他准备研究乌克兰成为中立国的可能性。泽伦斯基在接受俄罗斯记者采访时这样说。然而，最终将必须由乌克兰公民通过公投来决定。
+威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
 
-乌克兰的中立是俄罗斯在停火谈判中的主要诉求之一。在这种情况下，乌克兰将不得不放弃加入北约。然而，泽连斯基事先承诺过这一点。
+外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
 
-在采访中，泽连斯基指责俄罗斯总统普京在拖延和平谈判。俄罗斯媒体监督机构Roskomnadzor已经警告俄罗斯媒体不要发表该采访。在俄罗斯，俄罗斯军队对乌克兰的入侵只能正式称为“特别军事行动”。此外，一项新的媒体法规定，对涉嫌有关俄罗斯武装部队的虚假新闻可判处最高15年的监禁。（*dpa/dlf/orf/dlf/vrt/est*）
+## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
 
-原文链接：[https://brf.be/international/1588795/](https://brf.be/international/1588795/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
+
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
+
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

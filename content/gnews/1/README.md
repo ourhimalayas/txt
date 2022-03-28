@@ -2,8 +2,8 @@
 ---
 
 
-## 拜登把独裁普京与俄罗斯人区分开了
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245251/)
+## 拜登是专业政客
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245396/)
 
 台灣寶島農場
 

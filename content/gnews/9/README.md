@@ -2,51 +2,24 @@
 ---
 
 
-## 埃隆·马斯克认为普京才是世界首富
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2245071/)
+## 俄乌的和谈可能要到周二
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2245214/)
 
-翻译：聖地香港
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3382.png)图片来源:news.yahoo.com
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-- 埃隆·马斯克（Elon Musk）认为俄罗斯总统弗拉基米尔·普京（Vladimir Putin）比他更富有。
-- 马斯克在2021年超越亚马逊的杰夫·贝索斯（Jeff Bezos）成为世界首富。
-- 马斯克在接受Axel Springer媒体首席执行官Mathias Döpfner采访时对普京做出了评价。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0135.jpg)
 
 
-埃隆·马斯克是有记录以来最富有的人，但他认为普京可能比他更为富有。
+图片来源： 路透社
 
-这位特斯拉的首席执行官在2021年底财富超过亚马逊的杰夫·贝索斯重获世界首富头衔。
+据克里姆林宫称，乌克兰和俄罗斯两个代表团之间的新的面对面和谈将于周二在伊斯坦布尔开始。 据国际文传电讯社报道，克里姆林宫发言人德米特里佩斯科夫周一表示：“今天他们可能不会继续在那里了。” “我们预计这在理论上可能会在明天发生。” 俄罗斯代表团团长弗拉基米尔·梅丁斯基（Vladimir Medinski）此前曾宣布，经过大约两周的在线谈判，计划从周二开始举行个人会议。 乌克兰方面最初谈到周一开始谈判。
 
-Axel Springer是Insider的母公司，Axel Springer媒体首席执行官Mathias Döpfner在最近对马斯克的一次采访中问道：“作为身价约2600亿美元，成为世界首富的感觉如何？”
+短评：俄罗斯入侵乌克兰已经超过四周， 俄罗斯的快速占领计划遇到了乌克兰的顽强抵抗， 和谈虽然一直再进行， 但是互不让步， 各自诉求无法达成和解。 个人认为这次在土耳其的和谈也不会有实质性的结果。 正像郭先生在3月27日的直播中说的， 俄罗斯对乌克兰的袭击可能是非常惨烈的， 普京这个恶魔没有收手的迹象。
 
-马斯克回答道：“我确信普京比我富有得多。”
+🔗[https://www.n-tv.de/politik/12-11-Kreml-Gespraeche-mit-der-Ukraine-wohl-erst-Dienstag–article23143824.html](https://www.n-tv.de/politik/12-11-Kreml-Gespraeche-mit-der-Ukraine-wohl-erst-Dienstag--article23143824.html)
 
-俄罗斯总统弗拉基米尔·普京的巨额财富仍然是一个谜，因为没有人确切知道具体数额，或者藏在哪里。黑海一座价值 14 亿美元的宫殿和价值 400 万美元的摩纳哥公寓据称与普京有关。
+编辑发布： Shuizhuyu
 
-有人猜测这位俄罗斯总统可能是世界上最富有的人，金融家比尔·布劳德（Bill Browder）在 2017 年作证说，他认为普京 “已经积累了 2000 亿美元的不义之财” 。
-
-普京入侵乌克兰后，美国和西方国家对俄罗斯、普京的主要盟友和俄罗斯总统本人实施了制裁。
-
-在马斯克与 Döpfner 就普京入侵的讨论中，这位特斯拉的首席执行官表示，制止普京势在必行。
-
-马斯克说：“我认为美国政府所做的比人们知道的要多，只是并没有公开。但必须要采取更严厉的措施，我们不能让普京吞并乌克兰。这太疯狂了。”
-
-**素材：peacelv**
-
-素材链接：[Elon Musk — officially the world’s richest man — says he thinks ‘Putin is significantly richer than me’](https://news.yahoo.com/elon-musk-officially-worlds-richest-175705343.html)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
