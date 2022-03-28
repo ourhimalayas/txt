@@ -2,39 +2,56 @@
 ---
 
 
-## 有声|习妄图称霸世界 不会放弃攻打台湾
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246754/)
+## 特鲁多先生：你是任何民主国家的耻辱！请不要让我们看到你出现（在这里）
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2246761/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在2022年3月23日大直播中指出，中共正试图在中东挑起战火，利用中东战乱推动人民币作为石油结算手段，控制中东和安哥拉的石油能源，然后用数字人民币代替其他洗钱渠道，控制俄罗斯的钱，取代美元的地位。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3066.png)
-郭先生重申，中东能源人民币化是中共的核心目标。一旦成功，会对美国和美元造成的威胁，严重性远远超过俄乌战争。之后中共会企图要挟和控制全世界，而西方世界将无力再对中共实施制裁。
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+在请Christine Anderson女士发言，提出她的观点。谢谢。
 
-另外，习近平一定会同时攻打台湾，控制芯片技术，打垮美国和欧洲的供应链。到时整个世界会爆发粮食危机，金融崩盘，社会崩溃，所有供应链断裂。
+基于第195条，我想指出，加拿大总理特鲁多先生根据第144条（欧洲议会议事规则第144条：关于违反人权、民主和法治的辩论）在本议会发言更合适。
 
-郭先生指出，一系列灾难的发生让人类对宗教产生怀疑，放弃信仰，而醒来的人都会找中国人算账，到那时，新中国联邦是唯一能够提供帮助的组织。
+这一条是专门用来辩论侵犯人权、民主和法治的行为的，而特鲁多先生显然就是这样。一个公开钦佩中国独裁制度的总理，一个践踏基本权利，仅仅因为自己的公民敢于站出来反对他变态的民主概念，就把他们当作恐怖分子来迫害和定罪的总理，根本就不应该被允许在议会里发言。
+
+特鲁多先生，你是任何民主国家的耻辱，请不要让我们看到你出现（在这里），谢谢。
+
+翻译注：翻译为 “一个公开钦佩中国独裁制度的总理”
+
+素材提供：文倩
+软件听写：蓝色天空
+听写校对：小白咖啡馆
+文稿翻译：小白咖啡馆
+翻译校对：啊啊小苹果
+字幕添加：小白咖啡馆
+最终审核：文倩
+
+编辑上传：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
+
+更多加拿大溫哥華揚帆農場的頻道，請關註：
+
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
 
 
 
-文字版原文：[习妄图称霸世界 不会放弃攻打台湾](https://gnews.org/zh-hans/2233889/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+更多加拿大溫哥華揚帆農場的頻道，請關註：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+- [Gettr: 加拿大溫哥華揚帆農](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大溫哥華揚帆農場藍楓法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大溫哥華揚帆農場 G-時新聞](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_ZH.png)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
