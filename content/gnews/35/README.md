@@ -2,29 +2,35 @@
 ---
 
 
-## 俄罗斯试图分裂乌克兰
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2244104/)
+## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
 
-整撰：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/123882846_ukraine_counters_areas_map_24_03_22_640x2-nc.png)粉红区域代表目前在俄罗斯军事控制中的地区 图片来自BBC
-随着俄罗斯在乌克兰的攻势停滞不前，埋伏在基辅附近的俄军正撤退到其盟友白俄罗斯境内，乌克兰东部的卢甘斯克周日宣布将举行加入俄罗斯的公投，种种迹象表明，俄罗斯的侵略计划正朝着“分裂乌克兰”的方向迈进。以下是来自俄乌战争最新的消息。
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+## 美国“国家民主基金会”访台
 
-- 乌克兰军队表示，俄罗斯自上个月入侵以来一直未能占领乌克兰首都或任何其他主要城市，俄军正从乌克兰北部撤到其盟友白俄罗斯，以补充人员和物资。乌克兰军事情报局长警告说，普京正试图将乌克兰东部和南部地区与乌克兰其他地区之间加强一条分界线区分开来。
-- 英国国防部表示，俄罗斯在南部靠近马里乌波尔市的地方取得了大部分领土，并通过封锁乌克兰黑海沿岸，有效地将乌克兰与国际海上贸易隔离开来。
-- 在俄罗斯总统普京2月24日下令入侵乌克兰的三天前，曾宣布乌克兰东部反叛的卢甘斯克和顿涅茨克“独立”，不过，这两个地区在法律上仍被世界各国认定为属于乌克兰的领土。周日（27日），卢甘斯克领导人表示，可能举行一个加入俄罗斯的公投。这一宣布招致乌克兰政府的警告，乌外交部声称，在乌克兰被占领地区举行的任何“假”公投都将“无效”。
-- 根据基辅经济学院的一项新估计，乌克兰战争对基础设施造成了超过 630 亿美元的损失。截至 3 月 24 日，估计至少有 4,431 座住宅建筑被损坏、摧毁或没收，还有 92 座工厂和仓库以及 378 所学校。此外，12 个机场以及 7 个火力或水力发电厂已被摧毁、损坏或占领。
-- 乌克兰总统泽连斯基最新的发言中显示，他与俄罗斯的下一轮谈判中的首要任务是主权和领土完整。早些时候，他还表示愿意与俄罗斯讨论乌克兰的中立地位，以达到停火目的。谈判将于本周在土耳其举行。
-- 俄罗斯入侵乌克兰后，德国改变了国防政策，宣布为军队增加数百亿美元，并承诺实现北约 2% 的军费开支目标。德国总理奥拉夫·肖尔茨（Olaf Scholz）表示，德国正在考虑购买导弹防御系统以抵御潜在的俄罗斯攻击
-- 乌克兰媒体称美国总统在波兰华沙的演讲具有“历史性”，并表示希望拜登的话能转化为基辅更多的武器供应以结束战争。科学家Volodymyr Fesenko将拜登的讲话比作1963年约翰·肯尼迪总统在西柏林市政厅前那场著名的演讲，1961年的德国被一堵高墙一分为二，美国时任总统肯尼迪以“我是柏林人”为题发表演讲，表明美国与民主西德站在一起，他说： “**这世界上有许多人根本不清楚什么是自由世界和共产主义世界的根本分歧。让 他们来柏林吧；这世上有些人说，共产主义是未来的潮流。让他们来柏林吧；这世上还有些人在欧洲或其他地方宣称，我们可以与共产主义合作。让他们来柏林吧；这世上甚至有人说，共产主义的确是一种邪恶的制度，但它能促进我们的经济发展。让他们来柏林吧……**”
+台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
 
 
-俄乌战争让西方世界确信高枕无忧的时代已经结束，北约30国史无前例地团结起来，尽管明确不会直接卷入战争，但北约峰会的联合声明宣布了北约宪章第5条对30个成员国的承诺，并在乌克兰邻国保加利亚、匈牙利、罗马尼亚和斯洛伐克部署了40000人的反应部队，这是北约成员国的一种自我保护和对乌克兰的间接安全保证。无论俄乌战争以多长时间和多大代价最终得以结束，它已经转化成为一场世界级的民主国家与独裁政权之间的战争。
 
-参考链接：
+> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
+> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
-[乌东反叛地区卢甘斯克或将举行入俄公投 基辅警告此举毫无法律基础 (voachinese.com)](https://www.voachinese.com/a/ukrainian-rebel-region-luhansk-may-vote-to-join-russia-20220327/6503664.html)
 
-[肯尼迪1963西柏林市政厅前演讲《我是一名柏林人》 – YouTube](https://www.youtube.com/watch?v=FWyoipeDyQg)[Ukraine war latest: Zelensky ‘ready to discuss neutral status’ – BBC News (www-bbc-](https://www-bbc-com.translate.goog/news/live/world-europe-60890199?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=sc)
+
+威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
+
+外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
+
+## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
+
+[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
+
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
+
+* * *
+
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

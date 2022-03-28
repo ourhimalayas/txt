@@ -2,33 +2,29 @@
 ---
 
 
-## 海航王健死因被披露时 中共放出机器人网军进行攻击
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2246127/)
+## 樱花时政┃美菲举行最大规模联合军演 威慑中共国
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2246312/)
 
-作者：澳喜农场 Leo M
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
-3月25日文贵大直播中，文贵先生透露，当年他披露2018年7月海航董事长王健是被杀而非自杀时，遭到了五毛疯狂的攻击漫骂，而事后美国政府告诉文贵先生，那些疯狂的漫骂都是由中共放出的网络机器人完成的。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+菲律宾和美国于3月28日在菲律宾吕宋岛开始了名为“Balikatan”的定期联合演习。据美国军方称，来自两国军方的总共8900名人员参加本次有史以来规模最大的演习。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花时政┃美菲举行最大规模联合军演-威慑中共国.png)[图片来源](https://www.google.com/search?q=Balikatan&amp;sxsrf=APq-WBuoW4XeJ6xJ1oGqd9P4FA3MmWUOMg:1648468675294&amp;tbm=isch&amp;source=iu&amp;ictx=1&amp;vet=1&amp;fir=tT2eB9g1CqH4rM%252C4-)
+截止4月8日，双方将在海上安全和人道援助方面进行训练，以加强相互间的实用操作性，其目的是遏制正在加强在印太地区进行海洋扩张的中共国。
 
-文贵先生还透露，伪民运欺民贼与文贵先生毫无个人恩怨，也拿不出任何证据，却是几年来持续侮辱、攻击文贵先生，说文贵先生是共产党，而在背后操纵这些人的也都是中共。文贵先生当年曾经捐款超过百万美元给这些伪民运欺民贼，支持他们反共，可是他们并没有灭共的信仰，反而都成了中共的打手。
+“Balikatan”演习在2020年因中共病毒被取消。2021年规模缩小后又重新开始。本次演习，菲律宾军方有3800名和5100名美军参加。开幕式上，美方临时代理大使表示，两国间的联盟“在维护印度太平洋地区的和平与安全方面发挥了重要作用。”
 
-分析人士指出，无论是启用自动化工具发起网络攻击，还是指使伪民运欺民贼打压反共的力量，中共都对世界造成了实质性威胁。
+信息源：
+[米と比、過去最大の合同演習　インド太平洋で中国けん制](https://news.yahoo.co.jp/articles/9c2039bb6ee87f9630dbc969fd976f5947e51937#:~:text=%E7%B1D%E5%9B%BD%E3%81%91%E3%82%93%E5%88%B6)
 
-新闻来源：[https://gettr.com/streaming/p11tme3b4de约从2：43：45开始](https://gettr.com/streaming/p11tme3b4de%E7%BA%A6%E4%BB%8E2%EF%BC%9A43%EF%BC%9A45%E5%BC%80%E5%A7%8B)
-
-编辑/校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-469.jpeg)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-86.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

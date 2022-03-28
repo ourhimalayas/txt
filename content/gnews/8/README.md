@@ -2,40 +2,34 @@
 ---
 
 
-## 有声|中共对东航空难第二个黑匣子的报道失常
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246190/)
+## 中共想甩也甩不掉！ 俄罗斯外长：中俄关系史上最牢固
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2246350/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月25日，中共官方媒体新华社首先引用中国民航报消息称，已经找到3月21日坠毁的东航客机搭载的第二个黑匣子。该消息迅速占领各大新闻平台，一时间被各类新闻App纷纷推送。但半小时后，新华社又辟谣称，还没有找到第二个黑匣子，要求以指挥部新闻发布会的信息为准。目前，关于找到第二个黑匣子的新闻已经被中共全网删除。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-62.png)
-中共官方称，已找到记录飞机驾驶仓语音部分的第一个黑匣子，但受损严重，已经交往北京相关部门处理。不少媒体强调，搜救人员正在全力寻找第二个黑匣子，即记录航班飞行数据的记录器。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯外交部长拉夫罗夫（Sergei Lavrov）28日表示，中俄关系正处于有史以来「最牢固」的状态。
 
-墙内百姓也开始质疑官方自相矛盾的说法。有人指出，当初新华社称已找到第二个黑匣子的新闻，应该是交由7个记者、1个校对、1个编辑、1个审核者审阅后才发出来的。而新华社马上否定的做法实在让人不解。有民众表示，“看样子，第二个黑匣子很难找到了”。
+根据《路透》 报导，拉夫罗夫28日表示，现在以美国为首的西方国家因为乌克兰问题孤立俄罗斯，挥舞制裁大刀，但与中共国的关系却是前所未有的牢固。
 
-观察人士表示，这个现状，似乎印证了3月23日郭文贵先生在大直播中称这场空难实属人为操作、中共一定会极力掩盖的惊天爆料。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phpHGZdQk.jpg)图片来源：欧新社
 
+报导指出，北京政府多次反对国际对俄制裁，坚持与俄国维持正常经贸往来，并拒绝谴责莫斯科在乌克兰的行动。
 
+针对中方态度，北约（NATO）秘书长史托腾柏格（Jens Stoltenberg）24日更直接点名中共国，希望北京不要以任何方式支持俄罗斯。
 
-文字版原文：[中共对东航空难第二个黑匣子的报道失常](https://gnews.org/zh-hans/2238285/)
+不过中共国官方坚决否认私下援助俄国，还说中共国的立场一直都是劝和促谈，呼吁美国等西方国家别再抹黑中共国。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+简评：见过不要脸的，没见过这么不要脸的！普习冬眠会密谈早已被爆料革命大白于天下，独裁者的狂妄野心可谓司马昭之心，路人皆知！普京心虚了吗？强拉着中共来打气！中共虽然是幕后元凶，但还没公开表明绝对立场，2022之后再想见到普习就难了，奉劝中俄的高官们，独裁必亡时间不远了，给自己留条后路吧！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3874767](https://news.ltn.com.tw/news/world/breakingnews/3874767)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+撰稿/发布：一叶知秋
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

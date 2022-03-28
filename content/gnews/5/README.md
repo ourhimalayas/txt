@@ -2,38 +2,28 @@
 ---
 
 
-## 有声|中共报告单日新增本土病例5600例 民生哀鸣
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2246239/)
+## GFashion重新定义时尚
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246411/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月26日，中共官方媒体宣布，全国25日新增的本土中共病毒感染病例达到了5600例之多，其中包括1280例的本土确诊病例和4320例本土无症状感染病例。这些激增的病例数字再次加剧了普通民众对中共“清零”式防疫政策的不满情绪。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-51.png)
-根据中共发布的数据，国内的疫情目前呈遍地开花的态势，而上海市也已明显失控。上海市政府通报的消息称，当地25日单日新增2269例，其中无症状感染者为2231例，相较于前一日的979例呈爆发式增长态势。
+作者：银河系农场 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月26日，Gclubs2022年会盛典隆重举行。在直播现场，郭文贵先生和主持人都展示了数件GFASHION的单品。同时，向战友们分享时尚的意义。
 
-部分上海市民表示，因疫情加剧，一些地区的解封期限被一再后延，而每日的新鲜食品供应已面临严重短缺。一位市民在接受采访时抱怨称，中共的政策每天都在变化，食物价格每天都在上涨。而市民们需要每天凌晨5点就起来订购，却仍不能保证订单的正常交付。中共当局的防疫政策已比病毒疫情本身更让人感到恐惧和愤怒。
+郭先生说，不同凡响的穿着会让人眼前一亮，GFASHION就有这样的作用。时尚代表一种对生活的态度，是人的精气神的延伸。郭先生回忆起母亲，尽管在困苦的年代，物质极度匮乏，但从未失去对生活的精神和韧劲。同样，俄罗斯入侵乌克兰后，从乌克兰逃离的难民都非常的体面，这也是时尚。
 
+与此同时，新中国联邦人正在乌克兰前线救援。郭先生特别邀请了前线的战友参与到年会的直播，并为年会抽奖，其中意义非同凡响。文耀战友表示，能代表新中国联播来的乌克兰前线，能够帮助，能够给予的人是最幸福的。
 
+这是一次爱和时尚的交流。无论什么时代，都要拥有对上天的信仰，对生活的态度，活好当下的每一步。郭先生说，我们受到上天万神万佛的指引，一切力量来自上天。在年会上，我们Gclubs会员年轻、智慧、勤劳、勇敢、分享、无私。整个年会都体现了天意。
 
-文字版原文：[中共报告单日新增本土病例5600例 民生哀鸣](https://gnews.org/zh-hans/2238231/)
+参考链接：[G CLUB2022年年会](https://gettr.com/post/p11z7ye4d5a)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+总编：文真
+编辑：Jack Li文阳   
+审核：文真
+校正/发稿：Fei797
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

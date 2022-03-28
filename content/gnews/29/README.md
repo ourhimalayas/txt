@@ -2,35 +2,46 @@
 ---
 
 
-## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
+## COVID-19疫苗副作用集萃（2022.3.28B）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2245645/)
 
-图文/zhong｜28/3/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-## 美国“国家民主基金会”访台
+**整理：**雅典娜情报组（BENJ1）
+**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1.png)雅典娜设计组
+**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
+[往期集萃链接](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+**疫情|安徽智飞新冠疫苗副作用 打完的大家还好吗？**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-142.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-23.jpg)小红书
 
 
+1. 去年9月打完安徽智飞的第三针疫苗，12月学期末的时候突然开始过敏，去医院开了药之后再没出现过。结果刚开学就又开始脖子和脸痒痒的起小红疹。以前从来没有这么容易就过敏的，后来（看）小红书无意间发现好多姐妹也是打完疫苗之后变成易过敏体质了。咱们就是说它还会恢复回去吗，有什么办法吗，姐妹们？
+2. 我儿子打完疫苗得了葡萄膜炎。免疫系统的病。
+3. 我21年3月打的第二针，之后7月过敏性鼻炎到现在，过敏性鼻炎引发过敏性结膜炎，之后最近感觉还引发了过敏型变异哮喘。问题是我从小到大对啥都不过敏，生活环境也一直相同，就莫名奇妙噢。
+4. 我打完开始荨麻疹从去年9月份到现在。以前从来没有得过。关键是我老公也是，他从小也没得过荨麻疹。
+5. 过敏算什么？癌症，肿瘤，红斑狼疮太多了。这都是自愿的，一切后果自己承担。
+6. 我打了两针新冠疫苗，突发荨麻疹要崩溃了，持续了3个月。
+7. 我是科兴，非经期出血，胃不舒服，背痛，现在紫癜……治疗中
+8. 我老公打完得了带状疱疹，我得了玫瑰糠疹，无敌了。
+9. 我打完第一针开始月经推迟，第二针开始胃炎持续了三个月，第三针刚打完还不知道。
+10. 我家孩子也是打完疫苗三两天头脸部过敏，以前能用的护肤品，现在都不能用了，一用就过敏，也不知道能不能恢复如初。
+11. 2021年5月份打的第一针之后，月经不正常连续3个月，6月份打的第二针，过了2个月以后出现症状了，困扰了一个多月，得了荨麻疹，我从没有得过啥荨麻疹湿疹啥的，还在想我怎么会得这个病呢，钱也没少花，药膏没少买都不管用，后来打针吃中药几天就好了，这几个月再也没犯，所以这第三针我是死活不会再打了。
 
-> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
-> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
+参考链接：[疫情|安徽智飞新冠疫苗副作用 打完的大家还好吗？](https://www.xiaohongshu.com/discovery/item/622cb900000000002103dc9f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648448769)
 
+*发布：翼族*
 
-威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
-
-外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
-
-## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
-
-[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
-
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
-
-* * *
-
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

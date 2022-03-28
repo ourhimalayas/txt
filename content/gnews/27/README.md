@@ -2,36 +2,35 @@
 ---
 
 
-## 澳洲拟消减燃油税六个月，缓解生活成本上升压力
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2245422/)
+## 上海疫情爆发分区封城 中共股市随之下滑
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2245906/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：纽约香草山教育部-Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+彭博社3月28日报道，中共国股市今日大幅下跌，原因是上海当局为抗击中共病毒爆发宣布了即将大规模分区封城的消息，这也由此引发了人们对于中共商业运营中断和国民经济即将走向崩塌的担忧。
 
-整理/编辑：文泓
+据了解，本周一早些时候，CSI 300指数下跌了2%，然后微调了部分损失，原因是上海市当局表示将分为两个阶段封城，以进行大规模的核酸测试闪电战。消费股领跌中共国大陆和香港市场，其中，白酒制造商贵州茅台、运动服装制造商李宁和安踏体育用品有限公司均对基准指数构成了沉重压力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/6GEAKKQODV71LHYC3AK.png)图片来源：雅典娜设计组
+众所周知，上海是许多国际公司的中共国总部所在地，也是中共国内最大的港口。此次的封城政策明显加剧了中共国股市的不确定性。此前，受乌克兰战争和中概股随时可能大规模退市的影响，中共股市就已使得投资者们在应对监管不利因素方面身心俱疲。
+
+交银国际首席策略师郝红对此评论称，上海市作为中共国的经济中心，占据了4.32万亿元即4%的国内GDP。此次上海的疫情封锁政策无疑将会严重影响到中共国的股市交易，交易量可能会因此大幅下降。同时，中共国的其他城市亦可能效仿上海的防疫政策，这将使中共2022年的GDP总值受到严重影响。
+
+香港京华山研究主管彭伟新亦发表评论称，考虑到今年疲软的中共股市起点，上海的部分封城政策和疫情扩散到其他地区的潜力将使中共国更难以实现5.5%的GDP增长目标。
+
+【来源】[https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN\_XCMGGwFWHpXvYlZQ4BoPG5d6c8\_spo8Y\_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w](https://www.bloomberg.com/news/articles/2022-03-28/china-stocks-slide-as-half-of-shanghai-locked-down-to-curb-virus?srnd=premium-asia%20https://uk.finance.yahoo.com/news/china-stocks-slide-half-shanghai-013232291.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAJVxokqL5jK7uDi0hVaa5sO6UQE-Svv-YRKZuwAN_XCMGGwFWHpXvYlZQ4BoPG5d6c8_spo8Y_HljrFNrknpgVCNGVhqt1PhYvN2bL1pOh9Vj8x2c90XxgojFIPHSdouWH7jtOjdBo9R1Jhxr9qnJivBKxechX0F3MXcuVWm8i0w)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+
+- 审核/编辑/发稿:qiutian（邱甜）
 
 
-3月28日，据澳大利亚人报报道，财政部长乔什·弗莱登伯格将在本周二公布第四份财政预算案时宣布将燃油税（fuel excise）削减10至20分，为期六个月，以立即减轻澳洲驾车者的生活成本。
-
-虽然执政的联盟党一些高级部长和行业团体反对这一举措，但预算中仍将对每升44.2分的燃油税进行临时性的大幅的削减，以应对汽油和全球石油价格的飙升。
-
-经过几周的预算前讨论，政府的生活成本解决方案被认为将包括一次性的$250的补贴，财长和总理抵制了汽车和基础设施游说团体关于保持目前的燃油税水平的呼吁。
-
-虽然燃油税的削减程度预计不会像新西兰那样高——新西兰在3月14日将燃料使用费每升减少25分，为期三个月。但澳洲的方案实施时间将更长。
-
-弗莱登伯格先生说，预算中的（降低）生活成本措施，预计将对多达1000万中低收入工薪阶层带来缓解，将为应对非常高的燃料价格提供即时的救济。“国际紧张局势所导致的结果，自今年年初以来，每桶石油上涨了50%——这已经传导到国内的加油站。我们认识到这种压力，”他说。
-
-参考链接：[预算前瞻：削减燃油税以减轻生活成本](https://cn.theaustralian.com.au/2022/03/28/65039/)
-
-发布*：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
