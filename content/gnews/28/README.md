@@ -2,35 +2,34 @@
 ---
 
 
-## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
+## 大选前通货膨胀加剧，澳大利亚总理面临预算考验
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2244857/)
 
-图文/zhong｜28/3/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-## 美国“国家民主基金会”访台
+#### 【雅典娜快讯】，紧贴时代脉搏   
 
-台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-1.jpg)图片来源：https://www.thestatesman.com/world/aus-pm-rules-funding-free-rapid-covid-tests-1503035920.html
+根据NIKKEI Asia3月28日报道，澳大利亚保守派政府在周二的选举前预算中面临着一项艰巨的任务，因为它希望通过帮助因生活成本上升而受到伤害的家庭来扭转其低迷的人气，同时还试图表现出对财政负责。
 
+堪培拉的财政状况自三个月前的年中审查以来，估计已经改善了200亿澳元（150亿美元），这得益于其主要商品出口价格的飙升和国内消费的强劲反弹。
 
+经济学家们现在预计，五年内赤字将累计减少900亿澳元，这为总理斯科特·莫里森提供了一个乐观的环境，他必须在5月前举行选举。事实上，在过去几个月，他在民调中一直处于落后地位。
 
-> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
-> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
+对莫里森有利的是，尽管有新冠病毒（COVID-19）的封锁，但2021年的经济仍活跃地增长了4.2%。这一势头预计今年也会保持下去，国内生产总值预计将增长4.25%。
 
+在俄罗斯入侵乌克兰导致油价飙升的推动下，澳大利亚本季度的整体通胀率预计将达到4.5%。澳大利亚东海岸的洪水造成的广泛破坏也加剧了这一流行病对全球供应链的持续破坏，进而导致日常用品的价格飙升。
 
+与此同时，工资增长停留在2%左右，也成为莫里森的一个政治难题。
 
-威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
+新闻来源：[Australia PM faces budget test as inflation flares before election](https://asia.nikkei.com/Economy/Australia-PM-faces-budget-test-as-inflation-flares-before-election)
 
-外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
+发布：tianzhihuan
 
-## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
-
-[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
-
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
-
-* * *
-
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

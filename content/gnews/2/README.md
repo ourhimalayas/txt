@@ -2,8 +2,8 @@
 ---
 
 
-## GCLUB是走向未来的通行证
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245584/)
+## 已到不接触式战争方式 中共还有机会吗
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245635/)
 
 台灣寶島農場
 

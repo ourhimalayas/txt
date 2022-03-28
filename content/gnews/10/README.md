@@ -2,40 +2,34 @@
 ---
 
 
-## 澳洲政府扩大首次置业者担保计划
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2245451/)
+## 【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2245549/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
 
-整理/编辑：文泓
+##### 视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是主流媒体获美国纳税人10亿美元，虚假宣传疫苗的效果！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/T4I5@ZJ353QP96K1MIV@KU.png)图片来源： & 雅典娜设计组
+据曝光新闻网（The Exposé ）3月26日报道，卫生与公众服务部（HHS）应信息自由法案（FOIA）的要求向TheBlaze发布了信息。该信息显示，美国联邦政府购买了高达10亿美元的广告，作为建立新冠疫苗信心的媒体活动的一部分。
 
+在过去一年中，花时间阅读新闻、观看电视新闻报道或浏览社交媒体的人，都极有可能接触过政府的广告。例如，发布到 YouTube 的 HHS 广告已被观看数百万次，以歌手埃尔顿·约翰爵士和演员迈克尔·凯恩爵士等名人为主角的广告成为新闻报道的主题。
 
-联邦政府将在周二的预算案中公布扩大住房担保计划（Home Guarantee Scheme），用以帮助更多澳大利亚人购置他们的第一套住房。
+但是，接种疫苗的效果却让人大跌眼镜。英国卫生安全局每周都会发布一份监测报告。2022 年 2 月 24 日的报告显示，在感染、住院或死于 COVID-19 的成年人中，有 85% 至 91% 已完全接种疫苗。
 
-受益于住房保障计划的名额将几乎翻倍，达每年五万个名额。**从****7****月****1****日起，首次置业担保计划（****First Home Guarantee Scheme****）的名额每年将有约****3.5****万个，以支持首次置业者以最少****5%****的首付购买新房或现房。**
+盖特链接：https://gettr.com/post/p124v5f1500
 
-为单亲家长提供低至2%首付的家庭住房保障（Family Home Guarantee）名额每年将增至5000个，新的边远地区家庭住房保障计划（Regional Home Guarantee）将支持一万人——包括非首次置业者和永久居民——在澳大利亚各地区建造或购买新房产。
+编辑/发文 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-上述计划对收入的要求为：单身人士收入上限为12.5万澳元，配偶双方收入上限为20万澳元。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-澳大利亚国库部长乔希·弗莱登伯格表示，住房担保计划的扩大将有助于“让更多的澳大利亚人实现拥有住房的愿望”。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-他说：“这意味着帮助更多的单亲家长以低至2%的首付购房，帮助更多支付低至5%首付的首次置业者购房。”
-
-“我们同样支持我们边远地区的人民，每年在新的边远地区住房担保计划中提供一万个名额，以帮助符合条件的购房者在该地区购买或建造新房。”
-
-参考链接：[联邦预算扩大首次置业者支持计划](https://www.sbs.com.au/chinese/mandarin/zh-hans/government-to-expand-first-home-buyers-scheme-in-budget-increase-infrastructure-spending)
-
-发布*：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

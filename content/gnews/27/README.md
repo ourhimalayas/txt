@@ -2,35 +2,36 @@
 ---
 
 
-## 大选前通货膨胀加剧，澳大利亚总理面临预算考验
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2244857/)
+## 西方真正的软实力叫做信仰
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2244876/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏   
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-15.jpg)
+3月27日大直播中，郭先生与战友分享拜登在华沙的演讲具有的深意。
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-4-1-1.jpg)图片来源：https://www.thestatesman.com/world/aus-pm-rules-funding-free-rapid-covid-tests-1503035920.html
-根据NIKKEI Asia3月28日报道，澳大利亚保守派政府在周二的选举前预算中面临着一项艰巨的任务，因为它希望通过帮助因生活成本上升而受到伤害的家庭来扭转其低迷的人气，同时还试图表现出对财政负责。
+郭先生说拜登的演讲有一句话，上帝啊，普京快停手吧（“for god‘s sake，this man(Putin) cannot remain in power”）这句话具有非凡的历史意义，它的重要超过了肯尼迪“我是柏林人”和里根“推到柏林墙”相加的总和。
 
-堪培拉的财政状况自三个月前的年中审查以来，估计已经改善了200亿澳元（150亿美元），这得益于其主要商品出口价格的飙升和国内消费的强劲反弹。
+郭先生提到，当年希拉里的一句话“美国要靠软实力影响世界”，共产党经过长达一年的研究，得出软实力是媒体、网络、正义人权民主等等。共产党对世界的无知超出了常人想象，他们认定美国四年一换总统，有两党斗争，有钟摆效应，共产党想当然觉得能够利用一些手段来挑拨美国内部混乱，从而达到搞弱美国杀掉白人统治全球的计划。因为共产党没有信仰，所以他们从未见过真正信仰的样子，他们从来不知道真正的信仰是比核武器还厉害的存在。美国重欧轻亚的战略一方面是利益，另一方面就是共同的信仰。
 
-经济学家们现在预计，五年内赤字将累计减少900亿澳元，这为总理斯科特·莫里森提供了一个乐观的环境，他必须在5月前举行选举。事实上，在过去几个月，他在民调中一直处于落后地位。
+拜登在演讲中祷告，求上帝带走普京。毫无疑问，这是人类的上天真实存在的证据，无神论共产党永远不会明白。
 
-对莫里森有利的是，尽管有新冠病毒（COVID-19）的封锁，但2021年的经济仍活跃地增长了4.2%。这一势头预计今年也会保持下去，国内生产总值预计将增长4.25%。
+撰稿、发布：骄子
 
-在俄罗斯入侵乌克兰导致油价飙升的推动下，澳大利亚本季度的整体通胀率预计将达到4.5%。澳大利亚东海岸的洪水造成的广泛破坏也加剧了这一流行病对全球供应链的持续破坏，进而导致日常用品的价格飙升。
+* * *
 
-与此同时，工资增长停留在2%左右，也成为莫里森的一个政治难题。
+欢迎订阅我们的GNews账号：
 
-新闻来源：[Australia PM faces budget test as inflation flares before election](https://asia.nikkei.com/Economy/Australia-PM-faces-budget-test-as-inflation-flares-before-election)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp_Video_2022-03-26_at_6_00_56_PM_AdobeCreativeCloudExpress.gif)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+ 
 
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
