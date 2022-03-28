@@ -2,38 +2,34 @@
 ---
 
 
-## 炮火中的葬礼
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2245491/)
+## 【#G时新闻】主流媒体获美国纳税人10亿美元虚假宣传疫苗的效果
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2245549/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-28-at-19.10.36.png)
-3月27日大直播中，郭先生与战友分享，被从乌克兰救出的中国人深深感概，乌克兰民族拥有真正的对人的尊重。
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
 
-据被救的中国人说，这次认清了乌克兰的老百姓和中共国的老百姓到底有怎样的不同。在乌克兰被轰炸后死掉的尸体，有专业搜寻人员，其严谨性根本不会出现在中共国。并且轰炸的炮火声就在耳边，他们能够认真挖好坑，埋掉死者，还举办宗教仪式为死者送葬，死者有非常精致的墓碑，姓甚名谁都被一一记录在册。此事若在中共国，不用说战争年代，就算是在太平盛世死在自己家里，这样对死者的尊重都不会发生。
+##### 视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是主流媒体获美国纳税人10亿美元，虚假宣传疫苗的效果！
 
-中国人别说死去，就算活着都得不到作为人应该得到的尊重，个个活得不如猪狗。很明显的例子就是这次乌克兰救援，被困的中国人苦苦求救，共产党找各种各样的借口不救人，不救人就算了，还动不动就让人证明自己是自己，自己的妈是妈，自己的爹是爹，把人的祖宗八辈都查一遍。并且就在救援刚开始的时候，共产党竟然污蔑我们新中国联邦要拿人的隐私和讯息，到底谁在查人的八辈祖宗，不攻自破。
+据曝光新闻网（The Exposé ）3月26日报道，卫生与公众服务部（HHS）应信息自由法案（FOIA）的要求向TheBlaze发布了信息。该信息显示，美国联邦政府购买了高达10亿美元的广告，作为建立新冠疫苗信心的媒体活动的一部分。
 
-共产党有多邪恶就越证明新中国联邦有多值得珍惜。
+在过去一年中，花时间阅读新闻、观看电视新闻报道或浏览社交媒体的人，都极有可能接触过政府的广告。例如，发布到 YouTube 的 HHS 广告已被观看数百万次，以歌手埃尔顿·约翰爵士和演员迈克尔·凯恩爵士等名人为主角的广告成为新闻报道的主题。
 
-撰稿、发布：骄子
+但是，接种疫苗的效果却让人大跌眼镜。英国卫生安全局每周都会发布一份监测报告。2022 年 2 月 24 日的报告显示，在感染、住院或死于 COVID-19 的成年人中，有 85% 至 91% 已完全接种疫苗。
 
+盖特链接：https://gettr.com/post/p124v5f1500
+
+编辑/发文 -【青青】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif)
-
- 
-
- 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

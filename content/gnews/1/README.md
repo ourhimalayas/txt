@@ -2,8 +2,8 @@
 ---
 
 
-## 2025年一定不会有共产党
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245925/)
+## 基辛格、默格尔绝对要受到审判
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245962/)
 
 台灣寶島農場
 

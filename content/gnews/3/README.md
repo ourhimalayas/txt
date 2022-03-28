@@ -2,8 +2,8 @@
 ---
 
 
-## 习自认为拜登对他佩服的五体投地
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245873/)
+## 2025年一定不会有共产党
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2245925/)
 
 台灣寶島農場
 
