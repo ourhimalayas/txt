@@ -2,27 +2,28 @@
 ---
 
 
-## 马斯克：普京比我更富有
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2246627/)
+## 欧洲议会将要求数字支付实名制
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2246923/)
 
-翻译/整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3418.png)图片来源：互联网
-特斯拉和SpaceX创始人埃隆-马斯克去年成为有记录以来最富有的人，超过了亚马逊创始人杰夫-贝佐斯。然而，在一次新的采访中，马斯克表示，他认为俄罗斯领导人弗拉基米尔-普京比我们大家想象的还要富有。
+作者：波士顿五月花农场 文雀
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+3月25日，据外媒报道，欧洲议会将在下周的委员会会议上，就是否阻止匿名加密货币支付进行投票表决。该委员会还计划限制各种方式的逃税，并要求实名登记。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-28-上午11.23.53.png)
+欧洲议会倾向同意对任何规模的数字货币支付进行身份检查，即KYC，以避免加密货币用于资助恐怖主义、虐待儿童等不法用途。即使是一直坚持匿名化交易应该受到保护的右翼议员，似乎也认可这一观点。议会将告知数字服务提供商不得进行或帮助任何被认为具有洗钱，或犯罪等高风险的转账。
 
-马斯克是在与德国出版公司Axel Springer的CEO Mathias Döpfner交谈时说的。在回答关于成为世界上最富有的人的感觉时，马斯克回答说：”我确实认为普京明显比我富有”。
+阿西塔·坎科是负责收集议会对该法律意见的主要立法者之一，她表示，尽管在如何执行未托管钱包之间的交易方面存在不确定性，但希望将这些措施扩大到私人持有的加密货币资产。
 
-普京的财富对外界来说仍然是个谜，金融家比尔-布劳德在2017年的一份证词中称，这位俄罗斯领导人藏有2000亿美元的资产。
+分析人士认为，欧盟立法者对数字货币的这一立场，实际上将使一直被视为避税天堂的英属维尔京群岛、开曼群岛，以及美国、土耳其、俄罗斯、中共香港、伊朗等等与脏钱交易相关的热点国家和地区，转账支付变得更加困难。
 
-马斯克批评了俄罗斯正在进行的对乌克兰的入侵，他继续说：”我认为美国政府做的比人们可能意识到的要多。但它只是没有被公开。但做一些严肃的事情是很重要的。我们不能让普京接管乌克兰，这很疯狂”。
+参考链接：[EU Lawmakers to Vote on Blocking Anonymous Crypto Payments, Documents Show](https://www.coindesk.com/policy/2022/03/25/eu-lawmakers-to-vote-on-blocking-anonymous-crypto-payments-documents-show/)
 
-马斯克的公司SpaceX早些时候在乌克兰启动了他们的Starlink项目，在俄罗斯武装部队破坏了该国部分地区的物理网络基础设施之后，SpaceX公司帮助当地人连接到互联网。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
 
-原文：[World’s richest man Elon Musk says Vladimir Putin is “significantly richer”](https://yourstory.com/2022/03/worlds-richest-man-elon-musk-vladimir-putin-mathias-dopfner/amp)
-
-* * *
-
-*编辑&发布：长岛开心*
-
+编辑：宁文静
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,32 @@
 ---
 
 
-## 乌克兰：哈尔科夫附近的马拉罗汉村被收复
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2247954/)
+## “生态健康联盟”在疫情期间投资收入激增
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2248275/)
 
-**反攻在进行，乌克兰军队已从俄罗斯人手中解放第一批村庄。其中一个离哈尔科夫只有四公里。**
+##### 作者：加拿大温哥华扬帆农场 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-11.png)
 
-作者：AFP/str/原文发布于2022年3月28日18:48 (CET)
-翻译：LK
+美国新闻网站《国家脉动》28日揭露，中共豢养的冠状病毒起源吹鼓手、臭名昭著的彼得·扎达克经营的“生态健康联盟”与武汉病毒所长期同恶相济，在冠状病毒疫情爆发后，投资收入激增近350%。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-4-3.jpg)图片: 哈尔科夫的一名乌克兰特警。/德新社/Felipe Dana
+在之前六年里，“生态健康联盟”的投资收入从未突破7万美元，2019年6月30日的季报显示只有8.1万美元的收入。但在2020年冠状病毒爆发年，共获得36万美元的投资收入，增长达342.2%，增幅是之前6年平均收入的6倍。
 
+“生态健康联盟”从福奇的美国国立卫生研究院获得数百万美元资金，用于与武汉病毒所合作研究病毒“杀手”。他们创造出“嵌合”病毒的成果和摘要，已被中共删除。另一位福奇资助的病毒研究员拉尔夫·巴里克，在2019年发表如何从大流行病中获利的演讲中，建议购买危险品防护服或抗病毒药物公司的股票。
 
-乌克兰军队夺回了乌克兰东部城市哈尔科夫附近的一个村庄。一名法新社记者周一报道说，几天前还在俄罗斯控制之下的马拉罗汉，目前可在这里看到死亡的俄罗斯士兵和被摧毁的军车。据哈尔科夫市市长说，俄罗斯军队从村里用大炮轰击该城镇。
+[新闻链接](https://thenationalpulse.com/2022/03/28/ecohealth-alliance-investments-surged-amidst-covid/)
 
-Ihor Terechow说：“我们的部队在解放马拉罗汉，这一点非常重要，因为他们不断从那里炮击城市的居民区。”该村位于哈尔科夫以东约四公里处。
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-**乌克兰：俄罗斯士兵躲在森林和地窖里**
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-据乌克兰军方称，上周中开始对在马拉罗汉的俄罗斯阵地进行袭击。一名乌克兰士兵说，由于俄罗斯士兵躲在地窖和周围的森林里，所以花了几天时间来保护这个村庄。他估计，至少有25名俄罗斯士兵被杀。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-周一，大部分被毁坏的村庄很安静。两名俄罗斯士兵的尸体躺在一条小巷里，至少还有两具尸体被扔进了一口井里。再往北几公里，乌克兰军队袭击了驻扎着俄罗斯炮兵的维尔基夫卡村的俄罗斯阵地。
-
-原文链接：[https://www.berliner-zeitung.de/news/ukrainische-streitkraefte-erobern-ortschaft-bei-charkiw-zurueck-li.219375](https://www.berliner-zeitung.de/news/ukrainische-streitkraefte-erobern-ortschaft-bei-charkiw-zurueck-li.219375)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

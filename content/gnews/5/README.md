@@ -2,38 +2,32 @@
 ---
 
 
-## 有声|日本三大型银行终止与俄最大银行的美元交易
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248101/)
+## 联邦政府40年向中共贷款$3.64亿
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2248365/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒资讯：日本三菱UFJ、三井住友和瑞穗三家大型银行集团决定从3月26日起全面停止与俄罗斯最大的银行——兹贝尔银行的美元交易。三家银行与俄罗斯之前以美元结算的所有贸易活动，都需要用其他汇款方式替代。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-89.jpg)
-据三家银行的官员透露，由于美国政府将从美国时间26日起，暂停与兹贝尔银行及其25家子公司之间的银行间结算和转账等交易，三菱UFJ、三井住友和瑞穗集团决定跟进美方的制裁，在日本采取类似的交易管制措施。 其中，三菱UFJ的制裁涵盖除日元以外的所有外币交易。
+##### 作者：加拿大温哥华扬帆农场 – 文莱（采编）、自由法兰西（编译撰稿）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111-12.png)
 
-迄今为止，这三家集团已经停止了与俄罗斯第二大银行VTB银行以及多个俄罗斯金融机构的交易，这些金融机构已被排除在多项国际金融支付、结算系统之外。
+加拿大网媒《真北方》3月27日报道，自20世纪80年代以来，加拿大联邦政府总计向中共提供了168笔出口贷款，贷款总额为3.64亿加币。其中，147笔是40或50年的无息贷款，其他21笔贷款利率从1%到9%不等。
 
+这些钱是根据加拿大《出口发展法》，通过“加拿大账户”贷出的。联邦政府称，贷款的初衷是为了确保加拿大出口商能更好地与外国对手竞争。与其他国家相比，根据该法案向中共国提供的贷款金额最多。据悉，如果收到贷款的国家拒绝还款，那么这些贷款可能永远不会被偿还，贷款变成赠款，而产生的任何损失都会由加拿大纳税人承担。
 
+虽然2021年2月，加拿大国会投票认定中共对维吾尔族实行种族灭绝，但之后自由党政府一直继续向中共提供贷款。中共病毒早已证明，西方用纳税人的钱向邪恶的中共体制输血，助长了中共妄图称霸世界的野心，应尽早停止！
 
-文字版原文：[日本三大型银行终止与俄最大银行的美元交易](https://gnews.org/zh-hans/2241535/)
+[新闻链接](https://tnc.news/2022/03/27/364-million-in-zero-and-low-interest-loans-given-to-china-since-1980/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

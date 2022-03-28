@@ -2,22 +2,17 @@
 ---
 
 
-## 我们与乌克兰站在一起 —— 致每一位在前线默默付出的战友
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2247679/)
+## 五月花简报（03/28/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2247965/)
 
-##### 素材/视频制作：加拿大温哥华扬帆农场 – 雪原伞
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-发布/上传 -【青青】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
+编辑：波士顿五月花—-冲天一怒
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/D31B4BFB-E957-4461-9731-7D66E9A767BD.jpeg)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+*发布：思澈*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,37 @@
 ---
 
 
-## 马斯克“认真思考”要建立一个新的社交媒体平台
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2247431/)
+## 苹果削减几款热销品的产量
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2247465/)
 
-编译： Jenny Ball
+《日经新闻》3月28日台北报道，援引不明身份人士的话说，苹果公司计划将其首款5G功能的经济型手机的产量削减20%。此后苹果股价在美国盘前交易中暴跌，跌幅高达 2%。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/A-2.jpg)report.az
+苹果的iPhone SE推出不到三周，已经遇到了需求问题。该公司以需求弱于预期为由，告知多家供应商在下一季度减少约200-300万部的产量。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-23-edited.jpg)
+除了减少对iPhone SE的需求，这家美国科技巨头还将其2022年的AirPods订单减少了1000多万只。“对照研究”（Counterpoint Research）的数据显示，2021年AirPods产量为7680万只，但日经消息人士提醒说，到年底出货量可能会下降。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3441-edited.png)埃隆·马斯克于 2022 年 3 月 22 日在德国格伦海德出席新的特斯拉电动汽车超级工厂的开幕式。Patrick Pleul/Pool 来自 REUTERS
+苹果已经告诉其他供应商，将其旗舰产品iPhone 13的产量减少几百万，不过消息人士称，这种调整纯粹是基于季节性需求。
 
-路透社 3 月 27 日 – 特斯拉公司首席执行官埃隆·马斯克 (Elon Musk) 正在“认真考虑”建立一个新的社交媒体平台，这位亿万富翁周六在一条推文中表示。
+日经消息人士普遍表示，需求困境源于俄乌冲突。一位苹果供应商的高管告诉《日经新闻》。
 
-马斯克正在回答一位 Twitter 用户的问题，即他是否会考虑建立一个社交媒体平台，该平台由开源算法和一个优先考虑言论自由的算法组成，并且宣传最少。
+“战争已经影响了欧洲市场的消费。可以理解的是，[消费者会]把钱省下来买食物和取暖。”
 
-马斯克本人是 Twitter 的多产用户，他最近一直批评社交媒体平台及其政策。他曾表示，该公司不遵守言论自由原则，正在破坏民主。
+苹果公司在海外交易的658家供应商中，有的因《日经新闻》的报道在股市上表现下跌。
 
-他的推文是在他发布推特民意调查后的第二天发布的，该民意调查询问用户: 是否认为twitter遵守言论自由原则，超过 70% 的人投票“不”。
+“对照研究”的分析师布雷迪·王（Brady Wang）说，智能手机市场将出现调整，“我们看到中（共）国对智能手机的终端需求相当疲软。此外，俄乌战争可能会对整个欧洲市场和消费者需求产生溢出效应。”
 
-“这次民意调查的结果很重要,请仔细投票，”他周五表示。
+“对照研究”已经将2022年智能手机市场的前景调整为同比增长5%左右，主要归咎于乌克兰的冲突带来的不确定性。
 
-如果马斯克决定创建一个新平台，他将加入越来越多的科技公司组合，这些公司将自己定位为言论自由的拥护者，并希望吸引那些认为自己的观点在 Twitter , Meta Platform 的 Facebook 和 Alphabet 旗下的 Google 的 YouTube等平台上受到压制的用户。
+**快评**：不用过多久，大家就会体会到郭先生说的，俄乌战争相比之下是多么小的一个事件，2022年是人类历史上最黑暗的时刻。
 
-**参考链接：**[Elon Musk giving ‘serious thought’ to build a new social media platform](https://www.reuters.com/technology/elon-musk-giving-serious-thought-build-new-social-media-platform-2022-03-27/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+苹果削减产量不仅仅是因为俄乌战争的影响，疫苗灾难导致的全球经济崩塌、粮食短缺等才是更主要的原因。
 
-* * *
+中国共产党是这一切世界灾难的根源，灭了中共才能拯救人类。
 
-审核：文乐
-校对：阿伯塔
-发稿：信心的选择
+参考链接：
+[https://asia.nikkei.com/Spotlight/Supply-Chain/Apple-to-cut-iPhone-AirPods-output-amid-Ukraine-war-uncertainty?https://www.zerohedge.com/markets/apple-slash-iphone-se-output-next-quarter-souring-demand-amid-ukraine-conflict](https://asia.nikkei.com/Spotlight/Supply-Chain/Apple-to-cut-iPhone-AirPods-output-amid-Ukraine-war-uncertainty?del_type=1&amp;pub_date=20220328190000&amp;seq_num=2&amp;si=79447https://www.zerohedge.com/markets/apple-slash-iphone-se-output-next-quarter-souring-demand-amid-ukraine-conflict)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
