@@ -2,52 +2,45 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.28A）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243046/)
+## 郭文贵直播摘要和音频 2022.03.27
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2243097/)
 
-**整理：**雅典娜情报组（BENJ1）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1.png)雅典娜设计组
-**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+摘要撰稿人：文俊
 
-[往期集萃链接](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/03/fdce2bb6fc5f9d3a3984dfc1ba18bb0f.jpg)
+### 视频链接：
 
-**加强针真的该不该打？**
+[https://www.gettr.com/post/p124vkgc8a0](https://www.gettr.com/post/p124vkgc8a0)
 
-听好多姐妹打了以后姨妈推迟不来，我不想打了，我这社区天天打电话催打针，好怕再推迟……主要在备孕，不打不行吗？
+### 音频链接：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-139.jpg)小红书
+### 摘要：
+
+- 普京有60%的可能性，会有大规模的轰炸
+- 拜登去了波兰布置了反导系统，波兰应该是很安全的
+- 在乌克兰还有上万中国人，有2000多个中国人和七哥有联系，因为他们要回国大部分不敢发声，有200多个人还有联系
+- 乌克兰救援马甲重新设计，欢迎有设计能力的战友和团队跟农场联系，方案选上，有奖励
+- 拜登总统讲话：把俄罗斯人和普京分开了，但是没有把习近平（共产党）和中国人分开
+- 日本要开放宣战权，日本是和拜登出访呼应的
+- 拜登总统讲话，世界到了3个重大转变：1、世界的联合国基本解体，中印俄出局。即使联合国存在，日本会加入、乌克兰会提名。2、欧洲从西欧中心变成东欧中心，因为乌克兰。3、美国是最大的赢家！马斯克改变了游戏规则！美国有无数个马斯克
+- 习和普京签了协议：中共国和俄罗斯合作无上限
+- 中共令80%的中共国人支持俄罗斯打乌克兰！这会让中国人付不完的代价
+- 要坚信99%的体制内的人是好人，国内被喝茶的战友被警察照顾
+- 5月6日前，七哥因为秘密会议，要离开大直播，由战友代表直播
+- 阿布家人买了很多喜币，他跟家人说这些币不要卖，这是未来家族的核心资产
+- Gclubs昨天的抽奖，战友们要明白拥有卡，没有苗的意义
+- 国内危机：1粮食危机。2，病毒会再次扩散
+- 病毒和疫苗灾难会持续2-3年，只有共产党灭了，病毒才会停
+- 今天正式启动新中国联邦两年64活动
+- 新中国联邦两周年64有大礼
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-57.jpg)小红书
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-27.jpg)小红书
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-22.jpg)小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-19.jpg)小红书
-
-
-**跟帖评论选集：**
-
-**Kiko兔兔图兔兔：**千万别打，打了就后悔，我排卵期出血，去医院看吃药也好不了，已经快4个月了，别听社区的，如果上天再给我一次机会，我绝不打第三针。
-
-**栗子：**我也不想打，打完第二针大姨妈推迟了半个月，结果今天收到短信让去打，不然可能变黄码，今天就打了。
-
-**别动我的凤梨 : **我也是去年打完两针后排卵期出血，以前都不会……你有去医院看吗？
-
-参考链接：[加强针真的该不该打？](https://www.xiaohongshu.com/discovery/item/622c0b4e000000000102bac1?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648436935)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑发布：闪电训练
 
  
 

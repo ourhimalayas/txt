@@ -15,95 +15,95 @@
 
 ---
 
-### [上海追求“动态清零”，正在造成次生灾难和人道危机](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [七哥说自己信命](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
 
-### [上海分区半封城应对中共病毒疫情失控](/content/gnews/2/README.md)
+### [新中国联邦得天助，做事情要抓重点（一）](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦得天助，做事情要抓重点（四）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [新中国联邦得天助，做事情要抓重点（三）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [融创高负债销售下滑陷公司债兑付危机](/content/gnews/5/README.md)
  ` 波士顿五月花农场金融部`
 
-### [茅台暴跌1000亿！中共国白酒股崩了！](/content/gnews/3/README.md)
- ` 加拿大温哥华英里农场`
-
-### [美欧达成能源合作协议，拜登对俄乌战争导致全球粮荒问题发出警告](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声⎪俄警告媒体:不要报道对乌克兰总统的采访](/content/gnews/5/README.md)
+### [有声｜乌克兰人在中国社媒展开攻势 展示真实战况](/content/gnews/6/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共国“房产中介头子”扛不住了？](/content/gnews/6/README.md)
- ` 加拿大温哥华英里农场`
+### [大直播后记：如果日本开放宣战权对世界的意义](/content/gnews/7/README.md)
+ ` 雅典娜GNotes`
 
-### [截至 2022 年 3 月 27 日 18 点的关于俄罗斯入侵的行动信息](/content/gnews/7/README.md)
- ` 纽约香草山MOS02`
+### [报告：科学家们现在正在研究 “自我传播的疫苗&#8221;，可以从已接种疫苗的人群中跳到未接种疫苗的人群](/content/gnews/8/README.md)
+ ` 波士顿五月花农场金融部`
 
-### [秘翻在线：美国务卿布林肯谴责ISIS组织发动恐袭](/content/gnews/8/README.md)
+### [有声｜国内疫苗和粮食两大灾难会使很多人失去生命](/content/gnews/9/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [上海追求“动态清零”，正在造成次生灾难和人道危机](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [全球疫情疫苗数据更新（莫德纳制造了中共病毒？）](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上海分区半封城应对中共病毒疫情失控](/content/gnews/12/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美欧达成能源合作协议，拜登对俄乌战争导致全球粮荒问题发出警告](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声⎪俄警告媒体:不要报道对乌克兰总统的采访](/content/gnews/14/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [秘翻在线：美国务卿布林肯谴责ISIS组织发动恐袭](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [泽伦斯基：俄军从马立波带走2000多名儿童](/content/gnews/9/README.md)
- ` 蓝莲花农场`
+### [恒大百亿存款遭强制执行](/content/gnews/16/README.md)
+ ` GTV News Talk`
 
-### [有声｜乌克兰称切尔诺贝利的俄军或造成二次核扩散](/content/gnews/10/README.md)
+### [有声｜乌克兰称切尔诺贝利的俄军或造成二次核扩散](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [上海突发“切块式封城”，中共防疫模式陷危机](/content/gnews/11/README.md)
+### [上海突发“切块式封城”，中共防疫模式陷危机](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”](/content/gnews/12/README.md)
+### [中日财经爆┃日本将修订《外汇和外贸法》 堵住对俄制裁“漏洞”](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国救市：多地二手房首套房贷款利率降至5%以下](/content/gnews/13/README.md)
- ` 加拿大温哥华英里农场`
-
-### [有声｜CDC数据：5-11岁儿童接种中共病毒疫苗后更易感染](/content/gnews/14/README.md)
+### [有声｜CDC数据：5-11岁儿童接种中共病毒疫苗后更易感染](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [大直播后记：美国的软实力](/content/gnews/15/README.md)
+### [大直播后记：美国的软实力](/content/gnews/21/README.md)
  ` 雅典娜GNotes`
 
-### [拜登：“不能再让普京掌权”](/content/gnews/16/README.md)
+### [拜登：“不能再让普京掌权”](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/17/README.md)
+### [疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公](/content/gnews/23/README.md)
  ` 關注組`
 
-### [大直播后记：习误判拜登](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [《避风港Haven》直播内容精选（第二十六集·下）](/content/gnews/19/README.md)
+### [《避风港Haven》直播内容精选（第二十六集·下）](/content/gnews/24/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [乌克兰国防部：俄军高级指挥官在得知大部分坦克无法使用后自杀身亡](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [《避风港Haven》直播内容精选（第二十六集·上）](/content/gnews/21/README.md)
- ` 喜马拉雅纽约磐石农场`
-
-### [郭文贵直播摘要和音频 2022.03.27](/content/gnews/22/README.md)
+### [郭文贵直播摘要和音频 2022.03.27](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登总统致俄罗斯人民：你们不是我们的敌人](/content/gnews/23/README.md)
+### [拜登总统致俄罗斯人民：你们不是我们的敌人](/content/gnews/26/README.md)
  ` 美国政要直译推`
 
-### [中日财经爆┃俄乌战争推高全球钢材价格](/content/gnews/24/README.md)
+### [中日财经爆┃俄乌战争推高全球钢材价格](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19疫苗副作用集萃（2022.3.28A）](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [与俄罗斯关系密切 大疆遭德电子零售商禁售](/content/gnews/26/README.md)
+### [与俄罗斯关系密切 大疆遭德电子零售商禁售](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海“封而不封”，生产企业停工损失惨重！](/content/gnews/27/README.md)
- ` 蓝莲花农场`
-
-### [援乌营地：幼小的心灵 坚定的信念](/content/gnews/28/README.md)
+### [援乌营地：幼小的心灵 坚定的信念](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月27日晚](/content/gnews/29/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月27日晚](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
-
-### [2022年3月28日《樱花快报》：上海中共病毒爆发 紧急封城！](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [美疾控中心：5-11岁儿童疫苗接种者更易感染病毒且感染率最高](/content/gnews/31/README.md)
  ` 蓝莲花农场`

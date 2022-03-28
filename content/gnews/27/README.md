@@ -2,28 +2,22 @@
 ---
 
 
-## 上海“封而不封”，生产企业停工损失惨重！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2242965/)
+## 中日财经爆┃俄乌战争推高全球钢材价格
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2243047/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-上海疫情严重，市卫生健康委主任邬惊雷指出，上海专门制定了工作方案，要求各医疗机构要切实保障急诊绿色通道的畅通，台商则表示，不管浦东、浦西，现在生产企业全部停工，无法进出货，损失惨重。
+撰稿：东京樱花团/上善若水
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220328111940348.jpg)图片来源：中新社
+俄罗斯和乌克兰都是重要的钢材供应商，尤其是出售给钢铁冶金业者进行轧制的半成品。如今，因为制裁供应中断影响欧洲，导致全球价格攀升。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-58.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimages.moneycontrol.com%2Fstatic-mcnews%2F2021%2F05%2Fsteel-1.jpg%3Fimpolicy%3Dwebsite%26width%3D770%26height%3D431&amp;imgrefurl=https%3A%2F%2Fwww.moneycontrol.com%2Fnews%2Fbusiness%2Fmarkets%2Fsteel-price)
+欧盟于3月中旬禁止进口俄罗斯钢材。据欧盟委员会的声明，这一措施针对着俄罗斯33亿欧元的收入。钢材价格更是应声而起。轧钢卷的价格从每吨600美元升至1400美元。而厚钢板的价格则从每吨650美元涨到近2000美元。这不仅对建筑业，对汽车工业也影响很大。
 
-住在闵行区的新创公司老板林姓台商表示，这波疫情，让大陆金融中心上海几乎停摆，名义上「不封城」，但事实上就是「封城」，员工无法上班，生产企业无法进货出货，全数被关在社区里，复产遥遥无期。
+钢材价格达到如此之高，这是由于乌和俄不仅出口成品，也出口钢锭（brame）、钢坯(billette)，甚至销售给钢铁冶金业者的半成品。俄乌两国占行业65%的份额，主要供应欧洲的比利时和意大利。还有，俄也生产用于制造再生钢的直接还原铁(DRI) 和实心铸铁（fonte solide）。因此，供应受到限制在各层次都能感受得到。
 
-简评：上海疫情严重，为保经济名义上不封城，但实际的防控措施已达到“封城”效果。中共作为放毒者却无法控毒，外加中共病毒疫苗灾难的复合作用，未来灾难的程度不可预计。当下无法指望政府，疫情中的人们请做好个人防护，新中国联邦提供的解药是不可缺少的防疫必备，不可松懈一定要上心！
+信息来源：**[欧美制裁俄罗斯带起全球钢价](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20220327-%E6%AC%A7%E7%BE%8E%E5%88%B6%E8%A3%81%E4%BF%84%E7%BD%97%E6%96%AF%E5%B8%A6%E8%B5%B7%E5%85%A8%E7%90%83%E9%92%A2%E4%BB%B7)**
 
-新闻来源：[https://udn.com/news/story/7333/6196534](https://udn.com/news/story/7333/6196534)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

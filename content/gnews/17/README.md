@@ -2,36 +2,29 @@
 ---
 
 
-## 疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2243287/)
+## 有声｜乌克兰称切尔诺贝利的俄军或造成二次核扩散
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2243344/)
 
-**图/文：CP **
-**发布时间｜28/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/上海疫情失控-今起「兩段式」封城-民眾嘆做法不公.jpg)
+By:**秘翻新闻**
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+**2022-03-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-64.png)图片来源 路透社
+[据路透社当地时间3月27日报道，乌克兰副总理周日指责俄罗斯在切尔诺贝利核电站禁区进行军事化行为，称这种行为可能会使欧洲大部分地区面临辐射危险，同时她还敦促联合国派遣一个特派团评估风险。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
 
+[韦列舒克表示，俄军正在运送大量陈旧且维护不善的武器，这可能会损坏在该核电站周围建造的安全壳。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
 
-上海市疫情防控办昨日（27日）夜晚突然发布通告称，经研究决定，由今日（28日）凌晨5时起在全市范围内以黄浦江为界实行两段式封城，以进行全民核酸检测。
+[韦列舒克在她的 Telegram 账户上指出俄军这种不负责任和不专业的危险行为，并呼吁联合国安理会立即采取措施，禁止在切尔诺贝利核电站周围做出军事化行为，并组织一个特派团，以消除俄军导致切尔诺贝利灾难再次发生的风险。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
 
-首批是浦东、浦南及毗邻区域，4月1日5时解封，同时，浦西重点区域继续实施封控管理；第二批是浦西，自4月1日3时起实施封控，至4月5日3时解封。
+[她还表示，若欧洲资助建造的安全壳受损，将不可避免地导致大量放射性粉尘和污染物释放到大气中，不仅在乌克兰，还将扩散到其他欧洲国家。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
 
-封控期间，住宅社区封闭式管理，所有人员足不出户，人员和车辆只进不出。保障基本生活必需的外卖、快递等实行无接触配送，不得进入住宅社区。同时，所有企业实施封闭生产或居家办公，保障市民生活和城市基本运行的水、电、油气、通讯等公共服务除外，公共交通停运。
+[路透社无法立即核实韦列舒克的说法。但俄军在入侵的前几天占领了切尔诺贝利站，并一度阻止在那里的维护人员离开。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
 
-上海市今早举行疫情防控工作新闻发布会，当局解释采取封城措施的原因时表示，“通过分析筛查结果，发现本市疫情呈现区域聚集和全市散发并存两个特点，存在面上爆发的潜在风险”。经综合研判，有必要采取更果断、坚决的措施，进一步降低人群的社会流动性，快速排查发现感染者，彻底消除病毒隐匿的社区传播。
+秘翻新闻 文洋编译报道
 
-有居住在上海的民众批评当局做法不公，因上海中心地区均在浦西，故居民以上海人或高收入人群为主，而浦东、浦南属外地或基层人士的密集区，所以当局的“两段式”政策令浦西居民有充足时间采买物资，惟其他地区居民仅有几个小时准备。
-
-不过，上海卫健委官员在回应时，则指该说法偏颇，之所以让浦东、浦南地区先行封控，主要是因为该地区人员流动大，一直是疫情爆发的重灾区，并非是当局刻意区别对待。
-
-上海市官员早前指当地绝不会封城，但面对日渐扩大的新冠疫情，封城压力日增。上海过去一周累积确诊例突破1万宗，单日确诊率连续突破纪录，上海市卫健委今日早上通报，昨日录得3500宗本土确诊个案，继续为单日新增感染人数创下新高。
-
-来源｜上海发布
+发布 : 恩典
 
 * * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-328.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,29 @@
 ---
 
 
-## 泽伦斯基：俄军从马立波带走2000多名儿童
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2243360/)
+## 有声｜国内疫苗和粮食两大灾难会使很多人失去生命
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2243462/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-乌克兰总统泽伦斯基在接受採访时，痛斥俄罗斯军队围攻乌南城市马立波的行为造成了人道主义灾难，并透露俄军已从当地带走2000多名儿童。
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpbt1jv6.jpg)图片来源：路透
+**2022-03-28**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-53.png)图片来源 Gettr
+[在3月27日的文贵大直播中，郭文贵先生重提中共国内即将发生的疫苗和粮食危机这两大灾难，希望同胞做好准备。](https://gettr.com/streaming/p124vkgc8a0)
 
-泽伦斯基表示，马立波所有出入口都被封锁了，俄军在港口也佈下水雷，甚至炮击人道主义车队炸死司机，导致食物、药品和饮水无法输送进去。泽伦斯基指出，俄军正在将当地民众强行转移到俄罗斯境内，消息来源显示有2000多名儿童被带走，可能有父母陪同或没有。
+[郭先生表示，国内现在最大的危机，就是粮食危机。不管你待在哪里都得吃东西，要有食物、有水、有药。另外，国内最大的恐惧目前就是病毒，而且疫情一定会再次扩散。](https://gettr.com/streaming/p124vkgc8a0)
 
-简评：被俄军带走的乌克兰儿童，不知会受到怎么样的虐待，用来做人质来跟乌克兰谈条件吗？还是当作人肉盾牌来要挟乌军的进攻？儿童作为战争中最最弱势的群体，不应受到如此的迫害！这世间是有轮回报应的，就不怕祸及你们的子孙吗？
+[他说，不是中共敢放毒就有能力能管住毒，放毒却控制不住，这就是报应。中共国可笑的清零和灭疫政策，最终会让很多人连埋葬的地方都没有。这就是为何中共会发明尸体处理的气化方式。](https://gettr.com/streaming/p124vkgc8a0)
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3873885](https://news.ltn.com.tw/news/world/breakingnews/3873885)
+[郭先生再次发出预警，5月全球的疫苗灾难即将到来，这段时间香港、大陆的疫情复发，都离不开疫苗的原因。这个困难时期会持续两到三年。在没有中共的时候，病毒就没了，这是天意。](https://gettr.com/streaming/p124vkgc8a0)
 
-撰稿/发布：一叶知秋
+[郭文贵先生最后还表示，到2025年，伊朗、普京、金正恩，都会被清除。但国内接种两到三针疫苗的感染人数、死亡和病乱，远不止现在的数量。希望同胞做好防范。](https://gettr.com/streaming/p124vkgc8a0)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+秘翻新闻 文洋编写报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

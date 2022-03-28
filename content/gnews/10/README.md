@@ -2,29 +2,40 @@
 ---
 
 
-## 有声｜乌克兰称切尔诺贝利的俄军或造成二次核扩散
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2243344/)
+## 上海追求“动态清零”，正在造成次生灾难和人道危机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2243458/)
 
-By:**秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-28**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-64.png)图片来源 路透社
-[据路透社当地时间3月27日报道，乌克兰副总理周日指责俄罗斯在切尔诺贝利核电站禁区进行军事化行为，称这种行为可能会使欧洲大部分地区面临辐射危险，同时她还敦促联合国派遣一个特派团评估风险。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+整理/编辑：文泓
 
-[韦列舒克表示，俄军正在运送大量陈旧且维护不善的武器，这可能会损坏在该核电站周围建造的安全壳。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Y5_A_2U@TEU4P4B7Z5M.png)图片来源：北美生活引擎 & 雅典娜设计组
 
-[韦列舒克在她的 Telegram 账户上指出俄军这种不负责任和不专业的危险行为，并呼吁联合国安理会立即采取措施，禁止在切尔诺贝利核电站周围做出军事化行为，并组织一个特派团，以消除俄军导致切尔诺贝利灾难再次发生的风险。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
 
-[她还表示，若欧洲资助建造的安全壳受损，将不可避免地导致大量放射性粉尘和污染物释放到大气中，不仅在乌克兰，还将扩散到其他欧洲国家。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+自从上海本轮疫情大规模爆发后，上海当局曾对“封城”的说法先后七次辟谣，官媒在报导上海疫情时避免使用“封城”一词，但追求“动态清零”的极端管控措施已引发次生灾难和人道危机。
 
-[路透社无法立即核实韦列舒克的说法。但俄军在入侵的前几天占领了切尔诺贝利站，并一度阻止在那里的维护人员离开。](https://www.reuters.com/world/europe/ukraine-says-russian-forces-near-chernobyl-could-pose-new-radiation-threat-2022-03-27/)
+据多家媒体报导，东方医院3月25日通报，该院护士周盛妮3月23日在家中哮喘发作，因为医院急诊关闭，周盛妮失救去世。
 
-秘翻新闻 文洋编译报道
+3月23日，该市共有31家主要医疗机构暂停服务；3月26日，上海有36家医疗机构暂停服务。本地众多病患无法取药、就诊。
 
-发布 : 恩典
+根据网友上传视频显示，上海市闵行区一名患癌老人准备去医院取药，但被当地居委会以疫情为由禁止，之后该名老人自三楼跳楼自杀，不过万幸，只是双脚骨折，但当局对上述消息予以否认。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-328.png)
+近日，上海市虹桥镇一社区居民向当地居委会抗议，该社区已经被封控8天，没有蔬菜吃，居民质问官员，为何官方通报两个阳性病例，要将整个社区一千多人封闭，并要求解封。
+
+上海疫情防控领导小组专家称，对于密接者涉及到的所在居住小区、工作单位或者学校的相关人员实行“2+12”管控措施。中共流行病学家梁万年说，必须坚持“动态清零”这个总方针“不动摇”。
+
+近年来，中国经济持续下行，而上海当局推行的“动态清零”政策对各行各业的冲击更是雪上加霜，同时，那些政策制定者、执行者们的冷酷无情，正在制造次生灾难和人道危机。
+
+参考链接：[上海医院关闭造成人为灾难](https://www.epochtimes.com/gb/22/3/26/n13675230.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
