@@ -2,43 +2,30 @@
 ---
 
 
-## 从特内里费空难谈加拿大人对大流行沉默的危局
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2242740/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2242820/)
 
-##### 素材：小菠萝
-翻译：Julia
-校对：Lish
-字幕：qingjing
-编辑：Mttfly
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-32.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-22.png)
 
-格雷格·希尔（Greg Hill）是一个由超过40,000名航空乘客和专业人士组成的名为“自由飞行”的团体的联合董事，该团体致力于维护加拿大海岸飞行的自由。希尔曾经作为飞行员在加拿大军队中服役32年。
 
-2022年的加拿大笼罩在新冠大流行封锁的阴影中，各种无理的强制政策分裂了加拿大这个民主国家。政府在极权主义加持下，以防疫为幌子，疯狂踩油门。
+校对：Stay文苑
 
-希尔借特内里费空难来说明加拿大目前的危险处境。1977年3月27日傍晚，西班牙的特内里费岛上， 两架大型客机在跑道上高速相撞爆炸，造成了583人死亡。 这是至今人类史上最惨烈的空难，两机在地面上相撞后，熊熊的大火直到第二天下午才被扑灭。
+编辑：Stay文苑
 
-事故发生时，有两架波音747飞机，一架属于荷兰皇家航空公司，另一架属于美国泛美航空公司。荷航的航班急于起飞，但他们不知道泛美航空的航班还在跑道的出发端滑行。希尔认为，那架荷兰航空公司飞机的两位正副机长都悄悄地对跑道是否真的畅通怀有越来越大的担忧，但他们并没有说出来。他们从原来的目的地改道到这里已经是漫长的一天了，飞机上243名乘客都很疲惫、沮丧，他们急需赶到他们的目的地。
+发稿：Stay文苑
 
-当荷航的飞航工程师对泛美航班是否已经让出主跑道而向机长提出质疑时，荷航的机长贸然作出了肯定的判断。荷航机长的疏忽与专断一定程度导致了灾难发生。从中我们可以看出“自满、服从权威和不愿因质疑而动摇大局”，酿成了这场前所未有的空难。
+新闻：[https://gettr.com/post/p128vrkf6ec](https://gettr.com/post/p128vrkf6ec)
+访谈：[https://gettr.com/post/p128x648c0b](https://gettr.com/post/p128x648c0b)
 
-而在疫情大流行病下的加拿大，无论是主流媒体，还是所谓“为了你好”的政府，他们隐藏了新冠疫情的真相，蒙蔽了好男人和好女人的良知。这和荷航飞机以100节的速度冲下跑道没有什么不同！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-24.jpeg)
 
-希尔向加拿大的警察们说道：“当你被要求重复谎言，或者更糟糕的是被要求压制你的同胞的声音和自由时，你内心的一个声音在说，这很愚蠢，这很危险，这是错的！”
-
-我们所有人就像荷航工程师所感受到的疑惑与问题一样，我们应该立刻行动起来，听从内心的声音，制止这个国家“机长”的独裁且邪恶的决定！
-
-希尔最后呼吁道：“我们赞扬你们所有作为军人和警察站在暴政力量和我们人民的自由之间的人。现在，你们中更多的人正在积极但沉默地质疑对你们的那些不合法的要求。请你们不要再沉默了！”
-
-视频来源：[PILOT CALLS ON CANADIANS TO HAVE COURAGE | THESCOOP.US](https://www.bitchute.com/video/1tqaa8OciK7D/)
-往期链接：[飞行员呼吁加拿大人为反对大流行封锁发声](https://gnews.org/zh-hans/2242503/)
-
-*发布：Mttfly*
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
