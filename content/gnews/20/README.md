@@ -2,35 +2,33 @@
 ---
 
 
-## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
+## 2022/03/24 辉瑞疫苗会面临法律诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2244785/)
 
-图文/zhong｜28/3/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-## 美国“国家民主基金会”访台
+![](https://assets.gnews.org/wp-content/uploads/2022/03/032602.jpg)[GETTR视频链接](https://gettr.com/post/p11yd7p6b5f)
 
-台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
+**视频字幕：**
 
+**Dr. Naomi Wolf**：然后他说，这又是个头条：“我想知道为什么辉瑞公司会得到FDA的批准？在FDA考虑批准的时候，他们已经在VAERS报了400多例死亡。”他仔细阅读资料后得出结论，认定这是一个巨大的头条新闻，第一，因为所有这些不良反应、档案和给VAERS的报告；第二，他指出竞争疫苗的存在—非mRNA疫苗。它与政府机构没有利益冲突，被关闭了，辉瑞的疫苗造成死亡，却继续被推行。我需要明确一点，现在说律师们都心知肚明还为时尚早，他们还需要更多时间，但已经有完整的讨论，我不能透露，这里面发生了严重的事情，会有法律后果，他们都脱不了干系。
 
+**简评：**
 
-> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
-> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
+Dr. Naomi Wolf在谈到辉瑞疫苗时表示，在FDA考虑批准辉瑞疫苗的时候，辉瑞公司已经在VAERS报告400多例死亡。但辉瑞疫苗依然通过批准。而竞争疫苗—非mRNA疫苗，因为与政府机构没有利益冲突，被关闭了。律师们需要更多时间理清事情的缘由，但是会有法律后果，作恶者脱不了干系。
 
-
-
-威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
-
-外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
-
-## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
-
-[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
-
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
+*字幕：Vekap|听写：雨中漫步|翻译：Blue|校对：Roberts|简评/文字整理/编辑：胖丁*
 
 * * *
 
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,30 +2,25 @@
 ---
 
 
-## 施瓦辛格喊话俄军民：你们的政府在说谎
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2244827/)
+## 新的空袭—切尔诺贝利核电站周围发生火灾
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2244858/)
 
-作者：日本东京方舟农场—Miyali7768(文玉）
+**周日晚间几座乌克兰城市再次成为俄罗斯空袭的目标。**
+
+作者：dpa/orf/dlf/est/原文发布于2022年3月28日10:19 (CET)
+翻译：LK
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-国外媒体3月17日报道，好莱坞著名影星、前加州州长阿诺·史瓦辛格当天发布了一则视频，向俄罗斯军民喊话，希望说明战争真相。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/299763cadb02158805652ff0b1af4878.png)
-施瓦辛格首先表达了自己对俄罗斯的深厚情感，并对人们不喜欢听到别人批评自己的政府表示了理解。但是，他说，克里姆林宫发动的这场残暴的战争已经使乌克兰的街道被夷为平地，300万乌克兰人沦为难民，俄罗斯也受到全世界大多数国家的谴责，在国际社会上遭到孤立；俄罗斯人将承受有史以来最严厉的经济制裁，“受苦的是两边的人民”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-3-4.jpg)图片：哈尔科夫州政府的大楼也被摧毁。（Aris Messinis/AFP）
 
-施瓦辛格谈到自己的父亲曾受德国政府的蒙蔽加入二战，结果不只在战场上受伤，还要承受一生的罪恶感。
+据乌克兰媒体报道，首都基辅以及卢茨克、罗夫诺和哈尔科夫等地发生多起爆炸。在乌克兰西北部的卢兹克，一个燃料库被击中。
 
-他说，现在俄罗斯政府不只对自己的人民说谎，同时也对军队说谎。有些士兵以为自己上战场是去对抗纳粹；有些士兵以为乌克兰人会把他们当成英雄看待；有些士兵以为只是去演习；有些人以为他们是去保护乌克兰境内的俄罗斯人。“这些都是错误的讯息”“这是一场不合法的战争”“我不希望你们像我的父亲一样人生破碎不堪”。
+乌克兰领导人指责俄罗斯军队采取了“非人道战术”。其中包括封锁人道主义走廊和封锁被围困的城市。
 
-参考链接：[阿諾揭父親曾效忠納粹罪惡過餘生 向俄軍民喊話：你們的政府在說謊\[影\]](https://www.cna.com.tw/news/aopl/202203180028.aspx)
+据乌克兰当局称，切尔诺贝利核废墟周围再次发生火灾。该区由俄罗斯部队占领。乌克兰要求联合国安理会为该核电站建立一个特别保护区。
 
-编辑/校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+原文链接：[https://brf.be/international/1588785/](https://brf.be/international/1588785/)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,17 +2,17 @@
 ---
 
 
-## 樱花头条┃美国认定俄军在乌克兰犯下战争罪
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2244936/)
+## 樱花头条┃德国总统夫妇感染新冠病毒 希拉里检测阳性
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2245051/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-美国认定俄军在乌克兰犯下“战争罪”.
+德国总理夫妇感染新冠病毒.德国总统曾已接种第三针疫苗;希拉里克林顿新冠病毒呈阳性.
 
 信息来源：
-[https://www.gettr.com/post/p11mez8d5a1](https://www.gettr.com/post/p11mez8d5a1)
+[https://www.gettr.com/post/p11gfgafd0a](https://www.gettr.com/post/p11gfgafd0a)
 
-*编辑：东京樱花团/asket、包子（素材）
+*编辑：东京樱花团/asket、行动（素材）
 发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
 **更多资讯，更多关注**
