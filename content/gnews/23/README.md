@@ -2,41 +2,40 @@
 ---
 
 
-## 澳大利亚将增加国防和安全方面的开支
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2249942/)
+## 俄胡萝卜加大棒在乌边境库尔斯克地区重集结更多军力
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2249961/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-29-下午12.40.43.png)图片来源：互联网
+俄罗斯在乌克兰边境附近的库尔斯克地区重新集结比2月24日更多部队和军事装备，一手蓄积军事力量，另一手表示愿意和谈。
 
-翻译/编辑：小红帽
+据乌克兰国家通讯社（ Ukrinform）报道，乌克兰作战武装部队在 Telegram 上报告了此事，并参考了国际情报机构 InformNapalm 发言人 Mykhailo Makaruk 提供的信息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123111042_opera.jpg)图片来源：GETTY IMAGES
+报告称：“俄罗斯继续重新集结部队并积累过时的装备。目前，位于乌克兰边境附近的库尔斯克地区的军事装备比 2 月 24 日时要多。”【1】
 
+俄罗斯库尔斯克位于乌克兰东北部，距离乌边境约80英里（130公里），风水上看是大凶之位，2月24日俄全面入侵乌克兰之前，就在库尔斯克和沃罗涅日部署大量军事装备。
 
-根据U.S. NEWS 3月28日报道，澳大利亚财政部长乔什·弗莱登伯格 （Josh Frydenberg）在周二公布针对即将举行的选举所制定的预算之前表示，澳大利亚政府将增加国防和国家安全方面的支出，同时减少家庭开支。
+乌克兰武装部队总参谋部周一（3月28日）在Facebook发布关于乌军抵抗俄罗斯入侵情况报告称俄军在暂停进攻苏梅城，正在重新集结。
 
-随着俄罗斯与乌克兰开战，中共国的军队变得更加强硬，弗莱登伯格预示着“对国防和国家安全的进一步投资反映了我们现在面临的挑战”。
+报告指出：”敌人（俄军）没有采取进攻行动。敌军正在重新集结并向俄罗斯境内撤退，以补充战斗力。”
 
-从7月1日开始的财政年度的预算将提前在5月21日大选之前公布，总理科特·莫里森 (Scott Morrison)的保守派政府将在大选中寻求第四个三年任期。
+在哈尔科夫方向正面进攻也处于停滞。报告说：“敌人没有采取进攻行动。与此同时，俄罗斯入侵者继续封锁这座城市并烧毁民用基础设施。”
 
-随着澳大利亚和世界许多地方的通货膨胀率上升，部分原因是油价上涨，预计政府将减少每升44.2澳分（33.1美分）的汽油税（每加仑1.25美元）。
+俄罗斯正在动员兵员补充到对乌侵略战争中，包括秘密吸收监狱服刑有严重刑事罪行的罪犯，同时还在库尔斯克部署武器装备。
 
-“今晚，我们将以一种临时的、有针对性的、负责任的方式，提供生活费用的减免，”弗莱登伯格说。
+普京一手表率愿意和谈，另一手为新一轮对乌克兰侵略蓄积力量。
 
-澳大利亚石油协会表示，上周全国汽油平均价格下降了5.8澳分（4.3美分），至每升2.06.7澳元（1.54美元）（每加仑5.86美元）。
+乌克兰国家通讯社周一（3月28日）报道，乌克兰与俄罗斯联邦的下一轮会谈将于 3 月 28 日至 30 日在土耳其举行。这是在雷杰普·塔伊普·埃尔多安与俄罗斯总统普京会谈后，土耳其总统府通信局证实，下一轮俄乌谈判将在伊斯坦布尔举行。【2】
 
-弗莱登伯格说，他还将披露“预算底线的实质性改善”。
+参考链接：
 
-经济学家预计，本财政年度的赤字将在800亿澳元（600亿美元）至700亿澳元（520亿美元）之间，而澳大利亚政府在12月预测的缺口为992亿澳元（743亿美元）。
+【1】[InformNapalm：俄罗斯继续重组部队，积累军事装备](https://www.ukrinform.net/rubric-ato/3442533-informnapalm-russia-continues-regrouping-troops-accumulating-military-equipment.html)
 
-新闻来源：[Australia to Increase Spending on Defense and Security](https://www.usnews.com/news/business/articles/2022-03-28/australia-to-increase-spending-on-defense-and-security)
+【2】[下一轮俄乌谈判今天在伊斯坦布尔举行](https://www.ukrinform.net/rubric-ato/3441829-next-round-of-russiaukraine-negotiations-to-take-place-in-istanbul-today.html)
 
-发布：tianzhihuan
+* * *
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑&发布：长岛开心*
 
  
 

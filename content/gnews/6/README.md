@@ -2,30 +2,54 @@
 ---
 
 
-## 美国总统拜登表示普京不应再继续执政
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2250218/)
+## 应对中俄挑战，美国公布2023巨额国防预算
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2250341/)
 
-评论：***在当晚发表抨击克里姆林宫主人的言论之前，拜登直指普京是“屠夫”，他的军队犯下了屠杀乌克兰人民的罪行。此外，在华沙皇家城堡，拜登直接向俄罗斯人喊话，俄罗斯人民不是敌人。他说：“如果你们能听到我的话，请允许我说一句：‘你们，俄罗斯人民，不是我们的敌人。’”相信不久的将来，拜登总统也会对中国人民喊话。***
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据《路透社》记者：Jarrett Renshaw，2022年3月27日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3614.png)2022年3月26日，俄罗斯入侵乌克兰之际，美国总统乔·拜登在波兰首都华沙皇家城堡举行活动并发表讲话。图片来源：Evelyn Hockstein/路透社
-华沙，3月26日（路透社）——美国总统乔·拜登周六表示，俄罗斯总统弗拉基米尔·普京不应该再继续执政，他对乌克兰的入侵，予俄罗斯来说已经战略上失败。
+整理/编辑：文泓
 
-拜登在华沙对人群说：“看在上帝的份上，这个人不能再继续执政。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/7955K3QX@OEHCE7MK1RH.png)图片来源：Financial Times & 雅典娜设计组
 
-拜登还表示，俄罗斯和乌克兰的战争已经进入第二个月，战争团结了西方，并补充，北约是一个防御联盟，从未想要谋求俄罗斯的灭亡。
 
-原文连接：[**https://www.reuters.com/world/europe/us-president-biden-tells-crowd-putin-cannot-remain-power-2022-03-26/**](https://www.reuters.com/world/europe/us-president-biden-tells-crowd-putin-cannot-remain-power-2022-03-26/)
+当地时间3月28日，拜登总统公布了提交国会的5.8万亿美元2023财年预算提案，其中包括8,133亿美元的国防和国家安全支出。
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+当日国防部长奥斯汀发表声明，详细列出了国防资金将被用来投资的领域，包括加强美国核力量现代化，为海、陆、空增购先进武器，投资导弹防御系统，以及加强军事战备。8,133亿美元的巨额预算中，有7,730亿美元用于国防部，比2022财年颁布的金额增加了307亿美元，即4.1%。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+奥斯汀在声明中说：“在动态和不断发展的安全环境中，一支强大的、适应性强的美国军队仍然是美国国家安全的核心支柱。2023财年国防预算提供了必要的资源，以维持和加强美国的威慑力。”
+
+奥斯汀还说，2023财年预算使得国防部能够发展、采购和使军事能力现代化，以确保所有领域的战斗力，来应对来自中共国步步进逼的挑战，并应对来自俄罗斯的严重威胁。
+
+以下是奥斯汀在声明中列出的五角大楼将要投资的军事领域：
+
+1、核力量现代化（344亿美元）；
+
+2、致命性空军设备和项目（565亿美元）；
+
+3、海军力量现代化（408亿美元）；
+
+4、提高地面力量的战斗效率（126亿美元）；
+
+5、导弹防御（247亿美元）；
+
+6、远程火力打击（72亿美元）；
+
+7、太空和天基系统（276亿美元）；
+
+8、印太和欧洲司令部总计获得逾百亿美元；
+
+9、投资网络空间活动（112亿美元）；
+
+此外，还有1,347亿美元的资金将投资于加强美军的战备，这一数字比2022财年颁布的估计数额1,284亿美元增加了63亿美元或4.9%。
+
+参考链接：[联邦预算扩大首次置业者支持计划](https://www.sbs.com.au/chinese/mandarin/zh-hans/government-to-expand-first-home-buyers-scheme-in-budget-increase-infrastructure-spending)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

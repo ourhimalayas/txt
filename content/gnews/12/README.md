@@ -2,35 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.29C）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2250100/)
+## 美国总统拜登表示普京不应再继续执政
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2250218/)
 
-整理：雅典娜情报组(BENJ1)
-编辑：Kelly
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-2.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+评论：***在当晚发表抨击克里姆林宫主人的言论之前，拜登直指普京是“屠夫”，他的军队犯下了屠杀乌克兰人民的罪行。此外，在华沙皇家城堡，拜登直接向俄罗斯人喊话，俄罗斯人民不是敌人。他说：“如果你们能听到我的话，请允许我说一句：‘你们，俄罗斯人民，不是我们的敌人。’”相信不久的将来，拜登总统也会对中国人民喊话。***
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+据《路透社》记者：Jarrett Renshaw，2022年3月27日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3614.png)2022年3月26日，俄罗斯入侵乌克兰之际，美国总统乔·拜登在波兰首都华沙皇家城堡举行活动并发表讲话。图片来源：Evelyn Hockstein/路透社
+华沙，3月26日（路透社）——美国总统乔·拜登周六表示，俄罗斯总统弗拉基米尔·普京不应该再继续执政，他对乌克兰的入侵，予俄罗斯来说已经战略上失败。
 
-疫苗加强针后遗症
+拜登在华沙对人群说：“看在上帝的份上，这个人不能再继续执政。”
 
-疫苗打完两三个小时手臂酸痛，然后浑身晕呼呼想睡觉，第二天打针的位置比头天更酸痛，摸着还有硬块。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-200.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-161.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-102.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-108.png)
-跟帖评论选集：
+拜登还表示，俄罗斯和乌克兰的战争已经进入第二个月，战争团结了西方，并补充，北约是一个防御联盟，从未想要谋求俄罗斯的灭亡。
 
-余低调：打完第3针之后，过了一两个星期喉咙发炎，再过几个星期脖子淋巴结肿大，再过几个星期，现在全身多发淋巴结，喉咙发炎也还没好，然后我家里老母亲也是打完第3针没多久甲状腺结节手术了。花一堆钱去看病吃药。
+原文连接：[**https://www.reuters.com/world/europe/us-president-biden-tells-crowd-putin-cannot-remain-power-2022-03-26/**](https://www.reuters.com/world/europe/us-president-biden-tells-crowd-putin-cannot-remain-power-2022-03-26/)
 
-wa柒：我打第一针就是嗜睡，也没太大反应，所以一到时间就打了第二针，没想到超级不舒服，全身酸痛，免疫系统变低，还得了寻麻疹。第三针我不准备打了……毕竟没人为我的身体负责……全家人都没事，就我出事……
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参考链接：[http://xhslink.com/v7tVtg](http://xhslink.com/v7tVtg)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

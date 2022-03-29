@@ -15,104 +15,104 @@
 
 ---
 
-### [应对中俄挑战，美国公布2023巨额国防预算](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [视频|3月27日俄乌交战局势更新](/content/gnews/1/README.md)
+ ` MOSVIDEO`
 
-### [白宫公布在2023年预算加入20%“亿万富翁最低税”提案](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [视频|黄色救援马甲醒目标语区分中共与新中国人](/content/gnews/2/README.md)
+ ` MOSVIDEO`
 
-### [俄乌战争｜拜登拒绝撤回言论 再次澄清并非呼吁政权更迭](/content/gnews/3/README.md)
- ` 關注組`
+### [特斯拉上海工厂因当地疫情政策停工4天](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
 
-### [共匪这是真正的人民至下](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [视频|欧洲议会将要求数字支付实名制](/content/gnews/4/README.md)
+ ` MOSVIDEO`
 
-### [美参院通过大型抗中法案 将与众院进入最终协商](/content/gnews/5/README.md)
- ` 波士顿五月花农场金融部`
-
-### [美国总统拜登表示普京不应再继续执政](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [COVID-19疫苗副作用集萃（2022.3.29.D）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共抗疫药除了连花清瘟胶囊还有花椰菜](/content/gnews/8/README.md)
+### [俄罗斯普通百姓的生活大转变](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [台湾｜中共忌惮台湾关系法 国安局长：美将比俄乌战争介入更深](/content/gnews/9/README.md)
+### [应对中俄挑战，美国公布2023巨额国防预算](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频|历史的今天3月28日](/content/gnews/7/README.md)
+ ` MOSVIDEO`
+
+### [白宫公布在2023年预算加入20%“亿万富翁最低税”提案](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [俄乌战争｜拜登拒绝撤回言论 再次澄清并非呼吁政权更迭](/content/gnews/9/README.md)
  ` 關注組`
 
-### [俄罗斯富豪阿布在基辅和谈期间出现中毒症状](/content/gnews/10/README.md)
+### [共匪这是真正的人民至下](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美参院通过大型抗中法案 将与众院进入最终协商](/content/gnews/11/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美国总统拜登表示普京不应再继续执政](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [COVID-19疫苗副作用集萃（2022.3.29.D）](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [台湾｜中共忌惮台湾关系法 国安局长：美将比俄乌战争介入更深](/content/gnews/14/README.md)
+ ` 關注組`
+
+### [俄罗斯富豪阿布在基辅和谈期间出现中毒症状](/content/gnews/15/README.md)
  ` 银河歌舞厅`
 
-### [财经｜美国将就中共太阳能板制造商逃避关税一案展开调查](/content/gnews/11/README.md)
+### [财经｜美国将就中共太阳能板制造商逃避关税一案展开调查](/content/gnews/16/README.md)
  ` 關注組`
 
-### [COVID-19疫苗副作用集萃（2022.3.29C）](/content/gnews/12/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.29C）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯遭制裁！富豪生活天堂掉地狱](/content/gnews/13/README.md)
- ` 蓝莲花农场`
-
-### [大直播后记：铲共奇侠获一等奖证明“神”的存在！](/content/gnews/14/README.md)
+### [大直播后记：铲共奇侠获一等奖证明“神”的存在！](/content/gnews/18/README.md)
  ` 雅典娜GNotes`
 
-### [香港疫情致死人数激增 棺材紧缺](/content/gnews/15/README.md)
+### [香港疫情致死人数激增 棺材紧缺](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜英国下令审查公共部门俄罗斯能源合同](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [乌克兰战争爆发，美国海军向德国派遣6架“咆哮者”飞机](/content/gnews/17/README.md)
+### [乌克兰战争爆发，美国海军向德国派遣6架“咆哮者”飞机](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [朝鲜可能很快准备进行核试验](/content/gnews/18/README.md)
+### [朝鲜可能很快准备进行核试验](/content/gnews/21/README.md)
  ` 波士顿五月花农场金融部`
 
-### [ATAGI考虑为澳洲青少年提供辉瑞新冠加强针](/content/gnews/19/README.md)
+### [ATAGI考虑为澳洲青少年提供辉瑞新冠加强针](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [有声｜美国国债5年30年期收益率自 2006 年以来首次倒挂](/content/gnews/20/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [俄胡萝卜加大棒在乌边境库尔斯克地区重集结更多军力](/content/gnews/21/README.md)
+### [俄胡萝卜加大棒在乌边境库尔斯克地区重集结更多军力](/content/gnews/23/README.md)
  ` 波士顿五月花农场金融部`
 
-### [有声｜美国促进立法加入中国人权条款](/content/gnews/22/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [澳大利亚将增加国防和安全方面的开支](/content/gnews/23/README.md)
+### [澳大利亚将增加国防和安全方面的开支](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [美国正在调查中共亚洲工厂是否在逃避太阳能关税](/content/gnews/24/README.md)
+### [美国正在调查中共亚洲工厂是否在逃避太阳能关税](/content/gnews/25/README.md)
  ` 波士顿五月花农场金融部`
 
-### [防中国曲线避税,美正考虑对东南亚太阳能设备征收关税](/content/gnews/25/README.md)
+### [防中国曲线避税,美正考虑对东南亚太阳能设备征收关税](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄隐秘征兵用有严重刑事罪行的罪犯补充兵员短缺](/content/gnews/26/README.md)
+### [俄隐秘征兵用有严重刑事罪行的罪犯补充兵员短缺](/content/gnews/27/README.md)
  ` 波士顿五月花农场金融部`
 
-### [【秘翻北美时评】专家称 挺普侵乌是习近平掌权9年多来最大的失策](/content/gnews/27/README.md)
+### [【秘翻北美时评】专家称 挺普侵乌是习近平掌权9年多来最大的失策](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放](/content/gnews/28/README.md)
+### [3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [3/27/2022 文贵直播: 战友们在乌克兰救援行动中展现出的形象让海外华人感触良多，前线战友的一举一动都影响着世界对华人的看法](/content/gnews/29/README.md)
+### [3/27/2022 文贵直播: 战友们在乌克兰救援行动中展现出的形象让海外华人感触良多，前线战友的一举一动都影响着世界对华人的看法](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄乌战争｜俄乌代表谈判后出现中毒症状 疑俄罗斯强硬派所为](/content/gnews/30/README.md)
+### [俄乌战争｜俄乌代表谈判后出现中毒症状 疑俄罗斯强硬派所为](/content/gnews/31/README.md)
  ` 關注組`
 
-### [Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy](/content/gnews/31/README.md)
+### [Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [喜马拉雅真义20解：天意彰显：Nicole、王雁平、铲共骑侠、才旺罗布四位战友的故事](/content/gnews/32/README.md)
+### [喜马拉雅真义20解：天意彰显：Nicole、王雁平、铲共骑侠、才旺罗布四位战友的故事](/content/gnews/33/README.md)
  ` 秘密翻译组-原创组`
-
-### [俄乌之战一个月后西方文明国家的反应](/content/gnews/33/README.md)
- ` cindy`
 
 ### [玛莎·布莱克本:习近平不仅在密切关注普京对乌克兰的入侵,也在密切关注美国的反应](/content/gnews/34/README.md)
  ` 美国政要直译推`
