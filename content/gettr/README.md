@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 10:36 PM (UTC)`
+
+Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New Federal of China and Rule of Law Foundation.<br/><br/>钢琴家戴维德·马尔泰罗在新中国联邦法治基金的大帐篷前演奏《铁锁梦》
+![img](https://media.gettr.com/group12/getter/2022/03/29/22/b02fbeb7-4c72-ea00-89ca-3617c62a4416/out.jpg)
+
+---
+
 `@miles 3/29/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-29
@@ -149,13 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 3/27/2022 Miles Guo: The US has no choice but to take down the CCP. President Biden’s quote, “For God’s sake, this man cannot remain in power”, is of great significance and has gone beyond what President Kennedy and President Regan said to the former Soviet Union. Biden’s speech in Poland will be replayed for numerous times in humanity.<br/><br/>3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放<br/>
 ![img](https://media.gettr.com/group30/getter/2022/03/29/05/76f015a9-b830-866b-3ea0-15b84757e697/out.jpg)
-
----
-
-`@miles 3/29/2022 5:00 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group22/origin/2022/03/29/04/33f24bf7-5abb-039d-1ab5-7d271660095c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
