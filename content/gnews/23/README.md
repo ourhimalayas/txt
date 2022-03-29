@@ -2,34 +2,40 @@
 ---
 
 
-## 俄罗斯试图让中共成为俄乌停战的担保人
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2252635/)
+## 有声|俄飞弹攻击乌克兰西部城市利沃夫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252734/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/BACYW3L7IRP5JCBBOS2IYBOV3E.jpg)
-3月29日周二，俄罗斯与乌克兰在土耳其举行和平谈判。双方旨在调停战争，实现最终和平协议，俄罗斯承诺对乌克兰基辅和北部地区地区停止军事行动，乌克兰承诺作为中立国，不派驻任何盟军。同时双方约定此项协议的担保人可以是以色列和北约成员国加拿大、波兰、土耳其等，俄罗斯、美国、英国、德国和意大利也可以提供担保。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月26日，外媒报导，乌克兰利沃夫当局表示，有四枚火箭弹击中了乌克兰西部城市利沃夫，这是俄罗斯入侵以来对该市最严重的袭击。
 
-中共大外宣此前报道，俄罗斯外长拉夫罗夫表示欧盟国家完全没有能力作为解决某些冲突的担保人。而俄乌会谈确立的担保国家德国、意大利是欧盟国家。
+利沃夫州长柯齐斯基称，26日下午3点左右，两枚火箭弹击中了该市东郊的一个燃料库，造成五人受伤，两枚火箭弹后来击中了一家军用工厂。他呼吁民众在空袭警报解除前，务必待在室内。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-13.jpg)
+利沃夫距离波兰边境70公里，当时，美国总统拜登正在波兰访问，表达对北约成员国波兰的强力支持。
 
-郭先生此前曾爆料，“圣彼得堡的阴谋”就是俄罗斯想让中共习近平来做停战担保人，而习近平可以借此彰显中共国大国风范。但这样做的后果就是牺牲十四亿中国老百姓。目前看来郭先生的爆料已经得到验证。
+这座位于乌克兰西部的城市战前有人口约71.7万，自俄罗斯入侵以来，该市几乎没有受到战争影响，因此已成为逃离乌克兰东部、南部和中部战火严重地区的数千户家庭的避难所，以及逃离乌克兰的人们的中转中心。战争开始后，一些国家驻乌克兰的外交官也从基辅转移到了这里。
 
-reference：
 
-[http://www.nbd.com.cn/articles/2022-03-28/2190178.html](http://www.nbd.com.cn/articles/2022-03-28/2190178.html)
 
-[https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
+文字版原文：[俄飞弹攻击乌克兰西部城市利沃夫](https://gnews.org/zh-hans/2247002/)
 
-* * *
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-欢迎订阅我们的GNews账号：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
