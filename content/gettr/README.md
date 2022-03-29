@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 2:04 AM (UTC)`
+
+03/28/2022 全球首播 NFSC finance 新中国联邦 | 喜财经 系列节目之 《枫叶财经》第一期
+![img](https://media.gettr.com/group41/origin/2022/03/29/02/ab05c0ba-ffeb-290c-a4de-ed435c88caf2/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/29/2022 1:11 AM (UTC)`
 
 2022.03.28 晚《新中国联邦新闻访谈》俄乌战争最新局势分析； 新中国联邦乌克兰救援不会在停战前停止； 全球粮食危机即将到来； 上海实施封锁，市民抢购囤粮； 显微镜下的辉瑞疫苗：是救人还是杀人
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 2022.03.28 早 《新中国联邦新闻》黄色救援马甲醒目标语区分中共与新中国人； 新中国联邦两周年纪念活动正式启动
 ![img](https://media.gettr.com/group48/origin/2022/03/01/13/72c339ef-f26c-5cb0-c985-b4fba74493cd/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/28/2022 10:11 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group45/origin/2022/03/28/07/6211ac39-8eb4-8fc7-1b63-3e94c50da3ae/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

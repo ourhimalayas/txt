@@ -2,30 +2,42 @@
 ---
 
 
-## 泽伦斯基表示需要对俄罗斯实施更严厉的制裁
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2248564/)
+## 有声|俄防长久未公开露面 乌克兰称其心脏病发作
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248710/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《路透社》3月28日报道，**周一，乌克兰总统泽伦斯基敦促西方国家迅速加强对俄罗斯的制裁，包括石油禁运，以阻止俄罗斯随意升级对乌克兰的制裁。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-3-e1648510541752.jpg)3月28日，乌克兰总统泽连斯基向全民发表讲话（路透社）
-据报道，在向乌克兰人发表的夜间视频讲话中泽伦斯基说，西方去年拖延制裁和入侵是错误的，**一场全面战争已经开始。如果俄罗斯使用化学武器，西方应该实施更严厉的制裁，比如对俄罗斯向欧洲供应石油的禁运。**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据国外媒体3月26日报导，乌克兰内政部长25日推特发文称，俄罗斯国防部长绍伊古自3月中旬以来就没有出席公开活动，是因为他的心脏出现了问题。
 
-报道指出，俄罗斯军方已经使用磷弹和集束弹这类化学武器，并且炮击化学生产设施和核电站。
+据悉，绍伊古已经连续12天未公开露面，直到24日才出现在俄国的电视屏幕上，显示他正坐在角落参加普京召开的视频会议，但画面仅持续了几秒钟，有些闪烁，而且没有任何声音。此前，有传言称绍伊古因进攻乌克兰出师不利受到了普京的处分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-92.jpg)
+克里姆林宫发言人培斯科夫在简报中迅速否认了绍伊古身体有恙的传闻，并称其正在忙于处理特殊军事行动。
 
-泽伦斯基表示，**鉴于俄罗斯迄今为止的侵略行动，制裁必须是有效和严肃的**。他说，如果制裁措施力度不够，或者不够有力，就会给俄罗斯领导层制造一种危险的幻觉，好像他们会被允许继续做他们现在在做的事情。**乌克兰人为此付出了生命，成千上万的生命。**
+事实上，不只绍伊古，俄武装部队总参谋长瓦列里·格拉西莫夫自3月11日之后也未再公开现身，引发了诸多猜测。俄罗斯总参谋部情报总局局长科斯秋科夫也被爆出健康状况恶化。
 
-**美国已经对俄罗斯的石油禁运。**但对俄罗斯能源依赖程度高得多的**欧洲显得犹豫不决。**欧洲最大的经济体德国表示，实施这样的禁运将引发经济衰退和大规模失业。
+分析人士称，无论在战场上还是在国内，俄罗斯高层状况频出，有可能迫使普京采取更为极端的措施。
 
-新闻来源链接：
 
-[Ukraine’s Zelenskiy says tougher Russian sanctions needed quickly | Reuters](https://www.reuters.com/world/europe/ukraines-zelenskiy-says-tougher-russian-sanctions-needed-quickly-2022-03-28/)
 
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+文字版原文：[俄防长久未公开露面 乌克兰称其心脏病发作](https://gnews.org/zh-hans/2241544/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

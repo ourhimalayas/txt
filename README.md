@@ -15,95 +15,95 @@
 
 ---
 
-### [3/27/2022 文贵直播：文贵为新中国联邦乌克兰救援行动设计的新马甲不仅把中国人和中共有效地区分开来，而且还引起梅迪卡的难民和其他志愿者的极大关注](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [大直播后记：新中国联邦两周年纪念活动正式启动](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
 
-### [加拿大自由党与新民主党达成执政协议](/content/gnews/2/README.md)
+### [加拿大知名自媒体加入盖特平台](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共国连续两年不转播奥斯卡](/content/gnews/3/README.md)
+### [视频|何谓新中国联邦的“NFSC咖啡”？](/content/gnews/3/README.md)
+ ` MOSVIDEO`
+
+### [民调指约四个香港人中有一个计划移民](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国龙头房企年报“爽约”](/content/gnews/4/README.md)
+### [3/27/2022 文贵直播：精糧战友谈采访乌克兰难民和为难民孩子送温暖的感受；新中国联邦法治基金救援让我们华人向世界展示了新的形象](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [大直播后记：新中国的土壤与空气污染治理等问题](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [3/27/2022 文贵直播：文贵为新中国联邦乌克兰救援行动设计的新马甲不仅把中国人和中共有效地区分开来，而且还引起梅迪卡的难民和其他志愿者的极大关注](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [斗牛士！乌克兰多功能反战车火箭到手](/content/gnews/8/README.md)
+ ` 蓝莲花农场`
+
+### [加拿大自由党与新民主党达成执政协议](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共国连续两年不转播奥斯卡](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国龙头房企年报“爽约”](/content/gnews/11/README.md)
  ` 加拿大温哥华英里农场`
 
-### [G7拒绝用卢布买俄天然气 德经长：普京已走投无路](/content/gnews/5/README.md)
+### [G7拒绝用卢布买俄天然气 德经长：普京已走投无路](/content/gnews/12/README.md)
  ` 蓝莲花农场`
 
-### [3/29/2022 银河快讯: 日本陆上自卫队建立 &#8220;电子作战队&#8221;，加强新的安全领域；日元暴跌，暂时达到125日元](/content/gnews/6/README.md)
+### [3/29/2022 银河快讯: 日本陆上自卫队建立 &#8220;电子作战队&#8221;，加强新的安全领域；日元暴跌，暂时达到125日元](/content/gnews/13/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [COVID-19疫苗副作用集萃（2022.3.29A）](/content/gnews/7/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.29A）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国在南太平洋的扩张引发了该地区的紧张局势](/content/gnews/8/README.md)
- ` 澳喜农场`
-
-### [日本首相岸田文雄称世界或面临战后最严重危机](/content/gnews/9/README.md)
+### [日本首相岸田文雄称世界或面临战后最严重危机](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一位MU5735遇难者家属的自述（转述）](/content/gnews/10/README.md)
+### [一位MU5735遇难者家属的自述（转述）](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [融创债券无法兑付，“白衣骑士”押上自己](/content/gnews/11/README.md)
+### [融创债券无法兑付，“白衣骑士”押上自己](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠病毒检测试剂是加插在奴隶身上的吸血管](/content/gnews/12/README.md)
+### [新冠病毒检测试剂是加插在奴隶身上的吸血管](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【G时新闻】天基移动电话网络公司将发射测试卫星](/content/gnews/13/README.md)
+### [【G时新闻】天基移动电话网络公司将发射测试卫星](/content/gnews/19/README.md)
  ` G-时新闻`
 
-### [20220327郭文贵大直播 ：中共错估了美国信仰的软实力](/content/gnews/14/README.md)
+### [20220327郭文贵大直播 ：中共错估了美国信仰的软实力](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220327郭文贵大直播 ：才旺罗布本人及其遭遇](/content/gnews/15/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|俄防长久未公开露面 乌克兰称其心脏病发作](/content/gnews/16/README.md)
+### [有声|俄防长久未公开露面 乌克兰称其心脏病发作](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|俄罗斯使用高超音速导弹袭击乌克兰军火库](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [拜登在波兰会见“勇敢的”乌克兰难民](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [圆成原创｜魁北克对乌克兰国民的人道援助有感](/content/gnews/19/README.md)
+### [圆成原创｜魁北克对乌克兰国民的人道援助有感](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [COVID-19疫苗副作用集萃（2022.3.28B）](/content/gnews/20/README.md)
+### [2022年3月27日 《文贵大直播》全文字版](/content/gnews/23/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
+
+### [COVID-19疫苗副作用集萃（2022.3.28B）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽伦斯基表示需要对俄罗斯实施更严厉的制裁](/content/gnews/21/README.md)
+### [泽伦斯基表示需要对俄罗斯实施更严厉的制裁](/content/gnews/25/README.md)
  ` 蓝莲花农场`
 
-### [今日盖特大V推荐 — 戴夫·鲁宾（Dave Rubin）](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [秘翻在线：美媒称习近平支持普京是危险的赌博](/content/gnews/23/README.md)
+### [秘翻在线：美媒称习近平支持普京是危险的赌博](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [铭记“铁链女”拷问人心的四句话，这是全社会的痛](/content/gnews/24/README.md)
+### [铭记“铁链女”拷问人心的四句话，这是全社会的痛](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月28日早](/content/gnews/25/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月28日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [援乌营地：栽下梧桐树 引来金凤凰](/content/gnews/26/README.md)
+### [援乌营地：栽下梧桐树 引来金凤凰](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [今日盖特大V推荐 — 拉塞尔·布兰德（Russell Brand）](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [灭共段子——当前疫情](/content/gnews/28/README.md)
+### [灭共段子——当前疫情](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [五月花简报（03/28/2022）](/content/gnews/29/README.md)
- ` mayflowertranslate`
-
-### [乌克兰：哈尔科夫附近的马拉罗汉村被收复](/content/gnews/30/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [乌克兰人已经成功渗透到俄罗斯军事、政治和金融领导层的许多部门，并利用这些信息](/content/gnews/31/README.md)
  ` 纽约香草山MOS02`

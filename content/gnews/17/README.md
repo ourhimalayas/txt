@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|俄罗斯使用高超音速导弹袭击乌克兰军火库
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248660/)
+## 融创债券无法兑付，“白衣骑士”押上自己
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2248828/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社报道，俄罗斯周六表示，它已使用“金扎尔”匕首高超音速导弹摧毁了乌克兰西部伊万诺-弗兰科夫斯克地区的一个大型武器库。 俄罗斯国际文传电讯社表示，这是俄罗斯自 2 月 24 日向乌克兰派遣部队以来首次部署“金扎尔”高超音速系统。
-![俄国防部：罗夫诺附近的大型武器库被高精度远程武器摧毁 - 俄罗斯卫星通讯社, 1920, 23.03.2022](https://cdn.sputniknews.cn/img/102770/93/1027709321_0:0:1920:1080_1920x0_80_0_0_d4b2eed477b546379088bea6886201f4.jpg.webp)俄罗斯卫星通讯社
-根据俄罗斯新闻机构分享的简报记录，国防部发言人科纳申科夫在简报会上说，周五被“金扎尔”系统击中的地下仓库存放着乌克兰的导弹和飞机弹药。 乌克兰空军司令部发言人周五证实，俄罗斯对弗兰科夫斯克地区的德利亚廷进行了导弹袭击，但未提供更多细节。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据俄罗斯官媒国际新闻社报道，这是俄军第一次使用这种高度机动类型的导弹。 据俄罗斯国防部称，2018年成功进行测试的“金扎尔”匕首弹道导弹可以突破所有防空系统，并击中1000公里范围内的所有目标。
+整理：li yan li
+编辑：文泓
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/OJ5AEASNT05MCUAMY4EE.png)图片来源：Nikkei Asia & 雅典娜设计组
 
 
-文字版原文：[俄罗斯使用高超音速导弹袭击乌克兰军火库](https://gnews.org/zh-hans/2244826/)
+融创债券面临展期，昔日热衷并购的“白衣骑士”孙宏斌，无奈出面给展期债券做担保，涉资40亿元。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+3月25日，融创集团发布公告称，预计不能如期兑付债券“20融创01”的本息以及“21融创03”的利息，原因是“无法筹措到足额资金”。公告中还表示，**由于融创面临阶段性资金压力，拟于近期与债券持有人就上述债券的展期及延期支付事宜进行沟通。**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+去年上半年融创斥资千亿大手笔投资拿地，下半年则高度紧缩，不仅停止拿地，还接连卖资产。直到去年底，融创通过无息借款、配股、卖贝壳股票、卖项目等多方式，持续“回血”超过200亿元。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+3月24日，一则有关“融创40亿债券即将展期”的消息开始在网络上发酵。相关消息称，因兑付资金有缺，融创中国（01918.HK）对一笔4月1日面临回售的公司债“20融创01”提出展期，并且融创中国董事会主席孙宏斌将为这笔债券提供无限连带责任担保。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+3月25日，融创方面表示，正积极拟定债务展期的相关方案，**计划提供融创中国董事会主席孙宏斌的无限连带责任保证担保等作为增信措施。**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+融创在最新公告声称，绝不会发生“逃废债”的情形，尽最大可能保障债券持有人的权益。孙宏斌作为盗国贼的白手套，其最后的命运必然是与中共一起陪葬。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+新闻链接：[融创“缺血”，孙宏斌押上自己\_](https://finance.sina.com.cn/chanjing/dckb/2022-03-28/doc-imcwipii0937904.shtml)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
