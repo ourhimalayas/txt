@@ -2,30 +2,33 @@
 ---
 
 
-## 乌军总参谋部：俄军战力被削弱迷失方向与大部队隔绝
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2249622/)
+## 视频|俄乌战争对乌克兰儿童的伤害【中英文非脱敏】
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2249706/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄罗斯入侵乌克兰，俄军在乌克兰各地战线进展近乎停滞，乌克兰武装部队总参谋部於当地时间28日深夜发文表示，乌军持续在东部进行防御作战，而俄军正逐渐被乌军削弱，且俄军迷失方向，大部分俄军都和主力部队及后勤单位隔绝。
+制作团队：澳喜要闻
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phpPR7o0H.jpg)图片来源：欧新社
+撰稿人：澳喜要闻
 
-乌克兰武装部队总参谋部表示，目前乌军持续在东部各战线进行防御，持续死守马立波（Mariupol）、巩固防御圈，在切尔尼戈夫（Chernihiv）地区也持续防御，对俄军的推进行动执行威慑。
+视频剪辑：澳喜要闻
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+【文案内容】
+Russia’s invasion of Ukraine has caused the number of people fleeing the country to exceed 3 million, of whom about 1.4 million are children.
+According to UNICEF, half of the children have left Ukraine since the Russian invasion on Feb. 24.
+As of the 28th day of the Russian invasion, 121 children have died and 167 have been injured.
+It’s unbelievable that we haven’t seen this before, and there’s almost no way to deal with it,” a UNICEF spokesperson said.
+俄羅斯入侵烏克蘭，導致烏克蘭逃難的人數突破300萬人，其中約有140萬是兒童。
+聯合國兒童基金會指出，自從俄羅斯2月24日入侵以來，半數兒童已離開了烏克蘭。
+截至俄罗斯侵略第28天，有121名儿童死亡、167名儿童受伤。
+聯合國兒童基金會發言人指出：「令人難以置信，我們以前沒有見過這個情況，而這幾乎沒有辦法去應對。」
 
-在基辅週边郊区城镇，乌军稳定局势、持续防御，并伺机找寻机会进行反击。乌克兰武装部队总参谋部强调，战斗到此时，俄军战力已被削弱，他们也迷失方向，许多俄军和主力部队及后勤单位断了联系。
+审核/编辑/发稿：qiutian（邱甜）
 
-简评：俄军战力被削弱迷失方向与大部队隔绝，此时正是投降的好机会，据未考证传言俄军开着坦克投降乌克兰可得1万美金奖励。投降乌军，握手言和，坚持正义，共同消灭独裁者，如此美事俄军还不抓紧，后勤联系都断了，别再为普京卖命了！
-
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3875020](https://news.ltn.com.tw/news/world/breakingnews/3875020)
-
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
