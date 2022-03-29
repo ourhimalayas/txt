@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-29
+![img](https://media.gettr.com/group39/origin/2022/03/29/21/e58fd5f5-b5d8-078b-11d0-d4fd7948db41/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/29/2022 8:47 PM (UTC)`
 
 2022.03.29 NFSC health 新中国联邦 | 喜健康系列节目 第3期 之《CCP解剖学》
@@ -149,13 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group22/origin/2022/03/29/04/33f24bf7-5abb-039d-1ab5-7d271660095c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 4:59 AM (UTC)`
-
-3/27/2022 Miles Guo: The image shown by the fellow fighters in the Ukraine rescue operation has deeply moved many overseas Chinese, and every single action of the fellow fighters at the front line can influence how the world views the Chinese people. The key point of the vest I designed is to tell the world that we are the new Chinese who are dedicated to taking down the Chinese Communist Party!<br/><br/><br/>3/27/2022 文贵直播: 战友们在乌克兰救援行动中展现出的形象让海外华人感触良多，前线战友的一举一动都影响着世界对华人的看法；文贵设计的马甲之重点在于告诉全世界，我们是推翻中国共产党的新中国人！<br/>
-![img](https://media.gettr.com/group13/getter/2022/03/29/04/0a216207-3e60-3726-e95c-2b6f23dc07cd/out.jpg)
 
 ---
 
