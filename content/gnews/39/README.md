@@ -2,41 +2,31 @@
 ---
 
 
-## 澳大利亚将增加国防和安全方面的开支
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2249942/)
+## 财经｜美国将就中共太阳能板制造商逃避关税一案展开调查
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2250102/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文｜CP**
+**发布时间｜29/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/美國將就中共太陽能板製造商逃避關稅一案展開調查.jpg)
 
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123111042_opera.jpg)图片来源：GETTY IMAGES
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-根据U.S. NEWS 3月28日报道，澳大利亚财政部长乔什·弗莱登伯格 （Josh Frydenberg）在周二公布针对即将举行的选举所制定的预算之前表示，澳大利亚政府将增加国防和国家安全方面的支出，同时减少家庭开支。
+美国商务部官员周一（28日）表示，他们将启动一项针对中共太阳能电池板制造商是否逃避关税的调查，以回应加州太阳能板生产商Auxin Solar早前向商务部提出的指控。
 
-随着俄罗斯与乌克兰开战，中共国的军队变得更加强硬，弗莱登伯格预示着“对国防和国家安全的进一步投资反映了我们现在面临的挑战”。
+Auxin Solar发现在马来西亚、泰国、越南和柬埔寨营运的部份太阳能企业，是由中共大型太阳能板制造商所成立，它们将零件运往这4个东南亚国家进行组装，然后将制成品出口到美国，以此避开向美国缴付“反补贴和反倾销关税”。
 
-从7月1日开始的财政年度的预算将提前在5月21日大选之前公布，总理科特·莫里森 (Scott Morrison)的保守派政府将在大选中寻求第四个三年任期。
+据商务部在网站上公开的一份备忘录显示，Auxin提供的证据表明，在这四个国家运营的太阳能公司是中共一间大型生产商的子公司，如果证实的确是在中国制造，那他们必须缴付美国的反补贴和反倾销税。备忘录还补充指，Auxin明确列示了指控所需的所有要素。
 
-随着澳大利亚和世界许多地方的通货膨胀率上升，部分原因是油价上涨，预计政府将减少每升44.2澳分（33.1美分）的汽油税（每加仑1.25美元）。
+当局表示，调查将以全国范围内的问询形式进行，要求目标国家的公司提供有关其太阳能电池和组件生产以及向美国出口的资讯。商务部有150天时间进行调查以及发布初步结果。最终决定将在300天之内做出，亦有可能延长65天。
 
-“今晚，我们将以一种临时的、有针对性的、负责任的方式，提供生活费用的减免，”弗莱登伯格说。
+Auxin执行长Mamun Rashid在给媒体的一份声明中表示：“多年来，中共太阳能生产商不仅一直拒绝在美国对其产品进行公平定价，而且还竭尽全力削弱美国制造商和工人，并在一些不履行义务的国家设立子公司以规避责任。 我们感谢商务官员认识到调查这种普遍存在的倾销行为的必要性，以及它如何继续伤害美国太阳能生产商。 公平贸易和执行我们的贸易法对于重建美国太阳能供应链来说至关重要。”
 
-澳大利亚石油协会表示，上周全国汽油平均价格下降了5.8澳分（4.3美分），至每升2.06.7澳元（1.54美元）（每加仑5.86美元）。
+**來源｜**[**TheHill**](https://thehill.com/policy/energy-environment/600072-feds-to-probe-allegations-asian-solar-manufacturers-skirted-tariffs)
 
-弗莱登伯格说，他还将披露“预算底线的实质性改善”。
+* * *
 
-经济学家预计，本财政年度的赤字将在800亿澳元（600亿美元）至700亿澳元（520亿美元）之间，而澳大利亚政府在12月预测的缺口为992亿澳元（743亿美元）。
-
-新闻来源：[Australia to Increase Spending on Defense and Security](https://www.usnews.com/news/business/articles/2022-03-28/australia-to-increase-spending-on-defense-and-security)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

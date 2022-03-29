@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 11:56 AM (UTC)`
+
+ 3月29号：尊敬的战友们好！通过这个最真实的短暂的．摄像机没被坏掉的庭审视频，真正能体会到中国共产党治理国家的依法治国的真实面目．比地狱还黑暗。
+![img](https://media.gettr.com/group34/getter/2022/03/29/11/3a9aa51c-1c59-08c4-e1ec-1701fb565e2f/out.jpg)
+
+---
+
 `@miles 3/29/2022 10:03 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月28日第24天当日救援统计：<br/>Medyka救援站接待：约90人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7655人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 24 - Date: March 28, 2022 :<br/>Medyka Rescue Station Reception: about 90 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7655 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 3/27/2022 Miles Guo: The new vest that I designed for the NFSC & ROLF Ukraine rescue operation has not only effectively distinguished the Chinese from the CCP, but also has attracted a great deal of attention from the refugees and other volunteers in Medyka. Fellow fighters wearing the vest have built up the image of the citizens of the New Federal State of China on the international stage. How powerful their back view is!<br/><br/><br/>3/27/2022 文贵直播：文贵为新中国联邦乌克兰救援行动设计的新马甲不仅把中国人和中共有效地区分开来，而且还引起梅迪卡的难民和其他志愿者的极大关注；穿马甲的战友们在世界舞台上建立了新中国联邦人的形象，他们的背影是多么的有力！<br/>
 ![img](https://media.gettr.com/group49/getter/2022/03/28/22/634840cd-e462-1317-ee1a-e70c7cef41a6/out.jpg)
-
----
-
-`@miles 3/28/2022 10:25 PM (UTC)`
-
- 3月28号：衷心地感谢所有在乌克兰战场前线兄弟姐妹们的付出和辛苦。你们今天做的一切！都是在拯救生命和拯救华人在世界上的形象和我们孩子的未来。
-![img](https://media.gettr.com/group40/getter/2022/03/28/22/d73fff0e-0fb2-7d17-ed36-d5e181cfae47/out.jpg)
 
 ---
 

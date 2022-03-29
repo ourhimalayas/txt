@@ -2,23 +2,38 @@
 ---
 
 
-## 秘翻在线：马斯克接种疫苗仍二度确诊
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2251395/)
+## 勇气智慧来自开悟
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2251456/)
 
-**编译：明澈**
+作者：香草山医疗组 击穿ccp——文华
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3646.png)
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-29-182834.jpg)
-综合外媒3月29日报道，特斯拉首席执行官马斯克于2020年11月第一次确诊过中共病毒（Covid-19）感染，不幸的是，今天他在推特发文，表示自己再度出现轻微的感染症状。虽然他并未表露是否是经由快筛或PCR检测确定阳性，但他在推文中以中共病毒是特修斯的病毒，暗示自己或许是中了中共病毒（Covid-19）变种。
 
-特修斯的说法，应是出于特修斯之船，即特修斯悖论。该悖论于1世纪时的希腊作家普鲁塔克提出，借质疑特修斯船上的木头逐渐被替换，直到所有的木头都不是原来的木头，那这艘船还是原来的那艘船吗？来探讨“物体的构成要素被置换后，它依旧还是原来的物体吗？”这一问题。
+人的敌人只有一个就是自己，降服了自己就征服了整个世界。自己是最亲的人也是最痛苦的人，每个人都在寻找开悟之道—与自己相处之道。
 
-报导指出，马斯克曾在2021年12月的一次采访中向《时代》杂志透露，他和他所有符合条件的孩子们都已经接种了中共病毒（Covid-9）疫苗，但马斯克明确表示，自己反对非自愿接种疫苗者被强制要求接种疫苗。更表示接种疫苗是一件承担风险的事，人们一直在冒险。此外，他还呼吁人们反思，美国自由是否已经遭到侵蚀。
 
-马斯克认为科学毫不含糊，对疫苗是经过科学研究过的大概深信不疑，而在这次即将爆发的疫苗危机中，也许人们最终明白“质疑”才是科学最基本的精神。希望他早日康复！
 
-**新闻来源**: 【[1](https://twitter.com/elonmusk/status/1508356357967122434?cxt=HHwWhMCo9bWH4e4pAAAA)】【[2](https://www.newsmax.com/newsfront/business-finance-elon-musk-inventors/2022/03/28/id/1063254/)】【[3](https://www.cnbc.com/2022/03/28/elon-musk-says-he-has-covid-as-tesla-shanghai-faces-health-restrictions.html)】【[4](https://www.theguardian.com/technology/2022/mar/28/elon-musk-covid-19-positive-test-second-time)】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5FDAAA36-9BA5-4874-B4D7-47593C5C1411.jpeg)
 
+开悟是痛苦的终结，之前以为只有自己有这种说不出的痛苦——生活在满足与不满，焦虑与担忧，失落与希望之中。慢慢看过很多大师与我有同样的痛苦，打坐的时候也思绪乱飞，也听到很多诉说，才知道追求生命平静与喜悦是每一个人的理想。
+
+遇见七哥才找到了比较明确的方向，看到了自己达到目标后的具体形象—绝对的临在状态，绝对的不受名利牵绊，绝对的来自内心的宁静和喜悦，还有绝对的掌控全局，如果做到这一点，你才会拥有更多，但是前提是不能以拥有更多的心态去做这一切。
+
+祝愿每一位战友早日开悟，达到人生最高境界，开启不受物质与精神束缚的状态，真正像鸟儿一样在天空中自由飞翔。如果掉下来那也是天意。我们的痛苦和失败都会换来后辈的成功经验，人是家族的一份子，每一个人都是这个生态链的一环，今天的失败会化作子女养分，哺育她们早日开启智慧与勇气大门。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/CC87BF4E-BA2A-4226-8DB8-A1B398482B21.jpeg)
+
+**编辑**/**校正**/**发稿：**玫瑰圓
+
+**更多资讯，更多关注**
+[**纽约香草山农场**GTV-**香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**GTV-MOS TALK **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/31410D40-4BE4-46DD-B313-09ED1F809641.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
