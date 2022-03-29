@@ -2,30 +2,45 @@
 ---
 
 
-## 樱花FM|港府昨日大量采购新冠口服药 今日力推内地中医
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2254503/)
+## 全球和澳洲疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254546/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3734.png)
-林郑月娥今日表示，已向中共提出中医专家协助抗疫请求。她认为中医抗疫适合香港，相信中医专家队对本港抗疫有极大帮助。医管局行政总裁高拔升称，中医药对控制新冠病毒引发的病症有明显帮助。
+#### **整理：枳实**
+**美工：精灵蓝**
 
-林郑月娥引述中共国工程院院士张伯礼的观点，并指出香港应充分借鉴内地经验，以中医药为抗疫开辟新路，进而提出中医援港队对抗疫有极大帮助。目前，香港新冠疫苗的注射率已超过九成，但完全无助于防止新冠病毒感染。现今已超过四百万人被感染，同时官方公布的死亡人数为六千人，但爆料革命郭文贵先生揭示香港真实的死亡数字是官方公布的五倍。这也对应了早前医管局在殓房空地外加设了50个大型冻柜存放遗体的事实。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-13.png)图片：雅典娜农场设计组 精灵蓝
 
-虽然目前没有一宗死亡个案被认定与新冠疫苗有关，但如此恐怖的死亡数字和其他病症的爆发，加上各国政府也开始无意为药厂背书，甩锅的迹象越来越浓，港府自知新冠疫苗后继无力恐被殃及，近日开始大量引入新冠口服药。而港府的专家也纷纷出动宣传口服药的治疗效果。
 
-不过，郭文贵先生早就警告过世界，新冠口服药的毒性远胜于其疗效。新中国联邦的医生分析了口服药的成分，认定其对新冠病毒感染的治疗远不及伊维菌素和青蒿素等常规药物，而且其毒性非常强。
+雅典娜疫情更新（2022年 3月29日）
 
-特首林郑月娥在昨日的记者会上宣布已购置了足够的新冠口服药，要求医管局放开手脚让更多感染者使用。但当日稍后的新闻中出现中共院士向港府提出采用内地中医药抗疫的消息。今日特首和港府发言人分别回应此事，称已向中共提出引入内地中医专家的需求，并且已将中共提供的三款中成药派发给市民，也提供了中医遥距诊病，同时还在加大力度生产符合本港气候的防疫中药制剂。
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-据悉，立法会议员在此次疫情初期已在立法会上提出要港府重视中医治疗，但港府一味追求新冠疫苗的注射率，完全无视中共的意图，直至香港医疗系统崩溃。中共借机向香港推销中成药，分别是「连花清瘟胶囊」、「金花清感颗粒」及「藿香正气丸／片」。本港中医师也在媒体上力挺中成药的疗效，但港府的专家却出来泼凉水，提醒市民这些中成药的疗效并无理据。在疫情严峻的日子，港人缺乏权威而正确的预防和治疗指引，许多人慌不择路到药店抢购各种药物，包括进口的各种中成药，以至于有市民的订单需要一个月才能到货。而那些囤积在港府仓库的中成药被港府以进口药物审批为由不允许派发，引来建制议员的炮轰。最近港府一直在拖延中共要求的全民强检，索性大举分发检测包，认可全民自行检测。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
 
-港府在抗疫的道路上与中共有渐行渐远的趋势，虽然港府选择的另一条路依旧是邪恶，但也印证了中共自顾不暇的现状。在囊中羞涩内外交困下正在失去控制香港的能力，但这并不是香港的曙光，反而因此会酿成更大的人道灾难。因为中共政权在崩塌之际必将做出更加丧心病狂的行动。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片19.png)图片：雅典娜农场设计组 精灵蓝
 
-文字版原文：[港府昨日大量采购新冠口服药 今日力推内地中医](https://gnews.org/zh-hans/2222326/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片20.png)图片：雅典娜农场设计组 精灵蓝
+
+
+[2022年3月29日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[ovidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

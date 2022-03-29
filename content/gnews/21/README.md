@@ -2,18 +2,22 @@
 ---
 
 
-## 灭共会让病毒和邪恶轴心国随之消亡
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253699/)
+## 中华河山将重新焕发生机
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253700/)
 
-作者：纽约磐石农场—在远方
+作者：香草山教育部-飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在3月28日的大直播中，郭文贵先生表示，墙内最大的危机就是粮食危机，而消灭共产党则会让中共病毒，以及俄罗斯、朝鲜、伊朗等邪恶轴心政权消亡。
+在3月27日的文贵大直播中，一位战友提到，在中共窃取中国政权70年后，中华大地山河破碎，土壤污染、空气污染、水污染异常严重。推翻共产党之后，环境治理问题恐怕将是一个棘手的问题。
 
-郭先生指出，国内最大危机第一是粮食紧缺，第二是中共病毒将会重复连续扩散。因为病毒被中共释放以后就不可能再受控制，这就是轮回报应。共产党的清零政策和所谓灭疫的严酷政治手段，会让许多老百姓死无葬身之地，这也是促使中共发明气化尸体方法的原因。随着5月分的疫苗灾难到来，世界上所有国家的疫情复发，都是因为疫苗所致。在此情况下，就更加凸显储备粮食的重要性。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-94.jpg)
-疫苗次生灾难会长达两到三年，但当中共被消灭的时候，疫情也会消失，这是天意使然。同时，灭共之后普京和金正恩等人，以及伊朗的独裁政府都会随之被消灭。郭先生警告说，因为大量的国人注射了两到三针疫苗，由此而引发的灾难和病乱所导致的最坏时刻还没有到来。
+郭先生表示对此深有体会，甚至一度感到绝望和异常痛心。最近，在参加了相关的会议和讨论、并从一些专家那里听取了很多建议之后，郭先生重新燃起了信心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-95.jpg)
+有一位肖邦家族的人士告诉郭先生，中国现在有很好的办法解决污染问题，最关键的是要解决化肥使用和中国人的粮食问题，其中，以色列的科学、自然的种植方法就是一个很好的选择。
 
-参考链接：[国内最大的危机就是粮食短缺](https://www.gettr.com/post/p12aor1831c)
+盖特总裁杰森·米勒和郭先生的一个好朋友则表示，他可以无偿提供有效的建议和方法来帮助中国人。但要求一件事情，此方法他只委托给新中国联邦来公布。体制内的战友也对这些方法表示了高度赞同。
+
+获得这些信息后，郭先生表示，他对解决国内的环境问题越来越有信心。
+
+参考链接：[中共70年的统治把中国美丽的山河损毁殆尽！](https://gettr.com/post/p12a8dd4a3e)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
@@ -21,8 +25,6 @@
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 
