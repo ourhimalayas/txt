@@ -2,89 +2,29 @@
 ---
 
 
-## 玛莎·布莱克本:习近平不仅在密切关注普京对乌克兰的入侵,也在密切关注美国的反应
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2249473/)
+## 俄乌之战一个月后西方文明国家的反应
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/2249599/)
 
-**参议员玛莎·布莱克本： **
-[#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 不仅在密切关注普京对乌克兰的入侵，也在密切关注美国的反应。 【转华尔街日报：北京从俄入侵乌克兰中获益 非西方国家对冲他们的赌注，证实了中共国的地缘政治假设。】
+撰稿：澳喜cindy
 
+俄罗斯入侵乌克兰已经一个多月了。俄军士兵死亡人数约15000人，将军5位。乌克兰老百姓死伤惨重，无数民房、医院、核电厂等设施都遭到俄军的炮弹袭击。成千上万的女人、孩子、老人被世界多个NGO救援组织转移到了邻国波兰，然后再安置他们到能接收他们长时间居住的地方。
 
+西方文明国家，在这场俄乌战争开始后，英国反应最及时。英国国防大臣本·华莱士说：英国将在波兰部署“天剑”防空系统，同时派遣100名英军保卫波兰领空。
+视频来自网络
+英国首相鲍里斯·约翰逊认为：对乌克兰的野蛮入侵源于普京惧怕乌克兰民主。这正验证了文贵先生前几天大直播时告诉我们的：普京攻打乌克兰的真实原因就是怕乌克兰这个邻国的民主之风吹到俄罗斯。
+视频来自网络
+英国首相说：由39个国家进行投票，决定将普京的行动提交给国际刑事法院，首席检察官将展开调查，以确保普京因犯下的罪行而受到惩罚。
+视频来自网络
+除了声援之外，英国首相还再次宣布增加1.75亿英镑对乌克兰的经济援助，总资助达4亿英镑。
+视频来自网络
+美国国务卿布林肯发表声明，宣布根据目前掌握的信息，美国政府评估认为俄罗斯军队正在乌克兰犯下战争罪行。
 
-> Xi Jinping is closely watching not only Putin’s invasion of Ukraine but also the U.S. response.[https://t.co/1VaZ8j8sxa](https://t.co/1VaZ8j8sxa)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 28, 2022](https://twitter.com/MarshaBlackburn/status/1508472468146692108?ref_src=twsrc%5Etfw)
+全球刑事司法巡回大使收集、分析和记录俄罗斯在乌克兰犯下的潜在战争罪行，看到了俄罗斯军队在乌克兰对平民和民用场所进行的广泛而无情攻击的可怕图片和描述，及联合国和其他可信的观察员已确认数千名平民死亡。经过审查得到的结论最终送交国际法庭来确定个人刑事责任。
 
+我们新中国联邦人在俄罗斯入侵乌克兰2天后就斥巨资立即组织了庞大的救援团队到乌克兰前线，在波兰与乌克兰接壤的地方，搭起了温暖、有照明、内有咖啡、各种零食的四个大帐篷。截止到3月26日，新中国联邦救援站接待了7534人，巴士救援2009人，巴士发车39次。使无辜的乌克兰民众得到了贴心的照顾与呵护，使他们度过了人生最艰难的黑暗时刻。
 
-
-**众议员迈克·加拉格尔新闻办公室： **
-众议员加拉格尔对记者[@JerryDunleavy](https://twitter.com/JerryDunleavy) 说：“我们需要意识到这一现实，并明确 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对乌克兰进行任何具体干预的后果。” 在这里阅读更多： 【转华盛顿监察员网文章：共和党敦促拜登在俄罗斯问题上向中共国施压】
-
-
-
-> Rep. Gallagher to [@JerryDunleavy](https://twitter.com/JerryDunleavy?ref_src=twsrc%5Etfw): "We need to wake up to that reality and make the consequences for any concrete Chinese intervention in Ukraine clear.”
-> 
-> Read more here: [https://t.co/KHypzc4YGS](https://t.co/KHypzc4YGS)
-> — Rep. Gallagher Press Office (@RepGallagher) [March 28, 2022](https://twitter.com/RepGallagher/status/1508475296248479747?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆.科顿：** 
-迪士尼公开感谢在新疆经营集中营的 #中共 官员。 现在，迪士尼正在向家长们讲什么是适合教授幼儿园儿童？ 真是个笑话！
-
-
-
-> Disney publicly thanked the Chinese Communist Party officials running concentration camps in Xinjiang. 
-> 
-> And now Disney is lecturing parents about what's appropriate to teach kindergarteners? 
-> 
-> What a joke.
-> — Tom Cotton (@TomCottonAR) [March 28, 2022](https://twitter.com/TomCottonAR/status/1508527280762638341?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克.沃尔茨： **
-贝莱德 (BlackRock) 和拉里芬克 (Larry Fink) 在与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 和俄罗斯达成甜心交易的同时，向国内的美国公司兜售他们的“清醒”议程。 在[@ConsumersFirst](https://twitter.com/ConsumersFirst) 的这段精彩视频中了解芬克的虚伪程度
-
-
-
-> BlackRock and Larry Fink preach their 'woke' agenda to American companies here at home while making sweetheart deals with the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) & Russia.
-> 
-> See the full extent of Fink’s hypocrisy in this great video by [@ConsumersFirst](https://twitter.com/ConsumersFirst?ref_src=twsrc%5Etfw) 👇 [pic.twitter.com/BwVnZqqsrW](https://t.co/BwVnZqqsrW)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508547952939347980?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥： **
-参议员卢比奥敦促在中兴通讯的缓刑期结束后，对其 [@ZTEPress](https://twitter.com/ZTEPress)采取行动。 【附全文连接：美国参议员马可·卢比奥致函美国商务部部长吉娜·雷蒙多和司法部长梅里克·加兰，呼吁对 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 部分拥有的中国科技公司中兴通讯采取法律行动。】
-
-
-
-> Sen. Rubio pushed for action against [@ZTEPress](https://twitter.com/ZTEPress?ref_src=twsrc%5Etfw) after their probationary period ends.[https://t.co/eED7M9F94x](https://t.co/eED7M9F94x)
-> — Senator Rubio Press (@SenRubioPress) [March 29, 2022](https://twitter.com/SenRubioPress/status/1508598923505590275?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥：**
-万一您错过了：参议员卢比奥正在领导共和党在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 问题上采取更具战斗性的立场，纽约时报[@nytimes](https://twitter.com/nytimes)写道。 阅读更多【附纽约时报文章：像参议员马可·卢比奥这样的共和党人已经将反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 及其领导人 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 作为其外交政策的核心】
-
-
-
-> 🚨 ICYMI: Senator Rubio is leading the GOP push for a more combative stance on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), writes [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw).
-> 
-> Read more ⬇️[https://t.co/gE2Lpx2Fdj](https://t.co/gE2Lpx2Fdj)
-> — Senator Rubio Press (@SenRubioPress) [March 28, 2022](https://twitter.com/SenRubioPress/status/1508593603412729858?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：** 
-就在一个多月前，普京总统发动了他的侵略战争。我们对乌克兰的承诺是牢不可破的。我们已经采取行动制裁俄罗斯政府官员，向乌克兰提供援助，并与我们的伙伴合作，敦促结束这场战争。
-
-
-
-> Just over one month ago, President Putin launched his war of aggression. Our commitment to Ukraine is ironclad. We have taken actions to sanction Russian government officials, deliver assistance to Ukraine, and collaborate with our partners to press for an end to this war. [pic.twitter.com/26vr6lBFCH](https://t.co/26vr6lBFCH)
-> — Secretary Antony Blinken (@SecBlinken) [March 29, 2022](https://twitter.com/SecBlinken/status/1508600297286897665?ref_src=twsrc%5Etfw)
-
-
-
+*发稿：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

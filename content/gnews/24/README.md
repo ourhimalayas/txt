@@ -2,29 +2,39 @@
 ---
 
 
-## 有声｜为保对俄制裁有效 日本收紧加密货币监管
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249860/)
+## 美国正在调查中共亚洲工厂是否在逃避太阳能关税
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2249866/)
 
-By:**秘翻新闻**
+翻译/整理：波士顿五月花 Vicky
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-29-下午12.27.53.png)图片来源：互联网
+美国正在对中共国太阳能设备制造商是否通过将部件送到其他亚洲国家进行组装，然后再将成品运往美国而逃避关税进行调查。
 
-**2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-67.png)图片来源 Coin telegraph
-[据Coin telegraph 3月28日报道，一位日本官员透露，日本计划修改其《外汇和对外贸易法》，将加密货币交易所纳入管理银行的法律范围内。以防止受制裁国家使用数字资产规避制裁。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+美国商务部是根据加州小型面板制造商Auxin Solar Inc.的要求展开调查，这标志着可能持续一年的调查迈出了正式的第一步，并最终扩大对进口产品的关税。
 
-[日本内阁官房长官松野博和在新闻发布会上表示，政府正计划提出一项法案，修改外汇法，将加密货币交易所包括在内。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+此举对在美国生产太阳能设备的少数公司来说是一个潜在的福音，但对依赖来自亚洲的低成本电池板的美国开发商来说却是一个挫折。
 
-[该国新当选的首相岸田文雄也支持拟议的修订，并呼吁与西方盟友协调行动，以执行新的法律。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+美国最大的制造商First Solar Inc.在美国交易中涨幅高达7.7%。与此同时，制造商阿特斯太阳能公司下跌多达6.9%。
 
-[根据修订后的外汇法，与银行一样，加密货币交易所将被要求验证和标记与受制裁的俄罗斯个人或团体相关的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+Auxin Solar在2月份提出了调查请求，声称马来西亚、越南、泰国和柬埔寨的制造商使用来自中国的部件并规避关税。据美国清洁能源协会称，这四个国家占美国组件供应量的80%以上。
 
-[该修正案将强制加密货币交易所阻止各种受制裁的俄罗斯官员、寡头、银行和其他机构的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+有争议的关税可以追溯到2012年。
 
-秘翻新闻 自由信仰编译报道
+一些太阳能制造业的倡导者认为，需要将严厉的贸易执法和税收优惠相结合，以帮助促进美国境内清洁能源设备的生产。
 
-发布 : 恩典
+“繁荣美国联盟主席Zach Mottl在一份电子邮件声明中说：”拜登政府已经选择站在美国公司和工人一边。
+
+重大影响
+
+商务部表示，其调查将采取全国性调查的形式，该机构要求目标国家的公司提供有关其太阳能电池和组件生产以及向美国发货的信息。
+
+调查将按计划缓慢进行，可能会延长该行业的不确定性。商务部有150天的时间来调查和发布其初步调查结果。最终裁定将在300天内完成，并有可能延长65天。
+
+参考链接：[US to probe if Asian factories are evading solar tariffs](https://ajot.com/news/u.s-to-probe-if-asian-factories-are-evading-solar-tariffs)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

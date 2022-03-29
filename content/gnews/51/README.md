@@ -2,35 +2,36 @@
 ---
 
 
-## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
+## 乌克兰人在中共国社交媒体展开攻势并传播真实战况
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2246461/)
 
-图文/zhong｜28/3/2022
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-## 美国“国家民主基金会”访台
+**撰稿：日本东京方舟农场  子辰**
 
-台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
+近期，乌克兰军队在前线奋勇抵抗俄军的入侵，乌克兰民众也在网络打起攻击之战。那些会说普通话的乌克兰人正在中共国社交媒体平台上展开攻势，张贴有关俄罗斯入侵的真实战况，以抵制中共大外宣那些歪曲事实的报道。
 
+勇敢的乌克兰人将战争的最新进展翻译成中文，包括有关人员伤亡和分析的信息，并将其发布在微信和微博等流行社交媒体网络的账户上。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-2-11.jpg)（图片来自大纪元 ）
 
-> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
-> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
+援引《南华早报》报导，乌克兰网红玛莎（Masha）加入了在中共国社交媒体的信息战。玛莎一直在发布有关她的家乡顿涅茨克东部地区科斯蒂安蒂尼夫卡（Kostiantynivka）局势的视频。玛莎在微博、TikTok和西瓜视频用流利的中文说，“在我的家乡，当防空警报响起时，人们需要躲在地下避难所。”而且“没有足够的面包，所有银行的现金都光了，人们没有现金就没法购买食物。看起来这个地方正在悄然消亡。”据悉，玛莎曾在中共国学习了九个月。目前 她的“战争生活”视频已获得超过100万的观看次数，她现在拥有超过60万粉丝。
 
+另有42岁的作家、音乐家和艺术家伊万·塞马修克（Ivan Semasiuk）正在撰写文章和纪录，并以中文和其它语言发布在全球各地的社交媒体平台上，以解释乌克兰和俄罗斯的历史。
 
+32岁的乌克兰人罗曼·希夫连科（Roman Khivrenko）表示，中共国社交媒体平台和官方媒体提供的俄乌战信息受到俄罗斯的严重影响。他说，“我们想打破宣传墙，向中国人展示实际情况。”
 
-威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
+此前，中共一直拒绝谴责俄罗斯在乌克兰的行动，也始终未将俄罗斯对乌克兰的攻击定义为入侵。 西方越来越担忧北京可以帮助莫斯科绕过制裁并向俄罗斯提供军事装备。而且，自俄罗斯入侵乌克兰以来，俄罗斯已向中共寻求包括无人机在内的军事装备和支持。此外，俄罗斯还要求中共提供额外的经济援助。
 
-外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
+中共官媒一直将俄罗斯的战争描述为反法西斯主义的行为，这些虚假信息更被中共利用官媒，加大了对俄罗斯的宣传，同时中共大力审查那些反战和支持乌克兰的言论。据《纽约时报》说，这让中共国网民看到的是一场截然不同的战争，这种做法正在让中共国公众远离事实，同时播下混乱的种子。
 
-## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
+浏览外国的社交媒体听到的是铺天盖地的反战声音，而中共国网络上的民意看上去几乎是一边倒地支持普京。
 
-[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
+此外，有分析人士表示，俄罗斯的袭击加强了乌克兰的民族认同感，并促使人们以不同的方式保卫自己的国家，而俄罗斯普京明显低估了这些民族认同感。
 
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
+参考链接：
+[https://www.epochtimes.com/gb/22/3/27/n13676832.htm](https://www.epochtimes.com/gb/22/3/27/n13676832.htm)
 
-* * *
-
-**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
+总编：青城道姑
+校对发布：文曦
 
  
 

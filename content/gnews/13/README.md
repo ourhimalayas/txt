@@ -2,29 +2,30 @@
 ---
 
 
-## 有声｜英国下令审查公共部门俄罗斯能源合同
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250043/)
+## 俄罗斯遭制裁！富豪生活天堂掉地狱
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2250088/)
 
-By:**秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯进攻乌克兰，西方各国为遏止普京的疯狂行动纷纷祭出经济制裁，这连带也影响到不少俄国富豪的生活。一位住在英国的俄罗斯富豪弗里德曼（Mikhail Fridman）透露，他的资金全被冻结，而且基本上只能待在家中，行同「软禁」。
 
-**2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-53.png)图片来源 路透社
-[路透社 3月28日报道，英国周一指示公共部门将审查与俄罗斯公司签订的能源和其他合同，建议考虑更换供应商，并指出现有的能源协议可能使俄罗斯政府受益。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220329131954212.jpg)图片来源：@jonnytickle推特
 
-[与盟国一起，英国正寻求通过广泛制裁来削弱俄罗斯经济，以应阻止其入侵乌克兰。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+综合外媒报导，俄罗斯最大民营银行阿尔法银行（Alfa Bank）的创办人弗里德曼，身价高达93亿英镑，这10年来他几乎都待在英国。弗里德曼与公司都被英国列入制裁黑名单、资金被冻结，他向媒体抱怨：「信用卡全部都不能刷！」，英国政府仅批给他小额零用金，让他可以解决生活需求。
 
-[英国内阁大臣巴克莱在一份声明中说，公共资金不应该资助普京的战争机器，我们要求公共部门的医院、理事会和其他组织紧急考虑所有可以进一步切断与俄罗斯商业联系的方法。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+这些零用金只足以让他买菜回家自己煮、或者是外带平民食物，但若需要更高的花费，则完全被禁止，也无法到高级餐馆用餐。弗里德曼称，现在他的活动范围只能在家中，等于如同被软禁一样，可说是「天堂掉入地狱」。
 
-[英国政府已宣布将在今年年底前逐步停止从俄罗斯进口石油，并正在制定一项新的能源战略，以结束对俄罗斯天然气的依赖，目前俄罗斯天然气在英国的供应中占比不到 4%。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+简评：富豪生活从天堂到地狱，相对于乌克兰受难的民众来说，这种“地狱生活”对他们来说已经是天堂了。中共作为幕后黑手，中共的病毒与普京的狂妄改变了整个世界的生活，我们每一个人都有原罪的，之前放纵邪恶的野蛮成长，如今可谓自食其果。普习灭，战火止，独裁倒，天下安！没有退路，只有一条路：灭共！
 
-[最新的采购建议指南建议：在终止现有能源供应合同之前，须征求能源专家或相关公共部门采购组织的建议，以确保替代供应来源可用且负担得起。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+新闻来源：[yahoo](https://tw.news.yahoo.com/%E4%BF%84%E7%BE%85%E6%96%AF%E9%81%AD%E7%B6%93%E6%BF%9F%E5%88%B6%E8%A3%81-%E5%AF%8C%E8%B1%AA-%E5%A4%A9%E5%A0%82%E6%8E%89%E5%85%A5%E5%9C%B0%E7%8D%84-%E7%94%9F%E6%B4%BB%E5%8A%87%E8%AE%8A-044339272.html)
 
-秘翻新闻 自由信仰编译报道
+撰稿/发布：一叶知秋
 
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
