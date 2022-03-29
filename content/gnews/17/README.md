@@ -2,41 +2,39 @@
 ---
 
 
-## 俄胡萝卜加大棒在乌边境库尔斯克地区重集结更多军力
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2249961/)
+## ATAGI考虑为澳洲青少年提供辉瑞新冠加强针
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2250017/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-29-下午12.40.43.png)图片来源：互联网
-俄罗斯在乌克兰边境附近的库尔斯克地区重新集结比2月24日更多部队和军事装备，一手蓄积军事力量，另一手表示愿意和谈。
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-352.png)图片来自网络
+《SBS News》近日报道，联邦卫生部的一份声明说，澳洲免疫技术咨询小组（ATAGI）正在审查关于12至15岁儿童使用辉瑞疫苗作为加强针的数据。
 
-据乌克兰国家通讯社（ Ukrinform）报道，乌克兰作战武装部队在 Telegram 上报告了此事，并参考了国际情报机构 InformNapalm 发言人 Mykhailo Makaruk 提供的信息。
+辉瑞数据的审查将包括有关严重疾病、流行病学和年龄组国际推广的信息。
 
-报告称：“俄罗斯继续重新集结部队并积累过时的装备。目前，位于乌克兰边境附近的库尔斯克地区的军事装备比 2 月 24 日时要多。”【1】
+卫生部门在一份声明中说：“ATAGI 正在继续研究有关使用新冠疫苗和治疗的新证据，作为其对当前建议的持续审查的一部分。”
 
-俄罗斯库尔斯克位于乌克兰东北部，距离乌边境约80英里（130公里），风水上看是大凶之位，2月24日俄全面入侵乌克兰之前，就在库尔斯克和沃罗涅日部署大量军事装备。
+ATAGI 上周批准向 65 岁以上的人、50 岁以上的澳大利亚土著人、老年或残疾护理人员以及免疫功能低下的人接种冬季剂量的新冠疫苗。
 
-乌克兰武装部队总参谋部周一（3月28日）在Facebook发布关于乌军抵抗俄罗斯入侵情况报告称俄军在暂停进攻苏梅城，正在重新集结。
+第四针或第二剂加强针将从 4 月 4 日起在人群中推出，人们将在第一次加强针注射四个月后有资格接种。
 
-报告指出：”敌人（俄军）没有采取进攻行动。敌军正在重新集结并向俄罗斯境内撤退，以补充战斗力。”
+目前，第三针新冠疫苗（或第一剂加强针）仅被批准用于 16 岁及以上的人群。
 
-在哈尔科夫方向正面进攻也处于停滞。报告说：“敌人没有采取进攻行动。与此同时，俄罗斯入侵者继续封锁这座城市并烧毁民用基础设施。”
+ATAGI不建议在更广泛的人群中接种第二剂加强针。
 
-俄罗斯正在动员兵员补充到对乌侵略战争中，包括秘密吸收监狱服刑有严重刑事罪行的罪犯，同时还在库尔斯克部署武器装备。
+新的ATAGI建议是在预测冬季新冠病例激增之前出台的，这与流感病例可能激增相重叠。
 
-普京一手表率愿意和谈，另一手为新一轮对乌克兰侵略蓄积力量。
+最近几天，由于与奥密克戎亚变种有关的感染，新冠的病例数在全国范围内一直在增加。
 
-乌克兰国家通讯社周一（3月28日）报道，乌克兰与俄罗斯联邦的下一轮会谈将于 3 月 28 日至 30 日在土耳其举行。这是在雷杰普·塔伊普·埃尔多安与俄罗斯总统普京会谈后，土耳其总统府通信局证实，下一轮俄乌谈判将在伊斯坦布尔举行。【2】
+配方一直都没有更新，为什么还要一再的打？孩子都打了两针还不够现在还要打第三针？这是屠杀！
 
 参考链接：
 
-【1】[InformNapalm：俄罗斯继续重组部队，积累军事装备](https://www.ukrinform.net/rubric-ato/3442533-informnapalm-russia-continues-regrouping-troops-accumulating-military-equipment.html)
+[https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10](https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10)
 
-【2】[下一轮俄乌谈判今天在伊斯坦布尔举行](https://www.ukrinform.net/rubric-ato/3441829-next-round-of-russiaukraine-negotiations-to-take-place-in-istanbul-today.html)
+*编辑：金生水*
 
-* * *
-
-*编辑&发布：长岛开心*
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,29 @@
 ---
 
 
-## ATAGI考虑为澳洲青少年提供辉瑞新冠加强针
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2250017/)
+## 有声｜英国下令审查公共部门俄罗斯能源合同
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250043/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-352.png)图片来自网络
-《SBS News》近日报道，联邦卫生部的一份声明说，澳洲免疫技术咨询小组（ATAGI）正在审查关于12至15岁儿童使用辉瑞疫苗作为加强针的数据。
+By:**秘翻新闻**
 
-辉瑞数据的审查将包括有关严重疾病、流行病学和年龄组国际推广的信息。
+**2022-03-29**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-53.png)图片来源 路透社
+[路透社 3月28日报道，英国周一指示公共部门将审查与俄罗斯公司签订的能源和其他合同，建议考虑更换供应商，并指出现有的能源协议可能使俄罗斯政府受益。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-卫生部门在一份声明中说：“ATAGI 正在继续研究有关使用新冠疫苗和治疗的新证据，作为其对当前建议的持续审查的一部分。”
+[与盟国一起，英国正寻求通过广泛制裁来削弱俄罗斯经济，以应阻止其入侵乌克兰。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-ATAGI 上周批准向 65 岁以上的人、50 岁以上的澳大利亚土著人、老年或残疾护理人员以及免疫功能低下的人接种冬季剂量的新冠疫苗。
+[英国内阁大臣巴克莱在一份声明中说，公共资金不应该资助普京的战争机器，我们要求公共部门的医院、理事会和其他组织紧急考虑所有可以进一步切断与俄罗斯商业联系的方法。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-第四针或第二剂加强针将从 4 月 4 日起在人群中推出，人们将在第一次加强针注射四个月后有资格接种。
+[英国政府已宣布将在今年年底前逐步停止从俄罗斯进口石油，并正在制定一项新的能源战略，以结束对俄罗斯天然气的依赖，目前俄罗斯天然气在英国的供应中占比不到 4%。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-目前，第三针新冠疫苗（或第一剂加强针）仅被批准用于 16 岁及以上的人群。
+[最新的采购建议指南建议：在终止现有能源供应合同之前，须征求能源专家或相关公共部门采购组织的建议，以确保替代供应来源可用且负担得起。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-ATAGI不建议在更广泛的人群中接种第二剂加强针。
+秘翻新闻 自由信仰编译报道
 
-新的ATAGI建议是在预测冬季新冠病例激增之前出台的，这与流感病例可能激增相重叠。
+发布 : 恩典
 
-最近几天，由于与奥密克戎亚变种有关的感染，新冠的病例数在全国范围内一直在增加。
-
-配方一直都没有更新，为什么还要一再的打？孩子都打了两针还不够现在还要打第三针？这是屠杀！
-
-参考链接：
-
-[https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10](https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

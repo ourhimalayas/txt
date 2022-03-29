@@ -2,31 +2,31 @@
 ---
 
 
-## 财经｜美国将就中共太阳能板制造商逃避关税一案展开调查
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2250102/)
+## Taiwan&#8217;s outbreak ｜The Outside Worries Taiwan will Follow in the Footsteps of Hong Kong
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2250195/)
 
-**图/文｜CP**
-**发布时间｜29/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美國將就中共太陽能板製造商逃避關稅一案展開調查.jpg)
+Translated By:  MOS Finance – Sunflower194
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-61.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/93186EFF-C852-41A1-9A3A-D33903F40DCD_4_5005_c.jpeg)Picture source: taiwannews.com
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+According to the Central Epidemic Command Center, there are many CCP virus outbreaks in Taiwan, but the source of some virus infections cannot be identified. Eighty-three new cases were confirmed on the 27th, spreading all over Kaohsiung, Hsinchu, Shuangbei, Keelung, Taitung, and other counties and cities. The cluster cases at Keelung Snack Shop and Datan power plant continued rising, showing no signs of improvement. There were thirty-four new local confirmed cases on the 28th.
 
+Notably, the sequence analysis found that the virus strains of the police cluster cases at Keelung Snack Bar are different than the strain of local cases in Taiwan. The virus strain was suspectly from Vietnam.
 
-美国商务部官员周一（28日）表示，他们将启动一项针对中共太阳能电池板制造商是否逃避关税的调查，以回应加州太阳能板生产商Auxin Solar早前向商务部提出的指控。
+The Datan power plant cluster cases have drawn much attention because the power plant generates more than 10% of Taiwan’s electric power, and it is worried that the outbreak may affect the island’s power supply. Minister of Economic Affairs Wang Meihua said in an interview on the 28th that the positive cases had been quickly quarantined; still, there could be more cases at the Datan power plant. Because of the virus outbreak, the epidemic commander Chen Shizhong announced that the mask mandate will continue, although the mandatory planned to lift on April 1st. In an interview with the media, when he was asked if he “worried about Taiwan following in the footsteps of Hong Kong,” Chen hoped that it would not happen to Taiwan.
 
-Auxin Solar发现在马来西亚、泰国、越南和柬埔寨营运的部份太阳能企业，是由中共大型太阳能板制造商所成立，它们将零件运往这4个东南亚国家进行组装，然后将制成品出口到美国，以此避开向美国缴付“反补贴和反倾销关税”。
+In addition, the CCP-virus outbreak in Shanghai led to the city’s lockdown by the district. Minister of Economic Affairs Wang Meihua reported to the Legislative Yuan Economic Committee that the Industrial Development Bureau contacted the Taiwan factories in Shanghai and confirmed that the production of the Taiwan factories went well, but the lockdown might impact the shipping of the products.
 
-据商务部在网站上公开的一份备忘录显示，Auxin提供的证据表明，在这四个国家运营的太阳能公司是中共一间大型生产商的子公司，如果证实的确是在中国制造，那他们必须缴付美国的反补贴和反倾销税。备忘录还补充指，Auxin明确列示了指控所需的所有要素。
+Reference link: [https://gnews.org/zh-hans/2244406/](https://gnews.org/zh-hans/2244406/)
 
-当局表示，调查将以全国范围内的问询形式进行，要求目标国家的公司提供有关其太阳能电池和组件生产以及向美国出口的资讯。商务部有150天时间进行调查以及发布初步结果。最终决定将在300天之内做出，亦有可能延长65天。
+Edited and posted by: Snow Lily
 
-Auxin执行长Mamun Rashid在给媒体的一份声明中表示：“多年来，中共太阳能生产商不仅一直拒绝在美国对其产品进行公平定价，而且还竭尽全力削弱美国制造商和工人，并在一些不履行义务的国家设立子公司以规避责任。 我们感谢商务官员认识到调查这种普遍存在的倾销行为的必要性，以及它如何继续伤害美国太阳能生产商。 公平贸易和执行我们的贸易法对于重建美国太阳能供应链来说至关重要。”
-
-**來源｜**[**TheHill**](https://thehill.com/policy/energy-environment/600072-feds-to-probe-allegations-asian-solar-manufacturers-skirted-tariffs)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)**For more information, please follow us at:
+[NFSCNews | Gettr](https://www.gettr.com/user/nfscnews)
+[Gnews | Gettr](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)
+[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Free to Join New York MOS Himalaya | Discord](https://discord.gg/ChqXAHd)**
 
  
 
