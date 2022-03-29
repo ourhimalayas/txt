@@ -2,24 +2,30 @@
 ---
 
 
-## 赴澳留学生因隐瞒中共解放军训练经历遭澳大利亚遣返
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2253067/)
+## 巴西总统博尔索纳罗离开军队医院，身体超好
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2253156/)
 
-**撰稿：日本东京方舟农场  海星**
+####   撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3680.png)图片来源：Latest News
+据《纽约邮报》3月29日凌晨报道，巴西总统博尔索纳罗（Jair Bolsonaro）周一被送往首都的一家医院，接受可能的肠梗阻检查。
 
-近期，有知情人士透露，1名中共国赴澳留学生因隐瞒参加中共解放军训练的经历遭澳大利亚遣返。
+机构安全部长埃莱诺（Augusto Heleno）将军周一晚些时候向美联社证实，博尔索纳罗在巴西利亚的一家军队医院。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111_ccexpress.jpeg)（图片来源：中国军网）
+报道说，自2018年大选前的一次竞选活动中一名袭击者刺伤他的腹部以来，博尔索纳罗经常在医院接受治疗。自2019年成为总统以来，他已经接受了七次手术。
 
-据《中央社》报导，知情人士透露，澳大利亚边境执法人员在悉尼国际机场拦截了1名中共国赴澳留学生，检查该学生手机时发现了其在中共国内就读大学期间参加中共解放军训练的照片。因此，澳方当场通知其签证被取消并原路遣返。
+巴西媒体称，总统是从午餐时间开始感到不适的。
 
-该报导称，1个月前，另一名中共国赴澳留学生也因隐瞒参加中共解放军训练而遭澳大利亚遣返。
+另据《新闻极限》3月29日的最新报道，总统办公室说，博尔索纳罗在医院做了一夜的检查后，于周二上午出院，目前在阿尔沃拉达宫（Alvorada Palace）的家中。
 
-参考链接：
-[https://www.cna.com.tw/news/aopl/202203290331.aspx](https://www.cna.com.tw/news/aopl/202203290331.aspx)
+通信部长法里亚（Fabio Faria）周二早些时候在推特上说，总统已经离开医院，“身体超好”。
 
-总编：老孙
-校对发布：晓辉
+*责编：白夜*
+
+**新闻来源**
+
+[Brazilian president undergoing tests at military hospital](https://nypost.com/2022/03/29/brazilian-president-jair-bolsonaro-undergoing-tests-at-military-hospital/)
+
+[Brazil’s Bolsonaro ‘Super Well’ After Overnight Stay in Hospital](https://www.newsmax.com/newsfront/brazil-bolsonaro-hospital/2022/03/29/id/1063312/)
 
  
 

@@ -2,24 +2,24 @@
 ---
 
 
-## 21年8月，CDC雇员中70%的新冠病例是新冠疫苗接种者
-` Little c` [轉載自GNews](https://gnews.org/zh-hans/2253022/)
+## 赴澳留学生因隐瞒中共解放军训练经历遭澳大利亚遣返
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2253067/)
 
-作者：波士顿五月花 Little c
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cdc.jpg)图片来自网络
+近期，有知情人士透露，1名中共国赴澳留学生因隐瞒参加中共解放军训练的经历遭澳大利亚遣返。
 
-依据《自由信息法》，ICAN组织的律师要求CDC提供关于其雇员中新冠阳性病例数量以及新冠疫苗接种数量。CDC官方最近给出回应，虽然处处掩饰，但还是承认在2021年8月，他们的雇员中约有70%的新冠病例是新冠疫苗接种者。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111_ccexpress.jpeg)（图片来源：中国军网）
 
-CDC雇员的新冠疫苗接种率一直是一个秘密。无论他们的接种率是低于或高于70%， 70%的新冠病例接种过新冠疫苗仍然是一个惊人的数字，应该足已成为CDC的警钟，疫苗不能阻止传染。
+据《中央社》报导，知情人士透露，澳大利亚边境执法人员在悉尼国际机场拦截了1名中共国赴澳留学生，检查该学生手机时发现了其在中共国内就读大学期间参加中共解放军训练的照片。因此，澳方当场通知其签证被取消并原路遣返。
+
+该报导称，1个月前，另一名中共国赴澳留学生也因隐瞒参加中共解放军训练而遭澳大利亚遣返。
 
 参考链接：
+[https://www.cna.com.tw/news/aopl/202203290331.aspx](https://www.cna.com.tw/news/aopl/202203290331.aspx)
 
-[Seventy percent of COVID-19 cases among CDC employees in August 2021 were in vaccinated employees](https://www.icandecide.org/ican_press/70-of-covid-cases-among-cdc-employees-in-august-2021-were-in-vaccinated-employees/)
-
-* * *
-
-编辑/发布：Little c
+总编：老孙
+校对发布：晓辉
 
  
 

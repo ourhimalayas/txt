@@ -2,37 +2,38 @@
 ---
 
 
-## 有声|新中国联邦两周年纪念活动正式启动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252830/)
+## 秘翻在线:俄乌想停火，美国不想?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2252995/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月27日，郭文贵先生在大直播中正式宣布，新中国联邦两周年纪念活动正式启动。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-15.jpeg)
-新中国联邦两周年纪念活动将由喜马拉雅联盟委员会全面负责。总导演是草根小哥，长岛哥作为美国协调人，与老班长共同配合，是副总导演。所有农场主，作为喜联盟委员，必须全面参与组织工作。
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Image-1-11.jpg)图片:网路
+**俄罗斯开启停火协议**
 
-郭先生最后说道，从现在直到今年六月四号，惊喜和好消息将逐一到来。
+根据《电讯社》和《路透社》的报导，俄乌停火谈判有了重大突破。俄罗斯国防部表示，它正在寻求双方对话的可能性，以停止乌克兰首都基辅和北部主要城市切尔尼戈夫的战火。
 
+俄罗斯国防部副部长亚历山大·福明 (Alexander Fomin) 告诉记者，”俄罗斯国防部为了增加互信，并为进一步谈判和实现签署上述协议的最终目标创造必要条件，决定减少在基辅和切尔尼戈夫的军事活动。”根据《纽约时报》的报导，这个协议出现在俄罗斯军队在基辅附近遭遇顽强抵抗之后，而昨天乌克兰刚从俄罗斯手中夺回基辅的主要郊区伊尔平。
 
+在伊斯坦布尔，停火协议已持续四个小时，俄罗斯首席谈判代表弗拉基米尔·梅丁斯基(Vladimir Medinsky)称此次会谈是建设性的，他会将停火协议直接提交给普京。乌克兰总统泽连斯基的助手米哈伊洛·波多利亚克(Mykhailo Podolyak)说：”两国代表团还讨论了关于乌克兰国际安全保障的问题。”
 
-文字版原文：[新中国联邦两周年纪念活动正式启动](https://gnews.org/zh-hans/2243218/)
+根据《纽约时报》报导，谈判可能会在周三继续进行，克里姆林宫发言人德米特里·S·佩斯科夫(Dmitri S. Peskov)认为周三继续进行的谈判可能会产生重大影响，但没有提供相关细节。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+**泽连斯基与普京直球对擂?**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+乌克兰最高谈判代表表示，乌克兰正提出克里米亚的相关问题，并可能就谈判范围达成实质性协议，以便促成普京与泽连斯基的直接会面，即便普京至今为止仍明确拒绝会面。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+关于在执行协议条款时，普京和泽连斯基是否会面，俄罗斯代表团团长梅丁斯基( Medinsky)告诉记者，”经过今天有意义的对话，俄乌双方已经同意并正在提出一个解决方案。根据该解决方案，国家元首会议可以在外交部长草签条约的同时进行。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+**站在世界舞台中心的乌克兰总统泽连斯基**
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+根据塔斯社的声明，周二的停火协议似乎是自俄罗斯入侵乌克兰以来最实质的会谈。但一个重要的障碍是，乌克兰坚称，与俄罗斯达成协议的任何核心条款都需要举行全民公投，例如放弃克里米亚。同时，乌克兰方面坚持，必须实施乌克兰境内全面的和平协议，停火协议才能视为有效。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+**美国的不情不愿**
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+关于基辅附近可能的停火协议，五角大楼发表一份快速声明，称没有看到俄罗斯军队从首都附近撤出的迹象，这可能是需要很长时间才能达成的目标。
+
+“美国是俄乌战争中最大的受益者”， 郭文贵先生曾在大直播中表示。由此来看，美国对俄乌的停火协议显然不以为然。
+
+消息来源: [Russia Says Military Will Reduce Operations Around Kiev & Chernihiv After Positive Ceasefire Talks](http://Russia%20Says%20Military%20Will%20Reduce%20Operations%20Around%20Kiev%20&amp;%20Chernihiv%20After%20Positive%20Ceasefire%20Talks)
 
  
 
