@@ -2,37 +2,36 @@
 ---
 
 
-## Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2249619/)
+## 防中国曲线避税,美正考虑对东南亚太阳能设备征收关税
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2249864/)
 
-Translated by: MOS Fitness Team – Gloria
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+整理/编辑：文泓
 
-The U.S. National Endowment for Democracy Visits Taiwan
-
-On March 28, Taiwan time, the U.S. National Endowment for Democracy (NED), led by President Damon Wilson, visited Taiwan for three days. During the visit, the delegate will meet with President Tsai Ing-wen (蔡英文), Premier Su Tseng-chang (蘇貞昌), and Legislative Speaker You Si-Kun (游錫堃), attending a banquet hosted by Foreign Minister Joseph Wu (吳釗燮). The Ministry of Foreign Affairs stated that it’s Wilson’s first time visiting Asia since he took office last July. It demonstrates the importance of Wilson’s attachment to Taiwan that he selected Taiwan as the first stop on his first trip to Asia. Wilson tweeted that Taiwan is becoming a center for defending the democratic way of life, and he is honored to visit one of the freest societies in the world.
-
-Taiwan’s Ministry of Foreign Affairs responded in a press release, thanking the NED for its long-term attention to Taiwan’s democratic development. With the NED’s encouragement, Taiwan established the “Taiwan Democracy Foundation” in 2003, which worked closely with the NED to promote democracy and human rights in the Indo-Pacific region.
-
-According to the Ministry of Foreign Affairs, in cooperation with the groups like the Taiwan Democracy Foundation, NED President Wilson will announce at a press conference that the “World Movement for Democracy” will be held in Taipei for the first time from October 24 to 27 to affirm Taiwan’s democratic achievements.
-
-The U.S. “German Marshall Fund” Reports that the Chinese Communist Party (CCP) Maliciously Isolates Taiwan
-
-The report mentioned that the CCP distorted Resolution 2758 passed by the United Nations in 1971 into “the one-China principle and Taiwan is a province of the People’s Republic of China” and used this to isolate Taiwan and prevent Taiwan from participating in UN affairs. In addition, in response to the viewpoints of Taiwan’s Foreign Minister when connecting with foreign media, the report emphasized that Taiwan plays a crucial role in global technology supply. The report recommends that the United States develop a more effective strategy to counter China’s attempts to distort UN Resolution 2758.
-
-Source link: [https://gnews.org/zh-hans/2244682/](https://gnews.org/zh-hans/2244682/)
-
-Edited and posted by: Snow Lily
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)**For more information, please follow us at:
-[NFSCNews | Gettr](https://www.gettr.com/user/nfscnews)
-[Gnews | Gettr](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)
-[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[Free to Join New York MOS Himalaya | Discord](https://discord.gg/ChqXAHd)**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/996ELVP_KF3TZBZ7MU.png)图片来源：ET EngergyWorld & 雅典娜设计组
 
 
+3月28日据路透社报道，美国贸易官员周一表示，将对来自四个东南亚国家的太阳能设备征收关税展开调查，这对依赖廉价进口产品来压低成本的项目开发商是一个打击。
+
+这项决定对提出调查要求的加州太阳能制造商Auxin Solar来说是一个胜利。该公司的请求是美国太阳能生产商的最新努力，旨在遏制在市场占主导地位的廉价亚洲太阳能电池板进入美国。
+
+总部位于圣何塞的Auxin今年稍早要求商务部进行调查，理由是中国制造商将生产线转移到马来西亚、泰国、越南和柬埔寨，以避免支付美国对中国制造太阳能产品加征的关税。
+
+美国商务部网站的一份备忘录显示，官员们称，Auxin提供的信息表明，**在马来西亚、泰国、越南和柬埔寨运营的太阳能企业是中国大型生产商的子公司，在那里生产的产品如果在中国制造，美国反补贴和反倾销税将适用。**
+
+备忘录中写道，Auxin以符合程序的方式提出了需要做出认定规避（关税）裁决的因素，商务部将在150天内发布初步裁决。
+
+美国太阳能行业团体大力游说反对商务部接受请愿，称这将摧毁该行业，并增加消费者的用电成本。
+
+参考链接：[美将考虑对东南亚四国太阳能设备征收关税 以防中国曲线避税](https://cn.reuters.com/article/us-southeast-asia-pv-tariffs-0329-idCNKCS2LQ068) 
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

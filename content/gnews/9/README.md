@@ -2,28 +2,26 @@
 ---
 
 
-## 樱花时政┃德国总理朔尔茨警告俄不要使用生化武器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251519/)
+## 秘翻在线：逃离乌克兰妇女和儿童在邻国成为人贩子的目标
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2251622/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-德国总理朔尔茨本月27日晚上参加德国一台电视访谈节目，就乌克兰战争，北约和能源问题等做了进一步的阐述。朔尔茨承诺，德国将履行北约成员国将国民生产总值2%用于国防的承诺。
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-46.jpg)图片来源：本文的链接
+一家波兰慈善机构的工作人员告诉《卫报》，在俄罗斯入侵乌克兰后，一些人试图引诱从乌克兰撤离的妇女,把她们引诱到他们的车里，并试图对她们进行掠夺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/德国总理朔尔茨警告俄不要使用生化武器.png)图片来源与本文链接
+该慈善机构警告说，从乌克兰逃往邻国的弱势群体正成为人贩子的目标。
 
-朔尔茨警告俄罗斯，“不要轻举妄动”，不要使用生化武器。鉴于来自俄的潜在威胁，德国正在考虑建立新导弹防御系统的可能性。德国可能购买以色列“箭式3型”系统。该系统具备在地球平流层拦截击毁远程导弹的能力。购置这一导弹防御系统需耗资20亿欧元，最早可在2025年投入使用。
+据联合国统计，来自乌克兰的370万难民中大约90%是妇女和儿童。
 
-信息来源： 
-[德国电视访谈：朔尔茨使用好战语言](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220329-%E5%BE%B7%E5%9B%BD%E7%94%B5%E8%A7%86%E8%AE%BF%E8%B0%88-%E6%9C%94%E5%B0%94%E8%8C%A8%E4%BD%BF%E7%94%A8%E5%A5%BD%E6%88%98%E8%AF%AD%E8%A8%80)
+慈善机构警告说，难民中的妇女和儿童正在成为乌克兰邻国的人贩子的目标。 总部设在波兰卢布林的人权组织Homo Faber的协调员Karolina Wierzbińska告诉《卫报》说，为该慈善机构工作的人亲眼目睹了逃离乌克兰的人被当作目标。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+另外,在卢布林的一个难民收容所附近已经确定了第一起被指控卖淫人贩子试图掠夺乌克兰妇女的案件。 这些人贩子以提供交通、工作和住宿为幌子接近妇女，在某些情况下还会使用武力。
+
+这些犯罪团伙中不仅有男性，也包括女性和夫妇，他们在公共汽车站和其他地方接近从乌克兰疏散的妇女。
+
+信息来源：[https://www.businessinsider.jp/post-252283](https://www.businessinsider.jp/post-252283)
+
+责编：Eric Kim
 
  
 

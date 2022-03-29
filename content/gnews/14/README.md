@@ -2,24 +2,24 @@
 ---
 
 
-## 拜登政府正在考虑给50岁以上的人打第四针加强针
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2251409/)
+## 樱花头条┃乌克兰西部城市利沃夫遭受火箭袭击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251555/)
 
-#### 翻译/整理 意大利达芬奇农场 小白鸽
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+乌克兰西部城市利沃夫遭受火箭袭击。
 
-美国很有可能批准给50岁以上的人施打第四剂新冠疫苗，拜登政府正在考虑给50岁以上的人施打辉瑞或者莫德纳疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-29-alle-12.21.54-1.png)图片来源：Adnkronos.com
-据知情人士透露， 美国食品药品监督管理局（FDA）可能会在下周初批准该年龄组的第四剂新冠疫苗， 这是《纽约时报》披露的。
+信息来源：
+[https://www.gettr.com/post/p1235xc64f0](https://www.gettr.com/post/p1235xc64f0)
 
-联邦卫生官员长期以来一直在争论如何采取措施，一些人极力赞成加强针，而一些人持怀疑态度。我们在《纽约时报》上读到一项计划：官员们说如果在秋季再次增加感染，所有年龄段的美国人，包括今年春天接受了加强针的人，都有望再次接种新冠疫苗。
-
-简评：我们已经看到，新冠疫苗接种率越高， 加强针越多，奥米克戎感染人数越多。疫苗非但没有阻止病毒的传染，疫情反而愈演愈烈。郭先生告诉我们香港、韩国，大陆，包括美国加拿大的病毒复发，就是因为疫苗灾难。只要共产党在，病毒不会停！没有共产党，病毒就消失了。只有消灭了共产党，世界才会变得安全。
-
-参考链接：
-
-[https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50\_7sCeGSEfjmTInil7TXkz3O](https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50_7sCeGSEfjmTInil7TXkz3O)
-
-编辑、上传： Xiao baige
+*编辑：东京樱花团/asket、文米（素材）
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
