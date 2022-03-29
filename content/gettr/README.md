@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 12:30 AM (UTC)`
+
+2022.03.28 晚 《新中国联邦新闻》灭共会让病毒和邪恶轴心国随之消亡； 中华河山将重新焕发生机
+![img](https://media.gettr.com/group11/origin/2022/03/29/00/5cd495c7-3fc6-894f-f860-02c6a73a678a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/28/2022 11:41 PM (UTC)`
 
 2022.03.28《The Fringe》 Episode 156
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 3/27/2022 Miles Guo: The biggest crisis in China is food shortages. The CCP’s extremely ruthless counter-epidemic policies will leave countless people without a burial place. The world will be dragged into the darkest times, which will last for two to three years as the result of the CCP virus outbreaks and the COVID vaccine disasters. After taking down the CCP, not only will this pandemic be over, the COVID vaccine disasters will also pass. Putin, the Iranian government, Kim Jong-un, and other evil regimes that are in bed with the CCP will all cease to exist with the collapse of the CCP.<br/><br/>3/27/2022 文贵直播：国内最大的危机就是粮食短缺；中共极端无情的抗疫政策会让无数人死无葬身之地；全世界会因为病毒再度爆发和疫苗灾难陷入两到三年的至暗时刻；灭共后不仅病毒会消失，疫苗灾难会过去，普京、伊朗政府、金正恩等与中共为伍的邪恶轴心政权都会随之消亡<br/>
 ![img](https://media.gettr.com/group7/getter/2022/03/28/09/481792dd-94b2-0409-1d52-e27a8f9c0371/out.jpg)
-
----
-
-`@miles 3/28/2022 8:42 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月27日第23天当日救援统计：<br/>Medyka救援站接待：约31人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7565人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 23 - Date: March 27, 2022 :<br/>Medyka Rescue Station Reception: about 31 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7565 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group46/getter/2022/03/28/08/e3fa0916-4874-9492-89c2-aac69f1fd94f/6a1902b59fb52c33b276d6c09d721d1f.jpg)
 
 ---
 

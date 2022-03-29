@@ -2,20 +2,35 @@
 ---
 
 
-## 加国防部禁止其军人参与俄乌战争
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2248434/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2248515/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-28.png)
 
-据【卫报】3月24日报道，加拿大国防部日前发布命令：将禁止该国全职服兵役人员和兼职预备役军人以及正在休假的官兵等，前往乌克兰加入不久前成立的抗俄外国军团。
+文章仅代表作者本人观点，与Gnews无关
 
-报道称，由于担心加拿大军人可能在乌克兰战场中被俄军俘获，而成为普京当局在遭受重大失败的情况下被用作信息战的宣传工具，因此，国防部禁止加拿大军人擅自加入乌克兰军队参与对俄作战。
+视频参看：
+[2022.03.28早 《NFSC新闻》](https://gettr.com/streaming/p12b1habf28)
+[2022.03.28早《NFSC新闻访谈》](https://gettr.com/streaming/p12biew65bc)
 
-据悉，因为加拿大是世界第二大乌克兰侨民群体居住国，所以联邦政府此前曾提出愿意接受和安置“无限”数量的乌克兰人前往该国寻求临时避难。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
 
-编辑： 平民正道    发布：平民正道
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+
+
 
  
 

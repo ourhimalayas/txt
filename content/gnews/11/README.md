@@ -2,33 +2,318 @@
 ---
 
 
-## “共匪式”抗疫
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/2248587/)
+## 拜登在波兰会见“勇敢的”乌克兰难民
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2248620/)
 
-BY：银河系农场|天雷滚滚
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-16.png)
+Wolf Blitzer (American journalist)
+沃尔夫·布利孜（美国记者）
 
-[https://media.discordapp.net/attachments/836834066107727913/957917832379789322/mmexport1648455415313.mp4](https://media.discordapp.net/attachments/836834066107727913/957917832379789322/mmexport1648455415313.mp4)
+The President was accompanied by the mayor of Warsaw Rafal Zraskowski
+总统是由华沙市长拉法尔·兹拉斯科夫斯基陪同的
 
+was joining us right now
+他本人现在加入我们
 
-二十多个男女，被隔离在二十平米都不到的浦东医院里。一张塑料凳算是供人休息的装备。你没看错，这是在中共国最文明的窗口城市——上海。哪怕是猪，一栏里也不会关这么多头，更何况是所谓的隔离。很想问下上海的医生，更想问下中南坑的习太阳，这是隔离病毒，还是传播病毒，当然，上海的医生估计根本没有时间来回答这个问题，而习太阳，估计它就认为中国人能让我们活着就是他皇恩浩荡了，还想怎的？
+Rafal, thank you very much for joining us
+拉法尔，非常感谢你加入我们
 
-是啊，人家是太阳，是神，它让你活，你才能活；他不让你活，你逃不出生天。永远都是他的对，他说动态清零，就必须清零。把全城关起来清，把所有医院里的所有科室的病人全部清回家，然后把新冠病人都接进来。没有新冠病人，就制造新冠病人，全员一轮又一轮无休止地核酸，一举两得，核酸的钱抢来了，新冠病人也有了。那些重病的人是国家和社会的累赘，让他早点死，可以减轻负担；那些不是生病的，让他熬成重病，把他剩下的家底掏空了再让他们去死。真是妙计啊。不信吗？你看上海一老人家因为肝癌，去抓点中药都不让去，最后选择跳楼自杀；还有一个儿子，家里老人生病，也不许探望，急得爬到楼顶大撒币，飘飘洒洒的钱从天而降，制造的轰动效应固然不小，可是，再多的钱，你能比得过中南坑的习大撒币吗？它把全国人的钱撒向全世界，收获的是满满的仇恨，你这点钱，不知道收获的是不是大白找上门来强制隔离呢？不得而知。
+So you’ve been mayor here for more than three years
+所以你已经在这里当了三年多的市长了
 
-真是佩服习太阳，全世界的人把这病都当成了感冒，并不是这个病不严重，而是全世界的领导都知道，再这样关下去，这病毒没把人毒死，可却把人饿死了。迫于形势，他们不得不停止了强制疫苗，不得不全面开放。而伟大的习太阳大概觉得，不清零不足以突出他这个老中医，不封控不足以体现他的英明神武，因此，原本比较宽松的上海，在一会说封一会说不封的时候，所谓的中央督导组来了，这一“督”，上海连夜封城，在不情不愿中，以黄浦江为界，浦东先封，清明节放出来；然后再封浦西，清明节再放出来。两岸人民老死不相往来。有好事者写了一副对联：第一批愚人节放出来，第二批清明节放出来。横批：人鬼情未了。我知道习太阳肯定看不见这样的段子，但它肯定很得意自己的杰作：我让你丫的上海人不待见我，我现在就让你封封封，直到你上海疯了才知道我习大神才是真正的神。小样，看谁牛过谁，看谁强过谁？！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-173.png)
-是的，看这架势，习太阳不仅想要把上海人逼疯，我估计，它还想把全国人都要逼疯。为了动态清零，在全国搞这么大的动静，我以为那些病毒呈阳性的人肯定得到太阳般温暖的照顾。不料，上海前线传来消息，那些阵亡于病毒的人给他们什么药物治疗呢？2000元一盒的辉瑞的所谓“特效药”吗？别想多了，告诉大家，就两种药：维生素C和莲花清瘟胶囊。你没听错，就这样两样。看来，这钟南山老贼把习太阳舔得够爽，核酸赚了不够，还要拿这个没毛线用的莲花清瘟来骗人钱，关键是，骗了钱不够，还害人命。将来审判习太阳时，强烈要求审判钟南山老贼。还有既然就给这两种药治病，为什么要让所有的医院停诊，甚至连自己单位的职工得了急性孝喘这样的病都不给抢救？习太阳真是比希特勒都邪恶。希特勒还没把德国人怎么样，习太阳是对全世界特别是中国人进行无差别屠杀。真是受够了，老天早点把它收了吧。
+What was the President President Biden’s message to the Ukrainian refugees
+拜登总统对乌克兰难民的信息是什么
 
-但是中共的媒体依然在撒谎，说中共国坚持动态清零是保护老年人的生命健康，是对全体中国人的深沉的爱。我R你共匪八辈祖宗，且不说老年人有没有因为得新冠而死去，就这两年来打着抗疫的名号，把人关起来，强制人打疫苗，你自己病毒还不是到处爆发吗？病毒没有控制住，但是一团糟的经济让多少人陷入困境？看看最近上海被封之后，多少人被逼跳楼，多少人因为所谓的防疫为名生病得不到救治而死去？这样的新闻还少吗？
+and you walk around with him at the sports stadium, the soccer stadium earlier to-day?
+你今天早些时候和他一起在运动场，足球场走了一走？
 
-当然，在共匪的眼里，在习太阳的眼里，这些中国人的命根本不是命，他们只是韭菜，需要的时候，是它们面前的人肉长城。但是，正告习太阳，在现代无接触的战争中，美国一枚毒刺导弹也要20万元，既然中国人是韭菜，万恶的美帝是不会做亏本买卖的，他们的导弹无人机只会把目标命中每个人都身家上万亿美金的中南坑老杂毛们，你们的时间不多了！
+What did you hear?
+你听到了什么？
 
-作者：天雷滚滚
+Rafal Zraskowski (Mayor of Warsaw, Poland)
+拉法尔·兹拉斯科夫斯基（波兰华沙市长）
 
-发布：天雷滚滚
+It was incredibly emotional because we’ve heard some heartbreaking stories
+非常激动，因为我们听到了一些令人心碎的故事
 
-日本[银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，欢迎加入银河系农场。欢迎各农场兄弟姐妹们坐客串门，欢迎订阅我们的我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)、[银河农场–勇气星球](https://gtv.org/user/5f0d36870cac397fcf00154c)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled_Project3.gif)
+and the President was reassuring people
+而且总统让人们放心
+
+and telling them that the United States of America will help
+并告诉他们美国会将提供帮助
+
+will help Ukraine militarily with weapons
+将在武器上帮助乌克兰的军队
+
+And we’ll help the people also help the city of Warsaw
+我们将帮助人民，也帮助华沙市
+
+with a plan to relocate hundreds of 1000s Ukrainians to the United States of Amer-ica
+计划将超过10万乌克兰人转移到美国去
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+which is really significant, but you got to give the Polish people so much credit
+这真的很重要，但你必须给予波兰人民如此多的功劳
+
+There are more than three and a half million, maybe almost 4 million Ukrainians
+乌克兰人超过350万，可能接近400万
+
+have fled the country to neighboring countries
+已逃离该国到邻国
+
+more than half of them have come here to Poland
+超过一半的人来到波兰
+
+you’ve received them, you’ve opened the doors to them
+你们已经接收了他们，你们已经为他们打开了大门
+
+and they’re about what 300,000 or 250,000 right here in your city of Warsaw
+他们大约有300,000或250,000在你所在的华沙市
+
+So tell us what you need
+所以告诉我们你需要什么
+
+I’m sure you’re looking for some help
+我确定你正在寻求帮助
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Indeed, you know the population of my city went up by 50% in a month
+确实，你知道我所在城市的人口在一个月内增加了50%
+
+And of course, you know, this instinct of Solidarity was just incredible
+当然，你知道，这种人类团结的本能真是不可思议
+
+but much was based on on improvisation
+大部分都是基于自发的
+
+of course the government did its part on the border
+当然政府在边境尽了自己的一份力量
+
+but here it is the volunteers that is to nongovernmental organizations
+但这里是非政府组织的志愿者
+
+all my social workers who work now with refugees
+我所有现在与难民一起工作的社会工作者
+
+so we need a system, we need the European Union
+所以我们需要一个系统，我们需要欧盟
+
+the United Nations to help us out
+联合国来帮助我们
+
+We need a relocation system whereby we’re going to share this burden together
+我们需要一个迁移的系统，让我们一起分担这个负担
+
+because we are also doing our best
+因为我们也在尽最大的努力
+
+The Ukrainians are fighting for our freedom
+乌克兰人正在为我们的自由
+
+and for the stability of the Transatlantic Alliance
+以及为了跨大西洋联盟的稳定而战
+
+We need to help them
+我们需要帮助他们
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+and the Polish government is really going way way out
+而且波兰政府真正的伸出了援手
+
+Not only helping them with the housing and with food
+不仅帮助他们提供住房和食物
+
+but with with medical assistance as well for at least three years or maybe even longer
+但在医疗上的援助也是至少三年或者甚至更长
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Yes, and it is again, most of the burden is on volunteers
+是的，同样，大部分的负担都在志愿者身上
+
+non government organizations and us here
+非政府组织和我们在这里
+
+because you know, those those
+因为你知道，那些
+
+The work is delegated on us
+工作是委托给我们的
+
+But yes, I mean, it is incredible
+但是，是的，我的意思是，这太不可思议了
+
+because Ukrainians were granted almost a citizen like status
+因为乌克兰人几乎被给予了公民待遇
+
+they have access to free education, free health care
+他们可以获得免费教育和免费医疗保健
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+here in Poland
+在波兰这里
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+here in Poland
+在波兰这里
+
+And that’s great, I’m very proud of that solution
+这很棒, 我为这个解决方案感到非常自豪
+
+But of course, it puts an enormous strain on the city like mine
+但是，当然，它给像我这样的城市带来了巨大的压力
+
+and our services are very much overstretched and overwhelmed
+我们的服务非常紧张和不堪重负
+
+That’s why we need assistance
+这就是为什么我们需要帮助
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+What do you think of the President’s speech today?
+你如何看待总统今天的讲话？
+
+It was very strong. I’ve heard everything that I wanted to hear
+它非常强大的，我已经听到了我想听到的一切
+
+First of all, you know, this pledge that the United States of America
+首先，你知道，这个承诺是美利坚合众国
+
+will defend every inch of NATO territory
+将保卫北约的每一寸领土
+
+it allows us to feel secure and to do our job on the ground
+它让我们感到安全并在实地完成我们的工作
+
+but also you know, those those very strong words about Russia and about Putin
+但你也知道，那些关于俄罗斯和普京的那些非常强烈的话
+
+and that he’s going to pay for that
+他会为此付出代价
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+That is given a dictator
+这是一个独裁者
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Yes
+是的
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+Butcher
+屠杀者
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Yes
+是的
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+And when the President of United States says
+并且当美国总统说
+
+For God’s sake, this man cannot remain in power
+看在上帝的份上，这个人不能再继续掌权
+
+I assume you agree
+我猜你同意
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+exactly, of course, and, and, you know
+是的，当然，并且，你知道
+
+also reminding us that democracy is so important, you know
+也提醒我们民主是如此重要，你知道的
+
+we had our share of problems with this government with rule of law and so on and so forth
+我们在法治方面与这个政府有过共同的问题，等等
+
+And now we need to be the strongest democracy in Europe
+现在我们需要成为欧洲最强大的民主国家
+
+because we cannot afford to have a weak link on the eastern flank
+因为我们不能承受东翼的薄弱环节
+
+We need be strong
+我们需要坚强
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+before I let you go
+在我让你走之前
+
+I’ve been here for a couple of days
+我在这里已经待了几天
+
+And I sense at least in my conversations
+我至少在我的谈话中感觉到
+
+that the Polish people are pretty nervous about Putin right now
+波兰人民现在对普京非常紧张
+
+They’re wondering, is Ukraine his final stop or could he start going after Poland?
+他们想知道，乌克兰是他的最后一站，还是他是要对波兰下手呢？
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+That’s why the President’s words was so important to us
+这就是为什么总统的话对我们如此重要
+
+to reassure us that we are in it together
+向我们保证我们在一起
+
+and really when I look at presidents Zelenskyy
+而当我看到泽连斯基总统时
+
+If he doesn’t panic we shouldn’t panic
+如果他不恐慌，我们就不应该恐慌
+
+原视频链接: [https://twitter.com/cnn/status/1507871048036978689?s=24](https://twitter.com/cnn/status/1507871048036978689?s=24)
+
+Date:03/27/2022
+原视频标题: Biden meets with “brave” Ukrainian refugees in Poland
+拜登在波兰会见“勇敢的”乌克兰难民
+原视频日期：2022/03/27
+原视频链接https://twitter.com/cnn/status/1507871048036978689?s=24
+任务编号：KE463（4098）
+视频时间段 : 0:00-3:37
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
