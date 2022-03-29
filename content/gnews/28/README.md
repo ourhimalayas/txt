@@ -2,39 +2,36 @@
 ---
 
 
-## ATAGI考虑为澳洲青少年提供辉瑞新冠加强针
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2250017/)
+## COVID-19疫苗副作用集萃（2022.3.29C）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2250100/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-352.png)图片来自网络
-《SBS News》近日报道，联邦卫生部的一份声明说，澳洲免疫技术咨询小组（ATAGI）正在审查关于12至15岁儿童使用辉瑞疫苗作为加强针的数据。
+整理：雅典娜情报组(BENJ1)
+编辑：Kelly
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-2.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-辉瑞数据的审查将包括有关严重疾病、流行病学和年龄组国际推广的信息。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-卫生部门在一份声明中说：“ATAGI 正在继续研究有关使用新冠疫苗和治疗的新证据，作为其对当前建议的持续审查的一部分。”
+疫苗加强针后遗症
 
-ATAGI 上周批准向 65 岁以上的人、50 岁以上的澳大利亚土著人、老年或残疾护理人员以及免疫功能低下的人接种冬季剂量的新冠疫苗。
+疫苗打完两三个小时手臂酸痛，然后浑身晕呼呼想睡觉，第二天打针的位置比头天更酸痛，摸着还有硬块。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-200.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-161.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-102.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-108.png)
+跟帖评论选集：
 
-第四针或第二剂加强针将从 4 月 4 日起在人群中推出，人们将在第一次加强针注射四个月后有资格接种。
+余低调：打完第3针之后，过了一两个星期喉咙发炎，再过几个星期脖子淋巴结肿大，再过几个星期，现在全身多发淋巴结，喉咙发炎也还没好，然后我家里老母亲也是打完第3针没多久甲状腺结节手术了。花一堆钱去看病吃药。
 
-目前，第三针新冠疫苗（或第一剂加强针）仅被批准用于 16 岁及以上的人群。
+wa柒：我打第一针就是嗜睡，也没太大反应，所以一到时间就打了第二针，没想到超级不舒服，全身酸痛，免疫系统变低，还得了寻麻疹。第三针我不准备打了……毕竟没人为我的身体负责……全家人都没事，就我出事……
 
-ATAGI不建议在更广泛的人群中接种第二剂加强针。
+参考链接：[http://xhslink.com/v7tVtg](http://xhslink.com/v7tVtg)
 
-新的ATAGI建议是在预测冬季新冠病例激增之前出台的，这与流感病例可能激增相重叠。
+发布：tianzhihuan
 
-最近几天，由于与奥密克戎亚变种有关的感染，新冠的病例数在全国范围内一直在增加。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-配方一直都没有更新，为什么还要一再的打？孩子都打了两针还不够现在还要打第三针？这是屠杀！
-
-参考链接：
-
-[https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10](https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

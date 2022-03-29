@@ -2,88 +2,29 @@
 ---
 
 
-## 玛莎·布莱克本:习近平不仅在密切关注普京对乌克兰的入侵,也在密切关注美国的反应
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2249473/)
+## 俄乌战争｜俄乌代表谈判后出现中毒症状 疑俄罗斯强硬派所为
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2249621/)
 
-**参议员玛莎·布莱克本： **
-[#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 不仅在密切关注普京对乌克兰的入侵，也在密切关注美国的反应。 【转华尔街日报：北京从俄入侵乌克兰中获益 非西方国家对冲他们的赌注，证实了中共国的地缘政治假设。】
+**图/文｜CP
+发布时间｜29/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄烏代表談判後出現中毒症狀-疑俄羅斯強硬派所為.jpg)
 
-
-
-> Xi Jinping is closely watching not only Putin’s invasion of Ukraine but also the U.S. response.[https://t.co/1VaZ8j8sxa](https://t.co/1VaZ8j8sxa)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 28, 2022](https://twitter.com/MarshaBlackburn/status/1508472468146692108?ref_src=twsrc%5Etfw)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+《华尔街日报》周一（28日）引述消息人士指，俄罗斯寡头兼英超切尔西的老板阿布拉莫维奇（Roman Abramovich），以及至少两名乌克兰代表团高级成员，在本月初（3月3日）于乌克兰首都基辅参与和平谈判后，出现疑似中毒的症状，包括眼睛刺痛、眼睑板炎症、皮肤脱落等等。阿布拉莫维奇更是曾经失明数小时，所幸，所有疑似中毒的人经过治疗后，症状都有所改善，目前无人有生命危险。
 
-**众议员迈克·加拉格尔新闻办公室： **
-众议员加拉格尔对记者[@JerryDunleavy](https://twitter.com/JerryDunleavy) 说：“我们需要意识到这一现实，并明确 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对乌克兰进行任何具体干预的后果。” 在这里阅读更多： 【转华盛顿监察员网文章：共和党敦促拜登在俄罗斯问题上向中共国施压】
+调查性新闻机构Bellingcat亦在第一时间发表对该事件的调查结论，称毒源极有可能是来自于一种不知名的化学武器，而使用者旨在发出“警告”，故没有以“致命性”剂量下毒。
 
+报导还指，虽然暂不清楚是次中毒事件的幕后黑手，但鉴于这是克里姆林宫强硬派的惯常战术，加上他们一直反对结束战争，因此猜测他们想通过下毒来恐吓当事人，以达到破坏和平谈判的目的。
 
+不过，有美国官员表示，根据情报显示，症状可以是辐射等环境因素引起，而非中毒。另外，乌克兰总统泽连斯基（Volodymyr Zelenskiy）的顾问亦回应指：“谈判小组的所有成员都已经照常工作，坊间有『很多猜测』和『阴谋论』，但暂时还不知道下毒企图。”
 
-> Rep. Gallagher to [@JerryDunleavy](https://twitter.com/JerryDunleavy?ref_src=twsrc%5Etfw): "We need to wake up to that reality and make the consequences for any concrete Chinese intervention in Ukraine clear.”
-> 
-> Read more here: [https://t.co/KHypzc4YGS](https://t.co/KHypzc4YGS)
-> — Rep. Gallagher Press Office (@RepGallagher) [March 28, 2022](https://twitter.com/RepGallagher/status/1508475296248479747?ref_src=twsrc%5Etfw)
+**來源｜**[**卫报**](https://www.theguardian.com/world/2022/mar/28/abramovich-and-ukrainian-mp-may-have-been-poisoned-this-month)**、**[**Bellingcat**](https://twitter.com/bellingcat/status/1508469820211224576?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1508469820211224576%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.dw.com%2Fen%2Fukraine-roman-abramovich-was-poisoned-at-peace-talks-reports%2Fa-61284930)
 
+* * *
 
-
-**参议员汤姆.科顿：** 
-迪士尼公开感谢在新疆经营集中营的 #中共 官员。 现在，迪士尼正在向家长们讲什么是适合教授幼儿园儿童？ 真是个笑话！
-
-
-
-> Disney publicly thanked the Chinese Communist Party officials running concentration camps in Xinjiang. 
-> 
-> And now Disney is lecturing parents about what's appropriate to teach kindergarteners? 
-> 
-> What a joke.
-> — Tom Cotton (@TomCottonAR) [March 28, 2022](https://twitter.com/TomCottonAR/status/1508527280762638341?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克.沃尔茨： **
-贝莱德 (BlackRock) 和拉里芬克 (Larry Fink) 在与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 和俄罗斯达成甜心交易的同时，向国内的美国公司兜售他们的“清醒”议程。 在[@ConsumersFirst](https://twitter.com/ConsumersFirst) 的这段精彩视频中了解芬克的虚伪程度
-
-
-
-> BlackRock and Larry Fink preach their 'woke' agenda to American companies here at home while making sweetheart deals with the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) & Russia.
-> 
-> See the full extent of Fink’s hypocrisy in this great video by [@ConsumersFirst](https://twitter.com/ConsumersFirst?ref_src=twsrc%5Etfw) 👇 [pic.twitter.com/BwVnZqqsrW](https://t.co/BwVnZqqsrW)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508547952939347980?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥： **
-参议员卢比奥敦促在中兴通讯的缓刑期结束后，对其 [@ZTEPress](https://twitter.com/ZTEPress)采取行动。 【附全文连接：美国参议员马可·卢比奥致函美国商务部部长吉娜·雷蒙多和司法部长梅里克·加兰，呼吁对 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 部分拥有的中国科技公司中兴通讯采取法律行动。】
-
-
-
-> Sen. Rubio pushed for action against [@ZTEPress](https://twitter.com/ZTEPress?ref_src=twsrc%5Etfw) after their probationary period ends.[https://t.co/eED7M9F94x](https://t.co/eED7M9F94x)
-> — Senator Rubio Press (@SenRubioPress) [March 29, 2022](https://twitter.com/SenRubioPress/status/1508598923505590275?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥：**
-万一您错过了：参议员卢比奥正在领导共和党在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 问题上采取更具战斗性的立场，纽约时报[@nytimes](https://twitter.com/nytimes)写道。 阅读更多【附纽约时报文章：像参议员马可·卢比奥这样的共和党人已经将反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 及其领导人 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 作为其外交政策的核心】
-
-
-
-> 🚨 ICYMI: Senator Rubio is leading the GOP push for a more combative stance on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), writes [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw).
-> 
-> Read more ⬇️[https://t.co/gE2Lpx2Fdj](https://t.co/gE2Lpx2Fdj)
-> — Senator Rubio Press (@SenRubioPress) [March 28, 2022](https://twitter.com/SenRubioPress/status/1508593603412729858?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：** 
-就在一个多月前，普京总统发动了他的侵略战争。我们对乌克兰的承诺是牢不可破的。我们已经采取行动制裁俄罗斯政府官员，向乌克兰提供援助，并与我们的伙伴合作，敦促结束这场战争。
-
-
-
-> Just over one month ago, President Putin launched his war of aggression. Our commitment to Ukraine is ironclad. We have taken actions to sanction Russian government officials, deliver assistance to Ukraine, and collaborate with our partners to press for an end to this war. [pic.twitter.com/26vr6lBFCH](https://t.co/26vr6lBFCH)
-> — Secretary Antony Blinken (@SecBlinken) [March 29, 2022](https://twitter.com/SecBlinken/status/1508600297286897665?ref_src=twsrc%5Etfw)
-
-
+**Subscribe Frontline Gettr：[@HKTWfrontline](https://www.gettr.com/user/hktwfrontline)**
 
  
 

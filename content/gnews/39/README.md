@@ -2,51 +2,89 @@
 ---
 
 
-## 聚焦：美国“精准导弹”瞄准中共国的“世界工厂”（下）
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2249129/)
+## 玛莎·布莱克本:习近平不仅在密切关注普京对乌克兰的入侵,也在密切关注美国的反应
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2249473/)
 
-作者：丁过
+**参议员玛莎·布莱克本： **
+[#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 不仅在密切关注普京对乌克兰的入侵，也在密切关注美国的反应。 【转华尔街日报：北京从俄入侵乌克兰中获益 非西方国家对冲他们的赌注，证实了中共国的地缘政治假设。】
 
-编辑与校对：冰糖葫芦喵、丁过
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-美国将对中共国展开新的301条款调查，这将导致在川普关税基础上“实施新一轮关税或禁运”。
 
-但戴琪表示，“一刀切”的方法不会奏效，言下之意就是欲速则不达，绳索已经套上中共的脖子，但要慢慢勒紧，否则会引发激烈振荡而自伤八百。
 
-不管谁来当总统，减少债务和赤字都是美国的当务之急，因此唯一能够整固财政的产业回归在未来几十年都将是美国的基本国策。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/戴qi.jpg)美国贸易代表戴琪（图片来源：路透社）
-乌克兰战争将大量资本驱离中俄市场，其中大部分将涌入自然和人文环境最好的美国，如果任由这些资本在金融市场泛滥，就会引发更大的通胀。
+> Xi Jinping is closely watching not only Putin’s invasion of Ukraine but also the U.S. response.[https://t.co/1VaZ8j8sxa](https://t.co/1VaZ8j8sxa)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 28, 2022](https://twitter.com/MarshaBlackburn/status/1508472468146692108?ref_src=twsrc%5Etfw)
 
-因此美国适时打响对中共国的贸易战，就是要用高关税和贸易壁垒保护美国制造的竞争力，从而将资本引入实业。
 
-实业启动后，为经济扩张服务的基础建设就自然铺开了，美国就将迎来一个新的、长时间的繁荣期，这是自川普时代就布局的战略，这个战略以发展传统油气产业为支点。
 
-其中的原理很简单：美国产业成功回归的一个前提是要有充足稳定、相对其他工业国廉价的能源，因为中低端产业需要大量廉价能源。
+**众议员迈克·加拉格尔新闻办公室： **
+众议员加拉格尔对记者[@JerryDunleavy](https://twitter.com/JerryDunleavy) 说：“我们需要意识到这一现实，并明确 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对乌克兰进行任何具体干预的后果。” 在这里阅读更多： 【转华盛顿监察员网文章：共和党敦促拜登在俄罗斯问题上向中共国施压】
 
-为了构建一个能够保障产业回归的能源供需体系，拜登将贸易战这个精确导弹瞄准了中共国的“世界工厂”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ap_09072906988-1585858960247.jpg)中共国东皖一家代工厂（图片来源：美联社）
-中共国的“世界工厂”贡献了全球一般商品出口额的约50%，有上亿人在这个“世界工厂”工作，是中共国经济的基石，是一块大肥肉，如果有效打击这个“世界工厂”，将引发中共国经济崩盘的骨牌效应，中共国的能源需求将全面下滑，进口将直线下降，国际市场上的俄罗斯能源缺口将被平滑掉。
 
-值得一提的是，在民主阵营加码制裁俄罗斯的当下，中共和印度却肆无忌惮抢购俄罗斯折价能源，用于制造让西方民众掏钱购买的商品，等于西方民众通过中共和印度向俄罗斯输送战争经费，这是西方无法容忍的。
 
-戴琪在釆访中清楚地表达了美国及其盟友全面打击中俄的决心，而西方对俄罗斯的制裁将成为未来针对中共的行动提供参考。
+> Rep. Gallagher to [@JerryDunleavy](https://twitter.com/JerryDunleavy?ref_src=twsrc%5Etfw): "We need to wake up to that reality and make the consequences for any concrete Chinese intervention in Ukraine clear.”
+> 
+> Read more here: [https://t.co/KHypzc4YGS](https://t.co/KHypzc4YGS)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 28, 2022](https://twitter.com/RepGallagher/status/1508475296248479747?ref_src=twsrc%5Etfw)
 
-她说，过去一年，我们解决了和欧盟、日本、英国等盟友的长期贸易争端，目的是在应对中共破坏市场问题上团结一致，并重启对话和联合行动。
 
-新闻来源链接：
 
-[华尔街“大佬”拉里·芬克：乌克兰战争标志着全球化的结束 (rfi.fr)](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220324-%E5%8D%8E%E5%B0%94%E8%A1%97-%E5%A4%A7%E4%BD%AC-%E6%8B%89%E9%87%8C%C2%B7%E8%8A%AC%E5%85%8B-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E6%A0%87%E5%BF%97%E7%9D%80%E5%85%A8%E7%90%83%E5%8C%96%E7%9A%84%E7%BB%93%E6%9D%9F)
+**参议员汤姆.科顿：** 
+迪士尼公开感谢在新疆经营集中营的 #中共 官员。 现在，迪士尼正在向家长们讲什么是适合教授幼儿园儿童？ 真是个笑话！
 
-[焦点：美国正准备一种新的对华贸易政策做法 加大施压中国–贸易代表戴琪 | Reuters](https://cn.reuters.com/article/us-tai-china-trade-policy-0326-idCNKCS2LN028)
 
-[聚焦：美国“精准导弹”瞄准中共国的“世界工厂”（上） – GNEWS](https://gnews.org/zh-hans/2249121/)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+> Disney publicly thanked the Chinese Communist Party officials running concentration camps in Xinjiang. 
+> 
+> And now Disney is lecturing parents about what's appropriate to teach kindergarteners? 
+> 
+> What a joke.
+> — Tom Cotton (@TomCottonAR) [March 28, 2022](https://twitter.com/TomCottonAR/status/1508527280762638341?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克.沃尔茨： **
+贝莱德 (BlackRock) 和拉里芬克 (Larry Fink) 在与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 和俄罗斯达成甜心交易的同时，向国内的美国公司兜售他们的“清醒”议程。 在[@ConsumersFirst](https://twitter.com/ConsumersFirst) 的这段精彩视频中了解芬克的虚伪程度
+
+
+
+> BlackRock and Larry Fink preach their 'woke' agenda to American companies here at home while making sweetheart deals with the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) & Russia.
+> 
+> See the full extent of Fink’s hypocrisy in this great video by [@ConsumersFirst](https://twitter.com/ConsumersFirst?ref_src=twsrc%5Etfw) 👇 [pic.twitter.com/BwVnZqqsrW](https://t.co/BwVnZqqsrW)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508547952939347980?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥： **
+参议员卢比奥敦促在中兴通讯的缓刑期结束后，对其 [@ZTEPress](https://twitter.com/ZTEPress)采取行动。 【附全文连接：美国参议员马可·卢比奥致函美国商务部部长吉娜·雷蒙多和司法部长梅里克·加兰，呼吁对 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 部分拥有的中国科技公司中兴通讯采取法律行动。】
+
+
+
+> Sen. Rubio pushed for action against [@ZTEPress](https://twitter.com/ZTEPress?ref_src=twsrc%5Etfw) after their probationary period ends.[https://t.co/eED7M9F94x](https://t.co/eED7M9F94x)
+> — Senator Rubio Press (@SenRubioPress) [March 29, 2022](https://twitter.com/SenRubioPress/status/1508598923505590275?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥：**
+万一您错过了：参议员卢比奥正在领导共和党在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 问题上采取更具战斗性的立场，纽约时报[@nytimes](https://twitter.com/nytimes)写道。 阅读更多【附纽约时报文章：像参议员马可·卢比奥这样的共和党人已经将反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 及其领导人 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 作为其外交政策的核心】
+
+
+
+> 🚨 ICYMI: Senator Rubio is leading the GOP push for a more combative stance on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), writes [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw).
+> 
+> Read more ⬇️[https://t.co/gE2Lpx2Fdj](https://t.co/gE2Lpx2Fdj)
+> — Senator Rubio Press (@SenRubioPress) [March 28, 2022](https://twitter.com/SenRubioPress/status/1508593603412729858?ref_src=twsrc%5Etfw)
+
+
+
+**国务卿安东尼·布林肯：** 
+就在一个多月前，普京总统发动了他的侵略战争。我们对乌克兰的承诺是牢不可破的。我们已经采取行动制裁俄罗斯政府官员，向乌克兰提供援助，并与我们的伙伴合作，敦促结束这场战争。
+
+
+
+> Just over one month ago, President Putin launched his war of aggression. Our commitment to Ukraine is ironclad. We have taken actions to sanction Russian government officials, deliver assistance to Ukraine, and collaborate with our partners to press for an end to this war. [pic.twitter.com/26vr6lBFCH](https://t.co/26vr6lBFCH)
+> — Secretary Antony Blinken (@SecBlinken) [March 29, 2022](https://twitter.com/SecBlinken/status/1508600297286897665?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
