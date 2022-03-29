@@ -2,22 +2,39 @@
 ---
 
 
-## 视频|欧洲检察署支持组队调查俄罗斯战争罪行
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2252307/)
+## 有声|GFashion重新定义时尚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252493/)
 
-制作：香草山视频部
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月26日，Gclubs2022年会盛典隆重举行。在直播现场，郭文贵先生和主持人都展示了数件GFASHION的单品。同时，向战友们分享时尚的意义。
 
-3月28日，欧洲检察署表示，该机构支持上周宣布成立的一支调查队，以调查俄罗斯在入侵乌克兰后所犯下的战争罪行。
+郭先生说，不同凡响的穿着会让人眼前一亮，GFASHION就有这样的作用。时尚代表一种对生活的态度，是人的精气神的延伸。郭先生回忆起母亲，尽管在困苦的年代，物质极度匮乏，但从未失去对生活的精神和韧劲。同样，俄罗斯入侵乌克兰后，从乌克兰逃离的难民都非常的体面，这也是时尚。
 
-据悉，立陶宛、波兰和乌克兰三国在上周签署一项协议，准备成立一个团队，以调查俄罗斯所涉嫌的战争罪行和人道罪行。欧洲检察署发表声明说，参与这个团队的成员，可能会扩大到欧洲其他成员国、第三国或者其他第三方。声明表示，欧洲检察署将提供法律和技术协助，其主要目的是支持证据收集、伙伴国之间安全迅速交流，以及信息和证据的传送。
+与此同时，新中国联邦人正在乌克兰前线救援。郭先生特别邀请了前线的战友参与到年会的直播，并为年会抽奖，其中意义非同凡响。文耀战友表示，能代表新中国联播来的乌克兰前线，能够帮助，能够给予的人是最幸福的。
 
-另据报道，该调查队也将与国际刑事法院协调合作。国际刑事法院是世界常设战争罪行法庭，该法庭在俄罗斯入侵乌克兰之后，就已经在乌克兰自行展开调查。
+这是一次爱和时尚的交流。无论什么时代，都要拥有对上天的信仰，对生活的态度，活好当下的每一步。郭先生说，我们受到上天万神万佛的指引，一切力量来自上天。在年会上，我们Gclubs会员年轻、智慧、勤劳、勇敢、分享、无私。整个年会都体现了天意。
 
-发稿：Daxia
 
+
+文字版原文：[GFashion重新定义时尚](https://gnews.org/zh-hans/2246411/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

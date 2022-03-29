@@ -2,41 +2,30 @@
 ---
 
 
-## 前英超球星将与盖特合作 进行直播
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251919/)
+## 共和党议员希望司法部对取消抓捕中共间谍的计划做出解释
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2251999/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1111-1.jpg)
+共和党议员写信给司法部长，要求司法部长对终止挫败中共间谍的计划做出解释，并敦促拜登总统积极打击中共在美国领土进行的间谍活动。
 
+川普政府曾在2018年发起一项倡议行动，旨在打击中共在美国的黑客入侵与商业机密窃取的经济间谍活动。共和党参议员认为中共的间谍活动已经对美国的国家安全造成了极大的威胁，中共间谍活动每年给美国造成的知识产权损失达2000-6000亿美元。然而司法部长终止了这项行动，其背后的运作机构来自耶鲁大学和斯坦福大学，该两所院校拥有尚未披露的来自中共的资金。据悉中共红衫投资创始人Neil Shen（沈南鹏）与耶鲁大学有着广泛的联系网络，而另一位臭名昭著的斯坦福学者李飞飞利用人工智能进行中共的某些军事目的。
 
+共和党议员们还指出，中共的间谍行动常在美国大学和政府机构中存在，其中千人计划就是中共的国家战略，用来窃取美国知识产权，同时中共也将军事和民用故意混淆在一起，美国的很多学校不知不觉支持了中共的军事项目。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+撰稿、发布：骄子
 
+* * *
 
+欢迎订阅我们的GNews账号：
 
-盖特官方28日消息，前英超球星、天空体育广播员马特·勒蒂西尔在接受采访时表示，他将与盖特合作制作每周直播节目。在那里，他将讨论体育、政治和生活，并与他的粉丝们进行互动。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-勒蒂西尔说：“盖特对言论非常尊重。这是一种非常不同的体验，而且比在推特上更愉快。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide14-3.jpg)
-这位前南安普顿球员以前从未大量参与政治活动，但在经历了中共病毒大流行期间的取消文化后，他称自己被“唤醒”了。他说，英国现在审查并控制人们的言论、政府几乎接管了所有电视台，如果它们不符合政府的说法，就会被受到威胁，而他自己反对管控或扼杀任何反对政府的言论。他警告说，英国正在变得像中共一样失去言论自由。
-
-作为一名足球运动员，勒蒂西尔曾为南安普顿出场 443 次，打进 161 个球，并为英格兰国家队出场 8 次。在为南安普顿队效力 17 年后，他成为天空体育周六足球节目的一员。
-
-参考链接：
-1. [Mr Le Tissier, who played for Southampton for 17 years and then became a feature on Sky Sports’s Soccer Saturday show, spoke to the Sunday Express to announce his new livestream show on the GETTR social media platform](https://gettr.com/post/p126rozbaf7)[.](https://www.rti.org.tw/news/view/id/2128515)
-2. [Don’t let UK become like China and lose free speech, warns Matt Le Tissier](https://www.express.co.uk/news/politics/1586743/UK-freedom-of-speech-woke-cancel-culture-Matt-Le-Tissier)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编：DM
-审核/编辑：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

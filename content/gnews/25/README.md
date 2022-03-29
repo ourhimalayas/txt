@@ -2,30 +2,53 @@
 ---
 
 
-## 共和党议员希望司法部对取消抓捕中共间谍的计划做出解释
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2251999/)
+## 澳大利亚执政者希望在大选前缓解通胀压力
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2252143/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1111-1.jpg)
-共和党议员写信给司法部长，要求司法部长对终止挫败中共间谍的计划做出解释，并敦促拜登总统积极打击中共在美国领土进行的间谍活动。
+撰稿：Gradient Boost
 
-川普政府曾在2018年发起一项倡议行动，旨在打击中共在美国的黑客入侵与商业机密窃取的经济间谍活动。共和党参议员认为中共的间谍活动已经对美国的国家安全造成了极大的威胁，中共间谍活动每年给美国造成的知识产权损失达2000-6000亿美元。然而司法部长终止了这项行动，其背后的运作机构来自耶鲁大学和斯坦福大学，该两所院校拥有尚未披露的来自中共的资金。据悉中共红衫投资创始人Neil Shen（沈南鹏）与耶鲁大学有着广泛的联系网络，而另一位臭名昭著的斯坦福学者李飞飞利用人工智能进行中共的某些军事目的。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/model.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-354.jpg)
+网络图片
 
-共和党议员们还指出，中共的间谍行动常在美国大学和政府机构中存在，其中千人计划就是中共的国家战略，用来窃取美国知识产权，同时中共也将军事和民用故意混淆在一起，美国的很多学校不知不觉支持了中共的军事项目。
+澳大利亚政府周二提出了一系列经济措施，例如将汽油税减半，以帮助缓解高通胀的影响，并在 5 月到期的选举中赢得选票。
 
-撰稿、发布：骄子
+根据财政部文件，在截至 6 月 30 日的本财年，由与乌克兰战争、大流行对供应链的破坏以及澳大利亚中东部的大范围洪灾，通货膨胀或将达到 4.5%的水平。
 
-* * *
+财政部长 Josh Frydenberg 于当地时间周二概述了他下一财年的经济蓝图，并为5 月 21 日之前举行的选举准备了一系列措施。这些措施包括一次性支付 250 澳元（合 187 美元）的所谓生活费用，为数百万中低收入者提供税收抵免，同时降低汽油税。
 
-欢迎订阅我们的GNews账号：
+随着澳大利亚通货膨胀形势逐渐严峻——部分原因是油价上涨——从周三开始，汽油和柴油税将从每升 44 澳分（33 澳分）（每加仑 1.25 美元）减半，为期六个月。澳大利亚石油研究所表示，全国汽油平均价格上周下跌 5.8 澳分（4.3 美分）至每升 2.07 澳元（1.54 美元）（每加仑 5.86 美元）。政府为此付出的代价为30 亿澳元（22 亿美元）。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+Frydenberg 表示，预计下一财年通胀率将降至 3.5%，2023-24 年将降至 2.5%。澳大利亚央行的目标是将通胀率控制在 2% 至 3% 的范围内。但他承认，由于俄罗斯继续入侵乌克兰以及疫情对中共国经济的影响，许多因素事实上难以确定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
+截至目前，澳大利亚的通货膨胀率仍然不到美国的一半，远低于加拿大、欧盟和英国。
+
+总理斯科特莫里森最早将于下周宣布选举日期。他的保守派联盟正在寻求罕见的第四个三年任期，不过在大多数民意调查中，他的联盟落后于中左翼工党反对派。
+
+*编辑：Gradient Boost*
+
+*发稿：疯狂的韭菜*
+
+新闻参考链接：
+
+[AP News](https://apnews.com/article/business-elections-australia-general-elections-prices-3c2a2b99e4e920521f6b42474e906487)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+
+
+
+更多资讯，更多关注
+
+[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2251364/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
+
+[郭文贵先生Gettr](https://gnews.org/zh-hans/2251364/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
+
+[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2251364/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
+
+[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2251364/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)0
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

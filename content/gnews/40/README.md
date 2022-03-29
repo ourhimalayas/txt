@@ -2,28 +2,36 @@
 ---
 
 
-## 视频|墙内欠薪、裁员、破产现象频发
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2251100/)
+## 埃隆·马斯克及以色列总理宣布感染中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251650/)
 
-制作：香草山视频部
+作者：澳喜农场 -追着曙光跑，纽约香草山教育部 – Naughty(文行)
 
-3月28日，最近多家媒体报道，中共拖欠农民工工资、行业巨头裁员现象频发，另有多家房地产企业宣布破产，墙内经济正在继续下行。
 
-3月25日，有网友在社交平台上爆料称，吉林建设方舱医院的过程中，多位农民工感染中共病毒，工程期间住宿环境差，并且在建成后被中共拖欠之前承诺的薪资。但这并不是中共第一次拖欠农民工工资，早在2020年2月中共在武汉兴建火神山医院时，就被爆出拖欠工资，并且几乎没有保证农民工防护措施。
 
-另一方面，在3月28日，继上周腾讯阿里被传出大幅度裁员后，墙内电商巨头之一的京东和网络视频巨头B站，也被爆出大幅裁员。而这距离京东掌门人刘强东，在2018年称“永远不会开出任何一个兄弟”，才过去不到4年的时间。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-同日，中共财政部北京监管局要求，防止各地方政府债券发行超过本地债务限额，暗示中共地方债务已经超过中共预期。另据墙内数据查询，中共赖以生存的房地产企业，在今年一季度中已经有超过100家发布了破产文书。
 
-观察人士指出，近一段时间以来墙内的欠薪、裁员、破产的消息层出不穷，这表明中共的经济并没有中共新闻中的光鲜亮眼，而是如郭文贵先生所爆料的那样，即将面临全盘崩溃的时刻。
 
-发稿：呼吸的雾霾（文小呼吸）
+3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
+参考链接：
+1. [@elonmusk： Covid-19 is the virus of Theseus.](https://twitter.com/elonmusk/status/1508356357967122434?s=21&amp;t=gjCuU8HllzktRUgs7-N5eQ)
+2. [マスク氏、コロナ検査で再び陽性　症状ほとんどなし](https://news.yahoo.co.jp/articles/97cbf50cd3a5f2f64352bb0a512b411414f54637)
+3. [Israeli PM tests positive for COVID, is working from home](https://abcnews.go.com/International/wireStory/israeli-pm-tests-positive-covid-working-home-83714645)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

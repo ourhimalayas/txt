@@ -2,37 +2,32 @@
 ---
 
 
-## 埃隆·马斯克及以色列总理宣布感染中共病毒
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251650/)
+## 才旺罗布先生的真正死因
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2251714/)
 
-作者：澳喜农场 -追着曙光跑，纽约香草山教育部 – Naughty(文行)
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-29-at-20.27.56.png)
+3月27日大直播中，郭先生讲述了战友才旺罗布先生的真正死因。
 
+才旺罗布先生在生活中是非常有才情的人，他交往的朋友都是有些文化深度的。介绍郭先生和才旺先生认识的人是国内音乐届某超级大佬，这位大佬曾说西藏人太可怜了，他愿意用生命去救每一个西藏人。才旺战友临死之前给郭先生传简讯，说在梦里见到穿长袍的郭先生，一起吃西藏的糌粑。郭先生也梦到了才旺，因为才旺之前说过想把自己这个风筝的线剪断，就自由了。而郭先生正好梦到了这样的情景，梦境里那条拉着风筝的线一下子就消失了。第二天，才旺先生就离世了。
 
+才旺战友因为看郭先生的直播受到共产党的迫害，看直播时他都会给所有战友念经祈福。他说要去自焚，郭先生一开始是完全相信的。但是后来亲身经历此事的人联系郭先生，才旺先生根本不是自焚的，他是被共产党活活打死的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+爆料革命背后有无数个付出鲜血和生命的战友。
 
+撰稿、发布：骄子
 
+* * *
 
-3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
+欢迎订阅我们的GNews账号：
 
-另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
-参考链接：
-1. [@elonmusk： Covid-19 is the virus of Theseus.](https://twitter.com/elonmusk/status/1508356357967122434?s=21&amp;t=gjCuU8HllzktRUgs7-N5eQ)
-2. [マスク氏、コロナ検査で再び陽性　症状ほとんどなし](https://news.yahoo.co.jp/articles/97cbf50cd3a5f2f64352bb0a512b411414f54637)
-3. [Israeli PM tests positive for COVID, is working from home](https://abcnews.go.com/International/wireStory/israeli-pm-tests-positive-covid-working-home-83714645)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
-
-总编/编辑/审核：DM
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
