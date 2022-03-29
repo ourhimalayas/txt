@@ -2,32 +2,30 @@
 ---
 
 
-## 俄乌土耳其会谈决议：俄同意部分地区停火
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2252363/)
+## 西藏人民的英雄歌手才旺罗布
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2252440/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/QCGWDCQNE5KCFN2LLUXAVVPEMY.jpg)
-3月29日周二，自俄罗斯入侵乌克兰以来，双方从3月10日以来的首次面对面会谈在土耳其举行。为了增加互信，创造进一步谈判的必要条件和实现协议的最终目标，俄罗斯承诺他将缩减对基辅和乌克兰北部切尔尼戈方向的军事行动。而乌克兰的建议是要求双方公开发表最详细的建议，即乌克兰同意不加入联盟或外国军队入驻，仅以北约集体防御条款来保证其安全。
+作者：纽约香草山农场教育部 马克文，朱丽叶
 
-会议同时确定，此次谈判的担保国家可以是以色列和北约成员国加拿大、波兰、土耳其等，俄罗斯、美国、英国、德国和意大利也可以提供担保。乌克兰表示任何和平协议都会在乌克兰举行全民投票表决，俄罗斯方表示回去会给普京报告。
+才旺罗布，1996年10月9日出生于西藏，中国著名藏民歌手，毕业于西藏大学，参加过大陆多个电视频道综艺节目演出。网上多个媒体报道，2022年2月25日，才旺羅布於西藏拉薩布达拉宫外自焚。中共一直封锁消息，外界并不知道才旺罗布究竟是自焚而死还是被中共军警打死，要求中共政府公布真相。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-202.jpg)
+才旺罗布是西藏那曲索县人，母亲索朗旺姆，中国藏族歌手，被称是21世纪初最有名的藏族女歌手之一。才旺罗布的叔叔索卡洛多做为政治犯被判数十年重刑。才旺罗布已婚，妻子為藏人丹拥拉姆，夫妻二人育有一女。
 
-撰稿、发布：骄子
+才旺罗布曾推出歌曲《糌粑》、《礼服》、《羌塘眼》、《除了你》、《轮回》与《回家》等，深受大陆各地和藏区欢迎，2022年2月24日，才旺罗布在微博上发布新的单曲，也是其生前发行的最后一首歌曲《如果有遗憾也别偷偷放不下》。
 
-reference：
+据悉，自从2009年起到至今，西藏地区已经出现上150位以上喇嘛、女尼或、农牧民等藏人自焚。他们目的是为了抗议中共对西藏残酷高压统治。 郭文贵先生在3月27日的《文贵大直播》中揭露，他通过知情人获悉，才旺罗布是被中共国安殴打致死后，继而被焚烧了遗体，中共当局对外谎称其自焚重伤不治。才旺罗布是新中国联邦和爆料革命的战友，他愿意为西藏自由解放而现身涅槃。新中国联邦人不会忘记他所种下的善因，护送他的英灵往生佛陀之极乐净土。
 
-[https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
+参考链接：
+1. [才旺羅布 （才旺罗布）](https://zh.wikipedia.org/wiki/%E6%89%8D%E6%97%BA%E7%BE%85%E5%B8%83_%EF%BC%88%E6%89%8D%E6%97%BA%E7%BD%97%E5%B8%83%EF%BC%89)
+2. [藏區連環自焚事件 （藏區連環自焚事件） AA](https://zh.wikipedia.org/wiki/%E8%97%8F%E5%8D%80%E9%80%A3%E7%92%B0%E8%87%AA%E7%84%9A%E4%BA%8B%E4%BB%B6_%EF%BC%88%E8%97%8F%E5%8D%80%E9%80%A3%E7%92%B0%E8%87%AA%E7%84%9A%E4%BA%8B%E4%BB%B6%EF%BC%89_AA)
+3. [西藏之声](https://cn.vot.org/2022/03/16/%E8%97%8F%E4%BA%BA%E8%A1%8C%E6%94%BF%E4%B8%AD%E5%A4%AE%E5%AE%98%E6%96%B9%E3%80%81%E5%9B%BD%E9%99%85%E6%8F%B4%E8%97%8F%E5%9B%A2%E4%BD%93%E8%AF%81%E5%AE%9E%E8%97%8F%E4%BA%BA%E6%AD%8C%E6%89%8B%E6%89%8D/%20%EF%BC%88%E8%A5%BF%E8%97%8F%E4%B9%8B%E5%A3%B0%EF%BC%89)
+4.[藏區連環自焚事件 (藏区连环自焚事件)](https://zh.wikipedia.org/zh-cn/%E8%97%8F%E5%8D%80%E9%80%A3%E7%92%B0%E8%87%AA%E7%84%9A%E4%BA%8B%E4%BB%B6%20%28%E8%97%8F%E5%8C%BA%E8%BF%9E%E7%8E%AF%E8%87%AA%E7%84%9A%E4%BA%8B%E4%BB%B6%29)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-欢迎订阅我们的GNews账号：
+总编/编辑/审核：Zion文恩
+校正/发稿：Fei797
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

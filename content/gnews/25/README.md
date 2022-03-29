@@ -2,32 +2,32 @@
 ---
 
 
-## 俄寡头资助乌克兰抵御侵略者实现自我救赎
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2252297/)
+## 俄乌土耳其会谈决议：俄同意部分地区停火
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2252363/)
 
-作者：澳喜农场 Leo M ，纽约香草山教育部 Naughty(文行)
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/QCGWDCQNE5KCFN2LLUXAVVPEMY.jpg)
+3月29日周二，自俄罗斯入侵乌克兰以来，双方从3月10日以来的首次面对面会谈在土耳其举行。为了增加互信，创造进一步谈判的必要条件和实现协议的最终目标，俄罗斯承诺他将缩减对基辅和乌克兰北部切尔尼戈方向的军事行动。而乌克兰的建议是要求双方公开发表最详细的建议，即乌克兰同意不加入联盟或外国军队入驻，仅以北约集体防御条款来保证其安全。
 
-据外媒消息，乌克兰总统泽连斯基在3月27日表示接受俄罗斯独立媒体采访时，获悉支持基辅俄罗斯商人的名单，其中包括英超切尔西队老板、俄罗斯亿万富豪阿布拉莫维奇。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-355.jpg)
-泽连斯基称，这些俄国富商向他表示希望能够以某种方式协助乌克兰对抗俄军的进攻，他提到，某些富商甚至表示会在战后帮助乌克兰进行重建。
+会议同时确定，此次谈判的担保国家可以是以色列和北约成员国加拿大、波兰、土耳其等，俄罗斯、美国、英国、德国和意大利也可以提供担保。乌克兰表示任何和平协议都会在乌克兰举行全民投票表决，俄罗斯方表示回去会给普京报告。
 
-泽连斯基表示会对协助基辅对抗俄军的俄罗斯富商提供安全保障，并针对其企业提供更多发展机会。 此外，他还向北约领导人以及美国总统拜登呼吁，不要在全球范围制裁这些富商。
+撰稿、发布：骄子
 
-在3月27日的《文贵大直播》节目中，郭文贵先生就“泽连斯基呼吁西方社会不要制裁阿布拉莫维奇等有良知的俄罗斯寡头”这一话题时，引申谈及了中俄富豪的巨大差异。
+reference：
 
-文贵先生表示，阿布拉莫维奇是俄罗斯前总统叶利钦部分家族资产的代理人，他与普京的交往仅仅是为了兑现保护叶利钦家人和财产安全的承诺。虽然拥巨额财富，但阿布待人温和有礼，切尔西俱乐部的人都十分喜欢他们这位老板。与之形成鲜明对比的是，许多中国富商作为中共权贵家族的资产代理人，其无知、狂妄的程度和他们对老百姓血汗钱的觊觎贪婪，已陷入不可挽回的程度。在官商勾结、权钱交易中，他们迷失了自我，谎言和欺诈筑成了他们所谓的“事业”。
+[https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
 
-全球各势力已开始围剿俄罗斯普京和中共习近平两大邪恶独裁轴心。诸多像阿布这样心存良知的资本代理人纷纷做出了支持正义的选择，他们终将获得现代文明框架下各法制国家的宽恕和庇护。而诸多由于懦弱、贪婪等人性缺陷，选择与邪恶为伍的中共资产代理人，最终难逃兔死狗烹的悲惨命运，即便侥幸逃脱，也将面临道德和法律的制裁。
+* * *
 
-参考链接：
-1. [**2022年3月25日 文贵大直播：从俄乌战争看真正的世界军事实力；香港地产大缩水金融市场黑市交易**](https://gettr.com/streaming/p11tme3b4de)
-2. [澤倫斯基：俄羅斯寡頭伸援基輔 包括切爾西老闆](https://www.cna.com.tw/news/aopl/202203280007.aspx)
+欢迎订阅我们的GNews账号：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-总编/编辑/审核：Zion文恩
-校正/发稿：Fei797
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

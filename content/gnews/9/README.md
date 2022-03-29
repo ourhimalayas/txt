@@ -2,31 +2,24 @@
 ---
 
 
-## 中共式防疫的荒谬：吃张蛋饼竟成次密接者被隔离14天
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2252669/)
+## 马斯克的星链系统正在指导乌克兰进行无人机攻击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2252768/)
 
-**作者:  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-75.jpg)
-（图片来自网络）
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3674.png)图片来源：德国之声
+据《国会山报》3月28日文章，根据《德国之声》（DW）的报道，鉴于伊隆·马斯克（Elon Musk）星链系统的强大覆盖能力，这些强大的设备正用来给予乌克兰极大帮助，指导无人机进行攻击。
 
-近日，中共国的社交媒体上热传着这样一个既让人啼笑皆非，又令人感到愤怒的中共防疫事件：一位“倒霉蛋”仅因吃了半张外卖蛋饼，就被定为“次密接者”，并被强迫隔离14天。而“密接者”，竟然是那张蛋饼！
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-47.jpg)
-通过网上的对话截图可以了解到该事件的始末：这位“倒霉蛋”曾叫了个蛋饼外卖，并且只吃了半张蛋饼。然而在过去了长达11天后，中共通过大数据调查找到他，称制作那张蛋饼的员工，虽然在制作蛋饼的当天核酸检测是阴性，但次日变成了阳性。于是蛋饼成了“密接者”，而他成了“次密接者”，因此要求他隔离14天。
+一位乌克兰军官告诉英国《泰晤士报》（The Times）说：“我们使用星链（Starlink）设备，将无人机小组与我们的炮兵小组连接起a来”。并说他的部队使用星链在飞行监视的无人机和向俄罗斯阵地开火的炮兵部队之间进行连接。”
 
-“倒霉蛋”说，他还算“幸运”的，仅仅只是居家隔离。而一个有400人的“蛋饼群”里的其他人不仅同样被隔离，家门还被贴了封条。
+这位军官说：“如果我们在夜间使用具有热视力的无人机，则无人机必须通过星链系统与炮兵部队进行连接，并创建攻击目标识别”。
 
-像这样的悲催故事仅仅只是在中共荒谬变态的防疫措施下，百姓所承受折磨的冰山一角。自中共病毒爆发以来，投毒者中共一直在厚颜无耻地向国内外吹嘘其防疫措施如何“精准”、“有效”，而这个故事告诉了人们，何为中共式防疫所谓的“精准”。
+《德国之声》说，星链系统也已经成为了乌克兰人访问互联网的主要手段，否则就成了与世隔绝。但星链系统的存在也导致了马斯克的公司与俄罗斯之间的网络战，（俄罗斯方面）入侵部队试图干扰星链系统接收器，而星链公司则通过发布软件更新而进行了修补。
 
-新闻链接：
+*责编：白夜*
 
+**新闻来源**
 
-
-> 防疫伦理悲剧，次密接把密接吃了 [pic.twitter.com/uloPizgRGS](https://t.co/uloPizgRGS)
-> — inevitable温中散寒与impermanent扑热息痛 (@RogueYuan) [March 25, 2022](https://twitter.com/RogueYuan/status/1507422312768880650?ref_src=twsrc%5Etfw)
-
-
-
-* * *
+[Equilibrium/Sustainability — Musk’s Starlink now aiding Ukrainian military strikes](https://thehill.com/policy/equilibrium-sustainability/600099-equilibrium-sustainability-musks-starlink-now-aiding?rl=1)
 
  
 
