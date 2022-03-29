@@ -2,22 +2,30 @@
 ---
 
 
-## 秘翻在线：马斯克接种疫苗仍二度确诊
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2251395/)
+## 美中脱钩已经是现实，而欧洲还在讨论
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2251458/)
 
-**编译：明澈**
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-29-182834.jpg)
-综合外媒3月29日报道，特斯拉首席执行官马斯克于2020年11月第一次确诊过中共病毒（Covid-19）感染，不幸的是，今天他在推特发文，表示自己再度出现轻微的感染症状。虽然他并未表露是否是经由快筛或PCR检测确定阳性，但他在推文中以中共病毒是特修斯的病毒，暗示自己或许是中了中共病毒（Covid-19）变种。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
-特修斯的说法，应是出于特修斯之船，即特修斯悖论。该悖论于1世纪时的希腊作家普鲁塔克提出，借质疑特修斯船上的木头逐渐被替换，直到所有的木头都不是原来的木头，那这艘船还是原来的那艘船吗？来探讨“物体的构成要素被置换后，它依旧还是原来的物体吗？”这一问题。
 
-报导指出，马斯克曾在2021年12月的一次采访中向《时代》杂志透露，他和他所有符合条件的孩子们都已经接种了中共病毒（Covid-9）疫苗，但马斯克明确表示，自己反对非自愿接种疫苗者被强制要求接种疫苗。更表示接种疫苗是一件承担风险的事，人们一直在冒险。此外，他还呼吁人们反思，美国自由是否已经遭到侵蚀。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-AP-Teaser-USA-EU-Chiina-bn-bn-Kopie.jpg)
 
-马斯克认为科学毫不含糊，对疫苗是经过科学研究过的大概深信不疑，而在这次即将爆发的疫苗危机中，也许人们最终明白“质疑”才是科学最基本的精神。希望他早日康复！
 
-**新闻来源**: 【[1](https://twitter.com/elonmusk/status/1508356357967122434?cxt=HHwWhMCo9bWH4e4pAAAA)】【[2](https://www.newsmax.com/newsfront/business-finance-elon-musk-inventors/2022/03/28/id/1063254/)】【[3](https://www.cnbc.com/2022/03/28/elon-musk-says-he-has-covid-as-tesla-shanghai-faces-health-restrictions.html)】【[4](https://www.theguardian.com/technology/2022/mar/28/elon-musk-covid-19-positive-test-second-time)】
+资料来源：welt.de
+
+为应对普京的侵略战争，俄罗斯在很大程度上与西方经济体系脱钩。这对支持莫斯科的超级大国中共国 意味着什么？柏林必须处理华盛顿早已回答的问题。
+
+英特尔在马格德堡建立芯片工厂。这条新闻最近上了头条。重点主要放在投资金额（170 亿欧元）和创造的就业数量（3,000）上。但这些数字背后隐藏着一个地缘政治转折点。因为美国半导体制造商决定在高工资国家德国建立芯片工厂，旨在减少对亚洲地区，尤其是中共国 的计算机芯片的依赖，这些地区越来越被认为是不安全的。
+
+自冷战结束以来，乌克兰战争向世界展示了地缘政治的重要性，这是其他任何政治事件都没有的。虽然美国和欧洲能够很快就制裁俄罗斯金融公司达成一致，但华盛顿和柏林正在采取不同的方式。
+
+简评： 欧洲永远走在美国的后面， 但是最近的俄罗斯入侵乌克兰， 让欧洲人顿然觉醒。 在欧洲有关和中共国脱钩的理念在美国已经是付诸行动中， 欧洲才开始讨论这个议题。 相信欧洲会紧随美国的脚步， 中共国被群殴的时候就要来到， 而悲哀的是， 这个结果受到损失和惩罚的永远是老百姓。
+
+🔗 [https://www.welt.de/politik/ausland/plus237778533/Ukraine-Krieg-Was-die-USA-mit-China-vorhaben-gilt-in-Europa-als-schmutziges-Wort.html](https://www.welt.de/politik/ausland/plus237778533/Ukraine-Krieg-Was-die-USA-mit-China-vorhaben-gilt-in-Europa-als-schmutziges-Wort.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

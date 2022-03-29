@@ -2,44 +2,42 @@
 ---
 
 
-## 美国财政部下一个制裁目标是俄罗斯的供应链
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2251299/)
+## 美国宇航员将按原计划搭乘俄罗斯飞船返回地球
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2251364/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：红杉
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/292-2.png)（图片来自网络）
+美国宇航员Mark Vande Hei将按计划搭乘俄罗斯飞船于本月30日返回地球。他已在国际空间站工作了355天。同行的还有两名俄罗斯宇航员，飞船将在哈萨克斯坦着陆。
 
+受俄乌战争影响，Mark Vande Hei担心可能要滞留太空。而美国宇航局国际空间站项目经理Joel Montalbano表示，马克肯定会回家，正在与俄罗斯同事进行沟通。虽然宇航员们了解一些正在发生的战争信息，但他们仍然作为一个团队照常工作。美国与俄罗斯在国际空间站的合作没有出现紧张。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/3FKSYT5DRVLT7JFAUAW5EG6PSQ.jpg)
+自美国亚特兰蒂斯号航天飞机于2011年结束最后一次飞行后，美国宇航员开始搭乘俄罗斯飞船前往国际空间站。空间站由美国、俄罗斯、加拿大、日本和几个欧洲国家合作运转。尽管美俄不断出现关系紧张，但空间站合作已经持续了20年。美国负责动力和生命支持，俄罗斯控制推进力等部分。
 
+然而俄乌战争已经影响到俄罗斯与美欧国家在太空领域的合作。俄罗斯与欧盟合作发射欧洲火星探测器ExoMars项目也受到阻碍。探测器发射此前因新冠疫情而延迟至2022年9月，而欧洲太空局此前宣布已经不太可能如期发射。同时俄罗斯国家航天集团曾宣布暂停在法属圭亚那库鲁的发射活动，并召回在当地的工程师和技术人员。
 
-资料来源：路透社
+俄罗斯国家航天集团总裁德米特里·罗戈津（Dmitry Rogozin）本月12日曾威胁，西方对俄罗斯制裁措施影响国际空间站的运作，有可能引发国际空间站坠落，同时他还恐吓推出制裁措施的国家需要“三思”。
 
-美国财政部副部长瓦利·阿德耶莫周二表示，美国及其盟国计划对俄罗斯经济的更多部门实施新制裁，这些部门对维持其对乌克兰的入侵至关重要，包括供应链。
+*编辑：**Gradient Boost*
 
-阿德耶莫在欧洲之行与盟国就加强和执行制裁以惩罚俄罗斯进行磋商时，在伦敦发表讲话说，扩大这些努力旨在破坏“克里姆林宫操作其战争机器的能力”。
+*发稿：**mgjxs*
 
-阿德耶莫在智库查塔姆研究所的一次活动中说：“除了制裁那些让克里姆林宫从事恶意活动的公司，我们还计划采取行动破坏他们的关键供应链。”
+资料来源：
 
-他说：“我们的目标是使用一种综合方法，包括随着时间的推移会产生影响的出口管制和立即产生影响的制裁。”他补充说，他们还将针对俄罗斯使用的替代军事供应商。
+[After nearly a year in space, NASA astronaut Mark Vande Hei is coming back to Earth](https://www.fox6now.com/news/after-nearly-a-year-in-space-nasa-astronaut-mark-vande-hei-is-coming-back-to-earth)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
 
-自 2 月 24 日入侵开始以来，西方盟友冻结了俄罗斯央行的外汇资产，禁止俄罗斯主要银行和富有的精英进行硬通货交易，并限制先进半导体和其他技术的出口。
+更多资讯，更多关注
 
-制裁剥夺了克里姆林宫的资源，并帮助削弱了俄罗斯的经济。阿德耶莫说，只要入侵继续，制裁就不会停止。
+[乌克兰救援UkraineRescue官方Gettr](乌克兰救援UkraineRescue官方Gettr)
 
-他将制裁的成功归因于强大的多边努力以及民主国家在第二次世界大战结束时建立的国际经济和金融体系的力量，该体系创建了包括国际货币基金组织、世界银行和前身世界贸易组织。
+[郭文贵先生Gettr](郭文贵先生Gettr)
 
-他说，这些机构创造了国际规则、规范和价值观，为数十年的繁荣奠定了基础。
+[全球喜马拉雅农场联盟委员会Gettr](全球喜马拉雅农场联盟委员会Gettr)
 
-阿德耶莫表示，他预计中国和印度等国家仍将是全球金融体系的一部分，而不是将乌克兰危机视为与西方脱钩的时刻。
-
-阿德耶莫说，需要加强导致制裁的国际体系，包括解决冲突造成的粮食不安全问题，冲突扰乱了乌克兰的粮食运输。
-
-他补充说，必须改进经济制裁的使用以保持其效力，包括避免单边行动，并确保它们与明确的政策目标挂钩，并且在实现这些目标。
-
-🔗 [https://www.reuters.com/business/us-allies-aim-sanctions-more-russian-sectors-supply-chains-treasurys-adeyemo-2022-03-29/](https://www.reuters.com/business/us-allies-aim-sanctions-more-russian-sectors-supply-chains-treasurys-adeyemo-2022-03-29/)
-
-责任编辑、发布： Shuizhuyu
+[喜马拉雅联盟大使馆全球客服中心Discord](喜马拉雅联盟大使馆全球客服中心Discord)
 
  
 
