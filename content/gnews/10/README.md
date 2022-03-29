@@ -2,68 +2,51 @@
 ---
 
 
-## 惊魂时刻
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2249046/)
+## 美国国债收益率倒挂加剧了对经济衰退的担忧
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2249150/)
 
-作者：香草山健身部 新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3609.png)
-
+编辑：文宝
 
 
 
-下午单位来了男顾客，
-阿姐笑脸相迎忙碌起来，
-我对着屏幕爬格子。
-突然急促的呼吸声吓走了我的灵感，
-只听阿姐惊魂未定的喊他名字。
-我条件反射疑他苗毒反应，
-果然刚打的第三针……
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1A3D1D2B-7C53-4367-8AB5-5DF279C90BBA.jpeg)
 
-所幸转为安好！
-那下一次呢，那些打了三针的大多数呢？
-世人到选择还不知病毒从哪里来
-真相还没有被解剖，
-疫苗却已到第四针？
-我们不知道疫苗从哪里来，
+美国 5 年期和 30 年期国债收益率周一自 2006 年以来首次倒挂，引发了对可能出现衰退的担忧。
 
-大多数已经争先恐后瞄上身了。
-每个人都知道被做了小白鼠，
-却没有人知道病毒、疫苗都是生物武器。
-病毒疫苗是中共杀人的子母弹。
-病毒感染死了人，
-疫苗致残致死人，
-防疫防病死了人，
-却无处寻真相，
-无法得公理！
-病毒没解药，病毒加毒药，
-阴谋接着另一个阴谋，
-都是中共屠杀人类的罪恶诡计。
-人们在中共刻意隐瞒的高墙里得不到真相，
-又如何能分辨真假？
-又如何能辨别罪恶用心？
-死去太多太多的人，
-世界正朝着红魔设计的方向在毁灭，
-中共肆虐着人类，
-灭共的新中国联邦拯救人类，
-在人类遭受生物毒灾，
-新中国联邦公告青蒿素，
-我们要让世界知道真相，
-灭共是人类文明的进步！
+5 年期国债收益率升至 2.56%，而 30 年期国债收益率跌至 2.55%。 这是自 2006 年以来较短期限的 5 年期美国国债收益率首次高于较长期的 30 年期美国政府债券——距全球金融危机仅数年。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/B6CF6668-4CF3-46A4-B349-47D413F1DEFD.jpeg)
+5年期国债收益率在盘中高点触及2.67%的高位。
 
-**编辑**/**校正**/**发稿：**玫瑰圓
+可以肯定的是，交易员关注的主要收益率利差——2年期和10年期利率之间的利差——目前仍为正值。 投资者目前在很大程度上忽略了 5-30 的负利率差，标准普尔 500 指数当天上涨。
 
-**更多资讯，更多关注**
-[**纽约香草山农场**GTV-**香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场**GTV-MOS TALK **香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/31410D40-4BE4-46DD-B313-09ED1F809641.jpeg)
+2 年期国债收益率上涨 4 个基点至 2.34%，基准 10 年期国债收益率下跌 2 个基点至 2.473%。
 
+### TREASURYS
+
+
+| TICKER  | COMPANY  | YIELD  | CHANGE  | %CHANGE  |
+| --- | --- | --- | --- | --- |
+| [US3M](https://www.cnbc.com/quotes/US3M) | U.S. 3 Month Treasury | 0.647 | 0.033 | 0 |
+| [US1Y](https://www.cnbc.com/quotes/US1Y) | U.S. 1 Year Treasury | 1.715 | 0.039 | 0 |
+| [US2Y](https://www.cnbc.com/quotes/US2Y) | U.S. 2 Year Treasury | 2.381 | -0.003 | 0 |
+| [US5Y](https://www.cnbc.com/quotes/US5Y) | U.S. 5 Year Treasury | 2.56 | -0.006 | 0 |
+| [US10Y](https://www.cnbc.com/quotes/US10Y) | U.S. 10 Year Treasury | 2.461 | -0.016 | 0 |
+| [US30Y](https://www.cnbc.com/quotes/US30Y) | U.S. 30 Year Treasury | 2.541 | -0.032 | 0 |
+
+
+
+
+从历史上看，收益率曲线在衰退之前已经倒挂，表明他们对经济健康状况的担忧。
+
+摩根士丹利首席全球经济学家塞思卡彭特表示：“随着美联储将加息至限制性区域，曲线将反转。” “与过去一样，市场将争论反转是否预示着衰退。 导致衰退的政策错误显然是可能的，但我们的基准是，没有衰退的倒挂更有可能。”
+
+
+
+原文链接：[https://www.cnbc.com/2022/03/28/us-bonds-treasury-yields-invert-flashing-recessionary-warning-sign.html](https://www.cnbc.com/2022/03/28/us-bonds-treasury-yields-invert-flashing-recessionary-warning-sign.html)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-45.png)DISCORD
 
  
 

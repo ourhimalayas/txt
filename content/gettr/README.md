@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 2:38 AM (UTC)`
+
+3/27/2022 Miles Guo: Although President Biden differentiated the Russians from Putin in his speech made in Poland, he did not specifically distinguish the Chinese people from the CCP. The biggest mistake of Xi Jinping is that he misjudged Biden and international politics. Because the CCP’s dictatorship fundamentally contradicts the democratic system of the US and the West.<br/><br/>3/27/2022 文贵直播：拜登总统波兰演讲把普京和俄罗斯人民区分开了，却未明确区分中国人和中国共产党；习近平最大的错误就是误判了拜登、误判了国际政治，因为中共独裁和美国及西方民主制度之间存在着根本对立<br/>
+![img](https://media.gettr.com/group17/getter/2022/03/29/02/3639ca64-2fa5-02f3-7c7a-ce7c44434ceb/out.jpg)
+
+---
+
 `@miles 3/29/2022 2:04 AM (UTC)`
 
 03/28/2022 全球首播 NFSC finance 新中国联邦 | 喜财经 系列节目之 《枫叶财经》第一期
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 2022.03.28 早《新中国联邦新闻访谈》欧美制裁俄罗斯推升全球钢价； 数字人民币开始应用于结算工程款； 美国宣布想乌克兰追加一亿美元民事安全援助； 所罗门群岛与中共进行安全合作谈判引担忧； 新中国联邦前线救援进行时
 ![img](https://media.gettr.com/group15/origin/2022/03/28/13/2b349006-45c2-3e7c-aeee-c76ff83ee042/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/28/2022 12:30 PM (UTC)`
-
-2022.03.28 早 《新中国联邦新闻》黄色救援马甲醒目标语区分中共与新中国人； 新中国联邦两周年纪念活动正式启动
-![img](https://media.gettr.com/group48/origin/2022/03/01/13/72c339ef-f26c-5cb0-c985-b4fba74493cd/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

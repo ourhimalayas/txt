@@ -2,30 +2,55 @@
 ---
 
 
-## 大直播后记：新中国联邦两周年纪念活动正式启动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2249118/)
+## COVID-19疫苗副作用集萃（2022.3.29B）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2249237/)
 
-整理：Guojunior、红红火火
-编辑：小红帽
+整理/编辑：文泓
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/47d7060da2cdf6b4.png)图片来源：雅典娜农场设计组（614）
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-3.png)图片来源：雅典娜设计组
 
 
-新中国联邦两周年纪念活动，从今天开始启动。由我们新中国联邦的联盟委员会全面（主导），所有的农场主都是委员，都要参与。总指挥还是草根兄弟，美国协调还是今天的大卫和老班长。老班长和长岛哥配合，是副总导。总导是草根兄弟。全球农场主全部都是委员，全面参与，正式进入这个两周年的新中国联邦（纪念活动），一直到6月4号。今天宣布，从今天开始。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-另外，在6.4之前，我们要向大家，所有你们赚到了钱的，拥有喜币的人，一定会让你们收到比抽出了大奖的还高兴的大新闻。我头2天说的4到5周，2到3周看到了喜支付在GFashion平台上使用。我再给大家说一遍，Nicole，如果你们有钱，现在一定要买GFashion。每样东西都值得你们拥有，绝对不会吃亏。就如你一美金买一个4000美金的东西一样，你为啥不买呢？不要说等着币涨了多少才买。你一定要花，你们还有币的。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-第2个，要记住，第2个大的决定，很快在一个月左右会到来，一定会到来。然后6月4号又要给你们战友们献大礼。大家都看到，都感觉到了。昨天跟今天的情况都看到了，是吧？
+**新冠疫苗后遗症****——****急性髓系白血病**
 
-参考资料：[郭文贵先生2022年3月27日大直播](https://www.gettr.com/streaming/p124vkgc8a0)
+**淼飘柔：**
 
-发布*：tianzhihuan*
+在家休息第11天，每天都要喝一锅汤，不喝还不可以，来家也胖了几斤肉，脸都比之前大了。继续加油，还有一个多星期又要回医院啦，加油！
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+**以下是评论（回复）：**
+
+**阿豆：**
+
+加油！请问你打疫苗了吗？
+
+- **用户已注销：**
+- 这跟疫苗有关系吗？
+- **卜卜兔：**
+- 有关系，我同事打完都视网膜脱落了，没办法现在都强制打，我打完咳嗽的不行，肺都要咳出来了。
+- **王老师的小黑板：**
+- 快去查个血常规吧。
+
+
+[**我就是我呀！**](https://www.xiaohongshu.com/user/profile/61d586db000000001000bce9)**：**
+
+为什么这两年得了白血病确诊后，医生也会问打了疫苗了吗？
+
+[**次第花开**](https://www.xiaohongshu.com/user/profile/5b06d6cbe8ac2b68ccb96fa4)**：**
+
+美女试试靠谱的中医吧！一定要找靠谱的！
+
+参考链接：[年轻的淼飘柔患上了白血病](https://www.xiaohongshu.com/discovery/item/6232917f0000000001024a41)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
