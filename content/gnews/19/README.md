@@ -2,34 +2,26 @@
 ---
 
 
-## 俄罗斯试图让中共成为俄乌停战的担保人
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2252635/)
+## 拜登波兰演讲感召东欧人民对抗独裁暴政
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2252767/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/BACYW3L7IRP5JCBBOS2IYBOV3E.jpg)
-3月29日周二，俄罗斯与乌克兰在土耳其举行和平谈判。双方旨在调停战争，实现最终和平协议，俄罗斯承诺对乌克兰基辅和北部地区地区停止军事行动，乌克兰承诺作为中立国，不派驻任何盟军。同时双方约定此项协议的担保人可以是以色列和北约成员国加拿大、波兰、土耳其等，俄罗斯、美国、英国、德国和意大利也可以提供担保。
+作者：日本东京方舟农场 Miyali7768(文玉）
 
-中共大外宣此前报道，俄罗斯外长拉夫罗夫表示欧盟国家完全没有能力作为解决某些冲突的担保人。而俄乌会谈确立的担保国家德国、意大利是欧盟国家。
+据外媒报道，美国总统拜登26日在波兰首都华沙的皇家城堡发表演说，形容俄罗斯发动入侵乌克兰的战争是一场“战略失败”, 同时明确警告俄方：切勿入侵北约缔约国的一吋领土， 重申集体捍卫北约盟国的“神圣义务“。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-112.jpg)
+此外，在演说中，拜登表示，俄罗斯人民“不是我们的敌人”，西方国家针对俄罗斯的各项严厉经济制裁的措施，皆因普京的一意孤行。
 
-郭先生此前曾爆料，“圣彼得堡的阴谋”就是俄罗斯想让中共习近平来做停战担保人，而习近平可以借此彰显中共国大国风范。但这样做的后果就是牺牲十四亿中国老百姓。目前看来郭先生的爆料已经得到验证。
+拜登在演讲中把乌克兰对抗俄罗斯入侵，与对抗苏联的“自由战争“相提并论，警告全世界必须准备好”长期抗战“，并向现场听众和乌克兰人保证，”我们与你们站在一起“。
 
-reference：
+郭文贵先生在27日的大直播中，点评此演讲颇具1985年里根总统的《勃兰登堡门演讲》的号召力。1987年6月，时任美国总统里根造访原西德首府柏林，在原东西柏林分界线——勃兰登堡门发表了划时代的主旨演讲，其中的经典语句——“戈尔巴乔夫先生，请来到这扇门前，推倒门前这堵墙！”鼓舞了无数身处共产主义意识形态迫害下的东欧人民，四年后的1989年，东欧共产主义政权相继倒台，柏林墙在东西的人民的奋力争取下最终倒塌。
 
-[http://www.nbd.com.cn/articles/2022-03-28/2190178.html](http://www.nbd.com.cn/articles/2022-03-28/2190178.html)
+参考链接：[拜登怒斥蒲亭是屠夫 不能讓他繼續掌權\[影\]](https://www.cna.com.tw/news/aopl/202203270009.aspx)
 
-[https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-* * *
+总编/编辑/审核：Zion文恩
+校正/发稿：Fei797
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
