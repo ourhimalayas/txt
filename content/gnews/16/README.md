@@ -2,31 +2,41 @@
 ---
 
 
-## 财经｜美国将就中共太阳能板制造商逃避关税一案展开调查
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2250102/)
+## COVID-19疫苗副作用集萃（2022.3.29.D）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2250217/)
 
-**图/文｜CP**
-**发布时间｜29/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美國將就中共太陽能板製造商逃避關稅一案展開調查.jpg)
+整理：雅典娜情报组(BENJ1)
+编辑：Kelly
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-3.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+
+打完第三针疫苗浑身疼
+
+大家打完第三针疫苗有什么反应吗？我打完之后，今天早上是十点多打的，白天的时候都好好的，然后到晚上睡觉前就浑身特（别）痛，后背、后腿，还有么肩胛骨痛，就是整个人的背面都是痛的，我这会儿痛得睡不着。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-72.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-68.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/10-51.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/11-54.png)
+跟帖评论选集：
+
+1. 我老妈打完第二天头疼，身上没力气，晕晕乎乎的，让我不要去打了，之前不去打还骂我，我说了副作用大（她还）不信。
+2. 我也是打完得了免疫系统疾病，过敏性紫癜，现在已经变成肾炎了。
+3. 我第二针就这样，开始掉发，现在还得去看免疫风湿科再诊断下。
+4. 我疫苗打完之后，淋巴结肿了，然后关节疼，去了风湿免疫确诊干燥综合征。一辈子吃药还会引起并发症，明明四月份刚做完全身体检都好好的，现在开始腋下淋巴结肿大。
+5. 我跟你完全一样，疼了两周多，而且胸闷疼，高烧。现在三个多月了，依然时不时全身疼，突然起烧。
+6. 打完疫苗先是寻麻疹，然后玫瑰糠疹，一两个月了还没好。
 
 
-美国商务部官员周一（28日）表示，他们将启动一项针对中共太阳能电池板制造商是否逃避关税的调查，以回应加州太阳能板生产商Auxin Solar早前向商务部提出的指控。
+参考链接：
 
-Auxin Solar发现在马来西亚、泰国、越南和柬埔寨营运的部份太阳能企业，是由中共大型太阳能板制造商所成立，它们将零件运往这4个东南亚国家进行组装，然后将制成品出口到美国，以此避开向美国缴付“反补贴和反倾销关税”。
+[http://xhslink.com/X7XOtg](http://xhslink.com/X7XOtg)
 
-据商务部在网站上公开的一份备忘录显示，Auxin提供的证据表明，在这四个国家运营的太阳能公司是中共一间大型生产商的子公司，如果证实的确是在中国制造，那他们必须缴付美国的反补贴和反倾销税。备忘录还补充指，Auxin明确列示了指控所需的所有要素。
+发布：tianzhihuan
 
-当局表示，调查将以全国范围内的问询形式进行，要求目标国家的公司提供有关其太阳能电池和组件生产以及向美国出口的资讯。商务部有150天时间进行调查以及发布初步结果。最终决定将在300天之内做出，亦有可能延长65天。
-
-Auxin执行长Mamun Rashid在给媒体的一份声明中表示：“多年来，中共太阳能生产商不仅一直拒绝在美国对其产品进行公平定价，而且还竭尽全力削弱美国制造商和工人，并在一些不履行义务的国家设立子公司以规避责任。 我们感谢商务官员认识到调查这种普遍存在的倾销行为的必要性，以及它如何继续伤害美国太阳能生产商。 公平贸易和执行我们的贸易法对于重建美国太阳能供应链来说至关重要。”
-
-**來源｜**[**TheHill**](https://thehill.com/policy/energy-environment/600072-feds-to-probe-allegations-asian-solar-manufacturers-skirted-tariffs)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
