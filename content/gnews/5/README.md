@@ -2,23 +2,29 @@
 ---
 
 
-## 有声| 拜登警告“粮食短缺”即将成为现实
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2249682/)
+## 有声｜为保对俄制裁有效 日本收紧加密货币监管
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249860/)
 
-配音：香草山农场 – 文锤
+By:**秘翻新闻**
 
-当地时间3月24日，据外媒消息显示，美国总统拜登当天在布鲁塞尔举行的新闻发布会上确认，全球粮食短缺问题将成为现实。
+**2022-03-29**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-67.png)图片来源 Coin telegraph
+[据Coin telegraph 3月28日报道，一位日本官员透露，日本计划修改其《外汇和对外贸易法》，将加密货币交易所纳入管理银行的法律范围内。以防止受制裁国家使用数字资产规避制裁。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
+[日本内阁官房长官松野博和在新闻发布会上表示，政府正计划提出一项法案，修改外汇法，将加密货币交易所包括在内。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
+[该国新当选的首相岸田文雄也支持拟议的修订，并呼吁与西方盟友协调行动，以执行新的法律。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-**文字版原文：[拜登警告“粮食短缺”即将成为现实](https://gnews.org/zh-hans/2236565/)**
+[根据修订后的外汇法，与银行一样，加密货币交易所将被要求验证和标记与受制裁的俄罗斯个人或团体相关的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
+[该修正案将强制加密货币交易所阻止各种受制裁的俄罗斯官员、寡头、银行和其他机构的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
+秘翻新闻 自由信仰编译报道
 
-发稿：雪梨
+发布 : 恩典
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,35 @@
 ---
 
 
-## 乌克兰星链卫星：马斯克称中俄若想摧毁非易事
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2246334/)
+## 台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2244682/)
 
-**撰稿：日本东京方舟农场  子辰**
+图文/zhong｜28/3/2022
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-28.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+## 美国“国家民主基金会”访台
 
-自俄乌之战以来，由于乌克兰的顽强抵抗，致使俄罗斯的入侵计划受阻。乌克兰的网络也由于马斯克的星链助力发挥了重要作用。马斯克同时表示，中俄若想摧毁星链，并非易事。
+台湾时间28日，美国国家民主基金会（NED）由会长威尔森（Damon Wilson）率团访台，预计停留3日，期间将会见总统蔡英文、行政院长苏贞昌、立法院长游锡堃及接受外交部长吴钊燮款宴等。外交部表示，NED会长威尔森于去年7月上任后，首次出行亚洲便将台湾作为首站，对台湾十分重视。
 
-星链是SpaceX公司的一项卫星宽带服务计划，通过在地球上空的预定轨道部署由1.2万颗卫星组成的巨型卫星星座，其中包括在近地轨道部署的1584颗卫星，搭建一个覆盖全球的互联网服务网络。这项工作计划在2019年至2024年间完成，2020年已经开始在部分地区提供服务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-1.jpg)（图片来自大纪元 ）
 
-当俄罗斯入侵乌克兰，乌克兰数字部长费多罗夫（Mykhailo Fedorov）要求马斯克用星链系统提供帮助时，马斯克迅速做出反应并提供了支持。
+> Honored to arrive in [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw), one of the world’s most free societies, as part of our commitment to democratic unity at [@NEDemocracy](https://twitter.com/NEDemocracy?ref_src=twsrc%5Etfw). Taiwan is becoming a hub for democrats to learn from each other in safeguarding their democratic way of life. [pic.twitter.com/hZsGtnWfFb](https://t.co/hZsGtnWfFb)
+> — Damon M. Wilson (@DamonMacWilson) [March 27, 2022](https://twitter.com/DamonMacWilson/status/1508205720881491973?ref_src=twsrc%5Etfw)
 
-援引“商业内幕”网站3月27日报导，马斯克在接受Insider母公司施普林格（Axel Springer）集团CEO马蒂亚斯‧多夫纳（Mathias Döpfner）的采访时，详细阐释了星链卫星在俄乌战争的使用情况。
 
-马斯克说，通过观察几个月前俄罗斯的反卫星演示，它给卫星运营商造成了很多冲突，甚至对国际空间站造成了一些危险，这还是在有俄罗斯宇航员的情况下。
 
-俄乌战争伊始，马斯克的星链卫星系统就帮助一支精锐乌克兰无人机部队摧毁俄罗斯的武器，该系统确保无人机团队即使在互联网停电的情况下也能正常工作。随后，马斯克警告乌克兰星链使用者，让他们仅在需要时在打开星链，因为有可能会遭致俄方的袭击。
+威尔森推特表示，台湾正成为捍卫民主生活方式的中心，很荣幸来到世界上最自由的社会之一。台湾外交部新闻稿回应，感谢NED长期关注台湾民主发展，在NED鼓励下台湾于2003年成立“台湾民主基金会”与NED密切合作，致力于推广印太民主人权。
 
-但马斯克也表示，毁灭星链卫星将具有挑战性，并非易事，因为有2000颗卫星。他补充说：“这意味着需要大量的反卫星导弹。我希望我们不必对此进行测试，但我认为我们发射卫星的速度比中俄发射反卫星导弹的速度要快。”
+外交部透漏，NED会长威尔森将会举办记者会，宣布与台湾民主基金会等团体合作，将于10月24-27日首次在台北举行“世界民主运动”（World Movement for Democracy）全球大会，以肯定台湾民主成就。
 
-据悉，星链的应用程序不仅在3月13日成为乌克兰下载量最多的APP，境内超过10万民众在使用链接，对军方的用处也愈来愈明显。
+## 美国“德国马歇尔基金会”报告 中共恶意孤立台湾
 
-乌克兰总统泽连斯基等官员也透过视讯向全球宣传，称星链技术效果颇佳。在乌克兰启动星链服务后的48小时内，运载卫星接收器等星链终端设备的卡车抵达当地，还有提供能让它们透过连接车用充电装置或电池组供电的转接器，以及行动“漫游”功能。
+[报告](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)提及，中共将联合国1971年通过对第2758号决议，歪曲成 “一中原则、台湾是中华人民共和国的一个省”并借此孤立台湾，阻止台湾参与联合国事务。此外，该报告呼应台湾外交部长连线外媒时的观点，强调台湾为全球技术供应占据关键地位。报告建议美国应制定一项战略，以便更有效地反击中共歪曲联合国第2758号决议的企图。
 
-现在乌克兰的宽频覆盖率达9成，当出现大规模停电、位置过于偏远、或为了维系医院等关键基础设施运作时，星链可派上用场。即使在乌克兰的网路大规模崩溃，乌军的“无人机战士”仍然可以透过星链行动终端设备发送讯号与他们的基地联系，并使用波兰等邻国的地面站。
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97616)、[GMF](https://www.gmfus.org/news/distortion-un-resolution-2758-and-limits-taiwans-access-united-nations)
 
-此外，马斯克表示，俄罗斯总统弗拉基米尔‧普京的战争行为必须被阻止。“我们不能让普京接管乌克兰，因为这太疯狂了。”
+* * *
 
-参考链接：
-[https://www.epochtimes.com/gb/22/3/27/n13676766.htm](https://www.epochtimes.com/gb/22/3/27/n13676766.htm)
-
-总编：青城道姑
-校对发布：文曦
+**Subscribe Frontline Gettr：**[**@HKTWfrontline**](https://gettr.com/user/hktwfrontline)
 
  
 

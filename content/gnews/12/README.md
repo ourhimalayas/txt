@@ -2,37 +2,50 @@
 ---
 
 
-## Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2249619/)
+## 上海新增无症状感染者超3000例
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2249712/)
 
-Translated by: MOS Fitness Team – Gloria
+编辑：文宝
+![新增无症状破3千 邬惊雷以新身份出席发布会](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2022%2F0328%2F07a275ebj00r9g2sm002lc000oy00e3c.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+3月27日，中共国新增本土病例1219例，其中吉林1086例，上海50例；新增无症状感染者5134例，其中上海3450例，吉林907例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+**存在面上暴发的潜在风险**
 
-The U.S. National Endowment for Democracy Visits Taiwan
+从数据上来看，最近上海新增病例不断上升。
 
-On March 28, Taiwan time, the U.S. National Endowment for Democracy (NED), led by President Damon Wilson, visited Taiwan for three days. During the visit, the delegate will meet with President Tsai Ing-wen (蔡英文), Premier Su Tseng-chang (蘇貞昌), and Legislative Speaker You Si-Kun (游錫堃), attending a banquet hosted by Foreign Minister Joseph Wu (吳釗燮). The Ministry of Foreign Affairs stated that it’s Wilson’s first time visiting Asia since he took office last July. It demonstrates the importance of Wilson’s attachment to Taiwan that he selected Taiwan as the first stop on his first trip to Asia. Wilson tweeted that Taiwan is becoming a center for defending the democratic way of life, and he is honored to visit one of the freest societies in the world.
+以最近几天的情况为例：
 
-Taiwan’s Ministry of Foreign Affairs responded in a press release, thanking the NED for its long-term attention to Taiwan’s democratic development. With the NED’s encouragement, Taiwan established the “Taiwan Democracy Foundation” in 2003, which worked closely with the NED to promote democracy and human rights in the Indo-Pacific region.
+3月20日0—24时，上海新增本土新冠肺炎确诊病例24例和无症状感染者734例
 
-According to the Ministry of Foreign Affairs, in cooperation with the groups like the Taiwan Democracy Foundation, NED President Wilson will announce at a press conference that the “World Movement for Democracy” will be held in Taipei for the first time from October 24 to 27 to affirm Taiwan’s democratic achievements.
+3月21日0—24时，上海新增本土新冠肺炎确诊病例31例和无症状感染者865例
 
-The U.S. “German Marshall Fund” Reports that the Chinese Communist Party (CCP) Maliciously Isolates Taiwan
+3月22日0—24时，上海新增本土新冠肺炎确诊病例4例和无症状感染者977例
 
-The report mentioned that the CCP distorted Resolution 2758 passed by the United Nations in 1971 into “the one-China principle and Taiwan is a province of the People’s Republic of China” and used this to isolate Taiwan and prevent Taiwan from participating in UN affairs. In addition, in response to the viewpoints of Taiwan’s Foreign Minister when connecting with foreign media, the report emphasized that Taiwan plays a crucial role in global technology supply. The report recommends that the United States develop a more effective strategy to counter China’s attempts to distort UN Resolution 2758.
+3月23日0—24时，上海新增本土新冠肺炎确诊病例4例和无症状感染者979例
 
-Source link: [https://gnews.org/zh-hans/2244682/](https://gnews.org/zh-hans/2244682/)
+3月24日0—24时，上海新增本土新冠肺炎确诊病例29例和无症状感染者1580例
 
-Edited and posted by: Snow Lily
+3月25日0—24时，上海新增本土新冠肺炎确诊病例38例和无症状感染者2231例
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)**For more information, please follow us at:
-[NFSCNews | Gettr](https://www.gettr.com/user/nfscnews)
-[Gnews | Gettr](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)
-[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[Free to Join New York MOS Himalaya | Discord](https://discord.gg/ChqXAHd)**
+3月26日0—24时，上海新增本土新冠肺炎确诊病例45例和无症状感染者2631例
 
+**3月27日0—24时，上海新增本土新冠肺炎确诊病例50例和无症状感染者3450例**
 
+从3月24日至今，上海市新增本土无症状感染者已经连续4天破千，其中，3月27日新增的无症状感染者数据突破了3千。
+
+再来看具体分布。
+
+50例本土确诊病例，分布在：
+
+**闵行区20例**、徐汇区6例、宝山区5例、静安区4例、普陀区4例、浦东新区4例、嘉定区3例、黄浦区2例、虹口区1例、松江区1例
+
+3450例无症状感染者之中，**浦东新区**数量最多，达1420例。
+
+3月28日的新闻发布会上，上海市疫情防控领导小组专家组成员、复旦大学上海医学院副院长吴凡介绍，“（上海）**本市疫情呈现区域聚集和全市散发并存两个特点，存在面上暴发的潜在风险**。”吴凡说，有必要采取更果断、坚决的措施，进一步降低人群的社会流动性，快速排查发现感染者，彻底消除病毒隐匿的社区传播。
+
+原文链接：[https://www.163.com/news/article/H3ITG0PI0001899O.html?clickfrom=w\_yw](https://www.163.com/news/article/H3ITG0PI0001899O.html?clickfrom=w_yw)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-47.png)DISCORD
 
  
 
