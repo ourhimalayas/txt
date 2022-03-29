@@ -2,42 +2,41 @@
 ---
 
 
-## 新广告将贝莱德CEO与中国联系起来
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2249913/)
+## 澳大利亚将增加国防和安全方面的开支
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2249942/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-29.jpg)图片来自网络
-福克斯新闻头条:非营利消费者研究组织推出了一系列移动广告牌，展示其针对黑石（Black Stone）新的广告活动。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-本周一，4个移动广告牌送达会议中心和德克萨斯州首府，在那里，德克萨斯独立制片人和版税所有者(TIPRO)将主持黑石CEO罗布·卡皮托的演讲。
+翻译/编辑：小红帽
 
-消费者研究执行董事威尔·希尔德Will Hild说，黑石和拉里•芬克(Larry Fink)突然试图讨好石油和天然气公司，他们想假装过去十多年没有持续发展中国经济的同时，削弱美国的能源独立。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123111042_opera.jpg)图片来源：GETTY IMAGES
 
-这则六位数的广告抨击了这家投资公司对中国经济的持续投资，因为中国对美国房地产市场的控制继续推动房地产价格上涨，并批评美国企业缺乏进步价值观。
 
-这则数十万的广告抨击了黑石公司对中共国经济的持续投资，导致中共国对美国房地产市场的控制，从而推动美国房地产价格上涨，并批评美国企业缺乏进步价值观。
+根据U.S. NEWS 3月28日报道，澳大利亚财政部长乔什·弗莱登伯格 （Josh Frydenberg）在周二公布针对即将举行的选举所制定的预算之前表示，澳大利亚政府将增加国防和国家安全方面的支出，同时减少家庭开支。
 
-也许你可能会认为，一家公司以执行美国企业的ESG(环境、社会和治理)标准为己任，那么它也会将这些标准应用于外国投资，但黑石在中共国和俄罗斯的投资并未按照这个标准，美国的消费者一眼就能看出谁是骗子，消费者研究中心不会让他们逍遥法外的。
+随着俄罗斯与乌克兰开战，中共国的军队变得更加强硬，弗莱登伯格预示着“对国防和国家安全的进一步投资反映了我们现在面临的挑战”。
 
-消费者研究公司此前告诉福克斯新闻数字频道(Fox News Digital)，黑石优先投资于美国的环保和社会意识强的公司，但同时向不符合这些标准的中共国公司投资。
+从7月1日开始的财政年度的预算将提前在5月21日大选之前公布，总理科特·莫里森 (Scott Morrison)的保守派政府将在大选中寻求第四个三年任期。
 
-希尔德说，由于中共国被认为是一个发展中经济体，而美国是一个发达经济体，中共国企业在绿色和股权倡议方面受到的要求不那么严格，这使美国企业处于不利地位。
+随着澳大利亚和世界许多地方的通货膨胀率上升，部分原因是油价上涨，预计政府将减少每升44.2澳分（33.1美分）的汽油税（每加仑1.25美元）。
 
-黑石作为纽约市风险和投资管理巨头，多次被指控将工薪家庭赶出房地产市场，转而陷入租房的窘境，剥夺他们的资金和建立信贷的机会。
+“今晚，我们将以一种临时的、有针对性的、负责任的方式，提供生活费用的减免，”弗莱登伯格说。
 
-据《华尔街日报》报道，以亿万富翁芬克(Fink)为首的黑石公司正在收购整个社区，将独栋住宅改造成出租房。在休斯顿这样的城市，芬克这样的投资者占了购房者的四分之一。
+澳大利亚石油协会表示，上周全国汽油平均价格下降了5.8澳分（4.3美分），至每升2.06.7澳元（1.54美元）（每加仑5.86美元）。
 
-黑石公司对FOX商业新闻的评论未做回复。
+弗莱登伯格说，他还将披露“预算底线的实质性改善”。
 
-参考信息：
+经济学家预计，本财政年度的赤字将在800亿澳元（600亿美元）至700亿澳元（520亿美元）之间，而澳大利亚政府在12月预测的缺口为992亿澳元（743亿美元）。
 
-[Consumers’ Research deploying mobile billboards, new ad linking BlackRock CEO to China](https://www.foxnews.com/politics/consumers-research-mobile-billboards-blackrock-china)
+新闻来源：[Australia to Increase Spending on Defense and Security](https://www.usnews.com/news/business/articles/2022-03-28/australia-to-increase-spending-on-defense-and-security)
 
-*审核：云彩*
+发布：tianzhihuan
 
-*发布：云彩*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

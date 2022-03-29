@@ -2,42 +2,25 @@
 ---
 
 
-## 澳大利亚将增加国防和安全方面的开支
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2249942/)
+## 有声｜美国促进立法加入中国人权条款
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249947/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+By:**秘翻新闻**
 
-翻译/编辑：小红帽
+**2022-03-29**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-55.png)图片来源 网络
+[据《自由亚洲电台》3月28日报道，美国国会与行政当局中国委员会主席参议员杰夫·默克利（Jeff Merkley) 与共同主席众议员詹姆斯·麦戈文（James McGovern) 本周一（3月28日）向参众两院领导人发出公开信，敦促其在最新的美国竞争法案中加入有关中国人权的条款。](https://www.rfa.org/mandarin/Xinwen/9-03282022162521.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123111042_opera.jpg)图片来源：GETTY IMAGES
+[公开信指出，人权是中美关系的核心，既反映了美国的原则，也是美国对帮助中国人民提升其基本权利和自由的承诺。](https://www.rfa.org/mandarin/Xinwen/9-03282022162521.html)
 
+[信中建议在法案中加入一些有关中国人权的具体条款，包括：拓宽逃避中共迫害的香港居民和维吾尔人移民美国的渠道；保护美国商业和个人不受中共审查制度和恐吓做法的危害；延长禁止向香港警察出口枪支的禁令；以及恢复与中共国和香港的富布赖特交换项目等等。](https://www.rfa.org/mandarin/Xinwen/9-03282022162521.html)
 
-根据U.S. NEWS 3月28日报道，澳大利亚财政部长乔什·弗莱登伯格 （Josh Frydenberg）在周二公布针对即将举行的选举所制定的预算之前表示，澳大利亚政府将增加国防和国家安全方面的支出，同时减少家庭开支。
+秘翻新闻 巴拉克 编辑报道
 
-随着俄罗斯与乌克兰开战，中共国的军队变得更加强硬，弗莱登伯格预示着“对国防和国家安全的进一步投资反映了我们现在面临的挑战”。
+发布 : 恩典
 
-从7月1日开始的财政年度的预算将提前在5月21日大选之前公布，总理科特·莫里森 (Scott Morrison)的保守派政府将在大选中寻求第四个三年任期。
-
-随着澳大利亚和世界许多地方的通货膨胀率上升，部分原因是油价上涨，预计政府将减少每升44.2澳分（33.1美分）的汽油税（每加仑1.25美元）。
-
-“今晚，我们将以一种临时的、有针对性的、负责任的方式，提供生活费用的减免，”弗莱登伯格说。
-
-澳大利亚石油协会表示，上周全国汽油平均价格下降了5.8澳分（4.3美分），至每升2.06.7澳元（1.54美元）（每加仑5.86美元）。
-
-弗莱登伯格说，他还将披露“预算底线的实质性改善”。
-
-经济学家预计，本财政年度的赤字将在800亿澳元（600亿美元）至700亿澳元（520亿美元）之间，而澳大利亚政府在12月预测的缺口为992亿澳元（743亿美元）。
-
-新闻来源：[Australia to Increase Spending on Defense and Security](https://www.usnews.com/news/business/articles/2022-03-28/australia-to-increase-spending-on-defense-and-security)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

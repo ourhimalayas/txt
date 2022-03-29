@@ -2,27 +2,39 @@
 ---
 
 
-## 有声｜美国国债5年30年期收益率自 2006 年以来首次倒挂
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249992/)
+## ATAGI考虑为澳洲青少年提供辉瑞新冠加强针
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2250017/)
 
-By:**秘翻新闻**
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-352.png)图片来自网络
+《SBS News》近日报道，联邦卫生部的一份声明说，澳洲免疫技术咨询小组（ATAGI）正在审查关于12至15岁儿童使用辉瑞疫苗作为加强针的数据。
 
-**2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-50.png)图片来源 路透社
-[据路透社3月28日报道，以 5 年期和 30 年期政府债券收益率之间的差距衡量的美国收益率曲线周一出现倒挂，这是自 2006 年初以来的新一轮市场抛售行为，短期债券收益率跃升至 2019 年以来的最高水平。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+辉瑞数据的审查将包括有关严重疾病、流行病学和年龄组国际推广的信息。
 
-[上周收益率曲线的部分 5 年期与10 年期，以及 3 年期与10 年期出现倒挂，目前全球最大债券市场的 5 年期和 30 年期之间的差距滑入负值区域，引发了美国央行的担忧，应对通胀的鹰派态度可能会损害增长。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+卫生部门在一份声明中说：“ATAGI 正在继续研究有关使用新冠疫苗和治疗的新证据，作为其对当前建议的持续审查的一部分。”
 
-[欧洲、中东和非洲宏观策略负责人格拉夫表示：2年至10年期债券的利率倒挂，可能是因为美联储短期内有更快的加息速度导致。但如果5年期债券等中长期债券，与30年期的长期债券出现利率倒挂，将很可能暗示着经济增长放缓。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+ATAGI 上周批准向 65 岁以上的人、50 岁以上的澳大利亚土著人、老年或残疾护理人员以及免疫功能低下的人接种冬季剂量的新冠疫苗。
 
-[根据以往的经验，债券收益率倒挂，通常都是经济衰退的先兆。虽然这大概率在明年发生。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+第四针或第二剂加强针将从 4 月 4 日起在人群中推出，人们将在第一次加强针注射四个月后有资格接种。
 
-秘翻新闻 自由信仰编译报道
+目前，第三针新冠疫苗（或第一剂加强针）仅被批准用于 16 岁及以上的人群。
 
-发布 : 恩典
+ATAGI不建议在更广泛的人群中接种第二剂加强针。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+新的ATAGI建议是在预测冬季新冠病例激增之前出台的，这与流感病例可能激增相重叠。
+
+最近几天，由于与奥密克戎亚变种有关的感染，新冠的病例数在全国范围内一直在增加。
+
+配方一直都没有更新，为什么还要一再的打？孩子都打了两针还不够现在还要打第三针？这是屠杀！
+
+参考链接：
+
+[https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10](https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,24 @@
 ---
 
 
-## 有声｜英国下令审查公共部门俄罗斯能源合同
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250043/)
+## 香港疫情致死人数激增 棺材紧缺
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250060/)
 
 By:**秘翻新闻**
 
 **2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-53.png)图片来源 路透社
-[路透社 3月28日报道，英国周一指示公共部门将审查与俄罗斯公司签订的能源和其他合同，建议考虑更换供应商，并指出现有的能源协议可能使俄罗斯政府受益。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/12-40.png)图片来源 AP Photo/Kin Cheung
+[据美联社香港3月29日报道，今年香港最致命的中共病毒爆发已造成约 6,000 人丧生，而这座城市的棺材现在也快用完了。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
 
-[与盟国一起，英国正寻求通过广泛制裁来削弱俄罗斯经济，以应阻止其入侵乌克兰。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+[香港政府表示上周已经有 1,200 具棺材运抵，后续还会有更多。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
 
-[英国内阁大臣巴克莱在一份声明中说，公共资金不应该资助普京的战争机器，我们要求公共部门的医院、理事会和其他组织紧急考虑所有可以进一步切断与俄罗斯商业联系的方法。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+[由于空间限制，火葬成为人口稠密地区常见的埋葬方式，棺材通常是木头或木头替代品。但为了解决因中共病毒死亡人数激增而导致的棺材短缺，一些公司正在提供如环保纸板棺材等替代品。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
 
-[英国政府已宣布将在今年年底前逐步停止从俄罗斯进口石油，并正在制定一项新的能源战略，以结束对俄罗斯天然气的依赖，目前俄罗斯天然气在英国的供应中占比不到 4%。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+[Life Art Asia 制造由回收木纤维制成的纸板棺材，可以根据外部设计进行定制。在其位于香港南部地区香港仔的工厂中，每天可生产多达 50 具棺材。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
 
-[最新的采购建议指南建议：在终止现有能源供应合同之前，须征求能源专家或相关公共部门采购组织的建议，以确保替代供应来源可用且负担得起。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+[该公司首席执行官表示，使用纸板制成的棺材仍然存在一些阻力。因为人们觉得使用所谓的纸棺材对已故亲人不太尊重。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
 
-秘翻新闻 自由信仰编译报道
+秘翻新闻 文洋 编译报道
 
 发布 : 恩典
 
