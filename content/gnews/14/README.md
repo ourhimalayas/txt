@@ -2,24 +2,22 @@
 ---
 
 
-## 美贸易官员将对东南亚四国的太阳能产品进行调查，以防中共国曲线避税
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2250870/)
+## 普京发威“不付款，不给油和气！”
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2251080/)
 
-#### 翻译/撰稿：zzballack
+编译：波士顿五月花—-思澈
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-20.jpg)图片来源：美联社
-据《路透社》（Reuters）3月28日报道，美国商务部本周一（3月28日）宣布，将对来自四个东南亚国家的太阳能电池板进行调查，以确定它们是否规避了针对中共国太阳能产品的关税。
+欧盟各国和G7国家拒绝用卢布支付俄罗斯的汽油和天然气
 
-这一决定对提出调查要求的美国加州太阳能产品制造商Auxin Solar是一个胜利。该公司申诉说，中共国制造商将生产转移到马来西亚、泰国、越南和柬埔寨，以避免支付美国对在中共国制造的太阳能产品征收的反倾销和反补贴关税。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FAE48CBE-E550-4EC8-817E-8D22000E4729.jpeg)
 
-商务部网站的一份备忘录显示，官员们称Auxin提供的信息表明，在马来西亚、泰国、越南和柬埔寨运营的太阳能企业是中共国大型生产商的子公司，在那里生产的产品如果在中共国制造，那么美国的反补贴和反倾销税将适用。
+在欧盟和G7拒绝了俄罗斯的以卢布支付汽油和天然气后，普京的知己克里姆林宫发言人德米特里·佩斯科夫宣布了俄罗斯可能采取的新措施，即“不付款就不给汽油和天然气”。
 
-Auxin对此表示欢迎。该公司的首席执行官马穆恩拉希德（Mamun Rashid）在一份声明中表示：“多年来，中共国的太阳能生产商一直拒绝在美国公平定价，并不遗余力地通过在不涵盖这些关税的国家建立规避业务来继续排挤美国制造商和工人。我们很感激商务部官员认识到有必要调查这种普遍的后门倾销行为，以及这如何继续损害美国太阳能生产商的利益。公平贸易和执行我们的贸易法对重建美国太阳能供应链和使美国的太阳能再次得到发展至关重要。”
+素材来源：[https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html](https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html)
 
-但美国的一些太阳能行业团体则大力游说，反对商务部接受请愿，称这将摧毁该行业，并增加消费者的用电成本。
+*发布：思澈*
 
-新闻来源：[U.S. to consider tariffs on solar panels made in Southeast Asia](https://www.reuters.com/world/asia-pacific/us-trade-officials-consider-tariffs-solar-imports-southeast-asia-2022-03-28/)
+
 
  
 

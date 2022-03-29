@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 9:36 AM (UTC)`
+
+3/27/2022 Miles Guo: What is the soft power of the US? The CCP’s top think tank is ignorant of the world, and the CCP is attempting to take advantage of the pendulum effect to create turmoil in the US without realizing that the US and Europe are bonded together because of the shared faith, culture, race, and interests. Which quote from President Biden inadvertently let him surpass his predecessors?<br/><br/>3/27/2022 文贵直播：美国的软实力是什么？中共顶级智囊对世界充满了无知，中共妄图利用美国的钟摆效应搞乱美国，殊不知美欧却有着共同的信仰、文化、族群和利益的纽带；拜登总统说的哪句话在不经意间让他超越了前任总统？<br/>
+![img](https://media.gettr.com/group11/getter/2022/03/29/09/8338e775-e3cd-1e75-1805-2eaa2f89e0aa/out.jpg)
+
+---
+
+`@miles 3/29/2022 9:32 AM (UTC)`
+
+3/27/2022 Miles Guo: The Communist China's science and technology are all stolen from the West. The Russia-Ukraine war has confirmed that Hu Jintao was right that the Russian technology is not credible and should not be used. Biden has absolute confidence in defeating Russia, and his speech revealed that democracy and dictatorship are absolutely antagonistic. Japan will be granted the right to declare war, and NATO, especially Britain, is fully involved in the war in Ukraine. The Chinese can no longer serve as slaves and tools by depending on other countries!<br/><br/>3/27/2022 文贵直播：中共国的科技都是盗取西方的，俄乌战争验证了胡锦涛所谓俄罗斯科技不可信、不可用；拜登有绝对信心打败俄罗斯，其演讲透露出民主和独裁已绝对对立；日本将获得宣战权，北约尤其是英国全面参与了乌克兰战争；中国人再也不能做依赖他国的奴隶和工具了！<br/>
+![img](https://media.gettr.com/group14/getter/2022/03/29/09/a74054d4-e018-e294-0eb1-6c85b68d41e0/out.jpg)
+
+---
+
 `@miles 3/29/2022 9:05 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -140,22 +154,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-28 <br/>For English @Gtranslators_1
 ![img](https://media.gettr.com/group36/origin/2022/03/28/22/49acfe5b-ca8d-65a8-d5cc-39c1dd62bffd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/28/2022 9:46 PM (UTC)`
-
-20220328 NFSC health新中国联邦|喜健康 系列节目之《正道医疗》第二期
-![img](https://media.gettr.com/group6/origin/2022/03/28/21/11891c5a-7395-20d3-d453-a5f2e4fca01c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@longwood 3/28/2022 6:48 PM (UTC)`
-
-欢迎晚上美东7点左右收看节目，国内逃出战友来电。
-![img](https://media.gettr.com/group39/getter/2022/03/28/18/f449ded0-5cb9-2cce-cd28-754621e7f81b/f353cc858cf9d7ca035a93d6934009a5.jpg)
 
 ---
 
