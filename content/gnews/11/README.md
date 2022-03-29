@@ -2,42 +2,42 @@
 ---
 
 
-## mRNA是从什么时候开始变味的？（2/5）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2251933/)
+## 乌俄和谈结束
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2251994/)
 
-素材编译： Jenny Ball
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
-“1968 年，弗里德曼在马里兰州贝塞斯达的国立卫生研究院，与已故的杰伊·西格米勒（Jay Seegmiller医学院的创始教员）和其他人一起工作，表明通过将外源 DNA 添加到来自患者的培养细胞中综合征，他们可以纠正导致罕见但具有破坏性的神经系统疾病的遗传缺陷。1964 年，加州大学圣地亚哥分校儿科教授威廉·尼汉（William Nyhan） 医学博士和医学生迈克尔·莱施（Michael Lesch）首次描述了这种情况。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3659.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/5CTIIKVV4ZJMZDGP35RK5YGYNA.jpg)
 
-这一壮举是一个强大的概念验证，但随后将这项工作推进人体临床试验的努力停滞不前。弗里德曼说：“我们开始意识到，将这个想法应用于人体会非常复杂，”弗里德曼说，他于 1969 年加入医学院。
 
-1990 年，一名患有腺苷脱氨酶 (ADA) 缺乏症的 4 岁女孩成为第一个接受基因治疗的患者，这种疾病严重影响免疫力和抵抗感染的能力。从她身上取出白细胞，使用一种经过改造和禁用的病毒，将正常的 ADA 基因插入其中，然后重新注射细胞。
+资料来源：路透社
 
-尽管最初声称成功，弗里德曼说，该实验最终被认为是失败的。女孩的病情没有治愈，研究发现不足。
+俄罗斯在周二的和平谈判中承诺将大幅缩减其在基辅和乌克兰北部城市切尔尼戈夫周围的军事行动，而乌克兰则提出中立地位，并提供国际保证以保护其免受攻击。
 
-由美国NIH院长哈罗德·瓦尔姆斯（Harold Varmus）医学博士委托编写的一份报告，对整个基因治疗领域，尤其是 ADA 的努力提出了高度批评，指责调查人员创造了一种“错误的、普遍的成功观念”。 弗里德曼说他“亲自接受了瓦尔姆斯的报告。我觉得很糟糕，这几乎让我觉得我在基因治疗的承诺上，欺骗了自己和我的同事二十多年。”但他也知道“做基因治疗研究的好人要比流氓多得多”，所以他继续勤奋、认真地从事自己的研究。
+乌克兰谈判代表表示，乌克兰不会加入外国军队的联盟或驻扎基地，但会以类似于北约集体防御条款“第 5 条”的条款保证其安全。
 
-尽管如此，媒体对基因治疗的关注和炒作仍然很猖獗，部分原因是一些科学家过于热情的观点。1999 年，一位名叫杰西·盖尔辛格 (Jesse Gelsinger) 的 18 岁患者，患有肝脏遗传疾病，在宾夕法尼亚大学的一项临床试验中死亡，事情发生了崩溃。盖尔辛格的死，是第一个直接归因于基因治疗的人。随后的调查揭示了实验设计中的许多问题。”
+他们将以色列和北约成员国加拿大、波兰和土耳其确定为可以帮助提供此类保证的国家。
 
-瓦尔姆斯报告的历史，提供了对 NIH 和美国 HHS 工作方式的初步了解。被任命为负责审查“基因治疗”科学的委员会的科学家，正是我的研究生导师因德·维尔马（Inder Verma）博士，他长期以来一直是基因治疗的主要支持者之一，随后被迫从索尔克研究所长达数十年的记录，可能最温和地称为道德失误。但这是 NIH 主任任命的科学家，负责“独立”调查该领域的科学严谨性和优点。一只手洗另一只手。
+乌克兰谈判代表在伊斯坦布尔告诉记者，这些提议将包括为期 15 年的关于俄罗斯吞并克里米亚地位的磋商期，并且只有在完全停火的情况下才能生效。
 
-最初的“基因治疗”概念有什么问题？ 有多个问题，这里有几个。
+俄罗斯国防部副部长亚历山大·福明表示，俄罗斯已决定减少基辅和切尔尼戈夫附近的战斗，为对话创造条件。
 
-未完待续
+周二在伊斯坦布尔举行的会谈是双方自 3 月 10 日以来的首次面对面会谈。俄罗斯于 2 月 24 日开始入侵乌克兰，在遭遇激烈抵抗后未能占领乌克兰任何主要城市。
 
-素材链接：[https://rwmalonemd.substack.com/p/when-is-mrna-not-really-mrna?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTExOTI5NjMsIl8iOiJsdGFHKyIsImlhdCI6MTY0ODUwMjA5NSwiZXhwIjoxNjQ4NTA1Njk1LCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.j6meHhLgy7xAWyLaaNniOrr\_2o4NRg\_d0J2Z4-Bf4nI&s=r](https://rwmalonemd.substack.com/p/when-is-mrna-not-really-mrna?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTExOTI5NjMsIl8iOiJsdGFHKyIsImlhdCI6MTY0ODUwMjA5NSwiZXhwIjoxNjQ4NTA1Njk1LCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.j6meHhLgy7xAWyLaaNniOrr_2o4NRg_d0J2Z4-Bf4nI&amp;s=r)
+乌克兰的提议是基辅公开发表的最详细、最具体的提议。
 
-* * *
+“如果我们设法巩固这些关键条款，对我们来说这是最根本的，那么乌克兰将能够以永久中立的形式真正确定其作为非集团和无核国家的现状，”乌克兰谈判代表 Oleksander Chaly 说。
 
-审核：文乐
-校对：小东
-发布：小东
+他说：“我们不会在我们的领土上设立外国军事基地，也不会在我们的领土上部署军事特遣队，我们不会结成军事政治联盟。”军事演习将在保证国同意的情况下进行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+乌克兰谈判代表表示，他们的提案中有足够的材料，足以保证乌克兰总统泽连斯基和俄罗斯总统普京会晤。
+
+🔗 [https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
+
+责任编辑、发布： Shuizhuyu
 
  
 
