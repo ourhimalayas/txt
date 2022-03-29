@@ -2,20 +2,48 @@
 ---
 
 
-## 达扎克伙同福奇利用疫情先机牟利
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2253913/)
+## 乌克兰提出以中立换取北约式的安全保障
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2254232/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：纽约香草山农场 – 四季
 
-据[国家脉动]3月28日报道，与[武汉病毒研究所]长期合作，并为中共当局掩盖“新冠病毒”来源真相的[彼得·达扎克]，其经营的美国[生态健康联盟]在疫情爆发后，投资收入成倍增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-据悉，在2019年之前，[生态健康联盟]的营业额一直在7万美元以下，但在2020年疫情爆发期间，该公司却迅速获得了40多万美元的投资收入，增幅是之前数年平均收入的6倍。
 
-报道指出，[达扎克]此前已从[福奇]主导的[美国国立卫生研究院]获得数百万美元资金，用于与武毒所合作培育致命的“新冠病毒”。而另一位由[福奇]资助的病毒专家[巴里克]，则在2019年发表了主题为“如何在疫情中牟利”的演讲，并公然建议与会的投资者购买那些生产“卫生防护用品或抗病毒药物”公司的股票。
 
-* * *
 
-编辑： 平民正道    发布：平民正道
+
+据[ONA](https://www.oann.com/ukraine-offers-neutrality-in-exchange-for-nato-style-security-guarantees-at-russia-talks/) 援引路透社3月29日的报道，乌克兰谈判代表周二表示，在与俄罗斯在土耳其举行的会谈中，乌克兰提议采取中立地位以换取安全保障，这意味着它不会加入军事联盟或拥有军事基地。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-29T121526Z_1_LYNXNPEI2S0LS_RTROPTP_0_UKRAINE-CRISIS-TURKEY-TALKS_1.jpg)2022年3月29日，俄罗斯对乌克兰的攻击仍在继续，在土耳其伊斯坦布尔，乌克兰代表团成员出席与俄罗斯谈判代表的会谈。（乌克兰总统新闻处/通过REUTERS发布消息）
+
+这些建议还设想按照北约军事联盟的第5条，即集体防御条款提供安全保障。波兰、以色列、土耳其和加拿大可能是潜在的安全保证人。
+
+乌克兰和俄罗斯的谈判代表周二在土耳其举行了近三周以来的首次面对面会谈。由于乌克兰军队将俄罗斯人从基辅逼退，乌克兰寻求在不损害领土或主权的情况下实现停火。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

@@ -2,20 +2,24 @@
 ---
 
 
-## 加拿大知名自媒体加入盖特
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2253867/)
+## 西媒头条 — 第198期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2253691/)
 
-加拿大温哥华扬帆农场    平民正道
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-据加拿大【后千禧年】3月24日报道，该自媒体特约编辑安迪-恩戈当天宣布加入盖特，并与该社交媒体平台建立合作关系，以确保该独立记者能为其新闻节目自由制作独家内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220329.001.jpeg)
 
-报道称，恩戈将在盖特发布其个人报道和提供时事评论分析，并在没有政治审查或非法禁令威胁的情况下下，利用该平台与读者互动。盖特首席执行官杰森米勒对此表示，盖特以“能与勇敢追求真相的记者合作推广重要新闻，并为其提供自由言论的平台”而自豪。
+发稿：信心的选择
 
-自2021年7月4日正式推出以来，盖特目前已拥有超过500万注册用户。随着推特等传统社交媒体的违法审查制度不断加强，越来越多知名的新闻及媒体人士纷纷加入了盖特，并以言论自由向专制的高科技寡头宣战。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-* * *
-
-编辑： 平民正道    发布：平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 

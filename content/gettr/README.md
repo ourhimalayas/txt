@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 10:53 PM (UTC)`
+
+The Denmark volunteers on Medyka, Poland refugee camp. Voluntarily came to the tent of New Federal of China and Rule of Law Foundation to pick up the vests with the slogan “Take Down the Evil Chinese Communist Party” and shout out “Fuck CCP”!<br/><br/>在波兰梅迪卡难民营的丹麦义工们，主动来新中国联邦帐篷前，领取印有“推翻邪恶的中国共产党“口号的马甲。他们高喊 “滚蛋吧中国共产党”！
+![img](https://media.gettr.com/group23/getter/2022/03/29/22/80a9b164-9bd1-5ae3-2b8c-730e195e34af/out.jpg)
+
+---
+
+`@miles 3/29/2022 10:40 PM (UTC)`
+
+3/27/2022 Miles Guo: What does it mean for President Zelenskyy to say that Roman Abramovich is a good person? The CCP’s contempt of business has turned the "generous businessmen" in the traditional Chinese culture into " profiteers". That is why there are CCP businessmen who are arrogant, advocate the supremacy of power and money, and have no taste at all.<br/><br/>3/27/2022 文贵直播：泽林斯基总统说阿布是好人意味着什么？共产党的轻商主义把中国传统文化中的“尖商”打成“奸商”，所以才有了鼓吹强权金钱至上、毫无品位、狂妄之极的中共商人<br/><br/>
+![img](https://media.gettr.com/group28/getter/2022/03/29/22/c69034b9-4de2-219e-1a47-87943d5b1fbd/out.jpg)
+
+---
+
 `@miles 3/29/2022 10:36 PM (UTC)`
 
 Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New Federal of China and Rule of Law Foundation.<br/><br/>钢琴家戴维德·马尔泰罗在新中国联邦法治基金的大帐篷前演奏《铁锁梦》
@@ -142,20 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 【Ukraine Rescue】03/27/2022 Sarah: More independent western rescuers have shown up now on the front line. They have voluntarily started promoting our NFSC because after observing us for a month, these international rescuers realized the difference between our NFSC and the CCP. Many people have downloaded our Gettr, and their posts have gotten a lot of likes and reposts.<br/><br/><br/>【乌克兰救援】03/27/2022 小Sarah:前线目前出现更多自我救援的西方面孔，他们也加入到自愿宣传咱们新中国联邦的队伍中，因为通过小一个月来对我们的观察，这些国际救援者认识到我们新中国联邦与中共的不同。很多人下载了我们的盖特，他们的盖文得到大量点赞、转发。<br/>
 ![img](https://media.gettr.com/group27/getter/2022/03/29/05/a07ca2b2-57df-53e4-ec00-e0fc5dbe2fb7/out.jpg)
-
----
-
-`@miles 3/29/2022 5:15 AM (UTC)`
-
-【Ukraine Rescue】03/27/2022 Sarah: Our NFSC rescue team is the only Asian organization to actually conduct a large-scale rescue operation at this camp. We respect human rights, humanity and life, and are generally appreciated by the international community. This rescue operation not only saved the image of Chinese people, but also saved the image of Asians who look a lot like us.<br/><br/><br/>【乌克兰救援】 03/27/2022 小Sarah：我们新中国联邦团队是营地里唯一大规模实施实际救援的亚洲人组织，我们对于人权、人道及生命的尊重，获得了国际社会的普遍认可。 这一次救援，我们不光是把中国人的形象救回来，也把所有长相跟我们一样的亚洲人的形象拯救回来。<br/>
-![img](https://media.gettr.com/group20/getter/2022/03/29/05/15aa0387-f8e6-5f2f-48d7-03120e2f8357/out.jpg)
-
----
-
-`@miles 3/29/2022 5:07 AM (UTC)`
-
-3/27/2022 Miles Guo: The US has no choice but to take down the CCP. President Biden’s quote, “For God’s sake, this man cannot remain in power”, is of great significance and has gone beyond what President Kennedy and President Regan said to the former Soviet Union. Biden’s speech in Poland will be replayed for numerous times in humanity.<br/><br/>3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放<br/>
-![img](https://media.gettr.com/group30/getter/2022/03/29/05/76f015a9-b830-866b-3ea0-15b84757e697/out.jpg)
 
 ---
 
