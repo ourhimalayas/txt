@@ -2,24 +2,20 @@
 ---
 
 
-## 西媒头条 — 第198期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2253691/)
+## 加拿大自由党与新民主党达成执政协议
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2253860/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220329.001.jpeg)
+据媒体《后千禧年》3月25日报道，加拿大保守党对特鲁多和辛格最近签订的《信任与合作协议》发出警告，称自由党与新民主党的合作是危险的“社会主义联盟”。
 
-发稿：信心的选择
+对此，保守党党魁候选人波利耶夫表示，特鲁多关于增加联邦政府额外开支和提高税赋的承诺表明，其极左政策已超出了传统自由党方针的范畴。而且该协议可能使加拿大本已脆弱的经济继续滑向崩溃的边缘。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+但特鲁多则坚称，该协议将在当前动荡时期避开反对党的阻挠，以便其政府可以随心所欲地采取各项行动。目前，自由党因未能赢得下议院过半数席位，只是以少数党政府的状态执政，所以与新民主党的联合，可以确保特鲁多稳定掌权至2025年任期结束。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
