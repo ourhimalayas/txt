@@ -2,33 +2,35 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2253404/)
+## 樱花FM|时政:美国宣布俄罗斯犯下战争罪 强调追究责任
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2253443/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-63.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-29.png)
+音频：东京樱花团/战友520
 
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-6-10.png)
 
-视频参看：
-[2022.03.29早 《NFSC新闻》](https://gettr.com/streaming/p12i7q72783)
-[2022.03.29早《NFSC新闻访谈》](https://gettr.com/streaming/p12ibba6063)
+24日报道，美国国务卿布林肯23日发表声明，正式宣布俄罗斯军队对乌克兰的军事入侵是犯下了战争罪。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+声明说，有“许多无差别的攻击和故意以平民为目标的攻击”的可靠报告，这是对公开信息和情报机构分析得出的结论。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+应各国要求，位于荷兰海牙的国际刑事法院正在调查俄罗斯军队入侵乌克兰涉嫌犯下的战争罪和反人类罪。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+此前，美国宣布已开始调查此事，拜登总统严厉谴责普京总统是战犯，国务卿布林肯也做了同样表述。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-63.png)
+布林肯在一份声明中说：“美国政府将继续跟进对俄罗斯战争罪行的调查，并与盟友和国际组织分享信息。我们将尽全力追究责任。“
+
+同日，俄罗斯外交部宣布将美国外交官驱逐出境。理由是对此前美国驱逐12名俄罗斯外交官的反制措施。
+
+在23日的新闻发布会上，美国国务院发言人普莱斯说：”保持沟通渠道畅通是至关重要的，特别是在紧张局势或冲突加剧的时候。“他说：”如果我们的人员受到进一步限制，这将使美国驻俄罗斯大使馆更难继续开展工作。”
+
+文字版原文：[樱花时政┃美国宣布俄罗斯犯下战争罪 强调追究责任](https://gnews.org/zh-hans/2219887/)
+
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
+
+
 
  
 
