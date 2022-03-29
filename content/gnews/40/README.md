@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花头条┃美国和英国宣布对俄罗斯实施更多新制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251672/)
+## 樱花头条┃中国石化暂停与俄罗斯项目
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251665/)
 
 撰稿：东京樱花团/樱花传媒
 
-美国宣布更多对俄制裁，将对俄400个人和实体实施制裁 ；英国对俄新制裁，专门针对关键战略行业和个人。
+中国石化暂停与俄罗斯的项目。
 
-信息来源：[https://www.gettr.com/post/p11rbzb6d25](https://www.gettr.com/post/p11rbzb6d25)
+信息来源：[https://www.gettr.com/post/p11ycw5f8c1](https://www.gettr.com/post/p11ycw5f8c1)
 
-*编辑：东京樱花团/asket、天路天道/太白/小水手（素材）
+*编辑：东京樱花团/asket、文米（素材）
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  

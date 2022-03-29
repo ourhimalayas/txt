@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 11:04 PM (UTC)`
+
+3/27/2022 Miles Guo: The vests bearing the logos and slogans of the New Federal State of China are loved by people from all over the world at the Medyka rescue camp in Poland, and our vests will be given away for free to those who like them in unlimited quantities!<br/><br/>3/27/2022文贵直播：印有新中国联邦标识和口号的马甲在波兰梅迪卡营地受到各国人民喜爱，我们的马甲将不限量免费赠送给喜欢的人！<br/><br/>
+![img](https://media.gettr.com/group16/getter/2022/03/29/23/bf3c30b4-89ea-468d-8e7f-414685390ad3/out.jpg)
+
+---
+
+`@miles 3/29/2022 11:02 PM (UTC)`
+
+2022.03.29 NFSC News   Ukrainian Mayor Taken Hostage, Protesters Force Russian Troops to Withdraw and Release Him； Zelenskyy: Ukraine is Ready To Seek Neutral Status
+![img](https://media.gettr.com/group43/origin/2022/03/29/22/d5f4814e-13fb-41cc-6feb-3d4526bc6a03/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/29/2022 10:53 PM (UTC)`
 
 The Denmark volunteers on Medyka, Poland refugee camp. Voluntarily came to the tent of New Federal of China and Rule of Law Foundation to pick up the vests with the slogan “Take Down the Evil Chinese Communist Party” and shout out “Fuck CCP”!<br/><br/>在波兰梅迪卡难民营的丹麦义工们，主动来新中国联邦帐篷前，领取印有“推翻邪恶的中国共产党“口号的马甲。他们高喊 “滚蛋吧中国共产党”！
@@ -142,20 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 3/27/2022 Miles Guo: The Communist China's science and technology are all stolen from the West. The Russia-Ukraine war has confirmed that Hu Jintao was right that the Russian technology is not credible and should not be used. Biden has absolute confidence in defeating Russia, and his speech revealed that democracy and dictatorship are absolutely antagonistic. Japan will be granted the right to declare war, and NATO, especially Britain, is fully involved in the war in Ukraine. The Chinese can no longer serve as slaves and tools by depending on other countries!<br/><br/>3/27/2022 文贵直播：中共国的科技都是盗取西方的，俄乌战争验证了胡锦涛所谓俄罗斯科技不可信、不可用；拜登有绝对信心打败俄罗斯，其演讲透露出民主和独裁已绝对对立；日本将获得宣战权，北约尤其是英国全面参与了乌克兰战争；中国人再也不能做依赖他国的奴隶和工具了！<br/>
 ![img](https://media.gettr.com/group14/getter/2022/03/29/09/a74054d4-e018-e294-0eb1-6c85b68d41e0/out.jpg)
-
----
-
-`@miles 3/29/2022 9:05 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group16/origin/2022/03/29/08/a716188e-160c-e26e-c0f9-2034aa598211/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 5:24 AM (UTC)`
-
-【Ukraine Rescue】03/27/2022 Sarah: More independent western rescuers have shown up now on the front line. They have voluntarily started promoting our NFSC because after observing us for a month, these international rescuers realized the difference between our NFSC and the CCP. Many people have downloaded our Gettr, and their posts have gotten a lot of likes and reposts.<br/><br/><br/>【乌克兰救援】03/27/2022 小Sarah:前线目前出现更多自我救援的西方面孔，他们也加入到自愿宣传咱们新中国联邦的队伍中，因为通过小一个月来对我们的观察，这些国际救援者认识到我们新中国联邦与中共的不同。很多人下载了我们的盖特，他们的盖文得到大量点赞、转发。<br/>
-![img](https://media.gettr.com/group27/getter/2022/03/29/05/a07ca2b2-57df-53e4-ec00-e0fc5dbe2fb7/out.jpg)
 
 ---
 
