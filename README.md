@@ -15,83 +15,83 @@
 
 ---
 
-### [大直播后记：新中国联邦两周年纪念活动正式启动](/content/gnews/1/README.md)
- ` 雅典娜GNotes`
+### [乌克兰驻美大使奥克萨娜·马卡洛娃：我们准备好谈判，但不会投降](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大知名自媒体加入盖特平台](/content/gnews/2/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
+### [白宫副发言人中共病毒检测呈阳性 上周随拜登访问欧洲](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|何谓新中国联邦的“NFSC咖啡”？](/content/gnews/3/README.md)
- ` MOSVIDEO`
-
-### [民调指约四个香港人中有一个计划移民](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [3/27/2022 文贵直播：精糧战友谈采访乌克兰难民和为难民孩子送温暖的感受；新中国联邦法治基金救援让我们华人向世界展示了新的形象](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [大直播后记：新中国的土壤与空气污染治理等问题](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [3/27/2022 文贵直播：文贵为新中国联邦乌克兰救援行动设计的新马甲不仅把中国人和中共有效地区分开来，而且还引起梅迪卡的难民和其他志愿者的极大关注](/content/gnews/7/README.md)
- ` 秘密翻译组-北美组`
-
-### [斗牛士！乌克兰多功能反战车火箭到手](/content/gnews/8/README.md)
- ` 蓝莲花农场`
-
-### [加拿大自由党与新民主党达成执政协议](/content/gnews/9/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [中共国连续两年不转播奥斯卡](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国龙头房企年报“爽约”](/content/gnews/11/README.md)
+### [美国国债收益率倒挂加剧了对经济衰退的担忧](/content/gnews/3/README.md)
  ` 加拿大温哥华英里农场`
 
-### [G7拒绝用卢布买俄天然气 德经长：普京已走投无路](/content/gnews/12/README.md)
+### [大直播后记：新中国联邦两周年纪念活动正式启动](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [加拿大知名自媒体加入盖特平台](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [视频|何谓新中国联邦的“NFSC咖啡”？](/content/gnews/6/README.md)
+ ` MOSVIDEO`
+
+### [民调指约四个香港人中有一个计划移民](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [3/27/2022 文贵直播：精糧战友谈采访乌克兰难民和为难民孩子送温暖的感受；新中国联邦法治基金救援让我们华人向世界展示了新的形象](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [大直播后记：新中国的土壤与空气污染治理等问题](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [惊魂时刻](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [3/27/2022 文贵直播：文贵为新中国联邦乌克兰救援行动设计的新马甲不仅把中国人和中共有效地区分开来，而且还引起梅迪卡的难民和其他志愿者的极大关注](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [斗牛士！乌克兰多功能反战车火箭到手](/content/gnews/12/README.md)
  ` 蓝莲花农场`
 
-### [3/29/2022 银河快讯: 日本陆上自卫队建立 &#8220;电子作战队&#8221;，加强新的安全领域；日元暴跌，暂时达到125日元](/content/gnews/13/README.md)
+### [俄乌之战一个月后的俄罗斯境内现状](/content/gnews/13/README.md)
+ ` cindy`
+
+### [加拿大自由党与新民主党达成执政协议](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共国连续两年不转播奥斯卡](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [G7拒绝用卢布买俄天然气 德经长：普京已走投无路](/content/gnews/16/README.md)
+ ` 蓝莲花农场`
+
+### [3/29/2022 银河快讯: 日本陆上自卫队建立 &#8220;电子作战队&#8221;，加强新的安全领域；日元暴跌，暂时达到125日元](/content/gnews/17/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [COVID-19疫苗副作用集萃（2022.3.29A）](/content/gnews/14/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.29A）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本首相岸田文雄称世界或面临战后最严重危机](/content/gnews/15/README.md)
+### [日本首相岸田文雄称世界或面临战后最严重危机](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一位MU5735遇难者家属的自述（转述）](/content/gnews/16/README.md)
+### [一位MU5735遇难者家属的自述（转述）](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [融创债券无法兑付，“白衣骑士”押上自己](/content/gnews/17/README.md)
+### [融创债券无法兑付，“白衣骑士”押上自己](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠病毒检测试剂是加插在奴隶身上的吸血管](/content/gnews/18/README.md)
+### [新冠病毒检测试剂是加插在奴隶身上的吸血管](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【G时新闻】天基移动电话网络公司将发射测试卫星](/content/gnews/19/README.md)
+### [【G时新闻】天基移动电话网络公司将发射测试卫星](/content/gnews/23/README.md)
  ` G-时新闻`
 
-### [20220327郭文贵大直播 ：中共错估了美国信仰的软实力](/content/gnews/20/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|俄防长久未公开露面 乌克兰称其心脏病发作](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [圆成原创｜魁北克对乌克兰国民的人道援助有感](/content/gnews/22/README.md)
+### [圆成原创｜魁北克对乌克兰国民的人道援助有感](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2022年3月27日 《文贵大直播》全文字版](/content/gnews/23/README.md)
+### [2022年3月27日 《文贵大直播》全文字版](/content/gnews/25/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [COVID-19疫苗副作用集萃（2022.3.28B）](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [泽伦斯基表示需要对俄罗斯实施更严厉的制裁](/content/gnews/25/README.md)
+### [泽伦斯基表示需要对俄罗斯实施更严厉的制裁](/content/gnews/26/README.md)
  ` 蓝莲花农场`
-
-### [秘翻在线：美媒称习近平支持普京是危险的赌博](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [铭记“铁链女”拷问人心的四句话，这是全社会的痛](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
@@ -123,35 +123,35 @@
 ### [融创到期债务无法兑付，中共房地产泡沫加速破裂](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [喜马拉雅币一周分析与总结（3月21日-3月27日）](/content/gnews/37/README.md)
+### [联盟工作汇报文字版2022.3.27](/content/gnews/37/README.md)
+ ` 纽约香草山MOS02`
+
+### [喜马拉雅币一周分析与总结（3月21日-3月27日）](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [全球领导人无法再否认的噩梦：暴涨的肥料和粮食短缺](/content/gnews/38/README.md)
+### [全球领导人无法再否认的噩梦：暴涨的肥料和粮食短缺](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰市长被俘 民众示威逼俄军撤退放人](/content/gnews/39/README.md)
+### [乌克兰市长被俘 民众示威逼俄军撤退放人](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [3月27日俄乌交战局势更新](/content/gnews/40/README.md)
+### [3月27日俄乌交战局势更新](/content/gnews/41/README.md)
  ` NFSC News`
 
-### [欧洲议会将要求数字支付实名制](/content/gnews/41/README.md)
+### [欧洲议会将要求数字支付实名制](/content/gnews/42/README.md)
  ` NFSC News`
 
-### [3/28/2022国际财经快讯：俄罗斯每周石油出口下降 26%；英国下令审查公共部门俄罗斯能源合同](/content/gnews/42/README.md)
+### [3/28/2022国际财经快讯：俄罗斯每周石油出口下降 26%；英国下令审查公共部门俄罗斯能源合同](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [马斯克：普京比我更富有](/content/gnews/43/README.md)
+### [马斯克：普京比我更富有](/content/gnews/44/README.md)
  ` 波士顿五月花农场金融部`
 
-### [乌克兰人在中共国社交媒体展开攻势并传播真实战况](/content/gnews/44/README.md)
+### [乌克兰人在中共国社交媒体展开攻势并传播真实战况](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
 
-### [乌克兰星链卫星：马斯克称中俄若想摧毁非易事](/content/gnews/45/README.md)
+### [乌克兰星链卫星：马斯克称中俄若想摧毁非易事](/content/gnews/46/README.md)
  ` 日本东京方舟农场`
-
-### [梅迪卡最有气势的中国反共人的帐篷](/content/gnews/46/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [台湾｜美国家民主基金会访台 宣布台北将举办世界民主运动大会](/content/gnews/47/README.md)
  ` 關注組`
