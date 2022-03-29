@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 5:46 PM (UTC)`
+
+2022/03/29 亲爱的兄弟姐妹们，这个是经过几款后的设计，G Fashion设计出来的马甲，它拥有着夜间的反光功能。 请战友们在下面的留言区，留下你们的宝贵建议，以便于我们更好的完善我们的设计，达到救更多人的目的！ 🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group36/getter/2022/03/29/17/ca9cc379-b6a9-53a9-9bd6-d125c5476cc8/91e3d36236e58d71091beec6565c9f92.jpg)
+
+---
+
 `@miles 3/29/2022 5:18 PM (UTC)`
 
 
@@ -149,13 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 3/27/2022 Miles Guo: Although President Biden differentiated the Russians from Putin in his speech made in Poland, he did not specifically distinguish the Chinese people from the CCP. The biggest mistake of Xi Jinping is that he misjudged Biden and international politics. Because the CCP’s dictatorship fundamentally contradicts the democratic system of the US and the West.<br/><br/>3/27/2022 文贵直播：拜登总统波兰演讲把普京和俄罗斯人民区分开了，却未明确区分中国人和中国共产党；习近平最大的错误就是误判了拜登、误判了国际政治，因为中共独裁和美国及西方民主制度之间存在着根本对立<br/>
 ![img](https://media.gettr.com/group17/getter/2022/03/29/02/3639ca64-2fa5-02f3-7c7a-ce7c44434ceb/out.jpg)
-
----
-
-`@miles 3/29/2022 2:04 AM (UTC)`
-
-03/28/2022 全球首播 NFSC finance 新中国联邦 | 喜财经 系列节目之 《枫叶财经》第一期
-![img](https://media.gettr.com/group41/origin/2022/03/29/02/ab05c0ba-ffeb-290c-a4de-ed435c88caf2/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

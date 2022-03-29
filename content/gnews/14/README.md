@@ -2,33 +2,35 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月29日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2253404/)
+## 中共国将举行阿富汗问题外长会议 俄外长将出席
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2253419/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-63.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-29.png)
+**撰稿：文舞两道**
 
-文章仅代表作者本人观点，与Gnews无关
+中共国政府拟举办关于阿富汗局势的邻国外长会议。俄罗斯外长拉夫罗夫也将出席这次会议，由于两国外长可能就乌克兰局势交换意见，因此这次会议备受关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/249AFF52-9CAC-4D0D-9C90-E85A32125174.png)照片来源：本文链接
+根据中共国外交部的消息，为期两天的阿富汗局势邻国外长会议将于3月30日和31日在内陆省份安徽举行，中共国外交部长王毅以及来自俄罗斯、巴基斯坦和伊朗等七个国家的外长和代表将出席会议。
 
-视频参看：
-[2022.03.29早 《NFSC新闻》](https://gettr.com/streaming/p12i7q72783)
-[2022.03.29早《NFSC新闻访谈》](https://gettr.com/streaming/p12ibba6063)
+由于中共国和俄罗斯两国外长可能就乌克兰局势交换意见，因此这次会议备受关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/89957519-85DD-4822-AD2C-271D632A0353.png)照片来源：本文链接
+俄罗斯驻华大使馆表示，外交部长拉夫罗夫将出席会议，这是自俄罗斯对乌克兰的军事侵略开始以来，俄罗斯部长首次访问中共国。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+在29日的新闻发布会上，中共国外交部发言人汪文斌还宣布，除了外长会议之外，还将举行一次由美国、中共国、俄罗斯以及巴基斯坦的特别代表参加的单独会议讨论阿富汗局势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+**信息来源：**
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+[中国 アフガン情勢めぐる外相会議あす開催 ロシア外相も出席へ](https://www3.nhk.or.jp/news/html/20220329/k10013558271000.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-63.png)
+**校对：卢卡斯，歪桑**
+
+**发布：歪桑**
+
+20220329
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
+
 
  
 
