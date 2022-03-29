@@ -2,38 +2,32 @@
 ---
 
 
-## 有声|俄罗斯使用高超音速导弹袭击乌克兰军火库
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2248660/)
+## 【G时新闻】天基移动电话网络公司将发射测试卫星
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2248746/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据路透社报道，俄罗斯周六表示，它已使用“金扎尔”匕首高超音速导弹摧毁了乌克兰西部伊万诺-弗兰科夫斯克地区的一个大型武器库。 俄罗斯国际文传电讯社表示，这是俄罗斯自 2 月 24 日向乌克兰派遣部队以来首次部署“金扎尔”高超音速系统。
-![俄国防部：罗夫诺附近的大型武器库被高精度远程武器摧毁 - 俄罗斯卫星通讯社, 1920, 23.03.2022](https://cdn.sputniknews.cn/img/102770/93/1027709321_0:0:1920:1080_1920x0_80_0_0_d4b2eed477b546379088bea6886201f4.jpg.webp)俄罗斯卫星通讯社
-根据俄罗斯新闻机构分享的简报记录，国防部发言人科纳申科夫在简报会上说，周五被“金扎尔”系统击中的地下仓库存放着乌克兰的导弹和飞机弹药。 乌克兰空军司令部发言人周五证实，俄罗斯对弗兰科夫斯克地区的德利亚廷进行了导弹袭击，但未提供更多细节。
+**播****报：加拿大温哥华扬帆农场**** –****【悠然】**
 
-据俄罗斯官媒国际新闻社报道，这是俄军第一次使用这种高度机动类型的导弹。 据俄罗斯国防部称，2018年成功进行测试的“金扎尔”匕首弹道导弹可以突破所有防空系统，并击中1000公里范围内的所有目标。
+**视频制作：加拿大温哥华扬帆农场 -【文雅】**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3599.png)
+目前，唯一一家致力于建立天基移动电话网络的公司已经与SpaceX公司签署了一项发射协议，计划将170颗卫星放入低轨道，为50亿电话移动用户创建一个基于空间科技的蜂窝宽带网络。
 
+据悉，该公司总部位于美国德州，其计划在今年夏天，从美国卡纳维拉尔角（Cape Canaveral）用猎鹰9号SpaceX飞行器发射“BlueWalker 3”测试卫星，用来与手机进行标准频率通信，并将在未来发射BlueBird卫星。
 
+其通信卫星可以为无线和移动基础设施有限或没有的地区，提供主要的移动信号，并填补现有移动信号消失的空白。基于太空网络科技的新兴通信技术，不但会改写现有移动通信系统，而且会彻底消灭中共等独裁政权蒙蔽民众的网络防火墙。
 
-文字版原文：[俄罗斯使用高超音速导弹袭击乌克兰军火库](https://gnews.org/zh-hans/2244826/)
+视频链接：[https://gettr.com/post/p129g2z12d2](https://gettr.com/post/p129g2z12d2)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+编辑/上传：蔚蓝之境
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3600.png)
+————————————————————————————————————
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3601.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

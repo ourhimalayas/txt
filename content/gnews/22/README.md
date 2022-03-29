@@ -2,35 +2,31 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2248515/)
+## 今日盖特大V推荐 — 戴夫·鲁宾（Dave Rubin）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2248541/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-28.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/aobdv-uxnn4.jpg)
+**盖特链接**：[https://gettr.com/user/daverubin](https://gettr.com/user/daverubin)
 
-文章仅代表作者本人观点，与Gnews无关
+**戴夫·鲁宾自述：**
 
-视频参看：
-[2022.03.28早 《NFSC新闻》](https://gettr.com/streaming/p12b1habf28)
-[2022.03.28早《NFSC新闻访谈》](https://gettr.com/streaming/p12biew65bc)
+**佛罗里达人**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/as-3.jpg)图片来源：网络
+**戴夫·鲁宾简介：**
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+戴夫·鲁宾全名戴夫·约书亚·鲁宾（David Joshua Rubin，出生于1976年6月26日）是美国政治评论员、著名节目主持人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
+戴夫·鲁宾是YouTube和火焰电视（BlazeTV）网络上政治谈话节目“鲁宾报告（The Rubin Report）”的创作者和主持人。他的节目于2013年推出，直到2015年离开。此前，戴夫·鲁宾主持过以同性恋（LGBT）为主题的脱口秀节目。他还与本·哈维共同主持了，2007年至2008年的本和戴夫秀（The Ben and Dave Show）和2009年至2012年的 The Six Pack。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+戴夫·鲁宾将自己描述为古典自由主义者，后来又将自己描述为保守派。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
