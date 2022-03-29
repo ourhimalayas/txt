@@ -2,32 +2,46 @@
 ---
 
 
-## 才旺罗布先生的真正死因
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2251714/)
+## 墙内欠薪、裁员、破产现象频发
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251920/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screen-Shot-2022-03-29-at-20.27.56.png)
-3月27日大直播中，郭先生讲述了战友才旺罗布先生的真正死因。
+作者：日本方舟农场 – Andy5
 
-才旺罗布先生在生活中是非常有才情的人，他交往的朋友都是有些文化深度的。介绍郭先生和才旺先生认识的人是国内音乐届某超级大佬，这位大佬曾说西藏人太可怜了，他愿意用生命去救每一个西藏人。才旺战友临死之前给郭先生传简讯，说在梦里见到穿长袍的郭先生，一起吃西藏的糌粑。郭先生也梦到了才旺，因为才旺之前说过想把自己这个风筝的线剪断，就自由了。而郭先生正好梦到了这样的情景，梦境里那条拉着风筝的线一下子就消失了。第二天，才旺先生就离世了。
 
-才旺战友因为看郭先生的直播受到共产党的迫害，看直播时他都会给所有战友念经祈福。他说要去自焚，郭先生一开始是完全相信的。但是后来亲身经历此事的人联系郭先生，才旺先生根本不是自焚的，他是被共产党活活打死的。
 
-爆料革命背后有无数个付出鲜血和生命的战友。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-撰稿、发布：骄子
 
-* * *
 
-欢迎订阅我们的GNews账号：
+3月28日，最近多家媒体报道，中共拖欠农民工工资、行业巨头裁员现象频发，另有多家房地产企业宣布破产，墙内经济正在继续下行。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+3月25日，有网友在社交平台上爆料称，吉林建设方舱医院的过程中，多位农民工感染中共病毒，工程期间住宿环境差，并且在建成后被中共拖欠之前承诺的薪资。但这并不是中共第一次拖欠农民工工资，早在2020年2月中共在武汉兴建火神山医院时，就被爆出拖欠工资，并且几乎没有保证农民工防护措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide15-2.jpg)
+另一方面，在3月28日，继上周腾讯阿里被传出大幅度裁员后，墙内电商巨头之一的京东和网络视频巨头B站，也被爆出大幅裁员。而这距离京东掌门人刘强东，在2018年称“永远不会开出任何一个兄弟”，才过去不到4年的时间。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
+同日，中共财政部北京监管局要求，防止各地方政府债券发行超过本地债务限额，暗示中共地方债务已经超过中共预期。另据墙内数据查询，中共赖以生存的房地产企业，在今年一季度中已经有超过100家发布了破产文书。
+
+观察人士指出，近一段时间以来墙内的欠薪、裁员、破产的消息层出不穷，这表明中共的经济并没有中共新闻中的光鲜亮眼，而是如郭文贵先生所爆料的那样，即将面临全盘崩溃的时刻。
+
+参考链接：
+1. [曝吉林方舱医院农民工感染新冠，还被中建八局拖欠工资](https://www.163.com/dy/article/H3BDGUMQ0534B9EY.html)
+2. [突然！徐州多个开发商破产！](https://www.163.com/dy/article/H3A6JV0N0535BBBW.html)
+3. [京东B站被曝裁员，紧急回应！更有裁员工牌堆满一大箱，半层楼的人都空了](https://finance.sina.com.cn/stock/s/2022-03-28/doc-imcwiwss8464547.shtml)
+4. [刘强东：我们永远不会开除任何一个兄弟，AI也不会导致大规模失业](https://www.sohu.com/a/231836392_123977)
+5. [财政部北京监管局:防止地方政府债券发行超过本地债务限额](https://www.163.com/dy/article/H3I9FAAO0535L78U.html)
+6. [火神山医院工地拖欠农民工工资？ 承建方回应](https://www.zaobao.com.sg/realtime/china/story20200219-1030383)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

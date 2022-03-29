@@ -2,78 +2,35 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“G-Club”（二十六）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2252534/)
+## 樱花时政┃俄罗斯和乌克兰进入第四次停战谈判
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2252679/)
 
-整理： BENJ1 
-编辑：李易通
+撰稿：东京樱花团｜文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+在乌克兰持续的激烈战斗中，俄罗斯和乌克兰之间面对面的停火谈判将于今日29日下午举行。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/dsfdv.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-3-10.png)[*图片来源*](https://www3.nhk.or.jp/news/html/20220329/K10013556941_2203291135_0329115353_01_02.jpg)
+
+日本NHK新闻3月29日报道，在乌克兰持续的激烈战斗中，俄罗斯和乌克兰之间面对面的停火谈判将于29日下午举行。在谈判之前，乌克兰外长克莱巴表示，“最大的计划是达成停火协议。”而普京总统的一名助手说，“军事行动的目标不是乌克兰的政权更迭。”因此能否达成妥协还有待观察。
+
+俄罗斯军方已经表明了加强在乌克兰东部军事行动的政策，并加强了对关键城市马里乌波尔的全面攻势。美国国防部的一位高级官员28日指出，马里乌波尔继续被俄罗斯军队包围，并面临巨大压力，而在东北部，乌克兰军队已经夺回了一个城镇。
+
+在此背景下，俄罗斯和乌克兰代表团的第四轮面对面停战谈判定于3月29日下午（中共国时间）在土耳其伊斯坦布尔举行。俄罗斯代表团将于3月28日晚抵达那里，乌克兰代表团于28日清晨抵达。
+
+停战谈判将首先关注双方能否就俄罗斯要求乌克兰安全“中立化”的问题达成妥协，因为乌克兰在维护领土问题上坚持不可谈判的立场。乌克兰外交部长克雷瓦28日在接受一家电视台采访时说：“最大的计划是达成停火协议，但我们在人民、领土或主权上是不会让步的。”
+
+消息来源：[**ロシアとウクライナ 4回目の停戦交渉へ 日本時間16:30ごろから**](https://www3.nhk.or.jp/news/html/20220329/k10013556941000.html)
+
+校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
 
-
-图片来源：雅典娜设计组
-
-
-郭文贵先生2021年8月11日直播
-
-七哥一定给你保证，G-Club卡一定会比原来的十个卡（全球十大信用卡）都牛。G-Club一定会做成比任何一个大品牌都值钱的G-Fashion，大家走着看。
-
-我们讲了这么多G-Club、G-Fashion的伟大的未来和意义。最重大的事情就是要在这次病毒期间保护好所有的战友，做好所有战友的防毒、解毒、解病的保护工作，让新中国联邦成为战友们防病最好的靠山。祈祷兄弟姐妹们和家人的平安是最重要的，人死了什么主义都是假的、都是胡扯的。
-
-你必须得活着，你不好好活着你就不配当新中国联邦人，你不配拥有G-Club卡，你不配拥有G-TV的股票，你不配穿G-Fashion，你必须好好活着。
-
-郭文贵先生2021年8月14日直播
-
-我第一次告诉你们，G-Club股权未来一定有5%属于G-TV的投资者的，G-Club的5%股权它意味着什么?它不是价值，它不仅仅是市场价值和回报。
-
-战友们，当你拥有G-TV股票的时候，我投资的G-TV，我拥有盖特的5%，我拥有G-Club的5%，我拥有喜联储的5%。兄弟姐妹们，你的股票意味着什么?你不是投资G-TV，你不仅仅是拥有G-TV的股权，你还拥有货币系统。
-
-郭文贵先生2021年8月16日直播
-
-我们的G-Club现在更重要的是什么?大家去想一想，我们俱乐部要保证所有未来的G-Club会员，在我们前期一个初级阶段，完成最重要的财富的积累。
-
-共产党为什么要把柳传志的泰山会，马云、史玉柱、董文标通通给干灭?共产党过去叫帮会制，也叫共产俱乐部，到国际上就叫共产俱乐部，回到国内就是黑帮。中共最怕的是中国有任何所谓的帮派俱乐部存在。
-
-共产党最崇拜的是中国古代从战国时期留下来的结社文化。日本人最崇拜结社文化，我有那个原始的书大家都知道。
-
-俱乐部就是结社文化的祖宗，他怎么能让你结社呢?结社是人家欧洲在同等宗教、同等经济、同等能力条件下结成了俱乐部，然后直奔目标去干啥事去了。欧洲这个国我统治了，那个国你统治了，这个总统你说了算，那个利益你说了算，就是分地盘。
-
-资料来源：郭先生GTV、盖特直播
-
-往期回顾：
-[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
-[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
-[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
-[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
-[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
-[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
-[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
-[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
-[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
-[文·贵天成——文贵先生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
-[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
-[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
-[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
-[文·贵天成——文贵先生谈“G-Club”（二十）](https://gnews.org/zh-hans/2240823/)
-[文•贵天成——文贵先生谈“G-Club”（二十一）](https://gnews.org/zh-hans/2244681/)
-[文•贵天成——文贵先生谈“G-Club”（二十二）](https://gnews.org/zh-hans/2251614/)
-[文•贵天成——文贵先生谈“G-Club”（二十三）](https://gnews.org/zh-hans/2251657/)
-[文•贵天成——文贵先生谈“G-Club”（二十四）](https://gnews.org/zh-hans/2251695/)
-[文•贵天成——文贵先生谈“G-Club”（二十五）](https://gnews.org/zh-hans/2252453/)
-
-发布： 星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 
  
 

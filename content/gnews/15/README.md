@@ -2,35 +2,41 @@
 ---
 
 
-## 地产圈又爆雷：融创年报出不来，阳光城债券违约
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2252396/)
+## 有声|历史的今天3月28日
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252558/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+1959年3月28日，是中共国宣布的所谓 “西藏百万农奴解放纪念日” 。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-64.jpg)
+据历史资料记载，中共为了在西藏地区实行共产统治，对藏人进行了血腥暴力的“改造”。1959年3月，中共的残暴激起藏人的反抗，最终，爆发了大规模的抗暴起义。对此，中共派军队进行了武力镇压，西藏政府首脑第十四世达赖喇嘛与高官流亡印度。从此，中共对藏人开始了大规模的镇压和屠杀。藏人为了纪念这次反抗中共的起义，把1959年3月10日设立“西藏人民起义日”，每年3月10日藏人都会纪念这一事件。
 
-整理：li yan li
-编辑：文泓
+中共在镇压西藏百姓起义后，竟然强奸民意，伪造历史，把1959年3月28日定为 “西藏百万农奴解放纪念日”，企图掩盖其在西藏的武装镇压暴行。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/U@L67_LGOO9M5@VT31.png)图片来源：inf.News & 雅典娜设计组
+藏人行政中央外交与新闻部秘书嘎玛秋英反驳道，中共当局声称于1959年3月28日解放西藏百万农奴，并让藏人当家作主，但实际上，这些宣传纯属伪造。中共自1949年开始非法侵占西藏，并屠杀无数藏人，摧毁数千座寺庙，对藏人造成的苦难难以计数。同时，嘎玛秋英还指出，虽然中共当局通过媒体竭力宣传西藏的 “发展” ，但事实上西藏境内的人权状况仍处于恶劣状态。
+
+欧洲议会西藏协调组官员认为，设立这个节日是对藏人史无前例的侮辱。
 
 
-3月28日晚间，融创中国在港交所发公告，**预期无法于本月底前完成本集团截至2021年度之财务报表的编制，即本公司预期无法于2022年3月31日或之前刊发2021年未经审核年度业绩。**本公司会在切实可行情况下尽快刊发本集团二零二一年经审核年度业绩。
 
-此外，公告还表示，由于2021年未经审核年度业绩未能于三月三十一日或之前刊发，**公司股份将于四月一日上午九时正起在香港联合交易所有限公司暂停买卖**。
+文字版原文：[历史的今天3月28日](https://gnews.org/zh-hans/2246485/)
 
-3月28日晚间，**阳光城公告称，债券“19阳光城PPN001”应于2022年3月22日支付本息，截至兑付日日终，公司未能按照约定筹措足额偿付资金，本期定向债务融资工具不能按期偿付本息。**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-在此次公告之前，阳光城于今年2月首次公告，两笔境外债券约1.7亿元人民币利息无法兑付。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-阳光城曾于3月18日公告，因未能按期支付境外债券利息，致使公司债务融资工具“17阳光城MTN001”、“17阳光城MTN004”、“20阳光城MTN001”、“20阳光城MTN003”加速到期。截至该公告日，阳光城未能获得对上述加速到期债券交叉保护条款的豁免，即未能足额偿付上述加速到期债券累计本息合计50.28亿元。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考链接：[地产圈又爆雷：融创年报出不来 阳光城又违约了](https://finance.sina.com.cn/stock/s/2022-03-29/doc-imcwiwss8688464.shtml)
-发布：tianzhihuan
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
