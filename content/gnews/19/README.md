@@ -2,36 +2,32 @@
 ---
 
 
-## 澳大利亚政府将网络作战部队规模翻倍以应对中俄网络安全威胁
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2253939/)
+## 加拿大表示愿帮助缓解全球食品能源短缺
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2254252/)
 
-编译：波士顿五月花—-Streamline
+翻译：billwilliam
 
-据《英国每日邮报》3月29日报道，由于受到中国和俄罗斯网络安全的威胁，澳大利亚将在未来10年花费近100亿美元，使其网络作战部队的规模翻倍。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-23.jpg)图源：seekingalpha.com
+据雅虎2022年3月29日报道，加拿大总理特鲁多周二在温哥华发表演讲，表示愿意帮助世界克服俄乌战争对世界在未来几个月造成的食品和能源短缺。但是仅靠加拿大增加出口犹如杯水车薪，很难彻底弥补俄乌战争、中共新冠病毒大流行、和疫苗灾难导致的食品能源缺乏。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/AA3496CD-6830-4808-A49B-656E6FB25B7A.jpeg)
+特鲁多表示，“在未来几个月，加拿大会帮忙把食品送上餐桌，以及继续点亮电灯”。同时，特鲁多认为，欧洲领导人不止想结束对俄罗斯石油和天然气的依赖，还希望加速向清洁绿色能源转型，其中加拿大会起很大作用。
 
-随着澳大利亚与美国和英国(澳大利亚的传统国防盟友)以及亚洲民主大国的国家安全关系得到加强，上述预算将大幅提升澳大利亚国防情报局(Australian Signals Directorate-ASD)的情报能力，国防情报局是国防部的一个分支。
+那么加拿大到底生产多少化石燃料和食品，够不够欧洲使用呢？据《投资高管》（Investment Executive）报道，2021年欧盟从俄罗斯每天进口230万桶原油和3.8亿立方米天然气，相当于欧盟25%的原油用量和40%的天然气用量。加拿大自然资源部长乔纳森·威尔金森（Jonathan Wilkinson）上周四表示，加拿大油气生产企业可以每天增产约合30万桶原油的石油和天然气产品，相当于欧洲从俄罗斯进口天然气的5%，进口原油的10%。然而，加拿大缺乏向欧洲直接海运石油或天然气的基础设施，大部分需要经石油管线输送至美国，然后再装船。阿尔伯塔省能源部长索尼娅·萨瓦其（Sonya Savage）表示，他们期望将长期石油产量提升到100-150万桶，但是需要加国政府支持，因为政府一直在打压石油产业。欧洲需要同时减少短期能源消耗，并寻找替代能源，比如风能，太阳能，生物能源，热能。加拿大可以提供风能发电机和热泵。
 
-在这份预算中，政府将投资 99 亿美元用于澳大利亚的情报和网络，以加强政府对澳大利亚五眼联盟和澳英美联盟（ AUKUS ）三边合作伙伴关系的承诺，同时支持印-太地区的安全。
+食品方面的消息更加不容乐观。据《彭博社》2022年3月2日报道，干旱导致加拿大西部40%粮食减产。2021年12月底，加国小麦库存量达到1560万吨，同比下降38%。《彭博社》认为加拿大可能没有额外的小麦来填补世界粮食空缺。
 
-2030-31年中，澳大利亚情报局将获得资助，以提供复原、效果、防御、空间、情报、网络和辅助手段一揽子计划—被称为REDSPICE计划。
+郭文贵先生近期爆料称，中共和俄罗斯密谋在中东展开“围魏救赵”行动，在中东挑起战火，甚至堵塞霍尔木兹海峡，那么会引发全球能源危机。同时，中共在全球抢购粮食，已经购买相当于公开市场供应量300%的粮食期货。在未来的世界，水和食品可能是最珍贵的。
 
-REDSPICE计划将使澳大利亚情报局的规模扩大一倍，在未来十年创造1900个新的就业机会。
+欢迎加拿大能多出口石油、天然气、和食品来缓解全球供应危机，但是他们的产量可能远远不够。另外随着5月份后疫苗灾难爆发，越来越多工人病倒，供应链断裂，全世界不一定能够维持现有的能源、食品产量。最黑暗的时刻可能即将到来。
 
-联邦政府表示，REDSPICE计划将使ASD的“网络攻击能力”增加两倍，“网络搜寻和响应活动”能力增加一倍。
+新闻来源：
 
-澳大利亚去年与美国和英国签署了一项具有历史意义的安全协议，称为AUKUS。作为协议的一部分，美国还将与澳大利亚分享核潜艇技术。这是自1958年以来，美国首次与英国以外的国家分享他们的潜艇技术。
+[https://news.yahoo.com/canada-help-offset-food-energy-164305380.html](https://news.yahoo.com/canada-help-offset-food-energy-164305380.html)
 
-新的AUKUS安全伙伴关系的首要任务是在核动力潜艇方面进行合作。网络能力、人工智能、量子技术和海底作战能力是其他重点领域。
+[https://www.investmentexecutive.com/news/industry-news/canada-can-hike-oil-gas-output-by-300000-barrels-a-day-federal-natural-resources-minister/](https://www.investmentexecutive.com/news/industry-news/canada-can-hike-oil-gas-output-by-300000-barrels-a-day-federal-natural-resources-minister/)
 
-新闻评论：独裁的中共国和俄罗斯是世界所有灾难的根源，对内，它们视生命如草芥，鱼肉百姓，骄奢淫逸。对外，它们与邪恶为伍，撕毁条约，不守规则。以美国为首的西方文明世界只有与新中国联邦联手铲除中共和俄罗斯政权，才能为世界带来正道主义的希望。
-
-素材来源：[https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html](https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html)
-
-*发布：思澈*
-
-
+[https://www.bloomberg.com/news/articles/2022-03-02/there-s-not-enough-extra-canadian-wheat-to-fill-global-shortfall](https://www.bloomberg.com/news/articles/2022-03-02/there-s-not-enough-extra-canadian-wheat-to-fill-global-shortfall)
 
  
 

@@ -2,54 +2,44 @@
 ---
 
 
-## 韩国疫情表明，亚洲的“中共疫苗接种试验”已经失败
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2254350/)
+## 全球和澳洲疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254546/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/i_Stock_1221153342_e0698d84f6.jpg)@americasfrontlinedoctors.org
+#### **整理：枳实**
+**美工：精灵蓝**
 
-美国前线医生网站2022年3月28日报道，在中共病毒大流行初期，安东尼·福奇博士(Dr.Anthony Fauci)等健康专家告诉公众，当60%—70%的人对该病毒有免疫力时，就可以实现群体免疫。后来，福奇将这个数字改为“70%、75%”。再后来，他在接受美国全国广播公司商业频道(CNBC) 采访时将其更改为“在 75 到 80%、85% 之间”。第二天，他又说这一数字接近90%，并澄清说接近90%的人口需要接种疫苗才能实现群体免疫。
-
-那么，在近87%的人口接种了中共病毒疫苗，63%的人口接种了加强针的情况下，人们会认为，韩国在应对中共病毒方面做得相当不错。但是韩国现在的大流行病情况比以往任何时候都要严重。
-
-美国有线电视新闻网(CNN)上周报道说：“该国现在每天都有数十万新病例——这是到世界上最高的日均值之一。”
-
-虽然医疗机构早已承认接种疫苗并不能防止病毒的传播，但它仍然坚持认为疫苗可以防止重症和死亡。这很难解释韩国的死亡率。周三，韩国的中共病毒死亡人数达到470人，成为该国大流行病历史上最致命的一天。
-
-此外，据报道，这些死亡来自该病毒的奥密克戎毒株(Omicron)——迄今为止最温和的毒株。人们开始注意这个问题了。
-
-“韩国是一个中共病毒疫苗接种率为85%的国家，现在正出现创纪录的新病例激增。”美国前线医生的创始人西蒙娜·戈尔德(Simone Gold)博士在推特上说。“疾病预防控制中心(CDC)建议不要前往该国。当CDC建议已接种疫苗的人不要去一个高度接种疫苗的国家旅行时，你就知道有问题了。”
-
-“韩国的突发事件。”著名医生彼得·麦卡洛博士(Dr. Peter McCullough)周六在接受采访时说，“迄今为止，韩国的感染病例相对较少，但现在是病例数量最多，死亡人数最多的国家……该国应该很清楚，疫苗是失败的。”
-
-医生埃里克·托波尔(Eric Topol)在推特上说：“韩国是管理大流行病的模范国家，而它的奥密克戎浪潮已导致目前比世界上任何国家都高的人均死亡率。”
-
-“韩国有口罩强制令，且几乎普遍遵守；有疫苗护照，87% 的人口完全接种了疫苗，而且他们是世界上加强针接种率最高的国家之一——超过62%的人口接种了加强针。”伊恩·米勒(Ian Miller)在推特上说，“他们目前的病例率也是世界上最高的。”
-
-**简评：**
-韩国自2021年12月底被奥密克戎变种病毒“攻陷”以来，感染病例数量一直在持续攀升。这次爆发，有来自于长达2年的疫情的防疫政策导致的人们的松懈，也有媒体的故意淡化病毒风险，更重要的是中共病毒疫苗的高度接种：87%的人口完全接种了疫苗，而且韩国是世界上加强针接种率最高的国家之一——超过62%的人口接种了加强针。另一方面，韩国的感染数据说明了卫生机构一而再再而三更改的最终版“中共病毒疫苗作用”，即可以减少重症和死亡，是一场多么可笑的闹剧。
-
-韩国目前最高日增重症超过1000例，而死亡高达470例，这对一个人口5170万左右的国家，是一个惊人的数字。这所有的一切都证明了一波一波越来越严重的感染的根源问题的不是病毒本身，而是疫苗。疫苗接种率越高，人体免疫力越差。各种病原体都可以轻而易举的引起各种身体机能故障，导致各种疾病，甚至死亡。政府不敢承认是疫苗导致的灾难，只能将这些情况都归于中共病毒感染，称感染导致了各种疾病甚至死亡。纸包不住火，在真相前所有的假都会无处遁形。新中国联邦爆料革命一直坚定讲述的疫苗病毒真相，希望在疫苗灾难到来前可以唤醒更多的人，意识到疫苗的毒和政府执行的疫苗暴政，保护自己的同时用行动争取自由。
-
-新闻链接：[South Korea: Asia’s COVID experiment has failed](https://americasfrontlinedoctors.org/news/post/south-korea-asias-covid-experiment-has-failed/)
-
-*翻译/简评：milkcat*
-
-*校对: Harvey（叶知秋）*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-13.png)图片：雅典娜农场设计组 精灵蓝
 
 
+雅典娜疫情更新（2022年 3月29日）
 
-* * *
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片19.png)图片：雅典娜农场设计组 精灵蓝
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片20.png)图片：雅典娜农场设计组 精灵蓝
+
+
+[2022年3月29日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[ovidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

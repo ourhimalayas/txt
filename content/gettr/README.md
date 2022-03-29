@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 11:54 PM (UTC)`
+
+2022.03.29《The Fringe》 Episode 157
+![img](https://media.gettr.com/group3/origin/2022/03/29/23/c83b8780-8e85-12ca-a73f-24246fbe91ea/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/29/2022 11:45 PM (UTC)`
+
+3/27/2022 Miles Guo: Russian oligarchs are selling off their assets at a discount, but we have never and will never take advantage of others’ plight. The same things that have happened to the Russians when the US and the West sanctioned them will happen to the Chinese people, and the New Federal State of China is saving the Chinese people around the world to minimize the number of people who will be wronged.<br/><br/>3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人<br/>
+![img](https://media.gettr.com/group47/getter/2022/03/29/23/25c7f842-ad69-b972-55b1-d41787cd071b/out.jpg)
+
+---
+
+`@miles 3/29/2022 11:40 PM (UTC)`
+
+<br/>【Ukraine Rescue】03/29/22  Ukraine Battlefield Edition of《Chained Dream》played by Italian war-zone pianist Davide Martello in front of the NFSC & ROLF tent at the Medyka Rescue Center<br/><br/>【乌克兰救援】03/29/22 意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帳篷前，弹奏《乌克兰战地版铁锁梦》<br/>
+![img](https://media.gettr.com/group32/getter/2022/03/29/23/96c6ceee-ecb8-5730-fb93-fabc1762d02f/out.jpg)
+
+---
+
 `@miles 3/29/2022 11:04 PM (UTC)`
 
 3/27/2022 Miles Guo: The vests bearing the logos and slogans of the New Federal State of China are loved by people from all over the world at the Medyka rescue camp in Poland, and our vests will be given away for free to those who like them in unlimited quantities!<br/><br/>3/27/2022文贵直播：印有新中国联邦标识和口号的马甲在波兰梅迪卡营地受到各国人民喜爱，我们的马甲将不限量免费赠送给喜欢的人！<br/><br/>
@@ -135,27 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
  3月29号：尊敬的战友们好！通过这个最真实的短暂的．摄像机没被坏掉的庭审视频，真正能体会到中国共产党治理国家的依法治国的真实面目．比地狱还黑暗。
 ![img](https://media.gettr.com/group34/getter/2022/03/29/11/3a9aa51c-1c59-08c4-e1ec-1701fb565e2f/out.jpg)
-
----
-
-`@miles 3/29/2022 10:03 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月28日第24天当日救援统计：<br/>Medyka救援站接待：约90人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7655人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 24 - Date: March 28, 2022 :<br/>Medyka Rescue Station Reception: about 90 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7655 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group23/getter/2022/03/29/10/9338b5b8-2acb-fb32-5864-5557317ed1aa/07557c16f8240f60694015f39cb93c47.jpg)
-
----
-
-`@miles 3/29/2022 9:36 AM (UTC)`
-
-3/27/2022 Miles Guo: What is the soft power of the US? The CCP’s top think tank is ignorant of the world, and the CCP is attempting to take advantage of the pendulum effect to create turmoil in the US without realizing that the US and Europe are bonded together because of the shared faith, culture, race, and interests. Which quote from President Biden inadvertently let him surpass his predecessors?<br/><br/>3/27/2022 文贵直播：美国的软实力是什么？中共顶级智囊对世界充满了无知，中共妄图利用美国的钟摆效应搞乱美国，殊不知美欧却有着共同的信仰、文化、族群和利益的纽带；拜登总统说的哪句话在不经意间让他超越了前任总统？<br/>
-![img](https://media.gettr.com/group11/getter/2022/03/29/09/8338e775-e3cd-1e75-1805-2eaa2f89e0aa/out.jpg)
-
----
-
-`@miles 3/29/2022 9:32 AM (UTC)`
-
-3/27/2022 Miles Guo: The Communist China's science and technology are all stolen from the West. The Russia-Ukraine war has confirmed that Hu Jintao was right that the Russian technology is not credible and should not be used. Biden has absolute confidence in defeating Russia, and his speech revealed that democracy and dictatorship are absolutely antagonistic. Japan will be granted the right to declare war, and NATO, especially Britain, is fully involved in the war in Ukraine. The Chinese can no longer serve as slaves and tools by depending on other countries!<br/><br/>3/27/2022 文贵直播：中共国的科技都是盗取西方的，俄乌战争验证了胡锦涛所谓俄罗斯科技不可信、不可用；拜登有绝对信心打败俄罗斯，其演讲透露出民主和独裁已绝对对立；日本将获得宣战权，北约尤其是英国全面参与了乌克兰战争；中国人再也不能做依赖他国的奴隶和工具了！<br/>
-![img](https://media.gettr.com/group14/getter/2022/03/29/09/a74054d4-e018-e294-0eb1-6c85b68d41e0/out.jpg)
 
 ---
 
