@@ -2,30 +2,66 @@
 ---
 
 
-## 大直播后记：新中国联邦两周年纪念活动正式启动
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2249118/)
+## 视频|跟着共产党，走进火葬场
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2249374/)
 
-整理：Guojunior、红红火火
-编辑：小红帽
+中共借由“全天候伙伴关系”、“一带一路”等手段，用蓝、金、黄的方式賄賂各国政要。前有如巴基斯坦前总理谢里夫、马来西亚前首相纳吉布等親身试险，出卖国家利益。当人民逐渐意识到事情的真相和本質，这些被中共以藍金黃裹挟的政客也将同時被其国民抛弃。郭文贵先生在20日的大直播中爆料，与习近平结盟的普京很有可能被推翻。巴基斯坦总理伊姆兰·汗和伊朗现任领袖哈梅内伊這些持续跟随中共的邪恶轴心国的領導人，最終都将被干掉。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/47d7060da2cdf6b4.png)图片来源：雅典娜农场设计组（614）
+那些继续充当中共代理人的海外欺民贼们，世界各国正在對他們进行相关的调查。他们都将受到应有的惩罚。
+
+反观中共国内，在全世界病毒肆虐，感染和死亡人数空前的情况下，中国人民在浑然不知已有多少同胞已经走向火葬场的情況下，卻還在感叹“还是中共国最安全“。在突发疾病接踵而至时，中国人民无法把这些灾难与疫苗接种的關係聯係在一起，更无法想象即将到来的疫苗灾难。
+
+摘要：因与中共结盟，普京、巴基斯坦总理伊姆兰·汗、和伊朗现任领袖哈梅内伊都将被推翻；海外欺民贼将受到应有的惩罚；而不明病毒和疫苗真相的中共国老百姓，也将面临空前的灾难。
+
+关键词：#跟着共产党走进火葬场 #蓝金黄 #海外欺民贼 #中共病毒 #疫苗灾难
+
+参考链接：
 
 
-新中国联邦两周年纪念活动，从今天开始启动。由我们新中国联邦的联盟委员会全面（主导），所有的农场主都是委员，都要参与。总指挥还是草根兄弟，美国协调还是今天的大卫和老班长。老班长和长岛哥配合，是副总导。总导是草根兄弟。全球农场主全部都是委员，全面参与，正式进入这个两周年的新中国联邦（纪念活动），一直到6月4号。今天宣布，从今天开始。
 
-另外，在6.4之前，我们要向大家，所有你们赚到了钱的，拥有喜币的人，一定会让你们收到比抽出了大奖的还高兴的大新闻。我头2天说的4到5周，2到3周看到了喜支付在GFashion平台上使用。我再给大家说一遍，Nicole，如果你们有钱，现在一定要买GFashion。每样东西都值得你们拥有，绝对不会吃亏。就如你一美金买一个4000美金的东西一样，你为啥不买呢？不要说等着币涨了多少才买。你一定要花，你们还有币的。
+> [跟着共产党走进火葬场（国际版）](https://gnews.org/zh-hans/1890108/)
 
-第2个，要记住，第2个大的决定，很快在一个月左右会到来，一定会到来。然后6月4号又要给你们战友们献大礼。大家都看到，都感觉到了。昨天跟今天的情况都看到了，是吧？
 
-参考资料：[郭文贵先生2022年3月27日大直播](https://www.gettr.com/streaming/p124vkgc8a0)
 
-发布*：tianzhihuan*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+> [2022年3月20日郭先生大直播 文字同步精要](https://gnews.org/zh-hans/2198573/)
+
+
+
+翻译稿：
+
+By means of “all-weather partnership” and “Belt and Road Initiative,” the Chinese Communist Party (CCP) has used Blue, Gold, and Yellow (BGY Plan) to bribe dignitaries of various countries. Formerly, such as the former Prime Minister of Pakistan Sharif and the former Prime Minister of Malaysia Najib personally tried the risk and sold out their national interests. When the people gradually realize the truth of the matter, these politicians who are wrapped by the Chinese Communist Party in BGY will be abandoned by their citizens at the same time. Miles Guo broke the news in the Grand Live broadcast on the 20th that Putin, who is allied with Xi Jinping, is likely to be overthrown. Pakistani Prime Minister Imran Khan and Iran’s current leader Khamenei, part of leaders of the Axis of Evil who continue to follow the Chinese Communist Party, will eventually be taken out.
+
+Those overseas deceivers who continue to act as agents of the Chinese Communist Party are being investigated by countries around the world. They will all be duly punished.
+
+In mainland of Communist China, the Chinese people are lamenting that “China is the safest country in the world,” unaware of how many of their compatriots had already been cremated, amidst the unprecedented number of infections and deaths caused by viruses around the world. The Chinese people cannot relate these disasters to vaccination, let alone imagine the coming vaccine catastrophe, when sudden illnesses are coming one after another.
+
+Summary: For aligning with the Chinese Communist Party, Vladimir Putin, Pakistani Prime Minister Imran Khan and Iran’s current leader Khamenei will be overthrown; the overseas deceivers will be duly punished; the people of the Chinese Communist State, who do not know the truth about the virus and vaccines, will face unprecedented disasters.
+
+Keywords: #Follow the Communist Party into the crematorium #Blue, Gold, and Yellow #Overseas deceivers #Chinese Communist virus #Vaccine disaster
+
+Reference links.
+
+
+
+> [跟着共产党走进火葬场（国际版）](https://gnews.org/zh-hans/1890108/)
+
+
+
+
+
+> [2022年3月20日郭先生大直播 文字同步精要](https://gnews.org/zh-hans/2198573/)
+
+
+
+Translated with www.DeepL.com/Translator (free version)
+
+作者：雪梨
+
+翻译: stay文苑
+
+发布：奇门遁甲
 
  
 

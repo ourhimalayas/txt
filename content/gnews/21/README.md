@@ -2,13 +2,26 @@
 ---
 
 
-## 日本首相岸田文雄称世界或面临战后最严重危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2248848/)
+## 加拿大知名自媒体加入盖特平台
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2249106/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220329-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+
+据加拿大【后千禧年】3月24日报道，该自媒体特约编辑安迪-恩戈当天宣布加入盖特，并与该社交媒体平台建立合作关系，以确保该独立记者能为其新闻节目自由制作独家内容。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3610.png)图片来源：gettr
+
+
+报道称，恩戈将在盖特发布其个人报道和提供时事评论分析，并在没有政治审查或非法禁令威胁的情况下下，利用该平台与读者互动。盖特首席执行官杰森米勒对此表示，盖特以“能与勇敢追求真相的记者合作推广重要新闻，并为其提供自由言论的平台”而自豪。
+
+自2021年7月4日正式推出以来，盖特目前已拥有超过500万注册用户。随着推特等传统社交媒体的违法审查制度不断加强，越来越多知名的新闻及媒体人士纷纷加入了盖特，并以言论自由向专制的高科技寡头宣战。
+
+校对编辑：硫酸羟氯喹64
+
+发布：青青
+
+原文链接： [GETTR partners with Andy Ngo for weekly news show | The Post Millennial](https://thepostmillennial.com/gettr-partners-with-andy-ngo-for-weekly-news-show)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

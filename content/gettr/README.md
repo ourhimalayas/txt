@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 3:04 AM (UTC)`
+
+
+![img](https://media.gettr.com/group50/origin/2022/03/29/03/64f67f17-946c-3254-86b4-f56b186a2441/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/29/2022 2:38 AM (UTC)`
 
 3/27/2022 Miles Guo: Although President Biden differentiated the Russians from Putin in his speech made in Poland, he did not specifically distinguish the Chinese people from the CCP. The biggest mistake of Xi Jinping is that he misjudged Biden and international politics. Because the CCP’s dictatorship fundamentally contradicts the democratic system of the US and the West.<br/><br/>3/27/2022 文贵直播：拜登总统波兰演讲把普京和俄罗斯人民区分开了，却未明确区分中国人和中国共产党；习近平最大的错误就是误判了拜登、误判了国际政治，因为中共独裁和美国及西方民主制度之间存在着根本对立<br/>
@@ -152,13 +159,6 @@ The new Chinese of New Federal State of China, the comrades of the Whistleblower
 
 War brings infinite disaster and death, we don't want it, we pray for peace. The days of joy and happiness have become farther and farther away, the dead air, the ruined houses, flower, and trees, and living beings! As a member of the New Federal State of China, we will definitely help the people of Ukraine, because the CCP is behind Putin of Russia!<br/>战争带来的是无限的灾难和死亡，我们不想，我们祈求和平。那快乐和幸福的日子已经变得越来越遥远，死寂的空气，破坏殆尽的房屋、花木、生灵！作为新中国联邦人必将帮助乌克兰人民，因为俄罗斯普京的背后就是中共！
 ![img](https://media.gettr.com/group26/origin/2022/03/28/04/d3691267-7a55-ddff-a368-968e891db140/out.jpg)
-
----
-
-`@miles 3/28/2022 1:37 PM (UTC)`
-
-2022.03.28 早《新中国联邦新闻访谈》欧美制裁俄罗斯推升全球钢价； 数字人民币开始应用于结算工程款； 美国宣布想乌克兰追加一亿美元民事安全援助； 所罗门群岛与中共进行安全合作谈判引担忧； 新中国联邦前线救援进行时
-![img](https://media.gettr.com/group15/origin/2022/03/28/13/2b349006-45c2-3e7c-aeee-c76ff83ee042/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
