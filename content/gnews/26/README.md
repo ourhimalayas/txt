@@ -2,26 +2,22 @@
 ---
 
 
-## 秘翻在线：美国国防战略将俄罗斯定位为继中国之后的 &#8220;严重威胁&#8221;&#8230;&#8230;“准备在必要时反击”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2250920/)
+## 普京发威“不付款，不给油和气！”
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2251080/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/그림1-45.jpg)图片来源：本文的链接
-日本读卖新闻报道,美国国防部28日，首次公布了拜登政府的国防战略方向的文件《国防战略》大纲。它将中国定位为“最重要的战略竞争对手”，并称俄罗斯是继中国之后的又一威胁，将与盟国合作予以应对。
+编译：波士顿五月花—-思澈
 
-国防战略以国家安全战略为基础，国家安全战略是美国总统制定的一套外交和安全准则， 于2018年由特朗普政府公布。 这一次，是在应对俄罗斯入侵乌克兰的压力下制定的。
+欧盟各国和G7国家拒绝用卢布支付俄罗斯的汽油和天然气
 
-在公布的纲要中， 美国重申了对中国的重视, 说它将优先考虑中国在印度-太平洋地区的挑战。它强调要迅速加强防御能力，因为中国的威胁是多方面的，包括太空和网络方面都在增长。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FAE48CBE-E550-4EC8-817E-8D22000E4729.jpeg)
 
-对俄罗斯而言，他指出入侵乌克兰是“严重威胁”，并表示将与北约成员国和友好国家合作，发展威慑力量，防止进一步入侵。
+在欧盟和G7拒绝了俄罗斯的以卢布支付汽油和天然气后，普京的知己克里姆林宫发言人德米特里·佩斯科夫宣布了俄罗斯可能采取的新措施，即“不付款就不给汽油和天然气”。
 
-美国在去年3月发布的国家安全战略制定指南中，将中国定位为“唯一”竞争对手。这一次，改成“最重要的对手”,似乎受到了俄罗斯日益增长的威胁的影响。
+素材来源：[https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html](https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html)
 
-此外，对于中俄，它还明确指出 “如有必要，我们将准备打赢这场争端”。主张促进与同盟和友好国的合作。屡次发射导弹的朝鲜被置于与伊朗和极端主义组织相同的地位，并强调它将 “继续应对持续的威胁”。
+*发布：思澈*
 
-信息来源：[https://www.yomiuri.co.jp/world/20220329-OYT1T50127/](https://www.yomiuri.co.jp/world/20220329-OYT1T50127/)
 
-责编：Eric Kim
 
  
 

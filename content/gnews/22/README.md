@@ -2,22 +2,24 @@
 ---
 
 
-## 普京发威“不付款，不给油和气！”
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2251080/)
+## 视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2251101/)
 
-编译：波士顿五月花—-思澈
+制作：香草山视频部
 
-欧盟各国和G7国家拒绝用卢布支付俄罗斯的汽油和天然气
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FAE48CBE-E550-4EC8-817E-8D22000E4729.jpeg)
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-在欧盟和G7拒绝了俄罗斯的以卢布支付汽油和天然气后，普京的知己克里姆林宫发言人德米特里·佩斯科夫宣布了俄罗斯可能采取的新措施，即“不付款就不给汽油和天然气”。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。 求助方式及详细信息请参考以下视频。
 
-素材来源：[https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html](https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html)
+发稿：呼吸的雾霾（文小呼吸）
 
-*发布：思澈*
-
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

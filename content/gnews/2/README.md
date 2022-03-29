@@ -2,42 +2,22 @@
 ---
 
 
-## 美国宇航员将按原计划搭乘俄罗斯飞船返回地球
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2251364/)
+## 秘翻在线：马斯克接种疫苗仍二度确诊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2251395/)
 
-撰稿：红杉
+**编译：明澈**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/292-2.png)（图片来自网络）
-美国宇航员Mark Vande Hei将按计划搭乘俄罗斯飞船于本月30日返回地球。他已在国际空间站工作了355天。同行的还有两名俄罗斯宇航员，飞船将在哈萨克斯坦着陆。
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-29-182834.jpg)
+综合外媒3月29日报道，特斯拉首席执行官马斯克于2020年11月第一次确诊过中共病毒（Covid-19）感染，不幸的是，今天他在推特发文，表示自己再度出现轻微的感染症状。虽然他并未表露是否是经由快筛或PCR检测确定阳性，但他在推文中以中共病毒是特修斯的病毒，暗示自己或许是中了中共病毒（Covid-19）变种。
 
-受俄乌战争影响，Mark Vande Hei担心可能要滞留太空。而美国宇航局国际空间站项目经理Joel Montalbano表示，马克肯定会回家，正在与俄罗斯同事进行沟通。虽然宇航员们了解一些正在发生的战争信息，但他们仍然作为一个团队照常工作。美国与俄罗斯在国际空间站的合作没有出现紧张。
+特修斯的说法，应是出于特修斯之船，即特修斯悖论。该悖论于1世纪时的希腊作家普鲁塔克提出，借质疑特修斯船上的木头逐渐被替换，直到所有的木头都不是原来的木头，那这艘船还是原来的那艘船吗？来探讨“物体的构成要素被置换后，它依旧还是原来的物体吗？”这一问题。
 
-自美国亚特兰蒂斯号航天飞机于2011年结束最后一次飞行后，美国宇航员开始搭乘俄罗斯飞船前往国际空间站。空间站由美国、俄罗斯、加拿大、日本和几个欧洲国家合作运转。尽管美俄不断出现关系紧张，但空间站合作已经持续了20年。美国负责动力和生命支持，俄罗斯控制推进力等部分。
+报导指出，马斯克曾在2021年12月的一次采访中向《时代》杂志透露，他和他所有符合条件的孩子们都已经接种了中共病毒（Covid-9）疫苗，但马斯克明确表示，自己反对非自愿接种疫苗者被强制要求接种疫苗。更表示接种疫苗是一件承担风险的事，人们一直在冒险。此外，他还呼吁人们反思，美国自由是否已经遭到侵蚀。
 
-然而俄乌战争已经影响到俄罗斯与美欧国家在太空领域的合作。俄罗斯与欧盟合作发射欧洲火星探测器ExoMars项目也受到阻碍。探测器发射此前因新冠疫情而延迟至2022年9月，而欧洲太空局此前宣布已经不太可能如期发射。同时俄罗斯国家航天集团曾宣布暂停在法属圭亚那库鲁的发射活动，并召回在当地的工程师和技术人员。
+马斯克认为科学毫不含糊，对疫苗是经过科学研究过的大概深信不疑，而在这次即将爆发的疫苗危机中，也许人们最终明白“质疑”才是科学最基本的精神。希望他早日康复！
 
-俄罗斯国家航天集团总裁德米特里·罗戈津（Dmitry Rogozin）本月12日曾威胁，西方对俄罗斯制裁措施影响国际空间站的运作，有可能引发国际空间站坠落，同时他还恐吓推出制裁措施的国家需要“三思”。
-
-*编辑：**Gradient Boost*
-
-*发稿：**mgjxs*
-
-资料来源：
-
-[After nearly a year in space, NASA astronaut Mark Vande Hei is coming back to Earth](https://www.fox6now.com/news/after-nearly-a-year-in-space-nasa-astronaut-mark-vande-hei-is-coming-back-to-earth)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标-1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
-
-更多资讯，更多关注
-
-[乌克兰救援UkraineRescue官方Gettr](乌克兰救援UkraineRescue官方Gettr)
-
-[郭文贵先生Gettr](郭文贵先生Gettr)
-
-[全球喜马拉雅农场联盟委员会Gettr](全球喜马拉雅农场联盟委员会Gettr)
-
-[喜马拉雅联盟大使馆全球客服中心Discord](喜马拉雅联盟大使馆全球客服中心Discord)
+**新闻来源**: 【[1](https://twitter.com/elonmusk/status/1508356357967122434?cxt=HHwWhMCo9bWH4e4pAAAA)】【[2](https://www.newsmax.com/newsfront/business-finance-elon-musk-inventors/2022/03/28/id/1063254/)】【[3](https://www.cnbc.com/2022/03/28/elon-musk-says-he-has-covid-as-tesla-shanghai-faces-health-restrictions.html)】【[4](https://www.theguardian.com/technology/2022/mar/28/elon-musk-covid-19-positive-test-second-time)】
 
  
 
