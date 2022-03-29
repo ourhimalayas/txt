@@ -2,45 +2,43 @@
 ---
 
 
-## 中日财经爆┃大疆支持俄罗斯入侵乌克兰 被德国家电巨头下架
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250698/)
+## 战火中坚持营业的乌克兰猫咪咖啡馆
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/2250796/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
-3月25日，德国电子和家电巨头万得城电器(MediaMarkt)将中共国无人机制造商大疆(DJI)的产品下架，因俄罗斯军方在乌克兰战争中使用了大疆的产品和数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-108.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fqna.smzdm.com%2F202011%2F17%2F5fb37fc3d6b8d2376.jpg_fo742.jpg&amp;imgrefurl=https%3A%2F%2Fpost.smzdm.com%2Fp%2Fa785gqk9%2F&amp;tbnid=2ePixrAXmoMQsM&amp;vet=12ahUKEwjHp_zn6er2AhWZ7qQKHbhhCM8QMygQegUIARDYAQ..i&amp;docid=g8vjPik3-s6yDM&amp;w=742&amp;h=314&amp;q=%E5%A4%A7%E7%96%86%E6%97%A0%E4%BA%BA%E6%9C%BA&amp;ved=2ahUKEwjHp_zn6er2AhWZ7qQKHbhhCM8QMygQegUIARDYAQ#imgrc=OStOYmUQUEpDEM&amp;imgdii=wEuteWtxzvPJsM)
-上周五，德国零售商万得城电器在推特上回复一位用户时说，“在过去几天，我们从各种渠道得到越来越多的信息，俄罗斯军队正在使用来自中共国无人机供应商大疆的产品和数据，用于乌克兰的军事活动。”但该公司没有提供它所收到的信息的细节。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-494.jpeg)
+作者 台湾宝岛农场 Y.M.O
 
-该用户指控大疆将乌克兰军事位置的全球定位系统数据泄露给俄罗斯，说此举违反了有关战争的规则。这名用户呼吁这家德国公司停止销售大疆的产品。
+俄乌局势仍在持续发展，在乌克兰西部利沃夫市有一家名叫The Cat Cafe Lviv的猫咪咖啡厅至今已营业6年，虽然因为俄罗斯入侵，许多民众都已经纷纷逃离家园，但咖啡厅的老板Serhii Oliinyk却坚决留下来陪伴店裡的猫咪，咖啡馆每天早9时至晚9时也坚持营业，为需要的人提供热腾的食物以及心理上的支持。
 
-“作为一家负责任的公司，我们已立即采取行动，将该制造商从我们集团范围内的产品中下架，直到另行通知，”该公司周五在其官方推特账户上表示。
+这间咖啡厅总共有20只猫咪，它们从大约4个月前就住在这里，对老板来说它们和家人已经没什么区别，因此Oliinyk也决定陪猫咪一起留在咖啡厅里。虽然利沃夫不像基辅和哈尔科夫那样遭受了很多轰炸，但由于利沃夫靠近波兰边境，所以这里也正是乌克兰境内民众撤离的聚集地。尽管因为战争让熟客减少，但此时会有从其它城市远道而来的人们来这里用餐、休息顺便陪猫咪玩耍，老板在社交媒体上也会时不时把顾客在店内的互动放上来与网友分享。
 
-这家德国公司称此举是“就我们最重视的价值观发出明确信号”，该公司认为这些价值观受到了俄罗斯对乌克兰“侵略性”战争的攻击。
+不止如此，从战争一开始咖啡馆就承诺将收入的20%以及捐款的50%提供给乌克兰军队，因为这里唯一能看到自己未来的地方，而乌克兰军队比以往任何时候都更需要支持。随着战争的持续进行，很多人担心供应链会因此中断导致食品和其它必需品短缺。Oliinyk 表示咖啡馆目前准备的食物算是充足。虽然在3月18日的脸书上说了猫咪已经开始听到俄罗斯导弹爆炸的声音，不过咖啡馆中有3个房间，其中两个在地下室，如果遇到空袭警报，猫咪和客人都能安全避难，大家可以不用担心。
 
-“我们将密切研究进一步的迹象和发展，”它补充说。
+其实CNN在2月26日就有报道这间咖啡馆，而在本文写作的3月26日进入咖啡馆的社交媒体你能看到他们仍然坚持营业。这家咖啡馆的坚持不由想到新中国联邦的前线救援团队带上现磨咖啡真是一个非常细致的决定，即使身处于战争之中乌克兰人也尽可能坚持自己的生活方式。并且乌克兰人的团结已经不仅限于人类，生活在身边的其它动物伙伴也算在内。我还记得之前曾经看到一张售卖机里堆着现金的图片，即使是售货机那看不见的卖家乌克兰人也没有抛弃。天助自助者，自助人恒助之。这句话说得就是如今的乌克兰人吧。
 
-在12个欧洲国家和土耳其经营着800多家门店的万得城电器没有透露收到了关于大疆的什么样的信息。
+当然除了要有团结的心，自身的实力也不能少。俄乌战争已经至少持续一个月了，在这段时间内老板能持续营业说明对食材的储备与获取途径准备充足，并且也备有躲避空袭的地下室。对于个人来说要想反抗强权只有两条路，或者拿起武器，或者准备安全的避难所。咖啡馆老板的行动对于新中国联邦人来说也是一种参考。站在正义一边的内心，愿意团结他人的精神，拥有武器的上去战斗，不善进攻的尽可能保存实力，这些都是我们一直要学习的地方。
 
-3月16日，乌克兰副总理兼数字化转型部长米哈伊洛·费多罗夫(Mykhailo Fedorov)表示，他曾致信大疆创始人汪滔(Frank Wang)，要求其切断与俄罗斯的关系。他指责俄罗斯军队使用大疆产品进行导弹导航，导致乌克兰平民死亡。
+新闻链接
 
-自从一个多月前俄罗斯军事入侵乌克兰以来，尽管西方企业纷纷撤出俄罗斯以示抗议，但大疆却像许多中共国企业一样，遵循中共避免批评莫斯科入侵的立场，选择留在俄罗斯。
+时间节点在第59分处
 
-创立于2006年的大疆创新是世界上最大的商用无人机制造商。其产品的用户从摄影爱好者到美国消防部门都有。
+[https://archive.org/details/CNNW\_20220226\_000000\_Erin\_Burnett\_OutFront/start/3540/end/3600](https://archive.org/details/CNNW_20220226_000000_Erin_Burnett_OutFront/start/3540/end/3600)
 
-2020年12月，美国商务部以“保护美国国家安全为原因”将它列入受到制裁的“实体清单”，限制它使用美国的技术。
+The Cat Cafe Lviv的facebook
 
-2021年12月16日，大疆等八家中共国科技公司被美国财政部列为“军工综合体”，并“积极支持以生物识别技术监控和追踪中国的少数民族和宗教少数群体，特别是新疆以穆斯林为主的维吾尔人”。 这意味着任何美国法人都不得出售和购买这些公司公开上市的证券及其衍生证券。
+[https://www.facebook.com/catcafelviv/](https://www.facebook.com/catcafelviv/)
 
-消息来源:**[大疆否认支持侵乌战争，并对德企将其无人机下架提出不同解释](https://www.voachinese.com/a/china-russia-ukraine-drones-20220328/6505266.html)**
+The Cat Cafe Lviv的instagram
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+[https://www.instagram.com/p/CaZLWvxtxKB/](https://www.instagram.com/p/CaZLWvxtxKB/)
+
+* * *
+
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

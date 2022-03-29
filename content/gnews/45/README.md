@@ -2,30 +2,39 @@
 ---
 
 
-## 泽伦斯基表示需要对俄罗斯实施更严厉的制裁
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2248564/)
+## 融创债券无法兑付，“白衣骑士”押上自己
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2248828/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-《路透社》3月28日报道，**周一，乌克兰总统泽伦斯基敦促西方国家迅速加强对俄罗斯的制裁，包括石油禁运，以阻止俄罗斯随意升级对乌克兰的制裁。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-3-e1648510541752.jpg)3月28日，乌克兰总统泽连斯基向全民发表讲话（路透社）
-据报道，在向乌克兰人发表的夜间视频讲话中泽伦斯基说，西方去年拖延制裁和入侵是错误的，**一场全面战争已经开始。如果俄罗斯使用化学武器，西方应该实施更严厉的制裁，比如对俄罗斯向欧洲供应石油的禁运。**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-报道指出，俄罗斯军方已经使用磷弹和集束弹这类化学武器，并且炮击化学生产设施和核电站。
+整理：li yan li
+编辑：文泓
 
-泽伦斯基表示，**鉴于俄罗斯迄今为止的侵略行动，制裁必须是有效和严肃的**。他说，如果制裁措施力度不够，或者不够有力，就会给俄罗斯领导层制造一种危险的幻觉，好像他们会被允许继续做他们现在在做的事情。**乌克兰人为此付出了生命，成千上万的生命。**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/OJ5AEASNT05MCUAMY4EE.png)图片来源：Nikkei Asia & 雅典娜设计组
 
-**美国已经对俄罗斯的石油禁运。**但对俄罗斯能源依赖程度高得多的**欧洲显得犹豫不决。**欧洲最大的经济体德国表示，实施这样的禁运将引发经济衰退和大规模失业。
 
-新闻来源链接：
+融创债券面临展期，昔日热衷并购的“白衣骑士”孙宏斌，无奈出面给展期债券做担保，涉资40亿元。
 
-[Ukraine’s Zelenskiy says tougher Russian sanctions needed quickly | Reuters](https://www.reuters.com/world/europe/ukraines-zelenskiy-says-tougher-russian-sanctions-needed-quickly-2022-03-28/)
+3月25日，融创集团发布公告称，预计不能如期兑付债券“20融创01”的本息以及“21融创03”的利息，原因是“无法筹措到足额资金”。公告中还表示，**由于融创面临阶段性资金压力，拟于近期与债券持有人就上述债券的展期及延期支付事宜进行沟通。**
 
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+去年上半年融创斥资千亿大手笔投资拿地，下半年则高度紧缩，不仅停止拿地，还接连卖资产。直到去年底，融创通过无息借款、配股、卖贝壳股票、卖项目等多方式，持续“回血”超过200亿元。
+
+3月24日，一则有关“融创40亿债券即将展期”的消息开始在网络上发酵。相关消息称，因兑付资金有缺，融创中国（01918.HK）对一笔4月1日面临回售的公司债“20融创01”提出展期，并且融创中国董事会主席孙宏斌将为这笔债券提供无限连带责任担保。
+
+3月25日，融创方面表示，正积极拟定债务展期的相关方案，**计划提供融创中国董事会主席孙宏斌的无限连带责任保证担保等作为增信措施。**
+
+融创在最新公告声称，绝不会发生“逃废债”的情形，尽最大可能保障债券持有人的权益。孙宏斌作为盗国贼的白手套，其最后的命运必然是与中共一起陪葬。
+
+新闻链接：[融创“缺血”，孙宏斌押上自己\_](https://finance.sina.com.cn/chanjing/dckb/2022-03-28/doc-imcwipii0937904.shtml)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

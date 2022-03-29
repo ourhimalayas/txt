@@ -2,32 +2,23 @@
 ---
 
 
-## 拜登称不收回“普京不能继续掌权”的言论
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2250555/)
+## 樱花头条┃上海切块式封城 建一万方舱医院
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250559/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海“切块式封城”后，准备立刻建一万方舱医院.
 
-3月28日，拜登总统对外称，不收回此前发表的言论，即“普京不能继续掌权”。
+信息来源：[https://www.gettr.com/post/p12ant7330e](https://www.gettr.com/post/p12ant7330e)
 
-3月26日，拜登总统在波兰华沙发表演说，他在演说中说，“看在上帝的分上，这个人不能继续掌权了。”
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-342.jpg)（图片来自大纪元 ）
-
-白宫随后发表声明，声明中貌似有解释的意思，似乎是想收回拜登的上述言论。声明说：“总统的意思是，普京不可以对其邻国或区域行使权力。总统不是在谈论普京在俄罗斯的权力或者政权变更。”
-
-拜登随即在周一的记者会上表态，称他“不收回任何言论”。并补充说，自己此前是在表达对普京发动乌克兰战争的愤怒，并不是说美国政策有什么变化。
-
-拜登说：“我最不愿意看到的就是卷入与俄罗斯的战争，或者核战争，我说的不是那个意思。我是在表达自己对普京所作所为的愤慨。”因为“这太令人难以接受，太令人难以接受了。与其说是普京不应该掌权的意思，不如说是一种愿望。我的意思是，像这种人不应该统领国家，但是却发生了，但这并不意味着我不能表达自己的愤怒。”
-
-自2月24日俄罗斯全面入侵乌克兰以来，拜登和普京都未曾沟通交流。
-
-此外，美国国务卿布林肯3月27日也对外宣称，“我们多次表示，我们不寻求在俄罗斯发生政权更替，那取决于俄罗斯人民。”
-
-参考链接：
-[https://www.epochtimes.com/gb/22/3/28/n13679586.htm](https://www.epochtimes.com/gb/22/3/28/n13679586.htm)
-
-总编：老孙
-校对发布：爱放飞
+编辑：东京樱花团/asket、asket（素材）
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

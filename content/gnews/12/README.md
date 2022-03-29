@@ -2,26 +2,23 @@
 ---
 
 
-## 视频|灭习与灭共的关系
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2250571/)
+## 樱花头条┃俄乌战后 攻击北约国家的中国IP数激增116%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250660/)
 
-制作：香草山视频部
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+俄乌战后，攻击北约国家的中国IP数激增116%.
 
-3月27日，郭文贵先生在大直播中回答了战友火来的问题，详细解释了消灭习近平与消灭中共邪恶体制的关系，并强调，消灭中共是中国人在世界上得以安身立命的唯一选择。灭共不靠美国，只能靠中国人自己。
+信息来源：[https://www.gettr.com/post/p123ivre271](https://www.gettr.com/post/p123ivre271)
 
-郭先生认为，除了极少数至善至恶的人是天性使然，大部分人性的善恶受社会环境和规则的影响。郭先生本人和很多战友的亲身经历说明，中共内部90%以上都是好人。但是，中共集权的邪恶体制，造就了腐败，没有公正、民主、和自由。中共统治下，人性的自私被放大、失去信仰，导致恶人横行，世风日下。最可怕的是，中共明知自己罪孽深重，但是为了维持独裁统治，仍选择继续作恶。
-
-郭先生说，灭习基本等同于灭共的原因，就在于，习近平把中共的“黑道”变成了“魔道”。中共对世界的危害程度之深，让全世界人对其恨之入骨、避之不及。可悲的是，很多人不懂得中共和中国人的区别，这将导致“中国人为中共买单”的悲惨结果。
-
-消灭中共已经成为全世界的共识，是关乎人类生死存亡的必然选择。消灭中共必须消灭习近平；消灭习近平是灭共最快的方式。
-
-郭先生以绝对的信心保证，有新中国联邦在，灭共后，中国不会变成俄罗斯式假民主真独裁的制度，更不会让中共换个包装卷土重来。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+编辑：东京樱花团/asket、小火苗（素材）
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

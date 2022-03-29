@@ -2,42 +2,39 @@
 ---
 
 
-## 澳大利亚将增加国防和安全方面的开支
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2249942/)
+## ATAGI考虑为澳洲青少年提供辉瑞新冠加强针
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2250017/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-352.png)图片来自网络
+《SBS News》近日报道，联邦卫生部的一份声明说，澳洲免疫技术咨询小组（ATAGI）正在审查关于12至15岁儿童使用辉瑞疫苗作为加强针的数据。
 
-翻译/编辑：小红帽
+辉瑞数据的审查将包括有关严重疾病、流行病学和年龄组国际推广的信息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123111042_opera.jpg)图片来源：GETTY IMAGES
+卫生部门在一份声明中说：“ATAGI 正在继续研究有关使用新冠疫苗和治疗的新证据，作为其对当前建议的持续审查的一部分。”
 
+ATAGI 上周批准向 65 岁以上的人、50 岁以上的澳大利亚土著人、老年或残疾护理人员以及免疫功能低下的人接种冬季剂量的新冠疫苗。
 
-根据U.S. NEWS 3月28日报道，澳大利亚财政部长乔什·弗莱登伯格 （Josh Frydenberg）在周二公布针对即将举行的选举所制定的预算之前表示，澳大利亚政府将增加国防和国家安全方面的支出，同时减少家庭开支。
+第四针或第二剂加强针将从 4 月 4 日起在人群中推出，人们将在第一次加强针注射四个月后有资格接种。
 
-随着俄罗斯与乌克兰开战，中共国的军队变得更加强硬，弗莱登伯格预示着“对国防和国家安全的进一步投资反映了我们现在面临的挑战”。
+目前，第三针新冠疫苗（或第一剂加强针）仅被批准用于 16 岁及以上的人群。
 
-从7月1日开始的财政年度的预算将提前在5月21日大选之前公布，总理科特·莫里森 (Scott Morrison)的保守派政府将在大选中寻求第四个三年任期。
+ATAGI不建议在更广泛的人群中接种第二剂加强针。
 
-随着澳大利亚和世界许多地方的通货膨胀率上升，部分原因是油价上涨，预计政府将减少每升44.2澳分（33.1美分）的汽油税（每加仑1.25美元）。
+新的ATAGI建议是在预测冬季新冠病例激增之前出台的，这与流感病例可能激增相重叠。
 
-“今晚，我们将以一种临时的、有针对性的、负责任的方式，提供生活费用的减免，”弗莱登伯格说。
+最近几天，由于与奥密克戎亚变种有关的感染，新冠的病例数在全国范围内一直在增加。
 
-澳大利亚石油协会表示，上周全国汽油平均价格下降了5.8澳分（4.3美分），至每升2.06.7澳元（1.54美元）（每加仑5.86美元）。
+配方一直都没有更新，为什么还要一再的打？孩子都打了两针还不够现在还要打第三针？这是屠杀！
 
-弗莱登伯格说，他还将披露“预算底线的实质性改善”。
+参考链接：
 
-经济学家预计，本财政年度的赤字将在800亿澳元（600亿美元）至700亿澳元（520亿美元）之间，而澳大利亚政府在12月预测的缺口为992亿澳元（743亿美元）。
+[https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10](https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10)
 
-新闻来源：[Australia to Increase Spending on Defense and Security](https://www.usnews.com/news/business/articles/2022-03-28/australia-to-increase-spending-on-defense-and-security)
+*编辑：金生水*
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

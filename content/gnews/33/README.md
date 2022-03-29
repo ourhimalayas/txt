@@ -2,36 +2,41 @@
 ---
 
 
-## 防中国曲线避税,美正考虑对东南亚太阳能设备征收关税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2249864/)
+## 澳大利亚将增加国防和安全方面的开支
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2249942/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理/编辑：文泓
+翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/996ELVP_KF3TZBZ7MU.png)图片来源：ET EngergyWorld & 雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123111042_opera.jpg)图片来源：GETTY IMAGES
 
 
-3月28日据路透社报道，美国贸易官员周一表示，将对来自四个东南亚国家的太阳能设备征收关税展开调查，这对依赖廉价进口产品来压低成本的项目开发商是一个打击。
+根据U.S. NEWS 3月28日报道，澳大利亚财政部长乔什·弗莱登伯格 （Josh Frydenberg）在周二公布针对即将举行的选举所制定的预算之前表示，澳大利亚政府将增加国防和国家安全方面的支出，同时减少家庭开支。
 
-这项决定对提出调查要求的加州太阳能制造商Auxin Solar来说是一个胜利。该公司的请求是美国太阳能生产商的最新努力，旨在遏制在市场占主导地位的廉价亚洲太阳能电池板进入美国。
+随着俄罗斯与乌克兰开战，中共国的军队变得更加强硬，弗莱登伯格预示着“对国防和国家安全的进一步投资反映了我们现在面临的挑战”。
 
-总部位于圣何塞的Auxin今年稍早要求商务部进行调查，理由是中国制造商将生产线转移到马来西亚、泰国、越南和柬埔寨，以避免支付美国对中国制造太阳能产品加征的关税。
+从7月1日开始的财政年度的预算将提前在5月21日大选之前公布，总理科特·莫里森 (Scott Morrison)的保守派政府将在大选中寻求第四个三年任期。
 
-美国商务部网站的一份备忘录显示，官员们称，Auxin提供的信息表明，**在马来西亚、泰国、越南和柬埔寨运营的太阳能企业是中国大型生产商的子公司，在那里生产的产品如果在中国制造，美国反补贴和反倾销税将适用。**
+随着澳大利亚和世界许多地方的通货膨胀率上升，部分原因是油价上涨，预计政府将减少每升44.2澳分（33.1美分）的汽油税（每加仑1.25美元）。
 
-备忘录中写道，Auxin以符合程序的方式提出了需要做出认定规避（关税）裁决的因素，商务部将在150天内发布初步裁决。
+“今晚，我们将以一种临时的、有针对性的、负责任的方式，提供生活费用的减免，”弗莱登伯格说。
 
-美国太阳能行业团体大力游说反对商务部接受请愿，称这将摧毁该行业，并增加消费者的用电成本。
+澳大利亚石油协会表示，上周全国汽油平均价格下降了5.8澳分（4.3美分），至每升2.06.7澳元（1.54美元）（每加仑5.86美元）。
 
-参考链接：[美将考虑对东南亚四国太阳能设备征收关税 以防中国曲线避税](https://cn.reuters.com/article/us-southeast-asia-pv-tariffs-0329-idCNKCS2LQ068) 
-*发布：tianzhihuan*
+弗莱登伯格说，他还将披露“预算底线的实质性改善”。
 
-**更多资讯，请关注：**
+经济学家预计，本财政年度的赤字将在800亿澳元（600亿美元）至700亿澳元（520亿美元）之间，而澳大利亚政府在12月预测的缺口为992亿澳元（743亿美元）。
+
+新闻来源：[Australia to Increase Spending on Defense and Security](https://www.usnews.com/news/business/articles/2022-03-28/australia-to-increase-spending-on-defense-and-security)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
