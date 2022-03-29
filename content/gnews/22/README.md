@@ -2,35 +2,42 @@
 ---
 
 
-## Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2249619/)
+## 上海开展新一轮封控核酸筛查
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2249749/)
 
-Translated by: MOS Fitness Team – Gloria
+编辑：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
 
-The U.S. National Endowment for Democracy Visits Taiwan
 
-On March 28, Taiwan time, the U.S. National Endowment for Democracy (NED), led by President Damon Wilson, visited Taiwan for three days. During the visit, the delegate will meet with President Tsai Ing-wen (蔡英文), Premier Su Tseng-chang (蘇貞昌), and Legislative Speaker You Si-Kun (游錫堃), attending a banquet hosted by Foreign Minister Joseph Wu (吳釗燮). The Ministry of Foreign Affairs stated that it’s Wilson’s first time visiting Asia since he took office last July. It demonstrates the importance of Wilson’s attachment to Taiwan that he selected Taiwan as the first stop on his first trip to Asia. Wilson tweeted that Taiwan is becoming a center for defending the democratic way of life, and he is honored to visit one of the freest societies in the world.
+就在3月27日晚，“上海发布”发布了《关于做好全市新一轮核酸筛查工作的通告》。
 
-Taiwan’s Ministry of Foreign Affairs responded in a press release, thanking the NED for its long-term attention to Taiwan’s democratic development. With the NED’s encouragement, Taiwan established the “Taiwan Democracy Foundation” in 2003, which worked closely with the NED to promote democracy and human rights in the Indo-Pacific region.
+通告中提到，市新冠肺炎疫情防控工作领导小组研究决定，**在全市范围内开展新一轮切块式、网格化核酸筛查。**
 
-According to the Ministry of Foreign Affairs, in cooperation with the groups like the Taiwan Democracy Foundation, NED President Wilson will announce at a press conference that the “World Movement for Democracy” will be held in Taipei for the first time from October 24 to 27 to affirm Taiwan’s democratic achievements.
+3月28日5时起，上海市以黄浦江为界分区分批实施核酸筛查。
 
-The U.S. “German Marshall Fund” Reports that the Chinese Communist Party (CCP) Maliciously Isolates Taiwan
+第一批，浦东、浦南及毗邻区域（包括浦东新区全区，奉贤区全区，金山区全区，崇明区全区，闵行区浦锦街道、浦江镇，松江区新浜镇、石湖荡镇、泖港镇、叶榭镇）先行实施封控，开展核酸筛查，4月1日5时解封。同时，浦西地区重点区域继续实施封控管理。
 
-The report mentioned that the CCP distorted Resolution 2758 passed by the United Nations in 1971 into “the one-China principle and Taiwan is a province of the People’s Republic of China” and used this to isolate Taiwan and prevent Taiwan from participating in UN affairs. In addition, in response to the viewpoints of Taiwan’s Foreign Minister when connecting with foreign media, the report emphasized that Taiwan plays a crucial role in global technology supply. The report recommends that the United States develop a more effective strategy to counter China’s attempts to distort UN Resolution 2758.
+第二批，4月1日3时起，对浦西地区实施封控，开展核酸筛查，4月5日3时解封。
 
-Source link: [https://gnews.org/zh-hans/2244682/](https://gnews.org/zh-hans/2244682/)
 
-Edited and posted by: Snow Lily
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)**For more information, please follow us at:
-[NFSCNews | Gettr](https://www.gettr.com/user/nfscnews)
-[Gnews | Gettr](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)
-[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[Free to Join New York MOS Himalaya | Discord](https://discord.gg/ChqXAHd)**
+通知中提到，封控区域内，**住宅小区实施封闭式管理**，**所有人员足不出户**，人员和车辆只进不出；所有企业实施封闭生产或居家办公；**暂停公交、地铁、轮渡、出租汽车、网约车运行。**
+
+政知君注意到，参加3月28日上海新闻发布会的除了上文提到的吴凡，还有：
+
+**上海市疫情防控领导小组医疗救治组组****长**、市卫生健康委主任邬惊雷
+
+上海市疫情防控领导小组**物资保障组组长**、市商务委主任顾军
+
+与之前发布会不同的是，这次发布会对邬惊雷的介绍，还多了一个头衔。这也是公开报道中，邬惊雷首次以“上海市疫情防控领导小组医疗救治组组长”的身份出席发布会。
+![新增无症状破3千 邬惊雷以新身份出席发布会](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2022%2F0328%2F53731968j00r9ggs9001sc000u000gyc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
+视频截图
+
+在发布会上，邬惊雷说，这两天，包括定点医院、后备定点医院、集中隔离场所，核酸采样、转运、检测、日常诊疗等各个岗位的医务人员通宵达旦、日以继夜、不眠不休地开展工作，生理和心理都承受了极大的压力，同时还要在隔离防护条件下，开展高强度的工作任务。
+
+原文链接：[https://www.163.com/news/article/H3ITG0PI0001899O.html?clickfrom=w\_yw](https://www.163.com/news/article/H3ITG0PI0001899O.html?clickfrom=w_yw)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-48.png)DISCORD
 
 
 

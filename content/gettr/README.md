@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 5:24 AM (UTC)`
+
+【Ukraine Rescue】03/27/2022 Sarah: More independent western rescuers have shown up now on the front line. They have voluntarily started promoting our NFSC because after observing us for a month, these international rescuers realized the difference between our NFSC and the CCP. Many people have downloaded our Gettr, and their posts have gotten a lot of likes and reposts.<br/><br/><br/>【乌克兰救援】03/27/2022 小Sarah:前线目前出现更多自我救援的西方面孔，他们也加入到自愿宣传咱们新中国联邦的队伍中，因为通过小一个月来对我们的观察，这些国际救援者认识到我们新中国联邦与中共的不同。很多人下载了我们的盖特，他们的盖文得到大量点赞、转发。<br/>
+![img](https://media.gettr.com/group27/getter/2022/03/29/05/a07ca2b2-57df-53e4-ec00-e0fc5dbe2fb7/out.jpg)
+
+---
+
+`@miles 3/29/2022 5:15 AM (UTC)`
+
+【Ukraine Rescue】03/27/2022 Sarah: Our NFSC rescue team is the only Asian organization to actually conduct a large-scale rescue operation at this camp. We respect human rights, humanity and life, and are generally appreciated by the international community. This rescue operation not only saved the image of Chinese people, but also saved the image of Asians who look a lot like us.<br/><br/><br/>【乌克兰救援】 03/27/2022 小Sarah：我们新中国联邦团队是营地里唯一大规模实施实际救援的亚洲人组织，我们对于人权、人道及生命的尊重，获得了国际社会的普遍认可。 这一次救援，我们不光是把中国人的形象救回来，也把所有长相跟我们一样的亚洲人的形象拯救回来。<br/>
+![img](https://media.gettr.com/group20/getter/2022/03/29/05/15aa0387-f8e6-5f2f-48d7-03120e2f8357/out.jpg)
+
+---
+
 `@miles 3/29/2022 5:07 AM (UTC)`
 
 3/27/2022 Miles Guo: The US has no choice but to take down the CCP. President Biden’s quote, “For God’s sake, this man cannot remain in power”, is of great significance and has gone beyond what President Kennedy and President Regan said to the former Soviet Union. Biden’s speech in Poland will be replayed for numerous times in humanity.<br/><br/>3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放<br/>
@@ -144,20 +158,6 @@
 
 When you come to Medika, you need a local mobile phone card and WiFi to contact your family. The New Federal State of China (#NFSC) has united with a mobile phone card company to provide free mobile phone cards and WiFi. And the WiFi password is our goal: take down the #CCP!<br/>来到梅迪卡的难⺠，需要当地手机卡和WiFi与家人联络。 #新中国联邦 联合一家手机卡公司，提供免费的手机卡和WiFi。而WiFi的密码就是我们的目标： #灭掉中共!
 ![img](https://media.gettr.com/group6/origin/2022/03/28/17/4d28bed0-452c-848a-a8f6-8b92f68b34d9/out.jpg)
-
----
-
-`@miles 3/28/2022 5:45 PM (UTC)`
-
-
-![img](https://media.gettr.com/group18/origin/2022/03/28/17/99f37362-414e-3fa2-5cc3-fb012b954ec0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/28/2022 5:36 PM (UTC)`
-
-The new Chinese of New Federal State of China, the comrades of the Whistleblower Movement, after affected by the CCP virus, quickly recovered and returned to the Ukrainian-Polish border to continue humanitarian rescue operations. This completely shows the image of peace-loving and mutual help of the new Chinese people who are different from the Chinese Communist Party<br/>新中国联邦人，爆料革命的战友们在感染中共病毒后，很快就恢复了健康，又重新回到了乌克兰与波兰边境，继续我们的人道主义救援行动。这完全展现了不同于中国共产党的新中国人爱好和平、互帮互助的形象
-![img](https://media.gettr.com/group39/origin/2022/03/28/17/61f76561-ae15-0c96-4570-870cd9b0577c/out.jpg)
 
 ---
 

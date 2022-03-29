@@ -2,34 +2,29 @@
 ---
 
 
-## 视频|荣光归香港【中英文非脱敏】
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2249656/)
+## 有声｜为保对俄制裁有效 日本收紧加密货币监管
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249860/)
 
-制作团队：澳喜要闻
+By:**秘翻新闻**
 
-撰稿人：澳喜要闻
+**2022-03-29**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-67.png)图片来源 Coin telegraph
+[据Coin telegraph 3月28日报道，一位日本官员透露，日本计划修改其《外汇和对外贸易法》，将加密货币交易所纳入管理银行的法律范围内。以防止受制裁国家使用数字资产规避制裁。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-视频剪辑：澳喜要闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-【文案内容】
-Glory to Hong Kong, this song is too good
-Only Hong Kong people deserves this song.
-Hong Kong is an example for us Chinese to follow
-Holy City!
+[日本内阁官房长官松野博和在新闻发布会上表示，政府正计划提出一项法案，修改外汇法，将加密货币交易所包括在内。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-光复香港，这首歌太好了
-只有香港人配得上光复香港
-香港是我們中國人學習的榜樣
-聖城啊！
+[该国新当选的首相岸田文雄也支持拟议的修订，并呼吁与西方盟友协调行动，以执行新的法律。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-审核/编辑/发稿：qiutian（邱甜）
+[根据修订后的外汇法，与银行一样，加密货币交易所将被要求验证和标记与受制裁的俄罗斯个人或团体相关的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[该修正案将强制加密货币交易所阻止各种受制裁的俄罗斯官员、寡头、银行和其他机构的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+
+秘翻新闻 自由信仰编译报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
