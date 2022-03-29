@@ -2,52 +2,31 @@
 ---
 
 
-## 聚焦：美国“精准导弹”瞄准中共国的“世界工厂”（上）
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2249121/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月28日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2249230/)
 
-作者：丁过
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-23.png)
 
-编辑与校对：冰糖葫芦喵、丁过
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
-最近，管理逾10万亿美元的美国贝莱德集团（BlackRock）董事长兼CEO拉里·芬克（Larry Fink）致股东的一封长信引起了全世界的热议。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/芬克.jpg)美国贝莱德集团董事长兼CEO拉里.分克（图片来源：网络）
-芬克在信中警告说，乌克兰战争开始重塑世界经济，过去30年的全球化即将终决。
 
-对全球资本在这轮新冷战形成过程中的流向有充分了解的芬克说，早前进入中俄的自由资本撒出的力度甚至已经超越了政府实施制裁的期望或要求。
+校对：Stay文苑
 
-如此大规模的资本回撒，说明了资本对极权专制国家的恐惧和对安全环境的渴望，同时也表明了西方普遍的民意，试想一下，如果苹果公司拒绝撒出俄罗斯，它是否会遭到全世界的抵制，它能不撒吗？
+编辑：Stay文苑
 
-对于美国的产业回归而言，这是可遇不可求的良机，用百年一遇的战略机遇来形容毫不为过。
+发稿：Stay文苑
 
-一个国家和一个家庭一样也经常存在收不抵支的情况，而美国已经连续多年出现巨额财政赤字，而且情况在不断恶化。
+新闻：[https://gettr.com/post/p12eywh9288](https://gettr.com/post/p12eywh9288)
+访谈：[https://gettr.com/post/p12f4oza718](https://gettr.com/post/p12f4oza718)
 
-美国财政支出方面的问题暂且不说，收入不足的主要原因是产业空心化导致税源严重不足，何况产业供应链高度依赖中共囯，已经对美国的国家安全构成威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/美国产业空心化.jpg)产业空心化，美国真正的危机（图片来源：网络）
-班农先生正是抓住了美国问题的症结，在关键时刻让川普在总统竞选中喊出“把产业和工作带回家”的口号，从而一举赢得了大选的胜利。
-
-即使产业回归最重要的前提条件能源自足问题已经解决，川普政府也大幅提高了中共国商品出口关税，但美国的产业回归之路并不顺利，原因是廉价劳动力、低价煤炭和对出口的补贴，仍然能够保证中共国的“世界工厂”能够输出具有国际竞争力的廉价商品。
-
-另一方面，中共病毒对供应链冲击造成通胀高企、对中期选举构成重大压力，拜登政府需要中共国的廉价商品来缓解通胀压力和选民的不满。
-
-所以美国对华商品贸易逆差在2021年达到3,553亿美元，创下2018年以来最高，耶伦在去年1月25日就任财长后，仍然多次批评川普“对中国商品征收高关税最终由美国人民买单”，就是希望通过降低中共国商品关税平抑物价，平息民众对通胀的不满。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/对华经济逆差.jpg)美国对华经济逆差（图片来源：网络）
-但乌克兰战争爆发后，拜登政府的态度发生了根本性转变，原因是美国选民对通胀的不满情绪包括美国的内部矛盾被成功转移到战争上面了，摆脱了掣肘的拜登政府有了更大的政策腾挪空间：
-
-美国贸易代表戴琪在25日接受路透社采访时表示，美国正釆取“一种新的对华贸易政策做法”，我们对中共国扭曲市场的做法不再“袖手旁观”。
-
-新闻来源链接：
-
-[华尔街“大佬”拉里·芬克：乌克兰战争标志着全球化的结束 (rfi.fr)](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220324-%E5%8D%8E%E5%B0%94%E8%A1%97-%E5%A4%A7%E4%BD%AC-%E6%8B%89%E9%87%8C%C2%B7%E8%8A%AC%E5%85%8B-%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E6%A0%87%E5%BF%97%E7%9D%80%E5%85%A8%E7%90%83%E5%8C%96%E7%9A%84%E7%BB%93%E6%9D%9F)
-
-[焦点：美国正准备一种新的对华贸易政策做法 加大施压中国–贸易代表戴琪 | Reuters](https://cn.reuters.com/article/us-tai-china-trade-policy-0326-idCNKCS2LN028)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
 
 **更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
