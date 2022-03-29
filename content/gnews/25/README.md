@@ -2,24 +2,36 @@
 ---
 
 
-## 拜登政府正在考虑给50岁以上的人打第四针加强针
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2251409/)
+## 埃隆·马斯克及以色列总理宣布感染中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251650/)
 
-#### 翻译/整理 意大利达芬奇农场 小白鸽
+作者：澳喜农场 -追着曙光跑，纽约香草山教育部 – Naughty(文行)
 
-美国很有可能批准给50岁以上的人施打第四剂新冠疫苗，拜登政府正在考虑给50岁以上的人施打辉瑞或者莫德纳疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-29-alle-12.21.54-1.png)图片来源：Adnkronos.com
-据知情人士透露， 美国食品药品监督管理局（FDA）可能会在下周初批准该年龄组的第四剂新冠疫苗， 这是《纽约时报》披露的。
 
-联邦卫生官员长期以来一直在争论如何采取措施，一些人极力赞成加强针，而一些人持怀疑态度。我们在《纽约时报》上读到一项计划：官员们说如果在秋季再次增加感染，所有年龄段的美国人，包括今年春天接受了加强针的人，都有望再次接种新冠疫苗。
 
-简评：我们已经看到，新冠疫苗接种率越高， 加强针越多，奥米克戎感染人数越多。疫苗非但没有阻止病毒的传染，疫情反而愈演愈烈。郭先生告诉我们香港、韩国，大陆，包括美国加拿大的病毒复发，就是因为疫苗灾难。只要共产党在，病毒不会停！没有共产党，病毒就消失了。只有消灭了共产党，世界才会变得安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
+
+
+3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
+
+另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
 参考链接：
+1. [@elonmusk： Covid-19 is the virus of Theseus.](https://twitter.com/elonmusk/status/1508356357967122434?s=21&amp;t=gjCuU8HllzktRUgs7-N5eQ)
+2. [マスク氏、コロナ検査で再び陽性　症状ほとんどなし](https://news.yahoo.co.jp/articles/97cbf50cd3a5f2f64352bb0a512b411414f54637)
+3. [Israeli PM tests positive for COVID, is working from home](https://abcnews.go.com/International/wireStory/israeli-pm-tests-positive-covid-working-home-83714645)
 
-[https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50\_7sCeGSEfjmTInil7TXkz3O](https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50_7sCeGSEfjmTInil7TXkz3O)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-编辑、上传： Xiao baige
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

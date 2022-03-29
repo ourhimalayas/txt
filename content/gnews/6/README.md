@@ -2,64 +2,46 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“G-Club”（二十四）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2251695/)
+## mRNA是从什么时候开始变味的？（3/5）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2251975/)
 
-整理： BENJ1
-编辑：李易通
+素材编译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+1) 你能有效地将遗传物质（“多核苷酸”）导入人体大多数细胞的细胞核，从而可以进行任何遗传缺陷（或超人类遗传改进）吗？
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043-2.jpg)图片来源：雅典娜设计组
+简而言之，不能。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3659.png)
 
-郭文贵先生2021年8月11日直播
+人类细胞（和免疫系统）已经进化出许多不同的机制来抵抗外部多核苷酸的修饰。否则，我们就会被各种形式的寄生 DNA 和 RNA 病毒等所侵占。这仍然是一个主要的技术障碍，“超人类主义者”在他们热情但天真，急于扮演人类上帝的过程中，继续忽视这一障碍。什么是多核苷酸？基本上，由四个核苷酸碱基组成的长链聚合物（在 DNA 的情况下为 ATGC，在 RNA 的情况下为 AUGC），它们携带所有的遗传信息（我们知道）。
 
-G-Club和G-Fashion有什么关系呢？大家有没有问过，为什么没让G-TV的投资者拥有G-Club公司的股份和G-Fashion公司的股份呢？大家知道为什么吗？我先告诉大家，G-Fashion三年内一定是赔钱的，三年后要经过大量的并购它才能挣钱。但是如果并购之前战友们有5%的股份，你们有钱赔吗？你没钱。
+2）免疫系统？ 这是我在 1980 年代后期的突破之一。泰德（弗里德曼）最初设想的是一个简单的想法，即，如果一个孩子有遗传性先天缺陷导致身体产生缺陷或不产生关键蛋白质（如自毁容貌综合症或腺苷脱氨酶缺乏症），这可能只是通过提供“好基因”来弥补缺陷。没有意识到的是，这些孩子的免疫系统在发育过程中被“教育”，要么将“坏蛋白质”识别为正常/自我，要么不将缺失的蛋白质识别为正常/自我。因此，将“好基因”**引入人体会导致产生本质上是****“****外来蛋白质****”****的物质**，**从而导致免疫攻击和杀死现在具有****“****好基因****”****的细胞。**
 
-所以并购之前都让大投资机构投，赔钱让它赔，等到开始挣钱的时候，我向你们保证，G-TV的投资者一定有5%的股份，一定有，记住，挣钱的时候啊，赔钱的时候绝不让你们加入，也不能让你们再投入。
+3）**当事情出错，并且****“****好基因****/****蛋白质****”****有毒时，会发生什么？**
 
-为什么不能让你们拥有G-Club公司的股份呢？因为G-Club在跟世界上这些会员和银行和大商家签署合同的时候，如果你们拥有了5%的股权，新G-TV的投资者加入进去，现在很多因为G-Club、G-Fashion还有喜联储这些完全不同的机构投资者，会把这些机构投资者连在一起，成为一个共同的利益投资者，那你的KYC和银行打交道完全不一样。
+在目前的疫苗情况下，这本质上是“刺突蛋白”问题。我一直被问到“我能做些什么来消除我体内的RNA疫苗”？我必须回答——什么都做不了。
 
-更重要的事情，现在如果新G-TV拥有了G-Club的股权，你就干成了一个什么事情呢？G-Club下一步的所有的行动，特别是申请新中国联邦的护照，特别是跟某些国家主权组织进行合作和大商家签署协议的时候都要走董事会程序。你只要有一个战友加进来，都要走这么个程序，那是极为复杂的。
+据我所知，没有一种技术可以从你的身体中消除这些合成的“类 mRNA”分子。目前使用的许多“基因治疗”方法中的任何一种都是如此。您只需要希望您的免疫系统会攻击吸收多核苷酸的细胞，并降解（咀嚼）导致您的细胞制造有毒蛋白质的有害大分子。
 
-所以现在让它准备好并购，以及大股东多拿钱，也不让咱们战友跟着拿钱，所以让G-Club跟全世界签署更多的俱乐部和在全世界的商家多家消费以及实现各种并购后，我告诉大家，你们一定会拥有5%的股权。
+由于几乎所有当前的“基因治疗”方法都效率低下，并且，基本上将遗传物质随机传递给一小部分细胞，因此，没有实用的方法可以通过手术去除分散的、相对稀有的转基因细胞。通过细胞免疫系统（T细胞）清除转基因细胞，是目前唯一可行的方法来去除吸收了外来遗传信息的细胞（在 mRNA 或 DNA 的情况下为“转染”，在这种情况下为“转导”病毒载体基因）。
 
-这就是七哥的战略，我们已经创造了世界上一个新的人类的管理和政治、经济、文化、时尚、现代金融和未来金融、区块链集为一体的一个未来的国家模式，而且是无国界、无边界、无种族、无信仰区别的、新的正道主义的，新的人类的管理模式。
+**4) ****如果****“****好基因****”****落在你基因组中的****“****坏地方****”****会怎样？**
 
-G-Club就是这个政权当中的第一个验证战友、验证高低信用，建立和世界上合作的第一个征信平台，和进入到实体的商业当中的利益共同体。它也是未来新中国联邦收集国家人才、选拔人才、培养人才的人才库。
+事实证明，我们的基因组结构是高度进化的，在我们目前的理解水平上，我们仍然是相对的新手。尽管已经对人类基因组进行了测序。“插入诱变”（以病毒DNA或其他方式粘贴遗传信息）的方法，长期以来一直是对遗传学产生新见解的主要方法之一——从果蝇到青蛙，从鱼到老鼠。
 
-资料来源：郭先生GTV、盖特直播
+**当新的 ****DNA ****插入染色体时，可能会导致许多意想不到的事情发生**。例如，就像癌症的发展一样。这就是为什么人们如此担心“RNA疫苗”中使用的mRNA样多核苷酸可能会进入细胞核（DNA染色体所在的地方），并在逆转录后插入或与细胞基因组重组（RNA-&gt;DNA）。通常，对于基于 DNA 的基因治疗技术，FDA 需要为此进行基因毒性研究，但 FDA 并未将“mRNA 疫苗”技术视为基因治疗产品。
 
-往期回顾：
-[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
-[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
-[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
-[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
-[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
-[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
-[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
-[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
-[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
-[文·贵天成——文贵先生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
-[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
-[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
-[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
-[文·贵天成——文贵先生谈“G-Club”（二十）](https://gnews.org/zh-hans/2240823/)
-[文•贵天成——文贵先生谈“G-Club”（二十一）](https://gnews.org/zh-hans/2244681/)
-[文•贵天成——文贵先生谈“G-Club”（二十二）](https://gnews.org/zh-hans/2251614/)
-[文•贵天成——文贵先生谈“G-Club”（二十三）](https://gnews.org/zh-hans/2251657/)
+未完待续
 
-发布：tianzhihuan
+素材链接：[https://rwmalonemd.substack.com/p/when-is-mrna-not-really-mrna?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTExOTI5NjMsIl8iOiJsdGFHKyIsImlhdCI6MTY0ODUwMjA5NSwiZXhwIjoxNjQ4NTA1Njk1LCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.j6meHhLgy7xAWyLaaNniOrr\_2o4NRg\_d0J2Z4-Bf4nI&s=r](https://rwmalonemd.substack.com/p/when-is-mrna-not-really-mrna?token=eyJ1c2VyX2lkIjo2NTYwMTc4NSwicG9zdF9pZCI6NTExOTI5NjMsIl8iOiJsdGFHKyIsImlhdCI6MTY0ODUwMjA5NSwiZXhwIjoxNjQ4NTA1Njk1LCJpc3MiOiJwdWItNTgzMjAwIiwic3ViIjoicG9zdC1yZWFjdGlvbiJ9.j6meHhLgy7xAWyLaaNniOrr_2o4NRg_d0J2Z4-Bf4nI&amp;s=r)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+* * *
+
+审核：文乐
+校对：小东
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 

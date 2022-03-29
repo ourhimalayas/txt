@@ -2,63 +2,45 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“G-Club”（二十三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2251657/)
+## 墙内欠薪、裁员、破产现象频发
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251920/)
 
-整理： BENJ1
-编辑：李易通
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043-2.jpg)图片来源：雅典娜设计组
+作者：日本方舟农场 – Andy5
 
 
-郭文贵先生2021年8月11日直播
 
-什么叫G-Club？什么叫俱乐部？就是志同道合的人共同走在一起，大家同意在某种条件、环境范围内共同实现预定的某个目标的群体，他注定是极少数，但影响的是绝大多数。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-爆料革命它就是个俱乐部，它就是一个新的正道主义、新的信仰、新的生活方式、新的政治、经济、文化的力量的诞生，就像你看到的那些俱乐部是一样的。它毕竟一定没有任何力量可以阻止我们灭掉共产党，你就是人类上最牛的俱乐部。当然你要享受灭掉共产党以后所有的利益、荣耀和被尊崇和尊仰的最后的成果。
 
-我们是集共济会、光明会、骑士会、骷髅会，而什么会不会的，最后都汇到咱这儿来了。他们都是大杂烩，我们才是人类最高的智者、勇者的大聚会，它叫G-Club俱乐部，你就是其中一员！
 
-你就是一个最大的五月花、美国宣言，和所有的人类历史上大变更的最重要的推动者。
+3月28日，最近多家媒体报道，中共拖欠农民工工资、行业巨头裁员现象频发，另有多家房地产企业宣布破产，墙内经济正在继续下行。
 
-未来我们G系列的秘密银行，我们G系列的G-Club卡它将是什么？是集信用卡、现金卡、护照和数字货币和全世界所有包含这些俱乐部、这些信用卡的组织它必须要认可的一个世界上最高信用的，以新中国联邦、喜联储、喜币、喜美元、G-TV、G-Fashion所有的千亿万亿资产背书的G-Club会员卡。你告诉我人类上有这么牛的卡吗？你再看刚才PPT里展示的这些卡的时候，你不觉得是笑话吗？太小玩意儿了，是吧？这就是G-Club的本意。
+3月25日，有网友在社交平台上爆料称，吉林建设方舱医院的过程中，多位农民工感染中共病毒，工程期间住宿环境差，并且在建成后被中共拖欠之前承诺的薪资。但这并不是中共第一次拖欠农民工工资，早在2020年2月中共在武汉兴建火神山医院时，就被爆出拖欠工资，并且几乎没有保证农民工防护措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide15-2.jpg)
+另一方面，在3月28日，继上周腾讯阿里被传出大幅度裁员后，墙内电商巨头之一的京东和网络视频巨头B站，也被爆出大幅裁员。而这距离京东掌门人刘强东，在2018年称“永远不会开出任何一个兄弟”，才过去不到4年的时间。
 
-一个国家创始群体、一个人类上新的信仰、新的巨大的财富集团，百分之百合法的、在全世界受到最高尊重和信用的、你别无选择的，你只有跟我们合作的、以这个国家实力为背书的信用卡、护照信息，在全世界不用再KYC了，有了G-Club就等于有了百分之百的信用。
+同日，中共财政部北京监管局要求，防止各地方政府债券发行超过本地债务限额，暗示中共地方债务已经超过中共预期。另据墙内数据查询，中共赖以生存的房地产企业，在今年一季度中已经有超过100家发布了破产文书。
 
-你可以不理我们，我们也可以不理你，你拒绝得了吗？就像七哥横跨这些组织，他拒绝得了吗？
+观察人士指出，近一段时间以来墙内的欠薪、裁员、破产的消息层出不穷，这表明中共的经济并没有中共新闻中的光鲜亮眼，而是如郭文贵先生所爆料的那样，即将面临全盘崩溃的时刻。
 
-资料来源：郭先生GTV、盖特直播
+参考链接：
+1. [曝吉林方舱医院农民工感染新冠，还被中建八局拖欠工资](https://www.163.com/dy/article/H3BDGUMQ0534B9EY.html)
+2. [突然！徐州多个开发商破产！](https://www.163.com/dy/article/H3A6JV0N0535BBBW.html)
+3. [京东B站被曝裁员，紧急回应！更有裁员工牌堆满一大箱，半层楼的人都空了](https://finance.sina.com.cn/stock/s/2022-03-28/doc-imcwiwss8464547.shtml)
+4. [刘强东：我们永远不会开除任何一个兄弟，AI也不会导致大规模失业](https://www.sohu.com/a/231836392_123977)
+5. [财政部北京监管局:防止地方政府债券发行超过本地债务限额](https://www.163.com/dy/article/H3I9FAAO0535L78U.html)
+6. [火神山医院工地拖欠农民工工资？ 承建方回应](https://www.zaobao.com.sg/realtime/china/story20200219-1030383)
 
-往期回顾：
-[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
-[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
-[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
-[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
-[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
-[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
-[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
-[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
-[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
-[文·贵天成——文贵先生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
-[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
-[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
-[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
-[文·贵天成——文贵先生谈“G-Club”（二十）](https://gnews.org/zh-hans/2240823/)
-[文•贵天成——文贵先生谈“G-Club”（二十一）](https://gnews.org/zh-hans/2244681/)
-[文•贵天成——文贵先生谈“G-Club”（二十二）](https://gnews.org/zh-hans/2251614/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-发布：tianzhihuan
+总编/编辑/审核：DM
+校对/发稿：为真不破20
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

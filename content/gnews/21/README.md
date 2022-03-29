@@ -2,25 +2,18 @@
 ---
 
 
-## 樱花头条┃乌克兰西部城市利沃夫遭受火箭袭击
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251555/)
+## 樱花头条┃中国外长和俄罗斯特使相继访问塔利班的阿富汗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251667/)
 
 撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-乌克兰西部城市利沃夫遭受火箭袭击。
 
-信息来源：
-[https://www.gettr.com/post/p1235xc64f0](https://www.gettr.com/post/p1235xc64f0)
+中国外长与俄罗斯特使相继访问塔利班统治的阿富汗。
+
+信息来源：[https://www.gettr.com/post/p11rdoz485b](https://www.gettr.com/post/p11rdoz485b)
 
 *编辑：东京樱花团/asket、文米（素材）
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

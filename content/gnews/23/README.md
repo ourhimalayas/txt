@@ -2,30 +2,39 @@
 ---
 
 
-## 美中脱钩已经是现实，而欧洲还在讨论
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2251458/)
+## 上海分区封锁控管 全民核酸检测
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251658/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+作者：纽约香草山医疗部 – 云豹， 纽约香草山教育部 -Noemi
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-AP-Teaser-USA-EU-Chiina-bn-bn-Kopie.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-资料来源：welt.de
 
-为应对普京的侵略战争，俄罗斯在很大程度上与西方经济体系脱钩。这对支持莫斯科的超级大国中共国 意味着什么？柏林必须处理华盛顿早已回答的问题。
+3月27日，上海市中共病毒疫情防控工作领导小组办公室公告称，自28日起，将在该市进行分区封锁控管，对全市居民展开另一次的“切块式、网格化”核酸筛检。
 
-英特尔在马格德堡建立芯片工厂。这条新闻最近上了头条。重点主要放在投资金额（170 亿欧元）和创造的就业数量（3,000）上。但这些数字背后隐藏着一个地缘政治转折点。因为美国半导体制造商决定在高工资国家德国建立芯片工厂，旨在减少对亚洲地区，尤其是中共国 的计算机芯片的依赖，这些地区越来越被认为是不安全的。
+在上海此次分区封锁控管的范围内，将暂停公交车、地铁、轮渡、计程车、网约车的运行。区域内的住宅小区将实施封闭式管理，其内部的所有人员不能出门，人员和车辆只能进不能出。外送、快递等业务将以无接触的方式进行配送，工作人员不能进入住宅小区。所有企业将采行封闭式办公或居家办公。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide13-9.jpg)
+公告中明言，如果在此封控期间内未配合参加核酸检测，居民的上海健康码将被登入“黄码”；对于无正当理由拒不配合核酸检测、妨碍疫情防控，或造成其他严重后果的居民，还将追究相应法律责任。
 
-自冷战结束以来，乌克兰战争向世界展示了地缘政治的重要性，这是其他任何政治事件都没有的。虽然美国和欧洲能够很快就制裁俄罗斯金融公司达成一致，但华盛顿和柏林正在采取不同的方式。
+由于该政策的出台，中共股市也在本周开市应声下跌。同时，消费股领跌大陆和香港市场。中共病毒及疫苗灾难即将在中共国内部失控、爆发。
 
-简评： 欧洲永远走在美国的后面， 但是最近的俄罗斯入侵乌克兰， 让欧洲人顿然觉醒。 在欧洲有关和中共国脱钩的理念在美国已经是付诸行动中， 欧洲才开始讨论这个议题。 相信欧洲会紧随美国的脚步， 中共国被群殴的时候就要来到， 而悲哀的是， 这个结果受到损失和惩罚的永远是老百姓。
+参考链接：
+1. [上海疫情清零壓力大 28日起分區封控](https://www.cna.com.tw/news/acn/202203270228.aspx)
+2. [中國本土新增6215例 超過半數在上海](https://www.cna.com.tw/news/acn/202203280035.aspx)
 
-🔗 [https://www.welt.de/politik/ausland/plus237778533/Ukraine-Krieg-Was-die-USA-mit-China-vorhaben-gilt-in-Europa-als-schmutziges-Wort.html](https://www.welt.de/politik/ausland/plus237778533/Ukraine-Krieg-Was-die-USA-mit-China-vorhaben-gilt-in-Europa-als-schmutziges-Wort.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-责任编辑、发布： Shuizhuyu
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 1:00 PM (UTC)`
+
+2022.03.29 早《新中国联邦新闻访谈》  30人特战组用无人机阻止了俄军车队进入基辅 ；英国新规：为俄罗斯和中国等敌对国家游说者必须登记；GClubs年会抽奖带给战友们公平和希望
+![img](https://media.gettr.com/group50/origin/2022/03/29/12/4dc6c698-b2c9-44f8-9cbf-6a8acfaaa6d7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/29/2022 12:29 PM (UTC)`
 
 
@@ -147,13 +154,6 @@
 
 2022.03.28 NFSC News  Since Russia-Ukraine War Biden Meets Ukraine's Foreign and Defense Ministers for the First Time； We Are Doing What the Communist Chinese Government Should Have Been Doing
 ![img](https://media.gettr.com/group13/origin/2022/03/28/22/a9b7491e-450e-b60b-ada6-c0a7a61e2cae/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/28/2022 10:49 PM (UTC)`
-
-【Ukraine Rescue】03/27/2022 Little Sara reported that people were taking care of stray dogs at the rescue camp. Whoever came there, people or dogs, got help. This showed the greatness of humanity. She hopes people could show the same love if CCP invades Taiwan and disasters take place.<br/><br/>【乌克兰救援】03/27/2022 小Sara报道，梅迪卡营地有人在战乱中不忘救助流浪狗。人和狗都得到了关怀，显示了人性的光辉。希望如果中共侵略台湾造成灾难，人们也能展现相同的爱心。<br/><br/>
-![img](https://media.gettr.com/group17/getter/2022/03/28/22/7224aa8d-90ed-4d16-7c65-eab31e924930/out.jpg)
 
 ---
 
