@@ -2,69 +2,317 @@
 ---
 
 
-## 铭记“铁链女”拷问人心的四句话，这是全社会的痛
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2248521/)
+## 拜登在波兰会见“勇敢的”乌克兰难民
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2248620/)
 
-原文内容：
+Wolf Blitzer (American journalist)
+沃尔夫·布利孜（美国记者）
 
-春节开始到现在，丰县“铁链女”事件，热度与持久度可谓都刷新了历史。有人统计铁链女事件在微博上的阅读量就达到惊人的近50亿，再加上微信等其他众多平台的浏览，阅读量有可能超过200亿。可民意滔天换来了什么？换来的是徐州方面漏洞百出，被网友批成筛子的通报。财经周刊发表社论指出：江苏徐州八孩母亲被栓铁链事件令人悲愤，她被拐卖和受虐待的遭遇，击穿了人类良知的底线，令每一个正直的国人感到心痛和羞耻。
+The President was accompanied by the mayor of Warsaw Rafal Zraskowski
+总统是由华沙市长拉法尔·兹拉斯科夫斯基陪同的
 
-如今，俄乌战争打响，焦点一下子就转移走了。估计“铁链女”事件会慢慢被淡化，也会随着岁月延长被人遗忘。但是，涛哥觉得“铁链女”曾经说过的几句震撼人心的话，值得我们每一个人记住，这是全社会的痛。
-视频来自原创文章录屏
-**第一句话：这个世界不要我了！**
+was joining us right now
+他本人现在加入我们
 
-这是一个“疯女人”，对这个世界得出的结论。其实，就是骗她的人，卖她的人，买她的人，强暴她的人，虐待她的人，用铁链拴住她的人，让她在极其野蛮的环境里生了八个孩子的人，以及周围那些对她的遭遇视而不见无动于衷的人，构成了她眼里的世界。她的这一句话：这个世界不要我了。根本就不像是一个有精神病的人说出来的话，更像是一位富有哲理思维人说的话。她分明是在质问这个CAO蛋的世界，原本属于每一条生命，为何偏偏抛弃了她。一个被恶人控制了生命扼杀了未来的人，她就可以得出这个世界不要我了的结论。
+Rafal, thank you very much for joining us
+拉法尔，非常感谢你加入我们
 
-我想说的是，那些对这个所谓疯女人的命运，对所有过着非人生活的人的命运，无关痛痒充耳不闻麻木不仁——只知道守着自己的饭碗吃喝玩乐醉生梦死的人，他们还是这个世界的一部分吗？这一次，所有对这个八孩妈妈受到的野蛮折磨发出怒吼的人，持续进行声讨谴责的人，甚至亲自前往去解救的人，才是这个世界最不可缺少的一部分，才是这个世界的良心！
-视频来自原创文章录屏
-** 第二句话：这一屋都不是人，统统都是强奸犯！**
+So you’ve been mayor here for more than three years
+所以你已经在这里当了三年多的市长了
 
-从网友拍摄的视频中，有人听出她所说的方言，“这一屋都不是人，统统都是强奸犯”。视频的方言我不能完全确定是以上的意思，但是请问，一个被拐卖的女人，一个精神有问题的女人，或者一个被锁着铁链的女人，生下八个孩子，是出于她的个人意愿吗？我相信她是被强奸的。如网友所说，她被多个男人强奸，甚至被董家“三个男人共用”都是极有可能的事情。不然，铁链女不会说出来：“这一屋都不是人，统统都是强奸犯”。很难想象，小小年纪，未曾绽放的花朵一般，却被拐卖，又被一群恶魔不断的摧残，转卖，再被迫生了多个孩子 ……
+What was the President President Biden’s message to the Ukrainian refugees
+拜登总统对乌克兰难民的信息是什么
 
-这个强奸不是一次性的伤害，对她的人生，就是一个不断被强奸的人生。问题的关键还在于，整个事件在当地群众中并非秘密，从众多网友发布的信息来看，该村的人知道，邻村的人也知道。可是当地主事的人却装聋作哑，遮遮掩掩。
+and you walk around with him at the sports stadium, the soccer stadium earlier to-day?
+你今天早些时候和他一起在运动场，足球场走了一走？
 
-远在千里之外的网友都可以挖出事实真相，而封县及徐州却用前后自相矛盾的多份所谓权威通告来玩太极。明明知道犯罪事实，不加以制止，这算不算是共犯呢？这不仅仅是对该村村民、对丰县、对徐州的拷问，而是对每个中国人都要普及的法律及道德课。如果面对罪恶我们都选择沉默，这将是比罪恶更大的恶。
-视频来自原创文章录屏
-**  第三句话：我跟妓女一样！**
+What did you hear?
+你听到了什么？
 
-在最新曝光的视频中，铁链女说：“我就是个妓女……跟妓女一样，成天就跟妓女一样！”听到她说这句话，我的心在流血，可想而知，她在这个小黑屋里忍受了多少蹂躏，受尽了何等屈辱。她说像妓女一样，可涛哥认为她连妓女都不如啊。妓女至少有自由，不会被铁链套住脖子被强迫生八个娃，妓女至少可以穿着光鲜的衣服，把自己打扮得漂漂亮亮的，有时候跟着男人到酒店宾馆里吃香喝辣的，妓女是出卖身体赚钱的，可是铁链女呢，她活得猪狗不如，被人用铁链套住脖子，每天遭受蹂躏，吃的也是猪食一样，过着惨绝人寰的生活。铁链女的这句话说明：她曾经生活在暗无天日之中，饱受群兽蹂躏；她是“性奴”和生娃机器；她神志清醒，但内心痛苦不堪；网络上传说的所谓狂躁，是必然现象，换成你被这样对待，你也要反抗。
-视频来自原创文章录屏
-** 第四句话：放我走吧！**
+Rafal Zraskowski (Mayor of Warsaw, Poland)
+拉法尔·兹拉斯科夫斯基（波兰华沙市长）
 
-在中央电视台的报道中，在丰县精神病医院就医的铁链女，对着电视台的镜头说：“放我走吧！”“睡一睡就好了！”一个粗暴的声音传来。铁链女真的患有精神分裂症吗？真的需要整天睡在病床上吗？
+It was incredibly emotional because we’ve heard some heartbreaking stories
+非常激动，因为我们听到了一些令人心碎的故事
 
-“放我走吧”这四个字，听起来十分刺耳。如同被囚之人的呼求，又像是被恶者所困时的呐喊。这不是一个人所发出的声音，这应该是无数个被非法囚禁而不得自由者的心声。从网上不断挖出的线索来看，在丰县乃至全国来说，被拐卖，甚至被囚禁者不是该女人一个。
+and the President was reassuring people
+而且总统让人们放心
 
-徐州方面说她有精神分裂症，但是精神分裂症患者，往往分不清现实和幻想，认识不到自己急迫而正当的需求，但在对铁链女明确要求＂放我走＂这句话来分析，**可见她对解除锁链后又为无形铁链束缚的现状有明确认知，并且以****坚决的口气要求着＂走＂一一自由。可想而知，一个受到过二十几年囚禁的受害妇女，当她突见黑暗中透进来一丝亮光，敏感觉知到有可能被世界重新接纳时，她最大的需求和渴望一定非自由莫属！显然，她对此认知是正常的正确的。**从铁链子锁住的冰冷冰冷的的拘禁，到无形的拘禁，虚情假意，她被拐以来七拐八拐，似乎从未拐出厄运的掌纹。
+and telling them that the United States of America will help
+并告诉他们美国会将提供帮助
 
-尽管铁链女被拐入地狱起没有一天有过自我，没有一天有过想走哪儿就往哪儿走的自由，但她在精神病院病床上发出的一声＂放我走＂，是对诊断她患分裂症的医生的抗议，是向外部世界的呼救；一声＂放我走＂，是铁链女心中的蓝莲花在召唤久违的自由行走！
+will help Ukraine militarily with weapons
+将在武器上帮助乌克兰的军队
 
-“这个世界不要我了！”“他们一屋子都不是人，统统都是强奸犯！”“我跟妓女一样！”“放我走！”铁链女说的这四句话，每一句话逻辑都是清晰的，包含着血泪的控诉，包含着无助的乞求，也包含着哭天无泪的无力伤痛。她的每一句话都在拷问着中国人：我们的良心在哪里？！为什么人们可以那么坏？！她的口述，将成为我们共同的历史见证；铁链女拯救了我们，其经历将成为宝贵的民族精神资产。我认为，铁链女的精神状况就是我们时代的精神状况。她的每一句控诉，针对的就是我们的这个时代。因为时代的精神状况，就是由所有人都共同塑造的。一个人变坏，是很难的。只有一批人跟着变坏，坏才坏得起来。因为，“良心”是可以唤醒的东西。即使是被骂为“畜生”的董某民，其实也是良心未泯的。只不过，其周围的环境纵容了他，让他觉得自己并不是在作恶。也就是说，当周围的人都坏的时候，一个人就很难好起来。
+And we’ll help the people also help the city of Warsaw
+我们将帮助人民，也帮助华沙市
 
-面对铁链女这样的悲剧，我们不应该悲观。因为，时代的精神状况，是可以即时改善的。当真相揭示出来之后，所有的病症，都会一扫而光。就像铁链女事件，只要铁链女自己说话了，一切都会真相大白于天下。她以前的悲惨经历，业已成为过去，我们这个时代，应该给她一个尽可能美好的未来。不是我乐观，而是我们必须这样去想、去做。否则，我们都不是什么好人。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/640-1.jpg)
-网友们有句话说的真好，很多人关注锁链女事件，不仅是因为我们的血脉中流淌着的善良和爱，更是因为一种本能的同情和防范意识，我们跟奥运冠军相差十万八千里，但与“铁链女”之间只差一根铁链而已，那根冰冷的铁链可以随时从天而降，套在你我他的脖子上，也可以套在我们的孩子、我们亲人或朋友的孩子脖子上。这是一种巨大的哀伤，也是一种巨大的疼痛。我们用这个时代仅存的悲悯，互换真相，追寻正义。这种悲悯是我们这个民族灵魂中的标志，尽管在很多有钱有权人的身上，他已经荡然无存，但在很多普通人心中。依然顽强的跃动着，这是我们区别于禽兽和人渣的标志。
+with a plan to relocate hundreds of 1000s Ukrainians to the United States of Amer-ica
+计划将超过10万乌克兰人转移到美国去
 
-涛哥相信，春天是从冬天开始的，冬天即已经过去了，我隐约闻到了春的气息，只因为越来越多苏醒的灵魂拒绝沉默！只有所有的人不冷漠、不麻木，这个社会才会更加温暖，每个人一声呼喊，就会汇聚成巨大的力量。我坚信，那条拴在“八孩母亲”脖子上的狗链子，总有一天会变成某些人手腕上的铐子！
+Wolf Blitzer
+沃尔夫·布利孜
 
-来自 新世界一员战友转载
+which is really significant, but you got to give the Polish people so much credit
+这真的很重要，但你必须给予波兰人民如此多的功劳
 
-原创 黄陂人王涛 老班长涛哥*2022-03-08 08:04*
+There are more than three and a half million, maybe almost 4 million Ukrainians
+乌克兰人超过350万，可能接近400万
 
-（转载墙内优选文章 ）
+have fled the country to neighboring countries
+已逃离该国到邻国
 
-原文链接：[https://mp.weixin.qq.com/s/7xKPvsh47gLEBl7A1VMttQ](https://mp.weixin.qq.com/s/7xKPvsh47gLEBl7A1VMttQ)
+more than half of them have come here to Poland
+超过一半的人来到波兰
 
-**注：如有幸获原作者联络，我们愿意给予合理稿酬，或洽谈长期合作事项，期望联络。**
+you’ve received them, you’ve opened the doors to them
+你们已经接收了他们，你们已经为他们打开了大门
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+and they’re about what 300,000 or 250,000 right here in your city of Warsaw
+他们大约有300,000或250,000在你所在的华沙市
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+So tell us what you need
+所以告诉我们你需要什么
+
+I’m sure you’re looking for some help
+我确定你正在寻求帮助
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Indeed, you know the population of my city went up by 50% in a month
+确实，你知道我所在城市的人口在一个月内增加了50%
+
+And of course, you know, this instinct of Solidarity was just incredible
+当然，你知道，这种人类团结的本能真是不可思议
+
+but much was based on on improvisation
+大部分都是基于自发的
+
+of course the government did its part on the border
+当然政府在边境尽了自己的一份力量
+
+but here it is the volunteers that is to nongovernmental organizations
+但这里是非政府组织的志愿者
+
+all my social workers who work now with refugees
+我所有现在与难民一起工作的社会工作者
+
+so we need a system, we need the European Union
+所以我们需要一个系统，我们需要欧盟
+
+the United Nations to help us out
+联合国来帮助我们
+
+We need a relocation system whereby we’re going to share this burden together
+我们需要一个迁移的系统，让我们一起分担这个负担
+
+because we are also doing our best
+因为我们也在尽最大的努力
+
+The Ukrainians are fighting for our freedom
+乌克兰人正在为我们的自由
+
+and for the stability of the Transatlantic Alliance
+以及为了跨大西洋联盟的稳定而战
+
+We need to help them
+我们需要帮助他们
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+and the Polish government is really going way way out
+而且波兰政府真正的伸出了援手
+
+Not only helping them with the housing and with food
+不仅帮助他们提供住房和食物
+
+but with with medical assistance as well for at least three years or maybe even longer
+但在医疗上的援助也是至少三年或者甚至更长
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Yes, and it is again, most of the burden is on volunteers
+是的，同样，大部分的负担都在志愿者身上
+
+non government organizations and us here
+非政府组织和我们在这里
+
+because you know, those those
+因为你知道，那些
+
+The work is delegated on us
+工作是委托给我们的
+
+But yes, I mean, it is incredible
+但是，是的，我的意思是，这太不可思议了
+
+because Ukrainians were granted almost a citizen like status
+因为乌克兰人几乎被给予了公民待遇
+
+they have access to free education, free health care
+他们可以获得免费教育和免费医疗保健
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+here in Poland
+在波兰这里
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+here in Poland
+在波兰这里
+
+And that’s great, I’m very proud of that solution
+这很棒, 我为这个解决方案感到非常自豪
+
+But of course, it puts an enormous strain on the city like mine
+但是，当然，它给像我这样的城市带来了巨大的压力
+
+and our services are very much overstretched and overwhelmed
+我们的服务非常紧张和不堪重负
+
+That’s why we need assistance
+这就是为什么我们需要帮助
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+What do you think of the President’s speech today?
+你如何看待总统今天的讲话？
+
+It was very strong. I’ve heard everything that I wanted to hear
+它非常强大的，我已经听到了我想听到的一切
+
+First of all, you know, this pledge that the United States of America
+首先，你知道，这个承诺是美利坚合众国
+
+will defend every inch of NATO territory
+将保卫北约的每一寸领土
+
+it allows us to feel secure and to do our job on the ground
+它让我们感到安全并在实地完成我们的工作
+
+but also you know, those those very strong words about Russia and about Putin
+但你也知道，那些关于俄罗斯和普京的那些非常强烈的话
+
+and that he’s going to pay for that
+他会为此付出代价
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+That is given a dictator
+这是一个独裁者
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Yes
+是的
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+Butcher
+屠杀者
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+Yes
+是的
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+And when the President of United States says
+并且当美国总统说
+
+For God’s sake, this man cannot remain in power
+看在上帝的份上，这个人不能再继续掌权
+
+I assume you agree
+我猜你同意
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+exactly, of course, and, and, you know
+是的，当然，并且，你知道
+
+also reminding us that democracy is so important, you know
+也提醒我们民主是如此重要，你知道的
+
+we had our share of problems with this government with rule of law and so on and so forth
+我们在法治方面与这个政府有过共同的问题，等等
+
+And now we need to be the strongest democracy in Europe
+现在我们需要成为欧洲最强大的民主国家
+
+because we cannot afford to have a weak link on the eastern flank
+因为我们不能承受东翼的薄弱环节
+
+We need be strong
+我们需要坚强
+
+Wolf Blitzer
+沃尔夫·布利孜
+
+before I let you go
+在我让你走之前
+
+I’ve been here for a couple of days
+我在这里已经待了几天
+
+And I sense at least in my conversations
+我至少在我的谈话中感觉到
+
+that the Polish people are pretty nervous about Putin right now
+波兰人民现在对普京非常紧张
+
+They’re wondering, is Ukraine his final stop or could he start going after Poland?
+他们想知道，乌克兰是他的最后一站，还是他是要对波兰下手呢？
+
+Mayor Rafal Zraskowski
+拉法尔·兹拉斯科夫斯基市长
+
+That’s why the President’s words was so important to us
+这就是为什么总统的话对我们如此重要
+
+to reassure us that we are in it together
+向我们保证我们在一起
+
+and really when I look at presidents Zelenskyy
+而当我看到泽连斯基总统时
+
+If he doesn’t panic we shouldn’t panic
+如果他不恐慌，我们就不应该恐慌
+
+原视频链接: [https://twitter.com/cnn/status/1507871048036978689?s=24](https://twitter.com/cnn/status/1507871048036978689?s=24)
+
+Date:03/27/2022
+原视频标题: Biden meets with “brave” Ukrainian refugees in Poland
+拜登在波兰会见“勇敢的”乌克兰难民
+原视频日期：2022/03/27
+原视频链接https://twitter.com/cnn/status/1507871048036978689?s=24
+任务编号：KE463（4098）
+视频时间段 : 0:00-3:37
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

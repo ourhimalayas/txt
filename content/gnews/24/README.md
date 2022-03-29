@@ -2,17 +2,27 @@
 ---
 
 
-## 五月花简报（03/28/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2247965/)
+## 灭共段子——当前疫情
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2248338/)
 
-编辑：波士顿五月花—-冲天一怒
+撰稿：东京樱花团/保和
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/D31B4BFB-E957-4461-9731-7D66E9A767BD.jpeg)
+城市有，封闭走；
 
-*发布：思澈*
+交通断，红灯走；
 
+社区有，全院谁都别想走。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-45.png)
+以前一例封小区，现在一例全员疑；
 
+古有株连九族，现有共匪放毒，明天黄码加身。
 
+三天两次做核酸，看你老实又好欺，不灭中共老杂毛，疫情严重别想逃。
+
+*配图：东京樱花团/俪影*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,31 @@
 ---
 
 
-## 加国防部禁止其军人参与俄乌战争
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2248434/)
+## 今日盖特大V推荐 — 戴夫·鲁宾（Dave Rubin）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2248541/)
 
-加拿大温哥华扬帆农场    平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/aobdv-uxnn4.jpg)
+**盖特链接**：[https://gettr.com/user/daverubin](https://gettr.com/user/daverubin)
 
-据【卫报】3月24日报道，加拿大国防部日前发布命令：将禁止该国全职服兵役人员和兼职预备役军人以及正在休假的官兵等，前往乌克兰加入不久前成立的抗俄外国军团。
+**戴夫·鲁宾自述：**
 
-报道称，由于担心加拿大军人可能在乌克兰战场中被俄军俘获，而成为普京当局在遭受重大失败的情况下被用作信息战的宣传工具，因此，国防部禁止加拿大军人擅自加入乌克兰军队参与对俄作战。
+**佛罗里达人**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/as-3.jpg)图片来源：网络
+**戴夫·鲁宾简介：**
 
-据悉，因为加拿大是世界第二大乌克兰侨民群体居住国，所以联邦政府此前曾提出愿意接受和安置“无限”数量的乌克兰人前往该国寻求临时避难。
+戴夫·鲁宾全名戴夫·约书亚·鲁宾（David Joshua Rubin，出生于1976年6月26日）是美国政治评论员、著名节目主持人。
 
-* * *
+戴夫·鲁宾是YouTube和火焰电视（BlazeTV）网络上政治谈话节目“鲁宾报告（The Rubin Report）”的创作者和主持人。他的节目于2013年推出，直到2015年离开。此前，戴夫·鲁宾主持过以同性恋（LGBT）为主题的脱口秀节目。他还与本·哈维共同主持了，2007年至2008年的本和戴夫秀（The Ben and Dave Show）和2009年至2012年的 The Six Pack。
 
-编辑： 平民正道    发布：平民正道
+戴夫·鲁宾将自己描述为古典自由主义者，后来又将自己描述为保守派。
+
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,22 +2,35 @@
 ---
 
 
-## 首都渥太华再现反疫苗政策抗议活动
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2248390/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2248515/)
 
-加拿大温哥华扬帆农场    平民正道
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-28.png)
 
-据加拿大【ctv新闻】3月26日报道，在特鲁多政府的皇家骑警将反疫苗护照运动的卡车司机们驱离首都的一个多月后，大量抗议者在当天又再次返回并集结在渥太华市中心。
+文章仅代表作者本人观点，与Gnews无关
 
-报道称，数百辆来自魁北克的汽车在市中心缓缓绕行，鸣笛抗议。 本次示威活动的组织者表示，在所有不合理的疫情限制措施被当局取消之前将不会离开渥太华。
+视频参看：
+[2022.03.28早 《NFSC新闻》](https://gettr.com/streaming/p12b1habf28)
+[2022.03.28早《NFSC新闻访谈》](https://gettr.com/streaming/p12biew65bc)
 
-据悉，尽管自由党政府计划在4月底前取消所有的卫生防疫限制，但在全国范围内没有疫苗护照仍然不能自由地旅行，而且所有未接种疫苗的大学生都将继续被拒绝进入校园。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-渥太华警方当天表示，大约有300辆参与示威活动的汽车穿过主要市区街道，但目前尚未出现与抗议活动发生冲突的相关报道。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
 
-* * *
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-编辑： 平民正道    发布：平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+
+
 
  
 
