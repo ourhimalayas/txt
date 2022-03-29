@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 1:28 PM (UTC)`
+
+【Ukraine rescue】2022/3/28  The NFSC tent has become a distribution center for donated supplies in Medyka.<br/><br/>【救援直播】2022/3/28  新中国联邦帐篷已成为美迪卡捐赠物资集散地。<br/><br/>
+![img](https://media.gettr.com/group20/getter/2022/03/29/13/ea44f07e-c709-0178-8280-980250152af6/out.jpg)
+
+---
+
 `@miles 3/29/2022 1:00 PM (UTC)`
 
 2022.03.29 早《新中国联邦新闻访谈》  30人特战组用无人机阻止了俄军车队进入基辅 ；英国新规：为俄罗斯和中国等敌对国家游说者必须登记；GClubs年会抽奖带给战友们公平和希望
@@ -147,13 +154,6 @@
 
 3/27/2022 Miles Guo: Fellow fighter, Jing Liang, talks about his feelings of interviewing the Ukrainian refugees and giving warmth to the refugee children. The NFSC & ROLF Ukraine rescue let us Chinese people show the world a new image of us. Despite the threats from the war, fellow fighters on the front line are practicing the humanitarian spirit with their sincerity and strengths, and their morale remains very strong!<br/><br/>3/27/2022 文贵直播：精糧战友谈采访乌克兰难民和为难民孩子送温暖的感受；新中国联邦法治基金救援让我们华人向世界展示了新的形象；前线的战友们冒着战火的威胁，用真心和实力在践行着人道精神，士气不减！<br/>
 ![img](https://media.gettr.com/group10/getter/2022/03/28/23/7de57457-e96e-aada-15da-33069d8752c0/out.jpg)
-
----
-
-`@miles 3/28/2022 11:01 PM (UTC)`
-
-2022.03.28 NFSC News  Since Russia-Ukraine War Biden Meets Ukraine's Foreign and Defense Ministers for the First Time； We Are Doing What the Communist Chinese Government Should Have Been Doing
-![img](https://media.gettr.com/group13/origin/2022/03/28/22/a9b7491e-450e-b60b-ada6-c0a7a61e2cae/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

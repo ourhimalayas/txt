@@ -2,10 +2,10 @@
 ---
 
 
-## 日本对接种中共病毒疫苗的政策出现转变
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251648/)
+## 埃隆·马斯克及以色列总理宣布感染中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251650/)
 
-作者：日本方舟农场 – Andy5
+作者：澳喜农场 -追着曙光跑，纽约香草山教育部 – Naughty(文行)
 
 
 
@@ -13,16 +13,14 @@
 
 
 
-当地时间3月26日，日媒报道了本国多个疫苗后遗症的案例，以及日本国内对接种中共病毒疫苗政策的转变。
+3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
 
-在疫苗后遗症的案例中，有热爱体育的中学生因接种疫苗而几乎无法走路，并且造成其家庭近乎支离破碎。还有大学教师在接种后，长时间出现头晕、难以入睡、大脑反应迟钝等症状。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-12.jpg)
-对此，一直提醒大家正视疫苗后遗症的长尾和宏医生再次表示，他反对给儿童接种中共病毒疫苗。并呼吁作为监护人的父母，花时间学习病毒和疫苗相关知识，仔细想想对孩子最好的选择后再做决定。
-
-目前，日本厚生劳动省依旧没有将人们在接种后出现的长期副作用认定为疫苗后遗症，但已经呼吁日本各地方政府，积极收治接种中共病毒疫苗后出现长期不良反应的国民。同时，大阪府泉大津市市长决定，取消向每个家庭发放接种证。
-
+另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
 参考链接：
-[视频： 20220326日本疫苗情況有所鬆動](https://www.gettr.com/post/p12au71eb61)
+1. [@elonmusk： Covid-19 is the virus of Theseus.](https://twitter.com/elonmusk/status/1508356357967122434?s=21&amp;t=gjCuU8HllzktRUgs7-N5eQ)
+2. [マスク氏、コロナ検査で再び陽性　症状ほとんどなし](https://news.yahoo.co.jp/articles/97cbf50cd3a5f2f64352bb0a512b411414f54637)
+3. [Israeli PM tests positive for COVID, is working from home](https://abcnews.go.com/International/wireStory/israeli-pm-tests-positive-covid-working-home-83714645)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
