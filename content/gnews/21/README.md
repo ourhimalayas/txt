@@ -2,22 +2,26 @@
 ---
 
 
-## 普京发威“不付款，不给油和气！”
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2251080/)
+## 视频|上海分区封锁控管 全民核酸检测
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2251097/)
 
-编译：波士顿五月花—-思澈
+制作：香草山视频部
 
-欧盟各国和G7国家拒绝用卢布支付俄罗斯的汽油和天然气
+3月27日，上海市中共病毒疫情防控工作领导小组办公室公告称，自28日起，将在该市进行分区封锁控管，对全市居民展开另一次的“切块式、网格化”核酸筛检。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FAE48CBE-E550-4EC8-817E-8D22000E4729.jpeg)
+在上海此次分区封锁控管的范围内，将暂停公交车、地铁、轮渡、计程车、网约车的运行。区域内的住宅小区将实施封闭式管理，其内部的所有人员不能出门，人员和车辆只能进不能出。外送、快递等业务将以无接触的方式进行配送，工作人员不能进入住宅小区。所有企业将采行封闭式办公或居家办公。
 
-在欧盟和G7拒绝了俄罗斯的以卢布支付汽油和天然气后，普京的知己克里姆林宫发言人德米特里·佩斯科夫宣布了俄罗斯可能采取的新措施，即“不付款就不给汽油和天然气”。
+公告中明言，如果在此封控期间内未配合参加核酸检测，居民的上海健康码将被登入“黄码”；对于无正当理由拒不配合核酸检测、妨碍疫情防控，或造成其他严重后果的居民，还将追究相应法律责任。
 
-素材来源：[https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html](https://www.rnd.de/politik/kreml-zu-eu-ablehnung-von-kaeufen-in-rubel-keine-bezahlung-kein-gas-DNXY2QHLW33APZAGILUG7AEAVY.html)
+由于该政策的出台，中共股市也在本周开市应声下跌。同时，消费股领跌大陆和香港市场。中共病毒及疫苗灾难即将在中共国内部失控、爆发。
 
-*发布：思澈*
+发稿：呼吸的雾霾（文小呼吸）
 
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
