@@ -2,22 +2,24 @@
 ---
 
 
-## 秘翻在线：马斯克接种疫苗仍二度确诊
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2251395/)
+## 拜登政府正在考虑给50岁以上的人打第四针加强针
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2251409/)
 
-**编译：明澈**
+#### 翻译/整理 意大利达芬奇农场 小白鸽
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-29-182834.jpg)
-综合外媒3月29日报道，特斯拉首席执行官马斯克于2020年11月第一次确诊过中共病毒（Covid-19）感染，不幸的是，今天他在推特发文，表示自己再度出现轻微的感染症状。虽然他并未表露是否是经由快筛或PCR检测确定阳性，但他在推文中以中共病毒是特修斯的病毒，暗示自己或许是中了中共病毒（Covid-19）变种。
+美国很有可能批准给50岁以上的人施打第四剂新冠疫苗，拜登政府正在考虑给50岁以上的人施打辉瑞或者莫德纳疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-29-alle-12.21.54-1.png)图片来源：Adnkronos.com
+据知情人士透露， 美国食品药品监督管理局（FDA）可能会在下周初批准该年龄组的第四剂新冠疫苗， 这是《纽约时报》披露的。
 
-特修斯的说法，应是出于特修斯之船，即特修斯悖论。该悖论于1世纪时的希腊作家普鲁塔克提出，借质疑特修斯船上的木头逐渐被替换，直到所有的木头都不是原来的木头，那这艘船还是原来的那艘船吗？来探讨“物体的构成要素被置换后，它依旧还是原来的物体吗？”这一问题。
+联邦卫生官员长期以来一直在争论如何采取措施，一些人极力赞成加强针，而一些人持怀疑态度。我们在《纽约时报》上读到一项计划：官员们说如果在秋季再次增加感染，所有年龄段的美国人，包括今年春天接受了加强针的人，都有望再次接种新冠疫苗。
 
-报导指出，马斯克曾在2021年12月的一次采访中向《时代》杂志透露，他和他所有符合条件的孩子们都已经接种了中共病毒（Covid-9）疫苗，但马斯克明确表示，自己反对非自愿接种疫苗者被强制要求接种疫苗。更表示接种疫苗是一件承担风险的事，人们一直在冒险。此外，他还呼吁人们反思，美国自由是否已经遭到侵蚀。
+简评：我们已经看到，新冠疫苗接种率越高， 加强针越多，奥米克戎感染人数越多。疫苗非但没有阻止病毒的传染，疫情反而愈演愈烈。郭先生告诉我们香港、韩国，大陆，包括美国加拿大的病毒复发，就是因为疫苗灾难。只要共产党在，病毒不会停！没有共产党，病毒就消失了。只有消灭了共产党，世界才会变得安全。
 
-马斯克认为科学毫不含糊，对疫苗是经过科学研究过的大概深信不疑，而在这次即将爆发的疫苗危机中，也许人们最终明白“质疑”才是科学最基本的精神。希望他早日康复！
+参考链接：
 
-**新闻来源**: 【[1](https://twitter.com/elonmusk/status/1508356357967122434?cxt=HHwWhMCo9bWH4e4pAAAA)】【[2](https://www.newsmax.com/newsfront/business-finance-elon-musk-inventors/2022/03/28/id/1063254/)】【[3](https://www.cnbc.com/2022/03/28/elon-musk-says-he-has-covid-as-tesla-shanghai-faces-health-restrictions.html)】【[4](https://www.theguardian.com/technology/2022/mar/28/elon-musk-covid-19-positive-test-second-time)】
+[https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50\_7sCeGSEfjmTInil7TXkz3O](https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50_7sCeGSEfjmTInil7TXkz3O)
+
+编辑、上传： Xiao baige
 
  
 

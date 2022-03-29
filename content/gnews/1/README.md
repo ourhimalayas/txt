@@ -2,29 +2,27 @@
 ---
 
 
-## 樱花时政┃德国总理朔尔茨警告俄不要使用生化武器
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251519/)
+## 【G时新闻】俄军像纳粹一样将乌克兰人关押进过滤营
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2251561/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-德国总理朔尔茨本月27日晚上参加德国一台电视访谈节目，就乌克兰战争，北约和能源问题等做了进一步的阐述。朔尔茨承诺，德国将履行北约成员国将国民生产总值2%用于国防的承诺。
+##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
+视频制作：加拿大温哥华扬帆农场 -【gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+乌克兰副总理：俄军像纳粹一样将乌克兰人关押进过滤营 乌克兰副总理伊琳娜·韦列舒克（Iryna Vereshchuk）3月26日在接受《Current Time》采访时说，来自该国被围困城市的乌克兰人被带到俄罗斯境内，并被关进营地，在那里被过滤和筛查，就像纳粹德国一样。 韦列舒克说：“那些被强迫带走的乌克兰人被分为值得信赖的和不可靠的，他们的文件被拿走，并被检查是否有纹身。儿童从他们的父母身边被带走，孤儿院或寄宿学校的儿童也被带走，尚不知他们被带往何处。” 俄军正在强行将人们带往诺沃亚佐夫斯克 (Novoazovsk)市。她证实，该市所在领域自2014年就不受乌克兰控制。韦列舒克说：“我们已经写了各种各样的信，向国际社会大声疾呼这是非法行为。过滤营是纯粹的违法行为，这肯定会导致刑事后果。我知道在顿巴斯（Donbas）、顿涅茨克（Donetsk）和卢甘斯克（Lugansk）也有这样的过滤营。” 韦列舒克补充说：“有关过滤营的信息来自那些离开马里乌波尔的人，以及那些看到儿童、妇女和老人是如何在他们眼皮底下被带走的人。至于人数，据我们所知，大概有4万人被强行驱逐到俄罗斯，还有人被强行从基辅郊区带到俄罗斯和顿巴斯，他们的命运仍然未知。乌克兰当局正在尽一切可能寻找他们并把他们送回自己的祖国，包括要求红十字会如果在罗斯托夫（Rostov）开设代表处，必须确保人们被带到其在乌克兰的家园，而不是未知的方向。” 据《国际文传电讯社》（Interfax）报道，俄罗斯国防部说，自2月24日以来，已有近44万居民被疏散到俄罗斯，包括9.1万多名儿童。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/德国总理朔尔茨警告俄不要使用生化武器.png)图片来源与本文链接
+盖特链接：[https://gettr.com/post/p12dtrmf226](https://gettr.com/post/p12dtrmf226)
 
-朔尔茨警告俄罗斯，“不要轻举妄动”，不要使用生化武器。鉴于来自俄的潜在威胁，德国正在考虑建立新导弹防御系统的可能性。德国可能购买以色列“箭式3型”系统。该系统具备在地球平流层拦截击毁远程导弹的能力。购置这一导弹防御系统需耗资20亿欧元，最早可在2025年投入使用。
+编辑/发文 -【让子弹飞飞飞】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-信息来源： 
-[德国电视访谈：朔尔茨使用好战语言](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220329-%E5%BE%B7%E5%9B%BD%E7%94%B5%E8%A7%86%E8%AE%BF%E8%B0%88-%E6%9C%94%E5%B0%94%E8%8C%A8%E4%BD%BF%E7%94%A8%E5%A5%BD%E6%88%98%E8%AF%AD%E8%A8%80)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
