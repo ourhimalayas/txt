@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 10:03 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月28日第24天当日救援统计：<br/>Medyka救援站接待：约90人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7655人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 24 - Date: March 28, 2022 :<br/>Medyka Rescue Station Reception: about 90 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7655 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group23/getter/2022/03/29/10/9338b5b8-2acb-fb32-5864-5557317ed1aa/07557c16f8240f60694015f39cb93c47.jpg)
+
+---
+
 `@miles 3/29/2022 9:36 AM (UTC)`
 
 3/27/2022 Miles Guo: What is the soft power of the US? The CCP’s top think tank is ignorant of the world, and the CCP is attempting to take advantage of the pendulum effect to create turmoil in the US without realizing that the US and Europe are bonded together because of the shared faith, culture, race, and interests. Which quote from President Biden inadvertently let him surpass his predecessors?<br/><br/>3/27/2022 文贵直播：美国的软实力是什么？中共顶级智囊对世界充满了无知，中共妄图利用美国的钟摆效应搞乱美国，殊不知美欧却有着共同的信仰、文化、族群和利益的纽带；拜登总统说的哪句话在不经意间让他超越了前任总统？<br/>
@@ -147,13 +154,6 @@
 
  3月28号：衷心地感谢所有在乌克兰战场前线兄弟姐妹们的付出和辛苦。你们今天做的一切！都是在拯救生命和拯救华人在世界上的形象和我们孩子的未来。
 ![img](https://media.gettr.com/group40/getter/2022/03/28/22/d73fff0e-0fb2-7d17-ed36-d5e181cfae47/out.jpg)
-
----
-
-`@miles 3/28/2022 10:14 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-28 <br/>For English @Gtranslators_1
-![img](https://media.gettr.com/group36/origin/2022/03/28/22/49acfe5b-ca8d-65a8-d5cc-39c1dd62bffd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
