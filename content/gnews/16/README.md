@@ -2,18 +2,18 @@
 ---
 
 
-## 樱花头条┃上海切块式封城 建一万方舱医院
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250559/)
+## 樱花头条┃上海某小区老人患癌症无法出门配药 纵身跳楼
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250617/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-上海“切块式封城”后，准备立刻建一万方舱医院.
+上海某小区老人患癌症要出门配药。居委不让出门，老人纵身跳楼。这是不讲人性的又一个悲剧。不讲人性是所有集权政府的共同特性。
 
-信息来源：[https://www.gettr.com/post/p12ant7330e](https://www.gettr.com/post/p12ant7330e)
+信息来源：[https://www.gettr.com/post/p1237f1012e](https://www.gettr.com/post/p1237f1012e)
 
-编辑：东京樱花团/asket、asket（素材）
+编辑：东京樱花团/asket、风翼（素材）
 发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****
 **[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
 [**郭文贵先生Gettr**](https://gettr.com/user/miles)**

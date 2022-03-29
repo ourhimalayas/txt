@@ -2,23 +2,33 @@
 ---
 
 
-## 樱花头条┃俄乌战后 攻击北约国家的中国IP数激增116%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250660/)
+## G7正式拒用卢布买俄天然气
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2250744/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-俄乌战后，攻击北约国家的中国IP数激增116%.
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-信息来源：[https://www.gettr.com/post/p123ivre271](https://www.gettr.com/post/p123ivre271)
+3月28日，德国代表七大工业国集团（G7）正式回绝了俄罗斯要求改用卢布支付俄罗斯天然气的要求。
 
-编辑：东京樱花团/asket、小火苗（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-346.jpg)图为俄罗斯卢布（图片来自Pixabay图库）
+
+据《中央社》报道，普京（Vladimir Putin）上周宣布，参与制裁俄罗斯的“不友善国家”购买俄罗斯天然气必须改用卢布支付，所有G7和欧盟成员国都在名单上。
+
+G7成员包括美国、英国、法国、意大利、日本、加拿大、德国等7个主要工业国家，德国是今年的轮值主席国。
+
+据报道，德国经济暨能源部长哈柏克（Robert Habeck）在G7能源部长会议后表示，G7成员国一致认为，俄方要求用卢布支付天然气是“单方面的决定，明显违约”，“用卢布支付是无法接受的事”。哈柏克认为，普京走投无路才会提出这样的要求，他强调G7团结一致，不会被普京分化。
+
+此外，哈柏克还批评俄罗斯出兵乌克兰“破坏全球的和平与秩序”，认为“俄罗斯是不可靠的供应商”，有必要减少对俄罗斯天然气、煤炭和原油的依赖。
+
+然而，由于欧洲国家高度仰赖俄罗斯的天然气，如果俄罗斯以没用卢布支付为由中断供应，将对欧洲的民生和经济带来冲击。对此，哈柏克回应，德国已对所有可能发生的情况有所准备。
+
+据了解，德国与俄罗斯的能源关系长达半世纪，目前德国的天然气和烟煤有一半、原油有1/3来自俄罗斯。不过，俄罗斯军队2月24日悍然入侵乌克兰，刺激德国结束对俄罗斯能源的依赖，其中烟煤和原油今年底前就不再从俄罗斯进口，天然气预计2024年可摆脱对俄罗斯的依赖。
+
+参考链接：
+[https://www.cna.com.tw/news/aopl/202203290015.aspx](https://www.cna.com.tw/news/aopl/202203290015.aspx)
+
+编辑：幽蘭自得
+总编：老孙
+校对发布：爱放飞
 
  
 

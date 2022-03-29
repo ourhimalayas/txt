@@ -2,31 +2,24 @@
 ---
 
 
-## 中日财经爆┃标普将俄罗斯2022年GDP增长预估下调至负8.5%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250770/)
+## 美贸易官员将对东南亚四国的太阳能产品进行调查，以防中共国曲线避税
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2250870/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-路透社3月28日报导，国际评级机构标普将俄罗斯2022年GDP增长预估下调超过11个百分点，至萎缩8.5%。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-74.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2F5b0988e595225.cdn.sohucs.com%2Fimages%2F20190202%2F24d4d498a29d4364bbb9b987d7a224f5.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F293068584_104543&amp;tbnid=0bOzb1BysFKD_M&amp;vet=12ahUKEwjY95W57er2AhUMi_0HHXa9DqQQMygLegUIARDNAQ..i&amp;docid=FmYSTJqJvakiCM&amp;w=545&amp;h=319&amp;q=%E4%BF%84%E7%BD%97%E6%96%AF%E7%BB%8F%E6%B5%8E&amp;ved=2ahUKEwjY95W57er2AhUMi_0HHXa9DqQQMygLegUIARDNAQ)
-对于下一季新兴市场的经济前景，标普全球称基本假设是“这场冲突将在2022年第一和第二季对大宗商品市场、供应链以及投资者和消费者信心产生最严重的影响。”
+#### 翻译/撰稿：zzballack
 
-标普称，新兴欧洲国家在贸易、融资和信心渠道方面受到的影响最大，而许多能源进口国也受到价格飙升的打击。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-20.jpg)图片来源：美联社
+据《路透社》（Reuters）3月28日报道，美国商务部本周一（3月28日）宣布，将对来自四个东南亚国家的太阳能电池板进行调查，以确定它们是否规避了针对中共国太阳能产品的关税。
 
-标普将波兰经济增长预期下调1.4个百分点至3.6%，将土耳其增长预估下调1.3个百分点至2.4%，并将南非增长预期下调0.5个百分点至1.9%。俄罗斯经济增长预期从之前的增长2.7%降至萎缩8.5%。
+这一决定对提出调查要求的美国加州太阳能产品制造商Auxin Solar是一个胜利。该公司申诉说，中共国制造商将生产转移到马来西亚、泰国、越南和柬埔寨，以避免支付美国对在中共国制造的太阳能产品征收的反倾销和反补贴关税。
 
-标普在一份报告中称：“以前从未对一个大型、全球一体化的经济体实施过金融、贸易和技术的组合制裁，因此我们几乎无法预测影响会有多大。”
+商务部网站的一份备忘录显示，官员们称Auxin提供的信息表明，在马来西亚、泰国、越南和柬埔寨运营的太阳能企业是中共国大型生产商的子公司，在那里生产的产品如果在中共国制造，那么美国的反补贴和反倾销税将适用。
 
-消息来源:**[标普全球将2022年俄罗斯经济预估从增长2.7%大幅下调至萎缩8.5%](https://cn.reuters.com/article/s-p-russia-growth-forecast-0328-mon-idCNKCS2LQ06I?il=0)**
+Auxin对此表示欢迎。该公司的首席执行官马穆恩拉希德（Mamun Rashid）在一份声明中表示：“多年来，中共国的太阳能生产商一直拒绝在美国公平定价，并不遗余力地通过在不涵盖这些关税的国家建立规避业务来继续排挤美国制造商和工人。我们很感激商务部官员认识到有必要调查这种普遍的后门倾销行为，以及这如何继续损害美国太阳能生产商的利益。公平贸易和执行我们的贸易法对重建美国太阳能供应链和使美国的太阳能再次得到发展至关重要。”
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+但美国的一些太阳能行业团体则大力游说，反对商务部接受请愿，称这将摧毁该行业，并增加消费者的用电成本。
+
+新闻来源：[U.S. to consider tariffs on solar panels made in Southeast Asia](https://www.reuters.com/world/asia-pacific/us-trade-officials-consider-tariffs-solar-imports-southeast-asia-2022-03-28/)
 
  
 

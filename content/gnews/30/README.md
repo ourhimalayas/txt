@@ -2,36 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.29C）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2250100/)
+## 俄罗斯富豪阿布在基辅和谈期间出现中毒症状
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2250104/)
 
-整理：雅典娜情报组(BENJ1)
-编辑：Kelly
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-2.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Roman_Abramovich_Chelsea.jpg)
+据外媒报道，俄罗斯受制裁的富豪阿布拉莫维奇和乌克兰谈判人员近日成为袭击目标，知情人士透露可能是俄罗斯强硬派试图破坏俄乌和平谈判。在乌克兰谈判会议后，阿布和至少两名乌克兰高级谈判代表出席了中毒症症，包括眼睛疼痛、发红流泪以及面部和手部皮肤脱落，目前情况有所改善，没有生命危险。调查员说这是一个警告，无意杀人。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+据悉此前乌克兰总统泽连斯基曾呼吁推迟对阿布的制裁，因阿布反对战争，支持乌克兰，泽连斯基认为阿布可能在与普京的和平谈判上发挥一些作用。同时俄罗斯的一些商人也表示他们想为乌克兰提供帮助，从而减缓俄罗斯的军事攻击。
 
-疫苗加强针后遗症
+目前阿布和泽连斯基尚未披露关于中毒事件的更多讯息。
 
-疫苗打完两三个小时手臂酸痛，然后浑身晕呼呼想睡觉，第二天打针的位置比头天更酸痛，摸着还有硬块。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-200.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-161.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/5-102.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-108.png)
-跟帖评论选集：
+撰稿、发布：骄子
 
-余低调：打完第3针之后，过了一两个星期喉咙发炎，再过几个星期脖子淋巴结肿大，再过几个星期，现在全身多发淋巴结，喉咙发炎也还没好，然后我家里老母亲也是打完第3针没多久甲状腺结节手术了。花一堆钱去看病吃药。
+* * *
 
-wa柒：我打第一针就是嗜睡，也没太大反应，所以一到时间就打了第二针，没想到超级不舒服，全身酸痛，免疫系统变低，还得了寻麻疹。第三针我不准备打了……毕竟没人为我的身体负责……全家人都没事，就我出事……
+欢迎订阅我们的GNews账号：
 
-参考链接：[http://xhslink.com/v7tVtg](http://xhslink.com/v7tVtg)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

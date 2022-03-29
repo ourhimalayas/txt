@@ -2,36 +2,41 @@
 ---
 
 
-## 蓬佩奥称：应视中共为敌手要认清中共与日俱增的威胁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2250821/)
+## 疫情|新冠疫苗副作用 13岁花季少年突患白血病
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2250941/)
 
-**撰稿：日本东京方舟农场  子辰**
+整理：gardeniahu
+编辑：朝花夕拾
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-2.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-近期，前美国国务卿蓬佩奥（Mike Pompeo）表示，美国接下来的国家安全战略，应侧重于遏制威权主义以及正式承认中华民国台湾主权，并如何阻止中共的侵略问题。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-349.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-201.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-109.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-152.jpg)
+疫情|新冠疫苗副作用 13岁花季少年突患白血病
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-348.jpg)（图片来自大纪元）
+急！急！急！13岁儿子突患白血病，急需治疗费用，母亲【唐启云】含泪求助
 
-3月28日，蓬佩奥在接受华府智库哈德逊研究所（Hudson Institute）采访时说，“美国目前处于模棱两可的境地之中，真的非常危险。”因为“独裁主义者往往会利用这种模糊性来对付你。我们应该承认，中华民国台湾是一个独立的国家。而并非中国共产党（CCP）的一部分。”
+13岁弟弟确诊白血病后续
 
-此前，中共在台湾方面一直声称，台湾是一块分离的领土，尽管台湾自1949年以来一直独立自治，从未被中共统治过。
+弟弟已经开始化疗了，今天又做了一次穿刺，这几天弟弟食欲不算好，不过我有每天炖各种汤喝，我也有在看书，战胜病魔的前提是了解它，大家的评论我也都看了，水滴筹我也发起了，我们目前在新乡医学院第一附属医院治疗。希望病友家属们可以给我一些照顾病人的经验建议。也谢谢大家的关心。
 
-蓬佩奥在谈及拜登政府即将出台的国家安全战略时，提出美国在台湾问题上维持“战略模糊”原则。
+网友评论：
 
-蓬佩奥说，鉴于中共在党魁习近平的统治下，不断加大镇压力度，我们过去针对中共使用“竞争对手”（ competitor）这个词很可能太过软弱。他说“如果是我自己来写的话，我今天会用‘敌手’（adversary）这个词。”蓬佩奥认为，中共政权本身对权力有着深刻的理解，他们只尊重权力。
+玩转乾坤：打喵了吗，打了多久发病的
 
-蓬佩奥同时提出质疑，拜登政府继续与俄罗斯进行外交合作，努力恢复奥巴马时代的伊朗核协议，这种做法是否明智，因为俄罗斯正在乌克兰进行着侵略战争。
+乐儿：治疗方案是什么，要移植吗？
 
-蓬佩奥警告说，“这不是战略，那是无知。最重要的是，这对美国来说是幼稚和危险的。”这种继续在外交上接受专制领导人的做法，将造成一连串的安全挑战，并可能鼓励中共进一步尝试侵略或镇压。
+#急性髓系白血病 #白血病
 
-他说，“我看不出有什么能让习近平改变他的愿景，放弃成为中央之国（Middle Kingdom）和霸权国家。”蓬佩奥认为，“习只会因此受到鼓励，并加强运用硬实力和其他中共的力量。”
+参考链接：[https://www.xiaohongshu.com/discovery/item/62380e5d00000000210387aa?share\_from\_user\_hidden=true&xhsshare=CopyLink&appuid=593bc86450c4b43662c38691&apptime=1648513307](https://www.xiaohongshu.com/discovery/item/62380e5d00000000210387aa?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648513307)
 
-鉴于此，蓬佩奥认为，美国可采取的最佳行动方案，是正式承认中华民国台湾是一个独立国家，增加与该岛的培训和情报共享，并协助台湾建立军事能力，以确保在发生战争时，让中共必须付出巨大的代价。
+发布：tianzhihuan
 
-参考链接：
-[https://www.epochtimes.com/gb/22/3/29/n13680073.htm](https://www.epochtimes.com/gb/22/3/29/n13680073.htm)
-
-总编：老孙
-校对发布：爱放飞
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
