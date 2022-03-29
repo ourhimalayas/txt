@@ -2,29 +2,38 @@
 ---
 
 
-## 俄乌之战一个月后西方文明国家的反应
-` cindy` [轉載自GNews](https://gnews.org/zh-hans/2249599/)
+## Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2249619/)
 
-撰稿：澳喜cindy
+Translated by: MOS Fitness Team – Gloria
 
-俄罗斯入侵乌克兰已经一个多月了。俄军士兵死亡人数约15000人，将军5位。乌克兰老百姓死伤惨重，无数民房、医院、核电厂等设施都遭到俄军的炮弹袭击。成千上万的女人、孩子、老人被世界多个NGO救援组织转移到了邻国波兰，然后再安置他们到能接收他们长时间居住的地方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
 
-西方文明国家，在这场俄乌战争开始后，英国反应最及时。英国国防大臣本·华莱士说：英国将在波兰部署“天剑”防空系统，同时派遣100名英军保卫波兰领空。
-视频来自网络
-英国首相鲍里斯·约翰逊认为：对乌克兰的野蛮入侵源于普京惧怕乌克兰民主。这正验证了文贵先生前几天大直播时告诉我们的：普京攻打乌克兰的真实原因就是怕乌克兰这个邻国的民主之风吹到俄罗斯。
-视频来自网络
-英国首相说：由39个国家进行投票，决定将普京的行动提交给国际刑事法院，首席检察官将展开调查，以确保普京因犯下的罪行而受到惩罚。
-视频来自网络
-除了声援之外，英国首相还再次宣布增加1.75亿英镑对乌克兰的经济援助，总资助达4亿英镑。
-视频来自网络
-美国国务卿布林肯发表声明，宣布根据目前掌握的信息，美国政府评估认为俄罗斯军队正在乌克兰犯下战争罪行。
+The U.S. National Endowment for Democracy Visits Taiwan
 
-全球刑事司法巡回大使收集、分析和记录俄罗斯在乌克兰犯下的潜在战争罪行，看到了俄罗斯军队在乌克兰对平民和民用场所进行的广泛而无情攻击的可怕图片和描述，及联合国和其他可信的观察员已确认数千名平民死亡。经过审查得到的结论最终送交国际法庭来确定个人刑事责任。
+On March 28, Taiwan time, the U.S. National Endowment for Democracy (NED), led by President Damon Wilson, visited Taiwan for three days. During the visit, the delegate will meet with President Tsai Ing-wen (蔡英文), Premier Su Tseng-chang (蘇貞昌), and Legislative Speaker You Si-Kun (游錫堃), attending a banquet hosted by Foreign Minister Joseph Wu (吳釗燮). The Ministry of Foreign Affairs stated that it’s Wilson’s first time visiting Asia since he took office last July. It demonstrates the importance of Wilson’s attachment to Taiwan that he selected Taiwan as the first stop on his first trip to Asia. Wilson tweeted that Taiwan is becoming a center for defending the democratic way of life, and he is honored to visit one of the freest societies in the world.
 
-我们新中国联邦人在俄罗斯入侵乌克兰2天后就斥巨资立即组织了庞大的救援团队到乌克兰前线，在波兰与乌克兰接壤的地方，搭起了温暖、有照明、内有咖啡、各种零食的四个大帐篷。截止到3月26日，新中国联邦救援站接待了7534人，巴士救援2009人，巴士发车39次。使无辜的乌克兰民众得到了贴心的照顾与呵护，使他们度过了人生最艰难的黑暗时刻。
+Taiwan’s Ministry of Foreign Affairs responded in a press release, thanking the NED for its long-term attention to Taiwan’s democratic development. With the NED’s encouragement, Taiwan established the “Taiwan Democracy Foundation” in 2003, which worked closely with the NED to promote democracy and human rights in the Indo-Pacific region.
 
-*发稿：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
+According to the Ministry of Foreign Affairs, in cooperation with the groups like the Taiwan Democracy Foundation, NED President Wilson will announce at a press conference that the “World Movement for Democracy” will be held in Taipei for the first time from October 24 to 27 to affirm Taiwan’s democratic achievements.
+
+The U.S. “German Marshall Fund” Reports that the Chinese Communist Party (CCP) Maliciously Isolates Taiwan
+
+The report mentioned that the CCP distorted Resolution 2758 passed by the United Nations in 1971 into “the one-China principle and Taiwan is a province of the People’s Republic of China” and used this to isolate Taiwan and prevent Taiwan from participating in UN affairs. In addition, in response to the viewpoints of Taiwan’s Foreign Minister when connecting with foreign media, the report emphasized that Taiwan plays a crucial role in global technology supply. The report recommends that the United States develop a more effective strategy to counter China’s attempts to distort UN Resolution 2758.
+
+Source link: [https://gnews.org/zh-hans/2244682/](https://gnews.org/zh-hans/2244682/)
+
+Edited and posted by: Snow Lily
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)**For more information, please follow us at:
+[NFSCNews | Gettr](https://www.gettr.com/user/nfscnews)
+[Gnews | Gettr](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[New York MOS Himalaya | GETTR](https://www.gettr.com/user/himalaya_mos)
+[New York MOS Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Free to Join New York MOS Himalaya | Discord](https://discord.gg/ChqXAHd)**
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

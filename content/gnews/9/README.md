@@ -2,20 +2,22 @@
 ---
 
 
-## 有声｜美国国债5年30年期收益率自 2006 年以来首次倒挂
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249992/)
+## 有声｜英国下令审查公共部门俄罗斯能源合同
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250043/)
 
 By:**秘翻新闻**
 
 **2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-50.png)图片来源 路透社
-[据路透社3月28日报道，以 5 年期和 30 年期政府债券收益率之间的差距衡量的美国收益率曲线周一出现倒挂，这是自 2006 年初以来的新一轮市场抛售行为，短期债券收益率跃升至 2019 年以来的最高水平。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-53.png)图片来源 路透社
+[路透社 3月28日报道，英国周一指示公共部门将审查与俄罗斯公司签订的能源和其他合同，建议考虑更换供应商，并指出现有的能源协议可能使俄罗斯政府受益。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-[上周收益率曲线的部分 5 年期与10 年期，以及 3 年期与10 年期出现倒挂，目前全球最大债券市场的 5 年期和 30 年期之间的差距滑入负值区域，引发了美国央行的担忧，应对通胀的鹰派态度可能会损害增长。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+[与盟国一起，英国正寻求通过广泛制裁来削弱俄罗斯经济，以应阻止其入侵乌克兰。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-[欧洲、中东和非洲宏观策略负责人格拉夫表示：2年至10年期债券的利率倒挂，可能是因为美联储短期内有更快的加息速度导致。但如果5年期债券等中长期债券，与30年期的长期债券出现利率倒挂，将很可能暗示着经济增长放缓。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+[英国内阁大臣巴克莱在一份声明中说，公共资金不应该资助普京的战争机器，我们要求公共部门的医院、理事会和其他组织紧急考虑所有可以进一步切断与俄罗斯商业联系的方法。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
-[根据以往的经验，债券收益率倒挂，通常都是经济衰退的先兆。虽然这大概率在明年发生。](https://finance.yahoo.com/news/1-u-5-30-yield-081651655.html)
+[英国政府已宣布将在今年年底前逐步停止从俄罗斯进口石油，并正在制定一项新的能源战略，以结束对俄罗斯天然气的依赖，目前俄罗斯天然气在英国的供应中占比不到 4%。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
+
+[最新的采购建议指南建议：在终止现有能源供应合同之前，须征求能源专家或相关公共部门采购组织的建议，以确保替代供应来源可用且负担得起。](https://www.reuters.com/world/uk/uk-govt-says-public-sector-must-review-russian-ties-including-energy-contracts-2022-03-28/)
 
 秘翻新闻 自由信仰编译报道
 

@@ -2,29 +2,30 @@
 ---
 
 
-## 香港疫情致死人数激增 棺材紧缺
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250060/)
+## 俄罗斯富豪阿布在基辅和谈期间出现中毒症状
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2250104/)
 
-By:**秘翻新闻**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Roman_Abramovich_Chelsea.jpg)
+据外媒报道，俄罗斯受制裁的富豪阿布拉莫维奇和乌克兰谈判人员近日成为袭击目标，知情人士透露可能是俄罗斯强硬派试图破坏俄乌和平谈判。在乌克兰谈判会议后，阿布和至少两名乌克兰高级谈判代表出席了中毒症症，包括眼睛疼痛、发红流泪以及面部和手部皮肤脱落，目前情况有所改善，没有生命危险。调查员说这是一个警告，无意杀人。
 
-**2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-40.png)图片来源 AP Photo/Kin Cheung
-[据美联社香港3月29日报道，今年香港最致命的中共病毒爆发已造成约 6,000 人丧生，而这座城市的棺材现在也快用完了。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
+据悉此前乌克兰总统泽连斯基曾呼吁推迟对阿布的制裁，因阿布反对战争，支持乌克兰，泽连斯基认为阿布可能在与普京的和平谈判上发挥一些作用。同时俄罗斯的一些商人也表示他们想为乌克兰提供帮助，从而减缓俄罗斯的军事攻击。
 
-[香港政府表示上周已经有 1,200 具棺材运抵，后续还会有更多。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
+目前阿布和泽连斯基尚未披露关于中毒事件的更多讯息。
 
-[由于空间限制，火葬成为人口稠密地区常见的埋葬方式，棺材通常是木头或木头替代品。但为了解决因中共病毒死亡人数激增而导致的棺材短缺，一些公司正在提供如环保纸板棺材等替代品。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
-
-[Life Art Asia 制造由回收木纤维制成的纸板棺材，可以根据外部设计进行定制。在其位于香港南部地区香港仔的工厂中，每天可生产多达 50 具棺材。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
-
-[该公司首席执行官表示，使用纸板制成的棺材仍然存在一些阻力。因为人们觉得使用所谓的纸棺材对已故亲人不太尊重。](https://apnews.com/article/covid-business-health-lifestyle-asia-57ff5557dc356978806da1e9ce995a7d)
-
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
+撰稿、发布：骄子
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

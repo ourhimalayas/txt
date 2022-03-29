@@ -2,29 +2,49 @@
 ---
 
 
-## 有声｜为保对俄制裁有效 日本收紧加密货币监管
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249860/)
+## 隐藏的免疫功能或使未接种新冠疫苗的人免受感染
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2249906/)
 
-By:**秘翻新闻**
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-338.jpg)图片来自网络
+《Interesting Engineering》近日报道，哥德堡大学的一组研究人员刚刚在了解免疫系统如何对新冠产生抗药性方面又迈出了一步。
 
-**2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-67.png)图片来源 Coin telegraph
-[据Coin telegraph 3月28日报道，一位日本官员透露，日本计划修改其《外汇和对外贸易法》，将加密货币交易所纳入管理银行的法律范围内。以防止受制裁国家使用数字资产规避制裁。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+六个月来，该大学萨尔格伦斯卡学院的研究人员调查了 2020 年 4 月和 2020 年 5 月期间招募的来自五个初级保健卫生机构的 156 名员工。这些员工中没有一个人接种过新冠疫苗，他们中的大多数人不得不与在大流行高峰期间工作，每天都会接触感染者。
 
-[日本内阁官房长官松野博和在新闻发布会上表示，政府正计划提出一项法案，修改外汇法，将加密货币交易所包括在内。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+他们在几名未感染新冠的人员的呼吸道中发现了 IgA（免疫球蛋白 A），这可能意味着他们的免疫系统一直都有解毒剂。
 
-[该国新当选的首相岸田文雄也支持拟议的修订，并呼吁与西方盟友协调行动，以执行新的法律。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+这些抗体天然存在于气管和胃肠道的粘膜分泌物中，它们通过与病毒和其他入侵生物结合来保护身体。
 
-[根据修订后的外汇法，与银行一样，加密货币交易所将被要求验证和标记与受制裁的俄罗斯个人或团体相关的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+**免疫系统中的解毒剂**
 
-[该修正案将强制加密货币交易所阻止各种受制裁的俄罗斯官员、寡头、银行和其他机构的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+自 2020 年初新冠病毒大流行开始以来，新冠是一种由 SARS-CoV-2 病毒引起的传染病，已夺走了超过 600 万人的生命。事实上，一些研究人员表示，到 2021 年 12 月 31 日，因为新馆病毒死亡的真实人数应为1820 万，是官方死亡人数的三倍多。
 
-秘翻新闻 自由信仰编译报道
+这种疾病似乎对某些人的影响比其他人更严重，有些人出现非常轻微的症状，而另一些人则需要住院治疗并需要呼吸帮助。目前的研究旨在揭示似乎为未接种疫苗的人提供新冠保护的健康因素。
 
-发布 : 恩典
+“我们都有 IgA，”哥德堡大学萨尔格伦斯卡学院临床细菌学教授、研究小组成员、萨尔格伦斯卡大学医院高级医师克里斯汀·温纳罗斯说。“它存在于粘膜上，而新冠是一种通过这些膜传播的感染。我们认为，在疫苗问世之前，调查完全健康的人遇到冠状病毒时发生了什么很重要。”
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+“在我们研究的参与者中，没有人感染新冠需要住院治疗，”她继续说道，“许多其他研究都关注病情最严重的患者，他们已经住院并需要重症监护。”
+
+**健康因素**
+
+根据发表在《欧洲免疫学杂志》上的研究结果，三分之一的护理人员产生了新冠抗体，根据抗体模式和新冠发病率，他们分为两个不同的组。
+
+一组仅拥有 IgA 抗体的人从未死于新冠。另一组的参与者有 IgG 抗体和 T 细胞并得了病。
+
+没有检测出阳性或身体不适的参与者都有 IgA 抗体。其他似乎可以防止感染的特征是女性和呼吸道过敏。
+
+然而，数据不支持那些没有针对新冠抗体的人具有保护性 T 细胞的观点，这些 T 细胞是免疫系统的一部分，专注于特定的外来颗粒。
+
+我们自身的免疫系统非常强大，完全不需要所谓的新冠疫苗。新冠疫苗不仅不会给我们带来保护力反而会消弱我们自身的免疫力，医学界从一开始便把希望押宝于新冠疫苗而完全忽视人体自身免疫力的行为是彻头彻尾的错误。
+
+参考链接：
+
+[https://interestingengineering.com/immune-feature-covid19-infections](https://interestingengineering.com/immune-feature-covid19-infections)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,39 @@
 ---
 
 
-## 拜登就称普京“不能继续掌权”表态—— “不会道歉” 不会“退缩”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2249948/)
+## ATAGI考虑为澳洲青少年提供辉瑞新冠加强针
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2250017/)
 
-翻译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-200.jpg)
-美联社28日报道——总统乔·拜登周一表示，在他周末发表评论称俄罗斯总统普京“不能继续掌权”后，他将“不会道歉”，也不会“退缩”。
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-352.png)图片来自网络
+《SBS News》近日报道，联邦卫生部的一份声明说，澳洲免疫技术咨询小组（ATAGI）正在审查关于12至15岁儿童使用辉瑞疫苗作为加强针的数据。
 
-总统还称，他并不是呼吁莫斯科改变政权。
+辉瑞数据的审查将包括有关严重疾病、流行病学和年龄组国际推广的信息。
 
-“我表达了我对这个人的道德愤怒，”拜登说。 “我不是在阐明政策变化。”
+卫生部门在一份声明中说：“ATAGI 正在继续研究有关使用新冠疫苗和治疗的新证据，作为其对当前建议的持续审查的一部分。”
 
-总统周六在华沙发表讲话时称普京“不能继续掌权”，该言论旨在团结民主国家在全球范围内与独裁进行长期斗争。拜登在华沙的言论在全球引起了反响。
+ATAGI 上周批准向 65 岁以上的人、50 岁以上的澳大利亚土著人、老年或残疾护理人员以及免疫功能低下的人接种冬季剂量的新冠疫苗。
 
-拜登否认他的言论可能会加剧乌克兰战争的紧张局势，或者会助长俄罗斯宣传西方侵略。
+第四针或第二剂加强针将从 4 月 4 日起在人群中推出，人们将在第一次加强针注射四个月后有资格接种。
 
-“没有人相信……我说的是要打倒普京，”拜登说，并补充说，“我最不想做的就是与俄罗斯进行陆地战争或核战争。”
+目前，第三针新冠疫苗（或第一剂加强针）仅被批准用于 16 岁及以上的人群。
 
-他说他表达的是一种“愿望”，而不是美国外交政策的目标。
+ATAGI不建议在更广泛的人群中接种第二剂加强针。
 
-“像这样的人不应该统治国家。但他们就这么做了，”拜登说。 “他们这样做的事实并不意味着我不能表达我对此的愤怒。”
+新的ATAGI建议是在预测冬季新冠病例激增之前出台的，这与流感病例可能激增相重叠。
 
-美国一直在向乌克兰投放反坦克导弹等武器，并正在考虑提供反舰导弹，以使俄罗斯更难在黑海沿岸发动两栖进攻。
+最近几天，由于与奥密克戎亚变种有关的感染，新冠的病例数在全国范围内一直在增加。
 
-乌克兰总统泽连斯基仍然对军事援助的步伐感到愤怒，指责西方领导人懦弱，并重申其对坦克和战斗机的要求。
+配方一直都没有更新，为什么还要一再的打？孩子都打了两针还不够现在还要打第三针？这是屠杀！
 
-新闻链接：[https://apnews.com/article/russia-ukraine-putin-biden-europe-moscow-df6c9f17b04e26611ae5c58a16aa0e78](https://apnews.com/article/russia-ukraine-putin-biden-europe-moscow-df6c9f17b04e26611ae5c58a16aa0e78)
+参考链接：
 
+[https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10](https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
