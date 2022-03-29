@@ -2,30 +2,36 @@
 ---
 
 
-## 美中脱钩已经是现实，而欧洲还在讨论
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2251458/)
+## 欧洲检察署支持组队调查俄罗斯战争罪行
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251646/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+作者：纽约磐石农场 – 在远方
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/DWO-AP-Teaser-USA-EU-Chiina-bn-bn-Kopie.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-资料来源：welt.de
 
-为应对普京的侵略战争，俄罗斯在很大程度上与西方经济体系脱钩。这对支持莫斯科的超级大国中共国 意味着什么？柏林必须处理华盛顿早已回答的问题。
+3月28日，欧洲检察署表示，该机构支持上周宣布成立的一支调查队，以调查俄罗斯在入侵乌克兰后所犯下的战争罪行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-14.jpg)
+据悉，立陶宛、波兰和乌克兰三国在上周签署一项协议，准备成立一个团队，以调查俄罗斯所涉嫌的战争罪行和人道罪行。欧洲检察署发表声明说，参与这个团队的成员，可能会扩大到欧洲其他成员国、第三国或者其他第三方。声明表示，欧洲检察署将提供法律和技术协助，其主要目的是支持证据收集、伙伴国之间安全迅速交流，以及信息和证据的传送。
 
-英特尔在马格德堡建立芯片工厂。这条新闻最近上了头条。重点主要放在投资金额（170 亿欧元）和创造的就业数量（3,000）上。但这些数字背后隐藏着一个地缘政治转折点。因为美国半导体制造商决定在高工资国家德国建立芯片工厂，旨在减少对亚洲地区，尤其是中共国 的计算机芯片的依赖，这些地区越来越被认为是不安全的。
+另据报道，该调查队也将与国际刑事法院协调合作。国际刑事法院是世界常设战争罪行法庭，该法庭在俄罗斯入侵乌克兰之后，就已经在乌克兰自行展开调查。
 
-自冷战结束以来，乌克兰战争向世界展示了地缘政治的重要性，这是其他任何政治事件都没有的。虽然美国和欧洲能够很快就制裁俄罗斯金融公司达成一致，但华盛顿和柏林正在采取不同的方式。
+参考链接：
+[歐洲檢察署：支持組隊調查烏戰的戰爭罪行](https://www.rti.org.tw/news/view/id/2128515)
 
-简评： 欧洲永远走在美国的后面， 但是最近的俄罗斯入侵乌克兰， 让欧洲人顿然觉醒。 在欧洲有关和中共国脱钩的理念在美国已经是付诸行动中， 欧洲才开始讨论这个议题。 相信欧洲会紧随美国的脚步， 中共国被群殴的时候就要来到， 而悲哀的是， 这个结果受到损失和惩罚的永远是老百姓。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-🔗 [https://www.welt.de/politik/ausland/plus237778533/Ukraine-Krieg-Was-die-USA-mit-China-vorhaben-gilt-in-Europa-als-schmutziges-Wort.html](https://www.welt.de/politik/ausland/plus237778533/Ukraine-Krieg-Was-die-USA-mit-China-vorhaben-gilt-in-Europa-als-schmutziges-Wort.html)
+总编/编辑/审核：DM
+校对/发稿：为真不破20
 
-责任编辑、发布： Shuizhuyu
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,22 +2,25 @@
 ---
 
 
-## 克里姆林宫就拒绝支付卢布一事表示：&#8221;没有行善者&#8221;
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2251367/)
+## 拜登政府正在考虑给50岁以上的人打第四针加强针
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2251409/)
 
-**在欧盟拒绝以卢布支付天然气供应费用后，克里姆林宫发言人Dmitri Peskow宣布俄罗斯可能采取的新措施。**
+#### 翻译/整理 意大利达芬奇农场 小白鸽
 
-作者：dpa/est/原文发布于2022年3月29日11:26(CET)
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/03/pasted-image-5-2.jpg)图片:俄罗斯卢布(Elmar Gubisch/PantherMedia)
+美国很有可能批准给50岁以上的人施打第四剂新冠疫苗，拜登政府正在考虑给50岁以上的人施打辉瑞或者莫德纳疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-29-alle-12.21.54-1.png)图片来源：Adnkronos.com
+据知情人士透露， 美国食品药品监督管理局（FDA）可能会在下周初批准该年龄组的第四剂新冠疫苗， 这是《纽约时报》披露的。
 
-克里姆林宫发言人Peskow在接受美国连锁电视台PBS采访时说，如果“没有付款，就没有天然气”。莫斯科希望等待欧盟的回应，然后确定下一步的行动。Peskow强调说：“我们当然不把自己塑造成行善者，向西欧提供免费天然气。”他指责西方对俄罗斯发动了一场全面的经济战争。
+联邦卫生官员长期以来一直在争论如何采取措施，一些人极力赞成加强针，而一些人持怀疑态度。我们在《纽约时报》上读到一项计划：官员们说如果在秋季再次增加感染，所有年龄段的美国人，包括今年春天接受了加强针的人，都有望再次接种新冠疫苗。
 
-上周，俄罗斯总统普京下令，只有在以卢布付款的情况下，才能向“不友好的”国家输送天然气。这已经被一些国家元首和政府首脑拒绝，理由是违反了合同。
+简评：我们已经看到，新冠疫苗接种率越高， 加强针越多，奥米克戎感染人数越多。疫苗非但没有阻止病毒的传染，疫情反而愈演愈烈。郭先生告诉我们香港、韩国，大陆，包括美国加拿大的病毒复发，就是因为疫苗灾难。只要共产党在，病毒不会停！没有共产党，病毒就消失了。只有消灭了共产党，世界才会变得安全。
 
-原文链接：[https://brf.be/international/1589246/](https://brf.be/international/1589246/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/07/战鹰团新logo2021-07-01.jpg)
+参考链接：
+
+[https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50\_7sCeGSEfjmTInil7TXkz3O](https://www.adnkronos.com/vaccino-covid-quarta-dose-usa-verso-si-per-over-50_7sCeGSEfjmTInil7TXkz3O)
+
+编辑、上传： Xiao baige
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
