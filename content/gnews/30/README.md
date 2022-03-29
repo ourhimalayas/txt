@@ -2,78 +2,52 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“G-Club”（二十六）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2252534/)
+## 新西兰财经G乐部2022年3月29日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2253006/)
 
-整理： BENJ1 
-编辑：李易通
+采集整理：蚂蚁的城堡
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/dsfdv.jpg)
+正文
 
+**1、中共版存托凭证CDR来了，将登陆沪深主板**
+![img](https://media.gettr.com/group5/origin/2022/03/29/03/bdbada6e-97f9-24c8-42fb-0d72acd5f8e0/3afddfcfdee350822cab26270420116f_500x0.png)
+近日，沪深两个交易所正式发布了互联互通存托凭证配套业务规则，规则自发布之日起施行。这意味着，资本市场扩大开放又近了一步。 根据业务规则，CDR可以在上交所主板或者深交所主板上市交易。CDR涨跌幅设定为10%，当交易所全天休市达到或超过7日的，其后首个交易日的涨跌幅比例为20%。在交易制度上，CDR除了竞价交易，还将引入做市商机制。
 
+财经G评：中共前一段时间拿600亿资金买入中概股，目的是维中概股的稳，好骗外国人的钱！钱不够了怎么办呢？CDR来了，给墙内的韭菜把通道打开！
 
-图片来源：雅典娜设计组
+链接：[https://www.stcn.com/xw/sd/202203/t20220329\_4293087.html](https://www.stcn.com/xw/sd/202203/t20220329_4293087.html)
 
+**2、23只基金、理财产品等集体“踩雷”导致净值下跌**
+![img](https://media.gettr.com/group47/origin/2022/03/29/04/bf5b3266-3044-f0cc-4552-c6bed635ccd7/117502ebd9822ad52b94af4be55f3f85_500x0.png)
+2月底以来，龙光控股等优质民营房企出风险把不少基金、个别银行理财产品也拖入“泥潭”。企业预警通数据显示，以披露的截至2021年年末的数据统计，“踩雷”龙光债券的资管产品达23只，导致部分资管产品净值下跌，但由于持仓比例不同，各自受到的影响和冲击也呈现差异化。
 
-郭文贵先生2021年8月11日直播
+财经G评：借用郭先生直播的一句话“房子不行了，你到银行取你的钱的时候，你会突然发现你进入了冰窖！地狱！抓住你的舌头，绑住你的身体，让你死不了、活不了！ ”
 
-七哥一定给你保证，G-Club卡一定会比原来的十个卡（全球十大信用卡）都牛。G-Club一定会做成比任何一个大品牌都值钱的G-Fashion，大家走着看。
+链接： [http://www.21jingji.com/article/20220329/herald/5d8ac016e2c5d1f387abff1812960c37.html](http://www.21jingji.com/article/20220329/herald/5d8ac016e2c5d1f387abff1812960c37.html)
 
-我们讲了这么多G-Club、G-Fashion的伟大的未来和意义。最重大的事情就是要在这次病毒期间保护好所有的战友，做好所有战友的防毒、解毒、解病的保护工作，让新中国联邦成为战友们防病最好的靠山。祈祷兄弟姐妹们和家人的平安是最重要的，人死了什么主义都是假的、都是胡扯的。
+**3、阳光城爆雷违约50亿 却8天7涨停！**
+![img](https://media.gettr.com/group11/origin/2022/03/29/04/e7817cbd-ddad-0899-13a4-7183ff1aa15c/e3228a0f7c20b088a1ded0a558b43744_500x0.png)
+3月28日，阳光城股价再度涨停，8个交易日内录得7个涨停，最新市值达到175.97亿元。3月18日，阳光城发布公告称，因受宏观经济环境、行业环境、融资环境叠加影响，流动性出现阶段性紧张。阳光城未能按期支付境外债券利息，致使公司债务融资工具“17阳光城MTN001”“17阳光城MTN004”“20阳光城MTN001”“20阳光城MTN003”加速到期。截至公告日，阳光城未能获得对上述加速到期债券交叉保护条款的豁免，即未能足额偿付上述加速到期债券累计本息合计50.28亿元。
 
-你必须得活着，你不好好活着你就不配当新中国联邦人，你不配拥有G-Club卡，你不配拥有G-TV的股票，你不配穿G-Fashion，你必须好好活着。
+财经G评：阳光城这个走势更加说明了在中共国是没有投资市场，只有投机市场！老百姓都是去拿这钱去填坑的！
 
-郭文贵先生2021年8月14日直播
+链接： [https://finance.eastmoney.com/a/202203292325783110.html](https://finance.eastmoney.com/a/202203292325783110.html)
 
-我第一次告诉你们，G-Club股权未来一定有5%属于G-TV的投资者的，G-Club的5%股权它意味着什么?它不是价值，它不仅仅是市场价值和回报。
+**4、俄罗斯寡头阿布拉莫维奇与乌克兰和谈代表出现疑似中毒症状**
+![img](https://media.gettr.com/group41/origin/2022/03/29/03/52412527-6b9e-98d4-6a6f-b6e7f1ae0852/fa3b7a98215cefa4565daef65d342141_500x0.png)
+华尔街日报称：俄罗斯寡头阿布拉莫维奇和乌克兰和平谈判代表本月早些时候在基辅会谈后出现了疑似中毒的症状。这些消息人士说，在乌克兰首都举行的会议之后，穿梭于莫斯科、利沃夫和其他谈判地点的阿布拉莫维奇以及乌克兰团队的至少两名高级成员出现了诸如眼睛发红、持续和痛苦地流泪以及脸上和手上皮肤脱落的症状。他们将这次疑似袭击归咎于莫斯科的强硬派，称他们想破坏旨在结束战争的谈判。一位接近阿布拉莫维奇的消息人士说，目前还不清楚这样做的幕后主使。
 
-战友们，当你拥有G-TV股票的时候，我投资的G-TV，我拥有盖特的5%，我拥有G-Club的5%，我拥有喜联储的5%。兄弟姐妹们，你的股票意味着什么?你不是投资G-TV，你不仅仅是拥有G-TV的股权，你还拥有货币系统。
+链接：　https://cn.reuters.com/article/billionaire-abramovich-poison-report-032-idCNKCS2LQ03J?il=0
 
-郭文贵先生2021年8月16日直播
+**5、“中本聪岛”加密乌托邦收到了5万份NFT公民申请**
+![img](https://media.gettr.com/group11/origin/2022/03/29/04/2435a624-018c-0544-18a6-02445635127c/c51a815991b7f3c6b86dfb4b64398c70_500x0.png)
+除了萨尔瓦多，地图上出现了另一个新的以比特币为中心的目的地。中本聪岛位于遥远的南太平洋，是一个3200万平方英尺的私人岛屿保护区，是“加密社区的家”。中本聪岛是蜜月度假胜地、007反派的藏身之处和自然主义者的天堂，但它却有一个神秘的例外：它是100%加密的。
 
-我们的G-Club现在更重要的是什么?大家去想一想，我们俱乐部要保证所有未来的G-Club会员，在我们前期一个初级阶段，完成最重要的财富的积累。
+链接： [https://cointelegraphcn.com/news/satoshi-island-crypto-utopia-receives-50k-citizenship-nft-applications](https://cointelegraphcn.com/news/satoshi-island-crypto-utopia-receives-50k-citizenship-nft-applications)
 
-共产党为什么要把柳传志的泰山会，马云、史玉柱、董文标通通给干灭?共产党过去叫帮会制，也叫共产俱乐部，到国际上就叫共产俱乐部，回到国内就是黑帮。中共最怕的是中国有任何所谓的帮派俱乐部存在。
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
 
-共产党最崇拜的是中国古代从战国时期留下来的结社文化。日本人最崇拜结社文化，我有那个原始的书大家都知道。
-
-俱乐部就是结社文化的祖宗，他怎么能让你结社呢?结社是人家欧洲在同等宗教、同等经济、同等能力条件下结成了俱乐部，然后直奔目标去干啥事去了。欧洲这个国我统治了，那个国你统治了，这个总统你说了算，那个利益你说了算，就是分地盘。
-
-资料来源：郭先生GTV、盖特直播
-
-往期回顾：
-[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
-[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
-[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
-[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
-[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
-[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
-[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
-[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
-[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
-[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
-[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
-[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
-[文·贵天成——文贵先生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
-[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
-[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
-[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
-[文·贵天成——文贵先生谈“G-Club”（二十）](https://gnews.org/zh-hans/2240823/)
-[文•贵天成——文贵先生谈“G-Club”（二十一）](https://gnews.org/zh-hans/2244681/)
-[文•贵天成——文贵先生谈“G-Club”（二十二）](https://gnews.org/zh-hans/2251614/)
-[文•贵天成——文贵先生谈“G-Club”（二十三）](https://gnews.org/zh-hans/2251657/)
-[文•贵天成——文贵先生谈“G-Club”（二十四）](https://gnews.org/zh-hans/2251695/)
-[文•贵天成——文贵先生谈“G-Club”（二十五）](https://gnews.org/zh-hans/2252453/)
-
-发布： 星谕
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+上传排版：文勇
 
  
 
