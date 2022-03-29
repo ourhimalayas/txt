@@ -2,52 +2,28 @@
 ---
 
 
-## 澳大利亚执政者希望在大选前缓解通胀压力
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2252143/)
+## 瑞银董事长称即便俄乌达成停火协议跨国银行在俄罗斯也无前途
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2252177/)
 
-撰稿：Gradient Boost
+素材/选题：波士顿五月花 长岛开心
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-25-上午9.44.05.png)图片来源：互联网
+【彭博】– 即将卸任的瑞银集团董事长Axel Weber表示，他认为，就算俄罗斯与乌克兰达成了停火协议，许多跨国银行在俄罗斯也没有前途。瑞银已开始逐步结束俄罗斯业务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/model.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-354.jpg)
-网络图片
+Weber在接受彭博电视台Francine Lacqua采访时表示，瑞银在俄罗斯已暂停新业务，尽管制裁措施对居住在欧盟和瑞士的俄罗斯公民网开一面。他拒绝透露该行在为俄罗斯客户管理多少资金。
 
-澳大利亚政府周二提出了一系列经济措施，例如将汽油税减半，以帮助缓解高通胀的影响，并在 5 月到期的选举中赢得选票。
+「因为局势紧张，自从1月份以来，我们一直在从抵押品和客户两方面大幅削减俄罗斯風险敞口，」Weber说。「在我个人看来，对于许多跨国银行来说，在俄罗斯境内的业务没有前途，因为就算停火了，俄罗斯也已脱离国际社会，这将造成一个相当长期的后果。」
 
-根据财政部文件，在截至 6 月 30 日的本财年，由与乌克兰战争、大流行对供应链的破坏以及澳大利亚中东部的大范围洪灾，通货膨胀或将达到 4.5%的水平。
+与俄罗斯总统普丁有关联的俄罗斯富豪已经看到他们的资产在全球各地被冻结，还有质押了俄罗斯资产的银行富豪客户在这些证券价值暴跌后被迫增加抵押品。在俄业务庞大的大型欧洲银行，例如裕信和Raiffeisen Bank International AG，现在正在考虑退出该国的可能性。
 
-财政部长 Josh Frydenberg 于当地时间周二概述了他下一财年的经济蓝图，并为5 月 21 日之前举行的选举准备了一系列措施。这些措施包括一次性支付 250 澳元（合 187 美元）的所谓生活费用，为数百万中低收入者提供税收抵免，同时降低汽油税。
+乌克兰总统泽连斯基本月早些时候批评了瑞士，令该国作为俄罗斯富人资金存放地的角色受到更大关注。
 
-随着澳大利亚通货膨胀形势逐渐严峻——部分原因是油价上涨——从周三开始，汽油和柴油税将从每升 44 澳分（33 澳分）（每加仑 1.25 美元）减半，为期六个月。澳大利亚石油研究所表示，全国汽油平均价格上周下跌 5.8 澳分（4.3 美分）至每升 2.07 澳元（1.54 美元）（每加仑 5.86 美元）。政府为此付出的代价为30 亿澳元（22 亿美元）。
+在担任瑞银董事长近10年后，Weber将在几天之内卸任。前摩根士丹利高管Colm Kelleher将接手。
 
-Frydenberg 表示，预计下一财年通胀率将降至 3.5%，2023-24 年将降至 2.5%。澳大利亚央行的目标是将通胀率控制在 2% 至 3% 的范围内。但他承认，由于俄罗斯继续入侵乌克兰以及疫情对中共国经济的影响，许多因素事实上难以确定。
+原文链接：[UBS has limited Russia exposure, but sees risks of unexpected increases](https://www.reuters.com/business/finance/ubs-has-limited-russia-exposure-sees-risks-unexpected-increases-2022-03-07/)
 
-截至目前，澳大利亚的通货膨胀率仍然不到美国的一半，远低于加拿大、欧盟和英国。
+* * *
 
-总理斯科特莫里森最早将于下周宣布选举日期。他的保守派联盟正在寻求罕见的第四个三年任期，不过在大多数民意调查中，他的联盟落后于中左翼工党反对派。
-
-*编辑：Gradient Boost*
-
-*发稿：疯狂的韭菜*
-
-新闻参考链接：
-
-[AP News](https://apnews.com/article/business-elections-australia-general-elections-prices-3c2a2b99e4e920521f6b42474e906487)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
-
-
-
-更多资讯，更多关注
-
-[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2251364/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
-
-[郭文贵先生Gettr](https://gnews.org/zh-hans/2251364/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
-
-[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2251364/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
-
-[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2251364/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)0
-
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+*编辑&发布：长岛开心*
 
  
 

@@ -2,34 +2,46 @@
 ---
 
 
-## 俄罗斯试图让中共成为俄乌停战的担保人
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2252635/)
+## 有声|拜登关于乌克兰的演讲改变世界
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252683/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/BACYW3L7IRP5JCBBOS2IYBOV3E.jpg)
-3月29日周二，俄罗斯与乌克兰在土耳其举行和平谈判。双方旨在调停战争，实现最终和平协议，俄罗斯承诺对乌克兰基辅和北部地区地区停止军事行动，乌克兰承诺作为中立国，不派驻任何盟军。同时双方约定此项协议的担保人可以是以色列和北约成员国加拿大、波兰、土耳其等，俄罗斯、美国、英国、德国和意大利也可以提供担保。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+郭文贵先生在3月27日大直播中，深入讲解了美国拜登总统发表关于乌克兰演讲的重大意义。郭先生称，拜登关于乌克兰局势的演讲将会彻底改变世界政治、地域、经济和文化。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-13.jpeg)
+郭先生说，拜登总统的讲话是人类一切转变的开始，世界将迎来大变革。
 
-中共大外宣此前报道，俄罗斯外长拉夫罗夫表示欧盟国家完全没有能力作为解决某些冲突的担保人。而俄乌会谈确立的担保国家德国、意大利是欧盟国家。
+首先，国际规则被打破，联合国基本解体，中共国、印度、和俄罗斯将出局，未来日本将加入联合国。
 
-郭先生此前曾爆料，“圣彼得堡的阴谋”就是俄罗斯想让中共习近平来做停战担保人，而习近平可以借此彰显中共国大国风范。但这样做的后果就是牺牲十四亿中国老百姓。目前看来郭先生的爆料已经得到验证。
+第二，英国和欧洲达到前所未有的团结，形成大欧洲。德国对世界的军事影响增强，取代俄罗斯。坚强不屈的乌克兰传承了欧洲精神。以乌克兰为中心的东欧将成为欧洲科技、能源和经济的中心。欧洲受能源制约的时代将彻底结束。
 
-reference：
+第三，美国是最大的赢家，会诞生无数改变世界的新兴领域。太空资源和太阳能等新能源将得到广泛应用。
 
-[http://www.nbd.com.cn/articles/2022-03-28/2190178.html](http://www.nbd.com.cn/articles/2022-03-28/2190178.html)
+最后，拜登的乌克兰演讲的内容虽然针对俄罗斯普京，但实质将矛头指向中共习近平。中共国最终一定会被解体。印度倒退回到二战以前。日本会重新成为超级大国。美国会开始重视亚洲。
 
-[https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
+今年年底至明年，世界将在最短的时间内，完成人类千年政治版图，进入”无皇有主“的时代。
 
-* * *
 
-欢迎订阅我们的GNews账号：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+文字版原文：[拜登关于乌克兰的演讲改变世界](https://gnews.org/zh-hans/2243241/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
