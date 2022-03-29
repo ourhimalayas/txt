@@ -2,24 +2,24 @@
 ---
 
 
-## 马斯克的星链系统正在指导乌克兰进行无人机攻击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2252768/)
+## 21年8月，CDC雇员中70%的新冠病例是新冠疫苗接种者
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2253022/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3674.png)图片来源：德国之声
-据《国会山报》3月28日文章，根据《德国之声》（DW）的报道，鉴于伊隆·马斯克（Elon Musk）星链系统的强大覆盖能力，这些强大的设备正用来给予乌克兰极大帮助，指导无人机进行攻击。
+作者：波士顿五月花 Little c
 
-一位乌克兰军官告诉英国《泰晤士报》（The Times）说：“我们使用星链（Starlink）设备，将无人机小组与我们的炮兵小组连接起a来”。并说他的部队使用星链在飞行监视的无人机和向俄罗斯阵地开火的炮兵部队之间进行连接。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cdc.jpg)图片来自网络
 
-这位军官说：“如果我们在夜间使用具有热视力的无人机，则无人机必须通过星链系统与炮兵部队进行连接，并创建攻击目标识别”。
+依据《自由信息法》，ICAN组织的律师要求CDC提供关于其雇员中新冠阳性病例数量以及新冠疫苗接种数量。CDC官方最近给出回应，虽然处处掩饰，但还是承认在2021年8月，他们的雇员中约有70%的新冠病例是新冠疫苗接种者。
 
-《德国之声》说，星链系统也已经成为了乌克兰人访问互联网的主要手段，否则就成了与世隔绝。但星链系统的存在也导致了马斯克的公司与俄罗斯之间的网络战，（俄罗斯方面）入侵部队试图干扰星链系统接收器，而星链公司则通过发布软件更新而进行了修补。
+CDC雇员的新冠疫苗接种率一直是一个秘密。无论他们的接种率是低于或高于70%， 70%的新冠病例接种过新冠疫苗仍然是一个惊人的数字，应该足已成为CDC的警钟，疫苗不能阻止传染。
 
-*责编：白夜*
+参考链接：
 
-**新闻来源**
+[Seventy percent of COVID-19 cases among CDC employees in August 2021 were in vaccinated employees](https://www.icandecide.org/ican_press/70-of-covid-cases-among-cdc-employees-in-august-2021-were-in-vaccinated-employees/)
 
-[Equilibrium/Sustainability — Musk’s Starlink now aiding Ukrainian military strikes](https://thehill.com/policy/equilibrium-sustainability/600099-equilibrium-sustainability-musks-starlink-now-aiding?rl=1)
+* * *
+
+编辑/发布：Little c
 
  
 
