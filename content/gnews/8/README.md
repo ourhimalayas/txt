@@ -2,30 +2,36 @@
 ---
 
 
-## 中共广州政法委原书记谢晓丹接受审查和调查
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2253594/)
+## 七国集团拒绝普京用卢布支付俄天然气的要求
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2253635/)
 
-编辑：文宝
+翻译：噜噜咪
 
-**3月29日，据中共广东省纪委监委消息，广州市委原常委、政法委原书记谢晓丹涉嫌严重违纪违法，目前正接受广东省纪委监委纪律审查和监察调查。**
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0329%2F60418433j00r9iipt0018d000hs00bvp.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-谢晓丹简历
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
 
-谢晓丹，男，汉族，1963年12月出生，广东潮州人，在职研究生学历，1981年8月参加工作，1987年12月加入中国共产党。
+2022年3月24日，在德国柏林，德国经济部长兼副总理罗伯特·哈贝克在德国议会下院（即联邦议院）全体会议上就联邦预算进行辩论时发言。
 
-历任广州市国土资源和房屋管理局局长、广州市住房保障办公室主任，广州市政府秘书长，**广州市副市长、市公安局局长**，广州市委常委、政法委书记，广州市政协党组成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3687.png)图片来源：素材来源
 
-**3月29日，据中央纪委国家监委驻司法部纪检监察组消息：司法部信息中心主任林振文涉嫌严重违纪违法，目前正在接受中央纪委国家监委驻司法部纪检监察组纪律审查和云南省监委监察调查。**
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0329%2Fe7d086e1j00r9iis8001ad000i200d8p.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-**值得注意的是，去年林振文曾是全国政法队伍教育整顿中央第五督导组驻黑龙江小组组长。**
+柏林，3月28日（路透社） – 德国的罗伯特·哈贝克在周一与同行会谈后表示，七大工业国集团的能源部长们拒绝了弗拉基米尔·普京总统关于“不友好”国家用卢布支付俄罗斯天然气的要求。
 
-原文链接：[https://www.163.com/dy/article/H3LP8UF00551OS2Q.html](https://www.163.com/dy/article/H3LP8UF00551OS2Q.html)
+担任德国经济和气候保护部长的哈贝克在与七国集团能源部长举行的虚拟会议后告诉记者说：“所有七国集团的部长都同意，这是一种单方面的、明显违反现有合同的行为”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-51.png)DISCORD
+部长们“再次强调，缔结的合同是有效的，公司应该而且必须尊重这些合同……用卢布付款是不可接受的，我们呼吁有关公司不要遵守普京的要求，”他说。
 
+“显而易见的是普京试图分裂我们，但是——正如你们从这种伟大的团结和决心中可以看到的那样——我们不会被分裂。”
 
+约瑟夫·纳斯尔和保罗·卡雷尔报道
 
+素材链接：https://www.reuters.com/business/energy/g7-rejects-putins-demand-rouble-payment-russian-gas-germany-2022-03-28/
 
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 

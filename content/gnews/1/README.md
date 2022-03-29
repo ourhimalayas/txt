@@ -2,25 +2,18 @@
 ---
 
 
-## 西媒头条 — 第198期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2253691/)
+## 周二在伊斯坦布尔的俄乌会谈
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2253795/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220329.001.jpeg)
-
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
-
+编辑：Cici
+发稿：am夏天
+德国纽伦堡正义农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3700.png)
+周二在伊斯坦布尔莫斯科和基辅代表团在那里举行了和平谈判。今日会谈后莫斯科国防部称，俄罗斯希望大幅减少其在基辅和切尔尼戈夫附近的乌克兰的”军事活动”。这是根据与乌克兰谈判的进程决定的。
+国防部副部长亚历山大·福明（Alexander Fomin说，此举应有助于建立相互信任，并为进一步谈判创造条件。乌克兰正在拟订一项关于该国无核武器中立地位的条约。俄罗斯认为乌克兰将在这方面作出适当决定。关于伊斯坦布尔协定的详细资料应在代表团返回莫斯科后提供。
+与此同时，乌克兰总参谋部表示，在首都基辅和乌克兰北部城市切尔尼戈夫周围的地区，俄罗斯武装部队个别部队的撤离正在受到监测。
+据地方当局称，已有350多人在俄罗斯对切尔尼戈夫的袭击中丧生。但据乌克兰机构Unian称，这些数字只是初步的，市长Vladylsav Atroshenko周二表示。据估计，死亡人数也可能高达400人。此外，该市的医院约有400人受伤。
+![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
