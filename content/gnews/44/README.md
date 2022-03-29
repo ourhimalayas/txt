@@ -2,27 +2,36 @@
 ---
 
 
-## 灭共段子——当前疫情
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2248338/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2248515/)
 
-撰稿：东京樱花团/保和
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-28.png)
 
-城市有，封闭走；
+文章仅代表作者本人观点，与Gnews无关
 
-交通断，红灯走；
+视频参看：
+[2022.03.28早 《NFSC新闻》](https://gettr.com/streaming/p12b1habf28)
+[2022.03.28早《NFSC新闻访谈》](https://gettr.com/streaming/p12biew65bc)
 
-社区有，全院谁都别想走。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-45.png)
-以前一例封小区，现在一例全员疑；
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-古有株连九族，现有共匪放毒，明天黄码加身。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
 
-三天两次做核酸，看你老实又好欺，不灭中共老杂毛，疫情严重别想逃。
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-*配图：东京樱花团/俪影*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

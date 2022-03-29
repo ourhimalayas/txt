@@ -2,37 +2,39 @@
 ---
 
 
-## 防中国曲线避税,美正考虑对东南亚太阳能设备征收关税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2249864/)
+## ATAGI考虑为澳洲青少年提供辉瑞新冠加强针
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2250017/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-7.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-352.png)图片来自网络
+《SBS News》近日报道，联邦卫生部的一份声明说，澳洲免疫技术咨询小组（ATAGI）正在审查关于12至15岁儿童使用辉瑞疫苗作为加强针的数据。
 
-整理/编辑：文泓
+辉瑞数据的审查将包括有关严重疾病、流行病学和年龄组国际推广的信息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/996ELVP_KF3TZBZ7MU.png)图片来源：ET EngergyWorld & 雅典娜设计组
+卫生部门在一份声明中说：“ATAGI 正在继续研究有关使用新冠疫苗和治疗的新证据，作为其对当前建议的持续审查的一部分。”
 
+ATAGI 上周批准向 65 岁以上的人、50 岁以上的澳大利亚土著人、老年或残疾护理人员以及免疫功能低下的人接种冬季剂量的新冠疫苗。
 
-3月28日据路透社报道，美国贸易官员周一表示，将对来自四个东南亚国家的太阳能设备征收关税展开调查，这对依赖廉价进口产品来压低成本的项目开发商是一个打击。
+第四针或第二剂加强针将从 4 月 4 日起在人群中推出，人们将在第一次加强针注射四个月后有资格接种。
 
-这项决定对提出调查要求的加州太阳能制造商Auxin Solar来说是一个胜利。该公司的请求是美国太阳能生产商的最新努力，旨在遏制在市场占主导地位的廉价亚洲太阳能电池板进入美国。
+目前，第三针新冠疫苗（或第一剂加强针）仅被批准用于 16 岁及以上的人群。
 
-总部位于圣何塞的Auxin今年稍早要求商务部进行调查，理由是中国制造商将生产线转移到马来西亚、泰国、越南和柬埔寨，以避免支付美国对中国制造太阳能产品加征的关税。
+ATAGI不建议在更广泛的人群中接种第二剂加强针。
 
-美国商务部网站的一份备忘录显示，官员们称，Auxin提供的信息表明，**在马来西亚、泰国、越南和柬埔寨运营的太阳能企业是中国大型生产商的子公司，在那里生产的产品如果在中国制造，美国反补贴和反倾销税将适用。**
+新的ATAGI建议是在预测冬季新冠病例激增之前出台的，这与流感病例可能激增相重叠。
 
-备忘录中写道，Auxin以符合程序的方式提出了需要做出认定规避（关税）裁决的因素，商务部将在150天内发布初步裁决。
+最近几天，由于与奥密克戎亚变种有关的感染，新冠的病例数在全国范围内一直在增加。
 
-美国太阳能行业团体大力游说反对商务部接受请愿，称这将摧毁该行业，并增加消费者的用电成本。
+配方一直都没有更新，为什么还要一再的打？孩子都打了两针还不够现在还要打第三针？这是屠杀！
 
-参考链接：[美将考虑对东南亚四国太阳能设备征收关税 以防中国曲线避税](https://cn.reuters.com/article/us-southeast-asia-pv-tariffs-0329-idCNKCS2LQ068) 
-*发布：tianzhihuan*
+参考链接：
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10](https://www.sbs.com.au/news/article/australia-records-24-covid-19-deaths-as-pfizer-covid-19-booster-for-teenagers-under-consideration/fgw0mmc10)
 
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
