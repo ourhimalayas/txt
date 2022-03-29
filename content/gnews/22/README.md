@@ -2,24 +2,25 @@
 ---
 
 
-## 乌克兰停火谈判结束，俄罗斯审议乌克兰&#8221;中立化&#8221;条约提案
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2252763/)
+## 马斯克的星链系统正在指导乌克兰进行无人机攻击
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2252768/)
 
-翻译：Orpheus
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-3月29日，两国政府代表团就俄罗斯入侵乌克兰问题在土耳其伊斯坦布尔举行了第四轮面对面的停战会谈。 会议结束后，俄罗斯代表，总统助理梅丁斯基透露，他收到了乌克兰方面提出的关于乌克兰 “中立化 “条约的建议，并表示他将把它带回去审议。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/9-47-edited.jpg)新闻来源：每日新闻
-梅津斯基先生表示，会谈是建设性的。 另一方面，乌克兰代表团说，”会谈有足够的进展，可以进一步让两国举行峰会”。 在俄罗斯要求的乌克兰 “中立化”问题上似乎已经达成了妥协。
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3674.png)图片来源：德国之声
+据《国会山报》3月28日文章，根据《德国之声》（DW）的报道，鉴于伊隆·马斯克（Elon Musk）星链系统的强大覆盖能力，这些强大的设备正用来给予乌克兰极大帮助，指导无人机进行攻击。
 
-同时，联合国秘书长古特雷斯于28日呼吁 “为人道主义目的停火”，以提供物质与平民转移的援助。 他宣布，已指示联合国人道主义最高官员格里菲斯副秘书长与有关各方寻求协议。
+一位乌克兰军官告诉英国《泰晤士报》（The Times）说：“我们使用星链（Starlink）设备，将无人机小组与我们的炮兵小组连接起a来”。并说他的部队使用星链在飞行监视的无人机和向俄罗斯阵地开火的炮兵部队之间进行连接。”
 
-参考链接：[ウクライナ停戦協議終了　「中立化」条約提案か　ロシアは検討 | 毎日新聞 (mainichi.jp)](https://mainichi.jp/articles/20220329/k00/00m/030/315000c)
+这位军官说：“如果我们在夜间使用具有热视力的无人机，则无人机必须通过星链系统与炮兵部队进行连接，并创建攻击目标识别”。
 
-* * *
+《德国之声》说，星链系统也已经成为了乌克兰人访问互联网的主要手段，否则就成了与世隔绝。但星链系统的存在也导致了马斯克的公司与俄罗斯之间的网络战，（俄罗斯方面）入侵部队试图干扰星链系统接收器，而星链公司则通过发布软件更新而进行了修补。
 
-审核：BryanW
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+*责编：白夜*
+
+**新闻来源**
+
+[Equilibrium/Sustainability — Musk’s Starlink now aiding Ukrainian military strikes](https://thehill.com/policy/equilibrium-sustainability/600099-equilibrium-sustainability-musks-starlink-now-aiding?rl=1)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

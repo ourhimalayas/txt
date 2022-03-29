@@ -2,28 +2,34 @@
 ---
 
 
-## 俄乌谈判 双方代表出现中毒症状
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2252562/)
+## 俄罗斯试图让中共成为俄乌停战的担保人
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2252635/)
 
-**撰稿：日本东京方舟农场 Kevin wang**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/BACYW3L7IRP5JCBBOS2IYBOV3E.jpg)
+3月29日周二，俄罗斯与乌克兰在土耳其举行和平谈判。双方旨在调停战争，实现最终和平协议，俄罗斯承诺对乌克兰基辅和北部地区地区停止军事行动，乌克兰承诺作为中立国，不派驻任何盟军。同时双方约定此项协议的担保人可以是以色列和北约成员国加拿大、波兰、土耳其等，俄罗斯、美国、英国、德国和意大利也可以提供担保。
 
-3月29日，据德国之声援引《华尔街日报》28日的报道称，俄乌双方于本月3日举行会谈后，至少两名乌克兰谈判小组成员和俄罗斯富豪阿布拉莫维奇曾出现中毒症状。
+中共大外宣此前报道，俄罗斯外长拉夫罗夫表示欧盟国家完全没有能力作为解决某些冲突的担保人。而俄乌会谈确立的担保国家德国、意大利是欧盟国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-21.jpeg)俄罗斯富豪阿布拉莫维奇与普京（图片来自网络）
+郭先生此前曾爆料，“圣彼得堡的阴谋”就是俄罗斯想让中共习近平来做停战担保人，而习近平可以借此彰显中共国大国风范。但这样做的后果就是牺牲十四亿中国老百姓。目前看来郭先生的爆料已经得到验证。
 
-德国之声报道，新闻调查组织Bellingcat证实了该报道，发推文称中毒事件发生乌克兰境内的一次会谈后，乌方谈判代表在当晚返回基辅后首次感受到了包括 “眼睛和皮肤发炎，眼睛刺痛”等症状，但这些症状似乎都在一天之内消退，并未有人因此出现生命危险。
+reference：
 
-参与谈判人员随即联系了新闻调查组织Bellingcat，该新闻组织为他们联系了化学武器专家进行检查。该新闻组织称，专家得出结论称，这些症状极有可能是以一种不明化学武器进行的国际投毒事件所引发的后果。”不过专家们也表示，毒药剂量很小，并不足以威胁生命，很可能只是为了起到恐吓效果。
+[http://www.nbd.com.cn/articles/2022-03-28/2190178.html](http://www.nbd.com.cn/articles/2022-03-28/2190178.html)
 
-报道称，有关疑似投毒事件的报道发表后，乌克兰谈判代表及总统顾问波多利亚克对虚假信息发出警告。乌克兰当地媒体援引波多利亚克的话报道称：”各种各样的揣测和阴谋论现在正大行其道。”
+[https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
 
-参考链接：
-1. [https://reurl.cc/WknNby](https://reurl.cc/WknNby)
-2. [https://reurl.cc/RjNeRg](https://reurl.cc/RjNeRg)
+* * *
 
-总编：老孙
-发布：文曦
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

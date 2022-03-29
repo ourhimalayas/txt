@@ -2,34 +2,24 @@
 ---
 
 
-## 俄罗斯试图让中共成为俄乌停战的担保人
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2252635/)
+## 新中国联邦|喜健康 系列节目3月27日首播
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2252710/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/BACYW3L7IRP5JCBBOS2IYBOV3E.jpg)
-3月29日周二，俄罗斯与乌克兰在土耳其举行和平谈判。双方旨在调停战争，实现最终和平协议，俄罗斯承诺对乌克兰基辅和北部地区地区停止军事行动，乌克兰承诺作为中立国，不派驻任何盟军。同时双方约定此项协议的担保人可以是以色列和北约成员国加拿大、波兰、土耳其等，俄罗斯、美国、英国、德国和意大利也可以提供担保。
+作者：澳喜农场 Leo M
 
-中共大外宣此前报道，俄罗斯外长拉夫罗夫表示欧盟国家完全没有能力作为解决某些冲突的担保人。而俄乌会谈确立的担保国家德国、意大利是欧盟国家。
+据文贵先生盖特讯息，3月27日，新中国联邦“喜健康”系列节目首次上线播出，截至发稿已播出两期。参加首播的三位医生都是对新中国联邦和法治基金乌克兰人道救援前线进行医疗支援的联盟团队成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-154.jpg)
+首播中，医生们介绍了前线染疫战友的康复情况和采用的医疗方案。据悉，前线累计约有30位战友感染中共病毒，其中绝大部分已复阴，截至27日还有6位战友正在康复过程中。关于医疗方案，医生们依据爆料革命情报和美国“一线重症联盟”（FLCCC）验证过的治疗方案，并结合现场情况，采用了以伊维菌素、羟氯喹和锌为主药的方案，并曾对伊维菌素的单日用量选用了方案中的最高量即0.6毫克每公斤体重。此外，医疗团队还发现，染病的重要原因之一是战友们忽视了口罩的正确使用。现场有两位战友一直注意全程佩戴口罩，他们都没有感染，可以作为例证。医生们还指出，这一阶段的治疗过程体现出前线和后方的通力合作，包括波兰医生现场提供的具备稳定血压、抑制过敏等用途的处方药。
 
-郭先生此前曾爆料，“圣彼得堡的阴谋”就是俄罗斯想让中共习近平来做停战担保人，而习近平可以借此彰显中共国大国风范。但这样做的后果就是牺牲十四亿中国老百姓。目前看来郭先生的爆料已经得到验证。
+在最近的几期直播中，文贵先生反复叮嘱战友们，随着救援的持续开展，完善防病治病的医疗措施也要成为救援前线的工作重点之一。
 
-reference：
+参考链接：[全球首播 NFSC health 新中国联邦 喜健康 系列节目之《医学视角》第一期](https://gettr.com/post/p1277pdc010)
 
-[http://www.nbd.com.cn/articles/2022-03-28/2190178.html](http://www.nbd.com.cn/articles/2022-03-28/2190178.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-[https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/](https://www.reuters.com/world/europe/ukraine-sets-ceasefire-goal-new-russia-talks-breakthrough-looks-distant-2022-03-29/)
+总编/编辑/审核：Zion文恩
+校正/发稿：Fei797
 
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

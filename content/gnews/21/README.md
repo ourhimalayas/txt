@@ -2,25 +2,37 @@
 ---
 
 
-## 拜登波兰演讲感召东欧人民对抗独裁暴政
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2252767/)
+## 有声|新中国联邦两周年纪念活动正式启动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252830/)
 
-作者：日本东京方舟农场 Miyali7768(文玉）
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月27日，郭文贵先生在大直播中正式宣布，新中国联邦两周年纪念活动正式启动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-15.jpeg)
+新中国联邦两周年纪念活动将由喜马拉雅联盟委员会全面负责。总导演是草根小哥，长岛哥作为美国协调人，与老班长共同配合，是副总导演。所有农场主，作为喜联盟委员，必须全面参与组织工作。
 
-据外媒报道，美国总统拜登26日在波兰首都华沙的皇家城堡发表演说，形容俄罗斯发动入侵乌克兰的战争是一场“战略失败”, 同时明确警告俄方：切勿入侵北约缔约国的一吋领土， 重申集体捍卫北约盟国的“神圣义务“。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-112.jpg)
-此外，在演说中，拜登表示，俄罗斯人民“不是我们的敌人”，西方国家针对俄罗斯的各项严厉经济制裁的措施，皆因普京的一意孤行。
+郭先生最后说道，从现在直到今年六月四号，惊喜和好消息将逐一到来。
 
-拜登在演讲中把乌克兰对抗俄罗斯入侵，与对抗苏联的“自由战争“相提并论，警告全世界必须准备好”长期抗战“，并向现场听众和乌克兰人保证，”我们与你们站在一起“。
 
-郭文贵先生在27日的大直播中，点评此演讲颇具1985年里根总统的《勃兰登堡门演讲》的号召力。1987年6月，时任美国总统里根造访原西德首府柏林，在原东西柏林分界线——勃兰登堡门发表了划时代的主旨演讲，其中的经典语句——“戈尔巴乔夫先生，请来到这扇门前，推倒门前这堵墙！”鼓舞了无数身处共产主义意识形态迫害下的东欧人民，四年后的1989年，东欧共产主义政权相继倒台，柏林墙在东西的人民的奋力争取下最终倒塌。
 
-参考链接：[拜登怒斥蒲亭是屠夫 不能讓他繼續掌權\[影\]](https://www.cna.com.tw/news/aopl/202203270009.aspx)
+文字版原文：[新中国联邦两周年纪念活动正式启动](https://gnews.org/zh-hans/2243218/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-总编/编辑/审核：Zion文恩
-校正/发稿：Fei797
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
