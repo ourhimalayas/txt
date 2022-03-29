@@ -2,40 +2,51 @@
 ---
 
 
-## 世界的3个重大转变，人类文明版图的大变革
-` 焦點20分` [轉載自GNews](https://gnews.org/zh-hans/2252179/)
+## 有声|新移民大放异彩的国度：美国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252395/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
 
 
-从拜登总统的讲话，可以看到世界的3个重大转变：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/24downesWEB-master1050-1.jpg)
 
-1. 联合国基本解体，中共国、印度、俄罗斯出局，未来日本加入常任理事国；
 
-2. 欧洲，包括英国，前所未有的团结，形成大欧洲，中心移至东欧；
 
-3. 美国是最大的赢家。会有无数像马斯克这样的行业精英，大放异彩；中共国将会解体。
 
-疫苗和病毒加速了人类千年难遇的政治、经济、宗教版图的变革。新中国联邦人有3样无价的财富：无苗，有币，以灭共为使命的新中国人。
+美国是个移民国家，是世界上民族和文化最多元的国家之一，每年有大量来自世界各地的移民来追求他们的美国梦，故美国有“民族大熔炉”之称。
 
-视频来源: 20220327—郭先生大直播
-视频制作: 文星光
-文案:文星光，梦田
+美国《独立宣言》宣告：“所有人，生而平等，并享有生命、自由和追求幸福的权利”。美国是一个民主、自由和机会平等的国家，任何人都有可能靠自己的努力迈向人生巅峰，而不必靠攀附权贵。
 
+美国历史上有几例新移民获得巨大成功的典型实例：
+
+1）埃隆·马斯克，1971年6月28日出生于南非，后移民美国。马斯克曾就读宾夕法尼亚大学和斯坦福大学，他创办了网络软件公司，X.com公司（后与其它公司合并为PayPal）。2002年马斯克创办SpaceX，该公司主要负责太空运输与航天制造。之后，马斯克成为特斯拉汽车公司的合伙人。2006年-2016年，他创立了太阳能、人工智能、神经科技等领域的公司。在2021年成为《时代》杂志年度风云人物，同时《福布斯》宣布马斯克已成为史上最富有的人，2022年2月马斯克入选美国国家工程院院士。乌克兰战争期间，马斯克为乌克兰方提供星链通讯服务。马斯克评价自己的成功：“要不是来美国，我肯定做不到”
+
+2）杨致远 1968年11月6日出生于中华民国台北市，10岁时与父母移民美国加州。杨致远毕业于斯坦福大学，是著名搜索引擎yahoo雅虎创始人，根据2005年《福布斯》杂志的统计，他的个人财富居世界第228位。
+
+3）阿诺·施瓦辛格 1947年7月30日出生于奥地利。1968年阿诺·施瓦辛格移居美国，在威斯康辛州立大学毕业，早期从事健身事业，后成为美国著名电影演员，他最著名的电影是1984年的《终结者》。2003年成为美国加州州长。 郭文贵先生评价说，今天美国取得经济科技世界第一的成就，80%都是新移民创造的。全世界优秀人才都涌向美国，主要原因是美国优越的政治制度，给普通百姓公平竞争、创造财富的机会。
+
+
+
+文字版原文：[新移民大放异彩的国度：美国](https://gnews.org/zh-hans/2242974/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-[焦点20分GETTR](https://gettr.com/user/20minfocus)
-[焦点20分**TWITTER**](https://twitter.com/20minfocus)**
-**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)**
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-**[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)**
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CCP-1.jpeg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,44 +2,26 @@
 ---
 
 
-## 【G时新闻】俄乌停战磋商预计于28日在土耳其举行
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2252147/)
+## 乌军再传捷报！俄军摩托步兵旅指挥官被击毙 损失逾1500人
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2252322/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-就俄罗斯入侵乌克兰问题，两国代表团预计将于28日在土耳其伊斯坦布尔面谈进行停战谈判。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+在乌克兰总统泽伦斯基3月29日宣布俄军撤出基辅西北部重要门户伊尔平（Irpin）后，乌国军方稍早也表示，俄军已从基辅北部城市切尔尼戈夫（Chernihiv）撤出部分部队。此外，俄军一支摩托步兵旅的上校指挥官也遭击毙。
 
-据土耳其政府称，普京总统和埃尔多安总统于27日进行了电话会谈，并同意俄乌双方代表团在伊斯坦布尔举行停战磋商。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phplSt4sC.jpg)图片来源：欧新社
 
-乌克兰谈判代表表示，将于28日至30日进行面谈，而一位俄罗斯代表团成员表示，（谈判）时间为29日至30日。
+乌军参谋部也指出，俄军今天持续对乌东城市哈尔科夫（Kharkiv）及巴尔文科沃（Barvinkove）发动砲击和空袭，不过俄军「第200独立摩托步兵旅」在哈尔科夫附近的交战中失去2个营级战术群，损失超过1500人，该旅指挥官Denis KurilIt上校也遭击毙。
 
-停战谈判的主要焦点是乌克兰的“中立化”和“非军事化”。
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876048](https://news.ltn.com.tw/news/world/breakingnews/3876048)
 
-27日，泽连斯基总统在接受俄媒体采访时说，认为“中立化”必须由第三方担保和公民投票。
+撰稿/发布：一叶知秋
 
-他还表示，“拒绝”俄罗斯的“非军事化”要求。
-
-俄罗斯监管机构发出警告，俄罗斯媒体不得报道他们的此次采访。据路透社报道，具体原因并没有透露。
-
-与此同时，（美国）政府官员被追问到美国总统拜登批评俄罗斯总统普京“不能再掌权”的言论。
-
-27日，国务卿布林肯强调，没有要求俄罗斯更换体制的战略。
-
-他说：“美国对俄罗斯或任何国家没有旨在更替体制的目标战略。这取决于（当事国的人民，即）俄罗斯的人民。”
-
-编辑/上传：一叶
-盖特链接：[https://gettr.com/post/p12dqfkc8ec](https://gettr.com/post/p12dqfkc8ec)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
-- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

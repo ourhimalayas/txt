@@ -2,29 +2,35 @@
 ---
 
 
-## 中国银行日赚5.9亿，相当于5台印钞机24小时印出的钱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2252149/)
+## 有声|俄乌战争是对全世界政客关于世界认知的一场检验
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2252332/)
 
-撰稿：东京樱花团︱盐和光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中国银行日赚5.9亿，相当于5台印钞机24小时印出的钱.png)*图片来源*
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月25日，在文贵大直播中，郭先生详细分析了俄罗斯军事力量的真正水平，并认为，从最初人们对俄罗斯的预期以及俄罗斯的实际表现来看，这场战争是全世界政客对军事、科技、世界认知的一次大暴露。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-88.jpg)
+郭先生认为，以出口武器著称、号称世界第二大军事强国的俄罗斯，在俄乌战争中的表现令人大跌眼镜，他们的装备、补给、通信以及战术都基本上停留在二战时期的水平，但在冠冕堂皇的虚假宣传方面，却能一本正经、堂而皇之地试图欺骗全世界，和中共、北朝鲜如出一辙。在西方文明国家强大的现代军事科技面前，他们终究难逃失败的命运。
 
-3月29日每日经济报报道，中国银行公布2021年业绩报告。财报显示，2021年全年，公司实现营业收入6057.17亿元，同比增加6.71%；实现股东应享税后利润2165.59亿元，相当于日赚5.9亿元，比上年增长12.28%。
 
-2021年末，中国银行集团资产总计267,224.08亿元，比上年末增加23,197.49亿元，增长9.51%。集团负债合计243,718.55亿元，比上年末增加21,320.33亿元，增长9.59%。2021年，集团资产减值损失1,042.20亿元，同比减少147.96亿元，下降12.43%。
 
-一台印钞机开足马力，每秒印12张钞票面值为100元共1200元，每分钟能印出72000元，每小时印出4,320,000元，一天24小时则能印刷出1.0368亿元，而中国银行日赚5.9亿元，相当于5台印钞机每天24小时不停正常运转才可以勉强达到预期目标，中共国银行以收割百姓盗卖国家资源为盈利模式，以日赚5.9亿元纯粹的印钞工厂模式收割国人。
+文字版原文：[俄乌战争是对全世界政客关于世界认知的一场检验](https://gnews.org/zh-hans/2241534/)
 
-信息来源：[**中国银行发布重要报告，2021年平均每天赚5.9亿元**](https://mi.mbd.baidu.com/r/DC17Q7s72o?f=cp&amp;rs=2326669742&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=99d0d1db320c128f&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

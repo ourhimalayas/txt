@@ -2,28 +2,27 @@
 ---
 
 
-## 俄乌战争｜拜登拒绝撤回言论 再次澄清并非呼吁政权更迭
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2250273/)
+## 有声｜录音曝上海瞒疫情：检测阳性不公布 私下通知本人
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250784/)
 
-**图/文｜CP**
-**发布时间｜29/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/拜登拒絕撤回言論-再次澄清並非呼籲政權更迭.jpg)
+**By:秘翻新闻**
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+**2022-03-29**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/新聞封面7.png)图片来源:新唐人
+**[新唐人](https://www.ntdtv.com/gb/2022/03/28/a103385880.html)**3月29日报道，上海市本轮疫情大爆发，当局已通报上万例感染，但依然涉及隐瞒疫情。网传电话录音显示，有上海市民公开的核酸检测结果为阴性，但官方电话通知是阳性。
 
+网上传出的这段电话录音中，一名疑似政府工作人员通知一名女性市民，称她已经上了上海疾控中心的“阳性人员名单”，已被确认为阳性，但不会给她公开发送阳性通知，当局要求她在家“静心修养”。
 
-美国总统拜登（Joe Biden）28日表示，他不会撤回自己早前在华沙演说时，针对俄罗斯总统普京（Vladimir Putin）不应继续掌权的公开言论，亦不会就此作出道歉。
+该女性市民一再询问自己看到的检测报告为什么是阴性的，对方回答目前全上海市都是这种情况，阳性报告不再公开发到个人手机上，而是以所谓“点对点”的方式私下通知个人。
 
-他强调自己只是出于道德上对普京侵略乌克兰的行为感到愤怒，就像坏人不应该继续做坏事一样，并非呼吁俄罗斯政权更迭，因此不会就此作出退让。
+自由亚洲电台22日引述知情人士的消息说，上海当地官员害怕丢官，已不再上报感染者人数，因此感染者可能越来越多。
 
-拜登26日在华沙演讲时，形容现时世界是一场民主与独裁、自由与镇压的斗争，并在发言的最后，脱稿高呼“看在上帝的份上，这个人（普京）不能再继续掌权了。”俄罗斯当局随即对该言论表示抗议和不满，白宫当时在澄清时指出，拜登并非要改变俄罗斯政权，而是不允许普京对邻国行使权力。
+（秘翻新闻 二丫编辑报道）
 
-**來源｜[卫报](https://www.theguardian.com/us-news/live/2022/mar/28/biden-us-budget-billionaire-tax-proposal-capitol-attack-ginni-thomas-ukraine-us-politics-latest?filterKeyEvents=false&amp;page=with:block-624208cd8f08118734a743cf#block-624208cd8f08118734a743cf)**
+发布:星星
 
 * * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

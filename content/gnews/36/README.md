@@ -2,26 +2,36 @@
 ---
 
 
-## 秘翻在线：中共国核酸检测人员面前的群魔乱舞
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2251105/)
+## 埃隆·马斯克及以色列总理宣布感染中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2251650/)
 
-**撰稿：葛大饼**
-
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/22-21.jpg)图片来源： 凤凰
-根据2022年3月29日多家媒体综合报道， 在近期中共国疫情爆发各地组织全员检测的情况下，网络传出多段小孩或学生在防疫人员面前跳舞致谢的视频，引发争论。
-
-据报道，有家长“体谅”防疫工作者辛苦，甚至派出家中幼童跳舞感谢他们的付出，然而由于加入跳舞队伍的人数越来越多， 让核酸检测过程更长，也让防疫人员不胜其烦。一位一线抗疫工作人员表示：做完核酸、麻溜走人，就是对他们最大的支持。
-
-不少网民则批评此举毫无意义，完全是形式主义且加大了聚集感染的风险。在笔者看来这种行为更是作秀博眼球，家长利用孩子迎合领导欢心，甘心做中共洗脑宣传机器而已 。
-
-想起中共新冠病毒刚爆发初期，很多主流媒体播放医护人员集体跳舞的场面，形式主义的洗脑真是让人感到假丑恶之极。思想上的毒瘤让人变得如同家畜一般，中国人快醒醒吧！
-
-**[新闻来源](https://www.zaobao.com.sg/realtime/china/story20220329-1257139)**
+作者：澳喜农场 -追着曙光跑，纽约香草山教育部 – Naughty(文行)
 
 
 
-#  
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
+
+另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
+参考链接：
+1. [@elonmusk： Covid-19 is the virus of Theseus.](https://twitter.com/elonmusk/status/1508356357967122434?s=21&amp;t=gjCuU8HllzktRUgs7-N5eQ)
+2. [マスク氏、コロナ検査で再び陽性　症状ほとんどなし](https://news.yahoo.co.jp/articles/97cbf50cd3a5f2f64352bb0a512b411414f54637)
+3. [Israeli PM tests positive for COVID, is working from home](https://abcnews.go.com/International/wireStory/israeli-pm-tests-positive-covid-working-home-83714645)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编/编辑/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
