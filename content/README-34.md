@@ -16,6 +16,8 @@
 ---
 ## 頁面 34/41 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) ... [41](/content/README-41.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)
 
+[文字版郭文贵5月10日郭媒体直播:感谢大家的生日祝福!跟大家聊聊天](/content/2018/05/20180512-8900938020145834574.md)
+
 [文字版：2018/05/05——戊戌年 郭文贵先生报料直播](/content/2018/05/20180507-6937287796340481468.md)
 
 [为救陈氏兄弟请大家积极写信给加拿大政府，下面是样本，感谢写这份样本信的战友！](/content/2018/05/20180506-3935055223509815225.md)
@@ -63,8 +65,6 @@
 [文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/content/2018/04/20180418-7188809671168778035.md)
 
 [文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/2018/04/20180418-8927936442107582299.md)
-
-[文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/content/2018/04/20180418-5122406140766697803.md)
 
 
 ## 頁面 34/41 [**<**](/content/README-33.md) [1](/content/README.md) ... [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) **34** [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) ... [41](/content/README-41.md) [**>**](/content/README-35.md) [查看全部](/content/README-all.md)

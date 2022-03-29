@@ -16,6 +16,8 @@
 ---
 ## 頁面 18/41 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [41](/content/README-41.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年2月12日文贵谈一切都听党的走向火葬场](/content/2020/02/20200214-4470688033484197678.md)
+
 [文字版： 2020年2月10日请战友们保存让你上班的证据，大家行动起来！](/content/2020/02/20200212-3562611532085874008.md)
 
 [文字版： 2020年2月8日文贵第二次直播谈美国专家确定武汉病毒来自中共实验室制造](/content/2020/02/20200210-4272958490110900794.md)
@@ -63,8 +65,6 @@
 [文字版：2020年1月18日文贵谈刘鹤招待会取消预示着什么，爆料革命击中了中共的所有要害](/content/2020/01/20200120-5512396279941051665.md)
 
 [文字版：2020年1月17日文贵谈中美贸易战内幕：中美贸易协议为何一定是滑稽的结局](/content/2020/01/20200119-3958906328707892329.md)
-
-[文字版：2020年1月15日郭先生第二次直播:谈中共在白宫签署2020庚子协议，不让中国人知道的秘密](/content/2020/01/20200117-3671117697820424397.md)
 
 
 ## 頁面 18/41 [**<**](/content/README-17.md) [1](/content/README.md) ... [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) **18** [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) ... [41](/content/README-41.md) [**>**](/content/README-19.md) [查看全部](/content/README-all.md)
