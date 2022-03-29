@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 5:18 PM (UTC)`
+
+
+![img](https://media.gettr.com/group46/origin/2022/03/29/16/0bafda86-2ada-d9dd-ca5b-36e64fc29168/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@baoliaobaike 3/29/2022 4:51 PM (UTC)`
+
+🆙【Pandora's Box】❤️‍🔥<br/>【潘多拉盒子】<br/><br/>Pandora's Box refers to the CCP's evil attempt to destroy and control the institutions of Western civilization and build a " community with a shared future for mankind " in the eyes of the CCP through a series of evil tactics. The BGY and 3F plans, Document No. 91 and No. 94, the Double Dragon Plan, the Architectural Art Projects and the 13579 plan are all contained in Pandora's Box.  <br/>潘多拉盒子，指的是中共通过一系列邪恶手段，妄图毁灭、控制西方文明体制，构建中共眼中“人类命运共同体”的邪恶计划。蓝金黄、3F计划，91号、94号文件、双龙计划、建筑艺术项目、13579计划等均包含在潘多拉盒子之内。 <br/> #BGY  #3F #ccp #PandorasBox #3F计划 #91号 #94号文件 #双龙计划 #建筑艺术项目 #13579计划
+![img](https://media.gettr.com/group14/origin/2022/03/29/16/63d1b15c-7ca5-0cc0-7491-ec69af6a712b/out.jpg)
+
+---
+
 `@miles 3/29/2022 4:36 PM (UTC)`
 
 Ms. Simona Decina, a journalist of the Italian TV station RAI 1, is interviewing Mrs. Nicole who is coming from the New Federal State of China. She is American also. Mrs. Nicole says that the humanitarian aid operation for the Ukrainian people, financed by the Rule of Law Foundation, involved many  Chinese people. <br/>意大利电视台RAI 1 的记者Simona Decina 女士正在采访来自美国的新中国联邦人Nicole。Nicole女士说此次法治基金对乌克兰人民的人道救援行动的捐助，有很多的中国人参与。<br/>#ukrainerescue #nfscukrainerescue #ukrainehotline
@@ -140,20 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 03/28/2022 全球首播 NFSC finance 新中国联邦 | 喜财经 系列节目之 《枫叶财经》第一期
 ![img](https://media.gettr.com/group41/origin/2022/03/29/02/ab05c0ba-ffeb-290c-a4de-ed435c88caf2/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/29/2022 1:11 AM (UTC)`
-
-2022.03.28 晚《新中国联邦新闻访谈》俄乌战争最新局势分析； 新中国联邦乌克兰救援不会在停战前停止； 全球粮食危机即将到来； 上海实施封锁，市民抢购囤粮； 显微镜下的辉瑞疫苗：是救人还是杀人
-![img](https://media.gettr.com/group33/origin/2022/03/29/01/808684b3-1109-5442-fbd5-d0a88d5bd753/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/29/2022 12:30 AM (UTC)`
-
-2022.03.28 晚 《新中国联邦新闻》灭共会让病毒和邪恶轴心国随之消亡； 中华河山将重新焕发生机
-![img](https://media.gettr.com/group11/origin/2022/03/29/00/5cd495c7-3fc6-894f-f860-02c6a73a678a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
