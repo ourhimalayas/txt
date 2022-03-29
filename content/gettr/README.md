@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 1:11 AM (UTC)`
+
+2022.03.28 晚《新中国联邦新闻访谈》俄乌战争最新局势分析； 新中国联邦乌克兰救援不会在停战前停止； 全球粮食危机即将到来； 上海实施封锁，市民抢购囤粮； 显微镜下的辉瑞疫苗：是救人还是杀人
+![img](https://media.gettr.com/group33/origin/2022/03/29/01/808684b3-1109-5442-fbd5-d0a88d5bd753/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/29/2022 12:30 AM (UTC)`
 
 2022.03.28 晚 《新中国联邦新闻》灭共会让病毒和邪恶轴心国随之消亡； 中华河山将重新焕发生机
@@ -152,13 +159,6 @@ War brings infinite disaster and death, we don't want it, we pray for peace. The
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
 ![img](https://media.gettr.com/group45/origin/2022/03/28/07/6211ac39-8eb4-8fc7-1b63-3e94c50da3ae/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/28/2022 9:32 AM (UTC)`
-
-3/27/2022 Miles Guo: The biggest crisis in China is food shortages. The CCP’s extremely ruthless counter-epidemic policies will leave countless people without a burial place. The world will be dragged into the darkest times, which will last for two to three years as the result of the CCP virus outbreaks and the COVID vaccine disasters. After taking down the CCP, not only will this pandemic be over, the COVID vaccine disasters will also pass. Putin, the Iranian government, Kim Jong-un, and other evil regimes that are in bed with the CCP will all cease to exist with the collapse of the CCP.<br/><br/>3/27/2022 文贵直播：国内最大的危机就是粮食短缺；中共极端无情的抗疫政策会让无数人死无葬身之地；全世界会因为病毒再度爆发和疫苗灾难陷入两到三年的至暗时刻；灭共后不仅病毒会消失，疫苗灾难会过去，普京、伊朗政府、金正恩等与中共为伍的邪恶轴心政权都会随之消亡<br/>
-![img](https://media.gettr.com/group7/getter/2022/03/28/09/481792dd-94b2-0409-1d52-e27a8f9c0371/out.jpg)
 
 ---
 
