@@ -2,23 +2,11 @@
 ---
 
 
-## 视频|反对独裁普京，西方彻底行动起来「脱敏」
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2249597/)
+## 3/27/2022 文贵直播: 战友们在乌克兰救援行动中展现出的形象让海外华人感触良多，前线战友的一举一动都影响着世界对华人的看法
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2249643/)
 
-制作团队：大直播短视频组
+秘密翻译组-北美组
 
-文案编辑：Miyali7768(文玉)
-
-视频剪辑：隧道尽头的光
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-审核/编辑/发稿：qiutian（邱甜）
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

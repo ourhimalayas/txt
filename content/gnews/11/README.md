@@ -2,45 +2,29 @@
 ---
 
 
-## 上海开展新一轮封控核酸筛查
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2249749/)
+## 有声｜为保对俄制裁有效 日本收紧加密货币监管
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249860/)
 
-编辑：文宝
+By:**秘翻新闻**
 
+**2022-03-29**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-67.png)图片来源 Coin telegraph
+[据Coin telegraph 3月28日报道，一位日本官员透露，日本计划修改其《外汇和对外贸易法》，将加密货币交易所纳入管理银行的法律范围内。以防止受制裁国家使用数字资产规避制裁。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
+[日本内阁官房长官松野博和在新闻发布会上表示，政府正计划提出一项法案，修改外汇法，将加密货币交易所包括在内。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-就在3月27日晚，“上海发布”发布了《关于做好全市新一轮核酸筛查工作的通告》。
+[该国新当选的首相岸田文雄也支持拟议的修订，并呼吁与西方盟友协调行动，以执行新的法律。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-通告中提到，市新冠肺炎疫情防控工作领导小组研究决定，**在全市范围内开展新一轮切块式、网格化核酸筛查。**
+[根据修订后的外汇法，与银行一样，加密货币交易所将被要求验证和标记与受制裁的俄罗斯个人或团体相关的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-3月28日5时起，上海市以黄浦江为界分区分批实施核酸筛查。
+[该修正案将强制加密货币交易所阻止各种受制裁的俄罗斯官员、寡头、银行和其他机构的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
 
-第一批，浦东、浦南及毗邻区域（包括浦东新区全区，奉贤区全区，金山区全区，崇明区全区，闵行区浦锦街道、浦江镇，松江区新浜镇、石湖荡镇、泖港镇、叶榭镇）先行实施封控，开展核酸筛查，4月1日5时解封。同时，浦西地区重点区域继续实施封控管理。
+秘翻新闻 自由信仰编译报道
 
-第二批，4月1日3时起，对浦西地区实施封控，开展核酸筛查，4月5日3时解封。
+发布 : 恩典
 
-
-
-通知中提到，封控区域内，**住宅小区实施封闭式管理**，**所有人员足不出户**，人员和车辆只进不出；所有企业实施封闭生产或居家办公；**暂停公交、地铁、轮渡、出租汽车、网约车运行。**
-
-政知君注意到，参加3月28日上海新闻发布会的除了上文提到的吴凡，还有：
-
-**上海市疫情防控领导小组医疗救治组组****长**、市卫生健康委主任邬惊雷
-
-上海市疫情防控领导小组**物资保障组组长**、市商务委主任顾军
-
-与之前发布会不同的是，这次发布会对邬惊雷的介绍，还多了一个头衔。这也是公开报道中，邬惊雷首次以“上海市疫情防控领导小组医疗救治组组长”的身份出席发布会。
-![新增无症状破3千 邬惊雷以新身份出席发布会](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2022%2F0328%2F53731968j00r9ggs9001sc000u000gyc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-视频截图
-
-在发布会上，邬惊雷说，这两天，包括定点医院、后备定点医院、集中隔离场所，核酸采样、转运、检测、日常诊疗等各个岗位的医务人员通宵达旦、日以继夜、不眠不休地开展工作，生理和心理都承受了极大的压力，同时还要在隔离防护条件下，开展高强度的工作任务。
-
-原文链接：[https://www.163.com/news/article/H3ITG0PI0001899O.html?clickfrom=w\_yw](https://www.163.com/news/article/H3ITG0PI0001899O.html?clickfrom=w_yw)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-48.png)DISCORD
-
-
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

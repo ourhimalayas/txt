@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 5:07 AM (UTC)`
+
+3/27/2022 Miles Guo: The US has no choice but to take down the CCP. President Biden’s quote, “For God’s sake, this man cannot remain in power”, is of great significance and has gone beyond what President Kennedy and President Regan said to the former Soviet Union. Biden’s speech in Poland will be replayed for numerous times in humanity.<br/><br/>3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放<br/>
+![img](https://media.gettr.com/group30/getter/2022/03/29/05/76f015a9-b830-866b-3ea0-15b84757e697/out.jpg)
+
+---
+
+`@miles 3/29/2022 5:00 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group22/origin/2022/03/29/04/33f24bf7-5abb-039d-1ab5-7d271660095c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/29/2022 4:59 AM (UTC)`
+
+3/27/2022 Miles Guo: The image shown by the fellow fighters in the Ukraine rescue operation has deeply moved many overseas Chinese, and every single action of the fellow fighters at the front line can influence how the world views the Chinese people. The key point of the vest I designed is to tell the world that we are the new Chinese who are dedicated to taking down the Chinese Communist Party!<br/><br/><br/>3/27/2022 文贵直播: 战友们在乌克兰救援行动中展现出的形象让海外华人感触良多，前线战友的一举一动都影响着世界对华人的看法；文贵设计的马甲之重点在于告诉全世界，我们是推翻中国共产党的新中国人！<br/>
+![img](https://media.gettr.com/group13/getter/2022/03/29/04/0a216207-3e60-3726-e95c-2b6f23dc07cd/out.jpg)
+
+---
+
 `@miles 3/29/2022 3:04 AM (UTC)`
 
 
@@ -137,28 +158,6 @@ When you come to Medika, you need a local mobile phone card and WiFi to contact 
 
 The new Chinese of New Federal State of China, the comrades of the Whistleblower Movement, after affected by the CCP virus, quickly recovered and returned to the Ukrainian-Polish border to continue humanitarian rescue operations. This completely shows the image of peace-loving and mutual help of the new Chinese people who are different from the Chinese Communist Party<br/>新中国联邦人，爆料革命的战友们在感染中共病毒后，很快就恢复了健康，又重新回到了乌克兰与波兰边境，继续我们的人道主义救援行动。这完全展现了不同于中国共产党的新中国人爱好和平、互帮互助的形象
 ![img](https://media.gettr.com/group39/origin/2022/03/28/17/61f76561-ae15-0c96-4570-870cd9b0577c/out.jpg)
-
----
-
-`@miles 3/28/2022 5:13 PM (UTC)`
-
-“The most spacious tent in Medyka belongs to Chinese who are anti Chinese Communist Party.” Spanish media Republica introduced the ROLF and NFSC’s humanitarian rescue site near the Ukraine border using the above mentioned words.<br/> 梅迪卡最有气势的中国反共人的帐篷“ 西班牙媒体Republica以这样的标题介绍了法治基金新中国联邦在乌克兰边境Medyka的国际人道营救中心。<br/>https://gnews.org/zh-hans/2245465/
-
----
-
-`@miles 3/28/2022 4:01 PM (UTC)`
-
-
-![img](https://media.gettr.com/group41/origin/2022/03/28/15/8facfd61-f793-390e-3a77-3672773f9614/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@miles 3/28/2022 4:07 AM (UTC)`
-
-War brings infinite disaster and death, we don't want it, we pray for peace. The days of joy and happiness have become farther and farther away, the dead air, the ruined houses, flower, and trees, and living beings! As a member of the New Federal State of China, we will definitely help the people of Ukraine, because the CCP is behind Putin of Russia!<br/>战争带来的是无限的灾难和死亡，我们不想，我们祈求和平。那快乐和幸福的日子已经变得越来越遥远，死寂的空气，破坏殆尽的房屋、花木、生灵！作为新中国联邦人必将帮助乌克兰人民，因为俄罗斯普京的背后就是中共！
-![img](https://media.gettr.com/group26/origin/2022/03/28/04/d3691267-7a55-ddff-a368-968e891db140/out.jpg)
 
 ---
 

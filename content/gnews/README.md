@@ -15,128 +15,128 @@
 
 ---
 
-### [币圈新闻动态：喜币（HCN）价格目前在38.500 HDO](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [拜登：我们与乌克兰人民站在一起，我们将继续确保俄罗斯为其选择的战争付出沉重的代价](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [金正恩称朝鲜正在发展 “无法阻挡的压倒性的军事力量”](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国正在调查中共亚洲工厂是否在逃避太阳能关税](/content/gnews/3/README.md)
- ` 波士顿五月花农场金融部`
-
-### [防中国曲线避税,美正考虑对东南亚太阳能设备征收关税](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声｜为保对俄制裁有效 日本收紧加密货币监管](/content/gnews/5/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [中共国对上海实施了分阶段封城](/content/gnews/6/README.md)
+### [拜登表示不会为之前“普京不能继续掌权”的言论道歉](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [闲聊澳洲：随着俄乌战争升级，纳卡地区又呈紧张局势](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [俄隐秘征兵用有严重刑事罪行的罪犯补充兵员短缺](/content/gnews/8/README.md)
+### [俄胡萝卜加大棒在乌边境库尔斯克地区重集结更多军力](/content/gnews/3/README.md)
  ` 波士顿五月花农场金融部`
 
-### [Russia-Ukraine Ceasefire Talks Are Expected to be Held in Turkey on 28th](/content/gnews/9/README.md)
- ` 纽约香草山MOS01`
+### [拜登就称普京“不能继续掌权”表态—— “不会道歉” 不会“退缩”](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [一道墙一层纸](/content/gnews/10/README.md)
- ` 骄子`
+### [有声｜美国促进立法加入中国人权条款](/content/gnews/5/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [上海开展新一轮封控核酸筛查](/content/gnews/11/README.md)
- ` 加拿大温哥华英里农场`
-
-### [上海新增无症状感染者超3000例](/content/gnews/12/README.md)
- ` 加拿大温哥华英里农场`
-
-### [有声| 拜登警告“粮食短缺”即将成为现实](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放](/content/gnews/14/README.md)
- ` 秘密翻译组-北美组`
-
-### [视频|荣光归香港【中英文非脱敏】](/content/gnews/15/README.md)
- ` 爆料视频`
-
-### [3/27/2022 文贵直播: 战友们在乌克兰救援行动中展现出的形象让海外华人感触良多，前线战友的一举一动都影响着世界对华人的看法](/content/gnews/16/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄乌战争｜俄乌代表谈判后出现中毒症状 疑俄罗斯强硬派所为](/content/gnews/17/README.md)
- ` 關注組`
-
-### [Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy](/content/gnews/18/README.md)
- ` 纽约香草山MOS01`
-
-### [喜马拉雅真义20解：天意彰显：Nicole、王雁平、铲共骑侠、才旺罗布四位战友的故事](/content/gnews/19/README.md)
- ` 秘密翻译组-原创组`
-
-### [视频|反对独裁普京，西方彻底行动起来「脱敏」](/content/gnews/20/README.md)
- ` 爆料视频`
-
-### [串珠643:强制疫苗政客都是罪犯马克龙会人民被撕烂](/content/gnews/21/README.md)
- ` 郭爆料串珠`
-
-### [串珠642:反疫苗英雄第一郭文贵第二泽联科第三班农](/content/gnews/22/README.md)
- ` 郭爆料串珠`
-
-### [串珠641:习频繁给党内洗脑:不灭美国中共必亡](/content/gnews/23/README.md)
- ` 郭爆料串珠`
-
-### [玛莎·布莱克本:习近平不仅在密切关注普京对乌克兰的入侵,也在密切关注美国的反应](/content/gnews/24/README.md)
- ` 美国政要直译推`
-
-### [澳越两国敲定协议，增加农场签证劳动力](/content/gnews/25/README.md)
+### [澳大利亚将增加国防和安全方面的开支](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [港府提供三倍遗体存储量 近十倍遗体认领量](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [新广告将贝莱德CEO与中国联系起来](/content/gnews/7/README.md)
+ ` 澳喜农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月28日晚](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
+### [隐藏的免疫功能或使未接种新冠疫苗的人免受感染](/content/gnews/8/README.md)
+ ` 澳喜农场`
 
-### [白宫副发言人中共病毒检测呈阳性 上周随拜登访问欧洲](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [美国正在调查中共亚洲工厂是否在逃避太阳能关税](/content/gnews/9/README.md)
+ ` 波士顿五月花农场金融部`
 
-### [聚焦：美国“精准导弹”瞄准中共国的“世界工厂”（下）](/content/gnews/29/README.md)
- ` 蓝莲花农场`
-
-### [加拿大知名自媒体加入盖特平台](/content/gnews/30/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [民调指约四个香港人中有一个计划移民](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [3/29/2022 银河快讯: 日本陆上自卫队建立 &#8220;电子作战队&#8221;，加强新的安全领域；日元暴跌，暂时达到125日元](/content/gnews/32/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [一位MU5735遇难者家属的自述（转述）](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [融创债券无法兑付，“白衣骑士”押上自己](/content/gnews/34/README.md)
+### [防中国曲线避税,美正考虑对东南亚太阳能设备征收关税](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽伦斯基表示需要对俄罗斯实施更严厉的制裁](/content/gnews/35/README.md)
- ` 蓝莲花农场`
+### [有声｜为保对俄制裁有效 日本收紧加密货币监管](/content/gnews/11/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [铭记“铁链女”拷问人心的四句话，这是全社会的痛](/content/gnews/36/README.md)
- ` 纽约香草山MOS02`
+### [闲聊澳洲：随着俄乌战争升级，纳卡地区又呈紧张局势](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月28日早](/content/gnews/37/README.md)
+### [俄隐秘征兵用有严重刑事罪行的罪犯补充兵员短缺](/content/gnews/13/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [一道墙一层纸](/content/gnews/14/README.md)
+ ` 骄子`
+
+### [上海开展新一轮封控核酸筛查](/content/gnews/15/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [上海新增无症状感染者超3000例](/content/gnews/16/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [有声| 拜登警告“粮食短缺”即将成为现实](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [3/27/2022 文贵直播：美国别无选择而不得不灭共；拜登总统的这句“上帝呀，普京你就别干了”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，拜登这次演讲将在全人类被无数次重复播放](/content/gnews/18/README.md)
+ ` 秘密翻译组-北美组`
+
+### [视频|荣光归香港【中英文非脱敏】](/content/gnews/19/README.md)
+ ` 爆料视频`
+
+### [3/27/2022 文贵直播: 战友们在乌克兰救援行动中展现出的形象让海外华人感触良多，前线战友的一举一动都影响着世界对华人的看法](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [俄乌战争｜俄乌代表谈判后出现中毒症状 疑俄罗斯强硬派所为](/content/gnews/21/README.md)
+ ` 關注組`
+
+### [Taiwan | The U.S. National Endowment for Democracy Visits Taiwan, and Announces Taipei will Host the World Movement for Democracy](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [灭共段子——当前疫情](/content/gnews/38/README.md)
+### [喜马拉雅真义20解：天意彰显：Nicole、王雁平、铲共骑侠、才旺罗布四位战友的故事](/content/gnews/23/README.md)
+ ` 秘密翻译组-原创组`
+
+### [俄乌之战一个月后西方文明国家的反应](/content/gnews/24/README.md)
+ ` cindy`
+
+### [串珠643:强制疫苗政客都是罪犯马克龙会人民被撕烂](/content/gnews/25/README.md)
+ ` 郭爆料串珠`
+
+### [串珠642:反疫苗英雄第一郭文贵第二泽联科第三班农](/content/gnews/26/README.md)
+ ` 郭爆料串珠`
+
+### [玛莎·布莱克本:习近平不仅在密切关注普京对乌克兰的入侵,也在密切关注美国的反应](/content/gnews/27/README.md)
+ ` 美国政要直译推`
+
+### [澳越两国敲定协议，增加农场签证劳动力](/content/gnews/28/README.md)
+ ` 走进澳洲`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月28日晚](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [白宫副发言人中共病毒检测呈阳性 上周随拜登访问欧洲](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰人已经成功渗透到俄罗斯军事、政治和金融领导层的许多部门，并利用这些信息](/content/gnews/39/README.md)
+### [聚焦：美国“精准导弹”瞄准中共国的“世界工厂”（下）](/content/gnews/31/README.md)
+ ` 蓝莲花农场`
+
+### [加拿大知名自媒体加入盖特平台](/content/gnews/32/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [民调指约四个香港人中有一个计划移民](/content/gnews/33/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [一位MU5735遇难者家属的自述（转述）](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [融创债券无法兑付，“白衣骑士”押上自己](/content/gnews/35/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [泽伦斯基表示需要对俄罗斯实施更严厉的制裁](/content/gnews/36/README.md)
+ ` 蓝莲花农场`
+
+### [铭记“铁链女”拷问人心的四句话，这是全社会的痛](/content/gnews/37/README.md)
  ` 纽约香草山MOS02`
 
-### [俄罗斯期待中共国拯救其经济免受西方制裁影响](/content/gnews/40/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月28日早](/content/gnews/38/README.md)
+ ` 纽约香草山MOS01`
 
-### [【转】截至3.28 俄乌战事汇总](/content/gnews/41/README.md)
- ` 秘密翻譯組G-Translators`
+### [灭共段子——当前疫情](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [乌克兰人已经成功渗透到俄罗斯军事、政治和金融领导层的许多部门，并利用这些信息](/content/gnews/40/README.md)
+ ` 纽约香草山MOS02`
+
+### [俄罗斯期待中共国拯救其经济免受西方制裁影响](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [2022年3月26日 年度G｜CLUBS年会直播 全文字版](/content/gnews/42/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`

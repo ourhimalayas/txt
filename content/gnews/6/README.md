@@ -2,34 +2,42 @@
 ---
 
 
-## 中共国对上海实施了分阶段封城
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2249859/)
+## 澳大利亚将增加国防和安全方面的开支
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2249942/)
 
-撰稿：小湫
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-28.jpg)图片来自网络
-本周，中共国对其最大的城市上海实施分阶段封锁，这是该国严厉的动态清零战略的一部分，以遏制疫情开始以来最大的冠状病毒激增。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-周一，上海浦东所有地区进入封锁五天，官员们开始对居民进行大规模检测。周五，浦西进入为期五天的封城状态。在封锁期间，公共交通将暂停，非必要企业将关闭，所有居民将被要求留在家
-中。
+翻译/编辑：小红帽
 
-根据政府数据，世界第三大城市上海周六报告，新增无症状感染者2631例，新增有症状感染者47例。这是上海首次大规模封城，上海是中共国的金融中心，拥有2600万人口。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123111042_opera.jpg)图片来源：GETTY IMAGES
 
-中共国疾病预防控制中心传染病专家吴尊友本周表示，中共国将努力在短期内实现动态零冠，因为这仍然是最经济、最有效的新冠肺炎防控策略。
 
-只有做动态零冠，才能消除疫情隐患，避免大规模感染可能导致的医疗资源挤占，防止老年人或有基础疾病的人大量死亡。
+根据U.S. NEWS 3月28日报道，澳大利亚财政部长乔什·弗莱登伯格 （Josh Frydenberg）在周二公布针对即将举行的选举所制定的预算之前表示，澳大利亚政府将增加国防和国家安全方面的支出，同时减少家庭开支。
 
-以上信息来自Fox新闻网。
+随着俄罗斯与乌克兰开战，中共国的军队变得更加强硬，弗莱登伯格预示着“对国防和国家安全的进一步投资反映了我们现在面临的挑战”。
 
-本文作者评，2600万人的城市，大规模的封城，会导致多少人间悲剧。民众的死活从来不在共产党考虑的范畴之内，唯有推翻共产党，是让人活下去的唯一出路！
+从7月1日开始的财政年度的预算将提前在5月21日大选之前公布，总理科特·莫里森 (Scott Morrison)的保守派政府将在大选中寻求第四个三年任期。
 
-参考信息：
+随着澳大利亚和世界许多地方的通货膨胀率上升，部分原因是油价上涨，预计政府将减少每升44.2澳分（33.1美分）的汽油税（每加仑1.25美元）。
 
-[China implementing phased lockdown of Shanghai over COVID-19 surge](https://www.foxnews.com/world/china-implementing-phased-lockdown-of-shanghai-over-covid-19-surge)
+“今晚，我们将以一种临时的、有针对性的、负责任的方式，提供生活费用的减免，”弗莱登伯格说。
 
-*审核：云彩*
+澳大利亚石油协会表示，上周全国汽油平均价格下降了5.8澳分（4.3美分），至每升2.06.7澳元（1.54美元）（每加仑5.86美元）。
 
-*发布：云彩*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+弗莱登伯格说，他还将披露“预算底线的实质性改善”。
+
+经济学家预计，本财政年度的赤字将在800亿澳元（600亿美元）至700亿澳元（520亿美元）之间，而澳大利亚政府在12月预测的缺口为992亿澳元（743亿美元）。
+
+新闻来源：[Australia to Increase Spending on Defense and Security](https://www.usnews.com/news/business/articles/2022-03-28/australia-to-increase-spending-on-defense-and-security)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

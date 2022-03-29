@@ -2,24 +2,20 @@
 ---
 
 
-## 有声｜为保对俄制裁有效 日本收紧加密货币监管
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249860/)
+## 有声｜美国促进立法加入中国人权条款
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2249947/)
 
 By:**秘翻新闻**
 
 **2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-67.png)图片来源 Coin telegraph
-[据Coin telegraph 3月28日报道，一位日本官员透露，日本计划修改其《外汇和对外贸易法》，将加密货币交易所纳入管理银行的法律范围内。以防止受制裁国家使用数字资产规避制裁。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/9-55.png)图片来源 网络
+[据《自由亚洲电台》3月28日报道，美国国会与行政当局中国委员会主席参议员杰夫·默克利（Jeff Merkley) 与共同主席众议员詹姆斯·麦戈文（James McGovern) 本周一（3月28日）向参众两院领导人发出公开信，敦促其在最新的美国竞争法案中加入有关中国人权的条款。](https://www.rfa.org/mandarin/Xinwen/9-03282022162521.html)
 
-[日本内阁官房长官松野博和在新闻发布会上表示，政府正计划提出一项法案，修改外汇法，将加密货币交易所包括在内。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+[公开信指出，人权是中美关系的核心，既反映了美国的原则，也是美国对帮助中国人民提升其基本权利和自由的承诺。](https://www.rfa.org/mandarin/Xinwen/9-03282022162521.html)
 
-[该国新当选的首相岸田文雄也支持拟议的修订，并呼吁与西方盟友协调行动，以执行新的法律。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
+[信中建议在法案中加入一些有关中国人权的具体条款，包括：拓宽逃避中共迫害的香港居民和维吾尔人移民美国的渠道；保护美国商业和个人不受中共审查制度和恐吓做法的危害；延长禁止向香港警察出口枪支的禁令；以及恢复与中共国和香港的富布赖特交换项目等等。](https://www.rfa.org/mandarin/Xinwen/9-03282022162521.html)
 
-[根据修订后的外汇法，与银行一样，加密货币交易所将被要求验证和标记与受制裁的俄罗斯个人或团体相关的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
-
-[该修正案将强制加密货币交易所阻止各种受制裁的俄罗斯官员、寡头、银行和其他机构的交易。](https://cointelegraph.com/news/japan-plans-to-tighten-crypto-exchange-regulation-to-enforce-sanctions)
-
-秘翻新闻 自由信仰编译报道
+秘翻新闻 巴拉克 编辑报道
 
 发布 : 恩典
 
