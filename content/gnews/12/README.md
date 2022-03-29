@@ -2,32 +2,30 @@
 ---
 
 
-## 今日盖特大V推荐 — 戴夫·鲁宾（Dave Rubin）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2248541/)
+## 泽伦斯基表示需要对俄罗斯实施更严厉的制裁
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2248564/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/aobdv-uxnn4.jpg)
-**盖特链接**：[https://gettr.com/user/daverubin](https://gettr.com/user/daverubin)
+翻译与编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+《路透社》3月28日报道，**周一，乌克兰总统泽伦斯基敦促西方国家迅速加强对俄罗斯的制裁，包括石油禁运，以阻止俄罗斯随意升级对乌克兰的制裁。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-3-e1648510541752.jpg)3月28日，乌克兰总统泽连斯基向全民发表讲话（路透社）
+据报道，在向乌克兰人发表的夜间视频讲话中泽伦斯基说，西方去年拖延制裁和入侵是错误的，**一场全面战争已经开始。如果俄罗斯使用化学武器，西方应该实施更严厉的制裁，比如对俄罗斯向欧洲供应石油的禁运。**
 
-**戴夫·鲁宾自述：**
+报道指出，俄罗斯军方已经使用磷弹和集束弹这类化学武器，并且炮击化学生产设施和核电站。
 
-**佛罗里达人**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/as-3.jpg)图片来源：网络
-**戴夫·鲁宾简介：**
+泽伦斯基表示，**鉴于俄罗斯迄今为止的侵略行动，制裁必须是有效和严肃的**。他说，如果制裁措施力度不够，或者不够有力，就会给俄罗斯领导层制造一种危险的幻觉，好像他们会被允许继续做他们现在在做的事情。**乌克兰人为此付出了生命，成千上万的生命。**
 
-戴夫·鲁宾全名戴夫·约书亚·鲁宾（David Joshua Rubin，出生于1976年6月26日）是美国政治评论员、著名节目主持人。
+**美国已经对俄罗斯的石油禁运。**但对俄罗斯能源依赖程度高得多的**欧洲显得犹豫不决。**欧洲最大的经济体德国表示，实施这样的禁运将引发经济衰退和大规模失业。
 
-戴夫·鲁宾是YouTube和火焰电视（BlazeTV）网络上政治谈话节目“鲁宾报告（The Rubin Report）”的创作者和主持人。他的节目于2013年推出，直到2015年离开。此前，戴夫·鲁宾主持过以同性恋（LGBT）为主题的脱口秀节目。他还与本·哈维共同主持了，2007年至2008年的本和戴夫秀（The Ben and Dave Show）和2009年至2012年的 The Six Pack。
+新闻来源链接：
 
-戴夫·鲁宾将自己描述为古典自由主义者，后来又将自己描述为保守派。
+[Ukraine’s Zelenskiy says tougher Russian sanctions needed quickly | Reuters](https://www.reuters.com/world/europe/ukraines-zelenskiy-says-tougher-russian-sanctions-needed-quickly-2022-03-28/)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

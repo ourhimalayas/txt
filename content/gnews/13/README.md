@@ -2,40 +2,31 @@
 ---
 
 
-## 俄罗斯士兵在乌克兰强奸妇女
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2248536/)
+## 今日盖特大V推荐 — 戴夫·鲁宾（Dave Rubin）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2248541/)
 
-翻译：SugarPup （酷翻组）
-采集：玫瑰新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/aobdv-uxnn4.jpg)
+**盖特链接**：[https://gettr.com/user/daverubin](https://gettr.com/user/daverubin)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻.jpg)
+**戴夫·鲁宾自述：**
 
+**佛罗里达人**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/as-3.jpg)图片来源：网络
+**戴夫·鲁宾简介：**
 
+戴夫·鲁宾全名戴夫·约书亚·鲁宾（David Joshua Rubin，出生于1976年6月26日）是美国政治评论员、著名节目主持人。
 
+戴夫·鲁宾是YouTube和火焰电视（BlazeTV）网络上政治谈话节目“鲁宾报告（The Rubin Report）”的创作者和主持人。他的节目于2013年推出，直到2015年离开。此前，戴夫·鲁宾主持过以同性恋（LGBT）为主题的脱口秀节目。他还与本·哈维共同主持了，2007年至2008年的本和戴夫秀（The Ben and Dave Show）和2009年至2012年的 The Six Pack。
 
+戴夫·鲁宾将自己描述为古典自由主义者，后来又将自己描述为保守派。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3598.png)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-乌克兰常驻欧洲委员会议会代表团团长玛丽亚·梅岑采娃女士周日（3月27日）节目中告诉天空电视台。俄罗斯士兵在向乌克兰发动战争的同时，还强奸许多乌克兰妇女。
-
-梅岑采娃女士表示，乌克兰不会对俄罗斯入侵期间强奸妇女的“恐怖”事件“保持沉默”。在最近一个被广泛讨论的案件中，受害者的平民丈夫在基辅附件小镇的家中被俄罗斯士兵杀害，俄罗斯士兵当者受害人未成年孩子的面多次强奸她。
-
-这个案件因为有视频证据，目前已经被乌克兰检察官办公室记录在案并开始受理。然而这只是冰山一角，还有更多的受害者尚未向检察长备案。
-
-梅岑采娃议员呼吁更多的受害人能勇敢站出来，并且表示一旦受害人做好准备，乌克兰会对媒体公布更多俄罗斯士兵的罪行。她表示说，乌克兰绝对不会沉默。因为正义必须得到伸张。
-
-梅岑采娃女士说，过去一周还发生了两起俄罗斯士兵被指控向排队等候人道主义援助的平民开枪的事件。这些都充分说明：俄罗斯对乌克兰平民犯下战争罪是绝对的事实存在。普京发起的这场战争已经超出了人们对战争行为的正常理解范畴。
-
-与此同时，人们担忧，目睹了这一恐怖暴力的孩子将来不知如何面对这份令人痛苦的记忆。
-
-因此目前需要考虑的一个问题是，如何面对战争带来的创伤。乌克兰需要非常谨慎，非常认真地对待，并考虑英国的经验和其他国家的经验，这可以帮助我们与心理学家打交道，以及如何帮助这些人真正度过这些案件，继续前进，继续生活。
-
-新闻链接：
-[https://www.independent.co.uk/news/world/europe/russia-soldiers-raping-women-ukraine-b2045120.html](https://www.independent.co.uk/news/world/europe/russia-soldiers-raping-women-ukraine-b2045120.html)
-
-**校对：sherryok (水云间)
-审核：Barry Jack
-上传排版：V在途中**
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
