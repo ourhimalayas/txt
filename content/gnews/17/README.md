@@ -2,24 +2,20 @@
 ---
 
 
-## 西媒头条 — 第198期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2253691/)
+## 加拿大民众通过教会捐助乌克兰
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2253880/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220329.001.jpeg)
+据加拿大【CTV新闻】3月26日报道，安大略省东部社区的大量居民通过当地的教会组织，继续向乌克兰战争难民提供援助。
 
-发稿：信心的选择
+安河的[布罗克维尔]市[圣詹姆斯]教堂负责人希尔当天表示：正在与该地区的另外两个教堂合作，为乌克兰人收集急需的医疗和个人防护用品。并已从附近的几个医疗机构获得了大量医疗用品。目前，教会的志愿者们正在收集无数民众源源不断的捐款和物资，并将在随后送寄乌克兰并分发给当地难民。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+对此，希尔表示：短时间内就收到了如此多的捐助意味着全世界都在支持乌克兰，并希望俄罗斯人民能尽快获悉真相并站出来反抗当局的侵略战争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

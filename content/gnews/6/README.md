@@ -2,36 +2,66 @@
 ---
 
 
-## 澳大利亚政府将网络作战部队规模翻倍以应对中俄网络安全威胁
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2253939/)
+## 文•贵天成——文贵先生谈“G-Glub”（二十七）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254223/)
 
-编译：波士顿五月花—-Streamline
+整理：BENJ1
+编辑：Kelly
 
-据《英国每日邮报》3月29日报道，由于受到中国和俄罗斯网络安全的威胁，澳大利亚将在未来10年花费近100亿美元，使其网络作战部队的规模翻倍。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/AA3496CD-6830-4808-A49B-656E6FB25B7A.jpeg)
-
-随着澳大利亚与美国和英国(澳大利亚的传统国防盟友)以及亚洲民主大国的国家安全关系得到加强，上述预算将大幅提升澳大利亚国防情报局(Australian Signals Directorate-ASD)的情报能力，国防情报局是国防部的一个分支。
-
-在这份预算中，政府将投资 99 亿美元用于澳大利亚的情报和网络，以加强政府对澳大利亚五眼联盟和澳英美联盟（ AUKUS ）三边合作伙伴关系的承诺，同时支持印-太地区的安全。
-
-2030-31年中，澳大利亚情报局将获得资助，以提供复原、效果、防御、空间、情报、网络和辅助手段一揽子计划—被称为REDSPICE计划。
-
-REDSPICE计划将使澳大利亚情报局的规模扩大一倍，在未来十年创造1900个新的就业机会。
-
-联邦政府表示，REDSPICE计划将使ASD的“网络攻击能力”增加两倍，“网络搜寻和响应活动”能力增加一倍。
-
-澳大利亚去年与美国和英国签署了一项具有历史意义的安全协议，称为AUKUS。作为协议的一部分，美国还将与澳大利亚分享核潜艇技术。这是自1958年以来，美国首次与英国以外的国家分享他们的潜艇技术。
-
-新的AUKUS安全伙伴关系的首要任务是在核动力潜艇方面进行合作。网络能力、人工智能、量子技术和海底作战能力是其他重点领域。
-
-新闻评论：独裁的中共国和俄罗斯是世界所有灾难的根源，对内，它们视生命如草芥，鱼肉百姓，骄奢淫逸。对外，它们与邪恶为伍，撕毁条约，不守规则。以美国为首的西方文明世界只有与新中国联邦联手铲除中共和俄罗斯政权，才能为世界带来正道主义的希望。
-
-素材来源：[https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html](https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html)
-
-*发布：思澈*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043-1.jpg)图片来源：雅典娜设计组
 
 
+郭文贵先生**2021**年**8**月**16**日直播
+
+战友买了G-Club卡就永远不可能失去，白皮书说的清清楚楚，任何条件下都不能退卡，任何条件下它只会告诉你，你享受G-Club的利益，没有说是回报，没有这一说法，那是犯法的。
+
+同时你要遵守G-Club的规定：G-Club卡可以继承，不可以转让。同时G-Club明确了，你的行为规则，每年能干什么，关键是咱们要见面，咱们要沟通。我们要通过这个俱乐部，让所有本来就是奔着爆料革命灭共的这个目标开始的，去点燃（灭共的）星星之火。
+
+G-Club最核心的其中之一，就是要保证战友们在任何情况下，它这一块都是值钱的。G-TV投资者拥有5%喜联储、喜币，它在任何情况下，咱就说1000亿的虚拟币，10块钱一个，它就一万亿，一万亿的5%是多少钱？一万亿的百分5%它是按这收利润的。
+
+如果变成100块钱一个币，就是十万亿，十万亿的时候，你告诉我5%是多少钱？这5%它不是说今年就拉倒了，你这是股份，它每年都产生的利润，你想想这是多少钱？然后咱们再说盖特，盖特再5%，那你这个5%，咱先不说G-News了，（别的）啥都不说，咱就说这三个5%，这5%永远记住，它不是说一次性你就拿没了，这三个是每年的利润你分5%，分到永远、永远、永远……除非它没了。
+
+当你拥有G-TV股票、G-Clubs卡的时候，当你这些股票都拿完的时候，前提你要有这个股票，到时候就是它真的市值值那些钱，它需要时间，它不可能是今天晚上。到那时候，你唯一的选择就是你把所有手里边儿的原始股变成你自己的、家族的信托基金。信托基金分很多种，它叫非盈利型的、非营运型的、非投资型的，大多数就是保值钱。有一种非常重要的叫家族私人信托基金，是可以投资的。
+
+你知道你是谁吗？你们是G-Club、G-TV的原始投资者，当你拥有这些，甚至（还拥有）GNews盈利后的5%和未来GFashion盈利后的5%，你们是什么吗？你们每个人都是控股股东。你们每个人都要把自己变成一个Holding Group或者Holding Trust。
+
+资料来源：郭先生盖特直播视频
+
+往期回顾：
+[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
+[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
+[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
+[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
+[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
+[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
+[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
+[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
+[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
+[文·贵天成——文贵先生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
+[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
+[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
+[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
+[文·贵天成——文贵先生谈“G-Club”（二十）](https://gnews.org/zh-hans/2240823/)
+[文•贵天成——文贵先生谈“G-Club”（二十一）](https://gnews.org/zh-hans/2244681/)
+[文•贵天成——文贵先生谈“G-Club”（二十二）](https://gnews.org/zh-hans/2251614/)
+[文•贵天成——文贵先生谈“G-Club”（二十三）](https://gnews.org/zh-hans/2251657/)
+[文•贵天成——文贵先生谈“G-Club”（二十四）](https://gnews.org/zh-hans/2251695/)
+[文•贵天成——文贵先生谈“G-Club”（二十五）](https://gnews.org/zh-hans/2252453/)
+[文·贵天成——文贵先生谈“G-Club”（二十六）](https://gnews.org/zh-hans/2252534/)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
