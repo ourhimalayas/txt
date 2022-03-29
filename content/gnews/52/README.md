@@ -2,90 +2,35 @@
 ---
 
 
-## 拜登总统致俄罗斯人民：你们不是我们的敌人
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2243063/)
+## 疫情｜上海疫情失控 今起“两段式”封城 民众叹做法不公
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2243287/)
 
-**拜登总统：** 
-致俄罗斯人民：你们不是我们的敌人。 美国人民与你们和乌克兰渴望和平的勇敢公民们站在一起。 【附拜登在波兰华沙的演讲视频】
+**图/文：CP **
+**发布时间｜28/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海疫情失控-今起「兩段式」封城-民眾嘆做法不公.jpg)
 
-
-
-> To the Russian people: You are not our enemy.
->  
-> The American people stand with you and the brave citizens in Ukraine who want peace. [pic.twitter.com/gsbtNYLKDt](https://t.co/gsbtNYLKDt)
-> — President Biden (@POTUS) [March 26, 2022](https://twitter.com/POTUS/status/1507850953835307011?ref_src=twsrc%5Etfw)
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
+上海市疫情防控办昨日（27日）夜晚突然发布通告称，经研究决定，由今日（28日）凌晨5时起在全市范围内以黄浦江为界实行两段式封城，以进行全民核酸检测。
 
-**拜登总统： **
-一心重建帝国的独裁者永远不会抹去人民对自由的热爱。 残暴永远不会磨灭他们的自由意志。 乌克兰永远不会成为俄罗斯的胜利。
+首批是浦东、浦南及毗邻区域，4月1日5时解封，同时，浦西重点区域继续实施封控管理；第二批是浦西，自4月1日3时起实施封控，至4月5日3时解封。
 
+封控期间，住宅社区封闭式管理，所有人员足不出户，人员和车辆只进不出。保障基本生活必需的外卖、快递等实行无接触配送，不得进入住宅社区。同时，所有企业实施封闭生产或居家办公，保障市民生活和城市基本运行的水、电、油气、通讯等公共服务除外，公共交通停运。
 
+上海市今早举行疫情防控工作新闻发布会，当局解释采取封城措施的原因时表示，“通过分析筛查结果，发现本市疫情呈现区域聚集和全市散发并存两个特点，存在面上爆发的潜在风险”。经综合研判，有必要采取更果断、坚决的措施，进一步降低人群的社会流动性，快速排查发现感染者，彻底消除病毒隐匿的社区传播。
 
-> A dictator bent on rebuilding an empire will never erase a people’s love for liberty.
->  
-> Brutality will never grind down their will to be free.
->  
-> Ukraine will never be a victory for Russia.
-> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507893569645912064?ref_src=twsrc%5Etfw)
+有居住在上海的民众批评当局做法不公，因上海中心地区均在浦西，故居民以上海人或高收入人群为主，而浦东、浦南属外地或基层人士的密集区，所以当局的“两段式”政策令浦西居民有充足时间采买物资，惟其他地区居民仅有几个小时准备。
 
+不过，上海卫健委官员在回应时，则指该说法偏颇，之所以让浦东、浦南地区先行封控，主要是因为该地区人员流动大，一直是疫情爆发的重灾区，并非是当局刻意区别对待。
 
+上海市官员早前指当地绝不会封城，但面对日渐扩大的新冠疫情，封城压力日增。上海过去一周累积确诊例突破1万宗，单日确诊率连续突破纪录，上海市卫健委今日早上通报，昨日录得3500宗本土确诊个案，继续为单日新增感染人数创下新高。
 
-**拜登总统： **
-帮助乌克兰难民不是波兰或任何国家应该独自承担的事情。 世界上所有的民主国家都有责任提供帮助。 乌克兰人民可以指望美国履行其责任。 我们将欢迎 10万乌克兰难民。
+来源｜上海发布
 
+* * *
 
-
-> Helping Ukrainian refugees is not something Poland or any nation should carry alone.
->  
-> All the world’s democracies have a responsibility to help. And the people of Ukraine can count on the United States to meet its responsibility. 
-> 
-> We will welcome 100,000 Ukrainian refugees.
-> — President Biden (@POTUS) [March 27, 2022](https://twitter.com/POTUS/status/1507870489821290505?ref_src=twsrc%5Etfw)
-
-
-
-**美国务卿安东尼·布林肯：**
-很高兴今天在以色列与外交部长亚伊尔·拉皮德[@yairlapid](https://twitter.com/yairlapid)会面，讨论重要的全球问题，例如普京总统对乌克兰及其人民的野蛮袭击、以及伊朗带来的挑战。 美国对以色列的承诺是铁定的。
-
-
-
-> Good to be in Israel and meet with Foreign Minister [@yairlapid](https://twitter.com/yairlapid?ref_src=twsrc%5Etfw) today to discuss important global issues such as President Putin’s brutal attack on Ukraine and its people and challenges posed by Iran. The U.S. commitment to Israel is ironclad. [pic.twitter.com/XGRVMVQ7Ks](https://t.co/XGRVMVQ7Ks)
-> — Secretary Antony Blinken (@SecBlinken) [March 27, 2022](https://twitter.com/SecBlinken/status/1508058763923701763?ref_src=twsrc%5Etfw)
-
-
-
-**前副国务卿基思·克拉奇： **
-谢谢@RepHarshbarger。 我感谢您为促进自由和确保美国投资者不会在不知不觉中资助中国共产党的军事集结、技术威权主义和侵犯人权行为（包括 [#新疆大屠杀](https://gettr.com/hashtag/%23%E6%96%B0%E7%96%86%E5%A4%A7%E5%B1%A0%E6%9D%80) [#UyghurGenocide](https://gettr.com/hashtag/%23UyghurGenocide) ）所做的努力。 【转众议员戴安娜·哈什巴格推文：我很高兴看到民主的强烈拥护者@KeithJKrach 被提名获得 2022 年诺贝尔和平奖。 他对和平的不懈追求、对台湾的倡导以及对和平国际关系的重新构想，使基思成为真正的候选人。 恭喜！】
-
-
-
-> Thank you [@RepHarshbarger](https://twitter.com/RepHarshbarger?ref_src=twsrc%5Etfw). I appreciate your efforts to advance freedom and ensure American investors aren’t unknowingly financing the Chinese Communist Party’s military buildup, techno-authoritarianism, and human rights abuses, including the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/B4PRPyeF59](https://t.co/B4PRPyeF59)
-> — Keith J. Krach (@KeithJKrach) [March 27, 2022](https://twitter.com/KeithJKrach/status/1508098997583548423?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本：** 
-塔利班政府正在对阿富汗妇女实施新的监护人规则。 这是我们灾难性地离开阿富汗的结果。
-
-
-
-> The Taliban government is imposing new chaperone rules on Afghan women. This is the result of our disastrous departure from Afghanistan.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 27, 2022](https://twitter.com/MarshaBlackburn/status/1508174111935238150?ref_src=twsrc%5Etfw)
-
-
-
-**众议员迈克.沃尔茨： **
-我不是不同意拜登的评论，即对乌克兰的凶残袭击在普京的统治结束之前不会停止。 但改变需要来自俄罗斯人民。 拜登关于政权更迭的建议将融入普京的宣传活动，他将利用这些活动巩固自己的权力。 【附视频：沃尔茨就俄罗斯残暴入侵乌克兰、及白宫称拜登没呼吁俄罗斯改变政权作评论】
-
-
-
-> I don't disagree with Biden's comments that the murderous attack in Ukraine won't end until Putin's reign ends.
-> 
-> BUT change needs to come from the Russian people. Biden's suggestion of regime change will feed into Putin's propaganda campaign that he'll use to solidify his power. [pic.twitter.com/UxR84iR90A](https://t.co/UxR84iR90A)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508247586595028993?ref_src=twsrc%5Etfw)
-
-
+**Subscribe EpidemicConcernGroup Gettr****：**[@MightyGroup](https://gettr.com/user/mightygroup)
 
  
 

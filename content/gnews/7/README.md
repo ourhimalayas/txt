@@ -2,12 +2,20 @@
 ---
 
 
-## 罗曼·阿布拉莫维奇‘出现疑似化学武器中毒症状’
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2249483/)
+## 雅典娜时报-第247期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2249600/)
 
-03/28/2022 据报道，俄罗斯寡头罗曼·阿布拉莫维奇和乌克兰和平谈判代表出现了疑似‘化学武器’中毒的症状。 据调查网站Bellingcat称，症状包括‘眼睛刺痛’，但毒素的剂量和类型不太可能足以造成危及生命的损害，‘很可能是为了吓唬一下’。
+#### 《雅典娜时报》汇聚全球新闻时事
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/958169429785575504/155_4.png?width=857&amp;height=1276)![圖片](https://media.discordapp.net/attachments/825592691433668612/958169430209212516/155_6.png?width=857&amp;height=1276)
+*发布：陶子*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

@@ -2,31 +2,88 @@
 ---
 
 
-## 港府提供三倍遗体存储量 近十倍遗体认领量
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2249354/)
+## 玛莎·布莱克本:习近平不仅在密切关注普京对乌克兰的入侵,也在密切关注美国的反应
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2249473/)
 
-作者：东京樱花团︱阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/港府提供三倍遗体存储量-近十倍遗体认领量.jpg)[*图片来源*](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/752167/%E7%96%AB%E6%83%85-%E7%81%AB%E5%8C%96%E7%AF%80%E6%95%B8%E6%97%A5%E5%A2%9E%E8%87%B3300-%E8%BF%9124%E5%B0%8F%E6%99%82%E9%81%8B%E4%BD%9C-%E9%A3%9F%E7%92%B0%E7%BD%B2-%E7%9B%A1%E6%97%A9%E7%81%AB%E5%8C%96%E5%85%88%E4%BA%BA)
+**参议员玛莎·布莱克本： **
+[#习近平](https://gettr.com/hashtag/%23%E4%B9%A0%E8%BF%91%E5%B9%B3) 不仅在密切关注普京对乌克兰的入侵，也在密切关注美国的反应。 【转华尔街日报：北京从俄入侵乌克兰中获益 非西方国家对冲他们的赌注，证实了中共国的地缘政治假设。】
 
-卫生署今日公布，过去1个月遗体总存放量，已由原先的1,350个，增加至现时逾4,600个，包括1个新建的殓房、61个冻柜和20个流动冻柜；辨认遗体由每日数十宗个案增至每日处理200宗；火化时段，从平日的130至140节增至近300节，几乎24小时不停；此外和合石火葬场4月初有两个新火化炉投入使用，届时可增加更多火化节数。
 
-港府公布的死亡资料截至昨日为7252人，作为中共傀儡，港府公开资料的可信程度与中共不相伯仲，但事实始终无法被掩盖，公立医院急症室内尸体堆积的图片屡次被曝光在社交媒体上，上周更有亲中专栏作者亲临公立医院急诊室，见证满地尸体的惨况。然而最令人触目惊心的是殓房容量在短时间内地增加了超过三倍，火葬场开始24小时烧尸，增加火化数量超过一倍，即使这样也没有改善急症室尸体堆积的状况。
 
-香港的新冠疫苗注射率已经超过九成，注射了两针的人也超过八成，随着注射率的升高，新冠疫苗的次生灾害加快了戕害的速度，香港的长者和体弱人士正在快速染疫死去，成为被新冠疫苗收割生命的首个群体。这些首批离去的人还有后人为他们安顿丧礼，尽可能走得体面一点，但那些在现阶段存活下来的人，在未来的日子随时可能面临各种突发性的病症猝死或成为长期病患，他们也将步先人们的后尘，到时候可能连收尸的人都没有就直接被火化了……新冠疫苗会无差别地带走所有亲近它的人，当然也包括中共的走狗们。
+> Xi Jinping is closely watching not only Putin’s invasion of Ukraine but also the U.S. response.[https://t.co/1VaZ8j8sxa](https://t.co/1VaZ8j8sxa)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 28, 2022](https://twitter.com/MarshaBlackburn/status/1508472468146692108?ref_src=twsrc%5Etfw)
 
-信息来源：
-1、[**衞生署長到富山殮房視察新存放遺體施設  內部設計曝光**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/751818/%E7%96%AB%E6%83%85-%E8%A1%9E%E7%94%9F%E7%BD%B2%E9%95%B7%E5%88%B0%E5%AF%8C%E5%B1%B1%E6%AE%AE%E6%88%BF%E8%A6%96%E5%AF%9F%E6%96%B0%E5%AD%98%E6%94%BE%E9%81%BA%E9%AB%94%E6%96%BD%E8%A8%AD-%E5%85%A7%E9%83%A8%E8%A8%AD%E8%A8%88%E6%9B%9D%E5%85%89)
-2、[**火化節數日增至300  近24小時運作  食環署：盡早火化先人**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/752167/%E7%96%AB%E6%83%85-%E7%81%AB%E5%8C%96%E7%AF%80%E6%95%B8%E6%97%A5%E5%A2%9E%E8%87%B3300-%E8%BF%9124%E5%B0%8F%E6%99%82%E9%81%8B%E4%BD%9C-%E9%A3%9F%E7%92%B0%E7%BD%B2-%E7%9B%A1%E6%97%A9%E7%81%AB%E5%8C%96%E5%85%88%E4%BA%BA)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+**众议员迈克·加拉格尔新闻办公室： **
+众议员加拉格尔对记者[@JerryDunleavy](https://twitter.com/JerryDunleavy) 说：“我们需要意识到这一现实，并明确 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对乌克兰进行任何具体干预的后果。” 在这里阅读更多： 【转华盛顿监察员网文章：共和党敦促拜登在俄罗斯问题上向中共国施压】
+
+
+
+> Rep. Gallagher to [@JerryDunleavy](https://twitter.com/JerryDunleavy?ref_src=twsrc%5Etfw): "We need to wake up to that reality and make the consequences for any concrete Chinese intervention in Ukraine clear.”
+> 
+> Read more here: [https://t.co/KHypzc4YGS](https://t.co/KHypzc4YGS)
+> — Rep. Gallagher Press Office (@RepGallagher) [March 28, 2022](https://twitter.com/RepGallagher/status/1508475296248479747?ref_src=twsrc%5Etfw)
+
+
+
+**参议员汤姆.科顿：** 
+迪士尼公开感谢在新疆经营集中营的 #中共 官员。 现在，迪士尼正在向家长们讲什么是适合教授幼儿园儿童？ 真是个笑话！
+
+
+
+> Disney publicly thanked the Chinese Communist Party officials running concentration camps in Xinjiang. 
+> 
+> And now Disney is lecturing parents about what's appropriate to teach kindergarteners? 
+> 
+> What a joke.
+> — Tom Cotton (@TomCottonAR) [March 28, 2022](https://twitter.com/TomCottonAR/status/1508527280762638341?ref_src=twsrc%5Etfw)
+
+
+
+**众议员迈克.沃尔茨： **
+贝莱德 (BlackRock) 和拉里芬克 (Larry Fink) 在与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 和俄罗斯达成甜心交易的同时，向国内的美国公司兜售他们的“清醒”议程。 在[@ConsumersFirst](https://twitter.com/ConsumersFirst) 的这段精彩视频中了解芬克的虚伪程度
+
+
+
+> BlackRock and Larry Fink preach their 'woke' agenda to American companies here at home while making sweetheart deals with the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) & Russia.
+> 
+> See the full extent of Fink’s hypocrisy in this great video by [@ConsumersFirst](https://twitter.com/ConsumersFirst?ref_src=twsrc%5Etfw) 👇 [pic.twitter.com/BwVnZqqsrW](https://t.co/BwVnZqqsrW)
+> — Rep. Mike Waltz (@michaelgwaltz) [March 28, 2022](https://twitter.com/michaelgwaltz/status/1508547952939347980?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥： **
+参议员卢比奥敦促在中兴通讯的缓刑期结束后，对其 [@ZTEPress](https://twitter.com/ZTEPress)采取行动。 【附全文连接：美国参议员马可·卢比奥致函美国商务部部长吉娜·雷蒙多和司法部长梅里克·加兰，呼吁对 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 部分拥有的中国科技公司中兴通讯采取法律行动。】
+
+
+
+> Sen. Rubio pushed for action against [@ZTEPress](https://twitter.com/ZTEPress?ref_src=twsrc%5Etfw) after their probationary period ends.[https://t.co/eED7M9F94x](https://t.co/eED7M9F94x)
+> — Senator Rubio Press (@SenRubioPress) [March 29, 2022](https://twitter.com/SenRubioPress/status/1508598923505590275?ref_src=twsrc%5Etfw)
+
+
+
+**参议员马可·卢比奥：**
+万一您错过了：参议员卢比奥正在领导共和党在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 问题上采取更具战斗性的立场，纽约时报[@nytimes](https://twitter.com/nytimes)写道。 阅读更多【附纽约时报文章：像参议员马可·卢比奥这样的共和党人已经将反对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 及其领导人 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 作为其外交政策的核心】
+
+
+
+> 🚨 ICYMI: Senator Rubio is leading the GOP push for a more combative stance on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw), writes [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw).
+> 
+> Read more ⬇️[https://t.co/gE2Lpx2Fdj](https://t.co/gE2Lpx2Fdj)
+> — Senator Rubio Press (@SenRubioPress) [March 28, 2022](https://twitter.com/SenRubioPress/status/1508593603412729858?ref_src=twsrc%5Etfw)
+
+
+
+**国务卿安东尼·布林肯：** 
+就在一个多月前，普京总统发动了他的侵略战争。我们对乌克兰的承诺是牢不可破的。我们已经采取行动制裁俄罗斯政府官员，向乌克兰提供援助，并与我们的伙伴合作，敦促结束这场战争。
+
+
+
+> Just over one month ago, President Putin launched his war of aggression. Our commitment to Ukraine is ironclad. We have taken actions to sanction Russian government officials, deliver assistance to Ukraine, and collaborate with our partners to press for an end to this war. [pic.twitter.com/26vr6lBFCH](https://t.co/26vr6lBFCH)
+> — Secretary Antony Blinken (@SecBlinken) [March 29, 2022](https://twitter.com/SecBlinken/status/1508600297286897665?ref_src=twsrc%5Etfw)
+
+
 
  
 

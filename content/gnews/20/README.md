@@ -2,31 +2,23 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月28日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2249230/)
+## 俄乌之战一个月后乌克兰境内的惨状
+` cindy` [轉載自GNews](https://gnews.org/zh-hans/2249255/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Gnews-image-34.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-23.png)
+撰稿：澳喜cindy
 
+俄罗斯入侵乌克兰已经一个多月了。在信息通讯如此发达的今天，特别是乌克兰总统在Elon Musk的星链技术帮助下，将此次战争的媒体传播方面做到了极致。才使世界人民能快速看到战场上方方面面的真实场面，同时它也记载了，整个战争侵略者是怎样的凶残，乌克兰人又是怎样不屈不挠，奋勇抗争的场面。
+视频来自网络
+这些照片是俄罗斯试图阻止世界看到的照片，记者冒着生命危险，向世界传播这些画面，这里的妇女和儿童正在被杀害，医院里人满为患。
+视频来自网络
+乌克兰表示，俄罗斯的推进速度已经放缓，而且有证据表明乌克兰在一些地方进行了反击，但对城市中心和民用基础设施的重型导弹和大炮打击仍在继续。
+视频来自网络
+军事专家认为：俄罗斯并没有快速向基辅推进，一方面受到了沿途各城市的民众顽强的抵抗，俄罗斯军队时不时地遭到乌克兰人肩扛“针刺导弹”或无人机的袭击，看上去暂时休战了，但基辅重要的粮仓被俄军故意击毁，目的很明确，要饿死里面的人。
+视频来自网络
+从俄罗斯入侵乌克兰的一个多月来看，这场战争与1980年代苏联入侵阿富汗的厄运有惊人的相似之处。普京目前遭到国内的反对的声音不断涌现，他也对那些要干倒他的人发出了严重的警告。但是这场战争只是普京一个人的战争，并没有民意的支持，反而使国内上至富豪阶层，下至普通百姓没有一个人不受到伤害和经济损失。可以预判的是，苏联入侵阿富汗的厄运-政权解体，一定会在普京身上再现。
 
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p12eywh9288](https://gettr.com/post/p12eywh9288)
-访谈：[https://gettr.com/post/p12f4oza718](https://gettr.com/post/p12f4oza718)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-25.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*发稿：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/811AF43F-4190-4DA9-AECF-FBF2DA56F9D1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
