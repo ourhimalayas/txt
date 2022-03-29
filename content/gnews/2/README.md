@@ -2,41 +2,26 @@
 ---
 
 
-## 疫情|新冠疫苗副作用 13岁花季少年突患白血病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2250941/)
+## 秘翻在线：中共国核酸检测人员面前的群魔乱舞
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2251105/)
 
-整理：gardeniahu
-编辑：朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-2.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+**撰稿：葛大饼**
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-349.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-201.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-109.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-152.jpg)
-疫情|新冠疫苗副作用 13岁花季少年突患白血病
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-21.jpg)图片来源： 凤凰
+根据2022年3月29日多家媒体综合报道， 在近期中共国疫情爆发各地组织全员检测的情况下，网络传出多段小孩或学生在防疫人员面前跳舞致谢的视频，引发争论。
 
-急！急！急！13岁儿子突患白血病，急需治疗费用，母亲【唐启云】含泪求助
+据报道，有家长“体谅”防疫工作者辛苦，甚至派出家中幼童跳舞感谢他们的付出，然而由于加入跳舞队伍的人数越来越多， 让核酸检测过程更长，也让防疫人员不胜其烦。一位一线抗疫工作人员表示：做完核酸、麻溜走人，就是对他们最大的支持。
 
-13岁弟弟确诊白血病后续
+不少网民则批评此举毫无意义，完全是形式主义且加大了聚集感染的风险。在笔者看来这种行为更是作秀博眼球，家长利用孩子迎合领导欢心，甘心做中共洗脑宣传机器而已 。
 
-弟弟已经开始化疗了，今天又做了一次穿刺，这几天弟弟食欲不算好，不过我有每天炖各种汤喝，我也有在看书，战胜病魔的前提是了解它，大家的评论我也都看了，水滴筹我也发起了，我们目前在新乡医学院第一附属医院治疗。希望病友家属们可以给我一些照顾病人的经验建议。也谢谢大家的关心。
+想起中共新冠病毒刚爆发初期，很多主流媒体播放医护人员集体跳舞的场面，形式主义的洗脑真是让人感到假丑恶之极。思想上的毒瘤让人变得如同家畜一般，中国人快醒醒吧！
 
-网友评论：
+**[新闻来源](https://www.zaobao.com.sg/realtime/china/story20220329-1257139)**
 
-玩转乾坤：打喵了吗，打了多久发病的
 
-乐儿：治疗方案是什么，要移植吗？
 
-#急性髓系白血病 #白血病
-
-参考链接：[https://www.xiaohongshu.com/discovery/item/62380e5d00000000210387aa?share\_from\_user\_hidden=true&xhsshare=CopyLink&appuid=593bc86450c4b43662c38691&apptime=1648513307](https://www.xiaohongshu.com/discovery/item/62380e5d00000000210387aa?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648513307)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+#  
 
  
 

@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花头条┃俄乌战后 攻击北约国家的中国IP数激增116%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2250660/)
+## 【乌克兰救援】外国人已经开始自愿加入宣传新中国联邦的队伍
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2250865/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-俄乌战后，攻击北约国家的中国IP数激增116%.
+【乌克兰救援】03/27/2022 小Sarah:前线目前出现更多自我救援的西方面孔，他们也加入到自愿宣传咱们新中国联邦的队伍中，因为通过小一个月来对我们的观察，这些国际救援者认识到我们新中国联邦与中共的不同。很多人下载了我们的盖特，他们的盖文得到大量点赞、转发。
 
-信息来源：[https://www.gettr.com/post/p123ivre271](https://www.gettr.com/post/p123ivre271)
-
-编辑：东京樱花团/asket、小火苗（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,27 +2,24 @@
 ---
 
 
-## 有声｜录音曝上海瞒疫情：检测阳性不公布 私下通知本人
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2250784/)
+## 美国防预算创新高 拨款资助乌克兰
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2251005/)
 
-**By:秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯入侵乌克兰一月有余，世界各国纷纷制裁俄罗斯外也以实际行动力挺乌克兰。美国总统拜登3月28日宣布2023年度的政府预算案，国防经费就多达8130亿美元创下史上新高。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/canvas-24.png)图片来源：法新社
+新预算中还将拨款6.82亿美元，资助乌克兰抵抗俄罗斯。而北约和日本、南韩以及澳洲，也预计在4月上旬召开外长会谈，针对乌俄问题进行讨论。
 
-**2022-03-29**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/新聞封面7.png)图片来源:新唐人
-**[新唐人](https://www.ntdtv.com/gb/2022/03/28/a103385880.html)**3月29日报道，上海市本轮疫情大爆发，当局已通报上万例感染，但依然涉及隐瞒疫情。网传电话录音显示，有上海市民公开的核酸检测结果为阴性，但官方电话通知是阳性。
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022329W0126](https://www.ftvnews.com.tw/news/detail/2022329W0126)
 
-网上传出的这段电话录音中，一名疑似政府工作人员通知一名女性市民，称她已经上了上海疾控中心的“阳性人员名单”，已被确认为阳性，但不会给她公开发送阳性通知，当局要求她在家“静心修养”。
+撰稿/发布：一叶知秋
 
-该女性市民一再询问自己看到的检测报告为什么是阴性的，对方回答目前全上海市都是这种情况，阳性报告不再公开发到个人手机上，而是以所谓“点对点”的方式私下通知个人。
-
-自由亚洲电台22日引述知情人士的消息说，上海当地官员害怕丢官，已不再上报感染者人数，因此感染者可能越来越多。
-
-（秘翻新闻 二丫编辑报道）
-
-发布:星星
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

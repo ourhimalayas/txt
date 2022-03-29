@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/29/2022 9:05 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group16/origin/2022/03/29/08/a716188e-160c-e26e-c0f9-2034aa598211/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/29/2022 5:24 AM (UTC)`
 
 【Ukraine Rescue】03/27/2022 Sarah: More independent western rescuers have shown up now on the front line. They have voluntarily started promoting our NFSC because after observing us for a month, these international rescuers realized the difference between our NFSC and the CCP. Many people have downloaded our Gettr, and their posts have gotten a lot of likes and reposts.<br/><br/><br/>【乌克兰救援】03/27/2022 小Sarah:前线目前出现更多自我救援的西方面孔，他们也加入到自愿宣传咱们新中国联邦的队伍中，因为通过小一个月来对我们的观察，这些国际救援者认识到我们新中国联邦与中共的不同。很多人下载了我们的盖特，他们的盖文得到大量点赞、转发。<br/>
@@ -149,15 +156,6 @@
 
 欢迎晚上美东7点左右收看节目，国内逃出战友来电。
 ![img](https://media.gettr.com/group39/getter/2022/03/28/18/f449ded0-5cb9-2cce-cd28-754621e7f81b/f353cc858cf9d7ca035a93d6934009a5.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@globalalliance 3/28/2022 5:24 PM (UTC)`
-
-When you come to Medika, you need a local mobile phone card and WiFi to contact your family. The New Federal State of China (#NFSC) has united with a mobile phone card company to provide free mobile phone cards and WiFi. And the WiFi password is our goal: take down the #CCP!<br/>来到梅迪卡的难⺠，需要当地手机卡和WiFi与家人联络。 #新中国联邦 联合一家手机卡公司，提供免费的手机卡和WiFi。而WiFi的密码就是我们的目标： #灭掉中共!
-![img](https://media.gettr.com/group6/origin/2022/03/28/17/4d28bed0-452c-848a-a8f6-8b92f68b34d9/out.jpg)
 
 ---
 
