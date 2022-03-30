@@ -2,27 +2,29 @@
 ---
 
 
-## 加拿大将致力发展新型核能计划
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258497/)
+## 中共上海开始调动民兵加强封控
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2258511/)
 
-编译撰稿：加拿大温哥华杨帆农场 – 活力人生
+**撰稿：日本东京方舟农场  海星**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-13-1.jpg)图片来源：CNNPN
+3月29日，中共社交媒体平台微博上的一篇贴文显示，上海已开始调动民兵加强执行封城措施。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-379.jpg)（图片来源：网络）
 
-据【加拿大广播公司】3月28日报道，萨斯喀彻温省、安大略省、新不伦瑞克省和阿尔伯塔省最近联合发布了通过[小型模块化核反应堆]来发展该国核能工业的战略计划。
+据《自由时报》报导，网友“海牛蕾姆”于29日晚间在微博上发帖表示，上海已经开始调动民兵以加强封控，配图中可见民兵背后贴着“杨浦民兵”、“虹口民兵”的名牌。
 
-报道称，该计划中的新型核反应堆比传统的更小但更有效。因此，这使得相关设备能更容易被运输，安装和建造。据悉，每座[小型模块化核反应堆] 可产生三倍于传统反应堆的能量，并足以为 30多万个家庭全年供电。
+该报导指出，由于中共上海政府借由疫情扩散无预警宣布封城，导致人力物资不足，引发民怨。据悉，多个小区居民与防疫人员或警察之间因民生物资紧缺问题而爆发严重冲突。
 
-对此，各省相关部门表示，新的核能计划可为全国特别是偏远地区居民提供安全、可靠和清洁的电力来源。加拿大因此有望在未来成为该技术的主要输出国。
+有小区居民因被封锁26天没有收到任何物资，几近断粮，集体向警察抗议要求解决生活物资问题；有小区居民走出家门，用大喇叭高呼：“我们要吃饭！我们要上班！我们要自由！”，甚至有居民与防疫人员发生肢体冲撞。
 
-文贵先生在日前的直播中也指出，未来的清洁能源必将成为全球工业发展的主导。而试图通过原油，天然气等制约欧洲和世界生存的时代即将一去难返。
+参考链接：
+1.[https://news.ltn.com.tw/news/world/breakingnews/3876398](https://news.ltn.com.tw/news/world/breakingnews/3876398)
+2.[https://gettr.com/search?q=%E4%B8%8A%E6%B5%B7](https://gettr.com/search?q=%E4%B8%8A%E6%B5%B7)
+3.[https://gettr.com/post/p11zz1qd766](https://gettr.com/post/p11zz1qd766)
+4.[https://gettr.com/post/p12kxfk6a78](https://gettr.com/post/p12kxfk6a78)
 
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接： [https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928](https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928)
+总编：青城道姑
+校对发布：爱放飞
 
  
 

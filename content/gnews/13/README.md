@@ -2,40 +2,35 @@
 ---
 
 
-## Facebook广告商可就广告费率提起集体诉讼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2258850/)
+## 樱花FM|中日财经爆:中石化暂停多个俄罗斯项目 因中共害怕被制裁
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2259034/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3857-edited-2.png)图片来源：reuters.com
-3 月 29 日（路透社）——美国法官周二裁定，指控脸书元宇宙平台Meta在其“潜在影响力”工具方面欺骗广告商的诉讼，可以作为集体诉讼进行。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-6-11.png)
+据路透社3月25日报导，中共国国营中石化集团已经暂停了在俄罗斯的一项重大石化投资和天然气营销企业的谈判，中共政府因惧怕被制裁，要求中石化谨慎行事。
 
-美国旧金山地区法官詹姆斯·多纳托 (James Donato) 的决定允许自 2014 年 8 月 15 日以来，在 Facebook 及其照片共享应用程序 Instagram 上支付广告费用的数百万个人和企业，作为一个群体提起诉讼。
+消息人士表示，在俄罗斯入侵乌克兰之后，中共国的三大国营能源事业巨擘——中国石化、中国石油、中海油持续评估美国和欧洲的连串制裁行动对其在俄罗斯巨额投资的影响。各自成立了专门小组，负责处理与俄罗斯有关的事务，正在制定业务中断的应急计划。
 
-该诉讼始于 2018 年，当时，DZ后备队（ DZ Reserve） 和其他广告商指责 Facebook 夸大其广告覆盖面，将潜在观众数量增加多达 400%，并人为地收取高额的广告投放溢价。
+本月稍早，中共国外交部召集这三家公司高管，检视他们与俄罗斯合作伙伴的商业关系和在当地的业务。当局敦促这些企业不要采取任何轻率的举动抢进俄罗斯资产。
 
-他们还表示，Facebook 的高级管理人员多年来都知道该公司的“潜在影响力”指标被重复和虚假账户夸大了，但却没有采取任何措施，但却掩盖它。
+中国石化与西布尔
 
-在指出 Meta 对类别认证的“大错特错”反对意见后，法官多纳托驳回了其关于该类别过于多样化的论点，包括“大型复杂公司”以及个人和小型企业，并且很难计算损害赔偿。
+中国石化原计划投资3亿至5亿美元与俄罗斯最大石化集团西布尔（Sibur）合作，开发一个类似于东西伯利亚价值100亿美元的阿穆尔（Amur）天然气化工园区的项目，其中40%由中国石化拥有，60%归西布尔所有，将于2024年投产。
 
-多纳托还表示，考虑到“没有合理的人”会单独起诉 Meta 以追回最多 32 美元的溢价，所以让个别原告作为一个群体起诉是有道理的。
+在意识到西布尔的少数股东兼董事会成员格纳迪·季姆琴科（Gennady Timchenko）已受到西方制裁后，中国石化踩了刹车。欧盟和英国上个月对俄罗斯总统普京的长期盟友季姆琴科以及其他与普京有联系的亿万富翁实施了制裁。
 
-预计法官将在今年晚些时候考虑 Meta 提出的驳回诉讼请求。
+中国石化与诺瓦泰克
 
-素材链接：[Facebook advertisers can pursue class action over ad rates](https://www.reuters.com/business/facebook-advertisers-can-pursue-class-action-over-ad-rates-2022-03-29/?utm_source=Sailthru&amp;utm_medi)
+消息人士表示，中国石化还暂停了与俄罗斯天然气生产商诺瓦泰克（Novatek）成立一家合资企业向中国营销俄罗斯天然气的谈判，原因是担心诺瓦泰克的股东之一俄罗斯联邦储蓄银行被列入最新的美国制裁名单。
 
-* * *
+诺瓦泰克是俄罗斯最大的独立天然气生产商，该公司于2019年与中国石化和天然气工业银行（Gazprombank）达成一项初步协议，将成立一家合资企业，向中国销售液化天然气并在中国分销天然气。
 
-审核：文乐
-校对：小乐
-发布：夜来香
+文字版原文：[中日财经爆┃中石化暂停多个俄罗斯项目 因中共害怕被制裁](https://gnews.org/zh-hans/2234553/)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+编辑：东京樱花团/asket
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
 
  
 
