@@ -2,52 +2,34 @@
 ---
 
 
-## 诗歌《这一年的生死证据》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259724/)
+## 有声|以太坊正在向产权证明区块链转型
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259728/)
 
-整理：vale
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月23日，外媒报导称，作为世界第二大加密货币的以太坊，正在从工作证明共识机制转向产权证明共识机制。按计划，以太坊将在2022年上半年过渡到这种机制。预计这一转变将减少99.95%的能源使用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+产权证明是区块链网络为实现分布式共识建立的一种新的共识机制。它要求用户将自己的数字货币入股，成为网络中的验证者。验证者负责与工作证明中的矿工相同的事情：订购交易和创建新区块，以便所有节点都能就网络的状态达成一致。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0942.jpg)
+对比工作证明，产权证明共识机制有诸多优势：首先，不需要用大量能源挖掘区块，有更好的能源效率，可以结束加密货币的能源消耗困境。其次，不需要用高级硬件创造新的区块，降低准入门槛，减少硬件要求。再次，网络中会出现更多节点，对中心化有更强的免疫力。最后，将扩展以太坊网络的一个关键升级，对区块链的支持力更强。
 
-## **这一年的生死证据**
+使用产权证明共识机制后，验证者不必相互争夺，在能源和计算硬件上花费巨大。以太坊将是使用产权证明的最大网络，并已经为该系统建立了一个新的区块链。该区块链一直在平行运作，而且正在将实际执行交易和用户资产的转移合并到新的系统。
 
-作者：俞心樵
+文字版原文：[以太坊正在向产权证明区块链转型](https://gnews.org/zh-hans/2247045/)
 
-这一年血写的雪
-像不远处的幸福
-晃得我睁不开眼
+音频处理：Fei797
+发稿：Fei797
 
-这一年因瘟疫去世的每一个人
-政府都将给他们足够的补偿金
-前提是必须死者本人提出申请
-
-我笑了。就在熄灯之后
-因为我笑得过于苦涩丑陋
-愿黑暗抹去生活的全部细节
-
-等到旧衣服磨损得快要透明，我们
-就可以在天亮之后，换上新的灾难了
-云朵就是我在大地上曾经生活过的证据
-
-2020.2.17.简言居
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：信心的选择
-
-当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 

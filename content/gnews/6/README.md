@@ -2,52 +2,52 @@
 ---
 
 
-## 世界卫生组织警告必须保持社会监督
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2259720/)
+## 诗歌《这一年的生死证据》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259724/)
 
-作者：纽约香草山农场 – 四季
+整理：vale
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0942.jpg)
 
+## **这一年的生死证据**
 
+作者：俞心樵
 
+这一年血写的雪
+像不远处的幸福
+晃得我睁不开眼
 
-据[布赖特巴特新闻网](https://www.breitbart.com/health/2022/03/30/w-h-o-warns-social-surveillance-must-remain-even-as-global-coronavirus-cases-plunge/)3月30日报道，世界卫生组织（W.H.O.）在周三警告说，即使全球中共病毒病例骤减，各国政府仍需要执行严格的社会监控水平，以阻止现在和未来任何可能的复发。
+这一年因瘟疫去世的每一个人
+政府都将给他们足够的补偿金
+前提是必须死者本人提出申请
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234497798-640x480-1.png)ANDREAS SOLARO/AFP Getty Images
+我笑了。就在熄灯之后
+因为我笑得过于苦涩丑陋
+愿黑暗抹去生活的全部细节
 
-美联社报道说，在过去的一周里，全球约有1000万新的中共病毒感染者和超过45000人死亡，而此前一周的死亡人数下降了23%。
+等到旧衣服磨损得快要透明，我们
+就可以在天亮之后，换上新的灾难了
+云朵就是我在大地上曾经生活过的证据
 
-世界卫生组织全球六个地区都报告了病例发生率的下降，特别是东地中海（下降32%）、非洲（下降29%）和西太平洋（下降24%）。
+2020.2.17.简言居
 
-在欧洲，过去一周占全球所有新登记病例的49%，病例数下降了4%。
+* * *
 
-面对全球病例下降的好消息，世界卫生组织仍然警告说，减少监测将会特别损害检测新的COVID变种的努力，并破坏潜在的反应。
+审核：Aries的星
+校对：小东
+发布：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
-
-
+当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
 
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 
