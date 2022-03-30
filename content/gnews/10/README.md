@@ -2,45 +2,26 @@
 ---
 
 
-## 那些仍在购买俄罗斯原油的公司名单
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256468/)
+## 美参议员卢比奥：中共是美国的最大威胁，美国需要动员全社会来对抗中共
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2256566/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 翻译/撰稿：zzballack
 
-翻译/编辑：小红帽
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-21.jpg)图片来源：华盛顿观察家报
+据《大纪元》3月29日报道，美国参议员马可·卢比奥（Marco Rubio）3月29日在美国保守派智库传统基金会(Heritage Foundation)就俄罗斯和中共带来的危险发表演讲时表示，中共是美国和美国人民的最大威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123477646_gettyimages-1094171426.jpg)图片来源：BBC
+卢比奥说：“几十年来，中共一直在隐藏他们的真实野心，那就是重塑全球秩序、成为世界上最强大国家。但现在，他们不再隐瞒了。在习近平的统治下，中共正在进行一场破坏国际秩序的运动，通过削弱大国和迫使小国依赖中共国来建立一个对自己更有利的体系。”
 
+卢比奥表示，冷战后，认为不受约束的自由贸易和全球主义会带来世界和平的想法是美国领导层“最大的地缘政治失误”。“过时的经济利益阻碍了美国打击中共间谍活动的努力，美国大公司的游说企图淡化了禁止进口中共国奴工产品的立法。如果我们的公共政策仅仅建立在对企业利润的追求上，那么我们将永远无法直面威胁。我们不能仅仅只靠政府，还需要动员全社会来共同应对中共带来的威胁。”
 
-根据Aljazeera 3月29日报道，在莫斯科入侵乌克兰后，包括美国在内的几个西方国家全面禁止俄罗斯能源进口，但依赖俄罗斯石油和天然气的主要欧洲经济体因为欧盟的分歧而避开了这个严厉的措施。
+卢比奥表示，这种努力不仅受到大企业的阻碍，由川普政府司法部发起的反间谍计划—中国行动计划 (China Initiative)也被拜登政府叫停，原因是涉嫌种族歧视，但司法部的一项内部调查发现该计划根本就不存在种族偏见的证据。卢比奥敦促总统拜登恢复该计划，并说努力修改它比直接终止它更可取，“如果它需要改进，那让我们来改进它。”
 
-在俄罗斯的侵略引发了几十年来最大的难民危机之后，澳大利亚、英国、加拿大和美国已经禁止进口俄罗斯的石油。
+此外，卢比奥警告说，如果中美之间爆发冲突，美国继续依赖中国制造产品最终将被证明是一个灾难性的国家安全问题。我们需要重振美国的工业能力，以降低对中共国这样的敌对国家的依赖度，特别是在半导体和制药等关键行业，因为依赖于敌对政权国家将使我们脆弱和软弱。”
 
-迄今为止，欧盟27个成员国未能就禁运达成一致，德国警告不要采取可能将经济推入衰退的仓促措施，而匈牙利等一些国家则反对任何禁令。
+总而言之，卢比奥认为，美国需要更大的国内团结，必须在所有政策领域重新关注国家利益，以防止国际自由秩序受到侵蚀和被更加专制的制度所取代。“自2012年以来，习近平的言行清楚地表明，北京认为它现在有足够的实力开始按照自己的形象重塑国际秩序。所以美国今天面临的最大威胁、这个世纪的威胁就是中共。”
 
-欧盟禁运需要所有27个成员国的一致批准。
-
-许多欧洲买家自愿避开俄罗斯原油，以避免声誉受损或潜在的法律纠纷。
-
-大宗商品交易商Trafigura和Vitol等公司继续根据现有长期合同购买俄罗斯原油。
-
-然而，这两家公司都告诉路透社，自俄罗斯入侵乌克兰以来，他们没有达成任何新的交易。
-
-拒绝谴责俄罗斯行动的印度和中共国也继续购买俄罗斯原油。
-
-以下列出了俄罗斯石油的主要买家：
-
-Neftohim Burgas、MiRo、PCK Schwedt、Pertamina、Leuna、Hellenic Petroleum、ISAB、MOL、Zeeland Refinery、Rotterdam Refinery、Hindustan Petroleum、Indian Oil Corporation、Nayara Energy。
-
-新闻来源：[List of companies still buying Russian crude oil](https://www.aljazeera.com/news/2022/3/29/who-is-still-buying-russian-crude-oil)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+新闻来源：[China Is ‘Greatest Threat Facing America Today’: Sen. Rubio](https://www.theepochtimes.com/china-is-greatest-threat-facing-america-today-sen-rubio_4369477.html)
 
  
 

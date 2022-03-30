@@ -2,31 +2,32 @@
 ---
 
 
-## 有声｜俄乌战争引起的粮食危机是二战以来最严重的
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256352/)
+## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
 
-By:**秘翻新闻**
+**图/文｜CP **
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
 
-**2022-03-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-75.png)图片来源 AP Photo/Amr Nabil
-[据美联社联合国3月29日报道，联合国粮食署署长周二警告称，俄乌战争造成了一场灾难之上的灾难，并将产生超出二战以来最严重的全球影响，因为许多曾生产大量小麦的乌克兰农民现在正与俄罗斯人作战。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-[乌克兰和俄罗斯生产全球30%的小麦、20%的玉米和 75%-80%的葵花籽油。世界粮食计划署50%的粮食都来自乌克兰。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-[比斯利表示，乌克兰的战争正在将数百万人的世界粮仓变成杂草，像埃及这样的国家通常会从乌克兰获得85%的粮食，而黎巴嫩则在 2020年获得了81%的粮食，在饱受战争蹂躏的也门，那里 800 万人的食物分配刚刚减少了50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
 
-[比斯利还表示，世界粮食计划署目前正在向乌克兰境内约100 万人提供食物，到 6 月底有望达到 600 万人，资金缺口将达到约3亿美元。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
 
-[比斯利警告称，关注乌克兰不应导致国际社会忽视非洲，尤其是萨赫勒地区和中东，否则，将有大量移民来到欧洲各地。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
 
-[据报道，随着俄罗斯“扼杀乌克兰的出口”，食品价格飞涨，今年迄今为止小麦价格上涨了 20-50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
 
-秘翻新闻 文洋 编译报道
+可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
 
-发布 : 恩典
+来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

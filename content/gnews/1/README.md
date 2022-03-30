@@ -2,23 +2,24 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 樱花FM|谈古论今: 用海因里希事故法则看普京惹的大祸
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2256654/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-82.png)
+普京无论是从个人一门心思要超越列宁斯大林做俄国历史上最“伟大”的大帝，还是从俄国国运的角度看，这次，绝对是惹了大祸。大帝非但做不成，沦为落水狗已成定局，甚至命丧黄泉也不是不可能。俄国的国运恐怕会长时间陷于低迷，难以重振。
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+这场入侵乌克兰的战争，普京大帝从设想三五天拿下乌克兰到深陷乌克兰挨打被打，就像一场人为操作失误发生的重大机械事故。有个著名的海因里希1∶29∶300事故法则，美国的安全工程师海因里希对55万件机械事故调查分析后总结出来的事故规律，即：每1件造成死亡的事故之前，必然有29件轻伤事故，和300件未产生人员伤害的事故发生。也就是说，天下无偶然，劝君莫侥幸。
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
+回放历史镜头看，俄罗斯继承前苏联的衣钵，在全世界炫耀武力，不知道有过多少“走麦城”的失败，累积起来终于酿成了此次“大祸”！就看这次鹅军抄着比美国落后多个版本的武器，沿袭着二战的古董战略战术，在狂妄大帝的幻想中出的大大小小莫名其妙的“事故”，谁都能看到这次普京可是“一脚踢到了钢板上”。
 
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+同样，邪恶同盟轴心的中共国也是一样，无论内政还是外交的所有手段，从来不是欺骗就是使坏，就像海因里希事故法则揭示的规律，如此这般几十年恶上加恶，终将酿成大祸！不过这次的“大祸”将是不可修补、不可逆的、彻底崩溃的“杀身之祸”！
 
-* * *
+文字版原文：[谈古论今 | 用海因里希事故法则看普京惹的大祸](https://gnews.org/zh-hans/2229779/)
 
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

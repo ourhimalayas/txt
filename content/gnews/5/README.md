@@ -2,48 +2,44 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.30）急性髓系白血病M4中危
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256549/)
+## 中共国将工人限制在工厂内，以便在关闭期间维持生产
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2256622/)
 
-整理：雅典娜情报组(BENJ1)
-编辑：小红帽
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+编译：七龙珠
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-30-101413.jpg)图片来源 : eleconomista.es
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+中共国有些地区的新一轮的更严格的停产有可能再次打击工厂生产，从而再次打击全球供应链。因此，工厂开始创造“环境”，将员工在厂隔离数周，以维持生产。
 
-帖子原文：
+自2020年初的新冠病毒席卷武汉市以来，全国最大的一次爆发，使得北京对其已经很有名的“清零政策”战略越来越严厉，并导致深圳和东莞等地区的工厂和技术中心的关闭。自大流行病爆发以来，这种瓶颈的新恶化可能是对世界贸易的最后一击，世界贸易也因乌克兰发生的事情而受到波动。
 
-**急性髓系白血病M4中危**
+尽管有严格的限制，广东省南部的一些工厂还是获得了官方许可，只要工人不离开工厂，就可以继续运营，迫使他们在与社会隔离的“环境”中工作。
 
-2021年我认为熬过疫情，一切都会好起来，没想到在接种完（新冠）疫苗的两个月后，单位体检，查出三系低，让我去大医院确诊。那天我正在早高峰上班的路上，脑袋一片空白，我急忙放下手下工作，去做了血常规各项血液检测。下午出结果，等待的过程真叫人害怕。下午去拿结果，大夫建议骨穿，我又做了骨穿。
+世界上最大的汽车零部件制造商之一的博世优派就属于这种情况，该公司能够维持其在深圳龙岗区的工厂的生产，因为大约200名工人同意在本月为期一周的停工期间住在工厂的宿舍里。博世优派中国区总经理Marco Morea告诉《金融时报》：“他们帮助公司度过这一周的承诺是不可思议的。”
 
-第二天下午，骨穿结果让我崩溃了，歇斯底里地崩溃。我还有个女儿，才五岁，我自己也才35岁。我从来都不会想到我平时健康的身体能得白血病，感觉好陌生，但是我必须接受现实，赶紧安排住院，化疗。大夫说要移植，可我是80后，没有兄弟姐妹。父母离异早，和父亲根本没有联系。母亲年龄大，医生也不建议。医生说只能在骨髓库里找，我不知道我能否痊愈，回归到正常生活。第一个疗刚刚结束，我马上要奔赴下一个疗，给自己个鼓励，加油＾０＾~一切都会好起来的。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/14-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/17-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/18-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/19-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/21-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/22-22.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/23-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/24-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/25-1.jpg)
-跟帖评论选集：
+另一家位于广东的制造公司的总经理说，该公司正在确保其在中国其他地方的工厂有足够的住宿条件，以便在关闭期间工人不必离开，他还在囤积大量的原材料和用品。Omicron变体难以控制，而且具有高度传染性，为了保证中国企业的预期，中共国的严厉限制将至少以某种形式持续到明年。
 
-1. 很多人问我（这病）是否是打疫苗引起的，其实疫苗是个诱因，自身免疫力下降，加上打疫苗，激发身体的基因突变，这个是事实。
-2. 我有个朋友也是打了育苗（新冠疫苗）3个月后查出白血病了。
-3. 我妈也是打完（后患）白血病。
-4. 我今晚也接到朋友电话，妈妈被确诊白血病，希望来北京看病，让我帮忙联系挂号。问他如何确诊的，也提到一句，说是半年前疫苗打完没多久就开始全身痒，之后就被确诊急性白血病。本来想来查查急性白血病如何治疗，没想到评论里看到这么多都是打完疫苗够大病的，天呐！
-5. 妹妹家的孩子三岁，10月31号接种的，之后就不舒服，现在在省医院检查初步判断为急性白血病，等待骨穿结果中。希望一切会好。
-6. 我母亲也是（打）疫苗后两个月查出髓系白血病的！
-7. 不要评论了，会被平台删的。这样其他人就看不见民众的声音了。
-8. 唉，我们这去年下半年也有人（打）疫苗后白血病去世的，我跟别人说这事，别人都不相信，觉得（我）在造谣。
-9. 我爸也是打完疫苗开始没劲，今天突然确诊，感觉天要塌了。
-10. 我奶奶也是，疫苗打完急性髓系白血病。以前查过血液，血小板比较低，但是一直吃药维持。突然血小板直接降到几乎没有，查出白血病，真的太突然了。
+这种情况使制造商争相在不违反严格限制的情况下维持生产。某制造商试图在通往工厂的高速公路上建立一个新冠测试中心。
 
+在上海，特定的住宅区实行了局部的行动限制，一些工人为了工作得到报酬，被迫睡在工厂的地板上。很多的网民对员工被迫在公司生活的不合格条件表示担忧。
 
-参考链接：[急性髓系白血病M4中危](http://www.xiaohongshu.com/discovery/item/61614d530000000001025bb0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648606632)
+东莞富强电子公司是一家台湾苹果供应商，他们在工厂周围搭建了帐篷，以安置住在其他地方的工人。在网上分享了该设施的照片后，该公司被投诉，拆除了帐篷。一位选择留在工厂的公司员工说，她没有住在帐篷里，而是睡在工厂的地板上，睡了六天。“我们都睡在地板上，用硬纸板做床垫”。
 
-发布：tianzhihuan
+北京的“清零”政策将持续多久？“我仍然认为在党代会之后，目前的政策不会有任何重大变化，也许要到2023年才会有变化”，牛津大学中国研究中心助理George Magnus告诉记者。他补充说，“允许制造商之间有一些灵活性可能还不够，因为经济的其他部分，如服务部门，将继续由于现有的限制而受到影响。习近平政府在关闭工厂的过程中给予工厂的回旋余地，并不意味着中国正在废除‘清零’战略，中共国将维持零容忍态度”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+新闻内容：[China confina a trabajadores en las fábricas para mantener la producción durante los nuevos cierres por covid](https://www.eleconomista.es/economia/noticias/11685568/03/22/China-confina-a-trabajadores-en-las-fabricas-para-mantener-la-produccion-durante-los-nuevos-cierres-por-covid.html)
 
+* * *
+
+审核：Aries的星
+校对：信心满满
+发布：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
