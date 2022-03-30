@@ -2,34 +2,45 @@
 ---
 
 
-## 乌克兰将成为新世界国家安全体系的创始人和领导者
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2256536/)
+## 那些仍在购买俄罗斯原油的公司名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256468/)
 
-**撰稿：日本东京方舟农场  北极**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据经济学人（The Economist）3月29日报道，乌克兰总统府办公厅主任接受采访时表示，通过世人瞩目俄乌战争，已经宣告结束了自第二次世界大战结束以来一直适用的国际安全体系，乌克兰将成为新世界国际安全体系的创始人和领导者。
+翻译/编辑：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-366.png)乌克兰总统府办公厅主任安德烈·耶尔马克（Andriy Yermak）。（图片来自The Economist）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123477646_gettyimages-1094171426.jpg)图片来源：BBC
 
-乌克兰总统府办公厅主任安德烈·耶尔马克（Andriy Yermak）指出，俄乌战争爆发五周以来，通过乌克兰人民的顽强抵抗，成功阻止了俄罗斯侵略者的步伐，让世界重新认识乌克兰。
 
-在乌克兰独立30年的时间里，该国与西欧国家政府的关系并不亲密，甚至与外国领导人互通电话时，对方的态度也显得不冷不热，至于加入北约的提议，也大多予以拖延应对。
+根据Aljazeera 3月29日报道，在莫斯科入侵乌克兰后，包括美国在内的几个西方国家全面禁止俄罗斯能源进口，但依赖俄罗斯石油和天然气的主要欧洲经济体因为欧盟的分歧而避开了这个严厉的措施。
 
-然而乌克兰人民在五周内出乎意料的激烈抵抗行为改变了这一切。泽伦斯基总统现在经常是一天接到多达十几个高级别电话。耶尔马克坚称，如果我们有足够的重武器，乌克兰有能力反击和解放被侵占的领土。
+在俄罗斯的侵略引发了几十年来最大的难民危机之后，澳大利亚、英国、加拿大和美国已经禁止进口俄罗斯的石油。
 
-耶尔马克认为，目前世界上只有屈指可数的一、两支军队具有抵抗俄罗斯军队一个月的作战能力。相信北约组织最感兴趣的应该是展现出强大实力的国家作为伙伴。
+迄今为止，欧盟27个成员国未能就禁运达成一致，德国警告不要采取可能将经济推入衰退的仓促措施，而匈牙利等一些国家则反对任何禁令。
 
-早前之所以对乌克兰加盟北约持反对意见，是担忧与俄罗斯的战争升级，发生殃及世界的灾难。但随着俄军入侵搁浅，乌克兰人民以及领导层已经变得非常自信。这标志着，自第二次世界大战结束以来一直适用的国际安全体系已经结束。在新的框架中，乌克兰将作为该体系的创始人和领导者之一，自然而然地占有一席之地。
+欧盟禁运需要所有27个成员国的一致批准。
 
-耶尔马克指出，世界各地不同国家的人们已经走上街头，举行大型集会声援乌克兰。他认为，如果西方政客不接受这一点，他们自己的选民可能会解雇他们。他们的选民已经投票决定设立乌克兰禁飞区，现在他们还将投票决定乌克兰将成为欧盟的一部分。
+许多欧洲买家自愿避开俄罗斯原油，以避免声誉受损或潜在的法律纠纷。
 
-耶尔马克认为，泽伦斯基已经抓住了世界的想象力，尤其是年轻人的想象力。我记得许多反对派政客开玩笑说，他不是一个合适的领导人。在耶尔马克看来，今天，泽伦斯基是自由世界的领袖。
+大宗商品交易商Trafigura和Vitol等公司继续根据现有长期合同购买俄罗斯原油。
 
-参考链接：
-[https://www.economist.com/europe/2022/03/29/the-war-has-changed-everyones-view-of-ukraine](https://www.economist.com/europe/2022/03/29/the-war-has-changed-everyones-view-of-ukraine)
+然而，这两家公司都告诉路透社，自俄罗斯入侵乌克兰以来，他们没有达成任何新的交易。
 
-总编：老孙
-校对发布：爱放飞
+拒绝谴责俄罗斯行动的印度和中共国也继续购买俄罗斯原油。
+
+以下列出了俄罗斯石油的主要买家：
+
+Neftohim Burgas、MiRo、PCK Schwedt、Pertamina、Leuna、Hellenic Petroleum、ISAB、MOL、Zeeland Refinery、Rotterdam Refinery、Hindustan Petroleum、Indian Oil Corporation、Nayara Energy。
+
+新闻来源：[List of companies still buying Russian crude oil](https://www.aljazeera.com/news/2022/3/29/who-is-still-buying-russian-crude-oil)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
