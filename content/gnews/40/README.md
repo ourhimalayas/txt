@@ -2,17 +2,17 @@
 ---
 
 
-## 地产债务爆雷 引发社会动荡
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2257882/)
+## GFASHION HPay付款
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2258053/)
 
 文贵大直播20220330
 
-撰稿：Nine Lee（DC）
+撰稿：小福利（英喜）文徐（DC）
 
-美工：新宝（银河系）
+美工：Maagie（秘翻）
 
 书法：沙漠之花（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-18.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-18.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-2.png)
 *发布：Theodosia*
 
  

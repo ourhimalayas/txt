@@ -2,56 +2,37 @@
 ---
 
 
-## HHS指使推特审查 COVID“错误信息”违反了第一修正案（1/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259022/)
+## 有声|新中国联邦|喜健康 系列节目3月27日首播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259108/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-一个民权组织代表三名男子，正在起诉美国外科医生和美国卫生与公众服务部 (HHS)  ，他们指控政府指示推特审查他们传播 COVID为“错误信息”，这违反了第一修正案。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据文贵先生盖特讯息，3月27日，新中国联邦“喜健康”系列节目首次上线播出，截至发稿已播出两期。参加首播的三位医生都是对新中国联邦和法治基金乌克兰人道救援前线进行医疗支援的联盟团队成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-154.jpg)
+首播中，医生们介绍了前线染疫战友的康复情况和采用的医疗方案。据悉，前线累计约有30位战友感染中共病毒，其中绝大部分已复阴，截至27日还有6位战友正在康复过程中。关于医疗方案，医生们依据爆料革命情报和美国“一线重症联盟”（FLCCC）验证过的治疗方案，并结合现场情况，采用了以伊维菌素、羟氯喹和锌为主药的方案，并曾对伊维菌素的单日用量选用了方案中的最高量即0.6毫克每公斤体重。此外，医疗团队还发现，染病的重要原因之一是战友们忽视了口罩的正确使用。现场有两位战友一直注意全程佩戴口罩，他们都没有感染，可以作为例证。医生们还指出，这一阶段的治疗过程体现出前线和后方的通力合作，包括波兰医生现场提供的具备稳定血压、抑制过敏等用途的处方药。
 
-3 月 24 日，新公民自由联盟 , 在俄亥俄州南区地方法院对外科医生维维克·穆尔蒂（ Vivek Murthy）博士和 HHS 部长泽维尔·贝塞拉（ Xavier Becerra ）提出申诉。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3864.png)图片来源：素材链接
-新公民自由联盟是“由著名法律学者菲利普·汉堡 (Philip Hamburger) 创立的无党派、非营利性民权组织，旨在保护宪法自由免受国家行政的侵犯。”
+在最近的几期直播中，文贵先生反复叮嘱战友们，随着救援的持续开展，完善防病治病的医疗措施也要成为救援前线的工作重点之一。
 
-根据诉状，在 2021 年 5 月至 2021 年 12 月期间，推特暂时或永久暂停了三名原告的账户，他们是马克·昌吉兹（Mark Changizi）、丹尼尔·科钦（Daniel Kotzin）和迈克尔·森格（Michael P. Senger）。
 
-该诉讼称：
 
-“马克·昌吉兹、丹尼尔·科钦和迈克尔·森格（都拥有数万或更多关注者的推特账户。）“他们的推特平台为他们提供了一个社交网络，以及一个表达观点、听取他人观点以及与批评者和粉丝等互动的渠道。”
+文字版原文：[新中国联邦|喜健康 系列节目3月27日首播](https://gnews.org/zh-hans/2252710/)
 
-推特永久暂停了森格的帐户。森格是旧金山的一名律师，他公开批评与 COVID 相关的政策，以及从中共国宣传学的“封锁政策”。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-推特暂停了昌吉兹和科钦的账户。知名理论认知科学家昌吉兹的推特帐户的访问者现在会看到一条警告，上面写着“注意：此人资料可能包含潜在的敏感内容”。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-科钦的推特帐户在撰写本文时仍处于活跃状态，尽管之前已被暂停。作为一名全职父亲，科钦与列维（Levi）的前总裁詹妮弗·赛（ Jennifer Sey）结婚，最近她辞去了职务，声称列维的高管在她公开反对一些与 COVID 相关的政策后欺负了她。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-该诉讼称，这三名男子的账户被暂停，是外科医生和 HHS 宣布的反对“错误信息”政策的结果。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-该诉讼称：
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-“令人震惊的是，美国外科医生和卫生与HHS已指示包括推特在内的社交媒体平台审查有关 Covid-19 的所谓“错误信息”。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-“言论禁令包括后来政府批准为信真实的信息，但当时这与政府关于 Covid-19 的信息相冲突。”
-
-正如《捍卫者》（The Defender）本月早些时候报道的那样，拜登政府和**CDC**主任最近发表的声明与此前有关** COVID **政策的官方声明和公开声明相矛盾。
-
-该诉讼提供了联邦政府“恐吓策略”的时间表，旨在扼杀社交媒体上关于 COVID 的所谓“错误信息”：“3 月 3 日，外科医生要求科技公司交出有关散布此类‘错误信息’的个人的信息，这是一种明显的恐吓策略，HHS 已将其标记为‘信息请求’(RFI)。
-
-“雪上加霜的是，3 月 3 日，外科医生发布了他的 RFI，要求技术平台在 2022 年 5 月 2 日之前，将’关于 Covid-19 错误信息来源的信息’上交政府。
-
-“为了应对政府的压力，推特已经永久封禁了森格先生，并暂时停用了昌吉兹先生和科钦先生。”
-
-未完待续
-
-素材链接：[https://childrenshealthdefense.org/defender/violated-first-amendment-twitter-censor-covid-misinformation/](https://childrenshealthdefense.org/defender/violated-first-amendment-twitter-censor-covid-misinformation/)
-
-* * *
-
-审核：文乐
-校对：小东
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

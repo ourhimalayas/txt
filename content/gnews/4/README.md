@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|郭先生解析民主国家与独裁国家的不同
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259270/)
+## 美国向乌克兰运送100架打击型无人机
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2259337/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月27日，郭先生在大直播中解析了，从世界各国目前对俄罗斯采取的制裁行动中，看到民主国家与独裁国家之间的不同。
+编译：文宝
 
-郭先生提到，中共独裁习近平此人极度奉行个人主义，把国家领导间的私人关系作为国与国外交的关系，并深以为然。习与拜登有一些利益交换，拜登作为老政客，这些都是政治手段，但习错以为这是美国整个国家的态度。而纵观拜登的从政之路，几乎都是对中共不利的政策，包括当年奥巴马对习近平的一番奚落，严格讲其背后操纵者是拜登。
+- 
 
-此次美国对乌克兰的支援，拜登在华沙的演讲，以及欧洲国家从各行各业全民参与的行动，另外还有日本重提宣战权，这些世界上的先进民主国家都在积极呼应。在全世界人类的生死面前都是民意，就是经过了独立思考，以及尊重别人的前提下，共同做出的决定。这是民主与独裁的本质不同，国家利益高于一切，并非个人感情所能决定。
+![AeroVironment Switchblade 600 Drone](https://image.cnbcfm.com/api/v1/image/107031227-1647431669569-switchblade600_300dpi_notext_rev.jpg?v=1647431771&amp;w=929&amp;h=523&amp;ffmt=webp)
 
-而独裁者极度奉行个人崇拜，事事以自己利益为主。无论普金还是习近平，这都是他们本人的战争，和任何俄罗斯人和中国人无关，但因为独裁，使无辜的人都被裹挟其中。
 
-因此，郭先生强调，中国人也只有消灭共产党，才能在地球上重新立足，否则将会永远远离文明世界。
+美国官员3月30日证实，美国在本月早些时候总统乔·拜登批准的为乌克兰提供的巨大武器包中包括了 100 架打击型无人机。
 
-文字版原文：[郭先生解析民主国家与独裁国家的不同](https://gnews.org/zh-hans/2253701/)
+负责国际安全事务的助理国防部长塞莱斯特·瓦兰德告诉立法者，基辅要求提供被称为“神风敢死队无人机”的武器，以抵御俄罗斯的入侵。瓦兰德在众议院军事委员会作证时说：“我们已承诺在最近的计划中交付 100 套 Switchblade 战术无人机系统。”“我们已经听取了乌克兰人的意见，我们非常重视这一要求，”她说。
 
-音频处理：Fei797
-发稿：Fei797
+五角大楼发言人约翰·柯比上周告诉记者，这些无人机将很快抵达乌克兰。 他拒绝进一步详述。乌克兰总统泽连斯基向美国立法者提出增加军事装备的要求后，决定为乌克兰配备被称为“弹簧刀”的打击型无人机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+在乌克兰的战斗中部署弹簧刀可能是这些武器在战斗中最重要的用途，因为目前尚不清楚美军在战场上使用杀手无人机的频率。制造这种武器的美国公司 AeroVironment 拒绝就武器转让发表评论。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该武器有两种变体，即 Switchblade 300 和 600。目前尚不清楚美国部署到乌克兰的是哪个版本。300 变体旨在打击小型目标。 它可以装在背包里，重量略高于 5 磅，续航里程为 10 英里。600版本的武器旨在摧毁坦克和其他装甲车辆。 它的重量略高于 120 磅，航程超过 40 英里。
+
+原文链接：[https://www.cnbc.com/2022/03/30/us-sends-100-killer-drones-called-switchblades-to-ukraine.html](https://www.cnbc.com/2022/03/30/us-sends-100-killer-drones-called-switchblades-to-ukraine.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-60.png)DISCORD
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

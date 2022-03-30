@@ -2,31 +2,17 @@
 ---
 
 
-## 有声｜上海大规模建方舱 官方“做假账”隐瞒疫情
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2257855/)
+## 中共不灭 病毒不止
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2257885/)
 
-**By:秘翻新闻**
+文贵大直播20220330
 
-**2022-03-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/330_10.jpg)上海感染病例激增，大规模建方舱，收治隔离病入。（视频截图来源 新唐人）
-[新唐人](https://m.ntdtv.com/gb/2022/03/29/a103386322.html)北京时间3月29日消息。上海疫情恶化，浦东、浦西已实施交错封城，实施全员核酸筛查。与此同时，上海多地大规模赶建方舱医院，收治隔离病人。
+撰稿：坐看云起时（扬帆）书法：沙漠之花（香草山）
 
-据官方通报，3月28日，上海新增感染病例4477例，再创新高。由于中共一直掩盖疫情真相，外界质疑官方数据可能严重缩水。
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-19.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11.png)
+*发布：Theodosia*
 
-网传视频显示，上海浦东博览中心和浦东世博展览馆均改为了方舱医院，密密麻麻的床位上躺满了病人。
-
-还有视频显示，上海从江苏、浙江调来大批简易方舱，据拍摄者称，一下拉了1万多个。
-
-此外，上海同仁医院、华山医院、第四医院、瑞北医院瑞金医院嘉定院区、华山医院宝山院区、周浦医院、长兴人民医院、闵行体育馆、嘉定体育馆、嘉定嘉荷新苑人才公寓等多个场所已改建成方舱。
-
-另外，近日网上曝光的一段录音披露，上海当局疫情数据“做假账”，隐瞒疫情。录音内容显示，上海疾控中心工作人员电话通知一位女士核酸检测为阳性，但这位女士质疑表示，自己手机里的检测报告是阴性。该工作人员解释称，现在全上海所有阳性报告都不会再直接传到病人手机上，而是以点对点的方式直接通知，阴性内容概系以前的检测结果。
-
-(编辑：Julia)
-
-发布:文橙
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

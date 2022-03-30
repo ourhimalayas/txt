@@ -2,69 +2,52 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月30日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2258935/)
+## 爆料革命 傳播真相 喚醒民眾 棄共 脫共 滅共
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2258962/)
 
-采集整理：蚂蚁的城堡
+作者：香草山醫療部 信望爱
 
-提纲：
+思想決定行動，正確的思想決定正確的行動。正確的思想來源于對真相的見聞，當真相與真理不能為大眾所知，便無法形成對真相與真理的最廣泛共識，大眾的行為便難言正確。當真相被掩蓋則謊言必然當道。文貴先生曾經說过，當人類社會的谎言壓倒真相時、其殺傷力遠超核彈。謊言必然帶錯誤的思想，并由此使大眾產生錯誤行為，其所導致的人類大災亂的惡果，只能成為人類歷史的遺憾！
 
-1、恒大项目权益转让，恒大物业134亿元的存款质押被强制执行
+百年中共專制、謊言、欺騙、爆力禁言給中國人民、世界人民帶來的災難舉世無雙、前無古人 後無來者，共產制度之惡無人不受其害。中共以馬列邪教為理論基礎，妄想以共產極權統治世界，奴役全球人民。中共以開放合作的名義，用謊言欺騙全球、藍金黃美國，達到搞亂美國、搞弱美國、搞死美國之邪惡目標，中共病毒及毒疫苗之惡 、實施滅美滅白等等種種惡行滿天下。
+中共大內宣、大外宣海嘯般的謊言和垃圾信息充滿全世界人民的眼耳，所看所聽所說大都是假的，潮水般接種疫苗的人們，懷著防疫的希望，獲得的確是病毒感染更猖狂，并最終導致無數無辜的人民死亡。
 
-2、阿里系、腾讯系互通新进展：淘宝App内测微信支付
+文貴先生領導爆料革命，通过幾千次的直播和大直播，經由GTV、GETTR、GNEWS 等言論自由的自媒體平台、將中共邪惡真相大白天下。傳播中共的專制之惡、并形成全球范圍內的廣泛共識，是滅共產制度的關鍵，這符合包括既得權益者在內的全球每一個人的根本利益。这是全球滅共統一戰線的利益基礎。
 
-3、IPO企业主动中止潮，9天71个IPO按下暂停键！
+挺郭滅共的戰友們當大力發推廣使用GTV、GETTR、GNEWS 等言論自由的自媒體，辦好新中國聯邦的各種傳播爆料革命、講真相、說真話的媒體，并最終取代全球谎言媒體、滅掉中共大列宣、成為全球新主流媒體！
 
-4、俄罗斯提议以卢布回购即将于4月4日到期的20亿美元欧洲债券
+滅中共方能止謊。滅共先用真相滅中共謊言。彻底反擊中共輿論超限戰，才是滅共產制度的關鍵。以公義、真相、良知為基礎尋求共識并廣泛傳播，是滅共救人類的最佳途徑。
 
-5、国家监管机构打击 Voyager Digital 的加密利息产品
+文貴先生領導的、有億萬戰友追隨參加的爆料革命，己經喚醒全球滅共的正義力量，文貴先生部署的以美滅共、以法滅共、以毒滅共、以苗滅共、以錢滅共、以歌滅共、以共滅共，步步為營、步步得勝。跟著共產黨走向火葬場，己被無數的歷史和現實驗證，并成為自由人民的廣泛共識，棄共、脫共、滅共是體制內外有志之士保命保財的唯一選擇。文貴先生直播時曾經多次強調，滅共的三道大門己經全部開啓，中共早己名存實亡，剩下的是寡頭之間的權力爭奪與不死不休的相互絞殺。中共精心策劃的冠狀病毒及毒疫苗生化超限戰滅人類、即將進入全球災難爆發期，由此導致全球前所未有的經濟危機、糧食危機和人道危機，將會使中共借疫情之名、以封城滅人為手段的維穩保權力模式成為常態；中共支助俄羅斯普京全面入侵烏克蘭，并即將借機攻打台灣，將導致國際社會的全面脫勾制裁。將使中共在全球正義聯盟的圍絞之下最終灰飛煙滅！
 
-6、Axie Infinity 遭受网络攻击损失 6.25 亿美元
+向爆料革命的發起者、領導者七哥文貴先生致敬！
+向億萬挺郭滅共的戰友們致敬！
 
-正文
+願勝利歸于爆料革命新中國聯邦及十四億中國人民！
+願榮耀歸于我們的上帝！
 
-**1、恒大项目权益转让，恒大物业134亿元的存款质押被强制执行**
-![img](https://media.gettr.com/group9/origin/2022/03/30/01/6155f679-915b-767a-b04c-aa7b61999d2d/627bbe36cd91f9c1168fcb28d8845424_500x0.png)
-3月30日深陷债务泥沼的中国恒大集团周三早间公告称，附属公司杭州晶立置业将持有的水晶城项目权益转让予受让方浙江省浙建房地产集团和浙江省建工集团，总代价约为36.6亿元人民币，预期本次出售将会录得收益约2.16亿元。恒大周二晚间公告称，对于恒大物业有约134亿元的存款质押被相关银行强制执行一事，已成立独立调查委员会进行调查。
 
-链接: [https://cn.reuters.com/article/evergrande-selling-project-hangzhou-0330-idCNKCS2LR03C?il=0](https://cn.reuters.com/article/evergrande-selling-project-hangzhou-0330-idCNKCS2LR03C?il=0)
 
-**2、阿里系、腾讯系互通新进展：淘宝App内测微信支付**
-![img](https://media.gettr.com/group25/origin/2022/03/30/01/1011b5b6-91dd-379c-0cbf-be67e6aa78a5/8f94fddb4d69c9b2817645ae231cd3ff_500x0.png)
-继阿里旗下饿了么、优酷等应用接入微信支付后，日前，有传闻称淘宝App已对部分用户开放了微信支付内测。《证券日报》记者第一时间联系淘宝及微信支付方面，截至3月29日发稿前，双方均未予回应。不过，有接近两家机构的业内人士向记者证实了该事件。目前部分淘宝用户可以在“找朋友帮忙付”中，选择复制链接到微信找朋友帮付款。
 
-财经G评：互通？是微信在扩大市场阵地，阿里系和马云被中共打入地窖！
 
-链接: [https://finance.sina.com.cn/money/bank/bank\_hydt/2022-03-30/doc-imcwipii1315046.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-03-30/doc-imcwipii1315046.shtml)
 
-**3、IPO企业主动中止潮，9天71个IPO按下暂停键！**
-![img](https://media.gettr.com/group27/origin/2022/03/30/01/e61bab0d-939e-7469-b547-f79b6943bf51/e454c6649be4b629ac06fc7367f7ef34_500x0.png)
-在最近9天时间里，科创板和创业板累计已有71个IPO项目中止审查。要知道2022年以来，上述两大板块总共也只有89个IPO项目变为中止审查状态。截至3月29日22点，沪深两市又有16个IPO项目按下了暂停键，包括1个科创板项目和15个创业板项目。翻阅交易所网站，16家企业均为主动申请中止审查，其中12家是“因发行人及保荐人更新财务资料”，另外4家则表示是“受到新冠疫情影响”。
 
-链接: [https://finance.eastmoney.com/a/202203292325783110.html](https://finance.eastmoney.com/a/202203292325783110.html)
 
-**4、俄罗斯提议以卢布回购即将于4月4日到期的20亿美元欧洲债券**
-![img](https://media.gettr.com/group20/origin/2022/03/30/02/2da09c19-8c43-bd9f-c6d3-974fd9127c23/2ebd0b870e71652fae0619842addbc0e_500x0.png)
-俄罗斯财政部提出以卢布回购下周到期的20亿美元主权欧洲债券，分析人士认为，此举意在帮助本地持有人获得偿付，同时也减轻俄罗斯的硬通货偿款负担。4月4日到期的欧洲债券是俄罗斯今年最大的债务偿付。此前西方国家因俄罗斯入侵乌克兰而加强对俄制裁，并将莫斯科冻结在国际金融体系之外。
 
-链接:[https://cn.reuters.com/article/russia-euro-bonds-buyback-0330-idCNKCS2LR03Z?il=0](https://cn.reuters.com/article/russia-euro-bonds-buyback-0330-idCNKCS2LR03Z?il=0)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/8bb89a94-5a5c-4a66-9e0b-6e0fb983838e-2.jpg)
 
-**5、国家监管机构打击 Voyager Digital 的加密利息产品**
-![img](https://media.gettr.com/group17/origin/2022/03/30/02/04473fd1-5465-83c3-6355-6fd8dfc5c698/07a286073f861f8f881a30848466ab48_500x0.png)
-美国至少七个州的证券监管机构正在审查加拿大加密投资公司 Voyager Digital 提供的有息加密账户。新泽西州和阿拉巴马州等7个州认为 Voyager Digital 的“赚取计划”账户可能是未注册的证券。阿拉巴马州证券委员会，协调对这家上市公司提起单独的法律诉讼。美国各州为将加密利息账户纳入其监管范围而进行了长达一年的战斗。去年 7 月，BlockFi 是第一家受到他们关注的公司。在支付了 1 亿美元的罚款并承诺将其产品注册为证券后，它最终与州和联邦监管机构达成和解。
+**编辑**/**校对/发稿：**Fei797
 
-链接: [https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/](https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/)
+**更多资讯，更多关注**
 
-**6、Axie Infinity 遭受网络攻击损失 6.25 亿美元**
-![img](https://media.gettr.com/group41/origin/2022/03/30/02/1c98ff5d-0188-3603-ddd3-c27bbb576154/4c8ce16bfd0bfe33dbe685c6979e543b_500x0.png)
-专注于游戏的 Ronin Network 周二宣布损失超过 6.25 亿美元的 USDC 和以太币（ETH）。根据Ronin Network 官方 Substack发布的一篇博客文章，该漏洞利用影响了 Ronin Network 的 Sky Mavis、流行 Axie Infinity 游戏的发行商和Axie DAO的验证器节点。如在 Etherscan 上所见，攻击者在[两](https://etherscan.io/tx/0xc28fad5e8d5e0ce6a2eaf67b6687be5d58113e16be590824d6cfa1a94467d0b7) [笔交易](https://etherscan.io/tx/0xed2c72ef1a552ddaec6dd1f5cddf0b59a8f37f82bdda5257d9c7c37db7bb9b08)中“使用被黑的私钥伪造”来自 Ronin 桥的假取款。该博客文章将损失定为 173,600 以太币和 2550 万美元的 USDC，目前价值超过 6.25 亿美元。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-链接: [https://www.coindesk.com/tech/2022/03/29/axie-infinitys-ronin-network-suffers-625m-exploit/](https://www.coindesk.com/tech/2022/03/29/axie-infinitys-ronin-network-suffers-625m-exploit/)
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-上传排版：文勇
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

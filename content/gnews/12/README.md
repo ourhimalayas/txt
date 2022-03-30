@@ -2,35 +2,22 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月29日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259144/)
+## 乌克兰人已经知道，只有具体的结果才能被信任
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259205/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+制作：peacelv
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-29-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
 
+发稿：信心的选择
 
-
-
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月29日早](https://gnews.org/zh-hans/2253404/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 **更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 
