@@ -2,26 +2,41 @@
 ---
 
 
-## 中日财经爆┃完美世界影视总裁死亡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255794/)
+## 阿布和乌克兰谈判代表与俄会谈后“出现中毒症状”
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2255859/)
 
-撰稿：东京樱花团/加一颗稻草
+作者：华盛顿DC农场 自由信仰
 
-3月28日，完美世界发布公告称：廉洁因身体原因，申请辞去公司联席首席执行官职务，辞职后，廉洁将继续在公司下属子公司担任相关职务。巧的是，就在28日傍晚，廉洁因病在美国去世，享年48岁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-145.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ytimg.com%2Fvi%2FcqgR2FACgeg%2Fmaxresdefault.jpg&amp;imgrefurl=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DcqgR2FACgeg&amp;tbnid=2NsW4HdKnyknWM&amp;vet=12ahUKEwjM2sTV8ez2AhVI8JQKHaOsDxwQMygLegUIARDHAQ..i&amp;docid=6X)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
+天空新闻2022 年 3 月 28 日报道，俄罗斯寡头阿布拉莫维奇和乌克兰谈判代表都出现了疑似“化学武器”中毒的症状。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-368.jpg)图源网络
+据调查网站Bellingcat称：“Bellingcat 可以确认，参加 2022 年 3 月 3 日至 4 日晚上乌克兰与俄罗斯和平谈判的代表团的三名成员出现了与化学武器中毒一致的症状。受害者之一是俄罗斯企业家阿布拉莫维奇。”
 
-据了解，完美世界影视是中国大陆影视文化投资、制作及发行机构之一，主营业务涵盖影视项目开发、制作、发行和营销等，创立于2008年8月。 2016年2月，完美世界影视宣布与美国好莱坞环球影业达成片单投资及战略合作协议。
+在一系列推文中，Bellingcat 补充了更多细节， “阿布拉莫维奇和另一位俄罗斯企业家与乌克兰议员乌梅罗夫一起参加了谈判。3 月 3 日下午的谈判在乌克兰领土上进行，并且一直持续到晚上10点左右。谈判小组的三名成员当晚晚些时候感到最初的症状，包括眼睛和皮肤发炎以及眼睛刺痛，直到早上症状才减轻。根据远程和现场检查，专家们得出的结论是“这些症状很可能是不明化学武器中毒的结果。另一种不太可能的假设是使用微波照射。”
 
-从廉洁的个人能力看其确实才华出众，其履历1996年进入壳牌，1999年到美国读书，2001进入高盛，参与了很多互联网公司的上市，之后任职高盛中国融资部的主管。此后，廉洁和几个高盛的同事联合创立了春华资本。2016年9月23日，完美世界发布人事任命公告，任命廉洁为上市公司总裁及控股集团董事。
+据《华尔街日报》报道，阿布拉莫维奇和另外两名乌克兰团队的高级成员出现了包括红眼、持续和痛苦的流泪以及面部和手部皮肤脱皮等症状。目前，包括克里米亚政治家乌梅罗夫在内，三人的健康状况已经有所改善，没有生命危险。
 
-一语成谶，“跟着共产党，快步走进火葬场。”对于死者我们本该尊重。但是也对他的英年早逝表示惋惜的同时也应该看到，作为共产党的白手套的廉洁在去世后在国内并未得到相应的尊重。国内所有的舆论都引导成“一个美国人死了”。悲哀啊！
+新闻来源：[https://news.sky.com/story/roman-abramovich-and-ukrainian-peace-negotiators-suffered-symptoms-of-suspected-chemical-weapons-poisoning-after-talks-in-kyiv-12576989](https://news.sky.com/story/roman-abramovich-and-ukrainian-peace-negotiators-suffered-symptoms-of-suspected-chemical-weapons-poisoning-after-talks-in-kyiv-12576989)
 
-信息来源：[完美世界影视董事长兼CEO廉洁去世 年仅48岁](https://m.cnbeta.com/view/1252293.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-469.jpeg)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

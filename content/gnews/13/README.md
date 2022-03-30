@@ -2,24 +2,28 @@
 ---
 
 
-## 乌克兰不相信俄罗斯所谓的撤军
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2255734/)
+## 樱花时政┃日本受邀参加北约外长会议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255760/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-208.jpg)
-图片来源：www.ntdtv.com
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/日本受邀参加北约外长会议.png)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=images%20free%20trial-,Japan%20and%20NATO%20handshake%2C%20international%20friendship%20)
+北大西洋公约组织（NATO）3月29日宣布，将于4月6日至7日在布鲁塞尔总部举行外长会议。日本、韩国、澳大利亚和其它国家将被邀请参加4月7日的会议。日本外务大臣林芳的参加正在准备中。预计乌克兰也将受到邀请，各国在应对俄罗斯方面将加强合作。
 
-美联社3月29日报道，乌克兰军方官员说俄罗斯宣布从基辅和哈尔科夫撤军的事情不太可信。
+据北约称，除了日本、韩国、澳大利亚和乌克兰之外，芬兰、格鲁吉亚、新西兰、瑞典和欧盟也被邀请参加7号的会议。其中部分参加者将通过视频连线参加会议。
 
-俄罗斯周二宣布它将从乌克兰首都基辅和北部城市哈尔科夫大规模撤出其兵力，以作为最近一轮谈判终止这场消耗战的一个可能的筹码。
+北约于本月24日举行首脑会议后发布了一份联合声明，警告中共国在支持俄罗斯方面需保持克制。
 
-乌克兰指挥官周二晚些时候说： “有一些征象显示俄罗斯部队正向乌东地区集结，它所谓的 ’撤军’很可能是各个部队之间的轮转，其目的是通过制造误解，好像俄罗斯不围攻基辅了的信息，要误导乌克兰军队领导。”
+信息来源：
+[NATO外相会合へ日本も招待　4月6～7日に開催](NATO外相会合へ日本も招待　4月6～7日に開催)
 
-乌克兰代表团将于周三参加在伊斯坦布尔的谈判，经过五周的残酷战争，已经有数千人死亡，近4百万乌克兰人逃离家园，俄罗斯要求乌克兰承诺中立，其国家安全将由其他一系列国家所保护。
-
-联合国粮食组织主席警告俄乌战争将对世界造成自二战以来最严重的灾难，乌克兰和俄罗斯生产全球30%的小麦，20%的玉米和75-80%的向日葵籽油。
-
-#### 新闻来源： [Live updates: Ukraine distrusts announced Russian withdrawal](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

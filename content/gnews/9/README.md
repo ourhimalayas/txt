@@ -2,43 +2,34 @@
 ---
 
 
-## 美国计划与台湾、韩国和日本建立半导体联盟以制约中共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255767/)
+## FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2255791/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16486112191.png)图片来源：波士顿环球
+据《国会山报》3月29日报道，周二，FDA（美国食品和药物管理局）为50岁及以上人群注射中共病毒（COVID-19）疫苗第二针开了绿灯。
 
-翻译/编辑：小红帽
+FDA说，任何50岁及以上的人，无论第一次注射的是哪种疫苗，都可以在第一次中共病毒疫苗加强针后至少4个月获得第二次加强针注射。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MapCopywrited2-980x804-1.jpg)图片来源：https://mitre-engenuity.org/
+报道说，FDA对辉瑞（Pfizer）公司和莫德纳（Moderna）公司的疫苗给予了紧急使用授权。辉瑞公司最初要求对65岁及以上的人进行授权，而莫德纳公司要求对所有成年人进行更广泛的授权。
+
+FDA疫苗部门负责人马克斯（Peter Marks）周二告诉记者称，该机构之所以选择较低的年龄限制，是因为这些人的医疗条件最可能使他们面临严重后果的高风险。
+
+与此同时，为配合FDA的行动，尽管没有提出全面建议，CDC（美国疾病控制和预防中心）主任瓦伦斯基（Rochelle Walensky）更新了该机构的指南。CDC说，任何50岁及以上的人，如果想注射中共病毒疫苗第二针，现在就可以注射了。
+
+但是，值得注意的是，卫生官员们并没有就第二次中共病毒疫苗加强针注射的申请召开任何咨询小组会议。而FDA的一个外部专家小组之前不同意该机构领导人关于广泛扩大疫苗加强针使用的决定。
+
+对此，马克斯辩称，没有必要召集一个小组，因为此决定是一个“相对直接的”基于数据的决定。
+
+报道指出，这一决定存在一些重大问题，包括第二加强针的保护作用将持续多久。此举可能会重新引发一场关于谁可能需要注射加强针以及美国疫苗接种运动的更广泛目标的激烈辩论。争论的焦点是，即使症状比较轻微，那注射疫苗加强针的目标是防止人们因中共病毒而住院，还是防止他们生病。
+
+*责编：白夜*
+
+**新闻来源**
+
+[FDA authorizes second booster shot for people age 50 and up](https://thehill.com/policy/healthcare/600076-fda-authorizes-second-booster-shot-of-coronavirus?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=03.29.22+JB+The+Hill+-+Health+Care&amp;rl=1)
 
 
-根据Business Standard3月29日报道，美国提议在美国、台湾、韩国和日本之间建立一个半导体产业联盟，以防止中共在这个战略领域获得主导地位。
-
-然而，台湾新闻网援引《韩国商业》报道称，韩国并不完全赞同美国提出的想法。韩国政府不愿意危及三星等在中共国拥有核心制造基础设施的韩国芯片制造商的运营。
-
-中共国西部城市西安是三星唯一的海外存储芯片工厂所在地。该工厂约占这家韩国企业集团NAND闪存总产量的40%。
-
-与此同时，中共正在发动经济战，以收购台湾的半导体产业。台湾拥有世界领先的半导体产业，仅次于美国。
-
-据《香港邮报》报道，台湾政府指责中共对台湾的科技行业发动经济战，窃取技术并诱使技术工程师离开。
-
-台湾行政部长罗平正指控，中共正在引诱台湾的先进技术人才，从事盗窃国家关键技术，规避法规，在台湾非法投资和经营，造成台湾在IT安全和行业竞争力方面的巨大损失。
-
-半导体或“芯片”是技术创新和经济发展的重要组成部分。这些芯片在所有电气设备中无处不在，包括智能手机、电子车辆、高超音速武器、飞艇、心脏起搏器等。
-
-虽然中共国制造了世界上大多数的电脑和智能手机，但它需要进口所有运行这些小设备所需的半导体。
-
-为了消除对技术的依赖，中共经常从事工业间谍活动和其他活动，以努力发展自己的半导体产业。这也是中共极力想让台湾回到其控制之下的主要原因之一。
-
-新闻来源：[US plans semiconductor alliance with Taiwan, South Korea, and Japan](https://www.business-standard.com/article/international/us-plans-semiconductor-alliance-with-taiwan-south-korea-and-japan-122032900290_1.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,31 +2,24 @@
 ---
 
 
-## 泽连斯基：准备寻求乌克兰中立地位但有条件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253704/)
+## 阿布拉莫维奇很早入手大量喜币，增加喜支付流通量争取更大话语权
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2254203/)
 
-作者：香草山教育部-飞虹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月28日，据多家媒体报道，乌克兰总统泽连斯基日前接受俄罗斯独立记者采访时表示，就乌克兰安全保障、中立地位和无核地位，以及东部顿巴斯地区的问题与俄方商讨。但由于这些问题可能涉及修改乌克兰宪法，对这些问题乌克兰需要举行全民公投，另外还要得到第三方担保。泽连斯基同时指出，俄乌两国达成和平协议的首要条件，是俄罗斯撤军和停火。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-100.jpg)
-根据乌克兰宪法，加入北约和欧盟是该国的战略目标。由于该国目前尚未加入北约或其他安全联盟，因此安全保障问题是其当前的主要问题。
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
 
-另外，泽连斯基还表示，乌克兰不会在去军事化等问题上与俄方进行讨论，因为这些概念“难以理解”。
-
-另据其他渠道的消息，俄乌两国谈判代表团的新一轮谈判将于29日至30日在土耳其伊斯坦布尔举行。
-
-参考链接：
-[泽连斯基：准备好与俄商讨乌中立问题 但须安全保证及全民公投](https://www.zaobao.com.sg/realtime/world/story20220328-1256778)
-[俄乌谈判代表团将于下周举行新一轮面对面谈判](https://news.cctv.com/2022/03/28/ARTIJ1duo3GBJRLNOlXS10Lk220328.shtml)
-
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
-
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+3月27日，郭文贵先生于Gettr大直播中透露，自己认识阿布拉莫维奇二十几年，他不仅很早就买了很多HCoin（喜币）而且告诉他旁边人说所有买的HCoin（喜币）都不能卖，因为这是未来的核心资产。并表示，多多使用HPay（喜支付）购买Gfashion商品绝对不会吃亏。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/im-503574.jpg)图片来源华尔街日报
 
 
+阿布非凡的品味、能力，中国企业家没有一个能和阿布媲美。
+
+阿布是游艇界最大、最高端的玩家，拥有全世界最有品位的波音767私人飞机。他在南法Antibes 的房子、伦敦海德公园的房子，品味之高端超出常人想象。自从切尔西球队被他收购以后取得了巨大的成功，球队共赢得了五次英超联赛、两次冠军联赛和五次足总杯赛的冠军。因为出手大方，信守承诺，切尔西俱乐部没有人不喜欢他。
+
+阿布是叶利钦的“白手套”，守护叶利钦后的财富（普京继承叶利钦的军权，保证叶利钦家族安全）。通常俄罗斯人是很粗鲁的，但是阿布对他的同事、律师都是最好的。富有，却勤劳，甚至有时候每天工作十几个小时。懂得感恩，甚至会为别人请客吃饭后鞠躬致谢。
+
+正是这位谦虚谨慎、在投资界卓有成效的世界级巨富（《福布斯》将他的财富总额定为123亿美元，名列世界富豪榜第142位），在最早就选择入手大量HCoin（喜币），而且决定长期持有作为财富的核心资产。
+
+目前，GFashion已经上线了HPay（喜支付），郭先生鼓励大家多多使用HPay（喜支付）完成数字货币对实体商品的交易。据泰山分析，增加HCoin（喜币）和HDO（喜美元）的交易量和HPay（喜支付）在终端消费领域支付的流通量，为融资创造更大的话语权，扩大喜联储生态的影响力。再者，关于HCoin（喜币）第二个大的决定也将在一个月左右到来，拭目以待。
 
  
 

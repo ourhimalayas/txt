@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月29日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2255406/)
+## 俄罗斯军方称将减少在基辅和切尔尼戈夫的军事行动
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255542/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-63.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-8.png)
+03/29/2022 MSNBC 新闻：正在伊斯坦布尔举行的俄乌最新谈判似乎有了一些进展。俄罗斯军方表示，它将减少在基辅和切尔尼戈夫的军事行动，乌克兰表示他们将采取中立地位。然而，土耳其在今天的声明中持谨慎态度，称虽有进展，但还有很多需要继续谈判。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p12lqih87f5](https://gettr.com/post/p12lqih87f5)
-访谈：[https://gettr.com/post/p12m18g1281](https://gettr.com/post/p12m18g1281)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
