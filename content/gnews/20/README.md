@@ -2,42 +2,70 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259662/)
+## 拜登政府预测加密货币税收将带来100 亿美元的收益
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2259926/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+翻译：香草山商业部 —— 文锤
 
-您若想了解全文报导内容，请点击标题链接
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-1.[美国外科医生、卫生与公众服务部唆使推特传播病毒误导信息，遭到起诉](https://childrenshealthdefense.org/defender/violated-first-amendment-twitter-censor-covid-misinformation/)
 
-据《捍卫者》2022年3月29日电，新公民自由联盟（NCLA）于3月24日在美国俄亥俄州南区地区法院哥伦布分院对外科医生维韦克·穆尔西博士和HHS部长泽维尔·贝塞拉提出诉讼，大致内容：由于美国外科医生和HHS已唆使包括推特在内的社交媒体平台，审查有关Covid-19的所谓“误导信息”而导致推特遭到封禁，这是违宪的
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3864-edited.png)
 
-2. [CDC：50岁及以上的成年人需要额外打Covid-19疫苗](https://www.politico.com/news/2022/03/29/fda-additional-booster-pfizer-moderna-covid-vaccine-00021248)
 
-据《政治报》2022年3月29日电，美国CDC建议，所有50岁以上的成年人和12岁及以上免疫力低下的儿童在周二（29日）需要打额外“安全”的mRNA加强针；美国政府授权第二次加强针的决定是基于以色列的数据，那里大约有70万成年人接受了辉瑞与Moderna疫苗的两剂加强针；4月6日举行的疫苗咨询委员会会议上将讨论是否会让更多人接种疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3876-edited.png)
-3. [免费的新冠测试和治疗对没有保险的人，不再开放](https://www.npr.org/sections/health-shots/2022/03/29/1089355997/free-covid-tests-and-treatments-no-longer-free-for-uninsured-as-funding-runs-out)
+在 3 月 9 日有关加密货币的法令颁布几周后，美国总统乔·拜登 (Joe Biden) 政府提出了 2023 年的经济计划。该文件不是最终文件，它特别提到了美国居民有义务申报其在海外账户中持有的数字资产，以及对加密货币的市场价格估值征税。
 
-据《NPR》2022年3月29日电，卫生和公共服务部长泽维尔·贝塞拉（Xavier Becerra）警告说，治疗新冠的单克隆抗体治疗药物与免费新冠测试资金受到大规模削减，并希望美国立法者为中共病毒救济再拨出225亿美元来减少医院的压力；美国的新冠感染数字正在下降（每天700人死亡），但我们不知道未来半年的事。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3877-edited.png)
-4. [医学记者：太多的父母在孩子受到伤害后，才发现疫苗的危险性](https://childrenshealthdefense.org/defender/chd-tv-hooker-dangers-of-vaccines-after-child-harmed/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=4776dc24-2ef9-479a-9b4b-16eeed4239c6) 据《捍卫者》2022年3月28日电，ThinkTwice全球疫苗研究所的主任米勒（Neil Z. Miller）在他妻子怀孕时，开始进行接种和未接种疫苗的儿童比较研究，并指出在孩子未出生就已接种疫苗的父母，往往还生孩子后才发现疫苗对儿童的危险性；婴儿接种中共病毒疫苗后出现不应发生的集中时间死亡（7天内死亡），而医疗机构正在掩盖数据
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3878.png)
-5. [妇女在打辉瑞中共疫苗后死于罕见的脑部疾病](https://childrenshealthdefense.org/defender/exclusive-interview-woman-dies-rare-brain-disorder-after-pfizer-shot/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/blob-4.jpeg)图片来源于网络
 
-据《捍卫者》2022年3月28日电，密苏里州60岁健康女性珍妮弗·迪森·斯普拉格（Jennifer Deason Sprague）于去年9月接种第二剂辉瑞中共病毒疫苗后，不幸在2月21日因克雅氏病（CJD）而去世；美国医院无法给予她任何帮助，神经科医生怀疑她患有CJD，而研究已发现这与辉瑞公司的疫苗（朊病毒蛋白）存在潜在联系；最终只能安乐死
+**加密货币框架更清晰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3666-edited-1.png)
+在关于加密货币在美国未来的第一份草案的几周后，拜登政府颁布了其 2023 年的经济计划。
 
-* * *
+根据 3 月 28 日星期一发布的文件，税收规则的修改——被称为“现代化税收”——将在 2023 年至 2032 年间将美国的赤字减少109 亿美元。
 
-审核：Aries的星
-校对：小东
-发布：小东
+这些新法规允许美国金融当局撒下更广泛的网，包括通过鼓励他们报告离岸账户中超过 50,000 美元的任何金融投资，对在离岸账户中持有数字资产的人征税。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+此外，加密货币持有者现在将根据其资产的按市值计价 (MTM) 估值征税。换句话说，征税人员将不会根据购买某种加密货币的价格来征税，而是根据其实际市场价值的增加来征税。
+
+具体来说，如果一个人持有加密货币，而后者的价值随着市场波动而增加，那么即使他不转售，他也会被征税，对这种加密货币的增值部分征税。
+
+在文件的第 83 页，我们还可以看到5200 万美元将在 2023 年分配给 FBI 的几个部门，特别是为了参与“打击勒索软件战略”，同时也是为了打击“滥用加密货币”。
+
+不过，细节还在等待中。
+
+根据美国总统乔·拜登（Joe Biden）的政府，在目前的状态下，这项新的经济计划仅在 2023 年就应该带来 50 亿美元。但是，尽管非常详细，但该计划仍可能发生变化，因为它要到 2023 年 1 月 1 日才会应用。
+
+该预算提案符合美国总统3 月 9 日签署的法令，该法令旨在保护“金融稳定”、“消费者和投资者”，同时也参与“打击非法融资”。
+
+意识到数字资产提供的可能性，以及 16% 的美国家庭对数字资产表现出的兴趣（他们声称他们已经至少交换过一次数字资产），美国政府要求进行可行性研究。，以评估中央银行数字货币（CBD）的适用性。
+
+总之，尽管未来法规的轮廓变得越来越清晰，但这些新提案将如何在美国加密社区中被接受还有待观察。
+
+**原文阅读：**
+
+**[L’administration Biden prévoit 10 milliards de dollars de gains grâce à la taxation de cryptomonnaies (cryptoast.fr)](https://cryptoast.fr/administration-biden-prevoit-10-milliards-dollars-gains-grace-taxation-cryptomonnaies/)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 

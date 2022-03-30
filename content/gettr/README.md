@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 11:02 PM (UTC)`
+
+2022.03.30 NFSC News    Russia and Ukrainian Peace Negotiators Suffer Suspected Poisoning； Russian Invasion Causes Over $565bn Damage to Ukraine
+![img](https://media.gettr.com/group13/origin/2022/03/30/22/d02e5279-e6d9-2896-e013-b165e6db2c4e/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/30/2022 10:55 PM (UTC)`
+
+3/30/2022 Miles Guo: Europe will not compromise with Russia on the energy issue. Ukraine is preparing for the “Talent Hunting” plan and will completely change Europe in terms of technology and energy. Europe will end its dependence on the oil from the Middle East and Russia’s natural gas. There won’t be a nuclear war in humanity. The dictatorships like the CCP and Russia are bound to be taken down. The New Federal State of China is the most important force of justice and peace for human civilization.<br/><br/>3/30/2022 文贵直播：欧洲不会跟俄罗斯在能源问题上妥协，乌克兰在准备人才掠夺计划并将在科技和能源上彻底改变欧洲，欧洲将结束对中东石油和俄罗斯天然气的依赖；人类不会有核战，中共、俄罗斯等独裁国家必灭，新中国联邦是人类的文明最重要的一束花<br/>
+![img](https://media.gettr.com/group43/getter/2022/03/30/22/a0da6460-90e5-7570-768b-fa50b105fd22/out.jpg)
+
+---
+
 `@miles 3/30/2022 10:14 PM (UTC)`
 
 3/30/2022 Ukraine Rescue: Fellow fighter Wen Yao talks about the Polish heroes who went into Ukraine to rescue and fight, and their fearlessness has touched the fellow fighters of the New Federal State of China.<br/><br/>3/30/2022 乌克兰救援连线：文耀战友谈去乌克兰境内参与救助和战斗的波兰勇士，他们的无畏精神感动了新中国联邦的战友们<br/>
@@ -147,20 +161,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
 ![img](https://media.gettr.com/group19/origin/2022/03/30/07/5739e0f4-8593-a9bd-cb1d-f6f8c5120ecd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/30/2022 8:42 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group19/origin/2022/03/30/07/5739e0f4-8593-a9bd-cb1d-f6f8c5120ecd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/30/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group50/origin/2022/03/30/04/867e2068-a217-8a13-3576-f8cb0faeab73/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
