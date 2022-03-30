@@ -2,28 +2,22 @@
 ---
 
 
-## 中日财经爆┃上海封城导致中共国股市暴跌，人民币汇率大跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257373/)
+## 樱花时政┃联合国教科文组织呼吁保护乌文化遗产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257403/)
 
-撰稿：东京樱花团/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
-由于上海的疫情严重，每日病例数量居高不下，3月27日，上海当局宣布将分批对上海进行封锁。其中黄浦江以东的地区，以及黄浦江以西的一些地区，将在3月28日至4月1日期间被封锁，其余地区将在4月1日至5日期间被封锁。
+撰稿：东京樱花团/上善若水
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-53.jpg)图片来源与本文链接
+俄乌战争已经30多天，坐落在法国巴黎的联合国教科文组织1954年签署的《海牙公约》及其两项议定书，包括武装冲突各方必须尊重文化遗产，禁止毁坏、损害或以任何形式盗窃、抢夺对每一民族具有重大意义的文化遗产等。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-48.png)（图片来源于本文链接）
+联合国教科文组织在乌境内有7处世界遗产，其中6处是各个时期的建筑或者建筑群，基辅的圣索菲娅主教堂和佩乔尔斯克修道院，建于11世纪，这个古建筑群于1990年被列入世界遗产名录。斯特鲁维地理探测弧线是与9个国家共同拥有的，为准确测量地球椭圆体而共同建立的大地测量基地群，属于世界的文化艺术瑰宝。
 
-上海是中国的经济大动脉，地位极其特殊，因此这一消息的公布震惊了经济市场。周一（3月28日）中共国股市暴跌，债券收益率下降，人民币兑美元汇率大跌。
+联合国教科文组织对“创意城市网络”音乐之都哈尔科夫市及已列入《世界遗产预备清单》的切尔尼戈夫历史中心遭损失表示严重关切。为了防止战争破坏，教科文组织正与乌政府合作，尽快用《海牙公约》指定的独特标志标出乌各地的重要历史古迹和遗址。该标志是国际公认的在武装冲突中保护文化遗产的符号。
 
-新闻来源：[Chinese Stocks Slump, Yuan Weakens On Shanghai Lockdown News](https://www.zerohedge.com/markets/chinese-stocks-slump-yuan-weakens-shanghai-lockdown-news)
+信息来源：[教科文组织呼吁保护乌克兰文化遗产](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%96%87%E5%8C%96%E9%81%97%E4%BA%A7/20220330-%E6%95%99%E7%A7%91%E6%96%87%E7%BB%84%E7%BB%87%E5%91%BC%E5%90%81%E4%BF%9D%E6%8A%A4%E4%B9%8C%E5%85%8B%E5%85%B0%E6%96%87%E5%8C%96%E9%81%97%E4%BA%A7)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,31 @@
 ---
 
 
-## 日本银行将为未来的数字日元发行做好充分准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255801/)
+## 比特币用户从4月1日起在印度缴纳30%的数字货币税
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255746/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
 翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/415889470D0EAEE7AEABBE0F23BF86275B403AB86F421714DF5725C901616300.jpg)图片来源：Blockchain.news
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Cryptocurrency-tax-india-1.png)图片来源：NBB
 
 
-根据路透社3月29日报道，日本央行行长黑田东彦周二表示，日本央行目前没有发行自己的数字货币的计划，但将“充分”准备应对未来不断变化的情况。
+根据COINGEEK3月29日报道，Lok Sabha，也被称为印度议会，已经通过《2022-2023年财政法案》。该法案确认从4月1日起对所有虚拟数字资产（VDA）征收30%的税率。
 
-黑田东彦在金融服务创新非公开研讨会上发表讲话。
+自从印度财政部长Nirmala Sitharaman在2月份的2022-2023年预算会议上宣布关于数字货币的税收规则以来，就开始出现很多声音。最近的公告只是进一步加剧了这种声音。
 
-日本央行计划从4月开始进入发行央行数字货币 (CBDC) 实验的第二阶段，这将是决定试点计划和最终推出数字日元的关键。
+以下是印度的数字货币税和拟议的法规。
 
-2021年11月24日，一个由约70家日本企业组成的联盟曾表示，计划在未来数月开始测试一种基于日元的数字货币，然后在2022财年推出。该联盟成员包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。
+4月1日，对与赌博、赛马等数字资产买卖相关的交易征收30%的税率加附加费。但是，转让数字资产造成的任何损失不得与转让其他虚拟资产所产生的收入相抵销。在计算数字资产转让收入时，不得扣除任何支出（收购成本除外）或津贴。
 
-前日本金融厅长官、目前担任DeCurret特别顾问的远藤俊英也曾于2021年11月份表示：“建立在银行存款支持的共同平台上的数字货币系统将适合可能在日本规划和实施的央行数字货币（CBDC）。”
+每年向数字资产支付超过10,000卢比（或131.30美元）的款项以及对接收者手中的数字货币礼物征税，从源头扣除1%的税款 (TDS)。对于那些需要根据IT法案对其账户进行审计的人，TDS的门槛限制为每年50,000印度卢比（656.48美元）。TDS 规定将于2022年7月1日生效。
 
-新闻来源：
+VDAs将包括所有数字货币和NFTs。一个可以通过电子方式转移、存储或交易的代码或代币或数字将被称为VDA。
 
-1. [Bank of Japan will prepare ‘thoroughly’ for possible launch of digital yen, Kuroda says](https://www.reuters.com/world/asia-pacific/boj-will-prepare-thoroughly-possible-launch-digital-yen-kuroda-2022-03-29/)
-2. [日本约70家企业未来数月将联合测试数字货币，计划于2022财年推出](https://m.jiemian.com/article/6846513.html)
+该公告对许多印度人造成了沉重打击，因为政府提议进一步收紧VDA的征税条款，不允许投资者用一种数字资产的损失来抵消其他数字资产的利润。无论属于哪个收入阶层，他们将从4月1日起负责支付30%的税率。
 
+新闻来源：[Bitcoin users to pay 30% digital currency tax in India from April 1](https://coingeek.com/bitcoin-users-to-pay-30-digital-currency-tax-in-india-from-april-1/)
 
 发布：tianzhihuan
 
