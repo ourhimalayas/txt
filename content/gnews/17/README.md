@@ -2,58 +2,32 @@
 ---
 
 
-## 坚守家园
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2259777/)
+## 美国与加拿大将合作支撑世界市场弹性
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2259946/)
 
-作者：蓝之灵（Hortensia)
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-71.jpg)
+据加拿大媒体【CTV新闻】3月29日报道，加拿大代表团日前会见了西弗吉尼亚州的民主党参议员和宾夕法尼亚州的共和党参议员，美方表示面对当前和未来的全球动荡，加拿大的企业和市场将帮助恢复北美经济的弹性。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-5.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/守护.jpg)
-我在敖德萨
-这里是我的家
-侵略者在疯狂轰炸
-想让我们投降
-他们想多啦
+报道称，加拿大代表团还在华盛顿和各方探讨加拿大在俄乌战争期间可以作为能源、食物和矿业的主要替代来源，除了新冠大流行对全球供应链已造成的恶化外，俄乌战争会推高石油和小麦价格，所以加拿大与美国商讨将通过互帮互助以确保北美的市场具有弹性的同时，全力帮助欧洲，并保持供应链的完整性，以便各国公民在面对通货膨胀时不会受到巨大冲击。
 
-房子被炸塌
-悲惨哭声冲击耳朵
-陌生的人啊
-在互相帮助
-扒开废墟
-找出活着或者死去的
-他，她，它
+据悉，加拿大在短期内可将数十万桶石油运往美国进行精炼，但由于必须通过铁路运输，所以加拿大从长远来看需要建设更多基础设施，以便足够支撑并推动世界向前发展。
 
-这里是我的家
-守护家园从信仰出发
-向路过烈士遗体
-跪下我膝盖
-请接受我最高敬礼
-安息吧
-乌克兰英雄
-逝去一个你
-站起来无数的
-他和她
+原文链接：[Ukraine: Canadian business leaders talk energy, food with U.S. | CTV News](https://www.ctvnews.ca/business/u-s-lawmakers-interested-in-canadian-energy-food-amid-war-in-ukraine-1.5839674)
 
-颤抖吧
-侵略者
-炮火轰不飞正义
-铁蹄践踏不了信仰
-乌克兰人民
-一定会
-守护自己的国土
-坚守自己的家
+编辑/上传 – 大废墙
+素材/采编 – 青青
+翻译 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**编辑**/**校对/发稿：**Fei797
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

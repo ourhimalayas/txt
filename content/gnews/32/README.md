@@ -2,35 +2,49 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月30日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2259191/)
+## 去年永久离开加拿大的人数创下50年来新高
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2259213/)
 
-作者：香草山翻译部
+据《真北方》3月30日报道，政府数据显示，2021年永久离开加拿大的人比1970年代以来的任何一年都多。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C-5.jpg)cbc.ca
+根据加拿大统计局公布的估计，整个2021年向外移民的人数都在增加，上升到几十年来的最高水平。抛弃加拿大的人的最大高峰是在第四季度，这与特鲁多政府的旅游疫苗强制令的实施相关。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
+在第四季度，移民人数比前一年增加了215%，估计有16,901人迁出加拿大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-30.png)
+移民潮持续了整整一年，总共有55,935名居民离开了加拿大。与2020年前的五年中位数相比，这个往外移民的趋势也上升了55.7%。
 
-文章仅代表作者本人观点，与Gnews无关
+根据房地产经纪服务机构“销售额”（Soldplicity）的说法，住房昂贵或缺乏经济机会等结构性问题也可以解释导致人口外流的原因。
 
-视频参看：
-[2022.03.30早 《NFSC新闻》](https://gettr.com/streaming/p12nuoa0e4b)
-[2022.03.30早《NFSC新闻访谈》](https://gettr.com/streaming/p12nwdz35b2)
+在特鲁多政府的领导下，自2015年自由党首次当选以来，住房成本已经增加了100%以上。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+6年前，加拿大房屋的平均成本是43万美元，而在2022年，它已经飙升到86.9万美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+在麦克唐纳·劳里埃研究所（Macdonald Laurier Institute）2021年11月的一篇论文中，研究人员注意到特鲁多如何在竞选中多次提出使住房更可负担，但却没有兑现他的承诺。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+报告作者穆尔塔扎·海德尔（Murtaza Haider）和斯蒂芬·莫拉尼斯（Stephen Moranis）写道：“自由党政府第一和第二任期内快速攀升的房价已被在国会广泛辩论，并被作为住房问题管理不力的证据。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
+除此之外，加拿大的通货膨胀已经有30多年没有这么高了。
+
+丰业银行（Scotiabank）最近的一项分析也表明，离开安大略省前往其他省份的人比1981年以来的任何一年都多。
+
+丰业银行高级经济学家马克·德索莫（Marc Desormeaux）在3月17日发表的论文中说：”疫情限制政策的严厉性、住房负担能力和远程工作的采用似乎都影响了这一趋势，与过去反映区域经济条件明显差异的强烈外迁时期形成鲜明对比。“
+
+在整个疫情大流行期间，安大略省经历了北美最长的封锁期，并在1月份因奥米克戎（Omicron）变体产生的大量病例而实施了第四次封锁。
+
+**特评**：这篇新闻很平实，用数据说话，显然人们对特鲁多自由党政府的疫情控制政策、住房可负担政策等等在用脚投票。
+
+《真北方》这个保守立场的媒体，一直诟病特鲁多政府的疫情控制及疫苗强制政策，也反映普通加拿大人对失去宪法保护的自由问题的呐喊。
+
+从卡车司机的自由车队行动到永久离开加拿大的人数创下50年来的新高，显示加拿大已经失去了它曾引以为傲的“最宜居地“的政治环境和经济环境。
+
+然而到今天，特鲁多政府也还没有取消旅行的疫苗强制令，就是说未接种疫苗者还是无法乘坐加拿大的飞行器和火车等交通设备出行。特鲁多倒行逆施太久了，他还想执政到2025年，他能吗？
+
+参考链接：
+[https://tnc.news/2022/03/29/number-of-people-who-left-canada-last-year-at-almost-50-year-high/](https://tnc.news/2022/03/29/number-of-people-who-left-canada-last-year-at-almost-50-year-high/)
+
+**编译 发布：意大利罗马达芬奇农场 Roma**
+
+
 
  
 
