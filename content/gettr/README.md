@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 1:10 AM (UTC)`
+
+2022.03.29 晚《新中国联邦新闻访谈》联合国基本解体-中印俄出局；美国是最大的赢家；世界格局将巨变；拜登演讲里的最大赢家是无苗灭共有币的新中国联邦人。
+![img](https://media.gettr.com/group30/origin/2022/03/30/01/6139f631-3b76-fc45-f1d6-66a77eae8d7f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/30/2022 12:29 AM (UTC)`
 
 2022.03.29 晚 《新中国联邦新闻》俄乌代表谈判后疑似中毒 怀疑俄罗斯强硬派所为； 拜登拒绝撤回“普京不应继续掌权” 澄清并非呼吁政权更迭
@@ -149,13 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 2022.03.29 早《新中国联邦新闻访谈》  30人特战组用无人机阻止了俄军车队进入基辅 ；英国新规：为俄罗斯和中国等敌对国家游说者必须登记；GClubs年会抽奖带给战友们公平和希望
 ![img](https://media.gettr.com/group50/origin/2022/03/29/12/4dc6c698-b2c9-44f8-9cbf-6a8acfaaa6d7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/29/2022 12:29 PM (UTC)`
-
-
-![img](https://media.gettr.com/group34/origin/2022/03/29/12/4acb0591-a79a-4fc7-aa6e-82607ae3c7bf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

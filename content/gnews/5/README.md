@@ -2,41 +2,28 @@
 ---
 
 
-## 有声|中共洗脑工具之样板戏
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2254801/)
+## 俄罗斯是否故意针对乌克兰的文化地标
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2254816/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-样板戏，全称革命样板戏或八个样板戏，是中共官方在1967至1976年间指定中央文革小组负责制作的各式戏剧，其中代表性的作品包括京剧《智取威虎山》、《红灯记》，芭蕾舞剧《红色娘子军》、《白毛女》以及交响音乐《沙家浜》等。样板戏可以算是主要反映当时极左政治立场的所谓“舞台艺术作品”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-26-%E4%B8%8A%E5%8D%8810.50.42-1.png)
-1956年3月，中共在北京举行的京剧演出大会开始将工农兵作为主要角色，用以突出阶级对立。到了1967年5月，八个样板戏在北京各剧场同时上演，并获得党魁毛泽东的极力吹捧。其后，江青更是借由主导样板戏的机会开始活跃于中共的政治舞台核心。直至 1968年，中共通过鼓动民众唱样板戏、跳忠字舞等活动大肆洗脑百姓，从而控制他们只服从于毛泽东与中共的独裁统治。
+**撰稿：日本东京方舟农场  胖小哥**
 
-资料显示，样板戏具有反传统、造神、服从、移情和禁欲等几个主要特征。这当中，样板戏通过描写中共进行武装斗争建设所谓的新生活，来巩固中共的极权统治并将毛泽东神话为统率国民的偶像。此外，样板戏还竭力将中共政党与普通民众定义为主仆或君臣关系，给百姓灌输无限忠诚和无条件顺从等思想。
+据nbcnews网站3月28日报道，许多乌克兰人认为，俄罗斯正在摧毁和破坏教堂、博物馆和纪念碑，作为从地图上”抹去”乌克兰的一部分。
 
-时至今日，自习近平修宪以来，中共再次将所谓的“红色题材”作品搬上舞台，企图再次回到毛泽东造神时期。据悉，歌剧《白毛女》和芭蕾舞剧《红色娘子军》近期配上了现代的舞台声光科技，正在以更魔幻澎湃的形式洗脑中共国内的普通百姓。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-362.jpg)圣安息大教堂周五反映在乌克兰哈尔科夫炮击期间受损的一家咖啡馆破碎的窗户碎片中。（图片来自托马斯·彼得 / 路透社）
 
+乌克兰是七个联合国教科文组织世界文化遗产的所在地，自俄罗斯人发动入侵以来，全国至少有39个地标遭到破坏、抢劫或沦为废墟，据位于基辅的乌克兰政治非营利组织Transatlantic Dialogue Center称，马里乌波尔市议会3月23日通过Telegram证实，俄罗斯军方摧毁了该市的Arkhip Kuindzhi艺术博物馆，该博物馆收藏了2000多件展品和乌克兰著名艺术家的大量作品，艺术品的命运目前仍然不明朗。
 
+西北大学犹太研究教授Yohanan Petrovsky-Shtern认为，这种损害既是附带的，也是故意的，但”更有可能被称为故意破坏”。他指出，俄罗斯当局一直在没收被占领地区图书馆的乌克兰历史教科书并烧毁它们。
 
+一些专家认为，通过夷平该国的地标，普京将试图将乌克兰的历史和文化重新定义为俄罗斯。”如果我们谈论俄罗斯政治，在过去的几年里，我们可以说俄罗斯总统和政府说没有乌克兰文化，每个人都是俄罗斯人，”利沃夫安德烈·谢普蒂茨基国家博物馆馆长伊戈尔·科赞说。
 
+随着乌克兰的博物馆，纪念碑和遗产地被围困，乌克兰人正在团结起来保护他们的地标。非营利组织美国 – 乌克兰基金会的分析师彼得·沃伊采霍夫斯基（Peter Voitsekhovsky）表示，敖德萨的居民在该市著名的19世纪歌剧院和敖德萨创始人黎塞留公爵的标志性雕像周围堆积了沙袋。Voitsekhovsky说，对于Odesans来说，黎塞留雕像与自由女神像对美国人来说具有相同的意义。”凭借乌克兰丰富的历史，有很多地方是国家灵魂的象征，”他补充说。”但你不能用沙袋覆盖整个国家的所有寺庙，纪念碑和教堂。
 
-文字版原文：[中共洗脑工具之样板戏](https://gnews.org/zh-hans/2236231/)
+参考链接：
+[https://www.nbcnews.com/news/world/russia-intentionally-targeting-ukraines-cultural-landmarks-rcna21604](https://www.nbcnews.com/news/world/russia-intentionally-targeting-ukraines-cultural-landmarks-rcna21604)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：老孙
+校对发布：爱放飞
 
  
 
