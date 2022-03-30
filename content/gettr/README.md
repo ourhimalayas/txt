@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 12:29 AM (UTC)`
+
+2022.03.29 晚 《新中国联邦新闻》俄乌代表谈判后疑似中毒 怀疑俄罗斯强硬派所为； 拜登拒绝撤回“普京不应继续掌权” 澄清并非呼吁政权更迭
+![img](https://media.gettr.com/group14/origin/2022/03/30/00/1121f886-e8e7-1197-2879-bdefda0a1a08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/29/2022 11:54 PM (UTC)`
 
 2022.03.29《The Fringe》 Episode 157
@@ -149,13 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 
 ![img](https://media.gettr.com/group34/origin/2022/03/29/12/4acb0591-a79a-4fc7-aa6e-82607ae3c7bf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 11:56 AM (UTC)`
-
- 3月29号：尊敬的战友们好！通过这个最真实的短暂的．摄像机没被坏掉的庭审视频，真正能体会到中国共产党治理国家的依法治国的真实面目．比地狱还黑暗。
-![img](https://media.gettr.com/group34/getter/2022/03/29/11/3a9aa51c-1c59-08c4-e1ec-1701fb565e2f/out.jpg)
 
 ---
 
