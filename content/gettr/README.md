@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 3/30/2022 8:49 AM (UTC)`
+
+
+![img](https://media.gettr.com/group48/origin/2022/03/30/08/2d552f32-c186-1c75-0a83-56b701e8a021/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/30/2022 10:29 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月29日第25天当日救援统计：<br/>Medyka救援站接待：约70人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7725人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 25 - Date: March 29, 2022 :<br/>Medyka Rescue Station Reception: about 70 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7725 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group50/getter/2022/03/30/10/988e4ba1-6e97-8190-9813-5295b54d1d34/883b1681adf3e72355ad1772b473840e.jpg)
+
+---
+
 `@miles 3/30/2022 9:24 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -140,20 +156,6 @@ Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New 
 
 
 ![img](https://media.gettr.com/group30/origin/2022/03/29/18/bc822b06-97dd-e5cf-15cf-49653d651cf3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 5:46 PM (UTC)`
-
-2022/03/29 亲爱的兄弟姐妹们，这个是经过几款后的设计，G Fashion设计出来的马甲，它拥有着夜间的反光功能。 请战友们在下面的留言区，留下你们的宝贵建议，以便于我们更好的完善我们的设计，达到救更多人的目的！ 🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group36/getter/2022/03/29/17/ca9cc379-b6a9-53a9-9bd6-d125c5476cc8/91e3d36236e58d71091beec6565c9f92.jpg)
-
----
-
-`@miles 3/29/2022 5:18 PM (UTC)`
-
-
-![img](https://media.gettr.com/group46/origin/2022/03/29/16/0bafda86-2ada-d9dd-ca5b-36e64fc29168/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
