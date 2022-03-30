@@ -2,29 +2,34 @@
 ---
 
 
-## 有声｜乌克兰大使称：俄罗斯战损使其正在非军事化
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256309/)
+## 澳洲朝野不改对华强硬路线
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2256333/)
 
-By:**秘翻新闻**
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-**2022-03-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-116.png)图片来源 AP Photo/Petros Giannakouris
-[据美联社3月29日报道，乌克兰驻联合国大使谢尔盖·基斯利齐亚周二告诉联合国安理会称：俄罗斯的非军事化正在顺利进行。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+据《德国之声》3月29日报道，在联邦大选临近之际，澳大利亚总理莫里森对会见中共国大使设下前提：要求中共国重新开启部长级对话。对此，政治分析人士认为，在大选前澳大利亚各个政治派别不可能改变对华强硬路线。
 
-[基斯利齐亚表示，自俄罗斯入侵以来，俄军已经失去了1万7000 多名军事人员、1700 多辆装甲车和近 600 辆坦克。还损失了 300 架火炮系统、127 架飞机和 129 架直升机、近100 个火箭发射器系统、54个防空系统和7艘舰船。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-370.jpg)（图片来自德国之声）
 
-[基斯利齐亚还表示，这对莫斯科来说是一个前所未有的打击，与之前苏联在阿富汗的损失相形见绌。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+报道称，近期澳大利亚总理莫里森(Scott John Morrison)就是否接见中共国新任驻澳大利亚大使的问题上表示，在中共政府持续冻结双边外交沟通的情况下，他与中共国大使会面不合时宜。
 
-[周二早些时候，俄罗斯宣布将大幅缩减乌克兰首都和北部城市附近的军事行动，因为在最新一轮谈判中出现了可能结束战争的协议大纲，预计谈判将在周三恢复。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+莫里森总理说，“澳大利亚驻华大使也并未受到中共国国家主席习近平的接见。只要中（共）国继续拒绝与澳大利亚部长，甚至不和澳大利亚总理进行对话，这是一种相称的回应。”
 
-[开战的这五周，已经演变成血腥消耗的战争，致使数千人死亡，近400万乌克兰人逃离该国。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+对此，政治分析人士认为，莫里森总理不见中共国大使符合礼宾程序，在处理对华关系上也更加理性。另外，中共国大使向莫里森总理传递习近平主席的信息，这在中共国可能被解读为总理承认澳大利亚的地位是一个附庸国。因此，澳大利亚现在和中共国打交道的时候不会随便作出让步。因为一旦让步，在未来和中共国打交道就不会那么简单了。
 
-秘翻新闻 文洋编译报道
+此外，由于澳大利亚和中共国之间层层叠加的矛盾，导致除了联邦政府对华采取强硬立场之外，一直被联盟党攻击亲中的工党也展现出了和执政党类似的态度。
 
-发布 : 恩典
+工党领袖阿尔巴尼斯（Anthony Albanese）也发表声明表示自己没有与中国大使会面，也没有与中共国大使馆的任何其他官员会过面。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+迪肯大学战略学讲师管佳博士认为澳大利亚大选在即，反共政治气氛已经鼓动起来了，与中共亲善的举动是政治资本负债，两大党领导人都不会冒这个风险。
+
+参考链接：
+[https://reurl.cc/5GmzER](https://reurl.cc/5GmzER)
+
+编辑：幽蘭自得
+总编：青城道姑
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
