@@ -2,34 +2,31 @@
 ---
 
 
-## 美高级官员前往印度讨论俄乌局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2256950/)
+## 有声｜中共培植台青促统 台国安局示警抖音小红书渗透
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256960/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/article-5dab1460f141f-2.jpg)
-3月29日周二，拜登政府负责经济的国家安全副顾问Daleep Singh前往新德里与印度政府会面，谈论俄乌战争局势，并建立一个印太经济框架。
+**By:秘翻新闻**
 
-印度此前对俄罗斯入侵乌克兰的非正义战争持有保留意见，它并未像四国集团的其他国一样对俄罗斯采取经济制裁，甚至在联合国关于这场战争的多项决议中投了弃权票。印度一直试图平衡俄罗斯与西方的关系，拒绝明确谴责俄罗斯的入侵行径。白宫认为印度对俄罗斯的非正义战争立场不明，拜登总统表示会在整个北约和太平洋地区成立一个统一战线来应对普京的侵略。Daleep Singh此次前往新德里将会就俄罗斯无理战争的后果进行密切讨论，减轻其对全球经济的影响。
+**2022-03-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/海报封面2.jpg)图片源自:网络
+**[新唐人](https://www.ntdtv.com/gb/2022/03/29/a103386814.html)**北京时间3月30日消息。中共不断利用网红效应，对台湾进行渗透和统促，对此台湾立委王定宇表示，中共对台湾的骚扰、压迫，时刻存在。他也提醒，如果这些网红青年，是经由中共党、政、军授意，恐怕有违法的风险。
 
-据悉俄罗斯外长拉夫罗夫也即将访问印度。印度是俄罗斯商品的最大买家之一。
+据报道，多个中共官方媒体社群网站发布影片，内容是一名台湾青年在浊水溪畔，将溪水倒进中国黄河河水，象征两岸融合、宣扬促统。
 
-撰稿、发布：骄子
+台湾国安单位掌握，中共促统新招，吸引台湾青年到对岸设立文创公司，专门拍摄影片对台宣传，内容多强调两岸同根同源。
 
-reference：
+民进党立委王定宇表示，如果台湾人受中共党政军的授意、授命或者资助，对台湾进行发展组织或做出影响国家安全等事项的话，将涉犯新修订的国安法以及相关法令。
 
-[https://www.reuters.com/world/us-sends-senior-national-security-official-india-discuss-ukraine-2022-03-29/](https://www.reuters.com/world/us-sends-senior-national-security-official-india-discuss-ukraine-2022-03-29/)
+行政院长苏贞昌说：“认知作战首先要查究、防范的是内容，不只是工具。”
+
+国安局长前一天也示警表示，年轻人广泛使用的中共国社群软体，同样存在国安疑虑。
+
+（秘翻新闻 二丫编辑报道）
+
+发布:星星
 
 * * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
