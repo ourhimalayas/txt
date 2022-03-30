@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 6:47 PM (UTC)`
+
+新中国联邦战友献给乌克兰人道主义援助所有的义工战友们《红色的流星》<br/><br/>宝宝们在哭啼<br/>爆炸声中开始的回忆<br/>爸爸妈妈在此分离<br/>流离失所又能去哪里<br/>我们向往的自由和安宁 已成了废墟<br/>昨日路过的小树林 遍地尸横的血腥<br/><br/>就算那红色的流星已点燃城市的夜晚<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>我们想要的是和平<br/>没有战争 也没有分离<br/>是谁带来如此厄运<br/>是谁无私呵护着生命<br/>新中国人的正道主义 绝不会放弃<br/>美迪卡的人道小径  我们会守护着你<br/><br/>就算那红色的流星已点燃世界的黑暗<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>流离的人啊 停下脚步吧  <br/>我们想要和平安宁没有分离, 弥漫温暖<br/>破碎的心啊, 勇敢吧，相依在帐篷的你我 唱这首歌
+![img](https://media.gettr.com/group16/origin/2022/03/30/18/32f89444-f6bf-5bf5-ec59-d53909bec33b/out.jpg)
+
+---
+
 `@miles 3/30/2022 5:47 PM (UTC)`
 
 
@@ -154,13 +161,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 2022.03.29 晚 《新中国联邦新闻》俄乌代表谈判后疑似中毒 怀疑俄罗斯强硬派所为； 拜登拒绝撤回“普京不应继续掌权” 澄清并非呼吁政权更迭
 ![img](https://media.gettr.com/group14/origin/2022/03/30/00/1121f886-e8e7-1197-2879-bdefda0a1a08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 11:54 PM (UTC)`
-
-2022.03.29《The Fringe》 Episode 157
-![img](https://media.gettr.com/group3/origin/2022/03/29/23/c83b8780-8e85-12ca-a73f-24246fbe91ea/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
