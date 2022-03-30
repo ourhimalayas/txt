@@ -2,39 +2,81 @@
 ---
 
 
-## 融创年报缺席盘中暴跌，逾15家房企年报难产
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2258165/)
+## 乌克兰多部门联合发起不要赞助谋杀的国际运动
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2258280/)
 
-#### 【雅典娜观察】和您一起洞察世界
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-#### 翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3845.png)图片来源：搜狐网 & 雅典娜农场
+3月30日，乌克兰内阁（the Cabinet of Ministers of Ukraine）、乌克兰数字化转型部（the Ministry of Digital Transformation of Ukraine）、乌克兰国家机构创业和出口促进办公室（State Institution Entrepreneurship and Export Promotion Office）、乌克兰国家创业和出口发展项目（the national project for Entrepreneurship and Export Development Diia.Business）、乌克兰经济部（the Ministry of Economy of Ukraine）和乌克兰外交部（the Ministry of Foreign Affairs of Ukraine）共同发起“[不要赞助谋杀](https://business.diia.gov.ua/en/do-not-sponsor-murder)”（[DO NOT sponsor murder](https://business.diia.gov.ua/en/do-not-sponsor-murder)）的国际宣传运动。
+
+今天，俄罗斯是“凶手”的代名词。在战争的第一个月，128名儿童与数千名和平的乌克兰人被俄罗斯军队杀害。随着俄罗斯对乌克兰人民犯下的战争罪行与日俱增，平民伤亡不断增加。
+
+事实上，白俄罗斯是对乌克兰战争的“被动共同组织者”（passive co-organizer），因为自2022年2月24日以来，俄罗斯军队一直在定期从其领土上攻击乌克兰。
+
+现在，还在与俄罗斯和白俄罗斯有任何商业往来，是对企业声誉的巨大打击，也是对侵略国对乌政策的事实上的默许。
+
+乌克兰政府机构发起了一项“[不要赞助谋杀](https://business.diia.gov.ua/en/do-not-sponsor-murder)”（[DO NOT sponsor murder](https://business.diia.gov.ua/en/do-not-sponsor-murder)）的国际宣传运动，，以帮助企业联合抵制俄罗斯和白俄罗斯的商品和服务。
+
+该运动的主要思想是：
+
+1. 向外国企业传达抵制俄罗斯和白俄罗斯商品和服务的重要性；
+2. 加速侵略国经济的迅速和大规模衰退；
+3. 用反对乌克兰战争的国家的商品和服务或支持乌克兰经济（用乌克兰的商品和服务），代替俄罗斯和白俄罗斯的商品和服务。
 
 
-3月28日晚间，融创中国（01918.HK）在港交所公告称，无法按期披露2021年未经审核年度业绩。公司股票将于4月1日起在港交所暂停买卖。
+乌克兰企业如何加入这一倡议？
 
-此前，融创中国已在3月21日公告，将于3月31日发布公司2021年度未经审核年度业绩，预期延迟刊发2021年经审核年度业绩。仅仅时隔一周，融创又宣布未经审核年度业绩也无法按期发布。
+1. 以png、ai或svg格式发送您的公司/组织徽标至[\[email protected\]](/cdn-cgi/l/email-protection)。我们会将其发布在倡议页面上，以支持不赞助谋杀运动。
+2. 在公司网站上放置下列标语中的一个：
 
-年报“难产”的消息传出后，**3月29日，融创中国股价开盘大跌20%，盘中跌幅一度超过22%。截至收盘，融创中国最新股价为4.08港元/股，跌17.41%，市值222.3亿港元。这距离其2020年1月份的高点，股价跌超90%，市值蒸发超过2000亿港元。**2022年以来，其股价已跌约66%。
 
-实际上，关于融创“资金链”绷紧的消息早已不胫而走，资本市场也早有预感。3月18日、21日、23日，“20融创01”均出现下跌。其中，3月23日，“20融创01”盘中两次跌停，单日跌幅达到了41.54%。
+- “我们加入了抵制俄罗斯和白俄罗斯产品的行列，荣耀归于乌克兰！”
+- “支持乌克兰人，抵制俄罗斯和白俄罗斯产品”
+- 在公司的社交媒体（Facebook、Twitter、Instagram、LinkedIn）上使用其他不赞助谋杀的视觉效果。
 
-根据上述公告，截至2021年6月30日，融创房地产集团总资产规模为11410.52亿元，资产负债率为83.45%，有息负债为2260.75亿元。
 
-截至2021年底，融创中国可售货值（含合联营公司）约为2.0万亿元。融创中国2022年1-2月累计销售额同比下降约27%。
+外国企业如何加入这场运动？
 
-目前已有超15家上市房企宣布年报延期，不乏行业龙头房企，如恒大、新力、佳兆业、阳光城、奥园、世茂等地产巨头。
+1. 拒绝与俄罗斯和白俄罗斯同行进一步合作；
+2. 从商店货架上移除俄罗斯和白俄罗斯商品；
+3. 用反对乌克兰战争的国家的合作伙伴或支持乌克兰经济（用乌克兰的合作伙伴），取代俄罗斯和白俄罗斯的合作伙伴。您可以在这里申请在乌克兰寻找合作伙伴，[购买乌克兰产品和服务](https://imp.export.gov.ua/buy_ukrainian)；
+4. 在公司网站上放置下列标语中的一个：
 
-参考链接：[融创盘中暴跌22%，已有逾15家房企年报“难产”](https://finance.sina.com.cn/stock/s/2022-03-29/doc-imcwiwss8834810.shtml)
 
-发布：Frank2021
+- “我们支持抵制俄罗斯和白俄罗斯产品，荣耀归于乌克兰！”
+- “支持乌克兰人。抵制俄罗斯和白俄罗斯产品”
+- 在公司的社交媒体（Facebook、Twitter、Instagram、LinkedIn）上使用其他不赞助谋杀的视觉效果。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+外国公民如何参加这场运动？
+
+1. 不要购买俄罗斯和白俄罗斯商品；
+2. 在社交网络上发表评论并发布带有继续与俄罗斯和白俄罗斯合作的公司帐户标签的帖子。
+3. 我们建议使用以下标签：#DONOTsponsormurder #StandWithUkraine #IbuyUkranian
+4. 支持反对与俄罗斯和白俄罗斯合作的公司的集会
+
+
+请记住，远离政治就是每天杀死乌克兰人的立场！因此，请站出来，为结束对乌克兰的战争做出贡献。
+
+不要赞助谋杀！
+
+DO NOT sponsor murder！
+
+“我们支持抵制俄罗斯和白俄罗斯产品，荣耀归于乌克兰！”
+
+We support the boycott of russian and belarusian products. Glory to Ukraine!
+
+“支持乌克兰人。抵制俄罗斯和白俄罗斯产品”
+
+Support Ukrainians. Boycott russian and belarusian products！
+
+参考资料：
+
+[Ministry of Digital Transformation: Ukraine launches an international information campaign DO NOT sponsor murder to boycott russian and belarusian goods and companies abroad](https://www.kmu.gov.ua/en/news/mincifri-ukrayina-zapuskaye-mizhnarodnu-informacijnu-kampaniyu-do-not-sponsor-murder-z-bojkotuvannya-rosijskih-ta-biloruskih-tovariv-i-kompanij-za-kordonom)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

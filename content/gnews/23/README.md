@@ -2,52 +2,44 @@
 ---
 
 
-## 乌克兰救援前线报道3.30.2022：梅迪卡响起了钢琴曲《锁链梦》
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2257279/)
+## 疫下灾情｜上海封城两日已酿悲剧 医院拒收危疾病人 一老翁失救致死
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256759/)
 
-整撰：奔跑吧黄小鸭
-![](https://assets.gnews.org/wp-content/uploads/2022/03/77.jpg)图片来源Gettr
-梅迪卡难民中心的NFSC营地前，在那幅巨大的灭共幕墙边，战地钢琴师Davide Martello弹奏了《锁链梦》，这是自他演绎《喜马拉雅之巅》、《沧海一声啸》、《灭共的雪》之后，再一次来到距离新中国联邦人更近的地方，用他的琴键向外传递中国人在共产党奴役之下发出的哀鸣。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-148.jpg)战地钢琴师Davide Martello在NFSC营地前的灭共幕墙边演奏《锁链梦》图片来自Gettr视频截图
-2022年2月24日，一场突如其来的战争彻底改变了每个乌克兰人的生活，所有人不得不适应一个残酷的现实，要么在随时响起的空袭警报声中匆匆躲进地下掩体，每天面对水、电和食物的极度匮乏和俄军无休止的轰炸，要么带上简单的行李开始逃亡之路，逃离战火和炮击的妇女孩子和老人们不知道他们何时能够重返故土，是否还能与已上战场的亲人重逢……
+**图/文｜CP**
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城兩日已釀悲劇-醫院拒收危疾病人-一老翁失救致死.jpg)
 
-在21世纪的今天，与这场战争的发生同样令人难以置信的是远在中共国一个小小的徐州丰县，惊现一名被锁链囚禁了20年的女性，这一突破常人承受极限的事件，暴露出中共政府和其控制下的媒体意欲掩盖的人口贩卖的黑暗历史。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-看过视频的人也许一生也忘不了从锁链女那被扒光牙齿的嘴里蹦出来的几句话：“这个世界不要俺了……这一屋都不是人，统统都是强奸犯，我跟妓女一样……放我走吧……”
 
-在中共强大的天网监控设施和警务系统集体“失灵”下，丰县当地先后给出4份漏洞百出的“情况说明”，把锁链女从最初的名字“杨某侠”，改到后来的“云南省福贡县亚古村人小花梅”，把整个事件从刚开始的“好心收留”，澄清为现在的“涉嫌拐卖”。尽管如此，锁链女至今仍无下落，而揭露锁链女的志愿者们纷纷被禁言、被失联，中共似乎在等待着人们注意力的转移和记忆力逐渐消退，为锁链女事件画上句号。
+上海疫情持续严峻，周一（28日）起以黄浦江为界实行两段式封城，进行全民核酸筛查。昨日（29日）是封城第二日，上海新增本土确诊个案5982宗，再创单日新高。
 
-Davide的琴声，仿佛是锁链女正发出绝望的低吟，让人心碎……一个令人无比沮丧的事实摆在我们面前，这里能够有成百上千的志愿者用不同的方式援助饱受战争摧残的乌克兰妇女和孩子们，能够有许多家媒体报道这场战争的侵略本质和引发的人道灾难，却没有一个人能够解救徐州丰县的锁链女……
+虽然封城刚刚踏入第三日，但坊间已经有不少悲剧发生。有网民29日在微博发文指，父亲因疫情封控，连续三日未能洗肾，最终导致心肌衰竭而死。他在文中公开个人信息，以证确有此事。
 
-新中国联邦人绝不希望它就此结束，郭文贵先生倾尽身心演唱的《锁链梦》，今天被带到了梅迪卡，让历史记住这一刻，让我们一起砸碎这铁索。
+该网民表示，他的父亲叫沈瑞根，今年77岁，居住在浦东新区北蔡镇（北中路408弄），由于糖尿病、肾衰竭需要接受血透治疗（即俗称“洗肾”），另每日还需高血压药、糖尿病药、胰岛素、肾病药、脑中风药续命，但因为浦东新区疫情封控管理处置不当，导致一个尚能自主的老人在3天内去世。
 
-“我本花一朵，被拐骗山中，从此亲人永相隔。
+据描述，26日沈老先生准备前往复旦大学附属浦东医院洗肾时，被通知核酸检测呈阳性，故暂时不能洗肾。当晚即被送进医院隔离区，至27日，浦东医院告知不能给阳性病人洗肾，疾控中心又安排老人转去上海君爱康复医院进行隔离，但由于120急救服务已超负荷，老人唯有等待，直至28日上午才被转到君爱医院隔离。隔离期间，没有医护照料与问询，28日晚上，老人仍未轮到洗肾，不久后昏迷，病友通知家属后，老人被送至周浦医院ICU病房，当晚9点52分离世。当值医生透露，沈老先生因长期未洗肾，造成心肌衰竭而死。
 
-囚禁二十年我受尽了折磨，这个世界不要我!
+事件爆光后，今日有不少上海危疾病患和家属纷纷在微博上发起“上海抗疫求助超话”并留下现居地址、电话、身分证号等个人资料，要求当局提供紧急救助。
 
-醒了吧 别再如此冷漠
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/30lfP0LTgQlY9ps-nRrTmqfX1TLXLM3-YpSP52KUj-c-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/CRiwAI39h_gZb3h4ZF2W0YFZVP9ykfPeITzyiiE88oo-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/k3tE5N_uFDiNucv_PwqWZ16XAEYuZ8A9utLHnrrSx54.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/lj7t6wkuClfU1s8y9_ycltyF3JXQSWBYkEfhMZBH4TE-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MRNwL9i7b2tFo-11NwLYzgGhYqyoGxfubjysu248rLs.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QJwA2Dwk_wWGwVblvz1dzcI9X42LognevzU7NL81OzQ-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QsZXZDgxPe2zS6XehB5Sx9JKcDizTqqXx75qSMe-akg-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TaG9ZKZmsUiBN4UcBxVsQ2Twb18tfmgmlylCFpcpQhY-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YOsO4Pfe4gbtlZSGznqn9c3pu0tN1Nrdcjd0anI3dGo-scaled.jpeg)
 
-醒来吧 抛掉所有懦弱
 
-只为能紧握住亲人手
+因疫情封控政策，非封控区医院暂停收治来自封控区的病人，而封控区内医院则闭门停诊，导致浦东等封控区的危疾病人，无法入院治疗，加上目前封控区不断有阳性个案确诊，解封之日遥遥无期，令不少民众哀叹，“除了新冠肺炎是病，其他疾病都不配算病。”
 
-要埋葬那邪恶的中共
+來源｜微博
 
-牙齿全拔落，铁锁已斑驳，这就是我的一生!
+* * *
 
-你若不醒来，还在梦里游走，永世地狱做猪狗!
-
-啊…… 啊……
-
-……
-
-同胞快醒来，从此要站着活，我们砸碎这铁锁!”
-
-参考链接：
-
-[MILES GUO on GETTR: “Pianist, Davide Martello, plays…”](https://gettr.com/post/p12kxr24964)
-
-[17亿关注！“丰县八孩调查”登上热搜！铁链女，我们没有放弃你！ – 知乎 (zhihu.com)](https://zhuanlan.zhihu.com/p/467607987)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

@@ -2,22 +2,31 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+**图/文｜CP **
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
 
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
+
+与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
+
+韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
+
+值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
+
+可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
+
+来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
 
 * * *
 
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

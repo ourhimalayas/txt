@@ -2,32 +2,35 @@
 ---
 
 
-## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
+## 有声|台湾情报机构：俄乌战争给人民币国际化制造机会
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2256371/)
 
-**图/文｜CP **
-**发布时间｜30/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+路透社报道称，台湾国安局长陈明通周一（3月28日）在立法院接受质询时指出，中共一直在寻找摆脱美元主导地位的途径，而目前的乌克兰战争，可能加速人民币在国际上的流通使用。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-18.jpg)据路透社报道，台湾国安局长陈明通表示，乌克兰战争以及俄罗斯被排除在国际货币体系之外，可能成为中国提升人民币地位以挑战美元的一个机会。
+陈明通指出，无论在人民币交易还是货币发行的准备方面，中共都不能放过这个机会。他说，中共一直想让人民币摆脱美元的主宰，这次德国加入切断SWIFT（环球银行金融电信协会）与俄罗斯连结的制裁行列，让中共有些意外，但也找到扩大人民币全球交易的机会。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+莫斯科已表示，希望中共帮助俄罗斯度过西方制裁对本国经济造成的打击，并将在西方冻结俄罗斯的美元和欧元储备的情况下，使用其外汇储备当中的人民币进行支付。
 
+北京一再表示反对对俄罗斯进行制裁，并强调将保持与俄罗斯的正常经济和贸易交往。中共还拒绝谴责俄罗斯对乌克兰的战争，不愿称其为侵略。
 
-韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
+[【援引连结】](https://www.dw.com/zh/%E5%8F%B0%E6%B9%BE%E6%83%85%E6%8A%A5%E6%9C%BA%E6%9E%84%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89%E7%BB%99%E4%BA%BA%E6%B0%91%E5%B8%81%E5%9B%BD%E9%99%85%E5%8C%96%E5%88%B6%E9%80%A0%E6%9C%BA%E4%BC%9A/a-61279680)
 
-与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
-
-韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
-
-值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
-
-可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
-
-来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花头条┃上海疫情大爆发，隔离”集中营“大规模投入使用
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2258125/)
+## 樱花头条┃七国集团拒绝普京用卢布支付天然气的要求
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2258265/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-海疫情大爆发，隔离”集中营“大规模投入使用.
+七国集团拒绝普京用卢布支付天然气的要求
 
-信息来源：[https://www.gettr.com/post/p12fgtp708b](https://www.gettr.com/post/p12fgtp708b)
+信息来源：[https://www.gettr.com/post/p12fb757394](https://www.gettr.com/post/p12fb757394)
 
-编辑：东京樱花团/asket、太白/asket（素材）
+编辑：东京樱花团/asket、文米/行动（素材）
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****

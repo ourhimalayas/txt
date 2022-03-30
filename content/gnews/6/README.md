@@ -2,27 +2,55 @@
 ---
 
 
-## 【G时新闻】俄罗斯和乌克兰将进行面对面的和平谈判
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2258110/)
+## 南澳大利亚取消交通教育行业的强制疫苗措施
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2258257/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据莫斯科时段themoscowtimes网站3月29日报道，俄罗斯和乌克兰将于周一重启面对面的和平谈判，并警告说，被围困的马里乌波尔市的局势现在是”灾难性的”。 总统弗拉基米尔·泽伦斯基（Volodymyr Zelensky）对恢复谈判桌上的会谈表示欢迎，称他们必须”毫不拖延地”带来和平，并表示愿意在最敏感的问题上妥协。 由于俄罗斯庞大的军队受到乌克兰激烈抵抗的阻碍，伊斯坦布尔会谈将考验战场上的挫折是否缓和了莫斯科的要求。 乌克兰情报局局长基里洛·布达诺夫（Kyrylo Budanov）表示，普京可能仍旨在以类似韩国的方式分裂该国 – “在被占领和未占领地区之间强加一条分隔线”。
+撰稿：Gradient Boost
 
-盖特链接：[https://gettr.com/post/p12myrs81b7](https://gettr.com/post/p12myrs81b7)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/model.png)
 
-编辑/发文 -【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-376.jpg)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+网络图片
+
+当地时间星期三，南澳大利亚州记录了 5496 例新的 COVID-19 病例。而在同一天，该州确认取消针对交通及教育领域从业者的强制疫苗规定。
+
+该州教育首席执行官里克·珀斯（Rick Persse）表示目前绝大多数员工都接种了疫苗，而未接种疫苗的员工现在也可以参加工作，但将在“严格的条件下”。
+
+举例来说，未接种疫苗的员工需要每天都接受快速抗原测试，同时在室内场合需要保持佩戴口罩。然而现实情况是不论是否接种疫苗都有可能传播或者感染病毒。
+
+一些特殊学校仍然将禁止未接种疫苗的员工参与工作，例如偏远地区的土著学校或残疾学生学校。
+
+在整个澳洲范围内，CCP病毒感染数字在几个州都有所增加。西澳大利亚州新增病例为 9754 例，目前该州有208人住院，6人处于重症监护状态，同时有3人不幸离世。
+
+新南威尔士州、维多利亚州和昆士兰州分别记录了 25,235、11,749 和 10,626 例新增确诊患者，数字较前一天均有所增加。同时上述三州又有总共27人不幸离世。新南威尔士州目前仍然还有约1300名患者需要住院治疗。
+
+编辑：Gradient Boost
+
+发布：疯狂的韭菜
+
+新闻参考链接：
+
+[9 News](https://www.9news.com.au/national/coronavirus-update-australia-nsw-victoria-qld-wa-case-numbers-rise-more-deaths-omicron-news/876a4d3e-53bb-4195-9736-a69785102d8a)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+
+
+
+更多资讯，更多关注
+
+[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2251364/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
+
+[郭文贵先生Gettr](https://gnews.org/zh-hans/2251364/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
+
+[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2251364/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
+
+[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2251364/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)0
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

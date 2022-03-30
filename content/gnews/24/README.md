@@ -2,30 +2,20 @@
 ---
 
 
-## 俄罗斯外长出访中共国 侵略乌克兰后的首次
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2257138/)
+## 俄乌战争｜俄外长喊话：中俄处在史上最坚固关系
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256743/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-俄罗斯外长拉布罗夫30日访问了中共国东部的安徽省。据塔斯社等报道，拉布罗夫当天与国务委员兼外长王毅举行会谈，就两国继续加强战略伙伴关系达成一致。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3808.png)图片来源：产经新闻
-这是俄罗斯对乌克兰军事入侵后，拉布罗夫首次出访中共国。出访邻国围绕阿富汗局势举行的外长会晤。
+**港台前线** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-30.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+外媒报导，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）预计在明日出席中、俄、巴基斯坦、伊朗等六国组成的阿富汗局势国际会议后，将与中共外长王毅会晤。日媒猜测，中俄外长会晤是为交换乌克兰局势的意见，且中共一贯采取亲俄立场，俄方恐循求中共的帮助。
 
-习近平政权在入侵乌克兰方面回避对俄批评，也反对美欧主导的对俄制裁。他实质上表现出更偏向俄罗斯的态度，包括表现出愿意继续与俄罗斯进行经济、贸易合作。不过，考虑到习政权与乌克兰的合作关系，习在立场上会表现得有多亲俄备受关注。
+拉夫罗夫对媒体强调，俄罗斯与中共的关系正处于史上最坚固的层级。路透报导，北京多次反对西方联合制裁莫斯科，并坚持与俄维持正常经济与贸易往来，拒绝谴责俄罗斯对乌克兰的侵略行动。
 
-俄罗斯方面，在国际上对入侵乌克兰的批评声一浪高过一浪的情况下，似乎想炫耀与中共国的团结。拉布罗夫还将在访问中共国后继续访问印度。印度也与俄罗斯建立了亲密关系，就入侵乌克兰深入的对俄批评一事有所节制。
-
-围绕阿富汗局势的外长会晤将由俄罗斯、巴基斯坦和伊朗等国参加，直至31日举行。
-
-参考链接：[ロシア外相が訪中　ウクライナ侵攻後初 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20220330-FT6PVWEU7JKA5NLZ6V7ZU3VXJQ/)
+来源｜[YAHOO JAPAN](https://news.yahoo.co.jp/articles/4802c15bdc42cc86fce398880796d80bb79a88f8)、[Newtalk](https://newtalk.tw/news/view/2022-03-28/730687)
 
 * * *
 
-审核：BryanW
-校对：Orpheus
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
-
+**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
 
  
 
