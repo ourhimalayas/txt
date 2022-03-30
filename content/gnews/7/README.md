@@ -2,20 +2,37 @@
 ---
 
 
-## 普京的能源牌导致相反结果：欧洲正在放弃俄罗斯能源
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254898/)
+## 有声|堪萨斯允许将伊维菌素和羟氯喹作为中共病毒治疗药物
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2255241/)
 
-编译：文宝
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国媒体3月25日报道，堪萨斯州参议院通过了一项法案，允许医生开具伊维菌素和羟氯喹作为治疗中共病毒的药物。该法案还要求托儿所和公立学校批准家长因宗教豁免不给孩子接种中共病毒疫苗的请求，且不深究人们对这种宗教的虔诚度。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-14.jpg)
+据悉，此前由于美国FDA的规定，很多医生和药剂师拒绝使用伊维菌素和羟氯喹作为治疗中共病毒的药物，尽管这两种药物非常有效的。曾经为感染中共病毒的患者开具伊维菌素的医生还被调查。
+
+目前，堪萨斯州该项法案已经被提交给众议院。而在今年早些时候，新罕布什尔州已经通过了一项类似法案。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯石油.jpg)
-俄罗斯入侵乌克兰的战争加速了欧洲从俄罗斯能源进口的转变，大大削弱了该国从石油和天然气业务中获得的收入。”？
 
-它还使耗资 110 亿美元的北溪 2 号天然气管道——旨在将更多的俄罗斯天然气输送到欧洲（美国、波兰和乌克兰警告称这将增加该地区的能源不安全）——变得多余，也许是永远的。
+文字版原文：[堪萨斯允许将伊维菌素和羟氯喹作为中共病毒治疗药物](https://gnews.org/zh-hans/2251649/)
 
-欧盟在 2021 年从俄罗斯进口了约 45% 的天然气，并承诺在年底前将俄罗斯天然气的购买量减少三分之二，欧盟委员会希望在 2030 年之前停止购买俄罗斯的化石燃料。 与此同时，美国正寻求通过向该地区供应自己的液化天然气来填补缺口。 然而，过渡仍然很复杂。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-美国将在 2022 年成为全球最大的液化天然气出口国，但改变能源确实需要时间，这不仅仅是在一夜之间关闭的电灯开关。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

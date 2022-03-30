@@ -2,29 +2,34 @@
 ---
 
 
-## 泽连斯基：准备寻求乌克兰中立地位但有条件
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253704/)
+## 澳大利亚政府将网络作战部队规模翻倍以应对中俄网络安全威胁
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2253939/)
 
-作者：香草山教育部-飞虹
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月28日，据多家媒体报道，乌克兰总统泽连斯基日前接受俄罗斯独立记者采访时表示，就乌克兰安全保障、中立地位和无核地位，以及东部顿巴斯地区的问题与俄方商讨。但由于这些问题可能涉及修改乌克兰宪法，对这些问题乌克兰需要举行全民公投，另外还要得到第三方担保。泽连斯基同时指出，俄乌两国达成和平协议的首要条件，是俄罗斯撤军和停火。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-100.jpg)
-根据乌克兰宪法，加入北约和欧盟是该国的战略目标。由于该国目前尚未加入北约或其他安全联盟，因此安全保障问题是其当前的主要问题。
+编译：波士顿五月花—-Streamline
 
-另外，泽连斯基还表示，乌克兰不会在去军事化等问题上与俄方进行讨论，因为这些概念“难以理解”。
+据《英国每日邮报》3月29日报道，由于受到中国和俄罗斯网络安全的威胁，澳大利亚将在未来10年花费近100亿美元，使其网络作战部队的规模翻倍。
 
-另据其他渠道的消息，俄乌两国谈判代表团的新一轮谈判将于29日至30日在土耳其伊斯坦布尔举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/AA3496CD-6830-4808-A49B-656E6FB25B7A.jpeg)
 
-参考链接：
-[泽连斯基：准备好与俄商讨乌中立问题 但须安全保证及全民公投](https://www.zaobao.com.sg/realtime/world/story20220328-1256778)
-[俄乌谈判代表团将于下周举行新一轮面对面谈判](https://news.cctv.com/2022/03/28/ARTIJ1duo3GBJRLNOlXS10Lk220328.shtml)
+随着澳大利亚与美国和英国(澳大利亚的传统国防盟友)以及亚洲民主大国的国家安全关系得到加强，上述预算将大幅提升澳大利亚国防情报局(Australian Signals Directorate-ASD)的情报能力，国防情报局是国防部的一个分支。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+在这份预算中，政府将投资 99 亿美元用于澳大利亚的情报和网络，以加强政府对澳大利亚五眼联盟和澳英美联盟（ AUKUS ）三边合作伙伴关系的承诺，同时支持印-太地区的安全。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+2030-31年中，澳大利亚情报局将获得资助，以提供复原、效果、防御、空间、情报、网络和辅助手段一揽子计划—被称为REDSPICE计划。
+
+REDSPICE计划将使澳大利亚情报局的规模扩大一倍，在未来十年创造1900个新的就业机会。
+
+联邦政府表示，REDSPICE计划将使ASD的“网络攻击能力”增加两倍，“网络搜寻和响应活动”能力增加一倍。
+
+澳大利亚去年与美国和英国签署了一项具有历史意义的安全协议，称为AUKUS。作为协议的一部分，美国还将与澳大利亚分享核潜艇技术。这是自1958年以来，美国首次与英国以外的国家分享他们的潜艇技术。
+
+新的AUKUS安全伙伴关系的首要任务是在核动力潜艇方面进行合作。网络能力、人工智能、量子技术和海底作战能力是其他重点领域。
+
+新闻评论：独裁的中共国和俄罗斯是世界所有灾难的根源，对内，它们视生命如草芥，鱼肉百姓，骄奢淫逸。对外，它们与邪恶为伍，撕毁条约，不守规则。以美国为首的西方文明世界只有与新中国联邦联手铲除中共和俄罗斯政权，才能为世界带来正道主义的希望。
+
+素材来源：[https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html](https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html)
+
+*发布：思澈*
 
 
 

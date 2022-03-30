@@ -2,26 +2,43 @@
 ---
 
 
-## 更具传染性的 病毒子变体在美国占主导地位
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254736/)
+## 有声|教育-人生的影响
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2254786/)
 
-编译：文宝
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+爱是教育的前提条件，没有爱的教育一切都是空中楼阁，爱更是抚育和安慰，她是一种能力，她不是口头表达而是具体的行为表现。
+
+不科学合理的教育是错误位人生的根源，缺乏尊重的教育是叛逆的根源。人生其实没有成功与失败只有唯一，教育中更没有尊贵与低贱只有个性。
+
+即便你有再糟糕的原生家庭，教育都可以很好的弥补，因为人有认知功能，教育的核心是（唤醒），唤醒你的人性和个性，而不是灌输某一种观念，如孩子就像一幅天然画卷，教育要做的就是轻轻擦去上面的尘土，自然露出原本色彩而不是去塗改它。教育里比传授知识更重要的就是（有安全感），也是教育的前提条件。
+
+举例教育者老師的行为，在不论任何时候都要轻言轻语小心翼翼的使用它，因为老师的一个眼神就可能抹杀一个孩子的一生。在言语的鼓励和关心当中可以培奍身心的正面的种子，而呵斥和过分严厉会造成内心的抗拒，在青春時期的叛逆心态成負面的成長，引响以後他们対人生價值觀的看法，需慎之。
+
+人生的每个时期都有她的特性，教育首先要（尊重）这个规律，满足各个阶段的需求，否则要不就是滞后要不就是拔苗助长，不管哪一种情况都会给人带来空虚感。人生也遵从能量守恒定律，失去的一定会找回来。不科学合理的教育是错误位人生的根源，缺乏尊重的教育是叛逆的根源，成年之后都会回报社会，至于回报的是爱还是恨，就取决于她接受的教育，所以独裁的形成不是天生的而是教育导致，所以我们每一个人都要善待周围的人，让他感觉温暖化解他的不满，带给世界和平。
 
 
-![A woman takes a coronavirus disease (COVID-19) test at a pop-up testing site in New York City, January 12, 2022.](https://image.cnbcfm.com/api/v1/image/107000414-1642028919088-test.jpg?v=1642084706&amp;w=929&amp;h=523&amp;ffmt=webp)
-根美国据疾病控制和预防中心本周发布的数据，更具传染性的 omicron 子变体 BA.2 现在是美国 Covid-19 的主要版本。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/download-19.jpg)
 
-该子变体占接受基因测序的 Covid 感染样本的近 55%。 即便如此，更具传染性的病毒的传播并不能保证美国将承受新一波病例。大约每两周，BA.2 在美国流行的病毒变种中的比例就会增加一倍。 2 月初，omicron 子变体仅占美国已测序的 Covid 病例的 1%。
 
-根据英国卫生安全局的最新更新，BA.2 子变体的传播速度比 omicron 的早期版本 BA.1 快约 75%。最近几周，BA.2 导致英国和德国的感染人数激增，但那里的病例又开始下降。
+文字版原文：[教育-人生的影响](https://gnews.org/zh-hans/2235041/)
 
-中国正在与 2020 年以来最严重的疫情作斗争，这也是由 BA.2 推动的。根据南非和英国等国家的数据，虽然 BA.2 的传播速度更快，但它并不比早期版本的 omicron 使人们生病。 Omicron 及其子变体通常导致比 delta 变体更轻的疾病。卡塔尔的科学家发现，Covid 疫苗对 BA.2 的效果与对 BA.1 的效果一样，尽管 omicron 引起了更多的突破性感染。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-白宫首席医疗顾问安东尼·福奇博士本月早些时候表示，BA.2 可能会导致美国病例增加，但他预计不会再次激增。福奇说，该国还不需要重新引入 Covid 限制来应对子变体。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：[https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html](https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-57.png)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,30 +2,26 @@
 ---
 
 
-## 普京及俄罗斯精英阶层已经为启动核武器做好准备？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2254530/)
+## 更具传染性的 病毒子变体在美国占主导地位
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254736/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16485960431.png)Mirror.co.uk 普京在阿尔泰山中的私人别墅——该地区有地堡
-据综合外媒今日（3月29日）报道，克里姆林宫发言人近日表示, 俄罗斯在面临 “生存威胁” 的情况下，可能使用核武器。之后，普京和高级指挥官已经躲在了地堡里。这种将核选项摆在桌面上的状况令人担忧。
+编译：文宝
 
-飞行追踪信息显示，普京可能藏身于西伯利亚的苏尔古特（Surgut）附近地区的地堡内。据调查记者克里斯托·格罗泽夫（Christo Grozev）报道，国防部长谢尔盖·绍伊古（Sergei Shoigu），在距莫斯科东部725公里的乌拉尔乌法（Urals）的一个地堡里。
 
-多家媒体曾报道，国防部长格罗泽夫消失多日。他31岁的女儿，克塞尼亚·绍伊古 （Ksenia Shoigu）在3月22日，去该地看望了患有心脏病的父亲。
+![A woman takes a coronavirus disease (COVID-19) test at a pop-up testing site in New York City, January 12, 2022.](https://image.cnbcfm.com/api/v1/image/107000414-1642028919088-test.jpg?v=1642084706&amp;w=929&amp;h=523&amp;ffmt=webp)
+根美国据疾病控制和预防中心本周发布的数据，更具传染性的 omicron 子变体 BA.2 现在是美国 Covid-19 的主要版本。
 
-与英国调查机构贝灵猫（Bellingcat）有关联的格罗泽夫说，“我绝对肯定绍伊古在地堡里”，在追踪他的飞机的移动时，看到飞往乌法的航班非常频繁。这个地区有受保护的掩体，这就显示了他的居住地。他在采访中告诉乌克兰24频道，“这是非常合理的版本”。他说，普京发言人德米特里（Dmitry）几天前在美国（CNN）上说，“假设发生核打击”，他们不能在事后再隐藏军方领导层，“他们必须先隐藏起来”。
+该子变体占接受基因测序的 Covid 感染样本的近 55%。 即便如此，更具传染性的病毒的传播并不能保证美国将承受新一波病例。大约每两周，BA.2 在美国流行的病毒变种中的比例就会增加一倍。 2 月初，omicron 子变体仅占美国已测序的 Covid 病例的 1%。
 
-格罗泽夫认为，普京在其他地方还有一个地堡。追踪显示有更多的秘密航班飞往那里。这些联邦的飞机在苏尔古特附近的某个地方关闭了应答器。那里是俄罗斯的石油之都，位于莫斯科东北约1800英里处。“看起来越到高层越机密”，那里很可能有一个为政府精英而打造的地堡。
+根据英国卫生安全局的最新更新，BA.2 子变体的传播速度比 omicron 的早期版本 BA.1 快约 75%。最近几周，BA.2 导致英国和德国的感染人数激增，但那里的病例又开始下降。
 
-此前有消息称，普京已将其近亲转移到阿尔泰（Altai）山区的一个地堡，该地堡位于苏尔古特东南约1100英里、莫斯科以东2360英里处。普京曾在2020年11月到12月间视察了该地区。
+中国正在与 2020 年以来最严重的疫情作斗争，这也是由 BA.2 推动的。根据南非和英国等国家的数据，虽然 BA.2 的传播速度更快，但它并不比早期版本的 omicron 使人们生病。 Omicron 及其子变体通常导致比 delta 变体更轻的疾病。卡塔尔的科学家发现，Covid 疫苗对 BA.2 的效果与对 BA.1 的效果一样，尽管 omicron 引起了更多的突破性感染。
 
-俄罗斯高层使用高度安全的地堡——如果得到证实——令人担忧。因为这表明普京可能正在准备部署核武器。此举将导致不可避免的报复行为。
+白宫首席医疗顾问安东尼·福奇博士本月早些时候表示，BA.2 可能会导致美国病例增加，但他预计不会再次激增。福奇说，该国还不需要重新引入 Covid 限制来应对子变体。
 
-据报道，在俄罗斯购买地堡的人急剧上升。
+原文链接：[https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html](https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html)
 
-*责编：白夜*
-
-[原文链接](//www.dailymail.co.uk/news/article-10663553/Putin-high-command-hunkering-secret-nuclear-bunkers.htmlource)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-57.png)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 2:02 AM (UTC)`
+
+2022.03.29  NFSC finance 新中国联邦 | 喜财经 第2期
+![img](https://media.gettr.com/group40/origin/2022/03/30/02/5a39b001-6867-e0ad-b38a-88da4e162157/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/30/2022 1:10 AM (UTC)`
 
 2022.03.29 晚《新中国联邦新闻访谈》联合国基本解体-中印俄出局；美国是最大的赢家；世界格局将巨变；拜登演讲里的最大赢家是无苗灭共有币的新中国联邦人。
@@ -149,13 +156,6 @@ The buddies at the front line have new vests. <br/>They are printed with “take
 
 【Ukraine rescue】2022/3/28  The NFSC tent has become a distribution center for donated supplies in Medyka.<br/><br/>【救援直播】2022/3/28  新中国联邦帐篷已成为美迪卡捐赠物资集散地。<br/><br/>
 ![img](https://media.gettr.com/group20/getter/2022/03/29/13/ea44f07e-c709-0178-8280-980250152af6/out.jpg)
-
----
-
-`@miles 3/29/2022 1:00 PM (UTC)`
-
-2022.03.29 早《新中国联邦新闻访谈》  30人特战组用无人机阻止了俄军车队进入基辅 ；英国新规：为俄罗斯和中国等敌对国家游说者必须登记；GClubs年会抽奖带给战友们公平和希望
-![img](https://media.gettr.com/group50/origin/2022/03/29/12/4dc6c698-b2c9-44f8-9cbf-6a8acfaaa6d7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
