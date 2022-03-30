@@ -2,37 +2,34 @@
 ---
 
 
-## 有声|新中国联邦|喜健康 系列节目3月27日首播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259108/)
+## 乌大使告诉联合国“俄的非军事化正在顺利进行”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259141/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据文贵先生盖特讯息，3月27日，新中国联邦“喜健康”系列节目首次上线播出，截至发稿已播出两期。参加首播的三位医生都是对新中国联邦和法治基金乌克兰人道救援前线进行医疗支援的联盟团队成员。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-154.jpg)
-首播中，医生们介绍了前线染疫战友的康复情况和采用的医疗方案。据悉，前线累计约有30位战友感染中共病毒，其中绝大部分已复阴，截至27日还有6位战友正在康复过程中。关于医疗方案，医生们依据爆料革命情报和美国“一线重症联盟”（FLCCC）验证过的治疗方案，并结合现场情况，采用了以伊维菌素、羟氯喹和锌为主药的方案，并曾对伊维菌素的单日用量选用了方案中的最高量即0.6毫克每公斤体重。此外，医疗团队还发现，染病的重要原因之一是战友们忽视了口罩的正确使用。现场有两位战友一直注意全程佩戴口罩，他们都没有感染，可以作为例证。医生们还指出，这一阶段的治疗过程体现出前线和后方的通力合作，包括波兰医生现场提供的具备稳定血压、抑制过敏等用途的处方药。
+翻译: 里奇
 
-在最近的几期直播中，文贵先生反复叮嘱战友们，随着救援的持续开展，完善防病治病的医疗措施也要成为救援前线的工作重点之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
 
+俄罗斯总统弗拉基米尔·普京声称他入侵乌克兰只是为了让俄罗斯这个较小的邻国“非军事化和去纳粹化”。入侵一个多月后，乌克兰驻联合国大使谢尔盖·基斯利齐亚（Sergiy Kyslytsya）用同样的话强调了俄罗斯在战争中的损失。
 
+![Sergiy Kyslytsya](https://s.yimg.com/ny/api/res/1.2/kfAMLdjPe4d9PaPb9sIYcQ--/YXBwaWQ9aGlnaGxhbmRlcjt3PTcwNTtoPTQ3MTtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/LNlH1ZW90OyIc81fEs1cYw--~B/aD01NjQ7dz04NDU7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/en/the_week_574/368ccd3873f32cbfafa9506a06a9c5af)图片来源：路透社
 
-文字版原文：[新中国联邦|喜健康 系列节目3月27日首播](https://gnews.org/zh-hans/2252710/)
+基斯利齐亚周二告诉联合国安理会，“俄罗斯的非军事化正在顺利进行”。他声称，自入侵以来，俄罗斯损失了 17,000 多名军事人员，外加 1,700 多辆装甲车和约 600 辆坦克，“对莫斯科造成了前所未有的打击，相比之下，苏联在阿富汗的损失数量相形见绌”。十多年里，俄罗斯在阿富汗损失了 15,000 名或更多士兵，这导致了苏联解体。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+据美联社报道，基斯利齐亚还声称俄罗斯损失了 127 架飞机、129 架直升机、7 艘舰船、300 个火炮系统、近 100 个火箭发射器系统和 54 个防空系统。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+俄罗斯最近声称只有 1,351 名士兵在乌克兰阵亡，而北约上周称俄罗斯阵亡人数在 7,000 至 14,000 人之间。卡尔顿大学教授、加拿大国防和安全网络主任斯蒂芬·赛德曼告诉加拿大广播公司新闻：“每一方都有动机夸大他们给敌方造成的损耗，并弱化自己所遭受的损失。” “每场战争都会这样做。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+但加拿大皇家军事学院军事史教授肖恩·马洛尼（Sean Maloney）告诉 CBC 新闻，他确信“根据我所掌握的消息来源确信，俄罗斯在行动中丧生的人数超过 15,000 人”，其中包括 31 名俄罗斯高级军官和许多训练有素的士兵。他说，俄罗斯人“不在乎他们的军事人员，他们的车辆没有装备好用以保护自己的士兵”。 “整场战争我都没见过装甲救护车。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+新闻来源: 雅虎新闻[https://www.yahoo.com/news/ukraines-ambassador-tells-u-n-054017580.html?guccounter=1](https://www.yahoo.com/news/ukraines-ambassador-tells-u-n-054017580.html?guccounter=1)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+* * *
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+审核：文乐
+校对：阿伯塔
+发布：小东
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 

@@ -2,27 +2,52 @@
 ---
 
 
-## 渥太华大学将取消疫情限制措施
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258328/)
+## 澳洲经济预算文件担忧今年中期或出现更严重疫情
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2258410/)
 
-采编：加拿大温哥华杨帆农场 – 青青
+撰稿：Gradient Boost
 
-编译：加拿大温哥华杨帆农场 – 晨熹
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-12-3.jpg)图片来源：ctv
+![](https://assets.gnews.org/wp-content/uploads/2022/03/model-1.png)
 
 
-据加拿大【CTV新闻】3月29日报道，渥太华大学从5月份开始，将取消在校园内强制配戴口罩和使用“新冠病毒”疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-378.jpg)
+网络图片
 
-该大学日前发布声明称：鉴于安省政府最近放宽了公共卫生限制，将从 5月1日起暂停实施配戴口罩并提供疫苗接种证明才能进入校园的要求。但同时会根据疫情实际变化，随时撤销以上规定。
+澳大利亚联邦政府近日表示了对 COVID-19或出现更加危险突变的担忧，导致其在经济预算文件中重新将全国范围的一些限制纳入考虑范畴。
 
-据悉，该大学所在的安大略省目前已取消了配戴口罩和出示疫苗接种证明等大部分疫情防控措施。
+目前澳洲的经济预测将以今年晚些时候CCP病毒疫情会再度爆发为前提。预算文件描述了两种可能的情况，其中第一种情况要更为严峻。
 
-校对编辑：硫酸羟氯喹64
+文件预测：“在这种情况下，2022 年中期会出现更加严重且令人担忧的CCP病毒变体，同时这次爆发恰逢冬季流感季节，并且可能较最初的 Omicron 浪潮出现更多的病例，持续更长时间，并导致更为严重的病状……在下一波疫情爆发高峰期，劳动力缺勤率恢复到与 2022 年 1 月相似的水平。”
 
-发稿：文明(添草灭共)
+同时该预测分析认为部分防疫限制措施将可能重新回归：“预防性行为，例如减少社交以及限制活动，将导致消费疲软和更高的家庭储蓄。” 在这种情况下，失业率将比目前的预测高 0.25%。
 
-原文链接： [https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068](https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068)
+第二种情况则相对更为乐观，在该情景下，新增病例逐渐趋于稳定，整体卫生环境也会好转。
+
+这些文件还预测，1 月份 Omicron 感染的激增，以及东海岸的洪水和高油价，都将抑制本季度的大众消费，不过在未来的时间里这些影响都将逐渐消退。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[9 News](https://www.9news.com.au/world/federal-budget-omicron-covid19-winter-wave-lockdown-restrictions-coronavirus-australian-news/9e1bafd0-afa9-4088-94b4-f27a08852e0c)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+
+
+
+更多资讯，更多关注
+
+[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2251364/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
+
+[郭文贵先生Gettr](https://gnews.org/zh-hans/2251364/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
+
+[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2251364/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
+
+[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2251364/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)0
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
  
 

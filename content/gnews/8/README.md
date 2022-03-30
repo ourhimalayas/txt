@@ -2,48 +2,35 @@
 ---
 
 
-## 德国：七国集团拒绝俄罗斯以卢布支付天然气的要求
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2259124/)
+## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月29日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259144/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1239468315-700x4202-1.jpg)图片来源：nationworldnews.com
-柏林（美联社）–德国能源部长周一说，七国集团已达成统一意见拒绝莫斯科要求以卢布支付俄罗斯天然气出口的要求。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-罗伯特·哈贝克(Robert Habeck)告诉记者，“所有七国集团的部长都完全同意这（将）是单方面的、明显的违反现有合同。”他说，来自法国、德国、意大利、日本、美国、英国和加拿大的官员在周五开会协调他们的立场，欧盟的代表也在场。
-
-哈贝克说，“用卢布付款是不可接受的，我们会敦促受影响的公司不要遵守（俄罗斯总统弗拉基米尔）普京的要求”。
-
-普京上周宣布，俄罗斯将要求“不友好”的国家从现在起只用俄罗斯货币支付天然气费用。他指示该国央行为天然气买家设计一个程序，以便在俄罗斯获得卢布。
-
-经济学家表示，此举似乎是为了试图支持卢布。自2月24日普京入侵乌克兰以来，卢布对其他货币的汇率已经崩溃。更多西方国家对莫斯科进行了影响深远的制裁作为回应。但一些分析人士对这一做法是否有效表示怀疑。
-
-周一记者问到，如果欧洲客户拒绝以卢布付款，俄罗斯是否会切断对他们的天然气供应，克里姆林宫发言人德米特里·佩斯科夫(Dmitry Peskov)在电话会议上说：“我们很清楚，我们不会免费供应天然气。”
-
-佩斯科夫说：“在我们的情况下，向欧洲搞慈善活动几乎是不可能的，也是不可行的”。
-
-当被问及如果俄罗斯现在关闭水龙头会发生什么时，德国能源部长说，“我们对所有情况都有准备”。
-
-赫伯克说，“普京已经提出了要求，（意味着）他在这方面已经没有退路，否则他不会提出这个要求”，比如向士兵付款。
-
-简评：
-
-俄罗斯自从对乌克兰开战后，西方世界开始了对俄罗斯进行金融制裁，在切断俄罗斯的swift系统后，俄罗斯的卢布当天贬值40%。在现代金融体系面前，战争除了杀戮，已经完全失去了传统的意义。普京一意孤行，自对乌克兰开战以来，除了侵占了乌克兰的领土，战火导致几百万乌克兰人民流离失所，上万名俄罗斯和乌克兰的士兵战死，俄罗斯被国际制裁，卢布贬值，俄罗斯经济不可避免的衰退，战争除了彰显普京独裁统治的权力，没有任何实际意义。尤其在当今的互联网社交媒体时代，战争已经毫无意义。
-
-为了应对国内的经济压力，普京要求国际社会用卢布来购买俄罗斯的天然气，这从侧面印证了，俄罗斯面临的巨大经济压力。若战争再不停止，俄罗斯将陷入更加危险的境地。遗憾的是，在世界自由民主的文明国家都在支持乌克兰顽强反抗俄罗斯的非法入侵的时候，中国共产党却坚定的为俄罗斯的入侵行为背书。中国共产党再次暴露了它的本质，它来源于俄罗斯，它只忠诚于俄罗斯，而中国人永远只是中国共产党的奴隶，利用完了就会扔掉。
-
-新闻链接: [https://nationworldnews.com/germany-g7-rejects-russias-demand-to-pay-for-gas-in-rubles/](G7%20rejects%20Russia’s%20demand%20to%20pay%20for%20gas%20in%20rubles)
-
-翻译/简评: kkoto(芬兰大灰狼) / PR: 感恩
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-29-1.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月29日早](https://gnews.org/zh-hans/2253404/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
