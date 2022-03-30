@@ -2,37 +2,27 @@
 ---
 
 
-## 有声|美国和菲律宾在台湾附近举行大规模军事演习
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2256370/)
+## 联合国：俄罗斯拦截黑海粮食运输船只
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2256643/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
-【德国之声 周一（3月28日）】  数千名美国和菲律宾将士在菲律宾北部与台湾的海域边界附近开始了多年来最大规模的一次军事演习。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-10.jpg)在菲律宾北部与台湾的海域边界附近，数千名美国和菲律宾将士开始了多年来最大规模的一次军事演习。
-美国和菲律宾的军方官员说，这是被称为“巴利卡坦”（菲律宾他加禄语，意思是“肩并肩”）的年度演习。今年将持续到4月8日，共有近9000名来自海军、海军陆战队、空军和陆军的将士参加，其中包括5100名美军将士。演习的目的在于加强长期条约盟友的 “作战能力和应对现实世界挑战的准备工作”。
+**撰稿：日本东京方舟农场 北极**
 
-巴利卡坦演习开始于1991年，以1951年签订的《共同防御条约》为基础。该条约规定美国和菲律宾在受到攻击时互相提供援助，
+据乌克兰信息报（ukrinform）3月30日报道，俄罗斯海军封锁黑海地区，拦截90多艘为世界各大市场运送食品的民用船只。
 
-大规模军演反映了即将离任的总统杜特尔特的立场转变。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-33.png)俄罗斯军舰。（图片来自ukrinform）
 
+美国副国务卿温迪·露丝·谢尔曼（Wendy Ruth Sherman）在3月29日的联合国安理会简报会上表示，俄罗斯海军封锁了黑海和地中海之间的水路航线，拦截了大约94艘为世界市场运送食品的船只。俄罗斯海军还轰炸了至少三艘从黑海港口运往世界其他地区的民用船只。
 
+谢尔曼指出，世界上30%的小麦、20%的玉米和75%的葵花籽油出口来自黑海地区。俄罗斯海军基本上切断了粮食出口，普京战争的后果远远超出了对乌克兰造成的巨大损失和伤害，还直接影响到全球粮食安全。
 
-[【援引连结】](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%92%8C%E8%8F%B2%E5%BE%8B%E5%AE%BE%E5%9C%A8%E5%8F%B0%E6%B9%BE%E9%99%84%E8%BF%91%E4%B8%BE%E8%A1%8C%E5%A4%A7%E8%A7%84%E6%A8%A1%E5%86%9B%E4%BA%8B%E6%BC%94%E4%B9%A0/a-61282957)
+根据人权观察组织的数据，俄罗斯入侵乌克兰加剧了中东和北非的粮食危机。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+参考链接：
+https://reurl.cc/LpEr0x
+
+总编：老孙
+校对发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

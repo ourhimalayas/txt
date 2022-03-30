@@ -2,31 +2,37 @@
 ---
 
 
-## 国际｜中共拟与所罗门群岛秘签安全协议
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256213/)
+## 有声|美国和菲律宾在台湾附近举行大规模军事演习
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2256370/)
 
-**港台前线** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-3-5.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-外媒30日报导，一份经澳洲政府认证的外泄文件指出，中共将与所罗门群岛签署一项安全协议，外界有认为该协议协助解放军打开太平岛国的大门并协助解放军军舰进入该地区。据文件所述，要求中共派遣解放军进入该地区的理由为“维护社会秩序”，该文件曝光后引起外界对太平洋地区被中共夺取的警惕。
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+【德国之声 周一（3月28日）】  数千名美国和菲律宾将士在菲律宾北部与台湾的海域边界附近开始了多年来最大规模的一次军事演习。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image004-10.jpg)在菲律宾北部与台湾的海域边界附近，数千名美国和菲律宾将士开始了多年来最大规模的一次军事演习。
+美国和菲律宾的军方官员说，这是被称为“巴利卡坦”（菲律宾他加禄语，意思是“肩并肩”）的年度演习。今年将持续到4月8日，共有近9000名来自海军、海军陆战队、空军和陆军的将士参加，其中包括5100名美军将士。演习的目的在于加强长期条约盟友的 “作战能力和应对现实世界挑战的准备工作”。
 
-战略与国际研究中心澳洲首任主席查尔斯·埃德尔周五表示：“这对美国来说是个严重问题，也是我们的盟友和伙伴担心的重要原因。”“一个战略对手在所罗门群岛建立基地，将大大削弱澳洲和纽西兰的安全，增加当地腐败的机会，并增加资源剥削的可能。”
+巴利卡坦演习开始于1991年，以1951年签订的《共同防御条约》为基础。该条约规定美国和菲律宾在受到攻击时互相提供援助，
 
-该协议目前仅为草案，惟经签署后，所罗门群岛总理马纳西·索加瓦雷将有权请求中共保护所国政府，为解放均提供位于美、澳之间的基地，中共更可以通过协议阻断南太平洋航运。
+大规模军演反映了即将离任的总统杜特尔特的立场转变。
 
-所罗门群岛议会反对党领袖马修·威尔表示“协议非常笼统、包罗一切、含糊不清”“问题的关键在于，这一切都是为了总理的政治生存，与所罗门群岛的国家安全毫无关系。”外媒引述该协议称文件允许中共提供“其他任务方面的协助且任何一方不得向第三方透漏合作资讯”，此部分似乎已逾越协议欲维护社会秩序的目的。
 
-此外，该协议允许中共根据自身需要，取得所罗门群岛同意下，安排舰船访问、在所罗门群盗进行后勤补给、中途停留或过度，且所罗门群岛将提供“一切必要设施”。
 
-澳洲为所罗门群岛的主要安全伙伴，该文件曝光后经澳洲政府证实为真实，澳国外交部声明称“我们会对任何破坏我们地区安全的行为感到担忧，面对影响太平洋地区安全的局势，最适合做出反应的应该是太平洋大家庭的成员。”
+[【援引连结】](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%92%8C%E8%8F%B2%E5%BE%8B%E5%AE%BE%E5%9C%A8%E5%8F%B0%E6%B9%BE%E9%99%84%E8%BF%91%E4%B8%BE%E8%A1%8C%E5%A4%A7%E8%A7%84%E6%A8%A1%E5%86%9B%E4%BA%8B%E6%BC%94%E4%B9%A0/a-61282957)
 
-所罗门群岛总理马纳西·索加瓦雷 (Manasseh Sogavare )表示“已准备好签署”该协议。
-
-來源｜[衛報](https://www.theguardian.com/world/2022/mar/29/solomon-islands-prime-minister-says-foreign-criticism-of-china-security-deal-very-insulting)
-
-* * *
-
-**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

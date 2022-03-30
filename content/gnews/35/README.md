@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|中共国房企阳光城称旗下三期境外债券及一期境内PPN本息或利息违约
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2256368/)
+## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
-【路透北京3月28日】 深陷债务泥潭的中共国房企——阳光城(000671.SZ)周一公告，流动性出现阶段性紧张，公司未能按期支付三期境外债券本息或利息；同时亦未能支付境内债“19阳光城PPN001”本息。（“SUNSHI 5.3 01/11/22”本息、“SUNSHI 10.2503/18/22”本息及“SUNSHI 8.25 11/25/23”利息。）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image002-11.jpg)
-阳光城公告称，公司2019年度第一期定向债务融资工具“19阳光城PPN001”应于2022年3月22日支付本息，但由于公司近期偿债资金筹措压力较大，截止兑付日日终，公司未能按照约定筹措足额偿付资金，本期定向债务融资工具不能按期偿付本息。
+**图/文｜CP **
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
 
-该公司上周曾公告旗下多只中票加速到期，本息合计逾50亿元未能足额偿付。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
+韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
 
-[【援引连结】](https://cn.reuters.com/article/china-sunshine-city-bonds-likely-default-idCNKCS2LQ053)
+与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-https://twitter.com/rosenews4?s=21**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
-**校对：小脑斧**
-**上传：漂流瓶**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
+
+值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
+
+可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
+
+来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

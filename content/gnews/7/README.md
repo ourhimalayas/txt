@@ -2,27 +2,39 @@
 ---
 
 
-## 日本开放宣战权呼应拜登演讲
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2258244/)
+## 有声|俄军士兵无防护穿越切尔诺贝利辐射区
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258452/)
 
-作者：澳喜农场 Leo M
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒28日消息，两名切尔诺贝利核电厂的员工透露，他们亲眼目睹前来占领核电厂的俄罗斯士兵驾驶着装甲车、以及坦克，在没有任何防辐射装备的情况下，穿越一个名为“红森林”的高辐射区域。
 
-3月27日，郭文贵先生在大直播中透露，日本公布开放宣战权的做法是为了呼应美国总统拜登早先在波兰华沙的演讲。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-215.jpg)
-此前一天，拜登总统在演讲中严厉警告称，绝不允许普京踏入欧洲半步。同时，拜登总统也建议俄罗斯人不应该再让普京继续掌权。对此，日本首相岸田文雄表示，日本必须尽快开放自卫队的“宣战和动武权”，所以修改宪法中的相关章程将是日本政府势在必行的计划。
+由于是重型军用车辆，车辆驶过时扬起了大片放射性尘埃，其中一名员工认为，这对士兵来说无异于“自杀”，因为他们吸入的放射性尘埃极有可能会在身体里发生内放射反应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-103.jpg)
+红森林位于基辅以北约100公里的地方，是切尔诺贝利地区放射性最强的地区。该地数十平方公里的松树，因为1986年爆炸时，吸收了大量辐射后而变红，因此得名“红森林”，它被认为是世界上最严重的核灾难之一，由于高度污染，甚至连核电厂的员工都不被允许进入。
 
-资料显示，自俄罗斯入侵乌克兰以来，世界格局正在发生翻天覆地的变化。这其中，地处俄罗斯远东方向的日本成为了牵制莫斯科当局的重要力量。因此，日本突然提出开放宣战权的政策将具有非同寻常的意义。
+有核电厂员工曾经警告过俄军要小心辐射，但是他们似乎不清楚这意味着什么，依然我行我素，驾驶装甲车随意行驶，令人十分担忧。
 
-郭先生也补充道，在当前不能拥有核武器的情况下，日本可以在72小时内制造出五枚核导弹，且其中任何一枚的威力都将不亚于中共和俄罗斯的同类军备。短期内，日本必将重回世界超级大国的行列。
 
-参考链接：[**2022年3月27日 文贵大直播：世界政治地域文化经济彻底改变；美国点明俄国非西方敌人普京是；从普京必须离开看习近平的命运；GClubs年会显天意人心遥相呼应**](https://gettr.com/streaming/p124vkgc8a0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文字版原文：[俄军士兵无防护穿越切尔诺贝利辐射区](https://gnews.org/zh-hans/2254894/)
 
-总编：Irene木木
-编辑：呼吸的雾霾（文小呼吸）
-审核：翼族
-校正/发稿：Fei797
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

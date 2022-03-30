@@ -2,23 +2,34 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 中共打击民间利用风水预测股市涨跌
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2257816/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/EVWIWZHA4FJXVP2RKG5TT72DDY.jpg)
+日前，中共证监会打击使用风水术数预测股市涨跌走势的行为。
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+中共证监会表示通过应用天干地支和五行风水预测股市的行为是非法的。此前网路流传的《仁者无敌-2022中国股市预测》、《天干地支在择时中的应用初探》等报告提供者被证监会处罚，撤职降级，并扣发年终奖金。中共证监会认为各证券公司应该加强员工管控，对内部员工发布的投资讯息应该进行严格审查，证券分析师发布报告应以中共集权擀面杖子电脑操控的市场数据为主。
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
+此前总部位于香港的某证券经纪公司发布的玩笑风水投资指南，预测中共股市的表现，在投资者中很受欢迎。
 
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+reference：
+
+[China’s regulator cracks down on using feng shui to predict stock market trend](https://www.reuters.com/world/china/chinas-regulator-cracks-down-using-feng-shui-predict-stock-market-trend-2022-03-30/?taid=62442b4d6d68c200016433bd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+[https://finance.eastmoney.com/a/202203302328404780.html](https://finance.eastmoney.com/a/202203302328404780.html)
 
 * * *
 
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

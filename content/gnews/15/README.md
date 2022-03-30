@@ -2,32 +2,28 @@
 ---
 
 
-## 俄罗斯背弃承诺，再次轰炸乌克兰城市
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2257900/)
+## 日本开放宣战权呼应拜登演讲
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2258244/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7CS2YQK6EJCOZPBHQ7QWPKV2II.jpg)
-3月30日周三，俄罗斯军队再次轰炸了乌克兰北部一个城市。此次轰炸是在前一天俄乌双方和平谈判中俄军同意停止轰炸乌克兰的前提之下。基辅和盟军因为和平协议的条款已经撤出，因此遭受了巨大损失。
+作者：澳喜农场 Leo M
 
-被轰炸的乌克兰北部城市切尔尼戈夫市长表示俄罗斯的轰炸在近24小时之内加剧，目前有10万人被困，食物和医疗用品缺乏，当下物资储备只能坚持一周左右。市长表示俄罗斯总是撒谎，此次轰炸比此前的轰炸要猛烈，炸伤了25名平民。乌克兰总统泽连斯基表示，不要相信莫斯科的承诺。目前俄罗斯正试图包围乌克兰主要部队，基辅附近也集结了大量俄军。另外一些报告还显示，俄罗斯一夜之间三次袭击了乌克兰西部的工业设施。
+3月27日，郭文贵先生在大直播中透露，日本公布开放宣战权的做法是为了呼应美国总统拜登早先在波兰华沙的演讲。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-215.jpg)
+此前一天，拜登总统在演讲中严厉警告称，绝不允许普京踏入欧洲半步。同时，拜登总统也建议俄罗斯人不应该再让普京继续掌权。对此，日本首相岸田文雄表示，日本必须尽快开放自卫队的“宣战和动武权”，所以修改宪法中的相关章程将是日本政府势在必行的计划。
 
-美国五角大楼表示俄罗斯承诺的退军其实是重新部署定位，更加要警惕俄罗斯对乌克兰的威胁。英国国防部认为俄罗斯可能会利用大规模炮击和导弹来袭击。
+资料显示，自俄罗斯入侵乌克兰以来，世界格局正在发生翻天覆地的变化。这其中，地处俄罗斯远东方向的日本成为了牵制莫斯科当局的重要力量。因此，日本突然提出开放宣战权的政策将具有非同寻常的意义。
 
-reference：
+郭先生也补充道，在当前不能拥有核武器的情况下，日本可以在72小时内制造出五枚核导弹，且其中任何一枚的威力都将不亚于中共和俄罗斯的同类军备。短期内，日本必将重回世界超级大国的行列。
 
-[https://www.reuters.com/world/europe/ukraine-isnt-naive-zelenskiy-says-after-russia-pledges-scale-down-attack-kyiv-2022-03-30/](https://www.reuters.com/world/europe/ukraine-isnt-naive-zelenskiy-says-after-russia-pledges-scale-down-attack-kyiv-2022-03-30/)
+参考链接：[**2022年3月27日 文贵大直播：世界政治地域文化经济彻底改变；美国点明俄国非西方敌人普京是；从普京必须离开看习近平的命运；GClubs年会显天意人心遥相呼应**](https://gettr.com/streaming/p124vkgc8a0)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-欢迎订阅我们的GNews账号：
+总编：Irene木木
+编辑：呼吸的雾霾（文小呼吸）
+审核：翼族
+校正/发稿：Fei797
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

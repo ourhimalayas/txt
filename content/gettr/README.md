@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 2:34 PM (UTC)`
+
+2022/3/30 这是来自我们战友们的设计，请大家留下你们的宝贵建议在评论区. 谢谢🙏
+![img](https://media.gettr.com/group4/getter/2022/03/30/14/c8b0d261-8062-280c-ba99-422bcfe4ce28/4864824168dc347129044fcc8d0e8176.jpg)
+
+---
+
+`@miles 3/30/2022 2:25 PM (UTC)`
+
+<br/>3月30号：尊敬的战友们好。【So bad…跟着共产党走进火葬场，所有和吴征合作的人，没有一个有好下场的。】<br/><br/>https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/
+
+---
+
 `@miles 3/30/2022 1:00 PM (UTC)`
 
 
@@ -142,20 +155,6 @@ The Denmark volunteers on Medyka, Poland refugee camp. Voluntarily came to the t
 
 Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New Federal of China and Rule of Law Foundation.<br/><br/>钢琴家戴维德·马尔泰罗在新中国联邦法治基金的大帐篷前演奏《铁锁梦》
 ![img](https://media.gettr.com/group12/getter/2022/03/29/22/b02fbeb7-4c72-ea00-89ca-3617c62a4416/out.jpg)
-
----
-
-`@miles 3/29/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-29
-![img](https://media.gettr.com/group39/origin/2022/03/29/21/e58fd5f5-b5d8-078b-11d0-d4fd7948db41/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 8:47 PM (UTC)`
-
-2022.03.29 NFSC health 新中国联邦 | 喜健康系列节目 第3期 之《CCP解剖学》
-![img](https://media.gettr.com/group46/origin/2022/03/29/20/a67ef18a-9c0f-1adf-e14a-b8c60d81f78c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
