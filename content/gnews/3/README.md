@@ -2,39 +2,24 @@
 ---
 
 
-## 拜登称普京下台是表达内心正义怒火
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2255876/)
+## 专家建议日本政府：慎重进行第四次疫苗接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255950/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
-外媒报道，美国总统拜登3月28日表示，他在26日于波兰发表演讲时，称普京不应该继续掌权的说法，是表达内心的正义怒火，并拒绝为此道歉。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-210.jpg)图源网络
-据悉，26日拜登在波兰华沙皇家城堡，就俄罗斯侵略乌克兰事件发表重大演说，脱稿说出“这个人不能继续掌权”，显然是在暗指普京。虽然事后白宫澄清说，拜登并不是在讨论普京政权更迭问，但28日拜登表示，他的言论是对普京残忍行径的愤怒表达，并非政策改变的宣示，也不对所说的话感到抱歉。
+撰稿：东京樱花团/立正道
 
-拜登解释说，他关于普京的讲话是与俄罗斯人民对话，并且向全世界传达了他的看法，即普京的行为是完全不可接受的。拜登还暗示说，普京不应该继续领导俄罗斯政府，若是普京一意孤行，必将会成为世界的贱民。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3780.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2021%2F09%2Fnp_file_111733.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2021%2F09%2F11%2Fnational%2Fvaccination-rate-social-distancing%2F&amp;tbnid=)
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3874954](https://news.ltn.com.tw/news/world/breakingnews/3874954)
+日本厚生劳动部3月24日召开疫苗分科会,同意开始为实施第4次新冠疫苗接种做准备。但是,由于缺乏显示有效性的数据,很多专家都表现出谨慎的态度,它是否会真正被实施，还有待观察。
 
+厚生劳动省在这次会议上,提出了将第4次接种定位为免费的“临时接种”,从第3次接种开始6个月以后实施的方案。据厚生劳动省报道,第3次接种后,随着时间的推移效果会减少的研究很多,而关于第4次接种的研究很少。
 
+专家提出，“对象应该专门针对老年人和医务人员”“我们应该做好准备，但要有勇气随时停下来”“最好先验证第3次接种的效果和成本”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-469.jpeg)
+信息来源：[ワクチン4回目接種、専門家から慎重意見相次ぐ　有効性データ乏しく　厚労省分科会、準備開始は合意＜新型コロナ＞](https://www.tokyo-np.co.jp/article/167557)
 
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

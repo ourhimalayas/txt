@@ -2,41 +2,30 @@
 ---
 
 
-## 阿布和乌克兰谈判代表与俄会谈后“出现中毒症状”
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2255859/)
+## 泽伦斯基总统：没有理由相信 &#8220;俄罗斯会缩减军事活动&#8221;
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255926/)
 
-作者：华盛顿DC农场 自由信仰
+撰稿：东京樱花团/待命（文晓）
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3779.png)（图片源自本文链接）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
-天空新闻2022 年 3 月 28 日报道，俄罗斯寡头阿布拉莫维奇和乌克兰谈判代表都出现了疑似“化学武器”中毒的症状。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-368.jpg)图源网络
-据调查网站Bellingcat称：“Bellingcat 可以确认，参加 2022 年 3 月 3 日至 4 日晚上乌克兰与俄罗斯和平谈判的代表团的三名成员出现了与化学武器中毒一致的症状。受害者之一是俄罗斯企业家阿布拉莫维奇。”
+日本Q电视新闻3月30日消息：在俄罗斯和乌克兰的停火谈判中，俄罗斯方面宣布将大幅减少其在首都基辅附近的军事活动。在评论俄罗斯的这些说法时，泽伦斯基总统说，”我们没有理由相信一个继续为摧毁我们而战斗着的国家派出的代表的话”。
 
-在一系列推文中，Bellingcat 补充了更多细节， “阿布拉莫维奇和另一位俄罗斯企业家与乌克兰议员乌梅罗夫一起参加了谈判。3 月 3 日下午的谈判在乌克兰领土上进行，并且一直持续到晚上10点左右。谈判小组的三名成员当晚晚些时候感到最初的症状，包括眼睛和皮肤发炎以及眼睛刺痛，直到早上症状才减轻。根据远程和现场检查，专家们得出的结论是“这些症状很可能是不明化学武器中毒的结果。另一种不太可能的假设是使用微波照射。”
+即便是在举行停火谈判的29日，在乌克兰南部的米科拉伊乌（Mykolaiv）拍摄的录像显示，似乎还是炮弹在飞，硝烟弥漫，全国各地的战斗仍在继续。
 
-据《华尔街日报》报道，阿布拉莫维奇和另外两名乌克兰团队的高级成员出现了包括红眼、持续和痛苦的流泪以及面部和手部皮肤脱皮等症状。目前，包括克里米亚政治家乌梅罗夫在内，三人的健康状况已经有所改善，没有生命危险。
+在土耳其伊斯坦布尔举行的停火会谈上，乌克兰代表团表示，自会谈结束以来，已经取得了一些进展。同时，俄罗斯方面宣布大幅减少首都基辅附近的军事活动，以创造一个有利于谈判的环境。俄罗斯国防部副部长说：我们已经决定大幅削减基辅和切尔尼乌地区的军事力量。
 
-新闻来源：[https://news.sky.com/story/roman-abramovich-and-ukrainian-peace-negotiators-suffered-symptoms-of-suspected-chemical-weapons-poisoning-after-talks-in-kyiv-12576989](https://news.sky.com/story/roman-abramovich-and-ukrainian-peace-negotiators-suffered-symptoms-of-suspected-chemical-weapons-poisoning-after-talks-in-kyiv-12576989)
+关于俄罗斯的这些说法，泽伦斯基总统做出了评估：我要说的是，我们从会谈中听到的信号是积极的。然而，这些信号无法压制俄罗斯炮弹的爆炸。我们没有理由相信一个继续为摧毁我们而战斗着的国家的代表的话。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-469.jpeg)
+另一方面，美国国防部发言人科比29日对俄罗斯 “大幅减少基辅附近的军事行动 “这种说法表示否定，称 “任何人都不应该被欺骗”。基辅周围的一些俄罗斯部队正在移动，但这是重新部署，而不是撤退。这是一支小分队，我们认为这是一次重新部署，而不是真正的撤退。
 
+科比还强调说 “我们应该为乌克兰其它地区的大规模袭击做好准备”。
 
+信息来源：[露の軍事活動“縮小”ゼレンスキー大統領「信じる根拠ない」（日テレNEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/742efb02679513d99d05fe0aca2ab43b756fe3cc)
 
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

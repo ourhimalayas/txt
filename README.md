@@ -15,112 +15,112 @@
 
 ---
 
-### [拜登总统向俄罗斯人民喊话：这场战争不值得你们牺牲](/content/gnews/1/README.md)
+### [《铁锁梦》MV背后的设计奇思](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳洲再次承诺推行国家数字身份证](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [专家建议日本政府：慎重进行第四次疫苗接种](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [泽伦斯基总统：没有理由相信 &#8220;俄罗斯会缩减军事活动&#8221;](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登总统向俄罗斯人民喊话：这场战争不值得你们牺牲](/content/gnews/5/README.md)
  ` 美国政要直译推`
 
-### [樱花时政┃中共野蛮防疫 高校女生殒命](/content/gnews/2/README.md)
+### [樱花时政┃中共野蛮防疫 高校女生殒命](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登称普京下台是表达内心正义怒火](/content/gnews/3/README.md)
+### [拜登称普京下台是表达内心正义怒火](/content/gnews/7/README.md)
  ` GTV News Talk`
 
-### [阿布和乌克兰谈判代表与俄会谈后“出现中毒症状”](/content/gnews/4/README.md)
+### [阿布和乌克兰谈判代表与俄会谈后“出现中毒症状”](/content/gnews/8/README.md)
  ` GTV News Talk`
 
-### [日本银行将为未来的数字日元发行做好充分准备](/content/gnews/5/README.md)
+### [日本银行将为未来的数字日元发行做好充分准备](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《共产党统治中国的150个家族》之“李鹏”篇（六）](/content/gnews/6/README.md)
+### [《共产党统治中国的150个家族》之“李鹏”篇（六）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [透析拜登在波兰的讲话及意义](/content/gnews/7/README.md)
+### [透析拜登在波兰的讲话及意义](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中日财经爆┃完美世界影视总裁死亡](/content/gnews/8/README.md)
+### [中日财经爆┃完美世界影视总裁死亡](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针](/content/gnews/9/README.md)
+### [FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [防下毒？乌外交部长：谈判代表不要吃喝甚至触摸任何东西](/content/gnews/10/README.md)
+### [防下毒？乌外交部长：谈判代表不要吃喝甚至触摸任何东西](/content/gnews/14/README.md)
  ` 蓝莲花农场`
 
-### [共产党把最美好最勤劳的中华民族变成了荒凉的死亡之谷的精神境界](/content/gnews/11/README.md)
+### [共产党把最美好最勤劳的中华民族变成了荒凉的死亡之谷的精神境界](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国计划与台湾、韩国和日本建立半导体联盟以制约中共](/content/gnews/12/README.md)
+### [美国计划与台湾、韩国和日本建立半导体联盟以制约中共](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃日本受邀参加北约外长会议](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [向每一位在新浪和微信背后审核的网警和攻击的五毛致敬](/content/gnews/14/README.md)
+### [向每一位在新浪和微信背后审核的网警和攻击的五毛致敬](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [比特币用户从4月1日起在印度缴纳30%的数字货币税](/content/gnews/15/README.md)
+### [比特币用户从4月1日起在印度缴纳30%的数字货币税](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [一周内以色列发生第三起恐怖袭击 枪手持M16枪杀五名公民 被警方击毙](/content/gnews/16/README.md)
+### [一周内以色列发生第三起恐怖袭击 枪手持M16枪杀五名公民 被警方击毙](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [在看到俄罗斯的行动之前，拜登不会对声明进行任何解读](/content/gnews/17/README.md)
+### [在看到俄罗斯的行动之前，拜登不会对声明进行任何解读](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登坚持认为普京不能继续执政的言论](/content/gnews/18/README.md)
+### [拜登坚持认为普京不能继续执政的言论](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [秘翻在线：县长协会主席要求政府采取防止核电站受武装袭击的措施](/content/gnews/19/README.md)
+### [秘翻在线：县长协会主席要求政府采取防止核电站受武装袭击的措施](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄军导弹击中市政楼，造成3死22伤](/content/gnews/20/README.md)
+### [俄军导弹击中市政楼，造成3死22伤](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [伊维菌素是任何一个疾病模型中最有效的药物之一](/content/gnews/21/README.md)
+### [伊维菌素是任何一个疾病模型中最有效的药物之一](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄罗斯军方称将减少在基辅和切尔尼戈夫的军事行动](/content/gnews/22/README.md)
+### [俄罗斯军方称将减少在基辅和切尔尼戈夫的军事行动](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [乌部队无人机伏击并阻止了基辅外40英里长的俄车辆纵队](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月29日晚](/content/gnews/24/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月29日晚](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [拜登：尽管俄入侵乌克兰 美仍快速落实印太战略](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [俄罗斯考虑接受比特币支付天然气和原油](/content/gnews/26/README.md)
+### [俄罗斯考虑接受比特币支付天然气和原油](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [聚焦：中共挺俄喧嚣为什么安静了？](/content/gnews/27/README.md)
+### [聚焦：中共挺俄喧嚣为什么安静了？](/content/gnews/28/README.md)
  ` 蓝莲花农场`
 
-### [【#G时新闻】隐藏的免疫功能或使未接种新冠疫苗的人免受感染](/content/gnews/28/README.md)
+### [俄军士兵无防护穿越切尔诺贝利辐射区](/content/gnews/29/README.md)
+ ` NFSC News`
+
+### [拜登在波兰会见“勇敢的”乌克兰难民](/content/gnews/30/README.md)
+ ` NFSC News`
+
+### [【#G时新闻】隐藏的免疫功能或使未接种新冠疫苗的人免受感染](/content/gnews/31/README.md)
  ` G-时新闻`
 
-### [俄罗斯是否故意针对乌克兰的文化地标](/content/gnews/29/README.md)
+### [俄罗斯是否故意针对乌克兰的文化地标](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人](/content/gnews/30/README.md)
+### [3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [【#G时新闻】融创到期债务无法兑付，中共房地产加速破裂](/content/gnews/31/README.md)
+### [【#G时新闻】融创到期债务无法兑付，中共房地产加速破裂](/content/gnews/34/README.md)
  ` G-时新闻`
 
-### [阿布拉莫维奇很早入手大量喜币，增加喜支付流通量争取更大话语权](/content/gnews/32/README.md)
+### [阿布拉莫维奇很早入手大量喜币，增加喜支付流通量争取更大话语权](/content/gnews/35/README.md)
  ` YALUN 亚伦`
 
-### [泽连斯基：准备寻求乌克兰中立地位但有条件](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [能源问题不再是各国较量的主因素](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [炮火中的葬礼](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [郭先生解析民主国家与独裁国家的不同](/content/gnews/36/README.md)
+### [泽连斯基：准备寻求乌克兰中立地位但有条件](/content/gnews/36/README.md)
  ` NFSC News`
 
 ### [俄乌战争导致中东地区粮食短缺、物价飞涨，加剧社会动荡](/content/gnews/37/README.md)

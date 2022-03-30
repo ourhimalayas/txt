@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月29日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2255406/)
+## 伊维菌素是任何一个疾病模型中最有效的药物之一
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255567/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-63.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-8.png)
+03/28/2022 皮埃尔·科里医生：伊维菌素是任何一个疾病模型中最有效的药物之一。Cureus医学科学杂志上由Flávio A. Cadegiani（弗拉维奥·凯迪加尼）医生和一组作者的研究，2020年6月，巴西城市伊塔雅伊，113,000居民每月服用研究提供的伊维菌素，六个月后，住院率和死亡率惊人的大幅下降了90%-100%。不止一项研究，81项研究中几乎每个个案都显示了药物受惠性。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p12lqih87f5](https://gettr.com/post/p12lqih87f5)
-访谈：[https://gettr.com/post/p12m18g1281](https://gettr.com/post/p12m18g1281)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

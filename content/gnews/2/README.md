@@ -2,26 +2,36 @@
 ---
 
 
-## 樱花时政┃中共野蛮防疫 高校女生殒命
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255880/)
+## 澳洲再次承诺推行国家数字身份证
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2255961/)
 
-撰稿：东京樱花团/秋明
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-3月24日，山西财经大学一女生操场跑步突发心梗，120救护车到达，保安以疫情为由不让救护车进校，耽误了25分钟最终致该女生抢救无效死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-63.jpg)
-学生家长无法接受，父亲在学校呼喊：“还我女儿，学校不让看监控”，向学校讨要说法。
+翻译/编辑：小红帽
 
-同学仗义传播真相，称学校领导不作为，强压热搜想息事宁人，该事件在网络迅速传播开来。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FEB2019_digital_identity_deep_dive_national_identity.jpg)图片来源：www.pymnts.com
 
-校方领导以及老师们第一时间展开调查，很快就抓出来全部将此事发到网络上的学生们，
 
-正义的财大学生勇敢质疑校方领导：就算查到我又有什么用呢？我一个人倒下去了，还会有万万个人站出来……
+根据Biometric Update3月29日报道，澳大利亚的数字和数据部长做出了比以往更有力的承诺，以推进国家数字身份证系统的全面推广。
 
-因为疫苗产生的次生灾害已经慢慢开始发酵，因为中共野蛮防疫造成病人延误救治而身亡的悲剧，这几天一出又一出上演，悲愤之余，这些敢于直言的大学生让我们看到一线希望，如果推翻防火墙，大部分有良知的国人都会明辨善恶！
+在最近的一次会议上，部长们同意“积极探索”数字身份的实施过程，并对个人数据的收集、报告和共享方式进行调整。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+在最近一次会议里，最后公报部分内容如下：“部长们同意积极探索采用国家数字身份生态系统。所有政府都在密切合作，将这一承诺转化为所有澳大利亚人的切实利益。这一整体经济解决方案将为澳大利亚带来显着的经济效益，并支持澳大利亚到2030年成为领先的数字经济和社会的愿景。部长们还指出了数字证书的互操作性和相互承认的重要性。
+
+尽管“可信数字身份法案”尚未通过，但西澳大利亚等一些州已经公布了自己的数字身份路线图。
+
+该法案是一项立法草案，定义了拟议的可信数字身份系统的建立、组织和运作。自启动以来，该系统迄今已耗资4.5亿澳元（3.37亿美元）。
+
+新闻来源：[Australia recommits to national digital ID push, UK to introduce One Login from April](https://www.biometricupdate.com/202203/australia-recommits-to-national-digital-id-push-uk-to-introduce-one-login-from-april)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,34 @@
 ---
 
 
-## 樱花时政┃日本受邀参加北约外长会议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255760/)
+## FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2255791/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/日本受邀参加北约外长会议.png)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=images%20free%20trial-,Japan%20and%20NATO%20handshake%2C%20international%20friendship%20)
-北大西洋公约组织（NATO）3月29日宣布，将于4月6日至7日在布鲁塞尔总部举行外长会议。日本、韩国、澳大利亚和其它国家将被邀请参加4月7日的会议。日本外务大臣林芳的参加正在准备中。预计乌克兰也将受到邀请，各国在应对俄罗斯方面将加强合作。
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16486112191.png)图片来源：波士顿环球
+据《国会山报》3月29日报道，周二，FDA（美国食品和药物管理局）为50岁及以上人群注射中共病毒（COVID-19）疫苗第二针开了绿灯。
 
-据北约称，除了日本、韩国、澳大利亚和乌克兰之外，芬兰、格鲁吉亚、新西兰、瑞典和欧盟也被邀请参加7号的会议。其中部分参加者将通过视频连线参加会议。
+FDA说，任何50岁及以上的人，无论第一次注射的是哪种疫苗，都可以在第一次中共病毒疫苗加强针后至少4个月获得第二次加强针注射。
 
-北约于本月24日举行首脑会议后发布了一份联合声明，警告中共国在支持俄罗斯方面需保持克制。
+报道说，FDA对辉瑞（Pfizer）公司和莫德纳（Moderna）公司的疫苗给予了紧急使用授权。辉瑞公司最初要求对65岁及以上的人进行授权，而莫德纳公司要求对所有成年人进行更广泛的授权。
 
-信息来源：
-[NATO外相会合へ日本も招待　4月6～7日に開催](NATO外相会合へ日本も招待　4月6～7日に開催)
+FDA疫苗部门负责人马克斯（Peter Marks）周二告诉记者称，该机构之所以选择较低的年龄限制，是因为这些人的医疗条件最可能使他们面临严重后果的高风险。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+与此同时，为配合FDA的行动，尽管没有提出全面建议，CDC（美国疾病控制和预防中心）主任瓦伦斯基（Rochelle Walensky）更新了该机构的指南。CDC说，任何50岁及以上的人，如果想注射中共病毒疫苗第二针，现在就可以注射了。
+
+但是，值得注意的是，卫生官员们并没有就第二次中共病毒疫苗加强针注射的申请召开任何咨询小组会议。而FDA的一个外部专家小组之前不同意该机构领导人关于广泛扩大疫苗加强针使用的决定。
+
+对此，马克斯辩称，没有必要召集一个小组，因为此决定是一个“相对直接的”基于数据的决定。
+
+报道指出，这一决定存在一些重大问题，包括第二加强针的保护作用将持续多久。此举可能会重新引发一场关于谁可能需要注射加强针以及美国疫苗接种运动的更广泛目标的激烈辩论。争论的焦点是，即使症状比较轻微，那注射疫苗加强针的目标是防止人们因中共病毒而住院，还是防止他们生病。
+
+*责编：白夜*
+
+**新闻来源**
+
+[FDA authorizes second booster shot for people age 50 and up](https://thehill.com/policy/healthcare/600076-fda-authorizes-second-booster-shot-of-coronavirus?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=03.29.22+JB+The+Hill+-+Health+Care&amp;rl=1)
+
+
 
  
 
