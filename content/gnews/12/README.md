@@ -2,29 +2,34 @@
 ---
 
 
-## 视频|俄寡头资助乌克兰抵御侵略者实现自我救赎
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2256026/)
+## 五角大楼表示会加快生产乌克兰需要的导弹
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2256278/)
 
-制作：香草山视频部
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6242f5fab2509.image_.jpg)
+日前，据美国国防部官员称，五角大楼将会加快生产毒刺导弹和标枪反坦克导弹用来支持乌克兰抗击俄罗斯的入侵。
 
-据外媒消息，乌克兰总统泽连斯基在3月27日表示接受俄罗斯独立媒体采访时，获悉支持基辅俄罗斯商人的名单，其中包括英超切尔西队老板、俄罗斯亿万富豪阿布拉莫维奇。
+根据最新的一份军事援助清单，乌克兰希望美国每天分别提供500枚毒刺导弹和标枪反坦克导弹。截止到3月7日，美国和北约其他盟国已经向乌克兰提供了约17000枚反坦克导弹和2000枚防空导弹，后续这个数字有增加，但尚未公布。
 
-泽连斯基称，这些俄国富商向他表示希望能够以某种方式协助乌克兰对抗俄军的进攻，他提到，某些富商甚至表示会在战后帮助乌克兰进行重建。
+五角大楼表示毒刺导弹生产线已经关闭，但目前正在积极与国防供应商雷神公司协商，且已经向雷神公司授予了一份3.2亿美元的合同。洛克希德·马丁公司是标枪反坦克导弹的制造商，目前处于全面生产模式，正在考虑努力提高产量。根据美国国防部的2022年预算，标枪反坦克系统年产量可达6000多个。
 
-泽连斯基表示会对协助基辅对抗俄军的俄罗斯富商提供安全保障，并针对其企业提供更多发展机会。 此外，他还向北约领导人以及美国总统拜登呼吁，不要在全球范围制裁这些富商。
+撰稿、发布：骄子
 
-在3月27日的《文贵大直播》节目中，郭文贵先生就“泽连斯基呼吁西方社会不要制裁阿布拉莫维奇等有良知的俄罗斯寡头”这一话题时，引申谈及了中俄富豪的巨大差异。
+reference：
 
-文贵先生表示，阿布拉莫维奇是俄罗斯前总统叶利钦部分家族资产的代理人，他与普京的交往仅仅是为了兑现保护叶利钦家人和财产安全的承诺。虽然拥巨额财富，但阿布待人温和有礼，切尔西俱乐部的人都十分喜欢他们这位老板。与之形成鲜明对比的是，许多中国富商作为中共权贵家族的资产代理人，其无知、狂妄的程度和他们对老百姓血汗钱的觊觎贪婪，已陷入不可挽回的程度。在官商勾结、权钱交易中，他们迷失了自我，谎言和欺诈筑成了他们所谓的“事业”。
+[https://www.kwwl.com/news/top-stories/pentagon-will-accelerate-production-of-missiles-ukraine-has-requested-to-refill-us-stockpiles/article\_84e2d7c8-7986-5628-ae0a-2e4fbb2535bf.html](https://www.kwwl.com/news/top-stories/pentagon-will-accelerate-production-of-missiles-ukraine-has-requested-to-refill-us-stockpiles/article_84e2d7c8-7986-5628-ae0a-2e4fbb2535bf.html)
 
-全球各势力已开始围剿俄罗斯普京和中共习近平两大邪恶独裁轴心。诸多像阿布这样心存良知的资本代理人纷纷做出了支持正义的选择，他们终将获得现代文明框架下各法制国家的宽恕和庇护。而诸多由于懦弱、贪婪等人性缺陷，选择与邪恶为伍的中共资产代理人，最终难逃兔死狗烹的悲惨命运，即便侥幸逃脱，也将面临道德和法律的制裁。
+* * *
 
-发稿：林礼
+欢迎订阅我们的GNews账号：
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

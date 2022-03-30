@@ -2,35 +2,31 @@
 ---
 
 
-## 美国计划与台湾、韩国和日本建立半导体联盟以制约中共
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255767/)
+## 日本银行将为未来的数字日元发行做好充分准备
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255801/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
 翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MapCopywrited2-980x804-1.jpg)图片来源：https://mitre-engenuity.org/
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/415889470D0EAEE7AEABBE0F23BF86275B403AB86F421714DF5725C901616300.jpg)图片来源：Blockchain.news
 
 
-根据Business Standard3月29日报道，美国提议在美国、台湾、韩国和日本之间建立一个半导体产业联盟，以防止中共在这个战略领域获得主导地位。
+根据路透社3月29日报道，日本央行行长黑田东彦周二表示，日本央行目前没有发行自己的数字货币的计划，但将“充分”准备应对未来不断变化的情况。
 
-然而，台湾新闻网援引《韩国商业》报道称，韩国并不完全赞同美国提出的想法。韩国政府不愿意危及三星等在中共国拥有核心制造基础设施的韩国芯片制造商的运营。
+黑田东彦在金融服务创新非公开研讨会上发表讲话。
 
-中共国西部城市西安是三星唯一的海外存储芯片工厂所在地。该工厂约占这家韩国企业集团NAND闪存总产量的40%。
+日本央行计划从4月开始进入发行央行数字货币 (CBDC) 实验的第二阶段，这将是决定试点计划和最终推出数字日元的关键。
 
-与此同时，中共正在发动经济战，以收购台湾的半导体产业。台湾拥有世界领先的半导体产业，仅次于美国。
+2021年11月24日，一个由约70家日本企业组成的联盟曾表示，计划在未来数月开始测试一种基于日元的数字货币，然后在2022财年推出。该联盟成员包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。
 
-据《香港邮报》报道，台湾政府指责中共对台湾的科技行业发动经济战，窃取技术并诱使技术工程师离开。
+前日本金融厅长官、目前担任DeCurret特别顾问的远藤俊英也曾于2021年11月份表示：“建立在银行存款支持的共同平台上的数字货币系统将适合可能在日本规划和实施的央行数字货币（CBDC）。”
 
-台湾行政部长罗平正指控，中共正在引诱台湾的先进技术人才，从事盗窃国家关键技术，规避法规，在台湾非法投资和经营，造成台湾在IT安全和行业竞争力方面的巨大损失。
+新闻来源：
 
-半导体或“芯片”是技术创新和经济发展的重要组成部分。这些芯片在所有电气设备中无处不在，包括智能手机、电子车辆、高超音速武器、飞艇、心脏起搏器等。
+1. [Bank of Japan will prepare ‘thoroughly’ for possible launch of digital yen, Kuroda says](https://www.reuters.com/world/asia-pacific/boj-will-prepare-thoroughly-possible-launch-digital-yen-kuroda-2022-03-29/)
+2. [日本约70家企业未来数月将联合测试数字货币，计划于2022财年推出](https://m.jiemian.com/article/6846513.html)
 
-虽然中共国制造了世界上大多数的电脑和智能手机，但它需要进口所有运行这些小设备所需的半导体。
-
-为了消除对技术的依赖，中共经常从事工业间谍活动和其他活动，以努力发展自己的半导体产业。这也是中共极力想让台湾回到其控制之下的主要原因之一。
-
-新闻来源：[US plans semiconductor alliance with Taiwan, South Korea, and Japan](https://www.business-standard.com/article/international/us-plans-semiconductor-alliance-with-taiwan-south-korea-and-japan-122032900290_1.html)
 
 发布：tianzhihuan
 

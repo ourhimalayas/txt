@@ -2,100 +2,22 @@
 ---
 
 
-## 拜登总统向俄罗斯人民喊话：这场战争不值得你们牺牲
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2255899/)
+## 秘翻在线：中共国到底是为防疫，还是嫌经济崩塌不够快？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2256046/)
 
-> 美国国务院：
-> 拜登总统[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)向俄罗斯人民讲话：这场战争不值得你们（牺牲）。普京能够而且必须结束这场战争。美国人民与你们以及希望和平的勇敢的乌克兰公民站在一起。
-> 【附中字视频】 [https://t.co/zfL9FUa253](https://t.co/zfL9FUa253) [pic.twitter.com/xqIEE8mBX3](https://t.co/xqIEE8mBX3)
-> — 美国政要直译推 (@zhiyitw33) [March 30, 2022](https://twitter.com/zhiyitw33/status/1509008837226885127?ref_src=twsrc%5Etfw)
+**撰稿：Ping**
 
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/d79ba0a369b545e7aa77d5667ba34df2.jpeg)
+中共国严厉的疫情防控，已经成为世界上的一道风景。中共以防疫为名人为造成人道灾难，其中饿死，病死，甚至自杀的殒命人数至今中共政府都守口如瓶。同时因为防控，中共国最发达最富有的深圳特区，其经济也即将在崩溃的边缘。
 
+以中小企业最为集中的深圳为例，根据报道，有当地97家企业参加了问卷调查，包括科技企业、制造业企业，为消费、互联网和医疗健康类企业等，员工人数大概都是几百人。调查结果显示，93%的受访企业表示疫情对其生产经营活动产生不同程度的不良影响，主要体现在停工停业拖延生产进度、原材料等供应链供给跟不上、订单执行延后等。其中，64%的企业表示出现人力成本上升，53%的企业表示物流成本上升，63%的企业表示原材料成本上升。特别是一些企业反映的融资难问题，大量商业票据横行，对企业的流动性带来严重影响。这也是郭文贵先生一针见血地指出中共国金融领域最大的问题和庞氏骗局的体现：金融票据诈骗！
 
-**国务卿安东尼·布林肯：** 
-副国务卿谢尔曼[@DeputySecState](https://twitter.com/DeputySecState)就粮食安全面临的日益严重的威胁向联合国[@UN](https://twitter.com/UN)发表讲话。克里姆林宫的战争针对的是粮食储存和设备、基础设施、破坏农田及阻止粮食离开乌克兰。全球粮食安全的恶劣影响完全是普京总统造成的。
+由于过于严苛的防控措施，造成中小企业停工停产，市场需求造成一定程度萎缩，资金流断裂，中小型企业的财富被中共慢慢挖空。作为中国的窗口城市深圳，紧邻香港，是中共国最发达最富有的城市之一，而广东省是为中共的GDP增长最大的贡献者，如果这里的代表型中小企业都已经举步维艰，那其他城市的中小企业会是什么样呢？
 
+中共国为了习太阳一人的“丰功伟绩”实行疫情政治清零的荒唐措施。致使中共国经济一塌糊涂，民营企业到底还能坚持多久，今天会倒闭几家，明天又会关门几家呢？这种疫情防控就是在把民营企业推向绝路！中国共产党窃取正确70多年来，私营企业就是共产党养的肥羊，有需要的时候宰杀一只。至于他们能否生存，从来不在共产党的考虑之内。真是不知道中共的这种自杀式防控，是嫌经济崩塌的不够快吗？
 
-
-> .[@DeputySecState](https://twitter.com/DeputySecState?ref_src=twsrc%5Etfw) addressed the [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw) on growing threats to food security. The Kremlin's war is targeting food storage and equipment, infrastructure, damaging farmland & preventing grain from leaving Ukraine. The effects on global food security fall solely on President Putin. [https://t.co/T5Ypd8D2G6](https://t.co/T5Ypd8D2G6)
-> — Secretary Antony Blinken (@SecBlinken) [March 30, 2022](https://twitter.com/SecBlinken/status/1508958218109734917?ref_src=twsrc%5Etfw)
-
-
-
-**参议员马可·卢比奥：** 
-参议员卢比奥和参议员托德·杨[@SenToddYoung](https://twitter.com/SenToddYoung)致信给国务卿安东尼·布林肯、国防部长劳埃德·奥斯汀和美国证券交易委员会主席加里·根斯勒[@GaryGensler](https://twitter.com/GaryGensler),警告滴滴出行，一个与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 有关的网约车平台，所带来的风险。 阅读更多
-
-
-
-> Sen Rubio and [@SenToddYoung](https://twitter.com/SenToddYoung?ref_src=twsrc%5Etfw) sent a letter to [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw), [@SecDef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw), and [@SECGov](https://twitter.com/SECGov?ref_src=twsrc%5Etfw) Chair [@GaryGensler](https://twitter.com/GaryGensler?ref_src=twsrc%5Etfw) warning of the risk posed by Didi Chuxing, a ride-hailing platform with concerning links to the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> Read more 🔽[https://t.co/pPTgKBkXyt](https://t.co/pPTgKBkXyt)
-> — Senator Rubio Press (@SenRubioPress) [March 29, 2022](https://twitter.com/SenRubioPress/status/1508939886967115782?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥：** 
-美国必须恢复我们的能源独立并成为能源主导。 感谢今天有机会在美国燃料和石化制造商 [@AFPMonline](https://twitter.com/AFPMonline) 会议上讲话。
-
-
-
-> America must restore our energy independence and become energy dominant. Grateful for the opportunity to speak with [@AFPMonline](https://twitter.com/AFPMonline?ref_src=twsrc%5Etfw) today. [pic.twitter.com/I6JBYbScA1](https://t.co/I6JBYbScA1)
-> — Mike Pompeo (@mikepompeo) [March 29, 2022](https://twitter.com/mikepompeo/status/1508919155256397833?ref_src=twsrc%5Etfw)
-
-
-
-**美国总统拜登：** 
-今天上午，我将与李显龙总理举行双边会谈。我期待着重申美国-新加坡战略伙伴关系的重要性，并深化我们在一系列问题上的合作——包括一个自由、繁荣和开放的印度-太平洋地区。
-
-
-
-> This morning, I’m hosting Prime Minister Lee Hsien Loong for a bilateral meeting. I look forward to reaffirming the importance of the U.S.-Singapore Strategic Partnership and deepening our cooperation on a range of issues — including a free, prosperous, and open Indo-Pacific.
-> — President Biden (@POTUS) [March 29, 2022](https://twitter.com/POTUS/status/1508811289262530569?ref_src=twsrc%5Etfw)
-
-
-
-**众议员斯蒂夫·斯卡莱斯**： 
-川普不能发推。 
-但克里姆林宫可以。 
-
-巴比伦蜂不能发推。 
-但是中国共产党可以。 
-
-国会议员不能发推特。 
-但什叶派穆斯林和塔利班可以。 
-
-他们只瞄准保守派——甚至不再试图隐瞒。
-
-我们必须让大型科技公司负责。
-
-
-
-> Trump can't tweet.
-> But the Kremlin can.
-> 
-> The Babylon Bee can't tweet.
-> But the Chinese Communist Party can.
-> 
-> Members of Congress can't tweet.
-> But the Ayatollah & Taliban can.
-> 
-> They only target conservatives—and don't even try to hide it anymore.
-> 
-> We must hold Big Tech accountable.
-> — Steve Scalise (@SteveScalise) [March 28, 2022](https://twitter.com/SteveScalise/status/1508574824502808584?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰德·克鲁兹： **
-是谁真正操控着白宫？ 
-【视频中克鲁兹批拜登作为总统还要念稿回答问题，稿子上的答案可能连拜登自己都不知道是什么意思。还有更奇葩的，拜登上任15个月了，居然和克鲁兹一次面对面的谈话都没有，川普时期，几乎是每周要面谈一次】
-
-
-
-> Who is really in charge at The White House? [pic.twitter.com/JPT6kTaejj](https://t.co/JPT6kTaejj)
-> — Senator Ted Cruz (@SenTedCruz) [March 29, 2022](https://twitter.com/SenTedCruz/status/1508956936150163457?ref_src=twsrc%5Etfw)
-
-
+**[新闻来源](https://finance.sina.com.cn/jjxw/2022-03-29/doc-imcwipii1132338.shtml)**
 
  
 

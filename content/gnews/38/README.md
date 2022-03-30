@@ -2,24 +2,21 @@
 ---
 
 
-## 阿布拉莫维奇很早入手大量喜币，增加喜支付流通量争取更大话语权
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2254203/)
+## 拜登在波兰会见“勇敢的”乌克兰难民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2254893/)
 
-新西兰伊甸农场Gnews组 财经G乐部-亚伦
+作者：洛杉矶盘古农场
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-102.jpg)
+我们听到了一些令人心碎的故事，总统让人们放心，并告诉他们美国将会提供帮助，将在武器上帮助乌克兰的军队，我们将帮助人民，也帮助华沙市，计划将超过10万乌克兰人转移到美国去，这种人类团结的本能真是不可思议，我们需要欧盟、联合国来帮助我们，乌克兰人正在为我们的自由，以及为了跨大西洋联盟的稳定而战，我们需要帮助他们。
 
-3月27日，郭文贵先生于Gettr大直播中透露，自己认识阿布拉莫维奇二十几年，他不仅很早就买了很多HCoin（喜币）而且告诉他旁边人说所有买的HCoin（喜币）都不能卖，因为这是未来的核心资产。并表示，多多使用HPay（喜支付）购买Gfashion商品绝对不会吃亏。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/im-503574.jpg)图片来源华尔街日报
+参考链接：[我们需要帮助他们](https://mega.nz/folder/NxlnXQrJ#CQlE77V3yT8ghPTI64tf5A)
 
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-阿布非凡的品味、能力，中国企业家没有一个能和阿布媲美。
-
-阿布是游艇界最大、最高端的玩家，拥有全世界最有品位的波音767私人飞机。他在南法Antibes 的房子、伦敦海德公园的房子，品味之高端超出常人想象。自从切尔西球队被他收购以后取得了巨大的成功，球队共赢得了五次英超联赛、两次冠军联赛和五次足总杯赛的冠军。因为出手大方，信守承诺，切尔西俱乐部没有人不喜欢他。
-
-阿布是叶利钦的“白手套”，守护叶利钦后的财富（普京继承叶利钦的军权，保证叶利钦家族安全）。通常俄罗斯人是很粗鲁的，但是阿布对他的同事、律师都是最好的。富有，却勤劳，甚至有时候每天工作十几个小时。懂得感恩，甚至会为别人请客吃饭后鞠躬致谢。
-
-正是这位谦虚谨慎、在投资界卓有成效的世界级巨富（《福布斯》将他的财富总额定为123亿美元，名列世界富豪榜第142位），在最早就选择入手大量HCoin（喜币），而且决定长期持有作为财富的核心资产。
-
-目前，GFashion已经上线了HPay（喜支付），郭先生鼓励大家多多使用HPay（喜支付）完成数字货币对实体商品的交易。据泰山分析，增加HCoin（喜币）和HDO（喜美元）的交易量和HPay（喜支付）在终端消费领域支付的流通量，为融资创造更大的话语权，扩大喜联储生态的影响力。再者，关于HCoin（喜币）第二个大的决定也将在一个月左右到来，拭目以待。
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

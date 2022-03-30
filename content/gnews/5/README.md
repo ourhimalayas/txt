@@ -2,27 +2,29 @@
 ---
 
 
-## 视频|西藏人民的英雄歌手才旺罗布
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2256192/)
+## 有声｜乌克兰大使称：俄罗斯战损使其正在非军事化
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256309/)
 
-制作：香草山视频部
+By:**秘翻新闻**
 
-才旺罗布，1996年10月9日出生于西藏，中国著名藏民歌手，毕业于西藏大学，参加过大陆多个电视频道综艺节目演出。网上多个媒体报道，2022年2月25日，才旺羅布於西藏拉薩布达拉宫外自焚。中共一直封锁消息，外界并不知道才旺罗布究竟是自焚而死还是被中共军警打死，要求中共政府公布真相。
+**2022-03-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/6-116.png)图片来源 AP Photo/Petros Giannakouris
+[据美联社3月29日报道，乌克兰驻联合国大使谢尔盖·基斯利齐亚周二告诉联合国安理会称：俄罗斯的非军事化正在顺利进行。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
 
-才旺罗布是西藏那曲索县人，母亲索朗旺姆，中国藏族歌手，被称是21世纪初最有名的藏族女歌手之一。才旺罗布的叔叔索卡洛多做为政治犯被判数十年重刑。才旺罗布已婚，妻子為藏人丹拥拉姆，夫妻二人育有一女。
+[基斯利齐亚表示，自俄罗斯入侵以来，俄军已经失去了1万7000 多名军事人员、1700 多辆装甲车和近 600 辆坦克。还损失了 300 架火炮系统、127 架飞机和 129 架直升机、近100 个火箭发射器系统、54个防空系统和7艘舰船。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
 
-才旺罗布曾推出歌曲《糌粑》、《礼服》、《羌塘眼》、《除了你》、《轮回》与《回家》等，深受大陆各地和藏区欢迎，2022年2月24日，才旺罗布在微博上发布新的单曲，也是其生前发行的最后一首歌曲《如果有遗憾也别偷偷放不下》。
+[基斯利齐亚还表示，这对莫斯科来说是一个前所未有的打击，与之前苏联在阿富汗的损失相形见绌。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
 
-据悉，自从2009年起到至今，西藏地区已经出现上150位以上喇嘛、女尼或、农牧民等藏人自焚。他们目的是为了抗议中共对西藏残酷高压统治。
+[周二早些时候，俄罗斯宣布将大幅缩减乌克兰首都和北部城市附近的军事行动，因为在最新一轮谈判中出现了可能结束战争的协议大纲，预计谈判将在周三恢复。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
 
-郭文贵先生在3月27日的《文贵大直播》中揭露，他通过知情人获悉，才旺罗布是被中共国安殴打致死后，继而被焚烧了遗体，中共当局对外谎称其自焚重伤不治。才旺罗布是新中国联邦和爆料革命的战友，他愿意为西藏自由解放而现身涅槃。新中国联邦人不会忘记他所种下的善因，护送他的英灵往生佛陀之极乐净土。
+[开战的这五周，已经演变成血腥消耗的战争，致使数千人死亡，近400万乌克兰人逃离该国。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
 
-发稿：林礼
+秘翻新闻 文洋编译报道
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+发布 : 恩典
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,37 @@
 ---
 
 
-## 日本银行将为未来的数字日元发行做好充分准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255801/)
+## 泽连科医生称疫苗导致艾滋病并毁坏免疫系统
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2255954/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/415889470D0EAEE7AEABBE0F23BF86275B403AB86F421714DF5725C901616300.jpg)图片来源：Blockchain.news
+作者：纽约磐石农场 – 在远方
 
 
-根据路透社3月29日报道，日本央行行长黑田东彦周二表示，日本央行目前没有发行自己的数字货币的计划，但将“充分”准备应对未来不断变化的情况。
 
-黑田东彦在金融服务创新非公开研讨会上发表讲话。
-
-日本央行计划从4月开始进入发行央行数字货币 (CBDC) 实验的第二阶段，这将是决定试点计划和最终推出数字日元的关键。
-
-2021年11月24日，一个由约70家日本企业组成的联盟曾表示，计划在未来数月开始测试一种基于日元的数字货币，然后在2022财年推出。该联盟成员包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。
-
-前日本金融厅长官、目前担任DeCurret特别顾问的远藤俊英也曾于2021年11月份表示：“建立在银行存款支持的共同平台上的数字货币系统将适合可能在日本规划和实施的央行数字货币（CBDC）。”
-
-新闻来源：
-
-1. [Bank of Japan will prepare ‘thoroughly’ for possible launch of digital yen, Kuroda says](https://www.reuters.com/world/asia-pacific/boj-will-prepare-thoroughly-possible-launch-digital-yen-kuroda-2022-03-29/)
-2. [日本约70家企业未来数月将联合测试数字货币，计划于2022财年推出](https://m.jiemian.com/article/6846513.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-发布：tianzhihuan
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+根据3月25日的一则盖特消息，泽连科医生在近日接受采访时表示，中共病毒疫苗实际上破坏了人体T细胞的免疫功能，与自然杀毒细胞的功能，并且还会削弱肿瘤抑制基因，为癌症打开大门。换句话说，这就是获得性免疫缺陷综合征，即艾滋病。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-15.jpg)
+目前已经有数十篇医学评议论文验证了他的观点。 在以色列，殡仪馆的工作人员表示，他们已经严重超负荷工作，因为死亡人数增加了10倍，特别是年轻死者，导致他们没有足够的资源来进行妥善安葬。 泽连科医生警告说，由于以色列是注射三针、四针中共病毒疫苗最多的国家，所以目前有大约50%的以色列人已经患上了艾滋病，同时该国感染中共病毒后的死亡率也最高。
+
+泽连科医生最后说，爱因斯坦对精神错乱的定义，就是一遍一遍重复做同样的事情，却期待能得到不同的结果。但全球政府强制大范围注射中共病毒疫苗并非精神错乱，而是精心设计的结果，这正是他们想要达到的目标。
+
+参考链接：
+[视频：大胡子泽连科医生：疫苗导致艾滋病，毁坏免疫系统！以色列殡仪馆年轻人死亡数量增加10倍！](https://www.gettr.com/post/p11qwxx3910)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：天滅中共
+编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

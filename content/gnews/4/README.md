@@ -2,43 +2,26 @@
 ---
 
 
-## 泰国著名青年演员睡梦中去世，死因心力衰竭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256206/)
+## 视频|西方真正的软实力叫做信仰
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2256314/)
 
-#### 【雅典娜观察】和您一起洞察世界
+制作：香草山视频部
 
-翻译/编辑：文泓
+3月27日，在全球大直播中，就拜登总统3月26日在波兰华沙皇家城堡，关于俄罗斯入侵乌克兰战争发表的惊天演讲，郭文贵先生进行了历史与信仰的高度解读。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@7737MW3@8PSNORB5PMI.png)图片来源：The Pattaya News & 雅典娜设计组
+拜登总统在演讲中呼吁：为着上帝的缘故，普京不能继续掌权。郭先生认为这句话包含的非凡历史意义，远超肯尼迪总统1963年6月26日在西柏林演讲中的名言“我是柏林人”，和里根总统1987年6月12日的《勃兰登堡门演讲》的感召力。
 
+郭先生还提到，当年希拉里一句“美国要靠软实力影响世界”，中共经过了长达一年的研究才弄懂其意：软实力是媒体，网络，正义，人权，民主等等。共产党对世界的无知超出常人想象，他们认定，美国四年一换总统，有两党斗争，有钟摆效应。故想当然地以为，能够利用一些手段来挑动美国内部混乱，从而达到搞弱美国，杀掉白人，统治全球的邪恶企图。
 
-泰国著名青年演员**Beam Papangkorn**，于周三（3月23日）在睡梦中突然去世，年仅25岁。
+共产党从来没有信仰，他们从未见过真正信仰者的样子, 也从来不知道真正的信仰比核武器还厉害。美国重欧轻亚的全球战略一方面是为了利益，另一方面就是因为与欧洲有共同的信仰。
 
-据泰国媒体报道，他母亲发现他躺在床上一动不动，当她试图叫醒他时，她意识到儿子已经没有呼吸了，紧急送医后未能恢复意识被宣布死亡。
+郭先生再次提醒，拜登在演讲中将俄乌之战描述为一场“善恶之战”，最后俄罗斯人民一定与正义站在一起。祷告上帝带走的是普京，而不是俄罗斯民族。这是人类信仰的上天真实存在的证据，无神论的共产党永远不会明白，更不会相信。
 
-据*《曼谷邮报》报道，*泰国警方在他的房间里没有发现任何挣扎的迹象，也没有发现违反法规（如吸毒）的证据。
+发稿：林礼
 
-调查显示，**Beam**在周二晚上踢了足球，并在返回曼谷的公寓之前在食品摊吃过饭。据医疗小组初步判断，死因是心力衰竭，尸检正在进行中，结果将在大约3周内出来。
-
-粉丝们已经前往Beam的Instagram页面悼念这位演员，3月20日他发布的最后一篇帖子显示，他在照片中微笑。
-
-Beam 出演过很多泰国电影和电视剧，2019年因主演电视剧《搁浅》（2019年）而闻名，该剧围绕着一群学生在海啸袭击后搁浅在一个岛上的故事，以及主演2015年男孩的爱情题材电影《水男孩》。
-
-根据当前统计数据（[Our World in Data](https://ourworldindata.org/covid-vaccinations?country=OWID_WRL)），当前泰国新冠疫苗完全接种率为72%。
-
-参考链接：
-
-1、[Thai actor Beam Papangkorn Lerkchaleampote dies suddenly in sleep at 25 | The Star](https://www.thestar.com.my/lifestyle/entertainment/2022/03/26/thai-actor-beam-papangkorn-lerkchaleampote-dies-suddenly-in-sleep-at-25)
-
-2、[Thai actor Papangkorn “Beam” Lerkchaleampote dies in his sleep at 25-years-old, medical team preliminarily says cause was heart failure – The Pattaya News](https://thepattayanews.com/2022/03/24/thai-actor-papangkorn-beam-lerkchaleampote-dies-in-his-sleep-at-25-years-old-medical-team-preliminarily-says-cause-was-heart-failure/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

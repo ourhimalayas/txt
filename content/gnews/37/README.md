@@ -2,31 +2,28 @@
 ---
 
 
-## 【#G时新闻】融创到期债务无法兑付，中共房地产加速破裂
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2254749/)
+## 俄军士兵无防护穿越切尔诺贝利辐射区
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2254894/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+作者：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+外媒28日消息，两名切尔诺贝利核电厂的员工透露，他们亲眼目睹前来占领核电厂的俄罗斯士兵驾驶着装甲车、以及坦克，在没有任何防辐射装备的情况下，穿越一个名为“红森林”的高辐射区域。
 
-##### 视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-2.png)
-3月25日，融创房地产在上海证券交易所发布债券存续公告，称融创于2020年和2021年发行的两笔债券，债券余额分别为40.00亿元人民币和20.00亿元人民币，兑付付息日分别为2022年4月1日和4月2日。由于公司面临阶段性的资金压力，预计无法于上述债券兑付日及付息日前筹措到足额兑付兑息资金，拟于近期与债券持有人就上述债券的展期及延期支付事宜进行沟通。
+由于是重型军用车辆，车辆驶过时扬起了大片放射性尘埃，其中一名员工认为，这对士兵来说无异于“自杀”，因为他们吸入的放射性尘埃极有可能会在身体里发生内放射反应。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-103.jpg)
+红森林位于基辅以北约100公里的地方，是切尔诺贝利地区放射性最强的地区。该地数十平方公里的松树，因为1986年爆炸时，吸收了大量辐射后而变红，因此得名“红森林”，它被认为是世界上最严重的核灾难之一，由于高度污染，甚至连核电厂的员工都不被允许进入。
 
-面对债务压力，融创称正在拟定解决方案，计划提供融创中国董事会主席孙宏斌的无限连带责任担保作为增信措施。这是继去年11月孙宏斌自掏腰包，以无息贷款的形式借给融创近29亿元人民币后，再次用以个人担保的形式向融创融资。
-根据郭先生爆料，相比恒大，融创的债务爆雷对中共房地产的冲击会更为强烈。随着墙内中共病毒和疫苗灾难的不断加剧，中共经济已是强弩之末，会有更多的房企无法偿还债务而爆雷。击穿中共房地产泡沫的多米诺骨牌正一张张倒下。
+有核电厂员工曾经警告过俄军要小心辐射，但是他们似乎不清楚这意味着什么，依然我行我素，驾驶装甲车随意行驶，令人十分担忧。
 
-盖特链接：https://gettr.com/post/p12fmk4c5a9
+参考链接：[Unprotected Russian soldiers disturbed radioactive dust in Chernobyl’s ‘Red Forest’, workers say](https://www.reuters.com/world/europe/unprotected-russian-soldiers-disturbed-radioactive-dust-chernobyls-red-forest-2022-03-28/)
 
-编辑/发文 -【兴旺】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-2.png)
-* * *
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+总编/编辑/审核：天滅中共
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
