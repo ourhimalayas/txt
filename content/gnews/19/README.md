@@ -2,32 +2,71 @@
 ---
 
 
-## 加拿大表示愿帮助缓解全球食品能源短缺
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2254252/)
+## 文·贵天成——文贵先生谈“G-Glub”（二十八）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254234/)
 
-翻译：billwilliam
+#### 整理：**BENJ1**
+编辑：**Kelly**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-23.jpg)图源：seekingalpha.com
-据雅虎2022年3月29日报道，加拿大总理特鲁多周二在温哥华发表演讲，表示愿意帮助世界克服俄乌战争对世界在未来几个月造成的食品和能源短缺。但是仅靠加拿大增加出口犹如杯水车薪，很难彻底弥补俄乌战争、中共新冠病毒大流行、和疫苗灾难导致的食品能源缺乏。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648008904043-3.jpg)郭文贵先生2021年8月16日直播
 
-特鲁多表示，“在未来几个月，加拿大会帮忙把食品送上餐桌，以及继续点亮电灯”。同时，特鲁多认为，欧洲领导人不止想结束对俄罗斯石油和天然气的依赖，还希望加速向清洁绿色能源转型，其中加拿大会起很大作用。
 
-那么加拿大到底生产多少化石燃料和食品，够不够欧洲使用呢？据《投资高管》（Investment Executive）报道，2021年欧盟从俄罗斯每天进口230万桶原油和3.8亿立方米天然气，相当于欧盟25%的原油用量和40%的天然气用量。加拿大自然资源部长乔纳森·威尔金森（Jonathan Wilkinson）上周四表示，加拿大油气生产企业可以每天增产约合30万桶原油的石油和天然气产品，相当于欧洲从俄罗斯进口天然气的5%，进口原油的10%。然而，加拿大缺乏向欧洲直接海运石油或天然气的基础设施，大部分需要经石油管线输送至美国，然后再装船。阿尔伯塔省能源部长索尼娅·萨瓦其（Sonya Savage）表示，他们期望将长期石油产量提升到100-150万桶，但是需要加国政府支持，因为政府一直在打压石油产业。欧洲需要同时减少短期能源消耗，并寻找替代能源，比如风能，太阳能，生物能源，热能。加拿大可以提供风能发电机和热泵。
+大家一定要记住，永远不要忘了，你拥有财富是因为你要灭共。你加入了G-Club，要永远坚守未来G-Club的规则，充分利用G-Club，为每天都在成长的战友们带来共享资源，绝对分享你所有的信息，绝对共同承担，维护双方的安全。
 
-食品方面的消息更加不容乐观。据《彭博社》2022年3月2日报道，干旱导致加拿大西部40%粮食减产。2021年12月底，加国小麦库存量达到1560万吨，同比下降38%。《彭博社》认为加拿大可能没有额外的小麦来填补世界粮食空缺。
+像狮王一样维护家族的荣誉和自己的地盘；像豹子捕猎一样冲上去绝对命中目标，拿下目标；像鬣狗一样集体作战想掏谁的肛掏谁的肛。永远要成为食物链最高的，只有像鬣狗般的团结、豹子般的敏锐，锻炼自己强大的身体，像狮子王一样善于淘汰，维护自己狮群正宗的血统和战斗力。
 
-郭文贵先生近期爆料称，中共和俄罗斯密谋在中东展开“围魏救赵”行动，在中东挑起战火，甚至堵塞霍尔木兹海峡，那么会引发全球能源危机。同时，中共在全球抢购粮食，已经购买相当于公开市场供应量300%的粮食期货。在未来的世界，水和食品可能是最珍贵的。
+你维护这个俱乐部，你才能成为大哥狮子、二哥豹子、三哥鬣狗、四哥猞猁、第五是狼。你开始成为这种真正的、最高的（捕猎者），而且一定要记住，你得守规则，你要接受惩罚。
 
-欢迎加拿大能多出口石油、天然气、和食品来缓解全球供应危机，但是他们的产量可能远远不够。另外随着5月份后疫苗灾难爆发，越来越多工人病倒，供应链断裂，全世界不一定能够维持现有的能源、食品产量。最黑暗的时刻可能即将到来。
+俱乐部为什么进进出出都让你穿约定的衣服？约定你必须能做什么、不能做什么、保密、接受惩罚、分享信息、分享资源，而且是可传承、家族性的。一定要能做到这些，你才是真正的G-Club会员。
 
-新闻来源：
+说到这时候，G-Club会员一定是喜联储的股东。你在喜联储要尊重什么规则？兄弟姐妹们要尊重什么规则？
 
-[https://news.yahoo.com/canada-help-offset-food-energy-164305380.html](https://news.yahoo.com/canada-help-offset-food-energy-164305380.html)
+大家说说，契约、保密，刚才都说了，不泄密、守法、保密、契约，任何情况下不合法都是不可以的，完全合法、灭共、保留。保不保留是你自己说了算，绝不会要求你，卖和不卖不可能的，不能攻击，这是基本的前提。财富共享、金融支持、消费、不反对爆料革命、使用喜美元。大家慢慢理解吧，需要个过程。
 
-[https://www.investmentexecutive.com/news/industry-news/canada-can-hike-oil-gas-output-by-300000-barrels-a-day-federal-natural-resources-minister/](https://www.investmentexecutive.com/news/industry-news/canada-can-hike-oil-gas-output-by-300000-barrels-a-day-federal-natural-resources-minister/)
+新中国联邦就是在人类上，西方第一次叫黄皮肤人为中国会，中国会就叫新中国联邦，中国会就是中国俱乐部，黄皮肤俱乐部。西班牙会就是西班牙裔俱乐部，所有的爱尔兰会就是爱尔兰裔俱乐部。这是谁？爱尔兰人、犹太人还有西班牙人是沼泽地的鼻祖。
 
-[https://www.bloomberg.com/news/articles/2022-03-02/there-s-not-enough-extra-canadian-wheat-to-fill-global-shortfall](https://www.bloomberg.com/news/articles/2022-03-02/there-s-not-enough-extra-canadian-wheat-to-fill-global-shortfall)
+你见有日本人吗？你见有（其它）任何地方人吗？没有！所有的沼泽地的主人就是这三个族会的。现在我们要来了，来了一个沼泽地的新主人。我们不是鳄鱼，但是我们绝对比鳄鱼还凶猛；我们不是豹子，绝对比豹子捕猎物准确率还高；我们绝对不是鬣狗，但绝对比鬣狗团结；我们不是狼，绝对比狼还能跟天地之间沟通，万物听到我们都得害怕。这叫家族型，都来了。
+
+第一次中国人参加了沼泽地，叫新中国联邦。这就叫G-Club、这就叫G系列。如果你不信，你不喜欢，你就不要跟我们玩。看看我们新中国联邦会不会成为沼泽地的其中一员？世界上如果一个十几亿人口的民族不是沼泽地的成员，是这个民族所有人的悲哀。
+
+资料来源：郭先生盖特直播视频
+
+往期回顾：
+[文·贵天成——文贵先生谈“G-Club”（一）](https://gnews.org/zh-hans/1798212/)
+[文·贵天成——文贵先生谈“G-Club”（二）](https://gnews.org/zh-hans/1798546/)
+[文·贵天成——文贵先生谈“G-Club”（三）](https://gnews.org/zh-hans/1798570/)
+[文·贵天成——文贵先生谈“G-Club”（四）](https://gnews.org/zh-hans/1800429/)
+[文·贵天成——文贵先生谈“G-Club”（五）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（六）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（七）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（八）](https://gnews.org/zh-hans/1803929/)
+[文·贵天成——文贵先生谈“G-Club”（九）](https://gnews.org/zh-hans/1800485/)
+[文·贵天成——文贵先生谈“G-Club”（十）](https://gnews.org/zh-hans/1800535/)
+[文·贵天成——文贵先生谈“G-Club”（十一）](https://gnews.org/zh-hans/1800526/)
+[文·贵天成——文贵先生谈“G-Club”（十二）](https://gnews.org/zh-hans/1803929/)
+[文•贵天成——文贵先生谈“G-Club”（十三）](https://gnews.org/zh-hans/2214735/)
+[文•贵天成——文贵先生谈“G-Club”（十四）](https://gnews.org/zh-hans/2215121/)
+[文•贵天成——文贵先生谈“G-Club”（十五）](https://gnews.org/zh-hans/2217978/)
+[文·贵天成——文贵先生谈“G-Club”（十六）](https://gnews.org/zh-hans/2219229/)
+[文·贵天成——文贵先生谈“G-Club”（十七）](https://gnews.org/zh-hans/2240527/)
+[文·贵天成——文贵先生谈“G-Club”（十八）](https://gnews.org/zh-hans/2240665/)
+[文·贵天成——文贵先生谈“G-Club”（十九）](https://gnews.org/zh-hans/2240733/)
+[文·贵天成——文贵先生谈“G-Club”（二十）](https://gnews.org/zh-hans/2240823/)
+[文•贵天成——文贵先生谈“G-Club”（二十一）](https://gnews.org/zh-hans/2244681/)
+[文•贵天成——文贵先生谈“G-Club”（二十二）](https://gnews.org/zh-hans/2251614/)
+[文•贵天成——文贵先生谈“G-Club”（二十三）](https://gnews.org/zh-hans/2251657/)
+[文•贵天成——文贵先生谈“G-Club”（二十四）](https://gnews.org/zh-hans/2251695/)
+[文•贵天成——文贵先生谈“G-Club”（二十五）](https://gnews.org/zh-hans/2252453/)
+[文·贵天成——文贵先生谈“G-Club”（二十六）](https://gnews.org/zh-hans/2252534/)
+[文•贵天成——文贵先生谈“G-Glub”（二十七）](https://gnews.org/zh-hans/2254223/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,24 +2,33 @@
 ---
 
 
-## 樱花FM|时政:塔利班重新掌权后中共外长王毅首访阿富汗
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2254624/)
+## 期望
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2254682/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3748.png)
-据NHK新闻3月25日报道，中共外交部长王毅24日访问阿富汗首都喀布尔，会见了塔利班临时政府代理副总理巴拉达尔并举行了会谈。自去年8月塔利班重新掌权以来，这是王毅外长首次访问阿富汗。
+作者：香草山健身部-新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3445.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-207.jpg)
 
-尽管欧美因人权问题不支持塔利班临时政府，但中共却继续强调经济合作的立场，以强化在阿富汗的影响力。
+乱世纷扰跌人性 
+缺少信仰​毒加毒 ​
+中共炮制无端雨 ​
+受罪总是在底层 ​
+本是同根命韭菜 ​
+何必相逼苦他人 
+心存善念半门开 
+留着日后好相见 ​
+迷途知返黑白分 ​
+乾坤正道自清风 
+子母弹毒化灰尘 
+万家灯火危转安
 
-据中方通报，会谈中，王毅外长欢迎阿富汗参与中共“一带一路”倡议，同时也表示有意将邻国巴基斯坦的大型基础设施建设“经济走廊”的事业扩展到阿富汗。对此，巴拉达尔代理副总理表示，希望扩大阿富汗的对华出口贸易，也期待着中国企业到阿富汗投资。
+编辑/校正/发稿：Daxia
 
-由于侵犯妇女人权的因素，欧洲和美国不支持塔利班的临时政府，但中共却利用铁路运输等为阿富汗大量运送小麦等行动直接支持塔利班。中共旨在通过继续强调经济合作和人道主义援助，来加强中国在阿富汗的影响力。
-
-文字版原文：[樱花时政┃塔利班重新掌权后中共外长王毅首访阿富汗](https://gnews.org/zh-hans/2225992/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/31410D40-4BE4-46DD-B313-09ED1F809641.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
