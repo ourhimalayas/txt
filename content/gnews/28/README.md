@@ -2,34 +2,33 @@
 ---
 
 
-## 五角大楼表示会加快生产乌克兰需要的导弹
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2256278/)
+## 美欧制裁之下俄国防生产力倒退上世纪中叶
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2256287/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6242f5fab2509.image_.jpg)
-日前，据美国国防部官员称，五角大楼将会加快生产毒刺导弹和标枪反坦克导弹用来支持乌克兰抗击俄罗斯的入侵。
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-30-下午1.50.52.png)图片来源：互联网
+俄罗斯国防合同正濒临失败，由于美欧对俄罗斯国防工业企业、杜马成员和金融机构制裁压力。
 
-根据最新的一份军事援助清单，乌克兰希望美国每天分别提供500枚毒刺导弹和标枪反坦克导弹。截止到3月7日，美国和北约其他盟国已经向乌克兰提供了约17000枚反坦克导弹和2000枚防空导弹，后续这个数字有增加，但尚未公布。
+据乌克兰国防部主要情报局周二（3月29日）公布的报告称：“俄罗斯正在紧急收集国防令下的政府合同数据，由于制裁压力，这些合同濒临失败。”
 
-五角大楼表示毒刺导弹生产线已经关闭，但目前正在积极与国防供应商雷神公司协商，且已经向雷神公司授予了一份3.2亿美元的合同。洛克希德·马丁公司是标枪反坦克导弹的制造商，目前处于全面生产模式，正在考虑努力提高产量。根据美国国防部的2022年预算，标枪反坦克系统年产量可达6000多个。
+“俄罗斯联邦国防部军事代表部门负责人给占领国（俄罗斯）国防企业的电文（如下图）中指出的那样“，报告援引俄国防部电文：”无法继续生产与原材料和零部件价格上涨有关。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-30-下午1.53.19.png)图片来自乌克兰国防部主要情报局网站
+报告解释过去十年俄军装备大量依靠购买外国技术和产品，失去进口，不可能继续生产现代武器如导弹、坦克、飞机。现在俄罗斯依靠自立更生，回退生产1960年代”经典“武器。
 
-撰稿、发布：骄子
+报告举例卡玛斯（KAMAZ）工厂。”该工厂生产的现代车型配备了康明斯发动机（美国）、采埃孚变速箱（德国）和博世燃油设备（德国）。现在他们被迫重新生产 1960 年代的模型，俄罗斯人称之为’经典‘。”
 
-reference：
+自2月24日俄罗斯全面侵略乌克兰以来，美欧已对俄罗斯采取多轮制裁，其中3月24日，美国与欧盟和七国集团合作一起制裁由俄罗斯精英、杜马及其 300 多名成员和国防公司组成的 400 多个个人和实体。美欧的制裁措施对削弱俄罗斯的侵略力量正在显著发挥威力。
 
-[https://www.kwwl.com/news/top-stories/pentagon-will-accelerate-production-of-missiles-ukraine-has-requested-to-refill-us-stockpiles/article\_84e2d7c8-7986-5628-ae0a-2e4fbb2535bf.html](https://www.kwwl.com/news/top-stories/pentagon-will-accelerate-production-of-missiles-ukraine-has-requested-to-refill-us-stockpiles/article_84e2d7c8-7986-5628-ae0a-2e4fbb2535bf.html)
+参考链接：
+
+【1】[由于俄罗斯实施制裁，国防秩序的执行受到干扰](https://gur.gov.ua/content/cherez-vvedeni-sanktsii-v-rosii-zryvaietsia-vykonannia-oboronnoho-zamovlennia.html)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+*编辑&发布：长岛开心*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

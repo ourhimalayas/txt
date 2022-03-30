@@ -2,23 +2,44 @@
 ---
 
 
-## 樱花FM|福利房供应严重不足 超额申请27倍
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2256729/)
+## 疫下灾情｜上海封城两日已酿悲剧 医院拒收危疾病人 一老翁失救致死
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256759/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-28.png)
-本期居屋以市价五一折发售，24日7时截止申请。房委会今日表示，连同网上申请及亲身交表，至今累计收到25.1万宗申请，超额申请约27倍。相关数字尚未计及日内会收到的邮递申请，房委会预料最终申请会较上述公布数字多。房委会现时收到约2.7万份居屋或白居二纸本申请，以及22.4万份居屋和10.9万份白居二网上申请。
+**图/文｜CP**
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城兩日已釀悲劇-醫院拒收危疾病人-一老翁失救致死.jpg)
 
-解决香港人的住房问题一直是历任政府的目标，不过政策敌不过官商勾结，每届政府的房屋政策最终都向财团严重倾斜，不仅城市规划中为发展商预留基础设施，还允许发展商大量囤积优良的土地，有的土地经过几任政府才开发，其周边的公共设施和商业环境已经成熟，此时兴建的楼宇可以售卖出最高的价格。97后二十多年的时间，港府为市民提供的福利房屈指可数，最大型的福利房建设在董建华执政时期启动，当时提出每年供应不少于8.55万个[住宅](https://zh.wikipedia.org/wiki/%E4%BD%8F%E5%AE%85)单位，包括公营房屋、私营房屋，以及公私合资房屋，希望10年内全港七成的家庭可以自置居所，轮候租住[公屋](https://zh.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E5%85%AC%E5%85%B1%E6%88%BF%E5%B1%8B)的平均时间由6.5年缩短至3年。2000年落成了85,710个住宅单位后，2001年又有10万个住宅单位推出市面，随着房屋供应量增加，香港楼市的租金和售价也随之降低，因此引发政商两界，以及中产的极大反对，政界认为港府干涉市场经济的发展，商界认为港府带动基层市民鲸吞了他们的利益，许多中产在金融风暴中损手烂脚，都期盼楼市能恢复高位令他们止损。8万5计划在2005年董建华辞职前停止，之后的特首曾颖权在任内停建福利房和廉租房，梁振英任职期间落成了6.28万个廉租房，8745间福利房；林郑月娥任内落成了1.66万个福利房，4.12万个廉租房。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-房地产在政府积极干预下，基层市民可以轻松置业，却动了有钱人的奶酪；政府消极干预下，基层市民置业雪上加霜，财富更加集中在少数人手中。房屋存在的原本目的是用于居住，但热钱却将这些砖头炒卖成了奢侈品，无论你富裕还是贫穷，房屋依然是人的基本需要，在扭曲的社会经济结构下，房屋已成为富人和政府共同榨取人民财富的工具。
 
-文字版原文：[福利房供应严重不足 超额申请27倍](https://gnews.org/zh-hans/2228320/)
+上海疫情持续严峻，周一（28日）起以黄浦江为界实行两段式封城，进行全民核酸筛查。昨日（29日）是封城第二日，上海新增本土确诊个案5982宗，再创单日新高。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+虽然封城刚刚踏入第三日，但坊间已经有不少悲剧发生。有网民29日在微博发文指，父亲因疫情封控，连续三日未能洗肾，最终导致心肌衰竭而死。他在文中公开个人信息，以证确有此事。
 
+该网民表示，他的父亲叫沈瑞根，今年77岁，居住在浦东新区北蔡镇（北中路408弄），由于糖尿病、肾衰竭需要接受血透治疗（即俗称“洗肾”），另每日还需高血压药、糖尿病药、胰岛素、肾病药、脑中风药续命，但因为浦东新区疫情封控管理处置不当，导致一个尚能自主的老人在3天内去世。
+
+据描述，26日沈老先生准备前往复旦大学附属浦东医院洗肾时，被通知核酸检测呈阳性，故暂时不能洗肾。当晚即被送进医院隔离区，至27日，浦东医院告知不能给阳性病人洗肾，疾控中心又安排老人转去上海君爱康复医院进行隔离，但由于120急救服务已超负荷，老人唯有等待，直至28日上午才被转到君爱医院隔离。隔离期间，没有医护照料与问询，28日晚上，老人仍未轮到洗肾，不久后昏迷，病友通知家属后，老人被送至周浦医院ICU病房，当晚9点52分离世。当值医生透露，沈老先生因长期未洗肾，造成心肌衰竭而死。
+
+事件爆光后，今日有不少上海危疾病患和家属纷纷在微博上发起“上海抗疫求助超话”并留下现居地址、电话、身分证号等个人资料，要求当局提供紧急救助。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/30lfP0LTgQlY9ps-nRrTmqfX1TLXLM3-YpSP52KUj-c-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/CRiwAI39h_gZb3h4ZF2W0YFZVP9ykfPeITzyiiE88oo-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/k3tE5N_uFDiNucv_PwqWZ16XAEYuZ8A9utLHnrrSx54.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/lj7t6wkuClfU1s8y9_ycltyF3JXQSWBYkEfhMZBH4TE-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MRNwL9i7b2tFo-11NwLYzgGhYqyoGxfubjysu248rLs.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QJwA2Dwk_wWGwVblvz1dzcI9X42LognevzU7NL81OzQ-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QsZXZDgxPe2zS6XehB5Sx9JKcDizTqqXx75qSMe-akg-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TaG9ZKZmsUiBN4UcBxVsQ2Twb18tfmgmlylCFpcpQhY-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YOsO4Pfe4gbtlZSGznqn9c3pu0tN1Nrdcjd0anI3dGo-scaled.jpeg)
+
+
+因疫情封控政策，非封控区医院暂停收治来自封控区的病人，而封控区内医院则闭门停诊，导致浦东等封控区的危疾病人，无法入院治疗，加上目前封控区不断有阳性个案确诊，解封之日遥遥无期，令不少民众哀叹，“除了新冠肺炎是病，其他疾病都不配算病。”
+
+來源｜微博
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

@@ -2,31 +2,45 @@
 ---
 
 
-## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
+## 那些仍在购买俄罗斯原油的公司名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256468/)
 
-**图/文｜CP **
-**发布时间｜30/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123477646_gettyimages-1094171426.jpg)图片来源：BBC
 
 
-韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
+根据Aljazeera 3月29日报道，在莫斯科入侵乌克兰后，包括美国在内的几个西方国家全面禁止俄罗斯能源进口，但依赖俄罗斯石油和天然气的主要欧洲经济体因为欧盟的分歧而避开了这个严厉的措施。
 
-与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
+在俄罗斯的侵略引发了几十年来最大的难民危机之后，澳大利亚、英国、加拿大和美国已经禁止进口俄罗斯的石油。
 
-韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
+迄今为止，欧盟27个成员国未能就禁运达成一致，德国警告不要采取可能将经济推入衰退的仓促措施，而匈牙利等一些国家则反对任何禁令。
 
-值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
+欧盟禁运需要所有27个成员国的一致批准。
 
-可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
+许多欧洲买家自愿避开俄罗斯原油，以避免声誉受损或潜在的法律纠纷。
 
-来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
+大宗商品交易商Trafigura和Vitol等公司继续根据现有长期合同购买俄罗斯原油。
 
-* * *
+然而，这两家公司都告诉路透社，自俄罗斯入侵乌克兰以来，他们没有达成任何新的交易。
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+拒绝谴责俄罗斯行动的印度和中共国也继续购买俄罗斯原油。
+
+以下列出了俄罗斯石油的主要买家：
+
+Neftohim Burgas、MiRo、PCK Schwedt、Pertamina、Leuna、Hellenic Petroleum、ISAB、MOL、Zeeland Refinery、Rotterdam Refinery、Hindustan Petroleum、Indian Oil Corporation、Nayara Energy。
+
+新闻来源：[List of companies still buying Russian crude oil](https://www.aljazeera.com/news/2022/3/29/who-is-still-buying-russian-crude-oil)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
