@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 10:14 PM (UTC)`
+
+3/30/2022 Ukraine Rescue: Fellow fighter Wen Yao talks about the Polish heroes who went into Ukraine to rescue and fight, and their fearlessness has touched the fellow fighters of the New Federal State of China.<br/><br/>3/30/2022 乌克兰救援连线：文耀战友谈去乌克兰境内参与救助和战斗的波兰勇士，他们的无畏精神感动了新中国联邦的战友们<br/>
+![img](https://media.gettr.com/group35/getter/2022/03/30/22/05febf11-efd3-a337-ab9d-17f956a4290e/out.jpg)
+
+---
+
 `@miles 3/30/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-30<br/>For English @Gtranslators_1
@@ -154,13 +161,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group50/origin/2022/03/30/04/867e2068-a217-8a13-3576-f8cb0faeab73/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/30/2022 3:02 AM (UTC)`
-
-
-![img](https://media.gettr.com/group3/origin/2022/03/30/03/f03af3a5-3445-f037-db06-6de53431bdfc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
