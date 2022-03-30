@@ -2,24 +2,31 @@
 ---
 
 
-## 美国务院呼吁公民尽快离开俄罗斯：恐随时遭俄政府逮捕
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2255997/)
+## 樱花FM|日本冲绳12人接种新冠疫苗后死亡
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2256143/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/af685c08-9df5-459d-8e51-619c22518ccf.jpg)图片来源：美国务院官网
+音频：东京樱花团/战友520
 
-俄乌战争至今已超过1个月，英美、欧盟各国对俄国祭出经济制裁，也提供军备给乌克兰进行反击，美国国务院领事馆美东时间昨天则发出旅游警示，更直接说出「俄罗斯可能会对在俄国的美国公民进行骚扰，甚至拘捕」，呼吁在俄罗斯的美国人若无必要请尽快离开当地。
+![](https://lh4.googleusercontent.com/KjW_2nNBnctKaOUDy83_YZjZ2gw0AlX8GYIl-vNOOmtNZc6ZX0YFqkePdE4TgIOWgnkaHVVwv1LZwuWWn-lOjBoZT8dPpHUA_zeA4O7KkVTf8GvMY7FBqpMX8j5jpSHL7Xqk75Qx)
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022330W0111](https://www.ftvnews.com.tw/news/detail/2022330W0111)
+日本冲绳县议会文教卫生委员会保健医疗部疫苗接种战略课课长城间敦透露，22日，在县文教卫生委员议会上，石原朝子为接种新冠病毒疫苗后引起过敏反应等4人答辨，确定根据疫苗接种法成为医疗费和医疗津贴的支付对象。
 
-撰稿/发布：一叶知秋
+厚生劳动省的审查小组在22日前承认了因新冠病毒疫苗导致健康损害的需要救济。根据县的说法，被认定的是过敏等副反应。据厚生劳动省报道,迄今为止全国有1084件申请，只有566人得与认证。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+县内也发现接种新冠疫苗后有12人死亡。但是接种的因果关系不被认可。到15日为止有28件救济申请，包括1件死亡的临时救济金,其余24件正在审议中。
+
+日本全国今年2月20日为止，约有1500人因疫苗接种而死亡，但是没有被因果关系认可。
+
+文字版原文：
+
+
+| [日本冲绳12人接种新冠疫苗后死亡](https://gnews.org/zh-hans/2226456/) |  |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

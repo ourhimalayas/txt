@@ -2,36 +2,33 @@
 ---
 
 
-## 拜登称普京下台是表达内心正义怒火
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2255876/)
+## 一份被泄露的文件透露中共有意接管澳大利亚
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2255956/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
-外媒报道，美国总统拜登3月28日表示，他在26日于波兰发表演讲时，称普京不应该继续掌权的说法，是表达内心的正义怒火，并拒绝为此道歉。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-210.jpg)图源网络
-据悉，26日拜登在波兰华沙皇家城堡，就俄罗斯侵略乌克兰事件发表重大演说，脱稿说出“这个人不能继续掌权”，显然是在暗指普京。虽然事后白宫澄清说，拜登并不是在讨论普京政权更迭问，但28日拜登表示，他的言论是对普京残忍行径的愤怒表达，并非政策改变的宣示，也不对所说的话感到抱歉。
-
-拜登解释说，他关于普京的讲话是与俄罗斯人民对话，并且向全世界传达了他的看法，即普京的行为是完全不可接受的。拜登还暗示说，普京不应该继续领导俄罗斯政府，若是普京一意孤行，必将会成为世界的贱民。
-
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3874954](https://news.ltn.com.tw/news/world/breakingnews/3874954)
+作者：日本东京方舟农场 – Miyali7768(文玉）
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-469.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑/校对/发稿：滚滚长江都是水
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+3月28日美国媒体报导，上周，一份被泄露的文件展示了中共与所罗门群岛之间安全协议的细节，在堪培拉引发了巨大的冲击波，该协议为中共在澳大利亚家门口建立军事基地和永久派驻警察打开了大门。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+报导称，这一协议敲响了警钟，因为多年来中共也一直以发展为幌子向巴布亚新几内亚和东帝汶注入资金。就在去年，一家由中共支持的公司还提出了一项提案，在昆士兰州和巴布亚新几内亚之间的一个偏远岛屿上建造一座价值390亿美元的城市，让澳大利亚国家安全分析人士感到了紧张。人们担忧中共可能已经深深地与澳大利亚的地区伙伴挂钩。 报导最后推测，中共如此作是看到了澳大利亚在中共病毒大流行期间变得非常专制，和中共的相似程度比他们想象的还要高。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-16.jpg)
+参考链接：
+[Australia Sounds Alarm After Leaked Docs Raise Fear That China Positioning Themselves To Take Over Australia Next](https://en-volve.com/2022/03/28/australia-sounds-alarm-after-leaked-docs-raise-fear-that-china-positioning-themselves-to-take-over-australia-next/)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：天滅中共
+编辑/审核：飞虹
+校对/发稿：为真不破20
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

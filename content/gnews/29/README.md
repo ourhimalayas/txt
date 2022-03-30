@@ -2,24 +2,30 @@
 ---
 
 
-## 为强化北约东翼 美国部署6架“咆哮者”战机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2254896/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年3月29日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2255406/)
 
-作者：纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月28日美国媒体报导，国防部发言人柯比表示，来自华盛顿州惠德比岛海军航空站第134电子作战中队的6架EA-18G“咆哮者”战机，将飞往德国的施庞达莱姆空军基地进行部署。此举是为了加强北约整体防御，同时进一步加强美国与盟国之间的空中整合能力。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-105.jpg)
-这批“咆哮者”战机可使用干扰系统来迷惑对方雷达，有效压制敌方的防空作为。 除了6架战机之外，美方也将同时派遣240名海军人员前往德国，包括后勤维修人员及飞行员等，预计将执行北约东翼的威慑及防御任务。柯比强调，EA-18G战机不会被用于对付乌克兰境内的俄罗斯军队。 EA-18咆哮者是美国国防巨头波音公司制造的电子战飞机，是 F/A-18 超级大黄蜂的衍生物。该战机长 18.3米，高 4.9米，翼展 13.7米，最高时速 1,960 公里，服务上限为 50,000 英尺。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-63.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-1-8.png)
 
-参考链接：[US Navy To Deploy EA-18G Growler Fighters To Germany To Boost NATO’s Posture – Pentagon](https://eurasiantimes.com/us-navy-to-deploy-ea-18g-growler-fighters-to-germany/)
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+校对：Stay文苑
 
-编辑/审核：飞虹
-总编：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p12lqih87f5](https://gettr.com/post/p12lqih87f5)
+访谈：[https://gettr.com/post/p12m18g1281](https://gettr.com/post/p12m18g1281)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

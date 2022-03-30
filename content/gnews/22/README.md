@@ -2,39 +2,34 @@
 ---
 
 
-## 比特币用户从4月1日起在印度缴纳30%的数字货币税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255746/)
+## FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2255791/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16486112191.png)图片来源：波士顿环球
+据《国会山报》3月29日报道，周二，FDA（美国食品和药物管理局）为50岁及以上人群注射中共病毒（COVID-19）疫苗第二针开了绿灯。
 
-翻译/编辑：小红帽
+FDA说，任何50岁及以上的人，无论第一次注射的是哪种疫苗，都可以在第一次中共病毒疫苗加强针后至少4个月获得第二次加强针注射。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Cryptocurrency-tax-india-1.png)图片来源：NBB
+报道说，FDA对辉瑞（Pfizer）公司和莫德纳（Moderna）公司的疫苗给予了紧急使用授权。辉瑞公司最初要求对65岁及以上的人进行授权，而莫德纳公司要求对所有成年人进行更广泛的授权。
+
+FDA疫苗部门负责人马克斯（Peter Marks）周二告诉记者称，该机构之所以选择较低的年龄限制，是因为这些人的医疗条件最可能使他们面临严重后果的高风险。
+
+与此同时，为配合FDA的行动，尽管没有提出全面建议，CDC（美国疾病控制和预防中心）主任瓦伦斯基（Rochelle Walensky）更新了该机构的指南。CDC说，任何50岁及以上的人，如果想注射中共病毒疫苗第二针，现在就可以注射了。
+
+但是，值得注意的是，卫生官员们并没有就第二次中共病毒疫苗加强针注射的申请召开任何咨询小组会议。而FDA的一个外部专家小组之前不同意该机构领导人关于广泛扩大疫苗加强针使用的决定。
+
+对此，马克斯辩称，没有必要召集一个小组，因为此决定是一个“相对直接的”基于数据的决定。
+
+报道指出，这一决定存在一些重大问题，包括第二加强针的保护作用将持续多久。此举可能会重新引发一场关于谁可能需要注射加强针以及美国疫苗接种运动的更广泛目标的激烈辩论。争论的焦点是，即使症状比较轻微，那注射疫苗加强针的目标是防止人们因中共病毒而住院，还是防止他们生病。
+
+*责编：白夜*
+
+**新闻来源**
+
+[FDA authorizes second booster shot for people age 50 and up](https://thehill.com/policy/healthcare/600076-fda-authorizes-second-booster-shot-of-coronavirus?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=03.29.22+JB+The+Hill+-+Health+Care&amp;rl=1)
 
 
-根据COINGEEK3月29日报道，Lok Sabha，也被称为印度议会，已经通过《2022-2023年财政法案》。该法案确认从4月1日起对所有虚拟数字资产（VDA）征收30%的税率。
-
-自从印度财政部长Nirmala Sitharaman在2月份的2022-2023年预算会议上宣布关于数字货币的税收规则以来，就开始出现很多声音。最近的公告只是进一步加剧了这种声音。
-
-以下是印度的数字货币税和拟议的法规。
-
-4月1日，对与赌博、赛马等数字资产买卖相关的交易征收30%的税率加附加费。但是，转让数字资产造成的任何损失不得与转让其他虚拟资产所产生的收入相抵销。在计算数字资产转让收入时，不得扣除任何支出（收购成本除外）或津贴。
-
-每年向数字资产支付超过10,000卢比（或131.30美元）的款项以及对接收者手中的数字货币礼物征税，从源头扣除1%的税款 (TDS)。对于那些需要根据IT法案对其账户进行审计的人，TDS的门槛限制为每年50,000印度卢比（656.48美元）。TDS 规定将于2022年7月1日生效。
-
-VDAs将包括所有数字货币和NFTs。一个可以通过电子方式转移、存储或交易的代码或代币或数字将被称为VDA。
-
-该公告对许多印度人造成了沉重打击，因为政府提议进一步收紧VDA的征税条款，不允许投资者用一种数字资产的损失来抵消其他数字资产的利润。无论属于哪个收入阶层，他们将从4月1日起负责支付30%的税率。
-
-新闻来源：[Bitcoin users to pay 30% digital currency tax in India from April 1](https://coingeek.com/bitcoin-users-to-pay-30-digital-currency-tax-in-india-from-april-1/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
