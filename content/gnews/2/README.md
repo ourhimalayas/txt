@@ -2,36 +2,18 @@
 ---
 
 
-## MV版Hcoin To the Moon上线111天第45次位列匈牙利iTunes热门MV榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2257526/)
+## 视频|中俄勾兑令外资不安 争相逃离中共国
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2257657/)
 
-3/30/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线111天第45次位列匈牙利iTunes热门音乐视频榜榜首，第60次位列前三名
+制作：香草山视频部
 
-* * *
+3月28日国外媒体报导，国际金融协会IIF的一项最新研究发现，自俄乌开战兰以来，外资正以前所未有的速度逃离中共国，这是在其他新兴市场从没有出现过的现象。
 
-[【PDF 下载】Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+IIF的数据显示，中共国股市日平均资金外流一度达到近5亿美元。 来自华尔街的一些数据也证实了IIF的结论，3月，境外投资者已抛售了价值95亿美元的中共国股票。而上一次中共国股市出现集中性资金外逃发生在2020年3月，中共病毒疫情在全球爆发之际，当时境外投资者抛售了价值106亿美元的股票。
 
-* * *
+报导称，因为严格的资本管制和不可预测的政策风险，以及以政府为主体的金融监管机构的影响等因素，境外投资者已经开始对中共国的股市望而却步。近两年来，中共国政府对上市公司漫无边际的打压又给外国资投资者造成了更严重的影响。自从俄罗斯入侵乌克兰以来，中共国对俄罗斯的暧昧态度更让外国投资者感到了不安。他们普遍担心中共对俄罗斯的支持会招致美国的严厉制裁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
-
-
-[【PDF 下载】Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发稿：木香
 
  
 
