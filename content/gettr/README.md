@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@taishan 3/30/2022 12:47 PM (UTC)`
+
+可怜、可悲、可恨的小粉红们，也许只有如此这般遭遇时才能醒悟吧！
+![img](https://media.gettr.com/group46/getter/2022/03/30/12/6903a1a3-99e3-91a2-8ca1-bf8cc1596064/a650635d1bca931a779668eb51a5f325.jpg)
+
+---
+
 `@miles 3/30/2022 2:49 PM (UTC)`
 
 2022/03/30 非常感谢来自这位战友的设计，请大家在留言区写下你们的建议和反馈. 谢谢🙏🙏🙏🙏
@@ -148,13 +157,6 @@
 
 3/27/2022 Miles Guo: The vests bearing the logos and slogans of the New Federal State of China are loved by people from all over the world at the Medyka rescue camp in Poland, and our vests will be given away for free to those who like them in unlimited quantities!<br/><br/>3/27/2022文贵直播：印有新中国联邦标识和口号的马甲在波兰梅迪卡营地受到各国人民喜爱，我们的马甲将不限量免费赠送给喜欢的人！<br/><br/>
 ![img](https://media.gettr.com/group16/getter/2022/03/29/23/bf3c30b4-89ea-468d-8e7f-414685390ad3/out.jpg)
-
----
-
-`@miles 3/29/2022 11:02 PM (UTC)`
-
-2022.03.29 NFSC News   Ukrainian Mayor Taken Hostage, Protesters Force Russian Troops to Withdraw and Release Him； Zelenskyy: Ukraine is Ready To Seek Neutral Status
-![img](https://media.gettr.com/group43/origin/2022/03/29/22/d5f4814e-13fb-41cc-6feb-3d4526bc6a03/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
