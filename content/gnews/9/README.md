@@ -2,34 +2,31 @@
 ---
 
 
-## 澳洲朝野不改对华强硬路线
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2256333/)
+## 有声｜俄乌战争引起的粮食危机是二战以来最严重的
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256352/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+By:**秘翻新闻**
 
-据《德国之声》3月29日报道，在联邦大选临近之际，澳大利亚总理莫里森对会见中共国大使设下前提：要求中共国重新开启部长级对话。对此，政治分析人士认为，在大选前澳大利亚各个政治派别不可能改变对华强硬路线。
+**2022-03-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-75.png)图片来源 AP Photo/Amr Nabil
+[据美联社联合国3月29日报道，联合国粮食署署长周二警告称，俄乌战争造成了一场灾难之上的灾难，并将产生超出二战以来最严重的全球影响，因为许多曾生产大量小麦的乌克兰农民现在正与俄罗斯人作战。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-370.jpg)（图片来自德国之声）
+[乌克兰和俄罗斯生产全球30%的小麦、20%的玉米和 75%-80%的葵花籽油。世界粮食计划署50%的粮食都来自乌克兰。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-报道称，近期澳大利亚总理莫里森(Scott John Morrison)就是否接见中共国新任驻澳大利亚大使的问题上表示，在中共政府持续冻结双边外交沟通的情况下，他与中共国大使会面不合时宜。
+[比斯利表示，乌克兰的战争正在将数百万人的世界粮仓变成杂草，像埃及这样的国家通常会从乌克兰获得85%的粮食，而黎巴嫩则在 2020年获得了81%的粮食，在饱受战争蹂躏的也门，那里 800 万人的食物分配刚刚减少了50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-莫里森总理说，“澳大利亚驻华大使也并未受到中共国国家主席习近平的接见。只要中（共）国继续拒绝与澳大利亚部长，甚至不和澳大利亚总理进行对话，这是一种相称的回应。”
+[比斯利还表示，世界粮食计划署目前正在向乌克兰境内约100 万人提供食物，到 6 月底有望达到 600 万人，资金缺口将达到约3亿美元。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-对此，政治分析人士认为，莫里森总理不见中共国大使符合礼宾程序，在处理对华关系上也更加理性。另外，中共国大使向莫里森总理传递习近平主席的信息，这在中共国可能被解读为总理承认澳大利亚的地位是一个附庸国。因此，澳大利亚现在和中共国打交道的时候不会随便作出让步。因为一旦让步，在未来和中共国打交道就不会那么简单了。
+[比斯利警告称，关注乌克兰不应导致国际社会忽视非洲，尤其是萨赫勒地区和中东，否则，将有大量移民来到欧洲各地。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-此外，由于澳大利亚和中共国之间层层叠加的矛盾，导致除了联邦政府对华采取强硬立场之外，一直被联盟党攻击亲中的工党也展现出了和执政党类似的态度。
+[据报道，随着俄罗斯“扼杀乌克兰的出口”，食品价格飞涨，今年迄今为止小麦价格上涨了 20-50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-工党领袖阿尔巴尼斯（Anthony Albanese）也发表声明表示自己没有与中国大使会面，也没有与中共国大使馆的任何其他官员会过面。
+秘翻新闻 文洋 编译报道
 
-迪肯大学战略学讲师管佳博士认为澳大利亚大选在即，反共政治气氛已经鼓动起来了，与中共亲善的举动是政治资本负债，两大党领导人都不会冒这个风险。
+发布 : 恩典
 
-参考链接：
-[https://reurl.cc/5GmzER](https://reurl.cc/5GmzER)
-
-编辑：幽蘭自得
-总编：青城道姑
-校对发布：爱放飞
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

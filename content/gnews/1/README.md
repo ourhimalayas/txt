@@ -2,34 +2,30 @@
 ---
 
 
-## 中共生育政策再次调整 广西边境可以生育四胎
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2256386/)
+## 中日财经爆┃中共国疫情爆发迫使600亿元IPO计划暂停
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256416/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+路透社3月30日报导 ，多家中共国公司已暂停国内上市计划，因为中共国爆发两年来最大规模的中共病毒疫情，阻碍了尽职调查和信息收集。这估计影响到超过600亿元人民币的筹资。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/中共国疫情爆发迫使600亿元IPO计划暂停.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Finvestorjunkie.com%2Fwp-content%2Fuploads%2F2017%2F04%2Fipo-investment.jpg&amp;imgrefurl=https%3A%2F%2Finvestorjunkie.com%2Finvesting%2Finvest-ipo%2F&amp;tbnid=9h1-Ooui_7P9NM&amp;vet=12ahUKEwix9NPqm-32AhVHwOAKHcjkDUQQMygBegUIARCtAQ..i&amp;docid=fvw-g1tbHAcGIM&amp;w=775&amp;h=465&amp;q=IPO&amp;ved=2ahUKEwix9NPqm-32AhVHwOAKHcjkDUQQMygBegUIARCtAQ)
+提交给交易所的文件显示，过去一周有15家寻求在上海科创板进行首次公开发行(IPO)的公司暂停了申请，理由几乎都是受到疫情影响，上海市于周一开始封控措施。
 
-近期，中共广西壮族自治区政府通过一个新规定，称满足条件的夫妻可以生育四个子女，此规定在中共国还是第一次出现。
+文件还显示，在深圳，本月有67家IPO申请人暂停了上市进程，理由是需要向监管机构更新信息披露，深圳在3月已进行了三轮大规模核酸检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-371.jpg)（图片来自大纪元）
+《证券时报》估计，IPO暂停可能会推迟价值600亿元人民币的筹资。
 
-广西共有八个边境县（市、区）。这些地区除了汉族人口之外，还居住着壮族、瑶族、苗族、京族等少数民族，与广西接壤的国家只有越南。
+消息来源：
+[中国逾90亿美元的IPO计划因疫情爆发而暂停–文件及媒体估计](https://cn.reuters.com/article/china-ipo-delays-0330-wedn-idCNKCS2LR08U?il=0)
 
-近期，中共广西人大常委会通过修订广西壮族自治区《人口和计划生育条例》，规定已生育三胎子女的夫妻，双方户籍和居住地如果均在边境县（市、区）的，可以再生育一胎，也就是第四胎。
-
-在中共治下，中国公民并没有自由生育的权利。时间推至1970年代，中共开始大力开展所谓“计划生育”政策。由于独生子女的超低生育率，直接导致了现如今严重的养老问题和男女比例失调。
-
-最近刚刚公布的中共国2021年人口数据中，有13个省份已进入人口“负增长”，其他地区实际则属于“零增长”。
-
-此次广西的生育政策调整缘由，据有关专业人士表示，此举应该是考虑了边境人口安全的问题。说边境地区地域偏远，农村或小城镇居多，远离国家中心城市、大城市，而且人口流出较多，所以在边境地区维持一定人口数量有利于国家的边境安全。
-
-这一说法遭到原北京首都师范大学教授李元华的质疑，他说边境安全不是普通老百姓所能决定的，而是由边防军队来保家卫国，何况与毗邻国家本来就应该和睦相处，并不是说人口多了就安全。李元华表示，首先，广西的规定肯定是中共中央点头允许的，他说，“在中共的专制集权下，一个省绝对没有权力去做人口生育数量这种规定，而且地方官员也没有这个胆量敢破坏中共高层制定的方针。所以这一定是中央允许的，这是肯定的。”
-
-李元华最后表示，中共每次调整生育政策都是迫不得已。不管是几孩政策，从来都不是以老百姓的角度考虑，不是从人民自由生育权利的角度去考虑，而是从延续它的专制政权的角度所做的决定。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/3/30/n13682001.htm](https://www.epochtimes.com/gb/22/3/30/n13682001.htm)
-
-总编：青城道姑
-校对发布：爱放飞
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
