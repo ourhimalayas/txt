@@ -2,45 +2,34 @@
 ---
 
 
-## 向每一位在新浪和微信背后审核的网警和攻击的五毛致敬
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2255753/)
+## FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2255791/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/封面-2.jpg)
-在中共国的新浪微博及其他社交媒体上微信上，总有我们看得见和看不见的力量在对我们发出去的文字进行审核或攻击，于是我们经常会看到我们写好的微博无法发出，我们编好的微信朋友圈无法发出，或者还有一种更有趣的现象是明明显示你的微信朋友圈发出去了，但是用别人的手机查看却看不到显示发出去的微信朋友圈。
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16486112191.png)图片来源：波士顿环球
+据《国会山报》3月29日报道，周二，FDA（美国食品和药物管理局）为50岁及以上人群注射中共病毒（COVID-19）疫苗第二针开了绿灯。
 
-曾经一度放弃在新浪微博发送任何微博和评论，曾经一度在手机上卸载了微信，但是在疫苗灾难和中共病毒对荼毒包括十四亿中国人在内的全人类的时候，如果我们只是在盖特或推特上发出关于疫苗和病毒的真相以及关于中共的残暴的相关内容的话，很多墙内不会翻墙的人并不会有机会看到这些。
+FDA说，任何50岁及以上的人，无论第一次注射的是哪种疫苗，都可以在第一次中共病毒疫苗加强针后至少4个月获得第二次加强针注射。
 
-所以无论如何我们不应该放弃新浪微博和微信，虽然新浪微博已经限制了某些人的发帖甚至评论功能，虽然微信朋友圈出现过多次虽然发出但是别人无法阅读的情况，但是我们依然要向每一个在新浪和微信背后审核的网警和攻击的五毛致敬，为什么呢？因为即使普通的网友及微信好友不能看到我们发出的文字及视频，至少那些默默工作的网警有机会看到别人看不到的内容，至少那些看到我们发出的文字及视频并向我们发起攻击的五毛们知道这些文字内容不合圣意，难道这还不够吗？
+报道说，FDA对辉瑞（Pfizer）公司和莫德纳（Moderna）公司的疫苗给予了紧急使用授权。辉瑞公司最初要求对65岁及以上的人进行授权，而莫德纳公司要求对所有成年人进行更广泛的授权。
 
-在中共病毒上，在中共病毒疫苗上，在俄乌战争上，我们尽力要告诉同胞们的真相未必能唤醒更多的人，我们未必能一人呼之百人应之，但是所有被屏蔽掉的文字又何尝不是力量的体现呢？我们不知道被屏蔽的数量，可是即使他们屏蔽了99%的内容，哪怕只有1%的文字发出来，总会有人看得到，即使那被屏蔽的99%的内容也必然被网警们和五毛们所熟知，这又何尝不是一种胜利呢？
+FDA疫苗部门负责人马克斯（Peter Marks）周二告诉记者称，该机构之所以选择较低的年龄限制，是因为这些人的医疗条件最可能使他们面临严重后果的高风险。
 
-在中共病毒和中共病毒疫苗面前，我们希望每一位读懂的人都会珍爱自己和家人的生命，在俄乌战争面前，我相信每位网警和五毛都不能对被苏联夺走的中国三百万平方公里国土视而不见，我相信每位网警和五毛都不能无视苏俄制造的一起起包括海兰泡惨案、江东六十四屯惨案、海参崴大屠杀在内的针对中华同胞的暴行，我相信每位网警和五毛都不能否认我们是中国人的事实，我相信每位网警和五毛都和我们每个普通人一样——他们没有机会把自己的家人和财产藏到西方，他们和我们一样都是普普通通的中国人。
+与此同时，为配合FDA的行动，尽管没有提出全面建议，CDC（美国疾病控制和预防中心）主任瓦伦斯基（Rochelle Walensky）更新了该机构的指南。CDC说，任何50岁及以上的人，如果想注射中共病毒疫苗第二针，现在就可以注射了。
 
-所以我们要真心向每一个在新浪和微信背后审核的网警和攻击的五毛致敬，因为在消灭共产党之后，绝对不会再有网警和五毛，恰如二战期间侵华日军被赶出中华大地后，大量的伪军一轰而做鸟兽散一样，所有褪掉网警和五毛身份的同胞将与我们一起回归中国人的本来面目。
+但是，值得注意的是，卫生官员们并没有就第二次中共病毒疫苗加强针注射的申请召开任何咨询小组会议。而FDA的一个外部专家小组之前不同意该机构领导人关于广泛扩大疫苗加强针使用的决定。
 
-但是我们和网警及五毛在灭共后回顾我们曾经经历的这个时代的时候，我相信我们会有不同的感受，因为我们曾经无愧于这个时代，而网警和五毛们如果做不到以死殉党的话，对于他们曾经违背良知的所作所为他们即使不忏悔，他们也绝没有引以为荣地向自己的子孙夸耀的勇气，所以从这一点上看，我们更要真心向每一个在新浪和微信背后审核的网警和攻击的五毛致敬，因为他们太难了！
+对此，马克斯辩称，没有必要召集一个小组，因为此决定是一个“相对直接的”基于数据的决定。
 
-撰稿：喜马拉雅的肉夹馍；
+报道指出，这一决定存在一些重大问题，包括第二加强针的保护作用将持续多久。此举可能会重新引发一场关于谁可能需要注射加强针以及美国疫苗接种运动的更广泛目标的激烈辩论。争论的焦点是，即使症状比较轻微，那注射疫苗加强针的目标是防止人们因中共病毒而住院，还是防止他们生病。
 
-审核：喜马拉雅的馍夹肉；
+*责编：白夜*
 
-校对：Maarago；
+**新闻来源**
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+[FDA authorizes second booster shot for people age 50 and up](https://thehill.com/policy/healthcare/600076-fda-authorizes-second-booster-shot-of-coronavirus?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=03.29.22+JB+The+Hill+-+Health+Care&amp;rl=1)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

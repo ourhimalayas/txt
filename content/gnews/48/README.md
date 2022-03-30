@@ -2,31 +2,18 @@
 ---
 
 
-## 秘翻新闻｜北京疫情如临大敌 瞒疫者最高可判死刑
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2251287/)
+## 樱花头条┃中国石化暂停与俄罗斯项目
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251665/)
 
-**By:[秘翻新闻](https://gettr.com/post/p12hfs2b6e7)**
+撰稿：东京樱花团/樱花传媒
 
-**[2022-03-29](https://gettr.com/post/p12hfs2b6e7)**
+中国石化暂停与俄罗斯的项目。
 
-**新闻内容:**
+信息来源：[https://www.gettr.com/post/p11ycw5f8c1](https://www.gettr.com/post/p11ycw5f8c1)
 
-**1.乌克兰设定停火目标 美国称普京没准备停火**
-
-**2.美国国债5年30年期收益率自 2006 年以来首次倒挂**
-
-**3.香港疫情致死人数激增 棺材紧缺**
-
-**4.录音曝上海瞒疫情：检测阳性不公布 私下通知本人**
-
-**5.长春封城又传停水 中共辟谣被市民打脸**
-
-**🔗Gettr链接：[https://gettr.com/post/p12hfs2b6e7](https://gettr.com/post/p12hfs2b6e7)**
-
-**发布:星星**
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+*编辑：东京樱花团/asket、文米（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

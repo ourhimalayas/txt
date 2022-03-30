@@ -2,25 +2,35 @@
 ---
 
 
-## 特鲁多拉拢新民主党协同施政
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2255936/)
+## 一份被泄露的文件透露中共有意接管澳大利亚
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2255956/)
 
-采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-113.jpg)图片来源：tnc
+作者：日本东京方舟农场 – Miyali7768(文玉）
 
 
-据自媒体《真北方》3月26日报道，随着特鲁多自由党和辛格新民主党近期开始联合执政，加拿大纳税人或将承担更高税赋的压力。
 
-目前，联邦政府已积累了超过1万亿加元的财务赤字，仅每月国债利息就高达20多亿加元。而且债务水平由于该国央行的持续加息而不断提高。因此，新民主党提出的征收财富税计划便成为自由党政府增加收入的捷径，并最终由所有加拿大纳税人为此承担责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-报道称，在法国此前开征财富税之后，每年都有1万多名百万富翁撤离该国，而导致该税收制度最终被废除。当初加拿大实施所得税的主要目标只是大部分高收入人群，但如今却开始针对每个纳税人。这将使该国资金逃离并成为一个对投资和经商毫无吸引力的地方。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：文明(添草灭共)
+3月28日美国媒体报导，上周，一份被泄露的文件展示了中共与所罗门群岛之间安全协议的细节，在堪培拉引发了巨大的冲击波，该协议为中共在澳大利亚家门口建立军事基地和永久派驻警察打开了大门。
 
-原文链接： [https://tnc.news/2022/03/26/guest-op-ed-liberal-ndp-deal-will-mean-major-tax-hikes/](https://tnc.news/2022/03/26/guest-op-ed-liberal-ndp-deal-will-mean-major-tax-hikes/)
+报导称，这一协议敲响了警钟，因为多年来中共也一直以发展为幌子向巴布亚新几内亚和东帝汶注入资金。就在去年，一家由中共支持的公司还提出了一项提案，在昆士兰州和巴布亚新几内亚之间的一个偏远岛屿上建造一座价值390亿美元的城市，让澳大利亚国家安全分析人士感到了紧张。人们担忧中共可能已经深深地与澳大利亚的地区伙伴挂钩。 报导最后推测，中共如此作是看到了澳大利亚在中共病毒大流行期间变得非常专制，和中共的相似程度比他们想象的还要高。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-16.jpg)
+参考链接：
+[Australia Sounds Alarm After Leaked Docs Raise Fear That China Positioning Themselves To Take Over Australia Next](https://en-volve.com/2022/03/28/australia-sounds-alarm-after-leaked-docs-raise-fear-that-china-positioning-themselves-to-take-over-australia-next/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+
+总编：天滅中共
+编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,26 +2,32 @@
 ---
 
 
-## 中俄勾兑令外资不安 争相逃离中共国
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2254897/)
+## 一周内以色列发生第三起恐怖袭击 枪手持M16枪杀五名公民 被警方击毙
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2255664/)
 
-作者：纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月28日国外媒体报导，国际金融协会IIF的一项最新研究发现，自俄乌开战兰以来，外资正以前所未有的速度逃离中共国，这是在其他新兴市场从没有出现过的现象。
+来自N12News 
+发布时间：0329 
+编译：GM
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/qiangji.jpeg)
+以色列一周时间內发生第三起严重恐怖袭击，摩托车恐怖分子持M16击杀四名平民、一名警察后被警方击毙。恐怖分子首先在Bnei Brak 市的Jabotinsky 拐角处的Herzl街开枪，并致命地击中了车上的一名男子。然后，他向Bnei Brak 2nd Street的一家商店开枪、在那里他致命地击中了两个人。然后他在街上又致命地击中了另一个行人。从那里他继续前往拉马特甘，并严重伤害了一名警察，他在那里被击毙。
 
-IIF的数据显示，中共国股市日平均资金外流一度达到近5亿美元。 来自华尔街的一些数据也证实了IIF的结论，3月，境外投资者已抛售了价值95亿美元的中共国股票。而上一次中共国股市出现集中性资金外逃发生在2020年3月，中共病毒疫情在全球爆发之际，当时境外投资者抛售了价值106亿美元的股票。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-106.jpg)
-报导称，因为严格的资本管制和不可预测的政策风险，以及以政府为主体的金融监管机构的影响等因素，境外投资者已经开始对中共国的股市望而却步。近两年来，中共国政府对上市公司漫无边际的打压又给外国资投资者造成了更严重的影响。自从俄罗斯入侵乌克兰以来，中共国对俄罗斯的暧昧态度更让外国投资者感到了不安。他们普遍担心中共对俄罗斯的支持会招致美国的严厉制裁。
+在Beni Barak实施凶残枪击的恐怖分子己核实身份：Dia Hamasha,27岁，阿拉伯人、来自撒马利亚北部村庄，他因属于恐怖组织和贩运武器而在以色列监狱服刑六个月。
 
-参考链接：[中俄友好令外資不安 資金流出中國股債強度前所未有](https://gnews.org/zh-hant/2250089/)
+以色列总理贝内特说：“以色列正面临一波凶残的阿拉伯恐怖主义浪潮。我向今晚失去亲人的家庭表示同情，我为伤者的安宁祈祈祷。安全部队正在工作，我们将坚定地，铁腕的，固执地打击恐怖主义。”
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+参考链接：
 
-编辑/审核：飞虹
-总编：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[https://twitter.com/N12News/status/1508865064635408389?t=lzBlhRUpNJAgyA8boATGJQ&s=08](https://twitter.com/N12News/status/1508865064635408389?t=lzBlhRUpNJAgyA8boATGJQ&amp;s=08)
+
+
+
+> 4 הרוגים בפיגוע הירי בבני ברק וברמת גן
+> — החדשות – N12 (@N12News) [March 29, 2022](https://twitter.com/N12News/status/1508859466590134283?ref_src=twsrc%5Etfw)
+
+
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

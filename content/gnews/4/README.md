@@ -2,31 +2,44 @@
 ---
 
 
-## 樱花FM|日本冲绳12人接种新冠疫苗后死亡
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2256143/)
+## 泰国著名青年演员睡梦中去世，死因心力衰竭
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256206/)
 
-音频：东京樱花团/战友520
+#### 【雅典娜观察】和您一起洞察世界
 
-![](https://lh4.googleusercontent.com/KjW_2nNBnctKaOUDy83_YZjZ2gw0AlX8GYIl-vNOOmtNZc6ZX0YFqkePdE4TgIOWgnkaHVVwv1LZwuWWn-lOjBoZT8dPpHUA_zeA4O7KkVTf8GvMY7FBqpMX8j5jpSHL7Xqk75Qx)
+翻译/编辑：文泓
 
-日本冲绳县议会文教卫生委员会保健医疗部疫苗接种战略课课长城间敦透露，22日，在县文教卫生委员议会上，石原朝子为接种新冠病毒疫苗后引起过敏反应等4人答辨，确定根据疫苗接种法成为医疗费和医疗津贴的支付对象。
-
-厚生劳动省的审查小组在22日前承认了因新冠病毒疫苗导致健康损害的需要救济。根据县的说法，被认定的是过敏等副反应。据厚生劳动省报道,迄今为止全国有1084件申请，只有566人得与认证。
-
-县内也发现接种新冠疫苗后有12人死亡。但是接种的因果关系不被认可。到15日为止有28件救济申请，包括1件死亡的临时救济金,其余24件正在审议中。
-
-日本全国今年2月20日为止，约有1500人因疫苗接种而死亡，但是没有被因果关系认可。
-
-文字版原文：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/@7737MW3@8PSNORB5PMI.png)图片来源：The Pattaya News & 雅典娜设计组
 
 
-| [日本冲绳12人接种新冠疫苗后死亡](https://gnews.org/zh-hans/2226456/) |  |
-| --- | --- |
+泰国著名青年演员**Beam Papangkorn**，于周三（3月23日）在睡梦中突然去世，年仅25岁。
 
+据泰国媒体报道，他母亲发现他躺在床上一动不动，当她试图叫醒他时，她意识到儿子已经没有呼吸了，紧急送医后未能恢复意识被宣布死亡。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+据*《曼谷邮报》报道，*泰国警方在他的房间里没有发现任何挣扎的迹象，也没有发现违反法规（如吸毒）的证据。
+
+调查显示，**Beam**在周二晚上踢了足球，并在返回曼谷的公寓之前在食品摊吃过饭。据医疗小组初步判断，死因是心力衰竭，尸检正在进行中，结果将在大约3周内出来。
+
+粉丝们已经前往Beam的Instagram页面悼念这位演员，3月20日他发布的最后一篇帖子显示，他在照片中微笑。
+
+Beam 出演过很多泰国电影和电视剧，2019年因主演电视剧《搁浅》（2019年）而闻名，该剧围绕着一群学生在海啸袭击后搁浅在一个岛上的故事，以及主演2015年男孩的爱情题材电影《水男孩》。
+
+根据当前统计数据（[Our World in Data](https://ourworldindata.org/covid-vaccinations?country=OWID_WRL)），当前泰国新冠疫苗完全接种率为72%。
+
+参考链接：
+
+1、[Thai actor Beam Papangkorn Lerkchaleampote dies suddenly in sleep at 25 | The Star](https://www.thestar.com.my/lifestyle/entertainment/2022/03/26/thai-actor-beam-papangkorn-lerkchaleampote-dies-suddenly-in-sleep-at-25)
+
+2、[Thai actor Papangkorn “Beam” Lerkchaleampote dies in his sleep at 25-years-old, medical team preliminarily says cause was heart failure – The Pattaya News](https://thepattayanews.com/2022/03/24/thai-actor-papangkorn-beam-lerkchaleampote-dies-in-his-sleep-at-25-years-old-medical-team-preliminarily-says-cause-was-heart-failure/)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,25 @@
 ---
 
 
-## 日本银行将为未来的数字日元发行做好充分准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255801/)
+## 特鲁多拉拢新民主党协同施政
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2255936/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
 
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/415889470D0EAEE7AEABBE0F23BF86275B403AB86F421714DF5725C901616300.jpg)图片来源：Blockchain.news
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-113.jpg)图片来源：tnc
 
 
-根据路透社3月29日报道，日本央行行长黑田东彦周二表示，日本央行目前没有发行自己的数字货币的计划，但将“充分”准备应对未来不断变化的情况。
+据自媒体《真北方》3月26日报道，随着特鲁多自由党和辛格新民主党近期开始联合执政，加拿大纳税人或将承担更高税赋的压力。
 
-黑田东彦在金融服务创新非公开研讨会上发表讲话。
+目前，联邦政府已积累了超过1万亿加元的财务赤字，仅每月国债利息就高达20多亿加元。而且债务水平由于该国央行的持续加息而不断提高。因此，新民主党提出的征收财富税计划便成为自由党政府增加收入的捷径，并最终由所有加拿大纳税人为此承担责任。
 
-日本央行计划从4月开始进入发行央行数字货币 (CBDC) 实验的第二阶段，这将是决定试点计划和最终推出数字日元的关键。
+报道称，在法国此前开征财富税之后，每年都有1万多名百万富翁撤离该国，而导致该税收制度最终被废除。当初加拿大实施所得税的主要目标只是大部分高收入人群，但如今却开始针对每个纳税人。这将使该国资金逃离并成为一个对投资和经商毫无吸引力的地方。
 
-2021年11月24日，一个由约70家日本企业组成的联盟曾表示，计划在未来数月开始测试一种基于日元的数字货币，然后在2022财年推出。该联盟成员包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。
+校对编辑：硫酸羟氯喹64
 
-前日本金融厅长官、目前担任DeCurret特别顾问的远藤俊英也曾于2021年11月份表示：“建立在银行存款支持的共同平台上的数字货币系统将适合可能在日本规划和实施的央行数字货币（CBDC）。”
+发稿：文明(添草灭共)
 
-新闻来源：
-
-1. [Bank of Japan will prepare ‘thoroughly’ for possible launch of digital yen, Kuroda says](https://www.reuters.com/world/asia-pacific/boj-will-prepare-thoroughly-possible-launch-digital-yen-kuroda-2022-03-29/)
-2. [日本约70家企业未来数月将联合测试数字货币，计划于2022财年推出](https://m.jiemian.com/article/6846513.html)
-
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+原文链接： [https://tnc.news/2022/03/26/guest-op-ed-liberal-ndp-deal-will-mean-major-tax-hikes/](https://tnc.news/2022/03/26/guest-op-ed-liberal-ndp-deal-will-mean-major-tax-hikes/)
 
  
 
