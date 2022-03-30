@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 11:33 PM (UTC)`
+
+3/30/2022 Miles Guo: The confrontation between the Eastern and the Western alliances has formed in the Russia-Ukraine war. The CCP, Pakistan, Iran, North Korea, Belarus, and several African dictatorships will serve as guarantors for Russia, with Europe, the US, and Japan being the guarantors for Ukraine. The CCP wants to overthrow the current Pakistani government. Lavrov has gone to Beijing three times recently. India stands with the CCP and Russia.<br/><br/>3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面，中、巴、伊、北朝鲜、白俄罗斯、非洲的几个独裁国家以及欧美日分别作为俄乌的担保国；中共要推翻巴基斯坦现有政府；拉夫罗夫最近3次去北京；印度和中俄站在一起<br/>
+![img](https://media.gettr.com/group24/getter/2022/03/30/23/5a80c946-87c7-3492-2f82-af354cbfce0d/out.jpg)
+
+---
+
+`@miles 3/30/2022 11:33 PM (UTC)`
+
+2022.03.30《The Fringe》 Episode 158
+![img](https://media.gettr.com/group44/origin/2022/03/30/23/70323d02-9a5a-fa4f-b47c-760f492e878f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/30/2022 11:02 PM (UTC)`
 
 2022.03.30 NFSC News    Russia and Ukrainian Peace Negotiators Suffer Suspected Poisoning； Russian Invasion Causes Over $565bn Damage to Ukraine
@@ -147,20 +161,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 
 ![img](https://media.gettr.com/group48/origin/2022/03/30/08/2d552f32-c186-1c75-0a83-56b701e8a021/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/30/2022 10:29 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月29日第25天当日救援统计：<br/>Medyka救援站接待：约70人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7725人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 25 - Date: March 29, 2022 :<br/>Medyka Rescue Station Reception: about 70 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7725 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group50/getter/2022/03/30/10/988e4ba1-6e97-8190-9813-5295b54d1d34/883b1681adf3e72355ad1772b473840e.jpg)
-
----
-
-`@miles 3/30/2022 9:24 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group19/origin/2022/03/30/07/5739e0f4-8593-a9bd-cb1d-f6f8c5120ecd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
