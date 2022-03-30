@@ -2,32 +2,36 @@
 ---
 
 
-## 美国与加拿大将合作支撑世界市场弹性
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2259946/)
+## 有声|俄罗斯最大独立媒体宣布停刊至俄乌战争结束
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259947/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-71.jpg)
-据加拿大媒体【CTV新闻】3月29日报道，加拿大代表团日前会见了西弗吉尼亚州的民主党参议员和宾夕法尼亚州的共和党参议员，美方表示面对当前和未来的全球动荡，加拿大的企业和市场将帮助恢复北美经济的弹性。
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间3月28日，俄罗斯最大独立报纸《新报》（Novaya Gazeta）宣布，将暂停出刊，直到俄罗斯侵略乌克兰的战争结束。
 
-报道称，加拿大代表团还在华盛顿和各方探讨加拿大在俄乌战争期间可以作为能源、食物和矿业的主要替代来源，除了新冠大流行对全球供应链已造成的恶化外，俄乌战争会推高石油和小麦价格，所以加拿大与美国商讨将通过互帮互助以确保北美的市场具有弹性的同时，全力帮助欧洲，并保持供应链的完整性，以便各国公民在面对通货膨胀时不会受到巨大冲击。
+《新报》发出的声明表示：接到来自俄罗斯国家资讯科技、通讯及大众传媒监察机构（Roskomnadzor）的警告，将暂停报纸出刊，包括网站、社群媒体及印刷版，直到“对乌克兰的特别行动”结束。
 
-据悉，加拿大在短期内可将数十万桶石油运往美国进行精炼，但由于必须通过铁路运输，所以加拿大从长远来看需要建设更多基础设施，以便足够支撑并推动世界向前发展。
+俄国媒体如果在一年内收到2次来自监察机构的警告，法院就可以下令将其关闭。
 
-原文链接：[Ukraine: Canadian business leaders talk energy, food with U.S. | CTV News](https://www.ctvnews.ca/business/u-s-lawmakers-interested-in-canadian-energy-food-amid-war-in-ukraine-1.5839674)
+而该报在当天收到在一周内由监察机构对《新报》发布的第2次正式警告。
 
-编辑/上传 – 大废墙
-素材/采编 – 青青
-翻译 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+「新报」总编辑穆拉托夫去年刚获得诺贝尔和平奖肯定。 2006年，前苏联领导人戈巴乔夫与合作投资人共同购得《新报》49%的股权。 由于拥有此特殊政治背景，该媒体是俄罗斯至今唯一剩下能批评总统普京及其对内、对外政策的主流媒体。 如今也在独裁政府势力下被强迫噤声。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+文字版原文：[俄罗斯最大独立媒体宣布停刊至俄乌战争结束](https://gnews.org/zh-hans/2253324/)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

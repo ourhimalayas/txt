@@ -2,27 +2,19 @@
 ---
 
 
-## [3月29日】新中国联邦乌克兰救援前线纪实
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2259959/)
+## 俄罗斯入侵乌克兰，港口城市马里乌波尔城市前后面貌对比：整座城市已被炸成一片废墟
+` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2259962/)
 
-视频制作：多伦多蓝莲花视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-新中国联邦法制基金乌克兰前线救援3月29日梅迪卡跟踪报道，当地时间下午2点半，梅迪卡救援营地来了一辆大卡车，准备把这段时间所有捐赠的衣服全部运送到乌克兰境内。
+《俄罗斯入侵乌克兰暴行记录》精选
 
-当天，新中国联邦救援前线人员将新中国联邦帐篷里的所有这些急需的物资，打包整理好全部装上卡车，运送到乌克兰那些需要帮助的难民手上。
+经过俄国侵略者毁灭性轰炸后，战前风景如画的港口城市马里乌波尔目前已变成一座废墟。可想而知会有多少无辜平民的生命被夺去，这一切皆因普京这个恶魔的疯狂和邪恶中共在背后的支持；所以消灭中共是停止战争和结束灾难的唯一途径和必须！
 
-据报道，现在仍然有很多人在地下室躲避，面临着食物短缺、衣服短缺和药品短缺等等的问题，希望这些物资能够帮助到所有受困的平民。
+* * *
 
-编撰：冰糖葫芦喵
+素材，剪辑，字幕：蔻依 | 发布：James文棟
 
-视频来源：新中国联邦乌克兰救援前线战友小小酥提供。
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+更多新闻咨讯请访问：[DC政经Gettr账号](https://gettr.com/user/dczhengjingquan)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/DCZJ_Gnews_960_160.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
