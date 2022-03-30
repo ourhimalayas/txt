@@ -2,24 +2,18 @@
 ---
 
 
-## 普京没想到入侵乌克兰事件反而让西方更加团结一致
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254782/)
+## 普京没想到入侵乌克兰会重创俄罗斯经济
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254833/)
 
 编译：文宝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/俄罗斯-1.jpg)
+2014年俄罗斯从乌克兰吞并克里米亚时，国际社会被指责行动迟缓、效率低下。这一次，当俄罗斯开始全面入侵时，国际社会加大了行动力度，西方民主国家对俄罗斯的关键部门、企业和个人实施了广泛的制裁 与克里姆林宫或支持入侵的人有关。
 
-在普京执政 22 年左右的时间里，他系统地、反复地试图削弱和破坏西方，无论是干涉美国（2016 年大选）和欧洲（右翼政治的资助）的民主进程。或严重事件，例如据称对他的个人和政治敌人使用神经毒剂。
-![Military personnel wearing protective suits remove a police car and other vehicles from a public car park as they continue investigations into the poisoning of Sergei Skripal on March 11, 2018 in Salisbury, England.](https://image.cnbcfm.com/api/v1/image/105058759-GettyImages-930484082.jpg?v=1648543301&amp;w=929&amp;h=523&amp;ffmt=webp)
-专家认为，普京可能预计他对乌克兰的入侵会对西方产生分裂影响，各国无法就制裁或向乌克兰提供武器达成一致，但事实证明恰恰相反。
+因此，预计俄罗斯经济今年将陷入深度衰退。 国际金融研究所预测，由于战争，俄罗斯经济将在 2022 年收缩多达 15%。 它还预测 2023 年将下降 3%，并在上周的一份报告中警告说，这场战争“将摧毁 15 年的经济增长”。
 
-“西方的反应是前所未有的。 这超出了任何人的预料——团结起来，比俄罗斯任何人准备或准备的要多得多，”《谜语俄罗斯》杂志的政治分析家兼编辑主任安东·巴尔巴辛告诉 CNBC。
+TS Lombard 的分析师预测，由于经济衰退和高通胀，俄罗斯公民的生活水平将受到“严重打击”。 克里斯托弗·格兰维尔（Christopher Granville）和麦迪娜·赫鲁斯塔列娃（Madina Khrustaleva）周一在一份报告中表示，2 月份的年化通胀率为 9.2%，预计 3 月份将显着上升，“年终通胀率为 30-35% 的合理范围”。
 
-“基本上，正如我们所知，最终的经济战将摧毁俄罗斯的经济。 这些制裁是否会阻止普京在乌克兰的战争——不，但它肯定会大大限制我们与普京领导下的俄罗斯相处的时间，就像今天这样，”巴尔巴辛补充道。
-
-原文链接：[https://www.cnbc.com/2022/03/29/russias-ukraine-invasion-has-unintended-consequences-for-putin.html](https://www.cnbc.com/2022/03/29/russias-ukraine-invasion-has-unintended-consequences-for-putin.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-59.png)DISCORD
-
-
+他们补充说，这可能会产生重要的中长期影响，尤其是在政治层面，普京的受欢迎程度可能会因此受到考验。 然而，他们确实指出了俄罗斯可以减轻制裁对其经济影响的一种方法：增加对中国和印度的石油出口。 俄罗斯在欧佩克的石油生产盟友也支持它。
 
  
 

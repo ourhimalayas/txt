@@ -2,50 +2,26 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.30B）——接种辉瑞疫苗后心慌、气短、胸闷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254704/)
+## 更具传染性的 病毒子变体在美国占主导地位
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254736/)
 
-整理：gardeniahu
-编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-2.png)图片来源：雅典娜设计组
+编译：文宝
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![A woman takes a coronavirus disease (COVID-19) test at a pop-up testing site in New York City, January 12, 2022.](https://image.cnbcfm.com/api/v1/image/107000414-1642028919088-test.jpg?v=1642084706&amp;w=929&amp;h=523&amp;ffmt=webp)
+根美国据疾病控制和预防中心本周发布的数据，更具传染性的 omicron 子变体 BA.2 现在是美国 Covid-19 的主要版本。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+该子变体占接受基因测序的 Covid 感染样本的近 55%。 即便如此，更具传染性的病毒的传播并不能保证美国将承受新一波病例。大约每两周，BA.2 在美国流行的病毒变种中的比例就会增加一倍。 2 月初，omicron 子变体仅占美国已测序的 Covid 病例的 1%。
 
-**博主：自信放光芒**
+根据英国卫生安全局的最新更新，BA.2 子变体的传播速度比 omicron 的早期版本 BA.1 快约 75%。最近几周，BA.2 导致英国和德国的感染人数激增，但那里的病例又开始下降。
 
-今天已经是第七天了，从第二天开始我就心脏不舒服，心慌、气短、胸闷，前天难受的厉害，直接回屋休息了。昨天在屋休息了一天，啥事没有，我以为好了，结果今天刚来上班，不到一个小时，又开始心慌、气短，各种不舒服，这啥玩意啊，啥时候才是个头？
+中国正在与 2020 年以来最严重的疫情作斗争，这也是由 BA.2 推动的。根据南非和英国等国家的数据，虽然 BA.2 的传播速度更快，但它并不比早期版本的 omicron 使人们生病。 Omicron 及其子变体通常导致比 delta 变体更轻的疾病。卡塔尔的科学家发现，Covid 疫苗对 BA.2 的效果与对 BA.1 的效果一样，尽管 omicron 引起了更多的突破性感染。
 
-还说打完辉瑞的副作用发生几率是百分之一，我你TM百分之一不发生副作用吧？我周围人只有一个人打完没有任何反应的。（以下图片来源，博主小红书）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-114.png)
-立志成为超人（评论）：
+白宫首席医疗顾问安东尼·福奇博士本月早些时候表示，BA.2 可能会导致美国病例增加，但他预计不会再次激增。福奇说，该国还不需要重新引入 Covid 限制来应对子变体。
 
-心脏不舒服请去看医生！！认真！有可能心肌炎或是心包膜炎！快去看医生！！！
+原文链接：[https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html](https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html)
 
-自信放光芒：
-
-嗯嗯。
-
-大H（评论）：
-
-对！（这是）官方认证的副作用。
-
-帕尼尼（评论）：
-
-急性心肌炎致死很快的，别耽搁，快去看医生！
-
-参考链接：[我去，他妈辉瑞有毒](https://www.xiaohongshu.com/discovery/item/61b31de5000000002103cadc?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648524179)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-57.png)
 
  
 

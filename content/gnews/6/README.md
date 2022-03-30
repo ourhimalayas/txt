@@ -2,41 +2,38 @@
 ---
 
 
-## 有声|中共洗脑工具之样板戏
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2254801/)
+## 印度小麦出口增加有望缓解粮食短缺
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254904/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-样板戏，全称革命样板戏或八个样板戏，是中共官方在1967至1976年间指定中央文革小组负责制作的各式戏剧，其中代表性的作品包括京剧《智取威虎山》、《红灯记》，芭蕾舞剧《红色娘子军》、《白毛女》以及交响音乐《沙家浜》等。样板戏可以算是主要反映当时极左政治立场的所谓“舞台艺术作品”。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-26-%E4%B8%8A%E5%8D%8810.50.42-1.png)
-1956年3月，中共在北京举行的京剧演出大会开始将工农兵作为主要角色，用以突出阶级对立。到了1967年5月，八个样板戏在北京各剧场同时上演，并获得党魁毛泽东的极力吹捧。其后，江青更是借由主导样板戏的机会开始活跃于中共的政治舞台核心。直至 1968年，中共通过鼓动民众唱样板戏、跳忠字舞等活动大肆洗脑百姓，从而控制他们只服从于毛泽东与中共的独裁统治。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-资料显示，样板戏具有反传统、造神、服从、移情和禁欲等几个主要特征。这当中，样板戏通过描写中共进行武装斗争建设所谓的新生活，来巩固中共的极权统治并将毛泽东神话为统率国民的偶像。此外，样板戏还竭力将中共政党与普通民众定义为主仆或君臣关系，给百姓灌输无限忠诚和无条件顺从等思想。
+整理：gardeniahu
+编辑：文泓
 
-时至今日，自习近平修宪以来，中共再次将所谓的“红色题材”作品搬上舞台，企图再次回到毛泽东造神时期。据悉，歌剧《白毛女》和芭蕾舞剧《红色娘子军》近期配上了现代的舞台声光科技，正在以更魔幻澎湃的形式洗脑中共国内的普通百姓。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/2B@OVM_TUZ7SZZLO.png)图片来源：Point-software.be & 雅典娜设计组
 
 
+据财联社3月29日报道，当下俄乌战争仍在持续，各国比以往任何时候都担心粮食短缺和通胀飙升。同期，印度的仓库里正堆满了谷物，作为全球第二大小麦生产国，印度小麦出口增长将有助于缓解全球短缺。
 
+在战争爆发前，因干旱导致全球粮食减产，而需求增加，农产品价格已经大幅上涨，推动全球粮食成本升至历史最高水平。而俄罗斯入侵乌克兰使得情况变得愈发糟糕，因为它阻碍了全球最大小麦产地之一的运输，切断了全球四分之一以上的小麦供应。
 
+据彭博社对交易员、磨坊主和分析师进行的一项调查，印度在2022-23年有可能向全球市场出口1200万吨小麦，创下历史最高水平。美国农业部的数据显示，印度2021-22年的小麦出口量为850万吨。
 
-文字版原文：[中共洗脑工具之样板戏](https://gnews.org/zh-hans/2236231/)
+农产品巨头Agrocorp International董事长兼董事总经理Vijay Iyengar表示，该公司每年的谷物贸易量约为1200万吨。并表示，在全球供应紧张的情况下，印度小麦出口有助于市场，这也有助于控制全球价格。如果印度没有大量出口小麦，价格可能涨得更高。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+本月，芝加哥交易所基准小麦价格一度飙升至每蒲式耳13.635美元的历史新高，而冲突爆发前五年的平均价格仅为每蒲式耳5.50美元左右。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+印度商务部本月表示，该国正就开始向全球最大小麦买家埃及发货进行最后谈判，同时与中国、土耳其、波斯尼亚、苏丹、尼日利亚和伊朗等国的谈判也在进行中。政府数据显示，在截至今年1月的前10个月里，印度小麦出口已较上年同期增长逾四倍，达到约600万吨。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+参考链接：[印度出口增加有望缓解短缺](https://cn.investing.com/news/stock-market-news/article-2092292)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+*发布：tianzhihuan*
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

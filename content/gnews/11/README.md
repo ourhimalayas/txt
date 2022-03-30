@@ -2,35 +2,43 @@
 ---
 
 
-## 入侵乌克兰给俄罗斯带来了意料之外的严重后果
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254758/)
+## 有声|教育-人生的影响
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2254786/)
 
-编译：文宝
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+爱是教育的前提条件，没有爱的教育一切都是空中楼阁，爱更是抚育和安慰，她是一种能力，她不是口头表达而是具体的行为表现。
+
+不科学合理的教育是错误位人生的根源，缺乏尊重的教育是叛逆的根源。人生其实没有成功与失败只有唯一，教育中更没有尊贵与低贱只有个性。
+
+即便你有再糟糕的原生家庭，教育都可以很好的弥补，因为人有认知功能，教育的核心是（唤醒），唤醒你的人性和个性，而不是灌输某一种观念，如孩子就像一幅天然画卷，教育要做的就是轻轻擦去上面的尘土，自然露出原本色彩而不是去塗改它。教育里比传授知识更重要的就是（有安全感），也是教育的前提条件。
+
+举例教育者老師的行为，在不论任何时候都要轻言轻语小心翼翼的使用它，因为老师的一个眼神就可能抹杀一个孩子的一生。在言语的鼓励和关心当中可以培奍身心的正面的种子，而呵斥和过分严厉会造成内心的抗拒，在青春時期的叛逆心态成負面的成長，引响以後他们対人生價值觀的看法，需慎之。
+
+人生的每个时期都有她的特性，教育首先要（尊重）这个规律，满足各个阶段的需求，否则要不就是滞后要不就是拔苗助长，不管哪一种情况都会给人带来空虚感。人生也遵从能量守恒定律，失去的一定会找回来。不科学合理的教育是错误位人生的根源，缺乏尊重的教育是叛逆的根源，成年之后都会回报社会，至于回报的是爱还是恨，就取决于她接受的教育，所以独裁的形成不是天生的而是教育导致，所以我们每一个人都要善待周围的人，让他感觉温暖化解他的不满，带给世界和平。
 
 
-![People stand in front of a huge banner with the lettering &quot;Slava Ukraini&quot; (&quot;Glory to Ukraine&quot;, a Ukrainian national salute) as they take part in a demonstration in support of Ukraine at Freedom Square in Tallinn, Estonia, on Feb. 26, 2022, following Russia's invasion of Ukraine.](https://image.cnbcfm.com/api/v1/image/107037818-1648495419973-gettyimages-1238779377-AFP_323Z8P4.jpeg?v=1648538169&amp;w=929&amp;h=523&amp;ffmt=webp)
-当俄罗斯入侵乌克兰时，人们普遍认为它预计会轻松战胜邻国。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/download-19.jpg)
 
-但到目前为止，俄罗斯在其所谓的“特殊军事行动”方面几乎没有任何表现：其部队主要在乌克兰的北部、东部和南部边缘作战，并且发现该国更有组织性 而且装备比他们预期的要好。
 
-俄罗斯军队只占领了一个城市，赫尔松，但即使是这种占领看起来也很不稳定，乌克兰军队发起了反攻以夺回南部港口。 乌克兰其他地方也出现了类似的举动，官员声称其部队正在发动越来越多的反击。
+文字版原文：[教育-人生的影响](https://gnews.org/zh-hans/2235041/)
 
-开战仅仅一个多月，莫斯科就面临着其侵略乌克兰的意外后果，从军队的高伤亡到未来几年的经济崩溃。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-俄罗斯的伤亡很高
-俄罗斯一直不愿公布其损失的统计数据，但一名俄罗斯国防部官员周五表示，到目前为止，已有 1,351 名俄罗斯士兵在战争中丧生，另有 3,825 人受伤。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-乌克兰当局声称，超过 15,000 名俄罗斯士兵在冲突中丧生，而一名北约高级官员上周估计，有 8,000 至 15,000 人丧生。
-![Ukrainian soldiers salvage equipment off a body of a dead Russian soldier after a Russian vehicle was destroyed Ukrainian forces in battle along the main road near Sytnyaky, Ukraine, Thursday, March 3, 2022.](https://image.cnbcfm.com/api/v1/image/107037833-1648496149843-gettyimages-1238909842-920443-fg-0303-ukrainecrisis-mwy-7120.jpeg?v=1648538995&amp;w=929&amp;h=523&amp;ffmt=webp)
-如果准确的话，这些数字对俄罗斯来说将是一个沉重的死亡人数——与 1980 年代阿富汗 10 年战争期间近 15,000 名苏联士兵的死亡人数相当。 直到今天，这种入侵在俄罗斯还是不受欢迎的，因为它对这个国家收获甚微，但付出了很多鲜血。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-为了将俄罗斯军队的伤亡情况放在背景下，联合国人权办公室（OHCHR）周二表示，它已记录到乌克兰平民中共有 1,151 人死亡，其中包括 54 名儿童和 1,800 多名受伤平民。 它认为实际的伤亡数字要高得多。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-联合国人权办公室说：“记录在案的大多数平民伤亡是由使用具有广泛影响的爆炸性武器造成的，包括重型火炮和多管火箭系统的炮击，以及导弹和空袭。”
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-原文链接：[https://www.cnbc.com/2022/03/29/russias-ukraine-invasion-has-unintended-consequences-for-putin.html](https://www.cnbc.com/2022/03/29/russias-ukraine-invasion-has-unintended-consequences-for-putin.html)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-58.png)DISCORD
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
