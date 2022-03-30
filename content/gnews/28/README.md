@@ -2,32 +2,28 @@
 ---
 
 
-## 美国军队高层命令军医对军人疫苗伤害保持沉默
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258445/)
+## 加拿大将致力发展新型核能计划
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258497/)
 
-.
+编译撰稿：加拿大温哥华杨帆农场 – 活力人生
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-68.jpg)
-美国[西方杂志]新闻网站29日报道，陆军飞行外科医生在佛罗里达地区法院作证时称，来自高层指挥部的命令，不得提及“国防医学流行病学数据库”中疫苗不良事件的问题。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-13-1.jpg)图片来源：CNNPN
 
-在为一名拒绝注射疫苗的海军军官作证时，她说数据库信息很重要也很相关，因为疫苗导致军人的中枢神经系统出现“脱髓鞘”疾病。几位军医作证时称，不断收到疫苗伤害的军人报告，特别来自于最高体能标准的飞行员；国防部的疫苗政策为确保全员接种而拒接军人的宗教豁免，士兵们很沮丧甚至出现自杀事件；打了两剂的军人至少有75%仍然感染病毒，而未接种疫苗的感染率为15%。他们认为疫苗既不安全也无效，鼻腔冲洗和服用伊维菌素可以治疗病毒感染。尽管在法庭上作证军队的疫苗伤害，可能让他们失去一切，但因不愿看到军人们被彻底摧毁而让他们义无反顾。也为法官秉持正确判断而取得的进展欢呼。
 
-原文链接：[Military Doctor Testifies in Court: High-Level Command Ordered Her Silence Over Frightening Vaccine Data](https://www.westernjournal.com/military-doctor-testifies-court-high-level-command-ordered-silence-frightening-vaccine-data/?utm_source=Twitter&amp;utm_medium=PostSideSharingButtons&amp;utm_campaign=websitesharingbuttons)
+据【加拿大广播公司】3月28日报道，萨斯喀彻温省、安大略省、新不伦瑞克省和阿尔伯塔省最近联合发布了通过[小型模块化核反应堆]来发展该国核能工业的战略计划。
 
-编辑/上传 – 大废墙
-素材/采编 – 薇文
-翻译 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+报道称，该计划中的新型核反应堆比传统的更小但更有效。因此，这使得相关设备能更容易被运输，安装和建造。据悉，每座[小型模块化核反应堆] 可产生三倍于传统反应堆的能量，并足以为 30多万个家庭全年供电。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+对此，各省相关部门表示，新的核能计划可为全国特别是偏远地区居民提供安全、可靠和清洁的电力来源。加拿大因此有望在未来成为该技术的主要输出国。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+文贵先生在日前的直播中也指出，未来的清洁能源必将成为全球工业发展的主导。而试图通过原油，天然气等制约欧洲和世界生存的时代即将一去难返。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： [https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928](https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
