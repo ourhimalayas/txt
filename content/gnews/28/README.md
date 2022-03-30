@@ -2,25 +2,24 @@
 ---
 
 
-## 樱花时政┃德国对俄罗斯经济命脉再出重拳
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257350/)
+## 樱花头条┃上海疫情大爆发，隔离”集中营“大规模投入使用
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2258125/)
 
-撰稿：东京樱花团/风翼
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+海疫情大爆发，隔离”集中营“大规模投入使用.
 
-据乌克兰多媒体新闻平台报道：德国外长贝尔博克3月30日在德国外交部组织的“柏林能源转型对话”论坛上发表了讲话，她说俄罗斯对乌克兰的入侵不仅使数百万人遭受痛苦，而且使欧洲明白，这场战争也关系到了21世纪的地缘政治和具体的安全保障问题，现在至关重要的是必须完全脱离从俄罗斯化石燃料的进口。
+信息来源：[https://www.gettr.com/post/p12fgtp708b](https://www.gettr.com/post/p12fgtp708b)
 
-德国外长贝尔博克还表示，虽然德国在短期内将继续从其他国家进口天然气和石油，但从长期的角度来看，最终的目标将是从进口能源过渡到本国的自身可以实现的再生能源。
+编辑：东京樱花团/asket、太白/asket（素材）
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-183.png)图片来源于网络
-
-自冷战结束，东德和西德统一之后就与俄罗斯成为了战略伙伴关系。而其中最重要的因素之一就是能源。德国需要俄罗斯的能源，俄罗斯需要德国的能源基础设施的投资。但随着俄国一系列的侵乌武装行动，两国关系开始变得消极。从德国取消在德国的俄罗斯电台，到进口俄罗斯石油量减半到最终的取消进口。不难看出，德国以重新整理了政治立场将与欧盟并肩从银行、石油等方面一步步对其进行全面制裁。而俄罗斯一向用能源制衡欧盟的目的被打碎，用能源经济支持国内经济和战事的情景显而易见以很不乐观了。
-
-信息来源：
-[ベーアボック独外相、露発エネルギーの輸入を完全に止める意向を発表](https://www.ukrinform.jp/rubric-economy/3443464-beabokku-du-wai-xiang-lu-faenerugino-shu-ruwo-wan-quanni-zhimeru-yi-xiangni-yan-ji.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

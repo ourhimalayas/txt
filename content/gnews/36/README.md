@@ -2,35 +2,45 @@
 ---
 
 
-## 有声|台湾情报机构：俄乌战争给人民币国际化制造机会
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2256371/)
+## 疫下灾情｜上海封城两日已酿悲剧 医院拒收危疾病人 一老翁失救致死
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256759/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
-路透社报道称，台湾国安局长陈明通周一（3月28日）在立法院接受质询时指出，中共一直在寻找摆脱美元主导地位的途径，而目前的乌克兰战争，可能加速人民币在国际上的流通使用。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image005-18.jpg)据路透社报道，台湾国安局长陈明通表示，乌克兰战争以及俄罗斯被排除在国际货币体系之外，可能成为中国提升人民币地位以挑战美元的一个机会。
-陈明通指出，无论在人民币交易还是货币发行的准备方面，中共都不能放过这个机会。他说，中共一直想让人民币摆脱美元的主宰，这次德国加入切断SWIFT（环球银行金融电信协会）与俄罗斯连结的制裁行列，让中共有些意外，但也找到扩大人民币全球交易的机会。
+**图/文｜CP**
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城兩日已釀悲劇-醫院拒收危疾病人-一老翁失救致死.jpg)
 
-莫斯科已表示，希望中共帮助俄罗斯度过西方制裁对本国经济造成的打击，并将在西方冻结俄罗斯的美元和欧元储备的情况下，使用其外汇储备当中的人民币进行支付。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-北京一再表示反对对俄罗斯进行制裁，并强调将保持与俄罗斯的正常经济和贸易交往。中共还拒绝谴责俄罗斯对乌克兰的战争，不愿称其为侵略。
 
-[【援引连结】](https://www.dw.com/zh/%E5%8F%B0%E6%B9%BE%E6%83%85%E6%8A%A5%E6%9C%BA%E6%9E%84%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89%E7%BB%99%E4%BA%BA%E6%B0%91%E5%B8%81%E5%9B%BD%E9%99%85%E5%8C%96%E5%88%B6%E9%80%A0%E6%9C%BA%E4%BC%9A/a-61279680)
+上海疫情持续严峻，周一（28日）起以黄浦江为界实行两段式封城，进行全民核酸筛查。昨日（29日）是封城第二日，上海新增本土确诊个案5982宗，再创单日新高。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-5.png)
+虽然封城刚刚踏入第三日，但坊间已经有不少悲剧发生。有网民29日在微博发文指，父亲因疫情封控，连续三日未能洗肾，最终导致心肌衰竭而死。他在文中公开个人信息，以证确有此事。
+
+该网民表示，他的父亲叫沈瑞根，今年77岁，居住在浦东新区北蔡镇（北中路408弄），由于糖尿病、肾衰竭需要接受血透治疗（即俗称“洗肾”），另每日还需高血压药、糖尿病药、胰岛素、肾病药、脑中风药续命，但因为浦东新区疫情封控管理处置不当，导致一个尚能自主的老人在3天内去世。
+
+据描述，26日沈老先生准备前往复旦大学附属浦东医院洗肾时，被通知核酸检测呈阳性，故暂时不能洗肾。当晚即被送进医院隔离区，至27日，浦东医院告知不能给阳性病人洗肾，疾控中心又安排老人转去上海君爱康复医院进行隔离，但由于120急救服务已超负荷，老人唯有等待，直至28日上午才被转到君爱医院隔离。隔离期间，没有医护照料与问询，28日晚上，老人仍未轮到洗肾，不久后昏迷，病友通知家属后，老人被送至周浦医院ICU病房，当晚9点52分离世。当值医生透露，沈老先生因长期未洗肾，造成心肌衰竭而死。
+
+事件爆光后，今日有不少上海危疾病患和家属纷纷在微博上发起“上海抗疫求助超话”并留下现居地址、电话、身分证号等个人资料，要求当局提供紧急救助。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/30lfP0LTgQlY9ps-nRrTmqfX1TLXLM3-YpSP52KUj-c-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/CRiwAI39h_gZb3h4ZF2W0YFZVP9ykfPeITzyiiE88oo-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/k3tE5N_uFDiNucv_PwqWZ16XAEYuZ8A9utLHnrrSx54.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/lj7t6wkuClfU1s8y9_ycltyF3JXQSWBYkEfhMZBH4TE-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MRNwL9i7b2tFo-11NwLYzgGhYqyoGxfubjysu248rLs.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QJwA2Dwk_wWGwVblvz1dzcI9X42LognevzU7NL81OzQ-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QsZXZDgxPe2zS6XehB5Sx9JKcDizTqqXx75qSMe-akg-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TaG9ZKZmsUiBN4UcBxVsQ2Twb18tfmgmlylCFpcpQhY-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YOsO4Pfe4gbtlZSGznqn9c3pu0tN1Nrdcjd0anI3dGo-scaled.jpeg)
+
+
+因疫情封控政策，非封控区医院暂停收治来自封控区的病人，而封控区内医院则闭门停诊，导致浦东等封控区的危疾病人，无法入院治疗，加上目前封控区不断有阳性个案确诊，解封之日遥遥无期，令不少民众哀叹，“除了新冠肺炎是病，其他疾病都不配算病。”
+
+來源｜微博
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

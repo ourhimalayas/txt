@@ -2,23 +2,25 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 樱花时政┃德国对俄罗斯经济命脉再出重拳
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257350/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+撰稿：东京樱花团/风翼
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+据乌克兰多媒体新闻平台报道：德国外长贝尔博克3月30日在德国外交部组织的“柏林能源转型对话”论坛上发表了讲话，她说俄罗斯对乌克兰的入侵不仅使数百万人遭受痛苦，而且使欧洲明白，这场战争也关系到了21世纪的地缘政治和具体的安全保障问题，现在至关重要的是必须完全脱离从俄罗斯化石燃料的进口。
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
+德国外长贝尔博克还表示，虽然德国在短期内将继续从其他国家进口天然气和石油，但从长期的角度来看，最终的目标将是从进口能源过渡到本国的自身可以实现的再生能源。
 
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-183.png)图片来源于网络
 
-* * *
+自冷战结束，东德和西德统一之后就与俄罗斯成为了战略伙伴关系。而其中最重要的因素之一就是能源。德国需要俄罗斯的能源，俄罗斯需要德国的能源基础设施的投资。但随着俄国一系列的侵乌武装行动，两国关系开始变得消极。从德国取消在德国的俄罗斯电台，到进口俄罗斯石油量减半到最终的取消进口。不难看出，德国以重新整理了政治立场将与欧盟并肩从银行、石油等方面一步步对其进行全面制裁。而俄罗斯一向用能源制衡欧盟的目的被打碎，用能源经济支持国内经济和战事的情景显而易见以很不乐观了。
 
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+信息来源：
+[ベーアボック独外相、露発エネルギーの輸入を完全に止める意向を発表](https://www.ukrinform.jp/rubric-economy/3443464-beabokku-du-wai-xiang-lu-faenerugino-shu-ruwo-wan-quanni-zhimeru-yi-xiangni-yan-ji.html)
 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

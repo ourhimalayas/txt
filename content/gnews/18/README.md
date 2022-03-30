@@ -2,21 +2,33 @@
 ---
 
 
-## 自由和獨裁不共戴天
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2258182/)
+## 紧急公共新闻：美国参议院专家证人彼得·麦卡洛博士的证词指出，美国95%（由COVID-19导致的）死亡本可以避免
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2258434/)
 
-文貴大直播20220330
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+0:00 他是一名内科医生，心脏病专家，接受过流行病学培训。他曾在美国参议院就我所提到的COVID-19应对措施（的听证会）作证，请您今天在这里介绍应对大流行病的四大支柱（措施）是我们的荣幸。谢谢你，医生先生。
 
-文案指導：頑童（紐倫堡正義）
+0:14 今天我们坐在这里（谈论这个话题的时候），我估计95%死于COVID-19的美国人，这个死亡数字已经接近一百万了，以及无数接受住院治疗的病人如果采用全面的早期治疗方案，原本悲剧是可以避免的。因此我们今天讨论的主题是儿童疫苗接种，那么公开发表的代表性数据已经证明儿童（COVID-19)疫苗接种的风险远超过任何潜在的好处。这些数据是十分明确的。过去数周（疫苗不良反应）报告层出不穷。其中一份是经由密歇根大学和明尼苏达大学病理学审查认可的来自康州的关于两名十几岁的男孩子分别在接种了辉瑞疫苗三天和四天后，其父母惊恐地发现孩子在家中死亡的报告。他们对其进行了尸检，结论非常清楚，疫苗导致死亡并伴有严重的心脏炎症和心脏叠加儿茶酚胺损伤的证据。来自韩国的崔博士(SANGJOON CHOI)和圣路易斯华盛顿大学的威尔玛医生（Amanda Verma)都发表了（COVID-19)疫苗会引起致命危险的报告。显而易见的是疫苗是被强行推广的（疫苗）强制令事实上导致了孩子的死亡。在导致儿童死亡这个问题上，哪怕一个孩子死亡都是不可接受的。正如我分享的那样，在数百万接种疫苗的儿童中，他们不会死于 COVID-19 呼吸系统疾病，而实际上（可能会）死于疫苗。作为一名医生和公民，我认为应该立即废除所有疫苗强制令。从市场上撤下所有当前的疫苗，并对其安全性和有效性进行非常深入的审查，找出疫苗计划出了问题的地方。以上是我的意见，谢谢。
 
-撰稿：文仁（功成）不著急（達芬奇）
+素材提供：坐看云起时
+软件听写：蓝色天空
+听写校对：小白咖啡馆
+文稿翻译：文倩
+翻译校对：啊啊小苹果
+字幕添加：文雅
+最终审核：文倩
+编辑/发稿：hongyeca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-美工：卡西亞（雅典娜）
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-書法：沙漠之花（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-1.png)
-*發布：Theodosia*
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

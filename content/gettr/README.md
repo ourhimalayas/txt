@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 2:49 PM (UTC)`
+
+2022/03/30 非常感谢来自这位战友的设计，请大家在留言区写下你们的建议和反馈. 谢谢🙏🙏🙏🙏
+![img](https://media.gettr.com/group27/getter/2022/03/30/14/aeae8f40-d87e-924d-6b18-690b113dafdc/955076d24043c45c36f5356095746cb5.jpg)
+
+---
+
+`@miles 3/30/2022 2:47 PM (UTC)`
+
+2022/03/30 来自日本樱花农场战友的设计， 请大家在留言区留下你们的宝贵建议🙏🙏🙏🙏
+![img](https://media.gettr.com/group5/getter/2022/03/30/14/50774d07-54ab-d353-7cc5-3f56c54208a6/82d0a4016f96f20c1f6d63204feef3b5.jpg)
+
+---
+
+`@miles 3/30/2022 2:44 PM (UTC)`
+
+2022/03/30 来自澳雅农场战友的设计马甲，请大家在留言区留下您们的宝贵建议！谢谢 🙏🙏🙏🙏
+![img](https://media.gettr.com/group21/getter/2022/03/30/14/8e87557b-cddb-2513-b518-a2016c99a70d/3d0eec1bedd21df9f836a87294081dfd.jpg)
+
+---
+
 `@miles 3/30/2022 2:34 PM (UTC)`
 
 2022/3/30 这是来自我们战友们的设计，请大家留下你们的宝贵建议在评论区. 谢谢🙏
@@ -134,27 +155,6 @@
 
 2022.03.29 NFSC News   Ukrainian Mayor Taken Hostage, Protesters Force Russian Troops to Withdraw and Release Him； Zelenskyy: Ukraine is Ready To Seek Neutral Status
 ![img](https://media.gettr.com/group43/origin/2022/03/29/22/d5f4814e-13fb-41cc-6feb-3d4526bc6a03/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/29/2022 10:53 PM (UTC)`
-
-The Denmark volunteers on Medyka, Poland refugee camp. Voluntarily came to the tent of New Federal of China and Rule of Law Foundation to pick up the vests with the slogan “Take Down the Evil Chinese Communist Party” and shout out “Fuck CCP”!<br/><br/>在波兰梅迪卡难民营的丹麦义工们，主动来新中国联邦帐篷前，领取印有“推翻邪恶的中国共产党“口号的马甲。他们高喊 “滚蛋吧中国共产党”！
-![img](https://media.gettr.com/group23/getter/2022/03/29/22/80a9b164-9bd1-5ae3-2b8c-730e195e34af/out.jpg)
-
----
-
-`@miles 3/29/2022 10:40 PM (UTC)`
-
-3/27/2022 Miles Guo: What does it mean for President Zelenskyy to say that Roman Abramovich is a good person? The CCP’s contempt of business has turned the "generous businessmen" in the traditional Chinese culture into " profiteers". That is why there are CCP businessmen who are arrogant, advocate the supremacy of power and money, and have no taste at all.<br/><br/>3/27/2022 文贵直播：泽林斯基总统说阿布是好人意味着什么？共产党的轻商主义把中国传统文化中的“尖商”打成“奸商”，所以才有了鼓吹强权金钱至上、毫无品位、狂妄之极的中共商人<br/><br/>
-![img](https://media.gettr.com/group28/getter/2022/03/29/22/c69034b9-4de2-219e-1a47-87943d5b1fbd/out.jpg)
-
----
-
-`@miles 3/29/2022 10:36 PM (UTC)`
-
-Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New Federal of China and Rule of Law Foundation.<br/><br/>钢琴家戴维德·马尔泰罗在新中国联邦法治基金的大帐篷前演奏《铁锁梦》
-![img](https://media.gettr.com/group12/getter/2022/03/29/22/b02fbeb7-4c72-ea00-89ca-3617c62a4416/out.jpg)
 
 ---
 

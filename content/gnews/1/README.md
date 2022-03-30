@@ -2,20 +2,22 @@
 ---
 
 
-## 乌克兰局势缓解？俄罗斯誓言缩减在基辅的军事规模
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258547/)
+## 加密货币应该“保持合法并让其繁荣”
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258606/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-75.png)
-据加拿大【CTV新闻】3月29日报道， 周二在伊斯坦布尔举行的乌俄双方代表团最新一轮谈判中，俄罗斯宣布将大幅缩减在乌克兰首都和北部城市附近的军事行动，以“增加互信并为进一步谈判创造条件”。
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-69.jpg)
+周一，加拿大保守党议员和领袖候选人波伊瑞.波伊利维夫（Pierre Poilievre）在一份声明中强调说，特鲁多政府正在用“美式印钞，抬高了富人的资产和其他所有人的生活成本，毁掉了加拿大的货币，导致了“纯粹的通货膨胀”，所以加拿大人应该有使用其他货币的自由，比如比特币。他承诺让加拿大成为区块链世界之都，并明确表示他将作为支持比特币的候选人参加竞选。
 
-乌克兰总统泽连斯基表示，不能信任俄罗斯。因为谈判“无法让俄罗斯炮弹的爆炸安静下来”。而美国总统拜登和国务卿布林肯均表示，不会在意俄罗斯说什么，相反更关注他们在做什么，俄罗斯正在持续残暴的对待乌克兰。在过去的几天里，乌克兰军队在基辅郊区和其他地区进行了非常有效的反击，夺回了东北部苏梅以南的特罗斯蒂亚涅茨，重创了俄军。而俄军的地面部队则因遭遇乌克兰顽强的抵抗，加之其自身战术失误、士气低落、食品、燃料和寒冷天气装备短缺以及其他问题等受到严重挫败。
+他强调说，“自2020年以来，加拿大凭空创造了4000多亿美元的现金，加拿大的通胀率达了30年来的最高点，房地产价格翻了一番，加拿大元的购买力下降了一半。而加密货币可以弥补这种通胀。”
 
-[原文链接](https://www.ctvnews.ca/world/relief-for-kyiv-russia-vows-to-scale-back-near-the-capital-1.5838824)
+加密货币被认为是最自由的经济形式，它不仅仅是新形式的现金。它还涉及到分散对经济决策的控制。波伊利维夫政府将欢迎这种新的、分散的、自下而上的经济，并允许人们从银行家和政治家手中控制自己的资金，让特鲁多政府控制大卡车司机银行账户的悲剧不再重演！
+
+[原文链接](https://thepostmillennial.com/poilievre-says-crypto-should-be-kept-legal-and-let-it-thrive)
 
 编辑/上传 – 大废墙
-素材/采编 – 青青
-翻译 – 晨熹
+素材/采编 – 重生之鹰
+翻译 – 重生之鹰
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
@@ -26,7 +28,7 @@
 - [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
- 
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

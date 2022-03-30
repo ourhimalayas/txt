@@ -2,32 +2,49 @@
 ---
 
 
-## 美国军队高层命令军医对军人疫苗伤害保持沉默
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258445/)
+## 俄军摧毁卢甘斯克一所幼儿园 乌总统在丹控诉俄反人类罪行
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2258545/)
 
-.
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-30-下午10.17.48.png)图片来源：互联网
+俄罗斯入侵者向卢甘斯克（Luhansk）地区 Lysychansk 镇的一所幼儿园开火，并摧毁了幼儿园，泽连斯基在丹麦议会控诉俄军犯下反人类罪，战争最受伤害的永远是平民，特别是妇女、未成年人、儿童、老人。
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-68.jpg)
-美国[西方杂志]新闻网站29日报道，陆军飞行外科医生在佛罗里达地区法院作证时称，来自高层指挥部的命令，不得提及“国防医学流行病学数据库”中疫苗不良事件的问题。
+据乌克兰国家通讯社（Ukrinform）周三（3月30日）报道，俄罗斯入侵者向卢甘斯克地区 Lysychansk 镇的一所幼儿园开火。
 
-在为一名拒绝注射疫苗的海军军官作证时，她说数据库信息很重要也很相关，因为疫苗导致军人的中枢神经系统出现“脱髓鞘”疾病。几位军医作证时称，不断收到疫苗伤害的军人报告，特别来自于最高体能标准的飞行员；国防部的疫苗政策为确保全员接种而拒接军人的宗教豁免，士兵们很沮丧甚至出现自杀事件；打了两剂的军人至少有75%仍然感染病毒，而未接种疫苗的感染率为15%。他们认为疫苗既不安全也无效，鼻腔冲洗和服用伊维菌素可以治疗病毒感染。尽管在法庭上作证军队的疫苗伤害，可能让他们失去一切，但因不愿看到军人们被彻底摧毁而让他们义无反顾。也为法官秉持正确判断而取得的进展欢呼。
+卢甘斯克地区负责人谢尔伊·海戴（Serhiy Haidai）在Facebook上发文说：”今天早上，俄罗斯人炮击了该镇的郊区，现在他们正在向该镇的其他地方开火。同时出现了新的需要扑灭的物体。然后，他们将拆除废墟，寻找人员。其中一个物体是去年翻修过的一所幼儿园。正在澄清有关受害者的信息。“
 
-原文链接：[Military Doctor Testifies in Court: High-Level Command Ordered Her Silence Over Frightening Vaccine Data](https://www.westernjournal.com/military-doctor-testifies-court-high-level-command-ordered-silence-frightening-vaccine-data/?utm_source=Twitter&amp;utm_medium=PostSideSharingButtons&amp;utm_campaign=websitesharingbuttons)
+俄罗斯军队粗暴和残暴的入侵乌克兰给乌平民造成巨大伤害
 
-编辑/上传 – 大废墙
-素材/采编 – 薇文
-翻译 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+乌总统泽连斯基周二（3月29日）在丹麦议会的演讲中揭露俄罗斯军队入侵乌克兰给平民造成巨大伤害，指出石化燃料对地球造成巨大破坏，呼吁欧洲弃俄油气加速绿色清洁能源转型，他相信全球所有负责任的国家团结一起，才能战胜这场灾难。
+
+泽连斯基一开头指出：”仅一个多月，俄军就使用了 1,370 多枚导弹“，他还列举了俄军轰炸平民基础设施，”773 所教育机构——大学、学校、幼儿园——被摧毁。773.想象一下！数十家医院、教堂，甚至是大屠杀遇难者纪念碑都成为目标……。“
+
+**乌克兰东部城市马里乌波尔是受损害最严重的城市，数千人丧生，****90%****的建筑被摧毁。**泽连斯基指出：“马里乌波尔 90% 以上的建筑物被炮击和炸弹完全摧毁”，**俄军封锁造成当地居民被困缺粮缺水缺药品，**他说：“我们都无法向城市运送人道主义物资——它们只是被封锁了。水、食物、药物。一切都被俄罗斯军方封锁”。
+
+据马里乌波尔市长发言人瓦迪姆·博伊琴科（Vadym Boychenko）称，一个月前俄罗斯军队围攻该镇后，该镇已有近 5000 人丧生，其中包括约 210 名儿童。Mariupol 90% 的建筑物遭到破坏，40% 被摧毁，包括医院、学校、幼儿园和工厂。【3】
+
+联合国驻乌克兰人权特派团负责人玛蒂尔达·博格纳（Matilda Bogner）在一次虚拟采访中说：“我们确实认为马里乌波尔可能有数千人死亡，平民伤亡。”该特派团部署了大约 60 名监测员。【3】
+
+泽连斯基控诉俄军罪行：“俄罗斯军队对马里乌波尔所做的是反人类罪行。”
+
+**俄军强奸还抢劫乌克兰妇女、未成年女孩甚至****”****绑架****“****两千多名儿童到俄罗斯**
+
+泽连斯基说：“他们（俄军）用武力将我们的人民驱逐到俄罗斯，强奸妇女、未成年女孩，并进行抢劫”。他们已经把两千多名儿童带到了俄罗斯，我们不知道他们在哪里，我们甚至没有这些儿童的完整名单。他们有家人吗？那么他们将如何找到他们所爱的人呢？“
+
+自俄罗斯入侵乌克兰开始，乌克兰军人阵亡约1300人，而乌克兰平民死亡远超这个数字，战争最受伤害的永远是平民，特别是妇女、未成年人、儿童、老人。
+
+参考链接：
+
+【1】[俄罗斯入侵者炮轰Lysychansk幼儿园](https://www.ukrinform.net/rubric-ato/3443761-russian-invaders-shell-kindergarten-in-luhansk-region.html)
+
+【2】[乌克兰总统泽连斯基在议会的讲话](https://www.president.gov.ua/en/news/promova-prezidenta-ukrayini-volodimira-zelenskogo-u-folketin-73925)
+
+【3】[联合国：上个月马里乌波尔可能有数千名平民丧生](https://www.ukrinform.net/rubric-ato/3443548-un-thousands-of-civilians-may-have-died-in-mariupol-over-past-month.html)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*编辑&发布：长岛开心*
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
