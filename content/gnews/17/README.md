@@ -2,44 +2,45 @@
 ---
 
 
-## 中共国将工人限制在工厂内，以便在关闭期间维持生产
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2256622/)
+## 疫下灾情｜上海封城两日已酿悲剧 医院拒收危疾病人 一老翁失救致死
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256759/)
 
-编译：七龙珠
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/屏幕截图-2022-03-30-101413.jpg)图片来源 : eleconomista.es
+**图/文｜CP**
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城兩日已釀悲劇-醫院拒收危疾病人-一老翁失救致死.jpg)
 
-中共国有些地区的新一轮的更严格的停产有可能再次打击工厂生产，从而再次打击全球供应链。因此，工厂开始创造“环境”，将员工在厂隔离数周，以维持生产。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-自2020年初的新冠病毒席卷武汉市以来，全国最大的一次爆发，使得北京对其已经很有名的“清零政策”战略越来越严厉，并导致深圳和东莞等地区的工厂和技术中心的关闭。自大流行病爆发以来，这种瓶颈的新恶化可能是对世界贸易的最后一击，世界贸易也因乌克兰发生的事情而受到波动。
 
-尽管有严格的限制，广东省南部的一些工厂还是获得了官方许可，只要工人不离开工厂，就可以继续运营，迫使他们在与社会隔离的“环境”中工作。
+上海疫情持续严峻，周一（28日）起以黄浦江为界实行两段式封城，进行全民核酸筛查。昨日（29日）是封城第二日，上海新增本土确诊个案5982宗，再创单日新高。
 
-世界上最大的汽车零部件制造商之一的博世优派就属于这种情况，该公司能够维持其在深圳龙岗区的工厂的生产，因为大约200名工人同意在本月为期一周的停工期间住在工厂的宿舍里。博世优派中国区总经理Marco Morea告诉《金融时报》：“他们帮助公司度过这一周的承诺是不可思议的。”
+虽然封城刚刚踏入第三日，但坊间已经有不少悲剧发生。有网民29日在微博发文指，父亲因疫情封控，连续三日未能洗肾，最终导致心肌衰竭而死。他在文中公开个人信息，以证确有此事。
 
-另一家位于广东的制造公司的总经理说，该公司正在确保其在中国其他地方的工厂有足够的住宿条件，以便在关闭期间工人不必离开，他还在囤积大量的原材料和用品。Omicron变体难以控制，而且具有高度传染性，为了保证中国企业的预期，中共国的严厉限制将至少以某种形式持续到明年。
+该网民表示，他的父亲叫沈瑞根，今年77岁，居住在浦东新区北蔡镇（北中路408弄），由于糖尿病、肾衰竭需要接受血透治疗（即俗称“洗肾”），另每日还需高血压药、糖尿病药、胰岛素、肾病药、脑中风药续命，但因为浦东新区疫情封控管理处置不当，导致一个尚能自主的老人在3天内去世。
 
-这种情况使制造商争相在不违反严格限制的情况下维持生产。某制造商试图在通往工厂的高速公路上建立一个新冠测试中心。
+据描述，26日沈老先生准备前往复旦大学附属浦东医院洗肾时，被通知核酸检测呈阳性，故暂时不能洗肾。当晚即被送进医院隔离区，至27日，浦东医院告知不能给阳性病人洗肾，疾控中心又安排老人转去上海君爱康复医院进行隔离，但由于120急救服务已超负荷，老人唯有等待，直至28日上午才被转到君爱医院隔离。隔离期间，没有医护照料与问询，28日晚上，老人仍未轮到洗肾，不久后昏迷，病友通知家属后，老人被送至周浦医院ICU病房，当晚9点52分离世。当值医生透露，沈老先生因长期未洗肾，造成心肌衰竭而死。
 
-在上海，特定的住宅区实行了局部的行动限制，一些工人为了工作得到报酬，被迫睡在工厂的地板上。很多的网民对员工被迫在公司生活的不合格条件表示担忧。
+事件爆光后，今日有不少上海危疾病患和家属纷纷在微博上发起“上海抗疫求助超话”并留下现居地址、电话、身分证号等个人资料，要求当局提供紧急救助。
 
-东莞富强电子公司是一家台湾苹果供应商，他们在工厂周围搭建了帐篷，以安置住在其他地方的工人。在网上分享了该设施的照片后，该公司被投诉，拆除了帐篷。一位选择留在工厂的公司员工说，她没有住在帐篷里，而是睡在工厂的地板上，睡了六天。“我们都睡在地板上，用硬纸板做床垫”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/30lfP0LTgQlY9ps-nRrTmqfX1TLXLM3-YpSP52KUj-c-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/CRiwAI39h_gZb3h4ZF2W0YFZVP9ykfPeITzyiiE88oo-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/k3tE5N_uFDiNucv_PwqWZ16XAEYuZ8A9utLHnrrSx54.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/lj7t6wkuClfU1s8y9_ycltyF3JXQSWBYkEfhMZBH4TE-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MRNwL9i7b2tFo-11NwLYzgGhYqyoGxfubjysu248rLs.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QJwA2Dwk_wWGwVblvz1dzcI9X42LognevzU7NL81OzQ-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QsZXZDgxPe2zS6XehB5Sx9JKcDizTqqXx75qSMe-akg-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TaG9ZKZmsUiBN4UcBxVsQ2Twb18tfmgmlylCFpcpQhY-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YOsO4Pfe4gbtlZSGznqn9c3pu0tN1Nrdcjd0anI3dGo-scaled.jpeg)
 
-北京的“清零”政策将持续多久？“我仍然认为在党代会之后，目前的政策不会有任何重大变化，也许要到2023年才会有变化”，牛津大学中国研究中心助理George Magnus告诉记者。他补充说，“允许制造商之间有一些灵活性可能还不够，因为经济的其他部分，如服务部门，将继续由于现有的限制而受到影响。习近平政府在关闭工厂的过程中给予工厂的回旋余地，并不意味着中国正在废除‘清零’战略，中共国将维持零容忍态度”。
 
-新闻内容：[China confina a trabajadores en las fábricas para mantener la producción durante los nuevos cierres por covid](https://www.eleconomista.es/economia/noticias/11685568/03/22/China-confina-a-trabajadores-en-las-fabricas-para-mantener-la-produccion-durante-los-nuevos-cierres-por-covid.html)
+因疫情封控政策，非封控区医院暂停收治来自封控区的病人，而封控区内医院则闭门停诊，导致浦东等封控区的危疾病人，无法入院治疗，加上目前封控区不断有阳性个案确诊，解封之日遥遥无期，令不少民众哀叹，“除了新冠肺炎是病，其他疾病都不配算病。”
+
+來源｜微博
 
 * * *
 
-审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

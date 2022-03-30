@@ -2,10 +2,10 @@
 ---
 
 
-## 欧盟委员会拒绝俄罗斯以卢布支付天然气费用
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2256854/)
+## 泽连斯基从与俄罗斯的会谈中看到了积极的信号
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2256973/)
 
-03/30/2022 欧盟委员会拒绝俄罗斯以卢布支付天然气费用。
+03/29/2022 泽连斯基从与俄罗斯的会谈中看到了积极的信号。但他表示，在主权和领土完整方面不会有任何妥协。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

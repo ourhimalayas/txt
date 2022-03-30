@@ -2,12 +2,47 @@
 ---
 
 
-## 泽连斯基从与俄罗斯的会谈中看到了积极的信号
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2256973/)
+## 剧终
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2257171/)
 
-03/29/2022 泽连斯基从与俄罗斯的会谈中看到了积极的信号。但他表示，在主权和领土完整方面不会有任何妥协。
+作者： 蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3809.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+拜登总统口出言
+Man in power 不掌权
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/F454F515-33E3-4CB4-B218-02A41A2D7C50.jpeg)
+
+普金听了肝胆寒
+这是要我快下台
+话语未落俄军翻
+乌克兰战场剧情转
+改守为攻游击战
+歼敌旅来又歼团
+收回国土不容缓
+重建家园可期待
+逃离的人儿快回来
+快回来
+快快回到英雄怀
+夫妻团聚共团圆
+失家孩子有人爱
+年老人有养老院
+欣欣向荣建家园
+建我家园年万千
+年万千啊
+年万千
+生生不息乌克兰
+
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/校正/发稿：玫瑰圓
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3818.png)
+
 
  
 
