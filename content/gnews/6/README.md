@@ -2,29 +2,43 @@
 ---
 
 
-## 拉夫罗夫表示，俄中关系处于有史以来最牢固的水平
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2254756/)
+## 有声|教育-人生的影响
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2254786/)
 
-***评论：拉夫罗夫在接受塞尔维亚媒体采访时表示：“我们与中国的关系达到历史最高水平，我们在与印度发展一种特殊特惠伙伴关系…”中共国已经坚决和俄罗斯沆瀣一气，印度也糊里糊涂加入。接下来正如文贵先生所说，“世界的所谓的联合国基本解体，没有五个常任国了，印度，中共国基本上就是出局了，俄罗斯出局了，联合国结束了，国际规则重新打破了”***。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+爱是教育的前提条件，没有爱的教育一切都是空中楼阁，爱更是抚育和安慰，她是一种能力，她不是口头表达而是具体的行为表现。
 
-**据《路透社》，2022年3月28日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a1hxr-ncynl-6.jpg)2022年3月24日，俄罗斯外长拉夫罗夫（Sergei Lavrov）在莫斯科会见国际红十字会主席彼得·毛雷尔（Peter Maurer）。图片来源：俄罗斯外交部/Handout via REUTERS/File Photo
-路透3月28日电—俄罗斯外长拉夫罗夫周一表示，俄罗斯与中共国的关系正处于有史以来最牢固的水平，而此时西方国家正因乌克兰问题，试图通过前所未有的制裁来孤立莫斯科。
+不科学合理的教育是错误位人生的根源，缺乏尊重的教育是叛逆的根源。人生其实没有成功与失败只有唯一，教育中更没有尊贵与低贱只有个性。
 
-北京方面已多次表示反对制裁，坚称将与俄罗斯保持正常的经贸往来，并拒绝谴责莫斯科在乌克兰的行动，但中共政府担心中共国公司触犯制裁规定。
-***文章观点仅代表作者个人，与Gnews平台无关。***
+即便你有再糟糕的原生家庭，教育都可以很好的弥补，因为人有认知功能，教育的核心是（唤醒），唤醒你的人性和个性，而不是灌输某一种观念，如孩子就像一幅天然画卷，教育要做的就是轻轻擦去上面的尘土，自然露出原本色彩而不是去塗改它。教育里比传授知识更重要的就是（有安全感），也是教育的前提条件。
 
-**文章来源**:[https://www.reuters.com/world/russia-china-relations-strongest-level-ever-says-lavrov-2022-03-28/](https://www.reuters.com/world/russia-china-relations-strongest-level-ever-says-lavrov-2022-03-28/)
+举例教育者老師的行为，在不论任何时候都要轻言轻语小心翼翼的使用它，因为老师的一个眼神就可能抹杀一个孩子的一生。在言语的鼓励和关心当中可以培奍身心的正面的种子，而呵斥和过分严厉会造成内心的抗拒，在青春時期的叛逆心态成負面的成長，引响以後他们対人生價值觀的看法，需慎之。
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 –彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+人生的每个时期都有她的特性，教育首先要（尊重）这个规律，满足各个阶段的需求，否则要不就是滞后要不就是拔苗助长，不管哪一种情况都会给人带来空虚感。人生也遵从能量守恒定律，失去的一定会找回来。不科学合理的教育是错误位人生的根源，缺乏尊重的教育是叛逆的根源，成年之后都会回报社会，至于回报的是爱还是恨，就取决于她接受的教育，所以独裁的形成不是天生的而是教育导致，所以我们每一个人都要善待周围的人，让他感觉温暖化解他的不满，带给世界和平。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/download-19.jpg)
+
+
+文字版原文：[教育-人生的影响](https://gnews.org/zh-hans/2235041/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

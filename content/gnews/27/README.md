@@ -2,20 +2,22 @@
 ---
 
 
-## 炮火中的葬礼
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253702/)
+## 泽连斯基：准备寻求乌克兰中立地位但有条件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253704/)
 
-作者：银河系农场—骄子
+作者：香草山教育部-飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在3月27日大直播中，郭先生透露，在乌克兰被救出的中国人深深感概，乌克兰民族拥有真正的对人的尊重。
+3月28日，据多家媒体报道，乌克兰总统泽连斯基日前接受俄罗斯独立记者采访时表示，就乌克兰安全保障、中立地位和无核地位，以及东部顿巴斯地区的问题与俄方商讨。但由于这些问题可能涉及修改乌克兰宪法，对这些问题乌克兰需要举行全民公投，另外还要得到第三方担保。泽连斯基同时指出，俄乌两国达成和平协议的首要条件，是俄罗斯撤军和停火。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-100.jpg)
+根据乌克兰宪法，加入北约和欧盟是该国的战略目标。由于该国目前尚未加入北约或其他安全联盟，因此安全保障问题是其当前的主要问题。
 
-据被救的中国人说，这次认清了在乌克兰和中共国的老百姓的根本不同。在乌克兰被轰炸后死掉的尸体，有专业搜寻人员，其严谨性不会发生中共国。炮弹就在身边，并且轰炸的炮火声就在耳边，他们依然认真挖好坑，埋掉死者，还举办宗教仪式为死者送葬，死者有非常精致的墓碑，姓甚名谁都被一一记录在册。而此事若在中共国，不用说战争年代，即便在太平盛世死在家里，像这样对死者的尊重都不会发生。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-98.jpg)
-即使活着，中国人也不会得到应该拥有的尊重，个个活得不如猪狗。明显的例子，这次乌克兰被困中国人苦苦的求救，共产党却找各种各样的借口不救人，不仅需要荒谬的证明自己就是本人，甚至把求救者的祖宗八辈都查一遍。然而，就在救援刚开始的时候，共产党竟然污蔑新中国联邦要拿人的隐私和讯息，中共的谎言不攻自破。
+另外，泽连斯基还表示，乌克兰不会在去军事化等问题上与俄方进行讨论，因为这些概念“难以理解”。
 
-共产党有多邪恶就越证明新中国联邦有多值得珍惜。
+另据其他渠道的消息，俄乌两国谈判代表团的新一轮谈判将于29日至30日在土耳其伊斯坦布尔举行。
 
-参考链接：[从普京必须离开看习近平的命运](https://gettr.com/post/p124vkgc8a0)
+参考链接：
+[泽连斯基：准备好与俄商讨乌中立问题 但须安全保证及全民公投](https://www.zaobao.com.sg/realtime/world/story20220328-1256778)
+[俄乌谈判代表团将于下周举行新一轮面对面谈判](https://news.cctv.com/2022/03/28/ARTIJ1duo3GBJRLNOlXS10Lk220328.shtml)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
@@ -23,6 +25,8 @@
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

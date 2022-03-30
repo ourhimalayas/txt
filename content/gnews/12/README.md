@@ -2,38 +2,29 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.30A）——两岁小朋友的新冠后遗症
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254694/)
+## 拉夫罗夫表示，俄中关系处于有史以来最牢固的水平
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2254756/)
 
-整理：gardeniahu
-编辑：文泓
+***评论：拉夫罗夫在接受塞尔维亚媒体采访时表示：“我们与中国的关系达到历史最高水平，我们在与印度发展一种特殊特惠伙伴关系…”中共国已经坚决和俄罗斯沆瀣一气，印度也糊里糊涂加入。接下来正如文贵先生所说，“世界的所谓的联合国基本解体，没有五个常任国了，印度，中共国基本上就是出局了，俄罗斯出局了，联合国结束了，国际规则重新打破了”***。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片13-2.png)图片来源：雅典娜设计组
+**据《路透社》，2022年3月28日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a1hxr-ncynl-6.jpg)2022年3月24日，俄罗斯外长拉夫罗夫（Sergei Lavrov）在莫斯科会见国际红十字会主席彼得·毛雷尔（Peter Maurer）。图片来源：俄罗斯外交部/Handout via REUTERS/File Photo
+路透3月28日电—俄罗斯外长拉夫罗夫周一表示，俄罗斯与中共国的关系正处于有史以来最牢固的水平，而此时西方国家正因乌克兰问题，试图通过前所未有的制裁来孤立莫斯科。
 
+北京方面已多次表示反对制裁，坚称将与俄罗斯保持正常的经贸往来，并拒绝谴责莫斯科在乌克兰的行动，但中共政府担心中共国公司触犯制裁规定。
+***文章观点仅代表作者个人，与Gnews平台无关。***
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+**文章来源**:[https://www.reuters.com/world/russia-china-relations-strongest-level-ever-says-lavrov-2022-03-28/](https://www.reuters.com/world/russia-china-relations-strongest-level-ever-says-lavrov-2022-03-28/)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 –彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-博主：Laaanaaa（美国）
-
-先说一下我们家患奥密克戎的情况。大概是元旦后全家感染的，孩子爸爸比较严重，经历了一系列喉咙痛、咳嗽、感冒发烧甚至背痛，休息了两周多才痊愈，我就只有喉咙痒和痛的情况，大概七天就痊愈了，而我们两岁的宝宝其实是最先出现症状的，但是痊愈得最快，就是当天晚上睡觉发了一些低烧，喉咙变声了，两天到第三天就好了。（以下图片来源：博主小红书）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-105.png)
-后来过了两三周，我家小朋友又开始咳嗽，我们还以为是在Daycare（幼托中心）被其他小朋友传染了，还开玩笑说这次咳嗽怎么比得新冠还严重？断断续续一直到最近才缓解，中途用了一些雾化的药也没有很好的效果，直到今天带他去就医才知道，原来这就是所谓的“新冠后遗症”。
-
-儿科医生说，他的诊所好几个小孩都是这个情况，大概是说得过新冠后这段时间肺部比较敏感，遇到一些粉尘或者春天的花粉或者其他的原因总之就是很容易引起长时间咳嗽，但是医生也没有明确这种情况严重或不严重，只是说新冠后很常见，然后开了一些雾化的药和一些清喉利咽止咳化痰之类的糖浆让我们带回来备用。
-
-突然我想起一个朋友说，她的孩子得新冠后一直咳嗽不好，现在想来是一样的情况。
-
-参考链接：[两岁小朋友的新冠后遗症](https://www.xiaohongshu.com/discovery/item/622424f300000000210397b1?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648513328)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
