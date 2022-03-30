@@ -2,22 +2,22 @@
 ---
 
 
-## 普京为结束乌克兰战争的希望蒙上阴影
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2259877/)
+## 美国与加拿大将合作支撑世界市场弹性
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2259946/)
 
-##### 作者：加拿大温哥华扬帆农场 – 自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-77.png)
-加拿大CTV新闻3月30日报道，虽然所有人都希望俄乌战事能够降级，但普京一贯的欺骗和野蛮行径，为俄乌周二在土耳其谈判取得的初步进展蒙上了阴影。
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-71.jpg)
+据加拿大媒体【CTV新闻】3月29日报道，加拿大代表团日前会见了西弗吉尼亚州的民主党参议员和宾夕法尼亚州的共和党参议员，美方表示面对当前和未来的全球动荡，加拿大的企业和市场将帮助恢复北美经济的弹性。
 
-与冷战时期美苏削减核武器协议的著名口号”信任但核实”相反，这次西方对俄的态度的是“不信任和核查”，这是源于对俄军恶性袭击乌克兰平民基础设施的反感，更遑论战事初期，俄连续数周说没有入侵计划，然后就10万大军踏进乌克兰的公然谎言！五角大楼发言人柯比说，这更像是俄的一次战术调整，而不是真正撤军，我们都应该准备好俄对乌其他地区发动猛烈攻击。
+报道称，加拿大代表团还在华盛顿和各方探讨加拿大在俄乌战争期间可以作为能源、食物和矿业的主要替代来源，除了新冠大流行对全球供应链已造成的恶化外，俄乌战争会推高石油和小麦价格，所以加拿大与美国商讨将通过互帮互助以确保北美的市场具有弹性的同时，全力帮助欧洲，并保持供应链的完整性，以便各国公民在面对通货膨胀时不会受到巨大冲击。
 
-但和谈终归为下一步两国总统会面铺平了道路，双方也同意把最难的克里米亚问题推后15年解决。俄军是否真的会从基辅和切尔尼科夫撤退？！乌克兰总统泽连斯基周二警告说，觉不能相信一个寻求他的祖国被消灭的国家的言论！
+据悉，加拿大在短期内可将数十万桶石油运往美国进行精炼，但由于必须通过铁路运输，所以加拿大从长远来看需要建设更多基础设施，以便足够支撑并推动世界向前发展。
 
-[原文链接](https://www.ctvnews.ca/world/putin-s-actions-so-far-cloud-hopes-for-end-to-ukraine-war-1.5840570)
+原文链接：[Ukraine: Canadian business leaders talk energy, food with U.S. | CTV News](https://www.ctvnews.ca/business/u-s-lawmakers-interested-in-canadian-energy-food-amid-war-in-ukraine-1.5839674)
 
 编辑/上传 – 大废墙
 素材/采编 – 青青
-翻译 – 自由法兰西
+翻译 – 文莱
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 

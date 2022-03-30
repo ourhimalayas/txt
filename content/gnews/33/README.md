@@ -2,30 +2,41 @@
 ---
 
 
-## 俄承诺落空！乌克兰控俄军仍炮击北部城市
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258712/)
+## Facebook广告商可就广告费率提起集体诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2258850/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄罗斯昨天承诺将大幅减少在乌克兰北部的军事行动，但乌北切尔尼戈夫州州长曹斯今天指控，俄军仍持续炮击切尔尼戈夫市。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3857-edited-2.png)图片来源：reuters.com
+3 月 29 日（路透社）——美国法官周二裁定，指控脸书元宇宙平台Meta在其“潜在影响力”工具方面欺骗广告商的诉讼，可以作为集体诉讼进行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220330225048632.jpg)图片来源：美联社
+美国旧金山地区法官詹姆斯·多纳托 (James Donato) 的决定允许自 2014 年 8 月 15 日以来，在 Facebook 及其照片共享应用程序 Instagram 上支付广告费用的数百万个人和企业，作为一个群体提起诉讼。
 
-俄国昨天在土耳其伊斯坦堡与乌克兰举行的面对面会谈中，承诺要减少在切尔尼戈夫市和乌国首都基辅周遭地区的军事活动，但乌克兰和西方强国已经对此表达怀疑。
+该诉讼始于 2018 年，当时，DZ后备队（ DZ Reserve） 和其他广告商指责 Facebook 夸大其广告覆盖面，将潜在观众数量增加多达 400%，并人为地收取高额的广告投放溢价。
 
-曹斯在社群媒体发文写道：切尔尼戈夫整晚都遭受炮击。法新社记者称，今天还可以听到基辅西北郊伊尔平镇传出的频繁爆炸声。
+他们还表示，Facebook 的高级管理人员多年来都知道该公司的“潜在影响力”指标被重复和虚假账户夸大了，但却没有采取任何措施，但却掩盖它。
 
-简评：俄罗斯承诺落空继续炮击乌克兰北部城市，流氓本就言而无信，这下连最后一丝信任的机会也葬送了。不仅仅是失信于乌克兰，更是失信于全世界，既然毫无信用可谈，接下来面临的就是乌军更加顽强的抵抗与世界各国更加猛烈的制裁！
+在指出 Meta 对类别认证的“大错特错”反对意见后，法官多纳托驳回了其关于该类别过于多样化的论点，包括“大型复杂公司”以及个人和小型企业，并且很难计算损害赔偿。
 
-新闻来源：[联合新闻网](https://udn.com/news/story/122663/6204192?from=udn-ch1_breaknews-1-0-news)
+多纳托还表示，考虑到“没有合理的人”会单独起诉 Meta 以追回最多 32 美元的溢价，所以让个别原告作为一个群体起诉是有道理的。
 
-撰稿/发布：一叶知秋
+预计法官将在今年晚些时候考虑 Meta 提出的驳回诉讼请求。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+素材链接：[Facebook advertisers can pursue class action over ad rates](https://www.reuters.com/business/facebook-advertisers-can-pursue-class-action-over-ad-rates-2022-03-29/?utm_source=Sailthru&amp;utm_medi)
+
+* * *
+
+审核：文乐
+校对：小乐
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

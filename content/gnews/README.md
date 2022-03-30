@@ -15,110 +15,110 @@
 
 ---
 
-### [美国与加拿大将合作支撑世界市场弹性](/content/gnews/1/README.md)
+### [Omicron 的“隐形”变体 BA.2 在全球占主导地位，第二剂加强疫苗正在推出](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [普京被军方的顾问所误导](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|俄罗斯最大独立媒体宣布停刊至俄乌战争结束](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [美国与加拿大将合作支撑世界市场弹性](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [文贵爆料 3.30：东、西方将分成两大阵营](/content/gnews/2/README.md)
+### [拜登政府预测加密货币税收将带来100 亿美元的收益](/content/gnews/5/README.md)
+ ` 纽约香草山MOS02`
+
+### [文贵爆料 3.30：东、西方将分成两大阵营](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [疫情失控上海市采取极端封锁措施](/content/gnews/3/README.md)
+### [疫情失控上海市采取极端封锁措施](/content/gnews/7/README.md)
  ` 扬帆枫叶快讯`
 
-### [普京为结束乌克兰战争的希望蒙上阴影](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [欧盟和G7成员国以能源结算制裁普京](/content/gnews/5/README.md)
+### [欧盟和G7成员国以能源结算制裁普京](/content/gnews/8/README.md)
  ` 扬帆枫叶快讯`
 
-### [阿尔伯塔省积极推动数字货币应用](/content/gnews/6/README.md)
+### [阿尔伯塔省积极推动数字货币应用](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大将致力发展新型核能计划](/content/gnews/7/README.md)
+### [加拿大将致力发展新型核能计划](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [克里姆林宫顾问隐瞒普京战争进程的真相](/content/gnews/8/README.md)
- ` Shuizhuyu`
-
-### [渥太华大学将取消疫情限制措施](/content/gnews/9/README.md)
+### [渥太华大学将取消疫情限制措施](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多拉拢新民主党协同施政](/content/gnews/10/README.md)
- ` 扬帆枫叶快讯`
-
-### [坚守家园](/content/gnews/11/README.md)
+### [坚守家园](/content/gnews/12/README.md)
  ` 纽约香草山MOS03`
 
-### [【粤语配音】2022年3月30日： 俄乌战争的最后结局](/content/gnews/12/README.md)
+### [【粤语配音】2022年3月30日： 俄乌战争的最后结局](/content/gnews/13/README.md)
  ` MOS香港部`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/13/README.md)
+### [传播爆料，我被一个德国老太太骂了](/content/gnews/14/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦登上了波兰的杂志](/content/gnews/14/README.md)
+### [新中国联邦登上了波兰的杂志](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [HHS指示推特审查COVID“错误信息”违反了第一修正案（2/2）](/content/gnews/15/README.md)
+### [HHS指示推特审查COVID“错误信息”违反了第一修正案（2/2）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [五月花简报（03/30/2022）](/content/gnews/16/README.md)
+### [五月花简报（03/30/2022）](/content/gnews/18/README.md)
  ` mayflowertranslate`
 
-### [飞机票白菜价](/content/gnews/17/README.md)
+### [飞机票白菜价](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [习近平押赌普京是最危险的鼠目寸光](/content/gnews/18/README.md)
+### [习近平押赌普京是最危险的鼠目寸光](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国防部点名中共为“首要挑战”](/content/gnews/19/README.md)
+### [美国防部点名中共为“首要挑战”](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [德国将起诉使用“Z”字符支持俄罗斯的民众](/content/gnews/20/README.md)
+### [德国将起诉使用“Z”字符支持俄罗斯的民众](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [有声新闻-新西兰财经G乐部2022年3月29日:财经新闻整理](/content/gnews/21/README.md)
+### [有声新闻-新西兰财经G乐部2022年3月29日:财经新闻整理](/content/gnews/23/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [文贵大直播要点&#8211;主讲：如水（2022年3月30日）](/content/gnews/22/README.md)
+### [文贵大直播要点&#8211;主讲：如水（2022年3月30日）](/content/gnews/24/README.md)
  ` 波士顿五月花农场`
 
-### [超市短缺令美消费者品牌忠诚度下降](/content/gnews/23/README.md)
+### [超市短缺令美消费者品牌忠诚度下降](/content/gnews/25/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【G时新闻】FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针](/content/gnews/24/README.md)
+### [【G时新闻】FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针](/content/gnews/26/README.md)
  ` G-时新闻`
 
-### [马里乌波尔已成废墟，基辅周围俄罗斯部队调动不是撤军](/content/gnews/25/README.md)
+### [马里乌波尔已成废墟，基辅周围俄罗斯部队调动不是撤军](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [去年永久离开加拿大的人数创下50年来新高](/content/gnews/26/README.md)
+### [去年永久离开加拿大的人数创下50年来新高](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月30日早](/content/gnews/27/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月30日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [【转】截至3.30 俄乌战事汇总](/content/gnews/28/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2020财年日本的出国留学生因疫情剧减98%](/content/gnews/29/README.md)
+### [2020财年日本的出国留学生因疫情剧减98%](/content/gnews/30/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [日本将加强加密货币交易监管](/content/gnews/30/README.md)
+### [日本将加强加密货币交易监管](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年3月30日:财经新闻整理](/content/gnews/31/README.md)
+### [新西兰财经G乐部2022年3月30日:财经新闻整理](/content/gnews/32/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [Facebook广告商可就广告费率提起集体诉讼](/content/gnews/32/README.md)
+### [Facebook广告商可就广告费率提起集体诉讼](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄承诺落空！乌克兰控俄军仍炮击北部城市](/content/gnews/33/README.md)
+### [俄承诺落空！乌克兰控俄军仍炮击北部城市](/content/gnews/34/README.md)
  ` 蓝莲花农场`
 
-### [阿尔伯塔省积极推动数字货币应用](/content/gnews/34/README.md)
+### [阿尔伯塔省积极推动数字货币应用](/content/gnews/35/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [加密货币应该“保持合法并让其繁荣”](/content/gnews/35/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
 ### [俄假撤军！乌总参谋部揭诡计：目的是要误导乌军](/content/gnews/36/README.md)
  ` 蓝莲花农场`
