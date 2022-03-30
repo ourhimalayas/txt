@@ -2,95 +2,34 @@
 ---
 
 
-## Covid-19疫情爆发，来自中共国的资金“空前”流动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2257796/)
+## 中共打击民间利用风水预测股市涨跌
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2257816/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-随着全球动荡对世界第二大经济体的冲击，有一股“前所未有的”资金流出中共国。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/EVWIWZHA4FJXVP2RKG5TT72DDY.jpg)
+日前，中共证监会打击使用风水术数预测股市涨跌走势的行为。
 
-中共国正面临着近两年来最严重的Covid疫情，上海的2600万居民正准备迎接一场残酷的新封锁。
+中共证监会表示通过应用天干地支和五行风水预测股市的行为是非法的。此前网路流传的《仁者无敌-2022中国股市预测》、《天干地支在择时中的应用初探》等报告提供者被证监会处罚，撤职降级，并扣发年终奖金。中共证监会认为各证券公司应该加强员工管控，对内部员工发布的投资讯息应该进行严格审查，证券分析师发布报告应以中共集权擀面杖子电脑操控的市场数据为主。
 
-这座城市–全国最重要的经济城市之一–已成为最新疫情的原点，当局分两个为期四天的阶段封锁市民，疯狂地试图进行大规模测试并减缓病毒的传播。
+此前总部位于香港的某证券经纪公司发布的玩笑风水投资指南，预测中共股市的表现，在投资者中很受欢迎。
 
-在封锁期间，公民将被阻止离开他们的家，公共和私人交通工具都被禁止，工作场所也被关闭。
+reference：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3833.png)图片来源：https://www.news.com
+[China’s regulator cracks down on using feng shui to predict stock market trend](https://www.reuters.com/world/china/chinas-regulator-cracks-down-using-feng-shui-predict-stock-market-trend-2022-03-30/?taid=62442b4d6d68c200016433bd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-3月26日，医务人员在上海静安区的一条街道上工作。图片。Hector Retamal/AFP
-
-这一孤注一掷的举动是由于最新的病毒群有可能破坏中共国的Covid零战略，即使在世界大部分地区向大流行病过渡的时候，中共国也一直在积极地推行这一战略。
-
-但是这些可怕的措施带来了巨大的代价，中共国的经济因此而陷入停滞。
-
-据彭博社报道，中共国经济的几乎80%“在某种程度上受到了影响”，这场疫情“造成了商品供应的紧张，并对需求构成越来越大的威胁”。
-
-该出版物解释说，公共卫生措施减少了旅行，这反过来又影响了燃料消费，扰乱了供应链。
-
-它还造成了计划采购的延迟，并影响了生产，员工被命令留在家里。
-
-根据国际金融研究所发布的一份报告，中共国的人民币也面临着压力。
-
-在3月的前21天，有590亿元人民币通过与香港的北向股票连接计划从中共国净流出。
-
-据《南华早报》报道，胆小的投资者正在大规模地从中共国撤走资金。
-
-一项分析表明，外国投资者在四周内可能已经卖出了价值约157亿美元的股票。
-
-“从中共国流出的资金规模和强度都是前所未有的，尤其是我们没有看到其他新兴市场有类似的资金流出”，IIF报告称。
-
-报告警告说，在俄罗斯入侵乌克兰之后，外国投资者可能会以一种新的眼光看待中共国。人们担心台湾面临着来自中共国大陆的军事侵略的风险。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3834.png)
-
-由于中共国的金属行业受到冲击，铁矿石的成本急剧上升。图片。Evan Collis
-
-到目前为止，对石油的需求急剧下降，金属行业被打入冷宫–煤炭行业的中断使进口和出口面临风险。
-
-而上海只是冰山一角，其他一连串经济上至关重要的城市本月也被关闭或面临严格的Covid限制，包括深圳、整个吉林省和主要的炼钢城市唐山。
-
-**溢出效应**
-
-灾难的升级代表了世界第二大经济体数十亿美元的损失，本月早些时候花旗银行分析师的一份报告–就在疫情开始影响国内时–表明对中共国GDP的影响可能是巨大的。
-
-“这次的经济损失可能是真实的”，该分析师说。
-
-“联合考虑到对其他地区的溢出效应，我们认为这一轮的封锁和收紧的检疫措施可能会在第一季度扣除约0.5-0.8个百分点的GDP增长，假设没有政策反应。”
-
-CNBC报道，分析师还声称中共国第一季度国内生产总值可能被削减至少半个百分点，受影响最大的地区占国内生产总值的16.7%。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3835.png)
-
-中共国正面临着两年来最严重的Covid危机。图片。Hector Retamal/AFP
-
-该媒体还引用了美国银行证券公司中共国股票策略团队最近的一份报告，该报告在3月早些时候指出，如果中共国不能管理好当前的浪潮，“可能会在短期内对中共国的GDP增长造成重大的下行影响，并对全球供应链造成破坏，在中期内可能会加速脱钩和供应链的迁移”。
-
-**放弃“Covid零”计划**
-
-但是，尽管中共国仍然致力于其消除Covid的战略–目前–越来越多的邻国正在放弃该计划，转而学习与该病毒共存。
-
-例如，香港已成为最新放弃该政策的地区之一，此前该地区领导人林郑月娥说，她怀疑人们对封锁内外的生活的“容忍度（正在）消退”，人们希望恢复“正常生活”。
-
-从4月1日起，完全接种疫苗且Covid阴性的香港居民将再次能够从澳大利亚和其他一些以前被认为是高风险的国家乘机入境。
-
-许多人认为，香港对这一重大转变的处理可能为中共国开辟一条道路，最终看到中共国对外部世界更广泛的开放。
-
-新闻来源：[‘Unprecedented’ flow of money from China as Covid-19 outbreak hits](https://www.news.com.au/finance/economy/world-economy/almost-80-per-cent-of-chinas-economy-impacted-by-worst-covid-outbreak-in-years/news-story/b48015b1b4ba07567025638c93055f14)
+[https://finance.eastmoney.com/a/202203302328404780.html](https://finance.eastmoney.com/a/202203302328404780.html)
 
 * * *
 
-审核：Aries的星
-校对：阿伯塔
-发布：夜来香
+欢迎订阅我们的GNews账号：
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

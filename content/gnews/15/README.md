@@ -2,22 +2,20 @@
 ---
 
 
-## 中共打击民间利用风水预测股市涨跌
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2257816/)
+## 俄罗斯背弃承诺，再次轰炸乌克兰城市
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2257900/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/EVWIWZHA4FJXVP2RKG5TT72DDY.jpg)
-日前，中共证监会打击使用风水术数预测股市涨跌走势的行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7CS2YQK6EJCOZPBHQ7QWPKV2II.jpg)
+3月30日周三，俄罗斯军队再次轰炸了乌克兰北部一个城市。此次轰炸是在前一天俄乌双方和平谈判中俄军同意停止轰炸乌克兰的前提之下。基辅和盟军因为和平协议的条款已经撤出，因此遭受了巨大损失。
 
-中共证监会表示通过应用天干地支和五行风水预测股市的行为是非法的。此前网路流传的《仁者无敌-2022中国股市预测》、《天干地支在择时中的应用初探》等报告提供者被证监会处罚，撤职降级，并扣发年终奖金。中共证监会认为各证券公司应该加强员工管控，对内部员工发布的投资讯息应该进行严格审查，证券分析师发布报告应以中共集权擀面杖子电脑操控的市场数据为主。
+被轰炸的乌克兰北部城市切尔尼戈夫市长表示俄罗斯的轰炸在近24小时之内加剧，目前有10万人被困，食物和医疗用品缺乏，当下物资储备只能坚持一周左右。市长表示俄罗斯总是撒谎，此次轰炸比此前的轰炸要猛烈，炸伤了25名平民。乌克兰总统泽连斯基表示，不要相信莫斯科的承诺。目前俄罗斯正试图包围乌克兰主要部队，基辅附近也集结了大量俄军。另外一些报告还显示，俄罗斯一夜之间三次袭击了乌克兰西部的工业设施。
 
-此前总部位于香港的某证券经纪公司发布的玩笑风水投资指南，预测中共股市的表现，在投资者中很受欢迎。
+美国五角大楼表示俄罗斯承诺的退军其实是重新部署定位，更加要警惕俄罗斯对乌克兰的威胁。英国国防部认为俄罗斯可能会利用大规模炮击和导弹来袭击。
 
 reference：
 
-[China’s regulator cracks down on using feng shui to predict stock market trend](https://www.reuters.com/world/china/chinas-regulator-cracks-down-using-feng-shui-predict-stock-market-trend-2022-03-30/?taid=62442b4d6d68c200016433bd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-[https://finance.eastmoney.com/a/202203302328404780.html](https://finance.eastmoney.com/a/202203302328404780.html)
+[https://www.reuters.com/world/europe/ukraine-isnt-naive-zelenskiy-says-after-russia-pledges-scale-down-attack-kyiv-2022-03-30/](https://www.reuters.com/world/europe/ukraine-isnt-naive-zelenskiy-says-after-russia-pledges-scale-down-attack-kyiv-2022-03-30/)
 
 * * *
 

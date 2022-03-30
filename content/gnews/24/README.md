@@ -2,44 +2,30 @@
 ---
 
 
-## 疫下灾情｜上海封城两日已酿悲剧 医院拒收危疾病人 一老翁失救致死
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256759/)
+## 俄罗斯外长出访中共国 侵略乌克兰后的首次
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2257138/)
 
-**图/文｜CP**
-**发布时间｜30/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城兩日已釀悲劇-醫院拒收危疾病人-一老翁失救致死.jpg)
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+俄罗斯外长拉布罗夫30日访问了中共国东部的安徽省。据塔斯社等报道，拉布罗夫当天与国务委员兼外长王毅举行会谈，就两国继续加强战略伙伴关系达成一致。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3808.png)图片来源：产经新闻
+这是俄罗斯对乌克兰军事入侵后，拉布罗夫首次出访中共国。出访邻国围绕阿富汗局势举行的外长会晤。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+习近平政权在入侵乌克兰方面回避对俄批评，也反对美欧主导的对俄制裁。他实质上表现出更偏向俄罗斯的态度，包括表现出愿意继续与俄罗斯进行经济、贸易合作。不过，考虑到习政权与乌克兰的合作关系，习在立场上会表现得有多亲俄备受关注。
 
+俄罗斯方面，在国际上对入侵乌克兰的批评声一浪高过一浪的情况下，似乎想炫耀与中共国的团结。拉布罗夫还将在访问中共国后继续访问印度。印度也与俄罗斯建立了亲密关系，就入侵乌克兰深入的对俄批评一事有所节制。
 
-上海疫情持续严峻，周一（28日）起以黄浦江为界实行两段式封城，进行全民核酸筛查。昨日（29日）是封城第二日，上海新增本土确诊个案5982宗，再创单日新高。
+围绕阿富汗局势的外长会晤将由俄罗斯、巴基斯坦和伊朗等国参加，直至31日举行。
 
-虽然封城刚刚踏入第三日，但坊间已经有不少悲剧发生。有网民29日在微博发文指，父亲因疫情封控，连续三日未能洗肾，最终导致心肌衰竭而死。他在文中公开个人信息，以证确有此事。
-
-该网民表示，他的父亲叫沈瑞根，今年77岁，居住在浦东新区北蔡镇（北中路408弄），由于糖尿病、肾衰竭需要接受血透治疗（即俗称“洗肾”），另每日还需高血压药、糖尿病药、胰岛素、肾病药、脑中风药续命，但因为浦东新区疫情封控管理处置不当，导致一个尚能自主的老人在3天内去世。
-
-据描述，26日沈老先生准备前往复旦大学附属浦东医院洗肾时，被通知核酸检测呈阳性，故暂时不能洗肾。当晚即被送进医院隔离区，至27日，浦东医院告知不能给阳性病人洗肾，疾控中心又安排老人转去上海君爱康复医院进行隔离，但由于120急救服务已超负荷，老人唯有等待，直至28日上午才被转到君爱医院隔离。隔离期间，没有医护照料与问询，28日晚上，老人仍未轮到洗肾，不久后昏迷，病友通知家属后，老人被送至周浦医院ICU病房，当晚9点52分离世。当值医生透露，沈老先生因长期未洗肾，造成心肌衰竭而死。
-
-事件爆光后，今日有不少上海危疾病患和家属纷纷在微博上发起“上海抗疫求助超话”并留下现居地址、电话、身分证号等个人资料，要求当局提供紧急救助。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/30lfP0LTgQlY9ps-nRrTmqfX1TLXLM3-YpSP52KUj-c-scaled.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/CRiwAI39h_gZb3h4ZF2W0YFZVP9ykfPeITzyiiE88oo-scaled.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/k3tE5N_uFDiNucv_PwqWZ16XAEYuZ8A9utLHnrrSx54.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/lj7t6wkuClfU1s8y9_ycltyF3JXQSWBYkEfhMZBH4TE-scaled.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MRNwL9i7b2tFo-11NwLYzgGhYqyoGxfubjysu248rLs.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QJwA2Dwk_wWGwVblvz1dzcI9X42LognevzU7NL81OzQ-scaled.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QsZXZDgxPe2zS6XehB5Sx9JKcDizTqqXx75qSMe-akg-scaled.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TaG9ZKZmsUiBN4UcBxVsQ2Twb18tfmgmlylCFpcpQhY-scaled.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YOsO4Pfe4gbtlZSGznqn9c3pu0tN1Nrdcjd0anI3dGo-scaled.jpeg)
-
-
-因疫情封控政策，非封控区医院暂停收治来自封控区的病人，而封控区内医院则闭门停诊，导致浦东等封控区的危疾病人，无法入院治疗，加上目前封控区不断有阳性个案确诊，解封之日遥遥无期，令不少民众哀叹，“除了新冠肺炎是病，其他疾病都不配算病。”
-
-來源｜微博
+参考链接：[ロシア外相が訪中　ウクライナ侵攻後初 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20220330-FT6PVWEU7JKA5NLZ6V7ZU3VXJQ/)
 
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+审核：BryanW
+校对：Orpheus
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+
 
  
 

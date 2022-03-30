@@ -2,35 +2,30 @@
 ---
 
 
-## 一份被泄露的文件透露中共有意接管澳大利亚
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2255956/)
+## 国际｜中共拟与所罗门群岛秘签安全协议
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256213/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
+**港台前线** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-3-5.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+外媒30日报导，一份经澳洲政府认证的外泄文件指出，中共将与所罗门群岛签署一项安全协议，外界有认为该协议协助解放军打开太平岛国的大门并协助解放军军舰进入该地区。据文件所述，要求中共派遣解放军进入该地区的理由为“维护社会秩序”，该文件曝光后引起外界对太平洋地区被中共夺取的警惕。
 
+战略与国际研究中心澳洲首任主席查尔斯·埃德尔周五表示：“这对美国来说是个严重问题，也是我们的盟友和伙伴担心的重要原因。”“一个战略对手在所罗门群岛建立基地，将大大削弱澳洲和纽西兰的安全，增加当地腐败的机会，并增加资源剥削的可能。”
 
+该协议目前仅为草案，惟经签署后，所罗门群岛总理马纳西·索加瓦雷将有权请求中共保护所国政府，为解放均提供位于美、澳之间的基地，中共更可以通过协议阻断南太平洋航运。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+所罗门群岛议会反对党领袖马修·威尔表示“协议非常笼统、包罗一切、含糊不清”“问题的关键在于，这一切都是为了总理的政治生存，与所罗门群岛的国家安全毫无关系。”外媒引述该协议称文件允许中共提供“其他任务方面的协助且任何一方不得向第三方透漏合作资讯”，此部分似乎已逾越协议欲维护社会秩序的目的。
 
+此外，该协议允许中共根据自身需要，取得所罗门群岛同意下，安排舰船访问、在所罗门群盗进行后勤补给、中途停留或过度，且所罗门群岛将提供“一切必要设施”。
 
+澳洲为所罗门群岛的主要安全伙伴，该文件曝光后经澳洲政府证实为真实，澳国外交部声明称“我们会对任何破坏我们地区安全的行为感到担忧，面对影响太平洋地区安全的局势，最适合做出反应的应该是太平洋大家庭的成员。”
 
-3月28日美国媒体报导，上周，一份被泄露的文件展示了中共与所罗门群岛之间安全协议的细节，在堪培拉引发了巨大的冲击波，该协议为中共在澳大利亚家门口建立军事基地和永久派驻警察打开了大门。
+所罗门群岛总理马纳西·索加瓦雷 (Manasseh Sogavare )表示“已准备好签署”该协议。
 
-报导称，这一协议敲响了警钟，因为多年来中共也一直以发展为幌子向巴布亚新几内亚和东帝汶注入资金。就在去年，一家由中共支持的公司还提出了一项提案，在昆士兰州和巴布亚新几内亚之间的一个偏远岛屿上建造一座价值390亿美元的城市，让澳大利亚国家安全分析人士感到了紧张。人们担忧中共可能已经深深地与澳大利亚的地区伙伴挂钩。 报导最后推测，中共如此作是看到了澳大利亚在中共病毒大流行期间变得非常专制，和中共的相似程度比他们想象的还要高。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-16.jpg)
-参考链接：
-[Australia Sounds Alarm After Leaked Docs Raise Fear That China Positioning Themselves To Take Over Australia Next](https://en-volve.com/2022/03/28/australia-sounds-alarm-after-leaked-docs-raise-fear-that-china-positioning-themselves-to-take-over-australia-next/)
+來源｜[衛報](https://www.theguardian.com/world/2022/mar/29/solomon-islands-prime-minister-says-foreign-criticism-of-china-security-deal-very-insulting)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-2.png)
+* * *
 
-总编：天滅中共
-编辑/审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
 
  
 
