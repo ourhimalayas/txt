@@ -2,32 +2,29 @@
 ---
 
 
-## 埃隆-马斯克认真考虑建个社交媒体平台
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2256638/)
+## 樱花时政┃美副国务卿安理会讲话指责粮食危机是普京的责任
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256779/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-64.jpg)
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+据NHK新闻3月30日报道，联合国安理会29日就俄罗斯入侵乌克兰的人道主义局势举行会议。在会上美国副国务卿谢尔曼发表讲话，叙述了对全球粮食危机的担忧并敲响了警钟，指责普京挑起了俄乌战争，是普京造成了粮食危机。
 
-（图片来自原文）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-369.png)照片来源：本文链接
 
-3月27日，周六，埃隆-马斯克（Elon Musk），这位亿万富翁在推特上说，特斯拉公司TSLA.O首席执行官埃隆-马斯克正在 “认真考虑 “建立一个新的社交媒体平台。
+谢尔曼指责说，俄罗斯军队把守乌克兰港口不让外国船只靠近，阻止了乌克兰的粮食出口。现在全世界粮食价格已经飞涨，尤其对发展中国家造成了很大的影响。“结束这场人道主义灾难的唯一方法是停战和俄罗斯军队完全撤出乌克兰。”
 
-马斯克在回答一位推特用户提问时说，他会考虑建立一个由开源算法组成的社交媒体平台，这个平台将优先考虑言论自由，而且宣传力度很小。
+与此同时，俄罗斯驻联合国大使内文贾表示，俄罗斯军队已经建立了人道主义走廊，“不会威胁到民用船只的航行自由”，并表示食品价格的上涨是由于西方对俄罗斯的制裁引起的。
 
-马斯克最近一直在批评推特Twitter这个社交媒体平台及其政策。
+[消息来源](https://www.sankei.com/article/20220330-5FGUCWEHDRJPTC4OLNXOIWXLJ4/)：
 
-马斯克说，推特Twitter公司没有遵守言论自由的原则，正在破坏民主。
-
-同时，他在推特上发布了一项民意调查，询问用户是否相信推特坚持言论自由的原则，超过70%的用户投了 “不”。
-
-如果马斯克决定继续创建一个新的平台，他将加入增长中的自由媒体技术公司的行列。这些公司，包括唐纳德-特朗普的**Truth Social**、推特（Twitter）的竞争对手**盖特（****Gettr****）**和**Parler**以及视频网站**Rumble**。
-
-**盖特（****Gettr****）、****Parler****、****Rumble**和**Truth Social**公司将自己定位为言论自由的倡导者，并希望吸引那些认为自己的观点在推特（Twitter）、脸书（Facebook）和谷歌（Google）的油管（YouTube）等平台上受到压制的用户。
-
-新闻来源链接：[https://www.jpost.com/international/article-702422](https://www.jpost.com/international/article-702422)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

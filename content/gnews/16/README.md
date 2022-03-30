@@ -2,44 +2,22 @@
 ---
 
 
-## 樱花FM|中日财经爆:俄乌战争后“前所未见”的资金流出中共国
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2256501/)
+## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/俄乌战争后前所未见的资金流出中共国-1.png)
+**疫情关注组** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
 
-国际金融协会(IIF)周四（3月24日）表示，在俄罗斯入侵乌克兰之后，“前所未见”的资金流出中共国，背后原因可能是投资者担忧中共国支持俄罗斯，同样会被西方制裁。
+FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
 
-在俄罗斯入侵乌克兰后，世界上许多国家对俄实施制裁，导致部分人士无法再投资俄罗斯资产，许多新兴市场及全球投资人还不得不面临手中俄罗斯投资大幅减值的局面。
+疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
 
-国际金融协会首席经济学家Robin Brooks表示，“我们认为资金外流规模相当显著，足以让我们至少去思考俄罗斯入侵乌克兰促使全球市场重新看待中共国市场的可能性。”
+來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
-2021年最后一个季度，中共国以外新兴市场的月度净外资流入几乎已经停滞，这一趋势持续到2022年。
+* * *
 
-但IIF汇总的每日高频数据显示，资金流动自去年12月中旬达到峰值后发生明显变化，特别是从中共国股市流出的资金，在2月底进一步加剧。
-
-IIF表示，投资者撤出中共国的同时其他新兴市场保持不变，这是从来没有过的。
-
-投资者可能担心，如果中共国积极支持俄罗斯入侵，将面临与莫斯科类似的制裁。
-
-北约秘书长周三表示，北约担心中共国可能支持俄罗斯入侵乌克兰，而拜登政府警告北京不要利用制裁带来的商业机会。
-
-文字版原文：
-
-
-| [中日财经爆| 俄乌战争后“前所未见”的资金流出中共国](https://gnews.org/zh-hans/2227197/) |  |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
 
  
 
