@@ -2,34 +2,31 @@
 ---
 
 
-## 美高级官员前往印度讨论俄乌局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2256950/)
+## 俄罗斯外长出访中共国 侵略乌克兰后的首次
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2257138/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/article-5dab1460f141f-2.jpg)
-3月29日周二，拜登政府负责经济的国家安全副顾问Daleep Singh前往新德里与印度政府会面，谈论俄乌战争局势，并建立一个印太经济框架。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+俄罗斯外长拉布罗夫30日访问了中共国东部的安徽省。据塔斯社等报道，拉布罗夫当天与国务委员兼外长王毅举行会谈，就两国继续加强战略伙伴关系达成一致。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3808.png)图片来源：产经新闻
+这是俄罗斯对乌克兰军事入侵后，拉布罗夫首次出访中共国。出访邻国围绕阿富汗局势举行的外长会晤。
 
-印度此前对俄罗斯入侵乌克兰的非正义战争持有保留意见，它并未像四国集团的其他国一样对俄罗斯采取经济制裁，甚至在联合国关于这场战争的多项决议中投了弃权票。印度一直试图平衡俄罗斯与西方的关系，拒绝明确谴责俄罗斯的入侵行径。白宫认为印度对俄罗斯的非正义战争立场不明，拜登总统表示会在整个北约和太平洋地区成立一个统一战线来应对普京的侵略。Daleep Singh此次前往新德里将会就俄罗斯无理战争的后果进行密切讨论，减轻其对全球经济的影响。
+习近平政权在入侵乌克兰方面回避对俄批评，也反对美欧主导的对俄制裁。他实质上表现出更偏向俄罗斯的态度，包括表现出愿意继续与俄罗斯进行经济、贸易合作。不过，考虑到习政权与乌克兰的合作关系，习在立场上会表现得有多亲俄备受关注。
 
-据悉俄罗斯外长拉夫罗夫也即将访问印度。印度是俄罗斯商品的最大买家之一。
+俄罗斯方面，在国际上对入侵乌克兰的批评声一浪高过一浪的情况下，似乎想炫耀与中共国的团结。拉布罗夫还将在访问中共国后继续访问印度。印度也与俄罗斯建立了亲密关系，就入侵乌克兰深入的对俄批评一事有所节制。
 
-撰稿、发布：骄子
+围绕阿富汗局势的外长会晤将由俄罗斯、巴基斯坦和伊朗等国参加，直至31日举行。
 
-reference：
-
-[https://www.reuters.com/world/us-sends-senior-national-security-official-india-discuss-ukraine-2022-03-29/](https://www.reuters.com/world/us-sends-senior-national-security-official-india-discuss-ukraine-2022-03-29/)
+参考链接：[ロシア外相が訪中　ウクライナ侵攻後初 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20220330-FT6PVWEU7JKA5NLZ6V7ZU3VXJQ/)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+审核：BryanW
+校对：Orpheus
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 1:00 PM (UTC)`
+
+
+![img](https://media.gettr.com/group25/origin/2022/03/30/12/f7e8c641-846b-d46c-7343-8682b29d2b18/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gtranslators_1 3/30/2022 8:49 AM (UTC)`
@@ -149,13 +156,6 @@ Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New 
 
 2022.03.29 NFSC health 新中国联邦 | 喜健康系列节目 第3期 之《CCP解剖学》
 ![img](https://media.gettr.com/group46/origin/2022/03/29/20/a67ef18a-9c0f-1adf-e14a-b8c60d81f78c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 7:02 PM (UTC)`
-
-
-![img](https://media.gettr.com/group30/origin/2022/03/29/18/bc822b06-97dd-e5cf-15cf-49653d651cf3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

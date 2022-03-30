@@ -2,34 +2,28 @@
 ---
 
 
-## 中共打击民间利用风水预测股市涨跌
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2257816/)
+## 中共打土豪：慈善家孙大午资产被没收
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257888/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/EVWIWZHA4FJXVP2RKG5TT72DDY.jpg)
-日前，中共证监会打击使用风水术数预测股市涨跌走势的行为。
+撰稿：东京樱花团︱秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/中共打土豪：慈善家孙大午资产被没收.jpg)
+近日，一段“大午集团100平米精装修商品房被评估为7000元”的视频在微信朋友圈传播，几个小时后视频和文章被封杀。视频称：100平米的精装修商品房，被评估为7000元，每平70元；616套房、一百多个车位、6个商铺，总价被评估为400万。还有爆料称，该集团对28家子公司的自评价超过51亿（不含无形资产），但被法院评估为6.8亿，而这6.8亿里面，还包含公司自有现金3.4亿。也就是说，集团自评51亿的资产，被法院的实际评估价仅为3.4亿元。很明显，这就是以法律的名义明抢了！
 
-中共证监会表示通过应用天干地支和五行风水预测股市的行为是非法的。此前网路流传的《仁者无敌-2022中国股市预测》、《天干地支在择时中的应用初探》等报告提供者被证监会处罚，撤职降级，并扣发年终奖金。中共证监会认为各证券公司应该加强员工管控，对内部员工发布的投资讯息应该进行严格审查，证券分析师发布报告应以中共集权擀面杖子电脑操控的市场数据为主。
+2021年7月28日，大午集团董事长孙大午因犯聚众冲击国家机关罪、妨害公务罪、寻衅滋事罪、破坏生产经营罪、强迫交易罪、非法采矿罪、非法占用农用地罪、非法吸收公众存款罪，数罪并罚，被高碑店市人民法院判处有期徒刑十八年，并处罚金人民币三百一十一万元；
 
-此前总部位于香港的某证券经纪公司发布的玩笑风水投资指南，预测中共股市的表现，在投资者中很受欢迎。
+与孙一起获刑的，还有孙萌等19位公司高管，分别被判处1~12年的有期徒刑和缓刑。
 
-reference：
+一个带动当地农民共同富裕、办非营利医院的大善人大慈善家，竟然有了这么一堆罪名，可谓滑天下之大稽！世界上最大的黑帮组织中国共产党，正在进行第二次“打土豪分田地”，企业家多年积累的财富被各种名目没收，被迫害到妻离子散甚至家破人亡，这再次证明了中国人是中共这个伪政权最大的受害者！我们新中国联邦人的使命就是灭掉共产党！
 
-[China’s regulator cracks down on using feng shui to predict stock market trend](https://www.reuters.com/world/china/chinas-regulator-cracks-down-using-feng-shui-predict-stock-market-trend-2022-03-30/?taid=62442b4d6d68c200016433bd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-[https://finance.eastmoney.com/a/202203302328404780.html](https://finance.eastmoney.com/a/202203302328404780.html)
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
