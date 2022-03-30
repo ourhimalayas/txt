@@ -2,29 +2,33 @@
 ---
 
 
-## 俄假撤军！乌总参谋部揭诡计：目的是要误导乌军
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258564/)
+## 加密货币应该“保持合法并让其繁荣”
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258606/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄罗斯29日承诺，将大幅减少对乌克兰首都基辅、东北部切尔尼戈夫的军事行动，撤离部分军力。对此乌克兰武装部队总参谋部呼应美国国防部说法，认为俄军行动可能是诡计，只是部队轮换，目的就是要误导乌克兰军方。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phphrBThm.jpg)图片来源：美联社
-乌克兰武装部队总参谋部稍早在脸书上表示，俄罗斯部队持续从基辅和切尔尼戈夫撤离，将主要军力放在乌克兰东部顿巴斯地区上，但总参谋部强调，这样的「撤军」可能只是个别单位的轮换罢了。
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-69.jpg)
+周一，加拿大保守党议员和领袖候选人波伊瑞.波伊利维夫（Pierre Poilievre）在一份声明中强调说，特鲁多政府正在用“美式印钞，抬高了富人的资产和其他所有人的生活成本，毁掉了加拿大的货币，导致了“纯粹的通货膨胀”，所以加拿大人应该有使用其他货币的自由，比如比特币。他承诺让加拿大成为区块链世界之都，并明确表示他将作为支持比特币的候选人参加竞选。
 
-总参谋部认为，俄军这样的行为，目的就是要误导乌军指挥官，制造没有要包围基辅的假象。
+他强调说，“自2020年以来，加拿大凭空创造了4000多亿美元的现金，加拿大的通胀率达了30年来的最高点，房地产价格翻了一番，加拿大元的购买力下降了一半。而加密货币可以弥补这种通胀。”
 
-简评：俄军假撤兵的诡计已被全世界揭穿，普京只要不停战没有人相信俄军会真正的撤兵，只是拖延下时间准备新一轮的进攻，乌军枕戈待旦岂能这么容易被麻痹。独裁者只有被彻底的消灭，否则不会低下狂妄的头颅，需警惕俄罗斯短暂撤军后使用更大规模的杀伤武器来攻击基辅！
+加密货币被认为是最自由的经济形式，它不仅仅是新形式的现金。它还涉及到分散对经济决策的控制。波伊利维夫政府将欢迎这种新的、分散的、自下而上的经济，并允许人们从银行家和政治家手中控制自己的资金，让特鲁多政府控制大卡车司机银行账户的悲剧不再重演！
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876295](https://news.ltn.com.tw/news/world/breakingnews/3876295)
+[原文链接](https://thepostmillennial.com/poilievre-says-crypto-should-be-kept-legal-and-let-it-thrive)
 
-撰稿/发布：一叶知秋
+编辑/上传 – 大废墙
+素材/采编 – 重生之鹰
+翻译 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
- 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

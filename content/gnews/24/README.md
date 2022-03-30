@@ -2,29 +2,37 @@
 ---
 
 
-## 日本将加强加密货币交易监管
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2258936/)
+## 有声|新中国联邦|喜健康 系列节目3月27日首播
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259108/)
 
-共同社3月30日报道，日本政府消息人士周三表示，日本将加强对加密货币交易所的监管，要求它们检查交易的接受者是否受到俄罗斯入侵乌克兰后实施的金融制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/j.jpg)sputniknews.com
-消息人士称，此举将是设想中的外汇和贸易法修正案的一部分，目的是防止加密货币成为规避此类制裁的漏洞。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据文贵先生盖特讯息，3月27日，新中国联邦“喜健康”系列节目首次上线播出，截至发稿已播出两期。参加首播的三位医生都是对新中国联邦和法治基金乌克兰人道救援前线进行医疗支援的联盟团队成员。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-154.jpg)
+首播中，医生们介绍了前线染疫战友的康复情况和采用的医疗方案。据悉，前线累计约有30位战友感染中共病毒，其中绝大部分已复阴，截至27日还有6位战友正在康复过程中。关于医疗方案，医生们依据爆料革命情报和美国“一线重症联盟”（FLCCC）验证过的治疗方案，并结合现场情况，采用了以伊维菌素、羟氯喹和锌为主药的方案，并曾对伊维菌素的单日用量选用了方案中的最高量即0.6毫克每公斤体重。此外，医疗团队还发现，染病的重要原因之一是战友们忽视了口罩的正确使用。现场有两位战友一直注意全程佩戴口罩，他们都没有感染，可以作为例证。医生们还指出，这一阶段的治疗过程体现出前线和后方的通力合作，包括波兰医生现场提供的具备稳定血压、抑制过敏等用途的处方药。
 
-人们越来越担心，在俄罗斯被排除在SWIFT这关键国际支付网络之外后，加密货币可能被用来淡化对俄罗斯的一些制裁。
+在最近的几期直播中，文贵先生反复叮嘱战友们，随着救援的持续开展，完善防病治病的医疗措施也要成为救援前线的工作重点之一。
 
-根据修订后的法案，政府还计划限制被制裁者将加密货币资产转移到第三方的账户。
 
-首相岸田文雄周一表示，政府将在目前的议会会议上为修正案做准备，直至6月中旬。
 
-根据现行法律，银行有义务检查汇款人是否是制裁对象，而加密货币交易所则不是。
+文字版原文：[新中国联邦|喜健康 系列节目3月27日首播](https://gnews.org/zh-hans/2252710/)
 
-政府本月早些时候要求加密货币交易所加强对加密货币资产的监测，并向金融当局报告任何可能涉及受制裁者的可疑交易。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**快评**：对加密货币交易加强监管已经成为美国、日本等国政府的共识。比特币对加密货币的发展发挥了巨大的作用，但比特币被极少数人掌控着绝大多数的币，并且成为暗网各种违法犯罪行动使用的通货，它必成为各国政府绞杀的对象。加密货币欲争夺法币的市场，那迎来的还有各种较量，但最终数字货币会站上历史的舞台。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接：
-[https://english.kyodonews.net/news/2022/03/3c3560f1a34d-japan-to-toughen-crypto-rules-to-make-sanctions-on-russia-effective.html](https://english.kyodonews.net/news/2022/03/3c3560f1a34d-japan-to-toughen-crypto-rules-to-make-sanctions-on-russia-effective.html)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

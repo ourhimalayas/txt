@@ -2,35 +2,40 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月30日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2259191/)
+## 马里乌波尔已成废墟，基辅周围俄罗斯部队调动不是撤军
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2259239/)
 
-作者：香草山翻译部
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3867.png)图片来源：Maxar Technologies
+据《华盛顿观察家报》3月30日报道，马里乌波尔（Mariupol）市的新卫星图像显示了俄罗斯的空袭和炮击对这个乌克兰海滨城市造成的破坏，城市已变为了废墟。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
+周二，根据航天技术公司（Maxar）发布的图像，马里乌波尔市几乎所有可见的结构似乎都被损坏或摧毁。在一张引人注目的图片中，可以看到一大群人聚集在乌克兰南部城市的一家超市周围。自从俄罗斯总统普京的军队上个月入侵该国以来，该城市的食物、水和电都被切断了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-30.png)
+一位来自马里乌波尔的难民克里斯蒂娜（Kristina）周二告诉一家新闻机构，她描述了由于俄罗斯的攻击，该城市缺乏资源的情况，“我们每天吃一次饭，而在早上或晚上，孩子们会哭着说，‘我想吃东西’。”
 
-文章仅代表作者本人观点，与Gnews无关
+在新的卫星图像中，整个城市街区和公寓楼似乎都被夷为平地。而马里乌波尔市市长周一估计，还有多达16万平民仍在该市。乌克兰总统泽连斯基称，这个曾经有40万人口充满活力的城市已经“成为废墟”。
 
-视频参看：
-[2022.03.30早 《NFSC新闻》](https://gettr.com/streaming/p12nuoa0e4b)
-[2022.03.30早《NFSC新闻访谈》](https://gettr.com/streaming/p12nwdz35b2)
+在另一张卫星图片中，可以看到马里乌波尔一家剧院的遗迹，其周围的几座建筑似乎也遭到了严重破坏。根据报道，有300人在俄罗斯的空袭中在此剧院避难时丧生。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+文章说，俄罗斯军队将重点放在夺取马里乌波尔上，因为它是亚速海沿岸的一个重要港口城市。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+据报道，估计有3000名来自亚速营（Azov Battalion）的乌克兰士兵正在保卫这座城市，对抗大约14000名俄罗斯和车臣军队。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+3月22日，五角大楼表示，有明确的证据表明该城市正在发生战争罪行，俄罗斯军队“故意针对民用基础设施（发动攻击）”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
+周一，英国国防部表示，尽管俄罗斯军队在该城市遭受了重大损失，但预计普京将部署1000多名来自瓦格纳集团的雇佣兵，包括该公司的高级领导人，进入乌克兰南部参与战斗行动。退役的美国空军上校莱顿（Cedric Leighton）同一天告诉CNN，瓦格纳集团的雇佣兵将可能被用来“扫荡马里乌波尔”。
+
+根据总部设在华盛顿的智囊团“战争研究所”（ Institute for the Study of War）的描述，马里乌波尔之战为“乌克兰人顽强抵抗而俄罗斯方面收效甚微的街区争夺战”。
+
+值得注意的是，白宫表示，它认为俄罗斯可能会将部队从基辅地区（俄罗斯官员宣布部队将从那里撤出）重新部署到乌克兰的其他地区。
+
+周二，白宫通讯主任贝丁菲尔德指出：“人们不该被俄罗斯的公告所迷惑。我们认为，任何来自基辅周围的部队调动都是重新部署，而不是撤军，世界应该为（俄罗斯军队）针对乌克兰其他地区的重大攻势做好准备。”
+
+*责编：白夜*
+
+**新闻来源**
+
+[Satellite images show massive devastation from Russian attacks in Mariupol](https://www.washingtonexaminer.com/news/satellite-images-show-massive-devastation-from-russian-attacks-in-mariupol)
 
  
 

@@ -2,35 +2,35 @@
 ---
 
 
-## 2020财年日本的出国留学生因疫情剧减98%
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2259092/)
+## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月29日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259144/)
 
-共同社3月30日报道，周三的一项调查显示，2020财年出国留学的日本学生人数比一年前跳水98.6%，至1487人。因为疫情大流行期间严格的边境管制迫使许多学生取消或推迟了学习计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/s-1.jpg)japantimes.co.jp
-调查还显示，截至2021年5月，在日本的大学、日语学校和其他教育机构就读的外国学生人数比一年前下降了13.3%，为242444人。其中，9.1%或21,945名学生不能来日本，不得不在网上学习。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-日本学生服务组织进行的调查发现，2020财年日本出国留学人数创下历史新低，并记录了自2009财年有可比数据以来的最大降幅。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-29-1.png)
 
-调查涵盖了属于日本大学和其他机构的学生。那些从日本高中毕业后直接进入海外大学的学生和在海外学校上网络课程的学生被排除在外。
 
-至于目的地，韩国排名第一，有265名日本学生，比前一年减少6,970人；其次是美国，有240人，减少17,898人；加拿大有189人，减少9,135人。
 
-数据显示，在日本学习的外国学生中，中国人占了最大的群体，有114,255人，比前一年减少了7,590人，其次是越南，有49,469人，减少了12,764人。
 
-调查显示，日本大学等高等教育的国际学生人数减少了16,906人，至201,877人，而日本语言学校的数字则减少了20,247人，至40,567人。
+文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月29日早](https://gnews.org/zh-hans/2253404/)
 
-“我们预计病毒感染情况将得到改善，国际旅行将恢复。我们将努力为学生提供信息和其他支持。”一位日本教育部官员说。政府还打算进一步放松边境管制措施，以增加国际学生的数量。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**快评**：刚好看到日本媒体今天做了这个调查新闻，疫情大流行不仅让日本出国的留学生剧减，到日本求学的外国留学生也同样减少很多。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-放眼望去，哪个国家的留学生人数不因疫情的各种限令而锐减？能赶上正常上学的莘莘学子大多数又被逼着强打了疫苗。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-各个高等院校不能正常经营，财政出困难是必然。然后这些学生，疫苗灾难要毁掉多少年轻人呢？太可怕了！
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参考链接：
-[https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html](https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
