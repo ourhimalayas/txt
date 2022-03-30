@@ -2,30 +2,45 @@
 ---
 
 
-## 中日财经爆┃中共国疫情爆发迫使600亿元IPO计划暂停
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256416/)
+## 那些仍在购买俄罗斯原油的公司名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256468/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-路透社3月30日报导 ，多家中共国公司已暂停国内上市计划，因为中共国爆发两年来最大规模的中共病毒疫情，阻碍了尽职调查和信息收集。这估计影响到超过600亿元人民币的筹资。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中共国疫情爆发迫使600亿元IPO计划暂停.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Finvestorjunkie.com%2Fwp-content%2Fuploads%2F2017%2F04%2Fipo-investment.jpg&amp;imgrefurl=https%3A%2F%2Finvestorjunkie.com%2Finvesting%2Finvest-ipo%2F&amp;tbnid=9h1-Ooui_7P9NM&amp;vet=12ahUKEwix9NPqm-32AhVHwOAKHcjkDUQQMygBegUIARCtAQ..i&amp;docid=fvw-g1tbHAcGIM&amp;w=775&amp;h=465&amp;q=IPO&amp;ved=2ahUKEwix9NPqm-32AhVHwOAKHcjkDUQQMygBegUIARCtAQ)
-提交给交易所的文件显示，过去一周有15家寻求在上海科创板进行首次公开发行(IPO)的公司暂停了申请，理由几乎都是受到疫情影响，上海市于周一开始封控措施。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-文件还显示，在深圳，本月有67家IPO申请人暂停了上市进程，理由是需要向监管机构更新信息披露，深圳在3月已进行了三轮大规模核酸检测。
+翻译/编辑：小红帽
 
-《证券时报》估计，IPO暂停可能会推迟价值600亿元人民币的筹资。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123477646_gettyimages-1094171426.jpg)图片来源：BBC
 
-消息来源：
-[中国逾90亿美元的IPO计划因疫情爆发而暂停–文件及媒体估计](https://cn.reuters.com/article/china-ipo-delays-0330-wedn-idCNKCS2LR08U?il=0)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+根据Aljazeera 3月29日报道，在莫斯科入侵乌克兰后，包括美国在内的几个西方国家全面禁止俄罗斯能源进口，但依赖俄罗斯石油和天然气的主要欧洲经济体因为欧盟的分歧而避开了这个严厉的措施。
+
+在俄罗斯的侵略引发了几十年来最大的难民危机之后，澳大利亚、英国、加拿大和美国已经禁止进口俄罗斯的石油。
+
+迄今为止，欧盟27个成员国未能就禁运达成一致，德国警告不要采取可能将经济推入衰退的仓促措施，而匈牙利等一些国家则反对任何禁令。
+
+欧盟禁运需要所有27个成员国的一致批准。
+
+许多欧洲买家自愿避开俄罗斯原油，以避免声誉受损或潜在的法律纠纷。
+
+大宗商品交易商Trafigura和Vitol等公司继续根据现有长期合同购买俄罗斯原油。
+
+然而，这两家公司都告诉路透社，自俄罗斯入侵乌克兰以来，他们没有达成任何新的交易。
+
+拒绝谴责俄罗斯行动的印度和中共国也继续购买俄罗斯原油。
+
+以下列出了俄罗斯石油的主要买家：
+
+Neftohim Burgas、MiRo、PCK Schwedt、Pertamina、Leuna、Hellenic Petroleum、ISAB、MOL、Zeeland Refinery、Rotterdam Refinery、Hindustan Petroleum、Indian Oil Corporation、Nayara Energy。
+
+新闻来源：[List of companies still buying Russian crude oil](https://www.aljazeera.com/news/2022/3/29/who-is-still-buying-russian-crude-oil)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

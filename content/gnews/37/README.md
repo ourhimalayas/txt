@@ -2,24 +2,34 @@
 ---
 
 
-## 为强化北约东翼 美国部署6架“咆哮者”战机
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2254896/)
+## 援乌营地默默无闻的献奉者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255761/)
 
-作者：纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月28日美国媒体报导，国防部发言人柯比表示，来自华盛顿州惠德比岛海军航空站第134电子作战中队的6架EA-18G“咆哮者”战机，将飞往德国的施庞达莱姆空军基地进行部署。此举是为了加强北约整体防御，同时进一步加强美国与盟国之间的空中整合能力。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-105.jpg)
-这批“咆哮者”战机可使用干扰系统来迷惑对方雷达，有效压制敌方的防空作为。 除了6架战机之外，美方也将同时派遣240名海军人员前往德国，包括后勤维修人员及飞行员等，预计将执行北约东翼的威慑及防御任务。柯比强调，EA-18G战机不会被用于对付乌克兰境内的俄罗斯军队。 EA-18咆哮者是美国国防巨头波音公司制造的电子战飞机，是 F/A-18 超级大黄蜂的衍生物。该战机长 18.3米，高 4.9米，翼展 13.7米，最高时速 1,960 公里，服务上限为 50,000 英尺。
+**作者、编辑：Candy**
 
-参考链接：[US Navy To Deploy EA-18G Growler Fighters To Germany To Boost NATO’s Posture – Pentagon](https://eurasiantimes.com/us-navy-to-deploy-ea-18g-growler-fighters-to-germany/)
+波兰时间3月29日，从援乌前线记者小小酥战友发来的视频了解到：这位在新中国联邦援乌营地的帐篷里认真整理衣服的“大胡子”外国人，也是独自一人来到这个国际救援中心做志愿者的。最近两周多的时间里，他一直坚守在这里默默地工作着，有时也会帮忙搬燃料。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+他不会讲英文，不能和其他人交流，所以不知道他的名字，来自何方，更不知道他为什么来做义工。他寡言少语，闲时只是静静地坐在那里，中午也和我们前线的战友们一起吃个盒饭。你看他头戴新中国联邦的帽子，身穿新中国联邦的马甲，一看就是我们的战友。
 
-编辑/审核：飞虹
-总编：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+从视频里看得出，“大胡子”先生对待工作非常细致、认真。他检查每件衣服或物品，按照自己的分类标准给衣物归类。面对那么多的衣物，他干得不慌不忙，有条不紊，而且特别熟练地把它们放在相应的箱子里。
+
+我记得我刚来美国的时候，因为语言不通，每次去参加聚会，大多数时间我都是在微笑着看其他人讲话或忙碌。偶尔有人和我讲话，我只能慢慢地说几个简单的句子。其实很多情况下我根本听不懂他们在和我讲什么，最多能捕捉到一、两个单词，但对理解或回答问题基本没用。
+
+也许这位“大胡子”先生和我刚到美国时的情况相同：讲英文与其讲不好，还不如不讲；让别人听得着急，还不知所云，自己也跟着着急；越急越讲不好……算了，干活吧，来到这里就是为了帮忙嘛！多干活肯定没错。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3V4A0363-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3V4A0339-scaled.jpg)
+我们的营地到目前为止已经吸引了无数的独自来此救援的志愿者：德国的钢琴家Davide，爱尔兰的Fergal、加拿大的Liberty……光我知道的名字就有这些，还有那么多不知道名字的。仅从我们的帐篷旁边增加的单人小帐篷就能看出，有越来越多的个人都愿意贡献自己的一份力量。如果“大胡子”先生也能讲英语，他可能也会做更多的事，在其它方面帮更多的忙。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3V4A0345-scaled.jpg)以上图片来源：正义小SARAH
+不用讲那些素不相识的外国志愿者，就拿我们前线的战友来讲，前后已经有70多位战友在营地工作过，但我们知道名字的只是其中的少数。就连每天的视频录制量、发放量、被采用量最多的小小酥战友的名字，可能也只是被我们的“救援前线”群里的战友知道。
+
+正是由于有那么多无名战友的默默付出，才让我们的营地运行得风生水起，样样配得上“唯一”的标准。我们后方的战友们发自内心地感谢你们，为你们感到自豪！愿和我们有着共同的以消灭中共为目标、反对战争、支援乌克兰难民的志愿者们都成战友!
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

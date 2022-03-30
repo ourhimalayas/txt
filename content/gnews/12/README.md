@@ -2,31 +2,38 @@
 ---
 
 
-## 有声｜俄乌战争引起的粮食危机是二战以来最严重的
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256352/)
+## 樱花时政┃美国情报收集存在漏洞 高估俄军能力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256400/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
+3月29日，美国欧洲军司令沃尔特斯表示，美国在情报收集方面存在漏洞，导致在俄入侵乌克兰开始前高估俄罗斯能力，而低估了乌克兰的防御能力。
 
-**2022-03-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-75.png)图片来源 AP Photo/Amr Nabil
-[据美联社联合国3月29日报道，联合国粮食署署长周二警告称，俄乌战争造成了一场灾难之上的灾难，并将产生超出二战以来最严重的全球影响，因为许多曾生产大量小麦的乌克兰农民现在正与俄罗斯人作战。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-372.jpg)[图片来源](https://www.unian.info/war/russian-aggression-against-ukraine-russia-loses-us-500-bln-gudkov-11449108.html#:~:text=War-,Ex%2Dmember%20of%20Russian%20Duma%3A%20Russia%20loses%20US%24500%20billion%20over%20aggression%20against%20Ukraine,-Akulenko%20Olena)
 
-[乌克兰和俄罗斯生产全球30%的小麦、20%的玉米和 75%-80%的葵花籽油。世界粮食计划署50%的粮食都来自乌克兰。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+在俄罗斯发动对乌克兰的入侵时，美国情报机构分析，首都基辅有可能在几天内沦陷。然而，随着入侵进入第二个月，俄罗斯军队在基辅周围停滞不前，他们不但受到维持能力和部队人数问题的困扰，还遇到了乌克兰战士出人意料的强烈抵抗。
 
-[比斯利表示，乌克兰的战争正在将数百万人的世界粮仓变成杂草，像埃及这样的国家通常会从乌克兰获得85%的粮食，而黎巴嫩则在 2020年获得了81%的粮食，在饱受战争蹂躏的也门，那里 800 万人的食物分配刚刚减少了50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+沃尔特斯在参议院军事委员会作证时，被共和党参议员威克问及情报收集是否存在漏洞，导致美国高估了俄罗斯的实力而低估了乌克兰的防御能力。沃尔特斯回答称，有可能。他表示，和过去一样，他将在危机结束后对所有领域和部门进行全面的事后审查，以便他们能够找出自己的弱点并找到改进的方法。
 
-[比斯利还表示，世界粮食计划署目前正在向乌克兰境内约100 万人提供食物，到 6 月底有望达到 600 万人，资金缺口将达到约3亿美元。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+美国情报部门曾准确预测到俄罗斯正计划入侵乌克兰，但却没有分析出俄罗斯军队摇摇欲坠的战斗表现。
 
-[比斯利警告称，关注乌克兰不应导致国际社会忽视非洲，尤其是萨赫勒地区和中东，否则，将有大量移民来到欧洲各地。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+在入侵开始时，当俄罗斯军队逼近基辅时，美国官员提出帮助乌克兰总统泽连斯基撤离该国。但被泽连斯基拒绝，他要求提供武器支援。
 
-[据报道，随着俄罗斯“扼杀乌克兰的出口”，食品价格飞涨，今年迄今为止小麦价格上涨了 20-50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+美国和北大西洋公约组织（NATO）迄今为止一直支持向乌克兰军队提供反坦克导弹和毒刺导弹。尽管对俄军死亡人数的估计差异很大，但熟悉此事的消息人士指出，已有数千人死亡。
 
-秘翻新闻 文洋 编译报道
+信息源：
 
-发布 : 恩典
+[米国の情報収集に穴か、ロシア軍の能力を過大評価　米欧州軍司令官](https://news.yahoo.co.jp/articles/37ecb6e8409767a62a17f4a56a270c80e092a934#:~:text=%E3%83%88%)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

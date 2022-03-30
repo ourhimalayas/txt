@@ -2,26 +2,34 @@
 ---
 
 
-## 中俄勾兑令外资不安 争相逃离中共国
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2254897/)
+## FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2255791/)
 
-作者：纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月28日国外媒体报导，国际金融协会IIF的一项最新研究发现，自俄乌开战兰以来，外资正以前所未有的速度逃离中共国，这是在其他新兴市场从没有出现过的现象。
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16486112191.png)图片来源：波士顿环球
+据《国会山报》3月29日报道，周二，FDA（美国食品和药物管理局）为50岁及以上人群注射中共病毒（COVID-19）疫苗第二针开了绿灯。
 
-IIF的数据显示，中共国股市日平均资金外流一度达到近5亿美元。 来自华尔街的一些数据也证实了IIF的结论，3月，境外投资者已抛售了价值95亿美元的中共国股票。而上一次中共国股市出现集中性资金外逃发生在2020年3月，中共病毒疫情在全球爆发之际，当时境外投资者抛售了价值106亿美元的股票。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-106.jpg)
-报导称，因为严格的资本管制和不可预测的政策风险，以及以政府为主体的金融监管机构的影响等因素，境外投资者已经开始对中共国的股市望而却步。近两年来，中共国政府对上市公司漫无边际的打压又给外国资投资者造成了更严重的影响。自从俄罗斯入侵乌克兰以来，中共国对俄罗斯的暧昧态度更让外国投资者感到了不安。他们普遍担心中共对俄罗斯的支持会招致美国的严厉制裁。
+FDA说，任何50岁及以上的人，无论第一次注射的是哪种疫苗，都可以在第一次中共病毒疫苗加强针后至少4个月获得第二次加强针注射。
 
-参考链接：[中俄友好令外資不安 資金流出中國股債強度前所未有](https://gnews.org/zh-hant/2250089/)
+报道说，FDA对辉瑞（Pfizer）公司和莫德纳（Moderna）公司的疫苗给予了紧急使用授权。辉瑞公司最初要求对65岁及以上的人进行授权，而莫德纳公司要求对所有成年人进行更广泛的授权。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+FDA疫苗部门负责人马克斯（Peter Marks）周二告诉记者称，该机构之所以选择较低的年龄限制，是因为这些人的医疗条件最可能使他们面临严重后果的高风险。
 
-编辑/审核：飞虹
-总编：天滅中共
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+与此同时，为配合FDA的行动，尽管没有提出全面建议，CDC（美国疾病控制和预防中心）主任瓦伦斯基（Rochelle Walensky）更新了该机构的指南。CDC说，任何50岁及以上的人，如果想注射中共病毒疫苗第二针，现在就可以注射了。
+
+但是，值得注意的是，卫生官员们并没有就第二次中共病毒疫苗加强针注射的申请召开任何咨询小组会议。而FDA的一个外部专家小组之前不同意该机构领导人关于广泛扩大疫苗加强针使用的决定。
+
+对此，马克斯辩称，没有必要召集一个小组，因为此决定是一个“相对直接的”基于数据的决定。
+
+报道指出，这一决定存在一些重大问题，包括第二加强针的保护作用将持续多久。此举可能会重新引发一场关于谁可能需要注射加强针以及美国疫苗接种运动的更广泛目标的激烈辩论。争论的焦点是，即使症状比较轻微，那注射疫苗加强针的目标是防止人们因中共病毒而住院，还是防止他们生病。
+
+*责编：白夜*
+
+**新闻来源**
+
+[FDA authorizes second booster shot for people age 50 and up](https://thehill.com/policy/healthcare/600076-fda-authorizes-second-booster-shot-of-coronavirus?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=03.29.22+JB+The+Hill+-+Health+Care&amp;rl=1)
+
+
 
  
 

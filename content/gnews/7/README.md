@@ -2,37 +2,37 @@
 ---
 
 
-## 樱花时政┃美国情报收集存在漏洞 高估俄军能力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256400/)
+## 中日财经爆┃日本央行加大力度捍卫国债收益率上限
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256425/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
-3月29日，美国欧洲军司令沃尔特斯表示，美国在情报收集方面存在漏洞，导致在俄入侵乌克兰开始前高估俄罗斯能力，而低估了乌克兰的防御能力。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-372.jpg)[图片来源](https://www.unian.info/war/russian-aggression-against-ukraine-russia-loses-us-500-bln-gudkov-11449108.html#:~:text=War-,Ex%2Dmember%20of%20Russian%20Duma%3A%20Russia%20loses%20US%24500%20billion%20over%20aggression%20against%20Ukraine,-Akulenko%20Olena)
-
-在俄罗斯发动对乌克兰的入侵时，美国情报机构分析，首都基辅有可能在几天内沦陷。然而，随着入侵进入第二个月，俄罗斯军队在基辅周围停滞不前，他们不但受到维持能力和部队人数问题的困扰，还遇到了乌克兰战士出人意料的强烈抵抗。
-
-沃尔特斯在参议院军事委员会作证时，被共和党参议员威克问及情报收集是否存在漏洞，导致美国高估了俄罗斯的实力而低估了乌克兰的防御能力。沃尔特斯回答称，有可能。他表示，和过去一样，他将在危机结束后对所有领域和部门进行全面的事后审查，以便他们能够找出自己的弱点并找到改进的方法。
-
-美国情报部门曾准确预测到俄罗斯正计划入侵乌克兰，但却没有分析出俄罗斯军队摇摇欲坠的战斗表现。
-
-在入侵开始时，当俄罗斯军队逼近基辅时，美国官员提出帮助乌克兰总统泽连斯基撤离该国。但被泽连斯基拒绝，他要求提供武器支援。
-
-美国和北大西洋公约组织（NATO）迄今为止一直支持向乌克兰军队提供反坦克导弹和毒刺导弹。尽管对俄军死亡人数的估计差异很大，但熟悉此事的消息人士指出，已有数千人死亡。
-
-信息源：
-
-[米国の情報収集に穴か、ロシア軍の能力を過大評価　米欧州軍司令官](https://news.yahoo.co.jp/articles/37ecb6e8409767a62a17f4a56a270c80e092a934#:~:text=%E3%83%88%)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团yuxingcao01
+撰稿：东京樱花团/peterwong
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+日本央行周三（3月30日）加大力度捍卫指标收益率的上限，将买入更多日本国债，其中包括通过非定期的紧急市场操作买入，以对抗全球收益率对日债收益率构成的强劲上行拉动力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本央行加大力度捍卫国债收益率上限.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.sputniknews.cn%2Fimg%2F07e4%2F0a%2F0f%2F1032317692_168%3A0%3A1200%3A649_1920x0_80_0_0_4a1b0a62d355169980702311de756f48.jpg&amp;imgrefurl=https%3A%2F%2Fsputniknews.cn%2F20201015%2F1032320034.html&amp;tbnid=oA4-0roCr6iKdM&amp;vet=12ahUKEwi7rKXNnO32AhVQ0eAKHfcrCNEQMyg5egQIARBO..i&amp;docid=OX3FQw4j1Oon9M&amp;w=1920&amp;h=1207&amp;q=%20%E6%97%A5%E6%9C%AC%E5%9B%BD%E5%80%BA&amp;ved=2ahUKEwi7rKXNnO32AhVQ0eAKHfcrCNEQMyg5egQIARBO)
+此举彰显了日本央行维持货币政策超宽松的决心，甚至不惜付出刺激日圆进一步下跌的代价。日圆下跌可能推高进口成本并损害经济。
+
+日本央行在周三的市场操作中加大购买3至10年期日本国债的力度，总计购买4,500亿日圆(36.6亿美元)。日本央行表示，还将在非定期的紧急操作中购买2,500亿日圆的超长期日本国债。
+
+日本央行在一份声明中称：“日本央行将根据需要，同时考虑到市场状况，增加标售日期的数量和直接购买日本国债的数量。”
+
+此举加强了日本央行对债市的干预，从周一到周四，以0.25%的收益率无限量购买10年期日本国债。
+
+“日本央行正试图强化其对市场传达的信息，表明它坚定致力于让日本保持非常宽松的金融条件，不会接受那些较高的长期债券收益率。”三井住友资产管理首席宏观策略师吉川雅幸说。
+
+“我们需要记住，日本央行的官方目标是10年期国债收益率在0%左右，而不是25个基点。”
+
+消息来源:
+
+[综述：日本央行加大力度捍卫收益率上限 因全球压力持续存在](https://cn.reuters.com/article/cdepth-japan-cen-bonds-yield-0330-idCNKCS2LR0B2?il=0)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
