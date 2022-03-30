@@ -15,83 +15,83 @@
 
 ---
 
-### [有声新闻-新西兰财经G乐部2022年3月29日:财经新闻整理](/content/gnews/1/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
+### [美国防部点名中共为“首要挑战”](/content/gnews/1/README.md)
+ ` NFSC News`
 
-### [美国房产抵押贷款再融资需求暴跌 60%](/content/gnews/2/README.md)
+### [上海疫情防控管理者尸位素餐，导致患者无辜惨死](/content/gnews/2/README.md)
+ ` KarmaLabs`
+
+### [德国将起诉使用“Z”字符支持俄罗斯的民众](/content/gnews/3/README.md)
+ ` NFSC News`
+
+### [德国预警可能进行天然气配给以应对能源供应紧张](/content/gnews/4/README.md)
  ` 加拿大温哥华英里农场`
 
-### [文贵大直播要点&#8211;主讲：如水（2022年3月30日）](/content/gnews/3/README.md)
+### [有声新闻-新西兰财经G乐部2022年3月29日:财经新闻整理](/content/gnews/5/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [美国房产抵押贷款再融资需求暴跌 60%](/content/gnews/6/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [文贵大直播要点&#8211;主讲：如水（2022年3月30日）](/content/gnews/7/README.md)
  ` 波士顿五月花农场`
 
-### [美国向乌克兰运送100架打击型无人机](/content/gnews/4/README.md)
+### [美国向乌克兰运送100架打击型无人机](/content/gnews/8/README.md)
  ` 加拿大温哥华英里农场`
 
-### [超市短缺令美消费者品牌忠诚度下降](/content/gnews/5/README.md)
+### [超市短缺令美消费者品牌忠诚度下降](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [精粮在梅迪卡难民营救援现场报道系列&#8211;对儿童的关怀&amp;苏格兰食物](/content/gnews/6/README.md)
+### [精粮在梅迪卡难民营救援现场报道系列&#8211;对儿童的关怀&amp;苏格兰食物](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|郭先生解析民主国家与独裁国家的不同](/content/gnews/7/README.md)
+### [有声|郭先生解析民主国家与独裁国家的不同](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [【秘翻时评】 俄罗斯数十名外交人员涉情搜 欧盟4国联手驱逐](/content/gnews/8/README.md)
+### [【秘翻时评】 俄罗斯数十名外交人员涉情搜 欧盟4国联手驱逐](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【G时新闻】FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针](/content/gnews/9/README.md)
+### [【G时新闻】FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针](/content/gnews/13/README.md)
  ` G-时新闻`
 
-### [马里乌波尔已成废墟，基辅周围俄罗斯部队调动不是撤军](/content/gnews/10/README.md)
+### [马里乌波尔已成废墟，基辅周围俄罗斯部队调动不是撤军](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [去年永久离开加拿大的人数创下50年来新高](/content/gnews/11/README.md)
+### [去年永久离开加拿大的人数创下50年来新高](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰人已经知道，只有具体的结果才能被信任](/content/gnews/12/README.md)
+### [乌克兰人已经知道，只有具体的结果才能被信任](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年3月30日早](/content/gnews/13/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年3月30日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|NFSC新闻、NFSC新闻访谈简报|2022年3月29日早](/content/gnews/14/README.md)
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年3月29日早](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [【转】截至3.30 俄乌战事汇总](/content/gnews/15/README.md)
+### [【转】截至3.30 俄乌战事汇总](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌大使告诉联合国“俄的非军事化正在顺利进行”](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|新中国联邦|喜健康 系列节目3月27日首播](/content/gnews/17/README.md)
+### [有声|新中国联邦|喜健康 系列节目3月27日首播](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2020财年日本的出国留学生因疫情剧减98%](/content/gnews/18/README.md)
+### [2020财年日本的出国留学生因疫情剧减98%](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [HHS指使推特审查 COVID“错误信息”违反了第一修正案（1/2）](/content/gnews/19/README.md)
+### [HHS指使推特审查 COVID“错误信息”违反了第一修正案（1/2）](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [爆料革命 傳播真相 喚醒民眾 棄共 脫共 滅共](/content/gnews/20/README.md)
- ` 纽约香草山MOS03`
-
-### [日本将加强加密货币交易监管](/content/gnews/21/README.md)
+### [日本将加强加密货币交易监管](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新西兰财经G乐部2022年3月30日:财经新闻整理](/content/gnews/22/README.md)
+### [新西兰财经G乐部2022年3月30日:财经新闻整理](/content/gnews/24/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [Facebook广告商可就广告费率提起集体诉讼](/content/gnews/23/README.md)
+### [Facebook广告商可就广告费率提起集体诉讼](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [俄乌战局最近消息汇总（3月30日）](/content/gnews/24/README.md)
+### [俄乌战局最近消息汇总（3月30日）](/content/gnews/26/README.md)
  ` NFSC News`
-
-### [追踪加密资产在新兴市场经济体中的足迹](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [中共外交部回应中共国是否可作为俄乌和平协议的担保方](/content/gnews/26/README.md)
- ` thedawn`
 
 ### [俄承诺落空！乌克兰控俄军仍炮击北部城市](/content/gnews/27/README.md)
  ` 蓝莲花农场`

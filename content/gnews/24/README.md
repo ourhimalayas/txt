@@ -2,28 +2,69 @@
 ---
 
 
-## 俄乌战局最近消息汇总（3月30日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2258788/)
+## 新西兰财经G乐部2022年3月30日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2258935/)
 
-作者： 文斌
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-截止当地时间3月29日，俄军仍在继续炮击乌克兰切尔尼戈夫市，并损毁了当地和苏梅州的几座桥梁，用以阻碍乌克兰可能实施的反击战。同时，俄罗斯军队正在切尔尼戈夫周围建立防御阵地，并试图将设备集中在安全地点，从而减轻其被乌克兰军队炮火破坏的可能。而同样的情形也出现在米科拉耶夫：俄军一方面在该地区加强防御阵地，一方面炮击毁坏了当地的行政大楼。另外，俄罗斯第20集团军、第一近卫坦克军和波罗的海舰队早先袭击了伊久姆附近的几个乌克兰阵地。但除此之外，俄罗斯在乌克兰各个地区的进攻大多都已失败告终。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-30-上午11.17.34.png)
-据乌克兰方面的消息显示，虽然俄军没有放弃包围和占领基辅的想法，但乌克兰部队近日依然夺回了位于基辅西部郊区的伊尔平，并对该地区进行了清剿。乌军也希望可以利用俄罗斯部队轮换的间隙进一步收复基辅西北部的领土。至于基辅东部，乌克兰部队已经阻止了俄罗斯第90坦克师和第二集团军所属部队对布罗瓦里发起的进攻，短期内，俄军将无法在乌克兰东北部有任何重大进攻行动。另一方面，俄军在波帕斯纳、鲁比日涅、霍利夫卡西部、胡利亚波勒、扎波罗热以及克里维耶里等地区的进攻全部被乌克兰军队击溃，而俄罗斯格鲁乌特种部队也在赫尔松受制于乌克兰部队。此外，虽然俄军在马里乌波尔地区取得了些许进展，但俄军自身的伤亡也极为惨重。有消息称，俄罗斯第一近卫坦克军第47坦克师有大约600具死亡士兵的尸体已经被运回了俄罗斯下诺夫哥罗德地区。这些消息也让乌克兰境内的俄军士气大幅下降：俄罗斯第15摩步旅的军人拒绝参加战斗，同时，第一近卫坦克军的一个营级战术小组已经从乌克兰撤回到了俄罗斯境内。
+采集整理：蚂蚁的城堡
 
-另据乌克兰军情局估计，俄罗斯的征兵工作将于4月1日通过国家战斗后备军计划启动，而该计划也将与该国正常的半年度征兵周期同时进行。据悉，莫斯科当局或将该国已经定罪的罪犯纳入至征兵范畴。然而，知情人士认为，该计划无法在短期内为乌克兰周边的俄军提供足够的兵力。究其原因，俄军可用的、训练有素的士兵数量仍然有限，新征召的士兵大多需要数月的时间才能达到最低作战标准。
+提纲：
 
-更多消息，请持续关注后续报道。
+1、恒大项目权益转让，恒大物业134亿元的存款质押被强制执行
 
-参考链接：[Ukraine Larest news on live map](https://liveuamap.com/)
+2、阿里系、腾讯系互通新进展：淘宝App内测微信支付
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+3、IPO企业主动中止潮，9天71个IPO按下暂停键！
 
-编辑：Irene木木
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+4、俄罗斯提议以卢布回购即将于4月4日到期的20亿美元欧洲债券
+
+5、国家监管机构打击 Voyager Digital 的加密利息产品
+
+6、Axie Infinity 遭受网络攻击损失 6.25 亿美元
+
+正文
+
+**1、恒大项目权益转让，恒大物业134亿元的存款质押被强制执行**
+![img](https://media.gettr.com/group9/origin/2022/03/30/01/6155f679-915b-767a-b04c-aa7b61999d2d/627bbe36cd91f9c1168fcb28d8845424_500x0.png)
+3月30日深陷债务泥沼的中国恒大集团周三早间公告称，附属公司杭州晶立置业将持有的水晶城项目权益转让予受让方浙江省浙建房地产集团和浙江省建工集团，总代价约为36.6亿元人民币，预期本次出售将会录得收益约2.16亿元。恒大周二晚间公告称，对于恒大物业有约134亿元的存款质押被相关银行强制执行一事，已成立独立调查委员会进行调查。
+
+链接: [https://cn.reuters.com/article/evergrande-selling-project-hangzhou-0330-idCNKCS2LR03C?il=0](https://cn.reuters.com/article/evergrande-selling-project-hangzhou-0330-idCNKCS2LR03C?il=0)
+
+**2、阿里系、腾讯系互通新进展：淘宝App内测微信支付**
+![img](https://media.gettr.com/group25/origin/2022/03/30/01/1011b5b6-91dd-379c-0cbf-be67e6aa78a5/8f94fddb4d69c9b2817645ae231cd3ff_500x0.png)
+继阿里旗下饿了么、优酷等应用接入微信支付后，日前，有传闻称淘宝App已对部分用户开放了微信支付内测。《证券日报》记者第一时间联系淘宝及微信支付方面，截至3月29日发稿前，双方均未予回应。不过，有接近两家机构的业内人士向记者证实了该事件。目前部分淘宝用户可以在“找朋友帮忙付”中，选择复制链接到微信找朋友帮付款。
+
+财经G评：互通？是微信在扩大市场阵地，阿里系和马云被中共打入地窖！
+
+链接: [https://finance.sina.com.cn/money/bank/bank\_hydt/2022-03-30/doc-imcwipii1315046.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-03-30/doc-imcwipii1315046.shtml)
+
+**3、IPO企业主动中止潮，9天71个IPO按下暂停键！**
+![img](https://media.gettr.com/group27/origin/2022/03/30/01/e61bab0d-939e-7469-b547-f79b6943bf51/e454c6649be4b629ac06fc7367f7ef34_500x0.png)
+在最近9天时间里，科创板和创业板累计已有71个IPO项目中止审查。要知道2022年以来，上述两大板块总共也只有89个IPO项目变为中止审查状态。截至3月29日22点，沪深两市又有16个IPO项目按下了暂停键，包括1个科创板项目和15个创业板项目。翻阅交易所网站，16家企业均为主动申请中止审查，其中12家是“因发行人及保荐人更新财务资料”，另外4家则表示是“受到新冠疫情影响”。
+
+链接: [https://finance.eastmoney.com/a/202203292325783110.html](https://finance.eastmoney.com/a/202203292325783110.html)
+
+**4、俄罗斯提议以卢布回购即将于4月4日到期的20亿美元欧洲债券**
+![img](https://media.gettr.com/group20/origin/2022/03/30/02/2da09c19-8c43-bd9f-c6d3-974fd9127c23/2ebd0b870e71652fae0619842addbc0e_500x0.png)
+俄罗斯财政部提出以卢布回购下周到期的20亿美元主权欧洲债券，分析人士认为，此举意在帮助本地持有人获得偿付，同时也减轻俄罗斯的硬通货偿款负担。4月4日到期的欧洲债券是俄罗斯今年最大的债务偿付。此前西方国家因俄罗斯入侵乌克兰而加强对俄制裁，并将莫斯科冻结在国际金融体系之外。
+
+链接:[https://cn.reuters.com/article/russia-euro-bonds-buyback-0330-idCNKCS2LR03Z?il=0](https://cn.reuters.com/article/russia-euro-bonds-buyback-0330-idCNKCS2LR03Z?il=0)
+
+**5、国家监管机构打击 Voyager Digital 的加密利息产品**
+![img](https://media.gettr.com/group17/origin/2022/03/30/02/04473fd1-5465-83c3-6355-6fd8dfc5c698/07a286073f861f8f881a30848466ab48_500x0.png)
+美国至少七个州的证券监管机构正在审查加拿大加密投资公司 Voyager Digital 提供的有息加密账户。新泽西州和阿拉巴马州等7个州认为 Voyager Digital 的“赚取计划”账户可能是未注册的证券。阿拉巴马州证券委员会，协调对这家上市公司提起单独的法律诉讼。美国各州为将加密利息账户纳入其监管范围而进行了长达一年的战斗。去年 7 月，BlockFi 是第一家受到他们关注的公司。在支付了 1 亿美元的罚款并承诺将其产品注册为证券后，它最终与州和联邦监管机构达成和解。
+
+链接: [https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/](https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/)
+
+**6、Axie Infinity 遭受网络攻击损失 6.25 亿美元**
+![img](https://media.gettr.com/group41/origin/2022/03/30/02/1c98ff5d-0188-3603-ddd3-c27bbb576154/4c8ce16bfd0bfe33dbe685c6979e543b_500x0.png)
+专注于游戏的 Ronin Network 周二宣布损失超过 6.25 亿美元的 USDC 和以太币（ETH）。根据Ronin Network 官方 Substack发布的一篇博客文章，该漏洞利用影响了 Ronin Network 的 Sky Mavis、流行 Axie Infinity 游戏的发行商和Axie DAO的验证器节点。如在 Etherscan 上所见，攻击者在[两](https://etherscan.io/tx/0xc28fad5e8d5e0ce6a2eaf67b6687be5d58113e16be590824d6cfa1a94467d0b7) [笔交易](https://etherscan.io/tx/0xed2c72ef1a552ddaec6dd1f5cddf0b59a8f37f82bdda5257d9c7c37db7bb9b08)中“使用被黑的私钥伪造”来自 Ronin 桥的假取款。该博客文章将损失定为 173,600 以太币和 2550 万美元的 USDC，目前价值超过 6.25 亿美元。
+
+链接: [https://www.coindesk.com/tech/2022/03/29/axie-infinitys-ronin-network-suffers-625m-exploit/](https://www.coindesk.com/tech/2022/03/29/axie-infinitys-ronin-network-suffers-625m-exploit/)
+
+审核校对：蚂蚁的城堡（一审）、文勇（二审）
+
+上传排版：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

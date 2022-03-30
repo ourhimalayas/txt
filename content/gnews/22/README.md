@@ -2,68 +2,56 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月30日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2258935/)
+## HHS指使推特审查 COVID“错误信息”违反了第一修正案（1/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259022/)
 
-采集整理：蚂蚁的城堡
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+一个民权组织代表三名男子，正在起诉美国外科医生和美国卫生与公众服务部 (HHS)  ，他们指控政府指示推特审查他们传播 COVID为“错误信息”，这违反了第一修正案。
 
-提纲：
+3 月 24 日，新公民自由联盟 , 在俄亥俄州南区地方法院对外科医生维维克·穆尔蒂（ Vivek Murthy）博士和 HHS 部长泽维尔·贝塞拉（ Xavier Becerra ）提出申诉。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3864.png)图片来源：素材链接
+新公民自由联盟是“由著名法律学者菲利普·汉堡 (Philip Hamburger) 创立的无党派、非营利性民权组织，旨在保护宪法自由免受国家行政的侵犯。”
 
-1、恒大项目权益转让，恒大物业134亿元的存款质押被强制执行
+根据诉状，在 2021 年 5 月至 2021 年 12 月期间，推特暂时或永久暂停了三名原告的账户，他们是马克·昌吉兹（Mark Changizi）、丹尼尔·科钦（Daniel Kotzin）和迈克尔·森格（Michael P. Senger）。
 
-2、阿里系、腾讯系互通新进展：淘宝App内测微信支付
+该诉讼称：
 
-3、IPO企业主动中止潮，9天71个IPO按下暂停键！
+“马克·昌吉兹、丹尼尔·科钦和迈克尔·森格（都拥有数万或更多关注者的推特账户。）“他们的推特平台为他们提供了一个社交网络，以及一个表达观点、听取他人观点以及与批评者和粉丝等互动的渠道。”
 
-4、俄罗斯提议以卢布回购即将于4月4日到期的20亿美元欧洲债券
+推特永久暂停了森格的帐户。森格是旧金山的一名律师，他公开批评与 COVID 相关的政策，以及从中共国宣传学的“封锁政策”。
 
-5、国家监管机构打击 Voyager Digital 的加密利息产品
+推特暂停了昌吉兹和科钦的账户。知名理论认知科学家昌吉兹的推特帐户的访问者现在会看到一条警告，上面写着“注意：此人资料可能包含潜在的敏感内容”。
 
-6、Axie Infinity 遭受网络攻击损失 6.25 亿美元
+科钦的推特帐户在撰写本文时仍处于活跃状态，尽管之前已被暂停。作为一名全职父亲，科钦与列维（Levi）的前总裁詹妮弗·赛（ Jennifer Sey）结婚，最近她辞去了职务，声称列维的高管在她公开反对一些与 COVID 相关的政策后欺负了她。
 
-正文
+该诉讼称，这三名男子的账户被暂停，是外科医生和 HHS 宣布的反对“错误信息”政策的结果。
 
-**1、恒大项目权益转让，恒大物业134亿元的存款质押被强制执行**
-![img](https://media.gettr.com/group9/origin/2022/03/30/01/6155f679-915b-767a-b04c-aa7b61999d2d/627bbe36cd91f9c1168fcb28d8845424_500x0.png)
-3月30日深陷债务泥沼的中国恒大集团周三早间公告称，附属公司杭州晶立置业将持有的水晶城项目权益转让予受让方浙江省浙建房地产集团和浙江省建工集团，总代价约为36.6亿元人民币，预期本次出售将会录得收益约2.16亿元。恒大周二晚间公告称，对于恒大物业有约134亿元的存款质押被相关银行强制执行一事，已成立独立调查委员会进行调查。
+该诉讼称：
 
-链接: [https://cn.reuters.com/article/evergrande-selling-project-hangzhou-0330-idCNKCS2LR03C?il=0](https://cn.reuters.com/article/evergrande-selling-project-hangzhou-0330-idCNKCS2LR03C?il=0)
+“令人震惊的是，美国外科医生和卫生与HHS已指示包括推特在内的社交媒体平台审查有关 Covid-19 的所谓“错误信息”。
 
-**2、阿里系、腾讯系互通新进展：淘宝App内测微信支付**
-![img](https://media.gettr.com/group25/origin/2022/03/30/01/1011b5b6-91dd-379c-0cbf-be67e6aa78a5/8f94fddb4d69c9b2817645ae231cd3ff_500x0.png)
-继阿里旗下饿了么、优酷等应用接入微信支付后，日前，有传闻称淘宝App已对部分用户开放了微信支付内测。《证券日报》记者第一时间联系淘宝及微信支付方面，截至3月29日发稿前，双方均未予回应。不过，有接近两家机构的业内人士向记者证实了该事件。目前部分淘宝用户可以在“找朋友帮忙付”中，选择复制链接到微信找朋友帮付款。
+“言论禁令包括后来政府批准为信真实的信息，但当时这与政府关于 Covid-19 的信息相冲突。”
 
-财经G评：互通？是微信在扩大市场阵地，阿里系和马云被中共打入地窖！
+正如《捍卫者》（The Defender）本月早些时候报道的那样，拜登政府和**CDC**主任最近发表的声明与此前有关** COVID **政策的官方声明和公开声明相矛盾。
 
-链接: [https://finance.sina.com.cn/money/bank/bank\_hydt/2022-03-30/doc-imcwipii1315046.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2022-03-30/doc-imcwipii1315046.shtml)
+该诉讼提供了联邦政府“恐吓策略”的时间表，旨在扼杀社交媒体上关于 COVID 的所谓“错误信息”：“3 月 3 日，外科医生要求科技公司交出有关散布此类‘错误信息’的个人的信息，这是一种明显的恐吓策略，HHS 已将其标记为‘信息请求’(RFI)。
 
-**3、IPO企业主动中止潮，9天71个IPO按下暂停键！**
-![img](https://media.gettr.com/group27/origin/2022/03/30/01/e61bab0d-939e-7469-b547-f79b6943bf51/e454c6649be4b629ac06fc7367f7ef34_500x0.png)
-在最近9天时间里，科创板和创业板累计已有71个IPO项目中止审查。要知道2022年以来，上述两大板块总共也只有89个IPO项目变为中止审查状态。截至3月29日22点，沪深两市又有16个IPO项目按下了暂停键，包括1个科创板项目和15个创业板项目。翻阅交易所网站，16家企业均为主动申请中止审查，其中12家是“因发行人及保荐人更新财务资料”，另外4家则表示是“受到新冠疫情影响”。
+“雪上加霜的是，3 月 3 日，外科医生发布了他的 RFI，要求技术平台在 2022 年 5 月 2 日之前，将’关于 Covid-19 错误信息来源的信息’上交政府。
 
-链接: [https://finance.eastmoney.com/a/202203292325783110.html](https://finance.eastmoney.com/a/202203292325783110.html)
+“为了应对政府的压力，推特已经永久封禁了森格先生，并暂时停用了昌吉兹先生和科钦先生。”
 
-**4、俄罗斯提议以卢布回购即将于4月4日到期的20亿美元欧洲债券**
-![img](https://media.gettr.com/group20/origin/2022/03/30/02/2da09c19-8c43-bd9f-c6d3-974fd9127c23/2ebd0b870e71652fae0619842addbc0e_500x0.png)
-俄罗斯财政部提出以卢布回购下周到期的20亿美元主权欧洲债券，分析人士认为，此举意在帮助本地持有人获得偿付，同时也减轻俄罗斯的硬通货偿款负担。4月4日到期的欧洲债券是俄罗斯今年最大的债务偿付。此前西方国家因俄罗斯入侵乌克兰而加强对俄制裁，并将莫斯科冻结在国际金融体系之外。
+未完待续
 
-链接:[https://cn.reuters.com/article/russia-euro-bonds-buyback-0330-idCNKCS2LR03Z?il=0](https://cn.reuters.com/article/russia-euro-bonds-buyback-0330-idCNKCS2LR03Z?il=0)
+素材链接：[https://childrenshealthdefense.org/defender/violated-first-amendment-twitter-censor-covid-misinformation/](https://childrenshealthdefense.org/defender/violated-first-amendment-twitter-censor-covid-misinformation/)
 
-**5、国家监管机构打击 Voyager Digital 的加密利息产品**
-![img](https://media.gettr.com/group17/origin/2022/03/30/02/04473fd1-5465-83c3-6355-6fd8dfc5c698/07a286073f861f8f881a30848466ab48_500x0.png)
-美国至少七个州的证券监管机构正在审查加拿大加密投资公司 Voyager Digital 提供的有息加密账户。新泽西州和阿拉巴马州等7个州认为 Voyager Digital 的“赚取计划”账户可能是未注册的证券。阿拉巴马州证券委员会，协调对这家上市公司提起单独的法律诉讼。美国各州为将加密利息账户纳入其监管范围而进行了长达一年的战斗。去年 7 月，BlockFi 是第一家受到他们关注的公司。在支付了 1 亿美元的罚款并承诺将其产品注册为证券后，它最终与州和联邦监管机构达成和解。
+* * *
 
-链接: [https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/](https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/)
+审核：文乐
+校对：小东
+发布：小东
 
-**6、Axie Infinity 遭受网络攻击损失 6.25 亿美元**
-![img](https://media.gettr.com/group41/origin/2022/03/30/02/1c98ff5d-0188-3603-ddd3-c27bbb576154/4c8ce16bfd0bfe33dbe685c6979e543b_500x0.png)
-专注于游戏的 Ronin Network 周二宣布损失超过 6.25 亿美元的 USDC 和以太币（ETH）。根据Ronin Network 官方 Substack发布的一篇博客文章，该漏洞利用影响了 Ronin Network 的 Sky Mavis、流行 Axie Infinity 游戏的发行商和Axie DAO的验证器节点。如在 Etherscan 上所见，攻击者在[两](https://etherscan.io/tx/0xc28fad5e8d5e0ce6a2eaf67b6687be5d58113e16be590824d6cfa1a94467d0b7) [笔交易](https://etherscan.io/tx/0xed2c72ef1a552ddaec6dd1f5cddf0b59a8f37f82bdda5257d9c7c37db7bb9b08)中“使用被黑的私钥伪造”来自 Ronin 桥的假取款。该博客文章将损失定为 173,600 以太币和 2550 万美元的 USDC，目前价值超过 6.25 亿美元。
-
-链接: [https://www.coindesk.com/tech/2022/03/29/axie-infinitys-ronin-network-suffers-625m-exploit/](https://www.coindesk.com/tech/2022/03/29/axie-infinitys-ronin-network-suffers-625m-exploit/)
-
-审核校对：蚂蚁的城堡（一审）、文勇（二审）
-
-上传排版：文勇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
  
 

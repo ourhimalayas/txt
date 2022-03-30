@@ -2,30 +2,32 @@
 ---
 
 
-## 【秘翻时评】 俄罗斯数十名外交人员涉情搜 欧盟4国联手驱逐
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2259262/)
+## 美国向乌克兰运送100架打击型无人机
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2259337/)
 
-By:**[秘翻时评](https://gettr.com/post/p12ofpk80ed)**
+编译：文宝
 
-**[2022‑03‑30](https://gettr.com/post/p12ofpk80ed)**
+- 
 
-**晚间秘翻新闻：**
+![AeroVironment Switchblade 600 Drone](https://image.cnbcfm.com/api/v1/image/107031227-1647431669569-switchblade600_300dpi_notext_rev.jpg?v=1647431771&amp;w=929&amp;h=523&amp;ffmt=webp)
 
-1.俄罗斯数十名外交人员涉情搜 欧盟4国联手驱逐
-2.新谈判俄罗斯松口将减少轰炸 美方预警俄军将重整反击
-3.俄国知名科技公司收集手机用户资料 上亿台手机恐受影响
 
-**秘翻时评内容：**
+美国官员3月30日证实，美国在本月早些时候总统乔·拜登批准的为乌克兰提供的巨大武器包中包括了 100 架打击型无人机。
 
-1.俄乌战争引起的粮食危机是二战以来最严重的
-2.吉林方舱只隔离不治疗 女子痛苦难忍终自杀
+负责国际安全事务的助理国防部长塞莱斯特·瓦兰德告诉立法者，基辅要求提供被称为“神风敢死队无人机”的武器，以抵御俄罗斯的入侵。瓦兰德在众议院军事委员会作证时说：“我们已承诺在最近的计划中交付 100 套 Switchblade 战术无人机系统。”“我们已经听取了乌克兰人的意见，我们非常重视这一要求，”她说。
 
-Gettr链接：[**https://gettr.com/post/p12ofpk80ed**](https://gettr.com/post/p12ofpk80ed)
+五角大楼发言人约翰·柯比上周告诉记者，这些无人机将很快抵达乌克兰。 他拒绝进一步详述。乌克兰总统泽连斯基向美国立法者提出增加军事装备的要求后，决定为乌克兰配备被称为“弹簧刀”的打击型无人机。
 
-发布 : 恩典
+在乌克兰的战斗中部署弹簧刀可能是这些武器在战斗中最重要的用途，因为目前尚不清楚美军在战场上使用杀手无人机的频率。制造这种武器的美国公司 AeroVironment 拒绝就武器转让发表评论。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+该武器有两种变体，即 Switchblade 300 和 600。目前尚不清楚美国部署到乌克兰的是哪个版本。300 变体旨在打击小型目标。 它可以装在背包里，重量略高于 5 磅，续航里程为 10 英里。600版本的武器旨在摧毁坦克和其他装甲车辆。 它的重量略高于 120 磅，航程超过 40 英里。
+
+原文链接：[https://www.cnbc.com/2022/03/30/us-sends-100-killer-drones-called-switchblades-to-ukraine.html](https://www.cnbc.com/2022/03/30/us-sends-100-killer-drones-called-switchblades-to-ukraine.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-60.png)DISCORD
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

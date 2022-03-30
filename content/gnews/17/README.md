@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|新中国联邦|喜健康 系列节目3月27日首播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259108/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2259191/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据文贵先生盖特讯息，3月27日，新中国联邦“喜健康”系列节目首次上线播出，截至发稿已播出两期。参加首播的三位医生都是对新中国联邦和法治基金乌克兰人道救援前线进行医疗支援的联盟团队成员。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-154.jpg)
-首播中，医生们介绍了前线染疫战友的康复情况和采用的医疗方案。据悉，前线累计约有30位战友感染中共病毒，其中绝大部分已复阴，截至27日还有6位战友正在康复过程中。关于医疗方案，医生们依据爆料革命情报和美国“一线重症联盟”（FLCCC）验证过的治疗方案，并结合现场情况，采用了以伊维菌素、羟氯喹和锌为主药的方案，并曾对伊维菌素的单日用量选用了方案中的最高量即0.6毫克每公斤体重。此外，医疗团队还发现，染病的重要原因之一是战友们忽视了口罩的正确使用。现场有两位战友一直注意全程佩戴口罩，他们都没有感染，可以作为例证。医生们还指出，这一阶段的治疗过程体现出前线和后方的通力合作，包括波兰医生现场提供的具备稳定血压、抑制过敏等用途的处方药。
+作者：香草山翻译部
 
-在最近的几期直播中，文贵先生反复叮嘱战友们，随着救援的持续开展，完善防病治病的医疗措施也要成为救援前线的工作重点之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-30.png)
 
+文章仅代表作者本人观点，与Gnews无关
 
-文字版原文：[新中国联邦|喜健康 系列节目3月27日首播](https://gnews.org/zh-hans/2252710/)
+视频参看：
+[2022.03.30早 《NFSC新闻》](https://gettr.com/streaming/p12nuoa0e4b)
+[2022.03.30早《NFSC新闻访谈》](https://gettr.com/streaming/p12nwdz35b2)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+
 **更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
 
  
 
