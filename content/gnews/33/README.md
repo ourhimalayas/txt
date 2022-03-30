@@ -2,40 +2,29 @@
 ---
 
 
-## Facebook广告商可就广告费率提起集体诉讼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2258850/)
+## 日本将加强加密货币交易监管
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2258936/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3857-edited-2.png)图片来源：reuters.com
-3 月 29 日（路透社）——美国法官周二裁定，指控脸书元宇宙平台Meta在其“潜在影响力”工具方面欺骗广告商的诉讼，可以作为集体诉讼进行。
+共同社3月30日报道，日本政府消息人士周三表示，日本将加强对加密货币交易所的监管，要求它们检查交易的接受者是否受到俄罗斯入侵乌克兰后实施的金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/j.jpg)sputniknews.com
+消息人士称，此举将是设想中的外汇和贸易法修正案的一部分，目的是防止加密货币成为规避此类制裁的漏洞。
 
-美国旧金山地区法官詹姆斯·多纳托 (James Donato) 的决定允许自 2014 年 8 月 15 日以来，在 Facebook 及其照片共享应用程序 Instagram 上支付广告费用的数百万个人和企业，作为一个群体提起诉讼。
+人们越来越担心，在俄罗斯被排除在SWIFT这关键国际支付网络之外后，加密货币可能被用来淡化对俄罗斯的一些制裁。
 
-该诉讼始于 2018 年，当时，DZ后备队（ DZ Reserve） 和其他广告商指责 Facebook 夸大其广告覆盖面，将潜在观众数量增加多达 400%，并人为地收取高额的广告投放溢价。
+根据修订后的法案，政府还计划限制被制裁者将加密货币资产转移到第三方的账户。
 
-他们还表示，Facebook 的高级管理人员多年来都知道该公司的“潜在影响力”指标被重复和虚假账户夸大了，但却没有采取任何措施，但却掩盖它。
+首相岸田文雄周一表示，政府将在目前的议会会议上为修正案做准备，直至6月中旬。
 
-在指出 Meta 对类别认证的“大错特错”反对意见后，法官多纳托驳回了其关于该类别过于多样化的论点，包括“大型复杂公司”以及个人和小型企业，并且很难计算损害赔偿。
+根据现行法律，银行有义务检查汇款人是否是制裁对象，而加密货币交易所则不是。
 
-多纳托还表示，考虑到“没有合理的人”会单独起诉 Meta 以追回最多 32 美元的溢价，所以让个别原告作为一个群体起诉是有道理的。
+政府本月早些时候要求加密货币交易所加强对加密货币资产的监测，并向金融当局报告任何可能涉及受制裁者的可疑交易。
 
-预计法官将在今年晚些时候考虑 Meta 提出的驳回诉讼请求。
+**快评**：对加密货币交易加强监管已经成为美国、日本等国政府的共识。比特币对加密货币的发展发挥了巨大的作用，但比特币被极少数人掌控着绝大多数的币，并且成为暗网各种违法犯罪行动使用的通货，它必成为各国政府绞杀的对象。加密货币欲争夺法币的市场，那迎来的还有各种较量，但最终数字货币会站上历史的舞台。
 
-素材链接：[Facebook advertisers can pursue class action over ad rates](https://www.reuters.com/business/facebook-advertisers-can-pursue-class-action-over-ad-rates-2022-03-29/?utm_source=Sailthru&amp;utm_medi)
+参考链接：
+[https://english.kyodonews.net/news/2022/03/3c3560f1a34d-japan-to-toughen-crypto-rules-to-make-sanctions-on-russia-effective.html](https://english.kyodonews.net/news/2022/03/3c3560f1a34d-japan-to-toughen-crypto-rules-to-make-sanctions-on-russia-effective.html)
 
-* * *
-
-审核：文乐
-校对：小乐
-发布：夜来香
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

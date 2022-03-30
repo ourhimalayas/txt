@@ -2,21 +2,32 @@
 ---
 
 
-## 疫情失控上海市采取极端封锁措施
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2259882/)
+## 美国与加拿大将合作支撑世界市场弹性
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2259946/)
 
-加拿大温哥华扬帆农场    平民正道
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-71.jpg)
+据加拿大媒体【CTV新闻】3月29日报道，加拿大代表团日前会见了西弗吉尼亚州的民主党参议员和宾夕法尼亚州的共和党参议员，美方表示面对当前和未来的全球动荡，加拿大的企业和市场将帮助恢复北美经济的弹性。
 
-据加拿大【CTV新闻】3月28日报道，上海市近期实行了两年来最广泛严格的封锁措施，并试图通过全员病毒检测以应对失控的疫情。同时，中共当局“病毒清零政策”的有效性也因此被各界质疑。
+报道称，加拿大代表团还在华盛顿和各方探讨加拿大在俄乌战争期间可以作为能源、食物和矿业的主要替代来源，除了新冠大流行对全球供应链已造成的恶化外，俄乌战争会推高石油和小麦价格，所以加拿大与美国商讨将通过互帮互助以确保北美的市场具有弹性的同时，全力帮助欧洲，并保持供应链的完整性，以便各国公民在面对通货膨胀时不会受到巨大冲击。
 
-报道称，全市范围内的大规模病毒测试，使得上海大部分城区都处在被隔离的状态。并导致封锁前在各大超市内都出现恐慌性购买人潮。据悉，由于当局无法保障被封锁民众的基本生活条件和物资供给，因此，本次封城锁户严重破坏了该市普通居民的正常生活秩序。
+据悉，加拿大在短期内可将数十万桶石油运往美国进行精炼，但由于必须通过铁路运输，所以加拿大从长远来看需要建设更多基础设施，以便足够支撑并推动世界向前发展。
 
-此外，中共国近年来日渐加剧的经济崩溃危机，不仅使得全球供应链更为脆弱，而且对国际航空货运及旅游业的沉重打击，已导致[国际航空运输协会]被迫将其年度大会从上海迁至了多哈。
+原文链接：[Ukraine: Canadian business leaders talk energy, food with U.S. | CTV News](https://www.ctvnews.ca/business/u-s-lawmakers-interested-in-canadian-energy-food-amid-war-in-ukraine-1.5839674)
 
+编辑/上传 – 大废墙
+素材/采编 – 青青
+翻译 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
-编辑： 平民正道    发布：平民正道
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

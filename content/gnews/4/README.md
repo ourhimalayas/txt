@@ -2,32 +2,27 @@
 ---
 
 
-## 美国与加拿大将合作支撑世界市场弹性
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2259946/)
+## [3月29日】新中国联邦乌克兰救援前线纪实
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2259959/)
 
-##### 作者：加拿大温哥华扬帆农场 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-71.jpg)
-据加拿大媒体【CTV新闻】3月29日报道，加拿大代表团日前会见了西弗吉尼亚州的民主党参议员和宾夕法尼亚州的共和党参议员，美方表示面对当前和未来的全球动荡，加拿大的企业和市场将帮助恢复北美经济的弹性。
+视频制作：多伦多蓝莲花视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+新中国联邦法制基金乌克兰前线救援3月29日梅迪卡跟踪报道，当地时间下午2点半，梅迪卡救援营地来了一辆大卡车，准备把这段时间所有捐赠的衣服全部运送到乌克兰境内。
 
-报道称，加拿大代表团还在华盛顿和各方探讨加拿大在俄乌战争期间可以作为能源、食物和矿业的主要替代来源，除了新冠大流行对全球供应链已造成的恶化外，俄乌战争会推高石油和小麦价格，所以加拿大与美国商讨将通过互帮互助以确保北美的市场具有弹性的同时，全力帮助欧洲，并保持供应链的完整性，以便各国公民在面对通货膨胀时不会受到巨大冲击。
+当天，新中国联邦救援前线人员将新中国联邦帐篷里的所有这些急需的物资，打包整理好全部装上卡车，运送到乌克兰那些需要帮助的难民手上。
 
-据悉，加拿大在短期内可将数十万桶石油运往美国进行精炼，但由于必须通过铁路运输，所以加拿大从长远来看需要建设更多基础设施，以便足够支撑并推动世界向前发展。
+据报道，现在仍然有很多人在地下室躲避，面临着食物短缺、衣服短缺和药品短缺等等的问题，希望这些物资能够帮助到所有受困的平民。
 
-原文链接：[Ukraine: Canadian business leaders talk energy, food with U.S. | CTV News](https://www.ctvnews.ca/business/u-s-lawmakers-interested-in-canadian-energy-food-amid-war-in-ukraine-1.5839674)
+编撰：冰糖葫芦喵
 
-编辑/上传 – 大废墙
-素材/采编 – 青青
-翻译 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+视频来源：新中国联邦乌克兰救援前线战友小小酥提供。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
