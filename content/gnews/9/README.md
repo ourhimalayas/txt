@@ -2,21 +2,23 @@
 ---
 
 
-## 中日财经爆┃中共国疫情爆发迫使600亿元IPO计划暂停
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256416/)
+## 中日财经爆┃日本对俄罗斯追加制裁 禁止对俄出口高档商品
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256442/)
 
 撰稿：东京樱花团/peterwong
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-路透社3月30日报导 ，多家中共国公司已暂停国内上市计划，因为中共国爆发两年来最大规模的中共病毒疫情，阻碍了尽职调查和信息收集。这估计影响到超过600亿元人民币的筹资。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/中共国疫情爆发迫使600亿元IPO计划暂停.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Finvestorjunkie.com%2Fwp-content%2Fuploads%2F2017%2F04%2Fipo-investment.jpg&amp;imgrefurl=https%3A%2F%2Finvestorjunkie.com%2Finvesting%2Finvest-ipo%2F&amp;tbnid=9h1-Ooui_7P9NM&amp;vet=12ahUKEwix9NPqm-32AhVHwOAKHcjkDUQQMygBegUIARCtAQ..i&amp;docid=fvw-g1tbHAcGIM&amp;w=775&amp;h=465&amp;q=IPO&amp;ved=2ahUKEwix9NPqm-32AhVHwOAKHcjkDUQQMygBegUIARCtAQ)
-提交给交易所的文件显示，过去一周有15家寻求在上海科创板进行首次公开发行(IPO)的公司暂停了申请，理由几乎都是受到疫情影响，上海市于周一开始封控措施。
+日本政府29日宣布，作为对入侵乌克兰的俄罗斯实施经济制裁的一部分，4月5日起将禁止对俄出口19种商品，包括豪华汽车和珠宝首饰等，内阁决定修改出口贸易管制条例。
 
-文件还显示，在深圳，本月有67家IPO申请人暂停了上市进程，理由是需要向监管机构更新信息披露，深圳在3月已进行了三轮大规模核酸检测。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本对俄罗斯追加制裁-禁止对俄出口高档商品.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=dmzvFW3RPFbJ_M)
 
-《证券时报》估计，IPO暂停可能会推迟价值600亿元人民币的筹资。
+出口禁令主要以4万日元以上的酒类、化妆品、贵金属手表、潜水装备、10万日元以上的服装、20万日元以上的三角钢琴、600万日元以上的乘用车等共19种商品。
 
-消息来源：
-[中国逾90亿美元的IPO计划因疫情爆发而暂停–文件及媒体估计](https://cn.reuters.com/article/china-ipo-delays-0330-wedn-idCNKCS2LR08U?il=0)
+美国和欧盟（EU）已经禁止向俄罗斯出口奢侈品。日本将跟上步伐，加大对在财政上支持普京总统的新兴企业集团“寡头”的压力。
+
+经济产业大臣萩田29日在内阁会议后的记者会上表示，“我们将继续与包括七国集团（七国）在内的国际社会合作，采取严厉制裁措施。”
+
+消息来源:
+[高級車や宝飾品、ロシアにぜいたく品１９品目禁輸…４月５日から](https://www.yomiuri.co.jp/economy/20220330-OYT1T50084/)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/老黑*
@@ -26,6 +28,8 @@
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+
 
  
 

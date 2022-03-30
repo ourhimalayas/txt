@@ -2,31 +2,22 @@
 ---
 
 
-## 有声｜俄乌战争引起的粮食危机是二战以来最严重的
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256352/)
+## 视频|关注并转发俄乌战争前线的新中国联邦救援公告
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2256367/)
 
-By:**秘翻新闻**
+制作：香草山视频部
 
-**2022-03-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-75.png)图片来源 AP Photo/Amr Nabil
-[据美联社联合国3月29日报道，联合国粮食署署长周二警告称，俄乌战争造成了一场灾难之上的灾难，并将产生超出二战以来最严重的全球影响，因为许多曾生产大量小麦的乌克兰农民现在正与俄罗斯人作战。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-[乌克兰和俄罗斯生产全球30%的小麦、20%的玉米和 75%-80%的葵花籽油。世界粮食计划署50%的粮食都来自乌克兰。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+发稿：qiutian（邱甜）
 
-[比斯利表示，乌克兰的战争正在将数百万人的世界粮仓变成杂草，像埃及这样的国家通常会从乌克兰获得85%的粮食，而黎巴嫩则在 2020年获得了81%的粮食，在饱受战争蹂躏的也门，那里 800 万人的食物分配刚刚减少了50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+**更多资讯，更多关注
+[全球农场联盟委员会GTV官方账号](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
-[比斯利还表示，世界粮食计划署目前正在向乌克兰境内约100 万人提供食物，到 6 月底有望达到 600 万人，资金缺口将达到约3亿美元。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
-
-[比斯利警告称，关注乌克兰不应导致国际社会忽视非洲，尤其是萨赫勒地区和中东，否则，将有大量移民来到欧洲各地。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
-
-[据报道，随着俄罗斯“扼杀乌克兰的出口”，食品价格飞涨，今年迄今为止小麦价格上涨了 20-50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
-
-秘翻新闻 文洋 编译报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

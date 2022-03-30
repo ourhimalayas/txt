@@ -2,34 +2,29 @@
 ---
 
 
-## 中日财经爆┃日本对俄罗斯追加制裁 禁止对俄出口高档商品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256442/)
+## 台湾推迟18岁以下儿童和青少年疫苗接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256488/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/立正道
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-日本政府29日宣布，作为对入侵乌克兰的俄罗斯实施经济制裁的一部分，4月5日起将禁止对俄出口19种商品，包括豪华汽车和珠宝首饰等，内阁决定修改出口贸易管制条例。
+台北中央社，卫生福利部(卫生部)专家会议于24日决定，由中央传染病指挥中心的陈时中指挥官在会议后召开记者招待会上发表：推迟5～11岁儿童接种和12～17岁的青少年的第3次疫苗接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本对俄罗斯追加制裁-禁止对俄出口高档商品.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=dmzvFW3RPFbJ_M)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-211.jpg)图片来源与本文链接
 
-出口禁令主要以4万日元以上的酒类、化妆品、贵金属手表、潜水装备、10万日元以上的服装、20万日元以上的三角钢琴、600万日元以上的乘用车等共19种商品。
+关于5～11岁的接种，列举了资料不足的理由。关于12～17岁的第3次接种安排，现在18岁以上的第3次接种间隔1~2回接种间隔时间为28天，从“第2～3回接种间隔时间为12周”，解释为如果缩短青少年接种间隔的话，心肌炎的风险可能会增加。
 
-美国和欧盟（EU）已经禁止向俄罗斯出口奢侈品。日本将跟上步伐，加大对在财政上支持普京总统的新兴企业集团“寡头”的压力。
+会议同意12～17岁的接种可以使用美国Modena制造。到目前为止，只承认了美国辉瑞德国碧昂科技制造的。也可以在第1次和第2次“交替接种”不同疫苗。根据指挥中心统计，台湾12-17岁完成2次接种的人比例到21日为止是80 .9%。
 
-经济产业大臣萩田29日在内阁会议后的记者会上表示，“我们将继续与包括七国集团（七国）在内的国际社会合作，采取严厉制裁措施。”
+消息来源：[台湾、5～11歳への接種と12～17歳の3回目接種とも見合わせ](https://japan.focustaiwan.tw/politics/202203250003)
 
-消息来源:
-[高級車や宝飾品、ロシアにぜいたく品１９品目禁輸…４月５日から](https://www.yomiuri.co.jp/economy/20220330-OYT1T50084/)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-12.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

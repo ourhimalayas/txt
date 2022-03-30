@@ -2,37 +2,45 @@
 ---
 
 
-## 中日财经爆┃日本央行加大力度捍卫国债收益率上限
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256425/)
+## 那些仍在购买俄罗斯原油的公司名单
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256468/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-日本央行周三（3月30日）加大力度捍卫指标收益率的上限，将买入更多日本国债，其中包括通过非定期的紧急市场操作买入，以对抗全球收益率对日债收益率构成的强劲上行拉动力。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/日本央行加大力度捍卫国债收益率上限.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.sputniknews.cn%2Fimg%2F07e4%2F0a%2F0f%2F1032317692_168%3A0%3A1200%3A649_1920x0_80_0_0_4a1b0a62d355169980702311de756f48.jpg&amp;imgrefurl=https%3A%2F%2Fsputniknews.cn%2F20201015%2F1032320034.html&amp;tbnid=oA4-0roCr6iKdM&amp;vet=12ahUKEwi7rKXNnO32AhVQ0eAKHfcrCNEQMyg5egQIARBO..i&amp;docid=OX3FQw4j1Oon9M&amp;w=1920&amp;h=1207&amp;q=%20%E6%97%A5%E6%9C%AC%E5%9B%BD%E5%80%BA&amp;ved=2ahUKEwi7rKXNnO32AhVQ0eAKHfcrCNEQMyg5egQIARBO)
-此举彰显了日本央行维持货币政策超宽松的决心，甚至不惜付出刺激日圆进一步下跌的代价。日圆下跌可能推高进口成本并损害经济。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-日本央行在周三的市场操作中加大购买3至10年期日本国债的力度，总计购买4,500亿日圆(36.6亿美元)。日本央行表示，还将在非定期的紧急操作中购买2,500亿日圆的超长期日本国债。
+翻译/编辑：小红帽
 
-日本央行在一份声明中称：“日本央行将根据需要，同时考虑到市场状况，增加标售日期的数量和直接购买日本国债的数量。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123477646_gettyimages-1094171426.jpg)图片来源：BBC
 
-此举加强了日本央行对债市的干预，从周一到周四，以0.25%的收益率无限量购买10年期日本国债。
 
-“日本央行正试图强化其对市场传达的信息，表明它坚定致力于让日本保持非常宽松的金融条件，不会接受那些较高的长期债券收益率。”三井住友资产管理首席宏观策略师吉川雅幸说。
+根据Aljazeera 3月29日报道，在莫斯科入侵乌克兰后，包括美国在内的几个西方国家全面禁止俄罗斯能源进口，但依赖俄罗斯石油和天然气的主要欧洲经济体因为欧盟的分歧而避开了这个严厉的措施。
 
-“我们需要记住，日本央行的官方目标是10年期国债收益率在0%左右，而不是25个基点。”
+在俄罗斯的侵略引发了几十年来最大的难民危机之后，澳大利亚、英国、加拿大和美国已经禁止进口俄罗斯的石油。
 
-消息来源:
+迄今为止，欧盟27个成员国未能就禁运达成一致，德国警告不要采取可能将经济推入衰退的仓促措施，而匈牙利等一些国家则反对任何禁令。
 
-[综述：日本央行加大力度捍卫收益率上限 因全球压力持续存在](https://cn.reuters.com/article/cdepth-japan-cen-bonds-yield-0330-idCNKCS2LR0B2?il=0)
+欧盟禁运需要所有27个成员国的一致批准。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+许多欧洲买家自愿避开俄罗斯原油，以避免声誉受损或潜在的法律纠纷。
+
+大宗商品交易商Trafigura和Vitol等公司继续根据现有长期合同购买俄罗斯原油。
+
+然而，这两家公司都告诉路透社，自俄罗斯入侵乌克兰以来，他们没有达成任何新的交易。
+
+拒绝谴责俄罗斯行动的印度和中共国也继续购买俄罗斯原油。
+
+以下列出了俄罗斯石油的主要买家：
+
+Neftohim Burgas、MiRo、PCK Schwedt、Pertamina、Leuna、Hellenic Petroleum、ISAB、MOL、Zeeland Refinery、Rotterdam Refinery、Hindustan Petroleum、Indian Oil Corporation、Nayara Energy。
+
+新闻来源：[List of companies still buying Russian crude oil](https://www.aljazeera.com/news/2022/3/29/who-is-still-buying-russian-crude-oil)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
