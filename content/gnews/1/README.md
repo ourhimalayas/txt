@@ -2,26 +2,22 @@
 ---
 
 
-## 美参议员卢比奥：中共是美国的最大威胁，美国需要动员全社会来对抗中共
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2256566/)
+## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
 
-#### 翻译/撰稿：zzballack
+**疫情关注组** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-21.jpg)图片来源：华盛顿观察家报
-据《大纪元》3月29日报道，美国参议员马可·卢比奥（Marco Rubio）3月29日在美国保守派智库传统基金会(Heritage Foundation)就俄罗斯和中共带来的危险发表演讲时表示，中共是美国和美国人民的最大威胁。
+FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
 
-卢比奥说：“几十年来，中共一直在隐藏他们的真实野心，那就是重塑全球秩序、成为世界上最强大国家。但现在，他们不再隐瞒了。在习近平的统治下，中共正在进行一场破坏国际秩序的运动，通过削弱大国和迫使小国依赖中共国来建立一个对自己更有利的体系。”
+疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
 
-卢比奥表示，冷战后，认为不受约束的自由贸易和全球主义会带来世界和平的想法是美国领导层“最大的地缘政治失误”。“过时的经济利益阻碍了美国打击中共间谍活动的努力，美国大公司的游说企图淡化了禁止进口中共国奴工产品的立法。如果我们的公共政策仅仅建立在对企业利润的追求上，那么我们将永远无法直面威胁。我们不能仅仅只靠政府，还需要动员全社会来共同应对中共带来的威胁。”
+來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
-卢比奥表示，这种努力不仅受到大企业的阻碍，由川普政府司法部发起的反间谍计划—中国行动计划 (China Initiative)也被拜登政府叫停，原因是涉嫌种族歧视，但司法部的一项内部调查发现该计划根本就不存在种族偏见的证据。卢比奥敦促总统拜登恢复该计划，并说努力修改它比直接终止它更可取，“如果它需要改进，那让我们来改进它。”
+* * *
 
-此外，卢比奥警告说，如果中美之间爆发冲突，美国继续依赖中国制造产品最终将被证明是一个灾难性的国家安全问题。我们需要重振美国的工业能力，以降低对中共国这样的敌对国家的依赖度，特别是在半导体和制药等关键行业，因为依赖于敌对政权国家将使我们脆弱和软弱。”
-
-总而言之，卢比奥认为，美国需要更大的国内团结，必须在所有政策领域重新关注国家利益，以防止国际自由秩序受到侵蚀和被更加专制的制度所取代。“自2012年以来，习近平的言行清楚地表明，北京认为它现在有足够的实力开始按照自己的形象重塑国际秩序。所以美国今天面临的最大威胁、这个世纪的威胁就是中共。”
-
-新闻来源：[China Is ‘Greatest Threat Facing America Today’: Sen. Rubio](https://www.theepochtimes.com/china-is-greatest-threat-facing-america-today-sen-rubio_4369477.html)
+**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
 
  
 

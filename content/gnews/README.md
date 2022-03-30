@@ -15,113 +15,113 @@
 
 ---
 
-### [美参议员卢比奥：中共是美国的最大威胁，美国需要动员全社会来对抗中共](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑](/content/gnews/1/README.md)
+ ` 關注組`
 
-### [COVID-19疫苗副作用集萃（2022.3.30）急性髓系白血病M4中危](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌克兰将成为新世界国家安全体系的创始人和领导者](/content/gnews/3/README.md)
+### [欧盟4国联手驱逐数十名俄罗斯外交人员](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [【G肋睇真D】英国官方数据显示疫苗灾难已逐渐降临](/content/gnews/4/README.md)
+### [秘翻在线：俄外长亲赴中共逼债，独裁政要群聚中共国](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美参议员卢比奥：中共是美国的最大威胁，美国需要动员全社会来对抗中共](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [COVID-19疫苗副作用集萃（2022.3.30）急性髓系白血病M4中危](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰将成为新世界国家安全体系的创始人和领导者](/content/gnews/6/README.md)
+ ` 日本东京方舟农场`
+
+### [【G肋睇真D】英国官方数据显示疫苗灾难已逐渐降临](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [樱花FM|中日财经爆:俄乌战争后“前所未见”的资金流出中共国](/content/gnews/5/README.md)
+### [樱花FM|中日财经爆:俄乌战争后“前所未见”的资金流出中共国](/content/gnews/8/README.md)
  ` 樱花FM`
 
-### [台湾推迟18岁以下儿童和青少年疫苗接种](/content/gnews/6/README.md)
+### [台湾推迟18岁以下儿童和青少年疫苗接种](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [那些仍在购买俄罗斯原油的公司名单](/content/gnews/7/README.md)
+### [那些仍在购买俄罗斯原油的公司名单](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [对于乌克兰是否放弃领土结束战争，美英两国观点迥异？](/content/gnews/8/README.md)
+### [对于乌克兰是否放弃领土结束战争，美英两国观点迥异？](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中日财经爆┃日本对俄罗斯追加制裁 禁止对俄出口高档商品](/content/gnews/9/README.md)
+### [中日财经爆┃日本对俄罗斯追加制裁 禁止对俄出口高档商品](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃日本央行加大力度捍卫国债收益率上限](/content/gnews/10/README.md)
+### [中日财经爆┃日本央行加大力度捍卫国债收益率上限](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19疫苗副作用集萃（2022.3.30）刚打完强生疫苗就爆血栓事件](/content/gnews/11/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.30）刚打完强生疫苗就爆血栓事件](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃中共国疫情爆发迫使600亿元IPO计划暂停](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗](/content/gnews/13/README.md)
+### [疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗](/content/gnews/15/README.md)
  ` 關注組`
 
-### [7位阵亡的俄将军死不得其所](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共生育政策再次调整 广西边境可以生育四胎](/content/gnews/15/README.md)
+### [中共生育政策再次调整 广西边境可以生育四胎](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [文•贵天成——文贵先生谈“G-Club”（二十九）](/content/gnews/16/README.md)
+### [文•贵天成——文贵先生谈“G-Club”（二十九）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|关注并转发俄乌战争前线的新中国联邦救援公告](/content/gnews/17/README.md)
+### [视频|关注并转发俄乌战争前线的新中国联邦救援公告](/content/gnews/18/README.md)
  ` MOSVIDEO`
 
-### [视频|G7拒绝普京政权以卢布支付俄罗斯天然气的要求](/content/gnews/18/README.md)
+### [视频|G7拒绝普京政权以卢布支付俄罗斯天然气的要求](/content/gnews/19/README.md)
  ` MOSVIDEO`
 
-### [有声｜俄乌战争引起的粮食危机是二战以来最严重的](/content/gnews/19/README.md)
+### [有声｜俄乌战争引起的粮食危机是二战以来最严重的](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [上海疫情恶化，中共开启文革2.0](/content/gnews/20/README.md)
+### [上海疫情恶化，中共开启文革2.0](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频|俄罗斯最大独立媒体宣布停刊至俄乌战争结束](/content/gnews/21/README.md)
+### [视频|俄罗斯最大独立媒体宣布停刊至俄乌战争结束](/content/gnews/22/README.md)
  ` MOSVIDEO`
 
-### [澳洲朝野不改对华强硬路线](/content/gnews/22/README.md)
+### [澳洲朝野不改对华强硬路线](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [美欧制裁之下俄国防生产力倒退上世纪中叶](/content/gnews/23/README.md)
+### [美欧制裁之下俄国防生产力倒退上世纪中叶](/content/gnews/24/README.md)
  ` 波士顿五月花农场金融部`
 
-### [有声｜恐怖！FDA批准50岁及以上人群的第二剂加强针](/content/gnews/24/README.md)
+### [有声｜恐怖！FDA批准50岁及以上人群的第二剂加强针](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [五角大楼表示会加快生产乌克兰需要的导弹](/content/gnews/25/README.md)
+### [五角大楼表示会加快生产乌克兰需要的导弹](/content/gnews/26/README.md)
  ` 银河歌舞厅`
 
-### [国际｜中共拟与所罗门群岛秘签安全协议](/content/gnews/26/README.md)
+### [国际｜中共拟与所罗门群岛秘签安全协议](/content/gnews/27/README.md)
  ` 關注組`
 
-### [爆料革命 唯真不破](/content/gnews/27/README.md)
+### [爆料革命 唯真不破](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：中共国到底是为防疫，还是嫌经济崩塌不够快？](/content/gnews/28/README.md)
+### [秘翻在线：中共国到底是为防疫，还是嫌经济崩塌不够快？](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [一份被泄露的文件透露中共有意接管澳大利亚](/content/gnews/29/README.md)
+### [一份被泄露的文件透露中共有意接管澳大利亚](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [泽连科医生称疫苗导致艾滋病并毁坏免疫系统](/content/gnews/30/README.md)
+### [泽连科医生称疫苗导致艾滋病并毁坏免疫系统](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [特鲁多拉拢新民主党协同施政](/content/gnews/31/README.md)
+### [特鲁多拉拢新民主党协同施政](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [拜登总统向俄罗斯人民喊话：这场战争不值得你们牺牲](/content/gnews/32/README.md)
+### [拜登总统向俄罗斯人民喊话：这场战争不值得你们牺牲](/content/gnews/33/README.md)
  ` 美国政要直译推`
 
-### [樱花时政┃中共野蛮防疫 高校女生殒命](/content/gnews/33/README.md)
+### [樱花时政┃中共野蛮防疫 高校女生殒命](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本银行将为未来的数字日元发行做好充分准备](/content/gnews/34/README.md)
+### [日本银行将为未来的数字日元发行做好充分准备](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [透析拜登在波兰的讲话及意义](/content/gnews/35/README.md)
+### [透析拜登在波兰的讲话及意义](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [援乌营地默默无闻的献奉者](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`

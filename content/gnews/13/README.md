@@ -2,31 +2,37 @@
 ---
 
 
-## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
+## 中日财经爆┃日本央行加大力度捍卫国债收益率上限
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2256425/)
 
-**图/文｜CP **
-**发布时间｜30/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本央行周三（3月30日）加大力度捍卫指标收益率的上限，将买入更多日本国债，其中包括通过非定期的紧急市场操作买入，以对抗全球收益率对日债收益率构成的强劲上行拉动力。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/日本央行加大力度捍卫国债收益率上限.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.sputniknews.cn%2Fimg%2F07e4%2F0a%2F0f%2F1032317692_168%3A0%3A1200%3A649_1920x0_80_0_0_4a1b0a62d355169980702311de756f48.jpg&amp;imgrefurl=https%3A%2F%2Fsputniknews.cn%2F20201015%2F1032320034.html&amp;tbnid=oA4-0roCr6iKdM&amp;vet=12ahUKEwi7rKXNnO32AhVQ0eAKHfcrCNEQMyg5egQIARBO..i&amp;docid=OX3FQw4j1Oon9M&amp;w=1920&amp;h=1207&amp;q=%20%E6%97%A5%E6%9C%AC%E5%9B%BD%E5%80%BA&amp;ved=2ahUKEwi7rKXNnO32AhVQ0eAKHfcrCNEQMyg5egQIARBO)
+此举彰显了日本央行维持货币政策超宽松的决心，甚至不惜付出刺激日圆进一步下跌的代价。日圆下跌可能推高进口成本并损害经济。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+日本央行在周三的市场操作中加大购买3至10年期日本国债的力度，总计购买4,500亿日圆(36.6亿美元)。日本央行表示，还将在非定期的紧急操作中购买2,500亿日圆的超长期日本国债。
 
+日本央行在一份声明中称：“日本央行将根据需要，同时考虑到市场状况，增加标售日期的数量和直接购买日本国债的数量。”
 
-韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
+此举加强了日本央行对债市的干预，从周一到周四，以0.25%的收益率无限量购买10年期日本国债。
 
-与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
+“日本央行正试图强化其对市场传达的信息，表明它坚定致力于让日本保持非常宽松的金融条件，不会接受那些较高的长期债券收益率。”三井住友资产管理首席宏观策略师吉川雅幸说。
 
-韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
+“我们需要记住，日本央行的官方目标是10年期国债收益率在0%左右，而不是25个基点。”
 
-值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
+消息来源:
 
-可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
+[综述：日本央行加大力度捍卫收益率上限 因全球压力持续存在](https://cn.reuters.com/article/cdepth-japan-cen-bonds-yield-0330-idCNKCS2LR0B2?il=0)
 
-来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
-
-* * *
-
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
