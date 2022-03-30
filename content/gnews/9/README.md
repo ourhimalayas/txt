@@ -2,28 +2,44 @@
 ---
 
 
-## 俄军北部军力部份撤离 英国国防部：包围基辅已无法实现
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2255560/)
+## 美国计划与台湾、韩国和日本建立半导体联盟以制约中共
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255767/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄罗斯29日承诺将大幅减少对乌克兰首都基辅、东北部切尔尼戈夫的军事行动，美方认为这可能只是「重新部署」，乌克兰武装部队总参谋部则表示俄方说法只是想误导大家。英国国防部在每日最新情报中表示，俄罗斯已几乎无法实现包围基辅的军事目标。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a868d754a6b5c2d74d721855a1974dc0.jpg)图片来源：多维新闻
+翻译/编辑：小红帽
 
-英国国防部表示，近期俄罗斯在乌克兰境内反覆受到挫折，乌克兰军队也发起许多成功的反击行动，如此几乎可以肯定的说，俄军攻势未能实现原先的目标，也就是包围基辅。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MapCopywrited2-980x804-1.jpg)图片来源：https://mitre-engenuity.org/
 
-简评：拿不下乌克兰首都俄罗斯就没有获胜，俄军包围基辅已无法实现，打不过了就谈判，俄罗斯的缓兵之计还是选择性放弃全世界都在拭目以待。继续打一场不可能获胜的战争，不是普京疯了就是俄军傻了，俄罗斯大兵们，为普京卖命不值得！
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876285](https://news.ltn.com.tw/news/world/breakingnews/3876285)
+根据Business Standard3月29日报道，美国提议在美国、台湾、韩国和日本之间建立一个半导体产业联盟，以防止中共在这个战略领域获得主导地位。
 
-撰稿/发布：一叶知秋
+然而，台湾新闻网援引《韩国商业》报道称，韩国并不完全赞同美国提出的想法。韩国政府不愿意危及三星等在中共国拥有核心制造基础设施的韩国芯片制造商的运营。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+中共国西部城市西安是三星唯一的海外存储芯片工厂所在地。该工厂约占这家韩国企业集团NAND闪存总产量的40%。
+
+与此同时，中共正在发动经济战，以收购台湾的半导体产业。台湾拥有世界领先的半导体产业，仅次于美国。
+
+据《香港邮报》报道，台湾政府指责中共对台湾的科技行业发动经济战，窃取技术并诱使技术工程师离开。
+
+台湾行政部长罗平正指控，中共正在引诱台湾的先进技术人才，从事盗窃国家关键技术，规避法规，在台湾非法投资和经营，造成台湾在IT安全和行业竞争力方面的巨大损失。
+
+半导体或“芯片”是技术创新和经济发展的重要组成部分。这些芯片在所有电气设备中无处不在，包括智能手机、电子车辆、高超音速武器、飞艇、心脏起搏器等。
+
+虽然中共国制造了世界上大多数的电脑和智能手机，但它需要进口所有运行这些小设备所需的半导体。
+
+为了消除对技术的依赖，中共经常从事工业间谍活动和其他活动，以努力发展自己的半导体产业。这也是中共极力想让台湾回到其控制之下的主要原因之一。
+
+新闻来源：[US plans semiconductor alliance with Taiwan, South Korea, and Japan](https://www.business-standard.com/article/international/us-plans-semiconductor-alliance-with-taiwan-south-korea-and-japan-122032900290_1.html)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

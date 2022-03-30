@@ -2,31 +2,18 @@
 ---
 
 
-## 秘翻新闻｜北京疫情如临大敌 瞒疫者最高可判死刑
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2251287/)
+## 樱花头条┃美国和英国宣布对俄罗斯实施更多新制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2251672/)
 
-**By:[秘翻新闻](https://gettr.com/post/p12hfs2b6e7)**
+撰稿：东京樱花团/樱花传媒
 
-**[2022-03-29](https://gettr.com/post/p12hfs2b6e7)**
+美国宣布更多对俄制裁，将对俄400个人和实体实施制裁 ；英国对俄新制裁，专门针对关键战略行业和个人。
 
-**新闻内容:**
+信息来源：[https://www.gettr.com/post/p11rbzb6d25](https://www.gettr.com/post/p11rbzb6d25)
 
-**1.乌克兰设定停火目标 美国称普京没准备停火**
-
-**2.美国国债5年30年期收益率自 2006 年以来首次倒挂**
-
-**3.香港疫情致死人数激增 棺材紧缺**
-
-**4.录音曝上海瞒疫情：检测阳性不公布 私下通知本人**
-
-**5.长春封城又传停水 中共辟谣被市民打脸**
-
-**🔗Gettr链接：[https://gettr.com/post/p12hfs2b6e7](https://gettr.com/post/p12hfs2b6e7)**
-
-**发布:星星**
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+*编辑：东京樱花团/asket、天路天道/太白/小水手（素材）
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,28 @@
 ---
 
 
-## 俄罗斯军方称将减少在基辅和切尔尼戈夫的军事行动
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255542/)
+## 樱花时政┃日本受邀参加北约外长会议
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255760/)
 
-03/29/2022 MSNBC 新闻：正在伊斯坦布尔举行的俄乌最新谈判似乎有了一些进展。俄罗斯军方表示，它将减少在基辅和切尔尼戈夫的军事行动，乌克兰表示他们将采取中立地位。然而，土耳其在今天的声明中持谨慎态度，称虽有进展，但还有很多需要继续谈判。
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/日本受邀参加北约外长会议.png)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=images%20free%20trial-,Japan%20and%20NATO%20handshake%2C%20international%20friendship%20)
+北大西洋公约组织（NATO）3月29日宣布，将于4月6日至7日在布鲁塞尔总部举行外长会议。日本、韩国、澳大利亚和其它国家将被邀请参加4月7日的会议。日本外务大臣林芳的参加正在准备中。预计乌克兰也将受到邀请，各国在应对俄罗斯方面将加强合作。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+据北约称，除了日本、韩国、澳大利亚和乌克兰之外，芬兰、格鲁吉亚、新西兰、瑞典和欧盟也被邀请参加7号的会议。其中部分参加者将通过视频连线参加会议。
+
+北约于本月24日举行首脑会议后发布了一份联合声明，警告中共国在支持俄罗斯方面需保持克制。
+
+信息来源：
+[NATO外相会合へ日本も招待　4月6～7日に開催](NATO外相会合へ日本も招待　4月6～7日に開催)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

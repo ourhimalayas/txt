@@ -2,22 +2,22 @@
 ---
 
 
-## 郭先生解析民主国家与独裁国家的不同
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253701/)
+## 泽连斯基：准备寻求乌克兰中立地位但有条件
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253704/)
 
-作者：银河系农场—骄子
+作者：香草山教育部-飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月27日，郭先生在大直播中解析了，从世界各国目前对俄罗斯采取的制裁行动中，看到民主国家与独裁国家之间的不同。
+3月28日，据多家媒体报道，乌克兰总统泽连斯基日前接受俄罗斯独立记者采访时表示，就乌克兰安全保障、中立地位和无核地位，以及东部顿巴斯地区的问题与俄方商讨。但由于这些问题可能涉及修改乌克兰宪法，对这些问题乌克兰需要举行全民公投，另外还要得到第三方担保。泽连斯基同时指出，俄乌两国达成和平协议的首要条件，是俄罗斯撤军和停火。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-100.jpg)
+根据乌克兰宪法，加入北约和欧盟是该国的战略目标。由于该国目前尚未加入北约或其他安全联盟，因此安全保障问题是其当前的主要问题。
 
-郭先生提到，中共独裁习近平此人极度奉行个人主义，把国家领导间的私人关系作为国与国外交的关系，并深以为然。习与拜登有一些利益交换，拜登作为老政客，这些都是政治手段，但习错以为这是美国整个国家的态度。而纵观拜登的从政之路，几乎都是对中共不利的政策，包括当年奥巴马对习近平的一番奚落，严格讲其背后操纵者是拜登。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-97.jpg)
-此次美国对乌克兰的支援，拜登在华沙的演讲，以及欧洲国家从各行各业全民参与的行动，另外还有日本重提宣战权，这些世界上的先进民主国家都在积极呼应。在全世界人类的生死面前都是民意，就是经过了独立思考，以及尊重别人的前提下，共同做出的决定。这是民主与独裁的本质不同，国家利益高于一切，并非个人感情所能决定。
+另外，泽连斯基还表示，乌克兰不会在去军事化等问题上与俄方进行讨论，因为这些概念“难以理解”。
 
-而独裁者极度奉行个人崇拜，事事以自己利益为主。无论普金还是习近平，这都是他们本人的战争，和任何俄罗斯人和中国人无关，但因为独裁，使无辜的人都被裹挟其中。
+另据其他渠道的消息，俄乌两国谈判代表团的新一轮谈判将于29日至30日在土耳其伊斯坦布尔举行。
 
-因此，郭先生强调，中国人也只有消灭共产党，才能在地球上重新立足，否则将会永远远离文明世界。
-
-参考链接：[美国点明俄国非西方敌人普京是](https://gettr.com/post/p124vkgc8a0)
+参考链接：
+[泽连斯基：准备好与俄商讨乌中立问题 但须安全保证及全民公投](https://www.zaobao.com.sg/realtime/world/story20220328-1256778)
+[俄乌谈判代表团将于下周举行新一轮面对面谈判](https://news.cctv.com/2022/03/28/ARTIJ1duo3GBJRLNOlXS10Lk220328.shtml)
 
 ![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
 
@@ -25,6 +25,8 @@
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
