@@ -2,27 +2,36 @@
 ---
 
 
-## 直播的无限魅力
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253710/)
+## 澳大利亚政府将网络作战部队规模翻倍以应对中俄网络安全威胁
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2253939/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-3月27日大直播中，郭先生表示，在世界上的75亿人口中，不是每个人都能够、有缘分同心同框一起直播。同时与战友们分享了直播的真实与震撼。
+编译：波士顿五月花—-Streamline
 
-自郭先生开始直播爆料以来，自己的家人亲人遭到共产党迫害，财富被剥夺，直播露脸的战友也都做好了类似的准备。在这场与邪恶的殊死搏斗中，一次直播能够救很多人的命，影响力巨大。郭先生说，直播中讲出的任何话都有人记得，比如没有提到的战友的名字、一些口误，郭先生在随后的直播中都会做纠正。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-96.jpg)
-观看直播的观众数量庞大，从2017年郭先生自己单独直播，到现在战友都站出来做直播，更重要的是我们永远有和默默无闻的战友的互动讯息反馈，而这种联动性的目的只有一个，消灭中国共产党。
+据《英国每日邮报》3月29日报道，由于受到中国和俄罗斯网络安全的威胁，澳大利亚将在未来10年花费近100亿美元，使其网络作战部队的规模翻倍。
 
-战友们用生命用时间，甚至在乌克兰战争的前线，无私无我，通过直播的方式向世界传递救命讯息，同时验证了唯真不破多么的宝贵。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/AA3496CD-6830-4808-A49B-656E6FB25B7A.jpeg)
 
-参考链接：[世界政治地域文化经济彻底改变](https://gettr.com/post/p124vkgc8a0)
+随着澳大利亚与美国和英国(澳大利亚的传统国防盟友)以及亚洲民主大国的国家安全关系得到加强，上述预算将大幅提升澳大利亚国防情报局(Australian Signals Directorate-ASD)的情报能力，国防情报局是国防部的一个分支。
 
-![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+在这份预算中，政府将投资 99 亿美元用于澳大利亚的情报和网络，以加强政府对澳大利亚五眼联盟和澳英美联盟（ AUKUS ）三边合作伙伴关系的承诺，同时支持印-太地区的安全。
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+2030-31年中，澳大利亚情报局将获得资助，以提供复原、效果、防御、空间、情报、网络和辅助手段一揽子计划—被称为REDSPICE计划。
+
+REDSPICE计划将使澳大利亚情报局的规模扩大一倍，在未来十年创造1900个新的就业机会。
+
+联邦政府表示，REDSPICE计划将使ASD的“网络攻击能力”增加两倍，“网络搜寻和响应活动”能力增加一倍。
+
+澳大利亚去年与美国和英国签署了一项具有历史意义的安全协议，称为AUKUS。作为协议的一部分，美国还将与澳大利亚分享核潜艇技术。这是自1958年以来，美国首次与英国以外的国家分享他们的潜艇技术。
+
+新的AUKUS安全伙伴关系的首要任务是在核动力潜艇方面进行合作。网络能力、人工智能、量子技术和海底作战能力是其他重点领域。
+
+新闻评论：独裁的中共国和俄罗斯是世界所有灾难的根源，对内，它们视生命如草芥，鱼肉百姓，骄奢淫逸。对外，它们与邪恶为伍，撕毁条约，不守规则。以美国为首的西方文明世界只有与新中国联邦联手铲除中共和俄罗斯政权，才能为世界带来正道主义的希望。
+
+素材来源：[https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html](https://www.dailymail.co.uk/news/article-10663123/Threat-China-Russia-Australia-spend-10billion-doubling-cyber-warfare-unit.html)
+
+*发布：思澈*
+
+
 
  
 

@@ -2,28 +2,26 @@
 ---
 
 
-## 苹果股价创下 2003 年以来的最佳连续上涨纪录
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254687/)
+## 更具传染性的 病毒子变体在美国占主导地位
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2254736/)
 
-编辑：文宝
+编译：文宝
 
 
-![](https://image.cnbcfm.com/api/v1/image/107037493-1648468879694-gettyimages-1239563765-AFP_32749PL.jpeg?v=1648468909&amp;w=929&amp;h=523&amp;ffmt=webp)
-周二，苹果股价连续第 11 天上涨，创下 iPhone 时代最长的连胜纪录。
+![A woman takes a coronavirus disease (COVID-19) test at a pop-up testing site in New York City, January 12, 2022.](https://image.cnbcfm.com/api/v1/image/107000414-1642028919088-test.jpg?v=1642084706&amp;w=929&amp;h=523&amp;ffmt=webp)
+根美国据疾病控制和预防中心本周发布的数据，更具传染性的 omicron 子变体 BA.2 现在是美国 Covid-19 的主要版本。
 
-该公司股价收盘上涨 1.9%，收复了全年亏损。 它仍然比 1 月 3 日创下的纪录收盘价低 1.7%，当时苹果的市值在当天达到 3 万亿美元。 截至周二，苹果市值约为 2.9 万亿美元。
+该子变体占接受基因测序的 Covid 感染样本的近 55%。 即便如此，更具传染性的病毒的传播并不能保证美国将承受新一波病例。大约每两周，BA.2 在美国流行的病毒变种中的比例就会增加一倍。 2 月初，omicron 子变体仅占美国已测序的 Covid 病例的 1%。
 
-苹果股价上一次至少连续 11 天上涨是在 2003 年连续 12 天上涨，当时该公司增长最快的产品是 iPod 音乐播放器。 第一部 iPhone 直到 2007 年才上市。
+根据英国卫生安全局的最新更新，BA.2 子变体的传播速度比 omicron 的早期版本 BA.1 快约 75%。最近几周，BA.2 导致英国和德国的感染人数激增，但那里的病例又开始下降。
 
-苹果的上涨伴随着更广泛的市场上涨，投资者对俄罗斯和乌克兰之间的停火谈判变得更加乐观。 周二，随着 Meta、亚马逊、Netflix 和 Alphabet 的上涨，苹果的大型科技同行也上涨。
+中国正在与 2020 年以来最严重的疫情作斗争，这也是由 BA.2 推动的。根据南非和英国等国家的数据，虽然 BA.2 的传播速度更快，但它并不比早期版本的 omicron 使人们生病。 Omicron 及其子变体通常导致比 delta 变体更轻的疾病。卡塔尔的科学家发现，Covid 疫苗对 BA.2 的效果与对 BA.1 的效果一样，尽管 omicron 引起了更多的突破性感染。
 
-Wedbush Securities 分析师丹·艾夫斯在一封电子邮件中写道：“苹果是实力的基石，整体 iPhone 和服务需求正在帮助该股重回 3 万亿美元的区号。”
+白宫首席医疗顾问安东尼·福奇博士本月早些时候表示，BA.2 可能会导致美国病例增加，但他预计不会再次激增。福奇说，该国还不需要重新引入 Covid 限制来应对子变体。
 
-尽管今年许多高增长科技公司受到重创，但大公司的表现通常比新兴的亏损公司要好。 随着通货膨胀以 40 年来最快的速度上升，美联储提高利率，投资者将资金投入风险较低的资产。
+原文链接：[https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html](https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html)
 
-原文链接：[https://www.cnbc.com/2022/03/29/apple-stock-on-pace-for-best-daily-winning-streak-since-2003.html](https://www.cnbc.com/2022/03/29/apple-stock-on-pace-for-best-daily-winning-streak-since-2003.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-56.png)DISCORD
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-57.png)
 
  
 

@@ -2,24 +2,29 @@
 ---
 
 
-## 西媒头条 — 第198期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2253691/)
+## 郭先生解析民主国家与独裁国家的不同
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2253701/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+3月27日，郭先生在大直播中解析了，从世界各国目前对俄罗斯采取的制裁行动中，看到民主国家与独裁国家之间的不同。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220329.001.jpeg)
+郭先生提到，中共独裁习近平此人极度奉行个人主义，把国家领导间的私人关系作为国与国外交的关系，并深以为然。习与拜登有一些利益交换，拜登作为老政客，这些都是政治手段，但习错以为这是美国整个国家的态度。而纵观拜登的从政之路，几乎都是对中共不利的政策，包括当年奥巴马对习近平的一番奚落，严格讲其背后操纵者是拜登。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-97.jpg)
+此次美国对乌克兰的支援，拜登在华沙的演讲，以及欧洲国家从各行各业全民参与的行动，另外还有日本重提宣战权，这些世界上的先进民主国家都在积极呼应。在全世界人类的生死面前都是民意，就是经过了独立思考，以及尊重别人的前提下，共同做出的决定。这是民主与独裁的本质不同，国家利益高于一切，并非个人感情所能决定。
 
-发稿：信心的选择
+而独裁者极度奉行个人崇拜，事事以自己利益为主。无论普金还是习近平，这都是他们本人的战争，和任何俄罗斯人和中国人无关，但因为独裁，使无辜的人都被裹挟其中。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+因此，郭先生强调，中国人也只有消灭共产党，才能在地球上重新立足，否则将会永远远离文明世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+参考链接：[美国点明俄国非西方敌人普京是](https://gettr.com/post/p124vkgc8a0)
+
+![This image has an empty alt attribute; its file name is 3-524x720-3-12.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-12.jpeg)
+
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
