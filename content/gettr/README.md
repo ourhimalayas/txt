@@ -19,6 +19,24 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@baoliaobaike 3/30/2022 7:42 AM (UTC)`
+
+🆙【Himalaya Farm 】❤️‍🔥<br/>【喜马拉雅农场】 <br/><br/>Himalaya farm respects the rule of law and pursue the right of the people to "one person, one vote" .In Himalaya farm, paying will pay off, smashing communist "utopias".<br/>喜马拉雅农场尊重法治，追求“一人一票”的人民权利，在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”。<br/><br/> #HimalayaFarm #OnlyTrueisunbreakable #thecultCCP #WhistleblowerMovement #喜马拉雅农场 #唯真不破 #中共邪教 #爆料革命
+![img](https://media.gettr.com/group9/origin/2022/03/30/07/c906d4e0-4d7f-9ca4-d59a-fdf257487163/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 3/30/2022 2:34 PM (UTC)`
+
+Himalaya Washington DC's livestream 2022-03-30
+![img](https://media.gettr.com/group24/origin/2022/03/30/14/d73ceff5-47eb-98ea-90a5-51fc0368c4cd/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@taishan 3/30/2022 12:47 PM (UTC)`
 
 可怜、可悲、可恨的小粉红们，也许只有如此这般遭遇时才能醒悟吧！
@@ -143,20 +161,6 @@
 
 3/27/2022 Miles Guo: Russian oligarchs are selling off their assets at a discount, but we have never and will never take advantage of others’ plight. The same things that have happened to the Russians when the US and the West sanctioned them will happen to the Chinese people, and the New Federal State of China is saving the Chinese people around the world to minimize the number of people who will be wronged.<br/><br/>3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人<br/>
 ![img](https://media.gettr.com/group47/getter/2022/03/29/23/25c7f842-ad69-b972-55b1-d41787cd071b/out.jpg)
-
----
-
-`@miles 3/29/2022 11:40 PM (UTC)`
-
-<br/>【Ukraine Rescue】03/29/22  Ukraine Battlefield Edition of《Chained Dream》played by Italian war-zone pianist Davide Martello in front of the NFSC & ROLF tent at the Medyka Rescue Center<br/><br/>【乌克兰救援】03/29/22 意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帳篷前，弹奏《乌克兰战地版铁锁梦》<br/>
-![img](https://media.gettr.com/group32/getter/2022/03/29/23/96c6ceee-ecb8-5730-fb93-fabc1762d02f/out.jpg)
-
----
-
-`@miles 3/29/2022 11:04 PM (UTC)`
-
-3/27/2022 Miles Guo: The vests bearing the logos and slogans of the New Federal State of China are loved by people from all over the world at the Medyka rescue camp in Poland, and our vests will be given away for free to those who like them in unlimited quantities!<br/><br/>3/27/2022文贵直播：印有新中国联邦标识和口号的马甲在波兰梅迪卡营地受到各国人民喜爱，我们的马甲将不限量免费赠送给喜欢的人！<br/><br/>
-![img](https://media.gettr.com/group16/getter/2022/03/29/23/bf3c30b4-89ea-468d-8e7f-414685390ad3/out.jpg)
 
 ---
 
