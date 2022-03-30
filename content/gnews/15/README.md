@@ -2,22 +2,34 @@
 ---
 
 
-## 樱花时政┃联合国教科文组织呼吁保护乌文化遗产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257403/)
+## 中共打击民间利用风水预测股市涨跌
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2257816/)
 
-撰稿：东京樱花团/上善若水
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/EVWIWZHA4FJXVP2RKG5TT72DDY.jpg)
+日前，中共证监会打击使用风水术数预测股市涨跌走势的行为。
 
-俄乌战争已经30多天，坐落在法国巴黎的联合国教科文组织1954年签署的《海牙公约》及其两项议定书，包括武装冲突各方必须尊重文化遗产，禁止毁坏、损害或以任何形式盗窃、抢夺对每一民族具有重大意义的文化遗产等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-48.png)（图片来源于本文链接）
-联合国教科文组织在乌境内有7处世界遗产，其中6处是各个时期的建筑或者建筑群，基辅的圣索菲娅主教堂和佩乔尔斯克修道院，建于11世纪，这个古建筑群于1990年被列入世界遗产名录。斯特鲁维地理探测弧线是与9个国家共同拥有的，为准确测量地球椭圆体而共同建立的大地测量基地群，属于世界的文化艺术瑰宝。
+中共证监会表示通过应用天干地支和五行风水预测股市的行为是非法的。此前网路流传的《仁者无敌-2022中国股市预测》、《天干地支在择时中的应用初探》等报告提供者被证监会处罚，撤职降级，并扣发年终奖金。中共证监会认为各证券公司应该加强员工管控，对内部员工发布的投资讯息应该进行严格审查，证券分析师发布报告应以中共集权擀面杖子电脑操控的市场数据为主。
 
-联合国教科文组织对“创意城市网络”音乐之都哈尔科夫市及已列入《世界遗产预备清单》的切尔尼戈夫历史中心遭损失表示严重关切。为了防止战争破坏，教科文组织正与乌政府合作，尽快用《海牙公约》指定的独特标志标出乌各地的重要历史古迹和遗址。该标志是国际公认的在武装冲突中保护文化遗产的符号。
+此前总部位于香港的某证券经纪公司发布的玩笑风水投资指南，预测中共股市的表现，在投资者中很受欢迎。
 
-信息来源：[教科文组织呼吁保护乌克兰文化遗产](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%96%87%E5%8C%96%E9%81%97%E4%BA%A7/20220330-%E6%95%99%E7%A7%91%E6%96%87%E7%BB%84%E7%BB%87%E5%91%BC%E5%90%81%E4%BF%9D%E6%8A%A4%E4%B9%8C%E5%85%8B%E5%85%B0%E6%96%87%E5%8C%96%E9%81%97%E4%BA%A7)
+reference：
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[China’s regulator cracks down on using feng shui to predict stock market trend](https://www.reuters.com/world/china/chinas-regulator-cracks-down-using-feng-shui-predict-stock-market-trend-2022-03-30/?taid=62442b4d6d68c200016433bd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+[https://finance.eastmoney.com/a/202203302328404780.html](https://finance.eastmoney.com/a/202203302328404780.html)
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
