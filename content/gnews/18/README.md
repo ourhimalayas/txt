@@ -2,35 +2,35 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月29日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259144/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2259191/)
 
-配音：香草山农场 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-29-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-30.png)
 
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：
+[2022.03.30早 《NFSC新闻》](https://gettr.com/streaming/p12nuoa0e4b)
+[2022.03.30早《NFSC新闻访谈》](https://gettr.com/streaming/p12nwdz35b2)
 
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月29日早](https://gnews.org/zh-hans/2253404/)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+
 **更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
 
  
 
