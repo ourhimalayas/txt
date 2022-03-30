@@ -2,71 +2,55 @@
 ---
 
 
-## 拜登政府预测加密货币税收将带来100 亿美元的收益
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2259926/)
+## Omicron 的“隐形”变体 BA.2 在全球占主导地位，第二剂加强疫苗正在推出
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2259991/)
 
-翻译：香草山商业部 —— 文锤
+**翻译： 真北007**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+来自REUTERS 三月29日的新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/C1817A4B-52BF-4F52-8ADD-0453B6841A90.jpeg)图片来源：[https://www.reuters.com/business/healthcare-pharmaceuticals/omicron-stealth-covid-variant-ba2-now-dominant-globally-2022-03-29/](https://www.reuters.com/business/healthcare-pharmaceuticals/omicron-stealth-covid-variant-ba2-now-dominant-globally-2022-03-29/)
+ 
+3月 29 日（路透社）- 被称为 BA.2 的高传染性 Omicron 冠状病毒的一个亚变体现已在全球占据主导地位，促使欧洲和亚洲许多国家的感染出现激增，并在增加人们对美国可能出现新一波疫情的担忧 。
 
+以下几点是有关 BA.2 的已知信息的概括：1. 更易传播
 
+根据世界卫生组织的数据，BA.2 现在占所有测序病例的近86%。它比具有高度传染性的 Omicron 姐妹 BA.1 和 BA.1.1 更具传染性，但迄今为止的证据表明它不太可能导致严重疾病。
 
+与 Omicron 家族中的其他变体一样，疫苗对 BA.2 的效果不如对以前的变体（如 Alpha 或冠状病毒的原始毒株）有效，并且保护作用会随着时间的推移而下降。然而，根据英国卫生安全局的数据，疫苗加强剂可以恢复保护作用，特别是防止住院和死亡。2. 全球概况
 
+BA.2 的激增导致了中国最近的爆发以及德国和英国等欧洲国家创纪录的感染。然而，一些欧洲国家现在看到新病例的上升速度放缓，甚至下降。
 
-在 3 月 9 日有关加密货币的法令颁布几周后，美国总统乔·拜登 (Joe Biden) 政府提出了 2023 年的经济计划。该文件不是最终文件，它特别提到了美国居民有义务申报其在海外账户中持有的数字资产，以及对加密货币的市场价格估值征税。
+BA.2 被称为“隐形变体”，因为对它较难追踪。 BA.1 中缺失的基因允许通过常见的 PCR 测试默认对其进行跟踪。 BA.2 和另一个姐妹 BA.3 （其流行率也在增加，但目前处于低水平），只能通过基因组测序找到。3. 重复感染
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/blob-4.jpeg)图片来源于网络
+关于 BA.2 的一个关键问题是它是否会重新感染已经感染BA.1 的人，特别是在许多国家的感染率 “双高峰” 惊人地接近的情况下。但来自英国和丹麦的数据表明，虽然 Omicron 可以重新感染已经染过其他变体（例如 Delta）的人，但迄今为止，在数以万计的 BA.1 患者中仅发现少数 BA.2 再感染。
 
-**加密货币框架更清晰**
+科学家们说，最近 BA.2 上升的一个可能解释是，全球感染上升与许多国家取消公共卫生干预措施有关。
 
-在关于加密货币在美国未来的第一份草案的几周后，拜登政府颁布了其 2023 年的经济计划。
+全球即将开始推出第四剂疫苗（第二剂加强针）：
 
-根据 3 月 28 日星期一发布的文件，税收规则的修改——被称为“现代化税收”——将在 2023 年至 2032 年间将美国的赤字减少109 亿美元。
+美国FDA授权50岁以上在打完上一剂后4个月后可以打第二加强针。
 
-这些新法规允许美国金融当局撒下更广泛的网，包括通过鼓励他们报告离岸账户中超过 50,000 美元的任何金融投资，对在离岸账户中持有数字资产的人征税。
+欧洲卫生部长们也强烈呼吁60岁以上打第二加强针。
 
-此外，加密货币持有者现在将根据其资产的按市值计价 (MTM) 估值征税。换句话说，征税人员将不会根据购买某种加密货币的价格来征税，而是根据其实际市场价值的增加来征税。
+澳大利亚计划在冬季前为65岁以上接种第四剂疫苗且要每年重复下去。
 
-具体来说，如果一个人持有加密货币，而后者的价值随着市场波动而增加，那么即使他不转售，他也会被征税，对这种加密货币的增值部分征税。
+加拿大的魁北克省也将为80岁以上老人提供第二剂加强针。
 
-在文件的第 83 页，我们还可以看到5200 万美元将在 2023 年分配给 FBI 的几个部门，特别是为了参与“打击勒索软件战略”，同时也是为了打击“滥用加密货币”。
+**点评：疫苗的免疫力随着时间下降，染过病毒的人的抗体也随时间降低。疫苗有害且重复打造成免疫疲劳，打过疫苗的人感染BA.2后的传染力比没打疫苗的人更强。疫苗促进病毒爆发，腐败无能政客及药厂又借疫情推广强制疫苗，最终还是可怜的天下苍生。只有消灭中共，铲除马列主义思想毒瘤，匡扶道德与正义，世界才有未来。**
 
-不过，细节还在等待中。
+**原文链接：**
 
-根据美国总统乔·拜登（Joe Biden）的政府，在目前的状态下，这项新的经济计划仅在 2023 年就应该带来 50 亿美元。但是，尽管非常详细，但该计划仍可能发生变化，因为它要到 2023 年 1 月 1 日才会应用。
+[https://www.reuters.com/business/healthcare-pharmaceuticals/omicron-stealth-covid-variant-ba2-now-dominant-globally-2022-03-29/](Omicron%20'stealth'%20COVID%20variant%20BA.2%20now%20dominant%20globally)
 
-该预算提案符合美国总统3 月 9 日签署的法令，该法令旨在保护“金融稳定”、“消费者和投资者”，同时也参与“打击非法融资”。
+**编辑：LILY**
 
-意识到数字资产提供的可能性，以及 16% 的美国家庭对数字资产表现出的兴趣（他们声称他们已经至少交换过一次数字资产），美国政府要求进行可行性研究。，以评估中央银行数字货币（CBD）的适用性。
+**发布：歪桑**
 
-总之，尽管未来法规的轮廓变得越来越清晰，但这些新提案将如何在美国加密社区中被接受还有待观察。
+20220330
 
-**原文阅读：**
-
-**[L’administration Biden prévoit 10 milliards de dollars de gains grâce à la taxation de cryptomonnaies (cryptoast.fr)](https://cryptoast.fr/administration-biden-prevoit-10-milliards-dollars-gains-grace-taxation-cryptomonnaies/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
 
 
  

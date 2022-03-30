@@ -2,37 +2,35 @@
 ---
 
 
-## 俄罗斯将保持天然气合同货币不变
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2260117/)
+## 俄乌战争导致400多万人逃离乌克兰 粮食危机迫近
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2260152/)
 
-翻译与编辑：灭共文明、冰糖葫芦喵
+翻译与编辑：灭共文明
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-《路透社》3月30日报道，**俄罗斯两名消息人士周三表示，俄罗斯计划保持向欧洲出口天然气的合同货币不变，但将寻求用卢布进行最终支付，作为转换天然气贸易货币的选择之一。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/EUV3KPNMWZPW3ARVS54NLRPOKY-e1648679741636.jpg)俄罗斯天然气工业股份公司在北极亚马尔半岛拥有的Bovanenkovo气田的气井（路透社）
-此前，俄罗斯称将很快要求“不友好”的国家以卢布支付燃料费用，这引发了欧洲可能出现天然气短缺的警告。
+《加拿大环球新闻》与《巴伦周刊》3月30日综合报道，**周三，联合国难民署专员菲利波·格兰迪在利沃夫会见难民时证实，逃往国外的乌克兰人数已经达到400万。**
 
-一位消息人士称，**只有支付货币在变化，合同货币没有变化。对于以欧元成交的交易，付款应按照俄罗斯央行设定的卢布/欧元官方汇率进行。**
+联合国周三还表示，**正在向乌克兰的100万人提供紧急食品**，但同时警告说，还有更多的人在挨饿，为了让儿童有饭吃，成年人不吃饭。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/123411349_hi074103129-e1648681785566.jpg)自俄罗斯入侵乌克兰以来，已经有400万人逃离乌克兰（联合国难民署）
+总部位于罗马的世界粮食计划 (WFP)表示，**已成功地向乌克兰人群提供粮食供应，**其中包括向哈尔科夫市的家庭运送33万个新烤的面包，以及**通过两个跨机构人道主义车队向苏米和哈尔科夫冲突地区运送物资。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Bulgaria-registers-refugees-from-Ukraine-at-border-e1648682546317.jpg)俄乌冲突导致乌克兰由世界粮仓变为难民营（图片来源：fellowpress.com）
+该联合国机构表示，预计未来几天将有更多运送食品的车队抵达乌克兰。
 
-一位参与起草天然气付款计划的财务消息人士对路透表示**:“目前还没有最终决定，工作正在进行中。**
+世界粮食计划署乌克兰紧急协调员雅各布·克恩(Jakob Kern)在一份声明中说:“从头开始开展行动，把食物送到100万人手中，这似乎是一个巨大的挑战。”
 
-**一名德国发言人表**示，俄罗斯总统周三在电话中对德国总理肖尔茨(Olaf Scholz)表示，**欧洲合作伙伴的情况不会发生任何改变，付款仍将以欧元支付，并转移至俄罗斯天然气工业银行。**他补充说，肖尔茨承诺遵守七国集团的一项协议，即俄罗斯的能源供应将只以欧元或美元支付。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/60482697_303.jpg)德国总理肖尔茨3月2日宣布不参加北京冬奥会（图片来源：德国之声）
-据第三位俄罗斯消息人士称，**俄罗斯第三大银行俄罗斯天然气工业银行可以在天然气买家和俄罗斯天然气工业股份公司之间充当交易中介**。
-
-克里姆林宫发言人德米特里-佩斯科夫周三表示，**普京将在周四听取关于如何将付款转为卢布的建议**，包括来自俄罗斯天然气工业公司和中央银行的建议，并且该计划将被公开。
-
-佩斯科夫说，**客户不会从周四开始就必须转换为卢布，因为 “支付和交付是一个耗时的过程**。
+此外，联合国粮食秘书长周二警告称，**乌克兰战争可能会破坏世界粮食计划署为全球约1.25亿人提供食物的努力，因为乌克兰已经“从世界粮仓变成了排队等待面包的地方”。**
 
 新闻来源链接：
 
-[Exclusive: Russia to keep gas contract currency unchanged in rouble switch, sources say | Reuters](https://www.reuters.com/business/energy/exclusive-russia-keep-gas-contract-prices-unchanged-rouble-switch-sources-says-2022-03-30/)
+[Russia-Ukraine conflict: More than 4 million people have fled Ukraine as food crisis looms | Watch News Videos Online (globalnews.ca)](https://globalnews.ca/video/8723194/russia-ukraine-conflict-more-than-4-million-people-have-fled-ukraine-as-food-crisis-looms/)
+
+[UN Feeding One Million People In Ukraine | Barron’s (barrons.com)](https://www.barrons.com/news/un-feeding-one-million-people-in-ukraine-01648640708)
 
 **更多资讯，更多关注
 [乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
 [郭文贵先生Gettr](https://gettr.com/user/miles)
 [全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
 [喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

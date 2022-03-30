@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 11:49 PM (UTC)`
+
+3/30/2022 Miles Guo: The essence of the Russia-Ukraine war is the war between the CCP and the US, and the CCP is certainly going to invade Taiwan. The US already got an extra hand to take action against the CCP. The Russia-Ukraine war will be ended with the demise of the CCP and its Eastern evil alliance.<br/><br/>3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共；俄乌之战将以中共及其东方邪恶集团的灭亡而结束<br/><br/><br/>
+![img](https://media.gettr.com/group25/getter/2022/03/30/23/e24e2eeb-e094-5a93-5bf1-89d67df06157/out.jpg)
+
+---
+
 `@miles 3/30/2022 11:33 PM (UTC)`
 
 3/30/2022 Miles Guo: The confrontation between the Eastern and the Western alliances has formed in the Russia-Ukraine war. The CCP, Pakistan, Iran, North Korea, Belarus, and several African dictatorships will serve as guarantors for Russia, with Europe, the US, and Japan being the guarantors for Ukraine. The CCP wants to overthrow the current Pakistani government. Lavrov has gone to Beijing three times recently. India stands with the CCP and Russia.<br/><br/>3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面，中、巴、伊、北朝鲜、白俄罗斯、非洲的几个独裁国家以及欧美日分别作为俄乌的担保国；中共要推翻巴基斯坦现有政府；拉夫罗夫最近3次去北京；印度和中俄站在一起<br/>
@@ -152,15 +159,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 
 ![img](https://media.gettr.com/group25/origin/2022/03/30/12/f7e8c641-846b-d46c-7343-8682b29d2b18/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 3/30/2022 8:49 AM (UTC)`
-
-
-![img](https://media.gettr.com/group48/origin/2022/03/30/08/2d552f32-c186-1c75-0a83-56b701e8a021/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
