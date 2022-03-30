@@ -2,39 +2,31 @@
 ---
 
 
-## 日本银行将为未来的数字日元发行做好充分准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255801/)
+## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文｜CP **
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
 
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/415889470D0EAEE7AEABBE0F23BF86275B403AB86F421714DF5725C901616300.jpg)图片来源：Blockchain.news
-
-
-根据路透社3月29日报道，日本央行行长黑田东彦周二表示，日本央行目前没有发行自己的数字货币的计划，但将“充分”准备应对未来不断变化的情况。
-
-黑田东彦在金融服务创新非公开研讨会上发表讲话。
-
-日本央行计划从4月开始进入发行央行数字货币 (CBDC) 实验的第二阶段，这将是决定试点计划和最终推出数字日元的关键。
-
-2021年11月24日，一个由约70家日本企业组成的联盟曾表示，计划在未来数月开始测试一种基于日元的数字货币，然后在2022财年推出。该联盟成员包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。
-
-前日本金融厅长官、目前担任DeCurret特别顾问的远藤俊英也曾于2021年11月份表示：“建立在银行存款支持的共同平台上的数字货币系统将适合可能在日本规划和实施的央行数字货币（CBDC）。”
-
-新闻来源：
-
-1. [Bank of Japan will prepare ‘thoroughly’ for possible launch of digital yen, Kuroda says](https://www.reuters.com/world/asia-pacific/boj-will-prepare-thoroughly-possible-launch-digital-yen-kuroda-2022-03-29/)
-2. [日本约70家企业未来数月将联合测试数字货币，计划于2022财年推出](https://m.jiemian.com/article/6846513.html)
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
-发布：tianzhihuan
+韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
+
+韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
+
+值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
+
+可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
+
+来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

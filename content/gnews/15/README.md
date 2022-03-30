@@ -2,30 +2,31 @@
 ---
 
 
-## 中共上海开始调动民兵加强封控
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2258511/)
+## 有声|欧洲检察署支持组队调查俄罗斯战争罪行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258645/)
 
-**撰稿：日本东京方舟农场  海星**
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月28日，欧洲检察署表示，该机构支持上周宣布成立的一支调查队，以调查俄罗斯在入侵乌克兰后所犯下的战争罪行。
 
-3月29日，中共社交媒体平台微博上的一篇贴文显示，上海已开始调动民兵加强执行封城措施。
+据悉，立陶宛、波兰和乌克兰三国在上周签署一项协议，准备成立一个团队，以调查俄罗斯所涉嫌的战争罪行和人道罪行。欧洲检察署发表声明说，参与这个团队的成员，可能会扩大到欧洲其他成员国、第三国或者其他第三方。声明表示，欧洲检察署将提供法律和技术协助，其主要目的是支持证据收集、伙伴国之间安全迅速交流，以及信息和证据的传送。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-379.jpg)（图片来源：网络）
+另据报道，该调查队也将与国际刑事法院协调合作。国际刑事法院是世界常设战争罪行法庭，该法庭在俄罗斯入侵乌克兰之后，就已经在乌克兰自行展开调查。
 
-据《自由时报》报导，网友“海牛蕾姆”于29日晚间在微博上发帖表示，上海已经开始调动民兵以加强封控，配图中可见民兵背后贴着“杨浦民兵”、“虹口民兵”的名牌。
+文字版原文：[欧洲检察署支持组队调查俄罗斯战争罪行](https://gnews.org/zh-hans/2251646/)
 
-该报导指出，由于中共上海政府借由疫情扩散无预警宣布封城，导致人力物资不足，引发民怨。据悉，多个小区居民与防疫人员或警察之间因民生物资紧缺问题而爆发严重冲突。
+音频处理：Fei797
+发稿：Fei797
 
-有小区居民因被封锁26天没有收到任何物资，几近断粮，集体向警察抗议要求解决生活物资问题；有小区居民走出家门，用大喇叭高呼：“我们要吃饭！我们要上班！我们要自由！”，甚至有居民与防疫人员发生肢体冲撞。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-参考链接：
-1.[https://news.ltn.com.tw/news/world/breakingnews/3876398](https://news.ltn.com.tw/news/world/breakingnews/3876398)
-2.[https://gettr.com/search?q=%E4%B8%8A%E6%B5%B7](https://gettr.com/search?q=%E4%B8%8A%E6%B5%B7)
-3.[https://gettr.com/post/p11zz1qd766](https://gettr.com/post/p11zz1qd766)
-4.[https://gettr.com/post/p12kxfk6a78](https://gettr.com/post/p12kxfk6a78)
-
-总编：青城道姑
-校对发布：爱放飞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

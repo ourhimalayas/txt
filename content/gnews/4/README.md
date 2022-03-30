@@ -2,64 +2,28 @@
 ---
 
 
-## 有声|惊魂时刻
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258605/)
+## 欧盟和G7成员国以能源结算制裁普京
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258796/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-下午单位来了男顾客，
-阿姐笑脸相迎忙碌起来，
-我对着屏幕爬格子。
-突然急促的呼吸声吓走了我的灵感，
-只听阿姐惊魂未定的喊他名字。
-我条件反射疑他苗毒反应，
-果然刚打的第三针……
+采编：加拿大温哥华杨帆农场 – 青青
 
-所幸转为安好！
-那下一次呢，那些打了三针的大多数呢？
-世人到选择还不知病毒从哪里来
-真相还没有被解剖，
-疫苗却已到第四针？
-我们不知道疫苗从哪里来，
+撰稿：加拿大温哥华杨帆农场 – 文莱
 
-大多数已经争先恐后瞄上身了。
-每个人都知道被做了小白鼠，
-却没有人知道病毒、疫苗都是生化武器，
-救病毒疫苗是中共杀人的子母弹。
-病毒感染死了人，
-疫苗致残致死人，
-防疫防病死了人，
-却无处寻真相，
-无法得公理！
-病毒没解药，病毒加毒药，
-阴谋接着另一个阴谋，
-都是中共屠杀人类的罪恶诡计。
-人们在中共刻意隐瞒的高墙里得不到真相，
-又如何能分辨真假？
-又如何能辨别罪恶用心？
-死去太多太多的人，
-世界正朝着红魔设计的方向在毁灭，
-中共肆虐着人类，
-灭共的新中国联邦拯救人类，
-在人类遭受生物毒灾，
-新中国联邦公告青蒿素，
-我们要让世界知道真相，
-灭共是人类文明的进步！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-22-3.jpg)图片来源：reddit.com
 
-文字版原文：[惊魂时刻](https://gnews.org/zh-hans/2249046/)
 
-音频处理：Fei797
-发稿：Fei797
+据加拿大【CTV新闻】3月28日报道，所有G7成员国当天一致同意拒绝俄罗斯提出的以卢布结算其天然气出口的要求，并要求俄方必须按合同规，以欧元或美元进行付款结算。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+据悉，普京日前决定：对所有制裁俄罗斯的国家在使用天然气结算时需要支付卢布。不仅以此变相提高天然气价格，而且还试图避开欧美制裁以挽救国内崩溃的经济。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+报道指出，尽管欧洲40%的天然气和25%的石油都直接来自俄罗斯，特别是在由战争所导致的能源价格飙升之际，对其天然气的抵制或禁运将造成欧盟巨大经济损失。但为彻底摆脱普京政权的胁迫，G7成员国和欧盟最终在进口能源方面制裁俄罗斯达成上述一致。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源： [Ukraine: G7 rejects Russia’s demand to pay for gas in rubles | CTV News](https://www.ctvnews.ca/business/g7-countries-including-canada-reject-russia-s-demand-to-pay-for-gas-in-rubles-germany-1.5837494)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

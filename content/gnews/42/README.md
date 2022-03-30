@@ -2,22 +2,44 @@
 ---
 
 
-## 秘翻在线：中共国到底是为防疫，还是嫌经济崩塌不够快？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2256046/)
+## 疫下灾情｜上海封城两日已酿悲剧 医院拒收危疾病人 一老翁失救致死
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256759/)
 
-**撰稿：Ping**
+**图/文｜CP**
+**发布时间｜30/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/上海封城兩日已釀悲劇-醫院拒收危疾病人-一老翁失救致死.jpg)
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/d79ba0a369b545e7aa77d5667ba34df2.jpeg)
-中共国严厉的疫情防控，已经成为世界上的一道风景。中共以防疫为名人为造成人道灾难，其中饿死，病死，甚至自杀的殒命人数至今中共政府都守口如瓶。同时因为防控，中共国最发达最富有的深圳特区，其经济也即将在崩溃的边缘。
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
-以中小企业最为集中的深圳为例，根据报道，有当地97家企业参加了问卷调查，包括科技企业、制造业企业，为消费、互联网和医疗健康类企业等，员工人数大概都是几百人。调查结果显示，93%的受访企业表示疫情对其生产经营活动产生不同程度的不良影响，主要体现在停工停业拖延生产进度、原材料等供应链供给跟不上、订单执行延后等。其中，64%的企业表示出现人力成本上升，53%的企业表示物流成本上升，63%的企业表示原材料成本上升。特别是一些企业反映的融资难问题，大量商业票据横行，对企业的流动性带来严重影响。这也是郭文贵先生一针见血地指出中共国金融领域最大的问题和庞氏骗局的体现：金融票据诈骗！
 
-由于过于严苛的防控措施，造成中小企业停工停产，市场需求造成一定程度萎缩，资金流断裂，中小型企业的财富被中共慢慢挖空。作为中国的窗口城市深圳，紧邻香港，是中共国最发达最富有的城市之一，而广东省是为中共的GDP增长最大的贡献者，如果这里的代表型中小企业都已经举步维艰，那其他城市的中小企业会是什么样呢？
+上海疫情持续严峻，周一（28日）起以黄浦江为界实行两段式封城，进行全民核酸筛查。昨日（29日）是封城第二日，上海新增本土确诊个案5982宗，再创单日新高。
 
-中共国为了习太阳一人的“丰功伟绩”实行疫情政治清零的荒唐措施。致使中共国经济一塌糊涂，民营企业到底还能坚持多久，今天会倒闭几家，明天又会关门几家呢？这种疫情防控就是在把民营企业推向绝路！中国共产党窃取正确70多年来，私营企业就是共产党养的肥羊，有需要的时候宰杀一只。至于他们能否生存，从来不在共产党的考虑之内。真是不知道中共的这种自杀式防控，是嫌经济崩塌的不够快吗？
+虽然封城刚刚踏入第三日，但坊间已经有不少悲剧发生。有网民29日在微博发文指，父亲因疫情封控，连续三日未能洗肾，最终导致心肌衰竭而死。他在文中公开个人信息，以证确有此事。
 
-**[新闻来源](https://finance.sina.com.cn/jjxw/2022-03-29/doc-imcwipii1132338.shtml)**
+该网民表示，他的父亲叫沈瑞根，今年77岁，居住在浦东新区北蔡镇（北中路408弄），由于糖尿病、肾衰竭需要接受血透治疗（即俗称“洗肾”），另每日还需高血压药、糖尿病药、胰岛素、肾病药、脑中风药续命，但因为浦东新区疫情封控管理处置不当，导致一个尚能自主的老人在3天内去世。
+
+据描述，26日沈老先生准备前往复旦大学附属浦东医院洗肾时，被通知核酸检测呈阳性，故暂时不能洗肾。当晚即被送进医院隔离区，至27日，浦东医院告知不能给阳性病人洗肾，疾控中心又安排老人转去上海君爱康复医院进行隔离，但由于120急救服务已超负荷，老人唯有等待，直至28日上午才被转到君爱医院隔离。隔离期间，没有医护照料与问询，28日晚上，老人仍未轮到洗肾，不久后昏迷，病友通知家属后，老人被送至周浦医院ICU病房，当晚9点52分离世。当值医生透露，沈老先生因长期未洗肾，造成心肌衰竭而死。
+
+事件爆光后，今日有不少上海危疾病患和家属纷纷在微博上发起“上海抗疫求助超话”并留下现居地址、电话、身分证号等个人资料，要求当局提供紧急救助。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/30lfP0LTgQlY9ps-nRrTmqfX1TLXLM3-YpSP52KUj-c-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/CRiwAI39h_gZb3h4ZF2W0YFZVP9ykfPeITzyiiE88oo-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/k3tE5N_uFDiNucv_PwqWZ16XAEYuZ8A9utLHnrrSx54.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/lj7t6wkuClfU1s8y9_ycltyF3JXQSWBYkEfhMZBH4TE-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/MRNwL9i7b2tFo-11NwLYzgGhYqyoGxfubjysu248rLs.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QJwA2Dwk_wWGwVblvz1dzcI9X42LognevzU7NL81OzQ-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/QsZXZDgxPe2zS6XehB5Sx9JKcDizTqqXx75qSMe-akg-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/TaG9ZKZmsUiBN4UcBxVsQ2Twb18tfmgmlylCFpcpQhY-scaled.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/YOsO4Pfe4gbtlZSGznqn9c3pu0tN1Nrdcjd0anI3dGo-scaled.jpeg)
+
+
+因疫情封控政策，非封控区医院暂停收治来自封控区的病人，而封控区内医院则闭门停诊，导致浦东等封控区的危疾病人，无法入院治疗，加上目前封控区不断有阳性个案确诊，解封之日遥遥无期，令不少民众哀叹，“除了新冠肺炎是病，其他疾病都不配算病。”
+
+來源｜微博
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

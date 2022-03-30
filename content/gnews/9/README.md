@@ -2,40 +2,33 @@
 ---
 
 
-## 有声|前英超球星将与盖特合作 进行直播
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258558/)
+## 有声|日本对接种中共病毒疫苗的政策出现转变
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258750/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-盖特官方28日消息，前英超球星、天空体育广播员马特·勒蒂西尔在接受采访时表示，他将与盖特合作制作每周直播节目。在那里，他将讨论体育、政治和生活，并与他的粉丝们进行互动。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月26日，日媒报道了本国多个疫苗后遗症的案例，以及日本国内对接种中共病毒疫苗政策的转变。
 
-勒蒂西尔说：“盖特对言论非常尊重。这是一种非常不同的体验，而且比在推特上更愉快。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide14-3.jpg)
-这位前南安普顿球员以前从未大量参与政治活动，但在经历了中共病毒大流行期间的取消文化后，他称自己被“唤醒”了。他说，英国现在审查并控制人们的言论、政府几乎接管了所有电视台，如果它们不符合政府的说法，就会被受到威胁，而他自己反对管控或扼杀任何反对政府的言论。他警告说，英国正在变得像中共一样失去言论自由。
+在疫苗后遗症的案例中，有热爱体育的中学生因接种疫苗而几乎无法走路，并且造成其家庭近乎支离破碎。还有大学教师在接种后，长时间出现头晕、难以入睡、大脑反应迟钝等症状。
 
-作为一名足球运动员，勒蒂西尔曾为南安普顿出场 443 次，打进 161 个球，并为英格兰国家队出场 8 次。在为南安普顿队效力 17 年后，他成为天空体育周六足球节目的一员。
+对此，一直提醒大家正视疫苗后遗症的长尾和宏医生再次表示，他反对给儿童接种中共病毒疫苗。并呼吁作为监护人的父母，花时间学习病毒和疫苗相关知识，仔细想想对孩子最好的选择后再做决定。
 
+目前，日本厚生劳动省依旧没有将人们在接种后出现的长期副作用认定为疫苗后遗症，但已经呼吁日本各地方政府，积极收治接种中共病毒疫苗后出现长期不良反应的国民。同时，大阪府泉大津市市长决定，取消向每个家庭发放接种证。
 
+文字版原文：[日本对接种中共病毒疫苗的政策出现转变](https://gnews.org/zh-hans/2251648/)
 
-文字版原文：[前英超球星将与盖特合作 进行直播](https://gnews.org/zh-hans/2251919/)
+音频处理：Fei797
+发稿：Fei797
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

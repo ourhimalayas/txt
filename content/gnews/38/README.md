@@ -2,22 +2,18 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 地产债务爆雷 引发社会动荡
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2257882/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+文贵大直播20220330
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+撰稿：Nine Lee（DC）
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
+美工：新宝（银河系）
 
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
-
-* * *
-
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+书法：沙漠之花（香草山）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片1-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片2-23.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片3-24.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片4-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片5-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片6-22.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/幻灯片7-18.png)
+*发布：Theodosia*
 
  
 

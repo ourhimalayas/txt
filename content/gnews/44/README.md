@@ -2,26 +2,23 @@
 ---
 
 
-## 樱花时政┃中共野蛮防疫 高校女生殒命
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2255880/)
+## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
 
-撰稿：东京樱花团/秋明
+**疫情关注组** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
 
-3月24日，山西财经大学一女生操场跑步突发心梗，120救护车到达，保安以疫情为由不让救护车进校，耽误了25分钟最终致该女生抢救无效死亡。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-63.jpg)
-学生家长无法接受，父亲在学校呼喊：“还我女儿，学校不让看监控”，向学校讨要说法。
+FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
 
-同学仗义传播真相，称学校领导不作为，强压热搜想息事宁人，该事件在网络迅速传播开来。
+疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
 
-校方领导以及老师们第一时间展开调查，很快就抓出来全部将此事发到网络上的学生们，
+來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
-正义的财大学生勇敢质疑校方领导：就算查到我又有什么用呢？我一个人倒下去了，还会有万万个人站出来……
+* * *
 
-因为疫苗产生的次生灾害已经慢慢开始发酵，因为中共野蛮防疫造成病人延误救治而身亡的悲剧，这几天一出又一出上演，悲愤之余，这些敢于直言的大学生让我们看到一线希望，如果推翻防火墙，大部分有良知的国人都会明辨善恶！
+**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

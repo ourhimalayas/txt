@@ -2,32 +2,28 @@
 ---
 
 
-## 美国军队高层命令军医对军人疫苗伤害保持沉默
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258445/)
+## 俄假撤军！乌总参谋部揭诡计：目的是要误导乌军
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258564/)
 
-.
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯29日承诺，将大幅减少对乌克兰首都基辅、东北部切尔尼戈夫的军事行动，撤离部分军力。对此乌克兰武装部队总参谋部呼应美国国防部说法，认为俄军行动可能是诡计，只是部队轮换，目的就是要误导乌克兰军方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phphrBThm.jpg)图片来源：美联社
+乌克兰武装部队总参谋部稍早在脸书上表示，俄罗斯部队持续从基辅和切尔尼戈夫撤离，将主要军力放在乌克兰东部顿巴斯地区上，但总参谋部强调，这样的「撤军」可能只是个别单位的轮换罢了。
 
-##### 作者：加拿大温哥华扬帆农场 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-68.jpg)
-美国[西方杂志]新闻网站29日报道，陆军飞行外科医生在佛罗里达地区法院作证时称，来自高层指挥部的命令，不得提及“国防医学流行病学数据库”中疫苗不良事件的问题。
+总参谋部认为，俄军这样的行为，目的就是要误导乌军指挥官，制造没有要包围基辅的假象。
 
-在为一名拒绝注射疫苗的海军军官作证时，她说数据库信息很重要也很相关，因为疫苗导致军人的中枢神经系统出现“脱髓鞘”疾病。几位军医作证时称，不断收到疫苗伤害的军人报告，特别来自于最高体能标准的飞行员；国防部的疫苗政策为确保全员接种而拒接军人的宗教豁免，士兵们很沮丧甚至出现自杀事件；打了两剂的军人至少有75%仍然感染病毒，而未接种疫苗的感染率为15%。他们认为疫苗既不安全也无效，鼻腔冲洗和服用伊维菌素可以治疗病毒感染。尽管在法庭上作证军队的疫苗伤害，可能让他们失去一切，但因不愿看到军人们被彻底摧毁而让他们义无反顾。也为法官秉持正确判断而取得的进展欢呼。
+简评：俄军假撤兵的诡计已被全世界揭穿，普京只要不停战没有人相信俄军会真正的撤兵，只是拖延下时间准备新一轮的进攻，乌军枕戈待旦岂能这么容易被麻痹。独裁者只有被彻底的消灭，否则不会低下狂妄的头颅，需警惕俄罗斯短暂撤军后使用更大规模的杀伤武器来攻击基辅！
 
-原文链接：[Military Doctor Testifies in Court: High-Level Command Ordered Her Silence Over Frightening Vaccine Data](https://www.westernjournal.com/military-doctor-testifies-court-high-level-command-ordered-silence-frightening-vaccine-data/?utm_source=Twitter&amp;utm_medium=PostSideSharingButtons&amp;utm_campaign=websitesharingbuttons)
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876295](https://news.ltn.com.tw/news/world/breakingnews/3876295)
 
-编辑/上传 – 大废墙
-素材/采编 – 薇文
-翻译 – 薇文
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+撰稿/发布：一叶知秋
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
