@@ -2,18 +2,40 @@
 ---
 
 
-## 中共外交部回应中共国是否可作为俄乌和平协议的担保方
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2258734/)
+## Facebook广告商可就广告费率提起集体诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2258850/)
 
-撰稿：追着曙光跑
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3857-edited-2.png)图片来源：reuters.com
+3 月 29 日（路透社）——美国法官周二裁定，指控脸书元宇宙平台Meta在其“潜在影响力”工具方面欺骗广告商的诉讼，可以作为集体诉讼进行。
 
-据中共国新浪网站3月30日的报道，中共外交部发言人汪文斌在回答俄通社-塔斯社记者提问，对“中共国是安理会的常任理事国，是否可以当俄乌和平协议的担保方”做出了回答。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-31-at-12.16.33-AM.jpeg)图片来源：网络
-汪文斌表示，中共支持和鼓励一切有利于和平解决乌克兰危机的外交努力，乐见俄乌双方对话谈判。中共一贯主张重视各国合理安全关切，愿同国际社会一道倡导共同综合合作可持续的安全观，支持建立均衡有效可持续的欧洲安全机制。中共一直在为和平尽力，将继续以自己的方式为推动乌克兰局势缓和发挥建设性作用，同各方一道朝着争取俄乌冲突尽快解决，欧洲尽快恢复和平的大方向作出努力。
+美国旧金山地区法官詹姆斯·多纳托 (James Donato) 的决定允许自 2014 年 8 月 15 日以来，在 Facebook 及其照片共享应用程序 Instagram 上支付广告费用的数百万个人和企业，作为一个群体提起诉讼。
 
-郭文贵先生在3月23日大直播透露：俄乌战争可能会有戏剧性的发展，中共国可能站出来作为俄乌战争的调节国，做担保人。把西方和欧洲承诺的，以及乌克兰接受的条件，让俄罗斯普京履行承诺。再次证明了郭先生的情报的准确性。
+该诉讼始于 2018 年，当时，DZ后备队（ DZ Reserve） 和其他广告商指责 Facebook 夸大其广告覆盖面，将潜在观众数量增加多达 400%，并人为地收取高额的广告投放溢价。
 
-信息来源：[中国是否可以当俄乌和平协议的“担保方”？外交部回应](https://news.sina.com.cn/o/2022-03-30/doc-imcwipii1436103.shtml)
+他们还表示，Facebook 的高级管理人员多年来都知道该公司的“潜在影响力”指标被重复和虚假账户夸大了，但却没有采取任何措施，但却掩盖它。
+
+在指出 Meta 对类别认证的“大错特错”反对意见后，法官多纳托驳回了其关于该类别过于多样化的论点，包括“大型复杂公司”以及个人和小型企业，并且很难计算损害赔偿。
+
+多纳托还表示，考虑到“没有合理的人”会单独起诉 Meta 以追回最多 32 美元的溢价，所以让个别原告作为一个群体起诉是有道理的。
+
+预计法官将在今年晚些时候考虑 Meta 提出的驳回诉讼请求。
+
+素材链接：[Facebook advertisers can pursue class action over ad rates](https://www.reuters.com/business/facebook-advertisers-can-pursue-class-action-over-ad-rates-2022-03-29/?utm_source=Sailthru&amp;utm_medi)
+
+* * *
+
+审核：文乐
+校对：小乐
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
 
  
 

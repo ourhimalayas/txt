@@ -2,37 +2,35 @@
 ---
 
 
-## 有声|乌克兰提出以中立换取北约式的安全保障
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259045/)
+## 2020财年日本的出国留学生因疫情剧减98%
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2259092/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-据[ONA](https://www.oann.com/ukraine-offers-neutrality-in-exchange-for-nato-style-security-guarantees-at-russia-talks/) 援引路透社3月29日的报道，乌克兰谈判代表周二表示，在与俄罗斯在土耳其举行的会谈中，乌克兰提议采取中立地位以换取安全保障，这意味着它不会加入军事联盟或拥有军事基地。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-29T121526Z_1_LYNXNPEI2S0LS_RTROPTP_0_UKRAINE-CRISIS-TURKEY-TALKS_1.jpg)2022年3月29日，俄罗斯对乌克兰的攻击仍在继续，在土耳其伊斯坦布尔，乌克兰代表团成员出席与俄罗斯谈判代表的会谈。（乌克兰总统新闻处/通过REUTERS发布消息）
-这些建议还设想按照北约军事联盟的第5条，即集体防御条款提供安全保障。波兰、以色列、土耳其和加拿大可能是潜在的安全保证人。
+共同社3月30日报道，周三的一项调查显示，2020财年出国留学的日本学生人数比一年前跳水98.6%，至1487人。因为疫情大流行期间严格的边境管制迫使许多学生取消或推迟了学习计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/s-1.jpg)japantimes.co.jp
+调查还显示，截至2021年5月，在日本的大学、日语学校和其他教育机构就读的外国学生人数比一年前下降了13.3%，为242444人。其中，9.1%或21,945名学生不能来日本，不得不在网上学习。
 
-乌克兰和俄罗斯的谈判代表周二在土耳其举行了近三周以来的首次面对面会谈。由于乌克兰军队将俄罗斯人从基辅逼退，乌克兰寻求在不损害领土或主权的情况下实现停火。
+日本学生服务组织进行的调查发现，2020财年日本出国留学人数创下历史新低，并记录了自2009财年有可比数据以来的最大降幅。
 
+调查涵盖了属于日本大学和其他机构的学生。那些从日本高中毕业后直接进入海外大学的学生和在海外学校上网络课程的学生被排除在外。
 
+至于目的地，韩国排名第一，有265名日本学生，比前一年减少6,970人；其次是美国，有240人，减少17,898人；加拿大有189人，减少9,135人。
 
-文字版原文：[乌克兰提出以中立换取北约式的安全保障](https://gnews.org/zh-hans/2254232/)
+数据显示，在日本学习的外国学生中，中国人占了最大的群体，有114,255人，比前一年减少了7,590人，其次是越南，有49,469人，减少了12,764人。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+调查显示，日本大学等高等教育的国际学生人数减少了16,906人，至201,877人，而日本语言学校的数字则减少了20,247人，至40,567人。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“我们预计病毒感染情况将得到改善，国际旅行将恢复。我们将努力为学生提供信息和其他支持。”一位日本教育部官员说。政府还打算进一步放松边境管制措施，以增加国际学生的数量。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**快评**：刚好看到日本媒体今天做了这个调查新闻，疫情大流行不仅让日本出国的留学生剧减，到日本求学的外国留学生也同样减少很多。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+放眼望去，哪个国家的留学生人数不因疫情的各种限令而锐减？能赶上正常上学的莘莘学子大多数又被逼着强打了疫苗。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+各个高等院校不能正常经营，财政出困难是必然。然后这些学生，疫苗灾难要毁掉多少年轻人呢？太可怕了！
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+参考链接：
+[https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html](https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
