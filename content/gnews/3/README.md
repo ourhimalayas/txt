@@ -2,53 +2,35 @@
 ---
 
 
-## 诗歌《这一年的生死证据》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259724/)
+## 封校第一天
+` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2259730/)
 
-整理：vale
+作者：润丽
+编辑发稿：am夏天
+德国纽伦堡正义农场
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+今天是极其忙碌又觉得释然的一天，因为我所在的学校封了，不进也不出 ，后来才知道 ，所有学校都放假了。
+早上7：25，得到封校通知，顾不得吃饭，忙不迭的下通知，联系人员 ，安排工作。因聆听郭先生教导，疫苗灾难只是早晚问题。没有惊慌 ，有序准备。
+济南这次没有得到泰山奶奶的庇佑，在坚挺了三年之后 ，终于爆发。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0942.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-30-at-22.01.18.png)
 
-## **这一年的生死证据**
+我始终认为封校，封小区 ，疫情只是表面现象，封城另有阴谋 ，就是让人们臣服于威权，从而达到他们的目的。
 
-作者：俞心樵
+忙了一天，已经半夜12点了，安排好了所有人员的吃饭和住宿 ，却没有了睡意,明天又会咋样……
 
-这一年血写的雪
-像不远处的幸福
-晃得我睁不开眼
+共产党以封校，封城为借口，肆意妄为，罔顾生命。
 
-这一年因瘟疫去世的每一个人
-政府都将给他们足够的补偿金
-前提是必须死者本人提出申请
 
-我笑了。就在熄灯之后
-因为我笑得过于苦涩丑陋
-愿黑暗抹去生活的全部细节
 
-等到旧衣服磨损得快要透明，我们
-就可以在天亮之后，换上新的灾难了
-云朵就是我在大地上曾经生活过的证据
 
-2020.2.17.简言居
 
-* * *
 
-审核：Aries的星
-校对：小东
-发布：信心的选择
 
-当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Screenshot-2022-03-30-at-22.01.36.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
