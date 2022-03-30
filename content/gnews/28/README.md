@@ -2,35 +2,22 @@
 ---
 
 
-## 欧盟4国联手驱逐数十名俄罗斯外交人员
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2256605/)
+## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+**疫情关注组** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
 
-据《中央社》3月29日报道，在俄罗斯入侵乌克兰阴影下，比利时、荷兰、爱尔兰和捷克等欧盟国家，今日宣布联手驱逐涉嫌从事间谍活动的数十名俄罗斯外交人员。
+FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-367.png)（图片来自路透社）
+疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
 
-据报道，比利时外交部长威尔梅斯（Sophie Wilmes）指出，比利时将驱逐俄罗斯驻布鲁塞尔大使馆和安特卫普（Antwerp）领事馆21名外交人员，给他们2周时间离境。
+來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
-她表示，比利时的行动与邻国荷兰一致。荷兰外交部表示将驱逐17名被视为和情报人员一样“暗中活跃”的俄罗斯外交人员。
+* * *
 
-爱尔兰外交部长柯伏尼（Simon Coveney）则说，俄罗斯驻都柏林（Dublin）使馆4名“高阶官员”因为从事不符“国际外交行为标准”的活动，意指4人从事间谍活动，已被要求离开爱尔兰。
-
-另外，捷克外交部也指出，俄罗斯驻布拉格1名外交官已被给予72小时离境。捷克官员说，这名外交官是俄罗斯大使馆副馆长。
-
-捷克外交部推文表示：“我们正与盟邦一起减少俄罗斯在欧盟的情搜活动。”
-
-对于欧盟国家的这一举动，俄罗斯发出声明，对此“不友善”之举表达愤怒，并矢言报复。
-
-此前，为向俄罗斯政府施压，东欧4国家（爱沙尼亚、拉脱维亚、立陶宛和保加利亚）已于3月19日驱逐了20名俄罗斯外交官，因其违反《维也纳外交关系公约》的活动，为俄罗斯的军事行动进行辩护宣传。
-
-参考链接：
-1.[https://www.cna.com.tw/news/aopl/202203300081.aspx](https://www.cna.com.tw/news/aopl/202203300081.aspx)
-2.[https://www.epochtimes.com/b5/22/3/19/n13657592.htm](https://www.epochtimes.com/b5/22/3/19/n13657592.htm)
-
-总编：老孙
-校对发布：爱放飞
+**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
 
  
 

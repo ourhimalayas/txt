@@ -2,22 +2,25 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 俄罗斯外长抵达中共国，可能寻求对入侵乌克兰的支持
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2256618/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+翻译：Orpheus
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+俄罗斯外长拉夫罗夫在乌克兰被持续入侵的情况下已经抵达中国。 与王毅外长的会晤可能很快举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3786.png)图片来源：雅虎新闻
+拉夫罗夫外长今天上午抵达中共国东部的安徽机场。 今明两天，除了中国与俄罗斯，还有巴基斯坦与伊朗等六国的外交部长将出席会议。
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+这是自俄罗斯开始入侵乌克兰以来拉夫罗夫外长首次访问中共国，预计他将在阿富汗局势会议前后与王毅外长会面，就乌克兰局势交换意见。 中共国一贯采取亲俄立场，俄方有可能会寻求一些支持。
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
-
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+参考链接：[ロシア外相が中国到着 ウクライナ侵攻の支援を求める可能性（ABEMA TIMES） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4802c15bdc42cc86fce398880796d80bb79a88f8)
 
 * * *
 
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+审核：BryanW
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+
 
  
 

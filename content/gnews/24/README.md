@@ -2,26 +2,20 @@
 ---
 
 
-## 联合国：俄罗斯拦截黑海粮食运输船只
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2256643/)
+## 俄乌战争｜俄外长喊话：中俄处在史上最坚固关系
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256743/)
 
-**撰稿：日本东京方舟农场 北极**
+**港台前线** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-30.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+外媒报导，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）预计在明日出席中、俄、巴基斯坦、伊朗等六国组成的阿富汗局势国际会议后，将与中共外长王毅会晤。日媒猜测，中俄外长会晤是为交换乌克兰局势的意见，且中共一贯采取亲俄立场，俄方恐循求中共的帮助。
 
-据乌克兰信息报（ukrinform）3月30日报道，俄罗斯海军封锁黑海地区，拦截90多艘为世界各大市场运送食品的民用船只。
+拉夫罗夫对媒体强调，俄罗斯与中共的关系正处于史上最坚固的层级。路透报导，北京多次反对西方联合制裁莫斯科，并坚持与俄维持正常经济与贸易往来，拒绝谴责俄罗斯对乌克兰的侵略行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-33.png)俄罗斯军舰。（图片来自ukrinform）
+来源｜[YAHOO JAPAN](https://news.yahoo.co.jp/articles/4802c15bdc42cc86fce398880796d80bb79a88f8)、[Newtalk](https://newtalk.tw/news/view/2022-03-28/730687)
 
-美国副国务卿温迪·露丝·谢尔曼（Wendy Ruth Sherman）在3月29日的联合国安理会简报会上表示，俄罗斯海军封锁了黑海和地中海之间的水路航线，拦截了大约94艘为世界市场运送食品的船只。俄罗斯海军还轰炸了至少三艘从黑海港口运往世界其他地区的民用船只。
+* * *
 
-谢尔曼指出，世界上30%的小麦、20%的玉米和75%的葵花籽油出口来自黑海地区。俄罗斯海军基本上切断了粮食出口，普京战争的后果远远超出了对乌克兰造成的巨大损失和伤害，还直接影响到全球粮食安全。
-
-根据人权观察组织的数据，俄罗斯入侵乌克兰加剧了中东和北非的粮食危机。
-
-参考链接：
-https://reurl.cc/LpEr0x
-
-总编：老孙
-校对发布：Linda
+**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
 
  
 
