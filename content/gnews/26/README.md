@@ -2,45 +2,25 @@
 ---
 
 
-## 那些仍在购买俄罗斯原油的公司名单
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2256468/)
+## 俄罗斯外长抵达中共国，可能寻求对入侵乌克兰的支持
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2256618/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：Orpheus
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+俄罗斯外长拉夫罗夫在乌克兰被持续入侵的情况下已经抵达中国。 与王毅外长的会晤可能很快举行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3786.png)图片来源：雅虎新闻
+拉夫罗夫外长今天上午抵达中共国东部的安徽机场。 今明两天，除了中国与俄罗斯，还有巴基斯坦与伊朗等六国的外交部长将出席会议。
 
-翻译/编辑：小红帽
+这是自俄罗斯开始入侵乌克兰以来拉夫罗夫外长首次访问中共国，预计他将在阿富汗局势会议前后与王毅外长会面，就乌克兰局势交换意见。 中共国一贯采取亲俄立场，俄方有可能会寻求一些支持。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/123477646_gettyimages-1094171426.jpg)图片来源：BBC
+参考链接：[ロシア外相が中国到着 ウクライナ侵攻の支援を求める可能性（ABEMA TIMES） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4802c15bdc42cc86fce398880796d80bb79a88f8)
 
+* * *
 
-根据Aljazeera 3月29日报道，在莫斯科入侵乌克兰后，包括美国在内的几个西方国家全面禁止俄罗斯能源进口，但依赖俄罗斯石油和天然气的主要欧洲经济体因为欧盟的分歧而避开了这个严厉的措施。
+审核：BryanW
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
 
-在俄罗斯的侵略引发了几十年来最大的难民危机之后，澳大利亚、英国、加拿大和美国已经禁止进口俄罗斯的石油。
-
-迄今为止，欧盟27个成员国未能就禁运达成一致，德国警告不要采取可能将经济推入衰退的仓促措施，而匈牙利等一些国家则反对任何禁令。
-
-欧盟禁运需要所有27个成员国的一致批准。
-
-许多欧洲买家自愿避开俄罗斯原油，以避免声誉受损或潜在的法律纠纷。
-
-大宗商品交易商Trafigura和Vitol等公司继续根据现有长期合同购买俄罗斯原油。
-
-然而，这两家公司都告诉路透社，自俄罗斯入侵乌克兰以来，他们没有达成任何新的交易。
-
-拒绝谴责俄罗斯行动的印度和中共国也继续购买俄罗斯原油。
-
-以下列出了俄罗斯石油的主要买家：
-
-Neftohim Burgas、MiRo、PCK Schwedt、Pertamina、Leuna、Hellenic Petroleum、ISAB、MOL、Zeeland Refinery、Rotterdam Refinery、Hindustan Petroleum、Indian Oil Corporation、Nayara Energy。
-
-新闻来源：[List of companies still buying Russian crude oil](https://www.aljazeera.com/news/2022/3/29/who-is-still-buying-russian-crude-oil)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

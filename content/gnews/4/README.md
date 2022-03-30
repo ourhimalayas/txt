@@ -2,26 +2,25 @@
 ---
 
 
-## 樱花时政┃美国司法部将对抗中共国间谍活动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257241/)
+## 樱花时政┃德国对俄罗斯经济命脉再出重拳
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257350/)
 
-撰稿：东京樱花团/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
-2月23日，美国司法部对外宣布，将终止“中国倡议”，并将实施新的“对抗民族国家威胁的战略”。该战略涉及中共国、俄罗斯、伊朗以及朝鲜等国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7-50.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.uucj.com%2Fcn%2Fwp-content%2Fuploads%2F2021%2F10%2F2021100801215720.jpg&amp;imgrefurl=https%3A%2F%2Fwww.uucj.com%2Farchives%2F212520&amp;tbnid=QPJYMaPdZhTcCM&amp;vet=12ahUKEwj83aCPx-32AhWSt6QKHarYCyoQMygCegUIARCqAQ..i&amp;docid=moakC2bu6TWwVM&amp;w=900&amp;h=447&amp;q=%E7%BE%8E%E5%9B%BD%E5%8F%B8%E6%B3%95%E9%83%A8&amp;ved=2ahUKEwj83aCPx-32AhWSt6QKHarYCyoQMygCegUIARCqAQ)
-鉴于中共对美国造成的持续的国家安全威胁，以及司法部该项新战略的不明确性，共和党参议员致信司法部，要求其正式承认中共对美国国家安全构成的威胁并重新确定其优先次序，并要求重新考虑解散中国倡议的决定。具体来说，要在新的战略中看到打击中共间谍活动和其他非法活动的执法努力。
+撰稿：东京樱花团/风翼
 
-新闻来源：[Biden DOJ Kills Trump-Era Program To Catch Chinese Spies](https://www.zerohedge.com/geopolitical/biden-doj-kills-trump-era-program-catch-chinese-spies)
+据乌克兰多媒体新闻平台报道：德国外长贝尔博克3月30日在德国外交部组织的“柏林能源转型对话”论坛上发表了讲话，她说俄罗斯对乌克兰的入侵不仅使数百万人遭受痛苦，而且使欧洲明白，这场战争也关系到了21世纪的地缘政治和具体的安全保障问题，现在至关重要的是必须完全脱离从俄罗斯化石燃料的进口。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-11.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+德国外长贝尔博克还表示，虽然德国在短期内将继续从其他国家进口天然气和石油，但从长期的角度来看，最终的目标将是从进口能源过渡到本国的自身可以实现的再生能源。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-183.png)图片来源于网络
+
+自冷战结束，东德和西德统一之后就与俄罗斯成为了战略伙伴关系。而其中最重要的因素之一就是能源。德国需要俄罗斯的能源，俄罗斯需要德国的能源基础设施的投资。但随着俄国一系列的侵乌武装行动，两国关系开始变得消极。从德国取消在德国的俄罗斯电台，到进口俄罗斯石油量减半到最终的取消进口。不难看出，德国以重新整理了政治立场将与欧盟并肩从银行、石油等方面一步步对其进行全面制裁。而俄罗斯一向用能源制衡欧盟的目的被打碎，用能源经济支持国内经济和战事的情景显而易见以很不乐观了。
+
+信息来源：
+[ベーアボック独外相、露発エネルギーの輸入を完全に止める意向を発表](https://www.ukrinform.jp/rubric-economy/3443464-beabokku-du-wai-xiang-lu-faenerugino-shu-ruwo-wan-quanni-zhimeru-yi-xiangni-yan-ji.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
