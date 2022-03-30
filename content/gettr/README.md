@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 7:33 PM (UTC)`
+
+There are still many refugees hiding in basements in Ukraine, suffering from food and clothing shortages. A truck will deliver the supplies at the New Federal State of China (NFSC) rescue base to Ukraine, and deliver them to those refugees who really need them.<br/>在乌克兰境内，还有很多难⺠躲在地下室，缺少衣物和⻝物。一辆卡车将运送新中国联邦救援基地的物资到乌克兰境内，送达需要的难⺠手里。<br/>#ukrainerescue #nfsc新中国联邦 #ukrainehotline
+![img](https://media.gettr.com/group5/origin/2022/03/30/19/55c91dc7-4ab6-c757-982d-7148d763774e/out.jpg)
+
+---
+
+`@miles 3/30/2022 7:29 PM (UTC)`
+
+【Ukraine Rescue】03/29/22 <br/>ROLF&NFSC Ukraine Humanitarian Rescue Operation is reported by Polish Magazine- Tygodnik Solidarność which was first published over 40 years ago. <br/>The reporter introduces NFSCer in headlines:  We are the new Chinese people who are taking down the evil Chinese Communist Party, and we stand with Ukrainian and Poles! NFSC volunteers set up the largest tent in Medyka and ROLF provides free evacuation buses. In this article, it is also mentioned the Covid is CCP-Virus, which was intentionally unleashed by the CCP as a biological attack upon the world.<br/><br/>【乌克兰救援】03/29/22 <br/>法治基金&新中国联邦乌克兰国际人道救援行动登上波兰当地杂志《团结周刊》，该杂志创刊40余年；新中国联邦志愿者搭建了Medyka最大的帐篷，法治基金提供免费救援巴士；记者用大字介绍新中国联邦人： 我们是消灭中国共产党的新中国人，我们和乌克兰及波兰人民站在一起！并且文中提到了Covid即CCP病毒，是中共蓄意释放，危害全世界的生物武器！
+![img](https://media.gettr.com/group42/origin/2022/03/30/19/4a5e6091-d30e-314d-5447-d98db9e0332a/out.jpg)
+
+---
+
 `@miles 3/30/2022 6:47 PM (UTC)`
 
 新中国联邦战友献给乌克兰人道主义援助所有的义工战友们《红色的流星》<br/><br/>宝宝们在哭啼<br/>爆炸声中开始的回忆<br/>爸爸妈妈在此分离<br/>流离失所又能去哪里<br/>我们向往的自由和安宁 已成了废墟<br/>昨日路过的小树林 遍地尸横的血腥<br/><br/>就算那红色的流星已点燃城市的夜晚<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>我们想要的是和平<br/>没有战争 也没有分离<br/>是谁带来如此厄运<br/>是谁无私呵护着生命<br/>新中国人的正道主义 绝不会放弃<br/>美迪卡的人道小径  我们会守护着你<br/><br/>就算那红色的流星已点燃世界的黑暗<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>流离的人啊 停下脚步吧  <br/>我们想要和平安宁没有分离, 弥漫温暖<br/>破碎的心啊, 勇敢吧，相依在帐篷的你我 唱这首歌
@@ -147,20 +161,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 2022.03.29  NFSC finance 新中国联邦 | 喜财经 第2期
 ![img](https://media.gettr.com/group40/origin/2022/03/30/02/5a39b001-6867-e0ad-b38a-88da4e162157/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/30/2022 1:10 AM (UTC)`
-
-2022.03.29 晚《新中国联邦新闻访谈》联合国基本解体-中印俄出局；美国是最大的赢家；世界格局将巨变；拜登演讲里的最大赢家是无苗灭共有币的新中国联邦人。
-![img](https://media.gettr.com/group30/origin/2022/03/30/01/6139f631-3b76-fc45-f1d6-66a77eae8d7f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/30/2022 12:29 AM (UTC)`
-
-2022.03.29 晚 《新中国联邦新闻》俄乌代表谈判后疑似中毒 怀疑俄罗斯强硬派所为； 拜登拒绝撤回“普京不应继续掌权” 澄清并非呼吁政权更迭
-![img](https://media.gettr.com/group14/origin/2022/03/30/00/1121f886-e8e7-1197-2879-bdefda0a1a08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
