@@ -2,30 +2,22 @@
 ---
 
 
-## 拜登：尽管俄入侵乌克兰 美仍快速落实印太战略
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2255382/)
+## G7成员国在对俄能源问题上达成一致
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2255426/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6764-1.jpg)美国总统拜登（资料图）
-据法国国际广播电台3月29日报道，美国总统拜登表示，尽管俄罗斯入侵乌克兰引发危机，美国仍将焦点落实在印太战略。
+采编：青青 撰稿：文莱
 
-拜登在白宫会见新加坡总理李显龙时表示，“即使在我们处理欧洲危机的同时，我的政府仍强力支持快速落实印度太平洋战略”。
+据加拿大媒体【CTV新闻】3月28日报道，G7成员国主要经济体日前一致同意拒绝俄罗斯天然气出口要以卢布结算的要求，并重申合同的必要性，即规定付款结算的币种需为欧元或美元。
 
-俄乌战争打得不可开交，但是印太地区才是焦点，是中共全球战略的基础。习一尊坐镇中南坑，放眼全世界，为了搞乱全球、搞死美国，不惜代价发动战争。解决中共，就解决了战争问题、病毒问题和疫苗危机，以及所有国际上和中共国内的灾难。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-63.jpg)
 
-新闻参考链接：[拜登：尽管俄入侵乌克兰 美仍快速落实印太战略](https://www.rfi.fr/cn/%E6%8B%9C%E7%99%BB-%E5%B0%BD%E7%AE%A1%E4%BF%84%E5%85%A5%E4%BE%B5%E4%B9%8C%E5%85%8B%E5%85%B0-%E7%BE%8E%E4%BB%8D%E5%BF%AB%E9%80%9F%E8%90%BD%E5%AE%9E%E5%8D%B0%E5%A4%AA%E6%88%98%E7%95%A5)
+报道称，普京日前决定针对制裁俄罗斯的国家在使用天然气结算时需要支付卢布。此举旨在试图扶持卢布，因为如俄方发言人表示将不会提供免费的天然气，所以在买家购买卢布的时候，供不应求的局面也使得已经很高的天然气价格进一步走高。
 
-编辑：胖丁
+据悉，欧洲各国政府一直回避禁止从俄罗斯进口能源，因为欧洲从俄罗斯直接获得近40%的天然气和25%的石油，所以对天然气的抵制或禁运都涉及到经济产出的重大损失，特别是在战争导致的能源和原材料价格飙升之时。不过世界格局已经改变，G7成员国和欧盟的能源专员在对待制裁俄罗斯能源的问题上达成一致。
 
-* * *
+链接：[Ukraine: G7 rejects Russia’s demand to pay for gas in rubles | CTV News](https://www.ctvnews.ca/business/g7-countries-including-canada-reject-russia-s-demand-to-pay-for-gas-in-rubles-germany-1.5837494)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑/上传：文所未闻
 
  
 

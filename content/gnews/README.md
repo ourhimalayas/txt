@@ -15,32 +15,32 @@
 
 ---
 
-### [阿尔伯塔省欲创建北美加密货币中心](/content/gnews/1/README.md)
+### [上海封城，市民绝望向窗外撒钱](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [保守党领袖候选人希望将加拿大打造成世界区块链之都](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [弗吉尼亚州州长赠与签署解除学校口罩令的钢笔](/content/gnews/2/README.md)
+### [G7成员国在对俄能源问题上达成一致](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [阿尔伯塔省欲创建北美加密货币中心](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [弗吉尼亚州州长赠与签署解除学校口罩令的钢笔](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登：尽管俄入侵乌克兰 美仍快速落实印太战略](/content/gnews/3/README.md)
+### [俄称减少军事活动仍继续轰炸 泽伦斯基：乌克兰没那么天真](/content/gnews/6/README.md)
+ ` 蓝莲花农场`
+
+### [拜登：尽管俄入侵乌克兰 美仍快速落实印太战略](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大计划成为小型核反应堆出口国](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [有声|上海分区封锁控管 全民核酸检测](/content/gnews/5/README.md)
+### [有声|上海分区封锁控管 全民核酸检测](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [上海市极端防疫措施惹争议](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [有声|埃隆·马斯克及以色列总理宣布感染中共病毒](/content/gnews/7/README.md)
+### [有声|埃隆·马斯克及以色列总理宣布感染中共病毒](/content/gnews/9/README.md)
  ` MOSREC`
-
-### [渥太华大学放弃疫苗接种证明和口罩要求](/content/gnews/8/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [「X俄勇士」就是他！乌克兰蛇岛士兵平安归国获颁勋章](/content/gnews/9/README.md)
- ` 蓝莲花农场`
 
 ### [科学家试图制造一种“自我传播”的疫苗](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -60,14 +60,14 @@
 ### [马斯克已打疫苗仍感染中国病毒 他反对美国疫苗强制令](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印度小麦出口增加有望缓解粮食短缺](/content/gnews/16/README.md)
+### [独裁者视自己的士兵如草芥](/content/gnews/16/README.md)
+ ` 澳喜农场`
+
+### [印度小麦出口增加有望缓解粮食短缺](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯是否故意针对乌克兰的文化地标](/content/gnews/17/README.md)
+### [俄罗斯是否故意针对乌克兰的文化地标](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
-
-### [有声|中共洗脑工具之样板戏](/content/gnews/18/README.md)
- ` MOSREC`
 
 ### [3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`

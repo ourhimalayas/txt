@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|埃隆·马斯克及以色列总理宣布感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2255313/)
+## 拜登：尽管俄入侵乌克兰 美仍快速落实印太战略
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2255382/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_6764-1.jpg)美国总统拜登（资料图）
+据法国国际广播电台3月29日报道，美国总统拜登表示，尽管俄罗斯入侵乌克兰引发危机，美国仍将焦点落实在印太战略。
 
-另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
+拜登在白宫会见新加坡总理李显龙时表示，“即使在我们处理欧洲危机的同时，我的政府仍强力支持快速落实印度太平洋战略”。
+
+俄乌战争打得不可开交，但是印太地区才是焦点，是中共全球战略的基础。习一尊坐镇中南坑，放眼全世界，为了搞乱全球、搞死美国，不惜代价发动战争。解决中共，就解决了战争问题、病毒问题和疫苗危机，以及所有国际上和中共国内的灾难。
+
+新闻参考链接：[拜登：尽管俄入侵乌克兰 美仍快速落实印太战略](https://www.rfi.fr/cn/%E6%8B%9C%E7%99%BB-%E5%B0%BD%E7%AE%A1%E4%BF%84%E5%85%A5%E4%BE%B5%E4%B9%8C%E5%85%8B%E5%85%B0-%E7%BE%8E%E4%BB%8D%E5%BF%AB%E9%80%9F%E8%90%BD%E5%AE%9E%E5%8D%B0%E5%A4%AA%E6%88%98%E7%95%A5)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-文字版原文：[埃隆·马斯克及以色列总理宣布感染中共病毒](https://gnews.org/zh-hans/2251650/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

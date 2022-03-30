@@ -2,30 +2,38 @@
 ---
 
 
-## 「X俄勇士」就是他！乌克兰蛇岛士兵平安归国获颁勋章
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2255285/)
+## 有声|埃隆·马斯克及以色列总理宣布感染中共病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2255313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄军对蛇岛发动攻击，当时传出当地第一线13名士兵全数阵亡，后来乌克兰军方证实82名驻军还活着，只是一大部分遭到监禁。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
 
-25日两军交换俘虏，乌克兰以11位俄罗斯水手作为交换条件，让19名乌克兰水手平安获释，当时乌克兰议会宣布，其中包括传说中呛爆「俄罗斯军舰去你X的」原作者。
+另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ecb4bb86-906d-49ee-8786-5ffb78a81159.jpg)图片来源：乌克兰国防部
 
-乌克兰国防部揭开这名英雄的面纱，原来呛爆俄军「俄罗斯军舰去你X的」那个人就是贺理柏夫(Roman Hrybov)，他在25日获释，目前已经回到他的家乡切尔卡瑟州，更受到当地州长塔布鲁特斯(Igor Taburets)礼遇，颁发公民勋章表扬他的英勇事迹。
 
-简评：每一场战争都会留下一些传奇，「X俄勇士」作为俘虏不向敌人屈服勇敢的怒呛敌人，如今获救本就是一段传奇。乌克兰有千千万万这样的英雄，勋章赠英雄，「X俄勇士」获此勋章当之无愧！
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022330W0030](https://www.ftvnews.com.tw/news/detail/2022330W0030)
+文字版原文：[埃隆·马斯克及以色列总理宣布感染中共病毒](https://gnews.org/zh-hans/2251650/)
 
-撰稿/发布：一叶知秋
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

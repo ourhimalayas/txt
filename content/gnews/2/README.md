@@ -2,26 +2,22 @@
 ---
 
 
-## 弗吉尼亚州州长赠与签署解除学校口罩令的钢笔
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255385/)
+## 保守党领袖候选人希望将加拿大打造成世界区块链之都
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2255431/)
 
-##### 素材：小菠萝
-翻译：Annabelle
-校对：Lish
-字幕：蛮吉
-编辑：Mttfly
+采编： 文莱                        编译撰稿：自由法兰西🇫🇷
 
-美国弗吉尼亚州众议院周三（2月16日）通过法案，将该州学生在学校戴口罩与否的决定权交给了家长。当天下午，该州州长格伦‧扬金（Glenn Youngkin）将这项法案签署成了法律。扬金州长说：”能够签署参议院第739号法案，使之成为弗吉尼亚联邦的法律，这是我至高无上的荣耀。”随后，他将用来签署此法令的钢笔赠与九次因没戴口罩而被禁止上学的小女孩。
+加拿大网媒《千禧后》（The Post Millennial）3月28日报道，保守党领袖候选人普瓦里.耶弗尔周一在安省演讲中承诺，当选总理后将实行区块链经济，以减少政客和银行家对金融的操控，为加拿大人民提供更多的金融自由，包括拥有和使用加密货币等。
 
-视频来源：[Virginia’s new Governor Glenn Youngkin signs bill outlawing school mask mandates in the state, handing the pen to a girl who was suspended nine times from school for not wearing a mask.](https://twitter.com/michaelpsenger/status/1494063071203000321?s=21)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-72.png)
 
-*发布：Mttfly*
+区块链与数字货币的网络有关，是一种去中心化的金融形式，不受政府控制或通货膨胀的影响。普瓦里指责特鲁多政府助长了通货膨胀，正在毁掉加元，加拿大人应该有使用其他货币的自由。而加密货币被认为是最自由的经济形式，在中共国等许多独裁国家被禁止，自由党政府在大卡车运动期间也明确表达了对加密货币的反对。
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+普瓦里表示，现在是加拿大人重新夺回对自己财产和生活控制权的时候了，让加拿大再次自由！
+
+原文链接： [https://thepostmillennial.com/pierre-poilievre-wants-to-make-canada-the-blockchain-capital-of-the-world](https://thepostmillennial.com/pierre-poilievre-wants-to-make-canada-the-blockchain-capital-of-the-world)
+
+*编辑/上传：文所未闻*
 
  
 
