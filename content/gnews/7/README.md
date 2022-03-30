@@ -2,52 +2,22 @@
 ---
 
 
-## 世界卫生组织警告必须保持社会监督
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2259720/)
+## 加拿大将致力发展新型核能计划
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2259863/)
 
-作者：纽约香草山农场 – 四季
+加拿大温哥华扬帆农场    平民正道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据【加拿大广播公司】3月28日报道，萨斯喀彻温省、安大略省、新不伦瑞克省和阿尔伯塔省最近联合发布了通过[小型模块化核反应堆]来发展该国核能工业的战略计划。
 
+报道称，该计划中的新型核反应堆比传统的更小但更有效。因此，这使得相关设备能更容易被运输，安装和建造。据悉，每座[小型模块化核反应堆] 可产生三倍于传统反应堆的能量，并足以为 30多万个家庭全年供电。
 
+对此，各省相关部门表示，新的核能计划可为全国特别是偏远地区居民提供安全、可靠和清洁的电力来源。加拿大因此有望在未来成为该技术的主要输出国。
 
+文贵先生在日前的直播中也指出，未来的清洁能源必将成为全球工业发展的主导。而试图通过原油，天然气等制约欧洲和世界生存的时代即将一去难返。
 
+* * *
 
-据[布赖特巴特新闻网](https://www.breitbart.com/health/2022/03/30/w-h-o-warns-social-surveillance-must-remain-even-as-global-coronavirus-cases-plunge/)3月30日报道，世界卫生组织（W.H.O.）在周三警告说，即使全球中共病毒病例骤减，各国政府仍需要执行严格的社会监控水平，以阻止现在和未来任何可能的复发。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GettyImages-1234497798-640x480-1.png)ANDREAS SOLARO/AFP Getty Images
-
-美联社报道说，在过去的一周里，全球约有1000万新的中共病毒感染者和超过45000人死亡，而此前一周的死亡人数下降了23%。
-
-世界卫生组织全球六个地区都报告了病例发生率的下降，特别是东地中海（下降32%）、非洲（下降29%）和西太平洋（下降24%）。
-
-在欧洲，过去一周占全球所有新登记病例的49%，病例数下降了4%。
-
-面对全球病例下降的好消息，世界卫生组织仍然警告说，减少监测将会特别损害检测新的COVID变种的努力，并破坏潜在的反应。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/7A56C6B5-0CEF-4BE4-A299-18C9B1C9D5B3.jpeg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+编辑： 平民正道    发布：平民正道
 
  
 

@@ -2,40 +2,35 @@
 ---
 
 
-## Facebook广告商可就广告费率提起集体诉讼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2258850/)
+## 2020财年日本的出国留学生因疫情剧减98%
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2259092/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3857-edited-2.png)图片来源：reuters.com
-3 月 29 日（路透社）——美国法官周二裁定，指控脸书元宇宙平台Meta在其“潜在影响力”工具方面欺骗广告商的诉讼，可以作为集体诉讼进行。
+共同社3月30日报道，周三的一项调查显示，2020财年出国留学的日本学生人数比一年前跳水98.6%，至1487人。因为疫情大流行期间严格的边境管制迫使许多学生取消或推迟了学习计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/s-1.jpg)japantimes.co.jp
+调查还显示，截至2021年5月，在日本的大学、日语学校和其他教育机构就读的外国学生人数比一年前下降了13.3%，为242444人。其中，9.1%或21,945名学生不能来日本，不得不在网上学习。
 
-美国旧金山地区法官詹姆斯·多纳托 (James Donato) 的决定允许自 2014 年 8 月 15 日以来，在 Facebook 及其照片共享应用程序 Instagram 上支付广告费用的数百万个人和企业，作为一个群体提起诉讼。
+日本学生服务组织进行的调查发现，2020财年日本出国留学人数创下历史新低，并记录了自2009财年有可比数据以来的最大降幅。
 
-该诉讼始于 2018 年，当时，DZ后备队（ DZ Reserve） 和其他广告商指责 Facebook 夸大其广告覆盖面，将潜在观众数量增加多达 400%，并人为地收取高额的广告投放溢价。
+调查涵盖了属于日本大学和其他机构的学生。那些从日本高中毕业后直接进入海外大学的学生和在海外学校上网络课程的学生被排除在外。
 
-他们还表示，Facebook 的高级管理人员多年来都知道该公司的“潜在影响力”指标被重复和虚假账户夸大了，但却没有采取任何措施，但却掩盖它。
+至于目的地，韩国排名第一，有265名日本学生，比前一年减少6,970人；其次是美国，有240人，减少17,898人；加拿大有189人，减少9,135人。
 
-在指出 Meta 对类别认证的“大错特错”反对意见后，法官多纳托驳回了其关于该类别过于多样化的论点，包括“大型复杂公司”以及个人和小型企业，并且很难计算损害赔偿。
+数据显示，在日本学习的外国学生中，中国人占了最大的群体，有114,255人，比前一年减少了7,590人，其次是越南，有49,469人，减少了12,764人。
 
-多纳托还表示，考虑到“没有合理的人”会单独起诉 Meta 以追回最多 32 美元的溢价，所以让个别原告作为一个群体起诉是有道理的。
+调查显示，日本大学等高等教育的国际学生人数减少了16,906人，至201,877人，而日本语言学校的数字则减少了20,247人，至40,567人。
 
-预计法官将在今年晚些时候考虑 Meta 提出的驳回诉讼请求。
+“我们预计病毒感染情况将得到改善，国际旅行将恢复。我们将努力为学生提供信息和其他支持。”一位日本教育部官员说。政府还打算进一步放松边境管制措施，以增加国际学生的数量。
 
-素材链接：[Facebook advertisers can pursue class action over ad rates](https://www.reuters.com/business/facebook-advertisers-can-pursue-class-action-over-ad-rates-2022-03-29/?utm_source=Sailthru&amp;utm_medi)
+**快评**：刚好看到日本媒体今天做了这个调查新闻，疫情大流行不仅让日本出国的留学生剧减，到日本求学的外国留学生也同样减少很多。
 
-* * *
+放眼望去，哪个国家的留学生人数不因疫情的各种限令而锐减？能赶上正常上学的莘莘学子大多数又被逼着强打了疫苗。
 
-审核：文乐
-校对：小乐
-发布：夜来香
+各个高等院校不能正常经营，财政出困难是必然。然后这些学生，疫苗灾难要毁掉多少年轻人呢？太可怕了！
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+参考链接：
+[https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html](https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

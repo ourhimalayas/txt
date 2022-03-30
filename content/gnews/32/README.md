@@ -2,27 +2,40 @@
 ---
 
 
-## 阿尔伯塔省积极推动数字货币应用
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258626/)
+## Facebook广告商可就广告费率提起集体诉讼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2258850/)
 
-采编：加拿大温哥华杨帆农场 – 坐看云起时
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3857-edited-2.png)图片来源：reuters.com
+3 月 29 日（路透社）——美国法官周二裁定，指控脸书元宇宙平台Meta在其“潜在影响力”工具方面欺骗广告商的诉讼，可以作为集体诉讼进行。
 
-编译撰稿： 加拿大温哥华杨帆农场 – 文明(添草灭共)
+美国旧金山地区法官詹姆斯·多纳托 (James Donato) 的决定允许自 2014 年 8 月 15 日以来，在 Facebook 及其照片共享应用程序 Instagram 上支付广告费用的数百万个人和企业，作为一个群体提起诉讼。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1-14.jpg)图片来源：GNEWS
+该诉讼始于 2018 年，当时，DZ后备队（ DZ Reserve） 和其他广告商指责 Facebook 夸大其广告覆盖面，将潜在观众数量增加多达 400%，并人为地收取高额的广告投放溢价。
 
+他们还表示，Facebook 的高级管理人员多年来都知道该公司的“潜在影响力”指标被重复和虚假账户夸大了，但却没有采取任何措施，但却掩盖它。
 
-据加拿大【环球新闻】3月27日报道，阿尔伯塔省政府近日宣布，该省即将推出有关金融创新的立法来促进数字货币行业的发展。
+在指出 Meta 对类别认证的“大错特错”反对意见后，法官多纳托驳回了其关于该类别过于多样化的论点，包括“大型复杂公司”以及个人和小型企业，并且很难计算损害赔偿。
 
-对此，阿尔伯塔就业部长表示，已有多家数字货币领域的公司计划与该省相关机构合作，共同推动未来数字金融系统的应用。尽管数字金融业目前尚处于起步阶段，但该省计划通过创造良好投资环境，并最终成为北美地区数字资产交易及服务行业的中心。
+多纳托还表示，考虑到“没有合理的人”会单独起诉 Meta 以追回最多 32 美元的溢价，所以让个别原告作为一个群体起诉是有道理的。
 
-据悉，该省优惠的电力价格和丰富的天然气能源供应，在此前就曾吸引了大量加密货币采矿业务。目前，多家与数字资产保管、存储以及加密等设备制造有关的公司也开始在该省设立生产基地。
+预计法官将在今年晚些时候考虑 Meta 提出的驳回诉讼请求。
 
-校对编辑：硫酸羟氯喹64
+素材链接：[Facebook advertisers can pursue class action over ad rates](https://www.reuters.com/business/facebook-advertisers-can-pursue-class-action-over-ad-rates-2022-03-29/?utm_source=Sailthru&amp;utm_medi)
 
-发稿：文明(添草灭共)
+* * *
 
-新闻来源：[https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/](https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/)
+审核：文乐
+校对：小乐
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/西喜-14-19-1.jpeg)
 
  
 

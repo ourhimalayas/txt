@@ -2,35 +2,32 @@
 ---
 
 
-## 俄罗斯违背撤军承诺轰炸乌城市
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2259802/)
+## 美国与加拿大将合作支撑世界市场弹性
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2259946/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-71.jpg)
+据加拿大媒体【CTV新闻】3月29日报道，加拿大代表团日前会见了西弗吉尼亚州的民主党参议员和宾夕法尼亚州的共和党参议员，美方表示面对当前和未来的全球动荡，加拿大的企业和市场将帮助恢复北美经济的弹性。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+报道称，加拿大代表团还在华盛顿和各方探讨加拿大在俄乌战争期间可以作为能源、食物和矿业的主要替代来源，除了新冠大流行对全球供应链已造成的恶化外，俄乌战争会推高石油和小麦价格，所以加拿大与美国商讨将通过互帮互助以确保北美的市场具有弹性的同时，全力帮助欧洲，并保持供应链的完整性，以便各国公民在面对通货膨胀时不会受到巨大冲击。
 
+据悉，加拿大在短期内可将数十万桶石油运往美国进行精炼，但由于必须通过铁路运输，所以加拿大从长远来看需要建设更多基础设施，以便足够支撑并推动世界向前发展。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/O5YXYPKS2FDMJLMGLW5A7HKKVE.jpg)
+原文链接：[Ukraine: Canadian business leaders talk energy, food with U.S. | CTV News](https://www.ctvnews.ca/business/u-s-lawmakers-interested-in-canadian-energy-food-amid-war-in-ukraine-1.5839674)
 
+编辑/上传 – 大废墙
+素材/采编 – 青青
+翻译 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-图片来源：路透社
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-俄罗斯军队周三轰炸了基辅郊区和乌克兰北部一个被围困的城市，此前一天，俄罗斯军队承诺缩减那里的行动，西方认为这是一种让遭受重大损失的入侵者重新集结的策略。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-乌克兰和西方领导人曾警告称，莫斯科在周二伊斯坦布尔会谈中明显的和平姿态是为了重组未能占领基辅的部队。
-
-俄罗斯国防部周三表示，其部队已经在基辅和切尔尼戈夫附近实现了他们的目标，并正在重新集结以专注于“解放”东部分离的顿巴斯地区。
-
-乌克兰国防部发言人表示，乌克兰武装部队观察到俄罗斯军队从基辅和切尔尼戈夫地区撤出一些行动，但不认为这是莫斯科大规模撤军。
-
-乌克兰总统泽连斯基明确表示，他没有接受莫斯科所说的表面上的意思，乌克兰人不是天真的人，唯一可以信任的是具体的结果。俄罗斯入侵乌克兰是巨大的错误， 他们没有机会， 我们会赢。
-
-泽连斯基周三与美国总统拜登讨论了对乌克兰的更多援助以及对俄罗斯的进一步制裁。
-
-🔗 [https://www.reuters.com/world/europe/ukraine-isnt-naive-zelenskiy-says-after-russia-pledges-scale-down-attack-kyiv-2022-03-30/](https://www.reuters.com/world/europe/ukraine-isnt-naive-zelenskiy-says-after-russia-pledges-scale-down-attack-kyiv-2022-03-30/)
-
-编辑发表： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

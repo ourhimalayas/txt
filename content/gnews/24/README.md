@@ -2,36 +2,36 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年3月30日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2259191/)
+## 【G时新闻】FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2259248/)
 
-作者：香草山翻译部
+**播****报：加拿大温哥华扬帆农场**** –****【莉李鲤】**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
+**视频制作：加拿大温哥华扬帆农场 -【文雅】**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3868.png)
+大家好！今天的主题是FDA和CDC悍然决定为50岁以上美国人注射中共病毒疫苗第二加强针！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-30.png)
+据《国会山报》3月29日报道，周二，FDA（美国食品和药物管理局）为50岁及以上人群注射中共病毒（COVID-19）疫苗第二针开了绿灯。FDA说，任何50岁及以上的人，无论第一次注射的是哪种疫苗，都可以在第一次中共病毒疫苗加强针后至少4个月获得第二次加强针注射。
 
-文章仅代表作者本人观点，与Gnews无关
+对人类的谎言和谋杀又开始它的华丽伪装，我们希望这一次人们应该有一个清醒的认识，疫苗的真相就是通过注射制造病毒的长期和短期的传播源！
 
-视频参看：
-[2022.03.30早 《NFSC新闻》](https://gettr.com/streaming/p12nuoa0e4b)
-[2022.03.30早《NFSC新闻访谈》](https://gettr.com/streaming/p12nwdz35b2)
+值得注意的是，卫生官员们并没有就第二次中共病毒疫苗加强针注射的申请召开任何咨询小组会议。而FDA的一个外部专家小组之前不同意该机构领导人关于广泛扩大疫苗加强针使用的决定。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+报道指出，这一决定存在一些重大问题，包括第二加强针的保护作用将持续多久。此举可能会重新引发一场关于谁可能需要注射加强针以及美国疫苗接种运动的更广泛目标的激烈辩论。争论的焦点是，即使症状比较轻微，那注射疫苗加强针的目标是防止人们因中共病毒而住院，还是防止他们生病。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
+视频链接：[https://gettr.com/post/p12n3jiba29](https://gettr.com/post/p12n3jiba29)
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+编辑/上传：蔚蓝之境
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3869.png)
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3870.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
