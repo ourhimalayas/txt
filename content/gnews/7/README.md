@@ -2,38 +2,35 @@
 ---
 
 
-## 拜登称普京下台是表达内心正义怒火
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2255876/)
+## 澳洲再次承诺推行国家数字身份证
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2255961/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/03/good-85.png)
-外媒报道，美国总统拜登3月28日表示，他在26日于波兰发表演讲时，称普京不应该继续掌权的说法，是表达内心的正义怒火，并拒绝为此道歉。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-210.jpg)图源网络
-据悉，26日拜登在波兰华沙皇家城堡，就俄罗斯侵略乌克兰事件发表重大演说，脱稿说出“这个人不能继续掌权”，显然是在暗指普京。虽然事后白宫澄清说，拜登并不是在讨论普京政权更迭问，但28日拜登表示，他的言论是对普京残忍行径的愤怒表达，并非政策改变的宣示，也不对所说的话感到抱歉。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-拜登解释说，他关于普京的讲话是与俄罗斯人民对话，并且向全世界传达了他的看法，即普京的行为是完全不可接受的。拜登还暗示说，普京不应该继续领导俄罗斯政府，若是普京一意孤行，必将会成为世界的贱民。
+翻译/编辑：小红帽
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3874954](https://news.ltn.com.tw/news/world/breakingnews/3874954)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FEB2019_digital_identity_deep_dive_national_identity.jpg)图片来源：www.pymnts.com
 
 
+根据Biometric Update3月29日报道，澳大利亚的数字和数据部长做出了比以往更有力的承诺，以推进国家数字身份证系统的全面推广。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-469.jpeg)
+在最近的一次会议上，部长们同意“积极探索”数字身份的实施过程，并对个人数据的收集、报告和共享方式进行调整。
 
-编辑/校对/发稿：滚滚长江都是水
+在最近一次会议里，最后公报部分内容如下：“部长们同意积极探索采用国家数字身份生态系统。所有政府都在密切合作，将这一承诺转化为所有澳大利亚人的切实利益。这一整体经济解决方案将为澳大利亚带来显着的经济效益，并支持澳大利亚到2030年成为领先的数字经济和社会的愿景。部长们还指出了数字证书的互操作性和相互承认的重要性。
 
-**更多资讯，更多关注**
+尽管“可信数字身份法案”尚未通过，但西澳大利亚等一些州已经公布了自己的数字身份路线图。
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该法案是一项立法草案，定义了拟议的可信数字身份系统的建立、组织和运作。自启动以来，该系统迄今已耗资4.5亿澳元（3.37亿美元）。
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+新闻来源：[Australia recommits to national digital ID push, UK to introduce One Login from April](https://www.biometricupdate.com/202203/australia-recommits-to-national-digital-id-push-uk-to-introduce-one-login-from-april)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布：tianzhihuan
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

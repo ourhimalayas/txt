@@ -2,26 +2,40 @@
 ---
 
 
-## 防下毒？乌外交部长：谈判代表不要吃喝甚至触摸任何东西
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2255786/)
+## 日本银行将为未来的数字日元发行做好充分准备
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255801/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220330112716902.jpg)图片来源：欧新社
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯入侵乌克兰仍在继续，双方进行第5论谈判。在亿万富翁阿布拉莫维奇和2名乌克兰谈判代表传出在先前的会谈出现疑似「中毒」事件后，乌克兰警告其谈判代表29日在伊斯坦堡与俄罗斯进行会谈时不要吃、喝甚至触摸「任何东西」。
+翻译/编辑：小红帽
 
-简评：普京若诚心谈判停战何来下毒之说，除非有别有用心者在背后下黑手，只有最不想停火的人才能做出下毒的举动。谈判的关键时刻，防人之心不可无，谨慎无差错，莫被背后元凶钻了空子。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/415889470D0EAEE7AEABBE0F23BF86275B403AB86F421714DF5725C901616300.jpg)图片来源：Blockchain.news
 
-新闻来源：[联合新闻网](https://udn.com/news/story/122663/6201710?from=udn-catelistnews_ch2)
 
-撰稿/发布：一叶知秋
+根据路透社3月29日报道，日本央行行长黑田东彦周二表示，日本央行目前没有发行自己的数字货币的计划，但将“充分”准备应对未来不断变化的情况。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+黑田东彦在金融服务创新非公开研讨会上发表讲话。
+
+日本央行计划从4月开始进入发行央行数字货币 (CBDC) 实验的第二阶段，这将是决定试点计划和最终推出数字日元的关键。
+
+2021年11月24日，一个由约70家日本企业组成的联盟曾表示，计划在未来数月开始测试一种基于日元的数字货币，然后在2022财年推出。该联盟成员包括三菱日联金融集团（MUFG）、瑞穗金融集团、以及三井住友金融集团。
+
+前日本金融厅长官、目前担任DeCurret特别顾问的远藤俊英也曾于2021年11月份表示：“建立在银行存款支持的共同平台上的数字货币系统将适合可能在日本规划和实施的央行数字货币（CBDC）。”
+
+新闻来源：
+
+1. [Bank of Japan will prepare ‘thoroughly’ for possible launch of digital yen, Kuroda says](https://www.reuters.com/world/asia-pacific/boj-will-prepare-thoroughly-possible-launch-digital-yen-kuroda-2022-03-29/)
+2. [日本约70家企业未来数月将联合测试数字货币，计划于2022财年推出](https://m.jiemian.com/article/6846513.html)
+
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

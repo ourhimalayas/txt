@@ -2,36 +2,33 @@
 ---
 
 
-## 澳洲再次承诺推行国家数字身份证
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2255961/)
+## 樱花FM|乌克兰副总理说，正利用AI识别阵亡俄士兵以联系其家人
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2256002/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+音频：东京樱花团/战友520
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/03/03302.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/FEB2019_digital_identity_deep_dive_national_identity.jpg)图片来源：www.pymnts.com
+３月２５日IT媒体新闻消息：乌克兰副总理米哈伊尔-费多罗夫当地时间23日在Telegram上发布消息称，他正在使用人工智能识别在战斗中死亡的俄罗斯士兵的面孔，并通过社交网站通知他们的家人和朋友。
+
+他告诉路透社，他正在使用来自美国面部识别平台Clearview AI的技术，以寻找俄罗斯士兵的社交网络账户。
+
+乌克兰方面称，自2月24日俄罗斯入侵以来，约有15000名俄罗斯士兵在战斗中死亡。
+
+据路透社13日报道，Clearview AI已经向乌克兰提供了面部识别平台。在路透社获得的该公司首席执行官胡安-谭达给乌克兰政府的一封信中，他说Clearview AI拥有超过20亿张在俄罗斯社交网络VKontakte上发布的俄罗斯人的照片。
+
+该公司因将面部识别技术应用于社交网站上发布的人的图像并将其加入其数据库而闻名。 该公司的面部数据库包含超过100亿张图片。为此，人权团体等批评其为侵犯隐私。
+
+文字版原文：
 
 
-根据Biometric Update3月29日报道，澳大利亚的数字和数据部长做出了比以往更有力的承诺，以推进国家数字身份证系统的全面推广。
+| [乌克兰副总理说，正利用AI识别阵亡俄士兵以联系其家人](https://gnews.org/zh-hans/2226261/) |  |
+| --- | --- |
 
-在最近的一次会议上，部长们同意“积极探索”数字身份的实施过程，并对个人数据的收集、报告和共享方式进行调整。
 
-在最近一次会议里，最后公报部分内容如下：“部长们同意积极探索采用国家数字身份生态系统。所有政府都在密切合作，将这一承诺转化为所有澳大利亚人的切实利益。这一整体经济解决方案将为澳大利亚带来显着的经济效益，并支持澳大利亚到2030年成为领先的数字经济和社会的愿景。部长们还指出了数字证书的互操作性和相互承认的重要性。
-
-尽管“可信数字身份法案”尚未通过，但西澳大利亚等一些州已经公布了自己的数字身份路线图。
-
-该法案是一项立法草案，定义了拟议的可信数字身份系统的建立、组织和运作。自启动以来，该系统迄今已耗资4.5亿澳元（3.37亿美元）。
-
-新闻来源：[Australia recommits to national digital ID push, UK to introduce One Login from April](https://www.biometricupdate.com/202203/australia-recommits-to-national-digital-id-push-uk-to-introduce-one-login-from-april)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
