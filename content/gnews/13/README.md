@@ -2,45 +2,28 @@
 ---
 
 
-## 全球和澳洲疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2254546/)
+## 樱花FM|不是我不明白，只是这个世界变化快
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2254558/)
 
-#### **整理：枳实**
-**美工：精灵蓝**
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3744.png)
+突如其来的俄乌战争，让那些被中共阉割的人们，突然找到了作为男人的自尊，于是情不自禁的自嗨起来。小粉红们高呼普大帝英勇帅气；上海的大爷为了究竟支持谁，大打出手，甚至咬掉耳朵；湖南常德的退伍老兵，更是喊出：为了保家卫国，他们要主动请缨奔赴俄乌战场。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-13.png)图片：雅典娜农场设计组 精灵蓝
+中共国内，上至官媒下至街头巷尾，耳边充斥的都是：花样百出不厌其烦的给大众普及地缘政治，民族冲突，力证普京入侵乌克兰的合法性。而且时时不忘提醒：这是一次打破霸权主义的行动，必将重塑世界格局，你们要力挺普京，力挺俄罗斯，这是千年未遇之大变局，机不可失时不再来，珍惜吧！
 
+在一顿文革式的鼓动躁动后，远隔战火千里之外的脑缺们，突然觉得丢失已久的荷尔蒙回归，意淫自己征战沙场，浴血奋战。于是，立刻发扬一不怕死二不怕苦三不要脸的大无畏精神，在键盘上尽情展现男人本色，正当高潮迭起，斗志昂扬的时候，然而画风却突变。中共国驻乌克兰大使表示：永远不会攻击乌克兰，而且会在经济和政治上支持乌克兰，并且赞扬了乌克兰的顽强抵抗精神；中共外交部发言人说：我们支持驻乌大使所作表态；环球时报的叼盘侠——胡锡进也不忘本色，做到主子指哪就打哪，立刻转发此条消息。
 
-雅典娜疫情更新（2022年 3月29日）
+我的天呐？这个世界变化也太快了，有点晕，奴才们突然找不到北了。更加悲催的是，枪已上膛，突然卡壳了，这是什么节奏呀！于是，惊呼世界格局真的要改写了吗？也许可能差不多吧，中美都要携手掀开世界的新篇章了，合作共赢也不可逆转了。
 
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+形势瞬息万变，做点啥好呐？快快跟上节奏吧，突然发现那个打着玻尿酸、割着双眼皮的普大帝也没那么英勇帅气了，瞬间就觉得他浑身上下散发着网红的气质。又突然想起曾经有个叫符拉迪沃斯托克的地方好像是我们的，近现代以来，俄罗斯通过签订不平等条约，占了我们不少地方，硬生生地让我们的版图变成了一只鸡，羞辱感油然而生，是时候做点男人该做的事了：那就扒一扒俄罗斯的黑历史吧，不看不知道，一看吓一跳，真是坏事做绝了。
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+对，说做就做，从今天开始谴责俄罗斯，鄙视普京。做人一定要赏罚分明，乌克兰，我挺你！泽连斯基，你是我的英雄！乌克兰，撸起袖子加油干吧！
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片19.png)图片：雅典娜农场设计组 精灵蓝
+文字版原文：[不是我不明白，只是这个世界变化快](https://gnews.org/zh-hans/2225582/)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片20.png)图片：雅典娜农场设计组 精灵蓝
-
-
-[2022年3月29日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
-
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[ovidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

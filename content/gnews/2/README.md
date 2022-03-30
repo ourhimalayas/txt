@@ -2,21 +2,33 @@
 ---
 
 
-## 英国疫苗机构负责人：群体免疫是不可能的，因为它仍然会感染接种过疫苗的人
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2254643/)
+## 期望
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2254682/)
 
-翻译与编辑：冰糖葫芦喵、灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)英国疫苗机构负责人、牛津疫苗组主任安德鲁.波拉德教授(视频来源：推特）
-**英国疫苗机构负责人、牛津疫苗组主任安德鲁·波拉德（Andrew Pollard）教授表示，群体免疫是不可能的，因为它仍然会感染接种疫苗的人。**而且我怀疑**病毒接下来会出现的是一个变种，这种变种在接种疫苗的人群中的传播能力更强**。因此，这就更加说明了不能围绕群体免疫来制定疫苗计划。
+作者：香草山健身部-新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3445.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-207.jpg)
 
-他还说，**我不认为英国有什么好办法来阻止新变种的出现，新变种一定会出现**。如果有的话，我们现在需要关注的不是什么可以阻止新的变种，因为我认为**我们没有任何方法来控制它。我们需要专注于思考我们如何防止人们死亡或医院如何治疗**。
+乱世纷扰跌人性 
+缺少信仰​毒加毒 ​
+中共炮制无端雨 ​
+受罪总是在底层 ​
+本是同根命韭菜 ​
+何必相逼苦他人 
+心存善念半门开 
+留着日后好相见 ​
+迷途知返黑白分 ​
+乾坤正道自清风 
+子母弹毒化灰尘 
+万家灯火危转安
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+编辑/校正/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场**Gettr](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场** YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场** Discord](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/31410D40-4BE4-46DD-B313-09ED1F809641.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
