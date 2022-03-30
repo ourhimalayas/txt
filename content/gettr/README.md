@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group50/origin/2022/03/30/04/867e2068-a217-8a13-3576-f8cb0faeab73/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/30/2022 3:02 AM (UTC)`
 
 
@@ -149,13 +156,6 @@ Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New 
 
 Ms. Simona Decina, a journalist of the Italian TV station RAI 1, is interviewing Mrs. Nicole who is coming from the New Federal State of China. She is American also. Mrs. Nicole says that the humanitarian aid operation for the Ukrainian people, financed by the Rule of Law Foundation, involved many  Chinese people. <br/>意大利电视台RAI 1 的记者Simona Decina 女士正在采访来自美国的新中国联邦人Nicole。Nicole女士说此次法治基金对乌克兰人民的人道救援行动的捐助，有很多的中国人参与。<br/>#ukrainerescue #nfscukrainerescue #ukrainehotline
 ![img](https://media.gettr.com/group39/origin/2022/03/29/16/2462c28d-f3fa-6968-ea68-925c22692c93/out.jpg)
-
----
-
-`@miles 3/29/2022 4:28 PM (UTC)`
-
-The buddies at the front line have new vests. <br/>They are printed with “take down the Chinese Communist Party”.<br/>Not everyone know what the CCP is, we make it clear.<br/>And tell whole word that the existence of the Chinese Communist Party is the origin of disasters and evils,<br/>They are behind this Russian-Ukrainian war.<br/>Only full destroy the Chinese Communist Party, human being will be safe.<br/><br/>The peoples from NFSC, led by Mr.Miles Guo, is the first organization to raise and actively act aim to destroy the Communist Party.<br/><br/>前线战友已经换上了新的马甲，<br/>上面印有“take down the Chinese Communist Party”。<br/>并不是每个人都知道CCP代表什么，我们清晰地写出来。<br/>并且告诉全世界共产党的存在是这个世界充满灾难和邪恶的根源，<br/>此次俄乌战争背后就是共产党，<br/>只有灭掉共产党，人类才会安全。<br/>那些深受共产主义之害的国家和人民以及全世界善良的人都会和我们有强烈共鸣。<br/>郭文贵先生带领的新中国联邦人是在全世界第一个立志并积极行动要灭掉共产党的团体。
-![img](https://media.gettr.com/group20/origin/2022/03/29/16/fd55c3a4-d081-5431-c5af-91e251729ca3/out.jpg)
 
 ---
 
