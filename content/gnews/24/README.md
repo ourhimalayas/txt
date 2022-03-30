@@ -2,22 +2,26 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 联合国：俄罗斯拦截黑海粮食运输船只
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2256643/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+**撰稿：日本东京方舟农场 北极**
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+据乌克兰信息报（ukrinform）3月30日报道，俄罗斯海军封锁黑海地区，拦截90多艘为世界各大市场运送食品的民用船只。
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-33.png)俄罗斯军舰。（图片来自ukrinform）
 
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+美国副国务卿温迪·露丝·谢尔曼（Wendy Ruth Sherman）在3月29日的联合国安理会简报会上表示，俄罗斯海军封锁了黑海和地中海之间的水路航线，拦截了大约94艘为世界市场运送食品的船只。俄罗斯海军还轰炸了至少三艘从黑海港口运往世界其他地区的民用船只。
 
-* * *
+谢尔曼指出，世界上30%的小麦、20%的玉米和75%的葵花籽油出口来自黑海地区。俄罗斯海军基本上切断了粮食出口，普京战争的后果远远超出了对乌克兰造成的巨大损失和伤害，还直接影响到全球粮食安全。
 
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+根据人权观察组织的数据，俄罗斯入侵乌克兰加剧了中东和北非的粮食危机。
+
+参考链接：
+https://reurl.cc/LpEr0x
+
+总编：老孙
+校对发布：Linda
 
  
 

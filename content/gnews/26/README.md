@@ -2,34 +2,22 @@
 ---
 
 
-## 乌克兰将成为新世界国家安全体系的创始人和领导者
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2256536/)
+## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
 
-**撰稿：日本东京方舟农场  北极**
+**疫情关注组** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
 
-据经济学人（The Economist）3月29日报道，乌克兰总统府办公厅主任接受采访时表示，通过世人瞩目俄乌战争，已经宣告结束了自第二次世界大战结束以来一直适用的国际安全体系，乌克兰将成为新世界国际安全体系的创始人和领导者。
+FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-366.png)乌克兰总统府办公厅主任安德烈·耶尔马克（Andriy Yermak）。（图片来自The Economist）
+疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
 
-乌克兰总统府办公厅主任安德烈·耶尔马克（Andriy Yermak）指出，俄乌战争爆发五周以来，通过乌克兰人民的顽强抵抗，成功阻止了俄罗斯侵略者的步伐，让世界重新认识乌克兰。
+來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
 
-在乌克兰独立30年的时间里，该国与西欧国家政府的关系并不亲密，甚至与外国领导人互通电话时，对方的态度也显得不冷不热，至于加入北约的提议，也大多予以拖延应对。
+* * *
 
-然而乌克兰人民在五周内出乎意料的激烈抵抗行为改变了这一切。泽伦斯基总统现在经常是一天接到多达十几个高级别电话。耶尔马克坚称，如果我们有足够的重武器，乌克兰有能力反击和解放被侵占的领土。
-
-耶尔马克认为，目前世界上只有屈指可数的一、两支军队具有抵抗俄罗斯军队一个月的作战能力。相信北约组织最感兴趣的应该是展现出强大实力的国家作为伙伴。
-
-早前之所以对乌克兰加盟北约持反对意见，是担忧与俄罗斯的战争升级，发生殃及世界的灾难。但随着俄军入侵搁浅，乌克兰人民以及领导层已经变得非常自信。这标志着，自第二次世界大战结束以来一直适用的国际安全体系已经结束。在新的框架中，乌克兰将作为该体系的创始人和领导者之一，自然而然地占有一席之地。
-
-耶尔马克指出，世界各地不同国家的人们已经走上街头，举行大型集会声援乌克兰。他认为，如果西方政客不接受这一点，他们自己的选民可能会解雇他们。他们的选民已经投票决定设立乌克兰禁飞区，现在他们还将投票决定乌克兰将成为欧盟的一部分。
-
-耶尔马克认为，泽伦斯基已经抓住了世界的想象力，尤其是年轻人的想象力。我记得许多反对派政客开玩笑说，他不是一个合适的领导人。在耶尔马克看来，今天，泽伦斯基是自由世界的领袖。
-
-参考链接：
-[https://www.economist.com/europe/2022/03/29/the-war-has-changed-everyones-view-of-ukraine](https://www.economist.com/europe/2022/03/29/the-war-has-changed-everyones-view-of-ukraine)
-
-总编：老孙
-校对发布：爱放飞
+**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
 
  
 
