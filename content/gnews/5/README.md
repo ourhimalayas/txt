@@ -2,23 +2,30 @@
 ---
 
 
-## 乌克兰人已经知道，只有具体的结果才能被信任
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259205/)
+## 【秘翻时评】 俄罗斯数十名外交人员涉情搜 欧盟4国联手驱逐
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2259262/)
 
-制作：peacelv
+By:**[秘翻时评](https://gettr.com/post/p12ofpk80ed)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+**[2022‑03‑30](https://gettr.com/post/p12ofpk80ed)**
 
-发稿：信心的选择
+**晚间秘翻新闻：**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+1.俄罗斯数十名外交人员涉情搜 欧盟4国联手驱逐
+2.新谈判俄罗斯松口将减少轰炸 美方预警俄军将重整反击
+3.俄国知名科技公司收集手机用户资料 上亿台手机恐受影响
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+**秘翻时评内容：**
 
+1.俄乌战争引起的粮食危机是二战以来最严重的
+2.吉林方舱只隔离不治疗 女子痛苦难忍终自杀
+
+Gettr链接：[**https://gettr.com/post/p12ofpk80ed**](https://gettr.com/post/p12ofpk80ed)
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

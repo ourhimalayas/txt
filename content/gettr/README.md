@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 5:47 PM (UTC)`
+
+
+![img](https://media.gettr.com/group48/origin/2022/03/30/17/058177ec-6dd0-ce60-9538-a4353e3d4a36/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@baoliaobaike 3/30/2022 7:42 AM (UTC)`
@@ -154,13 +161,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 2022.03.29《The Fringe》 Episode 157
 ![img](https://media.gettr.com/group3/origin/2022/03/29/23/c83b8780-8e85-12ca-a73f-24246fbe91ea/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/29/2022 11:45 PM (UTC)`
-
-3/27/2022 Miles Guo: Russian oligarchs are selling off their assets at a discount, but we have never and will never take advantage of others’ plight. The same things that have happened to the Russians when the US and the West sanctioned them will happen to the Chinese people, and the New Federal State of China is saving the Chinese people around the world to minimize the number of people who will be wronged.<br/><br/>3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人<br/>
-![img](https://media.gettr.com/group47/getter/2022/03/29/23/25c7f842-ad69-b972-55b1-d41787cd071b/out.jpg)
 
 ---
 

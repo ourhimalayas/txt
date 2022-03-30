@@ -2,43 +2,35 @@
 ---
 
 
-## 樱花FM|时政:中共的策略：对所有人说谎！
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2259119/)
+## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月29日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2259144/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-9-8.png)
-光明日报2022年3月25日，发表文章，“美国的策略：对所有人说谎”。全球中共媒体像接到任务一样竞相转载。
+配音：香草山农场 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-评论这篇文章前先讲个笑话。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-29-1.png)
 
-一女子偷情被老公当场抓获，
 
-老公挥舞着拳头问：临死之前，你有什么要说的？
 
-女子说：事到如今，要杀要剐随你的便，跟你这种言而无信的人，有什么好说的？
 
-老公：我什么时候言而无信了？
+文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月29日早](https://gnews.org/zh-hans/2253404/)
 
-女子：你不是说今天晚上不回来吗？
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-中共就好似这名偷汉子的女人，正常人本应道歉服软祈求宽恕，但中共却不按常理做事，明知自己的下场会很惨，临死前还要反咬一口。生活中我从未见过如此厚颜无耻之徒，在动物世界里却是普遍现象。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-能为中共写出这篇长舌之文，猜测作者必定累得发际线到了耳朵后面了吧。你竟然有脸能从1835年翻起旧账，你也不想想同时期的中国是什么样子？美国在过去的历史当中并没有侵略你一寸土地，对中国进行了无数次的帮助，不但没有一点感恩之心反而仇恨美国。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-你凭什么仇恨美国呢？难道是因为1911年帮助你创办了清华大学吗？难道是因为1917年帮助你创办了协和医院吗？难道是因为1942年开辟航空史上最艰难的驼峰航线为你运送抗日物资吗？难道是因为1969年美国把你从苏俄的核弹威胁中解救出来吗？难道是因为1972年美国邦你打开国门融入世界吗？难道是因为2001年成功帮助你加入世贸吗？
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-断章取义的曲解蓬佩奥先生的演讲也就给国内的老百姓看看，如果没有网络防火墙，中共这种文章都不如看家狗的叫声有用。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-中共数典忘祖、背信弃义早已失德于天下，其狼子野心妄图称霸世界，对百姓屠杀、监禁、欺压简直禽兽不如。你真的以为“树没皮必死无疑，人不要脸天下无敌”吗？
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-如今中共释放中共病毒（新冠病毒Covid-19）和毒疫苗毒害世界，勾结俄杂侵犯乌国，等待中共的只有灭亡。最后送中共一句话：汝彼母之寻亡乎？
-
-文字版原文：[樱花时政┃中共的策略：对所有人说谎！](https://gnews.org/zh-hans/2231162/)
-
-编辑：东京樱花团/asket
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/02/屏幕截图-2022-02-24-151921-2.png)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
