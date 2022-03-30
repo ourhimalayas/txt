@@ -2,30 +2,23 @@
 ---
 
 
-## 「X俄勇士」就是他！乌克兰蛇岛士兵平安归国获颁勋章
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2255285/)
+## 加拿大计划成为小型核反应堆出口国
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2255372/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄军对蛇岛发动攻击，当时传出当地第一线13名士兵全数阵亡，后来乌克兰军方证实82名驻军还活着，只是一大部分遭到监禁。
+编译撰稿：活力人生
 
-25日两军交换俘虏，乌克兰以11位俄罗斯水手作为交换条件，让19名乌克兰水手平安获释，当时乌克兰议会宣布，其中包括传说中呛爆「俄罗斯军舰去你X的」原作者。
+据【加拿大广播公司】3月28日报道，萨斯喀彻温省、安大略省、新不伦瑞克省和阿尔伯塔省发布了通过开发小型模块化核反应堆（SMR）来扩大核工业的战略计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ecb4bb86-906d-49ee-8786-5ffb78a81159.jpg)图片来源：乌克兰国防部
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-60.jpg)
 
-乌克兰国防部揭开这名英雄的面纱，原来呛爆俄军「俄罗斯军舰去你X的」那个人就是贺理柏夫(Roman Hrybov)，他在25日获释，目前已经回到他的家乡切尔卡瑟州，更受到当地州长塔布鲁特斯(Igor Taburets)礼遇，颁发公民勋章表扬他的英勇事迹。
+SMR 比传统的核反应堆更小，这使得它们可以在工厂里建造并通过卡车、火车或轮船运输。一座 SMR 可以产生 200 至 300 兆瓦的能量，是传统反应堆的两到三成，足以为约 300,000 个家庭供电。这些省份表示，小型反应堆为偏远社区居民提供了安全、清洁的电力来源。加拿大在未来有望成为 SMR 技术的全球出口国。
 
-简评：每一场战争都会留下一些传奇，「X俄勇士」作为俘虏不向敌人屈服勇敢的怒呛敌人，如今获救本就是一段传奇。乌克兰有千千万万这样的英雄，勋章赠英雄，「X俄勇士」获此勋章当之无愧！
+3月27日大直播中文贵先生提到，未来清洁能源是一切的一切。通过油、气、能源来制约欧洲和世界的时代已经过去了。
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022330W0030](https://www.ftvnews.com.tw/news/detail/2022330W0030)
+新闻链接：[https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928](https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928)
 
-撰稿/发布：一叶知秋
+*编辑/上传：文所未闻*
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

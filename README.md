@@ -15,88 +15,88 @@
 
 ---
 
-### [上海市极端防疫措施惹争议](/content/gnews/1/README.md)
+### [阿尔伯塔省欲创建北美加密货币中心](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|埃隆·马斯克及以色列总理宣布感染中共病毒](/content/gnews/2/README.md)
+### [弗吉尼亚州州长赠与签署解除学校口罩令的钢笔](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [拜登：尽管俄入侵乌克兰 美仍快速落实印太战略](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大计划成为小型核反应堆出口国](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|上海分区封锁控管 全民核酸检测](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [渥太华大学放弃疫苗接种证明和口罩要求](/content/gnews/3/README.md)
+### [上海市极端防疫措施惹争议](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [「X俄勇士」就是他！乌克兰蛇岛士兵平安归国获颁勋章](/content/gnews/4/README.md)
+### [有声|埃隆·马斯克及以色列总理宣布感染中共病毒](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [渥太华大学放弃疫苗接种证明和口罩要求](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [「X俄勇士」就是他！乌克兰蛇岛士兵平安归国获颁勋章](/content/gnews/9/README.md)
  ` 蓝莲花农场`
 
-### [科学家试图制造一种“自我传播”的疫苗](/content/gnews/5/README.md)
+### [科学家试图制造一种“自我传播”的疫苗](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年3月30日《樱花简报》：日本财团将支援赴日乌克兰人家属](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|堪萨斯允许将伊维菌素和羟氯喹作为中共病毒治疗药物](/content/gnews/7/README.md)
+### [有声|堪萨斯允许将伊维菌素和羟氯喹作为中共病毒治疗药物](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [42岁完全接种的新墨西哥州参议员卢扬Luján中风](/content/gnews/8/README.md)
+### [42岁完全接种的新墨西哥州参议员卢扬Luján中风](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [聚焦：中共挺俄喧嚣为什么安静了？](/content/gnews/9/README.md)
+### [聚焦：中共挺俄喧嚣为什么安静了？](/content/gnews/13/README.md)
  ` 蓝莲花农场`
 
-### [乌克兰提出采取中立地位以换取俄罗斯停火](/content/gnews/10/README.md)
+### [乌克兰提出采取中立地位以换取俄罗斯停火](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [马斯克已打疫苗仍感染中国病毒 他反对美国疫苗强制令](/content/gnews/11/README.md)
+### [马斯克已打疫苗仍感染中国病毒 他反对美国疫苗强制令](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [印度小麦出口增加有望缓解粮食短缺](/content/gnews/12/README.md)
+### [印度小麦出口增加有望缓解粮食短缺](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯是否故意针对乌克兰的文化地标](/content/gnews/13/README.md)
+### [俄罗斯是否故意针对乌克兰的文化地标](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [有声|中共洗脑工具之样板戏](/content/gnews/14/README.md)
+### [有声|中共洗脑工具之样板戏](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [春日登山感怀](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|教育-人生的影响](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人](/content/gnews/17/README.md)
+### [3/27/2022 文贵直播：俄罗斯富豪打折抛售资产，但我们从不且永远不会趁人之危；美国西方制裁俄罗斯人的事件也会发生在中国人身上，新中国联邦正在拯救全球华人以尽量减少被冤枉的人](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [俄罗斯和乌克兰将进行面对面的和平谈判](/content/gnews/18/README.md)
+### [俄罗斯和乌克兰将进行面对面的和平谈判](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [3/27/2022文贵直播：印有新中国联邦标识和口号的马甲在波兰梅迪卡营地受到各国人民喜爱，我们的马甲将不限量免费赠送给喜欢的人](/content/gnews/19/README.md)
+### [3/27/2022文贵直播：印有新中国联邦标识和口号的马甲在波兰梅迪卡营地受到各国人民喜爱，我们的马甲将不限量免费赠送给喜欢的人](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [更具传染性的 病毒子变体在美国占主导地位](/content/gnews/20/README.md)
+### [更具传染性的 病毒子变体在美国占主导地位](/content/gnews/22/README.md)
  ` 加拿大温哥华英里农场`
 
-### [3/27/2022 文贵直播：泽林斯基总统说阿布是好人意味着什么？共产党的轻商主义把中国传统文化中的“尖商”打成“奸商”，所以才有了鼓吹强权金钱至上、毫无品位、狂妄之极的中共商人](/content/gnews/21/README.md)
+### [3/27/2022 文贵直播：泽林斯基总统说阿布是好人意味着什么？共产党的轻商主义把中国传统文化中的“尖商”打成“奸商”，所以才有了鼓吹强权金钱至上、毫无品位、狂妄之极的中共商人](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [新西兰总理对所罗门群岛与中共签署的驻军协议表示担忧](/content/gnews/22/README.md)
+### [新西兰总理对所罗门群岛与中共签署的驻军协议表示担忧](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [截至 2022 年 3 月 29 日 18 点的有关俄罗斯入侵鳥克蘭34天的作战信息](/content/gnews/23/README.md)
+### [截至 2022 年 3 月 29 日 18 点的有关俄罗斯入侵鳥克蘭34天的作战信息](/content/gnews/25/README.md)
  ` 纽约香草山MOS03`
 
-### [韩国疫情表明，亚洲的“中共疫苗接种试验”已经失败](/content/gnews/24/README.md)
+### [韩国疫情表明，亚洲的“中共疫苗接种试验”已经失败](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文·贵天成——文贵先生谈“G-Glub”（二十八）](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [阿布拉莫维奇很早入手大量喜币，增加喜支付流通量争取更大话语权](/content/gnews/26/README.md)
+### [阿布拉莫维奇很早入手大量喜币，增加喜支付流通量争取更大话语权](/content/gnews/27/README.md)
  ` YALUN 亚伦`
 
-### [五月花简报（03/29/2022）](/content/gnews/27/README.md)
- ` mayflowertranslate`
-
-### [澳大利亚政府将网络作战部队规模翻倍以应对中俄网络安全威胁](/content/gnews/28/README.md)
+### [五月花简报（03/29/2022）](/content/gnews/28/README.md)
  ` mayflowertranslate`
 
 ### [泽连斯基：准备寻求乌克兰中立地位但有条件](/content/gnews/29/README.md)

@@ -2,37 +2,26 @@
 ---
 
 
-## 有声|埃隆·马斯克及以色列总理宣布感染中共病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2255313/)
+## 弗吉尼亚州州长赠与签署解除学校口罩令的钢笔
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255385/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月28日，特斯拉CEO埃隆·马斯克在社交媒体上发文表示，他应该再次感染中共病毒，但几乎没有症状。2020年11月，马斯克在到访瑞典后被感染病毒。马斯克说，他利用同一台机器进行了四次快速抗原测试，结果显示，他在同一天两次测试呈阳性，两次呈阴性。
+##### 素材：小菠萝
+翻译：Annabelle
+校对：Lish
+字幕：蛮吉
+编辑：Mttfly
 
-另外，以色列总理办公室周一表示，总理贝内特的中共病毒检测呈阳性。据报道，贝内特和近一半的以色列人都已经接种了三剂疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide12-10.jpg)
+美国弗吉尼亚州众议院周三（2月16日）通过法案，将该州学生在学校戴口罩与否的决定权交给了家长。当天下午，该州州长格伦‧扬金（Glenn Youngkin）将这项法案签署成了法律。扬金州长说：”能够签署参议院第739号法案，使之成为弗吉尼亚联邦的法律，这是我至高无上的荣耀。”随后，他将用来签署此法令的钢笔赠与九次因没戴口罩而被禁止上学的小女孩。
 
+视频来源：[Virginia’s new Governor Glenn Youngkin signs bill outlawing school mask mandates in the state, handing the pen to a girl who was suspended nine times from school for not wearing a mask.](https://twitter.com/michaelpsenger/status/1494063071203000321?s=21)
 
+*发布：Mttfly*
 
-
-文字版原文：[埃隆·马斯克及以色列总理宣布感染中共病毒](https://gnews.org/zh-hans/2251650/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
