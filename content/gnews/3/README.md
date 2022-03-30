@@ -2,28 +2,20 @@
 ---
 
 
-## 中日财经爆┃上海封城导致中共国股市暴跌，人民币汇率大跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257373/)
+## 樱花时政┃德国拒用卢布支付天然气，启用应急预案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257524/)
 
-撰稿：东京樱花团/英翻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
-由于上海的疫情严重，每日病例数量居高不下，3月27日，上海当局宣布将分批对上海进行封锁。其中黄浦江以东的地区，以及黄浦江以西的一些地区，将在3月28日至4月1日期间被封锁，其余地区将在4月1日至5日期间被封锁。
+撰稿：东京樱花团/上善若水
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8-53.jpg)图片来源与本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3824.png)图片来源于本文链接
 
-上海是中国的经济大动脉，地位极其特殊，因此这一消息的公布震惊了经济市场。周一（3月28日）中共国股市暴跌，债券收益率下降，人民币兑美元汇率大跌。
+3月30日法新社消息，德国经济部长当天宣布，由于七国集团拒绝用俄货币卢布支付天然气，德国或将面临俄气供应中断的风险，因此当天启动了天然气第一级应急预案。德国的这一天然气紧急预案包括三个级别的预警，第一级别意味着德国的天然气供应安全依然是有保障的，德国经济部长罗伯特·哈贝克表示，目前德国的天然气储备已满25%，如果俄罗斯停止交付天然气，将产生“严重的后果”，不过德国“将能够应对”。哈贝克说，“天然气和石油目前正在按订单运抵”，“今天我们采取的措施是预防措施”。
 
-新闻来源：[Chinese Stocks Slump, Yuan Weakens On Shanghai Lockdown News](https://www.zerohedge.com/markets/chinese-stocks-slump-yuan-weakens-shanghai-lockdown-news)
+信息来源： [德国启动天然气紧急预案第一等级，再拒用卢布支付俄气](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220330-%E5%BE%B7%E5%9B%BD%E5%90%AF%E5%8A%A8%E5%A4%A9%E7%84%B6%E6%B0%94%E7%B4%A7%E6%80%A5%E9%A2%84%E6%A1%88%E7%AC%AC%E4%B8%80%E7%AD%89%E7%BA%A7%EF%BC%8C%E5%86%8D%E6%8B%92%E7%94%A8%E5%8D%A2%E5%B8%83%E6%94%AF%E4%BB%98%E4%BF%84%E6%B0%94)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,27 @@
 ---
 
 
-## 탕핑(躺平)코인은 기술혁신을 거쳐 자유롭게 부를 누리다
-` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2257295/)
+## 中日财经爆┃上海封城导致中共国股市暴跌，人民币汇率大跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257373/)
 
-번역자：나무 두그루
+撰稿：东京樱花团/英翻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-13.png)
+由于上海的疫情严重，每日病例数量居高不下，3月27日，上海当局宣布将分批对上海进行封锁。其中黄浦江以东的地区，以及黄浦江以西的一些地区，将在3月28日至4月1日期间被封锁，其余地区将在4月1日至5日期间被封锁。
 
-편집：QiMing
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8-53.jpg)图片来源与本文链接
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2-25.jpg)
+上海是中国的经济大动脉，地位极其特殊，因此这一消息的公布震惊了经济市场。周一（3月28日）中共国股市暴跌，债券收益率下降，人民币兑美元汇率大跌。
 
+新闻来源：[Chinese Stocks Slump, Yuan Weakens On Shanghai Lockdown News](https://www.zerohedge.com/markets/chinese-stocks-slump-yuan-weakens-shanghai-lockdown-news)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2586.jpg)
-
-겟터 （gettr)소셜 앱 중 탕핑(躺平)코인은 세계 최초로 출시 예정인 사용자 대상 디지털 화폐이다. (아직 발행일이 발표되지 않았습니다)
-
-3월23일 생방송에서 궈원구이씨는“탕핑(躺平)코인은 기술혁신을 거쳐 진정한 탈중앙화를 이루고 전 세계에 자유롭고 안전하게 유통될 것”이라고 말했다.
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_2588-1.jpg)
-궈원구이씨는 “현재 2세대 디지털 화폐 기술의 거래 비용은 약 300달러 수준이지만, 다가오는 3세대는 3달러 정도로 낮출 수 있다” 며 “3세대 블록체인 암호화 기술은 준양자형, 빠른 속도, 높은 정확도로 저장성이 기대된다”고 말했다. 이와 함께 이체 기능은 어떠한 지역적, 시간적 제약도 받지 않고 은행과 정부의 규제도 받지 않으며 진정한 탈중앙화를 실현 한다.
-
-궈원구이씨는 ” 탕핑(躺平)코인은 화폐의 본질로 돌아가 노동은 곧 부이고 부는 향유”라고 말했다. 미래의 결제 시스템에서는 유동성이 강한 디지털 화폐로 물, 음식, 생활필수품 등 가장 많이 쓰이는 생활 정경을 커버할 것이라고 하였다.
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

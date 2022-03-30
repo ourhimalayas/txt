@@ -2,22 +2,37 @@
 ---
 
 
-## 樱花时政┃联合国教科文组织呼吁保护乌文化遗产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2257403/)
+## MV版Hcoin To the Moon上线111天第45次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2257526/)
 
-撰稿：东京樱花团/上善若水
+3/30/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线111天第45次位列匈牙利iTunes热门音乐视频榜榜首，第60次位列前三名
 
-俄乌战争已经30多天，坐落在法国巴黎的联合国教科文组织1954年签署的《海牙公约》及其两项议定书，包括武装冲突各方必须尊重文化遗产，禁止毁坏、损害或以任何形式盗窃、抢夺对每一民族具有重大意义的文化遗产等。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片3-48.png)（图片来源于本文链接）
-联合国教科文组织在乌境内有7处世界遗产，其中6处是各个时期的建筑或者建筑群，基辅的圣索菲娅主教堂和佩乔尔斯克修道院，建于11世纪，这个古建筑群于1990年被列入世界遗产名录。斯特鲁维地理探测弧线是与9个国家共同拥有的，为准确测量地球椭圆体而共同建立的大地测量基地群，属于世界的文化艺术瑰宝。
+* * *
 
-联合国教科文组织对“创意城市网络”音乐之都哈尔科夫市及已列入《世界遗产预备清单》的切尔尼戈夫历史中心遭损失表示严重关切。为了防止战争破坏，教科文组织正与乌政府合作，尽快用《海牙公约》指定的独特标志标出乌各地的重要历史古迹和遗址。该标志是国际公认的在武装冲突中保护文化遗产的符号。
+[【PDF 下载】Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-信息来源：[教科文组织呼吁保护乌克兰文化遗产](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%96%87%E5%8C%96%E9%81%97%E4%BA%A7/20220330-%E6%95%99%E7%A7%91%E6%96%87%E7%BB%84%E7%BB%87%E5%91%BC%E5%90%81%E4%BF%9D%E6%8A%A4%E4%B9%8C%E5%85%8B%E5%85%B0%E6%96%87%E5%8C%96%E9%81%97%E4%BA%A7)
+* * *
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_109.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_120.jpg)
+
+
+[【PDF 下载】Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/03/Wednesday-30-Mar-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
