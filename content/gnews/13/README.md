@@ -2,27 +2,32 @@
 ---
 
 
-## 有声｜乌克兰寻求达成协议 以得到有 &#8220;核成分 &#8220;的军队的保护
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256225/)
+## 【G时新闻】欧洲议会将要求数字支付实名制
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2256298/)
 
-By:**秘翻新闻**
+##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+3月25日，据外媒报道，欧洲议会将在下周的委员会会议上，就是否阻止匿名加密货币支付进行投票表决。该委员会还计划限制各种方式的逃税，并要求实名登记。
 
-**2022-03-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-107.png)图片来源 House Television via AP
-[据《福克斯新闻》3月29日报道，乌克兰在土耳其的和平谈判中寻求具体的安全保障，包括承诺在未来的冲突中得到世界 “主要军队”，包括那些拥有核武器的军队的军事援助，以换取中立地位。](https://www.foxnews.com/politics/ukraine-seeks-concrete-security-guarantees-turkey-peace-talks)
+欧洲议会倾向同意对任何规模的数字货币支付进行身份检查，即KYC，以避免加密货币用于资助恐怖主义、虐待儿童等不法用途。即使是一直坚持匿名化交易应该受到保护的右翼议员，似乎也认可这一观点。议会将告知数字服务提供商不得进行或帮助任何被认为具有洗钱，或犯罪等高风险的转账。
 
-[乌克兰总统沃洛基米尔·泽伦斯基的最高顾问米哈伊洛·波多柳克在谈到会谈时表示，《安全保障条约》本质上是在实践中获得一个保护乌克兰领土和主权的有效工具。保证国成为世界上的主要军队，包括有核成分的军队，它们承担具体的法律义务， 包括干预乌克兰领土上的任何冲突，和立即提供武器。](https://www.foxnews.com/politics/ukraine-seeks-concrete-security-guarantees-turkey-peace-talks)
+阿西塔·坎科是负责收集议会对该法律意见的主要立法者之一，她表示，尽管在如何执行未托管钱包之间的交易方面存在不确定性，但希望将这些措施扩大到私人持有的加密货币资产。
 
-[据报道，乌克兰提出，它将保持军事中立，但也在寻求 “作为正式成员强制进入欧盟的单一市场”。](https://www.foxnews.com/politics/ukraine-seeks-concrete-security-guarantees-turkey-peace-talks)
+分析人士认为，欧盟立法者对数字货币的这一立场，实际上将使一直被视为避税天堂的英属维尔京群岛、开曼群岛，以及美国、土耳其、俄罗斯、中共香港、伊朗等等与脏钱交易相关的热点国家和地区，转账支付变得更加困难。
 
-[作者兼前美国国防部特工雷贝卡·科夫勒周二表示，乌克兰寻求的安全保障 “基本上等同于北约成员资格”，而这是俄罗斯无法接受的。](https://www.foxnews.com/politics/ukraine-seeks-concrete-security-guarantees-turkey-peace-talks)
-
-秘翻新闻 Grace编译报道
-
-发布 : 恩典
-
+编辑/上传：一叶
+盖特链接：[https://gettr.com/post/p12i2qf0799](https://gettr.com/post/p12i2qf0799)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

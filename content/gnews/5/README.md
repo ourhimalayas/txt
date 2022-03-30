@@ -2,24 +2,26 @@
 ---
 
 
-## 有声｜乌克兰大使称：俄罗斯战损使其正在非军事化
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256309/)
+## 有声｜俄乌战争引起的粮食危机是二战以来最严重的
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2256352/)
 
 By:**秘翻新闻**
 
 **2022-03-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6-116.png)图片来源 AP Photo/Petros Giannakouris
-[据美联社3月29日报道，乌克兰驻联合国大使谢尔盖·基斯利齐亚周二告诉联合国安理会称：俄罗斯的非军事化正在顺利进行。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/7-75.png)图片来源 AP Photo/Amr Nabil
+[据美联社联合国3月29日报道，联合国粮食署署长周二警告称，俄乌战争造成了一场灾难之上的灾难，并将产生超出二战以来最严重的全球影响，因为许多曾生产大量小麦的乌克兰农民现在正与俄罗斯人作战。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-[基斯利齐亚表示，自俄罗斯入侵以来，俄军已经失去了1万7000 多名军事人员、1700 多辆装甲车和近 600 辆坦克。还损失了 300 架火炮系统、127 架飞机和 129 架直升机、近100 个火箭发射器系统、54个防空系统和7艘舰船。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+[乌克兰和俄罗斯生产全球30%的小麦、20%的玉米和 75%-80%的葵花籽油。世界粮食计划署50%的粮食都来自乌克兰。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-[基斯利齐亚还表示，这对莫斯科来说是一个前所未有的打击，与之前苏联在阿富汗的损失相形见绌。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+[比斯利表示，乌克兰的战争正在将数百万人的世界粮仓变成杂草，像埃及这样的国家通常会从乌克兰获得85%的粮食，而黎巴嫩则在 2020年获得了81%的粮食，在饱受战争蹂躏的也门，那里 800 万人的食物分配刚刚减少了50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-[周二早些时候，俄罗斯宣布将大幅缩减乌克兰首都和北部城市附近的军事行动，因为在最新一轮谈判中出现了可能结束战争的协议大纲，预计谈判将在周三恢复。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+[比斯利还表示，世界粮食计划署目前正在向乌克兰境内约100 万人提供食物，到 6 月底有望达到 600 万人，资金缺口将达到约3亿美元。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-[开战的这五周，已经演变成血腥消耗的战争，致使数千人死亡，近400万乌克兰人逃离该国。](https://apnews.com/article/russia-ukraine-business-religion-europe-united-nations-48a35c1e9b53a055974110dd2e5afa02)
+[比斯利警告称，关注乌克兰不应导致国际社会忽视非洲，尤其是萨赫勒地区和中东，否则，将有大量移民来到欧洲各地。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
 
-秘翻新闻 文洋编译报道
+[据报道，随着俄罗斯“扼杀乌克兰的出口”，食品价格飞涨，今年迄今为止小麦价格上涨了 20-50%。](https://apnews.com/article/russia-ukraine-business-africa-europe-united-nations-c0aa09215a99cb625c57fcb40f7df8bf)
+
+秘翻新闻 文洋 编译报道
 
 发布 : 恩典
 
