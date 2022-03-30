@@ -2,35 +2,35 @@
 ---
 
 
-## 2020财年日本的出国留学生因疫情剧减98%
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2259092/)
+## NFSC新闻、NFSC新闻访谈简报|2022年3月30日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2259191/)
 
-共同社3月30日报道，周三的一项调查显示，2020财年出国留学的日本学生人数比一年前跳水98.6%，至1487人。因为疫情大流行期间严格的边境管制迫使许多学生取消或推迟了学习计划。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/s-1.jpg)japantimes.co.jp
-调查还显示，截至2021年5月，在日本的大学、日语学校和其他教育机构就读的外国学生人数比一年前下降了13.3%，为242444人。其中，9.1%或21,945名学生不能来日本，不得不在网上学习。
+作者：香草山翻译部
 
-日本学生服务组织进行的调查发现，2020财年日本出国留学人数创下历史新低，并记录了自2009财年有可比数据以来的最大降幅。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
 
-调查涵盖了属于日本大学和其他机构的学生。那些从日本高中毕业后直接进入海外大学的学生和在海外学校上网络课程的学生被排除在外。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-30.png)
 
-至于目的地，韩国排名第一，有265名日本学生，比前一年减少6,970人；其次是美国，有240人，减少17,898人；加拿大有189人，减少9,135人。
+文章仅代表作者本人观点，与Gnews无关
 
-数据显示，在日本学习的外国学生中，中国人占了最大的群体，有114,255人，比前一年减少了7,590人，其次是越南，有49,469人，减少了12,764人。
+视频参看：
+[2022.03.30早 《NFSC新闻》](https://gettr.com/streaming/p12nuoa0e4b)
+[2022.03.30早《NFSC新闻访谈》](https://gettr.com/streaming/p12nwdz35b2)
 
-调查显示，日本大学等高等教育的国际学生人数减少了16,906人，至201,877人，而日本语言学校的数字则减少了20,247人，至40,567人。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-“我们预计病毒感染情况将得到改善，国际旅行将恢复。我们将努力为学生提供信息和其他支持。”一位日本教育部官员说。政府还打算进一步放松边境管制措施，以增加国际学生的数量。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-524x720-3-26.jpeg)
 
-**快评**：刚好看到日本媒体今天做了这个调查新闻，疫情大流行不仅让日本出国的留学生剧减，到日本求学的外国留学生也同样减少很多。
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-放眼望去，哪个国家的留学生人数不因疫情的各种限令而锐减？能赶上正常上学的莘莘学子大多数又被逼着强打了疫苗。
-
-各个高等院校不能正常经营，财政出困难是必然。然后这些学生，疫苗灾难要毁掉多少年轻人呢？太可怕了！
-
-参考链接：
-[https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html](https://english.kyodonews.net/news/2022/03/7bef7b9433dd-japanese-students-studying-abroad-down-98-in-fy-2020-due-to-covid.html)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-66.png)
 
  
 

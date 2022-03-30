@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-30<br/>For English @Gtranslators_1
+![img](https://media.gettr.com/group7/origin/2022/03/30/21/2578b4d2-978b-c833-8aae-c4545e03d352/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/30/2022 7:33 PM (UTC)`
 
 There are still many refugees hiding in basements in Ukraine, suffering from food and clothing shortages. A truck will deliver the supplies at the New Federal State of China (NFSC) rescue base to Ukraine, and deliver them to those refugees who really need them.<br/>在乌克兰境内，还有很多难⺠躲在地下室，缺少衣物和⻝物。一辆卡车将运送新中国联邦救援基地的物资到乌克兰境内，送达需要的难⺠手里。<br/>#ukrainerescue #nfsc新中国联邦 #ukrainehotline
@@ -154,13 +161,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 
 ![img](https://media.gettr.com/group3/origin/2022/03/30/03/f03af3a5-3445-f037-db06-6de53431bdfc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/30/2022 2:02 AM (UTC)`
-
-2022.03.29  NFSC finance 新中国联邦 | 喜财经 第2期
-![img](https://media.gettr.com/group40/origin/2022/03/30/02/5a39b001-6867-e0ad-b38a-88da4e162157/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
