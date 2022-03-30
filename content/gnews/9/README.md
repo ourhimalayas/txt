@@ -2,41 +2,28 @@
 ---
 
 
-## 中国吉林省省会为因新冠疫情而导致的食品短缺道歉
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2255508/)
+## 俄军北部军力部份撤离 英国国防部：包围基辅已无法实现
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2255560/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2608-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/1-363.png)图片来自网络
-《路透社》近日报道，中国东北部吉林省省会长春市周二向其 850 万居民道歉，原因是由于新冠控制措施导致的停工和中断导致的食物短缺。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯29日承诺将大幅减少对乌克兰首都基辅、东北部切尔尼戈夫的军事行动，美方认为这可能只是「重新部署」，乌克兰武装部队总参谋部则表示俄方说法只是想误导大家。英国国防部在每日最新情报中表示，俄罗斯已几乎无法实现包围基辅的军事目标。
 
-该市市委副书记刘仁元表示，由于新冠，长春的两个主要食品批发市场已经关闭，导致食品供应短缺，工人短缺导致送货延迟，这一问题更加严重。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a868d754a6b5c2d74d721855a1974dc0.jpg)图片来源：多维新闻
 
-刘在当地的新闻发布会上说：“我们对此感到特别焦虑和愤怒，我们对造成的影响和不便向公众深表歉意。”
+英国国防部表示，近期俄罗斯在乌克兰境内反覆受到挫折，乌克兰军队也发起许多成功的反击行动，如此几乎可以肯定的说，俄军攻势未能实现原先的目标，也就是包围基辅。
 
-他说，为缓解分拣配送人员短缺的问题，吉林省政府每天组织约1000吨“蔬菜袋”运往长春。
+简评：拿不下乌克兰首都俄罗斯就没有获胜，俄军包围基辅已无法实现，打不过了就谈判，俄罗斯的缓兵之计还是选择性放弃全世界都在拭目以待。继续打一场不可能获胜的战争，不是普京疯了就是俄军傻了，俄罗斯大兵们，为普京卖命不值得！
 
-刘补充说，当局还将严厉打击蔬菜价格上涨。
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876285](https://news.ltn.com.tw/news/world/breakingnews/3876285)
 
-自 3 月中旬以来，长春和吉林其他地区几乎每天都在与数千例新冠病毒作斗争。
+撰稿/发布：一叶知秋
 
-“没有饭吃，只好吃方便面了。”长春一位姓毛的快递员说，他已经好几天没有离开小区了。
-
-“现在想什么都没用。我只能等到稍后解除封锁，”毛告诉路透社。
-
-在他们所谓的抗击病毒的“最后一战”中，当局自 3 月 14 日起对全省实施封锁，并进行大规模检测以隔离感染者。
-
-长春市本身已经完成了10多轮全市居民检测。
-
-这种道歉已经听过八百遍，道歉也不能当饭吃，下次封城能有改观吗？笔者比较担心的是吉林的封城会加速粮食危机的到来，本该是春耕的时候农民却被锁在家中无法出门，因为封城化肥也运不进来。作为中共国粮食主产区之一的吉林如果不能供应足量的粮食，那么可想而知很多老百姓都要饿肚子，封城受到最大伤害的还是老百姓。
-
-参考链接：
-
-[https://www.reuters.com/world/china/capital-chinas-jilin-province-apologises-food-shortages-due-covid-curbs-2022-03-29/](https://www.reuters.com/world/china/capital-chinas-jilin-province-apologises-food-shortages-due-covid-curbs-2022-03-29/)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标2-1-1.jpg)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

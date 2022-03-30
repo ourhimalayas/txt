@@ -2,10 +2,10 @@
 ---
 
 
-## 意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帐篷前，弹奏《乌克兰战地版铁锁梦》
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255463/)
+## 乌部队无人机伏击并阻止了基辅外40英里长的俄车辆纵队
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255521/)
 
-【乌克兰救援】03/29/2022 意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帐篷前，弹奏《乌克兰战地版铁锁梦》
+03/28/2022 乌克兰空中侦察部队（Aerorozvidka）指挥官雅罗夫斯拉夫·洪查尔中校说，30名特种部队和无人机操作员对基辅外40英里长的俄车辆纵队进行了一系列夜间伏击，阻止了纵队前进。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

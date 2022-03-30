@@ -2,10 +2,10 @@
 ---
 
 
-## 上海封城，市民绝望向窗外撒钱
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255440/)
+## 意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帐篷前，弹奏《乌克兰战地版铁锁梦》
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255463/)
 
-03/27/2022 上海封城，市民被迫居家隔离，绝望之下向窗外撒钱。
+【乌克兰救援】03/29/2022 意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帐篷前，弹奏《乌克兰战地版铁锁梦》
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

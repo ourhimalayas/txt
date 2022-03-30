@@ -15,43 +15,43 @@
 
 ---
 
-### [乌克兰总统泽连斯基将在澳大利亚议会发表讲话](/content/gnews/1/README.md)
- ` 澳喜农场`
+### [清零](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄军导弹击中市政楼，造成3死22伤](/content/gnews/2/README.md)
+### [樱花深度报道┃与泽连斯基一起在作战室的时光（下）](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登坚持认为普京不能继续执政的言论](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [伊维菌素是任何一个疾病模型中最有效的药物之一](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [秘翻在线：县长协会主席要求政府采取防止核电站受武装袭击的措施](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [英媒报道：中美正在努力解决中共国公司的审计纠纷](/content/gnews/4/README.md)
+### [乌克兰总统泽连斯基将在澳大利亚议会发表讲话](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [俄罗斯军方称将减少在基辅和切尔尼戈夫的军事行动](/content/gnews/5/README.md)
+### [樱花深度报道┃与泽连斯基一起在作战室的时光（上）](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄军导弹击中市政楼，造成3死22伤](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳政府预计奥米克戎冬季浪潮将冲击供应链并导致旷工](/content/gnews/6/README.md)
- ` 澳喜农场`
+### [伊维菌素是任何一个疾病模型中最有效的药物之一](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【简报】美国防部：中共成为新国防战略的头号威胁](/content/gnews/7/README.md)
+### [俄军北部军力部份撤离 英国国防部：包围基辅已无法实现](/content/gnews/9/README.md)
  ` 蓝莲花农场`
 
-### [乌部队无人机伏击并阻止了基辅外40英里长的俄车辆纵队](/content/gnews/8/README.md)
+### [俄罗斯军方称将减少在基辅和切尔尼戈夫的军事行动](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国吉林省省会为因新冠疫情而导致的食品短缺道歉](/content/gnews/9/README.md)
+### [澳政府预计奥米克戎冬季浪潮将冲击供应链并导致旷工](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [外媒报道：上海封锁全城进行核酸检测](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [研究表明中共国封城每月最少造成460亿美元的经济损失](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帐篷前，弹奏《乌克兰战地版铁锁梦》](/content/gnews/12/README.md)
+### [乌部队无人机伏击并阻止了基辅外40英里长的俄车辆纵队](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上海封城，市民绝望向窗外撒钱](/content/gnews/13/README.md)
+### [意大利战地钢琴家Davide Martello于梅迪卡新中国联邦法治基金救援基地帐篷前，弹奏《乌克兰战地版铁锁梦》](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [拜登：尽管俄入侵乌克兰 美仍快速落实印太战略](/content/gnews/14/README.md)
@@ -60,17 +60,17 @@
 ### [俄罗斯考虑接受比特币支付天然气和原油](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [永远的爆料革命战友才旺罗布](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [聚焦：中共挺俄喧嚣为什么安静了？](/content/gnews/17/README.md)
+### [聚焦：中共挺俄喧嚣为什么安静了？](/content/gnews/16/README.md)
  ` 蓝莲花农场`
 
-### [乌克兰提出采取中立地位以换取俄罗斯停火](/content/gnews/18/README.md)
+### [乌克兰提出采取中立地位以换取俄罗斯停火](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [印度小麦出口增加有望缓解粮食短缺](/content/gnews/19/README.md)
+### [印度小麦出口增加有望缓解粮食短缺](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
+
+### [【#G时新闻】隐藏的免疫功能或使未接种新冠疫苗的人免受感染](/content/gnews/19/README.md)
+ ` G-时新闻`
 
 ### [俄罗斯是否故意针对乌克兰的文化地标](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
@@ -84,17 +84,17 @@
 ### [3/27/2022文贵直播：印有新中国联邦标识和口号的马甲在波兰梅迪卡营地受到各国人民喜爱，我们的马甲将不限量免费赠送给喜欢的人](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [3/27/2022 文贵直播：泽林斯基总统说阿布是好人意味着什么？共产党的轻商主义把中国传统文化中的“尖商”打成“奸商”，所以才有了鼓吹强权金钱至上、毫无品位、狂妄之极的中共商人](/content/gnews/24/README.md)
+### [【#G时新闻】融创到期债务无法兑付，中共房地产加速破裂](/content/gnews/24/README.md)
+ ` G-时新闻`
+
+### [3/27/2022 文贵直播：泽林斯基总统说阿布是好人意味着什么？共产党的轻商主义把中国传统文化中的“尖商”打成“奸商”，所以才有了鼓吹强权金钱至上、毫无品位、狂妄之极的中共商人](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [新西兰总理对所罗门群岛与中共签署的驻军协议表示担忧](/content/gnews/25/README.md)
+### [新西兰总理对所罗门群岛与中共签署的驻军协议表示担忧](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [截至 2022 年 3 月 29 日 18 点的有关俄罗斯入侵鳥克蘭34天的作战信息](/content/gnews/26/README.md)
+### [截至 2022 年 3 月 29 日 18 点的有关俄罗斯入侵鳥克蘭34天的作战信息](/content/gnews/27/README.md)
  ` 纽约香草山MOS03`
-
-### [韩国疫情表明，亚洲的“中共疫苗接种试验”已经失败](/content/gnews/27/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [阿布拉莫维奇很早入手大量喜币，增加喜支付流通量争取更大话语权](/content/gnews/28/README.md)
  ` YALUN 亚伦`
