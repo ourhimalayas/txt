@@ -2,34 +2,25 @@
 ---
 
 
-## 美高级官员前往印度讨论俄乌局势
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2256950/)
+## 《历史的今天》 2022.03.30
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2257003/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/article-5dab1460f141f-2.jpg)
-3月29日周二，拜登政府负责经济的国家安全副顾问Daleep Singh前往新德里与印度政府会面，谈论俄乌战争局势，并建立一个印太经济框架。
+作者：虎子哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0330.png)
+1. 1842年：美国外科医生克劳福德•朗在切除手术过程中，首次让病患吸入作为麻醉剂的乙醚。
+2. 1856年：俄罗斯、奥斯曼帝国、萨丁尼亚、法国、英国等国签署《巴黎条约》，结束克里米亚战争。
+3. 1867年：美国国务卿威廉•苏厄德与俄国代表签订协议，以720万美元从俄国手中购买阿拉斯加，并设立阿拉斯加署管辖。
+4. 1879年：日本侵占琉球，废琉球王国，改置为冲绳县。
+5. 1940年：日本扶持的傀儡政权在中国南京市成立，汪精卫出任该政权的国民政府主席。
+6. 1993年：荣毅仁辞去中信公司董事长，就任国家副主席。
+7. 2011年：缅甸国防军大将丹瑞解散国家和平与发展委员会，把政权移交民选政府。
+8. 2021年：缅甸军事政变：美国贸易代表戴琪宣布美国即时停止与缅甸的所有贸易，直至缅甸国防军将政权返还经民主选举的政府。
 
-印度此前对俄罗斯入侵乌克兰的非正义战争持有保留意见，它并未像四国集团的其他国一样对俄罗斯采取经济制裁，甚至在联合国关于这场战争的多项决议中投了弃权票。印度一直试图平衡俄罗斯与西方的关系，拒绝明确谴责俄罗斯的入侵行径。白宫认为印度对俄罗斯的非正义战争立场不明，拜登总统表示会在整个北约和太平洋地区成立一个统一战线来应对普京的侵略。Daleep Singh此次前往新德里将会就俄罗斯无理战争的后果进行密切讨论，减轻其对全球经济的影响。
-
-据悉俄罗斯外长拉夫罗夫也即将访问印度。印度是俄罗斯商品的最大买家之一。
-
-撰稿、发布：骄子
-
-reference：
-
-[https://www.reuters.com/world/us-sends-senior-national-security-official-india-discuss-ukraine-2022-03-29/](https://www.reuters.com/world/us-sends-senior-national-security-official-india-discuss-ukraine-2022-03-29/)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+*发布：Theodosia*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

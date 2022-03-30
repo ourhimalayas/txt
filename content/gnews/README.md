@@ -15,50 +15,50 @@
 
 ---
 
-### [泽连斯基从与俄罗斯的会谈中看到了积极的信号](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [澳洲财政预算案中的移民政策看点分析](/content/gnews/1/README.md)
+ ` 走进澳洲`
 
-### [我们为什么而战？世界不应该与恐怖分子做交易](/content/gnews/2/README.md)
+### [埃隆-马斯克称俄罗斯总统普京是世界上最富有的人](/content/gnews/2/README.md)
  ` topnews`
 
-### [有声｜中共培植台青促统 台国安局示警抖音小红书渗透](/content/gnews/3/README.md)
+### [中共国北京必胜客门店因过期食材被罚5万元](/content/gnews/3/README.md)
+ ` 儒为`
+
+### [《历史的今天》 2022.03.30](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [泽连斯基从与俄罗斯的会谈中看到了积极的信号](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国欧洲司令部负责人称，在欧洲还需部署更多军力](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声｜中共培植台青促统 台国安局示警抖音小红书渗透](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美高级官员前往印度讨论俄乌局势](/content/gnews/4/README.md)
+### [美高级官员前往印度讨论俄乌局势](/content/gnews/8/README.md)
  ` 银河歌舞厅`
 
-### [台湾国家民主化加速中共政权瓦解](/content/gnews/5/README.md)
- ` G-NEWS TAIWAN`
-
-### [我们为什么而战？乌克兰为自由而战](/content/gnews/6/README.md)
- ` topnews`
-
-### [网民曝核酸检测乱象 采样棉签被重复使用](/content/gnews/7/README.md)
- ` 日本東京方舟農場`
-
-### [俄罗斯现在的主要目标是解放顿巴斯](/content/gnews/8/README.md)
+### [俄罗斯现在的主要目标是解放顿巴斯](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [欧盟委员会拒绝俄罗斯以卢布支付天然气费用](/content/gnews/9/README.md)
+### [欧盟委员会拒绝俄罗斯以卢布支付天然气费用](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【G时新闻】应对中俄挑战，美国公布2023巨额国防预算](/content/gnews/10/README.md)
+### [【G时新闻】应对中俄挑战，美国公布2023巨额国防预算](/content/gnews/11/README.md)
  ` G-时新闻`
-
-### [喜币之“贪嗔痴慢疑”](/content/gnews/11/README.md)
- ` 澳喜农场`
 
 ### [疫下灾情｜上海封城两日已酿悲剧 医院拒收危疾病人 一老翁失救致死](/content/gnews/12/README.md)
  ` 關注組`
 
-### [中国人民不是我们的敌人，中国共产党才是我们的敌人](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [俄乌战争｜俄外长喊话：中俄处在史上最坚固关系](/content/gnews/14/README.md)
+### [俄乌战争｜俄外长喊话：中俄处在史上最坚固关系](/content/gnews/13/README.md)
  ` 關注組`
 
-### [联合国：俄罗斯拦截黑海粮食运输船只](/content/gnews/15/README.md)
+### [联合国：俄罗斯拦截黑海粮食运输船只](/content/gnews/14/README.md)
  ` 日本東京方舟農場`
+
+### [03/30每日播报｜社媒消息:罗伯特马龙博士 皮埃尔·科里医生](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
 ### [中共国将工人限制在工厂内，以便在关闭期间维持生产](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`

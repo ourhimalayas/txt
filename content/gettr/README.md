@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/30/2022 9:24 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group19/origin/2022/03/30/07/5739e0f4-8593-a9bd-cb1d-f6f8c5120ecd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/30/2022 8:42 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -147,15 +154,6 @@ Pianist, Davide Martello, plays “Chained Dream” in front of the tent of New 
 
 
 ![img](https://media.gettr.com/group46/origin/2022/03/29/16/0bafda86-2ada-d9dd-ca5b-36e64fc29168/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@baoliaobaike 3/29/2022 4:51 PM (UTC)`
-
-🆙【Pandora's Box】❤️‍🔥<br/>【潘多拉盒子】<br/><br/>Pandora's Box refers to the CCP's evil attempt to destroy and control the institutions of Western civilization and build a " community with a shared future for mankind " in the eyes of the CCP through a series of evil tactics. The BGY and 3F plans, Document No. 91 and No. 94, the Double Dragon Plan, the Architectural Art Projects and the 13579 plan are all contained in Pandora's Box.  <br/>潘多拉盒子，指的是中共通过一系列邪恶手段，妄图毁灭、控制西方文明体制，构建中共眼中“人类命运共同体”的邪恶计划。蓝金黄、3F计划，91号、94号文件、双龙计划、建筑艺术项目、13579计划等均包含在潘多拉盒子之内。 <br/> #BGY  #3F #ccp #PandorasBox #3F计划 #91号 #94号文件 #双龙计划 #建筑艺术项目 #13579计划
-![img](https://media.gettr.com/group14/origin/2022/03/29/16/63d1b15c-7ca5-0cc0-7491-ec69af6a712b/out.jpg)
 
 ---
 
