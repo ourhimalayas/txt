@@ -2,28 +2,64 @@
 ---
 
 
-## 俄假撤军！乌总参谋部揭诡计：目的是要误导乌军
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258564/)
+## 有声|惊魂时刻
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258605/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄罗斯29日承诺，将大幅减少对乌克兰首都基辅、东北部切尔尼戈夫的军事行动，撤离部分军力。对此乌克兰武装部队总参谋部呼应美国国防部说法，认为俄军行动可能是诡计，只是部队轮换，目的就是要误导乌克兰军方。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phphrBThm.jpg)图片来源：美联社
-乌克兰武装部队总参谋部稍早在脸书上表示，俄罗斯部队持续从基辅和切尔尼戈夫撤离，将主要军力放在乌克兰东部顿巴斯地区上，但总参谋部强调，这样的「撤军」可能只是个别单位的轮换罢了。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+下午单位来了男顾客，
+阿姐笑脸相迎忙碌起来，
+我对着屏幕爬格子。
+突然急促的呼吸声吓走了我的灵感，
+只听阿姐惊魂未定的喊他名字。
+我条件反射疑他苗毒反应，
+果然刚打的第三针……
 
-总参谋部认为，俄军这样的行为，目的就是要误导乌军指挥官，制造没有要包围基辅的假象。
+所幸转为安好！
+那下一次呢，那些打了三针的大多数呢？
+世人到选择还不知病毒从哪里来
+真相还没有被解剖，
+疫苗却已到第四针？
+我们不知道疫苗从哪里来，
 
-简评：俄军假撤兵的诡计已被全世界揭穿，普京只要不停战没有人相信俄军会真正的撤兵，只是拖延下时间准备新一轮的进攻，乌军枕戈待旦岂能这么容易被麻痹。独裁者只有被彻底的消灭，否则不会低下狂妄的头颅，需警惕俄罗斯短暂撤军后使用更大规模的杀伤武器来攻击基辅！
+大多数已经争先恐后瞄上身了。
+每个人都知道被做了小白鼠，
+却没有人知道病毒、疫苗都是生化武器，
+救病毒疫苗是中共杀人的子母弹。
+病毒感染死了人，
+疫苗致残致死人，
+防疫防病死了人，
+却无处寻真相，
+无法得公理！
+病毒没解药，病毒加毒药，
+阴谋接着另一个阴谋，
+都是中共屠杀人类的罪恶诡计。
+人们在中共刻意隐瞒的高墙里得不到真相，
+又如何能分辨真假？
+又如何能辨别罪恶用心？
+死去太多太多的人，
+世界正朝着红魔设计的方向在毁灭，
+中共肆虐着人类，
+灭共的新中国联邦拯救人类，
+在人类遭受生物毒灾，
+新中国联邦公告青蒿素，
+我们要让世界知道真相，
+灭共是人类文明的进步！
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876295](https://news.ltn.com.tw/news/world/breakingnews/3876295)
+文字版原文：[惊魂时刻](https://gnews.org/zh-hans/2249046/)
 
-撰稿/发布：一叶知秋
+音频处理：Fei797
+发稿：Fei797
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,28 @@
 ---
 
 
-## 乌克兰局势缓解？俄罗斯誓言缩减在基辅的军事规模
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258547/)
+## 俄假撤军！乌总参谋部揭诡计：目的是要误导乌军
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258564/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-75.png)
-据加拿大【CTV新闻】3月29日报道， 周二在伊斯坦布尔举行的乌俄双方代表团最新一轮谈判中，俄罗斯宣布将大幅缩减在乌克兰首都和北部城市附近的军事行动，以“增加互信并为进一步谈判创造条件”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯29日承诺，将大幅减少对乌克兰首都基辅、东北部切尔尼戈夫的军事行动，撤离部分军力。对此乌克兰武装部队总参谋部呼应美国国防部说法，认为俄军行动可能是诡计，只是部队轮换，目的就是要误导乌克兰军方。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/phphrBThm.jpg)图片来源：美联社
+乌克兰武装部队总参谋部稍早在脸书上表示，俄罗斯部队持续从基辅和切尔尼戈夫撤离，将主要军力放在乌克兰东部顿巴斯地区上，但总参谋部强调，这样的「撤军」可能只是个别单位的轮换罢了。
 
-乌克兰总统泽连斯基表示，不能信任俄罗斯。因为谈判“无法让俄罗斯炮弹的爆炸安静下来”。而美国总统拜登和国务卿布林肯均表示，不会在意俄罗斯说什么，相反更关注他们在做什么，俄罗斯正在持续残暴的对待乌克兰。在过去的几天里，乌克兰军队在基辅郊区和其他地区进行了非常有效的反击，夺回了东北部苏梅以南的特罗斯蒂亚涅茨，重创了俄军。而俄军的地面部队则因遭遇乌克兰顽强的抵抗，加之其自身战术失误、士气低落、食品、燃料和寒冷天气装备短缺以及其他问题等受到严重挫败。
+总参谋部认为，俄军这样的行为，目的就是要误导乌军指挥官，制造没有要包围基辅的假象。
 
-[原文链接](https://www.ctvnews.ca/world/relief-for-kyiv-russia-vows-to-scale-back-near-the-capital-1.5838824)
+简评：俄军假撤兵的诡计已被全世界揭穿，普京只要不停战没有人相信俄军会真正的撤兵，只是拖延下时间准备新一轮的进攻，乌军枕戈待旦岂能这么容易被麻痹。独裁者只有被彻底的消灭，否则不会低下狂妄的头颅，需警惕俄罗斯短暂撤军后使用更大规模的杀伤武器来攻击基辅！
 
-编辑/上传 – 大废墙
-素材/采编 – 青青
-翻译 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876295](https://news.ltn.com.tw/news/world/breakingnews/3876295)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+撰稿/发布：一叶知秋
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,64 +2,28 @@
 ---
 
 
-## 有声|惊魂时刻
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258605/)
+## 阿尔伯塔省积极推动数字货币应用
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258626/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-下午单位来了男顾客，
-阿姐笑脸相迎忙碌起来，
-我对着屏幕爬格子。
-突然急促的呼吸声吓走了我的灵感，
-只听阿姐惊魂未定的喊他名字。
-我条件反射疑他苗毒反应，
-果然刚打的第三针……
+采编：加拿大温哥华杨帆农场 – 坐看云起时
 
-所幸转为安好！
-那下一次呢，那些打了三针的大多数呢？
-世人到选择还不知病毒从哪里来
-真相还没有被解剖，
-疫苗却已到第四针？
-我们不知道疫苗从哪里来，
+编译撰稿： 加拿大温哥华杨帆农场 – 文明(添草灭共)
 
-大多数已经争先恐后瞄上身了。
-每个人都知道被做了小白鼠，
-却没有人知道病毒、疫苗都是生化武器，
-救病毒疫苗是中共杀人的子母弹。
-病毒感染死了人，
-疫苗致残致死人，
-防疫防病死了人，
-却无处寻真相，
-无法得公理！
-病毒没解药，病毒加毒药，
-阴谋接着另一个阴谋，
-都是中共屠杀人类的罪恶诡计。
-人们在中共刻意隐瞒的高墙里得不到真相，
-又如何能分辨真假？
-又如何能辨别罪恶用心？
-死去太多太多的人，
-世界正朝着红魔设计的方向在毁灭，
-中共肆虐着人类，
-灭共的新中国联邦拯救人类，
-在人类遭受生物毒灾，
-新中国联邦公告青蒿素，
-我们要让世界知道真相，
-灭共是人类文明的进步！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1-14.jpg)图片来源：GNEWS
 
-文字版原文：[惊魂时刻](https://gnews.org/zh-hans/2249046/)
 
-音频处理：Fei797
-发稿：Fei797
+据加拿大【环球新闻】3月27日报道，阿尔伯塔省政府近日宣布，该省即将推出有关金融创新的立法来促进数字货币行业的发展。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+对此，阿尔伯塔就业部长表示，已有多家数字货币领域的公司计划与该省相关机构合作，共同推动未来数字金融系统的应用。尽管数字金融业目前尚处于起步阶段，但该省计划通过创造良好投资环境，并最终成为北美地区数字资产交易及服务行业的中心。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据悉，该省优惠的电力价格和丰富的天然气能源供应，在此前就曾吸引了大量加密货币采矿业务。目前，多家与数字资产保管、存储以及加密等设备制造有关的公司也开始在该省设立生产基地。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+新闻来源：[https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/](https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

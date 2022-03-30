@@ -2,20 +2,27 @@
 ---
 
 
-## 自由和独裁不共戴天
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2258183/)
+## 日本开放宣战权呼应拜登演讲
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2258244/)
 
-文贵大直播20220330
+作者：澳喜农场 Leo M
 
-文案指导：顽童（纽伦堡正义）
+3月27日，郭文贵先生在大直播中透露，日本公布开放宣战权的做法是为了呼应美国总统拜登早先在波兰华沙的演讲。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2-215.jpg)
+此前一天，拜登总统在演讲中严厉警告称，绝不允许普京踏入欧洲半步。同时，拜登总统也建议俄罗斯人不应该再让普京继续掌权。对此，日本首相岸田文雄表示，日本必须尽快开放自卫队的“宣战和动武权”，所以修改宪法中的相关章程将是日本政府势在必行的计划。
 
-撰稿：文仁（功成）不着急（达芬奇）
+资料显示，自俄罗斯入侵乌克兰以来，世界格局正在发生翻天覆地的变化。这其中，地处俄罗斯远东方向的日本成为了牵制莫斯科当局的重要力量。因此，日本突然提出开放宣战权的政策将具有非同寻常的意义。
 
-美工：卡西亚（雅典娜）
+郭先生也补充道，在当前不能拥有核武器的情况下，日本可以在72小时内制造出五枚核导弹，且其中任何一枚的威力都将不亚于中共和俄罗斯的同类军备。短期内，日本必将重回世界超级大国的行列。
 
-书法：沙漠之花（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-1.png)
-*发布：Theodosia*
+参考链接：[**2022年3月27日 文贵大直播：世界政治地域文化经济彻底改变；美国点明俄国非西方敌人普京是；从普京必须离开看习近平的命运；GClubs年会显天意人心遥相呼应**](https://gettr.com/streaming/p124vkgc8a0)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：Irene木木
+编辑：呼吸的雾霾（文小呼吸）
+审核：翼族
+校正/发稿：Fei797
 
  
 

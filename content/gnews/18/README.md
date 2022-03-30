@@ -2,33 +2,38 @@
 ---
 
 
-## 紧急公共新闻：美国参议院专家证人彼得·麦卡洛博士的证词指出，美国95%（由COVID-19导致的）死亡本可以避免
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2258434/)
+## 有声|拜登在波兰会见“勇敢的”乌克兰难民
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258489/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-0:00 他是一名内科医生，心脏病专家，接受过流行病学培训。他曾在美国参议院就我所提到的COVID-19应对措施（的听证会）作证，请您今天在这里介绍应对大流行病的四大支柱（措施）是我们的荣幸。谢谢你，医生先生。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-0:14 今天我们坐在这里（谈论这个话题的时候），我估计95%死于COVID-19的美国人，这个死亡数字已经接近一百万了，以及无数接受住院治疗的病人如果采用全面的早期治疗方案，原本悲剧是可以避免的。因此我们今天讨论的主题是儿童疫苗接种，那么公开发表的代表性数据已经证明儿童（COVID-19)疫苗接种的风险远超过任何潜在的好处。这些数据是十分明确的。过去数周（疫苗不良反应）报告层出不穷。其中一份是经由密歇根大学和明尼苏达大学病理学审查认可的来自康州的关于两名十几岁的男孩子分别在接种了辉瑞疫苗三天和四天后，其父母惊恐地发现孩子在家中死亡的报告。他们对其进行了尸检，结论非常清楚，疫苗导致死亡并伴有严重的心脏炎症和心脏叠加儿茶酚胺损伤的证据。来自韩国的崔博士(SANGJOON CHOI)和圣路易斯华盛顿大学的威尔玛医生（Amanda Verma)都发表了（COVID-19)疫苗会引起致命危险的报告。显而易见的是疫苗是被强行推广的（疫苗）强制令事实上导致了孩子的死亡。在导致儿童死亡这个问题上，哪怕一个孩子死亡都是不可接受的。正如我分享的那样，在数百万接种疫苗的儿童中，他们不会死于 COVID-19 呼吸系统疾病，而实际上（可能会）死于疫苗。作为一名医生和公民，我认为应该立即废除所有疫苗强制令。从市场上撤下所有当前的疫苗，并对其安全性和有效性进行非常深入的审查，找出疫苗计划出了问题的地方。以上是我的意见，谢谢。
 
-素材提供：坐看云起时
-软件听写：蓝色天空
-听写校对：小白咖啡馆
-文稿翻译：文倩
-翻译校对：啊啊小苹果
-字幕添加：文雅
-最终审核：文倩
-编辑/发稿：hongyeca
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-102-1.jpg)
+我们听到了一些令人心碎的故事，总统让人们放心，并告诉他们美国将会提供帮助，将在武器上帮助乌克兰的军队，我们将帮助人民，也帮助华沙市，计划将超过10万乌克兰人转移到美国去，这种人类团结的本能真是不可思议，我们需要欧盟、联合国来帮助我们，乌克兰人正在为我们的自由，以及为了跨大西洋联盟的稳定而战，我们需要帮助他们。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+文字版原文：[拜登在波兰会见“勇敢的”乌克兰难民](https://gnews.org/zh-hans/2254893/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,20 @@
 ---
 
 
-## 自由和獨裁不共戴天
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2258182/)
+## 自由和独裁不共戴天
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2258183/)
 
-文貴大直播20220330
+文贵大直播20220330
 
-文案指導：頑童（紐倫堡正義）
+文案指导：顽童（纽伦堡正义）
 
-撰稿：文仁（功成）不著急（達芬奇）
+撰稿：文仁（功成）不着急（达芬奇）
 
-美工：卡西亞（雅典娜）
+美工：卡西亚（雅典娜）
 
-書法：沙漠之花（香草山）
+书法：沙漠之花（香草山）
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-1.png)
-*發布：Theodosia*
+*发布：Theodosia*
 
  
 
