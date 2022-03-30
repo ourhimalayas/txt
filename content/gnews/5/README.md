@@ -2,26 +2,12 @@
 ---
 
 
-## 弗吉尼亚州州长赠与签署解除学校口罩令的钢笔
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2255385/)
+## 俄罗斯军方称将减少在基辅和切尔尼戈夫的军事行动
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255542/)
 
-##### 素材：小菠萝
-翻译：Annabelle
-校对：Lish
-字幕：蛮吉
-编辑：Mttfly
+03/29/2022 MSNBC 新闻：正在伊斯坦布尔举行的俄乌最新谈判似乎有了一些进展。俄罗斯军方表示，它将减少在基辅和切尔尼戈夫的军事行动，乌克兰表示他们将采取中立地位。然而，土耳其在今天的声明中持谨慎态度，称虽有进展，但还有很多需要继续谈判。
 
-美国弗吉尼亚州众议院周三（2月16日）通过法案，将该州学生在学校戴口罩与否的决定权交给了家长。当天下午，该州州长格伦‧扬金（Glenn Youngkin）将这项法案签署成了法律。扬金州长说：”能够签署参议院第739号法案，使之成为弗吉尼亚联邦的法律，这是我至高无上的荣耀。”随后，他将用来签署此法令的钢笔赠与九次因没戴口罩而被禁止上学的小女孩。
-
-视频来源：[Virginia’s new Governor Glenn Youngkin signs bill outlawing school mask mandates in the state, handing the pen to a girl who was suspended nine times from school for not wearing a mask.](https://twitter.com/michaelpsenger/status/1494063071203000321?s=21)
-
-*发布：Mttfly*
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

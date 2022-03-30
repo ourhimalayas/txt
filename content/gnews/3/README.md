@@ -2,22 +2,12 @@
 ---
 
 
-## G7成员国在对俄能源问题上达成一致
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2255426/)
+## 伊维菌素是任何一个疾病模型中最有效的药物之一
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2255567/)
 
-采编：青青 撰稿：文莱
+03/28/2022 皮埃尔·科里医生：伊维菌素是任何一个疾病模型中最有效的药物之一。Cureus医学科学杂志上由Flávio A. Cadegiani（弗拉维奥·凯迪加尼）医生和一组作者的研究，2020年6月，巴西城市伊塔雅伊，113,000居民每月服用研究提供的伊维菌素，六个月后，住院率和死亡率惊人的大幅下降了90%-100%。不止一项研究，81项研究中几乎每个个案都显示了药物受惠性。
 
-据加拿大媒体【CTV新闻】3月28日报道，G7成员国主要经济体日前一致同意拒绝俄罗斯天然气出口要以卢布结算的要求，并重申合同的必要性，即规定付款结算的币种需为欧元或美元。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-63.jpg)
-
-报道称，普京日前决定针对制裁俄罗斯的国家在使用天然气结算时需要支付卢布。此举旨在试图扶持卢布，因为如俄方发言人表示将不会提供免费的天然气，所以在买家购买卢布的时候，供不应求的局面也使得已经很高的天然气价格进一步走高。
-
-据悉，欧洲各国政府一直回避禁止从俄罗斯进口能源，因为欧洲从俄罗斯直接获得近40%的天然气和25%的石油，所以对天然气的抵制或禁运都涉及到经济产出的重大损失，特别是在战争导致的能源和原材料价格飙升之时。不过世界格局已经改变，G7成员国和欧盟的能源专员在对待制裁俄罗斯能源的问题上达成一致。
-
-链接：[Ukraine: G7 rejects Russia’s demand to pay for gas in rubles | CTV News](https://www.ctvnews.ca/business/g7-countries-including-canada-reject-russia-s-demand-to-pay-for-gas-in-rubles-germany-1.5837494)
-
-编辑/上传：文所未闻
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
