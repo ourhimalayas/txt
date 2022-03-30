@@ -2,33 +2,29 @@
 ---
 
 
-## 加密货币应该“保持合法并让其繁荣”
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2258606/)
+## 阿尔伯塔省积极推动数字货币应用
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258626/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-69.jpg)
-周一，加拿大保守党议员和领袖候选人波伊瑞.波伊利维夫（Pierre Poilievre）在一份声明中强调说，特鲁多政府正在用“美式印钞，抬高了富人的资产和其他所有人的生活成本，毁掉了加拿大的货币，导致了“纯粹的通货膨胀”，所以加拿大人应该有使用其他货币的自由，比如比特币。他承诺让加拿大成为区块链世界之都，并明确表示他将作为支持比特币的候选人参加竞选。
+采编：加拿大温哥华杨帆农场 – 坐看云起时
 
-他强调说，“自2020年以来，加拿大凭空创造了4000多亿美元的现金，加拿大的通胀率达了30年来的最高点，房地产价格翻了一番，加拿大元的购买力下降了一半。而加密货币可以弥补这种通胀。”
+编译撰稿： 加拿大温哥华杨帆农场 – 文明(添草灭共)
 
-加密货币被认为是最自由的经济形式，它不仅仅是新形式的现金。它还涉及到分散对经济决策的控制。波伊利维夫政府将欢迎这种新的、分散的、自下而上的经济，并允许人们从银行家和政治家手中控制自己的资金，让特鲁多政府控制大卡车司机银行账户的悲剧不再重演！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1-14.jpg)图片来源：GNEWS
 
-[原文链接](https://thepostmillennial.com/poilievre-says-crypto-should-be-kept-legal-and-let-it-thrive)
 
-编辑/上传 – 大废墙
-素材/采编 – 重生之鹰
-翻译 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+据加拿大【环球新闻】3月27日报道，阿尔伯塔省政府近日宣布，该省即将推出有关金融创新的立法来促进数字货币行业的发展。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+对此，阿尔伯塔就业部长表示，已有多家数字货币领域的公司计划与该省相关机构合作，共同推动未来数字金融系统的应用。尽管数字金融业目前尚处于起步阶段，但该省计划通过创造良好投资环境，并最终成为北美地区数字资产交易及服务行业的中心。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+据悉，该省优惠的电力价格和丰富的天然气能源供应，在此前就曾吸引了大量加密货币采矿业务。目前，多家与数字资产保管、存储以及加密等设备制造有关的公司也开始在该省设立生产基地。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+校对编辑：硫酸羟氯喹64
 
+发稿：文明(添草灭共)
+
+新闻来源：[https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/](https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/)
+
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

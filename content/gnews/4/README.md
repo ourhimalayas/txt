@@ -2,27 +2,29 @@
 ---
 
 
-## 欧盟和G7成员国以能源结算制裁普京
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258796/)
+## 日本将加强加密货币交易监管
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2258936/)
 
-采编：加拿大温哥华杨帆农场 – 青青
+共同社3月30日报道，日本政府消息人士周三表示，日本将加强对加密货币交易所的监管，要求它们检查交易的接受者是否受到俄罗斯入侵乌克兰后实施的金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/j.jpg)sputniknews.com
+消息人士称，此举将是设想中的外汇和贸易法修正案的一部分，目的是防止加密货币成为规避此类制裁的漏洞。
 
-撰稿：加拿大温哥华杨帆农场 – 文莱
+人们越来越担心，在俄罗斯被排除在SWIFT这关键国际支付网络之外后，加密货币可能被用来淡化对俄罗斯的一些制裁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-22-3.jpg)图片来源：reddit.com
+根据修订后的法案，政府还计划限制被制裁者将加密货币资产转移到第三方的账户。
 
+首相岸田文雄周一表示，政府将在目前的议会会议上为修正案做准备，直至6月中旬。
 
-据加拿大【CTV新闻】3月28日报道，所有G7成员国当天一致同意拒绝俄罗斯提出的以卢布结算其天然气出口的要求，并要求俄方必须按合同规，以欧元或美元进行付款结算。
+根据现行法律，银行有义务检查汇款人是否是制裁对象，而加密货币交易所则不是。
 
-据悉，普京日前决定：对所有制裁俄罗斯的国家在使用天然气结算时需要支付卢布。不仅以此变相提高天然气价格，而且还试图避开欧美制裁以挽救国内崩溃的经济。
+政府本月早些时候要求加密货币交易所加强对加密货币资产的监测，并向金融当局报告任何可能涉及受制裁者的可疑交易。
 
-报道指出，尽管欧洲40%的天然气和25%的石油都直接来自俄罗斯，特别是在由战争所导致的能源价格飙升之际，对其天然气的抵制或禁运将造成欧盟巨大经济损失。但为彻底摆脱普京政权的胁迫，G7成员国和欧盟最终在进口能源方面制裁俄罗斯达成上述一致。
+**快评**：对加密货币交易加强监管已经成为美国、日本等国政府的共识。比特币对加密货币的发展发挥了巨大的作用，但比特币被极少数人掌控着绝大多数的币，并且成为暗网各种违法犯罪行动使用的通货，它必成为各国政府绞杀的对象。加密货币欲争夺法币的市场，那迎来的还有各种较量，但最终数字货币会站上历史的舞台。
 
-校对编辑：硫酸羟氯喹64
+参考链接：
+[https://english.kyodonews.net/news/2022/03/3c3560f1a34d-japan-to-toughen-crypto-rules-to-make-sanctions-on-russia-effective.html](https://english.kyodonews.net/news/2022/03/3c3560f1a34d-japan-to-toughen-crypto-rules-to-make-sanctions-on-russia-effective.html)
 
-发稿：文明(添草灭共)
-
-新闻来源： [Ukraine: G7 rejects Russia’s demand to pay for gas in rubles | CTV News](https://www.ctvnews.ca/business/g7-countries-including-canada-reject-russia-s-demand-to-pay-for-gas-in-rubles-germany-1.5837494)
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

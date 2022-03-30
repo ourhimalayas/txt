@@ -15,104 +15,104 @@
 
 ---
 
-### [樱花FM|时政:G7：我们将追究普京等人的责任](/content/gnews/1/README.md)
+### [樱花FM|七哥谈灭共芯片—格芯（5）](/content/gnews/1/README.md)
  ` 樱花FM`
 
-### [有声|随着西方零售品牌退出， 俄罗斯向中印等东方国家寻找替代者](/content/gnews/2/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声|上海新冠阳性病例激增分两批封控筛查 “非必要不来沪、非必要不离沪”](/content/gnews/3/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [欧盟和G7成员国以能源结算制裁普京](/content/gnews/4/README.md)
+### [疫情失控上海市采取极端封锁措施](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄乌战局最近消息汇总（3月30日）](/content/gnews/5/README.md)
+### [樱花FM|七哥谈灭共芯片—格芯（4）](/content/gnews/3/README.md)
+ ` 樱花FM`
+
+### [日本将加强加密货币交易监管](/content/gnews/4/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [樱花FM|七哥谈灭共芯片—格芯（3）](/content/gnews/5/README.md)
+ ` 樱花FM`
+
+### [樱花FM|时政:G7：我们将追究普京等人的责任](/content/gnews/6/README.md)
+ ` 樱花FM`
+
+### [有声|香港增8037宗个案,连续两日四位数](/content/gnews/7/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声| 拜登华沙演说：“普京不能继续掌权”](/content/gnews/8/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|随着西方零售品牌退出， 俄罗斯向中印等东方国家寻找替代者](/content/gnews/9/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|上海新冠阳性病例激增分两批封控筛查 “非必要不来沪、非必要不离沪”](/content/gnews/10/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [【G时新闻】澳大利亚政府将网络作战部队规模翻倍以应对中俄网络安全威胁](/content/gnews/11/README.md)
+ ` G-时新闻`
+
+### [俄乌战局最近消息汇总（3月30日）](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [追踪加密资产在新兴市场经济体中的足迹](/content/gnews/6/README.md)
+### [追踪加密资产在新兴市场经济体中的足迹](/content/gnews/13/README.md)
  ` NFSC News`
 
-### [喜悦辣评——第06期](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花时政┃俄乌战事未平，中东冲突又起，中共幕后操纵！](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|日本对接种中共病毒疫苗的政策出现转变](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [中共外交部回应中共国是否可作为俄乌和平协议的担保方](/content/gnews/10/README.md)
+### [中共外交部回应中共国是否可作为俄乌和平协议的担保方](/content/gnews/14/README.md)
  ` thedawn`
 
-### [俄承诺落空！乌克兰控俄军仍炮击北部城市](/content/gnews/11/README.md)
+### [俄承诺落空！乌克兰控俄军仍炮击北部城市](/content/gnews/15/README.md)
  ` 蓝莲花农场`
 
-### [真实的美国，计算错误的数据](/content/gnews/12/README.md)
+### [真实的美国，计算错误的数据](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|拜登波兰演讲感召东欧人民对抗独裁暴政](/content/gnews/13/README.md)
+### [有声|西方真正的软实力叫做信仰](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [俄罗斯承诺缩减在乌克兰北部的军事行动](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|欧洲检察署支持组队调查俄罗斯战争罪行](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|灭共者之郭氏情报站（44）2022/03/27 文贵大直播](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [阿尔伯塔省积极推动数字货币应用](/content/gnews/17/README.md)
+### [阿尔伯塔省积极推动数字货币应用](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [加密货币应该“保持合法并让其繁荣”](/content/gnews/18/README.md)
+### [加密货币应该“保持合法并让其繁荣”](/content/gnews/19/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [泽伦斯基呼吁立即实施严厉制裁 不要等待俄罗斯化学武器袭击](/content/gnews/19/README.md)
+### [泽伦斯基呼吁立即实施严厉制裁 不要等待俄罗斯化学武器袭击](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [俄假撤军！乌总参谋部揭诡计：目的是要误导乌军](/content/gnews/20/README.md)
+### [俄假撤军！乌总参谋部揭诡计：目的是要误导乌军](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [俄军摧毁卢甘斯克一所幼儿园 乌总统在丹控诉俄反人类罪行](/content/gnews/21/README.md)
+### [俄军摧毁卢甘斯克一所幼儿园 乌总统在丹控诉俄反人类罪行](/content/gnews/22/README.md)
  ` 波士顿五月花农场金融部`
 
-### [20220327文贵大直播：第三次世界大战的局势演绎及战后世界新格局](/content/gnews/22/README.md)
+### [20220327文贵大直播：第三次世界大战的局势演绎及战后世界新格局](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共上海开始调动民兵加强封控](/content/gnews/23/README.md)
+### [中共上海开始调动民兵加强封控](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [加拿大将致力发展新型核能计划](/content/gnews/24/README.md)
+### [加拿大将致力发展新型核能计划](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [3/30/2022 国际财经快讯：因中共病毒疫情限制措施影响，日本2月零售额5个月来首次下降；乌俄会谈后，亚洲股市加入全球涨势](/content/gnews/25/README.md)
+### [3/30/2022 国际财经快讯：因中共病毒疫情限制措施影响，日本2月零售额5个月来首次下降；乌俄会谈后，亚洲股市加入全球涨势](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [兵源缺乏 俄罗斯招募“真主党”雇佣兵](/content/gnews/26/README.md)
+### [兵源缺乏 俄罗斯招募“真主党”雇佣兵](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [美国军队高层命令军医对军人疫苗伤害保持沉默](/content/gnews/27/README.md)
+### [美国军队高层命令军医对军人疫苗伤害保持沉默](/content/gnews/28/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [紧急公共新闻：美国参议院专家证人彼得·麦卡洛博士的证词指出，美国95%（由COVID-19导致的）死亡本可以避免](/content/gnews/28/README.md)
+### [紧急公共新闻：美国参议院专家证人彼得·麦卡洛博士的证词指出，美国95%（由COVID-19导致的）死亡本可以避免](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [澳洲经济预算文件担忧今年中期或出现更严重疫情](/content/gnews/29/README.md)
+### [澳洲经济预算文件担忧今年中期或出现更严重疫情](/content/gnews/30/README.md)
  ` 澳喜特战旅Gnews`
 
-### [郭先生透露才旺罗布的真正死因](/content/gnews/30/README.md)
+### [郭先生透露才旺罗布的真正死因](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [白俄反对派呼吁：如果白俄摆脱独裁 欧洲将更加安全](/content/gnews/31/README.md)
+### [白俄反对派呼吁：如果白俄摆脱独裁 欧洲将更加安全](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [渥太华大学将取消疫情限制措施](/content/gnews/32/README.md)
+### [渥太华大学将取消疫情限制措施](/content/gnews/33/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [自由和独裁不共戴天](/content/gnews/33/README.md)
- ` MilesGuoLivePPT`
 
 ### [自由和獨裁不共戴天](/content/gnews/34/README.md)
  ` MilesGuoLivePPT`
@@ -120,11 +120,11 @@
 ### [融创年报缺席盘中暴跌，逾15家房企年报难产](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022/03/30 英喜时事速递](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [GFASHION HPay付款](/content/gnews/36/README.md)
+ ` MilesGuoLivePPT`
 
-### [俄罗斯背弃承诺，再次轰炸乌克兰城市](/content/gnews/37/README.md)
- ` 银河歌舞厅`
+### [2022/03/30 英喜时事速递](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [地产债务爆雷 引发社会动荡](/content/gnews/38/README.md)
  ` MilesGuoLivePPT`

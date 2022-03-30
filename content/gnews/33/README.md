@@ -2,20 +2,27 @@
 ---
 
 
-## 自由和独裁不共戴天
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2258183/)
+## 渥太华大学将取消疫情限制措施
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258328/)
 
-文贵大直播20220330
+采编：加拿大温哥华杨帆农场 – 青青
 
-文案指导：顽童（纽伦堡正义）
+编译：加拿大温哥华杨帆农场 – 晨熹
 
-撰稿：文仁（功成）不着急（达芬奇）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-12-3.jpg)图片来源：ctv
 
-美工：卡西亚（雅典娜）
 
-书法：沙漠之花（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide1-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide2-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide3-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide4-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide6-1-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide8-1-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide9-1-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide10-1.png)
-*发布：Theodosia*
+据加拿大【CTV新闻】3月29日报道，渥太华大学从5月份开始，将取消在校园内强制配戴口罩和使用“新冠病毒”疫苗接种证明。
+
+该大学日前发布声明称：鉴于安省政府最近放宽了公共卫生限制，将从 5月1日起暂停实施配戴口罩并提供疫苗接种证明才能进入校园的要求。但同时会根据疫情实际变化，随时撤销以上规定。
+
+据悉，该大学所在的安大略省目前已取消了配戴口罩和出示疫苗接种证明等大部分疫情防控措施。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： [https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068](https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068)
 
  
 

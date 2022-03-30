@@ -2,31 +2,30 @@
 ---
 
 
-## 有声|欧洲检察署支持组队调查俄罗斯战争罪行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258645/)
+## 俄承诺落空！乌克兰控俄军仍炮击北部城市
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258712/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月28日，欧洲检察署表示，该机构支持上周宣布成立的一支调查队，以调查俄罗斯在入侵乌克兰后所犯下的战争罪行。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯昨天承诺将大幅减少在乌克兰北部的军事行动，但乌北切尔尼戈夫州州长曹斯今天指控，俄军仍持续炮击切尔尼戈夫市。
 
-据悉，立陶宛、波兰和乌克兰三国在上周签署一项协议，准备成立一个团队，以调查俄罗斯所涉嫌的战争罪行和人道罪行。欧洲检察署发表声明说，参与这个团队的成员，可能会扩大到欧洲其他成员国、第三国或者其他第三方。声明表示，欧洲检察署将提供法律和技术协助，其主要目的是支持证据收集、伙伴国之间安全迅速交流，以及信息和证据的传送。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220330225048632.jpg)图片来源：美联社
 
-另据报道，该调查队也将与国际刑事法院协调合作。国际刑事法院是世界常设战争罪行法庭，该法庭在俄罗斯入侵乌克兰之后，就已经在乌克兰自行展开调查。
+俄国昨天在土耳其伊斯坦堡与乌克兰举行的面对面会谈中，承诺要减少在切尔尼戈夫市和乌国首都基辅周遭地区的军事活动，但乌克兰和西方强国已经对此表达怀疑。
 
-文字版原文：[欧洲检察署支持组队调查俄罗斯战争罪行](https://gnews.org/zh-hans/2251646/)
+曹斯在社群媒体发文写道：切尔尼戈夫整晚都遭受炮击。法新社记者称，今天还可以听到基辅西北郊伊尔平镇传出的频繁爆炸声。
 
-音频处理：Fei797
-发稿：Fei797
+简评：俄罗斯承诺落空继续炮击乌克兰北部城市，流氓本就言而无信，这下连最后一丝信任的机会也葬送了。不仅仅是失信于乌克兰，更是失信于全世界，既然毫无信用可谈，接下来面临的就是乌军更加顽强的抵抗与世界各国更加猛烈的制裁！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+新闻来源：[联合新闻网](https://udn.com/news/story/122663/6204192?from=udn-ch1_breaknews-1-0-news)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+撰稿/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

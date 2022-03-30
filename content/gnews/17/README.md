@@ -2,27 +2,43 @@
 ---
 
 
-## 阿尔伯塔省积极推动数字货币应用
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258626/)
+## 有声|西方真正的软实力叫做信仰
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2258707/)
 
-采编：加拿大温哥华杨帆农场 – 坐看云起时
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月27日，在全球大直播中，就拜登总统3月26日在波兰华沙皇家城堡，关于俄罗斯入侵乌克兰战争发表的惊天演讲，郭文贵先生进行了历史与信仰的高度解读。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-7.jpeg)
+拜登总统在演讲中呼吁：为着上帝的缘故，普京不能继续掌权。郭先生认为这句话包含的非凡历史意义，远超肯尼迪总统1963年6月26日在西柏林演讲中的名言“我是柏林人”，和里根总统1987年6月12日的《勃兰登堡门演讲》的感召力。
 
-编译撰稿： 加拿大温哥华杨帆农场 – 文明(添草灭共)
+郭先生还提到，当年希拉里一句“美国要靠软实力影响世界”，中共经过了长达一年的研究才弄懂其意：软实力是媒体，网络，正义，人权，民主等等。共产党对世界的无知超出常人想象，他们认定，美国四年一换总统，有两党斗争，有钟摆效应。故想当然地以为，能够利用一些手段来挑动美国内部混乱，从而达到搞弱美国，杀掉白人，统治全球的邪恶企图。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1-14.jpg)图片来源：GNEWS
+共产党从来没有信仰，他们从未见过真正信仰者的样子, 也从来不知道真正的信仰比核武器还厉害。美国重欧轻亚的全球战略一方面是为了利益，另一方面就是因为与欧洲有共同的信仰。
+
+郭先生再次提醒，拜登在演讲中将俄乌之战描述为一场“善恶之战”，最后俄罗斯人民一定与正义站在一起。祷告上帝带走的是普京，而不是俄罗斯民族。这是人类信仰的上天真实存在的证据，无神论的共产党永远不会明白，更不会相信。
 
 
-据加拿大【环球新闻】3月27日报道，阿尔伯塔省政府近日宣布，该省即将推出有关金融创新的立法来促进数字货币行业的发展。
 
-对此，阿尔伯塔就业部长表示，已有多家数字货币领域的公司计划与该省相关机构合作，共同推动未来数字金融系统的应用。尽管数字金融业目前尚处于起步阶段，但该省计划通过创造良好投资环境，并最终成为北美地区数字资产交易及服务行业的中心。
 
-据悉，该省优惠的电力价格和丰富的天然气能源供应，在此前就曾吸引了大量加密货币采矿业务。目前，多家与数字资产保管、存储以及加密等设备制造有关的公司也开始在该省设立生产基地。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[西方真正的软实力叫做信仰](https://gnews.org/zh-hans/2253574/)
 
-发稿：文明(添草灭共)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-新闻来源：[https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/](https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,25 +2,52 @@
 ---
 
 
-## 郭先生透露才旺罗布的真正死因
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2258392/)
+## 澳洲经济预算文件担忧今年中期或出现更严重疫情
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2258410/)
 
-作者：银河系农场 骄子
+撰稿：Gradient Boost
 
-在3月27日大直播中，郭文贵先生解释了战友才旺罗布先生的真正死因。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-162.jpg)
-郭先生表示，才旺罗布在生活中是一个非常有才情的人，而与他相交的大多都是颇具文化深度的朋友。郭先生回忆道，中共国内某音乐届大佬在介绍才旺罗布时提到，西藏人太可怜了，为此，他愿意用生命去拯救每一个西藏人。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/model-1.png)
 
-郭先生也透露称，才旺战友因为关注爆料革命和郭先生直播而遭受了中共的迫害。然而即便如此，才旺战友每次在观看直播时都会给所有战友念经祈福。
 
-郭先生还提到，由于早先他与才旺战友通传过信息，因此他最初相信了才旺战友自焚的消息。但据知情者向郭先生爆料称，才旺战友事实上是被中共殴打致死。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-378.jpg)
+网络图片
 
-参考链接：[3/27/2022 文贵直播: 很多体制内的人在暗中保护我们的战友，并对新中国联邦在乌克兰的救援行动表示钦佩。不要寄希望于美国帮我们灭共，最终干倒习近平和共产党的一定是国内人！](https://gettr.com/post/p1299uy0369)
+澳大利亚联邦政府近日表示了对 COVID-19或出现更加危险突变的担忧，导致其在经济预算文件中重新将全国范围的一些限制纳入考虑范畴。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+目前澳洲的经济预测将以今年晚些时候CCP病毒疫情会再度爆发为前提。预算文件描述了两种可能的情况，其中第一种情况要更为严峻。
 
-总编/编辑/审核：Irene木木
-校正/发稿：Fei797
+文件预测：“在这种情况下，2022 年中期会出现更加严重且令人担忧的CCP病毒变体，同时这次爆发恰逢冬季流感季节，并且可能较最初的 Omicron 浪潮出现更多的病例，持续更长时间，并导致更为严重的病状……在下一波疫情爆发高峰期，劳动力缺勤率恢复到与 2022 年 1 月相似的水平。”
+
+同时该预测分析认为部分防疫限制措施将可能重新回归：“预防性行为，例如减少社交以及限制活动，将导致消费疲软和更高的家庭储蓄。” 在这种情况下，失业率将比目前的预测高 0.25%。
+
+第二种情况则相对更为乐观，在该情景下，新增病例逐渐趋于稳定，整体卫生环境也会好转。
+
+这些文件还预测，1 月份 Omicron 感染的激增，以及东海岸的洪水和高油价，都将抑制本季度的大众消费，不过在未来的时间里这些影响都将逐渐消退。
+
+*编辑：Gradient Boost*
+
+*发布：疯狂的韭菜*
+
+新闻参考链接：
+
+[9 News](https://www.9news.com.au/world/federal-budget-omicron-covid19-winter-wave-lockdown-restrictions-coronavirus-australian-news/9e1bafd0-afa9-4088-94b4-f27a08852e0c)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%87-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-275.png)
+
+
+
+更多资讯，更多关注
+
+[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2251364/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
+
+[郭文贵先生Gettr](https://gnews.org/zh-hans/2251364/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
+
+[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2251364/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
+
+[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2251364/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)0
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
  
 
