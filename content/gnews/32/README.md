@@ -2,35 +2,23 @@
 ---
 
 
-## 俄乌战争导致400多万人逃离乌克兰 粮食危机迫近
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2260152/)
+## 俄乌战争让世界形成了东西方两大联盟，再也没有第三世界
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2260252/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-《加拿大环球新闻》与《巴伦周刊》3月30日综合报道，**周三，联合国难民署专员菲利波·格兰迪在利沃夫会见难民时证实，逃往国外的乌克兰人数已经达到400万。**
+撰稿：追着曙光跑
 
-联合国周三还表示，**正在向乌克兰的100万人提供紧急食品**，但同时警告说，还有更多的人在挨饿，为了让儿童有饭吃，成年人不吃饭。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/123411349_hi074103129-e1648681785566.jpg)自俄罗斯入侵乌克兰以来，已经有400万人逃离乌克兰（联合国难民署）
-总部位于罗马的世界粮食计划 (WFP)表示，**已成功地向乌克兰人群提供粮食供应，**其中包括向哈尔科夫市的家庭运送33万个新烤的面包，以及**通过两个跨机构人道主义车队向苏米和哈尔科夫冲突地区运送物资。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Bulgaria-registers-refugees-from-Ukraine-at-border-e1648682546317.jpg)俄乌冲突导致乌克兰由世界粮仓变为难民营（图片来源：fellowpress.com）
-该联合国机构表示，预计未来几天将有更多运送食品的车队抵达乌克兰。
+3月30日，郭先生在大直播中再次分析了俄乌战争的结果，根据俄乌战争持续一个多月的战况，世界格局已经形成了东西方两个联盟，再也没有第三世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-31-at-10.16.36-AM.jpeg)
+以中共国为首、白俄罗斯、巴基斯坦、伊朗、北朝鲜等独裁国家形成的东方联盟。由它们担保俄罗斯执行俄乌战争谈判最后达成的合同。如果一旦乌克兰不执行，那么它们将和俄罗斯一起对西方联盟开战。
 
-世界粮食计划署乌克兰紧急协调员雅各布·克恩(Jakob Kern)在一份声明中说:“从头开始开展行动，把食物送到100万人手中，这似乎是一个巨大的挑战。”
+以美国、欧洲和日本为首的西方民主国家形成的西方联盟，由它们担保乌克兰的国家。如果俄乌合同签完以后，要是俄罗斯不执行，那么西方同盟将和乌克兰一起对东方同盟开战。
 
-此外，联合国粮食秘书长周二警告称，**乌克兰战争可能会破坏世界粮食计划署为全球约1.25亿人提供食物的努力，因为乌克兰已经“从世界粮仓变成了排队等待面包的地方”。**
+郭先生继续指出，巴基斯坦马上内乱，因为它不太听中共的话，中共要把它推翻。印度已经选择和俄罗斯站在一起，未来实际上就是跟中共站在一起。
 
-新闻来源链接：
+世界形成了东西方两大联盟，再也没有第三世界的新局面。那么接下来就很可能在核武器上会有动作，形成各种所谓的联盟，这就是俄乌战争的基本的结局。
 
-[Russia-Ukraine conflict: More than 4 million people have fled Ukraine as food crisis looms | Watch News Videos Online (globalnews.ca)](https://globalnews.ca/video/8723194/russia-ukraine-conflict-more-than-4-million-people-have-fled-ukraine-as-food-crisis-looms/)
+信息来源：[3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面](https://gettr.com/post/p12rdj91de0)
 
-[UN Feeding One Million People In Ukraine | Barron’s (barrons.com)](https://www.barrons.com/news/un-feeding-one-million-people-in-ukraine-01648640708)
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

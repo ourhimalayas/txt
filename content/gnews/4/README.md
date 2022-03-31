@@ -2,28 +2,42 @@
 ---
 
 
-## 美乌总统电话讨论援助和制裁 将再提供乌5亿美元援助
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2261391/)
+## 全球和澳洲疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261432/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午12.26.04.png)图片来源：互联网
-美国总统拜登和乌克兰总统泽连斯基周三（3月30日）电话讨论持续的对乌援助和制裁俄罗斯工作，拜登通知泽连斯基美国政府将提供5亿美元的直接预算援助，泽连斯基通报战场和伊斯坦布尔谈判局势。
+整理：枳实
+美工：精灵蓝
 
-根据白宫宣读的声明，两位总统先生讨论美国及其盟国和合作伙伴援助乌克兰和制裁俄罗斯的持续工作。拜登总统电话中通知乌克兰总统泽连斯基将提供5亿美元的直接预算援助。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
 
-声明说:”拜登总统今天与乌克兰总统泽连斯基就美国及其盟国和合作伙伴为向乌克兰提供军事、经济和人道主义援助以及为俄罗斯对乌克兰的野蛮侵略而付出沉重代价而进行的持续工作进行了交谈。“
 
-声明还写道：”美国打算向乌克兰政府提供5亿美元的直接预算援助。“
+雅典娜疫情更新（2022年 3月30日）
 
-乌克兰总统泽连斯基在[推特](https://twitter.com/ZelenskyyUa/status/1509202046574022656)上写道：”刚刚结束了一个小时的谈话（与美国总统拜登）. 共同评估战场上和谈判桌上的局势。谈到了具体的防御性支持、加强制裁的新一揽子计划、宏观金融和人道主义援助。“
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-113.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-119.png)
+[2022年3月30日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
 
-参考链接：
+数据来源：
 
-【1】 [拜登总统与乌克兰总统泽连斯基的 通话 宣读](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/30/readout-of-president-bidens-call-with-president-zelenskyy-of-ukraine-8/)
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-* * *
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-*编辑&发布：长岛开心*
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
