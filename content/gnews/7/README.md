@@ -2,28 +2,68 @@
 ---
 
 
-## 川普的Truth Media应用程序结束了吗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2260144/)
+## 战争号角吹响，中共百姓吃草的日子开启
+` zuzu` [轉載自GNews](https://gnews.org/zh-hans/2260266/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/未标题-1-7.jpg)
+**作者：英国伦敦喜庄园 文名**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Donald-Trump-launched-Truth-Social-New-Social-Media-Platform.png)图片来源：world wire
-据多家媒体3月30日报道， 前总统川普的特朗普的Truth Social应用程序流量暴跌，自上月发布以来，注册人数下降了惊人的93%，流量也同样下降。
+近日中共国疫情严重，各大城市纷纷封城。百姓苦不堪言，尤其是上海这座国际大都市也难逃一封。中共这种粗犷野蛮的管理方式造成了大量的人道灾难，人民群众与大白们之间摩擦出各种冲突，闹出一出又一出的人间惨剧。
 
-在总统日推出的这款社交媒体应用程序推出时，Truth Social曾飙升至苹果免费下载的顶部，根据Sensor Tower的数据，安装量已经下降了80%，在苹果App Store上的下载页面从第一周的361，000次访问下降到上周七天内的90，000次左右。其网站的流量也急剧下降，从推出第一周的600万次访问量下降到现在的每周访问量约为190万次。尽管最初受欢迎程度飙升，但该应用程序从一开始就受到技术故障的困扰。用户报告了尝试注册时的错误和延迟，许多成功注册的人表示他们被迫进入一个长长的”候补名单”。Truth Social到目前为止已到达了120万次安装。
+有老人没有微信，不会电子支付，在商店门外苦苦哀求。
+有老人趴在围栏边缝隙中朝马路对面喊人帮忙买几个鸡蛋，而无人理睬。
+有病人癌症需要医药而大白不予放行，病人跳楼的。
+种种种种。
 
-川普曾希望Truth Social能够成为Twitter和Facebook等科技巨头的积极竞争对手。 他曾说，”我很高兴很快开始分享我对TRUTH Social的看法，并反击大型科技公司。“ 但是他仅在该程序首次推出的那天发布过一次信息“ Get Ready! Your favorite President will see you soon! 准备好！ 你们最喜爱的总统将要与你们会面”， 有些人开始质疑为什么这位前总统尚未在自己的社交网络上发布任何内容。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/微信图片_20220331053713.jpg)
 
-Similar Web 的高级经理David Carr说， “你必须做的更好，更有趣”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-30_22-19-12.jpg)
 
-Truth Social是在其母公司Trump Media & Technology Group成立后推出的。TMTG在去年年底上市时从未披露的投资者那里筹集了10亿美元。
+我问妻子，如果你在上海，小区被封。老人或我或孩子突然病倒，急需救治。但是从小区到医院的过程中要经历九九八十一难，到了医院要查核酸，也不一定有人肯收治。结果小病拖成大病，大病拖成死。你会怎么办？
+老婆说都不知道能找谁解决问题，只有尽可能地大闹了，以自杀相逼。
+我说这也解决不了问题，有可能还会让大白们跟你杠上，为下下策。
+但是话说回来，要到这种病入膏肓的情形，我也是无解，即便是下下策也是唯一的能试试的办法。
 
-新闻来源：
+老婆说那我尽量做好物资储备，不生病。
+我说那也不是办法。物资只是一方面，更可怕的是中共各种反人类政策，今天强制疫苗，明天强制核酸，后天强制特效药。
+如果是普通人傻傻的也就这么配合着凑合过去了。但是如果是爆料革命的战友，稍微知道一点点真相，稍微有一点点逻辑思维能力，就会陷入无限的痛苦之中。
+你知道疫苗是会死人的，你知道集中核酸是传毒的搞假的，你知道特效药是剧毒药。
+但是你一个不配合就是被社会主义铁拳教育了。
+这种感受生不如死。此解亦为下策。
 
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (yahoo.com)](https://ca.news.yahoo.com/trump-truth-social-app-plummets-235232773.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/傲游截图20220331060720.png)
 
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (thewrap.com)](https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/)
+我深知我的能力和关系在那种人吃人的环境中生存不下去，一定是被牺牲的韭菜，我无法保护我的家人和自己。
+我的解法，是治未病，人直接跳出来，提前几年就把家人捞出来到海外。此为上上策。
+当年我在国内事业顺风顺水，生活惬意，依然放弃一切走上移民之路。当初家人都觉得可惜，今天终于能明白我为何做出如此选择了。我对爆料革命唯有“信”字，我深信中共大厦将倾，我深信中国百姓将要遭受苦难。君子不立危墙之下，所以义无反顾地早早离开中共地狱。感谢郭先生，感谢爆料革命。
+
+假设我还在中共国，如果我的家人要出门看病，还要被大白们以荒唐的理由阻挠，我只有如下图这位老哥一样，谁敢拦我我拿菜刀劈谁。但最终结局一定是惨剧：家人病死，自己寻恤滋事入狱。这真是无解。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/photo_2022-03-30_15-40-02.jpg)
+
+第三次世界大战早在中共释放新冠的那一刻就开始了。而俄乌之战，是老百姓能看懂的新篇章。战争号角已经吹响，毫无撤退可言。中共这种疯狂的疫情政策，不是暂时的。后续为应对接踵而至的粮食危机、经济危机、房地产危机、战争危机，中共会继续长期假借疫情进行封城以实现网格化管理韭菜。
+
+中国老百姓的苦日子，来了。
+如王岐山所说，百姓要开始吃三年草了。
+切勿抱侥幸心理，尽快行动，能出国尽快出国，不能出国尽快转移到安全地区，囤粮囤药。
+消灭中共，是正义的必须。只有彻底消灭共产党，才能消除世间的邪恶。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/傲游截图20220331061126.png)
+
+【文章仅代表作者观点，图片均来自网络】
+
+[【文名作品集】](https://gnews.org/zh-hans/author/zuzu/)
+[➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
+[➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
+[➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
+[➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
+[➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
+[➥九层妖塔之磁力疫苗](https://gnews.org/zh-hans/1352162/)
+[➥盖特首发大捷，堪比以色列建国](https://gnews.org/zh-hans/1372506/)
+[➥盖特是互联网的废奴运动](https://gnews.org/zh-hans/1441238/)
+[➥磁力疫苗是来自九层妖塔的谣言](https://gnews.org/zh-hans/1469891/)
+[➥给岁月以文明—文贵先生要建立什么？](https://gnews.org/zh-hans/1496422/)
+[➥人类基因多样性已无必要，故而才有“大重启”](https://gnews.org/zh-hans/1498457/)
 
  
 

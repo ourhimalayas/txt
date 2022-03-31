@@ -2,22 +2,28 @@
 ---
 
 
-## 视频|拜登拒绝撤回“普京不应继续掌权” 澄清并非呼吁政权更迭
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2260049/)
+## 川普的Truth Media应用程序结束了吗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2260144/)
 
-制作：香草山视频部
+撰稿：西枫westca
 
-美国总统拜登28日表示，他不会撤回自己早前在华沙演说时，针对俄罗斯总统普京不应继续掌权的公开言论，也不会就此作出道歉。他强调自己只是出于道德上对普京侵略乌克兰的行为感到愤怒，就像坏人不应该继续做坏事一样，并非呼吁俄罗斯政权更迭，因此不会就此作出退让。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Donald-Trump-launched-Truth-Social-New-Social-Media-Platform.png)图片来源：world wire
+据多家媒体3月30日报道， 前总统川普的特朗普的Truth Social应用程序流量暴跌，自上月发布以来，注册人数下降了惊人的93%，流量也同样下降。
 
-拜登26日在华沙演讲时，形容目前正进行着一场民主与独裁、自由与镇压的斗争，并在发言的最后，脱稿高呼“看在上帝的份上，这个人（普京）不能再继续掌权了。”俄罗斯当局随即对该言论表示抗议和不满，白宫当时在澄清时指出，拜登并非要改变俄罗斯政权，而是不允许普京对邻国行使权力。
+在总统日推出的这款社交媒体应用程序推出时，Truth Social曾飙升至苹果免费下载的顶部，根据Sensor Tower的数据，安装量已经下降了80%，在苹果App Store上的下载页面从第一周的361，000次访问下降到上周七天内的90，000次左右。其网站的流量也急剧下降，从推出第一周的600万次访问量下降到现在的每周访问量约为190万次。尽管最初受欢迎程度飙升，但该应用程序从一开始就受到技术故障的困扰。用户报告了尝试注册时的错误和延迟，许多成功注册的人表示他们被迫进入一个长长的”候补名单”。Truth Social到目前为止已到达了120万次安装。
 
-郭文贵先生在最近的一次直播中，也对拜登的这番言论，表达了他自己的看法。
+川普曾希望Truth Social能够成为Twitter和Facebook等科技巨头的积极竞争对手。 他曾说，”我很高兴很快开始分享我对TRUTH Social的看法，并反击大型科技公司。“ 但是他仅在该程序首次推出的那天发布过一次信息“ Get Ready! Your favorite President will see you soon! 准备好！ 你们最喜爱的总统将要与你们会面”， 有些人开始质疑为什么这位前总统尚未在自己的社交网络上发布任何内容。
 
-发稿：Daxia
+Similar Web 的高级经理David Carr说， “你必须做的更好，更有趣”。
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+Truth Social是在其母公司Trump Media & Technology Group成立后推出的。TMTG在去年年底上市时从未披露的投资者那里筹集了10亿美元。
+
+新闻来源：
+
+[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (yahoo.com)](https://ca.news.yahoo.com/trump-truth-social-app-plummets-235232773.html)
+
+[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (thewrap.com)](https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/)
 
  
 
