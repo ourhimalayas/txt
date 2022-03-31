@@ -2,39 +2,28 @@
 ---
 
 
-## 美国向乌克兰派出100架杀手级无人机
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2262311/)
+## 乌军再传捷报！收复切尔尼戈夫小镇斯洛博达
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2262363/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午3.51.44.png)图片来源：CNBC
-美国官员周三证实，美国在本月早些时候批准的对乌克兰武器援助清单中包括100架杀手级无人机。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+30日乌军再传捷报，收复切尔尼戈夫南方小镇「斯洛博达」。美国国防部发言人柯比说，「我们得到一致的推论，在过去一个月普京的国防部，没有充分上报所有战况。」
 
-负责国际安全事务的国防部助理部长塞莱斯特-沃兰德告诉美国立法官员，基辅在抵御俄罗斯的入侵时要求获得这些被称为 “神风特攻队”无人机的武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/f5315f6e-419c-4dfd-b453-31079024650f.jpg)图片来源：民视新闻
 
-“我们已经承诺在最近的总统缩编方案中交付100套Switchblade战术无人机系统，我们已经听取了乌克兰人的意见，我们非常重视这一请求，”她说。
+乌军连日从俄军手中夺回北方战线重要村落，缓解切尔尼戈夫和首都基辅被包围危机。英美情报机构认定，俄军之所以节节败退，资讯不对等导致的错误决策，是重要关键。
 
-五角大楼发言人约翰-柯比上周告诉记者，这些无人机将很快抵达乌克兰，他拒绝做进一步说明。
+简评：独裁国度的通病，丧事喜办报喜不报忧！平时忽悠普京惯了，到了战场上就不一样了，战报不准影响决策，如此的战争岂能打的赢？普大帝狂妄叫嚣吹吹牛可以，来真的就露馅了，俄内部情报“猪队友”加上乌克兰人的顽强抵抗，普大帝输起来很容易，想赢比登天还难！
 
-在乌克兰总统沃洛基米尔-泽伦斯基(Volodymyr Zelenskyy)向美国立法者提出增加军事装备的要求后，美国决定为乌克兰配备被称为Switchblade的杀手无人机。
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022331I08M1](https://www.ftvnews.com.tw/news/detail/2022331I08M1)
 
-在乌克兰的战斗中部署Switchblades可能是该武器在战斗中标志性使用记录，因为不清楚美国军方在以往战场上使用该杀手级无人机的频率如何。
+撰稿/发布：一叶知秋
 
-制造该武器的美国公司AeroVironment拒绝对武器转让发表评论。
-
-“神风特攻队 “无人机
-
-该武器有两个变种，即Switchblade 300和600。目前还不清楚美国在乌克兰部署的是哪个版本。
-
-300型变体被设计用于打击小型目标，它可以装在背包里，重量略高于5磅，射程为10英里。
-
-600型武器被设计用来摧毁坦克和其他装甲车辆，它的重量略多于120磅，射程超过40英里。
-
-原文链接：[U.S. sends 100 killer drones called Switchblades to Ukraine](https://www.cnbc.com/2022/03/30/us-sends-100-killer-drones-called-switchblades-to-ukraine.html)
-
-* * *
-
-*编辑&发布：长岛开心*
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
