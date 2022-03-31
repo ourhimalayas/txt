@@ -2,14 +2,12 @@
 ---
 
 
-## 澳洲大选临近 朝野不改对中共强硬基调
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261579/)
+## 视频|澳洲大选临近 朝野不改对中共强硬基调
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2261818/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+制作：香草山视频部
+
 国外媒体3月29日报导，澳大利亚在大选前，各个政治派别不可能改变对中共的强硬路线。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/10-43.jpg)
 
 澳大利亚总理莫里森，近日就是否接见中共新任驻澳大利亚大使的问题表示，在中共政府持续冻结双边外交沟通的情况下，他与中共大使会面不合时宜。
 
@@ -19,18 +17,13 @@
 
 迪肯大学一位分析人士认为，澳大利亚大选在即，反共气氛已经被鼓动起来，与中共亲善的任何举动都是政治负债而非资本，各党派领导人都不会冒这个风险。
 
-参考链接：
+发稿：呼吸的雾霾（文小呼吸）
 
-- [澳洲朝野避见中国大使 对华强硬基调难改变](https://www.dw.com/zh/%E6%BE%B3%E6%B4%B2%E6%9C%9D%E9%87%8E%E9%81%BF%E8%A7%81%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF-%E5%AF%B9%E5%8D%8E%E5%BC%BA%E7%A1%AC%E5%9F%BA%E8%B0%83%E9%9A%BE%E6%94%B9%E5%8F%98/a-61292069)
+**更多资讯，更多关注**
+[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
-
-总编：zhong
-编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

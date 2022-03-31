@@ -2,33 +2,45 @@
 ---
 
 
-## 美国不把所有的错误尝试完不会做出正确决定
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261577/)
+## 乌克兰大救援由于大巴车晚到,被接的人会说我们是骗子
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2261796/)
 
-作者：日本东京方舟农场 – Miyali7768(文玉）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-2017年爆料革命开始到今天，文贵先生在直播中多次说到美国和西方世界在消灭独裁这个问题上没有选择，美国要把所有的错误尝试完，流血、甚至失去生命之后，才会做出任何人不可以改变的决定。
+视频链接：[odysee.com/@郭文贵先生大直播](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8816.50%EF%BC%89%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E6%95%91%E6%8F%B4%E7%94%B1%E4%BA%8E%E5%A4%A7%E5%B7%B4%E8%BD%A6%E6%99%9A%E5%88%B0%2C%E8%A2%AB%E6%8E%A5%E7%9A%84%E4%BA%BA%E4%BC%9A%E8%AF%B4%E6%88%91%E4%BB%AC%E6%98%AF%E9%AA%97%E5%AD%90%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/12-43.png)
+**郭文贵先生：**就共产党种下了这些毒，你想在这些中国人心里拿出来，太难了！我们在乌克兰救人，小飞象、小飞侠联系中国人，还在怀疑我们：“你们是不是反共？会不会给我带来麻烦？” 好，赶快，我在电话里跟他们说，我说得很清楚，我跟长岛哥、老班长、大卫都说了，凡是这样的，求求你，赶快去，你们去找共产党去，我们再也不跟你联系了。
 
-纵观在二战之前，从美国还没有事实独立的时候，也就是200多年前，美国到中国大清朝1776年，跟大清朝建交。包括当时在加拿大的问题，美国买俄罗斯的土地、美国在海外建立的军事基地，最后的二战成为世界的帝国，以及建立国际法布雷森林体系金融系统。它都是这么来的，不把所有的错误都尝试完是不会做出正确的决定的。
+我们昨天中午去接车，小飞象嗷嗷地喊，跟文耀，说我们的车晚到了，结果被接的人说：“你们是骗子。” 然后就走了。我说这些人我们再也不要救他了。
 
-文贵先生在3月27日的大直播表明拜登总统已经明白普京和习近平两人的个人友谊代替了国家友谊、国家利益，两个人在领导全世界，给世界把脉。普京要拿下波罗的海五国，两个独裁者妄想统治个世界。
+乌克兰在战争中，我们派两个大客车接你，就得准时到，差一分钟不行？共产党到现在，大使馆还没有认为，条件还不安全，他小姨子回家生孩子去了，不接你没事，我们行善还成了罪了，是吗？那我们就不行善呗，你就不要让我们接你不就完了吗？你觉得还有比我们行善比这帮作恶的人还着急，我们不成傻子了吗？救不了，不救。我们到前线救人不是责任。
 
-美国永远是被动型的， 拜登总统26日在波兰华沙的演讲中发出的：“天啊，上帝呀，普京你赶快别干了。”超越了肯尼迪和里根总统对前苏联的喊话，也是对美国这几年苦痛经历的总结。拜登总统会倾尽一生之力，做出大家意想不到的动作。最后，文贵先生强调，灭共还要靠我们自己！
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-参考链接：
+编辑整理：Jacques；
 
-- [3/27/2022 文贵直播：](https://gettr.com/post/p12hrvy87d2)
+字幕档制作：兵嫂；
 
+视频制作及上传：Cindy；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+G-News发布：海贼王M.D.LUFFY；
 
-总编：zhong
-编辑：呼吸的雾霾（文小呼吸）
-审核：zhong
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

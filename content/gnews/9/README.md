@@ -2,20 +2,20 @@
 ---
 
 
-## 有声｜上海封城 传孤寡老人被活活饿死
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2261763/)
+## 美贸易代表 美国必须施压中共改变其贸易行为
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2261966/)
 
 By:**秘翻新闻**
 
 **2022-03-31**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-381.png)图片来源 新唐人
-[新唐人3月31日报道，3月30日，网上传出上海市徐汇区华欣家园“疫情防控互助组”的聊天截图。有业主爆料，该小区62号601一名孤寡老人因为小区被封没有东西吃，活活饿死家中，救护车刚刚把尸体拉走。](https://www.ntdtv.com/gb/2022/03/30/a103387774.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-127.png)图片来源 路透社
+[据《路透社》华盛顿3月30日报道，周三，美国贸易代表戴琪在美国国会众议院筹款委员会的听证会上表示，中共没有履行第一阶段美中贸易协议中的购买承诺，并且还在进行更广泛的非市场政策改变。美中在这方面的会谈进展太过艰难，美国需要寻求新的策略。](https://www.reuters.com/business/us-will-vigorously-economic-interests-against-chinas-policies-tai-2022-03-30/?taid=6244a9df1a9e390001f13f34&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-[当地网友爆料说，法医都来过了，人确实死了。有人质疑，官方不是说孤寡老人会安排送饭吗？知情人士对此表示，老人所在楼的楼组长把情况报上去了，但一直没人管，甚至连老人的核酸检测都没安排做过。](https://www.ntdtv.com/gb/2022/03/30/a103387774.html)
+[戴琪指出，对3000亿至4000亿美元的中共国进口商品征收关税，并没有促使中共做出根本改变。据报道，中共国只履行了第一阶段协议的约60%。](https://www.reuters.com/business/us-will-vigorously-economic-interests-against-chinas-policies-tai-2022-03-30/?taid=6244a9df1a9e390001f13f34&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-[中共强制封城经常将独居老人推入绝境。因为官方配送物资常常不到位，而高龄老人又不懂网购，因此往往面临挨饿的风险。早在武汉大封城时，就传有老人饿死。](https://www.ntdtv.com/gb/2022/03/30/a103387774.html)
+[她表示，华盛顿除了向中共施压要求其做出改变以外，还需要采取更多措施，包括在国会通过立法，促进对创新、半导体和制造业供应链回归美国本土的投资。贸易法需要更新，以应对中共国大规模工业补贴的挑战。](https://www.reuters.com/business/us-will-vigorously-economic-interests-against-chinas-policies-tai-2022-03-30/?taid=6244a9df1a9e390001f13f34&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-秘翻新闻 二丫编辑报道
+秘翻新闻 冰糖葫芦喵编译报道
 
 发布 : 恩典
 

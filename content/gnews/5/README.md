@@ -2,44 +2,32 @@
 ---
 
 
-## 乌克兰大救援由于大巴车晚到,被接的人会说我们是骗子
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2261796/)
+## 3月份中共国非制造业景气度降至收缩区间。
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2261979/)
 
-视频链接：[odysee.com/@郭文贵先生大直播](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8816.50%EF%BC%89%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E6%95%91%E6%8F%B4%E7%94%B1%E4%BA%8E%E5%A4%A7%E5%B7%B4%E8%BD%A6%E6%99%9A%E5%88%B0%2C%E8%A2%AB%E6%8E%A5%E7%9A%84%E4%BA%BA%E4%BC%9A%E8%AF%B4%E6%88%91%E4%BB%AC%E6%98%AF%E9%AA%97%E5%AD%90%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
+编辑：文宝
 
-**郭文贵先生：**就共产党种下了这些毒，你想在这些中国人心里拿出来，太难了！我们在乌克兰救人，小飞象、小飞侠联系中国人，还在怀疑我们：“你们是不是反共？会不会给我带来麻烦？” 好，赶快，我在电话里跟他们说，我说得很清楚，我跟长岛哥、老班长、大卫都说了，凡是这样的，求求你，赶快去，你们去找共产党去，我们再也不跟你联系了。
+3月份，非制造业商务活动指数为48.4％，比上月下降3.2个百分点，非制造业景气度降至收缩区间。
 
-我们昨天中午去接车，小飞象嗷嗷地喊，跟文耀，说我们的车晚到了，结果被接的人说：“你们是骗子。” 然后就走了。我说这些人我们再也不要救他了。
+分行业看，建筑业商务活动指数为58.1％，比上月上升0.5个百分点。服务业商务活动指数为46.7％，比上月下降3.8个百分点。从行业情况看，电信广播电视及卫星传输服务、货币金融服务、保险业等行业商务活动指数位于55.0％以上较高景气区间；铁路运输、航空运输、住宿、餐饮、房地产、租赁及商务服务、居民服务、文化体育娱乐等行业商务活动指数低于临界点。
 
-乌克兰在战争中，我们派两个大客车接你，就得准时到，差一分钟不行？共产党到现在，大使馆还没有认为，条件还不安全，他小姨子回家生孩子去了，不接你没事，我们行善还成了罪了，是吗？那我们就不行善呗，你就不要让我们接你不就完了吗？你觉得还有比我们行善比这帮作恶的人还着急，我们不成傻子了吗？救不了，不救。我们到前线救人不是责任。
+新订单指数为45.7％，比上月下降1.9个百分点，低于临界点，表明非制造业市场需求下降。分行业看，建筑业新订单指数为51.2％，比上月下降3.9个百分点；服务业新订单指数为44.7％，比上月下降1.6个百分点。
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+投入品价格指数为55.9％，比上月上升2.0个百分点，高于临界点，表明非制造业企业用于经营活动的投入品价格总体水平继续上涨。分行业看，建筑业投入品价格指数为61.4％，比上月上升3.0个百分点；服务业投入品价格指数为54.9％，比上月上升1.8个百分点。
 
-编辑整理：Jacques；
+销售价格指数为51.1％，比上月上升1.3个百分点，高于临界点，表明非制造业销售价格总体水平有所上升。分行业看，建筑业销售价格指数为54.4％，比上月上升1.0个百分点；服务业销售价格指数为50.6％，比上月上升1.4个百分点。
 
-字幕档制作：兵嫂；
+从业人员指数为47.1％，比上月下降0.9个百分点，表明非制造业企业用工景气度有所下降。分行业看，建筑业从业人员指数为50.1％，比上月下降5.7个百分点；服务业从业人员指数为46.6％，比上月下降0.1个百分点。
 
-视频制作及上传：Cindy；
+业务活动预期指数为54.6％，虽比上月下降5.9个百分点，但高于临界点，表明多数非制造业企业对市场发展仍有信心。分行业看，建筑业业务活动预期指数为60.3％，比上月下降5.7个百分点；服务业业务活动预期指数为53.6％，比上月下降6.0个百分点。
 
-G-News发布：海贼王M.D.LUFFY；
+原文链接：[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10233816097530824137%22%7D&n\_type=-1&p\_from=-1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10233816097530824137%22%7D&amp;n_type=-1&amp;p_from=-1)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-72.png)DISCORD
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
 
  
 
