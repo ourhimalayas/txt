@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 10:03 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-31<br/>For English @Gtranslators_1
+![img](https://media.gettr.com/group27/origin/2022/03/31/22/4b735c85-bc2d-2c8d-f344-f221c9951bdc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/31/2022 8:56 PM (UTC)`
 
 2022.03.31  NFSC health 新中国联邦 | 喜健康 第4期 之 《健康生活》
@@ -151,13 +158,6 @@ PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被
 
 【Ukraine Rescue】03/30/2022 Fellow fighter Jing Liang: The NFSC and ROLF’s rescue mission becomes the focus of all those in the whole world who want to take down the CCP.<br/><br/>【乌克兰救援】03/30/2022 ，来自精良战友：新中国联邦和法治基金的前线救援让全世界有着共同灭共心愿的人们有了一个聚焦点。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
 ![img](https://media.gettr.com/group47/getter/2022/03/31/02/1b46cbd8-914e-f709-1e28-7612b198f91b/out.jpg)
-
----
-
-`@miles 3/31/2022 2:04 AM (UTC)`
-
-【Ukraine Rescue】03/30/2022 From Follow Fighter XiaoxiaoSu: The NFSC Medyka rescue station received one of the oldest refugees to date - an 81-year-old woman who fled from the warfare on a 60 km walking .She came into our tent to wait for her son to drive from Germany . The sight brought tears to the eyes of Follow Fighter WenYao.<br/><br/>【乌克兰救援】03/30/2022，来自小小酥战友： 新中国联邦梅迪卡救援站接待了一位迄今为止最年长的难民 - 一位81岁的老太太徒步60公里逃离战乱，来到我们的大帐蓬等待自己的儿子从德国驱车前来接她。文耀战友当场泪奔。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #rolfrescuehttps<br/><br/>
-![img](https://media.gettr.com/group39/getter/2022/03/31/02/7e561955-627e-3aab-531d-da46551647ba/out.jpg)
 
 ---
 

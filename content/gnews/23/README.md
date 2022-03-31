@@ -2,50 +2,27 @@
 ---
 
 
-## 俄罗斯就“战争”描述威胁维基百科
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2265271/)
+## 逃离乌克兰 加入新联邦
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2265389/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-46.png)图片来源：ishare.ifeng.com
+**作者、视频提供：Ken Ken**
+**编辑：Candy**
 
-俄罗斯官方互联网监管机构 Roskomnadzor 要求维基百科删除它所说的，关于俄罗斯在乌克兰的“特别行动”的虚假信息。
+***编者按**：波兰世界3月31日，Ken Ken战友从新中国联邦和法治基金驻波兰梅迪卡援乌中心营地传来视频，对一直在我们营地做翻译工作的Naive 战友进行了一个简单的专访。*
 
-俄罗斯互联网监管机构尤其感到不安的是，维基百科的条目很短，与克里姆林宫的官方说法有出入。
+从乌克兰逃离出来的台湾人，我们的新战友——Naive。从克拉科夫前线热线小组成立以来，他就一直为我们提供翻译支持。随后，跟随客服小组赶赴梅迪卡前线继续和我们一起战斗。营地内随处可见他忙碌的身影，他成了我们在前线营地的战友与难民之间沟通的桥梁。
 
-例如，维基百科条目描述了俄罗斯的“入侵”，而克里姆林宫的官方说法是为“和平目的”的“军事行动”，《欧洲动态》(Euractiv)[报道](https://www.euractiv.com/section/digital/news/russia-threatens-to-block-access-to-wikipedia/)。
+*Naive富有很强的同情心、八年半工半读的乌克兰学习生活经历、对乌克兰难民深刻的了解、乐于助人、在战争初期就逃出了乌克兰、得到华沙中餐馆老板娘对新中国联邦救援信息的及时提供……所有这一切都促成了现在的Naive战友：一个受人 尊敬、正义感强、勇于奉献的战友。*
 
-该条目中引用的伤亡人数也比莫斯科的官方数字高得多。
+*如果穿上我们新中国联邦的护身符，不用听讲，便一眼就能看出是我们团队的战友了！*
 
-Roskomnadzor 给维基百科的通知强调，它需要立即删除虚假内容，它说这些内容的目的是误导俄罗斯用户。
+***发布：Candy***
 
-这是 Roskomnadzor 就这一问题向维基百科发出的第二次警告，此前在本月早些时候也曾向其提出过要求。
-
-据 Slate [报道](https://slate.com/technology/2022/03/russia-wikipedia-download-kiwix.html)，这是在一名俄罗斯维基百科顶级编辑因传播“虚假的反俄内容”而被捕之后发生的。
-
-本月早些时候，俄罗斯总统弗拉基米尔·普京（Vladimir Putin）颁布了一项法律，对那些叙述与克里姆林宫不同的记者判处15年监禁；莫斯科还在国内禁止了 Facebook 和 Instagram。
-
-作为抗议，CNN、BBC 和其他机构暂停了克里姆林宫的广播，而微软、苹果和谷歌则取消了他们的服务。
-
-在对维基百科进行威胁的同时，Slate 报道说，数据表明俄罗斯人成群结队地下载维基百科；事实上，在过去的一周里，俄罗斯以很大的优势成为下载量最大的国家。
-
-在2月24日入侵乌克兰之前，俄罗斯对维基百科的下载量很少突破前十名。
-
-**新闻来源：**[newsmax.com] [Russia Threatens Wikipedia Over ‘War’ Description](https://www.newsmax.com/newsfront/russia-wikipedia-ukraine/2022/03/30/id/1063563/) |发布时间：2022年03月30日
-
-* * *
-
-审核：文乐
-校对：花羽
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
