@@ -2,28 +2,27 @@
 ---
 
 
-## 沙漠电力代替普京的天然气——世纪理念的复兴
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2263309/)
+## 俄罗斯在最新谈判中声明将放缓进攻节奏
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2263418/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+采编：加拿大温哥华扬帆农场 – 青青
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
+编译：加拿大温哥华扬帆农场 – 晨熹
+
+据【CTV新闻】3月29日报道， 当天在伊斯坦布尔举行的俄乌谈判中，俄罗斯宣称：近期将大幅减少在基辅和乌克兰北部城市附近的军事行动。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3986.png)图片来源：TRT
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Morocco-launches-first-solar-power-plant.jpg)
+乌克兰总统泽连斯基对此则表示，俄方的言辞毫无可信度，事实已证明谈判不仅无法停止俄军的狂轰滥炸，而且很大程度上只是普京在陷入战争泥潭中的缓兵之计。美国总统拜登也同时指出：普京当局已信誉尽丧，世界看到的只是俄军正在持续残暴地蹂躏乌克兰。
 
+最近数天以来，乌军在基辅和其他地区都进行了高效的反击战，不仅重创俄军，还夺回了东北部苏梅以南的多个重镇。而俄军地面部队则因补给和装备的短缺以及乌军的顽强抵抗而士气低落，败仗连连。
 
-图片来源： 路透社
+校对编辑：硫酸羟氯喹64
 
-13 年前，跨越地中海向欧洲输送太阳能的想法引发了人们的欣喜若狂。然而，该财团未能实施。但现在，由于一项新的战略，该项目正在卷土重来。有人谈论新的“氢世界秩序”。
+发布：青青
 
-沙漠电力倡议 Desertec 几年前从德国公众的雷达上消失了。但它继续存在，得到了来自中国和阿拉伯的新支持者的支持。与此同时，德国公司正在回归并在成员名单中注册 – 成排。在 2014 年几乎解散后，该组织已经拥有 60 多家公司，包括蒂森克虏伯、西门子能源、E.on、RWE 和 Uniper。作为Desertec 3.0，沙漠电力理念的第三次轮回，突然为短期内需要解决的能源短缺和气候保护双重问题提供了非常具体的帮助。
-
-简评：郭先生在3月30日的直播中明确支持， 欧洲解决能源问题的根源在科技， 话音未落，今天的德国保守媒体世界报， 就发出了这样的一篇文章， 已经开始寻求代替传统的石油，天然气的科技解决方案了。 这是巧合吗？全世界的战略布局都是按照郭先生写好的剧本在上演。
-
-🔗 [https://www.welt.de/wirtschaft/plus237804619/Wuestenstrom-statt-Putins-Gas-Wiederbelebung-einer-Jahrhundert-Idee.html](https://www.welt.de/wirtschaft/plus237804619/Wuestenstrom-statt-Putins-Gas-Wiederbelebung-einer-Jahrhundert-Idee.html)
-
-编辑发布： Shuizhuyu
+新闻来源： [Military Doctor Testifies in Court: High-Level Command Ordered Her Silence Over Frightening Vaccine Data](https://www.westernjournal.com/military-doctor-testifies-court-high-level-command-ordered-silence-frightening-vaccine-data/?utm_source=Twitter&amp;utm_medium=PostSideSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
  
 

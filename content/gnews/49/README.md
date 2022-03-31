@@ -2,28 +2,28 @@
 ---
 
 
-## 俄假撤军！乌总参谋部揭诡计：目的是要误导乌军
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258564/)
+## 加拿大将致力发展新型核能计划
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258497/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-俄罗斯29日承诺，将大幅减少对乌克兰首都基辅、东北部切尔尼戈夫的军事行动，撤离部分军力。对此乌克兰武装部队总参谋部呼应美国国防部说法，认为俄军行动可能是诡计，只是部队轮换，目的就是要误导乌克兰军方。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/phphrBThm.jpg)图片来源：美联社
-乌克兰武装部队总参谋部稍早在脸书上表示，俄罗斯部队持续从基辅和切尔尼戈夫撤离，将主要军力放在乌克兰东部顿巴斯地区上，但总参谋部强调，这样的「撤军」可能只是个别单位的轮换罢了。
+编译撰稿：加拿大温哥华杨帆农场 – 活力人生
 
-总参谋部认为，俄军这样的行为，目的就是要误导乌军指挥官，制造没有要包围基辅的假象。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-13-1.jpg)图片来源：CNNPN
 
-简评：俄军假撤兵的诡计已被全世界揭穿，普京只要不停战没有人相信俄军会真正的撤兵，只是拖延下时间准备新一轮的进攻，乌军枕戈待旦岂能这么容易被麻痹。独裁者只有被彻底的消灭，否则不会低下狂妄的头颅，需警惕俄罗斯短暂撤军后使用更大规模的杀伤武器来攻击基辅！
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3876295](https://news.ltn.com.tw/news/world/breakingnews/3876295)
+据【加拿大广播公司】3月28日报道，萨斯喀彻温省、安大略省、新不伦瑞克省和阿尔伯塔省最近联合发布了通过[小型模块化核反应堆]来发展该国核能工业的战略计划。
 
-撰稿/发布：一叶知秋
+报道称，该计划中的新型核反应堆比传统的更小但更有效。因此，这使得相关设备能更容易被运输，安装和建造。据悉，每座[小型模块化核反应堆] 可产生三倍于传统反应堆的能量，并足以为 30多万个家庭全年供电。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+对此，各省相关部门表示，新的核能计划可为全国特别是偏远地区居民提供安全、可靠和清洁的电力来源。加拿大因此有望在未来成为该技术的主要输出国。
+
+文贵先生在日前的直播中也指出，未来的清洁能源必将成为全球工业发展的主导。而试图通过原油，天然气等制约欧洲和世界生存的时代即将一去难返。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： [https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928](https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

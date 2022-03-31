@@ -2,34 +2,30 @@
 ---
 
 
-## 中日财经爆┃顺丰快递去年净利暴降41.73%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262459/)
+## 中日财经爆┃百度、爱奇艺等五家公司被美国SEC列入退市风险名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262478/)
 
 撰稿：东京樱花团/peterwong
 
-中国物流巨头–顺丰控股3月30日公布，去年净利润同比降逾四成，主要因遇产能瓶颈加大了对场地等网络资源投入，以及春节受中共疫情影响原地过年人工成本上
+美国证监会（SEC）3月31日将百度、爱奇艺等五家公司列入有退市风险的相关发行人暂定名单，并将百济神州等五家第一批进入暂定退市名单的公司转入确定名单。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F6e471d18-bc6b-4dfd-a5aa-489ecd8240b0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2Fddb097f8-41bd-41c9-916e-713ea4035d8d&amp;tbnid=EHnbus7AacBtwM&amp;vet=12ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ..i&amp;docid=gc6TBW1sfl4A-M&amp;w=2400&amp;h=1350&amp;q=sec&amp;ved=2ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ)
+根据美国SEC网站的最新披露，百度、爱奇艺、CASI制药、富途与总部位于台湾新北市的诺斯拉（Nocera）可在4月20日前提交证据申诉。
 
-升。
+上周SEC将中国社交媒体平台新浪微博列入暂定名单。截至目前，暂定名单中共六家公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-26.jpg)[图片来源](https://www.google.com/search?q=%E9%A1%BA%E4%B8%B0&amp;tbm=isch&amp;ved=2ahUKEwjkgKiN8u_2AhUXiVwKHWcEDgIQ2-cCegQIABAA&amp;oq=%E9%A1%BA%E4%B8%B0&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6CggjEO8DEOoCECdQ1wZYgxNgwBVoAXAAeACAAUmIAYYBkgEBMpgBAKABAaoBC2d3cy13aXotaW1nsAEKwAEB&amp;sclient=img&amp;ei=42BFYqSDKZeS8gLniLgQ&amp;rlz=1C1YKST_enUS900US901#imgrc=8VQwycH13a7cxM)
+百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药三周前成为首批五家因为《外国公司问责法》而进入被识别清单的公司，申诉截止日期为3月29日。但SEC网站显示，该五家企业已从暂定名单进入确定名单。
 
-顺丰发布在深交所网站的年报显示，2021年净利润同比下降41.73%至42.7亿元人民币，营收同比增34.55%至2,071.9亿元；拟向全体股东每10股派发现金红利1.80元（含税）。
-
-顺丰指出，去年业绩同比下滑主要由于：年初为应对件量高增长、缓解产能瓶颈，加大了对场地、设备、运力等网络资源投入；以及年初疫情期间响应春节原地过年号召，留岗员工人数和补贴增加导致人工成本上升。
-
-此外，定价较低的经济快递产品增速较快，对整体利润率造成一定压力；2020年公司享受到较多的国家抗疫相关税费减免优惠，2021年该等优惠政策陆续结束。
-
-年报显示，该公司去年扣非净利润为18.3亿元，同比下滑70.1%。其中非经常性损益项目主要为公司将三项物业资产的权益转让至顺丰房托基金、以及处置其他子公司所获得的处置收益，和政府补助。
-
-顺丰控股周三收升3.62%报44.37元，今年迄今累计跌幅达35.6%，同期沪深300指数CSI300跌13.9%。该股去年初一度创出124.37元的历史新高，但在一季度业绩意外爆雷后狂跌，今年股价继续向下，一度跌至42.5元的低点。
+美国公众公司会计监督委员会(PCAOB)上周四表示，将继续与中国监管机构进行接触，以获取审计报告记录，但目前尚不清楚中共国政府是否会按照美国新上市法律的要求批准美方获得这些记录。最近媒体对协议即将达成的猜测“为时过早”。
 
 消息来源:
 
-[中国物流巨头顺丰控股去年净利降逾四成 网络资源投入及疫情令业绩承压](https://cn.reuters.com/article/sf-profit-0330-wedn-idCNKCS2LS013?il=0)
+[美国证监会将百度等五家公司列入退市风险暂定名单 百济神州等转入确定名单（更新版）](https://cn.reuters.com/article/usa-sec-chinese-companies-lists-0331-thu-idCNKCS2LS05Z?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

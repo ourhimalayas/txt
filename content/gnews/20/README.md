@@ -2,30 +2,28 @@
 ---
 
 
-## 俄罗斯外长出访中共国 侵略乌克兰后的首次
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2263115/)
+## 沙漠电力代替普京的天然气——世纪理念的复兴
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2263309/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
-俄罗斯外长拉布罗夫30日访问了中共国东部的安徽省。据塔斯社等报道，拉布罗夫当天与国务委员兼外长王毅举行会谈，就两国继续加强战略伙伴关系达成一致。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/651.jpg)图片来源：产经新闻
-这是俄罗斯对乌克兰军事入侵后，拉布罗夫首次出访中共国。出访邻国围绕阿富汗局势举行的外长会晤。
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-习近平政权在入侵乌克兰方面回避对俄批评，也反对美欧主导的对俄制裁。他实质上表现出更偏向俄罗斯的态度，包括表现出愿意继续与俄罗斯进行经济、贸易合作。不过，习考虑到习政权与乌克兰的合作关系，习在立场上会表现得有多亲俄备受关注。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
-俄罗斯方面，在国际上对入侵乌克兰的批评声一浪高过一浪的情况下，似乎想炫耀与中共国的团结。拉布罗夫还将在访问中共国后继续访问印度。印度也与俄罗斯建立了亲密关系，就入侵乌克兰深入的对俄批评一事有所节制。
 
-围绕阿富汗局势的外长会晤将由俄罗斯、巴基斯坦和伊朗等国参加，直至31日举行。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/Morocco-launches-first-solar-power-plant.jpg)
 
-参考链接：[ロシア外相が訪中　ウクライナ侵攻後初 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20220330-FT6PVWEU7JKA5NLZ6V7ZU3VXJQ/photo/WBE77AYMENEEFCBQYG7XGTK6IA/)
 
-* * *
+图片来源： 路透社
 
-审核：BryanW
-校对：Orpheus
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
+13 年前，跨越地中海向欧洲输送太阳能的想法引发了人们的欣喜若狂。然而，该财团未能实施。但现在，由于一项新的战略，该项目正在卷土重来。有人谈论新的“氢世界秩序”。
 
+沙漠电力倡议 Desertec 几年前从德国公众的雷达上消失了。但它继续存在，得到了来自中国和阿拉伯的新支持者的支持。与此同时，德国公司正在回归并在成员名单中注册 – 成排。在 2014 年几乎解散后，该组织已经拥有 60 多家公司，包括蒂森克虏伯、西门子能源、E.on、RWE 和 Uniper。作为Desertec 3.0，沙漠电力理念的第三次轮回，突然为短期内需要解决的能源短缺和气候保护双重问题提供了非常具体的帮助。
+
+简评：郭先生在3月30日的直播中明确支持， 欧洲解决能源问题的根源在科技， 话音未落，今天的德国保守媒体世界报， 就发出了这样的一篇文章， 已经开始寻求代替传统的石油，天然气的科技解决方案了。 这是巧合吗？全世界的战略布局都是按照郭先生写好的剧本在上演。
+
+🔗 [https://www.welt.de/wirtschaft/plus237804619/Wuestenstrom-statt-Putins-Gas-Wiederbelebung-einer-Jahrhundert-Idee.html](https://www.welt.de/wirtschaft/plus237804619/Wuestenstrom-statt-Putins-Gas-Wiederbelebung-einer-Jahrhundert-Idee.html)
+
+编辑发布： Shuizhuyu
 
  
 
