@@ -2,32 +2,33 @@
 ---
 
 
-## 中共主要国有银行对未来预期表示悲观
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261578/)
+## 美军高层以乌克兰战事为例研究中共侵台对策
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261915/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒3月29日报道，中共最大的几家商业银行均表示，中共国有银行今年将面临多重高风险不利因素。
+撰稿: 纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-13.png)
+3月29日外媒报导，美国欧洲司令部兼北约盟军最高指挥官沃斯特将军表示，美国正在以俄罗斯入侵乌克兰为范例，研究应对中共侵台的对策。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3917.png)
+沃斯特在参议院军事委员会听证会上说，美国与盟国已将应对俄罗斯入侵乌克兰的方式，作为西方应对中共侵略台湾的范例，称他已经与美国印太司令部司令阿奎利诺将军，就中共可能侵略台湾一事进行了讨论，重点商讨了印太地区爆发战争时的对策。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-58.png)
+沃斯特表示，阿奎利诺非常关注乌克兰战局的发展，因为台湾所面临的情况非常类似。他们分析了美国与盟国的反应，希望有助于在未来解决实际问题。
 
-中共资产规模第二大银行中国建设银行以及第四大银行中国银行均表示，中共国的银行业今年将面临更加“复杂和严峻的营商环境”。全球中共病毒爆发、西方主要发达国家放弃金融宽松政策，以及地缘政治冲突加剧等不利因素，将严重影响中共国的金融前景。同时，交通银行行长也披露，该行今年很难实现令人满意的盈利，大家对未来预期表示悲观。
+另据报道，美国五角大楼高层曾经警告说，中共当局迟早会入侵台湾。美军同时相信北京方面也正在密切关注乌克兰战事，以及西方的反应。
 
-分析人士认为，目前中共病毒和疫苗灾难呈现爆发和失控的形势，导致国内主要城市部分或全面封锁，将雪上加霜拖垮中共经济，而首当其冲的就是涉及面广泛的服务行业。服务行业的贷款拖欠率上升，会造成极高的银行信贷风险。更大的金融风险则来自摇摇欲坠的中共房地产业。占中共商业银行信贷规模70%左右的房地产业崩盘，将导致中共国有银行全面垮塌、破产。
+[烏克蘭戰事啟發 美軍2大司令研擬中國侵台對策](https://news.ltn.com.tw/news/world/breakingnews/3876268)
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/03/月曆-27.jpeg)
 
-- [China](https://www.reuters.com/world/china/)
-- [China’s largest banks signal tough times ahead](https://www.reuters.com/world/china/chinas-largest-banks-signal-tough-times-ahead-2022-03-29/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+编辑/审核：飞虹
 
 总编：zhong
-编辑：玫瑰圓
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+校对/发稿：浪迹天涯
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图标-13.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

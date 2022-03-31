@@ -2,38 +2,29 @@
 ---
 
 
-## 美国向乌克兰派出100架杀手级无人机
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2262311/)
+## 中日财经爆┃百度、爱奇艺等五家公司被美国SEC列入退市风险名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262478/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午3.51.44.png)图片来源：CNBC
-美国官员周三证实，美国在本月早些时候批准的对乌克兰武器援助清单中包括100架杀手级无人机。
+撰稿：东京樱花团/peterwong
 
-负责国际安全事务的国防部助理部长塞莱斯特-沃兰德告诉美国立法官员，基辅在抵御俄罗斯的入侵时要求获得这些被称为 “神风特攻队”无人机的武器。
+美国证监会（SEC）3月31日将百度、爱奇艺等五家公司列入有退市风险的相关发行人暂定名单，并将百济神州等五家第一批进入暂定退市名单的公司转入确定名单。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F6e471d18-bc6b-4dfd-a5aa-489ecd8240b0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2Fddb097f8-41bd-41c9-916e-713ea4035d8d&amp;tbnid=EHnbus7AacBtwM&amp;vet=12ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ..i&amp;docid=gc6TBW1sfl4A-M&amp;w=2400&amp;h=1350&amp;q=sec&amp;ved=2ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ)
+根据美国SEC网站的最新披露，百度、爱奇艺、CASI制药、富途与总部位于台湾新北市的诺斯拉（Nocera）可在4月20日前提交证据申诉。
 
-“我们已经承诺在最近的总统缩编方案中交付100套Switchblade战术无人机系统，我们已经听取了乌克兰人的意见，我们非常重视这一请求，”她说。
+上周SEC将中国社交媒体平台新浪微博列入暂定名单。截至目前，暂定名单中共六家公司。
 
-五角大楼发言人约翰-柯比上周告诉记者，这些无人机将很快抵达乌克兰，他拒绝做进一步说明。
+百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药三周前成为首批五家因为《外国公司问责法》而进入被识别清单的公司，申诉截止日期为3月29日。但SEC网站显示，该五家企业已从暂定名单进入确定名单。
 
-在乌克兰总统沃洛基米尔-泽伦斯基(Volodymyr Zelenskyy)向美国立法者提出增加军事装备的要求后，美国决定为乌克兰配备被称为Switchblade的杀手无人机。
+美国公众公司会计监督委员会(PCAOB)上周四表示，将继续与中国监管机构进行接触，以获取审计报告记录，但目前尚不清楚中共国政府是否会按照美国新上市法律的要求批准美方获得这些记录。最近媒体对协议即将达成的猜测“为时过早”。
 
-在乌克兰的战斗中部署Switchblades可能是该武器在战斗中标志性使用记录，因为不清楚美国军方在以往战场上使用该杀手级无人机的频率如何。
+消息来源:
 
-制造该武器的美国公司AeroVironment拒绝对武器转让发表评论。
+[美国证监会将百度等五家公司列入退市风险暂定名单 百济神州等转入确定名单（更新版）](https://cn.reuters.com/article/usa-sec-chinese-companies-lists-0331-thu-idCNKCS2LS05Z?il=0)
 
-“神风特攻队 “无人机
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-该武器有两个变种，即Switchblade 300和600。目前还不清楚美国在乌克兰部署的是哪个版本。
-
-300型变体被设计用于打击小型目标，它可以装在背包里，重量略高于5磅，射程为10英里。
-
-600型武器被设计用来摧毁坦克和其他装甲车辆，它的重量略多于120磅，射程超过40英里。
-
-原文链接：[U.S. sends 100 killer drones called Switchblades to Ukraine](https://www.cnbc.com/2022/03/30/us-sends-100-killer-drones-called-switchblades-to-ukraine.html)
-
-* * *
-
-*编辑&发布：长岛开心*
 
  
 

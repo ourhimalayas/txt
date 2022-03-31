@@ -2,40 +2,26 @@
 ---
 
 
-## 疫苗副作用集萃-小孩子接种后流鼻血
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261986/)
+## 区块链游戏Axie Infinity 被骇，等值近6 亿美元以太币被盗
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2262157/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》 
+素材/选题：波士顿五月花 长岛开心
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午3.16.19.png)图片来源：互联网
+以一边游戏、一边赚取加密币而爆红的网路游戏Axie Infinity，其侧链服务Ronin Network 发[新闻稿](https://roninblockchain.substack.com/p/community-alert-ronin-validators?s=w)确认[被骇](https://www.vice.com/en/article/3abeeb/hackers-steal-dollar600m-from-play-to-earn-game-axie-infinitys-ronin-network)，有173,600 个以太币ETH 和2,550 万个美元稳定币USDC 被盗去，等值近6 亿美元之多。Ronin Network 也有详细解说被骇的始末，让大家可以更了解这宗大型盗窃案。
 
-整理：gardeniahu
-编辑：BENJ1
+Ronin Network 表示，他们发现骇客是首先透过在其中一个由Axie DAO 营运的RPC 节点里的后门程式，获取了签名档。同时在用以验证交易的9 个节点之中，再成功操纵了其中5 个（4 个是Ronin Validators，一个是Axie DAO），并于3 月23 日发起虚构的交易要求，以两次转帐就掏走了等值6 亿美元的资产。
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)图片来源：雅典娜设计组
+对于这个后门的存在，Ronin Network 解释是他们母公司Sky Mavis 在2021 年11 月因应有大量用户载入，求助Axie DAO 协助处理交易，并因此建立了连接双方服务的Ronin Bridge 桥接机制。然而在合作在2021 年12 月完结后，却没有把桥接授权撤销，所以就产生了这样一个漏洞。
 
+骇客盗走资产后近一星期后，才有用户发现无法在Ronin Network 转走5,000 个ETH 而揭发出，官方表示已经追踪到被盗加密资产所在的钱包位址，目前已经联络执法部门、Chainalysis 来研究取回被盗资产。目前Ronin Bridge 的授权已经被撤销，同时也停止了币安Binance 的接入，防止再有资产被转走；另外也停用了Katana DEX 交易服务，所以用户目前未能存入或提取Ronin Network 的资产。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+Ronin Network 强调用户的AXS、RON、SLP 加密币都是安全的，同时已经把认证节点的门槛数目提升到8 个，并会尽快再增加认证节点。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/16-12.png)
-疫情|新冠疫苗副作用  小朋友接种新冠疫苗后的反应
+原文链接：[https://chinese.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[engadget](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[com](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[/axie-infnity-ronin-network-crypto-theft-060018992.html](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)
 
-宝宝5岁半，比较瘦弱，脾胃一直不太好。幼几园安扌非接种新冠疫苗，一直未参加，因为前期感冒症状和脾胃虚弱老肚子疼，医生不建议接种。感冒好了后，因为不接种会不让上幼几园，不得不接种。接种完后没有什么症状，第二天带着出去玩也没有反应，晚上在家玩突然流鼻血，而且量很多，属于突然喷射出，然后就没了，吓坏老母亲。第二天也没任何反应，晚上睡觉前说有鼻涕，擤鼻涕又是鼻血一股，但是也没有继续流。第三天没有症状，第四天幼几园回来老师反映有流鼻血，也是一点点。准备联系接种单位咨询情况。不知道其他小宝贝有没有类似情况。
+* * *
 
-#新冠疫苗 #小朋友打新冠疫苗 #接种疫苗后的反应
-
-参考链接：
-
-[新冠疫苗副作用，小孩子接种后流鼻血](https://www.xiaohongshu.com/discovery/item/621e125d000000000102c613?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648607121)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-
+*编辑&发布：长岛开心*
 
  
 

@@ -2,28 +2,29 @@
 ---
 
 
-## 乌军再传捷报！收复切尔尼戈夫小镇斯洛博达
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2262363/)
+## 中共国地产龙头万科的净利润大降45.7%
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2262517/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-30日乌军再传捷报，收复切尔尼戈夫南方小镇「斯洛博达」。美国国防部发言人柯比说，「我们得到一致的推论，在过去一个月普京的国防部，没有充分上报所有战况。」
+编辑：文宝
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/f5315f6e-419c-4dfd-b453-31079024650f.jpg)图片来源：民视新闻
+3月30日晚，曾经一向以稳健著称的万科出了重磅消息，2022年报显示净利润大降高达45.7%，史无前例！
 
-乌军连日从俄军手中夺回北方战线重要村落，缓解切尔尼戈夫和首都基辅被包围危机。英美情报机构认定，俄军之所以节节败退，资讯不对等导致的错误决策，是重要关键。
+估计很多从众，迷信大V的投资者得山顶站岗了，截至31日上午发稿前已经下跌2.79%。至于净利润大降原因，官方给出的主因是部分城市投资冒进，市场判断过于乐观。
 
-简评：独裁国度的通病，丧事喜办报喜不报忧！平时忽悠普京惯了，到了战场上就不一样了，战报不准影响决策，如此的战争岂能打的赢？普大帝狂妄叫嚣吹吹牛可以，来真的就露馅了，俄内部情报“猪队友”加上乌克兰人的顽强抵抗，普大帝输起来很容易，想赢比登天还难！
+简单说是管理的原因。
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022331I08M1](https://www.ftvnews.com.tw/news/detail/2022331I08M1)
+对此，郁亮主席在致股东信上曰：“交出这样的成绩单，我倍感压力，内心充满紧迫感。”其实万科股东利益减少不是第一次了，2021年万科公司营业收入4528亿元，归属于上市公司股东的净利润225亿元，同比下降就高达45.7%。
 
-撰稿/发布：一叶知秋
+郁亮主席是比较低调的，2021年年度即时现金薪酬总额673.5万元，在行业是比较低的。对于未来万科的发展，高速工业化、高速城镇化这两个市场重要推动力行近尾声，新增住房需求逐步向改善、更新需求过渡，住宅市场依然有潜力。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+但像2016年那样的高速发展几乎是不可能了，在其它赛道方面，万科选择了物业服务、物流仓储、长租公寓和商业。数据显示，万物云将保持内生稳健增长，其中住宅物业收入增长25%，万物梁行增长35%，万物为家增长45%。物流仓储营业收入计划保持35%以上的增长。
+
+原文链接：[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10560777505320406283%22%7D&n\_type=1&p\_from=4](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10560777505320406283%22%7D&amp;n_type=1&amp;p_from=4)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-84.png)DISCORD
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
