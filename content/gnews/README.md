@@ -15,59 +15,59 @@
 
 ---
 
-### [数字货币、躺平币去中心化、零成本支付、全球无差别交易](/content/gnews/1/README.md)
+### [文•贵天成——文贵先生谈“数字银行”（二）](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [文•贵天成——文贵先生谈“数字银行”（一）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [数字货币、躺平币去中心化、零成本支付、全球无差别交易](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄军厌战！拒绝执行命令意外击落友机](/content/gnews/2/README.md)
+### [俄军厌战！拒绝执行命令意外击落友机](/content/gnews/4/README.md)
  ` 蓝莲花农场`
 
-### [COVID-19疫苗副作用集萃（2022.3.30）新冠疫苗后月经血崩](/content/gnews/3/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.30）新冠疫苗后月经血崩](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共](/content/gnews/4/README.md)
+### [3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [经历母亲三年冥诞的七哥和在中共国活不起死不起的老人](/content/gnews/5/README.md)
+### [经历母亲三年冥诞的七哥和在中共国活不起死不起的老人](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面，中、巴、伊、北朝鲜、白俄罗斯、非洲的几个独裁国家以及欧美日分别作为俄乌的担保国](/content/gnews/6/README.md)
+### [3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面，中、巴、伊、北朝鲜、白俄罗斯、非洲的几个独裁国家以及欧美日分别作为俄乌的担保国](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [今日盖特大V推荐 — 卡拉·赞贝利（Carla Zambelli）](/content/gnews/7/README.md)
+### [聚焦：白宫公布拜登的“亿万富翁税”提案](/content/gnews/9/README.md)
+ ` 蓝莲花农场`
+
+### [今日盖特大V推荐 — 卡拉·赞贝利（Carla Zambelli）](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【G时新闻】澳洲各政治派别不改对华强硬路线](/content/gnews/8/README.md)
+### [【G时新闻】澳洲各政治派别不改对华强硬路线](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [“卢布结算”再升级？扩大至粮食、原油和美元债券](/content/gnews/9/README.md)
+### [“卢布结算”再升级？扩大至粮食、原油和美元债券](/content/gnews/12/README.md)
  ` 加拿大温哥华英里农场`
 
-### [3/30/2022 文贵直播：欧洲不会跟俄罗斯在能源问题上妥协，乌克兰在准备人才掠夺计划并将在科技和能源上彻底改变欧洲，欧洲将结束对中东石油和俄罗斯天然气的依赖](/content/gnews/10/README.md)
+### [3/30/2022 文贵直播：欧洲不会跟俄罗斯在能源问题上妥协，乌克兰在准备人才掠夺计划并将在科技和能源上彻底改变欧洲，欧洲将结束对中东石油和俄罗斯天然气的依赖](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [日本拟修法 防俄利用数字货币逃避制裁](/content/gnews/11/README.md)
+### [日本拟修法 防俄利用数字货币逃避制裁](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国手机出货量暴跌三成](/content/gnews/12/README.md)
- ` 加拿大温哥华英里农场`
-
-### [中共作恶引发排华浪潮，海外华人付出惨痛代价](/content/gnews/13/README.md)
+### [中共作恶引发排华浪潮，海外华人付出惨痛代价](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [3/30/2022 乌克兰救援连线：文耀战友谈去乌克兰境内参与救助和战斗的波兰勇士，他们的无畏精神感动了新中国联邦的战友们](/content/gnews/14/README.md)
+### [3/30/2022 乌克兰救援连线：文耀战友谈去乌克兰境内参与救助和战斗的波兰勇士，他们的无畏精神感动了新中国联邦的战友们](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [辉瑞被判公布疫苗1300种症状和全人类打过疫苗的一大半](/content/gnews/15/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [风能和太阳能发电量首次占全球电力的10%](/content/gnews/16/README.md)
+### [风能和太阳能发电量首次占全球电力的10%](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|中华河山将重新焕发生机](/content/gnews/17/README.md)
+### [有声|中华河山将重新焕发生机](/content/gnews/18/README.md)
  ` MOSREC`
-
-### [设计师谈作品：新中国联邦拯救世界](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [俄乌战争导致400多万人逃离乌克兰 粮食危机迫近](/content/gnews/19/README.md)
  ` 蓝莲花农场`

@@ -2,32 +2,41 @@
 ---
 
 
-## 设计师谈作品：新中国联邦拯救世界
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2260193/)
+## 有声|中华河山将重新焕发生机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2260225/)
 
-作者：姐夫说说
-编辑：文泓
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在3月27日的文贵大直播中，一位战友提到，在中共窃取中国政权70年后，中华大地山河破碎，土壤污染、空气污染、水污染异常严重。推翻共产党之后，环境治理问题恐怕将是一个棘手的问题。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/姐夫1.jpg)图片来源：雅典娜设计组（姐夫说说）
+郭先生表示对此深有体会，甚至一度感到绝望和异常痛心。最近，在参加了相关的会议和讨论、并从一些专家那里听取了很多建议之后，郭先生重新燃起了信心。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-95.jpg)
+有一位肖邦家族的人士告诉郭先生，中国现在有很好的办法解决污染问题，最关键的是要解决化肥使用和中国人的粮食问题，其中，以色列的科学、自然的种植方法就是一个很好的选择。
 
+盖特总裁杰森·米勒和郭先生的一个好朋友则表示，他可以无偿提供有效的建议和方法来帮助中国人。但要求一件事情，此方法他只委托给新中国联邦来公布。体制内的战友也对这些方法表示了高度赞同。
 
-最近几周，因为我们的喜币走出一波下跌行情，很多战友们惴惴不安，这里也包括我。《圣经》马太福音6:21记载，“你的钱在哪里，你的心就在哪里”。于是我希望通过穿越未来时空，来追踪寻找我的心最终落在哪里。
-
-有高人说，未来疫苗大灾难过后，三分之一的人会被疫苗屠杀，还有三分之一的人会被疫苗折磨得生不如死的躺在病床上，剩下的三分之一人要负责照顾躺在病床上的三分之一人。到那时没有了中共后，我们都成为了无苗有币的亿万富翁，我们是沉溺于纸醉金迷的富豪生活吗？
-
-显然不能。当世界一半人需要另一半人照顾的时候，就算你有钱，谁来制造商品？谁来提供服务？恰恰相反，能力越大，责任越大！**世界的主人安排了我们新中国联邦正道主义者负责照顾世界另一半的人，这绝对不是巧合！新中国联邦人是富有使命的一群人。**一段思绪飘过后，这时候我看到的不是眼前的喜币价格波动，而是我们未来的责任。参与乌克兰拯救只是刚刚开始，未来对世界更大的拯救即将拉开序幕！
-
-于是，我按照新中国联邦海蓝色七芒星国旗图案构思了这幅图片：**背景底色是浩瀚的星空，中间是地球，围绕着地球36颗“小行星”就是全球各个喜马拉雅农场，以及法治基金、G系列，喻意新中国联邦保护地球、拯救世界。**
-
-*发布：*文泓
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+获得这些信息后，郭先生表示，他对解决国内的环境问题越来越有信心。
 
 
+
+文字版原文：[中华河山将重新焕发生机](https://gnews.org/zh-hans/2253700/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

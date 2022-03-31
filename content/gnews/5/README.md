@@ -2,46 +2,46 @@
 ---
 
 
-## 经历母亲三年冥诞的七哥和在中共国活不起死不起的老人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2260387/)
+## COVID-19疫苗副作用集萃（2022.3.30）新冠疫苗后月经血崩
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2260440/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8802.50%EF%BC%89%E7%BB%8F%E5%8E%86%E6%AF%8D%E4%BA%B2%E4%B8%89%E5%B9%B4%E5%86%A5%E8%AF%9E%E7%9A%84%E4%B8%83%E5%93%A5%E5%92%8C%E5%9C%A8%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%B4%BB%E4%B8%8D%E8%B5%B7%E6%AD%BB%E4%B8%8D%E8%B5%B7%E7%9A%84%E8%80%81%E4%BA%BA%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:9)
+整理:雅典娜情报组(BENJ1)
+编辑：Kelly
 
-**郭文贵先生：**然后我又经历了我母亲的三年的冥诞，我特别地感谢所有的全球战友制作这么多视频、这么多问候。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)图片来源：雅典娜设计组
 
-中国人现在越来越明白母亲和自己的关系，我们社会已经忘了母亲和我们的关系了，而且我们现在看到最多的人是对母亲、父亲的那种，你看咱战友在过去5年，很多战友来挑战我的所谓的我认为的家庭论，说现在父母，在孝敬父母养父母已经老了，这是老式了，父母不能成为孩子的负担。甚至连我们中国人最骄傲的，到现在唯一带点儿希望的，家庭的、社会的、宗亲的这种社会DNA的稳定的关系都在挑战。
 
-父母这个问题养不养要讨论讨论了，共产党竟然说父母不一定要养的，而且最后是父母也不能让党养，那谁养呢？养老院谁拿钱呢？活——活不起，死——死不起，这是我们瞎说的吗？
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-我们对母亲的恨、对父亲的抛弃、对兄弟姐妹的完全所谓用现代话设想的不理，甚至认为根本没有多大关系，家族四分分裂的中国现代社会关系，和我们看到我们中国人所面对在疫苗上的无知和愚蠢，抢着打那个免费的疫苗，看到世界上疫苗出现的灾难。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+新冠疫苗后月经血崩
 
-编辑整理：Jacques；
+帖子原文：
 
-字幕档制作：兵嫂；
+打完疫苗已经三个月了
 
-视频制作及上传：Cindy；
+有谁和我一样打完疫苗当月正常来月经，但是月经量大得吓人，还伴有血块，卫生巾根本没用，只好用我闺女最大号尿不湿，就这样一天也要弄脏好几条裤子，不能下（地）站（着），一站就血崩。我快要崩溃了，已经连续三个月这样了，这种情况导致缺铁性贫血，最近一直在吃铁剂，有姐妹和我一样的情况吗？大姨妈到是正常来正常走，和以前一样一个礼拜，就是月经量太吓人了。现在正在受这折磨，下月再这样还要去医院看看。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-381.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-217.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-163.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4-119.jpg)
+跟帖评论选集：
 
-G-News发布：海贼王M.D.LUFFY；
+1. 我，现在每个月还要来10天，中间有一次一个月来了两次，一共20天，也贫血。我还有胸闷、胸痛、背痛、手指关节痛。做了ct彩超、血常规、 tct hpv 类风湿因子、痛风，还在医院做了一个星期治疗，大姨妈就是一直不正常，来的时候腰巨痛，颜色也黑的很，蹲厕所就不想起来那种。
+2. 我我我，六月份那一针打完血崩，这个月刚刚算是恢复了！经历了住院，西药，中药！现在还在吃药。
+3. 跟我一样，我也是三个月了，量增加到平时的三四倍。唯一的好处就是没有痛经了，但是头也掉秃了。
+4. 我也是前几个月血量老大了，还有血块，最近几个月是哩哩啦啦没完没了，马上要通知打第三针疫苗了，唉……
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+参考链接：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[http://xhslink.com/xS9Kug](http://xhslink.com/xS9Kug)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+发布：tianzhihuan
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
