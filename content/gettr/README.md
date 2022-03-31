@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 1:42 AM (UTC)`
+
+3/30/2022 Miles Guo: The trading volume of the Himalaya Coin soars, with the daily over-the-counter trading volume being at least 10 times the trading volume at the Himalaya Exchange! A Russian oligarch who was sanctioned to the point of having no money for ice cream wants to borrow 1 million Himalaya Coins to get by. An Asian bitcoin big shot lamented that Himalaya Coin and Himalaya Pay are the hope of digital currency after visiting the Himalaya Exchange.<br/><br/>3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日；亚洲的比特币大佬参观完喜联储后感慨喜币和H-Pay是数字货币的希望！<br/>
+![img](https://media.gettr.com/group8/getter/2022/03/31/01/5b65f644-a491-f4aa-8176-0c2a3cc54617/out.jpg)
+
+---
+
 `@miles 3/31/2022 1:05 AM (UTC)`
 
 2022.03.30 晚《新中国联邦新闻访谈》俄乌和谈冷淡收场； 中俄“邪恶”同盟称加强关系； 上海疫情封城，吃绿化带； 新罕布什尔州议会通过法案，允许医生使用非处方药物伊维菌素治疗中共病毒； Hpay在Gfashion的应用意义
@@ -153,13 +160,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 2022/03/30 来自澳雅农场战友的设计马甲，请大家在留言区留下您们的宝贵建议！谢谢 🙏🙏🙏🙏
 ![img](https://media.gettr.com/group21/getter/2022/03/30/14/8e87557b-cddb-2513-b518-a2016c99a70d/3d0eec1bedd21df9f836a87294081dfd.jpg)
-
----
-
-`@miles 3/30/2022 2:34 PM (UTC)`
-
-2022/3/30 这是来自我们战友们的设计，请大家留下你们的宝贵建议在评论区. 谢谢🙏
-![img](https://media.gettr.com/group4/getter/2022/03/30/14/c8b0d261-8062-280c-ba99-422bcfe4ce28/4864824168dc347129044fcc8d0e8176.jpg)
 
 ---
 

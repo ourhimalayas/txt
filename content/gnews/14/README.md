@@ -2,13 +2,11 @@
 ---
 
 
-## 日本拟修法 防俄利用数字货币逃避制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2260319/)
+## 3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2260412/)
 
-![此图像的alt属性为空；文件名为20220331-scaled.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/20220331-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

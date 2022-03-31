@@ -2,31 +2,20 @@
 ---
 
 
-## 疫情｜韩国单日确诊数再回高峰 重症病例突破纪录 当局续推儿童疫苗
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256414/)
+## 俄乌战争｜俄外长喊话：中俄处在史上最坚固关系
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256743/)
 
-**图/文｜CP **
-**发布时间｜30/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/韓國單日確診數再回高峰-重症病例突破紀錄-當局續推兒童疫苗.jpg)
+**港台前线** **zhong｜2022-3-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-30.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
+外媒报导，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）预计在明日出席中、俄、巴基斯坦、伊朗等六国组成的阿富汗局势国际会议后，将与中共外长王毅会晤。日媒猜测，中俄外长会晤是为交换乌克兰局势的意见，且中共一贯采取亲俄立场，俄方恐循求中共的帮助。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+拉夫罗夫对媒体强调，俄罗斯与中共的关系正处于史上最坚固的层级。路透报导，北京多次反对西方联合制裁莫斯科，并坚持与俄维持正常经济与贸易往来，拒绝谴责俄罗斯对乌克兰的侵略行动。
 
-
-韩联社消息，韩国中央防疫对策本部通报，截止30日0时，新增感染新冠病毒确诊病例42.4641万，累计确诊1277.4956万例。较前一天增加7.7087万例，重回高峰，但较一周前（23日）少6.618万例。
-
-与此同时，高感染率亦带动了死亡及重症病例的上升。新增重症患者人数连续23天保持四位数高位，录得1301例，创下历史最高值。另外，新增死亡病例432例，为疫情暴发以来的第二高，累计死亡1.5855万例。严峻情势令民众对 Omicron 亚型变异毒株BA.2导致的高传播率及高重症率感到担忧。
-
-韩国疾病控制和预防局（KDCA）表示，Omicron 导致的严重感染率在上周达到峰值，经过五天的短暂下滑，周日开始，确诊病例再次出现上升趋势，预计未来几周内，死亡和重症病例数量可能会进一步增加。
-
-值得一提的是，目前，韩国加强剂的接种率为63.7%，完全接种率更是高达86.7%，在这些现实数据下，相信毋需太多医学知识，都可以基本判定新冠疫苗对 Omicron 亚型变异毒株BA.2基本无效。
-
-可惜，当局依然没有放慢推动全民接种疫苗的脚步，韩国政府计划本周四（3月31日）开始，为5至11岁的儿童接种新冠疫苗，该年龄组约有315万人。
-
-来源｜[韩联社](https://cb.yna.co.kr/gate/big5/cn.yna.co.kr/view/ACK20220330001500881?section=society/index)、[Koreaherald](http://www.koreaherald.com/view.php?ud=20220330000205)
+来源｜[YAHOO JAPAN](https://news.yahoo.co.jp/articles/4802c15bdc42cc86fce398880796d80bb79a88f8)、[Newtalk](https://newtalk.tw/news/view/2022-03-28/730687)
 
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
 
  
 

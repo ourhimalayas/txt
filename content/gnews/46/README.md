@@ -2,21 +2,27 @@
 ---
 
 
-## 俄乌战争｜俄外长喊话：中俄处在史上最坚固关系
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256743/)
+## 有声｜吉林方舱只隔离不治疗 女子痛苦难忍终自杀
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2257099/)
 
-**港台前线** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-30.png)**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-外媒报导，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）预计在明日出席中、俄、巴基斯坦、伊朗等六国组成的阿富汗局势国际会议后，将与中共外长王毅会晤。日媒猜测，中俄外长会晤是为交换乌克兰局势的意见，且中共一贯采取亲俄立场，俄方恐循求中共的帮助。
+**By:秘翻新闻**
 
-拉夫罗夫对媒体强调，俄罗斯与中共的关系正处于史上最坚固的层级。路透报导，北京多次反对西方联合制裁莫斯科，并坚持与俄维持正常经济与贸易往来，拒绝谴责俄罗斯对乌克兰的侵略行动。
+**2022-03-30**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/海报封面3.jpg)图片来源:新唐人
+**[新唐人](https://m.ntdtv.com/gb/2022/03/29/a103386586.html)**北京时间3月29日消息。中共国吉林、上海疫情大爆发，医疗系统崩溃，一些方舱医院只管隔离不管治疗，以致病患忍受不了痛苦而寻短见了结。
 
-来源｜[YAHOO JAPAN](https://news.yahoo.co.jp/articles/4802c15bdc42cc86fce398880796d80bb79a88f8)、[Newtalk](https://newtalk.tw/news/view/2022-03-28/730687)
+3月28日传出的一段视频显示，在一栋建筑的楼梯间内，数名身穿防护服的工作人员守着一具盖着棉被的尸体，沉默不语。
+
+一名男子在视频中控诉，自己的妻子在吉林市桦皮厂中学的方舱医院被隔离，自从进方舱就身体不适，打几次120都无结果，方舱医院也没有医生。妻子呼吸困难，在极度痛苦中强撑两三天后，最终忍受不了痛苦，在楼梯间上吊自杀 。他要当局给出一个“答复”。
+
+在严厉封控高压下，网络屡传有人崩溃自杀的消息。大量视频和照片显示，有人上吊，有人跳楼，还有人从高楼撒钞票，有人精神失常，手持凶器上街砍人。
+
+（秘翻新闻 Julia 编辑报道）
+
+发布:星星
 
 * * *
-
-**更多资讯请关注官方[盖特](https://gettr.com/user/hktwfrontline)｜please follow our [Gettr](https://gettr.com/user/hktwfrontline)**
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

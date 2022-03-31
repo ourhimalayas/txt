@@ -2,28 +2,45 @@
 ---
 
 
-## 川普的Truth Media应用程序结束了吗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2260144/)
+## 中共作恶引发排华浪潮，海外华人付出惨痛代价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2260304/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a1hxr-ncynl-8.jpg)
+中共自篡政以来，因边境争端、输出革命、干涉别国内政、引发印度、越南、马来西亚和印尼等国出现极为严重的排华示威和事件，造成数以百万计海外华人被残忍杀害，中共官方对此保持沉默，只字不提。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Donald-Trump-launched-Truth-Social-New-Social-Media-Platform.png)图片来源：world wire
-据多家媒体3月30日报道， 前总统川普的特朗普的Truth Social应用程序流量暴跌，自上月发布以来，注册人数下降了惊人的93%，流量也同样下降。
+改革开放以后，中共精心布局，对内实施暴政，对西藏、新疆种族屠杀，武力胁迫台湾，残酷镇压香港，对外进行蓝金黄，偷窃知识产权和先进科学技术，扰乱国际金融市场和秩序，偷盗国外养老基金，制造一带一路陷阱，造成海外华人生存和发展困境。更为甚者，中共2019年制造并释放病毒，并于疫情爆发初期买断世界防疫装备，收买世卫组织，阻止病毒溯源，造成COVID-19疫情全球扩散，妄图击垮世界政治和经济秩序。
 
-在总统日推出的这款社交媒体应用程序推出时，Truth Social曾飙升至苹果免费下载的顶部，根据Sensor Tower的数据，安装量已经下降了80%，在苹果App Store上的下载页面从第一周的361，000次访问下降到上周七天内的90，000次左右。其网站的流量也急剧下降，从推出第一周的600万次访问量下降到现在的每周访问量约为190万次。尽管最初受欢迎程度飙升，但该应用程序从一开始就受到技术故障的困扰。用户报告了尝试注册时的错误和延迟，许多成功注册的人表示他们被迫进入一个长长的”候补名单”。Truth Social到目前为止已到达了120万次安装。
+中共滔天恶行严重威胁海外华人的生命安全。郭文贵先生早在2020年就不断郑告所有海外华人，中共恶性累累祸及海外华人，会在世界掀起排华反华浪潮。反华最严重国家和地区包括美国西部、日本、印尼、俄罗斯以及非洲、东南亚和东欧等地。
 
-川普曾希望Truth Social能够成为Twitter和Facebook等科技巨头的积极竞争对手。 他曾说，”我很高兴很快开始分享我对TRUTH Social的看法，并反击大型科技公司。“ 但是他仅在该程序首次推出的那天发布过一次信息“ Get Ready! Your favorite President will see you soon! 准备好！ 你们最喜爱的总统将要与你们会面”， 有些人开始质疑为什么这位前总统尚未在自己的社交网络上发布任何内容。
+以美国为例，自COVID-19大流行以来，在2020-03-19至2021-09-30期间，共有10370起针对亚裔美国人和太平洋岛民（AAPI）的仇恨事件，近21.2%的亚裔美国人在一年半中经历过仇恨事件。其中2020年发生4599次，2021年发生5771次，增长率为25%。2020年和2021年皮尤研究中心调查也显示各国对中国的正面看法降低，负面看法增加的趋势。
 
-Similar Web 的高级经理David Carr说， “你必须做的更好，更有趣”。
+在美所有仇恨事件族群中，华人报告的仇恨事件排名第一，为42.7% 。2021 年美国针对亚裔的仇恨犯罪增加339%，大多数来自洛杉矶和纽约。洛杉矶成为本世纪美国城市中仇恨犯罪最多的城市，纽约针对亚裔的仇恨犯罪案件数量从30起增至133起，上升343% 。旧金山针对亚裔的仇恨犯罪2021年从9起增至60起，增加5.7倍。绝大多数海外华人不是中共党员，却因受中共牵连而无辜受害。
 
-Truth Social是在其母公司Trump Media & Technology Group成立后推出的。TMTG在去年年底上市时从未披露的投资者那里筹集了10亿美元。
+随着北京冬奥会中共造假愚弄世界的事实公众于世，排华趋势至今没有减缓的迹象。其中女性受害者最多，约占62%，而青少年和老年人约占16%。2022年刚刚开始，蓄意伤害华人事件已经接连发生。1月15日纽约一名亚裔女性被推落地铁轨道后身亡。2月9日西雅图华裔女性被棒球棒袭击导致头骨骨折。2月11日加州奥克兰华埠9街富兴中心正门口发生一起袭击华裔长者事件。后面还会发生多少起华裔受伤害事件？为何中共作恶，付出代价的总是海外华人？
 
-新闻来源：
+俄乌战争以来，中共联俄与世界对抗。中共不仅提供军事和经济援助，媒体和官方都拒绝谴责俄侵略行为，遭到国际社会的唾弃和指责，对中共各种制裁已经显现。中共置国民生命于不顾，不救助国民还阻扰污蔑新中国联邦和法治基金的人道救援。所有华人再次沦为舆论众矢之的，排华浪潮正汹涌而来。
 
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (yahoo.com)](https://ca.news.yahoo.com/trump-truth-social-app-plummets-235232773.html)
+每当各国反华浪潮袭来，海外华人都孤立无援，中共丝毫不顾海外华人的死活，同时官方压制消息，甚至利用反华事件来宣扬中共国的稳定。数以百万计海外华人被残害，为何无人为他们发声？为何世界很少提及？为何墙内战狼和粉红们觉得海外华人活该？
 
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (thewrap.com)](https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/)
+每一个海外华人，都要警醒并认识到，不推翻中共，海外华人永远都被绑在中共的战车上走向深渊。新中国联邦和爆料革命5年来一直致力于推翻中共，揭露中共假丑恶罪行，不断传播病毒疫苗真相，积极告诉世界中共≠中国人。为保护自己家园，为孩子拥有更好的未来，海外华人需要把自己和中共区分开，并且必须推翻中共终结排华悲剧！
+
+***参考资料：***
+1，[https://www.bbc.com/zhongwen/simp/chinese-news-47946596](https://www.bbc.com/zhongwen/simp/chinese-news-47946596)
+2，[https://www.bbc.com/zhongwen/simp/world/2014/05/140515\_vietnam\_antichina](https://www.bbc.com/zhongwen/simp/world/2014/05/140515_vietnam_antichina)
+3, [https://zh.wikipedia.org/wiki/%E9%BB%91%E8%89%B2%E4%BA%94%E6%9C%88%E6%9A%B4%E5%8A%A8](https://zh.wikipedia.org/wiki/%E9%BB%91%E8%89%B2%E4%BA%94%E6%9C%88%E6%9A%B4%E5%8A%A8)
+4，[https://stopaapihate.org/wp-content/uploads/2021/11/21-SAH-NationalReport2-v2.pdf](https://stopaapihate.org/wp-content/uploads/2021/11/21-SAH-NationalReport2-v2.pdf)
+5，[https://zh.wikipedia.org/wiki/%E7%BA%A2%E8%89%B2%E9%AB%98%E6%A3%89%E5%A4%A7%E5%B1%A0%E6%9D%80](https://zh.wikipedia.org/wiki/%E7%BA%A2%E8%89%B2%E9%AB%98%E6%A3%89%E5%A4%A7%E5%B1%A0%E6%9D%80)
+6，[https://news.ifeng.com/history/1/midang/200902/0219\_2664\_1023456.shtml](https://news.ifeng.com/history/1/midang/200902/0219_2664_1023456.shtml)
+
+***文章观点仅代表作者观点，与gnews平台无关***
+
+作者：洛杉矶盘古农场 — Poplar
+编辑：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

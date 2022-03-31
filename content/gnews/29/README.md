@@ -2,43 +2,28 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259662/)
+## 节约挖潜还是谋杀? 网民曝核酸检测采样棉签重复使用
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2260032/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+撰稿/配图：东京樱花团/Ob
 
-您若想了解全文报导内容，请点击标题链接
+2022年03月30日，大纪元报导，有大陆专家曾披露“确诊病例中超一半是在核酸检测过程中被感染的”。近日有市民发布视频曝光，当局为市民做核酸检测时重复使用采样拭子。网民痛批：“一签多捅，是为了防疫？还是想传播？”近期，中共国各地疫情爆发，核酸筛查在各地大规模展开，民众不断曝光核酸筛查中的乱象。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-149.jpg)
+29日，一段有关大陆某地核酸检测点的视频在网上热传。视频显示，一个社区的核酸检测点正在为当地居民进行核酸检测。该核酸检测点的工作流程还算正规，包括接受检测的居民佩戴口罩；居民之间保持1米以上间距；工作人员检查居民的个人有效证件等。视频中，在核酸采样桌前，工作人员手持采样拭子（棉签）为一身穿绿色上衣的女士进行口咽部采样。随后，该工作人员未将采样拭子独立保存，而是继续为下一位女士继续进行口咽部采样。
 
-1.[美国外科医生、卫生与公众服务部唆使推特传播病毒误导信息，遭到起诉](https://childrenshealthdefense.org/defender/violated-first-amendment-twitter-censor-covid-misinformation/)
+上述工作人员重复使用采样拭子，将导致被检测的市民有交叉感染的风险，引发网民热议。不少网民对此表示：“这是蓄意谋杀！”“不换棉签，疯了吗？中共管控下的抗疫，根本就是一个闹剧，一个捞钱的方法。”
 
-据《捍卫者》2022年3月29日电，新公民自由联盟（NCLA）于3月24日在美国俄亥俄州南区地区法院哥伦布分院对外科医生维韦克·穆尔西博士和HHS部长泽维尔·贝塞拉提出诉讼，大致内容：由于美国外科医生和HHS已唆使包括推特在内的社交媒体平台，审查有关Covid-19的所谓“误导信息”而导致推特遭到封禁，这是违宪的
+专家：确诊病例超一半是在核酸检测过程中被感染
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3864-edited.png)
+大陆各城市每次出现新增病例，地方当局就要组织全员核酸检测，而大陆各地进行的大规模核酸检测被认为是交叉感染源。“人民资讯”于2021年12月31日发表题为“做核酸检测！医生告诉你注意事项”文章称，据昆明市第三人民医院急诊科护士长张敬玲介绍，“鉴于西安市确诊新冠病毒人群中超一半是在核酸检测过程中被感染的，为了避免此类事情继续发生，也特别提醒，市民前来做核酸检测时，前面的受测者结束后不要立即上前，更不能马上取下口罩张嘴等候采样。” 中共党媒《人民日报》旗下媒体“人民资讯”也报导了“西安市确诊新冠病毒人群中超一半是在核酸检测过程中被感染”消息。对于核酸检测中造成交叉感染的现象，中共继续压制真相。中共党媒《人民日报》客户端竟然又在2022年1月8日“辟谣”称，该信息严重失实，要民众不要相信。
 
-2. [CDC：50岁及以上的成年人需要额外打Covid-19疫苗](https://www.politico.com/news/2022/03/29/fda-additional-booster-pfizer-moderna-covid-vaccine-00021248)
+中共的心理本来就至阴至暗，凡是能搞一手的，他绝对想着搞两手。凡是能赢一次的他绝对想赢两次。至于人民的事，啥都不是事，演演戏，做做样子，只要宣传搞得好就赢了一大半了，再加上维稳啥都不在话下。
 
-据《政治报》2022年3月29日电，美国CDC建议，所有50岁以上的成年人和12岁及以上免疫力低下的儿童在周二（29日）需要打额外“安全”的mRNA加强针；美国政府授权第二次加强针的决定是基于以色列的数据，那里大约有70万成年人接受了辉瑞与Moderna疫苗的两剂加强针；4月6日举行的疫苗咨询委员会会议上将讨论是否会让更多人接种疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3876-edited.png)
-3. [免费的新冠测试和治疗对没有保险的人，不再开放](https://www.npr.org/sections/health-shots/2022/03/29/1089355997/free-covid-tests-and-treatments-no-longer-free-for-uninsured-as-funding-runs-out)
+消息来源：[网民曝核酸检测乱象 采样棉签重复使用](https://www.epochtimes.com/gb/22/3/29/n13681793.htm)
 
-据《NPR》2022年3月29日电，卫生和公共服务部长泽维尔·贝塞拉（Xavier Becerra）警告说，治疗新冠的单克隆抗体治疗药物与免费新冠测试资金受到大规模削减，并希望美国立法者为中共病毒救济再拨出225亿美元来减少医院的压力；美国的新冠感染数字正在下降（每天700人死亡），但我们不知道未来半年的事。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3877-edited.png)
-4. [医学记者：太多的父母在孩子受到伤害后，才发现疫苗的危险性](https://childrenshealthdefense.org/defender/chd-tv-hooker-dangers-of-vaccines-after-child-harmed/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=4776dc24-2ef9-479a-9b4b-16eeed4239c6) 据《捍卫者》2022年3月28日电，ThinkTwice全球疫苗研究所的主任米勒（Neil Z. Miller）在他妻子怀孕时，开始进行接种和未接种疫苗的儿童比较研究，并指出在孩子未出生就已接种疫苗的父母，往往还生孩子后才发现疫苗对儿童的危险性；婴儿接种中共病毒疫苗后出现不应发生的集中时间死亡（7天内死亡），而医疗机构正在掩盖数据
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3878.png)
-5. [妇女在打辉瑞中共疫苗后死于罕见的脑部疾病](https://childrenshealthdefense.org/defender/exclusive-interview-woman-dies-rare-brain-disorder-after-pfizer-shot/)
-
-据《捍卫者》2022年3月28日电，密苏里州60岁健康女性珍妮弗·迪森·斯普拉格（Jennifer Deason Sprague）于去年9月接种第二剂辉瑞中共病毒疫苗后，不幸在2月21日因克雅氏病（CJD）而去世；美国医院无法给予她任何帮助，神经科医生怀疑她患有CJD，而研究已发现这与辉瑞公司的疫苗（朊病毒蛋白）存在潜在联系；最终只能安乐死
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3666-edited-1.png)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
 
  
