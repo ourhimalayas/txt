@@ -2,8 +2,8 @@
 ---
 
 
-## 20220330郭文贵大直播 ：前线战友大部分身体康复 救援工作非常辛苦
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2263836/)
+## 20220330郭文贵大直播 ：乌克兰的多管火箭炮精准打击而俄罗斯的火箭炮乱轰乱炸
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2263893/)
 
 作者：东京樱花团小视频组
 

@@ -15,44 +15,44 @@
 
 ---
 
-### [20220330郭文贵大直播 ：前线战友大部分身体康复 救援工作非常辛苦](/content/gnews/1/README.md)
+### [20220330郭文贵大直播 ：乌克兰的多管火箭炮精准打击而俄罗斯的火箭炮乱轰乱炸](/content/gnews/1/README.md)
  ` Tokyo Sakura Video Group`
 
-### [有声｜欧盟新制裁力度取决于卢布支付天然气的决定](/content/gnews/2/README.md)
+### [20220330郭文贵大直播 ：中东石油时代结束 俄罗斯天然气时代结束 欧洲能源被掐脖子时代结束](/content/gnews/2/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [20220330郭文贵大直播 ：前线战友大部分身体康复 救援工作非常辛苦](/content/gnews/3/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声｜欧盟新制裁力度取决于卢布支付天然气的决定](/content/gnews/4/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花时政┃中东乱局！巴以冲突升级](/content/gnews/3/README.md)
+### [樱花时政┃中东乱局！巴以冲突升级](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220330郭文贵大直播 ：中共是所有政治背后事件的元凶](/content/gnews/4/README.md)
+### [20220330郭文贵大直播 ：中共是所有政治背后事件的元凶](/content/gnews/6/README.md)
  ` Tokyo Sakura Video Group`
 
-### [泽伦斯基发出严峻的警告震惊了澳大利亚](/content/gnews/5/README.md)
+### [日本东京樱花团 中文新闻播报第38期](/content/gnews/7/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [泽伦斯基发出严峻的警告震惊了澳大利亚](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声｜美司法部再起诉一名参与“猎狐行动”人员](/content/gnews/6/README.md)
+### [有声｜美司法部再起诉一名参与“猎狐行动”人员](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【G时新闻】俄乌战争让世界形成了东西方两大联盟，再也没有第三世界](/content/gnews/7/README.md)
+### [【G时新闻】俄乌战争让世界形成了东西方两大联盟，再也没有第三世界](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [美联储——病毒期间的货币宽松是百年一遇高通胀的原因](/content/gnews/8/README.md)
+### [美联储——病毒期间的货币宽松是百年一遇高通胀的原因](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西方制裁对俄罗斯民众日常生活的影响](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [3/31/2022 银河快讯:日本银行行长：&#8221;购买政府债券不会对汇率产生直接影响。&#8221;； 5月电费，燃气费持续增加，电费处于五年来的最高水平](/content/gnews/10/README.md)
+### [3/31/2022 银河快讯:日本银行行长：&#8221;购买政府债券不会对汇率产生直接影响。&#8221;； 5月电费，燃气费持续增加，电费处于五年来的最高水平](/content/gnews/12/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声｜中共国对澳大利亚华裔记者进行间谍审判](/content/gnews/11/README.md)
+### [有声｜中共国对澳大利亚华裔记者进行间谍审判](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [俄罗斯在乌克兰损失了17200名人员、597辆坦克和127架飞机](/content/gnews/12/README.md)
- ` topnews`
-
-### [联合国：自俄罗斯发动入侵以来，已有400多万人逃离乌克兰](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [大直播后记：七哥谈俄乌第四轮谈判的结局](/content/gnews/14/README.md)
  ` 雅典娜GNotes`

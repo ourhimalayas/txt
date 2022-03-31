@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 1:08 PM (UTC)`
+
+ 3月31号：尊敬的战友们好，你们健身了吗？一切都已经开始！
+![img](https://media.gettr.com/group17/getter/2022/03/31/13/9ca1201e-28e4-b85f-e16e-9bc925e82256/out.jpg)
+
+---
+
+`@miles 3/31/2022 1:03 PM (UTC)`
+
+2022.03.31早《新中国联邦新闻访谈》中俄外长会面  扩大双边合作  在国际事务中发出更团结的声音  日本开放宣战权呼应拜登波兰演讲  FDA批准第四剂疫苗几个小时后FDA官员提出今秋第五剂疫苗的可能性  美参议院通过美国竞争法  英两位法官辞任香港终审法院非常任法官
+![img](https://media.gettr.com/group9/origin/2022/03/31/13/688c261a-1632-c83a-db21-faaef40a52da/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/31/2022 12:33 PM (UTC)`
 
 
@@ -142,20 +156,6 @@ PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被
 
 3/30/2022 Miles Guo: Europe will not compromise with Russia on the energy issue. Ukraine is preparing for the “Talent Hunting” plan and will completely change Europe in terms of technology and energy. Europe will end its dependence on the oil from the Middle East and Russia’s natural gas. There won’t be a nuclear war in humanity. The dictatorships like the CCP and Russia are bound to be taken down. The New Federal State of China is the most important force of justice and peace for human civilization.<br/><br/>3/30/2022 文贵直播：欧洲不会跟俄罗斯在能源问题上妥协，乌克兰在准备人才掠夺计划并将在科技和能源上彻底改变欧洲，欧洲将结束对中东石油和俄罗斯天然气的依赖；人类不会有核战，中共、俄罗斯等独裁国家必灭，新中国联邦是人类的文明最重要的一束花<br/>
 ![img](https://media.gettr.com/group43/getter/2022/03/30/22/a0da6460-90e5-7570-768b-fa50b105fd22/out.jpg)
-
----
-
-`@miles 3/30/2022 10:14 PM (UTC)`
-
-3/30/2022 Ukraine Rescue: Fellow fighter Wen Yao talks about the Polish heroes who went into Ukraine to rescue and fight, and their fearlessness has touched the fellow fighters of the New Federal State of China.<br/><br/>3/30/2022 乌克兰救援连线：文耀战友谈去乌克兰境内参与救助和战斗的波兰勇士，他们的无畏精神感动了新中国联邦的战友们<br/>
-![img](https://media.gettr.com/group35/getter/2022/03/30/22/05febf11-efd3-a337-ab9d-17f956a4290e/out.jpg)
-
----
-
-`@miles 3/30/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-30<br/>For English @Gtranslators_1
-![img](https://media.gettr.com/group7/origin/2022/03/30/21/2578b4d2-978b-c833-8aae-c4545e03d352/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
