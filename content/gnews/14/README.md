@@ -2,78 +2,24 @@
 ---
 
 
-## 诗歌《真相变奏曲》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2265418/)
+## 震惊！家用新冠检测试剂盒竟包含剧毒物质！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2265433/)
 
-整理：vale
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_0940-1.jpg)
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4025.png)ttutu’p图片：美联社
+据《网关专家》（Gateway Pundit）3月30日报道，近几个月来，一直有许多人对家用新冠检测试剂盒发出警报，他们说这些试剂盒包含有毒物质，会给人们带来健康风险。
 
-## **真相变奏曲**
+据报道，这些试剂盒中的有毒物质被称为叠氮化钠 (Sodium azide)，具有“高”急性毒性，在过度接触的情况下可能对人体造成致命伤害。试剂盒中的叠氮化液体钠位于提取管内，该物质无色无味无臭。
 
-作者：俞心樵
+拜登政府今年年初决定向美国人免费派发5亿套家用新冠检测试剂盒，有近6千万美国人获得了试剂盒。WHIO TV7报道说，在越来越多的人使用该试剂盒检测新冠后，全美各地的药物和毒物中心报告的与叠氮化钠中毒有关的案例大幅增加，这促使俄亥俄州的毒物控制中心(Poison Control Center)发出警告。
 
-哀乐响起，建筑扭曲
-通过少女的细枝末节
-传统之毒，顶你个肺
-说来话长的总是短诗
+俄亥俄州毒物控制中心的成员、毒理学家谢拉·格尔特莫勒（Sheila Goertemoeller）博士解释了该机构决定发布全国范围内警告的原因。她说：“美国其他54个毒物控制中心也看到了类似的叠氮化钠中毒事件的上升，全美最近已有超过数百人接触到了试剂盒中的叠氮化钠。我们毒理学界对这样一种剧毒物质被用在试剂盒中感到惊讶和担忧，我们看到所有年龄段的人都有接触过该物质。”
 
-沿途我所犯的所有错误
-曲折、离奇、一步一景
+据斯坦福大学医学部称，接触叠氮钠的主要副作用包括血压降低、头痛、体温降低，在严重过量接触的情况下，会出现抽搐和死亡。人类摄取100至200毫克叠氮钠可能会导致头痛、呼吸困难和腹泻。一些人建议，如果你家里有这些试剂盒，请谨慎使用，或者最好把它们扔掉。
 
-当年，嗯当年，嗯肯定是我
-把这个国家完全放错了位置
-以至于连地狱都不想要的人
-塞满了这个国家。请别误会
+*责编：白夜*
 
-这里恰恰是极少数人的天堂
-这国家、这人口最多的国家
-真正的人，却始终查无此人
-
-一个失败的中国人
-这些年，我讲英语
-我并不欠英国什么
-我永远只欠希腊的
-
-我的母语就是希腊语
-实际上我只会讲汉语
-是个人，都负债累累
-
-欠你地狱，欠我天堂
-文人欠了文盲的文化
-富豪欠了乞丐的金钱
-
-当拜伦，为希腊而死
-潘金莲为中国而永生
-
-嗯我左右，一个海伦一个西施
-咖啡和绿茶，她们总是比你好
-是人都爱听好话，我也不例外
-
-够了，在这个永无真相的国家
-你对我的夸奖更像是一种侮辱
-你对我的祝福更像是一种诅咒
-
-够了，我很忙，我与万物都有性关系
-够了，都给我闭上嘴！真相只在天上
-
-2020.2.18.简言居
-
-* * *
-
-审核：Aries的星
-校对：阿伯塔
-发布：信心的选择
-
-当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
+新闻来源：[“Surprised and Concerned”: Poison Control Issues Nationwide “Toxic” Warning About Covid-19 Rapid Antigen Tests – Kit Includes Poisonous “Liquid Substance” Used Commonly in “Pest Control” – (VIDEO)](https://www.thegatewaypundit.com/2022/03/ready-surprised-concerned-poison-control-issues-nationwide-toxic-warning-covid-19-rapid-antigen-tests-kit-includes-poisonous-liquid-substance-used-commonly-pest-control/)
 
  
 

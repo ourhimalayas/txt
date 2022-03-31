@@ -2,33 +2,28 @@
 ---
 
 
-## 有声|追踪加密资产在新兴市场经济体中的足迹
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2265288/)
+## 逃离乌克兰 加入新联邦
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2265389/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近期，国际清算银行在其三月份的报告中分析了加密货币对新兴市场经济体货币主权的影响。
+**作者、视频提供：Ken Ken**
+**编辑：Candy**
 
-该报告中的数据显示，自2020年中共病毒疫情危机以来，新兴市场经济体中兑换美元稳定币的交易量不断飙升。其中，土耳其里拉在稳定币市场中的交易份额从2020年1月的0.3%上升至2021年12月的26%，但里拉在全球外汇市场中的占比仅为0.5%，与加密货币市场的差距巨大。与此同时，在许多面临贬值压力且货币流动规模较小的新兴市场国家，点对点平台P2P的比特币交易量也大幅上升。
+***编者按**：波兰世界3月31日，Ken Ken战友从新中国联邦和法治基金驻波兰梅迪卡援乌中心营地传来视频，对一直在我们营地做翻译工作的Naive 战友进行了一个简单的专访。*
 
-该报告也提出，加密货币会吸走各国地方银行系统的资金，并帮助它们绕开政府的汇率与资本管制，这会对国家法币主权造成一系列的冲击，也可能影响到实体经济的稳定性。为此，该报告鼓励各国政府加强对加密货币的监管措施。
+从乌克兰逃离出来的台湾人，我们的新战友——Naive。从克拉科夫前线热线小组成立以来，他就一直为我们提供翻译支持。随后，跟随客服小组赶赴梅迪卡前线继续和我们一起战斗。营地内随处可见他忙碌的身影，他成了我们在前线营地的战友与难民之间沟通的桥梁。
 
-对此，郭文贵先生近日在大直播中指出，加密货币市场的巨量波动并没有造成巨大的金融与社会动荡，这一点令全球的监管者感到十分惊讶。另一方面，拜登总统的数字货币行政令会进一步让加密数字货币走向主流。在此情况下，喜币由于其稳定币的设计、充足的储备金以及与黄金挂钩并采取严格KYC措施的特征，其必将在未来的监管竞赛中胜出。
+*Naive富有很强的同情心、八年半工半读的乌克兰学习生活经历、对乌克兰难民深刻的了解、乐于助人、在战争初期就逃出了乌克兰、得到华沙中餐馆老板娘对新中国联邦救援信息的及时提供……所有这一切都促成了现在的Naive战友：一个受人 尊敬、正义感强、勇于奉献的战友。*
 
-文字版原文：[追踪加密资产在新兴市场经济体中的足迹](https://gnews.org/zh-hans/2258787/)
+*如果穿上我们新中国联邦的护身符，不用听讲，便一眼就能看出是我们团队的战友了！*
 
-音频处理：Fei797
-发稿：Fei797
+***发布：Candy***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
