@@ -2,34 +2,40 @@
 ---
 
 
-## 【G时新闻】加拿大联邦政府职员将全面加薪
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2265729/)
+## 有声|德国将起诉使用“Z”字符支持俄罗斯的民众
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2265846/)
 
-**播  报：加拿大温哥华扬帆农场 -【七彩虹】**
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+当地时间3月28日，据有关媒体消息显示，德国内政部发言人当天提出，任何在德国以字母“Z”表示支持俄罗斯入侵乌克兰战争的个人或将遭到起诉。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-8.jpeg)
+据了解， 自俄罗斯入侵乌克兰以来，俄罗斯军用车辆全部以字母“Z”作为标记。因此，那些试图支持俄罗斯侵略行为的个人或群体大多使用这一字母作为标志，且该字母还出现在所有声援克里姆林宫的游行活动中。
 
-**视频制作：加拿大温哥华扬帆农场 -【文所未闻】**
-![此图像的alt属性为空；文件名为image-3994.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-3994.png)
-大家好！今天的主题是加拿大联邦政府职员将全面加薪！
+对此，德国下萨克森邦和巴伐利亚邦此前已经下令，禁止当地民众公开展示“Z”字符号，否则将面临最高3年的有期徒刑。而德国内政部发言人也指出，该禁令并不是针对字母Z本身，但民众在个别情况下使用该字母可能会被视作对俄罗斯侵略战争的认可。然而，俄罗斯对乌克兰的侵略战争是一种犯罪行为，为此，任何公开支持这场侵略战争的个人均有可能会受到起诉。
 
-据自媒体反向信号3月30日报道，总理特鲁多不顾大多数加拿大人的反对，在提高碳税的同时，不断给自己及同僚加薪添利。
+内政部发言人也呼吁所有联邦州就使用该符号是否构成犯罪，以及如何采取相应对策做出审查。
 
-据悉，从4月1日起，特鲁多年薪将增至近38万加元，而其所有内阁部长们都加薪1.6万元；议员们则加薪1.1万元。然而，在全国53万联邦和省政府雇员加薪的同时，当局却加紧对中小企业的税收限制。
 
-加拿大[纳税人联盟]的最新民调显示，超过80%的加拿大人反对政客们在疫情期间的第三次加薪。对此，该联盟负责人称：民众在遭受瘟疫、减薪、失业和商业损失时，代表人民的议员们却不断为自己牟取福利，并使整个政府机构都充斥着官僚和政客的经济利益。
 
-视频链接：[https://gettr.com/post/p12v2z0b92f](https://gettr.com/post/p12v2z0b92f)
+文字版原文：[德国将起诉使用“Z”字符支持俄罗斯的民众](https://gnews.org/zh-hans/2259459/)
 
-上传：文莱
-![此图像的alt属性为空；文件名为image-3994.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-3994.png)
-* * *
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+**更多资讯，更多关注**
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

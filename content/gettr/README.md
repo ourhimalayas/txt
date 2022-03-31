@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 11:38 PM (UTC)`
+
+2022.03.31《The Fringe》 Episode 159
+![img](https://media.gettr.com/group7/origin/2022/03/24/23/e57d39e9-d1c4-e224-b8e9-18f40f8129e0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/31/2022 11:03 PM (UTC)`
 
 2022.03.31 NFSC News   Ukraine Claims "Proof" of Russia Using Cluster Bombs；43 Russian Diplomats Expelled by Four EU Nations
@@ -149,15 +156,6 @@
 
 3/30/2022 Ukraine Rescue: The tents set up by the New Federal State of China are the sturdiest in the rescue camp in Medyka. Our giant tent is like a social hub of the rescue camp, with all kinds of facilities and supplies being provided. The experience of the Ukraine rescue on the front line tells us that we must cherish the peaceful time!<br/><br/>3/30/2022 乌克兰救援连线：新中国联邦的帐篷是梅迪卡营地最坚固的，我们的大帐篷俨然成为了救援营地的社交中心，各种设施和物资一应俱全；救援前线的经历告诉我们要珍惜和平的日子！<br/>
 ![img](https://media.gettr.com/group3/getter/2022/03/31/04/fc01eab5-d495-922e-ec99-81d9ae53ce53/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_movie 3/30/2022 6:30 PM (UTC)`
-
-PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被共产党抢走并控制的阿里巴巴委任PAG掌门人单伟建为独立董事，<br/>并担任审计委员会成员，于3月31日生效。<br/><br/>PAG就是共产党的金融诈骗集团，整个单伟健家庭都是共产党传统的专业特务。新中国联邦一定会让美国人知道PAG是如何偷走美国的养老保险，一定要让美国和全世界看到PAG这个金融诈骗集团，是共产党伸向美国养老基金最厉害的黑手之一。<br/><br/>#PAG #中国共产党 #马云 #阿里巴巴 #单伟建 #HBO #美国 #养老金基金 #金融诈骗集团<br/><br/>
-![img](https://media.gettr.com/group23/getter/2022/03/30/18/fc18c7d2-ad28-7d1c-2a48-0a5b87355f64/out.jpg)
 
 ---
 
