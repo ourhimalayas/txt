@@ -17,6 +17,64 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 7:04 PM (UTC)`
+
+
+![img](https://media.gettr.com/group28/origin/2022/03/31/18/486c9c88-f2a8-2bf9-bb19-2878a9b959b2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/31/2022 6:03 PM (UTC)`
+
+
+![img](https://media.gettr.com/group6/origin/2022/03/31/18/1481f6ce-5a05-dbdc-e096-7a269638f811/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 3/31/2022 5:19 PM (UTC)`
+
+2022/03/31 感谢来自这位战友的设计, 请大家把您的建议写在留言区， 谢谢🙏 
+![img](https://media.gettr.com/group45/getter/2022/03/31/17/7d27802f-d704-7fbd-2740-e688cfc7cbc8/4fe45f30796c852a352b82f07c1818bf.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 3/31/2022 2:46 PM (UTC)`
+
+❤️🇺🇦Report from #NFSC's #UkraineRescue - #FineFood interviewed with elegant artist Audrey Jones from San Diego California. She spent nearly five years working with children in Haiti after the earthquake. She believed art can be extremely  helpful in frustrating situations for expressing themself. <br/>❤️#新中国联邦 #乌克兰救援 跟踪报道： #精糧 采访一位来自加州圣地亚哥的优雅艺术家Audrey Jones。她也曾在海地地震后做儿童志愿者五年，她相信艺术可以帮助人在困境中表达自己。<br/><br/>About New Federal State of China #NFSC 👇<br/>We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP.
+![img](https://media.gettr.com/group9/origin/2022/03/31/14/37843b74-8906-b45b-3061-f6328418cf2d/out.jpg)
+
+---
+
+`@miles 3/31/2022 4:08 PM (UTC)`
+
+3/30/2022 Ukraine Rescue: A lot of people came to the fellow fighters on the front line to learn about the New Federal State of China (NFSC) and the Rule of Law Foundation (ROLF). The NFSC vest has drawn a lot of interest. The rescue work of the fellow fighters and the good equipment of the rescue camp are widely appreciated. The glamorous coffee machine on the front line of the Ukraine rescue operation was a genius idea of Miles Guo!<br/><br/>3/30/2022 乌克兰救援连线：有很多人来找前线的战友们了解新中国联邦和法治基金，新中国联邦的马甲引起很多人的兴趣；战友们的救援工作以及营地的良好设备赢得广泛盛赞；在救援前线魅力无穷的咖啡机是郭先生天才般的主意！<br/>
+![img](https://media.gettr.com/group26/getter/2022/03/31/16/68a79b87-3fe5-dcd8-3afd-f8aed48319bf/out.jpg)
+
+---
+
+`@miles 3/31/2022 3:46 PM (UTC)`
+
+3/30/2022 Miles Guo: The CCP destroyed society, community, and family, which are the core foundations of the Chinese people. Fellow fighters are writing the legend of your life at every moment. The 81-year-old Ukrainian woman showed us through her actions that dignity is more important than anything else, and citizens of the New Federal State of China should treat her as if she is our mother.<br/><br/>3/30/2022 文贵直播：中共毁掉了社会、族群、家庭等中国人的核心基础；战友们时刻都在书写着人生的传奇；那位81岁的乌克兰老妇人用行动告诉了我们尊严比什么都重要，新中国联邦人要把她当成我们的母亲来对待她<br/>
+![img](https://media.gettr.com/group49/getter/2022/03/31/15/647c89e3-78db-d44f-1054-df17368f4978/out.jpg)
+
+---
+
+`@miles 3/31/2022 3:37 PM (UTC)`
+
+3/30/2022 Miles Guo: The big tent of the NFSC & ROLF Ukraine rescue camp hosted an 81-year-old Ukrainian woman who walked 60 kilometers to Medyka, and after a cup of tea, she calmly asked a fellow fighter if she had a comb. The elderly woman still maintains her dignity during the war, making people feel both heartbreaking and respectful.<br/><br/>3/30/2022 文贵直播：新中国联邦救援营地的大帐篷接待了一位81岁的乌克兰老太太，她步行60公里来到了梅迪卡，喝了一杯茶后，她淡定地问战友有没有梳子，战乱中的老人家仍保持着尊严，这既令人心痛又让人肃然起敬<br/>
+![img](https://media.gettr.com/group26/getter/2022/03/31/15/ef430a1a-b1d2-014c-5af5-fedae4998665/out.jpg)
+
+---
+
+`@miles 3/31/2022 2:02 PM (UTC)`
+
+叶钊颖-郝海东-飞飞 《大实话·第十六场》： “新中国联邦爆料革命，开智同胞，看清共匪，智慧灭共！”  2022-03-31
+![img](https://media.gettr.com/group41/origin/2022/03/31/14/49567de1-10fa-ee69-bfc9-c3f289f0eb0f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/31/2022 1:08 PM (UTC)`
 
  3月31号：尊敬的战友们好，你们健身了吗？一切都已经开始！
@@ -100,62 +158,6 @@ PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被
 
 
 ![img](https://media.gettr.com/group38/origin/2022/03/31/02/8923e2b9-34b9-edd7-213d-a654e4364df0/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/31/2022 1:42 AM (UTC)`
-
-3/30/2022 Miles Guo: The trading volume of the Himalaya Coin soars, with the daily over-the-counter trading volume being at least 10 times the trading volume at the Himalaya Exchange! A Russian oligarch who was sanctioned to the point of having no money for ice cream wants to borrow 1 million Himalaya Coins to get by. An Asian bitcoin big shot lamented that Himalaya Coin and Himalaya Pay are the hope of digital currency after visiting the Himalaya Exchange.<br/><br/>3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日；亚洲的比特币大佬参观完喜联储后感慨喜币和H-Pay是数字货币的希望！<br/>
-![img](https://media.gettr.com/group8/getter/2022/03/31/01/5b65f644-a491-f4aa-8176-0c2a3cc54617/out.jpg)
-
----
-
-`@miles 3/31/2022 1:05 AM (UTC)`
-
-2022.03.30 晚《新中国联邦新闻访谈》俄乌和谈冷淡收场； 中俄“邪恶”同盟称加强关系； 上海疫情封城，吃绿化带； 新罕布什尔州议会通过法案，允许医生使用非处方药物伊维菌素治疗中共病毒； Hpay在Gfashion的应用意义
-![img](https://media.gettr.com/group29/origin/2022/03/31/01/59424dd5-77a8-714e-d45a-83baa349d9ac/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/31/2022 12:30 AM (UTC)`
-
-2022.03.30 晚 《新中国联邦新闻》乌克兰称掌握俄罗斯使用集束炸弹证据； 欧盟四国再驱逐43名俄外交官
-![img](https://media.gettr.com/group44/origin/2022/03/31/00/33062b11-0f62-48c1-e611-94779aea26b9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/30/2022 11:49 PM (UTC)`
-
-3/30/2022 Miles Guo: The essence of the Russia-Ukraine war is the war between the CCP and the US, and the CCP is certainly going to invade Taiwan. The US already got an extra hand to take action against the CCP. The Russia-Ukraine war will be ended with the demise of the CCP and its Eastern evil alliance.<br/><br/>3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共；俄乌之战将以中共及其东方邪恶集团的灭亡而结束<br/><br/><br/>
-![img](https://media.gettr.com/group25/getter/2022/03/30/23/e24e2eeb-e094-5a93-5bf1-89d67df06157/out.jpg)
-
----
-
-`@miles 3/30/2022 11:33 PM (UTC)`
-
-3/30/2022 Miles Guo: The confrontation between the Eastern and the Western alliances has formed in the Russia-Ukraine war. The CCP, Pakistan, Iran, North Korea, Belarus, and several African dictatorships will serve as guarantors for Russia, with Europe, the US, and Japan being the guarantors for Ukraine. The CCP wants to overthrow the current Pakistani government. Lavrov has gone to Beijing three times recently. India stands with the CCP and Russia.<br/><br/>3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面，中、巴、伊、北朝鲜、白俄罗斯、非洲的几个独裁国家以及欧美日分别作为俄乌的担保国；中共要推翻巴基斯坦现有政府；拉夫罗夫最近3次去北京；印度和中俄站在一起<br/>
-![img](https://media.gettr.com/group24/getter/2022/03/30/23/5a80c946-87c7-3492-2f82-af354cbfce0d/out.jpg)
-
----
-
-`@miles 3/30/2022 11:33 PM (UTC)`
-
-2022.03.30《The Fringe》 Episode 158
-![img](https://media.gettr.com/group44/origin/2022/03/30/23/70323d02-9a5a-fa4f-b47c-760f492e878f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/30/2022 11:02 PM (UTC)`
-
-2022.03.30 NFSC News    Russia and Ukrainian Peace Negotiators Suffer Suspected Poisoning； Russian Invasion Causes Over $565bn Damage to Ukraine
-![img](https://media.gettr.com/group13/origin/2022/03/30/22/d02e5279-e6d9-2896-e013-b165e6db2c4e/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/30/2022 10:55 PM (UTC)`
-
-3/30/2022 Miles Guo: Europe will not compromise with Russia on the energy issue. Ukraine is preparing for the “Talent Hunting” plan and will completely change Europe in terms of technology and energy. Europe will end its dependence on the oil from the Middle East and Russia’s natural gas. There won’t be a nuclear war in humanity. The dictatorships like the CCP and Russia are bound to be taken down. The New Federal State of China is the most important force of justice and peace for human civilization.<br/><br/>3/30/2022 文贵直播：欧洲不会跟俄罗斯在能源问题上妥协，乌克兰在准备人才掠夺计划并将在科技和能源上彻底改变欧洲，欧洲将结束对中东石油和俄罗斯天然气的依赖；人类不会有核战，中共、俄罗斯等独裁国家必灭，新中国联邦是人类的文明最重要的一束花<br/>
-![img](https://media.gettr.com/group43/getter/2022/03/30/22/a0da6460-90e5-7570-768b-fa50b105fd22/out.jpg)
 
 ---
 

@@ -2,34 +2,40 @@
 ---
 
 
-## 中日财经爆┃顺丰快递去年净利暴降41.73%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262459/)
+## 有声|泽连科医生称疫苗导致艾滋病并毁坏免疫系统
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2264425/)
 
-撰稿：东京樱花团/peterwong
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+根据3月25日的一则盖特消息，泽连科医生在近日接受采访时表示，中共病毒疫苗实际上破坏了人体T细胞的免疫功能，与自然杀毒细胞的功能，并且还会削弱肿瘤抑制基因，为癌症打开大门。换句话说，这就是获得性免疫缺陷综合征，即艾滋病。
 
-中国物流巨头–顺丰控股3月30日公布，去年净利润同比降逾四成，主要因遇产能瓶颈加大了对场地等网络资源投入，以及春节受中共疫情影响原地过年人工成本上
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-15-1280x720.jpg)
 
-升。
+目前已经有数十篇医学评议论文验证了他的观点。 在以色列，殡仪馆的工作人员表示，他们已经严重超负荷工作，因为死亡人数增加了10倍，特别是年轻死者，导致他们没有足够的资源来进行妥善安葬。 泽连科医生警告说，由于以色列是注射三针、四针中共病毒疫苗最多的国家，所以目前有大约50%的以色列人已经患上了艾滋病，同时该国感染中共病毒后的死亡率也最高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-26.jpg)[图片来源](https://www.google.com/search?q=%E9%A1%BA%E4%B8%B0&amp;tbm=isch&amp;ved=2ahUKEwjkgKiN8u_2AhUXiVwKHWcEDgIQ2-cCegQIABAA&amp;oq=%E9%A1%BA%E4%B8%B0&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6CggjEO8DEOoCECdQ1wZYgxNgwBVoAXAAeACAAUmIAYYBkgEBMpgBAKABAaoBC2d3cy13aXotaW1nsAEKwAEB&amp;sclient=img&amp;ei=42BFYqSDKZeS8gLniLgQ&amp;rlz=1C1YKST_enUS900US901#imgrc=8VQwycH13a7cxM)
+泽连科医生最后说，爱因斯坦对精神错乱的定义，就是一遍一遍重复做同样的事情，却期待能得到不同的结果。但全球政府强制大范围注射中共病毒疫苗并非精神错乱，而是精心设计的结果，这正是他们想要达到的目标。
 
-顺丰发布在深交所网站的年报显示，2021年净利润同比下降41.73%至42.7亿元人民币，营收同比增34.55%至2,071.9亿元；拟向全体股东每10股派发现金红利1.80元（含税）。
 
-顺丰指出，去年业绩同比下滑主要由于：年初为应对件量高增长、缓解产能瓶颈，加大了对场地、设备、运力等网络资源投入；以及年初疫情期间响应春节原地过年号召，留岗员工人数和补贴增加导致人工成本上升。
 
-此外，定价较低的经济快递产品增速较快，对整体利润率造成一定压力；2020年公司享受到较多的国家抗疫相关税费减免优惠，2021年该等优惠政策陆续结束。
+文字版原文：[泽连科医生称疫苗导致艾滋病并毁坏免疫系统](https://gnews.org/zh-hans/2255954/)
 
-年报显示，该公司去年扣非净利润为18.3亿元，同比下滑70.1%。其中非经常性损益项目主要为公司将三项物业资产的权益转让至顺丰房托基金、以及处置其他子公司所获得的处置收益，和政府补助。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-顺丰控股周三收升3.62%报44.37元，今年迄今累计跌幅达35.6%，同期沪深300指数CSI300跌13.9%。该股去年初一度创出124.37元的历史新高，但在一季度业绩意外爆雷后狂跌，今年股价继续向下，一度跌至42.5元的低点。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-消息来源:
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[中国物流巨头顺丰控股去年净利降逾四成 网络资源投入及疫情令业绩承压](https://cn.reuters.com/article/sf-profit-0330-wedn-idCNKCS2LS013?il=0)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

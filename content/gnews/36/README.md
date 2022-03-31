@@ -2,26 +2,32 @@
 ---
 
 
-## 中日财经爆┃俄罗斯鼓励“水货”替代进口正品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262476/)
+## 俄乌战争本质是中美战争
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2264426/)
 
-撰稿：东京樱花团/peterwong
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/432580651456139264564731.jpeg)
+3月30日郭先生在大直播中阐述当前俄乌战争的本质就是中美战争。
 
-俄罗斯总理米舒斯京(Mikhail Mishustin) 3月30日表示，俄罗斯已授权零售商在没有商标所有者许可的情况下从国外进口产品。此前众多国际品牌因俄罗斯入侵乌克兰而停止在俄罗斯销售或向俄罗斯出口产品。
+此前的俄乌谈判，双方各找好了自己的担保国家，这一次，世界再没有中立和第三国，完全分成了相互对抗的两个阵营。一个阵营是以中共、俄罗斯为首的独裁国家，包括巴基斯坦、伊朗、朝鲜、白俄罗斯以及非洲一些独裁小国，另外一个阵营是欧美日等西方民主国家。两个阵营分别为俄罗斯和乌克兰做担保，一旦对方不遵守协议，毫无疑问就是两大阵营的斗争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-21.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic.liupan.net%2Fpic%2Fcar%2F2016-02-11%2Fe41128a767309d11470a1896851dbae9.jpg&amp;imgrefurl=https%3A%2F%2Fwww.99pic.com%2Fpic%2F2371.html&amp;tbnid=H4jrJMzcrfaUhM&amp;vet=12ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ..i&amp;docid=7_ns-FNEM5ti3M&amp;w=280&amp;h=192&amp;q=%E8%B4%A7%E8%BD%AE%20%E4%BF%AF%E8%A7%86&amp;ved=2ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ#imgrc=PYqJjEtWzj4wbM&amp;imgdii=9WP9vwcKjduDDM)
+中共一定会借机打台湾，而美国也已准备好第三只手收拾中共。俄乌战争会以灭掉共产党而结束。中共阵营的国家会输得极其凄惨，整个邪恶独裁东方联盟会彻底瓦解。
 
-由于西方的经济制裁，以及H&M、苹果和耐克等公司限制在俄罗斯的活动的决定，俄罗斯的零售业已遭重创。
+撰稿、发布：骄子
 
-米舒斯京在电视转播的政府会议上说，需要“平行进口”，以确保某些商品可以继续运往俄罗斯，哪些商品可以以这种方式进口到俄罗斯，将由工业和贸易部决定。
+* * *
 
-消息来源:
+欢迎订阅我们的GNews账号：
 
-[俄罗斯批准在无品牌许可情况下“平行进口” 此前一些国际品牌停止在俄销售](https://cn.reuters.com/article/russia-retailers-import-parallel-0330-we-idCNKCS2LS07P?il=0)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
