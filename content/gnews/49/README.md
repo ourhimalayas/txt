@@ -2,23 +2,31 @@
 ---
 
 
-## 疫情｜美FDA批准第四剂新冠疫苗 省略程序遭质疑
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2256616/)
+## 秘翻新闻｜俄乌战争酿二战以来最严重粮食危机
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2257340/)
 
-**疫情关注组** **zhong｜2022-3-30**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Model.png)**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-外媒报导，美国FDA周二批准了50岁以上或免疫系统缺陷者，接种第四剂辉瑞、莫德纳新冠疫苗。本次第四剂新冠疫苗的批准，美国FDA、CDC罕见的未经过疫苗安全谘询委员会会议程序而批准。
+**By:[秘翻新闻](https://gettr.com/post/p12nmbm2368)**
 
-FDA负责疫苗安全性和有效性的彼得·马克斯博士（Peter Marks）表示，疫苗安全谘询委员会（advisory committee on vaccines）原定4月6日举行会议，监管单位未经谘询会议直接批准第四剂疫苗是因为决定做成“相对简单”。他补充称，批准第四剂新冠疫苗是根据以色列的数据做出的决定。
+**[2022-03-30](https://gettr.com/post/p12nmbm2368)**
 
-疫苗安全谘询委员会成员保罗·奥菲特博士批评称，虽然疫苗安全谘询委员会的建议不具法律拘束力，但有助于提高公开透明度，谘询委员会可权衡相关数据并提出建议。
+**新闻内容:**
 
-來源｜[CNBC](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
+**1.上海大规模建方舱 官方“做假账”隐瞒疫情**
+
+**2.马士基集团警吿：上海封城将进一步提高运输成本**
+
+**3.** **恐怖！FDA批准50岁及以上人群的第二剂加强针**
+
+**4. 乌克兰大使称：俄罗斯战损使其正在非军事化**
+
+**5.美新元首会晤促合作 拜登拟拨4亿美元抗衡中共印太威胁**
+
+🔗Getter链接：**[https://gettr.com/post/p12nmbm2368](https://gettr.com/post/p12nmbm2368)**
+
+发布:星星
 
 * * *
-
-**更多请关注疫情关注组[盖特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

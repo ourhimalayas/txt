@@ -2,42 +2,57 @@
 ---
 
 
-## 美国政府无法阻挡判决,真相不在法院而在媒体和金钱之间
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2261182/)
+## 樱花深度报道┃与泽连斯基的对话（五）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2261333/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8811.50%EF%BC%89%E7%BE%8E%E5%9B%BD%E6%94%BF%E5%BA%9C%E6%97%A0%E6%B3%95%E9%98%BB%E6%8C%A1%E5%88%A4%E5%86%B3%2C%E7%9C%9F%E7%9B%B8%E4%B8%8D%E5%9C%A8%E6%B3%95%E9%99%A2%E8%80%8C%E5%9C%A8%E5%AA%92%E4%BD%93%E5%92%8C%E9%87%91%E9%92%B1%E4%B9%8B%E9%97%B4%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:e)
+编译：东京樱花团/Hopkins
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+【编者按】2022年3月25日，在位于基辅的总部，《经济学家》专访了乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelensky），他向《经济学家》记者讲述了他的国家的战斗以及光明与黑暗的斗争。虽然有些疲倦但仍在开玩笑，这位被追捕的总统说，我不是英雄，胜利意味着尽可能多拯救生命。全文共分三部分，第一部分为记者手记“泽连斯基谈乌克兰为何必须击败普京”；第二部分是《经济学家》的总结“与泽连斯基一起在作战室的时光”；第三部分是对话文本“与泽连斯基的对话”，其中透露了不少以前外界不清楚的细节，比如入侵开始时他在哪里，以及他的工作状态，相当有价值。 本文是泽连斯基接受《经济学家》专访的第三部分。
 
-**郭文贵先生：**今天你要看到这个高法的判决是美国政府无法阻挡的，而且大卡车司机，加拿大大卡车和美国大卡车聚集，和死亡率频升和美国中期大选一系列的问题。共产党现在这个中文媒体，不是说中文媒体现在说它要干啥，它根本控制不住！文曦啊，这才是我们真正的悲哀呢。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/与泽连斯基的对话（五）.png)
 
-我再次请战友们一定要记住，学会在新中国联邦这个平台上学会了解世界什么是实力——平台、媒体，有媒体有钱，就是世界的王；有钱没媒体，随时黑掉你；有媒体，没钱是不可能；有媒体，没钱，你随时出卖自己的良知。真相就在这两个之间！——媒体和金钱之间！根本不在法院！
+TE：你最希望从西方得到什么？
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+VZ：飞机、坦克和装甲车辆。我们没有得到需要的那么多。我们从俄罗斯人那里拿了很多东西。他们正在逃跑。他们害怕，正在逃跑。我想昨天我们得到了12或17辆坦克。
 
-编辑整理：Jacques；
+TE：你是否担心基本军事硬件的供应会被耗尽？
 
-字幕档制作：兵嫂；
+VZ：俄国人有成千上万的军用车辆，他们来了又来，来了又来。如果这种事情可以拿来开玩笑，我也可以的。有一些城市有这么多的俄军坦克，他们走不掉了，坦克造成了交通堵塞。
 
-视频制作及上传：Cindy；
+TE：哪里？
 
-G-News发布：海贼王M.D.LUFFY；
+VZ：我们有个很著名的城市乔尔诺巴耶夫卡（位于赫尔松地区），我们在那里轰炸了俄罗斯军事单位10次。俄国人没有意识到发生了什么，迷路了，不断地返回到同一个地方。俄国人有数千辆军车。并不是乌克兰没有坦克，而是我们的坦克越来越少，因为没有人向我们出售坦克和装甲车。这对我们来说是个大问题。我们还没有收到飞机、装甲车和坦克。我们已经给出了一份我们正在寻找的军事硬件的清单。我们知道我们想要什么，在哪里，我们需要多少。苏联的硬件是可用的。这很好。这对我们来说都是一样的。所有拥有这些装备的国家，都收到了我们的请求。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+TE：你们在获得设备方面有什么进展吗？
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+VZ：我不知道。这取决于这些国家的意愿和美国、北约的意愿。许多国家，特别是欧洲国家，说他们需要北约的许可，而他们并没有这个许可。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+TE：有普京在克里姆林宫，能有一个持久的和平吗？
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+VZ：我不知道。我甚至不知道普京是否知道这个问题的答案。我认为很多因素会影响他的决定。俄罗斯所在地区的稳定将对他的决策产生影响。俄罗斯和乌克兰之间的关系将如何因为所发生的事情而改变，这是一个大问题。我没有答案。这是一个大问题，一个非常大的问题。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+TE：你曾说过你想和普京面对面地交流。你会对他说什么？
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+VZ：有很多东西。我们得谈谈。这不是一个问题，一个答案。而是关于决定。我们必须谈论具体的事情，关于具体的月份，也许关于年份，也许关于现在的决定，也许谈论如果我们不能找到一个决定，并同意不争论它。这就是我的哲学。让我们一步一步来。让我们一步一个脚印地做出决定。我们可以无话不谈。但我们不能在所有事情上妥协。我们必须明白，乌克兰是我们的土地。他必须理解正在发生的事情，如果可能的话，我们必须相互理解。这不是关于尊重，关于爱，或者别的什么。这不是感觉的问题，而是非常具体。有一个问题，我们必须找出它的细节，并解决它。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+（未完待续）
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+作者：奥利弗卡罗尔（Oliver Carroll）/《经济学家》驻乌克兰的通讯员。
 
-G-TV：日本银河系农场。
+本文照片：photographs:** ****ron haviv / vii**
+
+信息来源：
+
+[Volodymyr Zelensky in his own words](https://www.economist.com/europe/2022/03/27/volodymyr-zelensky-in-his-own-words)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

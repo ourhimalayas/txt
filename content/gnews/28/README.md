@@ -2,28 +2,32 @@
 ---
 
 
-## 川普的Truth Media应用程序结束了吗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2260144/)
+## 参议院通过《美国竞争法》欲减少对华依赖
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2260525/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Unknown-26.jpg)参议院通过《美国竞争法》欲减少对华依赖 网络图片
+据德国之声3月30日报道，美国国会参议院3月28日以68票赞成、28票反对的表决结果通过了参议院版的《美国竞争法》。参议院多数党领袖舒默称这部法案“会是第117届国会最重要的成就之一”。该法案旨在实现在美国创造更多就业机会和降低美国家庭开支这两大主要目标。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Donald-Trump-launched-Truth-Social-New-Social-Media-Platform.png)图片来源：world wire
-据多家媒体3月30日报道， 前总统川普的特朗普的Truth Social应用程序流量暴跌，自上月发布以来，注册人数下降了惊人的93%，流量也同样下降。
+参议院去年六月在两党支持下通过了《美国创新与竞争法》。该法案在参议院通过后一直在众议院处于停滞状态。直到今年2月，众议院才推出类似的《美国竞争法》。舒默和参议院少数党领袖麦康奈尔最早于4月启动正式谈判，并在5月或6月在国会进行表决。舒默表示，“在涉及5G、人工智能、量子计算机、半导体、生物工程等诸多技术领域的时候，美国不能屈居第二位”。”
 
-在总统日推出的这款社交媒体应用程序推出时，Truth Social曾飙升至苹果免费下载的顶部，根据Sensor Tower的数据，安装量已经下降了80%，在苹果App Store上的下载页面从第一周的361，000次访问下降到上周七天内的90，000次左右。其网站的流量也急剧下降，从推出第一周的600万次访问量下降到现在的每周访问量约为190万次。尽管最初受欢迎程度飙升，但该应用程序从一开始就受到技术故障的困扰。用户报告了尝试注册时的错误和延迟，许多成功注册的人表示他们被迫进入一个长长的”候补名单”。Truth Social到目前为止已到达了120万次安装。
+美国政府贸易代表戴琪呼吁国会尽快通过这一法案。戴琪表示，在对华经济政策上，美国的重点是放在摆脱对中共国的依赖，华盛顿无法迫使中共国经贸政策发生根本上的改变，美国必须 “有力捍卫我们的价值观和经济利益，免受中共国不公平经济政策和行为的负面影响”。
 
-川普曾希望Truth Social能够成为Twitter和Facebook等科技巨头的积极竞争对手。 他曾说，”我很高兴很快开始分享我对TRUTH Social的看法，并反击大型科技公司。“ 但是他仅在该程序首次推出的那天发布过一次信息“ Get Ready! Your favorite President will see you soon! 准备好！ 你们最喜爱的总统将要与你们会面”， 有些人开始质疑为什么这位前总统尚未在自己的社交网络上发布任何内容。
+新冠病毒爆发后，美国才体会到对华的依赖已经到了一旦离开中共国的供应，美国会立刻窒息的程度，虽然窒息只是暂时的。美国意识到需要建立自己的供应链，把更多的就业机会和“美国制造”带回美国。两院竞争法案的出台就是基于此需要产生的。
 
-Similar Web 的高级经理David Carr说， “你必须做的更好，更有趣”。
+新闻参考链接：[https://p.dw.com/p/49DwP](https://p.dw.com/p/49DwP)
 
-Truth Social是在其母公司Trump Media & Technology Group成立后推出的。TMTG在去年年底上市时从未披露的投资者那里筹集了10亿美元。
+* * *
 
-新闻来源：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (yahoo.com)](https://ca.news.yahoo.com/trump-truth-social-app-plummets-235232773.html)
 
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (thewrap.com)](https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

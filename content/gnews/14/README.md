@@ -2,16 +2,13 @@
 ---
 
 
-## 世界经济论坛展示了用人类心脏细胞制造的机器人鱼,他们说这离制造可移植给人类的人工心脏又近了一步,这将造福人类
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2261041/)
+## 中共谴责美国通过《2022年美国竞争法案》
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261151/)
 
-作者：东京樱花团小视频组
+03/29/2022 中共谴责美通过旨在对抗中共的的2022竞争法案，说该法案充斥着冷战思维。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
