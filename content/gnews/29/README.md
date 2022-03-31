@@ -2,54 +2,36 @@
 ---
 
 
-## 疫苗护照只是贝莱德和先锋集团获利的一种方式
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2265141/)
+## 文贵视角：俄乌战争使世界形成东西方联盟对立局面，巴基斯坦马上会内乱
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/2265165/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4021-edited.png)图片来源：childrenshealthdefense.org
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图像-3-6.jpg)
+在3月30日的直播中，郭文贵先生回答了关于他对伊斯坦布尔第四轮停战会谈结果的预测。
 
-据小罗伯特·肯尼迪（Robert F. Kennedy）说，世界“三大”资产管理公司中的两家金融公司贝莱德（BlackRock）和先锋集团（Vanguard Group）从 COVID-19 大流行病中获得了“巨大的利益”。
+郭先生说，东西方的联盟已经形成。
 
-在3月23日的“小罗伯特·肯尼迪捍卫者播客”节目中，肯尼迪采访了《捍卫者》杂志(The Defender)的记者迈克尔·内布拉达基斯（Michael Nevradakis）博士，讲述了内布拉达基斯博士发现的这两家公司的深远影响。
+在周二的伊斯坦布尔和谈中，乌克兰谈判代表向俄罗斯递交了一份详细的建议，即在美国、英国、法国、土耳其、德国、加拿大、波兰和以色列保证乌克兰安全的情况下给予乌克兰中立地位，一些西方领导人已表示支持为乌克兰提供某种形式的安全保障。
 
-在他上个月为《捍卫者》撰写的一篇文章中，内布拉达基斯博士揭露了贝莱德和先锋集团是中共病毒疫苗制造商辉瑞(Pfizer)、莫德纳(Moderna)和强生(Johnson & Johnson)的前三大股东中的两个。
+郭先生说，俄罗斯、习近平、巴基斯坦、伊朗、朝鲜、白俄罗斯和非洲的几个小独裁国家将成为俄方的担保国，以确保执行这次与乌克兰会谈达成的最终协议。
 
-肯尼迪指出，贝莱德和先锋集团是世界上最大的两家金融公司。“他们控制着世界经济的很大一部分，”肯尼迪说。
+郭先生预计，一旦会谈未能得到执行，这些所谓的东方盟友将与美欧包括等西方国家开干。
 
-内布拉达基斯博士报告说，贝莱德和先锋集团合计管理着超过15万亿美元的全球资产。
+另一方面，欧洲和美国将成为西方盟友，确保协议的执行。如果俄方执行不力，他们就站在乌克兰开干了。
 
-“2020年，[彭博社](https://www.bloomberg.com/news/articles/2020-05-21/how-larry-fink-s-blackrock-is-helping-the-fed-with-bond-buying)称贝莱德是政府的第四个部门，”内布拉达基斯博士表示：“有这种非常奇怪的交叉持股，即先锋集团是贝莱德的最大股东，而贝莱德又是先锋集团的最大股东……不管一些人如何试图转述，很明显，这两家公司紧密相连，他们的命运也紧密相连。”
+郭先生以自信的语气说：”非常清楚了，现在已经没有第三世界的说法。相反，它是东方与西方（的对决）。”
 
-这两家公司拥有许多主要的、有影响力的美国公司，包括美国运通、德国电信、推特和迪斯尼，以及大食品和大医药公司的利益。
+郭先生还公布了有关俄罗斯外长谢尔盖·拉夫罗夫访问北京的独家信息。据他说，这是拉夫罗夫第三次访问北京，但只有最近这次访问被报道。
 
-内布拉达基斯博士和肯尼迪讨论了贝莱德或先锋集团的所有权与疫苗护照之间的联系。
+郭先生还带来了爆炸性新闻：巴基斯坦马上内乱啊！中共要推翻现政府，因为他们又不太听话。颇为意外的是，印度站在俄罗斯和中共国一边。
 
-肯尼迪说：“[贝莱德和先锋集团]拥有的公司是推动疫苗护照的先锋，也是通过制造、控制和策划疫苗护照而获得巨大利益的公司。”
+在郭先生的预计中，可能会在核武器方面采取一些行动，并形成更多联盟。
 
-在他的文章中，内布拉达基斯博士列出了截至2月16日，强制要求其雇主接种中共病毒疫苗的美国主要雇主，并量化了这些公司与贝莱德与先锋集团的关系。
+但是郭先生说，”90%大势已定”。
 
-这些公司中的大多数在很大程度上为这两家公司中的一家或两家所拥有。它们包括制药公司 Abbvie、杂货店 Albertsons、健康保险公司 Anthem、Chevron、Delta Airlines 和 Cigna 等。
+来源：
 
-肯尼迪指出，这些启示的“险恶之处”在于，在美国，竞争性资本主义可能是一种幻觉。
-
-内布拉达基斯博士表示同意：“[资本主义]理论上的最初想法是竞争。而我认为，我们在现实中没有看到这一点。我们有非常非常大的公司，而这些大公司被更大的资产管理公司所拥有。然后……两个最大的公司也碰巧拥有彼此。因此，我不认为有任何方法可以将其作为一种竞争情况。”
-
-**新闻来源：**[childrenshealthdefense.org] [Vaccine Passports Just One Way BlackRock, Vanguard Are Profiting From Pandemic, Reporter Tells RFK, Jr.](https://childrenshealthdefense.org/defender/rfk-jr-podcast-vaccine-passport-blackrock-vanguard-profiting-pandemic/) | 发布时间：2022年03月29日
-
-* * *
-
-审核：文乐
-校对：花羽
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
+[Miles Guo Gettr](https://gettr.com/post/p12oba38c9d)
 
  
 

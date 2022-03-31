@@ -2,23 +2,20 @@
 ---
 
 
-## 援乌营地温馨的一幕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2265514/)
+## 美国防部试图掩盖疫苗伤害真相
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2265602/)
 
-**作者、图片提供：文耀**
-**编辑：Candy**
+加拿大温哥华扬帆农场    平民正道
 
-波兰时间3月31日：今天帐内来了随同父母一起逃难的七八个孩子，最小的才几个月大，疲惫的母亲将孩子放进了我们准备的婴儿床。宝贝稍微睁睁眼，我们的安保马上充当保姆角色。![😄](https://discord.com/assets/626aaed496ac12bbdb68a86b46871a1f.svg) 外面风雨交加，新中国联邦的帐篷内温暖祥和。![🙏](https://discord.com/assets/1904291ab1aa5d14b2adaaff23a578dd.svg)
-![Image](https://media.discordapp.net/attachments/950448401529577502/959099997264183346/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100009444442132/image.png?width=492&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100014662148107/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100020966162543/image.png?width=277&amp;height=369)
-**编者按：***看完以上的文字和图片，不禁令人泪眼朦胧。这个在和平的日子里司空见惯的情景，在战争时期的当下却变成了难得的画面。人们不该为疯狂的独裁者付出这么多的代价，愿战争早日结束！*
+据[西方杂志]3月29日报道，美国陆军外科医生在佛州法院作证时称：军队高层曾警告他严禁提及“国防医学数据库”中有关疫苗伤害的问题。
 
-***发布：Candy***
+报道称，该医生在为一名拒绝接种新冠病毒疫苗的军官作证时表示，近期不断收到大量已接种军人，特别是最高体能标准飞行员的疫苗伤害报告，其中大部分人都出现了中枢神经系统疾病。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+据悉，国防部为确保全员接种而拒绝任何军人的宗教豁免，此举已导致军队士气低落甚至出现自杀事件。目前，在所有感染病毒的军人中，约75%为完全接种者。因此，该医生认为疫苗是无效和危险的，并坚称服用伊维菌素可以有效治疗病毒感染。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

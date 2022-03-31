@@ -2,24 +2,20 @@
 ---
 
 
-## 震惊！家用新冠检测试剂盒竟包含剧毒物质！
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2265433/)
+## 加拿大联邦政府雇员及议员将全面加薪
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2265558/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4025.png)ttutu’p图片：美联社
-据《网关专家》（Gateway Pundit）3月30日报道，近几个月来，一直有许多人对家用新冠检测试剂盒发出警报，他们说这些试剂盒包含有毒物质，会给人们带来健康风险。
+加拿大温哥华扬帆农场    平民正道
 
-据报道，这些试剂盒中的有毒物质被称为叠氮化钠 (Sodium azide)，具有“高”急性毒性，在过度接触的情况下可能对人体造成致命伤害。试剂盒中的叠氮化液体钠位于提取管内，该物质无色无味无臭。
+据自媒体[反向信号]3月30日报道，总理特鲁多不顾大多数加拿大人的反对，在提高碳税的同时，不断给自己及同僚加薪添利。
 
-拜登政府今年年初决定向美国人免费派发5亿套家用新冠检测试剂盒，有近6千万美国人获得了试剂盒。WHIO TV7报道说，在越来越多的人使用该试剂盒检测新冠后，全美各地的药物和毒物中心报告的与叠氮化钠中毒有关的案例大幅增加，这促使俄亥俄州的毒物控制中心(Poison Control Center)发出警告。
+据悉，从4月1日起，特鲁多年薪将增至近38万加元，而其所有内阁部长们都加薪1.6万元；议员们则加薪1.1万元。然而，在全国53万联邦和省政府雇员加薪的同时，当局却加紧对中小企业的税收限制。
 
-俄亥俄州毒物控制中心的成员、毒理学家谢拉·格尔特莫勒（Sheila Goertemoeller）博士解释了该机构决定发布全国范围内警告的原因。她说：“美国其他54个毒物控制中心也看到了类似的叠氮化钠中毒事件的上升，全美最近已有超过数百人接触到了试剂盒中的叠氮化钠。我们毒理学界对这样一种剧毒物质被用在试剂盒中感到惊讶和担忧，我们看到所有年龄段的人都有接触过该物质。”
+加拿大[纳税人联盟]的最新民调显示，超过80%的加拿大人反对政客们在疫情期间的第三次加薪。对此，该联盟负责人称：民众在遭受瘟疫、减薪、失业和商业损失时，代表人民的议员们却不断为自己牟取福利，并使整个政府机构都充斥着官僚和政客的经济利益。
 
-据斯坦福大学医学部称，接触叠氮钠的主要副作用包括血压降低、头痛、体温降低，在严重过量接触的情况下，会出现抽搐和死亡。人类摄取100至200毫克叠氮钠可能会导致头痛、呼吸困难和腹泻。一些人建议，如果你家里有这些试剂盒，请谨慎使用，或者最好把它们扔掉。
+* * *
 
-*责编：白夜*
-
-新闻来源：[“Surprised and Concerned”: Poison Control Issues Nationwide “Toxic” Warning About Covid-19 Rapid Antigen Tests – Kit Includes Poisonous “Liquid Substance” Used Commonly in “Pest Control” – (VIDEO)](https://www.thegatewaypundit.com/2022/03/ready-surprised-concerned-poison-control-issues-nationwide-toxic-warning-covid-19-rapid-antigen-tests-kit-includes-poisonous-liquid-substance-used-commonly-pest-control/)
+编辑： 平民正道    发布：平民正道
 
  
 
