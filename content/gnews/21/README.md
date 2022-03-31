@@ -2,28 +2,43 @@
 ---
 
 
-## SEC将百度、爱奇艺等中概股列入退市风险公司名单
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2261431/)
+## 全球和澳洲疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261432/)
 
-撰稿：追着曙光跑
+整理：枳实
+美工：精灵蓝
 
-据外媒3月31日的报道，美国证券交易委员会（SEC）于3月30日将百度、爱奇艺、富途控股、凯信远达和诺斯拉（Nocera）等中概股企业列入退市风险公司名单，这也是三月以来第三批被纳入名单的中概股。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-31-at-2.09.06-PM.jpeg)图片来源：网络
-上述公司由于中共国政府拒绝允许美国官员审查其在美国上市的审计工作，可能面临从美国证券交易所除名的风险。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
 
-SEC是根据2020年12月生效的《外国公司问责法》作出决定，该法例要求，如果外国公司的审计报告连续3年未能呈交美国上市公司会计监督委员会以作审核，将禁止其在美国任何交易所上市。
 
-有批评人士指出，这些公司在中共享有市场经济的交易特权，进入美国证券交易所同时获得中共政府支持。但中共的监管机构辩称，中共《国家安全法》禁止中企将审计文件交给美国监管机构。
+雅典娜疫情更新（2022年 3月30日）
 
-消息传开后，百度在纽约上市的股票周三（30日）跌幅扩大至2.7%。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-113.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-119.png)
+[2022年3月30日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
 
-郭文贵先生在2017年就爆料，在美国上市的中概股企业财务作假等问题。2018年美国会查100多家中概股企业，这些企业利用假、骗、偷到西方骗钱、圈钱。最终美国证券监管机构真正开始重视并严打中概股的欺诈股民钱的罪行，如今众多中概股企业被退市风险名单。
+数据来源：
 
-*发布：追着曙光跑*
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-信息来源：**[米ＳＥＣ、百度など複数の中国企業を上場廃止警告リストに追加](https://www.bloomberg.co.jp/news/articles/2022-03-30/R9KJOSDWX2PS01?srnd=cojp-v2)**
-[百度等中企被列入SEC黑名单 或面临退市](https://www.epochtimes.com/gb/22/3/30/n13684166.htm)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
