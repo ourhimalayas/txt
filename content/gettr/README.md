@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 5:04 AM (UTC)`
+
+3/30/2022 Ukraine Rescue: Why would the battlefield pianist Davide Martello risk his life to go to Lviv while bringing the stickers of the New Federal State of China? What is the touching romantic story behind this?<br/><br/>3/30/2022 乌克兰救援连线：为什么战地钢琴家Davide Martello要冒险带着新中国联邦的标志去利沃夫？这背后有什么感人的浪漫故事？<br/>
+![img](https://media.gettr.com/group17/getter/2022/03/31/05/21347b62-ac33-9e85-9a54-1214a23be0fd/out.jpg)
+
+---
+
+`@miles 3/31/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group15/origin/2022/03/31/04/7aadb91a-4d74-a5c5-12bb-dbe7bd5da3d7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 3/31/2022 4:59 AM (UTC)`
+
+3/30/2022 Ukraine Rescue: The tents set up by the New Federal State of China are the sturdiest in the rescue camp in Medyka. Our giant tent is like a social hub of the rescue camp, with all kinds of facilities and supplies being provided. The experience of the Ukraine rescue on the front line tells us that we must cherish the peaceful time!<br/><br/>3/30/2022 乌克兰救援连线：新中国联邦的帐篷是梅迪卡营地最坚固的，我们的大帐篷俨然成为了救援营地的社交中心，各种设施和物资一应俱全；救援前线的经历告诉我们要珍惜和平的日子！<br/>
+![img](https://media.gettr.com/group3/getter/2022/03/31/04/fc01eab5-d495-922e-ec99-81d9ae53ce53/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mos_movie 3/30/2022 6:30 PM (UTC)`
@@ -135,31 +156,6 @@ There are still many refugees hiding in basements in Ukraine, suffering from foo
 
 新中国联邦战友献给乌克兰人道主义援助所有的义工战友们《红色的流星》<br/><br/>宝宝们在哭啼<br/>爆炸声中开始的回忆<br/>爸爸妈妈在此分离<br/>流离失所又能去哪里<br/>我们向往的自由和安宁 已成了废墟<br/>昨日路过的小树林 遍地尸横的血腥<br/><br/>就算那红色的流星已点燃城市的夜晚<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>我们想要的是和平<br/>没有战争 也没有分离<br/>是谁带来如此厄运<br/>是谁无私呵护着生命<br/>新中国人的正道主义 绝不会放弃<br/>美迪卡的人道小径  我们会守护着你<br/><br/>就算那红色的流星已点燃世界的黑暗<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>流离的人啊 停下脚步吧  <br/>我们想要和平安宁没有分离, 弥漫温暖<br/>破碎的心啊, 勇敢吧，相依在帐篷的你我 唱这首歌
 ![img](https://media.gettr.com/group16/origin/2022/03/30/18/32f89444-f6bf-5bf5-ec59-d53909bec33b/out.jpg)
-
----
-
-`@miles 3/30/2022 5:47 PM (UTC)`
-
-
-![img](https://media.gettr.com/group48/origin/2022/03/30/17/058177ec-6dd0-ce60-9538-a4353e3d4a36/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@baoliaobaike 3/30/2022 7:42 AM (UTC)`
-
-🆙【Himalaya Farm 】❤️‍🔥<br/>【喜马拉雅农场】 <br/><br/>Himalaya farm respects the rule of law and pursue the right of the people to "one person, one vote" .In Himalaya farm, paying will pay off, smashing communist "utopias".<br/>喜马拉雅农场尊重法治，追求“一人一票”的人民权利，在喜马拉雅农场，付出会有收获，粉碎共产主义“乌托邦”。<br/><br/> #HimalayaFarm #OnlyTrueisunbreakable #thecultCCP #WhistleblowerMovement #喜马拉雅农场 #唯真不破 #中共邪教 #爆料革命
-![img](https://media.gettr.com/group9/origin/2022/03/30/07/c906d4e0-4d7f-9ca4-d59a-fdf257487163/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 3/30/2022 2:34 PM (UTC)`
-
-Himalaya Washington DC's livestream 2022-03-30
-![img](https://media.gettr.com/group24/origin/2022/03/30/14/d73ceff5-47eb-98ea-90a5-51fc0368c4cd/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

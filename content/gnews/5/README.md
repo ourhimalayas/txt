@@ -2,10 +2,10 @@
 ---
 
 
-## 参议员卢比奥抨击企业代表中共国“游说”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261424/)
+## 乌克兰揭发600多名俄罗斯间谍，对普京的间谍战造成巨大打击
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261535/)
 
-03/30/2022 福克斯新闻报道，参议员卢比奥抨击企业代表中共国“游说”，称这“对美国国家利益有害”
+03/29/2022 乌克兰声称已经发现了600多名俄罗斯间谍，并公布了一系列的个人详细信息
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
