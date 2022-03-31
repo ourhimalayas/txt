@@ -2,23 +2,29 @@
 ---
 
 
-## 援乌营地温馨的一幕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2265514/)
+## 俄罗斯违背承诺 暗度陈仓布兵锁定乌东城市
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2265789/)
 
-**作者、图片提供：文耀**
-**编辑：Candy**
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-波兰时间3月31日：今天帐内来了随同父母一起逃难的七八个孩子，最小的才几个月大，疲惫的母亲将孩子放进了我们准备的婴儿床。宝贝稍微睁睁眼，我们的安保马上充当保姆角色。![😄](https://discord.com/assets/626aaed496ac12bbdb68a86b46871a1f.svg) 外面风雨交加，新中国联邦的帐篷内温暖祥和。![🙏](https://discord.com/assets/1904291ab1aa5d14b2adaaff23a578dd.svg)
-![Image](https://media.discordapp.net/attachments/950448401529577502/959099997264183346/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100009444442132/image.png?width=492&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100014662148107/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100020966162543/image.png?width=277&amp;height=369)
-**编者按：***看完以上的文字和图片，不禁令人泪眼朦胧。这个在和平的日子里司空见惯的情景，在战争时期的当下却变成了难得的画面。人们不该为疯狂的独裁者付出这么多的代价，愿战争早日结束！*
+据《德国之声》3月30日报道，俄罗斯违背土耳其谈判的减兵承诺，并将目标锁定在乌东城市，暗中部署大量军队。
 
-***发布：Candy***
+![](https://assets.gnews.org/wp-content/uploads/2022/03/0-59.jpg)（图片来源：德国之声）
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+报导称，俄罗斯29日在土耳其谈判时承诺将部分军队从基辅和切尔尼戈夫地区撤出，然而美国证实，在乌克兰首都基辅附近“不到20%”的俄罗斯特遣队正在“重新定位”。美国国防部发言人柯比（John Kirby）30日在新闻发布会上表示，预计俄罗斯部队将重新部署，而此举是要为部队进行改装和补给，而不是让部队返回俄罗斯。乌克兰总统泽连斯基（Volodymyr Zelensky）则痛斥俄罗斯违背前一日做出的减兵承诺，并表示俄罗斯军队正在为进一步入侵乌克兰东部做准备。
+
+与此同时，俄罗斯早前承诺实施临时停火的乌东城市马里乌波尔传出俄军轰炸红十字会设施的消息。
+
+乌克兰国防部发言人莫图兹雅尼克（Oleksandr Motuzyanyk）指出，俄罗斯部队目前主要集中在包围乌克兰东部的乌克兰部队。他们仍然专注于夺取被围困的港口城市马里乌波尔以及卢甘斯克的两个小镇。
+
+据悉，俄罗斯私人军事公司瓦格纳集团已经向乌克兰东部的顿巴斯地区部署了大约1000名的佣兵。
+
+参考链接：
+[https://reurl.cc/l9mY8v](https://reurl.cc/l9mY8v)
+
+编辑：海星
+总编：老孙
+校对发布：Linda
 
  
 

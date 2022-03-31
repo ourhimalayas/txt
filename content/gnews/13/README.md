@@ -2,40 +2,36 @@
 ---
 
 
-## 有声|德国将起诉使用“Z”字符支持俄罗斯的民众
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2265846/)
+## 世卫组织报告称辉瑞疫苗导致严重耳鸣和听力损失
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2265951/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-当地时间3月28日，据有关媒体消息显示，德国内政部发言人当天提出，任何在德国以字母“Z”表示支持俄罗斯入侵乌克兰战争的个人或将遭到起诉。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide5-8.jpeg)
-据了解， 自俄罗斯入侵乌克兰以来，俄罗斯军用车辆全部以字母“Z”作为标记。因此，那些试图支持俄罗斯侵略行为的个人或群体大多使用这一字母作为标志，且该字母还出现在所有声援克里姆林宫的游行活动中。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵、灭共文明
 
-对此，德国下萨克森邦和巴伐利亚邦此前已经下令，禁止当地民众公开展示“Z”字符号，否则将面临最高3年的有期徒刑。而德国内政部发言人也指出，该禁令并不是针对字母Z本身，但民众在个别情况下使用该字母可能会被视作对俄罗斯侵略战争的认可。然而，俄罗斯对乌克兰的侵略战争是一种犯罪行为，为此，任何公开支持这场侵略战争的个人均有可能会受到起诉。
+《国家邮报》3月31日报道，**世界卫生组织（WHO）发表了一份报告，援引了接种中共病毒疫苗后出现听力损失和其他听觉问题的例子。并称，一种导致耳鸣的听力问题可能和疫苗有关。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/AAVHVe0-e1648765102380.jpg)图片来源：国家邮报。
+报道指出，**在全球接种的110亿支疫苗中，世卫组织报告了367例耳鸣病例和164例听力丧失病例**，发病时间从几分钟到19天不等，但最常见的是在接种后的一天内。
 
-内政部发言人也呼吁所有联邦州就使用该符号是否构成犯罪，以及如何采取相应对策做出审查。
+美国明尼苏达州罗彻斯特市、**全美最佳医院梅奥诊所疫苗研究小组主任、医学博士格雷戈里·波兰**说，他在接种第二剂疫苗后出现了耳鸣。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/download-1-5.jpg)梅奥诊所疫苗研究小组主任格雷戈里.波兰（图片来源：网络）
+**波兰医生在MedPage Today的采访中，他讲述了在接种第二剂疫苗后，第一次出现耳鸣症状是他从医院开车回来的路上，他说，当时好像有人突然在我耳边吹了一个狗哨，当时差点把车开出弯道。**
 
+他谈到自己的症状时说，他“只能开始估计我想尖叫的次数，因为我无法摆脱噪音，或者我失去了多少个小时的睡眠，” 。他说，他听到的噪音在宁静的夜晚显得特别大。
 
+然而这位医生并不是个例，**全国和世界各地的人们都与波兰医生分享了他们接种疫苗后的经历，称他们在接种中共病毒疫苗后也出现了耳鸣。**
 
-文字版原文：[德国将起诉使用“Z”字符支持俄罗斯的民众](https://gnews.org/zh-hans/2259459/)
+波兰医生说:“作为一名经验丰富的医生，**令人心碎的是，**我收到人们的电子邮件，说这**严重影响了他们的生活，他们告诉我他们要结束自己的生命。”**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+新闻来源链接：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[WHO: Pfizer vaccine potentially linked to hearing loss | National Post](https://nationalpost.com/health/who-pfizer-vaccine-potentially-linked-to-hearing-loss)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
