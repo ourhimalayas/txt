@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mos_movie 3/30/2022 6:30 PM (UTC)`
+
+PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被共产党抢走并控制的阿里巴巴委任PAG掌门人单伟建为独立董事，<br/>并担任审计委员会成员，于3月31日生效。<br/><br/>PAG就是共产党的金融诈骗集团，整个单伟健家庭都是共产党传统的专业特务。新中国联邦一定会让美国人知道PAG是如何偷走美国的养老保险，一定要让美国和全世界看到PAG这个金融诈骗集团，是共产党伸向美国养老基金最厉害的黑手之一。<br/><br/>#PAG #中国共产党 #马云 #阿里巴巴 #单伟建 #HBO #美国 #养老金基金 #金融诈骗集团<br/><br/>
+![img](https://media.gettr.com/group23/getter/2022/03/30/18/fc18c7d2-ad28-7d1c-2a48-0a5b87355f64/out.jpg)
+
+---
+
 `@miles 3/31/2022 2:23 AM (UTC)`
 
 【Ukraine Rescue】03/30/2022 Fellow fighter Jing Liang: The NFSC and ROLF’s rescue mission becomes the focus of all those in the whole world who want to take down the CCP.<br/><br/>【乌克兰救援】03/30/2022 ，来自精良战友：新中国联邦和法治基金的前线救援让全世界有着共同灭共心愿的人们有了一个聚焦点。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
@@ -151,15 +160,6 @@ There are still many refugees hiding in basements in Ukraine, suffering from foo
 
 Himalaya Washington DC's livestream 2022-03-30
 ![img](https://media.gettr.com/group24/origin/2022/03/30/14/d73ceff5-47eb-98ea-90a5-51fc0368c4cd/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@taishan 3/30/2022 12:47 PM (UTC)`
-
-可怜、可悲、可恨的小粉红们，也许只有如此这般遭遇时才能醒悟吧！
-![img](https://media.gettr.com/group46/getter/2022/03/30/12/6903a1a3-99e3-91a2-8ca1-bf8cc1596064/a650635d1bca931a779668eb51a5f325.jpg)
 
 ---
 

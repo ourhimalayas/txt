@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：万物定律与生死之间的关系
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2260624/)
+## 七哥金句：懦弱的民族总是不切实际的幻想
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2260657/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句3-1-1-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句6-1-1-scaled.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

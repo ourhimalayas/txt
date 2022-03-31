@@ -15,23 +15,23 @@
 
 ---
 
-### [七哥金句：自杀的人不会再有任何来生](/content/gnews/1/README.md)
+### [所罗门拟与中国签安全协议，中共军力抵达南太平洋](/content/gnews/1/README.md)
+ ` 走进澳洲`
+
+### [七哥金句：当好人是做不了政治家](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：灵魂是你走向下世的钥匙](/content/gnews/2/README.md)
+### [七哥金句：懦弱的民族总是不切实际的幻想](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：万物定律与生死之间的关系](/content/gnews/3/README.md)
+### [七哥金句：自杀的人不会再有任何来生](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [小城伊尔平！市长：挡下世界第二大军队进攻](/content/gnews/4/README.md)
- ` 蓝莲花农场`
+### [七哥金句：灵魂是你走向下世的钥匙](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [串珠644:马斯克一条推文震慑了普习使人类免于核战](/content/gnews/5/README.md)
+### [串珠644:马斯克一条推文震慑了普习使人类免于核战](/content/gnews/6/README.md)
  ` 郭爆料串珠`
-
-### [七哥金句：人都怕死](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
 
 ### [3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`

@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：灵魂是你走向下世的钥匙
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2260639/)
+## 七哥金句：当好人是做不了政治家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2260701/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句4-1-2-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1-1-4-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句7-1-1-scaled.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
