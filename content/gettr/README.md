@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 12:33 PM (UTC)`
+
+
+![img](https://media.gettr.com/group30/origin/2022/03/31/12/2a5378c9-eb5c-db8d-3e34-366d59b19920/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/31/2022 10:06 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月30日第26天当日救援统计：<br/>Medyka救援站接待：约221人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7946人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 26 - Date: March 30, 2022 :<br/>Medyka Rescue Station Reception: about 221 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7946 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -149,13 +156,6 @@ PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被
 
 3/30/2022 Ukraine Rescue: Fellow fighter Wen Yao talks about the Polish heroes who went into Ukraine to rescue and fight, and their fearlessness has touched the fellow fighters of the New Federal State of China.<br/><br/>3/30/2022 乌克兰救援连线：文耀战友谈去乌克兰境内参与救助和战斗的波兰勇士，他们的无畏精神感动了新中国联邦的战友们<br/>
 ![img](https://media.gettr.com/group35/getter/2022/03/30/22/05febf11-efd3-a337-ab9d-17f956a4290e/out.jpg)
-
----
-
-`@miles 3/30/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-30<br/>For English @Gtranslators_1
-![img](https://media.gettr.com/group7/origin/2022/03/30/21/2578b4d2-978b-c833-8aae-c4545e03d352/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

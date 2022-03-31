@@ -2,56 +2,45 @@
 ---
 
 
-## 新西兰财经G乐部2022年3月31日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2263534/)
+## 2022/02/26 千禧一代25到44岁死亡率上升84%
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2263577/)
 
-采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/03/033108.jpg)[GETTR视频链接](https://gettr.com/post/p12bggr09c8)
 
-**提纲：**
+**视频字幕：**
 
-1、快手烧不动了：业务亏损创历史，收入靠广告拉动
+**DEL Bigtree**：让我们展示一下我们刚刚提到的那两张幻灯片，我相信这是CDC说的特定年龄组死亡人数的上升。峰值出现在25至44岁的人中，他们在过去30天内接种过疫苗。你可以看到，在CDC列出的死亡人数上升的同时，VARES（疫苗副作用报告系统）的数据也在上升。你可以看到他们几乎是毗邻的。它们似乎起伏一致，一条线上升，另一条也上升。你说的是，这两条时间线基本上吻合。而当这两者趋于一致时，当然是一种信号，表明这里面有问题。其他月份，（趋势）先平稳，然后上升。VARES系统上的死亡人数上升，在CDC的报告中看到超额的死亡人数。VARES系统上死亡人数的上升也同时发生。这让你感到有这种时间上的联系。
 
-2、百度加入美国证监会可能退市公司名单
+**Jessica**：是的。我沒想到发现这个结果，我写的这篇文章是个调查，因为我想知道答案。是什么在杀死千禧一代？因为（死亡）上升了84%。爱德华是对的。确实有84%的增幅，这就是我们需要回答的问题。
 
-3、中共国五大银行表示：银行面临多重不利因素
+**Del Bigtree**：具体是哪个年龄段？我们说千禧一代有84%的死亡率增长，指的是哪个年龄段？25-44岁？
 
-4、万科发布2021年度业绩报告，净利腰斩！
+**Jessica**：（点头）。
 
-5、加拿大总理候选人支持自由使用比特币作为货币
+**Del Bigtree**：好的。震惊又可怕。我们把这个死亡率与新冠之前的某个时期相比？那个时期在25-44岁年龄段中有84%的死亡率增长。这是标题，“CDC数据：千禧一代在2021年下半年经历了一场越南战争，该年龄组有6.1万超额死亡”。非常震惊，
 
-正文
+**Jessica**：是的。这发生在秋天，就是我们刚才显示的图表，（CDC报告中）秋季的死亡高峰与随后VARES同年龄段死亡报告高峰的吻合。这不是证据，但却能证明疫苗正在发挥其作用。现在的问题是，在死亡人数中，究竟有多大比例是由疫苗注射造成的？引起这1万不同类型的不良反应事件中，疫苗造成的比例是多少？正如我在许多采访中反覆提到的，有比死亡更糟糕的事情。疫苗正造成很多神经系统的残疾，会导致血栓和儿童心肌炎。这不是小问题，也不是以前曾经有过的。对年轻人的重要器官造成损害。有些发生在青春期的症状会长期持续下去，会回过头来困扰你。
 
-**1、快手烧不动了：业务亏损创历史，收入靠广告拉动**
-![img](https://media.gettr.com/group6/origin/2022/03/31/02/e239240d-474c-b3d5-a2ad-bfafdd96019d/05be32f7e27be77cec93d86ce19433d0_500x0.png)
-2021年，快手继续快速奔跑，营销费用442亿元，年度月活从4.81亿增至5.44亿，广告收入翻倍，直播电商GMV达到6800亿元。但是，烧钱力度超过美团、京东，与拼多多相当，让快手迎来了创立以来最大规模的一次业务亏损。昨日快手在发布业绩后，股价大跌6.24%。
+**简评：**
 
-链接： [https://finance.sina.com.cn/chanjing/gsnews/2022-03-31/doc-imcwipii1543528.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-03-31/doc-imcwipii1543528.shtml)
+大规模接种疫苗后，特定年龄组死亡人数的上升峰值出现在25至44岁的人中有84%的死亡率。在过去30天内接种过疫苗的，在CDC列出的死亡人数上升的同时，VARES（疫苗副作用报告系统）的数据也在上升，两条时间线基本上吻合。CDC数据显示：千禧一代在2021年下半年有6.1万超额死亡。这不是证据，但却能证明疫苗对身体正在发挥致命的伤害作用，造成很多残疾和死亡。
 
-**2、百度加入美国证监会可能退市公司名单**
-![img](https://media.gettr.com/group23/origin/2022/03/31/02/678a8d22-5f0f-ce41-d665-3f3eafc294c2/5a8d3de7402e8fdcf82f5d6ecbf46dc6_500x0.png)
-彭博社新闻：美国证券交易委员会周三将百度公司添加到越来越多的公司名单中，这些公司可能因北京拒绝允许美国官员审查其审计师的工作而被踢出美国证券交易所。SEC公布企业名称是2020 年美国法律的要求，该法律规定公司必须遵守涵盖美国所有上市公司的检查要求，为期三年。SEC 还增加了富途控股、Nocera Inc、爱奇艺CASI 凯信远达，将其列入可能退市的临时名单。
+CDC文件解密的疫苗副作用就有1291种，大规模的疫苗灾难还没有出现，已经有无数的疾病、残疾和死亡报道。人类社会进入了一个无差别的死亡期，大屠杀时代。
 
-链接： [https://www.bloombergquint.com/markets/baidu-added-to-sec-list-of-chinese-firms-facing-u-s-delisting](https://www.bloombergquint.com/markets/baidu-added-to-sec-list-of-chinese-firms-facing-u-s-delisting)
+*字幕/听写：云岭|翻译：致良知|校对：Roberts|简评/文字整理/编辑：胖丁*
 
-**3、中共国五大银行表示：银行面临多重不利因素**
-![img](https://media.gettr.com/group6/origin/2022/03/31/03/0ae6d4d4-a369-b935-344f-f9e88dc124b4/63e32c108fdf814e4a69371b1605094f_500x0.png)
-路透社新闻：工商银行、农业银行在其年度收益报告中警告称，中国面临“需求萎缩、供应中断和预期减弱”。农业银行对房地产行业的企业不良贷款猛增 98% 至 282 亿元人民币，因为开发商继续从去年出台的严格债务规则中解脱出来。在建行，房地产坏账同比增长 50% 至 135 亿元。
+* * *
 
-链接： [https://www.reuters.com/world/china/chinas-largest-banks-signal-tough-times-ahead-2022-03-29/](https://www.reuters.com/world/china/chinas-largest-banks-signal-tough-times-ahead-2022-03-29/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**4、万科发布2021年度业绩报告，净利腰斩！**
-![img](https://media.gettr.com/group27/origin/2022/03/31/03/64d308e1-9105-4530-2203-901d29a039de/827c64eebcd6bbdea6f6237fe3e1260a_500x0.png)
-3月30日晚间，中共国房企龙头，万科发布2021年度业绩报告。报告期内，万科实现营业收入4528亿元，同比增长8.0%；归属于上市公司股东的净利润225.24亿元，同比下降45.7%；归属于上市公司股东的扣除非经常性损益的净利润为223.81亿元，同比下降44.38%。
 
-链接：[https://vanke.com/upload/file/2022-03-30/83431302-9dcc-420d-82c6-567c360ec64f.pdf](https://vanke.com/upload/file/2022-03-30/83431302-9dcc-420d-82c6-567c360ec64f.pdf)
+编辑：【英国伦敦喜庄园编辑部】
 
-**5、加拿大总理候选人支持自由使用比特币作为货币**
-![img](https://media.gettr.com/group40/origin/2022/03/31/03/631cf19e-9805-f257-9482-08f0c3b3471f/a9262aff8c6b1670e060b1d6074f0ebb_500x0.png)
-加拿大保守党总理候选人Pierre Poilievre公开支持允许加拿大人在该国使用比特币作为合法货币。3月29日，YouTube频道BITCOIN在一个约100人的当地餐厅前发布了一段视频，显示Poilievre在当地一家餐馆的约100人面前说，加拿大人民需要 “更多金融自由”。他补充说：“这包括拥有和使用加密货币、代币、智能合约和去中心化金融的自由。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-链接： [https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/](https://www.coindesk.com/policy/2022/03/29/new-jersey-orders-voyager-digital-to-cease-and-desist-crypto-interest-offering/)
 
-排版上传：文勇
 
  
 
