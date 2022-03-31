@@ -38,13 +38,6 @@
 
 ---
 
-`@miles 3/31/2022 5:11 AM (UTC)`
-
-从素昧平生到生死相依，从萍水相逢到不离不弃，我们来自五湖四海，在跟随郭先生灭共的路上，我们成了最亲爱的兄弟姐妹。 从2017年郭先生以一己之力挑战中共邪恶政权到2022年遍布梅蒂卡边境的灭共马甲，我们找回了中国人的尊严和勇气，感谢郭先生点亮我们心中的火把，把我们从一个个平凡普通的人变成了灭共的战友🙏🙏❤️❤️
-![img](https://media.gettr.com/group19/origin/2022/03/31/05/6faf7fa9-442d-9442-8117-708a54c59cc8/out.jpg)
-
----
-
 `@miles 3/31/2022 5:04 AM (UTC)`
 
 3/30/2022 Ukraine Rescue: Why would the battlefield pianist Davide Martello risk his life to go to Lviv while bringing the stickers of the New Federal State of China? What is the touching romantic story behind this?<br/><br/>3/30/2022 乌克兰救援连线：为什么战地钢琴家Davide Martello要冒险带着新中国联邦的标志去利沃夫？这背后有什么感人的浪漫故事？<br/>
@@ -156,6 +149,13 @@ PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被
 
 3/30/2022 Ukraine Rescue: Fellow fighter Wen Yao talks about the Polish heroes who went into Ukraine to rescue and fight, and their fearlessness has touched the fellow fighters of the New Federal State of China.<br/><br/>3/30/2022 乌克兰救援连线：文耀战友谈去乌克兰境内参与救助和战斗的波兰勇士，他们的无畏精神感动了新中国联邦的战友们<br/>
 ![img](https://media.gettr.com/group35/getter/2022/03/30/22/05febf11-efd3-a337-ab9d-17f956a4290e/out.jpg)
+
+---
+
+`@miles 3/30/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-30<br/>For English @Gtranslators_1
+![img](https://media.gettr.com/group7/origin/2022/03/30/21/2578b4d2-978b-c833-8aae-c4545e03d352/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

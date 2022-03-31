@@ -2,13 +2,16 @@
 ---
 
 
-## 吉林拖欠方舱医院建筑工人工资，工人最后被自费隔离
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2263674/)
+## 20220330郭文贵大直播 ：前线战友大部分身体康复 救援工作非常辛苦
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2263836/)
 
-03/29/2022 吉林方舱医院民工索要工资，警察威胁抓人。没有要到工资，工人还被要求自费隔离。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
