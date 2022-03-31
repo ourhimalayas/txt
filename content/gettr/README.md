@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 5:11 AM (UTC)`
+
+从素昧平生到生死相依，从萍水相逢到不离不弃，我们来自五湖四海，在跟随郭先生灭共的路上，我们成了最亲爱的兄弟姐妹。 从2017年郭先生以一己之力挑战中共邪恶政权到2022年遍布梅蒂卡边境的灭共马甲，我们找回了中国人的尊严和勇气，感谢郭先生点亮我们心中的火把，把我们从一个个平凡普通的人变成了灭共的战友🙏🙏❤️❤️
+![img](https://media.gettr.com/group19/origin/2022/03/31/05/6faf7fa9-442d-9442-8117-708a54c59cc8/out.jpg)
+
+---
+
 `@miles 3/31/2022 5:04 AM (UTC)`
 
 3/30/2022 Ukraine Rescue: Why would the battlefield pianist Davide Martello risk his life to go to Lviv while bringing the stickers of the New Federal State of China? What is the touching romantic story behind this?<br/><br/>3/30/2022 乌克兰救援连线：为什么战地钢琴家Davide Martello要冒险带着新中国联邦的标志去利沃夫？这背后有什么感人的浪漫故事？<br/>
@@ -149,13 +156,6 @@ There are still many refugees hiding in basements in Ukraine, suffering from foo
 
 【Ukraine Rescue】03/29/22 <br/>ROLF&NFSC Ukraine Humanitarian Rescue Operation is reported by Polish Magazine- Tygodnik Solidarność which was first published over 40 years ago. <br/>The reporter introduces NFSCer in headlines:  We are the new Chinese people who are taking down the evil Chinese Communist Party, and we stand with Ukrainian and Poles! NFSC volunteers set up the largest tent in Medyka and ROLF provides free evacuation buses. In this article, it is also mentioned the Covid is CCP-Virus, which was intentionally unleashed by the CCP as a biological attack upon the world.<br/><br/>【乌克兰救援】03/29/22 <br/>法治基金&新中国联邦乌克兰国际人道救援行动登上波兰当地杂志《团结周刊》，该杂志创刊40余年；新中国联邦志愿者搭建了Medyka最大的帐篷，法治基金提供免费救援巴士；记者用大字介绍新中国联邦人： 我们是消灭中国共产党的新中国人，我们和乌克兰及波兰人民站在一起！并且文中提到了Covid即CCP病毒，是中共蓄意释放，危害全世界的生物武器！
 ![img](https://media.gettr.com/group42/origin/2022/03/30/19/4a5e6091-d30e-314d-5447-d98db9e0332a/out.jpg)
-
----
-
-`@miles 3/30/2022 6:47 PM (UTC)`
-
-新中国联邦战友献给乌克兰人道主义援助所有的义工战友们《红色的流星》<br/><br/>宝宝们在哭啼<br/>爆炸声中开始的回忆<br/>爸爸妈妈在此分离<br/>流离失所又能去哪里<br/>我们向往的自由和安宁 已成了废墟<br/>昨日路过的小树林 遍地尸横的血腥<br/><br/>就算那红色的流星已点燃城市的夜晚<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>我们想要的是和平<br/>没有战争 也没有分离<br/>是谁带来如此厄运<br/>是谁无私呵护着生命<br/>新中国人的正道主义 绝不会放弃<br/>美迪卡的人道小径  我们会守护着你<br/><br/>就算那红色的流星已点燃世界的黑暗<br/>We’ll be here with you no matter what it takes<br/><br/>流离的人啊 停下脚步吧   <br/>喝杯咖啡吧  弥漫着温暖<br/>破碎的心啊 抚平你的伤<br/>相依在帐篷的你我 唱这首歌<br/><br/>流离的人啊 停下脚步吧  <br/>我们想要和平安宁没有分离, 弥漫温暖<br/>破碎的心啊, 勇敢吧，相依在帐篷的你我 唱这首歌
-![img](https://media.gettr.com/group16/origin/2022/03/30/18/32f89444-f6bf-5bf5-ec59-d53909bec33b/out.jpg)
 
 ---
 
