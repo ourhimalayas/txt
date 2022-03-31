@@ -2,37 +2,23 @@
 ---
 
 
-## DC每日热点0331
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2265443/)
+## 援乌营地温馨的一幕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2265514/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/03/929A0539-83F8-428E-B016-2AE8911F049E-scaled.jpeg)
-道琼斯指数 35132.95 ▲0.27%
-纳斯达克指数 14455.27 ▼0.09%
-WTI纽约原油CFD 102.356▼5.01%
-布伦特原油CFD 106.731▼4.19%
-标普50指数 2,490.82▼49.53%
-美元兑人民币 1USD=6.336 RMB
-美元兑港币 1USD=7.831 HKD
-国际黄金 1941.80美元/盎司
-全球CCP病毒感染人数487,541,594例
+**作者、图片提供：文耀**
+**编辑：Candy**
 
-1、台湾国防部长称已设立乌俄战争研究小组为抵抗中共威胁献计
-2、北京“强烈不满”英国高级法官以政局变迁为由辞任香港终审法院职务
-3、中共国未遵守向联合国提交有关向朝鲜提供成品油报告的相关规定
-4、肯尼亚得到与华为相关的中共国通信电缆
-5、乌克兰局势最新动态：俄军对基辅攻击未减 和谈陷入僵局 美乌总统通话 情报显示俄高层内部不和
-6、港府调高违反强检罚则最高可监禁半年 前议员批高压措施无助抗疫
-7、美国向中共国驻美代表阐明对俄制裁措施范围，中企深陷两难
-8、欧盟将在中欧峰会上施压北京 促在乌克兰战争中保持中立
-9、没料及俄罗斯出兵乌克兰 法国军事情报主管将被解职
-10、普京告知朔尔茨天然气仍可用欧元支付
-11、法国大选 新冠检测呈阳性选民被允许去投票所 但建议戴口罩
-12、拜登通话泽伦斯基 再提供5亿美元援助
-13、泽连斯基欧洲各国禁止俄国船只靠港
-14、批评推特不遵守言论自由原则，马斯克要创建新社交媒体平台
-15、200位美议员致函政府 吁印太经济架构纳台湾
-16、由于北京拒绝允许美国官员审查在美上市中企的审计工作，美国证券交易委员会将百度、爱奇艺等中企列入了可能在美退市公司清单
+波兰时间3月31日：今天帐内来了随同父母一起逃难的七八个孩子，最小的才几个月大，疲惫的母亲将孩子放进了我们准备的婴儿床。宝贝稍微睁睁眼，我们的安保马上充当保姆角色。![😄](https://discord.com/assets/626aaed496ac12bbdb68a86b46871a1f.svg) 外面风雨交加，新中国联邦的帐篷内温暖祥和。![🙏](https://discord.com/assets/1904291ab1aa5d14b2adaaff23a578dd.svg)
+![Image](https://media.discordapp.net/attachments/950448401529577502/959099997264183346/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100009444442132/image.png?width=492&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100014662148107/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100020966162543/image.png?width=277&amp;height=369)
+**编者按：***看完以上的文字和图片，不禁令人泪眼朦胧。这个在和平的日子里司空见惯的情景，在战争时期的当下却变成了难得的画面。人们不该为疯狂的独裁者付出这么多的代价，愿战争早日结束！*
+
+***发布：Candy***
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

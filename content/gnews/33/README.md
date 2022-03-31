@@ -2,28 +2,62 @@
 ---
 
 
-## NBA球星坎特计划访台 呼吁世界关注台湾
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2264736/)
+## 文貴大直播 期期有话说
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2265038/)
 
-**撰稿：日本东京方舟农场  Kevin wang**
+撰稿：东京樱花团/保和
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-61.jpg)
+文貴先生进深山，
 
-3月30日，NBA职篮球星埃内斯·坎特·自由（Enes Kanter Freedom）表示，他计划今年夏天访问台湾，并计划举办大型篮球营。坎特还呼吁各界关注台湾，不要让台湾成为下一个乌克兰。
+重大会议高人谈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-388.png)（图片来自中央社）
+灭共之事全布局，
 
-据美国之音报道，球星坎特3月29日在国会山接受美国之音采访时表示，他计划今年夏天访问台湾，希望至少停留一个星期。
+今晚继续直播开。
 
-坎特在采访中表示，现在乌克兰的情况，全世界都团结起来惩罚普京这样的领导人。我希望台湾不会发生这样的情况，我认为台湾必须要被保护，我们应该要尽我们所能，才不会让台湾变成乌克兰一样的结果。”
+俄乌战争又谈判，
 
-报道称，与莫雷因曾公开支持香港民众抗争示威而遭中共封杀的情况类似，坎特为声援新疆、西藏、香港人权议题所付出的代价是成为中共政府封杀的对象，他在NBA的发展也受到了很大的影响，至今仍未获得其他球队签约。但坎特依然选择继续为中国人权议题发声。坎特称这个议题比篮球更大，比你的下一个球鞋合同或下一个NBA合同还大，因为这议题比体育运动还要重大。
+怎样进展嘉宾谈。
 
-据悉，坎特曾在乌克兰战争爆发后在推特上表态支持乌克兰和台湾，并指责“像普京和习近平这样的恶魔是全球安全和自由世界的威胁，俄罗斯和中共想要摧毁民主。
+墙内疫情很严重，
 
-参考链接：
-[https://www.voachinese.com/a/us-nba-kanter-freedom-to-visit-taiwan-20220329/6507401.html](https://www.voachinese.com/a/us-nba-kanter-freedom-to-visit-taiwan-20220329/6507401.html)
+封闭管控灾难生。
 
-总编：老孙
-校对发布：爱放飞
+核酸疫苗在进行，
+
+百姓自杀频发生。
+
+早灭共匪建家园，
+
+祈盼共匪早点完。
+
+喜币场景全面开，
+
+多多流通价值升。
+
+房产违约挨个来，
+
+走向破产一起嗨。
+
+战友齐聚大直播，
+
+同样精彩今晚说。
+
+视频：[https://gettr.com/post/p12mxqibd2a](https://gettr.com/post/p12mxqibd2a)
+
+视频：东京樱花团/俪影
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+
+
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
 
  
 

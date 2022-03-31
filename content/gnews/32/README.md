@@ -2,62 +2,28 @@
 ---
 
 
-## 文貴大直播 期期有话说
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2265038/)
+## 当婊子立牌坊：战争推手欲扮演和平调解人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2265102/)
 
-撰稿：东京樱花团/保和
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/8-61.jpg)
-文貴先生进深山，
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4019.png)图片来源：ITV
+据《华盛顿观察家报》3月31日报道，中国和俄罗斯政府的高级代表在中国举行了自普京总统入侵乌克兰以来最高级别的个人会晤，重申了他们“无限制”的伙伴关系。
 
-重大会议高人谈。
+报道说，这次会晤背景是在包括美国在内的更广泛的多国会议之前举行的，重点是阿富汗问题，因为中国共产党试图将自己塑造成在阿富汗的和平调解人。
 
-灭共之事全布局，
+文章指出，中共国也正试图在俄罗斯对乌克兰的战争中以调解人的身份出现，同时宣传克里姆林宫为军事入侵进行辩护的说法，并将矛头指向了美国和北约。而本月早些时候，美国总统拜登与习近平进行了两个小时的谈话，在此谈话中，中国称其将俄罗斯入侵乌克兰的部分责任归咎于北约，并重申其对台湾的主张。
 
-今晚继续直播开。
+值得注意的是，文章明确指出，中国外交部和国营媒体也与克里姆林宫一起推动关于五角大楼支持的乌克兰生物战实验室的指控，但遭到了美国多次反驳。
 
-俄乌战争又谈判，
+文章报道，美国共和党人希望拜登在推动俄罗斯结束对乌克兰的入侵方面对中国施加更多压力，并向习近平表明，如果他决定进一步帮助普京，后果将不堪设想。
 
-怎样进展嘉宾谈。
+同时，共和党人也在推动拜登采取更多措施，在俄罗斯问题上向中共国施压。
 
-墙内疫情很严重，
+*责编：白夜*
 
-封闭管控灾难生。
+**新闻来源**
 
-核酸疫苗在进行，
-
-百姓自杀频发生。
-
-早灭共匪建家园，
-
-祈盼共匪早点完。
-
-喜币场景全面开，
-
-多多流通价值升。
-
-房产违约挨个来，
-
-走向破产一起嗨。
-
-战友齐聚大直播，
-
-同样精彩今晚说。
-
-视频：[https://gettr.com/post/p12mxqibd2a](https://gettr.com/post/p12mxqibd2a)
-
-视频：东京樱花团/俪影
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-
-
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
-
-
+[‘Peacemaker’ China stands by Russia partnership](https://www.washingtonexaminer.com/policy/foreign/peacemaker-china-stands-by-russia-partnership)
 
  
 
