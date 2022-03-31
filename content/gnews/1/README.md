@@ -2,46 +2,16 @@
 ---
 
 
-## 面对邪恶直击邪恶,对待坏人和恶行必须加以阻止和惩罚
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2261032/)
+## 【粤语配音】2022年3月30日： 人类未来将摆脱能源的束缚
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2261080/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8807.50%EF%BC%89%E9%9D%A2%E5%AF%B9%E9%82%AA%E6%81%B6%E7%9B%B4%E5%87%BB%E9%82%AA%E6%81%B6%2C%E5%AF%B9%E5%BE%85%E5%9D%8F%E4%BA%BA%E5%92%8C%E6%81%B6%E8%A1%8C%E5%BF%85%E9%A1%BB%E5%8A%A0%E4%BB%A5%E9%98%BB%E6%AD%A2%E5%92%8C%E6%83%A9%E7%BD%9A%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
+紐約香草山-香港部
 
-**郭文贵先生：**我们一定记住不要因为你想做好人，而你失去了面对坏人的勇气，因为你想自己永生不死——所谓来到善道轮回，你不再面对这种丑恶和危险。不！只有面对邪恶，直击邪恶，才是最大的善道！
+那么欧洲只有一个问题，解决你的能源，解决你能源唯一的问题就是科技，但是老天来的晚了一点，现在绝对是乌克兰会解决，欧洲、世界能源，为什么？最起码我有五个曾经过去投资的科技公司，已经正在准备把乌克兰的人，列为一个最高级别的录取，甚至只要乌克兰战时一停，全部移居到乌克兰去，乌克兰已经在开始什么？不是要枪了，乌克兰已经准备好人才掠夺计划，而且彻底改变欧洲就是能源和科技，所以欧洲不会再受绑架了
 
-中国人就是给自己的懦弱、自私、冷酷找出太多的借口！包括佛教，、道教，我很不爽的事情就是——你们有地狱、佛教里边有地藏菩萨，为什么不能面对坏人呢？对待坏人、对待这种恶行必须加以阻止和惩罚。
+而且我会告诉大家，不管这场战争发不发生，人类很快，你和我之间这个能源，包括太阳能源，一定是的，人类到这个时候，真的是太阳在发光，真的是感到神的力量，所以说欧洲这一次会在彻底地醒来之后，发现我们不再依靠任何俄罗斯(能源)，包括中东(石油)，中东的石油时代结束了，俄罗斯的天然气时代结束了，欧洲被掐脖子能源时代结束了，人类走向一个非常伟大的光明时刻。
 
-我4天没有喝咖啡了，4天没喝咖啡的感觉你们知道是什么样吗？就是现在我这个样，我今天早上喝了咖啡——咖啡特别香，我突然想起了中岳庙有一句话：得到和失去之间，他就是人生；习惯和习惯改变，就是你的修行。当时我到中岳庙去我不懂，我越来越懂，我每天感恩。
-
-我们习惯了人撒谎，你永远不去纠正他，他就撒谎成了真理。我们只有改变这种熟悉撒谎的环境，我们才能直击那种谎言，放下、改变。
-
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
-
-编辑整理：Jacques；
-
-字幕档制作：兵嫂；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+乌克兰这个战争啊，我从头到尾就说过，灭的就是共产党，严格讲就是美中战争，不要再看任何花里胡哨，不存在任何什么俄乌战争，这个战争已经彻底改变了格局，严格讲就是一个美中的战争，而且一定会打台湾，那么这种情况下你不用担心，美国不是腾不腾出手，早就准备好了第三只手等着拍老共呢，最终的结局就是我说那些结盟、联合，俄乌战争结束，就是共产党结束，整个所谓的邪恶东方邪恶集团瓦解为止，最后很可怜的很悲哀的完蛋，然后人类的文明最重要的就是新中国联邦
 
  
 
