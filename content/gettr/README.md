@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 2:04 AM (UTC)`
+
+【Ukraine Rescue】03/30/2022 From Follow Fighter XiaoxiaoSu: The NFSC Medyka rescue station received one of the oldest refugees to date - an 81-year-old woman who fled from the warfare on a 60 km walking .She came into our tent to wait for her son to drive from Germany . The sight brought tears to the eyes of Follow Fighter WenYao.<br/><br/>【乌克兰救援】03/30/2022，来自小小酥战友： 新中国联邦梅迪卡救援站接待了一位迄今为止最年长的难民 - 一位81岁的老太太徒步60公里逃离战乱，来到我们的大帐蓬等待自己的儿子从德国驱车前来接她。文耀战友当场泪奔。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #rolfrescuehttps<br/><br/>
+![img](https://media.gettr.com/group39/getter/2022/03/31/02/7e561955-627e-3aab-531d-da46551647ba/out.jpg)
+
+---
+
+`@miles 3/31/2022 2:04 AM (UTC)`
+
+
+![img](https://media.gettr.com/group38/origin/2022/03/31/02/8923e2b9-34b9-edd7-213d-a654e4364df0/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 3/31/2022 1:42 AM (UTC)`
 
 3/30/2022 Miles Guo: The trading volume of the Himalaya Coin soars, with the daily over-the-counter trading volume being at least 10 times the trading volume at the Himalaya Exchange! A Russian oligarch who was sanctioned to the point of having no money for ice cream wants to borrow 1 million Himalaya Coins to get by. An Asian bitcoin big shot lamented that Himalaya Coin and Himalaya Pay are the hope of digital currency after visiting the Himalaya Exchange.<br/><br/>3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日；亚洲的比特币大佬参观完喜联储后感慨喜币和H-Pay是数字货币的希望！<br/>
@@ -146,20 +160,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 2022/03/30 非常感谢来自这位战友的设计，请大家在留言区写下你们的建议和反馈. 谢谢🙏🙏🙏🙏
 ![img](https://media.gettr.com/group27/getter/2022/03/30/14/aeae8f40-d87e-924d-6b18-690b113dafdc/955076d24043c45c36f5356095746cb5.jpg)
-
----
-
-`@miles 3/30/2022 2:47 PM (UTC)`
-
-2022/03/30 来自日本樱花农场战友的设计， 请大家在留言区留下你们的宝贵建议🙏🙏🙏🙏
-![img](https://media.gettr.com/group5/getter/2022/03/30/14/50774d07-54ab-d353-7cc5-3f56c54208a6/82d0a4016f96f20c1f6d63204feef3b5.jpg)
-
----
-
-`@miles 3/30/2022 2:44 PM (UTC)`
-
-2022/03/30 来自澳雅农场战友的设计马甲，请大家在留言区留下您们的宝贵建议！谢谢 🙏🙏🙏🙏
-![img](https://media.gettr.com/group21/getter/2022/03/30/14/8e87557b-cddb-2513-b518-a2016c99a70d/3d0eec1bedd21df9f836a87294081dfd.jpg)
 
 ---
 

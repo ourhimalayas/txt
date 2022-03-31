@@ -2,18 +2,10 @@
 ---
 
 
-## 七哥金句：上帝是真的存在
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2260524/)
+## 3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2260571/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句1-1-3-scaled.jpg)
-发布：枫叶红了
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+秘密翻译组-北美组
 
  
 

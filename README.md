@@ -15,53 +15,53 @@
 
 ---
 
-### [串珠644:马斯克一条推文震慑了普习使人类免于核战](/content/gnews/1/README.md)
- ` 郭爆料串珠`
-
-### [3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [秘翻在线：王公公道出了中共彻底与西方文明为敌的愚蠢“国策”](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年3月31日《樱花快报》：中共国外交部高调宣称中俄合作“三个无上限”](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [《共产党统治中国的150个家族》之“李鹏”篇（七）](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [参议院通过《美国竞争法》欲减少对华依赖](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥金句：上帝是真的存在](/content/gnews/7/README.md)
+### [七哥金句：自杀的人不会再有任何来生](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [上海封城：我们要吃饭，我们要自由！](/content/gnews/8/README.md)
+### [七哥金句：灵魂是你走向下世的钥匙](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：万物定律与生死之间的关系](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [小城伊尔平！市长：挡下世界第二大军队进攻](/content/gnews/4/README.md)
  ` 蓝莲花农场`
 
-### [文•贵天成——文贵先生谈“数字银行”（二）](/content/gnews/9/README.md)
+### [串珠644:马斯克一条推文震慑了普习使人类免于核战](/content/gnews/5/README.md)
+ ` 郭爆料串珠`
+
+### [七哥金句：人都怕死](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022年3月31日《樱花快报》：中共国外交部高调宣称中俄合作“三个无上限”](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [参议院通过《美国竞争法》欲减少对华依赖](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [上海封城：我们要吃饭，我们要自由！](/content/gnews/10/README.md)
+ ` 蓝莲花农场`
+
+### [文•贵天成——文贵先生谈“数字银行”（二）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“数字银行”（一）](/content/gnews/10/README.md)
+### [文•贵天成——文贵先生谈“数字银行”（一）](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [数字货币、躺平币去中心化、零成本支付、全球无差别交易](/content/gnews/11/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [20220327文贵大直播：灭习和灭共是什么关系](/content/gnews/12/README.md)
+### [20220327文贵大直播：灭习和灭共是什么关系](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [COVID-19疫苗副作用集萃（2022.3.30）新冠疫苗后月经血崩](/content/gnews/13/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.30）新冠疫苗后月经血崩](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共](/content/gnews/14/README.md)
+### [3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面，中、巴、伊、北朝鲜、白俄罗斯、非洲的几个独裁国家以及欧美日分别作为俄乌的担保国](/content/gnews/15/README.md)
+### [3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面，中、巴、伊、北朝鲜、白俄罗斯、非洲的几个独裁国家以及欧美日分别作为俄乌的担保国](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
-
-### [聚焦：白宫公布拜登的“亿万富翁税”提案](/content/gnews/16/README.md)
- ` 蓝莲花农场`
 
 ### [【G时新闻】澳洲各政治派别不改对华强硬路线](/content/gnews/17/README.md)
  ` G-时新闻`
@@ -117,26 +117,26 @@
 ### [五月花简报（03/30/2022）](/content/gnews/34/README.md)
  ` mayflowertranslate`
 
-### [有声新闻-新西兰财经G乐部2022年3月29日:财经新闻整理](/content/gnews/35/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [马里乌波尔已成废墟，基辅周围俄罗斯部队调动不是撤军](/content/gnews/36/README.md)
+### [马里乌波尔已成废墟，基辅周围俄罗斯部队调动不是撤军](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2022年3月30日:财经新闻整理](/content/gnews/37/README.md)
+### [新西兰财经G乐部2022年3月30日:财经新闻整理](/content/gnews/36/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [俄承诺落空！乌克兰控俄军仍炮击北部城市](/content/gnews/38/README.md)
+### [俄承诺落空！乌克兰控俄军仍炮击北部城市](/content/gnews/37/README.md)
  ` 蓝莲花农场`
 
-### [阿尔伯塔省积极推动数字货币应用](/content/gnews/39/README.md)
+### [阿尔伯塔省积极推动数字货币应用](/content/gnews/38/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄假撤军！乌总参谋部揭诡计：目的是要误导乌军](/content/gnews/40/README.md)
+### [俄假撤军！乌总参谋部揭诡计：目的是要误导乌军](/content/gnews/39/README.md)
  ` 蓝莲花农场`
 
-### [加拿大将致力发展新型核能计划](/content/gnews/41/README.md)
+### [加拿大将致力发展新型核能计划](/content/gnews/40/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [3/30/2022 国际财经快讯：因中共病毒疫情限制措施影响，日本2月零售额5个月来首次下降；乌俄会谈后，亚洲股市加入全球涨势](/content/gnews/41/README.md)
+ ` 秘密翻译组金融团队`
 
 ### [兵源缺乏 俄罗斯招募“真主党”雇佣兵](/content/gnews/42/README.md)
  ` NFSC News`

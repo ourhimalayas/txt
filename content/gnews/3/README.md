@@ -2,26 +2,18 @@
 ---
 
 
-## 秘翻在线：王公公道出了中共彻底与西方文明为敌的愚蠢“国策”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2260570/)
+## 七哥金句：万物定律与生死之间的关系
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2260624/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-42.png)（图片源自本文链接）
-3月31日朝日电视新闻消息：俄罗斯外长拉夫罗夫在乌克兰被入侵后首次访问中国，并与外交部长王毅会面。
-
-拉夫罗夫外长在会谈中表示：俄罗斯正面临国际关系史上的一个重要阶段。我们将与中国和其他同行一起，开创一个多极化、公平和民主的世界秩序。
-
-拉夫罗夫外长坦言：他打算在中共国的配合下，反击西方国家因入侵乌克兰而对俄罗斯越来越多的围剿，包括通过经济制裁。
-
-对此，外交部长王毅说：两国发展关系的意愿更加坚定，推进各领域合作的信念更加坚定。表现出了政府欲对加强中俄关系的积极态度。
-
-据路透社报道，两位外长还谴责目前对俄罗斯实施的经济制裁是 “非法的，而且会适得其反”。
-
-拉夫罗夫外长将于今年晚些时候访问印度。
-
-以上对话表明，对拉夫罗夫外长的，与中共为伍，对抗西方国家之打算的坦言，王毅是积极赞同，跃跃欲试的。这意味着，中共国彻底与西方文明为敌了。
-
-信息源：[ロシア“弾丸”積極外交　中国外相と会談…インドへ（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/745cf5ab4571e6106ede363e4be38b73fd8e74bc)
+整理：雅典娜农场
+![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句3-1-1-scaled.jpg)
+发布：枫叶红了
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
