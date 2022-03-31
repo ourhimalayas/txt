@@ -2,28 +2,51 @@
 ---
 
 
-## 俄乌战局最近消息汇总(3月31日)
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2265270/)
+## 俄罗斯就“战争”描述威胁维基百科
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2265271/)
 
-作者： 文斌
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-截止当地时间3月30日，俄罗斯军队仍未放弃在基辅西部的伊尔平和霍斯托梅尔地区抵抗来自乌克兰军队的反击，为此，其坚持在布卡和内米什耶夫周边修建战壕，并将包括伊斯坎德尔导弹在内的炮火军备部署至与白俄罗斯接壤的乌克兰边境，用以攻下基辅和切尔尼戈夫地区。目前，乌克兰包括马卡里夫和伊尔平在内的基辅西部和北部地区依然遭受着俄军的炮火攻击。但也有消息透露，部分俄罗斯军队正在从基辅西北部的一线战场上撤离，他们或将被重新部署至其他区域。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午1.28.18.png)
-至于基辅东部，切尔尼戈夫市还在俄军的包围和炮击范围内，但苏梅附近的俄罗斯第一近卫坦克军的部分队伍正在向东南方转移，而这一举动意在增援位于伊久姆和卡玛尼安卡附近的俄军。据悉，转移部队和俄罗斯第20集团军的部分人员正集结在哈尔科夫东南方的斯洛维扬斯克地区，这里，俄乌双方的激战还在继续。
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-46.png)图片来源：ishare.ifeng.com
 
-另据乌克兰方面的消息显示，马里乌波尔市及其周边地区的战况依旧焦灼，当下，俄军正在试图以大规模的牺牲换取该地的沦陷。但俄罗斯在补充兵员和装备方面仍然举步维艰：据乌克兰总参谋部披露，俄军从沃罗涅日州博古查尔提取的存储装备中，有40%都无法使用。同时，太平洋舰队中的大量士兵明确表示拒绝加入这场战争，这也导致俄军当前可以调动的兵力甚至不足一个营。然而，包括美国志愿者在内的多国特种作战士兵组成的乌克兰外籍军团阿尔法一队已经参与了伊尔平的解放行动。
+俄罗斯官方互联网监管机构 Roskomnadzor 要求维基百科删除它所说的，关于俄罗斯在乌克兰的“特别行动”的虚假信息。
 
-更多消息，请持续关注本节目的后续报道。
+俄罗斯互联网监管机构尤其感到不安的是，维基百科的条目很短，与克里姆林宫的官方说法有出入。
 
-参考链接：[Ukraine Larest news on live map](https://liveuamap.com/)
+例如，维基百科条目描述了俄罗斯的“入侵”，而克里姆林宫的官方说法是为“和平目的”的“军事行动”，《欧洲动态》(Euractiv)[报道](https://www.euractiv.com/section/digital/news/russia-threatens-to-block-access-to-wikipedia/)。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/March-1-4.png)
+该条目中引用的伤亡人数也比莫斯科的官方数字高得多。
 
-编辑：Irene木木
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+Roskomnadzor 给维基百科的通知强调，它需要立即删除虚假内容，它说这些内容的目的是误导俄罗斯用户。
+
+这是 Roskomnadzor 就这一问题向维基百科发出的第二次警告，此前在本月早些时候也曾向其提出过要求。
+
+据 Slate [报道](https://slate.com/technology/2022/03/russia-wikipedia-download-kiwix.html)，这是在一名俄罗斯维基百科顶级编辑因传播“虚假的反俄内容”而被捕之后发生的。
+
+本月早些时候，俄罗斯总统弗拉基米尔·普京（Vladimir Putin）颁布了一项法律，对那些叙述与克里姆林宫不同的记者判处15年监禁；莫斯科还在国内禁止了 Facebook 和 Instagram。
+
+作为抗议，CNN、BBC 和其他机构暂停了克里姆林宫的广播，而微软、苹果和谷歌则取消了他们的服务。
+
+在对维基百科进行威胁的同时，Slate 报道说，数据表明俄罗斯人成群结队地下载维基百科；事实上，在过去的一周里，俄罗斯以很大的优势成为下载量最大的国家。
+
+在2月24日入侵乌克兰之前，俄罗斯对维基百科的下载量很少突破前十名。
+
+**新闻来源：**[newsmax.com] [Russia Threatens Wikipedia Over ‘War’ Description](https://www.newsmax.com/newsfront/russia-wikipedia-ukraine/2022/03/30/id/1063563/) |发布时间：2022年03月30日
+
+* * *
+
+审核：文乐
+校对：花羽
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

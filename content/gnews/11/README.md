@@ -2,34 +2,28 @@
 ---
 
 
-## 【G时新闻】加拿大联邦政府职员将全面加薪
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2265729/)
+## 安大略省大幅提高外国买家购房税
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2265776/)
 
-**播  报：加拿大温哥华扬帆农场 -【七彩虹】**
+加拿大温哥华扬帆农场-青青, 文明(添草灭共)
 
-**视频制作：加拿大温哥华扬帆农场 -【文所未闻】**
-![此图像的alt属性为空；文件名为image-3994.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-3994.png)
-大家好！今天的主题是加拿大联邦政府职员将全面加薪！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-152.jpg)
 
-据自媒体反向信号3月30日报道，总理特鲁多不顾大多数加拿大人的反对，在提高碳税的同时，不断给自己及同僚加薪添利。
+图片来源：ctvnews
+据加拿大【ctv新闻】3月29日报道，安大略省政府当日公布了一项税收新政策，从3月30日起，对在该省购房的外国买家征收［非居民投机税］的税率从15%提高到20%，同时将征税范围从以前的大多伦多、安大略湖西岸地区扩大到全省范围。
 
-据悉，从4月1日起，特鲁多年薪将增至近38万加元，而其所有内阁部长们都加薪1.6万元；议员们则加薪1.1万元。然而，在全国53万联邦和省政府雇员加薪的同时，当局却加紧对中小企业的税收限制。
+报道称，此举意在控制该省外国买家的房地产投机行为，遏制房价上涨速度，保障本地居民的购房需求。新政实施后，买房的国际留学生和在安大略省工作的外国公民将不能再享受退税。
 
-加拿大[纳税人联盟]的最新民调显示，超过80%的加拿大人反对政客们在疫情期间的第三次加薪。对此，该联盟负责人称：民众在遭受瘟疫、减薪、失业和商业损失时，代表人民的议员们却不断为自己牟取福利，并使整个政府机构都充斥着官僚和政客的经济利益。
+据悉，该省整体房价10年来增幅近两倍，远超过收入增长水平。
+其中大多伦多地区平均价格超过130万元，较上年增长了28%。
+2020年统计数据显示该省所有住宅物业中，外国业主占有比率2.2%，其中多伦多的独栋屋和公寓第的外国业主分别达到3.8%和7%。
 
-视频链接：[https://gettr.com/post/p12v2z0b92f](https://gettr.com/post/p12v2z0b92f)
+新闻来源：[https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868](https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868)
 
-上传：文莱
-![此图像的alt属性为空；文件名为image-3994.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-3994.png)
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+编辑、上传：月亮之上
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
