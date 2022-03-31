@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 12:30 AM (UTC)`
+
+2022.03.30 晚 《新中国联邦新闻》乌克兰称掌握俄罗斯使用集束炸弹证据； 欧盟四国再驱逐43名俄外交官
+![img](https://media.gettr.com/group44/origin/2022/03/31/00/33062b11-0f62-48c1-e611-94779aea26b9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/30/2022 11:49 PM (UTC)`
 
 3/30/2022 Miles Guo: The essence of the Russia-Ukraine war is the war between the CCP and the US, and the CCP is certainly going to invade Taiwan. The US already got an extra hand to take action against the CCP. The Russia-Ukraine war will be ended with the demise of the CCP and its Eastern evil alliance.<br/><br/>3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共；俄乌之战将以中共及其东方邪恶集团的灭亡而结束<br/><br/><br/>
@@ -152,13 +159,6 @@ Himalaya Washington DC's livestream 2022-03-30
 `@miles 3/30/2022 2:25 PM (UTC)`
 
 <br/>3月30号：尊敬的战友们好。【So bad…跟着共产党走进火葬场，所有和吴征合作的人，没有一个有好下场的。】<br/><br/>https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/
-
----
-
-`@miles 3/30/2022 1:00 PM (UTC)`
-
-
-![img](https://media.gettr.com/group25/origin/2022/03/30/12/f7e8c641-846b-d46c-7343-8682b29d2b18/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

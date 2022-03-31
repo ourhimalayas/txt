@@ -2,14 +2,12 @@
 ---
 
 
-## 飞机票白菜价
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2259503/)
+## 五月花简报（03/30/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2259555/)
 
 编辑：波士顿五月花—-思澈
 
-宁吃78元的白菜，不坐有去无回的单程白菜价机票。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/68C05A08-6AFE-4287-92E9-7787ED513DA2.jpeg)
-有生之年看到了真的白菜价飞机票，到了上海落地后就地隔离，隔离自付价格就不是白菜价了。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/65B5D0D3-77A1-4191-BC4F-E2A5A786E7D1.jpeg)
 
 发布：思澈
 

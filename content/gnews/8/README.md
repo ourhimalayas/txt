@@ -2,46 +2,45 @@
 ---
 
 
-## 辉瑞被判公布疫苗1300种症状和全人类打过疫苗的一大半
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2260264/)
+## 中共作恶引发排华浪潮，海外华人付出惨痛代价
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2260304/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8801.50%EF%BC%89%E8%BE%89%E7%91%9E%E8%A2%AB%E5%88%A4%E5%85%AC%E5%B8%83%E7%96%AB%E8%8B%971300%E7%A7%8D%E7%97%87%E7%8A%B6%E5%92%8C%E5%85%A8%E4%BA%BA%E7%B1%BB%E6%89%93%E8%BF%87%E7%96%AB%E8%8B%97%E7%9A%84%E4%B8%80%E5%A4%A7%E5%8D%8A%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a1hxr-ncynl-8.jpg)
+中共自篡政以来，因边境争端、输出革命、干涉别国内政、引发印度、越南、马来西亚和印尼等国出现极为严重的排华示威和事件，造成数以百万计海外华人被残忍杀害，中共官方对此保持沉默，只字不提。
 
-**郭文贵先生：**我们新中国联邦今天最大的喜讯是什么？大家要看到，最大的喜讯就是没有打疫苗！对不起我敏感。按照路大脑袋逻辑这是宇伦搞得我打喷嚏，永远怪别人——九指妖“我有啥事都是你们的事”，九指妖现在都怪了“我当年切指头就是因为新中国联邦”，“我现在身体不好，心情不好都是因为你们到前线救援”，哇噻，这九指妖简直是个魔鬼呀，妖精。
+改革开放以后，中共精心布局，对内实施暴政，对西藏、新疆种族屠杀，武力胁迫台湾，残酷镇压香港，对外进行蓝金黄，偷窃知识产权和先进科学技术，扰乱国际金融市场和秩序，偷盗国外养老基金，制造一带一路陷阱，造成海外华人生存和发展困境。更为甚者，中共2019年制造并释放病毒，并于疫情爆发初期买断世界防疫装备，收买世卫组织，阻止病毒溯源，造成COVID-19疫情全球扩散，妄图击垮世界政治和经济秩序。
 
-所以说大家看到没打疫苗这件事情有多大兄弟姐妹们！文曦你们来自香草山医疗部，宇伦你们知道咱没打苗。对于我们每个人没打苗已经超过了你经历一万次这乌克兰战争，为什么？乌克兰是4500万人，现在死了多少人？是吧，按照这个比例的话，我们今天打苗，战友们，过去这一周我最大的感受就是真的是太恐怖了。
+中共滔天恶行严重威胁海外华人的生命安全。郭文贵先生早在2020年就不断郑告所有海外华人，中共恶性累累祸及海外华人，会在世界掀起排华反华浪潮。反华最严重国家和地区包括美国西部、日本、印尼、俄罗斯以及非洲、东南亚和东欧等地。
 
-我是3月2号知道的这个判决会这样下来，当时说是1300种被公布的整个的症状，疫苗的症状，我当时因为咱们爆料革命坚持唯真不破，再一个咱不让人家抓把柄我不提前说，再一个乌克兰战争。但是当这个法官真的把这判出来，辉瑞制药真的把这个疫苗的东西放出来的时候，七哥也吓到了，我真的是把我吓到了。这个太可怕了！
+以美国为例，自COVID-19大流行以来，在2020-03-19至2021-09-30期间，共有10370起针对亚裔美国人和太平洋岛民（AAPI）的仇恨事件，近21.2%的亚裔美国人在一年半中经历过仇恨事件。其中2020年发生4599次，2021年发生5771次，增长率为25%。2020年和2021年皮尤研究中心调查也显示各国对中国的正面看法降低，负面看法增加的趋势。
 
-当你真的面对人类上一大半人打了这种毒的疫苗、要命的疫苗的时候，你们想过吗？我们战友在这儿直播，如果我们大家都打了疫苗，很有可能下次直播就少一个，不是少在镜头里，是少在世界上。
+在美所有仇恨事件族群中，华人报告的仇恨事件排名第一，为42.7% 。2021 年美国针对亚裔的仇恨犯罪增加339%，大多数来自洛杉矶和纽约。洛杉矶成为本世纪美国城市中仇恨犯罪最多的城市，纽约针对亚裔的仇恨犯罪案件数量从30起增至133起，上升343% 。旧金山针对亚裔的仇恨犯罪2021年从9起增至60起，增加5.7倍。绝大多数海外华人不是中共党员，却因受中共牵连而无辜受害。
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+随着北京冬奥会中共造假愚弄世界的事实公众于世，排华趋势至今没有减缓的迹象。其中女性受害者最多，约占62%，而青少年和老年人约占16%。2022年刚刚开始，蓄意伤害华人事件已经接连发生。1月15日纽约一名亚裔女性被推落地铁轨道后身亡。2月9日西雅图华裔女性被棒球棒袭击导致头骨骨折。2月11日加州奥克兰华埠9街富兴中心正门口发生一起袭击华裔长者事件。后面还会发生多少起华裔受伤害事件？为何中共作恶，付出代价的总是海外华人？
 
-编辑整理：Jacques；
+俄乌战争以来，中共联俄与世界对抗。中共不仅提供军事和经济援助，媒体和官方都拒绝谴责俄侵略行为，遭到国际社会的唾弃和指责，对中共各种制裁已经显现。中共置国民生命于不顾，不救助国民还阻扰污蔑新中国联邦和法治基金的人道救援。所有华人再次沦为舆论众矢之的，排华浪潮正汹涌而来。
 
-字幕档制作：兵嫂；
+每当各国反华浪潮袭来，海外华人都孤立无援，中共丝毫不顾海外华人的死活，同时官方压制消息，甚至利用反华事件来宣扬中共国的稳定。数以百万计海外华人被残害，为何无人为他们发声？为何世界很少提及？为何墙内战狼和粉红们觉得海外华人活该？
 
-视频制作及上传：Cindy；
+每一个海外华人，都要警醒并认识到，不推翻中共，海外华人永远都被绑在中共的战车上走向深渊。新中国联邦和爆料革命5年来一直致力于推翻中共，揭露中共假丑恶罪行，不断传播病毒疫苗真相，积极告诉世界中共≠中国人。为保护自己家园，为孩子拥有更好的未来，海外华人需要把自己和中共区分开，并且必须推翻中共终结排华悲剧！
 
-G-News发布：海贼王M.D.LUFFY；
+***参考资料：***
+1，[https://www.bbc.com/zhongwen/simp/chinese-news-47946596](https://www.bbc.com/zhongwen/simp/chinese-news-47946596)
+2，[https://www.bbc.com/zhongwen/simp/world/2014/05/140515\_vietnam\_antichina](https://www.bbc.com/zhongwen/simp/world/2014/05/140515_vietnam_antichina)
+3, [https://zh.wikipedia.org/wiki/%E9%BB%91%E8%89%B2%E4%BA%94%E6%9C%88%E6%9A%B4%E5%8A%A8](https://zh.wikipedia.org/wiki/%E9%BB%91%E8%89%B2%E4%BA%94%E6%9C%88%E6%9A%B4%E5%8A%A8)
+4，[https://stopaapihate.org/wp-content/uploads/2021/11/21-SAH-NationalReport2-v2.pdf](https://stopaapihate.org/wp-content/uploads/2021/11/21-SAH-NationalReport2-v2.pdf)
+5，[https://zh.wikipedia.org/wiki/%E7%BA%A2%E8%89%B2%E9%AB%98%E6%A3%89%E5%A4%A7%E5%B1%A0%E6%9D%80](https://zh.wikipedia.org/wiki/%E7%BA%A2%E8%89%B2%E9%AB%98%E6%A3%89%E5%A4%A7%E5%B1%A0%E6%9D%80)
+6，[https://news.ifeng.com/history/1/midang/200902/0219\_2664\_1023456.shtml](https://news.ifeng.com/history/1/midang/200902/0219_2664_1023456.shtml)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+***文章观点仅代表作者观点，与gnews平台无关***
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+作者：洛杉矶盘古农场 — Poplar
+编辑：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

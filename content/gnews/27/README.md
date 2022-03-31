@@ -2,44 +2,40 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2259662/)
+## 普京被军方的顾问所误导
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2259953/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-
-您若想了解全文报导内容，请点击标题链接
-
-1.[美国外科医生、卫生与公众服务部唆使推特传播病毒误导信息，遭到起诉](https://childrenshealthdefense.org/defender/violated-first-amendment-twitter-censor-covid-misinformation/)
-
-据《捍卫者》2022年3月29日电，新公民自由联盟（NCLA）于3月24日在美国俄亥俄州南区地区法院哥伦布分院对外科医生维韦克·穆尔西博士和HHS部长泽维尔·贝塞拉提出诉讼，大致内容：由于美国外科医生和HHS已唆使包括推特在内的社交媒体平台，审查有关Covid-19的所谓“误导信息”而导致推特遭到封禁，这是违宪的
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3864-edited.png)
-
-2. [CDC：50岁及以上的成年人需要额外打Covid-19疫苗](https://www.politico.com/news/2022/03/29/fda-additional-booster-pfizer-moderna-covid-vaccine-00021248)
-
-据《政治报》2022年3月29日电，美国CDC建议，所有50岁以上的成年人和12岁及以上免疫力低下的儿童在周二（29日）需要打额外“安全”的mRNA加强针；美国政府授权第二次加强针的决定是基于以色列的数据，那里大约有70万成年人接受了辉瑞与Moderna疫苗的两剂加强针；4月6日举行的疫苗咨询委员会会议上将讨论是否会让更多人接种疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3876-edited.png)
-3. [免费的新冠测试和治疗对没有保险的人，不再开放](https://www.npr.org/sections/health-shots/2022/03/29/1089355997/free-covid-tests-and-treatments-no-longer-free-for-uninsured-as-funding-runs-out)
-
-据《NPR》2022年3月29日电，卫生和公共服务部长泽维尔·贝塞拉（Xavier Becerra）警告说，治疗新冠的单克隆抗体治疗药物与免费新冠测试资金受到大规模削减，并希望美国立法者为中共病毒救济再拨出225亿美元来减少医院的压力；美国的新冠感染数字正在下降（每天700人死亡），但我们不知道未来半年的事。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3877-edited.png)
-4. [医学记者：太多的父母在孩子受到伤害后，才发现疫苗的危险性](https://childrenshealthdefense.org/defender/chd-tv-hooker-dangers-of-vaccines-after-child-harmed/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=4776dc24-2ef9-479a-9b4b-16eeed4239c6) 据《捍卫者》2022年3月28日电，ThinkTwice全球疫苗研究所的主任米勒（Neil Z. Miller）在他妻子怀孕时，开始进行接种和未接种疫苗的儿童比较研究，并指出在孩子未出生就已接种疫苗的父母，往往还生孩子后才发现疫苗对儿童的危险性；婴儿接种中共病毒疫苗后出现不应发生的集中时间死亡（7天内死亡），而医疗机构正在掩盖数据
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3878.png)
-5. [妇女在打辉瑞中共疫苗后死于罕见的脑部疾病](https://childrenshealthdefense.org/defender/exclusive-interview-woman-dies-rare-brain-disorder-after-pfizer-shot/)
-
-据《捍卫者》2022年3月28日电，密苏里州60岁健康女性珍妮弗·迪森·斯普拉格（Jennifer Deason Sprague）于去年9月接种第二剂辉瑞中共病毒疫苗后，不幸在2月21日因克雅氏病（CJD）而去世；美国医院无法给予她任何帮助，神经科医生怀疑她患有CJD，而研究已发现这与辉瑞公司的疫苗（朊病毒蛋白）存在潜在联系；最终只能安乐死
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3666-edited-1.png)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3.jpeg)
+#### 选材/编译：Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16486736681.png)timeofindia.com
 
 
+据3月30日路透社报道，白宫和欧洲官员周三表示，美国情报官员已经确定，俄罗斯总统弗拉基米尔·普京的顾问正在错误地向他提供有关俄罗斯军队在乌克兰战事的信息。
+
+白宫通讯主管，凯特·贝丁菲尔德（Kate Bedingfield）在一次新闻发布会上告诉记者：“我们有消息称，普京感觉受到了俄罗斯军方的误导，这导致普京与其军方领导人之间，持续存在紧张的关系”。他们太害怕了，不敢告诉他乌克兰战争的进展有多糟糕，西方制裁的破坏性有多大。
+
+俄罗斯2月24日对其南部邻国的入侵在许多方面都被乌克兰军队的顽强抵抗所阻止。尽管平民被困在被围困的城市中，乌克兰军队还是夺回了领土。贝丁菲尔德说，美国现在公开这一信息是为了表明 “这对俄罗斯来说是一个战略错误”。
+
+华盛顿决定更公开地分享其情报，这反映了它自战争开始前就一直奉行的战略。另一位美国官员说，在这种情况下，这也可能使普京的计划复杂化，他可能会让普京重新考虑谁可以被信任。
+
+一名欧洲高级外交官表示，美国的评估符合欧洲的想法。这位外交官说，普京认为事情进展得 “比实际情况好”。这就是雇佣唯唯诺诺的下属的结果。
+
+两名欧洲外交官说，俄罗斯应征入伍者被告知他们正在参加军事演习，但在入侵前必须签署一份延长其职责的文件。“他们受到误导，缺乏训练，来到乌克兰后，发现那里的老妇人像她们的祖母一样，大声告诉她们回家”。
+
+这位欧洲高级外交官说，目前没有迹象表明，局势可能会在俄罗斯军队中引发叛乱，但局势 “不可预测”，西方列强 “希望那些对现实不满的人站出来会发声”。
+
+长期以来，普京在俄罗斯之外一直被视为像一座孤岛，周围的官员并不总是告诉他真相。美国官员公开表示，2019冠状病毒大流行的加剧，可能是普京将自己隔离于现实之外的原因之一。这可能带给俄罗斯总统不切实际的观点，即他错误的认为会迅速地拿下乌克兰。
+
+军事分析人士说，俄罗斯重新制定了在乌克兰的战争目标，这可能会使普京更容易宣称自己赢得了挽回面子的胜利，尽管他的军队在一场悲惨的战役中遭受了屈辱性的挫折。
+
+周三，俄罗斯军队轰炸了首都基辅郊区和乌克兰北部被围困的城市切尔尼希夫。一天前，俄罗斯承诺缩减在这两个城市的军事行动，西方认为这是遭受重大损失的入侵者重新集结的一种策略。
+
+俄罗斯表示，它正在开展一项 “特别行动”，以解除邻国的武装并使其 “非殖民化”。西方国家称莫斯科发动了无端入侵。
+
+所有独裁者都不会听到真话，尤其是即将失败的时候。原因在于他们外强中干，不敢面对对外失败，只能拿身边的人泄愤。一旦他们知道自己即将灭亡时，他们会表现得尤为残暴，以此掩盖对死亡的恐惧。我们看到，东方地平线的尽头，两颗邪恶的黑太阳正在消失！
+
+*责编：白夜*
+
+[原文链接](https://www.reuters.com/world/putin-advisers-too-afraid-tell-him-truth-ukraine-us-official-2022-03-30/)
 
  
 
