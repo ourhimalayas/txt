@@ -2,44 +2,30 @@
 ---
 
 
-## 新中国联邦&amp;法治基金的乌克兰大救援像莲花台开在当地
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2262667/)
+## 澳雅播报《午间灭共》——中国人不该放弃面对真相的本能
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2262689/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8822.50%EF%BC%89%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E3%80%81%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91%E7%9A%84%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E6%95%91%E6%8F%B4%E5%83%8F%E8%8E%B2%E8%8A%B1%E5%8F%B0%E5%BC%80%E5%9C%A8%E5%BD%93%E5%9C%B0%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:f)
+作者：金金
+编辑：Kelly
 
-**郭文贵先生：**哇噻！今天你们俩一出现镜头吓我一大跳，我不知道你俩今天有这个节目。今天小Sarah真美，大卫兄弟真帅，你俩这个形象一出来，我希望中国人能看到新中国联邦人中国人应该是长的你俩这样的，男的女的都这样，咱又无苗，哇噻，咱们就成为新人类，你们真的是辛苦了！你们代表了真的是中国人的未来和形象，兄弟、你们的行动力，你们的勇气，你们的正义，你们的一切都代表着伟大的中国人，太好啦！衷心地感谢！千万注意安全！
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/7cc5a67882a960a1.png)图片来源：雅典娜设计组
 
-你们说说现在现场，现在要来的这些大巴，我从咱群里看到我们这大巴是唯一一个中国人到前线救人的，而且是不管是中国人、乌克兰人，哪国人都救，而且你们救了美国的海军的退伍军人等等等，学生。小飞象、小飞侠，还有文耀、文科、文戈七雄、阿丙，整个你们全面协调，整个就特别特别的棒！兄弟姐妹们你们真的是创造了传奇。
 
-说一说现在你们最大的感受。现在我们在现场看到的隐约的当地对中国人的这种反感，还有一个我们新中国联邦遭受的老天的保佑，一次又一次奇迹；以及当地政府要对我们的整个的欢迎和我们在现场的像鲜花一样、像一个莲花台一样开在了当地，给大家带来的希望，请大家说说，谢谢！
+邪恶的中国共产党用他们的虚假谎言对人民洗脑了七十多年，让人民相信党是伟大的、党是为人民服务的，他们成功了，他们更成功的是用无神论，让人们尽情作恶，贪污腐败，人与人之间互害，其实他们手段并不高明。
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+有个朋友跟我聊过她妹妹很小的时候问她：“人是猴子变的，现在的猴子怎么不变了？”她回答说：“不知道。”我也跟我的学生讨论过，大多数学生不相信教科书上说的人是猴子变的。而很多教师照本宣科教育孩子，把孩子引入歧途，其实教师本身就在歧途上。中国共产党是反对上帝的组织，他们告诉民众这个世界是没有神的，因为民众如果相信有神，他们就会敬畏神、敬畏天地、敬畏一花一草一木、敬畏生命，人与人之间就会友爱，与动物和谐相处。而邪恶的中共，需要的是人与人之间的仇恨，对动物的杀戮，让民众之间相互怀疑、提防、嫉妒甚至憎恶，失去爱的本能。中共不需要家庭和谐、社会和谐。
 
-编辑整理：Jacques；
+网络时代人们还是有机会接触到真相，但因为被洗脑多年，很多民众失去了思考能力，更愿意过着有吃有喝、猪狗似的生活，而不想去了解真相。你告诉他们真相，他们会说你关心这些干嘛，把自己的日子过过好，似乎别人日子比他差似的。
 
-字幕档制作：兵嫂；
+有网友说过，那些追求公平公正、追求尊严和自由的人经济条件都不差。无论是要求公布官员财产被判刑刘艳丽，还是在武汉调查疫情真相被判刑的张展，以及许许多多这样的正义之士，新中国联邦人更是如此。我们不是陈胜、吴广领导的一群去做苦役的农民，我们是率先醒来的一群好人。郭文贵先生在大直播说：“我爱中国人！”这一句话，让我泪流满面，就如神把他的爱子耶稣基督赐给我们一样，愿我们人人悔改得救，而不愿一人沉沦。我们愿跟随郭先生唤醒更多的好人。好人越多，勇敢的人越多，这个世界才越有希望。希望我们的亲人、同胞快快醒来，勇敢面对真相，不再过那种猪狗似的生活。
 
-视频制作及上传：Cindy；
+发布：tianzhihuan
 
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,24 +2,26 @@
 ---
 
 
-## 中日财经爆┃百度、爱奇艺等五家公司被美国SEC列入退市风险名单
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262478/)
+## 中日财经爆┃中国国航去年巨亏166亿 并运送中共病毒疫苗641吨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262500/)
 
 撰稿：东京樱花团/peterwong
 
-美国证监会（SEC）3月31日将百度、爱奇艺等五家公司列入有退市风险的相关发行人暂定名单，并将百济神州等五家第一批进入暂定退市名单的公司转入确定名单。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F6e471d18-bc6b-4dfd-a5aa-489ecd8240b0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2Fddb097f8-41bd-41c9-916e-713ea4035d8d&amp;tbnid=EHnbus7AacBtwM&amp;vet=12ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ..i&amp;docid=gc6TBW1sfl4A-M&amp;w=2400&amp;h=1350&amp;q=sec&amp;ved=2ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ)
-根据美国SEC网站的最新披露，百度、爱奇艺、CASI制药、富途与总部位于台湾新北市的诺斯拉（Nocera）可在4月20日前提交证据申诉。
+中国国航3月30日公布，2021年录得净亏损166.4亿元人民币，较上年的亏损144亿元扩大，并称去年运输中共病毒疫苗达641吨。
 
-上周SEC将中国社交媒体平台新浪微博列入暂定名单。截至目前，暂定名单中共六家公司。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片7-13.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnewsin.us%2Fwp-content%2Fuploads%2F2020%2F09%2FScreen-Shot-2020-09-24-at-9.32.31-PM-1024x589.png&amp;imgrefurl=https%3A%2F%2Fnewsin.us%2F%25E4%25B8%25AD%25E5%259B%25BD%25E5%259B%25BD%25E8%2588%25AA%25E5%25AE%25A2%25E6%259C%25BA%25E4%25B8%258A%25E6%259C%2589%25E4%25B9%2598%25E5%25AE%25A2%25E8%2587%25AA%25E6%259D%2580%25E8%25BA%25AB%25E4%25BA%25A1%2F&amp;tbnid=NZBkJ61q3eAgPM&amp;vet=12ahUKEwiI6dys9e_2AhW0SkEAHfkvA2sQMygFegUIARDDAQ..i&amp;docid=Q4qBLjKBlEJlZM&amp;w=1024&amp;h=589&amp;q=%E4%B8%AD%E5%9B%BD%E5%9B%BD%E8%88%AA&amp;hl=zh-CN&amp;ved=2ahUKEwiI6dys9e_2AhW0SkEAHfkvA2sQMygFegUIARDDAQ)
 
-百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药三周前成为首批五家因为《外国公司问责法》而进入被识别清单的公司，申诉截止日期为3月29日。但SEC网站显示，该五家企业已从暂定名单进入确定名单。
+刊登在上交所网站的年报显示，该公司去年营收为745.3亿元，同比增长7.2%。其中客运收入583.17亿元，同比增加25.9亿元；货邮运输收入111.1亿元，同比增加25.6亿元。
 
-美国公众公司会计监督委员会(PCAOB)上周四表示，将继续与中国监管机构进行接触，以获取审计报告记录，但目前尚不清楚中共国政府是否会按照美国新上市法律的要求批准美方获得这些记录。最近媒体对协议即将达成的猜测“为时过早”。
+成本方面，中国国航2021年营业成本为858.4亿元，同比增13.5%。受航油价格及用油量上涨的综合影响，航空油料成本同比增近四成。
+
+“2021年，受新冠疫情影响，全球航空业形势依然严峻。”中国国航表示，2021-2022年是行业的恢复期和积蓄期，行业运力投放增速有所放缓，但有利于缓解部分国际市场飞机转投国内，带来的短期运力过剩压力。
+
+该公司并称，将完善疫情防控机制，全力保证对外交往“空中桥梁”畅通。报告期内，中国国航执行客机货班1.6万班；通过冷链运输服务系统，运输中共病毒疫苗（新冠疫苗）641吨。
 
 消息来源:
 
-[美国证监会将百度等五家公司列入退市风险暂定名单 百济神州等转入确定名单（更新版）](https://cn.reuters.com/article/usa-sec-chinese-companies-lists-0331-thu-idCNKCS2LS05Z?il=0)
+[中国国航去年净亏同比扩大至166亿元 受疫情散发、油价上涨等拖累](https://cn.reuters.com/article/air-china-loss-0330-wedn-idCNKCS2LS00P?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

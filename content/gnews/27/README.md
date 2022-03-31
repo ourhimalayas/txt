@@ -2,26 +2,30 @@
 ---
 
 
-## 中日财经爆┃俄罗斯鼓励“水货”替代进口正品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262476/)
+## 中日财经爆┃百度、爱奇艺等五家公司被美国SEC列入退市风险名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262478/)
 
 撰稿：东京樱花团/peterwong
 
-俄罗斯总理米舒斯京(Mikhail Mishustin) 3月30日表示，俄罗斯已授权零售商在没有商标所有者许可的情况下从国外进口产品。此前众多国际品牌因俄罗斯入侵乌克兰而停止在俄罗斯销售或向俄罗斯出口产品。
+美国证监会（SEC）3月31日将百度、爱奇艺等五家公司列入有退市风险的相关发行人暂定名单，并将百济神州等五家第一批进入暂定退市名单的公司转入确定名单。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F6e471d18-bc6b-4dfd-a5aa-489ecd8240b0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2Fddb097f8-41bd-41c9-916e-713ea4035d8d&amp;tbnid=EHnbus7AacBtwM&amp;vet=12ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ..i&amp;docid=gc6TBW1sfl4A-M&amp;w=2400&amp;h=1350&amp;q=sec&amp;ved=2ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ)
+根据美国SEC网站的最新披露，百度、爱奇艺、CASI制药、富途与总部位于台湾新北市的诺斯拉（Nocera）可在4月20日前提交证据申诉。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-21.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic.liupan.net%2Fpic%2Fcar%2F2016-02-11%2Fe41128a767309d11470a1896851dbae9.jpg&amp;imgrefurl=https%3A%2F%2Fwww.99pic.com%2Fpic%2F2371.html&amp;tbnid=H4jrJMzcrfaUhM&amp;vet=12ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ..i&amp;docid=7_ns-FNEM5ti3M&amp;w=280&amp;h=192&amp;q=%E8%B4%A7%E8%BD%AE%20%E4%BF%AF%E8%A7%86&amp;ved=2ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ#imgrc=PYqJjEtWzj4wbM&amp;imgdii=9WP9vwcKjduDDM)
+上周SEC将中国社交媒体平台新浪微博列入暂定名单。截至目前，暂定名单中共六家公司。
 
-由于西方的经济制裁，以及H&M、苹果和耐克等公司限制在俄罗斯的活动的决定，俄罗斯的零售业已遭重创。
+百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药三周前成为首批五家因为《外国公司问责法》而进入被识别清单的公司，申诉截止日期为3月29日。但SEC网站显示，该五家企业已从暂定名单进入确定名单。
 
-米舒斯京在电视转播的政府会议上说，需要“平行进口”，以确保某些商品可以继续运往俄罗斯，哪些商品可以以这种方式进口到俄罗斯，将由工业和贸易部决定。
+美国公众公司会计监督委员会(PCAOB)上周四表示，将继续与中国监管机构进行接触，以获取审计报告记录，但目前尚不清楚中共国政府是否会按照美国新上市法律的要求批准美方获得这些记录。最近媒体对协议即将达成的猜测“为时过早”。
 
 消息来源:
 
-[俄罗斯批准在无品牌许可情况下“平行进口” 此前一些国际品牌停止在俄销售](https://cn.reuters.com/article/russia-retailers-import-parallel-0330-we-idCNKCS2LS07P?il=0)
+[美国证监会将百度等五家公司列入退市风险暂定名单 百济神州等转入确定名单（更新版）](https://cn.reuters.com/article/usa-sec-chinese-companies-lists-0331-thu-idCNKCS2LS05Z?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

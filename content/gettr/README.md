@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 9:43 AM (UTC)`
+
+3/30/2022 Miles Guo: Don't overlook the CCP's actions against the Middle East, Northeast Asia, South Asia, and Taiwan. The CCP is trying to cut off the energy supply of Europe, bring down the US economy, and create a financial crisis. The vacancy rate of buildings in New York is very high, with famous buildings being sold at discounted prices. The sanctioned Russian tycoons hate Putin, and the people who are selling their properties at a discount hate Xi Jinping. The financial crisis will facilitate the global efforts to take down the CCP once and for all!<br/><br/>3/30/2022 文贵直播：千万不要忽视中共针对中东、东北亚、南亚和台湾的行动，中共妄图切断欧洲能源供应并打垮世美国经济、制造金融危机；纽约大楼空置率很高，知名大楼正在打折甩卖；被制裁的俄罗斯富豪恨普京，正在打折卖房的人恨习近平；金融危机将促使全球彻底灭共！<br/>
+![img](https://media.gettr.com/group23/getter/2022/03/31/09/eb48c1ad-2d06-3017-4bcb-13147b40f9ed/out.jpg)
+
+---
+
 `@miles 3/31/2022 5:11 AM (UTC)`
 
 从素昧平生到生死相依，从萍水相逢到不离不弃，我们来自五湖四海，在跟随郭先生灭共的路上，我们成了最亲爱的兄弟姐妹。 从2017年郭先生以一己之力挑战中共邪恶政权到2022年遍布梅蒂卡边境的灭共马甲，我们找回了中国人的尊严和勇气，感谢郭先生点亮我们心中的火把，把我们从一个个平凡普通的人变成了灭共的战友🙏🙏❤️❤️
@@ -149,13 +156,6 @@ PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被
 
 There are still many refugees hiding in basements in Ukraine, suffering from food and clothing shortages. A truck will deliver the supplies at the New Federal State of China (NFSC) rescue base to Ukraine, and deliver them to those refugees who really need them.<br/>在乌克兰境内，还有很多难⺠躲在地下室，缺少衣物和⻝物。一辆卡车将运送新中国联邦救援基地的物资到乌克兰境内，送达需要的难⺠手里。<br/>#ukrainerescue #nfsc新中国联邦 #ukrainehotline
 ![img](https://media.gettr.com/group5/origin/2022/03/30/19/55c91dc7-4ab6-c757-982d-7148d763774e/out.jpg)
-
----
-
-`@miles 3/30/2022 7:29 PM (UTC)`
-
-【Ukraine Rescue】03/29/22 <br/>ROLF&NFSC Ukraine Humanitarian Rescue Operation is reported by Polish Magazine- Tygodnik Solidarność which was first published over 40 years ago. <br/>The reporter introduces NFSCer in headlines:  We are the new Chinese people who are taking down the evil Chinese Communist Party, and we stand with Ukrainian and Poles! NFSC volunteers set up the largest tent in Medyka and ROLF provides free evacuation buses. In this article, it is also mentioned the Covid is CCP-Virus, which was intentionally unleashed by the CCP as a biological attack upon the world.<br/><br/>【乌克兰救援】03/29/22 <br/>法治基金&新中国联邦乌克兰国际人道救援行动登上波兰当地杂志《团结周刊》，该杂志创刊40余年；新中国联邦志愿者搭建了Medyka最大的帐篷，法治基金提供免费救援巴士；记者用大字介绍新中国联邦人： 我们是消灭中国共产党的新中国人，我们和乌克兰及波兰人民站在一起！并且文中提到了Covid即CCP病毒，是中共蓄意释放，危害全世界的生物武器！
-![img](https://media.gettr.com/group42/origin/2022/03/30/19/4a5e6091-d30e-314d-5447-d98db9e0332a/out.jpg)
 
 ---
 
