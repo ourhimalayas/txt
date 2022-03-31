@@ -2,28 +2,30 @@
 ---
 
 
-## 阿尔伯塔省积极推动数字货币应用
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258626/)
+## 俄承诺落空！乌克兰控俄军仍炮击北部城市
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2258712/)
 
-采编：加拿大温哥华杨帆农场 – 坐看云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+俄罗斯昨天承诺将大幅减少在乌克兰北部的军事行动，但乌北切尔尼戈夫州州长曹斯今天指控，俄军仍持续炮击切尔尼戈夫市。
 
-编译撰稿： 加拿大温哥华杨帆农场 – 文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/360截图20220330225048632.jpg)图片来源：美联社
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-1-14.jpg)图片来源：GNEWS
+俄国昨天在土耳其伊斯坦堡与乌克兰举行的面对面会谈中，承诺要减少在切尔尼戈夫市和乌国首都基辅周遭地区的军事活动，但乌克兰和西方强国已经对此表达怀疑。
 
+曹斯在社群媒体发文写道：切尔尼戈夫整晚都遭受炮击。法新社记者称，今天还可以听到基辅西北郊伊尔平镇传出的频繁爆炸声。
 
-据加拿大【环球新闻】3月27日报道，阿尔伯塔省政府近日宣布，该省即将推出有关金融创新的立法来促进数字货币行业的发展。
+简评：俄罗斯承诺落空继续炮击乌克兰北部城市，流氓本就言而无信，这下连最后一丝信任的机会也葬送了。不仅仅是失信于乌克兰，更是失信于全世界，既然毫无信用可谈，接下来面临的就是乌军更加顽强的抵抗与世界各国更加猛烈的制裁！
 
-对此，阿尔伯塔就业部长表示，已有多家数字货币领域的公司计划与该省相关机构合作，共同推动未来数字金融系统的应用。尽管数字金融业目前尚处于起步阶段，但该省计划通过创造良好投资环境，并最终成为北美地区数字资产交易及服务行业的中心。
+新闻来源：[联合新闻网](https://udn.com/news/story/122663/6204192?from=udn-ch1_breaknews-1-0-news)
 
-据悉，该省优惠的电力价格和丰富的天然气能源供应，在此前就曾吸引了大量加密货币采矿业务。目前，多家与数字资产保管、存储以及加密等设备制造有关的公司也开始在该省设立生产基地。
+撰稿/发布：一叶知秋
 
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-新闻来源：[https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/](https://globalnews.ca/news/8713810/alberta-has-potential-to-become-new-hub-for-cryptocurrency-industry/)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

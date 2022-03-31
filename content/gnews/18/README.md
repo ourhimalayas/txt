@@ -2,40 +2,40 @@
 ---
 
 
-## 美国参众两院今夏或将通过《美国竞争法》
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261946/)
+## 疫苗副作用集萃-小孩子接种后流鼻血
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261986/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 雅典娜情报组《疫苗灾难收集专栏》 
 
-整理：等风来
-编辑：JH
+整理：gardeniahu
+编辑：BENJ1
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/NPUFV8TVG86LC5ULY9F.png)图片来源：Samira Bouaou/The Epoch Times
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)图片来源：雅典娜设计组
 
 
-美国国会参议院3月28日通过了《美国竞争法》（America Competes Act），该法案为美国的半导体制造商提供了520亿美元的补贴。该法案以68票对28票的结果在参议院通过后，将进入与众议院版本谈判协商中，希望能在数个月内的讨论中得出结果。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-内容近3000页的《美国竞争法》目标为加强美国国内供应链、先进技术研发和科学研究，以提升美国竞争力在全球领域与中共国抗衡。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16-12.png)
+疫情|新冠疫苗副作用  小朋友接种新冠疫苗后的反应
 
-美国国会暨行政当局中国委员会（CECC）领袖28日致函国会两党领袖，呼吁两院协商会议小组在法案最终文本中保留现有涉及中共国人权议题条文内容。
+宝宝5岁半，比较瘦弱，脾胃一直不太好。幼几园安扌非接种新冠疫苗，一直未参加，因为前期感冒症状和脾胃虚弱老肚子疼，医生不建议接种。感冒好了后，因为不接种会不让上幼几园，不得不接种。接种完后没有什么症状，第二天带着出去玩也没有反应，晚上在家玩突然流鼻血，而且量很多，属于突然喷射出，然后就没了，吓坏老母亲。第二天也没任何反应，晚上睡觉前说有鼻涕，擤鼻涕又是鼻血一股，但是也没有继续流。第三天没有症状，第四天幼几园回来老师反映有流鼻血，也是一点点。准备联系接种单位咨询情况。不知道其他小宝贝有没有类似情况。
 
-议员呼吁最终协调版本还必须纳入内容，包括针对中共国破坏全球治理及其在国际组织影响力的努力进行报告，以及对中共国公司在美国资本市场的情况进行年度审查，以协助辨别伤害美国国家安全、严重侵犯人权，或增加美国投资者金融风险的中共国企业。
-
-议员们表示，保留法案中强有力的措辞和政策倡议，表明保护和推进民主自由、人权和法治不能与经济合作和安全利益脱离关系。
+#新冠疫苗 #小朋友打新冠疫苗 #接种疫苗后的反应
 
 参考链接：
 
-[自由财经：美参院通过520亿美元芯片法案 将和众院协商](https://ec.ltn.com.tw/article/breakingnews/3875051)
+[新冠疫苗副作用，小孩子接种后流鼻血](https://www.xiaohongshu.com/discovery/item/621e125d000000000102c613?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648607121)
 
-[美国之音：美参院通过大型抗中法案 将与众院进入最终协商](https://www.voachinese.com/a/us-senate-moves-forward-china-bill-for-reconciliation-20220328/6505803.html)
+*发布：tianzhihuan*
 
-发布：tianzhihuan
-
-**更****多资讯****，****请关注****：**
+**更多资讯，请关注：**
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
 
  
 

@@ -2,28 +2,29 @@
 ---
 
 
-## 中日财经爆┃传中共官方将对小米系资本开刀 证监会、小米紧急“灭火”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262049/)
+## 樱花时政┃制裁“必须保留”直到乌克兰克里米亚领土恢复
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262160/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+人权基金会主席和前俄罗斯国际象棋大师加里卡斯帕罗夫周三在“卡武托：海岸到海岸”节目中预测“普京的终结”。认为美国及其盟国必须坚持对俄罗斯的制裁，直到乌克兰和克里米亚领土被收复。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花时政┃制裁必须保留直到乌克兰克里米亚领土恢复.png)图片来源于本文链接
+卡斯帕罗夫对福克斯商业频道的尼尔·卡武托说：“我认为美国必须宣布，在乌克兰恢复领土完整之前，不会取消、不会放松其制裁。”“在克里米亚升起乌克兰国旗之前，这些制裁不得停止，”他继续说。“这是关键。”卡斯帕罗夫发表上述言论之前，俄罗斯官员周二表示将缓解对乌克兰的空袭，并于周三宣布谈判谈判不成功。这位前特级大师仍然对俄罗斯的意图持怀疑态度。“我们都知道撒谎是普京性格的主要特征之一。这就是为什么当我们听到他的任何陈述时，我们应该假设它们是错误的，”卡斯帕罗夫指出。“所有这些关于缓和的谈话……这是普京重组的掩饰。停火意味着重新加载。他没有放弃摧毁乌克兰作为一个国家的计划。”“我们愿意帮助乌克兰赢得战争吗？还是只是想帮助他们生存？”他问。
 
-近日，有市场传言称，中共监管部门正在全面排查小米资本系 IPO项目， 有关项目政策或有重大变化。
+“这让我得出一个结论：美国害怕普京输掉这场战争，因为这可能会导致他的独裁统治结束，并带来不可预测的后果。”尽管拜登总统的心在“正确的位置”，但卡斯帕罗夫进一步批评了他作为自由世界领袖对冲突的反应。“美国现在充其量是从后面领先，”他说。“除非美国向世界其他国家和弗拉基米尔·普京明确表示，在乌克兰领土完整恢复之前，制裁不会发生变化，否则普京将继续他的侵略战争。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-184.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://img2.jiemian.com/101/original/20211213/163940151889561300.png&amp;imgrefurl=https://m.jiemian.com/article/6907665.html&amp;tbnid=4QemqT_0W2wiNM&amp;vet=12ahUKEwiXpIL9q-_2AhU7TPUHHQl1BNIQMygGegUIARCvAQ..i&amp;docid=PCWbYF3WCbzyLM&amp;w=1531&amp;h=958&amp;q=%E5%B0%8F%E7%B1%B3%E7%94%9F%E6%80%81%E9%93%BE%E4%BC%81%E4%B8%9A&amp;hl=zh-CN&amp;ved=2ahUKEwiXpIL9q-_2AhU7TPUHHQl1BNIQMygGegUIARCvAQ)
+消息来源：
+[Biden sanctions ‘must stay’ until Ukraine, Crimea territory restored: Russian chess grandmaster Kasparov](https://www.foxbusiness.com/politics/biden-sanctions-must-stay-until-ukraine-crimea-territory-restored-garry-kasparov)
 
-据传监管层对当前科创板和创业板在审的涉及小米产业链做了排查，原因是担心，通过业务转移给订单扶持企业上市之后套现，然后再支持别的企业，形成恶性循环。传言称，本周深交所和上交所对已上市企业（科创板，创业板）和在审企业涉及到小米产业链的做了排查，包括是否有小米投资以及是否存在投资后拉动业务和扩大销售等行为。有机构透露，我们也有一家给小米手机做摄像头镀膜业务的在审企业应要求撤材料。目前审核对于产业资本投资并通过产业资本投资换取业务比较反感。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-3月29日，证监会官方网站发布消息，以答问形式回应称，证监会关注到部分自媒体有关小米代表的产业链IPO政策有重大变化的文章，证监会未对小米产业链相关企业出台IPO限制性政策，也未开展专项排查。
-
-随后“小米公司发言人”官微也发布声明，称对于这类恶意造谣，刻意曲解的抹黑攻击行为，公司将坚决诉讼到底，用法律武器维护公司合法权益。
-
-从2013年至今，小米已经孵化了接近300家企业，小米生态链的庞大体量早已引起中共的警惕，虽然证监会和小米都针对此次传言紧急灭火，但事态的发展仍值得关注。
-
-信息来源：[小米产业链IPO政策受限？证监会辟谣、小米回应](http://stock.10jqka.com.cn/20220330/c637935899.shtml)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
