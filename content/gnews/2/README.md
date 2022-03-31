@@ -2,51 +2,38 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.3.30）韩国篇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2263175/)
+## 台湾从乌克兰总统身上学到的入侵防御计划
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2263222/)
 
-整理：gardeniahu
-编辑：新世纪
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3982-edited.png)图片来源：taiwannews.com.tw
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)图片来源：雅典娜设计组
+台湾官员正在从乌克兰总统那里获得灵感，制定一个新的政治战争战略，其中蔡英文总统将发挥突出作用。
 
+《金融时报》周二（29日）[援引](https://www.ft.com/content/27efad6d-92b3-49ce-bcf9-02eac5df2586)台湾政府官员的话说，沃洛季米尔·泽伦斯基（Volodymyr Zelensky）在基辅每天的挑衅性广播启发了台湾制定类似战略，让蔡英文定期召集国家力量和公民（译者注：进行挑衅共产党的广播——信息战）。一位官员说：“在今天的战争中，宣传和政治战是至关重要的。泽伦斯基正在向他的人民展示，他没有逃跑，也没有躲藏；这意味着有必要让我们的总统也这样做，在外面展示自己，而不是躲起来。”
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+根据中共国军事学者撰写的论文，中国人民解放军（PLA）有计划在入侵台湾的第一阶段试图抓住并可能杀死台湾的最高政治和军事领导人，包括台湾总统。据报道，台湾军方计划在有迹象表明即将发生攻击的情况下，将这些关键领导人安置在地下指挥和控制中心。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-390.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/2-223.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3-169.jpg)图片来源：小红书
-韩国接种疫苗疑似引发急性白血病
+然而，这位官员断言，扣押台湾总统可能不是最有效的战略。“你可以从乌克兰看到，领导人需要出来鼓舞士气并争取国外的支持，”据该消息人士称。
 
-最近很多朋友都预约了疫苗，但是都在犹豫要不要打。有些人准备直接等着回国以后再接种。
+这位官员指出，为了能够在保护蔡英文的同时把她的信息传出去，需要做大量的准备工作，比如预先录下讲话，防止解放军跟踪她的行动。第二位官员表示，蔡英文政府和武装部队正在重新评估国家的防御准备工作，以纳入乌克兰的宣传和政治战策略的要素。
 
-韩国接种疫苗后死亡的病例此起彼伏
+自俄罗斯于2月24日开始入侵乌克兰以来，表示愿意为保卫国家而战的台湾人的比例急剧上升。台北智库台湾国际战略学会3月15日发布的一项调查显示，如果中共国对台湾采取军事行动，70.2%的受访者愿意保卫台湾，与2021年12月28日发布的民调中表示愿意参战的40.3%相比，有了大幅提高。
 
-就在这个时候，今天上午有人请愿称：根据政府政策，我高中的儿子接种了COVID-19疫苗。在大学医院复查，被确诊为“急性骨髓性白血病。”
+新闻来源：[taiwannews.com.tw] [Taiwan emboldened by Ukraine’s president to alter Chineseinvasion defense plans](https://www.taiwannews.com.tw/en/news/4490631) | 发布时间：2022年03月30日
 
-本来是个健康的儿子，但因为政府提高疫苗接种率，一夜之间变成了白血病患者，谁来负责？截至上午11:00点，这份请愿书已有4，800多人签名。
+* * *
 
-目前，因为疫苗副作用和后遗症病例，公众对它们仍然处在比较担忧的阶段。特别是年轻人接种后，反应都比较强烈，这个时候谁都不希望自己变成特殊病例。而且现在因为疫苗紧张，原计划接种第二剂疫苗间隔为4周，现在延长到了6周。
-
-#韩国疫苗事故#韩国投资签证#韩国生活#韩国疫苗
-
-#韩国签证#韩国出入境
-
-疫情|新冠疫苗副作用
-
-【精选评论】
-
-Tiya1413：疫苗的成分含量都不敢对大众公开呵呵，甲醛大幅超标白血病不是空穴来风。
-
-参考链接：[https://www.xiaohongshu.com/discovery/item/6113656400000000010253c4?share\_from\_user\_hidden=true&xhsshare=CopyLink&appuid=593bc86450c4b43662c38691&apptime=1648606883](https://www.xiaohongshu.com/discovery/item/6113656400000000010253c4?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648606883)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
