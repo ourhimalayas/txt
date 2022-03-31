@@ -2,24 +2,30 @@
 ---
 
 
-## 【3月29日】新中国联邦乌克兰救援营地接待了一位81岁高龄老奶奶
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2265857/)
+## 有声|美国不把所有的错误尝试完不会做出正确决定
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2265945/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-视频制作：多伦多蓝莲花视频组
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2017年爆料革命开始到今天，文贵先生在直播中多次说到美国和西方世界在消灭独裁这个问题上没有选择，美国要把所有的错误尝试完，流血、甚至失去生命之后，才会做出任何人不可以改变的决定。
 
-新中国联邦法制基金救援前线营地3月29日，接待了一位81岁的乌克兰老奶奶，据她自己讲述，她是步行60公里来到梅迪卡营地等待与她的孩子会和接她回家。
+纵观在二战之前，从美国还没有事实独立的时候，也就是200多年前，美国到中国大清朝1776年，跟大清朝建交。包括当时在加拿大的问题，美国买俄罗斯的土地、美国在海外建立的军事基地，最后的二战成为世界的帝国，以及建立国际法布雷森林体系金融系统。它都是这么来的，不把所有的错误都尝试完是不会做出正确的决定的。
 
-据《3月30日郭文贵大直播》中报道，当时这位高龄老奶奶要求一杯热茶，在喝过一杯茶后淡定的问战友有没有梳子，需要整理一下一路风尘仆仆凌乱的头发。
+文贵先生在3月27日的大直播表明拜登总统已经明白普京和习近平两人的个人友谊代替了国家友谊、国家利益，两个人在领导全世界，给世界把脉。普京要拿下波罗的海五国，两个独裁者妄想统治个世界。
 
-俄乌战争毁灭了乌克兰的许多重要城市，原本美丽的城市化为了废墟，乌克兰人饱受战争的苦难。儿童被迫离开父母、老人被迫离开自己生活了一辈子的家园。
+文字版原文：[美国不把所有的错误尝试完不会做出正确决定](https://gnews.org/zh-hans/2261577/)
 
-只有消灭邪魔中共，这个世界未来才不再有战争，人民其乐融融，孩子们有父母呵护、老人安享晚年。
+音频处理/发稿：Daxia
 
-编撰：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-视频来源：新中国联邦乌克兰救援前线战友小小酥。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
