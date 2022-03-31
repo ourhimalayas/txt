@@ -2,10 +2,10 @@
 ---
 
 
-## 普京的顾问们向其传递了错误的俄罗斯作战信息
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261098/)
+## 俄乌战争以及对俄制裁加剧了全球食品短缺
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261237/)
 
-03/30/2022 一位美国官员说，俄罗斯总统普京被顾问误导，不知道该国军队在乌克兰的表现有多糟糕。
+03/30/2022 Fox新闻：俄乌战争以及对俄制裁加剧了全球食品短缺。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

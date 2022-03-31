@@ -2,36 +2,42 @@
 ---
 
 
-## 大直播后记：七哥突然出现点评嘉宾表现
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2261351/)
+## 全球和澳洲疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261432/)
 
-整理：美哥、铁血丹心
-编辑：skyandmoon
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-29-下午2.15.54.png)
-大家看到的G-club得奖的所有的战友，包括我们的盖特对所有进行的事情，包括生物科技的节点，没有这个芯片，没有生物芯片未来的科技是到不了下一个层次的，所以说看到所有的布局，我相信所有的战友应该很兴奋，我们的未来真的是没有人可以预测的。因为我们的认知，因为我们还没有站在七哥的高度，但是我们的勇气不断在增长，我们看世界的眼光也不断增长，但是不管怎么样，回到最接地气的一句话，喜币以后一定会超过比特币，一定会！
+整理：枳实
+美工：精灵蓝
 
-记得七哥说过一句话，在大直播两次还是三次都说，你们现在一定要去买G-FASHION。为什么你知道吗？ 第一个理由他是说G-FASHION 的成本会涨，你现在看到的这些东西以后都至少涨50%，因为材料也好，logistic物流也好都在涨。第2个是什么？战友穿哪件衣服，你在新中国联邦地位就是前辈级的，所以说这是为什么我下定决心，把我五个月的房租都给花了，买了很漂亮的佛教系列，从细节上、材料上、做工上考究，真的我就觉得好东西我们值得拥有， 所以说大家如果可以买G Fashion的，可以真的考虑。因为我们现在还是属于早期，所以说以后穿上早期G-FASHION的衣服你就不是一般人了。
-
-如水：就像刚才瑞秋说的，我们现在都是无苗有币族，我们也都是G-CLUB会员，那么如果我们都穿上G-fashion的衣服展现我们的新形象、新气质，我们在享受所有幸福的同时，我们所有的战友都要珍惜现在的平台，来多多的推广它宣传它使用它！我们的理念，我们的美，在任何地方都能看到、听到、感受到！
-
-七哥：你们每个人都表现特别好。刚才我看差不多的时候我去吃饭，然后我去开会去，我到那边去，然后那个人家的保镖说我们要马上开会，12点钟开会，然后12点30分有个会，1点30分有个会，今天有六七个会。我昨天山里边，我再跑回来的，结果我今天运动、开会，看你们都很好，然后好多战友发信息都想七哥，我说我给你们保持几天神秘（感），结果来了又露馅儿，神秘不了了。
-
-很好，很好，很好！我拥抱瑞秋，代表拥抱你们每个人了，辛苦了！我可以告诉你们，一年前你们想这样是不可能的，我可以告诉你们，你肚里也没这么多东西，包括刚才你们每个人讲到了自己的经历，我作为一个听众来看你们的时候，我真的发自内心没想到你们这样（棒），我觉得你们得（被）骂得狗血喷头，PPT会一塌糊涂，就是飞飞老想睡觉的感觉有点差劲，然后说话就来精神了。我觉得文斌今天表现特别特别特别好！如水是101分，文空101分，只有飞飞90分，瑞秋100分，因为你俩美女应该讲得更好，今天如水绝对老大姐的感觉。
-
-刚才我在这个吃饭时候，你嫂子问我说为什么你不上直播了？我说因为我要开会。她说你早就该这么做了，你老霸着那个屏做什么？今天我特别开心，你看我刚才已经开了几个会，我进去冲凉的时候同时再开个会，冲完凉换西装又是一个会，然后我在路上就打了两个电话，然后到这儿来，你还在直播，吓死我了！我记得你们没有一个人知道我来是吗？咱今天每人一分钟，你们先说对我想说啥？然后我马上走开会去。
-
-资料来源：郭文贵先生3月30日大直播
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
 
 
-| 发布：tianzhihuan |
-| --- |
+雅典娜疫情更新（2022年 3月30日）
 
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5-113.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-119.png)
+[2022年3月30日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+数据来源：
+
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+
+[covidlive.com.au](https://covidlive.com.au/)
+
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
