@@ -2,39 +2,46 @@
 ---
 
 
-## 有声|炮火中的葬礼
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2260205/)
+## 辉瑞被判公布疫苗1300种症状和全人类打过疫苗的一大半
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2260264/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在3月27日大直播中，郭先生透露，在乌克兰被救出的中国人深深感概，乌克兰民族拥有真正的对人的尊重。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8801.50%EF%BC%89%E8%BE%89%E7%91%9E%E8%A2%AB%E5%88%A4%E5%85%AC%E5%B8%83%E7%96%AB%E8%8B%971300%E7%A7%8D%E7%97%87%E7%8A%B6%E5%92%8C%E5%85%A8%E4%BA%BA%E7%B1%BB%E6%89%93%E8%BF%87%E7%96%AB%E8%8B%97%E7%9A%84%E4%B8%80%E5%A4%A7%E5%8D%8A%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
 
-据被救的中国人说，这次认清了在乌克兰和中共国的老百姓的根本不同。在乌克兰被轰炸后死掉的尸体，有专业搜寻人员，其严谨性不会发生中共国。炮弹就在身边，并且轰炸的炮火声就在耳边，他们依然认真挖好坑，埋掉死者，还举办宗教仪式为死者送葬，死者有非常精致的墓碑，姓甚名谁都被一一记录在册。而此事若在中共国，不用说战争年代，即便在太平盛世死在家里，像这样对死者的尊重都不会发生。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Capture00-98.jpg)
-即使活着，中国人也不会得到应该拥有的尊重，个个活得不如猪狗。明显的例子，这次乌克兰被困中国人苦苦的求救，共产党却找各种各样的借口不救人，不仅需要荒谬的证明自己就是本人，甚至把求救者的祖宗八辈都查一遍。然而，就在救援刚开始的时候，共产党竟然污蔑新中国联邦要拿人的隐私和讯息，中共的谎言不攻自破。
+**郭文贵先生：**我们新中国联邦今天最大的喜讯是什么？大家要看到，最大的喜讯就是没有打疫苗！对不起我敏感。按照路大脑袋逻辑这是宇伦搞得我打喷嚏，永远怪别人——九指妖“我有啥事都是你们的事”，九指妖现在都怪了“我当年切指头就是因为新中国联邦”，“我现在身体不好，心情不好都是因为你们到前线救援”，哇噻，这九指妖简直是个魔鬼呀，妖精。
 
-共产党有多邪恶就越证明新中国联邦有多值得珍惜。
+所以说大家看到没打疫苗这件事情有多大兄弟姐妹们！文曦你们来自香草山医疗部，宇伦你们知道咱没打苗。对于我们每个人没打苗已经超过了你经历一万次这乌克兰战争，为什么？乌克兰是4500万人，现在死了多少人？是吧，按照这个比例的话，我们今天打苗，战友们，过去这一周我最大的感受就是真的是太恐怖了。
 
+我是3月2号知道的这个判决会这样下来，当时说是1300种被公布的整个的症状，疫苗的症状，我当时因为咱们爆料革命坚持唯真不破，再一个咱不让人家抓把柄我不提前说，再一个乌克兰战争。但是当这个法官真的把这判出来，辉瑞制药真的把这个疫苗的东西放出来的时候，七哥也吓到了，我真的是把我吓到了。这个太可怕了！
 
+当你真的面对人类上一大半人打了这种毒的疫苗、要命的疫苗的时候，你们想过吗？我们战友在这儿直播，如果我们大家都打了疫苗，很有可能下次直播就少一个，不是少在镜头里，是少在世界上。
 
-文字版原文：[炮火中的葬礼](https://gnews.org/zh-hans/2253702/)
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+编辑整理：Jacques；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+字幕档制作：兵嫂；
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+视频制作及上传：Cindy；
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+G-News发布：海贼王M.D.LUFFY；
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

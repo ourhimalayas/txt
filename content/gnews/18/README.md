@@ -2,35 +2,33 @@
 ---
 
 
-## 俄乌战争导致400多万人逃离乌克兰 粮食危机迫近
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2260152/)
+## 设计师谈作品：新中国联邦拯救世界
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2260193/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-《加拿大环球新闻》与《巴伦周刊》3月30日综合报道，**周三，联合国难民署专员菲利波·格兰迪在利沃夫会见难民时证实，逃往国外的乌克兰人数已经达到400万。**
+作者：姐夫说说
+编辑：文泓
 
-联合国周三还表示，**正在向乌克兰的100万人提供紧急食品**，但同时警告说，还有更多的人在挨饿，为了让儿童有饭吃，成年人不吃饭。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/123411349_hi074103129-e1648681785566.jpg)自俄罗斯入侵乌克兰以来，已经有400万人逃离乌克兰（联合国难民署）
-总部位于罗马的世界粮食计划 (WFP)表示，**已成功地向乌克兰人群提供粮食供应，**其中包括向哈尔科夫市的家庭运送33万个新烤的面包，以及**通过两个跨机构人道主义车队向苏米和哈尔科夫冲突地区运送物资。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Bulgaria-registers-refugees-from-Ukraine-at-border-e1648682546317.jpg)俄乌冲突导致乌克兰由世界粮仓变为难民营（图片来源：fellowpress.com）
-该联合国机构表示，预计未来几天将有更多运送食品的车队抵达乌克兰。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/姐夫1.jpg)图片来源：雅典娜设计组（姐夫说说）
 
-世界粮食计划署乌克兰紧急协调员雅各布·克恩(Jakob Kern)在一份声明中说:“从头开始开展行动，把食物送到100万人手中，这似乎是一个巨大的挑战。”
 
-此外，联合国粮食秘书长周二警告称，**乌克兰战争可能会破坏世界粮食计划署为全球约1.25亿人提供食物的努力，因为乌克兰已经“从世界粮仓变成了排队等待面包的地方”。**
+最近几周，因为我们的喜币走出一波下跌行情，很多战友们惴惴不安，这里也包括我。《圣经》马太福音6:21记载，“你的钱在哪里，你的心就在哪里”。于是我希望通过穿越未来时空，来追踪寻找我的心最终落在哪里。
 
-新闻来源链接：
+有高人说，未来疫苗大灾难过后，三分之一的人会被疫苗屠杀，还有三分之一的人会被疫苗折磨得生不如死的躺在病床上，剩下的三分之一人要负责照顾躺在病床上的三分之一人。到那时没有了中共后，我们都成为了无苗有币的亿万富翁，我们是沉溺于纸醉金迷的富豪生活吗？
 
-[Russia-Ukraine conflict: More than 4 million people have fled Ukraine as food crisis looms | Watch News Videos Online (globalnews.ca)](https://globalnews.ca/video/8723194/russia-ukraine-conflict-more-than-4-million-people-have-fled-ukraine-as-food-crisis-looms/)
+显然不能。当世界一半人需要另一半人照顾的时候，就算你有钱，谁来制造商品？谁来提供服务？恰恰相反，能力越大，责任越大！**世界的主人安排了我们新中国联邦正道主义者负责照顾世界另一半的人，这绝对不是巧合！新中国联邦人是富有使命的一群人。**一段思绪飘过后，这时候我看到的不是眼前的喜币价格波动，而是我们未来的责任。参与乌克兰拯救只是刚刚开始，未来对世界更大的拯救即将拉开序幕！
 
-[UN Feeding One Million People In Ukraine | Barron’s (barrons.com)](https://www.barrons.com/news/un-feeding-one-million-people-in-ukraine-01648640708)
+于是，我按照新中国联邦海蓝色七芒星国旗图案构思了这幅图片：**背景底色是浩瀚的星空，中间是地球，围绕着地球36颗“小行星”就是全球各个喜马拉雅农场，以及法治基金、G系列，喻意新中国联邦保护地球、拯救世界。**
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+*发布：*文泓
+**更多资讯，请关注：**
+
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
