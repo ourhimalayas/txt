@@ -2,26 +2,37 @@
 ---
 
 
-## 中日财经爆┃俄罗斯鼓励“水货”替代进口正品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262476/)
+## 樱花FM|时政:安理会就朝鲜发射导弹举行紧急会议 美中对立
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2262612/)
 
-撰稿：东京樱花团/peterwong
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3955.png)
+应美国等国家的要求，3月25日，联合国安理会公开举行了紧急会议，以应对朝鲜在24日发射一枚新的洲际弹道导弹。
 
-俄罗斯总理米舒斯京(Mikhail Mishustin) 3月30日表示，俄罗斯已授权零售商在没有商标所有者许可的情况下从国外进口产品。此前众多国际品牌因俄罗斯入侵乌克兰而停止在俄罗斯销售或向俄罗斯出口产品。
+安全理事会应对朝鲜导弹发射的大多数会议都是闭门举行的，此次是自2019年12月以来首次公开举行的会议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-21.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic.liupan.net%2Fpic%2Fcar%2F2016-02-11%2Fe41128a767309d11470a1896851dbae9.jpg&amp;imgrefurl=https%3A%2F%2Fwww.99pic.com%2Fpic%2F2371.html&amp;tbnid=H4jrJMzcrfaUhM&amp;vet=12ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ..i&amp;docid=7_ns-FNEM5ti3M&amp;w=280&amp;h=192&amp;q=%E8%B4%A7%E8%BD%AE%20%E4%BF%AF%E8%A7%86&amp;ved=2ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ#imgrc=PYqJjEtWzj4wbM&amp;imgdii=9WP9vwcKjduDDM)
+在会议上，美国驻联合国大使托马斯-格林菲尔德强烈谴责朝鲜，说这次发射违反了安理会的多项决议，威胁到整个国际社会。
 
-由于西方的经济制裁，以及H&M、苹果和耐克等公司限制在俄罗斯的活动的决定，俄罗斯的零售业已遭重创。
+他补充说：”安理会必须共同向朝鲜发出明确的信息，即朝鲜违反安理会决议和无视全球稳定和平”，并表示打算提出一项新的决议以加强对朝鲜的制裁。
 
-米舒斯京在电视转播的政府会议上说，需要“平行进口”，以确保某些商品可以继续运往俄罗斯，哪些商品可以以这种方式进口到俄罗斯，将由工业和贸易部决定。
+对此，中国驻联合国大使张军说：”问题的核心是朝鲜多年来一直受到来自外部世界的安全威胁。美国必须尽快恢复与朝鲜的直接对话”，并强调中共国和俄罗斯正在准备一项决议草案，呼吁放松对朝鲜的制裁。
 
-消息来源:
+在此次朝鲜问题上，美中产生分歧，明显对立。美国强烈谴责，并打算提出新的制裁决议，但中共国强调，美国应该与朝鲜进行直接对话。
 
-[俄罗斯批准在无品牌许可情况下“平行进口” 此前一些国际品牌停止在俄销售](https://cn.reuters.com/article/russia-retailers-import-parallel-0330-we-idCNKCS2LS07P?il=0)
+新中国联邦的郭文贵先生说，中共是世界上一切邪恶势力的元凶。在朝鲜发射导弹问题上可见一斑。
 
-*校对：东京樱花团/知了知了
+文字版原文：
+
+
+| [樱花时政┃安理会就朝鲜发射导弹举行紧急会议 美中对立](https://gnews.org/zh-hans/2234079/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
 发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

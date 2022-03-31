@@ -2,33 +2,26 @@
 ---
 
 
-## 日本财团宣布将出资50亿日元接纳乌克兰难民
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261967/)
+## 疫情｜台灣為防堵疫情擴大 首次實施非強制類普篩
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2262037/)
 
-撰稿: 澳喜 – 追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3854.png)
-日媒报道，日本财团由于俄罗斯对乌克兰的入侵时间延长，28日宣布，将在三年内50亿日圆，约相当于美金4000万的金额，提供给有意愿赴日的乌克兰难民。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3918.png)
-这笔人道救援经费，涵括乌克兰难民的赴日旅费、在日本居住期间长达三年的生活费用，以及资助那些支持乌克兰难民在日本生活和就业的NPO等组织。此外，日本政府简化了入境手续和放宽居留身份协助乌克兰难民，制定出积极接纳难民的政策。各地区地方政府也纷纷宣布将提供公共住房和生活用品。
+**疫情關注組** **zhong｜2022-3-31**
+▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Model-1-1.png)**更多請關注疫情關注組[蓋特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+中央流行疫情指揮中心數據指出，台灣本土疫情多點爆發，部分感染源無法明確，疫情足跡遍佈全台多縣市。其中，基隆小吃店衍生警察群聚局經定序後，發現與目前台灣本土疫情的病毒株不同，疑惟越南境外疑入病毒株。
 
-截至目前已知的数量，约有900名乌克兰难民希望前往日本，首批获得资助的将面向150名曾经到访过日本的乌克兰难民。资助项目的相关负责人希望目前已经居住在日本的1900名乌克兰人，能够通过电子邮件等方式，将此类信息发送给希望到日本避难的家人、朋友和熟人。
+基隆疫情迅速擴大，防疫指揮官陳時中31日訪視基隆，與基隆市長林右昌視訊會議後，宣布「基隆市將全面實施類普篩」，將廣發快篩試劑，希望基隆36萬民眾都能自我篩檢1到3次。防疫指揮中心強調，本次類普篩不強制。
 
-参考链接：
+陳時中解釋，基隆疫情延燒已一段時間，僅依靠社區篩檢站無法避免黑數，經中央、地方討論後決定實施類普篩。陳提到「以後也可提供其他地方經驗，中央將來也可運用這個方式控制有可能發生的疫情。」
 
-[来日のウクライナ避難民支援に50億円　日本財団](https://news.yahoo.co.jp/articles/1ecb2650cc839501a2a459e21a99b403484379bf)
+前疾管局長蘇益仁表示，類普篩就是普篩，並建議最好搭配血清抗體測試，並完善居家隔離的後續措施，以應對感染人數多的情形。
 
-[来日するウクライナ避難民に渡航費、生活費を支援―日本財団 : 3年間で50 億円規模](https://news.yahoo.co.jp/articles/3230d383b6a801ef8904d32fc20814d9a62cbcd2)
+來源｜[自由](https://news.ltn.com.tw/news/life/breakingnews/3877704)、[HEHO](https://heho.com.tw/archives/212176)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/月曆-27.jpeg)
+* * *
 
-审核: zhong
+**更多請關注疫情關注組[蓋特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
 
-编辑: Delilah小胖
-
-总编: zhong
-
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3854.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

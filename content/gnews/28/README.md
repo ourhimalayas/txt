@@ -2,32 +2,22 @@
 ---
 
 
-## 解密情报显示，普京认为他的军事领导人在乌克兰问题上误导了他
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2262084/)
+## 区块链游戏Axie Infinity 被骇，等值近6 亿美元以太币被盗
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2262157/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午2.54.02.png)图片来源：CNBC
-角大楼说，普京的高级顾问就入侵乌克兰的进展和西方经济制裁俄罗斯的影响向他撒谎。
+素材/选题：波士顿五月花 长岛开心
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午3.16.19.png)图片来源：互联网
+以一边游戏、一边赚取加密币而爆红的网路游戏Axie Infinity，其侧链服务Ronin Network 发[新闻稿](https://roninblockchain.substack.com/p/community-alert-ronin-validators?s=w)确认[被骇](https://www.vice.com/en/article/3abeeb/hackers-steal-dollar600m-from-play-to-earn-game-axie-infinitys-ronin-network)，有173,600 个以太币ETH 和2,550 万个美元稳定币USDC 被盗去，等值近6 亿美元之多。Ronin Network 也有详细解说被骇的始末，让大家可以更了解这宗大型盗窃案。
 
-拜登政府高级官员周三表示，新解密的美国情报显示，俄罗斯总统普京认为他被军方领导人误导了，这些领导人没有告诉他关于入侵乌克兰失败的关键细节，因为他们害怕激怒他。
+Ronin Network 表示，他们发现骇客是首先透过在其中一个由Axie DAO 营运的RPC 节点里的后门程式，获取了签名档。同时在用以验证交易的9 个节点之中，再成功操纵了其中5 个（4 个是Ronin Validators，一个是Axie DAO），并于3 月23 日发起虚构的交易要求，以两次转帐就掏走了等值6 亿美元的资产。
 
-“我们认为，普京被他的顾问误导了，不知道俄罗斯军队的表现有多糟糕，也不知道俄罗斯经济是如何被制裁削弱的，因为他的高级顾问不敢告诉他真相，”白宫通讯主任凯特-贝丁菲尔德告诉记者。
+对于这个后门的存在，Ronin Network 解释是他们母公司Sky Mavis 在2021 年11 月因应有大量用户载入，求助Axie DAO 协助处理交易，并因此建立了连接双方服务的Ronin Bridge 桥接机制。然而在合作在2021 年12 月完结后，却没有把桥接授权撤销，所以就产生了这样一个漏洞。
 
-她说，这种不告诉普京真实情况的做法 “导致了普京和他的军事领导层之间持续的紧张关系”。
+骇客盗走资产后近一星期后，才有用户发现无法在Ronin Network 转走5,000 个ETH 而揭发出，官方表示已经追踪到被盗加密资产所在的钱包位址，目前已经联络执法部门、Chainalysis 来研究取回被盗资产。目前Ronin Bridge 的授权已经被撤销，同时也停止了币安Binance 的接入，防止再有资产被转走；另外也停用了Katana DEX 交易服务，所以用户目前未能存入或提取Ronin Network 的资产。
 
-美国情报机构是如何得知普京在与他的军事顾问举行的高度敏感和安全的会议上被告知什么，以及没有被告知什么，白宫和五角大楼都不会透露。
+Ronin Network 强调用户的AXS、RON、SLP 加密币都是安全的，同时已经把认证节点的门槛数目提升到8 个，并会尽快再增加认证节点。
 
-但现在决定解密和发布这一情报信息，是拜登政府为混合战争时代量身定做的新策略，获得有关普京计划的绝密情报，然后将其告知全世界，打破了将机密信息锁起来的旧模式。
-
-白宫已经数次采取这种以前闻所未闻的动作，解密有关普京秘密入侵计划的信息并向公众发布，而每一次都被证明是准确的。
-
-五角大楼新闻秘书约翰-柯比说：”普京先生被他的国防部蒙在鼓里，如果当他知道真相时，当他真正开始意识到他的军队在乌克兰的表现有多么糟糕时，你不知道这将在他身上引起什么样的反应。””这里确实存在着升级的可能性。”
-
-西方官员将在未来几天密切关注是否有更多的俄罗斯军队转移到乌克兰东部，以及俄罗斯是否扩大征兵范围以征召更多士兵，预计普京将在4月1日前做出这一决定。
-
-柯比在周二的一次简报会上说：”无论怎样转弯抹角都无法掩盖世界在过去一个月里所目睹的一切。“”这就是乌克兰武装部队及其人民的勇气和军事能力。”
-
-原文链接：[Vladimir Putin feels his military leaders misled him about Ukraine, declassified intelligence shows](https://www.cnbc.com/2022/03/30/russias-vladimir-putin-feels-military-leaders-misled-him-about-ukraine.html)
+原文链接：[https://chinese.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[engadget](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[com](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[/axie-infnity-ronin-network-crypto-theft-060018992.html](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)
 
 * * *
 
