@@ -2,28 +2,29 @@
 ---
 
 
-## 拜登计划动用石油储备控制能源价格
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2262362/)
+## 中日财经爆┃百度、爱奇艺等五家公司被美国SEC列入退市风险名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262478/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/peterwong
 
-据Politico网站3月30日报道，两位知情人士透露，美国总统乔·拜登（Joe Biden）准备下令每天从该国的战略石油储备中释放100万桶石油，以控制随着美国及其盟国对俄罗斯入侵乌克兰实施严厉制裁而飙升的能源价格。
+美国证监会（SEC）3月31日将百度、爱奇艺等五家公司列入有退市风险的相关发行人暂定名单，并将百济神州等五家第一批进入暂定退市名单的公司转入确定名单。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F6e471d18-bc6b-4dfd-a5aa-489ecd8240b0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2Fddb097f8-41bd-41c9-916e-713ea4035d8d&amp;tbnid=EHnbus7AacBtwM&amp;vet=12ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ..i&amp;docid=gc6TBW1sfl4A-M&amp;w=2400&amp;h=1350&amp;q=sec&amp;ved=2ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ)
+根据美国SEC网站的最新披露，百度、爱奇艺、CASI制药、富途与总部位于台湾新北市的诺斯拉（Nocera）可在4月20日前提交证据申诉。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/0-34.png)乔·拜登总统。（图片来自Politico）
+上周SEC将中国社交媒体平台新浪微博列入暂定名单。截至目前，暂定名单中共六家公司。
 
-该公告最早可能在周四发布，届时白宫表示拜登还将针对抑制不断上涨的天然气价格发表讲话。
+百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药三周前成为首批五家因为《外国公司问责法》而进入被识别清单的公司，申诉截止日期为3月29日。但SEC网站显示，该五家企业已从暂定名单进入确定名单。
 
-美国的通货膨胀率在2月份达到40年来的最高水平，随着俄罗斯入侵乌克兰后石油和汽油的成本还在继续攀升。周三原油价格接近每桶105美元，高于一年前的约60美元。但是高油价并没刺激高产出。石油投资商表示，出于自身利益考虑，并不打算提高产量，这给拜登政府抑制通货膨胀的努力带来挑战。。
+美国公众公司会计监督委员会(PCAOB)上周四表示，将继续与中国监管机构进行接触，以获取审计报告记录，但目前尚不清楚中共国政府是否会按照美国新上市法律的要求批准美方获得这些记录。最近媒体对协议即将达成的猜测“为时过早”。
 
-拜登政府于去年11月宣布与其他国家达成意向，从战略储备中释放5000万桶原油。俄乌战争开始后，美国和其他30个国家同意从储备中再额外释放6000万桶，其中美国负责一半。
+消息来源:
 
-根据能源部统计，截至3月25日，美国持有石油战略储备超过5.68亿桶。
+[美国证监会将百度等五家公司列入退市风险暂定名单 百济神州等转入确定名单（更新版）](https://cn.reuters.com/article/usa-sec-chinese-companies-lists-0331-thu-idCNKCS2LS05Z?il=0)
 
-参考链接：
-[https://reurl.cc/7eG38Q](https://reurl.cc/7eG38Q)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-总编： 青城道姑
-校对发布：Linda
 
  
 

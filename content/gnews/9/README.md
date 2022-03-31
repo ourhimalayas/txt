@@ -2,34 +2,22 @@
 ---
 
 
-## 中日财经爆┃顺丰快递去年净利暴降41.73%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262459/)
+## 樱花FM|时政:独裁特色刷三观，俄将导演被占领地市民欢迎俄罗斯的闹剧！
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2262560/)
 
-撰稿：东京樱花团/peterwong
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3939.png)
+据朝日新闻报道，乌克兰中南部扎波罗热州的军事当局于3月26日早些时候宣布，他们收到消息称，将在已被俄罗斯方面占领的该州的梅利托波尔举行一次表达对俄罗斯支持的集会。该消息由乌克兰安全局截获的俄罗斯官员的电话时收到的信息。信息表示凡参加集会的人将收到由俄方支付的每天1200卢布。
 
-中国物流巨头–顺丰控股3月30日公布，去年净利润同比降逾四成，主要因遇产能瓶颈加大了对场地等网络资源投入，以及春节受中共疫情影响原地过年人工成本上
+乌克兰军事当局还表示，在由俄方控制的扎波罗热市的托克马克，俄方还正在制定一项计划，从4月4日起将该市的货币转为俄罗斯卢布。
 
-升。
+自从3月12日，乌克兰中南部扎波罗热州的梅利托波尔，人民抗议俄方拘留市长费多罗夫到被释放的行为，不难看出俄方在多国的指责和更多的制裁后，不得已想出的利用媒体制作“被占领市民欢呼俄罗斯”这样的拙劣方法。从俄罗斯高官、富豪到著名人士明显纷纷表示反战立场和逃离俄罗斯，到市民高呼要和平不要战争，一个不被自己国家人民支持的政权，他还能支撑到多久，可想而知。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片4-26.jpg)[图片来源](https://www.google.com/search?q=%E9%A1%BA%E4%B8%B0&amp;tbm=isch&amp;ved=2ahUKEwjkgKiN8u_2AhUXiVwKHWcEDgIQ2-cCegQIABAA&amp;oq=%E9%A1%BA%E4%B8%B0&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6CggjEO8DEOoCECdQ1wZYgxNgwBVoAXAAeACAAUmIAYYBkgEBMpgBAKABAaoBC2d3cy13aXotaW1nsAEKwAEB&amp;sclient=img&amp;ei=42BFYqSDKZeS8gLniLgQ&amp;rlz=1C1YKST_enUS900US901#imgrc=8VQwycH13a7cxM)
+文字版原文：[樱花时政┃独裁特色刷三观，俄将导演被占领地市民欢迎俄罗斯的闹剧！](https://gnews.org/zh-hans/2235002/)
 
-顺丰发布在深交所网站的年报显示，2021年净利润同比下降41.73%至42.7亿元人民币，营收同比增34.55%至2,071.9亿元；拟向全体股东每10股派发现金红利1.80元（含税）。
-
-顺丰指出，去年业绩同比下滑主要由于：年初为应对件量高增长、缓解产能瓶颈，加大了对场地、设备、运力等网络资源投入；以及年初疫情期间响应春节原地过年号召，留岗员工人数和补贴增加导致人工成本上升。
-
-此外，定价较低的经济快递产品增速较快，对整体利润率造成一定压力；2020年公司享受到较多的国家抗疫相关税费减免优惠，2021年该等优惠政策陆续结束。
-
-年报显示，该公司去年扣非净利润为18.3亿元，同比下滑70.1%。其中非经常性损益项目主要为公司将三项物业资产的权益转让至顺丰房托基金、以及处置其他子公司所获得的处置收益，和政府补助。
-
-顺丰控股周三收升3.62%报44.37元，今年迄今累计跌幅达35.6%，同期沪深300指数CSI300跌13.9%。该股去年初一度创出124.37元的历史新高，但在一季度业绩意外爆雷后狂跌，今年股价继续向下，一度跌至42.5元的低点。
-
-消息来源:
-
-[中国物流巨头顺丰控股去年净利降逾四成 网络资源投入及疫情令业绩承压](https://cn.reuters.com/article/sf-profit-0330-wedn-idCNKCS2LS013?il=0)
-
-*校对：东京樱花团/知了知了
+*编辑：东京樱花团/asket
 发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

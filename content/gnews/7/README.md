@@ -2,26 +2,32 @@
 ---
 
 
-## 中日财经爆┃俄罗斯鼓励“水货”替代进口正品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262476/)
+## 大直播后记：Rachel对前线战友付出的感动
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2262566/)
 
-撰稿：东京樱花团/peterwong
+整理：Lucy Liu、Rianna
+编辑：朝花夕拾
 
-俄罗斯总理米舒斯京(Mikhail Mishustin) 3月30日表示，俄罗斯已授权零售商在没有商标所有者许可的情况下从国外进口产品。此前众多国际品牌因俄罗斯入侵乌克兰而停止在俄罗斯销售或向俄罗斯出口产品。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/16-10.png)图片来源：雅典娜设计组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-21.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic.liupan.net%2Fpic%2Fcar%2F2016-02-11%2Fe41128a767309d11470a1896851dbae9.jpg&amp;imgrefurl=https%3A%2F%2Fwww.99pic.com%2Fpic%2F2371.html&amp;tbnid=H4jrJMzcrfaUhM&amp;vet=12ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ..i&amp;docid=7_ns-FNEM5ti3M&amp;w=280&amp;h=192&amp;q=%E8%B4%A7%E8%BD%AE%20%E4%BF%AF%E8%A7%86&amp;ved=2ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ#imgrc=PYqJjEtWzj4wbM&amp;imgdii=9WP9vwcKjduDDM)
 
-由于西方的经济制裁，以及H&M、苹果和耐克等公司限制在俄罗斯的活动的决定，俄罗斯的零售业已遭重创。
+Rachel：对战争我不太懂啊， 我想说的是，刚才我们战友分享的那个关于我们的战地钢琴师的这段爱情佳话，我很感动。 因为我觉得进了新中国联邦，到哪里我都看到有情有义，包括在这个战火纷飞的边境上。从战友去到前线好像已经是26天了。从开始的战友之间的相互照顾，到现在我们在战地建立起来的友谊，跟这位钢琴家。我不知道为什么，很开心，因为我觉得在这样的情况下，竟然可以找到他的真爱。 而且奋不顾身的就这样去了。我觉得这是以后我们新中国联邦拍电影的最好素材。但是我在想，我们在前线所有战友付出的努力，其实给外界就是这种五官上的享受，不管是从听觉、视觉、嗅觉、味觉、触觉我们都有了，就是真的是想到这个咖啡你就会想到这个Espresso的这个香味。 然后你就能够想象到现在的国际记者争先恐后要到我们帐篷里来喝这个咖啡，来和我们交谈的这样一个急切的心情，还包括难民，还有我们帮助的所有这些经过路过的人。
 
-米舒斯京在电视转播的政府会议上说，需要“平行进口”，以确保某些商品可以继续运往俄罗斯，哪些商品可以以这种方式进口到俄罗斯，将由工业和贸易部决定。
+所以说我觉得战友的付出，包括文贵先生的指导，真的觉得很佩服，也学到了不少。比如文贵先生怎么抓重点的？我其实真的很羡慕前线的战友。 他们充满了幸福感，因为我们有可能看到更多他们的付出。我每天早上起来就在家等着看今天他们又有什么好的故事？因为之前我听精良有分享过一个30分钟的，他跟一个难民女孩的沟通，这女孩不会说英文，但是他们之间沟通了三句话，很简单的三句话，但是给他留下了这一生都难以忘怀的经历。所以我就非常的羡慕。但是我觉得战争一定会结束，就像七哥之前已经预计到，独裁者是不可能放弃的，他不会放弃，他一定是走向灭亡的。所以我觉得， 普京昨天在土耳其的这个忽悠，要谈判，我觉得真的就是很空洞的，没有任何实质性作用的。好像路透社的新闻说，对乌克兰又进行了轰炸，那昨天刚刚要谈判，今天又进行了轰炸，他说的跟做的是完全不匹配的，拜登的华沙演讲也有说：我们不看你说什么，我们要看你做什么。
 
-消息来源:
+资料来源：郭文贵先生3月30日大直播
 
-[俄罗斯批准在无品牌许可情况下“平行进口” 此前一些国际品牌停止在俄销售](https://cn.reuters.com/article/russia-retailers-import-parallel-0330-we-idCNKCS2LS07P?il=0)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+| 发布：tianzhihuan |
+| --- |
+
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

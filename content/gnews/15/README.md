@@ -2,39 +2,26 @@
 ---
 
 
-## 纽约检察官指控中国公民在美执行“猎狐行动”和“天网行动”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2262325/)
+## 中日财经爆┃俄罗斯鼓励“水货”替代进口正品
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262476/)
 
-#### 撰稿：彩虹
+撰稿：东京樱花团/peterwong
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-2-22.jpg)图片来源：彭博社
-根据《纽约邮报》3月30日的报道，纽约检察官周三宣布，一名中国公民被指控威胁居住在美国和其他地方的所谓“逃犯”返回中国，这是中共国扼杀异议计划的一部分。
+俄罗斯总理米舒斯京(Mikhail Mishustin) 3月30日表示，俄罗斯已授权零售商在没有商标所有者许可的情况下从国外进口产品。此前众多国际品牌因俄罗斯入侵乌克兰而停止在俄罗斯销售或向俄罗斯出口产品。
 
-根据曼哈顿联邦法院公布的刑事指控，孙海英（Sun Hoi Ying，又名Sun Haiying，音译）从2017年到2022年在美国境内为中共政府工作，从事“猎狐行动”和“天网行动”。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-21.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic.liupan.net%2Fpic%2Fcar%2F2016-02-11%2Fe41128a767309d11470a1896851dbae9.jpg&amp;imgrefurl=https%3A%2F%2Fwww.99pic.com%2Fpic%2F2371.html&amp;tbnid=H4jrJMzcrfaUhM&amp;vet=12ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ..i&amp;docid=7_ns-FNEM5ti3M&amp;w=280&amp;h=192&amp;q=%E8%B4%A7%E8%BD%AE%20%E4%BF%AF%E8%A7%86&amp;ved=2ahUKEwi8op6a8e_2AhW1QUEAHc2HA50QMygAegUIARCPAQ#imgrc=PYqJjEtWzj4wbM&amp;imgdii=9WP9vwcKjduDDM)
 
-起诉书称，孙海英收集有关“逃犯”的信息，并利用威胁方式试图迫使他们返回中国，以接受审判或与中共政府和解。
+由于西方的经济制裁，以及H&M、苹果和耐克等公司限制在俄罗斯的活动的决定，俄罗斯的零售业已遭重创。
 
-此外，53岁的孙海英雇佣了一名私人调查员，以收集12名“被孙海英认定为中共罪犯”的信息，然后他将这些信息反馈给中共政府。
+米舒斯京在电视转播的政府会议上说，需要“平行进口”，以确保某些商品可以继续运往俄罗斯，哪些商品可以以这种方式进口到俄罗斯，将由工业和贸易部决定。
 
-诉状说，孙海英甚至还取得了一名美国当地执法人员的帮助，以安排与这些目标人物之一会面。孙海英告诉对方，如果他们不达成和解，中共政府将对他们进行报复。
+消息来源:
 
-在一个案例中，中共政府将孙海英寻找的目标之一的怀孕女儿“强行”扣留在中国长达八个月，该女士被告知，除非她帮助将其父母带回中国解决他们的“刑事”案件，否则她无法离开中国。
+[俄罗斯批准在无品牌许可情况下“平行进口” 此前一些国际品牌停止在俄销售](https://cn.reuters.com/article/russia-retailers-import-parallel-0330-we-idCNKCS2LS07P?il=0)
 
-起诉书称，尽管孙海英作为中共政府的代理人工作，但并没有按照法律规定向美国司法部长备案。
-
-曼哈顿美国检察官威廉姆斯（Damian Williams）在一份声明中说：“中共发起了一个全球性阴谋计划，通过使用未经批准的、单方面的和非法的做法，镇压异议人士，并强行遣返所谓的‘逃犯’，其中也包括合法生活在美国的公民。”
-
-声明指出：“我们指控孙海英先生，他作为该（阴谋计划）活动的一部分，试图威胁一名受害者屈服于中共的意志，甚至利用一名身为美国当地执法部门成员的同谋者来威胁和迫使受害者别无选择，只能遵守中共政府的要求。”
-
-报道说，孙海英被指控犯有一项共谋罪和一项未通知司法部长而充当外国政府代理人的罪行，如果两项罪名成立，他将面临长达15年的监禁。
-
-但是，据美国检察官办公室称，孙海英目前在中国逍遥法外。
-
-**新闻来源**
-
-[Chinese man charged in scheme to coerce nationals to return to China](https://nypost.com/2022/03/30/chinese-man-charged-in-scheme-to-coerce-nationals-to-return-to-china/)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
