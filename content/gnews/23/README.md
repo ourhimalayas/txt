@@ -2,47 +2,29 @@
 ---
 
 
-## 有声|剧终
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2265219/)
+## CDC无法提供一个儿童新冠死亡实例
+` Little c` [轉載自GNews](https://gnews.org/zh-hans/2265227/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-拜登总统口出言
-Man in power 不掌权
-普金听了肝胆寒
-这是要我快下台
-话语未落俄军翻
-乌克兰战场剧情转
-改守为攻游击战
-歼敌旅来又歼团
-收回国土不容缓
-重建家园可期待
-逃离的人儿快回来
-快回来
-快快回到英雄怀
-夫妻团聚共团圆
-失家孩子有人爱
-年老人有养老院
-欣欣向荣建家园
-建我家园年万千
-年万千啊
-年万千
-生生不息乌克兰
+作者：波士顿五月花 Little c
 
-文字版原文：[剧终](https://gnews.org/zh-hans/2257171/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/cdc.jpg)图片来自网络
 
-音频处理：Fei797
-发稿：Fei797
+今年2月1日，ICAN组织律师根据信息自由法要求CDC提供材料，确认11岁以下和12-15岁两个年龄段儿童新冠死亡数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
+3月10日，CDC给出一个令人震惊的统一回复：国家卫生统计中心（NCHS）尚未针对此年龄段进行分析，因此无法向你提供有关数据。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+巧合的是，CDC于3月14日在其数据追溯网站上删除了上千个新冠相关死亡病例，其中包括416个儿科病例，占24%。
+
+既然CDC根本没有确认的儿童新冠死亡数据，他们为何能公开声称新冠是5-11岁儿童死亡的十大原因之一，并向儿童推广新冠疫苗呢？
+
+参考链接：
+
+[CDC says it cannot provide an instance of a single confirmed COVID-19 death in a child under 12 or in a child 12-15 years old.](https://www.icandecide.org/ican_press/cdc-cannot-provide-an-instance-of-a-single-confirmed-covid-19-death-in-a-child-younger-than-16/)
+
+* * *
+
+编辑/发布：Little c
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

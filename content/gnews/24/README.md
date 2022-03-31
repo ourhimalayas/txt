@@ -2,42 +2,47 @@
 ---
 
 
-## 文•贵天成——文贵先生谈“数字银行”（五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2265218/)
+## 有声|剧终
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2265219/)
 
-整理： BENJ1
-编辑：李易通
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+拜登总统口出言
+Man in power 不掌权
+普金听了肝胆寒
+这是要我快下台
+话语未落俄军翻
+乌克兰战场剧情转
+改守为攻游击战
+歼敌旅来又歼团
+收回国土不容缓
+重建家园可期待
+逃离的人儿快回来
+快回来
+快快回到英雄怀
+夫妻团聚共团圆
+失家孩子有人爱
+年老人有养老院
+欣欣向荣建家园
+建我家园年万千
+年万千啊
+年万千
+生生不息乌克兰
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/QS0_RRZ424O_D9FFB_N.png)图片来源：雅典娜设计组
+文字版原文：[剧终](https://gnews.org/zh-hans/2257171/)
 
+音频处理：Fei797
+发稿：Fei797
 
-郭文贵先生2021年12月5日直播
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
-数字银行解决了我们战友什么问题呢？就是刚才你说的汇款难和支付难。七哥在几年前就说过，未来人类最重要的问题，挣钱不是最难的，而花钱是最难的。这就是国家经济沙皇主义，通货膨胀，疯狂印刷钞票，就是奴隶老百姓、欺骗老百姓的这些老的旧的传统的金融系统。
-
-很多银行故意找黑客来黑它，然后它宣布：你看我这个被人黑了，我把客户信息泄露了，泄露以后呢，但是我不负责任，因为我交给法庭了，这属于所谓的非犯罪——没人犯罪，无犯罪主角的罪。相当于它推卸责任了。实际上银行把你的信息压根儿就是卖给这些互联网公司，卖给那些有需要的犯罪分子。所以现在全人类所有的银行，911之后跟911之前，完全变了个天。银行现在比政府、警察都严，太王八蛋了!
-
-数字银行是咱们的银行的未来，一定制定规则，在各国接受的情况下，决不能把银行变成恐怖经济主义的帮凶，这是核心中的核心。所以战友未来首先需要支付、存钱、信息安全、保密，更重要的事情是能抵押。因为现在抵押牌照还没有下来，它这个抵押不一定在银行。特别是想投资银行股权的人，你真的别想这一投资股票就拿钱走人，如果这样你就别投这个钱，你千万别投。现在已经里边要求十年的封锁期，十年以后才能卖股票，十年内你不能卖。十年内你要卖的话，咱们整个51%的机构投资者有权利优先买走。那么你怎么办呢?这个股权是100%可以在喜联储进行抵押的，只是时间的问题，要在喜联储获得抵押资格以后。
-
-接下来我再告诉大家，我们在某国的独立数字银行牌照已经是买完了，也是100%，那是会进入咱们的喜联储银行，也是喜联储的银行，咱不会只有一家银行，我告诉过大家咱最起码有五到十家的银行。这五到十家的银行你知道啥概念吗?我们达到走出地球的级别。
-
-喜联储旗下的数字银行能够提供抵押贷款、金融衍生交易等这些服务，战友们可以通过抵押喜币来获取现金流。
-
-资料来源：郭先生GTV、盖特直播
-
-往期回顾：
-[文•贵天成——文贵先生谈“数字银行”（一）](https://gnews.org/zh-hans/2260497/)
-[文•贵天成——文贵先生谈“数字银行”（二）](https://gnews.org/zh-hans/2260502/)
-[文•贵天成——文贵先生谈“数字银行”（三）](https://gnews.org/zh-hans/2261380/)
-[文•贵天成——文贵先生谈“数字银行”（四）](https://gnews.org/zh-hans/2261557/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

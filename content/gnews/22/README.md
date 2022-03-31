@@ -2,28 +2,52 @@
 ---
 
 
-## CDC无法提供一个儿童新冠死亡实例
-` Little c` [轉載自GNews](https://gnews.org/zh-hans/2265227/)
+## 《 正道之灯塔》改自 &#8211;灯塔 &#8212;
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2265229/)
 
-作者：波士顿五月花 Little c
+```
+制 作: 秘翻大剧场
+ 填 词：梁芒  改词:长笛  审核:文姝  发布:星星
+```
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/cdc.jpg)图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-31-231624.jpg)
 
-今年2月1日，ICAN组织律师根据信息自由法要求CDC提供材料，确认11岁以下和12-15岁两个年龄段儿童新冠死亡数据。
+```
+海浪不停 整夜吟唱
+ 战友们相拥着守望 
+    七芒星指引 执着信念 
+             我要穿越过这暗海
+                 新中国联邦灯塔之光 
+                     那屹立不变的爱
+                        忽然领悟 真善刻骨
+                             勇敢地跟随上路
+                                披星戴月 日夜追逐
+                            哪怕是暗夜迷雾
+                     双眼不再 模模糊糊
+                   海水已冲走愤怒
+             灯塔之光 就在彼岸
+                 那屹立不变的爱
+                     新中国联邦拨开霾毒
+                         勇敢的挑战魔共...
+                              爱过的人你在何处
+                                  是否半途就离开
+                                           就离开消逝在
+                                                   还有正义灯塔夺目
+                                             那是人类的正路
+                                                 那是你我的归宿
+```
 
-3月10日，CDC给出一个令人震惊的统一回复：国家卫生统计中心（NCHS）尚未针对此年龄段进行分析，因此无法向你提供有关数据。
-
-巧合的是，CDC于3月14日在其数据追溯网站上删除了上千个新冠相关死亡病例，其中包括416个儿科病例，占24%。
-
-既然CDC根本没有确认的儿童新冠死亡数据，他们为何能公开声称新冠是5-11岁儿童死亡的十大原因之一，并向儿童推广新冠疫苗呢？
-
-参考链接：
-
-[CDC says it cannot provide an instance of a single confirmed COVID-19 death in a child under 12 or in a child 12-15 years old.](https://www.icandecide.org/ican_press/cdc-cannot-provide-an-instance-of-a-single-confirmed-covid-19-death-in-a-child-younger-than-16/)
 
 * * *
 
-编辑/发布：Little c
+
+```
+来源参考 ：经梁芒重新填中文词.,改编自《奇异恩典》（Amazing Grace） 有人称《天赐恩宠》创作于18世纪的赞美歌，
+最初由英国牧师REV. John Newton作于1779年.
+```
+
+
+
 
  
 

@@ -2,51 +2,33 @@
 ---
 
 
-## 俄罗斯就“战争”描述威胁维基百科
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2265271/)
+## 有声|追踪加密资产在新兴市场经济体中的足迹
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2265288/)
 
-翻译：wenwu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unknown-46.png)图片来源：ishare.ifeng.com
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+近期，国际清算银行在其三月份的报告中分析了加密货币对新兴市场经济体货币主权的影响。
 
-俄罗斯官方互联网监管机构 Roskomnadzor 要求维基百科删除它所说的，关于俄罗斯在乌克兰的“特别行动”的虚假信息。
+该报告中的数据显示，自2020年中共病毒疫情危机以来，新兴市场经济体中兑换美元稳定币的交易量不断飙升。其中，土耳其里拉在稳定币市场中的交易份额从2020年1月的0.3%上升至2021年12月的26%，但里拉在全球外汇市场中的占比仅为0.5%，与加密货币市场的差距巨大。与此同时，在许多面临贬值压力且货币流动规模较小的新兴市场国家，点对点平台P2P的比特币交易量也大幅上升。
 
-俄罗斯互联网监管机构尤其感到不安的是，维基百科的条目很短，与克里姆林宫的官方说法有出入。
+该报告也提出，加密货币会吸走各国地方银行系统的资金，并帮助它们绕开政府的汇率与资本管制，这会对国家法币主权造成一系列的冲击，也可能影响到实体经济的稳定性。为此，该报告鼓励各国政府加强对加密货币的监管措施。
 
-例如，维基百科条目描述了俄罗斯的“入侵”，而克里姆林宫的官方说法是为“和平目的”的“军事行动”，《欧洲动态》(Euractiv)[报道](https://www.euractiv.com/section/digital/news/russia-threatens-to-block-access-to-wikipedia/)。
+对此，郭文贵先生近日在大直播中指出，加密货币市场的巨量波动并没有造成巨大的金融与社会动荡，这一点令全球的监管者感到十分惊讶。另一方面，拜登总统的数字货币行政令会进一步让加密数字货币走向主流。在此情况下，喜币由于其稳定币的设计、充足的储备金以及与黄金挂钩并采取严格KYC措施的特征，其必将在未来的监管竞赛中胜出。
 
-该条目中引用的伤亡人数也比莫斯科的官方数字高得多。
+文字版原文：[追踪加密资产在新兴市场经济体中的足迹](https://gnews.org/zh-hans/2258787/)
 
-Roskomnadzor 给维基百科的通知强调，它需要立即删除虚假内容，它说这些内容的目的是误导俄罗斯用户。
+音频处理：Fei797
+发稿：Fei797
 
-这是 Roskomnadzor 就这一问题向维基百科发出的第二次警告，此前在本月早些时候也曾向其提出过要求。
-
-据 Slate [报道](https://slate.com/technology/2022/03/russia-wikipedia-download-kiwix.html)，这是在一名俄罗斯维基百科顶级编辑因传播“虚假的反俄内容”而被捕之后发生的。
-
-本月早些时候，俄罗斯总统弗拉基米尔·普京（Vladimir Putin）颁布了一项法律，对那些叙述与克里姆林宫不同的记者判处15年监禁；莫斯科还在国内禁止了 Facebook 和 Instagram。
-
-作为抗议，CNN、BBC 和其他机构暂停了克里姆林宫的广播，而微软、苹果和谷歌则取消了他们的服务。
-
-在对维基百科进行威胁的同时，Slate 报道说，数据表明俄罗斯人成群结队地下载维基百科；事实上，在过去的一周里，俄罗斯以很大的优势成为下载量最大的国家。
-
-在2月24日入侵乌克兰之前，俄罗斯对维基百科的下载量很少突破前十名。
-
-**新闻来源：**[newsmax.com] [Russia Threatens Wikipedia Over ‘War’ Description](https://www.newsmax.com/newsfront/russia-wikipedia-ukraine/2022/03/30/id/1063563/) |发布时间：2022年03月30日
-
-* * *
-
-审核：文乐
-校对：花羽
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
