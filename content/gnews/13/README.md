@@ -2,49 +2,40 @@
 ---
 
 
-## 匪灾横行
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2262671/)
+## 乌克兰情报部门公布了 620 名俄罗斯在欧洲的特工名单
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2262832/)
 
-作者：香草山健身部-新世界的一员
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-毒苗邪雨侵神州，
+采集：玫瑰新闻组
 
-古老国度病缠身。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3C5527E7-41D3-4D2B-93D4-CD99FD870608_4_5005_c.jpeg)
 
-匪共当道肆虐行，
 
-人性跌落尘埃地。
 
-互害互伤失仁义，
 
-不及古代百饭娃。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/EE599C8A-3D6A-4C40-A55F-2D269B8A5141_4_5005_c.jpeg)
 
-盛世华城缺衣食，
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3961.png)所有 620 名特工都注册在同一个地址 – 莫斯科的 Bolshaya Lubyanka 街，即前克格勃 FSB 的地址。
 
-远比小说更残忍。
+据EURACTIV网络媒体援引路透社的报道，乌克兰军事情报局周一（3 月 28 日）公布了 620 人的姓名和联系方式，据称这些人是俄罗斯联邦安全局 (FSB) 的官员，参与了在欧洲的“犯罪活动”。
 
-触景追忆几千年，
+该信息无法独立核实。俄罗斯没有立即对名单发表评论。
 
-独裁未断饿死鬼。
+乌克兰国防部的情报部门[在其官方网站上的一篇俄语帖子中列出了据称是在莫斯科该机构总部注册的 FSB 雇员的人员名单。](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;hl=en&amp;client=webapp&amp;u=https://gur.gov.ua/content/sotrudnyky-fsb-rossyy-uchastvuiushchye-v-prestupnoi-deiatelnosty-stranyahressora-na-terrytoryy-evropy.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/CB529138-0111-44E9-9EAC-F7C903236DCC_4_5005_c.jpeg)
+“俄罗斯联邦安全局的雇员参与了欧洲侵略国的犯罪活动，” 它说，但没有透露有关涉嫌犯罪的进一步细节。
 
-迷茫羔羊信牧人，
+它在 FSB 莫斯科总部的照片下提供了这些名字，FSB 是苏联时代克格勃安全警察的继任者。
 
-生死劫难痛领悟。
+这些名字似乎是俄罗斯国民。在姓名旁边，乌克兰特种部队的声明包含出生日期、护照、地址登记、债务、SIM 卡、调制解调器、汽车、特别说明等数据。所有 620 名特工都注册在同一个地址——莫斯科的 Bolshaya Lubyanka 街，即前克格勃 FSB 的地址。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/6E878D77-D03C-44C7-A803-4046B28027C2.jpeg)
+没有具体说明有关人员所在和工作的欧洲国家。
 
-**编辑**/**校对/发稿：**林礼
+新闻链接：
+[https://www.euractiv.com/section/global-europe/news/ukraine-intelligence-publishes-names-of-620-alleged-russian-agents-in-europe/](https://www.euractiv.com/section/global-europe/news/ukraine-intelligence-publishes-names-of-620-alleged-russian-agents-in-europe/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

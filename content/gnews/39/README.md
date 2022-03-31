@@ -2,32 +2,27 @@
 ---
 
 
-## 中共主要国有银行对未来预期表示悲观
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261578/)
+## 台湾吕丹宜博士公开质疑中共病毒疫苗 称3-5年内身体将巨变
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261980/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒3月29日报道，中共最大的几家商业银行均表示，中共国有银行今年将面临多重高风险不利因素。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-58.png)
-
-中共资产规模第二大银行中国建设银行以及第四大银行中国银行均表示，中共国的银行业今年将面临更加“复杂和严峻的营商环境”。全球中共病毒爆发、西方主要发达国家放弃金融宽松政策，以及地缘政治冲突加剧等不利因素，将严重影响中共国的金融前景。同时，交通银行行长也披露，该行今年很难实现令人满意的盈利，大家对未来预期表示悲观。
-
-分析人士认为，目前中共病毒和疫苗灾难呈现爆发和失控的形势，导致国内主要城市部分或全面封锁，将雪上加霜拖垮中共经济，而首当其冲的就是涉及面广泛的服务行业。服务行业的贷款拖欠率上升，会造成极高的银行信贷风险。更大的金融风险则来自摇摇欲坠的中共房地产业。占中共商业银行信贷规模70%左右的房地产业崩盘，将导致中共国有银行全面垮塌、破产。
+撰稿：zhong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3854.png)
+日前，台湾有一名获得美国自然医学医师执照，名为吕丹宜的相关专业人士，对中共病毒疫苗公开质疑。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3921.png)
+吕丹宜本身是台湾钱副总统吕秀莲的侄女，她明确称中共病毒疫苗试验性生物制剂根本不符合一般制药流程，任何疫苗研发都至少需要5-10年时间。这个“疫苗”连动物实验都没有做，就直接进行接种，她认为未来3至5年内接种疫苗者身体将会发生巨大的变化。
 
 参考链接：
 
-- [China](https://www.reuters.com/world/china/)
-- [China’s largest banks signal tough times ahead](https://www.reuters.com/world/china/chinas-largest-banks-signal-tough-times-ahead-2022-03-29/)
+[吕丹宜博士:这个试验性生物制剂根本不符合一般制药流程](https://gettr.com/post/p12l2a98a43)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-总编：zhong
-编辑：玫瑰圓
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/月曆-27.jpeg)
+
+审核/编辑/总编：zhong
+
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3854.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
