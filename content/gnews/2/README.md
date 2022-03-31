@@ -2,27 +2,34 @@
 ---
 
 
-## 俄军炮击乌克兰马里乌波尔的红十字会仓库
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2261993/)
+## 澳洲石油公司将西北天然气管道连接到普鲁托海上油田
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2262068/)
 
-By:**秘翻新闻**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**2022-03-31**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-114.png)图片来源 福克斯新闻
-[据《福克斯新闻》 3月30日报道，人道主义援助组织和卫星图像显示，俄军两次炮击了乌克兰马里乌波尔的一座空旷的红十字会大楼。](https://www.foxnews.com/world/red-cross-shelled-mariupol)
+翻译/编辑：小红帽
 
-[红十字会证实了周三网上流传的一张卫星照片，照片显示国际红十字委员会在马里乌波尔的一个仓库的屋顶上有大洞，上面有红白相间的红十字标志。](https://www.foxnews.com/world/red-cross-shelled-mariupol)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1200x800.jpg)图片来源：Bloomberg
 
-[乌克兰女监察员柳德米拉·杰尼索娃在周三的Facebook帖子中，称该事件是俄罗斯的另一项战争罪行。她写道：直到现在，炮击标有红十字的建筑物和平民车辆的，只让我想到希特勒的军队。我呼吁国际社会谴责俄军炮击红十字会大楼的野蛮行为，并采取措施尽快结束乌克兰领土上的血腥战争。”](https://www.foxnews.com/world/red-cross-shelled-mariupol)
 
-[自2月24日以来，俄军对马里乌波尔这个位于黑海沿岸的战略港口城市进行了破坏。马里乌波尔的居民已经没有电、煤气、食物、水、互联网和手机服务。](https://www.foxnews.com/world/red-cross-shelled-mariupol)
+根据路透社3月31日报道，澳大利亚伍德赛德石油公司 (Woodside) 周四表示，已开始从其普鲁托（Pluto）海上油田向西北大陆架项目的液化天然气 (LNG) 工厂输送天然气，从而使该公司能够从全球液化天然气价格飙升中获利。
 
-秘翻新闻 Grace编辑报道
+天然气流经一条3.2公里（2 英里）长的管道，该管道将其普鲁托液化天然气工厂与西北大陆架项目的卡拉萨（Karratha）天然气厂(KGP)连接起来。
 
-发布 : 恩典
+该互连管道为澳大利亚最大的独立天然气生产商伍德赛德提供了一个额外的普鲁托油田的天然气出口，同时也有助于填补卡拉萨天然气厂的闲置产能。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
+伍德赛德首席执行官梅格-奥尼尔（Meg O’Neill）在一份声明中表示：“通过卡拉萨天然气厂处理来自普鲁托海上油田的天然气，使伍德赛德能够向国际天然气市场输送更多的液化天然气。”
+
+新闻来源：[Australia’s Woodside starts sending Pluto gas to NW Shelf LNG plant](https://www.reuters.com/business/energy/australias-woodside-starts-sending-pluto-gas-nw-shelf-lng-plant-2022-03-31/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

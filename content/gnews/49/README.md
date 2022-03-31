@@ -2,27 +2,27 @@
 ---
 
 
-## 渥太华大学将取消疫情限制措施
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258328/)
+## 加拿大将致力发展新型核能计划
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258497/)
 
-采编：加拿大温哥华杨帆农场 – 青青
+编译撰稿：加拿大温哥华杨帆农场 – 活力人生
 
-编译：加拿大温哥华杨帆农场 – 晨熹
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-12-3.jpg)图片来源：ctv
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-13-1.jpg)图片来源：CNNPN
 
 
-据加拿大【CTV新闻】3月29日报道，渥太华大学从5月份开始，将取消在校园内强制配戴口罩和使用“新冠病毒”疫苗接种证明。
+据【加拿大广播公司】3月28日报道，萨斯喀彻温省、安大略省、新不伦瑞克省和阿尔伯塔省最近联合发布了通过[小型模块化核反应堆]来发展该国核能工业的战略计划。
 
-该大学日前发布声明称：鉴于安省政府最近放宽了公共卫生限制，将从 5月1日起暂停实施配戴口罩并提供疫苗接种证明才能进入校园的要求。但同时会根据疫情实际变化，随时撤销以上规定。
+报道称，该计划中的新型核反应堆比传统的更小但更有效。因此，这使得相关设备能更容易被运输，安装和建造。据悉，每座[小型模块化核反应堆] 可产生三倍于传统反应堆的能量，并足以为 30多万个家庭全年供电。
 
-据悉，该大学所在的安大略省目前已取消了配戴口罩和出示疫苗接种证明等大部分疫情防控措施。
+对此，各省相关部门表示，新的核能计划可为全国特别是偏远地区居民提供安全、可靠和清洁的电力来源。加拿大因此有望在未来成为该技术的主要输出国。
+
+文贵先生在日前的直播中也指出，未来的清洁能源必将成为全球工业发展的主导。而试图通过原油，天然气等制约欧洲和世界生存的时代即将一去难返。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-原文链接： [https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068](https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068)
+原文链接： [https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928](https://www.cbc.ca/news/canada/saskatchewan/smr-nuclear-power-provinces-canada-1.6399928)
 
  
 

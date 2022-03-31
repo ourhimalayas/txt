@@ -2,31 +2,28 @@
 ---
 
 
-## 秘翻新闻｜俄乌战争酿二战以来最严重粮食危机
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2257340/)
+## 渥太华大学将取消疫情限制措施
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2258328/)
 
-**By:[秘翻新闻](https://gettr.com/post/p12nmbm2368)**
+采编：加拿大温哥华杨帆农场 – 青青
 
-**[2022-03-30](https://gettr.com/post/p12nmbm2368)**
+编译：加拿大温哥华杨帆农场 – 晨熹
 
-**新闻内容:**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-12-3.jpg)图片来源：ctv
 
-**1.上海大规模建方舱 官方“做假账”隐瞒疫情**
 
-**2.马士基集团警吿：上海封城将进一步提高运输成本**
+据加拿大【CTV新闻】3月29日报道，渥太华大学从5月份开始，将取消在校园内强制配戴口罩和使用“新冠病毒”疫苗接种证明。
 
-**3.** **恐怖！FDA批准50岁及以上人群的第二剂加强针**
+该大学日前发布声明称：鉴于安省政府最近放宽了公共卫生限制，将从 5月1日起暂停实施配戴口罩并提供疫苗接种证明才能进入校园的要求。但同时会根据疫情实际变化，随时撤销以上规定。
 
-**4. 乌克兰大使称：俄罗斯战损使其正在非军事化**
+据悉，该大学所在的安大略省目前已取消了配戴口罩和出示疫苗接种证明等大部分疫情防控措施。
 
-**5.美新元首会晤促合作 拜登拟拨4亿美元抗衡中共印太威胁**
+校对编辑：硫酸羟氯喹64
 
-🔗Getter链接：**[https://gettr.com/post/p12nmbm2368](https://gettr.com/post/p12nmbm2368)**
+发稿：文明(添草灭共)
 
-发布:星星
+原文链接： [https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068](https://ottawa.ctvnews.ca/university-of-ottawa-dropping-proof-of-vaccination-and-masking-rules-1.5838068)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

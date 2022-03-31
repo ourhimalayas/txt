@@ -2,23 +2,40 @@
 ---
 
 
-## 视频|新中国联邦和法治基金在乌克兰的人道救援行动
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2261823/)
+## 美国参众两院今夏或将通过《美国竞争法》
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261946/)
 
-制作：香草山视频部
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+整理：等风来
+编辑：JH
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/NPUFV8TVG86LC5ULY9F.png)图片来源：Samira Bouaou/The Epoch Times
 
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-发稿：呼吸的雾霾（文小呼吸）
+美国国会参议院3月28日通过了《美国竞争法》（America Competes Act），该法案为美国的半导体制造商提供了520亿美元的补贴。该法案以68票对28票的结果在参议院通过后，将进入与众议院版本谈判协商中，希望能在数个月内的讨论中得出结果。
 
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+内容近3000页的《美国竞争法》目标为加强美国国内供应链、先进技术研发和科学研究，以提升美国竞争力在全球领域与中共国抗衡。
+
+美国国会暨行政当局中国委员会（CECC）领袖28日致函国会两党领袖，呼吁两院协商会议小组在法案最终文本中保留现有涉及中共国人权议题条文内容。
+
+议员呼吁最终协调版本还必须纳入内容，包括针对中共国破坏全球治理及其在国际组织影响力的努力进行报告，以及对中共国公司在美国资本市场的情况进行年度审查，以协助辨别伤害美国国家安全、严重侵犯人权，或增加美国投资者金融风险的中共国企业。
+
+议员们表示，保留法案中强有力的措辞和政策倡议，表明保护和推进民主自由、人权和法治不能与经济合作和安全利益脱离关系。
+
+参考链接：
+
+[自由财经：美参院通过520亿美元芯片法案 将和众院协商](https://ec.ltn.com.tw/article/breakingnews/3875051)
+
+[美国之音：美参院通过大型抗中法案 将与众院进入最终协商](https://www.voachinese.com/a/us-senate-moves-forward-china-bill-for-reconciliation-20220328/6505803.html)
+
+发布：tianzhihuan
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

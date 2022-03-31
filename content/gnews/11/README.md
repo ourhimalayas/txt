@@ -2,30 +2,40 @@
 ---
 
 
-## 中共国3月制造业采购经理指数低于临界点
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2261947/)
+## 疫苗副作用集萃-小孩子接种后流鼻血
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261986/)
 
-编辑：文宝
+#### 雅典娜情报组《疫苗灾难收集专栏》 
 
-3月份，中共国制造业采购经理指数（[PMI](https://news.163.com/news/search?keyword=PMI)）为49.5%，比上月下降0.7个百分点，低于临界点，制造业总体景气水平有所回落。
-![](http://dingyue.ws.126.net/2022/0331/3c7dfd37j00r9l5u2000vc000fe009pg.jpg)
-从企业规模看，大型企业PMI为51.3%，比上月下降0.5个百分点，高于临界点；中型企业PMI为48.5%，比上月下降2.9个百分点，低于临界点；小型企业PMI为46.6%，比上月上升1.5个百分点，低于临界点。
+整理：gardeniahu
+编辑：BENJ1
 
-从分类指数看，构成制造业PMI的5个分类指数均低于临界点。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)图片来源：雅典娜设计组
 
-生产指数为49.5%，比上月下降0.9个百分点，表明制造业生产景气度回落。
 
-新订单指数为48.8%，比上月下降1.9个百分点，表明制造业市场需求有所减弱。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-原材料库存指数为47.3%，比上月下降0.8个百分点，表明制造业主要原材料库存量继续降低。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16-12.png)
+疫情|新冠疫苗副作用  小朋友接种新冠疫苗后的反应
 
-从业人员指数为48.6%，比上月下降0.6个百分点，表明制造业企业用工景气度有所下降。
+宝宝5岁半，比较瘦弱，脾胃一直不太好。幼几园安扌非接种新冠疫苗，一直未参加，因为前期感冒症状和脾胃虚弱老肚子疼，医生不建议接种。感冒好了后，因为不接种会不让上幼几园，不得不接种。接种完后没有什么症状，第二天带着出去玩也没有反应，晚上在家玩突然流鼻血，而且量很多，属于突然喷射出，然后就没了，吓坏老母亲。第二天也没任何反应，晚上睡觉前说有鼻涕，擤鼻涕又是鼻血一股，但是也没有继续流。第三天没有症状，第四天幼几园回来老师反映有流鼻血，也是一点点。准备联系接种单位咨询情况。不知道其他小宝贝有没有类似情况。
 
-供应商配送时间指数为46.5%，比上月下降1.7个百分点，表明制造业原材料供应商交货时间继续放慢。
+#新冠疫苗 #小朋友打新冠疫苗 #接种疫苗后的反应
 
-原文链接：[https://www.163.com/money/article/H3PE9RTD002580S6.html](https://www.163.com/money/article/H3PE9RTD002580S6.html)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-71.png)DISCORD
+[新冠疫苗副作用，小孩子接种后流鼻血](https://www.xiaohongshu.com/discovery/item/621e125d000000000102c613?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648607121)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+
 
  
 
