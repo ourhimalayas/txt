@@ -2,25 +2,29 @@
 ---
 
 
-## 乌克兰与波兰就完全关闭与白俄罗斯的边境进行谈判
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2261420/)
+## 新中国联邦俄乌战争前线救援公告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261576/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：纽约香草山 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-据乌克兰信息报3月30日报道，乌克兰正在与波兰政府就完全关闭波兰与白俄罗斯的边界进行谈判，目的是切断波兰与白俄罗斯边境的补给线。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-34.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片-1-22.jpeg)乌克兰驻波兰大使安德烈·杰希察（Andrii Deshchytsia）。（图片来自乌克兰信息报）
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-乌克兰驻波兰大使安德烈·杰希察（Andrii Deshchytsia）还表示，乌克兰外交官还在与立陶宛，拉脱维亚和爱沙尼亚举行会谈，以便他们同时关闭与白俄罗斯和俄罗斯的边界，彻底切断对两国的运输补给线。
-
-3月25日，乌克兰基础设施部致函欧盟委员会，提议完全封锁与俄罗斯和白俄罗斯的运输服务。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
 参考链接：
-[https://reurl.cc/AKV8Yj](https://reurl.cc/AKV8Yj)
 
-总编：青城道姑
-发布：文曦
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
+
+总编：zhong
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

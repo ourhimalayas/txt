@@ -2,43 +2,32 @@
 ---
 
 
-## 全球和澳洲疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261432/)
+## 中共主要国有银行对未来预期表示悲观
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261578/)
 
-整理：枳实
-美工：精灵蓝
+作者：纽约香草山 – 侠肝义胆
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒3月29日报道，中共最大的几家商业银行均表示，中共国有银行今年将面临多重高风险不利因素。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/03/11-58.png)
+
+中共资产规模第二大银行中国建设银行以及第四大银行中国银行均表示，中共国的银行业今年将面临更加“复杂和严峻的营商环境”。全球中共病毒爆发、西方主要发达国家放弃金融宽松政策，以及地缘政治冲突加剧等不利因素，将严重影响中共国的金融前景。同时，交通银行行长也披露，该行今年很难实现令人满意的盈利，大家对未来预期表示悲观。
+
+分析人士认为，目前中共病毒和疫苗灾难呈现爆发和失控的形势，导致国内主要城市部分或全面封锁，将雪上加霜拖垮中共经济，而首当其冲的就是涉及面广泛的服务行业。服务行业的贷款拖欠率上升，会造成极高的银行信贷风险。更大的金融风险则来自摇摇欲坠的中共房地产业。占中共商业银行信贷规模70%左右的房地产业崩盘，将导致中共国有银行全面垮塌、破产。
+
+参考链接：
+
+- [China](https://www.reuters.com/world/china/)
+- [China’s largest banks signal tough times ahead](https://www.reuters.com/world/china/chinas-largest-banks-signal-tough-times-ahead-2022-03-29/)
 
 
-雅典娜疫情更新（2022年 3月30日）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-113.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-119.png)
-[2022年3月30日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
-
-数据来源：
-
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+总编：zhong
+编辑：玫瑰圓
+审核：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

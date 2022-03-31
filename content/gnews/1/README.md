@@ -2,45 +2,33 @@
 ---
 
 
-## 乌克兰大救援由于大巴车晚到,被接的人会说我们是骗子
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2261796/)
+## 上海宣布全域静态管理 传浦东阳性数量惊人
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2261928/)
 
-视频链接：[odysee.com/@郭文贵先生大直播](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8816.50%EF%BC%89%E4%B9%8C%E5%85%8B%E5%85%B0%E5%A4%A7%E6%95%91%E6%8F%B4%E7%94%B1%E4%BA%8E%E5%A4%A7%E5%B7%B4%E8%BD%A6%E6%99%9A%E5%88%B0%2C%E8%A2%AB%E6%8E%A5%E7%9A%84%E4%BA%BA%E4%BC%9A%E8%AF%B4%E6%88%91%E4%BB%AC%E6%98%AF%E9%AA%97%E5%AD%90%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
+By:**秘翻新闻**
 
-**郭文贵先生：**就共产党种下了这些毒，你想在这些中国人心里拿出来，太难了！我们在乌克兰救人，小飞象、小飞侠联系中国人，还在怀疑我们：“你们是不是反共？会不会给我带来麻烦？” 好，赶快，我在电话里跟他们说，我说得很清楚，我跟长岛哥、老班长、大卫都说了，凡是这样的，求求你，赶快去，你们去找共产党去，我们再也不跟你联系了。
+**2022-03-31**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-176.png)图片来源   HECTOR RETAMAL/AFP via Getty Images
+[新唐人3月31日报道，上海疫情大爆发，管控措施也不断升级。在宣布“分批封控”不久后，上海当局3月30日又喊出要采取全域静态管理的措施。](https://www.ntdtv.com/gb/2022/03/30/a103387688.html)
 
-我们昨天中午去接车，小飞象嗷嗷地喊，跟文耀，说我们的车晚到了，结果被接的人说：“你们是骗子。” 然后就走了。我说这些人我们再也不要救他了。
+[该消息迅速引发中共国网友关注。很多人认为，所谓“全域静态管理”就是封城的代名词。](https://www.ntdtv.com/gb/2022/03/30/a103387688.html)
 
-乌克兰在战争中，我们派两个大客车接你，就得准时到，差一分钟不行？共产党到现在，大使馆还没有认为，条件还不安全，他小姨子回家生孩子去了，不接你没事，我们行善还成了罪了，是吗？那我们就不行善呗，你就不要让我们接你不就完了吗？你觉得还有比我们行善比这帮作恶的人还着急，我们不成傻子了吗？救不了，不救。我们到前线救人不是责任。
+[随着上海疫情爆发失控，坚称不封城的上海当局也开始逐步提升防控等级，从封锁部分小区到部分交通管制，最后到现在的全域静态管理。](https://www.ntdtv.com/gb/2022/03/30/a103387688.html)
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+[中共努力打造的这个文明防疫窗口逐渐破碎。](https://www.ntdtv.com/gb/2022/03/30/a103387688.html)
 
-编辑整理：Jacques；
+[许多上海市民对野蛮防疫政策比较反感。一些当地民众认为，当局现在正在用温水煮青蛙的欺骗手段，不断剥夺市民的自由。](https://www.ntdtv.com/gb/2022/03/30/a103387688.html)
 
-字幕档制作：兵嫂；
+[此前上海很多小区刚开始封控时，官方也称只做一轮核酸筛查，3天即解封。结果很快加码进行又一轮筛检，现在解封变得遥遥无期。](https://www.ntdtv.com/gb/2022/03/30/a103387688.html)
 
-视频制作及上传：Cindy；
+[至于上海分批封控变成同步封控的原因，网传消息指，是因为浦东筛查出大量阳性，情况非常严重。有消息指，浦东崂山四村和五村等社区发现大量感染，甚至有小区检测几乎全是阳性，医院吓得都不敢再去检测了。](https://www.ntdtv.com/gb/2022/03/30/a103387688.html)
 
-G-News发布：海贼王M.D.LUFFY；
+秘翻新闻 二丫编辑报道
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+发布 : 恩典
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
