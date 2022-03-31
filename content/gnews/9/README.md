@@ -2,42 +2,24 @@
 ---
 
 
-## 全球和澳洲疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261432/)
+## 视频|郭先生透露才旺罗布的真正死因
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2261594/)
 
-整理：枳实
-美工：精灵蓝
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/图片5-14.png)图片：雅典娜农场设计组 精灵蓝
+在3月27日大直播中，郭文贵先生解释了战友才旺罗布先生的真正死因。
 
+郭先生表示，才旺罗布在生活中是一个非常有才情的人，而与他相交的大多都是颇具文化深度的朋友。郭先生回忆道，中共国内某音乐届大佬在介绍才旺罗布时提到，西藏人太可怜了，为此，他愿意用生命去拯救每一个西藏人。
 
-雅典娜疫情更新（2022年 3月30日）
+郭先生也透露称，才旺战友因为关注爆料革命和郭先生直播而遭受了中共的迫害。然而即便如此，才旺战友每次在观看直播时都会给所有战友念经祈福。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-113.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/6-119.png)
-[2022年3月30日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/03/全球疫情更新模板-new3月29日改进.pdf)
+郭先生还提到，由于早先他与才旺战友通传过信息，因此他最初相信了才旺战友自焚的消息。但据知情者向郭先生爆料称，才旺战友事实上是被中共殴打致死。
 
-数据来源：
+发稿：林礼
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

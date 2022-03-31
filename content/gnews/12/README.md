@@ -2,48 +2,35 @@
 ---
 
 
-## 澳洲养老金领取者优惠卡有哪些好处？
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2261398/)
+## 澳洲大选临近 朝野不改对中共强硬基调
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261579/)
 
-#### 澳洲新闻时事动态，尽在雅典娜【澳洲热点】
+作者：日本东京方舟农场 – Miyali7768(文玉）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体3月29日报导，澳大利亚在大选前，各个政治派别不可能改变对中共的强硬路线。
 
-编辑/整理：小鱼儿
+![](https://assets.gnews.org/wp-content/uploads/2022/03/10-43.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/LQL6I7337R0QZU3WF1G.png)图片来源：雅典娜设计组&Choice
+澳大利亚总理莫里森，近日就是否接见中共新任驻澳大利亚大使的问题表示，在中共政府持续冻结双边外交沟通的情况下，他与中共大使会面不合时宜。
 
+悉尼大学中国研究中心主任古德曼教授认为，中共国大使向莫里森总理传递了习近平主席的信息，这在中共国可能被解读为总理承认澳大利亚是中共的附庸国。因此总理与中共大使会面会带来政治风险。
 
-养老金领取者优惠卡（Pensioner Concession Card）旨在帮助符合条件的澳大利亚人在经济上摆脱困境，其福利包括更便宜的药品、免费的医生就诊和听力服务帮助。
+除联邦政府对中共采取强硬立场，一直比较亲中的工党也展现出和执政党类似的态度。工党领袖阿尔巴尼斯表示，自己没有与中共大使会面，也没有与中共国大使馆的任何其他官员会过面。
 
-如果您有资格获得该卡，您可能会在到达医疗服务（Medicare ）安全网后获得更高的医疗费用退款，以及药品福利计划下更实惠的药品。例如，可以通过国家糖尿病服务计划 (NDSS)，为需要药物治疗的残障人士提供产品折扣。您还可以通过澳大利亚邮政，定向的邮件获得折扣。
+迪肯大学一位分析人士认为，澳大利亚大选在即，反共气氛已经被鼓动起来，与中共亲善的任何举动都是政治负债而非资本，各党派领导人都不会冒这个风险。
 
-除了您的地方议会之外，您所在的州或领地政府可能会提供更多福利。例如，您可能会在当地获得房产、水费、能源账单、公共交通和机动车登记方面的折扣。而且，如果您有受抚养的孩子，他们也可能有资格获得一些福利。如果您想以其他语言从——服务澳大利亚（Services Australia） 获取更多详细信息，您可以在周一至周五上午 8 点至下午 5 点拨打 131 202联系多语种电话服务。
+参考链接：
 
-如果您满足以下条件，您可以获得养老金领取者优惠卡：
-
-- 正在领取以下任何一种养老金：老年养老金、丧亲补助金、照顾者补助金、残疾支持补助金、新开始补助金、青年补助金或育儿补助金
-- 年满 60 岁且正在领取寡妇津贴，或已领取疾病津贴或特殊福利超过 9 个月
-- 满足收入测试
-- 住在澳大利亚
+- [澳洲朝野避见中国大使 对华强硬基调难改变](https://www.dw.com/zh/%E6%BE%B3%E6%B4%B2%E6%9C%9D%E9%87%8E%E9%81%BF%E8%A7%81%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF-%E5%AF%B9%E5%8D%8E%E5%BC%BA%E7%A1%AC%E5%9F%BA%E8%B0%83%E9%9A%BE%E6%94%B9%E5%8F%98/a-61292069)
 
 
-无需申请养老金领取者优惠卡。根据澳大利亚服务部的说法，如果您年满 60 岁，如果您收到某些救助金超过 9 个月，您将收到一张 养老金领取者优惠卡。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
-如果一些澳大利亚人有“部分工作能力”并获得合格的救助金，他们也可能有资格。
-
-对于 60 岁以下的澳大利亚人，服务澳大利亚（Services Australia）列出了一些符合条件的救助金，可以确保自动获得卡的资格。其中包括老年养老金、照顾者救助金、残疾支持养老金（DSP）、单亲的育儿费；或某些救助金（如果您是单亲、照顾受抚养的孩子并正在寻找工作）、青年津贴或求职者救助金。
-
-养老金领取者优惠卡，从符合条件的澳大利亚人获得某些救助金之日起发放，为期两年，但有义务报告任何情况的变化。
-
-参考资料：[What is a Pensioner Concession Card?](https://www.canstar.com.au/superannuation/pensioner-concession-card/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+总编：zhong
+编辑：飞虹
+审核：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

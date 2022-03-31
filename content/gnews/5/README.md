@@ -2,12 +2,12 @@
 ---
 
 
-## 乌克兰揭发600多名俄罗斯间谍，对普京的间谍战造成巨大打击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261535/)
+## 3月30日文贵大直播要点（图片1-6）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2261632/)
 
-03/29/2022 乌克兰声称已经发现了600多名俄罗斯间谍，并公布了一系列的个人详细信息
+设计 五月花农场 水涨船高；整理 黄金时代
+![](https://assets.gnews.org/wp-content/uploads/2022/03/90DB0806-A431-42B2-A555-6F9EAD992828-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/789C99A2-1826-4D93-B263-232C62855DD2-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/4D39F2E0-1D04-4691-8FCC-98E43F54E092-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/6DE22C20-F892-4617-A393-02024B14CD70-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/B2B4647C-C61D-4711-8443-2A890525BB4F-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/056C94C1-FA89-4300-B709-3044ECEEDE09-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/3DBBFDDE-DA91-4418-9583-9D60E4B14D0E-scaled.jpeg)发布：水涨船高![]()
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

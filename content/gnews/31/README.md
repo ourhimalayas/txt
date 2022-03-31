@@ -2,20 +2,23 @@
 ---
 
 
-## 2022年3月31日《樱花快报》：中共国外交部高调宣称中俄合作“三个无上限”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2260548/)
+## 疫情｜BA.2病毒株日本扩散 防疫限制解除后单日确诊数反弹
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2261030/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220331快报.jpg)
+**图/文｜CP **
+**发布时间｜31/03/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/BA.2病毒株日本擴散-防疫限制解除後單日確診數反彈.jpg)
+日本疫情在全面解除防疫措施约一周后出现反弹，全国昨日确认96例死亡病例和53,753例确诊病例，比一周前增加了一倍有多。其中，东京都新增个案再次迫近万宗，录得9,520宗，较上周三增3,090宗。而最早解除防疫限制的冲绳县，相隔一个月后再次破千，录1,058宗。
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+东京都知事小池百合子表示，Omicron亚型的BA.2正取代成为主流病毒株，相信情况会继续恶化，需加强危机感。
+
+不过，日本疫情专家委员会会长尾身茂出席众议院会议时则认为，目前国内的主流病毒正向BA.2转变当中，新冠疫情是否再出现感染扩大的状况仍需要观察多数日。原因是第3针接种率较日本高的国家，均有出现感染扩大的状况，而且日本整体的感染仍然呈下降趋势，只是个别地区的感染较多。
+
+来源｜[Japantimes](https://www.japantimes.co.jp/news/2022/03/30/national/covid-cases-mar-30/)
+
+* * *
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

@@ -2,29 +2,29 @@
 ---
 
 
-## 美乌总统电话讨论援助和制裁 将再提供乌5亿美元援助
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2261391/)
+## 新中国联邦俄乌战争前线救援公告
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261576/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午12.26.04.png)图片来源：互联网
-美国总统拜登和乌克兰总统泽连斯基周三（3月30日）电话讨论持续的对乌援助和制裁俄罗斯工作，拜登通知泽连斯基美国政府将提供5亿美元的直接预算援助，泽连斯基通报战场和伊斯坦布尔谈判局势。
+作者：纽约香草山 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-根据白宫宣读的声明，两位总统先生讨论美国及其盟国和合作伙伴援助乌克兰和制裁俄罗斯的持续工作。拜登总统电话中通知乌克兰总统泽连斯基将提供5亿美元的直接预算援助。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/13-34.png)
 
-声明说:”拜登总统今天与乌克兰总统泽连斯基就美国及其盟国和合作伙伴为向乌克兰提供军事、经济和人道主义援助以及为俄罗斯对乌克兰的野蛮侵略而付出沉重代价而进行的持续工作进行了交谈。“
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-声明还写道：”美国打算向乌克兰政府提供5亿美元的直接预算援助。“
-
-乌克兰总统泽连斯基在[推特](https://twitter.com/ZelenskyyUa/status/1509202046574022656)上写道：”刚刚结束了一个小时的谈话（与美国总统拜登）. 共同评估战场上和谈判桌上的局势。谈到了具体的防御性支持、加强制裁的新一揽子计划、宏观金融和人道主义援助。“
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
 参考链接：
 
-【1】 [拜登总统与乌克兰总统泽连斯基的 通话 宣读](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/30/readout-of-president-bidens-call-with-president-zelenskyy-of-ukraine-8/)
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
-* * *
 
-*编辑&发布：长岛开心*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-21.jpg)
 
+总编：zhong
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
