@@ -2,18 +2,12 @@
 ---
 
 
-## 七哥金句：懦弱的民族总是不切实际的幻想
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2260657/)
+## 美国军方对疫苗伤害的隐瞒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2260820/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/03/七哥金句6-1-1-scaled.jpg)
-发布：枫叶红了
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+03/29/2022 OANN临界点新闻：美国军方为掩盖疫苗造成的伤害，试图通过篡改数据，以电脑故障等为由来掩饰急剧增加的疫苗相关的疾病数据。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

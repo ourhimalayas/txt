@@ -2,37 +2,29 @@
 ---
 
 
-## 俄罗斯将保持天然气合同货币不变
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2260117/)
+## 川普的Truth Media应用程序结束了吗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2260144/)
 
-翻译与编辑：灭共文明、冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
-《路透社》3月30日报道，**俄罗斯两名消息人士周三表示，俄罗斯计划保持向欧洲出口天然气的合同货币不变，但将寻求用卢布进行最终支付，作为转换天然气贸易货币的选择之一。**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/EUV3KPNMWZPW3ARVS54NLRPOKY-e1648679741636.jpg)俄罗斯天然气工业股份公司在北极亚马尔半岛拥有的Bovanenkovo气田的气井（路透社）
-此前，俄罗斯称将很快要求“不友好”的国家以卢布支付燃料费用，这引发了欧洲可能出现天然气短缺的警告。
+撰稿：西枫westca
 
-一位消息人士称，**只有支付货币在变化，合同货币没有变化。对于以欧元成交的交易，付款应按照俄罗斯央行设定的卢布/欧元官方汇率进行。**
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Donald-Trump-launched-Truth-Social-New-Social-Media-Platform.png)图片来源：world wire
+据多家媒体3月30日报道， 前总统川普的特朗普的Truth Social应用程序流量暴跌，自上月发布以来，注册人数下降了惊人的93%，流量也同样下降。
 
-一位参与起草天然气付款计划的财务消息人士对路透表示**:“目前还没有最终决定，工作正在进行中。**
+在总统日推出的这款社交媒体应用程序推出时，Truth Social曾飙升至苹果免费下载的顶部，根据Sensor Tower的数据，安装量已经下降了80%，在苹果App Store上的下载页面从第一周的361，000次访问下降到上周七天内的90，000次左右。其网站的流量也急剧下降，从推出第一周的600万次访问量下降到现在的每周访问量约为190万次。尽管最初受欢迎程度飙升，但该应用程序从一开始就受到技术故障的困扰。用户报告了尝试注册时的错误和延迟，许多成功注册的人表示他们被迫进入一个长长的”候补名单”。Truth Social到目前为止已到达了120万次安装。
 
-**一名德国发言人表**示，俄罗斯总统周三在电话中对德国总理肖尔茨(Olaf Scholz)表示，**欧洲合作伙伴的情况不会发生任何改变，付款仍将以欧元支付，并转移至俄罗斯天然气工业银行。**他补充说，肖尔茨承诺遵守七国集团的一项协议，即俄罗斯的能源供应将只以欧元或美元支付。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/60482697_303.jpg)德国总理肖尔茨3月2日宣布不参加北京冬奥会（图片来源：德国之声）
-据第三位俄罗斯消息人士称，**俄罗斯第三大银行俄罗斯天然气工业银行可以在天然气买家和俄罗斯天然气工业股份公司之间充当交易中介**。
+川普曾希望Truth Social能够成为Twitter和Facebook等科技巨头的积极竞争对手。 他曾说，”我很高兴很快开始分享我对TRUTH Social的看法，并反击大型科技公司。“ 但是他仅在该程序首次推出的那天发布过一次信息“ Get Ready! Your favorite President will see you soon! 准备好！ 你们最喜爱的总统将要与你们会面”， 有些人开始质疑为什么这位前总统尚未在自己的社交网络上发布任何内容。
 
-克里姆林宫发言人德米特里-佩斯科夫周三表示，**普京将在周四听取关于如何将付款转为卢布的建议**，包括来自俄罗斯天然气工业公司和中央银行的建议，并且该计划将被公开。
+Similar Web 的高级经理David Carr说， “你必须做的更好，更有趣”。
 
-佩斯科夫说，**客户不会从周四开始就必须转换为卢布，因为 “支付和交付是一个耗时的过程**。
+Truth Social是在其母公司Trump Media & Technology Group成立后推出的。TMTG在去年年底上市时从未披露的投资者那里筹集了10亿美元。
 
-新闻来源链接：
+新闻来源：
 
-[Exclusive: Russia to keep gas contract currency unchanged in rouble switch, sources say | Reuters](https://www.reuters.com/business/energy/exclusive-russia-keep-gas-contract-prices-unchanged-rouble-switch-sources-says-2022-03-30/)
+[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (yahoo.com)](https://ca.news.yahoo.com/trump-truth-social-app-plummets-235232773.html)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (thewrap.com)](https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
