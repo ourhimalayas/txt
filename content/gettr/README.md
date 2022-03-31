@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 8:56 PM (UTC)`
+
+2022.03.31  NFSC health 新中国联邦 | 喜健康 第4期 之 《健康生活》
+![img](https://media.gettr.com/group19/origin/2022/03/31/20/7e3d0c18-1dcc-db7b-207f-bf730f0b1805/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/31/2022 7:04 PM (UTC)`
 
 
@@ -151,13 +158,6 @@ PAG是共产党伸向美国养老基金的关键黑手<br/><br/>3月22日,已被
 
 【Ukraine Rescue】03/30/2022 From Follow Fighter XiaoxiaoSu: The NFSC Medyka rescue station received one of the oldest refugees to date - an 81-year-old woman who fled from the warfare on a 60 km walking .She came into our tent to wait for her son to drive from Germany . The sight brought tears to the eyes of Follow Fighter WenYao.<br/><br/>【乌克兰救援】03/30/2022，来自小小酥战友： 新中国联邦梅迪卡救援站接待了一位迄今为止最年长的难民 - 一位81岁的老太太徒步60公里逃离战乱，来到我们的大帐蓬等待自己的儿子从德国驱车前来接她。文耀战友当场泪奔。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #rolfrescuehttps<br/><br/>
 ![img](https://media.gettr.com/group39/getter/2022/03/31/02/7e561955-627e-3aab-531d-da46551647ba/out.jpg)
-
----
-
-`@miles 3/31/2022 2:04 AM (UTC)`
-
-
-![img](https://media.gettr.com/group38/origin/2022/03/31/02/8923e2b9-34b9-edd7-213d-a654e4364df0/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
