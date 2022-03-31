@@ -2,28 +2,22 @@
 ---
 
 
-## 川普的Truth Media应用程序结束了吗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2260144/)
+## 俄乌战争让世界形成了东西方两大联盟，再也没有第三世界
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2260252/)
 
-撰稿：西枫westca
+撰稿：追着曙光跑
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Donald-Trump-launched-Truth-Social-New-Social-Media-Platform.png)图片来源：world wire
-据多家媒体3月30日报道， 前总统川普的特朗普的Truth Social应用程序流量暴跌，自上月发布以来，注册人数下降了惊人的93%，流量也同样下降。
+3月30日，郭先生在大直播中再次分析了俄乌战争的结果，根据俄乌战争持续一个多月的战况，世界格局已经形成了东西方两个联盟，再也没有第三世界。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/WhatsApp-Image-2022-03-31-at-10.16.36-AM.jpeg)
+以中共国为首、白俄罗斯、巴基斯坦、伊朗、北朝鲜等独裁国家形成的东方联盟。由它们担保俄罗斯执行俄乌战争谈判最后达成的合同。如果一旦乌克兰不执行，那么它们将和俄罗斯一起对西方联盟开战。
 
-在总统日推出的这款社交媒体应用程序推出时，Truth Social曾飙升至苹果免费下载的顶部，根据Sensor Tower的数据，安装量已经下降了80%，在苹果App Store上的下载页面从第一周的361，000次访问下降到上周七天内的90，000次左右。其网站的流量也急剧下降，从推出第一周的600万次访问量下降到现在的每周访问量约为190万次。尽管最初受欢迎程度飙升，但该应用程序从一开始就受到技术故障的困扰。用户报告了尝试注册时的错误和延迟，许多成功注册的人表示他们被迫进入一个长长的”候补名单”。Truth Social到目前为止已到达了120万次安装。
+以美国、欧洲和日本为首的西方民主国家形成的西方联盟，由它们担保乌克兰的国家。如果俄乌合同签完以后，要是俄罗斯不执行，那么西方同盟将和乌克兰一起对东方同盟开战。
 
-川普曾希望Truth Social能够成为Twitter和Facebook等科技巨头的积极竞争对手。 他曾说，”我很高兴很快开始分享我对TRUTH Social的看法，并反击大型科技公司。“ 但是他仅在该程序首次推出的那天发布过一次信息“ Get Ready! Your favorite President will see you soon! 准备好！ 你们最喜爱的总统将要与你们会面”， 有些人开始质疑为什么这位前总统尚未在自己的社交网络上发布任何内容。
+郭先生继续指出，巴基斯坦马上内乱，因为它不太听中共的话，中共要把它推翻。印度已经选择和俄罗斯站在一起，未来实际上就是跟中共站在一起。
 
-Similar Web 的高级经理David Carr说， “你必须做的更好，更有趣”。
+世界形成了东西方两大联盟，再也没有第三世界的新局面。那么接下来就很可能在核武器上会有动作，形成各种所谓的联盟，这就是俄乌战争的基本的结局。
 
-Truth Social是在其母公司Trump Media & Technology Group成立后推出的。TMTG在去年年底上市时从未披露的投资者那里筹集了10亿美元。
-
-新闻来源：
-
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (yahoo.com)](https://ca.news.yahoo.com/trump-truth-social-app-plummets-235232773.html)
-
-[Trump’s Truth Social App Plummets in Traffic, Sees 93% Drop in Signups Since Launch Week (Exclusive) (thewrap.com)](https://www.thewrap.com/trump-truth-social-app-93-drop-signups-traffic/)
+信息来源：[3/30/2022 文贵直播：俄乌战争已形成东西方联盟对立的局面](https://gettr.com/post/p12rdj91de0)
 
  
 

@@ -2,26 +2,46 @@
 ---
 
 
-## 美国SEC将百度、富途等五公司列入“预摘牌名单”
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2260883/)
+## 面对邪恶直击邪恶,对待坏人和恶行必须加以阻止和惩罚
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2261032/)
 
-编辑：文宝
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8807.50%EF%BC%89%E9%9D%A2%E5%AF%B9%E9%82%AA%E6%81%B6%E7%9B%B4%E5%87%BB%E9%82%AA%E6%81%B6%2C%E5%AF%B9%E5%BE%85%E5%9D%8F%E4%BA%BA%E5%92%8C%E6%81%B6%E8%A1%8C%E5%BF%85%E9%A1%BB%E5%8A%A0%E4%BB%A5%E9%98%BB%E6%AD%A2%E5%92%8C%E6%83%A9%E7%BD%9A%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
 
-美国当地时间3月30日，美国证券交易委员会将百度、富途控股、爱奇艺、凯信远达医药和从事渔业养殖的Nocera加入“预摘牌名单”，这也是三月以来第三批被纳入名单的中概股。
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2022%2F0331%2F9ce63011j00r9kzd0001oc000m000cuc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-（来源：SEC官网）
+**郭文贵先生：**我们一定记住不要因为你想做好人，而你失去了面对坏人的勇气，因为你想自己永生不死——所谓来到善道轮回，你不再面对这种丑恶和危险。不！只有面对邪恶，直击邪恶，才是最大的善道！
 
-根据SEC的说法，这五家公司需要于4月20日前向SEC提供证据，证明自己不具备被摘牌的条件。若无法证明，则会被列入“确定摘牌名单”。
+中国人就是给自己的懦弱、自私、冷酷找出太多的借口！包括佛教，、道教，我很不爽的事情就是——你们有地狱、佛教里边有地藏菩萨，为什么不能面对坏人呢？对待坏人、对待这种恶行必须加以阻止和惩罚。
 
-按照美国SEC公布的《外国公司问责法案》实施细则，被列入“确定摘牌名单”的公司需要在（自披露第一份年报开始计算、且2021年当做第一年）三年内提交SEC需要的文件。如果“确定摘牌名单”中的公司没有提交或提交的文件不符合SEC要求，理论上将会在披露2023年年报后（2024年初）面临立即退市。
+我4天没有喝咖啡了，4天没喝咖啡的感觉你们知道是什么样吗？就是现在我这个样，我今天早上喝了咖啡——咖啡特别香，我突然想起了中岳庙有一句话：得到和失去之间，他就是人生；习惯和习惯改变，就是你的修行。当时我到中岳庙去我不懂，我越来越懂，我每天感恩。
 
-相较于三月初首批五家公司被纳入名单引发中概股和相关港股大幅波动不同，周三这些个股的走势更多与市场整体情绪相关，这一消息对这些中概股而言只能说略有影响但已难言显著。
+我们习惯了人撒谎，你永远不去纠正他，他就撒谎成了真理。我们只有改变这种熟悉撒谎的环境，我们才能直击那种谎言，放下、改变。
 
-中信证券在3月30日发布的点评中也表示，综合考虑交易面、基本面、融资需求等因素，**预计法案对于已经或有条件回港上市的企业影响相对较小**，而未来美股中概的逐步回归将带动交易体量转移至港交所，港股通南向投资渠道若打开亦有望对港股市场提供增量流动性支撑。
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-原文链接：[https://www.163.com/dy/article/H3P69J7S05198CJN.html](https://www.163.com/dy/article/H3P69J7S05198CJN.html)
+编辑整理：Jacques；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-67.png)DISCORD
+字幕档制作：兵嫂；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

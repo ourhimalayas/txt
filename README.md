@@ -15,101 +15,101 @@
 
 ---
 
-### [美国SEC将百度、富途等五公司列入“预摘牌名单”](/content/gnews/1/README.md)
- ` 加拿大温哥华英里农场`
-
-### [中国人为何感激大肆杀戮华人的俄罗斯,伤害友好的乌克兰](/content/gnews/2/README.md)
+### [面对邪恶直击邪恶,对待坏人和恶行必须加以阻止和惩罚](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国军方对疫苗伤害的隐瞒](/content/gnews/3/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [疫情｜BA.2病毒株日本扩散 防疫限制解除后单日确诊数反弹](/content/gnews/2/README.md)
+ ` 關注組`
 
-### [推特有两种截然不同的标准来进行政治歧视](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [所罗门拟与中国签安全协议，中共军力抵达南太平洋](/content/gnews/5/README.md)
- ` 走进澳洲`
-
-### [香港因新冠疫情造成木质棺材短缺，用硬纸板棺材替代](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年3月30日晚](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [七哥金句：当好人是做不了政治家](/content/gnews/8/README.md)
+### [大直播后记：嘉宾如水谈上海封城](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [加拿大联邦政府雇员及议员将全面加薪](/content/gnews/9/README.md)
+### [诅咒阻挡大救援的九指妖亡腚缸蛇妖闫高冰尘必永受煎熬](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [俄罗斯报复性驱逐波罗的海三国多名外交官](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大计划加强与美国的能源贸易合作](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [串珠644:马斯克一条推文震慑了普习使人类免于核战](/content/gnews/10/README.md)
- ` 郭爆料串珠`
+### [巴基斯坦总理在不信任投票前几天失去支持](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日](/content/gnews/11/README.md)
+### [每个不求回报冲到前线的战友只为救那些素不相识的同类](/content/gnews/8/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [俄宣布停火！开放人道走廊让马立波平民撤离](/content/gnews/9/README.md)
+ ` 蓝莲花农场`
+
+### [新中国联邦史无前例大营救VS中共抛弃乌克兰的三万同胞](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [乌克兰葵花籽油供应受阻，印度以“创纪录高价”从俄罗斯订购](/content/gnews/11/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [美国SEC将百度、富途等五公司列入“预摘牌名单”](/content/gnews/12/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [美国和乌克兰对俄罗斯减少军事行动的承诺持审慎态度](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [又有一中国公民因在美参与“猎狐行动”而受到起诉](/content/gnews/14/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美国军方对疫苗伤害的隐瞒](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [推特有两种截然不同的标准来进行政治歧视](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年3月30日晚](/content/gnews/17/README.md)
+ ` 纽约香草山MOS01`
+
+### [3/30/2022 文贵直播：喜币交易量大涨，每日场外交易量至少是场内的10倍！被制裁到没钱吃冰淇淋的俄罗斯大佬想借100万个喜币度日](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [2022年3月31日《樱花快报》：中共国外交部高调宣称中俄合作“三个无上限”](/content/gnews/12/README.md)
+### [2022年3月31日《樱花快报》：中共国外交部高调宣称中俄合作“三个无上限”](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参议院通过《美国竞争法》欲减少对华依赖](/content/gnews/13/README.md)
+### [参议院通过《美国竞争法》欲减少对华依赖](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [上海封城：我们要吃饭，我们要自由！](/content/gnews/14/README.md)
+### [上海封城：我们要吃饭，我们要自由！](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [文•贵天成——文贵先生谈“数字银行”（二）](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20220327文贵大直播：灭习和灭共是什么关系](/content/gnews/16/README.md)
+### [20220327文贵大直播：灭习和灭共是什么关系](/content/gnews/22/README.md)
  ` Tokyo Sakura Video Group`
 
-### [COVID-19疫苗副作用集萃（2022.3.30）新冠疫苗后月经血崩](/content/gnews/17/README.md)
+### [COVID-19疫苗副作用集萃（2022.3.30）新冠疫苗后月经血崩](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [3/30/2022 文贵直播：俄乌战争的本质是中美之战，中共一定打台湾；美国早就准备好了第三只手去对付中共](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [【G时新闻】澳洲各政治派别不改对华强硬路线](/content/gnews/19/README.md)
- ` G-时新闻`
-
-### [日本拟修法 防俄利用数字货币逃避制裁](/content/gnews/20/README.md)
+### [日本拟修法 防俄利用数字货币逃避制裁](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共作恶引发排华浪潮，海外华人付出惨痛代价](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄乌战争让世界形成了东西方两大联盟，再也没有第三世界](/content/gnews/22/README.md)
+### [俄乌战争让世界形成了东西方两大联盟，再也没有第三世界](/content/gnews/25/README.md)
  ` thedawn`
 
-### [风能和太阳能发电量首次占全球电力的10%](/content/gnews/23/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [俄乌战争导致400多万人逃离乌克兰 粮食危机迫近](/content/gnews/24/README.md)
+### [俄乌战争导致400多万人逃离乌克兰 粮食危机迫近](/content/gnews/26/README.md)
  ` 蓝莲花农场`
 
-### [川普的Truth Media应用程序结束了吗](/content/gnews/25/README.md)
+### [川普的Truth Media应用程序结束了吗](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄罗斯将保持天然气合同货币不变](/content/gnews/26/README.md)
+### [俄罗斯将保持天然气合同货币不变](/content/gnews/28/README.md)
  ` 蓝莲花农场`
 
-### [拜登称俄罗斯领导人普京“不能继续掌权”](/content/gnews/27/README.md)
+### [拜登称俄罗斯领导人普京“不能继续掌权”](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [逃出乌克兰战区的耄耋老人](/content/gnews/28/README.md)
+### [逃出乌克兰战区的耄耋老人](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜币价格下跌、交易量剧升符合期望，新GTV获大额投资者投资确认](/content/gnews/29/README.md)
+### [喜币价格下跌、交易量剧升符合期望，新GTV获大额投资者投资确认](/content/gnews/31/README.md)
  ` YALUN 亚伦`
 
-### [节约挖潜还是谋杀? 网民曝核酸检测采样棉签重复使用](/content/gnews/30/README.md)
+### [节约挖潜还是谋杀? 网民曝核酸检测采样棉签重复使用](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Omicron 的“隐形”变体 BA.2 在全球占主导地位，第二剂加强疫苗正在推出](/content/gnews/31/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [[3月29日】新中国联邦乌克兰救援前线纪实](/content/gnews/32/README.md)
- ` 蓝莲花农场`
 
 ### [普京被军方的顾问所误导](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
