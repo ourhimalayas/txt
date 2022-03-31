@@ -2,26 +2,30 @@
 ---
 
 
-## 区块链游戏Axie Infinity 被骇，等值近6 亿美元以太币被盗
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2262157/)
+## 大直播后记：嘉宾如水谈中共经济的庞氏骗局
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2262256/)
 
-素材/选题：波士顿五月花 长岛开心
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午3.16.19.png)图片来源：互联网
-以一边游戏、一边赚取加密币而爆红的网路游戏Axie Infinity，其侧链服务Ronin Network 发[新闻稿](https://roninblockchain.substack.com/p/community-alert-ronin-validators?s=w)确认[被骇](https://www.vice.com/en/article/3abeeb/hackers-steal-dollar600m-from-play-to-earn-game-axie-infinitys-ronin-network)，有173,600 个以太币ETH 和2,550 万个美元稳定币USDC 被盗去，等值近6 亿美元之多。Ronin Network 也有详细解说被骇的始末，让大家可以更了解这宗大型盗窃案。
+整理：美哥、铁血丹心
+编辑：文泓
 
-Ronin Network 表示，他们发现骇客是首先透过在其中一个由Axie DAO 营运的RPC 节点里的后门程式，获取了签名档。同时在用以验证交易的9 个节点之中，再成功操纵了其中5 个（4 个是Ronin Validators，一个是Axie DAO），并于3 月23 日发起虚构的交易要求，以两次转帐就掏走了等值6 亿美元的资产。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image0-116.jpg)图片来源：文贵大直播
 
-对于这个后门的存在，Ronin Network 解释是他们母公司Sky Mavis 在2021 年11 月因应有大量用户载入，求助Axie DAO 协助处理交易，并因此建立了连接双方服务的Ronin Bridge 桥接机制。然而在合作在2021 年12 月完结后，却没有把桥接授权撤销，所以就产生了这样一个漏洞。
 
-骇客盗走资产后近一星期后，才有用户发现无法在Ronin Network 转走5,000 个ETH 而揭发出，官方表示已经追踪到被盗加密资产所在的钱包位址，目前已经联络执法部门、Chainalysis 来研究取回被盗资产。目前Ronin Bridge 的授权已经被撤销，同时也停止了币安Binance 的接入，防止再有资产被转走；另外也停用了Katana DEX 交易服务，所以用户目前未能存入或提取Ronin Network 的资产。
+**在中共国，****14****亿人把他们卖血、卖身的钱****存到****银行****，投到房地产****、医疗还有养老保险里，****而****这些都是中共的庞氏骗局。中共是不希望这么多人在活着的时候来兑现、提款的，它就想通过疫苗，通过病毒来杀死老弱病残，去杀死没有利用价值的债主。**
 
-Ronin Network 强调用户的AXS、RON、SLP 加密币都是安全的，同时已经把认证节点的门槛数目提升到8 个，并会尽快再增加认证节点。
+大家都（说）我这个疫苗、核酸检测是免费的，归根到底是不可能免费的（政府不创造财富）。**中共国疫苗制造商****科兴的利润****来知何处****？****（政府的医疗经费）****都是纳税人的钱，都****来之****普通老百姓，核酸检测这****种****偷钱的方式，和科兴****（疫苗）****偷钱方式的本质是一样的，当然****，也****和房地产偷老百姓钱的方式****同一个模式。**
 
-原文链接：[https://chinese.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[engadget](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[com](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[/axie-infnity-ronin-network-crypto-theft-060018992.html](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)
+看看抖音或者微信，你可以看到粉红们转发说辉瑞疫苗的副作用怎样、怎样，那潜台词就是，他们打的科兴疫苗比辉瑞疫苗好，实际情况是这样吗？你在墙内肯定是永远看不到辉瑞的1300种副作用报告，以及科兴疫苗的副作用报告。当然，我们不是医疗行业的专家，但是也可以用逻辑来推断一下，例如科兴疫苗具有的毒性，石墨烯能通过灭活工艺去掉吗？灭活疫苗它是不是含有艾滋病的病毒片段？灭活工艺能把这些艾滋病毒片段丧失毒性吗？灭活疫苗能够去掉疫苗的刺突蛋白？灭活疫苗的化工原料对人体的毒性也是很大的，打了疫苗的会出现白血病、癌症，以及各种各样的病痛，所以这些问题的答案都很容易能够找得到。
 
-* * *
+墙内中共邪教灌输给人民的就是仇恨教育，就是马克思主义哲学、辩证唯物主义的斗争哲学，就从来没有给人民真正合乎逻辑的一个常识教育。现在中共它通过疫苗来蹂躏大众的身体，然后又搞封锁（隔离），就是所谓的封小区，通过网格化的管理来控制大家的身体，同时摧残大家的灵魂！你想强打疫苗加上封城，再加上全员核酸，其实每一个环节它都是在榨干老百姓的最后一滴血汗，并产生一系列次生灾难。对中共而言，只要不威胁到它的统治就行，它从来都漠视普通民众的生命，它不会认为你活着会有什么重要性，你死了又有什么让它们觉着心痛，或者让它紧张的，中共不会在乎！如果你活着对它还有用，那它们觉得你还可以活着，但你活着是（负担），它可能会认为你死了才更好，你跳楼，你上吊对它来说更好，少了张吃饭的嘴。还有下一步美元要脱钩，中共国就肯定会闭关锁国，实际它已经在做了。
 
-*编辑&发布：长岛开心*
+资料来源：[2022年3月30日 文贵大直播](https://gettr.com/streaming/p12oba38c9d)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

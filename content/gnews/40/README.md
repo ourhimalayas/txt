@@ -2,107 +2,44 @@
 ---
 
 
-## 卢比奥参议员：俄罗斯不会离开乌克兰
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2261066/)
+## 樱花深度报道┃与泽连斯基的对话（二）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2261290/)
 
-**参议员马可·卢比奥： **
-正如我两周前发的推文一样，普京 [#Putin](https://gettr.com/hashtag/%23Putin) 有一个新计划 即吞并 哈尔科夫、顿巴斯 和南部海岸 俄罗斯 [#Russia](https://gettr.com/hashtag/%23Russia) 不会离开乌克兰 [#Ukraine](https://gettr.com/hashtag/%23Ukraine) 这些部队只是在重新集结，很快就会返回，集中在这些地区
+编译：东京樱花团/Hopkins
 
+【编者按】2022年3月25日，在位于基辅的总部，《经济学家》专访了乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelensky），他向《经济学家》记者讲述了他的国家的战斗以及光明与黑暗的斗争。虽然有些疲倦但仍在开玩笑，这位被追捕的总统说，我不是英雄，胜利意味着尽可能多拯救生命。全文共分三部分，第一部分为记者手记“泽连斯基谈乌克兰为何必须击败普京”；第二部分是《经济学家》的总结“与泽连斯基一起在作战室的时光”；第三部分是对话文本“与泽连斯基的对话”，其中透露了不少以前外界不清楚的细节，比如入侵开始时他在哪里，以及他的工作状态，相当有价值。 本文是泽连斯基接受《经济学家》专访的第三部分。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片2-64.jpg)
+TE：所以，现在你是对西方国家的人民说话，而不是对他们的政治家说话？
 
+VZ：是的，当然了。至少我是这么想的，有时我认为政治家们生活在一个信息真空中，我们看到的是，现在的普京活在一个封闭的氛围中。所以，他不知道。我不能描述他周围发生的一切。我不能描述，因为我不知道他每天或每周或每两周与谁交谈，那是我们没有的信息。这意味着他不能理解，或者他不可能知道外面发生了什么。即使是我，当战争开始时，我对人们非常开放……即使是我，如果我坐在办公室里，三四天不出去，我也不会有关于世界上发生什么的正确信息。
 
-> As I tweeted 2 weeks ago, [#Putin](https://twitter.com/hashtag/Putin?src=hash&amp;ref_src=twsrc%5Etfw) has a new plan 
-> 
-> It’s to annex [#Kharkiv](https://twitter.com/hashtag/Kharkiv?src=hash&amp;ref_src=twsrc%5Etfw), [#Donbas](https://twitter.com/hashtag/Donbas?src=hash&amp;ref_src=twsrc%5Etfw) and the southern coast [#Russia](https://twitter.com/hashtag/Russia?src=hash&amp;ref_src=twsrc%5Etfw) isn’t leaving [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hash&amp;ref_src=twsrc%5Etfw) 
-> 
-> These troops are simply regrouping and will return very soon to concentrate on those areas
-> — Marco Rubio (@marcorubio) [March 30, 2022](https://twitter.com/marcorubio/status/1509149893050445825?ref_src=twsrc%5Etfw)
+TE：当战争开始时，你是否突然想到，这是人民希望我做的……而我正在做，或者是你决定 ，这是我要做的事，你必须支持我？
 
+VZ：我认为，没有人，没有人，在开始的时候明白该怎么做。我当时在基辅，在家里，在住所，那一刻我在家里。那是凌晨4点50分，我和妻子孩子在一起。他们把我叫醒了，告诉我，有巨大的爆炸声。几分钟后，我收到信号，火箭弹袭击正在进行中。家人不知道发生了什么事，但我们知道，他们正在准备攻击。我们当然知道，我们做的第一件事是宣布紧急状态，几天后，在国家安全和国防委员会的会议上，我们宣布了戒严令。我们明白俄国人可能会发动攻击，但我们没想到有这么严重。
 
+TE：让我们谈谈现在，谈谈在这个阶段的战争中的处境。你认为你们有机会获胜吗？
 
-**参议员卢比奥： **
-国会即将通过“ [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 法案”，法案投了520亿美元和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 竞争，但并没能阻止他们盗窃我们投资和创造的东西。
+VZ：我们相信胜利。不可能相信其他东西。我们一定会赢，因为这是我们的家，我们的土地，我们的独立。这只是一个时间问题。
 
+TE：乌克兰的胜利是什么样子的？
 
+VZ：胜利就是能够拯救尽可能多的生命。是的，尽可能多地拯救生命，因为没有这些，一切都没有意义。我们的土地很重要，是的，但最终它只是领土。我不知道这场战争会持续多久，但我们会战斗到我们拥有最后一座城市。从一开始，当你选择一个关于应该做什么或不做什么的选项时，人们可能并不理解什么是一场全面战争。我的工作是发出信号，让人们知道如何行动。
 
-> Congress is about to pass a “China Bill” that invests $52 billion to compete with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) but does nothing to keep them from stealing what we invent and make
-> — Marco Rubio (@marcorubio) [March 30, 2022](https://twitter.com/marcorubio/status/1509148033098919937?ref_src=twsrc%5Etfw)
+而当你说，乌克兰应该如何行事时，你也必须也得这么干。比如，我要决定，留下还是离开。我们都以同样的方式受伤和伤害。留下，是向人们发出的关于乌克兰应该如何应对袭击的信号。这是关于战争是如何开始，以及它将如何结束。战争将以我们仍然站在这里保卫家园而结束。
 
+关于乌克兰的胜利将是什么样子，这就是我的回应。我们的胜利可能是暂时的，也许没有解决所有问题，但我们已经选择了我们要前进的方向。
 
+（未完待续）
 
-**美国防部长奥斯汀： **
-今天，我欢迎德国国防部长[@BMVg\_Bundeswehr](https://twitter.com/BMVg_Bundeswehr) 克里斯汀·兰布雷希特(Christine Lambrecht) 来到五角大楼。 我们讨论了强大的美-德双边关系以及现在和未来合作的机会。 我感谢她在北约[@NATO](https://twitter.com/NATO) 的德国领导力以及对乌克兰的支持。
+作者：奥利弗卡罗尔（Oliver Carroll）/《经济学家》驻乌克兰的通讯员。
 
+本文照片：photographs:** ron haviv / vii**
 
+信息来源：[Volodymyr Zelensky in his own words](https://www.economist.com/europe/2022/03/27/volodymyr-zelensky-in-his-own-words)
 
-> Today, I welcomed [@BMVg\_Bundeswehr](https://twitter.com/BMVg_Bundeswehr?ref_src=twsrc%5Etfw) Minister of Defense Christine Lambrecht to the Pentagon. We discussed the strong U.S.-German bilateral relationship and opportunities to work together now and in the future. I thanked her for German leadership at [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) & its support to Ukraine. [pic.twitter.com/XGqguzvkTb](https://t.co/XGqguzvkTb)
-> — Secretary of Defense Lloyd J. Austin III (@SecDef) [March 30, 2022](https://twitter.com/SecDef/status/1509241680138063872?ref_src=twsrc%5Etfw)
-
-
-
-**众议员莫·布鲁克斯：** 
-很高兴见到太空作战部长约翰·雷蒙德将军。 我们主要讨论了俄罗斯和 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 高超音速武器计划所构成的重大威胁。 我们必须跟上这些地缘政治敌人的步伐，并阻止他们残暴的扩张主义政权。
-
-
-
-> It was great to see Chief of Space Operations Gen John Raymond. We primarily discussed the significant threat posed by Russian & Communist Chinese hypersonics weapons programs. It is imperative we keep pace with these geopolitical foes and deter their brutal expansionist regimes. [pic.twitter.com/6So2XvnySD](https://t.co/6So2XvnySD)
-> — Mo Brooks (@RepMoBrooks) [March 30, 2022](https://twitter.com/RepMoBrooks/status/1509239780600598532?ref_src=twsrc%5Etfw)
-
-
-
-**参议员瑞克·斯科特： **
-我们知道 #共产主义中国 正计划入侵台湾。 面对这种侵略，其可怕的人权侵犯和国家安全威胁，美国公司必须立即采取行动，与共产主义中国脱钩。 （转福克斯商业台观点：美国企业是时候切断与中（共）国的联系了）
-
-
-
-> We know that Communist China is planning to invade Taiwan.
-> 
-> In the face of this aggression, its horrific human rights abuses & national security threats, American companies must take action NOW to decouple from Communist China. Read more in my op-ed for [@foxbusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) 👀⬇️ [https://t.co/rDK42Yco7g](https://t.co/rDK42Yco7g)
-> — Rick Scott (@SenRickScott) [March 30, 2022](https://twitter.com/SenRickScott/status/1509211140999499776?ref_src=twsrc%5Etfw)
-
-
-
-**参议员泰得·克鲁兹： **
-毛主席说得再好不过了。 首先，福奇资助了武汉实验室的研究，现在他是中国共产党的(不诚实的)发言人。 （转推说：当被问及中国政府在新冠肺炎问题上掩盖和撒谎时，福奇表示，他不想“提及任何歧视言论”，中国“不一定”掩盖了新冠肺炎）
-
-
-
-> Chairman Mao couldn’t have said it better.
-> 
-> First, Fauci funded the research at the Wuhan lab, and now he’s acting as the (dishonest) press secretary for the Chinese Communist Party. [https://t.co/YySo0Zsq95](https://t.co/YySo0Zsq95)
-> — Ted Cruz (@tedcruz) [March 30, 2022](https://twitter.com/tedcruz/status/1509227313468256256?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥： **
-在川普政府中，我们试图让我们的联盟更加强大。 我们呼吁我们的北约盟国履行其支出承诺，并在实现这一目标方面取得了实际进展。 【转蓬佩奥发布在福克斯新闻的观点文章：乌克兰战争表明为什么世界需要美国的能源主导地位。（俄、乌）战争才使拜登意识到川普政府欧洲政策的智慧】
-
-
-
-> In the Trump Administration, we sought to make our alliances stronger. We called for our NATO allies to meet their spending commitments and actually made real progress toward this goal. [https://t.co/CMNXfuExzD](https://t.co/CMNXfuExzD)
-> — Mike Pompeo (@mikepompeo) [March 30, 2022](https://twitter.com/mikepompeo/status/1509254900756238347?ref_src=twsrc%5Etfw)
-
-
-
-**众议员李·泽尔丁：** 
-蝠奇博士再次在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 掩盖其新冠病毒真相方面搅混水。他太渴望证明他们自己了，一次又一次地(一本正经的在那胡说八道)。 【视频中蝠奇为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 开脱，辩称中共只是害怕被深度卷入其中才不肯公开透明】
-
-
-
-> Dr. Fauci again running interference for the Chinese Communist Party on their COVID coverup. He’s way too eager to hold their water time and again. [pic.twitter.com/xOHNQM6mZK](https://t.co/xOHNQM6mZK)
-> — Lee Zeldin (@RepLeeZeldin) [March 31, 2022](https://twitter.com/RepLeeZeldin/status/1509321538335608844?ref_src=twsrc%5Etfw)
-
-
-
-**参议员汤姆·科顿： **
-我们之前以违反制裁为由逮捕过华为的高管。如果他们违反西方制裁，我们将再次这样做。 【附金融时报文章：华为在与俄罗斯的联系上面临两难境地，美国可能会进一步制裁华为】
-
-
-
-> We arrested Huawei executives before for sanctions-busting. We will do it again if they violate Western sanctions.[https://t.co/E9g88PlySi](https://t.co/E9g88PlySi)
-> — Tom Cotton (@SenTomCotton) [March 31, 2022](https://twitter.com/SenTomCotton/status/1509343789936218113?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

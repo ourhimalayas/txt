@@ -2,40 +2,25 @@
 ---
 
 
-## 美国参众两院今夏或将通过《美国竞争法》
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2261946/)
+## 疫情｜台灣為防堵疫情擴大 首次實施非強制類普篩
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2262037/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**疫情關注組** **zhong｜2022-3-31**
+▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Model-1-1.png)**更多請關注疫情關注組[蓋特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
+中央流行疫情指揮中心數據指出，台灣本土疫情多點爆發，部分感染源無法明確，疫情足跡遍佈全台多縣市。其中，基隆小吃店衍生警察群聚局經定序後，發現與目前台灣本土疫情的病毒株不同，疑惟越南境外疑入病毒株。
 
-整理：等风来
-编辑：JH
+基隆疫情迅速擴大，防疫指揮官陳時中31日訪視基隆，與基隆市長林右昌視訊會議後，宣布「基隆市將全面實施類普篩」，將廣發快篩試劑，希望基隆36萬民眾都能自我篩檢1到3次。防疫指揮中心強調，本次類普篩不強制。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/NPUFV8TVG86LC5ULY9F.png)图片来源：Samira Bouaou/The Epoch Times
+陳時中解釋，基隆疫情延燒已一段時間，僅依靠社區篩檢站無法避免黑數，經中央、地方討論後決定實施類普篩。陳提到「以後也可提供其他地方經驗，中央將來也可運用這個方式控制有可能發生的疫情。」
 
+前疾管局長蘇益仁表示，類普篩就是普篩，並建議最好搭配血清抗體測試，並完善居家隔離的後續措施，以應對感染人數多的情形。
 
-美国国会参议院3月28日通过了《美国竞争法》（America Competes Act），该法案为美国的半导体制造商提供了520亿美元的补贴。该法案以68票对28票的结果在参议院通过后，将进入与众议院版本谈判协商中，希望能在数个月内的讨论中得出结果。
+來源｜[自由](https://news.ltn.com.tw/news/life/breakingnews/3877704)、[HEHO](https://heho.com.tw/archives/212176)
 
-内容近3000页的《美国竞争法》目标为加强美国国内供应链、先进技术研发和科学研究，以提升美国竞争力在全球领域与中共国抗衡。
+* * *
 
-美国国会暨行政当局中国委员会（CECC）领袖28日致函国会两党领袖，呼吁两院协商会议小组在法案最终文本中保留现有涉及中共国人权议题条文内容。
-
-议员呼吁最终协调版本还必须纳入内容，包括针对中共国破坏全球治理及其在国际组织影响力的努力进行报告，以及对中共国公司在美国资本市场的情况进行年度审查，以协助辨别伤害美国国家安全、严重侵犯人权，或增加美国投资者金融风险的中共国企业。
-
-议员们表示，保留法案中强有力的措辞和政策倡议，表明保护和推进民主自由、人权和法治不能与经济合作和安全利益脱离关系。
-
-参考链接：
-
-[自由财经：美参院通过520亿美元芯片法案 将和众院协商](https://ec.ltn.com.tw/article/breakingnews/3875051)
-
-[美国之音：美参院通过大型抗中法案 将与众院进入最终协商](https://www.voachinese.com/a/us-senate-moves-forward-china-bill-for-reconciliation-20220328/6505803.html)
-
-发布：tianzhihuan
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多請關注疫情關注組[蓋特](https://gettr.com/user/mightygroup)｜Subscribe EpidemicConcernGroup [Gettr](https://gettr.com/user/mightygroup)**
 
  
 

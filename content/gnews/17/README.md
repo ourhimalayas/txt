@@ -2,33 +2,26 @@
 ---
 
 
-## 香港｜终审法院非常任法官宣布辞任 英国决定不再派法官来港
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2262000/)
+## 区块链游戏Axie Infinity 被骇，等值近6 亿美元以太币被盗
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2262157/)
 
-**图/文｜CP**
-**发布时间｜31/03/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/終審法院非常任法官宣布辭任-英國決定不再派法官.jpg)
+素材/选题：波士顿五月花 长岛开心
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午3.16.19.png)图片来源：互联网
+以一边游戏、一边赚取加密币而爆红的网路游戏Axie Infinity，其侧链服务Ronin Network 发[新闻稿](https://roninblockchain.substack.com/p/community-alert-ronin-validators?s=w)确认[被骇](https://www.vice.com/en/article/3abeeb/hackers-steal-dollar600m-from-play-to-earn-game-axie-infinitys-ronin-network)，有173,600 个以太币ETH 和2,550 万个美元稳定币USDC 被盗去，等值近6 亿美元之多。Ronin Network 也有详细解说被骇的始末，让大家可以更了解这宗大型盗窃案。
 
-[点击关注官方盖特](https://gettr.com/user/hktwfrontline)
+Ronin Network 表示，他们发现骇客是首先透过在其中一个由Axie DAO 营运的RPC 节点里的后门程式，获取了签名档。同时在用以验证交易的9 个节点之中，再成功操纵了其中5 个（4 个是Ronin Validators，一个是Axie DAO），并于3 月23 日发起虚构的交易要求，以两次转帐就掏走了等值6 亿美元的资产。
 
+对于这个后门的存在，Ronin Network 解释是他们母公司Sky Mavis 在2021 年11 月因应有大量用户载入，求助Axie DAO 协助处理交易，并因此建立了连接双方服务的Ronin Bridge 桥接机制。然而在合作在2021 年12 月完结后，却没有把桥接授权撤销，所以就产生了这样一个漏洞。
 
-英国最高法院院长韦彦德（Robert Reed）及副院长贺知义（Patrick Hodge），昨晚（30日）宣布已向香港终审法院辞任非常任法官一职，即时生效，这是港区国安法实施后，首次有海外法官辞任。
+骇客盗走资产后近一星期后，才有用户发现无法在Ronin Network 转走5,000 个ETH 而揭发出，官方表示已经追踪到被盗加密资产所在的钱包位址，目前已经联络执法部门、Chainalysis 来研究取回被盗资产。目前Ronin Bridge 的授权已经被撤销，同时也停止了币安Binance 的接入，防止再有资产被转走；另外也停用了Katana DEX 交易服务，所以用户目前未能存入或提取Ronin Network 的资产。
 
-韦彦德在声明中表示，自香港回归以来，英国最高法院一直指派法官到港出任非常任法官参与审讯，但港区国安法实施后，产生了微妙变化，香港行政机关已偏离了政治及言论自由的价值观，英国最高法院的法官难以于不支持港府的前提下，继续参与香港审讯，因此二人决定辞任。不过，韦彦德强调，他认为香港的法院仍然信守法治，会继续受国际尊重。
+Ronin Network 强调用户的AXS、RON、SLP 加密币都是安全的，同时已经把认证节点的门槛数目提升到8 个，并会尽快再增加认证节点。
 
-英国外相卓慧思（Liz Truss）发声明支持两名法官的辞任决定。她指出，国安法违反《中英联合声明》订明的高度自治及司法独立，削弱港人的基本人权及自由，包括随意将异见人士定罪等。她又指，留意到经香港法院审理的国安法案件，产生影响深远的寒蝉效应，当局打压言论、新闻及结社自由的程度已到了临界点，故英方决定不再派法官来港。
-
-另外，英国副首相蓝韬文也表示，国安法令香港远离英方所珍视的自由，即使自由批评国家亦会变成刑事罪，他遗憾地同意不再派法官到港，并感谢英国法官于过去25年在港守护国际法治。
-
-对此，香港大律师公会及律师会亦发声明表示遗憾，大律师公会主席杜淦堃认为，事件涉政治因素，无可避免令外国对香港的司法独立观感有冲击；律师会会长陈泽铭则深感失望之余，认为作法违背香港市民和法律界对海外法官参与终院的支持，恳切呼吁他们收回辞任的决定。
-
-律政司长郑若骅第一时间上传网志表达看法，她认为外间有很多对港区国安法和法官的不实指控，但强调《基本法》是基于宪制层面保障香港的司法独立，她相信两位的辞任不会阻碍香港司法制度继续保持稳健。
-
-來源｜[HKFP](https://hongkongfp.com/2022/03/30/breaking-two-british-judges-resign-from-hong-kongs-top-court-citing-security-law-concerns/)
+原文链接：[https://chinese.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[engadget](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[.](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[com](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)[/axie-infnity-ronin-network-crypto-theft-060018992.html](https://chinese.engadget.com/axie-infnity-ronin-network-crypto-theft-060018992.html)
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+*编辑&发布：长岛开心*
 
  
 
