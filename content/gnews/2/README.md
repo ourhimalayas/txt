@@ -2,79 +2,42 @@
 ---
 
 
-## 灭共者之郭氏情报站（45）2022/03/30 文贵大直播
-` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2261138/)
+## 美国政府无法阻挡判决,真相不在法院而在媒体和金钱之间
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2261182/)
 
-设计者：纽约香草山设计部 — 喜马拉雅大喵儿，天马星空J，rzhang99
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8811.50%EF%BC%89%E7%BE%8E%E5%9B%BD%E6%94%BF%E5%BA%9C%E6%97%A0%E6%B3%95%E9%98%BB%E6%8C%A1%E5%88%A4%E5%86%B3%2C%E7%9C%9F%E7%9B%B8%E4%B8%8D%E5%9C%A8%E6%B3%95%E9%99%A2%E8%80%8C%E5%9C%A8%E5%AA%92%E4%BD%93%E5%92%8C%E9%87%91%E9%92%B1%E4%B9%8B%E9%97%B4%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:e)
 
+**郭文贵先生：**今天你要看到这个高法的判决是美国政府无法阻挡的，而且大卡车司机，加拿大大卡车和美国大卡车聚集，和死亡率频升和美国中期大选一系列的问题。共产党现在这个中文媒体，不是说中文媒体现在说它要干啥，它根本控制不住！文曦啊，这才是我们真正的悲哀呢。
 
+我再次请战友们一定要记住，学会在新中国联邦这个平台上学会了解世界什么是实力——平台、媒体，有媒体有钱，就是世界的王；有钱没媒体，随时黑掉你；有媒体，没钱是不可能；有媒体，没钱，你随时出卖自己的良知。真相就在这两个之间！——媒体和金钱之间！根本不在法院！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
+编辑整理：Jacques；
 
+字幕档制作：兵嫂；
 
+视频制作及上传：Cindy；
 
+G-News发布：海贼王M.D.LUFFY；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**灭共者-郭氏情报站**
-**2022年3月30日 文贵大直播**
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022.03.30.png)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-1、俄乌战争前景已成定局，东西方对立联盟已经形成。俄、中、巴基斯坦、伊朗、北朝鲜、白俄及非洲独裁小国形成东方阵营担保俄罗斯；美欧日等形成西方阵营担保乌克兰。如果俄或乌任何一方不遵守协议，则视同对联盟的攻击，立刻开战。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-2、巴基斯坦马上内乱，因为不听中共的话。印度已站在了俄一边，也就是和中共站在了一起。接下来可能在武器（核武器）上会看到联合动作。不存在有第三世界了。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-3、乌克兰会解决欧洲和世界的能源问题！德国的默克尔给了欧洲最好的30年，却使欧洲的科技落后了300年。彻底改变欧洲能源危机的就是乌克兰加高科技。人类将彻底解决能源问题，不再依赖中东及俄国。
-
-4、塞尔维亚预言，拉姆预言，所有的都是错的。一战二战时瞎蒙的，三战不会发生，更不可能有核战战争！人类不是因为死多少人而有文明，而是因为干掉共产党和几个独裁国家而文明，人类文明最重要的一束花—— 新中国联邦！
-
-5、战友关注喜币：交易量比价格更重要。现在一天的交易量是上市二十天后的十天的总和，此外场外交易量是大家看到的十倍。一个亚洲大佬（比特币的重要持有者）一直在关注喜币，看了近期的场内和场外交易量增幅以及HPay的设计，认为喜币将是数字货币的希望。很多战略投资者认为稳定在30块左右是最合理的。接下来正在谈的一个事，完成后，会使价格升到很高，但对战友不一定是好事。
-
-6、俄乌战实质就是中美之战（乌没有海军，却能把俄潜水艇砸下去），灭的就是中共。中共一定会打台湾，美国早就准备着第三只手揍中共。战争将以东方邪恶联盟瓦解而告终。
-
-7、日本如何能变成强大的国家？丰臣秀吉时代的大师回答2条：1. 成为最尊重人 的国家；2. 要赢世界，从心上，而不是武器！山本五十六说，如果日本人牢记了这两条，就不会有二战。
-
-8、目前俄正在以撤兵为掩护，发动更猛烈的攻击。中共正在输送大量导弹和潜水艇。七哥提醒欧洲朋友，当聚焦俄乌战争时别忘了中东，南亚，和东北亚。
-
-9、纽约办公室空置率达35%-40%，美国经济在下行。但只有金融危机到来，才能全球彻底干净地灭共。关键是灭共后，要把共产党的钱拿回来（灭共+拿钱，两样都要）。那一刻很快就会到来！
-
-10、全世界关注俄乌战争，忽视了中东，东北亚，南亚！台湾，北朝鲜，霍尔木兹海峡，共产党一分钟都不会落下，伊拉克沙特也门叙利亚不会停，目的让欧洲断油断气，美国经济下滑！
-
-11、喜币目前事数字货币排第6位，从交易量快速增长上看排第3，这个速度，明年就是第二或者第一了！喜币KYC现在是全世界第一！战友买的的币只要不卖，一定会涨回去！人家在敛币，战友们搂住，别被带跑了。几周的时间会有震撼的消息！
-
-**上一期：**
-
-**[灭共者之郭氏情报站（44）2022/03/27 文贵大直播 – GNEWS](https://gnews.org/zh-hans/2249553/)**
-
-
-
-**编辑/发稿：小鹿**
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-12.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
-
-
-
-
+G-TV：日本银河系农场。
 
  
 

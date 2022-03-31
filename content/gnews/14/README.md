@@ -2,13 +2,16 @@
 ---
 
 
-## 俄罗斯报复性驱逐波罗的海三国多名外交官
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2260998/)
+## 世界经济论坛展示了用人类心脏细胞制造的机器人鱼,他们说这离制造可移植给人类的人工心脏又近了一步,这将造福人类
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2261041/)
 
-03/30/2022 几个欧洲国家在一次协调行动中，驱逐了数十位俄罗斯外交官。作为报复，俄罗斯随后驱逐了波罗的海三国的10名外交官。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

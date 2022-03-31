@@ -2,10 +2,10 @@
 ---
 
 
-## 普京的顾问们向其传递了错误的俄罗斯作战信息
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261098/)
+## 中共谴责美国通过《2022年美国竞争法案》
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2261151/)
 
-03/30/2022 一位美国官员说，俄罗斯总统普京被顾问误导，不知道该国军队在乌克兰的表现有多糟糕。
+03/29/2022 中共谴责美通过旨在对抗中共的的2022竞争法案，说该法案充斥着冷战思维。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
