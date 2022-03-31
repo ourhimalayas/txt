@@ -2,30 +2,29 @@
 ---
 
 
-## 国际｜巴基斯坦总理恐遭罢免 习举办富汗邻国外长会议
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2262672/)
+## 英情况机构：俄军士兵士气低迷，抗拒命令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2262771/)
 
-**港台前线** **zhong｜2022-3-31**
-▎关注疫情真相、 光亮黑暗时刻&gt;&gt; **[疫情关注组 EpidemicConcernGroup](https://gettr.com/user/mightygroup)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-31.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [港台前線 Frontline｜HK&TW](https://gettr.com/user/hktwfrontline)
-（当地时间）外媒29日报导，数周前，巴基斯坦国民议会（或议会下院）的反对党领袖谢赫巴兹谢里夫（Shehbaz Sharif）对 总理伊姆兰．汗提出不信任动议，指责汗管理国家经济不善。巴国众议院于周四对不信任动议进行辩论，将在7天内进行投票。
+翻译：zicoround
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
+英国情报机构政府通信总部（GCHQ）主任弗莱明3月30日透露，一些在乌克兰的俄罗斯士兵不仅抗命不从、自毁设备，最新情报表明，还意外击落了自家的飞机。
+![ウクライナ内の一部ロシア兵、士気低下で命令拒否も＝英情報機関](https://img.news.goo.ne.jp/image_proxy/compress/q_80/picture/reuters/m_reuters-20220331035.jpg)图片来源：goo news
+据位于堪培拉的澳大利亚国立大学的演讲记录，弗莱明指出，俄总统普京“严重误判”了曾经强大的俄军能力，也低估了乌克兰人民的抵抗和西方国家发动制裁的决心。基于新情报，有证据表明俄军士兵士气低迷、装备不足，而且“普京的顾问似乎害怕告之真相”。
 
-巴国众议院342席次中，须得到172票方通过不信任动议。外媒报导分析人士表示，本次不信任动议是执政联合政府与军方的冲突，主要决定谁有权统治巴基斯坦，但双方皆否认此说法。
+路透社尚无法独立证实GCHQ的分析。
 
-现年69岁的伊姆兰．汗于2018年选举中获得176议会席次支持，当选总理。截至目前，已有5位同盟宣布退出联合政府或加入反对阵营，意思是反对派人数已达到177人，而伊姆兰．汗需要172票才能继续执政。外媒表示，巴基斯坦75年历史中，没有一位总理完成任期，该国经常发生军队政变。
+俄罗斯已表示，由于西方诸国已事实上对俄经济宣战，因此它将脱欧向东，与中共国结为伙伴。
 
-## 习近平向第三次阿富汗邻国外长会发表书面致辞
+弗莱明指出，“但过于紧密的伙伴关系对两国都有风险”。鉴于“俄罗斯明白，着眼今后，中国在军事和经济上都会越来越强”，他补充道，两国间的一些利益可能会出现对立。
 
-阿富汗邻国外长会议将举行，中共将与俄罗斯、巴基斯坦的外交官讨论阿富汗问题。中共外交部发言人汪文斌29日表示“中美俄巴都是在阿富汗问题上有重要影响的国家。我们期待通过这次会议…凝聚各方在阿富汗问题上的共识，推动地区国家和国际社会加大对阿富汗和平重建的支持…”。
-
-北京时间31日，人民网发布“习近平向第三次阿富汗邻国外长会发表书面致辞”，习指出阿富汗处在由乱及治的关键时期，并强调**阿富汗邻国要各尽所能**，凝聚共识，协调配合，支持阿富汗人民开创美好未来。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-31-下午4.21.03.png)
-来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E4%B8%AD%E5%9C%8B%E8%88%89%E8%BE%A6%E9%98%BF%E5%AF%8C%E6%B1%97%E9%84%B0%E5%9C%8B%E5%A4%96%E9%95%B7%E6%9C%83%E8%AD%B0-%E5%8C%97%E4%BA%AC%E6%89%93%E4%BB%80%E9%BA%BC%E7%AE%97%E7%9B%A4-040100396.html)、[ALJ](https://www.aljazeera.com/news/2022/3/30/pakistans-imran-khan-loses-majority-as-no-confidence-vote-nears)
+参考链接：[ウクライナ内の一部ロシア兵、士気低下で命令拒否も＝英情報機関 = 国際 – 写真 – goo ニュース](https://news.goo.ne.jp/picture/world/reuters-20220331035.html)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt;** [港台前線 Frontline｜HK&TW](https://gettr.com/user/hktwfrontline)**
-▎关注疫情真相、 光亮黑暗时刻&gt;&gt; **[疫情關注組 EpidemicConcernGroup](https://gettr.com/user/mightygroup)**
+审核：BryanW
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
+
 
  
 

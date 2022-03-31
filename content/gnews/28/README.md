@@ -2,29 +2,30 @@
 ---
 
 
-## 中日财经爆┃百度、爱奇艺等五家公司被美国SEC列入退市风险名单
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262478/)
+## 澳雅播报《午间灭共》——中国人不该放弃面对真相的本能
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2262689/)
 
-撰稿：东京樱花团/peterwong
+作者：金金
+编辑：Kelly
 
-美国证监会（SEC）3月31日将百度、爱奇艺等五家公司列入有退市风险的相关发行人暂定名单，并将百济神州等五家第一批进入暂定退市名单的公司转入确定名单。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F6e471d18-bc6b-4dfd-a5aa-489ecd8240b0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2Fddb097f8-41bd-41c9-916e-713ea4035d8d&amp;tbnid=EHnbus7AacBtwM&amp;vet=12ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ..i&amp;docid=gc6TBW1sfl4A-M&amp;w=2400&amp;h=1350&amp;q=sec&amp;ved=2ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ)
-根据美国SEC网站的最新披露，百度、爱奇艺、CASI制药、富途与总部位于台湾新北市的诺斯拉（Nocera）可在4月20日前提交证据申诉。
+- ![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/7cc5a67882a960a1.png)图片来源：雅典娜设计组
 
-上周SEC将中国社交媒体平台新浪微博列入暂定名单。截至目前，暂定名单中共六家公司。
 
-百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药三周前成为首批五家因为《外国公司问责法》而进入被识别清单的公司，申诉截止日期为3月29日。但SEC网站显示，该五家企业已从暂定名单进入确定名单。
+邪恶的中国共产党用他们的虚假谎言对人民洗脑了七十多年，让人民相信党是伟大的、党是为人民服务的，他们成功了，他们更成功的是用无神论，让人们尽情作恶，贪污腐败，人与人之间互害，其实他们手段并不高明。
 
-美国公众公司会计监督委员会(PCAOB)上周四表示，将继续与中国监管机构进行接触，以获取审计报告记录，但目前尚不清楚中共国政府是否会按照美国新上市法律的要求批准美方获得这些记录。最近媒体对协议即将达成的猜测“为时过早”。
+有个朋友跟我聊过她妹妹很小的时候问她：“人是猴子变的，现在的猴子怎么不变了？”她回答说：“不知道。”我也跟我的学生讨论过，大多数学生不相信教科书上说的人是猴子变的。而很多教师照本宣科教育孩子，把孩子引入歧途，其实教师本身就在歧途上。中国共产党是反对上帝的组织，他们告诉民众这个世界是没有神的，因为民众如果相信有神，他们就会敬畏神、敬畏天地、敬畏一花一草一木、敬畏生命，人与人之间就会友爱，与动物和谐相处。而邪恶的中共，需要的是人与人之间的仇恨，对动物的杀戮，让民众之间相互怀疑、提防、嫉妒甚至憎恶，失去爱的本能。中共不需要家庭和谐、社会和谐。
 
-消息来源:
+网络时代人们还是有机会接触到真相，但因为被洗脑多年，很多民众失去了思考能力，更愿意过着有吃有喝、猪狗似的生活，而不想去了解真相。你告诉他们真相，他们会说你关心这些干嘛，把自己的日子过过好，似乎别人日子比他差似的。
 
-[美国证监会将百度等五家公司列入退市风险暂定名单 百济神州等转入确定名单（更新版）](https://cn.reuters.com/article/usa-sec-chinese-companies-lists-0331-thu-idCNKCS2LS05Z?il=0)
+有网友说过，那些追求公平公正、追求尊严和自由的人经济条件都不差。无论是要求公布官员财产被判刑刘艳丽，还是在武汉调查疫情真相被判刑的张展，以及许许多多这样的正义之士，新中国联邦人更是如此。我们不是陈胜、吴广领导的一群去做苦役的农民，我们是率先醒来的一群好人。郭文贵先生在大直播说：“我爱中国人！”这一句话，让我泪流满面，就如神把他的爱子耶稣基督赐给我们一样，愿我们人人悔改得救，而不愿一人沉沦。我们愿跟随郭先生唤醒更多的好人。好人越多，勇敢的人越多，这个世界才越有希望。希望我们的亲人、同胞快快醒来，勇敢面对真相，不再过那种猪狗似的生活。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+发布：tianzhihuan
 
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
