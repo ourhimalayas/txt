@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 3/31/2022 2:23 AM (UTC)`
+
+【Ukraine Rescue】03/30/2022 Fellow fighter Jing Liang: The NFSC and ROLF’s rescue mission becomes the focus of all those in the whole world who want to take down the CCP.<br/><br/>【乌克兰救援】03/30/2022 ，来自精良战友：新中国联邦和法治基金的前线救援让全世界有着共同灭共心愿的人们有了一个聚焦点。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/><br/>
+![img](https://media.gettr.com/group47/getter/2022/03/31/02/1b46cbd8-914e-f709-1e28-7612b198f91b/out.jpg)
+
+---
+
 `@miles 3/31/2022 2:04 AM (UTC)`
 
 【Ukraine Rescue】03/30/2022 From Follow Fighter XiaoxiaoSu: The NFSC Medyka rescue station received one of the oldest refugees to date - an 81-year-old woman who fled from the warfare on a 60 km walking .She came into our tent to wait for her son to drive from Germany . The sight brought tears to the eyes of Follow Fighter WenYao.<br/><br/>【乌克兰救援】03/30/2022，来自小小酥战友： 新中国联邦梅迪卡救援站接待了一位迄今为止最年长的难民 - 一位81岁的老太太徒步60公里逃离战乱，来到我们的大帐蓬等待自己的儿子从德国驱车前来接她。文耀战友当场泪奔。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #rolfrescuehttps<br/><br/>
@@ -153,13 +160,6 @@ Himalaya Washington DC's livestream 2022-03-30
 
 可怜、可悲、可恨的小粉红们，也许只有如此这般遭遇时才能醒悟吧！
 ![img](https://media.gettr.com/group46/getter/2022/03/30/12/6903a1a3-99e3-91a2-8ca1-bf8cc1596064/a650635d1bca931a779668eb51a5f325.jpg)
-
----
-
-`@miles 3/30/2022 2:49 PM (UTC)`
-
-2022/03/30 非常感谢来自这位战友的设计，请大家在留言区写下你们的建议和反馈. 谢谢🙏🙏🙏🙏
-![img](https://media.gettr.com/group27/getter/2022/03/30/14/aeae8f40-d87e-924d-6b18-690b113dafdc/955076d24043c45c36f5356095746cb5.jpg)
 
 ---
 
