@@ -2,25 +2,29 @@
 ---
 
 
-## 乌克兰称掌握俄罗斯使用集束炸弹证据
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2261382/)
+## 美乌总统电话讨论援助和制裁 将再提供乌5亿美元援助
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2261391/)
 
-撰稿: 纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3854.png)
-外媒29日报导，乌克兰检察总长维涅迪克托瓦表示，乌克兰已掌握证据，证明俄罗斯部队在乌克兰南部的敖德萨和赫尔松地区使用了违禁武器集束炸弹，部分记者正在搜集相关证据，未来将用来揭露俄军使用集束炸弹和其他违禁武器。目前，她已掌握一些炸弹碎片或土壤样本分析结果等具体证据，可以确定俄军使用违禁武器。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3911.png)图片来自：https://www.ndtv.com
-据了解，集束炸弹因杀伤范围极大，可同时击中多个目标，伤害性极强，而且部分弹药可能不会立即爆炸，将在冲突结束多年后对平民持续构成威胁，因此级数炸弹目前已被多国禁用。
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-31-下午12.26.04.png)图片来源：互联网
+美国总统拜登和乌克兰总统泽连斯基周三（3月30日）电话讨论持续的对乌援助和制裁俄罗斯工作，拜登通知泽连斯基美国政府将提供5亿美元的直接预算援助，泽连斯基通报战场和伊斯坦布尔谈判局势。
 
-此外，敖德萨是乌克兰在黑海的大型港口城市，俄军对此地的进攻一直没有获得任何进展。赫尔松则是俄军入侵后拿下的唯一重要城市，目前乌克兰军队正尝试收复。
+根据白宫宣读的声明，两位总统先生讨论美国及其盟国和合作伙伴援助乌克兰和制裁俄罗斯的持续工作。拜登总统电话中通知乌克兰总统泽连斯基将提供5亿美元的直接预算援助。
 
-参考链接：[Ukraine Says Has “Proof” Russian Forces Used Banned Cluster Bombs](https://www.ndtv.com/world-news/ukraine-says-has-proof-russian-forces-used-banned-cluster-bombs-2848871)
+声明说:”拜登总统今天与乌克兰总统泽连斯基就美国及其盟国和合作伙伴为向乌克兰提供军事、经济和人道主义援助以及为俄罗斯对乌克兰的野蛮侵略而付出沉重代价而进行的持续工作进行了交谈。“
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/月曆-27.jpeg)
+声明还写道：”美国打算向乌克兰政府提供5亿美元的直接预算援助。“
 
-审核/编辑/总编: zhong
+乌克兰总统泽连斯基在[推特](https://twitter.com/ZelenskyyUa/status/1509202046574022656)上写道：”刚刚结束了一个小时的谈话（与美国总统拜登）. 共同评估战场上和谈判桌上的局势。谈到了具体的防御性支持、加强制裁的新一揽子计划、宏观金融和人道主义援助。“
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3854.png)
+参考链接：
+
+【1】 [拜登总统与乌克兰总统泽连斯基的 通话 宣读](https://www.whitehouse.gov/briefing-room/statements-releases/2022/03/30/readout-of-president-bidens-call-with-president-zelenskyy-of-ukraine-8/)
+
+* * *
+
+*编辑&发布：长岛开心*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
