@@ -2,34 +2,33 @@
 ---
 
 
-## 中日财经爆┃ARM与中共切割  计划转让合资公司股份
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262045/)
+## 澳洲石油公司将西北天然气管道连接到普鲁托海上油田
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2262068/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/ARM与中共切割-计划转让合资公司股份.png)[图片来源](https://www.sohu.com/a/462072509_100123330)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-英国《金融时报》周三（3月30日）报导，英国Arm公司正计划将其中国合资企业的股份转让给软银集团旗下的一个特殊目的实体(SPV)，以加速推动首次公开发行(IPO)计划。
+翻译/编辑：小红帽
 
-报导称，如果股份转让成功，该合资企业与Arm总部将保有授权许可的关系，而非持股关系。Arm目前持有合资企业的47.3%股权。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/1200x800.jpg)图片来源：Bloomberg
 
-报导还说，芯片设计公司Arm将继续从Arm中国(安谋科技)获得许可收入，但不需要审计该部门的财务状况。
 
-上周，路透曾报导软银计划选择高盛[GS.N](https://www.reuters.com/companies/GS.N)作为Arm公司IPO的主承销商。IPO对该公司的估值可能高达600亿美元。它的目标是在2023年3月前在纳斯达克上市。
+根据路透社3月31日报道，澳大利亚伍德赛德石油公司 (Woodside) 周四表示，已开始从其普鲁托（Pluto）海上油田向西北大陆架项目的液化天然气 (LNG) 工厂输送天然气，从而使该公司能够从全球液化天然气价格飙升中获利。
 
-当前，美国政府正在按照《外国公司问责法》清理中共关联企业，中概股正变“中丐股”，与中共切割已成外资外企的必然。Arm公司抛售中国合资公司股份，既符合IPO审计的现实需要，又符合其长远发展的利益。
+天然气流经一条3.2公里（2 英里）长的管道，该管道将其普鲁托液化天然气工厂与西北大陆架项目的卡拉萨（Karratha）天然气厂(KGP)连接起来。
 
-信息来源：
-[Arm计划转让中国合资企业股份以加速IPO进程](https://www.cnbeta.com/articles/tech/1252821.htm)
+该互连管道为澳大利亚最大的独立天然气生产商伍德赛德提供了一个额外的普鲁托油田的天然气出口，同时也有助于填补卡拉萨天然气厂的闲置产能。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+伍德赛德首席执行官梅格-奥尼尔（Meg O’Neill）在一份声明中表示：“通过卡拉萨天然气厂处理来自普鲁托海上油田的天然气，使伍德赛德能够向国际天然气市场输送更多的液化天然气。”
+
+新闻来源：[Australia’s Woodside starts sending Pluto gas to NW Shelf LNG plant](https://www.reuters.com/business/energy/australias-woodside-starts-sending-pluto-gas-nw-shelf-lng-plant-2022-03-31/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
