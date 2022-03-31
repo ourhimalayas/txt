@@ -2,35 +2,32 @@
 ---
 
 
-## 樱花FM┃中日财经爆:日本央行今年第二次开展“限价操作” 抑制长期利率
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2263014/)
+## 美乌元首热线！拜登加码5亿美金支援抗俄
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2263060/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/日本央行今年第二次开展限价操作-抑制长期利率.png)
-日本央行3月28日宣布，29日将开展“限价操作”，原则上以0.25%的年收益率无限购买10年期国债，其目的是应对长期利率上升，将长期利率控制在一定范围内。这是自今年 2 月 14 日以来，第二次开展这项行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+美乌元首周三再度热线1小时，拜登承诺泽伦斯基加码5亿美金支援，协助乌军继续抗俄。
 
-日本央行3月28日宣布，29日将开展“限价操作”，原则上以0.25%的年收益率无限购买10年期国债，其目的是应对长期利率上升，将长期利率控制在一定范围内。这是自今年 2 月 14 日以来，第二次开展这项行动。
+美国国防部发言人柯比说，如果俄军有意降温他们自己宣称的，就应该把军队送回家，但他们没有这样做。
 
-日本央行正在继续进行大规模货币宽松，以将长期利率控制在 0% 左右。28日在东京债市，作为长期利率的代表指标，新发行的10年期国债流通收益率暂时升至0.245%，为2016年1月以来约6年来的最高水平。日本央行宣布限价操作后，长期利率一度下跌。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1f15a2c6-8a1e-4b59-ae46-214c91e117fb.jpg)图片来源：民视新闻
 
-在债券市场买卖政府债券的金融机构将被日本银行以 0.25% 的收益率购买，因此以更高的收益率（更便宜的价格）出售给其他金融机构没有任何好处。因此，利率实际上被限制在 0.25%。
+美国国防部指出，在基辅周围的俄军，有其中20%已开始重新部署，可能往白俄罗斯重新补给，不过专家指出，这过程可能与乌军交会，恐怕会有交火，要进去简单，要出去可不容易。
 
-文字版原文：
+前美国空军上校莱顿说，回去白俄罗斯或俄罗斯途中会有很多动作，所以俄军想这样做满难的，我不觉得他们办得到。
 
+简评：拜登加码对于乌克兰援助5亿美金，表面俄罗斯的假停火根本没有人相信，未来大概率还会有交火。面对乌克兰得到的援助越来越充实，普京要拉着这么多人陪葬，继续一意孤行纯属自掘坟墓了。
 
-| [中日财经爆| 日本央行今年第二次开展“限价操作” 抑制长期利率](https://gnews.org/zh-hans/2244368/) |  |
-| --- | --- |
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022331I09M1](https://www.ftvnews.com.tw/news/detail/2022331I09M1)
 
+撰稿/发布：一叶知秋
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,37 @@
 ---
 
 
-## 病毒学家的愤怒：第四剂新冠疫苗是用了两年的旧疫苗，实在荒唐
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2262829/)
+## 习普将继续末路狂奔
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2262901/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+#### 【雅典娜观察】与您一起洞察世界
 
-意大利病毒学会主席阿纳尔多·卡鲁索（Arnaldo Caruso）近期在接受Adnkronos通讯社健康专栏记者采访时说：“我一直在说，现在生产的第四剂新冠疫苗，这一疫苗已经存在至少两年了，是用于抵抗已经不存在于世的病毒毒株，这实在荒唐。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Schermata-2022-03-31-alle-11.06.59.png)图片来源：Adnkronos通讯社
-他坦率地说他对美国FDA批准针对50岁以上的人(包括有免疫缺陷的人)施打第四针辉瑞和莫德纳疫苗加强针的决定感到惊讶。这位专家还质问大型制药公司：“ 他们是不是希望生产新产品之前，消费掉库存里的旧产品？”
+**作者/编辑：幕紗公子**
 
-关于现在打第四针加强针还是以后打，这位专家强调，现在增长趋势趋于平缓，而且由于夏天的到来，病例会减少。卡鲁索教授认为最好是等10月新的感染高峰到来之前，再接种新型新冠疫苗。针对以色列的数据以及第四剂疫苗有许多不同的看法，如此近距离的接种同样的产品，有人认为效果适得其反。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/a1648717920704.jpg)图片来源：VOA&雅典娜设计组
 
-参考链接：
 
-[https://www.ilgiornale.it/news/cronache/caruso-attacca-assurda-quarta-dose-vecchi-vaccini-2022210.html](https://www.ilgiornale.it/news/cronache/caruso-attacca-assurda-quarta-dose-vecchi-vaccini-2022210.html)
+俄罗斯外交部长拉夫罗夫在安徽屯溪已与王毅举行了会谈。在外交部的记者招待会上，当被路透社记者问道“北京冬奥会开幕前，中俄元首称双方合作没有上限。现在两国要扩大合作意味着什么？合作要扩大到什么程度？将涵盖哪些领域”时，中共国外交部发言人汪文斌表示“**中俄合作争取和平无上限，，反对霸权无上限。中俄关系不结盟，不对抗，不针对第三方”。**
 
-编辑、上传：Xiao baige
+毫无悬念，共匪注定会选择继续末路狂奔。汪文斌的表态把一个无赖政党的嘴脸展露无遗，把一句前后意思完全矛盾的话包藏在汉字的戏弄中，把世界当白痴。
+
+“中俄合作争取和平无上限、维护安全无上限”。这是意欲维护谁和平与安全？普京和习近平两个独裁吗？
+
+“反对霸权无上限”，为什么不直接说反对“美国霸权”？
+
+“中俄关系不结盟”。荒诞的逻辑，都已经无上限了，都已经超越了结盟，真是无耻至极。
+
+“不对抗，不针对第三方”，“霸权”是不是第三方？如果不针对第三方，为什么还要申明“反对霸权无上限”？
+
+由此可见，独裁政治使人性扭曲变形，把一切事物都置入“反智”的混乱逻辑中。
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[雅典娜农场情报组Gettr:](https://www.gettr.com/user/aussielife)[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

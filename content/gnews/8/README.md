@@ -2,44 +2,56 @@
 ---
 
 
-## 现在每天几辆巴士未来会有多个几十个,已安排23架飞机
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2263054/)
+## 新冠疫苗灾难泛滥，心肺复苏抢救技能简介
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2263096/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8824.50%EF%BC%89%E7%8E%B0%E5%9C%A8%E6%AF%8F%E5%A4%A9%E5%87%A0%E8%BE%86%E5%B7%B4%E5%A3%AB%E6%9C%AA%E6%9D%A5%E4%BC%9A%E6%9C%89%E5%A4%9A%E4%B8%AA%E5%87%A0%E5%8D%81%E4%B8%AA%2C%E5%B7%B2%E5%AE%89%E6%8E%9223%E6%9E%B6%E9%A3%9E%E6%9C%BA%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
+整理：kevin YY
+编辑：文泓
 
-**郭文贵先生：**这个直播做得，在这现场战争当中做得太好了，你俩都真的太漂亮、帅了。我要告诉你们的是，大卫兄弟，现在我在乌克兰的我们内部的朋友明确的，大多数中国人绝对都知道我们这救援，我们是唯一一个能掏到乌克兰去救中国人，而且我们一定要有一个，记住啊，我们不分族类，不分宗教，我们分人类，中国人是优先，但是我们乌克兰就像刚才那个小孩母亲、孩子的，一定要去救啊。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/K2D2GNRYWIFOC2JWS03LB.png)图片来源：Healthline
 
-另外一个我要 …… 大卫兄弟和Sarah你们要记住，特别在这个直播当中要告诉大家的，我们现在每天有几个大巴士，未来可能是一天多个、几十个巴士。我们现在已经有23架的国际救援飞机已经安排好了。让大家知道这个救援飞机是免费地救中国同胞，送到你帕劳去，就是中国（说）的帛琉，免签证的地方，你可以自愿走开，不需要任何金钱，不需要任何的利益，没有任何条件。
 
-同时我们有飞机飞到加拿大和美国，就是23架，如果需要的话，我们可能安排到100架，都没有问题。而且我们在当地我们的新中国联邦和战友，法治基金、法治社会，有一个基地，24小时，好吧？大卫兄弟和小Sarah你们做得太好了！你们现在有什么现场的感受给大家分享一下？谢谢大卫兄弟、Sarah。
+全球政府大规模推广新冠疫苗，导致接种者心梗、脑梗的急性猝死现象发生率很高。当人们发生急性倒地时，第一时间的心肺复苏（CPR）处理，就可以挽救一个生命。因此，大家要尽可能地学习并掌握好这个应急技能。
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+初期心肺复苏（Initial cardiopulmonary resuscitation）简称CPR，作用是心肺复苏，口对口（鼻）人工呼吸最适用于现场复苏。
 
-编辑整理：Jacques；
+**一、判断和求救**
 
-字幕档制作：兵嫂；
+（1）首先判断患者意识是否存在：**可轻拍患者面部或肩部，并大声呼唤，如无反应，说明意识已丧失。**然后高声呼救，目的在于呼唤其他人前来帮助，并且尽快拨打急救电话（中国120、美国911，澳洲000），让急救医生尽快赶来现场。
 
-视频制作及上传：Cindy；
+（2）摆好体位：**迅速使患者仰卧在坚实的地面上，头部不得高于胸部，应与躯干在一个平面上。**如患者俯面，则必须将患者的头、肩、躯干作为一个整体同时翻转而不使其扭曲，对于颈部受伤者特别注意拖颈翻转。
 
-G-News发布：海贼王M.D.LUFFY；
+（3）判断呼吸及脉搏，在10秒内完成。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**二、胸外心脏按压**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+患者平卧，背部垫一块木板或平卧于地板上，解开上衣，**确定正确的按压部位，即两乳头连线中点。**救护者立于或跪于患者右侧，一手掌跟置于按压点，另一手掌跟不覆于前者之上，手指翘起或双手手指交叉互相握持抬起，两臂伸直，凭自身重力通过双臂和双手掌，垂直向胸骨加压，使胸骨下陷4-5cm，然后放松，但掌跟不能离开按压处。按压与松开的时间比为1:1，推荐频率100－120次/min。胸外按压与人工呼吸比例为30:2。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**三、开放气道**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+（1）清除气道及口内异物：使头部偏向一侧，液体状的异物可顺位流出，还可按指示包上纱布或手帕将口腔异物取出，并注意取出义齿（如果有）。 （2）首选仰头举颏法打开气道：救护者一只手置于患者前额，手掌后压使头后仰，另一只手示、中指置于患者颏部的下颌骨向上抬举，举高程度以唇齿未完全闭合为限。不要深压颏部软组织以免阻塞气道。也可手扣口咽法、拖颌牵舌法。（如下图，图片来源-要无忧网）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/TQ@BPRTCZP_Z6A19OLH.png)
+**四、人工呼吸**
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+口对口（鼻）人工呼吸最适用于现场复苏。救护者将放在患者额前的那只手的拇指和示指捏住患者鼻孔，深吸气后将口唇严密包盖患者口部，并缓慢持续地向患者口腔吹气，每次应达1秒以上，确保每次吹气后患者胸部抬举。**疫性高发区，尽量选择简易呼吸器，而不是口对口。主要是保护自己不被新冠传染（如下图，图片来源-m.xing73.com）**。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/QJCL6JKZ_3X48OVSE2.png)
+**五、成功与终止**
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+进行心肺复苏术后，病人瞳孔由大变小，对尤反应恢复，脑组织功能开始恢复(如病人挣扎、肌张力增强，有吞咽动作等)，能自主呼吸，心跳恢复，紫绀消退等，可认为心肺复苏成功。若经过约30分钟的心肺复苏抢救，不出现上述复苏的表现，预示复苏失败。若有脉搏，收缩压保持在60mmHz以上，瞳孔处于收缩状态，应继续进行心肺复苏抢救。如病人深度意识不清，缺乏自主呼吸，瞳孔散大固定，表明脑死亡。心肺复苏持续一小时之后，心电活动不恢复，表示心脏死亡。患者出现尸斑时，可放弃心肺复苏抢救。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+在抢救过程中，如120急救到场后，要及时转运到有条件的医院做跟进性抢救和治疗。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**六、结束前的注意事项**
 
-G-TV：日本银河系农场。
+完成患者抢救和转运后，自己要做好自己全身消毒工作。待消毒完成后才能接触其它人。
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
