@@ -2,64 +2,52 @@
 ---
 
 
-## 美国NIH电子邮件显示：应武汉研究人员的要求删除了中共病毒信息
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2263045/)
+## 大流行使福奇的生态健康联盟的收入提高了3.5倍
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2263094/)
 
-**信息删除引起了科学界的担忧，但 NIH 指示记者对该机构进行更有利的报道**
+翻译：wenwu
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3974.png)图片来源：thenationalpulse.com
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-3.jpg)
+“生态健康联盟”(EcoHealth Alliance)是与武汉病毒研究所（WIV）合作的有争议的非营利组织，其财务披露显示：在中共病毒（COVID-19）大流行开始后，投资收入激增了近3.5倍。
 
-采集：玫瑰新闻组
+由 COVID-19 （自然）起源的宣传者和中共资助的满嘴谎言的研究员彼得·达扎克（Peter Daszak）经营的生态健康联盟，从安东尼·福奇的国家卫生研究所（NIH）机构获得价值数百万美元的资金，与武汉实验室一起研究“杀手”病毒。联合研究的摘要—现在已经从武毒所的网站上[抹去](https://thenationalpulse.com/2021/05/15/wuhan-lab-erases-nih-ties-gof-research/)–关于显示科学家们创造了 “嵌合”（译者注：实验室人造）病毒，这些（人造）病毒在人类中的传播速度“相当于 SARS-CoV 的流行株”（译者注：SARS-CoV-2 来自武毒所的实验室）。
 
+根据生态健康联盟的990份文件和 ProPublica 的[分析](https://projects.propublica.org/nonprofits/organizations/311726494)，在该联盟与武汉的“[长期](https://thenationalpulse.com/2021/06/11/wuhan-bat-lady-thanks-nih-and-daszak/)”合作之后，这个美国非营利组织的投资收入出现了可观的增长。
 
+在截至6月30日的2019财政年度，生态健康联盟报告了8万1277美元的投资收入。接下来的财政年度，包括 COVID-19 大流行的开始，生态健康联盟报告了35万9381美元的投资收入。
 
+收入的巨大转变相当于342.2%的增长。
 
+在之前的六年里（如图），生态健康联盟的投资收入从未突破7万美元，2020年的收入平均代表了480.9%的巨大增长。在2011年和2012年，该联盟的投资收入平均为11万3737美元，这几乎是投资收入的六倍增长。
 
-![National Institutes of Health - Wikipedia](https://assets.gnews.org/wp-content/uploads/2022/03/image-540.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3976.png)
 
-根据无党派举报人和政府监督小组获得的电子邮件，应中共国武汉研究人员的要求，美国国立卫生研究院（NIH）在大流行期间删除了有关 中共病毒（COVID-19 ）基因测序的信息，此举在科学界引起了恐慌。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3977.png)图片来源：thenationalpulse.com
 
-授权监督（Empower Oversight） 小组获得的电子邮件显示，中共国武汉大学的一名研究人员于 2020 年 3 月向 NIH 的序列阅读档案库提交了病毒序列信息，正值世界卫生组织宣布大流行的同一个月，也就是在武汉发现病毒大约两个月后。
+生态健康联盟2020年的投资收入与2011年和2012年相比仍有216%的增长（如图），这也是目前发现的990份文件中进行投资分析的最早年份。（如图）
 
-电子邮件显示，这位科学家于 2020 年 6 月就该病毒提交了附加意见。当天晚些时候，他要求 NIH 撤回提交的文件，声称提交有误。
+![此图像的alt属性为空；文件名为image-3979.png](https://assets.gnews.org/wp-content/uploads/2022/03/image-3979.png)图片来源：thenationalpulse.com
 
-NIH 回应说，它更喜欢编辑或替换提交的意见，而不是替换病毒序列信息。
+得出这些数字来源于三个信息：“投资收入（包括股息、利息和其他类似金额）”，“免税债券收益的投资收入”，以及出售“证券”和“其他”。
 
-根据电子邮件，几天后，研究人员再次提交了从 NIH 数据库中撤回基因序列的请求。
+生态健康联盟被揭发的财务收益是在《国家脉动》披露，另一位由福奇资助的研究人员拉尔夫·巴里奇(Ralph Baric)博士因发表关于如何从大流行病中获利的演讲之后。
 
-一天后，NIH 同意了研究人员的要求，并要求澄清是否应该删除另一份提交的文件。
+“因此，如果你曾经想在下一次大流行中做好准备并赚钱，如果这是你想做的事，请购买 Hazmat 套装制造商和防护服的股票或为该特定大流行制造抗病毒药物的公司，”他[指出](https://thenationalpulse.com/2021/06/13/wuhan-lab-partner-scheming-on-pandemic-profits/)。
 
-“我已经撤回了一切，” 一位不愿透露姓名的 NIH 官员在一封电子邮件中对这位武汉研究人员说。
+新闻来源：[thenationalpulse.com] [Fauci’s COVID-Origins Allies, the EcoHealthAlliance, Boosted Investment Income by 350% Since Pre-Pandemic.](https://thenationalpulse.com/2022/03/28/ecohealth-alliance-investments-surged-amidst-covid/) | 发布时间：2022年03月28日
 
-这些电子邮件是在 Empower Oversight 根据《信息自由法》起诉 NIH 后获得的。你可以在这里阅读它们。
+* * *
 
-文件
-
-[nih-foia-request-56712\_redacted.pdf](https://justthenews-com.translate.goog/sites/default/files/2022-03/nih-foia-request-56712_redacted.pdf?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en&amp;_x_tr_pto=wapp)
-
-文件还显示，一位专家建议当时的 NIH 主任弗朗西斯·柯林斯和负责该机构国家过敏和传染病研究所的安东尼·福奇博士，声明中共病毒COVID 起源于武汉食品市场之外，就像中国政府所声称的那样。
-
-其他电子邮件显示，NIH 指示记者对删除事件进行更有利的报道。
-
-NIH 的 Renate Myles 写信给 国会山(The Hill) 报的一名记者： “我们认为这个华盛顿邮报 的故事很好地描述了这种情况。”并指示记者忽略《纽约时报》的一篇报道，因为它的“语气”问题。
-
-“这些文件提出了几个问题，需要进一步调查才能完全回答，” 根据 Empower Oversight 的一份报告，该报告由前爱荷华州共和党参议员查克·格拉斯利 (Chuck Grassley) 的前高级职员创建。“国会应该向 NIH 施压，要求其回答为什么它阻碍参议院的调查，并拖延通过自由信息法案（FOIA） 实现基本透明度。”
-
-该组织表示，电子邮件中最令人不安的因素之一是，有证据表明 NIH 拒绝参与一个透明的过程来检查已删除序列的数据。
-
-“最重要的是，为什么 NIH 拒绝在开放的科学过程中检查已删除序列的档案副本，以确定是否有任何信息能够揭示中共病毒（ COVID-19 ）大流行的起源？” 小组问道。
-
-然而，NIH 官员史蒂夫雪利驳回了这一论点。
-
-据该机构称，尽管序列从未完全删除，但雪莉告诉一位要求透明度的研究人员，“如你所知，当数据集从数据库中撤出时，该状态不允许用于进一步分析。”
-
-新闻链接：
-
-[https://justthenews.com/nation/science/us-national-institutes-health-deleted-covid-info-wuhan-researchers-request-emails](https://justthenews.com/nation/science/us-national-institutes-health-deleted-covid-info-wuhan-researchers-request-emails)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
-
+审核：文乐
+校对：花羽
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
