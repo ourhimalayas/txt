@@ -2,30 +2,33 @@
 ---
 
 
-## 由于中共的参与 巴基斯坦恐发生内乱
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2265928/)
+## COVID-19疫苗副作用集萃（2022.4.1A）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2266210/)
 
-撰稿：西枫westca
+**整理：**雅典娜情报组(BENJ1)
+**编辑：**翼族
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-25.jpg)图片来源：Reuters
-据《每日巴基斯坦》及多家媒体3月31日报道，巴基斯坦新闻部长法瓦德·乔杜里（Fawad Chaudhry）表示，总理伊姆兰·汗（Imran Khan）的生命处于危险之中。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-巴基斯坦目前正在经历政治动荡，巴基斯坦执政党正义运动党（PTI）在中间派的关键盟友MQM-P决定改变立场并成为反对党的一部分，正式在议会中进行了不信任投票，并获得国民议会批准要求驱逐伊姆兰汗，指责他经济管理不善。最终投票将于7日内进行。
+**疫苗第二针，成功倒下**
 
-随着该国政治紧张局势的加剧，”暗杀总理伊姆兰·汗的阴谋正在酝酿之中。在接受Samaa电视台采访时，乔杜里说，伊姆兰汗并不关心安全，因为他认为自己是一个普通人。乔杜里还声称，该国的一些知识分子一直在反对巴基斯坦。一些媒体成员正在散布反对军队的宣传。
+昨晚8:25第二针的预约，大姨妈一进门就马不停蹄的陪我冒雨去了AIS🙄，快关门的时候人很少，进去就被招呼了，护士老阿妈简直像容嬷嬷一样，撸起袖子就给我扎上了，消毒？干了一天了，估计觉得太麻烦……自动省略，一针到底，“铛”撞上骨头……推水，结束！
 
-有记者在在中共国外交部例行记者会上提问称，中方是否担心巴基斯坦领导人的改变会影响中巴关系？外交部发言人汪文斌回应称，中国一贯奉行不干涉他国内政原则。作为巴基斯坦全天候战略合作伙伴和友好邻邦，中方真诚希望巴基斯坦各党派保持团结，共同维护发展稳定大局。
+不过，扎得深的好处，不疼！辉瑞第一针没有扎这么深，扎完立刻肉疼啊。回家相安无事，该洗刷刷洗刷刷，该带娃带娃。然而……今天大概中午12点就不太行了，感觉好冷，没力气，体温38.1……大量喝水，睡觉（队友一拖二）。
 
-郭文贵先生在昨天的大直播时已经指出，由于中共的参与，巴基斯坦会马上陷入内乱。如果发生这种情况，伊姆兰汗的下台可能会给这个拥有核武器的国家带来另一轮不稳定。在俄乌战争趋势还未分明时，中共又在世界各地煽风点火，这最终会烧到自己身上，加速共产党的灭亡速度。
+一觉醒来，感觉头晕头疼，冷，浑身发热（好矛盾），浑身无力，一测体温，哐哐哐39.6度，打新冠疫苗第一针就胳膊疼了一下，没想到这新冠疫苗第二针来的如此之猛。第一针之后的心脏早搏问题还没来得及问GP呢！
 
-**新闻来源：**
+参考链接：[疫苗第二针，成功倒下](https://www.xiaohongshu.com/discovery/item/61580da6000000000102ec0e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648606466)
 
-[PM Imran’s life is in danger: Fawad Chaudhry – The Pakistan Daily](https://thepakistandaily.com/pm-imrans-life-is-in-danger-fawad-chaudhry/#:~:text=ISLAMABAD%3A%20Information%20Minister%20Fawad%20Chaudhry%20has%20said%20that,security%20as%20he%20considers%20himself%20a%20common%20man.)
+*发布：翼族*
 
-[Pakistan PM Imran Khan’s life in danger as there was a plot to assassinate him, claims PTI leader (msn.com)](https://www.msn.com/en-in/news/world/pakistan-pm-imran-khans-life-in-danger-as-there-was-a-plot-to-assassinate-him-claims-pti-leader/ar-AAVGUGm?ocid=uxbndlbing)
-
-[中方是否担心巴基斯坦领导人的改变会影响中巴关系？汪文斌回应 (huanqiu.com)](https://world.huanqiu.com/article/47PrP8veWaa)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

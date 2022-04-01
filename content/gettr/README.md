@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/1/2022 4:13 AM (UTC)`
+
+China-Russia cooperation has no limits. Two evil regimes and leaders promote multipolar, peace and democracy, how ironic! When innocent people of these two countries are represented by dictators and are forced to be put on the war machine, their disasters can be foreseen. <br/><br/>中俄合作无上限。两个邪恶政权和领导人倡导世界多极化，和平和民主，多么讽刺。当两国无辜民众被独裁者代表而绑架上战车，他们的灾难就在眼前。
+![img](https://media.gettr.com/group21/origin/2022/04/01/04/9db85613-708a-8da9-9d09-5300cdd2c350/out.jpg)
+
+---
+
 `@miles 4/1/2022 3:05 AM (UTC)`
 
 
@@ -151,13 +158,6 @@
 
  3月31号：尊敬的战友们好，你们健身了吗？一切都已经开始！
 ![img](https://media.gettr.com/group17/getter/2022/03/31/13/9ca1201e-28e4-b85f-e16e-9bc925e82256/out.jpg)
-
----
-
-`@miles 3/31/2022 1:03 PM (UTC)`
-
-2022.03.31早《新中国联邦新闻访谈》中俄外长会面  扩大双边合作  在国际事务中发出更团结的声音  日本开放宣战权呼应拜登波兰演讲  FDA批准第四剂疫苗几个小时后FDA官员提出今秋第五剂疫苗的可能性  美参议院通过美国竞争法  英两位法官辞任香港终审法院非常任法官
-![img](https://media.gettr.com/group9/origin/2022/03/31/13/688c261a-1632-c83a-db21-faaef40a52da/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
