@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/1/2022 3:05 AM (UTC)`
+
+
+![img](https://media.gettr.com/group36/origin/2022/03/27/02/1593a18d-d2bc-374e-de30-896627209477/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/1/2022 2:07 AM (UTC)`
 
 2022.03.31  NFSC finance 新中国联邦 | 喜财经   中共国疫情供应链危机
@@ -151,13 +158,6 @@
 
 2022.03.31早《新中国联邦新闻访谈》中俄外长会面  扩大双边合作  在国际事务中发出更团结的声音  日本开放宣战权呼应拜登波兰演讲  FDA批准第四剂疫苗几个小时后FDA官员提出今秋第五剂疫苗的可能性  美参议院通过美国竞争法  英两位法官辞任香港终审法院非常任法官
 ![img](https://media.gettr.com/group9/origin/2022/03/31/13/688c261a-1632-c83a-db21-faaef40a52da/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/31/2022 12:33 PM (UTC)`
-
-
-![img](https://media.gettr.com/group30/origin/2022/03/31/12/2a5378c9-eb5c-db8d-3e34-366d59b19920/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
