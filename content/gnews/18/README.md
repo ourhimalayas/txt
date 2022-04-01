@@ -2,8 +2,8 @@
 ---
 
 
-## 20220330郭文贵大直播 ：有尊严的80多岁乌克兰老妇人让人泪目
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266103/)
+## 20220330郭文贵大直播 ：文贵先生提醒当精力集中在俄乌战争时 别忘了中东、东北亚和南亚
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266114/)
 
 作者：东京樱花团小视频组
 

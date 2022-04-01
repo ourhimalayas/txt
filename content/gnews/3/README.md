@@ -2,113 +2,41 @@
 ---
 
 
-## 拜登总统：我不会退缩
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2266386/)
+## 有声|所罗门群岛无视澳大利亚抗议活动并与中共签订安全协议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266483/)
 
-Reporter
-记者
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+澳大利亚媒体3月31日发文称，所罗门群岛无视澳大利亚的抗议活动并将与中共国正式签署安全协议。本周四，中所双方官员就协议草案的细节再次进行了谈判。这表明中共外交部长王毅和所罗门外交部长耶利米·马奈勒很快就将正式签署该协议。
 
-Mr. President, Thank you
-总统先生，谢谢你
+此前，据新加坡媒体报道，所罗门群岛已与北京草签了安全协议，这份协议不仅为中共国在太平洋安全事务中获得第一个主要利益铺平了道路，还试探了澳大利亚在该地区长达一个世纪之久的影响力。
 
-when you say that you’re not walking anything back
-当你说你不会往回走
+据了解，这份协议的草案内容已于上周曝光并随即引发了澳大利亚、新西兰等多个西方国家的担忧。草案中，一项建议称“中共国可以根据自己的需要，经所罗门群岛同意，在所罗门群岛进行船舶访问，进行后勤补充，并在所罗门群岛中停留和过渡”。同时，它还将允许中国武装警察应所罗门群岛的要求部署，以维护“社会秩序”。
 
-you do feel that Vladimir Putin should be remained from – removed from powers
-你确实觉得弗拉基米尔·普京应该被排除在权力之外
+澳大利亚国防军联合行动主任格雷格·比尔顿中将周四接受采访时称，中国海军舰艇驻扎在太平洋国家的消息将“让澳大利亚国防军不得不从长计议”。
 
-It’s that what you’re saying? And –
-这是你所说的吗？
+澳大利亚国防部长彼得·达顿对此则明确表示，中共国的目标是澳大利亚、日本和印度。他说，这一切构成了中共正在采取行动的总路线。“我们已经在南海看到了相关的侵略，现在（中共）在南海20个点的军事存在，在东海针对日本的相关活动，都令人深感担忧。”
+![](https://assets.gnews.org/wp-content/uploads/2022/03/FireShot-Capture-328-Solomon-Islands-inks-security-deal-with-China-testing-Australias-in_-www.smh_.com_.au_.png)
 
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
 
-No, what I was, I was expressing just what I said
-不，我所说的只是在表达
+文字版原文：[所罗门群岛无视澳大利亚抗议活动并与中共签订安全协议](https://gnews.org/zh-hans/2264065/)
 
-I was expressing moral outrage I felt towards this man
-我是在表达我对这个人的道德愤怒
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-I wasn’t articulating a policy change
-我不是在阐述政策变化
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-And I think that, you know, if he continues on this course that he’s on
-而且我认为，你知道，他在这方面继续下去
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-He is going to become a pariah worldwide
-他将成为全世界的贱民
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-and who knows what’d he come – becomes at home, in terms of support
-而且谁知道他会出什么事，在内部得到支持方面
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-Reporter
-记者
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-Just a follow-up, are you concerned this remark might escalate the conflict?
-继续这个话题，您是否担心此言论可能会加剧冲突？
-
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
-
-No, I’m not, I’m not at all
-不，我不是, 我一点也不
-
-Reporter
-记者
-
-Thank you, sir
-谢谢你，先生
-
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
-
-Look, you know, look
-你知道，看
-
-The other thing is that a couple people have asked me as well
-另一件事是有几个人也问过我
-
-might as well speak to it, unless you want to ask the question
-除非你想问这个问题，很可能会这么说
-
-but you know that other governments have suggested
-但你知道其他政府已经建议
-
-that this is the problem, I’m escalating things
-这就是问题所在，我把事情升级了
-
-No, it has weakened NATO
-不，它削弱了北约
-
-No it hadn’t
-不, 没有
-
-NATO has never ever, ever, ever, ever, ever been strong as it is today
-北约从来没有，从来 从来 从来，从来没有像今天这样强大
-
-Never
-从来没有
-
-* * *
-
-Date:03/29/2022
-原视频标题: President Biden：I am not walking anything back
-拜登总统：我不会退缩
-原视频日期：2022/03/29
-原视频链接：[https://twitter.com/newsmax/status](https://twitter.com/newsmax/status)/1508525094087409670?s=24
-任务编号：KE465(4115)
-视频时间段 : 0:00-1:06
-
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Freeearth
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

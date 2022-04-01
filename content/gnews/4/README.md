@@ -2,51 +2,205 @@
 ---
 
 
-## 有声|拜登政府预测加密货币税收将带来100 亿美元的收益
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266373/)
+## 中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2266466/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在 3 月 9 日有关加密货币的法令颁布几周后，美国总统乔·拜登 (Joe Biden) 政府提出了 2023 年的经济计划。该文件不是最终文件，它特别提到了美国居民有义务申报其在海外账户中持有的数字资产，以及对加密货币的市场价格估值征税。
+**郭文贵
+Miles Guo**
 
-**加密货币框架更清晰**
+中美的战争正式开始了
+La guerra chino-estadounidense ha comenzado oficialmente
 
-在关于加密货币在美国未来的第一份草案的几周后，拜登政府颁布了其 2023 年的经济计划。
+即使现在共产党啥都不做
+A pesar que el PCCh no haga nada ahora
 
-根据 3 月 28 日星期一发布的文件，税收规则的修改——被称为“现代化税收”——将在 2023 年至 2032 年间将美国的赤字减少109 亿美元。
+就凭这个, 我没说过嘛
+Con sólo esto, no lo he dicho
 
-这些新法规允许美国金融当局撒下更广泛的网，包括通过鼓励他们报告离岸账户中超过 50,000 美元的任何金融投资，对在离岸账户中持有数字资产的人征税。
+在意大利的见面
+En el encuentro de Italia
 
-此外，加密货币持有者现在将根据其资产的按市值计价 (MTM) 估值征税。换句话说，征税人员将不会根据购买某种加密货币的价格来征税，而是根据其实际市场价值的增加来征税。
+然后习和拜登的这个对话
+Y esta conversación entre Xi y Biden
 
-具体来说，如果一个人持有加密货币，而后者的价值随着市场波动而增加，那么即使他不转售，他也会被征税，对这种加密货币的增值部分征税。
+他已经是很清楚
+Él está muy claro
 
-在文件的第 83 页，我们还可以看到5200 万美元将在 2023 年分配给 FBI 的几个部门，特别是为了参与“打击勒索软件战略”，同时也是为了打击“滥用加密货币”。
+我就是支持俄罗斯
+Yo sólo apoyo a Rusia
 
-不过，细节还在等待中。
+我就是要干死你美国
+Sólo quiero eliminarte EE. UU
 
-根据美国总统乔·拜登（Joe Biden）的政府，在目前的状态下，这项新的经济计划仅在 2023 年就应该带来 50 亿美元。但是，尽管非常详细，但该计划仍可能发生变化，因为它要到 2023 年 1 月 1 日才会应用。
+美国已经没有任何选择了
+EE. UU ya no tiene otra opción
 
-该预算提案符合美国总统3 月 9 日签署的法令，该法令旨在保护“金融稳定”、“消费者和投资者”，同时也参与“打击非法融资”。
+美国人现在对拜登总统, 对中共和俄罗斯采取的东西
+Lo que enfrenta los estadounidenses ahora con el presidente Biden, de acuerdo a lo que se tomó al PCCh y Rusia
 
-意识到数字资产提供的可能性，以及 16% 的美国家庭对数字资产表现出的兴趣（他们声称他们已经至少交换过一次数字资产），美国政府要求进行可行性研究。，以评估中央银行数字货币（CBD）的适用性。
+几乎是压倒性的认为他太弱了
+Es casi abrumador de creer que él es demasiado débil
 
-总之，尽管未来法规的轮廓变得越来越清晰，但这些新提案将如何在美国加密社区中被接受还有待观察。
+中共国所有干的事情都是(暗)箱里边作业
+Todo lo que hace la República Popular de China es trabajar en una caja (oscura)
 
-文字版原文：[拜登政府预测加密货币税收将带来100 亿美元的收益](https://gnews.org/zh-hans/2259926/)
+你看到任何美国事情
+Cualquier asunto que ves en EE. UU
 
-音频处理：Fei797
-发稿：Fei797
+美国没有秘密的
+EE.UU no tiene secretos
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+美国这个国家
+Este país
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你但凡了解美国体制
+Cualquiera que entienda el sistema americano
+
+(你就会知道) 中共什么都是假的
+(Sabrás) todo lo que es con el PCCh es falso
+
+什么都是秘密
+Todo es secreto
+
+参谋长吃西瓜军事需要
+El jefe de gabinete come patilla para las necesidades militares
+
+习近平搞处女也是领导需要
+La virginidad de Xi Jinping también es una necesidad de liderazgo
+
+国家安全需要
+Es necesidad de la seguridad nacional
+
+韩正有多少私生女
+¿Cuántas hijas ilegítimas tiene Han Zheng?
+
+是国家机密
+Es un secreto del estado
+
+搞了这么多年
+Durante tantos años
+
+叫共产党的这个财产公开
+Decirle al PCCh que se haga pública estas propiedades
+
+共产党财产没公开
+Si las propiedades del PCCh no se revela
+
+中国老百姓财产必须被公开
+Las propiedades del pueblo chino serán reveladas
+
+它一切都是假的
+Todo es falso
+
+一切都是颠倒的
+Todo es al revés
+
+而美国没有秘密
+Y EE. UU no tiene secreto
+
+所有在香港和大陆(的美国投资)
+(Todas las inversiones de EE. UU) en Hong Kong y China
+
+美国人都清楚了
+Los estadounidenses están claros
+
+我得走, 美国要行动
+Debo irme, EE. UU debe ponerse en acción
+
+这是根本
+Este es el origen
+
+跟疫苗没有多大关系
+No tiene tanta relación con las vacunas
+
+包括打台湾
+Incluyendo atacar a Taiwán
+
+美国早就有预期
+Estados Unidos ha esperado durante mucho tiempo
+
+关键这次俄罗斯俄乌战争让美国知道
+La clave crucial es la guerra entre Rusia y Ucrania que dejó saber a EE. UU
+
+中国很严肃认真的要干死美国
+China habla en serio sobre derribar a EE. UU
+
+搞弱美国, 搞乱美国
+Debilitar y crear desorden en EE. UU
+
+所以说必须走, 特别是朱云来你低估了
+Por eso digo debes irte, especialmente Zhu Yunlai lo subestimaste
+
+朱云来这个人一折腾钱, 一折腾走
+Esta persona, Zhu Yunlai tira dinero y se va
+
+朱云来拥有好多好多比特币啊
+Zhu Yunlai tiene muchísimos Bitcoin
+
+(有人说)比特币就是一个完全去中心化
+(Alguien dijo) Bitcoin es descentralizado totalmente
+
+我说怎么可能有真的去中心化的币呢
+Yo digo, cómo es posible que sea una moneda descentralizada
+
+我说真正的比特币就是
+El Bitcoin realmente es
+
+伊朗, 华尔街, 沼泽地, 俄罗斯, 中共这帮王八蛋拥有的
+Irán, Wall Street, Pantano, Rusia, propiedad de los bastardos del PCCh
+
+现在大家知道了, 大家都会查吧
+Ahora todos lo saben, podrán ir a investigar
+
+2%的人, 原来我说6%的人
+2% de personas, anteriormente había dicho 6% de personas
+
+拥有96%的比特币
+Obtienen el 96% de Bitcoin
+
+(现在证实了) 前十大股东2%的人拥有96%(的比特币)
+(Ahora se comprobó) el 2% de los diez principales accionistas posee el 96% (de Bitcoin)
+
+你还相信(比特币)去中心化
+Todavía crees que (Bitcoin) es descentralizado
+
+你们还相信比特币神话吗
+¿Todavía creen que Bitcoin es un mito?
+
+如果喜联储有一句话是假的
+Si la Reserva Federal de Himalaya existe una frase falsa
+
+你们永远可以追杀, 无条件砍死我
+Siempre podrán cazarme, matarme incondicionalmente
+
+这就是西方和东方最大的差距
+Esta es la gran diferencia entre occidente y oriente
+
+所以说比特币就是个骗局
+Por eso Bitcoin es una estafa
+
+* * *
+
+日期：03/29/2022
+原视频标题：中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局
+La guerra entre China y EE. UU inició oficialmente, el 2% de personas del PCCh posee el 96.5% de Bitcoin, la descentralización de Bitcoin es la mayor estafa
+
+原视频日期：03/23/2022
+原视频网址：[https://gettr.com/post/p11e9wz8c12](https://gettr.com/post/p11e9wz8c12)
+任务编号：KC484（4083）
+视频时间段：0:00-2:10
+
+西听校：洛杉矶盘古农场-霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场-霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

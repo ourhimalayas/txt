@@ -2,23 +2,49 @@
 ---
 
 
-## “用脚投票” &#8211; 离开加拿大人数创50年新高
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2266364/)
+## 有声|匪灾横行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266461/)
 
-加拿大温哥华扬帆农场-文莱, 文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-153.jpg)图源：tnc news
-据加拿大自由媒体《真北方》3月29日报道，加拿大统计局数据显示，在2021年4季度选择永久离开加拿大的人数为1970年以来最高。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+毒苗邪雨侵神州，
 
-据悉，在特鲁多政府的旅游疫苗授权的相关措施影响下， 整个2021年，向外移民人数都在增加，在第四季度达到高峰。在该季度，往外移民比前一年增长215%。
+古老国度病缠身。
 
-分析家认为，飙升的房价以及日益恶化的通货膨胀让人们苦不堪言，也是人们选择“用脚投票”的重要因素。
+匪共当道肆虐行，
 
-原文链接：https://tnc.news/2022/03/29/number-of-people-who-left-canada-last-year-at-almost-50-year-high/
+人性跌落尘埃地。
 
-* * *
+互害互伤失仁义，
 
-编辑、上传：月亮之上
+不及古代百饭娃。
 
+盛世华城缺衣食，
+
+远比小说更残忍。
+
+触景追忆几千年，
+
+独裁未断饿死鬼。
+
+迷茫羔羊信牧人，
+
+生死劫难痛领悟。
+
+文字版原文：[匪灾横行](https://gnews.org/zh-hans/2262671/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/3-9.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
