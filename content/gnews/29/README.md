@@ -2,26 +2,37 @@
 ---
 
 
-## 美国进一步释放石油储备 半年内每日100万桶（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2267098/)
+## 日本将修改数字资产交易法以堵住俄罗斯逃避制裁的漏洞
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267354/)
 
-翻译：宫米叶
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-此外，沙特阿拉伯等主要产油国同样在31日决定暂缓5月追加增产，美国主导的这次措施对控制价格有多大效果还不明朗。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8651-3.jpg)图片来源：NHK新闻
-拜登总统：“与盟友和友好国家协调”
+翻译/编辑：小红帽
 
-拜登总统3月31日在新闻发布会上就释放额外石油储备表示：“全美汽油的零售价，归咎于普京的战争，不到三个月每加仑就上涨了近1美元。这次措施将是有史以来最大的国家石油储备释放“，并强调了致力于控制已成为人民生活负担的油价的态度。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/JP_twitter.png)图片来源：sygna
 
-在此基础上，他说：“这次追加的石油储备释放已与同盟国和友好国进行了协调，已经有几个国家做出了承诺”，并表示了与上次一样与各国协同推进的方针。
 
-拜登总统对俄罗斯先后实施了禁止进口原油等严厉的经济制裁，但受国内反弹的影响，通胀加速，支持率依然低迷，在此次行动的背景下，也有希望与目前现状的突破联系起来。
+根据COINGEEK4月1日报道，日本已承诺堵塞其数字货币生态系统中，任何可能被俄罗斯用来逃避制裁的漏洞。高级政府官员将修改该国的外汇法规，以确保俄罗斯人不使用当地的交易所。
 
-审核：BryanW
-校对：天天
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xixi.jpeg)
+路透社爆料称，日本政府将向本届议会提交《外汇和对外贸易法》的修订案。
 
+在新闻发布会上，日本内阁官房长官松野博和透露，政府致力于与西方盟友合作，以确保俄罗斯不会找到规避美国、欧盟、英国、加拿大和其他主要经济体实施的破坏性制裁的方法。
+
+在后续行动中，首相岸田文雄进一步呼吁在周一的议会会议上修改该法律。他还强调了与西方盟友协调行动的必要性。
+
+岸田最近参加了七国集团（G7）峰会，其中俄罗斯入侵乌克兰是讨论的关键话题。峰会通过制裁进一步打击俄罗斯，包括阻止所有涉及俄罗斯央行国际黄金储备的金融交易，以及加大对乌克兰的人道主义援助力度。
+
+目前尚不清楚日本政府希望对这两项法案进行哪些修改。一位财政部官员告诉路透社，政府官员仍在讨论拟议中的修改，尚未达成任何具体内容。
+
+新闻来源：[Japan to revise digital asset exchange laws to plug Russia’s sanction evasion loophole](https://coingeek.com/japan-to-revise-digital-asset-exchange-laws-to-plug-russia-sanction-evasion-loophole/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

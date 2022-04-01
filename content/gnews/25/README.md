@@ -2,30 +2,30 @@
 ---
 
 
-## 安省将提高[非居民投机税]税率
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2267352/)
+## 美议员提案《稳定币透明度法》
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2267462/)
 
-采编：加拿大温哥华杨帆农场 – 青青
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-13.27.12.png)
+当地时间3月31日周四，众议员Trey Hollingsworth和参议员Bill Hagerty提出一项法案，旨在提高稳定币市场的透明度。
 
-撰稿：加拿大温哥华杨帆农场 – 文明(添草灭共)
+目前最大的稳定币发行商Tether对其储备特别保密，从而让透明讯息远离公众，同时这也成为数字货币市场大量猜测和震荡的来源。立法者目前已经在关注稳定币市场，他们试图探索一种在不扼杀创新的情况下同时保护消费者和经济的解决方案，例如从法律上迫使稳定币发行商定期公布审计报告，展示其真实储备，提高市场的真实透明度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image0.jpg)图片来源：GLOFANG
+该法案目前已经获得大量支持，立法者表示大为惊讶，但同时认为这是在稳定币监管方面迈出的重要一步。在尽可能达成与全球行业和消费者的广泛合作之前，立法的框架非常重要，尽管它不能解决所有问题。
 
+撰稿、发布：骄子
 
-据【CTV新闻】3月29日报道，安大略省政府当天宣布，从次日起，将在全省范围内提高[非居民投机税]的税率。
+* * *
 
-据悉，这项针对在该省购买房地产的非加拿大居民征税的税率将从15%提高到20%。同时，征税范围也将从以前的大多伦多、安大略湖西岸地区扩大到全省。
+欢迎订阅我们的GNews账号：
 
-报道称，由于安省整体房地产价格因大量非加拿大居民的不断购置而在10年内增长了近两倍，并远超本地居民的收入增长水平。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-因此，提高该税率将减少外国买家的房地产投机行为，以遏制房价上涨，保障本地居民的购房需求。新政实施后，买房的国际留学生和在安省工作的外籍非居民将不再享受退税优惠。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文明(添草灭共)
-
-原文链接： [https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868](https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

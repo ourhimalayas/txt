@@ -2,26 +2,33 @@
 ---
 
 
-## 秘翻在线：乌克兰当局宣布俄军已撤出切尔诺贝利
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267295/)
+## LG电子涉足区块链和数字资产领域
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267363/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-400.jpg)图片来源：本文的链接
-3月31日法新社报道，乌克兰当局宣布，占领该国北部切尔诺贝利核电站的俄罗斯军队已经完成撤退。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-管理切尔诺贝利禁区的乌克兰政府机构在脸书上发布消息称，”切尔诺贝利遗址上已经没有外人了”。
+翻译/编辑：小红帽
 
-早些时候，乌克兰国营核公司Energoatom宣布，俄罗斯军队已经开始从该厂和周围的禁区撤出。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/LG_Phone_Reuters1.jpg)图片来源：Reuters
 
-Energoatom在Telegram上发短信说：”今天早上，侵略者宣布他们打算从切尔诺贝利核电站撤出。 还说，俄罗斯军队 “排纵队分两路向白俄罗斯-乌克兰边境行进”，只有 “少数 “俄罗斯士兵留在工厂。
 
-有证据表明，围绕着核电站工人居住的城市Slavutych的俄罗斯士兵正在集结，准备进入白俄罗斯。
+根据COINGEEK4月1日报道，韩国消费电子巨头LG电子正在涉足区块链和数字资产领域。该公司最近宣布了新的业务领域，但指出它在这两方面都没有任何具体行动。
 
-俄罗斯是在2月24日发动对乌克兰的入侵时占领了该工厂的。
+上周举行的股东大会批准了新的业务方向。LG概述说，在重新定义其业务的新目标中，将包括“开发和销售基于区块链的软件”和“销售和经纪加密货币”，后者被誉为推出数字货币交易所的意图。
 
-信息来源：  [https://news.yahoo.co.jp/articles/c09bd85c09872227ef029a6a350b28a9a3f4a905](https://news.yahoo.co.jp/articles/c09bd85c09872227ef029a6a350b28a9a3f4a905)
+然而，正如当地媒体报道的那样，公司发言人拒绝证实LG是否正在进军数字货币交易所业务。
 
-责编：Eric Kim
+LG对这个行业并不陌生。今年一月份，它宣布将推出一系列能够购买和显示NFT的智能电视。值得注意的是，就在三星在消费电子展上发布类似消息的第二天，LG宣布了这一举措。本月初，LG对其计划进行了更新，透露它已与Ground X（一家Kakao拥有的区块链公司）合作，推出一系列支持NFT的电视。
+
+新闻来源：[LG Electronics ventures into blockchain and digital assets](https://coingeek.com/lg-electronics-ventures-into-blockchain-and-digital-assets/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

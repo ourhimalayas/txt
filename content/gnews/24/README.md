@@ -2,38 +2,34 @@
 ---
 
 
-## 日本将修改数字资产交易法以堵住俄罗斯逃避制裁的漏洞
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267354/)
+## 美能源部长：俄乌战争导向清洁能源独立
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2267629/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-14.04.14.png)
+当地时间3月31日周四，美能源部长Jennifer Granholm在采访中表示，俄罗斯入侵乌克兰的战争将是一个很好的契机去发展清洁能源、可再生能源，并逐步摆脱能源依赖。
 
-翻译/编辑：小红帽
+目前世界的能源危机因俄乌战争而显著加剧，俄罗斯依靠石油、天然气等能源要挟欧洲乃至整个世界。能源部长Granholm表示，希望减少人们在加油站等待的痛苦，并保护他们免受能源等价格波动带来的影响。利用俄乌战争达到清洁能源独立的目的，化石燃料市场已经不再是人们的信心所在之处。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/JP_twitter.png)图片来源：sygna
+当前美国所处的战时地位，除了增加化石燃料的供应，另外援引《国防生产法》来帮助增加美国电动汽车电池的发展，以及风化援助计划。该计划向美国各州发放32亿美元确保降低能源过度消耗，并投资于化石燃料脱碳技术。清洁能源和能源独立已成为中长期战略。
 
+reference：
 
-根据COINGEEK4月1日报道，日本已承诺堵塞其数字货币生态系统中，任何可能被俄罗斯用来逃避制裁的漏洞。高级政府官员将修改该国的外汇法规，以确保俄罗斯人不使用当地的交易所。
+[https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/](https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/)
 
-路透社爆料称，日本政府将向本届议会提交《外汇和对外贸易法》的修订案。
+撰稿、发布：骄子
 
-在新闻发布会上，日本内阁官房长官松野博和透露，政府致力于与西方盟友合作，以确保俄罗斯不会找到规避美国、欧盟、英国、加拿大和其他主要经济体实施的破坏性制裁的方法。
+* * *
 
-在后续行动中，首相岸田文雄进一步呼吁在周一的议会会议上修改该法律。他还强调了与西方盟友协调行动的必要性。
+欢迎订阅我们的GNews账号：
 
-岸田最近参加了七国集团（G7）峰会，其中俄罗斯入侵乌克兰是讨论的关键话题。峰会通过制裁进一步打击俄罗斯，包括阻止所有涉及俄罗斯央行国际黄金储备的金融交易，以及加大对乌克兰的人道主义援助力度。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-目前尚不清楚日本政府希望对这两项法案进行哪些修改。一位财政部官员告诉路透社，政府官员仍在讨论拟议中的修改，尚未达成任何具体内容。
-
-新闻来源：[Japan to revise digital asset exchange laws to plug Russia’s sanction evasion loophole](https://coingeek.com/japan-to-revise-digital-asset-exchange-laws-to-plug-russia-sanction-evasion-loophole/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
