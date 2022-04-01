@@ -2,26 +2,39 @@
 ---
 
 
-## 俄罗斯在乌克兰损失了17200名人员、597辆坦克和127架飞机
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2263712/)
+## 有声|泽连科医生称疫苗导致艾滋病并毁坏免疫系统
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2264425/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/banner-1.jpeg)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Picture1-78.png)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+根据3月25日的一则盖特消息，泽连科医生在近日接受采访时表示，中共病毒疫苗实际上破坏了人体T细胞的免疫功能，与自然杀毒细胞的功能，并且还会削弱肿瘤抑制基因，为癌症打开大门。换句话说，这就是获得性免疫缺陷综合征，即艾滋病。
 
-（图片来自原文）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-15-1280x720.jpg)
 
-乌克兰武装部队总参谋部在脸书（Facebook）上报告说，自从2月24日，俄罗斯开始全面入侵乌克兰以来，截至3月29日星期二上午，俄罗斯占领军的战斗损失约为17200人。
+目前已经有数十篇医学评议论文验证了他的观点。 在以色列，殡仪馆的工作人员表示，他们已经严重超负荷工作，因为死亡人数增加了10倍，特别是年轻死者，导致他们没有足够的资源来进行妥善安葬。 泽连科医生警告说，由于以色列是注射三针、四针中共病毒疫苗最多的国家，所以目前有大约50%的以色列人已经患上了艾滋病，同时该国感染中共病毒后的死亡率也最高。
 
-在此期间，俄罗斯联邦还损失了597辆坦克，1710辆装甲战车，303套火炮系统，96套多管火箭炮系统，54套防空系统，127架飞机和129架直升机。
+泽连科医生最后说，爱因斯坦对精神错乱的定义，就是一遍一遍重复做同样的事情，却期待能得到不同的结果。但全球政府强制大范围注射中共病毒疫苗并非精神错乱，而是精心设计的结果，这正是他们想要达到的目标。
 
-此外，俄罗斯军队还损失了1178辆汽车、7艘舰船、73辆装有燃料和润滑油的坦克、71架作战-战术级无人机、4台导弹系统发射器和21台特种装备。
 
-因此，每天大约有200名俄军士兵、11辆坦克、16辆装甲战车、1套火炮系统、1套多管火箭炮、4架飞机、2架直升机和28辆汽车被摧毁。
 
-新闻来源链接：[https://en.interfax.com.ua/news/general/818937.html](https://en.interfax.com.ua/news/general/818937.html)
+文字版原文：[泽连科医生称疫苗导致艾滋病并毁坏免疫系统](https://gnews.org/zh-hans/2255954/)
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,27 +2,34 @@
 ---
 
 
-## 秘翻在线：乌克兰当局宣布俄军已撤出切尔诺贝利
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267295/)
+## 美能源部长：俄乌战争导向清洁能源独立
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2267629/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-400.jpg)图片来源：本文的链接
-3月31日法新社报道，乌克兰当局宣布，占领该国北部切尔诺贝利核电站的俄罗斯军队已经完成撤退。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-14.04.14.png)
+当地时间3月31日周四，美能源部长Jennifer Granholm在采访中表示，俄罗斯入侵乌克兰的战争将是一个很好的契机去发展清洁能源、可再生能源，并逐步摆脱能源依赖。
 
-管理切尔诺贝利禁区的乌克兰政府机构在脸书上发布消息称，”切尔诺贝利遗址上已经没有外人了”。
+目前世界的能源危机因俄乌战争而显著加剧，俄罗斯依靠石油、天然气等能源要挟欧洲乃至整个世界。能源部长Granholm表示，希望减少人们在加油站等待的痛苦，并保护他们免受能源等价格波动带来的影响。利用俄乌战争达到清洁能源独立的目的，化石燃料市场已经不再是人们的信心所在之处。
 
-早些时候，乌克兰国营核公司Energoatom宣布，俄罗斯军队已经开始从该厂和周围的禁区撤出。
+当前美国所处的战时地位，除了增加化石燃料的供应，另外援引《国防生产法》来帮助增加美国电动汽车电池的发展，以及风化援助计划。该计划向美国各州发放32亿美元确保降低能源过度消耗，并投资于化石燃料脱碳技术。清洁能源和能源独立已成为中长期战略。
 
-Energoatom在Telegram上发短信说：”今天早上，侵略者宣布他们打算从切尔诺贝利核电站撤出。 还说，俄罗斯军队 “排纵队分两路向白俄罗斯-乌克兰边境行进”，只有 “少数 “俄罗斯士兵留在工厂。
+reference：
 
-有证据表明，围绕着核电站工人居住的城市Slavutych的俄罗斯士兵正在集结，准备进入白俄罗斯。
+[https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/](https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/)
 
-俄罗斯是在2月24日发动对乌克兰的入侵时占领了该工厂的。
+撰稿、发布：骄子
 
-信息来源：  [https://news.yahoo.co.jp/articles/c09bd85c09872227ef029a6a350b28a9a3f4a905](https://news.yahoo.co.jp/articles/c09bd85c09872227ef029a6a350b28a9a3f4a905)
+* * *
 
-责编：Eric Kim
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

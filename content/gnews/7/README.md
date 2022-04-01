@@ -2,26 +2,23 @@
 ---
 
 
-## 樱花时政┃中共如何悄悄的接近澳大利亚
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267464/)
+## 视频|五角大楼称将加快生产乌克兰需要的导弹
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2267732/)
 
-撰稿：东京樱花团/calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-4.png)[图片来源](https://www.dailymail.co.uk/news/article-10658053/China-creeping-closer-Australia-stealth-PNG-Solomon-Islands-Timor-Leste.html)
-随着中共开展地全球秘密统战行动，对南太平洋小国施加影响，在他们的海港里摸索，并关注战略位置，澳大利亚北部可能很快就会被中共军队包围。
+制作：香草山视频部
 
-上周，一份概述独裁国家和所罗门群岛之间安全协议细节的文件在堪培拉引起了轰动，该协议表明中共军事基地已经在澳大利亚家门口部署军事力量。多年来，所罗门群岛的亲共立场一直是当地居民分裂的中心。自2019年9月马纳塞·索加瓦雷总理断绝与台湾的外交关系，转而支持北京以来，所罗门群岛的紧张局势一直在酝酿。随着共产党关注该国周围的岛屿并计划建造一系列大规模军事基地。
+3月29日，据当地媒体报道，美国国防部官员近期透露，五角大楼将会加快毒刺导弹和标枪反坦克导弹的生产，用以支持乌克兰抵御俄罗斯的入侵。而一份最新的军事援助清单指出，乌克兰政府希望美国可以每天分别提供500枚毒刺导弹和标枪反坦克导弹。
 
-这一披露敲响了警钟，因为多年来，中共也一直打着发展的幌子向巴布亚新几内亚和东帝汶注入资金，这引发了人们对中共可能已经与澳大利亚区域合作伙伴深深的联系的担忧。
+报道提及，截至3月7日，美国和北大西洋公约组织的其他盟国已经向乌克兰提供了约一万七千枚反坦克导弹和两千枚毒刺防空导弹，且这一数字仍在持续增加。
 
-去年，一家中共支持的公司提出了一项提案，在昆士兰州和巴布亚新几内亚之间的偏远岛屿上建造一座价值390亿美元的城市，此举让澳大利亚国家安全分析师感到紧张。而这份安全协议草案表示，所罗门群岛可能会“要求中国向该国派遣警察、武装警察、军事人员和其他执法和武装部队”。这进一步说明，中共可能会“访问船只，进行后勤补充，并在所罗门群岛中途停留和过渡”。
+目前，美国已经与国防供应商雷神公司协调完毕，并向其授予了一份价值3.2亿美元的毒刺导弹生产合同。同时，标枪反坦克导弹的制造商洛克希德-马丁公司也正处于全面生产模式，其年产量预计将超过六千个。
 
-中共的全球统战已经是危胁到了南半球的国家，如果不能尽快的消灭中共，未来每一个国家的家门口都会不知不觉地出现中国共产党部署的秘密警察系统，军事力量部署，因此，消灭中共，势在必行。
+发稿：林礼
 
-信息来源：[How China is creeping closer to Australia by stealth as the communists focus on islands surrounding the country and plan to build a series of MASSIVE military bases](https://www.dailymail.co.uk/news/article-10658053/China-creeping-closer-Australia-stealth-PNG-Solomon-Islands-Timor-Leste.html)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

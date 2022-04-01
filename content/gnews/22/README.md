@@ -2,31 +2,33 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃默拉尔德·罗宾逊（Emerald Robinson）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2267078/)
+## LG电子涉足区块链和数字资产领域
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267363/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-10.jpg)
-**盖特链接：**[https://gettr.com/user/emeraldrobinson](https://gettr.com/user/emeraldrobinson)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-**埃默拉尔德·罗宾逊自述：**
+翻译/编辑：小红帽
 
-加入我的 SUBSTACK：[https://emeralddb3.substack.com/](https://emeralddb3.substack.com/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/zxc-2.jpg)图片来源：网络
-**埃默拉尔德·罗宾逊简介：**
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/LG_Phone_Reuters1.jpg)图片来源：Reuters
 
-埃默拉尔德·罗宾逊（Emerald Robinson，出生于1982年2月1日）是一位著名的美国记者、政治记者、发言人。
 
-目前，埃默拉尔德·罗宾逊在弗吉尼亚州阿灵顿的Newsmax Media, Inc担任白宫记者。此前，她在华盛顿特区的美国新闻网（One America News Network（OAN））担任白宫首席记者、政治记者以及美国新闻调查（One America News Investigates）的主持人和撰稿人。
+根据COINGEEK4月1日报道，韩国消费电子巨头LG电子正在涉足区块链和数字资产领域。该公司最近宣布了新的业务领域，但指出它在这两方面都没有任何具体行动。
 
-埃默拉尔德·罗宾逊还在全球经济增长研究所担任媒体关系总监和制片人、故事点媒体（Story Point Media）担任执行制片人。
+上周举行的股东大会批准了新的业务方向。LG概述说，在重新定义其业务的新目标中，将包括“开发和销售基于区块链的软件”和“销售和经纪加密货币”，后者被誉为推出数字货币交易所的意图。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+然而，正如当地媒体报道的那样，公司发言人拒绝证实LG是否正在进军数字货币交易所业务。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+LG对这个行业并不陌生。今年一月份，它宣布将推出一系列能够购买和显示NFT的智能电视。值得注意的是，就在三星在消费电子展上发布类似消息的第二天，LG宣布了这一举措。本月初，LG对其计划进行了更新，透露它已与Ground X（一家Kakao拥有的区块链公司）合作，推出一系列支持NFT的电视。
+
+新闻来源：[LG Electronics ventures into blockchain and digital assets](https://coingeek.com/lg-electronics-ventures-into-blockchain-and-digital-assets/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

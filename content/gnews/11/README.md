@@ -2,24 +2,37 @@
 ---
 
 
-## 樱花时政┃普京一贯出尔反尔 &#8220;人道主义走廊 &#8220;计划是否能实现？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267431/)
+## 樱花FM┃总统泽伦斯基：我们已夺回基辅附近的伊尔平
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2267670/)
 
-撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.etimg.com%2Fthumb%2Fwidth-1200%2Cheight-900%2Cimgsize-124388%2Cresizemode-1%2Cmsid-90013565%2Fnews%2Finternational%2Fworld-news%2Fwhat-do-we-know-about-humanitarian-corridors-in-ukraine.jpg&amp;imgrefur)
-伤亡惨重的乌克兰东南部城市马里乌波尔，预计将于4月1日开放一条 “人道主义走廊”，供居民乘巴士疏散。
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/我们已夺回基辅附近的伊尔平.png)
+3月29日朝日电视新闻消息：乌克兰总统泽伦斯基宣布，已经夺回了首都基辅附近的伊尔平市，该市曾与俄罗斯军队发生过激烈战斗。
 
-红十字国际委员会3月31日透露，如果包括俄罗斯在内的所有各方就路线，出发时间和其他细节如能达成一致，就可以实施。
+乌克兰总统泽伦斯基：“今天有个好消息。我们的部队正在基辅地区挺进，并重新获得对领土的控制。我们已经解放了伊尔平。”
 
-据塔斯社报道，俄罗斯国防部一名高级官员3月31日也表示，从马里乌波尔出发的人道主义走廊将于4月1日开放。
+俄罗斯军队对在首都基辅附近的伊尔平进行了猛烈的攻击，旨在控制首都，那里的平民和记者也被杀害。
 
-据乌克兰总统办公室副主任季莫申科等人说，原本计划在3月31日用45辆巴士进行疏散居民，但他们在附近的别尔江斯克附近被俄罗斯军队拦住，无法到达马里乌波尔。私家车的撤离工作部分实现，包括马里乌波尔的631人在内，约1500人，得以逃往中南部城市扎波罗热。
+在28日发布的一段视频中，泽伦斯基总统说，俄罗斯军队被挡在基辅和伊尔平之外，但“战斗仍在继续”，并再次呼吁对俄罗斯进行更加严格的经济制裁和对乌克兰进行军事支持。
 
-信息来源：[マリウポリに「人道回廊」開設の見通し バスで住民を輸送する計画](https://news.yahoo.co.jp/pickup/6422600)
+俄罗斯和乌克兰之间的停火谈谈判计划于29日在土耳其伊斯坦布尔面对面地进行，重点是双方是否能达成具体的妥协。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+文字版原文：
+
+
+| [总统泽伦斯基：我们已夺回基辅附近的伊尔平](https://gnews.org/zh-hans/2250710/) |   |
+| --- | --- |
+
+
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

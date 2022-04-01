@@ -2,33 +2,34 @@
 ---
 
 
-## LG电子涉足区块链和数字资产领域
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267363/)
+## 樱花FM┃乌克兰难民将由政府专机转移至日本
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2267660/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/乌克兰难民将由政府专机转移至日本.png)
+3月28日据有关消息人士透露，政府正在考虑使用政府专机将疏散到波兰的乌克兰难民转移到日本。法务大臣古川禎久将于4月1日作为首相特使由政府专机派往波兰，在他返回时接收希望前往日本的难民。日本驻波兰首都华沙大使馆和在靠近乌克兰边境的波兰南部热舒夫地区的（乌克兰难民支持队）正在听取难民前往日本的意愿。
 
-翻译/编辑：小红帽
+根据联合国难民事务局（UNHCR）的数据，逃离乌克兰的难民人数已超过360万人 ，波兰已经接收了200多万人，由于该国接收难民的能力有限，波兰外长呼吁国际社会提供支持，表示没有一个国家能够独自应对。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/LG_Phone_Reuters1.jpg)图片来源：Reuters
+日本首相岸田文雄于3月2日宣布，日本将接受乌克兰难民，截至3月25日，已有204名难民抵达日本。然而，由于高昂的机票和其它费用，人们放弃了去日本。岸田首相在3月28日的众议院决算委员会上表示，他将“仔细考虑”在未来提供旅行援助。
+
+这架政府专机是由航空自卫队运营的自卫队飞机，可搭乘150名乘客。法务大臣去国外出差使用这架飞机成为特列。
+
+文字版原文：
 
 
-根据COINGEEK4月1日报道，韩国消费电子巨头LG电子正在涉足区块链和数字资产领域。该公司最近宣布了新的业务领域，但指出它在这两方面都没有任何具体行动。
+| [乌克兰难民将由政府专机转移至日本](https://gnews.org/zh-hans/2250685/) |   |
+| --- | --- |
 
-上周举行的股东大会批准了新的业务方向。LG概述说，在重新定义其业务的新目标中，将包括“开发和销售基于区块链的软件”和“销售和经纪加密货币”，后者被誉为推出数字货币交易所的意图。
 
-然而，正如当地媒体报道的那样，公司发言人拒绝证实LG是否正在进军数字货币交易所业务。
-
-LG对这个行业并不陌生。今年一月份，它宣布将推出一系列能够购买和显示NFT的智能电视。值得注意的是，就在三星在消费电子展上发布类似消息的第二天，LG宣布了这一举措。本月初，LG对其计划进行了更新，透露它已与Ground X（一家Kakao拥有的区块链公司）合作，推出一系列支持NFT的电视。
-
-新闻来源：[LG Electronics ventures into blockchain and digital assets](https://coingeek.com/lg-electronics-ventures-into-blockchain-and-digital-assets/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

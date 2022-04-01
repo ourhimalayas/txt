@@ -2,25 +2,31 @@
 ---
 
 
-## 班农先生指伊维菌素投入治疗印证郭先生爆料
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2264168/)
+## 俄乌战争本质是中美战争
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2264426/)
 
-作者：纽约磐石农场 在远方
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/432580651456139264564731.jpeg)
+3月30日郭先生在大直播中阐述当前俄乌战争的本质就是中美战争。
 
-3月29日，据盖特消息显示，美国新罕布什尔州议会近日通过的一则法案中指出，当地医生将被允许使用非处方药物伊维菌素治疗中共病毒。对此，班农先生表示，这一信息充分验证了郭文贵先生早先发出的相关预警的准确性。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2-224.jpg)
-班农先生解释道，辉瑞制药公司近期公布的档案中出现了太多关于中共病毒疫苗的令人震惊的事实，而美国官方医学界又释放了大量有关中共病毒的错误信息，在此种情况下，寻找真实可靠的治疗方式才是解决中共病毒疫情的重要环节，而这也是郭先生此前反复向世界传递的信息。
+此前的俄乌谈判，双方各找好了自己的担保国家，这一次，世界再没有中立和第三国，完全分成了相互对抗的两个阵营。一个阵营是以中共、俄罗斯为首的独裁国家，包括巴基斯坦、伊朗、朝鲜、白俄罗斯以及非洲一些独裁小国，另外一个阵营是欧美日等西方民主国家。两个阵营分别为俄罗斯和乌克兰做担保，一旦对方不遵守协议，毫无疑问就是两大阵营的斗争。
 
-目前，伊维菌素已经在美国正式成为治疗中共病毒的一个选择方案，但这一方案尚未被彻底普及至全美范围内。因此，班农先生认为，鉴于美国民众早已厌倦了政府的强制疫苗政策，之后伊维菌素的完全采用必将给美国带来一场政治风暴。
+中共一定会借机打台湾，而美国也已准备好第三只手收拾中共。俄乌战争会以灭掉共产党而结束。中共阵营的国家会输得极其凄惨，整个邪恶独裁东方联盟会彻底瓦解。
 
-参考链接：[Mr. Bannon’s Weekly Interview 0323-Q8](https://www.gettr.com/post/p12hw1j9e3a)
+撰稿、发布：骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%B8%89%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+* * *
 
-总编：Irene木木
-编辑：静言
-审核：Irene木木
-校正/发稿：Fei797
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+
 
  
 

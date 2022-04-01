@@ -2,22 +2,29 @@
 ---
 
 
-## 研究人员发布了完整的人类基因图
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2266902/)
+## 安省将提高[非居民投机税]税率
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2267352/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5-88.jpg)
-图片来源： www.upi.com
+采编：加拿大温哥华杨帆农场 – 青青
 
-美国合众国际社3月31日报道，一个国际研究人员组成的团队周四发布了第一个人类基因组的完整序列，科学家们说，它将提高人们对造成疾病如癌症等的基因变异和突变的理解，以帮助发现治疗的方法。
+撰稿：加拿大温哥华杨帆农场 – 文明(添草灭共)
 
-人类整个无空缺的序列约有30亿对碱基，经过20年的人类基因项目对脱氧核苷酸（DNA)的研究终于有了第一份稿件，这个新的成就已在《科学》杂志上系列发表。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image0.jpg)图片来源：GLOFANG
 
-在填满了原来的DNA空缺位后可以提供某些基因状态的线索，包括精神性疾病如自闭症，精神分裂症和一些个人特质和发育。
 
-目前的发布并不是结束，而是新的开始，进一步的基因组研究需要在临床医学方面展现其影响力。
+据【CTV新闻】3月29日报道，安大略省政府当天宣布，从次日起，将在全省范围内提高[非居民投机税]的税率。
 
-#### 新闻来源： [Researchers release complete mapping of human genome](https://www.upi.com/Health_News/2022/03/31/complete-gapless-human-genome-sequencing/4001648653393/)
+据悉，这项针对在该省购买房地产的非加拿大居民征税的税率将从15%提高到20%。同时，征税范围也将从以前的大多伦多、安大略湖西岸地区扩大到全省。
+
+报道称，由于安省整体房地产价格因大量非加拿大居民的不断购置而在10年内增长了近两倍，并远超本地居民的收入增长水平。
+
+因此，提高该税率将减少外国买家的房地产投机行为，以遏制房价上涨，保障本地居民的购房需求。新政实施后，买房的国际留学生和在安省工作的外籍非居民将不再享受退税优惠。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： [https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868](https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868)
 
  
 

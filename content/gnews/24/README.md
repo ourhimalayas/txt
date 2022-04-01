@@ -2,28 +2,37 @@
 ---
 
 
-## 乌军救起被俄军遗弃的著名女狙击手伤兵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267002/)
+## 日本将修改数字资产交易法以堵住俄罗斯逃避制裁的漏洞
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267354/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4059.png)图片来源：视频截图
-据《纽约邮报》3月31日报道，一名进行过40次狙击杀人记录的俄罗斯女狙击手被俄军遗弃，在战场上被乌克兰军队俘虏和救治。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-这位女狙击手的姓名是伊琳娜·斯塔利科娃（Irina Starikova），代号巴吉拉（Bagira），今年41岁，有两个分别为11岁和9岁的女儿。
+翻译/编辑：小红帽
 
-据称，斯塔里科娃是（俄军）第11特种作战师的一名狙击手。根据乌克兰赫尔辛基人权联盟2017年的一份报告，她的绰号是喷火龙（Gorynych），也为俄罗斯分离主义武装力量作战。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/JP_twitter.png)图片来源：sygna
 
-据报道，斯塔利科娃最初来自塞尔维亚，自2014年以来一直被乌克兰人追捕。乌克兰武装部队宣布说，她“在2014年射杀了我们的囚犯”，并附有她的照片。伦敦国王学院（King’s College London）战争研究系的研究员乔雷维什维利（Giorgi Revishvili）证实了斯塔伊科娃的被捕，并说她应对“杀害40名包括平民在内的乌克兰人”负责。
 
-文章说，斯塔利科娃在与乌克兰军队作战时受伤，被俄军遗弃，让其自生自灭，然后被乌军俘虏。被俘后，斯塔利科娃说：“他们（俄军）离开时，知道我受伤了，（也）有机会把我接走……（但他们）希望我死去”。
+根据COINGEEK4月1日报道，日本已承诺堵塞其数字货币生态系统中，任何可能被俄罗斯用来逃避制裁的漏洞。高级政府官员将修改该国的外汇法规，以确保俄罗斯人不使用当地的交易所。
 
-乌克兰《观察者》（Obozrevatel）新闻网站援引一位名叫弗伊万诺夫（Vlad Ivanov）的士兵的话说，斯塔利科娃在被俘时得到了治疗。
+路透社爆料称，日本政府将向本届议会提交《外汇和对外贸易法》的修订案。
 
-*责编：白夜*
+在新闻发布会上，日本内阁官房长官松野博和透露，政府致力于与西方盟友合作，以确保俄罗斯不会找到规避美国、欧盟、英国、加拿大和其他主要经济体实施的破坏性制裁的方法。
 
-**新闻来源**
+在后续行动中，首相岸田文雄进一步呼吁在周一的议会会议上修改该法律。他还强调了与西方盟友协调行动的必要性。
 
-[Deadly Russian sniper captured by Ukraine after she was left for dead](https://nypost.com/2022/03/31/deadly-russian-sniper-captured-by-ukraine-after-she-was-left-for-dead/)
+岸田最近参加了七国集团（G7）峰会，其中俄罗斯入侵乌克兰是讨论的关键话题。峰会通过制裁进一步打击俄罗斯，包括阻止所有涉及俄罗斯央行国际黄金储备的金融交易，以及加大对乌克兰的人道主义援助力度。
+
+目前尚不清楚日本政府希望对这两项法案进行哪些修改。一位财政部官员告诉路透社，政府官员仍在讨论拟议中的修改，尚未达成任何具体内容。
+
+新闻来源：[Japan to revise digital asset exchange laws to plug Russia’s sanction evasion loophole](https://coingeek.com/japan-to-revise-digital-asset-exchange-laws-to-plug-russia-sanction-evasion-loophole/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

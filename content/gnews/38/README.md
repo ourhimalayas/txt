@@ -2,31 +2,28 @@
 ---
 
 
-## 俄乌战争本质是中美战争
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2264426/)
+## 当婊子立牌坊：战争推手欲扮演和平调解人
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2265102/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/03/432580651456139264564731.jpeg)
-3月30日郭先生在大直播中阐述当前俄乌战争的本质就是中美战争。
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4019.png)图片来源：ITV
+据《华盛顿观察家报》3月31日报道，中国和俄罗斯政府的高级代表在中国举行了自普京总统入侵乌克兰以来最高级别的个人会晤，重申了他们“无限制”的伙伴关系。
 
-此前的俄乌谈判，双方各找好了自己的担保国家，这一次，世界再没有中立和第三国，完全分成了相互对抗的两个阵营。一个阵营是以中共、俄罗斯为首的独裁国家，包括巴基斯坦、伊朗、朝鲜、白俄罗斯以及非洲一些独裁小国，另外一个阵营是欧美日等西方民主国家。两个阵营分别为俄罗斯和乌克兰做担保，一旦对方不遵守协议，毫无疑问就是两大阵营的斗争。
+报道说，这次会晤背景是在包括美国在内的更广泛的多国会议之前举行的，重点是阿富汗问题，因为中国共产党试图将自己塑造成在阿富汗的和平调解人。
 
-中共一定会借机打台湾，而美国也已准备好第三只手收拾中共。俄乌战争会以灭掉共产党而结束。中共阵营的国家会输得极其凄惨，整个邪恶独裁东方联盟会彻底瓦解。
+文章指出，中共国也正试图在俄罗斯对乌克兰的战争中以调解人的身份出现，同时宣传克里姆林宫为军事入侵进行辩护的说法，并将矛头指向了美国和北约。而本月早些时候，美国总统拜登与习近平进行了两个小时的谈话，在此谈话中，中国称其将俄罗斯入侵乌克兰的部分责任归咎于北约，并重申其对台湾的主张。
 
-撰稿、发布：骄子
+值得注意的是，文章明确指出，中国外交部和国营媒体也与克里姆林宫一起推动关于五角大楼支持的乌克兰生物战实验室的指控，但遭到了美国多次反驳。
 
-* * *
+文章报道，美国共和党人希望拜登在推动俄罗斯结束对乌克兰的入侵方面对中国施加更多压力，并向习近平表明，如果他决定进一步帮助普京，后果将不堪设想。
 
-欢迎订阅我们的GNews账号：
+同时，共和党人也在推动拜登采取更多措施，在俄罗斯问题上向中共国施压。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+*责编：白夜*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
+**新闻来源**
 
+[‘Peacemaker’ China stands by Russia partnership](https://www.washingtonexaminer.com/policy/foreign/peacemaker-china-stands-by-russia-partnership)
 
  
 
