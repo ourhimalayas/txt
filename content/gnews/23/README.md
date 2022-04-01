@@ -2,32 +2,32 @@
 ---
 
 
-## 郭文贵先生2022年3月31日盖特视频（3分02秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2266577/)
+## 俄乌将恢复谈判 欧洲面临俄天然气的最后期限
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2266606/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-啊！这个不容易啊，啊……啊，海东兄弟，玩这个不容易，你这玩的俩的(健腹轮)更不容易，一天，这个，做上8组就够了，不需要做12组，做8组的话，也就是说100个，一次做12个，做8次，哇，这个力量太大了。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/郭文贵先生2022年3月31日盖特视频（3分02秒）全文字版.png)
-今天，俺啥也不想说，战友们（说）不看我直播不行，你们得习惯，这个让咱们战友们长大，啊七哥给你们赚钱。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+翻译：灭共文明
 
-我昨天说的山里边的事儿，好多战友都找到了，真厉害！这个世界没有秘密，这个世界一切都改变了，就因为互联网。昨天我就直播说几句话，战友全找到了，太厉害了！
+编辑与校对：冰糖葫芦喵、灭共文明
 
-啊，大家要习惯，七哥不在的七哥大直播，让战友们也要发挥出自己的能量，咱们形成一个集体灭共，不能七哥一个人灭共，yeah！yeah！
+《路透社》乌克兰利沃夫4月1日报道，**俄罗斯天然气的欧洲买家周五后，面临开始以卢布支付的最后期限，旨在结束持续五周的战争谈判有望重启。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/UILMLTLX4BLVRAQEYZXV7FFEB4-e1648781155514.jpg)2022年3月31日，一名乌克兰军人在基辅村庄检查被摧毁的俄罗斯BTR-82装甲运兵车（路透社）
+报道称，**俄罗斯总统普京周四打出了他最大的牌之一，要求欧洲能源买家从周五开始支付卢布，否则现有合同将被中止。**
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+自俄罗斯入侵乌克兰以来，导致数千乌克兰人死亡，超过四百万人逃离，并促使美国和世界各地的盟友对俄罗斯政府实体、企业和寡头实施惩罚性惩罚。据《俄罗斯新闻社》周五援引外交部一名高级官员的话称，俄罗斯将对欧盟的制裁做出回应。
 
-[郭文贵先生2022年3月31日盖特视频](https://gettr.com/post/p12ukcy1088)
+**欧洲各国政府拒绝了普京的能源最后通牒，欧洲大陆最大的俄罗斯天然气接收国德国称这是“勒索”。**
 
-*校对：东京樱花团/tdownc2p*
-*发布：东京樱花团/*老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+能源摊牌对欧洲产生了巨大的影响，美国官员正在全球各地向普京施压，要求其停止入侵乌克兰。乌克兰的4400万人口中，有四分之一被迫离开家园。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/efc206ed-ecbd-4ff1-aa9b-91ddfc48e258.jpg)俄罗斯总统普京（图片来源：网络）
+据报道，**俄乌和平谈判将于周五通过视频会议恢复**。英国国防部在Twitter上写道，为了巩固自己的地位，**俄罗斯正在将军队从俄罗斯支持的格鲁吉亚分离地区重新部署到乌克兰。**
 
+报告称，增援部队表明俄罗斯遭受了意想不到的损失。**在俄罗斯周五同意开放一条人道主义走廊后，乌克兰当局希望从马里乌波尔疏散更多居民，但此前的几项协议在相互指责中破裂。**
+
+新闻链接来源：
+
+[Ukraine negotiations to resume, Europe faces Russia gas deadline | Reuters](https://www.reuters.com/world/ukraine-negotiations-resume-europe-faces-russia-gas-deadline-2022-04-01/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

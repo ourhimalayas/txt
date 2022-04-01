@@ -2,28 +2,24 @@
 ---
 
 
-## 乌军救起被俄军遗弃的著名女狙击手伤兵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267002/)
+## 波兰著名周刊介绍新中国联邦的救援活动
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267040/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4059.png)图片来源：视频截图
-据《纽约邮报》3月31日报道，一名进行过40次狙击杀人记录的俄罗斯女狙击手被俄军遗弃，在战场上被乌克兰军队俘虏和救治。
+撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/4-129.jpg)
+图片来源：tydol.pl
 
-这位女狙击手的姓名是伊琳娜·斯塔利科娃（Irina Starikova），代号巴吉拉（Bagira），今年41岁，有两个分别为11岁和9岁的女儿。
+波兰网站Tysol.pl 3月29日刊文介绍了波兰周刊Tygodnik Solidarność关于乌克兰难民的一篇报道。这篇报道介绍了新中国联邦救援队在波兰人道救援活动。
 
-据称，斯塔里科娃是（俄军）第11特种作战师的一名狙击手。根据乌克兰赫尔辛基人权联盟2017年的一份报告，她的绰号是喷火龙（Gorynych），也为俄罗斯分离主义武装力量作战。
+乌克兰战争已进入了第二个月，除了该地区几十年未见得军事冲突外，这也是二战以来最大的难民危机， 这场危机也给波兰带来了一个巨大挑战。至3月28日止，有超过220万人越过波兰和乌克兰边境，其中大多数人决定留在波兰，等待俄罗斯的侵略结束。
 
-据报道，斯塔利科娃最初来自塞尔维亚，自2014年以来一直被乌克兰人追捕。乌克兰武装部队宣布说，她“在2014年射杀了我们的囚犯”，并附有她的照片。伦敦国王学院（King’s College London）战争研究系的研究员乔雷维什维利（Giorgi Revishvili）证实了斯塔伊科娃的被捕，并说她应对“杀害40名包括平民在内的乌克兰人”负责。
+自3月5日至19日，新中国联邦（NFSC）的人道主义救援队在乌克兰用39辆大巴安全救援了2009人，为难民提供免费食物、住房和交通。重要的是，3月6日，NFSC团队将96名儿童和他们的老师一起从乌克兰运送到波兰的克拉科夫，然后协助非政府组织Todo Corazon帮助他们前往西班牙的巴塞罗那。
 
-文章说，斯塔利科娃在与乌克兰军队作战时受伤，被俄军遗弃，让其自生自灭，然后被乌军俘虏。被俘后，斯塔利科娃说：“他们（俄军）离开时，知道我受伤了，（也）有机会把我接走……（但他们）希望我死去”。
+NFSC志愿者在梅迪卡搭建了最大的帐篷，为总共7177名难民提供了免费食物、现磨咖啡、毛毯、休息场所、儿童游乐区等，即使在战争中，人性也能得到发扬。在NFSC的帐篷里，他们努力使气氛变得像一个家庭。来自NFSC的咖啡甚至可以让难民暂时远离他们的痛苦。此外，NFSC志愿者还为一些从乌克兰获救的中国人组织了前往土耳其的免费航班，因为他们害怕返回中国，以防中共发现救他们的人是反共的。
 
-乌克兰《观察者》（Obozrevatel）新闻网站援引一位名叫弗伊万诺夫（Vlad Ivanov）的士兵的话说，斯塔利科娃在被俘时得到了治疗。
+Tygodnik Solidarność是一本波兰周刊。该书于1981年4月3日由团结工会运动发起并出版，在1981年12月13日宣布戒严令和1989年解冻后，波兰人民共和国禁止该书。1989年波兰立法选举后，它于1989年6月合法化。
 
-*责编：白夜*
-
-**新闻来源**
-
-[Deadly Russian sniper captured by Ukraine after she was left for dead](https://nypost.com/2022/03/31/deadly-russian-sniper-captured-by-ukraine-after-she-was-left-for-dead/)
+**新闻来源：**[Najnowszy numer „Tygodnika Solidarność”: Kościół pomaga – państwo się sprawdza (tysol.pl)](https://www.tysol.pl/a81350-najnowszy-numer-tygodnika-solidarnosc-kosciol-pomaga-panstwo-sie-sprawdza)
 
  
 
