@@ -2,34 +2,26 @@
 ---
 
 
-## LG电子涉足区块链和数字资产领域
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267363/)
+## 樱花时政┃中共如何悄悄的接近澳大利亚
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267464/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/calvin
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-4.png)[图片来源](https://www.dailymail.co.uk/news/article-10658053/China-creeping-closer-Australia-stealth-PNG-Solomon-Islands-Timor-Leste.html)
+随着中共开展地全球秘密统战行动，对南太平洋小国施加影响，在他们的海港里摸索，并关注战略位置，澳大利亚北部可能很快就会被中共军队包围。
 
-翻译/编辑：小红帽
+上周，一份概述独裁国家和所罗门群岛之间安全协议细节的文件在堪培拉引起了轰动，该协议表明中共军事基地已经在澳大利亚家门口部署军事力量。多年来，所罗门群岛的亲共立场一直是当地居民分裂的中心。自2019年9月马纳塞·索加瓦雷总理断绝与台湾的外交关系，转而支持北京以来，所罗门群岛的紧张局势一直在酝酿。随着共产党关注该国周围的岛屿并计划建造一系列大规模军事基地。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/LG_Phone_Reuters1.jpg)图片来源：Reuters
+这一披露敲响了警钟，因为多年来，中共也一直打着发展的幌子向巴布亚新几内亚和东帝汶注入资金，这引发了人们对中共可能已经与澳大利亚区域合作伙伴深深的联系的担忧。
 
+去年，一家中共支持的公司提出了一项提案，在昆士兰州和巴布亚新几内亚之间的偏远岛屿上建造一座价值390亿美元的城市，此举让澳大利亚国家安全分析师感到紧张。而这份安全协议草案表示，所罗门群岛可能会“要求中国向该国派遣警察、武装警察、军事人员和其他执法和武装部队”。这进一步说明，中共可能会“访问船只，进行后勤补充，并在所罗门群岛中途停留和过渡”。
 
-根据COINGEEK4月1日报道，韩国消费电子巨头LG电子正在涉足区块链和数字资产领域。该公司最近宣布了新的业务领域，但指出它在这两方面都没有任何具体行动。
+中共的全球统战已经是危胁到了南半球的国家，如果不能尽快的消灭中共，未来每一个国家的家门口都会不知不觉地出现中国共产党部署的秘密警察系统，军事力量部署，因此，消灭中共，势在必行。
 
-上周举行的股东大会批准了新的业务方向。LG概述说，在重新定义其业务的新目标中，将包括“开发和销售基于区块链的软件”和“销售和经纪加密货币”，后者被誉为推出数字货币交易所的意图。
+信息来源：[How China is creeping closer to Australia by stealth as the communists focus on islands surrounding the country and plan to build a series of MASSIVE military bases](https://www.dailymail.co.uk/news/article-10658053/China-creeping-closer-Australia-stealth-PNG-Solomon-Islands-Timor-Leste.html)
 
-然而，正如当地媒体报道的那样，公司发言人拒绝证实LG是否正在进军数字货币交易所业务。
-
-LG对这个行业并不陌生。今年一月份，它宣布将推出一系列能够购买和显示NFT的智能电视。值得注意的是，就在三星在消费电子展上发布类似消息的第二天，LG宣布了这一举措。本月初，LG对其计划进行了更新，透露它已与Ground X（一家Kakao拥有的区块链公司）合作，推出一系列支持NFT的电视。
-
-新闻来源：[LG Electronics ventures into blockchain and digital assets](https://coingeek.com/lg-electronics-ventures-into-blockchain-and-digital-assets/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

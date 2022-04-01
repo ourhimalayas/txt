@@ -2,28 +2,29 @@
 ---
 
 
-## 对俄罗斯的撤军承诺需要听其言、观其行
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267165/)
+## 安省将提高[非居民投机税]税率
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2267352/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4061.png)图片来源：政客
-据《国会山报》3月31日报道，周四，北约秘书长斯托尔滕贝格（Jens Stoltenberg告诉MSNBC，尽管俄罗斯在谈判中说它将撤出一些部队以示诚意，但它仍在继续升级对乌克兰的攻击。
+采编：加拿大温哥华杨帆农场 – 青青
 
-报道说，俄罗斯在周二与乌克兰的和平会谈后表示，他们将减少在基辅（Kyiv）和切尔尼戈夫（Chernihiv）市的驻军，以示善意。然而，美国和乌克兰都指出，俄罗斯从这些地区撤军只是为了在顿巴斯（Donbas）地区重新部署军队。
+撰稿：加拿大温哥华杨帆农场 – 文明(添草灭共)
 
-斯托尔滕贝格说，尽管在土耳其进行的和平谈判令人鼓舞，但“我们看到的是，俄罗斯在继续其军事行动。它继续在想办法，试图为这场冲突找到一个军事解决方案。我们实际上没有看到俄罗斯军队的任何撤离。我们看到的是，他们正在重新部署，并计划在顿巴斯地区发起更广泛的攻势。”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image0.jpg)图片来源：GLOFANG
 
-根据五角大楼的资讯，罗斯已经向顿巴斯地区派出了1000名（雇佣军）士兵，乌克兰总统泽连斯基发出警告说，乌克兰要准备好保卫该地区。
 
-文章说，随着乌克兰要求国际安全保证，而俄罗斯说乌克兰需要保持中立，不得寻求加入北约，和平谈判将于周五继续进行。
+据【CTV新闻】3月29日报道，安大略省政府当天宣布，从次日起，将在全省范围内提高[非居民投机税]的税率。
 
-针对俄罗斯的所谓承诺，斯托尔滕贝格说：“我们必须根据他们的行动而不是他们的言论来判断他们”。
+据悉，这项针对在该省购买房地产的非加拿大居民征税的税率将从15%提高到20%。同时，征税范围也将从以前的大多伦多、安大略湖西岸地区扩大到全省。
 
-*责编：白夜*
+报道称，由于安省整体房地产价格因大量非加拿大居民的不断购置而在10年内增长了近两倍，并远超本地居民的收入增长水平。
 
-**新闻来源**
+因此，提高该税率将减少外国买家的房地产投机行为，以遏制房价上涨，保障本地居民的购房需求。新政实施后，买房的国际留学生和在安省工作的外籍非居民将不再享受退税优惠。
 
-[NATO chief: Russia continues to pursue military solution to Ukraine conflict](https://thehill.com/policy/international/3145101-nato-chief-russia-continues-to-pursue-military-solution-to-ukraine-conflict/)
+校对编辑：硫酸羟氯喹64
+
+发稿：文明(添草灭共)
+
+原文链接： [https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868](https://toronto.ctvnews.ca/ontario-to-hike-tax-on-foreign-homebuyers-while-expanding-it-provincewide-1.5839868)
 
  
 

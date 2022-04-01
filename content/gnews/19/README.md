@@ -2,31 +2,26 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃默拉尔德·罗宾逊（Emerald Robinson）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2267078/)
+## 秘翻在线：乌克兰当局宣布俄军已撤出切尔诺贝利
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267295/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-10.jpg)
-**盖特链接：**[https://gettr.com/user/emeraldrobinson](https://gettr.com/user/emeraldrobinson)
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-400.jpg)图片来源：本文的链接
+3月31日法新社报道，乌克兰当局宣布，占领该国北部切尔诺贝利核电站的俄罗斯军队已经完成撤退。
 
-**埃默拉尔德·罗宾逊自述：**
+管理切尔诺贝利禁区的乌克兰政府机构在脸书上发布消息称，”切尔诺贝利遗址上已经没有外人了”。
 
-加入我的 SUBSTACK：[https://emeralddb3.substack.com/](https://emeralddb3.substack.com/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/zxc-2.jpg)图片来源：网络
-**埃默拉尔德·罗宾逊简介：**
+早些时候，乌克兰国营核公司Energoatom宣布，俄罗斯军队已经开始从该厂和周围的禁区撤出。
 
-埃默拉尔德·罗宾逊（Emerald Robinson，出生于1982年2月1日）是一位著名的美国记者、政治记者、发言人。
+Energoatom在Telegram上发短信说：”今天早上，侵略者宣布他们打算从切尔诺贝利核电站撤出。 还说，俄罗斯军队 “排纵队分两路向白俄罗斯-乌克兰边境行进”，只有 “少数 “俄罗斯士兵留在工厂。
 
-目前，埃默拉尔德·罗宾逊在弗吉尼亚州阿灵顿的Newsmax Media, Inc担任白宫记者。此前，她在华盛顿特区的美国新闻网（One America News Network（OAN））担任白宫首席记者、政治记者以及美国新闻调查（One America News Investigates）的主持人和撰稿人。
+有证据表明，围绕着核电站工人居住的城市Slavutych的俄罗斯士兵正在集结，准备进入白俄罗斯。
 
-埃默拉尔德·罗宾逊还在全球经济增长研究所担任媒体关系总监和制片人、故事点媒体（Story Point Media）担任执行制片人。
+俄罗斯是在2月24日发动对乌克兰的入侵时占领了该工厂的。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+信息来源：  [https://news.yahoo.co.jp/articles/c09bd85c09872227ef029a6a350b28a9a3f4a905](https://news.yahoo.co.jp/articles/c09bd85c09872227ef029a6a350b28a9a3f4a905)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+责编：Eric Kim
 
  
 

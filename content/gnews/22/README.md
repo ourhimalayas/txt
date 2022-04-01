@@ -2,28 +2,31 @@
 ---
 
 
-## 乌军救起被俄军遗弃的著名女狙击手伤兵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267002/)
+## 今日盖特大V推荐 — 埃默拉尔德·罗宾逊（Emerald Robinson）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2267078/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4059.png)图片来源：视频截图
-据《纽约邮报》3月31日报道，一名进行过40次狙击杀人记录的俄罗斯女狙击手被俄军遗弃，在战场上被乌克兰军队俘虏和救治。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-10.jpg)
+**盖特链接：**[https://gettr.com/user/emeraldrobinson](https://gettr.com/user/emeraldrobinson)
 
-这位女狙击手的姓名是伊琳娜·斯塔利科娃（Irina Starikova），代号巴吉拉（Bagira），今年41岁，有两个分别为11岁和9岁的女儿。
+**埃默拉尔德·罗宾逊自述：**
 
-据称，斯塔里科娃是（俄军）第11特种作战师的一名狙击手。根据乌克兰赫尔辛基人权联盟2017年的一份报告，她的绰号是喷火龙（Gorynych），也为俄罗斯分离主义武装力量作战。
+加入我的 SUBSTACK：[https://emeralddb3.substack.com/](https://emeralddb3.substack.com/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/zxc-2.jpg)图片来源：网络
+**埃默拉尔德·罗宾逊简介：**
 
-据报道，斯塔利科娃最初来自塞尔维亚，自2014年以来一直被乌克兰人追捕。乌克兰武装部队宣布说，她“在2014年射杀了我们的囚犯”，并附有她的照片。伦敦国王学院（King’s College London）战争研究系的研究员乔雷维什维利（Giorgi Revishvili）证实了斯塔伊科娃的被捕，并说她应对“杀害40名包括平民在内的乌克兰人”负责。
+埃默拉尔德·罗宾逊（Emerald Robinson，出生于1982年2月1日）是一位著名的美国记者、政治记者、发言人。
 
-文章说，斯塔利科娃在与乌克兰军队作战时受伤，被俄军遗弃，让其自生自灭，然后被乌军俘虏。被俘后，斯塔利科娃说：“他们（俄军）离开时，知道我受伤了，（也）有机会把我接走……（但他们）希望我死去”。
+目前，埃默拉尔德·罗宾逊在弗吉尼亚州阿灵顿的Newsmax Media, Inc担任白宫记者。此前，她在华盛顿特区的美国新闻网（One America News Network（OAN））担任白宫首席记者、政治记者以及美国新闻调查（One America News Investigates）的主持人和撰稿人。
 
-乌克兰《观察者》（Obozrevatel）新闻网站援引一位名叫弗伊万诺夫（Vlad Ivanov）的士兵的话说，斯塔利科娃在被俘时得到了治疗。
+埃默拉尔德·罗宾逊还在全球经济增长研究所担任媒体关系总监和制片人、故事点媒体（Story Point Media）担任执行制片人。
 
-*责编：白夜*
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**新闻来源**
-
-[Deadly Russian sniper captured by Ukraine after she was left for dead](https://nypost.com/2022/03/31/deadly-russian-sniper-captured-by-ukraine-after-she-was-left-for-dead/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

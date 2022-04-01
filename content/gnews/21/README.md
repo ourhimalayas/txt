@@ -2,32 +2,27 @@
 ---
 
 
-## 斯洛伐克宣布驱逐35名俄外交官
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2267044/)
+## 美国进一步释放石油储备 半年内每日100万桶（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2267098/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1-1.jpg)
-欧洲联盟成员国斯洛伐克今天说，根据情报单位提供的讯息，已经决定驱逐35名俄罗斯外交官。
+翻译：宫米叶
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/e38694dc-8023-4af9-81d5-e59c44259be3.jpg)图片来源：@KremlinRussia\_E推特
+此外，沙特阿拉伯等主要产油国同样在31日决定暂缓5月追加增产，美国主导的这次措施对控制价格有多大效果还不明朗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8651-3.jpg)图片来源：NHK新闻
+拜登总统：“与盟友和友好国家协调”
 
-欧盟成员国比利时、荷兰、爱尔兰和捷克昨天都宣布驱逐数十名涉嫌从事间谍活动的俄罗斯外交官，这是欧盟国家在俄乌战争阴影下采取的一致行动。
+拜登总统3月31日在新闻发布会上就释放额外石油储备表示：“全美汽油的零售价，归咎于普京的战争，不到三个月每加仑就上涨了近1美元。这次措施将是有史以来最大的国家石油储备释放“，并强调了致力于控制已成为人民生活负担的油价的态度。
 
-包括美国和波兰在内的其他国家，先前也都驱逐过俄国外交官。
+在此基础上，他说：“这次追加的石油储备释放已与同盟国和友好国进行了协调，已经有几个国家做出了承诺”，并表示了与上次一样与各国协同推进的方针。
 
-斯洛伐克外交部发言人托马加（Juraj Tomaga）告诉法新社，斯洛伐克将「减少（首都）布拉第斯拉瓦俄国使馆35名人员」。
+拜登总统对俄罗斯先后实施了禁止进口原油等严厉的经济制裁，但受国内反弹的影响，通胀加速，支持率依然低迷，在此次行动的背景下，也有希望与目前现状的突破联系起来。
 
-简评：普京克格勃出身本来就是搞情报的，被普京重用的外交官就是撒在各国的情报小鬼，普京都跟民主世界撕破脸了，都快断交了还留着这些外交官干啥，能驱逐的就驱逐吧！
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xixi.jpeg)
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022331W0331](https://www.ftvnews.com.tw/news/detail/2022331W0331)
 
-撰稿/发布：一叶知秋
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

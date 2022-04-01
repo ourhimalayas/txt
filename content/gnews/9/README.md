@@ -2,38 +2,35 @@
 ---
 
 
-## 日本将修改数字资产交易法以堵住俄罗斯逃避制裁的漏洞
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267354/)
+## 樱花数据分析┃加拿大阿尔伯塔省：接种次数越多越易感染，每一针都在伤害免疫系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267448/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/TV
+制图：东京樱花团/chuansang
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2.png)
+加拿大阿尔伯塔省一直在更新各接种人群的感染率数据[1]。截止3月14日的每十万人感染率数据（图1）显示，在接种者中，接种次数越多的人群感染率越高，即“三针最易感染，两针次之，一针接种者风险最低”。这与我们之前观察到的英格兰[2]与丹麦[3]数据一致。3月14日的数据中，三针接种的感染率达到了一针接种者的2.67倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3.png)
+除此之外，仔细观察图1可以看出，三针接种者的感染率在接种初期12月开始的一段时间低于其他人群，疫苗提供了一定的保护。但是于1月30日左右超过一针接种者，2月9日左右超过两针接种者，从此成为最易感染人群。这个数据说明，随着抗体量逐渐降低保护减弱，由于三针接种后免疫系统受损最严重，导致最终该人群最易感染。
 
-翻译/编辑：小红帽
+同样的现象也在两针接种者感染率数据得到验证。由图2可以看出，两针接种者感染率于12月初超过一针接种者，并持续到现在。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/JP_twitter.png)图片来源：sygna
+这两张图清晰的证明了，“疫苗抗体提供了短暂的保护率，但每一针疫苗都在进一步伤害免疫系统，最终导致接种越多越易感染”。
 
+我们更加确信，如果继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。 （对于偏高的未接种者感染率，我们与对丹麦数据的分析[3]一致，认为这是对未接种者过度测试的政策导致的结果）
 
-根据COINGEEK4月1日报道，日本已承诺堵塞其数字货币生态系统中，任何可能被俄罗斯用来逃避制裁的漏洞。高级政府官员将修改该国的外汇法规，以确保俄罗斯人不使用当地的交易所。
+（注：本文为《樱花数据分析》第二十二期）
 
-路透社爆料称，日本政府将向本届议会提交《外汇和对外贸易法》的修订案。
+数据来源：
 
-在新闻发布会上，日本内阁官房长官松野博和透露，政府致力于与西方盟友合作，以确保俄罗斯不会找到规避美国、欧盟、英国、加拿大和其他主要经济体实施的破坏性制裁的方法。
+[1]COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta
 
-在后续行动中，首相岸田文雄进一步呼吁在周一的议会会议上修改该法律。他还强调了与西方盟友协调行动的必要性。
+[2][樱花数据分析┃英格兰：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2222879/)
 
-岸田最近参加了七国集团（G7）峰会，其中俄罗斯入侵乌克兰是讨论的关键话题。峰会通过制裁进一步打击俄罗斯，包括阻止所有涉及俄罗斯央行国际黄金储备的金融交易，以及加大对乌克兰的人道主义援助力度。
+[3][樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2205218/)
 
-目前尚不清楚日本政府希望对这两项法案进行哪些修改。一位财政部官员告诉路透社，政府官员仍在讨论拟议中的修改，尚未达成任何具体内容。
-
-新闻来源：[Japan to revise digital asset exchange laws to plug Russia’s sanction evasion loophole](https://coingeek.com/japan-to-revise-digital-asset-exchange-laws-to-plug-russia-sanction-evasion-loophole/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
