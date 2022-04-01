@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/1/2022 1:00 AM (UTC)`
+
+2022.03.31 晚《新中国联邦新闻访谈》“宇宙”中心的经济；普京的形象塑造；俄乌的恩怨
+![img](https://media.gettr.com/group21/origin/2022/04/01/00/5efa903f-94c4-0fe1-7477-53768705d865/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/1/2022 12:37 AM (UTC)`
 
 【Ukraine Rescue】03/30/2022  Fellow fighter Jin Liang: A bearded French volunteer asked to join us right after he arrived here, and we invited him to spend the night in our large warm tent. Other media like to conduct interviews using our NFSC and ROLF tent as their background, and we are more and more recognized in Medyka.<br/><br/>【乌克兰救援】03/30/2022，来自精良战友：一名大胡子法国志愿者一来就主动加入我们，我们邀请他来我们暖和的大帐蓬过夜。其它媒体都喜欢以新中国联邦和法治基金的大帐蓬为背景进行采访，我们在梅迪卡受到越来越的认同。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -149,13 +156,6 @@
 
 3/30/2022 Miles Guo: Don't overlook the CCP's actions against the Middle East, Northeast Asia, South Asia, and Taiwan. The CCP is trying to cut off the energy supply of Europe, bring down the US economy, and create a financial crisis. The vacancy rate of buildings in New York is very high, with famous buildings being sold at discounted prices. The sanctioned Russian tycoons hate Putin, and the people who are selling their properties at a discount hate Xi Jinping. The financial crisis will facilitate the global efforts to take down the CCP once and for all!<br/><br/>3/30/2022 文贵直播：千万不要忽视中共针对中东、东北亚、南亚和台湾的行动，中共妄图切断欧洲能源供应并打垮世美国经济、制造金融危机；纽约大楼空置率很高，知名大楼正在打折甩卖；被制裁的俄罗斯富豪恨普京，正在打折卖房的人恨习近平；金融危机将促使全球彻底灭共！<br/>
 ![img](https://media.gettr.com/group23/getter/2022/03/31/09/eb48c1ad-2d06-3017-4bcb-13147b40f9ed/out.jpg)
-
----
-
-`@miles 3/31/2022 5:04 AM (UTC)`
-
-3/30/2022 Ukraine Rescue: Why would the battlefield pianist Davide Martello risk his life to go to Lviv while bringing the stickers of the New Federal State of China? What is the touching romantic story behind this?<br/><br/>3/30/2022 乌克兰救援连线：为什么战地钢琴家Davide Martello要冒险带着新中国联邦的标志去利沃夫？这背后有什么感人的浪漫故事？<br/>
-![img](https://media.gettr.com/group17/getter/2022/03/31/05/21347b62-ac33-9e85-9a54-1214a23be0fd/out.jpg)
 
 ---
 
