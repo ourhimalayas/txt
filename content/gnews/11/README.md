@@ -2,8 +2,8 @@
 ---
 
 
-## 20220330郭文贵大直播 ：飞飞有感而发：人民需要无皇有主的时代
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266038/)
+## 20220330郭文贵大直播 ：地产债务暴雷 引发社会动荡
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266062/)
 
 作者：东京樱花团小视频组
 

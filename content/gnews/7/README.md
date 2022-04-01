@@ -2,8 +2,8 @@
 ---
 
 
-## 20220330郭文贵大直播 ：疫苗、疫情管控就是中国共产党插在中国人民身上的毛细血管
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266078/)
+## 20220330郭文贵大直播 ：独裁国家的经济就是一场骗局
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266091/)
 
 作者：东京樱花团小视频组
 
