@@ -2,20 +2,22 @@
 ---
 
 
-## 2022年4月1日《樱花快报》：香港修订法例 不遵从强检、检疫或隔离可被判刑6个月
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2266390/)
+## 美国国家卫生研究院秘密删除了武汉实验室提供的病毒数据
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2266451/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220401快报.jpg)
+加拿大温哥华扬帆农场-重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-154.jpg)图源：thegatewaypundit.com
+据《thegatewaypundit》网站3月30号报道，最近根据《信息自由法》(Freedom of Information Act, FOIA)的要求发现的一批文件揭示：美国国家卫生研究院在2020年夏天秘密删除了有关中共病毒基因测序的信息。
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据Just the News报道，武汉病毒学研究所的研究人员于2020年3月向NIH提供了现已删除的病毒测序数据，但在收到中共下属实验室的请求后不久就被删除了。基因测序数据似乎支持了这种病毒是人为的、源自武汉研究所进行的极其危险的功能增强研究的说法。美国国立卫生研究院(NIH)前院长弗朗西斯·柯林斯(Francis Collins)和美国国家传染病研究所(NIAID)主任托尼·福奇(Tony Fauci)是被特别告知最终被删除的基因测序数据的。
+
+根据弗雷德·哈金森癌症研究中心教授特雷弗·贝德福德(Trevor Bedford)发来的一封电子邮件，“被删除的测序数据可能表明，病毒起源于武汉的湖南市场以外”，但 公共卫生制度掩盖了这种病毒是实验室制造的任何说法。
+
+链接：[https://www.thegatewaypundit.com/2022/03/foia-reveals-nih-secretly-deleted-covid-data-provided-wuhan-lab-beginning-pandemic/](https://www.thegatewaypundit.com/2022/03/foia-reveals-nih-secretly-deleted-covid-data-provided-wuhan-lab-beginning-pandemic/)
+
+* * *
+
+编辑、上传：月亮之上
 
  
 

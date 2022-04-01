@@ -2,14 +2,36 @@
 ---
 
 
-## 有声|新中国联邦新闻、GTV新闻访谈简报|2022年3月30日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266406/)
+## 有声|匪灾横行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266461/)
 
 配音：香草山教育部 – 子兵
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV-7.jpg)
+毒苗邪雨侵神州，
 
-文字版原文：[新中国联邦新闻、GTV新闻访谈简报|2022年3月30日晚](https://gnews.org/zh-hans/2260707/)
+古老国度病缠身。
+
+匪共当道肆虐行，
+
+人性跌落尘埃地。
+
+互害互伤失仁义，
+
+不及古代百饭娃。
+
+盛世华城缺衣食，
+
+远比小说更残忍。
+
+触景追忆几千年，
+
+独裁未断饿死鬼。
+
+迷茫羔羊信牧人，
+
+生死劫难痛领悟。
+
+文字版原文：[匪灾横行](https://gnews.org/zh-hans/2262671/)
 
 音频处理：Fei797
 发稿：Fei797

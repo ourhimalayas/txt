@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mos_designer 3/30/2022 3:22 PM (UTC)`
+
+战争是残酷的，无情的，被炸碎的身体、被破碎的家庭、还有炸残废的身体以及被摧毁的家园。现在全世界都恨中国人，一旦中共发动战争，谁会去救济我们？<br/>新中国联邦在乌克兰前线的救援将会成为史诗般的人类奇迹，会救无数的中国人；尽可能的防止海外排华和发生人道危机灾难。<br/><br/>视频：蜂鸟战友创作-战友日常之挺乌灭共 <br/><br/>#乌克兰救援 #新中国联邦人 #消灭中共的新中国人 #漫画灭共
+![img](https://media.gettr.com/group43/origin/2022/03/30/15/a6b252f5-6074-61e5-75f4-739abad20592/out.jpg)
+
+---
+
 `@miles 4/1/2022 1:00 AM (UTC)`
 
 2022.03.31 晚《新中国联邦新闻访谈》“宇宙”中心的经济；普京的形象塑造；俄乌的恩怨
@@ -149,13 +158,6 @@
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月30日第26天当日救援统计：<br/>Medyka救援站接待：约221人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7946人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 26 - Date: March 30, 2022 :<br/>Medyka Rescue Station Reception: about 221 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7946 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group8/getter/2022/03/31/10/474b568b-7804-0f51-f226-6a18d22170bb/8ace20c298689381351213539d8a1e75.jpg)
-
----
-
-`@miles 3/31/2022 9:43 AM (UTC)`
-
-3/30/2022 Miles Guo: Don't overlook the CCP's actions against the Middle East, Northeast Asia, South Asia, and Taiwan. The CCP is trying to cut off the energy supply of Europe, bring down the US economy, and create a financial crisis. The vacancy rate of buildings in New York is very high, with famous buildings being sold at discounted prices. The sanctioned Russian tycoons hate Putin, and the people who are selling their properties at a discount hate Xi Jinping. The financial crisis will facilitate the global efforts to take down the CCP once and for all!<br/><br/>3/30/2022 文贵直播：千万不要忽视中共针对中东、东北亚、南亚和台湾的行动，中共妄图切断欧洲能源供应并打垮世美国经济、制造金融危机；纽约大楼空置率很高，知名大楼正在打折甩卖；被制裁的俄罗斯富豪恨普京，正在打折卖房的人恨习近平；金融危机将促使全球彻底灭共！<br/>
-![img](https://media.gettr.com/group23/getter/2022/03/31/09/eb48c1ad-2d06-3017-4bcb-13147b40f9ed/out.jpg)
 
 ---
 
