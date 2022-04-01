@@ -2,37 +2,24 @@
 ---
 
 
-## 有声|中共主要国有银行对未来预期表示悲观
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266140/)
+## 孙力军政治团伙的覆灭
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2266250/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒3月29日报道，中共最大的几家商业银行均表示，中共国有银行今年将面临多重高风险不利因素。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/11-58.png)
-中共资产规模第二大银行中国建设银行以及第四大银行中国银行均表示，中共国的银行业今年将面临更加“复杂和严峻的营商环境”。全球中共病毒爆发、西方主要发达国家放弃金融宽松政策，以及地缘政治冲突加剧等不利因素，将严重影响中共国的金融前景。同时，交通银行行长也披露，该行今年很难实现令人满意的盈利，大家对未来预期表示悲观。
+![反腐电视专题片《零容忍》视频截图。](https://n.sinaimg.cn/sinakd20220331s/308/w700h408/20220331/598d-38dd9bec16816da125ead59d0a00c497.jpg)**反腐电视专题片《零容忍》视频截图。**
 
-分析人士认为，目前中共病毒和疫苗灾难呈现爆发和失控的形势，导致国内主要城市部分或全面封锁，将雪上加霜拖垮中共经济，而首当其冲的就是涉及面广泛的服务行业。服务行业的贷款拖欠率上升，会造成极高的银行信贷风险。更大的金融风险则来自摇摇欲坠的中共房地产业。占中共商业银行信贷规模70%左右的房地产业崩盘，将导致中共国有银行全面垮塌、破产。
+傅政华的“双开”通报中，“参加孙力军政治团伙，拉帮结派，结党营私”的表述颇受关注。
 
+今年1月，中国纪检监察报在报道反腐电视专题片《零容忍》时提到，公安部原副部长孙力军政治团伙案首次被曝光。
 
+按照《零容忍》中的报道，紧随孙力军之后，政法领域多名省部级干部先后被查处，包括曾任公安部技术侦察局局长，上海市副市长、市公安局局长的龚道安；曾任中央政法委办公室主任，重庆市副市长、市公安局局长的邓恢林；曾任辽宁省公安厅副厅长、大连市公安局局长，江苏省副省长、省公安厅长，江苏省委常委、政法委书记的王立科；曾任公安部网络安全保卫局局长，山西省副省长、省公安厅厅长的刘新云。
 
-文字版原文：[中共主要国有银行对未来预期表示悲观](https://gnews.org/zh-hans/2261578/)
+片子中还特别提到了傅政华。专题片称，在反腐败高压态势下，仍然有人管不住内心的贪欲，不收敛不收手，甚至政治问题与经济问题交织，违背党的初心使命，动摇党的执政根基，影响党和国家政治安全。“孙力军政治团伙案就是这方面的典型。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+今年1月24日，公安部召开了公安机关肃清孙力军政治团伙流毒影响专题会议，会议透露，公安部党委已成立公安部肃清孙力军政治团伙流毒影响专项工作领导小组。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：[https://news.sina.com.cn/o/2022-03-31/doc-imcwipii1696519.shtml](https://news.sina.com.cn/o/2022-03-31/doc-imcwipii1696519.shtml)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Discord-QR-89.png)DISCORD
 
  
 

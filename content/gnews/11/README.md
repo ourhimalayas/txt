@@ -2,31 +2,45 @@
 ---
 
 
-## 习近平是俄乌战争的背后主导者
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2266119/)
+## 加密货币在俄乌战争中的亮眼表现
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2266232/)
 
-**【郭先生直播摘要】2022.3.23 习近平是俄乌战争的背后主导者**
+2022-03-31
 
-**郭先生:**
+Elli整理翻译
+![](https://assets.gnews.org/wp-content/uploads/2022/03/A0BMK06IU5ZV@2D1OV.png)图片来源：[https://www.blockchain.com/search?search=1x8aa2N2Ar9SQweJv9vsuZn3WYDHu7gMQu1RePjZuBe33Hv](https://www.blockchain.com/search?search=1x8aa2N2Ar9SQweJv9vsuZn3WYDHu7gMQu1RePjZuBe33Hv).
+早在俄乌战争开始前的几周，很多乌克兰百姓就急于取出现金，无奈各个银行自动取款机ATM前都大排长龙，好不容易轮到自己，取款的手续费已经暴涨，而且每个账户最高只能取出30美金。战争开始当日，所有乌克兰银行都停止了电子转账，这对急于用钱和出逃的百姓而言是致命的打击。一位20岁乌克兰小伙利用BTC冷钱包，迅速找到其他国家的买家，提现600美金用于支付跨境车资，旅馆住宿，并与女友成功出逃。他们出逃到波兰后，并不能进入波兰境内的银行开户，更别提通过波兰银行取出他们在乌克兰境内的银行账户资金。而波兰境内有175个BTC比特币取款机，凡有加密货币密钥的百姓都可以在BTC取款机兑换现金使用，成为这位乌克兰小伙过渡阶段的救急资金。
 
-我先告诉你们今天最现实的事情:这场战争的最后主导者绝对不是普京,绝对是中国的习太阳!
+同样的状况也发生在俄罗斯，卢币大幅度贬值，生活成本飒升，受到国际制裁不能使用SWIFT系统的俄罗斯人被截断资金周转的途径，甚至不能使用苹果支付、谷歌支付和三星支付，幸好加密货币转入转出极其方便，且被各国币圈的使用者广泛接受，也成为俄罗斯百姓的流通商品及资金的生命线。
 
-第一句话我要告诉你们: 一定想到2022年的黑暗是人类有史以来最黑暗的!
+在国家层面，加密货币也扮演了极其重要的角色，乌克兰政府的官方推特在战争开始之际就公布了接受BTC和ETH捐款的地址，随后又陆陆续续增加DOT，Dogecoin等许多小币种的地址，目前获得的捐款已经累计1亿美金。
 
-在俄乌战争开始的时候, 乌克兰我的朋友全跑了. 都是乌克兰最有钱，最有权的人! 结果这帮孙子, 现在这几个人自己要回去战斗去. 有一个在伦敦的超级富豪, 离我家很近的一个地方的富豪. 他跟我说Miles我要带着我的女婿, 我要回去作战. 我看到你一个中国人派到前线去救援, 我感到羞耻. 这是人的良知! 他说我把所有的遗书写完了, 我回去战斗去! 其中主要原因就是因为看到我们帮助资助救乌克兰人.
+俄罗斯亦一改以往对加密货币打压的立场，考虑接受比特币作为其国家能源的付款方式。
 
-第二他看到了我说的太对了, 这个背后是共产党, 中国共产党和普京是要灭了我们. 他不是想征服我们, 是想灭了我们! 而且他完全相信我说的,  就是乌克兰这会成为欧洲的英雄! 未来的欧洲一定是乌克兰的欧洲!  而且这次最终的结局, 我可以告诉你, 最终他认识到, 欧洲一定会把俄罗斯肢解掉, 把它解体! 他说乌克兰精神会成为欧洲精神! 而且当他知道,  英国技术部队已经到达乌克兰.  在波兰在帮助乌克兰的时候, 这哥们是懂的. 这哥们在背后也做了很多工作, 花了很多钱.  他觉得这场战争乌克兰一定会大赢, 而且乌克兰会付出巨大代价, 而且波罗的海三国最终一定是跟俄罗斯开战, 而且白俄罗斯也一定会参与进来. 他跟我说完了, 讲完了他说, 我就准备回去作战.
+自2020年中共病毒疫情危机以来，新兴市场经济体中兑换美元稳定币的交易量不断飙升。其中，土耳其里拉在稳定币市场中的交易份额从2020年1月的0.3%上升至2021年12月的26%，但里拉在全球外汇市场中的占比仅为0.5%，与加密货币市场的差距巨大。与此同时，在许多面临贬值压力且货币流动规模较小的新兴市场国家，点对点平台P2P的比特币交易量也大幅上升。
 
-我告诉他一句话, 我说可能会有戏剧性的发展. 俄乌战争, 其中一条, 我说中国站出来的时候, 只有两个结局.  记住这话我没跟你们说过:
+评：区块链去中心化技术正在颠覆人类货币的流通方式，摆脱法币对金融系统的垄断，在通货膨胀，战争，边境封锁的危急局势下，更加凸显数字加密货币的重要作用。数字加密货币被认为是最自由的货币经济形式，还涉及到分散对经济决策的控制。数字加密货币全球流通的巨大优势必将使法币退出历史舞台。最终，全球流通的数字加密货币一定会成为各国政府不得不认可的唯一选择。相信当喜币被主流币圈广泛接受后，其安全快捷，0手续费的支付特点会远胜于比特币的特性将成为重要的币种。 文贵先生近日在大直播中指出，加密货币市场的巨量波动并没有造成巨大的金融与社会动荡，这一点令全球的监管者感到十分惊讶。另一方面，拜登总统的数字货币行政令会进一步让加密数字货币走向主流。在此情况下，喜币由于其稳定币的设计、充足的储备金以及与黄金挂钩并采取严格KYC措施的特征，必将使其在未来的监管竞赛中胜出。
 
-第一条中国参与战争, 就是俄罗斯豁出去了, 跟大家打小型核武器战争, 中国也参与战争; 第二 中国作为最重要的一国,调解国. 调解国,我来调解. 然后什么, 我来guarantee, 习太阳要做guarantee,担保人, 把这个战争, 西方和欧洲所承诺的乌克兰接受的条件, 中国作为guarantee. 普京说你看习太阳都跟我站在一起了, 俄罗斯同胞们, 我们14亿中国人加俄罗斯人, 我们一半的世界人跟我们在一起,而且做了guarantee接受这个条件, 我们赢了回家.  这是超过50%的可能.
+翻译链接：
 
-20%的可能是波罗的海国跟俄罗斯和白俄罗斯混战, 然后死更多人, 死上一千万两千万人都有可能. 某些地区被扔战略性的, 所谓边缘性核导弹. 啥叫边缘性核导弹? 既不在核控也不在导弹控制范围内的小型导弹, 会死亡人数, 会死几百万几千万几个城市就消灭掉了,  然后最终普京也被消灭, 然后还得回来谈.  最后缴枪不杀.
+[Russians are scrambling to withdraw US dollars at ATMs as the ruble hits a record low on sweeping Western sanctions](https://www.msn.com/en-us/news/world/russians-are-scrambling-to-withdraw-us-dollars-at-atms-as-the-ruble-hits-a-record-low-on-sweeping-western-sanctions/ar-AAUoUcK)
 
-今天一开始我告诉大家: 无论哪个结果发生, 你记住如果习出来, 习太阳拍着膀子说我做guarantee, 我做调解国. 记住我今天说的话: 中国人会成为人类上, 未来100年1000年全人类上最恨的人.
+[**Ukraine Has Received Close to $100M in Crypto Donations**](https://www.coindesk.com/business/2022/03/09/ukraine-has-received-close-to-100-million-in-crypto-donations/#:~:text=Ukraine%20has%20received%20a%20total,crypto%20spokesperson%20of%20the%20government.)
 
-剪辑：CG.| 听写：雨山溪桥客 |翻译：阿基米德|校对：烟波浩淼 | 编辑&发布： 叶子
+[Economic sanctions cripple Russian economy as ruble plunges, interest rates soar](https://www.cnbc.com/2022/02/28/economic-sanctions-send-russians-scrambling-for-dollars-euros-and-other-currencies-as-ruble-plunges.html)
 
+[Ukrainian Refugees Escape With Crypto Life Savings on Pen Drives](https://beincrypto.com/ukrainian-refugees-escape-with-crypto-life-savings-on-pen-drives/)
+
+[追踪加密资产在新兴市场经济体中的足迹](https://gnews.org/zh-hans/2258787/)
+
+[Tweets by Ukraine](https://twitter.com/Ukraine?ref_src=twsrc%5Etfw)
+
+编辑：卢卡斯
+发布：肥鯮
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
