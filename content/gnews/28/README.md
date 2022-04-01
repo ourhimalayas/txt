@@ -2,30 +2,38 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年3月31日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2266599/)
+## 普京签署法令：买家需用卢布购买天然气
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2266660/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-40-1-6-70.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/text-SC-26.png)
+**撰稿：日本东京方舟农场  子辰**
 
+3月31日，普京签署最新法令，规定外国买家自4月1日开始，要用卢布购买其天然气，否则合同无效，这令当下局势进一步升级。
 
-校对：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-396.jpg)（图片来自大纪元）
 
-编辑：Stay文苑
+昨天，俄罗斯总统弗拉基米尔‧普京（Vladimir Putin）表示，他已签署一项法令，规定外国买家需在国有控股的俄罗斯天然气工业股份公司（Gazprom）开立特别账户，以便将外币兑换成卢布进行结算。欧盟称此举为敲诈勒索。
 
-发稿：Stay文苑
+普京在电视讲话中说，“如果不用卢布支付此类款项，我们将认为这是买家违约，买家将承担随之而来的所有后果。没有人免费向我们出售任何东西，我们也不会做慈善，也就是说，现有合同将被停止了。”普京说。
 
-新闻：[https://gettr.com/post/p12y36mc865](https://gettr.com/post/p12y36mc865)
-访谈：[https://gettr.com/post/p12y1z52bba](https://gettr.com/post/p12y1z52bba)
+自普京入侵乌克兰以来，俄罗斯银行、公司、商人和克里姆林宫同时受到多国制裁，现如今俄罗斯正在反击这些制裁，而能源出口是普京最有力的杠杆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/1-March-5.png)
+普京发表声明后，德国作为长期依赖俄罗斯天然气的国家表态，希望可以继续依照合同使用欧元支付。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+荷兰天然气贸易公司GASTERRA表示：“国际协议包含有关付款和货币的条款。坚持协议仍然是我们的立场。”
+
+就此事件，国际评级机构惠誉解决方案的分析师表示：“克里姆林宫的行动可能是因为担心天然气工业银行（Gazprombank）将会受到制裁，因为欧盟更广泛地要求完全切断与俄罗斯的能源关系。”
+
+“从俄罗斯购买天然气的长期合同以欧元计价，因此，如果没有重新谈判合同，俄罗斯就没有法律依据来执行这一需求。”惠誉说。“如果俄罗斯强制执行这个法令，并未来实际停止向欧盟27国输送天然气，这标志着重大升级，甚至在冷战高峰时期都没有发生过的。这也标志着对俄罗斯国库的又一次重大金融打击。”
+
+此外，欧盟国家正在积极开展可以替代能源的产业，同时做好俄罗斯停止供应天然气的准备。
+
+与此同时，普京表示，这一转变将加强俄罗斯的主权，他称西方国家将金融体系作为武器，这对俄罗斯来说毫无意义。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/3/31/n13686807.htm](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
+
+总编：青城道姑
+校对发布：爱放飞
 
  
 

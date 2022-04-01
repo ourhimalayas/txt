@@ -2,39 +2,31 @@
 ---
 
 
-## 有声|泽连科医生称疫苗导致艾滋病并毁坏免疫系统
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2264425/)
+## 俄乌战争本质是中美战争
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2264426/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-根据3月25日的一则盖特消息，泽连科医生在近日接受采访时表示，中共病毒疫苗实际上破坏了人体T细胞的免疫功能，与自然杀毒细胞的功能，并且还会削弱肿瘤抑制基因，为癌症打开大门。换句话说，这就是获得性免疫缺陷综合征，即艾滋病。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/03/432580651456139264564731.jpeg)
+3月30日郭先生在大直播中阐述当前俄乌战争的本质就是中美战争。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide11-15-1280x720.jpg)
+此前的俄乌谈判，双方各找好了自己的担保国家，这一次，世界再没有中立和第三国，完全分成了相互对抗的两个阵营。一个阵营是以中共、俄罗斯为首的独裁国家，包括巴基斯坦、伊朗、朝鲜、白俄罗斯以及非洲一些独裁小国，另外一个阵营是欧美日等西方民主国家。两个阵营分别为俄罗斯和乌克兰做担保，一旦对方不遵守协议，毫无疑问就是两大阵营的斗争。
 
-目前已经有数十篇医学评议论文验证了他的观点。 在以色列，殡仪馆的工作人员表示，他们已经严重超负荷工作，因为死亡人数增加了10倍，特别是年轻死者，导致他们没有足够的资源来进行妥善安葬。 泽连科医生警告说，由于以色列是注射三针、四针中共病毒疫苗最多的国家，所以目前有大约50%的以色列人已经患上了艾滋病，同时该国感染中共病毒后的死亡率也最高。
+中共一定会借机打台湾，而美国也已准备好第三只手收拾中共。俄乌战争会以灭掉共产党而结束。中共阵营的国家会输得极其凄惨，整个邪恶独裁东方联盟会彻底瓦解。
 
-泽连科医生最后说，爱因斯坦对精神错乱的定义，就是一遍一遍重复做同样的事情，却期待能得到不同的结果。但全球政府强制大范围注射中共病毒疫苗并非精神错乱，而是精心设计的结果，这正是他们想要达到的目标。
+撰稿、发布：骄子
 
+* * *
 
+欢迎订阅我们的GNews账号：
 
-文字版原文：[泽连科医生称疫苗导致艾滋病并毁坏免疫系统](https://gnews.org/zh-hans/2255954/)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,29 +2,30 @@
 ---
 
 
-## 中日财经爆┃百度、爱奇艺等五家公司被美国SEC列入退市风险名单
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2262478/)
+## 国际｜巴基斯坦总理恐遭罢免 习举办富汗邻国外长会议
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2262672/)
 
-撰稿：东京樱花团/peterwong
+**港台前线** **zhong｜2022-3-31**
+▎关注疫情真相、 光亮黑暗时刻&gt;&gt; **[疫情关注组 EpidemicConcernGroup](https://gettr.com/user/mightygroup)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Music-Clip-31.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [港台前線 Frontline｜HK&TW](https://gettr.com/user/hktwfrontline)
+（当地时间）外媒29日报导，数周前，巴基斯坦国民议会（或议会下院）的反对党领袖谢赫巴兹谢里夫（Shehbaz Sharif）对 总理伊姆兰．汗提出不信任动议，指责汗管理国家经济不善。巴国众议院于周四对不信任动议进行辩论，将在7天内进行投票。
 
-美国证监会（SEC）3月31日将百度、爱奇艺等五家公司列入有退市风险的相关发行人暂定名单，并将百济神州等五家第一批进入暂定退市名单的公司转入确定名单。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片6-10.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F6e471d18-bc6b-4dfd-a5aa-489ecd8240b0.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ft.com%2Fcontent%2Fddb097f8-41bd-41c9-916e-713ea4035d8d&amp;tbnid=EHnbus7AacBtwM&amp;vet=12ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ..i&amp;docid=gc6TBW1sfl4A-M&amp;w=2400&amp;h=1350&amp;q=sec&amp;ved=2ahUKEwj2tcje7-_2AhWck_0HHc-2CS4QMygDegUIARC3AQ)
-根据美国SEC网站的最新披露，百度、爱奇艺、CASI制药、富途与总部位于台湾新北市的诺斯拉（Nocera）可在4月20日前提交证据申诉。
+巴国众议院342席次中，须得到172票方通过不信任动议。外媒报导分析人士表示，本次不信任动议是执政联合政府与军方的冲突，主要决定谁有权统治巴基斯坦，但双方皆否认此说法。
 
-上周SEC将中国社交媒体平台新浪微博列入暂定名单。截至目前，暂定名单中共六家公司。
+现年69岁的伊姆兰．汗于2018年选举中获得176议会席次支持，当选总理。截至目前，已有5位同盟宣布退出联合政府或加入反对阵营，意思是反对派人数已达到177人，而伊姆兰．汗需要172票才能继续执政。外媒表示，巴基斯坦75年历史中，没有一位总理完成任期，该国经常发生军队政变。
 
-百济神州、百胜中国、再鼎医药、盛美半导体与和黄医药三周前成为首批五家因为《外国公司问责法》而进入被识别清单的公司，申诉截止日期为3月29日。但SEC网站显示，该五家企业已从暂定名单进入确定名单。
+## 习近平向第三次阿富汗邻国外长会发表书面致辞
 
-美国公众公司会计监督委员会(PCAOB)上周四表示，将继续与中国监管机构进行接触，以获取审计报告记录，但目前尚不清楚中共国政府是否会按照美国新上市法律的要求批准美方获得这些记录。最近媒体对协议即将达成的猜测“为时过早”。
+阿富汗邻国外长会议将举行，中共将与俄罗斯、巴基斯坦的外交官讨论阿富汗问题。中共外交部发言人汪文斌29日表示“中美俄巴都是在阿富汗问题上有重要影响的国家。我们期待通过这次会议…凝聚各方在阿富汗问题上的共识，推动地区国家和国际社会加大对阿富汗和平重建的支持…”。
 
-消息来源:
+北京时间31日，人民网发布“习近平向第三次阿富汗邻国外长会发表书面致辞”，习指出阿富汗处在由乱及治的关键时期，并强调**阿富汗邻国要各尽所能**，凝聚共识，协调配合，支持阿富汗人民开创美好未来。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截圖-2022-03-31-下午4.21.03.png)
+来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E4%B8%AD%E5%9C%8B%E8%88%89%E8%BE%A6%E9%98%BF%E5%AF%8C%E6%B1%97%E9%84%B0%E5%9C%8B%E5%A4%96%E9%95%B7%E6%9C%83%E8%AD%B0-%E5%8C%97%E4%BA%AC%E6%89%93%E4%BB%80%E9%BA%BC%E7%AE%97%E7%9B%A4-040100396.html)、[ALJ](https://www.aljazeera.com/news/2022/3/30/pakistans-imran-khan-loses-majority-as-no-confidence-vote-nears)
 
-[美国证监会将百度等五家公司列入退市风险暂定名单 百济神州等转入确定名单（更新版）](https://cn.reuters.com/article/usa-sec-chinese-companies-lists-0331-thu-idCNKCS2LS05Z?il=0)
+* * *
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
-
+▎聚焦国际热点、传播关键真相 &gt;&gt;** [港台前線 Frontline｜HK&TW](https://gettr.com/user/hktwfrontline)**
+▎关注疫情真相、 光亮黑暗时刻&gt;&gt; **[疫情關注組 EpidemicConcernGroup](https://gettr.com/user/mightygroup)**
 
  
 

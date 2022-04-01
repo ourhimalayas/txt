@@ -2,49 +2,34 @@
 ---
 
 
-## 中共国与所罗门群岛签署安全协议&#8211;美国和盟国担忧的原因在此
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2265108/)
+## COVID-19疫苗副作用集萃（2022.4.1A）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2266210/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
-所罗门群岛周四宣布，尽管西方盟友和附近国家表示担忧，但它已经与中共国签署了一项安全协议，这可能会极大地改变该地区的安全状况，并使北京在南太平洋获得第一个军事立足点。
+**整理：**雅典娜情报组(BENJ1)
+**编辑：**翼族
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4020.png)图片来源：/www.forbes.com/
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-*中共国国家主席习近平在北京会见所罗门群岛总理马纳塞-索加瓦雷。[+]新华社/Getty Images*
+**疫苗第二针，成功倒下**
 
-根据所罗门群岛总理办公室周四的一份声明，所罗门群岛和中共国的官员已经“初步确定了”一项影响广泛的安全协议的关键部分。
+昨晚8:25第二针的预约，大姨妈一进门就马不停蹄的陪我冒雨去了AIS🙄，快关门的时候人很少，进去就被招呼了，护士老阿妈简直像容嬷嬷一样，撸起袖子就给我扎上了，消毒？干了一天了，估计觉得太麻烦……自动省略，一针到底，“铛”撞上骨头……推水，结束！
 
-声明说，该框架草案现在将被“清理”，随后由两国外交部长签署。
+不过，扎得深的好处，不疼！辉瑞第一针没有扎这么深，扎完立刻肉疼啊。回家相安无事，该洗刷刷洗刷刷，该带娃带娃。然而……今天大概中午12点就不太行了，感觉好冷，没力气，体温38.1……大量喝水，睡觉（队友一拖二）。
 
-上周被泄露的协议草案概述了允许中共国在所罗门群岛部署安全和军事力量的措施。
+一觉醒来，感觉头晕头疼，冷，浑身发热（好矛盾），浑身无力，一测体温，哐哐哐39.6度，打新冠疫苗第一针就胳膊疼了一下，没想到这新冠疫苗第二针来的如此之猛。第一针之后的心脏早搏问题还没来得及问GP呢！
 
-该草案还允许所罗门群岛请求中共国军队帮助维持“社会秩序”。
+参考链接：[疫苗第二针，成功倒下](https://www.xiaohongshu.com/discovery/item/61580da6000000000102ec0e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648606466)
 
-该草案引发了包括美国、澳大利亚和新西兰在内的西方大国的广泛反对，他们担心该协议将为北京建立军事基地和在该战略地区施加影响铺平道路。
+*发布：翼族*
 
-周三，密克罗尼西亚联邦总统大卫-帕努埃洛对该提案表示了“严重的安全关切”，他说这可能使太平洋岛屿夹在美国和中共国之间，成为“这些大国之间未来对抗的中心”。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-**关键背景**
-
-太平洋岛国在全球航运和贸易方面具有重要的战略意义，在第二次世界大战期间，它们在维持供应线和投射军事力量方面发挥了关键作用。中共国在所罗门群岛的存在将可能改变华盛顿和堪培拉的安全方针，并可能破坏该地区的稳定。美国国务院发言人也表示，任何协议都会引起人们对“北京单方面将其内部安全机构扩展到太平洋地区”的担忧。该协议还可能助长所罗门群岛的动荡，那里的反华情绪和对总理马纳塞-索加瓦雷的反对–他在2019年将外交关系从台湾转向中共国–已经引发了重大动荡，包括火烧首都唐人街。
-
-**变化**
-
-美国、英国和澳大利亚在2021年9月宣布建立三方安全联盟。该协议被称为Aukus，美国将向澳大利亚提供部署核动力潜艇的技术，所有国家将在印度太平洋地区合作。虽然该协议没有明确提到中共国，但人们普遍认为它是对北京在南中国海扩张的回应。中共国谴责该协议是对地区和平与稳定的威胁。
-
-信息来源：[China Inks Security Deal With Solomon Islands—Here’s Why The U.S. And Allies Are Concerned](https://www.forbes.com/sites/roberthart/2022/03/31/china-inks-security-deal-with-solomon-islands-heres-why-the-us-and-allies-are-concerned/?sh=4bbc6af834ba)
-
-审核：Aries的星
-校对：阿伯塔
-发布：夜来香
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
