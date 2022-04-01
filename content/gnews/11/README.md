@@ -2,56 +2,51 @@
 ---
 
 
-## 入侵台湾战争一触即发请关注联盟委员会发布紧急联系人
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2268048/)
+## 澳洲工会要求提高5%最低工资
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2268115/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%881.6%EF%BC%89%E5%85%A5%E4%BE%B5%E5%8F%B0%E6%B9%BE%E6%88%98%E4%BA%89%E4%B8%80%E8%A7%A6%E5%8D%B3%E5%8F%91%E8%AF%B7%E5%85%B3%E6%B3%A8%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9A%E5%8F%91%E5%B8%83%E7%B4%A7%E6%80%A5%E8%81%94%E7%B3%BB%E4%BA%BA%E3%80%902022%E5%B9%B402%E6%9C%8824%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:4)
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-7.jpg)图片来自网络
+《SBS News》近日报道，他们向公平工作委员会递交了年度工资审议，如果获批的话，那么最低工资率将升到21.35澳元的时薪，也就是年薪42183.96澳元。
 
-**郭文贵先生：**雪冰兄，老班长，我现在在直播呢。很多战友都在问，咱们现在台湾的处理这个事情的联络人，你给我一个号码让大家去联系，公开一下子。
+澳洲有四分之一的员工也就是250多万人，依赖于年度工资审议来涨工资。
 
-**老班长：**可以，我给你。
+“我们呼吁总理斯科特·莫里森支持澳大利亚的工人并支持这次加薪，”她在周四的一份声明中说。
 
-**郭文贵先生：**你这样，你跟木兰联系也行，或者是让他们在我的盖特上发出去，所有的在全球的战友们，凡是有资源的准备好的，象小皮匠，还有很多我们老椅子战友都准备好了房子什么的，让他们跟谁联系，统一一下联系，我就不回复了，好不好？
-**老班长：**好，我来解决，我来解决。好的，我来，好的。
-**郭文贵先生：**好吧。
-**老班长：**我马上叫木兰发，我马上叫木兰发。
-**郭文贵先生：**叫木兰马上发出去一个。
+“如果本届政府认真对待解决生活成本压力，那就从工资增长开始。”
 
-**郭文贵先生：**好，我现在正在直播，战友们，我现在正在跟老班长在通话，很多人跟我发信息，就关于很多战友们在全球各地的资源，关于为台湾同胞、台湾的战友，所有的人给我的信息资源。大家很多人都给大牛发的信息、也给我发的信息。
+联邦政府本周公布了 2022/23 财政年度的预算，强调了缓解生活成本压力的新措施。
 
-战友们，在这个时候，大家一定记住：集中管理、集中行动、统一行动，就大家不要到处给大牛发信息，大牛他也接不过来，几万个人他怎么能回复呢？大家光点赞都得把他点头蒙了，没等他点完，那导弹都过来了。大家这个时候不要热心办坏事，你们也不要给我发信息，也不要给大牛发任何信息，这个时候，也不要给台湾发信息。这时候不是大家示好的时候，是行动的时候、是务实的时候。
+这包括把燃油附加税减半到每升22分，一次性的给1000万中低收入者420澳元的税务抵免，给养老金领取者和福利领取者等发放一次性的250澳元的补贴。
 
-那么现在，一会儿老班长会代表联盟委员会，会让木兰在我的盖特上发出来一个统一联络方式，所有有资源的请按那个联系方式点击进去，统一由联盟委员会老班长、长岛哥，咱们所有的联盟委员会大家集体协调，好不好？这时候不要浪费资源，大家互相之间说：我感谢你，我感谢你给我这个资源。已经都乱了，这不是对付战争的模式，这是搞恋爱的模式，好不好，雪冰兄？
-**老班长：**好，我马上安排，现在开始。
+2020/21 年度工资审查使工人增加了 2.5%，相当于每小时 20.33 澳元或每周 772.60 澳元。
 
-字幕来源：[2022年02月24日 郭文贵先生紧急直播 全文字版](https://gnews.org/zh-hans/2062121/)
+在那次审查中，工会主张增加 3.5%，而商业团体建议增加 1.1%。
 
-编辑整理：Jacques；
+麦克马纳斯女士表示，工资增长落后于通胀预期，在今年前六个月有效地将普通工人的实得工资削减了 500 澳元。
 
-字幕档制作：大好河山；
+她说：“工会将主张增加 5%，这是使实际工资增长并避免进一步减薪所需要的。”
 
-视频制作及上传：Cindy；
+“莫里森联邦预算的一次性付款无助于产生工人需要的长期、可持续的工资增长，也无助于阻止国家劳动力再遭受一年的实际工资削减。”
 
-G-News发布：海贼王M.D.LUFFY；
+联邦财政部长乔什·弗莱登伯格周三表示，这些措施现在是为了帮助改变真实人们的生活。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+“现在需要这种有针对性的、临时的、负责任的支持，我们在这个预算中所做的工作被视为对底线的实质性改善，”他周三早上告诉ABC电台。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+金融市场经济学家担心，年化通胀率可能会从目前的 3.5% 的高水平加速至至少 5%。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+提高最低工资势在必行，因为过高的通胀受伤最大的就是穷人。但提高工资后会出现工资价格螺旋（提高工资必然会引起商品价格上涨，而价格上涨又迫使工人要求提高工资，这又会引起商品价格的上涨。 这一过程不断出现，循环不已）从而进一步的推高已经处于高位的通货膨胀。如何把通胀从高位打下来已经成为澳洲政府不得不面对又一个难题。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+参考链接：
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+[https://www.sbs.com.au/news/article/unions-to-push-for-five-per-cent-increase-to-australias-minimum-wage/3p1v0hr5e](https://www.sbs.com.au/news/article/unions-to-push-for-five-per-cent-increase-to-australias-minimum-wage/3p1v0hr5e)
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+[https://wiki.mbalib.com/wiki/%E5%B7%A5%E8%B5%84-%E4%BB%B7%E6%A0%BC%E8%9E%BA%E6%97%8B](https://wiki.mbalib.com/wiki/%E5%B7%A5%E8%B5%84-%E4%BB%B7%E6%A0%BC%E8%9E%BA%E6%97%8B)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+*编辑：金生水*
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

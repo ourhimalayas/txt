@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/1/2022 8:48 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
+![img](https://media.gettr.com/group7/origin/2022/04/01/08/7c4055b2-cc37-ff3a-0a15-b6b527a774e3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/1/2022 5:35 AM (UTC)`
 
 
@@ -151,13 +158,6 @@ China-Russia cooperation has no limits. Two evil regimes and leaders promote mul
 
 3/30/2022 Miles Guo: The big tent of the NFSC & ROLF Ukraine rescue camp hosted an 81-year-old Ukrainian woman who walked 60 kilometers to Medyka, and after a cup of tea, she calmly asked a fellow fighter if she had a comb. The elderly woman still maintains her dignity during the war, making people feel both heartbreaking and respectful.<br/><br/>3/30/2022 文贵直播：新中国联邦救援营地的大帐篷接待了一位81岁的乌克兰老太太，她步行60公里来到了梅迪卡，喝了一杯茶后，她淡定地问战友有没有梳子，战乱中的老人家仍保持着尊严，这既令人心痛又让人肃然起敬<br/>
 ![img](https://media.gettr.com/group26/getter/2022/03/31/15/ef430a1a-b1d2-014c-5af5-fedae4998665/out.jpg)
-
----
-
-`@miles 3/31/2022 2:02 PM (UTC)`
-
-叶钊颖-郝海东-飞飞 《大实话·第十六场》： “新中国联邦爆料革命，开智同胞，看清共匪，智慧灭共！”  2022-03-31
-![img](https://media.gettr.com/group41/origin/2022/03/31/14/49567de1-10fa-ee69-bfc9-c3f289f0eb0f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
