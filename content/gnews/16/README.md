@@ -2,204 +2,62 @@
 ---
 
 
-## 中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2266466/)
+## 大直播后记：连线文耀讲述前方战友背靠背经历
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2266621/)
 
-**郭文贵
-Miles Guo**
+#### 连线前线Medyka战友（文耀）
 
-中美的战争正式开始了
-La guerra chino-estadounidense ha comenzado oficialmente
+#### 整理：Lucy Liu、Rianna
+编辑：文泓
 
-即使现在共产党啥都不做
-A pesar que el PCCh no haga nada ahora
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4046.png)图片来源：文贵大直播 & 雅典娜设计组
 
-就凭这个, 我没说过嘛
-Con sólo esto, no lo he dicho
 
-在意大利的见面
-En el encuentro de Italia
+**嘉宾如水：**
 
-然后习和拜登的这个对话
-Y esta conversación entre Xi y Biden
+文耀从一开始起一直坚守在前线，非常辛苦。请给我们介绍一下现在救援前线的情况。
 
-他已经是很清楚
-Él está muy claro
+**连线文耀：**
 
-我就是支持俄罗斯
-Yo sólo apoyo a Rusia
+这次有这么多战友在一起，是难得一次的背靠背经历。像七哥说的，我们平时在线上见，现在我们就是在营地见。这种经历让我终身难忘。能够代表我们新中国联邦人在前线进行人道救援，也是一件莫大荣幸的事情。
 
-我就是要干死你美国
-Sólo quiero eliminarte EE. UU
+今天早晨，我跟正义小Sarah采访了一位波兰四个孩子的母亲，她有医生背景，她孤身一人到乌克兰前线去帮助救治受伤的乌克兰士兵，（现场）那个惨状是可想而知的。她说，如果我不这么做，我家的四个孩子就没有安全感。也有很多波兰人跨过边界去为乌克兰战斗。包括与我们一起在营地里工作的两位波兰职业军人去到乌克兰前线参加战斗。他们这种伟大的奉献、牺牲精神和无畏的勇气，更让我感动。
 
-美国已经没有任何选择了
-EE. UU ya no tiene otra opción
+**嘉宾如水：**
 
-美国人现在对拜登总统, 对中共和俄罗斯采取的东西
-Lo que enfrenta los estadounidenses ahora con el presidente Biden, de acuerdo a lo que se tomó al PCCh y Rusia
+前段时间，在前线的战友很多都感染了病毒，现在他们转阴后的情况怎么样？
 
-几乎是压倒性的认为他太弱了
-Es casi abrumador de creer que él es demasiado débil
+**连线文耀：**
 
-中共国所有干的事情都是(暗)箱里边作业
-Todo lo que hace la República Popular de China es trabajar en una caja (oscura)
+据我了解，今天Nicole也转阴了，还有两位西班牙战友是最近染上的，刚刚阳性，（好好休整）应该马上会转阴的，差不多全员都已经恢复了。我们这支奋战在前线的队伍应该是“金钟罩铁布衫”了，因为大家都有了抗体。当然，现场营地工作是很辛苦的，每天持续十几个小时，强度还是很大，所以战友们都很辛苦。
 
-你看到任何美国事情
-Cualquier asunto que ves en EE. UU
+因此能否控制一下工作强度，或者给它均衡一下。我也在设想，战友们出来个把月了，正在和总部商量，考虑到大家的健康，如果任务周期加长了，我们就考虑换防。当然，也要看后面战争的发展情况。
 
-美国没有秘密的
-EE.UU no tiene secretos
+**嘉宾如水：**
 
-美国这个国家
-Este país
+现在营地里的生活应该比原来好很多了吧？
 
-你但凡了解美国体制
-Cualquiera que entienda el sistema americano
+**连线文耀：**
 
-(你就会知道) 中共什么都是假的
-(Sabrás) todo lo que es con el PCCh es falso
+因为前线的条件，酒店也只是一个睡觉洗澡、稍微休息的场所，谈不上奢侈，战友们都能够承受，所以我也感谢大家。如果再往营地推进的话，我们是节省时间了，但（住宿）条件会更加艰苦。不过战友们都很乐观。大家休息的时候，在院子里唱唱歌，彼此开开玩笑。难得一次苦中作乐，挺好的！还是那句话，所有的这一切都能让我们更加珍惜彼此的战友情谊，我们跟着新中国联邦一同成长。
 
-什么都是秘密
-Todo es secreto
+**嘉宾如水：**
 
-参谋长吃西瓜军事需要
-El jefe de gabinete come patilla para las necesidades militares
+是的，经历第一次线下的前线救援活动，让战友们的心可以更紧密地靠在一起。我知道咱们有个医疗团队一直在远程问诊，也给了大家很多帮助。可以请你给介绍一下吗？
 
-习近平搞处女也是领导需要
-La virginidad de Xi Jinping también es una necesidad de liderazgo
+**连线文耀：**
 
-国家安全需要
-Es necesidad de la seguridad nacional
+没错，医疗团队的文紫、阿黛拉（音）、佳佳医生等四、五位医生24小时轮流值班，给咱们前线感染战友们来诊断，这个待遇绝对是一流。现在感染了这个病毒，如果你到医院去治，先把你关起来（隔离）再说。所以只有我们自己的医生才会给你治，所以真心感谢新中国联邦。
 
-韩正有多少私生女
-¿Cuántas hijas ilegítimas tiene Han Zheng?
+资料来源：[2022年3月30日 文贵大直播](https://gettr.com/streaming/p12oba38c9d)
 
-是国家机密
-Es un secreto del estado
+发布： Frank2021
 
-搞了这么多年
-Durante tantos años
-
-叫共产党的这个财产公开
-Decirle al PCCh que se haga pública estas propiedades
-
-共产党财产没公开
-Si las propiedades del PCCh no se revela
-
-中国老百姓财产必须被公开
-Las propiedades del pueblo chino serán reveladas
-
-它一切都是假的
-Todo es falso
-
-一切都是颠倒的
-Todo es al revés
-
-而美国没有秘密
-Y EE. UU no tiene secreto
-
-所有在香港和大陆(的美国投资)
-(Todas las inversiones de EE. UU) en Hong Kong y China
-
-美国人都清楚了
-Los estadounidenses están claros
-
-我得走, 美国要行动
-Debo irme, EE. UU debe ponerse en acción
-
-这是根本
-Este es el origen
-
-跟疫苗没有多大关系
-No tiene tanta relación con las vacunas
-
-包括打台湾
-Incluyendo atacar a Taiwán
-
-美国早就有预期
-Estados Unidos ha esperado durante mucho tiempo
-
-关键这次俄罗斯俄乌战争让美国知道
-La clave crucial es la guerra entre Rusia y Ucrania que dejó saber a EE. UU
-
-中国很严肃认真的要干死美国
-China habla en serio sobre derribar a EE. UU
-
-搞弱美国, 搞乱美国
-Debilitar y crear desorden en EE. UU
-
-所以说必须走, 特别是朱云来你低估了
-Por eso digo debes irte, especialmente Zhu Yunlai lo subestimaste
-
-朱云来这个人一折腾钱, 一折腾走
-Esta persona, Zhu Yunlai tira dinero y se va
-
-朱云来拥有好多好多比特币啊
-Zhu Yunlai tiene muchísimos Bitcoin
-
-(有人说)比特币就是一个完全去中心化
-(Alguien dijo) Bitcoin es descentralizado totalmente
-
-我说怎么可能有真的去中心化的币呢
-Yo digo, cómo es posible que sea una moneda descentralizada
-
-我说真正的比特币就是
-El Bitcoin realmente es
-
-伊朗, 华尔街, 沼泽地, 俄罗斯, 中共这帮王八蛋拥有的
-Irán, Wall Street, Pantano, Rusia, propiedad de los bastardos del PCCh
-
-现在大家知道了, 大家都会查吧
-Ahora todos lo saben, podrán ir a investigar
-
-2%的人, 原来我说6%的人
-2% de personas, anteriormente había dicho 6% de personas
-
-拥有96%的比特币
-Obtienen el 96% de Bitcoin
-
-(现在证实了) 前十大股东2%的人拥有96%(的比特币)
-(Ahora se comprobó) el 2% de los diez principales accionistas posee el 96% (de Bitcoin)
-
-你还相信(比特币)去中心化
-Todavía crees que (Bitcoin) es descentralizado
-
-你们还相信比特币神话吗
-¿Todavía creen que Bitcoin es un mito?
-
-如果喜联储有一句话是假的
-Si la Reserva Federal de Himalaya existe una frase falsa
-
-你们永远可以追杀, 无条件砍死我
-Siempre podrán cazarme, matarme incondicionalmente
-
-这就是西方和东方最大的差距
-Esta es la gran diferencia entre occidente y oriente
-
-所以说比特币就是个骗局
-Por eso Bitcoin es una estafa
-
-* * *
-
-日期：03/29/2022
-原视频标题：中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局
-La guerra entre China y EE. UU inició oficialmente, el 2% de personas del PCCh posee el 96.5% de Bitcoin, la descentralización de Bitcoin es la mayor estafa
-
-原视频日期：03/23/2022
-原视频网址：[https://gettr.com/post/p11e9wz8c12](https://gettr.com/post/p11e9wz8c12)
-任务编号：KC484（4083）
-视频时间段：0:00-2:10
-
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

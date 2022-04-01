@@ -2,31 +2,39 @@
 ---
 
 
-## 郭文贵先生2022年3月31日盖特视频（3分02秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2266577/)
+## 美国白宫：未来半年每天从战略储备中释放100万桶石油
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2266622/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-啊！这个不容易啊，啊……啊，海东兄弟，玩这个不容易，你这玩的俩的(健腹轮)更不容易，一天，这个，做上8组就够了，不需要做12组，做8组的话，也就是说100个，一次做12个，做8次，哇，这个力量太大了。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/郭文贵先生2022年3月31日盖特视频（3分02秒）全文字版.png)
-今天，俺啥也不想说，战友们（说）不看我直播不行，你们得习惯，这个让咱们战友们长大，啊七哥给你们赚钱。
+来自新加坡早报 /
+2022年4月1日 12:24 AM 报导
+采集：玫瑰新闻组
 
-我昨天说的山里边的事儿，好多战友都找到了，真厉害！这个世界没有秘密，这个世界一切都改变了，就因为互联网。昨天我就直播说几句话，战友全找到了，太厉害了！
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB.jpg)
 
-啊，大家要习惯，七哥不在的七哥大直播，让战友们也要发挥出自己的能量，咱们形成一个集体灭共，不能七哥一个人灭共，yeah！yeah！
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
 
-[郭文贵先生2022年3月31日盖特视频](https://gettr.com/post/p12ukcy1088)
 
-*校对：东京樱花团/tdownc2p*
-*发布：东京樱花团/*老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+
+
+![美国总统拜登宣布将在未来六个月内每天从战略石油储备中释放100万桶石油。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202204/20220401/2022-01-05t024249z1786243394rc2qsr9ffl43866124.jpg?VersionId=H81WhbnSkTyqvQDKA9gGJOSflI0jpAs6&amp;itok=jZfD-ddw)美国总统拜登宣布将在未来六个月内每天从战略石油储备中释放100万桶石油。（路透社）
+
+
+以下原文內容：
+
+（早报讯）美国白宫周四（3月31日）在一份声明中说，美国总统拜登宣布将在未来六个月，每天从战略石油储备中释放100万桶石油。
+
+白宫说：“这次释放的规模是史无前例的。世界上从来没有以每天100万桶的速度释放石油储备，而且持续时间这么长。这一创纪录释放将使石油供应量达到历史新高，直到今年底国内生产增加为止。”
+
+此前，拜登已两次下令大规模释放美国石油储备，包括去年11月释出5000万桶，今年3月再释出3000万桶。
+
+俄罗斯2月24日入侵乌克兰以来，美国及其盟友向世界第二大产油国俄罗斯实施严厉制裁，令买家不愿购买俄石油，促使油价飙涨。
+
+新闻链接：
+[美国未来半年每天从储备释放100万桶石油](https://www.zaobao.com.sg/realtime/world/story20220401-1258114)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 
