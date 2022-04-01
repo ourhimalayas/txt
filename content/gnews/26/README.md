@@ -2,23 +2,28 @@
 ---
 
 
-## 援乌营地温馨的一幕
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2265514/)
+## 在乌克兰发现的核放射性尘埃恐怕会席卷欧洲
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2265617/)
 
-**作者、图片提供：文耀**
-**编辑：Candy**
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/03/16487579621.png)
+据综合媒体3月31日报道，随着冲突的继续，英国的盟友正在为应对切尔诺贝利式的核灾难做准备。斯堪的纳维亚地区的国家担心，36年前那样的核爆炸会在乌克兰战争期间重演。当时，放射性尘埃被吹向北极。
 
-波兰时间3月31日：今天帐内来了随同父母一起逃难的七八个孩子，最小的才几个月大，疲惫的母亲将孩子放进了我们准备的婴儿床。宝贝稍微睁睁眼，我们的安保马上充当保姆角色。![😄](https://discord.com/assets/626aaed496ac12bbdb68a86b46871a1f.svg) 外面风雨交加，新中国联邦的帐篷内温暖祥和。![🙏](https://discord.com/assets/1904291ab1aa5d14b2adaaff23a578dd.svg)
-![Image](https://media.discordapp.net/attachments/950448401529577502/959099997264183346/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100009444442132/image.png?width=492&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100014662148107/image.png?width=277&amp;height=369)![Image](https://media.discordapp.net/attachments/950448401529577502/959100020966162543/image.png?width=277&amp;height=369)
-**编者按：***看完以上的文字和图片，不禁令人泪眼朦胧。这个在和平的日子里司空见惯的情景，在战争时期的当下却变成了难得的画面。人们不该为疯狂的独裁者付出这么多的代价，愿战争早日结束！*
+1986年乌克兰发生的核电站一个反应堆爆炸，向大气中释放的放射性物质的威力是广岛和长崎原子弹的400倍。核反应堆爆炸后，放射性物质被释放到大气中，然后以毒云的形式扩散到整个欧洲，首先是瑞典，然后是奥地利和德国的巴伐利亚。
 
-***发布：Candy***
+尽管普京为了入侵乌克兰在北极塞纳部署了核潜艇，但伊诺克森指出，这些船只不会构成威胁。“我们不认为这是军事行动，我们在这里，不要被愚弄了”。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+根据乌克兰国家的核减检查员，由于重型军用车辆碾压了“红林”土壤，导致放射度增加。因为在士兵们开车经过那里时，吸进了放射性尘埃，他们的行动被认为是危险和“自杀”性的。
+
+挪威正在储备抗辐射药物，为1500英里外的大规模爆炸可能造成的致命后果做准备。挪威国防部长罗杰·伊诺克森（Roger Enoksen）公开警告说，要“做好准备并保持警惕”，备有药品箱。他说，威胁不是在核泄漏发生时，而是在含有放射性物质的风和雨来临时。“对我们最大的威胁是核放射物质”。
+
+切尔诺贝利事故的总指挥，塞伊德·沃勒里·塞伊德（Wallery Said）说，没人敢去那里。为了防范，在切尔诺贝利核电站的第四个反应堆周围建造了一个密封式结构。
+
+*责编：白夜*
+
+[原文链接](https://technotrenz.com/entertainment/in-a-chernobyl-style-disaster-in-ukraine-deadly-radioactive-dust-is-feared-to-sweep-europe-1772204.html)
+
+
 
  
 

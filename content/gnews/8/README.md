@@ -2,204 +2,41 @@
 ---
 
 
-## 中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2266466/)
+## 【信仰之声】论天国的仇敌：依靠神的人不至羞愧
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2266578/)
 
-**郭文贵
-Miles Guo**
+作者：纽约香草山福音部-捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/1-390.png)
 
-中美的战争正式开始了
-La guerra chino-estadounidense ha comenzado oficialmente
+[**图片来源**](https://images.app.goo.gl/Jj5JvrRaKdLcCw739)
 
-即使现在共产党啥都不做
-A pesar que el PCCh no haga nada ahora
+- **我****的　神啊，我素来倚靠你。求你不要叫我羞愧，不要叫我的仇敌向我夸胜（**[**诗篇**](https://wd.bible/psa.25.2.cunps)[**25****章****2****节**](https://wd.bible/psa.25.2.cunps)**）。**
 
-就凭这个, 我没说过嘛
-Con sólo esto, no lo he dicho
 
-在意大利的见面
-En el encuentro de Italia
+中共国发动全球生物战二年后，俄乌战争爆发，人类面临生存危机，各国人民在大流行带来的各种压力下备受煎熬。人性中的“偷盗、凶杀、奸淫、贪婪、邪恶、诡诈、淫荡、嫉妒、谤讟、骄傲、狂妄”和各样的不义都被释放出来。人们在苦难中不断地哀求神，说，[“耶和华啊，求你看我的苦难，因为仇敌夸大](https://wd.bible/lam.1.9.cunps)。”
 
-然后习和拜登的这个对话
-Y esta conversación entre Xi y Biden
+基督徒应该知道，神有时候会允许仇敌向我们夸胜。若我们离弃基督，仇敌向我们夸胜之时就是我们跌倒羞愧之日。正如离开爆料革命的那些[假使徒](https://wd.bible/2co.11.13.cunps)们，如今他们都中了魔鬼的诡计，被官司缠身、被注射mRna毒疫苗。
 
-他已经是很清楚
-Él está muy claro
+古人云，“羞愧难当”。因为人活着，最难背负的就是“羞愧”的罪名，而人因该有的样式就是知羞耻，有愧疚。但被鬼魔附体的习近平、普京之徒心里被骄傲所充满，就生出无限的欲心。当他们高举国家机器，向手无寸铁之民大开杀戒时，他们毫无羞愧之心，而共产主义独裁者们从当今在乌克兰上演的大屠杀到中共夺权时的三年“国共内战”,以及文化大革命、六四大屠杀和新疆种族大屠杀等等罪状，都是因一个人的人性变成魔性后的自我私欲膨胀的结果。当罪人攻打义人就成了世人眼里的不公，就成了恶人向义人夸耀的悲剧。但你又能说什么？你能像那些不信的人说，“[耶和华啊，恶人夸胜要到几时呢？要到几时呢](https://wd.bible/psa.94.3.cunps)？”为什么北约还不派兵援助乌克兰击败俄罗斯，为什么，全世界都因中共病毒死了几百万人了，而且每天都在因此夺取生命，为何西方国家还不能病毒溯源？上帝啊？你推翻中共政权要到几时呢？神说，“恶人夸胜是暂时的，”义人却是“以赞美你为夸胜。”因为神是信实、公义的神，神必不容手中沾满义人鲜血的独裁者们逃脱公义的审判，因为“[他审判，争战，都按着公义](https://wd.bible/search?qs=%E4%BB%96%E5%AE%A1%E5%88%A4%EF%BC%8C%E4%BA%89%E6%88%98%EF%BC%8C%E9%83%BD%E6%8C%89%E7%9D%80%E5%85%AC%E4%B9%89)。”对于习近平这个大[恶魔](http://wd.bible/search?qs=现在我要回去与波斯的魔君争战，我去后，希腊的魔君必来%28opens%20in%20a%20new%20tab%29)，正如圣经所说，“我伸手攻击你，将你交给列国作为掳物。[我必从万民中剪除你，使你从万国中败亡。我必除灭你，你就知道我是耶和华。](https://wd.bible/search?qs=%E6%88%91%E5%BF%85%E4%BB%8E%E4%B8%87%E6%B0%91%E4%B8%AD%E5%89%AA%E9%99%A4%E4%BD%A0%EF%BC%8C%E4%BD%BF%E4%BD%A0%E4%BB%8E%E4%B8%87%E5%9B%BD%E4%B8%AD%E8%B4%A5%E4%BA%A1%E3%80%82%E6%88%91%E5%BF%85%E9%99%A4%E7%81%AD%E4%BD%A0%EF%BC%8C%E4%BD%A0%E5%B0%B1%E7%9F%A5%E9%81%93%E6%88%91%E6%98%AF%E8%80%B6%E5%92%8C%E5%8D%8E)”
 
-我就是支持俄罗斯
-Yo sólo apoyo a Rusia
+只是现在仍要等待。因为基督已经胜了这世界，仇敌抵挡神的计划绝不会成功。因此，我们要靠着圣灵“[在基督里夸胜，并藉着我们在各处显扬那因认识基督而有的香气](https://wd.bible/2co.2.14.cunps)”。就因此除去我们里面的怨气，好使我们所言，所行常蒙神悦纳。合乎圣徒体统，在爆料革命队伍中，成为众战友们的效仿的榜样，好叫人因此认识基督，更使我们将来见主面时不至于羞愧。
 
-我就是要干死你美国
-Sólo quiero eliminarte EE. UU
+2022年3月31日
 
-美国已经没有任何选择了
-EE. UU ya no tiene otra opción
+![](https://assets.gnews.org/wp-content/uploads/2022/03/March-35.jpg)
 
-美国人现在对拜登总统, 对中共和俄罗斯采取的东西
-Lo que enfrenta los estadounidenses ahora con el presidente Biden, de acuerdo a lo que se tomó al PCCh y Rusia
+编辑/校对/发稿：Daxia
 
-几乎是压倒性的认为他太弱了
-Es casi abrumador de creer que él es demasiado débil
+**更多资讯，更多关注**
 
-中共国所有干的事情都是(暗)箱里边作业
-Todo lo que hace la República Popular de China es trabajar en una caja (oscura)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-你看到任何美国事情
-Cualquier asunto que ves en EE. UU
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-美国没有秘密的
-EE.UU no tiene secretos
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
 
-美国这个国家
-Este país
-
-你但凡了解美国体制
-Cualquiera que entienda el sistema americano
-
-(你就会知道) 中共什么都是假的
-(Sabrás) todo lo que es con el PCCh es falso
-
-什么都是秘密
-Todo es secreto
-
-参谋长吃西瓜军事需要
-El jefe de gabinete come patilla para las necesidades militares
-
-习近平搞处女也是领导需要
-La virginidad de Xi Jinping también es una necesidad de liderazgo
-
-国家安全需要
-Es necesidad de la seguridad nacional
-
-韩正有多少私生女
-¿Cuántas hijas ilegítimas tiene Han Zheng?
-
-是国家机密
-Es un secreto del estado
-
-搞了这么多年
-Durante tantos años
-
-叫共产党的这个财产公开
-Decirle al PCCh que se haga pública estas propiedades
-
-共产党财产没公开
-Si las propiedades del PCCh no se revela
-
-中国老百姓财产必须被公开
-Las propiedades del pueblo chino serán reveladas
-
-它一切都是假的
-Todo es falso
-
-一切都是颠倒的
-Todo es al revés
-
-而美国没有秘密
-Y EE. UU no tiene secreto
-
-所有在香港和大陆(的美国投资)
-(Todas las inversiones de EE. UU) en Hong Kong y China
-
-美国人都清楚了
-Los estadounidenses están claros
-
-我得走, 美国要行动
-Debo irme, EE. UU debe ponerse en acción
-
-这是根本
-Este es el origen
-
-跟疫苗没有多大关系
-No tiene tanta relación con las vacunas
-
-包括打台湾
-Incluyendo atacar a Taiwán
-
-美国早就有预期
-Estados Unidos ha esperado durante mucho tiempo
-
-关键这次俄罗斯俄乌战争让美国知道
-La clave crucial es la guerra entre Rusia y Ucrania que dejó saber a EE. UU
-
-中国很严肃认真的要干死美国
-China habla en serio sobre derribar a EE. UU
-
-搞弱美国, 搞乱美国
-Debilitar y crear desorden en EE. UU
-
-所以说必须走, 特别是朱云来你低估了
-Por eso digo debes irte, especialmente Zhu Yunlai lo subestimaste
-
-朱云来这个人一折腾钱, 一折腾走
-Esta persona, Zhu Yunlai tira dinero y se va
-
-朱云来拥有好多好多比特币啊
-Zhu Yunlai tiene muchísimos Bitcoin
-
-(有人说)比特币就是一个完全去中心化
-(Alguien dijo) Bitcoin es descentralizado totalmente
-
-我说怎么可能有真的去中心化的币呢
-Yo digo, cómo es posible que sea una moneda descentralizada
-
-我说真正的比特币就是
-El Bitcoin realmente es
-
-伊朗, 华尔街, 沼泽地, 俄罗斯, 中共这帮王八蛋拥有的
-Irán, Wall Street, Pantano, Rusia, propiedad de los bastardos del PCCh
-
-现在大家知道了, 大家都会查吧
-Ahora todos lo saben, podrán ir a investigar
-
-2%的人, 原来我说6%的人
-2% de personas, anteriormente había dicho 6% de personas
-
-拥有96%的比特币
-Obtienen el 96% de Bitcoin
-
-(现在证实了) 前十大股东2%的人拥有96%(的比特币)
-(Ahora se comprobó) el 2% de los diez principales accionistas posee el 96% (de Bitcoin)
-
-你还相信(比特币)去中心化
-Todavía crees que (Bitcoin) es descentralizado
-
-你们还相信比特币神话吗
-¿Todavía creen que Bitcoin es un mito?
-
-如果喜联储有一句话是假的
-Si la Reserva Federal de Himalaya existe una frase falsa
-
-你们永远可以追杀, 无条件砍死我
-Siempre podrán cazarme, matarme incondicionalmente
-
-这就是西方和东方最大的差距
-Esta es la gran diferencia entre occidente y oriente
-
-所以说比特币就是个骗局
-Por eso Bitcoin es una estafa
-
-* * *
-
-日期：03/29/2022
-原视频标题：中美战争正式开始，中共2%的人掌握96.5%的比特币，比特币去中心化是最大骗局
-La guerra entre China y EE. UU inició oficialmente, el 2% de personas del PCCh posee el 96.5% de Bitcoin, la descentralización de Bitcoin es la mayor estafa
-
-原视频日期：03/23/2022
-原视频网址：[https://gettr.com/post/p11e9wz8c12](https://gettr.com/post/p11e9wz8c12)
-任务编号：KC484（4083）
-视频时间段：0:00-2:10
-
-西听校：洛杉矶盘古农场-霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场-霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,21 +2,30 @@
 ---
 
 
-## 欧洲各国广泛接受乌克兰难民
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2266549/)
+## 疑有内鬼！泽伦斯基怒踢2将军 我没时间对付叛徒
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2266609/)
 
-加拿大温哥华扬帆农场-青青, 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-155.jpg)图片来源：ctvnews
-据加拿大媒体【CTV新闻】3月29日报道，联合国估计已有400万难民自2月24日以来逃离乌克兰，超过230万人来到了邻国波兰。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1-1.jpg)
+根据乌克兰媒体《Ukrinform》报导指出，乌克来总统泽伦斯基昨晚间表示已开除2乌国将军的军阶，更怒轰他们是「反英雄」，泽伦斯基强调「现在没有时间对付所有的叛徒。」
 
-报道称，联合国难民事务高级专员办事处表示，罗马尼亚、摩尔多瓦、匈牙利和斯洛伐克都在为乌克兰难民提供帮助，随着新难民的趋势减少之前，难民还会向西前往德国、法国和英国，向南则会前往西班牙和意大利。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-3-e1648510541752.jpg)图片来源：美联社
 
-此外，在罗马的一个妇女难民收容所内，一位难民表示美丽的乌克兰已经被摧毁，但是乌克兰人民会永远爱着乌克兰。
+报导内指出，泽伦斯基宣布已拔除2将军官阶，2人分别是乌克兰安全局内部安全主要部门前负责人欧列侯非奇（Naumov Andriy Olehovych），以及赫尔松区安全局前负责人欧列克山德洛菲奇（Kryvoruchko Serhiy Oleksandrovych）。
 
-* * *
+泽伦斯基怒斥2人是「反英雄」，更说他现在没有其他时间能应付所有的叛徒，但会想办法让这些人都得到惩罚，泽伦斯基痛心地说「搞不清楚自己国家是哪个的高阶将领们，曾誓言保护乌国人民、家园、自由的叛徒，最终都不属于这里！」
 
-编辑、上传：月亮之上
+简评：若无雷霆手段，怎怀菩萨心肠！惩治叛徒就该如此，直接以雷霆手段拿掉不去耽误时间，若无如此的果敢怎能保卫乌克兰！
 
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022401W0018](https://www.ftvnews.com.tw/news/detail/2022401W0018)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
