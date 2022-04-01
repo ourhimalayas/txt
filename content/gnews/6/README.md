@@ -2,41 +2,25 @@
 ---
 
 
-## 澳大利亚对俄罗斯和白俄罗斯加大制裁力度
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2267954/)
+## 81岁老人徒步逃离战乱 新中国联邦送温暖
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2268008/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：美东香草山-雪梨
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
+3月30日，新中国联邦乌克兰前线救援团队，在梅迪卡基地接待了一位81岁高龄的乌克兰老奶奶。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-15.png)
+为逃离战乱，老奶奶徒步60公里到达梅迪卡。新中国联邦前线战友热情地接待老奶奶，提供食物和休息场地，让她在等待亲人的期间感受到温暖。
 
-整理：li yan li
-编辑：文泓
+接下来，我们一起收看来自前线的报导。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1-1.png)图片来源：Eddiba & 雅典娜设计组
+视频链接：[【乌克兰救援】03/30/2022，来自小小酥战友](https://gettr.com/post/p12scak3544)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-3月30日据澳大利亚人报报道，莫里森政府将加强对俄罗斯的经济制裁，对来自俄罗斯和白俄罗斯的所有进口产品征收35%的额外关税。澳洲对上述两国同时加大制裁力度。
+编辑/总编：雪梨
 
-周五，澳大利亚已正式申请取消俄罗斯的最惠国关税待遇，这一决定将于4月25日生效。
-
-这些制裁，加上已经宣布的对俄罗斯迄今为止列出的500多个个人和实体贸易实施的制裁，是澳大利亚对以往任何国家实施的最严厉的制裁。
-
-莫里森总理、外交部长玛丽斯·佩恩和贸易部长丹·特汉在一份联合声明说：“我们将继续与我们的合作伙伴密切合作，确保俄罗斯对其行为负责。”澳大利亚支持乌克兰的主权和领土完整，并继续呼吁俄罗斯停止其对乌克兰的无端、不公正和非法入侵。
-
-声明还说：“我们强烈支持我们的国际伙伴采取类似的行动，撤销与俄罗斯和白俄罗斯的最惠国待遇（MFN）贸易安排，这符合他们的国家进程。”
-
-为了支持乌克兰，澳大利亚还将提供9100万的军事援助和6500万的人道主义援助。逃离乌克兰的人也可以申请临时保护签证和援助。
-
-之前宣布的禁止进口石油和其他能源产品的措施也将于4月25日开始。
-
-新闻链接：[所有进口商品加征关税 澳对俄罗斯和白俄罗斯加大制裁](https://cn.theaustralian.com.au/2022/03/31/65208/)
-
-发布：tianzhihuan
-
-关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+校正/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

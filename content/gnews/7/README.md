@@ -2,28 +2,26 @@
 ---
 
 
-## 有声｜泽伦斯基警告欧洲不要让战争成为 &#8220;惯例&#8221;
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2267947/)
+## 有声｜乌官员：俄乌信息战已演化成世界大战
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2267997/)
 
 By:**秘翻新闻**
 
 **2022-04-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-scaled.jpg)图片来源  网络
-[据《福克斯新闻》3月31日报道，乌克兰总统沃洛季米尔·泽伦斯基敦促欧洲领导人不要让俄罗斯的致命战争成为 “惯例”，并恳请向基辅提供更多的安全援助。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.png)图片来源 网络
+[综合媒体消息，俄乌战争除了在传统的物理空间进行了残酷战斗外，在人们的认知层面同样展开了一场信息大战。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
 
-[泽伦斯基在对荷兰议会的讲话中说：“对许多人来说……乌克兰的战争已经成为惯例。”](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
+[大纪元3月31日报道，3月26日，在卡塔尔首都多哈举行的“多哈论坛”上，乌克兰副外长扎帕罗娃说，“我相信我们正在进入第三次世界大战，它不是一场常规冲突，而是一场信息战。”](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
 
-[据报道，泽伦斯基周四向荷兰、比利时和澳大利亚发表了一系列视频讲话，呼吁提供更多援助。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
+[俄罗斯投入大量资源在媒体和社交媒体，传达其对乌克兰的入侵是“特殊行动”，而普京总统打算“使乌克兰去纳粹化”。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
 
-[虽然他对每个国家已经提供的援助表示感谢，但这位乌克兰领导人对比利时最近进口莫斯科商品进行了斥责。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
+[扎帕罗娃说，除了政治领导人，克里姆林宫还利用社交媒体、体育界人士和流行音乐家来传达其信息。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
 
-[他在对比利时议会的讲话中说：”对有些人来说，有时在安特卫普出售的俄罗斯钻石更为重要。在他们的港口接受俄罗斯船只，对他们来说，这些船只的收入比我们的斗争更重要。”](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
+[现代战争，除了在传统的三维空间外，还引申到第四维空间——互联网。有乌克兰官员日前表示，俄乌冲突在信息战上实际已成为世界大战。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
 
-[据估计，世界上86%的钻石是在安特卫普交易的——这个行业迄今为止一直躲过国际制裁。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
+[另据《Newsmax》3月31日报道，英国在本周四宣布，在此前实施制裁的基础上，对另外14 家俄罗斯实体和个人实施制裁，包括对 RT 和 Sputnik 背后的国家媒体组织及其一些高层的制裁。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
 
-[泽伦斯基再次警告欧洲领导人，如果不阻止俄罗斯总统弗拉基米尔·普京，莫斯科的侵略不会因乌克兰而停止。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
-
-秘翻新闻Grace编辑报道
+秘翻新闻 二丫/Stephanie编辑
 
 发布 : 恩典
 

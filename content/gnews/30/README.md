@@ -2,35 +2,34 @@
 ---
 
 
-## 樱花数据分析┃加拿大阿尔伯塔省：接种次数越多越易感染，每一针都在伤害免疫系统
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267448/)
+## 美能源部长：俄乌战争导向清洁能源独立
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2267629/)
 
-撰稿：东京樱花团/TV
-制图：东京樱花团/chuansang
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2.png)
-加拿大阿尔伯塔省一直在更新各接种人群的感染率数据[1]。截止3月14日的每十万人感染率数据（图1）显示，在接种者中，接种次数越多的人群感染率越高，即“三针最易感染，两针次之，一针接种者风险最低”。这与我们之前观察到的英格兰[2]与丹麦[3]数据一致。3月14日的数据中，三针接种的感染率达到了一针接种者的2.67倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-3.png)
-除此之外，仔细观察图1可以看出，三针接种者的感染率在接种初期12月开始的一段时间低于其他人群，疫苗提供了一定的保护。但是于1月30日左右超过一针接种者，2月9日左右超过两针接种者，从此成为最易感染人群。这个数据说明，随着抗体量逐渐降低保护减弱，由于三针接种后免疫系统受损最严重，导致最终该人群最易感染。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-14.04.14.png)
+当地时间3月31日周四，美能源部长Jennifer Granholm在采访中表示，俄罗斯入侵乌克兰的战争将是一个很好的契机去发展清洁能源、可再生能源，并逐步摆脱能源依赖。
 
-同样的现象也在两针接种者感染率数据得到验证。由图2可以看出，两针接种者感染率于12月初超过一针接种者，并持续到现在。
+目前世界的能源危机因俄乌战争而显著加剧，俄罗斯依靠石油、天然气等能源要挟欧洲乃至整个世界。能源部长Granholm表示，希望减少人们在加油站等待的痛苦，并保护他们免受能源等价格波动带来的影响。利用俄乌战争达到清洁能源独立的目的，化石燃料市场已经不再是人们的信心所在之处。
 
-这两张图清晰的证明了，“疫苗抗体提供了短暂的保护率，但每一针疫苗都在进一步伤害免疫系统，最终导致接种越多越易感染”。
+当前美国所处的战时地位，除了增加化石燃料的供应，另外援引《国防生产法》来帮助增加美国电动汽车电池的发展，以及风化援助计划。该计划向美国各州发放32亿美元确保降低能源过度消耗，并投资于化石燃料脱碳技术。清洁能源和能源独立已成为中长期战略。
 
-我们更加确信，如果继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。 （对于偏高的未接种者感染率，我们与对丹麦数据的分析[3]一致，认为这是对未接种者过度测试的政策导致的结果）
+reference：
 
-（注：本文为《樱花数据分析》第二十二期）
+[https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/](https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/)
 
-数据来源：
+撰稿、发布：骄子
 
-[1]COVID-19 Alberta statistics Interactive aggregate data on COVID-19 cases in Alberta
+* * *
 
-[2][樱花数据分析┃英格兰：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2222879/)
+欢迎订阅我们的GNews账号：
 
-[3][樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2205218/)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

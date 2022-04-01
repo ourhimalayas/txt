@@ -2,33 +2,33 @@
 ---
 
 
-## 樱花时政┃为打击邪恶阵营的间谍活动，美司法部提出新战略
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267872/)
+## 有声｜泽伦斯基警告欧洲不要让战争成为 &#8220;惯例&#8221;
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2267947/)
 
-撰稿：东京樱花团/Calvin
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-2022年2月23日，美国司法部（DOJ）宣布，它将有效结束中共倡议，并实施一项新的“应对民族国家威胁战略”，该战略除了与俄罗斯、伊朗和朝鲜等国家相关的行动外，还将包括对付中共的工作。
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/为打击邪恶阵营的间谍活动，美司法部提出新战略.png)图片来源于本文链接
+**2022-04-01**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-scaled.jpg)图片来源  网络
+[据《福克斯新闻》3月31日报道，乌克兰总统沃洛季米尔·泽伦斯基敦促欧洲领导人不要让俄罗斯的致命战争成为 “惯例”，并恳请向基辅提供更多的安全援助。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
 
-司法部国家安全司助理司法部长马修·奥尔森在宣布终止中共倡议的演讲中表示，中共的间谍活动非常地猖狂並且他們厚颜无耻，需要采取“更广泛的方法”来应对来自“各种”对于美国国家安全的威胁。奥尔森称这一推动是“应对民族国家威胁的战略”。
+[泽伦斯基在对荷兰议会的讲话中说：“对许多人来说……乌克兰的战争已经成为惯例。”](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
 
-共和党参议员表示担心，新方法定义不明确，因此可能无法有效打击执政的中国共产党（CCP）进行的邪恶间谍活动。
+[据报道，泽伦斯基周四向荷兰、比利时和澳大利亚发表了一系列视频讲话，呼吁提供更多援助。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
 
-参议员们表示：尽管面临这一关键时刻和高风险，但司法部选择解散其中共倡议，转而制定模糊的“打击民族国家威胁战略”，该战略似乎将来自中共的独特而广泛的威胁与其他民族国家威胁等同起来。“这项战略将产生哪些具体政策和行动，以及它们是否足以应对手头的挑战，还有待观察。我们敦促司法部正式承认中共对美国国家安全构成的威胁并重新确定其优先次序，并要求您重新考虑解散中共倡议的决定。” 而特朗普的中共倡议取得了成功——完成了几起对中国间谍的逮捕和定罪，其中最著名的是哈佛化学系主任查尔斯·利伯，他因就与北京的关系向美国官员撒谎而被判有罪。
+[虽然他对每个国家已经提供的援助表示感谢，但这位乌克兰领导人对比利时最近进口莫斯科商品进行了斥责。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
 
-消息来源：
-[Biden DOJ Kills Trump-Era Program To Catch Chinese Spies](https://www.zerohedge.com/geopolitical/biden-doj-kills-trump-era-program-catch-chinese-spies)
+[他在对比利时议会的讲话中说：”对有些人来说，有时在安特卫普出售的俄罗斯钻石更为重要。在他们的港口接受俄罗斯船只，对他们来说，这些船只的收入比我们的斗争更重要。”](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[据估计，世界上86%的钻石是在安特卫普交易的——这个行业迄今为止一直躲过国际制裁。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
 
+[泽伦斯基再次警告欧洲领导人，如果不阻止俄罗斯总统弗拉基米尔·普京，莫斯科的侵略不会因乌克兰而停止。](https://www.foxnews.com/world/zelenskyy-warns-europe-war-routine-rebuild-cities)
+
+秘翻新闻Grace编辑报道
+
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
