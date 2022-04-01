@@ -15,104 +15,104 @@
 
 ---
 
-### [俄罗斯军队穷到使用地毯和树苗作为军事伪装](/content/gnews/1/README.md)
+### [樱花时政┃所罗门群岛与中共就安保协议达成一致](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [疫情｜英国出现Omicron亚种混合毒株“XE” 世卫称或是迄今最强版本](/content/gnews/2/README.md)
+ ` 關注組`
+
+### [COVID-19疫苗副作用集萃（2022.4.1） &#8211;接种新冠疫苗加强针后头痛耳痛肌肉酸痛](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [百度被列入可能被SEC除名的公司名单](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳大利亚发生今年第五起致命航空事故](/content/gnews/2/README.md)
+### [俄罗斯军人撤离切尔诺贝利核电站挟持乌军为人质](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [俄罗斯军队穷到使用地毯和树苗作为军事伪装](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳大利亚发生今年第五起致命航空事故](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [白宫宣布新一轮战略石油储备释放计划](/content/gnews/3/README.md)
+### [白宫宣布新一轮战略石油储备释放计划](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灾难即将到来,中共将重回人民公社,老百姓垃圾都吃不上](/content/gnews/4/README.md)
+### [灾难即将到来,中共将重回人民公社,老百姓垃圾都吃不上](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [俄在和平谈判期间继续袭击乌克兰城市](/content/gnews/5/README.md)
+### [俄在和平谈判期间继续袭击乌克兰城市](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [台湾一开打,大陆潜水艇及导弹基地等军事目标一定被炸](/content/gnews/6/README.md)
+### [台湾一开打,大陆潜水艇及导弹基地等军事目标一定被炸](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [布林肯要求贝内特提供他的伊朗交易替代方案](/content/gnews/7/README.md)
+### [布林肯要求贝内特提供他的伊朗交易替代方案](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [不可能在战争状态下你一夜之间变成鳄鱼,切忌不要投机](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [中共的疫情之路](/content/gnews/9/README.md)
+### [中共的疫情之路](/content/gnews/13/README.md)
  ` 银河勇气之星`
 
-### [英国国防参谋长托尼·拉达金爵士：由于失算，在很多方面普京已经输了](/content/gnews/10/README.md)
+### [英国国防参谋长托尼·拉达金爵士：由于失算，在很多方面普京已经输了](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [尽管承诺从基辅撤军 俄军仍轰炸乌克兰城市](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [不打台湾的机率非常渺茫,台湾同胞和战友们务必要重视](/content/gnews/12/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [乌克兰战争已变成普京一人的战争，代价由无辜的乌克兰和俄罗斯人民支付](/content/gnews/13/README.md)
+### [乌克兰战争已变成普京一人的战争，代价由无辜的乌克兰和俄罗斯人民支付](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|欧盟：所有加密货币交易即将被监控？](/content/gnews/14/README.md)
+### [有声|欧盟：所有加密货币交易即将被监控？](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [川普的社交APP流量暴跌 发布以来注册量降93%](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [波兰驻美大使敦促向乌克兰提供尽可能多的武器来帮助乌克兰人自我防卫](/content/gnews/16/README.md)
+### [波兰驻美大使敦促向乌克兰提供尽可能多的武器来帮助乌克兰人自我防卫](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄罗斯正在招募叙利亚人为他们在乌克兰作战](/content/gnews/17/README.md)
+### [俄罗斯正在招募叙利亚人为他们在乌克兰作战](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [随着上海扩大新冠封锁，2600 万人口的城市生活停滞不前](/content/gnews/18/README.md)
- ` 澳喜农场`
 
 ### [秘翻在线：被俄军绑架的4万名乌克兰人所面临的悲慘命运](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共下令杀死廊坊一社区所有COVID患者的宠物](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [普京：外国买家必须从4月1日起以卢布购买俄罗斯天然气](/content/gnews/21/README.md)
+### [普京：外国买家必须从4月1日起以卢布购买俄罗斯天然气](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [81岁老人徒步逃离战乱 新中国联邦送温暖](/content/gnews/22/README.md)
+### [81岁老人徒步逃离战乱 新中国联邦送温暖](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [盖特严肃对待俄罗斯信息，确保用户言论自由](/content/gnews/23/README.md)
+### [盖特严肃对待俄罗斯信息，确保用户言论自由](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [喜币是数字货币的希望](/content/gnews/24/README.md)
+### [喜币是数字货币的希望](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [澳大利亚对俄罗斯和白俄罗斯加大制裁力度](/content/gnews/25/README.md)
+### [澳大利亚对俄罗斯和白俄罗斯加大制裁力度](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [战后，科技中心乌克兰助力欧洲摆脱能源依赖](/content/gnews/26/README.md)
+### [战后，科技中心乌克兰助力欧洲摆脱能源依赖](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [泽连斯基演讲寻求更多军事援助 制裁俄警告粮食危机](/content/gnews/27/README.md)
+### [泽连斯基演讲寻求更多军事援助 制裁俄警告粮食危机](/content/gnews/26/README.md)
  ` 波士顿五月花农场金融部`
 
-### [中共政策拖垮中国经济，股票市场遇多年以来最低谷](/content/gnews/28/README.md)
+### [中共政策拖垮中国经济，股票市场遇多年以来最低谷](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃中共国3月份制造业PMI创25个月新低](/content/gnews/29/README.md)
+### [中日财经爆┃中共国3月份制造业PMI创25个月新低](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中日财经爆┃富力地产去年营业额大跌11% 净利亏损88亿](/content/gnews/30/README.md)
+### [中日财经爆┃富力地产去年营业额大跌11% 净利亏损88亿](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃中共在所罗门群岛的所作所为向澳大利亚发出令人不寒而栗的警告（下）](/content/gnews/31/README.md)
+### [樱花深度报道┃中共在所罗门群岛的所作所为向澳大利亚发出令人不寒而栗的警告（下）](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花深度报道┃中共在所罗门群岛的所作所为向澳大利亚发出令人不寒而栗的警告（上）](/content/gnews/32/README.md)
+### [樱花深度报道┃中共在所罗门群岛的所作所为向澳大利亚发出令人不寒而栗的警告（上）](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美能源部长：俄乌战争导向清洁能源独立](/content/gnews/33/README.md)
+### [美能源部长：俄乌战争导向清洁能源独立](/content/gnews/32/README.md)
  ` 银河歌舞厅`
+
+### [中共释放的冠状病毒与其制定的2025、2035、2049计划的本质和所有的手段就是挑起种族战争](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
 ### [美议员提案《稳定币透明度法》](/content/gnews/34/README.md)
  ` 银河歌舞厅`

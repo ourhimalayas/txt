@@ -2,65 +2,54 @@
 ---
 
 
-## 台湾一开打,大陆潜水艇及导弹基地等军事目标一定被炸
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2268338/)
+## 俄罗斯军队穷到使用地毯和树苗作为军事伪装
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2268393/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%886.6%EF%BC%89%E7%81%BE%E9%9A%BE%E5%8D%B3%E5%B0%86%E5%88%B0%E6%9D%A5%2C%E4%B8%AD%E5%85%B1%E5%B0%86%E9%87%8D%E5%9B%9E%E4%BA%BA%E6%B0%91%E5%85%AC%E7%A4%BE%2C%E8%80%81%E7%99%BE%E5%A7%93%E5%9E%83%E5%9C%BE%E9%83%BD%E5%90%83%E4%B8%8D%E4%B8%8A%E3%80%902022%E5%B9%B402%E6%9C%8824%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
+翻译：wenwu
 
-**郭文贵先生：**吆，战友们很多留言。灭共烈火，“墙内这样怎么办？“墙内是，战友们，什么办不了。这个时候的墙内，你是攻击方，大连的潜水艇、海南的潜水艇、大连基地、漳州基地、福州基地、江西的导弹基地，一旦联军到来，全都会给你炸平。七哥说了几年了，一定给你炸平。待在军事基地周围的赶快跑、赶快跑，这是没啥说的。
-第二个，你想都不用想。我再一次，我很难受，我从昨天到今天，我一想国内的家人，我的那些裕达、盘古的同事们，海通方正的同事们，还有我的亲人、朋友们，我心都”咯噔咯噔“地响，难受，非常难受。虽然昨天到今天很忙，但我一想这就难受。这就家人也好，朋友也好，能出来的没有出来，或者出不来的你还在侥幸心理。不管如何，只要打了台湾，中共在那儿一定是血流成河，一点儿都不用想。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
-（注：看直播留言）“为台湾祈祷！” 哭是没有用的，“呜呜”啥呀？战争、导弹从来不在乎眼泪，生命都不在乎。
 
-等着导弹落到中国沿海的时候，大连、葫芦岛、獐子岛，是吧？长青、江西，看着吧，你就会看着那个导弹……你看到乌克兰今天的飞机“呜噜呜噜”地飞导弹，等中共打台湾的时候，那会是百倍万倍的恐怖！
 
-（注：看直播留言）台湾会很惨，会很惨！“走一步看一步”，这就中国人思维，是吧？“你走一步看一步吧”，你就没有下一步，“走一步看一步”就是你没有下一步，这就是中国人的这叫“鸵鸟思维”。
+据《华盛顿邮报》周三（30日）[报道](https://www.washingtonpost.com/national-security/2022/03/30/russia-camoflauge-ukraine/)，入侵乌克兰的俄罗斯军队似乎正在使用地毯、树苗和干草来覆盖他们的装甲车，这可能是说明他们没有得到足够的军事伪装设备。
 
-（注：看直播留言）陕西也有基地，陕西也有基地。三亚亚龙湾潜艇基地肯定完了，肯定。香港的军事基地也得会给它砸掉，一定砸掉它，一定给它铲平的。
+据《邮报》报道，在推特上（@NotWoofers）一个显然是描述交火的视频[显示](https://twitter.com/NotWoofers/status/1507926372039155714?s=20&amp;t=KxHKdiHMoc60pAD1aifs7A)，一辆军车边上稀稀拉拉地贴着松树苗。
 
-“广东安全不？”——广东很不安全好不好？打的时候，广东、深圳、东莞、上海、广州、北京、大连、沈阳、哈尔滨，这些所谓的经济中心，一定给你铲平了，一定给你铲平了，全给你炸毁它！
+另一段推特视频（[@RALee85](https://twitter.com/RALee85/status/1506283631517618177?s=20&amp;t=_eNFzwpM1o6Ca8KeRNsXdw)）也被《邮报》确认，描述了俄罗斯军队用防水布和地毯覆盖一辆装甲车。 战争开始前一天（译者注：2月23日），一个俄罗斯车队越境进入东顿巴斯地区的几张图片也显示（如下图）,军车的车顶上覆盖着稻草。
 
-然后所有的有导弹基地的地方都给你炸了。四川那几个导弹基地，还有什么卫星发射中心，海南的三亚的木兰岛都得给你铲平。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-9.jpg)图片来源：businessinsider.com
 
-（注：看直播留言）重庆会很惨！因为重庆那个地方有很多基地，就像跟江西一样。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-1.jpg)图片来源：businessinsider.com
 
-共产党几乎过去平常和平时期绑架农民，战争时期绑架城市，大家要记住，海外就绑架海外华人，让你排华。青岛的基地也会很惨啊！我有很多家人在青岛呢，会很惨。
+另一张照片显示（如下图），车队中的一辆俄罗斯装甲车顶着树枝。
 
-河北会好一些，河北会好一些。河北有几个基地会好一些。河北，然后是，再一个是山西，山西还好。广西？不行，广西有很多基地，嗯。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-2.jpg)图片来源：businessinsider.com
 
-我得赶快开会去了，我得赶快开会去了兄弟姐妹们。好了，兄弟姐妹们，今天的紧急直播就到这儿，关键是战友们不要用你的善意打扰台湾的大牛他们战友们，由联盟委员会统一，统一协调。
+俄罗斯军事专家罗布·李（Rob Lee）告诉《华盛顿邮报》，一些俄罗斯部队没有使用伪装网，显示出令人惊讶的准备不足，也许是他们的军事领导人最初过于自信。
 
-第三个，国内的所有的有导弹基地、军事基地的战友们，还有所有的台湾附近的，特别是靠近的战地的战友们，做好一切最坏的准备！
+美国军队自20世纪90年代以来[一直使用伪装网](https://www.armytimes.com/news/your-army/2019/04/12/camo-netting-an-age-old-tool-is-being-re-engineered-for-the-modern-battlefield/)，最近还对其进行了升级，以适应林地、雪地和沙漠环境。乌克兰部队也一直在使用这种网，乌克兰平民甚至[帮助编织](https://www.businessinsider.com/ukrainians-in-safer-zone-rally-support-soldiers-prep-for-refugees-2022-3)这种网，以便在前线使用。
 
-不管如何，共产党是完了！明后年这几年的农村，你走着瞧吧，有吃的是最重要的。
+在俄罗斯总统弗拉基米尔·普京（Vladimir Putin）发起对乌克兰的全面入侵后的几周里，俄罗斯部队和装备的质量受到了质疑。
 
-字幕来源：[2022年02月24日 郭文贵先生紧急直播 全文字版](https://gnews.org/zh-hans/2062121/)
+本月早些时候，乌克兰总统沃洛基米尔·泽伦斯基(Volodymyr Zelenskyy)称俄罗斯军队是“无能的”，并补充说，莫斯科正在“将他们的人民变成屠杀者”，乌克兰军队给俄罗斯侵略者造成了“前所未有的损失”。 在这场几乎可以肯定比克里姆林宫预期的时间长的战争中，俄罗斯的伤亡继续增加。一位北约官员在3月24日估计，至少有4万名俄罗斯军队在入侵中被杀、被俘或受伤。
 
-编辑整理：Jacques；
+新闻来源： [Russian troops appear to be using carpets and saplings as camouflage, a possible sign they haven’t been supplied with the right equipment: report](https://www.businessinsider.com/russian-troops-using-carpets-and-saplings-as-camouflage-report-2022-3)
 
-字幕档制作：大好河山；
+（文章仅代表作者观点与GNEWS无关）
 
-视频制作及上传：Cindy；
+* * *
 
-G-News发布：海贼王M.D.LUFFY；
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3.jpeg)
 
  
 

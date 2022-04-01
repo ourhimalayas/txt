@@ -2,38 +2,32 @@
 ---
 
 
-## 中共政策拖垮中国经济，股票市场遇多年以来最低谷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267800/)
+## 中日财经爆┃中共国3月份制造业PMI创25个月新低
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267757/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/peterwong
 
-整理/编辑：围剿维尼熊
+4月1日，财新/Markit联合公布，3月经季节性调整的中共国制造业采购经理人指数(PMI)降至48.1，创2020年2月以来最低水平。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.xinhuanet.com%2F2020-03%2F31%2F1125792321_15856296052541n.jpg&amp;imgrefurl=http%3A%2F%2Fwww.xinhuanet.com%2F2020-03%2F31%2Fc_1125792321.htm&amp;tbnid=ZfUTTrqjTxKCCM&amp;vet=12ahUKEwjy8ezun_L2AhW4XvEDHeKtDzwQMygPegUIARDAAQ..i&amp;docid=Dg6cjqAMvWWO6M&amp;w=899&amp;h=599&amp;q=PMI%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwjy8ezun_L2AhW4XvEDHeKtDzwQMygPegUIARDAAQ#imgrc=ZfUTTrqjTxKCCM&amp;imgdii=lgDOA5OEFp3cGM)
+Markit提供的新闻稿并显示，3月制造业新订单和产出指数亦跌至2020年2月以来最低水平，新出口订单指数为2020年5月以来最低；对未来一年经营前景的产出预期指数亦降至三个月低位。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3263.jpg)图片来源：微博
+制造商普遍反映，因疫情防控，生产运营和供应皆受影响，顾客需求受挫，此外，疫情、运输交货难、市况因乌克兰局势而更加不稳，导致销售受挫。
 
+国内地方收紧疫情防控措施，则令业务运营和物流受阻，供应链问题进一步加剧。3月供应商供货时间指数降至五个月最低。
 
-根据大纪元3月31日讯，2022年第一季度，蓝筹股沪深300指数下跌近15%，深证成指下跌了18%。
+价格方面，企业反映月内多项价格上扬，尤其是原料（特别是金属）、燃料和能源。许多企业表示，价格被推高，普遍是因为国际供应链紧张，最近爆发的俄乌冲突更令问题加剧。
 
-中共对COVID-19采取严格的“清零”政策也已拖累中国经济增长和消费者信心。清零政策通常因为少量病例就大范围封锁社区和关闭工厂活动。
+3月投入价格指数环比上升3.1个点，创五个月高位；出厂价格指数亦环比上行0.2个点，“水涨船高”至五个月最高值，且高于该指数长期均值51.4。
 
-同时，俄乌战争也提升了全球商品价格，并反过来吞噬了中国国内消费品公司的利润。
+这和官方制造业PMI反映的现象一致。中共国3月官方制造业PMI降至五个月低点49.5，生产和新订单指数亦跌破50，供应商配送时间指数进一步下降，购进价格和出厂价格双双升高。
 
-此外，虽然中共政府最近开始放宽房地产开发商的融资渠道，但房地产市场远未走出困境，而房市对中国经济至关重要。
+消息来源:
 
-3月中旬，随着中国在岸和离岸股票暴跌，中国出现最为严重的资金外流情况。中共国务院副总理刘鹤为首的政策制定者出面安抚投资人，并承诺将采取更加有利于市场的方法，这些承诺会一定程度上阻止随后离岸股票的惩罚性抛售。
+[财新3月中国制造业PMI创25个月新低 供应延误加剧企业成本压力上扬](https://cn.reuters.com/article/caixin-china-mar-pmi-0401-idCNKCS2LT2ZH?il=0)
 
-圣地亚哥Brandes Investment Partners的投资总监Louis Lau说，虽然刘鹤的干预给了市场安慰，但随后北京没有推出实质性的后续政策，中国政府也没有提供足够有力的刺激计划。
-
-参考链接：[中国股市遭遇多年来最糟糕的一季度](https://www.epochtimes.com/gb/22/3/31/n13686809.htm)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
