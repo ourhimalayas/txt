@@ -2,37 +2,33 @@
 ---
 
 
-## 有声|与中共合作的“真相社交”媒体平台营运糟糕
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266183/)
+## COVID-19疫苗副作用集萃（2022.4.1A）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2266210/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月30日，据盖特平台消息显示，目前，美国前总统川普推出的“真相社交”平台的运行状况非常糟糕。数据显示，该平台自发布以来仅吸引了大约120万注册用户。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Slide7-12.jpeg)
-报道提及，真相社交上线后，大量的技术问题导致该平台的注册人数在一个月内下降了93%，同时，平台的流量也随之急剧下降。据统计，该软件本月在苹果应用商店的安装量已经下降到每周不到6万次，其下载页面的访问量也骤降到每周大约九万次。
+**整理：**雅典娜情报组(BENJ1)
+**编辑：**翼族
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/03/image-3781.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-据郭文贵先生早先在直播中透露，该社交媒体平台的合作方隶属于中共特务吴征。为此，郭先生再次示警称，任何轻信中共的投资承诺并草率与其相关公司合作的个人或机构都会被中共欺骗，而这类合作也必将招致灾难性的后果。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+**疫苗第二针，成功倒下**
 
+昨晚8:25第二针的预约，大姨妈一进门就马不停蹄的陪我冒雨去了AIS🙄，快关门的时候人很少，进去就被招呼了，护士老阿妈简直像容嬷嬷一样，撸起袖子就给我扎上了，消毒？干了一天了，估计觉得太麻烦……自动省略，一针到底，“铛”撞上骨头……推水，结束！
 
-文字版原文：[与中共合作的“真相社交”媒体平台营运糟糕](https://gnews.org/zh-hans/2264913/)
+不过，扎得深的好处，不疼！辉瑞第一针没有扎这么深，扎完立刻肉疼啊。回家相安无事，该洗刷刷洗刷刷，该带娃带娃。然而……今天大概中午12点就不太行了，感觉好冷，没力气，体温38.1……大量喝水，睡觉（队友一拖二）。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/3-8.png)
-**更多资讯，更多关注**
+一觉醒来，感觉头晕头疼，冷，浑身发热（好矛盾），浑身无力，一测体温，哐哐哐39.6度，打新冠疫苗第一针就胳膊疼了一下，没想到这新冠疫苗第二针来的如此之猛。第一针之后的心脏早搏问题还没来得及问GP呢！
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：[疫苗第二针，成功倒下](https://www.xiaohongshu.com/discovery/item/61580da6000000000102ec0e?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648606466)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+*发布：翼族*
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
