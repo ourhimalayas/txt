@@ -2,31 +2,54 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃默拉尔德·罗宾逊（Emerald Robinson）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2267078/)
+## 视频|关键时刻：第一个被招降的俄军
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2267150/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-10.jpg)
-**盖特链接：**[https://gettr.com/user/emeraldrobinson](https://gettr.com/user/emeraldrobinson)
+关键时刻：第一个被招降的俄军
 
-**埃默拉尔德·罗宾逊自述：**
+3月22日，由乌克兰内政部长顾问提供一则首个俄军直接被招降，
 
-加入我的 SUBSTACK：[https://emeralddb3.substack.com/](https://emeralddb3.substack.com/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/zxc-2.jpg)图片来源：网络
-**埃默拉尔德·罗宾逊简介：**
+带枪来缴械的消息。
 
-埃默拉尔德·罗宾逊（Emerald Robinson，出生于1982年2月1日）是一位著名的美国记者、政治记者、发言人。
+一名俄军装甲军开着战车到乌军前线范围，
 
-目前，埃默拉尔德·罗宾逊在弗吉尼亚州阿灵顿的Newsmax Media, Inc担任白宫记者。此前，她在华盛顿特区的美国新闻网（One America News Network（OAN））担任白宫首席记者、政治记者以及美国新闻调查（One America News Investigates）的主持人和撰稿人。
+乌军确认对方没有攻击敌意，
 
-埃默拉尔德·罗宾逊还在全球经济增长研究所担任媒体关系总监和制片人、故事点媒体（Story Point Media）担任执行制片人。
+这名装甲兵米夏（Misha）从战车出来投降。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+顾问表示，由于俄军到乌克兰会使用当地的SIM卡，
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+乌克兰情报单位会定期向这些电话号码发送有关如何投降的详细说明短信。
+
+米夏收到了其中一条短信，他拨打了指定的电话号码，
+
+收到了详细指令后偷走战车。
+
+米夏说，其他战车成员都逃跑回家，
+
+但他回不了，因为上级把他的身份注销为已阵亡，
+
+逼迫他继续作战。部队内部相当混乱，
+
+没有人出来指挥士兵，他只好开着战车来投降。
+
+而因为他的投降，将获得一万美金奖励和申请乌克兰公民身份的机会，
+
+同时安排一间房子，有电视、电话、厨房和淋浴间等。
+
+【盖文】出现第一个被招降的俄军，这是一个俄罗斯正在溃败的重要的迹象！乌克兰人民，We can win！
+
+
+
+【撰稿】香草山信息部 出云
+
+【审稿】呼吸的雾霾（文小呼吸）
+
+【剪辑】windlady
+
+【新闻链接】 https://twitter.com/new27brigade/status/1506240861415546887
+
+发布：奇门遁甲
 
  
 

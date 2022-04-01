@@ -2,24 +2,31 @@
 ---
 
 
-## 波兰著名周刊介绍新中国联邦的救援活动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267040/)
+## 今日盖特大V推荐 — 埃默拉尔德·罗宾逊（Emerald Robinson）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2267078/)
 
-撰稿：西枫westca
-![](https://assets.gnews.org/wp-content/uploads/2022/03/4-129.jpg)
-图片来源：tydol.pl
+![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-10.jpg)
+**盖特链接：**[https://gettr.com/user/emeraldrobinson](https://gettr.com/user/emeraldrobinson)
 
-波兰网站Tysol.pl 3月29日刊文介绍了波兰周刊Tygodnik Solidarność关于乌克兰难民的一篇报道。这篇报道介绍了新中国联邦救援队在波兰人道救援活动。
+**埃默拉尔德·罗宾逊自述：**
 
-乌克兰战争已进入了第二个月，除了该地区几十年未见得军事冲突外，这也是二战以来最大的难民危机， 这场危机也给波兰带来了一个巨大挑战。至3月28日止，有超过220万人越过波兰和乌克兰边境，其中大多数人决定留在波兰，等待俄罗斯的侵略结束。
+加入我的 SUBSTACK：[https://emeralddb3.substack.com/](https://emeralddb3.substack.com/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/zxc-2.jpg)图片来源：网络
+**埃默拉尔德·罗宾逊简介：**
 
-自3月5日至19日，新中国联邦（NFSC）的人道主义救援队在乌克兰用39辆大巴安全救援了2009人，为难民提供免费食物、住房和交通。重要的是，3月6日，NFSC团队将96名儿童和他们的老师一起从乌克兰运送到波兰的克拉科夫，然后协助非政府组织Todo Corazon帮助他们前往西班牙的巴塞罗那。
+埃默拉尔德·罗宾逊（Emerald Robinson，出生于1982年2月1日）是一位著名的美国记者、政治记者、发言人。
 
-NFSC志愿者在梅迪卡搭建了最大的帐篷，为总共7177名难民提供了免费食物、现磨咖啡、毛毯、休息场所、儿童游乐区等，即使在战争中，人性也能得到发扬。在NFSC的帐篷里，他们努力使气氛变得像一个家庭。来自NFSC的咖啡甚至可以让难民暂时远离他们的痛苦。此外，NFSC志愿者还为一些从乌克兰获救的中国人组织了前往土耳其的免费航班，因为他们害怕返回中国，以防中共发现救他们的人是反共的。
+目前，埃默拉尔德·罗宾逊在弗吉尼亚州阿灵顿的Newsmax Media, Inc担任白宫记者。此前，她在华盛顿特区的美国新闻网（One America News Network（OAN））担任白宫首席记者、政治记者以及美国新闻调查（One America News Investigates）的主持人和撰稿人。
 
-Tygodnik Solidarność是一本波兰周刊。该书于1981年4月3日由团结工会运动发起并出版，在1981年12月13日宣布戒严令和1989年解冻后，波兰人民共和国禁止该书。1989年波兰立法选举后，它于1989年6月合法化。
+埃默拉尔德·罗宾逊还在全球经济增长研究所担任媒体关系总监和制片人、故事点媒体（Story Point Media）担任执行制片人。
 
-**新闻来源：**[Najnowszy numer „Tygodnika Solidarność”: Kościół pomaga – państwo się sprawdza (tysol.pl)](https://www.tysol.pl/a81350-najnowszy-numer-tygodnika-solidarnosc-kosciol-pomaga-panstwo-sie-sprawdza)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
