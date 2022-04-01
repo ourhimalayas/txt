@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 4/1/2022 8:55 AM (UTC)`
+
+
+![img](https://media.gettr.com/group4/origin/2022/04/01/08/f6fa38e3-1724-e109-7de4-f7395e03ef71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/1/2022 9:15 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月31日第27天当日救援统计：<br/>Medyka救援站接待：约119人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8065人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 27 - Date: March 31, 2022 :<br/>Medyka Rescue Station Reception: about 119 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8065 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group19/getter/2022/04/01/09/20636108-83ee-8099-6967-d7e09accadc7/2b9f2d549a632a60356bbd2efb7ae635.jpg)
+
+---
+
 `@miles 4/1/2022 8:48 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
@@ -144,20 +160,6 @@ China-Russia cooperation has no limits. Two evil regimes and leaders promote mul
 
 3/30/2022 Ukraine Rescue: A lot of people came to the fellow fighters on the front line to learn about the New Federal State of China (NFSC) and the Rule of Law Foundation (ROLF). The NFSC vest has drawn a lot of interest. The rescue work of the fellow fighters and the good equipment of the rescue camp are widely appreciated. The glamorous coffee machine on the front line of the Ukraine rescue operation was a genius idea of Miles Guo!<br/><br/>3/30/2022 乌克兰救援连线：有很多人来找前线的战友们了解新中国联邦和法治基金，新中国联邦的马甲引起很多人的兴趣；战友们的救援工作以及营地的良好设备赢得广泛盛赞；在救援前线魅力无穷的咖啡机是郭先生天才般的主意！<br/>
 ![img](https://media.gettr.com/group26/getter/2022/03/31/16/68a79b87-3fe5-dcd8-3afd-f8aed48319bf/out.jpg)
-
----
-
-`@miles 3/31/2022 3:46 PM (UTC)`
-
-3/30/2022 Miles Guo: The CCP destroyed society, community, and family, which are the core foundations of the Chinese people. Fellow fighters are writing the legend of your life at every moment. The 81-year-old Ukrainian woman showed us through her actions that dignity is more important than anything else, and citizens of the New Federal State of China should treat her as if she is our mother.<br/><br/>3/30/2022 文贵直播：中共毁掉了社会、族群、家庭等中国人的核心基础；战友们时刻都在书写着人生的传奇；那位81岁的乌克兰老妇人用行动告诉了我们尊严比什么都重要，新中国联邦人要把她当成我们的母亲来对待她<br/>
-![img](https://media.gettr.com/group49/getter/2022/03/31/15/647c89e3-78db-d44f-1054-df17368f4978/out.jpg)
-
----
-
-`@miles 3/31/2022 3:37 PM (UTC)`
-
-3/30/2022 Miles Guo: The big tent of the NFSC & ROLF Ukraine rescue camp hosted an 81-year-old Ukrainian woman who walked 60 kilometers to Medyka, and after a cup of tea, she calmly asked a fellow fighter if she had a comb. The elderly woman still maintains her dignity during the war, making people feel both heartbreaking and respectful.<br/><br/>3/30/2022 文贵直播：新中国联邦救援营地的大帐篷接待了一位81岁的乌克兰老太太，她步行60公里来到了梅迪卡，喝了一杯茶后，她淡定地问战友有没有梳子，战乱中的老人家仍保持着尊严，这既令人心痛又让人肃然起敬<br/>
-![img](https://media.gettr.com/group26/getter/2022/03/31/15/ef430a1a-b1d2-014c-5af5-fedae4998665/out.jpg)
 
 ---
 

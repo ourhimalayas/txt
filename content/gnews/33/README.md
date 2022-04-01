@@ -2,16 +2,20 @@
 ---
 
 
-## 美议员提案《稳定币透明度法》
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2267462/)
+## 美能源部长：俄乌战争导向清洁能源独立
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2267629/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-13.27.12.png)
-当地时间3月31日周四，众议员Trey Hollingsworth和参议员Bill Hagerty提出一项法案，旨在提高稳定币市场的透明度。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-14.04.14.png)
+当地时间3月31日周四，美能源部长Jennifer Granholm在采访中表示，俄罗斯入侵乌克兰的战争将是一个很好的契机去发展清洁能源、可再生能源，并逐步摆脱能源依赖。
 
-目前最大的稳定币发行商Tether对其储备特别保密，从而让透明讯息远离公众，同时这也成为数字货币市场大量猜测和震荡的来源。立法者目前已经在关注稳定币市场，他们试图探索一种在不扼杀创新的情况下同时保护消费者和经济的解决方案，例如从法律上迫使稳定币发行商定期公布审计报告，展示其真实储备，提高市场的真实透明度。
+目前世界的能源危机因俄乌战争而显著加剧，俄罗斯依靠石油、天然气等能源要挟欧洲乃至整个世界。能源部长Granholm表示，希望减少人们在加油站等待的痛苦，并保护他们免受能源等价格波动带来的影响。利用俄乌战争达到清洁能源独立的目的，化石燃料市场已经不再是人们的信心所在之处。
 
-该法案目前已经获得大量支持，立法者表示大为惊讶，但同时认为这是在稳定币监管方面迈出的重要一步。在尽可能达成与全球行业和消费者的广泛合作之前，立法的框架非常重要，尽管它不能解决所有问题。
+当前美国所处的战时地位，除了增加化石燃料的供应，另外援引《国防生产法》来帮助增加美国电动汽车电池的发展，以及风化援助计划。该计划向美国各州发放32亿美元确保降低能源过度消耗，并投资于化石燃料脱碳技术。清洁能源和能源独立已成为中长期战略。
+
+reference：
+
+[https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/](https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/)
 
 撰稿、发布：骄子
 

@@ -2,42 +2,94 @@
 ---
 
 
-## 不打台湾的机率非常渺茫,台湾同胞和战友们务必要重视
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2268283/)
+## 尽管承诺从基辅撤军 俄军仍轰炸乌克兰城市
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2268291/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%883.6%EF%BC%89%E4%B8%8D%E6%89%93%E5%8F%B0%E6%B9%BE%E7%9A%84%E6%9C%BA%E7%8E%87%E9%9D%9E%E5%B8%B8%E6%B8%BA%E8%8C%AB%2C%E5%8F%B0%E6%B9%BE%E5%90%8C%E8%83%9E%E5%92%8C%E6%88%98%E5%8F%8B%E4%BB%AC%E5%8A%A1%E5%BF%85%E8%A6%81%E9%87%8D%E8%A7%86%E3%80%902022%E5%B9%B402%E6%9C%8824%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:f)
+翻译：wenwu
 
-**郭文贵先生：**另外一个，我今天跟战友们大家说一下，今天是3月，2月24号，过糊涂了，2月24号兄弟姐妹们。现在共产党打台湾是一定的，一定会打台湾的，几乎是零点零几的渺茫的机会不打，除非是“嘎嘣”中南坑挨几个导弹，是吧？“习太阳”嗝儿屁了，那就不打了，否则的话一定会打的。台湾同胞一定要，和台湾战友要联合起来，一定要重视，人生你没有几条命！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
-看到乌克兰的悲剧了吗？简直是惨不忍睹，全世界都震撼了。就到昨天最后一刻，全世界认为普京还不会真打的，就像那个疫苗以为不死人一样。这个世界就和平时间太长了，而且这么多的世界大佬们就看着这件事情发生了。你看看那马克龙，是不是？咱们叫泽连斯基，一切都是胡言乱语了，连北约都胡言乱语了。最终他们会反过味儿来，会反抗，但是他毕竟人死了，他回不来了。那放到谁头上，你都是没了，都是被消失了，物理上消失了。
 
-字幕来源：[2022年02月24日 郭文贵先生紧急直播 全文字版](https://gnews.org/zh-hans/2062121/)
 
-编辑整理：Jacques；
+俄罗斯军队周三（30日）轰炸了基辅郊区和乌克兰北部一个被围困的城市，此前他们承诺减少对那里的攻击，西方认为这是莫斯科为阻止其入侵乌克兰后的严重损失，并为其他攻势重整旗鼓的伎俩。
 
-字幕档制作：大好河山；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-8.jpg)图片来源：reuters.com
 
-视频制作及上传：Cindy；
+入侵近五周以来，俄罗斯未能占领任何主要城市，联合国人权事务高级官员说，莫斯科在乌克兰各地轰炸了50家医院以及家庭和学校，这可能相当于战争罪。
 
-G-News发布：海贼王M.D.LUFFY；
+乌克兰官员指责俄罗斯周二（29日）说它将减少在首都基辅和北部城市切尔尼戈夫（Chernihiv）附近的行动，“以增加互信”，促进和平谈判。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+基辅市市长维塔利·克里琴科（Vitali Klitschko）在对欧盟地区官员的视频讲话中说：“俄罗斯耍了乌克兰；整个晚上，我们听着警报声，听着火箭弹袭击，我们听着基辅东部和基辅北部的巨大爆炸声。那里有巨大的战斗，人们死亡，仍然在死亡。”
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+周三上午，在基辅可以听到来自乌克兰军队最近几天收复领土的郊区的密集轰炸声。郊区无情的炮火使窗户摇摇欲坠。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+在几周来经历了激烈战斗的基辅郊区厄平（Irpin）的东南部，可以听到频繁的炮击和地面及空中的弹药爆炸声。撤离的乌克兰人说，厄平北部遭到猛烈炮击，炮弹炸在厄平土地上。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+乌克兰和西方领导人警告说，莫斯科周二在伊斯坦布尔（Istanbul）的会谈中做出的明显和平姿态，是为了掩盖对未能攻占基辅的部队进行重组。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+俄罗斯周三表示，其部队已经在基辅和切尔尼戈夫附近实现了目标，并正在进行重组，以集中力量“解放”分离的东部顿巴斯地区。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+五角大楼说，俄罗斯已经开始重新部署其在基辅周围部署的五分之一的部队，但警告说，莫斯科预计将对这些部队进行改装和重新补给，以便重新部署。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+石油和天然气供应疑虑
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+作为对俄罗斯入侵的惩罚，西方对俄罗斯实施的制裁在很大程度上导致让其经济与世界贸易隔离开来，但莫斯科仍然是欧洲最大的石油和天然气供应商。俄罗斯要求用卢布付款的新要求被西方拒绝，这引起了人们对能源短缺的担忧，并加剧了欧洲的衰退风险。
 
-G-TV：日本银河系农场。
+作为俄罗斯最大的天然气客户，德国在周三（30日）宣布了一项“预警”，即如果俄罗斯切断供应，可能出现紧急情况。德国经济部长 Robert Habeck 敦促人们减少消费，说“每一千瓦时都很重要”。
+
+俄罗斯消息人士告诉路透社，它可能会保持能源合同货币不变，最后以卢布支付。
+
+德国政府发言人说，俄罗斯总统弗拉基米尔·普京告诉德国总理奥拉夫·肖尔茨（Olaf Scholz），可以用欧元付款，并将其发送到 Gazprombank，后者将把钱转换成卢布。
+
+Gazprombank 是俄罗斯石油和天然气的主要支付渠道之一。
+
+发言人说：“肖尔茨在谈话中没有同意这一程序，但要求提供书面资料，以便更好地了解这一程序。”
+
+陷入困境
+
+在乌克兰北部，切尔尼戈夫市市长弗拉迪斯拉夫·阿斯特罗申科（Vladyslav Astroshenko）说，在过去24小时里，俄罗斯对他的城市的轰炸加剧了，10多万人被困在里面，食物和医疗用品只够再维持一周左右。
+
+他告诉CNN：“这再次证实了俄罗斯总是在撒谎。他说，在市中心的迫击炮袭击中，有25名平民受伤。”
+
+路透社无法核实切尔尼戈夫的情况。俄罗斯国防部没有回复评论请求。
+
+路透社记者周二进入本周被乌克兰军队夺回的基辅郊区厄平，看到乌克兰军队在一个由废墟建筑组成的废弃鬼城巡逻，街上躺着一具老人和一具妇女的尸体。
+
+大约四分之一的乌克兰人被赶出家园，联合国周三表示，逃离该国的人数已超过400万。这些难民中一半以上是儿童，其余大部分是妇女。
+
+在过去一周里，乌克兰军队夺回了基辅郊区的城镇和村庄，打破了对东部城市苏米（Sumy）的围困，并在西南部击退了俄罗斯军队。
+
+在东部哈尔科夫（Kharkiv）地区的马拉罗汉（Mala Rohan）村，在被损坏的房屋附近有两辆被烧毁的坦克，坦克的炮塔已经被毁掉。乌克兰士兵马克西姆（Maksym）说，俄罗斯人正在被“缓慢但稳定地”击退。
+
+“他们中的大多数人已经明白，他们来到这里时犯了一个巨大的错误。因此，我认为他们在这里没有机会，我们会赢。”
+
+据俄罗斯新闻社报道，俄罗斯国防部表示哈尔科夫的人道主义状况正在恶化，并指责那里的乌克兰军队向平民开枪，但没有提出证据。
+
+俄罗斯说，它正在进行一项“特别行动”，以解除其邻国的武装和“去武装化”。西方国家说，莫斯科的入侵完全是没有法律依据的。
+
+俄罗斯说它现在将把军队集中在顿巴斯地区包括马里乌波尔港（Mariupol），周三那里再次传来激烈的战斗。
+
+马里乌波尔在战前有40多万人口，在一个月内被废掉了。联合国说，成千上万的人可能已经死在那里。
+
+属于顿巴斯地区的顿涅茨克州州长说，俄罗斯军队周三正在炮击该地区前线的几乎所有城市。
+
+新闻来源：[Russia bombs Ukraine cities, despite pledge to pull back from Kyiv](https://www.reuters.com/world/europe/ukraine-isnt-naive-zelenskiy-says-after-russia-pledges-scale-down-attack-kyiv-2022-03-30/?utm_source=facebook&amp;utm_medium=news_tab)
+
+（文章仅代表作者观点与GNEWS无关）
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3.jpeg)
 
  
 

@@ -2,37 +2,54 @@
 ---
 
 
-## 澳大利亚发生今年第五起致命航空事故
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2268374/)
+## 俄罗斯军队穷到使用地毯和树苗作为军事伪装
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2268393/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏 
+翻译：wenwu
 
-#### 翻译/编辑：小红帽  
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/r0_0_1140_595_w1200_h678_fmax_1.jpg)图片来源：www.bordermail.com.au
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
 
-根据9NEWS4月1日报道，昨天在澳大利亚维多利亚地区坠毁的一架直升机飞行员的家属表示，乘客的福祉和安全始终是他的首要任务。
 
-迪恩-尼尔（Dean Neal）驾驶的Microflite直升机昨天在墨尔本北部的失望山附近坠毁，事故造成飞行员和四名乘客死亡。
+据《华盛顿邮报》周三（30日）[报道](https://www.washingtonpost.com/national-security/2022/03/30/russia-camoflauge-ukraine/)，入侵乌克兰的俄罗斯军队似乎正在使用地毯、树苗和干草来覆盖他们的装甲车，这可能是说明他们没有得到足够的军事伪装设备。
 
-澳大利亚运输安全局（ATSB）调查人员已抵达事故现场收集证据。
+据《邮报》报道，在推特上（@NotWoofers）一个显然是描述交火的视频[显示](https://twitter.com/NotWoofers/status/1507926372039155714?s=20&amp;t=KxHKdiHMoc60pAD1aifs7A)，一辆军车边上稀稀拉拉地贴着松树苗。
 
-“这是今年澳大利亚发生的第五起致命航空事故。不幸的是，有九个人在这些事故中丧生。”澳大利亚运输安全局首席专员安格斯-米切尔（Angus Mitchell）今天下午表示。
+另一段推特视频（[@RALee85](https://twitter.com/RALee85/status/1506283631517618177?s=20&amp;t=_eNFzwpM1o6Ca8KeRNsXdw)）也被《邮报》确认，描述了俄罗斯军队用防水布和地毯覆盖一辆装甲车。 战争开始前一天（译者注：2月23日），一个俄罗斯车队越境进入东顿巴斯地区的几张图片也显示（如下图）,军车的车顶上覆盖着稻草。
 
-安格斯表示，在接下来的几天里，调查人员将用无人机勘察现场，检查伤痕以确定飞机是如何撞击地面，并取回飞机的相关部件。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-9.jpg)图片来源：businessinsider.com
 
-初步报告将在接下来的六到八周内准备好。澳大利亚运输安全局在调查报告发布之前不会发表任何进一步的声明。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-1.jpg)图片来源：businessinsider.com
 
-新闻来源：[Family of pilot in deadly chopper crash says passenger safety was his highest priority](https://amp.9news.com.au/article/8d429d00-39eb-41be-a015-333f56fff89f)
+另一张照片显示（如下图），车队中的一辆俄罗斯装甲车顶着树枝。
 
-发布：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-2.jpg)图片来源：businessinsider.com
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+俄罗斯军事专家罗布·李（Rob Lee）告诉《华盛顿邮报》，一些俄罗斯部队没有使用伪装网，显示出令人惊讶的准备不足，也许是他们的军事领导人最初过于自信。
+
+美国军队自20世纪90年代以来[一直使用伪装网](https://www.armytimes.com/news/your-army/2019/04/12/camo-netting-an-age-old-tool-is-being-re-engineered-for-the-modern-battlefield/)，最近还对其进行了升级，以适应林地、雪地和沙漠环境。乌克兰部队也一直在使用这种网，乌克兰平民甚至[帮助编织](https://www.businessinsider.com/ukrainians-in-safer-zone-rally-support-soldiers-prep-for-refugees-2022-3)这种网，以便在前线使用。
+
+在俄罗斯总统弗拉基米尔·普京（Vladimir Putin）发起对乌克兰的全面入侵后的几周里，俄罗斯部队和装备的质量受到了质疑。
+
+本月早些时候，乌克兰总统沃洛基米尔·泽伦斯基(Volodymyr Zelenskyy)称俄罗斯军队是“无能的”，并补充说，莫斯科正在“将他们的人民变成屠杀者”，乌克兰军队给俄罗斯侵略者造成了“前所未有的损失”。 在这场几乎可以肯定比克里姆林宫预期的时间长的战争中，俄罗斯的伤亡继续增加。一位北约官员在3月24日估计，至少有4万名俄罗斯军队在入侵中被杀、被俘或受伤。
+
+新闻来源： [Russian troops appear to be using carpets and saplings as camouflage, a possible sign they haven’t been supplied with the right equipment: report](https://www.businessinsider.com/russian-troops-using-carpets-and-saplings-as-camouflage-report-2022-3)
+
+（文章仅代表作者观点与GNEWS无关）
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3.jpeg)
 
  
 

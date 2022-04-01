@@ -2,34 +2,25 @@
 ---
 
 
-## 中共下令杀死廊坊一社区所有COVID患者的宠物
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2268058/)
+## 秘翻在线：被俄军绑架的4万名乌克兰人所面临的悲慘命运
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2268071/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-18-edited.png)图片来源:childrenshealthdefense.org
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-3.jpg)图片来源：本文的链接
+最近，在俄罗斯各地建立了称为‘净化营地’的收容所。收容的是被绑架和强制转移来的乌克兰平民百姓。
 
-一个中国城市下令杀死一个社区内 COVID-19 患者的所有室内宠物。
+乌克兰人首先被没收护照和其他身份证，以防止他们离开该国。然后他们的身体被检查是否有乌克兰国旗等纹身,询问他们的思想和信仰问题,以评估是否对俄罗斯有不利影响。
 
-据官方媒体中新社报道，中国北方廊坊市安次区周三下令，对冠状病毒患者进行“室内动物全面捕杀”。到下午 5 点，工作已经停止。当地时间周三，中新社援引廊坊市疾病预防控制中心一名工作人员的话说。目前尚不清楚有多少动物被杀死。
+许多营地位于寒冷的西伯利亚及远东萨哈林州的煤矿和天然气开采地附近。即使从靠近俄罗斯的乌克兰南部的马里乌波尔，直线距离也有7000多公里。乌克兰人由“就业中心”提供工作，两年内不得离开俄罗斯。
 
-美国CDC表示，宠物可以从人类身上感染 COVID-19，但宠物将这种疾病传播给人类的风险“很低”。
+对于俄罗斯来说，被强制转移来的居民是强大的“武器”。 他们被作为’人质’，对乌克兰政府施加压力。据乌克兰副总理佩雷舒克称，自俄罗斯军队入侵以来，至少有 40,000 名居民被绑架。其中包括 2000 多名儿童。
 
-据中国疾病预防控制中心报道，最近几周，廊坊所在的河北省每天记录数百例新的 COVID-19 病例。
+普通市民被俄罗斯军队绑架的情报接连不断, 绑架平民是明显违反国际法的行为。为此乌克兰外交部发表了一份抗议声明，称“日内瓦公约规定禁止劫持平民为人质，劫持平民为人质构成战争罪”。
 
-素材链接：[Chinese City Orders All COVID Patients’ Pets in One Neighborhood to Be Killed + More](https://childrenshealthdefense.org/defender/covid-nw-chinese-city-orders-covid-patients-pets-killed/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ae974804-2229-441e-8834-669eb0c480b5)
+信息来源：[https://friday.kodansha.co.jp/article/236718](https://friday.kodansha.co.jp/article/236718)
 
-* * *
+责编：Eric Kim
 
-审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
