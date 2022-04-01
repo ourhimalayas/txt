@@ -2,42 +2,32 @@
 ---
 
 
-## 有声|所罗门群岛无视澳大利亚抗议活动并与中共签订安全协议
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266483/)
+## 俄乌将恢复谈判 欧洲面临俄天然气的最后期限
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2266606/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-澳大利亚媒体3月31日发文称，所罗门群岛无视澳大利亚的抗议活动并将与中共国正式签署安全协议。本周四，中所双方官员就协议草案的细节再次进行了谈判。这表明中共外交部长王毅和所罗门外交部长耶利米·马奈勒很快就将正式签署该协议。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+翻译：灭共文明
 
-此前，据新加坡媒体报道，所罗门群岛已与北京草签了安全协议，这份协议不仅为中共国在太平洋安全事务中获得第一个主要利益铺平了道路，还试探了澳大利亚在该地区长达一个世纪之久的影响力。
+编辑与校对：冰糖葫芦喵、灭共文明
 
-据了解，这份协议的草案内容已于上周曝光并随即引发了澳大利亚、新西兰等多个西方国家的担忧。草案中，一项建议称“中共国可以根据自己的需要，经所罗门群岛同意，在所罗门群岛进行船舶访问，进行后勤补充，并在所罗门群岛中停留和过渡”。同时，它还将允许中国武装警察应所罗门群岛的要求部署，以维护“社会秩序”。
+《路透社》乌克兰利沃夫4月1日报道，**俄罗斯天然气的欧洲买家周五后，面临开始以卢布支付的最后期限，旨在结束持续五周的战争谈判有望重启。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/UILMLTLX4BLVRAQEYZXV7FFEB4-e1648781155514.jpg)2022年3月31日，一名乌克兰军人在基辅村庄检查被摧毁的俄罗斯BTR-82装甲运兵车（路透社）
+报道称，**俄罗斯总统普京周四打出了他最大的牌之一，要求欧洲能源买家从周五开始支付卢布，否则现有合同将被中止。**
 
-澳大利亚国防军联合行动主任格雷格·比尔顿中将周四接受采访时称，中国海军舰艇驻扎在太平洋国家的消息将“让澳大利亚国防军不得不从长计议”。
+自俄罗斯入侵乌克兰以来，导致数千乌克兰人死亡，超过四百万人逃离，并促使美国和世界各地的盟友对俄罗斯政府实体、企业和寡头实施惩罚性惩罚。据《俄罗斯新闻社》周五援引外交部一名高级官员的话称，俄罗斯将对欧盟的制裁做出回应。
 
-澳大利亚国防部长彼得·达顿对此则明确表示，中共国的目标是澳大利亚、日本和印度。他说，这一切构成了中共正在采取行动的总路线。“我们已经在南海看到了相关的侵略，现在（中共）在南海20个点的军事存在，在东海针对日本的相关活动，都令人深感担忧。”
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FireShot-Capture-328-Solomon-Islands-inks-security-deal-with-China-testing-Australias-in_-www.smh_.com_.au_.png)
+**欧洲各国政府拒绝了普京的能源最后通牒，欧洲大陆最大的俄罗斯天然气接收国德国称这是“勒索”。**
 
+能源摊牌对欧洲产生了巨大的影响，美国官员正在全球各地向普京施压，要求其停止入侵乌克兰。乌克兰的4400万人口中，有四分之一被迫离开家园。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/efc206ed-ecbd-4ff1-aa9b-91ddfc48e258.jpg)俄罗斯总统普京（图片来源：网络）
+据报道，**俄乌和平谈判将于周五通过视频会议恢复**。英国国防部在Twitter上写道，为了巩固自己的地位，**俄罗斯正在将军队从俄罗斯支持的格鲁吉亚分离地区重新部署到乌克兰。**
 
-文字版原文：[所罗门群岛无视澳大利亚抗议活动并与中共签订安全协议](https://gnews.org/zh-hans/2264065/)
+报告称，增援部队表明俄罗斯遭受了意想不到的损失。**在俄罗斯周五同意开放一条人道主义走廊后，乌克兰当局希望从马里乌波尔疏散更多居民，但此前的几项协议在相互指责中破裂。**
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
-**更多资讯，更多关注**
+新闻链接来源：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[Ukraine negotiations to resume, Europe faces Russia gas deadline | Reuters](https://www.reuters.com/world/ukraine-negotiations-resume-europe-faces-russia-gas-deadline-2022-04-01/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
