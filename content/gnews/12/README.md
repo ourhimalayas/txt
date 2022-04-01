@@ -2,8 +2,8 @@
 ---
 
 
-## 20220330郭文贵大直播 ：俄罗斯虚假宣传以及后勤保障落后，军事思维还在二战模式
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266052/)
+## 20220330郭文贵大直播 ：文贵先生提醒当精力集中在俄乌战争时 别忘了中东、东北亚和南亚
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266114/)
 
 作者：东京樱花团小视频组
 

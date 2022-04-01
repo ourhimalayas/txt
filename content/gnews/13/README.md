@@ -2,8 +2,8 @@
 ---
 
 
-## 20220330郭文贵大直播 ：飞飞有感而发：人民需要无皇有主的时代
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266038/)
+## 20220330郭文贵大直播 ：有尊严的80多岁乌克兰老妇人让人泪目
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2266103/)
 
 作者：东京樱花团小视频组
 

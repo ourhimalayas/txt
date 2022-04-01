@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/1/2022 12:37 AM (UTC)`
+
+【Ukraine Rescue】03/30/2022  Fellow fighter Jin Liang: A bearded French volunteer asked to join us right after he arrived here, and we invited him to spend the night in our large warm tent. Other media like to conduct interviews using our NFSC and ROLF tent as their background, and we are more and more recognized in Medyka.<br/><br/>【乌克兰救援】03/30/2022，来自精良战友：一名大胡子法国志愿者一来就主动加入我们，我们邀请他来我们暖和的大帐蓬过夜。其它媒体都喜欢以新中国联邦和法治基金的大帐蓬为背景进行采访，我们在梅迪卡受到越来越的认同。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group35/getter/2022/04/01/00/56fe083a-d8c0-9ed1-8218-2af476e55c04/out.jpg)
+
+---
+
+`@miles 4/1/2022 12:29 AM (UTC)`
+
+2022.03.31 晚 《新中国联邦新闻》俄乌战争形势明朗，东西联盟格局确立； 战后，科技中心乌克兰助力欧洲摆脱能源依赖
+![img](https://media.gettr.com/group3/origin/2022/04/01/00/4ba63041-8212-bf21-c0c3-f5f53dd36e00/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 3/31/2022 11:38 PM (UTC)`
 
 2022.03.31《The Fringe》 Episode 159
@@ -142,20 +156,6 @@
 
 3/30/2022 Ukraine Rescue: Why would the battlefield pianist Davide Martello risk his life to go to Lviv while bringing the stickers of the New Federal State of China? What is the touching romantic story behind this?<br/><br/>3/30/2022 乌克兰救援连线：为什么战地钢琴家Davide Martello要冒险带着新中国联邦的标志去利沃夫？这背后有什么感人的浪漫故事？<br/>
 ![img](https://media.gettr.com/group17/getter/2022/03/31/05/21347b62-ac33-9e85-9a54-1214a23be0fd/out.jpg)
-
----
-
-`@miles 3/31/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group15/origin/2022/03/31/04/7aadb91a-4d74-a5c5-12bb-dbe7bd5da3d7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 4:59 AM (UTC)`
-
-3/30/2022 Ukraine Rescue: The tents set up by the New Federal State of China are the sturdiest in the rescue camp in Medyka. Our giant tent is like a social hub of the rescue camp, with all kinds of facilities and supplies being provided. The experience of the Ukraine rescue on the front line tells us that we must cherish the peaceful time!<br/><br/>3/30/2022 乌克兰救援连线：新中国联邦的帐篷是梅迪卡营地最坚固的，我们的大帐篷俨然成为了救援营地的社交中心，各种设施和物资一应俱全；救援前线的经历告诉我们要珍惜和平的日子！<br/>
-![img](https://media.gettr.com/group3/getter/2022/03/31/04/fc01eab5-d495-922e-ec99-81d9ae53ce53/out.jpg)
 
 ---
 

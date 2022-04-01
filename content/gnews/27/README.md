@@ -2,14 +2,24 @@
 ---
 
 
-## 五月花简报（03/31/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2265400/)
+## 西媒头条 — 第199期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2265409/)
 
-编辑：波士顿五月花—-冲天一怒
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/A5A107B5-457B-4329-B2A0-0BEAA7A559A3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xm220331.001.jpeg)
 
-发布：思澈
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
 
  
 
