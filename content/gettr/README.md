@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/1/2022 5:35 AM (UTC)`
+
+
+![img](https://media.gettr.com/group27/origin/2022/04/01/05/cd51119a-ef1e-33a8-6aad-3cdfa4f2db07/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/1/2022 4:13 AM (UTC)`
 
 China-Russia cooperation has no limits. Two evil regimes and leaders promote multipolar, peace and democracy, how ironic! When innocent people of these two countries are represented by dictators and are forced to be put on the war machine, their disasters can be foreseen. <br/><br/>中俄合作无上限。两个邪恶政权和领导人倡导世界多极化，和平和民主，多么讽刺。当两国无辜民众被独裁者代表而绑架上战车，他们的灾难就在眼前。
@@ -151,13 +158,6 @@ China-Russia cooperation has no limits. Two evil regimes and leaders promote mul
 
 叶钊颖-郝海东-飞飞 《大实话·第十六场》： “新中国联邦爆料革命，开智同胞，看清共匪，智慧灭共！”  2022-03-31
 ![img](https://media.gettr.com/group41/origin/2022/03/31/14/49567de1-10fa-ee69-bfc9-c3f289f0eb0f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 1:08 PM (UTC)`
-
- 3月31号：尊敬的战友们好，你们健身了吗？一切都已经开始！
-![img](https://media.gettr.com/group17/getter/2022/03/31/13/9ca1201e-28e4-b85f-e16e-9bc925e82256/out.jpg)
 
 ---
 

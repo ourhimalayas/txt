@@ -2,31 +2,26 @@
 ---
 
 
-## 今日盖特大V推荐 — 埃默拉尔德·罗宾逊（Emerald Robinson）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2267078/)
+## 美国进一步释放石油储备 半年内每日100万桶（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2267098/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/a0wqp-mvddb-10.jpg)
-**盖特链接：**[https://gettr.com/user/emeraldrobinson](https://gettr.com/user/emeraldrobinson)
+翻译：宫米叶
 
-**埃默拉尔德·罗宾逊自述：**
+此外，沙特阿拉伯等主要产油国同样在31日决定暂缓5月追加增产，美国主导的这次措施对控制价格有多大效果还不明朗。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8651-3.jpg)图片来源：NHK新闻
+拜登总统：“与盟友和友好国家协调”
 
-加入我的 SUBSTACK：[https://emeralddb3.substack.com/](https://emeralddb3.substack.com/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/zxc-2.jpg)图片来源：网络
-**埃默拉尔德·罗宾逊简介：**
+拜登总统3月31日在新闻发布会上就释放额外石油储备表示：“全美汽油的零售价，归咎于普京的战争，不到三个月每加仑就上涨了近1美元。这次措施将是有史以来最大的国家石油储备释放“，并强调了致力于控制已成为人民生活负担的油价的态度。
 
-埃默拉尔德·罗宾逊（Emerald Robinson，出生于1982年2月1日）是一位著名的美国记者、政治记者、发言人。
+在此基础上，他说：“这次追加的石油储备释放已与同盟国和友好国进行了协调，已经有几个国家做出了承诺”，并表示了与上次一样与各国协同推进的方针。
 
-目前，埃默拉尔德·罗宾逊在弗吉尼亚州阿灵顿的Newsmax Media, Inc担任白宫记者。此前，她在华盛顿特区的美国新闻网（One America News Network（OAN））担任白宫首席记者、政治记者以及美国新闻调查（One America News Investigates）的主持人和撰稿人。
+拜登总统对俄罗斯先后实施了禁止进口原油等严厉的经济制裁，但受国内反弹的影响，通胀加速，支持率依然低迷，在此次行动的背景下，也有希望与目前现状的突破联系起来。
 
-埃默拉尔德·罗宾逊还在全球经济增长研究所担任媒体关系总监和制片人、故事点媒体（Story Point Media）担任执行制片人。
+审核：BryanW
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xixi.jpeg)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

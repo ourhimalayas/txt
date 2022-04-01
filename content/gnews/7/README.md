@@ -2,26 +2,33 @@
 ---
 
 
-## 北约：俄军正在乌克兰重新部署和集结
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2267296/)
+## LG电子涉足区块链和数字资产领域
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267363/)
 
-编辑：文宝
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-北约秘书长斯托尔滕贝格3月31日说，在乌克兰的俄罗斯军队正在重新部署和集结，准备在顿巴斯地区发动新的攻势。
+翻译/编辑：小红帽
 
-斯托尔滕贝格在当天举行的2021年度报告新闻发布会上说，俄罗斯最近宣布将减少在基辅周边和乌克兰北部的军事活动，根据北约的情报，俄军不是在撤退，而是在重新部署。俄军正试图重新集结并获得补给，以加强其在顿巴斯地区的攻势。与此同时，俄军仍保持着对基辅等城市的压力，这意味着俄军可能发动更多进攻。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/LG_Phone_Reuters1.jpg)图片来源：Reuters
 
-斯托尔滕贝格表示，他欢迎旨在结束这场军事冲突的所有努力，包括最近俄乌双方在土耳其的谈判。他呼吁俄罗斯结束军事行动，撤离所有军队，带着诚意展开对话。
 
-斯托尔滕贝格说，北约近年加大了对乌克兰的支持力度，为乌军提供训练，提供现代化装备，支持其改革。乌军现在比以往任何时候都更加庞大，装备更先进。
+根据COINGEEK4月1日报道，韩国消费电子巨头LG电子正在涉足区块链和数字资产领域。该公司最近宣布了新的业务领域，但指出它在这两方面都没有任何具体行动。
 
-斯托尔滕贝格还表示，北约感受到一种“新的紧迫感”，正面临“新的安全现实”。北约将在今年6月马德里峰会上采取进一步措施，实施“北约2030年议程”，并将制定新的战略构想，使之成为北约未来十年的指导文件。
+上周举行的股东大会批准了新的业务方向。LG概述说，在重新定义其业务的新目标中，将包括“开发和销售基于区块链的软件”和“销售和经纪加密货币”，后者被誉为推出数字货币交易所的意图。
 
-此外，斯托尔滕贝格在当天发布的2021年度报告中表示，北约欧洲盟国和加拿大的国防预算连续第7年上升，相比2020年增长3.1%，自2014年以来总共增加约2700亿美元。
+然而，正如当地媒体报道的那样，公司发言人拒绝证实LG是否正在进军数字货币交易所业务。
 
-原文链接：[https://news.sina.com.cn/w/2022-04-01/doc-imcwiwss9273410.shtml](https://news.sina.com.cn/w/2022-04-01/doc-imcwiwss9273410.shtml)
+LG对这个行业并不陌生。今年一月份，它宣布将推出一系列能够购买和显示NFT的智能电视。值得注意的是，就在三星在消费电子展上发布类似消息的第二天，LG宣布了这一举措。本月初，LG对其计划进行了更新，透露它已与Ground X（一家Kakao拥有的区块链公司）合作，推出一系列支持NFT的电视。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Discord-QR.png)DISCORD
+新闻来源：[LG Electronics ventures into blockchain and digital assets](https://coingeek.com/lg-electronics-ventures-into-blockchain-and-digital-assets/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

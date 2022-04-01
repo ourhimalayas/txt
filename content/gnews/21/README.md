@@ -2,29 +2,32 @@
 ---
 
 
-## 乌军救起被俄军遗弃的著名女狙击手伤兵
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2267002/)
+## 斯洛伐克宣布驱逐35名俄外交官
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2267044/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-4059.png)图片来源：视频截图
-据《纽约邮报》3月31日报道，一名进行过40次狙击杀人记录的俄罗斯女狙击手被俄军遗弃，在战场上被乌克兰军队俘虏和救治。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1-1.jpg)
+欧洲联盟成员国斯洛伐克今天说，根据情报单位提供的讯息，已经决定驱逐35名俄罗斯外交官。
 
-这位女狙击手的姓名是伊琳娜·斯塔利科娃（Irina Starikova），代号巴吉拉（Bagira），今年41岁，有两个分别为11岁和9岁的女儿。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/e38694dc-8023-4af9-81d5-e59c44259be3.jpg)图片来源：@KremlinRussia\_E推特
 
-据称，斯塔里科娃是（俄军）第11特种作战师的一名狙击手。根据乌克兰赫尔辛基人权联盟2017年的一份报告，她的绰号是喷火龙（Gorynych），也为俄罗斯分离主义武装力量作战。
+欧盟成员国比利时、荷兰、爱尔兰和捷克昨天都宣布驱逐数十名涉嫌从事间谍活动的俄罗斯外交官，这是欧盟国家在俄乌战争阴影下采取的一致行动。
 
-据报道，斯塔利科娃最初来自塞尔维亚，自2014年以来一直被乌克兰人追捕。乌克兰武装部队宣布说，她“在2014年射杀了我们的囚犯”，并附有她的照片。伦敦国王学院（King’s College London）战争研究系的研究员乔雷维什维利（Giorgi Revishvili）证实了斯塔伊科娃的被捕，并说她应对“杀害40名包括平民在内的乌克兰人”负责。
+包括美国和波兰在内的其他国家，先前也都驱逐过俄国外交官。
 
-文章说，斯塔利科娃在与乌克兰军队作战时受伤，被俄军遗弃，让其自生自灭，然后被乌军俘虏。被俘后，斯塔利科娃说：“他们（俄军）离开时，知道我受伤了，（也）有机会把我接走……（但他们）希望我死去”。
+斯洛伐克外交部发言人托马加（Juraj Tomaga）告诉法新社，斯洛伐克将「减少（首都）布拉第斯拉瓦俄国使馆35名人员」。
 
-乌克兰《观察者》（Obozrevatel）新闻网站援引一位名叫弗伊万诺夫（Vlad Ivanov）的士兵的话说，斯塔利科娃在被俘时得到了治疗。
+简评：普京克格勃出身本来就是搞情报的，被普京重用的外交官就是撒在各国的情报小鬼，普京都跟民主世界撕破脸了，都快断交了还留着这些外交官干啥，能驱逐的就驱逐吧！
 
-*责编：白夜*
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022331W0331](https://www.ftvnews.com.tw/news/detail/2022331W0331)
 
-**新闻来源**
+撰稿/发布：一叶知秋
 
-[Deadly Russian sniper captured by Ukraine after she was left for dead](https://nypost.com/2022/03/31/deadly-russian-sniper-captured-by-ukraine-after-she-was-left-for-dead/)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

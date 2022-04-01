@@ -2,33 +2,34 @@
 ---
 
 
-## LG电子涉足区块链和数字资产领域
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267363/)
+## 樱花FM┃特首认官方阳性数字不准 为拉低死亡率
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2267413/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/特首认官方阳性数字不准-为拉低死亡率.png)
 
-翻译/编辑：小红帽
+林郑月娥今日在疫情记者会指出，由于部分市民于当局推出快速测试申报平台前已染疫并康复，相信本港感染人数比目前官方数字高，“常理都知道不应该只有100万个案”。林郑月娥表示，早前围封大埔广福邨4座大厦强检，初步阳性个案比率为4.9%，但同时有约20%居民曾经染疫，即约有四分之一居民先后感染，认为按有关数据推算，数字比当局公布的累积阳性数字高。香港大学医学院教授孔繁毅今日表示，实际感染人数可能已超过400万，因此计算死亡率不能用政府公布的确诊数字做分母，这样一来死亡率可降为0.18%。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/LG_Phone_Reuters1.jpg)图片来源：Reuters
+香港疫情处于失控状态，许多人为躲避入住隔离营，拒绝申报自行检测记录，港府在区域性的强检中发现大量有抗体的案例，特首今日也公开承认不相信官方公布的确诊数量。第五波疫情中，每日官方公布死亡的人数都在二百人以上，截至昨日有7252人死亡，但即使是用官方公布的死亡数字计算，香港的死亡率都达到0.56%，远高于流感的死亡率。尽管港府极力掩饰真正的死亡资料，但殡仪界和火葬场的数据却暴露了死亡的惨况。特首今日公开确定官方的感染资料不真实，并不是良心发现向公众公开疫情的真相，而是与港府的医学专家配合搞数字游戏，希望通过提高确证人数来拉低死亡率，目前专家估计香港的感染人数是官方公布的四倍。
+
+爆料革命郭文贵先生在大直播中揭露香港目前每日死亡的真实人数是官方公布的五倍，因此无论港府如何提高确诊人数，也绝对无法改变真实的死亡率。郭文贵先生转达科学家的判断，认为香港疫情的失控，完全是因为新冠疫苗导致的混合型感染，长者和长期病患人士是首当其冲的受害者。这些论断完全印证了香港当局公布的死亡资料中，超过八成的死者是长者和体弱人士。港府在此时耍出这些龌龊的把戏，就是为了阻碍市民对疫情惨况的知情权，将疫情与流感相提并论，迷惑和麻木市民不去追究疫情真相。
+
+文字版原文：
 
 
-根据COINGEEK4月1日报道，韩国消费电子巨头LG电子正在涉足区块链和数字资产领域。该公司最近宣布了新的业务领域，但指出它在这两方面都没有任何具体行动。
+| [特首认官方阳性数字不准 为拉低死亡率](https://gnews.org/zh-hans/2249323/) |  |
+| --- | --- |
 
-上周举行的股东大会批准了新的业务方向。LG概述说，在重新定义其业务的新目标中，将包括“开发和销售基于区块链的软件”和“销售和经纪加密货币”，后者被誉为推出数字货币交易所的意图。
 
-然而，正如当地媒体报道的那样，公司发言人拒绝证实LG是否正在进军数字货币交易所业务。
-
-LG对这个行业并不陌生。今年一月份，它宣布将推出一系列能够购买和显示NFT的智能电视。值得注意的是，就在三星在消费电子展上发布类似消息的第二天，LG宣布了这一举措。本月初，LG对其计划进行了更新，透露它已与Ground X（一家Kakao拥有的区块链公司）合作，推出一系列支持NFT的电视。
-
-新闻来源：[LG Electronics ventures into blockchain and digital assets](https://coingeek.com/lg-electronics-ventures-into-blockchain-and-digital-assets/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/asket
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
