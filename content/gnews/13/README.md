@@ -2,32 +2,38 @@
 ---
 
 
-## 普京签署行政令 买俄天然气需卢布付款
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2266258/)
+## 有声|乌克兰称掌握俄罗斯使用集束炸弹证据
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2266339/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1-1.jpg)
-俄罗斯总统普京今天表示，他已签署行政命令，从4月1日起，不友善国家购买俄国天然气，必须以卢布付款，如果不依令付款，将终止合约。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+外媒29日报导，乌克兰检察总长维涅迪克托瓦表示，乌克兰已掌握证据，证明俄罗斯部队在乌克兰南部的敖德萨和赫尔松地区使用了违禁武器集束炸弹，部分记者正在搜集相关证据，未来将用来揭露俄军使用集束炸弹和其他违禁武器。目前，她已掌握一些炸弹碎片或土壤样本分析结果等具体证据，可以确定俄军使用违禁武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-3911.png)图片来自：https://www.ndtv.com
+据了解，集束炸弹因杀伤范围极大，可同时击中多个目标，伤害性极强，而且部分弹药可能不会立即爆炸，将在冲突结束多年后对平民持续构成威胁，因此级数炸弹目前已被多国禁用。
 
-俄罗斯总统普京说，「我们提供对方（不友善国家），简单透明的方式购买俄国天然气，他们得在俄国的银行开立卢布帐户，从这个帐户付款买天然气，自今年4月1日起生效。」
+此外，敖德萨是乌克兰在黑海的大型港口城市，俄军对此地的进攻一直没有获得任何进展。赫尔松则是俄军入侵后拿下的唯一重要城市，目前乌克兰军队正尝试收复。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/79a87b87-9173-463d-a527-79278a53beab.jpg)图片来源：民视新闻
 
-跟据新规定，所有付款都由俄罗斯天然气工业公司的子公司、天然气工业银行（Gazprombank）负责，买方将款项以外国货币转入自己在天然气工银的帐户，银行再将款项换成卢布，转入买方的卢布帐户，完成付款。不过俄国举措遭西方拒绝，认为违反现行合约。
 
-德国和法国都表示，不受普京威胁，并有心理准备可能减少俄国天然气供应。去年俄国天然气约占欧盟国家天然气的40%。日前，欧盟反垄断调查人员，才以涉嫌非法哄抬欧洲天然气价格为由，搜查俄罗斯天然气工业公司驻德国办公室，新规定生效后，双方关系预料将更加紧绷。
+文字版原文：[乌克兰称掌握俄罗斯使用集束炸弹证据](https://gnews.org/zh-hans/2261382/)
 
-简评：中共国全球代工以市场做要挟，各国企业照样纷纷撤离；俄罗斯以能源要挟欧洲，欧洲照样可以减少用量不买账。普京要求俄天然气需卢布付款，全球制裁下垂死挣扎没有办法的办法，普京一条死路走到黑，强硬只有加剧矛盾，太刚易折，普京的疯狂硬到头就等着脆断吧！
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/03/8f90ccc3-db9b-4062-90b7-47b3f54b4e0c-1.jpg)
+**更多资讯，更多关注**
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022331I20M1](https://www.ftvnews.com.tw/news/detail/2022331I20M1)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-撰稿/发布：一叶知秋
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

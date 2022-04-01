@@ -2,31 +2,22 @@
 ---
 
 
-## 郭文贵先生2022年3月31日盖特视频（3分02秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2266577/)
+## 特鲁多政府限制加拿大资源开发与投资
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2266593/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-啊！这个不容易啊，啊……啊，海东兄弟，玩这个不容易，你这玩的俩的(健腹轮)更不容易，一天，这个，做上8组就够了，不需要做12组，做8组的话，也就是说100个，一次做12个，做8次，哇，这个力量太大了。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/郭文贵先生2022年3月31日盖特视频（3分02秒）全文字版.png)
-今天，俺啥也不想说，战友们（说）不看我直播不行，你们得习惯，这个让咱们战友们长大，啊七哥给你们赚钱。
+加拿大温哥华扬帆农场-文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/图片1-187.png)图源：tnc.news
+据【真北方】3月30日报道，加拿大关键矿产行业的领导人抨击特鲁多政府对私营公司实施的排放标准和碳减排法规，阻碍了绿色科技的发展与投资。
 
-我昨天说的山里边的事儿，好多战友都找到了，真厉害！这个世界没有秘密，这个世界一切都改变了，就因为互联网。昨天我就直播说几句话，战友全找到了，太厉害了！
+报道称，尽管加拿大有能力成为关键矿产开发的世界领导者，甚至超越俄罗斯和中共等庞然大物，但由于政府法规，加拿大矿业资源缺少可预测性，无论是在能源定价、排放标准、许可、关闭要求还是碳战略方面，在吸引投资期间改变目标或策略会阻碍加拿大的投资。加拿大日前公布了其2030年减排计划，该计划要求石油和天然气行业到2030年减排42%，这会导致投资者在加拿大境外开设工作。
 
-啊，大家要习惯，七哥不在的七哥大直播，让战友们也要发挥出自己的能量，咱们形成一个集体灭共，不能七哥一个人灭共，yeah！yeah！
+据悉，安大略省省长道格·福特和一个省内阁成员组成的代表团前往华盛顿特区，与美国商讨经济发展问题，尤其是开发关键矿产的合作。因为中共和俄罗斯都会在关键时期扼杀镍和其他一些关键矿物，所以美国正在为此事四处奔波，可幸的是最佳对象就是美国的邻居。
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+链接：[Feds’ shifting emissions plans deter green tech investments | True North (tnc.news)](https://tnc.news/2022/03/30/feds-shifting-emissions-plans-deter-green-tech-investments/)
 
-[郭文贵先生2022年3月31日盖特视频](https://gettr.com/post/p12ukcy1088)
+* * *
 
-*校对：东京樱花团/tdownc2p*
-*发布：东京樱花团/*老黑
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+编辑、上传：月亮之上
 
  
 
