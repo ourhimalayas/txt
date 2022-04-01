@@ -2,25 +2,34 @@
 ---
 
 
-## 81岁老人徒步逃离战乱 新中国联邦送温暖
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2268008/)
+## 中共下令杀死廊坊一社区所有COVID患者的宠物
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2268058/)
 
-撰稿：美东香草山-雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
-3月30日，新中国联邦乌克兰前线救援团队，在梅迪卡基地接待了一位81岁高龄的乌克兰老奶奶。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-15.png)
-为逃离战乱，老奶奶徒步60公里到达梅迪卡。新中国联邦前线战友热情地接待老奶奶，提供食物和休息场地，让她在等待亲人的期间感受到温暖。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-18-edited.png)图片来源:childrenshealthdefense.org
 
-接下来，我们一起收看来自前线的报导。
+一个中国城市下令杀死一个社区内 COVID-19 患者的所有室内宠物。
 
-视频链接：[【乌克兰救援】03/30/2022，来自小小酥战友](https://gettr.com/post/p12scak3544)
+据官方媒体中新社报道，中国北方廊坊市安次区周三下令，对冠状病毒患者进行“室内动物全面捕杀”。到下午 5 点，工作已经停止。当地时间周三，中新社援引廊坊市疾病预防控制中心一名工作人员的话说。目前尚不清楚有多少动物被杀死。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+美国CDC表示，宠物可以从人类身上感染 COVID-19，但宠物将这种疾病传播给人类的风险“很低”。
 
-编辑/总编：雪梨
+据中国疾病预防控制中心报道，最近几周，廊坊所在的河北省每天记录数百例新的 COVID-19 病例。
 
-校正/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
+素材链接：[Chinese City Orders All COVID Patients’ Pets in One Neighborhood to Be Killed + More](https://childrenshealthdefense.org/defender/covid-nw-chinese-city-orders-covid-patients-pets-killed/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=ae974804-2229-441e-8834-669eb0c480b5)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS_CH.-1-3-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

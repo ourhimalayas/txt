@@ -2,51 +2,43 @@
 ---
 
 
-## 澳洲工会要求提高5%最低工资
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2268115/)
+## 不打台湾的机率非常渺茫,台湾同胞和战友们务必要重视
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2268283/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-7.jpg)图片来自网络
-《SBS News》近日报道，他们向公平工作委员会递交了年度工资审议，如果获批的话，那么最低工资率将升到21.35澳元的时薪，也就是年薪42183.96澳元。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%883.6%EF%BC%89%E4%B8%8D%E6%89%93%E5%8F%B0%E6%B9%BE%E7%9A%84%E6%9C%BA%E7%8E%87%E9%9D%9E%E5%B8%B8%E6%B8%BA%E8%8C%AB%2C%E5%8F%B0%E6%B9%BE%E5%90%8C%E8%83%9E%E5%92%8C%E6%88%98%E5%8F%8B%E4%BB%AC%E5%8A%A1%E5%BF%85%E8%A6%81%E9%87%8D%E8%A7%86%E3%80%902022%E5%B9%B402%E6%9C%8824%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:f)
 
-澳洲有四分之一的员工也就是250多万人，依赖于年度工资审议来涨工资。
+**郭文贵先生：**另外一个，我今天跟战友们大家说一下，今天是3月，2月24号，过糊涂了，2月24号兄弟姐妹们。现在共产党打台湾是一定的，一定会打台湾的，几乎是零点零几的渺茫的机会不打，除非是“嘎嘣”中南坑挨几个导弹，是吧？“习太阳”嗝儿屁了，那就不打了，否则的话一定会打的。台湾同胞一定要，和台湾战友要联合起来，一定要重视，人生你没有几条命！
 
-“我们呼吁总理斯科特·莫里森支持澳大利亚的工人并支持这次加薪，”她在周四的一份声明中说。
+看到乌克兰的悲剧了吗？简直是惨不忍睹，全世界都震撼了。就到昨天最后一刻，全世界认为普京还不会真打的，就像那个疫苗以为不死人一样。这个世界就和平时间太长了，而且这么多的世界大佬们就看着这件事情发生了。你看看那马克龙，是不是？咱们叫泽连斯基，一切都是胡言乱语了，连北约都胡言乱语了。最终他们会反过味儿来，会反抗，但是他毕竟人死了，他回不来了。那放到谁头上，你都是没了，都是被消失了，物理上消失了。
 
-“如果本届政府认真对待解决生活成本压力，那就从工资增长开始。”
+字幕来源：[2022年02月24日 郭文贵先生紧急直播 全文字版](https://gnews.org/zh-hans/2062121/)
 
-联邦政府本周公布了 2022/23 财政年度的预算，强调了缓解生活成本压力的新措施。
+编辑整理：Jacques；
 
-这包括把燃油附加税减半到每升22分，一次性的给1000万中低收入者420澳元的税务抵免，给养老金领取者和福利领取者等发放一次性的250澳元的补贴。
+字幕档制作：大好河山；
 
-2020/21 年度工资审查使工人增加了 2.5%，相当于每小时 20.33 澳元或每周 772.60 澳元。
+视频制作及上传：Cindy；
 
-在那次审查中，工会主张增加 3.5%，而商业团体建议增加 1.1%。
+G-News发布：海贼王M.D.LUFFY；
 
-麦克马纳斯女士表示，工资增长落后于通胀预期，在今年前六个月有效地将普通工人的实得工资削减了 500 澳元。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-她说：“工会将主张增加 5%，这是使实际工资增长并避免进一步减薪所需要的。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-“莫里森联邦预算的一次性付款无助于产生工人需要的长期、可持续的工资增长，也无助于阻止国家劳动力再遭受一年的实际工资削减。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-联邦财政部长乔什·弗莱登伯格周三表示，这些措施现在是为了帮助改变真实人们的生活。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“现在需要这种有针对性的、临时的、负责任的支持，我们在这个预算中所做的工作被视为对底线的实质性改善，”他周三早上告诉ABC电台。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-金融市场经济学家担心，年化通胀率可能会从目前的 3.5% 的高水平加速至至少 5%。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-提高最低工资势在必行，因为过高的通胀受伤最大的就是穷人。但提高工资后会出现工资价格螺旋（提高工资必然会引起商品价格上涨，而价格上涨又迫使工人要求提高工资，这又会引起商品价格的上涨。 这一过程不断出现，循环不已）从而进一步的推高已经处于高位的通货膨胀。如何把通胀从高位打下来已经成为澳洲政府不得不面对又一个难题。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-参考链接：
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[https://www.sbs.com.au/news/article/unions-to-push-for-five-per-cent-increase-to-australias-minimum-wage/3p1v0hr5e](https://www.sbs.com.au/news/article/unions-to-push-for-five-per-cent-increase-to-australias-minimum-wage/3p1v0hr5e)
+G-TV：日本银河系农场。
 
-[https://wiki.mbalib.com/wiki/%E5%B7%A5%E8%B5%84-%E4%BB%B7%E6%A0%BC%E8%9E%BA%E6%97%8B](https://wiki.mbalib.com/wiki/%E5%B7%A5%E8%B5%84-%E4%BB%B7%E6%A0%BC%E8%9E%BA%E6%97%8B)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
