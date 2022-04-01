@@ -2,37 +2,28 @@
 ---
 
 
-## 樱花FM┃中日财经爆:七国集团拒绝用卢布支付俄罗斯天然气
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2267723/)
+## 中日财经爆┃富力地产去年营业额大跌11% 净利亏损88亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267746/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/七国集团拒绝用卢布支付俄罗斯天然气.png)
-德国能源部长星期一(3月28日)说，工业化七国集团拒绝接受俄罗斯提出的用卢布支付天然气的要求。
+撰稿：东京樱花团/peterwong
 
-德国联邦经济事务和气候行动部部长哈贝克（Robert Habeck）说，“七国集团所有部长们都认为，这是单边行为，显然违背现有合约。”在他发表这番讲话之前，七国集团与欧盟代表上星期五开会以确定统一立场。
+广州富力地产3月31日公布，受累市场气氛及经营情况均急剧下行，去年由盈转亏，录得净亏损逾88亿元人民币。
 
-哈贝克说，“用卢布支付不能接受，我们将敦促受影响的公司不要满足普京的要求。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F0930%252F1104f2bdj00r08900000qc000go00a3c.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FGL4VGO4Q0514R9P4.html&amp;tbnid=59hr-tyNxMaVaM&amp;vet=12ahUKEwi1gYHKnvL2AhVCs6QKHR4cDccQMygIegUIARC3AQ..i&amp;docid=w6fUttqGMCj8vM&amp;w=600&amp;h=363&amp;itg=1&amp;q=%E5%AF%8C%E5%8A%9B%E5%9C%B0%E4%BA%A7&amp;ved=2ahUKEwi1gYHKnvL2AhVCs6QKHR4cDccQMygIegUIARC3AQ)
 
-哈贝克还说，俄罗斯需要卢布帮助筹集战争开支。他说：“普京要求把合约转为卢布（意味着）他没有退路了。否则他不会提出这个要求。”
+据周四晚间的公告，该公司去年合约销售总额为1,202亿元，销售总建筑面积941万平方米；总营业额按年跌11%至764亿元，由于入账均价售价较低以及存货估值的一次性撇减，毛利率下跌，以及由于较高的营运开支，集团年内录得股东应占亏损88.5亿元，上年同期则为净利90亿元。
 
-普京表示，俄罗斯将命令“不友好”的国家只能用卢布支付天然气。分析人士说，普京要求各国央行为买家制定程序在俄罗斯获得卢布，这可能会加剧卢布的通胀，导致天然气关闭，让俄罗斯和欧洲的经济都受到极大伤害。
+富力地产表示，市况恶化的另一个后果是资产估值出现减值调整，这一调整反映在存货及金融资产中，集团一次性撇减资产价值81亿元，故影响了盈利。
 
-文字版原文：
+去年，该公司的借款总额下降270亿元或17%，及净负债比率为123%。借款净额的大幅减少乃持续努力采纳紧缩流动资金管理、减少资本开支及进行资产出售（预期于2022年将继续）的结果。
 
+消息来源:
 
-| [**中日财经爆|七国集团拒绝用卢布支付俄罗斯天然气**](https://gnews.org/zh-hans/2250704/) |   |
-| --- | --- |
+[富力地产去年净亏逾88亿元、借款总额降17% 料今年资产价值不会进一步恶化](https://cn.reuters.com/article/rfchina-2021-loss-0401-idCNKCS2LT2Y0?il=0)
 
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
