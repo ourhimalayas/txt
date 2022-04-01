@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/1/2022 2:07 AM (UTC)`
+
+2022.03.31  NFSC finance 新中国联邦 | 喜财经   中共国疫情供应链危机
+![img](https://media.gettr.com/group46/origin/2022/04/01/02/3bb5f39f-c337-1987-fe57-495330725e0d/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mos_designer 3/30/2022 3:22 PM (UTC)`
@@ -151,13 +158,6 @@
 
 
 ![img](https://media.gettr.com/group30/origin/2022/03/31/12/2a5378c9-eb5c-db8d-3e34-366d59b19920/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 10:06 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月30日第26天当日救援统计：<br/>Medyka救援站接待：约221人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约7946人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 26 - Date: March 30, 2022 :<br/>Medyka Rescue Station Reception: about 221 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 7946 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group8/getter/2022/03/31/10/474b568b-7804-0f51-f226-6a18d22170bb/8ace20c298689381351213539d8a1e75.jpg)
 
 ---
 
