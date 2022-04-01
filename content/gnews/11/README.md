@@ -2,35 +2,23 @@
 ---
 
 
-## 有声｜ 局势升级 普京：今起需用卢布购买天然气
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2267786/)
+## 战后，科技中心乌克兰助力欧洲摆脱能源依赖
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2267893/)
 
-By:**秘翻新闻**
+撰稿：纽约香草山-云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
+在当前俄乌战争局势下，鉴于欧洲对俄罗斯的能源依赖，郭文贵先生在3月30日的大直播中表示，欧洲不会在能源问题上向俄罗斯妥协，并称俄乌战争后，欧洲将结束对中东、俄罗斯的能源依赖。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-11.png)图片来自https://analyticsindiamag.com
+郭先生谈到，德国前总理默克尔表面上推动了欧洲三十年的经济发展，而实际上，欧洲的科技却滞后三百年，欧洲的能源命脉被俄罗斯牢牢掌控。解决能源问题唯有依赖科技的发展。值得庆幸的是，世界各大科技企业已经开启人才计划，并在乌克兰成立基地。乌克兰未来将成为欧洲的科技中心，彻底欧洲摆脱对中东和俄罗斯的能源依赖。
 
-**2022-04-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1.png)图片来源 网络
-[大纪元3月31日消息，根据俄罗斯周四签署的一项法令，天然气买家需在国有控股的俄罗斯天然气工业股份公司开立特别账户，以便将外币兑换成卢布进行结算。欧盟称此举为敲诈勒索。](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
+参考链接：[3/30/2022 文贵直播](https://gettr.com/post/p12qx7efa9e)
 
-[俄罗斯总统弗拉基米尔‧普京周四表示，他已签署一项法令，规定外国买家必须从4月1日起以卢布购买俄罗斯天然气，如果不使用卢布支付，合同将被终止。](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-[普京此举被看作是俄罗斯对西方制裁的反击。](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
+编辑/总编: 雪梨
 
-[德国经济部长罗伯特‧哈贝克表示：“对我们来说，重要的是不要发出我们将被普京勒索的信号。”](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
-
-[德国财政部长克里斯蒂安‧林德纳说：“我们坚信合同就是合同。合同以欧元为基础，因此我们将继续以欧元支付能源进口费用。”](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
-
-[法国经济部长布鲁诺‧勒梅尔回应说：“合同就是合同。”](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
-
-[英国首相鲍里斯‧约翰逊的发言人表示，“这不是我们想做的事情。”](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
-
-[分析师表示，若俄罗斯强制执行，将是局势重大升级。](https://www.epochtimes.com/gb/22/3/31/n13686807.htm)
-
-秘翻新闻 Julia编辑报道
-
-发布 : 恩典
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
