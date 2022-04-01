@@ -2,16 +2,28 @@
 ---
 
 
-## 秘翻在线：泽伦斯基总统感谢日本改变对乌克兰首都的称呼方式
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2266623/)
+## 樱花时政┃普京与意大利总理电话会谈 称停火条件尚未成熟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2266679/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/画像1-43.png)（图片源自本文链接）
-４月1日时事通信社消息：3月31日，乌克兰总统泽伦斯基发推对日本外务省决定根据乌克兰语发音将乌克兰首都的名字改为 “Khiu “表示感谢。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/樱花时政┃普京与意大利总理电话会谈-称停火条件尚未成熟.png)[图片来源](https://www.asahi.com/articles/ASQ307HH2Q30UHBI03H.html)
 
-推文说”终于到了废除我国城市名称延用旧苏联式的书写方式，改用正确的乌克兰书写方式的时候了”。并说”对日本政府已经做出改变表示感谢，希望其它国家效仿”。
+据英国广播公司报道，俄罗斯总统弗拉基米尔·普京3月30日表示，入侵乌克兰的停火“尚未成熟”。 意大利总理马里奥·德拉吉先生在次日31日的新闻发布会上透露了他与普京通电话时的内容。
 
-信息源：[「キーウ」変更、日本に謝意　ゼレンスキー氏（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1c2d588f53b4f9e07de7f7e2ba16d729724a3716)
+根据德拉吉先生的解释，他在电话交谈中建议“有必要与乌克兰总统（泽连斯基）会面，以解决最重要的问题”。 然而，普京先生回答说，“那个时刻还没到来。”
+
+信息来源：
+[プーチン氏、停戦「まだ条件は熟していない」　伊首相と電話協議](https://news.yahoo.co.jp/articles/470acfd2ae276730f6a12e4f13227796a88af40d)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,31 +2,36 @@
 ---
 
 
-## 由于中共的参与 巴基斯坦恐发生内乱
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2265928/)
+## 世卫组织报告称辉瑞疫苗导致严重耳鸣和听力损失
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2265951/)
 
-撰稿：西枫westca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1.jpg)
+翻译与编辑：冰糖葫芦喵、灭共文明
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/03/unnamed-25.jpg)图片来源：Reuters
-据《每日巴基斯坦》及多家媒体3月31日报道，巴基斯坦新闻部长法瓦德·乔杜里（Fawad Chaudhry）表示，总理伊姆兰·汗（Imran Khan）的生命处于危险之中。
+《国家邮报》3月31日报道，**世界卫生组织（WHO）发表了一份报告，援引了接种中共病毒疫苗后出现听力损失和其他听觉问题的例子。并称，一种导致耳鸣的听力问题可能和疫苗有关。**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/AAVHVe0-e1648765102380.jpg)图片来源：国家邮报。
+报道指出，**在全球接种的110亿支疫苗中，世卫组织报告了367例耳鸣病例和164例听力丧失病例**，发病时间从几分钟到19天不等，但最常见的是在接种后的一天内。
 
-巴基斯坦目前正在经历政治动荡，巴基斯坦执政党正义运动党（PTI）在中间派的关键盟友MQM-P决定改变立场并成为反对党的一部分，正式在议会中进行了不信任投票，并获得国民议会批准要求驱逐伊姆兰汗，指责他经济管理不善。最终投票将于7日内进行。
+美国明尼苏达州罗彻斯特市、**全美最佳医院梅奥诊所疫苗研究小组主任、医学博士格雷戈里·波兰**说，他在接种第二剂疫苗后出现了耳鸣。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/download-1-5.jpg)梅奥诊所疫苗研究小组主任格雷戈里.波兰（图片来源：网络）
+**波兰医生在MedPage Today的采访中，他讲述了在接种第二剂疫苗后，第一次出现耳鸣症状是他从医院开车回来的路上，他说，当时好像有人突然在我耳边吹了一个狗哨，当时差点把车开出弯道。**
 
-随着该国政治紧张局势的加剧，”暗杀总理伊姆兰·汗的阴谋正在酝酿之中。在接受Samaa电视台采访时，乔杜里说，伊姆兰汗并不关心安全，因为他认为自己是一个普通人。乔杜里还声称，该国的一些知识分子一直在反对巴基斯坦。一些媒体成员正在散布反对军队的宣传。
+他谈到自己的症状时说，他“只能开始估计我想尖叫的次数，因为我无法摆脱噪音，或者我失去了多少个小时的睡眠，” 。他说，他听到的噪音在宁静的夜晚显得特别大。
 
-有记者在在中共国外交部例行记者会上提问称，中方是否担心巴基斯坦领导人的改变会影响中巴关系？外交部发言人汪文斌回应称，中国一贯奉行不干涉他国内政原则。作为巴基斯坦全天候战略合作伙伴和友好邻邦，中方真诚希望巴基斯坦各党派保持团结，共同维护发展稳定大局。
+然而这位医生并不是个例，**全国和世界各地的人们都与波兰医生分享了他们接种疫苗后的经历，称他们在接种中共病毒疫苗后也出现了耳鸣。**
 
-郭文贵先生在昨天的大直播时已经指出，由于中共的参与，巴基斯坦会马上陷入内乱。如果发生这种情况，伊姆兰汗的下台可能会给这个拥有核武器的国家带来另一轮不稳定。在俄乌战争趋势还未分明时，中共又在世界各地煽风点火，这最终会烧到自己身上，加速共产党的灭亡速度。
+波兰医生说:“作为一名经验丰富的医生，**令人心碎的是，**我收到人们的电子邮件，说这**严重影响了他们的生活，他们告诉我他们要结束自己的生命。”**
 
-**新闻来源：**
+新闻来源链接：
 
-[PM Imran’s life is in danger: Fawad Chaudhry – The Pakistan Daily](https://thepakistandaily.com/pm-imrans-life-is-in-danger-fawad-chaudhry/#:~:text=ISLAMABAD%3A%20Information%20Minister%20Fawad%20Chaudhry%20has%20said%20that,security%20as%20he%20considers%20himself%20a%20common%20man.)
+[WHO: Pfizer vaccine potentially linked to hearing loss | National Post](https://nationalpost.com/health/who-pfizer-vaccine-potentially-linked-to-hearing-loss)
 
-[Pakistan PM Imran Khan’s life in danger as there was a plot to assassinate him, claims PTI leader (msn.com)](https://www.msn.com/en-in/news/world/pakistan-pm-imran-khans-life-in-danger-as-there-was-a-plot-to-assassinate-him-claims-pti-leader/ar-AAVGUGm?ocid=uxbndlbing)
-
-[中方是否担心巴基斯坦领导人的改变会影响中巴关系？汪文斌回应 (huanqiu.com)](https://world.huanqiu.com/article/47PrP8veWaa)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,40 @@
 ---
 
 
-## 疑有内鬼！泽伦斯基怒踢2将军 我没时间对付叛徒
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2266609/)
+## 美国白宫：未来半年每天从战略储备中释放100万桶石油
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2266622/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1-1.jpg)
-根据乌克兰媒体《Ukrinform》报导指出，乌克来总统泽伦斯基昨晚间表示已开除2乌国将军的军阶，更怒轰他们是「反英雄」，泽伦斯基强调「现在没有时间对付所有的叛徒。」
+来自新加坡早报 /
+2022年4月1日 12:24 AM 报导
+采集：玫瑰新闻组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/泽连斯基-3-e1648510541752.jpg)图片来源：美联社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB.jpg)
 
-报导内指出，泽伦斯基宣布已拔除2将军官阶，2人分别是乌克兰安全局内部安全主要部门前负责人欧列侯非奇（Naumov Andriy Olehovych），以及赫尔松区安全局前负责人欧列克山德洛菲奇（Kryvoruchko Serhiy Oleksandrovych）。
 
-泽伦斯基怒斥2人是「反英雄」，更说他现在没有其他时间能应付所有的叛徒，但会想办法让这些人都得到惩罚，泽伦斯基痛心地说「搞不清楚自己国家是哪个的高阶将领们，曾誓言保护乌国人民、家园、自由的叛徒，最终都不属于这里！」
 
-简评：若无雷霆手段，怎怀菩萨心肠！惩治叛徒就该如此，直接以雷霆手段拿掉不去耽误时间，若无如此的果敢怎能保卫乌克兰！
 
-新闻来源：[https://www.ftvnews.com.tw/news/detail/2022401W0018](https://www.ftvnews.com.tw/news/detail/2022401W0018)
 
-撰稿/发布：一叶知秋
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+
+![美国总统拜登宣布将在未来六个月内每天从战略石油储备中释放100万桶石油。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202204/20220401/2022-01-05t024249z1786243394rc2qsr9ffl43866124.jpg?VersionId=H81WhbnSkTyqvQDKA9gGJOSflI0jpAs6&amp;itok=jZfD-ddw)美国总统拜登宣布将在未来六个月内每天从战略石油储备中释放100万桶石油。（路透社）
+
+
+以下原文內容：
+
+（早报讯）美国白宫周四（3月31日）在一份声明中说，美国总统拜登宣布将在未来六个月，每天从战略石油储备中释放100万桶石油。
+
+白宫说：“这次释放的规模是史无前例的。世界上从来没有以每天100万桶的速度释放石油储备，而且持续时间这么长。这一创纪录释放将使石油供应量达到历史新高，直到今年底国内生产增加为止。”
+
+此前，拜登已两次下令大规模释放美国石油储备，包括去年11月释出5000万桶，今年3月再释出3000万桶。
+
+俄罗斯2月24日入侵乌克兰以来，美国及其盟友向世界第二大产油国俄罗斯实施严厉制裁，令买家不愿购买俄石油，促使油价飙涨。
+
+新闻链接：
+[美国未来半年每天从储备释放100万桶石油](https://www.zaobao.com.sg/realtime/world/story20220401-1258114)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
