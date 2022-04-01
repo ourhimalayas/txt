@@ -2,34 +2,30 @@
 ---
 
 
-## LG电子涉足区块链和数字资产领域
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267363/)
+## 美议员提案《稳定币透明度法》
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2267462/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-13.27.12.png)
+当地时间3月31日周四，众议员Trey Hollingsworth和参议员Bill Hagerty提出一项法案，旨在提高稳定币市场的透明度。
 
-翻译/编辑：小红帽
+目前最大的稳定币发行商Tether对其储备特别保密，从而让透明讯息远离公众，同时这也成为数字货币市场大量猜测和震荡的来源。立法者目前已经在关注稳定币市场，他们试图探索一种在不扼杀创新的情况下同时保护消费者和经济的解决方案，例如从法律上迫使稳定币发行商定期公布审计报告，展示其真实储备，提高市场的真实透明度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/LG_Phone_Reuters1.jpg)图片来源：Reuters
+该法案目前已经获得大量支持，立法者表示大为惊讶，但同时认为这是在稳定币监管方面迈出的重要一步。在尽可能达成与全球行业和消费者的广泛合作之前，立法的框架非常重要，尽管它不能解决所有问题。
 
+撰稿、发布：骄子
 
-根据COINGEEK4月1日报道，韩国消费电子巨头LG电子正在涉足区块链和数字资产领域。该公司最近宣布了新的业务领域，但指出它在这两方面都没有任何具体行动。
+* * *
 
-上周举行的股东大会批准了新的业务方向。LG概述说，在重新定义其业务的新目标中，将包括“开发和销售基于区块链的软件”和“销售和经纪加密货币”，后者被誉为推出数字货币交易所的意图。
+欢迎订阅我们的GNews账号：
 
-然而，正如当地媒体报道的那样，公司发言人拒绝证实LG是否正在进军数字货币交易所业务。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-LG对这个行业并不陌生。今年一月份，它宣布将推出一系列能够购买和显示NFT的智能电视。值得注意的是，就在三星在消费电子展上发布类似消息的第二天，LG宣布了这一举措。本月初，LG对其计划进行了更新，透露它已与Ground X（一家Kakao拥有的区块链公司）合作，推出一系列支持NFT的电视。
-
-新闻来源：[LG Electronics ventures into blockchain and digital assets](https://coingeek.com/lg-electronics-ventures-into-blockchain-and-digital-assets/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project2.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

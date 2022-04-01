@@ -2,31 +2,49 @@
 ---
 
 
-## 有声｜乌官员：俄乌信息战已演化成世界大战
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2267997/)
+## 随着上海扩大新冠封锁，2600 万人口的城市生活停滞不前
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2268075/)
 
-By:**秘翻新闻**
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-4.jpg)图片来自网络
+《路透社》近日报道，尽管官方数据显示当地病例连续第二天下降，但在政府封锁了该市 2600 万居民中的大部分以阻止新冠的传播后，中国的上海商业中心周五停工。
 
-**2022-04-01**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.png)图片来源 网络
-[综合媒体消息，俄乌战争除了在传统的物理空间进行了残酷战斗外，在人们的认知层面同样展开了一场信息大战。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
+周四晚些时候，市政府延长了东部地区现有的封锁措施，与此同时，该市西部地区如期关闭。
 
-[大纪元3月31日报道，3月26日，在卡塔尔首都多哈举行的“多哈论坛”上，乌克兰副外长扎帕罗娃说，“我相信我们正在进入第三次世界大战，它不是一场常规冲突，而是一场信息战。”](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
+新的官方指导表明，中国人口最多的城市中的许多人现在将被要求待在家里，只要能控制住疫情，被指示不要跨过家门，即使是处理垃圾或遛狗。
 
-[俄罗斯投入大量资源在媒体和社交媒体，传达其对乌克兰的入侵是“特殊行动”，而普京总统打算“使乌克兰去纳粹化”。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
+该市大部分地区的公共交通已暂停，而餐馆和购物中心等被视为非必要的企业也不得不关闭。
 
-[扎帕罗娃说，除了政治领导人，克里姆林宫还利用社交媒体、体育界人士和流行音乐家来传达其信息。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
+封锁旨在阻止大约一个月前开始的高度传染性奥米克戎变种的爆发，封锁于周一开始，原定总共持续 10 天。上海黄浦江以东地区将关闭五天，然后重新开放，因为西部地区开始关闭五天。
 
-[现代战争，除了在传统的三维空间外，还引申到第四维空间——互联网。有乌克兰官员日前表示，俄乌冲突在信息战上实际已成为世界大战。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
+但市政府表示将分阶段取消上海东部的限制措施。
 
-[另据《Newsmax》3月31日报道，英国在本周四宣布，在此前实施制裁的基础上，对另外14 家俄罗斯实体和个人实施制裁，包括对 RT 和 Sputnik 背后的国家媒体组织及其一些高层的制裁。](https://www.epochtimes.com/gb/22/3/31/n13684987.htm%20%20https://www.newsmax.com/finance/streettalk/uk-sanctions-on-russian-media-outlets-and-journalists-progapanda-disinformation/2022/03/31/id/1063716/)
+这意味着大部分地区现在都处于封锁状态，包括中国对华尔街的回应陆家嘴区的办公大楼，以及包括大众汽车与上汽集团和美国汽车制造商特斯拉的合资企业在内的工厂。
 
-秘翻新闻 二丫/Stephanie编辑
+按照全球标准，中共国的疫情规模很小。 但是，上海现在占全国四分之三的本地无症状病例，已成为国家政府处理新冠的试验台，来实验一种“动态清零”方法，旨在检测、追踪和集中隔离所有阳性病例。
 
-发布 : 恩典
+当局周五表示，该市的每日感染人数连续第二天有所下降：周四报告了 4144 例本地传播的新无症状病例和 358 例有症状病例，而前一天的相应数字分别为 5298 和 355 例。
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
+然而，一些居民对每日记录表示怀疑，质疑系统中记录阳性病例的速度有多快。上海每天都会公布发现病例的地址列表，有些人说他们的住宅区只是在邻居检测呈阳性后几天才被包括在内，或者根本不包括在内。
+
+上海市当局没有立即回应对病例数持怀疑态度的置评请求。
+
+在封锁期间，居民将被要求接受由身穿防护服的医护人员进行的多轮核酸检测。他们只被授权离开他们的公寓进行测试，在他们的住宅区或附近进行。
+
+由于公众担心传染风险，当局已要求居民在相距两米的地方排队进行检测。
+
+与此同时，据新华社周四报道，通常举办上海车展等贸易展览的上海新国际博览中心已被改造成该市最大的中央检疫中心，拥有超过 15000 个床位。
+
+香港和上海应该最初都是不想封，想走共存的路线。相对上海来说，香港的自由度还是高那么一点点，最后走了共存。而上海最初觉得自己还能和习对抗一下，习直接把不听话的官抹掉，我们已经看到多名上海官员被免职。所以胳膊拧不过大腿，最后还是只有走清零路线，而最后付出代价最大的还是中国的老百姓。
+
+参考链接：
+
+[https://www.reuters.com/world/asia-pacific/shanghai-expands-covid-lockdown-life-hold-city-26-million-2022-04-01/](https://www.reuters.com/world/asia-pacific/shanghai-expands-covid-lockdown-life-hold-city-26-million-2022-04-01/)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

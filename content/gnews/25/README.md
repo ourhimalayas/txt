@@ -2,28 +2,38 @@
 ---
 
 
-## 中日财经爆┃富力地产去年营业额大跌11% 净利亏损88亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267746/)
+## 中共政策拖垮中国经济，股票市场遇多年以来最低谷
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2267800/)
 
-撰稿：东京樱花团/peterwong
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-广州富力地产3月31日公布，受累市场气氛及经营情况均急剧下行，去年由盈转亏，录得净亏损逾88亿元人民币。
+整理/编辑：围剿维尼熊
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F0930%252F1104f2bdj00r08900000qc000go00a3c.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FGL4VGO4Q0514R9P4.html&amp;tbnid=59hr-tyNxMaVaM&amp;vet=12ahUKEwi1gYHKnvL2AhVCs6QKHR4cDccQMygIegUIARC3AQ..i&amp;docid=w6fUttqGMCj8vM&amp;w=600&amp;h=363&amp;itg=1&amp;q=%E5%AF%8C%E5%8A%9B%E5%9C%B0%E4%BA%A7&amp;ved=2ahUKEwi1gYHKnvL2AhVCs6QKHR4cDccQMygIegUIARC3AQ)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3263.jpg)图片来源：微博
 
-据周四晚间的公告，该公司去年合约销售总额为1,202亿元，销售总建筑面积941万平方米；总营业额按年跌11%至764亿元，由于入账均价售价较低以及存货估值的一次性撇减，毛利率下跌，以及由于较高的营运开支，集团年内录得股东应占亏损88.5亿元，上年同期则为净利90亿元。
 
-富力地产表示，市况恶化的另一个后果是资产估值出现减值调整，这一调整反映在存货及金融资产中，集团一次性撇减资产价值81亿元，故影响了盈利。
+根据大纪元3月31日讯，2022年第一季度，蓝筹股沪深300指数下跌近15%，深证成指下跌了18%。
 
-去年，该公司的借款总额下降270亿元或17%，及净负债比率为123%。借款净额的大幅减少乃持续努力采纳紧缩流动资金管理、减少资本开支及进行资产出售（预期于2022年将继续）的结果。
+中共对COVID-19采取严格的“清零”政策也已拖累中国经济增长和消费者信心。清零政策通常因为少量病例就大范围封锁社区和关闭工厂活动。
 
-消息来源:
+同时，俄乌战争也提升了全球商品价格，并反过来吞噬了中国国内消费品公司的利润。
 
-[富力地产去年净亏逾88亿元、借款总额降17% 料今年资产价值不会进一步恶化](https://cn.reuters.com/article/rfchina-2021-loss-0401-idCNKCS2LT2Y0?il=0)
+此外，虽然中共政府最近开始放宽房地产开发商的融资渠道，但房地产市场远未走出困境，而房市对中国经济至关重要。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+3月中旬，随着中国在岸和离岸股票暴跌，中国出现最为严重的资金外流情况。中共国务院副总理刘鹤为首的政策制定者出面安抚投资人，并承诺将采取更加有利于市场的方法，这些承诺会一定程度上阻止随后离岸股票的惩罚性抛售。
+
+圣地亚哥Brandes Investment Partners的投资总监Louis Lau说，虽然刘鹤的干预给了市场安慰，但随后北京没有推出实质性的后续政策，中国政府也没有提供足够有力的刺激计划。
+
+参考链接：[中国股市遭遇多年来最糟糕的一季度](https://www.epochtimes.com/gb/22/3/31/n13686809.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

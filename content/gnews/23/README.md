@@ -2,32 +2,23 @@
 ---
 
 
-## 中日财经爆┃中共国3月份制造业PMI创25个月新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2267757/)
+## 战后，科技中心乌克兰助力欧洲摆脱能源依赖
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2267893/)
 
-撰稿：东京樱花团/peterwong
+撰稿：纽约香草山-云豹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
+在当前俄乌战争局势下，鉴于欧洲对俄罗斯的能源依赖，郭文贵先生在3月30日的大直播中表示，欧洲不会在能源问题上向俄罗斯妥协，并称俄乌战争后，欧洲将结束对中东、俄罗斯的能源依赖。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-11.png)图片来自https://analyticsindiamag.com
+郭先生谈到，德国前总理默克尔表面上推动了欧洲三十年的经济发展，而实际上，欧洲的科技却滞后三百年，欧洲的能源命脉被俄罗斯牢牢掌控。解决能源问题唯有依赖科技的发展。值得庆幸的是，世界各大科技企业已经开启人才计划，并在乌克兰成立基地。乌克兰未来将成为欧洲的科技中心，彻底欧洲摆脱对中东和俄罗斯的能源依赖。
 
-4月1日，财新/Markit联合公布，3月经季节性调整的中共国制造业采购经理人指数(PMI)降至48.1，创2020年2月以来最低水平。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fwww.xinhuanet.com%2F2020-03%2F31%2F1125792321_15856296052541n.jpg&amp;imgrefurl=http%3A%2F%2Fwww.xinhuanet.com%2F2020-03%2F31%2Fc_1125792321.htm&amp;tbnid=ZfUTTrqjTxKCCM&amp;vet=12ahUKEwjy8ezun_L2AhW4XvEDHeKtDzwQMygPegUIARDAAQ..i&amp;docid=Dg6cjqAMvWWO6M&amp;w=899&amp;h=599&amp;q=PMI%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwjy8ezun_L2AhW4XvEDHeKtDzwQMygPegUIARDAAQ#imgrc=ZfUTTrqjTxKCCM&amp;imgdii=lgDOA5OEFp3cGM)
-Markit提供的新闻稿并显示，3月制造业新订单和产出指数亦跌至2020年2月以来最低水平，新出口订单指数为2020年5月以来最低；对未来一年经营前景的产出预期指数亦降至三个月低位。
+参考链接：[3/30/2022 文贵直播](https://gettr.com/post/p12qx7efa9e)
 
-制造商普遍反映，因疫情防控，生产运营和供应皆受影响，顾客需求受挫，此外，疫情、运输交货难、市况因乌克兰局势而更加不稳，导致销售受挫。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-国内地方收紧疫情防控措施，则令业务运营和物流受阻，供应链问题进一步加剧。3月供应商供货时间指数降至五个月最低。
+编辑/总编: 雪梨
 
-价格方面，企业反映月内多项价格上扬，尤其是原料（特别是金属）、燃料和能源。许多企业表示，价格被推高，普遍是因为国际供应链紧张，最近爆发的俄乌冲突更令问题加剧。
-
-3月投入价格指数环比上升3.1个点，创五个月高位；出厂价格指数亦环比上行0.2个点，“水涨船高”至五个月最高值，且高于该指数长期均值51.4。
-
-这和官方制造业PMI反映的现象一致。中共国3月官方制造业PMI降至五个月低点49.5，生产和新订单指数亦跌破50，供应商配送时间指数进一步下降，购进价格和出厂价格双双升高。
-
-消息来源:
-
-[财新3月中国制造业PMI创25个月新低 供应延误加剧企业成本压力上扬](https://cn.reuters.com/article/caixin-china-mar-pmi-0401-idCNKCS2LT2ZH?il=0)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
