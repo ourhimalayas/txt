@@ -2,29 +2,66 @@
 ---
 
 
-## 单分子集成生物传感器推动分子电子学新发展
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2276983/)
+## 朋友，你不孤单
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2277003/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-一家位于美国圣地亚哥的初创公司，正在致力于将单分子集成到电子生物传感器电路中，并希望这种方法可以提供一种廉价和方便的方法来检测病毒，发现环境毒素，或实时评估药物的效果。
+作者：蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-198.png)
 
-有学者在2000年时曾预言，分子电子学将超越硅基电路，使计算机芯片不断变得更密集、更强大。今年1月，美国国家科学院院刊报道了一项重大进展：一套16000个功能性分子生物传感器与半导体芯片的电路实现完全集成。这表明，这些芯片可以使用现有的制造方法以商业规模制造。
+朋友
+你还好吗
+你身上的军装好帅
+你的网上手机店
+还在运营吗
+你抛下一切
+扛起钢枪反抗侵略者
+在战场上的你
+有我在牵挂
 
-基于分子特殊结构的生物芯片，要比基于二进制的硅基电路复杂得多。成千上万的生物传感器可以同时检测不同的分子相互作用，而且这些芯片将是一次性的。据悉，该公司目前可以在一个芯片上容纳超过10000个生物传感器，并用于检测人体标志物，如维生素水平或感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6AEBF3CA-702A-4ECE-A000-11F7CFFB6186.jpeg)
 
-报道称，如果推动该设备实现更多的市场功能，例如检测早期疾病的低浓度生物标志物，则需要几十万或几百万个生物传感器。[https://www.technologyreview.com/2022/03/31/1048672/roswell-molecular-electronics-revival/](https://www.technologyreview.com/2022/03/31/1048672/roswell-molecular-electronics-revival/)
+你是乌克兰的亚历山大
+我是来自中国的一个普通人
+仅仅一场邂逅
+成为生命中挚友
+忽然的失联
+原来你上了战场
+朋友啊
+请千万小心
+当侵略者炮弹袭来时
+赶快躲在掩体下
+希望你手里的钢炮
+一次又一次
+击中侵略者装甲
 
-校对/发稿：菩提树
+我这里警报声响了又响
+疯狂轰炸在耳边轰轰作响
+一幢又一幢居民楼被炸塌
+一个个好好的家
+从眼前变成渣
+朋友
+你在前线
+我在后方
+希望我们能够活着再相见
+如果
+如果
+你不幸牺牲
+我也被炮弹击中
+我会微笑着对你说
+朋友，我陪着你
+你不孤单
+来生
+我们依然做
+最好的朋友
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
-
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-199.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

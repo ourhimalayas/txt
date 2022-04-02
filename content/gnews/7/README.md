@@ -2,41 +2,86 @@
 ---
 
 
-## 全美医院的中共病毒患者数量达到历史新低
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276976/)
+## 截至 2022 年 3 月 30 日 12 点的关于俄罗斯入侵鳥克蘭35天的動態信息
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2276987/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《美联社》诺福克，弗吉尼亚州4月1日报道，**自中共病毒疫情大爆发以来，全美医院中共病毒的住院人数下降到自疫情早期以来的最低水平。在两个多月的时间里，因中共病毒住院的患者人数下降了90%以上，一些医院首次连续几天没有患者住在ICU。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/全美患者新低.jpeg)图片来源：美联社。
-目前，住院率处于2020年夏季以来的最低水平，上周全国中共病毒平均住院人数降至1万1860人，为2020年以来的最低水平，与1月中旬创下的逾14.5万人的峰值相比大幅下降。
+作者：香草山医疗部 -信望爱
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截至 2022 年 3 月 30 日 12 点的关于俄罗斯入侵鳥克蘭35天的動態信息 :
 
-南佛罗里达大学流行病学家杰森·萨莱米说:“我们都应该微笑，因为现在医院里坐着的COVID患者和重症监护病房的患者人数都处于这个低点。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/萨莱米博士.jpg)南佛罗里达大学流行病学家杰森·萨莱米（图片来源：网络）
-虽然萨莱米表示，这是一个让不堪重负的医疗保健系统喘口气的好时机，但他警告说，公共卫生界需要密切关注欧米克隆的BA.2亚型。因为这个病毒变种的出现，推动了英国住院病例的增加，而且这种病毒目前估计占美国感染病例的一半以上。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/02-04-2022.jpg)图片来源: 网络
 
-根据美国卫生与公众服务部(U.S. Department of Health and Human Services)的数据显示，重症监护病房(ICU)病人数量也明显呈现出乐观的趋势，目前已经下降到不到2000人。
+俄羅斯普京政權继续对乌克兰进行全面武装侵略。 他們损失惨重，很可能暂时放弃了封锁基辅的任务。 重组并专注于东部作战区的进攻行动。 增加顿涅茨克和塔夫里亚地区部队的后勤和后勤支持系统。
 
-周五，加利福尼亚州的加州大学戴维斯健康中心(UC Davis Health)在推特上表示，重症监护病房两年来首次连续两天没有出现中共病毒患者。
+在沃伦方向，没有记录敌方战术单位的移动和组成的变化。 白俄罗斯共和国武装部队正在采取行动和战斗训练措施。
 
-费城的首席医疗官托尼·里德(Tony Reed)博士说，病人在天普大学卫生系统(Temple University Health System)待的时间减少了，因为核磁共振(mri)、CT扫描和实验室测试不再有积压，病人可以及时得到检查。
+在波利西亚方向，注意到敌军沿乌克兰与白俄罗斯共和国边界的移动。 与此同时，占领军继续在切尔诺贝利核电站、避难所设施和一般禁区内聚集。 因此，记录了从伊万科夫定居点向切尔诺贝利核电站方向的敌方车辆混合纵队的移动。
 
-里德博士还说，Temple Health的三家医院在周四收治了6名成年中共病毒患者，这可能是自2020年3月以来的最低人数了。
+在北方。 敌人集中力量进行破坏和侦察活动、阵地工程设备和炮击乌克兰武装部队阵地和切尔尼戈夫市附近的基础设施。
 
-哥伦布市俄亥俄州韦克斯纳医疗中心(Wexner Medical Center)的首席运营官杰伊·安德森(Jay Anderson)说，床位清空也对乡村地区的病人有帮助。在激增期间，医院面临着从社区医院接收需要加强治疗脑瘤、晚期癌症和中风患者的挑战。现在，这一负担正在减轻。
+在布罗瓦里方向，部分部队从占领者占领的地区撤向与俄罗斯联邦的边界。
 
-爱达荷州圣卢克卫生系统的首席医疗官弗兰克·约翰逊(Frank Johnson)博士说，虽然住院率下降，但并不意味着医院空着，仍然有许多患者需要治疗，我们不能掉以轻心，有些疫情措施仍需要继续实施，比如戴口罩。
+在 Slobozhansky 方向，侵略者继续封锁哈尔科夫市，并对该市居民区进行炮击。
 
-新闻来源链接：
+在伊久姆方向，敌人正在通过从其他方向转移第 20 全军和第 1 装甲军的独立部队来加大力度。 他继续发射导弹、炸弹袭击和火炮。
 
-[Number of COVID patients in US hospitals reaches record low | AP News](https://apnews.com/article/covid-business-health-pandemics-norfolk-36714eb4a053fb658e4b58139f2dd9e3)
+在顿涅茨克方向，敌军加强火力和突击行动。 继续对定居点进行空中和导弹袭击。 主要努力集中在控制波帕斯纳、鲁比日内和马里乌波尔等城市。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+南虫方向，敌方正试图采取措施恢复其部队的作战能力，补充弹药和燃料和润滑油。 继续占领边境的工程设备。 他正试图通过炮火和空袭来限制乌克兰武装部队的行动。
+
+昨天，在俄罗斯别尔哥罗德市，由于疏忽安全规则和违反弹药运输要求，发生了未经授权的爆炸事件。 这种情况是俄罗斯军人大规模使用过时危险弹药的典型例子，包括在第二次世界大战期间。 就在昨天，乌克兰武装部队总参谋部警告自爆弹药的威胁，其中大量的俄罗斯已经在切尔诺贝利核电站地区建立。
+
+俄罗斯必须立即从切尔诺贝利地区撤军。
+
+国防军继续在东部、东南部和东北部方向开展防御行动。
+
+俄羅斯普京政權从 24.02 到 30.03 的总战斗损失约为：
+
+人员 – 约 17,300 人，
+
+坦克 – 605輛 ,
+
+装甲战车 – 1723 辆，
+
+火炮系统 – 305 单位，
+
+MLRS – 96 个单位，
+
+防空系統- 54单位，
+
+飞机 – 131 架，
+
+直升机 – 131 架，
+
+汽车设备 – 1184 台，
+
+船/船 – 7个单位，
+
+油箱 – 75，
+
+无人机作战和战术级别 – 81,
+
+特殊设备 – 21,
+
+OTRK 发射器 // – 4。 正在更新数据。 高强度的敌对行动使计算变得复杂 。
+
+
+
+参考链接：
+
+[https://m.youtube.com/channel/UC10u3bDYe1HMHOQLvufXqjA](https://m.youtube.com/channel/UC10u3bDYe1HMHOQLvufXqjA)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=295&amp;height=405)
+
+编辑/校正/发稿：Petite abeille
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
