@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 12:30 PM (UTC)`
+
+2022.04.02早《新中国联邦新闻》  
+![img](https://media.gettr.com/group25/origin/2022/04/02/11/e9bfb832-2d46-7666-0ece-a642f4eeb0be/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/2/2022 8:45 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月1日第28天当日救援统计：<br/>Medyka救援站接待：约319人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8384人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 28 - Date: April 1, 2022 :<br/>Medyka Rescue Station Reception: about 319 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8384 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 新中国联邦｜真人真事 第47期 乌克兰救援特辑<br/> <br/>🔥加拿大蓝莲花农场 小小酥🔥<br/>✨乌克兰救援前线的战友们，是穿越火线、可以直面生死的勇士；是雪中送炭，救人于危难的天使；是将邪恶中共和中国人分开的践行者，是热爱自由和平的新中国联邦人的杰出代表。身在乌克兰前线的小小酥战友，将座客《新中国联邦｜真人真事》，亲身讲述发生在救援前线的精彩且感人的故事！我们不见不散！<br/>⭐主持人：正义的小新、长岛哥<br/>⭐嘉宾：小小酥 <br/>⭐美东时间：4/2 周六早 10:30  <br/>    北京时间 : 4/2 周六晚 10:30<br/>⭐直播平台：Miles Guo Gettr@MILES
 ![img](https://media.gettr.com/group32/origin/2022/04/01/22/87d80e09-4e23-6449-fdb7-d809865e203f/75e6b1e1f33756998a22bafe8eb5352b.jpg)
-
----
-
-`@miles 4/1/2022 10:01 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-01<br/>For English @Gtranslators_1
-![img](https://media.gettr.com/group37/origin/2022/04/01/21/43cd8104-350b-c66a-61c8-fb8b411612a7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
