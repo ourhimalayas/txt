@@ -2,29 +2,34 @@
 ---
 
 
-## 泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273731/)
+## 俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273694/)
 
-撰稿: 纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-3.png)
-据国外媒体3月30日报导，在对挪威议会的讲话中，乌克兰总统泽连斯基呼吁欧盟和挪威禁止俄罗斯船只使用欧洲大陆的港口。他强调，只要俄罗斯封锁其他国家的港口，它就应该被禁止使用任何自由世界的港口，这是全球航行的自由和安全问题，而不是金钱问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-134.png)
-泽连斯基感谢挪威加入欧盟对俄罗斯的制裁，并强调，欧洲公司绝不能帮助俄罗斯的军事机器，这个机器已经杀死了数千个乌克兰人，摧毁了数十座城市。
+**图/文｜CP **
+**发布时间｜02/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄軍中輻射逃離切爾諾貝利-IAEA率團前往援助.jpg)
 
-他坚信，制裁是唯一能够迫使俄罗斯寻求和平的手段，因此必须连续每周推出新的制裁方案。对俄罗斯的制裁越严厉，和平就会越早恢复。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-另据报道，美国副国务卿谢尔曼在联合国安理会简报会上表示，俄罗斯海军在黑海地区拦截了90多艘为世界市场运送粮食的民用船只。
 
-俄罗斯还在从博斯普鲁斯海峡到奥德萨的航线上布置了水雷，并污蔑说那些水雷是乌克兰的。乌克兰坚持要求俄罗斯对在黑海无节制地使用水雷滥杀无辜承担责任。
+国际原子能机构（IAEA）负责人格罗西（Rafael Grossi）周五（1日）表示，他将会率领团队前往切尔诺贝利（Chernobyl）核电厂，以协助确保当地核设施安全，并于加里宁格勒与俄罗斯高级官员举行会谈。
 
-参考链接: [Zelensky asks EU and Norway to close ports to Russian ships](https://menafn.com/1103939457/Zelensky-asks-EU-and-Norway-to-close-ports-to-Russian-ships&amp;source=138)
+乌克兰国家核电公司（Energoatom）日前证实，所有占领切尔诺贝利核电厂的俄罗斯士兵已经完全撤离。负责管理禁区的 Energoatom 员工表示，目前核电厂“已无外来人”，俄军撤离后向白罗斯方向进发，该员工还提供了俄方和核电厂签订的协议，显示俄罗斯同意将核电厂管理权交还。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+另外，Energoatom还证实，早前俄军在未有防辐射装备的情况下，于高辐射区挖战壕，导致不少士兵身体出现疑似受辐射感染的症状，造成军心大乱，“士兵之间几乎开始酝酿暴动”，不久后俄军就陆续撒走。
 
-编辑/总编/审核:飞虹
+路透社本周一引述核电厂工作人员指，亲眼目睹俄军士兵不穿防护衣，驾车穿过辐射污染最严重的“红森林”（Red Forest）区，当时工作人员就很担心军车驶过所扬起的放射性尘埃会被士兵吸入体内，发生内放射反应。
 
-校对/发稿: 浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-4.png)
+红森林位于基辅以北约100公里的地方，切尔诺贝利核电厂1986年发生核灾时，该地数十平方公里的松树因吸收了大量辐射后而变红，因此得名“红森林”，它被认为是世界上最严重的核灾区之一，由于高度污染，甚至连核电厂的员工都不被允许进入。
+
+俄军在入侵乌克兰后一度占领切尔诺贝利，IAEA多次要求俄乌双方召开紧急会议商定协议，以确保核设施安全，惟一直不获俄方重视。
+
+來源｜[路透社](https://www.reuters.com/world/europe/iaeas-grossi-says-will-head-mission-chernobyl-soon-possible-2022-04-01/)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3444941-russian-invaders-leaving-chornobyl-npp-energoatom.html)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

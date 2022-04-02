@@ -2,29 +2,23 @@
 ---
 
 
-## 俄军用磷弹轰击顿涅茨克地区 造成人员伤亡
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2274918/)
+## 视频|梅迪卡难民营迎来年龄最大的难民—一位81岁的乌克兰老奶奶「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2275119/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-2.jpg)
+制作团队：大直播短视频组
 
-（图片来自原文）
+视频制作：隧道尽头的光
 
-顿涅茨克（Donetsk）地区军事管理局局长帕夫洛-基里连科（Pavlo Kirilenko）在电报上说，俄罗斯军队继续连夜炮击顿涅茨克（Donetsk）地区中部，在马林卡（Marinka）、克拉斯诺霍里夫卡（Krasnohorivka）和诺沃米哈伊夫卡（Novomykhailivka）地区，俄罗斯军队再次使用了磷弹，导致乌克兰百姓受伤。
+文案编辑：billwilliam
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+发稿：qiutian（邱甜）
 
-据基里连科Kirilenko称，马林卡社区的11名受伤百姓被送往库拉霍夫斯卡（Kurakhivska）市医院，其中包括4名儿童。
-
-俄罗斯军队于3月31日上午炮击了奥切列季斯卡市（Ocheretynska），造成两人受伤。
-
-基里连科补充说，饮用水和食物继续被运送到前线社区。百姓的疏散工作也在进行。
-
-地区军事管理局局长敦促所有发现自己在前线并依赖特定药品和医疗服务的人利用这个机会离开该地区。
-
-新闻来源链接：[https://www.pravda.com.ua/eng/news/2022/03/31/7335995/](https://www.pravda.com.ua/eng/news/2022/03/31/7335995/)
-
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
-
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
