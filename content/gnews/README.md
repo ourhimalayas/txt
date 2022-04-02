@@ -15,95 +15,95 @@
 
 ---
 
-### [4/2/2022 文贵盖特：中共隔三差五会花钱雇所谓严肃媒体来污蔑我们，那又怎样？中共给咱们做的“广告“比咱自己说自己有效多了](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/2/2022 文贵盖特：文贵要参加很多关于新中国联邦和国际合作的会；中共病毒的危害以及中共的疯狂与邪恶将让中国人付出巨大的代价，只有灭共才能解决世界上所有的问题](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [特鲁多政府雇佣“网红”鼓动民众打疫苗](/content/gnews/3/README.md)
+### [澳大利亚参议员批评世界经济论坛“渗透”特鲁多内阁](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共于3月31日派出11架军机扰台](/content/gnews/4/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [4/2/2022 文贵盖特：中共隔三差五会花钱雇所谓严肃媒体来污蔑我们，那又怎样？中共给咱们做的“广告“比咱自己说自己有效多了](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [有声|81岁老人徒步逃离战乱 新中国联邦送温暖](/content/gnews/5/README.md)
- ` MOSREC`
+### [俄乌战争的“没想到”之二](/content/gnews/3/README.md)
+ ` 蓝莲花农场`
 
-### [年年打虎虎更多，中共体制无可救药](/content/gnews/6/README.md)
+### [4/2/2022 文贵盖特：文贵要参加很多关于新中国联邦和国际合作的会；中共病毒的危害以及中共的疯狂与邪恶将让中国人付出巨大的代价，只有灭共才能解决世界上所有的问题](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [粮食进口第一大国竟称“农业强国”？](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|盖特严肃对待俄罗斯信息，确保用户言论自由](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [专家称安大略进入第六波冠状病毒期](/content/gnews/8/README.md)
+### [特鲁多政府雇佣“网红”鼓动民众打疫苗](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|谈“弃掉知识”](/content/gnews/9/README.md)
+### [中共于3月31日派出11架军机扰台](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|81岁老人徒步逃离战乱 新中国联邦送温暖](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [俄乌战争的“没想到”之一](/content/gnews/10/README.md)
- ` 蓝莲花农场`
-
-### [观察：俄罗斯被掏肛模式开启了！](/content/gnews/11/README.md)
- ` 蓝莲花农场`
-
-### [有声|欧盟投票监测加密货币交易——生态系统有哪些风险？](/content/gnews/12/README.md)
+### [有声|盖特严肃对待俄罗斯信息，确保用户言论自由](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [监督机构发现，美国国立卫生研究院（NIH）删除了武汉病毒实验室关于新冠肺炎基因测序的信息](/content/gnews/13/README.md)
+### [有声|谈“弃掉知识”](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [俄乌战争的“没想到”之一](/content/gnews/11/README.md)
+ ` 蓝莲花农场`
+
+### [观察：俄罗斯被掏肛模式开启了！](/content/gnews/12/README.md)
+ ` 蓝莲花农场`
+
+### [有声|欧盟投票监测加密货币交易——生态系统有哪些风险？](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [监督机构发现，美国国立卫生研究院（NIH）删除了武汉病毒实验室关于新冠肺炎基因测序的信息](/content/gnews/14/README.md)
  ` KarmaLabs`
 
-### [乌要求欧洲四国关闭与俄及白俄罗斯的边界](/content/gnews/14/README.md)
+### [乌要求欧洲四国关闭与俄及白俄罗斯的边界](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月2日早](/content/gnews/15/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月2日早](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [【粤语配音】2022年4月2日： 共产党隐瞒战争、病毒、疫苗、封城的真相](/content/gnews/16/README.md)
+### [【粤语配音】2022年4月2日： 共产党隐瞒战争、病毒、疫苗、封城的真相](/content/gnews/17/README.md)
  ` MOS香港部`
 
-### [封城加剧官民冲突 沪某居委会集体罢工](/content/gnews/17/README.md)
+### [封城加剧官民冲突 沪某居委会集体罢工](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [阿布拉莫维奇10亿美元的游艇舰队被曝光](/content/gnews/18/README.md)
+### [阿布拉莫维奇10亿美元的游艇舰队被曝光](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [欧盟警告中共不要干涉西方对俄罗斯的制裁](/content/gnews/19/README.md)
+### [欧盟警告中共不要干涉西方对俄罗斯的制裁](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [从海外华人圈生态圈怪相——品中共无教育无信仰带给中国人的悲剧-文字及视频](/content/gnews/20/README.md)
+### [从海外华人圈生态圈怪相——品中共无教育无信仰带给中国人的悲剧-文字及视频](/content/gnews/21/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [中美两国的监管机构正在努力解决审计争议](/content/gnews/21/README.md)
+### [中美两国的监管机构正在努力解决审计争议](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年4月2日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
+### [2022年4月2日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【转】截至4.2 俄乌战事汇总](/content/gnews/23/README.md)
+### [【转】截至4.2 俄乌战事汇总](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [《避风港Haven》直播内容精选（第一集）](/content/gnews/24/README.md)
+### [《避风港Haven》直播内容精选（第一集）](/content/gnews/25/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [2022年4月1日郭文贵先生大直播全文字版](/content/gnews/25/README.md)
+### [2022年4月1日郭文贵先生大直播全文字版](/content/gnews/26/README.md)
  ` 温哥华扬帆农场《文贵大直播》全文听写组`
 
-### [俄羅斯前總統梅德韋傑夫說：烏克蘭危機比冷戰更糟糕](/content/gnews/26/README.md)
+### [俄羅斯前總統梅德韋傑夫說：烏克蘭危機比冷戰更糟糕](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄罗斯前总统梅德韦杰夫说：乌克兰危机比冷战更糟糕](/content/gnews/27/README.md)
+### [俄罗斯前总统梅德韦杰夫说：乌克兰危机比冷战更糟糕](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [史上首次：大多数芬兰人支持加入北约](/content/gnews/28/README.md)
+### [史上首次：大多数芬兰人支持加入北约](/content/gnews/29/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [被制裁的寡头正在努力支付账单，不确定是否能雇用清洁工或司机](/content/gnews/29/README.md)
+### [被制裁的寡头正在努力支付账单，不确定是否能雇用清洁工或司机](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国对俄罗斯作出新一轮制裁](/content/gnews/30/README.md)
- ` NFSC News`
 
 ### [若中共国向俄提供武器，英国威胁将实施制裁](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`

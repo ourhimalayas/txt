@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-02<br/>For English @Gtranslators_1
+![img](https://media.gettr.com/group35/origin/2022/04/02/21/7c03a0ae-e94e-1efe-8749-4d514e04b76d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/2/2022 9:48 PM (UTC)`
 
 The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iron birds, how are children's once hopeful eyes filled with despair.<br/><br/>Train stations are crowded with farewells, and lovers who’ve vowed to grow old together are waving possible last goodbyes.<br/><br/>While Kiev was shrouded in fear, the people of the NFSC gathered together to bring love, peace, joy, and faith back to earth.<br/><br/>NFSC’s white tent at Medyka is a beacon of light in the darkness. Himalaya’s way, the hope of humanity.<br/><br/>《梅迪卡的白色帐篷》<br/><br/>这天空怎么就突然布满了黑色铁鸟，孩子的眼中怎么那么迷茫。<br/><br/>车站到处都是最后的告别，情侣道出了再见，可能再也不见了。<br/><br/>基辅的空气只有恐惧笼罩，此时新中国联邦人聚集在一起，把美好，爱，温暖，和平，快乐，信仰重新带到人间。<br/><br/>新中国联邦的帐篷一定会唤醒人间的正义！
@@ -147,13 +154,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 4/1/2022 Ukraine Rescue: From hesitation towards the Chinese people to forming a family of mutual support - Fellow fighter Ming Dao talks about how the international rescue organizations in Medyka get along with the rescue team of the New Federal State of China. The professional military personnel, police, and volunteers in the rescue camp are united, sharing information to keep each other in the loop and protecting themselves.<br/><br/>4/1/2022 乌克兰救援连线：从对中国人的迟疑到形成互助的大家庭 - 明道战友谈梅迪卡的国际救援组织跟新中国联邦救援团队相处的历程；营地的职业军人、警察和志愿者们团结在一起互通信息、互相保护<br/>
 ![img](https://media.gettr.com/group22/getter/2022/04/02/03/04074865-ddbe-7110-9251-dee959e1af9f/out.jpg)
-
----
-
-`@miles 4/2/2022 3:07 AM (UTC)`
-
-
-![img](https://media.gettr.com/group5/origin/2022/04/02/03/9e3eeb85-c0ce-2fb8-db38-d707676f00f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
