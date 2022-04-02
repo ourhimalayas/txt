@@ -2,39 +2,12 @@
 ---
 
 
-## 美国总统：我们不会被打到！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2272635/)
+## 退役将军霍奇斯：俄军非常中心化的决策流程是俄军将领被杀的原因
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2272824/)
 
-采集：玫瑰新闻组
+03/31/2022 退役将军霍奇斯：俄军非常中心化的决策流程是俄军将领被杀的原因，将领必须亲自出征解决问题因而被置于险境。
 
-![此图像的alt属性为空；文件名为G%E6%96%B0%E9%97%BB-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-2.jpg)
-
-
-
-
-
-
-
-so much experience you are the leader of this country
-
-你有这么丰富的经验，你是这个国家的领导者
-
-拜登总统：
-
-Because it is ridiculous.
-
-因为这太荒谬了
-
-Nobody believes we’re going to take down… I was talking about taking down Putin.
-
-没有人相信我们会打倒，我说的是要打倒普京
-
-Nobody would believe that
-
-没有人相信
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

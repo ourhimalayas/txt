@@ -2,36 +2,24 @@
 ---
 
 
-## 拜登计划每天从战略储备中释放多达100万桶石油
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2272888/)
+## 【秘翻在线】欧盟将立法加强对加密资产的管束
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2273021/)
 
-*评论：从5月开始的6个月内，美国预期将每天释放100万桶战略石油储备，以降低高昂的燃料成本。6个月内总共释放1.8亿桶石油，这是美国自1974年建立石油储备计划以来规模最大的释放量。然而，全球每天消耗石油约1亿桶，这些释放对降低石油价格能起到多大帮助，还是未知数。期待新的世界秩序形成之后，郭文贵先生所述的清洁能源能尽快走入寻常百姓家。*
+#### 编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-109.png)图片来源： 网络图片合成
+欧洲议会官网4月1日发布新闻，将立法追踪监管加密资产的转移，以阻止其继续被利用于洗钱、和对恐怖活动或其他犯罪的融资。
 
-据《Just the News》记者[Sophie Mann](https://justthenews.com/sophie-mann)，2022年3月31日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-106.png)美国总统拜登。 图片来源：Patrick Semansky/AP
-为试图在一定程度上控制美国不断飙升的能源价格，美国总统拜登(Biden)将下令每天从国家战略石油储备中释放多达100万桶石油。
+3月31日，欧洲议会“经济和货币事务委员会 (ECON) ”和“公民自由委员会 (LIBE) ” 以 93 票赞成、 14 票反对、 14 票弃权通过了欧盟新一轮反洗钱计划中的一项立法草案，确保比特币、或其他电子代币等加密资产的转移能够像传统汇款那样可追踪。
 
-据美联社报道，该公告最早可能在周四发布，届时拜登计划就其政府应对油价上涨的计划发表评论。
+其中的一些主要措施包括：任何交易额的加密资产转让，都需要向主管当局提供资产来源及受益人信息，包括非托管钱包（由私人用户保管的加密资产钱包）的交易，但不包括个人之间不涉及加密货币供应商或平台的交易。设立高风险实体的公共名簿，记录所有不合规的、可能涉及洗钱或恐怖犯罪的加密资产供应或服务商家。
 
-目前还不清楚每天的释放会持续多长时间，但该通讯社也报道说，这项措施可能会持续几个月。
+该草案预计将于欧洲议会4月全体会议期间进行表决。目前欧盟尚没有任何法规允许追踪和监管加密资产的转移，该法案将解决这方面的监督和执行不力的问题。
 
-在弗拉基米尔·普京入侵乌克兰之前，燃料价格就已经在上涨，现在又创下了40年来的新高，导致拜登的支持率进一步下跌，因为美国人觉得他们的钱包在缩水。
+*责编：白夜*
 
-这将是美国政府第三次宣布从战略储备中释放数百万桶石油。根据负责管理紧急供应的美国能源部(Energy Department)的数据，上周美国石油储备超过5.68亿桶。
+**新闻来源：** [Crypto assets: new rules to stop illicit flows in the EU](https://www.europarl.europa.eu/news/en/press-room/20220324IPR26164/crypto-assets-new-rules-to-stop-illicit-flows-in-the-eu)
 
-* * *
 
-文章来源：[https://justthenews.com/government/white-house/biden-plans-release-1-million-barrels-oil-day-strategic-reserve](https://justthenews.com/government/white-house/biden-plans-release-1-million-barrels-oil-day-strategic-reserve)
-
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

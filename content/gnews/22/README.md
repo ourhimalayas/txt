@@ -2,26 +2,37 @@
 ---
 
 
-## 中共被指对乌克兰军事和核设施发动重大网络攻击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2272521/)
+## 所罗门群岛将不允许中共国建军事基地
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2272569/)
 
-#### 撰稿：彩虹  
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-#### 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-98.png)图片来源：卫报
-据《国会山报》4月1日文章，据英国《泰晤士报》（The Times）获得的乌克兰情报报告称，在俄罗斯入侵乌克兰之前，中共对乌克兰的军事和核设施发动了一次重大网络攻击。
+翻译：攀登者
+编辑：文泓
 
-报道称，乌克兰安全局表示，中共政府试图入侵属于政府和其他重要机构的600多个网站。这些攻击在北京举行的2022年冬奥会结束前开始，并在2月23日俄罗斯军队入侵乌克兰的前一天升级。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2_LUUUUV_GT7Y1R47CJ.png)图片来源：DW & 雅典娜设计组
 
-乌克兰安全局称，中共试图入侵一些机构，包括乌克兰的国防军、国家银行和铁路局，这些攻击的目的是窃取数据，并找到破坏或关闭乌克兰国防和关键基础设施的方法。
 
-文章指，虽然中国没有公开宣布支持或反对乌克兰战争，但一些专家说，这并不意味着中共没有在幕后帮助。
+尽管打算与北京签署安全条约，但所罗门群岛表示，它不允许中国在这个太平洋岛屿国家建立军事设施，该设施会引发地区不稳定。
 
-*责编：白夜*
+在两国官员草签安全协议草案一天后，所罗门群岛总理马纳塞·索加瓦雷办公室周五表示，该协议不鼓励中国建立军事设施。
 
-**新闻来源**
+一份声明称，政府已意识到（外国）拥有军事基地对安全的影响，但没有透露与中国的安全协议的内容，一份泄露的草案中允许中共海军舰艇在这些岛屿上加油，引起了人们的担忧。
 
-[Ukraine intelligence accuses China of hacking days before invasion: report](https://thehill.com/policy/cybersecurity/3256792-ukraine-intelligence-accuses-china-of-hacking-days-before-invasion-report/)
+周四，密克罗尼西亚联邦元首鼓励所罗门群岛不要签署安全条约，理由是存在“严重的安全问题”，并担心将南太平洋将卷入中美之间的冲突；新西兰也反对该条约，声称它将危及区域安全。
+
+周五，澳大利亚国防部长彼得·达顿建议索加瓦雷谨慎行事。
+
+他在接受天空新闻采访时表示，尽管向美国承诺不会使南中国军事化，但中共在南海建立了20个军事存在点，堪培拉认为北京在太平洋岛屿上也遵循类似的路线。他们想在巴布亚新几内亚有一个军港，斯里兰卡已有一个，显然正在寻找其他地方。中国在所罗门群岛的军事基地将促使澳大利亚大幅增加其在该地区的军事部署，因为这些岛屿离澳大利亚非常近。
+新闻链接：[所罗门群岛不允许中国军事基地，我们知道“后果”](https://www.wionews.com/world/wont-allow-chinese-military-base-and-know-ramification-solomon-islands-467309)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

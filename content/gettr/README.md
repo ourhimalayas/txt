@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 5:00 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group25/origin/2022/04/02/04/92c64602-0eae-b872-ab44-b13aecb5171c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/2/2022 3:53 AM (UTC)`
 
 4/1/2022 Ukraine Rescue: From hesitation towards the Chinese people to forming a family of mutual support - Fellow fighter Ming Dao talks about how the international rescue organizations in Medyka get along with the rescue team of the New Federal State of China. The professional military personnel, police, and volunteers in the rescue camp are united, sharing information to keep each other in the loop and protecting themselves.<br/><br/>4/1/2022 乌克兰救援连线：从对中国人的迟疑到形成互助的大家庭 - 明道战友谈梅迪卡的国际救援组织跟新中国联邦救援团队相处的历程；营地的职业军人、警察和志愿者们团结在一起互通信息、互相保护<br/>
@@ -147,13 +154,6 @@
 
 2022.04.01  NFSC health 新中国联邦 | 喜健康  从东航坠机看巨大心理危机
 ![img](https://media.gettr.com/group12/origin/2022/04/01/20/7be5e631-2f1f-8468-815d-965f310efa93/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/1/2022 6:07 PM (UTC)`
-
-
-![img](https://media.gettr.com/group33/origin/2022/04/01/17/290902a6-d41e-d60c-869c-3fe3d55e4880/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
