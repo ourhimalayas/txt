@@ -2,37 +2,29 @@
 ---
 
 
-## 恒大子公司称95%的项目已复工
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2274353/)
+## 有声｜法官否决了纽约的强制幼儿口罩规定
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2274483/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+By:**秘翻新闻**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+**2022-04-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-3.png)图片来源 千禧年邮报
+[据《千禧年邮报》4月1日报道，纽约斯塔滕岛的一名法官周五推翻了纽约市对幼儿的强制口罩规定，将中共病毒的限制措施称为随意的、任性的和不合理的，并对其发出了永久禁令。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
+[法官拉尔夫·波尔齐奥的单页裁决反击了市长的计划，对五岁以下儿童的强制口罩规定将从下周一结束。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0143.jpg)
+[3月初，纽约市市长亚当斯已经取消了对所有居民的限制性口罩任务，但不包括该市2至4岁的最年轻人口。尽管在整个大流行期间，儿科病例一直很低，低龄儿童的感染率在人口统计学数据上是最低的。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
+[但据纽约全国广播公司报道，纽约市长亚当斯周五晚些时候表示，该市将对法院的裁决提出上诉，寻求暂停波尔齐奥的裁决。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-图片来源：路透社
+[亚当斯在推特上表示，由于目前的感染人数，我们将继续要求2-4岁的儿童在学校里戴口罩。并将继续评估这些数字，在一周内向纽约人通报最新情况。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-陷入困境的房地产开发商中国恒大集团（3333.HK）的一家子公司表示，截至 3 月底，恒大在全国 95% 的项目已复工。
+秘翻新闻 Grace编辑报道
 
-据开发商珠三角事业部官方微信消息，截至 3 月 27 日，恒大已在全国复工 734 个项目，其中 424 个项目恢复到正常建设水平。该帖子没有给出恒大开发总数的数字。
+发布 : 恩典
 
-恒大是全球负债最多的房地产开发商，负债超过 3000 亿美元。它正在努力偿还债券持有人、银行、供应商，以及向买家交付房屋，这体现了一个受中国政府去杠杆运动影响的臃肿行业。
-
-恒大将“继续维持项目的正常建设，不惜一切代价保质保量地交付业主”。
-
-公司董事长许家印自2021年起多次承诺，公司将全力复工，确保送货上门。
-
-据直接了解此事的消息人士和媒体报道，许在 2 月份告诉员工，该公司的目标是在 2022 年交付 60 万套公寓。
-
-简评：恒大自称其项目复工复产， 许家印的从2021年就多次承诺， 每次都没有兑现， 这次能吗？答案是肯定的。 文章中也明确的指出了， 恒大地产负债超过3000亿。这是十分保守的负债， 继续出来骗人是本质。 真希望老百姓别再上当了。
-
-🔗[https://www.reuters.com/world/china/construction-has-resumed-95-china-evergrande-projects-unit-says-2022-04-02/](https://www.reuters.com/world/china/construction-has-resumed-95-china-evergrande-projects-unit-says-2022-04-02/)
-
-编辑发表： Shuizhuyu
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

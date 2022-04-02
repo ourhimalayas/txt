@@ -2,46 +2,40 @@
 ---
 
 
-## 开始了！BBC主持人在节目现场与骗子福奇对峙
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
+## 墙内疫情封控见闻几则
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2274287/)
 
-翻译： Jenny Ball
+作者：纽约香草山教育部—霍比特人
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1、当执勤队伍排着整齐的方阵欲进入某地（一说常州一说上海）一个小区时，意外地被小区居民拦在了大门外。他们问执勤队伍，你们有48小时内的核酸报告吗？有文章评论说，“这个发问非常可爱，因为大多数时候，我们都是属于被问的一方。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
+2、据一位亲身经历上海浦东核酸检测大筛查的医务人员记述，在检测中各种状况层出不穷。检测人员按社区要求一大早到达指定地点却见不到社区工作人员；检测期间有居民抽着烟随意走动遛狗；有些居民不按规定时间来做检测；有居民死活不做检测，怕被人趁机获取他的DNA信息；社区工作人员连一人一套防护服都不能保证；有些家庭就一个老人行动不便不能下楼，却全家呆在楼上坐等医护上门检测；有些要求上门检测的居民则完全没有任何行动不便；有不做检测不该下楼的居民随意下楼，而几次大声通知之后，有些应该下楼做检测的居民却还是不下楼；有些人到了检测结束的时间，当医务人员都换掉了防护服收拾好东西准备离开的时候却突然冲下来，与医务人员和社工大吵特吵。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/浦东测核酸1.jpg)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/浦东测核酸2.jpg)
 
-2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
+3、上海金山某隔离点居然有婴幼儿隔离床，不准大人陪护，场面一片混乱，此事已经引起公众的强烈不满，被广为传播。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2022/04/婴幼儿隔离1.jpg)
 
-福奇博士说他被“误解了”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/婴幼儿隔离2.jpg)
 
-这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
+目前上海等地防疫封控已渐呈疲态，残酷激烈的上层政治斗争与半愚昧半朴素的底层民众间小摩小擦的酸甜苦辣交织着，靠数量众多的基层政府和社区工作人员勉强维持着社会的秩序和平衡，形势岌岌可危。
 
-对合法的新闻服务有所了解一定不错。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
 
-遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
-
-我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
-
-BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
-
-新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-审核：文乐     
-校对：信心满满
-发布：五通庙
+编辑：霍比特人
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

@@ -2,29 +2,47 @@
 ---
 
 
-## 泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273731/)
+## 开始了！BBC主持人在节目现场与骗子福奇对峙
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
 
-撰稿: 纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-3.png)
-据国外媒体3月30日报导，在对挪威议会的讲话中，乌克兰总统泽连斯基呼吁欧盟和挪威禁止俄罗斯船只使用欧洲大陆的港口。他强调，只要俄罗斯封锁其他国家的港口，它就应该被禁止使用任何自由世界的港口，这是全球航行的自由和安全问题，而不是金钱问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-134.png)
-泽连斯基感谢挪威加入欧盟对俄罗斯的制裁，并强调，欧洲公司绝不能帮助俄罗斯的军事机器，这个机器已经杀死了数千个乌克兰人，摧毁了数十座城市。
+翻译： Jenny Ball
 
-他坚信，制裁是唯一能够迫使俄罗斯寻求和平的手段，因此必须连续每周推出新的制裁方案。对俄罗斯的制裁越严厉，和平就会越早恢复。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
-另据报道，美国副国务卿谢尔曼在联合国安理会简报会上表示，俄罗斯海军在黑海地区拦截了90多艘为世界市场运送粮食的民用船只。
 
-俄罗斯还在从博斯普鲁斯海峡到奥德萨的航线上布置了水雷，并污蔑说那些水雷是乌克兰的。乌克兰坚持要求俄罗斯对在黑海无节制地使用水雷滥杀无辜承担责任。
 
-参考链接: [Zelensky asks EU and Norway to close ports to Russian ships](https://menafn.com/1103939457/Zelensky-asks-EU-and-Norway-to-close-ports-to-Russian-ships&amp;source=138)
+2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
 
-编辑/总编/审核:飞虹
+福奇博士说他被“误解了”。
 
-校对/发稿: 浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-4.png)
+这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
+
+对合法的新闻服务有所了解一定不错。
+
+遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
+
+我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
+
+BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
+
+新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+审核：文乐     
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,104 +15,104 @@
 
 ---
 
-### [秘翻在线：联合国教科文组织: &#8220;俄罗斯摧毁50处以上乌克兰遗址&#8221;](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [日本东京樱花团 中文新闻播报第40期](/content/gnews/1/README.md)
+ ` Tokyo Sakura Video Group`
 
-### [中共是如何利用抖音和脸书是进行宣传的 -2](/content/gnews/2/README.md)
+### [大直播后记：正义邪恶力量对比](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共是如何利用抖音和脸书进行宣传的 -5](/content/gnews/3/README.md)
  ` topnews`
 
-### [意大利钢琴家演奏，祝明道回家一路平安](/content/gnews/3/README.md)
+### [中共是如何利用抖音和脸书进行宣传的 -4](/content/gnews/4/README.md)
+ ` topnews`
+
+### [秘翻在线：哈萨克斯坦“支持乌克兰领土完整”](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [大直播后记：中共面临内外交困，老百姓生活在水生火热之中](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共是如何利用抖音和脸书进行宣传的 -3](/content/gnews/7/README.md)
+ ` topnews`
+
+### [在中共国被拘留的澳大利亚记者开始受审](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：联合国教科文组织: &#8220;俄罗斯摧毁50处以上乌克兰遗址&#8221;](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共是如何利用抖音和脸书是进行宣传的 -2](/content/gnews/10/README.md)
+ ` topnews`
+
+### [意大利钢琴家演奏，祝明道回家一路平安](/content/gnews/11/README.md)
  ` 波士顿五月花农场`
 
-### [中共是如何利用抖音和脸书进行宣传的 -1](/content/gnews/4/README.md)
+### [中共是如何利用抖音和脸书进行宣传的 -1](/content/gnews/12/README.md)
  ` topnews`
 
-### [灭共大势所趋，新中国联邦正成为主角](/content/gnews/5/README.md)
+### [灭共大势所趋，新中国联邦正成为主角](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [只为真相！传泽伦斯基每天只睡2小时 每4天走出掩体](/content/gnews/6/README.md)
- ` 蓝莲花农场`
+### [中共用3F计划搞乱､搞弱､搞死美国,快速灭共是美国唯一选项](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [有声｜乌克兰至少 53 个重要文化遗址遭到破坏](/content/gnews/7/README.md)
+### [有声｜乌克兰至少 53 个重要文化遗址遭到破坏](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜法官否决了纽约的强制幼儿口罩规定](/content/gnews/8/README.md)
+### [有声｜法官否决了纽约的强制幼儿口罩规定](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜中共国称 将以自己的方式谋求乌克兰和平](/content/gnews/9/README.md)
+### [有声｜中共国称 将以自己的方式谋求乌克兰和平](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [欧盟警告习不要默许俄罗斯的侵略行径](/content/gnews/10/README.md)
+### [秘翻在线：俄乌首脑会谈将在土耳其举行?](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄装备多数乌制 传俄军武器用尽无库存可补](/content/gnews/11/README.md)
- ` 蓝莲花农场`
-
-### [秘翻在线：俄乌首脑会谈将在土耳其举行?](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声｜美国医院的中共病毒患者人数创历史新低](/content/gnews/13/README.md)
+### [有声｜美国医院的中共病毒患者人数创历史新低](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;日本辉瑞第三针后全身冰冷高烧](/content/gnews/14/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;日本辉瑞第三针后全身冰冷高烧](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [大直播后记： 安红谈PAG及民众的觉醒](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [恒大子公司称95%的项目已复工](/content/gnews/16/README.md)
+### [恒大子公司称95%的项目已复工](/content/gnews/21/README.md)
  ` Shuizhuyu`
 
-### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;第三针摩德纳打进ICU](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [墙内疫情封控见闻几则](/content/gnews/18/README.md)
+### [墙内疫情封控见闻几则](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [秘翻在线:中东会是下一个战乱之地?](/content/gnews/19/README.md)
+### [秘翻在线:中东会是下一个战乱之地?](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟立法者支持追踪加密货币转账的新规则](/content/gnews/20/README.md)
+### [欧盟立法者支持追踪加密货币转账的新规则](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：中共病毒(COVID-19)确诊患者后遗症&#8221;最多79%&#8221;&#8230;疲劳·健忘等](/content/gnews/21/README.md)
+### [秘翻在线：中共病毒(COVID-19)确诊患者后遗症&#8221;最多79%&#8221;&#8230;疲劳·健忘等](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [开始了！BBC主持人在节目现场与骗子福奇对峙](/content/gnews/22/README.md)
+### [开始了！BBC主持人在节目现场与骗子福奇对峙](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国制裁俄罗斯官方媒体机构和个人](/content/gnews/23/README.md)
+### [英国制裁俄罗斯官方媒体机构和个人](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [美国协助盟国向乌克兰转交苏制坦克](/content/gnews/24/README.md)
+### [美国协助盟国向乌克兰转交苏制坦克](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [中共将华人形象毁失殆尽 消灭共产党的标语深入人心](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口](/content/gnews/26/README.md)
+### [泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](/content/gnews/27/README.md)
+### [乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助](/content/gnews/28/README.md)
+### [俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助](/content/gnews/31/README.md)
  ` 關注組`
 
-### [美国司法部报告抓捕的5个中国人是做什么的](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [白宫表示 普京被下属欺骗](/content/gnews/30/README.md)
- ` NFSC News`
-
-### [04/02每日播报｜社媒消息:《班农战斗室》娜塔莉温特斯](/content/gnews/31/README.md)
+### [04/02每日播报｜社媒消息:《班农战斗室》娜塔莉温特斯](/content/gnews/32/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [置美国及盟友安全于不顾，苹果公司继续与中共合作获利](/content/gnews/32/README.md)
+### [置美国及盟友安全于不顾，苹果公司继续与中共合作获利](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [俄罗斯石油公司一燃料库发生大火](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [欧盟委员会批准新的规则草案以加强对数字资产交易的监控](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`

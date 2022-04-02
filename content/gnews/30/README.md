@@ -2,39 +2,33 @@
 ---
 
 
-## 白宫表示 普京被下属欺骗
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273653/)
+## 乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273695/)
 
-撰稿：纽约磐石农场—在远方；纽约香草山教育部-Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46.png)
-据外媒报道，3月30日，美国白宫通讯办公室主任贝丁菲尔德表示，普京的顾问及幕僚们由于害怕，并没有告诉他俄军糟糕的表现，以及俄罗斯经济受到国际制裁所引发的重大后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-130.png)
-普京目前已经察觉到自己被军方误导，导致他与军方高层的关系愈发紧张。
+撰稿: 温哥华扬帆农场——動物農莊裡的小螞蟻Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
+3月30日，乌克兰内阁、乌克兰数字化转型部、乌克兰国家机构创业和出口促进办公室、乌克兰国家创业和出口发展项目、乌克兰经济部和乌克兰外交部，联合发起“不要赞助谋杀”的国际宣传运动，呼吁乌克兰境内和其它外国企业，以及任何公民个人，共同抵制俄罗斯和白俄罗斯的商品和服务，加速侵略国家经济的大规模衰退。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-140.png)
+内容包括：不要购买俄罗斯和白俄罗斯商品；拒绝与俄罗斯、白俄罗斯进一步合作；选择乌克兰和反对乌克兰战争国家的合作伙伴，以取代俄罗斯或白俄罗斯的合作伙伴等。
 
-英国情报机构“政府通讯总部”主任弗莱明称，有证据显示在乌克兰作战的俄罗斯士兵士气低落、缺乏武器、拒绝实行上级命令、破坏自己的装备，甚至还失误击落了一架俄军战机。而关于类似的真相，普京的顾问从来没有告诉过他，导致他对局势产生了严重误判。
-
-美国国防部发言人柯比表示，如果普京不知道俄乌战争的真实战况，就可能不会致力于通过和平谈判结束战争，而对于这些坏消息，没有人知道普京会如何对待。
+乌克兰的国际宣传行动并不是单独的行为，事实上，国际社会已经或正在以实际行动对其进行支持。俄乌战争开始以来，美国、欧盟以及亚洲多国已经对俄进行了多种方式的制裁。
 
 参考链接:
 
-[對前線戰況和制裁一無所知… 白宮：普廷已察覺被官員欺瞞](https://news.ltn.com.tw/news/world/breakingnews/3877901)
-
-[拒絕執行命令、意外擊落友機 英情報機構：俄軍已厭戰](https://news.ltn.com.tw/news/world/breakingnews/3877590)
-
-
-
-
-
-> [Biden says Putin seems to be self-isolating](https://thehill.com/news/administration/3255482-biden-says-putin-seems-to-be-self-isolating/)
-
-
+[Ministry of Digital Transformation: Ukraine launches an international information campaign DO NOT sponsor murder to boycott russian and belarusian goods and companies abroad](https://www.kmu.gov.ua/en/news/mincifri-ukrayina-zapuskaye-mizhnarodnu-informacijnu-kampaniyu-do-not-sponsor-murder-z-bojkotuvannya-rosijskih-ta-biloruskih-tovariv-i-kompanij-za-kordonom)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-6.jpg)
 
-编辑/总编/审核: 飞虹
+编辑: Jack Li文阳
 
-校对/发稿: 浪迹天涯
+总编: 飞虹
+
+审核: Ivy001
+
+校对/发稿:浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
