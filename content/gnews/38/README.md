@@ -2,16 +2,44 @@
 ---
 
 
-## 剖析PAG 看西方百亿退休金有去无回
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2269821/)
+## 4/1/2022国际财经快讯：华尔街迎来最糟糕的一个季度；欧盟立法者将收紧加密货币转移
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2270091/)
 
-文贵大直播20220401
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-3.png)[图片来源](https://www.reuters.com/)
+**1.亚马逊工会投票计数从纽约阿拉巴马州开始**
 
-撰稿：蚂蚁的城堡（伊甸）
+[监督亚马逊公司纽约和阿拉巴马州仓库工会选举的美国监管机构开始统计工人在竞赛中投下的数千张选票，以确定是否在每个工厂建立工会。如果工人投票支持工会，对这家长期以来一直反对组织员工的在线零售巨头来说将是历史性的第一次。作为美国第二大私营雇主，亚马逊长期以来一直是劳工倡导者关注的焦点，他们希望工会的胜利将引发全国各地的组织努力。由国家劳工关系委员会(NLRB)监督的从周四开始的计票可能不会产生最终决定。](https://www.oann.com/amazons-union-vote-counts-start-in-alabama-new-york/)
 
-美工：青山（英喜）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-3.png)
-*发布：Theodosia*
+**2.美国众议院委员会为电动邮政车辆设立听证会**
+
+[美国众议院委员会周三表示，将于4月5日就美国邮政服务(USPS)购买电动汽车的计划举行听证会，立法者预计将推动购买更多零排放送货卡车。上周，USPS表示已从Oshkosh Corp订购50,000辆下一代送货车，价值29.8亿美元。该公司表示，其中至少10,019辆将是电动汽车(EV)，是其最初计划购买电动汽车的两倍，但一些立法者认为这还不够。众议院监督委员会主席卡罗琳·马洛尼（Carolyn Maloney）表示，USPS“应该带头，而不是落后于已经在通过使车队电气化来节省资金和遏制气候变化的私营公司。”](https://www.oann.com/u-s-house-panel-to-hold-hearing-on-postal-service-ev-plans-2/)
+
+**3.华尔街将迎来自2020年大流行崩溃以来最糟糕的一个季度**
+
+[由于对乌克兰激烈冲突和美国加息前景的担忧，股市周四小幅走低，使主要股指有望录得自2020年大流行崩盘以来最糟糕的一个季度。随着乌克兰军队为俄罗斯在东南地区的新袭击做准备，本周围绕和平谈判的乐观情绪消退。美国实施了与俄罗斯有关的新制裁，而俄罗斯总统弗拉基米尔普京签署了一项法令，规定外国买家必须从4月1日起以卢布购买俄罗斯天然气。战争引发的大宗商品价格飙升加剧了通胀担忧，而更为强硬的美联储引发了增长担忧，推动美国三大主要股指走向2020年3月以来最糟糕的季度。](https://www.oann.com/futures-muted-as-wall-st-heads-for-worst-quarter-since-2020/)
+
+**4.追逐特斯拉的汽车制造商重新思考对供应商的依赖**
+
+[汽车制造商竞相开发电池驱动、软件驱动的汽车以与特斯拉公司竞争，他们面临着一个新的挑战：自己制造什么技术，以及继续从供应商那里购买什么。对于大多数全球汽车制造商而言，通过在内部进行更多制造来实现更加垂直整合是一个重大转变，这些制造商几十年来一直依赖供应商生产关键零部件和软件，并管理低工资国家庞大的制造网络。但一些老牌汽车制造商正在对他们长期以来的“建造或购买”计算进行彻底改变。 一个因素是特斯拉电动汽车的成功，它依赖于公司自行开发和制造的专有技术。 另一个是大流行期间供应链中断造成的财务损失。](https://www.oann.com/build-or-buy-automakers-chasing-tesla-rethink-dependence-on-suppliers/)
+
+**5.俄罗斯卢布在莫斯科连续第九个交易日走强**
+
+[俄罗斯卢布在莫斯科连续第九个交易日走强，周四收于每美元83附近，随着一些卖空限制的解除，股市上涨，市场关注莫斯科要求使用卢布支付其天然气出口费用的影响。卢布兑美元收盘上涨1.6%，收于2月25日以来的最高收盘价83.20，兑欧元收盘上涨1.8%，收于92.50。由于全球限制和制裁措施开始实施，以报复莫斯科上月底入侵乌克兰的行动，该货币在2021年收盘时贬值了近40%。推动卢布的动力在某种程度上是人为的。 该货币在2月底之前一直是自由浮动的，现在受到资本管制、禁止购买现金美元和欧元以及其他行政措施的引导。](https://www.reuters.com/business/rouble-firms-back-past-84-dollar-stocks-gain-with-gas-saga-focus-2022-03-31/)
+
+**6.欧盟权衡驾驶员数据规则，使保险公司与汽车巨头竞争**
+
+[欧盟已就可能的规则发起了一项公众咨询，以确保公平获取司机数据，让强大的保险和汽车行业在数字信息货币化的战斗中相互竞争。欧盟执行委员会周四在一份证据征集文件中表示，2018年超过85%的新车通过无线连接，预计到2025年，欧洲、美国和中国将有超过4.7亿辆联网汽车上路。欧盟执行官表示，欧盟已经提出了一项数据法案，但对于处理汽车数据可能不够详细，进一步的措施可以标准化数据集，并确保公平访问和竞争。](https://www.reuters.com/business/autos-transportation/eu-weighs-driver-data-rules-pitting-insurers-against-auto-giants-2022-03-31/)
+
+**7.欧盟立法者将收紧加密货币转移**
+
+[欧盟立法者周四将支持对比特币和其他加密货币的转移采取更严格的保障措施，这是监管机构正在收紧随心所欲行业的最新迹象。欧洲议会中的两个委员会已经对跨党派妥协方案进行了投票表决。加密货币交易所Coinbase Global Inc (COIN.O)警告说，这些规则将引入一个扼杀创新的监控制度。2.1万亿美元的加密货币行业仍然受到全球范围内零散的监管。对比特币及其同行可能破坏金融稳定并被用于犯罪的担忧加速了政策制定者的工作，以使该行业陷入困境。](https://www.reuters.com/world/europe/eu-lawmakers-set-tighten-up-crypto-transfers-2022-03-31/)
+
+**8.散户大手笔投资高风险交易**
+
+[尽管存在经济担忧和地缘政治不确定性，但新近鼓起勇气的散户投资者继续涌入风险资产，支撑了从所谓的meme股票到加密货币的所有领域的反弹。尽管周三抛售导致基准指数下跌0.6%及许多风险相对较大的资产下跌，但市场上一些最具投机性的股票长达数周的涨势远远超过了标准普尔500指数。GameStop (GME.N)和AMC Entertainment (AMC.N)的股票，两家与2021年股价暴涨的meme股票狂热最为密切相关的公司，在今年早些时候对收紧货币政策和乌克兰战争的担忧重创股市后，过去两周价格几乎翻了一番。](https://www.reuters.com/business/retail-traders-splurge-risky-plays-fueling-bounce-2022-03-31/)
+
+By 【秘密翻译组-金融组】
+作者：小海星
 
  
 
