@@ -15,119 +15,119 @@
 
 ---
 
-### [DC每日热点0402](/content/gnews/1/README.md)
+### [专家称安大略进入第六波冠状病毒期](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [【信仰之声】 从乌合之众到国会议员](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [观察：俄罗斯被掏肛模式开启了！](/content/gnews/2/README.md)
+### [有声|谈“弃掉知识”](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [DC每日热点0402](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [观察：俄罗斯被掏肛模式开启了！](/content/gnews/5/README.md)
  ` 蓝莲花农场`
 
-### [有声|欧盟投票监测加密货币交易——生态系统有哪些风险？](/content/gnews/3/README.md)
+### [有声|欧盟投票监测加密货币交易——生态系统有哪些风险？](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [红十字会计划重新进行马里乌波尔疏散尝试](/content/gnews/4/README.md)
+### [红十字会计划重新进行马里乌波尔疏散尝试](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|Lugh 的欧元稳定币现在可以在钱包之间转移](/content/gnews/5/README.md)
+### [有声|Lugh 的欧元稳定币现在可以在钱包之间转移](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|联合国任命挪威法官率众调查俄在乌战争罪行](/content/gnews/6/README.md)
+### [有声|联合国任命挪威法官率众调查俄在乌战争罪行](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|波兰将立法禁止俄罗斯煤炭进口](/content/gnews/7/README.md)
+### [有声|波兰将立法禁止俄罗斯煤炭进口](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [监督机构发现，美国国立卫生研究院（NIH）删除了武汉病毒实验室关于新冠肺炎基因测序的信息](/content/gnews/8/README.md)
+### [监督机构发现，美国国立卫生研究院（NIH）删除了武汉病毒实验室关于新冠肺炎基因测序的信息](/content/gnews/11/README.md)
  ` KarmaLabs`
 
-### [【G时新闻】欧盟警告中共国 不要支持克里姆林宫](/content/gnews/9/README.md)
+### [【G时新闻】欧盟警告中共国 不要支持克里姆林宫](/content/gnews/12/README.md)
  ` G-时新闻`
 
-### [有声|香港圣城](/content/gnews/10/README.md)
+### [有声|香港圣城](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [乌要求欧洲四国关闭与俄及白俄罗斯的边界](/content/gnews/11/README.md)
+### [乌要求欧洲四国关闭与俄及白俄罗斯的边界](/content/gnews/14/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月2日早](/content/gnews/12/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月2日早](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [【粤语配音】2022年4月2日： 共产党隐瞒战争、病毒、疫苗、封城的真相](/content/gnews/13/README.md)
+### [【粤语配音】2022年4月2日： 共产党隐瞒战争、病毒、疫苗、封城的真相](/content/gnews/16/README.md)
  ` MOS香港部`
 
-### [封城加剧官民冲突 沪某居委会集体罢工](/content/gnews/14/README.md)
+### [封城加剧官民冲突 沪某居委会集体罢工](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [阿布拉莫维奇10亿美元的游艇舰队被曝光](/content/gnews/15/README.md)
+### [阿布拉莫维奇10亿美元的游艇舰队被曝光](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [欧盟警告中共不要干涉西方对俄罗斯的制裁](/content/gnews/16/README.md)
+### [欧盟警告中共不要干涉西方对俄罗斯的制裁](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [从海外华人圈生态圈怪相——品中共无教育无信仰带给中国人的悲剧-文字及视频](/content/gnews/17/README.md)
+### [从海外华人圈生态圈怪相——品中共无教育无信仰带给中国人的悲剧-文字及视频](/content/gnews/20/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [中美两国的监管机构正在努力解决审计争议](/content/gnews/18/README.md)
+### [中美两国的监管机构正在努力解决审计争议](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2022年4月2日，全球中共病毒疫情情况汇总](/content/gnews/19/README.md)
+### [2022年4月2日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【转】截至4.2 俄乌战事汇总](/content/gnews/20/README.md)
+### [【转】截至4.2 俄乌战事汇总](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文贵先生谈造物主-文字和视频](/content/gnews/21/README.md)
+### [文贵先生谈造物主-文字和视频](/content/gnews/24/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [《避风港Haven》直播内容精选（第一集）](/content/gnews/22/README.md)
+### [《避风港Haven》直播内容精选（第一集）](/content/gnews/25/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [2022年4月1日郭文贵先生大直播全文字版](/content/gnews/23/README.md)
- ` 温哥华扬帆农场《文贵大直播》全文听写组`
-
-### [俄羅斯前總統梅德韋傑夫說：烏克蘭危機比冷戰更糟糕](/content/gnews/24/README.md)
+### [俄羅斯前總統梅德韋傑夫說：烏克蘭危機比冷戰更糟糕](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄罗斯前总统梅德韦杰夫说：乌克兰危机比冷战更糟糕](/content/gnews/25/README.md)
+### [俄罗斯前总统梅德韦杰夫说：乌克兰危机比冷战更糟糕](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [史上首次：大多数芬兰人支持加入北约](/content/gnews/26/README.md)
+### [史上首次：大多数芬兰人支持加入北约](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共欢迎俄罗斯外交部长一起讨论建立“公平的世界秩序”](/content/gnews/27/README.md)
- ` KarmaLabs`
-
-### [被制裁的寡头正在努力支付账单，不确定是否能雇用清洁工或司机](/content/gnews/28/README.md)
+### [被制裁的寡头正在努力支付账单，不确定是否能雇用清洁工或司机](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国对俄罗斯作出新一轮制裁](/content/gnews/29/README.md)
+### [美国对俄罗斯作出新一轮制裁](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [若中共国向俄提供武器，英国威胁将实施制裁](/content/gnews/30/README.md)
+### [若中共国向俄提供武器，英国威胁将实施制裁](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [报道称: 在伤亡惨重后，焦虑不安的俄罗斯军队转向自己的指挥官并将他撞倒](/content/gnews/31/README.md)
+### [报道称: 在伤亡惨重后，焦虑不安的俄罗斯军队转向自己的指挥官并将他撞倒](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [中日财经爆┃中共修订境外上市保密规定 意在变相逃避美国监管](/content/gnews/32/README.md)
+### [中日财经爆┃中共修订境外上市保密规定 意在变相逃避美国监管](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳网与中共企业的赞助协议受到批评](/content/gnews/33/README.md)
+### [澳网与中共企业的赞助协议受到批评](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆┃SpaceX将在菲律宾推出星链服务，正式落地亚洲](/content/gnews/34/README.md)
+### [中日财经爆┃SpaceX将在菲律宾推出星链服务，正式落地亚洲](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [所罗门群岛不允许中共军事入驻](/content/gnews/35/README.md)
+### [所罗门群岛不允许中共军事入驻](/content/gnews/36/README.md)
  ` 银河歌舞厅`
 
-### [美司令官：应对俄乌之战就是为了威慑中共](/content/gnews/36/README.md)
+### [美司令官：应对俄乌之战就是为了威慑中共](/content/gnews/37/README.md)
  ` 日本东京方舟农场`
 
-### [俄继续通过乌克兰向欧洲出口天然气](/content/gnews/37/README.md)
+### [俄继续通过乌克兰向欧洲出口天然气](/content/gnews/38/README.md)
  ` Shuizhuyu`
-
-### [《喜健康之医学视角》: 东欧救援前线医疗护理](/content/gnews/38/README.md)
- ` 香草山醫療部`
 
 ### [独家：美国因俄罗斯核紧张局势取消洲际弹道导弹试验](/content/gnews/39/README.md)
  ` Shuizhuyu`
