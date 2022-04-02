@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 3:53 AM (UTC)`
+
+4/1/2022 Ukraine Rescue: From hesitation towards the Chinese people to forming a family of mutual support - Fellow fighter Ming Dao talks about how the international rescue organizations in Medyka get along with the rescue team of the New Federal State of China. The professional military personnel, police, and volunteers in the rescue camp are united, sharing information to keep each other in the loop and protecting themselves.<br/><br/>4/1/2022 乌克兰救援连线：从对中国人的迟疑到形成互助的大家庭 - 明道战友谈梅迪卡的国际救援组织跟新中国联邦救援团队相处的历程；营地的职业军人、警察和志愿者们团结在一起互通信息、互相保护<br/>
+![img](https://media.gettr.com/group22/getter/2022/04/02/03/04074865-ddbe-7110-9251-dee959e1af9f/out.jpg)
+
+---
+
 `@miles 4/2/2022 3:07 AM (UTC)`
 
 
@@ -147,15 +154,6 @@
 
 
 ![img](https://media.gettr.com/group33/origin/2022/04/01/17/290902a6-d41e-d60c-869c-3fe3d55e4880/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gloryworld 4/1/2022 12:59 AM (UTC)`
-
-救援人员马甲设计方案……<br/>#新中国联邦乌克兰大救援<br/>#法治基金 #法治社会 #新中国联邦<br/>#我们是消灭中国共产党的新中国联邦人<br/>#RuleOfLawFundation #RuleOfLawSociety <br/>#NewFederalStateOfChina<br/>#NFSCUkrainianRescueMission <br/>#TakeDownTheCCP<br/>#WeAreTheNewChineseWhoWillTakeDownTheChineseCommunistParty <br/><br/>
-![img](https://media.gettr.com/group36/getter/2022/04/01/00/ee6fab90-6e9b-44d3-aef1-816184c7823f/b68a2b404df4a5b68de0e49ed62e8e30.jpg)
 
 ---
 

@@ -2,27 +2,30 @@
 ---
 
 
-## 中共被指对乌克兰军事和核设施发动重大网络攻击
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2272521/)
+## 原形毕露！中共被爆在战前网攻乌克兰
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272627/)
 
-#### 撰稿：彩虹  
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+乌克兰国家安全局（SBU）的情报显示，俄罗斯入侵乌克兰之前，中共国对乌克兰的军事和核电厂进行大规模网攻。美国情报部门表示此项情报是准确的，英国政府也证实正在调查中共国对乌克兰的网路攻击。
 
-#### 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-98.png)图片来源：卫报
-据《国会山报》4月1日文章，据英国《泰晤士报》（The Times）获得的乌克兰情报报告称，在俄罗斯入侵乌克兰之前，中共对乌克兰的军事和核设施发动了一次重大网络攻击。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/phpipI9uy.jpg)图片来源：法新社
 
-报道称，乌克兰安全局表示，中共政府试图入侵属于政府和其他重要机构的600多个网站。这些攻击在北京举行的2022年冬奥会结束前开始，并在2月23日俄罗斯军队入侵乌克兰的前一天升级。
+英国《泰晤士报》报导，乌克兰国家安全局的情报备忘录指出，由中共国政府指派骇客对乌克兰国防部等机构在内的600多个网站进行了数千次网路攻击，这些网攻在北京冬季奥运会结束前开始，并在俄罗斯入侵的前一天（2月23日）达到顶峰。
 
-乌克兰安全局称，中共试图入侵一些机构，包括乌克兰的国防军、国家银行和铁路局，这些攻击的目的是窃取数据，并找到破坏或关闭乌克兰国防和关键基础设施的方法。
+乌克兰国家安全局说，中共国试图入侵多个政府机构，包括乌克兰国防军、国家银行和铁路局。情报备忘录称，这些攻击目的在窃取数据，并设法破坏或关闭乌克兰的国防和关键基础设施。
 
-文章指，虽然中国没有公开宣布支持或反对乌克兰战争，但一些专家说，这并不意味着中共没有在幕后帮助。
+简评：郭文贵先生最早爆出普习北京冬眠会密谈，中共作为幕后元凶帮助俄罗斯入侵乌克兰的计划，北京冬眠会后俄罗斯入侵乌克兰已一月有余，如今又爆出中共在战前网络攻击乌克兰，更加做实了中共作为元凶帮助俄罗斯的勾当！
 
-*责编：白夜*
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3880199](https://news.ltn.com.tw/news/world/breakingnews/3880199)
 
-**新闻来源**
+撰稿/发布：一叶知秋
 
-[Ukraine intelligence accuses China of hacking days before invasion: report](https://thehill.com/policy/cybersecurity/3256792-ukraine-intelligence-accuses-china-of-hacking-days-before-invasion-report/)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

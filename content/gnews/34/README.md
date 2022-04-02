@@ -2,27 +2,27 @@
 ---
 
 
-## 美国卫生研究院故意掩盖病毒来源
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2271186/)
+## 乌克兰战争难民已遍布欧盟各地
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2271218/)
 
-采编/撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+采编：加拿大温哥华杨帆农场 – 青青
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-2-1.jpg)图片来源：AMP
+撰稿：加拿大温哥华杨帆农场 – 文莱
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-3-edited.jpg)图片来源：ctv news
 
 
-据《网关专家》3月30日报道，根据《信息自由法》获得的文件显示：[美国国家卫生研究院]在疫情爆发后不久，就秘密删除了有关“新冠病毒”基因测序的数据。
+据【CTV新闻】3月29日报道，联合国当天公布的最新数据显示，自2月24日俄乌战争爆发以来，已有超过400万战争难民逃离乌克兰，其中约230万人进入了邻国波兰。
 
-报道称，[武汉病毒研究所]曾于2020年3月向[国家卫生研究院]提供了“新冠病毒”基因测序报告，但因报告结果支持该病毒源自武汉实验室的功能增强研究，而于不久后在院长柯林斯和[传染病研究所]主任福奇的授意下被全部删除。
+联合国难民事务处对此表示，除了波兰之外，罗马尼亚、匈牙利和斯洛伐克都在积极为乌克兰难民提供帮助。
 
-对此，[哈金森癌症研究中心]教授贝德表示：被删除的基因测序数据表明，“新冠病毒”并非源于自然，而极有可能来自和[美国传染病研究所]长期合作的[武汉病毒实验室]。
+据悉，在战争趋势减缓之前，乌克兰难民还会向西前往德国、法国和英国，向南则会前往西班牙和意大利等欧盟各国。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-新闻来源： [https://www.thegatewaypundit.com/2022/03/foia-reveals-nih-secretly-deleted-covid-data-provided-wuhan-lab-beginning-pandemic/](https://www.thegatewaypundit.com/2022/03/foia-reveals-nih-secretly-deleted-covid-data-provided-wuhan-lab-beginning-pandemic/)
-
-
+新闻来源： [Ukraine news: 4 million refugees have fled country | CTV News](https://www.ctvnews.ca/world/more-than-4-million-refugees-have-fled-ukraine-since-feb-24-2-3-million-to-poland-1.5840434)
 
  
 
