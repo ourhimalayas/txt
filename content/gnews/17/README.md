@@ -2,32 +2,31 @@
 ---
 
 
-## 秘翻新闻｜乌克兰至少53个重要文化遗址遭破坏
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2275884/)
+## 【G时新闻】俄军撤离切尔诺贝利核电站，挟持乌军为人质
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2275905/)
 
-**By:[秘翻新闻](https://gettr.com/post/p135bw73d89)**
+##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+乌克兰原子能公司（Energoatom）说，俄罗斯军队撤离切尔诺贝利核电站时，带走之前挟持的乌克兰军人。
 
-**[2022-04-02](https://gettr.com/post/p135bw73d89)**
+据法新社报道，原子能公司周四（3月31日）在Telegram上说，俄罗斯部队在逃离切尔诺贝利核电站时，带走自2月24日以来俄军挟持为人质的乌克兰国民卫队人员。目前尚不清楚有多少名乌克兰军人被带走。
 
+原子能公司周四较早时在脸书透露，俄军已全部撤离切尔诺贝利核电站及其他禁区，核电站内已没有任何外人。同时有迹象显示，围困斯拉乌季奇镇（Slavutych）的俄军正组成一个纵队往白俄罗斯转移。
 
-```
-新闻内容:
- 
- 1.上海封城 市民断生计 传女硕士跳楼身亡
- 2.上海千人被封市场睡水泥地 传交叉感染
- 3.江苏昆山突封城 大批车辆和民众被堵路上
- 4.俄乌战争加剧了俄罗斯青年对征兵的恐惧
- 5.美国医院中共病毒患者人数创历史新低 
+盖特链接：[https://www.gettr.com/post/p1339hc1417](https://www.gettr.com/post/p1339hc1417)
 
-
-🔗Gettr链接：https://gettr.com/post/p135bw73d89
-
-发布:星星
-```
-
-
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/zm.jpg)
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
