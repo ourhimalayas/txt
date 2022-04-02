@@ -2,42 +2,27 @@
 ---
 
 
-## 独家：美国因俄罗斯核紧张局势取消洲际弹道导弹试验
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2275611/)
+## 泽连斯基抨击武器交付延误，质疑一些盟友背后的动机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2275725/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+**撰稿：日本东京方舟农场 北极**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+据Plitico网站4月1日报道，乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskyy）周五发表抨击称，一些西方盟友推迟交付武器，并质疑美国和其他盟友的背后动机。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-1.jpeg)乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelenskyy）继续呼吁援助（图片来自Politico）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0144.jpg)
+泽伦斯基的言论是因为俄乌战争看不到尽头。他在接受福克斯新闻（Fox News）记者布雷特·拜尔（Bret Baier）采访时表示，他对西方有信心，他相信乌克兰和美国都有相同的价值观。但这位乌克兰领导人表示，如果武器或援助放缓，乌克兰人可能会开始质疑盟友的动机。
 
+泽伦斯基在对德国的一次演讲中挖苦说，“我们不想要一百万件高质量的防弹背心或一些特殊品牌的头盔，我们只要导弹和飞机。如果你不能交给我们像F-18，F-19这样战斗机或其他的东西，你们也可以给我们提供旧的前苏联飞机。给我一些东西来保卫我的国家吧！”
 
-图片来源：路透社
+据报道，在俄乌战争爆发前，1月26日德国国防部长克里斯蒂娜·兰布莱希特（Christine lambrecht）曾宣布将向乌克兰运送5000顶防弹头盔，但强调不会向基辅方面运送任何武器。
 
-美国空军周五告诉路透社，美国军方取消了对民兵III洲际弹道导弹的测试，最初的目的只是为了在乌克兰战争期间缓和与俄罗斯的核紧张局势。
+参考链接：
+1. [https://reurl.cc/qOxdNE](https://reurl.cc/qOxdNE)
+2. [https://reurl.cc/mGVn3W](https://reurl.cc/mGVn3W)
 
-在俄罗斯表示将其核力量置于高度戒备状态后，五角大楼于 3 月 2 日首次宣布推迟试验。华盛顿当时表示，重要的是美国和俄罗斯都“牢记误判的风险并采取措施降低这些风险”。
-
-但它曾公开表示其意图只是“稍微”推迟测试，而不是取消测试。
-
-空军发言人 Ann Stefanek 表示，取消 LGM-30G 民兵 III 导弹测试的决定与首次推迟测试的原因相同。下一次民兵III 测试计划于今年晚些时候进行。
-
-“空军对美国战略部队的战备状态充满信心，”斯特凡内克说。
-
-改变美国洲际弹道导弹部队的测试时间表可能会引起争议。美国参议院军事委员会最高共和党参议员吉姆·英霍夫 (Jim Inhofe) 在 3 月份对推迟进行试验表示失望，他说这对于确保美国的核威慑仍然有效至关重要。
-
-詹姆斯马丁防扩散研究中心（CNS）的导弹研究员杰弗里刘易斯淡化了取消的影响。
-
-刘易斯说：“进行测试是有价值的，但我认为在宏伟的计划中错过一项测试并不是什么大不了的事，”并补充说民兵 III 非常可靠。
-
-具有核能力的民兵 III 是美国军方战略武器库的关键部分，航程超过 6,000 英里（9,660 多公里），并且可以以每小时约 15,000 英里（24,000 公里）的速度行驶。
-
-导弹分散在发射人员操作的硬化地下发射井中。
-
-🔗 [https://www.reuters.com/business/aerospace-defense/exclusive-us-cancels-icbm-test-due-russia-nuclear-tensions-2022-04-01/](https://www.reuters.com/business/aerospace-defense/exclusive-us-cancels-icbm-test-due-russia-nuclear-tensions-2022-04-01/)
-
-编辑发表： Shuizhuyu
+总编： 老孙
+校对发布：文曦
 
  
 

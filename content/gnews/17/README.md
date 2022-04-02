@@ -2,28 +2,34 @@
 ---
 
 
-## 泽连斯基抨击武器交付延误，质疑一些盟友背后的动机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2275725/)
+## 教皇含蓄地批评普京对乌克兰的入侵
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275782/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ARPIRRAAXFMM5OOYAK6COSIRQI.jpg)
+近日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，他说一个大国正在为民族主义利益煽动战争冲突。
 
-据Plitico网站4月1日报道，乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskyy）周五发表抨击称，一些西方盟友推迟交付武器，并质疑美国和其他盟友的背后动机。
+普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前方济各为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。郭先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使得教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，并在暗中批评普京，他说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力出现，毫无疑问普京是无理地侵略，并强烈谴责其战争暴行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-1.jpeg)乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelenskyy）继续呼吁援助（图片来自Politico）
+方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
 
-泽伦斯基的言论是因为俄乌战争看不到尽头。他在接受福克斯新闻（Fox News）记者布雷特·拜尔（Bret Baier）采访时表示，他对西方有信心，他相信乌克兰和美国都有相同的价值观。但这位乌克兰领导人表示，如果武器或援助放缓，乌克兰人可能会开始质疑盟友的动机。
+reference：
 
-泽伦斯基在对德国的一次演讲中挖苦说，“我们不想要一百万件高质量的防弹背心或一些特殊品牌的头盔，我们只要导弹和飞机。如果你不能交给我们像F-18，F-19这样战斗机或其他的东西，你们也可以给我们提供旧的前苏联飞机。给我一些东西来保卫我的国家吧！”
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
 
-据报道，在俄乌战争爆发前，1月26日德国国防部长克里斯蒂娜·兰布莱希特（Christine lambrecht）曾宣布将向乌克兰运送5000顶防弹头盔，但强调不会向基辅方面运送任何武器。
+撰稿、发布：骄子
 
-参考链接：
-1. [https://reurl.cc/qOxdNE](https://reurl.cc/qOxdNE)
-2. [https://reurl.cc/mGVn3W](https://reurl.cc/mGVn3W)
+* * *
 
-总编： 老孙
-校对发布：文曦
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 3:25 PM (UTC)`
+
+【Ukraine Rescue】03/31/2022 A volunteer from Taiwan, a Ukraine refugee himself, join our NFSC Ukraine Rescue Operation site in Medyka, Poland. He told us that as someone who has been working and studying in Ukraine for 8 years, he can feel the pain that all the Ukrainian people are going through more directly and personally. This motivated him to join the NFSC Ukraine rescue team. He hopes to, together with other fellow fighters, help more Ukraine refugees who escaped from the war-torn country.<br/><br/>【乌克兰救援】03/31/2022 来自台湾的志愿者，自己也是一名乌克兰难民，加入了我们在波兰梅迪卡的乌克兰救援行动现场。他告诉我们，作为一个在乌克兰工作和学习了8年的人，他能更直接、更切身地感受到所有乌克兰人民正在经历的痛苦。这促使他加入新中国联邦乌克兰救援队。他希望与其他战友一起，帮助更多从这个战乱国家逃出来的乌克兰难民。<br/><br/>
+![img](https://media.gettr.com/group31/getter/2022/04/02/15/9d39e64c-3e0b-5e6c-9871-d2f0534c65bc/out.jpg)
+
+---
+
 `@miles 4/2/2022 2:31 PM (UTC)`
 
 《NFSC-真人真事》第47期嘉宾：加拿大蓝莲花农场  小小酥
@@ -147,13 +154,6 @@
 
 4/1/2022 Ukraine Rescue: Sarah tells us the story behind the Polish magazine’s coverage of the NFSC & ROLF Ukraine rescue operation. We, the New Federal State of China, earned the respect without having to pay them. Regardless of whether other media covers our rescue operation or not, our fellow fighters are the best of the best on the front line.<br/><br/>4/1/2022 乌克兰救援连线：小Sarah讲述新中国联邦乌克兰救援被波兰杂志大篇幅报道的背后故事，这可不是花钱能买来的尊重！无论其他媒体是否报道我们，我们的战友们在前线都是顶呱呱的第一名！<br/>
 ![img](https://media.gettr.com/group4/getter/2022/04/02/00/0de9df63-1600-9e87-c72e-32d409b43db3/out.jpg)
-
----
-
-`@miles 4/2/2022 12:50 AM (UTC)`
-
-4/1/2022 Ukraine Rescue: Fellow fighter Nicole shares her thoughts on the power of the New Federal State of China to spread the word about our Ukraine humanitarian rescue and the voice of justice on our own media platforms. Regardless of whether the mainstream media would report on us or not, they can never ignore the flag of the New Federal State of China, the logo of the Rule of Law Foundation, and the yellow vests with the slogan of “take down the Chinese Communist Party”.<br/><br/>4/1/2022 乌克兰救援连线：Nicole战友分享如何理解新中国联邦能在自己的媒体平台上传播我们行正义之事和正义之声的力量，无论主流媒体是否报道我们，它们都无法忽略救援营地的新中国联邦国旗、法治基金的标识和灭共黄马甲<br/>
-![img](https://media.gettr.com/group34/getter/2022/04/02/00/845c3515-1237-ff27-99ba-4f1d89862eb5/out.jpg)
 
 ---
 

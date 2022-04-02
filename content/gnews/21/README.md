@@ -2,28 +2,26 @@
 ---
 
 
-## 法国电网运营商要求用户周一减少用电量
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2275701/)
+## 俄继续通过乌克兰向欧洲出口天然气
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2275748/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
 - ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/DFM6NL526VMOHM2MDR7F345ZXI.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IDYNDLVQZFJSNCBYH7KAKUPXRY.jpg)
 
 
 图片来源：路透社
 
-法国电网运营商RTE周六警告称，在欧洲遭遇寒潮之后，该国电力供需之间可能出现“紧张”局面。
+俄罗斯国有能源巨头俄罗斯天然气工业股份公司 (GAZP.MM) 周六表示，将根据欧洲消费者的要求，继续通过乌克兰向欧洲供应天然气。
 
-RTE 发表声明，要求法国公司和地方当局减少能源消耗，尤其是在周一上午 7 点（格林威治标准时间 0500 点）至上午 10 点之间。
+该公司表示，4 月 2 日的需求量为 1.083 亿立方米，几乎与前一天的需求量持平。
 
-RTE表示，周一上午的用电量可能达到73,000兆瓦（MW），而发电量可能达到65,000兆瓦。 RTE 表示，法国可能因此进口高达 11,000 兆瓦的电力。电网运营商预计不会停电，并将在周日更新其预测。
+简评：俄罗斯最大的能源公司表示，会继续通过乌克兰向欧洲提供天然气。 这也和普京的意愿相违背。 能源现在是欧洲的软肋， 欧洲的能源供应主要依赖俄罗斯的供应， 而每天欧洲使用的能源都会提供给俄罗斯金源， 用于入侵乌克拉的战争。 能源是双刃剑， 解决能源问题才是欧洲不依赖别人的根本利益。
 
-该公司在 2 月表示，有必要保持高度警惕，以防寒潮持续数天、风力发电量低或核电可用性急剧下降。
-
-🔗[https://www.reuters.com/business/energy/french-power-grid-operator-asks-users-cut-consumption-monday-2022-04-02/](https://www.reuters.com/business/energy/french-power-grid-operator-asks-users-cut-consumption-monday-2022-04-02/)
+🔗[https://www.reuters.com/business/energy/russias-gazprom-says-gas-exports-europe-via-ukraine-continue-2022-04-02/](https://www.reuters.com/business/energy/russias-gazprom-says-gas-exports-europe-via-ukraine-continue-2022-04-02/)
 
 编辑发表： Shuizhuyu
 

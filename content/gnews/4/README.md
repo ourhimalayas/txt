@@ -2,37 +2,61 @@
 ---
 
 
-## 中日财经爆┃SpaceX将在菲律宾推出星链服务，正式落地亚洲
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2275830/)
+## COVID-19疫苗副作用集萃（2022.4.2）&#8211;接种新冠疫苗后胸闷气短可能导致心肌炎
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275950/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，SpaceX公司将在菲律宾推出星链卫星互联网服务，这将使菲律宾成为东南亚第一个托管星链互联网服务的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-19.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn.arstechnica.net/wp-content/uploads/2021/04/starlink-dish.jpg&amp;imgrefurl=https://arstechnica.com/information-technology/2021/04/dishy-mcflatface-to-become-fully-mobile-allowing-starlink-use-away-from-home/&amp;tbnid=71_jczvjRXRzuM&amp;vet=12ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ..i&amp;docid=hHh0x3Cm2TpYIM&amp;w=2000&amp;h=1500&amp;q=Starlink&amp;hl=zh-CN&amp;ved=2ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ)
-4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，[美国](https://news.163.com/news/search?keyword=%E7%BE%8E%E5%9B%BD)亿万富翁埃隆·马斯克(Elon Musk)旗下太空探索技术公司SpaceX将在菲律宾推出星链[卫星](https://news.163.com/news/search?keyword=%E5%8D%AB%E6%98%9F)互联网服务，这将使菲律宾成为[东南亚](https://news.163.com/news/search?keyword=%E4%B8%9C%E5%8D%97%E4%BA%9A)第一个托管星链互联网服务的国家。
+#### 整理：gardeniahu 
+编辑：BENJ1
 
-菲律宾贸易与工业部长拉蒙·[洛佩兹](https://news.163.com/news/search?keyword=%E6%B4%9B%E4%BD%A9%E5%85%B9)（Ramon Lopez）表示，他最近会见了SpaceX高管丽贝卡·亨特（Rebecca Hunter）和瑞安·古德奈特（Ryan Goodnight），以及菲律宾国际通讯委员会（NTC）副专员埃德加多·卡瓦里奥斯（Edgardo Cabarios）和DFNN执行主席小拉蒙·加西亚（Lamon Garcia Jr.），讨论将星链引入菲律宾事宜。
+#### 雅典娜情报组《疫苗灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-洛佩兹透露，SpaceX的商业许可申请正在处理中，同时该公司正在为其网关寻找地点。该公司正在菲律宾设立全资子公司，目标是在推出的第一阶段部署三个网关。不过，洛佩兹没有具体说明星链互联网服务推出的时间表或SpaceX的投资数字。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25e5%2589%25af%25e4%25bd%259c%25e7%2594%25a8%25e9%259b%2586%25e8%2590%2583/)
 
-洛佩兹表示，星链的推出将使该国宽带速度更快，连接更好，电信服务的容量更大，费率也更便宜。他称：“星链将扩大和补充现有的宽带容量。这将进一步扩大微型、中小型企业的能力，促进在线学习、电子商务和金融科技发展。”
+帖子原文：
 
-SpaceX是少数几家通过近地轨道卫星网络支持高速互联网服务的公司之一。星链网络旨在为偏远地区或在自然灾害期间通信中断时提供互联网接入服务。这样的卫星互联网系统将信号从大气层发射给地面上的天线接收器。
+**疫情****|****新冠疫苗副作用****疫苗后胸闷气短**
 
-根据SpaceX的数据，星链的数据传输速度从100Mbps到200Mbps不等。这种高速连接以前是不可能通过传统卫星互联网实现的。SpaceX是此类技术的领跑者，自2020年末以来，该公司已在全球范围内为星链测试版签约了10万多名用户。星链提供互联网接入服务的国家包括美国、英国、加拿大、澳大利亚、新西兰和墨西哥。
+辉瑞疫苗可能心肌炎update
 
-亚马逊也在开发自己的卫星互联网，名为Kuiper Systems，但尚未将任何卫星送入轨道。
+3.26去医院背了holter48小时，期间感觉还好，能做饭下楼买菜开车。
 
-信息来源：[**SpaceX****将在菲律宾推出星链服务**](https://www.163.com/tech/article/H3RRANH800097U81.html)
+直到昨天和今天，傍晚时刻便胸闷气喘，人很累，八点多上床，九点多就能睡着。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+不管检查结果如何，身体状态差在这里，我还要每天照顾女儿，她虽然尽力帮助妈妈，可是毕竟还小，这日子不知道什么时候是个头？
+
+我知道带她来加拿大是正确的选择，可是真的没料到这么难、这么难。
+
+继续扌非队等待做心脏彩超。
+
+现在每天吃Q10 400mg VD综合维生素和锌，鱼油。
+
+咬牙坚持吧
+
+#辉瑞疫苗 #心肌炎 #移民加拿大 #海外独自带娃
+
+精彩评论：
+
+莱纳  回复：s蛋白进入心脏，避免剧烈运动，心脏代偿功能不好，去做核磁共振才能确诊。
+
+kt的两小只  回复：你心跳怎么样？我跟你一样，去过两次急诊了，都是正常被打回来。
+
+Ying   回复：一样。打了第三针后整天跑专科。
+
+。夜媣未怏   回复：我是刚做了加强ct说都没事。但是容易累。然后肺部闷痛。4.28还要去做检查，我都三个月了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-5.jpg)
+参考链接：
+
+[接种新冠疫苗后胸闷气短](https://www.xiaohongshu.com/discovery/item/6244f027000000002103b994?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648866335)
+
+发布：Frank2021
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

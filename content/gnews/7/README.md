@@ -2,37 +2,25 @@
 ---
 
 
-## 有声|美报告称北京继续瓦解香港民主制度
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2275811/)
+## 新加坡一位医生因推荐伊维菌素预防和治疗新冠而被审查和起诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2275908/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-**美国国务院当地时间周四（3月31日）就《香港人权与民主法案》发表2022年度香港政策报告，报告称在过去一年中共中央政府继续瓦解香港的民主制度，对司法机构施加前所未有的压力，并扼杀学术、文化和新闻自由。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image005.png)**中共就香港的民主发展发表白皮书，指刚结束的立法会选举为实现行政长官和立法会「双普选」这「目标」创造了有利条件，但没有提及达致这目标的时间表和路线图，只是强调，香港须实行有其特色的民主，而发展什么样的民主，北京的中央政府拥有「主导权和决定权」。但有学者批评白皮书的部分内容与历史基本表述不符。**
-**年度报告指出，中共大人常委会通过决定，对香港的选举制度进行彻底改革，阻止未经北京批准的政治团体参与，并大力削弱了香港选民选举代议士的能力。**
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16489123791.png)      图片来源：NPR
+据《亚洲新闻台》（Channel News Asia）4月1日报道，新加坡的Khoo Boo Kian医生因为去年11月25日在一个拥有206人的whatsapp聊天群里宣传伊维菌素可用于预防和治疗新冠病毒，而被新加坡医药理事会（SMC）勒令不得传播和转发有关伊维菌素可安全有效治疗新冠的信息，以及删除其在社交媒体上分享的有关伊维菌素的帖文。
 
-**报告还提及，在北京的支持下，香港政府继续利用国家安全法破坏权利和自由，包括《基本法》和《中英联合声明》保护的自由。
+SMC 3月31日表示，在这些信息当中，Khoo Boo Kian医生推荐用伊维菌素治疗与预防新冠，同时鼓励群组里的参与者通过一个“未经批准的来源”在互联网上订购伊维菌素。新加坡卫生部指控这些信息是“未经证实的和具有误导性”，因为它在去年10月曾表示，在新加坡，伊维菌素属于处方药，只被批准用来治疗寄生虫感染，而且卫生科学局（The Ministry of Health，MOH）也并没有批准使用这款药物来预防或治疗新冠。
 
-另外，英国也于3月31日发表《香港半年报告：2021年7月至12月》，报告称，香港国安法破坏《中英联合声明》中承诺的权利及自由。**
+官方任命了一个独立的投诉委员会调查此事。3月28日，临时停业令委员会（Interim Orders Committee）对Khoo的医生注册资格施加了18个月的条件或限制，或直至他的诉讼结束为止。SMC说：“Khoo在其医生执业证书被完全批准之前，不得向任何病人推荐、开具、供应或使用伊维菌素，也不能散播任何有关未经卫生科学局批准的药物、治疗产品或疫苗对于治疗或预防新冠的信息。”
 
+Khoo Boo Kian是3月份第二位因推荐伊维菌素预防和治疗新冠而受罚的医生。此前，一位名叫Yang Ing Woei的医生被指控给新冠患者开具伊维菌素，因此执业资格受到限制。
 
+新加坡是全世界新冠疫苗接种率最高的几个国家之一，但是正如无数事实和科学证据所表明的那样，这不仅无法遏制疫情，反而造成了更大的灾难。在此情况下，向病人和公众推荐和开具已被证明能安全有效预防和治疗新冠的伊维菌素的医生却被政府官方机构审查和惩戒，这是赤裸裸的迫害和大屠杀。尽管在全球范围内，伊维菌素和羟氯喹等药物已逐渐获得人们和政府的认可，但是推广范围远远不够，医疗暴政仍在继续，黑暗仍笼罩着世界。
 
-[【援引连结】](https://www.zaobao.com.sg/realtime/china/story20220401-1258245)
+*责编：白夜*
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+新闻来源：[Doctor allegedly made misleading claims, promoted use of ivermectin to treat and prevent COVID-19](https://www.channelnewsasia.com/singapore/doctor-khoo-boo-kian-restrictions-smc-ivermectin-treat-prevent-covid-19-misleading-claims-2601871)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
