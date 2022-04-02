@@ -2,32 +2,35 @@
 ---
 
 
-## 置美国及盟友安全于不顾，苹果公司继续与中共合作获利
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2273628/)
+## 澳大利亚-印度贸易协议将打开“最大的经济大门”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273638/)
 
-#### 撰稿：彩虹
+#### 【雅典娜快讯】，紧贴时代脉搏    
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-1.jpg)图片来源：路透社
-据《华盛顿观察家报》4月1日报道，针对苹果公司考虑从一家中国国有供应商处购买手机内存芯片的做法，参议员卢比奥(Marco Rubio)说这对美国的科技领导地位和国家安全来说是灾难性的。
+翻译/编辑：小红帽
 
-报道说，苹果公司意欲与中共控制的与中共军队有广泛关系的YMTC（长江存储科技有限公司）达成交易，对此，卢比奥于周四写信给苹果公司首席执行官库克（Tim Cook），表达了反对。《华盛顿观察家报》获得了该信的内容。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/India-Australia.jpg)图片来源：PTI
 
-文章指出，在中共军队提高技术能力，胁迫邻国接受北京的主权主张和在印太地区的领导地位，从而挑战美国在经济、军事和技术创新方面的领导地位上，YMTC在中共更为广泛的国家战略中发挥着关键作用。
 
-卢比奥在信中表示：“下一代苹果（iPhone）产品的销售最终会加强中共军队，并因此使美国军人的生命受到威胁，这是不可接受的”。
+根据CNA4月2日报道，澳大利亚总理科特·莫里森表示，将于周六（4月2日）签署的与印度的贸易协定代表着“当今世界上最大的经济大门之一”。
 
-卢比奥告诉《华盛顿观察家》，“如果苹果公司通过了与YMTC的任何交易，那么就会最终使得千万美国人无意中让中国共产党更为富有。如果库克真的‘爱这个国家’，他就不应该推进此类任何交易。”
+莫里森预计将在几天内举行大选，他一直渴望在竞选开始前获得这项贸易协议，因为他已经与印度进行了十年的谈判。
 
-2021年6月，白宫在一份报告中将YMTC称为“存储芯片生产商龙头”，白宫警告由于它的产能是美国芯片巨头英特尔（Intel）的两倍，从而对美国的存储芯片公司构成了低成本威胁。
+联邦政府周五表示，澳大利亚-印度经济合作与贸易协定将由贸易部长丹·特汉和印度商工部长皮尤什·戈亚尔在一个虚拟仪式上签署，两国将继续努力达成全面自由贸易协定。
 
-对此，卢比奥指出，如果苹果公司帮助推动中国一个享有国家补贴的大型芯片供应商，则美国的芯片制造商和美国盟友的芯片制造商就面临着一个不公平的竞争环境，在已经不公平的情况下难以竞争。让像长江存储这样的中共支持的竞争对手富裕起来，将迫使该行业的美国制造商进一步整合，缩小规模，或完全关闭，对美国的国防和其他依靠值得信赖的先进芯片的关键部门构成重大威胁。
+莫里森在塔斯马尼亚对记者说，他和印度总理纳伦德拉·莫迪将见证这个虚拟仪式。
 
-文章特别指出，苹果公司的总部设在加利福尼亚州，其电子制造业的生产商们在中国雇用了数百万人，而且苹果一直遵守中共关于审查和数据本地化的规定，以便在中国获利，但是，谷歌（Google）和脸书（Facebook）等竞争对手却被中共国拒之门外。
+莫里森政府正在寻求使出口市场多样化，减少澳大利亚对其最大贸易伙伴中共国的依赖，因为此前的外交争执导致中共对某些澳大利亚产品实施制裁。
 
-**新闻来源**
+新闻来源：[Australia-India trade deal to open ‘biggest economic door’: Morrison](https://www.channelnewsasia.com/world/australia-india-trade-deal-open-biggest-economic-door-morrison-2603026)
 
-[Rubio blasts Apple for eyeing ‘unacceptable’ Chinese chip supplier deal](https://www.washingtonexaminer.com/policy/rubio-blasts-apple-for-eyeing-unacceptable-chinese-chip-supplier-deal)
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

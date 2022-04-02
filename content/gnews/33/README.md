@@ -2,35 +2,35 @@
 ---
 
 
-## 欧盟委员会批准新的规则草案以加强对数字资产交易的监控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273440/)
+## 俄罗斯石油公司一燃料库发生大火
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273621/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：小红帽
+整理/编辑：围剿维尼熊
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Committee_Room_of_the_European_Parliament_in_Brussels.jpg)图片来源：wikipedia
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/C9839229-E49D-41BD-872A-B5A3476F949A.jpg)图片来源：搜狐
 
 
-根据COINGEEK4月1日报道，在欧洲，数字资产转移可能很快就会受到更多的监控，其中包括那些来自用户私人持有的“非托管”钱包的数字资产。两个欧盟（EU）议会委员会已经批准了立法草案，允许对区块链钱包交易进行更多的追踪和监控。一些人认为这些交易包含了几个关于隐私和数字资产可用性的“红旗”。
+根据大纪元4月2日讯，俄罗斯石油公司位于本国别尔哥罗德市（Belgorod）的一个燃料库周五（4月1日）发生大火。
 
-欧盟议会经济和货币事务委员会（ECON）和公民自由委员会（LIBE）于2022年3月31日以93票对14票（14票弃权）批准了该草案。
+乌克兰外交部长德米特罗‧库列巴（Dmytro Kuleba）回应说，他无法证实或否认关于乌克兰参与此次袭击的说法，因为他没有得到相关军事信息。
 
-该草案预计将在下周的欧洲议会全体会议上进行表决。如果通过，它将成为整个欧盟的法律。作为金融行动特别工作组（FATF）系列提案的一部分，这是越来越多地监控私人交易并防止洗钱和逃税的全球趋势的一部分。
+俄罗斯地区长官维亚切斯拉夫‧格拉德科夫（Vyacheslav Gladkov）在Telegram上说，两架乌克兰直升机在低空进入俄罗斯后，袭击了位于别尔哥罗德的设施。该地区距离乌克兰边境约35公里。
 
-最初，拟议的规则要求数字资产服务提供商收集有关向“非托管”钱包转账的信息。然而，草案的后期修正案插入了新的措辞，要求他们也要识别和验证此类钱包的受益人（或用户）。这甚至包括不属于该供应商客户的钱包。
+克里姆林宫发言人德米特里‧佩斯科夫（Dmitry Peskov）对记者说，总统弗拉基米尔‧普京已经听取关于这一事件的汇报。佩斯科夫表示，这次袭击事件可能危及莫斯科与基辅的和平谈判。
 
-在所有版本的立法中，服务提供商还必须报告任何“可疑”交易。根据FATF的“旅行规则”，法规适用于任何超过1,000欧元的法币交易。然而，该草案将把该规则适用于所有数字资产交易。交易所也将被要求向当局通报任何来自非客户、“非托管”钱包的平台交易。
+俄罗斯能源部长尼古拉‧舒尔金诺夫（Nikolai Shulginov）表示，这一事件不会影响该地区的燃料供应或消费者价格。
 
-新闻来源：[EU committees approve new draft rules to increase monitoring of digital asset transactions](https://coingeek.com/eu-committees-approve-new-draft-rules-to-increase-monitoring-of-digital-asset-transactions/)
+参考链接：[俄石油公司燃料库发生大火 视频曝光](https://www.epochtimes.com/gb/22/4/1/n13689482.htm)
 
-发布：tianzhihuan
+*发布：tianzhihuan*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

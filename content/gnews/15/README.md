@@ -2,40 +2,36 @@
 ---
 
 
-## 墙内疫情封控见闻几则
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2274287/)
+## 恒大子公司称95%的项目已复工
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2274353/)
 
-作者：纽约香草山教育部—霍比特人
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-1、当执勤队伍排着整齐的方阵欲进入某地（一说常州一说上海）一个小区时，意外地被小区居民拦在了大门外。他们问执勤队伍，你们有48小时内的核酸报告吗？有文章评论说，“这个发问非常可爱，因为大多数时候，我们都是属于被问的一方。”
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-2、据一位亲身经历上海浦东核酸检测大筛查的医务人员记述，在检测中各种状况层出不穷。检测人员按社区要求一大早到达指定地点却见不到社区工作人员；检测期间有居民抽着烟随意走动遛狗；有些居民不按规定时间来做检测；有居民死活不做检测，怕被人趁机获取他的DNA信息；社区工作人员连一人一套防护服都不能保证；有些家庭就一个老人行动不便不能下楼，却全家呆在楼上坐等医护上门检测；有些要求上门检测的居民则完全没有任何行动不便；有不做检测不该下楼的居民随意下楼，而几次大声通知之后，有些应该下楼做检测的居民却还是不下楼；有些人到了检测结束的时间，当医务人员都换掉了防护服收拾好东西准备离开的时候却突然冲下来，与医务人员和社工大吵特吵。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/浦东测核酸1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/浦东测核酸2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0143.jpg)
 
-3、上海金山某隔离点居然有婴幼儿隔离床，不准大人陪护，场面一片混乱，此事已经引起公众的强烈不满，被广为传播。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/婴幼儿隔离1.jpg)
+图片来源：路透社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/婴幼儿隔离2.jpg)
+陷入困境的房地产开发商中国恒大集团（3333.HK）的一家子公司表示，截至 3 月底，恒大在全国 95% 的项目已复工。
 
-目前上海等地防疫封控已渐呈疲态，残酷激烈的上层政治斗争与半愚昧半朴素的底层民众间小摩小擦的酸甜苦辣交织着，靠数量众多的基层政府和社区工作人员勉强维持着社会的秩序和平衡，形势岌岌可危。
+据开发商珠三角事业部官方微信消息，截至 3 月 27 日，恒大已在全国复工 734 个项目，其中 424 个项目恢复到正常建设水平。该帖子没有给出恒大开发总数的数字。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+恒大是全球负债最多的房地产开发商，负债超过 3000 亿美元。它正在努力偿还债券持有人、银行、供应商，以及向买家交付房屋，这体现了一个受中国政府去杠杆运动影响的臃肿行业。
 
-编辑：霍比特人
-校正/发稿：呼吸的雾霾（文小呼吸）
+恒大将“继续维持项目的正常建设，不惜一切代价保质保量地交付业主”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+公司董事长许家印自2021年起多次承诺，公司将全力复工，确保送货上门。
 
+据直接了解此事的消息人士和媒体报道，许在 2 月份告诉员工，该公司的目标是在 2022 年交付 60 万套公寓。
+
+简评：恒大自称其项目复工复产， 许家印的从2021年就多次承诺， 每次都没有兑现， 这次能吗？答案是肯定的。 文章中也明确的指出了， 恒大地产负债超过3000亿。这是十分保守的负债， 继续出来骗人是本质。 真希望老百姓别再上当了。
+
+🔗[https://www.reuters.com/world/china/construction-has-resumed-95-china-evergrande-projects-unit-says-2022-04-02/](https://www.reuters.com/world/china/construction-has-resumed-95-china-evergrande-projects-unit-says-2022-04-02/)
+
+编辑发表： Shuizhuyu
 
  
 
