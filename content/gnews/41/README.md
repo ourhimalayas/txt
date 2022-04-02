@@ -2,32 +2,36 @@
 ---
 
 
-## 死伤惨重！俄海军陆战旅死伤过半退至白俄罗斯
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272438/)
+## 人道灾难频发，浦东新区承诺解封已落空
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273255/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-俄罗斯入侵乌克兰，俄军投入了大量的人力物力却不如预期般的顺利反而损失惨重，有外媒指出，俄军远东太平洋舰队海军独立陆战旅兵力损失已超过百分之50。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/phpUSRSpk.jpg)图片来源：美联社
+整理/编辑：文泓
 
-综合外媒报导，总部在海参崴的俄军远东太平洋舰队海军独立陆战旅，有1600名军人参与俄罗斯侵略乌克兰战争，目前已损失了220人、530人受伤、还有数名士兵被俘虏，已损失了超过一半的人数，倖存者正準备从乌克兰撤退至白俄罗斯，他们打算撰写一份拒绝参与进一步的军事行动报告书。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/DD8KN9_NHSBVVUOU7PXA.png)图片来源：搜狐网&推特
 
-据乌克兰媒体报导，自2月24日至3月31日止，俄罗斯军队已损失约1.75万人。
 
-简评：俄罗斯入侵乌克兰打了一月有余，海陆空三军不光没占到便宜还都损失惨重，狂妄的普大帝也该有点自知自明了。如今战场上屡屡受挫，俄罗斯内部还矛盾加剧，乌克兰另有美英超级现代化武器的加持，普京为了自己的野心打一场不可能胜利的战场，这次真的是被中共忽悠惨了！
+3月27日，上海当局发布消息，自28日起，该市以黄浦江为界分区分批实施核酸筛查。第一批，浦东、浦南及毗邻区域先行实施封控，开展核酸筛查，4月1日5时解封。
 
-中共作为俄乌战争的元凶，中共借俄罗斯之手挑起战争，怕的是自己倒台，提前转移矛盾好浑水摸鱼的苟延残喘，赌一把顺手拿下台湾，根本不会在意俄罗斯的死活，中共在意的只有自己！
+4月2日，浦东新区疫情防控领导小组办公室发布消息，为遏制疫情扩散蔓延势头，保障人民群众生命安全和身体健康，尽快实现社会面动态清零，浦东新区均为封控和管控区。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3878978](https://news.ltn.com.tw/news/world/breakingnews/3878978)
+封控区实行“区域封闭、足不出户、服务上门”，管控区实行“人不出小区、严禁聚集”。当局承诺的解封已完全落空。浦东新区新一轮核酸筛查和区域管控分布名单，已涵盖全部36个街道和乡镇。
 
-撰稿/发布：一叶知秋
+上海将根据疫情形势进一步优化调整防疫措施，全力做好居民群众生活必需品供应工作，全力保障孕产妇、血透、放化疗等特殊患者的应急就医需求，落实专门的服务保障队伍，及时响应市民群众诉求。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+中共的宣传攻势真是“说得比唱得还要好听”。这两天上海微信朋友圈都在晒收到的蔬菜“大礼包”，说政府要求收到的人分享朋友圈，共产党拿着民脂民膏施舍一些给基层的民众，真当自己是救世主了；浦东新区很多小区疫情严重一封了事，由他自生自灭；社区的老人配不到药物，血透者不能定期治疗器官衰竭；推特视频上看到大批特警进驻居民小区……不知又要酿成多少人道主义灾难。
+
+参考链接：[上海浦东新区均为封控区或管控区](https://news.ifeng.com/c/8EsSmdRGKyI)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

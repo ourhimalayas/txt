@@ -2,31 +2,34 @@
 ---
 
 
-## 法国电网运营商要求用户周一减少用电量
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2275701/)
+## 所罗门群岛不允许中共军事入驻
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275776/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ded4dd47c592b31d469ec16bae7f5aba.jpg)
+近日所罗门总理表示，不允许中共在本国建立军事基地。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
 
+澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/DFM6NL526VMOHM2MDR7F345ZXI.jpg)
+撰稿、发布：骄子
 
+reference：
 
-图片来源：路透社
+[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
 
-法国电网运营商RTE周六警告称，在欧洲遭遇寒潮之后，该国电力供需之间可能出现“紧张”局面。
+* * *
 
-RTE 发表声明，要求法国公司和地方当局减少能源消耗，尤其是在周一上午 7 点（格林威治标准时间 0500 点）至上午 10 点之间。
+欢迎订阅我们的GNews账号：
 
-RTE表示，周一上午的用电量可能达到73,000兆瓦（MW），而发电量可能达到65,000兆瓦。 RTE 表示，法国可能因此进口高达 11,000 兆瓦的电力。电网运营商预计不会停电，并将在周日更新其预测。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-该公司在 2 月表示，有必要保持高度警惕，以防寒潮持续数天、风力发电量低或核电可用性急剧下降。
-
-🔗[https://www.reuters.com/business/energy/french-power-grid-operator-asks-users-cut-consumption-monday-2022-04-02/](https://www.reuters.com/business/energy/french-power-grid-operator-asks-users-cut-consumption-monday-2022-04-02/)
-
-编辑发表： Shuizhuyu
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,31 @@
 ---
 
 
-## 美司令官：应对俄乌之战就是为了威慑中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2275768/)
+## 中日财经爆┃华为将派发股利614.04亿元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2275852/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月2日，上海清算所网站显示，华为投资控股有限公司发布公告称，经公司内部有权机构决议，拟向股东分配股利人民币614亿元。
 
-4月1日，美国空军机动司令部（AMC）司令迈克尔·米尼汉（Mike Minihan）上将，接受美国国防新闻网站“Breaking Defense”采访时表示，应对俄罗斯入侵乌克兰，就是在威慑中共政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-14.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://static01.nyt.com/images/2019/11/18/business/18DC-HUAWEI-01/merlin_164622342_b17ad35c-818a-4ea3-91b4-67034f0ae669-master1050.jpg&amp;imgrefurl=https://cn.nytimes.com/technology/20191119/huawei-us-china/&amp;tbnid=TZrOhUq97sAmYM&amp;vet=12ahUKEwjL_KLuyfX2AhVqzosBHeVhA1MQMygOegUIARDQAQ..i&amp;docid=vjWFxaWo6Gl3MM&amp;w=1050&amp;h=700&amp;q=%E5%8D%8E%E4%B8%BA&amp;ved=2ahUKEwjL_KLuyfX2AhVqzosBHeVhA1MQMygOegUIARDQAQ)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-31.jpg)（图片来自大纪元）
+4月2日，上海清算所网站显示，华为投资控股有限公司发布公告称，经公司内部有权机构决议，拟向股东分配股利人民币614亿元（具体为：61,403,559,073.76元）。
 
-他说，尽管我们正在向东欧地区运输士兵及武器，应对俄乌之战。但是实际上我们还是以印太地区的威胁为主要目标，就是在威慑中共。
+华为在公告中表示，上述股利分配系公司正常利润分配，对公司生产经营、财务状况及偿债能力无不利影响。
 
-米尼汉司令官表示，在2月24日俄罗斯入侵乌克兰之后，美方就向东欧部署了美军士兵和反坦克导弹武器等。他说，“我们不能低估正在发生的事情。如果我们在欧洲搞砸了，那么子孙都将受到影响。”
+3月28日下午，华为在深圳总部举行了2021年度经营财报发布会。财报数据显示，2021年，华为全球销售收入6368亿元人民币，净利润1137亿元人民币，同比增长75.9%。
 
-米尼汉去年10月，执掌了空军机动司令部。此前，他在亚太地区工作了8年，并在2019年至2021年期间，担任美国印太司令部副司令。
+信息来源：[华为拟向股东分配股利614亿元，去年净利润1137亿元\_经营\_人民币](https://www.sohu.com/a/534708638_114988)
 
-而且他本人相信这段印太司令部的经历，是他主掌空军机动司令部的“唯一原因”。因为对空军机动司令部来说，为可能与中共发生的战争做好一切准备。
-
-米尼汉介绍了为此做下的准备，空军必须设法使空中加油机和运输机，从美国西海岸转移到印太地区，然而，随着这些运输机离中国越近，通联、网络能力都会下降。与战斗机和轰炸机相比，运输机体积大、速度慢、防御系统较少，使它们容易成为敌方目标。
-
-米尼汉说，尽管这些准备已经很久没有做过了，但是“如果中共能迅速在台湾站稳脚跟，那么这一切都会陷入困境。”所以要尽早解决这些问题。
-
-米尼汉介绍，将确定四个重要领域，其一加强指挥和控制，确保部队之间的联系；其次加强导航能力，当中共扰乱GPS或其他系统时，机组人员有能力应对；第三制定空军基地受攻击时的应变方针；最后加强在激战中维持行动速度的能力。
-
-米尼汉最后表示，空军机动司令部正在开发新战术来降低风险，以减少沟通需求，或购买更多耐用的通信设备，来填补缺口。为进一步应对中共方面做好万全之策。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/2/n13690165.htm](https://www.epochtimes.com/gb/22/4/2/n13690165.htm)
-
-总编：老孙
-校对发布：爱放飞
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

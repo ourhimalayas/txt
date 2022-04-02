@@ -2,31 +2,20 @@
 ---
 
 
-## 澳大利亚拟建新达尔文港以摆脱中共控制
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2269595/)
+## 俄罗斯对油菜籽和葵花籽实施临时出口禁令
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2269647/)
 
-#### 整理：li yan li
-编辑：Mttfly
+编辑：波士顿五月花—-思澈
 
-#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/fa003ba6f9a7835d.jpg)图片：Euronews&DARWIN PORT&雅典娜设计组
-据《澳大利亚人报》当地时间3月31日报道，澳大利亚现任国防部长彼得·达顿（Peter Dutton）表示，澳政府正考虑在达尔文市建造供军方使用的新港口，以替代租赁给中共的达尔文港。
+俄罗斯农业部宣布的临时出口禁令从本周星期五持续到8月底。
 
-据资料显示，2015年中共岚桥集团（Landbridge Group）获得了达尔文港为期99年的租约。该交易此后引发了重大的国家安全问题。因为担心中共反对和巨额的赔偿费用，联邦政府最近选择不剥夺岚桥集团对达尔文港的承租权，转而建造新港口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3D97DF00-AB06-4C5E-852E-CDAD8209B07F.jpeg)
 
-财政部长西蒙·伯明翰（Simon Birmingham）证实，政府正在考虑在达尔文建造一个二级港口设施，并且将在岚桥集团租赁的地理区域之外建造。
+俄罗斯从本周五起对油菜籽和葵花籽实施临时出口禁令。俄罗斯农业部周四在莫斯科宣布，该出口将持续到8月底。此外，在4月15日至8月31日期间，葵花籽油的出口将被限制在150万吨。这是为了防止国内出现短缺，并控制住通货膨胀。俄罗斯是世界上最大的葵花籽油生产国之一，印度是菜籽油最大的买家之一。
 
-该项目将由莫里森政府对北领地的20亿的基础设施投资款项提供部分资金支持。该项目也得到了北领地政府的“支持”和“推动”。
+素材来源：[https://www.rtl.de/cms/kein-raps-und-sonnenblumenkerne-ins-ausland-russland-verhaengt-exportverbot-4946189.html](https://www.rtl.de/cms/kein-raps-und-sonnenblumenkerne-ins-ausland-russland-verhaengt-exportverbot-4946189.html)
 
-新闻链接：[国防部长Peter Dutton：新达尔文港口设施可能绕过中国](https://cn.theaustralian.com.au/2022/03/31/65196/)
-
-*发布：Frank2021*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+发布：思澈
 
  
 

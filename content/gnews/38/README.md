@@ -2,31 +2,35 @@
 ---
 
 
-## 俄乌战争｜欧洲议长突访基辅 承诺支持乌克兰入欧
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273317/)
+## 欧盟委员会批准新的规则草案以加强对数字资产交易的监控
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273440/)
 
-**图/文｜CP **
-**发布时间｜02/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜歐洲議長突訪基輔-承諾支持烏克蘭入歐.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+翻译/编辑：小红帽
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Committee_Room_of_the_European_Parliament_in_Brussels.jpg)图片来源：wikipedia
 
 
-欧洲议会主席梅措拉（Roberta Metsola）周五（4月1日）突然访问基辅，与乌克兰总统泽连斯基（Volodymyr Zelenskyy）及国会议长会面，成为俄罗斯入侵乌克兰以来首位访乌的欧盟主要机构领袖。她承诺将全力支持乌克兰成为欧盟的入盟候选国，并为战后重建提供援助。
+根据COINGEEK4月1日报道，在欧洲，数字资产转移可能很快就会受到更多的监控，其中包括那些来自用户私人持有的“非托管”钱包的数字资产。两个欧盟（EU）议会委员会已经批准了立法草案，允许对区块链钱包交易进行更多的追踪和监控。一些人认为这些交易包含了几个关于隐私和数字资产可用性的“红旗”。
 
-梅措拉抵乌后，先后与乌克兰国会最高拉达议长斯特凡丘克（Ruslan Stefanchuk）、总理什米加尔（Denys Shmyhal）及总统泽连斯基（Volodymyr Zelenskyy）会面，并到最高拉达发表演说。
+欧盟议会经济和货币事务委员会（ECON）和公民自由委员会（LIBE）于2022年3月31日以93票对14票（14票弃权）批准了该草案。
 
-梅措拉在演说中作出三项承诺，一是采取更多更严厉的制裁，将追究入侵者的负责；二是理解乌克兰的“欧洲梦”以及希望加入欧盟成为成员国的愿望，全力支持乌克兰实理这一目标；三是维持甚至大加目前向乌克兰提供的财政、军事和人道援助，并继续照顾被迫逃离家园的难民，直到可以安全回家的一天，并尽一切努力在战后协助乌克兰重建遭受侵略者攻击城市和村庄。
+该草案预计将在下周的欧洲议会全体会议上进行表决。如果通过，它将成为整个欧盟的法律。作为金融行动特别工作组（FATF）系列提案的一部分，这是越来越多地监控私人交易并防止洗钱和逃税的全球趋势的一部分。
 
-梅措拉指出，欧盟是一个和平项目，创建的目的就是要将欧洲国家的命运联系起来，以避免再次卷入两次世界大战的那种冲突。她强调“乌克兰就是欧洲”，欧洲议会、欧盟和欧洲人民都与乌克兰站在一起。
+最初，拟议的规则要求数字资产服务提供商收集有关向“非托管”钱包转账的信息。然而，草案的后期修正案插入了新的措辞，要求他们也要识别和验证此类钱包的受益人（或用户）。这甚至包括不属于该供应商客户的钱包。
 
-另外，波兰、捷克和斯洛文尼亚三国的总理亦曾于上月前往基辅会见泽连斯基和什米哈尔。泽连斯基此前曾表示，希望乌克兰的所有朋友都能到访基辅。
+在所有版本的立法中，服务提供商还必须报告任何“可疑”交易。根据FATF的“旅行规则”，法规适用于任何超过1,000欧元的法币交易。然而，该草案将把该规则适用于所有数字资产交易。交易所也将被要求向当局通报任何来自非客户、“非托管”钱包的平台交易。
 
-來源｜[europarl](https://www.europarl.europa.eu/news/pt/press-room/20220401IPR26508/roberta-metsola-backs-ukrainian-people-in-kyiv)
+新闻来源：[EU committees approve new draft rules to increase monitoring of digital asset transactions](https://coingeek.com/eu-committees-approve-new-draft-rules-to-increase-monitoring-of-digital-asset-transactions/)
 
-* * *
+发布：tianzhihuan
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

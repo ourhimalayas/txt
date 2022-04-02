@@ -2,33 +2,28 @@
 ---
 
 
-## 置美国及盟友安全于不顾，苹果公司继续与中共合作获利
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2273628/)
+## 法治基金在乌克兰的人道救援行动仍在继续
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2274840/)
 
-#### 撰稿：彩虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-1.jpg)图片来源：路透社
-据《华盛顿观察家报》4月1日报道，针对苹果公司考虑从一家中国国有供应商处购买手机内存芯片的做法，参议员卢比奥(Marco Rubio)说这对美国的科技领导地位和国家安全来说是灾难性的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/124.jpg)
 
-报道说，苹果公司意欲与中共控制的与中共军队有广泛关系的YMTC（长江存储科技有限公司）达成交易，对此，卢比奥于周四写信给苹果公司首席执行官库克（Tim Cook），表达了反对。《华盛顿观察家报》获得了该信的内容。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
 
-文章指出，在中共军队提高技术能力，胁迫邻国接受北京的主权主张和在印太地区的领导地位，从而挑战美国在经济、军事和技术创新方面的领导地位上，YMTC在中共更为广泛的国家战略中发挥着关键作用。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
-卢比奥在信中表示：“下一代苹果（iPhone）产品的销售最终会加强中共军队，并因此使美国军人的生命受到威胁，这是不可接受的”。
+参考链接：
 
-卢比奥告诉《华盛顿观察家》，“如果苹果公司通过了与YMTC的任何交易，那么就会最终使得千万美国人无意中让中国共产党更为富有。如果库克真的‘爱这个国家’，他就不应该推进此类任何交易。”
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
-2021年6月，白宫在一份报告中将YMTC称为“存储芯片生产商龙头”，白宫警告由于它的产能是美国芯片巨头英特尔（Intel）的两倍，从而对美国的存储芯片公司构成了低成本威胁。
 
-对此，卢比奥指出，如果苹果公司帮助推动中国一个享有国家补贴的大型芯片供应商，则美国的芯片制造商和美国盟友的芯片制造商就面临着一个不公平的竞争环境，在已经不公平的情况下难以竞争。让像长江存储这样的中共支持的竞争对手富裕起来，将迫使该行业的美国制造商进一步整合，缩小规模，或完全关闭，对美国的国防和其他依靠值得信赖的先进芯片的关键部门构成重大威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-文章特别指出，苹果公司的总部设在加利福尼亚州，其电子制造业的生产商们在中国雇用了数百万人，而且苹果一直遵守中共关于审查和数据本地化的规定，以便在中国获利，但是，谷歌（Google）和脸书（Facebook）等竞争对手却被中共国拒之门外。
-
-**新闻来源**
-
-[Rubio blasts Apple for eyeing ‘unacceptable’ Chinese chip supplier deal](https://www.washingtonexaminer.com/policy/rubio-blasts-apple-for-eyeing-unacceptable-chinese-chip-supplier-deal)
-
+总编：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
