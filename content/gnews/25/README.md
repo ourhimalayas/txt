@@ -2,31 +2,35 @@
 ---
 
 
-## 俄乌战争｜欧洲议长突访基辅 承诺支持乌克兰入欧
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273317/)
+## 俄罗斯石油公司一燃料库发生大火
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273621/)
 
-**图/文｜CP **
-**发布时间｜02/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜歐洲議長突訪基輔-承諾支持烏克蘭入歐.jpg)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+整理/编辑：围剿维尼熊
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/C9839229-E49D-41BD-872A-B5A3476F949A.jpg)图片来源：搜狐
 
 
-欧洲议会主席梅措拉（Roberta Metsola）周五（4月1日）突然访问基辅，与乌克兰总统泽连斯基（Volodymyr Zelenskyy）及国会议长会面，成为俄罗斯入侵乌克兰以来首位访乌的欧盟主要机构领袖。她承诺将全力支持乌克兰成为欧盟的入盟候选国，并为战后重建提供援助。
+根据大纪元4月2日讯，俄罗斯石油公司位于本国别尔哥罗德市（Belgorod）的一个燃料库周五（4月1日）发生大火。
 
-梅措拉抵乌后，先后与乌克兰国会最高拉达议长斯特凡丘克（Ruslan Stefanchuk）、总理什米加尔（Denys Shmyhal）及总统泽连斯基（Volodymyr Zelenskyy）会面，并到最高拉达发表演说。
+乌克兰外交部长德米特罗‧库列巴（Dmytro Kuleba）回应说，他无法证实或否认关于乌克兰参与此次袭击的说法，因为他没有得到相关军事信息。
 
-梅措拉在演说中作出三项承诺，一是采取更多更严厉的制裁，将追究入侵者的负责；二是理解乌克兰的“欧洲梦”以及希望加入欧盟成为成员国的愿望，全力支持乌克兰实理这一目标；三是维持甚至大加目前向乌克兰提供的财政、军事和人道援助，并继续照顾被迫逃离家园的难民，直到可以安全回家的一天，并尽一切努力在战后协助乌克兰重建遭受侵略者攻击城市和村庄。
+俄罗斯地区长官维亚切斯拉夫‧格拉德科夫（Vyacheslav Gladkov）在Telegram上说，两架乌克兰直升机在低空进入俄罗斯后，袭击了位于别尔哥罗德的设施。该地区距离乌克兰边境约35公里。
 
-梅措拉指出，欧盟是一个和平项目，创建的目的就是要将欧洲国家的命运联系起来，以避免再次卷入两次世界大战的那种冲突。她强调“乌克兰就是欧洲”，欧洲议会、欧盟和欧洲人民都与乌克兰站在一起。
+克里姆林宫发言人德米特里‧佩斯科夫（Dmitry Peskov）对记者说，总统弗拉基米尔‧普京已经听取关于这一事件的汇报。佩斯科夫表示，这次袭击事件可能危及莫斯科与基辅的和平谈判。
 
-另外，波兰、捷克和斯洛文尼亚三国的总理亦曾于上月前往基辅会见泽连斯基和什米哈尔。泽连斯基此前曾表示，希望乌克兰的所有朋友都能到访基辅。
+俄罗斯能源部长尼古拉‧舒尔金诺夫（Nikolai Shulginov）表示，这一事件不会影响该地区的燃料供应或消费者价格。
 
-來源｜[europarl](https://www.europarl.europa.eu/news/pt/press-room/20220401IPR26508/roberta-metsola-backs-ukrainian-people-in-kyiv)
+参考链接：[俄石油公司燃料库发生大火 视频曝光](https://www.epochtimes.com/gb/22/4/1/n13689482.htm)
 
-* * *
+*发布：tianzhihuan*
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

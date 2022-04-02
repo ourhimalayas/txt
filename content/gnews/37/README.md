@@ -2,30 +2,25 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月1日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2272337/)
+## 疫苗灾难｜香港女星接种疫苗后患免疫系统疾病 严重可致双眼失明
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2272628/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC.png)
+**图/文｜CP**
+**发布时间｜02/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/香港女星接種疫苗後患免疫系統疾病-嚴重可致雙眼失明.jpg)
+香港TVB重头剧《金宵大厦2》开播在即，女主角李施嬅日前突然在IG拍片透露自己患上重疾，正接受治疗，无法出席新剧宣传活动。
 
+虽然她称自己的患病时间是在去年9，10 月份，并自此就停止工作，专心接受治疗，不过根据她IG的纪录来看，她在一个月前，即今年2月28日，她还精神奕奕的接种了新冠疫苗加强剂。
 
-校对：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_20220402-103834_Instagram-2-scaled.jpg)
 
-编辑：Stay文苑
+李施嬅在接受电话访问时透露自己被确诊患上自身免疫性疾病（Autoimmune disease），最严重的时候，心跳加速、手抖、消瘦、甚至被查出患有甲状腺疾病，经过治疗后，目前，其他症状已得到缓解，惟视力仍受到很大影响，每星期都要接受类固醇注射治疗。
 
-发稿：Stay文苑
+来源｜[李施嬅YouTube](https://youtu.be/vPOYQVzywDg)
 
-新闻：[https://gettr.com/post/p1345is9340](https://gettr.com/post/p1345is9340)
-访谈：[https://gettr.com/post/p133xg2dd4c](https://gettr.com/post/p133xg2dd4c)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 
