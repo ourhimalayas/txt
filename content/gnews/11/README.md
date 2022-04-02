@@ -2,31 +2,30 @@
 ---
 
 
-## 有声|81岁老人徒步逃离战乱 新中国联邦送温暖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2276804/)
+## 特鲁多政府雇佣“网红”鼓动民众打疫苗
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2276835/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月30日，新中国联邦乌克兰前线救援团队，在梅迪卡基地接待了一位81岁高龄的乌克兰老奶奶。
+##### 作者：加拿大温哥华扬帆农场 – 薇文
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+美国《后千禧年》网络媒体31日报道，特鲁多政府2021年花费60多万加元，雇用有影响的社交媒体人进行所谓的 “推动联邦倡议”，以鼓动加拿大人接种疫苗。利用“网红”传递政府信息，正成为越来越成为政府追捧的新策略。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-195.png)
+根据最近提交给下议院的文件分析，去年有十多个联邦部门和机构雇用这类“网红”来做宣传。文件显示，2021年1月，加拿大卫生部是在线宣传活动最慷慨的政府机构。一个月里，仅卫生部就向不同的人支付了约13万加元现金。卫生部称这些“网红”宣传，帮助加拿大人对病毒疫苗做出知情的决定，是加拿大政府整体战略的必要补充。例如政府雇用加拿大的演员兼模特，向他2万多名粉丝宣传通过访问加拿大政府网站了解疫苗并解惑。
 
-为逃离战乱，老奶奶徒步60公里到达梅迪卡。新中国联邦前线战友热情地接待老奶奶，提供食物和休息场地，让她在等待亲人的期间感受到温暖。
+催生特鲁多政府采用这种宣传手段，是因为他们认为无论推行什么，在加拿大和世界各地都不会被信任。
 
-接下来，我们一起收看来自前线的报导。
+新闻链接：[Trudeau Liberals paid over $600k to hire influencers to convince people to get vaxxed](https://thepostmillennial.com/trudeau-administration-paid-influencers)
 
-文字版原文：[81岁老人徒步逃离战乱 新中国联邦送温暖](https://gnews.org/zh-hans/2268008/)
+编辑/上传 – 文永
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-音频处理：Fei797
-发稿：Fei797
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

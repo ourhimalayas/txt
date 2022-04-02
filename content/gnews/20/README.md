@@ -2,10 +2,35 @@
 ---
 
 
-## 【粤语配音】2022年4月2日： 共产党隐瞒战争、病毒、疫苗、封城的真相
-` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2276509/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月2日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2276546/)
 
-紐約香草山-香港部
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.02早 《NFSC新闻》](https://www.gettr.com/streaming/p137l8p7cac)
+[2022.04.02早《NFSC新闻访谈》](https://gettr.com/streaming/p1372ht15e7)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-2.jpg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123.png)
 
  
 
