@@ -2,37 +2,56 @@
 ---
 
 
-## 有声|联合国向乌克兰提供紧急食品援助
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2275078/)
+## COVID-19疫苗副作用集萃（2022.4.2）&#8211;辉瑞疫苗三针后发烧乏力肌肉酸痛
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275168/)
 
-配音：香草山农场 – 纳米
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-3月30日，联合国世界粮食计划署 ​​WFP表示， 正在向乌克兰最脆弱的人群提供应急食品。WFP警示，目前乌克兰境内有超过650万人流离失所，忍饥挨饿。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7.jpeg)
-尽管存在安全方面的问题，但WFP已经建立了能够向有需要的社区大规模提供粮食的系统。在这次行动中，WFP向哈尔科夫市的家庭提供了 33万条新鲜出炉的面包，向利沃夫的无家可归的人士提供了现金援助，还通过两个机构间人道主义车队把应急食品运往苏梅和哈尔科夫的冲突地区。
+整理：禄森
+编辑：BENJ1
 
-WFP预计未来几天还会有更多的食物送抵乌克兰，同时表示仍有5.9 亿美元的资金缺口来帮助在乌克兰境内迁移的难民。据粮食计划署执行主任比斯利在29日的简报中称，自俄乌冲突爆发以来，全球食品价格急剧上涨，已经达到历史最高水平。食品价格上涨进一步限制了数百万人获得食品的机会。他呼吁各国关注乌克兰难民面临的粮食危机，并提供更多的资助。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)图片来源：雅典娜设计组
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-文字版原文：[联合国向乌克兰提供紧急食品援助](https://gnews.org/zh-hans/2270806/)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
-**更多资讯，更多关注**
+帖子原文：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+疫情|新冠疫苗副作用  辉瑞疫苗第三针嗓子痛，鼻子酸，整条手臂酸痛并伴有发烧，头昏耳鸣
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+————————————————-
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+周五一下班就跑去了打booster
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+打针的时候护士小姐姐还问我前两针打完怎么样
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+我还说没有反应
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+事实证明这种话不能乱说
+
+Day 1⃣️ 6:30pm打完，打的时候能feel到药水注射进我的肌肉，是三次里最痛的一次，后来一切都正常，晚上回家烤和牛补补，可能也因为是第三次了没太在意了，没有大量喝水和吃维生素；凌晨3点嗓子干痛到醒来，像刀割一样痛
+
+Day2⃣️早上起来嗓子还是很疼，鼻子酸，整条手臂很酸，头一点点晕，因为嗓子疼不是common side effect，更像是covid，所以做了个rapid test是negative；然后开始发烧，怕冷，吃了颗panadol退烧就出门了，感觉都还好；晚上再吃颗panadol出门吃晚饭，就感觉panadol已经不好使了，头很晕，耳朵像感冒那样蒙了层东西，听别人说话很吃力，怕冷；晚上回到家洗热水澡后大喷嚏，开始了重感冒
+
+Day3⃣️（今天）基本不发烧了，嗓子也不疼了，但是打针那边手臂的腋下肿了，而且特别酸痛，整个人头很重，乏力，有鼻音，耳朵比昨天还严重，还是怕冷，完全变成了重感冒的样子，今天基本睡了一天，坐起来头就难受
+
+虽然病成这样，但是食欲特别好，怎么吃都吃不饱，一个广东人今晚干了一大盆东北酸菜
+
+明天请了病假，继续睡觉一天
+
+#辉瑞第三针 #辉瑞疫苗副作用
+
+参考链接：
+
+**[辉瑞疫苗第三针后发烧感冒肌肉酸痛](https://www.xiaohongshu.com/discovery/item/6236f74f000000000102b91f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648867086)**
+
+*发布：tianzhihuan*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
