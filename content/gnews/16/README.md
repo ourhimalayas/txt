@@ -2,10 +2,10 @@
 ---
 
 
-## 装有核弹头的俄罗斯轰炸机侵犯了欧盟领空
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2272880/)
+## 欧盟警告中共国不要支持俄罗斯的乌克兰战争
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2273188/)
 
-03/30/2022 装有核弹头的俄罗斯轰炸机被指控侵犯欧盟领空，而且是故意这样做
+04/01/2022 欧盟警告中共国不要支持俄罗斯或者干涉西方对俄罗斯的制裁，否则将会对中共国在欧洲的声誉造成巨大损害。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

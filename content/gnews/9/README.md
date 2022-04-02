@@ -2,53 +2,31 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.02A）——接种疫苗妇科病、癌变
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273075/)
+## 俄乌战争｜欧洲议长突访基辅 承诺支持乌克兰入欧
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273317/)
 
-整理/编辑：文泓
+**图/文｜CP **
+**发布时间｜02/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜歐洲議長突訪基輔-承諾支持烏克蘭入歐.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-94.png)图片来源：雅典娜设计组
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+欧洲议会主席梅措拉（Roberta Metsola）周五（4月1日）突然访问基辅，与乌克兰总统泽连斯基（Volodymyr Zelenskyy）及国会议长会面，成为俄罗斯入侵乌克兰以来首位访乌的欧盟主要机构领袖。她承诺将全力支持乌克兰成为欧盟的入盟候选国，并为战后重建提供援助。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+梅措拉抵乌后，先后与乌克兰国会最高拉达议长斯特凡丘克（Ruslan Stefanchuk）、总理什米加尔（Denys Shmyhal）及总统泽连斯基（Volodymyr Zelenskyy）会面，并到最高拉达发表演说。
 
-**博主：半夜想吃肉 **
+梅措拉在演说中作出三项承诺，一是采取更多更严厉的制裁，将追究入侵者的负责；二是理解乌克兰的“欧洲梦”以及希望加入欧盟成为成员国的愿望，全力支持乌克兰实理这一目标；三是维持甚至大加目前向乌克兰提供的财政、军事和人道援助，并继续照顾被迫逃离家园的难民，直到可以安全回家的一天，并尽一切努力在战后协助乌克兰重建遭受侵略者攻击城市和村庄。
 
-2022年3月31日，都来说说你们疫苗第三针打过之后都有什么反应。刚打完第三针不久，我出现了一些症状，非常紧张！前两针都没事，就是这第三针不知道怎么回事……我也不敢说，是我免疫力太低了吗？
+梅措拉指出，欧盟是一个和平项目，创建的目的就是要将欧洲国家的命运联系起来，以避免再次卷入两次世界大战的那种冲突。她强调“乌克兰就是欧洲”，欧洲议会、欧盟和欧洲人民都与乌克兰站在一起。
 
-**五花肉评论：**
+另外，波兰、捷克和斯洛文尼亚三国的总理亦曾于上月前往基辅会见泽连斯基和什米哈尔。泽连斯基此前曾表示，希望乌克兰的所有朋友都能到访基辅。
 
-我就是打了第二天就来大姨妈了，然后痛了两天；一周之内又感冒发烧，感冒还没好右下腹又开始疼，做了好多检查，跑了好多次医院，打吊针、吃中药，现在还没好，还要去医院。最主要是查出了很多病，就在妇科查出盆腔炎、阴道炎，治疗很久，右下腹还是疼，不行，要去住院了
+來源｜[europarl](https://www.europarl.europa.eu/news/pt/press-room/20220401IPR26508/roberta-metsola-backs-ukrainian-people-in-kyiv)
 
-**博主回复**：
+* * *
 
-天呐！这些炎症和打疫苗没关系吧？
-
-你是第几针？
-
-**五花肉评论：**
-
-第三针，我也不知道也没有关系，没打之前我还好好的。
-
-**可诺之家评论：**
-
-我16年做过乳腺纤维瘤手术，这几天非常不舒服，感觉又复发了，又非常害怕担心，癌（变）。
-
-**博主回复：**
-
-快去医院吧。
-
-参考链接：[来说说你们疫苗第三针打过之后都有什么反应](https://www.xiaohongshu.com/discovery/item/6245a962000000002103b0a3?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648780938)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
