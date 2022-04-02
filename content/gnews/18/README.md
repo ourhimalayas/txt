@@ -2,24 +2,37 @@
 ---
 
 
-## 【秘翻在线】欧盟将立法加强对加密资产的管束
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2273021/)
+## 拜登推出美国最大规模紧急石油储备释放计划，两大指标原油大跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273113/)
 
-#### 编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-109.png)图片来源： 网络图片合成
-欧洲议会官网4月1日发布新闻，将立法追踪监管加密资产的转移，以阻止其继续被利用于洗钱、和对恐怖活动或其他犯罪的融资。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-3月31日，欧洲议会“经济和货币事务委员会 (ECON) ”和“公民自由委员会 (LIBE) ” 以 93 票赞成、 14 票反对、 14 票弃权通过了欧盟新一轮反洗钱计划中的一项立法草案，确保比特币、或其他电子代币等加密资产的转移能够像传统汇款那样可追踪。
+整理/编辑：围剿维尼熊
 
-其中的一些主要措施包括：任何交易额的加密资产转让，都需要向主管当局提供资产来源及受益人信息，包括非托管钱包（由私人用户保管的加密资产钱包）的交易，但不包括个人之间不涉及加密货币供应商或平台的交易。设立高风险实体的公共名簿，记录所有不合规的、可能涉及洗钱或恐怖犯罪的加密资产供应或服务商家。
-
-该草案预计将于欧洲议会4月全体会议期间进行表决。目前欧盟尚没有任何法规允许追踪和监管加密资产的转移，该法案将解决这方面的监督和执行不力的问题。
-
-*责编：白夜*
-
-**新闻来源：** [Crypto assets: new rules to stop illicit flows in the EU](https://www.europarl.europa.eu/news/en/press-room/20220324IPR26164/crypto-assets-new-rules-to-stop-illicit-flows-in-the-eu)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3287-scaled.jpg)图片来源：搜狐
 
 
+根据路透4月1日报道，美国总统拜登周四推出美国有史以来规模最大的紧急石油储备释放计划。拜登宣布，从5月开始，将在六个月内每天释放100万桶原油，这是美国史上最大规模的战略石油储备(SPR)释放。
+
+两大指标原油本周均大跌约13%，创两年来最大单周跌幅。
+
+布兰特原油期货下跌0.32美元，至每桶104.39美元，跌幅0.3%。美国原油期货(WTI)下跌1.01美元，至99.27美元，跌幅1%。
+
+石油输出国组织(OPEC)及其包括俄罗斯在内的盟友组成的OPEC+联盟周四同意继续坚持每月小幅增产，43.2万桶/日的计划。3月OPEC增加的石油产量未能达到与盟国达成的协议目标。
+
+美国能源企业上周连续第二周增加活跃钻机数，但增速仍然缓慢。
+
+PVM分析师Stephen Brennock称，美国即将释放储备，这并不能改变未来几个月市场难以找到足够供应的事实。
+
+参考链接：[国际油价收低且周线创两年来最大跌幅 此前IEA成员国同意释放油储](https://cn.reuters.com/article/global-oil-market-drv-0402-idCNKCS2LU014)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

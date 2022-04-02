@@ -15,82 +15,82 @@
 
 ---
 
-### [樱花时政┃乌克兰否认袭击俄罗斯西部的燃料设施](/content/gnews/1/README.md)
+### [拜登警告说，在对俄罗斯实施制裁后，将出现“真正的”粮食短缺](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [樱花时政┃乌克兰否认袭击俄罗斯西部的燃料设施](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [推特、脸书、谷歌不顾自由派的质疑，屡次审查保守派](/content/gnews/2/README.md)
+### [推特、脸书、谷歌不顾自由派的质疑，屡次审查保守派](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行](/content/gnews/3/README.md)
+### [视频|联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行](/content/gnews/4/README.md)
  ` MOSVIDEO`
 
-### [美国官员警告：任何俄罗斯军队的调动都“不是撤军”](/content/gnews/4/README.md)
+### [美国官员警告：任何俄罗斯军队的调动都“不是撤军”](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|喜币单日交易量突破千万美元大关](/content/gnews/5/README.md)
+### [视频|喜币单日交易量突破千万美元大关](/content/gnews/6/README.md)
  ` MOSVIDEO`
 
-### [欧盟委员会批准新的规则草案以加强对数字资产交易的监控](/content/gnews/6/README.md)
+### [欧盟委员会批准新的规则草案以加强对数字资产交易的监控](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [才旺罗布死亡真相](/content/gnews/7/README.md)
+### [才旺罗布死亡真相](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [大直播后记：各个战友对严峻形势的看法](/content/gnews/8/README.md)
+### [大直播后记：各个战友对严峻形势的看法](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [俄乌战争｜欧洲议长突访基辅 承诺支持乌克兰入欧](/content/gnews/9/README.md)
+### [俄乌战争｜欧洲议长突访基辅 承诺支持乌克兰入欧](/content/gnews/10/README.md)
  ` 關注組`
 
-### [大直播后记：安红解读商鞅的驭民五术](/content/gnews/10/README.md)
+### [大直播后记：安红解读商鞅的驭民五术](/content/gnews/11/README.md)
  ` 雅典娜GNotes`
 
-### [人道灾难频发，浦东新区承诺解封已落空](/content/gnews/11/README.md)
+### [人道灾难频发，浦东新区承诺解封已落空](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [普京下令招募13万新兵 俄青年不愿充当炮灰](/content/gnews/12/README.md)
+### [普京下令招募13万新兵 俄青年不愿充当炮灰](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [俄罗斯入侵前一天，中共对乌克兰网络攻击达到顶峰](/content/gnews/13/README.md)
+### [俄罗斯入侵前一天，中共对乌克兰网络攻击达到顶峰](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [全球疫情疫苗数据更新（澳洲单日新增死亡暴增）](/content/gnews/14/README.md)
+### [全球疫情疫苗数据更新（澳洲单日新增死亡暴增）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;接种新冠疫苗后湿疹白癜风](/content/gnews/15/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;接种新冠疫苗后湿疹白癜风](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.04.02B）——接种疫苗发烧、肌肉痛](/content/gnews/16/README.md)
+### [COVID-19疫苗副作用集萃（2022.04.02B）——接种疫苗发烧、肌肉痛](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登推出美国最大规模紧急石油储备释放计划，两大指标原油大跌](/content/gnews/17/README.md)
+### [拜登推出美国最大规模紧急石油储备释放计划，两大指标原油大跌](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【秘翻在线】欧盟将立法加强对加密资产的管束](/content/gnews/18/README.md)
+### [【秘翻在线】欧盟将立法加强对加密资产的管束](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [精糧在梅迪卡边境入口处的报道系列合集——边境的手推车](/content/gnews/19/README.md)
+### [精糧在梅迪卡边境入口处的报道系列合集——边境的手推车](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国向乌克兰提供防化装备](/content/gnews/20/README.md)
+### [美国向乌克兰提供防化装备](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [中俄贸易中约90%小型中国出口商受卢布汇率影响](/content/gnews/21/README.md)
+### [中俄贸易中约90%小型中国出口商受卢布汇率影响](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频|新中国联邦和法治基金在乌克兰的人道救援行动](/content/gnews/22/README.md)
+### [视频|新中国联邦和法治基金在乌克兰的人道救援行动](/content/gnews/23/README.md)
  ` MOSVIDEO`
 
-### [视频|简述世界货币体系的四个阶段](/content/gnews/23/README.md)
+### [视频|简述世界货币体系的四个阶段](/content/gnews/24/README.md)
  ` MOSVIDEO`
 
-### [视频|德国政界：中共是威胁德国经济的“系统性竞争对手”](/content/gnews/24/README.md)
+### [视频|德国政界：中共是威胁德国经济的“系统性竞争对手”](/content/gnews/25/README.md)
  ` MOSVIDEO`
 
-### [视频|中共暗中操控媒体网红 为其进行宣传](/content/gnews/25/README.md)
- ` MOSVIDEO`
-
-### [视频|中共三大航空公司亏损严重](/content/gnews/26/README.md)
+### [视频|中共暗中操控媒体网红 为其进行宣传](/content/gnews/26/README.md)
  ` MOSVIDEO`
 
 ### [俄石油公司燃料库发生大火](/content/gnews/27/README.md)
@@ -126,8 +126,8 @@
 ### [中共前司法部长傅政华被双开](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧盟警告中共国 不要支持克里姆林宫](/content/gnews/38/README.md)
- ` Shuizhuyu`
+### [聚焦：俄流亡大亨道出普京的困境与危险](/content/gnews/38/README.md)
+ ` 蓝莲花农场`
 
 ### [DC大中华时事：赵立坚称希望欧方同中方相向而行](/content/gnews/39/README.md)
  ` 喜马拉雅-华盛顿DC农场`

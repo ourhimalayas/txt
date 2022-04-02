@@ -2,44 +2,33 @@
 ---
 
 
-## 全球疫情疫苗数据更新（澳洲单日新增死亡暴增）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273149/)
+## 俄罗斯入侵前一天，中共对乌克兰网络攻击达到顶峰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273184/)
 
-整理：枳实
-美工：精灵蓝
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/UDKR3TIG_8__C1WK2Y6XP.png)图片：雅典娜农场设计组 精灵蓝
+整理/编辑：围剿维尼熊
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3CAA763F-F88F-49B0-AE57-FFA1F4BCC16B.jpg)图片来源：快科技
 
 
-雅典娜疫情更新（2022年 4月1日）
+根据大纪元4月2日讯，乌克兰的国家情报显示，在俄罗斯入侵前，中共对乌克兰的军事和核电厂进行大规模网络攻击。
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8-1.png)
-**澳洲单日新增死亡暴增**
+乌克兰安全局称，由中共政府协调的黑客对乌克兰国防部等机构在内的600多个网站进行了数千次攻击，这些网络攻击在北京冬奥会结束前开始，且在俄罗斯入侵乌克兰前一天（2月23日）达到顶峰。
 
-今日的澳洲中共病毒感染死亡人数达300多人，超过了数周以来平均数字的十倍之多。无独有偶，[今日澳洲新南威尔士州更爆出急救服务面临的需求增长已经达到其应对能力的极限](https://www.weeklytimesnow.com.au/news/national/nsw-ambulance-networks-under-pressure/video/38fabd34a2d58d9d6e064ea843222eb7)，不堪重负。由于急诊室爆满，员工短缺，中共病毒感染病例数增加等因素，新州急救网络不得不抽调管理人员支援一线工作。
+乌克兰安全局说，中共还试图渗透乌克兰的多个目标，包括从边防部队到国家银行和铁路局，为的是窃取数据，查找关闭或破坏乌克兰重要国防和民用基础设施的方法。
 
-[2022年4月1日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月1日改进.pdf)
+美国情报部门表示，关于中国在俄罗斯入侵前对乌克兰政府设施进行网络攻击的信息是准确的。
 
-数据来源：
+北京至今拒绝谴责俄罗斯入侵乌克兰的行为。有网络安全专家表示，中方网络攻击的时间似乎证实了莫斯科已经将其入侵计划通知了北京。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+参考链接：[乌情报：在俄入侵前 中共大规模网攻乌克兰](https://www.epochtimes.com/gb/22/4/1/n13689683.htm)
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+*发布：tianzhihuan*
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
