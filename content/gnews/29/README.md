@@ -2,34 +2,37 @@
 ---
 
 
-## 教皇含蓄地批评普京对乌克兰的入侵
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275782/)
+## 有声|美报告称北京继续瓦解香港民主制度
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2275811/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ARPIRRAAXFMM5OOYAK6COSIRQI.jpg)
-近日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，他说一个大国正在为民族主义利益煽动战争冲突。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+**美国国务院当地时间周四（3月31日）就《香港人权与民主法案》发表2022年度香港政策报告，报告称在过去一年中共中央政府继续瓦解香港的民主制度，对司法机构施加前所未有的压力，并扼杀学术、文化和新闻自由。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image005.png)**中共就香港的民主发展发表白皮书，指刚结束的立法会选举为实现行政长官和立法会「双普选」这「目标」创造了有利条件，但没有提及达致这目标的时间表和路线图，只是强调，香港须实行有其特色的民主，而发展什么样的民主，北京的中央政府拥有「主导权和决定权」。但有学者批评白皮书的部分内容与历史基本表述不符。**
+**年度报告指出，中共大人常委会通过决定，对香港的选举制度进行彻底改革，阻止未经北京批准的政治团体参与，并大力削弱了香港选民选举代议士的能力。**
 
-普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前方济各为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。郭先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使得教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，并在暗中批评普京，他说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力出现，毫无疑问普京是无理地侵略，并强烈谴责其战争暴行。
+**报告还提及，在北京的支持下，香港政府继续利用国家安全法破坏权利和自由，包括《基本法》和《中英联合声明》保护的自由。
 
-方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
+另外，英国也于3月31日发表《香港半年报告：2021年7月至12月》，报告称，香港国安法破坏《中英联合声明》中承诺的权利及自由。**
 
-reference：
 
-[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
 
-撰稿、发布：骄子
+[【援引连结】](https://www.zaobao.com.sg/realtime/china/story20220401-1258245)
 
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

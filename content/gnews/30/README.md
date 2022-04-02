@@ -2,22 +2,22 @@
 ---
 
 
-## 所罗门群岛不允许中共军事入驻
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275776/)
+## 教皇含蓄地批评普京对乌克兰的入侵
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275782/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ded4dd47c592b31d469ec16bae7f5aba.jpg)
-近日所罗门总理表示，不允许中共在本国建立军事基地。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ARPIRRAAXFMM5OOYAK6COSIRQI.jpg)
+近日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，他说一个大国正在为民族主义利益煽动战争冲突。
 
-据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
+普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前方济各为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。郭先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使得教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，并在暗中批评普京，他说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力出现，毫无疑问普京是无理地侵略，并强烈谴责其战争暴行。
 
-澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
-
-撰稿、发布：骄子
+方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
 
 reference：
 
-[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+
+撰稿、发布：骄子
 
 * * *
 
@@ -29,7 +29,7 @@ reference：
 - [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
