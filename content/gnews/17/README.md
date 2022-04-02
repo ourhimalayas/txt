@@ -2,56 +2,59 @@
 ---
 
 
-## 新冠疫苗副作用亲历者爆料收集专栏
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275163/)
+## 独家：美国取消洲际弹道导弹试验 避免与俄核紧张局势
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2275310/)
 
-整理：gardeniahu
-编辑：朝花夕拾
+翻译：文乐
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-18-edited.png)2017年8月2日，美国加利福尼亚州范登堡空军基地，太平洋夏令时间凌晨2点10分，一枚民兵 III 洲际弹道导弹发射。照片摄于2017年8月2日。美国空军/高级飞行员伊恩·达德利/来自路透社
 
-**疫情|新冠疫苗副作用  疫苗后痛风，生理错乱**
+华盛顿，4 月 1 日（路透社）——美国空军周五告诉路透社，美国军方取消了对民兵3(Minuteman III)洲际弹道导弹的测试，最初的目的只是为了在乌克兰战争期间缓和与俄罗斯的核紧张局势。
 
-说说疫苗反应吧
+在俄罗斯表示其核力量处于高度戒备状态后，五角大楼于 3 月 2 日首次宣布推迟试验。华盛顿当时表示，重要的是美国和俄罗斯都“牢记误判的风险，并采取措施降低这些风险”。
 
-今晚打了第三针，希望反应不会太大。
+但它曾公开表示其意图只是“稍微”推迟测试，而不是取消测试。
 
-第一针没有反应。
+空军发言人安·斯特凡内特(Ann Stefanek)表示，取消 LGM-30G 民兵3导弹测试的决定与首次推迟测试的原因相同。下一次民兵3测试计划于今年晚些时候进行。
 
-第二针注射后半个月内痛风。之前一直控制很好，也没乱吃东西，突然就痛了，不严重，大量喝水并吃了芹菜籽提取片之后第二天好了。生理期错乱。
+“空军对美国战略部队的战备状态充满信心，”斯特凡内克说。
 
-一开始是延迟了10天，然后是半个月，我去喝了中药才来，这次是拖了30天，量也少。发现好多人注射后都有生理期失调的症状。
+改变美国洲际弹道导弹部队的测试时间表可能会引起争议。美国参议员吉姆·英霍夫（Jim Inhofe）是参议院军事委员会的最高共和党人，他在 3 月份对推迟进行测试表示失望，他说这对于确保美国的核威慑仍然有效至关重要。
 
-希望三针不要再痛风了，太痛苦了。姨妈可以调好，反正也不用打针了。如果有第四针我也不打了。#新冠疫苗#疫苗加强针#接种疫苗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-5.png)
-#接种疫苗#疫苗加强针#新冠疫苗
+詹姆斯·马丁防扩散研究中心（CNS）的导弹研究员杰弗里·刘易斯淡化了取消的影响。
 
-精选评论
+刘易斯说：“进行测试是有价值的，但我认为在宏伟的计划中错过一项测试并不是什么大不了的事，”并补充说民兵3非常可靠。
 
-Y   回复:  第三针结束后。就闭经了
+具有核能力的民兵3是美国军方战略武器库的关键部分，射程超过 6,000 英里（9,660 多公里），并且可以以大约 15,000 英里/小时（24,000 公里/小时）的速度飞行。
 
-栗子  回复：第一针没有反应，第二针过敏性皮炎，不打第三针
+导弹分布在发射人员操作的硬化地下发射井中。
 
-云里的酒   回复：我和我男朋友昨天打完康诺希，现在头痛发热，腰酸，全身都不舒服。
+俄罗斯总统弗拉基米尔·普京(Vladimir Putin)在二月份表示，他的国家的核力量应该处于高度戒备状态，这引发了人们对俄罗斯入侵乌克兰可能导致核战争的担忧。但美国官员表示，到目前为止，他们认为没有理由改变华盛顿的核警戒级别。
 
-狗狗   回复：我手膀子肿了，而且嗓子疼。之前一二针毫无反应
+冷战之后，俄罗斯和美国拥有迄今为止最大的核弹头武库，冷战在 20 世纪的大部分时间里分裂了世界，让西方与苏联及其盟国对抗。
 
-参考链接：
+俄罗斯周五早些时候宣布，它将在军事上加强其与欧洲的西部边界。
 
-[https://www.xiaohongshu.com/discovery/item/6245cf4c00000000210380f9?share\_from\_user\_hidden=true&xhsshare=CopyLink&appuid=593bc86450c4b43662c38691&apptime=1648866317](https://www.xiaohongshu.com/discovery/item/6245cf4c00000000210380f9?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648866317)
+新闻来源：[Exclusive: U.S. cancels ICBM test due to Russia nuclear tensions](https://www.reuters.com/business/aerospace-defense/exclusive-us-cancels-icbm-test-due-russia-nuclear-tensions-2022-04-01/)
 
-*发布：tianzhihuan*
+* * *
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

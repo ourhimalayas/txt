@@ -2,13 +2,16 @@
 ---
 
 
-## 傅政华被开除党籍、开除公职
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2275436/)
+## 20220401郭文贵大直播 ：逃难的路和回家的路都很艰辛
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2275597/)
 
-03/31/2022 作恶多端的傅政华，一如郭文贵先生的预言，被开除党籍、开除公职。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
