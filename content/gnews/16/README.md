@@ -2,10 +2,10 @@
 ---
 
 
-## 北约警告俄军并没有撤军，而是在重新部署
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2272798/)
+## 装有核弹头的俄罗斯轰炸机侵犯了欧盟领空
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2272880/)
 
-03/31/2022 北约警告俄军并没有撤军，而是在重新部署。乌克兰称俄军可能在白俄罗斯重新组织，并为下一个致命阶段做准备。
+03/30/2022 装有核弹头的俄罗斯轰炸机被指控侵犯欧盟领空，而且是故意这样做
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

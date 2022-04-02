@@ -2,39 +2,34 @@
 ---
 
 
-## 美国总统：我们不会被打到！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2272635/)
+## 俄石油公司燃料库发生大火
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2272763/)
 
-采集：玫瑰新闻组
+**撰稿：日本东京方舟农场  子辰**
 
-![此图像的alt属性为空；文件名为G%E6%96%B0%E9%97%BB-2.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-1.jpg)（图片来自大纪元 ）
 
+4月1日，俄罗斯应急部发布的视频显示，俄罗斯边境城市别尔哥罗德（Belgorod）的一燃料库起火。俄罗斯指责这是乌克兰对其空袭的结果。克里姆林宫称这一事件为正在与基辅进行的和平谈判带来负面影响。
 
+别尔哥罗德靠近乌克兰与俄罗斯的东北部边界。该地区在俄罗斯入侵之前被用作俄军集结地。
 
+事件发生后，乌克兰外交部长德米特罗‧库列巴（Dmytro Kuleba）回应说，他无法证实或否认关于乌克兰参与此次袭击的说法，因为他没有得到相关军事信息。
 
+据悉，这是自2月24日莫斯科发动对乌克兰入侵以来，乌克兰首次被指控空袭了俄罗斯领土。该地区距离乌克兰边境约35公里（22英里）。
 
+据俄罗斯油库监控录像显示，看似一枚导弹闪著光从低空飞过，随后在地面上发生爆炸。俄罗斯国防部说，两架乌克兰的米-24（Mi-24）直升机参与了这次突袭。
 
+克里姆林宫发言人德米特里‧佩斯科夫（Dmitry Peskov）在当天的电话会议上对记者说，总统普京已经得知此事。佩斯科夫说，这次袭击事件可能危及莫斯科与基辅的和平谈判。
 
-so much experience you are the leader of this country
+俄罗斯能源部长尼古拉‧舒尔金诺夫（Nikolai Shulginov）表示，这一事件不会影响该地区的燃料供应或消费者价格。
 
-你有这么丰富的经验，你是这个国家的领导者
+此外，俄乌双方将继续和谈。同时，乌军正在夺回北部被俄军放弃的区域。目前被俄军称为行动重点的东南部，即马里乌波尔市（Mariupol）据红十字组织表示尚不能提供援助。
 
-拜登总统：
+参考链接：
+[https://www.epochtimes.com/gb/22/4/1/n13689482.htm](https://www.epochtimes.com/gb/22/4/1/n13689482.htm)
 
-Because it is ridiculous.
-
-因为这太荒谬了
-
-Nobody believes we’re going to take down… I was talking about taking down Putin.
-
-没有人相信我们会打倒，我说的是要打倒普京
-
-Nobody would believe that
-
-没有人相信
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+总编：老孙
+校对发布：Linda
 
  
 

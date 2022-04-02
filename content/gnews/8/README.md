@@ -2,31 +2,50 @@
 ---
 
 
-## 美国向乌克兰提供防化装备
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2272966/)
+## COVID-19疫苗副作用集萃（2022.4.2）&#8211;接种科兴加强针后月经不正常并荨麻疹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273079/)
 
-**撰稿：日本东京方舟农场 北极**
+整理/编辑：BENJ1
 
-据路透社4月1日报道，白宫周五表示，美国正在向乌克兰提供防化物资和设备，以防俄罗斯在入侵乌克兰时部署和使用化学或生物武器。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-94.png)图片来源：雅典娜设计组(614)
 
-白宫新闻秘书珍·莎琪（Jen Psaki）表示，美国和欧洲盟国已经预警俄罗斯可能计划 “假旗行动”（false flag operation）使用此类武器发动袭击，美国正在向乌克兰政府提供防化物资。“为了协助我们的乌克兰合作伙伴，美国政府正在向乌克兰政府提供救生设备和用品，以便在俄罗斯使用化学或生物武器的情况下部署。” 莎琪补充说。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1.jpeg)白宫新闻秘书珍·莎琪（Jen Psaki）（图片来自路透社）
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-“假旗行动”，又叫栽赃行动或嫁祸行动，指通过使用其他组织的旗帜、制服等手段误导公众以为该行动由其他组织策动的。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-据知情人士透露，担心俄乌战争进一步升级，欧盟也启动了对化学，核和生物事件的防御储备行动。
+帖子原文：
 
-克里姆林宫坚称这场侵略战争为“特殊军事行动”，散布谣言指责乌克兰准备使用化学武器。美国官员说，这种说法毫无根据，反而表明俄罗斯自己正准备这样做。
+打完新冠疫苗第三针例假消失了…
 
-美国总统拜登上周表示，如果俄罗斯总统弗拉基米尔·普京在入侵乌克兰时使用化学武器，美国将作出回应。
+有没有一样情况的姐妹，打完科兴加强针后例假推迟了，之前两针都没什么感觉，之前超准时，28天周期。另外伴随轻微荨麻疹，脸上有点过敏。
 
+#新冠疫苗
+
+#加强针
+
+评论选集：
+
+1. 第三针没打，第二针反应太大，吃了半年的中药才调理回来，中医叫我不要再打了，我本身体质排毒就困难。
+2. 打完第二针我头晕眼花半个月，第三针真的不敢挑战了
+3. 打科兴会有荨麻疹吗？我是说去年怎么突然身上痒荨麻疹，我还以为我过敏性鼻炎，没有往疫苗上想，前天打了第三针安徽智飞
+4. 经期打了第一针 然后血崩了
+5. 我也是周期还是正常，但量多了，还得了寻麻疹，非经期出血了，去检查有息肉
+6. 我打完疫苗后，查出来急性白血病
+7. 我打完第二针掉头发变多，还长痘痘
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/2-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/5-6.jpg)图片来源：小红书
 参考链接：
-1. [https://reurl.cc/qO79Yg](https://reurl.cc/qO79Yg)
-2. [https://reurl.cc/mG8WYl](https://reurl.cc/mG8WYl)
 
-总编： 老孙
-校对发布：文曦
+[接种科兴疫苗第三针后月经消失并荨麻疹](http://xhslink.com/7klMwg)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
