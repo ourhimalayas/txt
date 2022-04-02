@@ -2,36 +2,28 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“H-pay、喜支付”（十六）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275633/)
+## 俄继续通过乌克兰向欧洲出口天然气
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2275748/)
 
-#### 整理：**BENJ1**
-编辑：**Kelly**
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/EA4F23CE-7A52-4044-B853-AD9815BB9ED6.png)图片来源：雅典娜设计组～614
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-郭文贵先生2022年2月16日直播
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IDYNDLVQZFJSNCBYH7KAKUPXRY.jpg)
 
-关键HPay，大家“啪啪”就转走了，HPay解决了什么问题呀？战友们，Hpay啥都可以干。什么叫交易？我给你我有的，你给我我所需要的，咱俩形成交易，咱俩交易之间为什么需要中间第三方呢？
 
-银行是世界上最多余的王八蛋！它是因为社会上没有科技而愚弄了所有人，成为财富掠夺的工具。别忘了，第一，存在银行的钱，银行如果破产是不用还的。第二，银行赔钱也不用承担责任，赔了钱你是要承担责任的，它永远不负责任。第三，最重要的是，特别是那些苛捐杂税，你像Bunny，他要有个10万美元、8万美元，怎么纳税你告诉我，他纳什么税？！
+图片来源：路透社
 
-咱现在已经是全世界第四大交易所了！战友们，你们有第四大交易所，如果你们的数字银行再公布，还有如果某国再进行投资，你们看七哥越破产你们越有钱，这还了得了吗？！关键你们的钱不受第三方监管、第三方掠夺，这是多大的利益呀！更重要的是无国界，无物理界限。
+俄罗斯国有能源巨头俄罗斯天然气工业股份公司 (GAZP.MM) 周六表示，将根据欧洲消费者的要求，继续通过乌克兰向欧洲供应天然气。
 
-喜联储绝对KYC，百分之百地保证战友的安全，绝不接受第三方在这儿抽钱、抽佣金，出卖战友的信息，而且HPay也给配上了。
+该公司表示，4 月 2 日的需求量为 1.083 亿立方米，几乎与前一天的需求量持平。
 
-这回更是美国政府给了喜币这个政策，等美国人全面进入喜币以后，合法地流通和使用HPay以后，兄弟姐妹们，你们在全世界的钱，有比存在美国再安全的地方吗？那比美国更安全的唯一的地方，人类上只有喜币、喜交所。
+简评：俄罗斯最大的能源公司表示，会继续通过乌克兰向欧洲提供天然气。 这也和普京的意愿相违背。 能源现在是欧洲的软肋， 欧洲的能源供应主要依赖俄罗斯的供应， 而每天欧洲使用的能源都会提供给俄罗斯金源， 用于入侵乌克拉的战争。 能源是双刃剑， 解决能源问题才是欧洲不依赖别人的根本利益。
 
-资料来源：郭先生盖特直播视频
+🔗[https://www.reuters.com/business/energy/russias-gazprom-says-gas-exports-europe-via-ukraine-continue-2022-04-02/](https://www.reuters.com/business/energy/russias-gazprom-says-gas-exports-europe-via-ukraine-continue-2022-04-02/)
 
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑发表： Shuizhuyu
 
  
 

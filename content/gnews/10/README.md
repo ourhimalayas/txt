@@ -2,8 +2,8 @@
 ---
 
 
-## 20220401郭文贵大直播 ：帮助乌克兰最好的方法不一定是去参战
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2275546/)
+## 20220401郭文贵大直播 ：世界不和中共脱钩 就是奔向火葬场
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2275668/)
 
 作者：东京樱花团小视频组
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 2:31 PM (UTC)`
+
+《NFSC-真人真事》第47期嘉宾：加拿大蓝莲花农场  小小酥
+![img](https://media.gettr.com/group31/origin/2022/04/02/14/1d31e3ab-3593-3cc7-07d3-aa6aa68b2b3f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/2/2022 1:54 PM (UTC)`
 
 【Ukraine Rescue】03/30/2022 Some refugees are fleeing Ukraine, while others are choosing to return to Ukraine, and those who choose to return are doing so because it is difficult to survive abroad. In any case, the NFSC and the ROLF provide them with as much help as possible.<br/><br/>【乌克兰救援】03/30/2022 一些难民在逃离乌克兰，而其他人则选择回到乌克兰，选择回国的人是因为在外生存艰难。无论如何，新中国联邦和法治基金会尽可能地给他们提供帮助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -147,13 +154,6 @@
 
 4/1/2022 Ukraine Rescue: Fellow fighter Nicole shares her thoughts on the power of the New Federal State of China to spread the word about our Ukraine humanitarian rescue and the voice of justice on our own media platforms. Regardless of whether the mainstream media would report on us or not, they can never ignore the flag of the New Federal State of China, the logo of the Rule of Law Foundation, and the yellow vests with the slogan of “take down the Chinese Communist Party”.<br/><br/>4/1/2022 乌克兰救援连线：Nicole战友分享如何理解新中国联邦能在自己的媒体平台上传播我们行正义之事和正义之声的力量，无论主流媒体是否报道我们，它们都无法忽略救援营地的新中国联邦国旗、法治基金的标识和灭共黄马甲<br/>
 ![img](https://media.gettr.com/group34/getter/2022/04/02/00/845c3515-1237-ff27-99ba-4f1d89862eb5/out.jpg)
-
----
-
-`@miles 4/2/2022 12:42 AM (UTC)`
-
-【Ukraine Rescue】04/01/2022 Nicole, a volunteer of the NFSC & ROLF, said that the rescue team is making better preparations than before to receive more refugees at any time who are likely to flee Ukraine. Miles Guo has long since reminded us that we will not withdraw our rescue team.<br/><br/>【乌克兰救援】04/01/2022 新中国联邦和法治基金义工妮可介绍说新中国联邦和法治基金救援团队正在做着更好的准备，随时去迎接更多有可能要逃离乌克兰的难民。郭文贵先生早就提醒到大家，我们这个点是不能撤的。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group4/getter/2022/04/02/00/d7d82b71-f4f5-2212-5cda-6c54a05e1441/out.jpg)
 
 ---
 
