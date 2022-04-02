@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 11:01 PM (UTC)`
+
+2022.04.02 NFSC News  CCP manipulates media influencers pushing Beijing propaganda
+![img](https://media.gettr.com/group44/origin/2022/04/02/23/37a9b564-1d65-eb2b-79c8-6ba427ea655c/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/2/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-02<br/>For English @Gtranslators_1
@@ -147,13 +154,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group25/origin/2022/04/02/04/92c64602-0eae-b872-ab44-b13aecb5171c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 3:53 AM (UTC)`
-
-4/1/2022 Ukraine Rescue: From hesitation towards the Chinese people to forming a family of mutual support - Fellow fighter Ming Dao talks about how the international rescue organizations in Medyka get along with the rescue team of the New Federal State of China. The professional military personnel, police, and volunteers in the rescue camp are united, sharing information to keep each other in the loop and protecting themselves.<br/><br/>4/1/2022 乌克兰救援连线：从对中国人的迟疑到形成互助的大家庭 - 明道战友谈梅迪卡的国际救援组织跟新中国联邦救援团队相处的历程；营地的职业军人、警察和志愿者们团结在一起互通信息、互相保护<br/>
-![img](https://media.gettr.com/group22/getter/2022/04/02/03/04074865-ddbe-7110-9251-dee959e1af9f/out.jpg)
 
 ---
 

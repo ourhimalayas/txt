@@ -2,41 +2,34 @@
 ---
 
 
-## 俄乌战争的“没想到”之二
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276870/)
+## 澳大利亚参议员批评世界经济论坛“渗透”特鲁多内阁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2276896/)
 
-视频制作：多伦多蓝莲花视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、撰稿：晨熹         
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据加拿大媒体【真北方】3月31日报导， 澳大利亚自由党参议员亚历克斯·安蒂克日前抨击世界经济论坛影响各国政府，其中包括加拿大总理特鲁多及其内阁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-196.png)
+安蒂克指责世界经济论坛和创始人克劳斯施瓦布“深陷威权主义和马克思主义意识形态”。在谈到特鲁多及其内阁成员时，施瓦布说：“我知道他的一半内阁，甚至超过一半的内阁实际上是全球青年领袖。”并表示这种情况同样存在于阿根廷和法国，而默克尔和普京也是世界经济论坛的全球青年领袖。
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+安蒂克批评世界经济论坛利用种族主义和其他左倾问题来掩盖“反资本主义和反自由市场”的实质，其中包括倡导极端的封锁措施，实则是在推行“共产主义”。
 
-第二个没想到：
+世界经济论坛一直饱受争议，因为它提倡利用新冠疫情大流行对全球经济和社会进行大重置。据悉，包括阿尔伯塔省省长杰森肯尼在内的几位加拿大保守派政客已经公开反对过这一提议。
 
-没想到西方世界不再绥靖，而且出乎意料的团结一致，北约因此再次共抗外敌。
+另据报导，今年2月，保守党议员科林·嘉莉曾质询过特鲁多政府与该组织的关系。随后她被指控为散布虚假信息。
 
-西方尤其欧洲需要俄罗斯的石油，更需要俄罗斯的天然气。但是这一次整个西方世界都旗帜鲜明的站出来支持乌克兰反对普京的暴行。
+新闻来源：[https://tnc.news/2022/03/31/trudeau-cabinet-penetrated-by-world-economic-forum-aussie-senator/](https://tnc.news/2022/03/31/trudeau-cabinet-penetrated-by-world-economic-forum-aussie-senator/)
 
-西方对俄罗斯国家和寡头的制裁力度越来越大，范围越来越广，将俄罗斯踢出Swift 支付系统。西方企业断腕，抛弃在俄业务和利益。
+编辑/上传 – 文永
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-互联网平台更是一边倒的支持乌克兰，对俄罗斯杜马和寡头的制裁也起到了很大震慑作用。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-俄罗斯卢布暴跌，百姓生活艰难。股市崩盘，经济大伤元气。这种惨烈的制裁后果，估计俄罗斯自己都没想到。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-现在美国又想将俄罗斯驱逐出 G20，甚至酝酿对付东方独裁国家的举动，目标一致对准了独裁政权。
-
-我们都没有想到民主与独裁的对抗在这次战争如此泾渭分明。
-
-视频文案：Wood(文斌）
-
-发布：冰糖葫芦喵
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
