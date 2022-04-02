@@ -2,32 +2,30 @@
 ---
 
 
-## 红十字会再次前往马里乌波尔
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2274088/)
+## 坦克残骸标志着俄罗斯从基辅附近撤退的路径
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2274233/)
 
 翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
 - ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/OSIGBQGZBRPRXJVIKCFGIBMR7Q.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/4SKSIAMK75MIRCILVUIMXHLFDE.jpg)
 
 
-图片来源：路透社
+图片来源：路透社，2022 年 4 月 1 日，俄罗斯别尔哥罗德市的一个燃料库着火了。
 
-周六，红十字会车队将再次尝试从被围困的马里乌波尔港撤离平民，因为俄罗斯军队似乎正在重新集结，准备在乌克兰东南部发动新的袭击。
+乌克兰从俄罗斯士兵手中夺回了基辅周围更多的领土，俄罗斯士兵在离开首都时离开了破碎的村庄和自己废弃的坦克。
 
-自俄罗斯入侵五周之初，马里乌波尔就被包围，一直是莫斯科在乌克兰东南部顿巴斯地区的主要目标。成千上万的人被困在食物和水的匮乏中。
+路透社记者看到，在首都西部的德米特里夫卡小村庄，装甲车残骸中仍冒出浓烟，至少八名俄罗斯士兵的尸体躺在街上。
 
-红十字国际委员会（红十字国际委员会）周五派出一个小组带领一支由大约 54 辆乌克兰公共汽车和其他私家车组成的车队离开该市，称条件无法继续行动。
+乌克兰军队继续夺回布查，其市长周五在一段视频中表示，该视频似乎是在市政厅外拍摄的。乌克兰在基辅周围和北部取得了几天的进展。
 
-红十字国际委员会在一份声明中说：“他们将在周六再次尝试为平民的安全通行提供便利。”此前红十字会在 3 月初的一次疏散尝试失败了。
+乌克兰军方表示，在乌克兰西南部，防空系统挫败了对黑海敖德萨港关键基础设施的一次未遂袭击。路透社无法立即核实该账户。
 
-俄罗斯和乌克兰已同意在战争期间建立人道主义走廊，这有助于疏散数千名平民。
+敖德萨的州长马克西姆马尔琴科说，三枚导弹击中了一个居民区，造成人员伤亡。他说，这些导弹是从位于克里米亚的伊斯坎德尔导弹系统发射的，克里米亚是乌克兰南部半岛，2014 年被俄罗斯吞并。
 
-红十字国际委员会表示，其马里乌波尔行动得到了双方的批准，但关键的后勤工作仍在制定中。
-
-🔗 [https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/](https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/)
+🔗 [https://www.reuters.com/world/russian-gas-keeps-flowing-europe-despite-putins-deadline-pay-roubles-2022-04-01/](https://www.reuters.com/world/russian-gas-keeps-flowing-europe-despite-putins-deadline-pay-roubles-2022-04-01/)
 
 编辑发表： Shuizhuyu
 
