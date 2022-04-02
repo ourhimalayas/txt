@@ -24,29 +24,29 @@
 ### [有声｜中共国称 将以自己的方式谋求乌克兰和平](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [俄装备多数乌制 传俄军武器用尽无库存可补](/content/gnews/4/README.md)
+### [欧盟警告习不要默许俄罗斯的侵略行径](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄装备多数乌制 传俄军武器用尽无库存可补](/content/gnews/5/README.md)
  ` 蓝莲花农场`
 
-### [2022-2023澳大利亚联邦财政预算](/content/gnews/5/README.md)
+### [2022-2023澳大利亚联邦财政预算](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [樱花时政┃美盟国坦克驰援，加强乌克兰东部防御](/content/gnews/6/README.md)
+### [樱花时政┃美盟国坦克驰援，加强乌克兰东部防御](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：俄乌首脑会谈将在土耳其举行?](/content/gnews/7/README.md)
+### [秘翻在线：俄乌首脑会谈将在土耳其举行?](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜美国医院的中共病毒患者人数创历史新低](/content/gnews/8/README.md)
+### [有声｜美国医院的中共病毒患者人数创历史新低](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;日本辉瑞第三针后全身冰冷高烧](/content/gnews/9/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;日本辉瑞第三针后全身冰冷高烧](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜上海千人被封市场睡水泥地 传交叉感染](/content/gnews/10/README.md)
+### [有声｜上海千人被封市场睡水泥地 传交叉感染](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [扩大制裁，美商务部将俄与白俄的120个实体列入出口管制](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [大直播后记： 安红谈PAG及民众的觉醒](/content/gnews/12/README.md)
  ` 雅典娜GNotes`
@@ -60,47 +60,47 @@
 ### [墙内疫情封控见闻几则](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [有声｜江苏昆山突封城 大批车辆和民众被堵路上](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [上海封城 设置“儿童督导员”和“儿童主任”职务](/content/gnews/17/README.md)
+### [上海封城 设置“儿童督导员”和“儿童主任”职务](/content/gnews/16/README.md)
  ` 儒为`
 
-### [秘翻在线:中东会是下一个战乱之地?](/content/gnews/18/README.md)
+### [秘翻在线:中东会是下一个战乱之地?](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [欧盟立法者支持追踪加密货币转账的新规则](/content/gnews/19/README.md)
+### [欧盟立法者支持追踪加密货币转账的新规则](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：中共病毒(COVID-19)确诊患者后遗症&#8221;最多79%&#8221;&#8230;疲劳·健忘等](/content/gnews/20/README.md)
+### [秘翻在线：中共病毒(COVID-19)确诊患者后遗症&#8221;最多79%&#8221;&#8230;疲劳·健忘等](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [开始了！BBC主持人在节目现场与骗子福奇对峙](/content/gnews/21/README.md)
+### [开始了！BBC主持人在节目现场与骗子福奇对峙](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国制裁俄罗斯官方媒体机构和个人](/content/gnews/22/README.md)
+### [英国制裁俄罗斯官方媒体机构和个人](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [美国协助盟国向乌克兰转交苏制坦克](/content/gnews/23/README.md)
+### [美国协助盟国向乌克兰转交苏制坦克](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [中共将华人形象毁失殆尽 消灭共产党的标语深入人心](/content/gnews/24/README.md)
+### [中共将华人形象毁失殆尽 消灭共产党的标语深入人心](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口](/content/gnews/25/README.md)
+### [泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](/content/gnews/26/README.md)
+### [乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助](/content/gnews/27/README.md)
+### [俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助](/content/gnews/26/README.md)
  ` 關注組`
 
-### [美国司法部报告抓捕的5个中国人是做什么的](/content/gnews/28/README.md)
+### [美国司法部报告抓捕的5个中国人是做什么的](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [白宫表示 普京被下属欺骗](/content/gnews/29/README.md)
+### [白宫表示 普京被下属欺骗](/content/gnews/28/README.md)
  ` NFSC News`
+
+### [04/02每日播报｜社媒消息:《班农战斗室》娜塔莉温特斯](/content/gnews/29/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
 ### [澳大利亚-印度贸易协议将打开“最大的经济大门”](/content/gnews/30/README.md)
  ` 走进澳洲`

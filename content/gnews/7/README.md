@@ -2,22 +2,29 @@
 ---
 
 
-## 秘翻在线：俄乌首脑会谈将在土耳其举行?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2274439/)
+## 樱花时政┃美盟国坦克驰援，加强乌克兰东部防御
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2274443/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-3.jpg)图片来源：本文的链接
-据土耳其媒体报道，俄罗斯总统普京和乌克兰总统泽伦斯基之间的会谈可能会在土耳其伊斯坦布尔举行。
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+美国拜登政府将支持盟国向乌克兰供应前苏联坦克，目的是加强对暴露在俄罗斯军队面前的乌克兰东部顿布斯地区的防御。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-12.jpg)[图片来源于网络](https://www.nikkei.com/article/DGXZQOCB0215P0S2A400C2000000/)
+《纽约时报》1日报道称，美国拜登政府将支持盟国向乌克兰供应前苏联坦克，目的是加强对暴露在俄罗斯军队面前的乌克兰东部顿布斯地区的防御。这是应泽连斯基总统的要求，因为乌克兰军队知道如何使用苏联坦克。
 
-报道称，土耳其总统埃尔多安于1月1日与普京总统进行了电话会谈，并提议与泽伦斯基总统举行会谈。
+俄罗斯入侵乌克兰后，美国将首次作为中间人支持坦克转运。一位美国政府高级官员解释说，部署坦克将能够对顿布斯地区的俄罗斯目标进行远程轰炸。移送将很快开始，但拒绝透露将从哪个国家输送和数量。
 
-此外，埃尔多安总统还于3月31日与泽兰斯基总统进行了电话交谈，他对此次会谈持积极态度。
+信息来源：
 
-两国之间的面对面停火会谈于上月29日在伊斯坦布尔举行，埃尔多安总统于本月1日表示愿意发挥调解作用，表示首脑会谈将在伊斯坦布尔举行，如果两国领导人之间由此产生的决定是积极的，他将会很高兴。
+[米、戦車供与を支援か　ウクライナ東部の防衛強化](https://news.yahoo.co.jp/articles/2ab482b0e4fb37edfd616aa116a3218fca1a5d7d)
 
-信息来源：[https://news.tv-asahi.co.jp/news\_international/articles/000250206.html](https://news.tv-asahi.co.jp/news_international/articles/000250206.html)
-
-责编：Eric Kim
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

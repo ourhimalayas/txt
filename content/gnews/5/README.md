@@ -2,30 +2,30 @@
 ---
 
 
-## 2022-2023澳大利亚联邦财政预算
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2274454/)
+## 俄装备多数乌制 传俄军武器用尽无库存可补
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2274458/)
 
-#### 整理/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+英国每日邮报根据英国防务消息人士说法报导，俄军已在乌克兰把重要武器用完，而且现在无法补充库存，因为俄国许多武器装备是乌克兰制，俄国也无法从其他来源购买武器，因为受到国际制裁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/zoujinaozhou.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/360截图20220402175703828.jpg)图片来源：路透
 
+乌克兰先前提供巡弋飞弹、直升机引擎零件和战机零组件给俄国，也制造俄国战车使用的火控系统。
 
-今年澳大利亚低于126000美元大概有1000万人会获得一次性420美元“成本税收抵免”。为帮助巨大生活成本压力养老金领取者、失业者，退伍军人和优惠卡持有者600万人，一笔250美元一次性现金红利将在5月大选之前存入银行账户。此外还将享受更便宜的药物。带薪育儿假允许妈妈18周和爸爸20周的津贴获得，单亲父母也会获得额外两周支持。
+自从俄国2月24日入侵乌克兰以来，估计俄军损失143架飞机、131架直升机、625辆战车和316座火炮。俄国至少发射了1100枚飞弹，让外界猜测以这样的消耗速度，俄军还能攻击乌克兰多久。
 
-建筑和木工学徒两年内每六个月1250美元现金支付，总共5000美元；小企业在网页设计、云计算等数字成本花费每100美元时，可申请120美元补贴，额外20%可用于员工培训。对于首次购房者只需支付5%的首付即可，正在进行的永久化住房保障化计划将35000名额分配给大都市区，10000个名额分配到希望在偏远地区定居者，另外5000个名额分配给单亲父母，只需要支付2%的押金。接下来一年旅游业将获得6000万美元的刺激计划，4500万美元用来澳大利亚旅游局营销活动，1500万美元用于北昆士兰州推广大堡礁。
+简评：在全球联合制裁下，俄罗斯消耗完武器，普京就自然老实了，唯一的供应方中共也被国际社会盯的死死的，小规模偷送可以，大规模的援助太容易暴露。俄军还能撑多久？身边高官不说实话，估计普京都不知道。独裁者都是走到哪，死在哪，越作死，死的越快！
 
-未来两年澳大利亚政府只投入3830万美元资助新冠疫情之下苦苦挣扎的艺术行业，这个预算是比较小的。
+新闻来源：[联合新闻网](https://udn.com/news/story/122663/6211454?from=udn_ch2_menu_v2_main_cate)
 
-新闻来源：[https://cn.theaustralian.com.au/2022/03/29/65107/](https://cn.theaustralian.com.au/2022/03/29/65107/)
+撰稿/发布：一叶知秋
 
-*发布：Frank2021*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
