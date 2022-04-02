@@ -16,6 +16,8 @@
 ---
 ## 頁面 40/41 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)
 
+[《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
+
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
 
 [美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
@@ -63,8 +65,6 @@
 [2017年9月19日明镜专访郭文贵第六期（2）：赵本山不怕黑社会怕王芳](/content/2018/04/20180418-4084377282763556.md)
 
 [2017年9月19日明镜专访郭文贵第六期（4）：雷洋生前去盘古见的谁？](/content/2018/04/20180418-5167983296675509473.md)
-
-[2017年9 月19 日 明镜专访郭文贵第六期（6）：王岐山与孟建柱会进国安委](/content/2018/04/20180418-1721457250505894859.md)
 
 
 ## 頁面 40/41 [**<**](/content/README-39.md) [1](/content/README.md) ... [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) **40** [41](/content/README-41.md) [**>**](/content/README-41.md) [查看全部](/content/README-all.md)
