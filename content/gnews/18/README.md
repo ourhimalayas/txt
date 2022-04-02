@@ -2,46 +2,42 @@
 ---
 
 
-## 开始了！BBC主持人在节目现场与骗子福奇对峙
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
+## 秘翻在线:中东会是下一个战乱之地?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2274173/)
 
-翻译： Jenny Ball
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Image-1.jpg)
+图／美联社
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
+**中东粮食危机迫在眉睫**
 
+根据《零对冲》的报导，俄罗斯和乌克兰原来的小麦出口量约占全球的四分之一，玉米出口量约全球的五分之一，是全球贸易总量的 12%，俄乌同时也是其它谷物和食用葵花籽油的主要出口国。
 
+3月31日，联合国世界粮食计划署 (WFP) 发出警告，因为俄乌战争、COVID-19所造成的经济混乱以及收成不佳，中东食品价格创历史新高，粮食短缺十分严重。
 
-2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
+乌克兰战争之前，中东和北非国家的人们就面临食物不足，俄乌战争冲突引发贸易中断，越来越多的食品变得无法负担，甚至有钱也买不到。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
+数以百万计的中东和北非家庭无法购买最基本的食物，面临饥荒的威胁。 从黎巴嫩、伊拉克和叙利亚到苏丹和叶门，中东数百万人饱受冲突、流离失所和贫困。世界粮食计划署中东区域主任科琳·弗莱舍 (Corinne Fleischer) 说：  “这场危机正在影响中东地区的每个家庭，没有人能够倖免于难。”
 
-福奇博士说他被“误解了”。
+乌克兰的谷物出口已完全停止，黎巴嫩每个家庭的基本食品成本上涨 351%，是中东地区最高的，其次是叙利亚，涨幅接近 100%，叶门涨幅为 81%。
 
-这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
+雪上加霜的是、一场毁灭性的干旱减少了叙利亚的小麦年产量。联合国负责人道主义事务的助理祕书长乔伊斯‧姆苏亚（Joyce Msuya）2月告诉安理会，今年叙利亚将有1460万人依赖援助，比2020年增加32%。
 
-对合法的新闻服务有所了解一定不错。
+联合国和国际援助组织最近的一份报告估计，2022年有超过16万叶门人可能会经历饥荒。由于乌克兰的战争，这个数字可能还会攀升得更高。”我什么都没有。”48岁的叶门父亲加利卜‧纳贾尔（Ghalib al-Najjar）说，四年多前他逃离了陷入战乱的中产阶级社区，他还要扶养七个孩子，”我需要一包面粉，我需要大米，我需要糖，我需要基本民生物资。”
 
-遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
+过去两年一直处于经济崩溃中的黎巴嫩，因电力、药品和汽油短缺而疲惫不堪的民众陷入恐慌。2020年，贝鲁特港口发生大规模爆炸，该国的主要粮仓被摧毁。现在该国只有六周的小麦储备，许多人担心未来的日子会更加黑暗。本周，几家大型超市的面粉和玉米油都卖光了。黎巴嫩消费的食用油60%来自乌克兰，其馀大部分来自俄罗斯。
 
-我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
+在叙利亚，11年多的残酷战争使该国90%以上的人口生活在贫困中，自乌克兰战争开始以来的一个月内，食用油等产品的价格翻了一番。
 
-BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
+**中共企图引发中东火药库**
 
-新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+两年前法兴银行的阿尔伯特·爱德华兹（Albert Edwards针对农产品价格的高涨提出警讯，认为它可能引发推翻专制政体的’阿拉伯之春’2.0。 国际货币基金组织总裁格克里斯塔利娜‧格奥尔基耶娃（Kristalina Georgieva）说，类似的情况引发了从2010年底开始的’阿拉伯之春’运动，当时飞涨的面包价格推动了抗议活动。
 
-* * *
+粮食计划署近日称，数百万家庭因食物通货膨胀而濒临崩溃，爱德华的阿拉伯之春 2.0 可能即将到来。 “当价格上涨，穷人无法养家餬口时，他们就会走上街头。”格奥尔基耶娃上周日（27日）在卡达的多哈论坛上表示。
 
-审核：文乐     
-校对：信心满满
-发布：五通庙
+“共产党除了金援俄国对乌克兰的侵略，更会在中东引发战乱。”郭文贵先生在大直播中爆料，中东的局势将成为另一个世界要关注的焦点。”我们回到了石器时代，囤积了蜡烛和吐司和Picon（一种加工奶酪）等，以防我们用完所有东西。”一位中东居民阿斯瓦德说。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+消息来源:[UN Warns Middle East At “Breaking Point” As Food Prices Hit Alarming Highs](http://UN%20Warns%20Middle%20East%20At%20&quot;Breaking%20Point&quot;%20As%20Food%20Prices%20Hit%20Alarming%20Highs)
 
  
 

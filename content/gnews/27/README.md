@@ -2,35 +2,33 @@
 ---
 
 
-## 澳大利亚-印度贸易协议将打开“最大的经济大门”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273638/)
+## 俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273694/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏    
+**图/文｜CP **
+**发布时间｜02/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄軍中輻射逃離切爾諾貝利-IAEA率團前往援助.jpg)
 
-翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/India-Australia.jpg)图片来源：PTI
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-根据CNA4月2日报道，澳大利亚总理科特·莫里森表示，将于周六（4月2日）签署的与印度的贸易协定代表着“当今世界上最大的经济大门之一”。
+国际原子能机构（IAEA）负责人格罗西（Rafael Grossi）周五（1日）表示，他将会率领团队前往切尔诺贝利（Chernobyl）核电厂，以协助确保当地核设施安全，并于加里宁格勒与俄罗斯高级官员举行会谈。
 
-莫里森预计将在几天内举行大选，他一直渴望在竞选开始前获得这项贸易协议，因为他已经与印度进行了十年的谈判。
+乌克兰国家核电公司（Energoatom）日前证实，所有占领切尔诺贝利核电厂的俄罗斯士兵已经完全撤离。负责管理禁区的 Energoatom 员工表示，目前核电厂“已无外来人”，俄军撤离后向白罗斯方向进发，该员工还提供了俄方和核电厂签订的协议，显示俄罗斯同意将核电厂管理权交还。
 
-联邦政府周五表示，澳大利亚-印度经济合作与贸易协定将由贸易部长丹·特汉和印度商工部长皮尤什·戈亚尔在一个虚拟仪式上签署，两国将继续努力达成全面自由贸易协定。
+另外，Energoatom还证实，早前俄军在未有防辐射装备的情况下，于高辐射区挖战壕，导致不少士兵身体出现疑似受辐射感染的症状，造成军心大乱，“士兵之间几乎开始酝酿暴动”，不久后俄军就陆续撒走。
 
-莫里森在塔斯马尼亚对记者说，他和印度总理纳伦德拉·莫迪将见证这个虚拟仪式。
+路透社本周一引述核电厂工作人员指，亲眼目睹俄军士兵不穿防护衣，驾车穿过辐射污染最严重的“红森林”（Red Forest）区，当时工作人员就很担心军车驶过所扬起的放射性尘埃会被士兵吸入体内，发生内放射反应。
 
-莫里森政府正在寻求使出口市场多样化，减少澳大利亚对其最大贸易伙伴中共国的依赖，因为此前的外交争执导致中共对某些澳大利亚产品实施制裁。
+红森林位于基辅以北约100公里的地方，切尔诺贝利核电厂1986年发生核灾时，该地数十平方公里的松树因吸收了大量辐射后而变红，因此得名“红森林”，它被认为是世界上最严重的核灾区之一，由于高度污染，甚至连核电厂的员工都不被允许进入。
 
-新闻来源：[Australia-India trade deal to open ‘biggest economic door’: Morrison](https://www.channelnewsasia.com/world/australia-india-trade-deal-open-biggest-economic-door-morrison-2603026)
+俄军在入侵乌克兰后一度占领切尔诺贝利，IAEA多次要求俄乌双方召开紧急会议商定协议，以确保核设施安全，惟一直不获俄方重视。
 
-发布：tianzhihuan
+來源｜[路透社](https://www.reuters.com/world/europe/iaeas-grossi-says-will-head-mission-chernobyl-soon-possible-2022-04-01/)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3444941-russian-invaders-leaving-chornobyl-npp-energoatom.html)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

@@ -2,35 +2,35 @@
 ---
 
 
-## 俄罗斯石油公司一燃料库发生大火
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273621/)
+## 澳大利亚-印度贸易协议将打开“最大的经济大门”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273638/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜快讯】，紧贴时代脉搏    
 
-整理/编辑：围剿维尼熊
+翻译/编辑：小红帽
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/C9839229-E49D-41BD-872A-B5A3476F949A.jpg)图片来源：搜狐
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/India-Australia.jpg)图片来源：PTI
 
 
-根据大纪元4月2日讯，俄罗斯石油公司位于本国别尔哥罗德市（Belgorod）的一个燃料库周五（4月1日）发生大火。
+根据CNA4月2日报道，澳大利亚总理科特·莫里森表示，将于周六（4月2日）签署的与印度的贸易协定代表着“当今世界上最大的经济大门之一”。
 
-乌克兰外交部长德米特罗‧库列巴（Dmytro Kuleba）回应说，他无法证实或否认关于乌克兰参与此次袭击的说法，因为他没有得到相关军事信息。
+莫里森预计将在几天内举行大选，他一直渴望在竞选开始前获得这项贸易协议，因为他已经与印度进行了十年的谈判。
 
-俄罗斯地区长官维亚切斯拉夫‧格拉德科夫（Vyacheslav Gladkov）在Telegram上说，两架乌克兰直升机在低空进入俄罗斯后，袭击了位于别尔哥罗德的设施。该地区距离乌克兰边境约35公里。
+联邦政府周五表示，澳大利亚-印度经济合作与贸易协定将由贸易部长丹·特汉和印度商工部长皮尤什·戈亚尔在一个虚拟仪式上签署，两国将继续努力达成全面自由贸易协定。
 
-克里姆林宫发言人德米特里‧佩斯科夫（Dmitry Peskov）对记者说，总统弗拉基米尔‧普京已经听取关于这一事件的汇报。佩斯科夫表示，这次袭击事件可能危及莫斯科与基辅的和平谈判。
+莫里森在塔斯马尼亚对记者说，他和印度总理纳伦德拉·莫迪将见证这个虚拟仪式。
 
-俄罗斯能源部长尼古拉‧舒尔金诺夫（Nikolai Shulginov）表示，这一事件不会影响该地区的燃料供应或消费者价格。
+莫里森政府正在寻求使出口市场多样化，减少澳大利亚对其最大贸易伙伴中共国的依赖，因为此前的外交争执导致中共对某些澳大利亚产品实施制裁。
 
-参考链接：[俄石油公司燃料库发生大火 视频曝光](https://www.epochtimes.com/gb/22/4/1/n13689482.htm)
+新闻来源：[Australia-India trade deal to open ‘biggest economic door’: Morrison](https://www.channelnewsasia.com/world/australia-india-trade-deal-open-biggest-economic-door-morrison-2603026)
 
-*发布：tianzhihuan*
+发布：tianzhihuan
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

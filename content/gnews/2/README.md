@@ -2,24 +2,24 @@
 ---
 
 
-## 有声｜上海婴幼儿隔离点惨状曝光 与父母分离
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2274294/)
+## 有声｜法官否决了纽约的强制幼儿口罩规定
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2274483/)
 
 By:**秘翻新闻**
 
 **2022-04-02**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-5.png)图片来源  新唐人
-[新唐人4月02日报道，中共野蛮防疫不断刷新底线。日前网曝上海金山区婴幼儿隔离点内，大批婴幼儿与父母分离，处境悲惨。随后隔离点大量内部照片流出，场景令人心碎。](https://www.ntdtv.com/gb/2022/04/01/a103389503.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-3.png)图片来源 千禧年邮报
+[据《千禧年邮报》4月1日报道，纽约斯塔滕岛的一名法官周五推翻了纽约市对幼儿的强制口罩规定，将中共病毒的限制措施称为随意的、任性的和不合理的，并对其发出了永久禁令。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-[4月1日，网上传出金山区婴幼儿隔离点多张内部照片。有照片显示，一个大厅内布置三排疑似大人用的病床，床上安置大量儿童，其中只有极少数床上有大人陪伴。](https://www.ntdtv.com/gb/2022/04/01/a103389503.html)
+[法官拉尔夫·波尔齐奥的单页裁决反击了市长的计划，对五岁以下儿童的强制口罩规定将从下周一结束。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-[稍早前，有进入该隔离点陪伴孩子的母亲，在宝妈群中提及隔离点内的惨状。她透露仅楼上就有200个孩子。但这200个孩子只有10个护士照顾，根本忙不过来。尿布更换不及时，有的孩子屁股都烂了。](https://www.ntdtv.com/gb/2022/04/01/a103389503.html)
+[3月初，纽约市市长亚当斯已经取消了对所有居民的限制性口罩任务，但不包括该市2至4岁的最年轻人口。尽管在整个大流行期间，儿科病例一直很低，低龄儿童的感染率在人口统计学数据上是最低的。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-[消息曝光后，很多网友谴责中共隔离政策惨绝人寰、令人发指、在制造人为的炼狱。](https://www.ntdtv.com/gb/2022/04/01/a103389503.html)
+[但据纽约全国广播公司报道，纽约市长亚当斯周五晚些时候表示，该市将对法院的裁决提出上诉，寻求暂停波尔齐奥的裁决。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-[上海官方报道中，至今从未提及金山区这个婴幼儿隔离点，只有少数宣传中共如何人性化照顾婴幼儿的正能量新闻。](https://www.ntdtv.com/gb/2022/04/01/a103389503.html)
+[亚当斯在推特上表示，由于目前的感染人数，我们将继续要求2-4岁的儿童在学校里戴口罩。并将继续评估这些数字，在一周内向纽约人通报最新情况。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-秘翻新闻 二丫编辑报道
+秘翻新闻 Grace编辑报道
 
 发布 : 恩典
 

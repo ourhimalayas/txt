@@ -2,32 +2,28 @@
 ---
 
 
-## 乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273695/)
+## 美国协助盟国向乌克兰转交苏制坦克
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2273781/)
 
-撰稿: 温哥华扬帆农场——動物農莊裡的小螞蟻Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
-3月30日，乌克兰内阁、乌克兰数字化转型部、乌克兰国家机构创业和出口促进办公室、乌克兰国家创业和出口发展项目、乌克兰经济部和乌克兰外交部，联合发起“不要赞助谋杀”的国际宣传运动，呼吁乌克兰境内和其它外国企业，以及任何公民个人，共同抵制俄罗斯和白俄罗斯的商品和服务，加速侵略国家经济的大规模衰退。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-140.png)
-内容包括：不要购买俄罗斯和白俄罗斯商品；拒绝与俄罗斯、白俄罗斯进一步合作；选择乌克兰和反对乌克兰战争国家的合作伙伴，以取代俄罗斯或白俄罗斯的合作伙伴等。
+**撰稿：日本东京方舟农场  北极**
 
-乌克兰的国际宣传行动并不是单独的行为，事实上，国际社会已经或正在以实际行动对其进行支持。俄乌战争开始以来，美国、欧盟以及亚洲多国已经对俄进行了多种方式的制裁。
+据纽约时报4月1日报道，一名美国官员周五表示，拜登政府将与盟国合作，向乌克兰转交前苏联制造的坦克，以加强乌克兰在该国东部顿巴斯地区的防御。
 
-参考链接:
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-12.png)苏联制造的坦克将使乌克兰能够对顿巴斯东部地区的俄罗斯目标进行远程炮击。（图片来自纽约时报）
 
-[Ministry of Digital Transformation: Ukraine launches an international information campaign DO NOT sponsor murder to boycott russian and belarusian goods and companies abroad](https://www.kmu.gov.ua/en/news/mincifri-ukrayina-zapuskaye-mizhnarodnu-informacijnu-kampaniyu-do-not-sponsor-murder-z-bojkotuvannya-rosijskih-ta-biloruskih-tovariv-i-kompanij-za-kordonom)
+这位官员表示，此举是为了回应乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）的要求。这是美国在俄乌战争中首次帮助转移坦克，这批前苏联制造的坦克更方便乌克兰军队驾驶。这位要求匿名的官员透露，转移将很快开始，但拒绝透露坦克数量和来源。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-6.jpg)
+泽伦斯基上周日呼吁北约盟国提供坦克和飞机。上周六拜登总统在波兰同乌克兰高级官员见面后，泽伦斯基表示战场上特别需要坦克。
 
-编辑: Jack Li文阳
+俄乌战争爆发后，拜登政府向乌克兰提供的武器大多是小型易于携带的防御性武器。但随着战争局面的变化，乌克兰地面部队已经转守为攻，迫切需要坦克这种具有远程炮击能力的装备。
 
-总编: 飞虹
+坦克的到来标志着战争进入了新阶段。本周早些时候，俄罗斯官员宣称，俄军重新集中在乌克兰东部。五角大楼官员也指出，俄罗斯军队将战斗重心转向顿巴斯，而不是占领首都基辅。
 
-审核: Ivy001
+参考链接：
+[https://reurl.cc/7eg2rd](https://reurl.cc/7eg2rd)
 
-校对/发稿:浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
-
+总编：老孙
+校对发布：爱放飞
 
  
 

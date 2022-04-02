@@ -2,22 +2,46 @@
 ---
 
 
-## 中共将华人形象毁失殆尽 消灭共产党的标语深入人心
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2273753/)
+## 开始了！BBC主持人在节目现场与骗子福奇对峙
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
 
-**【郭先生直播摘要】2022.3.27 中共将华人形象毁失殆尽 消灭共产党的标语深入人心**
+翻译： Jenny Ball
 
-**精粮：**
-
-我也补充一下，除了酒店以外在现场我们接触好多媒体，包括有一些大媒体或者一些自由记者，乃至于在这个现场的一些其他团体的志愿者，他们看到我们胸口这个要”消灭共产党”这个标语，走过来就指着这里，不是来恐吓，就觉得，真的“I like it”，“I like it”  太好了、太好了。就是觉得共产党就是一个不好的一个机构。说到这里，允许我再补充一点，到底共产党怎么把我们华人的形象，怎么给搞坏。
-
-有一次我们遇到一些，从南韩来的一些教会的成员，我们就问他，他们过了境，到了乌克兰境，然后又回来，那过程是怎么样的？他们初步给我们一些讲法，然后再深入一些呢？人家问我们，你们是不是中国共产党派来的？不相信！就要我们的护照看，你们是持什么护照？讲到这种话来！你说这个，如果我们这一次救援活动，我们缺席，没有华人在这里，你想想看， 全世界是怎么看华人的。全球战友，(容许)我就抓住这一次机会。这是我亲眼所见， 我自己被人家这么问啊！所以这是一个见证，所以也补充了 。
-
-为什么人家会喜欢我们这个主张？还要求，不止是明道，我和其他战友，文耀等等，都是被要求，转身过来，我要拍你后面的那个字眼等等。都是每天在发生，而且的确，越来越多人主动会走过来问。你们这个NFSC是干啥的啊？什么组织啊，等等。就是说这些都是发生在我们每一天 ，好多战友的中间，有好多人主动来问，我们都给他们解释。我们新中国联邦，法治基金的目标是什么，等等…… 这都是我们全体的战友这么多礼拜(星期)以来辛辛苦苦建立起来的一个形象，大家都看在眼里。刚才有波兰的军人也在巡视，也在问我们。到底你们是干啥的？等等……每天都在发生，我们继续会传播我们新中国人的形象，谢谢。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
 
 
-视频剪辑，听写：小蜜蜂 |翻译：Arthur | 校对: Polaris | 视频制作+字幕：芥末| 编辑：昆汀 | 发布：文鸣
+2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
+
+福奇博士说他被“误解了”。
+
+这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
+
+对合法的新闻服务有所了解一定不错。
+
+遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
+
+我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
+
+BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
+
+新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+审核：文乐     
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

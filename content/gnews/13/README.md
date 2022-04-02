@@ -2,72 +2,36 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.02B）——接种疫苗胸痛、月经不正常
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273870/)
+## 恒大子公司称95%的项目已复工
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2274353/)
 
-整理/编辑：文泓
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-94.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0143.jpg)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-博主：一个粘豆包
+图片来源：路透社
 
-2022年4月1日，真的不想再打新冠疫苗了……
+陷入困境的房地产开发商中国恒大集团（3333.HK）的一家子公司表示，截至 3 月底，恒大在全国 95% 的项目已复工。
 
-加强针已打完，第一针、第二针打完大姨妈（持续）来了半个月，加强针打完到现在天天心脏疼，心累。
+据开发商珠三角事业部官方微信消息，截至 3 月 27 日，恒大已在全国复工 734 个项目，其中 424 个项目恢复到正常建设水平。该帖子没有给出恒大开发总数的数字。
 
-[小红薯yin1335](https://www.xiaohongshu.com/user/profile/5b1eb1c611be102fe4ea7bd6)评论：
+恒大是全球负债最多的房地产开发商，负债超过 3000 亿美元。它正在努力偿还债券持有人、银行、供应商，以及向买家交付房屋，这体现了一个受中国政府去杠杆运动影响的臃肿行业。
 
-有些打了就是不行
+恒大将“继续维持项目的正常建设，不惜一切代价保质保量地交付业主”。
 
-**博主回复：**
+公司董事长许家印自2021年起多次承诺，公司将全力复工，确保送货上门。
 
-确实有些人体质是不适合的。
+据直接了解此事的消息人士和媒体报道，许在 2 月份告诉员工，该公司的目标是在 2022 年交付 60 万套公寓。
 
-[**清凉山桃桃子**](https://www.xiaohongshu.com/user/profile/59bd4d466a6a6922e8458d60)**评论：**
+简评：恒大自称其项目复工复产， 许家印的从2021年就多次承诺， 每次都没有兑现， 这次能吗？答案是肯定的。 文章中也明确的指出了， 恒大地产负债超过3000亿。这是十分保守的负债， 继续出来骗人是本质。 真希望老百姓别再上当了。
 
-我先天心脏不好，打了三针也没有心脏疼啊，不要想太多……该吃吃该喝喝遇事别往心里搁。
+🔗[https://www.reuters.com/world/china/construction-has-resumed-95-china-evergrande-projects-unit-says-2022-04-02/](https://www.reuters.com/world/china/construction-has-resumed-95-china-evergrande-projects-unit-says-2022-04-02/)
 
-**博主回复：**
-
-可能是我体质不太适合。
-
-**TiAmo****评论：**
-
-心脏不好也分好多种，只不过你比较幸运
-
-[**爱与浪漫不可辜负**](https://www.xiaohongshu.com/user/profile/5ca1f1da000000001002a367)**评论：**
-
-我也不打了，如果有第四针、第五针的话，除非必要，我真的不会打了，太难受了。
-
-**博主回复：**
-
-我也真的挺难受。
-
-[**lala**](https://www.xiaohongshu.com/user/profile/5d777bc30000000001018095)**评论：**
-
-我打完第二针开始出现免疫系统疾病的症状，被学校天天催只能忍着又打了加强针。
-
-博主回复：
-
-我觉得出现免疫系统症状最好还是咨询一下医生，安全第一，毕竟打疫苗也是为了健康。
-
-Lala评论：
-
-没办法，我的血液指标只有一点异常，医生叫继续观察，不打疫苗，学校要求开疾病（豁免）证明。
-
-参考链接：[真的不想再打新冠疫苗了](https://www.xiaohongshu.com/discovery/item/6246e1ac000000002103658f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648865617)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+编辑发表： Shuizhuyu
 
  
 
