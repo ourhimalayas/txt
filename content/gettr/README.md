@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 7:03 PM (UTC)`
+
+2022-4-2《避风港》(31) 疫苗接种者占病毒死亡人数接近95%
+![img](https://media.gettr.com/group19/origin/2022/04/02/18/832e0d7b-238d-3630-ef11-2c982f0aab86/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/2/2022 5:45 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -147,13 +154,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 04.01.2022 NFSC finance 新中国联邦 | 喜财经 俄乌开战后，中国市场掀撤资潮
 ![img](https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/2/2022 2:12 AM (UTC)`
-
-4/1/2022 Ukraine Rescue: Fellow fighter Xiaoxiao Su talks about the two heartwarming moments on the front line of the NFSC & ROLF Ukraine rescue operation - 1) A Taiwanese Special Force soldier said it was because he got to know the fellow fighters that he realized that the best way to help the Ukrainians is not necessarily going to the battlefield; and 2) a particularly touching moment when a Ukrainian man carrying a woman who has problem walking by herself on one hand and holding her luggage on the other to catch a bus.<br/><br/>4/1/2022 乌克兰救援连线：小小酥战友谈救援前线的两个感人瞬间 - 台湾特种兵说因为认识了战友们他才发觉帮助乌克兰人的最好方法并不一定是上战场；一乌克兰男士一手扛着腿脚不利索的女士，一手托着行李去赶巴士，令人感触颇深<br/>
-![img](https://media.gettr.com/group41/getter/2022/04/02/02/5bdb9d51-62f4-c521-5105-eed9535dca2b/out.jpg)
 
 ---
 

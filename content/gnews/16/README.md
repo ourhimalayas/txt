@@ -2,36 +2,34 @@
 ---
 
 
-## 史上首次：大多数芬兰人支持加入北约
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2276268/)
+## 马斯克的新光速引擎挑战物理学
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2276269/)
 
-共同社4月2日报道，芬兰外交部长佩卡·哈维斯托（Pekka Haavisto）本周早些时候告诉该社，俄罗斯对乌克兰的入侵 “完全改变了芬兰的安全格局”，在几十年保持中立之后，重新引发了关于加入北大西洋公约组织的辩论。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/maxresdefault.jpg)
+近日，马斯克和美国NASA发布了新火箭，名为光速引擎。它挑战了物理学，可以将人类在几周而不是几个月内带到火星，大大改变了太空旅行的规则。目前该引擎正在新宇宙飞船上测试。
 
-哈维斯托说，尽管俄罗斯警告加入北约将 “产生严重的政治和军事后果”，但现在大多数芬兰人都支持加入北约，这在历史上是第一次。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/F.jpg)rcinet.ca
-由于两国共享一条长约1300公里的边界，芬兰自二战以来一直将中立作为其国家政策，以确保其生存。
+据悉目前的商用和军用火箭都使用化学燃料，这些燃料必须在地球上预制，耗资巨大极其复杂，且助推重量受到严重限制。而马斯克的光速引擎使用的燃料为电力。这种引擎被装置在命名为猛禽的革命性火箭上，推力可超过50万镑，因使用甲烷燃料从而降低了30%的二氧化碳排放，清洁环保。进入太空之前，先要在地球进行试验，工作人员称大约明年上半年可进行地球短途上下飞行。
 
-但芬兰的外交和安全政策现在遇到了一个历史性的转折点，如果芬兰成为军事联盟的成员，俄罗斯将 “不得不考虑到北约的边界离他们更近”，哈维斯托说。
+电磁驱动装置是实现光速飞行的原理，它违背了牛顿第三定律。它没有相互依存的作用力和反作用力，只有通过磁场加速过热等离子体产生的一个推力。并且因为没有助推剂，将会对太空非常环保。Space X已经成功试验这种装置，马斯克的目标是制造一个轻速发动机，速度可达186000英里每秒，在短短70天内将人们带上火星，太空旅行将成为现实。
 
-哈维斯托指出，自1995年加入欧盟以来，芬兰在政治上并没有真正保持中立。他补充说，他的国家必须为 “更多负面的军事情况 ”做好准备，因为最近的事件表明，俄罗斯 “有能力并且愿意进行比我们迄今为止可能估计的更危险的军事行动。”
+reference：
 
-哈维斯托说，俄罗斯对乌克兰的攻击也让芬兰公民想起了1939年的苏联入侵，促使他们接纳了流离失所的乌克兰人，并激发了对加入北约的支持。
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
 
-据芬兰国家广播公司报道，在3月9日至11日期间对1378人进行的调查发现，62%的人赞成加入北约，比俄罗斯在2月24日全面入侵乌克兰之前和之后进行的前一次调查高出9个点。
+撰稿、发布：骄子
 
-哈维斯托说，芬兰政府计划在本月中旬前就俄罗斯入侵乌克兰的安全和外交政策影响编撰一份报告。
+* * *
 
-**快评**：俄乌战争在改变欧洲的政治版图，这是肯定的。过去坚持所谓“中立”立场的各国这次都将选边站了，战后重建才能分一杯羹。
+欢迎订阅我们的GNews账号：
 
-更肯定的是俄罗斯将被解体，欧洲将成为以乌克兰为中心的欧洲。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-正义与邪恶之战，正义将站上历史的舞台。对人类而言，黑暗太久了，光明正在划破天际。
-
-参考链接：
-[https://english.kyodonews.net/news/2022/04/aaefef636866-finland-more-open-to-nato-entry-in-wake-of-russias-actions-minister.html](https://english.kyodonews.net/news/2022/04/aaefef636866-finland-more-open-to-nato-entry-in-wake-of-russias-actions-minister.html)
-
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

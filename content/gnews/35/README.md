@@ -2,40 +2,34 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“H-pay、喜支付”（十五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275769/)
+## 所罗门群岛不允许中共军事入驻
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275776/)
 
-#### **整理：BENJI**
-**编辑：朝花夕拾**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ded4dd47c592b31d469ec16bae7f5aba.jpg)
+近日所罗门总理表示，不允许中共在本国建立军事基地。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/EA4F23CE-7A52-4044-B853-AD9815BB9ED6.png)
-**图片来源：雅典娜农场**
+据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
 
+澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
 
-**郭文贵先生2022年2月13日直播**
+撰稿、发布：骄子
 
-● 文紫说战友之间看病这种HDO的交往，HPay，越用得越多越好。而且战友们，真的，我是真的发现很多战友真地很傻，不是一般的傻。没有人了解HPay，你看这么多人解(读)，包括我们现在最火的节目，就是我们的鸡血王这个节目。然后唐平也问我说，有人要打赏行不行？当然行！就是要鼓励大家打赏啊！我们这个HPay就要在战友之间流通啊。
+reference：
 
-●请大家记住，人与人之间的货币流通。不会再被人卡脖子，HPay就牛在这儿了，我一点不开玩笑。小飞象你现在就该跟小飞侠说“咱俩不能这么每天我给你流水，咱俩得有点儿交易，十个币流一次”，HPay就可以了。文紫跟她老公也说“咱俩，你让我跟你，我辛辛苦苦地挣点钱回来，我还得给你流水，那对不起，十个币，你要不然咱别流”，憋死他，他必须给你来说。文紫，20个币行不行？对吧？就地抬高、抬价，咋不行呢？HPay就这样就做到了。
+[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
 
-大卡车就这样做到了。你想要东西，是吗？用我大卡车是吗？对不起，你要支持我的整个的灭疫革命。你们没有意识到，大卡车经济这次，你知道法国，包括加拿大，那哥们儿跟我们联系。
+* * *
 
-●虚拟货币是最大赢家，虚拟货币最大赢家就是Hpay、H币，你还用想吗？你最好别买，有种别买。“我就有种！” 你有种别买。大家现在卖币的人我告诉你，你后悔早着呢。就我能看到有些战友傻呼呼的，场外60、65、70卖了，你哭那天很快就会到来。**记住我今天说的，你要超过三个月**，你就天天骂我郭文贵。你不知道在发生什么，此时此刻在发生什么。
+欢迎订阅我们的GNews账号：
 
-我没有本事决定，我没有决定权，我没有控制权，我绝对影响他们，因为什么？我所有这些关系，他们信我的，我的积累的信誉和知识，我说兄弟姐妹那三招儿**:****国家主权认可、大额投资、****Hpay****全面使用。**
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-你去想想这事情，在发生什么事情？世界的所有的经济在崩塌的时候，喜联储、喜币、Hpay、接下来的躺平币，使用即金钱。记住，国内的战友们，只要你使用盖特，你使用G-TV、使用G-New、使用H-coin，就是钱，我不跟你们开玩笑。
-
-资料来源：郭先生盖特直播视频
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
