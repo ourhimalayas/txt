@@ -2,30 +2,28 @@
 ---
 
 
-## 俄乌战争使中俄贸易受到空前冲击
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272009/)
+## 美国军方取消了导弹试验 避免与俄的核紧张关系升级
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272097/)
 
 翻译与编辑：冰糖葫芦喵
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》上海/北京4月1日报道，**随着卢布贬值，中共国对俄罗斯的出口贸易受到严重冲击。这清楚地表明，西方对俄罗斯实施的严厉制裁，正在产生连锁反应，中共企业出口基本陷入停滞。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中俄贸易冲击-e1648860410867.jpg)图片来源：路透社。
-在西方纷纷撤离俄罗斯之际，**中共国许多跨国公司仍留俄罗斯。**由于许多公司双方都在等待**汇率波动**结束，所以**它们在俄罗斯的大部分业务都被停滞了**。
+《华盛顿观察家报》4月1日报道，**美国空军取消了一次洲际弹道导弹试验，国防部门称，这是为了避免与俄罗斯的核紧张局势加剧。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/im-496684-e1648862735718.jpg)
+有消息称，周五美国宣布取消试验。几个星期前，五角大楼在3月初已经推迟了民兵III型导弹的试验。在此之前不久，俄罗斯将其核力量置于高度戒备状态。
 
-据一位中共国的贸易商说，她的公司是俄罗斯和中国客户之间的中间人，由于受现在市场行情和汇率波动的影响，**床单和厨房设备等产品的数量已经下降了三分之一。**
+周五，**美国空军发言人安-斯蒂芬克说，推迟和取消都是出于谨慎态度，防止俄罗斯的误传或误解，避免美国在俄乌冲突发生陷入一场核战争。**
 
-自2月24日，俄罗斯入侵乌克兰以来**，卢布对美元和人民币都出现了巨大的波动。这场冲突导致卢布兑人民币汇率暴跌逾40%。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/卢布贬值-1.jpg)俄罗斯卢布贬值（图片来源：华尔街日报）
-**中共国是俄罗斯最大的进口来源国，**据海关数据显示，仅在1月和2月，中共国就向俄罗斯出售了126亿美元的商品，主要是电脑、汽车、鞋子和玩具。
+斯蒂芬克告诉《华盛顿观察家报》，国防部门对美国战略部队的准备工作充满信心。他还补充说，下一次导弹试验将在今年晚些时候举行。美国官员说，他们没有看到任何会改变华盛顿核威胁水平的活动。
 
-**俄罗斯进口商和中共国出口商都在推迟业务，因为他们担心会被卢布跌宕起伏的走势所拖累。**
+美国和俄罗斯拥有世界上最大的核武器储备。据路透社报道，具有核能力的民兵III型导弹射程超过6000英里，飞行速度可达每小时15000英里。
 
-有消息称，在出口贸易停滞不前的情况下，像**小米和长城汽车这样的中共国大公司对他们在俄罗斯的计划基本上保持沉默。**在幕后，**中共国对其企业与制裁相冲突持谨慎态度，并敦促它们谨慎对待在俄投资。**
-
-此前，据消息人士称，**中共国有的中石化集团及其已暂停了在俄罗斯一项大型石化投资和天然气营销合资企业的谈判，旨在防止企业违反西方国家的制裁。**
+最后报道指出，俄罗斯和乌克兰将于下周五回复和平谈判。
 
 新闻来源链接：
 
-[Chinese trade with Russia feels the sting of Ukraine war | Reuters](https://www.reuters.com/world/chinese-trade-with-russia-feels-sting-ukraine-war-2022-04-01/)
+[US military cancels missile test over nuclear tensions with Russia | Washington Examiner](https://www.washingtonexaminer.com/policy/defense-national-security/us-military-cancels-missile-test-due-to-nuclear-tensions-with-russia)
+
+[https://www.washingtonexaminer.com/policy/defense-national-security/us-military-cancels-missile-test-due-to-nuclear-tensions-with-russia#brid\_cp\_Brid\_48854195](https://www.washingtonexaminer.com/policy/defense-national-security/us-military-cancels-missile-test-due-to-nuclear-tensions-with-russia#brid_cp_Brid_48854195)
 
 
 

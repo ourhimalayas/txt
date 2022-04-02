@@ -2,10 +2,10 @@
 ---
 
 
-## 克里姆林宫国防官员声称“向乌克兰目标发射了一枚高精度导弹”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2272672/)
+## 北约警告俄军并没有撤军，而是在重新部署
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2272798/)
 
-03/31/2022 克里姆林宫国防官员声称“向乌克兰目标发射了一枚高精度导弹”
+03/31/2022 北约警告俄军并没有撤军，而是在重新部署。乌克兰称俄军可能在白俄罗斯重新组织，并为下一个致命阶段做准备。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

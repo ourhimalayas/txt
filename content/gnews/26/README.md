@@ -2,38 +2,32 @@
 ---
 
 
-## 笼络加胁迫，中印关系回到“正确的轨道”上
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2271953/)
+## 俄乌战争使中俄贸易受到空前冲击
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272009/)
 
-#### 【雅典娜观察】和您一起洞察世界
+翻译与编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+《路透社》上海/北京4月1日报道，**随着卢布贬值，中共国对俄罗斯的出口贸易受到严重冲击。这清楚地表明，西方对俄罗斯实施的严厉制裁，正在产生连锁反应，中共企业出口基本陷入停滞。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中俄贸易冲击-e1648860410867.jpg)图片来源：路透社。
+在西方纷纷撤离俄罗斯之际，**中共国许多跨国公司仍留俄罗斯。**由于许多公司双方都在等待**汇率波动**结束，所以**它们在俄罗斯的大部分业务都被停滞了**。
 
-翻译：li yan li
-编辑：文泓
+据一位中共国的贸易商说，她的公司是俄罗斯和中国客户之间的中间人，由于受现在市场行情和汇率波动的影响，**床单和厨房设备等产品的数量已经下降了三分之一。**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/QV6D4L5QF4LQ0@Y35M0P.png)图片来源：Times of india & 雅典娜设计组
+自2月24日，俄罗斯入侵乌克兰以来**，卢布对美元和人民币都出现了巨大的波动。这场冲突导致卢布兑人民币汇率暴跌逾40%。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/卢布贬值-1.jpg)俄罗斯卢布贬值（图片来源：华尔街日报）
+**中共国是俄罗斯最大的进口来源国，**据海关数据显示，仅在1月和2月，中共国就向俄罗斯出售了126亿美元的商品，主要是电脑、汽车、鞋子和玩具。
+
+**俄罗斯进口商和中共国出口商都在推迟业务，因为他们担心会被卢布跌宕起伏的走势所拖累。**
+
+有消息称，在出口贸易停滞不前的情况下，像**小米和长城汽车这样的中共国大公司对他们在俄罗斯的计划基本上保持沉默。**在幕后，**中共国对其企业与制裁相冲突持谨慎态度，并敦促它们谨慎对待在俄投资。**
+
+此前，据消息人士称，**中共国有的中石化集团及其已暂停了在俄罗斯一项大型石化投资和天然气营销合资企业的谈判，旨在防止企业违反西方国家的制裁。**
+
+新闻来源链接：
+
+[Chinese trade with Russia feels the sting of Ukraine war | Reuters](https://www.reuters.com/world/chinese-trade-with-russia-feels-sting-ukraine-war-2022-04-01/)
 
 
-在美国国家安全局对中俄两国无限制亲密关系发表评论后，中共国驻印大使孙卫东在两国建交72周年之际呼吁中印关系应保持在“正确的轨道上”。
-
-2020年5月5日，印度和中国军队在拉达克东部边境对峙，在班公湖地区发生暴力冲突后，双方逐渐加强了军队以及重型武器装备部署。迄今为止，双方举行了15轮会谈，以解决在拉达克东部不同地点的对峙问题。
-
-会谈的结果虽解决了班公湖南北两岸、加尔旺和戈格拉的问题，但印度一直呼吁中国在拉达克东部的其余摩擦点，如15号巡逻点（温泉）、德普桑凸起和德姆乔克迅速脱离接触。
-
-中国国防部发言人吴谦大校说，中国和印度已同意通过谈判和协商妥善处理边界问题，但坚决反对第三方的干涉。
-
-中国外交部长王毅在最近对印度的访问中表示，双方都同意坚持领导人的共识，即两国互不威胁，处理和管理他们的分歧。
-
-自今年2月24日，俄罗斯入侵乌克兰，全球各国一直谴责并制裁俄罗斯，中共国和印度是绝无仅有的对俄罗斯入侵行为表示“中立”的两个大国。这次中印关系回到所谓“正确的轨道上”，与中共背后的笼络和胁迫分不开，当然普京在背后一定出力不少。
-
-新闻链接：[China Calls for Keeping Ties With India ‘On Right Course’ After US Remark on Moscow-Beijing Closeness (news18.com)](https://www.news18.com/news/india/chinese-envoy-calls-for-keeping-ties-with-india-on-right-course-after-us-nsas-comments-on-moscow-beijing-closeness-4930679.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
