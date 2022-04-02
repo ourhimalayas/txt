@@ -2,62 +2,37 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.2）&#8211;接种新冠疫苗后胸闷气短可能导致心肌炎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275950/)
+## 【G时新闻】欧洲议长突访基辅 承诺支持乌克兰入欧
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2276089/)
 
-#### 整理：gardeniahu 
-编辑：BENJ1
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是欧洲议长突访基辅 承诺支持乌克兰入欧！
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+欧洲议会主席梅措拉（Roberta Metsola）周五（4月1日）突然访问基辅，与乌克兰总统泽连斯基（Volodymyr Zelenskyy）及国会议长会面，成为俄罗斯入侵乌克兰以来首位访乌的欧盟主要机构领袖。她承诺将全力支持乌克兰成为欧盟的入盟候选国，并为战后重建提供援助。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25e5%2589%25af%25e4%25bd%259c%25e7%2594%25a8%25e9%259b%2586%25e8%2590%2583/)
+梅措拉抵乌后，先后与乌克兰国会最高拉达议长斯特凡丘克（Ruslan Stefanchuk）、总理什米加尔（Denys Shmyhal）及总统泽连斯基（Volodymyr Zelenskyy）会面，并到最高拉达发表演说。
 
-帖子原文：
+梅措拉在演说中作出三项承诺，一是采取更多更严厉的制裁，将追究入侵者的负责；二是理解乌克兰的“欧洲梦”以及希望加入欧盟成为成员国的愿望，全力支持乌克兰实理这一目标；三是维持甚至加大目前向乌克兰提供的财政、军事和人道援助，并继续照顾被迫逃离家园的难民，直到可以安全回家的一天，并尽一切努力在战后协助乌克兰重建遭受侵略者攻击的城市和村庄。
 
-**疫情****|****新冠疫苗副作用****疫苗后胸闷气短**
+梅措拉指出，欧盟是一个和平项目，创建的目的就是要将欧洲国家的命运联系起来，以避免再次卷入两次世界大战的那种冲突。她强调“乌克兰就是欧洲”，欧洲议会、欧盟和欧洲人民都与乌克兰站在一起。
 
-辉瑞疫苗可能心肌炎update
+另外，波兰、捷克和斯洛文尼亚三国的总理亦曾于上月前往基辅会见泽连斯基和什米哈尔。泽连斯基此前曾表示，希望乌克兰的所有朋友都能到访基辅。
 
-3.26去医院背了holter48小时，期间感觉还好，能做饭下楼买菜开车。
+盖特链接：[https://gettr.com/post/p1369u2d107](https://gettr.com/post/p1369u2d107)
 
-直到昨天和今天，傍晚时刻便胸闷气喘，人很累，八点多上床，九点多就能睡着。
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-不管检查结果如何，身体状态差在这里，我还要每天照顾女儿，她虽然尽力帮助妈妈，可是毕竟还小，这日子不知道什么时候是个头？
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-我知道带她来加拿大是正确的选择，可是真的没料到这么难、这么难。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-继续扌非队等待做心脏彩超。
-
-现在每天吃Q10 400mg VD综合维生素和锌，鱼油。
-
-咬牙坚持吧
-
-#辉瑞疫苗 #心肌炎 #移民加拿大 #海外独自带娃
-
-精彩评论：
-
-莱纳  回复：s蛋白进入心脏，避免剧烈运动，心脏代偿功能不好，去做核磁共振才能确诊。
-
-kt的两小只  回复：你心跳怎么样？我跟你一样，去过两次急诊了，都是正常被打回来。
-
-Ying   回复：一样。打了第三针后整天跑专科。
-
-。夜媣未怏   回复：我是刚做了加强ct说都没事。但是容易累。然后肺部闷痛。4.28还要去做检查，我都三个月了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-5.jpg)
-参考链接：
-
-[接种新冠疫苗后胸闷气短](https://www.xiaohongshu.com/discovery/item/6244f027000000002103b994?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648866335)
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

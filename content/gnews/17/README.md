@@ -2,31 +2,62 @@
 ---
 
 
-## 【G时新闻】俄军撤离切尔诺贝利核电站，挟持乌军为人质
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2275905/)
+## COVID-19疫苗副作用集萃（2022.4.2）&#8211;接种新冠疫苗后胸闷气短可能导致心肌炎
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275950/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
-视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-乌克兰原子能公司（Energoatom）说，俄罗斯军队撤离切尔诺贝利核电站时，带走之前挟持的乌克兰军人。
+#### 整理：gardeniahu 
+编辑：BENJ1
 
-据法新社报道，原子能公司周四（3月31日）在Telegram上说，俄罗斯部队在逃离切尔诺贝利核电站时，带走自2月24日以来俄军挟持为人质的乌克兰国民卫队人员。目前尚不清楚有多少名乌克兰军人被带走。
+#### 雅典娜情报组《疫苗灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-原子能公司周四较早时在脸书透露，俄军已全部撤离切尔诺贝利核电站及其他禁区，核电站内已没有任何外人。同时有迹象显示，围困斯拉乌季奇镇（Slavutych）的俄军正组成一个纵队往白俄罗斯转移。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25e5%2589%25af%25e4%25bd%259c%25e7%2594%25a8%25e9%259b%2586%25e8%2590%2583/)
 
-盖特链接：[https://www.gettr.com/post/p1339hc1417](https://www.gettr.com/post/p1339hc1417)
+帖子原文：
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+**疫情****|****新冠疫苗副作用****疫苗后胸闷气短**
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+辉瑞疫苗可能心肌炎update
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+3.26去医院背了holter48小时，期间感觉还好，能做饭下楼买菜开车。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+直到昨天和今天，傍晚时刻便胸闷气喘，人很累，八点多上床，九点多就能睡着。
+
+不管检查结果如何，身体状态差在这里，我还要每天照顾女儿，她虽然尽力帮助妈妈，可是毕竟还小，这日子不知道什么时候是个头？
+
+我知道带她来加拿大是正确的选择，可是真的没料到这么难、这么难。
+
+继续扌非队等待做心脏彩超。
+
+现在每天吃Q10 400mg VD综合维生素和锌，鱼油。
+
+咬牙坚持吧
+
+#辉瑞疫苗 #心肌炎 #移民加拿大 #海外独自带娃
+
+精彩评论：
+
+莱纳  回复：s蛋白进入心脏，避免剧烈运动，心脏代偿功能不好，去做核磁共振才能确诊。
+
+kt的两小只  回复：你心跳怎么样？我跟你一样，去过两次急诊了，都是正常被打回来。
+
+Ying   回复：一样。打了第三针后整天跑专科。
+
+。夜媣未怏   回复：我是刚做了加强ct说都没事。但是容易累。然后肺部闷痛。4.28还要去做检查，我都三个月了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-5.jpg)
+参考链接：
+
+[接种新冠疫苗后胸闷气短](https://www.xiaohongshu.com/discovery/item/6244f027000000002103b994?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648866335)
+
+发布：Frank2021
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,31 @@
 ---
 
 
-## 有声|英国制裁俄罗斯雇佣兵
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2275813/)
+## 【G时新闻】俄军撤离切尔诺贝利核电站，挟持乌军为人质
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2275905/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-**【大纪元3月31日讯】英国进一步扩大了针对俄罗斯的制裁范围，将私人军事公司瓦格纳集团包括在内，这家公司被称为是“普京的私人军队”。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image009.jpg)**俄罗斯瓦格纳集团雇佣兵（左）在中非共和国一场政治活动中与当地士兵一同执行任**
-**这支6,000人的雇佣兵集团被普京派到世界各地执行对俄有利的任务，同时由于他们是雇佣兵，普京可以借口撇清任何责任。**
+##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+乌克兰原子能公司（Energoatom）说，俄罗斯军队撤离切尔诺贝利核电站时，带走之前挟持的乌克兰军人。
 
-**去年12月，欧盟指控瓦格纳“在乌克兰、叙利亚、利比亚、中非共和国、苏丹和莫桑比克严重侵犯人权”。瓦格纳长期以来还在乌克兰东部支持亲俄的民兵武装，为他们提供武器、训练等。
+据法新社报道，原子能公司周四（3月31日）在Telegram上说，俄罗斯部队在逃离切尔诺贝利核电站时，带走自2月24日以来俄军挟持为人质的乌克兰国民卫队人员。目前尚不清楚有多少名乌克兰军人被带走。
 
-最初雇佣兵大多是俄罗斯的退伍士兵，他们被派去刺杀顿巴斯地区亲俄、但是不听从克里姆林宫命令的领袖，而后俄罗斯把这些人的死嫁祸给乌克兰。
+原子能公司周四较早时在脸书透露，俄军已全部撤离切尔诺贝利核电站及其他禁区，核电站内已没有任何外人。同时有迹象显示，围困斯拉乌季奇镇（Slavutych）的俄军正组成一个纵队往白俄罗斯转移。
 
-雇佣兵在俄罗斯是非法的，但是普京却利用瓦格纳打击叙利亚的反政府武装，甚至给瓦格纳的创办者兼领导者乌特金颁发了奖章。
+盖特链接：[https://www.gettr.com/post/p1339hc1417](https://www.gettr.com/post/p1339hc1417)
 
-《泰晤士报》披露，今年1月，2,000至4,000名瓦格纳雇佣兵被派到乌克兰，执行不同的任务。**
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-[【援引连结】](https://www.epochtimes.com/gb/22/3/31/n13686354.htm)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

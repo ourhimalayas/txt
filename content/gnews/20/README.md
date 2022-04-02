@@ -2,37 +2,24 @@
 ---
 
 
-## 中日财经爆┃SpaceX将在菲律宾推出星链服务，正式落地亚洲
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2275830/)
+## 新加坡一位医生因推荐伊维菌素预防和治疗新冠而被审查和起诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2275908/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，SpaceX公司将在菲律宾推出星链卫星互联网服务，这将使菲律宾成为东南亚第一个托管星链互联网服务的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-19.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn.arstechnica.net/wp-content/uploads/2021/04/starlink-dish.jpg&amp;imgrefurl=https://arstechnica.com/information-technology/2021/04/dishy-mcflatface-to-become-fully-mobile-allowing-starlink-use-away-from-home/&amp;tbnid=71_jczvjRXRzuM&amp;vet=12ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ..i&amp;docid=hHh0x3Cm2TpYIM&amp;w=2000&amp;h=1500&amp;q=Starlink&amp;hl=zh-CN&amp;ved=2ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ)
-4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，[美国](https://news.163.com/news/search?keyword=%E7%BE%8E%E5%9B%BD)亿万富翁埃隆·马斯克(Elon Musk)旗下太空探索技术公司SpaceX将在菲律宾推出星链[卫星](https://news.163.com/news/search?keyword=%E5%8D%AB%E6%98%9F)互联网服务，这将使菲律宾成为[东南亚](https://news.163.com/news/search?keyword=%E4%B8%9C%E5%8D%97%E4%BA%9A)第一个托管星链互联网服务的国家。
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16489123791.png)      图片来源：NPR
+据《亚洲新闻台》（Channel News Asia）4月1日报道，新加坡的Khoo Boo Kian医生因为去年11月25日在一个拥有206人的whatsapp聊天群里宣传伊维菌素可用于预防和治疗新冠病毒，而被新加坡医药理事会（SMC）勒令不得传播和转发有关伊维菌素可安全有效治疗新冠的信息，以及删除其在社交媒体上分享的有关伊维菌素的帖文。
 
-菲律宾贸易与工业部长拉蒙·[洛佩兹](https://news.163.com/news/search?keyword=%E6%B4%9B%E4%BD%A9%E5%85%B9)（Ramon Lopez）表示，他最近会见了SpaceX高管丽贝卡·亨特（Rebecca Hunter）和瑞安·古德奈特（Ryan Goodnight），以及菲律宾国际通讯委员会（NTC）副专员埃德加多·卡瓦里奥斯（Edgardo Cabarios）和DFNN执行主席小拉蒙·加西亚（Lamon Garcia Jr.），讨论将星链引入菲律宾事宜。
+SMC 3月31日表示，在这些信息当中，Khoo Boo Kian医生推荐用伊维菌素治疗与预防新冠，同时鼓励群组里的参与者通过一个“未经批准的来源”在互联网上订购伊维菌素。新加坡卫生部指控这些信息是“未经证实的和具有误导性”，因为它在去年10月曾表示，在新加坡，伊维菌素属于处方药，只被批准用来治疗寄生虫感染，而且卫生科学局（The Ministry of Health，MOH）也并没有批准使用这款药物来预防或治疗新冠。
 
-洛佩兹透露，SpaceX的商业许可申请正在处理中，同时该公司正在为其网关寻找地点。该公司正在菲律宾设立全资子公司，目标是在推出的第一阶段部署三个网关。不过，洛佩兹没有具体说明星链互联网服务推出的时间表或SpaceX的投资数字。
+官方任命了一个独立的投诉委员会调查此事。3月28日，临时停业令委员会（Interim Orders Committee）对Khoo的医生注册资格施加了18个月的条件或限制，或直至他的诉讼结束为止。SMC说：“Khoo在其医生执业证书被完全批准之前，不得向任何病人推荐、开具、供应或使用伊维菌素，也不能散播任何有关未经卫生科学局批准的药物、治疗产品或疫苗对于治疗或预防新冠的信息。”
 
-洛佩兹表示，星链的推出将使该国宽带速度更快，连接更好，电信服务的容量更大，费率也更便宜。他称：“星链将扩大和补充现有的宽带容量。这将进一步扩大微型、中小型企业的能力，促进在线学习、电子商务和金融科技发展。”
+Khoo Boo Kian是3月份第二位因推荐伊维菌素预防和治疗新冠而受罚的医生。此前，一位名叫Yang Ing Woei的医生被指控给新冠患者开具伊维菌素，因此执业资格受到限制。
 
-SpaceX是少数几家通过近地轨道卫星网络支持高速互联网服务的公司之一。星链网络旨在为偏远地区或在自然灾害期间通信中断时提供互联网接入服务。这样的卫星互联网系统将信号从大气层发射给地面上的天线接收器。
+新加坡是全世界新冠疫苗接种率最高的几个国家之一，但是正如无数事实和科学证据所表明的那样，这不仅无法遏制疫情，反而造成了更大的灾难。在此情况下，向病人和公众推荐和开具已被证明能安全有效预防和治疗新冠的伊维菌素的医生却被政府官方机构审查和惩戒，这是赤裸裸的迫害和大屠杀。尽管在全球范围内，伊维菌素和羟氯喹等药物已逐渐获得人们和政府的认可，但是推广范围远远不够，医疗暴政仍在继续，黑暗仍笼罩着世界。
 
-根据SpaceX的数据，星链的数据传输速度从100Mbps到200Mbps不等。这种高速连接以前是不可能通过传统卫星互联网实现的。SpaceX是此类技术的领跑者，自2020年末以来，该公司已在全球范围内为星链测试版签约了10万多名用户。星链提供互联网接入服务的国家包括美国、英国、加拿大、澳大利亚、新西兰和墨西哥。
+*责编：白夜*
 
-亚马逊也在开发自己的卫星互联网，名为Kuiper Systems，但尚未将任何卫星送入轨道。
-
-信息来源：[**SpaceX****将在菲律宾推出星链服务**](https://www.163.com/tech/article/H3RRANH800097U81.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+新闻来源：[Doctor allegedly made misleading claims, promoted use of ivermectin to treat and prevent COVID-19](https://www.channelnewsasia.com/singapore/doctor-khoo-boo-kian-restrictions-smc-ivermectin-treat-prevent-covid-19-misleading-claims-2601871)
 
  
 
