@@ -2,34 +2,37 @@
 ---
 
 
-## 教皇含蓄地批评普京对乌克兰的入侵
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275782/)
+## 有声|香港新增6646宗确诊119人离世
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2275812/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ARPIRRAAXFMM5OOYAK6COSIRQI.jpg)
-近日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，他说一个大国正在为民族主义利益煽动战争冲突。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+**【大纪元4月1日讯】第五波疫情继续回落，卫生防护中心31日公布新增2,859宗经核酸检测呈阳性的个案，经快速测试呈阳性个案则有3,787宗，合共新增6,646人染疫，另新增119宗死亡个案。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image007.jpg)**政府自2022年3月31日下午4时起，围封深水埗白田邨泽田楼，要求受检人士在晚上9时前接受强制检测。**
+**昨天没有新增院舍染疫，但已爆发疫情的院舍再新增约120宗确诊，第五波疫情总确诊个案逾114万宗。本港至今累计735,145宗核酸阳性检测个案及422,270宗快速抗原测试阳性个案。
 
-普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前方济各为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。郭先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使得教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，并在暗中批评普京，他说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力出现，毫无疑问普京是无理地侵略，并强烈谴责其战争暴行。
+公立医院31日新增102宗死亡个案。由于数据滞后，3月23日至29日再多17人病逝。
 
-方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
+第五波疫情累计7,612名患者离世，染疫后死亡率升至0.66%。接种三剂疫苗人士的确诊病死率为0.03%，接种两剂疫苗人士的确诊病死率为0.13%，接种一剂疫苗人士的确诊病死率为0.9%，没有接种疫苗人士的确诊病死率为3.08%。
 
-reference：
+**
 
-[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+[【援引连结】](https://www.epochtimes.com/gb/22/4/1/n13687579.htm)
 
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

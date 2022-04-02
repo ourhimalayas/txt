@@ -2,29 +2,34 @@
 ---
 
 
-## 中共欢迎俄罗斯外交部长一起讨论建立“公平的世界秩序”
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2276267/)
+## 马斯克的新光速引擎挑战物理学
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2276269/)
 
-撰稿：东京樱花团/calvin
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/maxresdefault.jpg)
+近日，马斯克和美国NASA发布了新火箭，名为光速引擎。它挑战了物理学，可以将人类在几周而不是几个月内带到火星，大大改变了太空旅行的规则。目前该引擎正在新宇宙飞船上测试。
 
-俄罗斯外交部长谢尔盖·拉夫罗夫3月30日（周三）抵达中共国，参加表面上以阿富汗问题为重点的会议，但被俄罗斯媒体吹捧为这两个专制国家形成的全球权力新轴心的里程碑。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220330GettyImages.png)（图片来自本文链接）
-拉夫罗夫在中共国正式出席周四开始的第三次阿富汗周边国家外长会议。其他与会者包括塔吉克斯坦、伊朗、巴基斯坦、土库曼斯坦和乌兹别克斯坦。
+据悉目前的商用和军用火箭都使用化学燃料，这些燃料必须在地球上预制，耗资巨大极其复杂，且助推重量受到严重限制。而马斯克的光速引擎使用的燃料为电力。这种引擎被装置在命名为猛禽的革命性火箭上，推力可超过50万镑，因使用甲烷燃料从而降低了30%的二氧化碳排放，清洁环保。进入太空之前，先要在地球进行试验，工作人员称大约明年上半年可进行地球短途上下飞行。
 
-俄罗斯国有电视台RT.com将拉夫罗夫和中国外交部长王毅在周三的会晤渲染为拉夫罗夫之行的主要事件。 RT 表示：“与大多数西方国家以及一些亚洲国家不同，北京拒绝谴责莫斯科，并拒绝接受对俄罗斯实施制裁的呼吁。”
+电磁驱动装置是实现光速飞行的原理，它违背了牛顿第三定律。它没有相互依存的作用力和反作用力，只有通过磁场加速过热等离子体产生的一个推力。并且因为没有助推剂，将会对太空非常环保。Space X已经成功试验这种装置，马斯克的目标是制造一个轻速发动机，速度可达186000英里每秒，在短短70天内将人们带上火星，太空旅行将成为现实。
 
-德国之声（DW）看到，中国和俄罗斯因反对西方制裁而建立紧密联系，王毅表示中国反对在俄方攻击乌克兰和阿富汗后，对俄罗斯实施大规模制裁，阿富汗可能会成为北京和莫斯科建立的所谓秩序的试点项目。上周，自塔利班于去年8月份攻入阿富汗并夺取政权以来，王毅首次访问了喀布尔。
+reference：
 
-中共国在阿富汗也有利润丰厚的采矿利益，而俄罗斯在20世纪80年代对该国进行残酷和受挫的占领后，给当地的人们留下了大量恐怖糟糕的记忆。
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
 
-美国哥伦比亚广播公司(CBS News)周日表示，俄罗斯可能希望通过与中国联手对阿富汗施加影响，来驱逐80年代苏联解体带来的负面影响，并恢复一些失去的民族自豪感，这可能会发展出一种新的政治路线，即中俄的世界新秩序能够在美国灾难性失败的地方取得成功。
+撰稿、发布：骄子
 
-信息来源：
-[China Welcomes Russian Foreign Minister to Discuss Building ‘Fair World Order’](https://www.breitbart.com/asia/2022/03/30/china-welcomes-russian-foreign-minister-discuss-building-fair-world-order/)
+* * *
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/曲别针
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
