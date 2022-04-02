@@ -2,41 +2,37 @@
 ---
 
 
-## 普京下令招募13万新兵 俄青年不愿充当炮灰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273217/)
+## 拜登推出美国最大规模紧急石油储备释放计划，两大指标原油大跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273113/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-整理/编辑：BENJ1
+整理/编辑：围剿维尼熊
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/SC8JHEW8800LD.png)图片来源：美国之音
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3287-scaled.jpg)图片来源：搜狐
 
 
-正当俄罗斯军队深陷乌克兰战争之际，俄罗斯每年一次的春季征兵周五（4月1日）正式开始。俄罗斯总统普京签发了招募13.45万新兵的命令，但适龄青年中对被派往乌克兰战争前线充当炮灰普遍存在抵触情绪。
+根据路透4月1日报道，美国总统拜登周四推出美国有史以来规模最大的紧急石油储备释放计划。拜登宣布，从5月开始，将在六个月内每天释放100万桶原油，这是美国史上最大规模的战略石油储备(SPR)释放。
 
-为了安抚这些年轻人，俄罗斯国防部长绍伊古在周四的一次会议上作出承诺，今年招募的13万多名新兵将不会被派往前线或者其它冲突热点地区。
+两大指标原油本周均大跌约13%，创两年来最大单周跌幅。
 
-可许多俄罗斯人对绍伊古的承诺持怀疑态度。他们大都还记得在上个世纪90年代和21世纪初期发生的车臣战争，成千上万的没有受到必要训练的年轻士兵被派往车臣，在与“分离主义武装”的作战中丧生。
+布兰特原油期货下跌0.32美元，至每桶104.39美元，跌幅0.3%。美国原油期货(WTI)下跌1.01美元，至99.27美元，跌幅1%。
 
-俄罗斯法律规定，所有年龄在18岁至27岁的俄罗斯男子都有义务服兵役一年，但很多人以健康原因或者正在读大学为理由逃避参军。
+石油输出国组织(OPEC)及其包括俄罗斯在内的盟友组成的OPEC+联盟周四同意继续坚持每月小幅增产，43.2万桶/日的计划。3月OPEC增加的石油产量未能达到与盟国达成的协议目标。
 
-尽管俄罗斯总统普京和其他高级官员都承诺不会把新兵派往乌克兰执行所谓的“特别军事行动”，但外界还是发现，在战争初期被乌克兰军队抓获的俄罗斯俘虏中就有不少是新兵。
+美国能源企业上周连续第二周增加活跃钻机数，但增速仍然缓慢。
 
-社媒上流传不少这样的视频。美联社的报道说，有一名母亲在一个视频中认出了自己20岁的儿子，他被蒙上了眼罩。报道引用这位母亲的话说，“我从他的嘴唇、脸颊认出了他。我甚至能够根据他的手指认出他”。“我喂过他奶，我带过他”。
+PVM分析师Stephen Brennock称，美国即将释放储备，这并不能改变未来几个月市场难以找到足够供应的事实。
 
-俄罗斯国防部后来被迫承认，有些新兵“被错误地”派往了乌克兰，成为了俘虏。
+参考链接：[国际油价收低且周线创两年来最大跌幅 此前IEA成员国同意释放油储](https://cn.reuters.com/article/global-oil-market-drv-0402-idCNKCS2LU014)
 
-参考链接：
+*发布：tianzhihuan*
 
-[普京下令招募13万新兵俄年轻人不愿上战场](https://www.voachinese.com/a/war-in-ukraine-fuels-fears-among-draft-age-russian-youths-20220401/6511034.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

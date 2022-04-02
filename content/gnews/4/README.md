@@ -2,45 +2,31 @@
 ---
 
 
-## 新冠封锁引发众怒，中共审查上海抗议视频
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2273430/)
+## 美国官员警告：任何俄罗斯军队的调动都“不是撤军”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2273530/)
 
-翻译：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-22.jpg)图片来自网络
-《海峡时报》近日报道，上海是中国最富裕、全球化程度最高的城市之一，由于一些居民反对封锁令，在某些情况下封锁令延长至一个月，中国正努力应对公众对严格的清零措施日益增长的不满情绪。
+评论：***针对俄罗斯在谈判中，对减少在乌克兰首都基辅和另一个主要城市切尔尼夫周边军事行动的承诺，泽连斯基指出：“乌克兰人并不天真，在这场持续34天的入侵和顿巴斯地区过去8年的战争之中，乌克兰人已经认识到，你能相信的只有具体的结果。”此外，不少媒体和俄罗斯人把这看成是对乌克兰的让步，但乌克兰人认为（而且也显而易见）：“实际上自这场战争开始以来，一直是我们在阻止你们进入基辅，”他们表示，“这是我们的胜利，而不是你们的让步。你们给我们的东西，是我们自己通过战斗得来的。”……不管如何，俄罗斯的袭击随时可能发生，大战即将来临。***
 
-据知情人士透露，科技巨头腾讯控股本周早些时候撤下了两段关于上海一处住宅区罕见抗议的视频，这些视频在公司的微信微博和视频发布平台上开始流行。
+据《路透社》记者Steve Holland，2022年3月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-135.png)2022年3月28日，在乌克兰基辅地区战场前线，一辆俄罗斯装甲运兵车(APC)残骸停在路边。图片来源：Gleb Garanich/路透社
+华盛顿，3月29日（路透社）——在俄罗斯承诺缩减乌克兰首都基辅附近的军事行动后，一名美国官员周二表示，俄罗斯军队在基辅周围的任何行动都将构成“重新部署，而不是撤军”。
 
-这位知情人士说，这些视频是用户发布到他们的微信时间线上的。
+他说：“我们认为，俄罗斯军队在基辅周围的任何行动都是重新部署，而不是撤军。”
 
-在彭博社观看并独立核实的视频中，上海闵行区江南鑫苑小区门后的数十名居民高呼“我们要吃饭”、“我们要知情权”、“我们要自由”。
+这名官员表示：“我们都应该做好准备，防止俄罗斯对乌克兰其他地区可能的持续大规模进攻。这是俄罗斯的缓兵之计……任何人都不应误认为俄罗斯想要结束冲突。”
 
-根据大院微信公众号的官方通知，自 3 月 2 日以来，那里的人们一直被限制在家中，居民已经接受了 10 多轮大规模病毒检测。
+文章来源: [**https://www.reuters.com/world/europe/us-official-warns-any-russian-troop-movement-not-withdrawal-2022-03-29/?taid=62435e46b56bf0000175465b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter**](https://www.reuters.com/world/europe/us-official-warns-any-russian-troop-movement-not-withdrawal-2022-03-29/?taid=62435e46b56bf0000175465b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-该人士称，腾讯告诉其员工，这些视频被下架是因为它们违反了中国的法律和政策，该人士要求不具名，因为害怕遭到报复。
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-这个人说，第三段小区居民示威的视频被允许留在网上。这段视频高喊口号不是那么清楚，没有了”自由“这些字眼。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-审查力度的加大反映了中国对其病毒零容忍态度的日益困境，这种做法正在提取更大的经济和社会成本，同时将其孤立在一个选择新冠共存的世界中。
-
-过去一个月，上海的疫情激增至 32000 多例，这是自中国中部湖北省省会武汉首次发现新型冠状病毒以来，中共国最大的一次感染传播。
-
-根据《彭博社》的计算，中国约有 7100 万人处于封锁状态或即将面临封锁。受影响的家庭经常发现自己无法获得足够的食物，因为恐慌性购买和缺乏送货人员会导致食物短缺。
-
-根据香港中文大学学者的估计，封锁可能使该国每月损失至少 460 亿美元（620 亿新元）的经济产出，或 GDP 的 3.1%。
-
-追踪中国网络审查制度的独立媒体《中国数字时代》表示，微信还删除了一篇文章，该文章强调了政府政策的著名批评者李承鹏先生所写的清零政策日益增加的人力成本。包含全文的帖子也被新浪公司控制的微博删除。
-
-中国拥有完善的审查制度，其宣传部门定期就媒体组织和社交媒体平台需要监管的内容发布指导。长城防火墙禁止公民访问大多数外国新闻网站和平台，如谷歌和脸书，除非他们使用VPN。
-
-参考链接：
-
-[https://www.straitstimes.com/asia/east-asia/china-censors-shanghai-protest-videos-as-covid-19-lockdown-anger-grows](https://www.straitstimes.com/asia/east-asia/china-censors-shanghai-protest-videos-as-covid-19-lockdown-anger-grows)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
