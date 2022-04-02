@@ -2,44 +2,31 @@
 ---
 
 
-## 《避风港HAVEN》直播内容精选（第二十八集 ·下）
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2271694/)
+## 美国军方取消了导弹试验 避免与俄的核紧张关系升级
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272097/)
 
-## 现场问诊
+翻译与编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+《华盛顿观察家报》4月1日报道，**美国空军取消了一次洲际弹道导弹试验，国防部门称，这是为了避免与俄罗斯的核紧张局势加剧。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/im-496684-e1648862735718.jpg)
+有消息称，周五美国宣布取消试验。几个星期前，五角大楼在3月初已经推迟了民兵III型导弹的试验。在此之前不久，俄罗斯将其核力量置于高度戒备状态。
 
-1，请问医生，得新冠二个月后，核糖核酸检测阴性，IGM数值偏高，有什么办法可以降低这个数值，目前坐飞机需要检测这个指标。
+周五，**美国空军发言人安-斯蒂芬克说，推迟和取消都是出于谨慎态度，防止俄罗斯的误传或误解，避免美国在俄乌冲突发生陷入一场核战争。**
 
-答：IgM免疫球蛋白增高是好事，说明体内有病原体入侵后产生了抗体。接种疫苗的主要目的就是要增高IgM特异性抗体。**被新冠病毒感染后，刺突蛋白刺激免疫系统引起抗体应答，最早出现的抗体是IgM，随后是免疫球蛋白IgA、IgG抗体。IgM高值可存在相当长一段时间，并不能说明检测者正处于病毒活性感染期**, 为什么做飞机需要这个结果? 目的就是不鼓励航空旅行！
+斯蒂芬克告诉《华盛顿观察家报》，国防部门对美国战略部队的准备工作充满信心。他还补充说，下一次导弹试验将在今年晚些时候举行。美国官员说，他们没有看到任何会改变华盛顿核威胁水平的活动。
 
-2，我断断续续服用青蒿素1个多月，前几天开始出现黄尿，然后出现腰疼的症状。现已停用大约5天了，尿的颜色逐步变浅，腰痛还在持续。请问医生战友，我现在的情况应怎么办，谢谢
+美国和俄罗斯拥有世界上最大的核武器储备。据路透社报道，具有核能力的民兵III型导弹射程超过6000英里，飞行速度可达每小时15000英里。
 
-答：尿液的颜色是有来源的，有些保健品的添加剂不是米粉而是黄花蒿磨成的粉，黄花蒿是黄绿色的，会引起尿液颜色的变化。服用后有不适反应就换其它品牌的保健品。如果是药用青蒿素，请参照我最近发布的药用青蒿素排毒方案，间断性服用。
+最后报道指出，俄罗斯和乌克兰将于下周五回复和平谈判。
 
-3，请问轻度地中海贫血的可用青蒿琥脂排毒吗？谢谢
+新闻来源链接：
 
-答：地中海贫血要先纠正贫血。贫血意味着低铁，要先补铁。**青蒿
-素有亲铁的特征，哪怕是健康人士，也要在服用青蒿素的同时适当补铁。**同时补充维生素C，因为C、铁和青蒿素是可以协同工作的。建议先就医，补铁在先。
+[US military cancels missile test over nuclear tensions with Russia | Washington Examiner](https://www.washingtonexaminer.com/policy/defense-national-security/us-military-cancels-missile-test-due-to-nuclear-tensions-with-russia)
 
-4，我认识一位朋友三针，最近跑步后小便便血，不知道和疫苗有关吗？
-
-答：尿液里有很多身体不需要的物质，是通过肾脏过滤后排出的。而红细胞是绝对不应该出现在尿液里的。如果尿液里出现了红细胞，说明肾小球的滤过功能出了问题，有了障碍，才能让这么大的红细胞滲出。建议治疗肾病。**血尿症状跟打疫苗很有关系，因为肾脏血管上面ACE2受体非常丰富，刺突蛋白就会作用于肾小球的毛细血管。**一边用经肝脏排泄的青蒿素排刺突蛋白，一边就医，不冲突的。
-Eglise医生讲解典型病例资料——1839年7月林则徐用西医治疗疝气
-**[直播回放：2022-3-26《避风港》(28) 50%因疫苗导致的心肌炎患者5年内死亡](https://gettr.com/streaming/p121676ff9c)**
-
-[《避风港HAVEN》直播内容精选（第二十八集 ·上）](https://gnews.org/zh-hans/2271665/)
+[https://www.washingtonexaminer.com/policy/defense-national-security/us-military-cancels-missile-test-due-to-nuclear-tensions-with-russia#brid\_cp\_Brid\_48854195](https://www.washingtonexaminer.com/policy/defense-national-security/us-military-cancels-missile-test-due-to-nuclear-tensions-with-russia#brid_cp_Brid_48854195)
 
 
 
-文案：Eglise/万物有灵
-
-视频：黑嫂子
-
-听写：丹文/Gloria
-
-文稿整理：Gloria
-
-编辑发布：FoxRina
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_4166.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_4165.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3856.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,32 @@
 ---
 
 
-## 南奥塞梯计划公投并入俄国受到格鲁吉亚谴责
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2272277/)
+## 死伤惨重！俄海军陆战旅死伤过半退至白俄罗斯
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272438/)
 
-作者：纽约磐石农场—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒报道，3月31日，格鲁吉亚共和国谴责分离的南奥塞梯地区亲俄主义者，宣布就加入俄罗斯举行公投的计划是无法接受的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+俄罗斯入侵乌克兰，俄军投入了大量的人力物力却不如预期般的顺利反而损失惨重，有外媒指出，俄军远东太平洋舰队海军独立陆战旅兵力损失已超过百分之50。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/01.jpg)图片源自网络
+![](https://assets.gnews.org/wp-content/uploads/2022/04/phpUSRSpk.jpg)图片来源：美联社
 
-南奥塞梯领导人比比洛夫30表示，该地区将于4月10日举行所谓的总统选举后不久，再就并入俄罗斯举行“全民公投”。对此，格鲁吉亚共和国外交部长卡利亚尼表示，在领土遭到俄罗斯占领的情况下，谈论任何公投都是无法接受的。这样的公投不仅没有法律效力，而且欧洲人权法院已经裁定，原本属于格鲁吉亚的南奥塞梯地区被俄罗斯占领。
+综合外媒报导，总部在海参崴的俄军远东太平洋舰队海军独立陆战旅，有1600名军人参与俄罗斯侵略乌克兰战争，目前已损失了220人、530人受伤、还有数名士兵被俘虏，已损失了超过一半的人数，倖存者正準备从乌克兰撤退至白俄罗斯，他们打算撰写一份拒绝参与进一步的军事行动报告书。
 
-据悉，俄罗斯与格鲁吉亚于2008年8月在中共国召开北京奥运会时，爆发5天冲突，造成700多人死亡，数万名格鲁吉亚难民逃离家园。最终俄罗斯在格鲁吉亚分离主义地区的南奥塞梯和阿布哈兹驻军，并宣布这两个地区独立。
+据乌克兰媒体报导，自2月24日至3月31日止，俄罗斯军队已损失约1.75万人。
 
-参考链接：[https://www.rti.org.tw/news/view/id/2128826](https://www.rti.org.tw/news/view/id/2128826)
+简评：俄罗斯入侵乌克兰打了一月有余，海陆空三军不光没占到便宜还都损失惨重，狂妄的普大帝也该有点自知自明了。如今战场上屡屡受挫，俄罗斯内部还矛盾加剧，乌克兰另有美英超级现代化武器的加持，普京为了自己的野心打一场不可能胜利的战场，这次真的是被中共忽悠惨了！
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=295&amp;height=405)
+中共作为俄乌战争的元凶，中共借俄罗斯之手挑起战争，怕的是自己倒台，提前转移矛盾好浑水摸鱼的苟延残喘，赌一把顺手拿下台湾，根本不会在意俄罗斯的死活，中共在意的只有自己！
 
-编辑/校正/发稿：Daxia
+新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3878978](https://news.ltn.com.tw/news/world/breakingnews/3878978)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+撰稿/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

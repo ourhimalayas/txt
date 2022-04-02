@@ -2,28 +2,64 @@
 ---
 
 
-## 疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2272320/)
+## 澳洲打工度假签证（462类），年轻人增长见识的机会
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2272486/)
 
-作者：澳喜农场 -Leo M
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-01-223040.png)
+#### 了解澳洲生活点滴， 带您【走进澳洲】
 
-3月30日文贵大直播中，在谈到中共在疫情管控中执行所谓“清零政策”的背后动机时，主讲人如水战友指出，中共就是毒杀人民的元凶。被中共独裁政权奴役愚弄的14亿中国人，完全活在一场精心策划的庞氏骗局中而不自知，几辈人省吃俭用积攒的积蓄，被大量存入房地产、银行、医疗、养老、保险等领域，想老有所依、老有所养，这些浸染了无数人汗水鲜血的血汗钱，却被一帮盗国贼、欺民贼们所侵占、蚕食。中共效仿大跃进、文化大革命等方式，利用病毒、疫苗、全民核酸、建立集中营、方舱医院、封城、网络管控等卑鄙手段，以爱之名，欺骗毒害老百姓，目的是抽干人民的血汗钱，并将债主杀害，避免偿还欠下的巨额债务。把债主清零，债务也就自然清零
+编辑/整理：小鱼儿
 
-参考链接：[https://media.discordapp.net/attachments/888691282275340318/959237828800294932/20220330-9.mp4](https://media.discordapp.net/attachments/888691282275340318/959237828800294932/20220330-9.mp4)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/7M20JQEVE68LJSH.png)图片来源：雅典娜设计组&MWT
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=295&amp;height=405)
 
-编辑/校正/发稿：Daxia
+澳洲打工度假签证（WHV）的理念是让您从事短期和临时工作，以资助您的旅行并帮助您支付假期费用。澳洲是一个很美丽的国度，四面环海。澳洲也是一个旅游胜地，独树一帜的自然风光吸引大量的游客。澳洲的民众非常友好，文化也非常的包容。如果您想到外边的世界看一看，开阔您的眼界，WHV是年轻人很好的选择。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该签证适用于 18 至 30 岁（含30岁），并持有以下任何国家/地区的有效护照的游客：阿根廷、奥地利、智利、中华人民共和国、捷克共和国、匈牙利、印度尼西亚、以色列、卢森堡、马来西亚、秘鲁、波兰、葡萄牙、圣马力诺、新加坡、斯洛伐克共和国、斯洛文尼亚、西班牙、瑞士、泰国、火鸡、美国、乌拉圭和越南。
+
+如果您在 30 岁时申请签证，但在申请结束前年满 31 岁获批，签证仍可获批。
+
+在您开始申请之前，请检查以确保您所在国家/地区的申请仍然开放。内政部网站提供了有关国家上限状态的最新信息。
+
+要申请 WHV 462，您需要上网，创建一个移民账户（ImmiAccount）并填写详细信息或将以下文件附加到您的纸质申请中。您可能会被要求提供一些文件，例如：
+
+- 显示您的姓名、个人详细信息和护照签发日期和有效期的护照页面
+- 显示父母姓名的出生证明复印件
+- 资金证明（通常为 5,000 澳元）
+- 英语语言能力证明（根据国籍情况，中国需要）
+
+
+文件要求可能会发生变化，因此请查看内政部网站了解最新的文件要求。
+
+对于那些有条件在线申请的人，您首先需要创建一个 ImmiAccount 并确认您的电子邮件地址。启动应用程序后，您可以保存它并稍后返回以完成填写。
+
+大多数申请会在 90 天内处理，但可能需要更长时间，特别是如果您没有正确填写表格或忘记附上正确的文件。
+
+申请 WHV 时，您必须支付 495 澳元。您可能还需要支付额外费用，例如健康检查、警察证明或生物识别（面部照片和指纹）。
+
+如果您从结核病高风险国家申请 WHV，您可能需要接受体检和胸部 X 光检查。您还应该注意，您对访问澳大利亚期间产生的任何健康债务负责。您应该确保您购买了足够的旅行或健康保险来支付您逗留期间的疾病和事故。
+
+由于您只在澳大利亚的一部分时间从事工作，因此您应该已经存钱并准备好在您的银行账户中出示等值 5,000 澳元的证明。除了您的储蓄之外，您还需要一张返程机票或足够的资金来支付回家的机票费用。
+
+WHV允许您从进入该国之日起在澳大利亚停留 12 个月。在此期间，您可以多次离开和重新进入澳大利亚，但一旦签证被激活，就无法延期。这实际上意味着，如果您在其他地方度过一个月，则该时间不会被添加到您的签证有效期内。
+
+在大多数情况下，您可以在一份工作中最多停留六个月，但如果您为同一雇主工作但在不同地点工作，例如采摘水果、水果包装、剪羊毛等。
+
+如果你爱上了澳大利亚的生活，你可以延长你的时间。如果您在符合条件的澳洲北部或偏远地区进行了至少三个月的指定工作（旅游业、酒店、捕鱼等），您可以申请第二次打工度假签证。
+
+友情提醒，您必须遵守所有签证条件和澳大利亚法律。当您持此签证在澳大利亚工作时，您必须缴税。（注：以上资料仅供参考，一切信息以澳洲官网为准）
+
+参考资料：[HOW TO APPLY FOR A WORK AND HOLIDAY VISA](https://www.australia.com/en/youth-travel/working-holiday-visa/how-to-apply-for-a-work-and-holiday-visa-462.html)
+
+[Work and Holiday visa (subclass 462) First Work and Holiday visa](https://immi.homeaffairs.gov.au/visas/getting-a-visa/visa-listing/work-holiday-462/first-work-holiday-462)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
 
 
  

@@ -2,27 +2,25 @@
 ---
 
 
-## 美国卫生研究院故意掩盖病毒来源
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2271186/)
+## 中共党卫军为攻台积极备战
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2271261/)
 
-采编/撰稿：加拿大温哥华杨帆农场 – 重生之鹰
+采编撰稿：加拿大温哥华杨帆农场 – 自由法兰西
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-2-1.jpg)图片来源：AMP
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-42.jpg)图片来源：DJY
 
 
-据《网关专家》3月30日报道，根据《信息自由法》获得的文件显示：[美国国家卫生研究院]在疫情爆发后不久，就秘密删除了有关“新冠病毒”基因测序的数据。
+据《台湾新闻》3月31日报道，在美国和菲力宾两国日前在靠近台湾的菲律宾北部海域进行了大规模联合军演之后，多架中共军机当天再次擅闯台湾防空识别区。目前，中共的这种挑衅行为在俄乌战争爆发后，已愈演愈烈。
 
-报道称，[武汉病毒研究所]曾于2020年3月向[国家卫生研究院]提供了“新冠病毒”基因测序报告，但因报告结果支持该病毒源自武汉实验室的功能增强研究，而于不久后在院长柯林斯和[传染病研究所]主任福奇的授意下被全部删除。
+据悉，在本次入侵的11架中共军机中，有两架轰炸机进入台南防空识别区的东南角，而另一架空警机携八架战斗机则闯入了西南角。
 
-对此，[哈金森癌症研究中心]教授贝德表示：被删除的基因测序数据表明，“新冠病毒”并非源于自然，而极有可能来自和[美国传染病研究所]长期合作的[武汉病毒实验室]。
+在2021年的239天内，中共至少出动961架次军机寇入台湾防空识别区，试图通过“准入侵”战术手段，在不直接动武的情况下，恐吓台湾当局并拖垮台军士气，以此打破台海现状，并为即将全面攻台作好准备。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文明(添草灭共)
 
-新闻来源： [https://www.thegatewaypundit.com/2022/03/foia-reveals-nih-secretly-deleted-covid-data-provided-wuhan-lab-beginning-pandemic/](https://www.thegatewaypundit.com/2022/03/foia-reveals-nih-secretly-deleted-covid-data-provided-wuhan-lab-beginning-pandemic/)
-
-
+新闻来源： [https://www.taiwannews.com.tw/en/news/4492681](https://www.taiwannews.com.tw/en/news/4492681)
 
  
 

@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月1日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2272337/)
+## 【乌克兰救援】03/31/2022 打倒中共以拯救我们中国大地的美食和美景
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2272522/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC.png)
+【乌克兰救援】03/31/2022 新中国联邦战友小小酥：在乌克兰救援前线的一位西人女士说她喜欢中国的美食和风景。我们对她说 2025年以后就可以继续去北京玩。我们认为中共到那个时候将被消灭。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p1345is9340](https://gettr.com/post/p1345is9340)
-访谈：[https://gettr.com/post/p133xg2dd4c](https://gettr.com/post/p133xg2dd4c)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

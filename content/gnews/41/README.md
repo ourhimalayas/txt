@@ -2,31 +2,40 @@
 ---
 
 
-## 澳大利亚拟建新达尔文港以摆脱中共控制
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2269595/)
+## 俄乌战争｜美国务院呼吁 美国公民应立即离开俄、乌
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2269633/)
 
-#### 整理：li yan li
-编辑：Mttfly
+**港台前线** **zhong｜2022-4-1**
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Music-Clip-1.png)
+美国国务院3月29日发布旅行建议，称俄罗斯恐“拘留在俄罗斯的美国公民”，要求美国公民不要前往俄罗斯。同时也表示，“美国大使馆协助在俄罗斯的美国公民的能力有限”，呼吁仍在俄罗斯居住或旅行的美国公民应立即离开。
 
-#### **澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/fa003ba6f9a7835d.jpg)图片：Euronews&DARWIN PORT&雅典娜设计组
-据《澳大利亚人报》当地时间3月31日报道，澳大利亚现任国防部长彼得·达顿（Peter Dutton）表示，澳政府正考虑在达尔文市建造供军方使用的新港口，以替代租赁给中共的达尔文港。
+国务院发言人内德·普莱斯（Ned Price）于记者会上表示“**我们更新了旅行建议，我们重申，所有在俄罗斯、乌克兰的美国公民都应该立即离开。**”理由是因为俄罗斯无理由入侵乌克兰，俄罗斯国安人员恐特别针对在俄罗斯的美国公民，对其恣意/非法拘留、滥权行使当地法律等方式骚扰美国公民，甚至限制美国公民进出俄罗斯的航班等。
 
-据资料显示，2015年中共岚桥集团（Landbridge Group）获得了达尔文港为期99年的租约。该交易此后引发了重大的国家安全问题。因为担心中共反对和巨额的赔偿费用，联邦政府最近选择不剥夺岚桥集团对达尔文港的承租权，转而建造新港口。
 
-财政部长西蒙·伯明翰（Simon Birmingham）证实，政府正在考虑在达尔文建造一个二级港口设施，并且将在岚桥集团租赁的地理区域之外建造。
 
-该项目将由莫里森政府对北领地的20亿的基础设施投资款项提供部分资金支持。该项目也得到了北领地政府的“支持”和“推动”。
+> BREAKING: US State Department urges American citizens to depart Ukraine and Russia immediately
+> — Jack Posobiec 🇺🇸 (@JackPosobiec) [March 31, 2022](https://twitter.com/JackPosobiec/status/1509611777549549572?ref_src=twsrc%5Etfw)
 
-新闻链接：[国防部长Peter Dutton：新达尔文港口设施可能绕过中国](https://cn.theaustralian.com.au/2022/03/31/65196/)
 
-*发布：Frank2021*
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+此外，美国务院强调应尽快安排离开俄罗斯，美国大使馆的作为在当地受到严重限制，且美国信用卡、借记卡在俄罗斯不再有效，俄罗斯银行在制裁下，从美国已电子方式转移资金的选择极为有限，有报导称俄境内现金短缺。
+
+交通部分，国际制裁俄罗斯之下，越来越多航空公司取消进出俄罗斯的航班，且俄罗斯当地已有部分机场关闭。目前仍有部分航班、大众交通运输可供选择，惟情势恐突然更加严峻，因此美国务院呼吁在俄罗斯的美国公民离开俄罗斯前往另一个国家，若有需要得联系当地美国大使馆或领事馆获得紧急援助。
+
+考量到持续的武装冲突，国务院强烈建议美国公民不要以陆路前往乌克兰。此外，俄罗斯可能通过专门针对外国人的法规，或进行其他骚扰行为。俄罗斯安全部门亦有可能通过虚假指控来非法逮捕美国公民，或拘禁美国公民，并秘密审判或在没有实质证据下将他们定罪。美国奥运女篮金牌好手格琳娜（Brittney Griner）在今年2月17日，因涉嫌携带含有“大麻油”的电子烟油盒，于莫斯科机场被捕。被拘留长达1个月后，美国外交人员才获准探视她。据悉，俄罗斯法院上周将格琳娜的拘留期延长到5月19日，最严重恐被判10年有期徒刑。
+
+此外，俄羅斯國安部門正在加強當地法律，用來針對他們認為「不受歡迎」的外國和國際組織，建議美國公民應避免前往俄羅斯參加非政府組織工作。
+
+俄罗斯恐对美俄双重国籍人士实施特殊限制，并拒绝承认其美国国籍身分，阻断获得美国领事馆协助其离开俄罗斯的可能。
+
+来源｜[美国国务院](https://travel.state.gov/content/travel/en/international-travel/International-Travel-Country-Information-Pages/RussianFederation.html)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

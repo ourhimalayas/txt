@@ -2,31 +2,35 @@
 ---
 
 
-## 国际红十字会车队再次前往马里乌波尔帮助撤离平民
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2272266/)
+## 不抛弃不放弃——上海一小区居民选择与检测阳性的邻居生死与共
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2272433/)
 
-翻译与编辑：冰糖葫芦喵、灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》乌克兰扎波罗热州 4月2日报道，**周六，一支前往乌克兰城市马里乌波尔的红十字会车队将再次尝试从被围困的港口撤离平民。有报道称，俄罗斯军队正在重新集结，准备在乌克兰东南部发动新的袭击。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GettyImages-1238897278-e1648866291409.jpg)图片来源：路透社。
-此前，**红十字国际委员会(ICRC)曾在周五派出一个小组，带领大约54辆乌克兰公交车和其他私人车辆组成的车队前往马里乌波尔市，但他们途中被迫返回，**称条件太恶劣而不能继续前进。
+作者：纽约香草山教育部—霍比特人
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自从2019年末疫情爆发以来，大陆各地发生的令人绝望的悲剧数不胜数。但是这次在上海封控期间发生的一件事让人们看到了一丝希望。据微信网传，上海浦东某小区居民在突发大量核酸检测阳性的情况下，自发提起倡议签署了“生死约”，大致内容如下：
 
-红十字国际委员会在一份声明中表示，**他们将在周六再次努力，为平民的安全通行提供便利。**与此同时，**俄罗斯和乌克兰同意在战争期间建立人道主义走廊，帮助数千名平民撤离。**
+“若本楼出现阳性。基于科学理性和人文关怀原则，在无症状征兆的情况下，全体居民愿配合自愿居家隔离的邻居，不驱赶不强制转运，邻里互助，责任共担，后果自负。以下各居住单位就此立约进行投票。”
 
-红十字国际委员会还表示，马里乌波尔行动已经得到双方的批准，但主要细节仍在制定中，比如车队的确切时间和目的地，目前乌克兰的具体地点尚不确定。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/仁恒滨江生死状图1.jpg)
 
-周五凌晨，乌克兰总统泽伦斯基在视频讲话中警告说，**俄罗斯军队已经向顿巴斯地区和东北部的乌克兰第二大城市哈尔科夫方向移动**。此前，俄罗斯的空袭严重破坏了哈尔科夫的城区。
+虽然详情还有待进一步了解，此举已赢得了人们的广泛传播和交口称赞。有一篇文章写道，这是“了不起的事，它不是一个人、一户家庭能成就的，而是涉及到‘公共’。它需要广泛的交流，大家都认识到风险（自己在家抵抗病毒），也评估它的收益（不去过方舱的生活）。更重要的是，它承诺不揭发他人，‘不驱赶不强制转运’。有些小区封控时，有业主通过窗户看到有人在下面走路都要揭发，想让志愿者赶紧去制止。这是耐人寻味的心理，与其说他们担心走动的人会带来危险，还不如说是看到“不同的人‘就产生不快’”。
 
-泽伦斯基说:**“我希望马里乌波尔的局势仍有解决办法。”“全世界都必须对这场人道灾难做出反应。”**
-
-泽伦斯基还说，**俄罗斯军队低估了乌军基辅周围的潜力。乌克兰会继续解放我们的城市，疏散我们的人民**。
-
-新闻来源链接：
-
-[Red Cross heads again for Mariupol as Russia shifts Ukraine focus | Reuters](https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/)
+无论此事成功与否，它都已经刷新了国人人性与良知的高度。
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历.png)
+
+编辑：霍比特人
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
