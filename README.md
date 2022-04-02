@@ -15,104 +15,104 @@
 
 ---
 
-### [俄继续通过乌克兰向欧洲出口天然气](/content/gnews/1/README.md)
- ` Shuizhuyu`
+### [所罗门群岛不允许中共军事入驻](/content/gnews/1/README.md)
+ ` 银河歌舞厅`
 
-### [重铸山河](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [文·贵天成——文贵先生谈“H-pay、喜支付”（十五）](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [泽连斯基抨击武器交付延误，质疑一些盟友背后的动机](/content/gnews/3/README.md)
+### [美司令官：应对俄乌之战就是为了威慑中共](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [警察是如何变坏的? 前大陆警察：“有良心”工作难](/content/gnews/4/README.md)
+### [俄继续通过乌克兰向欧洲出口天然气](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [美国及世界疫情简报（04-02-2022）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [重铸山河](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [来自台湾的志愿者，自己也是一名乌克兰难民，加入新中国联邦在波兰梅迪卡的救援行动站点](/content/gnews/5/README.md)
+### [泽连斯基抨击武器交付延误，质疑一些盟友背后的动机](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [警察是如何变坏的? 前大陆警察：“有良心”工作难](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [来自台湾的志愿者，自己也是一名乌克兰难民，加入新中国联邦在波兰梅迪卡的救援行动站点](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大直播后记：前线战友根据俄、乌局势继续驻营](/content/gnews/6/README.md)
+### [大直播后记：前线战友根据俄、乌局势继续驻营](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [法国电网运营商要求用户周一减少用电量](/content/gnews/7/README.md)
+### [法国电网运营商要求用户周一减少用电量](/content/gnews/11/README.md)
  ` Shuizhuyu`
 
-### [20220401郭文贵大直播 ：风雨之中战友对职业特务单伟建的精彩解读(上）](/content/gnews/8/README.md)
+### [20220401郭文贵大直播 ：风雨之中战友对职业特务单伟建的精彩解读(上）](/content/gnews/12/README.md)
  ` Tokyo Sakura Video Group`
 
-### [一些难民在逃离乌克兰，而其他人则选择回到乌克兰](/content/gnews/9/README.md)
+### [一些难民在逃离乌克兰，而其他人则选择回到乌克兰](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [20220401郭文贵大直播 ：世界不和中共脱钩 就是奔向火葬场](/content/gnews/10/README.md)
+### [20220401郭文贵大直播 ：世界不和中共脱钩 就是奔向火葬场](/content/gnews/14/README.md)
  ` Tokyo Sakura Video Group`
 
-### [文·贵天成——文贵先生谈“H-pay、喜支付”（十六）](/content/gnews/11/README.md)
+### [文·贵天成——文贵先生谈“H-pay、喜支付”（十六）](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [20220401郭文贵大直播 ：北上广深封城 失业 还贷 将引发各种人道灾难](/content/gnews/12/README.md)
+### [20220401郭文贵大直播 ：北上广深封城 失业 还贷 将引发各种人道灾难](/content/gnews/16/README.md)
  ` Tokyo Sakura Video Group`
 
-### [习近平在中欧领导人会议上发表讲话](/content/gnews/13/README.md)
+### [习近平在中欧领导人会议上发表讲话](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【G时新闻】联合国人权事务负责人指认俄使用集束炸弹 任命挪威法官调查战争罪行](/content/gnews/14/README.md)
+### [【G时新闻】联合国人权事务负责人指认俄使用集束炸弹 任命挪威法官调查战争罪行](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [独家：美国因俄罗斯核紧张局势取消洲际弹道导弹试验](/content/gnews/15/README.md)
+### [独家：美国因俄罗斯核紧张局势取消洲际弹道导弹试验](/content/gnews/19/README.md)
  ` Shuizhuyu`
 
-### [20220401郭文贵大直播 ：逃难的路和回家的路都很艰辛](/content/gnews/16/README.md)
- ` Tokyo Sakura Video Group`
-
-### [普京对乌战争情况越糟，中共就越在背后撑普京](/content/gnews/17/README.md)
- ` 经济小组`
-
-### [《自由和独裁不共戴天》一文的感想](/content/gnews/18/README.md)
+### [《自由和独裁不共戴天》一文的感想](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [独家：美国取消洲际弹道导弹试验 避免与俄核紧张局势](/content/gnews/19/README.md)
+### [独家：美国取消洲际弹道导弹试验 避免与俄核紧张局势](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4/2/2022国际财经快讯：澳大利亚和印度在虚拟仪式上签署贸易协议；美国第一季度汽车销量下滑](/content/gnews/20/README.md)
+### [4/2/2022国际财经快讯：澳大利亚和印度在虚拟仪式上签署贸易协议；美国第一季度汽车销量下滑](/content/gnews/22/README.md)
  ` 秘密翻译组金融团队`
 
-### [乌克兰战争之际美国密切注意中共对台动态](/content/gnews/21/README.md)
+### [乌克兰战争之际美国密切注意中共对台动态](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;辉瑞疫苗三针后发烧乏力肌肉酸痛](/content/gnews/22/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.2）&#8211;辉瑞疫苗三针后发烧乏力肌肉酸痛](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠疫苗副作用亲历者爆料收集专栏](/content/gnews/23/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.2）——接种新冠疫苗后肿瘤恶化死亡](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.2）——接种新冠疫苗后肿瘤恶化死亡](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [俄乌战局最近消息汇总](/content/gnews/25/README.md)
+### [俄乌战局最近消息汇总](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [上海疾控中心电话录音:次生灾害远超新冠,医疗资源奇缺](/content/gnews/26/README.md)
+### [一周中共病毒疫情及疫苗信息回顾](/content/gnews/27/README.md)
+ ` NFSC News`
+
+### [上海疾控中心电话录音:次生灾害远超新冠,医疗资源奇缺](/content/gnews/28/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共暗中操控媒体网红 为其进行宣传](/content/gnews/27/README.md)
+### [德国政界：中共是威胁德国经济的“系统性竞争对手“](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [德国政界：中共是威胁德国经济的“系统性竞争对手“](/content/gnews/28/README.md)
+### [简述世界货币体系的四个阶段](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [简述世界货币体系的四个阶段](/content/gnews/29/README.md)
+### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/30/README.md)
- ` NFSC News`
-
-### [在中共国被拘留的澳大利亚记者开始受审](/content/gnews/31/README.md)
+### [在中共国被拘留的澳大利亚记者开始受审](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [灭共大势所趋，新中国联邦正成为主角](/content/gnews/32/README.md)
+### [灭共大势所趋，新中国联邦正成为主角](/content/gnews/33/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [恒大子公司称95%的项目已复工](/content/gnews/33/README.md)
- ` Shuizhuyu`
 
 ### [俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助](/content/gnews/34/README.md)
  ` 關注組`

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220401郭文贵大直播 ：逃难的路和回家的路都很艰辛
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2275597/)
+## 20220401郭文贵大直播 ：北上广深封城 失业 还贷 将引发各种人道灾难
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2275631/)
 
 作者：东京樱花团小视频组
 

@@ -2,8 +2,8 @@
 ---
 
 
-## 20220401郭文贵大直播 ：北上广深封城 失业 还贷 将引发各种人道灾难
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2275631/)
+## 20220401郭文贵大直播 ：风雨之中战友对职业特务单伟建的精彩解读(上）
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2275694/)
 
 作者：东京樱花团小视频组
 
