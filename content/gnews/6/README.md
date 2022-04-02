@@ -2,28 +2,39 @@
 ---
 
 
-## COVID大流行的结束可能会给美医疗保健带来动荡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273648/)
+## 白宫表示 普京被下属欺骗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273653/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-141.png)
-美联社报道：
+撰稿：纽约磐石农场—在远方；纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46.png)
+据外媒报道，3月30日，美国白宫通讯办公室主任贝丁菲尔德表示，普京的顾问及幕僚们由于害怕，并没有告诉他俄军糟糕的表现，以及俄罗斯经济受到国际制裁所引发的重大后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-130.png)
+普京目前已经察觉到自己被军方误导，导致他与军方高层的关系愈发紧张。
 
-当 COVID-19 大流行结束时，它可能会对繁琐的美国医疗保健系统造成重大破坏，这些医疗保健系统，通过一系列临时紧急措施，变得更加慷慨、灵活和在技术上保持最先进。
+英国情报机构“政府通讯总部”主任弗莱明称，有证据显示在乌克兰作战的俄罗斯士兵士气低落、缺乏武器、拒绝实行上级命令、破坏自己的装备，甚至还失误击落了一架俄军战机。而关于类似的真相，普京的顾问从来没有告诉过他，导致他对局势产生了严重误判。
 
-这一系列问题与两年多前首次宣布的冠状病毒公共卫生紧急事件有关，此后定期更新。冠状病毒紧急状况将于 4 月 16 日结束，预计拜登政府会将其延长至 7 月中旬。有些人想要更长的时间。
+美国国防部发言人柯比表示，如果普京不知道俄乌战争的真实战况，就可能不会致力于通过和平谈判结束战争，而对于这些坏消息，没有人知道普京会如何对待。
 
-对于复杂的美国医疗保健系统来说，转型并不是好兆头，因为它混合了私人和政府保险，政策和程序错综复杂。医疗保健混乱一旦爆发，可能会在中期选举时给民主党人和共和党人带来麻烦。
+参考链接:
 
-信息链接：[COVID pandemic’s end may bring turbulence for US health care](https://apnews.com/article/covid-health-business-coronavirus-vaccine-medicaid-fbb66b72937f3517a5d3d1ba8840f339)
+[對前線戰況和制裁一無所知… 白宮：普廷已察覺被官員欺瞞](https://news.ltn.com.tw/news/world/breakingnews/3877901)
 
-* * *
+[拒絕執行命令、意外擊落友機 英情報機構：俄軍已厭戰](https://news.ltn.com.tw/news/world/breakingnews/3877590)
 
-审核：文乐      
- 校对：信心满满
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
+
+
+> [Biden says Putin seems to be self-isolating](https://thehill.com/news/administration/3255482-biden-says-putin-seems-to-be-self-isolating/)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-6.jpg)
+
+编辑/总编/审核: 飞虹
+
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

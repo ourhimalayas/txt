@@ -2,35 +2,27 @@
 ---
 
 
-## 澳大利亚-印度贸易协议将打开“最大的经济大门”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273638/)
+## COVID大流行的结束可能会给美医疗保健带来动荡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273648/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏    
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-141.png)
+美联社报道：
 
-翻译/编辑：小红帽
+当 COVID-19 大流行结束时，它可能会对繁琐的美国医疗保健系统造成重大破坏，这些医疗保健系统，通过一系列临时紧急措施，变得更加慷慨、灵活和在技术上保持最先进。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/India-Australia.jpg)图片来源：PTI
+这一系列问题与两年多前首次宣布的冠状病毒公共卫生紧急事件有关，此后定期更新。冠状病毒紧急状况将于 4 月 16 日结束，预计拜登政府会将其延长至 7 月中旬。有些人想要更长的时间。
 
+对于复杂的美国医疗保健系统来说，转型并不是好兆头，因为它混合了私人和政府保险，政策和程序错综复杂。医疗保健混乱一旦爆发，可能会在中期选举时给民主党人和共和党人带来麻烦。
 
-根据CNA4月2日报道，澳大利亚总理科特·莫里森表示，将于周六（4月2日）签署的与印度的贸易协定代表着“当今世界上最大的经济大门之一”。
+信息链接：[COVID pandemic’s end may bring turbulence for US health care](https://apnews.com/article/covid-health-business-coronavirus-vaccine-medicaid-fbb66b72937f3517a5d3d1ba8840f339)
 
-莫里森预计将在几天内举行大选，他一直渴望在竞选开始前获得这项贸易协议，因为他已经与印度进行了十年的谈判。
+* * *
 
-联邦政府周五表示，澳大利亚-印度经济合作与贸易协定将由贸易部长丹·特汉和印度商工部长皮尤什·戈亚尔在一个虚拟仪式上签署，两国将继续努力达成全面自由贸易协定。
+审核：文乐      
+ 校对：信心满满
 
-莫里森在塔斯马尼亚对记者说，他和印度总理纳伦德拉·莫迪将见证这个虚拟仪式。
-
-莫里森政府正在寻求使出口市场多样化，减少澳大利亚对其最大贸易伙伴中共国的依赖，因为此前的外交争执导致中共对某些澳大利亚产品实施制裁。
-
-新闻来源：[Australia-India trade deal to open ‘biggest economic door’: Morrison](https://www.channelnewsasia.com/world/australia-india-trade-deal-open-biggest-economic-door-morrison-2603026)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

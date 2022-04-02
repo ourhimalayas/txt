@@ -2,28 +2,41 @@
 ---
 
 
-## 樱花时政┃俄乌战争僵持之际 欧盟议会主席访问基辅
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273616/)
+## 美国将向乌克兰提供生化防护装备以防俄罗斯生化袭击
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2273609/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/俄乌战争僵持之际-欧盟议会主席访问基辅.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.politico.eu%2Fcdn-cgi%2Fimage%2Fwidth%3D1320%2Cheight%3D880%2Cfit%3Dcrop%2Cquality%3D80%2Conerror%3Dredirect%2Cformat%3Dauto%2Fwp-content%2Fuploads%2F2022%2F01%2F17%2FGettyImages-1237787519.jpg&amp;imgr)
-4月1日，欧洲议会主席梅特索拉访乌克兰，并创俄乌开战后欧盟领袖首例。她今年1月当选欧洲议会主席。
+来自新加坡早报 /
+2022年4月2日 10:47 AM 报导
+采集：玫瑰新闻组
 
-梅特索拉在推文表示自己正前往基辅，还附上乌克兰国旗图案，此外未多说明。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-此前，波兰总理莫拉维茨奇、捷克总理费亚拉、斯洛维尼亚总理杨萨3月中旬连袂造访基辅，与乌总统泽连斯基及总理什米加尔会面，以示与乌克兰团结一致。
 
-信息来源：
-[欧盟议会主席突访基辅](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220401-%E6%AC%A7%E7%9B%9F%E8%AE%AE%E4%BC%9A%E4%B8%BB%E5%B8%AD%E7%AA%81%E8%AE%BF%E5%9F%BA%E8%BE%85)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+
+
+
+![白宫新闻秘书普萨基说，美国政府将向乌克兰政府提供能够挽救生命的装备，以防俄罗斯使用生化武器。（路透社）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/2022-04/2022-04-01t204245z_172126748_rc2iet9zx8it_rtrmadp_3_ukraine-crisis-usa-supplies.jpg?itok=9rFTS9UI)白宫新闻秘书普萨基说，美国政府将向乌克兰政府提供能够挽救生命的装备，以防俄罗斯使用生化武器。（路透社）
+
+
+以下原文内容：
+
+白宫说，美国将向乌克兰提供生化防护装备，以防俄罗斯在乌国境内展开生化武器袭击。
+
+据路透社报道，白宫新闻秘书普萨基周五（4月1日）在例行记者会上说，“美国和国际社会成员已多次警告，俄罗斯可能会在乌克兰使用生化武器，莫斯科可能计划开展嫁祸行动。美国政府将向乌克兰政府提供能够挽救生命的装备，以防俄罗斯使用生化武器。”
+
+白宫并未提供俄罗斯打算展开生化武器袭击的证据。美国国防高官上周说，没有确凿迹象显示乌克兰境内将发生生化武器袭击。
+
+克里姆林宫指责乌克兰准备使用生化武器，但也未提供证明。美国官员指莫斯科在撒谎，并称俄罗斯可能准备这么做。
+
+美国行政高官上周说，白宫已成立一支专家团队，就倘若莫斯科使用大规模杀伤力武器，如生化或核武器情况，制定应对措施。
+
+新闻链接：
+[美国向乌克兰提供生化防护装备防俄袭击](https://www.zaobao.com.sg/realtime/world/story20220402-1258611)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 
