@@ -2,25 +2,37 @@
 ---
 
 
-## 疫苗灾难｜香港女星接种疫苗后患免疫系统疾病 严重可致双眼失明
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2272628/)
+## 拜登推出美国最大规模紧急石油储备释放计划，两大指标原油大跌
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273113/)
 
-**图/文｜CP**
-**发布时间｜02/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/香港女星接種疫苗後患免疫系統疾病-嚴重可致雙眼失明.jpg)
-香港TVB重头剧《金宵大厦2》开播在即，女主角李施嬅日前突然在IG拍片透露自己患上重疾，正接受治疗，无法出席新剧宣传活动。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-虽然她称自己的患病时间是在去年9，10 月份，并自此就停止工作，专心接受治疗，不过根据她IG的纪录来看，她在一个月前，即今年2月28日，她还精神奕奕的接种了新冠疫苗加强剂。
+整理/编辑：围剿维尼熊
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_20220402-103834_Instagram-2-scaled.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3287-scaled.jpg)图片来源：搜狐
 
-李施嬅在接受电话访问时透露自己被确诊患上自身免疫性疾病（Autoimmune disease），最严重的时候，心跳加速、手抖、消瘦、甚至被查出患有甲状腺疾病，经过治疗后，目前，其他症状已得到缓解，惟视力仍受到很大影响，每星期都要接受类固醇注射治疗。
 
-来源｜[李施嬅YouTube](https://youtu.be/vPOYQVzywDg)
+根据路透4月1日报道，美国总统拜登周四推出美国有史以来规模最大的紧急石油储备释放计划。拜登宣布，从5月开始，将在六个月内每天释放100万桶原油，这是美国史上最大规模的战略石油储备(SPR)释放。
 
-* * *
+两大指标原油本周均大跌约13%，创两年来最大单周跌幅。
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+布兰特原油期货下跌0.32美元，至每桶104.39美元，跌幅0.3%。美国原油期货(WTI)下跌1.01美元，至99.27美元，跌幅1%。
+
+石油输出国组织(OPEC)及其包括俄罗斯在内的盟友组成的OPEC+联盟周四同意继续坚持每月小幅增产，43.2万桶/日的计划。3月OPEC增加的石油产量未能达到与盟国达成的协议目标。
+
+美国能源企业上周连续第二周增加活跃钻机数，但增速仍然缓慢。
+
+PVM分析师Stephen Brennock称，美国即将释放储备，这并不能改变未来几个月市场难以找到足够供应的事实。
+
+参考链接：[国际油价收低且周线创两年来最大跌幅 此前IEA成员国同意释放油储](https://cn.reuters.com/article/global-oil-market-drv-0402-idCNKCS2LU014)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
