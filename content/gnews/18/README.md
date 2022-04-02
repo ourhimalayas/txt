@@ -2,37 +2,31 @@
 ---
 
 
-## 拜登推出美国最大规模紧急石油储备释放计划，两大指标原油大跌
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273113/)
+## 俄乌战争｜欧洲议长突访基辅 承诺支持乌克兰入欧
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273317/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文｜CP **
+**发布时间｜02/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄烏戰爭｜歐洲議長突訪基輔-承諾支持烏克蘭入歐.jpg)
 
-整理/编辑：围剿维尼熊
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3287-scaled.jpg)图片来源：搜狐
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-根据路透4月1日报道，美国总统拜登周四推出美国有史以来规模最大的紧急石油储备释放计划。拜登宣布，从5月开始，将在六个月内每天释放100万桶原油，这是美国史上最大规模的战略石油储备(SPR)释放。
+欧洲议会主席梅措拉（Roberta Metsola）周五（4月1日）突然访问基辅，与乌克兰总统泽连斯基（Volodymyr Zelenskyy）及国会议长会面，成为俄罗斯入侵乌克兰以来首位访乌的欧盟主要机构领袖。她承诺将全力支持乌克兰成为欧盟的入盟候选国，并为战后重建提供援助。
 
-两大指标原油本周均大跌约13%，创两年来最大单周跌幅。
+梅措拉抵乌后，先后与乌克兰国会最高拉达议长斯特凡丘克（Ruslan Stefanchuk）、总理什米加尔（Denys Shmyhal）及总统泽连斯基（Volodymyr Zelenskyy）会面，并到最高拉达发表演说。
 
-布兰特原油期货下跌0.32美元，至每桶104.39美元，跌幅0.3%。美国原油期货(WTI)下跌1.01美元，至99.27美元，跌幅1%。
+梅措拉在演说中作出三项承诺，一是采取更多更严厉的制裁，将追究入侵者的负责；二是理解乌克兰的“欧洲梦”以及希望加入欧盟成为成员国的愿望，全力支持乌克兰实理这一目标；三是维持甚至大加目前向乌克兰提供的财政、军事和人道援助，并继续照顾被迫逃离家园的难民，直到可以安全回家的一天，并尽一切努力在战后协助乌克兰重建遭受侵略者攻击城市和村庄。
 
-石油输出国组织(OPEC)及其包括俄罗斯在内的盟友组成的OPEC+联盟周四同意继续坚持每月小幅增产，43.2万桶/日的计划。3月OPEC增加的石油产量未能达到与盟国达成的协议目标。
+梅措拉指出，欧盟是一个和平项目，创建的目的就是要将欧洲国家的命运联系起来，以避免再次卷入两次世界大战的那种冲突。她强调“乌克兰就是欧洲”，欧洲议会、欧盟和欧洲人民都与乌克兰站在一起。
 
-美国能源企业上周连续第二周增加活跃钻机数，但增速仍然缓慢。
+另外，波兰、捷克和斯洛文尼亚三国的总理亦曾于上月前往基辅会见泽连斯基和什米哈尔。泽连斯基此前曾表示，希望乌克兰的所有朋友都能到访基辅。
 
-PVM分析师Stephen Brennock称，美国即将释放储备，这并不能改变未来几个月市场难以找到足够供应的事实。
+來源｜[europarl](https://www.europarl.europa.eu/news/pt/press-room/20220401IPR26508/roberta-metsola-backs-ukrainian-people-in-kyiv)
 
-参考链接：[国际油价收低且周线创两年来最大跌幅 此前IEA成员国同意释放油储](https://cn.reuters.com/article/global-oil-market-drv-0402-idCNKCS2LU014)
+* * *
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

@@ -2,30 +2,30 @@
 ---
 
 
-## 美国官员警告：任何俄罗斯军队的调动都“不是撤军”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2273530/)
+## 樱花时政┃法国外长：俄乌谈判没有任何进展
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273594/)
 
-评论：***针对俄罗斯在谈判中，对减少在乌克兰首都基辅和另一个主要城市切尔尼夫周边军事行动的承诺，泽连斯基指出：“乌克兰人并不天真，在这场持续34天的入侵和顿巴斯地区过去8年的战争之中，乌克兰人已经认识到，你能相信的只有具体的结果。”此外，不少媒体和俄罗斯人把这看成是对乌克兰的让步，但乌克兰人认为（而且也显而易见）：“实际上自这场战争开始以来，一直是我们在阻止你们进入基辅，”他们表示，“这是我们的胜利，而不是你们的让步。你们给我们的东西，是我们自己通过战斗得来的。”……不管如何，俄罗斯的袭击随时可能发生，大战即将来临。***
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/法国外长：俄乌谈判没有任何进展.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.campusfrance.org%2Fsites%2Fdefault%2Ffiles%2Fmedias%2Fimages%2F2020-11%2Fjyld_cle8543ae.jpg&amp;imgrefurl=https%3A%2F%2Fwww.campusfrance.org%2Fen%2Fspeech-by-jean-yves-le-drian-at-the-rencontres-campus-)
 
-据《路透社》记者Steve Holland，2022年3月30日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-135.png)2022年3月28日，在乌克兰基辅地区战场前线，一辆俄罗斯装甲运兵车(APC)残骸停在路边。图片来源：Gleb Garanich/路透社
-华盛顿，3月29日（路透社）——在俄罗斯承诺缩减乌克兰首都基辅附近的军事行动后，一名美国官员周二表示，俄罗斯军队在基辅周围的任何行动都将构成“重新部署，而不是撤军”。
+3月30日，法国外长勒德里昂（Jean-Yves Le Drian）接受媒体采访时说：“战争仍在继续。我没有看到行动。”
 
-他说：“我们认为，俄罗斯军队在基辅周围的任何行动都是重新部署，而不是撤军。”
+勒德里昂表示：“据我所知，对于俄军在乌克兰的占领，没有撤军。战争仍在继续，在第聂伯罗，在哈尔科夫，在马里乌波尔，马里乌波尔正在成为孤城 ，普京决定的对马市的围困导致近20万人被劫为人质。局势没有任何突破或进展。我不会再相信任何俄罗斯当局的声明，我只相信行动”。
 
-这名官员表示：“我们都应该做好准备，防止俄罗斯对乌克兰其他地区可能的持续大规模进攻。这是俄罗斯的缓兵之计……任何人都不应误认为俄罗斯想要结束冲突。”
+勒德里昂进一步表示，像布林肯所说的那样，普京说的与实际做的不同，我并不信任普京。信任是基于行动。因此，就目前而言，俄罗斯没有履行其承诺。
 
-文章来源: [**https://www.reuters.com/world/europe/us-official-warns-any-russian-troop-movement-not-withdrawal-2022-03-29/?taid=62435e46b56bf0000175465b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter**](https://www.reuters.com/world/europe/us-official-warns-any-russian-troop-movement-not-withdrawal-2022-03-29/?taid=62435e46b56bf0000175465b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+信息来源：
+[专访法国外长：就我所知，目前俄乌谈判没有任何新进展，我只会相信行动](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220401-%E6%B3%95%E5%A4%96%E9%95%BF-%E5%B0%B1%E6%88%91%E6%89%80%E7%9F%A5%EF%BC%8C%E7%9B%AE%E5%89%8D%E4%BF%84%E4%B9%8C%E8%B0%88%E5%88%A4%E6%B2%A1%E6%9C%89%E4%BB%BB%E4%BD%95%E6%96%B0%E8%BF%9B%E5%B1%95%EF%BC%8C%E6%88%)
 
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

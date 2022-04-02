@@ -2,27 +2,33 @@
 ---
 
 
-## 欧盟委员会批准新的规则草案以加强对数字资产交易的监控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273440/)
+## 前墨尔本袋鼠社区年仅21岁球员突然去世
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273574/)
 
 #### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：小红帽
+整理/编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Committee_Room_of_the_European_Parliament_in_Brussels.jpg)图片来源：wikipedia
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/8LNZHV5I09NDRYYZS6.png)图片来源：Irish Examiner & 雅典娜设计组
 
 
-根据COINGEEK4月1日报道，在欧洲，数字资产转移可能很快就会受到更多的监控，其中包括那些来自用户私人持有的“非托管”钱包的数字资产。两个欧盟（EU）议会委员会已经批准了立法草案，允许对区块链钱包交易进行更多的追踪和监控。一些人认为这些交易包含了几个关于隐私和数字资产可用性的“红旗”。
+北墨尔本袋鼠社区对前球员墨菲（Red Og Murphy）的突然去世的消息感到震惊，他年仅21岁。
 
-欧盟议会经济和货币事务委员会（ECON）和公民自由委员会（LIBE）于2022年3月31日以93票对14票（14票弃权）批准了该草案。
+墨菲在2019年作为B类新秀被列入袋鼠队的名单，本周在爱尔兰家中突然离世，当地政府尚未确认其死因。
 
-该草案预计将在下周的欧洲议会全体会议上进行表决。如果通过，它将成为整个欧盟的法律。作为金融行动特别工作组（FATF）系列提案的一部分，这是越来越多地监控私人交易并防止洗钱和逃税的全球趋势的一部分。
+北墨尔本澳式足球俱乐部首席执行官Ben Amarfio在一份声明中说：“我代表俱乐部的每个人，在这个艰难的时刻向墨菲的家人致以最深切的问候。”
 
-最初，拟议的规则要求数字资产服务提供商收集有关向“非托管”钱包转账的信息。然而，草案的后期修正案插入了新的措辞，要求他们也要识别和验证此类钱包的受益人（或用户）。这甚至包括不属于该供应商客户的钱包。
+“这一刻我们与那些与墨菲最亲近的人，和他在爱尔兰老家的亲人和朋友，以及所有在他在北墨尔本俱乐部期间与他一起打球和工作并成为朋友的人在一起。”
 
-在所有版本的立法中，服务提供商还必须报告任何“可疑”交易。根据FATF的“旅行规则”，法规适用于任何超过1,000欧元的法币交易。然而，该草案将把该规则适用于所有数字资产交易。交易所也将被要求向当局通报任何来自非客户、“非托管”钱包的平台交易。
+墨菲在2019年代表北墨尔本参加了12场VFL比赛，在本赛季的最后一场比赛中对Footscray踢了两个球，然后在年底回老家爱尔兰。
 
-新闻来源：[EU committees approve new draft rules to increase monitoring of digital asset transactions](https://coingeek.com/eu-committees-approve-new-draft-rules-to-increase-monitoring-of-digital-asset-transactions/)
+回到爱尔兰后，他为当地库里GAA和斯莱戈郡效力。
+
+斯莱戈郡议员马丁·康诺利告诉《爱尔兰观察家》：“整个地区都难以接受，墨菲可能是该地区最优秀的足球运动员之一。他为库里GAA俱乐部效力。他和墨菲家族都非常受人尊敬。”
+
+北墨尔本的球员和官员将在周六晚上对阵布里斯班雄狮队的比赛中戴上黑袖标，以纪念墨菲。
+
+参考链接：[AFL news 2022: Former Kangaroos player Red Og Murphy dead at 21 | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/afl/our-hearts-are-broken-former-kangaroos-player-red-og-murphy-dead-at-21/news-story/c0cf676d19f26764a3bc3d115db482a3)
 
 发布：tianzhihuan
 
