@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 6:04 AM (UTC)`
+
+4/1/2022 Ukraine Rescue: The MSM is by no means comparable to the media of the New Federal State of China. By doing 24-hour live broadcasts on GETTR, we are covering all aspects of the dynamics on the front line of the Ukraine rescue operation. In contrast, the reports conducted by the MSM are not just one-sided but also superficial. The New Federal State of China is now building the best media platform in the world - GETTR!<br/><br/>4/1/2022 乌克兰救援连线：主流媒体绝不能跟新中国联邦的媒体相提并论，我们通过24小时盖特直播，全方位报道救援前线的动态，而主流媒体的报道不仅片面，而且蜻蜓点水；新中国联邦正在打造一个全球最棒的媒体平台 - 盖特！<br/>
+![img](https://media.gettr.com/group48/getter/2022/04/02/06/a600cbb0-0147-a20c-0238-4cdbb08f8ccc/out.jpg)
+
+---
+
 `@miles 4/2/2022 5:00 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -147,13 +154,6 @@
 
 4/1/2022 Ukraine Rescue: Fellow fighter Wenke talks about how the giant tent of the New Federal State of China keeps the refugees warm in the rain. Most of the fellow fighters who contracted the CCP virus have been tested negative for the virus. Nicole returns to the rescue camp, reuniting with other fellow fighters for the first time after 12 days of quarantine. Fellow fighter Jin Dongnan talks about the CCP spy caught on camera and gives thumbs up to the rescue team.<br/><br/>4/1/2022 乌克兰救援连线：文科战友谈新中国联邦的大帐篷在雨中为难民送温暖；大部分染病的战友们已检测为阴性，Nicole首次回到营地和战友团聚；晋东南战友谈被拍到的中共间谍并为救援团队点赞<br/>
 ![img](https://media.gettr.com/group50/getter/2022/04/01/21/0d0d6b76-fbfe-5c51-97a9-38a9ed040607/out.jpg)
-
----
-
-`@miles 4/1/2022 8:58 PM (UTC)`
-
-2022.04.01  NFSC health 新中国联邦 | 喜健康  从东航坠机看巨大心理危机
-![img](https://media.gettr.com/group12/origin/2022/04/01/20/7be5e631-2f1f-8468-815d-965f310efa93/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

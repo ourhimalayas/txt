@@ -2,10 +2,10 @@
 ---
 
 
-## 欧盟警告中共国不要支持俄罗斯的乌克兰战争
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2273188/)
+## 泽连斯基总统提出乌克兰加入北约的理由
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2273225/)
 
-04/01/2022 欧盟警告中共国不要支持俄罗斯或者干涉西方对俄罗斯的制裁，否则将会对中共国在欧洲的声誉造成巨大损害。
+04/01/2022 泽连斯基总统提出乌克兰加入北约的理由
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

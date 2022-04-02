@@ -2,10 +2,10 @@
 ---
 
 
-## 泽连斯基总统提出乌克兰加入北约的理由
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2273225/)
+## 俄罗斯总统普京要求以卢布支付俄罗斯天然气的费用
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2273298/)
 
-04/01/2022 泽连斯基总统提出乌克兰加入北约的理由
+03/31/2022 俄罗斯总统普京要求从4月1日起以卢布支付出售给“不友好”国家的俄罗斯天然气
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
