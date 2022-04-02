@@ -2,37 +2,50 @@
 ---
 
 
-## 中日财经爆┃SpaceX将在菲律宾推出星链服务，正式落地亚洲
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2275830/)
+## 澳网与中共企业的赞助协议受到批评
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2275834/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，SpaceX公司将在菲律宾推出星链卫星互联网服务，这将使菲律宾成为东南亚第一个托管星链互联网服务的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-19.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn.arstechnica.net/wp-content/uploads/2021/04/starlink-dish.jpg&amp;imgrefurl=https://arstechnica.com/information-technology/2021/04/dishy-mcflatface-to-become-fully-mobile-allowing-starlink-use-away-from-home/&amp;tbnid=71_jczvjRXRzuM&amp;vet=12ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ..i&amp;docid=hHh0x3Cm2TpYIM&amp;w=2000&amp;h=1500&amp;q=Starlink&amp;hl=zh-CN&amp;ved=2ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ)
-4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，[美国](https://news.163.com/news/search?keyword=%E7%BE%8E%E5%9B%BD)亿万富翁埃隆·马斯克(Elon Musk)旗下太空探索技术公司SpaceX将在菲律宾推出星链[卫星](https://news.163.com/news/search?keyword=%E5%8D%AB%E6%98%9F)互联网服务，这将使菲律宾成为[东南亚](https://news.163.com/news/search?keyword=%E4%B8%9C%E5%8D%97%E4%BA%9A)第一个托管星链互联网服务的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/grafik.png)
+据每日邮报报道，在北京拒绝谴责俄罗斯入侵乌克兰之后，澳网与一家中共国白酒公司的合作关系受到了审查。
 
-菲律宾贸易与工业部长拉蒙·[洛佩兹](https://news.163.com/news/search?keyword=%E6%B4%9B%E4%BD%A9%E5%85%B9)（Ramon Lopez）表示，他最近会见了SpaceX高管丽贝卡·亨特（Rebecca Hunter）和瑞安·古德奈特（Ryan Goodnight），以及菲律宾国际通讯委员会（NTC）副专员埃德加多·卡瓦里奥斯（Edgardo Cabarios）和DFNN执行主席小拉蒙·加西亚（Lamon Garcia Jr.），讨论将星链引入菲律宾事宜。
+2018年，澳大利亚网球协会与国有企业泸州老窖签署了价值1亿美元的协议，这是该赛事历史上最大的中共国赞助协议。
 
-洛佩兹透露，SpaceX的商业许可申请正在处理中，同时该公司正在为其网关寻找地点。该公司正在菲律宾设立全资子公司，目标是在推出的第一阶段部署三个网关。不过，洛佩兹没有具体说明星链互联网服务推出的时间表或SpaceX的投资数字。
+中共国对乌克兰战争的立场再次引发了对该协议的批评，就在几个月前，澳大利亚网球公开赛组织者因禁止支持失踪的中国女网球运动员彭帅的抗议活动而受到了猛烈抨击。
 
-洛佩兹表示，星链的推出将使该国宽带速度更快，连接更好，电信服务的容量更大，费率也更便宜。他称：“星链将扩大和补充现有的宽带容量。这将进一步扩大微型、中小型企业的能力，促进在线学习、电子商务和金融科技发展。”
+彭帅在声称和一名中国共产党人物有不当性行为后失踪。而北京一再坚称她是安全和自由的，国际奥委会在与其进行了两次视频通话后接受了这一立场。
 
-SpaceX是少数几家通过近地轨道卫星网络支持高速互联网服务的公司之一。星链网络旨在为偏远地区或在自然灾害期间通信中断时提供互联网接入服务。这样的卫星互联网系统将信号从大气层发射给地面上的天线接收器。
+然而，国际女子网球协会并没有得到令人满意的保证，并于12月暂停了其在中共国的所有比赛。一个月后，在澳网组织者禁止球迷穿有“彭帅在哪里？”字样的T恤，随后澳网陷入了风暴的中心。
 
-根据SpaceX的数据，星链的数据传输速度从100Mbps到200Mbps不等。这种高速连接以前是不可能通过传统卫星互联网实现的。SpaceX是此类技术的领跑者，自2020年末以来，该公司已在全球范围内为星链测试版签约了10万多名用户。星链提供互联网接入服务的国家包括美国、英国、加拿大、澳大利亚、新西兰和墨西哥。
+该禁令后来被推翻，但影子内阁总检察长迈克·奥布莱恩表示，澳网必须澄清“是否有赞助商试图影响其对强调网球明星（彭帅）仍身处困境的观众的反应。”他告诉新闻集团，“我们知道丹尼尔·安德鲁斯政府与中共国政府危险的‘一带一路’交易是以牺牲了维州的价值来换取金钱。”
 
-亚马逊也在开发自己的卫星互联网，名为Kuiper Systems，但尚未将任何卫星送入轨道。
+“但澳网是在数百万维州人的支持下才取得巨大成就的一项重大体育赛事，绝不允许也这样做。“诸如言论自由这类的基本权利不应该被追逐赞助费的体育规则所破坏。”
 
-信息来源：[**SpaceX****将在菲律宾推出星链服务**](https://www.163.com/tech/article/H3RRANH800097U81.html)
+他说：“如果我们的价值被卖给出价最高的人，维多利亚将无法恢复和重建。”“无论是支持乌克兰人民还是问‘彭帅在哪里？’，我们绝不能让赞助商的政治形态决定我们是谁或我们的立场。”
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**简评：**
+
+当今年一月澳大利亚网球公开赛上，赛会组织者把穿有“彭帅在哪里”T恤的观众拒之门外的时候，澳洲朝野和民众都上下沸腾，觉得不可思议。突然发现澳洲公民竟然不可以在澳洲公开地、自由地表达自己的观点。而这一切的背后黑手则指向了中共背景的赞助商。
+
+郭文贵先生早就提醒过西方世界，和共产党做交易最终的结果就是你谋它的利，它谋你的本。我们以前对“本”的理解就是本金，但通过这次澳网为了赞助商的金钱，竟然把支持彭帅的观众拒之门外的事件，我们可以看到中共最终谋的是西方国家的立国之“本”，那就是自由。
+
+郭先生从2017年开启的爆料革命，把中共的假、恶、丑和对西方世界的蓝、金、黄通过了自己在美国的各种遭遇展示给全世界，把中共打击得不知所措，并且疯狂和失去理智。试想中共如果不在澳网做这个下流的举动，澳洲民众则根本不会亲身体会到自己最根本的社会根基和价值观正在被中共蚕食和摧毁。正如维州影子总检察长迈克·奥布莱恩一针见血地指出“无论是支持乌克兰人民还是问‘彭帅在哪里？’，我们绝不能让赞助商的政治形态决定我们是谁或我们的立场。”
+
+欲让其灭亡 先让其疯狂，通过中共在澳网和乌克兰上疯狂、无知的行为，我们可以预见它正在灭亡的路上狂奔。
+
+新闻链接：[Australian Open is slammed over $100MILLION deal with Chinese liquor company after tournament banned ‘Where is Peng Shuai?’ T-shirts](https://www.dailymail.co.uk/sport/tennis/article-10675477/Australian-Open-slammed-100MILLION-deal-Chinese-liquor-company.html)
+
+翻译/简评：新街口 / PR：感恩
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
