@@ -2,28 +2,34 @@
 ---
 
 
-## 泽连斯基清除两名高级间谍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2276186/)
+## 马斯克的新光速引擎挑战物理学
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2276269/)
 
-作者： 日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间3月31日，据相关媒体报道，乌克兰总统泽连斯基当天晚间宣布清除两名高级间谍：安全局内部安全主要部门负责人奥列诺夫和安全局赫尔松地区办公室负责人奥列克山德罗维奇。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-02-下午12.23.38.png)
-泽连斯基在其后发表演讲时指出，这些高级军官不但背叛了自己的祖国，他们在保卫国家、自由以及独立方面也违反了对乌克兰人民效忠的军人誓言，因此，他们无可避免地被剥夺了高阶军衔。更甚者，泽连斯基怒斥其为叛徒，并强调称， 这些人都会逐渐受到惩罚。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/maxresdefault.jpg)
+近日，马斯克和美国NASA发布了新火箭，名为光速引擎。它挑战了物理学，可以将人类在几周而不是几个月内带到火星，大大改变了太空旅行的规则。目前该引擎正在新宇宙飞船上测试。
 
-此外，泽连斯基也表示，乌克兰军民自俄乌战争开始以来一直致力于团结抵御俄罗斯的入侵，但清除国内背叛势力而今也是政府的首要之务。
+据悉目前的商用和军用火箭都使用化学燃料，这些燃料必须在地球上预制，耗资巨大极其复杂，且助推重量受到严重限制。而马斯克的光速引擎使用的燃料为电力。这种引擎被装置在命名为猛禽的革命性火箭上，推力可超过50万镑，因使用甲烷燃料从而降低了30%的二氧化碳排放，清洁环保。进入太空之前，先要在地球进行试验，工作人员称大约明年上半年可进行地球短途上下飞行。
 
-参考链接：
-1.[烏克蘭局勢仍嚴峻 澤倫斯基稱兩高官為叛徒並開除](https://www.cna.com.tw/news/aopl/202204010033.aspx)
-2.[Zelensky strips two Ukrainian generals of their military rank: ‘All traitors will be punished’](https://www.independent.co.uk/news/world/europe/ukraine-generals-fired-zelensky-traitors-b2048779.html)
+电磁驱动装置是实现光速飞行的原理，它违背了牛顿第三定律。它没有相互依存的作用力和反作用力，只有通过磁场加速过热等离子体产生的一个推力。并且因为没有助推剂，将会对太空非常环保。Space X已经成功试验这种装置，马斯克的目标是制造一个轻速发动机，速度可达186000英里每秒，在短短70天内将人们带上火星，太空旅行将成为现实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+reference：
 
-编辑：静言
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

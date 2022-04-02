@@ -2,77 +2,44 @@
 ---
 
 
-## 一周中共病毒疫情及疫苗信息回顾
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2275136/)
+## 4/2/2022国际财经快讯：澳大利亚和印度在虚拟仪式上签署贸易协议；美国第一季度汽车销量下滑
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2275194/)
 
-作者：DC农场 火来，纽约香草山农 defiance
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-02-at-9.31.05-PM.png)
-- 2022年3月23日至3月30日，除中共国外，全球累计报告中共病毒确诊患者一千零九十六万余例，同比上周下降了8.13 %。此外，本周新增中共病毒死亡病例超过三万三千例，同比上周下降了1.93%。本周已是连续第四周全球确诊病例和死亡病例持续负增长。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-6.png)[图片来源](https://www.reuters.com)
+**1.澳大利亚和印度在虚拟仪式上签署贸易协议**
 
+[4月2日（路透社）–澳大利亚周六与印度正式签署了一项贸易协议，两国表示有意建立更紧密的贸易关系。贸易部长丹-特汉和印度商业和工业部长皮尤什-戈亚尔在一个虚拟仪式上签署了《澳大利亚-印度经济合作与贸易协定》。澳大利亚总理斯科特-莫里森和印度总理纳伦德拉-莫迪见证了这个虚拟仪式。莫里森预计将在几天内举行大选，他一直渴望在竞选活动开始前达成贸易协议，他已经与印度进行了十年的谈判。莫里森在塔斯马尼亚对记者说，与世界第二大人口大国的协议代表了 “当今世界上最大的经济大门之一”。](https://www.reuters.com/world/asia-pacific/australia-india-trade-deal-open-biggest-economic-door-morrison-2022-04-02/)
 
-- 截至3月30日，除中共国外，全球总计接种了81.2亿剂中共病毒疫苗，同比23日的数据增长了0.87%。目前，全球中共病毒疫苗的接种情况趋于稳定，增长率已经连续数周低于百分之一。
+**2.****比特币矿商****PrimeBlock****将通过****12.5****亿美元的****SPAC****交易上市**
 
+[4月1日（路透社）–比特币挖矿和基础设施初创公司Prime Blockchain Inc周五同意通过与一家空头公司合并的方式在美国上市，该交易将使合并后的公司价值达到12.5亿美元，包括债务。该公司以PrimeBlock的名义开展业务，在北美经营数据中心和加密货币开采业务，已经从Cantor Fitzgerald & Co.的一家关联公司获得了3亿美元的股权融资，用于这项交易。与10X Capital Venture Acquisition Corp II（VCXA.O）的合并预计将在今年下半年完成，之后合并后的公司将在纳斯达克上市，由PrimeBlock首席执行官Gaurav Budhrani领导。PrimeBlock决定上市时，正值与空白支票公司或特殊目的收购公司（SPAC）的兼并放缓之际，原因是监管部门对投资者获得原始交易的担忧引发了打击。](https://www.reuters.com/business/finance/bitcoin-miner-primeblock-go-public-via-125-bln-spac-deal-2022-04-01/)
 
-- 本周中，美国航空、达美航空、联合航空、西南航空和其他美国主要航空公司的首席执行官致信总统乔-拜登，敦促他结束联邦政府对航空业的强制口罩措施以及国际航班出发前的病毒测试要求。随后，就政府针对飞机等公共交通工具的强制口罩规定，德州州长罗恩-德桑蒂斯联合美国21个州共同发起了对美国疾病控制和预防中心CDC等联邦机构的起诉。
+**3.秘鲁经济部长称将铜价暴利作为调整税制改革的目标**
 
+[利马，4月1日（路透社）–世界第二大铜生产国秘鲁将针对采矿公司从全球金属价格飙升中获得的 “超额利润 “征收额外税款。秘鲁经济部长告诉路透社，该国将针对采矿公司从全球金属价格飙升中获得的 “超额利润 “征收额外税款。虽然佩德罗-卡斯蒂略总统去年7月上台时承诺对强大的采矿业增税，但目前的计划远不如最初承诺的大幅增税来得雄心勃勃，后者遇到了来自该行业和分裂的国会的激烈抵抗。该国经济和财政部长Oscar Graham周五晚些时候在利马接受采访时说：”重点是剩余利润，政府正在考虑对税收进行 “调整”。在俄罗斯入侵乌克兰之后，铜价目前正处于每吨10,000美元左右的接近历史水平的交易。](https://www.reuters.com/world/americas/exclusive-peru-targets-copper-price-windfall-dialed-back-tax-reform-minister-2022-04-02/)
 
-- 在中共病毒疫苗问题上，莫德纳公司展示了其第二阶段实验数据，试图继续推进该公司有关0.5至6岁婴幼儿中共病毒疫苗的上市进程。此外，针对50岁以上的成年人，美国食品药品监督管理局FDA和CDC批准授权使用辉瑞和莫德纳公司的第二剂疫苗加强针，即第四针中共病毒疫苗。值得注意的是，本次授权非常罕见地直接跳过了疫苗顾问委员会的讨论。其后，FDA的官员也表示， 50岁以下的美国人从今年秋季开始也可能需要接种第四针疫苗；彼时，美国50岁以上的成年人或将需要接种第五针疫苗。然而，公主邮轮公司的红宝石公主号邮轮本周再次爆发中共病毒疫情，且该游轮上的每位乘客在出发前均接种过中共病毒疫苗 。
+**4.船用燃料供应商停止为地中海地区的俄罗斯船只提供服务**
 
+[4月1日（路透社）–五位了解情况的行业人士告诉路透社，船用燃料销售商已经停止在包括西班牙和马耳他在内的欧洲主要枢纽为悬挂俄罗斯国旗的船只提供服务，这是对莫斯科出口的又一次打击。航运消息人士说，失去地中海的加油点，对从波罗的海港口前往亚洲的俄罗斯油轮造成了重大的后勤问题，也造成了对可能被困于海上的易燃货物的安全担忧。在莫斯科入侵乌克兰后，俄罗斯正因对其银行和寡头的严厉经济制裁浪潮而陷入困境，外国公司也在削减关系，俄罗斯总统弗拉基米尔-普京称这是一次特别军事行动。多种因素促使加油服务停止，包括消息人士所描述的 “自我制裁”，即公司试图通过拒绝与俄罗斯实体签订合同，在下一波措施面前保持领先。](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/)
 
-- 据悉，英国、加拿大和新西兰政府的官方数据表明，接种三针中共病毒疫苗的民众现在正遭受着获得性免疫缺陷综合症的困扰。相关媒体也刊登专栏文章详细考察了美国国防部掩盖美军疫苗伤害的五种手段。为此，德州北区地方法院近日授予海豹突击队队员们”集体诉讼”的资格：他们可以就强制疫苗接种政策起诉国防部长奥斯汀。同时，美国堪萨斯州参议院最新通过的一项法案中声明，该州托幼机构和K-12公立学校必须接受父母或监护人以宗教理由拒绝为儿童接种中共病毒疫苗的诉求。而纽约市也豁免了当地运动员和表演者的强制疫苗令。
+**5.印度电动摩托车起火引发安全担忧，莫迪推动工作受挫**
 
+[新德里，4月1日（路透社）–一连串的电动滑板车在印度起火，包括由软银支持的Ola Electric生产的滑板车，正在引发一些买家的安全担忧，这对总理纳伦德拉-莫迪看好的新兴行业来说是一个早期挫折。印度希望到2030年，电动滑板车和摩托车占两轮车总销量的80%，而现在只占2%左右，莫迪政府正在为企业提供数十亿美元的激励措施，以在当地生产电动汽车（EVs）。今年，电动滑板车的销量增加了一倍多，但至少对一些潜在的买家来说，火灾是三思而后行的原因。上周六，一段Ola电动滑板车被大火吞噬的视频在网上疯传，引发了一场罕见的政府调查。初创公司Pure EV的一辆踏板车也被烧毁，一辆燃烧的Okinawa Autotech Pvt自行车导致两人死亡。这些公司说他们正在调查这些事件。](https://www.reuters.com/business/autos-transportation/e-scooter-fires-india-trigger-safety-concerns-setback-modi-push-2022-04-01/)
 
-- 另外，堪萨斯州的法案也授权当地医生使用伊维菌素和硫酸羟氯喹作为标签外药物治疗中共病毒，而早先作为治疗药物的索托维单抗被FDA禁止在包括康涅狄格州在内的八个州中使用。近期，美国RAIR基金会还在一篇文章中揭露了为世界卫生组织工作的安德鲁-希尔医生掩盖伊维菌素疗效的做法。
+**6.****纽约仓库工人投票决定在亚马逊成立美国第一个工会**
 
+[纽约，4月1日（路透社）–亚马逊公司（AMZN.O）位于纽约市的一个仓库的工人投票决定在这个美国第二大私营雇主那里成立第一个工会，这一胜利为最近劳工活动家在新行业中取得的基层成功增添了砝码。根据美国国家劳工关系委员会（NLRB）周五公布的统计结果，这家网络零售商在斯塔滕岛区的履约中心（称为JFK8）的员工以2,654票对2,131票支持亚马逊工会（ALU），即约55%的支持率获得了多数。这次投票代表了美国有组织劳工的胜利，也是劳工倡导者的一个里程碑，他们多年来一直认为亚马逊的劳工行为对工人构成威胁。工会组织者克里斯蒂安-斯摩尔斯(Christian Smalls)身着亚马逊工会的红色衣服，在胜利后举手示意，而ALU成员则开着香槟庆祝。](https://www.reuters.com/legal/transactional/amazons-ny-union-vote-count-continues-labor-leads-2022-04-01/)
 
-- 在政府方面，多名欧洲议会议员谴责特鲁多对加拿大自由车队抗议活动的镇压。议员们认为，特鲁多是所有民主国家的耻辱，更是最坏的独裁者。而美国参议员卢比奥则要求联邦政府审查各州和各市使用《美国救援计划法》中的三千五百亿美元冠状病毒救援资金的详情。
+**7.****在俄罗斯和欧洲的天然气对峙中，双方都有损失**
 
+[伦敦，4月1日（路透社）–如果弗拉基米尔-普京总统落实他的威胁，切断对他认为 “不友好 “的国家的天然气供应，除非他们用卢布付款，那么欧洲和俄罗斯都将损失惨重。即使在冷战高峰期，莫斯科也从未削减对欧洲的天然气供应，但周四，普京签署了一项法令，命令外国买家从4月1日起用卢布而不是欧元付款，否则将面临没有俄罗斯供应的局面。欧洲各国首都拒绝了这一最后通牒，周五克里姆林宫发言人德米特里-佩斯科夫说，在本月晚些时候之前，这不会影响结算。虽然短缺的威胁发生在欧洲冬季需求高峰期之后，但当欧洲的企业和家庭已经被创纪录的能源价格所困扰时，欧洲仍然有很多损失，而莫斯科可能会切断其主要收入来源之一。](https://www.reuters.com/business/energy/russia-europe-gas-standoff-both-sides-lose-2022-04-01/)
 
-- 另据美国CDC的最新数据显示，奥密克戎变种的亚变种病毒BA.2已经成为在美国传播的主要病毒类型。目前，54.9%的中共病毒感染病例源于BA.2变种病毒，且根据英国健康安全局的最新统计数据，BA.2变种病毒比奥密克戎的传播速度快75%。
+**8.美国第一季度汽车销量下滑；丰田汽车销量超过通用汽车**
 
+[4月1日（路透社）–美国汽车制造商周五报告称，第一季度国内销售下滑，因为整个行业受到芯片短缺和供应链中断的冲击。丰田汽车(Toyota)在2021年超越通用汽车(GM)成为美国销量最高的汽车制造商，由于其雷克萨斯(Lexus)混合动力车和电动车的需求增加，该公司第一季度的销量超过了通用汽车。韩国现代汽车(005380.KS)和起亚汽车(000270.KS)以及日本马自达汽车公司(7261.T)都公布了美国第一季度汽车总体销量的下降。现代汽车表示，1-3月份电气化汽车的零售额比上年同期激增241%。现代汽车负责美国销售的高级副总裁兰迪-帕克(Randy Parker)说：“如果油价居高不下，这将继续推动消费者转向绿色技术。”](https://www.reuters.com/business/autos-transportation/toyota-first-quarter-us-auto-sales-drop-147-2022-04-01/)
 
-- 至于病毒溯源方面的消息，据赋权监督组织爆料，已经披露的电子邮件记录显示，美国国立卫生研究院应中共武汉病毒研究所相关人员的要求，删除了中共病毒序列片段的信息。
-
-
-更多内容，请持续关注本节目的后续报道。
-
-参考链接：
-
-1. [Our world in data: Weekly confirmed COVID-19 cases](https://ourworldindata.org/grapher/weekly-covid-cases?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
-2. [Our world in data: Weekly confirmed COVID-19 deaths](https://ourworldindata.org/grapher/weekly-covid-deaths?tab=chart&amp;time=2022-03-23..latest&amp;country=~World+excl.+China)
-3. [Our world in data: COVID-19 vaccine doses administered](https://ourworldindata.org/grapher/cumulative-covid-vaccinations?time=2022-03-23..latest&amp;country=~World+excl.+China)
-4. [CDC recommends fourth Pfizer and Moderna Covid vaccine doses for people age 50 and older](https://www.cnbc.com/2022/03/29/fda-authorizes-fourth-pfizer-covid-vaccine-dose-for-people-age-50-and-older-.html?__source=sharebar%7Ctwitter&amp;par=sharebar)
-5. [Top FDA official says fully vaccinated Americans may need more Covid shots this fall](https://www.cnbc.com/2022/03/29/top-fda-official-says-fully-vaccinated-americans-may-need-more-covid-shots-this-fall.html)
-6. [Ivermectin, hydroxychloroquine off-label prescription bill passes Kansas Senate in late-night vote](https://www.cjonline.com/story/news/politics/2022/03/24/kansas-senate-passes-ivermectin-hydroxychloroquine-off-label-covid-treatment-pharmacists-bill/7150014001/)
-7. [The more contagious BA.2 version of omicron is now the most common in the U.S.](https://www.npr.org/2022/03/29/1089494990/the-more-contagious-ba-2-version-of-omicron-is-now-the-most-common-in-the-u-s)
-8. [More contagious omicron BA.2 subvariant now dominant in the U.S., CDC says](https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html)
-9. [More contagious omicron BA.2 subvariant now dominant in the U.S., CDC says](https://www.cnbc.com/2022/03/29/more-contagious-omicron-bapoint2-covid-subvariant-dominant-in-the-us-cdc-says.html)
-10. [Kansas Senate passed bill increasing access to ivermectin, lessening school vaccine requirements](https://justthenews.com/politics-policy/coronavirus/kansas-senate-passed-bill-increasing-access-ivermectin-lessening-school)
-11. [WATCH: Member of European Parliament calls Justin Trudeau a dictator to his face](https://thepostmillennial.com/watch-european-mep-condemns-trudeau-for-trampling-women-with-horses)
-12. [BREAKING: Airline CEOs Send Dictator Biden a Letter Asking Him To Remove Useless Mask Mandates](https://www.thegatewaypundit.com/2022/03/breaking-airline-ceos-send-dictator-biden-letter-asking-remove-useless-mask-mandates/)
-13. [Horowitz: 5 ways DOD’s recalibrated health surveillance data looks like a fraudulent attempt to cover vaccine injury](https://www.theblaze.com/op-ed/horowitz-5-ways-dods-recalibrated-health-surveillance-data-looks-like-a-fraudulent-attempt-to-cover-vaccine-injury)
-14. [Rubio Seeks Review of How COVID Funds Were Spent](https://www.newsmax.com/politics/rubio-gao-covid-funds-dodaro/2022/03/25/id/1062937/)
-15. [Deadly Cover-Up: Who Buried the Research Proving Ivermectin Saves Covid Patients’ Lives](https://rairfoundation.com/deadly-cover-up-who-buried-the-research-proving-ivermectin-saves-covid-patients-lives/)
-16. [FDA Tells Doctors in 8 States to Stop Using COVID-19 Treatment](https://www.theepochtimes.com/mkt_app/fda-tells-doctors-in-8-states-to-stop-using-covid-19-treatment_4364197.html)
-17. [Official UK, Canada & New Zealand Government data suggests the Triple Vaccinated are now suffering Acquired Immunodeficiency Syndrome](https://dailyexpose.uk/2022/03/27/uk-canada-nz-gov-data-shows-triple-vaccinated-have-a-i-d-s/)
-18. [Moderna Receives FDA Approval for Emergency Use Authorization of 2nd Booster Dose of Its COVID-19 Vaccine, mRNA-1273](http://Moderna%20Receives%20FDA%20Approval%20for%20Emergency%20Use%20Authorization%20of%202nd%20Booster%20Dose%20of%20Its%20COVID-19%20Vaccine,%20mRNA-1273)
-19. [Horowitz: Moderna pushing high-dose shot for babies who are in no danger from COVID](https://www.theblaze.com/op-ed/horowitz-moderna-pushing-high-dose-shot-for-babies-who-are-in-no-danger-from-covid)
-20. [mpower Oversight Releases Research on NIH Deleting Coronavirus Data During the Pandemic](https://empowr.us/empower-oversight-releases-research-on-nih-deleting-coronavirus-data-during-the-pandemic/)
-21. [National Institutes of Health deleted COVID info at Wuhan researcher’s request, emails show](https://justthenews.com/nation/science/us-national-institutes-health-deleted-covid-info-wuhan-researchers-request-emails)
-22. [BREAKING: TX Federal Judge Grants Class Action Status To Navy SEALS In Lawsuit Against Secretary of Defense Austin Over Vaccine Mandates](https://creativedestructionmedia.com/news/2022/03/28/breaking-tx-federal-judge-grants-class-action-status-to-navy-seals-in-lawsuit-against-secretary-of-defense-austin-over-vaccine-mandates/)
-23. [Cruise Ship with Fully Vaccinated Passengers and Crew Members Docks in San Francisco After Covid Outbreak](https://www.thegatewaypundit.com/2022/03/cruise-ship-fully-vaccinated-passengers-crew-members-docks-san-francisco-covid-outbreak/?utm_source=Gettr&amp;utm_campaign=websitesharingbuttons)
-24. [Ron DeSantis leads 21-state lawsuit against feds to end mask mandates for travel](https://nypost.com/2022/03/29/ron-desantis-leads-suit-against-feds-to-end-travel-mask-mandates/)
-25. [The CDC is Being Sued by 21 States, Led by Florida Governor Ron DeSantis](https://trendingpolitics.com/the-cdc-is-being-sued-by-21-states-led-by-florida-governor-ron-desantis-knab/?utm_source=DS21)
-
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM-1.png)
-
-编辑：Zion文恩
-总编：Irene木木
-审核：Zion文恩
-校正/发稿：我不在这里
+【秘密翻译组-金融组】
+作者：千年等一回
 
  
 

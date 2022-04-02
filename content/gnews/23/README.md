@@ -2,24 +2,32 @@
 ---
 
 
-## 新加坡一位医生因推荐伊维菌素预防和治疗新冠而被审查和起诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2275908/)
+## 俄罗斯Gazprombank仍继续为入侵乌提供资金
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2276030/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16489123791.png)      图片来源：NPR
-据《亚洲新闻台》（Channel News Asia）4月1日报道，新加坡的Khoo Boo Kian医生因为去年11月25日在一个拥有206人的whatsapp聊天群里宣传伊维菌素可用于预防和治疗新冠病毒，而被新加坡医药理事会（SMC）勒令不得传播和转发有关伊维菌素可安全有效治疗新冠的信息，以及删除其在社交媒体上分享的有关伊维菌素的帖文。
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-02-下午11.27.40.png)图片来源：互联网
+乌克兰国防部主要情报局周五（4月1日）发布消息称俄罗斯银行Gazprombank仍然继续为俄对乌克兰的侵略提供资金。
 
-SMC 3月31日表示，在这些信息当中，Khoo Boo Kian医生推荐用伊维菌素治疗与预防新冠，同时鼓励群组里的参与者通过一个“未经批准的来源”在互联网上订购伊维菌素。新加坡卫生部指控这些信息是“未经证实的和具有误导性”，因为它在去年10月曾表示，在新加坡，伊维菌素属于处方药，只被批准用来治疗寄生虫感染，而且卫生科学局（The Ministry of Health，MOH）也并没有批准使用这款药物来预防或治疗新冠。
+消息说：”特别是，第 47 装甲师 (Mulino) 部队的无人机、军事装备部件和电子侦察设备正在通过俄罗斯的 Promsvyazbank 和 Gazprombank 采购。”
 
-官方任命了一个独立的投诉委员会调查此事。3月28日，临时停业令委员会（Interim Orders Committee）对Khoo的医生注册资格施加了18个月的条件或限制，或直至他的诉讼结束为止。SMC说：“Khoo在其医生执业证书被完全批准之前，不得向任何病人推荐、开具、供应或使用伊维菌素，也不能散播任何有关未经卫生科学局批准的药物、治疗产品或疫苗对于治疗或预防新冠的信息。”
+Gazprombank并未列入Swift黑名单，”3 月 12 日，Promsvyazbank 被列入与 SWIFT 系统断开连接的机构名单。至于 Gazprombank，只有英国对其实施制裁。这家银行是欧洲人支付俄罗斯能源供应的主要机构“，国防部主要情报局说。【1】
 
-Khoo Boo Kian是3月份第二位因推荐伊维菌素预防和治疗新冠而受罚的医生。此前，一位名叫Yang Ing Woei的医生被指控给新冠患者开具伊维菌素，因此执业资格受到限制。
+路透社3月2日报道，欧盟在3月12日将七家银行排除在Swift之外其中就包括Promsvyazbank，而最大俄罗斯银行Sberbank和Gazprombank 没有被列入名单，因为它们是俄罗斯石油和天然气的主要支付渠道。【2】
 
-新加坡是全世界新冠疫苗接种率最高的几个国家之一，但是正如无数事实和科学证据所表明的那样，这不仅无法遏制疫情，反而造成了更大的灾难。在此情况下，向病人和公众推荐和开具已被证明能安全有效预防和治疗新冠的伊维菌素的医生却被政府官方机构审查和惩戒，这是赤裸裸的迫害和大屠杀。尽管在全球范围内，伊维菌素和羟氯喹等药物已逐渐获得人们和政府的认可，但是推广范围远远不够，医疗暴政仍在继续，黑暗仍笼罩着世界。
+而美国财政部早在2月22日就对俄罗斯Promsvyazbank银行制裁，财政部将对几家为克里姆林宫和俄罗斯军方提供资金的金融机构制裁，其中就包括Promsvyazbank 及其子公司。这些制裁包括将冻结其在美国的资产，禁止美国个人和企业与其进行任何交易，排除其在全球金融体系之外，并其禁止获得美元。【3】
 
-*责编：白夜*
+参考消息：
 
-新闻来源：[Doctor allegedly made misleading claims, promoted use of ivermectin to treat and prevent COVID-19](https://www.channelnewsasia.com/singapore/doctor-khoo-boo-kian-restrictions-smc-ivermectin-treat-prevent-covid-19-misleading-claims-2601871)
+【1】[Gazprombank 并未与 SWIFT 断开连接，继续为对乌克兰的战争提供资金](https://gur.gov.ua/content/ne-vidkliuchenyi-vid-swift-hazprombank-prodovzhuie-finansuvaty-viinu-proty-ukrainy.html)
+
+【2】[解释者：俄罗斯银行被孤立，英国切断与莫斯科的保险关系](https://www.reuters.com/markets/europe/russian-banks-out-cold-eu-unveils-swift-sanctions-2022-03-02/)
+
+【3】[情况说明书：美国对俄罗斯  施加第一批迅速而沉重的代价](https://www.whitehouse.gov/briefing-room/statements-releases/2022/02/22/fact-sheet-united-states-imposes-first-tranche-of-swift-and-severe-costs-on-russia/)
+
+* * *
+
+*编辑&发布：长岛开心*
 
  
 

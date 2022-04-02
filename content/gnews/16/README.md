@@ -2,37 +2,28 @@
 ---
 
 
-## 【G时新闻】欧洲议长突访基辅 承诺支持乌克兰入欧
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2276089/)
+## 泽连斯基清除两名高级间谍
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2276186/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是欧洲议长突访基辅 承诺支持乌克兰入欧！
+作者： 日本东京方舟农场—Miyali7768(文玉）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间3月31日，据相关媒体报道，乌克兰总统泽连斯基当天晚间宣布清除两名高级间谍：安全局内部安全主要部门负责人奥列诺夫和安全局赫尔松地区办公室负责人奥列克山德罗维奇。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-02-下午12.23.38.png)
+泽连斯基在其后发表演讲时指出，这些高级军官不但背叛了自己的祖国，他们在保卫国家、自由以及独立方面也违反了对乌克兰人民效忠的军人誓言，因此，他们无可避免地被剥夺了高阶军衔。更甚者，泽连斯基怒斥其为叛徒，并强调称， 这些人都会逐渐受到惩罚。
 
-欧洲议会主席梅措拉（Roberta Metsola）周五（4月1日）突然访问基辅，与乌克兰总统泽连斯基（Volodymyr Zelenskyy）及国会议长会面，成为俄罗斯入侵乌克兰以来首位访乌的欧盟主要机构领袖。她承诺将全力支持乌克兰成为欧盟的入盟候选国，并为战后重建提供援助。
+此外，泽连斯基也表示，乌克兰军民自俄乌战争开始以来一直致力于团结抵御俄罗斯的入侵，但清除国内背叛势力而今也是政府的首要之务。
 
-梅措拉抵乌后，先后与乌克兰国会最高拉达议长斯特凡丘克（Ruslan Stefanchuk）、总理什米加尔（Denys Shmyhal）及总统泽连斯基（Volodymyr Zelenskyy）会面，并到最高拉达发表演说。
+参考链接：
+1.[烏克蘭局勢仍嚴峻 澤倫斯基稱兩高官為叛徒並開除](https://www.cna.com.tw/news/aopl/202204010033.aspx)
+2.[Zelensky strips two Ukrainian generals of their military rank: ‘All traitors will be punished’](https://www.independent.co.uk/news/world/europe/ukraine-generals-fired-zelensky-traitors-b2048779.html)
 
-梅措拉在演说中作出三项承诺，一是采取更多更严厉的制裁，将追究入侵者的负责；二是理解乌克兰的“欧洲梦”以及希望加入欧盟成为成员国的愿望，全力支持乌克兰实理这一目标；三是维持甚至加大目前向乌克兰提供的财政、军事和人道援助，并继续照顾被迫逃离家园的难民，直到可以安全回家的一天，并尽一切努力在战后协助乌克兰重建遭受侵略者攻击的城市和村庄。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-梅措拉指出，欧盟是一个和平项目，创建的目的就是要将欧洲国家的命运联系起来，以避免再次卷入两次世界大战的那种冲突。她强调“乌克兰就是欧洲”，欧洲议会、欧盟和欧洲人民都与乌克兰站在一起。
-
-另外，波兰、捷克和斯洛文尼亚三国的总理亦曾于上月前往基辅会见泽连斯基和什米哈尔。泽连斯基此前曾表示，希望乌克兰的所有朋友都能到访基辅。
-
-盖特链接：[https://gettr.com/post/p1369u2d107](https://gettr.com/post/p1369u2d107)
-
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+编辑：静言
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
