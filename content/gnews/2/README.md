@@ -2,27 +2,27 @@
 ---
 
 
-## 俄罗斯军队在切尔诺贝利电厂附近集结部队
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2274883/)
+## 俄军用磷弹轰击顿涅茨克地区 造成人员伤亡
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2274918/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-2.jpg)
 
 （图片来自原文）
 
-截至3月30日12时，乌克兰武装部队总参谋部关于俄罗斯入侵的报告表明，俄罗斯占领军正在切尔诺贝利核电站附近集结部队。
+顿涅茨克（Donetsk）地区军事管理局局长帕夫洛-基里连科（Pavlo Kirilenko）在电报上说，俄罗斯军队继续连夜炮击顿涅茨克（Donetsk）地区中部，在马林卡（Marinka）、克拉斯诺霍里夫卡（Krasnohorivka）和诺沃米哈伊夫卡（Novomykhailivka）地区，俄罗斯军队再次使用了磷弹，导致乌克兰百姓受伤。
 
-根据总参谋部的信息，俄罗斯军队可能已经暂停其封锁基辅的任务。
+据基里连科Kirilenko称，马林卡社区的11名受伤百姓被送往库拉霍夫斯卡（Kurakhivska）市医院，其中包括4名儿童。
 
-俄罗斯军队目前正在重新集结，以便集中精力在东线发动进攻。为此，俄军正在改善对顿涅茨克（Donetsk）和塔夫里亚（Tavriya）前线部队的物质和技术后勤支持。
+俄罗斯军队于3月31日上午炮击了奥切列季斯卡市（Ocheretynska），造成两人受伤。
 
-俄罗斯军队士兵士气低落，参与乌克兰的作战行动的积极性不高。
+基里连科补充说，饮用水和食物继续被运送到前线社区。百姓的疏散工作也在进行。
 
-根据现有信息，俄罗斯军事指挥部动员 “志愿者 “的尝试没有得到当地人的支持。例如，在加里宁格勒（Kaliningrad）地区只招募了17名所谓的 “志愿者”。
+地区军事管理局局长敦促所有发现自己在前线并依赖特定药品和医疗服务的人利用这个机会离开该地区。
 
-新闻来源链接：[https://www.pravda.com.ua/eng/news/2022/03/30/7335773/](https://www.pravda.com.ua/eng/news/2022/03/30/7335773/)
+新闻来源链接：[https://www.pravda.com.ua/eng/news/2022/03/31/7335995/](https://www.pravda.com.ua/eng/news/2022/03/31/7335995/)
 
-本文作者：Rebecca (一切心皆不可得！)
+本文作者：Rebecca (一切心皆不可得！) 
 上传排版：Hong
 
  

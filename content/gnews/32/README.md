@@ -2,33 +2,29 @@
 ---
 
 
-## 乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273695/)
+## 泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273731/)
 
-撰稿: 温哥华扬帆农场——動物農莊裡的小螞蟻Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
-3月30日，乌克兰内阁、乌克兰数字化转型部、乌克兰国家机构创业和出口促进办公室、乌克兰国家创业和出口发展项目、乌克兰经济部和乌克兰外交部，联合发起“不要赞助谋杀”的国际宣传运动，呼吁乌克兰境内和其它外国企业，以及任何公民个人，共同抵制俄罗斯和白俄罗斯的商品和服务，加速侵略国家经济的大规模衰退。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-140.png)
-内容包括：不要购买俄罗斯和白俄罗斯商品；拒绝与俄罗斯、白俄罗斯进一步合作；选择乌克兰和反对乌克兰战争国家的合作伙伴，以取代俄罗斯或白俄罗斯的合作伙伴等。
+撰稿: 纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-3.png)
+据国外媒体3月30日报导，在对挪威议会的讲话中，乌克兰总统泽连斯基呼吁欧盟和挪威禁止俄罗斯船只使用欧洲大陆的港口。他强调，只要俄罗斯封锁其他国家的港口，它就应该被禁止使用任何自由世界的港口，这是全球航行的自由和安全问题，而不是金钱问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-134.png)
+泽连斯基感谢挪威加入欧盟对俄罗斯的制裁，并强调，欧洲公司绝不能帮助俄罗斯的军事机器，这个机器已经杀死了数千个乌克兰人，摧毁了数十座城市。
 
-乌克兰的国际宣传行动并不是单独的行为，事实上，国际社会已经或正在以实际行动对其进行支持。俄乌战争开始以来，美国、欧盟以及亚洲多国已经对俄进行了多种方式的制裁。
+他坚信，制裁是唯一能够迫使俄罗斯寻求和平的手段，因此必须连续每周推出新的制裁方案。对俄罗斯的制裁越严厉，和平就会越早恢复。
 
-参考链接:
+另据报道，美国副国务卿谢尔曼在联合国安理会简报会上表示，俄罗斯海军在黑海地区拦截了90多艘为世界市场运送粮食的民用船只。
 
-[Ministry of Digital Transformation: Ukraine launches an international information campaign DO NOT sponsor murder to boycott russian and belarusian goods and companies abroad](https://www.kmu.gov.ua/en/news/mincifri-ukrayina-zapuskaye-mizhnarodnu-informacijnu-kampaniyu-do-not-sponsor-murder-z-bojkotuvannya-rosijskih-ta-biloruskih-tovariv-i-kompanij-za-kordonom)
+俄罗斯还在从博斯普鲁斯海峡到奥德萨的航线上布置了水雷，并污蔑说那些水雷是乌克兰的。乌克兰坚持要求俄罗斯对在黑海无节制地使用水雷滥杀无辜承担责任。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-6.jpg)
+参考链接: [Zelensky asks EU and Norway to close ports to Russian ships](https://menafn.com/1103939457/Zelensky-asks-EU-and-Norway-to-close-ports-to-Russian-ships&amp;source=138)
 
-编辑: Jack Li文阳
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编: 飞虹
+编辑/总编/审核:飞虹
 
-审核: Ivy001
-
-校对/发稿:浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
-
-
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
