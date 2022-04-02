@@ -2,33 +2,31 @@
 ---
 
 
-## 【G时新闻】欧盟警告中共国 不要支持克里姆林宫
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2276593/)
+## 有声|波兰将立法禁止俄罗斯煤炭进口
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2276643/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【悠然】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-在峰会上，欧盟再次警告中共国 不要支持俄罗斯规避西方制裁。欧盟委员会主席乌尔苏拉·冯德莱恩表示，“这将对中共国 在欧洲的形象造成重大损害”，并损害其与欧洲的经济关系。欧盟敦促中共国 为结束战争而努力。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间3月29日，波兰政府宣布即将颁发法律，禁止从俄罗斯进口煤炭，这一举措将开启欧盟先例。
 
-她补充说，在俄罗斯入侵乌克兰后，“我们明确表示，中共国至少不应干预”欧盟对莫斯科实施的制裁。 “商业部门正在密切关注事件并评估各国如何定位自己，”该委员会负责人警告说。 北京在冲突中的态度“当然会影响长期投资决策”。
+波兰政府表示，在一项对支持俄国的企业和个人进行资产冻结的新法律案中，加入禁止从俄国进口煤炭的条文。 预计最迟自五月底开始，停止从俄罗斯进口煤炭，并在今年底之前，停止输入俄石油，断绝对俄罗斯的能源依赖及经济关系。
 
-欧盟理事会主席查尔斯·米歇尔也警告经济后果：“我们非常希望中共国考虑到其国际声誉的重要性以及中欧经济关系的重要性。”
+俄罗斯入侵乌克兰，至今已经一个多月。 三月初，美国宣布停止从俄罗斯进口石油及天然气。25日，美国总统拜登和欧盟执行委员会主席范德赖恩公布了一项计划，美国今年将努力协助对欧洲供应额外的150亿立方公尺液化天然气，并确保乌克兰和欧盟的能源安全，为下一个冬天和往后的冬天做好准备。同时支持欧盟达成目标，终结对俄化石燃料的依赖。德国政府也表示，德国正大幅减少向俄罗斯购买能源，石油进口量将在6月减半，煤炭运输也将于今年秋季结束。
 
-冯德莱恩还敦促中共国政府与俄罗斯合作结束乌克兰战争。 “中共国对俄罗斯有影响力，因此我们希望中国承担起结束这场战争的责任。”
+但欧盟各会员国预计要到明年才能完全脱离对俄罗斯能源的依赖。波兰政府表示，波兰不能继续等待欧盟，将自行推动经济及能源的脱俄行动。这一立法将在欧盟成员国内开启摆脱俄罗斯能源供应的先河。
 
-盖特链接：[https://gettr.com/post/p134sqx28da](https://gettr.com/post/p134sqx28da)
+文字版原文：[波兰将立法禁止俄罗斯煤炭进口](https://gnews.org/zh-hans/2270824/)
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+音频处理：Fei797
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
