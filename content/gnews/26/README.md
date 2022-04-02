@@ -2,36 +2,39 @@
 ---
 
 
-## 澳大利亚-印度贸易协议将打开“最大的经济大门”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273638/)
+## 白宫表示 普京被下属欺骗
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273653/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏    
+撰稿：纽约磐石农场—在远方；纽约香草山教育部-Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-03-22-上午10.53.46.png)
+据外媒报道，3月30日，美国白宫通讯办公室主任贝丁菲尔德表示，普京的顾问及幕僚们由于害怕，并没有告诉他俄军糟糕的表现，以及俄罗斯经济受到国际制裁所引发的重大后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-130.png)
+普京目前已经察觉到自己被军方误导，导致他与军方高层的关系愈发紧张。
 
-翻译/编辑：小红帽
+英国情报机构“政府通讯总部”主任弗莱明称，有证据显示在乌克兰作战的俄罗斯士兵士气低落、缺乏武器、拒绝实行上级命令、破坏自己的装备，甚至还失误击落了一架俄军战机。而关于类似的真相，普京的顾问从来没有告诉过他，导致他对局势产生了严重误判。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/India-Australia.jpg)图片来源：PTI
+美国国防部发言人柯比表示，如果普京不知道俄乌战争的真实战况，就可能不会致力于通过和平谈判结束战争，而对于这些坏消息，没有人知道普京会如何对待。
+
+参考链接:
+
+[對前線戰況和制裁一無所知… 白宮：普廷已察覺被官員欺瞞](https://news.ltn.com.tw/news/world/breakingnews/3877901)
+
+[拒絕執行命令、意外擊落友機 英情報機構：俄軍已厭戰](https://news.ltn.com.tw/news/world/breakingnews/3877590)
 
 
-根据CNA4月2日报道，澳大利亚总理科特·莫里森表示，将于周六（4月2日）签署的与印度的贸易协定代表着“当今世界上最大的经济大门之一”。
 
-莫里森预计将在几天内举行大选，他一直渴望在竞选开始前获得这项贸易协议，因为他已经与印度进行了十年的谈判。
 
-联邦政府周五表示，澳大利亚-印度经济合作与贸易协定将由贸易部长丹·特汉和印度商工部长皮尤什·戈亚尔在一个虚拟仪式上签署，两国将继续努力达成全面自由贸易协定。
 
-莫里森在塔斯马尼亚对记者说，他和印度总理纳伦德拉·莫迪将见证这个虚拟仪式。
+> [Biden says Putin seems to be self-isolating](https://thehill.com/news/administration/3255482-biden-says-putin-seems-to-be-self-isolating/)
 
-莫里森政府正在寻求使出口市场多样化，减少澳大利亚对其最大贸易伙伴中共国的依赖，因为此前的外交争执导致中共对某些澳大利亚产品实施制裁。
 
-新闻来源：[Australia-India trade deal to open ‘biggest economic door’: Morrison](https://www.channelnewsasia.com/world/australia-india-trade-deal-open-biggest-economic-door-morrison-2603026)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-6.jpg)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+编辑/总编/审核: 飞虹
 
+校对/发稿: 浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

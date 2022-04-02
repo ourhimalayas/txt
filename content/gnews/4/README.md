@@ -2,28 +2,35 @@
 ---
 
 
-## 泽伦斯基：俄军在基辅外广埋地雷欲制造大灾难
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2273967/)
+## 红十字会再次前往马里乌波尔
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2274088/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-美联社报导，泽伦斯基在夜间影片演说中告诉全国民众：他们在整片土地埋下地雷，他们在民宅、设备，甚至在被杀的人遗体上埋地雷。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3593463-PH.jpg)图片来源：zelenskiy\_official IG
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/image-13.jpg)
 
-泽伦斯基呼吁居民在恢复正常生活之前耐心等待，直到确定地雷清除完毕、轰炸威胁过去。他警告，俄军在乌克兰东部重新部署，眼前还有硬仗要打。
 
-简评：大战之后人们的紧张情绪容易松懈，也就是这时候很容易出现问题，俄军耍阴招在基辅外埋地雷要得就是这效果。在乌克兰没有完全取胜前，未来还有硬仗要打，千万不要因为松懈而中招！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/OSIGBQGZBRPRXJVIKCFGIBMR7Q.jpg)
 
-新闻来源：[https://www.setn.com/News.aspx?NewsID=1094476](https://www.setn.com/News.aspx?NewsID=1094476)
 
-撰稿/发布：一叶知秋
+图片来源：路透社
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+周六，红十字会车队将再次尝试从被围困的马里乌波尔港撤离平民，因为俄罗斯军队似乎正在重新集结，准备在乌克兰东南部发动新的袭击。
+
+自俄罗斯入侵五周之初，马里乌波尔就被包围，一直是莫斯科在乌克兰东南部顿巴斯地区的主要目标。成千上万的人被困在食物和水的匮乏中。
+
+红十字国际委员会（红十字国际委员会）周五派出一个小组带领一支由大约 54 辆乌克兰公共汽车和其他私家车组成的车队离开该市，称条件无法继续行动。
+
+红十字国际委员会在一份声明中说：“他们将在周六再次尝试为平民的安全通行提供便利。”此前红十字会在 3 月初的一次疏散尝试失败了。
+
+俄罗斯和乌克兰已同意在战争期间建立人道主义走廊，这有助于疏散数千名平民。
+
+红十字国际委员会表示，其马里乌波尔行动得到了双方的批准，但关键的后勤工作仍在制定中。
+
+🔗 [https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/](https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/)
+
+编辑发表： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

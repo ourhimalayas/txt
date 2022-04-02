@@ -2,46 +2,21 @@
 ---
 
 
-## 开始了！BBC主持人在节目现场与骗子福奇对峙
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
+## 视频|俄乌战局最新信息汇总
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2273835/)
 
-翻译： Jenny Ball
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
+截至当地时间3月31日，在基辅西线，俄军部队继续撤到白俄罗斯，但继续炮击平民目标，包括使用集束弹对日托米尔地区的村庄进行轰炸。基辅州政府报告说，俄军目前主要目标是炮击乌克兰的燃料库，以扰乱乌克兰的物流并制造人道主义危机。基辅东线，俄军在过去24小时内没有在切尔尼戈夫和苏梅方向进行任何重大行动，但是俄军飞机在3月29日晚继续袭击该市的目标。
+俄军在哈尔科夫没有重大进展，但是继续炮击该市。在卢甘斯克州和顿涅茨克州，据乌克兰总参谋部报告说，乌军在过去24小时内击退了俄罗斯在该地区的四次攻击，并摧毁了7辆坦克、7辆装甲车和2辆其他车辆。俄罗斯女狙击手伊琳娜，曾狙杀至少40名乌克兰人，因受伤遭俄军遗弃后，被乌军俘虏。
+马里乌波尔被俄军继续攻占，但外界尚无法确认任何领土变化。俄军第150摩步师可能遭受大量伤亡。社交媒体上有人描述俄军在马里乌波尔使用温压弹。俄军在赫尔松周围没有进行任何进攻行动。反对俄军占领的抗议在赫尔松的霍拉·普利斯坦举行，人们要求释放被绑架的公民和市长。
+俄罗斯面临着持续的士气和供应问题，比如第26坦克团的志愿兵要求终止合同并转为驻军服役，第150摩托步枪师的人员从军事仓库接收到的是无法使用的装备。由于西方的制裁，俄罗斯的军事采购濒临失败。没有外国电子产品，俄罗斯也无法生产现代武器和设备。
 
+发稿：qiutian（邱甜）
 
-
-2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
-
-福奇博士说他被“误解了”。
-
-这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
-
-对合法的新闻服务有所了解一定不错。
-
-遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
-
-我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
-
-BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
-
-新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-审核：文乐     
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

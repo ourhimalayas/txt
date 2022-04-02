@@ -2,31 +2,37 @@
 ---
 
 
-## 樱花时政┃中共防疫极端媚外 洋人“丁丁”重于国人性命
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273972/)
+## 美国五角大楼：再给乌克兰提供额外3亿美元军援
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2274113/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-上海普通民众因为封城无法看病就医，而中共医疗系统却为一名在沪外籍人士的“阴茎异常勃起”忙得不亦乐乎。上海六院打赢了这场洋人“丁丁保卫战”，发布了一条官微，随即引发众怒。
+来自新加坡早报 /
+2022年4月2日 11:22 AM 报导
+采集：玫瑰新闻组
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-15.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-在中共极端防疫政策之下，上海普通民众因为封城无法就医，而中共医疗系统却为一名在沪外籍人士的“阴茎异常勃起”忙得不亦乐乎。上海六院打赢了这场洋人“丁丁保卫战”，发布了一条官微，随即引发众怒。 4月1日晚，上海第六人民医院在微信官方账号发了一篇《丁丁保卫战》的新闻，说隔离酒店有一位外籍患者，丁丁异常勃起50个小时，情况非常罕见。而且50个小时已经远远超过了丁丁异常勃起的最佳抢救时间，后期会不可避免地造成器质性勃起功能障碍，影响患者的终身健康。经过多位专家联合诊断，历经一个半小时，手术终于成功。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-148.png)
 
-当前，上海实行所谓“全域静默管理”，2400多万人都被封闭在家，因为医疗系统崩溃和资源不足，众多病人无法得到救治而死亡。而洋人的“丁丁”却让中共上海医疗系统高度重视，多位专家会诊，可见在中共眼里国人的性命不如洋人的“丁丁”重要。
 
-信息来源：[上海六院的“丁丁保卫战”推文，被骂不冤](https://www.163.com/dy/article/H3UVMGSC0528BOLG.html)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+![美国五角大楼发言人柯比说，连同新援助配套，美国拜登政府至今已为乌克兰提供超过23亿美元军援。（法新社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-04/us-pentagon-press-secretary-kirby-holds-a-briefing-201334.jpg?VersionId=rxZuvbNCYv6OtKCmDoxuC45iIUOowyyg&amp;itok=1ln808_K)美国五角大楼发言人柯比说，连同新援助配套，美国拜登政府至今已为乌克兰提供超过23亿美元军援。（法新社）
+
+
+美国五角大楼宣布，美政府将向乌克兰额外提供3亿美元（约4亿新元）军援。
+
+综合美国有线电视新闻网（CNN）和法新社报道，五角大楼发言人柯比在声明中说，连同新援助配套，美国拜登政府至今已为乌克兰提供超过23亿美元军援。
+
+新军援配套包括激光指引火箭系统、弹簧刀（Switchblade）无人机、装甲车、夜视器械、弹药和医药物资等。
+
+柯比说：“这项决定凸显美国坚定不移地确保乌克兰主权和领土完整，并支持他们奋力抵抗俄罗斯的入侵。”
+
+乌克兰向美国和欧盟要求提供更先进武器，催生上述援助配套。这与之前美国总统拜登承诺的军援配套有所不同，不是经由美国国防部将库存转让给乌克兰，而是在乌克兰安全援助计划下，直接向五角大楼国防合作伙伴购买。
+
+新闻链接：
+[五角大楼：美国再给乌克兰提供3亿美元军援](https://www.zaobao.com.sg/realtime/world/story20220402-1258614)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

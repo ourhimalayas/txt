@@ -2,72 +2,31 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.02B）——接种疫苗胸痛、月经不正常
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273870/)
+## 樱花时政┃中共防疫极端媚外 洋人“丁丁”重于国人性命
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273972/)
 
-整理/编辑：文泓
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海普通民众因为封城无法看病就医，而中共医疗系统却为一名在沪外籍人士的“阴茎异常勃起”忙得不亦乐乎。上海六院打赢了这场洋人“丁丁保卫战”，发布了一条官微，随即引发众怒。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-94.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-15.png)
 
+在中共极端防疫政策之下，上海普通民众因为封城无法就医，而中共医疗系统却为一名在沪外籍人士的“阴茎异常勃起”忙得不亦乐乎。上海六院打赢了这场洋人“丁丁保卫战”，发布了一条官微，随即引发众怒。 4月1日晚，上海第六人民医院在微信官方账号发了一篇《丁丁保卫战》的新闻，说隔离酒店有一位外籍患者，丁丁异常勃起50个小时，情况非常罕见。而且50个小时已经远远超过了丁丁异常勃起的最佳抢救时间，后期会不可避免地造成器质性勃起功能障碍，影响患者的终身健康。经过多位专家联合诊断，历经一个半小时，手术终于成功。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-148.png)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+当前，上海实行所谓“全域静默管理”，2400多万人都被封闭在家，因为医疗系统崩溃和资源不足，众多病人无法得到救治而死亡。而洋人的“丁丁”却让中共上海医疗系统高度重视，多位专家会诊，可见在中共眼里国人的性命不如洋人的“丁丁”重要。
 
-博主：一个粘豆包
+信息来源：[上海六院的“丁丁保卫战”推文，被骂不冤](https://www.163.com/dy/article/H3UVMGSC0528BOLG.html)
 
-2022年4月1日，真的不想再打新冠疫苗了……
-
-加强针已打完，第一针、第二针打完大姨妈（持续）来了半个月，加强针打完到现在天天心脏疼，心累。
-
-[小红薯yin1335](https://www.xiaohongshu.com/user/profile/5b1eb1c611be102fe4ea7bd6)评论：
-
-有些打了就是不行
-
-**博主回复：**
-
-确实有些人体质是不适合的。
-
-[**清凉山桃桃子**](https://www.xiaohongshu.com/user/profile/59bd4d466a6a6922e8458d60)**评论：**
-
-我先天心脏不好，打了三针也没有心脏疼啊，不要想太多……该吃吃该喝喝遇事别往心里搁。
-
-**博主回复：**
-
-可能是我体质不太适合。
-
-**TiAmo****评论：**
-
-心脏不好也分好多种，只不过你比较幸运
-
-[**爱与浪漫不可辜负**](https://www.xiaohongshu.com/user/profile/5ca1f1da000000001002a367)**评论：**
-
-我也不打了，如果有第四针、第五针的话，除非必要，我真的不会打了，太难受了。
-
-**博主回复：**
-
-我也真的挺难受。
-
-[**lala**](https://www.xiaohongshu.com/user/profile/5d777bc30000000001018095)**评论：**
-
-我打完第二针开始出现免疫系统疾病的症状，被学校天天催只能忍着又打了加强针。
-
-博主回复：
-
-我觉得出现免疫系统症状最好还是咨询一下医生，安全第一，毕竟打疫苗也是为了健康。
-
-Lala评论：
-
-没办法，我的血液指标只有一点异常，医生叫继续观察，不打疫苗，学校要求开疾病（豁免）证明。
-
-参考链接：[真的不想再打新冠疫苗了](https://www.xiaohongshu.com/discovery/item/6246e1ac000000002103658f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648865617)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
