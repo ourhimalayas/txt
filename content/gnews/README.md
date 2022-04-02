@@ -15,40 +15,40 @@
 
 ---
 
-### [中共于3月31日派出11架军机扰台](/content/gnews/1/README.md)
+### [4/2/2022 文贵盖特：中共隔三差五会花钱雇所谓严肃媒体来污蔑我们，那又怎样？中共给咱们做的“广告“比咱自己说自己有效多了](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/2/2022 文贵盖特：文贵要参加很多关于新中国联邦和国际合作的会；中共病毒的危害以及中共的疯狂与邪恶将让中国人付出巨大的代价，只有灭共才能解决世界上所有的问题](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [特鲁多政府雇佣“网红”鼓动民众打疫苗](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|81岁老人徒步逃离战乱 新中国联邦送温暖](/content/gnews/2/README.md)
+### [中共于3月31日派出11架军机扰台](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [有声|81岁老人徒步逃离战乱 新中国联邦送温暖](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [年年打虎虎更多，中共体制无可救药](/content/gnews/3/README.md)
+### [年年打虎虎更多，中共体制无可救药](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|盖特严肃对待俄罗斯信息，确保用户言论自由](/content/gnews/4/README.md)
+### [有声|盖特严肃对待俄罗斯信息，确保用户言论自由](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [专家称安大略进入第六波冠状病毒期](/content/gnews/5/README.md)
+### [专家称安大略进入第六波冠状病毒期](/content/gnews/8/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【信仰之声】 从乌合之众到国会议员](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [有声|谈“弃掉知识”](/content/gnews/7/README.md)
+### [有声|谈“弃掉知识”](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [DC每日热点0402](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [观察：俄罗斯被掏肛模式开启了！](/content/gnews/9/README.md)
+### [俄乌战争的“没想到”之一](/content/gnews/10/README.md)
  ` 蓝莲花农场`
 
-### [有声|欧盟投票监测加密货币交易——生态系统有哪些风险？](/content/gnews/10/README.md)
- ` MOSREC`
+### [观察：俄罗斯被掏肛模式开启了！](/content/gnews/11/README.md)
+ ` 蓝莲花农场`
 
-### [有声|Lugh 的欧元稳定币现在可以在钱包之间转移](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [有声|联合国任命挪威法官率众调查俄在乌战争罪行](/content/gnews/12/README.md)
+### [有声|欧盟投票监测加密货币交易——生态系统有哪些风险？](/content/gnews/12/README.md)
  ` MOSREC`
 
 ### [监督机构发现，美国国立卫生研究院（NIH）删除了武汉病毒实验室关于新冠肺炎基因测序的信息](/content/gnews/13/README.md)

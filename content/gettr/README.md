@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 9:48 PM (UTC)`
+
+The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iron birds, how are children's once hopeful eyes filled with despair.<br/><br/>Train stations are crowded with farewells, and lovers who’ve vowed to grow old together are waving possible last goodbyes.<br/><br/>While Kiev was shrouded in fear, the people of the NFSC gathered together to bring love, peace, joy, and faith back to earth.<br/><br/>NFSC’s white tent at Medyka is a beacon of light in the darkness. Himalaya’s way, the hope of humanity.<br/><br/>《梅迪卡的白色帐篷》<br/><br/>这天空怎么就突然布满了黑色铁鸟，孩子的眼中怎么那么迷茫。<br/><br/>车站到处都是最后的告别，情侣道出了再见，可能再也不见了。<br/><br/>基辅的空气只有恐惧笼罩，此时新中国联邦人聚集在一起，把美好，爱，温暖，和平，快乐，信仰重新带到人间。<br/><br/>新中国联邦的帐篷一定会唤醒人间的正义！
+![img](https://media.gettr.com/group26/origin/2022/04/02/21/eb9c146b-c3a5-5828-4342-c566fadb8bbd/out.jpg)
+
+---
+
+`@miles 4/2/2022 9:44 PM (UTC)`
+
+【Ukraine Rescue】Nicole interviewed Mr. Roger, who drove one day from Italy to deliver the relief supplies. Roger thought we should help the Ukrainian people and thanked volunteers from the New Federal State of China for what they have done<br/>【乌克兰救援】Nicole采访了从意大利开了一天的车过来送救援物资的Roger先生, Roger认为我们应该帮助乌克兰人民，同时感谢新中国联邦的志愿者所做的一切
+![img](https://media.gettr.com/group19/origin/2022/04/02/21/e8c96eec-e4fb-6238-363c-5300bcb8e4e2/out.jpg)
+
+---
+
 `@miles 4/2/2022 9:15 PM (UTC)`
 
 4/2/2022 Miles Guo’s GETTR: Every once in a while, the CCP would hire the so-called “mainstream” media to smear us. So what? The CCP’s "advertisements" for us are much more effective in letting people know about who we really are than our own words!<br/><br/>4/2/2022 文贵盖特：中共隔三差五会花钱雇所谓严肃媒体来污蔑我们，那又怎样？中共给咱们做的“广告“比咱自己说自己有效多了！<br/><br/>
@@ -140,20 +154,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 
 ![img](https://media.gettr.com/group5/origin/2022/04/02/03/9e3eeb85-c0ce-2fb8-db38-d707676f00f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 3:04 AM (UTC)`
-
-【Ukraine Rescue】03/31/2022  New Federal State of China fellow fighter Xiao Xiao Su:  A western lady I met on set of NFSC Ukraine Rescue Operation told him how much she loves Chinese food and Chinese landscape.  In response, I told her that she would be able to freely visit Beijing after the year 2025, because we believe the CCP would cease to exist by then.<br/><br/><br/>【乌克兰救援】03/31/2022 新中国联邦战友小小酥：在乌克兰救援前线的一位西人女士说她喜欢中国的美食和风景。我们对她说 2025年以后就可以继续去北京玩。我们认为中共到那个时候将被消灭。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group46/getter/2022/04/02/03/4e90fe15-9cf3-9879-2f88-c86538f8f637/out.jpg)
-
----
-
-`@miles 4/2/2022 2:58 AM (UTC)`
-
-【Ukraine Rescue】04/01/2022 Nicole, a volunteer of the NFSC & ROLF, said that the rescue team is making better preparations than before to receive more refugees at any time who are likely to flee Ukraine. Miles Guo has long since reminded us that we will not withdraw our rescue team.<br/><br/>【乌克兰救援】04/01/2022 新中国联邦和法治基金义工妮可介绍说新中国联邦和法治基金救援团队正在做着更好的准备，随时去迎接更多有可能要逃离乌克兰的难民。郭文贵先生早就提醒到大家，我们这个点是不能撤的。<br/>
-![img](https://media.gettr.com/group50/getter/2022/04/02/02/68d9265d-1396-2cf6-08f0-080f4192546a/out.jpg)
 
 ---
 

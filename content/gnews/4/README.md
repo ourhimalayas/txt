@@ -2,29 +2,30 @@
 ---
 
 
-## 有声|盖特严肃对待俄罗斯信息，确保用户言论自由
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2276785/)
+## 中共于3月31日派出11架军机扰台
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2276819/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月29日，在接受福克斯节目的采访中，盖特CEO杰森·米勒先生抨击推特制定双重标准，允许普京等独裁者使用推特表达观点，却对川普总统、塔克·卡尔森等账号进行封锁和审查。
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+台湾《英文新闻》3月31日报导，本周四共有11架中共军机进入台湾防空识别区（ADIZ），这是本月第17次入侵行为。其中，两架轰6进入台湾南部防空识别区西南角和东南角，一架空警-500、四架歼-10战斗机和四架歼-16战斗机飞入西南角。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-194.png)
+自2020年9月以来，中共解放军对台发起了一场“灰色地带”战术，经常派军机进入台湾防空识别区，大部分发生在西南角。2021年，239天内共有961架次中共军机进入台湾防空识别区。灰色地带战术的手段主要是运用“准军事”手段，在不直接诉诸武力的情况下，让对手筋疲力尽，借由对手内部压力改变现状，进而实现自己的目标。
 
-关于俄罗斯大外宣，米勒先生表示，盖特严肃对待有关俄罗斯的信息，而鉴于俄罗斯政府在盖特平台上使用机器人推送信息，盖特决定全面屏蔽俄罗斯。他还表示，盖特遵循当地国家的相关法律法规，并密切关注、删除违反平台规定的行为和信息，确保用户的言论自由。
+另外，美菲两国28日在靠近台湾的菲律宾北部海域进行的大规模联合演习，为30年来罕见，更是挑动中共敏感神经。中共继30日派3架军机扰台后，31日又派出11架军机。文贵先生曾多次预警，习近平一定会攻打台湾，台湾人民一定要保持警惕！
 
-文字版原文：[盖特严肃对待俄罗斯信息，确保用户言论自由](https://gnews.org/zh-hans/2267981/)
+原文连结：[https://www.taiwannews.com.tw/en/news/4492681](https://www.taiwannews.com.tw/en/news/4492681)
 
-音频处理：Fei797
-发稿：Fei797
+编辑/上传 – 文永
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
