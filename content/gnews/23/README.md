@@ -2,28 +2,48 @@
 ---
 
 
-## 泽连斯基清除两名高级间谍
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2276186/)
+## 被制裁的寡头正在努力支付账单，不确定是否能雇用清洁工或司机
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2276200/)
 
-作者： 日本东京方舟农场—Miyali7768(文玉）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间3月31日，据相关媒体报道，乌克兰总统泽连斯基当天晚间宣布清除两名高级间谍：安全局内部安全主要部门负责人奥列诺夫和安全局赫尔松地区办公室负责人奥列克山德罗维奇。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-02-下午12.23.38.png)
-泽连斯基在其后发表演讲时指出，这些高级军官不但背叛了自己的祖国，他们在保卫国家、自由以及独立方面也违反了对乌克兰人民效忠的军人誓言，因此，他们无可避免地被剥夺了高阶军衔。更甚者，泽连斯基怒斥其为叛徒，并强调称， 这些人都会逐渐受到惩罚。
+据《www.businessinsider.com》作者：Charlie McCarthy，2022年3月25日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-187-e1648917558832.png)俄罗斯寡头彼得-阿文，据彭博社估计，其财富为56亿美元。
+图片来源：Valery Sharifulin/TASS 通过 Getty 图片
+被制裁的俄罗斯寡头彼得-阿文（Petr Aven）接受了《金融时报》的采访，他的身价估计为56亿美元。
 
-此外，泽连斯基也表示，乌克兰军民自俄乌战争开始以来一直致力于团结抵御俄罗斯的入侵，但清除国内背叛势力而今也是政府的首要之务。
+在采访中，他表示，他正在努力支付账单，并且不确定是否能够雇用一名清洁工或司机。
 
-参考链接：
-1.[烏克蘭局勢仍嚴峻 澤倫斯基稱兩高官為叛徒並開除](https://www.cna.com.tw/news/aopl/202204010033.aspx)
-2.[Zelensky strips two Ukrainian generals of their military rank: ‘All traitors will be punished’](https://www.independent.co.uk/news/world/europe/ukraine-generals-fired-zelensky-traitors-b2048779.html)
+阿文于2月28日被欧盟制裁，并被称为“弗拉基米尔-普京最亲密的寡头之一”。外交大臣莉兹-特拉斯当时说，他也在3月15日被英国制裁，因为他是俄罗斯入侵乌克兰的同谋。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+3月初，阿文从他与另一位受制裁的俄罗斯寡头米哈伊尔-弗里德曼共同创办的价值220亿美元的投资公司LetterOne中辞职。据报道，这两位亿万富翁还在欧盟制裁他们的几天后辞去了俄罗斯银行公司阿尔法银行的董事职务。
 
-编辑：静言
-总编：Irene木木
-审核：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+制裁意味着阿文的资产被冻结，他被禁止在欧盟和英国做生意和旅行。
+
+他告诉《金融时报》，“我们的业务被完全摧毁了。我们30年来所建立的一切，现在完全被毁了。我们必须以某种方式开始新的生活”。
+
+阿文说，他的妻子在欧盟制裁开始前，到伦敦的提款机上尽可能多地取钱。
+
+这位亿万富翁告诉《金融时报》，对俄罗斯寡头的制裁是“可以理解的”，但“不公平”，并补充，“当人们死亡时，我不会抱怨”。
+
+阿文说，他没有游艇或私人飞机，这可能会受到制裁。
+
+其他俄罗斯寡头在被制裁后似乎也有游艇和飞机被扣押。其中有一艘价值7500万美元的超级游艇与Dmitry Pumpyansky有关，还有一艘价值1.2亿美元的游艇与Igor Sechin有关。
+
+原文连接：[https://www.businessinsider.com/sanctioned-russian-oligarch-billionaire-petr-aven-cleaner-driver-ukraine-war-2022-3](https://www.businessinsider.com/sanctioned-russian-oligarch-billionaire-petr-aven-cleaner-driver-ukraine-war-2022-3)
+
+翻译：洛杉矶盘古农场 – TrueSky
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – WenXiong
+
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

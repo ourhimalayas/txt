@@ -2,36 +2,33 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月2日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2276546/)
+## 【G时新闻】欧盟警告中共国 不要支持克里姆林宫
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2276593/)
 
-作者：香草山翻译部
+##### 播  报：加拿大温哥华扬帆农场 -【悠然】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+在峰会上，欧盟再次警告中共国 不要支持俄罗斯规避西方制裁。欧盟委员会主席乌尔苏拉·冯德莱恩表示，“这将对中共国 在欧洲的形象造成重大损害”，并损害其与欧洲的经济关系。欧盟敦促中共国 为结束战争而努力。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123.png)
+她补充说，在俄罗斯入侵乌克兰后，“我们明确表示，中共国至少不应干预”欧盟对莫斯科实施的制裁。 “商业部门正在密切关注事件并评估各国如何定位自己，”该委员会负责人警告说。 北京在冲突中的态度“当然会影响长期投资决策”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1.png)
+欧盟理事会主席查尔斯·米歇尔也警告经济后果：“我们非常希望中共国考虑到其国际声誉的重要性以及中欧经济关系的重要性。”
 
-文章仅代表作者本人观点，与Gnews无关
+冯德莱恩还敦促中共国政府与俄罗斯合作结束乌克兰战争。 “中共国对俄罗斯有影响力，因此我们希望中国承担起结束这场战争的责任。”
 
-视频参看：
-[2022.04.02早 《NFSC新闻》](https://www.gettr.com/streaming/p137l8p7cac)
-[2022.04.02早《NFSC新闻访谈》](https://gettr.com/streaming/p1372ht15e7)
+盖特链接：[https://gettr.com/post/p134sqx28da](https://gettr.com/post/p134sqx28da)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-2.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
