@@ -2,33 +2,48 @@
 ---
 
 
-## 中共暗中操控媒体网红 为其进行宣传
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2274843/)
+## COVID-19疫苗副作用集萃（2022.4.2）——打辉瑞疫苗后高烧不退
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275068/)
 
-作者：银河系农场 – 骄子
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月30日，美国一家媒体发布一项调查结果，表明中共操控美国社交平台的影响力在不断增长，数十名中共官方媒体记者冒充社交媒体达人，极力逢迎中共的立场。
+##### 整理：gardeniahu
+编辑：伏而起之
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/121.jpg)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-这些活跃在社交媒体网络的大网红们，通常告诉自己的跟随者，自己独立完成了内容创作，包括影片和图片拍摄，文字编辑。其实背后是中共团队的精心策划，以此来增加中共的影响力。这些大网红分布在不同的领域，有生活类、美食类、旅游类、时尚类等。话题内容涉及俄乌战争、北京冬奥会等，他们极力向用户传达对中共有利的虚假信息。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-他们分布在多个社交媒体平台，如Facebook、TiKTok、Instagram、YouTube、Twitter等。一些平台使用了非常先进的AI识别功能提醒用户，注意此类账号为国家级宣传账号，但并不是每个平台都会标注这类标签。
+**Kayla****：****老公打了辉瑞疫苗后高烧不退**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)图片来源：雅典娜设计组
+2022年4月2日，一位名叫Kayla的“小红薯”发贴：大家打第三针疫苗了吗？来救救孩子吧。
 
-CGTN作为中共的海外大外宣媒体，包装了一部分类似的社交媒体网红，包括俗称“洋五毛”的所谓达人，并且和路透社、CNN、美联社等合作。中共领事馆也向一些美国公司如Vippi Media付款，来提升其在美国社交媒体的影响力。
+问一下大家打辉瑞的都打第三针了吗？副作用大吗？
 
-参考链接：
+看了我老公打辉瑞booster之后几天的反应，吓得我不敢打了……高烧不退，在床上躺了三天，直接起不来床。
 
-- [Hundreds of China’s top TikTok and Instagram influencers are actually state-affiliated — and they’re pushing Beijing’s propaganda](https://www.insider.com/chinas-tiktok-facebook-influencers-push-state-propaganda-2022-3)
+感觉真得了新冠可能也不过如此？有没有得过新冠的人来现身说法一下啊？
 
+另外我打完第二针腋下长了一个鸡蛋大的包，24小时疼，一两个月才消……我真的害怕了，救救孩子吧，我到底要不要打第三针啊？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+**贴子很快得到60多条评论，特选几条评论：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-28.jpg)小红书
+**小胖子**：我也打过两针，但是不准备打了。病毒变异太快了。还是从增强自身免疫力入手，加上勤戴口罩。
 
-总编：飞虹
-编辑：静言
-审核：Ivy001
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**腰不好的蓬蓬 ：**推荐你打的都是自己没什么特别大的不良反应，疫苗看个人体质，我朋友三针都是一丁点反应都没有，我第一针就直接120拖去医院了，而且医院不认这是不良反应，说我是装的，自己斟酌吧。
+
+**楚楚：**别打了，也别问什么医生，医生都会让你打的，他们自己都被强迫打了。
+
+**sara****在荷兰：**可以看一下辉瑞副作用报告。
+
+参考链接：[大家打第三针疫苗了吗？来救救孩子吧555555](https://www.xiaohongshu.com/discovery/item/6247392d00000000210377e0?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648866275)
+
+*发布：Mttfly*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

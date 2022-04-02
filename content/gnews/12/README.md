@@ -2,33 +2,38 @@
 ---
 
 
-## 中共三大航空公司亏损严重
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2274844/)
+## 有声|联合国向乌克兰提供紧急食品援助
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2275078/)
 
-作者：纽约香草山 – 侠肝义胆
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒3月30日报道，中共三大航空公司——国际航空、南方航空、东方航空——近两年连续亏损。近日发布的年度报告显示，三大航空公司2021年亏损额均超过百亿，较上年同期进一步放大。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/120-scaled.jpg)
-总部位于上海的中共东方航空公司，净亏损从2020年的118亿增加到2021年的122亿。上周该公司一架波音飞机坠毁，又导致面临严格监管审查，和二百多架飞机被停飞的严重后果。
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+3月30日，联合国世界粮食计划署 ​​WFP表示， 正在向乌克兰最脆弱的人群提供应急食品。WFP警示，目前乌克兰境内有超过650万人流离失所，忍饥挨饿。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7.jpeg)
+尽管存在安全方面的问题，但WFP已经建立了能够向有需要的社区大规模提供粮食的系统。在这次行动中，WFP向哈尔科夫市的家庭提供了 33万条新鲜出炉的面包，向利沃夫的无家可归的人士提供了现金援助，还通过两个机构间人道主义车队把应急食品运往苏梅和哈尔科夫的冲突地区。
 
-总部位于北京的国际航空公司，2021年第四季度净亏损已达到63.2亿元，全年净亏损为166亿元。
-
-南方航空公司公布的2021年全年亏损为121亿元。
-
-外媒认为，三大航空公司严重亏损的原因在于，中共严酷的疫情封锁重创了国内的旅游市场，造成各航空公司每天有超过2/3的计划航班被迫取消；另外，俄乌战争导致的航空燃油价格爆涨，也增加了航空公司的燃油成本。
-
-参考链接：
-
-- [Reuters 03月30日报道【因推动消灭 COVID，2021 年中国顶级航空公司的亏损更大】](https://gettr.com/post/p12rxe350cd)
-- [行业遭遇前所未有打击 三大航空公司巨亏超400亿！曙光何时到来？](https://finance.eastmoney.com/a/202204012330913629.html?qrqm=tjyd)
+WFP预计未来几天还会有更多的食物送抵乌克兰，同时表示仍有5.9 亿美元的资金缺口来帮助在乌克兰境内迁移的难民。据粮食计划署执行主任比斯利在29日的简报中称，自俄乌冲突爆发以来，全球食品价格急剧上涨，已经达到历史最高水平。食品价格上涨进一步限制了数百万人获得食品的机会。他呼吁各国关注乌克兰难民面临的粮食危机，并提供更多的资助。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-总编/编辑：飞虹
-审核：宁文静
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文字版原文：[联合国向乌克兰提供紧急食品援助](https://gnews.org/zh-hans/2270806/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

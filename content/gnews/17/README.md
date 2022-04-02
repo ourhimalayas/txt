@@ -2,25 +2,33 @@
 ---
 
 
-## 视频|英国制裁俄罗斯官方媒体机构和个人
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2274822/)
+## 中共暗中操控媒体网红 为其进行宣传
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2274843/)
 
-制作：香草山视频部
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月30日，美国一家媒体发布一项调查结果，表明中共操控美国社交平台的影响力在不断增长，数十名中共官方媒体记者冒充社交媒体达人，极力逢迎中共的立场。
 
-据外媒报导，3月31日，英国外交大臣利兹·特拉斯宣布，英国政府对14个俄罗斯官方媒体机构及其相关个人实施制裁，这些媒体和个人为普京非法入侵乌克兰大量散布谎言和欺骗性言论。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/121.jpg)
 
-这14个机构和个人包括：被称为“马里乌波尔屠夫”的俄罗斯国防指挥和控制中心负责人米哈伊尔·米津采夫上将，克里姆林宫资助的新报电视台、由俄罗斯政府控制和经营的罗西娅·塞戈德尼亚媒体集团，俄罗斯国有罗西娅电视台的著名主持人谢尔盖·布里列夫，俄罗斯天然气工业股份公司媒体的首席执行官亚历山大·扎罗夫，今日俄罗斯常务董事和俄罗斯国际新闻发展协会联合创始人阿列克谢·尼科洛夫，俄罗斯卫星通讯社主编安东·阿尼西莫夫等。
+这些活跃在社交媒体网络的大网红们，通常告诉自己的跟随者，自己独立完成了内容创作，包括影片和图片拍摄，文字编辑。其实背后是中共团队的精心策划，以此来增加中共的影响力。这些大网红分布在不同的领域，有生活类、美食类、旅游类、时尚类等。话题内容涉及俄乌战争、北京冬奥会等，他们极力向用户传达对中共有利的虚假信息。
 
-特拉斯在声明中表示，普京对乌克兰的战争是建立在大量谎言之上的。英国正在通过揭露克里姆林宫的错误信息来帮助世界，这一系列最新的制裁措施打击了那些传播普京的假新闻和假叙事的无耻宣传者。
+他们分布在多个社交媒体平台，如Facebook、TiKTok、Instagram、YouTube、Twitter等。一些平台使用了非常先进的AI识别功能提醒用户，注意此类账号为国家级宣传账号，但并不是每个平台都会标注这类标签。
 
-英国的制裁意味着，被制裁者不能获取在英国持有的资产或资金，不能与英国公民或公司做生意，不能前往或离开英国。
+CGTN作为中共的海外大外宣媒体，包装了一部分类似的社交媒体网红，包括俗称“洋五毛”的所谓达人，并且和路透社、CNN、美联社等合作。中共领事馆也向一些美国公司如Vippi Media付款，来提升其在美国社交媒体的影响力。
 
-发稿：Daxia
+参考链接：
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+- [Hundreds of China’s top TikTok and Instagram influencers are actually state-affiliated — and they’re pushing Beijing’s propaganda](https://www.insider.com/chinas-tiktok-facebook-influencers-push-state-propaganda-2022-3)
 
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+
+总编：飞虹
+编辑：静言
+审核：Ivy001
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

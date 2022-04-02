@@ -2,28 +2,46 @@
 ---
 
 
-## 美国协助盟国向乌克兰转交苏制坦克
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2273781/)
+## 开始了！BBC主持人在节目现场与骗子福奇对峙
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
 
-**撰稿：日本东京方舟农场  北极**
+翻译： Jenny Ball
 
-据纽约时报4月1日报道，一名美国官员周五表示，拜登政府将与盟国合作，向乌克兰转交前苏联制造的坦克，以加强乌克兰在该国东部顿巴斯地区的防御。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-12.png)苏联制造的坦克将使乌克兰能够对顿巴斯东部地区的俄罗斯目标进行远程炮击。（图片来自纽约时报）
 
-这位官员表示，此举是为了回应乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）的要求。这是美国在俄乌战争中首次帮助转移坦克，这批前苏联制造的坦克更方便乌克兰军队驾驶。这位要求匿名的官员透露，转移将很快开始，但拒绝透露坦克数量和来源。
 
-泽伦斯基上周日呼吁北约盟国提供坦克和飞机。上周六拜登总统在波兰同乌克兰高级官员见面后，泽伦斯基表示战场上特别需要坦克。
+2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
 
-俄乌战争爆发后，拜登政府向乌克兰提供的武器大多是小型易于携带的防御性武器。但随着战争局面的变化，乌克兰地面部队已经转守为攻，迫切需要坦克这种具有远程炮击能力的装备。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
 
-坦克的到来标志着战争进入了新阶段。本周早些时候，俄罗斯官员宣称，俄军重新集中在乌克兰东部。五角大楼官员也指出，俄罗斯军队将战斗重心转向顿巴斯，而不是占领首都基辅。
+福奇博士说他被“误解了”。
 
-参考链接：
-[https://reurl.cc/7eg2rd](https://reurl.cc/7eg2rd)
+这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
 
-总编：老孙
-校对发布：爱放飞
+对合法的新闻服务有所了解一定不错。
+
+遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
+
+我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
+
+BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
+
+新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+审核：文乐     
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 
