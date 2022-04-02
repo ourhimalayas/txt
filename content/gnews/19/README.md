@@ -2,29 +2,48 @@
 ---
 
 
-## 泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273731/)
+## 转我前世轮回
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273757/)
 
-撰稿: 纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-3.png)
-据国外媒体3月30日报导，在对挪威议会的讲话中，乌克兰总统泽连斯基呼吁欧盟和挪威禁止俄罗斯船只使用欧洲大陆的港口。他强调，只要俄罗斯封锁其他国家的港口，它就应该被禁止使用任何自由世界的港口，这是全球航行的自由和安全问题，而不是金钱问题。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-134.png)
-泽连斯基感谢挪威加入欧盟对俄罗斯的制裁，并强调，欧洲公司绝不能帮助俄罗斯的军事机器，这个机器已经杀死了数千个乌克兰人，摧毁了数十座城市。
+**作者：**禄森
+**视频剪辑：**禄森
+**编辑：**翼族
 
-他坚信，制裁是唯一能够迫使俄罗斯寻求和平的手段，因此必须连续每周推出新的制裁方案。对俄罗斯的制裁越严厉，和平就会越早恢复。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_2022-04-02_19-02-17.jpg)摄影：禄森
 
-另据报道，美国副国务卿谢尔曼在联合国安理会简报会上表示，俄罗斯海军在黑海地区拦截了90多艘为世界市场运送粮食的民用船只。
 
-俄罗斯还在从博斯普鲁斯海峡到奥德萨的航线上布置了水雷，并污蔑说那些水雷是乌克兰的。乌克兰坚持要求俄罗斯对在黑海无节制地使用水雷滥杀无辜承担责任。
+这一世，
+我转山转水转佛塔，
+不为修来世，
+只为途中与你相见。
 
-参考链接: [Zelensky asks EU and Norway to close ports to Russian ships](https://menafn.com/1103939457/Zelensky-asks-EU-and-Norway-to-close-ports-to-Russian-ships&amp;source=138)
+这一刻，
+我升起了风马旗，
+砌起了玛尼堆，
+隆达撒向天空。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+此时的卫藏白雪茫茫，
+牧区的藏民与孩子是否安康？
+我牵挂着的阿佳，
+是否喝上了热腾腾的酥油茶？
 
-编辑/总编/审核:飞虹
+峰连峰，措在措，
+满怀热爱，奔赴山海，
+只为登上那喜马拉雅！
 
-校对/发稿: 浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-4.png)
+**后注：**
+隆达：藏语，印有经文的纸
+阿佳：藏语*，*大姐
+措：藏语，湖
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

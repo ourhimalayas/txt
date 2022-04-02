@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 8:45 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月1日第28天当日救援统计：<br/>Medyka救援站接待：约319人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8384人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 28 - Date: April 1, 2022 :<br/>Medyka Rescue Station Reception: about 319 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8384 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group7/getter/2022/04/02/08/02eb9c81-931f-8409-9007-21a001258789/a65fe3c70eb7c3c75e511d194cc7e237.jpg)
+
+---
+
 `@miles 4/2/2022 8:37 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导 
@@ -147,13 +154,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-01<br/>For English @Gtranslators_1
 ![img](https://media.gettr.com/group37/origin/2022/04/01/21/43cd8104-350b-c66a-61c8-fb8b411612a7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/1/2022 9:48 PM (UTC)`
-
-4/1/2022 Ukraine Rescue: The rescue camp of the New Federal State of China in Medyka has the best equipment and far better organization than the Red Cross, and that was unbelievable for many people. Many media and volunteers stand with the citizens of the New Federal State of China who are dedicated to taking down the Chinese Communist Party. A Ukrainian bought supplies out of his own pocket to donate to the New Federal State of China before returning to Ukraine to fight for the country.<br/><br/>4/1/2022 乌克兰救援连线：新中国联邦救援营地在梅迪卡有着最好的设备和远超红十字会的组织工作，这令很多人难以置信；很多媒体和志愿者跟灭共的新中国联邦人站在一起；一位乌克兰人在回国参战前自掏腰包买物资捐给新中国联邦
-![img](https://media.gettr.com/group41/getter/2022/04/01/21/60dcff93-a2ab-7d13-2a38-4c29c664e0c1/out.jpg)
 
 ---
 

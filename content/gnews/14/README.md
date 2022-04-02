@@ -2,21 +2,46 @@
 ---
 
 
-## 视频|波兰将立法禁止俄罗斯煤炭进口
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2273793/)
+## 开始了！BBC主持人在节目现场与骗子福奇对峙
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
 
-制作：香草山视频部
+翻译： Jenny Ball
 
-当地时间3月29日，波兰政府宣布即将颁发法律，禁止从俄罗斯进口煤炭，这一举措将开启欧盟先例。
-波兰政府表示，在一项对支持俄国的企业和个人进行资产冻结的新法律案中，加入禁止从俄国进口煤炭的条文。 预计最迟自五月底开始，停止从俄罗斯进口煤炭，并在今年底之前，停止输入俄石油，断绝对俄罗斯的能源依赖及经济关系。
-俄罗斯入侵乌克兰，至今已经一个多月。 三月初，美国宣布停止从俄罗斯进口石油及天然气。25日，美国总统拜登和欧盟执行委员会主席范德赖恩公布了一项计划，美国今年将努力协助对欧洲供应额外的150亿立方公尺液化天然气，并确保乌克兰和欧盟的能源安全，为下一个冬天和往后的冬天做好准备。同时支持欧盟达成目标，终结对俄化石燃料的依赖。德国政府也表示，德国正大幅减少向俄罗斯购买能源，石油进口量将在6月减半，煤炭运输也将于今年秋季结束。
-但欧盟各会员国预计要到明年才能完全脱离对俄罗斯能源的依赖。波兰政府表示，波兰不能继续等待欧盟，将自行推动经济及能源的脱俄行动。这一立法将在欧盟成员国内开启摆脱俄罗斯能源供应的先河。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
-发稿：qiutian（邱甜）
 
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+
+2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
+
+福奇博士说他被“误解了”。
+
+这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
+
+对合法的新闻服务有所了解一定不错。
+
+遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
+
+我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
+
+BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
+
+新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+
+* * *
+
+审核：文乐     
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

@@ -2,25 +2,36 @@
 ---
 
 
-## 俄罗斯军队离开切尔诺贝利
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273633/)
+## 澳大利亚-印度贸易协议将打开“最大的经济大门”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273638/)
 
-撰稿：纽约香草山-文希
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
-3月31日外媒报导，乌克兰的核运营商Energoatom和国际原子能机构均证实，自2月24日以来一直控制切尔诺贝利核电站的俄罗斯部队，已经以书面形式将核电站的控制权移交给乌克兰人员，并将两个车队的部队调往白俄罗斯。第三支车队也离开了切尔诺贝利核电站工作人员居住的斯拉维季奇市，并向白俄罗斯移动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-129.png)
-俄罗斯控制该核电站后，乌克兰曾发出警告，停止运行的核电站有发生核泄漏的危险。俄罗斯撤军时也曾有报导称俄罗斯人在禁区内受到了“大量辐射”，但国际原子能机构在声明中说该消息并未得到证实。
+#### 【雅典娜快讯】，紧贴时代脉搏    
 
-参考链接：
+翻译/编辑：小红帽
 
-[Ukraine nuclear operator: Russian troops leave Chernobyl](https://apnews.com/article/russia-ukraine-business-europe-belarus-9a7d2b1b8fe42c5290375c0d341e4ecb)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/India-Australia.jpg)图片来源：PTI
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-6.jpeg)
 
-编辑/总编/审核：飞虹
+根据CNA4月2日报道，澳大利亚总理科特·莫里森表示，将于周六（4月2日）签署的与印度的贸易协定代表着“当今世界上最大的经济大门之一”。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
+莫里森预计将在几天内举行大选，他一直渴望在竞选开始前获得这项贸易协议，因为他已经与印度进行了十年的谈判。
+
+联邦政府周五表示，澳大利亚-印度经济合作与贸易协定将由贸易部长丹·特汉和印度商工部长皮尤什·戈亚尔在一个虚拟仪式上签署，两国将继续努力达成全面自由贸易协定。
+
+莫里森在塔斯马尼亚对记者说，他和印度总理纳伦德拉·莫迪将见证这个虚拟仪式。
+
+莫里森政府正在寻求使出口市场多样化，减少澳大利亚对其最大贸易伙伴中共国的依赖，因为此前的外交争执导致中共对某些澳大利亚产品实施制裁。
+
+新闻来源：[Australia-India trade deal to open ‘biggest economic door’: Morrison](https://www.channelnewsasia.com/world/australia-india-trade-deal-open-biggest-economic-door-morrison-2603026)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
