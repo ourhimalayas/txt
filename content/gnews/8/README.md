@@ -2,30 +2,29 @@
 ---
 
 
-## 俄装备多数乌制 传俄军武器用尽无库存可补
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2274458/)
+## 有声｜法官否决了纽约的强制幼儿口罩规定
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2274483/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-英国每日邮报根据英国防务消息人士说法报导，俄军已在乌克兰把重要武器用完，而且现在无法补充库存，因为俄国许多武器装备是乌克兰制，俄国也无法从其他来源购买武器，因为受到国际制裁。
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/360截图20220402175703828.jpg)图片来源：路透
+**2022-04-02**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-3.png)图片来源 千禧年邮报
+[据《千禧年邮报》4月1日报道，纽约斯塔滕岛的一名法官周五推翻了纽约市对幼儿的强制口罩规定，将中共病毒的限制措施称为随意的、任性的和不合理的，并对其发出了永久禁令。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-乌克兰先前提供巡弋飞弹、直升机引擎零件和战机零组件给俄国，也制造俄国战车使用的火控系统。
+[法官拉尔夫·波尔齐奥的单页裁决反击了市长的计划，对五岁以下儿童的强制口罩规定将从下周一结束。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-自从俄国2月24日入侵乌克兰以来，估计俄军损失143架飞机、131架直升机、625辆战车和316座火炮。俄国至少发射了1100枚飞弹，让外界猜测以这样的消耗速度，俄军还能攻击乌克兰多久。
+[3月初，纽约市市长亚当斯已经取消了对所有居民的限制性口罩任务，但不包括该市2至4岁的最年轻人口。尽管在整个大流行期间，儿科病例一直很低，低龄儿童的感染率在人口统计学数据上是最低的。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-简评：在全球联合制裁下，俄罗斯消耗完武器，普京就自然老实了，唯一的供应方中共也被国际社会盯的死死的，小规模偷送可以，大规模的援助太容易暴露。俄军还能撑多久？身边高官不说实话，估计普京都不知道。独裁者都是走到哪，死在哪，越作死，死的越快！
+[但据纽约全国广播公司报道，纽约市长亚当斯周五晚些时候表示，该市将对法院的裁决提出上诉，寻求暂停波尔齐奥的裁决。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-新闻来源：[联合新闻网](https://udn.com/news/story/122663/6211454?from=udn_ch2_menu_v2_main_cate)
+[亚当斯在推特上表示，由于目前的感染人数，我们将继续要求2-4岁的儿童在学校里戴口罩。并将继续评估这些数字，在一周内向纽约人通报最新情况。](https://thepostmillennial.com/breaking-judge-strikes-down-new-yorks-toddler-mask-mandate)
 
-撰稿/发布：一叶知秋
+秘翻新闻 Grace编辑报道
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+发布 : 恩典
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

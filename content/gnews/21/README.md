@@ -2,46 +2,30 @@
 ---
 
 
-## 开始了！BBC主持人在节目现场与骗子福奇对峙
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
+## 秘翻在线：中共病毒(COVID-19)确诊患者后遗症&#8221;最多79%&#8221;&#8230;疲劳·健忘等
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2273872/)
 
-翻译： Jenny Ball
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-2.jpg)图片来源：本文链接
+中共病毒(COVID-19)感染患者中,有20-79%的患者治愈后仍出现了疲劳感、呼吸困难、健忘症等后遗症。韩国防疫当局3月31日表示,为了确保更精密的研究结果,将以1000名未满60岁的确诊患者为对象进行后遗症调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
+韩国中央防疫对策本部当天发表了，对中共病毒(COVID-19)患者复阴后不断出现后遗症的韩国国内研究现状以及今后的计划。
 
+国立保健研究院与国立中央医疗院、庆北大学医院、延世大学医疗院等韩国医疗机构合作实施的后遗症调查结果显示,疲劳、呼吸困难、健忘、睡眠障碍、心情障碍等症状最为常见,在20-79%的患者身上已得到确认。
 
+健康保险审查评价院在资料分析中确认,19.1%的中共病毒(COVID-19)确诊患者因后遗症会再度来到医疗机构。
 
-2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
+防疫对策本部流行病学调查分析团长李相元在当天的新闻发布会上解释说:“到目前为止的研究，根据基础疾病、重症度、住院与否、调查方式等存在着差异”,“当前，主要以基础疾病患者、重症患者、住院患者为中心进行了后遗症调查,普通成年人的后遗症资料还不够充分”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
+因此,国立保健研究院通过首尔、京畿、忠清、庆尚、釜山、济州圈等14个医疗机构参与的网络链,以1000名左右未满60岁的无基础疾病的确诊患者为对象,正在进行后遗症调查。
 
-福奇博士说他被“误解了”。
+在患者确诊后的第3个月到第6个月,将通过世界卫生组织(WHO)的调查法进行后遗症调查,并在今年下半年分析中期结果。
 
-这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
+比起中共病毒(COVID-19)刚出现那一阵，患者的死亡率已大大减少，但随着变异毒株的反复出现，后遗症成为了新的话题，希望人类能在新的挑战中再次得到胜利。
 
-对合法的新闻服务有所了解一定不错。
+信息来源：[https://www.news1.kr/articles/?4633700](https://www.news1.kr/articles/?4633700)
 
-遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
-
-我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
-
-BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
-
-新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
-
-* * *
-
-审核：文乐     
-校对：信心满满
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+责编: Eric Kim
 
  
 
