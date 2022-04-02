@@ -2,61 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.2）&#8211;接种新冠疫苗后胸闷气短可能导致心肌炎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275950/)
+## 中共支持的游说团体继续渗透影响美国农业官员
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2276084/)
 
-#### 整理：gardeniahu 
-编辑：BENJ1
+####   撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-185.png)图片来源：脸书
+据《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）4月1日报道，中共支持且与比尔·盖茨（Bill Gates）有合作历史的游说团体赞助针对美国官员的活动，目的是为了让其支持与中共国在美国的农业合作。
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+作者说，这一事件的曝光，背景正值盖茨积累了大量私有农田，并倡导全面改革全球粮食生产和饮食，以支持“素食”方法之际，而中国共产党也无视美国的国家安全，正大量购买美国的农田。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25e5%2589%25af%25e4%25bd%259c%25e7%2594%25a8%25e9%259b%2586%25e8%2590%2583/)
+众所周知，中国人民对外友好协会是中共统战部的机构，根据联邦美中安全与经济审查委员会的说法，这个机构由中国共产党投资数十亿美元经营的，目的在于“收编和化解任何可能反对中共执政地位的政策和权威人士，影响外国个人和外国国家政策，为北京利益服务”。并且，中国人民对外友好协会也被美国国务院标记为“直接和恶意游说”美国官员和商业领袖。
 
-帖子原文：
+作者指出，与美国腹地中国协会（USCHA）合作的中共游说团体包括中国人民对外友好协会（CPAFFC）和中美交流基金会（CUSEF），这两个组织都是中共统战部的一部分。
 
-**疫情****|****新冠疫苗副作用****疫苗后胸闷气短**
+文章披露，盖茨以个人和职业身份与中国共产党有着长期的合作历史，他在2014年6月访问了中国人民对外友好协会，发表了赞扬该组织的演讲，此前也曾为中国人民对外友好协会提供咨询。
 
-辉瑞疫苗可能心肌炎update
+值得注意的是，中国人民对外友好协会（CPAFFC）与美国腹地中国协会共同主办了2022年美中农业圆桌会议，有许多美国官员参加此次会议。
 
-3.26去医院背了holter48小时，期间感觉还好，能做饭下楼买菜开车。
+这次会议引起了人们对中国共产党支持的向美国农民示好的关注，因为中共统战部团体经常利用免费的中国之行，以及对包括学术界和媒体在内的部门工作的个人的商业交易来支持北京所赞成的（美国）政策。
 
-直到昨天和今天，傍晚时刻便胸闷气喘，人很累，八点多上床，九点多就能睡着。
+*责编: 白夜*
 
-不管检查结果如何，身体状态差在这里，我还要每天照顾女儿，她虽然尽力帮助妈妈，可是毕竟还小，这日子不知道什么时候是个头？
+**新闻来源**
 
-我知道带她来加拿大是正确的选择，可是真的没料到这么难、这么难。
-
-继续扌非队等待做心脏彩超。
-
-现在每天吃Q10 400mg VD综合维生素和锌，鱼油。
-
-咬牙坚持吧
-
-#辉瑞疫苗 #心肌炎 #移民加拿大 #海外独自带娃
-
-精彩评论：
-
-莱纳  回复：s蛋白进入心脏，避免剧烈运动，心脏代偿功能不好，去做核磁共振才能确诊。
-
-kt的两小只  回复：你心跳怎么样？我跟你一样，去过两次急诊了，都是正常被打回来。
-
-Ying   回复：一样。打了第三针后整天跑专科。
-
-。夜媣未怏   回复：我是刚做了加强ct说都没事。但是容易累。然后肺部闷痛。4.28还要去做检查，我都三个月了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-5.jpg)
-参考链接：
-
-[接种新冠疫苗后胸闷气短](https://www.xiaohongshu.com/discovery/item/6244f027000000002103b994?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648866335)
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[A Chinese Influence Group Tied To Bill Gates Wants To Collaborate With American Agriculture Officials](https://thenationalpulse.com/2022/04/01/gates-linked-chinese-group-targets-american-agriculture/)
 
  
 

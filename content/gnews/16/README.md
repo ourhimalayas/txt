@@ -2,34 +2,37 @@
 ---
 
 
-## 俄乌战争加剧了俄罗斯适龄青年对入伍的恐惧
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2275794/)
+## 中日财经爆┃SpaceX将在菲律宾推出星链服务，正式落地亚洲
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2275830/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，SpaceX公司将在菲律宾推出星链卫星互联网服务，这将使菲律宾成为东南亚第一个托管星链互联网服务的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-19.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn.arstechnica.net/wp-content/uploads/2021/04/starlink-dish.jpg&amp;imgrefurl=https://arstechnica.com/information-technology/2021/04/dishy-mcflatface-to-become-fully-mobile-allowing-starlink-use-away-from-home/&amp;tbnid=71_jczvjRXRzuM&amp;vet=12ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ..i&amp;docid=hHh0x3Cm2TpYIM&amp;w=2000&amp;h=1500&amp;q=Starlink&amp;hl=zh-CN&amp;ved=2ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ)
+4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，[美国](https://news.163.com/news/search?keyword=%E7%BE%8E%E5%9B%BD)亿万富翁埃隆·马斯克(Elon Musk)旗下太空探索技术公司SpaceX将在菲律宾推出星链[卫星](https://news.163.com/news/search?keyword=%E5%8D%AB%E6%98%9F)互联网服务，这将使菲律宾成为[东南亚](https://news.163.com/news/search?keyword=%E4%B8%9C%E5%8D%97%E4%BA%9A)第一个托管星链互联网服务的国家。
 
-据美联社4月2日报道，随着俄罗斯侵略军陷入困境，许多俄罗斯适龄入伍青年对可能被派往战场越来越感到恐惧。本周五的春季征兵开始后，这种恐惧情绪急剧上升。
+菲律宾贸易与工业部长拉蒙·[洛佩兹](https://news.163.com/news/search?keyword=%E6%B4%9B%E4%BD%A9%E5%85%B9)（Ramon Lopez）表示，他最近会见了SpaceX高管丽贝卡·亨特（Rebecca Hunter）和瑞安·古德奈特（Ryan Goodnight），以及菲律宾国际通讯委员会（NTC）副专员埃德加多·卡瓦里奥斯（Edgardo Cabarios）和DFNN执行主席小拉蒙·加西亚（Lamon Garcia Jr.），讨论将星链引入菲律宾事宜。
 
-根据规定，所有年龄在18至27岁之间的俄罗斯男性都必须在军队服役一年。
+洛佩兹透露，SpaceX的商业许可申请正在处理中，同时该公司正在为其网关寻找地点。该公司正在菲律宾设立全资子公司，目标是在推出的第一阶段部署三个网关。不过，洛佩兹没有具体说明星链互联网服务推出的时间表或SpaceX的投资数字。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2.jpg)在俄罗斯国防部新闻处于2022年1月22日发布的这张照片中，工兵团的军人在俄罗斯沃罗涅日地区宣誓。（图片来自美联社）
+洛佩兹表示，星链的推出将使该国宽带速度更快，连接更好，电信服务的容量更大，费率也更便宜。他称：“星链将扩大和补充现有的宽带容量。这将进一步扩大微型、中小型企业的能力，促进在线学习、电子商务和金融科技发展。”
 
-目前，俄罗斯军队陷入了战争泥沼，克里姆林宫面临着两个选择：继续以现有部队作战，由于缺乏战斗人员，战争局势仍旧会停滞不前；或者冒着公众愤怒的风险，制定新的征兵草案，但可能会激起反抗情绪并破坏政治局势的稳定，这种情况车臣战争中发生过。
+SpaceX是少数几家通过近地轨道卫星网络支持高速互联网服务的公司之一。星链网络旨在为偏远地区或在自然灾害期间通信中断时提供互联网接入服务。这样的卫星互联网系统将信号从大气层发射给地面上的天线接收器。
 
-尽管俄罗斯总统弗拉基米尔·普京（Vladimir Putin）及其官员表示，应征入伍者没有参与俄罗斯当局所谓的乌克兰特别军事行动，但许多士兵在最初几天就被俘虏了。
+根据SpaceX的数据，星链的数据传输速度从100Mbps到200Mbps不等。这种高速连接以前是不可能通过传统卫星互联网实现的。SpaceX是此类技术的领跑者，自2020年末以来，该公司已在全球范围内为星链测试版签约了10万多名用户。星链提供互联网接入服务的国家包括美国、英国、加拿大、澳大利亚、新西兰和墨西哥。
 
-从乌克兰传出的被俘虏俄罗斯士兵的视频疯传社交媒体网站。其中一名被俘士兵的母亲说，她在一段视频中一眼就认出了被蒙上双眼的20岁的儿子。“我通过他的嘴唇，他的下巴认出了他，是我一手把他抚养长大的。” 这名女子哭泣着说。
+亚马逊也在开发自己的卫星互联网，名为Kuiper Systems，但尚未将任何卫星送入轨道。
 
-有人指控说，在入侵之前，一些应征入伍者被迫签署军事合同并派往战场，这项任务按规定只能派遣志愿兵。一些被俘虏的士兵说，指挥官欺骗他们去参加军事演习，结果却发现自己在乌克兰作战。
+信息来源：[**SpaceX****将在菲律宾推出星链服务**](https://www.163.com/tech/article/H3RRANH800097U81.html)
 
-国防部长谢尔盖·绍伊古（Sergei Shoigu）本周在军方高层会议上承诺，新兵不会被派往前线。但这一承诺立即遭到了许多俄罗斯人的怀疑，他们记得1990年代和2000年代初在南部车臣共和国发生的分离主义战争，当时成千上万的训练有素的年轻人被杀。
-
-乌克兰总统维拉基米尔·泽连斯基（Volodymyr Zelenskyy）敦促俄罗斯父母不要让他们的儿子被征召入伍。“我们这里不需要新的死人，照顾好你的孩子，这样他们就不会成为侵略者。不要把他们送到军队，尽你所能让他们活着待在家里。”泽连斯基在视频中对俄罗斯父母发表讲话说。
-
-参考链接：
-[https://reurl.cc/Y92W4o](https://reurl.cc/Y92W4o)
-
-总编：老孙
-校对发布：文曦
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

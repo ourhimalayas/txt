@@ -2,34 +2,41 @@
 ---
 
 
-## 教皇含蓄地批评普京对乌克兰的入侵
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275782/)
+## 有声|英国制裁俄罗斯雇佣兵
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2275813/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ARPIRRAAXFMM5OOYAK6COSIRQI.jpg)
-近日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，他说一个大国正在为民族主义利益煽动战争冲突。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+**【大纪元3月31日讯】英国进一步扩大了针对俄罗斯的制裁范围，将私人军事公司瓦格纳集团包括在内，这家公司被称为是“普京的私人军队”。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image009.jpg)**俄罗斯瓦格纳集团雇佣兵（左）在中非共和国一场政治活动中与当地士兵一同执行任**
+**这支6,000人的雇佣兵集团被普京派到世界各地执行对俄有利的任务，同时由于他们是雇佣兵，普京可以借口撇清任何责任。**
 
-普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前方济各为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。郭先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使得教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，并在暗中批评普京，他说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力出现，毫无疑问普京是无理地侵略，并强烈谴责其战争暴行。
+**去年12月，欧盟指控瓦格纳“在乌克兰、叙利亚、利比亚、中非共和国、苏丹和莫桑比克严重侵犯人权”。瓦格纳长期以来还在乌克兰东部支持亲俄的民兵武装，为他们提供武器、训练等。
 
-方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
+最初雇佣兵大多是俄罗斯的退伍士兵，他们被派去刺杀顿巴斯地区亲俄、但是不听从克里姆林宫命令的领袖，而后俄罗斯把这些人的死嫁祸给乌克兰。
 
-reference：
+雇佣兵在俄罗斯是非法的，但是普京却利用瓦格纳打击叙利亚的反政府武装，甚至给瓦格纳的创办者兼领导者乌特金颁发了奖章。
 
-[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+《泰晤士报》披露，今年1月，2,000至4,000名瓦格纳雇佣兵被派到乌克兰，执行不同的任务。**
 
-撰稿、发布：骄子
+[【援引连结】](https://www.epochtimes.com/gb/22/3/31/n13686354.htm)
 
-* * *
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴-1.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
 
-欢迎订阅我们的GNews账号：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

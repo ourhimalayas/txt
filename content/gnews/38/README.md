@@ -2,26 +2,28 @@
 ---
 
 
-## 法治基金在乌克兰的人道救援行动仍在继续
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2274840/)
+## 德国政界：中共是威胁德国经济的“系统性竞争对手“
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2274842/)
 
+作者：日本东京方舟农场 – Miyali7768(文玉）
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+3月30日外媒报道，德国财政部长林德纳在欧盟与中共进行视频峰会前夕的敏感时刻，表达了自己对中共以及与中共进行贸易往来的的看法。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/122.jpg)
+林德纳在29日的一次演讲中提醒说，我们必须认识到我们面临的巨大风险。中共不尊重我们的社会模式，不尊重我们对自由的理解，也不尊重我们对国际法的承认。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/124.jpg)
+这位德国自由民主党的领袖表示，与中共的贸易关系几乎是德国经济的一个集中风险，中共虽然可能是一个贸易伙伴，但更是威胁德国经济的系统性竞争对手。
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+据悉，欧盟当前在对待中共的问题上与美国高度一致，即中共如果试图缓解世界对俄罗斯的制裁打击，将面临严重后果。而两名对欧盟内部较为熟悉的评估人士称，欧盟有官员怀疑中共可能已准备向俄罗斯供应半导体和其他科技硬件。尽管林德纳对此并未提及，但他确实强调了对于德国来说，中共具有怎样的意义。
 
 参考链接：
 
-- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
+- [德財長：中國是威脅德國經濟的「系統性競爭對手」](https://www.worldjournal.com/wj/story/121480/6204705)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-总编：飞虹
+总编/编辑：飞虹
+审核：飞虹
 校正/发稿：海阔天空1
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  

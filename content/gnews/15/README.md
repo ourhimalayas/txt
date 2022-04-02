@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|照片显示俄罗斯袭击了乌克兰粮食储存设施
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2275810/)
+## 秘翻新闻｜乌克兰至少53个重要文化遗址遭破坏
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2275884/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
-**【路透华盛顿/联合国3月31日】  路透看到的美国政府图片显示了一位美国官员所说的乌克兰东部粮食储存设施的受损情况，并表明正在影响全球粮食供应的俄罗斯袭击的严重程度。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image004.jpg)**美国政府照片显示一名美国官员所说的情况，可见乌克兰东部有粮食储存设施受损，这表明俄罗斯攻击的严重程度，影响全球粮食供应。**
-**这两张黑白图片显示了乌克兰东部的一栋长方形建筑，最初在1月份看到的是完好无损的，但在3月份看到的是屋顶受损，并出现了“撞击坑”。
+**By:[秘翻新闻](https://gettr.com/post/p135bw73d89)**
 
-这位美国官员在评论这些非机密图像时表示，美国掌握的信息显示，俄罗斯军队正在不断破坏乌克兰东部的粮食储存设施。他说“截至3月底，至少有六个粮食储存设施因这些袭击而受损。”**
+**[2022-04-02](https://gettr.com/post/p135bw73d89)**
 
 
+```
+新闻内容:
+ 
+ 1.上海封城 市民断生计 传女硕士跳楼身亡
+ 2.上海千人被封市场睡水泥地 传交叉感染
+ 3.江苏昆山突封城 大批车辆和民众被堵路上
+ 4.俄乌战争加剧了俄罗斯青年对征兵的恐惧
+ 5.美国医院中共病毒患者人数创历史新低 
 
-[【援引连结】](https://cn.reuters.com/article/exclusive-russia-attack-ukraine-grain-st-idCNKCS2LT2ZP)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+🔗Gettr链接：https://gettr.com/post/p135bw73d89
+
+发布:星星
+```
+
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/zm.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

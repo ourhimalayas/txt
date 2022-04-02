@@ -2,34 +2,28 @@
 ---
 
 
-## 俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273694/)
+## 法治基金在乌克兰的人道救援行动仍在继续
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2274840/)
 
-**图/文｜CP **
-**发布时间｜02/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄軍中輻射逃離切爾諾貝利-IAEA率團前往援助.jpg)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/124.jpg)
+
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
+
+参考链接：
+
+- [《乌克兰救援》](https://www.gettr.com/post/pzvg8vdf4f)
 
 
-国际原子能机构（IAEA）负责人格罗西（Rafael Grossi）周五（1日）表示，他将会率领团队前往切尔诺贝利（Chernobyl）核电厂，以协助确保当地核设施安全，并于加里宁格勒与俄罗斯高级官员举行会谈。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-乌克兰国家核电公司（Energoatom）日前证实，所有占领切尔诺贝利核电厂的俄罗斯士兵已经完全撤离。负责管理禁区的 Energoatom 员工表示，目前核电厂“已无外来人”，俄军撤离后向白罗斯方向进发，该员工还提供了俄方和核电厂签订的协议，显示俄罗斯同意将核电厂管理权交还。
-
-另外，Energoatom还证实，早前俄军在未有防辐射装备的情况下，于高辐射区挖战壕，导致不少士兵身体出现疑似受辐射感染的症状，造成军心大乱，“士兵之间几乎开始酝酿暴动”，不久后俄军就陆续撒走。
-
-路透社本周一引述核电厂工作人员指，亲眼目睹俄军士兵不穿防护衣，驾车穿过辐射污染最严重的“红森林”（Red Forest）区，当时工作人员就很担心军车驶过所扬起的放射性尘埃会被士兵吸入体内，发生内放射反应。
-
-红森林位于基辅以北约100公里的地方，切尔诺贝利核电厂1986年发生核灾时，该地数十平方公里的松树因吸收了大量辐射后而变红，因此得名“红森林”，它被认为是世界上最严重的核灾区之一，由于高度污染，甚至连核电厂的员工都不被允许进入。
-
-俄军在入侵乌克兰后一度占领切尔诺贝利，IAEA多次要求俄乌双方召开紧急会议商定协议，以确保核设施安全，惟一直不获俄方重视。
-
-來源｜[路透社](https://www.reuters.com/world/europe/iaeas-grossi-says-will-head-mission-chernobyl-soon-possible-2022-04-01/)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3444941-russian-invaders-leaving-chornobyl-npp-energoatom.html)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
-
+总编：飞虹
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
