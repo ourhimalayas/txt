@@ -2,35 +2,35 @@
 ---
 
 
-## 欧盟委员会批准新的规则草案以加强对数字资产交易的监控
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273440/)
+## 中日财经爆┃医保局透露“免费”疫苗 全民买单1200亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273600/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月2日，中共党媒央视新闻报导，中共国家医保局透露，中共国2年多时间强推的中共病毒疫苗，对老百姓宣传“免费”，实则花费1200亿元，由全民买单。
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/医保局透露免费疫苗-全民买单1200亿.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20210615%2F16237387773047300_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F6233989.html&amp;tbnid=cyAiJHbzbkRIsM&amp;vet=12ahUKEwi95ZO45fT2AhVIOMAKHRLtDYcQMygBegUIARCsAQ..i&amp;docid=83pZsn_QUc2F1M&amp;w=640&amp;h=364&amp;q=%E5%8C%BB%E4%BF%9D&amp;ved=2ahUKEwi95ZO45fT2AhVIOMAKHRLtDYcQMygBegUIARCsAQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Committee_Room_of_the_European_Parliament_in_Brussels.jpg)图片来源：wikipedia
+医保局负责人称，中共病毒疫情暴发后，2021年2月，中共国正式启动居民所谓的“免费”接种中共病毒疫苗，疫苗采购和接种费用主要由医保基金和财政共同负担。
 
+同时该负责人透露，国家医保局临时承担了与企业谈判磋商疫苗采购价格的工作。这就给相关人留好了与相关企业背后利益输送和勾兑的空间，
 
-根据COINGEEK4月1日报道，在欧洲，数字资产转移可能很快就会受到更多的监控，其中包括那些来自用户私人持有的“非托管”钱包的数字资产。两个欧盟（EU）议会委员会已经批准了立法草案，允许对区块链钱包交易进行更多的追踪和监控。一些人认为这些交易包含了几个关于隐私和数字资产可用性的“红旗”。
+首轮将灭活疫苗采购价90元/剂以内，先后降至40元/剂、20元/剂左右。一次次超过50%的价格降幅，足见疫苗多么暴利。
 
-欧盟议会经济和货币事务委员会（ECON）和公民自由委员会（LIBE）于2022年3月31日以93票对14票（14票弃权）批准了该草案。
+“目前，中共国全民已经接种32亿剂次疫苗，疫苗费用1200余亿元，由医保基金和财政共同分担。”该负责人透露。但是具体分担的比例却没有说。政府不生产任何财富，打疫苗的钱还是由老百姓买单。
 
-该草案预计将在下周的欧洲议会全体会议上进行表决。如果通过，它将成为整个欧盟的法律。作为金融行动特别工作组（FATF）系列提案的一部分，这是越来越多地监控私人交易并防止洗钱和逃税的全球趋势的一部分。
+中共病毒疫情爆发已经2年多，按人口比例计算也几乎是人均2剂疫苗，疫情反而比2年前更严重，全国到处爆发和封城有增无减，疫苗副作用造成死伤无数。
 
-最初，拟议的规则要求数字资产服务提供商收集有关向“非托管”钱包转账的信息。然而，草案的后期修正案插入了新的措辞，要求他们也要识别和验证此类钱包的受益人（或用户）。这甚至包括不属于该供应商客户的钱包。
+如今更多的人看清楚了，中共病毒疫苗不是用来预防病毒，而是掠夺百姓的生命、财产和自由。
 
-在所有版本的立法中，服务提供商还必须报告任何“可疑”交易。根据FATF的“旅行规则”，法规适用于任何超过1,000欧元的法币交易。然而，该草案将把该规则适用于所有数字资产交易。交易所也将被要求向当局通报任何来自非客户、“非托管”钱包的平台交易。
-
-新闻来源：[EU committees approve new draft rules to increase monitoring of digital asset transactions](https://coingeek.com/eu-committees-approve-new-draft-rules-to-increase-monitoring-of-digital-asset-transactions/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,41 +2,68 @@
 ---
 
 
-## 前墨尔本袋鼠社区年仅21岁球员突然去世
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273574/)
+## 樱花深度报道┃澳大利亚惊呼：中共已经闯到我们家门口了！（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273643/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+编译：东京樱花团/Hopkins
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+【摘要】中共已经闯到我们家门口了！北京与所罗门群岛签署安全协议着眼于在南太平洋的第一个军事立足点——这将使澳大利亚处于危险之中：中共与南太平洋国家所罗门群岛将签署了范围广泛的协议；将允许中国武警和军事人员驻扎在那里；陆军警告说，如果中国船只在所罗门群岛作业，情况将会改变，澳大利亚的军事行动可能会受到新安全协议的严重影响。
 
-整理/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/澳大利亚惊呼：中共已经闯到我们家门口了！（上）.png)安全条约加强了与中国的关系。图为2019年所罗门群岛总理马纳西·索加瓦雷和中国国务院总理李克强在北京。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/8LNZHV5I09NDRYYZS6.png)图片来源：Irish Examiner & 雅典娜设计组
+中国与所罗门群岛之间的一项新安全协议引发了人们对澳大利亚面临风险并将被迫彻底改革其国防行动的担忧。
 
+中国与这个南太平洋岛国签署了一项范围广泛的安全协议，允许北京在距离澳大利亚海岸 1000 英里的地方驻扎军舰。
 
-北墨尔本袋鼠社区对前球员墨菲（Red Og Murphy）的突然去世的消息感到震惊，他年仅21岁。
+这是北京最近试图增加其在该地区影响力的一部分，因为担心这将为中国的军事统治铺平道路。
 
-墨菲在2019年作为B类新秀被列入袋鼠队的名单，本周在爱尔兰家中突然离世，当地政府尚未确认其死因。
+上周泄露的一份草案引发了澳大利亚、新西兰、密克罗尼西亚联邦以及美国的担忧。
 
-北墨尔本澳式足球俱乐部首席执行官Ben Amarfio在一份声明中说：“我代表俱乐部的每个人，在这个艰难的时刻向墨菲的家人致以最深切的问候。”
+澳大利亚联合作战部长格雷格·比尔顿中将（Lieutenant General Greg Bilton）认为，中国在我们家门口的存在将影响太平洋的军事行动，包括巡逻模式和海事宣传活动。
 
-“这一刻我们与那些与墨菲最亲近的人，和他在爱尔兰老家的亲人和朋友，以及所有在他在北墨尔本俱乐部期间与他一起打球和工作并成为朋友的人在一起。”
+他说，如果中国海军舰艇从所罗门群岛出发，这确实会改变我们的预判方式。
 
-墨菲在2019年代表北墨尔本参加了12场VFL比赛，在本赛季的最后一场比赛中对Footscray踢了两个球，然后在年底回老家爱尔兰。
+“它们离澳大利亚大陆更近，这将改变我们进行日常运营的方式，特别是在空中和海上。”
 
-回到爱尔兰后，他为当地库里GAA和斯莱戈郡效力。
+所罗门群岛政府已确认官员已草签与中国签署双边安全合作框架的内容。
 
-斯莱戈郡议员马丁·康诺利告诉《爱尔兰观察家》：“整个地区都难以接受，墨菲可能是该地区最优秀的足球运动员之一。他为库里GAA俱乐部效力。他和墨菲家族都非常受人尊敬。”
+一份声明称，框架协议草案将被整理成正式文件并等待两国外交部长签署。
 
-北墨尔本的球员和官员将在周六晚上对阵布里斯班雄狮队的比赛中戴上黑袖标，以纪念墨菲。
+“该国（所罗门群岛）将与所有合作伙伴合作，建成成为一个让所有人都能和平共处安全可靠的国家。”
 
-参考链接：[AFL news 2022: Former Kangaroos player Red Og Murphy dead at 21 | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/afl/our-hearts-are-broken-former-kangaroos-player-red-og-murphy-dead-at-21/news-story/c0cf676d19f26764a3bc3d115db482a3)
+该协议旨在建立“应对所罗门群岛国内威胁的软硬系统”。
 
-发布：tianzhihuan
+政府补充说，所罗门群岛将继续实施国家安全战略，坚持“友友不敌”的外交政策。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+它感谢澳大利亚、巴布亚新几内亚、新西兰和斐济派遣人员维护岛上的安全，并誓言将继续“与所有合作伙伴合作，提供一个所有人都能和平共处的安全国家”。
+
+此前，总理马纳西·索加瓦雷（Manasseh Sogavare）驳斥了对该交易的批评，坚称“没有任何意图……要求中国在所罗门群岛建立军事基地”。
+
+索加瓦雷将担忧描述为“完全无稽之谈”，并补充说“我觉得非常侮辱……被贴上不适合管理我们主权事务的标签。”
+
+中国同样驳斥了有关该协议的问题。
+
+上周泄露的协议草案详细说明了允许中国在该岛国部署安全和海军的措施。
+
+其中提出“中方可根据自身需要，经所罗门群岛同意，对所罗门群岛进行船舶访问、后勤补给、中途停留和中转”。
+
+中国武装警察也将被允许应所罗门群岛的要求部署，以维持“社会秩序”。
+
+（未完待续）
+
+作者：凯莉·史蒂文斯(KYLIE STEVENS )/澳大利亚每日邮报和澳大利亚联合报社( DAILY MAIL AUSTRALIA and AUSTRALIAN ASSOCIATED PRESS)
+
+信息来源：
+[China on our doorstep: Beijing signs security pact with Solomon Islands as it eyes first military foothold in the South Pacific – which will put Australia at risk](https://www.dailymail.co.uk/news/article-10672077/Fears-Chinas-security-pact-Solomon-Islands-putting-Australia-risk.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

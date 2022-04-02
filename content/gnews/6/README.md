@@ -2,37 +2,27 @@
 ---
 
 
-## 中共如何利用水果来惩罚台湾
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2273590/)
+## COVID大流行的结束可能会给美医疗保健带来动荡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273648/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-141.png)
+美联社报道：
 
-翻译/编辑：小红帽
+当 COVID-19 大流行结束时，它可能会对繁琐的美国医疗保健系统造成重大破坏，这些医疗保健系统，通过一系列临时紧急措施，变得更加慷慨、灵活和在技术上保持最先进。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/120540c4ca85294f8da6757d032e06c5.jpeg)图片来源：daily advent
+这一系列问题与两年多前首次宣布的冠状病毒公共卫生紧急事件有关，此后定期更新。冠状病毒紧急状况将于 4 月 16 日结束，预计拜登政府会将其延长至 7 月中旬。有些人想要更长的时间。
 
+对于复杂的美国医疗保健系统来说，转型并不是好兆头，因为它混合了私人和政府保险，政策和程序错综复杂。医疗保健混乱一旦爆发，可能会在中期选举时给民主党人和共和党人带来麻烦。
 
-根据VOX4月1日报道，从2021年9月起，中共禁止从台湾进口糖苹果（atemoya），并声称它们会带来害虫。 批评人士称，害虫是一个借口，中共正在将与台湾的贸易武器化。
+信息链接：[COVID pandemic’s end may bring turbulence for US health care](https://apnews.com/article/covid-health-business-coronavirus-vaccine-medicaid-fbb66b72937f3517a5d3d1ba8840f339)
 
-贸易武器化并不是第一次发生。2021年2月，中共禁止进口台湾菠萝，造成菠萝积压，威胁全台湾农民的生计。
+* * *
 
-目前的情况与一段复杂的历史有关，可以追溯到中共国的内战，以及最近的紧张局势，其中可以追溯到2016年台湾选举新总统的时候。从那时起，中共对台湾领空的军事入侵不断增加，两国关系不断恶化。水果是这方面的最新表现。
+审核：文乐      
+ 校对：信心满满
 
-2021年10月，台湾国防部长、前将军邱国正曾站在台湾立法机关面前做出了一个可怕的预测–在2025年前，中共将能够对台湾进行“全面”入侵。
-
-新闻来源：
-
-1. [How China uses fruit to punish Taiwan](https://www.vox.com/23006359/china-taiwan-import-ban-fruit-pineapple-atemoya)
-2. [China isn’t about to invade Taiwan. But the two sides are on a dangerous path](https://edition.cnn.com/2021/10/15/asia/taiwan-invasion-us-china-tensions-intl-dst-hnk/index.html)
-
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

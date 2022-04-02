@@ -2,41 +2,35 @@
 ---
 
 
-## 美国商务部最新制裁黑名单新增120个俄国与白罗斯实体
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2273563/)
+## 澳大利亚-印度贸易协议将打开“最大的经济大门”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2273638/)
 
-来自新加坡早报 /
-2022年4月2日 10:31 AM 报导
-采集：玫瑰新闻组
+#### 【雅典娜快讯】，紧贴时代脉搏    
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G新闻-3.jpg)
+翻译/编辑：小红帽
 
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/India-Australia.jpg)图片来源：PTI
 
 
+根据CNA4月2日报道，澳大利亚总理科特·莫里森表示，将于周六（4月2日）签署的与印度的贸易协定代表着“当今世界上最大的经济大门之一”。
 
+莫里森预计将在几天内举行大选，他一直渴望在竞选开始前获得这项贸易协议，因为他已经与印度进行了十年的谈判。
 
+联邦政府周五表示，澳大利亚-印度经济合作与贸易协定将由贸易部长丹·特汉和印度商工部长皮尤什·戈亚尔在一个虚拟仪式上签署，两国将继续努力达成全面自由贸易协定。
 
-![自俄罗斯2月24日入侵乌克兰以来，美国商务部已将260个实体列入制裁黑名单。（路透社档案照）](https://www.zaobao.com.sg/s3/files/styles/article_large_full/public/2022-04/2022-04-01t233956z_1507371878_rc217s9oyipw_rtrmadp_3_ukraine-crisis-usa-sanctions.jpg?itok=IpSBK_1d)自俄罗斯2月24日入侵乌克兰以来，美国商务部已将260个实体列入制裁黑名单。（路透社档案照）
+莫里森在塔斯马尼亚对记者说，他和印度总理纳伦德拉·莫迪将见证这个虚拟仪式。
 
+莫里森政府正在寻求使出口市场多样化，减少澳大利亚对其最大贸易伙伴中共国的依赖，因为此前的外交争执导致中共对某些澳大利亚产品实施制裁。
 
-以下原文内容：
+新闻来源：[Australia-India trade deal to open ‘biggest economic door’: Morrison](https://www.channelnewsasia.com/world/australia-india-trade-deal-open-biggest-economic-door-morrison-2603026)
 
-美国拜登政府对俄罗斯和白罗斯实施最新一轮出口限制措施，有120个俄罗斯和白罗斯实体列入制裁黑名单，当中大部分与军方有关联。
+发布：tianzhihuan
 
-综合路透社和俄罗斯塔斯社报道，美国商务部周五（4月1日）说，此举旨在削弱俄罗斯和白罗斯的国防、航空、海军和其他战略领域的实力，以回应俄罗斯残暴侵袭乌克兰主权。
-
-美国政府认定上述实体的行为违背美国国家利益或外交政策。白宫说，列入制裁黑名单的俄罗斯和白罗斯实体要获得美国高科技需申请许可，多数情况都不会获批。
-
-美国商务部长雷蒙多在声明中说：“这些实体将被有效切断供应，无法为俄罗斯发起的乌克兰战争提供必要支援。”
-
-自俄罗斯2月24日入侵乌克兰以来，美国商务部已将260个实体列入制裁黑名单。
-
-新闻链接：
-[美国制裁黑名单新增120俄国与白罗斯实体](https://www.zaobao.com.sg/realtime/world/story20220402-1258610)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

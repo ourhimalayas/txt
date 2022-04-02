@@ -2,52 +2,30 @@
 ---
 
 
-## 拜登警告说，在对俄罗斯实施制裁后，将出现“真正的”粮食短缺
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2273555/)
+## 樱花时政┃法国已收6800名乌克兰儿童就学
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273634/)
 
-评论：***乌克兰战争威胁到全球食品供应，造成这些的元凶就是中国共产党。***
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/法国已收6800名乌克兰儿童就学.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Ftheirworld.org%2Fwp-content%2Fuploads%2F2022%2F03%2FUkrainian-children-celebrate-the-Day-of-Unification-.jpg&amp;imgrefurl=https%3A%2F%2Ftheirworld.org%2Fnews%2Fukraines-children-need-urgent-action-to-safeg)
 
-据《福克斯新闻》 作者：Kyle Morris，2022年3月24日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-138.png)2022年3月24日，美国总统乔-拜登在布鲁塞尔的北约总部。(Michael Kappeler/picture alliance via Getty Images)
-专家表示，由于乌克兰战争威胁到全球食品供应，美国购物者将开始看到更高的食品账单。
+法国教育部4 月 1 日宣布，目前已有 6,800 多名乌克兰儿童在法国的学校、学院和高中就读，主要在尼斯和凡尔赛学区的学校。目前在法国，接收最多乌学生的学区是尼斯、凡尔赛、格勒诺布尔和里昂等的学区。
 
-美国总统拜登周四表示，在美国政府因俄罗斯总统普京入侵乌克兰而对俄罗斯实施制裁后，粮食短缺“将成为现实”。
+法教育部说，该部“仍有接收能力”，在很短的时间内，可能最早下周会有10,000名学童。 自俄乌战争以来，乌人口已大量逃离该国。 大约 430 万儿童受到这种大迁移的影响。
 
-“关于粮食短缺，是的，我们确实谈到了粮食短缺，它将是真实的。”拜登在与其他世界领导人会面后，在比利时布鲁塞尔举行的北约峰会的新闻发布会上说。
+联合国儿童基金会于 3 月 24 日表示，乌克兰一半以上的儿童， 因为战争不得不离乡背井离乡逃离家园。
 
-“制裁的代价不仅仅是强加给俄罗斯。”他补充说。“它也强加给了很多国家，包括欧洲国家和我们国家。”
+信息来源：
+[专访法国外长：就我所知，目前俄乌谈判没有任何新进展，我只会相信行动](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220401-%E6%B3%95%E5%A4%96%E9%95%BF-%E5%B0%B1%E6%88%91%E6%89%80%E7%9F%A5%EF%BC%8C%E7%9B%AE%E5%89%8D%E4%BF%84%E4%B9%8C%E8%B0%88%E5%88%A4%E6%B2%A1%E6%9C%89%E4%BB%BB%E4%BD%95%E6%96%B0%E8%BF%9B%E5%B1%95%EF%BC%8C%E6%88%)
 
-拜登说，“就小麦而言，俄罗斯和乌克兰一直是欧洲的粮仓”，并坚称他和其他领导人在“七国集团”就“增加和传播”粮食生产的必要性进行了长期讨论。
-
-“除此之外，我们还谈到了敦促所有欧洲国家，以及其他所有人，结束贸易……对向国外发送食品的限制。”拜登说。“因此，我们正在与我们的欧洲朋友研究如何帮助缓解与粮食短缺有关的担忧。”
-
-拜登警告说，在对俄罗斯经济实施制裁后，将出现“真正的”粮食短缺，并对美国和欧洲国家产生影响，在此之前，白宫新闻秘书普萨基本周表示，美国人不太可能面临粮食短缺。
-
-“虽然我们没有预计国内会出现粮食短缺，但我们确实预计能源、化肥、小麦和玉米价格上涨可能会影响到世界各国种植和购买关键燃料供应、粮食供应的价格。”普萨基说。：“而世界银行的早期估计表明，对包括非洲、中东和东南亚在内的中低收入国家的影响不成比例。”
-
-当时，普萨基说，政府正在“与我们在七国集团、多边开发银行、世界粮食计划署和联合国粮食及农业组织的伙伴合作，以减轻粮食短缺对低收入国家的影响。”
-
-随着战争继续蹂躏乌克兰，美国人，特别是那些靠工资生活的人，开始感受到半个地球以外的冲突对他们的食品价格造成的经济挤压。
-
-它始于天然气价格的快速上涨。现在，随着俄罗斯石油在美国被禁，全球能源匮乏加剧，专家们说，购物者可以预期他们的食品账单在未来几个月会上升–特别是如果乌克兰错过了小麦种植季节。
-
-“这对美国消费者来说是一个绝对可怕的时刻，因为我们每天都在看着通货膨胀几乎达到10%。”供应链专家和Potomac Core的创始人丹-瓦罗尼告诉福克斯商业。“上个月的数字接近于8%。而这意味着，消费者，包括那些靠工资生活的人，将为食品支付更多的费用。”
-
-据经济复杂性观察站称，俄罗斯和乌克兰生产的小麦占全球小麦供应的25%。虽然这两个国家都没有直接向美国出口小麦，但它们在全球市场上的缺席预计将使供应紧张并推高价格。
-
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源:[**https://www.foxnews.com/politics/biden-warns-americans-food-shortage-gonna-be-real-following-sanctions-russia**](https://www.foxnews.com/politics/biden-warns-americans-food-shortage-gonna-be-real-following-sanctions-russia)
-
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
