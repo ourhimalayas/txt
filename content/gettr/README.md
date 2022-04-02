@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 4:19 PM (UTC)`
+
+MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+![img](https://media.gettr.com/group50/origin/2022/04/02/16/4779c7f3-6caa-cfce-0e8d-08be68295507/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/2/2022 3:25 PM (UTC)`
 
 【Ukraine Rescue】03/31/2022 A volunteer from Taiwan, a Ukraine refugee himself, join our NFSC Ukraine Rescue Operation site in Medyka, Poland. He told us that as someone who has been working and studying in Ukraine for 8 years, he can feel the pain that all the Ukrainian people are going through more directly and personally. This motivated him to join the NFSC Ukraine rescue team. He hopes to, together with other fellow fighters, help more Ukraine refugees who escaped from the war-torn country.<br/><br/>【乌克兰救援】03/31/2022 来自台湾的志愿者，自己也是一名乌克兰难民，加入了我们在波兰梅迪卡的乌克兰救援行动现场。他告诉我们，作为一个在乌克兰工作和学习了8年的人，他能更直接、更切身地感受到所有乌克兰人民正在经历的痛苦。这促使他加入新中国联邦乌克兰救援队。他希望与其他战友一起，帮助更多从这个战乱国家逃出来的乌克兰难民。<br/><br/>
@@ -147,13 +154,6 @@
 
 2022.04.01 晚《新中国联邦新闻访谈》傅政华被抓；李克强又当“组长”抓复耕；上海极端防疫，次生灾难何时了？
 ![img](https://media.gettr.com/group14/origin/2022/04/02/01/244958e4-04f2-055d-97ba-d29f5dc2b378/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/2/2022 12:58 AM (UTC)`
-
-4/1/2022 Ukraine Rescue: Sarah tells us the story behind the Polish magazine’s coverage of the NFSC & ROLF Ukraine rescue operation. We, the New Federal State of China, earned the respect without having to pay them. Regardless of whether other media covers our rescue operation or not, our fellow fighters are the best of the best on the front line.<br/><br/>4/1/2022 乌克兰救援连线：小Sarah讲述新中国联邦乌克兰救援被波兰杂志大篇幅报道的背后故事，这可不是花钱能买来的尊重！无论其他媒体是否报道我们，我们的战友们在前线都是顶呱呱的第一名！<br/>
-![img](https://media.gettr.com/group4/getter/2022/04/02/00/0de9df63-1600-9e87-c72e-32d409b43db3/out.jpg)
 
 ---
 

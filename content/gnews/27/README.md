@@ -2,27 +2,28 @@
 ---
 
 
-## 泽连斯基抨击武器交付延误，质疑一些盟友背后的动机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2275725/)
+## 俄继续通过乌克兰向欧洲出口天然气
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2275748/)
 
-**撰稿：日本东京方舟农场 北极**
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据Plitico网站4月1日报道，乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskyy）周五发表抨击称，一些西方盟友推迟交付武器，并质疑美国和其他盟友的背后动机。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-1.jpeg)乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelenskyy）继续呼吁援助（图片来自Politico）
 
-泽伦斯基的言论是因为俄乌战争看不到尽头。他在接受福克斯新闻（Fox News）记者布雷特·拜尔（Bret Baier）采访时表示，他对西方有信心，他相信乌克兰和美国都有相同的价值观。但这位乌克兰领导人表示，如果武器或援助放缓，乌克兰人可能会开始质疑盟友的动机。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IDYNDLVQZFJSNCBYH7KAKUPXRY.jpg)
 
-泽伦斯基在对德国的一次演讲中挖苦说，“我们不想要一百万件高质量的防弹背心或一些特殊品牌的头盔，我们只要导弹和飞机。如果你不能交给我们像F-18，F-19这样战斗机或其他的东西，你们也可以给我们提供旧的前苏联飞机。给我一些东西来保卫我的国家吧！”
 
-据报道，在俄乌战争爆发前，1月26日德国国防部长克里斯蒂娜·兰布莱希特（Christine lambrecht）曾宣布将向乌克兰运送5000顶防弹头盔，但强调不会向基辅方面运送任何武器。
+图片来源：路透社
 
-参考链接：
-1. [https://reurl.cc/qOxdNE](https://reurl.cc/qOxdNE)
-2. [https://reurl.cc/mGVn3W](https://reurl.cc/mGVn3W)
+俄罗斯国有能源巨头俄罗斯天然气工业股份公司 (GAZP.MM) 周六表示，将根据欧洲消费者的要求，继续通过乌克兰向欧洲供应天然气。
 
-总编： 老孙
-校对发布：文曦
+该公司表示，4 月 2 日的需求量为 1.083 亿立方米，几乎与前一天的需求量持平。
+
+简评：俄罗斯最大的能源公司表示，会继续通过乌克兰向欧洲提供天然气。 这也和普京的意愿相违背。 能源现在是欧洲的软肋， 欧洲的能源供应主要依赖俄罗斯的供应， 而每天欧洲使用的能源都会提供给俄罗斯金源， 用于入侵乌克拉的战争。 能源是双刃剑， 解决能源问题才是欧洲不依赖别人的根本利益。
+
+🔗[https://www.reuters.com/business/energy/russias-gazprom-says-gas-exports-europe-via-ukraine-continue-2022-04-02/](https://www.reuters.com/business/energy/russias-gazprom-says-gas-exports-europe-via-ukraine-continue-2022-04-02/)
+
+编辑发表： Shuizhuyu
 
  
 

@@ -2,41 +2,70 @@
 ---
 
 
-## 郭文贵先生2022年4月2日盖特视频（9分42秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2275977/)
+## 乌克兰总理谈论重建的目标是加入欧盟 按照文明世界的标准生活
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2276045/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-唉，啊，我做了三组了，结果发现根本没录，哦，我快崩溃了都，啊，啊，再开始，啊……啊，我的天呐，现在做不录了，唉，我今天做六组，啊，不容易啊，啊，这俩轮那个，唉，力量不要那么大，但是效果不一样，这个胳膊，就这个地方，就这个地方（手臂背部，外部肌肉），还有这个地方（肱三头肌），后部（肩后部肌肉）完全不一样，但很爽。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-7.png)
-啊，今天，今天没有直播，明天星期天大直播，七哥也不上直播，明天……到一会儿，从俩小时以后开会，都是顾问会啊，很多关于新中国联邦的会，哇，这汗哇哇的，这些会啊，新中国联邦和国际合作，和国际NGO组织合作，啊，但是真幸福，也痛苦，知道那么多战争的真相，知道共产党病毒的，这种对人类的危害。
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-然后看到共产党隐瞒的真相，在上海、在长春、在广东、在其他省，太疯狂了，太疯狂了！就共产党邪恶和疯狂，全是中国人民惯出来的，中国人民为此买单呐，很惨呐啊。
+![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)
 
-啊，然后下一周没有任何时间，没有任何时间直播，大家耐心的看，呃，文贵兄弟姐妹们代表的文贵直播吧，他们做的太棒了，感谢他们，有点耐心，今天怎么对待他们的，未来他们就怎么对你。
+4月1日，乌克兰总理丹尼斯·什米哈尔(Denys Shmyhal)在 UArazom电视讲话中表示，乌克兰政府着手在乌克兰所有城市开展重建活动。什米哈尔指出，乌克兰的目标是加入欧盟并按照文明世界的标准生活。
 
-香港，国内经济，太差了。啊，哇太爽了“To the new world,Hcoin to the moon!”哇，太爽了，你看这世界形势，兄弟姐妹们，我们说的不可能都对，那我们就是神了，神都做不到，但是呢，我们的情报绝大多数都是正确的，情报也有变化，啊，但我们战友们都把握的是太好了！现在就是咱们得到世界这么人的认可和信任，虽然我很忙，但我很幸福，啊越看到这种真相的时候，你觉得这个世界上所有的问题，只有消灭中国共产党，世界才能和平，一切才能解决。真是越来越明白，只有消灭共产党，我们所有面临的问题才能解决。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/62481f3f6d6df163496532_820x360.jpg)
 
-你不信？不需要信，你就别信下去，去打疫苗，是吧？去买人民币，去中国，去肛拭，啊去中国去隔离，就像我说过去香港一样，怎么样？当时我告诉香港的同胞们，今天的大陆就是明天的香港，今天的香港就是明天的台湾，你不信？不信试试看。
+什米哈尔总理强调，今天乌克兰的所有资源和注意力都集中在乌克兰军队、军事和武装部队上，与此同时，许多不同领域的专家仍然在勇敢地工作，乌克兰整个国家都可以观察到医生、教育工作者和各个领域的专家是如何英勇地开展工作的。
 
-战友们，不要在乎别人信不信，你只在乎你做没做，最好他别信，坏人他最好别信，他信他王八蛋，他八辈儿不得好，别信，发自内心别信啊，如果是坏人千万别信，我们就希望那些人不信，啊你干嘛在乎人家信呢？然后我就纳了闷了？为什么战友们，别人要说我们好话呢？你没听过好话吗？自己给自己说，对着镜子说，直到说烦为止。
+在连续第37天的抵抗入侵战斗中，各个岗位的人都非常英勇和负责任地工作，几乎在所有部门都有人员伤亡。这打破了入侵者的计划，乌克兰一直在证明敌人的计划和乌克兰人民的愿望不一致。什米哈尔说，乌克兰人民希望生活在一个民主、发达和文明的国家。
 
-就像我一会儿要开会的人一样，昨天跟说：“Miles，我们明天开会，开会之前我能不能跟你多呃，多早见几分钟，单独说几句，在别人不在场，”我说为什么？（他说）：“啊我要说是谁谁谁谁。”哎我（说）不行，要说当着人所有说，（他说）：“哎呀，他跟我觉得是咱，是关于你的负面的事”，我说我就爱把我负面给说出去，啊说负面的也好，正面的也好，只要有人说就行。啊共产党要过三月、两月不给我做一次广告，我都难受，咱花多少钱，咱说的也没共产党说了咱效果好，啊共产党这些王八蛋，老杂毛们，他过一段时间都要花点钱，搞个所谓的严肃媒体搞咱一下，不就那样吗？我们邪教、骗子、魔鬼，三秒，是，yes,what’s going on,so what？对吧,又撒火鸡龚说：“so what ，so what，so what。”又能咋样啊？火鸡龚还是火鸡龚，是吧？路大脑骗、蛇妖闫、九指妖，一天比一天差，啊一定会走向监狱！怕啥嘞呀，怕啥嘞呀，到时间了，9分啊，下周见。
+乌克兰总理指出，战后应重新审查医学、教育、社会、军事和其他领域的所有设施和方法。
 
-稿件仅作参考，最终以郭文贵先生盖特视频内容为准。
+乌克兰将彻底记录战争中的所有损失，以便侵略者为此付出全部代价，乌克兰政府已经在Diia应用程序中推出了一项特殊服务，人们可以通过该服务登记有关被损坏或被毁财产的信息。
 
-郭文贵先生2022年4月2日盖特视频链接：https://gettr.com/post/p1379fx9b8e
+什米哈尔说，乌克兰将重建整个国家，在所有城市开始重建活动，重建被敌人毁坏的每一块土地。 乌克兰政府承诺将重建乌克兰公民的每间公寓，每栋房屋。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+此外，乌克兰还必须重振失去的机会。乌克兰今天经历了经济发展、科技和工业生产能力的放缓，所有这些都必须很快恢复，所有这些都将包括在乌克兰国家重建计划中。乌克兰政府目前正在同国际合作伙伴一起，开发巨大的科技潜力。
 
+在谈到重建资金来源时，乌克兰总理指出，主要是俄罗斯联邦被扣押和没收的资产，以及合作伙伴的支持和乌克兰的国家预算。此外，乌克兰政府正在与国际合作伙伴积极开展工作，以建立乌克兰重建基金。
 
+按照乌克兰政府预算，资金需求在数亿美元，今天世界和欧洲都准备好向乌克兰提供这些资金。该基金还将以没收俄罗斯联邦及其海外项目资金补充，同时补充乌克兰国家预算和恢复、增加乌克兰的经济潜力为代价。
+
+什米哈尔总理强调，他已经呼吁外国城市的市长与乌克兰姐妹城市的负责人联系，并开始共同研究重建的方法。
+
+同时，根据乌克兰国防部消息，4月2日，是俄罗斯入侵乌克兰的第38天，俄罗斯军队已经损失约17800人，坦克–631，APV1776,火炮系统-317，MLRS-100,防空作战系统-54，飞机–143,直升机-134，车辆-1236,舰艇-7，油箱-76，战术作战级别无人机-87，特殊设备–24，移动SRBM系统-4。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-02_23-12-00.png)
+
+入侵乌克兰的俄罗斯军队集结到卢甘斯克（Luhansk）和顿涅茨克（Donetsk）地区的行政边界，与乌克兰联合部队对峙。俄罗斯军队将继续在基辅方向的白俄罗斯边境和切尔尼戈夫州（Chernihiv oblasts）方向的俄罗斯联邦边境暂时守住占领的土地，以牵制乌克兰军队的行动。
+
+另据英国《每日邮报》（THE DAILY MAIL）报导，泽连斯基的军队已经将入侵的俄罗斯赶出了基辅周围和北部的数十个城镇。
+
+尤其是军事装备，俄罗斯离不开对乌克兰部件的信赖。（原来号称世界第二的军事强国，和中共CCP的假擀面杖一样不经揍）。
+
+乌克兰此前曾向俄罗斯提供巡航导弹（cruise missiles）、直升机发动机（helicopter engine）部件和战斗机（fighter jet）部件，它还生产俄罗斯坦克使用的火控系统（fire control systems）。现在，由于国际制裁，俄罗斯无法从其他国家采购这些物品或替代品，当这些系统出现故障时，它们无法被替换。
+
+英国国防消息人士称，鉴于俄罗斯在军事部件方面对乌克兰的依赖，俄罗斯武器系统的大量组件是在乌克兰制造的，俄罗斯不能自己制造或进口这种设备，在乌克兰消耗的硬件来自历史储备，是在俄罗斯和乌克兰之间加强合作时开发的。所以它不会很快得到任何这些材料的补给！
+
+在苏联时代，乌克兰生产了苏联30%的武器和军事装备。冷战后，乌克兰的武器销售仍在继续。2012年，乌克兰是世界第四大武器出口国，而独立国家联合体——正如苏联那样——是其最大的客户之一。2014年，俄罗斯入侵克里米亚（Crimea）并在顿巴斯（Donbas）地区开始冲突之后，基辅大幅减少了对其邻国的设备供应。
+
+俄罗斯的巡航导弹是在乌克兰第二大城市哈尔科夫制造的，该城市曾遭到俄罗斯大炮和飞机的轰炸。位于伊久姆（Izyum）的国营仪器制造厂还为俄罗斯的T-72系列坦克制造重要部件。预计这场战争还将削减俄罗斯的核计划，因为其陆基洲际弹道导弹（ground-based intercontinental ballistic missiles）的一半部件来自乌克兰。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-02_23-15-55.png)
+
+鉴于俄罗斯在军事部件方面对乌克兰的依赖，俄罗斯入侵乌克兰的战争努力陷入了严重困境。
+
+参考数据：
+
+[Prime Minister: Our goal is the European Union and living by the standards of the civilized world](https://www.kmu.gov.ua/en/news/premyer-ministr-nasha-meta-ce-yevropejskij-soyuz-i-zhittya-za-standartami-civilizovanogo-svitu)
+
+[Denys Shmyhal: We will start reconstruction activities in all cities of Ukraine](https://www.kmu.gov.ua/en/news/denis-shmigal-vidbudovu-mi-budemo-pochinati-v-usih-mistah-ukrayini)
+
+[Total combat losses of the enemy from 24.02 to 02.04](https://www.kmu.gov.ua/en/news/zagalni-bojovi-vtrati-protivnika-z-2402-po-0204)
+
+[The operational update regarding the #russian\_invasion as of 12:00 on April 2, 2022](https://www.kmu.gov.ua/en/news/operativna-informaciya-stanom-na-1200-02042022-shchodo-rosijskogo-vtorgnennya)
+
+[Russia’s war effort stalls as the Red Army can’t get replacement weapons or spares for their crippled convoys… because they’re all made in Ukraine](https://www.dailymail.co.uk/news/article-10677711/Russias-war-effort-stalls-Red-Army-replacement-weapons.html)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

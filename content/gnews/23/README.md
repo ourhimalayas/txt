@@ -2,40 +2,34 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“H-pay、喜支付”（十五）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275769/)
+## 教皇含蓄地批评普京对乌克兰的入侵
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275782/)
 
-#### **整理：BENJI**
-**编辑：朝花夕拾**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ARPIRRAAXFMM5OOYAK6COSIRQI.jpg)
+近日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，他说一个大国正在为民族主义利益煽动战争冲突。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/EA4F23CE-7A52-4044-B853-AD9815BB9ED6.png)
-**图片来源：雅典娜农场**
+普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前方济各为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。郭先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使得教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，并在暗中批评普京，他说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力出现，毫无疑问普京是无理地侵略，并强烈谴责其战争暴行。
 
+方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
 
-**郭文贵先生2022年2月13日直播**
+reference：
 
-● 文紫说战友之间看病这种HDO的交往，HPay，越用得越多越好。而且战友们，真的，我是真的发现很多战友真地很傻，不是一般的傻。没有人了解HPay，你看这么多人解(读)，包括我们现在最火的节目，就是我们的鸡血王这个节目。然后唐平也问我说，有人要打赏行不行？当然行！就是要鼓励大家打赏啊！我们这个HPay就要在战友之间流通啊。
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
 
-●请大家记住，人与人之间的货币流通。不会再被人卡脖子，HPay就牛在这儿了，我一点不开玩笑。小飞象你现在就该跟小飞侠说“咱俩不能这么每天我给你流水，咱俩得有点儿交易，十个币流一次”，HPay就可以了。文紫跟她老公也说“咱俩，你让我跟你，我辛辛苦苦地挣点钱回来，我还得给你流水，那对不起，十个币，你要不然咱别流”，憋死他，他必须给你来说。文紫，20个币行不行？对吧？就地抬高、抬价，咋不行呢？HPay就这样就做到了。
+撰稿、发布：骄子
 
-大卡车就这样做到了。你想要东西，是吗？用我大卡车是吗？对不起，你要支持我的整个的灭疫革命。你们没有意识到，大卡车经济这次，你知道法国，包括加拿大，那哥们儿跟我们联系。
+* * *
 
-●虚拟货币是最大赢家，虚拟货币最大赢家就是Hpay、H币，你还用想吗？你最好别买，有种别买。“我就有种！” 你有种别买。大家现在卖币的人我告诉你，你后悔早着呢。就我能看到有些战友傻呼呼的，场外60、65、70卖了，你哭那天很快就会到来。**记住我今天说的，你要超过三个月**，你就天天骂我郭文贵。你不知道在发生什么，此时此刻在发生什么。
+欢迎订阅我们的GNews账号：
 
-我没有本事决定，我没有决定权，我没有控制权，我绝对影响他们，因为什么？我所有这些关系，他们信我的，我的积累的信誉和知识，我说兄弟姐妹那三招儿**:****国家主权认可、大额投资、****Hpay****全面使用。**
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-你去想想这事情，在发生什么事情？世界的所有的经济在崩塌的时候，喜联储、喜币、Hpay、接下来的躺平币，使用即金钱。记住，国内的战友们，只要你使用盖特，你使用G-TV、使用G-New、使用H-coin，就是钱，我不跟你们开玩笑。
-
-资料来源：郭先生盖特直播视频
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
