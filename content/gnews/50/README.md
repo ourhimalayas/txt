@@ -2,103 +2,64 @@
 ---
 
 
-## 拜登的司法部曾承诺将“毫不留情地” 对抗中共国, 然而&#8230;
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2266773/)
+## 喜联储的目标：数字银行和交易所
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2264447/)
 
-**众议员迈克·沃尔茨： **
-拜登的司法部曾承诺将“毫不留情地” 对抗 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD)。 然而，却撤消了一项保护美国知识产权免遭 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 盗窃的计划。 看起来这个政府更渴望安抚政治活动人士和中共，而不是保护我们的国家安全。 【转沃尔茨议员自己的推文，他与比格斯议员和菲茨杰拉德议员致函司法部长助理，敦促撤销司法部结束“中国倡议”的决定（附信函）】
+**整理：小亮**
 
+喜币目前事实上数字货币排第6位！从交易量快速增长上看排第3，这个速度，明年就是第二或者第一了！做KYC的数字货币里现在就是全世界第一！52买的币只要不卖，一定会涨回去！有机构在敛币，战友们搂住，别被带跑了。几周的时间会有震撼的消息！
 
+喜联储认为喜币会超过1000，目标是数字银行和交易所！某个前5大的社交媒体希望用喜币打赏。
 
-> Biden's DOJ promised to be "relentless" in defending against China. Yet, cancels a program that protects US intellectual property from CCP theft.
-> 
-> Looks like this admin’s more eager to appease political activists & the CCP than protect our national security. [https://t.co/upqv5Oshqp](https://t.co/upqv5Oshqp)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 31, 2022](https://twitter.com/michaelgwaltz/status/1509624826918543377?ref_src=twsrc%5Etfw)
+未来很长一段时间内，使用Hpay的都是高净值客户，全世界有哪一个品牌与商家愿意放弃这样的客群？而反过来每一个商家与品牌对Hpay的支持，都将扩大Hpay的支付覆盖并助长Hpay的价值。当Hpay与全球实物市场从“秒支付”技术突破起，就将持续相生相长、持续壮大。
 
+国外银行是各自独立的，没有“银联”这种行政机构把他们统一起来，现有的swift系统仅仅是各家银行互认的支付协议体系，同时这个体系必须依靠电汇手续费来维持。
 
+paypal的本质是“数字记账工具”，是在swift基础上与各银行间打造一个对敲的协议。它提高了转账速度，但并没有节省转账成本。
 
-**参议员瑞克·斯科特: **
-令人难以置信的是，拜登政府终止了就 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 对美国商业机密盗窃和经济间谍活动追究其责任的努力。我的法案将重新确立“中共倡议”(计划)并进一步防止 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 的间谍活动和干涉。【附参议院官网文：参议员瑞克·斯科特带领同事们提出法案要重建“中共倡议”并防止中共间谍活动】 参议员瑞克·斯科特: 我要感谢哈格蒂参议、卢比奥参议、布劳恩参议员、布莱克本参议员、和约翰逊参议员与我一起支持这项重要的法案，以对抗 [#共产中国](https://gettr.com/hashtag/%23%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD) 的经济战。
+Hpay的诞生，可以让全世界30亿使用智能手机的认，彻底享受到“零手续费秒到”的待遇，而且是实实在在的真钱。**这种便利性和无成本，彻底颠覆了****swift****系统和****paypal****。**
 
+用Hpay合理避税是卖家们最无法抗拒的诱惑。Hpay \* Gfashion,为对公商业推广起到了样板和教学的作用，实现了从0到1的突破，这是其最重要的意义，接下来就是核裂变，当这种裂变开始后，依靠Hpay的优势，会对法币swift生态和法币卡组织生态形成剧烈的“虹吸效应”，那才是喜币真正起飞的时刻。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/22-8.png)
+Binance （币安）首席执行官赵长鹏本周在巴西进行了系列访问，包括与巴西最重要的地区圣保罗州州长进行会谈，出席以太坊里约热内卢的活动，以及计划收购巴西合规证券经纪公司 Sim;paul。不过 Binance 的监管情况在巴西也是一个敏感问题，它声称在巴西没有正式存在。
 
+币安的合规性一直是一个问题，郭先生曾多次提到币安参与大量洗钱交易，最后必然会付出惨痛代价。
 
-> It's unfathomable that the Biden admin ended efforts to hold Communist China accountable for U.S. trade secret theft & economic espionage. My bill will reestablish the CCP Initiative & again prevent spying & interference by the Chinese Communist Party. 1/2 [https://t.co/kE4YMUXaw7](https://t.co/kE4YMUXaw7)
-> — Rick Scott (@SenRickScott) [March 31, 2022](https://twitter.com/SenRickScott/status/1509630477510053899?ref_src=twsrc%5Etfw)
+**乌克兰战争标志着全球化终结**
 
+全球最大资产管理公司贝莱德（BlackRock）董事长兼CEO拉里-芬克（Larry Fink）警告称，乌克兰战争将重塑世界经济，并促使企业撤出全球供应链，从而进一步推高通胀。他在致贝莱德股东的一封信中表示：
 
+“俄乌冲突结束了我们在过去三十年中所经历的全球化。”
 
-**众议员迈克·沃尔茨：** 
-拜登的司法部取消了“中国倡议”，该倡议旨在调查教授/研究人员每年窃取 2250-6000 亿美元的美国知识产权用于 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) [#CCP](https://gettr.com/hashtag/%23CCP) 军事建设。 阅读更多关于我们如何追究拜登的司法部和 [#中共国](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的责任【转华盛顿自由灯塔：新消息：三名众议院共和党人声称，由于激进活动分子和 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 的压力，拜登政府取消了川普时代的“中国倡议”计划。 该决定“似乎只是出于身份政治的动机”。】
+信中，拉里芬克还阐述了自己对能源及数字货币的看法。能源方面，他认为，短期来看俄乌冲突不可避免地减缓了世界向清洁能源迈进的进程，但长远来看，这加速了世界向绿色能源转化的脚步。
 
+截至21年底，贝莱德管理着10万亿美元的资产，是全球最大的资产管理公司。作为这家资管巨头的CEO与创始人，拉里芬克被誉为“华尔街教父”。
 
+全球化时代终结，供应链推高全球通胀
 
-> Biden's DOJ scrapped the “China Initiative,” which investigated professors/researchers stealing $225-600 BILLION in American intellectual property every year for [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) military buildup.
-> 
-> Read more about how we're holding both Biden's DOJ & China accountable 👇 [https://t.co/Ukd0OUOmMO](https://t.co/Ukd0OUOmMO)
-> — Rep. Mike Waltz (@michaelgwaltz) [March 31, 2022](https://twitter.com/michaelgwaltz/status/1509622219412021248?ref_src=twsrc%5Etfw)
+芬克指出，自新冠疫情以来，全球经济便走向脱钩，而俄乌冲突加剧了这一趋势。虽然直接的结果是俄罗斯完全被资本市场孤立，但芬克预计，今后企业和政府将更广泛地思考它们对其他国家的依赖，这可能会导致企业将更多业务转移到本国或邻近地区，并更快地“从一些国家撤出”。
 
+他认为，这种逆全球化的“脱钩”将不可避免地给企业带来更多挑战，如更高的成本和利润压力。而这种供应链的大规模“重新定位”，将会导致通货膨胀。
 
+提到央行政策调整时，芬克强调，各大央行正面临数十年来从未面临过的两难局面，即必须在高通胀和经济活动放缓以遏制价格压力之间做出选择。
 
-**参议员泰德·克鲁兹： **
-联邦政府有能力鼓励、培育加密货币领域的创新，或者彻底摧毁它。 该法案在确保大政府不会试图集中控制加密货币方面大有帮助。 【附克鲁兹新闻室发布消息：参议员克鲁兹引入立法禁止美联储单边控制美国数字货币】
+清洁能源转型：短期降速，长期提速
 
+芬克在这封10页长的信中还谈到了这场对能源转型和加密货币的影响。
 
+这封信没有提到任何具体的国家会受到这种转变的伤害，但芬克写道，“墨西哥、巴西、美国或东南亚的制造业中心可能会受益”。
 
-> The federal government has the ability to encourage and nurture innovation in the cryptocurrency space, or to completely devastate it.
->  
-> This bill goes a long way in making sure big government doesn’t attempt to centralize and control cryptocurrency.[https://t.co/zhdjESPvFm](https://t.co/zhdjESPvFm)
-> — Senator Ted Cruz (@SenTedCruz) [March 31, 2022](https://twitter.com/SenTedCruz/status/1509612936695713820?ref_src=twsrc%5Etfw)
+芬克在信中指出，如今，能源安全已成为全球能源转型的重中之重。还预测，乌克兰战争将影响全球向清洁能源的过渡。
 
+他写道，由于对俄罗斯大宗商品的裁制，能源价格已大幅上涨。芬克认为，这“不可避免地减缓了”全球向清洁能源迈进的进程。在保障能源安全的前提下，明年，美国的重点是增加石油和天然气的供应，而欧洲和亚洲的煤炭消费可能会增加。
 
+然而，“从长期来看，我相信近期的事件实际上会加速向更绿色能源的转变”：
 
-**参议员卢比奥新闻办公室： **
-卢比奥在参议院外交关委员会，就 #中共 在拉丁美洲和加勒比地区的影响举行的听证会上，质询“美洲关系对话”亚洲和拉美项目主任玛格丽特·迈耶斯，和美国军事学院拉丁美洲研究教授罗伯特·埃利斯。
+首先，政策制定者将推动对可再生能源的投资，将其作为能源安全的重要组成部分。例如，德国就已把实现100%清洁能源的时间点从2050年加速至2035年。
 
+其次，过高的化石能源价格使得清洁能源的价格更具竞争力。
 
-
-> Ranking Member Rubio questions [@MyersMargaret](https://twitter.com/MyersMargaret?ref_src=twsrc%5Etfw), Dir of Asia and LATAM Program at [@The\_Dialogue](https://twitter.com/The_Dialogue?ref_src=twsrc%5Etfw) and [@ArmyWarCollege](https://twitter.com/ArmyWarCollege?ref_src=twsrc%5Etfw) LATAM Research Professor [@REvanEllis](https://twitter.com/REvanEllis?ref_src=twsrc%5Etfw) at a [@SenateForeign](https://twitter.com/SenateForeign?ref_src=twsrc%5Etfw) Relations Subcommittee Hearing on [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) influence in Latin America and the Caribbean.
-> 
-> Watch below: [pic.twitter.com/CzH1QBOLNM](https://t.co/CzH1QBOLNM)
-> — Senator Rubio Press (@SenRubioPress) [March 31, 2022](https://twitter.com/SenRubioPress/status/1509586559430971398?ref_src=twsrc%5Etfw)
-
-
-
-**众议员李·泽尔丁： **
-美国不需要动用战略石油储备。 
-美国不需要向外国独裁者乞求石油。 
-今天就（开始）提高国内能源生产！
-
-
-
-> The United States doesn’t need to tap into the Strategic Petroleum Reserve.
->  
-> The United States doesn’t need to beg foreign dictators for oil.
->  
-> Ramp up domestic energy production TODAY!
-> — Lee Zeldin (@RepLeeZeldin) [March 31, 2022](https://twitter.com/RepLeeZeldin/status/1509638096924684289?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院发言人内德·普莱斯： **
-我们对现职英国法官辞去香港终审法院职务的决定表示赞赏。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和香港当局对司法机构施加了难以承受的压力，损害了香港作为法治堡垒的声誉。 【附[GOV.UK](https://t.co/PTh4byJj12)的文章：外交大臣支持英国在职法官退出香港终审法院】
-
-
-
-> We applaud the decision by serving UK judges to resign from Hong Kong’s Court of Final Appeal. PRC and Hong Kong authorities have placed untenable pressure on the judiciary, undermining Hong Kong’s reputation as a bastion of rule of law. [https://t.co/0dSKfVQwVd](https://t.co/0dSKfVQwVd)
-> — Ned Price (@StateDeptSpox) [March 31, 2022](https://twitter.com/StateDeptSpox/status/1509679286734655497?ref_src=twsrc%5Etfw)
-
-
-
-**美前国务卿迈克·蓬佩奥：** 
-乔·拜登的鲁莽言辞是危险的。坏人在注意我们说的话，他们一直在盯着他的所有错误。 
-【附访谈录音：大意是蓬佩奥批评拜登不该说’普京不能再掌权’这类的狠话，打口炮可能会事得其反，要多行动少说废话】
-
-
-
-> Joe Biden’s recklessness with his words is dangerous. The bad guys watch what we say, and they’ve been watching all of his blunders. [pic.twitter.com/4LqGG969fs](https://t.co/4LqGG969fs)
-> — Mike Pompeo (@mikepompeo) [March 31, 2022](https://twitter.com/mikepompeo/status/1509663564189024259?ref_src=twsrc%5Etfw)
-
-
+尽管气候活动人士希望投资者完全避开化石燃料，但芬克拒绝这样做。他写道：“贝莱德仍致力于帮助客户渡过能源转型时期。这包括继续与油气公司合作。为了确保过渡期间能源价格的连续性，像天然气这样的化石燃料将是重要的过渡燃料。”
 
  
 
