@@ -2,31 +2,41 @@
 ---
 
 
-## 有声|81岁老人徒步逃离战乱 新中国联邦送温暖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2276804/)
+## 俄乌战争的“没想到”之二
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276870/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月30日，新中国联邦乌克兰前线救援团队，在梅迪卡基地接待了一位81岁高龄的乌克兰老奶奶。
+视频制作：多伦多蓝莲花视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
 
-为逃离战乱，老奶奶徒步60公里到达梅迪卡。新中国联邦前线战友热情地接待老奶奶，提供食物和休息场地，让她在等待亲人的期间感受到温暖。
+俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
 
-接下来，我们一起收看来自前线的报导。
+第二个没想到：
 
-文字版原文：[81岁老人徒步逃离战乱 新中国联邦送温暖](https://gnews.org/zh-hans/2268008/)
+没想到西方世界不再绥靖，而且出乎意料的团结一致，北约因此再次共抗外敌。
 
-音频处理：Fei797
-发稿：Fei797
+西方尤其欧洲需要俄罗斯的石油，更需要俄罗斯的天然气。但是这一次整个西方世界都旗帜鲜明的站出来支持乌克兰反对普京的暴行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+西方对俄罗斯国家和寡头的制裁力度越来越大，范围越来越广，将俄罗斯踢出Swift 支付系统。西方企业断腕，抛弃在俄业务和利益。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+互联网平台更是一边倒的支持乌克兰，对俄罗斯杜马和寡头的制裁也起到了很大震慑作用。
+
+俄罗斯卢布暴跌，百姓生活艰难。股市崩盘，经济大伤元气。这种惨烈的制裁后果，估计俄罗斯自己都没想到。
+
+现在美国又想将俄罗斯驱逐出 G20，甚至酝酿对付东方独裁国家的举动，目标一致对准了独裁政权。
+
+我们都没有想到民主与独裁的对抗在这次战争如此泾渭分明。
+
+视频文案：Wood(文斌）
+
+发布：冰糖葫芦喵
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

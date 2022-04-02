@@ -2,29 +2,31 @@
 ---
 
 
-## 俄乌战争的“没想到”之一
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276695/)
+## 有声|81岁老人徒步逃离战乱 新中国联邦送温暖
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2276804/)
 
-视频制作：多伦多蓝莲花视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月30日，新中国联邦乌克兰前线救援团队，在梅迪卡基地接待了一位81岁高龄的乌克兰老奶奶。
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+为逃离战乱，老奶奶徒步60公里到达梅迪卡。新中国联邦前线战友热情地接待老奶奶，提供食物和休息场地，让她在等待亲人的期间感受到温暖。
 
-我们总结了几个“没想到”和大家分享：
+接下来，我们一起收看来自前线的报导。
 
-1  没想到普京欺骗本国军人，一意孤行，甚至发展到无耻地向乌克兰平民袭击。出于独裁者的欲望，更出于害怕乌克兰的民主气息影响到俄罗斯。俄军从几个方向同时向乌克兰国际发起进攻，兄弟之国兵戎相见，双方死伤无数，俄军自己的伤亡更是巨大。但独裁者个人的欲壑难填，世界将会看得更加清楚，让世界最危险的因素是独裁统治。是自由民主的意识形态和独裁意识形态之间根本的对立。普京的背后是中共的支持，中共是这一切的祸害之源。
+文字版原文：[81岁老人徒步逃离战乱 新中国联邦送温暖](https://gnews.org/zh-hans/2268008/)
 
-文案：wood（文斌）
+音频处理：Fei797
+发稿：Fei797
 
-发布：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
