@@ -2,33 +2,46 @@
 ---
 
 
-## 俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273694/)
+## 开始了！BBC主持人在节目现场与骗子福奇对峙
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
 
-**图/文｜CP **
-**发布时间｜02/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄軍中輻射逃離切爾諾貝利-IAEA率團前往援助.jpg)
+翻译： Jenny Ball
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
 
 
-国际原子能机构（IAEA）负责人格罗西（Rafael Grossi）周五（1日）表示，他将会率领团队前往切尔诺贝利（Chernobyl）核电厂，以协助确保当地核设施安全，并于加里宁格勒与俄罗斯高级官员举行会谈。
 
-乌克兰国家核电公司（Energoatom）日前证实，所有占领切尔诺贝利核电厂的俄罗斯士兵已经完全撤离。负责管理禁区的 Energoatom 员工表示，目前核电厂“已无外来人”，俄军撤离后向白罗斯方向进发，该员工还提供了俄方和核电厂签订的协议，显示俄罗斯同意将核电厂管理权交还。
+2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
 
-另外，Energoatom还证实，早前俄军在未有防辐射装备的情况下，于高辐射区挖战壕，导致不少士兵身体出现疑似受辐射感染的症状，造成军心大乱，“士兵之间几乎开始酝酿暴动”，不久后俄军就陆续撒走。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
 
-路透社本周一引述核电厂工作人员指，亲眼目睹俄军士兵不穿防护衣，驾车穿过辐射污染最严重的“红森林”（Red Forest）区，当时工作人员就很担心军车驶过所扬起的放射性尘埃会被士兵吸入体内，发生内放射反应。
+福奇博士说他被“误解了”。
 
-红森林位于基辅以北约100公里的地方，切尔诺贝利核电厂1986年发生核灾时，该地数十平方公里的松树因吸收了大量辐射后而变红，因此得名“红森林”，它被认为是世界上最严重的核灾区之一，由于高度污染，甚至连核电厂的员工都不被允许进入。
+这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
 
-俄军在入侵乌克兰后一度占领切尔诺贝利，IAEA多次要求俄乌双方召开紧急会议商定协议，以确保核设施安全，惟一直不获俄方重视。
+对合法的新闻服务有所了解一定不错。
 
-來源｜[路透社](https://www.reuters.com/world/europe/iaeas-grossi-says-will-head-mission-chernobyl-soon-possible-2022-04-01/)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3444941-russian-invaders-leaving-chornobyl-npp-energoatom.html)
+遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
+
+我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
+
+BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
+
+新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+审核：文乐     
+校对：信心满满
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

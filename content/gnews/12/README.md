@@ -2,57 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.2）&#8211;辉瑞疫苗三针后发烧乏力肌肉酸痛
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2275168/)
+## 【G叻睇真D】美国前总统唐纳德·川普的Truth Social社交应用流量暴跌
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2275264/)
 
-整理：禄森
-编辑：BENJ1
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+来自《TheWrap》网站3月29日的消息称，根据Sensor Tower的数据，美国前总统唐纳德·川普的「Truth Social」应用程序的注册人数下降了93%，流量也出现了类似的急居下降。上个月，该应用程序推出时出现了技术问题，新注册用护需要等待大量时间才能真正使用该服务。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)图片来源：雅典娜设计组
+据Sensor Tower透露，「总统日」当天上线的「和推特长得很像的应用程序」自发布一周以来，安装量减少了80多万次。据初步估计，本月苹果应用商店的安装量已降至每周约6万次。这位「推特杀手」目前仅吸引了120万用护。
 
+间评：川普总统在任期间实行推特治国，但被中共操控的Twitter数度封杀言论最终关闭帐号。川普总统没有接受中共对美国媒体、司法、国会、科学界、甚至军队的渗透已经让他黯然下台的教训，又在建立新媒体意在东山再起时和有中共背景的公司合作，他没有对中共邪恶的深刻认识和灭共的愿望和抉心，很可能再次落入中共的圈套和陷阱落得个身败名裂的结局！
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+编辑/上传：一叶
+盖特链接：[https://www.gettr.com/post/p132d8b55df](https://www.gettr.com/post/p132d8b55df)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
+* * *
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-帖子原文：
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
 
-疫情|新冠疫苗副作用  辉瑞疫苗第三针嗓子痛，鼻子酸，整条手臂酸痛并伴有发烧，头昏耳鸣
-
-————————————————-
-
-周五一下班就跑去了打booster
-
-打针的时候护士小姐姐还问我前两针打完怎么样
-
-我还说没有反应
-
-事实证明这种话不能乱说
-
-Day 1⃣️ 6:30pm打完，打的时候能feel到药水注射进我的肌肉，是三次里最痛的一次，后来一切都正常，晚上回家烤和牛补补，可能也因为是第三次了没太在意了，没有大量喝水和吃维生素；凌晨3点嗓子干痛到醒来，像刀割一样痛
-
-Day2⃣️早上起来嗓子还是很疼，鼻子酸，整条手臂很酸，头一点点晕，因为嗓子疼不是common side effect，更像是covid，所以做了个rapid test是negative；然后开始发烧，怕冷，吃了颗panadol退烧就出门了，感觉都还好；晚上再吃颗panadol出门吃晚饭，就感觉panadol已经不好使了，头很晕，耳朵像感冒那样蒙了层东西，听别人说话很吃力，怕冷；晚上回到家洗热水澡后大喷嚏，开始了重感冒
-
-Day3⃣️（今天）基本不发烧了，嗓子也不疼了，但是打针那边手臂的腋下肿了，而且特别酸痛，整个人头很重，乏力，有鼻音，耳朵比昨天还严重，还是怕冷，完全变成了重感冒的样子，今天基本睡了一天，坐起来头就难受
-
-虽然病成这样，但是食欲特别好，怎么吃都吃不饱，一个广东人今晚干了一大盆东北酸菜
-
-明天请了病假，继续睡觉一天
-
-#辉瑞第三针 #辉瑞疫苗副作用
-
-参考链接：
-
-**[辉瑞疫苗第三针后发烧感冒肌肉酸痛](https://www.xiaohongshu.com/discovery/item/6236f74f000000000102b91f?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648867086)**
-
-*发布：tianzhihuan*
-
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

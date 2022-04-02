@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 1:54 PM (UTC)`
+
+【Ukraine Rescue】03/30/2022 Some refugees are fleeing Ukraine, while others are choosing to return to Ukraine, and those who choose to return are doing so because it is difficult to survive abroad. In any case, the NFSC and the ROLF provide them with as much help as possible.<br/><br/>【乌克兰救援】03/30/2022 一些难民在逃离乌克兰，而其他人则选择回到乌克兰，选择回国的人是因为在外生存艰难。无论如何，新中国联邦和法治基金会尽可能地给他们提供帮助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group23/getter/2022/04/02/13/4ee1fa3b-ef52-2bd5-d5b7-ea8449053cc2/out.jpg)
+
+---
+
 `@miles 4/2/2022 1:11 PM (UTC)`
 
 4月2号，国内的噩梦和吃草的时代还远远没有到来，这些让中国老百姓不吃公共草坪的这些人，末来他们比这些老百姓还要惨！【七哥，墙内吃草的灾难还没来，关键是现在草都不让吃，悲剧，太惨了。】
@@ -147,13 +154,6 @@
 
 【Ukraine Rescue】04/01/2022 Nicole, a volunteer of the NFSC & ROLF, said that the rescue team is making better preparations than before to receive more refugees at any time who are likely to flee Ukraine. Miles Guo has long since reminded us that we will not withdraw our rescue team.<br/><br/>【乌克兰救援】04/01/2022 新中国联邦和法治基金义工妮可介绍说新中国联邦和法治基金救援团队正在做着更好的准备，随时去迎接更多有可能要逃离乌克兰的难民。郭文贵先生早就提醒到大家，我们这个点是不能撤的。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group4/getter/2022/04/02/00/d7d82b71-f4f5-2212-5cda-6c54a05e1441/out.jpg)
-
----
-
-`@miles 4/2/2022 12:32 AM (UTC)`
-
-2022.04.01 晚 《新中国联邦新闻》正义信念、完善设备、醇美咖啡引起越来越多的关注； 战地钢琴家演绎战地浪漫
-![img](https://media.gettr.com/group36/origin/2022/04/02/00/2df356ae-b7e2-7cba-6112-7827a7034bbe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
