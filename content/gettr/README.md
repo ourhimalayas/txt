@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 9:15 PM (UTC)`
+
+4/2/2022 Miles Guo’s GETTR: Every once in a while, the CCP would hire the so-called “mainstream” media to smear us. So what? The CCP’s "advertisements" for us are much more effective in letting people know about who we really are than our own words!<br/><br/>4/2/2022 文贵盖特：中共隔三差五会花钱雇所谓严肃媒体来污蔑我们，那又怎样？中共给咱们做的“广告“比咱自己说自己有效多了！<br/><br/>
+![img](https://media.gettr.com/group14/getter/2022/04/02/21/8a9011d1-86cc-7054-0210-1675210f8abf/out.jpg)
+
+---
+
+`@miles 4/2/2022 9:10 PM (UTC)`
+
+4/2/2022 Miles Guo’s GETTR: I am going to attend lots of meetings about the international collaborations of the New Federal State of China. The damage of the CCP virus, and the CCP’s insanity and evilness will make the Chinese people pay a dear price. Only by taking down the CCP can we fix all the problems in the world. Fellow fighters, please keep taking action. Never mind whether others would believe you or not.<br/><br/>4/2/2022 文贵盖特：文贵要参加很多关于新中国联邦和国际合作的会；中共病毒的危害以及中共的疯狂与邪恶将让中国人付出巨大的代价，只有灭共才能解决世界上所有的问题；请战友们继续行动，不要在乎别人信不信！<br/>
+![img](https://media.gettr.com/group7/getter/2022/04/02/21/f3eed8d5-2ad5-a417-173d-9640a9be7000/out.jpg)
+
+---
+
 `@miles 4/2/2022 7:03 PM (UTC)`
 
 2022-4-2《避风港》(31) 疫苗接种者占病毒死亡人数接近95%
@@ -140,20 +154,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 【Ukraine Rescue】04/01/2022 Nicole, a volunteer of the NFSC & ROLF, said that the rescue team is making better preparations than before to receive more refugees at any time who are likely to flee Ukraine. Miles Guo has long since reminded us that we will not withdraw our rescue team.<br/><br/>【乌克兰救援】04/01/2022 新中国联邦和法治基金义工妮可介绍说新中国联邦和法治基金救援团队正在做着更好的准备，随时去迎接更多有可能要逃离乌克兰的难民。郭文贵先生早就提醒到大家，我们这个点是不能撤的。<br/>
 ![img](https://media.gettr.com/group50/getter/2022/04/02/02/68d9265d-1396-2cf6-08f0-080f4192546a/out.jpg)
-
----
-
-`@miles 4/2/2022 2:55 AM (UTC)`
-
-【Ukraine Rescue】03/31/2022 In an interview with Wen Yao, a Polish mother who has come to volunteer on the front line tells us that as a mother of four children, she is doing it not only to help the Ukrainians, but also for the safety and future of her own children, because the war could spread and there will be no peace in the world if people do not step forward to help the Ukrainian people end this war within their borders.<br/><br/>【乌克兰救援】03/31/2022 一位来前线的志愿者接受文耀采访时表示：她是一名4个孩子的母亲，她不仅是为了帮助乌克兰人，也是为了自己孩子们的安全和未来，因为战争有可能会蔓延开来，如果人们不挺身而出帮助乌克兰人民在其境内结束这场战争，那么全世界都无和平可言。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group47/getter/2022/04/02/02/c27b1fd8-7cff-ed03-cc71-1beb791fb7db/out.jpg)
-
----
-
-`@miles 4/2/2022 2:16 AM (UTC)`
-
-04.01.2022 NFSC finance 新中国联邦 | 喜财经 俄乌开战后，中国市场掀撤资潮
-![img](https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
