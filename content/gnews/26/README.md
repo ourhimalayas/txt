@@ -2,48 +2,97 @@
 ---
 
 
-## 泽连斯基演讲寻求更多军事援助 制裁俄警告粮食危机
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2267863/)
+## 众议员迈克·加西亚：在全球发生混乱之时，中共国仍然是美国的最大威胁
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2271633/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-01-下午3.13.40.png)图片来源：互联网
-泽连斯基荷兰议会演讲表示乌克兰需要更多军事支持将俄罗斯侵略者赶走，如果不能阻止俄罗斯，它将侵略整个欧洲如同二战纳粹一样，呼吁依法惩罚那些在乌克兰犯下战争罪行的俄罗斯人，警告全球粮食危机的到来，
+**众议员迈克·加西亚**： 
+美国必须密切关注 [#中共国](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD)。在全球范围内发生混乱的同时，中共国仍然是我们国家安全的最大威胁。中共国没有报告 COVID-19 ([#中共病毒](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92)) 的爆发，他们继续威胁我们的网络安全，他们正在盯着 [#台湾](https://www.gettr.com/hashtag/%23%E5%8F%B0%E6%B9%BE)。 
+【转华尔街日报文章：台湾从乌克兰战争中寻找防御 [#中共国](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 的方法 这个岛屿民主国家的一个重要潜在变化可能会是扩大征兵】
 
-乌克兰总统泽连斯基周四（3月31日）在荷兰议会演讲，将当前俄罗斯侵略乌克兰的战争比作80年前残暴二战的卷土重来，如果不能阻止俄罗斯，它将侵略进一步扩大到欧洲，乌克兰只是一个开始，警告全球粮食危机。
 
-泽连斯基说：”如果欧洲大陆的和平没有得到维护，如果伟大的战争以不亚于80年前的残酷性卷土重来“，俄罗斯的普京就像二战的德国纳粹希特勒，先后快速攻占丹麦、挪威、荷兰、比利时、卢森堡、法国等国家，他说：”特别是由于俄罗斯的许多人想把这种侵略带得更远，更远到欧洲。鹿特丹那些废墟的阴影已经笼罩着许多欧洲城市。如果俄罗斯不被阻止，乌克兰只是一个开始。如果我们不立即阻止它！“【1】
 
-对于不身处战争前线的人们来说，俄侵乌已36天（截至3月31日），新闻报道可能令人思想情感感到疲倦，但对处在水深火热中的的乌克兰人民来说，他们每时每刻面对生死存亡。
+> America must keep its eye on China. While chaos ensues around the globe, China remains the greatest threat to our nation's security. China failed to report the COVID-19 outbreak, they continue to threaten our cybersecurity, and they are watching Taiwan.[https://t.co/SPER35itMK](https://t.co/SPER35itMK)
+> — Rep. Mike Garcia (@RepMikeGarcia) [April 1, 2022](https://twitter.com/RepMikeGarcia/status/1509933894740549633?ref_src=twsrc%5Etfw)
 
-泽连斯基说：“对于其他许多人来说，乌克兰的战争正变得司空见惯“，长时间的战争报道，让不是身处战区的人们对关于被毁房屋和炮击城市和社区数量每日报道反应麻木，虽然很不幸，他说：”但不适用于那些每分钟都有生命危险的人。“【1】
 
-泽连斯基呼吁依法惩罚俄罗斯那些为战争罪行负责的人，制裁俄罗斯，更快摆脱俄罗斯油气绑架。他说：“这样他们（欧盟）的数十亿欧元就不会用于乌克兰的武器生产和大规模杀戮。”
 
-泽连斯基说：“独裁（Tyranny ）必输。独裁（Tyranny ）总是输！”【1】
+**前国务卿迈克.蓬佩奥**： 
+伊朗核协议（JCPOA ）必须被国会阻止，因为它对以色列和中东和平构成了生存威胁。 任何独裁国家都不能成为中东地区的全球主导力量。 （阅读）我在新闻周刊最新发表的观点文章： 【附文章链接：中东和北非：维度和挑战】
 
-他感谢荷兰已经提供的援助，表示乌克兰要战胜俄罗斯侵略者需要更多的武器援助，“我们需要能够将占领者赶出我们土地的武器。飞机、坦克、NASAMS防空系统和Spike反坦克系统、炮弹、导弹等等。”
 
-**俄罗斯正破坏乌克兰农业生产力，制造全球粮食危机。**
 
-泽连斯基在会上说：“俄罗斯军队正在故意摧毁我们的农业部门”，炸毁农业设施，破坏生产力，而这将：“引发粮食危机。不仅在乌克兰 – 在世界上。”【1】
+> The JCPOA must be blocked by Congress, for it represents an existential threat to Israel and to peace in the Middle East. No dictatorial state can be allowed to become the dominant global power in the Middle East. My latest in Newsweek: [https://t.co/MEIjy3CaIR](https://t.co/MEIjy3CaIR)
+> — Mike Pompeo (@mikepompeo) [April 1, 2022](https://twitter.com/mikepompeo/status/1509980181242466304?ref_src=twsrc%5Etfw)
 
-乌克兰是小麦、玉米和葵花油等商品出口大国，是欧盟第四大外部粮食供应国，欧盟一半以上的玉米进口，大约五分之一的软小麦进口，以及近四分之一的植物油（比如葵花籽油）来自乌克兰。
 
-不仅是欧洲，从中东、北非（埃及、利比亚和黎巴嫩进口小麦）到亚洲同样大量进口乌克兰粮食。根据盖洛普的研究，阿尔及利亚的小麦进口量中惊人的 48% 来自乌克兰。联合国世界粮食计划署通讯负责人乔丹考克斯说，它将 2022 年称为“灾难性饥饿之年”。【2】
 
-值得注意，粮食危机和价格也是导致2010年中东”阿拉伯之春“运动重要因素之一，运动中阿拉伯世界一些国家民众纷纷走上街头，要求推翻本国的专制政体的行动，而今天中东沙特、阿联酋等传统产石化燃料国家非但不谴责俄罗斯侵略站在，还与俄罗斯和中共独裁站在一起，这也是”轮回“。
+**比尔·戈茨**： 
+本周的华盛顿时报内幕[@WashTimes](https://twitter.com/WashTimes)：北约指挥官希望五角大楼保留核巡航导弹、B83 炸弹； 俄罗斯在白俄罗斯放置核武器； [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对欧洲的威胁 
+【附华盛顿时报登载的比尔·戈茨的文章：欧洲指挥官：保留核巡航导弹、重型炸弹】
 
-演讲最后泽连斯基对乌克兰人民战胜独裁者战争表示乐观，还邀请荷兰参与到乌克兰的重建项目中。
 
-参考链接：
 
-【1】[乌克兰总统在荷兰议会发表讲话](https://www.ukrinform.net/rubric-ato/3444769-ukrainian-president-addresses-dutch-parliament.html)
+> This week’s Inside the Ring [@WashTimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw): NATO commander wants Pentagon to keep nuclear cruise missile, B83 bomb; Russia to put nukes in Belarus; China threat to Europe [https://t.co/lc2M9BECVo](https://t.co/lc2M9BECVo)
+> — Bill Gertz (@BillGertz) [April 1, 2022](https://twitter.com/BillGertz/status/1509996719257231362?ref_src=twsrc%5Etfw)
 
-【2】[乌克兰战争对全球粮食系统造成重大打击的 5 个原因](https://www.politico.eu/article/war-in-ukraine-global-food-system-wheat-trade-export/)
 
-* * *
 
-*编辑&发布：长岛开心*
+**众议员安迪·巴尔**： 
+我领导的 AXIS(评估习近平的干涉和颠覆)法案，要求国务院[@StateDept](https://twitter.com/StateDept) 向国会报告 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在俄入侵乌克兰之前和期间对俄罗斯的支持。中共与克里姆林宫的邪恶联盟对美国和我们的盟友构成严重威胁。 【转纽约邮报：共和党的法案将使国务院披露中共国与普京的合作（附文章链接）】
+
+我们需要一份关于他们 (中俄) 合作的完整报告，以告知公众并使立法者们能够重新定位美国，直面这个新的邪恶轴心。 纽约邮报记者[@CalliePatteson](https://twitter.com/CalliePatteson)报道。
+
+
+
+> I’m leading the AXIS Act, requiring [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) to report to Congress on the support given by the Chinese Communist Party to Russia before & during the invasion of Ukraine. The unholy alliance between the CCP & the Kremlin is a serious threat to the United States and our allies. [https://t.co/uS0CNM30Bz](https://t.co/uS0CNM30Bz)
+> — Rep. Andy Barr (@RepAndyBarr) [April 1, 2022](https://twitter.com/RepAndyBarr/status/1509974271325519896?ref_src=twsrc%5Etfw)
+
+
+
+**美国务卿安东尼·布林肯**： 
+我今天与(乌克兰)外交部长库莱巴[@DmytroKuleba](https://twitter.com/DmytroKuleba) 进行了有益的交谈。 很高兴跟进我们最近在华沙举行的会议，并讨论美国、盟国和合作伙伴如何帮助乌克兰抵御普京无端和无理的战争。 我们与乌克兰站在一起 [#StandWithUkraine](https://twitter.com/hashtag/StandWithUkraine?src=hashtag_click)。
+
+
+
+> I had a useful conversation with Foreign Minister [@DmytroKuleba](https://twitter.com/DmytroKuleba?ref_src=twsrc%5Etfw) today. It was good to follow-up on our recent meeting in Warsaw and to discuss ways the U.S., Allies, and partners are helping Ukraine defend against Putin’s unprovoked and unjustified war. We [#StandWithUkraine](https://twitter.com/hashtag/StandWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Secretary Antony Blinken (@SecBlinken) [April 1, 2022](https://twitter.com/SecBlinken/status/1509972126081720323?ref_src=twsrc%5Etfw)
+
+
+
+**参议员卢比奥新闻办公室**： 
+卢比奥参议员致函苹果首席执行官蒂姆·库克[@tim\_cook](https://twitter.com/tim_cook)：与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 芯片制造商打交道，将威胁美国国家安全、强化 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 【附参议院官网相关内容】
+
+
+
+> Sen. Rubio to [@Apple](https://twitter.com/Apple?ref_src=twsrc%5Etfw) [@tim\_cook](https://twitter.com/tim_cook?ref_src=twsrc%5Etfw): Deal with Chinese Communist party (CCP) chip-maker would threaten U.S. national security, strengthen [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/68FjarW4G6](https://t.co/68FjarW4G6)
+> — Senator Rubio Press (@SenRubioPress) [April 1, 2022](https://twitter.com/SenRubioPress/status/1509959470520098816?ref_src=twsrc%5Etfw)
+
+
+
+**参议员汤姆·科顿**： 
+迪斯尼是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 游说团体的发起人，所以它的自由派公司高管可以无视我们对保卫自己的孩子免受灌输的道德怒火。
+沃尔特·迪斯尼要知道是小丑们在运营公司，肯定在坟墓里气得翻身。
+
+
+
+> Disney is a charter member of the China lobby, so its liberal corporate executives can spare us the moral outrage about protecting our kids from indoctrination. 
+> 
+> Walt Disney must be rolling over in his grave at the clowns running his company.
+> — Tom Cotton (@TomCottonAR) [April 1, 2022](https://twitter.com/TomCottonAR/status/1509878015483916302?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·戈茨**：
+ 情报失误：美国在(俄)入侵前误判了俄罗斯的军事弱点、乌克兰的实力。 北约指挥官呼吁审查情报“漏洞” 
+【附华盛顿时报上比尔·戈茨的文章：情报失误：美国在战前误判俄罗斯弱点、乌克兰的实力 
+据军方和情报官员称，美国情报机构在俄入侵乌克兰前几周误判了俄罗斯的军事能力，并认为乌克兰军队没有做好抵抗的准备，很快就会被击败。官员们最近向国会披露，这两项情报判断都是错误的，现在正争先恐后地确定原因。】
+
+
+
+> Intelligence failure: US misjudged Russian military weakness, Ukrainian strength prior to invasion. NATO commander calls for review of intel ‘gaps’ [https://t.co/XcXdEhSZlV](https://t.co/XcXdEhSZlV)
+> — Bill Gertz (@BillGertz) [April 1, 2022](https://twitter.com/BillGertz/status/1509997157226483714?ref_src=twsrc%5Etfw)
+
+
 
  
 

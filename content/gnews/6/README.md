@@ -2,54 +2,47 @@
 ---
 
 
-## 俄罗斯军队穷到使用地毯和树苗作为军事伪装
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2268393/)
+## 有声|感悟小语–向往自由
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2272324/)
 
-翻译：wenwu
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
-
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
 
 
-据《华盛顿邮报》周三（30日）[报道](https://www.washingtonpost.com/national-security/2022/03/30/russia-camoflauge-ukraine/)，入侵乌克兰的俄罗斯军队似乎正在使用地毯、树苗和干草来覆盖他们的装甲车，这可能是说明他们没有得到足够的军事伪装设备。
 
-据《邮报》报道，在推特上（@NotWoofers）一个显然是描述交火的视频[显示](https://twitter.com/NotWoofers/status/1507926372039155714?s=20&amp;t=KxHKdiHMoc60pAD1aifs7A)，一辆军车边上稀稀拉拉地贴着松树苗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image0-1-16.jpg)
 
-另一段推特视频（[@RALee85](https://twitter.com/RALee85/status/1506283631517618177?s=20&amp;t=_eNFzwpM1o6Ca8KeRNsXdw)）也被《邮报》确认，描述了俄罗斯军队用防水布和地毯覆盖一辆装甲车。 战争开始前一天（译者注：2月23日），一个俄罗斯车队越境进入东顿巴斯地区的几张图片也显示（如下图）,军车的车顶上覆盖着稻草。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-9.jpg)图片来源：businessinsider.com
+我家有个杂物间，上周四偶尔发现有两只小奶猫，一黑一花。一个月大左右；藏在小角落里。我把她们两个揪出来时她们瑟瑟发抖；于是我找了个纸箱给她们做了安乐窝，放进去后她们很快适应了这个安全舒适的封闭的小窝，也熟悉了我。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-1.jpg)图片来源：businessinsider.com
+前两天我用羽毛球筒子给她们做了个通往外面的通道，她们两个一开始不敢出来，我就把她们请出来，出来后她们两个吓得喵喵直叫，我就引导她们在房间到处走走，慢慢的适应了。
 
-另一张照片显示（如下图），车队中的一辆俄罗斯装甲车顶着树枝。
+两个就开始开心的打打闹闹起来；到了晚上还不回窝，我就把她们抓回去，并把通道的另一端顶在墙壁上，小猫咪很愤怒！高声抗议！继而窜入通道要冲出去，但是受堵。于是她们反复冲进去，最后在它们的不懈努力下终于扒开了一道缝，挤了出来！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-2.jpg)图片来源：businessinsider.com
+由此可见她们多么爱自由！因此我看到在中共墙内封闭世界生活的人也一样习惯了，适应了墙内生活。没有开眼长见识，对外面的世界不了解，再被共匪洗脑教育引导，继而精神错乱而不知，可悲可怜！
 
-俄罗斯军事专家罗布·李（Rob Lee）告诉《华盛顿邮报》，一些俄罗斯部队没有使用伪装网，显示出令人惊讶的准备不足，也许是他们的军事领导人最初过于自信。
+是的，想要改变需要勇气，也需要引导。新中国联邦的爆料革命就是改变中共墙内人命运的现实路径！郭文贵先生就是现实中改变你命运的贵人！是我们新中国联邦人的引导者领路人！
 
-美国军队自20世纪90年代以来[一直使用伪装网](https://www.armytimes.com/news/your-army/2019/04/12/camo-netting-an-age-old-tool-is-being-re-engineered-for-the-modern-battlefield/)，最近还对其进行了升级，以适应林地、雪地和沙漠环境。乌克兰部队也一直在使用这种网，乌克兰平民甚至[帮助编织](https://www.businessinsider.com/ukrainians-in-safer-zone-rally-support-soldiers-prep-for-refugees-2022-3)这种网，以便在前线使用。
 
-在俄罗斯总统弗拉基米尔·普京（Vladimir Putin）发起对乌克兰的全面入侵后的几周里，俄罗斯部队和装备的质量受到了质疑。
 
-本月早些时候，乌克兰总统沃洛基米尔·泽伦斯基(Volodymyr Zelenskyy)称俄罗斯军队是“无能的”，并补充说，莫斯科正在“将他们的人民变成屠杀者”，乌克兰军队给俄罗斯侵略者造成了“前所未有的损失”。 在这场几乎可以肯定比克里姆林宫预期的时间长的战争中，俄罗斯的伤亡继续增加。一位北约官员在3月24日估计，至少有4万名俄罗斯军队在入侵中被杀、被俘或受伤。
+文字版原文：[感悟小语–向往自由](https://gnews.org/zh-hans/2266708/)
 
-新闻来源： [Russian troops appear to be using carpets and saplings as camouflage, a possible sign they haven’t been supplied with the right equipment: report](https://www.businessinsider.com/russian-troops-using-carpets-and-saplings-as-camouflage-report-2022-3)
-
-（文章仅代表作者观点与GNEWS无关）
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3.jpeg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,25 +2,34 @@
 ---
 
 
-## 81岁老人徒步逃离战乱 新中国联邦送温暖
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2268008/)
+## 有声|拜登通话泽连斯基，再增5亿美元援助
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2272004/)
 
-撰稿：美东香草山-雪梨
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
-3月30日，新中国联邦乌克兰前线救援团队，在梅迪卡基地接待了一位81岁高龄的乌克兰老奶奶。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-15.png)
-为逃离战乱，老奶奶徒步60公里到达梅迪卡。新中国联邦前线战友热情地接待老奶奶，提供食物和休息场地，让她在等待亲人的期间感受到温暖。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周三，美国总统拜登与乌克兰总统泽连斯基举行电话会议。在近一个小时的会谈中，泽连斯基向拜登总统介绍了俄乌谈判的最新状况，感谢美国及其盟友对乌克兰的援助，称其对乌克兰起决定性的帮助，并就进一步援助进行了沟通和讨论。拜登总统表示，美国已计划向乌克兰政府增加5亿美元的直接预算援助，应对俄罗斯对乌克兰的进攻。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-3.png)
 
-接下来，我们一起收看来自前线的报导。
 
-视频链接：[【乌克兰救援】03/30/2022，来自小小酥战友](https://gettr.com/post/p12scak3544)
+文字版原文：[拜登通话泽连斯基，再增5亿美元援助](https://gnews.org/zh-hans/2269569/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-编辑/总编：雪梨
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-校正/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

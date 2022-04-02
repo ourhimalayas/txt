@@ -17,149 +17,145 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 3:07 AM (UTC)`
+
+
+![img](https://media.gettr.com/group5/origin/2022/04/02/03/9e3eeb85-c0ce-2fb8-db38-d707676f00f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/2/2022 3:04 AM (UTC)`
+
+【Ukraine Rescue】03/31/2022  New Federal State of China fellow fighter Xiao Xiao Su:  A western lady I met on set of NFSC Ukraine Rescue Operation told him how much she loves Chinese food and Chinese landscape.  In response, I told her that she would be able to freely visit Beijing after the year 2025, because we believe the CCP would cease to exist by then.<br/><br/><br/>【乌克兰救援】03/31/2022 新中国联邦战友小小酥：在乌克兰救援前线的一位西人女士说她喜欢中国的美食和风景。我们对她说 2025年以后就可以继续去北京玩。我们认为中共到那个时候将被消灭。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group46/getter/2022/04/02/03/4e90fe15-9cf3-9879-2f88-c86538f8f637/out.jpg)
+
+---
+
+`@miles 4/2/2022 2:58 AM (UTC)`
+
+【Ukraine Rescue】04/01/2022 Nicole, a volunteer of the NFSC & ROLF, said that the rescue team is making better preparations than before to receive more refugees at any time who are likely to flee Ukraine. Miles Guo has long since reminded us that we will not withdraw our rescue team.<br/><br/>【乌克兰救援】04/01/2022 新中国联邦和法治基金义工妮可介绍说新中国联邦和法治基金救援团队正在做着更好的准备，随时去迎接更多有可能要逃离乌克兰的难民。郭文贵先生早就提醒到大家，我们这个点是不能撤的。<br/>
+![img](https://media.gettr.com/group50/getter/2022/04/02/02/68d9265d-1396-2cf6-08f0-080f4192546a/out.jpg)
+
+---
+
+`@miles 4/2/2022 2:55 AM (UTC)`
+
+【Ukraine Rescue】03/31/2022 In an interview with Wen Yao, a Polish mother who has come to volunteer on the front line tells us that as a mother of four children, she is doing it not only to help the Ukrainians, but also for the safety and future of her own children, because the war could spread and there will be no peace in the world if people do not step forward to help the Ukrainian people end this war within their borders.<br/><br/>【乌克兰救援】03/31/2022 一位来前线的志愿者接受文耀采访时表示：她是一名4个孩子的母亲，她不仅是为了帮助乌克兰人，也是为了自己孩子们的安全和未来，因为战争有可能会蔓延开来，如果人们不挺身而出帮助乌克兰人民在其境内结束这场战争，那么全世界都无和平可言。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group47/getter/2022/04/02/02/c27b1fd8-7cff-ed03-cc71-1beb791fb7db/out.jpg)
+
+---
+
+`@miles 4/2/2022 2:16 AM (UTC)`
+
+04.01.2022 NFSC finance 新中国联邦 | 喜财经 俄乌开战后，中国市场掀撤资潮
+![img](https://media.gettr.com/group19/origin/2022/04/02/02/cda58ea5-1a0a-f6b5-e95b-e7ad6f4804e3/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/2/2022 2:12 AM (UTC)`
+
+4/1/2022 Ukraine Rescue: Fellow fighter Xiaoxiao Su talks about the two heartwarming moments on the front line of the NFSC & ROLF Ukraine rescue operation - 1) A Taiwanese Special Force soldier said it was because he got to know the fellow fighters that he realized that the best way to help the Ukrainians is not necessarily going to the battlefield; and 2) a particularly touching moment when a Ukrainian man carrying a woman who has problem walking by herself on one hand and holding her luggage on the other to catch a bus.<br/><br/>4/1/2022 乌克兰救援连线：小小酥战友谈救援前线的两个感人瞬间 - 台湾特种兵说因为认识了战友们他才发觉帮助乌克兰人的最好方法并不一定是上战场；一乌克兰男士一手扛着腿脚不利索的女士，一手托着行李去赶巴士，令人感触颇深<br/>
+![img](https://media.gettr.com/group41/getter/2022/04/02/02/5bdb9d51-62f4-c521-5105-eed9535dca2b/out.jpg)
+
+---
+
+`@miles 4/2/2022 1:03 AM (UTC)`
+
+2022.04.01 晚《新中国联邦新闻访谈》傅政华被抓；李克强又当“组长”抓复耕；上海极端防疫，次生灾难何时了？
+![img](https://media.gettr.com/group14/origin/2022/04/02/01/244958e4-04f2-055d-97ba-d29f5dc2b378/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/2/2022 12:58 AM (UTC)`
+
+4/1/2022 Ukraine Rescue: Sarah tells us the story behind the Polish magazine’s coverage of the NFSC & ROLF Ukraine rescue operation. We, the New Federal State of China, earned the respect without having to pay them. Regardless of whether other media covers our rescue operation or not, our fellow fighters are the best of the best on the front line.<br/><br/>4/1/2022 乌克兰救援连线：小Sarah讲述新中国联邦乌克兰救援被波兰杂志大篇幅报道的背后故事，这可不是花钱能买来的尊重！无论其他媒体是否报道我们，我们的战友们在前线都是顶呱呱的第一名！<br/>
+![img](https://media.gettr.com/group4/getter/2022/04/02/00/0de9df63-1600-9e87-c72e-32d409b43db3/out.jpg)
+
+---
+
+`@miles 4/2/2022 12:50 AM (UTC)`
+
+4/1/2022 Ukraine Rescue: Fellow fighter Nicole shares her thoughts on the power of the New Federal State of China to spread the word about our Ukraine humanitarian rescue and the voice of justice on our own media platforms. Regardless of whether the mainstream media would report on us or not, they can never ignore the flag of the New Federal State of China, the logo of the Rule of Law Foundation, and the yellow vests with the slogan of “take down the Chinese Communist Party”.<br/><br/>4/1/2022 乌克兰救援连线：Nicole战友分享如何理解新中国联邦能在自己的媒体平台上传播我们行正义之事和正义之声的力量，无论主流媒体是否报道我们，它们都无法忽略救援营地的新中国联邦国旗、法治基金的标识和灭共黄马甲<br/>
+![img](https://media.gettr.com/group34/getter/2022/04/02/00/845c3515-1237-ff27-99ba-4f1d89862eb5/out.jpg)
+
+---
+
+`@miles 4/2/2022 12:42 AM (UTC)`
+
+【Ukraine Rescue】04/01/2022 Nicole, a volunteer of the NFSC & ROLF, said that the rescue team is making better preparations than before to receive more refugees at any time who are likely to flee Ukraine. Miles Guo has long since reminded us that we will not withdraw our rescue team.<br/><br/>【乌克兰救援】04/01/2022 新中国联邦和法治基金义工妮可介绍说新中国联邦和法治基金救援团队正在做着更好的准备，随时去迎接更多有可能要逃离乌克兰的难民。郭文贵先生早就提醒到大家，我们这个点是不能撤的。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group4/getter/2022/04/02/00/d7d82b71-f4f5-2212-5cda-6c54a05e1441/out.jpg)
+
+---
+
+`@miles 4/2/2022 12:32 AM (UTC)`
+
+2022.04.01 晚 《新中国联邦新闻》正义信念、完善设备、醇美咖啡引起越来越多的关注； 战地钢琴家演绎战地浪漫
+![img](https://media.gettr.com/group36/origin/2022/04/02/00/2df356ae-b7e2-7cba-6112-7827a7034bbe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/1/2022 11:40 PM (UTC)`
+
+2022.04.01《The Fringe》 Episode 160  South Korea Virus Outbreak； US Military Studies Ukraine for Taiwan； Updates from the Rescue Mission
+![img](https://media.gettr.com/group10/origin/2022/04/01/23/e2830f38-6c13-3ade-cf84-b8e06d932be1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/1/2022 11:03 PM (UTC)`
+
+2022.04.01 NFSC News   Slogan On Yellow Rescue Vest Differentiates The New Chinese And The CCP；81-Year-Old Lady Flees War on Feet, New Federal State of China Sends Warmth
+![img](https://media.gettr.com/group17/origin/2022/04/01/22/340fa165-ac38-500c-c357-095a09b5072d/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/1/2022 10:36 PM (UTC)`
+
+新中国联邦｜真人真事 第47期 乌克兰救援特辑<br/> <br/>🔥加拿大蓝莲花农场 小小酥🔥<br/>✨乌克兰救援前线的战友们，是穿越火线、可以直面生死的勇士；是雪中送炭，救人于危难的天使；是将邪恶中共和中国人分开的践行者，是热爱自由和平的新中国联邦人的杰出代表。身在乌克兰前线的小小酥战友，将座客《新中国联邦｜真人真事》，亲身讲述发生在救援前线的精彩且感人的故事！我们不见不散！<br/>⭐主持人：正义的小新、长岛哥<br/>⭐嘉宾：小小酥 <br/>⭐美东时间：4/2 周六早 10:30  <br/>    北京时间 : 4/2 周六晚 10:30<br/>⭐直播平台：Miles Guo Gettr@MILES
+![img](https://media.gettr.com/group32/origin/2022/04/01/22/87d80e09-4e23-6449-fdb7-d809865e203f/75e6b1e1f33756998a22bafe8eb5352b.jpg)
+
+---
+
+`@miles 4/1/2022 10:01 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-01<br/>For English @Gtranslators_1
+![img](https://media.gettr.com/group37/origin/2022/04/01/21/43cd8104-350b-c66a-61c8-fb8b411612a7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/1/2022 9:48 PM (UTC)`
+
+4/1/2022 Ukraine Rescue: The rescue camp of the New Federal State of China in Medyka has the best equipment and far better organization than the Red Cross, and that was unbelievable for many people. Many media and volunteers stand with the citizens of the New Federal State of China who are dedicated to taking down the Chinese Communist Party. A Ukrainian bought supplies out of his own pocket to donate to the New Federal State of China before returning to Ukraine to fight for the country.<br/><br/>4/1/2022 乌克兰救援连线：新中国联邦救援营地在梅迪卡有着最好的设备和远超红十字会的组织工作，这令很多人难以置信；很多媒体和志愿者跟灭共的新中国联邦人站在一起；一位乌克兰人在回国参战前自掏腰包买物资捐给新中国联邦
+![img](https://media.gettr.com/group41/getter/2022/04/01/21/60dcff93-a2ab-7d13-2a38-4c29c664e0c1/out.jpg)
+
+---
+
+`@miles 4/1/2022 9:41 PM (UTC)`
+
+4/1/2022 Ukraine Rescue: Fellow fighter Wenke talks about how the giant tent of the New Federal State of China keeps the refugees warm in the rain. Most of the fellow fighters who contracted the CCP virus have been tested negative for the virus. Nicole returns to the rescue camp, reuniting with other fellow fighters for the first time after 12 days of quarantine. Fellow fighter Jin Dongnan talks about the CCP spy caught on camera and gives thumbs up to the rescue team.<br/><br/>4/1/2022 乌克兰救援连线：文科战友谈新中国联邦的大帐篷在雨中为难民送温暖；大部分染病的战友们已检测为阴性，Nicole首次回到营地和战友团聚；晋东南战友谈被拍到的中共间谍并为救援团队点赞<br/>
+![img](https://media.gettr.com/group50/getter/2022/04/01/21/0d0d6b76-fbfe-5c51-97a9-38a9ed040607/out.jpg)
+
+---
+
+`@miles 4/1/2022 8:58 PM (UTC)`
+
+2022.04.01  NFSC health 新中国联邦 | 喜健康  从东航坠机看巨大心理危机
+![img](https://media.gettr.com/group12/origin/2022/04/01/20/7be5e631-2f1f-8468-815d-965f310efa93/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/1/2022 6:07 PM (UTC)`
+
+
+![img](https://media.gettr.com/group33/origin/2022/04/01/17/290902a6-d41e-d60c-869c-3fe3d55e4880/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
-`@gtranslators_1 4/1/2022 8:55 AM (UTC)`
+`@gloryworld 4/1/2022 12:59 AM (UTC)`
 
-
-![img](https://media.gettr.com/group4/origin/2022/04/01/08/f6fa38e3-1724-e109-7de4-f7395e03ef71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/1/2022 9:15 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年3月31日第27天当日救援统计：<br/>Medyka救援站接待：约119人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8065人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 27 - Date: March 31, 2022 :<br/>Medyka Rescue Station Reception: about 119 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8065 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group19/getter/2022/04/01/09/20636108-83ee-8099-6967-d7e09accadc7/2b9f2d549a632a60356bbd2efb7ae635.jpg)
-
----
-
-`@miles 4/1/2022 8:48 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-波兰救援基地前线报导 
-![img](https://media.gettr.com/group7/origin/2022/04/01/08/7c4055b2-cc37-ff3a-0a15-b6b527a774e3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/1/2022 5:35 AM (UTC)`
-
-
-![img](https://media.gettr.com/group27/origin/2022/04/01/05/cd51119a-ef1e-33a8-6aad-3cdfa4f2db07/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/1/2022 4:13 AM (UTC)`
-
-China-Russia cooperation has no limits. Two evil regimes and leaders promote multipolar, peace and democracy, how ironic! When innocent people of these two countries are represented by dictators and are forced to be put on the war machine, their disasters can be foreseen. <br/><br/>中俄合作无上限。两个邪恶政权和领导人倡导世界多极化，和平和民主，多么讽刺。当两国无辜民众被独裁者代表而绑架上战车，他们的灾难就在眼前。
-![img](https://media.gettr.com/group21/origin/2022/04/01/04/9db85613-708a-8da9-9d09-5300cdd2c350/out.jpg)
-
----
-
-`@miles 4/1/2022 3:05 AM (UTC)`
-
-
-![img](https://media.gettr.com/group36/origin/2022/03/27/02/1593a18d-d2bc-374e-de30-896627209477/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/1/2022 2:07 AM (UTC)`
-
-2022.03.31  NFSC finance 新中国联邦 | 喜财经   中共国疫情供应链危机
-![img](https://media.gettr.com/group46/origin/2022/04/01/02/3bb5f39f-c337-1987-fe57-495330725e0d/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_designer 3/30/2022 3:22 PM (UTC)`
-
-战争是残酷的，无情的，被炸碎的身体、被破碎的家庭、还有炸残废的身体以及被摧毁的家园。现在全世界都恨中国人，一旦中共发动战争，谁会去救济我们？<br/>新中国联邦在乌克兰前线的救援将会成为史诗般的人类奇迹，会救无数的中国人；尽可能的防止海外排华和发生人道危机灾难。<br/><br/>视频：蜂鸟战友创作-战友日常之挺乌灭共 <br/><br/>#乌克兰救援 #新中国联邦人 #消灭中共的新中国人 #漫画灭共
-![img](https://media.gettr.com/group43/origin/2022/03/30/15/a6b252f5-6074-61e5-75f4-739abad20592/out.jpg)
-
----
-
-`@miles 4/1/2022 1:00 AM (UTC)`
-
-2022.03.31 晚《新中国联邦新闻访谈》“宇宙”中心的经济；普京的形象塑造；俄乌的恩怨
-![img](https://media.gettr.com/group21/origin/2022/04/01/00/5efa903f-94c4-0fe1-7477-53768705d865/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/1/2022 12:37 AM (UTC)`
-
-【Ukraine Rescue】03/30/2022  Fellow fighter Jin Liang: A bearded French volunteer asked to join us right after he arrived here, and we invited him to spend the night in our large warm tent. Other media like to conduct interviews using our NFSC and ROLF tent as their background, and we are more and more recognized in Medyka.<br/><br/>【乌克兰救援】03/30/2022，来自精良战友：一名大胡子法国志愿者一来就主动加入我们，我们邀请他来我们暖和的大帐蓬过夜。其它媒体都喜欢以新中国联邦和法治基金的大帐蓬为背景进行采访，我们在梅迪卡受到越来越的认同。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group35/getter/2022/04/01/00/56fe083a-d8c0-9ed1-8218-2af476e55c04/out.jpg)
-
----
-
-`@miles 4/1/2022 12:29 AM (UTC)`
-
-2022.03.31 晚 《新中国联邦新闻》俄乌战争形势明朗，东西联盟格局确立； 战后，科技中心乌克兰助力欧洲摆脱能源依赖
-![img](https://media.gettr.com/group3/origin/2022/04/01/00/4ba63041-8212-bf21-c0c3-f5f53dd36e00/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 11:38 PM (UTC)`
-
-2022.03.31《The Fringe》 Episode 159
-![img](https://media.gettr.com/group7/origin/2022/03/24/23/e57d39e9-d1c4-e224-b8e9-18f40f8129e0/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 11:03 PM (UTC)`
-
-2022.03.31 NFSC News   Ukraine Claims "Proof" of Russia Using Cluster Bombs；43 Russian Diplomats Expelled by Four EU Nations
-![img](https://media.gettr.com/group50/origin/2022/03/31/22/c79141d0-f8f6-4abe-56bd-95381d6eee2b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/31/2022 10:03 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-03-31<br/>For English @Gtranslators_1
-![img](https://media.gettr.com/group27/origin/2022/03/31/22/4b735c85-bc2d-2c8d-f344-f221c9951bdc/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 8:56 PM (UTC)`
-
-2022.03.31  NFSC health 新中国联邦 | 喜健康 第4期 之 《健康生活》
-![img](https://media.gettr.com/group19/origin/2022/03/31/20/7e3d0c18-1dcc-db7b-207f-bf730f0b1805/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 7:04 PM (UTC)`
-
-
-![img](https://media.gettr.com/group28/origin/2022/03/31/18/486c9c88-f2a8-2bf9-bb19-2878a9b959b2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 3/31/2022 6:03 PM (UTC)`
-
-
-![img](https://media.gettr.com/group6/origin/2022/03/31/18/1481f6ce-5a05-dbdc-e096-7a269638f811/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 3/31/2022 5:19 PM (UTC)`
-
-2022/03/31 感谢来自这位战友的设计, 请大家把您的建议写在留言区， 谢谢🙏 
-![img](https://media.gettr.com/group45/getter/2022/03/31/17/7d27802f-d704-7fbd-2740-e688cfc7cbc8/4fe45f30796c852a352b82f07c1818bf.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 3/31/2022 2:46 PM (UTC)`
-
-❤️🇺🇦Report from #NFSC's #UkraineRescue - #FineFood interviewed with elegant artist Audrey Jones from San Diego California. She spent nearly five years working with children in Haiti after the earthquake. She believed art can be extremely  helpful in frustrating situations for expressing themself. <br/>❤️#新中国联邦 #乌克兰救援 跟踪报道： #精糧 采访一位来自加州圣地亚哥的优雅艺术家Audrey Jones。她也曾在海地地震后做儿童志愿者五年，她相信艺术可以帮助人在困境中表达自己。<br/><br/>About New Federal State of China #NFSC 👇<br/>We are the NEW CHINESE who are taking down EVIL Chinese Communist Party（ #CCP）. <br/>The CCP is the root cause of all global disasters. The only way to save humanity is to take down the CCP.
-![img](https://media.gettr.com/group9/origin/2022/03/31/14/37843b74-8906-b45b-3061-f6328418cf2d/out.jpg)
-
----
-
-`@miles 3/31/2022 4:08 PM (UTC)`
-
-3/30/2022 Ukraine Rescue: A lot of people came to the fellow fighters on the front line to learn about the New Federal State of China (NFSC) and the Rule of Law Foundation (ROLF). The NFSC vest has drawn a lot of interest. The rescue work of the fellow fighters and the good equipment of the rescue camp are widely appreciated. The glamorous coffee machine on the front line of the Ukraine rescue operation was a genius idea of Miles Guo!<br/><br/>3/30/2022 乌克兰救援连线：有很多人来找前线的战友们了解新中国联邦和法治基金，新中国联邦的马甲引起很多人的兴趣；战友们的救援工作以及营地的良好设备赢得广泛盛赞；在救援前线魅力无穷的咖啡机是郭先生天才般的主意！<br/>
-![img](https://media.gettr.com/group26/getter/2022/03/31/16/68a79b87-3fe5-dcd8-3afd-f8aed48319bf/out.jpg)
+救援人员马甲设计方案……<br/>#新中国联邦乌克兰大救援<br/>#法治基金 #法治社会 #新中国联邦<br/>#我们是消灭中国共产党的新中国联邦人<br/>#RuleOfLawFundation #RuleOfLawSociety <br/>#NewFederalStateOfChina<br/>#NFSCUkrainianRescueMission <br/>#TakeDownTheCCP<br/>#WeAreTheNewChineseWhoWillTakeDownTheChineseCommunistParty <br/><br/>
+![img](https://media.gettr.com/group36/getter/2022/04/01/00/ee6fab90-6e9b-44d3-aef1-816184c7823f/b68a2b404df4a5b68de0e49ed62e8e30.jpg)
 
 ---
 

@@ -2,31 +2,39 @@
 ---
 
 
-## 疫情｜英国出现Omicron亚种混合毒株“XE” 世卫称或是迄今最强版本
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2268440/)
+## 有声|中共制造业衰退累及全球 工厂产量创两年新低
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2272401/)
 
-**图/文｜CP**
-**发布时间｜01/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/英國出現Omicron亞種混合毒株「XE」-世衛稱或是迄今最強版本.jpg)
+配音：香草山农场 – 纳米
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+半岛媒体4月1日报道，受到俄乌战争的经济影响以及新一轮中共病毒的大规模爆发，中共国工厂的生产活动在以近两年来最快的速度下滑，工厂产量创两年以来最低水平，而亚洲其他主要经济体的制造业也随之放缓。
 
-[点击关注官方盖特](https://gettr.com/user/mightygroup)
+据财新传媒和研究公司Markit周五公布的数据显示，3月份中国通用制造业PMI从上个月的50.4急降至48.1，重陷收缩，为2020年2月后最严重的一次下跌。生产指数和新订单指数均创2020年2月后最大降幅，外需恶化，通胀压力持续上升，市场乐观情绪大幅减弱。
+
+据了解，中共国正在努力应对自中共疫情爆发以来最严重的一轮疫情考验。继沈阳市和中共科技中心深圳市都实施过全域封锁之后，中共国的金融首都上海市当局也在今日将原定的封锁日期继续延长10天，而实际解封期限仍为一个未知数。
+
+悉尼理工大学首席经济学家蒂姆·哈科特接受采访时称：“正当全球经济呈现出暂时的复苏迹象之际，俄乌战争和上海爆发的中共病毒疫情会是一场完美的风暴，将全球经济再次推向衰退的水域。”同时，“在2024年之前，这将在很大程度上导致中共国被排除在全球经济之外。”
 
 
-据世界卫生组织（WHO）30日发表的最新报告显示，最近在英国发现的病毒株“XE”与目前最主流病的毒株 Omicron BA.2 相比更具传播力。这意味着，“XE”毒株的传播里较 Omicron原始版本要高出43%。不过，世卫表示，由于现时“XE”的病例仍然局限于英国，且病例数有限，目前暂不具代表性。
 
-英国衞生安全局（UK Health Security Agency，UKHSA）25日公布了一份关于当地流行病毒株的情况报告，内容指出，最近录得多宗感染Omicron亚种BA.1及BA.2混合体的个案，当局命名为XE，而且根据目前数据推断，其传播速度比BA.2高大约一成。
+文字版原文：[中共制造业衰退累及全球 工厂产量创两年新低](https://gnews.org/zh-hans/2269343/)
 
-英国于今年1月19日发现这款混合体，目前已经证实有637宗个案，经分析发现，XE由Omicron BA.1和BA.2混合而成，但它的大部分基因，包括S基因都是源于BA.2，从截至3月16日的数据显示，XE的传播率比BA.2高出9.8%，较 Omicron 原始版本高出43%，并已在英格兰地区出现社区传播的迹象。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-2.jpg)
+**更多资讯，更多关注**
 
-另外，英国还发现Delta及Omicorn BA.1混合而成的病毒株，分别命名为XD、XF。XD至今在全球有49宗个案，主要在法国流行，目前在英国并未发现：而XF在英国则有38宗病例，惟从2月中开始就再没有发现，亦未有证据显示XF在当地出现社区传播情况。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-除了英国，以色列卫生部曾在3月16日发现一对30多岁夫妇感染结合BA.1和BA.2的Omicron病毒，泰国亦表示发现一种类似而且被称为BA.2.2亚种的Omicron病毒。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-来源｜[UHSA](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1063424/Tech-Briefing-39-25March2022_FINAL.pdf)、[WHO](https://deadline.com/wp-content/uploads/2022/03/20220329_Weekly_Epi_Update_85.pdf)、[Deadline](https://deadline.com/2022/03/new-xe-covid-variant-omicron-most-transmissible-1234992060/)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-* * *
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,24 +2,35 @@
 ---
 
 
-## 秘翻在线：被俄军绑架的4万名乌克兰人所面临的悲慘命运
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2268071/)
+## 有声|欧美出口管制严重打击俄罗斯制造业
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2272072/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-3.jpg)图片来源：本文的链接
-最近，在俄罗斯各地建立了称为‘净化营地’的收容所。收容的是被绑架和强制转移来的乌克兰平民百姓。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周三，美国商务部助理部长西娅·肯德勒表示，一项由33个国家联合采取的出口管制，导致俄罗斯汽车、坦克生产厂停产，芯片供应链断裂。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10.png)
+据悉，在俄罗斯的进口中，约 5% 来自美国，50%来自欧盟和其他参与制裁的联盟国家。制裁实施后，因缺乏外国零部件，俄罗斯的两家主要坦克工厂、拉达汽车制造商已停产。此外，由于全球最大的芯片制造商台积电退出俄罗斯市场，广泛应用于俄罗斯的情报和军事系统的芯片因此被中断供应。
 
-乌克兰人首先被没收护照和其他身份证，以防止他们离开该国。然后他们的身体被检查是否有乌克兰国旗等纹身,询问他们的思想和信仰问题,以评估是否对俄罗斯有不利影响。
 
-许多营地位于寒冷的西伯利亚及远东萨哈林州的煤矿和天然气开采地附近。即使从靠近俄罗斯的乌克兰南部的马里乌波尔，直线距离也有7000多公里。乌克兰人由“就业中心”提供工作，两年内不得离开俄罗斯。
 
-对于俄罗斯来说，被强制转移来的居民是强大的“武器”。 他们被作为’人质’，对乌克兰政府施加压力。据乌克兰副总理佩雷舒克称，自俄罗斯军队入侵以来，至少有 40,000 名居民被绑架。其中包括 2000 多名儿童。
+文字版原文：[欧美出口管制严重打击俄罗斯制造业](https://gnews.org/zh-hans/2269567/)
 
-普通市民被俄罗斯军队绑架的情报接连不断, 绑架平民是明显违反国际法的行为。为此乌克兰外交部发表了一份抗议声明，称“日内瓦公约规定禁止劫持平民为人质，劫持平民为人质构成战争罪”。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-信息来源：[https://friday.kodansha.co.jp/article/236718](https://friday.kodansha.co.jp/article/236718)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-责编：Eric Kim
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
