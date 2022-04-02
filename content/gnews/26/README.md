@@ -2,36 +2,25 @@
 ---
 
 
-## 中日财经爆┃医保局透露“免费”疫苗 全民买单1200亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2273600/)
+## 俄罗斯军队离开切尔诺贝利
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2273633/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月2日，中共党媒央视新闻报导，中共国家医保局透露，中共国2年多时间强推的中共病毒疫苗，对老百姓宣传“免费”，实则花费1200亿元，由全民买单。
+撰稿：纽约香草山-文希
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
+3月31日外媒报导，乌克兰的核运营商Energoatom和国际原子能机构均证实，自2月24日以来一直控制切尔诺贝利核电站的俄罗斯部队，已经以书面形式将核电站的控制权移交给乌克兰人员，并将两个车队的部队调往白俄罗斯。第三支车队也离开了切尔诺贝利核电站工作人员居住的斯拉维季奇市，并向白俄罗斯移动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-129.png)
+俄罗斯控制该核电站后，乌克兰曾发出警告，停止运行的核电站有发生核泄漏的危险。俄罗斯撤军时也曾有报导称俄罗斯人在禁区内受到了“大量辐射”，但国际原子能机构在声明中说该消息并未得到证实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/医保局透露免费疫苗-全民买单1200亿.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg3.jiemian.com%2F101%2Foriginal%2F20210615%2F16237387773047300_a640x364.jpg&amp;imgrefurl=https%3A%2F%2Fm.jiemian.com%2Farticle%2F6233989.html&amp;tbnid=cyAiJHbzbkRIsM&amp;vet=12ahUKEwi95ZO45fT2AhVIOMAKHRLtDYcQMygBegUIARCsAQ..i&amp;docid=83pZsn_QUc2F1M&amp;w=640&amp;h=364&amp;q=%E5%8C%BB%E4%BF%9D&amp;ved=2ahUKEwi95ZO45fT2AhVIOMAKHRLtDYcQMygBegUIARCsAQ)
+参考链接：
 
-医保局负责人称，中共病毒疫情暴发后，2021年2月，中共国正式启动居民所谓的“免费”接种中共病毒疫苗，疫苗采购和接种费用主要由医保基金和财政共同负担。
+[Ukraine nuclear operator: Russian troops leave Chernobyl](https://apnews.com/article/russia-ukraine-business-europe-belarus-9a7d2b1b8fe42c5290375c0d341e4ecb)
 
-同时该负责人透露，国家医保局临时承担了与企业谈判磋商疫苗采购价格的工作。这就给相关人留好了与相关企业背后利益输送和勾兑的空间，
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-6.jpeg)
 
-首轮将灭活疫苗采购价90元/剂以内，先后降至40元/剂、20元/剂左右。一次次超过50%的价格降幅，足见疫苗多么暴利。
+编辑/总编/审核：飞虹
 
-“目前，中共国全民已经接种32亿剂次疫苗，疫苗费用1200余亿元，由医保基金和财政共同分担。”该负责人透露。但是具体分担的比例却没有说。政府不生产任何财富，打疫苗的钱还是由老百姓买单。
-
-中共病毒疫情爆发已经2年多，按人口比例计算也几乎是人均2剂疫苗，疫情反而比2年前更严重，全国到处爆发和封城有增无减，疫苗副作用造成死伤无数。
-
-如今更多的人看清楚了，中共病毒疫苗不是用来预防病毒，而是掠夺百姓的生命、财产和自由。
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-5.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

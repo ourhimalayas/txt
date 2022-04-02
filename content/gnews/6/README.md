@@ -2,46 +2,54 @@
 ---
 
 
-## 开始了！BBC主持人在节目现场与骗子福奇对峙
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2273810/)
+## 欧盟向中共施压不要支持俄罗斯对乌克兰的战争
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2273852/)
 
-翻译： Jenny Ball
+撰稿人：Lois
+翻译：一根筷子
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
 
 
-2022 年 3 月 27 日，在 BBC One 的“周日早晨”节目中，乔·拜登总统的首席医疗顾问安东尼·福奇 (Anthony Fauci) 因有关 COVID 起源的错误信息而受到指责。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-13-edited.png)图片来源：thegatewaypundit.com
 
-福奇博士说他被“误解了”。
 
-这是主流媒体人第一次面对福奇关于 COVID 病毒起源的公开谎言。
 
-对合法的新闻服务有所了解一定不错。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-143.png)照片：Leo Ramirez/ AFP/ Getty Images
 
-遗憾的是，BBC的这位主持人在节目之前没有做足功课。我们现在知道，福奇博士和打杂客（Dazcak）博士于 2020 年 2 月在《柳叶刀》发起了的呼吁，他们在其中将任何提及实验室制造的病毒标记为“阴谋”，并试图压制对其叙述的任何挑战。
+在周五即将举行的视频峰会上，预计欧盟会向中共施压，希望其能用制裁威胁使俄罗斯停止支持尔罗斯攻打乌克兰。
 
-我们还知道，2021 年 9 月，理查德·埃布赖特（Richard Ebright）博士和其他 15 位顶级医生，因为一年前发布的欺诈性文件而被打杂客、福奇和其他人进行了内部处理。
+欧盟的官员同时说到支持俄罗斯将会使中共在世界上的名誉受损。
 
-BBC的主持人却忘记提及这一点。但至少她试图对抗福奇，**这是假新闻在美国拒绝做的事情**。
+这是一次从欧盟委员会欧洲理事会主席，Ursula von der Leyen和Charles Michel,在近两年同中共总理李克强和主席习近平准备周五第一次的峰会不同寻常的公开声明。
 
-新闻来源：[IT BEGINS: UK Reporter Confronts Liar Fauci on Origins of COVID Virus in China Lab](https://www.thegatewaypundit.com/2022/03/begins-uk-reporter-confronts-liar-fauci-origins-covid-virus-china-lab-video/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailypm&amp;utm_content=daily)
+一位欧盟的官员表示中共在俄罗斯和乌克兰这场战争的立场将在这次的视频峰会中非常关键。
 
-* * *
+“我们想从他们方面知道为什么他们要与俄罗斯站在一起”这位官员说到。
 
-审核：文乐     
-校对：信心满满
-发布：五通庙
+“我们会试图并鼓励他们和我们站在一起才是我们共同的最大利益化，尤其我们都知道这场战争不会明天就能解决”他们继续说到。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+“我们并不是要求他们听从我们的指挥然后说“欧盟我们爱你”。我们只是想要他们看清现实，看看乌克兰发生的一切，而不是毫无作为，甚至于积极的向俄罗斯提供大量的武器。“
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+另外一位官员注意到欧盟和美国是欧盟和美国，相比于俄罗斯，是中共更重要的国际贸易伙伴，中共国光2021就有超过25%的国际贸易是同欧盟和美国，而与俄罗斯只有2.4%。
+
+各项数据显示，如果中共国选择和俄罗斯站在一起，一定会破坏美国和欧洲各国的贸易关系，而其所造成的结果绝对不堪设想，亚洲地区和太平洋地区也不可能独善其身。
+
+“我们是延长这场战争，还是大家一起努力一起结束这场战争？这是这场峰会的最基本的问题“这位官员说。
+
+据报道，布鲁塞尔正在寻求北京方面的保证，中共国将不会把军火运输到俄罗斯或者帮助该国避免西方国家因为俄罗斯对乌克兰侵略而制定实施的一系列的制裁。
+
+“我想中国会想利用这次峰会的机会和欧盟讨论如何创造让普京可以接受的情况下，让他从现在的位置上退下来“王一伟，北京人民大学的欧洲问题专家说到。
+
+中共产党同时也对欧盟跟随美国的外汇管制做出了相应调整表示了担忧，要求欧盟排除任何外部干预，使其跟中共国的紧张局势更加紧张。
+
+欧盟是在2019年的时候首次加强了对共产主义中国的立场，称其为系统性竞争对手。
+
+在2021年，布鲁塞尔因中共产党当局对新疆维吾尔人进行的种族灭绝行为对中共国的官员进行了制裁。作为回应，北京当局将欧盟个体和实体列入了黑名单。
+
+**审核校对：玫瑰天空
+上传排版：V在途中**
 
  
 

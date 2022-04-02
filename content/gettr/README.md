@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/2/2022 8:37 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导 
+![img](https://media.gettr.com/group27/origin/2022/04/02/08/c6ca1231-576a-d10a-3481-86ca11b599c2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/2/2022 6:04 AM (UTC)`
 
 4/1/2022 Ukraine Rescue: The MSM is by no means comparable to the media of the New Federal State of China. By doing 24-hour live broadcasts on GETTR, we are covering all aspects of the dynamics on the front line of the Ukraine rescue operation. In contrast, the reports conducted by the MSM are not just one-sided but also superficial. The New Federal State of China is now building the best media platform in the world - GETTR!<br/><br/>4/1/2022 乌克兰救援连线：主流媒体绝不能跟新中国联邦的媒体相提并论，我们通过24小时盖特直播，全方位报道救援前线的动态，而主流媒体的报道不仅片面，而且蜻蜓点水；新中国联邦正在打造一个全球最棒的媒体平台 - 盖特！<br/>
@@ -147,13 +154,6 @@
 
 4/1/2022 Ukraine Rescue: The rescue camp of the New Federal State of China in Medyka has the best equipment and far better organization than the Red Cross, and that was unbelievable for many people. Many media and volunteers stand with the citizens of the New Federal State of China who are dedicated to taking down the Chinese Communist Party. A Ukrainian bought supplies out of his own pocket to donate to the New Federal State of China before returning to Ukraine to fight for the country.<br/><br/>4/1/2022 乌克兰救援连线：新中国联邦救援营地在梅迪卡有着最好的设备和远超红十字会的组织工作，这令很多人难以置信；很多媒体和志愿者跟灭共的新中国联邦人站在一起；一位乌克兰人在回国参战前自掏腰包买物资捐给新中国联邦
 ![img](https://media.gettr.com/group41/getter/2022/04/01/21/60dcff93-a2ab-7d13-2a38-4c29c664e0c1/out.jpg)
-
----
-
-`@miles 4/1/2022 9:41 PM (UTC)`
-
-4/1/2022 Ukraine Rescue: Fellow fighter Wenke talks about how the giant tent of the New Federal State of China keeps the refugees warm in the rain. Most of the fellow fighters who contracted the CCP virus have been tested negative for the virus. Nicole returns to the rescue camp, reuniting with other fellow fighters for the first time after 12 days of quarantine. Fellow fighter Jin Dongnan talks about the CCP spy caught on camera and gives thumbs up to the rescue team.<br/><br/>4/1/2022 乌克兰救援连线：文科战友谈新中国联邦的大帐篷在雨中为难民送温暖；大部分染病的战友们已检测为阴性，Nicole首次回到营地和战友团聚；晋东南战友谈被拍到的中共间谍并为救援团队点赞<br/>
-![img](https://media.gettr.com/group50/getter/2022/04/01/21/0d0d6b76-fbfe-5c51-97a9-38a9ed040607/out.jpg)
 
 ---
 
