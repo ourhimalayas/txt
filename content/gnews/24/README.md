@@ -2,29 +2,35 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277121/)
+## 有声|俄罗斯军队离开切尔诺贝利
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277192/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-5.jpg)
-**盖特链接**： [https://gettr.com/user/repmattgaetz](https://gettr.com/user/repmattgaetz)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月31日外媒报导，乌克兰的核运营商Energoatom和国际原子能机构均证实，自2月24日以来一直控制切尔诺贝利核电站的俄罗斯部队，已经以书面形式将核电站的控制权移交给乌克兰人员，并将两个车队的部队调往白俄罗斯。第三支车队也离开了切尔诺贝利核电站工作人员居住的斯拉维季奇市，并向白俄罗斯移动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-129.png)
+俄罗斯控制该核电站后，乌克兰曾发出警告，停止运行的核电站有发生核泄漏的危险。俄罗斯撤军时也曾有报导称俄罗斯人在禁区内受到了“大量辐射”，但国际原子能机构在声明中说该消息并未得到证实。
 
-**众议员马特·盖茨自述：**
 
-国会议员马特·盖茨（Matt Gaetz）的官方GETTR。骄傲的保守派，很荣幸为佛罗里达州第一区服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a0wqp-mvddb-1.jpg)图片来源：网络
-**众议员马特·盖茨简介：**
 
-马特·盖茨全名马修·路易斯·盖茨二世（Matthew Louis Gaetz II，生于1982年5月7日）是美国律师和政治家。
+文字版原文：[俄罗斯军队离开切尔诺贝利](https://gnews.org/zh-hans/2273633/)
 
-自2017年以来，马特·盖茨一直担任美国众议院议员，代表佛罗里达州第1选区。作为共和党人，他是前总统唐纳德·川普最重要的国会盟友之一。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

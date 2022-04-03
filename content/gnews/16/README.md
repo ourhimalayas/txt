@@ -2,37 +2,51 @@
 ---
 
 
-## 有声|疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277227/)
+## 巴总理拟不接受罢免投票，陆军总长要求扩大与美联系
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277309/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译/编辑：文泓
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-01-223040.png)
-3月30日文贵大直播中，在谈到中共在疫情管控中执行所谓“清零政策”的背后动机时，主讲人如水战友指出，中共就是毒杀人民的元凶。被中共独裁政权奴役愚弄的14亿中国人，完全活在一场精心策划的庞氏骗局中而不自知，几辈人省吃俭用积攒的积蓄，被大量存入房地产、银行、医疗、养老、保险等领域，想老有所依、老有所养，这些浸染了无数人汗水鲜血的血汗钱，却被一帮盗国贼、欺民贼们所侵占、蚕食。中共效仿大跃进、文化大革命等方式，利用病毒、疫苗、全民核酸、建立集中营、方舱医院、封城、网络管控等卑鄙手段，以爱之名，欺骗毒害老百姓，目的是抽干人民的血汗钱，并将债主杀害，避免偿还欠下的巨额债务。把债主清零，债务也就自然清零。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/@UNNNBEXVJ7V2A@7.png)图片来源：Republic World & 雅典娜设计组
 
 
+周六巴基斯坦总理伊姆兰·汗表示，他可能不会接受推翻他的投票，他声称此举是由美国精心策划的。
 
-文字版原文：[疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机](https://gnews.org/zh-hans/2272320/)
+反对党表示，汗未能重振巴基斯坦受冠状病毒大流行打击的经济，也未能兑现让政府更加透明和负责任的承诺，反对党提出了一项于周日投票的不信任动议。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+汗在他的办公室告诉了一群精选的外国记者，整个过程都被抹黑了，我不能接受这个结果，推翻我的举动是美国对巴国内政治的公然干涉。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在其政治盟友退出联合政府并加入反对派后，汗已经失去了议会中的多数席位，他敦促他的支持者在周日投票前走上街头。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+就在汗讲话前几个小时，巴基斯坦陆军总长卡马尔·贾维德·巴杰瓦将军曾表示，巴基斯坦希望扩大与华盛顿的关系。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+美国总统乔·拜登自上任以来没有给汗打电话，但白宫否认正在寻求推翻他。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+阿富汗问题导致两国关系紧张，华盛顿指责巴基斯坦支持塔利班的叛乱成功，以至于去年美国和盟军混乱撤离。
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+尽管巴政府与美国的战略竞争对手中国达成了数十亿美元的发展协议，但巴军方似乎并不希望损害与华盛顿的关系，后者过去曾向其提供数十亿美元的军事援助。
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+巴杰瓦在伊斯兰堡的一次安全会议上说，“我们与美国有着悠久的战略关系，美国仍然是我们最大的出口市场”。
+
+他指出，巴基斯坦长期以来一直与中国保持密切的外交和商业关系，但补充说：“我们寻求在不影响双方关系的情况下扩大并拓宽两国的关系。”
+
+美国驻伊斯兰堡大使馆没有立即回复置评请求。
+
+早些时间媒体报道，在3月22日巴杰瓦将军代表军方要求汗总理辞职。
+
+参考链接：
+
+1、[Pakistan PM Khan suggests he might not accept vote to oust him | Reuters](https://www.reuters.com/world/asia-pacific/pakistan-army-chief-says-his-country-seeks-expand-relations-with-united-states-2022-04-02/?taid=62484d833225ef0001283fd7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+2、[Pak Army chief Bajwa asks Imran Khan to resign as Pakistan’s Prime Minister: Sources (republicworld.com)](https://www.republicworld.com/world-news/pakistan-news/pak-army-chief-bajwa-asks-imran-khan-to-resign-as-pakistans-prime-minister-sources-articleshow.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
