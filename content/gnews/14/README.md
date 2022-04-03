@@ -2,42 +2,63 @@
 ---
 
 
-## 实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281392/)
+## 美国及世界疫情简报（04-03-2022）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2281497/)
 
-编译：文斗
+整理：波士顿五月花 老枪6
+![](https://assets.gnews.org/wp-content/uploads/2022/04/202204.jpg)
+今天是2022年4月3号，星期日。
+以下是美国及世界昨日的疫情简报。
 
-在过去的几个月里，出现了一个令人担忧的趋势–人们的死亡速度前所未有，而这与Covid-19没有什么关系。
+**1．美国疫情**
 
-事实上，这一高峰几乎与实验性mRNA Covid疫苗推出完全吻合。
+美国新增新冠患者38,244人，总确诊80,140,390人。新增死亡1,733人，总死亡 982,371人。
 
-正如Gateway Pundit[上个月报道](https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduced-video/)的那样，美国所有年龄段的超额死亡人数都在激增，尤其是25至44岁的年轻人。根据CDC的最新数据，这一特定群体的超额死亡人数增加了84%，创下了历史记录。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-43.jpg)
-毫不奇怪，这种令人担忧的趋势并不仅仅影响美国。
+康州新增新冠感染1,243人，新增死亡0人。
 
-世界各地的国家，特别是那些被认为是西方一部分的国家，都在经历超额的死亡率，其中大多数国家的死亡率高得惊人。
+纽约州新增新冠确诊3,834人，新增死亡16人。
 
-我们的北方邻居加拿大在2021年7月31日至10月2日期间，最健康的加拿大人（0-44岁）死亡人数激增24%。
+新泽西州新增病例1,517人，新增死亡6人。
 
-值得指出的是，加拿大总理特鲁多在8月份强制要求工人接种疫苗，与超额死亡人数的激增完全吻合。
+马萨诸塞州新增新冠患者1,600人，新增死亡10人。
 
-通过马克西姆-博伊文（Maxim Boivin）[推文](https://twitter.com/MaximBoivin137/status/1482245009856475137?s=20&amp;t=EeGwcRHq7wl12ts5fbLBdg)可见：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-27.jpg)
-同样的趋势在欧洲也可以看到，绝大多数国家都经历了超额死亡人数的激增–除了几个明显的例外。
+马里兰州新增新冠患者438人，新增死亡人数为2人。
 
-如[下图](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1480265875580231687%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F04%2Fnot-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine%2F)所示，少数国家（如冰岛和瑞典）在整个大流行病期间没有完全参与破坏文明的封锁，现在的情况明显好于它们的欧洲同行。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-14.jpg)
+**2．世界疫情**
+
+1）亚洲疫情
+
+印度新增新冠患者1,260人；日本新增49,141人；印尼新增2,930人；菲律宾新增353人；孟加拉新增81人；土耳其新增13,367人；台湾新增235人；韩国新增264,097人；中国新增14,863人。
+
+2）非洲疫情
+
+埃塞俄比亚新增26人；摩洛哥新增85人。
+
+3）拉美疫情
+
+巴西新增新冠患者26,843人；哥伦比亚新增354人；阿根廷新增1,927人；智利新增5,978人；墨西哥新增2,538人。
+
+4）欧洲疫情
+
+俄罗斯新增新冠患者18,796人；法国新增149,053人；英国新增69,776人；意大利新增77,040人；西班牙新增43,265人。
+
+**5）全球新冠总感染人数为490,593,286人，总死亡人数为6,150,914人。**
+
+**3．新闻简报**
+
+1、一位英国顶级科学家表示，由于 Omicron BA.2 子变体驱动的持续感染，“很明显”COVID 大流行尚未结束。这位专家还表示，未来世界将经历另一场大流行，各国政府需要提前做好准备。
+2、周三，美国食品和药物管理局批准，为 50 岁及以上的美国人注射第二剂加强剂后的第二天，乔·拜登总统接受了他的第二剂COVID-19 加强剂注射。
+3、美国国会可能很快就会对一项小企业救济方案进行投票，其中包括 420 亿美元用于餐馆，130 亿美元用于特别受 COVID-19 影响的其他行业。国会规则委员会将于周二开会讨论更精细的问题，这表明可能很快就会进行投票。
+4、据悉，香港当局周六要求超过 740 万人从下周开始连续三天自愿在家中进行 COVID-19 检测。
+5、据悉，4月2日，香港新增新冠病例为4,475宗，七天平均值为6,749宗。香港确诊新冠患者总数为1,174,475人，死亡总数为8,177人。
 
 
-谁能预料到这个结果？肯定不是SCiENcE（《科学》，学术期刊）。
 
-根据美国的最新数据，到目前为止，**千禧一代受超额死亡浪潮的打击最大–可能是因为打疫苗是他们保住工作的唯一途径**。
+* * *
 
-最令人担忧的是，这种“令人不安”的趋势正在继续，甚至变得更糟。
+*封面：霹雳鼠年*
 
-这场大流行病从来与拯救生命无关。恰恰相反，它可能是对立的（是扼杀生命）。
-
-新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+*编辑 /发布：郭郊玉米地*
 
  
 

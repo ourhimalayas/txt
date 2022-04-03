@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 4:50 PM (UTC)`
+
+https://www.bbc.com/news/world-asia-60972186
+
+---
+
+`@miles 4/3/2022 4:49 PM (UTC)`
+
+MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Mission
+![img](https://media.gettr.com/group18/origin/2022/04/03/16/46db0add-5037-b371-e7d5-19556d0bf63e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 12:55 PM (UTC)`
 
 2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密
@@ -146,20 +159,6 @@ The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iro
 
 4/2/2022 Miles Guo’s GETTR: Every once in a while, the CCP would hire the so-called “mainstream” media to smear us. So what? The CCP’s "advertisements" for us are much more effective in letting people know about who we really are than our own words!<br/><br/>4/2/2022 文贵盖特：中共隔三差五会花钱雇所谓严肃媒体来污蔑我们，那又怎样？中共给咱们做的“广告“比咱自己说自己有效多了！<br/><br/>
 ![img](https://media.gettr.com/group14/getter/2022/04/02/21/8a9011d1-86cc-7054-0210-1675210f8abf/out.jpg)
-
----
-
-`@miles 4/2/2022 9:10 PM (UTC)`
-
-4/2/2022 Miles Guo’s GETTR: I am going to attend lots of meetings about the international collaborations of the New Federal State of China. The damage of the CCP virus, and the CCP’s insanity and evilness will make the Chinese people pay a dear price. Only by taking down the CCP can we fix all the problems in the world. Fellow fighters, please keep taking action. Never mind whether others would believe you or not.<br/><br/>4/2/2022 文贵盖特：文贵要参加很多关于新中国联邦和国际合作的会；中共病毒的危害以及中共的疯狂与邪恶将让中国人付出巨大的代价，只有灭共才能解决世界上所有的问题；请战友们继续行动，不要在乎别人信不信！<br/>
-![img](https://media.gettr.com/group7/getter/2022/04/02/21/f3eed8d5-2ad5-a417-173d-9640a9be7000/out.jpg)
-
----
-
-`@miles 4/2/2022 7:03 PM (UTC)`
-
-2022-4-2《避风港》(31) 疫苗接种者占病毒死亡人数接近95%
-![img](https://media.gettr.com/group19/origin/2022/04/02/18/832e0d7b-238d-3630-ef11-2c982f0aab86/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
