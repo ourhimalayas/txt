@@ -2,33 +2,42 @@
 ---
 
 
-## 【G时新闻】乌克兰总统称俄军正撤离乌克兰北部
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2277139/)
+## 有声|泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277140/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据美国有线电视新闻网（CNN）报道，泽连斯基周五（4月1日）在视频讲话中说：“占领者（俄军）正从我们国家北部撤离。整个撤离行动缓慢但显而易见。他们在部分地区战役中被驱离，其他地区则出现他们自行离开的情况。”
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据国外媒体3月30日报导，在对挪威议会的讲话中，乌克兰总统泽连斯基呼吁欧盟和挪威禁止俄罗斯船只使用欧洲大陆的港口。他强调，只要俄罗斯封锁其他国家的港口，它就应该被禁止使用任何自由世界的港口，这是全球航行的自由和安全问题，而不是金钱问题。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-134.png)
+泽连斯基感谢挪威加入欧盟对俄罗斯的制裁，并强调，欧洲公司绝不能帮助俄罗斯的军事机器，这个机器已经杀死了数千个乌克兰人，摧毁了数十座城市。
 
-泽连斯基呼吁身处北部的乌克兰民众在俄军撤离之际要保持警惕。
+他坚信，制裁是唯一能够迫使俄罗斯寻求和平的手段，因此必须连续每周推出新的制裁方案。对俄罗斯的制裁越严厉，和平就会越早恢复。
 
-他说：“我们要谨慎向前挺进，所有回到这里（乌克兰北部）的民众要非常小心，目前还不可能恢复正常生活。你们必须等待直到战场清理干净为止，同时确保不再出现新炮火。”
+另据报道，美国副国务卿谢尔曼在联合国安理会简报会上表示，俄罗斯海军在黑海地区拦截了90多艘为世界市场运送粮食的民用船只。
 
-泽连斯基表明，乌东地区情势依旧非常艰难。乌军已准备好，应对俄罗斯在顿巴斯第五和第二大城市哈尔科夫发动更多进攻。
+俄罗斯还在从博斯普鲁斯海峡到奥德萨的航线上布置了水雷，并污蔑说那些水雷是乌克兰的。乌克兰坚持要求俄罗斯对在黑海无节制地使用水雷滥杀无辜承担责任。
 
-盖特链接：[https://gettr.com/post/p137qh1351a](https://gettr.com/post/p137qh1351a)
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+文字版原文：[泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口](https://gnews.org/zh-hans/2273731/)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

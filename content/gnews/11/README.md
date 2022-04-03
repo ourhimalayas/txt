@@ -2,29 +2,40 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277121/)
+## 有声|中共封控区送物造假 男子高呼打倒共产党
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277122/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-5.jpg)
-**盖特链接**： [https://gettr.com/user/repmattgaetz](https://gettr.com/user/repmattgaetz)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+综合盖特消息，被中共封控疫区一处居民楼前，有防疫工作人员为宣传造假送物品摆拍，另一男子不满封控，在小区门口高呼打倒中共打倒习。
+画面显示，一名人员提两袋物品，假装进入一处楼房间，等后面一人拍照后，转身回到原地放下手中物品。该人员未进入的楼房是被封闭的，外面用桌子堵住门口。证实他们不是真正想把物资送到居民手上。
+另一段视频显示：一男子步出小区门前，被工作人员阻挡。男子挣脱下，举臂高呼‘打倒共产党，打倒习近平’。该男子发自内心的勇敢行为，是他清醒的意识到，造成自己灾难的的原因，是中国共产党，是习近平的独裁。
+中共的疫区极端封控政策，已经造成人道灾难恶果。新中国联邦人在传播真相，让更多的中国人觉醒。期望更多的同胞打碎缠在心灵的铁锁，无所畏惧站起来反抗邪恶中共。
 
-**众议员马特·盖茨自述：**
 
-国会议员马特·盖茨（Matt Gaetz）的官方GETTR。骄傲的保守派，很荣幸为佛罗里达州第一区服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a0wqp-mvddb-1.jpg)图片来源：网络
-**众议员马特·盖茨简介：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/hqdefault.jpg)
 
-马特·盖茨全名马修·路易斯·盖茨二世（Matthew Louis Gaetz II，生于1982年5月7日）是美国律师和政治家。
 
-自2017年以来，马特·盖茨一直担任美国众议院议员，代表佛罗里达州第1选区。作为共和党人，他是前总统唐纳德·川普最重要的国会盟友之一。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文字版原文：[中共封控区送物造假 男子高呼打倒共产党](https://gnews.org/zh-hans/2274821/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

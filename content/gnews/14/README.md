@@ -2,31 +2,28 @@
 ---
 
 
-## 乌克兰宣布已夺回基辅 俄军则将目光投向东部
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2277092/)
+## 有声|联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277114/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》乌克兰扎波罗热 4月2日报道，**乌克兰周六表示，乌克兰军队已收复基辅周围所有地区，宣布自俄罗斯发动入侵以来首次完全控制了首都地区。与此同时，俄罗斯军队已经重新集结，准备在乌克兰东部作战。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/乌克兰夺回基辅-e1648942873681.jpg)2022年4月1日，乌克兰士兵站在遭摧毁的一座桥旁边（图片来源：路透社）
-报道称，乌克兰首都基辅周围的城镇在经历了五周的战斗后伤痕累累，街道上到处都是尸体。
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 
-一位乌克兰官员说，**自俄罗斯本周从基辅撤军以来，乌克兰军队已经收复了该地区30多个城镇和村庄。**据报道，布查市长阿纳托利·费多鲁克说**，在这场战争中，有300多名布查市居民被杀。**
+3月30日，联合国人权事务负责人表示，正在调查俄罗斯使用集束炸弹的攻击行为。此前一天，联合国人权理事会任命挪威籍法官摩斯，率队调查俄在乌克兰犯下的战争罪行。
 
-**乌克兰武装部队报告称，周六俄罗斯的空袭和导弹袭击有所减少，但表示撤退的俄罗斯军队部署了地雷。**乌克兰紧急救援部门表示，**在基辅以西的德米特里夫卡村（Dmytrivka）的搜索中，一天内发现了1500多枚爆炸物。**
+人权事务专员巴切莱特说，乌克兰的医院、供水设施和行政大楼等民用建筑遭到袭击，大量平民伤亡，这些令人发指的攻击，可能与联合国人权事务工作人员正着手调查的24起俄军使用集束炸弹的指控有关。巴切莱特强调，俄罗斯的袭击违反了国际人道法，涉嫌构成战争罪。据悉，集束炸弹又称子母弹。其特点一是杀伤面积过大，容易波及平民。二是因为弹药量多，出现未爆炸弹药，在战后数十年内仍有可能伤及无辜。
 
-报道指出，俄罗斯说，从基辅附近撤军是和平谈判中的善意姿态。乌克兰及其盟友说，俄罗斯在基辅附近遭受重大损失后，被迫将注意力转移到乌克兰东部。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download-2-e1648942786406.jpg)图片来源：网络。
-**俄乌战争发展到今天，令双方在伊斯坦布尔举行的视频会谈“困难重重”。**克里姆林宫发言人德米特里·佩斯科夫周六表示，“主要的事情是谈判继续进行，要么在伊斯坦布尔，要么在其他地方”。
+文字版原文：[联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行](https://gnews.org/zh-hans/2270741/)
 
-新一轮会谈尚未宣布。**乌克兰谈判代表阿拉卡米亚周六表示，已经取得了足够的进展，可以让俄罗斯总统普京和乌克兰总统泽伦斯基进行直接对话。**
+音频处理/发稿：Daxia
 
-阿拉卡米亚补充说**，俄罗斯方面证实了我们的论点，即文件草案已经充分发展到允许两国领导人进行直接磋商。**
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-新闻来源链接：
-
-[Ukraine claims control over Kyiv region as Russia looks east | Reuters](https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

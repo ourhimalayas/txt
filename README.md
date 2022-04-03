@@ -30,40 +30,40 @@
 ### [福奇博士：“最好的有效疫苗就是自己被感染”](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共央行将数字人民币试点计划扩展到更多城市](/content/gnews/6/README.md)
+### [有声|白宫表示 普京被下属欺骗](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [中共央行将数字人民币试点计划扩展到更多城市](/content/gnews/7/README.md)
  ` 日本東京方舟農場`
 
-### [有声|乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](/content/gnews/7/README.md)
+### [有声|乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口](/content/gnews/8/README.md)
+### [有声|泽连斯基要求欧盟和挪威对俄罗斯船只关闭港口](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [【G时新闻】乌克兰总统称俄军正撤离乌克兰北部](/content/gnews/9/README.md)
+### [【G时新闻】乌克兰总统称俄军正撤离乌克兰北部](/content/gnews/10/README.md)
  ` G-时新闻`
 
-### [有声|中共封控区送物造假 男子高呼打倒共产党](/content/gnews/10/README.md)
+### [有声|中共封控区送物造假 男子高呼打倒共产党](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)](/content/gnews/11/README.md)
+### [今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|金融危机将促使全球彻底灭共](/content/gnews/12/README.md)
+### [有声|金融危机将促使全球彻底灭共](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [有声|联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行](/content/gnews/13/README.md)
+### [有声|联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [乌克兰宣布已夺回基辅 俄军则将目光投向东部](/content/gnews/14/README.md)
+### [乌克兰宣布已夺回基辅 俄军则将目光投向东部](/content/gnews/15/README.md)
  ` 蓝莲花农场`
 
-### [俄罗斯石油大亨：普京已陷入进退两难之地](/content/gnews/15/README.md)
+### [俄罗斯石油大亨：普京已陷入进退两难之地](/content/gnews/16/README.md)
  ` 日本東京方舟農場`
 
-### [新中国联邦法治基金乌克兰救援现场](/content/gnews/16/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [第236期 玫瑰看新闻](/content/gnews/17/README.md)
+### [新中国联邦法治基金乌克兰救援现场](/content/gnews/17/README.md)
  ` 【🌹玫瑰新闻】`
 
 ### [COVID-19疫苗副作用集萃——新冠疫苗后浑身疼痛](/content/gnews/18/README.md)
