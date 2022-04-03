@@ -2,46 +2,33 @@
 ---
 
 
-## 土耳其宜居&amp;黎巴嫩难确定&amp;国内要准备好最坏时刻的到来
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2279166/)
+## 台湾｜台美于华府进行实体会谈 为扩大台湾国际参与
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279381/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8849.50%EF%BC%89%E5%9C%9F%E8%80%B3%E5%85%B6%E5%AE%9C%E5%B1%85%E3%80%81%E9%BB%8E%E5%B7%B4%E5%AB%A9%E9%9A%BE%E7%A1%AE%E5%AE%9A%E3%80%81%E5%9B%BD%E5%86%85%E8%A6%81%E5%87%86%E5%A4%87%E5%A5%BD%E6%9C%80%E5%9D%8F%E6%97%B6%E5%88%BB%E7%9A%84%E5%88%B0%E6%9D%A5%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:b)
+**港台前线 zhong｜2022-4-3**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国在台协会（AIT）和驻美国台北经济文化代表处（TECRO）邀集美国国务院和台湾外交部的高阶代表，3月31日在华府针对扩大台湾参与联合国和其他国际论坛进行协商。
 
-**郭文贵先生：**刚才我看到有问黎巴嫩的，还有土耳其的。土耳其相对目前是，我觉得欧洲是最好的，土耳其是最好的地方，生活很便宜，去很容易。而且土耳其人很实际，他经济很差，这时候去是比较好的。像黎巴嫩这种战火待的国家很难说，没法确定。
 
-那么国内的战友，现在非常清楚的，国内战友，现在你没有能力出来，你不要出来，你出来以后，会饿死你。而且世界的经济也是灾难，更难生存。你在中国，你跟羊竞争都找不到草吃，现在你出来跟狮子争饭吃，很难。不要做这种错误的决定，是吧，你没有跟狮子、豹子竞争的PK的能力，你就不要出来。
+> On March 31, 2022, the American Institute in Taiwan (AIT) and the Taipei Economic and Cultural Representative Office (TECRO) convened high-level representatives of the U.S. Department of State and the Taiwan Ministry of Foreign Affairs for consultations in Washington on expanding **Taiwan’s participation at the United Nations and in other international fora**.
 
-在国内，我再说一遍，这个时候，你如果有钱、有能力的话，这个时候一定要长远打算。一定要想到，现在真的回老家这些地方，你得有老家的生存环境。在老家被那些县长、镇长弄成锁链女也是分分钟发生的事，很黑暗。但是你在大城市里边一旦没电没水，你咋办？这些综合的平衡，每个人情况不同。
 
-但是如果中国任何人，不做好一个最坏的时刻准备来的话，你记住那个最坏的时刻，一定发生在你身上。就像打疫苗一样，如果你不认真面对的话，那这个疫苗就会打到你身体里，而且永远拿不出来。没有统一的答案，没有统一的标准。因为不同的人有不同的环境，完全你自己做决定。谢谢！
+美国国务院新闻稿称，本次所有与会者都认识到，应该与那些关注台湾被排除在国际社会外的盟友紧密合作，推动台湾参与国际组织的可能性。
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+台湾外交部新闻稿表示，本次会议议题涵盖公共卫生、民航安全、打击跨国犯罪、经济合作及民主治理等，外交部感谢美国对台湾的坚定友谊与支持。美国于会议中重申将继续支持并协助台湾拓展国际空间及对全球关注议题作出更多专业贡献，台湾外交部代表人员，强调台湾将拓展国际参与，共同维护以规则为基础的国际秩序并强化多边治理及区域合作。
 
-编辑整理：Jacques；
+## 5月世界卫生大会
 
-字幕档制作：知津；
+本次与美国的会议，其一重点为“台湾作为观察员参与五月的世界卫生大会（WHA）”。据了解，丹麦国会3月31日以103票赞成、0票反对、0票弃权的压倒性票数通过支持立陶宛及台湾参与世界卫生大会（WHA）决议文，该决议文对立陶宛与中共之间的危机表示关注，呼吁丹麦与欧盟团结一致支持立陶宛，并吁请丹麦政府协同欧盟在欧中关系及相关国际场域提高对中共的压力，让台湾获得世界卫生大会观察员地位。
 
-视频制作及上传：Cindy；
+该决议文在丹麦国会辩论中获跨党派议员先后发言支持。
 
-G-News发布：海贼王M.D.LUFFY；
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97643)、[Taiwan Working Group Meeting on International Organizations (IO Talks)](https://www.state.gov/u-s-taiwan-working-group-meeting-on-international-organizations-io-talks-2/)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+* * *
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

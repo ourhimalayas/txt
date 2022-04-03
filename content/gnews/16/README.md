@@ -2,28 +2,36 @@
 ---
 
 
-## 北朝鲜金正恩胞妹等发言 谴责韩国主动攻击言论
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2279754/)
+## 中共通过俄罗斯出口欧洲的计划遭遇重创
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279827/)
 
-翻译：天天
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
-【北京共同】 – 朝鲜劳动党总书记金正恩的妹妹金与正和负责军事事务的党委书记朴正天分别于4月2日发表声明，谴责韩国国防部长徐旭提及对朝鲜的先发制人打击的言论。 朝鲜中央通讯社4月3日报道。 朴正天警告说，如果韩国采取包含主动攻击在内的军事行动，他将使用军事力量摧毁首尔的主要目标以及消灭韩国的军事力量。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/im-515795.jpeg)
+据外媒报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-237.png)图片来源：雅虎新闻
+尽管欧盟尚未正式禁止俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
 
-金与正是朝鲜劳动党已故总书记金正日四女，母亲是高容姬，她也是金正哲、金正恩的同母妹妹。现任朝鲜劳动党中央委员、党中央组织指导部第一副部长、朝鲜国务委员会委员。
+世界大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路德国内陆港口杜伊斯堡的海运保险公司也宣布不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
 
-金与正说，徐旭的讲话 “进一步加剧了 “南北关系和朝鲜半岛的军事紧张局势。
+自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
 
-朴正天说，挑衅的言行很可能会引发全面战争。他们两人的谈话都强调，朝鲜是一个有核国家。
+reference：
 
-参考链接：[韓国の先制攻撃言及を非難　北朝鮮、金正恩氏妹ら談話（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/7ab06ebaaba22f58afa4d1d991b510df36cec974)
+[https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
+
+撰稿、发布：骄子
 
 * * *
 
-审核：BryanW
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

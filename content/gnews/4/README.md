@@ -2,11 +2,11 @@
 ---
 
 
-## 数字货币的时代不可逆转（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279910/)
+## 关于喜币未来两周的利好消息（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279951/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-1020-1030-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-1030-1040-2_2.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：
