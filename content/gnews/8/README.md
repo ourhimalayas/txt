@@ -2,29 +2,43 @@
 ---
 
 
-## 樱花FM┃福奇为中共在病毒传播上的邪恶行径辩护
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2281292/)
+## 实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281392/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-277.png)
-白宫首席医疗顾问安东尼·福奇博士在周日接受采访时不愿指责中共在中共病毒（新冠病毒COVID-19）爆发的起源上撒谎。尽管有证据，但他认为中共“没有必要掩盖事实”。
+编译：文斗
 
-在接受 BBC 的“星期日早晨”采访时，福奇被问到他对中共政府“阻止”世界卫生组织 (WHO) 调查人员在试图调查病毒起源时“看到关键细节并与关键人物交谈”有何看法。
+在过去的几个月里，出现了一个令人担忧的趋势–人们的死亡速度前所未有，而这与Covid-19没有什么关系。
 
-“你认为中共政府为什么这样做？”主持人索菲拉沃斯询问了福奇，但福奇拒绝批评中国共产党在大流行爆发前向世界隐瞒有关该病毒的关键信息。“你知道，我不想对此发表任何或提及任何贬损言论，”他开始说，“中共国非常封闭，在某种程度上非常不情愿，特别是当你患上一种在他们国家发展的疾病时，他们变得非常神秘，即使没有理由保密，”福奇说，“我认为他们非常担心，也许对病毒从他们的国家进化而来感到尴尬，但这并没有错。”然后他声称中共没有“必要”掩盖事情。“因此，当他们看到自己国家的某些事情发生变化时，他们往往会有一种自然的反应，即不一定要掩盖事情，但也不是非常开放和透明，”他解释道。
+事实上，这一高峰几乎与实验性mRNA Covid疫苗推出完全吻合。
 
-但福克斯本月报道的新文件显示，美国官员知道中共在大流行爆发之前隐瞒了有关该病毒的重要信息。该信件最初是由法律监督组织司法观察通过信息自由法的要求获得的。司法观察主席汤姆·菲顿告诉 Fox News Digital，文件显示，福奇在美国国立卫生研究院的机构“隐藏了有关中共未能提供中共病毒基本数据的信息。”
+正如Gateway Pundit[上个月报道](https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduced-video/)的那样，美国所有年龄段的超额死亡人数都在激增，尤其是25至44岁的年轻人。根据CDC的最新数据，这一特定群体的超额死亡人数增加了84%，创下了历史记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-43.jpg)
+毫不奇怪，这种令人担忧的趋势并不仅仅影响美国。
 
-文字版原文：
+世界各地的国家，特别是那些被认为是西方一部分的国家，都在经历超额的死亡率，其中大多数国家的死亡率高得惊人。
+
+我们的北方邻居加拿大在2021年7月31日至10月2日期间，最健康的加拿大人（0-44岁）死亡人数激增24%。
+
+值得指出的是，加拿大总理特鲁多在8月份强制要求工人接种疫苗，与超额死亡人数的激增完全吻合。
+
+通过马克西姆-博伊文（Maxim Boivin）[推文](https://twitter.com/MaximBoivin137/status/1482245009856475137?s=20&amp;t=EeGwcRHq7wl12ts5fbLBdg)可见：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-27.jpg)
+同样的趋势在欧洲也可以看到，绝大多数国家都经历了超额死亡人数的激增–除了几个明显的例外。
+
+如[下图](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1480265875580231687%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F04%2Fnot-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine%2F)所示，少数国家（如冰岛和瑞典）在整个大流行病期间没有完全参与破坏文明的封锁，现在的情况明显好于它们的欧洲同行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-14.jpg)
 
 
-| [福奇为中共在病毒传播上的邪恶行径辩护](https://gnews.org/zh-hans/2264925/) |   |
-| --- | --- |
+谁能预料到这个结果？肯定不是SCiENcE（《科学》，学术期刊）。
 
+根据美国的最新数据，到目前为止，**千禧一代受超额死亡浪潮的打击最大–可能是因为打疫苗是他们保住工作的唯一途径**。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+最令人担忧的是，这种“令人不安”的趋势正在继续，甚至变得更糟。
+
+这场大流行病从来与拯救生命无关。恰恰相反，它可能是对立的（是扼杀生命）。
+
+新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

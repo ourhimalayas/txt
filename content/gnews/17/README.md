@@ -2,37 +2,23 @@
 ---
 
 
-## 18岁女孩在接种COVID疫苗两周后死于血栓
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2280816/)
+## 英国称对乌克兰平民的袭击必须作为战争罪进行调查
+` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2281007/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-18-edited.png)图片来源:childrenshealthdefense.org
+撰稿：追着曙光跑
 
-《曼彻斯特晚报》报道：
+据路透社（伦敦）4月3日的报道，英国外交大臣丽兹·特拉斯（Liz Truss）表示，在俄罗斯入侵乌克兰期间，对袭击平民的行为必须作为战争罪进行调查，英国将完全支持国际刑事法院相关的任何行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-03-at-11.43.36-PM.jpeg)图片来源：原新闻
+她在一份声明指出，随着俄罗斯入侵军队被迫撤退，越来越多的证据表明，入侵部队在基辅郊区的伊尔平（Irpin ）和布查（Bucha） 等城市犯下了骇人听闻的行为。
 
-一名 18 岁的女学生在接种 COVID 疫苗后仅两周就死于血栓。凯西·特纳（Kasey Turner）在经历“雷击般”的头痛后被送进了医院。一项调查听说，头痛是她的鼻窦腔血栓形成的结果。
+丽兹继续指出，在俄罗斯非法蛮横入侵乌克兰期间，不分青红皂白地攻击无辜平民的行为，必须作为战争罪进行调查。
 
-后来发现，这名护理学生实际上患有脑静脉血栓形成——鼻窦腔内的血栓。据约克郡直播报道，据信血凝块是由阿斯利康 COVID 疫苗引起的，她的调查发现，巴恩斯利医院的医生“**错失了诊断致命血凝块的机会**”。
+另外，俄罗斯此前否认针对平民，并否认在其所谓的乌克兰“特别军事行动”中犯有战争罪的指控。
 
-她遭受了疫苗的所有“常见”副作用，但希望这些副作用能在大约 12 到 18 小时后消失，调查获悉。但两周后，她“痛得尖叫”，这是她经历过的“最严重的头痛”。
+*发布：追着曙光跑*
 
-**参考链接：**[Tragedy as girl, 18, dies of blood clot two weeks after Covid vaccine](https://www.manchestereveningnews.co.uk/news/uk-news/tragedy-girl-18-dies-blood-23485810)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
-
+信息来源：[UK says alleged attacks on civilians in Ukraine must be investigated as war crimes](https://www.reuters.com/world/europe/uk-says-alleged-attacks-civilians-ukraine-must-be-investigated-war-crimes-2022-04-03/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

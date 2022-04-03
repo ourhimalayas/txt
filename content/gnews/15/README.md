@@ -2,59 +2,77 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.3）&#8211;打疫苗后全身关节痛
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2280946/)
+## 关于从上海市转运人员至杭州市等6个地市集中隔离的通知
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2281066/)
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-183.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/封面.jpg)
+声明：本文图片均转自网络，无法对真实性负责，本文原文刊登目的在于让更多人了解上海和中共国正在发生的中共病毒真相，同时本文撰稿及发布人员均与图片中微信群及微信发言人无直接关联，怨有头债有主，敬请相关部门不得对图片涉及微信群及微信发言人骚扰，因为这个世界需要知道真相，也因为这场灾难事关我们所有人。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+以下为图片及对应文字，图片一——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/001.jpeg)
+特急
 
-帖子原文：
+**关于从上海市转运人员至杭州市等****6****个地市集中隔离的通知**
 
-有没有打了疫苗后出现全身关节痛的，距离打完已经3个月了，去医院做了各种检查，不是风湿，也不是其他免疫疾病，但是每天全身关节都痛，感觉全身都没力气，走路都是拖着腿走………
+**杭州市、宁波市、湖州市、绍兴市、金华市、台州市新型冠状**
 
-越找不到原因越焦虑
+**病毒肺炎疫情防控工作领导小组：**
 
-#新冠疫苗
+根据党中央、国务院部署，按照国家应对新型冠状病毒肺炎疫情联防联控机制统筹安排，为助力上海市做好新冠肺疫情应急处置工作、经省新型冠状病毒肺炎疫情防疫组同意，决定由杭州市、宁波市、湖州市、绍兴市、金华市、台州市为上海市密接、次密接等提供储备隔离场所。其中，计划向杭州市和宁波市各转运10000人、向湖州市和台州市各转运2000人，向绍兴市和金华市各转运3000人。杭州市和宁波市须于4月3日中午12时前做好首批各5000人的隔离准备工作。
 
-精选评论：
+□□□□□□提高政治站位，主动担当作为，市级层面立即成立工作专班，按照“标准更高、管理更严、服务更暖”的要求，着手做好集中隔离场所各项准备工作。每个隔离场所均要设立专班，培训工作人员，规范做好防控消毒、健康观察、安全保卫、后勤保障、人员转运等各项工作，杜绝发生交叉感染和风险外溢。此外，每个上海转运集中隔离场所均派驻1名属地卫生监督人员，做好日常指导工作。
 
-[小汤圆(作者)](https://www.xiaohongshu.com/user/profile/5aef109c11be10722d5ab707) 回复：
+□□□□□□□□各明确1名联络员，于4月3日让午1：00前□□□□□□我办。
 
-12.30更新，关节还是痛，从4月到12月期间去过好几家医院，做了各种检查，结果都没有问题，目前我也没有吃药，没有接受其他任何治疗，就让它痛着（可以忍受的范围），只不过之前手会晨僵但是现在已经不会了，关节痛的频率从持续性到每天偶尔复发，可能这也是在慢慢变好的迹象，目前准备元旦后再去医院做一个免疫系统方面的检查，让自己能安心过个年。（我实在是太焦虑了 每天都被这个折磨 总是害怕自己生病）
+\*\*\*\*\*\*\*图片1文字内容引用完毕\*\*\*\*\*\*\*
 
-小红薯5D772A5C 回复 :
+图片二——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本.jpg)
+A：不看演唱会么
 
-我前面也检查不出什么问题，12月份又查了一次，抗核抗体ANA就阳性了，其他还没变化，发低烧5个月了。
+B：刚刚护士小姐姐和我说，黄浦区80000多的采样，阴的管子只有700多个，太吓人了。
 
-[小汤圆(作者)](https://www.xiaohongshu.com/user/profile/5aef109c11be10722d5ab707) 回复：
+A：真的假的，我也看到了
 
-8.8日更新，今天协和医院郝教授对我进行了视频会诊，他说我排除掉狼疮和类风湿相关疾病，应该是打了疫苗后引起的神经性关节炎，给我开了一个月的中药，等我吃完中药后再来反馈关节疼痛有没有缓解因为看大家的留言我会更焦虑，所以这两天强迫自己不打开小红书，没有及时回复大家的留言，不好意思～ 后续我会定期每半年去医院做一次免疫方面相关检查，希望大家都能有一个健康的身体。
+B：刚刚护士小姐姐告诉我的
 
-陈哆哆哆鱼 回复 :
+\*\*\*\*\*\*\*图片2文字内容引用完毕\*\*\*\*\*\*\*
 
-我已经打完疫苗几个月了，出现了手指关节肿痛和和其他关节痛，我以为是类风湿性关节炎，看到这个帖子我又开始怀疑是不是因为疫苗了。
+图片三——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/003_副本.jpg)
+A：定调了坚持清零，你开会开好了？参照武汉模式，一个省负责一个区，上海领导全面退出
 
-大大大大  回复：
+B：输掉啦？
 
-我爸爸就是。但是他只是膝盖痛。打完第二针当晚就痛。现在已经两个月了还没好。准备去看类风湿。之前以为是尿酸高但是查了也不高。
+A：嗯
 
-Kidult 回复 :
+B：好吧…
 
-我跟你情况一样，腿上还长过一摸就疼的红斑，去武汉协和查了很多项目，抽了11管血，结果都没有问题，医生说是血管炎引起的结节性红斑，也是免疫系统出了问题。我问医生是不是打了疫苗的原因，她说有可能。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/https-www-xiaohongshu-com-discovery-item-61054d4a0000000001029f25-share_from_user_hidden-true-xhsshare-CopyLink-appuid-593bc86450c4b43662c38691-apptime-1648986723.png)图片来源：小红书
-参考链接:
+A：接下来管制了，上海完蛋了，没人可以被放出来，决战5月1号
 
-[接种新冠疫苗后全身关节痛](https://www.xiaohongshu.com/discovery/item/61054d4a0000000001029f25?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648986723)
+\*\*\*\*\*\*\*图片3文字内容引用完毕\*\*\*\*\*\*\*
 
-发布：tianzhihuan
+撰稿：喜马拉雅的肉夹馍；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

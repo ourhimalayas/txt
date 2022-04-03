@@ -2,34 +2,39 @@
 ---
 
 
-## 所罗门群岛不允许中共军事入驻
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275776/)
+## 报道称: 在伤亡惨重后，焦虑不安的俄罗斯军队转向自己的指挥官并将他撞倒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2276137/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ded4dd47c592b31d469ec16bae7f5aba.jpg)
-近日所罗门总理表示，不允许中共在本国建立军事基地。
+**翻译：【日本东京方舟农场】流浪的蝼蚁**
 
-据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
+免责声明：不论在实地或网上，有许多关于乌克兰-俄罗斯冲突的声明和反声明。虽然 WION 非常谨慎地准确报道这一发展中的新闻报道，但我们无法独立验证所有声明、照片和视频的真实性。
 
-澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
+一位西方官员透露，俄罗斯军人驾驶坦克转向自己的指挥官并将其撞倒，该消息仍有待确认。
 
-撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-1.jpeg)（图片来源：wionews.com）
 
-reference：
+报道援引该官员的话称，在这起事件中，上校因伤势过重而死亡。这似乎揭示了俄罗斯军队士气低落的问题。
 
-[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
+一位西方官员告诉天空新闻记者黛博拉·海恩斯：“其中一个旅的长官是被自己的所在旅杀死的。因为他的旅损失惨重。我们认为他是被自己的部队故意杀害的。” 他无法确认上校名字的拼写，但写成 Col Yuri Medvechek。
 
-* * *
+“事实上，我们相信他被自己的部队所碾压。我相信他是第 37 摩托化步兵旅的指挥官，”这位官员补充说。
 
-欢迎订阅我们的GNews账号：
+早些时候，有报道称一名拼写为Medvechek的上校被他的下属碾过。虽然他活了下来，但他的双腿都断了。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+据乌克兰记者 Roman Tsymbaliuk 报道，在其 1,500 名步兵中有超过一半在战争中丧生后，这个饱受摧残和疲惫不堪的旅队感到不安。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif)
+报道没有说明驾驶坦克的士兵后续如何。
+
+注：本文仅代表作者观点。
+
+原文链接：
+[https://reurl.cc/pWzx24](https://reurl.cc/pWzx24)
+
+校对：妙喜小油鍋
+发布：文曦
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
