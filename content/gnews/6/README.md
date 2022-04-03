@@ -2,13 +2,11 @@
 ---
 
 
-## 被俄中假新闻“赐死”的乌克兰最致命女阻击手
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2282134/)
+## 4/3/2022 文贵直播：国内和香港的疫情是由疫苗副作用导致，中共国的隔离措施是为疫苗灾难作准备，同时也是党内政治斗争的结果
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2282235/)
 
-编辑： 上帝的孩子
-发稿：am夏天
-德国纽伦堡正义农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-03-at-21.36.38.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-03-at-21.50.06.png)![](https://assets.gnews.org/wp-content/uploads/2022/01/纽伦堡群.jpg)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
