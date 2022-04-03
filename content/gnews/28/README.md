@@ -2,41 +2,32 @@
 ---
 
 
-## 在上海如果感染新冠却没有山东大姐被曝光的幸运会怎样
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277472/)
+## 乌克兰战争之际美国密切关注中共国对台动态
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2277278/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面.png)
-据[**大公文匯網**](https://weibo.com/tkww) [22-04-3 08:02](https://weibo.com/7476748260/LmGPB9rs3?from=page_1002067476748260_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown.jpg)乌克兰战争之际美国密切关注中共国对台动态 网络图片
+据美国之音4月2日报道，当全球聚焦于俄罗斯对乌克兰的侵略战争之际，中共国是否对台湾采取军事行动引起越来越多的担忧。
 
-[#山东大姐因疫情流落上海街头#](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%A4%A7%E5%A7%90%E5%9B%A0%E7%96%AB%E6%83%85%E6%B5%81%E8%90%BD%E4%B8%8A%E6%B5%B7%E8%A1%97%E5%A4%B4%23&amp;from=default) 大姐自述：感染了三天了也没人管没人问，就因为自己是外地人，小区里有租的房子3500一个月，居委会也不让我进去，就把我赶到马路上来，晴天了就睡在大马路上，下雨了就找个桥底下睡。
+美国国务院负责中共国、台湾及蒙古的东亚事务副助卿华自强表示，美国关注的主要焦点是2月4日习近平与普京发表的两国友好“无止境”的联合声明，以及在乌克兰的背景下，中共国是否有任何“超越”这个联合声明的行动。美国最近的许多外交努力，包括拜登与习近平会晤，都是要清楚表达美国对这个议题的关切。
 
-据了解，通过媒体的报道后，大姐已被120接走，接到指定地点隔离救治。希望大姐早日康复！[L潍坊观察的微博视频](http://t.cn/A66lqT70)
+美国军方也对中共国的军事动态保持高度关注和戒备。美军印太司令部司令阿奎利诺上将表示，自2016年以来，中共国对台湾在军事和外交及其他方面的胁迫越发严重。阿奎利诺指出，乌克兰事件带来的第一个教训就是：“这真的可能发生”，第二个教训就是：不要安于现状，“随时做好准备”。
 
-上海正在发生的事情其实在全国各地都在发生，在疫情防控的大帽子之下，随意剥夺公民进出住所的权利已经司空见惯，而山东大姐在上海的这番遭遇最后得以解决并非上海相关部门良心发现，而是由于这位山东大姐的遭遇被媒体曝光，那么没有曝光的惨剧又有多少呢？
+俄罗斯和中共两大邪恶轴心国，狼狈为奸，沆瀣一气，一方战事未结束，另一方已然想登场。魔鬼的本性就是唯恐世界不乱，唯恐人民安居乐业。现今世界上所有的动荡、灾难、种族灭绝和屠杀都与中共有关。中共也是乌克兰战争背后的发起者和支持者。但是中共的目标并不是一个小小的乌克兰，而是称霸世界。武统台湾、断供美国芯片、人民币取代美元、彻底打垮美国经济才是中共的目的。台湾处在极度的危险中，随时会面临中共的军事打击。
 
-由于很多人并没有山东大姐这么幸运，所以要么被逼死，要么被饿死，要么被病死，时下之中国只要套上一个红袖箍，只要穿上防护服，立马获得对普通百姓颐指气使的权力，在无法无天的苛政之下，每一个沉默的羔羊的生存空间都变得越来越逼仄，都说羊被逼急了也会咬人，那么当越来越多的羔羊被逼到退无可退时，中华大地无处不在的人间地狱还能继续存在吗？
+新闻参考链接：[https://www.voachinese.com/a/us-official-and-commander-said-closely-watiching-china-actions-amid-ukraine-war-20220401/6511836.html](https://www.voachinese.com/a/us-official-and-commander-said-closely-watiching-china-actions-amid-ukraine-war-20220401/6511836.html)
 
-撰稿：喜马拉雅的肉夹馍；
+* * *
 
-审核：喜马拉雅的馍夹肉；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-校对：Maarago；
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+编辑：【英国伦敦喜庄园编辑部】
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

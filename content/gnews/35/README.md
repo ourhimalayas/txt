@@ -2,30 +2,27 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277121/)
+## 美能源部长：俄乌战争导向清洁能源独立
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2275968/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-5.jpg)
-**盖特链接**： [https://gettr.com/user/repmattgaetz](https://gettr.com/user/repmattgaetz)
+作者：银河系农场 – 骄子
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月31日，美能源部长格兰霍姆在采访中表示，俄乌战争将是一个很好的契机，鼓励各国去发展清洁能源和可再生能源，并逐步摆脱对传统能源的依赖。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-3.jpg)
+当前，世界能源危机因俄乌战争而显著加剧，俄罗斯依靠石油、天然气等丰富资源要挟欧洲乃至整个世界。格兰霍姆说，国家的信心不应该继续建立在化石燃料市场之上，而应利用俄乌战争实现清洁能源独立的目的，减少人们在加油站等待的痛苦，并保护他们免受能源等价格波动带来的影响。 格兰霍姆补充道，美国正处于战时地位，拜登政府为了应对失控的能源市场，提出了两个步骤的解决方案。除了释出大量战略石油储备，另外还援引《国防生产法》来促进美国电动汽车电池的发展，以及气象援助计划。该计划向美国各州发放32亿美元确保降低能源过度消耗，并投资于化石燃料脱碳技术。清洁能源独立已成为美国的中长期战略。
 
-**众议员马特·盖茨自述：**
+参考链接：
 
-国会议员马特·盖茨（Matt Gaetz）的官方GETTR。骄傲的保守派，很荣幸为佛罗里达州第一区服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a0wqp-mvddb-1.jpg)图片来源：网络
-**众议员马特·盖茨简介：**
+- [Granholm: We Have to ‘Use’ War to Move to Clean Energy, Before War, Many of Us Hoped We’d Focus ‘Solely on Clean Energy’](https://www.breitbart.com/clips/2022/03/31/granholm-we-have-to-use-war-to-move-to-clean-energy-before-war-many-of-us-hoped-wed-focus-solely-on-clean-energy/)
 
-马特·盖茨全名马修·路易斯·盖茨二世（Matthew Louis Gaetz II，生于1982年5月7日）是美国律师和政治家。
 
-自2017年以来，马特·盖茨一直担任美国众议院议员，代表佛罗里达州第1选区。作为共和党人，他是前总统唐纳德·川普最重要的国会盟友之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+总编：飞虹
+编辑：宁文静
+审核：木木
+校正/发稿：海阔天空1
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

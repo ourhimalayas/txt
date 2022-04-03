@@ -2,52 +2,24 @@
 ---
 
 
-## 巴总理拟不接受罢免投票，陆军总长要求扩大与美联系
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277309/)
+## 中日财经爆┃七哥谈到的地热能源技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2276906/)
 
-翻译/编辑：文泓
+撰稿：东京樱花团/加一颗稻草
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/@UNNNBEXVJ7V2A@7.png)图片来源：Republic World & 雅典娜设计组
+麻省理工学院(MIT)的附属公司Quaise称，它将利用核聚变技术钻出历史上最深的洞并释放出清洁的、几乎无限的、超临界的地热能源，进而可以为世界各地的化石燃料发电厂重新供电。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-7.png)图片来源与本文链接
+2018年，麻省理工学院的等离子体科学与聚变中心推出了一家名为Quaise的企业，其专门致力于使用混合系统进行超深地热。该系统将传统的旋转钻井跟陀螺仪驱动的毫米波技术相结合，泵入氩气作为清洗气体来清洁和冷却钻孔，同时将岩石颗粒发射回地表并避开。迄今为止，该公司已经筹集了大约6300万美元，其中包括1800万美元的种子资金、500万美元的赠款及2月初完成的A轮融资4000万美元。
 
+Quaise计划钻探20公里深的孔，比Kola超深孔要深得多。但Kola团队花了近20年时间才达到极限，Quaise预计其陀螺仪增强过程只需要100天。而这是假设一个1兆瓦的陀螺仪。在这些深度，Quaise预计将发现500°C左右的温度，这已经远远超过了地热能源在效率上的巨大飞跃点。Quaise指出：“水在压力超过22兆帕、温度高于374℃时是一种超临界流体。跟非超临界电厂相比，使用超临界水作为工作流体的电厂可以从每一滴水中提取多达10倍的有用能量。以超临界条件为目标是实现与化石燃料一致的功率密度的关键。”
 
-周六巴基斯坦总理伊姆兰·汗表示，他可能不会接受推翻他的投票，他声称此举是由美国精心策划的。
+Quaise正在致力于开发全面的、可在现场部署的示范机，预计这些示范机将在2024年开始运行。它计划到2026年使其第一个超热增强型地热系统达到100兆瓦的运行规模。 Quaise计划利用现有的基础设施如燃煤电厂。Quaise预计在2028年为其第一个化石燃料工厂重新供电，然后继续完善并在世界各地复制这一过程，因为利用这种钻探技术，地球上任何地方都应该有热能。全世界有超8500个燃煤电厂，总容量超过2000千兆瓦。
 
-反对党表示，汗未能重振巴基斯坦受冠状病毒大流行打击的经济，也未能兑现让政府更加透明和负责任的承诺，反对党提出了一项于周日投票的不信任动议。
+消息来源：[聚变技术将开启近乎无限的超深层地热能源开采](https://m.cnbeta.com/view/1240783.htm)
 
-汗在他的办公室告诉了一群精选的外国记者，整个过程都被抹黑了，我不能接受这个结果，推翻我的举动是美国对巴国内政治的公然干涉。
-
-在其政治盟友退出联合政府并加入反对派后，汗已经失去了议会中的多数席位，他敦促他的支持者在周日投票前走上街头。
-
-就在汗讲话前几个小时，巴基斯坦陆军总长卡马尔·贾维德·巴杰瓦将军曾表示，巴基斯坦希望扩大与华盛顿的关系。
-
-美国总统乔·拜登自上任以来没有给汗打电话，但白宫否认正在寻求推翻他。
-
-阿富汗问题导致两国关系紧张，华盛顿指责巴基斯坦支持塔利班的叛乱成功，以至于去年美国和盟军混乱撤离。
-
-尽管巴政府与美国的战略竞争对手中国达成了数十亿美元的发展协议，但巴军方似乎并不希望损害与华盛顿的关系，后者过去曾向其提供数十亿美元的军事援助。
-
-巴杰瓦在伊斯兰堡的一次安全会议上说，“我们与美国有着悠久的战略关系，美国仍然是我们最大的出口市场”。
-
-他指出，巴基斯坦长期以来一直与中国保持密切的外交和商业关系，但补充说：“我们寻求在不影响双方关系的情况下扩大并拓宽两国的关系。”
-
-美国驻伊斯兰堡大使馆没有立即回复置评请求。
-
-早些时间媒体报道，在3月22日巴杰瓦将军代表军方要求汗总理辞职。
-
-参考链接：
-
-1、[Pakistan PM Khan suggests he might not accept vote to oust him | Reuters](https://www.reuters.com/world/asia-pacific/pakistan-army-chief-says-his-country-seeks-expand-relations-with-united-states-2022-04-02/?taid=62484d833225ef0001283fd7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-2、[Pak Army chief Bajwa asks Imran Khan to resign as Pakistan’s Prime Minister: Sources (republicworld.com)](https://www.republicworld.com/world-news/pakistan-news/pak-army-chief-bajwa-asks-imran-khan-to-resign-as-pakistans-prime-minister-sources-articleshow.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
