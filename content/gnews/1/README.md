@@ -2,48 +2,24 @@
 ---
 
 
-## 普京时代结束了,余日不多的习近平必然对台湾冒险快战
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277765/)
+## 视频|欧盟警告中共不要干涉西方对俄罗斯的制裁
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2278004/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8833.50%EF%BC%89%E6%99%AE%E4%BA%AC%E6%97%B6%E4%BB%A3%E7%BB%93%E6%9D%9F%E4%BA%86%2C%E4%BD%99%E6%97%A5%E4%B8%8D%E5%A4%9A%E7%9A%84%E4%B9%A0%E8%BF%91%E5%B9%B3%E5%BF%85%E7%84%B6%E5%AF%B9%E5%8F%B0%E6%B9%BE%E5%86%92%E9%99%A9%E5%BF%AB%E6%88%98%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
+制作：香草山视频部
 
-**郭文贵先生：**我觉得，刚才我看了一眼，我们的喜币好像已经到了41块5了，是吧？这个交易量也很大， 现在场外交易是很多很多倍的场内交易，大家也都知道这个事情。
+当地时间4月1日，据相关媒体报道，欧洲理事会主席查尔斯-米歇尔当天与欧盟外交政策负责人何塞普-博雷尔、欧盟委员会主席乌尔苏拉-冯德莱恩和中共党魁习近平进行了视频会议。
 
-另外一个，我们看到这个世界的经济接近了崩溃的边缘，我要告诉大家的，世界的经济的崩溃远远没有开始，没有开始。我已经很早说过，大概今年的五月份会逐渐地世界经济从美国、欧洲会开始。
+在其后的新闻发布会上，米歇尔指出，欧盟一致认为俄乌战争正在威胁全球安全和世界经济，因此，如果中共向俄罗斯提供任何方式的军事或经济援助，其必将面临来自欧盟的制裁。
 
-然后俄罗斯、乌克兰的这场战争，现在大家要看到，太多让我们学了。就是现在在乌克兰现场，实际大家要看到真正的打这场仗的，不是乌克兰人，是由美国、欧洲的背后的这种隐形的各种军事上的支持。包括乌克兰的这种战术，把主力部队全部给平民化，消失在老百姓当中。
+早先，虽然中共官方声称其并未向俄罗斯提供武器，但中共两次在联合国安理会谴责俄罗斯对乌克兰侵略战争的决议中选择弃权。同时，中共官媒屡次鼓吹挺俄言论，并帮助俄罗斯散播攻击西方世界的谎言。
 
-然后现在整个俄罗斯从开始战争到今天，已经内部是一塌糊涂，一塌糊涂！然后不管它有多撑、多咋呼，这都可以告诉：普京的时代结束了。俄罗斯在这个世界上这次是彻底完了，这一点都不用怀疑，只是俄罗斯和乌克兰付出多大的代价。
+对此，参加会议的欧盟高级官员指出，任何规避制裁或向俄罗斯提供援助的企图都将延长此次战争，而这也将造成更多生命的死亡和更大的经济影响。为此，欧盟将对任何在经济或军事上援助俄罗斯的企图保持警惕。此外，欧盟也非常明确地表明，中共不应该干涉西方对俄罗斯的制裁。
 
-那么从这件事情可以看出来整个对台湾的事情，所谓的“习太阳”，他的身体，他知道撑不住多长时间了，“习太阳”要对台湾的冒险一定是打快仗，一定不会打慢仗的，他不会给世界上任何的机会来让你反应，重走俄罗斯到乌克兰这条路，就俄罗斯和乌克兰今天发生的可能在中共国打台湾一定不会发生。
+发稿：林礼
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
-
-编辑整理：Jacques；
-
-字幕档制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

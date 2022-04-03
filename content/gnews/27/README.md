@@ -2,29 +2,30 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277121/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2277380/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-5.jpg)
-**盖特链接**： [https://gettr.com/user/repmattgaetz](https://gettr.com/user/repmattgaetz)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-5.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-2.png)
 
-**众议员马特·盖茨自述：**
 
-国会议员马特·盖茨（Matt Gaetz）的官方GETTR。骄傲的保守派，很荣幸为佛罗里达州第一区服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a0wqp-mvddb-1.jpg)图片来源：网络
-**众议员马特·盖茨简介：**
+校对：Stay文苑
 
-马特·盖茨全名马修·路易斯·盖茨二世（Matthew Louis Gaetz II，生于1982年5月7日）是美国律师和政治家。
+编辑：Stay文苑
 
-自2017年以来，马特·盖茨一直担任美国众议院议员，代表佛罗里达州第1选区。作为共和党人，他是前总统唐纳德·川普最重要的国会盟友之一。
+发稿：Stay文苑
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+新闻：[https://gettr.com/post/p1345is9340](https://gettr.com/post/p1345is9340)
+访谈：[https://gettr.com/post/p139xx2eed2](https://gettr.com/post/p139xx2eed2)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

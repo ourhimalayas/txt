@@ -2,44 +2,79 @@
 ---
 
 
-## 我们救人是发乎内心,没有利益,没有功利,不要变成压力
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277649/)
+## COVID-19疫苗副作用集萃（2022.4.3） &#8211;接种辉瑞第三针后患上荨麻疹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277995/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8832.50%EF%BC%89%E6%88%91%E4%BB%AC%E6%95%91%E4%BA%BA%E6%98%AF%E5%8F%91%E4%B9%8E%E5%86%85%E5%BF%83%2C%E6%B2%A1%E6%9C%89%E5%88%A9%E7%9B%8A%2C%E6%B2%A1%E6%9C%89%E5%8A%9F%E5%88%A9%2C%E4%B8%8D%E8%A6%81%E5%8F%98%E6%88%90%E5%8E%8B%E5%8A%9B%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:8)
+#### 整理：gardeniahu 
+编辑：BENJ1
 
-**郭文贵先生：**大卫兄弟，我给你俩说一下，现场的兄弟姐妹们一定要记住，保持你们现在的队形，咱们救人我们是发自内心的，没有目的没有利益的，我们救人不要变成我们的压力。最重要的是，新中国联邦人我们很自私的，我们不像共产党说的，什么“我们所有人都可以死去”，不可以的！战友的安全和健康，一根毛儿都不能丢，这是你们在前线每个战友要做的事情，必须吃好睡好，必须一根毛儿不能丢，这是绝对的要求。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-第二个，我告诉大家，能救人就救人，救不了咱没办法，我们尽力了，但是它不能变成我们每个人的，你们觉得使命，有本事像九指妖说大卫已经在英国一个房间里头指挥，是吧？你就不要……这帮孙子让他们尽情地表演，你们还是相信自己现在做的事情，实力、唯真不破，还有我们依靠我们真正的能力来做我们想做的事情，不要有任何的压力。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-183.png)
+图片来源：雅典娜设计组(614)
 
-最后就是你们兄弟姐妹们互相照顾，但是晚上不要串房，不要串房。睡好觉，保持道德，你别整出一堆新中国联邦前线的婴儿，这咋办呐这玩意儿？要保持啊，保持！谢谢！
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-编辑整理：Jacques；
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25e5%2589%25af%25e4%25bd%259c%25e7%2594%25a8%25e9%259b%2586%25e8%2590%2583/)
 
-字幕档制作：知津；
+帖子原文：
 
-视频制作及上传：Cindy；
+**疫情****|****新冠疫苗副作用****辉瑞第三针后荨麻疹**
 
-G-News发布：海贼王M.D.LUFFY；
+之前有分享过接种辉瑞第三针，结果打完过了半个月因为疫苗起了严重的荨麻疹，导致一直停更这篇和大家分享一下荨麻疹的注意事项
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+我在打完疫苗后大概过了半个月起的荨麻疹（之前从来没有过类似的病史，顶多有过敏性鼻炎，但是现在已经好了）刚开始起的是小红包，有点像蚊子咬的包一样，然后晚上突然后背很痒，就挠了一下，顿时整个后背都红肿了，而且还有很多挠的指甲印。当时以为是急性的，吃一些过敏药就没在意
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+接下来几天就逐渐离谱，每当我写作业或者焦虑，紧张时，身上就会肉眼可见一下子起超级多红疹，然后我就搜了一下，荨麻疹竟然会随着心情变化，如果生气着急的话，就很容易刺激到。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+然后我就去看了中医，中医说是因为打疫苗后免疫系统紊乱再加上我内分泌失调激发出来的。差不多喝了半个多月的中药，一直没有好转。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+我就不吃中药了，改吃抗过敏的西药，现在已经吃了差不多一个多月，虽然不怎么起大片的疹子了，但是时不时还会有小片的疹子，只要不刺激不挠就没事。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+抹药，我抹了aveeno有一款止痒身体乳和一些其他的药膏。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+荨麻疹注意事项
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+忌海鲜生冷，一定不能吃，我就因为嘴馋浅尝了一下海鲜，荨麻疹就复发大片疹子了
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+多运动，早睡觉，提高免疫力
 
-G-TV：日本银河系农场。
+尽量不吃牛羊鸡肉，每个人体质不同，我是不能吃羊肉，其他的倒不会刺激疹子
+
+保持心情舒畅，不生气焦虑。我是真真切切的体验了暴躁的时候，荨麻起的有多恐怖。所以一定不要生气暴躁
+
+尽量不挠，不刺激皮肤包括脸！荨麻疹期间皮肤很敏感，稍微捏一下皮肤，就会很红起反应。我是有一次自己用粉刺针挤痘，结果没过一会，整个脸就肿了起来，每一个挤过的痘痘都红肿了（不敢放图，密恐人接受不了）
+
+暂时总结这么多，我现在差不多已经有两个月左右，还没有彻底好，应该是转为慢性的了有同样经历的宝子们可以在评论区分享一下
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image099.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image098.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image097.jpg)
+#荨麻疹 #辉瑞疫苗副作用 #辉瑞第三针 #辉瑞新冠疫苗 #温哥华
+
+精选评论
+
+飞猫 回复 ：
+
+我已经听说好几个人三针后荨麻疹
+
+Alexxu 回复：
+
+我也是三针后得的，海鲜酒都没事，就是不能运动出汗，发在手臂和腿，还好不痒，身体凉下来就自然退了
+
+MHJ778  回复：
+
+国内的疫苗打了也会复发
+
+参考链接:
+
+[辉瑞疫苗第三针后荨麻疹](https://www.xiaohongshu.com/discovery/item/624645c3000000002103b4b4?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648867293)
+
+发布：Frank2021
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

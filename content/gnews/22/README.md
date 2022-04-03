@@ -2,47 +2,84 @@
 ---
 
 
-## Gettr首席执行官杰森•米勒在福克斯节目中谈论大型科技公司的歧视和Twitter的虚伪
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2277226/)
+## 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277774/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-0:00
-就俄罗斯（社交媒体）账户推送对乌克兰战争宣传的问题，俄罗斯外交部最近的一个帖子声称俄军正在马里乌波尔提供人道主义援助。 但这不是真的，因为该市的市长说俄罗斯军队已经杀死了近 5000 人，包括在一个剧院避难的300人。现在和我一起的是Gettr的首席执行官杰森•米勒先生。杰森，非常感谢你的到来。（当我们）在一些网站上看到所有这些俄罗斯和中共国的宣传，然后意识到许多保守派，包括特朗普总统，仍然被推特和其他网站禁言，我想听听你的回应。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/未命名_副本.png)
+据小白不白@Hans08572119 盖特
 
-0:41
-是的，玛丽亚，这只是大型科技公司想要玩政治歧视伎俩的最新例子，让一群人获得言论自由，而另一些人则没有。 例如，你指出普京、俄罗斯大使馆、德米特里•梅德韦杰夫，所有这类的人都出现在推特上，而且不止于此。 塔利班，Ayatollah（什叶派宗教学者等级），哈马斯（等都有推特账户），而且名单远不止这些。 但他们阻止了特朗普总统。 他们去审查Babylon Bee（保守派基督教新闻网站），Charlie Kirk（美国保守派活动家，电台脱口秀主持人）甚至是伟大的塔克•卡尔森。 所以我们在这里看到了两种完全不同的标准，因为推特在尝试着决定谁可以拥有言论自由，谁不可以。
+[https://gettr.com/post/p139ic56b4d](https://gettr.com/post/p139ic56b4d)
 
-1:20
-(推特等社交媒体）他们是如何（为自己的双重标准）辩解的呢，杰森，我的意思是，比如，你在Gettr是如何处理（这种舆论）宣传的？
+#中共国 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼，跳楼前对话疑似如下：
 
-1:28
-的确如此。所以，对于俄罗斯（的舆论宣传），这是我们非常认真对待的事情。我们的目标始终是确保人们拥有言论自由，并且能够进行交流。不过，关于俄罗斯（的舆论宣传），我们看到俄罗斯政府为此做出了很大努力，试图将机器人推到我们的平台上。所以，我们最终暂停了（俄罗斯）整个国家的（账户）。因此，每天约有400个活跃用户受到影响。（我）对此感到抱歉。但是，由于俄罗斯政府试图推送机器人的方式，我们不能让它出现在（Gettr平台）。但我们研究并遵守现有的所有规定，无论是欧盟的（规定），还是（Gettr）平台运作所在地当地市政府（的规定），但我们会密切关注，是否有人违反我们的服务条款。如果他们在那里推送可能导致自我伤害的东西，那么我们就会把这些内容从平台上删除。要确保人们交流时拥有言论自由总是一个棘手的平衡，即使我们不喜欢他们的立场，但当它发展到人们实际上可能受到伤害或人肉搜索或有ISIS（恐怖主义）类型的舆论宣传时，甚至正如我们在这里看到的，俄罗斯政府试图做的事情，那么（这些账户）就需要被关闭。
+女：救命啊！
 
-2:31
-让我看看你对欧洲对抗大科技公司的看法。司法部现在正在支持一项反垄断法案，禁止亚马逊、苹果、谷歌等大型科技公司偏袒自己的产品和服务器，想知道你对此的回应。
+男：习近平你下不下台？！
 
-2:51
-这个问题其实让我有点担心。每当政府说他们是来帮忙的时候，我确实都很担心。我还担心国会山那些对大科技歧视所发生的一切视而不见的议员现在怎么会神奇地成为解决问题的人。我认为需要尽快发生的是对《第230条》（互联网服务供应商免责条款）进行修改。我认为，确保在这个数字城市广场上有保护措施是很重要的，这个数字市场是用来交流思想的。然而（法律）允许他们（互联网服务供应商）自我保护，然后也允许他们在政治上进行歧视，这就是我认为《第230条》必须要被修改的地方。如果我们这样做，将会缓解大部分现有的压力。我确实担心，这一特定的立法可能会扼杀创新，这样将不亚于大科技公司给我带来的沮丧。
+女：让他下！
 
-素材提供 – 蓝色天空
-软件听写 – 蓝色天空
-听写校对 – 蓝天灵梦
-文稿翻译 – Mary Hao
-翻译校对 – 文倩
-字幕添加 – 文所未闻
-最终审核 – 文倩
-编辑/上传 – 野草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
+……
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+女：他会死的！
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+男：共产党解不解散？！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+女：解散！
+
+男：能改革开放不？！
+
+男：还疫情防控吗？！
+
+#土共不亡百姓亡
+
+另据tjxcx💙💛@tjxcx 盖特
+
+天津赵沽里2022年4月2日早。
+
+[https://gettr.com/post/p135weqbd04](https://gettr.com/post/p135weqbd04)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/001-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/002-1.jpg)
+根据以上信息这是一起2022年4月2日早发生在天津河北区月牙河街赵沽里封控小区内的一起惨剧，让我们来回答这对夫妻的问题——
+
+习近平会不会因为这对夫妻的惨剧下台呢？
+
+不会！
+
+共产党会不会因为这对夫妻的惨剧解散呢？
+
+不会！
+
+能改革开放不？
+
+不会！
+
+还疫情防控吗？
+
+中共不亡，疫情不止！
+
+已经逝去的生命不能再复活，但是对于每个身处绝境的同胞来说，中共一日不亡，人民一日不得安宁，时下之计任何的悲观哀叹都于事无补，灭共不仅仅是正义的必需，灭共更是生存的必需，为了活着，为了一起起惨剧不再重现，让我们一起来告诉世界现在中共大地上正在发生的惨剧，因为无穷的远方和无数的人们都与我们息息相关，无穷的远方和无数的人们都与这个世界息息相关。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

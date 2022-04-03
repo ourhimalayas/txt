@@ -2,37 +2,37 @@
 ---
 
 
-## 有声|疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277227/)
+## 朝鲜谴责首尔关于军事能力的言论，警告将采取破坏性行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277775/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+翻译/编辑：小红帽
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-01-223040.png)
-3月30日文贵大直播中，在谈到中共在疫情管控中执行所谓“清零政策”的背后动机时，主讲人如水战友指出，中共就是毒杀人民的元凶。被中共独裁政权奴役愚弄的14亿中国人，完全活在一场精心策划的庞氏骗局中而不自知，几辈人省吃俭用积攒的积蓄，被大量存入房地产、银行、医疗、养老、保险等领域，想老有所依、老有所养，这些浸染了无数人汗水鲜血的血汗钱，却被一帮盗国贼、欺民贼们所侵占、蚕食。中共效仿大跃进、文化大革命等方式，利用病毒、疫苗、全民核酸、建立集中营、方舱医院、封城、网络管控等卑鄙手段，以爱之名，欺骗毒害老百姓，目的是抽干人民的血汗钱，并将债主杀害，避免偿还欠下的巨额债务。把债主清零，债务也就自然清零。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123879048_hwasong_17_3.jpg)图片来源：BBC
 
 
+根据CNA4月3日报道，据朝鲜中央通讯社报道，朝鲜领导人金正恩的妹妹金与正周日（4月3日）谴责了韩国国防部长关于邻国有能力打击朝鲜的言论。
 
-文字版原文：[疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机](https://gnews.org/zh-hans/2272320/)
+援引她的话说，这一评论“进一步恶化了朝韩关系和朝鲜半岛的军事紧张局势”。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+朝鲜劳动党中央委员会副部级主任金正恩还说，该国将“重新考虑很多事情”，而且由于这种言论，韩国 “可能面临严重威胁”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+韩国国防部长Suh Wook周五表示，韩国军方拥有各种导弹，其射程、精确度和威力都有明显提高，“有能力准确、快速地打击朝鲜的任何目标”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+Suh Wook还说，该部将积极支持军队，确保其有能力对朝鲜的导弹威胁作出压倒性的反应。他称北方为“敌人”。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+在周日的另一份声明中，朝鲜劳动党中央书记处书记表示，如果韩国军队采取先发制人的打击等危险的军事行动，朝鲜“将毫不留情地将其所有军事力量用于摧毁首尔和南朝鲜军队的主要目标”。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+新闻来源：[N Korea condemns Seoul’s remarks on military ability, warns of destructive action](https://www.channelnewsasia.com/asia/north-south-korea-military-kim-yo-jong-2604136)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+发布： tianzhihuan
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

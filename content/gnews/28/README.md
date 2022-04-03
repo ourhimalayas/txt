@@ -2,32 +2,51 @@
 ---
 
 
-## 乌克兰宣布已夺回基辅 俄军则将目光投向东部
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2277092/)
+## 巴总理拟不接受罢免投票，陆军总长要求扩大与美联系
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277309/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》乌克兰扎波罗热 4月2日报道，**乌克兰周六表示，乌克兰军队已收复基辅周围所有地区，宣布自俄罗斯发动入侵以来首次完全控制了首都地区。与此同时，俄罗斯军队已经重新集结，准备在乌克兰东部作战。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/乌克兰夺回基辅-e1648942873681.jpg)2022年4月1日，乌克兰士兵站在遭摧毁的一座桥旁边（图片来源：路透社）
-报道称，乌克兰首都基辅周围的城镇在经历了五周的战斗后伤痕累累，街道上到处都是尸体。
+翻译/编辑：文泓
 
-一位乌克兰官员说，**自俄罗斯本周从基辅撤军以来，乌克兰军队已经收复了该地区30多个城镇和村庄。**据报道，布查市长阿纳托利·费多鲁克说**，在这场战争中，有300多名布查市居民被杀。**
-
-**乌克兰武装部队报告称，周六俄罗斯的空袭和导弹袭击有所减少，但表示撤退的俄罗斯军队部署了地雷。**乌克兰紧急救援部门表示，**在基辅以西的德米特里夫卡村（Dmytrivka）的搜索中，一天内发现了1500多枚爆炸物。**
-
-报道指出，俄罗斯说，从基辅附近撤军是和平谈判中的善意姿态。乌克兰及其盟友说，俄罗斯在基辅附近遭受重大损失后，被迫将注意力转移到乌克兰东部。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download-2-e1648942786406.jpg)图片来源：网络。
-**俄乌战争发展到今天，令双方在伊斯坦布尔举行的视频会谈“困难重重”。**克里姆林宫发言人德米特里·佩斯科夫周六表示，“主要的事情是谈判继续进行，要么在伊斯坦布尔，要么在其他地方”。
-
-新一轮会谈尚未宣布。**乌克兰谈判代表阿拉卡米亚周六表示，已经取得了足够的进展，可以让俄罗斯总统普京和乌克兰总统泽伦斯基进行直接对话。**
-
-阿拉卡米亚补充说**，俄罗斯方面证实了我们的论点，即文件草案已经充分发展到允许两国领导人进行直接磋商。**
-
-新闻来源链接：
-
-[Ukraine claims control over Kyiv region as Russia looks east | Reuters](https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/@UNNNBEXVJ7V2A@7.png)图片来源：Republic World & 雅典娜设计组
 
 
+周六巴基斯坦总理伊姆兰·汗表示，他可能不会接受推翻他的投票，他声称此举是由美国精心策划的。
+
+反对党表示，汗未能重振巴基斯坦受冠状病毒大流行打击的经济，也未能兑现让政府更加透明和负责任的承诺，反对党提出了一项于周日投票的不信任动议。
+
+汗在他的办公室告诉了一群精选的外国记者，整个过程都被抹黑了，我不能接受这个结果，推翻我的举动是美国对巴国内政治的公然干涉。
+
+在其政治盟友退出联合政府并加入反对派后，汗已经失去了议会中的多数席位，他敦促他的支持者在周日投票前走上街头。
+
+就在汗讲话前几个小时，巴基斯坦陆军总长卡马尔·贾维德·巴杰瓦将军曾表示，巴基斯坦希望扩大与华盛顿的关系。
+
+美国总统乔·拜登自上任以来没有给汗打电话，但白宫否认正在寻求推翻他。
+
+阿富汗问题导致两国关系紧张，华盛顿指责巴基斯坦支持塔利班的叛乱成功，以至于去年美国和盟军混乱撤离。
+
+尽管巴政府与美国的战略竞争对手中国达成了数十亿美元的发展协议，但巴军方似乎并不希望损害与华盛顿的关系，后者过去曾向其提供数十亿美元的军事援助。
+
+巴杰瓦在伊斯兰堡的一次安全会议上说，“我们与美国有着悠久的战略关系，美国仍然是我们最大的出口市场”。
+
+他指出，巴基斯坦长期以来一直与中国保持密切的外交和商业关系，但补充说：“我们寻求在不影响双方关系的情况下扩大并拓宽两国的关系。”
+
+美国驻伊斯兰堡大使馆没有立即回复置评请求。
+
+早些时间媒体报道，在3月22日巴杰瓦将军代表军方要求汗总理辞职。
+
+参考链接：
+
+1、[Pakistan PM Khan suggests he might not accept vote to oust him | Reuters](https://www.reuters.com/world/asia-pacific/pakistan-army-chief-says-his-country-seeks-expand-relations-with-united-states-2022-04-02/?taid=62484d833225ef0001283fd7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+2、[Pak Army chief Bajwa asks Imran Khan to resign as Pakistan’s Prime Minister: Sources (republicworld.com)](https://www.republicworld.com/world-news/pakistan-news/pak-army-chief-bajwa-asks-imran-khan-to-resign-as-pakistans-prime-minister-sources-articleshow.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

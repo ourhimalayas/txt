@@ -2,35 +2,22 @@
 ---
 
 
-## 有声|俄罗斯军队离开切尔诺贝利
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277192/)
+## 秘翻在线：俄军乌克兰首都撤出暗埋地雷?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2277520/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月31日外媒报导，乌克兰的核运营商Energoatom和国际原子能机构均证实，自2月24日以来一直控制切尔诺贝利核电站的俄罗斯部队，已经以书面形式将核电站的控制权移交给乌克兰人员，并将两个车队的部队调往白俄罗斯。第三支车队也离开了切尔诺贝利核电站工作人员居住的斯拉维季奇市，并向白俄罗斯移动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-129.png)
-俄罗斯控制该核电站后，乌克兰曾发出警告，停止运行的核电站有发生核泄漏的危险。俄罗斯撤军时也曾有报导称俄罗斯人在禁区内受到了“大量辐射”，但国际原子能机构在声明中说该消息并未得到证实。
+撰稿：Sally(沙莉)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-6.jpg)图片来源：本文的链接
+【伊斯坦布尔时事】2日称，据乌克兰当地报道透露，因俄军撤离，乌克兰在收复的首都基辅郊区布查，发现了许多平民尸体躺在大街上。
 
+乌克兰总统泽连斯基坚称，俄军从北方撤军是在“设埋地雷”，使撤离的民众难以返回。
 
+位于基辅西北部的布查在过去一个月被俄罗斯军队占领后，4月1日重新回归乌克兰政府管制。
 
-文字版原文：[俄罗斯军队离开切尔诺贝利](https://gnews.org/zh-hans/2273633/)
+据法新社报道，一条街道上至少有20具尸体被确认，很悲惨。一个个都穿得跟平民一样，有的尸体被绑着双手，他们的外表和状况表明，他们已经被丢在那里好几天了。 布卡市市长说，到目前为止，有280具尸体被集体埋葬。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+信息来源：[https://news.yahoo.co.jp/pickup/6422745](https://news.yahoo.co.jp/pickup/6422745)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+责编：Eric Kim
 
  
 

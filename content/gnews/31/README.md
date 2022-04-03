@@ -2,41 +2,41 @@
 ---
 
 
-## 全美医院的中共病毒患者数量达到历史新低
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276976/)
+## 中国对俄出口受到西方制裁冲击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277202/)
 
-翻译与编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《美联社》诺福克，弗吉尼亚州4月1日报道，**自中共病毒疫情大爆发以来，全美医院中共病毒的住院人数下降到自疫情早期以来的最低水平。在两个多月的时间里，因中共病毒住院的患者人数下降了90%以上，一些医院首次连续几天没有患者住在ICU。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/全美患者新低.jpeg)图片来源：美联社。
-目前，住院率处于2020年夏季以来的最低水平，上周全国中共病毒平均住院人数降至1万1860人，为2020年以来的最低水平，与1月中旬创下的逾14.5万人的峰值相比大幅下降。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-南佛罗里达大学流行病学家杰森·萨莱米说:“我们都应该微笑，因为现在医院里坐着的COVID患者和重症监护病房的患者人数都处于这个低点。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/萨莱米博士.jpg)南佛罗里达大学流行病学家杰森·萨莱米（图片来源：网络）
-虽然萨莱米表示，这是一个让不堪重负的医疗保健系统喘口气的好时机，但他警告说，公共卫生界需要密切关注欧米克隆的BA.2亚型。因为这个病毒变种的出现，推动了英国住院病例的增加，而且这种病毒目前估计占美国感染病例的一半以上。
+整理：gardeniahu
+编辑：Mohegayer K. Simon
 
-根据美国卫生与公众服务部(U.S. Department of Health and Human Services)的数据显示，重症监护病房(ICU)病人数量也明显呈现出乐观的趋势，目前已经下降到不到2000人。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/20-1.png)图片来源：雅典娜设计组
 
-周五，加利福尼亚州的加州大学戴维斯健康中心(UC Davis Health)在推特上表示，重症监护病房两年来首次连续两天没有出现中共病毒患者。
 
-费城的首席医疗官托尼·里德(Tony Reed)博士说，病人在天普大学卫生系统(Temple University Health System)待的时间减少了，因为核磁共振(mri)、CT扫描和实验室测试不再有积压，病人可以及时得到检查。
+据大纪元2022年04月01日报导，俄罗斯因入侵乌克兰而受到西方制裁，正在产生连锁反应。尽管中共坚持挺俄，在卢布贬值之际，中国对俄罗斯的出口难免受到冲击。
 
-里德博士还说，Temple Health的三家医院在周四收治了6名成年中共病毒患者，这可能是自2020年3月以来的最低人数了。
+俄罗斯因入侵乌克兰受到制裁以来，在俄西方公司纷纷选择离开，以免受到制裁连带。而中国的跨国公司则选择留在了俄罗斯，不过大多是规模较小的公司，更容易受到汇率损失影响。
 
-哥伦布市俄亥俄州韦克斯纳医疗中心(Wexner Medical Center)的首席运营官杰伊·安德森(Jay Anderson)说，床位清空也对乡村地区的病人有帮助。在激增期间，医院面临着从社区医院接收需要加强治疗脑瘤、晚期癌症和中风患者的挑战。现在，这一负担正在减轻。
+中国是俄罗斯最大进口来源国，根据海关数据，仅在1月和2月，中国就向俄罗斯出售了126亿美元的商品，主要是电脑、汽车、鞋子和玩具。俄罗斯受到制裁以后，卢布出现过山车式的波动。俄罗斯进口商和中国出口商都担心被套牢，并因此推迟业务。
 
-爱达荷州圣卢克卫生系统的首席医疗官弗兰克·约翰逊(Frank Johnson)博士说，虽然住院率下降，但并不意味着医院空着，仍然有许多患者需要治疗，我们不能掉以轻心，有些疫情措施仍需要继续实施，比如戴口罩。
+西方对俄罗斯祭出一轮又一轮的制裁，卢布兑美元和人民币的汇率都出现了巨大波动。其中，卢布兑人民币贬值超过40%，不过自3月9日的低点以来，俄罗斯货币已经反弹大约70%。卢布兑美元在入侵后的短短七个交易日内暴跌44%，但自3月7日的低点以来已飙升近90%，银行间市场交易价格约为81卢布兑1美元。
 
-新闻来源链接：
+俄侵乌以来，中共一直拒绝谴责俄罗斯在乌克兰的行动，并拒绝称其为“入侵”，相反地，一再批评西方的制裁。路透社3月25日报导，中共在幕后对中国公司触犯制裁红线持谨慎态度。消息人士说，国营的中国石化集团已经暂停在俄罗斯的一项重大石化投资和天然气营销企业的谈判。
 
-[Number of COVID patients in US hospitals reaches record low | AP News](https://apnews.com/article/covid-business-health-pandemics-norfolk-36714eb4a053fb658e4b58139f2dd9e3)
+美国总统拜登上周四（3月24日）表示，他在上周的通话中已经向中共领导人习近平明示，帮助俄罗斯将面临后果，并指出中国经济未来与西方的联系比与俄罗斯的联系更紧密。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+参考链接：对俄制裁连锁反应 中国对俄出口受冲击
+
+[https://www.epochtimes.com/gb/22/4/1/n13689255.htm](https://www.epochtimes.com/gb/22/4/1/n13689255.htm)
+
+*发布：tianzhihuan*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

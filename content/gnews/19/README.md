@@ -2,30 +2,41 @@
 ---
 
 
-## 乌俄再次换囚！ 乌军71男15女获释 已返基辅
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2277276/)
+## 号称三天治愈新冠的特效药在澳洲悄悄上线
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2277845/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-3月24日，根据乌克兰议会表示，在总统泽伦斯基的命令下，乌克兰将从沉船中救出的11名俄军，换回19名驻守在蛇岛（Zmiinyi Island），曾怒呛「俄罗斯军舰，去你X的！」的乌军，而这也是双方首度达成换囚协议。
+翻译&评论：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-35.jpg)图片来自网络
+《News AU》近日报道，新的研究表明，一种新的抗病毒药物可以在短短三天内消除新冠，这是在澳大利亚病毒病例不断增加的情况下取得的一个有希望的进展。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/php6owM8R.jpg)图片来源：LTN
+这项由制药公司默克公司的朱莉·史翠斯基博士及其同事进行的研究表明，口服抗病毒药物莫纳皮拉韦（molnupiravir）能够在治疗的第三天消除新冠病毒。
 
-4月1日提摩申科透露，乌方和俄方经过谈判再次交换战俘，乌军在札波罗热地区换回86名士兵，包含15名女性，「朋友们，来自扎波罗热地区的好消息。刚刚进行了换囚，包括15名女性在内的86名乌克兰军人已经安全」，而这86名士兵皆已回到首都基辅。
+相比之下，接受安慰剂的参与者需要五天或更长时间才能消除病毒。
 
-乌克兰3月24日曾以21名俄军战俘换回29名乌军，如今再次又营救回来86名乌克兰军人，已经有一百多名乌军安全抵达家园。从照片可以看出这次营救的人员情况基本康健，只有一人拄着双拐貌似腿部有受伤，不知他们在被俘的过程中有没有遭受虐待。
+史翠斯基博士得出的结论是，只要在症状出现后五天内给药，连续服用五天的莫纳皮拉韦可有效且快速地消除患者体内的新冠病毒。
 
-俄乌战火仍在继续，乌克兰人民仍在遭受战火，作为被俘的乌克兰士兵经历了一场生死诀别，能平安回到自己的家园是对战场被俘的乌克兰勇士们最好的慰藉。被俘不是耻辱，为抗击侵略者做出贡献的兵勇永远是乌克兰的骄傲。
+治疗第三天的结果显示，接受药物治疗的 92 名参与者中没有任何一人出现病毒。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3880916](https://news.ltn.com.tw/news/world/breakingnews/3880916)
+“本次研究提供了额外的数据，来证明莫纳皮拉韦能比安慰剂更快地帮助患者消除SARS-CoV-2病毒，并进一步佐证了”MOVe-OUT“研究项目的主要发现，即莫纳皮拉韦可以降低给高危人群带去严重疾病的风险。”
 
-撰稿/发布：一叶知秋
+莫纳皮拉韦的试验现在正进入第三阶段。
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+今年1月，澳大利亚药物用品管理局（TGA）加入美国，英国，加拿大和日本的行列，临时批准了莫纳皮拉韦。
+
+澳大利亚卫生部官网称：“这些口服药物的优势在于，许多人将能够在自己的家中接受新冠治疗，而无需前往医院接受住院治疗。”
+
+“这两种治疗都应在新冠确诊后尽快进行，以达到最佳效果。”
+
+文贵先生早有爆料，这款所谓的新冠特效药比新冠疫苗还要毒。制药公司是瞄准了奥米克戎传播性强的特征，数量庞大的感染群体都有可能成为这款特效药的潜在客户，准备大赚特赚，其心可诛！希望大家向周边人多多宣传关于所谓新冠特效药的真相，能救一个是一个。
+
+参考链接：
+
+[https://www.news.com.au/lifestyle/health/health-problems/new-oral-covid19-drug-eliminates-virus-in-days-study-finds/news-story/701eabf16b1a2dd8d63fc8934ef2bed4](https://www.news.com.au/lifestyle/health/health-problems/new-oral-covid19-drug-eliminates-virus-in-days-study-finds/news-story/701eabf16b1a2dd8d63fc8934ef2bed4)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
