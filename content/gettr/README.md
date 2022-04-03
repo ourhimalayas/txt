@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 2:14 AM (UTC)`
+
+2022.04.02 NFSC finance 新中国联邦 | 喜财经  货币的本质是信用，信用的本质是流通；⻩金为什么不适合做货币
+![img](https://media.gettr.com/group28/origin/2022/04/03/01/b7e0c215-7c42-c7fc-cd40-bbc692f49532/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/3/2022 1:48 AM (UTC)`
 
 Medyka Border: A Belgian veteran named Robin saw our yellow vest with “Take Down the CCP” and said :”Glad you are here, you represent the good people”. He agreed that taking down the CCP is to take down the bad people, then everyone in the world can be happy. He liked the NFSC tent very much and took a picture of it.<br/><br/>👆梅蒂卡边境： 来自比利时的退伍军人Robin看到我们穿的灭共黄马甲说 ，很高心看到你们在这里，你们代表着好人，灭共就是要灭掉坏人，灭掉坏人，世界上的人才会幸福，我们才会赢！ 他说新中国联邦的大帐篷太棒了，他有拍照留念。<br/><br/>感谢前线战友报道🙏
@@ -151,13 +158,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 【Ukraine Rescue】03/30/2022 Some refugees are fleeing Ukraine, while others are choosing to return to Ukraine, and those who choose to return are doing so because it is difficult to survive abroad. In any case, the NFSC and the ROLF provide them with as much help as possible.<br/><br/>【乌克兰救援】03/30/2022 一些难民在逃离乌克兰，而其他人则选择回到乌克兰，选择回国的人是因为在外生存艰难。无论如何，新中国联邦和法治基金会尽可能地给他们提供帮助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group23/getter/2022/04/02/13/4ee1fa3b-ef52-2bd5-d5b7-ea8449053cc2/out.jpg)
-
----
-
-`@miles 4/2/2022 1:11 PM (UTC)`
-
-4月2号，国内的噩梦和吃草的时代还远远没有到来，这些让中国老百姓不吃公共草坪的这些人，末来他们比这些老百姓还要惨！【七哥，墙内吃草的灾难还没来，关键是现在草都不让吃，悲剧，太惨了。】
-![img](https://media.gettr.com/group33/getter/2022/04/02/13/ad2d87c3-eabe-db74-7d15-31170a33bfed/8867d003258a8712e0bf6d46d2c46826.jpg)
 
 ---
 
