@@ -17,6 +17,36 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 11:08 PM (UTC)`
+
+4/3/2022 Miles Guo: The CCP delivered the HQ series missiles and air defense systems to Serbia five days ago, indicating that it has officially participated in the Russia-Ukraine war. The US dollar and the United States are going to be the big winners in the Russia-Ukraine war. Digital currency will be the strongest money in the world, and the Himalaya Coin will be able to supersede the US dollar to circulate in the world.<br/><br/>4/3/2022 文贵直播：中共在5天前已将红旗导弹和反导系统送往塞尔维亚，这意味着中共正式参与了俄乌战争；美元和美国是俄乌战争的大赢家；未来最牛的是数字货币，喜币能取代美元在全球流通<br/>
+![img](https://media.gettr.com/group43/getter/2022/04/03/23/4be565b5-0e8b-5871-02c8-6915e36e7d10/out.jpg)
+
+---
+
+`@miles 4/3/2022 11:03 PM (UTC)`
+
+4/3/2022 Miles Guo: The current pandemic in mainland China and Hong Kong are indeed caused by the adverse effect of the COVID vaccines; the quarantine measures in Communist China serve as a national rehearsal for the impending COVID vaccine disasters; meanwhile it is also a result of politics within the CCP.<br/><br/>4/3/2022 文贵直播：国内和香港的疫情是由疫苗副作用导致，中共国的隔离措施是为疫苗灾难作准备，同时也是党内政治斗争的结果<br/>
+![img](https://media.gettr.com/group17/getter/2022/04/03/23/b7988529-2431-aff9-c3ae-c5143940eb93/out.jpg)
+
+---
+
+`@miles 4/3/2022 11:00 PM (UTC)`
+
+2022.04.03 NFSC News   NFSC’s Live-Casts in Medyka Creates New Media Framework
+![img](https://media.gettr.com/group43/origin/2022/04/03/22/c877f9f0-c3fd-34a3-ac84-e6637268aa8d/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@20minfocus 4/3/2022 6:30 PM (UTC)`
+
+昨日，在英国圣约翰贝德沃丁教堂有一场为乌克兰祈祷和平的演奏会。K.H小战友向英国当地观众介绍了新中国联邦和法治基金的乌克兰救援行动，获得了当地民众的鼓励和掌声。<br/><br/>On April 2nd， a Concert for Peace in Ukraine was organized by local British young musicians at St John in Bedwardine Church. K.H proudly introduced the rescue operation in Ukraine carried out by NFSC and ROLF to the audience and won the encouragement and applause of the local people.
+![img](https://media.gettr.com/group37/origin/2022/04/03/18/e5829ec7-2254-b7c2-2daf-8e4a93884630/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mos_hongkong 4/3/2022 10:30 PM (UTC)`
@@ -128,38 +158,6 @@ MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 Medyka Border: A Belgian veteran named Robin saw our yellow vest with “Take Down the CCP” and said :”Glad you are here, you represent the good people”. He agreed that taking down the CCP is to take down the bad people, then everyone in the world can be happy. He liked the NFSC tent very much and took a picture of it.<br/><br/>👆梅蒂卡边境： 来自比利时的退伍军人Robin看到我们穿的灭共黄马甲说 ，很高心看到你们在这里，你们代表着好人，灭共就是要灭掉坏人，灭掉坏人，世界上的人才会幸福，我们才会赢！ 他说新中国联邦的大帐篷太棒了，他有拍照留念。<br/><br/>感谢前线战友报道🙏
 ![img](https://media.gettr.com/group40/origin/2022/04/03/01/70559d1c-a0f7-4cbb-b148-0d6c66302628/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_designer 4/3/2022 1:34 AM (UTC)`
-
-H-Pay是打开世界金融盒子的密码，是新中国联邦走向世界财富的钥匙，解救所有中国“锁链女”，把中国人从思想锁链上解救出来。战友一定要懂得H-Pay 的玄妙！<br/><br/>视频：蜂鸟手绘—战友日常之最强支付HPAY<br/><br/>#hcoin #hpay #himalayaexchange
-![img](https://media.gettr.com/group5/origin/2022/04/03/01/38ee1b54-713c-a7dc-6afa-570d56a28625/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_health 3/30/2022 1:42 PM (UTC)`
-
-【视频回放】<br/>伊维菌素具体有哪些作用? <br/>香草山医疗部文恩博士 @ZionaEmanuel，在《GTV新闻访谈》节目中谈论，早期的我们刚才提到了抗病毒作用当然这方面研究很多，有的学者认为伊维菌素和羟氯喹的机制很类似它可以作用在S蛋白.因为中共病毒实际上是通过ACE2受体和S蛋白结合，有些学者通过计算机或分子模拟得到结论，说伊维菌素可以和S蛋白RBD部分结合来阻止ACE2和S蛋白的结合，从而达到抑制病毒进入细胞的目的。当然后来也有一些通过计算，就是叫in silico的实验发现，说可能它不一定只作用在S蛋白，可能其他的非功能性蛋白，比如说这个叫做main protease，就是蛋白酶。它是在病毒复制过程中随着病毒复制，然后转录，翻译出来的一种蛋白。那么伊维菌素可能也会作用在这上面。这个分子机制其实是有争议的，但是我们确实在一些临床经验中看到伊维菌素确确实实在早期的时候是很有效的。而且我们之前也做过一个荟萃分析的节目。就是这些大药商们怎么去诋毁世界各地做的临床实验。即便这么诋毁，到最后其实我们也是看到一个满意的结果。就是它能够在感染早期，中期，晚期，伊维菌素能够降低将近百分之六十的重症的风险，所以说这个结果还很满意的…<br/><br/>#爆料革命<br/>#新中国联邦<br/>#WhistleblowerMovement<br/>#TheNewFederalStateOfChina<br/>#香草山 #医疗部<br/>#COVID19 #SpikeProtein<br/>#Artemisinin #青蒿素<br/>#Vaccine #mRNA #Omicron
-![img](https://media.gettr.com/group7/origin/2022/03/30/13/35b300b5-cfeb-cb18-4db8-6398b1591ba7/out.jpg)
-
----
-
-`@miles 4/3/2022 1:08 AM (UTC)`
-
-2022.04.02 晚  新中国联邦 | 新闻访谈  上海残忍将新冠阳性儿童与父母分离；比尔·盖茨关联的中共影响力团体希望与美国农业官员合作；所罗门总理表示，不允许中共在本国建立军事基地
-![img](https://media.gettr.com/group9/origin/2022/04/03/01/9059ac32-835a-dd28-7d48-0b35268ac12e/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/3/2022 12:31 AM (UTC)`
-
-2022.04.02 晚 《新中国联邦新闻》乌克兰救援营地形成国际互助大家庭；救援营地的盖特直播 正在打造全球最棒的媒体平台
-![img](https://media.gettr.com/group23/origin/2022/04/03/00/1cd00192-9344-0e30-596b-4319cfa42deb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

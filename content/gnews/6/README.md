@@ -2,26 +2,20 @@
 ---
 
 
-## 《习普会谈》 -MV音乐
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2282325/)
+## 雅典娜时报-第253期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2282345/)
 
-**By:**秘翻大剧场
+#### 《雅典娜时报》汇聚全球新闻时事
 
-**2022-04-04**
+#### 编辑：精灵蓝
+排版：小蚂蚁614
+![圖片](https://media.discordapp.net/attachments/825592691433668612/960209973747523704/155_2.png?width=807&amp;height=1201)![圖片](https://media.discordapp.net/attachments/825592691433668612/960209974104043531/155_3.png?width=807&amp;height=1201)
+*发布：陶子*
 
-**创作/制作：**遥远的诗歌
-
-**配音：**爱爆彩蛋 封神榜
-
-**声音优化：**爱爆彩蛋
-
-**监制/审核：**文姝
-
-**发布:**星星
-
-* * *
-
-更多精彩尽在秘翻大剧场，敬请关注**@GTGrandTheatre**，最新播出消息发布。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
