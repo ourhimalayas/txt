@@ -30,53 +30,53 @@
 ### [日驻澳特使警告与中共国贸易时不要“把鸡蛋都放在一个篮子里”](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [俄乌会谈：西方呼吁俄罗斯采取实际行动而非巧言令色](/content/gnews/6/README.md)
+### [乌克兰战争展现出人类辨别真假善恶从社交媒体重新开始](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [俄乌会谈：西方呼吁俄罗斯采取实际行动而非巧言令色](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|欧盟警告中共不要干涉西方对俄罗斯的制裁](/content/gnews/7/README.md)
+### [视频|欧盟警告中共不要干涉西方对俄罗斯的制裁](/content/gnews/8/README.md)
  ` MOSVIDEO`
 
-### [COVID-19疫苗副作用集萃（2022.4.3） &#8211;接种辉瑞第三针后患上荨麻疹](/content/gnews/8/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.3） &#8211;接种辉瑞第三针后患上荨麻疹](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [泽伦斯基抨击：没有看到欧尔班为停战做出任何努力](/content/gnews/9/README.md)
+### [泽伦斯基抨击：没有看到欧尔班为停战做出任何努力](/content/gnews/10/README.md)
  ` 日本東京方舟農場`
 
-### [新中国联邦有能力能资格向全世界传播中国人不等于中共](/content/gnews/10/README.md)
+### [新中国联邦有能力能资格向全世界传播中国人不等于中共](/content/gnews/11/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新州救护车服务在两周内四次达到危机级别](/content/gnews/11/README.md)
+### [新州救护车服务在两周内四次达到危机级别](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [视频|美国对俄罗斯作出新一轮制裁](/content/gnews/12/README.md)
+### [视频|美国对俄罗斯作出新一轮制裁](/content/gnews/13/README.md)
  ` MOSVIDEO`
 
-### [视频|卫星照片显示 占领基辅城郊机场的俄军全部撤出](/content/gnews/13/README.md)
+### [视频|卫星照片显示 占领基辅城郊机场的俄军全部撤出](/content/gnews/14/README.md)
  ` MOSVIDEO`
 
-### [戴琪：美国必须加强对中国的贸易防御](/content/gnews/14/README.md)
+### [戴琪：美国必须加强对中国的贸易防御](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [视频|美欧国家继续给予乌克兰武器装备支持](/content/gnews/15/README.md)
+### [视频|美欧国家继续给予乌克兰武器装备支持](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [视频|普京再次提及“第五纵队”引外界担忧](/content/gnews/16/README.md)
+### [视频|普京再次提及“第五纵队”引外界担忧](/content/gnews/17/README.md)
  ` MOSVIDEO`
 
-### [视频|盖特注册用户数在 3 月份经历了 34% 的爆炸性增长](/content/gnews/17/README.md)
+### [视频|盖特注册用户数在 3 月份经历了 34% 的爆炸性增长](/content/gnews/18/README.md)
  ` MOSVIDEO`
 
-### [因COVID疫苗宗教豁免被拒 三兄弟将被迫退役](/content/gnews/18/README.md)
+### [因COVID疫苗宗教豁免被拒 三兄弟将被迫退役](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|救援营地的盖特直播 正在打造全球最棒的媒体平台](/content/gnews/19/README.md)
+### [视频|救援营地的盖特直播 正在打造全球最棒的媒体平台](/content/gnews/20/README.md)
  ` MOSVIDEO`
 
-### [视频|乌克兰救援营地形成国际互助大家庭](/content/gnews/20/README.md)
+### [视频|乌克兰救援营地形成国际互助大家庭](/content/gnews/21/README.md)
  ` MOSVIDEO`
-
-### [主流媒体&amp;西方政府铸就俄罗斯乌克兰灾难和中国人洗脑](/content/gnews/21/README.md)
- ` 喜马拉雅日本银河系农场`
 
 ### [朝鲜谴责首尔关于军事能力的言论，警告将采取破坏性行动](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
