@@ -2,19 +2,35 @@
 ---
 
 
-## 【 蓝枫法律 】 美国身心障碍者权利的奋斗史
-` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2277243/)
+## 伊朗、朝鲜和叙利亚不扩散法案 (INKSNA) 下的新制裁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277285/)
 
-#### **加拿大温哥华扬帆农场 – 蓝枫法律**
-![加拿大温哥华扬帆农场 - 蓝枫法律
-](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-03-at-08.36.10.png)
-美国身心障碍者的权利奋斗史也不是一开始就是这么顺利，几个世纪以来，残疾人的被污名化导致美国残疾人在社会和经济上被边缘化。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-200.png)
+新闻声明
 
-在19世纪人们就觉得对残疾人的“净化和隔离”是一种仁慈；到第一、二次世界大战后，退伍残疾军人势力逐渐的壮大起来争取自己的权利；到1960年代民权运动开始后，残疾人开始上街反抗；1973年，残疾人的民权被成功纳入健康康复法；到1990年，美国残疾人法得到通过，确保残疾人享有平等的待遇、就业机会和住宿。
+内德·普莱斯，部门发言人
 
-**直播视频：**[**https://gettr.com/post/p10ut5f638a**](https://gettr.com/post/p10ut5f638a)
+2022 年 3 月 24 日
 
-**编辑****/****发文：蓝枫法律栏目**
+美国今天宣布根据伊朗、朝鲜和叙利亚不扩散法案 (INKSNA) 对位于俄罗斯和朝鲜的5个实体和个人以及中华人民共和国 (PRC) 的1个实体的扩散活动实施制裁。作为该行动的一部分，我们对俄罗斯实体 Ardis Group of Companies LLC（Ardis Group）实施了制裁；PFK Profpodshipnik LLC 和俄罗斯个人 Igor Aleksandrovich Michurin；以及朝鲜实体第二自然科学院外事局（SANS FAB）；和朝鲜个人 Ri Sung Chol （aka Ri Su’ng-ch’o’l）将敏感物品转移到朝鲜的导弹计划。
+
+我们还对中共国实体郑州南北仪器设备有限公司实施制裁，因为它向叙利亚供应受澳大利亚集团化学和生物武器不扩散制度控制的设备。INKSNA 对中共国实体的持续制裁使人们注意到中共国实体在扩散中的作用以及中共国实施出口管制的缺陷及其防扩散记录。
+
+这些决定突显出所有国家继续需要对朝鲜和叙利亚推进其令人担忧的扩散计划的努力保持警惕。我们将继续努力阻止这些计划，并利用我们的制裁权力来关注外国供应商，例如向朝鲜和叙利亚提供敏感材料和技术的中共国和俄罗斯实体。今天宣布的制裁将生效两年，包括对美国政府采购、美国政府援助和出口的限制。
+
+* * *
+
+文章观点仅代表作者个人，与Gnews平台无关。
+文章来源：[https://www.state.gov/new-sanctions-under-the-iran-north-korea-and-syria-nonproliferation-act-inksna/](https://www.state.gov/new-sanctions-under-the-iran-north-korea-and-syria-nonproliferation-act-inksna/)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
