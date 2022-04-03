@@ -2,48 +2,63 @@
 ---
 
 
-## 乌克兰战争展现出人类辨别真假善恶从社交媒体重新开始
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2278008/)
+## 英国扣押俄商人价值5000万美元的游艇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278072/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8837.50%EF%BC%89%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E5%B1%95%E7%8E%B0%E5%87%BA%E4%BA%BA%E7%B1%BB%E8%BE%A8%E5%88%AB%E7%9C%9F%E5%81%87%E5%96%84%E6%81%B6%E4%BB%8E%E7%A4%BE%E4%BA%A4%E5%AA%92%E4%BD%93%E9%87%8D%E6%96%B0%E5%BC%80%E5%A7%8B%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:9)
+翻译： Jenny Ball
 
-**郭文贵先生：**今天这场战争，就像昨天我和意大利的一个哥们还有英国的一位朋友在这个小视频上，他们说：“Miles，你对这个战争的理解超过了我们的理解。”我说：“你有想过吗？Telegram、Facebook、Instagram为什么成为乌克兰最大的战场？而且乌克兰是绝赢，KO整个普京和整个俄罗斯。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
 
-我说：“第二个，你想过没有？全世界为什么所有人站在了乌克兰正义的一边？
 
-第三个，乌克兰的泽连斯基总统是被乌克兰已经民调抛弃掉25%的时候，发生了战争。人家泽连索基（泽连斯基）证明了整个乌克兰人——我是你们的总统，我能代表你，我和你们一样。
 
-不但如此，乌克兰人证明了要加入欧洲说——我和你欧洲人一样，我们有勇气，我们有人道，有国际化。在乌克兰、在泽连索基（泽连斯基）跟欧洲开会以后，欧洲的所有领导人都对泽连索基（泽连斯基）的评价说，他是我们，我超出了我们所有人想象的一个世界级领袖。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-27-edited.png)Phi周二在伦敦被英国拘留。格蕾丝·迪恩《内幕》
 
-而这个世界上迷恋于普京的所谓的硬肌肉，所谓的那种霸气、狠气，都是大家被玩弄的。人类在社交媒体面前，你会看到真正的人类辨别真假善恶，从社交媒体重新开始。
+一艘被英国当局扣留价值 5000 万美元超级游艇的船长说，周四该船的支援船被意大利当局登上检查。
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+本周在伦敦被拘留的 Phi 船长盖伊·布斯（Guy Booth）告诉《内幕》（Insider），周四，意大利因佩里亚港地方当局在登上了 Phi 的支持船“幻影”（Phi Phantom）。 这艘 118 英尺的支持船与 Phi 是同一拥有者。
 
-编辑整理：Jacques；
+布斯说，周四上午 9 点左右，两名意大利海岸警卫队工作人员以及该船的当地航运代理人访问了该船，并要求提供“全面的文件”。
 
-字幕档制作：知津；
+布斯说：“文件被带走审查，几个小时后，文件被退回给船长：‘非常感谢。一切似乎都井井有条。’”他说，代理人已在下午 4 点前归还文件，并告诉船长，海岸警卫队官员对“幻影”的船主没有受到制裁感到满意。
 
-视频制作及上传：Cindy；
+“他们解释说，他们要求提供这些文件，是因为英国媒体报道说他是一个‘寡头’，但他不是，而且他与普京关系密切，但他没有，”布斯告诉 《内幕》，并补充说，这些官员“都非常亲切和专业”。
 
-G-News发布：海贼王M.D.LUFFY；
+Phi 是一艘 192 英尺长的游艇，周二在伦敦金融中心金丝雀码头被英国扣留。英国《金融时报》报道称，这艘船由动机电信（Motiv Telecom）的创始人维塔利·瓦西里耶维奇·科切特科夫（Vitaly Vasilievich Kochetkov）所有。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+3 月 1 日，英国禁止所有俄罗斯拥有或经营的船只进入其港口，并赋予当局扣留俄罗斯船只的权力。国家犯罪局表示，四个星期后，Phi 成为“有史以来第一艘”在英国水域被扣留的超级游艇。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+布斯此前曾表示，对 Phi 的拘留是“政府的过度扩张，只不过是一种宣传噱头”。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+西方一直在制裁俄罗斯精英，并没收他们的资产，以向该国施加压力，要求其停止入侵乌克兰。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+英国交通大臣格兰特·沙普斯 (Grant Shapps) 在 3 月中旬表示，英国正在调查“少量游艇”，这些游艇涉嫌与俄罗斯寡头有关联。周二，沙普斯表示，通过拘留 Phi，当局“将俄罗斯权力和财富的象征变成了对普京及其亲信的明确警告。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.png)Phi 长 192 英尺，由一位俄罗斯商人拥有，价值约 5000 万美元。格蕾丝·迪姆
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+但国家犯罪局拒绝提供有关 Phi 船东的更多细节，称他为“俄罗斯商人”，并表示他“故意”对这艘船的所有权保密。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+科切特科夫没有受到英国的制裁。
 
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+“这艘船没有被扣押，只是被扣留，”国家犯罪局发言人在谈到 Phi 时告诉《内幕》。 “它仍然是所有者的财产，但实际上被阻止离开。”
 
-G-TV：日本银河系农场。
+自12月从荷兰进行处女航后，Phi就一直停泊在金丝雀码头。
+
+新闻来源：[The captain of a Russian businessman’s $50 million yacht detained by the UK says Italian authorities boarded its support ship and checked its documents](https://www.businessinsider.com/russia-superyacht-sanction-phi-phantom-london-captain-italy-ukraine-boat-2022-4)
+
+* * *
+
+素材：文舞
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 
