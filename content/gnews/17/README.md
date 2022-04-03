@@ -2,28 +2,34 @@
 ---
 
 
-## 乌克兰称整个基辅地区已从俄手中夺回
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2281875/)
+## COVID大流行是否使人们变得更加慷慨？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281970/)
 
-乌克兰4月3日表示，在俄罗斯入侵一个多月后，乌克兰已经夺回了基辅周围的所有地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/U.jpg)74ylhg.com
-乌克兰国防部副部长汉娜·马尔亚尔（ Hanna Malyar）在脸书上发帖说，“整个基辅地区已经从入侵者手中解放出来”，包括伊尔平 （Irpin）和布查（Bucha）等地区。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297-edited.png)图片来源: forbes.com
 
-但乌克兰总统沃洛基米尔·泽连斯基在一次电视讲话中警告说，俄罗斯在该国东部重新集结了军队，并呼吁其人民保卫领土。
+《福布斯》报道：
 
-泽连斯基还批评撤退的俄罗斯军队留下了地雷，并要求乌克兰人在地雷被清除之前不要返回。
+根据心理学家的说法，战争、自然灾害和 COVID-19 大流行等压倒性危机，或者会使人们的行为比平时更加自私，或者会使人们对社区成员表现出更大的慷慨。
 
-俄罗斯3月底在伊斯坦布尔与乌克兰举行停火谈判时说，作为一项建立信任措施，俄罗斯军队将大幅削减基辅和乌克兰北部城市切尔尼戈夫附近的行动。
+在《科学报告》上发表的一项新研究中，研究人员发现，在持续的大流行期间，居住在美国的个人表现出“灾难同情”和更大的财务慷慨。
 
-周六，乌克兰谈判代表戴维德·阿拉卡米亚（Davyd Arakhamia）在乌克兰电视台说，会谈取得了一些进展，并提到泽连斯基和俄罗斯总统普京在土耳其举行会谈的可能性。
+从积极的方面来看，重大危机的威胁可能会促进社会联系的扩大。例如，礼来家族慈善学院（Lilly Family School of Philanthropy）在 COVID-19 大流行期间进行的一项调查发现，近一半的受访者，通过继续向个人和企业支付无法提供的服务，来支持他们的社区。
 
-**快评**：刚刚郭先生在大直播里分析，估计停火谈判会取得大的进展，核武不会使用。但俄乌战争一下子完全停下来也不大可能，很有可能发展为拖拖拉拉的零星的局部的战争，普京想以此对付国内的敌对势力。中共已经明确支持俄罗斯，还部署了红旗导弹和红旗反导弹拦截系统。习、普京和金三胖几个的邪恶轴心国即将公开宣布结盟。
+素材链接：[Did The Covid-19 Pandemic Make People More Generous?](https://www.forbes.com/sites/anuradhavaranasi/2022/03/31/did-the-covid-19-pandemic-make-people-more-generous/?sh=292339118052)
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/2d891600d84b-ukraine-says-entire-kyiv-region-now-seized-back-from-russia.html](https://english.kyodonews.net/news/2022/04/2d891600d84b-ukraine-says-entire-kyiv-region-now-seized-back-from-russia.html)
+* * *
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
-
+审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
