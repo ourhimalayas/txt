@@ -2,27 +2,33 @@
 ---
 
 
-## 乌克兰称整个基辅地区已从俄手中夺回
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2281875/)
+## “承认失败”：全球疫苗接种战略亟待转变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281948/)
 
-乌克兰4月3日表示，在俄罗斯入侵一个多月后，乌克兰已经夺回了基辅周围的所有地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/U.jpg)74ylhg.com
-乌克兰国防部副部长汉娜·马尔亚尔（ Hanna Malyar）在脸书上发帖说，“整个基辅地区已经从入侵者手中解放出来”，包括伊尔平 （Irpin）和布查（Bucha）等地区。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297.png)图片来源：https://www.politico.com/
 
-但乌克兰总统沃洛基米尔·泽连斯基在一次电视讲话中警告说，俄罗斯在该国东部重新集结了军队，并呼吁其人民保卫领土。
+《政治客》报道：
 
-泽连斯基还批评撤退的俄罗斯军队留下了地雷，并要求乌克兰人在地雷被清除之前不要返回。
+据四位知情人士透露，全球卫生组织正在考虑改变他们的 COVID-19 疫苗接种承诺——随着各国在未来几个月内重新确定高危人群的排序，这一举措可能会使数百万人一针也不用注射了。
 
-俄罗斯3月底在伊斯坦布尔与乌克兰举行停火谈判时说，作为一项建立信任措施，俄罗斯军队将大幅削减基辅和乌克兰北部城市切尔尼戈夫附近的行动。
+2021 年 6 月，世卫组织最初提议，在 2022 年年中之前，为世界 70% 的人口接种疫苗，以防止出现新的变种，并帮助确保较贫穷国家的人们能够平等地接种疫苗。仍有 47 个国家的接种率低于 20%。 现在，参与全球疫苗接种工作的许多卫生组织，旨在为每个国家 90% 的弱势群体接种疫苗——这一举措似乎削弱了世卫组织人70% 人口的目标。
 
-周六，乌克兰谈判代表戴维德·阿拉卡米亚（Davyd Arakhamia）在乌克兰电视台说，会谈取得了一些进展，并提到泽连斯基和俄罗斯总统普京在土耳其举行会谈的可能性。
+信息链接：[Recognition of failure’: A shift urged in global vaccination strategy](https://www.politico.com/news/2022/04/01/global-vaccination-strategy-shift-00022189)
 
-**快评**：刚刚郭先生在大直播里分析，估计停火谈判会取得大的进展，核武不会使用。但俄乌战争一下子完全停下来也不大可能，很有可能发展为拖拖拉拉的零星的局部的战争，普京想以此对付国内的敌对势力。中共已经明确支持俄罗斯，还部署了红旗导弹和红旗反导弹拦截系统。习、普京和金三胖几个的邪恶轴心国即将公开宣布结盟。
+* * *
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/2d891600d84b-ukraine-says-entire-kyiv-region-now-seized-back-from-russia.html](https://english.kyodonews.net/news/2022/04/2d891600d84b-ukraine-says-entire-kyiv-region-now-seized-back-from-russia.html)
+审核：文乐
+发布：夜来香
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

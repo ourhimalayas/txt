@@ -2,34 +2,26 @@
 ---
 
 
-## COVID大流行是否使人们变得更加慷慨？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281970/)
+## 普京侵略乌克兰的背后支撑：中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2281984/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297-edited.png)图片来源: forbes.com
+作者：纽约香草山金融部 ILOVE战神
 
-《福布斯》报道：
+自俄罗斯入侵乌克兰一个多月以来，国际社会纷纷谴责普京所犯下的战争罪行，而中共却一直在试图两面讨好。一方面，中共在联合国谴责俄罗斯发动侵略行为的关键投票中投了弃权票，避免直接将普京对乌克兰的袭击称为“入侵”，还推波助澜宣传俄罗斯的虚假信息，一再将战争责任推到美国和北约头上；另一方面，中共也遵守国际社会对俄罗斯实施的制裁，还惺惺作态呼吁通过谈判解决问题，并向乌克兰提供人道主义援助。
 
-根据心理学家的说法，战争、自然灾害和 COVID-19 大流行等压倒性危机，或者会使人们的行为比平时更加自私，或者会使人们对社区成员表现出更大的慷慨。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2.jpeg)
 
-在《科学报告》上发表的一项新研究中，研究人员发现，在持续的大流行期间，居住在美国的个人表现出“灾难同情”和更大的财务慷慨。
+尽管习近平希望与欧洲保持良好关系，避免美中关系进一步恶化，但普京和俄罗斯国家的命运直接牵涉到中共的核心安全利益。一个被打垮的俄罗斯的前景不仅会触发中共对其2500英里共同边界的不稳定性的担忧，而且会对俄罗斯政府的未来领导力和地缘政治方向产生不确定性。因此，北京对普京的个人权力地位越是焦虑，就越有可能通过提供直接经济援助、减轻制裁影响甚至提供军事装备来加强对其的支持。
 
-从积极的方面来看，重大危机的威胁可能会促进社会联系的扩大。例如，礼来家族慈善学院（Lilly Family School of Philanthropy）在 COVID-19 大流行期间进行的一项调查发现，近一半的受访者，通过继续向个人和企业支付无法提供的服务，来支持他们的社区。
+参考链接：[The worse things go for Putin in Ukraine, the more China will back him](https://www.washingtonpost.com/outlook/2022/03/24/xi-jinping-putin-china-russia-sanctions/)
 
-素材链接：[Did The Covid-19 Pandemic Make People More Generous?](https://www.forbes.com/sites/anuradhavaranasi/2022/03/31/did-the-covid-19-pandemic-make-people-more-generous/?sh=292339118052)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-* * *
+总编：Zion文恩
+编辑：飞虹
+审核：经济小组
+校正/发稿：谐趣园
 
-审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

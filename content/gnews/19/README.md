@@ -2,31 +2,28 @@
 ---
 
 
-## 香草山翻译部周刊|2022年4月3日第42期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281852/)
+## 中共——“权力的游戏”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281864/)
 
-作者：香草山翻译部
+制作：一颗星星
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/42-cn-1.png)
+一百年，在人类历史的长河之中是短暂的。但是在着短暂的一百年之中，中共的出现带给了中华民族无尽的灾难。
 
-文章仅代表作者本人观点，与Gnews无关
+时至今日，欺世盗名的中共不但把中华民族拖向了灾难的深渊，也把邪恶和苦难撒向了全世界。
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+隐藏在这些灾难背后的便是中共的“权力的游戏”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpeg)
+发布：信心的选择
 
 **更多资讯，更多关注**
-[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)
-[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

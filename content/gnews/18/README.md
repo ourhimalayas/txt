@@ -2,68 +2,33 @@
 ---
 
 
-## 有声|朋友，你不孤单
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281856/)
+## 【G时新闻】一则备忘录显示美国政府知晓中共病毒来自武汉
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2281874/)
 
-配音：香草山香港部- 格格樹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-朋友
-你还好吗
-你身上的军装好帅
-你的网上手机店
-还在运营吗
-你抛下一切
-扛起钢枪反抗侵略者
-在战场上的你
-有我在牵挂
+##### 播  报：加拿大温哥华扬帆农场 -【文雅】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+近日一份被曝光的备忘录显示，早在2020年疫情初期，美国政府非常清楚中共病毒来自武汉实验室，而并非是海鲜市场以及来自自然的蝙蝠。
 
-你是乌克兰的亚历山大
-我是来自中国的一个普通人
-仅仅一场邂逅
-成为生命中挚友
-忽然的失联
-原来你上了战场
-朋友啊
-请千万小心
-当侵略者炮弹袭来时
-赶快躲在掩体下
-希望你手里的钢炮
-一次又一次
-击中侵略者装甲
-我这里警报声响了又响
-疯狂轰炸在耳边轰轰作响
-一幢又一幢居民楼被炸塌
-一个个好好的家
-从眼前变成渣
-朋友
-你在前线
-我在后方
-希望我们能够活着再相见
-如果
-如果
-你不幸牺牲
-我也被炮弹击中
-我会微笑着对你说
-朋友，我陪着你
-你不孤单
-来生
-我们依然做
-最好的朋友
+这份通讯录是军方使用的通讯方式，它表明尽管没有直接证据，但有大量的间接证据证明中共病毒来自武汉病毒研究所。武汉病毒研究所对致命病毒和携带病毒的实验室动物管理存在严重的工作疏忽。
 
-文字版原文：[朋友，你不孤单](https://gnews.org/zh-hans/2277003/)
+在中共病毒大流行期间，武汉卫生厅和武汉病毒研究所坚称中共病毒来自自然，并大肆进行毫无意义的收集和测试大量蝙蝠的工作，以误导大众。臭名昭著的中共石正丽和Peter Daszak纷纷为这种误导站台，配合中共阻止国际社会合理要求对中共病毒进行的溯源调查。
 
-音频处理：Fei797
-发稿：Fei797
+备忘录称所有的错误理论，如中共病毒来自海鲜市场，或者来自自然蝙蝠，这些理论的提出本身就是一种阻止溯源调查的超限战手段。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+盖特链接：[https://gettr.com/post/p13cqohe449](https://gettr.com/post/p13cqohe449)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
