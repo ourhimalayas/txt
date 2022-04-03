@@ -2,70 +2,45 @@
 ---
 
 
-## 福奇博士：“最好的有效疫苗就是自己被感染”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277178/)
+## 4/03/2022 银河快讯：日本飞往欧洲的航班改航线以避开俄罗斯领空；乌克兰外长就日本制裁俄罗斯表示感谢
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2277182/)
 
-News Anchor
-新闻主播
+![](https://assets.gnews.org/wp-content/uploads/2022/04/K10013564761_2204021927_0402194138_01_04.jpeg)
+[图片来源](https://www3.nhk.or.jp/news/html/20220402/amp/k10013564761000.html)
 
-But she’s had the flu for 14 days, should she get a flu shot?
-但是她感冒了14天，她应该接种流感疫苗吗？
+**1．日本飞往欧洲的航班改航线以避开俄罗斯领空**
 
-Dr. Tony Fauci
-托尼·福奇博士
+[据NHK 4月2日报道，在俄罗斯军事入侵乌克兰之后，航空公司在运营欧洲航班时，都会避开俄罗斯空域，采取大范围的绕行。目前有四条欧洲航线由日本航空公司运营，比以前的八条路线少了一半。据全日空和日本航空的人员称，由于飞行距离延长，燃料成本增加，这是一个严重的问题，虽然航空公司暂时保持票价不变，但如果情况持续下去，他们将不得不考虑提高价格。](https://www3.nhk.or.jp/news/html/20220402/k10013564761000.html)
 
-Well, no, if she got the flu for 14 days
-好吧，不，如果她得了流感14天
+**2． 乌克兰外长就日本制裁俄罗斯表示感谢**
 
-she’s as protected as anybody can be
-她像任何人一样受到保护
+[据共同社4月2日报道，日本外相林芳正在波兰首都华沙会见了乌克兰外长克莱耶娃。林外相表示声援和支持，并说在俄罗斯侵略之后，“我们的政府和人民与乌克兰人民在一起”。克莱耶娃感谢日本对俄罗斯实施的“迅速而有力的制裁”。据日本外务省称，林外相在会见时强调，国际社会必须团结一致，坚决反对俄罗斯。克莱耶娃对林外相的声援表示回应，称其“鼓励了乌克兰人民”。](https://news.yahoo.co.jp/articles/6555fd1f62e1547f6f9bac2fa9af593335eba73c)
 
-because the best vaccination is to get infected yourself
-因为最好的疫苗接种是自己感染
+**3． 林外相访问了乌克兰难民避难设施设施和等场所**
 
-And if she really has the flu, if she really has the flu
-如果她真的得了流感，如果她真的得了流感
+[据NHK报道，在这次访问中，林外相4月2日直接采访了流离失所者和避难设施的负责人，了解他们的接待需求以及他们在抵达该国后希望得到什么样的支持。日本政府决定，当外相返回日本时，将把有意愿的难民安置在政府飞机上，并对接受情况进行调整，并在他们抵达日本后提供的支持中反映出来。](https://www3.nhk.or.jp/news/html/20220402/k10013564801000.html)
 
-she definitely doesn’t need a flu vaccine
-她绝对不需要流感疫苗
+**4．过去一周有44个县的确诊病例数呈现增加**
 
-Yes, she really has the flu
-是的，她真的感冒了
+[据共同社报道，根据内阁秘书处截至4月2日的总结，过去一周44个县的中共病毒（新冠病毒COVID-19）确诊病例数比前一周有所增加。尽管疫情没有再次迅速蔓延，而且医院的床位仍有剩余，但人们担心“第六波”感染可能没有得到完全控制，“第七波”可能即将到来，专家们正在提高警惕。2日报告的全国新感染病例为48,825例，比前一周同日增加约1,500例。](https://news.yahoo.co.jp/articles/ba326fd8b9fe910002ad441abc9cfeb02179d6db)
 
-News Anchor
-新闻主播
+**5．远程办公、电费高涨 可能持续到夏天**
 
-She should not get it again
-她不应该再接种它
+[据产经新闻 4月2日发文，由于疫情以及能源资源价格的上涨，对现在在家工作的家庭预算造成很大的压力。许多家庭在春季减少了用电量，但乌克兰的局势看不到出路，加上日元疲软，意味着在夏季之前资源价格没有得到控制的前景，届时电费将因降温设备等大功率电器和其他费用而再次上升。](https://news.yahoo.co.jp/articles/42cbda5480391ee9afefddf0e305c859012e3d42)
 
-Dr. Tony Fauci
-托尼·福奇博士
+**6．对18岁左右人调查，认为“自己是成年人”的比例日本是六个国家中最低**
 
-Then she doesn’t need it because it’s the best
-然后她不需要疫苗，因为自然免疫是最好的
+[据NHK报道，4月1日，日本的成年年龄规定从20岁降至18岁，人们对年轻人参与社会的期望很高。但在对日本、美国、英国、中国、韩国和印度这六个国家18岁左右的年轻人进行的调查中，日本只有27%认为自己是成年人，是六个国家中最低的比例。英国和美国为86%，印度84%，中国71%，韩国47%。在诸如“我期待我的未来”和“我想尝试许多新事物，哪怕会有些风险”等问题上，也是六个国家中最低的。](https://www3.nhk.or.jp/news/html/20220402/k10013564041000.html)
 
-It’s the most potent vaccination is getting infected yourself
-最有效的疫苗就是自己被感染（自然免疫）
+**【日本银河系农场-阿尔法星球】**
 
-原视频链接: [https://twitter.com/senronjohnson/status/1509608020564660229?s=24](https://twitter.com/senronjohnson/status/1509608020564660229?s=24)
+素材：文德
 
-Date:04/01/2022
-原视频标题: Dr. Fauci: “the best potent vaccination is getting infected yourself”
-福奇博士：“最好的有效疫苗就是自己被感染”
-原视频日期：2022/04/01
-原视频链接https://twitter.com/senronjohnson/status/1509608020564660229?s=24
-任务编号：KE467（4145）
+作者：帆間知津
 
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场-文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+校对：windfish
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 
  
 
