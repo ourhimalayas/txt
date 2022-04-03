@@ -2,20 +2,16 @@
 ---
 
 
-## 乌克兰救援营地形成国际互助大家庭
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2278345/)
+## 救援营地的盖特直播 正在打造全球最棒的媒体平台
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2278387/)
 
-撰稿：美东香草山 -飞虹
+撰稿：美东香草山-飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
-4月1日，在新中国联邦乌克兰救援行动波兰救援基地的连线直播中，明道战友介绍了梅迪卡的国际救援组织跟新中国联邦救援团队从相识到相交的历程。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-217.png)
-最初时，很多相互之间早已建立了友好关系的救援组织对中国人的陌生面孔感到迟疑、好奇，但在经过多次的接触、互动之后，大家形成了一个互助的国际大家庭，营地的职业军人、警察和志愿者们都团结在一起，互通信息、互相保护。
+4月1日，在波兰救援基地的直播连线中，明道战友详细介绍了我们新中国联邦媒体和主流媒体的差异。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-218.png)图片来自：https://media.gettr.com/
+传统的主流媒体往往只注重一些新闻事件的闪光点，不仅片面、偏颇，而且往往蜻蜓点水，难以给观者带来全面的信息，不能跟新中国联邦的媒体相提并论。我们是通过24小时的盖特直播，全方位报道救援前线的动态，这种全面和深入是传统媒体无法比拟的。新中国联邦正在打造和成就着一个全球最棒的媒体平台——盖特！
 
-参考链接：
-
-[4/1/2022 乌克兰救援连线](https://gettr.com/post/p134hr966a1)
-
-
+参考链接：[https://gettr.com/post/p13528y5821](https://gettr.com/post/p13528y5821)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM-1.png)
 
@@ -23,8 +19,6 @@
 
 校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
