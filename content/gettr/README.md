@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 10:04 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-03<br/>For English: gettr.com/post/p13ewlycdca<br/>
+![img](https://media.gettr.com/group48/origin/2022/04/03/22/7f4d692e-8f27-1a58-a621-b6a1c539fb08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 9:11 PM (UTC)`
 
 Al Jazeera is a Qatari Government-Owned Arabic and English language international media network. It’s based in the capital of Qatar, Doha, and operated by the media conglomerate Al Jazeera Media Network半岛电视台是一家位于卡塔尔首都多哈的国际电视媒体，由卡塔尔王室出资的半岛媒体集团所拥有。卡塔尔莫扎皇太后是一带一路项目中的卡方最大受益人。<br/>https://gnews.org/zh-hans/2278091/
@@ -151,13 +158,6 @@ H-Pay是打开世界金融盒子的密码，是新中国联邦走向世界财富
 
 2022.04.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
 ![img](https://media.gettr.com/group25/origin/2022/04/02/23/e575ab35-a5b1-93df-34e8-c3fae2e4f92d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 11:01 PM (UTC)`
-
-2022.04.02 NFSC News  CCP manipulates media influencers pushing Beijing propaganda
-![img](https://media.gettr.com/group44/origin/2022/04/02/23/37a9b564-1d65-eb2b-79c8-6ba427ea655c/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
