@@ -2,21 +2,20 @@
 ---
 
 
-## 七哥说—第61期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281829/)
+## 中共——“权力的游戏”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281864/)
 
-制作：Inzaghi
+制作：一颗星星
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
 
-**天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。**
+一百年，在人类历史的长河之中是短暂的。但是在着短暂的一百年之中，中共的出现带给了中华民族无尽的灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥说_郭文贵先生_女人_未来.png)
+时至今日，欺世盗名的中共不但把中华民族拖向了灾难的深渊，也把邪恶和苦难撒向了全世界。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥说_郭文贵先生_-铁锁梦.png)
+隐藏在这些灾难背后的便是中共的“权力的游戏”。
 
-发稿：信心的选择
+发布：信心的选择
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)

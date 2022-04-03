@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 5:44 PM (UTC)`
+
+俄乌战争战况播报
+![img](https://media.gettr.com/group43/origin/2022/04/03/17/9459bae5-f159-9471-a6ec-e27171d29231/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 4:50 PM (UTC)`
 
 https://www.bbc.com/news/world-asia-60972186
@@ -152,13 +159,6 @@ The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iro
 
 【Ukraine Rescue】Nicole interviewed Mr. Roger, who drove one day from Italy to deliver the relief supplies. Roger thought we should help the Ukrainian people and thanked volunteers from the New Federal State of China for what they have done<br/>【乌克兰救援】Nicole采访了从意大利开了一天的车过来送救援物资的Roger先生, Roger认为我们应该帮助乌克兰人民，同时感谢新中国联邦的志愿者所做的一切
 ![img](https://media.gettr.com/group19/origin/2022/04/02/21/e8c96eec-e4fb-6238-363c-5300bcb8e4e2/out.jpg)
-
----
-
-`@miles 4/2/2022 9:15 PM (UTC)`
-
-4/2/2022 Miles Guo’s GETTR: Every once in a while, the CCP would hire the so-called “mainstream” media to smear us. So what? The CCP’s "advertisements" for us are much more effective in letting people know about who we really are than our own words!<br/><br/>4/2/2022 文贵盖特：中共隔三差五会花钱雇所谓严肃媒体来污蔑我们，那又怎样？中共给咱们做的“广告“比咱自己说自己有效多了！<br/><br/>
-![img](https://media.gettr.com/group14/getter/2022/04/02/21/8a9011d1-86cc-7054-0210-1675210f8abf/out.jpg)
 
 ---
 

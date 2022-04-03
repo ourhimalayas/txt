@@ -2,35 +2,34 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281547/)
+## 【商见你我他】第48期新闻简讯（三）
+` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2281611/)
 
-作者：香草山翻译部
+编辑：波士顿五月花—DM，cici
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7fbe43a8c1d4b93d.jpg)
+让我们关注几条新闻资讯，
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+1）上海全封官方深夜宣布全域静态管理
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-1.png)
+上海继已分两批次封控后，官方3月30日深夜宣布，采取“全域静态管理”、全员核酸筛查、全面疫调排查、全民清洁消杀等综合措施。市领导提出，筛查期间落实“人不流动、足不出户”，确保“不漏一户、不落一人”。目前上海已经进入完全封城状态。
 
-文章仅代表作者本人观点，与Gnews无关
+2）中共国最大银行预测 未来艰难
 
-视频参看：
-[2022.04.03早 《NFSC新闻》](https://www.gettr.com/streaming/p13cdp658c9)
-[2022.04.03早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13cemm3a50)
+3月29日，中共最大的五家银行表示，中共国银行今年面临多重不利因素，包括疫情、全球政治和国内房地产行业的动荡。周三，全球最大的银行中国工商银行在其年度收益报告中称，中共国面临需求萎缩、供应中断和预期减弱。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+3）中共前司法部长傅政华被双开
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
+台媒3月31日报道，中共中纪委国家监委网站发布，已落马的前司法部长傅政华被开除党籍和公职（双开）。调查指他政治野心极度膨胀，参加前公安部副部长孙立军的政治团伙。并对傅政华严重违纪违法问题进行了立案审查调查。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+4）欧盟正准备新的对俄制裁 或就以卢布支付天然气要求进行报复
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+外媒3月30日报道，据欧盟消息人士周三表示，欧盟执委会正准备就俄罗斯入侵乌克兰而对克里姆林宫实施新的制裁，新措施的力度取决于俄罗斯对以卢布支付天然气的立场。
+
+审核：DM/Nanfeng99
+
+发布：DM
+
+封面图片：DM
 
  
 
