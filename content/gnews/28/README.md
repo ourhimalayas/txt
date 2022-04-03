@@ -2,72 +2,83 @@
 ---
 
 
-## IgA抗体似乎可以保护未接种的人免受COVID-19的影响
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277490/)
+## 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277774/)
 
-***评论：**不打疫苗，不感染CCP病毒，再坚持一下，黎明快到了。*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/未命名_副本.png)
+据小白不白@Hans08572119 盖特
 
-据《大纪元时报》 作者：Mimi Nguyen Ly，2022年3月29日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-202-e1648954101880.png)该大学Sahlgrenska学院的研究人员在哥德堡地区属于Nötkärnan集团的五个初级保健中心检查了156名未接种疫苗的员工，研究结果发表在《欧洲免疫学杂志》上。
-“我们都有IgA。它存在于粘膜上，而COVID-19是一种通过这些粘膜传播的感染。”该研究的作者Christine Wennerås在一份声明中说：“我们认为在疫苗出现之前，调查完全健康的人遇到冠状病毒时发生了什么是很重要的。”
+[https://gettr.com/post/p139ic56b4d](https://gettr.com/post/p139ic56b4d)
 
-作者说，他们的研究试图更多地了解COVID-19的免疫力是如何在一个相对健康的人群中发展的，并指出“绝大多数发表的关于COVID-19的研究都是横断面的和/或集中在患有严重疾病的住院病人身上”。同时，在他们的研究中，感染COVID-19的人都没有住院。
+#中共国 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼，跳楼前对话疑似如下：
 
-**研究方法**
+女：救命啊！
 
-这些卫生工作者在2020年4月和5月期间被招募到该研究中，并在6个月内每个月接受监测在156名参与者中，150人完成了整个研究。
+男：习近平你下不下台？！
 
-在研究中，研究人员检查了参与者是否曾经感染过COVID-19。他们还监测了所有参与者的血清IgA和IgG的SARS-CoV-2刺突蛋白抗体。他们还通过让参与者进行血液测试、问卷调查等方式监测了其他似乎能够提供对COVID-19保护的健康因素。
+女：让他下！
 
-作者发现，三分之一，即150名卫生保健人员中的53人已经产生了COVID-19的抗体。剩下的三分之二，即150名医护人员中的97人，包括那些有阴性抗体反应（没有针对该病毒的抗体），或只有边缘水平的IgA反应。
+……
 
-在研究期间，共有16名研究参与者感染了COVID-19，通过PCR验证。作者还指出，有6名研究参与者曾与另一个PCR阳性者生活在一起。
+女：他会死的！
 
-**主要发现**
+男：共产党解不解散？！
 
-研究人员说，在产生抗体的53名参与者中，对SARS-CoV-2的免疫反应有两种主要模式–“以IgG为主的模式和以IgA为主的模式”。
+女：解散！
 
-这些人对SARS-CoV-2尖峰蛋白有可检测的IgA和/或IgG抗体，其中38人的抗体反应以IgG（免疫球蛋白G）为主，而15人的抗体反应以IgA为主。
+男：能改革开放不？！
 
-只有具有IgG反应的人对SARS-CoV-2产生T细胞反应。研究人员写道：“IgG反应性与SARS-CoV-2 PCR阳性和自我报告的典型COVID-19症状有关。相比之下，IgA反应性与对SARS-CoV-2的有限T细胞反应、自身免疫、空气传播过敏和不感染COVID-19有关。”
+男：还疫情防控吗？！
 
-T细胞，像抗体一样，在适应性免疫系统中发挥重要作用，帮助预防感染。
+#土共不亡百姓亡
 
-作者说，第一个关键发现是，有IgA为主反应的15人–即每10个研究参与者中就有一个–从未出现过COVID-19的任何症状，也没有对该疾病检测呈阳性。
+另据tjxcx💙💛@tjxcx 盖特
 
-“SARS-CoV-2仅有的IgA反应者占我们队列的10[%]，这与其他研究是一致的，其中87[%]在研究开始时已经是IgA阳性…… 有趣的是，仅有IgA反应者中没有人报告任何与COVID-19相关的症状，也没有PCR证实的SARS-CoV-2感染，这意味着SARS-CoV-2特异性IgA反应可能保护人们不感染COVID-19。”作者写道。
+天津赵沽里2022年4月2日早。
 
-作者指出：“这种IgA反应有可能是对其他冠状病毒产生的交叉反应性IgA抗体。”
+[https://gettr.com/post/p135weqbd04](https://gettr.com/post/p135weqbd04)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/001-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/002-1.jpg)
+根据以上信息这是一起2022年4月2日早发生在天津河北区月牙河街赵沽里封控小区内的一起惨剧，让我们来回答这对夫妻的问题——
 
-作者说，这项研究的一个局限性是，它只看了血清IgA水平，没有看鼻腔IgA水平。“我们在这项研究中监测的血清IgA可以说是鼻腔IgA的代用标志，后者通过阻止病毒进入体内而赋予COVID-19的保护。我们研究的一个局限是，我们没有调查相应的鼻腔IgA对SARS-CoV-2的抗体水平及其中和能力”。
+习近平会不会因为这对夫妻的惨剧下台呢？
 
-在研究期间，共有16名研究参与者感染了COVID-19，通过PCR验证。作者还指出，6名研究参与者曾与另一名PCR阳性者同住。
+不会！
 
-作者报告说，第二个关键发现是以IgG为主的抗体反应与T细胞反应“密切相关”，并有PCR证实的COVID-19。作为一个IgG反应者也“与PCR阳性的COVID-19和与PCR阳性者同居有关”。
+共产党会不会因为这对夫妻的惨剧解散呢？
 
-Wennerås说，其他大多数与COVID-19有关的研究都是关于IgG抗体和T细胞。
+不会！
 
-她指出：“有趣的是，当我们现在检查其他人的文章和表格时，我们发现我们自己得出的关于IgA的结论的证据。但这并不是那些研究所强调的东西”。
+能改革开放不？
 
-文章观点仅代表作者个人，与Gnews平台无关。
+不会！
 
-文章来源: [https://www.theepochtimes.com/iga-antibodies-appear-to-protect-unvaccinated-against-covid-19-study\_4368350.html](https://www.theepochtimes.com/iga-antibodies-appear-to-protect-unvaccinated-against-covid-19-study_4368350.html)
+还疫情防控吗？
 
-翻译：洛杉矶盘古农场 – Mike Li
+中共不亡，疫情不止！
 
-校对：洛杉矶盘古农场 – 轰炸机
+已经逝去的生命不能再复活，但是对于每个身处绝境的同胞来说，中共一日不亡，人民一日不得安宁，时下之计任何的悲观哀叹都于事无补，灭共不仅仅是正义的必需，灭共更是生存的必需，为了活着，为了一起起惨剧不再重现，让我们一起来告诉世界现在中共大地上正在发生的惨剧，因为无穷的远方和无数的人们都与我们息息相关，无穷的远方和无数的人们都与这个世界息息相关。
 
-评论：洛杉矶盘古农场 – 轰炸机
+撰稿：喜马拉雅的肉夹馍；
 
-编辑：洛杉矶盘古农场 – 傻小子
+审核：喜马拉雅的馍夹肉；
 
-发布：洛杉矶盘古农场 – 子萍
+校对：Maarago；
 
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

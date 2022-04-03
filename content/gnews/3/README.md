@@ -2,56 +2,45 @@
 ---
 
 
-## 欧洲对美国天然气的需求加快了两个新的液化天然气项目
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278270/)
+## 前里根顾问对通货膨胀发出警告：“他们没有采取任何措施来阻止它”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2278317/)
 
-翻译：Jenny Ball
+据《福克斯新闻》 作者：泰勒-彭利(Taylor Penley)，2022年3月30日报道
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-212.png)(美联社/路透社)
+前里根经济顾问：拜登在阻止通货膨胀方面“无所作为”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
+里根总统的前经济顾问阿特-拉弗 (Art Laffer) 在“福克纳聚焦”节目中带来了他对拜登通货膨胀的看法。
 
+前里根经济顾问阿特-拉弗周三在“福克纳聚焦”节目中表示，拜登政府的政策无助于降低使美国家庭陷入困境的通货膨胀。
 
+拉弗因其作为供应方经济学先驱的角色而闻名. 他警告主持人哈里斯-福克纳，美国的通货膨胀问题即将变得更糟。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-29-edited.png)森普拉能源总部， 2018 年 5 月 17 日在美国加利福尼亚州圣地亚哥市中心拍摄。
-路透社REUTERS/麦克·布雷克Mike Blake
+“如你所知，我曾广泛参与里根政府的工作.我们目睹了[1970年代末和1980年代初]通货膨胀的积累. 如果你认为现在的通货膨胀是一个问题，那就等着吧。他们没有采取任何措施来阻止它。什么都没有。”
 
-休斯顿，4 月 1 日（路透社）——由于俄罗斯威胁要削减对欧洲的能源供应，推高了对超冷燃料的需求和价格，美国的两个液化天然气 (LNG) 项目在本周启动方面迈出了重要一步。
+拉弗接着批评了美联储花钱、印更多的钱和购买债券的做法。
 
-开发商森普拉能源( Sempra Energy )和新堡垒能源公司(New Fortress Energy) 就单独的项目达成协议，其中一个项目可能在 12 个月内生产液化天然气。这些工厂通常需要签订约 85% 产量的长期合同才能启动，并且需要数年才能完成。
+他还讨论了通过提高利率来打击通货膨胀的后果，说利率必须达到高于通货膨胀率的水平。
 
-但客户需求的增长，尤其是欧洲客户的需求，促使新堡垒能源公司决定，用自己的资金投资，在路易斯安那州沿海建造一座年产 280 万吨的工厂。
+“他们在花更多的钱，他们在印更多的钱，他们在购买债券. 他们还没有开始做保罗-沃尔克所做的那样来控制它。”
 
-新堡垒能源公司首席执行官韦斯·埃登斯 (Wes Edens) 表示：“世界上的天然气供需已经严重失衡。随着欧洲迫切需要减少对俄罗斯天然气的依赖，加快在美国生产液化天然气的发展速度至关重要。”
+“如果他们要提高利率来阻止通货膨胀，他们必须提高利率，使其远远高于通货膨胀率。这将意味着利率在10-12%的范围内.” 他解释说,这将导致经济衰退。
 
-俄罗斯总统普京要求外国买家，从周五开始以卢布支付俄罗斯天然气，否则，将削减供应，欧洲各国首都拒绝了这一举动，德国称其相当于“敲诈”。
+“他们甚至没有这样的想法。他们将导致经济衰退，而且不能阻止通货膨胀，这对他们来说是双重打击。这很可怕。看看吉米-卡特(Jimmy Carte)和所发生的事情就知道了。”
 
-上周，拜登政府表示，美国的目标是，今年向欧洲买家额外供应 150 亿立方米的液化天然气，并在2030年前提供500亿立方米的液化天然气，以替代俄罗斯的天然气进口，因为西方试图惩罚莫斯科入侵乌克兰。
+他还警告说，不仅低收入的美国人将经历螺旋式上升的通货膨胀的影响，而且投资者和在11月的民主党人也将受此影响。
 
-风险降低
+文章观点仅代表作者个人，与Gnews平台无关。
 
-去年，大约十几家液化天然气开发商表示，他们的目标是，就他们的项目做出最终投资决定。但只有森普拉(Sempra) 位于墨西哥下加利福尼亚州“蔚蓝海岸能源公司”(Energia Costa Azul )液化天然气接收站在过去两年开始建设。
+文章来源:**[https://www.foxnews.com/media/inflation-bad-worse-reagan-economic-adviser](https://www.foxnews.com/media/inflation-bad-worse-reagan-economic-adviser)**
 
-周四，森普拉达成初步协议，向法国“全能”( Total Energies )供应来自墨西哥的第二个项目“维斯塔太平洋液化天然气”( Vista Pacifico LNG )的天然气。根据协议，“全能”将收购 16.6% 的股份，并占 4 MTPA 工厂出口产量的约三分之一。
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – Freeearth
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-伍德·麦肯兹咨询公司(Wood Mackenzie) 的天然气分析师亚历克斯·芒顿（Alex Munton） 表示，天然气价格预测足够强劲，如果工厂能够在未来几年内开始运营，则值得承担风险。
-
-“我们继续看到对我们的液化天然气开发项目的巨大兴趣”森普拉发言人帕蒂·奥尔特加·米切尔（Paty Ortega Mitchell） 说。
-
-新闻来源：[Europe’s appetite for U.S. gas fast-tracks two new LNG projects](https://www.reuters.com/business/energy/europes-appetite-us-gas-fast-tracks-two-new-lng-projects-2022-04-01/)
-
-* * *
-
-素材： peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

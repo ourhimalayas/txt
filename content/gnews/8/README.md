@@ -2,18 +2,20 @@
 ---
 
 
-## 雅典娜时报-第251期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2278236/)
+## 雅典娜时报-第252期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2278250/)
 
 #### 《雅典娜时报》汇聚全球新闻时事
 
 #### 编辑：精灵蓝
 排版：小蚂蚁614
-![圖片](https://media.discordapp.net/attachments/825592691433668612/959639425799823402/155.png?width=807&amp;height=1201)![圖片](https://media.discordapp.net/attachments/825592691433668612/959639426135388170/155_1.png?width=807&amp;height=1201)
-#### 《雅典娜时报》汇聚全球新闻时事
+![圖片](https://media.discordapp.net/attachments/825592691433668612/959984757062664202/155.png?width=807&amp;height=1201)![圖片](https://media.discordapp.net/attachments/825592691433668612/959984757599526932/155_1.png?width=807&amp;height=1201)
+*发布：陶子*
 
-#### 编辑：精灵蓝
-排版：小蚂蚁614
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
