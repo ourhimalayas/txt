@@ -2,33 +2,68 @@
 ---
 
 
-## 完整的人类基因组图谱绘制完成
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2281761/)
+## 有声|朋友，你不孤单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281856/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-3月31日，《科学》杂志发布一项人类基因工程重大突破，人类基因组图谱的绘制已经完成，这为新的医学打开了大门。
+配音：香草山香港部- 格格樹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+朋友
+你还好吗
+你身上的军装好帅
+你的网上手机店
+还在运营吗
+你抛下一切
+扛起钢枪反抗侵略者
+在战场上的你
+有我在牵挂
 
-人类细胞核包含23组染色体，大约有30000个基因。人类基因组由数十亿个以字母A、C、G和T命名的DNA亚单元组成。
+你是乌克兰的亚历山大
+我是来自中国的一个普通人
+仅仅一场邂逅
+成为生命中挚友
+忽然的失联
+原来你上了战场
+朋友啊
+请千万小心
+当侵略者炮弹袭来时
+赶快躲在掩体下
+希望你手里的钢炮
+一次又一次
+击中侵略者装甲
+我这里警报声响了又响
+疯狂轰炸在耳边轰轰作响
+一幢又一幢居民楼被炸塌
+一个个好好的家
+从眼前变成渣
+朋友
+你在前线
+我在后方
+希望我们能够活着再相见
+如果
+如果
+你不幸牺牲
+我也被炮弹击中
+我会微笑着对你说
+朋友，我陪着你
+你不孤单
+来生
+我们依然做
+最好的朋友
 
-读取基因需要将DNA链切割成几百到几千个字母长的片段。DNA测序机器读取每个片段中的字母，科学家再试图将这些片段按正确的顺序排列。
+文字版原文：[朋友，你不孤单](https://gnews.org/zh-hans/2277003/)
 
-多年来，因DNA测序技术无法读取基因组的某些部分，大约8%的基因序列仍未被填补。基因测序技术改进后，科学家可以一次准确地读取包含100万个字母的DNA片段，极大提高了基因排序的准确性。
+音频处理：Fei797
+发稿：Fei797
 
-科学家们说，这个完整的基因组图谱将有助于了解人类生物学和人类遗传学，为更深入地了解进化、癌症和出生缺陷铺平了道路。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-[https://www.foxnews.com/science/scientists-map-human-genome](https://www.foxnews.com/science/scientists-map-human-genome)
-
-校对/发稿：菩提树
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

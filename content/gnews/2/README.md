@@ -2,33 +2,34 @@
 ---
 
 
-## 【G时新闻】一则备忘录显示美国政府知晓中共病毒来自武汉
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2281874/)
+## COVID大流行是否使人们变得更加慷慨？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281970/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文雅】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-近日一份被曝光的备忘录显示，早在2020年疫情初期，美国政府非常清楚中共病毒来自武汉实验室，而并非是海鲜市场以及来自自然的蝙蝠。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297-edited.png)图片来源: forbes.com
 
-这份通讯录是军方使用的通讯方式，它表明尽管没有直接证据，但有大量的间接证据证明中共病毒来自武汉病毒研究所。武汉病毒研究所对致命病毒和携带病毒的实验室动物管理存在严重的工作疏忽。
+《福布斯》报道：
 
-在中共病毒大流行期间，武汉卫生厅和武汉病毒研究所坚称中共病毒来自自然，并大肆进行毫无意义的收集和测试大量蝙蝠的工作，以误导大众。臭名昭著的中共石正丽和Peter Daszak纷纷为这种误导站台，配合中共阻止国际社会合理要求对中共病毒进行的溯源调查。
+根据心理学家的说法，战争、自然灾害和 COVID-19 大流行等压倒性危机，或者会使人们的行为比平时更加自私，或者会使人们对社区成员表现出更大的慷慨。
 
-备忘录称所有的错误理论，如中共病毒来自海鲜市场，或者来自自然蝙蝠，这些理论的提出本身就是一种阻止溯源调查的超限战手段。
+在《科学报告》上发表的一项新研究中，研究人员发现，在持续的大流行期间，居住在美国的个人表现出“灾难同情”和更大的财务慷慨。
 
-盖特链接：[https://gettr.com/post/p13cqohe449](https://gettr.com/post/p13cqohe449)
+从积极的方面来看，重大危机的威胁可能会促进社会联系的扩大。例如，礼来家族慈善学院（Lilly Family School of Philanthropy）在 COVID-19 大流行期间进行的一项调查发现，近一半的受访者，通过继续向个人和企业支付无法提供的服务，来支持他们的社区。
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+素材链接：[Did The Covid-19 Pandemic Make People More Generous?](https://www.forbes.com/sites/anuradhavaranasi/2022/03/31/did-the-covid-19-pandemic-make-people-more-generous/?sh=292339118052)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

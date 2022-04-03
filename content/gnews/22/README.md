@@ -2,43 +2,33 @@
 ---
 
 
-## 实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281392/)
+## 有声|波兰周刊大篇幅报道新中国联邦乌克兰救援活动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281491/)
 
-编译：文斗
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月29日，波兰周刊杂志TY-GOD-NIK刊发了对新中国联邦在波兰边境地区梅迪卡，开展的乌克兰难民人道救援行动的实地报道。
 
-在过去的几个月里，出现了一个令人担忧的趋势–人们的死亡速度前所未有，而这与Covid-19没有什么关系。
+文章的题图是新中国联邦的巨型帐篷，以及战友与难民拥抱的照片。标题以醒目的红黑笔标识：我们是试图推翻中国共产党的新中国人，我们与乌克兰和波兰民族站在一起。文章记述了3月6日新中国联邦的团队将96名乌克兰儿童和他们的老师从乌克兰转移到克拉科夫，然后陪同前往西班牙巴塞罗那，并妥善安置食宿，以便与西班牙的非政府组织接洽一事。
 
-事实上，这一高峰几乎与实验性mRNA Covid疫苗推出完全吻合。
+文章还详细介绍了新中国联邦是由郭文贵先生和史蒂芬·班农先生于2020年6月发起成立，正在努力建设一个没有中国共产党的国家，致力于建立中国一人一票的选举制度。文中写到，本次人道救援行动得到了法治基金的大力支持。法治基金的使命是揭露中共国政治、法律、商业和金融体系中无处不在的腐败，及揭露中共的无法无天、残暴和不人道行为。
 
-正如Gateway Pundit[上个月报道](https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduced-video/)的那样，美国所有年龄段的超额死亡人数都在激增，尤其是25至44岁的年轻人。根据CDC的最新数据，这一特定群体的超额死亡人数增加了84%，创下了历史记录。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-43.jpg)
-毫不奇怪，这种令人担忧的趋势并不仅仅影响美国。
+这是国际媒体首次以如此大的篇幅，详细、正面地报道新中国联邦、法治基金，以及正在进行的乌克兰人道主义救援工作。随着世界局势的风云变幻，新中国联邦人将以更出色的形象，更优秀的行动，登上国际舞台。
 
-世界各地的国家，特别是那些被认为是西方一部分的国家，都在经历超额的死亡率，其中大多数国家的死亡率高得惊人。
+文字版原文：[波兰周刊大篇幅报道新中国联邦乌克兰救援活动](https://gnews.org/zh-hans/2269862/)
 
-我们的北方邻居加拿大在2021年7月31日至10月2日期间，最健康的加拿大人（0-44岁）死亡人数激增24%。
+音频处理：Fei797
+发稿：Fei797
 
-值得指出的是，加拿大总理特鲁多在8月份强制要求工人接种疫苗，与超额死亡人数的激增完全吻合。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-通过马克西姆-博伊文（Maxim Boivin）[推文](https://twitter.com/MaximBoivin137/status/1482245009856475137?s=20&amp;t=EeGwcRHq7wl12ts5fbLBdg)可见：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-27.jpg)
-同样的趋势在欧洲也可以看到，绝大多数国家都经历了超额死亡人数的激增–除了几个明显的例外。
-
-如[下图](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1480265875580231687%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F04%2Fnot-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine%2F)所示，少数国家（如冰岛和瑞典）在整个大流行病期间没有完全参与破坏文明的封锁，现在的情况明显好于它们的欧洲同行。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-14.jpg)
-
-
-谁能预料到这个结果？肯定不是SCiENcE（《科学》，学术期刊）。
-
-根据美国的最新数据，到目前为止，**千禧一代受超额死亡浪潮的打击最大–可能是因为打疫苗是他们保住工作的唯一途径**。
-
-最令人担忧的是，这种“令人不安”的趋势正在继续，甚至变得更糟。
-
-这场大流行病从来与拯救生命无关。恰恰相反，它可能是对立的（是扼杀生命）。
-
-新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

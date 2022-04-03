@@ -2,28 +2,39 @@
 ---
 
 
-## 有声|泽连斯基清除两名高级间谍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281705/)
+## 【G时新闻】新州救护车服务在两周内四次达到危机级别
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2281731/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间3月31日，据相关媒体报道，乌克兰总统泽连斯基当天晚间宣布清除两名高级间谍：安全局内部安全主要部门负责人奥列诺夫和安全局赫尔松地区办公室负责人奥列克山德罗维奇。
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
 
-泽连斯基在其后发表演讲时指出，这些高级军官不但背叛了自己的祖国，他们在保卫国家、自由以及独立方面也违反了对乌克兰人民效忠的军人誓言，因此，他们无可避免地被剥夺了高阶军衔。更甚者，泽连斯基怒斥其为叛徒，并强调称， 这些人都会逐渐受到惩罚。
 
-文字版原文：[泽连斯基清除两名高级间谍](https://gnews.org/zh-hans/2276186/)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天是2022年4月3日，欢迎收看扬帆农场G时新闻！今天的主题是 新州救护车服务在两周内四次达到危机级别！
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+《ABC News》近日报道，新南威尔士州的冠状病毒病例持续上升，导致该州的救护车服务在过去两周内四次达到危机水平。 新南威尔士州救护车专员多米尼克摩根今天告诉媒体：“目前已达到最高应急响应级别（称为状态三）超出历史上任何时候，意味着制定劳动力激增计划，并部署更多的管理人员和教育工作者提供帮助。 卫生服务工会秘书杰拉德·海耶斯表示由于缺乏工作人员，该系统无法应对。
 
-音频处理/发稿：Daxia
+摩根先生说，第四次新冠浪潮是需求背后的主要因素。在没有任何限制的情况下，人们外出活动更多，所以车祸、袭击和跌倒等事件的000电话有所增加。已经有1300名护理人员加入了救护车服务。 他说：“在过去的两年半里员工隔离是该服务的最大障碍，昨天有 4669 名卫生工作者休假，而 3 月初为 1600 人。 最重要的是，000呼叫频率始终居高不下！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+摩根先生说，根据推算模型显示未来两周新冠病例仍旧呈上升趋势。 在昨天到下午 4 点的 24 小时内，新南威尔士州又记录了 13 例新冠死亡病例和 20389 例病例。 新南威尔士州卫生局表示，目前医院有 1302 名新冠患者，其中 47 人在重症监护室。 新南威尔士州约 60% 的病例发生在 40 岁以下的人群中 。
+
+目前拨打救护车服务的人中有多少是因为疫苗副作用无人知晓？可以预料新冠疫苗灾难爆发后医疗系统的奔溃，正如文贵先生说的今年五月开始人们将面临疫苗灾难的降临！希望我们所有人都要积极做好防护避免不必要的出行和聚集！
+
+盖特链接：[https://gettr.com/post/p13ckdidc76](https://gettr.com/post/p13ckdidc76)
+
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

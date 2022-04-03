@@ -2,28 +2,33 @@
 ---
 
 
-## 有声|中共前司法部长傅政华被双开
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281706/)
+## 完整的人类基因组图谱绘制完成
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2281761/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月31日，中共的中纪委国家监委网站发布公告，前司法部长傅政华被开除党籍及公职。公告指出，傅政华政治野心极度膨胀，参加前公安部副部长孙立军的政治团伙，危害党的集中统一。
+【作者】纽约香草山农场 健身部 文真
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+3月31日，《科学》杂志发布一项人类基因工程重大突破，人类基因组图谱的绘制已经完成，这为新的医学打开了大门。
 
-中共给傅政华列出的罪名还包括：从未真正忠诚于党和人民；政治品行极为卑劣，为达到个人政治目的不择手段；拉帮结派，结党营私；弄虚作假、欺瞒中央；妄议党中央大政方针；长期违规领用和携带枪支；贪婪腐化，大搞权钱交易，非法收受巨额财物等。总结来看，傅政华似乎犯下了所有中共高官都做过的所有事情。
+人类细胞核包含23组染色体，大约有30000个基因。人类基因组由数十亿个以字母A、C、G和T命名的DNA亚单元组成。
 
-文字版原文：[中共前司法部长傅政华被双开](https://gnews.org/zh-hans/2274882/)
+读取基因需要将DNA链切割成几百到几千个字母长的片段。DNA测序机器读取每个片段中的字母，科学家再试图将这些片段按正确的顺序排列。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+多年来，因DNA测序技术无法读取基因组的某些部分，大约8%的基因序列仍未被填补。基因测序技术改进后，科学家可以一次准确地读取包含100万个字母的DNA片段，极大提高了基因排序的准确性。
 
-音频处理/发稿：Daxia
+科学家们说，这个完整的基因组图谱将有助于了解人类生物学和人类遗传学，为更深入地了解进化、癌症和出生缺陷铺平了道路。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.foxnews.com/science/scientists-map-human-genome](https://www.foxnews.com/science/scientists-map-human-genome)
+
+校对/发稿：菩提树
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
