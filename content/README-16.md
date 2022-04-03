@@ -16,6 +16,8 @@
 ---
 ## 頁面 16/41 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [41](/content/README-41.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：5月4日郭先生GTV直播](/content/2020/05/20200507-758917873142808151.md)
+
 [文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/2020/05/20200504-2906844940978365909.md)
 
 [文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/content/2020/05/20200503-2344599282144457777.md)
@@ -63,8 +65,6 @@
 [文字版：2020年4月1日文贵为什么在3月31日要谈第二次世界大战](/content/2020/04/20200403-1478603494714953028.md)
 
 [文字版：2020年3月31日谈亚洲的耶路撒冷香港，和GTV，G-News，G-Fashion](/content/2020/04/20200402-257449982049081995.md)
-
-[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/content/2020/03/20200331-7430016907269619361.md)
 
 
 ## 頁面 16/41 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [41](/content/README-41.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

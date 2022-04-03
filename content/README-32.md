@@ -16,6 +16,8 @@
 ---
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)
 
+[文字版：9172018 文贵先生直播王健事件重大进展法国已经正式立案重新调查！](/content/2018/09/20180917-8550776674007589502.md)
+
 [文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/content/2018/09/20180916-1687313530283465166.md)
 
 [文字版：9月10号马云辞职的真正原因](/content/2018/09/20180913-8040960110830809305.md)
@@ -63,8 +65,6 @@
 [文字版： August 9th 2018](/content/2018/08/20180810-4219843988347833039.md)
 
 [文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/2018/08/20180809-4256963212298749895.md)
-
-[文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/2018/08/20180809-3627104687795521023.md)
 
 
 ## 頁面 32/41 [**<**](/content/README-31.md) [1](/content/README.md) ... [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) **32** [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) ... [41](/content/README-41.md) [**>**](/content/README-33.md) [查看全部](/content/README-all.md)

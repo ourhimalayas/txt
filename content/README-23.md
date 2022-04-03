@@ -16,6 +16,8 @@
 ---
 ## 頁面 23/41 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [41](/content/README-41.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年9月27日郭先生联合班农先生、Kathy Sloan女士直播：江泽民震惊发言：中国要出事！你们准备后路吧！！国庆阅兵没几个国家会参加，川普总统的弹劾程序和对中共的制裁将有大戏上演！](/content/2019/09/20190928-167661051507921662.md)
+
 [文字版：2019年9月24日郭文貴先生和江財神路德三人談政治經濟愛情以及外星人！妄圖彈劾總統是好事！](/content/2019/09/20190927-5347503096158314507.md)
 
 [文字版：9月24日 郭文贵先生直播 红烧肉真香，CCP给人民吃瘟猪肉，还把阅兵后的帅哥美女按领导级别分配，美女当小三，帅哥当领导夫人](/content/2019/09/20190927-2016233729904353338.md)
@@ -63,8 +65,6 @@
 [文字版：2019年8月23日习近平和川普总统会互相宣布成为敌人吗？](/content/2019/08/20190827-7154322243260745813.md)
 
 [文字版：2019年8月23日文贵报平安（10分钟）](/content/2019/08/20190824-5714793768655054415.md)
-
-[文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」](/content/2019/08/20190822-18293374283100190.md)
 
 
 ## 頁面 23/41 [**<**](/content/README-22.md) [1](/content/README.md) ... [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) **23** [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) ... [41](/content/README-41.md) [**>**](/content/README-24.md) [查看全部](/content/README-all.md)

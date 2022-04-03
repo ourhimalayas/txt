@@ -16,6 +16,8 @@
 ---
 ## 頁面 30/41 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [41](/content/README-41.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
 
+[文字版2：018年12月17日 文贵报平安关于昨天被删除视频和路德Sara 女士，2018年12月18日 关于各种案件都有重大好消息](/content/2018/12/20181218-205233234738962001.md)
+
 [文字版：2018年12月16日 郭文贵先生和战友之声全体战友互动交流 ](/content/2018/12/20181218-4408266402406274127.md)
 
 [文字版：2018年12月14日感谢战友们的关心，聊天谈谈肖建华死期到了吗？及CCP海外抓铺](/content/2018/12/20181218-3889821236277365249.md)
@@ -63,8 +65,6 @@
 [文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/content/2018/11/20181108-3694443382811258849.md)
 
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/content/2018/11/20181102-7756356782375038893.md)
-
-[翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/content/2018/11/20181102-2322680967443605626.md)
 
 
 ## 頁面 30/41 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [41](/content/README-41.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)

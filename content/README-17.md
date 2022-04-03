@@ -16,6 +16,8 @@
 ---
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年3月28日郭文贵先生谈我们要在疫情中强大，在疫情中生存，在疫情中赚钱，在疫情中成功！](/content/2020/03/20200331-7430016907269619361.md)
+
 [文字版：2020年3月27日一切美好再也回不到今天了](/content/2020/03/20200331-6998457737623230780.md)
 
 [文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/2020/03/20200328-980133680998762013.md)
@@ -63,8 +65,6 @@
 [文字版:2020年2月20日文贵先生和班农先生在作战室和喜马拉雅大使馆共同直播](/content/2020/02/20200221-5201737352028779423.md)
 
 [文字版：2020年2月18日郭文贵先生直播警醒同胞2月29日是武汉疫情的分水岭，别上班，躲深山!](/content/2020/02/20200220-6957915304895832685.md)
-
-[文字版:2020年2月15日文贵告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！](/content/2020/02/20200218-4076658468529416877.md)
 
 
 ## 頁面 17/41 [**<**](/content/README-16.md) [1](/content/README.md) ... [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) **17** [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) ... [41](/content/README-41.md) [**>**](/content/README-18.md) [查看全部](/content/README-all.md)

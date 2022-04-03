@@ -16,6 +16,8 @@
 ---
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年8月20日 王岐山的侄子搶奪盤古大觀的「斬龍刀」](/content/2019/08/20190822-18293374283100190.md)
+
 [文字版：8月18日文贵吃饱了直播](/content/2019/08/20190822-8029195555016463956.md)
 
 [2019年8月17日 班农先生与文贵谈 香港危机 美国即将必须采取的行动](/content/2019/08/20190819-5676820155081817041.md)
@@ -63,8 +65,6 @@
 [文字版：2019年7月24號衷心的祝願和祝福所有的在國內在水災中的同胞們能儘快的恢復到正常的生活······](/content/2019/07/20190726-326879781741066444.md)
 
 [文字版：2019年7月23日李鵬為什麼一見人就問 89年當時你在哪？為了啥？](/content/2019/07/20190726-7427179275360633583.md)
-
-[文字版：2019年7月22日 談談華爾街日報的報導](/content/2019/07/20190724-4998396878425414363.md)
 
 
 ## 頁面 24/41 [**<**](/content/README-23.md) [1](/content/README.md) ... [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) **24** [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) ... [41](/content/README-41.md) [**>**](/content/README-25.md) [查看全部](/content/README-all.md)

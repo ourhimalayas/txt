@@ -16,6 +16,8 @@
 ---
 ## 頁面 35/41 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) ... [**>**](/content/README-36.md) [查看全部](/content/README-all.md)
 
+[文字版2018年4月5日文贵告诉您：吴晓辉的飞机上的牛人是谁！](/content/2018/04/20180418-7188809671168778035.md)
+
 [文字版2018年4月4号吴晓辉的飞机上藏着＂核武器＂！](/content/2018/04/20180418-8927936442107582299.md)
 
 [文字版2018年4月3日健身篇和中国企业家都是盗国贼资本的代孕者](/content/2018/04/20180418-5122406140766697803.md)
@@ -63,8 +65,6 @@
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/content/2018/04/20180418-3356176592243296603.md)
 
 [文字版：03/07/18路德系列专访袁红冰（一）：袁红冰视角看中共修宪 ](/content/2018/04/20180418-456944924800011468.md)
-
-[文字版：03/0/18郭媒体视频：修宪的本质和盗国有什么区别？以黑治国与2018两会什么关系？](/content/2018/04/20180418-9206841940282105316.md)
 
 
 ## 頁面 35/41 [**<**](/content/README-34.md) [1](/content/README.md) ... [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) **35** [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) [39](/content/README-39.md) [40](/content/README-40.md) [41](/content/README-41.md) ... [**>**](/content/README-36.md) [查看全部](/content/README-all.md)
