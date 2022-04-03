@@ -2,10 +2,10 @@
 ---
 
 
-## 墙内人喊出“打倒共产党，打倒习近平”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279921/)
+## 上海某小区志愿者上门做核酸发现老人死在床上
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279938/)
 
-04/01/2022 墙内人喊出“打倒共产党，打倒习近平”
+04/01/2022 上海某小区志愿者上门做核酸，却发现老人已死在床上
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
