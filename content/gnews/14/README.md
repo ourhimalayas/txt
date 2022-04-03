@@ -2,25 +2,43 @@
 ---
 
 
-## 樱花FM┃中共明知疫情防控措施惨无人道，为何仍要坚决执行？
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2281351/)
+## 实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281392/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-278.png)
-近日，在上海疫情不断恶化下中共极其不人道的封锁了许多小区，很多老百姓连基本的生活保障都没有，菜买不到，肉买不到，水买不到，门不能出，小区老人被封锁5天，恳求行人给买点吃的，而往来的路人却都极其冷漠，无人对老人施以援手，真是太让人心寒了……抗疫不是目的，借助抗疫来不断对老百姓折腾、侮辱，让老百姓变的贫穷、变弱、变的疲惫不堪才是中共此次抗疫真正目的！中共崇祯帝习近平通过此次疫情严格防控，大大的降低了绝大部份中国老百姓对生活的期盼，只要能苟且的活着，不封锁，不隔离，不做核酸，能正常工作，自由进出家门，工资高点低点，饭菜好的差点，有钱没钱，都是小事！
+编译：文斗
 
-全员核酸极其不合理，中共崇祯帝习近平知道吗？这孙子当然知道，他就是通过核酸检测来看看有谁不服？贫民、疲民、愚民、辱民、弱民，五者皆不灵，杀之！此次，中共疫情防控如有半点反抗，都会被中共无情的镇压……
+在过去的几个月里，出现了一个令人担忧的趋势–人们的死亡速度前所未有，而这与Covid-19没有什么关系。
 
-文字版原文：
+事实上，这一高峰几乎与实验性mRNA Covid疫苗推出完全吻合。
+
+正如Gateway Pundit[上个月报道](https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduced-video/)的那样，美国所有年龄段的超额死亡人数都在激增，尤其是25至44岁的年轻人。根据CDC的最新数据，这一特定群体的超额死亡人数增加了84%，创下了历史记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-43.jpg)
+毫不奇怪，这种令人担忧的趋势并不仅仅影响美国。
+
+世界各地的国家，特别是那些被认为是西方一部分的国家，都在经历超额的死亡率，其中大多数国家的死亡率高得惊人。
+
+我们的北方邻居加拿大在2021年7月31日至10月2日期间，最健康的加拿大人（0-44岁）死亡人数激增24%。
+
+值得指出的是，加拿大总理特鲁多在8月份强制要求工人接种疫苗，与超额死亡人数的激增完全吻合。
+
+通过马克西姆-博伊文（Maxim Boivin）[推文](https://twitter.com/MaximBoivin137/status/1482245009856475137?s=20&amp;t=EeGwcRHq7wl12ts5fbLBdg)可见：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-27.jpg)
+同样的趋势在欧洲也可以看到，绝大多数国家都经历了超额死亡人数的激增–除了几个明显的例外。
+
+如[下图](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1480265875580231687%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F04%2Fnot-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine%2F)所示，少数国家（如冰岛和瑞典）在整个大流行病期间没有完全参与破坏文明的封锁，现在的情况明显好于它们的欧洲同行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-14.jpg)
 
 
-| [中共明知疫情防控措施惨无人道，为何仍要坚决执行？](https://gnews.org/zh-hans/2264901/) |   |
-| --- | --- |
+谁能预料到这个结果？肯定不是SCiENcE（《科学》，学术期刊）。
 
+根据美国的最新数据，到目前为止，**千禧一代受超额死亡浪潮的打击最大–可能是因为打疫苗是他们保住工作的唯一途径**。
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+最令人担忧的是，这种“令人不安”的趋势正在继续，甚至变得更糟。
+
+这场大流行病从来与拯救生命无关。恰恰相反，它可能是对立的（是扼杀生命）。
+
+新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

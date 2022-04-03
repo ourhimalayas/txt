@@ -2,26 +2,36 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第41期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2281461/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281547/)
 
-新闻内容摘要：
+作者：香草山翻译部
 
-- 1.有关乌克兰前线的消息
-- 2.与俄乌战争相关的国际消息
-- 3.俄乌战争使中俄贸易受到空前冲击
-- 4.中共党卫军为攻台积极备战
-- 5.日本扩大对朝鲜发展导弹的制裁
-- 6.中共前司法部长傅政华被双开
-- 7.上海的封城在持续，城市陷入混乱状态
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-1.png)
 
-**播报：东京樱花团-理想国**
+文章仅代表作者本人观点，与Gnews无关
 
-**发布： 东京樱花团-eiei**
+视频参看：
+[2022.04.03早 《NFSC新闻》](https://www.gettr.com/streaming/p13cdp658c9)
+[2022.04.03早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13cemm3a50)
 
-* * *
-![此图像的alt属性为空；文件名为erweima.png](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
