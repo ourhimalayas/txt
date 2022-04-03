@@ -2,68 +2,48 @@
 ---
 
 
-## 因COVID疫苗宗教豁免被拒 三兄弟将被迫退役
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2277921/)
+## 乌克兰战争展现出人类辨别真假善恶从社交媒体重新开始
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2278008/)
 
-翻译： Jenny Ball
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8837.50%EF%BC%89%E4%B9%8C%E5%85%8B%E5%85%B0%E6%88%98%E4%BA%89%E5%B1%95%E7%8E%B0%E5%87%BA%E4%BA%BA%E7%B1%BB%E8%BE%A8%E5%88%AB%E7%9C%9F%E5%81%87%E5%96%84%E6%81%B6%E4%BB%8E%E7%A4%BE%E4%BA%A4%E5%AA%92%E4%BD%93%E9%87%8D%E6%96%B0%E5%BC%80%E5%A7%8B%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:9)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
+**郭文贵先生：**今天这场战争，就像昨天我和意大利的一个哥们还有英国的一位朋友在这个小视频上，他们说：“Miles，你对这个战争的理解超过了我们的理解。”我说：“你有想过吗？Telegram、Facebook、Instagram为什么成为乌克兰最大的战场？而且乌克兰是绝赢，KO整个普京和整个俄罗斯。”
 
+我说：“第二个，你想过没有？全世界为什么所有人站在了乌克兰正义的一边？
 
+第三个，乌克兰的泽连斯基总统是被乌克兰已经民调抛弃掉25%的时候，发生了战争。人家泽连索基（泽连斯基）证明了整个乌克兰人——我是你们的总统，我能代表你，我和你们一样。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-26-edited.png)2019 年 6 月，乔赛亚·米修拉(Josiah Misiura）和大卫·米修拉( David Misiura Jr. )兄弟从部署归来后在新泽西州北汉诺威镇的麦奎尔空军基地合影留念。照片由大卫·米修拉提供
+不但如此，乌克兰人证明了要加入欧洲说——我和你欧洲人一样，我们有勇气，我们有人道，有国际化。在乌克兰、在泽连索基（泽连斯基）跟欧洲开会以后，欧洲的所有领导人都对泽连索基（泽连斯基）的评价说，他是我们，我超出了我们所有人想象的一个世界级领袖。
 
-米修拉三兄弟家族有服兵役史。他们的祖父在朝鲜战争中是一名海军机械师，他们的父亲曾在空军服役，兄弟俩都以继承家族传统和支持美国自由为荣。
+而这个世界上迷恋于普京的所谓的硬肌肉，所谓的那种霸气、狠气，都是大家被玩弄的。人类在社交媒体面前，你会看到真正的人类辨别真假善恶，从社交媒体重新开始。
 
-但现在他们觉得自己的自由受到了限制，因为他们被告知要进行 COVID-19 疫苗注射或退役。他们都要求宗教豁免，现在处于豁免是否被批的不同阶段。
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-大卫36 岁，是来自宾夕法尼亚州洪斯代尔的空军预备役技术中士。之前是一名前狱警，创办了一家男士美容公司 LOX and Company Ltd。他已经服役了 15 年，曾四次被部署，其中包括两次在伊拉克的战斗部署。其中一项部署是与他的弟弟、30 岁的乔赛亚一起部署的，他是来自宾夕法尼亚州兰开斯特的空军预备役技术中士，是一名全职警官。他们的另一个兄弟，34 岁的乔纳森·米修拉（Jonathan Misiura）是陆军国民警卫队的一等兵，全职在一家电话公司担任线卫。
+编辑整理：Jacques；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-18.png)托马斯（Thomas Misiura 左)，海军机械师，兄弟们的祖父。大卫（上 ），兄弟之父。小大卫（上数第二）、乔纳森（上数第三）和 乔赛亚（右下）。由 小大卫提供。
+字幕档制作：知津；
 
-每个军事部门都有不同的疫苗接种期限。
+视频制作及上传：Cindy；
 
-空军预备役人员必须在 2021 年 12 月 2 日之前接种疫苗。大卫提交了宗教豁免申请。它被拒绝了，所以，他对拒绝提出了上诉，但他的上诉被驳回了。然后他的指挥官告诉他，他有五天的时间来接受注射或写一封拒绝信，并面临纪律处分，这将导致他退役。
+G-News发布：海贼王M.D.LUFFY；
 
-他写了拒绝信。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“**没有人有权力支配我的上帝赋予的和美国宪法规定的权利。没有人有权推翻我真诚持有的宗教信仰，并以任何理由强迫我违背良心或对上帝的承诺****——****更不用说以健康或任务准备的名义，****”**大卫的信中说。“我不会被强迫、威胁、内疚、欺负或以其他方式说服我违反我的良心、不服从我的上帝或践踏我作为人类的基本权利，**让我的身体接种一种实验性的生物制剂，这种制剂来自胎儿细胞系，并会导致严重的不良反应，包括导致死亡，而且对一种康复率为99.97%的病毒无效。****”**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-2022 年 3 月，大卫收到了一封谴责信，并因“拒绝服从合法命令”而获得第 92 条引文处罚。他目前正在等待退役。他将失去他目前每月赚取的 500 美元，而且，服务了 15 年之后，他还有五年才有资格获得退休福利。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-大卫说：“我的计划一直是服务满 20 年，然后，重新评估是留更长的时间，还是离开部队去领取养老金。”“空军给了我很多机会和很好的经验。你知道，到目前为止，空军一直对我很好。如此多的友谊，如此多的经历和可敬的地方。是一个整体上伟大的职业生涯。”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-服役 12 年的乔赛亚步大卫后尘。他的宗教豁免和上诉已被驳回。他的下一个选择是写一封拒绝信，并面临退役或注射。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-陆军国民警卫队的疫苗接种截止日期是 2022 年 6 月 30 日。乔纳森已提交宗教豁免，但尚未收到回复。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-在远离家人的长期部署和强化训练之后，兄弟俩说他们感到被政府背叛了。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-“这非常令人失望”大卫说。“我觉得被背叛了。我已经为一个对我很好的国家和军队服务了 15 年，我一直很好地服务，因为我不能违背我的宗教信仰，所以这一切都被剥夺了。我觉得被背叛了。”
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-大卫说他与耶稣的个人关系，以及他基于圣经的信念推动了他的道德。
-
-“任何人，包括联邦政府，告诉我违背这些信念，最终可能会产生终身的后果，”大卫说。“当我们的开国元勋来到美国殖民地时，其中一部分是为了表达信仰和宗教自由。最终，我要站在神面前回答，为我有生之年的行为负责。我死后不会站在联邦政府面前。我不会站在我的家人或教会面前。这将在我的上帝面前，你知道**，最终，我们都会为我们所做的一切向上帝负责。****”**
-
-国民警卫队发言人在 3 月 31 日证实，国民警卫队成员是用联邦资金支付的，那些，未接种疫苗的人将不会获得报酬，或被允许参加周末演习训练，这将影响他们在国民警卫队中的地位。
-
-点评：多么令人敬佩的三兄弟，却被自己的政府背叛！
-
-新闻来源：[three brothers prepare to exit military as religious exemptions for covid shots denied](https://www.theepochtimes.com/three-brothers-prepare-to-exit-military-as-religious-exemptions-for-covid-shots-denied_4374126.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-04-02)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+G-TV：日本银河系农场。
 
  
 

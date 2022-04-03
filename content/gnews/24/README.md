@@ -2,83 +2,68 @@
 ---
 
 
-## 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277774/)
+## 因COVID疫苗宗教豁免被拒 三兄弟将被迫退役
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2277921/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/未命名_副本.png)
-据小白不白@Hans08572119 盖特
+翻译： Jenny Ball
 
-[https://gettr.com/post/p139ic56b4d](https://gettr.com/post/p139ic56b4d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
 
-#中共国 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼，跳楼前对话疑似如下：
 
-女：救命啊！
 
-男：习近平你下不下台？！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-26-edited.png)2019 年 6 月，乔赛亚·米修拉(Josiah Misiura）和大卫·米修拉( David Misiura Jr. )兄弟从部署归来后在新泽西州北汉诺威镇的麦奎尔空军基地合影留念。照片由大卫·米修拉提供
 
-女：让他下！
+米修拉三兄弟家族有服兵役史。他们的祖父在朝鲜战争中是一名海军机械师，他们的父亲曾在空军服役，兄弟俩都以继承家族传统和支持美国自由为荣。
 
-……
+但现在他们觉得自己的自由受到了限制，因为他们被告知要进行 COVID-19 疫苗注射或退役。他们都要求宗教豁免，现在处于豁免是否被批的不同阶段。
 
-女：他会死的！
+大卫36 岁，是来自宾夕法尼亚州洪斯代尔的空军预备役技术中士。之前是一名前狱警，创办了一家男士美容公司 LOX and Company Ltd。他已经服役了 15 年，曾四次被部署，其中包括两次在伊拉克的战斗部署。其中一项部署是与他的弟弟、30 岁的乔赛亚一起部署的，他是来自宾夕法尼亚州兰开斯特的空军预备役技术中士，是一名全职警官。他们的另一个兄弟，34 岁的乔纳森·米修拉（Jonathan Misiura）是陆军国民警卫队的一等兵，全职在一家电话公司担任线卫。
 
-男：共产党解不解散？！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-18.png)托马斯（Thomas Misiura 左)，海军机械师，兄弟们的祖父。大卫（上 ），兄弟之父。小大卫（上数第二）、乔纳森（上数第三）和 乔赛亚（右下）。由 小大卫提供。
 
-女：解散！
+每个军事部门都有不同的疫苗接种期限。
 
-男：能改革开放不？！
+空军预备役人员必须在 2021 年 12 月 2 日之前接种疫苗。大卫提交了宗教豁免申请。它被拒绝了，所以，他对拒绝提出了上诉，但他的上诉被驳回了。然后他的指挥官告诉他，他有五天的时间来接受注射或写一封拒绝信，并面临纪律处分，这将导致他退役。
 
-男：还疫情防控吗？！
+他写了拒绝信。
 
-#土共不亡百姓亡
+“**没有人有权力支配我的上帝赋予的和美国宪法规定的权利。没有人有权推翻我真诚持有的宗教信仰，并以任何理由强迫我违背良心或对上帝的承诺****——****更不用说以健康或任务准备的名义，****”**大卫的信中说。“我不会被强迫、威胁、内疚、欺负或以其他方式说服我违反我的良心、不服从我的上帝或践踏我作为人类的基本权利，**让我的身体接种一种实验性的生物制剂，这种制剂来自胎儿细胞系，并会导致严重的不良反应，包括导致死亡，而且对一种康复率为99.97%的病毒无效。****”**
 
-另据tjxcx💙💛@tjxcx 盖特
+2022 年 3 月，大卫收到了一封谴责信，并因“拒绝服从合法命令”而获得第 92 条引文处罚。他目前正在等待退役。他将失去他目前每月赚取的 500 美元，而且，服务了 15 年之后，他还有五年才有资格获得退休福利。
 
-天津赵沽里2022年4月2日早。
+大卫说：“我的计划一直是服务满 20 年，然后，重新评估是留更长的时间，还是离开部队去领取养老金。”“空军给了我很多机会和很好的经验。你知道，到目前为止，空军一直对我很好。如此多的友谊，如此多的经历和可敬的地方。是一个整体上伟大的职业生涯。”
 
-[https://gettr.com/post/p135weqbd04](https://gettr.com/post/p135weqbd04)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/001-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/002-1.jpg)
-根据以上信息这是一起2022年4月2日早发生在天津河北区月牙河街赵沽里封控小区内的一起惨剧，让我们来回答这对夫妻的问题——
+服役 12 年的乔赛亚步大卫后尘。他的宗教豁免和上诉已被驳回。他的下一个选择是写一封拒绝信，并面临退役或注射。
 
-习近平会不会因为这对夫妻的惨剧下台呢？
+陆军国民警卫队的疫苗接种截止日期是 2022 年 6 月 30 日。乔纳森已提交宗教豁免，但尚未收到回复。
 
-不会！
+在远离家人的长期部署和强化训练之后，兄弟俩说他们感到被政府背叛了。
 
-共产党会不会因为这对夫妻的惨剧解散呢？
+“这非常令人失望”大卫说。“我觉得被背叛了。我已经为一个对我很好的国家和军队服务了 15 年，我一直很好地服务，因为我不能违背我的宗教信仰，所以这一切都被剥夺了。我觉得被背叛了。”
 
-不会！
+大卫说他与耶稣的个人关系，以及他基于圣经的信念推动了他的道德。
 
-能改革开放不？
+“任何人，包括联邦政府，告诉我违背这些信念，最终可能会产生终身的后果，”大卫说。“当我们的开国元勋来到美国殖民地时，其中一部分是为了表达信仰和宗教自由。最终，我要站在神面前回答，为我有生之年的行为负责。我死后不会站在联邦政府面前。我不会站在我的家人或教会面前。这将在我的上帝面前，你知道**，最终，我们都会为我们所做的一切向上帝负责。****”**
 
-不会！
+国民警卫队发言人在 3 月 31 日证实，国民警卫队成员是用联邦资金支付的，那些，未接种疫苗的人将不会获得报酬，或被允许参加周末演习训练，这将影响他们在国民警卫队中的地位。
 
-还疫情防控吗？
+点评：多么令人敬佩的三兄弟，却被自己的政府背叛！
 
-中共不亡，疫情不止！
+新闻来源：[three brothers prepare to exit military as religious exemptions for covid shots denied](https://www.theepochtimes.com/three-brothers-prepare-to-exit-military-as-religious-exemptions-for-covid-shots-denied_4374126.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2022-04-02)
 
-已经逝去的生命不能再复活，但是对于每个身处绝境的同胞来说，中共一日不亡，人民一日不得安宁，时下之计任何的悲观哀叹都于事无补，灭共不仅仅是正义的必需，灭共更是生存的必需，为了活着，为了一起起惨剧不再重现，让我们一起来告诉世界现在中共大地上正在发生的惨剧，因为无穷的远方和无数的人们都与我们息息相关，无穷的远方和无数的人们都与这个世界息息相关。
+* * *
 
-撰稿：喜马拉雅的肉夹馍；
+审核：文乐
+校对：阿伯塔
+发布：五通庙
 
-审核：喜马拉雅的馍夹肉；
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

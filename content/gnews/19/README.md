@@ -2,63 +2,48 @@
 ---
 
 
-## 英国扣押俄商人价值5000万美元的游艇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278072/)
+## 新中国联邦不仅造就无苗族还带来正道主义的新生存模式
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2278093/)
 
-翻译： Jenny Ball
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8838.50%EF%BC%89%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%B8%8D%E4%BB%85%E9%80%A0%E5%B0%B1%E6%97%A0%E8%8B%97%E6%97%8F%E8%BF%98%E5%B8%A6%E6%9D%A5%E6%AD%A3%E9%81%93%E4%B8%BB%E4%B9%89%E7%9A%84%E6%96%B0%E7%94%9F%E5%AD%98%E6%A8%A1%E5%BC%8F%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
+**郭文贵先生：**新中国联邦我们在乎什么，我们要最终就是靠结果，我们千万别在乎什么主流媒体，什么政府跟什么国际机构，狗屁都不是，就是他们带来了人类的灾难一个又一个，包括我们中国人的灾难。
 
+我们要改变这一切，我们要成为没有苗的不分种族、不分颜色、不分宗教的新的人类——叫新人类、新中国联邦。兄弟姐妹们珍惜吧，没有苗、还有币，我们还在全世界救援，还有无数的战友。
 
+现在多少战友说“七哥，我们要捐钱、我们要捐钱”。会的，大概在一段时间，我们会给让大家捐HDO，大家也可以捐钱，我们肯定我们的预算是什么？在现场现在是，现在的救援是1,000万欧元，接下来我们救援大概在5,000万欧元左右——也就4亿人民币，我们要救援。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-27-edited.png)Phi周二在伦敦被英国拘留。格蕾丝·迪恩《内幕》
+大家你们记住，所有救援花的钱，未来都会晒在网上，都会晒在网上。我告诉你们，所有你们解决不了的钱，七哥都会在国际上、基金、金融组织都会解决，而且我们永远不会向任何人伸手，人类上前所未有。
 
-一艘被英国当局扣留价值 5000 万美元超级游艇的船长说，周四该船的支援船被意大利当局登上检查。
+兄弟姐妹们，新中国联邦带给你们的不仅仅是无苗救了你们一命，这比什么都大，还会带来一个新的人类未来的生存模式，叫正道主义。
 
-本周在伦敦被拘留的 Phi 船长盖伊·布斯（Guy Booth）告诉《内幕》（Insider），周四，意大利因佩里亚港地方当局在登上了 Phi 的支持船“幻影”（Phi Phantom）。 这艘 118 英尺的支持船与 Phi 是同一拥有者。
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-布斯说，周四上午 9 点左右，两名意大利海岸警卫队工作人员以及该船的当地航运代理人访问了该船，并要求提供“全面的文件”。
+编辑整理：Jacques；
 
-布斯说：“文件被带走审查，几个小时后，文件被退回给船长：‘非常感谢。一切似乎都井井有条。’”他说，代理人已在下午 4 点前归还文件，并告诉船长，海岸警卫队官员对“幻影”的船主没有受到制裁感到满意。
+字幕档制作：知津；
 
-“他们解释说，他们要求提供这些文件，是因为英国媒体报道说他是一个‘寡头’，但他不是，而且他与普京关系密切，但他没有，”布斯告诉 《内幕》，并补充说，这些官员“都非常亲切和专业”。
+视频制作及上传：Cindy；
 
-Phi 是一艘 192 英尺长的游艇，周二在伦敦金融中心金丝雀码头被英国扣留。英国《金融时报》报道称，这艘船由动机电信（Motiv Telecom）的创始人维塔利·瓦西里耶维奇·科切特科夫（Vitaly Vasilievich Kochetkov）所有。
+G-News发布：海贼王M.D.LUFFY；
 
-3 月 1 日，英国禁止所有俄罗斯拥有或经营的船只进入其港口，并赋予当局扣留俄罗斯船只的权力。国家犯罪局表示，四个星期后，Phi 成为“有史以来第一艘”在英国水域被扣留的超级游艇。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-布斯此前曾表示，对 Phi 的拘留是“政府的过度扩张，只不过是一种宣传噱头”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-西方一直在制裁俄罗斯精英，并没收他们的资产，以向该国施加压力，要求其停止入侵乌克兰。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-英国交通大臣格兰特·沙普斯 (Grant Shapps) 在 3 月中旬表示，英国正在调查“少量游艇”，这些游艇涉嫌与俄罗斯寡头有关联。周二，沙普斯表示，通过拘留 Phi，当局“将俄罗斯权力和财富的象征变成了对普京及其亲信的明确警告。”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.png)Phi 长 192 英尺，由一位俄罗斯商人拥有，价值约 5000 万美元。格蕾丝·迪姆
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-但国家犯罪局拒绝提供有关 Phi 船东的更多细节，称他为“俄罗斯商人”，并表示他“故意”对这艘船的所有权保密。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-科切特科夫没有受到英国的制裁。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-“这艘船没有被扣押，只是被扣留，”国家犯罪局发言人在谈到 Phi 时告诉《内幕》。 “它仍然是所有者的财产，但实际上被阻止离开。”
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-自12月从荷兰进行处女航后，Phi就一直停泊在金丝雀码头。
-
-新闻来源：[The captain of a Russian businessman’s $50 million yacht detained by the UK says Italian authorities boarded its support ship and checked its documents](https://www.businessinsider.com/russia-superyacht-sanction-phi-phantom-london-captain-italy-ukraine-boat-2022-4)
-
-* * *
-
-素材：文舞
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+G-TV：日本银河系农场。
 
  
 
