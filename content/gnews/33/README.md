@@ -2,29 +2,28 @@
 ---
 
 
-## 国际｜无惧普京威胁 波罗的海三国率先放弃俄罗斯天然气
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279890/)
+## 巴西放宽对国际旅行者的Covid相关限制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2279843/)
 
-**图/文｜CP**
-**发布时间｜03/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/無懼普京威脅-波羅的海三國率先放棄俄羅斯天然氣-2.jpg)
+**撰稿：日本东京方舟农场  JIHO**
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+根据路透社4月2日消息，巴西卫生机构Anvisa周六发布了一套针对入境国际旅客的新规则，随着南美国家健康危机的缓解，巴西放宽了与CCP病毒大流行病有关的限制。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-34.png)（图片来自GETTY IMAGES）
 
-俄罗斯因入侵乌克兰而遭多国经济制裁，令俄罗斯无法以美元进行交易。俄罗斯总统普京（Vladimir Putin）3月31日作出威胁，要求对俄“不友好国家和地区”的公司在俄罗斯银行开设卢布户口，以支付天然气费用，否则将中止现有合约并切断供应。
+按照新规，在接种两剂或单剂CCP病毒疫苗后，根据疫苗的类型，旅行者被认为已经完全接种。Anvisa说，该疫苗接种必须在出发日期前至少14天完成。
 
-拉脱维亚天然气输送和储存营运商Conexus Baltic Grid行政总裁巴里斯（Uldis Bariss）4月2日表示，自4月1日起，俄罗斯的天然气已经不再输入波罗的海三国（即拉脱维亚、爱沙尼亚和立陶宛），而当地市场的需求目前由拉脱维亚地下储存的天然气供应。
+所有入境的外国人或巴西人只需出示电子版或打印版的疫苗护照，无需再进行检测即可入境巴西。
 
-立陶宛总统瑙塞达（Gitanas Nauseda）同日表示，为了与“侵略者”断绝能源联系，立陶宛不再使用俄罗斯天然气，并强调如果立陶宛做得到，欧洲其他国家亦能做到，暗示希望欧盟各国跟随其步伐。
+未完全接种CCP病毒疫苗的旅客，只要他们是巴西人和居住在巴西的外国人，必须出示CCP病毒的测试，测试结果为阴性或无法检测的可以入境。
 
-美国早前已禁止俄罗斯的石油和天然气进口，惟欧盟的天然气供应有约40%来自俄罗斯，因此要摆脱对俄罗斯的能源依赖并非易事。
+该机构还指出，居住在国外且未完全接种疫苗的外国人仍被禁止进入该国，但在声明中没有详细说明例外情况。
 
-来源｜[Aljazeera](https://www.aljazeera.com/news/2022/4/3/baltic-states-stop-russian-gas-imports-over-ukraine-invasion)
+参考链接：
+[https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/](https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/)
 
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+总编：老孙
+校对发布：爱放飞
 
  
 
