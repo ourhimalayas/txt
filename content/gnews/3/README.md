@@ -2,75 +2,34 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.03C）——接种疫苗嗜睡乏力和免疫系统疾病
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2278029/)
+## 樱花时政┃英国《泰晤士报》： 中共在俄入侵前对乌克兰发动了网络攻击
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2278128/)
 
-整理/文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-182.png)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/英国《泰晤士报》：-中共在俄入侵前对乌克兰发动了网络攻击.png)[图片来源](https://gnews.org/wp-admin/The%20Ukraine%20crisis%20is%20a%20major%20challenge%20for%20China)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+据【伦敦时事】英国《泰晤士报》4月2日报道，中共在俄罗斯入侵乌克兰前对该国发动了一次重大网络攻击。
 
-博主：烟雾
+据称已经从情报机构获得了几份备忘录，如果是真的，这可能再次被证明中共提前知道俄罗斯要入侵乌克兰的事实。
 
-**新冠疫苗综合征**
+据该报称，来自中共国的网络攻击在2月20日北京冬奥会闭幕前开始，并在2月23日达到顶峰。第二天（24日）俄罗斯入侵了乌克兰。网络攻击影响了涉及安全的边境安全部门以及财政部、中央银行和核相关机构，包括核监管机构。这些组织同时也受到了俄罗斯的网络攻击，但中共国的攻击可以通过特定的工具和方法加以区分。英国和美国的情报机构也掌握这一信息。该报还介绍了一位专家的意见，他说，这些信息 “似乎证实了俄罗斯已将其入侵计划告知了中共国”。
 
-3月31日，不知道别人咋样，反正我们全家好像就我每次打完疫苗有十天左右身体不舒服……
+关于中国，《纽约时报》早在2月初的报道中称，中共国要求俄罗斯在北京奥运会闭幕前不要开始入侵，中共国否认了这一说法，称这是“彻头彻尾的谎言”。
 
-第一天浑身没劲，只能睡觉；第二天浑身乏力；第三天头昏脑胀；第四天喷嚏停不了；第五天开始渐渐好转但仍旧精神不佳……
+美国总统拜登和欧盟主席冯德莱恩也警告习近平不要支持俄罗斯的侵略行为。
 
-难道只是我受不了吗？？？？？？？
-![](https://assets.gnews.org/wp-content/uploads/2022/04/@LYEZMV7D6MYD0IPDCV.png)图片来源：博主小红书
-[**瑞士**](https://www.xiaohongshu.com/user/profile/5ef80ef90000000001007644)**评论**
+信息来源：
+[ウクライナにサイバー攻撃か　中国、ロシアの侵攻直前に　英報道](text=%E3%83%88%E3%8)
 
-十天左右不舒服还算好的，有些人身体打出新的疾病，一直在看医生。
-
-博主回复：可怕（表情）。
-
-**维薇-SHIHE评论：**
-
-打过就甲亢了，（以前）常年健身的人。
-
-**瑞士评论:**
-
-甲亢也是和免疫系统相关的疾病，疫苗注射对免疫系统会产生好的刺激同时也应该有不好的刺激。
-
-[chen](https://www.xiaohongshu.com/user/profile/5a1a97ba4eacab402765560a)评论：
-
-去检查身体吧，我婆婆就是隔时间久了查出来大问题，现在疫苗鉴定（副作用）都不会认的。
-
-博主回复：
-
-什么大问题？说的我很慌……
-
-[chen](https://www.xiaohongshu.com/user/profile/5a1a97ba4eacab402765560a)评论：
-
-还在医院住院诊断，之前县医院诊断是免疫性血小板减少，正在风湿免疫科住着。
-
-博主回复：
-
-那基本上都是免疫系统出问题了咯！我也是打疫苗之后医生让我增强免疫力。
-
-[**赤澜**](https://www.xiaohongshu.com/user/profile/5ef21f7500000000010054d8)**评论：**
-
-这叫综合症？？？？？？
-
-[**新生命**](https://www.xiaohongshu.com/user/profile/5f71b8ef000000000100864d)**评论：**
-
-尽量不要打吧
-
-**栗木评论：**
-
-我都没打，现在好害怕确诊。
-
-参考链接：[新冠疫苗综合症状](https://www.xiaohongshu.com/discovery/item/62452dd80000000021037015?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648872461)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

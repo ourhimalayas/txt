@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 5:06 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group32/origin/2022/04/03/05/3ef503ec-f9fe-c160-a255-39569fb53348/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 3:03 AM (UTC)`
 
 2022-4-2《鸡血王喜币大作战》 第一百五十三集 嘉宾：卡丽熙、Eric
@@ -151,13 +158,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 《NFSC-真人真事》第47期嘉宾：加拿大蓝莲花农场  小小酥
 ![img](https://media.gettr.com/group31/origin/2022/04/02/14/1d31e3ab-3593-3cc7-07d3-aa6aa68b2b3f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 1:54 PM (UTC)`
-
-【Ukraine Rescue】03/30/2022 Some refugees are fleeing Ukraine, while others are choosing to return to Ukraine, and those who choose to return are doing so because it is difficult to survive abroad. In any case, the NFSC and the ROLF provide them with as much help as possible.<br/><br/>【乌克兰救援】03/30/2022 一些难民在逃离乌克兰，而其他人则选择回到乌克兰，选择回国的人是因为在外生存艰难。无论如何，新中国联邦和法治基金会尽可能地给他们提供帮助。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group23/getter/2022/04/02/13/4ee1fa3b-ef52-2bd5-d5b7-ea8449053cc2/out.jpg)
 
 ---
 

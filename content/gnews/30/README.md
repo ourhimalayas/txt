@@ -2,32 +2,51 @@
 ---
 
 
-## 乌克兰战争之际美国密切关注中共国对台动态
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2277278/)
+## 巴总理拟不接受罢免投票，陆军总长要求扩大与美联系
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277309/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown.jpg)乌克兰战争之际美国密切关注中共国对台动态 网络图片
-据美国之音4月2日报道，当全球聚焦于俄罗斯对乌克兰的侵略战争之际，中共国是否对台湾采取军事行动引起越来越多的担忧。
+翻译/编辑：文泓
 
-美国国务院负责中共国、台湾及蒙古的东亚事务副助卿华自强表示，美国关注的主要焦点是2月4日习近平与普京发表的两国友好“无止境”的联合声明，以及在乌克兰的背景下，中共国是否有任何“超越”这个联合声明的行动。美国最近的许多外交努力，包括拜登与习近平会晤，都是要清楚表达美国对这个议题的关切。
-
-美国军方也对中共国的军事动态保持高度关注和戒备。美军印太司令部司令阿奎利诺上将表示，自2016年以来，中共国对台湾在军事和外交及其他方面的胁迫越发严重。阿奎利诺指出，乌克兰事件带来的第一个教训就是：“这真的可能发生”，第二个教训就是：不要安于现状，“随时做好准备”。
-
-俄罗斯和中共两大邪恶轴心国，狼狈为奸，沆瀣一气，一方战事未结束，另一方已然想登场。魔鬼的本性就是唯恐世界不乱，唯恐人民安居乐业。现今世界上所有的动荡、灾难、种族灭绝和屠杀都与中共有关。中共也是乌克兰战争背后的发起者和支持者。但是中共的目标并不是一个小小的乌克兰，而是称霸世界。武统台湾、断供美国芯片、人民币取代美元、彻底打垮美国经济才是中共的目的。台湾处在极度的危险中，随时会面临中共的军事打击。
-
-新闻参考链接：[https://www.voachinese.com/a/us-official-and-commander-said-closely-watiching-china-actions-amid-ukraine-war-20220401/6511836.html](https://www.voachinese.com/a/us-official-and-commander-said-closely-watiching-china-actions-amid-ukraine-war-20220401/6511836.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/@UNNNBEXVJ7V2A@7.png)图片来源：Republic World & 雅典娜设计组
 
 
-编辑：【英国伦敦喜庄园编辑部】
+周六巴基斯坦总理伊姆兰·汗表示，他可能不会接受推翻他的投票，他声称此举是由美国精心策划的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+反对党表示，汗未能重振巴基斯坦受冠状病毒大流行打击的经济，也未能兑现让政府更加透明和负责任的承诺，反对党提出了一项于周日投票的不信任动议。
 
+汗在他的办公室告诉了一群精选的外国记者，整个过程都被抹黑了，我不能接受这个结果，推翻我的举动是美国对巴国内政治的公然干涉。
 
+在其政治盟友退出联合政府并加入反对派后，汗已经失去了议会中的多数席位，他敦促他的支持者在周日投票前走上街头。
+
+就在汗讲话前几个小时，巴基斯坦陆军总长卡马尔·贾维德·巴杰瓦将军曾表示，巴基斯坦希望扩大与华盛顿的关系。
+
+美国总统乔·拜登自上任以来没有给汗打电话，但白宫否认正在寻求推翻他。
+
+阿富汗问题导致两国关系紧张，华盛顿指责巴基斯坦支持塔利班的叛乱成功，以至于去年美国和盟军混乱撤离。
+
+尽管巴政府与美国的战略竞争对手中国达成了数十亿美元的发展协议，但巴军方似乎并不希望损害与华盛顿的关系，后者过去曾向其提供数十亿美元的军事援助。
+
+巴杰瓦在伊斯兰堡的一次安全会议上说，“我们与美国有着悠久的战略关系，美国仍然是我们最大的出口市场”。
+
+他指出，巴基斯坦长期以来一直与中国保持密切的外交和商业关系，但补充说：“我们寻求在不影响双方关系的情况下扩大并拓宽两国的关系。”
+
+美国驻伊斯兰堡大使馆没有立即回复置评请求。
+
+早些时间媒体报道，在3月22日巴杰瓦将军代表军方要求汗总理辞职。
+
+参考链接：
+
+1、[Pakistan PM Khan suggests he might not accept vote to oust him | Reuters](https://www.reuters.com/world/asia-pacific/pakistan-army-chief-says-his-country-seeks-expand-relations-with-united-states-2022-04-02/?taid=62484d833225ef0001283fd7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+
+2、[Pak Army chief Bajwa asks Imran Khan to resign as Pakistan’s Prime Minister: Sources (republicworld.com)](https://www.republicworld.com/world-news/pakistan-news/pak-army-chief-bajwa-asks-imran-khan-to-resign-as-pakistans-prime-minister-sources-articleshow.html)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
