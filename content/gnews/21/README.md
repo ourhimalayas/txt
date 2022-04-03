@@ -2,36 +2,30 @@
 ---
 
 
-## 中共通过俄罗斯出口欧洲的计划遭遇重创
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279827/)
+## 【G叻睇真D】中共国党卫军为即将全面攻台作好准备
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2279891/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/im-515795.jpeg)
-据外媒报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+据《台湾新闻》3月31日报道，在美国和菲力宾两国日前在靠近台湾的菲律宾北部海域进行了大规模联合军演之后，多架中共军机当天再次擅闯台湾防空识别区。目前，中共的这种挑衅行为在俄乌战争爆发后，已愈演愈烈。
 
-尽管欧盟尚未正式禁止俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
+据悉，在本次入侵的11架中共军机中，有两架轰炸机进入台南防空识别区的东南角，而另一架空警机携八架战斗机则闯入了西南角。
 
-世界大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路德国内陆港口杜伊斯堡的海运保险公司也宣布不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
+在2021年的239天内，中共至少出动961架次军机寇入台湾防空识别区，试图通过“准入侵”战术手段，在不直接动武的情况下，恐吓台湾当局并拖垮台军士气，以此打破台海现状，并为即将全面攻台作好准备。
 
-自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
-
-reference：
-
-[https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
-
-撰稿、发布：骄子
-
+编辑/上传：一叶
+盖特链接：[https://www.gettr.com/post/p139xs7bf0f](https://www.gettr.com/post/p139xs7bf0f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
 * * *
 
-欢迎订阅我们的GNews账号：
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

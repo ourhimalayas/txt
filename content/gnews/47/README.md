@@ -2,37 +2,34 @@
 ---
 
 
-## 美司令官：应对俄乌之战就是为了威慑中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2275768/)
+## 所罗门群岛不允许中共军事入驻
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275776/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ded4dd47c592b31d469ec16bae7f5aba.jpg)
+近日所罗门总理表示，不允许中共在本国建立军事基地。
 
-4月1日，美国空军机动司令部（AMC）司令迈克尔·米尼汉（Mike Minihan）上将，接受美国国防新闻网站“Breaking Defense”采访时表示，应对俄罗斯入侵乌克兰，就是在威慑中共政权。
+据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-31.jpg)（图片来自大纪元）
+澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
 
-他说，尽管我们正在向东欧地区运输士兵及武器，应对俄乌之战。但是实际上我们还是以印太地区的威胁为主要目标，就是在威慑中共。
+撰稿、发布：骄子
 
-米尼汉司令官表示，在2月24日俄罗斯入侵乌克兰之后，美方就向东欧部署了美军士兵和反坦克导弹武器等。他说，“我们不能低估正在发生的事情。如果我们在欧洲搞砸了，那么子孙都将受到影响。”
+reference：
 
-米尼汉去年10月，执掌了空军机动司令部。此前，他在亚太地区工作了8年，并在2019年至2021年期间，担任美国印太司令部副司令。
+[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
 
-而且他本人相信这段印太司令部的经历，是他主掌空军机动司令部的“唯一原因”。因为对空军机动司令部来说，为可能与中共发生的战争做好一切准备。
+* * *
 
-米尼汉介绍了为此做下的准备，空军必须设法使空中加油机和运输机，从美国西海岸转移到印太地区，然而，随着这些运输机离中国越近，通联、网络能力都会下降。与战斗机和轰炸机相比，运输机体积大、速度慢、防御系统较少，使它们容易成为敌方目标。
+欢迎订阅我们的GNews账号：
 
-米尼汉说，尽管这些准备已经很久没有做过了，但是“如果中共能迅速在台湾站稳脚跟，那么这一切都会陷入困境。”所以要尽早解决这些问题。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-米尼汉介绍，将确定四个重要领域，其一加强指挥和控制，确保部队之间的联系；其次加强导航能力，当中共扰乱GPS或其他系统时，机组人员有能力应对；第三制定空军基地受攻击时的应变方针；最后加强在激战中维持行动速度的能力。
-
-米尼汉最后表示，空军机动司令部正在开发新战术来降低风险，以减少沟通需求，或购买更多耐用的通信设备，来填补缺口。为进一步应对中共方面做好万全之策。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/2/n13690165.htm](https://www.epochtimes.com/gb/22/4/2/n13690165.htm)
-
-总编：老孙
-校对发布：爱放飞
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

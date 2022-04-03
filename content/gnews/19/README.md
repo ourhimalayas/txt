@@ -2,28 +2,27 @@
 ---
 
 
-## 巴西放宽对国际旅行者的Covid相关限制
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2279843/)
+## 疫情｜台湾连3日确诊破百例 3月中早发现“XE”病毒株
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279917/)
 
-**撰稿：日本东京方舟农场  JIHO**
+**疫情关注组 zhong｜2022-4-3**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company.png)▎关注疫情真相、 光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+据疫情指挥中心数据，台湾已连续三天本土确诊破百例，今 （3日）本土新增183例，远高于境外移入97例。台湾疫情持续延烧，发生多条不明感染源，若达到无法匡列来控管的程度，主管机关并未透漏是否推行（强制性）普筛或疫苗隔离。
 
-根据路透社4月2日消息，巴西卫生机构Anvisa周六发布了一套针对入境国际旅客的新规则，随着南美国家健康危机的缓解，巴西放宽了与CCP病毒大流行病有关的限制。
+一位受匡列正在进行自主健康管理的人士向疫情关注组透漏，台湾政府的检测量能似乎难以负荷，与他同行的友人遭匡列的时间出现数日的误差。台湾政府目前仍以疫苗、隔离为主要防疫措施，且XE变种病毒已在3月被检测出一例境外移入，台湾疫情走向值得密切关注。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-34.png)（图片来自GETTY IMAGES）
+## 3月中 发现“XE”入侵台湾
 
-按照新规，在接种两剂或单剂CCP病毒疫苗后，根据疫苗的类型，旅行者被认为已经完全接种。Anvisa说，该疫苗接种必须在出发日期前至少14天完成。
+继英国出现Omicron亚种混合毒株“XE”后，台湾于4月2日亦通过防疫记者会公布称，台湾在 3 月 18 日曾验出 1 例确染 XE 的境外移入个案（自捷克入境/女性），落地采检阳性，Ct 值仅有 15 ，病毒量偏高，但无症状。
 
-所有入境的外国人或巴西人只需出示电子版或打印版的疫苗护照，无需再进行检测即可入境巴西。
+台湾媒体引述英国资料表示， XE 传播速度推测比 BA.2 高出 9.8 %，但目前致病性还没有明确的结果。XE是否会引发台湾新一波疫情，由于国际仍对XE不了解，因此待观察。
 
-未完全接种CCP病毒疫苗的旅客，只要他们是巴西人和居住在巴西的外国人，必须出示CCP病毒的测试，测试结果为阴性或无法检测的可以入境。
+来源｜[HEHO](https://heho.com.tw/archives/212799)
 
-该机构还指出，居住在国外且未完全接种疫苗的外国人仍被禁止进入该国，但在声明中没有详细说明例外情况。
+* * *
 
-参考链接：
-[https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/](https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/)
-
-总编：老孙
-校对发布：爱放飞
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

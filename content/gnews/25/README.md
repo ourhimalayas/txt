@@ -2,40 +2,36 @@
 ---
 
 
-## 核酸检测阳性让母子分离，上海极端防疫措施惹发民怨
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2279787/)
+## 中共通过俄罗斯出口欧洲的计划遭遇重创
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279827/)
 
-#### 【雅典娜观察】和您一起洞察世界
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/im-515795.jpeg)
+据外媒报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
 
-整理/编辑：文泓
+尽管欧盟尚未正式禁止俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2-24.png)图片来源：新唐人 & 雅典娜设计组
+世界大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路德国内陆港口杜伊斯堡的海运保险公司也宣布不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
 
+自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
 
-自上周一上海开始实施“分区封控”措施，在封控区内进行全员多轮核酸检测，要求“人不流动、足不出户”，确保“不漏一户、不落一人”。
+reference：
 
-上海市民连日来在社媒上抱怨很难获取食品、生活必需品和药品，不过引发最大争议的是将核酸检测阳性的儿童强制与他们的父母分开在不同地点隔离。
+[https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
 
-记者获悉，一位赵姓上海女市民抱怨说，她两岁半的女儿3月26日发烧，因此带她去医院就诊。结果三天后，她和她的女儿以及她的丈夫全都被确诊。医院并决定将她、她的丈夫以及他们的女儿分开隔离，而且她幼小的女儿还要被送往金山区公共卫生临床中心的儿童隔离点进行隔离。
+撰稿、发布：骄子
 
-赵女士哀求医院让她和她的女儿一起隔离，但是院方强硬表示，**如果她不同意将她女儿送去金山区的儿童隔离点，那么她女儿就只能留在这家医院，而赵女士本人还是得去她自己的隔离点。**
+* * *
 
-当中国的社媒上出现上海一家医疗机构中儿童哭叫的视频画面后，赵女士更是感觉要崩溃。在微博和抖音上传播的这些视频显示，一张小床上躺着三个婴幼儿，这些婴幼儿都在哭叫。这是在上海金山区的公共卫生临床中心拍摄的。
+欢迎订阅我们的GNews账号：
 
-社媒上最初贴出的视频画面已经被删除，但是成千上万的市民持续发表评论或转贴视频。“这太恐怖了，”有一个写道，“政府怎么可以制定出这样一个计划呢？”人们评论道。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-记者看到的一家隔离医院微信群中的贴文显示，**在某些情况下，只有三个月大的婴儿也被从他们哺乳的母亲身边分开。另一个贴文说，房间里有八个儿童，却没有一个大人。**类似的事情还有很多。
-
-参考链接：[将核酸检测阳性幼儿与父母分开隔离，上海极端防疫措施惹民怨](https://www.voachinese.com/a/shanghai-separates-covid-positive-children-from-parents-in-virus-fight-20220402/6512454.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
