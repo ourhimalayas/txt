@@ -2,19 +2,61 @@
 ---
 
 
-## 在上海如果感染新冠却没有山东大姐被曝光的幸运会怎样
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277472/)
+## 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277774/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面.png)
-据[**大公文匯網**](https://weibo.com/tkww) [22-04-3 08:02](https://weibo.com/7476748260/LmGPB9rs3?from=page_1002067476748260_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/未命名_副本.png)
+据小白不白@Hans08572119 盖特
 
-[#山东大姐因疫情流落上海街头#](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%A4%A7%E5%A7%90%E5%9B%A0%E7%96%AB%E6%83%85%E6%B5%81%E8%90%BD%E4%B8%8A%E6%B5%B7%E8%A1%97%E5%A4%B4%23&amp;from=default) 大姐自述：感染了三天了也没人管没人问，就因为自己是外地人，小区里有租的房子3500一个月，居委会也不让我进去，就把我赶到马路上来，晴天了就睡在大马路上，下雨了就找个桥底下睡。
+[https://gettr.com/post/p139ic56b4d](https://gettr.com/post/p139ic56b4d)
 
-据了解，通过媒体的报道后，大姐已被120接走，接到指定地点隔离救治。希望大姐早日康复！[L潍坊观察的微博视频](http://t.cn/A66lqT70)
+#中共国 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼，跳楼前对话疑似如下：
 
-上海正在发生的事情其实在全国各地都在发生，在疫情防控的大帽子之下，随意剥夺公民进出住所的权利已经司空见惯，而山东大姐在上海的这番遭遇最后得以解决并非上海相关部门良心发现，而是由于这位山东大姐的遭遇被媒体曝光，那么没有曝光的惨剧又有多少呢？
+女：救命啊！
 
-由于很多人并没有山东大姐这么幸运，所以要么被逼死，要么被饿死，要么被病死，时下之中国只要套上一个红袖箍，只要穿上防护服，立马获得对普通百姓颐指气使的权力，在无法无天的苛政之下，每一个沉默的羔羊的生存空间都变得越来越逼仄，都说羊被逼急了也会咬人，那么当越来越多的羔羊被逼到退无可退时，中华大地无处不在的人间地狱还能继续存在吗？
+男：习近平你下不下台？！
+
+女：让他下！
+
+……
+
+女：他会死的！
+
+男：共产党解不解散？！
+
+女：解散！
+
+男：能改革开放不？！
+
+男：还疫情防控吗？！
+
+#土共不亡百姓亡
+
+另据tjxcx💙💛@tjxcx 盖特
+
+天津赵沽里2022年4月2日早。
+
+[https://gettr.com/post/p135weqbd04](https://gettr.com/post/p135weqbd04)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/001-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/002-1.jpg)
+根据以上信息这是一起2022年4月2日早发生在天津河北区月牙河街赵沽里封控小区内的一起惨剧，让我们来回答这对夫妻的问题——
+
+习近平会不会因为这对夫妻的惨剧下台呢？
+
+不会！
+
+共产党会不会因为这对夫妻的惨剧解散呢？
+
+不会！
+
+能改革开放不？
+
+不会！
+
+还疫情防控吗？
+
+中共不亡，疫情不止！
+
+已经逝去的生命不能再复活，但是对于每个身处绝境的同胞来说，中共一日不亡，人民一日不得安宁，时下之计任何的悲观哀叹都于事无补，灭共不仅仅是正义的必需，灭共更是生存的必需，为了活着，为了一起起惨剧不再重现，让我们一起来告诉世界现在中共大地上正在发生的惨剧，因为无穷的远方和无数的人们都与我们息息相关，无穷的远方和无数的人们都与这个世界息息相关。
 
 撰稿：喜马拉雅的肉夹馍；
 
@@ -34,7 +76,7 @@ G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、
 
 盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
 G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 

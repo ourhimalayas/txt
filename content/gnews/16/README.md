@@ -2,26 +2,28 @@
 ---
 
 
-## 樱花头条┃美国宣布史上最大石油储备释放计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2279638/)
+## 北朝鲜金正恩胞妹等发言 谴责韩国主动攻击言论
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2279754/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-美国宣布史上最大石油储备释放计划
+翻译：天天
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
+【北京共同】 – 朝鲜劳动党总书记金正恩的妹妹金与正和负责军事事务的党委书记朴正天分别于4月2日发表声明，谴责韩国国防部长徐旭提及对朝鲜的先发制人打击的言论。 朝鲜中央通讯社4月3日报道。 朴正天警告说，如果韩国采取包含主动攻击在内的军事行动，他将使用军事力量摧毁首尔的主要目标以及消灭韩国的军事力量。
 
-信息来源：[https://www.gettr.com/post/p12ztku5b59](https://www.gettr.com/post/p12ztku5b59)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-237.png)图片来源：雅虎新闻
 
-编辑：东京樱花团/asket、太白（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+金与正是朝鲜劳动党已故总书记金正日四女，母亲是高容姬，她也是金正哲、金正恩的同母妹妹。现任朝鲜劳动党中央委员、党中央组织指导部第一副部长、朝鲜国务委员会委员。
 
+金与正说，徐旭的讲话 “进一步加剧了 “南北关系和朝鲜半岛的军事紧张局势。
 
+朴正天说，挑衅的言行很可能会引发全面战争。他们两人的谈话都强调，朝鲜是一个有核国家。
 
+参考链接：[韓国の先制攻撃言及を非難　北朝鮮、金正恩氏妹ら談話（共同通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/7ab06ebaaba22f58afa4d1d991b510df36cec974)
+
+* * *
+
+审核：BryanW
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

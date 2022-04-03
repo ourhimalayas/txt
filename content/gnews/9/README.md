@@ -2,39 +2,34 @@
 ---
 
 
-## 联合国宣布也门斋月开始停火两个月
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2279780/)
+## 一则备忘录显示美国政府知晓中共病毒来自武汉
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279842/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-03-下午6.29.51.png)图片来源：互联网
-联合国秘书长古特雷斯周六（4月1日）表示，也门为期两个月的停火将于周六生效，这必须是结束也门毁灭性战争的第一步，该协议于当地时间周六19点开始，恰逢斋月开始。他计划在两个月的时间里加强与各方的合作，以达成永久停火，讨论采取紧急的经济和人道主义措施，并恢复政治进程。  【1】
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C53A47B8-ADB1-4769-90F6-B58EDB1DC93F_w1200_r1.jpg)
+近日一份被曝光的备忘录显示，早在2020年疫情初期，美国政府非常清楚中共病毒来自武汉实验室，而并非是海鲜市场以及来自自然的蝙蝠。
 
-美国总统拜登白宫声明支持也门停战两个月，声明称：”这一举措是也门人民期待已久的缓和之举。任何一方停止在也门境内和跨越边界的所有军事活动，燃料船进入荷台达港，以及恢复往返萨阿的商业航班到商定的目的地。“，不仅是停火，还需要结束战争，”我们必须结束这场战争。“
+这份通讯录是军方使用的通讯方式，它表明尽管没有直接证据，但有大量的间接证据证明中共病毒来自武汉病毒研究所。武汉病毒研究所对致命病毒和携带病毒的实验室动物管理存在严重的工作疏忽。在中共病毒大流行期间，武汉卫生厅和武汉病毒研究所坚称中共病毒来自自然，并大肆进行毫无意义的收集和测试大量蝙蝠的工作，以误导大众。臭名昭著的中共石正丽和Peter Daszak纷纷为这种误导站台，配合中共阻止国际社会合理要求对中共病毒进行的溯源调查。
 
-国务卿布林肯4月1日[推特](https://twitter.com/SecBlinken/status/1509647977068916763)对也门停火表示支持：”我今天与阿曼外交部长 al-Busaidi 谈及支持联合国 – 提议在也门停火和全面停火。联合国休战提案可以作为迈向全面停火和新的、更具包容性的政治进程的第一步。“【2】
+备忘录称所有的错误理论，如中共病毒来自海鲜市场，或者来自自然蝙蝠，这些理论的提出本身就是一种阻止溯源调查的超限战手段。
 
-据沙特国家电视台4月1日报道，沙特领导的联盟周五对联合国斡旋的也门休战表示欢迎，称其支持联合国的努力和安排，以保持休战，该联盟是2015年3月对胡塞武装进行干预。
+reference：
 
-伊朗外交部发言人赛义德·哈蒂布扎德（Said Hatibzade）在一份书面声明中表示，他们欢迎就也门临时停火达成的协议，允许运送燃料的船只进入该国并部分开放萨那机场。哈蒂布扎德表示，该协议可以为该国的永久停火奠定基础，同时为也门危机找到政治解决方案。【3】
+[https://newstarget.com/2022-04-02-memo-covid-most-likely-escaped-wuhan-lab.html](https://newstarget.com/2022-04-02-memo-covid-most-likely-escaped-wuhan-lab.html)
 
-自 2015 年以来，也门内战是沙特阿拉伯领导的联盟军队与伊朗支持的胡塞武装之间的战争。根据联合国的数据，大约有38万人在冲突中丧生，数百万人被迫逃离。
-
-胡塞武装组织得名于其创始人 Hüseyin Bedreddin al-Houthi。他们在 2004 年首次发动武装起义。自 2004 年以来，该组织一直得到伊朗的财政和军事支持，该组织的座右铭是“上帝是伟大的，以色列之死，美国之死，犹太复国主义的诅咒，伊斯兰教”这是“胜利”。这个口号出现在胡塞旗帜上。
-
-中共与伊朗有着密切关系，其中郭文贵先生直播透露昆仑银行几乎是与伊朗做生意的代名词，它是中共国内通向伊朗的唯一结算渠道。
-
-参考消息：
-
-【1】[联合国欢迎也门宣布停火两个月](https://news.un.org/zh/story/2022/04/1101362)
-
-【2】[拜登总统 关于联合国斡旋 也门 停火的声明](https://www.whitehouse.gov/briefing-room/statements-releases/2022/04/01/president-biden-statement-on-un-mediated-truce-in-yemen/)
-
-【3】[伊朗欢迎也门临时停火](https://turkish.aawsat.com/home/article/3568511/i%25CC%2587ran-yemende-ilan-edilen-ge%25C3%25A7ici-ate%25C5%259Fkesi-olumlu-kar%25C5%259F%25C4%25B1lad%25C4%25B1)
+撰稿、发布：骄子
 
 * * *
 
-*编辑&发布：长岛开心*
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

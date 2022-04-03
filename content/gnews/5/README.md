@@ -2,11 +2,11 @@
 ---
 
 
-## 救援会持续多久（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279817/)
+## 数字货币的时代不可逆转（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279903/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-950-1000-8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-1020-1030-4.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

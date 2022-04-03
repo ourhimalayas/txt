@@ -2,33 +2,44 @@
 ---
 
 
-## 台湾｜台美于华府进行实体会谈 为扩大台湾国际参与
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279381/)
+## 财新曝上海“东海养老院”惨状后遭删文
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2279409/)
 
-**港台前线 zhong｜2022-4-3**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国在台协会（AIT）和驻美国台北经济文化代表处（TECRO）邀集美国国务院和台湾外交部的高阶代表，3月31日在华府针对扩大台湾参与联合国和其他国际论坛进行协商。
+**撰稿：日本东京方舟农场  子辰**
 
+4月2日，财新刊文，曝光上海东海老年护理医院感染中共病毒后的种种惨状后，目前此文已遭到删除。
 
-> On March 31, 2022, the American Institute in Taiwan (AIT) and the Taipei Economic and Cultural Representative Office (TECRO) convened high-level representatives of the U.S. Department of State and the Taiwan Ministry of Foreign Affairs for consultations in Washington on expanding **Taiwan’s participation at the United Nations and in other international fora**.
+财新发布的这篇题为《新冠侵袭东海养老院》的报导披露，院内的一些老人无人照顾屎尿都干在了身上，其中有老人去世后，黄袋子一套写上名字就拉走了。目前在紧邻养老院的空地上，正在建造临时隔离收治点，已建完的箱式房间有二百多间。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3.jpg)（图片来自大纪元 ）
 
-美国国务院新闻稿称，本次所有与会者都认识到，应该与那些关注台湾被排除在国际社会外的盟友紧密合作，推动台湾参与国际组织的可能性。
+据该院医护工作人员称，院内确有感染者，包括护工和病人，且多数病患或老人生活难以自理，临时招募的护工管理散乱，正常照护受到影响。
 
-台湾外交部新闻稿表示，本次会议议题涵盖公共卫生、民航安全、打击跨国犯罪、经济合作及民主治理等，外交部感谢美国对台湾的坚定友谊与支持。美国于会议中重申将继续支持并协助台湾拓展国际空间及对全球关注议题作出更多专业贡献，台湾外交部代表人员，强调台湾将拓展国际参与，共同维护以规则为基础的国际秩序并强化多边治理及区域合作。
+多位病人家属对财新说，“到底感染从什么时候开始，感染了多少人，我们都不清楚。”目前无法联系到院内工作人员，电话也是无人接听，家属很难知晓院内准确情况。
 
-## 5月世界卫生大会
+随后，一名病人家属在微博说，“上海市东海老年护理医院防疫失控，一半以上的医生护士和护工都被带出去隔离。96岁外婆瘫痪在床无人照料！”
 
-本次与美国的会议，其一重点为“台湾作为观察员参与五月的世界卫生大会（WHA）”。据了解，丹麦国会3月31日以103票赞成、0票反对、0票弃权的压倒性票数通过支持立陶宛及台湾参与世界卫生大会（WHA）决议文，该决议文对立陶宛与中共之间的危机表示关注，呼吁丹麦与欧盟团结一致支持立陶宛，并吁请丹麦政府协同欧盟在欧中关系及相关国际场域提高对中共的压力，让台湾获得世界卫生大会观察员地位。
+另据一名上海网友披露，东海老年护理医院招募家政阿姨，被招的阿姨们到达该院后发现，院内有大量老人呈阳性，医护人员全部感染送去隔离了，而且医院没厕所也没地方住。
 
-该决议文在丹麦国会辩论中获跨党派议员先后发言支持。
+据悉，3月28日保洁工晓洁及四十多名工人进入东海老年护理医院。据晓洁透露，在进入病区前，晓洁仅接受过简单的防护培训，没有人交代老人照护的注意事项，老人身上也无医嘱卡。
 
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97643)、[Taiwan Working Group Meeting on International Organizations (IO Talks)](https://www.state.gov/u-s-taiwan-working-group-meeting-on-international-organizations-io-talks-2/)
+晓洁说，她被分到6病区。6病区有超过10个房间，一间套房约有五六个病人，病患年龄几乎都在七十岁以上，瘫痪在床者占绝大多数。
 
-* * *
+“这个病区很少见到医护，很多老人处于无人照顾的状态，我刚到时，有老人向护工要饭吃，也有老人屎尿都干在屁股上。大部分老人需要胃管打流，一些护工不会，老人便只能饿著。”晓洁说。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+据9病区的老人称，原有病区的医护人员已撤离，病区缺人照料，后来又增派一批新护工，没做好交接，院内老人和这些外地护工交流沟通非常困难，病区内形势混乱。
+
+3月31日，也就是晓洁到病区的第三天，晓洁说，病区走廊垃圾成堆，无人运走。当天早晨，6病区有一名老人去世，“走得很不体面，直接黄袋子一套写上名字就拉走了”。
+
+而且有去世老人家属对财新确认，他被通知其父亲已在东海老年护理医院内死亡，但尚未见到遗体。
+
+目前，这篇文章打开财新网后显示，您要查看的页面不存在或已删除！
+
+参考链接： 
+[https://www.epochtimes.com/gb/22/4/3/n13691898.htm](https://www.epochtimes.com/gb/22/4/3/n13691898.htm)
+
+总编：老孙
+校队发布：文曦
 
  
 

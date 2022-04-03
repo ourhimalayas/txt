@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花头条┃百度等中企被列入SEC黑名单 或面临退市
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2279497/)
+## 欧盟议会主席誓言帮助乌克兰重建
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279573/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-百度,爱奇艺等中企被列入SEC黑名单 ，或面临退市。
+04/02/2022 欧洲议会议长罗伯塔·梅索拉向乌克兰最高拉达主席鲁斯兰·斯特凡丘克做出三项承诺：首先，我们对俄罗斯入侵乌克兰听之任之；第二，欧洲议会全力支持乌克兰加入欧盟；第三，战争结束后，我们将帮助重建乌克兰。
 
-信息来源：[https://www.gettr.com/post/p12s2wq6991](https://www.gettr.com/post/p12s2wq6991)
-
-编辑：东京樱花团/asket、行动（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
