@@ -2,32 +2,39 @@
 ---
 
 
-## 乌克兰宣布已夺回基辅 俄军则将目光投向东部
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2277092/)
+## 有声|乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277157/)
 
-翻译与编辑：灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》乌克兰扎波罗热 4月2日报道，**乌克兰周六表示，乌克兰军队已收复基辅周围所有地区，宣布自俄罗斯发动入侵以来首次完全控制了首都地区。与此同时，俄罗斯军队已经重新集结，准备在乌克兰东部作战。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/乌克兰夺回基辅-e1648942873681.jpg)2022年4月1日，乌克兰士兵站在遭摧毁的一座桥旁边（图片来源：路透社）
-报道称，乌克兰首都基辅周围的城镇在经历了五周的战斗后伤痕累累，街道上到处都是尸体。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月30日，乌克兰内阁、乌克兰数字化转型部、乌克兰国家机构创业和出口促进办公室、乌克兰国家创业和出口发展项目、乌克兰经济部和乌克兰外交部，联合发起“不要赞助谋杀”的国际宣传运动，呼吁乌克兰境内和其它外国企业，以及任何公民个人，共同抵制俄罗斯和白俄罗斯的商品和服务，加速侵略国家经济的大规模衰退。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-140.png)
+内容包括：不要购买俄罗斯和白俄罗斯商品；拒绝与俄罗斯、白俄罗斯进一步合作；选择乌克兰和反对乌克兰战争国家的合作伙伴，以取代俄罗斯或白俄罗斯的合作伙伴等。
 
-一位乌克兰官员说，**自俄罗斯本周从基辅撤军以来，乌克兰军队已经收复了该地区30多个城镇和村庄。**据报道，布查市长阿纳托利·费多鲁克说**，在这场战争中，有300多名布查市居民被杀。**
-
-**乌克兰武装部队报告称，周六俄罗斯的空袭和导弹袭击有所减少，但表示撤退的俄罗斯军队部署了地雷。**乌克兰紧急救援部门表示，**在基辅以西的德米特里夫卡村（Dmytrivka）的搜索中，一天内发现了1500多枚爆炸物。**
-
-报道指出，俄罗斯说，从基辅附近撤军是和平谈判中的善意姿态。乌克兰及其盟友说，俄罗斯在基辅附近遭受重大损失后，被迫将注意力转移到乌克兰东部。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download-2-e1648942786406.jpg)图片来源：网络。
-**俄乌战争发展到今天，令双方在伊斯坦布尔举行的视频会谈“困难重重”。**克里姆林宫发言人德米特里·佩斯科夫周六表示，“主要的事情是谈判继续进行，要么在伊斯坦布尔，要么在其他地方”。
-
-新一轮会谈尚未宣布。**乌克兰谈判代表阿拉卡米亚周六表示，已经取得了足够的进展，可以让俄罗斯总统普京和乌克兰总统泽伦斯基进行直接对话。**
-
-阿拉卡米亚补充说**，俄罗斯方面证实了我们的论点，即文件草案已经充分发展到允许两国领导人进行直接磋商。**
-
-新闻来源链接：
-
-[Ukraine claims control over Kyiv region as Russia looks east | Reuters](https://www.reuters.com/world/europe/red-cross-heads-again-mariupol-russia-shifts-ukraine-focus-2022-04-02/)
+乌克兰的国际宣传行动并不是单独的行为，事实上，国际社会已经或正在以实际行动对其进行支持。俄乌战争开始以来，美国、欧盟以及亚洲多国已经对俄进行了多种方式的制裁。
 
 
+
+
+
+文字版原文：[乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](https://gnews.org/zh-hans/2273695/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

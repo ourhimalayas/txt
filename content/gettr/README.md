@@ -17,6 +17,22 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 1:48 AM (UTC)`
+
+Medyka Border: A Belgian veteran named Robin saw our yellow vest with “Take Down the CCP” and said :”Glad you are here, you represent the good people”. He agreed that taking down the CCP is to take down the bad people, then everyone in the world can be happy. He liked the NFSC tent very much and took a picture of it.<br/><br/>👆梅蒂卡边境： 来自比利时的退伍军人Robin看到我们穿的灭共黄马甲说 ，很高心看到你们在这里，你们代表着好人，灭共就是要灭掉坏人，灭掉坏人，世界上的人才会幸福，我们才会赢！ 他说新中国联邦的大帐篷太棒了，他有拍照留念。<br/><br/>感谢前线战友报道🙏
+![img](https://media.gettr.com/group40/origin/2022/04/03/01/70559d1c-a0f7-4cbb-b148-0d6c66302628/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@mos_designer 4/3/2022 1:34 AM (UTC)`
+
+H-Pay是打开世界金融盒子的密码，是新中国联邦走向世界财富的钥匙，解救所有中国“锁链女”，把中国人从思想锁链上解救出来。战友一定要懂得H-Pay 的玄妙！<br/><br/>视频：蜂鸟手绘—战友日常之最强支付HPAY<br/><br/>#hcoin #hpay #himalayaexchange
+![img](https://media.gettr.com/group5/origin/2022/04/03/01/38ee1b54-713c-a7dc-6afa-570d56a28625/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mos_health 3/30/2022 1:42 PM (UTC)`
@@ -142,20 +158,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 4月2号，国内的噩梦和吃草的时代还远远没有到来，这些让中国老百姓不吃公共草坪的这些人，末来他们比这些老百姓还要惨！【七哥，墙内吃草的灾难还没来，关键是现在草都不让吃，悲剧，太惨了。】
 ![img](https://media.gettr.com/group33/getter/2022/04/02/13/ad2d87c3-eabe-db74-7d15-31170a33bfed/8867d003258a8712e0bf6d46d2c46826.jpg)
-
----
-
-`@miles 4/2/2022 1:07 PM (UTC)`
-
- 4月2号：尊敬的战友们好，🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏😘😘😘😘😘😘你们健身了吗？你们想七哥了吗？你一切都已经开始！
-![img](https://media.gettr.com/group33/getter/2022/04/02/13/32ffd527-96e0-2234-f084-8df42d9c1dc2/out.jpg)
-
----
-
-`@miles 4/2/2022 1:07 PM (UTC)`
-
-2022.04.02早《新中国联邦新闻访谈》 
-![img](https://media.gettr.com/group45/origin/2022/04/02/13/00d562d7-5b81-5b64-f28e-17db3fdb6bd3/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
