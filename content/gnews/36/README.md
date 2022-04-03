@@ -2,41 +2,30 @@
 ---
 
 
-## 在上海如果感染新冠却没有山东大姐被曝光的幸运会怎样
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277472/)
+## 援乌营地：军人本色 大放光彩
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277917/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面.png)
-据[**大公文匯網**](https://weibo.com/tkww) [22-04-3 08:02](https://weibo.com/7476748260/LmGPB9rs3?from=page_1002067476748260_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+**——我们是消灭邪恶中国共产党的新中国联邦人**
 
-[#山东大姐因疫情流落上海街头#](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%A4%A7%E5%A7%90%E5%9B%A0%E7%96%AB%E6%83%85%E6%B5%81%E8%90%BD%E4%B8%8A%E6%B5%B7%E8%A1%97%E5%A4%B4%23&amp;from=default) 大姐自述：感染了三天了也没人管没人问，就因为自己是外地人，小区里有租的房子3500一个月，居委会也不让我进去，就把我赶到马路上来，晴天了就睡在大马路上，下雨了就找个桥底下睡。
+**作者、编辑：Candy**
 
-据了解，通过媒体的报道后，大姐已被120接走，接到指定地点隔离救治。希望大姐早日康复！[L潍坊观察的微博视频](http://t.cn/A66lqT70)
+波兰时间4月2日，新中国联邦和法治基金驻波兰梅迪卡国际人道救援中心营地的Nicole战友传来视频。一位比利时的退役军人，也是来到该救援中心的志愿者，与Nicole战友在片中的对话虽短，但非常精彩。
 
-上海正在发生的事情其实在全国各地都在发生，在疫情防控的大帽子之下，随意剥夺公民进出住所的权利已经司空见惯，而山东大姐在上海的这番遭遇最后得以解决并非上海相关部门良心发现，而是由于这位山东大姐的遭遇被媒体曝光，那么没有曝光的惨剧又有多少呢？
+他叫Robin，非常喜爱我们营地的大帐篷和钢琴演奏，他已经拍了照片，而且很高兴看到我们新中国联邦人在这里服务。不愧是曾经服役过的军人，思维敏捷，讲话很快，言简意赅，涉及几个方面。
 
-由于很多人并没有山东大姐这么幸运，所以要么被逼死，要么被饿死，要么被病死，时下之中国只要套上一个红袖箍，只要穿上防护服，立马获得对普通百姓颐指气使的权力，在无法无天的苛政之下，每一个沉默的羔羊的生存空间都变得越来越逼仄，都说羊被逼急了也会咬人，那么当越来越多的羔羊被逼到退无可退时，中华大地无处不在的人间地狱还能继续存在吗？
+当Nicole问他如何看待印制在我们马甲上的口号“消灭邪恶的中国共产党”时，他兴奋地以挥动着双拳来加重语气说：我太喜爱它了，因为你们在这里代表着好人，你们是好人！
+Niocle高兴地回应到：对，我们这些好人在灭掉坏人！
+Robin接着说：对，那就是我们想要的，所以我们一定要赢，我们要让世界上的每个人都幸福！
 
-撰稿：喜马拉雅的肉夹馍；
+Robin的想法代表着无数好人的心声，和我们新中国联邦人的目标完全一致。迄今为止，无数与我们前线战友交流过的人，无论是一个个的志愿者，或者是来到此地的绝大多数的世界媒体，或者是乌克兰难民，他们都知道：中共是邪恶的政权，必须推翻，而且要彻底消灭，还世界以和平。
 
-审核：喜马拉雅的馍夹肉；
+发布：Candy
 
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)**
 
  
 

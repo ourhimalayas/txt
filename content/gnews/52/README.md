@@ -2,24 +2,41 @@
 ---
 
 
-## 樱花时政┃美英新制裁：打击俄罗斯科技与经济部门
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2268622/)
+## 俄乌战争｜美国务院呼吁 美国公民应立即离开俄、乌
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2269633/)
 
-撰稿：东京樱花团/上善若水
+**港台前线** **zhong｜2022-4-1**
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Music-Clip-1.png)
+美国国务院3月29日发布旅行建议，称俄罗斯恐“拘留在俄罗斯的美国公民”，要求美国公民不要前往俄罗斯。同时也表示，“美国大使馆协助在俄罗斯的美国公民的能力有限”，呼吁仍在俄罗斯居住或旅行的美国公民应立即离开。
 
-俄军对乌发动侵略战争，遭到西方国家多轮制裁。美国与英国推出新一轮制裁，锁定俄科技与经济部门。美国及其欧洲盟友表示，制裁行动进入新阶段，将加强执法和封堵漏洞。美财长耶伦说：“将继续对普京的战争机器进行全方位地制裁，直到战争结束。”据美国财政部表示，针对“俄政府有害境外活动”的制裁也将适用于俄的航空航天、海事和电子行业，从而能够把这些领域的任何公司或个人列入黑名单。
+国务院发言人内德·普莱斯（Ned Price）于记者会上表示“**我们更新了旅行建议，我们重申，所有在俄罗斯、乌克兰的美国公民都应该立即离开。**”理由是因为俄罗斯无理由入侵乌克兰，俄罗斯国安人员恐特别针对在俄罗斯的美国公民，对其恣意/非法拘留、滥权行使当地法律等方式骚扰美国公民，甚至限制美国公民进出俄罗斯的航班等。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-1.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp8.itc.cn%2Fq_70%2Fimages03%2F20220226%2F188c8223f8c54de3bd4931dff08a463e.png&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F525632736_220095&amp;tbnid=yVQGSgyS28oZRM&amp;vet=12ahUKEwjmhKuPzPL2AhUP0OAKHXDNA24QMygEegUIARCNAQ..i&amp;docid=AXwVU-T7bECdlM&amp;w=1080&amp;h=608&amp;q=%E7%BE%8E%E8%8B%B1%E6%96%B0%E5%88%B6%E8%A3%81%EF%BC%9A%E6%89%93%E5%87%BB%E4%BF%84%E7%BD%97%E6%96%AF%E7%A7%91%E6%8A%80%E4%B8%8E%E7%BB%8F%E6%B5%8E%E9%83%A8%E9%97%A8&amp;ved=2ahUKEwjmhKuPzPL2AhUP0OAKHXDNA24QMygEegUIARCNAQ)
 
-据称，俄正试图利漏洞来规避制裁。填补制裁漏洞将强化对俄经济和金融施压的威力。这些制裁措施将冻结目标公司或个人在美国管辖范围内持有的所有资产，并禁止美国实体与目标公司、个人有业务往来。一旦违反禁令，这些实体面临制裁。英国也宣布对14个俄实体实施新制裁，其中包括俄官方媒体以及俄国防部官员。
 
-信息来源：
+> BREAKING: US State Department urges American citizens to depart Ukraine and Russia immediately
+> — Jack Posobiec 🇺🇸 (@JackPosobiec) [March 31, 2022](https://twitter.com/JackPosobiec/status/1509611777549549572?ref_src=twsrc%5Etfw)
 
-[美英新制裁：打击俄罗斯科技与经济部门](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220401-%E7%BE%8E%E8%8B%B1%E6%96%B0%E5%88%B6%E8%A3%81-%E6%89%93%E5%87%BB%E4%BF%84%E7%BD%97%E6%96%AF%E7%A7%91%E6%8A%80%E4%B8%8E%E7%BB%8F%E6%B5%8E%E9%83%A8%E9%97%A8)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+此外，美国务院强调应尽快安排离开俄罗斯，美国大使馆的作为在当地受到严重限制，且美国信用卡、借记卡在俄罗斯不再有效，俄罗斯银行在制裁下，从美国已电子方式转移资金的选择极为有限，有报导称俄境内现金短缺。
+
+交通部分，国际制裁俄罗斯之下，越来越多航空公司取消进出俄罗斯的航班，且俄罗斯当地已有部分机场关闭。目前仍有部分航班、大众交通运输可供选择，惟情势恐突然更加严峻，因此美国务院呼吁在俄罗斯的美国公民离开俄罗斯前往另一个国家，若有需要得联系当地美国大使馆或领事馆获得紧急援助。
+
+考量到持续的武装冲突，国务院强烈建议美国公民不要以陆路前往乌克兰。此外，俄罗斯可能通过专门针对外国人的法规，或进行其他骚扰行为。俄罗斯安全部门亦有可能通过虚假指控来非法逮捕美国公民，或拘禁美国公民，并秘密审判或在没有实质证据下将他们定罪。美国奥运女篮金牌好手格琳娜（Brittney Griner）在今年2月17日，因涉嫌携带含有“大麻油”的电子烟油盒，于莫斯科机场被捕。被拘留长达1个月后，美国外交人员才获准探视她。据悉，俄罗斯法院上周将格琳娜的拘留期延长到5月19日，最严重恐被判10年有期徒刑。
+
+此外，俄羅斯國安部門正在加強當地法律，用來針對他們認為「不受歡迎」的外國和國際組織，建議美國公民應避免前往俄羅斯參加非政府組織工作。
+
+俄罗斯恐对美俄双重国籍人士实施特殊限制，并拒绝承认其美国国籍身分，阻断获得美国领事馆协助其离开俄罗斯的可能。
+
+来源｜[美国国务院](https://travel.state.gov/content/travel/en/international-travel/International-Travel-Country-Information-Pages/RussianFederation.html)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

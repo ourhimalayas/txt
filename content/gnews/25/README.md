@@ -2,45 +2,48 @@
 ---
 
 
-## 欧洲对美国天然气的需求加快了两个新的液化天然气项目
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278270/)
+## 辉瑞第二针六个月后17岁男孩“在睡梦中突然死亡”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278318/)
 
-翻译：Jenny Ball
+编译： Jenny Ball
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-29-edited.png)森普拉能源总部， 2018 年 5 月 17 日在美国加利福尼亚州圣地亚哥市中心拍摄。
-路透社REUTERS/麦克·布雷克Mike Blake
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-30-edited.png)图片来源：childrenshealthdefense.org
 
-休斯顿，4 月 1 日（路透社）——由于俄罗斯威胁要削减对欧洲的能源供应，推高了对超冷燃料的需求和价格，美国的两个液化天然气 (LNG) 项目在本周启动方面迈出了重要一步。
+美国疾病控制与预防中心 (CDC) 今天发布的新数据显示，在 2020 年 12 月 14 日至 2022 年 3 月 25 日期间，共有 1,205,755 份 COVID 疫苗后的不良事件报告提交给疫苗不良事件报告系统 (VAERS) 。 VAERS 是美国政府资助的主要用于报告疫苗不良反应的系统。
 
-开发商森普拉能源( Sempra Energy )和新堡垒能源公司(New Fortress Energy) 就单独的项目达成协议，其中一个项目可能在 12 个月内生产液化天然气。这些工厂通常需要签订约 85% 产量的长期合同才能启动，并且需要数年才能完成。
+数据包括在同一时间段内共有 26,396 例死亡报告——比前一周增加了 337 例——以及包括死亡在内的 214,521 例重伤报告——与前一周相比增加了 2,937 例。
 
-但客户需求的增长，尤其是欧洲客户的需求，促使新堡垒能源公司决定，用自己的资金投资，在路易斯安那州沿海建造一座年产 280 万吨的工厂。
+排除 VAERS 的“外国报告”，2020 年 12 月 14 日至 2022 年 3 月 25 日期间，美国报告了 799,732 起不良事件，包括 12,103 人死亡和 78,227 人重伤。
 
-新堡垒能源公司首席执行官韦斯·埃登斯 (Wes Edens) 表示：“世界上的天然气供需已经严重失衡。随着欧洲迫切需要减少对俄罗斯天然气的依赖，加快在美国生产液化天然气的发展速度至关重要。”
+截至 3 月 25 日，美国报告的 12,103 例死亡病例中，
 
-俄罗斯总统普京要求外国买家，从周五开始以卢布支付俄罗斯天然气，否则，将削减供应，欧洲各国首都拒绝了这一举动，德国称其相当于“敲诈”。
+- 17% 发生在接种疫苗后 24 小时内，
+- 21% 发生在接种疫苗后 48 小时内，
+- 59% 发生在接种疫苗后 48 小时内出现症状的。
 
-上周，拜登政府表示，美国的目标是，今年向欧洲买家额外供应 150 亿立方米的液化天然气，并在2030年前提供500亿立方米的液化天然气，以替代俄罗斯的天然气进口，因为西方试图惩罚莫斯科入侵乌克兰。
 
-风险降低
+从历史上看，**VAERS 仅报告了实际疫苗不良事件的 1%。**
 
-去年，大约十几家液化天然气开发商表示，他们的目标是，就他们的项目做出最终投资决定。但只有森普拉(Sempra) 位于墨西哥下加利福尼亚州“蔚蓝海岸能源公司”(Energia Costa Azul )液化天然气接收站在过去两年开始建设。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-21.png)图片来源：childrenshealthdefense.org
 
-周四，森普拉达成初步协议，向法国“全能”( Total Energies )供应来自墨西哥的第二个项目“维斯塔太平洋液化天然气”( Vista Pacifico LNG )的天然气。根据协议，“全能”将收购 16.6% 的股份，并占 4 MTPA 工厂出口产量的约三分之一。
+最近的死亡事件是一名来自佐治亚州的 17 岁男孩（VAERS I.D. 2189006），他在接种第二剂辉瑞 COVID 疫苗六个月后“在睡梦中突然死亡”。男孩进行了尸检，但没有透露结果。他没有潜在的健康状况。
 
-伍德·麦肯兹咨询公司(Wood Mackenzie) 的天然气分析师亚历克斯·芒顿（Alex Munton） 表示，天然气价格预测足够强劲，如果工厂能够在未来几年内开始运营，则值得承担风险。
+**莫德纳仍在权衡为6 岁以下儿童注射**
 
-“我们继续看到对我们的液化天然气开发项目的巨大兴趣”森普拉发言人帕蒂·奥尔特加·米切尔（Paty Ortega Mitchell） 说。
+上周，莫德纳表示，在宣布其两剂疫苗方案将 6 个月至 2 岁儿童的症状性疾病病例减少 43.7% 和儿童减少 35.7% 后，它将为2-6岁的 COVID-19 儿科疫苗寻求紧急使用授权 (EUA) 。
 
-新闻来源：[Europe’s appetite for U.S. gas fast-tracks two new LNG projects](https://www.reuters.com/business/energy/europes-appetite-us-gas-fast-tracks-two-new-lng-projects-2022-04-01/)
+多位专家对 COVID 疫苗对严重疾病风险在统计学上不显着的年龄组的风险效益比，提出了质疑。
+
+截至 3 月 18 日，美国已接种 5.59 亿剂 COVID 疫苗，其中包括 3.3 亿剂辉瑞、2.1 亿剂莫德纳和 1900 万剂强生。
+
+新闻来源：[17-Year-Old Died ‘Suddenly in Sleep’ 6 Months After 2nd Pfizer Shot](https://childrenshealthdefense.org/defender/17-year-old-died-6-months-after-2nd-pfizer-shot/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=2f216e94-723c-4f05-8ce5-43736c97f2bd)
 
 * * *
 
-素材： peacelv
 审核：文乐
 校对：阿伯塔
 发布：五通庙
@@ -51,7 +54,7 @@
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3.jpeg)
 
  
 

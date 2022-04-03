@@ -2,49 +2,33 @@
 ---
 
 
-## COVID-19疫苗副作用集萃
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2279285/)
+## 台湾｜台美于华府进行实体会谈 为扩大台湾国际参与
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279381/)
 
-#### 整理：禄森
-编辑：李易通
+**港台前线 zhong｜2022-4-3**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国在台协会（AIT）和驻美国台北经济文化代表处（TECRO）邀集美国国务院和台湾外交部的高阶代表，3月31日在华府针对扩大台湾参与联合国和其他国际论坛进行协商。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-183.png)图片来源：雅典娜设计组
+
+> On March 31, 2022, the American Institute in Taiwan (AIT) and the Taipei Economic and Cultural Representative Office (TECRO) convened high-level representatives of the U.S. Department of State and the Taiwan Ministry of Foreign Affairs for consultations in Washington on expanding **Taiwan’s participation at the United Nations and in other international fora**.
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+美国国务院新闻稿称，本次所有与会者都认识到，应该与那些关注台湾被排除在国际社会外的盟友紧密合作，推动台湾参与国际组织的可能性。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%2525E5%252589%2525AF%2525E4%2525BD%25259C%2525E7%252594%2525A8%2525E9%25259B%252586%2525E8%252590%252583/)
+台湾外交部新闻稿表示，本次会议议题涵盖公共卫生、民航安全、打击跨国犯罪、经济合作及民主治理等，外交部感谢美国对台湾的坚定友谊与支持。美国于会议中重申将继续支持并协助台湾拓展国际空间及对全球关注议题作出更多专业贡献，台湾外交部代表人员，强调台湾将拓展国际参与，共同维护以规则为基础的国际秩序并强化多边治理及区域合作。
 
-疫情**|**新冠疫苗副作用**    **
+## 5月世界卫生大会
 
-连续六个月，每个月定时癫痫一次，经期紊乱
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-229.png)
-好多人说打完新冠疫苗会有神奇的副作用，一个德国朋友的男朋友，从打完疫苗那个月开始，连续六个月每个月定时癫痫一次，是突然失去意识倒在地上抽搐那种。全身检查了两次找不到原因，关键是他的家族和以前的自己都没有类似的问题。
+本次与美国的会议，其一重点为“台湾作为观察员参与五月的世界卫生大会（WHA）”。据了解，丹麦国会3月31日以103票赞成、0票反对、0票弃权的压倒性票数通过支持立陶宛及台湾参与世界卫生大会（WHA）决议文，该决议文对立陶宛与中共之间的危机表示关注，呼吁丹麦与欧盟团结一致支持立陶宛，并吁请丹麦政府协同欧盟在欧中关系及相关国际场域提高对中共的压力，让台湾获得世界卫生大会观察员地位。
 
-而我从打完疫苗那个月开始，姨妈神奇的变正常了。之前一年，月经周期都是40-50天以上的，从疫苗打完之后那个月开始到现在，月经周期都是30多天，而且来的时候也没有之前那么痛。这个我也打算归为神奇的副作用，虽然也没有证据证明。
+该决议文在丹麦国会辩论中获跨党派议员先后发言支持。
 
-图片来源：微博
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97643)、[Taiwan Working Group Meeting on International Organizations (IO Talks)](https://www.state.gov/u-s-taiwan-working-group-meeting-on-international-organizations-io-talks-2/)
 
-评论精选：
+* * *
 
-uu悠悠小巫回复:你打的什么公司的疫苗？
-
-阿坚见怪不怪回复 :Biotech.
-
-杀死朽木回复:癫痫也太吓人了吧？
-
-阿坚见怪不怪:是的，后来神奇的6个月之后他的癫痫就不发作了。去医院检查抗体水平仍然有80%+，超乎常人水平。
-
-我爱洗澡澡2001回复:听你这么一说，我也是这样。打了疫苗姨妈正常了，而且不痛。
-
-参考链接： [连续六个月，每个月定时癫痫一次，经期紊乱](https://m.weibo.cn/status/4753457305880468)
-
-发布：Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

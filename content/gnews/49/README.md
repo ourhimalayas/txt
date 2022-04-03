@@ -2,25 +2,33 @@
 ---
 
 
-## 疫苗灾难｜香港女星接种疫苗后患免疫系统疾病 严重可致双眼失明
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2272628/)
+## 俄乌战争｜俄军中辐射逃离切尔诺贝利 IAEA率团前往援助
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2273694/)
 
-**图/文｜CP**
+**图/文｜CP **
 **发布时间｜02/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/香港女星接種疫苗後患免疫系統疾病-嚴重可致雙眼失明.jpg)
-香港TVB重头剧《金宵大厦2》开播在即，女主角李施嬅日前突然在IG拍片透露自己患上重疾，正接受治疗，无法出席新剧宣传活动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄軍中輻射逃離切爾諾貝利-IAEA率團前往援助.jpg)
 
-虽然她称自己的患病时间是在去年9，10 月份，并自此就停止工作，专心接受治疗，不过根据她IG的纪录来看，她在一个月前，即今年2月28日，她还精神奕奕的接种了新冠疫苗加强剂。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_20220402-103834_Instagram-2-scaled.jpg)
 
-李施嬅在接受电话访问时透露自己被确诊患上自身免疫性疾病（Autoimmune disease），最严重的时候，心跳加速、手抖、消瘦、甚至被查出患有甲状腺疾病，经过治疗后，目前，其他症状已得到缓解，惟视力仍受到很大影响，每星期都要接受类固醇注射治疗。
+国际原子能机构（IAEA）负责人格罗西（Rafael Grossi）周五（1日）表示，他将会率领团队前往切尔诺贝利（Chernobyl）核电厂，以协助确保当地核设施安全，并于加里宁格勒与俄罗斯高级官员举行会谈。
 
-来源｜[李施嬅YouTube](https://youtu.be/vPOYQVzywDg)
+乌克兰国家核电公司（Energoatom）日前证实，所有占领切尔诺贝利核电厂的俄罗斯士兵已经完全撤离。负责管理禁区的 Energoatom 员工表示，目前核电厂“已无外来人”，俄军撤离后向白罗斯方向进发，该员工还提供了俄方和核电厂签订的协议，显示俄罗斯同意将核电厂管理权交还。
+
+另外，Energoatom还证实，早前俄军在未有防辐射装备的情况下，于高辐射区挖战壕，导致不少士兵身体出现疑似受辐射感染的症状，造成军心大乱，“士兵之间几乎开始酝酿暴动”，不久后俄军就陆续撒走。
+
+路透社本周一引述核电厂工作人员指，亲眼目睹俄军士兵不穿防护衣，驾车穿过辐射污染最严重的“红森林”（Red Forest）区，当时工作人员就很担心军车驶过所扬起的放射性尘埃会被士兵吸入体内，发生内放射反应。
+
+红森林位于基辅以北约100公里的地方，切尔诺贝利核电厂1986年发生核灾时，该地数十平方公里的松树因吸收了大量辐射后而变红，因此得名“红森林”，它被认为是世界上最严重的核灾区之一，由于高度污染，甚至连核电厂的员工都不被允许进入。
+
+俄军在入侵乌克兰后一度占领切尔诺贝利，IAEA多次要求俄乌双方召开紧急会议商定协议，以确保核设施安全，惟一直不获俄方重视。
+
+來源｜[路透社](https://www.reuters.com/world/europe/iaeas-grossi-says-will-head-mission-chernobyl-soon-possible-2022-04-01/)、[Ukrinform](https://www.ukrinform.net/rubric-ato/3444941-russian-invaders-leaving-chornobyl-npp-energoatom.html)
 
 * * *
 
-**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

@@ -2,11 +2,11 @@
 ---
 
 
-## 新中国联邦人代表和平的、正义的、公益的、有爱心（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279312/)
+## 给中国人一个机会，中国人做的会很好（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279387/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-850-856-2_2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-856-900-3.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

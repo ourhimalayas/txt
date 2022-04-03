@@ -2,30 +2,27 @@
 ---
 
 
-## 援乌营地：军人本色 大放光彩
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277917/)
+## 有声|单分子集成生物传感器推动分子电子学新发展
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2278145/)
 
-**——我们是消灭邪恶中国共产党的新中国联邦人**
+录音：香草山文艺部 – maggie 喵
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+一家位于美国圣地亚哥的初创公司，正在致力于将单分子集成到电子生物传感器电路中，并希望这种方法可以提供一种廉价和方便的方法来检测病毒，发现环境毒素，或实时评估药物的效果。
 
-**作者、编辑：Candy**
+有学者在2000年时曾预言，分子电子学将超越硅基电路，使计算机芯片不断变得更密集、更强大。今年1月，美国国家科学院院刊报道了一项重大进展：一套16000个功能性分子生物传感器与半导体芯片的电路实现完全集成。这表明，这些芯片可以使用现有的制造方法以商业规模制造。
 
-波兰时间4月2日，新中国联邦和法治基金驻波兰梅迪卡国际人道救援中心营地的Nicole战友传来视频。一位比利时的退役军人，也是来到该救援中心的志愿者，与Nicole战友在片中的对话虽短，但非常精彩。
+原文链接：[单分子集成生物传感器推动分子电子学新发展](https://gnews.org/zh-hans/2276983/)
 
-他叫Robin，非常喜爱我们营地的大帐篷和钢琴演奏，他已经拍了照片，而且很高兴看到我们新中国联邦人在这里服务。不愧是曾经服役过的军人，思维敏捷，讲话很快，言简意赅，涉及几个方面。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-当Nicole问他如何看待印制在我们马甲上的口号“消灭邪恶的中国共产党”时，他兴奋地以挥动着双拳来加重语气说：我太喜爱它了，因为你们在这里代表着好人，你们是好人！
-Niocle高兴地回应到：对，我们这些好人在灭掉坏人！
-Robin接着说：对，那就是我们想要的，所以我们一定要赢，我们要让世界上的每个人都幸福！
+音频处理/发稿：Daxia
 
-Robin的想法代表着无数好人的心声，和我们新中国联邦人的目标完全一致。迄今为止，无数与我们前线战友交流过的人，无论是一个个的志愿者，或者是来到此地的绝大多数的世界媒体，或者是乌克兰难民，他们都知道：中共是邪恶的政权，必须推翻，而且要彻底消灭，还世界以和平。
-
-发布：Candy
-
-**更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)**
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
