@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 12:55 PM (UTC)`
+
+2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密
+![img](https://media.gettr.com/group47/origin/2022/04/03/12/f92a10b1-fc13-822a-905e-e5fc59ecb474/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 12:19 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月2日第29天当日救援统计：<br/>Medyka救援站接待：约273人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8657人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 29 - Date: April 2, 2022 :<br/>Medyka Rescue Station Reception: about 273 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8657 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -153,13 +160,6 @@ The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iro
 
 2022-4-2《避风港》(31) 疫苗接种者占病毒死亡人数接近95%
 ![img](https://media.gettr.com/group19/origin/2022/04/02/18/832e0d7b-238d-3630-ef11-2c982f0aab86/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 5:45 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group50/origin/2022/04/02/17/bbfe5c04-8d7a-c06b-a506-ae57b65c3ce3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

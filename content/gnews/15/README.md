@@ -2,49 +2,27 @@
 ---
 
 
-## 新西兰：两名医生因反对接种COVID-19疫苗而被吊销行医执照，该决定被法院驳回
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2279901/)
+## 疫情｜台湾连3日确诊破百例 3月中早发现“XE”病毒株
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279917/)
 
-撰稿人：Lois
-翻译：一根筷子
+**疫情关注组 zhong｜2022-4-3**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company.png)▎关注疫情真相、 光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+据疫情指挥中心数据，台湾已连续三天本土确诊破百例，今 （3日）本土新增183例，远高于境外移入97例。台湾疫情持续延烧，发生多条不明感染源，若达到无法匡列来控管的程度，主管机关并未透漏是否推行（强制性）普筛或疫苗隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+一位受匡列正在进行自主健康管理的人士向疫情关注组透漏，台湾政府的检测量能似乎难以负荷，与他同行的友人遭匡列的时间出现数日的误差。台湾政府目前仍以疫苗、隔离为主要防疫措施，且XE变种病毒已在3月被检测出一例境外移入，台湾疫情走向值得密切关注。
 
+## 3月中 发现“XE”入侵台湾
 
+继英国出现Omicron亚种混合毒株“XE”后，台湾于4月2日亦通过防疫记者会公布称，台湾在 3 月 18 日曾验出 1 例确染 XE 的境外移入个案（自捷克入境/女性），落地采检阳性，Ct 值仅有 15 ，病毒量偏高，但无症状。
 
+台湾媒体引述英国资料表示， XE 传播速度推测比 BA.2 高出 9.8 %，但目前致病性还没有明确的结果。XE是否会引发台湾新一波疫情，由于国际仍对XE不了解，因此待观察。
 
+来源｜[HEHO](https://heho.com.tw/archives/212799)
 
+* * *
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-239.png)图片：JohnLocher/AP
-
-前放射科医生Dr. Canaday和GP Dr. Matthew Shelton 因为反对COVID-19疫苗而被吊销行医执照。他们向法庭提交了诉讼，如今赢得了地区法庭的上诉。
-
-据报告称，这两位医生在收到了一些关于这两位医生给一些病人警告慎重考虑接种疫苗的建议之后收到了投诉，新西兰医疗法庭吊销了他们的行医执照。
-
-关于Mr. Canaday的投诉是他是一名“草根组织”的成员和反强制疫苗组织“自由之声”的成员，并提到过政府对COVID-19的副作用一直在撒谎。
-
-而另一边，Mr. Shelton向600名患者发送了短信，警告有生育能力并且有打算怀孕的人群和孩子不要接种这个实验性的病毒疫苗。
-
-具报告称，他曾跟一位患者说，新西兰总统阿登伪造了她的疫苗记录，还有另外一位患有天先性免疫者失调的患者告诉她Mr Shelton建议她最好不要接种疫苗。
-
-但是，Stephen Harrop法官周五在地区法庭的裁决宣布，医学法庭在等待完全的调查结果出来之前错误的吊销了这两位医生的行医执照。
-
-Harrop法官表示这两位医生应该有更多的机会来签署自愿调查和限制他们的在公开场合的声明。
-
-“Mr Shelton非常有可能在将来很长一段事件内无法从事他的职业，这可能超过健康从业者纪律法庭最终施加的任何处罚，哪怕指控已经提出并得到证明。
-
-地区法庭法官还称吊销执照是一个严厉的步骤。
-
-“对一个自愿承诺适当目标群体限制性小得多的群体做出临时措施来衡量可能更有利于该地区政府的目标，以保护公众免于受到伤害。
-
-医疗法庭还暂未决定是否向该地区法庭提出上诉。
-
-新闻链接：
-[Doctors suspended over anti-vax claims win court appeals](https://www.rnz.co.nz/news/national/464442/doctors-suspended-over-anti-vax-claims-win-court-appeals)
-
-**审核校对：玫瑰天空
-上传排版：V在途中**
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

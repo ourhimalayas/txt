@@ -2,30 +2,30 @@
 ---
 
 
-## 国际｜无惧普京威胁 波罗的海三国率先放弃俄罗斯天然气
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279890/)
+## 【G叻睇真D】中共国党卫军为即将全面攻台作好准备
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2279891/)
 
-**图/文｜CP**
-**发布时间｜03/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/無懼普京威脅-波羅的海三國率先放棄俄羅斯天然氣-2.jpg)
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+据《台湾新闻》3月31日报道，在美国和菲力宾两国日前在靠近台湾的菲律宾北部海域进行了大规模联合军演之后，多架中共军机当天再次擅闯台湾防空识别区。目前，中共的这种挑衅行为在俄乌战争爆发后，已愈演愈烈。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+据悉，在本次入侵的11架中共军机中，有两架轰炸机进入台南防空识别区的东南角，而另一架空警机携八架战斗机则闯入了西南角。
 
+在2021年的239天内，中共至少出动961架次军机寇入台湾防空识别区，试图通过“准入侵”战术手段，在不直接动武的情况下，恐吓台湾当局并拖垮台军士气，以此打破台海现状，并为即将全面攻台作好准备。
 
-俄罗斯因入侵乌克兰而遭多国经济制裁，令俄罗斯无法以美元进行交易。俄罗斯总统普京（Vladimir Putin）3月31日作出威胁，要求对俄“不友好国家和地区”的公司在俄罗斯银行开设卢布户口，以支付天然气费用，否则将中止现有合约并切断供应。
-
-拉脱维亚天然气输送和储存营运商Conexus Baltic Grid行政总裁巴里斯（Uldis Bariss）4月2日表示，自4月1日起，俄罗斯的天然气已经不再输入波罗的海三国（即拉脱维亚、爱沙尼亚和立陶宛），而当地市场的需求目前由拉脱维亚地下储存的天然气供应。
-
-立陶宛总统瑙塞达（Gitanas Nauseda）同日表示，为了与“侵略者”断绝能源联系，立陶宛不再使用俄罗斯天然气，并强调如果立陶宛做得到，欧洲其他国家亦能做到，暗示希望欧盟各国跟随其步伐。
-
-美国早前已禁止俄罗斯的石油和天然气进口，惟欧盟的天然气供应有约40%来自俄罗斯，因此要摆脱对俄罗斯的能源依赖并非易事。
-
-来源｜[Aljazeera](https://www.aljazeera.com/news/2022/4/3/baltic-states-stop-russian-gas-imports-over-ukraine-invasion)
-
+编辑/上传：一叶
+盖特链接：[https://www.gettr.com/post/p139xs7bf0f](https://www.gettr.com/post/p139xs7bf0f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

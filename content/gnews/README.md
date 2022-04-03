@@ -15,106 +15,106 @@
 
 ---
 
-### [秘翻在线：韩国中共病毒（COVID-19）新增确诊23万4千301例，死亡病例306例，危重病例1千128例](/content/gnews/1/README.md)
+### [大直播后记：良知是人性当中的本能](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [秘翻在线：韩国中共病毒（COVID-19）新增确诊23万4千301例，死亡病例306例，危重病例1千128例](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共攻击台湾的思考：服从还是毁灭](/content/gnews/2/README.md)
+### [中共攻击台湾的思考：服从还是毁灭](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：波兰批评德国“对俄罗斯友好”](/content/gnews/3/README.md)
+### [秘翻在线：波兰批评德国“对俄罗斯友好”](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联合国难民事务高级专员呼吁立即结束俄乌战争](/content/gnews/4/README.md)
+### [联合国难民事务高级专员呼吁立即结束俄乌战争](/content/gnews/5/README.md)
  ` topnews`
 
-### [COVID-19疫苗副作用集萃（2022.4.3）&#8211;接种新冠疫苗后嗜睡记忆力减退](/content/gnews/5/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.3）&#8211;接种新冠疫苗后嗜睡记忆力减退](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本｜日本外岛夜空惊现地鸣闪光 忧与俄实弹演习有关](/content/gnews/6/README.md)
+### [日本｜日本外岛夜空惊现地鸣闪光 忧与俄实弹演习有关](/content/gnews/7/README.md)
  ` 關注組`
 
-### [中共在所罗门群岛的军事基地对澳大利亚意味着什么？](/content/gnews/7/README.md)
+### [中共在所罗门群岛的军事基地对澳大利亚意味着什么？](/content/gnews/8/README.md)
  ` topnews`
 
-### [乌克兰战争：布查街头发现多具尸体](/content/gnews/8/README.md)
+### [习近平牛了，竟在通话中警告拜登](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰战争：布查街头发现多具尸体](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [参议员呼吁禁止美国政府人员使用中国的乘车软件](/content/gnews/9/README.md)
+### [参议员呼吁禁止美国政府人员使用中国的乘车软件](/content/gnews/11/README.md)
  ` topnews`
 
-### [美国不会放松对中国技术出口限制](/content/gnews/10/README.md)
+### [美国不会放松对中国技术出口限制](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [韩国当选总统尹锡悦率团启程出访美国](/content/gnews/11/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [上海某小区志愿者上门做核酸发现老人死在床上](/content/gnews/12/README.md)
+### [上海某小区志愿者上门做核酸发现老人死在床上](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墙内人喊出“打倒共产党，打倒习近平”](/content/gnews/13/README.md)
+### [墙内人喊出“打倒共产党，打倒习近平”](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疫情｜台湾连3日确诊破百例 3月中早发现“XE”病毒株](/content/gnews/14/README.md)
+### [疫情｜台湾连3日确诊破百例 3月中早发现“XE”病毒株](/content/gnews/15/README.md)
  ` 關注組`
 
-### [新西兰：两名医生因反对接种COVID-19疫苗而被吊销行医执照，该决定被法院驳回](/content/gnews/15/README.md)
+### [新西兰：两名医生因反对接种COVID-19疫苗而被吊销行医执照，该决定被法院驳回](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【G叻睇真D】中共国党卫军为即将全面攻台作好准备](/content/gnews/16/README.md)
+### [【G叻睇真D】中共国党卫军为即将全面攻台作好准备](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [国际｜无惧普京威胁 波罗的海三国率先放弃俄罗斯天然气](/content/gnews/17/README.md)
+### [国际｜无惧普京威胁 波罗的海三国率先放弃俄罗斯天然气](/content/gnews/18/README.md)
  ` 關注組`
 
-### [巴西放宽对国际旅行者的Covid相关限制](/content/gnews/18/README.md)
+### [巴西放宽对国际旅行者的Covid相关限制](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [一则备忘录显示美国政府知晓中共病毒来自武汉](/content/gnews/19/README.md)
+### [一则备忘录显示美国政府知晓中共病毒来自武汉](/content/gnews/20/README.md)
  ` 银河歌舞厅`
 
-### [中共通过俄罗斯出口欧洲的计划遭遇重创](/content/gnews/20/README.md)
+### [中共通过俄罗斯出口欧洲的计划遭遇重创](/content/gnews/21/README.md)
  ` 银河歌舞厅`
 
-### [爆料革命能成功的三个条件:以美灭共､依法灭共､以共灭共](/content/gnews/21/README.md)
+### [爆料革命能成功的三个条件:以美灭共､依法灭共､以共灭共](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本制裁俄罗斯，同时接纳乌克兰难民](/content/gnews/22/README.md)
+### [日本制裁俄罗斯，同时接纳乌克兰难民](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [乌克兰 &#8220;基乌州全境获得解放&#8221;， 280具遗体被掩埋](/content/gnews/23/README.md)
+### [乌克兰 &#8220;基乌州全境获得解放&#8221;， 280具遗体被掩埋](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [核酸检测阳性让母子分离，上海极端防疫措施惹发民怨](/content/gnews/24/README.md)
+### [核酸检测阳性让母子分离，上海极端防疫措施惹发民怨](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [联合国宣布也门斋月开始停火两个月](/content/gnews/25/README.md)
+### [联合国宣布也门斋月开始停火两个月](/content/gnews/26/README.md)
  ` 波士顿五月花农场金融部`
 
-### [泽伦斯基警告说，俄军队在撤退时留下陷阱](/content/gnews/26/README.md)
+### [泽伦斯基警告说，俄军队在撤退时留下陷阱](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连斯基解雇了乌克兰特勤局 SBU 的两名将军](/content/gnews/27/README.md)
+### [泽连斯基解雇了乌克兰特勤局 SBU 的两名将军](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花头条┃美国宣布史上最大石油储备释放计划](/content/gnews/28/README.md)
+### [樱花头条┃美国宣布史上最大石油储备释放计划](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【乌克兰救援】 战地钢琴家用实际行动支持新中国联邦](/content/gnews/29/README.md)
+### [【乌克兰救援】 战地钢琴家用实际行动支持新中国联邦](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [樱花头条┃百度等中企被列入SEC黑名单 或面临退市](/content/gnews/30/README.md)
+### [樱花头条┃百度等中企被列入SEC黑名单 或面临退市](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾｜台美于华府进行实体会谈 为扩大台湾国际参与](/content/gnews/31/README.md)
+### [台湾｜台美于华府进行实体会谈 为扩大台湾国际参与](/content/gnews/32/README.md)
  ` 關注組`
 
-### [到底世界上有多少核武器，谁在控制它们？——核武器统计上承认拥有大约13000枚核弹头，但是实际上可能更高](/content/gnews/32/README.md)
+### [到底世界上有多少核武器，谁在控制它们？——核武器统计上承认拥有大约13000枚核弹头，但是实际上可能更高](/content/gnews/33/README.md)
  ` 日本东京方舟农场`
 
-### [香港只能越来越坏&amp;联军将在三分钟内摧毁三万中共基地](/content/gnews/33/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [土耳其宜居&amp;黎巴嫩难确定&amp;国内要准备好最坏时刻的到来](/content/gnews/34/README.md)
+### [香港只能越来越坏&amp;联军将在三分钟内摧毁三万中共基地](/content/gnews/34/README.md)
  ` 喜马拉雅日本银河系农场`
 
 ### [澳大利亚研究出新型纳米涂层可增加锂电池寿命](/content/gnews/35/README.md)
