@@ -2,11 +2,11 @@
 ---
 
 
-## 秘翻组重要性（八）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2278444/)
+## 秘翻组重要性（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279012/)
 
-** PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：00-11：10-008.jpg)
+**PPT制作：WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：00-11：10-001.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

@@ -2,64 +2,48 @@
 ---
 
 
-## 教皇方济各首次在乌克兰问题上含蓄批评普京
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278401/)
+## 战友们最重要的精气神&amp;经济实力&amp;全球各种势力的协调力
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2278647/)
 
-翻译: 里奇
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8841.50%EF%BC%89%E6%88%91%E4%BB%AC%E6%9C%80%E4%BC%9F%E5%A4%A7%E6%97%B6%E5%88%BB%E4%BB%8A%E5%B9%B4%E5%B9%B4%E5%BA%95%E5%88%B0%E6%98%8E%E5%B9%B4%E5%B9%B4%E5%BA%95%2C%E9%82%AA%E6%81%B6%E8%80%85%E9%83%BD%E8%A2%AB%E7%96%AB%E8%8B%97%E5%B8%A6%E8%B5%B0%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:0)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
+**郭文贵先生：**那么我们现在最重要的战友是干什么的？把新中国联邦——我们增加实力，记住千万不要天真的想象，你在家里躺着——被窝里面，真理和公平、正义就发生在你生活中，不可能的。公平、真理和真相是在距离，其实在能力之间绝对平衡——而不是平衡——是绝对平衡。你的能力决定了真相、真理、公平离你有多远多近。
 
+特别是像现在我们在爆料当中无苗族，任何人记住，我们如果没有能力建造这个平台，没有能力把这个平台经营下去，你想想真相会离我们有多遥远，你们会不打针吗？是吧？战友们。
 
+第一条就像现在我们整个全球的农场，每个农场的表现绝对的，你看看在前线我们每个人，我们现在：文耀、文柯、文戈七雄、大卫、正义小Sarah、阿丙、大郭，所有的，你看我们的东南，我们的兄弟姐妹们，这所有人冲到前线的每个人。大家看到，都是一个全球农场的聚集，和刚刚马上又要到农场来，我们小李——美国小李就带着十几个人就去了，这就是整个新中国联邦人的精、气、神。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-edited.jpeg)图片来源于网络
+我们首先得有钱，你没钱去救什么援去？谁救你，弄不好就救你去了是吧？“路大脑袋”、“蛇妖闫”卖29美金的一个袋子的人，他能去救援吗？“蛇妖闫”一个眼科医生能到前线去，能炒10个黄鸡蛋？能给你救援吗？高冰尘那个长相能给你救援吗？还有那些伪类们？所以说大家记住我们是靠实力，没有钱你啥都别想。你有钱你要没有咱们大家能力、历史，还有媒体平台你去，在人家媒体上直播，分分钟给你封杀了，你能在那生存下去吗？
 
-瓦莱塔，4 月 2 日（路透社） – 教皇方济各在周六表示，一位“当权者”正在煽动民族主义利益的冲突，这是他迄今为止最接近于含蓄地批评总统弗拉基米尔·普京 (Vladimir Putin)。
+第三、如果没有整个全球的，各种势力的协调，我们救了人23架飞机哪来啊？可能安排了100架包机哪来啊？谁给你付钱？你甭说坐商务舱了，你坐飞机轮子的机会都没有。
 
-莫斯科表示，它于 2 月 24 日发起的行动是一项“特殊军事行动”，其目的不是占领领土，而是将其邻国非军事化和“去纳粹化”。方济各已经拒绝了这个术语，称其为战争。
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-“从欧洲东部，从日出之地，战争的黑暗阴影现在已经蔓延。我们曾认为其他国家的入侵，野蛮的巷战和原子威胁是对遥远过去的严峻回忆”， 教皇在抵达地中海岛国进行为期两天的访问后，向马耳他官员发表的讲话中如此表达。
+编辑整理：Jacques；
 
-“然而，冰冷的战争之风只会带来死亡、破坏和仇恨，它强力地席卷了许多人的生活，影响了我们所有人” 他说。
+字幕档制作：知津；
 
-“再一次，一些当权者不幸陷入了民族主义利益的不合时宜的主张，正在挑起和煽动冲突，而普通人则意识到有必要建立一个未来，要么共享，要么根本不共享” 他说。
+视频制作及上传：Cindy；
 
-方济各的声音很大，但他是坐着发表演讲。梵蒂冈发言人马泰奥·布鲁尼（Matteo Bruni）说，这是教皇 36 次出国旅行中第一次因膝盖突然疼痛迫使他使用货运电梯在罗马登机并在瓦莱塔下机——以避免“不必要的劳损”。
+G-News发布：海贼王M.D.LUFFY；
 
-教皇一瘸一拐地走进总统府，强烈谴责了他称之为“无理侵略”的战争，并谴责了战争中的“暴行”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-“战争之夜”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-但他只是在祈祷中直接提到了俄罗斯，比如在 3 月 25 日的一场特殊的全球和平活动中。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“现在，在降临人类的战争之夜，让我们不要让和平的梦想破灭！” 他周六说。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-他再次批评军火工业，并对二战后出现的和平热情消退表示苦恼，称利益和意识形态的冲突“在专制制度、新形式的帝国主义（和）广泛侵略的诱惑下重新出现。”
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-早些时候，在他的飞机上，一位记者问他是否正在考虑接受邀请访问基辅，教皇回答说：“是的，这事摆在桌面上”。他没有提供更多细节。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-方济各受到乌克兰总统泽连斯基、基辅市长维塔利·克里琴科、乌克兰拜占庭式天主教会的斯维亚托斯拉夫·舍夫丘克少校和乌克兰驻梵蒂冈大使安德烈·尤拉什的邀请。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-他与泽连斯基和舍夫丘克通了电话。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-方济各还谴责马耳他的腐败，在过去十年的大部分时间里，腐败、金融违规和裙带关系一直主导着该岛的政治叙事。
-
-“愿你们始终深植合法性和透明度，这将有助于根除腐败和犯罪” 他说。
-
-新闻来源:[Pope implicitly criticises Putin on invasion, considers Kyiv trip](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
-
-* * *
-
-审核：文乐
-校对:  阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+G-TV：日本银河系农场。
 
  
 
