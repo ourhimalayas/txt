@@ -2,22 +2,42 @@
 ---
 
 
-## 俄乌战争后的欧洲格局
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2281250/)
+## 实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281392/)
 
-**【郭先生直播摘要】****2022.3.27 ****俄乌战争后的欧洲格****局**
+编译：文斗
 
-**郭先生****：**
+在过去的几个月里，出现了一个令人担忧的趋势–人们的死亡速度前所未有，而这与Covid-19没有什么关系。
 
-这次在亚洲唤醒了日本，在欧洲唤醒了德国。就这一次德国的转变对世界政治战略，军事的版局跟日本是一样的。这两个超级的好战之国，一旦发动了战争和有了战争的这种动力的话，那是不能想象的，对世界的军事影响几乎可以说是，毫不夸张地说，三分天下。它一下子就把俄罗斯代替了。德国人要开始玩武器，因为德国现在有两个弱项，一个是网络科技，就通讯科技在世界，在欧洲最差的。第二个能源科技它是最差的，但是其他方面，严格讲，它喊第二没人敢喊第一的，它喊第一，后面喊第二的人都离它老远了。
+事实上，这一高峰几乎与实验性mRNA Covid疫苗推出完全吻合。
 
-这就是俄罗斯这次一下把这世界全改了，但是法国这些过去不往前，包括意大利也没怎么往前这些事。我告诉你法国这个国家，是一点希望都没有。在50年、100年以内，这个国家它已经病得已经是极左到了。现在它有两个问题是法国它不可能有未来的，它的整个对面有一个大英帝国，这个大英帝国现在在世界上两样东西，是法国永远没有的金融地位。由于是英文，由于是人家的整个英国大陆法。还有一个政府绝对是欧洲最清廉的政府，整个最清廉的政府英国， 法国再活一万万年它也做不到。
+正如Gateway Pundit[上个月报道](https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduced-video/)的那样，美国所有年龄段的超额死亡人数都在激增，尤其是25至44岁的年轻人。根据CDC的最新数据，这一特定群体的超额死亡人数增加了84%，创下了历史记录。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-43.jpg)
+毫不奇怪，这种令人担忧的趋势并不仅仅影响美国。
 
-钱向英国。这几个流氓政客，所谓的最好的德国政治家就是默克尔，就是能和俄罗斯能和中国勾兑，也和美国不翻脸，给德国争取利益，就是一个玩儿这个交易的高手默克尔。她是德国历史欧洲第一，但是就是默克尔，这种和稀泥的专业政客，才怂恿了共产党的习近平，怂恿了当年的马克龙，怂恿了俄罗斯以及包括波罗地海这五国。都成为了默克尔伟大政治时代的牺牲品，她就是欧洲的基辛格。美国的基辛格和欧洲的默克尔几乎是人类文明，几乎是现代过去，二战后文明当中犯下最大罪恶的两个人之一。
+世界各地的国家，特别是那些被认为是西方一部分的国家，都在经历超额的死亡率，其中大多数国家的死亡率高得惊人。
 
-在某种程度上，中国人要感谢基辛格。但是基辛格的绥靖主义和默克尔的调和叫平衡主义，我可以告诉你，这俩人在人类上是要在政治舞台上是要绝对被审判的。德国去默克尔化，去所谓的中立化，和骨子里边儿的那种又想脱裤子，还想给对方自己带上眼罩装作谁都看不见谁的样子，这个时代过去了，模糊时代过去了。
+我们的北方邻居加拿大在2021年7月31日至10月2日期间，最健康的加拿大人（0-44岁）死亡人数激增24%。
 
-视频剪辑：CG. | 听写：雨山溪桥客| 翻译： Arthur |校对：Tony J| 编辑：Quentin| 发布：文鸣
+值得指出的是，加拿大总理特鲁多在8月份强制要求工人接种疫苗，与超额死亡人数的激增完全吻合。
+
+通过马克西姆-博伊文（Maxim Boivin）[推文](https://twitter.com/MaximBoivin137/status/1482245009856475137?s=20&amp;t=EeGwcRHq7wl12ts5fbLBdg)可见：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-27.jpg)
+同样的趋势在欧洲也可以看到，绝大多数国家都经历了超额死亡人数的激增–除了几个明显的例外。
+
+如[下图](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1480265875580231687%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F04%2Fnot-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine%2F)所示，少数国家（如冰岛和瑞典）在整个大流行病期间没有完全参与破坏文明的封锁，现在的情况明显好于它们的欧洲同行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-14.jpg)
+
+
+谁能预料到这个结果？肯定不是SCiENcE（《科学》，学术期刊）。
+
+根据美国的最新数据，到目前为止，**千禧一代受超额死亡浪潮的打击最大–可能是因为打疫苗是他们保住工作的唯一途径**。
+
+最令人担忧的是，这种“令人不安”的趋势正在继续，甚至变得更糟。
+
+这场大流行病从来与拯救生命无关。恰恰相反，它可能是对立的（是扼杀生命）。
+
+新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
 
  
 

@@ -2,26 +2,35 @@
 ---
 
 
-## 五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281428/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281547/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-7.jpg)
-图片来源：谷歌图片
+作者：香草山翻译部
 
-《零对冲》四月三日报道：五角大楼的一名官员周五告诉国会，在乌克兰的数十个与美国有关的实验室中，没有任何一个具有“攻击性”生物武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
 
-负责核、化学和生物防御计划的助理国防部长黛博拉·罗森鲍姆 (Deborah Rosenbaum) 对众议院武装部队小组委员会说：“我可以毫不含糊地告诉你，在乌克兰实验室中没有美国参与的进攻性生物武器。” 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-1.png)
 
-五角大楼通过其降低国防威胁署（DTRA) 资助乌克兰的实验室。 根据五角大楼上个月发布的一份情况说明书，自 2005 年以来，美国已“投资”2 亿美元“支持 46 个乌克兰实验室、卫生设施和诊断站点”。
+文章仅代表作者本人观点，与Gnews无关
 
-莫斯科指责乌克兰在俄罗斯入侵时对五角大楼资助的秘密生物武器计划进行了紧急清理。 世界卫生组织表示，它建议乌克兰在入侵期间销毁“高威胁病原体”。
+视频参看：
+[2022.04.03早 《NFSC新闻》](https://www.gettr.com/streaming/p13cdp658c9)
+[2022.04.03早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13cemm3a50)
 
-就美国方面来说，他们坚持认为，在乌克兰和其他前苏联国家的计划是旨在减少前苏联遗留下来的生物武器的威胁。 五角大楼官员在淡化实验室威胁的同时，还警告说，它们仍可能包含苏联时代的生物武器。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-降低囯防威胁署合作减少威胁项目主任罗伯特·波普 (Robert Pope) 在 2 月份告诉《原子科学家公报》，这些实验室可能包含苏联生物武器，并警告说乌克兰的战斗可能导致危险病原体的释放。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
 
-原文链接：[https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons](https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons)
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
 
  
 

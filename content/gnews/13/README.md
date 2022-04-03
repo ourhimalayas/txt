@@ -2,20 +2,25 @@
 ---
 
 
-## 中共——“权力的游戏”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281864/)
+## “承认失败”：全球疫苗接种战略亟待转变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281948/)
 
-制作：一颗星星
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297.png)图片来源：https://www.politico.com/
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
+《政治客》报道：
 
-一百年，在人类历史的长河之中是短暂的。但是在着短暂的一百年之中，中共的出现带给了中华民族无尽的灾难。
+据四位知情人士透露，全球卫生组织正在考虑改变他们的 COVID-19 疫苗接种承诺——随着各国在未来几个月内重新确定高危人群的排序，这一举措可能会使数百万人一针也不用注射了。
 
-时至今日，欺世盗名的中共不但把中华民族拖向了灾难的深渊，也把邪恶和苦难撒向了全世界。
+2021 年 6 月，世卫组织最初提议，在 2022 年年中之前，为世界 70% 的人口接种疫苗，以防止出现新的变种，并帮助确保较贫穷国家的人们能够平等地接种疫苗。仍有 47 个国家的接种率低于 20%。 现在，参与全球疫苗接种工作的许多卫生组织，旨在为每个国家 90% 的弱势群体接种疫苗——这一举措似乎削弱了世卫组织人70% 人口的目标。
 
-隐藏在这些灾难背后的便是中共的“权力的游戏”。
+信息链接：[Recognition of failure’: A shift urged in global vaccination strategy](https://www.politico.com/news/2022/04/01/global-vaccination-strategy-shift-00022189)
 
-发布：信心的选择
+* * *
+
+审核：文乐
+发布：夜来香
 
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
