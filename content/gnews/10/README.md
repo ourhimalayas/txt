@@ -2,38 +2,38 @@
 ---
 
 
-## 樱花深度报道┃中欧峰会：让我们谈一谈乌克兰战争！（上）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2281588/)
+## 福奇自打脸：最有效的疫苗就是自己感染
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281649/)
 
-编译：东京樱花团/Hopkins
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-【编者按】2022年4月1日，中欧峰会视频会议如期举行，这次会议充满分歧，中共领导人希望是一场“以贸易为重点的传统峰会”，而回避中共侵犯人权问题，欧洲领袖们“在峰会上提出人权问题，涉及诸如中国对新疆、西藏和香港的铁腕统治等棘手话题。还提出中国对台湾的威胁，台湾是中国声称拥有的民主岛屿。”当然“俄罗斯入侵乌克兰”是双方不可回避的话题。4月2日出版的《经济学家》杂志，以”We need to talk about Ukraine”为题发表了“中欧峰会”的专题文章。
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-18-edited.png)图片来源：The Defender Staff
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/中欧峰会：让我们谈一谈乌克兰战争！（上）.png)
+《零对冲》报告：
 
-中国领导人希望峰会的气氛“一切照旧”。但4月1日的中欧峰会绝不是正常的。这是因为俄罗斯对乌克兰的入侵，以及中国的冷血反应，暴露了欧洲原有的对华贸易优先政策的局限性。
+在整个大流行期间，大量的医生、研究人员和非主流媒体一直在讨论自然免疫作为预防 COVID-19 疫苗接种的替代方案，显而易见的结论是，如果很大比例的疫苗护照没有实际意义的人口甚至比接种疫苗的人具有更高程度的保护，因为他们已经患有这种疾病。
 
-欧盟领导人对通过视频连线举行的首脑会议抱有不高的期望。他们只希望至少向中国领导人习近平传达一个信息，即乌克兰战争是关系的决定性时刻，如果中国拒绝利用其影响力结束杀戮，这将影响中国的形象。
+随着时间的推移，“科学”已经验证了这一理论——甚至比尔·盖茨最近也承认“病毒本身，特别是称为 Omicron 的变种，是一种疫苗。”
 
-从某种意义上说，出席峰会的欧洲代表，欧洲理事会主席查尔斯·米歇尔（Charles Michel）和欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）将被两位不会出席的人物所掩盖：德国前总理安格拉·默克尔（Angela Merkel）和俄罗斯总统弗拉基米尔·普京（Vladimir Putin）。没有哪位领导人像默克尔夫人那样与欧洲原来的对华政策联系更紧密。在担任总理的 16 年中，她提倡一种包容的态度，将中国视为宝贵的经济机会来源和气候变化等问题的潜在合作伙伴，尽管中国在人权方面出现令人失望的表现。
+然而，由福奇博士领导的美国政府官方回应，并在世界范围内得到回应，**几乎排除了所有提及自然免疫作为对**** COVID-19 ****的相关缓解措施的内容**，自然免疫当然会使数千万美国人的疫苗接种、加强注射和疫苗护照变得毫无意义。
 
-普京先生于 2 月 24 日入侵乌克兰对这种做法的倡导者来说是一场灾难。因为俄罗斯使用武力得到了习近平的默许。尽管中国自称是公正的，但它的真实立场绝不是中立。中国将这场战争归咎于美国，据称是通过扩大北约联盟以接纳前苏联卫星国，从而践踏了俄罗斯的合法安全利益。欧洲人知道，北约的扩张实际上是由害怕俄罗斯侵略的前共产主义集团国家的需求推动的（有充分理由）。欧盟各国政府对中国拒绝敦促俄罗斯停止战争感到震惊。他们认为这种拖后腿的做法不配做一个自称为全球大国、拥有联合国安理会常任理事国席位的国家。
+因此，福奇假装在过去两年里从未听说过自然免疫，现在这位“好医生”打自己的嘴巴，他解释说“最有效的疫苗接种是自己感染（后获得自然免疫）。”
 
-中国外交官花了一段时间才意识到，欧洲领导人不会同意举行以贸易为重点的传统峰会。中国的第一个提议是与总理李克强进行在线会晤，李克强是一位技术官僚，主要从事经济工作。中国的首选议程包括签署备忘录，并讨论恢复全面投资协议（cai），这是一项得到默克尔夫人大力支持的贸易协定。自中国于 2021 年对欧洲议会成员和欧洲外交官实施全面制裁以来，该交易已被冻结。这是对欧盟对三名中国官员和一名被指控在新疆西北部地区侵犯人权的前官员实施有限制裁的一种不平衡的报复。一些欧洲政府告诉中国，在制裁解除和对新疆强迫劳动和其他虐待行为的担忧得到解决之前，全面投资协议无法恢复谈判。
+**参考链接：**[Fauci Flashback: ‘The Most Potent Vaccination Is Getting Infected Yourself’ + More](https://childrenshealthdefense.org/defender/covid-nw-fauci-flashback-most-potent-vaccination-infection/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=2f216e94-723c-4f05-8ce5-43736c97f2bd)
 
-（未完待续）
+* * *
 
-信息来源：
-[The war makes China uncomfortable. European leaders don’t care](https://www.economist.com/china/2022/04/02/the-war-makes-china-uncomfortable-european-leaders-dont-care)
+审核：文乐
+校对：阿伯塔
+发稿：信心的选择
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
 [**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 
