@@ -15,116 +15,116 @@
 
 ---
 
-### [【G肋睇真D】重获解放的乌克兰村庄尸横遍野](/content/gnews/1/README.md)
+### [乌克兰摄影记者身中俄军两枪殉职](/content/gnews/1/README.md)
+ ` 日本東京方舟農場`
+
+### [【G肋睇真D】FBI起诉中共秘密代理人孙海英 最高可判处15年监禁](/content/gnews/2/README.md)
  ` G-时新闻`
 
-### [【G时新闻】习近平视频会晤欧洲领导人表示将一意孤行挺普京](/content/gnews/2/README.md)
+### [【G肋睇真D】重获解放的乌克兰村庄尸横遍野](/content/gnews/3/README.md)
  ` G-时新闻`
 
-### [爆料革命日记（十六）：疫情下的善与恶](/content/gnews/3/README.md)
+### [【G时新闻】习近平视频会晤欧洲领导人表示将一意孤行挺普京](/content/gnews/4/README.md)
+ ` G-时新闻`
+
+### [爆料革命日记（十六）：疫情下的善与恶](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年4月3日文贵大直播摘要及音频—银河系农场](/content/gnews/4/README.md)
+### [2022年4月3日文贵大直播摘要及音频—银河系农场](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [【G时新闻】英国称俄罗斯对乌克兰平民的袭击必须作为战争罪进行调查](/content/gnews/5/README.md)
+### [【G时新闻】英国称俄罗斯对乌克兰平民的袭击必须作为战争罪进行调查](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [《探西安》-MV音乐](/content/gnews/6/README.md)
+### [新能源——受控核聚变（人造太阳）](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [《探西安》-MV音乐](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【粤语配音】2022年4月3日：中共红旗导弹支援俄罗斯](/content/gnews/7/README.md)
+### [【粤语配音】2022年4月3日：中共红旗导弹支援俄罗斯](/content/gnews/10/README.md)
  ` MOS香港部`
 
-### [【G时新闻】 波罗的海国家停止进口俄罗斯天然气](/content/gnews/8/README.md)
+### [【G时新闻】 波罗的海国家停止进口俄罗斯天然气](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [雅典娜时报-第253期](/content/gnews/9/README.md)
+### [雅典娜时报-第253期](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年4月3日大直播速记精萃](/content/gnews/10/README.md)
+### [2022年4月3日大直播速记精萃](/content/gnews/13/README.md)
  ` 雅典娜GNotes`
 
-### [中共粗暴的新冠清零政策强迫孩子和父母分离](/content/gnews/11/README.md)
+### [中共粗暴的新冠清零政策强迫孩子和父母分离](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [《习普会谈》 -MV音乐](/content/gnews/12/README.md)
+### [《习普会谈》 -MV音乐](/content/gnews/15/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【粤语配音】2022年4月3日： 现时的病毒就是疫苗的反应](/content/gnews/13/README.md)
+### [【粤语配音】2022年4月3日： 现时的病毒就是疫苗的反应](/content/gnews/16/README.md)
  ` MOS香港部`
 
-### [樱花数据分析┃加拿大安大略省：接种次数越多越易感染，每针都在伤害免疫系统](/content/gnews/14/README.md)
+### [樱花数据分析┃加拿大安大略省：接种次数越多越易感染，每针都在伤害免疫系统](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [聚焦：中共的核酸检测岂止是谋财害命！](/content/gnews/15/README.md)
+### [聚焦：中共的核酸检测岂止是谋财害命！](/content/gnews/18/README.md)
  ` 蓝莲花农场`
 
-### [【G时新闻】瑞士近万人举行反战游行](/content/gnews/16/README.md)
- ` G-时新闻`
-
-### [德表示俄军犯下战争罪 西方将对俄实施更多制裁](/content/gnews/17/README.md)
+### [德表示俄军犯下战争罪 西方将对俄实施更多制裁](/content/gnews/19/README.md)
  ` 蓝莲花农场`
 
-### [4/3/2022 文贵直播：中共在5天前已将红旗导弹和反导系统送往塞尔维亚，这意味着中共正式参与了俄乌战争；美元和美国是俄乌战争的大赢家](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022/04/02 文贵先生盖特精要](/content/gnews/19/README.md)
+### [2022/04/02 文贵先生盖特精要](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰指责俄罗斯屠杀平民犯有战争罪](/content/gnews/20/README.md)
+### [乌克兰指责俄罗斯屠杀平民犯有战争罪](/content/gnews/21/README.md)
  ` 蓝莲花农场`
 
-### [20220319-20220325乌克兰战事一周回顾](/content/gnews/21/README.md)
+### [20220319-20220325乌克兰战事一周回顾](/content/gnews/22/README.md)
  ` KarmaLabs`
 
-### [被俄中假新闻“赐死”的乌克兰最致命女阻击手](/content/gnews/22/README.md)
+### [被俄中假新闻“赐死”的乌克兰最致命女阻击手](/content/gnews/23/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [2022/04/03 英喜时事速递](/content/gnews/23/README.md)
+### [2022/04/03 英喜时事速递](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [德国零售商周一将提高食品价格20-50%](/content/gnews/24/README.md)
+### [德国零售商周一将提高食品价格20-50%](/content/gnews/25/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰战争期间塞尔维亚投票选举总统和议会](/content/gnews/25/README.md)
+### [乌克兰战争期间塞尔维亚投票选举总统和议会](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [帮助大家了解，谁是CDN？它是如何评价喜币的？](/content/gnews/26/README.md)
+### [帮助大家了解，谁是CDN？它是如何评价喜币的？](/content/gnews/27/README.md)
  ` KarmaLabs`
 
-### [【转】截至4.3 俄乌战事汇总](/content/gnews/27/README.md)
+### [【转】截至4.3 俄乌战事汇总](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界还没有准备好一个新的世界秩序](/content/gnews/28/README.md)
+### [世界还没有准备好一个新的世界秩序](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜联储主席撰文 谈加密货币的重要作用](/content/gnews/29/README.md)
+### [喜联储主席撰文 谈加密货币的重要作用](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [COVID疫苗注射对人体血液有什么影响？](/content/gnews/30/README.md)
+### [COVID疫苗注射对人体血液有什么影响？](/content/gnews/31/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [洛克菲勒曾推动FDA批准中国产坠胎药的许可证](/content/gnews/31/README.md)
+### [洛克菲勒曾推动FDA批准中国产坠胎药的许可证](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G时新闻】中共极端防疫导致 货车司机饿死高速路](/content/gnews/32/README.md)
+### [【G时新闻】中共极端防疫导致 货车司机饿死高速路](/content/gnews/33/README.md)
  ` G-时新闻`
 
-### [俄互联网顶级CEO公开反对俄入侵战争](/content/gnews/33/README.md)
+### [俄互联网顶级CEO公开反对俄入侵战争](/content/gnews/34/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [罗伯特·马龙说小罗伯特应获诺贝尔和平奖](/content/gnews/34/README.md)
+### [罗伯特·马龙说小罗伯特应获诺贝尔和平奖](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普京侵略乌克兰的背后支撑：中共](/content/gnews/35/README.md)
+### [普京侵略乌克兰的背后支撑：中共](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [俄乌战局最新信息汇总](/content/gnews/36/README.md)
+### [俄乌战局最新信息汇总](/content/gnews/37/README.md)
  ` NFSC News`
-
-### [香草山翻译部周刊|2022年4月3日第42期](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
 
 ### [五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`

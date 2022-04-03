@@ -2,39 +2,33 @@
 ---
 
 
-## 罗伯特·马龙说小罗伯特应获诺贝尔和平奖
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281998/)
+## 俄互联网顶级CEO公开反对俄入侵战争
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2282030/)
 
-翻译：JENNY BALL
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-300-edited.png)图片来源 : rumble.com
+俄罗斯相当于谷歌的首席执行官已经辞职，以抗议弗拉基米尔·普京对乌克兰的入侵。
 
-在“塔克·卡尔森今日秀”（Tucker Carlson Tonight）罗伯特·马龙（Robert Malone）博士说，小罗伯特·肯尼迪（Robert F. Kennedy, Jr.）应该获得诺贝尔和平奖 。
+据塔斯社报道，Yandex公司首席执行官叶莲娜·布尼娜（Yelena Bunina）在公司内部门户网站上发表的一份给同事的备忘录中，公开反对俄罗斯在乌克兰的战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/E.jpg)marmikh.com
+报道称，2月24日入侵开始时，布尼娜不在国内，在塞浦路斯度假。她于3月1日飞往以色列，在公司的特拉维夫办公室工作。
 
-“如果有人值得获得诺贝尔和平奖，那就应该是 [肯尼迪] ，就是他”，罗伯特·马龙在塔克·卡尔森今日秀节目中赞扬小罗伯特·肯尼迪。
+“我不会回来。“报道称内部备忘录中写道，”我不能生活在一个与邻国交战的国家。“
 
-“作为一名疫苗学家，我现在很尴尬地了解有关疫苗功效的实际数据，以及真正导致儿童传染病下降的原因。数据非常清楚：在为几乎所有这些儿科疾病实施疫苗之前，数据下降基本上与卫生状况的改善相一致。”
+布尼娜的辞职将于4月15日生效，她写道。
 
-“如果我能活着，我怀疑我们会看到给鲍比·肯尼迪完全平反的时刻”。
+备忘录补充说：“我将逐步转移我的其他角色。在我完全转移角色之前我不会放弃。”
 
-评论：如果您阅读了罗伯特·肯尼迪的2021年11月出版的新书，《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》，他用多年来的证据和实例， 揭露了由制药公司资助的主流媒体如何已经让数百万美国人相信安东尼·福奇博士是英雄。而实质是：这个道貌岸然自称自己就是“科学”的伪君子，实际是前台操纵灭绝人口，以Covid病毒为藉口实施灭绝人类的mRNA人体基因改变，让全世界人民充当试验白老鼠的罪魁祸首。
+布尼娜自2011年1月以来一直在俄罗斯的谷歌公司工作，当时她开始担任人力资源部主任。报道称，她于2017年12月被提升为首席执行官。
 
-罗伯特·马龙博士一定能够和我们全世界人民一起看到小罗伯特·肯尼迪平反昭雪的时刻，一定能够看到福奇受到应有的惩罚！
+此举是因为在乌克兰战争中，俄罗斯打击了让所有互联网和社交媒体实体在普京的克里姆林宫影响之下。
 
-素材链接：[Robert Malone Says Robert F. Kennedy, Jr. Deserves Nobel Peace Prize – Tucker Carlson Tonight](https://rumble.com/vzc7zb-robert-malone-says-robert-f.-kennedy-jr.-deserves-nobel-peace-prize-tucker-.html?utm_source=salsa&amp;utm_medium=email&amp;utm_campaign=chd_tv&amp;eType=EmailBlastContent&amp;eId=97402d8c-6024-44de-a8ce-d59e25ddbd26)
+**快评：**又一个公开站出来反战的俄罗斯名人。塔斯社对此做了报道，看来反战已经是俄罗斯人的主流意识。作为普通人，谁都不愿意让独裁者为了一己私利发动战争而带给世界恐惧、死亡和灾难。无论是乌克兰人还是俄罗斯人都是被付出的 代价。
 
-* * *
+郭先生说了，疫苗灾难比起现在的俄乌战争要大百倍千倍。尽管如此，俄乌战争是个明显的标志时刻，之后世界所有政治版图都将巨变。
 
-审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+参考链接：
+[https://www.newsmax.com/newsfront/russian-internet-ceo-war/2022/04/03/id/1064100/](https://www.newsmax.com/newsfront/russian-internet-ceo-war/2022/04/03/id/1064100/)
 
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 
