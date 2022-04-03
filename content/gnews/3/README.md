@@ -2,37 +2,30 @@
 ---
 
 
-## 有声|疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277227/)
+## 立陶宛宣布将停止进口俄罗斯天然气
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2277232/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译与编辑：冰糖葫芦喵、灭共文明
 
+《路透社》维尔纽斯4月2日报道，立陶宛能源部周六表示，立陶宛将不再从俄罗斯进口天然气来满足国内需求，成为欧洲第一个摆脱对俄罗斯天然气供应依赖的国家。这也是欧洲准备减轻对俄罗斯石油与天然气依赖的最新举措。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/立陶宛总统-e1648946059629.jpg)立陶宛总统吉塔纳斯·瑙塞达（图片来源：路透社）
+立陶宛总统吉塔纳斯·瑙塞达（Gitanas Nauseda）周六在推特上表示，从本月开始，立陶宛将不再进口俄罗斯天然气。他表示，立陶宛将切断“与侵略者的能源关系”。
 
+总统瑙塞达补充说，如果我们能做到，欧洲其他国家也能做到。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-01-223040.png)
-3月30日文贵大直播中，在谈到中共在疫情管控中执行所谓“清零政策”的背后动机时，主讲人如水战友指出，中共就是毒杀人民的元凶。被中共独裁政权奴役愚弄的14亿中国人，完全活在一场精心策划的庞氏骗局中而不自知，几辈人省吃俭用积攒的积蓄，被大量存入房地产、银行、医疗、养老、保险等领域，想老有所依、老有所养，这些浸染了无数人汗水鲜血的血汗钱，却被一帮盗国贼、欺民贼们所侵占、蚕食。中共效仿大跃进、文化大革命等方式，利用病毒、疫苗、全民核酸、建立集中营、方舱医院、封城、网络管控等卑鄙手段，以爱之名，欺骗毒害老百姓，目的是抽干人民的血汗钱，并将债主杀害，避免偿还欠下的巨额债务。把债主清零，债务也就自然清零。
+立陶宛能源部门在一份声明中表示，立陶宛国内消费的所有天然气都将通过克莱佩达港的液化天然气(LNG)进口终端进口。被称为 “独立 “的克莱佩达液化天然气终端于2014年启用，以结束俄罗斯的天然气供应垄断。
 
+然而，立陶宛并没有停止向加里宁格勒飞地输送俄罗斯天然气。立陶宛天然气网网站周六晚间显示，从白俄罗斯进口的天然气数量与出口到加里宁格勒的天然气数量大致相同。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Antradienis-diena-_1_.jpg)立陶宛克莱佩达港LNG液化天然气站（图片来源：网络）
+立陶宛能源部门指出**，**脱离俄罗斯的供应意味着该国不再受俄罗斯最近提出的以卢布支付天然气的要求的影响。
 
+此前，俄罗斯总统普京要求外国买家从周五开始用卢布购买俄罗斯天然气，否则将面临供应削减。欧洲各国政府拒绝了这一举措，德国称这相当于“敲诈”。
 
-文字版原文：[疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机](https://gnews.org/zh-hans/2272320/)
+最后，立陶宛能源部在声明中表示，在这种情况下，俄罗斯要求用卢布支付天然气费用变得毫无意义，因为立陶宛已不再订购天然气，也不期待进一步支付。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+新闻来源链接：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[Lithuania ceasing all Russian gas imports for domestic needs | Reuters](https://www.reuters.com/business/energy/lithuania-ceasing-all-russian-gas-imports-domestic-needs-2022-04-02/)
 
  
 

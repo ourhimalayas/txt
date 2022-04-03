@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mos_health 3/30/2022 1:42 PM (UTC)`
+
+【视频回放】<br/>伊维菌素具体有哪些作用? <br/>香草山医疗部文恩博士 @ZionaEmanuel，在《GTV新闻访谈》节目中谈论，早期的我们刚才提到了抗病毒作用当然这方面研究很多，有的学者认为伊维菌素和羟氯喹的机制很类似它可以作用在S蛋白.因为中共病毒实际上是通过ACE2受体和S蛋白结合，有些学者通过计算机或分子模拟得到结论，说伊维菌素可以和S蛋白RBD部分结合来阻止ACE2和S蛋白的结合，从而达到抑制病毒进入细胞的目的。当然后来也有一些通过计算，就是叫in silico的实验发现，说可能它不一定只作用在S蛋白，可能其他的非功能性蛋白，比如说这个叫做main protease，就是蛋白酶。它是在病毒复制过程中随着病毒复制，然后转录，翻译出来的一种蛋白。那么伊维菌素可能也会作用在这上面。这个分子机制其实是有争议的，但是我们确实在一些临床经验中看到伊维菌素确确实实在早期的时候是很有效的。而且我们之前也做过一个荟萃分析的节目。就是这些大药商们怎么去诋毁世界各地做的临床实验。即便这么诋毁，到最后其实我们也是看到一个满意的结果。就是它能够在感染早期，中期，晚期，伊维菌素能够降低将近百分之六十的重症的风险，所以说这个结果还很满意的…<br/><br/>#爆料革命<br/>#新中国联邦<br/>#WhistleblowerMovement<br/>#TheNewFederalStateOfChina<br/>#香草山 #医疗部<br/>#COVID19 #SpikeProtein<br/>#Artemisinin #青蒿素<br/>#Vaccine #mRNA #Omicron
+![img](https://media.gettr.com/group7/origin/2022/03/30/13/35b300b5-cfeb-cb18-4db8-6398b1591ba7/out.jpg)
+
+---
+
 `@miles 4/3/2022 1:08 AM (UTC)`
 
 2022.04.02 晚  新中国联邦 | 新闻访谈  上海残忍将新冠阳性儿童与父母分离；比尔·盖茨关联的中共影响力团体希望与美国农业官员合作；所罗门总理表示，不允许中共在本国建立军事基地
@@ -147,13 +156,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 2022.04.02早《新中国联邦新闻访谈》 
 ![img](https://media.gettr.com/group45/origin/2022/04/02/13/00d562d7-5b81-5b64-f28e-17db3fdb6bd3/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/2/2022 12:30 PM (UTC)`
-
-2022.04.02早《新中国联邦新闻》  
-![img](https://media.gettr.com/group25/origin/2022/04/02/11/e9bfb832-2d46-7666-0ece-a642f4eeb0be/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,39 +2,70 @@
 ---
 
 
-## 有声|白宫表示 普京被下属欺骗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277176/)
+## 福奇博士：“最好的有效疫苗就是自己被感染”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277178/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒报道，3月30日，美国白宫通讯办公室主任贝丁菲尔德表示，普京的顾问及幕僚们由于害怕，并没有告诉他俄军糟糕的表现，以及俄罗斯经济受到国际制裁所引发的重大后果。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-130.png)
-普京目前已经察觉到自己被军方误导，导致他与军方高层的关系愈发紧张。
+News Anchor
+新闻主播
 
-英国情报机构“政府通讯总部”主任弗莱明称，有证据显示在乌克兰作战的俄罗斯士兵士气低落、缺乏武器、拒绝实行上级命令、破坏自己的装备，甚至还失误击落了一架俄军战机。而关于类似的真相，普京的顾问从来没有告诉过他，导致他对局势产生了严重误判。
+But she’s had the flu for 14 days, should she get a flu shot?
+但是她感冒了14天，她应该接种流感疫苗吗？
 
-美国国防部发言人柯比表示，如果普京不知道俄乌战争的真实战况，就可能不会致力于通过和平谈判结束战争，而对于这些坏消息，没有人知道普京会如何对待。
+Dr. Tony Fauci
+托尼·福奇博士
 
+Well, no, if she got the flu for 14 days
+好吧，不，如果她得了流感14天
 
+she’s as protected as anybody can be
+她像任何人一样受到保护
 
-文字版原文：[白宫表示 普京被下属欺骗](https://gnews.org/zh-hans/2273653/)
+because the best vaccination is to get infected yourself
+因为最好的疫苗接种是自己感染
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+And if she really has the flu, if she really has the flu
+如果她真的得了流感，如果她真的得了流感
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+she definitely doesn’t need a flu vaccine
+她绝对不需要流感疫苗
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+Yes, she really has the flu
+是的，她真的感冒了
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+News Anchor
+新闻主播
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+She should not get it again
+她不应该再接种它
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+Dr. Tony Fauci
+托尼·福奇博士
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Then she doesn’t need it because it’s the best
+然后她不需要疫苗，因为自然免疫是最好的
+
+It’s the most potent vaccination is getting infected yourself
+最有效的疫苗就是自己被感染（自然免疫）
+
+原视频链接: [https://twitter.com/senronjohnson/status/1509608020564660229?s=24](https://twitter.com/senronjohnson/status/1509608020564660229?s=24)
+
+Date:04/01/2022
+原视频标题: Dr. Fauci: “the best potent vaccination is getting infected yourself”
+福奇博士：“最好的有效疫苗就是自己被感染”
+原视频日期：2022/04/01
+原视频链接https://twitter.com/senronjohnson/status/1509608020564660229?s=24
+任务编号：KE467（4145）
+
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场-文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

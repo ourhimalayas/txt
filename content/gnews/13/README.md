@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277157/)
+## 中共央行将数字人民币试点计划扩展到更多城市
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2277159/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-3月30日，乌克兰内阁、乌克兰数字化转型部、乌克兰国家机构创业和出口促进办公室、乌克兰国家创业和出口发展项目、乌克兰经济部和乌克兰外交部，联合发起“不要赞助谋杀”的国际宣传运动，呼吁乌克兰境内和其它外国企业，以及任何公民个人，共同抵制俄罗斯和白俄罗斯的商品和服务，加速侵略国家经济的大规模衰退。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-140.png)
-内容包括：不要购买俄罗斯和白俄罗斯商品；拒绝与俄罗斯、白俄罗斯进一步合作；选择乌克兰和反对乌克兰战争国家的合作伙伴，以取代俄罗斯或白俄罗斯的合作伙伴等。
+**撰稿：日本东京方舟农场 JIHO**
 
-乌克兰的国际宣传行动并不是单独的行为，事实上，国际社会已经或正在以实际行动对其进行支持。俄乌战争开始以来，美国、欧盟以及亚洲多国已经对俄进行了多种方式的制裁。
+根据路透社4月2号 消息，中共国央行周六表示，将进一步将其数字货币试点计划扩大到更多地区，包括将于今年九月份举办亚运会的浙江省包括省会杭州的六个城市。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0.png)图片来自路透社
 
+根据一份在线声明，中国人民银行（PBOC）表示，将推动被称为e-CNY的数字货币的研发，并扩大试点计划的范围，将天津、重庆、广州、福州、厦门和浙江沿海6个城市将被加入现有的10个主要“试点”城市，以测试使用数字人民币。
 
+中国人民银行近年来加大了对数字货币的测试力度，希望以北京冬奥会为契机，推动人民币全球化。
 
+中国人民银行的声明还表示，2月份共同举办冬奥会的北京和张家口也将成为电子人民币的试点城市。
 
-文字版原文：[乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](https://gnews.org/zh-hans/2273695/)
+参考链接：
+[https://reurl.cc/Y929zo](https://reurl.cc/Y929zo)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：老孙
+校对发布：Linda
 
  
 
