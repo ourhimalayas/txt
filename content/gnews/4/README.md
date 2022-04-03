@@ -2,51 +2,31 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.3）&#8211;打辉瑞疫苗进ICU后续
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2280605/)
+## 清明部分航线票价无人问津跌至三年最低
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2280820/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：冰沙奶茶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/692A9058-9D09-47E1-BF84-1268309DEC86.jpeg)网络截图
+随着清明假期的来临，人们扫墓祭祖，同时也趁着小长假出门踏青享受春光。清明节是不折不扣旅游旺季。
 
-整理/编辑：BENJ1
+然而今年，以往热门线路中罕见出现1折机票，裸票价格在百元左右，部分低价机票即使加上机建燃油费后的价格，依旧不足火车票价格一半。相关订票网显示，4月3日，成都-南京机票价格为148元，广州-合肥机票价格为181元，北京-重庆机票价格为185元，更糟糕的是这样的情况不只是在假期期间，多地的低价机票价格一直持续到四月末。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/CEE77B51-8A3E-43D8-99A1-20676AE0DDEA.jpeg)网络截图
+CAPSE发布的《2022年4月旅客出行意愿指数(TWI)分析报告》也显示，今年4月旅客出行意愿比3月显著下降，主要是防疫措施收紧限制了旅客出行意愿，但是另一个揪心的原因是前不久的东航的恐怖坠机事件。不但打乱人们出行计划，更是打消人们坐飞机的念头，使应有的旺季机票价格一跌再跌。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-183.png)图片来源：雅典娜设计组(614)
+如此消极市场说到底还是人们对中共民航安全失去信心。在坠机事故中的飞行员是拥有超过6000小时飞行时间的行业资深人士，副驾驶经验更加丰富，堪称业内祖师爷。航班飞机的机龄为6.8年。空难的发生在实在匪夷所思，细细思量不得不让人毛骨悚然。空难发生至半月有余，事故原因还在调查中，所有的疑问还在等待解答中，一切都还没有明确的答案，信息的不透明与不及时加剧了人们的焦虑与恐慌。
 
+未来，空难造成人们的心理阴影也不是一时半会能够消除，重拾信心恢复市场还有漫长的路要走。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+资料来源：
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+[https://m.21jingji.com/article/20220331/herald/5039c5aa5fa48f14cc2bfb5721cf54b8.html](https://m.21jingji.com/article/20220331/herald/5039c5aa5fa48f14cc2bfb5721cf54b8.html)
 
-帖子原文：
+[http://caacnews.com.cn/1/6/202203/t20220331\_1342096.html](http://caacnews.com.cn/1/6/202203/t20220331_1342096.html)
 
-打辉瑞疫苗进ICU后续…身体情况更新！
+*审核：MG6*
 
-近期收到了很多私信，谢谢小宝宝们的关心，和大家拍个视频说说打完疫苗14天之后的update～ 这几天我也一直在关注河南的情况，希望在那边的所有人注意安全！天佑河南
-
-精选评论：
-
-[用户已注销](https://www.xiaohongshu.com/user/profile/60ad1734000000000101cbb7) 回复：
-
-我朋友在新加坡打了和你一样疫苗也出现了副作用。 第二支针 后半边脸瘫了 … 现在还在看医生。
-
-用户已注销 :
-
-第一针后她出现了全身麻痹和心脏痛， 当时医生告诉她不能接种第二剂疫苗 。 说是严重过敏 然后家里的孩子是医生 ..就找另一个医生开了证明书说让她继续接着第二剂. 结果就真的出问题了。 现在睡觉一支眼睛都关不上 ..说话也不清楚。 医生让她回家多按摩脸部 说不严重的话三个月内会慢慢康复。
-
-[快跑啊小饼干](https://www.xiaohongshu.com/user/profile/5ba5d8af9e74920001bb6867) 回复：
-
-我是打完第二针疫苗半个月后出现了心脏不适的症状，心悸心跳快早搏，但是检查不出问题，我知道是不是疫苗的原因
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ICU....png)
-参考链接:
-
-[辉瑞疫苗后进ICU后续](https://www.xiaohongshu.com/discovery/item/60f93012000000000101f0f2?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648986673)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-
+*发稿：MG6*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

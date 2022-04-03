@@ -2,82 +2,42 @@
 ---
 
 
-## 哭诉
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2280569/)
+## 有声|中共三大航空公司亏损严重
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2280795/)
 
-作者：纽约香草山教育部-蓝之灵（hortênsia)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-我有车有房没存款
-如今失业很彷徨
-究竟为什么
-突然变了天
-安逸日子
-再也不见
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒3月30日报道，中共三大航空公司——国际航空、南方航空、东方航空——近两年连续亏损。近日发布的年度报告显示，三大航空公司2021年亏损额均超过百亿，较上年同期进一步放大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/120-scaled.jpg)
+总部位于上海的中共东方航空公司，净亏损从2020年的118亿增加到2021年的122亿。上周该公司一架波音飞机坠毁，又导致面临严格监管审查，和二百多架飞机被停飞的严重后果。
 
-银行上门催还款
-威胁不还法院见
-拿你的房子去法拍
-去法拍呀
-去法拍
+总部位于北京的国际航空公司，2021年第四季度净亏损已达到63.2亿元，全年净亏损为166亿元。
 
-曾经的白领
-落魄潦倒
-任职的外资企业
-一夜之间
-宣告关闭
-这里有我的汗水
-我的青春
-和期待
-如今人去楼空
-徒留我孤单
-徘徊又徘徊
-终不舍离去
-从此
-房贷车贷怎么还
+南方航空公司公布的2021年全年亏损为121亿元。
 
-在街头走到深夜
-一次次求职
-一次次挫败
-灰黄街灯
-拉长我疲惫身躯
-蹒跚着，蹒跚着
-不知归路在何处
+外媒认为，三大航空公司严重亏损的原因在于，中共严酷的疫情封锁重创了国内的旅游市场，造成各航空公司每天有超过2/3的计划航班被迫取消；另外，俄乌战争导致的航空燃油价格爆涨，也增加了航空公司的燃油成本。
 
-终于熬到了春天来
-不曾想
-封门封户已成常态
-喊楼的声音
-此起彼伏交叠
-一个又一个人
-从高楼上坠落
-救护车来了
-带来装尸袋
-这日子
-就这样
-每天重复
-没有百态
-只有常态
 
-这日子
-就是过成了这样
-每日在挣扎
-依然在泥泞中蹒跚
-路在何方
-归去何处
-唯有迷茫
-新穷人的哭诉
-有谁会听见
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-1.png)
+文字版原文：[中共三大航空公司亏损严重](https://gnews.org/zh-hans/2274844/)
 
-**审稿/校对/发稿：**qiutian（邱甜）
-
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

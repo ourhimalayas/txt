@@ -2,29 +2,38 @@
 ---
 
 
-## 樱花FM┃专家建议日本政府：慎重进行第四次疫苗接种
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2280406/)
+## 有声|封城加剧官民冲突 沪某居委会集体罢工
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2280711/)
 
-音频：东京樱花团/战友520
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月1日，据盖特消息显示，中共国内上海市由于中共病毒疫情所施加的封锁措施正在加剧，当地居民生活苦不堪言。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5.jpeg)
+有相关报道提及，上海浦东地区潍坊五村某小区的一名老人因无法使用电子订购软件而无法获取食物，其在向小区居委会讨要说法时，将口角升级为与公职人员的肢体冲突。而据该小区居民透露，当地居委会在疫情封控期间完全不作为，导致居民买菜问题迟迟得不到解决，从而使得小区内的大量老人面临着食物短缺的困境。为此，该小区居民在群情激愤的情况下与居委会工作人员发生了激烈的肢体冲突。随后，该居委会某公职人员发文称，因为人身安全受到威胁，居委会全体成员决定集体大罢工。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04034.png)
-
-日本厚生劳动部3月24日召开疫苗分科会,同意开始为实施第4次新冠疫苗接种做准备。但是,由于缺乏显示有效性的数据,很多专家都表现出谨慎的态度,它是否会真正被实施，还有待观察。
-
-厚生劳动省在这次会议上,提出了将第4次接种定位为免费的“临时接种”,从第3次接种开始6个月以后实施的方案。据厚生劳动省报道,第3次接种后,随着时间的推移效果会减少的研究很多,而关于第4次接种的研究很少。
-
-专家提出，“对象应该专门针对老年人和医务人员”“我们应该做好准备，但要有勇气随时停下来”“最好先验证第3次接种的效果和成本”。
-
-文字版原文：
+对此，有知情人士分析表示，居委会作为中共国体制内最小的行政单位，其本质是目前中共“清零”政策的第一级执行单位。此次居委会公职人员中出现集体罢工和解散的现象，实质上是中共政权开始土崩瓦解的直观体现。
 
 
-| [专家建议日本政府：慎重进行第四次疫苗接种](https://gnews.org/zh-hans/2255950/) |  |
-| --- | --- |
 
+文字版原文：[封城加剧官民冲突 沪某居委会集体罢工](https://gnews.org/zh-hans/2276425/)
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
