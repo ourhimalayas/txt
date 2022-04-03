@@ -2,47 +2,44 @@
 ---
 
 
-## 重磅：五十名 “完全接种疫苗”的网球选手无法完成迈阿密公开赛
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2279158/)
+## 香港只能越来越坏&amp;联军将在三分钟内摧毁三万中共基地
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2279184/)
 
-翻译：文扬
-编辑：李易通
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8850.50%EF%BC%89%E9%A6%99%E6%B8%AF%E5%8F%AA%E8%83%BD%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%9D%8F%E3%80%81%E8%81%94%E5%86%9B%E5%B0%86%E5%9C%A8%E4%B8%89%E5%88%86%E9%92%9F%E5%86%85%E6%91%A7%E6%AF%81%E4%B8%89%E4%B8%87%E4%B8%AD%E5%85%B1%E5%9F%BA%E5%9C%B0%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:4)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/HFVDK62SDME20FQCJ2OSB.png)图片来源：the Liberty Daily
+**郭文贵先生：**我再告诉还有战友说香港的问题，香港只能越来越坏，不会越来越好，只是多快的坏还是走上什么样的结果，一定是越来越坏，你就半点幻想都不要有啊，一点儿不要有，一点儿都不能要有。
 
+然后福建一定是惨到极点的，大连，辽宁，潜水艇基地，海南潜水艇基地，福建，一定。你想想，他们对台湾的要残酷地快速战争。联军，我现在判断一定会参与的，联军对待中共的开战那一定是相对等的，给你残酷。这个残酷，三万多个基地，一大半基地都在沿海，大连、广东、福建、江西，还有河南内部的一些导弹基地，一定给你催垮，一定给你三分钟以内给你催垮。
 
-在本周的迈阿密公开赛上，史无前例地出现了大量球员退赛的情况，网球迷们感到不安，体育界也感到震惊。共有15名球员无法完成比赛，其中包括夺冠的男女热门选手。
+兄弟姐妹们，珍惜我们拥有的，无苗的，这比战争多过一万万倍的这种利益，因为它会决定你的生命，珍惜吧！第二个就是珍惜你有喜币，珍惜你有G-TV股票吧。我啥都不说啦，谢谢！
 
-在最受欢迎的保拉·巴多萨(Paula Badosa)和扬尼克·辛纳 (Jannik Sinner) 不得不在迈阿密公开赛的四分之一决赛中退赛之后，网球界震惊了。即将成为世界第三的巴多萨在与杰西卡·佩古拉的比赛中身体不适，流着泪离开了球场。
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-巴多萨在美国对手的安慰下，在与理疗师协商后决定停下来。据雅虎体育报道，佩古拉(Pegula)在巴多萨退赛后，职业生涯中首次进入迈阿密网球赛的半决赛。
+编辑整理：Jacques；
 
-在男子比赛中，意大利新星扬尼克·辛纳(Jannik Sinner)被迫退出。他在对阵世界排名第103位的弗朗西斯科·塞伦多洛(Francisco Cerundolo)的比赛中打了22分钟就放弃了。“当我在3-1和30-0发球时，我看到他弯下了腰。这非常奇怪”，塞伦多洛在接受采访时说，“我希望他没事，他是个伟大的球员。”
+字幕档制作：知津；
 
-这位23岁的阿根廷人首次参加迈阿密的大师赛就出人意料地进入半决赛。
+视频制作及上传：Cindy；
 
-对网球迷来说，这已经是连续第二场比赛过早地结束。球迷们对这个离奇的网球日感到震惊。“这是怎么回事？”有人问。
+G-News发布：海贼王M.D.LUFFY；
 
-没有人指出明显的问题——所有的球员都必须 “全面接种疫苗 ”才能参加比赛。正如我们几个月来注意到的那样，大多数主要体育项目都受到了 “莫名其妙 ”的医疗状况的冲击，这些状况在年轻和其他健康的运动员身上出现，包括我们的报告，仅在3月份就有三名自行车运动员摔倒。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-伙计们，这就是疫苗的原因。没有其他可能性，特别是当我们考虑到甚至CDC和其他机构都承认Covid “疫苗 ”导致年轻人的心脏问题增加，包括心肌炎、心包炎和心脏病发作。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-从来没有像这些疫苗那样，有那么多的势力和宣传来掩盖真相。全国和世界各地的领导人都对疫苗进行了如此多的投入，人们不得不怀疑是谁在推动这些。其中一些是个人行为；任何政治家如果说出关于注射疫苗的真相，都会比威尔·史密斯（Will Smith）退出好莱坞精英俱乐部的速度更快被推下台去。对记者来说也是如此。企业媒体在传播谎言方面也有同样的投入，甚至可能是同谋。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-但情况可能比这更糟。就像我们在过去三年中目睹的许多事情一样，似乎有一种协同力量努力来压制真相。尽管民主党人在2月份奇特地推动取消了大部分口罩和疫苗的规定，但大流行恐慌仍在进行中。即使在第四针疫苗在美国推出的时候，已经有关于第五针和第六针的讨论。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-这都是 “大重置 ”计划的一部分吗？这一切都是为了控制？消灭人口？这三个问题的答案都很可能是，“是的”。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-这些疫苗是危险的。全球各地的运动员正在陨落。普通人正经历着可怕的不良反应。几万，也许几十万人死于它们，甚至可能是数百万，数据是如此的模糊。与此同时，政客和企业媒体都在假装这一切都不存在，好像这里没有什么可看的。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-参考链接： [重磅：五十名 “完全接种疫苗”的网球选手无法完成迈阿密公开赛](https://thelibertydaily.com/buried-bombshell-tennis-world-rocked-as-fifteen-fully-vaccinated-players-unable-to-finish-miami-open/)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-发布：tianzhihuan
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+G-TV：日本银河系农场。
 
  
 

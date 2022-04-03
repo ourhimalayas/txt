@@ -2,11 +2,11 @@
 ---
 
 
-## 中国男人可以有很好的形象（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279189/)
+## 新中国联邦人代表和平的、正义的、公益的、有爱心（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279314/)
 
-**PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-838-841-2.jpg)
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-850-856-2_3.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

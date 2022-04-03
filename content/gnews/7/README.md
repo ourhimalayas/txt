@@ -2,46 +2,36 @@
 ---
 
 
-## 土耳其宜居&amp;黎巴嫩难确定&amp;国内要准备好最坏时刻的到来
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2279166/)
+## COVID-19疫苗副作用集萃（2022.04.03E）&#8211;新冠疫苗第三针后胸口疼闷
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2279267/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8849.50%EF%BC%89%E5%9C%9F%E8%80%B3%E5%85%B6%E5%AE%9C%E5%B1%85%E3%80%81%E9%BB%8E%E5%B7%B4%E5%AB%A9%E9%9A%BE%E7%A1%AE%E5%AE%9A%E3%80%81%E5%9B%BD%E5%86%85%E8%A6%81%E5%87%86%E5%A4%87%E5%A5%BD%E6%9C%80%E5%9D%8F%E6%97%B6%E5%88%BB%E7%9A%84%E5%88%B0%E6%9D%A5%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:b)
+整理: 禄森
+编辑：小红帽
 
-**郭文贵先生：**刚才我看到有问黎巴嫩的，还有土耳其的。土耳其相对目前是，我觉得欧洲是最好的，土耳其是最好的地方，生活很便宜，去很容易。而且土耳其人很实际，他经济很差，这时候去是比较好的。像黎巴嫩这种战火待的国家很难说，没法确定。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-183.png)
 
-那么国内的战友，现在非常清楚的，国内战友，现在你没有能力出来，你不要出来，你出来以后，会饿死你。而且世界的经济也是灾难，更难生存。你在中国，你跟羊竞争都找不到草吃，现在你出来跟狮子争饭吃，很难。不要做这种错误的决定，是吧，你没有跟狮子、豹子竞争的PK的能力，你就不要出来。
+图片来源：雅典娜农场设计组（614）
 
-在国内，我再说一遍，这个时候，你如果有钱、有能力的话，这个时候一定要长远打算。一定要想到，现在真的回老家这些地方，你得有老家的生存环境。在老家被那些县长、镇长弄成锁链女也是分分钟发生的事，很黑暗。但是你在大城市里边一旦没电没水，你咋办？这些综合的平衡，每个人情况不同。
 
-但是如果中国任何人，不做好一个最坏的时刻准备来的话，你记住那个最坏的时刻，一定发生在你身上。就像打疫苗一样，如果你不认真面对的话，那这个疫苗就会打到你身体里，而且永远拿不出来。没有统一的答案，没有统一的标准。因为不同的人有不同的环境，完全你自己做决定。谢谢！
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接疫苗后的不良反应受到媒体压制，但是致死致残的报导已经屡见不鲜，本专栏将持收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。 】
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%2525E5%252589%2525AF%2525E4%2525BD%25259C%2525E7%252594%2525A8%2525E9%25259B%252586%2525E8%252590%252583/)
 
-编辑整理：Jacques；
+[皖江柳条2022](https://m.weibo.cn/profile/2384070744)：
 
-字幕档制作：知津；
+打完新冠疫苗第三针。今天第四天，胸口疼闷。上网各种搜，怀疑过心脏问题。现在想想不就是心肺的位置吗？应该是疫苗副作用。减毒疫苗尚且导致了很多人心梗，咳嗽，月经推迟。
 
-视频制作及上传：Cindy；
+可想而知，染上新冠是多大的折磨。一定要戴口罩啊！没事最好别出门。心口，上胸口真的疼闷啊！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-228.png)
+素材来源：[皖江柳条2022微博](https://m.weibo.cn/status/4753236684441354)
 
-G-News发布：海贼王M.D.LUFFY；
+发布：Frank2021
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
