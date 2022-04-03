@@ -2,35 +2,68 @@
 ---
 
 
-## 【G时新闻】巴西放宽对国际旅行者的Covid相关限制
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2281815/)
+## 有声|朋友，你不孤单
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281856/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文雅】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-根据路透社4月2日消息，巴西卫生机构Anvisa周六发布了一套针对入境国际旅客的新规则，随着南美国家健康危机的缓解，巴西放宽了与CCP病毒大流行病有关的限制。
+配音：香草山香港部- 格格樹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+朋友
+你还好吗
+你身上的军装好帅
+你的网上手机店
+还在运营吗
+你抛下一切
+扛起钢枪反抗侵略者
+在战场上的你
+有我在牵挂
 
-按照新规，在接种两剂或单剂CCP病毒疫苗后，根据疫苗的类型，旅行者被认为已经完全接种。Anvisa说，该疫苗接种必须在出发日期前至少14天完成。
+你是乌克兰的亚历山大
+我是来自中国的一个普通人
+仅仅一场邂逅
+成为生命中挚友
+忽然的失联
+原来你上了战场
+朋友啊
+请千万小心
+当侵略者炮弹袭来时
+赶快躲在掩体下
+希望你手里的钢炮
+一次又一次
+击中侵略者装甲
+我这里警报声响了又响
+疯狂轰炸在耳边轰轰作响
+一幢又一幢居民楼被炸塌
+一个个好好的家
+从眼前变成渣
+朋友
+你在前线
+我在后方
+希望我们能够活着再相见
+如果
+如果
+你不幸牺牲
+我也被炮弹击中
+我会微笑着对你说
+朋友，我陪着你
+你不孤单
+来生
+我们依然做
+最好的朋友
 
-所有入境的外国人或巴西人只需出示电子版或打印版的疫苗护照，无需再进行检测即可入境巴西。
+文字版原文：[朋友，你不孤单](https://gnews.org/zh-hans/2277003/)
 
-未完全接种CCP病毒疫苗的旅客，只要他们是巴西人和居住在巴西的外国人，必须出示CCP病毒的测试，测试结果为阴性或无法检测的可以入境。
+音频处理：Fei797
+发稿：Fei797
 
-该机构还指出，居住在国外且未完全接种疫苗的外国人仍被禁止进入该国，但在声明中没有详细说明例外情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-盖特链接：[https://gettr.com/post/p13cc0w733c](https://gettr.com/post/p13cc0w733c)
-
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
