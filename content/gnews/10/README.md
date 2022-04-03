@@ -2,47 +2,24 @@
 ---
 
 
-## 专业的电工战友-鬼五
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2282077/)
+## 喜联储主席撰文 谈加密货币的重要作用
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2282089/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-接下来我们把镜头对准鬼五大哥
-我其实不知道鬼五大哥
-以前的专业是什么
-但是我们所有这个
-我们这两大一小这个帐篷
-所有的这个电路
-都是由鬼五大哥负责
-去计算这些用电量啊
-然后
-然后这不我们新加了一个这个
-这个微波炉
-然后又需要重新计算一下
-然后怎么样重新走一条线
-这些全部都是鬼五大哥在负责来操纵
-并且呢前段时间我们找过
-这个专业的当地电工
-来检查我们的电路到底有没有问题
-一切都非常正常
-全部通过
-所以这就是我们的鬼五大哥
+作者：秘密翻译组 亚麻乔巴
 
-素材提供：蓝色天空
-软件听写：小白咖啡馆
-字幕添加：小白咖啡馆
-最终审核：文倩
-编辑/上传：野草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
+3月14日，喜联储主席William先生在美国International Business Times网站撰文，探讨了加密货币在全球跨境汇款以及对乌克兰的援助捐款中的广泛应用。文章指出，先进国家的移民和移民工人一直依赖汇款服务，将其收入的一部分寄回他们在发展中国家的家人们，每年的资金流量预计超过5000亿美元。加密货币为这些汇款提供了极大的方便，为所需之人提供了生命线。加密货币汇款方式交付更快、成本更低，还可以应对恶性通胀，起到为收入、存款保值的作用。俄乌战争开始后，乌克兰也已经收到了超过5000万美元的加密货币捐款。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3.jpeg)
+文章表示，目前的加密货币受到其价格波动性的约束以及政府监管者的质疑，稳定币的出现可以帮助解决这些问题。如果能克服监管当局的怀疑，加密货币可以大大增强全球的金融包容性。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+参考链接：[Cryptocurrencies Can Offer A Lifeline To Some Of The World’s Neediest](https://www.ibtimes.com/cryptocurrencies-can-offer-lifeline-some-worlds-neediest-3436917)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+总编：Zion文恩
+编辑：飞虹
+审核：ILOVE战神
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

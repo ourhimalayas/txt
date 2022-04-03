@@ -2,33 +2,25 @@
 ---
 
 
-## “承认失败”：全球疫苗接种战略亟待转变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281948/)
+## 国后岛夜现闪光 报告接连不断 根室地呜 不安蔓延
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281958/)
 
-翻译： Jenny Ball
+翻译：Orpheus
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297.png)图片来源：https://www.politico.com/
+市政府和北海道县警察局根室派出所在3月底接到一系列电话和通报，抱怨被俄罗斯非法占领的北方领土国后岛的夜空中出现闪光，以及北海道根室的鄂霍次克海一侧出现地呜和地面震动。 市民向《每日新闻》提供了一段国后岛染红天空的视频。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-298.png)图片来源：雅虎新闻
+据拍摄视频的市民说，3月30日下午6点后，闪光出现了一个多小时。 根室海岸警卫队的一艘巡逻船也证实了这一点。 虽然花咲市立小学正在为其搬迁而燃放烟火，但围观者普遍认为“火光的晃动不像是烟火”，“是不是日本渔船俄罗斯击中”而感到不安。
 
-《政治客》报道：
+虽然俄罗斯武装部队东部军区公告过在3月2日到5日有一个千人规模反坦克导弹系统等的实弹演习在国后岛和择捉岛进行， 这些闪光是否与其有关系尚不清楚。
 
-据四位知情人士透露，全球卫生组织正在考虑改变他们的 COVID-19 疫苗接种承诺——随着各国在未来几个月内重新确定高危人群的排序，这一举措可能会使数百万人一针也不用注射了。
-
-2021 年 6 月，世卫组织最初提议，在 2022 年年中之前，为世界 70% 的人口接种疫苗，以防止出现新的变种，并帮助确保较贫穷国家的人们能够平等地接种疫苗。仍有 47 个国家的接种率低于 20%。 现在，参与全球疫苗接种工作的许多卫生组织，旨在为每个国家 90% 的弱势群体接种疫苗——这一举措似乎削弱了世卫组织人70% 人口的目标。
-
-信息链接：[Recognition of failure’: A shift urged in global vaccination strategy](https://www.politico.com/news/2022/04/01/global-vaccination-strategy-shift-00022189)
+参考链接：[国後島で夜間に閃光、通報相次ぐ　根室で地鳴り　不安広がる（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9683be068e54d286d939026d933ee1af1976d680)
 
 * * *
 
-审核：文乐
-发布：夜来香
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3.jpeg)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 
