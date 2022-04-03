@@ -2,33 +2,24 @@
 ---
 
 
-## 【G时新闻】中共极端防疫导致 货车司机饿死高速路
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2282031/)
+## 喜联储主席撰文 谈加密货币的重要作用
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2282089/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文雅】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-因严峻疫情，自3月底于辽宁省鞍山高速公路上进行防疫管控，不少负责送货的司机只能停留在交流道下车路口前，无法离开高速公路。
+作者：秘密翻译组 亚麻乔巴
 
-根据辽宁省鞍山高速公路管理局标识，近日有数百辆货车、客车堵在交流道出口，因为疫情防控无法离开，车辆堵塞将近2公里。
+3月14日，喜联储主席William先生在美国International Business Times网站撰文，探讨了加密货币在全球跨境汇款以及对乌克兰的援助捐款中的广泛应用。文章指出，先进国家的移民和移民工人一直依赖汇款服务，将其收入的一部分寄回他们在发展中国家的家人们，每年的资金流量预计超过5000亿美元。加密货币为这些汇款提供了极大的方便，为所需之人提供了生命线。加密货币汇款方式交付更快、成本更低，还可以应对恶性通胀，起到为收入、存款保值的作用。俄乌战争开始后，乌克兰也已经收到了超过5000万美元的加密货币捐款。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3.jpeg)
+文章表示，目前的加密货币受到其价格波动性的约束以及政府监管者的质疑，稳定币的出现可以帮助解决这些问题。如果能克服监管当局的怀疑，加密货币可以大大增强全球的金融包容性。
 
-一名司机受访表示，平常货车司机准备的食物量是按照两天的份量准备，只是没想到因为突如其来的防疫管孔政策，所有人卡在交流道出口动弹不得，待着车上的他有四天只敢吃着5块钱的馒头充饥，平均1天1块钱的馒头确实吃不饱。
+参考链接：[Cryptocurrencies Can Offer A Lifeline To Some Of The World’s Neediest](https://www.ibtimes.com/cryptocurrencies-can-offer-lifeline-some-worlds-neediest-3436917)
 
-此外，吉林省松原市王府休息站也塞满了货车司机，中共官媒《封面新闻》甚至报道有停留在吉林松原王府服务区的司机20多天没有进食，抢救无效身亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-盖特链接：[https://gettr.com/post/p13d19t6e40](https://gettr.com/post/p13d19t6e40)
+总编：Zion文恩
+编辑：飞虹
+审核：ILOVE战神
+校正/发稿：谐趣园
 
-编辑/发文 -【文莱】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

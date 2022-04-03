@@ -2,68 +2,61 @@
 ---
 
 
-## 有声|朋友，你不孤单
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281856/)
+## “无政府状态”，巴基斯坦伊姆兰-汗被指控为“叛国”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281886/)
 
-配音：香草山香港部- 格格樹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-朋友
-你还好吗
-你身上的军装好帅
-你的网上手机店
-还在运营吗
-你抛下一切
-扛起钢枪反抗侵略者
-在战场上的你
-有我在牵挂
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-1.jpg)
+巴基斯坦陷入困境的总理伊姆兰-汗被指控“叛国”，因为他避免了将他赶下台的企图，并寻求重新选举。
 
-你是乌克兰的亚历山大
-我是来自中国的一个普通人
-仅仅一场邂逅
-成为生命中挚友
-忽然的失联
-原来你上了战场
-朋友啊
-请千万小心
-当侵略者炮弹袭来时
-赶快躲在掩体下
-希望你手里的钢炮
-一次又一次
-击中侵略者装甲
-我这里警报声响了又响
-疯狂轰炸在耳边轰轰作响
-一幢又一幢居民楼被炸塌
-一个个好好的家
-从眼前变成渣
-朋友
-你在前线
-我在后方
-希望我们能够活着再相见
-如果
-如果
-你不幸牺牲
-我也被炮弹击中
-我会微笑着对你说
-朋友，我陪着你
-你不孤单
-来生
-我们依然做
-最好的朋友
+总统阿里夫-阿尔维（Arif Alvi）是汗的执政党巴基斯坦民族主义运动党的成员，他于周日批准了汗解散议会的请求。
 
-文字版原文：[朋友，你不孤单](https://gnews.org/zh-hans/2277003/)
+此前，议会副议长（也是汗的政党成员）阻止了反对派的不信任动议，人们普遍认为汗会输。
 
-音频处理：Fei797
-发稿：Fei797
+此举加深了国家的政治动荡，反对派挑战副议长否决不信任投票的权力，称其拥有推翻汗的人数。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-294-edited.png)图片来源：https://www.newsweek.com/
+巴基斯坦总理伊姆兰-汗解散了议会以举行选举，因此避免了他注定要失败的立法者信任投票。图片中，2022年4月3日，在伊斯兰堡议会大厦附近，安保人员走过印有巴基斯坦总理伊姆兰-汗形象的横幅。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+*Aamir Qureshi/AFP via Getty images*
+
+最高法院首席法官奥马尔-阿塔-班迪亚尔(Umar Ata Bandial)已于周日召开了关于宪法问题的听证会。
+
+反对派领导人、如果汗被免职将取代他的领跑者谢巴兹-谢里夫谴责阻挠投票是“不折不扣的叛国罪“。
+
+他在推特上发帖说：“公然违反宪法的行为将承担后果。”他补充说，他希望最高法院在维护宪法方面发挥其作用。
+
+汗在推特上说，他“对[巴基斯坦民主运动]对我们呼吁举行大选的反应感到惊讶”。
+
+他写道：“他们一直在声嘶力竭地哭诉我们的政府如何失败，如何失去人民的支持，为什么现在又害怕选举？民主党人去寻求人民的支持。”
+
+“PDM接受选举，而不是成为外国政权更迭阴谋的一部分；沉溺于公然购买忠诚度，从而破坏我们国家的道德风尚，这不是更好吗？”
+
+反对派指责由板球明星转为保守的伊斯兰领袖的汗未能振兴巴基斯坦的经济和打击腐败。
+
+但汗指责他的政治反对派与美国合作以推翻他的政府。
+
+在周四向全国发表的电视讲话中，汗说，美国希望“我个人离开……一切都会被原谅”。
+
+据美联社报道，汗曾声称华盛顿反对他对美国反恐战争的批评，以及他拒绝让巴基斯坦被用来执行美国针对阿富汗恐怖目标的“超视距”任务，阿富汗现在由塔利班统治。
+
+美国国务院发言人内德-普莱斯告诉彭博社，这些指控“没有事实根据”。
+
+他说：“我们正在密切关注巴基斯坦的发展，我们尊重并支持巴基斯坦的宪法程序和法治。”
+
+来源：[Anarchy’: Pakistan’s Imran Khan Accused of ‘High Treason’ by Opponent](https://www.newsweek.com/pakistan-imran-khan-parliament-elections-high-treason-1694545)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：夜来香
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

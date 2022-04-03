@@ -2,32 +2,28 @@
 ---
 
 
-## 完整的人类基因组图谱绘制完成
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2281761/)
+## 中共——“权力的游戏”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281864/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-3月31日，《科学》杂志发布一项人类基因工程重大突破，人类基因组图谱的绘制已经完成，这为新的医学打开了大门。
+制作：一颗星星
 
-人类细胞核包含23组染色体，大约有30000个基因。人类基因组由数十亿个以字母A、C、G和T命名的DNA亚单元组成。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
 
-读取基因需要将DNA链切割成几百到几千个字母长的片段。DNA测序机器读取每个片段中的字母，科学家再试图将这些片段按正确的顺序排列。
+一百年，在人类历史的长河之中是短暂的。但是在着短暂的一百年之中，中共的出现带给了中华民族无尽的灾难。
 
-多年来，因DNA测序技术无法读取基因组的某些部分，大约8%的基因序列仍未被填补。基因测序技术改进后，科学家可以一次准确地读取包含100万个字母的DNA片段，极大提高了基因排序的准确性。
+时至今日，欺世盗名的中共不但把中华民族拖向了灾难的深渊，也把邪恶和苦难撒向了全世界。
 
-科学家们说，这个完整的基因组图谱将有助于了解人类生物学和人类遗传学，为更深入地了解进化、癌症和出生缺陷铺平了道路。
+隐藏在这些灾难背后的便是中共的“权力的游戏”。
 
-[https://www.foxnews.com/science/scientists-map-human-genome](https://www.foxnews.com/science/scientists-map-human-genome)
+发布：信心的选择
 
-校对/发稿：菩提树
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
-
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 
