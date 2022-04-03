@@ -2,23 +2,36 @@
 ---
 
 
-## 英国称对乌克兰平民的袭击必须作为战争罪进行调查
-` thedawn` [轉載自GNews](https://gnews.org/zh-hans/2281007/)
+## 有声|美能源部长：俄乌战争导向清洁能源独立
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281062/)
 
-撰稿：追着曙光跑
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月31日，美能源部长格兰霍姆在采访中表示，俄乌战争将是一个很好的契机，鼓励各国去发展清洁能源和可再生能源，并逐步摆脱对传统能源的依赖。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-3.jpg)
+当前，世界能源危机因俄乌战争而显著加剧，俄罗斯依靠石油、天然气等丰富资源要挟欧洲乃至整个世界。格兰霍姆说，国家的信心不应该继续建立在化石燃料市场之上，而应利用俄乌战争实现清洁能源独立的目的，减少人们在加油站等待的痛苦，并保护他们免受能源等价格波动带来的影响。 格兰霍姆补充道，美国正处于战时地位，拜登政府为了应对失控的能源市场，提出了两个步骤的解决方案。除了释出大量战略石油储备，另外还援引《国防生产法》来促进美国电动汽车电池的发展，以及气象援助计划。该计划向美国各州发放32亿美元确保降低能源过度消耗，并投资于化石燃料脱碳技术。清洁能源独立已成为美国的中长期战略。
 
-据路透社（伦敦）4月3日的报道，英国外交大臣丽兹·特拉斯（Liz Truss）表示，在俄罗斯入侵乌克兰期间，对袭击平民的行为必须作为战争罪进行调查，英国将完全支持国际刑事法院相关的任何行动。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-03-at-11.43.36-PM.jpeg)图片来源：原新闻
-她在一份声明指出，随着俄罗斯入侵军队被迫撤退，越来越多的证据表明，入侵部队在基辅郊区的伊尔平（Irpin ）和布查（Bucha） 等城市犯下了骇人听闻的行为。
 
-丽兹继续指出，在俄罗斯非法蛮横入侵乌克兰期间，不分青红皂白地攻击无辜平民的行为，必须作为战争罪进行调查。
 
-另外，俄罗斯此前否认针对平民，并否认在其所谓的乌克兰“特别军事行动”中犯有战争罪的指控。
+文字版原文：[美能源部长：俄乌战争导向清洁能源独立](https://gnews.org/zh-hans/2275968/)
 
-*发布：追着曙光跑*
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-信息来源：[UK says alleged attacks on civilians in Ukraine must be investigated as war crimes](https://www.reuters.com/world/europe/uk-says-alleged-attacks-civilians-ukraine-must-be-investigated-war-crimes-2022-04-03/)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/澳喜图标.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,30 @@
 ---
 
 
-## 五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281428/)
+## 樱花时政┃查明客机坠毁原因，美调查组抵中
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2281570/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-7.jpg)
-图片来源：谷歌图片
+撰稿：东京樱花团/ haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+中国客机坠毁，132人死亡事故，美国运输安全委员会（NTSB）调查组抵达中国。将与中方合作查明事故原因。
 
-《零对冲》四月三日报道：五角大楼的一名官员周五告诉国会，在乌克兰的数十个与美国有关的实验室中，没有任何一个具有“攻击性”生物武器。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/查明客机坠毁原因，美调查组抵中.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220403-00000031-ann-000-1-view.jpg?exp=10800)
 
-负责核、化学和生物防御计划的助理国防部长黛博拉·罗森鲍姆 (Deborah Rosenbaum) 对众议院武装部队小组委员会说：“我可以毫不含糊地告诉你，在乌克兰实验室中没有美国参与的进攻性生物武器。” 
+据新华社报道，NTSB的7名调查组2日抵达中国。上月21日，搭载132名乘客的中国东方航空客机在广西壮族自治区坠毁，机体制造国（美国）小组将与中方合作分析事故原因。
 
-五角大楼通过其降低国防威胁署（DTRA) 资助乌克兰的实验室。 根据五角大楼上个月发布的一份情况说明书，自 2005 年以来，美国已“投资”2 亿美元“支持 46 个乌克兰实验室、卫生设施和诊断站点”。
+事故机体从一定高度急剧下降，几乎垂直坠落，在现场回收了录音机和飞行记录仪，但受损相当严重，今后将送往美国进行分析。
 
-莫斯科指责乌克兰在俄罗斯入侵时对五角大楼资助的秘密生物武器计划进行了紧急清理。 世界卫生组织表示，它建议乌克兰在入侵期间销毁“高威胁病原体”。
+信息来源：
+[中国の旅客機墜落事故でアメリカの調査チームが訪中](https://news.yahoo.co.jp/articles/4f2a3d604ec9db6168df6548087960fb34447537)
 
-就美国方面来说，他们坚持认为，在乌克兰和其他前苏联国家的计划是旨在减少前苏联遗留下来的生物武器的威胁。 五角大楼官员在淡化实验室威胁的同时，还警告说，它们仍可能包含苏联时代的生物武器。
-
-降低囯防威胁署合作减少威胁项目主任罗伯特·波普 (Robert Pope) 在 2 月份告诉《原子科学家公报》，这些实验室可能包含苏联生物武器，并警告说乌克兰的战斗可能导致危险病原体的释放。
-
-原文链接：[https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons](https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

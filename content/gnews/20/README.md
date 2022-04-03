@@ -2,44 +2,55 @@
 ---
 
 
-## 不仅是美国：随着实验性 Covid 疫苗的推出，2021 年全球过多死亡人数猛增
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2280909/)
+## COVID-19疫苗副作用集萃（2022.4.3）&#8211;打疫苗后抵抗力下降
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2280994/)
 
-**编译: 真北007**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/F8239BEE-37F8-4036-A200-DFD1DF946131.jpeg)图片来源：https://www.thegatewaypundit.com
-来自GATEWAY PUNDIT四月一日的新闻报道：
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-在过去的几个月里，出现了一个令人担忧的趋势，人们以前所未有的速度死亡，而且这与 Covid-19 几乎没有关系。
+整理/编辑：BENJ1
 
-事实上，这一突增几乎与实验性 mRNA Covid 疫苗的推出完全吻合。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-181.png)图片来源：雅典娜设计组(614)
 
-正如 Gateway Pundit 上个月报道的那样，美国所有年龄组的过多死亡人数都在飙升，尤其是在 25 至 44 岁之间的年轻人中。根据CDC的最新数据，这一特定群体的过多死亡人数增长了创纪录的 84%，而且这种令人担忧的趋势不仅仅只是影响到美国。
 
-世界各国，特别是一部分西方国家，都在经历着过多人的死亡，其中大部分国家的数量惊人。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-在我们北边的邻居加拿大，在 2021 年 7 月 31 日至 10 月 2 日期间，最健康的部分（0-44 岁）的死亡人数激增了24%。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-值得指出的是，加拿大总理特鲁多在 8 月强制要求为工人接种疫苗，这与死亡人数激增的时间完全吻合。
+帖子原文：
 
-在整个欧洲都可以看到同样的趋势，绝大多数国家的超常死亡人数激增，除了两个值得关注的例外，冰岛和瑞典，它们在整个大流行期间没有充分参与破坏文明的封锁，现在的情况明显好于欧洲同行。
+之前很少生病，疫苗打完容易生病吗？为啥体质下降了
 
-根据美国的最新数据，到目前为止，千禧一代是受这一波超常死亡打击最为严重的，可能是为了保持就业，他们不得不接种疫苗。
+#生病 #新冠疫苗 #疫情下的生活
 
-最令人担忧的是，这种“令人不安”的趋势正在持续，甚至会变得更糟。
+精选评论：
 
-**原文链接：**
+[没有底的深水潭](https://www.xiaohongshu.com/user/profile/61cc26ed000000001000f126) 回复：
 
-[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+喵后最严重副反应之一……
 
-**编辑：lily**
+[楠楠](https://www.xiaohongshu.com/user/profile/5cd514b9000000001002ee58) 回复：
 
-**发布：歪桑**
+都是这样，抵抗力下降了
 
-20220403
+[蓝色妖姬](https://www.xiaohongshu.com/user/profile/5f796ed6000000000100b351) 回复：
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
+之第三针之后，怀孕空囊，发烧出水痘，我可是几年都没发过烧的人即使是流感季节，身边的人都得了，我都不会有，不敢说没有影响，看个人，如果不是被迫去打，在我这里山卡拉的地方谁打
+
+[也有](https://www.xiaohongshu.com/user/profile/5ff77d11000000000100aa94) 回复：
+
+打完第三针后抵抗力下降了爱感冒了，以前好几年都不感冒一次
+![](https://assets.gnews.org/wp-content/uploads/2022/04/https-www-xiaohongshu-com-discovery-item-6247d47c000000002103bd5c-share_from_user_hidden-true-xhsshare-CopyLink-appuid-593bc86450c4b43662c38691-apptime-1648986760.png)图片来源：小红书
+参考链接:
+
+[接种疫苗后抵抗力下降](http://xhslink.com/fPgbzg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

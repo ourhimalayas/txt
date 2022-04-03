@@ -2,28 +2,26 @@
 ---
 
 
-## 上海新冠阳性则儿童必须与父母分开隔离
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281414/)
+## 五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281428/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-9.jpg)
-图片来源：www.voachinese.com
+翻译：Steven Hu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-7.jpg)
+图片来源：谷歌图片
 
-美国合众国际社4月2日报道，中国上海市因奥米炕变种新冠疫情的封城政策中，新冠阳性则儿童必须与父母分开隔离。
+《零对冲》四月三日报道：五角大楼的一名官员周五告诉国会，在乌克兰的数十个与美国有关的实验室中，没有任何一个具有“攻击性”生物武器。
 
-纽约时报的照片显示上海市公共卫生中心金山区医院的儿童床已加到走廊里，视频显示一些儿童在哭。
+负责核、化学和生物防御计划的助理国防部长黛博拉·罗森鲍姆 (Deborah Rosenbaum) 对众议院武装部队小组委员会说：“我可以毫不含糊地告诉你，在乌克兰实验室中没有美国参与的进攻性生物武器。” 
 
-纽约时报说视频内容还没有得到独立验证，但卫生中心说照片和视频是真的，并没有否认将父母患新冠者与其儿童分开。
+五角大楼通过其降低国防威胁署（DTRA) 资助乌克兰的实验室。 根据五角大楼上个月发布的一份情况说明书，自 2005 年以来，美国已“投资”2 亿美元“支持 46 个乌克兰实验室、卫生设施和诊断站点”。
 
-上海民事局副局长曾群周六在每日新冠疫情简报中告诉记者： “ 儿童是被看护和照顾的，新冠父母可以指定一位看护者在家里照顾，如果找不到，当地官员可以在父母一方同意的情况下安排。”
+莫斯科指责乌克兰在俄罗斯入侵时对五角大楼资助的秘密生物武器计划进行了紧急清理。 世界卫生组织表示，它建议乌克兰在入侵期间销毁“高威胁病原体”。
 
-上海二千五百万居民因奥米炕疫情本周几乎都经历了某种形式的封城，包括限制人们离开小区，聚集并要求自我隔离。
+就美国方面来说，他们坚持认为，在乌克兰和其他前苏联国家的计划是旨在减少前苏联遗留下来的生物武器的威胁。 五角大楼官员在淡化实验室威胁的同时，还警告说，它们仍可能包含苏联时代的生物武器。
 
-目前该市每日感染率从不到5个直至周五上升至6300例，其中6051例无症状，260例有症状。
+降低囯防威胁署合作减少威胁项目主任罗伯特·波普 (Robert Pope) 在 2 月份告诉《原子科学家公报》，这些实验室可能包含苏联生物武器，并警告说乌克兰的战斗可能导致危险病原体的释放。
 
-#### 新闻来源： [Shanghai children separated from parents with COVID-19](https://www.upi.com/Top_News/World-News/2022/04/02/shanghai-covid-19-lockdown-caregiver-children/6561648924690/)
-
-
+原文链接：[https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons](https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons)
 
  
 

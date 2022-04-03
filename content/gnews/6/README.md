@@ -2,22 +2,36 @@
 ---
 
 
-## 樱花时政┃俄乌战争导致法国通胀率达4.5%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2281426/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281547/)
 
-撰稿：东京樱花团/上善若水
+作者：香草山翻译部
 
-法国国家经济研究所公布的数据显示，2022年3月法国消费者价格指数同比上涨了4.5%，刷新了八十年代的纪录。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-6.png)
-图片来源于本文链接
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
 
-本次法国通胀率激增，与俄乌战争所导致的能源价格暴涨呈直接相关。今年2月法国的消费者价格在12个滚动月内涨幅为3.6%，3月涨幅达4.5%，超过了预期的4.2%。一年以来，法国的调和消费者物价指数涨5.1%，鉴于通胀情况，法国劳工部宣布5月1日起最低工资将进行自动调整，上调2.4%至2.6%。而未来数月，法国的通胀还会保持在高位。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-1.png)
 
-信息来源：[俄乌战推动法国通胀率至4.5%](https://www.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20220402-%E4%BF%84%E4%B9%8C%E6%88%98%E6%8E%A8%E5%8A%A8%E6%B3%95%E5%9B%BD%E9%80%9A%E8%83%80%E7%8E%87%E8%87%B34-5)
+文章仅代表作者本人观点，与Gnews无关
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+视频参看：
+[2022.04.03早 《NFSC新闻》](https://www.gettr.com/streaming/p13cdp658c9)
+[2022.04.03早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13cemm3a50)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
