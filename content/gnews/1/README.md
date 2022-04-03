@@ -2,26 +2,34 @@
 ---
 
 
-## 日本东京樱花团 中文新闻播报第41期
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2281461/)
+## MV版Hcoin To the Moon上线115天第48次位列匈牙利iTunes热门MV榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2281499/)
 
-新闻内容摘要：
-
-- 1.有关乌克兰前线的消息
-- 2.与俄乌战争相关的国际消息
-- 3.俄乌战争使中俄贸易受到空前冲击
-- 4.中共党卫军为攻台积极备战
-- 5.日本扩大对朝鲜发展导弹的制裁
-- 6.中共前司法部长傅政华被双开
-- 7.上海的封城在持续，城市陷入混乱状态
-
-
-**播报：东京樱花团-理想国**
-
-**发布： 东京樱花团-eiei**
+4/3/2022 郭文贵先生的歌曲Hcoin To the Moon的MV版视频上线115天第48次位列匈牙利iTunes热门音乐视频榜榜首，第63次位列前三名
 
 * * *
-![此图像的alt属性为空；文件名为erweima.png](https://assets.gnews.org/wp-content/uploads/2022/02/erweima.png)
+
+[【PDF 下载】Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_101.jpg)
+
+
+[【PDF 下载】Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/Sunday-3-April-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
