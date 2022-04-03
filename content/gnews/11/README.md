@@ -2,40 +2,27 @@
 ---
 
 
-## COVID-19疫苗副作用集萃
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2278417/)
+## 英国政府对俄罗斯在基辅郊外布查镇的暴行感到震惊
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2279026/)
 
-整理：雅典娜情报组(gardeniahu）
-编辑：李易通
+**撰稿：日本东京方舟农场 北极**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-182.png)图片来源：雅典娜设计组
+据基辅信息报4月3日报道，英国外交大臣利兹·特鲁斯（Liz Truss）发表推文表示，她对俄罗斯侵略者在基辅郊外的布查（Bucha）镇犯下的暴行感到震惊。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-3.png)基辅郊外的布查（Bucha）镇。（图片来自大纪元）
+特鲁斯在推特上发表声明说，“对乌克兰布查和其他城镇的暴行感到震惊，关于俄罗斯军队以无辜平民为目标的报道令人憎恶，英国正在与其他国家合作收集证据并支持国际刑事法院的战争罪调查，那些负责任的人将被追究责任。”
 
+在俄罗斯入侵部队从该地区撤退后，在基辅郊外的布查镇的乱葬坑中发现了280具尸体。城镇遭到严重破坏，其街道上覆盖着当地平民的尸体。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+乌克兰总参谋部在Facebook上发布帖文称，俄罗斯军队在离开基辅地区的布查时，还在民用建筑和基础设施附近埋设了地雷。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+参考链接：
+1.[https://reurl.cc/g0OQDL](https://reurl.cc/g0OQDL)
+2.[https://reurl.cc/DdRXo6](https://reurl.cc/DdRXo6)
+3.[https://reurl.cc/Ep3X1R](https://reurl.cc/Ep3X1R)
+4.[https://reurl.cc/qOxZ0n](https://reurl.cc/qOxZ0n)
 
-疫情|新冠疫苗副作用 疫苗副作用综合症
-
-不知道别人打了疫苗后怎么样，反正我们全家好像就只有我每次打完疫苗有十天左右的身体不舒服。第一天浑身没劲，只能睡觉。第二天浑身乏力。第三天头昏脑胀。第四天喷嚏停不了。第五天开始渐渐好转但仍旧精神不佳……难道只是我受不了疫苗副作用吗？
-
-打新冠疫苗 #疫苗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NONQR9XT83TM9MTQYGYL.png)图片来源：小红书
-精选评论
-
-瑞士回复：十天左右不舒服还算好的，有些人打完疫苗后，身体患上新的疾病，一直在看医生。
-
-Chen回复：去检查身体吧，我婆婆就是因为隔时间久了才去体检，结果查出来大问题，但现在疫苗伤害鉴定都不承认。
-
-参考链接： [新冠疫苗综合症](https://www.xiaohongshu.com/discovery/item/62452dd80000000021037015?)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+总编：老孙
+校对发布：Linda
 
  
 

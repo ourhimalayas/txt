@@ -2,35 +2,56 @@
 ---
 
 
-## 中国互联网巨头掀裁员浪潮，京东美化裁员为“毕业”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2278261/)
+## 欧洲对美国天然气的需求加快了两个新的液化天然气项目
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278270/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+翻译：Jenny Ball
 
-整理/编辑：文泓
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/0I22V5MS_NFC80JLNZ8F8.png)图片来源：香港01 & 雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
 
 
-自今年2月以来，中国互联网巨头纷纷传出“史上最猛”的裁员潮。除了阿里巴巴、腾讯等公司，电商龙头京东集团据报也完成最新一波的裁员。
 
-据多家财经网媒引述知情人士报道，继阿里巴巴和腾讯于2月裁掉数万名员工后，3月京东启动大裁员，其中，集团旗下总员工数约4,000人的京喜事业群沦为重灾区，“裁员比例高达10-15%，甚至更多”，至少有400-600人于4月1日正式被辞退，其中，位于四川、广东等地的业务人员几乎全数被裁。
-报道援引一份未经证实的文档显示，其他事业群如京东国际、京东零售、京东物流、京东科技等也都设置了裁员比例，多数在10-30%之间。
-根据离职员工近日的微博贴文，京东在“离职”须知上称他们为一群“毕业了”的京东人，引发中国网民对京东美化裁员的议论。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-29-edited.png)森普拉能源总部， 2018 年 5 月 17 日在美国加利福尼亚州圣地亚哥市中心拍摄。
+路透社REUTERS/麦克·布雷克Mike Blake
 
-京东董事长刘强东曾发下“不会开除任何一个兄弟”的豪语，网民发贴讽刺他“不会开除兄弟，只会让他们毕业”。
+休斯顿，4 月 1 日（路透社）——由于俄罗斯威胁要削减对欧洲的能源供应，推高了对超冷燃料的需求和价格，美国的两个液化天然气 (LNG) 项目在本周启动方面迈出了重要一步。
 
-虽然各公司对裁员的比例都缄默不回应，但市场观察人士说，此波裁员潮所反映出的是互联网行业对未来预期的销售、利润率和市场占有率下滑的共识。有经济学家说，中国的失业率和通膨率双双走升，今年的经济痛苦指数将持续上扬。
+开发商森普拉能源( Sempra Energy )和新堡垒能源公司(New Fortress Energy) 就单独的项目达成协议，其中一个项目可能在 12 个月内生产液化天然气。这些工厂通常需要签订约 85% 产量的长期合同才能启动，并且需要数年才能完成。
 
-参考链接：[互联网大厂掀裁员潮 中国经济的痛苦指数恐攀升？](https://www.voachinese.com/a/china-s-tech-giants-including-jd-com-have-laid-off-up-to-20-of-employees-20220402/6512241.html)
+但客户需求的增长，尤其是欧洲客户的需求，促使新堡垒能源公司决定，用自己的资金投资，在路易斯安那州沿海建造一座年产 280 万吨的工厂。
 
-*发布：tianzhihuan*
+新堡垒能源公司首席执行官韦斯·埃登斯 (Wes Edens) 表示：“世界上的天然气供需已经严重失衡。随着欧洲迫切需要减少对俄罗斯天然气的依赖，加快在美国生产液化天然气的发展速度至关重要。”
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+俄罗斯总统普京要求外国买家，从周五开始以卢布支付俄罗斯天然气，否则，将削减供应，欧洲各国首都拒绝了这一举动，德国称其相当于“敲诈”。
+
+上周，拜登政府表示，美国的目标是，今年向欧洲买家额外供应 150 亿立方米的液化天然气，并在2030年前提供500亿立方米的液化天然气，以替代俄罗斯的天然气进口，因为西方试图惩罚莫斯科入侵乌克兰。
+
+风险降低
+
+去年，大约十几家液化天然气开发商表示，他们的目标是，就他们的项目做出最终投资决定。但只有森普拉(Sempra) 位于墨西哥下加利福尼亚州“蔚蓝海岸能源公司”(Energia Costa Azul )液化天然气接收站在过去两年开始建设。
+
+周四，森普拉达成初步协议，向法国“全能”( Total Energies )供应来自墨西哥的第二个项目“维斯塔太平洋液化天然气”( Vista Pacifico LNG )的天然气。根据协议，“全能”将收购 16.6% 的股份，并占 4 MTPA 工厂出口产量的约三分之一。
+
+伍德·麦肯兹咨询公司(Wood Mackenzie) 的天然气分析师亚历克斯·芒顿（Alex Munton） 表示，天然气价格预测足够强劲，如果工厂能够在未来几年内开始运营，则值得承担风险。
+
+“我们继续看到对我们的液化天然气开发项目的巨大兴趣”森普拉发言人帕蒂·奥尔特加·米切尔（Paty Ortega Mitchell） 说。
+
+新闻来源：[Europe’s appetite for U.S. gas fast-tracks two new LNG projects](https://www.reuters.com/business/energy/europes-appetite-us-gas-fast-tracks-two-new-lng-projects-2022-04-01/)
+
+* * *
+
+素材： peacelv
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 

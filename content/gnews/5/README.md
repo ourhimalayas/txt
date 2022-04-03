@@ -2,11 +2,11 @@
 ---
 
 
-## 秘翻组重要性（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279025/)
+## 所有海外华人所面临的危险（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279142/)
 
-**PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：00-11：10-004.jpg)
+**PPT制作：0-0 ；rmrf**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-928935-7.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：
