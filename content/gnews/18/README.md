@@ -2,30 +2,33 @@
 ---
 
 
-## 乌俄再次换囚！ 乌军71男15女获释 已返基辅
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2277276/)
+## 乌克兰战争之际美国密切关注中共国对台动态
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2277278/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-3月24日，根据乌克兰议会表示，在总统泽伦斯基的命令下，乌克兰将从沉船中救出的11名俄军，换回19名驻守在蛇岛（Zmiinyi Island），曾怒呛「俄罗斯军舰，去你X的！」的乌军，而这也是双方首度达成换囚协议。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown.jpg)乌克兰战争之际美国密切关注中共国对台动态 网络图片
+据美国之音4月2日报道，当全球聚焦于俄罗斯对乌克兰的侵略战争之际，中共国是否对台湾采取军事行动引起越来越多的担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/php6owM8R.jpg)图片来源：LTN
+美国国务院负责中共国、台湾及蒙古的东亚事务副助卿华自强表示，美国关注的主要焦点是2月4日习近平与普京发表的两国友好“无止境”的联合声明，以及在乌克兰的背景下，中共国是否有任何“超越”这个联合声明的行动。美国最近的许多外交努力，包括拜登与习近平会晤，都是要清楚表达美国对这个议题的关切。
 
-4月1日提摩申科透露，乌方和俄方经过谈判再次交换战俘，乌军在札波罗热地区换回86名士兵，包含15名女性，「朋友们，来自扎波罗热地区的好消息。刚刚进行了换囚，包括15名女性在内的86名乌克兰军人已经安全」，而这86名士兵皆已回到首都基辅。
+美国军方也对中共国的军事动态保持高度关注和戒备。美军印太司令部司令阿奎利诺上将表示，自2016年以来，中共国对台湾在军事和外交及其他方面的胁迫越发严重。阿奎利诺指出，乌克兰事件带来的第一个教训就是：“这真的可能发生”，第二个教训就是：不要安于现状，“随时做好准备”。
 
-乌克兰3月24日曾以21名俄军战俘换回29名乌军，如今再次又营救回来86名乌克兰军人，已经有一百多名乌军安全抵达家园。从照片可以看出这次营救的人员情况基本康健，只有一人拄着双拐貌似腿部有受伤，不知他们在被俘的过程中有没有遭受虐待。
+俄罗斯和中共两大邪恶轴心国，狼狈为奸，沆瀣一气，一方战事未结束，另一方已然想登场。魔鬼的本性就是唯恐世界不乱，唯恐人民安居乐业。现今世界上所有的动荡、灾难、种族灭绝和屠杀都与中共有关。中共也是乌克兰战争背后的发起者和支持者。但是中共的目标并不是一个小小的乌克兰，而是称霸世界。武统台湾、断供美国芯片、人民币取代美元、彻底打垮美国经济才是中共的目的。台湾处在极度的危险中，随时会面临中共的军事打击。
 
-俄乌战火仍在继续，乌克兰人民仍在遭受战火，作为被俘的乌克兰士兵经历了一场生死诀别，能平安回到自己的家园是对战场被俘的乌克兰勇士们最好的慰藉。被俘不是耻辱，为抗击侵略者做出贡献的兵勇永远是乌克兰的骄傲。
+新闻参考链接：[https://www.voachinese.com/a/us-official-and-commander-said-closely-watiching-china-actions-amid-ukraine-war-20220401/6511836.html](https://www.voachinese.com/a/us-official-and-commander-said-closely-watiching-china-actions-amid-ukraine-war-20220401/6511836.html)
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3880916](https://news.ltn.com.tw/news/world/breakingnews/3880916)
+* * *
 
-撰稿/发布：一叶知秋
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

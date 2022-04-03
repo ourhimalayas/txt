@@ -2,22 +2,44 @@
 ---
 
 
-## 秘翻在线：俄军乌克兰首都撤出暗埋地雷?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2277520/)
+## 我们要救的是素未谋面的中国人和乌克兰人和全世界朋友
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277573/)
 
-撰稿：Sally(沙莉)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-6.jpg)图片来源：本文的链接
-【伊斯坦布尔时事】2日称，据乌克兰当地报道透露，因俄军撤离，乌克兰在收复的首都基辅郊区布查，发现了许多平民尸体躺在大街上。
+视频链接：[odysee.com/@郭文贵先生大直播精选:](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8830.50%EF%BC%89%E6%88%91%E4%BB%AC%E8%A6%81%E6%95%91%E7%9A%84%E6%98%AF%E7%B4%A0%E6%9C%AA%E8%B0%8B%E9%9D%A2%E7%9A%84%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%92%8C%E4%B9%8C%E5%85%8B%E5%85%B0%E4%BA%BA%E5%92%8C%E5%85%A8%E4%B8%96%E7%95%8C%E6%9C%8B%E5%8F%8B%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:e)
 
-乌克兰总统泽连斯基坚称，俄军从北方撤军是在“设埋地雷”，使撤离的民众难以返回。
+**郭文贵先生：**好！兄弟姐妹们，大卫兄弟、小Sarah，咱今天又是一个新的台阶，兄弟，新的台阶呀，新的台阶。整个战争当中，200个国家，你见有一个像我们这样的组织吗？在现场有一个我们这样的组织吗？大卫、Sarah你们每个人见过吗？有一个这么标准、这么国际化的、这么无私的完全没有目的的，有吗？根本没有！
 
-位于基辅西北部的布查在过去一个月被俄罗斯军队占领后，4月1日重新回归乌克兰政府管制。
+就像昨天晚上某个国际组织一个主席跟我说，我们要做这个做那个……”我给他原话说，我说：“我告诉你，不要教我怎么做什么，你们拿着全世界人民给你们数以亿计的钱，你们都花哪去了？我说我们在做什么不需要你指挥。你能，跟我们合作，不能，滚TM一边去！
 
-据法新社报道，一条街道上至少有20具尸体被确认，很悲惨。一个个都穿得跟平民一样，有的尸体被绑着双手，他们的外表和状况表明，他们已经被丢在那里好几天了。 布卡市市长说，到目前为止，有280具尸体被集体埋葬。
+他说，当地的政府现在都特别支持，都知道了新中国联邦，都知道法治基金、法治社会。我说法治基金、法治社会的钱是我们素未谋面的中国有正义的跟反对共产党的战友捐的钱，OK？我们不是说无穷无尽的钱，但是我们要救的是素未谋面的中国人和乌克兰人和全世界的战友和朋友，我们是真正的未来大同世界的最好的模样和范板。
 
-信息来源：[https://news.yahoo.co.jp/pickup/6422745](https://news.yahoo.co.jp/pickup/6422745)
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-责编：Eric Kim
+编辑整理：Jacques；
+
+字幕档制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
