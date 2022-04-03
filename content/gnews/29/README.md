@@ -2,33 +2,25 @@
 ---
 
 
-## “承认失败”：全球疫苗接种战略亟待转变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281948/)
+## 普京侵略乌克兰的背后支撑：中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2281984/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297.png)图片来源：https://www.politico.com/
+作者：纽约香草山金融部 ILOVE战神
 
-《政治客》报道：
+自俄罗斯入侵乌克兰一个多月以来，国际社会纷纷谴责普京所犯下的战争罪行，而中共却一直在试图两面讨好。一方面，中共在联合国谴责俄罗斯发动侵略行为的关键投票中投了弃权票，避免直接将普京对乌克兰的袭击称为“入侵”，还推波助澜宣传俄罗斯的虚假信息，一再将战争责任推到美国和北约头上；另一方面，中共也遵守国际社会对俄罗斯实施的制裁，还惺惺作态呼吁通过谈判解决问题，并向乌克兰提供人道主义援助。
 
-据四位知情人士透露，全球卫生组织正在考虑改变他们的 COVID-19 疫苗接种承诺——随着各国在未来几个月内重新确定高危人群的排序，这一举措可能会使数百万人一针也不用注射了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2.jpeg)
 
-2021 年 6 月，世卫组织最初提议，在 2022 年年中之前，为世界 70% 的人口接种疫苗，以防止出现新的变种，并帮助确保较贫穷国家的人们能够平等地接种疫苗。仍有 47 个国家的接种率低于 20%。 现在，参与全球疫苗接种工作的许多卫生组织，旨在为每个国家 90% 的弱势群体接种疫苗——这一举措似乎削弱了世卫组织人70% 人口的目标。
+尽管习近平希望与欧洲保持良好关系，避免美中关系进一步恶化，但普京和俄罗斯国家的命运直接牵涉到中共的核心安全利益。一个被打垮的俄罗斯的前景不仅会触发中共对其2500英里共同边界的不稳定性的担忧，而且会对俄罗斯政府的未来领导力和地缘政治方向产生不确定性。因此，北京对普京的个人权力地位越是焦虑，就越有可能通过提供直接经济援助、减轻制裁影响甚至提供军事装备来加强对其的支持。
 
-信息链接：[Recognition of failure’: A shift urged in global vaccination strategy](https://www.politico.com/news/2022/04/01/global-vaccination-strategy-shift-00022189)
+参考链接：[The worse things go for Putin in Ukraine, the more China will back him](https://www.washingtonpost.com/outlook/2022/03/24/xi-jinping-putin-china-russia-sanctions/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-审核：文乐
-发布：夜来香
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+总编：Zion文恩
+编辑：飞虹
+审核：经济小组
+校正/发稿：谐趣园
 
  
 
