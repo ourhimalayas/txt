@@ -2,37 +2,28 @@
 ---
 
 
-## 樱花FM┃俄军撤出切尔诺贝利核电站
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2281319/)
+## 樱花时政┃切尔诺贝利核电厂重新升起乌国旗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2281346/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-275.png)
-乌克兰里比乌（CNN）监管乌克兰核电站的国有企业Energoatom 31日宣布，俄罗斯军队已从切尔诺贝利核电站及周边设施撤出。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+乌国家核电公司2日表示，在俄军撤退后，切尔诺贝利核电站重新升起了乌国旗。切尔诺贝利是1986年世界最严重核灾的发生地点，当年4月26日，核电厂4号反应炉发生爆炸，当即造成30人死亡。随后几年内，有无数人死于辐射症状。
 
-Energoatom 在 Telegram 上发布的一份声明中表示，已确认“占领切尔诺贝利核电站和禁区内其他设施的占领者”分两排前往乌克兰和白俄罗斯边境。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-14.png)图片来源
 
-1986 年 4 月 26 日，切尔诺贝利核电站 4 号反应堆发生爆炸，随后立即造成 30 人死亡。之后，许多人死于辐射症状。
+今年2月下旬，也就是俄军入侵乌克兰的第一周，核电厂及周围地区被俄军非法侵占。乌克兰国家核电公司3月31日说，俄军占领电厂因为无法正常运营管理，被迫宣布，有意将电厂控制权交给乌员工。国家核电公司2日的声明称，在禁区占领切尔诺贝利核电站和其他设施的俄军，经证实已分成两列朝乌克兰与白俄边界仓皇撤退。
 
-核电站及周边地区在今年2月下旬，乌克兰战争的第一周落入俄罗斯军队手中。
+信息来源： [俄军撤离 切尔诺贝利核电厂再升起乌克兰国旗](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20220402-%E4%BF%84%E5%86%9B%E6%92%A4%E7%A6%BB-%E5%88%87%E5%B0%94%E8%AF%BA%E8%B4%9D%E5%88%A9%E6%A0%B8%E7%94%B5%E5%8E%82%E5%86%8D%E5%8D%87%E8%B5%B7%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%BD%E6%97%97)
 
-据Energoatom称，俄罗斯军队3月31日宣布，将撤出该核电站，并委托乌克兰人员管理。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-Energoatom 还张贴了据称由俄罗斯国民警卫队、俄罗斯国有核电公司 Rosatom 代表和切尔诺贝利核电站值班经理签署的正式信函的副本。
-
-根据 Energoatom 在 Telegram 上发布的一份声明，少数俄罗斯人仍留在该工厂。
-
-此外，美国国防部一名高级官员31日也证实了该说法。
-
-文字版原文：
-
-
-| [樱花时政┃俄军撤出切尔诺贝利核电站](https://gnews.org/zh-hans/2266706/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

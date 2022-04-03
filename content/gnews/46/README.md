@@ -2,38 +2,37 @@
 ---
 
 
-## 报道称: 在伤亡惨重后，焦虑不安的俄罗斯军队转向自己的指挥官并将他撞倒
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2276137/)
+## 中日财经爆┃SpaceX将在菲律宾推出星链服务，正式落地亚洲
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2275830/)
 
-**翻译：【日本东京方舟农场】流浪的蝼蚁**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，SpaceX公司将在菲律宾推出星链卫星互联网服务，这将使菲律宾成为东南亚第一个托管星链互联网服务的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-19.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://cdn.arstechnica.net/wp-content/uploads/2021/04/starlink-dish.jpg&amp;imgrefurl=https://arstechnica.com/information-technology/2021/04/dishy-mcflatface-to-become-fully-mobile-allowing-starlink-use-away-from-home/&amp;tbnid=71_jczvjRXRzuM&amp;vet=12ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ..i&amp;docid=hHh0x3Cm2TpYIM&amp;w=2000&amp;h=1500&amp;q=Starlink&amp;hl=zh-CN&amp;ved=2ahUKEwj-5KnDx_X2AhVQz4sBHRUSBQoQMygZegUIARDqAQ)
+4月1日消息，[菲律宾](https://news.163.com/news/search?keyword=%E8%8F%B2%E5%BE%8B%E5%AE%BE)贸易和工业部(DTI)周四表示，[美国](https://news.163.com/news/search?keyword=%E7%BE%8E%E5%9B%BD)亿万富翁埃隆·马斯克(Elon Musk)旗下太空探索技术公司SpaceX将在菲律宾推出星链[卫星](https://news.163.com/news/search?keyword=%E5%8D%AB%E6%98%9F)互联网服务，这将使菲律宾成为[东南亚](https://news.163.com/news/search?keyword=%E4%B8%9C%E5%8D%97%E4%BA%9A)第一个托管星链互联网服务的国家。
 
-免责声明：不论在实地或网上，有许多关于乌克兰-俄罗斯冲突的声明和反声明。虽然 WION 非常谨慎地准确报道这一发展中的新闻报道，但我们无法独立验证所有声明、照片和视频的真实性。
+菲律宾贸易与工业部长拉蒙·[洛佩兹](https://news.163.com/news/search?keyword=%E6%B4%9B%E4%BD%A9%E5%85%B9)（Ramon Lopez）表示，他最近会见了SpaceX高管丽贝卡·亨特（Rebecca Hunter）和瑞安·古德奈特（Ryan Goodnight），以及菲律宾国际通讯委员会（NTC）副专员埃德加多·卡瓦里奥斯（Edgardo Cabarios）和DFNN执行主席小拉蒙·加西亚（Lamon Garcia Jr.），讨论将星链引入菲律宾事宜。
 
-一位西方官员透露，俄罗斯军人驾驶坦克转向自己的指挥官并将其撞倒，该消息仍有待确认。
+洛佩兹透露，SpaceX的商业许可申请正在处理中，同时该公司正在为其网关寻找地点。该公司正在菲律宾设立全资子公司，目标是在推出的第一阶段部署三个网关。不过，洛佩兹没有具体说明星链互联网服务推出的时间表或SpaceX的投资数字。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-1.jpeg)（图片来源：wionews.com）
+洛佩兹表示，星链的推出将使该国宽带速度更快，连接更好，电信服务的容量更大，费率也更便宜。他称：“星链将扩大和补充现有的宽带容量。这将进一步扩大微型、中小型企业的能力，促进在线学习、电子商务和金融科技发展。”
 
-报道援引该官员的话称，在这起事件中，上校因伤势过重而死亡。这似乎揭示了俄罗斯军队士气低落的问题。
+SpaceX是少数几家通过近地轨道卫星网络支持高速互联网服务的公司之一。星链网络旨在为偏远地区或在自然灾害期间通信中断时提供互联网接入服务。这样的卫星互联网系统将信号从大气层发射给地面上的天线接收器。
 
-一位西方官员告诉天空新闻记者黛博拉·海恩斯：“其中一个旅的长官是被自己的所在旅杀死的。因为他的旅损失惨重。我们认为他是被自己的部队故意杀害的。” 他无法确认上校名字的拼写，但写成 Col Yuri Medvechek。
+根据SpaceX的数据，星链的数据传输速度从100Mbps到200Mbps不等。这种高速连接以前是不可能通过传统卫星互联网实现的。SpaceX是此类技术的领跑者，自2020年末以来，该公司已在全球范围内为星链测试版签约了10万多名用户。星链提供互联网接入服务的国家包括美国、英国、加拿大、澳大利亚、新西兰和墨西哥。
 
-“事实上，我们相信他被自己的部队所碾压。我相信他是第 37 摩托化步兵旅的指挥官，”这位官员补充说。
+亚马逊也在开发自己的卫星互联网，名为Kuiper Systems，但尚未将任何卫星送入轨道。
 
-早些时候，有报道称一名拼写为Medvechek的上校被他的下属碾过。虽然他活了下来，但他的双腿都断了。
+信息来源：[**SpaceX****将在菲律宾推出星链服务**](https://www.163.com/tech/article/H3RRANH800097U81.html)
 
-据乌克兰记者 Roman Tsymbaliuk 报道，在其 1,500 名步兵中有超过一半在战争中丧生后，这个饱受摧残和疲惫不堪的旅队感到不安。
-
-报道没有说明驾驶坦克的士兵后续如何。
-
-注：本文仅代表作者观点。
-
-原文链接：
-[https://reurl.cc/pWzx24](https://reurl.cc/pWzx24)
-
-校对：妙喜小油鍋
-发布：文曦
-
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
