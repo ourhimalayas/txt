@@ -2,32 +2,39 @@
 ---
 
 
-## 俄罗斯入侵前中共曾对乌克兰发动大规模网络攻击
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2275966/)
+## 报道称: 在伤亡惨重后，焦虑不安的俄罗斯军队转向自己的指挥官并将他撞倒
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2276137/)
 
-作者：华盛顿DC农场 – 自由信仰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体4月1日报道，根据情报，在俄罗斯入侵之前，中共对乌克兰的军事和核设施发动了大规模网络攻击。
+**翻译：【日本东京方舟农场】流浪的蝼蚁**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-5.jpg)
+免责声明：不论在实地或网上，有许多关于乌克兰-俄罗斯冲突的声明和反声明。虽然 WION 非常谨慎地准确报道这一发展中的新闻报道，但我们无法独立验证所有声明、照片和视频的真实性。
 
-乌克兰安全部门称，中共的攻击可以通过解放军网络战部队的商标工具和方法来区分。并说，中共的攻击旨在窃取数据，并探索关闭或破坏重要国防和民用基础设施的方法。他们渗透了从边防部队到国家银行、铁路局等基础设施。
+一位西方官员透露，俄罗斯军人驾驶坦克转向自己的指挥官并将其撞倒，该消息仍有待确认。
 
-从时间上看，在2月4日习近平与普京签署联合声明、宣布两国之间的纽带“无上限”之后不久，乌克兰就注意到来自解放军的网络攻击激增，在2月23日，俄罗斯入侵乌克兰前一天，网络攻击达到顶峰。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-1.jpeg)（图片来源：wionews.com）
 
-分析人员称，这种时间上的巧合，表明俄罗斯和中共之间存在一定程度的勾结，这可能会促使西方国家对俄中关系的性质进行重新评估，甚至涉及两国在军事行动中相互支持的意愿，中共对俄罗斯支持的种类，以及这些支持是否会延长战争的时间等。
+报道援引该官员的话称，在这起事件中，上校因伤势过重而死亡。这似乎揭示了俄罗斯军队士气低落的问题。
 
-参考链接：
+一位西方官员告诉天空新闻记者黛博拉·海恩斯：“其中一个旅的长官是被自己的所在旅杀死的。因为他的旅损失惨重。我们认为他是被自己的部队故意杀害的。” 他无法确认上校名字的拼写，但写成 Col Yuri Medvechek。
 
-- [China accused of hacking Ukraine days before Russian invasion](https://www.thetimes.co.uk/article/china-cyberattack-ukraine-z9gfkbmgf)
+“事实上，我们相信他被自己的部队所碾压。我相信他是第 37 摩托化步兵旅的指挥官，”这位官员补充说。
+
+早些时候，有报道称一名拼写为Medvechek的上校被他的下属碾过。虽然他活了下来，但他的双腿都断了。
+
+据乌克兰记者 Roman Tsymbaliuk 报道，在其 1,500 名步兵中有超过一半在战争中丧生后，这个饱受摧残和疲惫不堪的旅队感到不安。
+
+报道没有说明驾驶坦克的士兵后续如何。
+
+注：本文仅代表作者观点。
+
+原文链接：
+[https://reurl.cc/pWzx24](https://reurl.cc/pWzx24)
+
+校对：妙喜小油鍋
+发布：文曦
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720.jpg)
 
-总编/编辑：飞虹
-审核：飞虹
-校正/发稿：海阔天空1
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
