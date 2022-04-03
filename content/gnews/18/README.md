@@ -2,27 +2,33 @@
 ---
 
 
-## 五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281428/)
+## 有声|波兰周刊大篇幅报道新中国联邦乌克兰救援活动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281491/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-7.jpg)
-图片来源：谷歌图片
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月29日，波兰周刊杂志TY-GOD-NIK刊发了对新中国联邦在波兰边境地区梅迪卡，开展的乌克兰难民人道救援行动的实地报道。
 
-《零对冲》四月三日报道：五角大楼的一名官员周五告诉国会，在乌克兰的数十个与美国有关的实验室中，没有任何一个具有“攻击性”生物武器。
+文章的题图是新中国联邦的巨型帐篷，以及战友与难民拥抱的照片。标题以醒目的红黑笔标识：我们是试图推翻中国共产党的新中国人，我们与乌克兰和波兰民族站在一起。文章记述了3月6日新中国联邦的团队将96名乌克兰儿童和他们的老师从乌克兰转移到克拉科夫，然后陪同前往西班牙巴塞罗那，并妥善安置食宿，以便与西班牙的非政府组织接洽一事。
 
-负责核、化学和生物防御计划的助理国防部长黛博拉·罗森鲍姆 (Deborah Rosenbaum) 对众议院武装部队小组委员会说：“我可以毫不含糊地告诉你，在乌克兰实验室中没有美国参与的进攻性生物武器。” 
+文章还详细介绍了新中国联邦是由郭文贵先生和史蒂芬·班农先生于2020年6月发起成立，正在努力建设一个没有中国共产党的国家，致力于建立中国一人一票的选举制度。文中写到，本次人道救援行动得到了法治基金的大力支持。法治基金的使命是揭露中共国政治、法律、商业和金融体系中无处不在的腐败，及揭露中共的无法无天、残暴和不人道行为。
 
-五角大楼通过其降低国防威胁署（DTRA) 资助乌克兰的实验室。 根据五角大楼上个月发布的一份情况说明书，自 2005 年以来，美国已“投资”2 亿美元“支持 46 个乌克兰实验室、卫生设施和诊断站点”。
+这是国际媒体首次以如此大的篇幅，详细、正面地报道新中国联邦、法治基金，以及正在进行的乌克兰人道主义救援工作。随着世界局势的风云变幻，新中国联邦人将以更出色的形象，更优秀的行动，登上国际舞台。
 
-莫斯科指责乌克兰在俄罗斯入侵时对五角大楼资助的秘密生物武器计划进行了紧急清理。 世界卫生组织表示，它建议乌克兰在入侵期间销毁“高威胁病原体”。
+文字版原文：[波兰周刊大篇幅报道新中国联邦乌克兰救援活动](https://gnews.org/zh-hans/2269862/)
 
-就美国方面来说，他们坚持认为，在乌克兰和其他前苏联国家的计划是旨在减少前苏联遗留下来的生物武器的威胁。 五角大楼官员在淡化实验室威胁的同时，还警告说，它们仍可能包含苏联时代的生物武器。
+音频处理：Fei797
+发稿：Fei797
 
-降低囯防威胁署合作减少威胁项目主任罗伯特·波普 (Robert Pope) 在 2 月份告诉《原子科学家公报》，这些实验室可能包含苏联生物武器，并警告说乌克兰的战斗可能导致危险病原体的释放。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-原文链接：[https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons](https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

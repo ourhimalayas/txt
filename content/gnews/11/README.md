@@ -2,35 +2,28 @@
 ---
 
 
-## 【商见你我他】第48期新闻简讯（三）
-` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2281611/)
+## 有声|中共前司法部长傅政华被双开
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281706/)
 
-编辑：波士顿五月花—DM，cici
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7fbe43a8c1d4b93d.jpg)
-让我们关注几条新闻资讯，
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间3月31日，中共的中纪委国家监委网站发布公告，前司法部长傅政华被开除党籍及公职。公告指出，傅政华政治野心极度膨胀，参加前公安部副部长孙立军的政治团伙，危害党的集中统一。
 
-1）上海全封官方深夜宣布全域静态管理
+中共给傅政华列出的罪名还包括：从未真正忠诚于党和人民；政治品行极为卑劣，为达到个人政治目的不择手段；拉帮结派，结党营私；弄虚作假、欺瞒中央；妄议党中央大政方针；长期违规领用和携带枪支；贪婪腐化，大搞权钱交易，非法收受巨额财物等。总结来看，傅政华似乎犯下了所有中共高官都做过的所有事情。
 
-上海继已分两批次封控后，官方3月30日深夜宣布，采取“全域静态管理”、全员核酸筛查、全面疫调排查、全民清洁消杀等综合措施。市领导提出，筛查期间落实“人不流动、足不出户”，确保“不漏一户、不落一人”。目前上海已经进入完全封城状态。
+文字版原文：[中共前司法部长傅政华被双开](https://gnews.org/zh-hans/2274882/)
 
-2）中共国最大银行预测 未来艰难
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-3月29日，中共最大的五家银行表示，中共国银行今年面临多重不利因素，包括疫情、全球政治和国内房地产行业的动荡。周三，全球最大的银行中国工商银行在其年度收益报告中称，中共国面临需求萎缩、供应中断和预期减弱。
+音频处理/发稿：Daxia
 
-3）中共前司法部长傅政华被双开
-
-台媒3月31日报道，中共中纪委国家监委网站发布，已落马的前司法部长傅政华被开除党籍和公职（双开）。调查指他政治野心极度膨胀，参加前公安部副部长孙立军的政治团伙。并对傅政华严重违纪违法问题进行了立案审查调查。
-
-4）欧盟正准备新的对俄制裁 或就以卢布支付天然气要求进行报复
-
-外媒3月30日报道，据欧盟消息人士周三表示，欧盟执委会正准备就俄罗斯入侵乌克兰而对克里姆林宫实施新的制裁，新措施的力度取决于俄罗斯对以卢布支付天然气的立场。
-
-审核：DM/Nanfeng99
-
-发布：DM
-
-封面图片：DM
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

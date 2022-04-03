@@ -2,35 +2,44 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281547/)
+## 樱花深度报道┃中欧峰会：让我们谈一谈乌克兰战争！（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2281603/)
 
-作者：香草山翻译部
+编译：东京樱花团/Hopkins
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+【编者按】2022年4月1日，中欧峰会视频会议如期举行，这次会议充满分歧，中共领导人希望是一场“以贸易为重点的传统峰会”，而回避中共侵犯人权问题，欧洲领袖们“在峰会上提出人权问题，涉及诸如中国对新疆、西藏和香港的铁腕统治等棘手话题。还提出中国对台湾的威胁，台湾是中国声称拥有的民主岛屿。”当然“俄罗斯入侵乌克兰”是双方不可回避的话题。4月2日出版的《经济学家》杂志，以”We need to talk about Ukraine”为题发表了“中欧峰会”的专题文章。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中欧峰会：让我们谈一谈乌克兰战争！（下）.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-1.png)
+（图片说明）欧盟委员会主席冯德莱恩、欧洲理事会主席米歇尔2022年4月1日以视频方式与中国领导人习近平会谈（Xinhua via AP）
 
-文章仅代表作者本人观点，与Gnews无关
+一个早期的想法是在峰会之前举行一场拖延已久的高级别人权对话。外交官说，中国恢复这些对话的开价很高。中国要求，欧盟及其成员国必须停止支持在联合国人权理事会等全球论坛上针对中国侵犯人权的多国协调声明。很快就被拒绝了。相反，米歇尔先生和冯德莱恩女士在峰会上提出人权问题，涉及诸如中国对新疆、西藏和香港的铁腕统治等棘手话题。两人还提出中国对台湾的威胁，台湾是中国声称拥有的民主岛屿。
 
-视频参看：
-[2022.04.03早 《NFSC新闻》](https://www.gettr.com/streaming/p13cdp658c9)
-[2022.04.03早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13cemm3a50)
+中国通过一系列文件签署来纪念峰会的希望也破灭了。这将涉及在各种海关和贸易规则方面取得进展。欧洲其他政府也同意，只要欧盟成员国立陶宛因与台湾建立准官方关系而受到中国贸易抵制，这样的文件就不会签署。事实上，人们预计米歇尔先生和冯德莱恩女士将表达欧盟对中国热衷于经济胁迫的担忧。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+但最重要的是，这次峰会被视为传递有关乌克兰信息的机会。这涉及寻求并确保与习先生进行视频通话，习先生是外交政策事务的最终决策者。峰会前的谈判很紧张。欧洲人解释说，习近平会听到一个警告：如果中国帮助普京绕过西方对俄罗斯的制裁，或提供军事援助，中国将面临严重代价。中国官员曾经先发制人地指示欧洲人不要威胁他们的领导人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
+**不同观点的预测**
 
+欧洲不习惯与中国谈论战争与和平。 “我们的关系建立在贸易和经济的基础上，这让我们非常投机取巧，”一位欧洲驻北京外交官说。中国说他们是在帮助欧洲，他们辩解了预计西方将如何成为乌克兰冲突的输家。中国官员向驻北京大使吹嘘说，他们看到欧盟在新老成员国之间存在分歧。这些中国人还预测，欧洲和美国之间的跨大西洋团结将会瓦解，制裁将无法打破俄罗斯的意愿，尤其是在欧洲选民抗议高能源价格和来自乌克兰的难民潮的情况下。
+
+中国人对西方不团结的欢欣鼓舞似乎是有效果的：但是只有证明他们的观点是错误的才是欧盟对华战略的新起点。正如第二位外交官所说：“中国正在密切关注我们的俄罗斯政策：我们愿意承受多大的痛苦。欧洲正在证明我们是团结的，愿意付出代价。”他补充说，赌注很高。阻止中国对台湾的潜在攻击需要证明西方有能力团结和决心。
+
+中国国内的其他声音是敦促冷静。他们指出，中国需要欧洲进入市场，作为技术和投资的来源，尤其是在中国与美国的关系岌岌可危的情况下。一些欧洲最大的公司在中国拥有利润丰厚的业务，他们不会放弃这些业务。据外交官称，没有迹象表明中国会规避对俄罗斯的制裁。但普京正试图用武力重新划定欧洲的边界，而习近平不会谴责他。这是对欧盟创始原则的直接挑战。这种情况不能继续下去。普京的行动已经向欧洲表明，欧洲需要一个新的对华政策。 ■
+
+（全文完）
+
+信息来源：
+[The war makes China uncomfortable. European leaders don’t care](https://www.economist.com/china/2022/04/02/the-war-makes-china-uncomfortable-european-leaders-dont-care)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
