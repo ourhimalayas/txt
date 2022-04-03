@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 9:55 AM (UTC)`
+
+<br/>【Ukraine Rescue】04/01/2022 Fellow Fighter Nicole: Before the pianist left for Lviv, he got to know the story of  Miles Guo and the New Federal State of China (NFSC) through conversations with fellow fighter Wen ke. He was deeply touched by the stories and found them incredible. The days he spent with the new Chinese from the NFSC have changed his opinion on the NFSC. He now openly supports the NFSC. Hopefully, the little pinkies inside the great fire wall that have been brainwashed by the CCP will also be woken by our story and can stand up against the dictatorial tyranny of the CCP.<br/><br/>【乌克兰救援】04/01/2022 战友妮可：钢琴家上更前线的利沃夫之前，听文科讲述了郭文贵先生和新中国联邦的故事后感觉不可思议。与新中国联邦的新中国人愉快相处的日子，从用音乐支持变成对新中国联邦的公开支持。希望墙内被中共洗脑的小粉红了解我们的故事也能醒过来，站起来反抗中共独裁暴政。
+![img](https://media.gettr.com/group44/getter/2022/04/03/09/87a3c29e-2d11-ef13-c4be-14226b2bcd03/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayadcfarm 4/2/2022 4:48 PM (UTC)`
@@ -153,13 +160,6 @@ The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iro
 
 MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Mission
 ![img](https://media.gettr.com/group50/origin/2022/04/02/16/4779c7f3-6caa-cfce-0e8d-08be68295507/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 3:25 PM (UTC)`
-
-【Ukraine Rescue】03/31/2022 A volunteer from Taiwan, a Ukraine refugee himself, join our NFSC Ukraine Rescue Operation site in Medyka, Poland. He told us that as someone who has been working and studying in Ukraine for 8 years, he can feel the pain that all the Ukrainian people are going through more directly and personally. This motivated him to join the NFSC Ukraine rescue team. He hopes to, together with other fellow fighters, help more Ukraine refugees who escaped from the war-torn country.<br/><br/>【乌克兰救援】03/31/2022 来自台湾的志愿者，自己也是一名乌克兰难民，加入了我们在波兰梅迪卡的乌克兰救援行动现场。他告诉我们，作为一个在乌克兰工作和学习了8年的人，他能更直接、更切身地感受到所有乌克兰人民正在经历的痛苦。这促使他加入新中国联邦乌克兰救援队。他希望与其他战友一起，帮助更多从这个战乱国家逃出来的乌克兰难民。<br/><br/>
-![img](https://media.gettr.com/group31/getter/2022/04/02/15/9d39e64c-3e0b-5e6c-9871-d2f0534c65bc/out.jpg)
 
 ---
 
