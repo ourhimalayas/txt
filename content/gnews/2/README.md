@@ -2,11 +2,11 @@
 ---
 
 
-## 所有海外华人所面临的危险（九）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279150/)
+## 中国男人可以有很好的形象（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279196/)
 
 **PPT制作：0-0 ；rmrf**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-928935-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-838-841-3.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

@@ -2,22 +2,26 @@
 ---
 
 
-## 救援营地的盖特直播 正在打造全球最棒的媒体平台
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2278387/)
+## 盖特注册用户数在 3 月份经历了 34% 的爆炸性增长
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2278396/)
 
-撰稿：美东香草山-飞虹
+撰稿：美国纽约香草山农场- Delilah小胖
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
-4月1日，在波兰救援基地的直播连线中，明道战友详细介绍了我们新中国联邦媒体和主流媒体的差异。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-218.png)图片来自：https://media.gettr.com/
-传统的主流媒体往往只注重一些新闻事件的闪光点，不仅片面、偏颇，而且往往蜻蜓点水，难以给观者带来全面的信息，不能跟新中国联邦的媒体相提并论。我们是通过24小时的盖特直播，全方位报道救援前线的动态，这种全面和深入是传统媒体无法比拟的。新中国联邦正在打造和成就着一个全球最棒的媒体平台——盖特！
+据盖特官方账户3月31日报道，3月从月初到月底，以言论自由著称的社交媒体平台——盖特——的注册账户数激增了 34%。为此，盖特首席执行官杰森·米勒先生说：“人们每天都会意识到，硅谷寡头是言论自由的敌人，这对盖特来说每天都是好消息。因为我们是一个致力于言论自由的平台。我们的用户知道他们不会因为他们的政治观点而被审查或取消，这吸引了所有政治派别的人。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-219.png)
+盖特还提供了一些社交媒体平台可用的最佳功能，包扩Vision。这是一个目前处于产品测试阶段的短视频选项，它将整合TikTok和Instagram的功能。盖特还将很快扩大对实时流媒体的访问，并推出加密的直接消息，为内容创作者提供在线观看和小费打赏功能，以及基于双币种数字加密货币的支付系统。
 
-参考链接：[https://gettr.com/post/p13528y5821](https://gettr.com/post/p13528y5821)
+“用户来到 GETTR 是为了体验社交媒体上真正的言论自由是什么样的，他们留下来是因为这里的用户体验更好，”米勒说，“我们的技术更好，参与度更高，人们在盖特上相互交流更有趣。”
+
+该平台目前在全球拥有500万注册用户，并在2022年实现了50%的惊人增长。
+
+参考链接：[PRESS RELEASE: #GETTR experiences explosive 34 percent growth in March](https://gettr.com/post/p12vvfqa400)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM-1.png)
 
-总编：飞虹
+编辑总编：飞虹
 
-校对/发稿：浪迹天涯
+审核：Ivy001
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
  
 
