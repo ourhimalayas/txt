@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 8:54 PM (UTC)`
+
+2022.04.03  新中国联邦 | 喜健康   新变种BA.2在前线战友中的感染和治疗
+![img](https://media.gettr.com/group33/origin/2022/04/03/20/8ee9c9b6-5e04-365b-9532-56a90fff342f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 6:38 PM (UTC)`
 
 2022-4-3 “不完美，又如何？” #小小尼莫音乐会，第五期🎼，#littlenemoconcert，一起成长，破茧成蝶
@@ -152,13 +159,6 @@ H-Pay是打开世界金融盒子的密码，是新中国联邦走向世界财富
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-02<br/>For English @Gtranslators_1
 ![img](https://media.gettr.com/group35/origin/2022/04/02/21/7c03a0ae-e94e-1efe-8749-4d514e04b76d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 9:48 PM (UTC)`
-
-The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iron birds, how are children's once hopeful eyes filled with despair.<br/><br/>Train stations are crowded with farewells, and lovers who’ve vowed to grow old together are waving possible last goodbyes.<br/><br/>While Kiev was shrouded in fear, the people of the NFSC gathered together to bring love, peace, joy, and faith back to earth.<br/><br/>NFSC’s white tent at Medyka is a beacon of light in the darkness. Himalaya’s way, the hope of humanity.<br/><br/>《梅迪卡的白色帐篷》<br/><br/>这天空怎么就突然布满了黑色铁鸟，孩子的眼中怎么那么迷茫。<br/><br/>车站到处都是最后的告别，情侣道出了再见，可能再也不见了。<br/><br/>基辅的空气只有恐惧笼罩，此时新中国联邦人聚集在一起，把美好，爱，温暖，和平，快乐，信仰重新带到人间。<br/><br/>新中国联邦的帐篷一定会唤醒人间的正义！
-![img](https://media.gettr.com/group26/origin/2022/04/02/21/eb9c146b-c3a5-5828-4342-c566fadb8bbd/out.jpg)
 
 ---
 
