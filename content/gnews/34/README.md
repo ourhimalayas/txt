@@ -2,34 +2,29 @@
 ---
 
 
-## 一则备忘录显示美国政府知晓中共病毒来自武汉
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279842/)
+## 巴西放宽对国际旅行者的Covid相关限制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2279843/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/C53A47B8-ADB1-4769-90F6-B58EDB1DC93F_w1200_r1.jpg)
-近日一份被曝光的备忘录显示，早在2020年疫情初期，美国政府非常清楚中共病毒来自武汉实验室，而并非是海鲜市场以及来自自然的蝙蝠。
+**撰稿：日本东京方舟农场  JIHO**
 
-这份通讯录是军方使用的通讯方式，它表明尽管没有直接证据，但有大量的间接证据证明中共病毒来自武汉病毒研究所。武汉病毒研究所对致命病毒和携带病毒的实验室动物管理存在严重的工作疏忽。在中共病毒大流行期间，武汉卫生厅和武汉病毒研究所坚称中共病毒来自自然，并大肆进行毫无意义的收集和测试大量蝙蝠的工作，以误导大众。臭名昭著的中共石正丽和Peter Daszak纷纷为这种误导站台，配合中共阻止国际社会合理要求对中共病毒进行的溯源调查。
+根据路透社4月2日消息，巴西卫生机构Anvisa周六发布了一套针对入境国际旅客的新规则，随着南美国家健康危机的缓解，巴西放宽了与CCP病毒大流行病有关的限制。
 
-备忘录称所有的错误理论，如中共病毒来自海鲜市场，或者来自自然蝙蝠，这些理论的提出本身就是一种阻止溯源调查的超限战手段。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-34.png)（图片来自GETTY IMAGES）
 
-reference：
+按照新规，在接种两剂或单剂CCP病毒疫苗后，根据疫苗的类型，旅行者被认为已经完全接种。Anvisa说，该疫苗接种必须在出发日期前至少14天完成。
 
-[https://newstarget.com/2022-04-02-memo-covid-most-likely-escaped-wuhan-lab.html](https://newstarget.com/2022-04-02-memo-covid-most-likely-escaped-wuhan-lab.html)
+所有入境的外国人或巴西人只需出示电子版或打印版的疫苗护照，无需再进行检测即可入境巴西。
 
-撰稿、发布：骄子
+未完全接种CCP病毒疫苗的旅客，只要他们是巴西人和居住在巴西的外国人，必须出示CCP病毒的测试，测试结果为阴性或无法检测的可以入境。
 
-* * *
+该机构还指出，居住在国外且未完全接种疫苗的外国人仍被禁止进入该国，但在声明中没有详细说明例外情况。
 
-欢迎订阅我们的GNews账号：
+参考链接：
+[https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/](https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+总编：老孙
+校对发布：爱放飞
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

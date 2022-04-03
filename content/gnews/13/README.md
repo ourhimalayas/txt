@@ -2,54 +2,77 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.3）&#8211;打疫苗后抵抗力下降
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2280994/)
+## 关于从上海市转运人员至杭州市等6个地市集中隔离的通知
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2281066/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/封面.jpg)
+声明：本文图片均转自网络，无法对真实性负责，本文原文刊登目的在于让更多人了解上海和中共国正在发生的中共病毒真相，同时本文撰稿及发布人员均与图片中微信群及微信发言人无直接关联，怨有头债有主，敬请相关部门不得对图片涉及微信群及微信发言人骚扰，因为这个世界需要知道真相，也因为这场灾难事关我们所有人。
 
-整理/编辑：BENJ1
+以下为图片及对应文字，图片一——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/001.jpeg)
+特急
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-181.png)图片来源：雅典娜设计组(614)
+**关于从上海市转运人员至杭州市等****6****个地市集中隔离的通知**
 
+**杭州市、宁波市、湖州市、绍兴市、金华市、台州市新型冠状**
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+**病毒肺炎疫情防控工作领导小组：**
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+根据党中央、国务院部署，按照国家应对新型冠状病毒肺炎疫情联防联控机制统筹安排，为助力上海市做好新冠肺疫情应急处置工作、经省新型冠状病毒肺炎疫情防疫组同意，决定由杭州市、宁波市、湖州市、绍兴市、金华市、台州市为上海市密接、次密接等提供储备隔离场所。其中，计划向杭州市和宁波市各转运10000人、向湖州市和台州市各转运2000人，向绍兴市和金华市各转运3000人。杭州市和宁波市须于4月3日中午12时前做好首批各5000人的隔离准备工作。
 
-帖子原文：
+□□□□□□提高政治站位，主动担当作为，市级层面立即成立工作专班，按照“标准更高、管理更严、服务更暖”的要求，着手做好集中隔离场所各项准备工作。每个隔离场所均要设立专班，培训工作人员，规范做好防控消毒、健康观察、安全保卫、后勤保障、人员转运等各项工作，杜绝发生交叉感染和风险外溢。此外，每个上海转运集中隔离场所均派驻1名属地卫生监督人员，做好日常指导工作。
 
-之前很少生病，疫苗打完容易生病吗？为啥体质下降了
+□□□□□□□□各明确1名联络员，于4月3日让午1：00前□□□□□□我办。
 
-#生病 #新冠疫苗 #疫情下的生活
+\*\*\*\*\*\*\*图片1文字内容引用完毕\*\*\*\*\*\*\*
 
-精选评论：
+图片二——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本.jpg)
+A：不看演唱会么
 
-[没有底的深水潭](https://www.xiaohongshu.com/user/profile/61cc26ed000000001000f126) 回复：
+B：刚刚护士小姐姐和我说，黄浦区80000多的采样，阴的管子只有700多个，太吓人了。
 
-喵后最严重副反应之一……
+A：真的假的，我也看到了
 
-[楠楠](https://www.xiaohongshu.com/user/profile/5cd514b9000000001002ee58) 回复：
+B：刚刚护士小姐姐告诉我的
 
-都是这样，抵抗力下降了
+\*\*\*\*\*\*\*图片2文字内容引用完毕\*\*\*\*\*\*\*
 
-[蓝色妖姬](https://www.xiaohongshu.com/user/profile/5f796ed6000000000100b351) 回复：
+图片三——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/003_副本.jpg)
+A：定调了坚持清零，你开会开好了？参照武汉模式，一个省负责一个区，上海领导全面退出
 
-之第三针之后，怀孕空囊，发烧出水痘，我可是几年都没发过烧的人即使是流感季节，身边的人都得了，我都不会有，不敢说没有影响，看个人，如果不是被迫去打，在我这里山卡拉的地方谁打
+B：输掉啦？
 
-[也有](https://www.xiaohongshu.com/user/profile/5ff77d11000000000100aa94) 回复：
+A：嗯
 
-打完第三针后抵抗力下降了爱感冒了，以前好几年都不感冒一次
-![](https://assets.gnews.org/wp-content/uploads/2022/04/https-www-xiaohongshu-com-discovery-item-6247d47c000000002103bd5c-share_from_user_hidden-true-xhsshare-CopyLink-appuid-593bc86450c4b43662c38691-apptime-1648986760.png)图片来源：小红书
-参考链接:
+B：好吧…
 
-[接种疫苗后抵抗力下降](http://xhslink.com/fPgbzg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+A：接下来管制了，上海完蛋了，没人可以被放出来，决战5月1号
 
-发布：tianzhihuan
+\*\*\*\*\*\*\*图片3文字内容引用完毕\*\*\*\*\*\*\*
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

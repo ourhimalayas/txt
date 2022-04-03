@@ -2,22 +2,20 @@
 ---
 
 
-## 中共通过俄罗斯出口欧洲的计划遭遇重创
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279827/)
+## 一则备忘录显示美国政府知晓中共病毒来自武汉
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279842/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/im-515795.jpeg)
-据外媒报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C53A47B8-ADB1-4769-90F6-B58EDB1DC93F_w1200_r1.jpg)
+近日一份被曝光的备忘录显示，早在2020年疫情初期，美国政府非常清楚中共病毒来自武汉实验室，而并非是海鲜市场以及来自自然的蝙蝠。
 
-尽管欧盟尚未正式禁止俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
+这份通讯录是军方使用的通讯方式，它表明尽管没有直接证据，但有大量的间接证据证明中共病毒来自武汉病毒研究所。武汉病毒研究所对致命病毒和携带病毒的实验室动物管理存在严重的工作疏忽。在中共病毒大流行期间，武汉卫生厅和武汉病毒研究所坚称中共病毒来自自然，并大肆进行毫无意义的收集和测试大量蝙蝠的工作，以误导大众。臭名昭著的中共石正丽和Peter Daszak纷纷为这种误导站台，配合中共阻止国际社会合理要求对中共病毒进行的溯源调查。
 
-世界大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路德国内陆港口杜伊斯堡的海运保险公司也宣布不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
-
-自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
+备忘录称所有的错误理论，如中共病毒来自海鲜市场，或者来自自然蝙蝠，这些理论的提出本身就是一种阻止溯源调查的超限战手段。
 
 reference：
 
-[https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
+[https://newstarget.com/2022-04-02-memo-covid-most-likely-escaped-wuhan-lab.html](https://newstarget.com/2022-04-02-memo-covid-most-likely-escaped-wuhan-lab.html)
 
 撰稿、发布：骄子
 
