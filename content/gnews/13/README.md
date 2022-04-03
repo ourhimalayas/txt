@@ -2,32 +2,42 @@
 ---
 
 
-## 【圆成原创】我们是消灭中共的新中国联邦人
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2280656/)
+## 有声|美欧国家继续给予乌克兰武器装备支持
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2280969/)
 
-**作者：天空的鸿雁**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+国外媒体报导，4月1日，德国国防部批准运送58辆步兵战斗车给乌克兰。这些战车战斗车配备了加农炮和机枪，原属前东德所有。
 
-国内疫情为什么都集中在北上广深？其它地区国内媒体怎么不那么重视报道？除香港以外、特别是上广深的报道 ，北上广深是中共国对外的政治、经济和社会的窗口，如今这样的报道说明了什么？
-![](https://assets.gnews.org/wp-content/uploads/2022/03/FF1270D9-70D6-44AE-916C-FCC0C63AA79E.png)图片来源：新中国联邦战友
-另外，这些城市都集中在沿海地区，多种因素综合考虑。过不了多久应该要有什么事发生吧！
+据悉，柏林在 1990 年代末将这些战斗车转让给了瑞典，瑞典后来将它们卖给了一家捷克公司，该公司现在打算将它们卖给基辅。而各国自德国取得的武器若欲转卖他国，必须先向德国当局申请批准。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-222.png)图片来自：https://mil.in.ua/
+同一天，一名美国官员说，应乌克兰总统泽连斯基的要求，美国将与盟国合作，将苏联制造的坦克转移到乌克兰，以加强其在顿巴斯地区的防御。
 
-别忘了、这一切的信息都掌握在政府手里，真实的情况被压制屏蔽，按照中共国的一贯风格，说你有你就有，没有也是有，说你没有就没有，有也是没有！指鹿为马撒谎成性，倾巢之下岂有完卵？
+与此同时，白宫透露，美国也在向乌克兰提供一些其他物资和设备，以防俄罗斯在乌克兰部署化学或生物武器。
 
-现如今中共国政府内部，帮派林立犬牙交错，相互之间争权夺利相互厮杀，这已经是个不争的事实，对于民生百姓来说他们根本就没有想过也顾不上，从上到下无不如此。
+尽管还没有直接证据表明俄罗斯一直在策划这样的袭击，但除美国之外，欧美也启动了一项储备行动，以加强对化学、核和生物事件的防御。
 
-这两个阶层群体之间在利益上存在着不可调和的矛盾，在资源分配和社会分享利益的问题越发严重，官不管民生，民不拥戴官府，民众心里都有一团怒火，就差一个火花去点燃！
 
-新中国联邦、秉承天意，顺应时代民心，我们是消灭中共的新中国联邦人！
 
-**编辑：LILY**
+文字版原文：[美欧国家继续给予乌克兰武器装备支持](https://gnews.org/zh-hans/2278437/)
 
-**发布：歪桑**
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-20220403
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,30 @@
 ---
 
 
-## 樱花FM┃德国对俄罗斯经济命脉再出重拳
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2280775/)
+## 樱花时政┃哈萨克斯坦反水俄罗斯
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2281023/)
 
-音频：东京樱花团/战友520
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+哈萨克斯坦副参谋长苏莱梅诺夫近日指出，哈萨克不会成为俄罗斯规避美国和欧盟制裁的工具，将遵守制裁。不会承认俄罗斯占领乌克兰领土后的主权，只会尊重联合国的决定。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/040313.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-18.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Feurasianet.org%2Fsites%2Fdefault%2Ffiles%2Fstyles%2Farticle%2Fpublic%2F2022-03%2F72819470_1720879854723059_370092044791578624_n.jpeg%3Fitok%3DaJ1n8Blg&amp;imgrefurl=https%3A%2F%2Feurasianet.org%2Fkazakh-spi)
 
-据乌克兰多媒体新闻平台报道：德国外长贝尔博克3月30日在德国外交部组织的“柏林能源转型对话”论坛上发表了讲话，她说俄罗斯对乌克兰的入侵不仅使数百万人遭受痛苦，而且使欧洲明白，这场战争也关系到了21世纪的地缘政治和具体的安全保障问题，现在至关重要的是必须完全脱离从俄罗斯化石燃料的进口。
+据外媒报道,哈萨克斯坦副参谋长苏莱梅诺夫（Timur Suleimenov）近日指出，虽然我们和俄罗斯、白俄一样，是欧亚经济联盟成员，但我们也是国际社会的一员，我们不希望美国和欧盟对哈萨克斯坦实施二级制裁，因此我们必须向欧洲的伙伴证明，哈萨克不会成为俄罗斯规避美国和欧盟制裁的工具。我们将遵守制裁。
 
-德国外长贝尔博克还表示，虽然德国在短期内将继续从其他国家进口天然气和石油，但从长期的角度来看，最终的目标将是从进口能源过渡到本国的自身可以实现的再生能源。
+苏莱梅诺夫还强调，哈萨克斯坦在乌俄战争中保持中立立场并向乌克兰提供人道主义援助，我们尊重乌克兰的领土完整、不会承认俄罗斯占领乌克兰领土后的主权，我们只会尊重联合国的决定。
 
-自冷战结束，东德和西德统一之后就与俄罗斯成为了战略伙伴关系。而其中最重要的因素之一就是能源。德国需要俄罗斯的能源，俄罗斯需要德国的能源基础设施的投资。但随着俄国一系列的侵乌武装行动，两国关系开始变得消极。从德国取消在德国的俄罗斯电台，到进口俄罗斯石油量减半到最终的取消进口。不难看出，德国以重新整理了政治立场将与欧盟并肩从银行、石油等方面一步步对其进行全面制裁。而俄罗斯一向用能源制衡欧盟的目的被打碎，用能源经济支持国内经济和战事的情景显而易见以很不乐观了。
+信息来源：[俄羅斯小弟反了？哈薩克倒戈：尊重烏克蘭主權、不替普丁規避制裁](https://www.ettoday.net/news/20220403/2222186.htm?from=rss)
 
-文字版原文：
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-
-| [樱花时政┃德国对俄罗斯经济命脉再出重拳](https://gnews.org/zh-hans/2257350/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
