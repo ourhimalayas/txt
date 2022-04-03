@@ -2,30 +2,33 @@
 ---
 
 
-## 有声|联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277114/)
+## 【G时新闻】乌克兰总统称俄军正撤离乌克兰北部
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2277139/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+##### 播  报：加拿大温哥华扬帆农场 -【七彩虹】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据美国有线电视新闻网（CNN）报道，泽连斯基周五（4月1日）在视频讲话中说：“占领者（俄军）正从我们国家北部撤离。整个撤离行动缓慢但显而易见。他们在部分地区战役中被驱离，其他地区则出现他们自行离开的情况。”
 
-3月30日，联合国人权事务负责人表示，正在调查俄罗斯使用集束炸弹的攻击行为。此前一天，联合国人权理事会任命挪威籍法官摩斯，率队调查俄在乌克兰犯下的战争罪行。
+泽连斯基呼吁身处北部的乌克兰民众在俄军撤离之际要保持警惕。
 
-人权事务专员巴切莱特说，乌克兰的医院、供水设施和行政大楼等民用建筑遭到袭击，大量平民伤亡，这些令人发指的攻击，可能与联合国人权事务工作人员正着手调查的24起俄军使用集束炸弹的指控有关。巴切莱特强调，俄罗斯的袭击违反了国际人道法，涉嫌构成战争罪。据悉，集束炸弹又称子母弹。其特点一是杀伤面积过大，容易波及平民。二是因为弹药量多，出现未爆炸弹药，在战后数十年内仍有可能伤及无辜。
+他说：“我们要谨慎向前挺进，所有回到这里（乌克兰北部）的民众要非常小心，目前还不可能恢复正常生活。你们必须等待直到战场清理干净为止，同时确保不再出现新炮火。”
 
-文字版原文：[联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行](https://gnews.org/zh-hans/2270741/)
+泽连斯基表明，乌东地区情势依旧非常艰难。乌军已准备好，应对俄罗斯在顿巴斯第五和第二大城市哈尔科夫发动更多进攻。
 
-音频处理/发稿：Daxia
+盖特链接：[https://gettr.com/post/p137qh1351a](https://gettr.com/post/p137qh1351a)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

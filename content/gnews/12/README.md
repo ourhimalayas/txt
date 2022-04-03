@@ -2,29 +2,26 @@
 ---
 
 
-## 今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277121/)
+## 中共央行将数字人民币试点计划扩展到更多城市
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2277159/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-5.jpg)
-**盖特链接**： [https://gettr.com/user/repmattgaetz](https://gettr.com/user/repmattgaetz)
+**撰稿：日本东京方舟农场 JIHO**
 
-**众议员马特·盖茨自述：**
+根据路透社4月2号 消息，中共国央行周六表示，将进一步将其数字货币试点计划扩大到更多地区，包括将于今年九月份举办亚运会的浙江省包括省会杭州的六个城市。
 
-国会议员马特·盖茨（Matt Gaetz）的官方GETTR。骄傲的保守派，很荣幸为佛罗里达州第一区服务。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a0wqp-mvddb-1.jpg)图片来源：网络
-**众议员马特·盖茨简介：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0.png)图片来自路透社
 
-马特·盖茨全名马修·路易斯·盖茨二世（Matthew Louis Gaetz II，生于1982年5月7日）是美国律师和政治家。
+根据一份在线声明，中国人民银行（PBOC）表示，将推动被称为e-CNY的数字货币的研发，并扩大试点计划的范围，将天津、重庆、广州、福州、厦门和浙江沿海6个城市将被加入现有的10个主要“试点”城市，以测试使用数字人民币。
 
-自2017年以来，马特·盖茨一直担任美国众议院议员，代表佛罗里达州第1选区。作为共和党人，他是前总统唐纳德·川普最重要的国会盟友之一。
+中国人民银行近年来加大了对数字货币的测试力度，希望以北京冬奥会为契机，推动人民币全球化。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 —彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+中国人民银行的声明还表示，2月份共同举办冬奥会的北京和张家口也将成为电子人民币的试点城市。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：
+[https://reurl.cc/Y929zo](https://reurl.cc/Y929zo)
+
+总编：老孙
+校对发布：Linda
 
  
 

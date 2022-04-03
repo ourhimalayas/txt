@@ -2,27 +2,29 @@
 ---
 
 
-## 新中国联邦法治基金乌克兰救援现场
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2277071/)
+## 俄罗斯石油大亨：普京已陷入进退两难之地
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2277091/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-我们是消灭邪恶中国共产党的新中国人！！！
-take down the chinese communist party!!!
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
-**上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+据《德国之声》4月1日报导，俄罗斯石油大亨米哈伊尔·霍多尔科夫斯基（Mikhail Khodorkovsky）表示，俄罗斯总统普京发动对乌克兰的侵略战争一个多月后，陷入了进退两难之地。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-3.jpg)（图片来源：德国之声）
+报导称，俄罗斯侵乌战争至今已持续一个多月，由于乌克兰民众对入侵俄军做出顽强的抵抗，俄罗斯占领乌克兰全境的闪电计划完全落空，俄军处境也变得越来越不利。
+
+与此同时，西方国家还对俄罗斯实施了前所未有的严厉制裁。美国和英国开始禁运俄罗斯原油和天然气，而一系列俄罗斯银行也被排除在国际银行转账系统SWIFT之外。此外，很多欧洲国家政府已经在采取措施减少对俄罗斯能源的依赖程度。
+
+对此，霍多尔科夫斯基在接受采访时表示，目前普京已经陷入了僵局，他现在只有两个选择，要么进行战争动员或投入战术核武器，要么认真接受和谈。他强调说，此时西方必须明确立场，一旦普京动用战术核武器或其他大规模杀伤性武器，那么西方就会为乌克兰提供更广泛的支持，从而迫使普京做出正确的决策。
+
+霍多尔科夫斯基曾是俄罗斯首富，知名石油公司尤科斯的总裁，但由于他当众批评普京政府官员腐败严重而遭到普京报复，大量资产被没收，并身陷囹圄长达十年之久。
+
+参考链接：
+1. https://www.dw.com/zh//a-61328656
+2. https://reurl.cc/2D2Dkm
+
+编辑：海星
+总编：老孙
+校对发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

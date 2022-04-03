@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 1:08 AM (UTC)`
+
+2022.04.02 晚  新中国联邦 | 新闻访谈  上海残忍将新冠阳性儿童与父母分离；比尔·盖茨关联的中共影响力团体希望与美国农业官员合作；所罗门总理表示，不允许中共在本国建立军事基地
+![img](https://media.gettr.com/group9/origin/2022/04/03/01/9059ac32-835a-dd28-7d48-0b35268ac12e/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/3/2022 1:05 AM (UTC)`
+
+2022.04.02 晚  新中国联邦 | 新闻访谈  上海残忍将新冠阳性儿童与父母分离；比尔·盖茨关联的中共影响力团体希望与美国农业官员合作；所罗门总理表示，不允许中共在本国建立军事基地
+![img](https://media.gettr.com/group9/origin/2022/04/03/01/9059ac32-835a-dd28-7d48-0b35268ac12e/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/3/2022 12:31 AM (UTC)`
 
 2022.04.02 晚 《新中国联邦新闻》乌克兰救援营地形成国际互助大家庭；救援营地的盖特直播 正在打造全球最棒的媒体平台
@@ -140,20 +154,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 2022.04.02早《新中国联邦新闻》  
 ![img](https://media.gettr.com/group25/origin/2022/04/02/11/e9bfb832-2d46-7666-0ece-a642f4eeb0be/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/2/2022 8:45 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月1日第28天当日救援统计：<br/>Medyka救援站接待：约319人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8384人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 28 - Date: April 1, 2022 :<br/>Medyka Rescue Station Reception: about 319 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8384 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group7/getter/2022/04/02/08/02eb9c81-931f-8409-9007-21a001258789/a65fe3c70eb7c3c75e511d194cc7e237.jpg)
-
----
-
-`@miles 4/2/2022 8:37 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导 
-![img](https://media.gettr.com/group27/origin/2022/04/02/08/c6ca1231-576a-d10a-3481-86ca11b599c2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

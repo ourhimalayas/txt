@@ -2,40 +2,37 @@
 ---
 
 
-## 中国对俄出口受到西方制裁冲击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277202/)
+## 有声|疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277227/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
-
-整理：gardeniahu
-编辑：Mohegayer K. Simon
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/20-1.png)图片来源：雅典娜设计组
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-据大纪元2022年04月01日报导，俄罗斯因入侵乌克兰而受到西方制裁，正在产生连锁反应。尽管中共坚持挺俄，在卢布贬值之际，中国对俄罗斯的出口难免受到冲击。
 
-俄罗斯因入侵乌克兰受到制裁以来，在俄西方公司纷纷选择离开，以免受到制裁连带。而中国的跨国公司则选择留在了俄罗斯，不过大多是规模较小的公司，更容易受到汇率损失影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-01-223040.png)
+3月30日文贵大直播中，在谈到中共在疫情管控中执行所谓“清零政策”的背后动机时，主讲人如水战友指出，中共就是毒杀人民的元凶。被中共独裁政权奴役愚弄的14亿中国人，完全活在一场精心策划的庞氏骗局中而不自知，几辈人省吃俭用积攒的积蓄，被大量存入房地产、银行、医疗、养老、保险等领域，想老有所依、老有所养，这些浸染了无数人汗水鲜血的血汗钱，却被一帮盗国贼、欺民贼们所侵占、蚕食。中共效仿大跃进、文化大革命等方式，利用病毒、疫苗、全民核酸、建立集中营、方舱医院、封城、网络管控等卑鄙手段，以爱之名，欺骗毒害老百姓，目的是抽干人民的血汗钱，并将债主杀害，避免偿还欠下的巨额债务。把债主清零，债务也就自然清零。
 
-中国是俄罗斯最大进口来源国，根据海关数据，仅在1月和2月，中国就向俄罗斯出售了126亿美元的商品，主要是电脑、汽车、鞋子和玩具。俄罗斯受到制裁以后，卢布出现过山车式的波动。俄罗斯进口商和中国出口商都担心被套牢，并因此推迟业务。
 
-西方对俄罗斯祭出一轮又一轮的制裁，卢布兑美元和人民币的汇率都出现了巨大波动。其中，卢布兑人民币贬值超过40%，不过自3月9日的低点以来，俄罗斯货币已经反弹大约70%。卢布兑美元在入侵后的短短七个交易日内暴跌44%，但自3月7日的低点以来已飙升近90%，银行间市场交易价格约为81卢布兑1美元。
 
-俄侵乌以来，中共一直拒绝谴责俄罗斯在乌克兰的行动，并拒绝称其为“入侵”，相反地，一再批评西方的制裁。路透社3月25日报导，中共在幕后对中国公司触犯制裁红线持谨慎态度。消息人士说，国营的中国石化集团已经暂停在俄罗斯的一项重大石化投资和天然气营销企业的谈判。
+文字版原文：[疫情管控是中共插在中国人民身上的吸血管 清零政策的险恶动机](https://gnews.org/zh-hans/2272320/)
 
-美国总统拜登上周四（3月24日）表示，他在上周的通话中已经向中共领导人习近平明示，帮助俄罗斯将面临后果，并指出中国经济未来与西方的联系比与俄罗斯的联系更紧密。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：对俄制裁连锁反应 中国对俄出口受冲击
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://www.epochtimes.com/gb/22/4/1/n13689255.htm](https://www.epochtimes.com/gb/22/4/1/n13689255.htm)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-*发布：tianzhihuan*
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
