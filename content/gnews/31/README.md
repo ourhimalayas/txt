@@ -2,60 +2,96 @@
 ---
 
 
-## 观察：俄罗斯被掏肛模式开启了！
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276687/)
+## 美国防部长奥斯汀： 昨天我们宣布向乌克兰提供另外 3 亿美元安全援助
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2276915/)
 
-#### 加拿大多伦多蓝莲花农场 丁过
-![为什么水牛被斑鬣狗掏肛时会原地不动？知道真相后心疼水牛- 三农资讯(存满娱乐网)](https://image.uc.cn/s/wemedia/s/upload/2022/a32be168cf24ff66ab24711020fc2a6d.jpg)Full saved entertainment
-斑鬣狗因为善于集体捕猎而成为非洲草原上猎食能力仅次于狮子的大型食肉动物，令它们臭名昭著的是掏肛猎物，但从进化角度来说，鬣狗掏肛和残忍没有半角钱关系，而仅仅是它们在丛林世界中，长期朝适合本物种生存方式进化的结果。
+**美国防部长奥斯汀**： 
+昨天，我们宣布向 [#乌克兰](https://twitter.com/hashtag/%E4%B9%8C%E5%85%8B%E5%85%B0?src=hashtag_click) 提供另外 3 亿美元的安全援助，使拜登执政期间的(援助)总额达到 23 亿美元。 它也代表了一个承包过程的开始 ——乌克兰安全援助倡议—— 为乌克兰武装部队提供新的能力。
+【转美国国防部推文：今天下午，国防部通知国会，在乌克兰安全援助倡议的授权下，还有 3 亿美元的援助活动。 完整版本在这里： 附国防部官网发文，列出援助内容： 其中包括： 
+• 激光制导火箭系统； 
+• 弹簧刀战术无人机系统； 
+• Puma 无人机系统； 
+• 反无人机系统； 
+• 装甲高机动多用途轮式车辆； 
+• 小口径到大口径的非标准弹药； 
+• 夜视设备、热成像系统和光学设备； 
+• 战术安全通信系统； 
+• 非标准机枪； 
+• 商业卫星图像服务； 
+• 医疗用品、现场设备和备件。】
 
-1492年哥伦布发现美洲大陆，随着航海时代的来临，人类开启了历史上从未有过的跨越种族、地域的大交流，从而出现了世界、国际的概念，不可否认的事实是，这个被称为世界的国际社会和野生动物界一样一直处于弱肉强食的状态。
 
-比如现代俄罗斯版图的形成过程就是一部弱肉强食的历史写照：自1547年莫斯科公国开始到今天近500年间，俄罗斯通过血腥扩张扩大了400倍领土。
 
-二战结束为作为战胜国的苏联再次大规模领土扩张提供了机会，而普京上台后又发动了多次侵略战争。
+> Yesterday, we announced another $300m in security assistance to Ukraine, bringing the total to $2.3b during the Biden Admin. It also represents the start of a contracting process — the Ukraine Security Assistance Initiative — to provide new capabilities to Ukraine's Armed Forces. [https://t.co/SUOeGKlbXK](https://t.co/SUOeGKlbXK)
+> — Secretary of Defense Lloyd J. Austin III (@SecDef) [April 2, 2022](https://twitter.com/SecDef/status/1510234428316037129?ref_src=twsrc%5Etfw)
 
-历史学者袁腾飞指出，俄罗斯包括前苏联不管往哪里扩张，都几乎无一例外地对原住民进行种族灭绝。1900年7月17日至21日仅五天时间，俄罗斯就屠杀了中国的海兰泡和江东六十四屯共约7,000名中国居民，就是一个典型佐证。
-![强人崇拜的根源：“弥赛亚意识”与俄罗斯“大国主义”外交-凤凰国际智库](https://p1.ifengimg.com/a/2018_22/0c6e291111bff82_size75_w1080_h666.jpg)Phoenix News
-尤其令人百思不得其解的是，几百年来俄罗斯竟然将自己的扩张暴行冠上“弥赛亚意识”的外衣，大意是俄罗斯斯拉夫民族已经被上帝选中，担负着特殊的使命，是世界的救世主。
 
-一个大盗，到处杀人越货，而且声称这都是为了别人好，这就是历代俄罗斯侵略者的嘴脸。喊天天不应的俄罗斯邻国们只能哀叹：我们离俄罗斯太近，离上帝太远。
 
-近年来普京将所有媒体国有化，和中共一样在经济上实行囯进民退，而掌控经济命脉和所有军政主要部门的普京亲信们无一例外都是巨贪，正是这样的统治集团不断发动和参与不义战争。
+**众议员迈克·加西亚**： 
+美国的国家安全和能源安全携手共进。 我们不应该依赖敌手来满足我们自己的安全和能源需求。 如果我们希望美国保持安全、可靠和繁荣，我们必须让我们的国家恢复能源独立。 请阅读我的专栏文章：【附每日新闻网登载的文章链接】
 
-华尔街日报3月31日报道，据俄罗斯独立民调机构列瓦达中心的民调报告，自普京于2月24日发动对乌克兰的入侵以来，他在俄罗斯的支持率已从上月的71%飙升至83%，令世界看到了一个恐怖的俄罗斯。
 
-有学者认为，普京政权是俄罗斯历史文化的产物，在这种“弥赛亚意识”的作用下，俄罗斯人崇拜强权人物，对集权政治的容忍已经形成惯性，即使普京已经开始把俄罗斯带回苏联时代，大多数民众仍然支持普京，显然，这样的俄罗斯令其众多邻国倍感恐惧。
-![鏡頭背後／北極熊去哪兒？流浪700公里，俄羅斯北極熊的返家大作戰| 過去24小時| 轉角國際udn Global](https://uc.udn.com.tw/photo/2019/04/18/99/6193034.jpg)international corner
-所谓物竞天择，是物种为了避免落后挨打而努力强化自我的过程，俄罗斯军队在乌克兰被乌军降维打击，至少证明当前俄罗斯的进化方向是错误的，这无疑是令人振奋的积极信号。
 
-过去曾经深受俄罗斯伤害的国家，看到俄罗斯败像已现时，无不跃跃欲试，准备掏肛俄罗斯。波兰前陆军司令瓦尔德马尔·斯克日普恰克在接受波兰《超级快报》电视采访时表示，加里宁格勒是1945年被苏联吞并的波兰领土，波兰有合法的权利主张。据说波兰已经将精锐部队部署到立陶宛边界。
+> America’s national security & energy security go hand-in-hand. We shouldn't depend on adversaries for our own security & energy needs. If we want America to remain safe, secure, & prosperous we must return our country to energy independence. Read my op-ed: [https://t.co/9lpuM1QoDf](https://t.co/9lpuM1QoDf)
+> — Rep. Mike Garcia (@RepMikeGarcia) [April 1, 2022](https://twitter.com/RepMikeGarcia/status/1509990986080002049?ref_src=twsrc%5Etfw)
 
-1. 日本政府收回北方四岛的决心一直得到国内民众的坚定支持，而俄罗斯又是只进不出的主，近日俄罗斯宣布将在北方四岛开始3000多人的军事演习，说明俄罗斯在远东的军事力量非常空虚，因此日本看到了收回北方四岛的机会。
 
-2. 继日本首相声明北方四岛是不容侵犯的日本固有领土后，3月31日披露的日本2022年版外交蓝皮书草案中，日本强硬声称“北方四岛是日本固有领土，但现被俄罗斯非法占据”。如些强硬的表述仅分别在2003年版和2011年版的蓝皮书中出现。
 
-因此日俄必有一战已经顺理成章并迫在眉睫，当前俄罗斯正在乌克兰筹备新的攻势，美国及其盟友极有可能支持日本收复北方四岛的主张，从而开辟一条对俄罗斯的远东新战线。
-![中国队北方四岛的立场](https://gss0.baidu.com/-fo3dSag_xI4khGko9WTAnF6hhy/zhidao/wh%3D600%2C800/sign=8876617cf0faaf5184b689b9bc64b8d6/1b4c510fd9f9d72a2634d947d92a2834349bbb1c.jpg)siwapu
-3. 前年爆发的亚美尼亚和阿塞拜疆战争，土耳基给予阿塞拜疆察打一体无人机等军事支持，重创了俄罗斯支持的亚美尼亚。俄罗斯出动“维和部队”后双方的战争暂时平息。
+**前国务卿迈克·蓬佩奥**： 
+我很荣幸在这个周末参加了聚焦家庭 [@FocusFamily](https://twitter.com/FocusFamily) 聚会 —— 地球上没有比家庭单位更强大、更具影响力的结构了。
 
-阿塞拜疆看到俄军在乌克兰是一只外强中干的病熊后，于3月8日对驻扎有2000名俄军的争议地区纳卡发起进攻，并且升起了阿塞拜疆国旗。
 
-实际上阿塞拜疆的背后是土耳其，埃尔多安一直要重拾土耳其历史上奥斯曼帝国的影响力和荣光，而俄罗斯和奥斯曼土耳其是千年世仇，曾经反复争夺克里米亚。
 
-俄罗斯不仅侵占了克里米亚，还企图占领所有乌克兰沿黑海地区，使土耳其失去和俄罗斯之间的战略缓冲，对土耳基构成了直接威胁，因此土耳基不会放过任何掏肛俄罗斯的机会。据悉，土耳其是最早大量军援乌克兰的国家。
+> I was honored to join [@FocusFamily](https://twitter.com/FocusFamily?ref_src=twsrc%5Etfw) this weekend – there is no more powerful and influential structure on Earth than the family unit. [pic.twitter.com/E6pl05D1dW](https://t.co/E6pl05D1dW)
+> — Mike Pompeo (@mikepompeo) [April 2, 2022](https://twitter.com/mikepompeo/status/1510358160283951105?ref_src=twsrc%5Etfw)
 
-从长远的国家安全和生存利益出发，以及对俄罗斯专制强权的深深恐惧，要掏肛俄罗斯的远远不止以上国家，这和非洲大草原上野牛踩踏狮子的幼仔一样，是一种自然选择与本能反应。
 
-参考来源：
 
-[民调显示普京支持率在入侵乌克兰后大幅上升](https://cn.wsj.com/articles/%E6%B0%91%E8%B0%83%E6%98%BE%E7%A4%BA%E6%99%AE%E4%BA%AC%E6%94%AF%E6%8C%81%E7%8E%87%E5%9C%A8%E5%85%A5%E4%BE%B5%E4%B9%8C%E5%85%8B%E5%85%B0%E5%90%8E%E5%A4%A7%E5%B9%85%E4%B8%8A%E5%8D%87-11648692081)
+**参议员玛莎·布莱克本**： 
+确保我们南部边境的安全绝对是最重要的。
 
-[日本外交蓝皮书将恢复“非法占据”北方四岛表述](https://china.kyodonews.net/news/2022/03/dea3e032c6c0.html)
 
-[冲突再起？俄称阿塞拜疆军队进入纳卡地区 阿否认违反三方停火协议](https://www.sohu.com/a/533221168_116237)
 
-[波兰前陆军司令称波兰有权声索加里宁格勒，俄方回应：很危险](https://www.guancha.cn/internation/2022_03_27_632072.shtml?s=zwyxgtjbt)
+> It is absolutely paramount that we secure our southern border.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 2, 2022](https://twitter.com/MarshaBlackburn/status/1510334667991486467?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹**： 
+联邦政府有能力鼓励和培育加密货币领域的创新，或者彻底摧毁它。 
+**🔽**在下面阅读更多内容**🔽** 
+【附参议院官网发文：克鲁兹参议员提出立法禁止美联储单边控制美国数字货币
+参议员克鲁兹、布劳恩、葛雷斯利今天共同提出立法，禁止美联储直接向个人发行中央银行数字货币(CBDC) 
+具体而言，该立法禁止美联储开发直接面向消费者的 CBDC，该 CBDC 可被联邦政府用作金融监督工具，类似于 [#中共国](https://www.gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1%E5%9B%BD) 目前正在发生的事情。 该法案旨在在不与私营部门竞争的情况下保持美元的主导地位。】
+
+
+
+> The federal government has the ability to encourage and nurture innovation in the cryptocurrency space, or to completely devastate it.
+>  
+> 🔽READ MORE BELOW🔽[https://t.co/zhdjET773W](https://t.co/zhdjET773W)
+> — Senator Ted Cruz (@SenTedCruz) [April 2, 2022](https://twitter.com/SenTedCruz/status/1510352368298336261?ref_src=twsrc%5Etfw)
+
+
+
+**众议院共和党**： 
+71% 的美国人现在认为，这个国家正朝着错误的方向行进。 
+绝大多数美国人都知道，在华盛顿的民主党一党统治下，他们的处境更糟糕。 
+【附MSNBC报道视频】
+
+
+
+> 71% of Americans now feel the country is going in the wrong direction.
+> 
+> The overwhelming majority of Americans know they are worse off under Democrat one-party rule in Washington. [pic.twitter.com/rKqwJG4wh6](https://t.co/rKqwJG4wh6)
+> — House Republicans (@HouseGOP) [April 2, 2022](https://twitter.com/HouseGOP/status/1510365454342176782?ref_src=twsrc%5Etfw)
+
+
+
+**众议院共和党**： 
+根据国家警察兄弟会的数据，与 2020 年同期相比，警察遭枪击事件增加了 63%。 
+在2022 年到目前为止，已有 101 名警察被枪杀。 
+美国人应该得到法律和秩序，我们的警察应该得到支持 —— 而不是妖魔化。
+[https://gettr.com/post/p137s7q9337](https://gettr.com/post/p137s7q9337)
 
  
 

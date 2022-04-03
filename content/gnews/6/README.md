@@ -2,78 +2,42 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.03A）——儿童接种疫苗发烧、咳嗽
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277311/)
+## 像基督教大卫王拯救苍生的大卫和传播正义的正义小Sarah
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277346/)
 
-整理/编辑：文泓
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8826.50%EF%BC%89%E5%83%8F%E5%9F%BA%E7%9D%A3%E6%95%99%E5%A4%A7%E5%8D%AB%E7%8E%8B%E6%8B%AF%E6%95%91%E8%8B%8D%E7%94%9F%E7%9A%84%E5%A4%A7%E5%8D%AB%E5%92%8C%E4%BC%A0%E6%92%AD%E6%AD%A3%E4%B9%89%E7%9A%84%E6%AD%A3%E4%B9%89%E5%B0%8FSarah%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:6)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-183.png)图片来源：雅典娜设计组
+**郭文贵先生：**正义小Sarah，正义小Sarah，你叫了个正义小Sarah，还有大卫兄弟，你们今天，真的大卫像整个基督教的大卫王在拯救天下苍生。正义小Sarah正在传播着正义，你看到那人抱着孩子，你想过吗？人家的家没了，人家亲人不知在哪儿呢。而我们新中国联邦人，你们穿着暖暖呼呼的，现在在全球的关注下，你们在行使正义，拯救天下苍生。而且是我们跟素未谋面的、远在中国将近万里和美国分别之间的地方救援，去拯救生命这是多么伟大！
 
+人家在一周前，人家是在和平富裕的国家，现在成了这个样子。所以我们要珍惜和平，爱好整个的我们新中国联邦所有的一切。你看看我们的战友在现场的时候，冒着生命危险，展现了中国人的最最宝贵的，和平、包容、善良的气质，你们太不容易了。现在这个大巴车来的时候，我的心里面，哎哟，我真的是激动啊，我真的是特别特别激动。因为我们现在是身在，跟你们相差将近8个小时的飞行距离。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+编辑整理：Jacques；
 
-**博主：小七**
+字幕档制作：知津；
 
-3-11岁儿童新冠疫苗接种第二天发烧了
+视频制作及上传：Cindy；
 
-从小体质不好的小朋友，当初想着可以少打几针（疫苗），因为每次打完都会多多少少有点反应，现在中班，已经快两年没打疫苗了，去年去打了流感疫苗，打完没什么反应，以为孩子长大了，体质也变好了。
+G-News发布：海贼王M.D.LUFFY；
 
-今年还没打流感疫苗，新冠疫苗来了，本着响应国家号召，总要打的，昨天上午和幼儿园的小朋友们去方舱医院打了第一针新冠疫苗。打完内心还是担心的，一晚上也没怎么睡好，时不时摸一下额头，到早上一切正常总算松了口气。起床吃完早饭送去了幼儿园，没想到11点左右接到老师的电话，小朋友在幼儿园发烧了，连忙去接了回来我，在家里量了一下体温38.8度，想在家里观察一下的，毕竟刚烧起来，去医院验血也验不出来，但是小朋友说太难受了，又马不停蹄带他往医院赶，11点半赶到医院，还好医生还没下班，一量体温39度了，做了个核酸，配了退烧药，让先吃退烧药。回家吃了退烧药，睡了一觉发了一身汗，现在持续退烧中，艰难的一天又开始了，希望不要再烧起来了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IK7HQV@R33DCWWVENAV7.png)图片来源：博主小红书
-**伊丽莎白评论：**
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-所以看了这些评论，我就纳闷了为啥还要让自己孩子打，真不怕出事吗？我直接是三甲开的证明，谁爱打谁打，反正我们不打！
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**四张****评论：**** **
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-我们这里，三甲医院开证明属于禁忌才给开，否则一律打。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**虎猫评论：**
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-正常，新冠疫苗最常见的副作用就是发烧，过几天就好了。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**博主回复：**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-是的，从小就对各种疫苗都有点反应，习惯了，但是该担心还是担心的，许久没打疫苗了，有点手忙脚乱了。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**不焦虑的婷婷评论：**
-
-说好的自愿，变成了强迫。问题是，医院还开不了证明，只能打本来是怕不打针学校不给上学，现在是打了也上不了学（因为发烧，看了帖子一般三天，四舍五入我就是一周不上学）早知道我就不打了。
-
-💛🧡💛🧡评论：
-
-感觉各个地方为了“疫苗业绩”都疯了！
-
-**LIN****评论：**
-
-何止强迫，我们孩子三岁出头有支气管炎，去医院开了证明，到了鉴诊处说感冒咳嗽也得打。
-
-**酒心巧克力评论：**
-
-我家孩子今年上的幼儿园，一直就感冒感染支原体，咳嗽断断续续的，外加发烧，所以我不准备给孩子打，秋冬本来天气多变病毒就多，孩子就容易生病发烧，为什么选择这个季节打。
-
-**A****💗****多多****💗****评论：**** **
-
-我娃也是8月份咳嗽一个多月，支原体感染，后面开学反反复复感冒咳嗽！我真的不太敢给娃打！体质太差！折腾的难受
-
-**🦄****少腾****评论：**** **
-
-就是说呢，幼儿园的都扎堆感冒呢，这又通知打针，不知道咋想的！
-
-**S****unflower****评论**
-
-我也是，学校要求一定要打，除非有三甲医院的证明。
-
-参考链接：[3-11岁儿童新冠疫苗接种第二天发烧了](https://www.xiaohongshu.com/discovery/item/6184da630000000021037761?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648867641)
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+G-TV：日本银河系农场。[Odysee](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8826.50%EF%BC%89%E5%83%8F%E5%9F%BA%E7%9D%A3%E6%95%99%E5%A4%A7%E5%8D%AB%E7%8E%8B%E6%8B%AF%E6%95%91%E8%8B%8D%E7%94%9F%E7%9A%84%E5%A4%A7%E5%8D%AB%E5%92%8C%E4%BC%A0%E6%92%AD%E6%AD%A3%E4%B9%89%E7%9A%84%E6%AD%A3%E4%B9%89%E5%B0%8FSarah%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:6)
 
  
 

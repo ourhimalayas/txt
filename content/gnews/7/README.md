@@ -2,51 +2,52 @@
 ---
 
 
-## 巴总理拟不接受罢免投票，陆军总长要求扩大与美联系
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277309/)
+## 法官阻止了对寻求宗教豁免的美国海军成员的疫苗强制令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2277338/)
 
-翻译/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-201.png)一名海军成员在位于弗吉尼亚州诺福克的诺福克海军基地接种新冠疫苗（美国海军/大众传播专家水兵杰克逊·阿德金斯（Jackson Adkins）通过《大纪元时报》报道）
+《大纪元时报》3月29日报道，美国军方的新冠疫苗强制令已被阻止使用于所有寻求宗教豁免的海军成员。之前涵盖35名海豹突击队队员的初步禁令现已涵盖约4000名成员。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/@UNNNBEXVJ7V2A@7.png)图片来源：Republic World & 雅典娜设计组
+美国地区法官里德·奥康纳（Reed O’Connor）是乔治·W·布什任命的法官，他在1月份做出原始裁决，同意扩大裁决范围，部分原因是所有申请宗教豁免的成员“都以基本相同的方式受到伤害”。
+
+“每个人都应遵守海军的新冠疫苗强制令。每个人都提交了她的宗教豁免申请，但都没有得到豁免。如果不解除，每位军人都面临被退伍的威胁和随之而来的不利后果。尽管他们的个人情况可能确实略有不同，但威胁是相同的，要么接种疫苗，要么失去工作。”他在一份27页的命令中写道。
+
+最高法院近期在此案中支持五角大楼，裁定海军指挥官在决定部署时可以考虑成员的疫苗接种情况。
+
+新裁决意味着“在美国海军中，任何因宗教原因而拒绝接种疫苗的人现在都受到保护，不会受到任何形式的惩罚或非自愿离职等等诸如此类的事情。”代表该案原告的第一自由研究所（First Liberty Institute）律师迈克·贝里（Mike Berry）表示。
+
+国防部部长劳埃德·奥斯汀（Lloyd Austin）在2021年8月，命令所有美军成员接种新冠疫苗，声称接种疫苗将帮助部队保持准备状态，并防止感染导致新冠肺炎的病毒。
+
+即使在美国现有的三种疫苗已被证明对新冠病毒的感染越来越无效，并且对严重疾病的抵抗力也减弱的情况下，但这项强制令仍在推行中。
+
+截至3月23日，已有3320名现役海军成员和864名预备役成员申请该强制令的宗教豁免。尚未有任何宗教豁免请求被批准。
+
+海军拒绝对法庭命令发表评论，而是将评论转给司法部。一名政府律师没有回应置评请求。
+
+贝里告诉《大纪元时报》，他的当事人希望将此案扩大到所有寻求宗教豁免的军人，但根据联邦规定，他们无法做到。
+
+目前，该案正在多条战线上进行。在奥康纳对扩大禁令和认证集体诉讼的动议做出裁决的同时，美国第五巡回上诉法院正在考虑海军对原始禁令提出的上诉。到目前为止，海军已辞退630名拒绝接种新冠疫苗的成员。
+
+**简评：**
+
+2022年1月，美国最高法院否决了拜登政府推行的企业疫苗强制令。不足三个月时间，美国法院再次否决了对寻求宗教豁免的海军成员的疫苗强制令，虽然目前该裁决只适用于该案的海军成员，尚不能覆盖所有其他成员。但美国是判例法国家，因此该项裁决意义重大。新冠疫苗自推出以来，不但未能降低病毒感染率，反而越来越多的接种者出现严重副作用，甚至死亡。政府的疫苗强制令也越发受到民众的抵制。随着时间推移，疫苗强制令一定会被彻底废除。
+
+新闻链接: [https://www.theepochtimes.com/judge-blocks-covid-19-vaccine-mandate-for-entire-navy\_4370316.html?utm\_source=partner&utm\_campaign=ZeroHedge](https://www.theepochtimes.com/judge-blocks-covid-19-vaccine-mandate-for-entire-navy_4370316.html?utm_source=partner&amp;utm_campaign=ZeroHedge)
+
+翻译/简评: Dreamer文童
+
+PR:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-周六巴基斯坦总理伊姆兰·汗表示，他可能不会接受推翻他的投票，他声称此举是由美国精心策划的。
+编辑：【英国伦敦喜庄园编辑部】
 
-反对党表示，汗未能重振巴基斯坦受冠状病毒大流行打击的经济，也未能兑现让政府更加透明和负责任的承诺，反对党提出了一项于周日投票的不信任动议。
-
-汗在他的办公室告诉了一群精选的外国记者，整个过程都被抹黑了，我不能接受这个结果，推翻我的举动是美国对巴国内政治的公然干涉。
-
-在其政治盟友退出联合政府并加入反对派后，汗已经失去了议会中的多数席位，他敦促他的支持者在周日投票前走上街头。
-
-就在汗讲话前几个小时，巴基斯坦陆军总长卡马尔·贾维德·巴杰瓦将军曾表示，巴基斯坦希望扩大与华盛顿的关系。
-
-美国总统乔·拜登自上任以来没有给汗打电话，但白宫否认正在寻求推翻他。
-
-阿富汗问题导致两国关系紧张，华盛顿指责巴基斯坦支持塔利班的叛乱成功，以至于去年美国和盟军混乱撤离。
-
-尽管巴政府与美国的战略竞争对手中国达成了数十亿美元的发展协议，但巴军方似乎并不希望损害与华盛顿的关系，后者过去曾向其提供数十亿美元的军事援助。
-
-巴杰瓦在伊斯兰堡的一次安全会议上说，“我们与美国有着悠久的战略关系，美国仍然是我们最大的出口市场”。
-
-他指出，巴基斯坦长期以来一直与中国保持密切的外交和商业关系，但补充说：“我们寻求在不影响双方关系的情况下扩大并拓宽两国的关系。”
-
-美国驻伊斯兰堡大使馆没有立即回复置评请求。
-
-早些时间媒体报道，在3月22日巴杰瓦将军代表军方要求汗总理辞职。
-
-参考链接：
-
-1、[Pakistan PM Khan suggests he might not accept vote to oust him | Reuters](https://www.reuters.com/world/asia-pacific/pakistan-army-chief-says-his-country-seeks-expand-relations-with-united-states-2022-04-02/?taid=62484d833225ef0001283fd7&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-
-2、[Pak Army chief Bajwa asks Imran Khan to resign as Pakistan’s Prime Minister: Sources (republicworld.com)](https://www.republicworld.com/world-news/pakistan-news/pak-army-chief-bajwa-asks-imran-khan-to-resign-as-pakistans-prime-minister-sources-articleshow.html)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

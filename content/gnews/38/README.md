@@ -2,34 +2,51 @@
 ---
 
 
-## 所罗门群岛不允许中共军事入驻
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2275776/)
+## 澳网与中共企业的赞助协议受到批评
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2275834/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ded4dd47c592b31d469ec16bae7f5aba.jpg)
-近日所罗门总理表示，不允许中共在本国建立军事基地。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/grafik.png)
+据每日邮报报道，在北京拒绝谴责俄罗斯入侵乌克兰之后，澳网与一家中共国白酒公司的合作关系受到了审查。
 
-据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
+2018年，澳大利亚网球协会与国有企业泸州老窖签署了价值1亿美元的协议，这是该赛事历史上最大的中共国赞助协议。
 
-澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
+中共国对乌克兰战争的立场再次引发了对该协议的批评，就在几个月前，澳大利亚网球公开赛组织者因禁止支持失踪的中国女网球运动员彭帅的抗议活动而受到了猛烈抨击。
 
-撰稿、发布：骄子
+彭帅在声称和一名中国共产党人物有不当性行为后失踪。而北京一再坚称她是安全和自由的，国际奥委会在与其进行了两次视频通话后接受了这一立场。
 
-reference：
+然而，国际女子网球协会并没有得到令人满意的保证，并于12月暂停了其在中共国的所有比赛。一个月后，在澳网组织者禁止球迷穿有“彭帅在哪里？”字样的T恤，随后澳网陷入了风暴的中心。
 
-[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
+该禁令后来被推翻，但影子内阁总检察长迈克·奥布莱恩表示，澳网必须澄清“是否有赞助商试图影响其对强调网球明星（彭帅）仍身处困境的观众的反应。”他告诉新闻集团，“我们知道丹尼尔·安德鲁斯政府与中共国政府危险的‘一带一路’交易是以牺牲了维州的价值来换取金钱。”
+
+“但澳网是在数百万维州人的支持下才取得巨大成就的一项重大体育赛事，绝不允许也这样做。“诸如言论自由这类的基本权利不应该被追逐赞助费的体育规则所破坏。”
+
+他说：“如果我们的价值被卖给出价最高的人，维多利亚将无法恢复和重建。”“无论是支持乌克兰人民还是问‘彭帅在哪里？’，我们绝不能让赞助商的政治形态决定我们是谁或我们的立场。”
+
+**简评：**
+
+当今年一月澳大利亚网球公开赛上，赛会组织者把穿有“彭帅在哪里”T恤的观众拒之门外的时候，澳洲朝野和民众都上下沸腾，觉得不可思议。突然发现澳洲公民竟然不可以在澳洲公开地、自由地表达自己的观点。而这一切的背后黑手则指向了中共背景的赞助商。
+
+郭文贵先生早就提醒过西方世界，和共产党做交易最终的结果就是你谋它的利，它谋你的本。我们以前对“本”的理解就是本金，但通过这次澳网为了赞助商的金钱，竟然把支持彭帅的观众拒之门外的事件，我们可以看到中共最终谋的是西方国家的立国之“本”，那就是自由。
+
+郭先生从2017年开启的爆料革命，把中共的假、恶、丑和对西方世界的蓝、金、黄通过了自己在美国的各种遭遇展示给全世界，把中共打击得不知所措，并且疯狂和失去理智。试想中共如果不在澳网做这个下流的举动，澳洲民众则根本不会亲身体会到自己最根本的社会根基和价值观正在被中共蚕食和摧毁。正如维州影子总检察长迈克·奥布莱恩一针见血地指出“无论是支持乌克兰人民还是问‘彭帅在哪里？’，我们绝不能让赞助商的政治形态决定我们是谁或我们的立场。”
+
+欲让其灭亡 先让其疯狂，通过中共在澳网和乌克兰上疯狂、无知的行为，我们可以预见它正在灭亡的路上狂奔。
+
+新闻链接：[Australian Open is slammed over $100MILLION deal with Chinese liquor company after tournament banned ‘Where is Peng Shuai?’ T-shirts](https://www.dailymail.co.uk/sport/tennis/article-10675477/Australian-Open-slammed-100MILLION-deal-Chinese-liquor-company.html)
+
+翻译/简评：新街口 / PR：感恩
 
 * * *
 
-欢迎订阅我们的GNews账号：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3-1.gif)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

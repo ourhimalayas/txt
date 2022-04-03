@@ -2,28 +2,39 @@
 ---
 
 
-## 俄罗斯石油大亨：普京已陷入进退两难之地
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2277091/)
+## 有声|白宫表示 普京被下属欺骗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277176/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒报道，3月30日，美国白宫通讯办公室主任贝丁菲尔德表示，普京的顾问及幕僚们由于害怕，并没有告诉他俄军糟糕的表现，以及俄罗斯经济受到国际制裁所引发的重大后果。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-130.png)
+普京目前已经察觉到自己被军方误导，导致他与军方高层的关系愈发紧张。
 
-据《德国之声》4月1日报导，俄罗斯石油大亨米哈伊尔·霍多尔科夫斯基（Mikhail Khodorkovsky）表示，俄罗斯总统普京发动对乌克兰的侵略战争一个多月后，陷入了进退两难之地。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-3.jpg)（图片来源：德国之声）
-报导称，俄罗斯侵乌战争至今已持续一个多月，由于乌克兰民众对入侵俄军做出顽强的抵抗，俄罗斯占领乌克兰全境的闪电计划完全落空，俄军处境也变得越来越不利。
+英国情报机构“政府通讯总部”主任弗莱明称，有证据显示在乌克兰作战的俄罗斯士兵士气低落、缺乏武器、拒绝实行上级命令、破坏自己的装备，甚至还失误击落了一架俄军战机。而关于类似的真相，普京的顾问从来没有告诉过他，导致他对局势产生了严重误判。
 
-与此同时，西方国家还对俄罗斯实施了前所未有的严厉制裁。美国和英国开始禁运俄罗斯原油和天然气，而一系列俄罗斯银行也被排除在国际银行转账系统SWIFT之外。此外，很多欧洲国家政府已经在采取措施减少对俄罗斯能源的依赖程度。
+美国国防部发言人柯比表示，如果普京不知道俄乌战争的真实战况，就可能不会致力于通过和平谈判结束战争，而对于这些坏消息，没有人知道普京会如何对待。
 
-对此，霍多尔科夫斯基在接受采访时表示，目前普京已经陷入了僵局，他现在只有两个选择，要么进行战争动员或投入战术核武器，要么认真接受和谈。他强调说，此时西方必须明确立场，一旦普京动用战术核武器或其他大规模杀伤性武器，那么西方就会为乌克兰提供更广泛的支持，从而迫使普京做出正确的决策。
 
-霍多尔科夫斯基曾是俄罗斯首富，知名石油公司尤科斯的总裁，但由于他当众批评普京政府官员腐败严重而遭到普京报复，大量资产被没收，并身陷囹圄长达十年之久。
 
-参考链接：
-1. https://www.dw.com/zh//a-61328656
-2. https://reurl.cc/2D2Dkm
+文字版原文：[白宫表示 普京被下属欺骗](https://gnews.org/zh-hans/2273653/)
 
-编辑：海星
-总编：老孙
-校对发布：Linda
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

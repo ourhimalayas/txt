@@ -2,39 +2,50 @@
 ---
 
 
-## 俄乌战争的“没想到”之三
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276919/)
+## COVID-19疫苗副作用集萃——新冠疫苗后浑身疼痛
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277038/)
 
-视频制作：多伦多蓝莲花视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+##### 整理：gardeniahu
+编辑：Mttfly
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+**新冠疫苗副作用亲历者爆料收集专栏**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Red_Grey_Black_Simple_Modern_Technology_Gaming_Intro_Video_Youtube_Gaming_Video_1-1.png)
+**【前言：**接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-第三个没想到：
+[往期集萃链接](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-没想到乌克兰战斗意志如此顽强，从总统泽林斯基到乌克兰平民百姓。不管你俄罗斯如何轰炸，坚守基辅，坚守阵地，坚守自己的岗位。
+**第四针不想打了！**
 
-俄军进攻猛烈，占尽先机，但在乌克兰各个战场，乌军进行了顽强抵抗乃至激烈的巷战，俄军死伤无数，更有6位俄将军已被击毙。
+第一二针：辉瑞；第三针：辉瑞
 
-乌克兰成功粉碎俄罗斯闪电战计划，愈战愈勇。
+虽说莫德纳混打效果好，据说？但还是害怕自己不适应混打，以及惧于莫德纳的副反应，而选择了辉瑞。结果，事实证明还是太天真轻敌了！
 
-这一次，乌克兰让全世界刮目相看，让全世界为之鼓舞。更让全世界最求民主自由的力量热血沸腾，乌克兰的反抗独裁和暴君精神必将鼓舞中国人反抗中共独裁。
+第一、二针没啥反应。第三针的当天反应还好，就是食欲变强。第二天就不对了，已经记不清上次发烧是什么时候了的我，居然开始怕冷头疼、关节疼、眼疼。浑身上下都疼，像被揍了几十拳！一量腋温，37.6，在公司整整一天都是昏昏沉沉头痛欲裂！晚上迅速去药妆店补给了疫苗三件套，EVE真的是太优秀了。二粒下肚，立马头疼关节疼有所缓解，热度也下去了点。
 
-同时，媒体超限战场，乌克兰的引导舆论的战略和实力，也打了一个漂亮战。舆论先行，媒体这个核武器乌克兰发挥了巨大的力量。让全世界通过网络、媒体了解到了乌克兰的抗争。
+趁着稍微倾复点，迅速完成接种证明书的三回目登录，这个还是挺方便的，有次入住酒店的时候居然还派上用场了！
 
-在全世界对乌克兰的支持上，网络、媒体功不可没。这再次验证郭文贵先生爆料革命之初就提出媒体是核武器的先见之明！
+BTW.第四针真的不想再继续打了，几个月一次，没完没了，没啥副反应还好，有的话真太难受了。
 
-视频文案：Wood（文斌）
+祝大家第三针顺利~
 
-发布：冰糖葫芦喵
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_20220402-194517_Chrome.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_20220402-194544_Chrome.jpg)
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+小红书截图
+**精选评论**
+
+陶：这是把自己往死里打啊！
+
+参考链接：[第四针不想打了！](https://www.xiaohongshu.com/discovery/item/6234792d0000000001024fa0)
+
+*发布：Mttfly*
+
+**更****多资讯****，****请关注****：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
