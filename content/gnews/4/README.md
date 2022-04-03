@@ -2,48 +2,28 @@
 ---
 
 
-## 新中国联邦有能力能资格向全世界传播中国人不等于中共
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277989/)
+## 瑞士近万人举行反战游行
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2278028/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8836.50%EF%BC%89%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E6%9C%89%E8%83%BD%E5%8A%9B%E8%83%BD%E8%B5%84%E6%A0%BC%E5%90%91%E5%85%A8%E4%B8%96%E7%95%8C%E4%BC%A0%E6%92%AD%E4%B8%AD%E5%9B%BD%E4%BA%BA%E4%B8%8D%E7%AD%89%E4%BA%8E%E4%B8%AD%E5%85%B1%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:8)
+**撰稿：日本东京方舟农场 北极**
 
-**郭文贵先生：**战友们，说句老实话，你们了解七哥的战略手段吗？你看看，七哥就在他们一片乌烟瘴气之中，咱们新中国联邦已经站到前线去了。
+据基辅信息报4月2日报道，本周六，瑞士首都伯尔尼近万人冒着暴风雪举行反战游行，要求结束俄罗斯在乌克兰的毁灭性战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-2.png)2022年4月2日，在瑞士首都伯尔尼举行的乌克兰全国和平和反对战争示威活动中，一名妇女举着代表俄罗斯总统的标语牌，该示威活动聚集了大约10，000名参与者。（图片来自基辅信息报）
+据组织者称，在乌克兰国旗的蓝色和黄色海洋中，伴随着彩色的和平横幅，大约10，000名示威者在城市中游行。共同组织游行的USS工会代表Benoit Gaillard表示，10，000人不畏寒冷举行游行的事实表明人们对这场战争的鲜明反对立场。
 
-现场我们的总指挥长岛哥、老班长、我们在后勤现在管家的草根兄弟，财务上在全面协调的如水、木兰，我们的秘密翻译组、我们全球的各大农场，和一步又一步的马上派到前线的第五批都安排好了。你觉得世界上哪个组织能做到这一点？这就是新中国联邦人。
+俄罗斯入侵乌克兰已经过去五周，数千平民被杀，数百万人流离失所，乌克兰的部分地区已经沦为废墟。
 
-你看我们现在你们在现场的主播，我们乱了吗？我们培养出了一批批的队伍、一批批的精英，而且是有良知、有能力、有形象的。新中国联邦向世界展示了我们能不能，有能力有资格向全世界来传播中国人不等于共产党的这个真相，我们能不能真正地给中国带来民主、法治和信仰的自由。
+洛桑大学的乌克兰学生、瑞士-乌克兰支持委员会成员汉娜·佩雷霍达（Hanna Perekhoda）表示，“我们需要团结一致，乌克兰正在保护欧洲，保护民主和世界免受弗拉基米尔·普京（Vladimir Putin）的专制独裁统治。”
 
-我们这一次是真刀真枪。大巴车是来自乌克兰，不是在边境，我们救的人是来自乌克兰，我们正在拯救的是现在被共产党说已经全部救走的还在乌克兰的中国同胞。
+瑞士未加入欧盟，在战争问题上有着长期中立的传统，但瑞士同欧盟对俄罗斯的制裁行动保持一致。
 
-我们法治基金、法治社会所有的捐款是来自于我们所有的战友，我们没有任何人拿工资、拿待遇，全部都是无偿拿着生命去到前线去救援的，而且不分种族、不分宗教、不分族类。中国人没有过，世界上几个国家有过？
+瑞士上个月表示，自俄罗斯入侵以来，瑞士已经冻结了相当于57.5亿瑞士法郎（62亿美元）的俄罗斯资产。
 
-字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
+参考链接：
+[https://reurl.cc/AKQO1j](https://reurl.cc/AKQO1j)
 
-编辑整理：Jacques；
-
-字幕档制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+总编： 老孙
+校对发布：Linda
 
  
 

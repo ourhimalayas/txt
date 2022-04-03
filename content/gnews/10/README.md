@@ -2,49 +2,48 @@
 ---
 
 
-## 戴琪：美国必须加强对中国的贸易防御
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277960/)
+## 新中国联邦有能力能资格向全世界传播中国人不等于中共
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277989/)
 
-*评论：中共国从来就没有打算真正的履行和美国的贸易合同，一直都是寻找对自己有利的**贸易**才会积极行动，相信中共国的承诺，必将深受其害。*
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8836.50%EF%BC%89%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E6%9C%89%E8%83%BD%E5%8A%9B%E8%83%BD%E8%B5%84%E6%A0%BC%E5%90%91%E5%85%A8%E4%B8%96%E7%95%8C%E4%BC%A0%E6%92%AD%E4%B8%AD%E5%9B%BD%E4%BA%BA%E4%B8%8D%E7%AD%89%E4%BA%8E%E4%B8%AD%E5%85%B1%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:8)
 
-这些言论明显改变了拜登首席贸易大使的语气，但没有概述针对该国的任何新贸易处罚
+**郭文贵先生：**战友们，说句老实话，你们了解七哥的战略手段吗？你看看，七哥就在他们一片乌烟瘴气之中，咱们新中国联邦已经站到前线去了。
 
-据《Politico》记者STEVEN OVERLY 2022年3月30日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-208.png)在众议院筹款委员会作证时，美国贸易代表凯瑟琳·戴 (Katherine Tai) 将暗示，与中共国政府在贸易问题上的善意努力可能会达到极限。| 保罗·桑西亚/美联社照片
-美国贸易代表凯瑟琳·戴(Katherine Tai)周三将告诉立法者，中共国没有屈服于履行特朗普时代贸易协定义务的压力，拜登政府现在必须更直接地面对北京经济行为的有害影响。
+现场我们的总指挥长岛哥、老班长、我们在后勤现在管家的草根兄弟，财务上在全面协调的如水、木兰，我们的秘密翻译组、我们全球的各大农场，和一步又一步的马上派到前线的第五批都安排好了。你觉得世界上哪个组织能做到这一点？这就是新中国联邦人。
 
-戴在众议院筹款委员会作证时表示，与中共国政府在贸易问题上的善意努力可能会达到极限。这些言论明显改变了拜登首席贸易大使的语气，但没有概述对中华人民共和国的任何新贸易处罚。相反，戴将重申现有工具无法胜任这项任务。
+你看我们现在你们在现场的主播，我们乱了吗？我们培养出了一批批的队伍、一批批的精英，而且是有良知、有能力、有形象的。新中国联邦向世界展示了我们能不能，有能力有资格向全世界来传播中国人不等于共产党的这个真相，我们能不能真正地给中国带来民主、法治和信仰的自由。
 
-“我们的战略必须超越仅仅敦促中共国做出改变，包括大力捍卫我们的价值观和经济利益，使其免受中共国不公平经济政策和做法的负面影响。” 戴将在准备好的讲话中说。
+我们这一次是真刀真枪。大巴车是来自乌克兰，不是在边境，我们救的人是来自乌克兰，我们正在拯救的是现在被共产党说已经全部救走的还在乌克兰的中国同胞。
 
-在承诺拜登政府将追究北京在前总统唐纳德特朗普的第一阶段协议期间在两年内额外购买价值 2000 亿美元的美国商品的承诺后，戴在 10 月开始与中共国副总理刘鹤进行会谈。
+我们法治基金、法治社会所有的捐款是来自于我们所有的战友，我们没有任何人拿工资、拿待遇，全部都是无偿拿着生命去到前线去救援的，而且不分种族、不分宗教、不分族类。中国人没有过，世界上几个国家有过？
 
-数据显示，中共国没有履行这一义务，预计将在去年年底前完成。戴将告诉委员会，她的谈话表明北京“只会遵守那些符合其自身利益的贸易义务”。
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-“这是中共国熟悉的模式——从他们在 [世界贸易组织] 和各种双边高层对话中的行动来看，” 戴将补充道：“美国一再寻求并获得中共国的承诺，却发现后续或真正的改变仍然难以捉摸。”
+编辑整理：Jacques；
 
-戴将说，进一步对话的大门仍然敞开，同时呼吁美国既挑战北京的做法，又通过国内投资支持美国竞争对手。
+字幕档制作：知津；
 
-中共国正在努力争取在电动汽车、电池和半导体等关键技术方面的全球主导地位。过去，美国竞争对手曾遭受北京的工业补贴和其他扭曲市场的行动，现有的贸易补救措施“太慢或不适合有效解决。”戴在她的证词中说。
+视频制作及上传：Cindy；
 
-“为了确保我们的行业保持竞争力，我们必须开发新的国内工具，以捍卫我们的经济利益，并对我们的经济进行战略投资。” 戴说。
+G-News发布：海贼王M.D.LUFFY；
 
-她将呼吁国会通过现在称为“两党创新法案”的立法批准 520 亿美元用于国内半导体生产和研究。众议院和参议院目前正准备成立一个会议委员会来协调该法案的竞争版本。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-* * *
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-文章观点仅代表作者个人，与Gnews平台无关。
-文章来源：[https://www.politico.com/news/2022/03/30/tai-trade-defense-against-china-00021473](https://www.politico.com/news/2022/03/30/tai-trade-defense-against-china-00021473)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – 轰炸机
-评论：洛杉矶盘古农场 – 傻小子
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 – Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

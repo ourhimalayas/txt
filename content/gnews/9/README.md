@@ -2,37 +2,26 @@
 ---
 
 
-## 无论局势如何变化，中共都将支持军事统治下的缅甸
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2277961/)
+## 泽伦斯基抨击：没有看到欧尔班为停战做出任何努力
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2277994/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏  
+**撰稿：日本东京方舟农场 北极**
 
-#### 翻译/编辑：小红帽
+据基辅信息报4月3日报道，乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）发表演讲时抨击匈牙利总理维克多·欧尔班（Viktor Orban）称，乌克兰当局没有看到他为停止战争做出任何努力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/c1db8b1a-3bfb-439c-9d3a-3eb7c280b61c.jpeg)图片来源：VCG
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-1.png)总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）。（图片来自基辅信息报）
 
+本周日泽伦斯基在总统办公室通过视频发表了公开演讲。他表示，整个欧洲都希望和平，整个欧洲不希望战场从乌克兰的马里乌波尔转移到匈牙利首都布达佩斯。
 
-根据The Asahi Shimbun 4月3日报道，中共表示，将支持邻国缅甸，无论局势如何变化。这是中共对去年夺取政权的缅甸执政军队最新的，明确的支持。
+泽伦斯基抨击匈牙利总理欧尔班称，他几乎是欧洲唯一一个公开支持普京的人，他反对欧盟对俄罗斯能源进口的制裁。此外，匈牙利拒绝向乌克兰提供打击侵略者的武器，甚至不允许从其他国家过境武器。布达佩斯还反对迅速给予乌克兰欧盟成员国资格。
 
-据新华社报道，中共国外交部长王毅周五对缅甸外交部长Wunna Maung Lwin表示，中共“一直把缅甸放在其邻国外交的重要位置”，并希望 “深化交流与合作”。
+据报道，匈牙利议会选举将于4月3日举行。现任总理欧尔班也将参加选举，谋求连任。泽伦斯基指出，选举最需要的是人民的意见，乌克兰人民支持匈牙利人民，匈牙利人民支持乌克兰人民。
 
-缅甸军方在2021年2月推翻了昂山素季的政府，继续面对民众的反抗。这相当于一些联合国专家所说的内战。缅甸政府还面临海牙国际法院对种族灭绝的指控。
+参考链接：
+[https://reurl.cc/Zr0A3M](https://reurl.cc/Zr0A3M)
 
-作为对中共外交支持和物质援助的回报，缅甸在由10个成员组成的区域集团–东南亚国家联盟中一直是中共的忠实盟友。
-
-在缅甸军队夺取政权并暴力镇压反对其统治的人之后，缅甸的军事领导人一直不被允许参加东盟会议。
-
-中共奉行所谓“独立”的“和平”外交政策，通常优先考虑自己的狭隘利益，根本不考虑一个国家的人权记录或其他内部争议。
-
-新闻来源：[China to back military-ruled Myanmar regardless of situation](https://www.asahi.com/ajw/articles/14589212)
-
-发布：Frank2021
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：老孙
+校对发布：Linda
 
  
 
