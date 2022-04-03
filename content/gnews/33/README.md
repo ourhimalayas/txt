@@ -2,83 +2,49 @@
 ---
 
 
-## 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277774/)
+## 戴琪：美国必须加强对中国的贸易防御
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277960/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/未命名_副本.png)
-据小白不白@Hans08572119 盖特
+*评论：中共国从来就没有打算真正的履行和美国的贸易合同，一直都是寻找对自己有利的**贸易**才会积极行动，相信中共国的承诺，必将深受其害。*
 
-[https://gettr.com/post/p139ic56b4d](https://gettr.com/post/p139ic56b4d)
+这些言论明显改变了拜登首席贸易大使的语气，但没有概述针对该国的任何新贸易处罚
 
-#中共国 天津河北区月牙河街赵沽里封控小区内一对男女双双坠楼，跳楼前对话疑似如下：
+据《Politico》记者STEVEN OVERLY 2022年3月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-208.png)在众议院筹款委员会作证时，美国贸易代表凯瑟琳·戴 (Katherine Tai) 将暗示，与中共国政府在贸易问题上的善意努力可能会达到极限。| 保罗·桑西亚/美联社照片
+美国贸易代表凯瑟琳·戴(Katherine Tai)周三将告诉立法者，中共国没有屈服于履行特朗普时代贸易协定义务的压力，拜登政府现在必须更直接地面对北京经济行为的有害影响。
 
-女：救命啊！
+戴在众议院筹款委员会作证时表示，与中共国政府在贸易问题上的善意努力可能会达到极限。这些言论明显改变了拜登首席贸易大使的语气，但没有概述对中华人民共和国的任何新贸易处罚。相反，戴将重申现有工具无法胜任这项任务。
 
-男：习近平你下不下台？！
+“我们的战略必须超越仅仅敦促中共国做出改变，包括大力捍卫我们的价值观和经济利益，使其免受中共国不公平经济政策和做法的负面影响。” 戴将在准备好的讲话中说。
 
-女：让他下！
+在承诺拜登政府将追究北京在前总统唐纳德特朗普的第一阶段协议期间在两年内额外购买价值 2000 亿美元的美国商品的承诺后，戴在 10 月开始与中共国副总理刘鹤进行会谈。
 
-……
+数据显示，中共国没有履行这一义务，预计将在去年年底前完成。戴将告诉委员会，她的谈话表明北京“只会遵守那些符合其自身利益的贸易义务”。
 
-女：他会死的！
+“这是中共国熟悉的模式——从他们在 [世界贸易组织] 和各种双边高层对话中的行动来看，” 戴将补充道：“美国一再寻求并获得中共国的承诺，却发现后续或真正的改变仍然难以捉摸。”
 
-男：共产党解不解散？！
+戴将说，进一步对话的大门仍然敞开，同时呼吁美国既挑战北京的做法，又通过国内投资支持美国竞争对手。
 
-女：解散！
+中共国正在努力争取在电动汽车、电池和半导体等关键技术方面的全球主导地位。过去，美国竞争对手曾遭受北京的工业补贴和其他扭曲市场的行动，现有的贸易补救措施“太慢或不适合有效解决。”戴在她的证词中说。
 
-男：能改革开放不？！
+“为了确保我们的行业保持竞争力，我们必须开发新的国内工具，以捍卫我们的经济利益，并对我们的经济进行战略投资。” 戴说。
 
-男：还疫情防控吗？！
+她将呼吁国会通过现在称为“两党创新法案”的立法批准 520 亿美元用于国内半导体生产和研究。众议院和参议院目前正准备成立一个会议委员会来协调该法案的竞争版本。
 
-#土共不亡百姓亡
+* * *
 
-另据tjxcx💙💛@tjxcx 盖特
+文章观点仅代表作者个人，与Gnews平台无关。
+文章来源：[https://www.politico.com/news/2022/03/30/tai-trade-defense-against-china-00021473](https://www.politico.com/news/2022/03/30/tai-trade-defense-against-china-00021473)
 
-天津赵沽里2022年4月2日早。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 傻小子
+编辑：洛杉矶盘古农场 – 傻小子
+发布：洛杉矶盘古农场 – Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://gettr.com/post/p135weqbd04](https://gettr.com/post/p135weqbd04)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/001-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/002-1.jpg)
-根据以上信息这是一起2022年4月2日早发生在天津河北区月牙河街赵沽里封控小区内的一起惨剧，让我们来回答这对夫妻的问题——
-
-习近平会不会因为这对夫妻的惨剧下台呢？
-
-不会！
-
-共产党会不会因为这对夫妻的惨剧解散呢？
-
-不会！
-
-能改革开放不？
-
-不会！
-
-还疫情防控吗？
-
-中共不亡，疫情不止！
-
-已经逝去的生命不能再复活，但是对于每个身处绝境的同胞来说，中共一日不亡，人民一日不得安宁，时下之计任何的悲观哀叹都于事无补，灭共不仅仅是正义的必需，灭共更是生存的必需，为了活着，为了一起起惨剧不再重现，让我们一起来告诉世界现在中共大地上正在发生的惨剧，因为无穷的远方和无数的人们都与我们息息相关，无穷的远方和无数的人们都与这个世界息息相关。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

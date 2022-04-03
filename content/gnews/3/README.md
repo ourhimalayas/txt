@@ -2,18 +2,26 @@
 ---
 
 
-## 卫星照片显示 占领基辅城郊机场的俄军全部撤出
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2278400/)
+## 美欧国家继续给予乌克兰武器装备支持
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2278437/)
 
-撰稿：纽约磐石农场—在远方
+撰稿：纽约香草山教育部 Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
-台媒4月2日报道，随着俄乌双方第五轮谈判的结束，俄罗斯宣布减少对乌克兰首都基辅和切尔尼戈夫的攻势，虽然美国及乌克兰等国对此持怀疑态度，但美国太空科技麦克萨科技公司的最新卫星图像显示，原先占领基辅城郊安托诺夫机场的俄军确实已经撤离。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-220.png)
-在俄罗斯入侵乌克兰首日，俄军便通过空中力量发动突袭，占领了位于基辅西北方28公里处的安托诺夫机场，之后在此部署多辆军车及火炮据点，并建立土堤保护军备。但是由于乌军强烈的反击，俄军没能再朝基辅前进一步。目前，该机场内已空无一人。
+国外媒体报导，4月1日，德国国防部批准运送58辆步兵战斗车给乌克兰。这些战车战斗车配备了加农炮和机枪，原属前东德所有。
 
-乌克兰总统泽连斯基警告说，俄方声称减少对基辅和切尔尼戈夫的攻击其实仅是一种军事策略，目的则是重新集结兵力攻击乌克兰东部顿巴斯地区、第二大城市哈尔科夫以及马里乌波尔市。美国国防部的评估认为，进攻基辅和切尔尼科夫的俄军，撤退的比例不到20%。
+据悉，柏林在 1990 年代末将这些战斗车转让给了瑞典，瑞典后来将它们卖给了一家捷克公司，该公司现在打算将它们卖给基辅。而各国自德国取得的武器若欲转卖他国，必须先向德国当局申请批准。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-222.png)图片来自：https://mil.in.ua/
+同一天，一名美国官员说，应乌克兰总统泽连斯基的要求，美国将与盟国合作，将苏联制造的坦克转移到乌克兰，以加强其在顿巴斯地区的防御。
 
-参考链接： [入侵之初就攻佔基輔城郊機場 衛星畫面曝：俄軍全撤光](https://news.ltn.com.tw/news/world/breakingnews/3880164)
+与此同时，白宫透露，美国也在向乌克兰提供一些其他物资和设备，以防俄罗斯在乌克兰部署化学或生物武器。
+
+尽管还没有直接证据表明俄罗斯一直在策划这样的袭击，但除美国之外，欧美也启动了一项储备行动，以加强对化学、核和生物事件的防御。
+
+参考链接：[Germany okays sale of former GDR infantry fighting vehicles to Ukraine](https://www.reuters.com/world/europe/germany-okays-sale-former-gdr-infantry-fighting-vehicles-ukraine-2022-04-01/)
+
+[U.S. providing Ukraine with supplies in case Russia deploys chemical weapons](https://www.reuters.com/world/europe/us-providing-ukraine-with-supplies-case-russia-deploys-chemical-weapons-2022-04-01/)
+
+[U.S. will work with allies to transfer Soviet-made tanks to Ukraine -NY Times](https://www.reuters.com/world/europe/us-will-work-with-allies-transfer-soviet-made-tanks-ukraine-ny-times-2022-04-02/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM-1.png)
 

@@ -2,56 +2,52 @@
 ---
 
 
-## 欧洲对美国天然气的需求加快了两个新的液化天然气项目
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278270/)
+## 历史上的今天：4月3日，马来西亚前首相纳吉贪污罪案开始受审
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2278304/)
 
-翻译：Jenny Ball
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
+作者：纽约香草山农场教育部—马克文、朱丽叶
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-23_11.58.11-3.png)
+2019年4月3日，马来西亚前首相纳吉贪污罪案开始受审。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-29-edited.png)森普拉能源总部， 2018 年 5 月 17 日在美国加利福尼亚州圣地亚哥市中心拍摄。
-路透社REUTERS/麦克·布雷克Mike Blake
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-16.jpg)图源网络
 
-休斯顿，4 月 1 日（路透社）——由于俄罗斯威胁要削减对欧洲的能源供应，推高了对超冷燃料的需求和价格，美国的两个液化天然气 (LNG) 项目在本周启动方面迈出了重要一步。
+纳吉·阿都拉萨，生于1953年7月23日，曾任马拉西亚第六任首相。2018年纳吉在大选中被爆出与一马发展有限公司(1MDB)有牵连，有严重的腐败行为，这一事件的曝光导致纳吉在选举中失败。随后，纳吉被马来西亚移民局禁止出境，并被指控涉嫌SRC国际有限公司多项罪名。2019年4月3日，马来西亚高等法院开始审理纳吉被控涉及SRC国际公司4200万令吉洗钱案。
 
-开发商森普拉能源( Sempra Energy )和新堡垒能源公司(New Fortress Energy) 就单独的项目达成协议，其中一个项目可能在 12 个月内生产液化天然气。这些工厂通常需要签订约 85% 产量的长期合同才能启动，并且需要数年才能完成。
+2011年在马来西亚注册的SRC国际公司，是一马发展公司(1MDB)的前子公司，当时的首相和财政部长就是纳吉。据调查发现，2014年12月—2015年2月之间，有4200万令吉从SCR国际公司账户汇入纳吉银行的私人账户。
 
-但客户需求的增长，尤其是欧洲客户的需求，促使新堡垒能源公司决定，用自己的资金投资，在路易斯安那州沿海建造一座年产 280 万吨的工厂。
+2018年，郭文贵先生在美国爆料，一马发展公司(1MDB)实际控制人是刘特佐，此人是中共公安部长孟建柱的私生子。刘特佐用巨额资金买通掌权人纳吉，帮助孟建柱控制马来西亚，把马来西亚国家搞得贪腐横行，乌烟瘴气，经济严重衰退。消息传到马来西亚，举国哗然，马国人民用选票推翻了纳吉连任企图，使马来西亚的政党首次轮替，用新党上台执政来清算刘特佐、纳吉罪行。
 
-新堡垒能源公司首席执行官韦斯·埃登斯 (Wes Edens) 表示：“世界上的天然气供需已经严重失衡。随着欧洲迫切需要减少对俄罗斯天然气的依赖，加快在美国生产液化天然气的发展速度至关重要。”
+2020年7月28日，马来西亚吉隆坡高等法院宣判，前总理纳吉所涉的“SRC国际”案共七项罪名全部成立，判处12年监禁。纳吉作为马来西亚有史以来第一位被送上法庭的前总理。 刘特佐因涉及一马发展公司(1MDB)腐败案，被马来西亚、美国等部门通缉和提控，目前在潜逃。
 
-俄罗斯总统普京要求外国买家，从周五开始以卢布支付俄罗斯天然气，否则，将削减供应，欧洲各国首都拒绝了这一举动，德国称其相当于“敲诈”。
+纳吉·阿都拉萨执政期间发生两件震惊世界大事：
+1）2014年3月8日，一架马航编号370的客机从吉隆坡飞往北京的途中失踪，最后确定机毁人亡。
+2）2017年2月13日，朝鲜最高领导人金正恩的兄长金正男在吉隆坡第二国际机场被刺杀。
 
-上周，拜登政府表示，美国的目标是，今年向欧洲买家额外供应 150 亿立方米的液化天然气，并在2030年前提供500亿立方米的液化天然气，以替代俄罗斯的天然气进口，因为西方试图惩罚莫斯科入侵乌克兰。
+参考来源：
+1.[纳吉·阿都拉萨](https://zh.wikipedia.org/wiki/纳吉·阿都拉萨)
+2.[一次弄懂什么是SPC洗钱案](https://www.sinchew.com.my/20200727/一次弄懂什么是src洗钱案/)
+3.[一个马来西亚发展有限公司丑闻](https://zh.wikipedia.org/wiki/一个马来西亚发展有限公司丑闻)
+4.[刘特佐](https://zh.wikipedia.org/wiki/刘特佐)
+5.[6/10/2018 文贵直播：孟建柱控制了东南亚！他通过办湄公河案控制了湄公河岸的各国，并用刘特佐掌控了马来西亚](https://www.youtube.com/watch?v=ZLFg_J2y398)
 
-风险降低
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-1.jpg)
 
-去年，大约十几家液化天然气开发商表示，他们的目标是，就他们的项目做出最终投资决定。但只有森普拉(Sempra) 位于墨西哥下加利福尼亚州“蔚蓝海岸能源公司”(Energia Costa Azul )液化天然气接收站在过去两年开始建设。
+编辑/校对/发稿：兰兰
 
-周四，森普拉达成初步协议，向法国“全能”( Total Energies )供应来自墨西哥的第二个项目“维斯塔太平洋液化天然气”( Vista Pacifico LNG )的天然气。根据协议，“全能”将收购 16.6% 的股份，并占 4 MTPA 工厂出口产量的约三分之一。
+更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
 
-伍德·麦肯兹咨询公司(Wood Mackenzie) 的天然气分析师亚历克斯·芒顿（Alex Munton） 表示，天然气价格预测足够强劲，如果工厂能够在未来几年内开始运营，则值得承担风险。
 
-“我们继续看到对我们的液化天然气开发项目的巨大兴趣”森普拉发言人帕蒂·奥尔特加·米切尔（Paty Ortega Mitchell） 说。
 
-新闻来源：[Europe’s appetite for U.S. gas fast-tracks two new LNG projects](https://www.reuters.com/business/energy/europes-appetite-us-gas-fast-tracks-two-new-lng-projects-2022-04-01/)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-23_11.58.11-3.png)
 
-素材： peacelv
-审核：文乐
-校对：阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
 
  
 
