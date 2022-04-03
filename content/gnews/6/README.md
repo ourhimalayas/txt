@@ -2,35 +2,32 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月3日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281547/)
+## 【商见你我他】第48期新闻简讯（一）
+` MayflowerBiz` [轉載自GNews](https://gnews.org/zh-hans/2281572/)
 
-作者：香草山翻译部
+编辑：波士顿五月花—DM
+![](https://assets.gnews.org/wp-content/uploads/2022/04/day_283x-1.png)
+让我们关注一组乌克兰前线救援的消息
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+截至3月31日，新中国联邦·法治基金——乌克兰27天累计救援总计：梅迪卡救援站接待：约8065人；巴士救援难民：2009人；士发车：39次。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-1.png)
+1 ）前线救援让全世界有着共同灭共心愿的人们有了一个聚焦点。新中国联邦前线营地得到了国际人道主义救援团队认可，每天都收到来自世界各地的救援物资，已成为接收物资的核心营地。 我们的出现证明了，中共不能代表中国人。我们用行动告诉世界，一定会消灭中国共产党。
 
-文章仅代表作者本人观点，与Gnews无关
+2）目前，出现了更多自我救援的西方面孔，并加入到自愿宣传新中国联邦的队伍中，这些国际救援者认识到我们与中共的不同。很多人下载了盖特，他们的盖文得到大量点赞、转发。
 
-视频参看：
-[2022.04.03早 《NFSC新闻》](https://www.gettr.com/streaming/p13cdp658c9)
-[2022.04.03早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13cemm3a50)
+其它媒体也都喜欢以新中国联邦和法治基金的大帐蓬为背景进行采访，我们在梅迪卡受到越来越的认同。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+3）救援站接待了一位迄今为止最年长的难民 – 一位81岁的老太太徒步60公里逃离战乱，来到大帐蓬等待自己的儿子从德国驱车前来接她，这让前线的战友当场泪奔。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
+梅迪卡营地有人在战乱中不忘救助流浪狗。人和狗都得到了关怀，显示了人性的光辉。希望如果中共侵略台湾造成灾难，人们也能展现相同的爱心。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+5）在波兰梅迪卡难民营的丹麦义工们，还主动来新中国联邦帐篷前，领取印有“推翻邪恶的中国共产党“口号的马甲，并且高喊 “滚蛋吧中国共产党”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+6）新中国联邦团队是营地里唯一大规模实施实际救援的亚洲人组织，我们对于人权、人道及生命的尊重，获得了国际社会的普遍认可。 这一次救援，我们不光是把中国人的形象救回来，也把所有长相一样的亚洲人的形象拯救回来。
+
+审核/发布：DM
+
+封面图片：DM
 
  
 
