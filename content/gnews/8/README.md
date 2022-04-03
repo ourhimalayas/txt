@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花头条┃上海疫情：中山公园龙之梦家乐福突然被封 抢菜的人都被困
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2279519/)
+## 五角大楼宣布向乌克兰提供3亿美元的额外援助
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279625/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-上海疫情：中山公园龙之梦家乐福突然被封，抢菜的人都被困；上海接连有哮喘病人因得不到及时救治而死亡。
+04/02/2022 五角大楼宣布向乌克兰提供3亿美元的额外援助
 
-信息来源：[https://www.gettr.com/post/p12ugis32cd](https://www.gettr.com/post/p12ugis32cd)
-
-编辑：东京樱花团/asket、素材：asket/太白
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

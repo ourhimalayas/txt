@@ -2,23 +2,12 @@
 ---
 
 
-## 樱花头条┃33家香港上市公司停牌 世茂等地产商位列其中
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2279544/)
+## 泽连斯基解雇了乌克兰特勤局 SBU 的两名将军
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279648/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-至少有33家香港上市公司停牌,世茂等地产商位列其中
+04/01/2022 本·哈恩威尔：泽连斯基解雇了乌克兰特勤局 SBU 的两名将军
 
-信息来源：[https://www.gettr.com/post/p12ycpf7545](https://www.gettr.com/post/p12ycpf7545)
-
-编辑：东京樱花团/asket、文米（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

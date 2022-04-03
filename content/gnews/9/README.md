@@ -2,12 +2,32 @@
 ---
 
 
-## 乔·艾伦讲述超人类主义者的邪恶手段
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279512/)
+## 未来乌俄领导人峰会的地点很可能是土耳其
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2279624/)
 
-03/29/2022 乔·艾伦给史蒂夫·班农先生介绍了由莫德纳的联合创始人罗伯特·兰格成立的名为“人类粒子”的公司开发的量子点纹身疫苗接种记录项目，该项目由比尔和梅琳达·盖茨基金会资助。量子点纹身是一个注射到人体皮肤上的很小的纳米颗粒二维码，用于保存疫苗接种记录。
+翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2N3ZKRD7IZL3VPWPUPDM2PNENA.jpg)
+
+
+*图片来源： 路透社，俄罗斯总统弗拉基米尔·普京于 2022 年 3 月 30 日在俄罗斯莫斯科克里姆林宫与印古什共和国领导人马赫穆德·阿里·卡利马托夫会晤。Sputnik/Mikhail Klimentyev/Kremlin via REUTERS/File Photo*
+
+国际文传电讯社报道，未来俄罗斯-乌克兰领导人峰会的地点很可能是土耳其
+
+乌克兰国际文传电讯社周六援引乌克兰谈判代表的话说，俄罗斯总统弗拉基米尔·普京和乌克兰总统弗拉基米尔·泽连斯基的会晤地点很可能是土耳其。
+
+双方都将最近几天的谈判描述为困难重重。 会谈结合了在土耳其的面对面会议和虚拟会议。
+
+有人说，土耳其总统塔伊普·埃尔多安周五致电普京和泽连斯基，“并且似乎从他的身边证实，他们准备在不久的将来安排一次会面”。补充说：“日期或地点都不知道，但很可能在伊斯坦布尔或安卡拉。”
+
+简评：不管这份报道的情况是否属实， 真心希望乌克兰人民免受战争痛苦， 尽快停战， 老百姓才可以少受损失。
+
+🔗[https://www.reuters.com/world/venue-future-russia-ukraine-leaders-summit-most-likely-turkey-interfax-2022-04-02/](https://www.reuters.com/world/venue-future-russia-ukraine-leaders-summit-most-likely-turkey-interfax-2022-04-02/)
+
+编辑发表： Shuizhuyu
 
  
 

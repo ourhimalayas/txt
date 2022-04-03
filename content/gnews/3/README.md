@@ -2,11 +2,11 @@
 ---
 
 
-## 新中国联邦救援的意义（九）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279594/)
+## 通过行动用我们的能力打痛中共（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279670/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-910-920-9.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-925-928-4.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

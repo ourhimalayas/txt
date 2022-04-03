@@ -2,12 +2,18 @@
 ---
 
 
-## 欧盟议会主席誓言帮助乌克兰重建
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279573/)
+## 通过行动用我们的能力打痛中共（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279667/)
 
-04/02/2022 欧洲议会议长罗伯塔·梅索拉向乌克兰最高拉达主席鲁斯兰·斯特凡丘克做出三项承诺：首先，我们对俄罗斯入侵乌克兰听之任之；第二，欧洲议会全力支持乌克兰加入欧盟；第三，战争结束后，我们将帮助重建乌克兰。
+**PPT制作：Qingjing ；玉米地的**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-925-928-3.jpg)
+发布：tianzhihuan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
