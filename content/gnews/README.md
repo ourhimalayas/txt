@@ -15,94 +15,94 @@
 
 ---
 
-### [2022/04/02 文贵先生盖特精要](/content/gnews/1/README.md)
+### [4/3/2022 文贵直播：国内和香港的疫情是由疫苗副作用导致，中共国的隔离措施是为疫苗灾难作准备，同时也是党内政治斗争的结果](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2022/04/02 文贵先生盖特精要](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰指责俄罗斯屠杀平民犯有战争罪](/content/gnews/2/README.md)
+### [乌克兰指责俄罗斯屠杀平民犯有战争罪](/content/gnews/3/README.md)
  ` 蓝莲花农场`
 
-### [20220319-20220325乌克兰战事一周回顾](/content/gnews/3/README.md)
+### [20220319-20220325乌克兰战事一周回顾](/content/gnews/4/README.md)
  ` KarmaLabs`
 
-### [被俄中假新闻“赐死”的乌克兰最致命女阻击手](/content/gnews/4/README.md)
+### [被俄中假新闻“赐死”的乌克兰最致命女阻击手](/content/gnews/5/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [2022/04/03 英喜时事速递](/content/gnews/5/README.md)
+### [2022/04/03 英喜时事速递](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [德国零售商周一将提高食品价格20-50%](/content/gnews/6/README.md)
+### [德国零售商周一将提高食品价格20-50%](/content/gnews/7/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰战争期间塞尔维亚投票选举总统和议会](/content/gnews/7/README.md)
+### [乌克兰战争期间塞尔维亚投票选举总统和议会](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [帮助大家了解，谁是CDN？它是如何评价喜币的？](/content/gnews/8/README.md)
+### [帮助大家了解，谁是CDN？它是如何评价喜币的？](/content/gnews/9/README.md)
  ` KarmaLabs`
 
-### [联合国人道主义机构车队带有食品衣物医疗用品驶向乌克兰](/content/gnews/9/README.md)
+### [联合国人道主义机构车队带有食品衣物医疗用品驶向乌克兰](/content/gnews/10/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [【转】截至4.3 俄乌战事汇总](/content/gnews/10/README.md)
+### [【转】截至4.3 俄乌战事汇总](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界还没有准备好一个新的世界秩序](/content/gnews/11/README.md)
+### [世界还没有准备好一个新的世界秩序](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [对俄乌土耳其会谈后俄罗斯在乌克兰的承诺持怀疑态度](/content/gnews/12/README.md)
+### [对俄乌土耳其会谈后俄罗斯在乌克兰的承诺持怀疑态度](/content/gnews/13/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [喜联储主席撰文 谈加密货币的重要作用](/content/gnews/13/README.md)
+### [喜联储主席撰文 谈加密货币的重要作用](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [专业的电工战友-鬼五](/content/gnews/14/README.md)
+### [专业的电工战友-鬼五](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [COVID疫苗注射对人体血液有什么影响？](/content/gnews/15/README.md)
+### [COVID疫苗注射对人体血液有什么影响？](/content/gnews/16/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [洛克菲勒曾推动FDA批准中国产坠胎药的许可证](/content/gnews/16/README.md)
+### [洛克菲勒曾推动FDA批准中国产坠胎药的许可证](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G时新闻】中共极端防疫导致 货车司机饿死高速路](/content/gnews/17/README.md)
+### [【G时新闻】中共极端防疫导致 货车司机饿死高速路](/content/gnews/18/README.md)
  ` G-时新闻`
 
-### [俄互联网顶级CEO公开反对俄入侵战争](/content/gnews/18/README.md)
+### [俄互联网顶级CEO公开反对俄入侵战争](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [5个孩子的奶爸聊哥&#8211;小小酥](/content/gnews/19/README.md)
+### [5个孩子的奶爸聊哥&#8211;小小酥](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [罗伯特·马龙说小罗伯特应获诺贝尔和平奖](/content/gnews/20/README.md)
+### [罗伯特·马龙说小罗伯特应获诺贝尔和平奖](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [4/04/2022 银河快讯: 日本单日新增47,345人被感，34人死亡，；日本将尽快决定油价上涨的应对措施](/content/gnews/21/README.md)
+### [4/04/2022 银河快讯: 日本单日新增47,345人被感，34人死亡，；日本将尽快决定油价上涨的应对措施](/content/gnews/22/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [普京侵略乌克兰的背后支撑：中共](/content/gnews/22/README.md)
+### [普京侵略乌克兰的背后支撑：中共](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [国后岛夜现闪光 报告接连不断 根室地呜 不安蔓延](/content/gnews/23/README.md)
+### [国后岛夜现闪光 报告接连不断 根室地呜 不安蔓延](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“承认失败”：全球疫苗接种战略亟待转变](/content/gnews/24/README.md)
+### [“承认失败”：全球疫苗接种战略亟待转变](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“无政府状态”，巴基斯坦伊姆兰-汗被指控为“叛国”](/content/gnews/25/README.md)
+### [“无政府状态”，巴基斯坦伊姆兰-汗被指控为“叛国”](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰称整个基辅地区已从俄手中夺回](/content/gnews/26/README.md)
+### [乌克兰称整个基辅地区已从俄手中夺回](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共——“权力的游戏”](/content/gnews/27/README.md)
+### [中共——“权力的游戏”](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|朋友，你不孤单](/content/gnews/28/README.md)
+### [有声|朋友，你不孤单](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [【G时新闻】巴西放宽对国际旅行者的Covid相关限制](/content/gnews/29/README.md)
- ` G-时新闻`
-
-### [【G时新闻】新州救护车服务在两周内四次达到危机级别](/content/gnews/30/README.md)
+### [【G时新闻】巴西放宽对国际旅行者的Covid相关限制](/content/gnews/30/README.md)
  ` G-时新闻`
 
 ### [文贵大直播要点&#8211;主讲：美国小李（2022年4月3日）](/content/gnews/31/README.md)
