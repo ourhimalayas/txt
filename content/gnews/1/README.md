@@ -2,11 +2,11 @@
 ---
 
 
-## 一切唯真不破（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279683/)
+## 西方说假话是要被追究的（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279835/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-935-940-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-1002-1007-1.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

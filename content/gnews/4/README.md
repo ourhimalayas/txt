@@ -2,12 +2,18 @@
 ---
 
 
-## 泽伦斯基警告说，俄军队在撤退时留下陷阱
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2279669/)
+## 救援会持续多久（九）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279825/)
 
-04/02/2022 泽伦斯基警告说，随着乌克兰城市再次遭到导弹袭击，撤退中的俄罗斯军队正在制造‘一场彻底的灾难’，在他们身后留下地雷和尸体。乌克兰总统周六上午发出了这一警告，因为被包围的马里乌波尔市的人道主义危机加深了，据说俄罗斯军队连续第二天阻止了撤离行动。
+**PPT制作：小蜗牛 ；牛魔王**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-950-1000-9.jpg)
+发布：tianzhihuan
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

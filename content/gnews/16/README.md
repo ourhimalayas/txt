@@ -2,18 +2,16 @@
 ---
 
 
-## 樱花头条┃美国 FDA 批准第四剂新冠疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2279460/)
+## 樱花头条┃美国宣布史上最大石油储备释放计划
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2279638/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-美国 FDA 批准第四剂新冠疫苗
+美国宣布史上最大石油储备释放计划
 
-仅限于 50 岁以上和免疫功能低下的人群
+信息来源：[https://www.gettr.com/post/p12ztku5b59](https://www.gettr.com/post/p12ztku5b59)
 
-信息来源：[https://www.gettr.com/post/p12njnfd993](https://www.gettr.com/post/p12njnfd993)
-
-编辑：东京樱花团/asket、asket(素材）
+编辑：东京樱花团/asket、太白（素材）
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****
@@ -21,6 +19,8 @@
 [**郭文贵先生Gettr**](https://gettr.com/user/miles)**
 **[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 [**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
 
  
 

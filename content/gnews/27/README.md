@@ -2,64 +2,44 @@
 ---
 
 
-## 教皇方济各首次在乌克兰问题上含蓄批评普京
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2278401/)
+## 香港只能越来越坏&amp;联军将在三分钟内摧毁三万中共基地
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2279184/)
 
-翻译: 里奇
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8850.50%EF%BC%89%E9%A6%99%E6%B8%AF%E5%8F%AA%E8%83%BD%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%9D%8F%E3%80%81%E8%81%94%E5%86%9B%E5%B0%86%E5%9C%A8%E4%B8%89%E5%88%86%E9%92%9F%E5%86%85%E6%91%A7%E6%AF%81%E4%B8%89%E4%B8%87%E4%B8%AD%E5%85%B1%E5%9F%BA%E5%9C%B0%E3%80%902022%E5%B9%B403%E6%9C%8806%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1.jpg)
+**郭文贵先生：**我再告诉还有战友说香港的问题，香港只能越来越坏，不会越来越好，只是多快的坏还是走上什么样的结果，一定是越来越坏，你就半点幻想都不要有啊，一点儿不要有，一点儿都不能要有。
 
+然后福建一定是惨到极点的，大连，辽宁，潜水艇基地，海南潜水艇基地，福建，一定。你想想，他们对台湾的要残酷地快速战争。联军，我现在判断一定会参与的，联军对待中共的开战那一定是相对等的，给你残酷。这个残酷，三万多个基地，一大半基地都在沿海，大连、广东、福建、江西，还有河南内部的一些导弹基地，一定给你催垮，一定给你三分钟以内给你催垮。
 
+兄弟姐妹们，珍惜我们拥有的，无苗的，这比战争多过一万万倍的这种利益，因为它会决定你的生命，珍惜吧！第二个就是珍惜你有喜币，珍惜你有G-TV股票吧。我啥都不说啦，谢谢！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-edited.jpeg)图片来源于网络
+字幕来源：[2022年3月6日《文贵大直播》全文字版](https://gnews.org/zh-hans/2118742/)
 
-瓦莱塔，4 月 2 日（路透社） – 教皇方济各在周六表示，一位“当权者”正在煽动民族主义利益的冲突，这是他迄今为止最接近于含蓄地批评总统弗拉基米尔·普京 (Vladimir Putin)。
+编辑整理：Jacques；
 
-莫斯科表示，它于 2 月 24 日发起的行动是一项“特殊军事行动”，其目的不是占领领土，而是将其邻国非军事化和“去纳粹化”。方济各已经拒绝了这个术语，称其为战争。
+字幕档制作：知津；
 
-“从欧洲东部，从日出之地，战争的黑暗阴影现在已经蔓延。我们曾认为其他国家的入侵，野蛮的巷战和原子威胁是对遥远过去的严峻回忆”， 教皇在抵达地中海岛国进行为期两天的访问后，向马耳他官员发表的讲话中如此表达。
+视频制作及上传：Cindy；
 
-“然而，冰冷的战争之风只会带来死亡、破坏和仇恨，它强力地席卷了许多人的生活，影响了我们所有人” 他说。
+G-News发布：海贼王M.D.LUFFY；
 
-“再一次，一些当权者不幸陷入了民族主义利益的不合时宜的主张，正在挑起和煽动冲突，而普通人则意识到有必要建立一个未来，要么共享，要么根本不共享” 他说。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-方济各的声音很大，但他是坐着发表演讲。梵蒂冈发言人马泰奥·布鲁尼（Matteo Bruni）说，这是教皇 36 次出国旅行中第一次因膝盖突然疼痛迫使他使用货运电梯在罗马登机并在瓦莱塔下机——以避免“不必要的劳损”。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-教皇一瘸一拐地走进总统府，强烈谴责了他称之为“无理侵略”的战争，并谴责了战争中的“暴行”。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“战争之夜”
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-但他只是在祈祷中直接提到了俄罗斯，比如在 3 月 25 日的一场特殊的全球和平活动中。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-“现在，在降临人类的战争之夜，让我们不要让和平的梦想破灭！” 他周六说。
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-他再次批评军火工业，并对二战后出现的和平热情消退表示苦恼，称利益和意识形态的冲突“在专制制度、新形式的帝国主义（和）广泛侵略的诱惑下重新出现。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-早些时候，在他的飞机上，一位记者问他是否正在考虑接受邀请访问基辅，教皇回答说：“是的，这事摆在桌面上”。他没有提供更多细节。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-方济各受到乌克兰总统泽连斯基、基辅市长维塔利·克里琴科、乌克兰拜占庭式天主教会的斯维亚托斯拉夫·舍夫丘克少校和乌克兰驻梵蒂冈大使安德烈·尤拉什的邀请。
-
-他与泽连斯基和舍夫丘克通了电话。
-
-方济各还谴责马耳他的腐败，在过去十年的大部分时间里，腐败、金融违规和裙带关系一直主导着该岛的政治叙事。
-
-“愿你们始终深植合法性和透明度，这将有助于根除腐败和犯罪” 他说。
-
-新闻来源:[Pope implicitly criticises Putin on invasion, considers Kyiv trip](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
-
-* * *
-
-审核：文乐
-校对:  阿伯塔
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+G-TV：日本银河系农场。
 
  
 

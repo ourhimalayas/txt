@@ -2,33 +2,34 @@
 ---
 
 
-## 美欧国家继续给予乌克兰武器装备支持
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2278437/)
+## 台湾｜台美于华府进行实体会谈 为扩大台湾国际参与
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279381/)
 
-撰稿：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
-国外媒体报导，4月1日，德国国防部批准运送58辆步兵战斗车给乌克兰。这些战车战斗车配备了加农炮和机枪，原属前东德所有。
+**港台前线 zhong｜2022-4-3**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国在台协会（AIT）和驻美国台北经济文化代表处（TECRO）邀集美国国务院和台湾外交部的高阶代表，3月31日在华府针对扩大台湾参与联合国和其他国际论坛进行协商。
 
-据悉，柏林在 1990 年代末将这些战斗车转让给了瑞典，瑞典后来将它们卖给了一家捷克公司，该公司现在打算将它们卖给基辅。而各国自德国取得的武器若欲转卖他国，必须先向德国当局申请批准。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-222.png)图片来自：https://mil.in.ua/
-同一天，一名美国官员说，应乌克兰总统泽连斯基的要求，美国将与盟国合作，将苏联制造的坦克转移到乌克兰，以加强其在顿巴斯地区的防御。
 
-与此同时，白宫透露，美国也在向乌克兰提供一些其他物资和设备，以防俄罗斯在乌克兰部署化学或生物武器。
+> On March 31, 2022, the American Institute in Taiwan (AIT) and the Taipei Economic and Cultural Representative Office (TECRO) convened high-level representatives of the U.S. Department of State and the Taiwan Ministry of Foreign Affairs for consultations in Washington on expanding **Taiwan’s participation at the United Nations and in other international fora**.
 
-尽管还没有直接证据表明俄罗斯一直在策划这样的袭击，但除美国之外，欧美也启动了一项储备行动，以加强对化学、核和生物事件的防御。
 
-参考链接：[Germany okays sale of former GDR infantry fighting vehicles to Ukraine](https://www.reuters.com/world/europe/germany-okays-sale-former-gdr-infantry-fighting-vehicles-ukraine-2022-04-01/)
+美国国务院新闻稿称，本次所有与会者都认识到，应该与那些关注台湾被排除在国际社会外的盟友紧密合作，推动台湾参与国际组织的可能性。
 
-[U.S. providing Ukraine with supplies in case Russia deploys chemical weapons](https://www.reuters.com/world/europe/us-providing-ukraine-with-supplies-case-russia-deploys-chemical-weapons-2022-04-01/)
+台湾外交部新闻稿表示，本次会议议题涵盖公共卫生、民航安全、打击跨国犯罪、经济合作及民主治理等，外交部感谢美国对台湾的坚定友谊与支持。美国于会议中重申将继续支持并协助台湾拓展国际空间及对全球关注议题作出更多专业贡献，台湾外交部代表人员，强调台湾将拓展国际参与，共同维护以规则为基础的国际秩序并强化多边治理及区域合作。
 
-[U.S. will work with allies to transfer Soviet-made tanks to Ukraine -NY Times](https://www.reuters.com/world/europe/us-will-work-with-allies-transfer-soviet-made-tanks-ukraine-ny-times-2022-04-02/)
+## 5月世界卫生大会
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-01-at-3.49.08-PM-1.png)
+本次与美国的会议，其一重点为“台湾作为观察员参与五月的世界卫生大会（WHA）”。据了解，丹麦国会3月31日以103票赞成、0票反对、0票弃权的压倒性票数通过支持立陶宛及台湾参与世界卫生大会（WHA）决议文，该决议文对立陶宛与中共之间的危机表示关注，呼吁丹麦与欧盟团结一致支持立陶宛，并吁请丹麦政府协同欧盟在欧中关系及相关国际场域提高对中共的压力，让台湾获得世界卫生大会观察员地位。
 
-编辑/总编/审核：飞虹
+该决议文在丹麦国会辩论中获跨党派议员先后发言支持。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-11.png)
+来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97643)、[Taiwan Working Group Meeting on International Organizations (IO Talks)](https://www.state.gov/u-s-taiwan-working-group-meeting-on-international-organizations-io-talks-2/)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

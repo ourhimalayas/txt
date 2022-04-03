@@ -2,32 +2,63 @@
 ---
 
 
-## 樱花时政┃中共极端防疫 货车司机高速路饿死
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2279525/)
+## 新冠疫苗副作用亲历者爆料收集专栏 辉瑞第三针后荨麻疹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2279719/)
 
-撰稿：东京樱花团/法治小哥
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃中共极端防疫-货车司机高速路饿死.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fp3.itc.cn%2Fimages01%2F20220402%2F0b54b024738147b5a398d290b115504c.jpeg&amp;imgrefurl=http%3A%2F%2Fsociety.sohu.com%2Fa%2F534718301_695055&amp;tbnid=aKE4_EF7qii6DM&amp;vet=12ahUKEwjvxpPOyff2AhVqzosBHeVhA1MQMygAegUIA)
+整理：gardeniahu
+编辑：JH
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-182.png)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-因严峻疫情，自3月底于辽宁省鞍山高速公路上进行防疫管控，不少负责送货的司机只能停留在交流道下车路口前，无法离开高速公路。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/79UK2UD4UNBI4MBH2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-33.png)
+**疫情|新冠疫苗副作用，辉瑞第三针后荨麻疹**
 
-根据辽宁省鞍山高速公路管理局标识，近日有数百辆货车、客车堵在交流道出口，因为疫情防控无法离开，车辆堵塞将近2公里。
+之前有分享过接种辉瑞第三针，结果打完过了半个月因为疫苗起了严重的荨麻疹，导致一直停更,这篇和大家分享一下荨麻疹的注意事项。
 
-一名司机受访表示，平常货车司机准备的食物量是按照两天的份量准备，只是没想到因为突如其来的防疫管孔政策，所有人卡在交流道出口动弹不得，待着车上的他有四天只敢吃着5块钱的馒头充饥，平均1天1块钱的馒头确实吃不饱。
+我在打完疫苗后大概过了半个月起的荨麻疹（之前从来没有过类似的病史，顶多有过敏性鼻炎，但是现在已经好了）刚开始起的是小红包，有点像蚊子咬的包一样，然后晚上突然后背很痒，就挠了一下，顿时整个后背都红肿了，而且还有很多挠的指甲印。当时以为是急性的，吃一些过敏药就没在意。
 
-此外，吉林省松原市王府休息站也塞满了货车司机，中共官媒《封面新闻》甚至报道有停留在吉林松原王府服务区的司机20多天没有进食，抢救无效身亡。
+接下来几天就逐渐离谱，每当我写作业或者焦虑，紧张时，身上就会肉眼可见一下子起超级多红疹，然后我就搜了一下，荨麻疹竟然会随着心情变化，如果生气着急的话，就很容易刺激到。
 
-信息来源：
-[中國防疫鎖路！司機「5元饅頭」撐四天　休息站塞滿貨車](https://www.nownews.com/news/5764681)
+然后我就去看了中医，中医说是因为打疫苗后免疫系统紊乱再加上我内分泌失调激发出来的。差不多喝了半个多月的中药，一直没有好转。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+我就不吃中药了，改吃抗过敏的西药，现在已经吃了差不多一个多月，虽然不怎么起大片的疹子了，但是时不时还会有小片的疹子，只要不刺激不挠就没事。
+
+抹药，我抹了aveeno有一款止痒身体乳和一些其他的药膏。
+
+荨麻疹注意事项:
+
+忌海鲜生冷，一定不能吃，我就因为嘴馋浅尝了一下海鲜，荨麻疹就复发大片疹子了。
+
+多运动，早睡觉，提高免疫力。
+
+尽量不吃牛羊鸡肉，每个人体质不同，我是不能吃羊肉，其他的倒不会刺激疹子。
+
+保持心情舒畅，不生气焦虑。我是真真切切的体验了暴躁的时候，荨麻起的有多恐怖。所以一定不要生气暴躁。
+
+尽量不挠，不刺激皮肤包括脸！荨麻疹期间皮肤很敏感，稍微捏一下皮肤，就会很红起反应。我是有一次自己用粉刺针挤痘，结果没过一会，整个脸就肿了起来，每一个挤过的痘痘都红肿了。（不敢放图，密恐人接受不了。）
+
+暂时总结这么多，我现在差不多已经有两个月左右，还没有彻底好，应该是转为慢性的了，有同样经历的宝子们可以在评论区分享一下。
+
+精选评论：
+
+飞猫回复：我已经听说好几个人三针后荨麻疹。
+
+alexxu回复：我也是三针后得的，海鲜酒都没事，就是不能运动出汗，发在手臂和腿，还好不痒，身体凉下来就自然退了。
+
+MHJ778回复：国内的疫苗打了也会复发。
+
+参考链接：
+
+[https://www.xiaohongshu.com/discovery/item/624645c3000000002103b4b4?share\_from\_user\_hidden=true&xhsshare=CopyLink&appuid=593bc86450c4b43662c38691&apptime=1648867293](https://www.xiaohongshu.com/discovery/item/624645c3000000002103b4b4?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648867293)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
