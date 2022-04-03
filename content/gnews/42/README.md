@@ -2,41 +2,33 @@
 ---
 
 
-## 在上海如果感染新冠却没有山东大姐被曝光的幸运会怎样
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2277472/)
+## 澳大利亚研究出新型纳米涂层可增加锂电池寿命
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2279029/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面.png)
-据[**大公文匯網**](https://weibo.com/tkww) [22-04-3 08:02](https://weibo.com/7476748260/LmGPB9rs3?from=page_1002067476748260_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-[#山东大姐因疫情流落上海街头#](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%A4%A7%E5%A7%90%E5%9B%A0%E7%96%AB%E6%83%85%E6%B5%81%E8%90%BD%E4%B8%8A%E6%B5%B7%E8%A1%97%E5%A4%B4%23&amp;from=default) 大姐自述：感染了三天了也没人管没人问，就因为自己是外地人，小区里有租的房子3500一个月，居委会也不让我进去，就把我赶到马路上来，晴天了就睡在大马路上，下雨了就找个桥底下睡。
+整理/编辑：小红帽
 
-据了解，通过媒体的报道后，大姐已被120接走，接到指定地点隔离救治。希望大姐早日康复！[L潍坊观察的微博视频](http://t.cn/A66lqT70)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/liion-edited.jpg)图片来源：www.richtek.com
 
-上海正在发生的事情其实在全国各地都在发生，在疫情防控的大帽子之下，随意剥夺公民进出住所的权利已经司空见惯，而山东大姐在上海的这番遭遇最后得以解决并非上海相关部门良心发现，而是由于这位山东大姐的遭遇被媒体曝光，那么没有曝光的惨剧又有多少呢？
 
-由于很多人并没有山东大姐这么幸运，所以要么被逼死，要么被饿死，要么被病死，时下之中国只要套上一个红袖箍，只要穿上防护服，立马获得对普通百姓颐指气使的权力，在无法无天的苛政之下，每一个沉默的羔羊的生存空间都变得越来越逼仄，都说羊被逼急了也会咬人，那么当越来越多的羔羊被逼到退无可退时，中华大地无处不在的人间地狱还能继续存在吗？
+新华社悉尼4月3日报道，澳洲昆士兰大学的研究人员撰写的一篇有关新型纳米涂层的论文近日发表在英国《自然·通讯》杂志上。论文指出，该涂层可以延长锂电池的使用寿命，降低废电池对环境的危害。
 
-撰稿：喜马拉雅的肉夹馍；
+该大学研究人员表示，锂电池具有能量密度大，输出电压高的优点，已广泛应用于智能手机、笔记本电脑、电动汽车等产品。然而，锂电池的正极材料通常采用金属钴，而金属钴既昂贵又有毒。
 
-审核：喜马拉雅的馍夹肉；
+研究人员给锂电池的正极“加装”了一层原子厚度的新涂层。该纳米涂层中加入了镍和镁材料，让锂电池变得极其坚固且耐用。这大大降低了锂电池的制造成本。镍和镁价格便宜，释放的有毒物质也更少。
 
-校对：Maarago；
+该纳米涂层具有很强的附着力，可以牢牢吸附在电池的正极上，防止电池材料随时间推移而分解，因此能大大延长电池寿命。经处理后的锂电池可以经历1000多次充放电，但仍能保持性能稳定。跟原有电池相比，加了新涂层的锂电池的充放电次数最少增加一倍以上。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+新闻来源： [澳大利亚研发纳米涂层延长锂电池使用寿命](https://www.sohu.com/a/534962733_267106)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+发布：tianzhihuan
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

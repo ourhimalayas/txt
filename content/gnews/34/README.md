@@ -2,33 +2,34 @@
 ---
 
 
-## 台湾｜台美于华府进行实体会谈 为扩大台湾国际参与
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2279381/)
+## 日本制裁俄罗斯，同时接纳乌克兰难民
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2279802/)
 
-**港台前线 zhong｜2022-4-3**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国在台协会（AIT）和驻美国台北经济文化代表处（TECRO）邀集美国国务院和台湾外交部的高阶代表，3月31日在华府针对扩大台湾参与联合国和其他国际论坛进行协商。
+#### 【雅典娜快讯】，紧贴时代脉搏
+
+整理：gardeniahu
+编辑：Mohegayer K. Simon
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/financial_consultant_3.png)图片来源：雅典娜设计组
 
 
-> On March 31, 2022, the American Institute in Taiwan (AIT) and the Taipei Economic and Cultural Representative Office (TECRO) convened high-level representatives of the U.S. Department of State and the Taiwan Ministry of Foreign Affairs for consultations in Washington on expanding **Taiwan’s participation at the United Nations and in other international fora**.
+据大纪元2022年04月02日讯报导，3月29日，日本内阁敲定政令修改，将于4月5日开始禁止向俄罗斯出口奢侈品。同时，计划接纳乌克兰难民。
 
+日本经济产业大臣萩生田光一在内阁会后的记者会上说，日本政府将与国际社会合作，对俄罗斯采取严厉的制裁措施，包括禁止向俄罗斯出口珠宝饰品等奢侈品。日本政府也提出了扩大制裁对象，将俄罗斯寡头家人的资产也冻结，2006年日本政府曾向宣布实施了核试验的北韩政府发动过禁止出口奢侈品的政令。
 
-美国国务院新闻稿称，本次所有与会者都认识到，应该与那些关注台湾被排除在国际社会外的盟友紧密合作，推动台湾参与国际组织的可能性。
+联合国难民事务高级专员公署（UNHCR）3月30日宣布，乌克兰自2月遭俄罗斯入侵以来，逃离的难民人数超过400万人，五周内就已超过难民署最初预估的最大人数。日本产经新闻报导，波兰现已接纳乌克兰难民超过200万人，因接纳难民能力有限，波兰外长拉奥（Zbigniew Rau）向国际社会求援。
 
-台湾外交部新闻稿表示，本次会议议题涵盖公共卫生、民航安全、打击跨国犯罪、经济合作及民主治理等，外交部感谢美国对台湾的坚定友谊与支持。美国于会议中重申将继续支持并协助台湾拓展国际空间及对全球关注议题作出更多专业贡献，台湾外交部代表人员，强调台湾将拓展国际参与，共同维护以规则为基础的国际秩序并强化多边治理及区域合作。
+据NHK报导，为接纳乌克兰难民，3月30日法务大臣古川祯久在法务省会晤波兰驻日大使米勒斯基（Paweł Milewski）时表示“将视难民的接收现况，与波兰政府要员会谈，听取各方意见”。除了给在日本的乌克兰难民提供生活费和医疗费以外，日本政府还将提供难民在日语学习、就业咨询和儿童教育等方面的援助。日本岸田首相3月2日表明愿意接纳乌克兰难民后，截至25日已有204人抵达日本。但因机票费用过高，有些难民不得不放弃赴日，岸田首相28日在国会答询时说，今后将研究如何协助难民赴日。
 
-## 5月世界卫生大会
+参考链接：[日本停止对俄出口奢侈品 拟助乌克兰难民赴日](https://www.epochtimes.com/gb/22/4/2/n13690483.htm)
 
-本次与美国的会议，其一重点为“台湾作为观察员参与五月的世界卫生大会（WHA）”。据了解，丹麦国会3月31日以103票赞成、0票反对、0票弃权的压倒性票数通过支持立陶宛及台湾参与世界卫生大会（WHA）决议文，该决议文对立陶宛与中共之间的危机表示关注，呼吁丹麦与欧盟团结一致支持立陶宛，并吁请丹麦政府协同欧盟在欧中关系及相关国际场域提高对中共的压力，让台湾获得世界卫生大会观察员地位。
+发布：tianzhihuan
 
-该决议文在丹麦国会辩论中获跨党派议员先后发言支持。
-
-来源｜[外交部](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;s=97643)、[Taiwan Working Group Meeting on International Organizations (IO Talks)](https://www.state.gov/u-s-taiwan-working-group-meeting-on-international-organizations-io-talks-2/)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
