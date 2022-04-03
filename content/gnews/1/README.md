@@ -2,11 +2,11 @@
 ---
 
 
-## 给中国人一个机会，中国人做的会很好（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279406/)
+## 世界喜欢新中国联邦人的形象（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2279447/)
 
 **PPT制作：Qingjing ；玉米地的**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-856-900-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220311-900-910-1_5.jpg)
 发布：tianzhihuan
 
 更多资讯，请关注：

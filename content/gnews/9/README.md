@@ -2,36 +2,66 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.03E）&#8211;新冠疫苗第三针后胸口疼闷
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2279267/)
+## 随着实验性新冠疫苗的推出 去年全球超额死亡人数猛增
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2279311/)
 
-整理: 禄森
-编辑：小红帽
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-230-edited.png)图片来源：/www.thegatewaypundit.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-183.png)
+在过去的几个月里，出现了一个令人担忧的趋势——死亡以前所未有的速度增长，这与 Covid-19病毒几乎没有关系。
 
-图片来源：雅典娜农场设计组（614）
+事实上，**这一峰值几乎与实验性 mRNA Covid 疫苗的推出完全吻合**。
 
+正如“网关专家”(Gateway Pundit)上个月报道的那样，美国所有年龄组的超额死亡人数都在飙升，尤其是在 25 至 44 岁之间的年轻人中。据报道，这一特定群体的超额死亡人数增长了创纪录的 84%。CDC的最新数据。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接疫苗后的不良反应受到媒体压制，但是致死致残的报导已经屡见不鲜，本专栏将持收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。 】
+不出所料，这种令人担忧的趋势不仅仅影响到了美国。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%2525E5%252589%2525AF%2525E4%2525BD%25259C%2525E7%252594%2525A8%2525E9%25259B%252586%2525E8%252590%252583/)
+世界各国，特别是那些被认为是西方的国家，都在经历着过高的死亡率，其中大部分国家的死亡率惊人。
 
-[皖江柳条2022](https://m.weibo.cn/profile/2384070744)：
+值得指出的是我们北部邻国加拿大，在 2021 年 **7 月 31 日至 10 月 2 日期间**，最健康的加拿大人（0-44 岁）的死亡人数激增了 24%。加拿大总理贾斯汀·特鲁多在 8 月强制要求为工人接种疫苗，这与死亡人数激增的情况完全吻合。
 
-打完新冠疫苗第三针。今天第四天，胸口疼闷。上网各种搜，怀疑过心脏问题。现在想想不就是心肺的位置吗？应该是疫苗副作用。减毒疫苗尚且导致了很多人心梗，咳嗽，月经推迟。
+通过 Twitter 上的马克西姆·博伊文（Maxim Boivin）看一看：
 
-可想而知，染上新冠是多大的折磨。一定要戴口罩啊！没事最好别出门。心口，上胸口真的疼闷啊！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-228.png)
-素材来源：[皖江柳条2022微博](https://m.weibo.cn/status/4753236684441354)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-231.png)
 
-发布：Frank2021
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-232.png)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+在整个欧洲都可以看到同样的趋势，绝大多数国家的超额死亡人数激增——除了个别值得注意的例外情况。
+
+如下图所示，冰岛和瑞典等少数国家，在整个大流行期间没有充分参与破坏文明的封锁，现在的情况明显好于欧洲其他国家。
+
+谁能预料到这样的事情……不是科学，这是肯定的。
+
+看，通过艾利·大卫（Eli David）博士图示：
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-233.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-234.png)
+根据来自美国的最新数据，到目前为止，**千禧一代在死亡人数过多的浪潮中受到的打击最为严重**——可能是因为接受疫苗接种是他们保持就业的唯一途径。
+
+最令人担忧的是，这种“令人不安”的趋势正在持续，甚至会变得更糟。
+
+**这场大流行从来不是为了拯救生命。恰恰相反，情况可能正好相反**。
+
+不要听我这么说，听比尔·盖茨自己说的（从视频分钟标记 4:21 开始）：
+
+“首先，我们来看看人口。当今世界有 68 亿人口， 马上将达到约 90 亿。现在，如果我们在新疫苗、医疗保健、生殖健康服务方面做得非常好，我们可能会降低 10% 或 15%。那样，我们看到了大约 1.3 %的人口增长。”
+
+新闻链接：[It’s Not Just the US: Excess Deaths Skyrocket Worldwide in 2021 Following Rollout of the Experimental Covid Vaccine](http://hegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/?utm_source=Email&amp;utm_medium=the-gateway-pundit&amp;utm_campaign=dailyam&amp;utm_content=daily)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：夜来香
+
+更**多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+
 
  
 
