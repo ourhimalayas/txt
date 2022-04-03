@@ -2,29 +2,30 @@
 ---
 
 
-## 巴西放宽对国际旅行者的Covid相关限制
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2279843/)
+## 【G叻睇真D】中共国党卫军为即将全面攻台作好准备
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2279891/)
 
-**撰稿：日本东京方舟农场  JIHO**
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+据《台湾新闻》3月31日报道，在美国和菲力宾两国日前在靠近台湾的菲律宾北部海域进行了大规模联合军演之后，多架中共军机当天再次擅闯台湾防空识别区。目前，中共的这种挑衅行为在俄乌战争爆发后，已愈演愈烈。
 
-根据路透社4月2日消息，巴西卫生机构Anvisa周六发布了一套针对入境国际旅客的新规则，随着南美国家健康危机的缓解，巴西放宽了与CCP病毒大流行病有关的限制。
+据悉，在本次入侵的11架中共军机中，有两架轰炸机进入台南防空识别区的东南角，而另一架空警机携八架战斗机则闯入了西南角。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-34.png)（图片来自GETTY IMAGES）
+在2021年的239天内，中共至少出动961架次军机寇入台湾防空识别区，试图通过“准入侵”战术手段，在不直接动武的情况下，恐吓台湾当局并拖垮台军士气，以此打破台海现状，并为即将全面攻台作好准备。
 
-按照新规，在接种两剂或单剂CCP病毒疫苗后，根据疫苗的类型，旅行者被认为已经完全接种。Anvisa说，该疫苗接种必须在出发日期前至少14天完成。
+编辑/上传：一叶
+盖特链接：[https://www.gettr.com/post/p139xs7bf0f](https://www.gettr.com/post/p139xs7bf0f)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
+* * *
 
-所有入境的外国人或巴西人只需出示电子版或打印版的疫苗护照，无需再进行检测即可入境巴西。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-未完全接种CCP病毒疫苗的旅客，只要他们是巴西人和居住在巴西的外国人，必须出示CCP病毒的测试，测试结果为阴性或无法检测的可以入境。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
 
-该机构还指出，居住在国外且未完全接种疫苗的外国人仍被禁止进入该国，但在声明中没有详细说明例外情况。
-
-参考链接：
-[https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/](https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/)
-
-总编：老孙
-校对发布：爱放飞
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

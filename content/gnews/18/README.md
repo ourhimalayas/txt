@@ -2,36 +2,29 @@
 ---
 
 
-## 中共通过俄罗斯出口欧洲的计划遭遇重创
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2279827/)
+## 巴西放宽对国际旅行者的Covid相关限制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2279843/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/im-515795.jpeg)
-据外媒报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
+**撰稿：日本东京方舟农场  JIHO**
 
-尽管欧盟尚未正式禁止俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
+根据路透社4月2日消息，巴西卫生机构Anvisa周六发布了一套针对入境国际旅客的新规则，随着南美国家健康危机的缓解，巴西放宽了与CCP病毒大流行病有关的限制。
 
-世界大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路德国内陆港口杜伊斯堡的海运保险公司也宣布不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-34.png)（图片来自GETTY IMAGES）
 
-自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
+按照新规，在接种两剂或单剂CCP病毒疫苗后，根据疫苗的类型，旅行者被认为已经完全接种。Anvisa说，该疫苗接种必须在出发日期前至少14天完成。
 
-reference：
+所有入境的外国人或巴西人只需出示电子版或打印版的疫苗护照，无需再进行检测即可入境巴西。
 
-[https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
+未完全接种CCP病毒疫苗的旅客，只要他们是巴西人和居住在巴西的外国人，必须出示CCP病毒的测试，测试结果为阴性或无法检测的可以入境。
 
-撰稿、发布：骄子
+该机构还指出，居住在国外且未完全接种疫苗的外国人仍被禁止进入该国，但在声明中没有详细说明例外情况。
 
-* * *
+参考链接：
+[https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/](https://www.reuters.com/world/americas/brazil-eases-covid-related-restrictions-international-travelers-2022-04-02/)
 
-欢迎订阅我们的GNews账号：
+总编：老孙
+校对发布：爱放飞
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
