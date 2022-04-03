@@ -2,20 +2,21 @@
 ---
 
 
-## 有声|中共前司法部长傅政华被双开
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281706/)
+## 有声|战地钢琴家演绎战地浪漫
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281775/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间3月31日，中共的中纪委国家监委网站发布公告，前司法部长傅政华被开除党籍及公职。公告指出，傅政华政治野心极度膨胀，参加前公安部副部长孙立军的政治团伙，危害党的集中统一。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+3月30日，乌克兰前线救援战友在直播连线中讲述了一个浪漫的战地爱情故事。
 
-中共给傅政华列出的罪名还包括：从未真正忠诚于党和人民；政治品行极为卑劣，为达到个人政治目的不择手段；拉帮结派，结党营私；弄虚作假、欺瞒中央；妄议党中央大政方针；长期违规领用和携带枪支；贪婪腐化，大搞权钱交易，非法收受巨额财物等。总结来看，傅政华似乎犯下了所有中共高官都做过的所有事情。
+一直在我们的大帐篷前为难民弹奏钢琴的战地钢琴家Davide Martello，就在帐篷前遇到了一位可爱的乌克兰女士，两个人擦出了爱情的火花。钢琴家决定，冒着风险、带着我们的新中国联邦的标志，去仍在战火中的利沃夫，追随自己的真爱。战友们为他们献上了衷心的祝福。
 
-文字版原文：[中共前司法部长傅政华被双开](https://gnews.org/zh-hans/2274882/)
+文字版原文：[战地钢琴家演绎战地浪漫](https://gnews.org/zh-hans/2273598/)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+音频处理：Fei797
+发稿：Fei797
 
-音频处理/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

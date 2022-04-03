@@ -2,68 +2,34 @@
 ---
 
 
-## 有声|朋友，你不孤单
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281856/)
+## “承认失败”：全球疫苗接种战略亟待转变
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281948/)
 
-配音：香草山香港部- 格格樹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-朋友
-你还好吗
-你身上的军装好帅
-你的网上手机店
-还在运营吗
-你抛下一切
-扛起钢枪反抗侵略者
-在战场上的你
-有我在牵挂
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297.png)图片来源：https://www.politico.com/
 
-你是乌克兰的亚历山大
-我是来自中国的一个普通人
-仅仅一场邂逅
-成为生命中挚友
-忽然的失联
-原来你上了战场
-朋友啊
-请千万小心
-当侵略者炮弹袭来时
-赶快躲在掩体下
-希望你手里的钢炮
-一次又一次
-击中侵略者装甲
-我这里警报声响了又响
-疯狂轰炸在耳边轰轰作响
-一幢又一幢居民楼被炸塌
-一个个好好的家
-从眼前变成渣
-朋友
-你在前线
-我在后方
-希望我们能够活着再相见
-如果
-如果
-你不幸牺牲
-我也被炮弹击中
-我会微笑着对你说
-朋友，我陪着你
-你不孤单
-来生
-我们依然做
-最好的朋友
+《政治客》报道：
 
-文字版原文：[朋友，你不孤单](https://gnews.org/zh-hans/2277003/)
+据四位知情人士透露，全球卫生组织正在考虑改变他们的 COVID-19 疫苗接种承诺——随着各国在未来几个月内重新确定高危人群的排序，这一举措可能会使数百万人一针也不用注射了。
 
-音频处理：Fei797
-发稿：Fei797
+2021 年 6 月，世卫组织最初提议，在 2022 年年中之前，为世界 70% 的人口接种疫苗，以防止出现新的变种，并帮助确保较贫穷国家的人们能够平等地接种疫苗。仍有 47 个国家的接种率低于 20%。 现在，参与全球疫苗接种工作的许多卫生组织，旨在为每个国家 90% 的弱势群体接种疫苗——这一举措似乎削弱了世卫组织人70% 人口的目标。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+信息链接：[Recognition of failure’: A shift urged in global vaccination strategy](https://www.politico.com/news/2022/04/01/global-vaccination-strategy-shift-00022189)
+
+* * *
+
+审核：文乐
+发布：夜来香
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

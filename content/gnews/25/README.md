@@ -2,42 +2,35 @@
 ---
 
 
-## 实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281392/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月3日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2281547/)
 
-编译：文斗
+作者：香草山翻译部
 
-在过去的几个月里，出现了一个令人担忧的趋势–人们的死亡速度前所未有，而这与Covid-19没有什么关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
 
-事实上，这一高峰几乎与实验性mRNA Covid疫苗推出完全吻合。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-1-1.png)
 
-正如Gateway Pundit[上个月报道](https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduced-video/)的那样，美国所有年龄段的超额死亡人数都在激增，尤其是25至44岁的年轻人。根据CDC的最新数据，这一特定群体的超额死亡人数增加了84%，创下了历史记录。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-43.jpg)
-毫不奇怪，这种令人担忧的趋势并不仅仅影响美国。
+文章仅代表作者本人观点，与Gnews无关
 
-世界各地的国家，特别是那些被认为是西方一部分的国家，都在经历超额的死亡率，其中大多数国家的死亡率高得惊人。
+视频参看：
+[2022.04.03早 《NFSC新闻》](https://www.gettr.com/streaming/p13cdp658c9)
+[2022.04.03早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13cemm3a50)
 
-我们的北方邻居加拿大在2021年7月31日至10月2日期间，最健康的加拿大人（0-44岁）死亡人数激增24%。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-值得指出的是，加拿大总理特鲁多在8月份强制要求工人接种疫苗，与超额死亡人数的激增完全吻合。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1.jpg)
 
-通过马克西姆-博伊文（Maxim Boivin）[推文](https://twitter.com/MaximBoivin137/status/1482245009856475137?s=20&amp;t=EeGwcRHq7wl12ts5fbLBdg)可见：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4-27.jpg)
-同样的趋势在欧洲也可以看到，绝大多数国家都经历了超额死亡人数的激增–除了几个明显的例外。
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-如[下图](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1480265875580231687%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2022%2F04%2Fnot-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine%2F)所示，少数国家（如冰岛和瑞典）在整个大流行病期间没有完全参与破坏文明的封锁，现在的情况明显好于它们的欧洲同行。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-14.jpg)
-
-
-谁能预料到这个结果？肯定不是SCiENcE（《科学》，学术期刊）。
-
-根据美国的最新数据，到目前为止，**千禧一代受超额死亡浪潮的打击最大–可能是因为打疫苗是他们保住工作的唯一途径**。
-
-最令人担忧的是，这种“令人不安”的趋势正在继续，甚至变得更糟。
-
-这场大流行病从来与拯救生命无关。恰恰相反，它可能是对立的（是扼杀生命）。
-
-新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
 
  
 

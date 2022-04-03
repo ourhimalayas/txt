@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 6:38 PM (UTC)`
+
+2022-4-3 “不完美，又如何？” #小小尼莫音乐会，第五期🎼，#littlenemoconcert，一起成长，破茧成蝶
+![img](https://media.gettr.com/group26/origin/2022/04/03/18/0ffef871-bc0e-85ff-d158-0dd9ec620952/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 5:44 PM (UTC)`
 
 俄乌战争战况播报
@@ -152,13 +159,6 @@ H-Pay是打开世界金融盒子的密码，是新中国联邦走向世界财富
 
 The White Tent in Medyka<br/><br/>How is the sky suddenly covered with black iron birds, how are children's once hopeful eyes filled with despair.<br/><br/>Train stations are crowded with farewells, and lovers who’ve vowed to grow old together are waving possible last goodbyes.<br/><br/>While Kiev was shrouded in fear, the people of the NFSC gathered together to bring love, peace, joy, and faith back to earth.<br/><br/>NFSC’s white tent at Medyka is a beacon of light in the darkness. Himalaya’s way, the hope of humanity.<br/><br/>《梅迪卡的白色帐篷》<br/><br/>这天空怎么就突然布满了黑色铁鸟，孩子的眼中怎么那么迷茫。<br/><br/>车站到处都是最后的告别，情侣道出了再见，可能再也不见了。<br/><br/>基辅的空气只有恐惧笼罩，此时新中国联邦人聚集在一起，把美好，爱，温暖，和平，快乐，信仰重新带到人间。<br/><br/>新中国联邦的帐篷一定会唤醒人间的正义！
 ![img](https://media.gettr.com/group26/origin/2022/04/02/21/eb9c146b-c3a5-5828-4342-c566fadb8bbd/out.jpg)
-
----
-
-`@miles 4/2/2022 9:44 PM (UTC)`
-
-【Ukraine Rescue】Nicole interviewed Mr. Roger, who drove one day from Italy to deliver the relief supplies. Roger thought we should help the Ukrainian people and thanked volunteers from the New Federal State of China for what they have done<br/>【乌克兰救援】Nicole采访了从意大利开了一天的车过来送救援物资的Roger先生, Roger认为我们应该帮助乌克兰人民，同时感谢新中国联邦的志愿者所做的一切
-![img](https://media.gettr.com/group19/origin/2022/04/02/21/e8c96eec-e4fb-6238-363c-5300bcb8e4e2/out.jpg)
 
 ---
 

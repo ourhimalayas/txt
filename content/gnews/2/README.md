@@ -2,22 +2,26 @@
 ---
 
 
-## COVID大流行是否使人们变得更加慷慨？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281970/)
+## 罗伯特·马龙说小罗伯特应获诺贝尔和平奖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281998/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-297-edited.png)图片来源: forbes.com
+翻译：JENNY BALL
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-300-edited.png)图片来源 : rumble.com
 
-《福布斯》报道：
+在“塔克·卡尔森今日秀”（Tucker Carlson Tonight）罗伯特·马龙（Robert Malone）博士说，小罗伯特·肯尼迪（Robert F. Kennedy, Jr.）应该获得诺贝尔和平奖 。
 
-根据心理学家的说法，战争、自然灾害和 COVID-19 大流行等压倒性危机，或者会使人们的行为比平时更加自私，或者会使人们对社区成员表现出更大的慷慨。
+“如果有人值得获得诺贝尔和平奖，那就应该是 [肯尼迪] ，就是他”，罗伯特·马龙在塔克·卡尔森今日秀节目中赞扬小罗伯特·肯尼迪。
 
-在《科学报告》上发表的一项新研究中，研究人员发现，在持续的大流行期间，居住在美国的个人表现出“灾难同情”和更大的财务慷慨。
+“作为一名疫苗学家，我现在很尴尬地了解有关疫苗功效的实际数据，以及真正导致儿童传染病下降的原因。数据非常清楚：在为几乎所有这些儿科疾病实施疫苗之前，数据下降基本上与卫生状况的改善相一致。”
 
-从积极的方面来看，重大危机的威胁可能会促进社会联系的扩大。例如，礼来家族慈善学院（Lilly Family School of Philanthropy）在 COVID-19 大流行期间进行的一项调查发现，近一半的受访者，通过继续向个人和企业支付无法提供的服务，来支持他们的社区。
+“如果我能活着，我怀疑我们会看到给鲍比·肯尼迪完全平反的时刻”。
 
-素材链接：[Did The Covid-19 Pandemic Make People More Generous?](https://www.forbes.com/sites/anuradhavaranasi/2022/03/31/did-the-covid-19-pandemic-make-people-more-generous/?sh=292339118052)
+评论：如果您阅读了罗伯特·肯尼迪的2021年11月出版的新书，《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》，他用多年来的证据和实例， 揭露了由制药公司资助的主流媒体如何已经让数百万美国人相信安东尼·福奇博士是英雄。而实质是：这个道貌岸然自称自己就是“科学”的伪君子，实际是前台操纵灭绝人口，以Covid病毒为藉口实施灭绝人类的mRNA人体基因改变，让全世界人民充当试验白老鼠的罪魁祸首。
+
+罗伯特·马龙博士一定能够和我们全世界人民一起看到小罗伯特·肯尼迪平反昭雪的时刻，一定能够看到福奇受到应有的惩罚！
+
+素材链接：[Robert Malone Says Robert F. Kennedy, Jr. Deserves Nobel Peace Prize – Tucker Carlson Tonight](https://rumble.com/vzc7zb-robert-malone-says-robert-f.-kennedy-jr.-deserves-nobel-peace-prize-tucker-.html?utm_source=salsa&amp;utm_medium=email&amp;utm_campaign=chd_tv&amp;eType=EmailBlastContent&amp;eId=97402d8c-6024-44de-a8ce-d59e25ddbd26)
 
 * * *
 
@@ -29,7 +33,9 @@
 **[郭文贵先生Gettr](https://gettr.com/user/miles)**
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

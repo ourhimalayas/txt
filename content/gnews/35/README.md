@@ -2,37 +2,27 @@
 ---
 
 
-## 18岁女孩在接种COVID疫苗两周后死于血栓
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2280816/)
+## 樱花FM┃制裁“必须保留”直到乌克兰克里米亚领土恢复
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2281027/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3-edited.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-18-edited.png)图片来源:childrenshealthdefense.org
+音频：东京樱花团/战友520
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-258.png)
+人权基金会主席和前俄罗斯国际象棋大师加里卡斯帕罗夫周三在“卡武托：海岸到海岸”节目中预测“普京的终结”。认为美国及其盟国必须坚持对俄罗斯的制裁，直到乌克兰和克里米亚领土被收复。
 
-《曼彻斯特晚报》报道：
+卡斯帕罗夫对福克斯商业频道的尼尔·卡武托说：“我认为美国必须宣布，在乌克兰恢复领土完整之前，不会取消、不会放松其制裁。”“在克里米亚升起乌克兰国旗之前，这些制裁不得停止，”他继续说。“这是关键。”卡斯帕罗夫发表上述言论之前，俄罗斯官员周二表示将缓解对乌克兰的空袭，并于周三宣布谈判谈判不成功。这位前特级大师仍然对俄罗斯的意图持怀疑态度。“我们都知道撒谎是普京性格的主要特征之一。这就是为什么当我们听到他的任何陈述时，我们应该假设它们是错误的，”卡斯帕罗夫指出。“所有这些关于缓和的谈话……这是普京重组的掩饰。停火意味着重新加载。他没有放弃摧毁乌克兰作为一个国家的计划。”“我们愿意帮助乌克兰赢得战争吗？还是只是想帮助他们生存？”他问。
 
-一名 18 岁的女学生在接种 COVID 疫苗后仅两周就死于血栓。凯西·特纳（Kasey Turner）在经历“雷击般”的头痛后被送进了医院。一项调查听说，头痛是她的鼻窦腔血栓形成的结果。
+“这让我得出一个结论：美国害怕普京输掉这场战争，因为这可能会导致他的独裁统治结束，并带来不可预测的后果。”尽管拜登总统的心在“正确的位置”，但卡斯帕罗夫进一步批评了他作为自由世界领袖对冲突的反应。“美国现在充其量是从后面领先，”他说。“除非美国向世界其他国家和弗拉基米尔·普京明确表示，在乌克兰领土完整恢复之前，制裁不会发生变化，否则普京将继续他的侵略战争。”
 
-后来发现，这名护理学生实际上患有脑静脉血栓形成——鼻窦腔内的血栓。据约克郡直播报道，据信血凝块是由阿斯利康 COVID 疫苗引起的，她的调查发现，巴恩斯利医院的医生“**错失了诊断致命血凝块的机会**”。
+文字版原文：
 
-她遭受了疫苗的所有“常见”副作用，但希望这些副作用能在大约 12 到 18 小时后消失，调查获悉。但两周后，她“痛得尖叫”，这是她经历过的“最严重的头痛”。
 
-**参考链接：**[Tragedy as girl, 18, dies of blood clot two weeks after Covid vaccine](https://www.manchestereveningnews.co.uk/news/uk-news/tragedy-girl-18-dies-blood-23485810)
+| [樱花时政┃制裁“必须保留”直到乌克兰克里米亚领土恢复](https://gnews.org/zh-hans/2262160/) |   |
+| --- | --- |
 
-* * *
 
-审核：文乐
-校对：阿伯塔
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1.jpeg)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

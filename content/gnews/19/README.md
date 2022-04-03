@@ -2,28 +2,33 @@
 ---
 
 
-## 有声|泽连斯基清除两名高级间谍
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281705/)
+## 完整的人类基因组图谱绘制完成
+` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2281761/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间3月31日，据相关媒体报道，乌克兰总统泽连斯基当天晚间宣布清除两名高级间谍：安全局内部安全主要部门负责人奥列诺夫和安全局赫尔松地区办公室负责人奥列克山德罗维奇。
+【作者】纽约香草山农场 健身部 文真
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+3月31日，《科学》杂志发布一项人类基因工程重大突破，人类基因组图谱的绘制已经完成，这为新的医学打开了大门。
 
-泽连斯基在其后发表演讲时指出，这些高级军官不但背叛了自己的祖国，他们在保卫国家、自由以及独立方面也违反了对乌克兰人民效忠的军人誓言，因此，他们无可避免地被剥夺了高阶军衔。更甚者，泽连斯基怒斥其为叛徒，并强调称， 这些人都会逐渐受到惩罚。
+人类细胞核包含23组染色体，大约有30000个基因。人类基因组由数十亿个以字母A、C、G和T命名的DNA亚单元组成。
 
-文字版原文：[泽连斯基清除两名高级间谍](https://gnews.org/zh-hans/2276186/)
+读取基因需要将DNA链切割成几百到几千个字母长的片段。DNA测序机器读取每个片段中的字母，科学家再试图将这些片段按正确的顺序排列。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+多年来，因DNA测序技术无法读取基因组的某些部分，大约8%的基因序列仍未被填补。基因测序技术改进后，科学家可以一次准确地读取包含100万个字母的DNA片段，极大提高了基因排序的准确性。
 
-音频处理/发稿：Daxia
+科学家们说，这个完整的基因组图谱将有助于了解人类生物学和人类遗传学，为更深入地了解进化、癌症和出生缺陷铺平了道路。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.foxnews.com/science/scientists-map-human-genome](https://www.foxnews.com/science/scientists-map-human-genome)
+
+校对/发稿：菩提树
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
