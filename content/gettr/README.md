@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/3/2022 12:31 AM (UTC)`
+
+2022.04.02 晚 《新中国联邦新闻》乌克兰救援营地形成国际互助大家庭；救援营地的盖特直播 正在打造全球最棒的媒体平台
+![img](https://media.gettr.com/group23/origin/2022/04/03/00/1cd00192-9344-0e30-596b-4319cfa42deb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/2/2022 11:30 PM (UTC)`
 
 2022.04.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
@@ -147,13 +154,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导 
 ![img](https://media.gettr.com/group27/origin/2022/04/02/08/c6ca1231-576a-d10a-3481-86ca11b599c2/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 6:04 AM (UTC)`
-
-4/1/2022 Ukraine Rescue: The MSM is by no means comparable to the media of the New Federal State of China. By doing 24-hour live broadcasts on GETTR, we are covering all aspects of the dynamics on the front line of the Ukraine rescue operation. In contrast, the reports conducted by the MSM are not just one-sided but also superficial. The New Federal State of China is now building the best media platform in the world - GETTR!<br/><br/>4/1/2022 乌克兰救援连线：主流媒体绝不能跟新中国联邦的媒体相提并论，我们通过24小时盖特直播，全方位报道救援前线的动态，而主流媒体的报道不仅片面，而且蜻蜓点水；新中国联邦正在打造一个全球最棒的媒体平台 - 盖特！<br/>
-![img](https://media.gettr.com/group48/getter/2022/04/02/06/a600cbb0-0147-a20c-0238-4cdbb08f8ccc/out.jpg)
 
 ---
 

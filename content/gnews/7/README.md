@@ -2,40 +2,39 @@
 ---
 
 
-## 第234期 玫瑰看新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2277040/)
+## 有声|乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277157/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-1.乌俄外长周四会面俄罗斯提出停火四条件
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+3月30日，乌克兰内阁、乌克兰数字化转型部、乌克兰国家机构创业和出口促进办公室、乌克兰国家创业和出口发展项目、乌克兰经济部和乌克兰外交部，联合发起“不要赞助谋杀”的国际宣传运动，呼吁乌克兰境内和其它外国企业，以及任何公民个人，共同抵制俄罗斯和白俄罗斯的商品和服务，加速侵略国家经济的大规模衰退。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-140.png)
+内容包括：不要购买俄罗斯和白俄罗斯商品；拒绝与俄罗斯、白俄罗斯进一步合作；选择乌克兰和反对乌克兰战争国家的合作伙伴，以取代俄罗斯或白俄罗斯的合作伙伴等。
 
-2.美国会推迟表决禁止从俄罗斯进口能源的法律草案
-
-3.拜登宣布禁止俄国石油进口原油价格创新高回应
-
-4.美国对波兰转移战斗机的提议感到震惊
-
-5.乌总统表示早已不坚持加入北约
-
-6.俄罗斯军队因乌克兰抵抗比预期更猛放缓前进速度
+乌克兰的国际宣传行动并不是单独的行为，事实上，国际社会已经或正在以实际行动对其进行支持。俄乌战争开始以来，美国、欧盟以及亚洲多国已经对俄进行了多种方式的制裁。
 
 
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
-**
-上传：漂流瓶**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
 
+
+文字版原文：[乌克兰多部门联合发起“不要赞助谋杀”国际宣传运动](https://gnews.org/zh-hans/2273695/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

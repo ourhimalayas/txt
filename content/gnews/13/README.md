@@ -2,28 +2,29 @@
 ---
 
 
-## 单分子集成生物传感器推动分子电子学新发展
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2276983/)
+## 有声|联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277114/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-一家位于美国圣地亚哥的初创公司，正在致力于将单分子集成到电子生物传感器电路中，并希望这种方法可以提供一种廉价和方便的方法来检测病毒，发现环境毒素，或实时评估药物的效果。
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 
-有学者在2000年时曾预言，分子电子学将超越硅基电路，使计算机芯片不断变得更密集、更强大。今年1月，美国国家科学院院刊报道了一项重大进展：一套16000个功能性分子生物传感器与半导体芯片的电路实现完全集成。这表明，这些芯片可以使用现有的制造方法以商业规模制造。
+3月30日，联合国人权事务负责人表示，正在调查俄罗斯使用集束炸弹的攻击行为。此前一天，联合国人权理事会任命挪威籍法官摩斯，率队调查俄在乌克兰犯下的战争罪行。
 
-基于分子特殊结构的生物芯片，要比基于二进制的硅基电路复杂得多。成千上万的生物传感器可以同时检测不同的分子相互作用，而且这些芯片将是一次性的。据悉，该公司目前可以在一个芯片上容纳超过10000个生物传感器，并用于检测人体标志物，如维生素水平或感染。
+人权事务专员巴切莱特说，乌克兰的医院、供水设施和行政大楼等民用建筑遭到袭击，大量平民伤亡，这些令人发指的攻击，可能与联合国人权事务工作人员正着手调查的24起俄军使用集束炸弹的指控有关。巴切莱特强调，俄罗斯的袭击违反了国际人道法，涉嫌构成战争罪。据悉，集束炸弹又称子母弹。其特点一是杀伤面积过大，容易波及平民。二是因为弹药量多，出现未爆炸弹药，在战后数十年内仍有可能伤及无辜。
 
-报道称，如果推动该设备实现更多的市场功能，例如检测早期疾病的低浓度生物标志物，则需要几十万或几百万个生物传感器。[https://www.technologyreview.com/2022/03/31/1048672/roswell-molecular-electronics-revival/](https://www.technologyreview.com/2022/03/31/1048672/roswell-molecular-electronics-revival/)
+文字版原文：[联合国指认俄使用集束炸弹 任命挪威法官调查战争罪行](https://gnews.org/zh-hans/2270741/)
 
-校对/发稿：菩提树
+音频处理/发稿：Daxia
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

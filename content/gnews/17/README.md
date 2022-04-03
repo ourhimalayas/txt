@@ -2,39 +2,41 @@
 ---
 
 
-## 俄乌战争的“没想到”之三
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276919/)
+## 第236期 玫瑰看新闻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2277039/)
 
-视频制作：多伦多蓝莲花视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+1.拜登在波兰结束演讲时呼吁罢免普京
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+2.美驻联合国代表称 澳大利亚不会在澳英美联盟框架内 谋求获得核武器
 
-第三个没想到：
+3.拜登访问波兰 赞扬乌克兰人民的英勇抵抗“令人想到天安门广场”
 
-没想到乌克兰战斗意志如此顽强，从总统泽林斯基到乌克兰平民百姓。不管你俄罗斯如何轰炸，坚守基辅，坚守阵地，坚守自己的岗位。
+4.安理会15国强烈谴责北韩**试射**洲际弹道飞弹
 
-俄军进攻猛烈，占尽先机，但在乌克兰各个战场，乌军进行了顽强抵抗乃至激烈的巷战，俄军死伤无数，更有6位俄将军已被击毙。
+5.乌克兰报告称**马里乌**波尔剧院空袭造成300人死亡
 
-乌克兰成功粉碎俄罗斯闪电战计划，愈战愈勇。
+6.乌克兰北部被炮击的城市或成为“下一个马里乌波尔”
 
-这一次，乌克兰让全世界刮目相看，让全世界为之鼓舞。更让全世界最求民主自由的力量热血沸腾，乌克兰的反抗独裁和暴君精神必将鼓舞中国人反抗中共独裁。
 
-同时，媒体超限战场，乌克兰的引导舆论的战略和实力，也打了一个漂亮战。舆论先行，媒体这个核武器乌克兰发挥了巨大的力量。让全世界通过网络、媒体了解到了乌克兰的抗争。
 
-在全世界对乌克兰的支持上，网络、媒体功不可没。这再次验证郭文贵先生爆料革命之初就提出媒体是核武器的先见之明！
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
+**
+上传：漂流瓶**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
 
-视频文案：Wood（文斌）
 
-发布：冰糖葫芦喵
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

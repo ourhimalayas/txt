@@ -2,66 +2,30 @@
 ---
 
 
-## 朋友，你不孤单
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2277003/)
+## 今日盖特大V推荐 — 众议员马特·盖茨(Rep. Matt Gaetz)
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2277121/)
 
-作者：蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-198.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-5.jpg)
+**盖特链接**： [https://gettr.com/user/repmattgaetz](https://gettr.com/user/repmattgaetz)
 
-朋友
-你还好吗
-你身上的军装好帅
-你的网上手机店
-还在运营吗
-你抛下一切
-扛起钢枪反抗侵略者
-在战场上的你
-有我在牵挂
+**众议员马特·盖茨自述：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6AEBF3CA-702A-4ECE-A000-11F7CFFB6186.jpeg)
+国会议员马特·盖茨（Matt Gaetz）的官方GETTR。骄傲的保守派，很荣幸为佛罗里达州第一区服务。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a0wqp-mvddb-1.jpg)图片来源：网络
+**众议员马特·盖茨简介：**
 
-你是乌克兰的亚历山大
-我是来自中国的一个普通人
-仅仅一场邂逅
-成为生命中挚友
-忽然的失联
-原来你上了战场
-朋友啊
-请千万小心
-当侵略者炮弹袭来时
-赶快躲在掩体下
-希望你手里的钢炮
-一次又一次
-击中侵略者装甲
+马特·盖茨全名马修·路易斯·盖茨二世（Matthew Louis Gaetz II，生于1982年5月7日）是美国律师和政治家。
 
-我这里警报声响了又响
-疯狂轰炸在耳边轰轰作响
-一幢又一幢居民楼被炸塌
-一个个好好的家
-从眼前变成渣
-朋友
-你在前线
-我在后方
-希望我们能够活着再相见
-如果
-如果
-你不幸牺牲
-我也被炮弹击中
-我会微笑着对你说
-朋友，我陪着你
-你不孤单
-来生
-我们依然做
-最好的朋友
+自2017年以来，马特·盖茨一直担任美国众议院议员，代表佛罗里达州第1选区。作为共和党人，他是前总统唐纳德·川普最重要的国会盟友之一。
 
-**更多资讯，更多关注**
-[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生**Gettr](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 —彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-199.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

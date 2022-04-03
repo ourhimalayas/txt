@@ -2,34 +2,40 @@
 ---
 
 
-## 欧盟领导人在与中共国举行的峰会上呼吁帮助结束乌克兰的战争
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2277019/)
+## 有声|中共封控区送物造假 男子高呼打倒共产党
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277122/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-4月1日，据《欧洲真理报》援引《卫报》报道，欧盟领导人在与中国领导人举行的在线峰会上敦促北京帮助结束乌克兰的战争。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+综合盖特消息，被中共封控疫区一处居民楼前，有防疫工作人员为宣传造假送物品摆拍，另一男子不满封控，在小区门口高呼打倒中共打倒习。
+画面显示，一名人员提两袋物品，假装进入一处楼房间，等后面一人拍照后，转身回到原地放下手中物品。该人员未进入的楼房是被封闭的，外面用桌子堵住门口。证实他们不是真正想把物资送到居民手上。
+另一段视频显示：一男子步出小区门前，被工作人员阻挡。男子挣脱下，举臂高呼‘打倒共产党，打倒习近平’。该男子发自内心的勇敢行为，是他清醒的意识到，造成自己灾难的的原因，是中国共产党，是习近平的独裁。
+中共的疫区极端封控政策，已经造成人道灾难恶果。新中国联邦人在传播真相，让更多的中国人觉醒。期望更多的同胞打碎缠在心灵的铁锁，无所畏惧站起来反抗邪恶中共。
 
-欧盟委员会主席乌苏拉·冯德莱恩说，与李克强总理和习近平的会晤是在非常亲密的气氛中进行的。
-她说：“今天的峰会肯定不是一次普通的峰会。”
-她指出，中国作为安全理事会的常任理事国，负有“非常特殊的责任”。
 
-欧洲议会主席查尔斯·米歇尔在一次联合预会上说：“我们正在呼吁中国帮助结束乌克兰的战争。中国不能对俄罗斯违反国际法的行为视而不见。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/hqdefault.jpg)
 
-冯德莱恩说，他们已经与中国领导人进行了交涉，不要帮助俄罗斯逃避西方制裁。
 
-“我们还明确表示，中国不应支持或至少不配合我们的制裁。这将严重损害中国在欧洲的声誉。”她说。
 
-冯德莱恩警告说，中国和欧盟每天的货物和服务贸易额高达20亿欧元，而中俄贸易每天只有3.3亿欧元。
 
-PS：如果欧洲还寄希望用贸易额来向中共施压的话，只能说这是痴人说梦。中共已经与俄罗斯铁了心结盟对抗西方国家正义力量，西方国家需要团结起来把邪恶的中共消灭才能让世界和平。[https://www.eurointegration.com.ua/news/2022/04/1/7137055/](https://www.eurointegration.com.ua/news/2022/04/1/7137055/)
+文字版原文：[中共封控区送物造假 男子高呼打倒共产党](https://gnews.org/zh-hans/2274821/)
 
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
