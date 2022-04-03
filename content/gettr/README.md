@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/2/2022 4:48 PM (UTC)`
+
+🆘🇺🇦🆘乌克兰人道救援直播经典回放：<br/>战友精糧与叶钊颖女士郝海东先生的连线<br/>❤️”新中国联邦义工发自内心的善良来到梅蒂卡真心帮助难民。这与中共是完全本质上的不同！“<br/>❤️”2019年守护香港反送中事件中，我亲眼目睹了香港学生们的文明有序地，完全不同于中共宣传中称香港学生是暴徒！------ 郝海东先生<br/>❤️ "The volunteers of NFSC came to Medyka out of the goodness of their hearts to genuinely help the refugees. This is completely and essentially different from the CCP! " <br/>❤️ "During the  Anti-ELAB Movementevent in Hong Kong 2019, I witnessed the Hong Kong students in a civilized and orderly manner, completely different from the Chinese Communist propaganda that called the Hong Kong students thugs! ------ Mr. Hao Haidong<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine<br/>Translate post<br/>Posted on 2:16 PM · Apr 2nd, 2022
+![img](https://media.gettr.com/group32/origin/2022/04/02/16/6850a21a-606c-539f-8a18-527317854e4f/out.jpg)
+
+---
+
 `@miles 4/3/2022 5:06 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -151,13 +160,6 @@ MILES GUO's livestream 2022-04-02 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 【Ukraine Rescue】03/31/2022 A volunteer from Taiwan, a Ukraine refugee himself, join our NFSC Ukraine Rescue Operation site in Medyka, Poland. He told us that as someone who has been working and studying in Ukraine for 8 years, he can feel the pain that all the Ukrainian people are going through more directly and personally. This motivated him to join the NFSC Ukraine rescue team. He hopes to, together with other fellow fighters, help more Ukraine refugees who escaped from the war-torn country.<br/><br/>【乌克兰救援】03/31/2022 来自台湾的志愿者，自己也是一名乌克兰难民，加入了我们在波兰梅迪卡的乌克兰救援行动现场。他告诉我们，作为一个在乌克兰工作和学习了8年的人，他能更直接、更切身地感受到所有乌克兰人民正在经历的痛苦。这促使他加入新中国联邦乌克兰救援队。他希望与其他战友一起，帮助更多从这个战乱国家逃出来的乌克兰难民。<br/><br/>
 ![img](https://media.gettr.com/group31/getter/2022/04/02/15/9d39e64c-3e0b-5e6c-9871-d2f0534c65bc/out.jpg)
-
----
-
-`@miles 4/2/2022 2:31 PM (UTC)`
-
-《NFSC-真人真事》第47期嘉宾：加拿大蓝莲花农场  小小酥
-![img](https://media.gettr.com/group31/origin/2022/04/02/14/1d31e3ab-3593-3cc7-07d3-aa6aa68b2b3f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
