@@ -2,37 +2,36 @@
 ---
 
 
-## 20220319-20220325乌克兰战事一周回顾
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2282190/)
+## 2022/04/02 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2282205/)
 
-撰稿：东京樱花团/小火苗
+[![](https://express.adobe.com/page/i1IUghrJjIDjt/images/7b39da34-1dd3-4a14-b341-60d477d4aa85.png?asset_id=1212bcb1-0cb2-496c-b2b5-f56ef12476dd&amp;img_etag=%2271544251333dd862fae8a33fb7afdb16%22&amp;size=2560)](https://express.adobe.com/page/i1IUghrJjIDjt/images/7b39da34-1dd3-4a14-b341-60d477d4aa85.png?asset_id=1212bcb1-0cb2-496c-b2b5-f56ef12476dd&amp;img_etag=%2271544251333dd862fae8a33fb7afdb16%22&amp;size=1024)
+链接：[https://gettr.com/post/p1379fx9b8e](https://gettr.com/post/p1379fx9b8e)
 
-1. 3月19日，乌克兰总统泽连斯基在视频讲话中宣布，乌克兰政府正在制定一项长期计划，向流离失所的乌克兰人提供援助。俄罗斯入侵乌克兰已历时24天，美国国防部表示，俄罗斯已向乌克兰发射了超过1,080枚导弹，对各城市造成了严重的破坏。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220404Satellite-image.jpg)这张于2022年3月14日拍摄并发布的Maxar卫星图像显示，乌克兰马里乌波尔（Mariupol）西部Prymorskyi区附近的建筑遭到炮击及火灾破坏。当天，俄罗斯对乌克兰各地城市发动了一连串空袭。(Satellite image ©2022 Maxar Technologies / AFP)
-2. 3月20日，塞瓦斯托波尔行政长官表示，俄罗斯黑海舰队一名高级海军指挥官在乌克兰阵亡。乌克兰方面表示，迄今已有一名俄罗斯中将和四名少将在乌克兰战争中丧生。如果报导的死亡事件得到证实，俄罗斯将有五分之一的将军在行动中丧生。
+•星期天大直播七哥不参加，七哥将参加关于新中国联邦的“顾问会”（与国际多方机构合作）。中共隐瞒疫情在上海、广东、长春等地的真相。
 
-3. 3月21日，俄罗斯要求马里乌波尔在莫斯科时间凌晨5点（美东时间晚上10点）以前投降，以换取离开城市的安全通道，被乌克兰拒绝。
+•中国人“惯出”中国共产党，将为此付出代价。
 
-4. 3月22日，乌军加强阻挡俄罗斯的炮火，在多个战线发起反攻，重新夺回首都基辅外围的一座城镇；乌东地区也在陆、空均有斩获，乌克兰官方表示，单日击杀百名俄军，并击落4架军机。
+•接下来一周七哥没有时间直播，请战友支持没有七哥的“大直播”。
 
-5. 3月23日，美国国务院正式指控俄罗斯在乌克兰犯下战争罪。这一正式声明是“基于对公共和情报来源现有信息的仔细审查”而作出的。国务院声明针对的是俄罗斯军队，没有针对普京本人。
+•爆料革命的情报绝大多是准确的，不保证100%。情报是随时变化的，爆料革命得到世界的认可。
 
-6. 3月24日，美国总统拜登及欧盟等国家领导人在布鲁塞尔出席了北约、七国集团和欧盟峰会，密集讨论如何应对乌俄战争。在随后发出的北约峰会声明中，与会的30个盟国呼吁俄罗斯立刻停火并撤军，并表明北约也正加速转型，启动全方位防御计划。还特地点名中共，呼吁其真正地促进和平，不要帮助俄罗斯散布谎言。
+•消灭中共才能解决问题。
 
-7. 截止3月 25日当天上午，俄罗斯对乌克兰的武装侵略中，已有 135 名儿童丧生，184 人受伤。值得注意的是，有 566 所教育机构受到轰炸和炮击的破坏，其中 73 所被完全摧毁。230多所学校和155所幼儿园被毁坏。包括医疗设施、艺术学校、体育设施和图书馆在内的40多个儿童机构受到敌军火力的影响。
+•今天的香港就是昨天的大陆，明天的台湾就是今天的香港。
 
-消息来源：
-[泽连斯基：将制定长期计划 援助乌克兰难民](https://www.epochtimes.com/gb/22/3/19/n13657737.htm)
-[俄罗斯黑海舰队一指挥官在乌克兰战死](https://www.epochtimes.com/gb/22/3/20/n13660569.htm)
-[俄要求马里乌波尔弃械投降 乌克兰拒绝](https://www.epochtimes.com/gb/22/3/21/n13660931.htm)
-[乌克兰发动反攻 夺回首都外围城市](https://www.epochtimes.com/gb/22/3/23/n13667398.htm)
-[美政府正式指控俄罗斯在乌克兰犯下战争罪](https://www.epochtimes.com/gb/22/3/23/n13668421.htm)
-[北约峰会：加强全方位防御 点名中共莫骑墙](https://www.epochtimes.com/gb/22/3/24/n13670597.htm)
+•战友不必在乎别人的看法。中共习惯性给七哥“打广告”实则是在给七哥“逆增上援”。
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/曲别针
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
- 
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*听写：call me uncle| PR: 乐禧禧|Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://express.adobe.com/page/i1IUghrJjIDjt/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/i1IUghrJjIDjt/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

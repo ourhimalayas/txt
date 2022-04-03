@@ -2,29 +2,39 @@
 ---
 
 
-## 俄乌战局最新信息汇总
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2281981/)
+## 罗伯特·马龙说小罗伯特应获诺贝尔和平奖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281998/)
 
-作者：文斌
+翻译：JENNY BALL
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-300-edited.png)图片来源 : rumble.com
 
-截至4月2日，在基辅西线，俄罗斯正撤出兵力，以便重新部署到乌克兰东部地区。目前已经将多达五个营级战术小组从基辅周围撤到白俄罗斯。俄军在撤退的路上布雷，并借助炮火掩护，但是这些撤出的部队战损严重。在哈尔科夫，俄军已经放弃了夺取该城的努力，继续进行炮击，以防止此地的乌军加强顿巴斯的防御设施或增援其他地方。
+在“塔克·卡尔森今日秀”（Tucker Carlson Tonight）罗伯特·马龙（Robert Malone）博士说，小罗伯特·肯尼迪（Robert F. Kennedy, Jr.）应该获得诺贝尔和平奖 。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide1.jpeg)
+“如果有人值得获得诺贝尔和平奖，那就应该是 [肯尼迪] ，就是他”，罗伯特·马龙在塔克·卡尔森今日秀节目中赞扬小罗伯特·肯尼迪。
 
-当前俄军的主要目标是与哈尔科夫撤退下来的部队会合，占领整个顿涅茨克州和卢甘斯克州。在南线，俄军意图守住赫尔松，抵御乌军的反击，优先确保乌克兰南部的安全。据敖德萨州政府当局称，俄军向该地区发射了3枚伊斯坎德尔弹道导弹，具体人员伤亡数目不详。同时，俄军空袭了Kremenchuk（克雷门丘格）的炼油厂、第聂伯罗和波尔塔瓦市的机场，以及其他公共设施和民用住宅楼。
+“作为一名疫苗学家，我现在很尴尬地了解有关疫苗功效的实际数据，以及真正导致儿童传染病下降的原因。数据非常清楚：在为几乎所有这些儿科疾病实施疫苗之前，数据下降基本上与卫生状况的改善相一致。”
 
-乌克兰方面的消息，乌军收复了大片先前被占领的土地，包括伊万科夫和几个较小的城镇，包围了部分没来得及撤退的俄军。在基辅东线，乌军进行了成功反击，很可能解除了俄军对切尔尼戈夫的包围，并将俄军赶到苏皮伊河，离基辅市中心足有100 多公里。据乌克兰总参谋部报告说，乌军在过去24小时内击退了俄罗斯的7次进攻，摧毁了3辆坦克、2辆装甲运兵车和2辆非装甲车；还击落了一架Orlan-10无人机。
+“如果我能活着，我怀疑我们会看到给鲍比·肯尼迪完全平反的时刻”。
 
-而在马里乌波尔，乌克兰第36海军陆战旅和其他部队还在坚守自己的环形防御，战斗会越来越惨烈。赫尔松州北部，乌军成功夺取了几个城镇。乌克兰游击队的不断行动可能会在未来几周内继续牵制俄罗斯格鲁乌特种部队，因此俄军在未来几天极不可能恢复对米科拉耶夫的进攻。
+评论：如果您阅读了罗伯特·肯尼迪的2021年11月出版的新书，《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》，他用多年来的证据和实例， 揭露了由制药公司资助的主流媒体如何已经让数百万美国人相信安东尼·福奇博士是英雄。而实质是：这个道貌岸然自称自己就是“科学”的伪君子，实际是前台操纵灭绝人口，以Covid病毒为藉口实施灭绝人类的mRNA人体基因改变，让全世界人民充当试验白老鼠的罪魁祸首。
 
-更多消息，请关注本节目的后续报道。
+罗伯特·马龙博士一定能够和我们全世界人民一起看到小罗伯特·肯尼迪平反昭雪的时刻，一定能够看到福奇受到应有的惩罚！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+素材链接：[Robert Malone Says Robert F. Kennedy, Jr. Deserves Nobel Peace Prize – Tucker Carlson Tonight](https://rumble.com/vzc7zb-robert-malone-says-robert-f.-kennedy-jr.-deserves-nobel-peace-prize-tucker-.html?utm_source=salsa&amp;utm_medium=email&amp;utm_campaign=chd_tv&amp;eType=EmailBlastContent&amp;eId=97402d8c-6024-44de-a8ce-d59e25ddbd26)
 
-总编：Zion文恩
-编辑：宁文静
-审核：Zion文恩
-校正/发稿：谐趣园
+* * *
+
+审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+
 
  
 

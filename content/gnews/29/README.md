@@ -2,28 +2,23 @@
 ---
 
 
-## 洛克菲勒曾推动FDA批准中国产坠胎药的许可证
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2282046/)
+## 喜联储主席撰文 谈加密货币的重要作用
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2282089/)
 
-#### 选择/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16490104091.png)pixabay.com
-中国厂商从2000年前就为美国女性生产堕胎药片。当时美国反对堕胎的人士表示抗议。但该药物的美国投资人表示，它符合法律要求。这项由FDA批准的项目获得了美国洛克菲勒（Rockefeller）基金会的帮助。
+作者：秘密翻译组 亚麻乔巴
 
-在今天4月3日 弗拉基米尔·泽夫·泽连科（Vladimir Zev Zelenko）医生的盖特中，引用了一篇哥伦比亚广播公司（CBS）有关计划生育药物，在2000年的新闻报道。那时FDA称，“大约80%的美国药物成分来自国外”。
+3月14日，喜联储主席William先生在美国International Business Times网站撰文，探讨了加密货币在全球跨境汇款以及对乌克兰的援助捐款中的广泛应用。文章指出，先进国家的移民和移民工人一直依赖汇款服务，将其收入的一部分寄回他们在发展中国家的家人们，每年的资金流量预计超过5000亿美元。加密货币为这些汇款提供了极大的方便，为所需之人提供了生命线。加密货币汇款方式交付更快、成本更低，还可以应对恶性通胀，起到为收入、存款保值的作用。俄乌战争开始后，乌克兰也已经收到了超过5000万美元的加密货币捐款。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3.jpeg)
+文章表示，目前的加密货币受到其价格波动性的约束以及政府监管者的质疑，稳定币的出现可以帮助解决这些问题。如果能克服监管当局的怀疑，加密货币可以大大增强全球的金融包容性。
 
-当时美国国家生命权委员会立法主任道格拉斯·约翰逊（Douglas Johnson）说，允许进口中国制造的堕胎药物会给美国妇女带来健康风险。“因为中国是不纯净药物的主要来源”，而FDA不可能有效监控在中国的生产程序。
+参考链接：[Cryptocurrencies Can Offer A Lifeline To Some Of The World’s Neediest](https://www.ibtimes.com/cryptocurrencies-can-offer-lifeline-some-worlds-neediest-3436917)
 
-品牌为米非司酮（mifepristone）的 RU-486 的原料药，是由上海的华联制药有限公司生产。华联是生产 RU-486 的两家中国工厂之一。RU-486最初由法国制造商b鲁塞尔（Roussel-Uclaf）开发，但该公司拒绝在美国生产或销售该药物。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-新泽西州共和党众议员克里斯托弗·史密斯（Christopher Smith，R-NJ）指责中国因要求堕胎作为人口控制措施而犯下反人类罪。“中共政府通过在美国杀害未出生的孩子来赚钱”。他担心RU-486的伤害者无法向制造商寻求损害赔偿，因为该工厂位于中国。
-
-据《华盛顿邮报》报道，美国人口委员会将 RU-486 销售权授予了纽约的丹科（Danco Laboratories）公司，该公司于1995年在开曼群岛成立。
-
-泽连柯医生将20多年的这份报道刊登在盖特。这显示了美国大佬们的基金早就在医药方面与中共合作了，而作为监管机构的FDA为此大开绿灯。这也解释了美国的冠状疫苗产商的投资名单上有很多的中共投资者。
-
-*责编：白夜*
-
-参考链接：[1](https://gettr.com/user/drzevzelenko) [2](https://www.cbsnews.com/news/abortion-pill-maker-revealed/)
+总编：Zion文恩
+编辑：飞虹
+审核：ILOVE战神
+校正/发稿：谐趣园
 
  
 
