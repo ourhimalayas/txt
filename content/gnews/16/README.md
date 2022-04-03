@@ -2,41 +2,34 @@
 ---
 
 
-## 俄乌战争的“没想到”之二
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2276870/)
+## 特鲁多政府“在线安全小组”中包括仇恨谎言散播者
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2276925/)
 
-视频制作：多伦多蓝莲花视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-这个世界最大的无知，是我们不知道自己的无知。俄乌战争已经爆发一个多月，很多人都没想到这场战争会现在打成这个样子。
+##### 作者：加拿大温哥华扬帆农场 – 采编：文莱、撰稿：晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+据加拿大媒体【真北方】3月31日报道， 特鲁多政府周三宣布成立“网络安全专家咨询小组”，其中包括一名已知的虚假信息传播者——伯尼·法伯。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-197.png)
+法伯上个月在平台上分享了一张据称是在渥太华自由车队中找到的，反犹太传单的照片，制造了头条新闻。随后被记者乔纳森·凯在推文中指证为不实照片。法伯的原始推文也已被删除。
 
-俄乌战争是二战后欧洲最大规模的地面战争，很多人预感到了肯定会有一场恶战，但是战争实际比我们想象的更加无情、更加可怕。
+具有讽刺意味的是，法伯的职业生涯还专注于人权、反种族主义、多元化和种族/信仰/种族关系。他同时还是加拿大反仇恨网络 (CAN) 的主席，这是一个研究加拿大仇恨团体和仇恨犯罪的组织。
 
-第二个没想到：
+自由遗产部长保罗·罗德里格斯周三在公布特鲁多政府新的在线安全小组后，被问及政府的在线仇恨立法是否会侵犯言论自由时，他表示这实际上将有助于保护言论自由。
 
-没想到西方世界不再绥靖，而且出乎意料的团结一致，北约因此再次共抗外敌。
 
-西方尤其欧洲需要俄罗斯的石油，更需要俄罗斯的天然气。但是这一次整个西方世界都旗帜鲜明的站出来支持乌克兰反对普京的暴行。
 
-西方对俄罗斯国家和寡头的制裁力度越来越大，范围越来越广，将俄罗斯踢出Swift 支付系统。西方企业断腕，抛弃在俄业务和利益。
+新闻来源：[https://tnc.news/2022/03/31/trudeau-panel-includes-hate-hoax-spreader/](https://tnc.news/2022/03/31/trudeau-panel-includes-hate-hoax-spreader/)
 
-互联网平台更是一边倒的支持乌克兰，对俄罗斯杜马和寡头的制裁也起到了很大震慑作用。
+编辑/上传 – 文永
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-俄罗斯卢布暴跌，百姓生活艰难。股市崩盘，经济大伤元气。这种惨烈的制裁后果，估计俄罗斯自己都没想到。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-现在美国又想将俄罗斯驱逐出 G20，甚至酝酿对付东方独裁国家的举动，目标一致对准了独裁政权。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-我们都没有想到民主与独裁的对抗在这次战争如此泾渭分明。
-
-视频文案：Wood(文斌）
-
-发布：冰糖葫芦喵
-
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

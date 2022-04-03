@@ -2,31 +2,24 @@
 ---
 
 
-## 有声|81岁老人徒步逃离战乱 新中国联邦送温暖
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2276804/)
+## 中日财经爆┃七哥谈到的地热能源技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2276906/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-3月30日，新中国联邦乌克兰前线救援团队，在梅迪卡基地接待了一位81岁高龄的乌克兰老奶奶。
+撰稿：东京樱花团/加一颗稻草
 
-为逃离战乱，老奶奶徒步60公里到达梅迪卡。新中国联邦前线战友热情地接待老奶奶，提供食物和休息场地，让她在等待亲人的期间感受到温暖。
+麻省理工学院(MIT)的附属公司Quaise称，它将利用核聚变技术钻出历史上最深的洞并释放出清洁的、几乎无限的、超临界的地热能源，进而可以为世界各地的化石燃料发电厂重新供电。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-7.png)图片来源与本文链接
+2018年，麻省理工学院的等离子体科学与聚变中心推出了一家名为Quaise的企业，其专门致力于使用混合系统进行超深地热。该系统将传统的旋转钻井跟陀螺仪驱动的毫米波技术相结合，泵入氩气作为清洗气体来清洁和冷却钻孔，同时将岩石颗粒发射回地表并避开。迄今为止，该公司已经筹集了大约6300万美元，其中包括1800万美元的种子资金、500万美元的赠款及2月初完成的A轮融资4000万美元。
 
-接下来，我们一起收看来自前线的报导。
+Quaise计划钻探20公里深的孔，比Kola超深孔要深得多。但Kola团队花了近20年时间才达到极限，Quaise预计其陀螺仪增强过程只需要100天。而这是假设一个1兆瓦的陀螺仪。在这些深度，Quaise预计将发现500°C左右的温度，这已经远远超过了地热能源在效率上的巨大飞跃点。Quaise指出：“水在压力超过22兆帕、温度高于374℃时是一种超临界流体。跟非超临界电厂相比，使用超临界水作为工作流体的电厂可以从每一滴水中提取多达10倍的有用能量。以超临界条件为目标是实现与化石燃料一致的功率密度的关键。”
 
-文字版原文：[81岁老人徒步逃离战乱 新中国联邦送温暖](https://gnews.org/zh-hans/2268008/)
+Quaise正在致力于开发全面的、可在现场部署的示范机，预计这些示范机将在2024年开始运行。它计划到2026年使其第一个超热增强型地热系统达到100兆瓦的运行规模。 Quaise计划利用现有的基础设施如燃煤电厂。Quaise预计在2028年为其第一个化石燃料工厂重新供电，然后继续完善并在世界各地复制这一过程，因为利用这种钻探技术，地球上任何地方都应该有热能。全世界有超8500个燃煤电厂，总容量超过2000千兆瓦。
 
-音频处理：Fei797
-发稿：Fei797
+消息来源：[聚变技术将开启近乎无限的超深层地热能源开采](https://m.cnbeta.com/view/1240783.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

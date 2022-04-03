@@ -2,41 +2,28 @@
 ---
 
 
-## 第236期 玫瑰看新闻
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2277039/)
+## 有声|金融危机将促使全球彻底灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2277120/)
 
-【玫瑰看新闻】每日快讯
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-1.拜登在波兰结束演讲时呼吁罢免普京
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 
-2.美驻联合国代表称 澳大利亚不会在澳英美联盟框架内 谋求获得核武器
+在3月30日的大直播中，郭先生发出预警，全世界都聚焦俄乌战争，但千万不能忽视中共在中东、东北亚、南亚和台湾的动作。中共会在中东持续制造战乱，以切断中东对欧洲石油天然气供应，并企图打垮美国经济。
 
-3.拜登访问波兰 赞扬乌克兰人民的英勇抵抗“令人想到天安门广场”
+同时，郭先生指出，当前纽约商务楼空置率高达三四成，许多知名大楼在打折出售。郭先生对此解读为，中共所引发的世界经济危机正在逼近。俄罗斯富豪因为经济制裁而痛恨普京，美国被迫打折卖房的人则痛恨习近平，金融危机将导致全球彻底灭共，新中国联邦也将拿回中共的巨额盗国资产。这一刻很快就会到来。
 
-4.安理会15国强烈谴责北韩**试射**洲际弹道飞弹
+文字版原文：[金融危机将促使全球彻底灭共](https://gnews.org/zh-hans/2269617/)
 
-5.乌克兰报告称**马里乌**波尔剧院空袭造成300人死亡
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-6.乌克兰北部被炮击的城市或成为“下一个马里乌波尔”
+音频处理/发稿：Daxia
 
-
-
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
-**
-上传：漂流瓶**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

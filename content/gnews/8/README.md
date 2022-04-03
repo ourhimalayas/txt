@@ -2,28 +2,40 @@
 ---
 
 
-## 单分子集成生物传感器推动分子电子学新发展
-` 科海拾星` [轉載自GNews](https://gnews.org/zh-hans/2276983/)
+## 第236期 玫瑰看新闻
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2277039/)
 
-【作者】纽约香草山农场 健身部 文真
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-一家位于美国圣地亚哥的初创公司，正在致力于将单分子集成到电子生物传感器电路中，并希望这种方法可以提供一种廉价和方便的方法来检测病毒，发现环境毒素，或实时评估药物的效果。
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+1.拜登在波兰结束演讲时呼吁罢免普京
 
-有学者在2000年时曾预言，分子电子学将超越硅基电路，使计算机芯片不断变得更密集、更强大。今年1月，美国国家科学院院刊报道了一项重大进展：一套16000个功能性分子生物传感器与半导体芯片的电路实现完全集成。这表明，这些芯片可以使用现有的制造方法以商业规模制造。
+2.美驻联合国代表称 澳大利亚不会在澳英美联盟框架内 谋求获得核武器
 
-基于分子特殊结构的生物芯片，要比基于二进制的硅基电路复杂得多。成千上万的生物传感器可以同时检测不同的分子相互作用，而且这些芯片将是一次性的。据悉，该公司目前可以在一个芯片上容纳超过10000个生物传感器，并用于检测人体标志物，如维生素水平或感染。
+3.拜登访问波兰 赞扬乌克兰人民的英勇抵抗“令人想到天安门广场”
 
-报道称，如果推动该设备实现更多的市场功能，例如检测早期疾病的低浓度生物标志物，则需要几十万或几百万个生物传感器。[https://www.technologyreview.com/2022/03/31/1048672/roswell-molecular-electronics-revival/](https://www.technologyreview.com/2022/03/31/1048672/roswell-molecular-electronics-revival/)
+4.安理会15国强烈谴责北韩**试射**洲际弹道飞弹
 
-校对/发稿：菩提树
+5.乌克兰报告称**马里乌**波尔剧院空袭造成300人死亡
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+6.乌克兰北部被炮击的城市或成为“下一个马里乌波尔”
 
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
+
+
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
+**
+上传：漂流瓶**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
+
 
  
 
