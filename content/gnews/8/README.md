@@ -2,36 +2,40 @@
 ---
 
 
-## 2022/04/02 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2282205/)
+## 樱花数据分析┃加拿大安大略省：接种次数越多越易感染，每针都在伤害免疫系统
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2282281/)
 
-[![](https://express.adobe.com/page/i1IUghrJjIDjt/images/7b39da34-1dd3-4a14-b341-60d477d4aa85.png?asset_id=1212bcb1-0cb2-496c-b2b5-f56ef12476dd&amp;img_etag=%2271544251333dd862fae8a33fb7afdb16%22&amp;size=2560)](https://express.adobe.com/page/i1IUghrJjIDjt/images/7b39da34-1dd3-4a14-b341-60d477d4aa85.png?asset_id=1212bcb1-0cb2-496c-b2b5-f56ef12476dd&amp;img_etag=%2271544251333dd862fae8a33fb7afdb16%22&amp;size=1024)
-链接：[https://gettr.com/post/p1379fx9b8e](https://gettr.com/post/p1379fx9b8e)
+撰稿：东京樱花团/TV
+制图：东京樱花团/chuansang
 
-•星期天大直播七哥不参加，七哥将参加关于新中国联邦的“顾问会”（与国际多方机构合作）。中共隐瞒疫情在上海、广东、长春等地的真相。
+加拿大安大略省一直在更新各接种人群的感染率数据[1]。由于统计内容变化，数据分为3月10日之前，3月17日之后两部分。两部分数据均显示出，接种次数越多，越容易感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-10.png)
+3月10日前的数据按“两针+三针接种”、“一针接种”、“未接种”统计。截止至3月10日，每十万人感染率数据（图1）显示，在接种者中，“两针接种+三针接种者”最易感染，“一针接种者”次之。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-3.jpg)
+3月17日后的数据按“未接种+一针接种”、“两针接种”及“三针接种”统计。截止至4月2日，每十万人感染率数据（图2）显示，“三针接种者”最易感染，“两针接种者”次之，“未接种+一针接种者”感染风险最低。其中“三针接种”为“两针接种”的1.4倍，为“未接种+一针接种”的1.7倍。
 
-•中国人“惯出”中国共产党，将为此付出代价。
+两部分的结果都说明接种次数越多，越容易感染，这与我们之前观察到的英格兰[2]、丹麦[3]以及阿尔伯塔省[4]的数据一致。
 
-•接下来一周七哥没有时间直播，请战友支持没有七哥的“大直播”。
+与阿尔伯塔省[4]相同，由图1可以看出，“两针+三针接种者”感染率起初低于其他人群，但渐渐于12月中旬超过“一针接种者”，成为最易感染人群。这再次验证了我们之前的结论[4]，“疫苗抗体提供了短暂的保护率，但每一针疫苗都在进一步伤害免疫系统。随着抗体量逐渐减少，最终导致接种越多越易感染”。
 
-•爆料革命的情报绝大多是准确的，不保证100%。情报是随时变化的，爆料革命得到世界的认可。
+我们更加确信，如果继续反复接种，终将达到疫苗获得性免疫缺陷综合症（VAIDS）。 （对于图1偏高的未接种者感染率，我们与对丹麦[3]、阿尔伯塔省[4]数据的分析一致，认为这是对未接种者过度测试的政策导致的结果）
 
-•消灭中共才能解决问题。
+（注：本文为《樱花数据分析》第二十三期）
 
-•今天的香港就是昨天的大陆，明天的台湾就是今天的香港。
+数据来源：
 
-•战友不必在乎别人的看法。中共习惯性给七哥“打广告”实则是在给七哥“逆增上援”。
+[1][Cases and rates by vaccination status](https://data.ontario.ca/dataset/covid-19-vaccine-data-in-ontario/resource/eed63cf2-83dd-4598-b337-b288c0a89a16)
 
-*编辑：【英国伦敦喜庄园编辑部】*
+[2][樱花数据分析┃英格兰：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2222879/)
 
-*听写：call me uncle| PR: 乐禧禧|Page：小六月*
+[3][樱花数据分析┃丹麦：接种次数越多越易感染，三针接种者感染风险最高](https://gnews.org/zh-hans/2205218/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+[4][樱花数据分析┃加拿大阿尔伯塔省：接种次数越多越易感染，每一针都在伤害免疫系统](https://gnews.org/zh-hans/2267448/)
 
-[![](https://express.adobe.com/page/i1IUghrJjIDjt/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/i1IUghrJjIDjt/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mos_hongkong 4/3/2022 10:30 PM (UTC)`
+
+【粤语配音】2022年4月3日，文贵先生大直播视频精选：《现时的病毒就是疫苗的反应》<br/><br/>MOS香港部义工配音合成<br/> #病毒 #疫苗  #新中国联邦 #takedowntheccp #freedom #democracy #粤语 #newfederalstateofchina <br/>#nfsc #milesguo #himalaya #郭文贵 <br/><br/>
+![img](https://media.gettr.com/group49/getter/2022/04/03/22/e7145bd5-ed17-eaf0-3c15-68e01a9afd72/out.jpg)
+
+---
+
 `@miles 4/3/2022 10:04 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-03<br/>For English: gettr.com/post/p13ewlycdca<br/>
@@ -151,13 +160,6 @@ H-Pay是打开世界金融盒子的密码，是新中国联邦走向世界财富
 
 2022.04.02 晚 《新中国联邦新闻》乌克兰救援营地形成国际互助大家庭；救援营地的盖特直播 正在打造全球最棒的媒体平台
 ![img](https://media.gettr.com/group23/origin/2022/04/03/00/1cd00192-9344-0e30-596b-4319cfa42deb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/2/2022 11:30 PM (UTC)`
-
-2022.04.02 NOTICIAS DEL NUEVO ESTADO FEDERAL DE CHINA
-![img](https://media.gettr.com/group25/origin/2022/04/02/23/e575ab35-a5b1-93df-34e8-c3fae2e4f92d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

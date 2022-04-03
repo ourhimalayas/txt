@@ -2,68 +2,26 @@
 ---
 
 
-## 有声|朋友，你不孤单
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2281856/)
+## 普京侵略乌克兰的背后支撑：中共
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2281984/)
 
-配音：香草山香港部- 格格樹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-朋友
-你还好吗
-你身上的军装好帅
-你的网上手机店
-还在运营吗
-你抛下一切
-扛起钢枪反抗侵略者
-在战场上的你
-有我在牵挂
+作者：纽约香草山金融部 ILOVE战神
 
-你是乌克兰的亚历山大
-我是来自中国的一个普通人
-仅仅一场邂逅
-成为生命中挚友
-忽然的失联
-原来你上了战场
-朋友啊
-请千万小心
-当侵略者炮弹袭来时
-赶快躲在掩体下
-希望你手里的钢炮
-一次又一次
-击中侵略者装甲
-我这里警报声响了又响
-疯狂轰炸在耳边轰轰作响
-一幢又一幢居民楼被炸塌
-一个个好好的家
-从眼前变成渣
-朋友
-你在前线
-我在后方
-希望我们能够活着再相见
-如果
-如果
-你不幸牺牲
-我也被炮弹击中
-我会微笑着对你说
-朋友，我陪着你
-你不孤单
-来生
-我们依然做
-最好的朋友
+自俄罗斯入侵乌克兰一个多月以来，国际社会纷纷谴责普京所犯下的战争罪行，而中共却一直在试图两面讨好。一方面，中共在联合国谴责俄罗斯发动侵略行为的关键投票中投了弃权票，避免直接将普京对乌克兰的袭击称为“入侵”，还推波助澜宣传俄罗斯的虚假信息，一再将战争责任推到美国和北约头上；另一方面，中共也遵守国际社会对俄罗斯实施的制裁，还惺惺作态呼吁通过谈判解决问题，并向乌克兰提供人道主义援助。
 
-文字版原文：[朋友，你不孤单](https://gnews.org/zh-hans/2277003/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2.jpeg)
 
-音频处理：Fei797
-发稿：Fei797
+尽管习近平希望与欧洲保持良好关系，避免美中关系进一步恶化，但普京和俄罗斯国家的命运直接牵涉到中共的核心安全利益。一个被打垮的俄罗斯的前景不仅会触发中共对其2500英里共同边界的不稳定性的担忧，而且会对俄罗斯政府的未来领导力和地缘政治方向产生不确定性。因此，北京对普京的个人权力地位越是焦虑，就越有可能通过提供直接经济援助、减轻制裁影响甚至提供军事装备来加强对其的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+参考链接：[The worse things go for Putin in Ukraine, the more China will back him](https://www.washingtonpost.com/outlook/2022/03/24/xi-jinping-putin-china-russia-sanctions/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编：Zion文恩
+编辑：飞虹
+审核：经济小组
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

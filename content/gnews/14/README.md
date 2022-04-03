@@ -2,50 +2,36 @@
 ---
 
 
-## 乌克兰战争期间塞尔维亚投票选举总统和议会
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2282120/)
+## 2022/04/02 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2282205/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+[![](https://express.adobe.com/page/i1IUghrJjIDjt/images/7b39da34-1dd3-4a14-b341-60d477d4aa85.png?asset_id=1212bcb1-0cb2-496c-b2b5-f56ef12476dd&amp;img_etag=%2271544251333dd862fae8a33fb7afdb16%22&amp;size=2560)](https://express.adobe.com/page/i1IUghrJjIDjt/images/7b39da34-1dd3-4a14-b341-60d477d4aa85.png?asset_id=1212bcb1-0cb2-496c-b2b5-f56ef12476dd&amp;img_etag=%2271544251333dd862fae8a33fb7afdb16%22&amp;size=1024)
+链接：[https://gettr.com/post/p1379fx9b8e](https://gettr.com/post/p1379fx9b8e)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+•星期天大直播七哥不参加，七哥将参加关于新中国联邦的“顾问会”（与国际多方机构合作）。中共隐瞒疫情在上海、广东、长春等地的真相。
 
+•中国人“惯出”中国共产党，将为此付出代价。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/OI4GXFQAYFPFHMRALCNNI2L6ME.jpg)
+•接下来一周七哥没有时间直播，请战友支持没有七哥的“大直播”。
 
+•爆料革命的情报绝大多是准确的，不保证100%。情报是随时变化的，爆料革命得到世界的认可。
 
-图片来源：路透社
+•消灭中共才能解决问题。
 
-塞尔维亚周日在总统和议会选举中投票，挑战现任总统亚历山大·武契奇和他的进步党（SNS）的反对派， 承诺打击腐败和改善环境保护。
+•今天的香港就是昨天的大陆，明天的台湾就是今天的香港。
 
-就在俄罗斯入侵乌克兰之际，武契奇正在竞选第二个五年任期，承诺和平与稳定，这使塞尔维亚面临西方压力，使其在与莫斯科的传统关系和加入欧盟的愿望之间做出选择。 ）。
+•战友不必在乎别人的看法。中共习惯性给七哥“打广告”实则是在给七哥“逆增上援”。
 
-投票组 CRTA 说投票率在晚上 7 点之前。 （格林威治标准时间 1700 点），在投票站关闭前一小时，占塞尔维亚估计的 650 万选民的 54.6%，而 2020 年为 44.9%。
+*编辑：【英国伦敦喜庄园编辑部】*
 
-第一个初步结果预计在晚上 9:30 左右。 （格林威治标准时间 1930 年）。法律不允许进行票站调查。
+*听写：call me uncle| PR: 乐禧禧|Page：小六月*
 
-民意调查显示，保守派武契奇有望在第一轮中直接获胜，领先于代表亲欧洲和中间派胜利联盟的退役陆军将军波诺斯。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
-反对派在很大程度上抵制了 2020 年的议会选举，从而使武契奇的 SNS 党及其盟友在 250 个席位的议会中获得了 188 个席位。
+[![](https://express.adobe.com/page/i1IUghrJjIDjt/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://express.adobe.com/page/i1IUghrJjIDjt/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
-“当然，我们确实期待一场巨大的胜利，这就是我们过去四五年的工作，”武契奇在投票后告诉记者。
-
-塞尔维亚几乎完全依赖俄罗斯的天然气，而其军队则与俄罗斯军方保持联系。
-
-尽管塞尔维亚支持两项谴责俄罗斯入侵乌克兰的联合国决议，但拒绝对莫斯科实施制裁。
-
-武契奇是一位资深政治家，曾于 1998 年在前强人斯洛博丹·米洛舍维奇 (Slobodan Milosevic) 的领导下担任信息部长，他已将自己从民族主义煽动者转变为欧盟成员资格、军事中立和与俄罗斯和中国关系的支持者。
-
-波诺斯指责武契奇在他的竞选活动中利用乌克兰战争来，利用人们对战争的恐惧。
-
-反对派和权利监督机构还指责武契奇及其盟友的独裁统治风格、腐败、裙带关系、控制媒体、攻击政治对手以及与有组织犯罪有联系。武契奇和他的盟友一再否认所有这些指控。
-
-简评：塞尔维亚是科索沃战争后宣布独立的东欧国家， 周末进行议会和总统的选举。 联想今天郭先生在大直播中透露， 中共已经布局塞尔维亚红旗导弹系统，使用北斗系统。 现任总统很可能获胜并和中共和俄罗斯很亲近， 郭先生又一次预警了世界， 中共要直接参战了。 习近平已经没有退路了。
-
-🔗 [https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/](https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/)
-
-编辑发表： Shuizhuyu
-
- 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

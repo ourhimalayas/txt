@@ -2,32 +2,35 @@
 ---
 
 
-## 帮助大家了解，谁是CDN？它是如何评价喜币的？
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2282119/)
+## 乌克兰指责俄罗斯屠杀平民犯有战争罪
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2282201/)
 
-撰稿：东京樱花团/菩提树
+翻译：多伦多蓝莲花农场- 冰糖葫芦喵、灭共文明
 
-美国上市公司（Akamai Technologies）是全球最大的内容分发网络（Content Delivery Network，缩写CDN）的服务商，是世界上最大的分布式计算平台之一，其用途就是帮助全球各地的人们快速、有效、安全地访问某个网站的内容，其业务遍布全球1300个国家/地区近1500个网络中约325,000台服务器，国内外无数中高端网站都是其客户，包括苹果公司、Facebook、微软、Twitter、TVB、国泰航空、Healthcare.gov等，世界上60%的流量是由CDN数据提供，在CDN领域，Akamai公司是行业巨头，任何数字货币都绕不开CDN。
-![](https://assets.gnews.org/wp-content/uploads/2022/03/20220325Akamai-Poblocki-Sign.jpg)（图片来自本文链接）
-3月18日，Akamai公司在其官网隆重推荐喜马拉雅交易所，文中写道：“该公司的一个主要目的是为新的数字时代提供革命性的金融解决方案。这种新的加密货币基础设施由两个主要单位支撑：喜美元（HDO，Himalaya Dollar）和喜币（HCN，Himalaya Coin）。
+编辑与校对：冰糖葫芦庙喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+《路透社》乌克兰布查4月3日报道，**周日，乌克兰指责俄罗斯军队在布查市进行”大屠杀”。乌克兰外交部长呼吁国际刑事法庭收集俄罗斯战争罪行的证据，法国和英国外交部长表示支持任何此类调查。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/LYS5NG66LZO7TNGNW2IEW2HYAY.jpg)一名士兵在一辆被毁的俄罗斯坦克和装甲车旁给他的战友拍照（图片来源：路透社）
+乌克兰总检察长Iryna Venedyktova表示，**调查俄罗斯犯下的战争罪行的检察官在基辅附近的城镇发现了410具尸体，其中140具已经进行了检查。**
 
-喜美元（HDO）的结构旨在维持其对美元的1比1的价值，它将尖端的区块链技术与稳定币的强大功能相结合，所有这些都使得在全球范围内即时、安全地移动数字货币成为可能。
+据报道，路透社记者看到一具平民的尸体仍躺在街上。周日，布查市长阿纳托利·费多鲁克向记者展示了两具尸体，他们的手臂上绑着白布，其中一具尸体似乎被人射中了嘴。他表示，**布查市在俄罗斯军队长达一个月的占领期间，有300名居民被杀。**
 
-喜币（HCN）是人们每天都可以放心使用的货币，其设计理念是保值，这些代币（HDO和HCN）也可通过Himalaya Pay（H-Pay）应用程序提供给允许辖区内的合格会员。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-44.jpg)在布查，一名乌克兰军人用一块木头检查一名穿着便服的男子的尸体（图片来源：www.smh.com）
 
-喜马拉雅交易所（Himalaya Exchange）采用多层方法、通过设计内置的安全性和隐私，确保技术层面的安全保障，防止分布式拒绝服务（DDoS）和其他攻击。
+乌克兰外交部长库列巴（Dmytro Kuleba）在推特上表示，**俄罗斯军队在乌克兰对平民的屠杀是蓄意的。**
 
-该公司依靠许多Akamai安全解决方案，帮助客户在交易过程中保持安全，还部署了Akamai内容分发网络（CDN），以确保在线平台快速、可靠地运行。
+报道称，**西方国家对布查市尸体的视频和照片作出强烈反应，呼吁对俄罗斯实施新的制裁。**俄罗斯军队在乌克兰的野蛮行径在西方引发了极大的愤怒，称将进一步制裁俄罗斯总统普京，从而加大了普京面临的压力。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-20.jpg)在基辅郊区的布查市，士兵们在被摧毁的俄罗斯坦克中行走（图片来源：www.smh.com）
+**美国国务卿安东尼·布林肯(Antony Blinken)形容这些图片是“一记重击”。德国外长贝尔伯克说，俄罗斯必须为“战争罪行”付出代价。英国首相约翰逊说，他的政府将加强制裁。**
 
-以Akamai公司的国际信誉度作为背书，证明了喜交所的安全性、防黑客攻击能力具备世界一流水平。其尖端的互联网技术保证了用户在交易过程中的安全，完全不用担心个人资料泄露和资产被盗，是一家值得信赖的数字货币交易平台。喜马拉雅交易所在数字货币领域必将一飞冲天，创造辉煌。
+**德国总理奥拉夫·肖尔茨(Olaf Scholz)说:“普京和他的支持者将感受到严重后果。”**他补充说，**西方盟友将在未来几天同意进一步制裁**。德国也转变之前的态度**，德国国防部长兰布雷希特表示，欧盟必须讨论禁止进口俄罗斯天然气的问题。**
 
-信息来源：
-[世界CDN巨头Akamai在官网隆重介绍喜马拉雅交易所](https://himoney.press/world-cdn-giant-akamai-introduces-himalaya-exchange/)
-[Himalaya Exchange Creates a New Digital Financial System](https://www.akamai.com/blog/edge/himalaya-exchange)
+**乌克兰总统泽伦斯基的助手奥列克西·阿雷斯托维奇(Oleksiy Arestovych)说，乌克兰军队发现了被强奸和纵火被烧死的妇女尸体，以及当地官员和儿童的尸体。**
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/曲别针
-![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
+新闻来源链接：
+
+[Ukraine accuses Russia of civilian ‘massacre’; Russia denies this | Reuters](https://www.reuters.com/world/europe/ukraine-claims-control-over-kyiv-region-russia-looks-east-2022-04-03/)
+
 
 
  
