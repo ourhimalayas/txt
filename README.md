@@ -15,83 +15,83 @@
 
 ---
 
-### [专业学者对加拿大中共化的分析](/content/gnews/1/README.md)
+### [【粤语配音】2022年4月4日：海外伪类们得到应有的报应](/content/gnews/1/README.md)
+ ` MOS香港部`
+
+### [乌基辅城镇平民被俄军残忍杀害 总统称种族灭绝](/content/gnews/2/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [追究俄罗斯战争罪 美国务卿出访欧洲](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [专业学者对加拿大中共化的分析](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [斯里兰卡深陷中共债务陷阱 民众示威迫使政府所有部长下台](/content/gnews/2/README.md)
+### [马斯克持有推特9.2的股份成为最大股东](/content/gnews/5/README.md)
+ ` 蓝莲花农场`
+
+### [斯里兰卡深陷中共债务陷阱 民众示威迫使政府所有部长下台](/content/gnews/6/README.md)
  ` 日本東京方舟農場`
 
-### [加拿大生活美谈 2022-03-31第四十九期](/content/gnews/3/README.md)
- ` canadalifetalk`
-
-### [如何保障强大的生物计算机运行？](/content/gnews/4/README.md)
+### [如何保障强大的生物计算机运行？](/content/gnews/7/README.md)
  ` mayflowertranslate`
 
-### [泽伦斯基谴责俄军在乌克兰犯下“种族灭绝”罪行](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+### [俄罗斯军队被指滥杀乌克兰平民 欧盟誓言将加大制裁 ！](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事](/content/gnews/6/README.md)
+### [比尔·盖茨投巨资研发能被手机扫描植于皮下的微芯片技术](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [上海全面封城 民众怨声载道](/content/gnews/7/README.md)
+### [上海全面封城 民众怨声载道](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【#G时新闻】俄罗斯军队在乌克兰损失惨重](/content/gnews/8/README.md)
+### [【#G时新闻】俄罗斯军队在乌克兰损失惨重](/content/gnews/12/README.md)
  ` G-时新闻`
 
-### [樱花时政┃日本人道组织呼吁政府加快接收乌克兰难民](/content/gnews/9/README.md)
+### [樱花时政┃日本人道组织呼吁政府加快接收乌克兰难民](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [CEO杰森米勒先生向意大利观众讲述Gettr向专制的大科技公司发起挑战](/content/gnews/10/README.md)
+### [CEO杰森米勒先生向意大利观众讲述Gettr向专制的大科技公司发起挑战](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [有声|“摸着石头过河”：中共骗人的口号](/content/gnews/11/README.md)
+### [有声|“摸着石头过河”：中共骗人的口号](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声|救援营地的盖特直播 正在打造全球最棒的媒体平台](/content/gnews/12/README.md)
+### [有声|救援营地的盖特直播 正在打造全球最棒的媒体平台](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来](/content/gnews/14/README.md)
+### [4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大中共病毒疫情正卷土重来](/content/gnews/15/README.md)
+### [加拿大中共病毒疫情正卷土重来](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零](/content/gnews/16/README.md)
+### [【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零](/content/gnews/19/README.md)
  ` G-时新闻`
 
-### [五月花简报（04/04/2022）](/content/gnews/17/README.md)
+### [五月花简报（04/04/2022）](/content/gnews/20/README.md)
  ` mayflowertranslate`
 
-### [4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口](/content/gnews/18/README.md)
+### [4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [【G时新闻】上海的疫情是否会成为香港的重演？](/content/gnews/19/README.md)
+### [【G时新闻】上海的疫情是否会成为香港的重演？](/content/gnews/22/README.md)
  ` G-时新闻`
 
-### [俄罗斯战事不利征兵难，政局动荡谁买单？！](/content/gnews/20/README.md)
+### [俄罗斯战事不利征兵难，政局动荡谁买单？！](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/21/README.md)
+### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/24/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [克里姆林宫警告西方：卢布换天然气计划是原型](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/23/README.md)
+### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [波兰希望有更多的美军进驻欧洲](/content/gnews/24/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [卡车业中最两极化的术语是 “司机短缺”](/content/gnews/25/README.md)
+### [卡车业中最两极化的术语是 “司机短缺”](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [安卓用户受到威胁：俄罗斯黑客使用新的恶意软件](/content/gnews/26/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
 ### [扒一扒中共国的“动态清零”政策](/content/gnews/27/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`

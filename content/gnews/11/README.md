@@ -2,27 +2,32 @@
 ---
 
 
-## 有声|“摸着石头过河”：中共骗人的口号
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2288336/)
+## 上海全面封城 民众怨声载道
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2288686/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-3月27日文贵大直播透露，中共的改革开放的口号“摸着石头过河”，就是对人民不负责任。当年在一次聚会中，朱镕基秘书吹嘘中共“摸着石头过河”的政策有多英明，文贵先生当面指出，这种说法是极不负责任的。假如老百姓听了你的，结果掉河里淹死了，谁来承担担任？
+##### 作者：加拿大温哥华扬帆农场 – 文莱（采编）、文所未闻（编译）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-3.jpg)
 
-郭先生指出，负责任的政府绝不会打出这样的口号，要么就是不能过河，要么就是安全地过河。实际上中共根本根本没想过让中国人过河。爆料革命战友表示，中共的类似口号还有“不管白猫黑猫，捉到老鼠就是好猫”，意思是在所谓“改革开放”中放弃姓社姓资的争论，只要能发展经济，什么办法都可以。
+据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “零容忍”方针下，中共国最大城市上海有数百万人在全面封锁下被隔离在家中，但是由于食物和医疗服务匮乏，民众怨声载道。
 
-文字版原文：[“摸着石头过河”：中共骗人的口号](https://gnews.org/zh-hans/2285228/)
+据悉，卫生官员当天报告说，在过去24小时内上海有438个确诊病例，以及7788个无症状病例。对于拥有2600万人口的上海来说，该报道的数据比例并不大。但是政府要求封锁、强制隔离所有疑似病例并进行大规模检测。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+同时中共党媒报道显示，习近平正在指导继续采取各种强硬做法，达到其政治上的权宜之计，确保党、政的整体稳定。据郭文贵先生最近爆料，国内最近出现的各种中共病毒病例实际上是病毒疫苗导致的结果，人们接种的疫苗就是毒针。疫苗灾难还远远没有开始。
 
-音频处理/发稿：Daxia
+[原文链接](https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237)
 
-**更多资讯，更多关注**
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
