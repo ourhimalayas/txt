@@ -2,16 +2,16 @@
 ---
 
 
-## 有声|法治基金在乌克兰的人道救援行动仍在继续
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2288334/)
+## 有声|救援营地的盖特直播 正在打造全球最棒的媒体平台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2288335/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-11.png)
+4月1日，在波兰救援基地的直播连线中，明道战友详细介绍了我们新中国联邦媒体和主流媒体的差异。
 
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+传统的主流媒体往往只注重一些新闻事件的闪光点，不仅片面、偏颇，而且往往蜻蜓点水，难以给观者带来全面的信息，不能跟新中国联邦的媒体相提并论。我们是通过24小时的盖特直播，全方位报道救援前线的动态，这种全面和深入是传统媒体无法比拟的。新中国联邦正在打造和成就着一个全球最棒的媒体平台——盖特！
 
-文字版原文：[法治基金在乌克兰的人道救援行动仍在继续](https://gnews.org/zh-hans/2275964/)
+文字版原文：[救援营地的盖特直播 正在打造全球最棒的媒体平台](https://gnews.org/zh-hans/2278387/)
 
 ![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
@@ -19,7 +19,7 @@
 
 **更多资讯，更多关注**
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
