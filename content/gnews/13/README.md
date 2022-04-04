@@ -2,24 +2,18 @@
 ---
 
 
-## 视频|历史上的今天：马来西亚前首相纳吉贪污罪案
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2284277/)
+## 唐平回忆创作灵感（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284507/)
 
-制作：香草山视频部
+#### PPT制作：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：00-11：10-005.jpeg)
+*发布：陶子*
 
-2019年4月3日，马来西亚前首相纳吉贪污罪案开始受审。
-
-纳吉·阿都拉萨，生于1953年7月23日，曾任马拉西亚第六任首相。2018年，纳吉在大选中被爆出与一马发展有限公司(1MDB)牵连有严重的腐败行为,导致选举失败。随后，被马来西亚移民局禁止出境，被控涉嫌SRC国际有限公司多项罪名。2019年4月3日，马来西亚高法开始审理纳吉被控涉及SRC国际公司4200万令吉洗钱案。
-
-2011年在马来西亚注册的SRC国际公司，是一马发展公司(1MDB)的前子公司。2012年，时任首相和财政部长就是纳吉。据调查发现，2014年12月-2015年2月间，有4200万令吉从SCR国际公司账户汇入纳吉银行的私人账户。
-
-2018年，郭文贵先生在美国爆料，一马发展公司(1MDB)实际控制人是刘特佐，此人是中共公安部长、政法委书记孟建柱的私生子。刘特佐用巨额资金买通掌权的纳吉，帮助孟建柱控制马来西亚，把马来西亚国家搞得贪腐横行，乌烟瘴气，经济严重衰退。消息传到马来西亚，举国哗然，马国人民用选票推翻了纳吉连任企图，并依法追究刘特佐、纳吉的罪行。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

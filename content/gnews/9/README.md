@@ -2,28 +2,18 @@
 ---
 
 
-## 今日盖特大V推荐 — 烈焰传媒 (Blaze Media)
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2284365/)
+## 唐平回忆创作灵感（七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284546/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-315.png)
-盖特链接： [**https://gettr.com/user/theblaze**](https://gettr.com/user/theblaze)
+#### PPT制作：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：00-11：10-007.jpeg)
+*发布：陶子*
 
-烈焰传媒自述：
-
-为热爱美国的人提供新闻和娱乐
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-316.png)图片来源：网络
-**烈焰传媒简介：**
-
-《烈焰传媒》是一家美国保守派付费电视网络媒体公司，由格林·贝克（Glenn Beck）创建，成立于2018年12月。
-《烈焰传媒》是TheBlaze和CRTV LLC合并的结果。公司由执行长泰勒·卡登和总裁加斯顿·穆尼领导。它位于德克萨斯州欧文市，并在华盛顿特区设有工作室和办事处。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

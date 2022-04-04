@@ -2,41 +2,36 @@
 ---
 
 
-## 中共派遣军队和医生到上海对2600万居民进行新冠病毒检测
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2284182/)
+## 苏州出现首例奥密克戎全新变异毒株
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284377/)
 
-翻译&评论：金生水
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-51.jpg)图片来自网络
-《MSN News》近日报道，周一（4月4日），中共派遣军队和数千名医护人员进入上海，帮助对其 2600 万居民进行新冠检测，这是有史以来规模最大的公共卫生应对措施之一。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-一些居民被要求在黎明前起床在他们的住宅区进行核酸检测，许多人穿着睡衣排队。
+整理/编辑：围剿维尼熊
 
-据武装部队报纸报道，中国人民解放军（PLA）周日向上海派遣了从陆军、海军和联合后勤保障部队招募的2000多名医务人员。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3313.jpg)图片来源：视觉中国
 
-据媒体报道，江苏、浙江、北京等多个省份已向上海派出医护人员，有人估计总数超过1万人。
 
-这是武汉2020年初发现新型冠状病毒爆发第一次新冠疫情以来中国最大规模的公共卫生应对措施。国务院说人民解放军当时派了四千多医疗工作者到湖北省。
+根据大纪元4月4日讯，官方通报，中共国江苏省苏州市发现奥密克戎（Omicron）全新变异毒株，该毒株与全球已知毒株均不同源。
 
-上海于上周一开始了两阶段封锁，并扩大到几乎所有居民在家中，4 月 3 日报告了 8581 例无症状新冠病例和 425 例有症状新冠病例。它还要求居民使用抗原进行自我检测周日进行新冠测试。
+通报称，3月28日苏州下辖的常熟市发现的一例确诊病例，病毒经测序对比为VOC／Omicron变异株BA.1.1进化分支。
 
-虽然按照全球标准，此次疫情规模较小，但该市已成为对中共国基于对所有阳性病例及其密切接触者进行检测、追踪和隔离的消除战略的考验。
+在本土病例和输入病例数据库、全球COVID-19的GISAlD数据库中，均未发现与该新毒株基因组高度同源序列。
 
-该策略已显示出紧张的迹象，居民抱怨中央检疫中心拥挤且不卫生，以及难以确保食品供应和基本医疗帮助。
+目前，奥密克戎毒株正在大陆广泛传播。据中共卫健委消息，大陆疫情目前已波及29个省，呈现出点多、面广、频发的特点。
 
-尽管如此，中国国家主席习近平仍敦促该国在坚持“动态清零”政策的同时，尽快遏制疫情蔓延势头。
+在苏州市通报发现新变异株的当天，苏州下辖的昆山市2日宣布全市升级疫情防控措施，封控区实行区域封闭、足不出户；管控区实行人不出区、严禁聚集。
 
-周六，被中央政府派往上海的副总理孙春兰敦促该市“采取果断和迅速的行动”遏制这一流行病。
+参考链接：[苏州现全球首例全新变异株 大连亦现不明毒株](https://www.epochtimes.com/gb/22/4/3/n13693136.htm)
 
-这次上海疫情里掺杂了太多政治斗争的因素（例如多名上海官员被免职），上海普通市民都已经尽力了，最终还是免不了成为政治夹击的牺牲品，上海人民不会忘记这次的羞辱。
+*发布：tianzhihuan*
 
-参考链接：
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-[https://www.msn.com/en-au/news/world/china-sends-military-doctors-to-shanghai-to-test-26-million-residents-for-covid/ar-AAVOXcX?ocid=EMMX&cvid=18d6cc04a0704700a64eb4cddf7cf4e4](https://www.msn.com/en-au/news/world/china-sends-military-doctors-to-shanghai-to-test-26-million-residents-for-covid/ar-AAVOXcX?ocid=EMMX&amp;cvid=18d6cc04a0704700a64eb4cddf7cf4e4)
-
-*编辑：金生水*
-
-*发布：金生水*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

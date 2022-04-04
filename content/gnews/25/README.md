@@ -2,88 +2,26 @@
 ---
 
 
-## 参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2283516/)
+## 爆料革命——历史的今天1月21日
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2284154/)
 
-**参议员玛莎.布莱克本： **
-在俄罗斯威胁进行核战争之际，拜登总统的预算将迫使削减关键核能力。 俄罗斯、 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、朝鲜和伊朗只通过实力理解和平。 我们必须为我们的军队提供防卫和保护我们的自由所需的资源。
+*整理：Pride*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-131834.png)
+**2018年01月21日—**过去十几天，国内盗国贼的窘境和内部斗争，都对郭七条有利。郭媒体将要开始试运行，我们会和当地国家做一个反黑客的钓鱼行动。希望郭媒体能成为中共黑客美国，法律上的证据。
 
+**2019年01月21日—**现在中共要大家学习王阳明知行合一，致良知。当时王阳明先生在四省巡抚—福建、江西、广东一带，跟老百姓聊天，讲学、讲道理，知廉耻。那么多少数民族，相处那么好。按今天王岐山说的，那地方都是刁民。非得高压维稳，上狠手段。今天少数民族都进监狱，关到集中营去了。
 
+一位老领导一直享受最高福利待遇，用最好的药治病。最后还是我在美国原厂帮他买的药，寄回去不到三个月就好了。同样的药名，吃共产党的没整明白。这就是现在中国，吃啥药都弄死你。
 
-> President Biden’s budget will force cuts to key nuclear capabilities, at a time when Russia is threatening nuclear war. Russia, China, North Korea & Iran only understand peace through strength. We must provide our military the resources they need to defend & protect our freedom.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510735250376298496?ref_src=twsrc%5Etfw)
+**2021年01月21日—**十八大后，七哥还在国内。我和刘彦平、孙力军的中间联络人黄保卫说，刘志华案这股力量，你有一万个脑袋也不够砍的；军队房峰辉说，习王政府的文化大革命到来，你赶快跑；肖建华说，王岐山要办你；地产老板说的更邪乎，孟建柱把你活剥，都不拉倒。当时那个较量，每天都是生死存亡。但他们全错了，对大事没有一个判断。
 
+习王上来先让自己安全，巩固好地盘。先灭军队的房峰辉、徐才厚、郭伯雄；地方要弄大员，拿下北京、上海、广东。灭掉共青团的令计划、李源潮、孙政才，第二波再动小卒。即使想贸然行事，周边的人也会告诉他不行。像川普总统当年要把我遣返一样，旁边有班农、博丁格、塞申斯说不能动。
 
+**2022年01月21日—**从11大、13大到今天20大，中共把手里所有能用的工具都用过了。极右、极左，三反五反，右倾、反右倾，都已经走完了。只有一人一票的选举制度，才能救中国。但现在已经没有机会往回调整，改变政治制度等同中共自杀。如果不及时刹车，最后大家也是全完蛋。
 
-**参议员玛莎·布莱克本：** 
-我们不能袖手旁观，任由左派(把他们的思想)灌输给我们的孩子。
+七哥也正在用和平智慧的方式，劝阻外国运动员不敢参加中共冬奥会。我们告诉很多运动员，张家口是吃狗肉的地方。小狗刚下崽，都给抓走。中共准备的餐，都是中国保护性动物，不允许杀生。甚至他们不去参加冬奥会，将免费获得我们秘密基金的多少喜币。灭掉共产党以后，我们要把参加冬奥会的人，永远挂在我们的媒体平台上。
 
-
-
-> We can’t sit back and allow the left to indoctrinate our children.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1510777612909613057?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本： **
-不要搞错：在美国，我们正目睹一场文化战争。
-
-
-
-> Make no mistake: we’re witnessing a culture war in America.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510672033620889603?ref_src=twsrc%5Etfw)
-
-
-
-**国务院发言人内德·普赖斯:** 
-当被问及来自布哈(Bucha) 的可怕图像时，布林肯国务卿@SecBlinken 今天早上告诉CNN记者@CNNSotu，我们不能对此麻木——我们不能使其正常化。 这就是每天都在发生之事的现实，也是克里姆林宫的战争必须结束的原因。 【转CNN推文及视频： “我们不能对此麻木。” 国务布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上。】
-
-
-
-> Asked about the horrifying images coming out of Bucha, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) told [@CNNSotu](https://twitter.com/CNNSotu?ref_src=twsrc%5Etfw) this morning that we can’t become numb to this—we can’t normalize this. This is the reality of what’s going on every single day and why the Kremlin's war needs to end. [https://t.co/PvRBtLUCGE](https://t.co/PvRBtLUCGE)
-> — Ned Price (@StateDeptSpox) [April 3, 2022](https://twitter.com/StateDeptSpox/status/1510712942072848385?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：** 
-我们强烈谴责克里姆林宫部队在布查(Bucha)和乌克兰各地的明目张胆的暴行。我们正在利用一切可用工具，记录和分享信息，追究责任人的责任。
-
-
-
-> We strongly condemn apparent atrocities by Kremlin forces in Bucha and across Ukraine. We are pursuing accountability using every tool available, documenting and sharing information to hold accountable those responsible.
-> — Secretary Antony Blinken (@SecBlinken) [April 4, 2022](https://twitter.com/SecBlinken/status/1510792047824826372?ref_src=twsrc%5Etfw)
-
-
-
-**众议员兰斯.古登： **
-高油价首先被归咎于大流行病。 
-然后，弗拉基米尔.普京（因此）受到指责。 
-现在，石油公司又遭到指责。 
-
-乔·拜登应该将自己列入被指责的名单。
-
-
-
-> First, the pandemic was blamed for high gas prices.
-> 
-> Then, Vladimir Putin was blamed.
-> 
-> Now, oil companies are being blamed.
-> 
-> Joe Biden should add himself to the list.
-> — Lance Gooden (@Lancegooden) [April 3, 2022](https://twitter.com/Lancegooden/status/1510686257646604289?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院： **
-国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：乌克兰的农民没能照料他们的庄稼，而是被迫要么为国家的未来和独立而战，要么逃离。 运送粮食的船只由于被俄罗斯侵略的封锁而无法从黑海港口驶出。 【图中文字：国际社会必须增加对俄罗斯的施压以结束这场无端又无理的战争 – 布林肯】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): Farmers in Ukraine, instead of tending to their crops, have been forced to either fight for their country’s future and independence, or to flee. Ships with grain are not getting out from Black Sea ports because they’re blocked by Russia’s aggression. [pic.twitter.com/RI47Q1JL7u](https://t.co/RI47Q1JL7u)
-> — Department of State (@StateDept) [April 3, 2022](https://twitter.com/StateDept/status/1510603026301599746?ref_src=twsrc%5Etfw)
-
-
+中国所有人都被假统治着，用假来赚钱、搞政治。对待西安老百姓的办法，还要在各个城市实施。这不是暴政，是暴虐。大家未来输血肯定感染，甚至比打疫苗还可怕。乙烷碳墨烯最多的是在血管—血管壁、脑血管、心血管活跃。这血就是活着的砒霜，肯定杀人，千万不要用。
 
  
 
