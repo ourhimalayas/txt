@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 6:48 AM (UTC)`
+
+4/3/2022 Miles Guo: The Himalaya Coin is and will always be the most stable digital currency in the world. The former governor of a certain major energy country's national bank works as a senior executive of the Himalaya Exchange. There are three countries that will add digital currencies to its national reserve currencies, and the Himalaya Coin is on the lists.<br/><br/>4/3/2022 文贵直播：喜币是并且将永远是全球最稳定的数字货币；某能源大国的前国家银行行长在喜联储当高管；有三个国家要将数字货币纳入为其国家储备货币，喜币就在其中之列！<br/>
+![img](https://media.gettr.com/group10/getter/2022/04/04/06/9b146292-1b58-e8dc-1f23-38f7e2cd6fc1/out.jpg)
+
+---
+
 `@miles 4/4/2022 6:33 AM (UTC)`
 
 《灭共的雪 The Terminator Snow》已经上榜澳大利亚🇦🇺iTunes 摇滚歌曲第一名🥇, 感谢澳大利亚的兄弟姐妹们🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏🙏
@@ -151,12 +158,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-03<br/>For English: gettr.com/post/p13ewlycdca<br/>
 ![img](https://media.gettr.com/group48/origin/2022/04/03/22/7f4d692e-8f27-1a58-a621-b6a1c539fb08/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 9:11 PM (UTC)`
-
-Al Jazeera is a Qatari Government-Owned Arabic and English language international media network. It’s based in the capital of Qatar, Doha, and operated by the media conglomerate Al Jazeera Media Network半岛电视台是一家位于卡塔尔首都多哈的国际电视媒体，由卡塔尔王室出资的半岛媒体集团所拥有。卡塔尔莫扎皇太后是一带一路项目中的卡方最大受益人。<br/>https://gnews.org/zh-hans/2278091/
 
 ---
 
