@@ -2,32 +2,23 @@
 ---
 
 
-## 上万名军队医生进入上海对2600万居民进行检测
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287768/)
+## 真相和真情 推动钢琴家公开支持新中国联邦
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287987/)
 
-#### 选择/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16490920521.png)
-路透社视频新闻截屏——中国各地的医疗中作者到达上海
+作者： 香草山农场 – 飞虹
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在4月1日的新中国联邦乌克兰救援直播连线中，Nicole战友向观众介绍了已经前往利沃夫的战地钢琴家与战友们相处十几天的过程。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00.jpg)
+钢琴家离开梅迪卡之前，曾听文科战友讲述郭文贵先生和新中国联邦的故事，感觉非常不可思议。而与新中国联邦的新中国人愉快相处的日子，推动他从最初的用音乐支持变成对新中国联邦的公开支持。他在自己的钢琴上贴上了新中国联邦的标志，希望能在更接近前线的地方继续传播新中国联邦和法治基金正义、善良、勇敢的信息。
 
-4月4日，在路透社的视频新闻（TopVideoNews）中引用了CCTV13 的一段视频。该视频报道，中共已派出军队和医疗工作者进入上海，这是该国最大的公共卫生行动之一。
+参考链接：[郭文贵先生和新中国联邦的故事](https://gettr.com/post/p13bc75b3f9)
 
-据一家军队报纸消息，周日，陆海两军，和联合后勤部队向上海派遣了2000多名医务人员。另外，来自江苏、浙江和北京等地的1万多名医护人员已抵达上海。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-16.jpg)
 
-尽管以全球标准衡量，上海的疫情规模较小，但该市已成为中国消除疫情战略的一个试点。从3月28日开始，检测已扩大到全体居民。
-
-据报道，中共有12400家机构每天能够处理多达9亿人的检测。主要使用组合式检测，即，将20个拭子样本混合在一起，以便进行更快速的处理。
-
-集中隔离场所是由医院、体育馆、公寓楼和包括国际博览中心的其他场所改造而成。其容纳量为15000名患者。
-
-在中共政府执行 “清零” 的战略的要求下，居民抱怨检疫中心拥挤、不卫生，并难以获得食物和基本医疗救助。他们质疑将检测阳性的儿童与父母分离，以及大多数轻微或无症状的感染者不能在家中隔离。
-
-在中共社交媒体上，筋疲力尽的工人睡在塑料椅上或草地上，他们遭到斥责的照片和视频在网上传播开来。当地传染病专家对现行的检疫和检测规定表示愤怒。
-
-周六，中共派往上海的副总理孙春兰敦促上海 “采取果断、迅速的行动” 遏制疫情。
-
-责编：白夜
-
-[https://www.reuters.com/](https://www.reuters.com/)
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

@@ -2,28 +2,33 @@
 ---
 
 
-## 日本自媒体人被新中国联邦灭共壮举感动
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287733/)
+## 有声|历史上的今天：马来西亚前首相纳吉贪污罪案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2287881/)
 
-作者：纽约香草山农场 文真
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2019年4月3日，马来西亚前首相纳吉贪污罪案开始受审。
 
-波兰当地时间4月3日，一位来自日本的自媒体人在米蒂卡，法治基金-新中国联邦的帐篷内，接受了救援前线队员妮可的采访。当这位日本人听到妮可介绍，新中国联邦人是灭共的新中国人时，感到非常震惊。
+纳吉·阿都拉萨，生于1953年7月23日，曾任马拉西亚第六任首相。2018年，纳吉在大选中被爆出与一马发展有限公司(1MDB)牵连有严重的腐败行为,导致选举失败。随后，被马来西亚移民局禁止出境，被控涉嫌SRC国际有限公司多项罪名。2019年4月3日，马来西亚高法开始审理纳吉被控涉及SRC国际公司4200万令吉洗钱案。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-3.jpeg)
+2011年在马来西亚注册的SRC国际公司，是一马发展公司(1MDB)的前子公司。2012年，时任首相和财政部长就是纳吉。据调查发现，2014年12月-2015年2月间，有4200万令吉从SCR国际公司账户汇入纳吉银行的私人账户。
 
-他用不熟练的英语试图表达他的感受。他说，日本人通常都觉得中国人的形象就是中共政府。这是他生平第一次听到，新中国联邦要消灭中国共产党。他感到非常的印象深刻。
+2018年，郭文贵先生在美国爆料，一马发展公司(1MDB)实际控制人是刘特佐，此人是中共公安部长、政法委书记孟建柱的私生子。刘特佐用巨额资金买通掌权的纳吉，帮助孟建柱控制马来西亚，把马来西亚国家搞得贪腐横行，乌烟瘴气，经济严重衰退。消息传到马来西亚，举国哗然，马国人民用选票推翻了纳吉连任企图，并依法追究刘特佐、纳吉的罪行。
 
-当他听说，一个名叫Miles Guo的中国人正在带领中国人灭共时，他手捂着胸口，接连说了几遍“感动“。他表示，他会用自媒体的方式力挺新中国联邦，传播灭共的使命。
+文字版原文：[历史上的今天：马来西亚前首相纳吉贪污罪案](https://gnews.org/zh-hans/2280150/)
 
-参考链接：[东京来的自媒体人](https://gettr.com/post/p13c606bc5b)
+音频处理：Fei797
+发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-总编：文真
-编辑：Jack Li文阳   
-审核：Ivy001
-校正/发稿：谐趣园
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

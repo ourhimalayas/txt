@@ -2,22 +2,24 @@
 ---
 
 
-## 樱花时政┃虚假宣传泛滥！中共官媒再次被推特添加警示标签
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2287556/)
+## 中共防疫“清零”政策就是谎言
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2287642/)
 
-撰稿：东京樱花团/法治小哥
+撰稿：东京樱花团/小小星
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-继给中共官媒在推特的账号加注国家媒体的标签后，社交媒体推特近日再次加强了对中共官媒的把关，给所有包含中共官媒网页链接的推文加注了新的警示标签。
+中共疫情“清零”，其实从来就没有清零过。共产党总是把感染和死亡的数字缩小化。只有你想不到的数量，没有他们隐瞒不了的数字。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-19.jpg)[图片来源](https://www.wkrn.com/community/health/coronavirus/shanghai-starts-chinas-biggest-covid-19-lockdown-in-2-years/)
+在疫情肆虐全球的时刻，独裁的中国共产党一直对十四亿中国人宣称，只有中国“风景独好”，能把疫情控制住，做到疫情“清零”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-38.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F3582%2Fproduction%2F_110289631_chinese_diplomats_twitter_illustration_640-nc.png&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fnews%2Fworld-asia-china-50832915&amp;tbnid=)
+其实从来就没有清零过。共产党总是把感染和死亡的数字缩小化。只有你想不到的数量，没有他们隐瞒不了的数字。
 
-据美国之音网站周日报道称，推特在带有橘黄色惊叹号的标签中提示道：“这条推文链接到了中共国附属媒体的网站”。推特发言人称，这样做的目的是为了提供有关他们代表中共政府的背景信息，也同时保护推特上对话的诚信度，并且使被警示的推特内容减少影响力，至少减少百分之三十。
+中国共产党用的是全面隔离的政策，发生的次生灾难更是数不胜数。需要急救的人入不了医院，得不到食物饿死的，各种灾难叠加放大数倍，由于隔离致死的人数远远超过病毒死亡人数。
 
-报道还引述相关研究报告称，乌克兰战争爆发后，中共官媒开始帮助宣传俄罗斯的立场和美化其入侵的理由，有时甚至原封不动地发布来自俄罗斯方面的虚假信息甚至阴谋论。
+这就是共产党一贯政策，劳民伤民，多难兴邦！用百姓的生命来掩盖中共的罪恶！
 
-可见，中共媒体的虚假报道和宣传，已经引起了国际社会的警惕和反感。
+对外除了编造数据以外，还宣传集中力量办大事。只有共产党才能做到，才能控制住疫情，说没有就立马清零。
 
-信息来源：[推特给中国官媒加添警示标签](https://www.rfa.org/mandarin/Xinwen/8-04032022162855.html)
+可是事实却是，现在全国到处都是阳性。从南到北，都在全面封闭隔离中。他们引以为傲的“清零”怎么没有声音了呢？ 同胞们何时能明白，中共是人类的灾难制造者，我们要一起消灭中共！
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

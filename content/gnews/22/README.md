@@ -2,29 +2,29 @@
 ---
 
 
-## 中共部署 “红旗” 导弹 威胁北约空中力量
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287788/)
+## 乌克兰副防长称已重新掌控整个基辅地区
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287989/)
 
-作者：纽约香草山 侠肝义胆
+作者：纽约香草山教育部 Naughty(文行)/纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+4月2日外媒报道，乌克兰国防部副部长马里亚尔表示，乌克兰已经重新夺回了整个基辅地区，包括首都附近的几个城镇。
 
-4月3日，郭文贵先生在大直播中爆料，中共为支持俄罗斯继续侵略乌克兰，做出了疯狂行动。五天前，中共已将 “红旗” 导弹系列部署到巴尔干地区的塞尔维亚，该地区被称为 “欧洲火药库” ，直接威胁到美国和北约对乌克兰的空中支援。
+马里亚尔在脸书发文称，继入侵的俄罗斯部队从首都基辅附近若干主要城镇撤退后，乌克兰已重新掌控包括伊尔平、 布查、戈斯托梅利在内的整个基辅地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-2.jpg)
+另外，乌克兰总统泽连斯基当天发表声明，谴责俄军在撤退时留下许多地雷，甚至在遗弃的装备和遗体上竟然还设置了诡雷。乌克兰国家紧急服务部门提醒基辅周边居民，必须要对地雷保持高度警觉。在基辅西部一处村庄里，仅1天内就发现多达1500枚爆炸物。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-2.jpeg)
+泽连斯基表示，目前乌克兰方面正在努力排雷以确保地区安全，并建议外逃的难民暂缓返家，因为目前尚未能恢复正常生活。
 
-郭先生透露，“红旗” 导弹系统是中共偷窃美国“毒刺导弹”技术，而研发的便携式防空导弹，也是中共唯一使用“北斗”定位系统的导弹系列，具有联排、群发和精准度高等特点。
+参考链接：
+1. [Ukraine has regained control over the ‘whole Kyiv region’ following the Russian assault, the deputy defense minister says](https://www.businessinsider.com/ukraine-has-regained-control-over-the-whole-kyiv-region-officials-2022-4)
+2. [俄軍撤離還四處埋地雷 澤倫斯基痛批：遺體竟被設置詭雷](https://news.ltn.com.tw/news/world/breakingnews/3880986)
 
-另外，中共还准备将“红旗”系列导弹部署到中东伊朗、也门以及突尼斯、吉布提等战略咽喉位置，直接威胁美国和北约空中军事力量。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-郭先生认为，中共在巴尔干和中东等战略要塞部署“红旗”导弹，就是直接威胁和挑战美国、北约的空中力量。而美国和北约将别无选择，必须坚决摧毁中共的“北斗”卫星系统。
-
-参考链接：[2022年4月3日 文贵大直播](https://gettr.com/post/p13c6fub6b6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编：文真
-编辑：Jack Li文阳   
-审核：Ivy001
-校正/发稿：谐趣园
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
