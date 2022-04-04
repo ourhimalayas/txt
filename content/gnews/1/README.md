@@ -2,11 +2,11 @@
 ---
 
 
-## 《锁链女》的创作过程（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284417/)
+## 唐平回忆创作灵感（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284475/)
 
 #### PPT制作：Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10：50-11：00-001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：00-11：10-002.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

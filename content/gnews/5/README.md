@@ -2,11 +2,11 @@
 ---
 
 
-## 锁链女之歌戳破中共的谎言（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284404/)
+## 《锁链女》的创作过程（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284446/)
 
 #### PPT制作：Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10：40-10：50-008.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：50-11：00-004.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
