@@ -2,24 +2,22 @@
 ---
 
 
-## 2022年4月4日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287814/)
+## 郭文贵盖特音频2022.04.04
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2287867/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/out-1-1.jpg)
+### 视频链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0834.jpg)
+[https://www.gettr.com/post/p13im5827c4](https://www.gettr.com/post/p13im5827c4)
 
-发稿：信心的选择
+### 音频链接：
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-3.jpeg)
+
+
+
+编辑发布：闪电训练
 
  
 

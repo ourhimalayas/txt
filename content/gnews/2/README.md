@@ -2,12 +2,12 @@
 ---
 
 
-## 4月3日乌克兰救援前线新闻（图片1-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2288100/)
+## 4月4日乌克兰救援前线新闻（图片1-6）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2288134/)
 
 设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1DE87CF1-0728-4496-BA3A-5440A01C6F8A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/8DD22B43-D16B-4441-A5FE-34CF1123FDB8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/B2A9DA0A-DD50-4573-B422-25E5A85F5F59.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/3AE224BB-C5B4-4BA7-8513-538068DFAF72.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/C2A2DE0D-F32B-4390-A047-A41747610CA4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5547B69A-B3EF-47FD-9943-83015930AF12.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/CD792721-8A67-4FFF-B82A-8D16A2DB5CF9.png)
-发布： 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1EDA80AB-BB9E-4EA5-8D4F-61A2AC572094.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A83309EA-D9EB-4699-8DA9-4C2AA79F2AE8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/36D54B9D-8ADB-41A7-B54F-2B86E8A0A14D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/C079A4E3-F0FD-4462-8D2C-83BC12E4A6E0.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A04AB86A-E5B3-4381-A028-C3B09121D284.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4D592A93-63CD-4DA5-8AAD-6DF28684E8AD.png)
+发布：水涨船高
 
  
 
