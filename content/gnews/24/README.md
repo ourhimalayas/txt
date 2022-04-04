@@ -2,25 +2,43 @@
 ---
 
 
-## 安卓用户受到威胁：俄罗斯黑客使用新的恶意软件
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2288024/)
+## 波兰希望有更多的美军进驻欧洲
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288036/)
 
-**该恶意软件要求获得18项权限，如访问摄像头和位置。目前尚不清楚它是如何进入智能手机的。**
+据《路透社》 作者：Anna Koper and Alan Charlish，2022年4月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-417.png)2022年2月9日，在波兰梅莱茨的一个基地看到美国军车。REUTERS/Kuba Stezycki
+华沙，4月3日（路透社）–波兰执政党领导人在周日发表的评论中说，波兰将欢迎美国在欧洲的军队数量增加50%，因为华沙呼吁在乌克兰冲突中对莫斯科采取更严厉的行动。
 
-作者：ctu/原文发布于2022年4月4日15:12(CET)
-翻译：LK
+俄罗斯总统弗拉基米尔-普京(Vladimir Putin)称对乌克兰的入侵是使其邻国非军事化的“特别军事行动”，这加剧了北约东翼国家的安全担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-3.jpg)图片：黑客们在搞破坏（象征性的图片）/ imago
+该联盟通过增加其在该地区的存在作出回应，上个月宣布在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加四个多国战斗小组。
 
-安卓用户正面临一个新的危险。2022年4月4日，据[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)援引Lab52和Bleeping Computer的报道，俄罗斯黑客显然开发了一种新的所谓恶意软件，主要针对配备谷歌操作系统的智能手机。
+波兰副总理雅罗斯瓦夫·卡钦斯基告诉德国报纸Welt am Sonntag：“如果美国人在欧洲的存在从目前的10万名士兵增加到未来的15万名，波兰会很高兴。”
 
-具体来说，是进行间谍活动–对用户数据进行梳理。据称，所谓的流程管理器可获得18项授权，包括访问位置、摄像头、音频设置、WLAN或短信读取。
+他在采访中说：“其中75,000名士兵应驻扎在东翼，即与俄罗斯的边界；50,000名士兵驻扎在波罗的海国家和波兰，”该采访也发表在波兰执政党法律与正义党（PiS）的网站上。
 
-根据该报告，目前尚不清楚该应用程序如何进入智能手机。有可能“通过Play Store中的虚假应用程序进行传播”。也可能是通过电子邮件的经典网络钓鱼攻击，或使用手机访问有问题的网站而安装了恶意软件。[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)建议谨慎行事，并警告用户仅下载可信任的应用程序。
+卡钦斯基还说，波兰将对在该国部署核武器持“开放”态度，但这并不是目前正在考虑的事情。
 
-原文链接: [https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512](https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+在俄罗斯军队进入乌克兰之前，大约有8万名美国军队在欧洲。
+
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://www.reuters.com/world/europe/poland-would-like-more-us-troops-europe-says-ruling-party-boss-2022-04-03/](https://www.reuters.com/world/europe/poland-would-like-more-us-troops-europe-says-ruling-party-boss-2022-04-03/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

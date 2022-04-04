@@ -2,18 +2,18 @@
 ---
 
 
-## 乌克兰海港城市敖德萨遭俄军空袭
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287988/)
+## 俄军士兵用乌军子弹自残逃避战争
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287990/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约磐石农场 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月3日国外媒体报道，当天一早，俄罗斯军队空袭了乌克兰的战略性黑海港口城市敖德萨。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-1.jpg)
-敖德萨市议会电报账号的消息称，敖德萨遭到空中袭击，一些导弹被防空部队击落。另有一些媒体报道，该市早上6:00左右发生爆炸，爆炸产生了至少三列黑烟，在一个工业区可以看见明显的火焰。据遇袭地点附近的一名士兵说，这可能是一枚火箭或导弹。
+台媒4月3日报道，近日乌克兰安全局公布了一段某俄军士兵与其母亲通话的内容，通话透露出，他们被乌军围困，打算逃跑又怕被军队高层的督战队枪毙，因此厌战的士兵们纷纷用乌克兰制式的子弹自残，假装遭到乌军攻击，借此被送回俄罗斯治疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-3.jpg)
+该士兵在通话中说，他们不仅被乌军围困，而且装备都被炸毁，如果此时乌军攻击他们就会全军覆灭，因此他们纷纷用自残的方法弄伤自己，以期能被送回国内医院。该士兵的母亲闻讯哀求士兵快点回家，并表示要去俄罗斯国防部求救。但士兵说指挥官不可能同意，并透露目前已有20名拒绝服役者被判刑8年以上。
 
-据悉，敖德萨拥有乌克兰最大的港口和海军总部，具有重要的战略地位。
+乌克兰安全局表示，仅该士兵的部队就有120名伤兵，以及350名死亡士兵的遗体被运回国内。乌方经审讯俄军战俘得知，俄军高层恢复了过去的“督战队”做法，部队上有所谓的“射击小队”存在，他们会杀死任何打算逃跑的士兵。
 
-参考链接：[Air strikes hit Ukraine’s strategic port city of Odessa](https://www.thejournal.ie/latest-ukraine-air-strikes-odesa-5728756-Apr2022/)
+参考链接：[**不想打仗又怕被射殺！ 俄士兵找「烏克蘭子彈」射自己**](https://news.ltn.com.tw/news/world/breakingnews/3864361)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

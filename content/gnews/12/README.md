@@ -2,14 +2,16 @@
 ---
 
 
-## 有声|所罗门群岛禁止中共在该国建立军事基地
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2288324/)
+## 有声|法治基金在乌克兰的人道救援行动仍在继续
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2288334/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-台媒报道，4月1日，太平洋岛国所罗门群岛总理苏嘉瓦瑞表示，不允许中共在该国建立军事基地。此前，所罗门群岛与中共国签署了安全合作框架协议草案，一份外泄的草案显示，允许中共国海军船舰在索罗门岛进行补给等内容，引发了南太平洋区域国家强烈。
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
-文字版原文：[所罗门群岛禁止中共在该国建立军事基地](https://gnews.org/zh-hans/2275967/)
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+
+文字版原文：[法治基金在乌克兰的人道救援行动仍在继续](https://gnews.org/zh-hans/2275964/)
 
 ![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
@@ -17,7 +19,7 @@
 
 **更多资讯，更多关注**
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  

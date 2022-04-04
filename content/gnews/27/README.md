@@ -2,27 +2,29 @@
 ---
 
 
-## 中共通过俄罗斯出口欧洲的计划遭遇重创
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287992/)
+## 扒一扒中共国的“动态清零”政策
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2288004/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-据外媒4月2日报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
+**作者：意大利罗马达芬奇农场 Vanessa**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C-1.jpg)reddit.com
+4月3日新浪网报道，长春市疫情防控指挥部宣布即日起长春市启动主城区清零攻坚行动。从4月3日-7日，利用5天时间，实现全社会动态清零。
 
-尽管欧盟尚未正式禁止通过俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-5.jpg)
-很多大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路上德国内陆港口杜伊斯堡的海运保险公司也宣布，不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周都有来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
+自去年8月，中共国的防疫政策从零感染的“清零”演变成了“动态清零”，即全国上下提升疫情防范和早发现能力：高效有序的核酸检测、科学精准的流调溯源、分类分级的进行防控管理，目标用小成本、在短时间内控制住疫情。
 
-自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
+从武汉到西安，从深圳到上海再到长春，从强行封城到强制打疫苗，中共一次次用铁腕和没有人性的防疫政策在中华大地上发动了一场“政治瘟疫”。
 
-参考链接：[China’s Bet on Sending Its Exports Through Russia Hits Setback](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
+为了实现动态清零，一个楼有一个阳性病例，封闭小区，全员核酸，一个城市有一例阳性，封闭城市，全员每天做核酸，河北省廊坊市已经封闭了24天，核酸做了10多次。人们被困在家里，生病得不到救治，老人无法照顾，在上海3岁的孩子也被强迫和父母分开隔离，经济停摆，工人失业，人们绝望到多地出现自杀事件，如此政策下的次生灾害恐怕要比病毒本身大得多得多，然而中共的所谓“小成本”不过是在指那些领导层的政治成本，不被问责，不被罢免才是他们最小的成本，老百姓的死活在他们眼里怎么会有自己的职位重要？打着上级政策要求的名义，使用无底线无人性的手段只为保住头顶上的乌纱帽。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+即便如此，中共国可怜的老百姓，被封在家里缺医少药，断了粮草，发个微博被删除被警察找上门威胁，宁愿跳楼也不敢反抗。这实际上是一场“政治清零”，把敢说真话的清零了，把懂医学的清零了，把站起来反抗的清零了，剩下的都是听话的奴隶。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+中国共产党到了灭亡的时候了，然而，需要的是我们每一个人的勇气，每一个人发出正义的怒吼，每一个人站起来反抗！
+
+新闻来源：
+[https://news.sina.com.cn/o/2022-04-03/doc-imcwipii2187069.shtml](https://news.sina.com.cn/o/2022-04-03/doc-imcwipii2187069.shtml)
+
+
+
+编辑 发布： 意大利罗马达芬奇农场 Roma
 
  
 
