@@ -2,48 +2,33 @@
 ---
 
 
-## 躺平币和H-Coin就是我们的美元,H-Pay就是我们的SWIFT
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2287637/)
+## 在进行大规模测试后上海继续处于封锁状态
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2287702/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选:](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8810.38%EF%BC%89%E8%BA%BA%E5%B9%B3%E5%B8%81%E5%92%8CH-Coin%E5%B0%B1%E6%98%AF%E6%88%91%E4%BB%AC%E7%9A%84%E7%BE%8E%E5%85%83%2CH-Pay%E5%B0%B1%E6%98%AF%E6%88%91%E4%BB%AC%E7%9A%84SWIFT%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:5)
+共同社4月4日从上海报道，当地政府表示，由于需要分析周一进行的冠状病毒大规模检测的结果，上海将继续处于封锁状态，因为感染的速度在迅速加快。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/S.jpg)koreatimes.co.kr
+官媒称，中（共）国已向上海派出约2000名军事医务人员和数千名额外的卫生保健人员，因为在中（共）国最重要的金融中心确认的COVID-19新病例数量连续第三天创下了历史新高。
 
-**郭文贵先生：**躺平币未来一定在国内是和喜币一定是同时运行的，可以买面包、买油。但是这就是为什么大家要推广、尽量推广H-Pay，你H-Pay没下载的话，你什么币也用不了。我们要叫更多的战友，更多的人下载H-Pay，然后形成一个使用的圈。就是今天咱这个今天同心同框的人都有H-Pay，我现在你和我之间马上就可以传。
+中共卫生部门周一表示，在过去24小时内，全国共报告了13137个新病例，其中9006个病例（大部分为无症状病例）是在这个拥有2,600万人口的大城市确诊的，该城市于3月28日开始了两个阶段的封锁，首先在其东部地区封锁。
 
-那么同样的事情，我们买东西，买谁的东西呢？小番茄和小番茄的爹家里面有1个三文鱼，有10个寿司他吃不了，我们之间就可以买他的。
+后来对上海西部地区实施的封锁措施最初应在周二（4月5日）凌晨3点取消，但市政府表示，要求人们待在家里的限制将继续 “严格 ”执行，“除了医疗”，直到所有必要的测试工作完成。
 
-我们要形成一个物质的交流的圈，我们要形成一个H-Pay的使用的圈，就像美国搞了一个地球的圈叫SWIFT，我们要搞一个圈也叫SWIFT，就叫做H-Pay.那就是咱们大家互相认可的人,拥有的东西用我们的币可以交换。
+即使在周五初步结束后，上海东部的主要地区仍然处于封锁状态。
 
-你两个是双胞胎是吧？你两个说我想找男朋友是吧？谁愿意跟我谈男朋友做我男朋友，我有H-Pay，我可以付你,跟我谈一次恋爱，我给你付上1000个Dollar是吧？咱们这里边人,大家有喜欢的就可以，我愿意你也喜欢就可以了。但是有人说我喜欢，但我没有H-Pay，你说滚一边去，没H-Pay的、没H-Dollar的老娘不跟你谈，对吧？
+来自中共解放军下属各单位的医务人员周日被派往该市，因为这场由高度传播的BA.2 Omicron亚型病毒驱动的疫情正在挑战中（共）国严格的清零政策。
 
-这就是一个共同认可的圈，共同认可的工具就叫SWIFT，你的问题特别好，躺平币和H-Coin就是我们的美元，就是我们的H-Pay就是SWIFT。
+从全球标准来看，疫情规模仍然很小，许多官员似乎认为，由于这个人口众多的城市的感染率不断上升，没有必要感到乐观，而许多居民则准备让封锁状态持续一段时间。
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+据官方的《中国日报》网站报道，除了来自解放军陆军、海军和联合后勤部队的人员外，上海周一还接收了来自全国各地的2万多名医务人员，以进行自两年多前武汉首次爆发病毒以来最艰难的抗击。
 
-编辑整理：Jacques；
+**快评：**日本媒体这篇报道，述说了表面的情况，实际上郭先生告诉我们上海、长春、香港等地的疫情很严重，都是疫苗造成的，而中共这种毫无人性的封锁做法更加重了次生灾难的发生。
 
-字幕档制作：知津；
+中共各级政府和机构欺上瞒下，完全不顾人民的死活，这次在最现代又富裕的上海演绎得淋漓尽致，各种封口让5000个气化炉都不为人知，真正死了多少人外媒不可能得到相关数据的。军管更黑。
 
-视频制作及上传：Cindy；
+参考链接：
+[https://english.kyodonews.net/news/2022/04/b7704fc5cf8c-2000-military-medical-staff-sent-to-shanghai-over-covid-surge.html](https://english.kyodonews.net/news/2022/04/b7704fc5cf8c-2000-military-medical-staff-sent-to-shanghai-over-covid-surge.html)
 
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+**编译 发布：意大利罗马达芬奇农场 Roma**
 
  
 

@@ -15,128 +15,128 @@
 
 ---
 
-### [郭文贵盖特音频2022.04.02](/content/gnews/1/README.md)
+### [2022年4月4日，全球中共病毒疫情情况汇总](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共部署 “红旗” 导弹 威胁北约空中力量](/content/gnews/2/README.md)
+ ` NFSC News`
+
+### [上万名军队医生进入上海对2600万居民进行检测](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日本自媒体人被新中国联邦灭共壮举感动](/content/gnews/4/README.md)
+ ` NFSC News`
+
+### [郭文贵直播摘要和音频 2022.04.03](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/2/README.md)
- ` NFSC News`
-
-### [没人想打第四剂新冠疫苗](/content/gnews/3/README.md)
- ` xiaobaige`
-
-### [俄罗斯将被美国踢出联合国人权理事会](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共防疫“清零”政策就是谎言](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [躺平币和H-Coin就是我们的美元,H-Pay就是我们的SWIFT](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [《共产党统治中国的150个家族》之“李瑞环”篇（一）](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国会秒发生齐奥塞斯库,中南坑和委员常委瞬间成肉酱](/content/gnews/8/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [俄罗斯军队在乌克兰损失惨重](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [被SWIFT击倒的俄罗斯最牛的十个富豪中的阿布和Alex](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [2022年4月3日郭先生大直播文字同步精要](/content/gnews/11/README.md)
- ` 焦點20分`
-
-### [樱花时政┃中共间谍参与“猎狐行动”被美国政府起诉](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃虚假宣传泛滥！中共官媒再次被推特添加警示标签](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【转】截至4.4日 俄乌战事汇总](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [联盟工作汇报文字版2022.4.3](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [中共暴力防疫，棉签捅出人命](/content/gnews/16/README.md)
- ` 银河歌舞厅`
-
-### [中共部署红旗导弹、反导系统到塞尔维亚，正式军事参与俄乌战争](/content/gnews/17/README.md)
- ` YALUN 亚伦`
-
-### [基辅地区数百平民被杀激起全球愤慨](/content/gnews/18/README.md)
+### [在进行大规模测试后上海继续处于封锁状态](/content/gnews/6/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月4日早](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
+### [共产党统治中国的150个家族》之“李瑞环”篇（二）](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [郭先生两首新歌《灭共的雪》和《锁链梦》上线iTunes开始打榜](/content/gnews/20/README.md)
- ` 银河歌舞厅`
+### [郭文贵盖特音频2022.04.02](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [生物科技最新进展](/content/gnews/21/README.md)
+### [以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/9/README.md)
  ` NFSC News`
 
-### [04/04/22 香港快讯 林郑月娥宣布不参选 称未收到任何官员请辞](/content/gnews/22/README.md)
- ` 英喜-粵語組`
+### [没人想打第四剂新冠疫苗](/content/gnews/10/README.md)
+ ` xiaobaige`
 
-### [反观中共喉舌媒体知真相](/content/gnews/23/README.md)
- ` mayflowertranslate`
-
-### [麦克萨科技：卫星图像显示乌克兰万人坑](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共在塞尔维亚布置导弹，开始军事配合俄罗斯](/content/gnews/25/README.md)
- ` 波士顿五月花农场`
-
-### [德国称西方同意在布查屠杀后对俄实施更多制裁](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国及世界疫情简报（04-04-2022）](/content/gnews/27/README.md)
- ` 波士顿五月花农场`
-
-### [4/4/2022国际财经快讯：马斯克入股推特9%成为第一大股东；摩根大通：俄乌战争和中共的房地产暴雷将导致大量债券违约](/content/gnews/28/README.md)
- ` 秘密翻译组金融团队`
-
-### [4/3/2022 文贵直播：喜币是并且将永远是全球最稳定的数字货币；某能源大国的前国家银行行长在喜联储当高管](/content/gnews/29/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/3/2022 文贵直播：疫苗灾难后，人类将产生能源革命并进入数字化时代，马斯克将改变通信和运载工具；干细胞时代将到来，人类繁殖种族混血的时代将到来，无种族、地域和宗教区分、无皇有主的时代将到来，人类将走向外太空](/content/gnews/30/README.md)
- ` 秘密翻译组-北美组`
-
-### [马斯克收购Twitter 9.2%股份成Twitter 最大股东](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
-
-### [强制出示新冠疫苗通行证政策从今天午夜起结束](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [欧盟将在布查杀人事件后对俄罗斯实施新的制裁](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【粤语配音】2022年4月3日：中共部署红旗导弹的真正意义](/content/gnews/34/README.md)
- ` MOS香港部`
-
-### [有声|中共国民间人士 高呼打倒共产党](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [有声|马斯克的新光速引擎挑战物理学](/content/gnews/36/README.md)
- ` MOSREC`
-
-### [有声｜高盛：美元或失去主要储备货币地位](/content/gnews/37/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声|俄承诺减少军事行动 拜登称拭目以待](/content/gnews/38/README.md)
- ` MOSREC`
-
-### [郭文贵先生灭共歌曲《灭共的雪》和《锁链梦》再次打榜成功！](/content/gnews/39/README.md)
+### [俄罗斯将被美国踢出联合国人权理事会](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [立陶宛宣布停止进口俄罗斯天然气](/content/gnews/40/README.md)
- ` NFSC News`
+### [中共防疫“清零”政策就是谎言](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|疫情背后的政治斗争](/content/gnews/41/README.md)
+### [躺平币和H-Coin就是我们的美元,H-Pay就是我们的SWIFT](/content/gnews/13/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [文贵先生直播精要 2022/04/03](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [《共产党统治中国的150个家族》之“李瑞环”篇（一）](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄罗斯军队在乌克兰损失惨重](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [樱花时政┃中共间谍参与“猎狐行动”被美国政府起诉](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃虚假宣传泛滥！中共官媒再次被推特添加警示标签](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【转】截至4.4日 俄乌战事汇总](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [联盟工作汇报文字版2022.4.3](/content/gnews/20/README.md)
+ ` 纽约香草山MOS02`
+
+### [有声|俄罗斯石油海运还在继续，波兰总理喊话制裁必须加码](/content/gnews/21/README.md)
  ` MOSREC`
+
+### [中共暴力防疫，棉签捅出人命](/content/gnews/22/README.md)
+ ` 银河歌舞厅`
+
+### [中共部署红旗导弹、反导系统到塞尔维亚，正式军事参与俄乌战争](/content/gnews/23/README.md)
+ ` YALUN 亚伦`
+
+### [基辅地区数百平民被杀激起全球愤慨](/content/gnews/24/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [郭先生两首新歌《灭共的雪》和《锁链梦》上线iTunes开始打榜](/content/gnews/25/README.md)
+ ` 银河歌舞厅`
+
+### [04/04/22 香港快讯 林郑月娥宣布不参选 称未收到任何官员请辞](/content/gnews/26/README.md)
+ ` 英喜-粵語組`
+
+### [麦克萨科技：卫星图像显示乌克兰万人坑](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共在塞尔维亚布置导弹，开始军事配合俄罗斯](/content/gnews/28/README.md)
+ ` 波士顿五月花农场`
+
+### [德国称西方同意在布查屠杀后对俄实施更多制裁](/content/gnews/29/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [4/4/2022国际财经快讯：马斯克入股推特9%成为第一大股东；摩根大通：俄乌战争和中共的房地产暴雷将导致大量债券违约](/content/gnews/30/README.md)
+ ` 秘密翻译组金融团队`
+
+### [4/3/2022 文贵直播：喜币是并且将永远是全球最稳定的数字货币；某能源大国的前国家银行行长在喜联储当高管](/content/gnews/31/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/3/2022 文贵直播：疫苗灾难后，人类将产生能源革命并进入数字化时代，马斯克将改变通信和运载工具；干细胞时代将到来，人类繁殖种族混血的时代将到来，无种族、地域和宗教区分、无皇有主的时代将到来，人类将走向外太空](/content/gnews/32/README.md)
+ ` 秘密翻译组-北美组`
+
+### [马斯克收购Twitter 9.2%股份成Twitter 最大股东](/content/gnews/33/README.md)
+ ` 日本东京方舟农场`
+
+### [欧盟将在布查杀人事件后对俄罗斯实施新的制裁](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【粤语配音】2022年4月3日：中共部署红旗导弹的真正意义](/content/gnews/35/README.md)
+ ` MOS香港部`
+
+### [有声|中共国民间人士 高呼打倒共产党](/content/gnews/36/README.md)
+ ` MOSREC`
+
+### [有声|马斯克的新光速引擎挑战物理学](/content/gnews/37/README.md)
+ ` MOSREC`
+
+### [有声｜高盛：美元或失去主要储备货币地位](/content/gnews/38/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声|俄承诺减少军事行动 拜登称拭目以待](/content/gnews/39/README.md)
+ ` MOSREC`
+
+### [郭文贵先生灭共歌曲《灭共的雪》和《锁链梦》再次打榜成功！](/content/gnews/40/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [立陶宛宣布停止进口俄罗斯天然气](/content/gnews/41/README.md)
+ ` NFSC News`
 
 ### [视频｜中共越清零越不灵❗️](/content/gnews/42/README.md)
  ` mayflowertranslate`
