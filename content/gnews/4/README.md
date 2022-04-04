@@ -2,27 +2,43 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年4月2日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2283261/)
+## 大直播后记：中国人成了背锅侠 ，粮食灾难将至
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2283290/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV.jpg)
+#### 整理：枫叶红了、红红火火
+编辑：小红帽
 
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年4月2日早](https://gnews.org/zh-hans/2276546/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片24.png)图片来源：雅典娜农场设计组（614）
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+中国共产党和俄罗斯在这个时候，在全世界被人人喊打，中国人成了背锅侠。 习太阳（习近平），普京有3个不可逆转的问题。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+第一条，两人身体都不好。他俩能尿起来，我就绝对不相信。舒平风教授去跟他俩较量去，绝对一尿能把他俩尿死。身体不行了吧？
+
+第二条，这可怕，这两国的经济在未来5到10年永远不可能好。不是西方制裁，老百姓的恐惧使民心不可能回来。你觉得能转回来吗？
+
+第三条，这两国人民在世界上的行动能力，及认知度，在未来几十年甚至一个世纪都回不来。
+
+这个时候，回答你的问题。Eric，打台湾怎么打，知道吗？会快打，疯打，无底线地打。你会看到呼天盖地的导弹飞来，无限的无人飞机狂轰猛炸。然后解放军就登陆了，然后就照着100万人死，把台湾人吓都能吓趴下，甭说炸趴下。一定是这结局。
+
+为什么今年，也就是今年，粮食是咱们爆料革命最早说，一直说中共粮食是最大危机。6.8亿吨粮食，上哪找粮食去？我这两天跟那外国人开会，我说：“你们知道中国啥情况吗？”广西战友给我发的视频，他家门口刚修好的一条马路全部起掉，种上地。云南的战友发给我信息，一条修了十几年的大路，断掉，种地。这是花十几亿建的路。
+
+Eric，共产党他不傻呀，它知道它将面临着人类有史以来最大的挑战。去年它掩盖的所谓这个水灾，淹没了20亿亩（疑口误）粮食，今年中共要付出代价。 中共买掉了世界储存粮食的50%，他是骗你的。那是多少吨呢？全世界有多少吨？乌克兰，俄罗斯是世界上1/4的粮仓，还在战争了。中共怎么办呢？
+
+中国人面临的粮灾的时候，你看共产党，习太阳身体不好，经济不行了，就业不中了，是吧？然后，粮食没吃的了，咋弄呢？打台湾。中共打台湾，俄罗斯干啥？俄罗斯一定说：“哎呀，哥们你赶快打，我跟你在一起。”什么叫惺惺相惜？这叫惺惺相惜。一定是喊着，叫着跟中共在一起。但是你别忘了，毛泽东是唯一一个当年到了俄罗斯受到羞辱以后回来，告诉汪东兴和旁边的这个保密员，“给我记下来，永远不要相信俄国人。永远要记住俄罗斯是我们北方一只老虎，一只狼。”而且共产党跟俄罗斯之间什么什么什么不允许啊。后来邓小平上来也履行这一政策。
+
+你看到最近金灿荣出来又咋呼了是吧？金灿荣反对韬光养晦，是吧？邓小平的韬光养晦和对俄罗斯亲美远苏的政策，党内现在大量的人说，这完全是灾难的结果。然后找出金灿荣出来说，韬光养晦是错的，亲苏是对的，美国帝国主义是要消灭的。你可见党内斗争有多严。这个时候，为什么？共产党内部知道你打台湾的时候，俄罗斯一定鼓励你打。
+
+[参考资料：郭文贵先生2022年4月3日大直播](https://www.gettr.com/streaming/p13c6fub6b6)
+
+发布*：wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

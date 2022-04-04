@@ -2,19 +2,12 @@
 ---
 
 
-## 塞尔维亚红旗导弹系统对乌克兰战争的影响
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2283170/)
+## 本·哈恩威尔：土耳其总统埃尔多安就俄乌和平峰会与普京和泽连斯基通话
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2283177/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+04/02/2022 本·哈恩威尔：土耳其总统埃尔多安就俄乌和平会谈与普京和泽连斯基通话。埃尔多安是屈指可数的可担任俄乌冲突调解人的国家元首之一，因为他在俄乌双方都有重要的信誉。
 
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

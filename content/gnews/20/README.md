@@ -2,20 +2,31 @@
 ---
 
 
-## 封校日志
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2282984/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2282986/)
 
-作者：润丽
-编辑发稿：am夏天
-德国纽伦堡正义农场
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-3.png)
 
-封校第二天 ，流水性工作，一天无数次的通知，文件，千遍一律，天天核酸。每次核酸嗓子就不舒服，有种怪怪味道，我一直怀疑检测棒上有东西，做了后就像过敏一样。
-今天听说又有几个小区被封了，闹的人心慌慌。担心家中父母 ，让他们去买点菜和生活物资。因为80多岁老母亲癌症复发，现在化疗，需要每周化验一次血 ，今天是该去验血的日子，打电话安排好家人。
-几年以来，只要有时间，郭先生大直播和新中国联邦所有新闻是必看的，它已经成为我的精神支柱和精神食粮。因为中共的封锁，每次都是听音频。每次听后都能得到启发和升华。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-at-04.16.50-1.png)
-从懵懵懂懂到现在的心灵相通 ，感谢郭先生，让我浴火重生。
-中共的恶随处可见，就拿我们学校来说吧，年前就因\*为打疫苗先后死了三个，两男一女。其中两男是打了两针以后死的，都是心脏猝死。一女是打了第三针的第二天半夜心梗 ，送医途中死亡，这些都是真真切切发生在我身边的。同事的媳妇打二针，准备去打第三针时，查出肺部纤维化，看遍市区所有大医院，无药可治。我给他提供了药方，怕他不信，就说是一个获诺贝尔奖的专家提供的药方，治好了好多人 ，我也是受益者之一。让他赶紧去买药，别耽误了。先吃着试试，可他问了医院大夫说没用，不能吃。像这样的事和人很多 ，都不相信是疫苗的事，被中共洗脑的百姓有多无知和愚昧，感觉好心痛，好无奈。一天不灭了中共，老百姓就没有一天好日子。跟随郭先生，ccp你完了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-at-04.17.12-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p13fv7le2dd](https://gettr.com/post/p13fv7le2dd)
+访谈：[https://gettr.com/post/p13fkj0bf5e](https://gettr.com/post/p13fkj0bf5e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-1.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

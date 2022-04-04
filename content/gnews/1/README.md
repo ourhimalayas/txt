@@ -2,45 +2,44 @@
 ---
 
 
-## 樱花时政┃上海医师电话吐槽防疫 录音被全网查删
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283328/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2283389/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-近日，一段市民打给上海疾控部门某专家的电话录音，火了。但这段录音很快就被中共官方全网删除。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海医师电话吐槽防疫-录音被全网查删.png)[图片来源](https://asia.nikkei.com/Spotlight/Coronavirus/Shanghai-to-lock-down-in-two-stages-for-testing-as-COVID-cases-spike)
-这位市民在电话中主要观点如下：
+#### **整理：枳实**
+**美工：精灵蓝**
 
-1、疾控、健康云、医疗机构，现在都是各自为政，非常混乱；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5.png)图片：雅典娜农场设计组 精灵蓝
 
-2、家里老人尽量不要去方舱医院，居家隔离观察就好，无症状休息三五天就好了；
 
-3、如果120来拉老人强制隔离，让他们出示“阳性”的证明，他们大概率拿不出来……
+雅典娜疫情更新（2022年 4月3日）
 
-4、关于“有用的知识”，其实就是“无症状和轻症”，居家隔离是更优的选择，因为这个病也不需要特别的治疗，像对付感冒那样就可以扛过去；
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-5、如果都弄到方舱医院，条件很差，也不会有什么治疗，反而不利于病人康复；
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
 
-6、轻症无症的不要转走了，就在家里隔离，我都提了n次了，有人听过啦？没人听的啊；
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-2.png)
 
-7、要被逼疯了知道吧？我们专业机构也要被逼疯了，知道吧？专业人员说的话根本就没人听。现在把这个病变成了政治性的一个疾病。
 
-就在这份电话录音引发热议的第二天，上海官方出台了一份“接听答复口径必须和国家和本市的防控政策一致，不得加以个人主观意见”的文件。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234.png)
 
-据网名分析，这名医师名叫朱渭萍，49岁，硕士，主任医师，现任新区疾控中心传染病防治与消毒管理科主任，复旦大学公共卫生学院硕士生兼职导师，四川大学兼职教授；中国女医师协会医院感染管理委员会委员；上海市预防医学会消毒专业委员会委员。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海医师电话吐槽防疫-录音被全网查删2.png)
+[2022年4月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月3日改进.pdf)
 
-在电话录音被中共官方查删后，有网友表示，为众人抱薪者，不可使其冻毙于风雪。希望从今天起，我们要保护好朱渭萍，我们不能让她成为下一个“艾芬”，更不能让她步李文亮的后尘。
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+发布：wenly
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
