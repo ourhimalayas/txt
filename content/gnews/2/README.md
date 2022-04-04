@@ -2,50 +2,52 @@
 ---
 
 
-## 莱顿小区&amp;保利叶小区业主拒唱红歌齐声高喊SB居委会
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2282529/)
+## 为中共窃取商业机密的工程师被定“共谋从事经济间谍活动”罪
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2282533/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/捕获_副本-1.png)
-据🇺🇦W. Bruce🕊️🇺🇦🌻🌻@[szs191110](https://twitter.com/szs191110)**于**[上午1:30 · 2022年4月4日](https://twitter.com/szs191110/status/1510671042288631810)发布的推特
+![](https://assets.gnews.org/wp-content/uploads/2022/04/040202.jpg)Qilai Shen摄/彭博社/盖蒂图片社
 
-上海萊頓小區跟保利葉小區居委會讓業主唱紅歌作秀“感恩政府”，沒想到小區業主不配合，到了約定唱歌的時間業主一起高喊：傻逼居委會。😂😂
+《每日电讯》2022年4月2日报道，根据美国司法部(Department of Justice)的一份新闻稿，位于纽约州的一家通用电气(GE)发电厂的一名前雇员代表中共政府窃取了商业机密。
+
+司法部宣布，2008年至2018年期间，在通用电气发电厂工作的郑晓青与他人合作，“密谋窃取通用电气的蒸汽和燃气轮机技术的商业机密，蓄意或打算使中共国和一个或多个外国机构（包括设在中共国的研究、开发和制造涡轮机零件的公司）受益。”
+
+通用电气电力公司归属通用电气公司所有，后者是一家标准普尔500指数公司，关联的业务包括航空、医疗保健和能源。该公司去年的收入为742亿美元。
+
+“郑密谋从他的雇主通用电气那里窃取商业机密，并将这些信息转移给他在中共国的商业伙伴，这样他们双方就可以接受中共政府支持而变得富有，”美国司法部国家安全部门的助理总检察长马修·奥尔森（Matthew Olsen）在新闻稿中解释道。“这是对我们经济和开放社会的剥削，我们将继续不屈不挠地对这种行为反击。”
+
+纽约北区的联邦检察官卡拉·弗里德曼（Carla Freedman）补充说：“今天的判决认定郑小青对背叛他的雇主并试图帮助中共国在全球市场上作弊负有责任。我们将与执法合作伙伴一起，继续调查和起诉那些共谋从在我们地区内从事尖端行业的创新公司中窃取商业机密和有价值技术的个人。”
+
+企业间谍活动只是中国共产党努力窃取美国技术的一个方面。事实上，精英大学才是该政权的主要目标。去年，哈佛大学化学与工程学教授查尔斯·利伯（Charles Lieber）被起诉，并被指控就其参与“千人计划”向联邦当局做出了虚假陈述，“千人计划”是中共过发起的一个项目，旨在吸引美国科学家推动中共国的技术发展。
+
+共产党政府还对来自中共国的学生施加影响，以确保他们不会对本国政权发表负面言论。在一次这样的事件中，普渡大学的学生孔志浩（Zhihao Kong）参加天安门广场大屠杀的在线彩排后，中共政府特工探访了他的家人。普渡大学校长米奇·丹尼尔斯（Mitch Daniels）后来致函学生和全体教职员工，解释说大学管理者已经了解了这一事件。
+
+丹尼尔斯写道：“我们很遗憾当这些事件发生时我们并不知晓，而只能从国家资源的渠道了解这件事。这同时也反映了我们所发现的围绕这种特定言论的恐吓气氛。”“在我们的校园里，任何这样的恐吓行为都是不可接受和不受欢迎的。对个人的、直接和威胁行为，普渡大学并没有做出过很多惩罚。任何对有关言论持异议的人，都有表达他们不同意见的权利，但并不可以实施恐吓行为，”丹尼尔斯继续说道。“如果可以确定那些发出过威胁恐吓的学生，他们将受到适当的纪律处分。同样，任何被发现向任何外国实体，举报其他学生行使其言论或信仰自由的学生，也将受到重大制裁。”
+
+**简评：**
+在这篇文章中，我们不仅看到了中共对美国进行了从高科技企业到高校的大范围渗透，还看到了中共在渗透的同时，进行了从盗窃技术和知识产权，到贿赂绑架科技人才，甚至对中共国海外留学生进行监视、举报并对国内的家人进行恐吓等各种罪行。
+
+已被定为“共谋从事经济间谍活动”罪的郑小青，对他的雇主的偷窃行为长达10年之久，给通用电气造成的损失难以估量。虽然与他进行接触、协同犯罪的是一家中共国企业，但美国司法这次却直接点名中共是背后的幕后黑手和直接受益人；这也证明了美国政府已经深刻地认识到，中共一直在对美国实施的“军民融合”战略的下流手段。
+
+新闻报道郑小青将面临最高15年的监禁和最高500万美元的罚款。而普渡大学也对那些帮助中共举报和威胁恐吓其他同学的学生，给与了严厉的警告。美国司法部和普渡大学此次做出的强烈反映是一个好的开始，对中共和与中共狼狈为奸的人可以起到巨大的震慑作用。警告那些帮助中共进行违法犯罪的人，必将付出重大的代价。而幕后黑手中共，则是这些问题的最终根源，只有消灭中共，美国、中国和其它国家所面临的一切问题才能够彻底解决。
+
+新闻链接：[GE Engineer Aided By Chinese Government To Steal Trade Secrets Convicted Of ‘Conspiracy To Commit Economic Espionage’](https://www.dailywire.com/news/ge-engineer-aided-by-chinese-government-to-steal-trade-secrets-convicted-of-conspiracy-to-commit-economic-espionage)
+
+*翻译/简评：新街口*
+
+*校对：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> 上海萊頓小區跟保利葉小區居委會讓業主唱紅歌作秀“感恩政府”，沒想到小區業主不配合，到了約定唱歌的時間業主一起高喊：傻逼居委會。😂😂😂 [pic.twitter.com/s1McAhsK8t](https://t.co/s1McAhsK8t)
-> — 🇺🇦W. Bruce🕊️🇺🇦🌻🌻 (@szs191110) [April 3, 2022](https://twitter.com/szs191110/status/1510671042288631810?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-
-根据推特视频所附图片——
-
-今晚我们全小区唱红歌：20:15准时开始，连唱三首1、五星红旗；2、我和我的祖国；3、歌唱祖国；所有人到窗台把手机的灯光打开，所有人都可以拍摄，所有人都可以一起唱，20:15
-
-大家好，今晚能不能配合下，让我们保利叶的声音及呼吁全上海都看到，希望二组团17、18、19、20楼的居民们拿起手中的手机，打开闪光灯，摇起来，我们16号楼为我们拍摄、一起祈福，一起祝福早点平安，一起正能量传播起来，请大家支持一下。
-
-综述：在2020武汉封城期间，孙春兰到小区视察时没有听到提前编排好的感谢政府，反而听到群情激愤的喊出——假的！假的！假的！而今在2022年的上海封城期间上海莱顿小区和保利叶小区不按居委会剧本齐唱红歌，反而异口同声高喊——傻逼居委会，在中共以病毒控制民众的当下，当每个居民都切身感受到以假治国、以骗治国、以警治国，从发自内心齐唱红歌到众志成城嘘声一片其实只是一瞬间。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
