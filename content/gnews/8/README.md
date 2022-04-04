@@ -2,37 +2,30 @@
 ---
 
 
-## 樱花时政┃乌克兰总检察长：已从基辅周围发现410 名平民遗体
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283522/)
+## 加议员推外国代理人登记机构，点名中共
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2283652/)
 
-撰稿：东京樱花团/向海
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/乌克兰总检察长：已从基辅周围发现410-名平民遗体.png)[图片来源](https://news.yahoo.co.jp/articles/63aa0214b455d2de19ee99e4aa73a482b934f4c4/images/000)
+##### 采编撰稿：加拿大温哥华扬帆农场 – 活力人生
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/opensecrets.org_.jpg)图片来源：opensecrets.org
+据【多伦多星报】4月1日报道，加拿大参议员里奥·豪萨科斯的 S-237 法案于本周早些时候进行了二读，该法案希望建立一个登记机构，以追踪那些代表外国政权暗中影响加拿大政治的组织或个人。
 
-据法新社报道，乌克兰检察官伊琳娜·韦内迪克托娃4月3日在国家电视台透露，已经从俄罗斯军队撤离的首都基辅周围地区发现410具平民尸体。
+该法案将要求任何在加拿大为促进外国利益而努力的人进行登记。豪萨科斯议员点名麦卡锡·泰特罗律师事务所的合伙人查雷斯特。有消息称查雷斯特曾试图帮助华为获得加拿大5G建设权。豪萨科斯表示，如果这样的行为真实存在，则查雷斯特将必须被注册。
 
-上周末，从俄军解放了的基辅地区。乌克兰方面指责俄罗斯军队在基辅西北部的布哈“蓄意种族灭绝”。
+近年来加国对中共渗透的担忧日益增加。中共被指控通过加拿大境内的线人骚扰和恐吓中共的批评者，并与加国官员建立关系，以寻找可能与中共站在一起的盟友。
 
-布查市长2日向法新社说，共有280人被集体安葬。
+新闻链接：[https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html](https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html)
 
-法新社当天在布查的一条道路上证实了至少 20 人的尸体。其中一人手被绑在后背上死去，所有人都穿着平民服装。
+编辑/上传 – 云起时
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-乌克兰方面，至少有 200 名平民在布哈附近的伊尔平被俄罗斯军队杀害。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-另一方面，俄方否认俄军杀害平民。并声称说，是“乌克兰政府和西方媒体的惯用说法”。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-信息来源：
-[首都周辺で民間人410人の遺体収容 ウクライナ検事総長](https://news.yahoo.co.jp/articles/6ea7fc39974446bde6b39ff66d30e97b4cbff1cb)
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

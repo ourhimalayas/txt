@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国民间人士 高呼打倒共产党
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283299/)
+## 中共病毒重组新变种XE开始引人注意
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283320/)
 
-作者：纽约香草山农场 – 文鹰
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,18 +13,23 @@
 
 
 
-4月2日，一则来自墙内的视频在盖特上被广泛传播。视频显示，一男子想要出行但被阻在小区门口，另一个疑似工作人员的男子阻挡在该男子前面。男子被人劝退，但随即又挣脱出来向前走了几步，情绪有些激动地举起手臂，连呼“打倒共产党，打倒习近平”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8.jpg)
-当前，中共国内疫情在多地爆发，地方政府强制封城封区，人为限制居民出行，不顾民众生死，已经酿成了很多人道悲剧，孩子与父母被迫分离，老人因延误治疗失去生命等，数不胜数。
+当地时间3月29日，世卫组织WHO发布的中共病毒疫情公告显示，新型重组变种病毒XE在英国已经超过600个病例。
 
-分析人士称，邪恶中共的极端防疫政策，不仅给国人带来了无尽的灾难，更进一步激发了越来越多的人反抗暴政、追求自由的勇气。男子的呐喊，可能成为一个标志性的事件，唤醒更多的人站出来，反抗甚至推翻邪恶的中共政权。
+中共病毒的重组变种病毒XE，今年1月19日由英国首次提出报告。 该病毒是因为病人同时感染Omicron BA.1及BA.2变异株后，两种毒株在同一个病人体内发生基因重组，产生的新变种病毒株。依目前的数据，XE变种病毒较目前传播最广泛的Omicron BA.2变种，更增强了10%的社区传播优势。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10.jpg)
+这种在不同变种病毒间发生基因重组，产生新变种病毒的现象并非少见。 目前受到关注的还有由Delta病毒株与Omicron BA.1病毒株重组产生的XF及XD两种变种，但是这两种重组变种病毒株目前造成感染的病例数不多。
+
+英国卫生单位UKHSA表示，至目前为止，英国已经确认了 637 例 XE感染病例。 将继续通过基因组监测和测序来定期密切监测所有重组变种病毒。
 
 参考链接：
-[在邪教CCP变态封锁防控的高压下，终于有人当众高喊:”打倒共产党，打倒习近平”！](https://gettr.com/post/p135ea8ef8e)
+1. [New Mutant “XE” Omicron Variant May Be The Most Transmissible Version Of Covid Yet, According To WHO](https://deadline.com/2022/03/new-xe-covid-variant-omicron-most-transmissible-1234992060/)
+2. [Scientists keeping watch on mutant covid strain which has seen hundreds of cases](https://www.walesonline.co.uk/news/uk-news/scientists-keeping-watch-mutant-covid-23527825)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-总编/编辑/审核：飞虹
+编辑：宁文静
+总编：飞虹
+审核：木木
 校对/发稿：为真不破20
 
 

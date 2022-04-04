@@ -2,29 +2,44 @@
 ---
 
 
-## 中共采用非人道手段强行隔离阳性婴幼儿
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283201/)
+## 欧美等国家加强对加密资产的监管
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283300/)
 
-作者： 纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-4月1日，中共国社交媒体突然爆出多个视频，显示上海金山婴幼儿隔离点收容了约200名孩子，但负责看护的护士只有10名，导致婴幼儿因疏于照顾哭泣，出现炎症，并有窒息的潜在风险。这种强行隔离父母孩子，毫无人道的做法，激起了强烈民愤。没有例外，中共国以谎言掩饰真相，以删帖封住众口。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-03-下午10.38.57.png)
-视频可见，每张小床安排多名婴幼儿。有幼儿站在床边哭泣无人理会，有的似乎还不会翻身，更令人发指的是，有婴儿头部蒙在被子下面，疑有窒息的危险。在另一则视频中，整个大房间里小床密集地排列，完全不符合隔离标准。据一位确诊阳性的母亲“珍珍”透露，200名孩子仅有10名护士看管，资源奇缺。她很庆幸自己有机会陪同宝宝一起隔离。看到有的婴儿因没有及时更换尿布而出现重度尿布疹，她会帮着喂奶、换尿布。珍珍直言，这是“这辈子最无助最难忘的经历”。
+作者：华盛顿DC农场 – 自由信仰，银河系农场 – 骄子
 
-对此，上海市公共卫生临床中心答复辟谣平台，称视频非“金山婴幼儿隔离点”，而是医院儿科病房内部转运过程中的场景。此番表态立即被其他家长愤怒指控，表示官方强行分隔父母和孩子，是反人类的行为。目前，相关视频和帖子正被逐一删除。
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+3月31日国外媒体报道，出于对比特币及其他加密资产可能破坏金融稳定，并被用于犯罪的担忧，欧盟立法者将支持对比特币和其他加密资产的转移采取更严格的安全保护措施，这是监管机构收紧监管措施的最新迹象。
+
+据悉，欧洲议会中的两个委员会已经确定了相关方案，供投票表决。根据特别工作组指定的反洗钱标准，加密公司必须收集和共享加密资产的交易数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9.jpg)
+同一天，美国众议员特雷·霍林斯沃斯和参议员比尔·哈格蒂提出一项名为“稳定币透明度法”的法案，旨在通过提高稳定币市场的透明度，探索在不扼杀创新的情况下同时保护消费者和经济的解决方案。该法案目前已经获得大量支持。
+
+4月1日，又有媒体报导，日本央行呼吁七国集团适时建立一个共同的加密货币监管框架，以打击俄罗斯等国家利用数字货币来逃避经济制裁。
+
+观察人士称，新兴的、不受监管的加密货币的蓬勃发展，由于可以创建单独的全球结算系统，对传统受监管的法币系统构成了挑战，为洗钱等犯罪行为扰乱传统的金融系统秩序，各国越来越重视对加密货币进行合理的监管。俄罗斯入侵乌克兰的战争，无疑加快了这一进程。
 
 参考链接：
-1.[中共制下的人道灾难，上海婴幼儿都被单独隔离！中共是吃人的魔鬼！Take dow the CCP!](https://gettr.com/post/p137lmod2c4)
-2.[上海令人愤怒到极限的婴幼儿隔离点，已经无法用语言描述的震惊！](https://gettr.com/post/p138xp872c1)
-3.[大上海還吹什麼狼蛋…](https://gettr.com/post/p137klu58b7)
+1. [EU lawmakers set to tighten up on crypto transfers](https://www.reuters.com/world/europe/eu-lawmakers-set-tighten-up-crypto-transfers-2022-03-31/)
+2. [Newly Introduced Bill Aims to Bring Transparency to the Stablecoin Marketplace](https://www.coindesk.com/policy/2022/03/31/newly-introduced-bill-aims-to-bring-transparency-to-the-stablecoin-marketplace/)
+3. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
+4. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-编辑：Zion文恩
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

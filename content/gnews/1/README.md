@@ -2,86 +2,45 @@
 ---
 
 
-## 有声|哭诉
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2283561/)
+## 视频|俄军大兵用坦克碾过指挥官以示抗议
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2283756/)
 
-粵語配音：香草山香港部 – 格格樹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-我有车有房没存款
-如今失业很彷徨
-究竟为什么
-突然变了天
-安逸日子
-再也不见
+俄罗斯入侵乌克兰的战争已持续了1个月，但其攻势持续受挫，
 
-银行上门催还款
-威胁不还法院见
-拿你的房子去法拍
-去法拍呀
-去法拍
+导致俄军伤亡惨重，前线士兵战斗士气低落，反战情绪高涨。
 
-曾经的白领
-落魄潦倒
-任职的外资企业
-一夜之间
-宣告关闭
-这里有我的汗水
-我的青春
-和期待
-如今人去楼空
-徒留我孤单
-徘徊又徘徊
-终不舍离去
-从此
-房贷车贷怎么还
+3月22日，乌克兰记者齐巴留克在脸书上发布了一段俄军上校梅德韦杰夫受重伤的视频。
 
-在街头走到深夜
-一次次求职
-一次次挫败
-灰黄街灯
-拉长我疲惫身躯
-蹒跚着，蹒跚着
-不知归路在何处
+梅德韦杰夫并非是在战争中受伤，而是被自己一名情绪失控的大兵开坦克直接碾轧过去，
 
-终于熬到了春天来
-不曾想
-封门封户已成常态
-喊楼的声音
-此起彼伏交叠
-一个又一个人
-从高楼上坠落
-救护车来了
-带来装尸袋
-这日子
-就这样
-每天重复
-没有百态
-只有常态
+导致双腿严重受伤而被抬上担架紧急送往白俄罗斯医院治疗。车臣领导人、
 
-这日子
-就是过成了这样
-每日在挣扎
-依然在泥泞中蹒跚
-路在何方
-归去何处
-唯有迷茫
-新穷人的哭诉
-有谁会听见
+普京的亲密盟友卡德罗夫公布的视频也证实了此事件。
 
-文字版原文：[哭诉](https://gnews.org/zh-hans/2280569/)
+据悉该大兵不满梅德韦杰夫麾下1500名军人在基辅的马卡洛夫战区中，
 
-音频处理：Fei797
-发稿：Fei797
+伤兵满营且超过半数已战死而极为愤怒，精神崩溃而伺机采取如此极端方式表达抗议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+该英雄大兵下落尚未得知，但肯定不容乐观，甚至可能非常悲惨。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+【盖文】出师无名的普京一个人对乌克兰的这场侵略战争，在乌军背后强大的欧美军事科技力量的反击下形同活靶子，因死伤惨重、战损空前而难以为继，俄军投诚或反戈一击的事情将层出不穷，罪恶的俄军难逃被围歼的命运！
+
+
+
+【撰稿】6zero4
+
+【审稿】呼吸的雾霾（文小呼吸）
+
+【剪辑】玉米地里战斗鸡
+
+【发布】 奇门遁甲
+
+【链接】https://nypost.com/2022/03/24/russian-soldier-ran-over-commander-with-tank-in-protest/
+
+[https://tw.appledaily.com/international/20220324/HTLJLN4VGJBNPKCEOLAALY7OLI/](https://tw.appledaily.com/international/20220324/HTLJLN4VGJBNPKCEOLAALY7OLI/)
+
+[https://tw.news.yahoo.com/amphtml/%E5%8D%8A%E6%95%B8%E5%90%8C%E8%A2%8D%E9%81%AD%E6%AE%B2%E6%BB%85-%E4%BF%84%E5%85%B5%E6%8A%93%E7%8B%82-%E9%96%8B%E5%9D%A6%E5%85%8B%E8%BC%BE%E9%81%8E%E6%8C%87%E6%8F%AE%E5%AE%98-083822866.html](https://tw.news.yahoo.com/amphtml/%E5%8D%8A%E6%95%B8%E5%90%8C%E8%A2%8D%E9%81%AD%E6%AE%B2%E6%BB%85-%E4%BF%84%E5%85%B5%E6%8A%93%E7%8B%82-%E9%96%8B%E5%9D%A6%E5%85%8B%E8%BC%BE%E9%81%8E%E6%8C%87%E6%8F%AE%E5%AE%98-083822866.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
