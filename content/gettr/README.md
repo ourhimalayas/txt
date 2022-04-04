@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 9:48 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月3日第30天当日救援统计：<br/>Medyka救援站接待：约336人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8993人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 30 - Date: April 3, 2022 :<br/>Medyka Rescue Station Reception: about 336 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8993 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group49/getter/2022/04/04/09/a6bd719f-9fe2-c0de-cb15-8bff7193cba7/697cd9f659ed0568bdd0c3686fe3a4dc.jpg)
+
+---
+
 `@miles 4/4/2022 8:53 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -149,15 +156,6 @@
 
 昨日，在英国圣约翰贝德沃丁教堂有一场为乌克兰祈祷和平的演奏会。K.H小战友向英国当地观众介绍了新中国联邦和法治基金的乌克兰救援行动，获得了当地民众的鼓励和掌声。<br/><br/>On April 2nd， a Concert for Peace in Ukraine was organized by local British young musicians at St John in Bedwardine Church. K.H proudly introduced the rescue operation in Ukraine carried out by NFSC and ROLF to the audience and won the encouragement and applause of the local people.
 ![img](https://media.gettr.com/group37/origin/2022/04/03/18/e5829ec7-2254-b7c2-2daf-8e4a93884630/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_hongkong 4/3/2022 10:30 PM (UTC)`
-
-【粤语配音】2022年4月3日，文贵先生大直播视频精选：《现时的病毒就是疫苗的反应》<br/><br/>MOS香港部义工配音合成<br/> #病毒 #疫苗  #新中国联邦 #takedowntheccp #freedom #democracy #粤语 #newfederalstateofchina <br/>#nfsc #milesguo #himalaya #郭文贵 <br/><br/>
-![img](https://media.gettr.com/group49/getter/2022/04/03/22/e7145bd5-ed17-eaf0-3c15-68e01a9afd72/out.jpg)
 
 ---
 

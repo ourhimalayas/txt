@@ -2,41 +2,33 @@
 ---
 
 
-## 华为首席财务官孟晚舟被任命为轮值董事长
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284824/)
+## 有声｜苏州现全球首例全新变异株 大连亦现不明毒株
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2284842/)
 
-素材翻译： Jenny Ball
+By:**秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+2022-04-04
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-04-163010.jpg)
+大纪元4月4日消息。据中共官方通报，江苏省苏州市发现奥米炕全新变异毒株，该毒株与全球已知毒株均不同源。此外，大连市也发现罕见毒株。
 
-上海，4 月 1 日（路透社）- 电信巨头华为技术公司已授予在加拿大被拘留近三年后,于 2021 年返回中国的财务主管孟晚舟，新的轮值董事长职位。
+苏州市疾控中心4月2日发布疫情通报称，3月28日苏州下辖的常熟市发现的一例确诊病例，其感染的病毒，经测序对比为VOC／Omicron变异株BA.1.1进化分支。
 
-华为创始人任正非的女儿将担任公司最高领导人，并在轮到她时担任华为董事会主席六个月。该公告没有具体说明她的任期何时开始。
+通报称，在本土病例和输入病例数据库、全球COVID-19，即中共病毒的GISAlD数据库中，均未发现与该新毒株基因组高度同源序列。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-326-edited.png)图片来源：路透社
+此外，大连也发现全新变异毒株，其病毒基因测序与国内现有疫情基因序列均不同源。
 
-轮值董事长是徐直军和胡厚崑。据该公司网站称，孟也是副主席，并将继续担任首席财务官。
+早在疫情爆发初期，中共开始推广其疫苗时，科学界就发出警告称，鉴于中共病毒在研发时设计了快速变异的特性，因此疫苗的接种将促使病毒不断变异而导致更大的灾难。
 
-华为发言人表示：“公司正在优化和完善其内部治理结构，以确保公司经久不衰。” “监事会对公司的生存、发展和长远前景负责。”
+另据郭文贵先生在4月3日的大直播中爆料称，当下上海、深圳、吉林等地的疫情就是疫苗反应。
 
-孟的英文名字是 Sabrina，在公司与美国的争执中发挥了核心作用，她于 2018 年因涉嫌与华为有关联的公司，试图违反美国制裁向伊朗出售设备而在加拿大被拘留。
+中共的隔离措施带有政治因素，这是在为全面疫苗灾难做准备。上海已经新到位5000个气化炉，一天可以气化5万具尸体。
 
-随后，美国以国家安全为由，在 2019 年和 2020 年期间对该公司实施了一系列贸易限制。这阻碍了华为设计自己的芯片和从外部供应商采购组件的能力，从而削弱了其智能手机业务。
+编辑：二丫/Julia
 
-在与美国检察官达成协议结束银行欺诈案后，孟于2021年 9月获准返回中国。
-
-素材链接:[https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm\_source=Sailthru&utm\_medium=newsletter&utm\_campaign=technology-roundup&utm\_term=Technology%20Roundup%20-%202021%20-%20Master%20List](https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+发布:星星
 
 * * *
-
-审核：文乐
-校对：阿伯塔
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/zm.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

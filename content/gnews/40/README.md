@@ -2,89 +2,34 @@
 ---
 
 
-## 参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2283516/)
+## 有声|拜登总统华沙演讲的意义超越肯尼迪和里根对前苏联的喊话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2284551/)
 
-**参议员玛莎.布莱克本： **
-在俄罗斯威胁进行核战争之际，拜登总统的预算将迫使削减关键核能力。 俄罗斯、 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、朝鲜和伊朗只通过实力理解和平。 我们必须为我们的军队提供防卫和保护我们的自由所需的资源。
+配音：香草山教育部 – Rose
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭先生在3月27日的大直播中谈到，昨天3月26日拜登总统在波兰首都华沙皇家城堡结束本次欧洲之行时就“俄乌冲突”发表演讲，其中一句“上帝呀，普京你就别干了！”意义重大，超越了肯尼迪和里根总统对前苏联的喊话，充分体现了一个专业而伟大政治家的风范，让人刮目相看、真心佩服！看待政治家就看其专不专业、正不正义就行了，至于其人的好坏，没有一个政治家是好人，因为好人是当不了政治家的。
 
+拜登总统演讲的另一句话，就是把俄罗斯人和普京清晰地分开了，对俄罗斯人表示：理解你们，你们也是受害者，欢迎你们回到白人这个大家庭来，只要没普京了，普京也不能再干了！虽然表面上没把中国人与中共分开，但其话里话外含沙射影实际上就是针对中共与中国人的本质区别。拜登总统本次演讲反复暗示着邪恶与独裁对人类世界的巨大危害，称俄罗斯对乌克兰的入侵点燃了民主国家与专制国家之间的决战、独裁者与人民之间的自由之战！独裁践踏民主，独裁标志着个人的帝国，这些都在暗指习近平！
 
+得知拜登总统本次欧洲之行后的日本竟然宣布要开放宣战权，一下子震惊了整个世界。日本这个宣战权可是意义深远、意义重大，且拜登总统对此是呼应的，二战后日本作为战犯与战败国，只能拥有非常有限的自卫式国防武装力量，不能有进攻性的武器和军队，也就是说只有被动的自卫权，没有主动的宣战权。可想而知，重获宣战权的日本对世界意味着什么；保守来讲，给日本72小时就能制造出5枚核弹头且其威力不亚于中共国与俄罗斯的核弹头。
 
-> President Biden’s budget will force cuts to key nuclear capabilities, at a time when Russia is threatening nuclear war. Russia, China, North Korea & Iran only understand peace through strength. We must provide our military the resources they need to defend & protect our freedom.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510735250376298496?ref_src=twsrc%5Etfw)
+北约事实上全面参与了本次乌克兰战争，并将全欧洲的科技部队都调前线了，尤其是英国，重现了大英帝国在人类面临劫难时的浩然正气与伟大担当，首相约翰逊的所作所为更是堪称完美，在金钱、人力、政策、执行、态度、宣传等方面配合乌克兰的需要全面进行协调，人们看到了一个成熟的国家在国家安危问题上没有个人主义！
 
+拜登总统的演讲透露出民主与独裁已势不两立，并有绝对信心打败俄罗斯。拜登总统演讲中明确将俄罗斯人与普京区分开了，明眼人都能看出其中的含沙射影，共产党自己知道，全世界也都知道其中的内涵。通过乌克兰战争，欧洲几乎跟美国成为一体，未来美国的战略将从过去的“重欧轻亚”变成“重亚轻欧”，且美国别无选择而不得不灭共！
 
+文字版原文：[拜登总统华沙演讲的意义超越肯尼迪和里根对前苏联的喊话](https://gnews.org/zh-hans/2264282/)
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
 
-**参议员玛莎·布莱克本：** 
-我们不能袖手旁观，任由左派(把他们的思想)灌输给我们的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
 
-
-
-> We can’t sit back and allow the left to indoctrinate our children.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1510777612909613057?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本： **
-不要搞错：在美国，我们正目睹一场文化战争。
-
-
-
-> Make no mistake: we’re witnessing a culture war in America.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510672033620889603?ref_src=twsrc%5Etfw)
-
-
-
-**国务院发言人内德·普赖斯:** 
-当被问及来自布哈(Bucha) 的可怕图像时，布林肯国务卿@SecBlinken 今天早上告诉CNN记者@CNNSotu，我们不能对此麻木——我们不能使其正常化。 这就是每天都在发生之事的现实，也是克里姆林宫的战争必须结束的原因。 【转CNN推文及视频： “我们不能对此麻木。” 国务布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上。】
-
-
-
-> Asked about the horrifying images coming out of Bucha, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) told [@CNNSotu](https://twitter.com/CNNSotu?ref_src=twsrc%5Etfw) this morning that we can’t become numb to this—we can’t normalize this. This is the reality of what’s going on every single day and why the Kremlin's war needs to end. [https://t.co/PvRBtLUCGE](https://t.co/PvRBtLUCGE)
-> — Ned Price (@StateDeptSpox) [April 3, 2022](https://twitter.com/StateDeptSpox/status/1510712942072848385?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：** 
-我们强烈谴责克里姆林宫部队在布查(Bucha)和乌克兰各地的明目张胆的暴行。我们正在利用一切可用工具，记录和分享信息，追究责任人的责任。
-
-
-
-> We strongly condemn apparent atrocities by Kremlin forces in Bucha and across Ukraine. We are pursuing accountability using every tool available, documenting and sharing information to hold accountable those responsible.
-> — Secretary Antony Blinken (@SecBlinken) [April 4, 2022](https://twitter.com/SecBlinken/status/1510792047824826372?ref_src=twsrc%5Etfw)
-
-
-
-**众议员兰斯.古登： **
-高油价首先被归咎于大流行病。 
-然后，弗拉基米尔.普京（因此）受到指责。 
-现在，石油公司又遭到指责。 
-
-乔·拜登应该将自己列入被指责的名单。
-
-
-
-> First, the pandemic was blamed for high gas prices.
-> 
-> Then, Vladimir Putin was blamed.
-> 
-> Now, oil companies are being blamed.
-> 
-> Joe Biden should add himself to the list.
-> — Lance Gooden (@Lancegooden) [April 3, 2022](https://twitter.com/Lancegooden/status/1510686257646604289?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院： **
-国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：乌克兰的农民没能照料他们的庄稼，而是被迫要么为国家的未来和独立而战，要么逃离。 运送粮食的船只由于被俄罗斯侵略的封锁而无法从黑海港口驶出。 【图中文字：国际社会必须增加对俄罗斯的施压以结束这场无端又无理的战争 – 布林肯】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): Farmers in Ukraine, instead of tending to their crops, have been forced to either fight for their country’s future and independence, or to flee. Ships with grain are not getting out from Black Sea ports because they’re blocked by Russia’s aggression. [pic.twitter.com/RI47Q1JL7u](https://t.co/RI47Q1JL7u)
-> — Department of State (@StateDept) [April 3, 2022](https://twitter.com/StateDept/status/1510603026301599746?ref_src=twsrc%5Etfw)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

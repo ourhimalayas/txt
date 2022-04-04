@@ -2,30 +2,15 @@
 ---
 
 
-## 中日财经爆┃东京证交所开启改组后的首日交易
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2284704/)
+## 消灭中共是正义的必须！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2284724/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/深藏不露
 
-4月4日，东京证交所启动了改组后的首日交易，日经225指数较上周末上涨 70.49点，收盘报27,736.47点，4 个工作日内首次上涨。东京证券交易所股价指数（TOPIX）上涨 9.36点，收盘报1953.63点。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片9-1.jpg)[图片来源](https://www.google.com/search?q=%E4%B8%9C%E4%BA%AC%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E6%89%80&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBuobfrvYe2q8EjM3bX7729GoHpdtg:1649059084127&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;sqi=2&amp;ved=2ahUKEwj78LDn9_n2AhWxl3IEHRJOCGEQ_AUoAnoECAIQBA#imgrc=Goyi4YscYpNQ4M)
-
-东京证交所所废除了此前的东证1部、东证2部，以及主要为新兴企业的Mothers等板块，重新改组为Prime（优质），Standard（标准）和Growth（成长型）三大交易板块。
-
-本次改组旨在吸引海内外投资。Prime板块瞄准具有国际竞争力、成长有望的企业，上市标准比东证1部更为严格。
-
-针对此前的东证1部上市企业，东交所设置了相关迁移机制。即使相关企业不具备Prime板块上市标准，只要提交优化计划书，就可进入Prime 板块。其结果，大多数东证1部企业将原样迁入Prime板块。
-
-全球股市之间的竞争日趋激烈。东交所的总市值与纽约证交所差距扩大，并被中共国上海证交所超越。人们担心，东交所将进一步陷入地位沉降的危机。
-
-东交所全新板块推出后，能否实现从全球吸引投资的改组目标，拉抬日本经济增长，成为今后面临的课题。
-
-消息来源:
-
-1、[东京证交所改组 三大新板块启动交易](https://www3.nhk.or.jp/nhkworld/zh/news/358335/)
-2、[日経平均終値、７０円高の２万７７３６円…４営業日ぶり上昇](https://www.yomiuri.co.jp/economy/20220404-OYT1T50140/)
-
+上海长宁区一个2岁小孩被隔离了，无人看管，高烧不退，痛苦的死亡！更令人心痛的是，自己小孩走了，怕她一个人孤单，妈妈想不通去陪她了（自杀）！听着母亲撕裂痛苦的声音，此时做为樱花战士的我已经不想多说什么……
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片10.png)
+我已经出离了愤怒了！战友们，行动、行动、行动！！Take down the CCP！！！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片11.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片12.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13.jpg)
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)

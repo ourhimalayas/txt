@@ -2,38 +2,55 @@
 ---
 
 
-## 新冠疫苗副作用亲历者爆料收集专栏（2022.4.4）——打疫苗后血栓
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284873/)
+## 乌方称在基辅附近发现410具尸体 目击者受到惊吓
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284942/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：文乐
 
-整理：gardeniahu
-编辑：Rianna
-
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
-
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22.png)图片来源：雅典娜设计组（614）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
 
 
-我已经更新详细的治愈方法，记得去我的主页。对于血栓虽然我早有准备，积极的治疗还是很必要的。置顶疫苗的sop，详细介绍了，疫苗前后的sop · 我严格遵守，所以发现了血栓，并积极治疗。不是仅仅我打的阿斯利康会血栓，mRNA疫苗也一样，是疫苗刺突蛋白造成的。阿斯利康的血栓有一种很罕见但很危险，叫血小板减少综合症。
 
-精选评论
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12-3-edited.jpg)2022 年 4 月 2 日，在乌克兰基辅地区，随着俄罗斯继续入侵乌克兰，在距离基辅 20 公里的高速公路上看到被毁坏的汽车。路透社/米哈伊尔帕林查克
 
-Girl珞 回复：血小板减少综合症，我一个朋友的朋友孩子打了就这样了，但是他是在国内打的科兴。
+乌克兰穆哈切沃，4月3日（路透社）——乌克兰在基辅附近的城镇发现了 410 具尸体，这会是对俄罗斯可能犯下战争罪行的调查的一部分，但一些目击者因遭受的折磨而痛苦得无法言语，该国最高检察官周日说。
 
-Springiscoming  回复：请教大神，打辉瑞后心跳快，两三个月后渐渐好转，以后还会有隐患吗，比如三五年左右心梗几率比不打疫苗高。
+在俄罗斯从基辅周围的一些地区撤军后，首都西北 37 公里（23 英里）的解放小镇布查（Bucha）的市长说，在车臣武装分子控制该地区时，有 300 名居民被俄罗斯军队杀害。
 
-参考链接：[https://www.xiaohongshu.com/discovery/item/61bac1ca000000000102a49f?](https://www.xiaohongshu.com/discovery/item/61bac1ca000000000102a49f?)
+俄罗斯否认其军队在布查杀害平民的指控。莫斯科表示，没有居民遭受俄罗斯军队的任何暴力，并指责基辅上演了它所说的为西方媒体炮制的挑衅消息。
 
-发布：tianzhihuan
+乌克兰总检察长伊莉娜·韦涅季克托娃（Iryna Venedyktova）说，乌克兰的检察官们周日才首次进入布查（Bucha）、伊尔平（Irpin）和戈斯托梅利（Hostomel） 镇，他们需要更多时间来确定犯罪的程度。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+“我们需要与证人合作”韦涅季克托娃说。
+
+“今天的人们压力很大，以至于他们无法说话。”
+
+她说，到目前为止，已经检查了 140 具尸体，但她将要求卫生部向基辅地区的一家野战医院提供尽可能多的法医专家。
+
+乌克兰总统泽连斯基说：“数百人被杀。平民遭到酷刑和处决。陈尸街头。地雷遍地。甚至死者的尸体也被埋了雷。”
+
+泽连斯基表示，很明显西方将对俄罗斯实施新的制裁，但他说这还不够。
+
+内政部长丹尼斯·莫纳斯蒂尔斯基（Denys Monastyrskiy）表示，很明显有数百名平民被杀，但他不想透露具体人数，因为该地区仍在努力清除地雷。
+
+“许多当地居民失踪。我们无法给出确切数字，但有很多。”他说。
+
+新闻来源：[Ukraine says 410 bodies found near Kyiv, witnesses traumatised](https://www.reuters.com/world/europe/ukraine-says-410-bodies-found-near-kyiv-witnesses-traumatised-2022-04-03/)
+
+* * *
+
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
 
  
 
