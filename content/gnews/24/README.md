@@ -2,39 +2,25 @@
 ---
 
 
-## 乌克兰部队继续向基辅附近的俄罗斯部队作战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
+## 安卓用户受到威胁：俄罗斯黑客使用新的恶意软件
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2288024/)
 
-***评论：**加油，顽强的乌克兰人，正义终将胜利。*
+**该恶意软件要求获得18项权限，如访问摄像头和位置。目前尚不清楚它是如何进入智能手机的。**
 
-据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
-4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
+作者：ctu/原文发布于2022年4月4日15:12(CET)
+翻译：LK
 
-英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-3.jpg)图片：黑客们在搞破坏（象征性的图片）/ imago
 
-英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
+安卓用户正面临一个新的危险。2022年4月4日，据[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)援引Lab52和Bleeping Computer的报道，俄罗斯黑客显然开发了一种新的所谓恶意软件，主要针对配备谷歌操作系统的智能手机。
 
-文章观点仅代表作者个人，与Gnews平台无关。
+具体来说，是进行间谍活动–对用户数据进行梳理。据称，所谓的流程管理器可获得18项授权，包括访问位置、摄像头、音频设置、WLAN或短信读取。
 
-文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
+根据该报告，目前尚不清楚该应用程序如何进入智能手机。有可能“通过Play Store中的虚假应用程序进行传播”。也可能是通过电子邮件的经典网络钓鱼攻击，或使用手机访问有问题的网站而安装了恶意软件。[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)建议谨慎行事，并警告用户仅下载可信任的应用程序。
 
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 轰炸机
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+原文链接: [https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512](https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512)
+发布：LK
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

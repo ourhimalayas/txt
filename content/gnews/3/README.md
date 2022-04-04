@@ -2,11 +2,11 @@
 ---
 
 
-## 锁链女之歌力量超越导弹（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2288472/)
+## 锁链女之歌力量超过导弹（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2288530/)
 
 #### PPT制作：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12：00-12：10-005.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：00-12：10-006.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

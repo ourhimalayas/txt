@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 10:03 PM (UTC)`
+
+新中国联邦 法治基金 飞飞秀救援快报 2022-04-04<br/>For English: gettr.com/post/p13kkrb6b24
+![img](https://media.gettr.com/group5/origin/2022/04/04/22/ebe8ea4f-09a8-85b1-9e9b-3a61b03d25da/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@himalayadcfarm 4/4/2022 6:36 PM (UTC)`
@@ -147,13 +154,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 <br/>【Ukraine Rescue】04/02/2022  Robin, a Belgian veteran, said: You're here to represent the good guys, and only by taking down the bad guys, the world will be happy and we will win!”<br/><br/>【乌克兰救援】04/02/2022 比利时的退伍军人罗宾说 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group22/getter/2022/04/04/03/8345f31d-d2ad-f935-08eb-0c65fecc20ce/out.jpg)
-
----
-
-`@miles 4/4/2022 3:25 AM (UTC)`
-
-新平台投资重磅消息！！！2022.04.03 农场联盟工作汇报
-![img](https://media.gettr.com/group11/origin/2022/04/04/03/b4003fe2-ad71-be1c-29eb-a92e452d41e8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
