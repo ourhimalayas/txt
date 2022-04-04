@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 2:54 AM (UTC)`
+
+【Ukraine Rescue】04/02/2022  Robin, a Belgian veteran, said: You're here to represent the good guys, and only by taking down the bad guys, the world will be happy and we will win!”<br/><br/>【乌克兰救援】04/02/2022 比利时的退伍军人罗宾说 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group42/getter/2022/04/04/02/1478ab75-b98f-b46c-08dd-609196637b9f/out.jpg)
+
+---
+
 `@miles 4/4/2022 2:29 AM (UTC)`
 
 2022.04.03  新中国联邦 | 喜财经  传统银行与数字银行的对比
@@ -149,13 +156,6 @@ MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月2日第29天当日救援统计：<br/>Medyka救援站接待：约273人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8657人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 29 - Date: April 2, 2022 :<br/>Medyka Rescue Station Reception: about 273 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8657 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group19/getter/2022/04/03/12/685ea91c-0be8-0960-00ff-587a6c80f225/fd33292ba6a4257df182cd103b7e3990.jpg)
-
----
-
-`@miles 4/3/2022 9:55 AM (UTC)`
-
-<br/>【Ukraine Rescue】04/01/2022 Fellow Fighter Nicole: Before the pianist left for Lviv, he got to know the story of  Miles Guo and the New Federal State of China (NFSC) through conversations with fellow fighter Wen ke. He was deeply touched by the stories and found them incredible. The days he spent with the new Chinese from the NFSC have changed his opinion on the NFSC. He now openly supports the NFSC. Hopefully, the little pinkies inside the great fire wall that have been brainwashed by the CCP will also be woken by our story and can stand up against the dictatorial tyranny of the CCP.<br/><br/>【乌克兰救援】04/01/2022 战友妮可：钢琴家上更前线的利沃夫之前，听文科讲述了郭文贵先生和新中国联邦的故事后感觉不可思议。与新中国联邦的新中国人愉快相处的日子，从用音乐支持变成对新中国联邦的公开支持。希望墙内被中共洗脑的小粉红了解我们的故事也能醒过来，站起来反抗中共独裁暴政。
-![img](https://media.gettr.com/group44/getter/2022/04/03/09/87a3c29e-2d11-ef13-c4be-14226b2bcd03/out.jpg)
 
 ---
 

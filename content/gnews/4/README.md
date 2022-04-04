@@ -2,19 +2,12 @@
 ---
 
 
-## 人类最伟大的无皇有主的新时代即将来临
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282927/)
+## 俄罗斯前能源部副部长称普京时日无多
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2283006/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+04/02/2022 俄罗斯前能源部副部长弗拉基米尔·米洛夫称因为入侵乌克兰遭受到体制内官员和国内老百姓的强烈反对，普京掌权的日子已经不多了。
 
-*发布：陶子*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

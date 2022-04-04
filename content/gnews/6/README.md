@@ -2,8 +2,8 @@
 ---
 
 
-## 未来生物科技会因为疫苗灾难极大发展
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282911/)
+## 有国家计划将HCN作为国家储备货币
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282976/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

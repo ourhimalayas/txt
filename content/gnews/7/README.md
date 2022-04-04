@@ -2,25 +2,27 @@
 ---
 
 
-## 加拿大议员力推监控中共代理人法案
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282904/)
+## 加拿大计划对俄罗斯进行战争罪调查
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282972/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+采编：加拿大温哥华扬帆农场 – 青青
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490378321.png)图片来源：网络
+撰稿：加拿大温哥华扬帆农场 – 晨熹
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490384731.png)图片来源：Deutsche Welle
 
 
-据【多伦多星报】4月1日报道，加拿大议员豪萨科斯此前提出了一项建立专门审查机构的法案，以追踪和监控那些代表外国政权非法影响加拿大政府和各界名人的组织或个人。
+据【CTV新闻】3月31日报道，加拿大政府日前宣称，要针对俄罗斯攻击和杀戮乌克兰平民以及轰炸该国医疗救援设施的战争罪行进行调查。
 
-据悉，该法案将要求所有在加拿大为外国政府牟取利益的组织和个人进行登记。对此，该议员指责[麦泰律师事务所]曾试图帮助华为获得在加拿大5G建设权。并表示：该律师事务所因在加拿大为中共政权服务而必须被注册在案，以备随时审查和追踪。
+加拿大国际事务部长对此表示，目前已有六名该国专员前往海牙国际法院，协助调查俄罗斯在入侵乌克兰期间所犯下的战争罪和反人类罪。同时，这位了解国际人道法的部长认为，本次俄军对平民的无差别攻击，与当年斯大林残酷屠杀数百万乌克兰人无异，必须得到全面彻底的调查。
 
-报道称，近年来中共对加拿大各界的全面渗透和影响日趋严重，并通过其在加拿大的打手，恶意骚扰和恐吓持不同政见者和异议人士。并与加国的政要和官员建立密切利益关系，以培养可能为习近平当局服务的代理人。
+此外，加拿大公共安全部长也表示，平民在任何情况下都不应受到伤害，特别是当他们需要医疗救助和食物支持时。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：文莱
 
-新闻来源：[https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html](https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html)
+新闻来源：[https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120](https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120)
 
  
 
