@@ -2,11 +2,11 @@
 ---
 
 
-## 4月3日文贵大直播要点（图片1-7）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2283917/)
+## 4月3日文贵大直播要点（图片8-13）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2283981/)
 
 设计 五月花农场 水涨船高
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7BBC93BA-197A-4AB9-93C7-D3009A2819BA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/63F44B70-D912-436C-9E58-F44BD61858CD.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/F2955C38-2217-45EB-BEDF-9348749E589E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8D1A1C75-6247-45FB-ADE3-1478A5B2BA16.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/54D13D7A-F106-40F8-9630-AED6A67E1D67.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B4A27D01-565B-4074-A841-E278976D94F3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/28005A2D-ECE4-4A00-BFC8-837245502AD3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/66ADAAA5-8228-42C0-987D-C8342A3F6413.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9F172C7F-2776-4E15-AA2B-0B5EAF487A4B.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9C88D21F-BB66-4559-80F8-D6D4D7990586.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4F88ECCD-B523-43AD-80B5-C38B4A8FDA11.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/28C16278-4BEC-477F-B904-48E9C25D2DF8.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/3EAD9834-00B7-4B87-8A22-6B653297C608.jpeg)
 发布：水涨船高
 
  

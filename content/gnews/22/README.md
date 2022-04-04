@@ -2,10 +2,10 @@
 ---
 
 
-## 欧美等国家加强对加密资产的监管
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283300/)
+## 日媒揭露上海封城后的食物短缺等问题
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283315/)
 
-作者：华盛顿DC农场 – 自由信仰，银河系农场 – 骄子
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,21 +13,14 @@
 
 
 
-3月31日国外媒体报道，出于对比特币及其他加密资产可能破坏金融稳定，并被用于犯罪的担忧，欧盟立法者将支持对比特币和其他加密资产的转移采取更严格的安全保护措施，这是监管机构收紧监管措施的最新迹象。
+上海自3月下旬疫情爆发以来，实施了严格的封锁管控措施，同时官方媒体严格封锁消息，外界很难得知封控下上海居民的真实生活状况。4月1日，一家日本媒体连线了正在上海作为特别报道员的记者，并询问了目前上海的真实情况。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7.jpg)
+记者表示，上海名义上实施了东西交叉封锁，但因为每日新增病例居高不下，事实上已经开始全面封锁。人们无法出入小区，甚至医疗系统也出现了拒绝救治除感染外其他患者，造成患者死亡的事件。
 
-据悉，欧洲议会中的两个委员会已经确定了相关方案，供投票表决。根据特别工作组指定的反洗钱标准，加密公司必须收集和共享加密资产的交易数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9.jpg)
-同一天，美国众议员特雷·霍林斯沃斯和参议员比尔·哈格蒂提出一项名为“稳定币透明度法”的法案，旨在通过提高稳定币市场的透明度，探索在不扼杀创新的情况下同时保护消费者和经济的解决方案。该法案目前已经获得大量支持。
-
-4月1日，又有媒体报导，日本央行呼吁七国集团适时建立一个共同的加密货币监管框架，以打击俄罗斯等国家利用数字货币来逃避经济制裁。
-
-观察人士称，新兴的、不受监管的加密货币的蓬勃发展，由于可以创建单独的全球结算系统，对传统受监管的法币系统构成了挑战，为洗钱等犯罪行为扰乱传统的金融系统秩序，各国越来越重视对加密货币进行合理的监管。俄罗斯入侵乌克兰的战争，无疑加快了这一进程。
+随后记者展示了前一天中共政府分配的食物。里面除了青菜、水以外没有看到肉制品。居民自己囤积的食物也快要见底，恐怕难以支撑接下来的生活。虽然上海开放了网上订菜的平台，但因为疫情，平台也一直显示“运力不足”，根本无法保证送达时间。
 
 参考链接：
-1. [EU lawmakers set to tighten up on crypto transfers](https://www.reuters.com/world/europe/eu-lawmakers-set-tighten-up-crypto-transfers-2022-03-31/)
-2. [Newly Introduced Bill Aims to Bring Transparency to the Stablecoin Marketplace](https://www.coindesk.com/policy/2022/03/31/newly-introduced-bill-aims-to-bring-transparency-to-the-stablecoin-marketplace/)
-3. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
-4. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
+[20220401日媒揭露上海封城的真實狀況](https://www.gettr.com/post/p135y12c010)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 

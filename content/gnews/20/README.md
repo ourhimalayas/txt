@@ -2,41 +2,33 @@
 ---
 
 
-## 中共病毒重组新变种XE开始引人注意
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283320/)
+## 樱花时政┃上海幼儿被隔离死 母亲悲痛自杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283368/)
 
-作者：纽约香草山医疗部 – 云豹
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海幼儿被隔离死-母亲悲痛自杀.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fsolacemedia.co.nz%2Fwp-content%2Fuploads%2F2022%2F04%2Fphoto.webp&amp;imgrefurl=https%3A%2F%2Fsolacemedia.co.nz%2F%25E4%25B8%258A%25E6%25B5%25B7%25E5%25A6%2587%25E8%2581%2594%25E5%259B%259E%25E5%25BA%2594%2)
 
+近日，上海残忍隔离幼儿的视频在各媒体热传，从襁褓之中婴儿到蹒跚前行的幼儿，4个年级不等的孩子在一张婴儿床上，哭声喊声一片，诺大的房间几十张床。
 
+据传，医护人员人手不够，很多孩子屎尿不能及时处理，有的烂屁股……惨状不可想象。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+今天微信朋友圈传出，一个2岁孩子发烧不治去世，视频里的母亲哭喊：“你们不是救人的吗？随即发出悲怆痛苦的呼叫声，不忍卒耳！她受不了打击自杀身亡！
 
+这是幼儿隔离后的第一起命案，如果政策继续，相信不是最后一起。
 
+哪怕孩子没治了，最后一刻有母亲守护也是临终前的一点关爱。
 
-当地时间3月29日，世卫组织WHO发布的中共病毒疫情公告显示，新型重组变种病毒XE在英国已经超过600个病例。
+把毫无自理能力的孩子单独隔离，不知道是哪个领导拍脑瓜的阴招？这也是“相信共产党走进火葬场”最真实的写照，希望越来越多的中国人能从这些血的代价里醒悟！
 
-中共病毒的重组变种病毒XE，今年1月19日由英国首次提出报告。 该病毒是因为病人同时感染Omicron BA.1及BA.2变异株后，两种毒株在同一个病人体内发生基因重组，产生的新变种病毒株。依目前的数据，XE变种病毒较目前传播最广泛的Omicron BA.2变种，更增强了10%的社区传播优势。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10.jpg)
-这种在不同变种病毒间发生基因重组，产生新变种病毒的现象并非少见。 目前受到关注的还有由Delta病毒株与Omicron BA.1病毒株重组产生的XF及XD两种变种，但是这两种重组变种病毒株目前造成感染的病例数不多。
-
-英国卫生单位UKHSA表示，至目前为止，英国已经确认了 637 例 XE感染病例。 将继续通过基因组监测和测序来定期密切监测所有重组变种病毒。
-
-参考链接：
-1. [New Mutant “XE” Omicron Variant May Be The Most Transmissible Version Of Covid Yet, According To WHO](https://deadline.com/2022/03/new-xe-covid-variant-omicron-most-transmissible-1234992060/)
-2. [Scientists keeping watch on mutant covid strain which has seen hundreds of cases](https://www.walesonline.co.uk/news/uk-news/scientists-keeping-watch-mutant-covid-23527825)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑：宁文静
-总编：飞虹
-审核：木木
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

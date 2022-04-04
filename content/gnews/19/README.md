@@ -2,33 +2,36 @@
 ---
 
 
-## 樱花时政┃上海幼儿被隔离死 母亲悲痛自杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283368/)
+## 上海封控期间怪现状之“甩菜云蹦迪”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2283432/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海幼儿被隔离死-母亲悲痛自杀.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fsolacemedia.co.nz%2Fwp-content%2Fuploads%2F2022%2F04%2Fphoto.webp&amp;imgrefurl=https%3A%2F%2Fsolacemedia.co.nz%2F%25E4%25B8%258A%25E6%25B5%25B7%25E5%25A6%2587%25E8%2581%2594%25E5%259B%259E%25E5%25BA%2594%2)
+作者：纽约香草山佛教部—无尽夏
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪03.jpg)
 
-近日，上海残忍隔离幼儿的视频在各媒体热传，从襁褓之中婴儿到蹒跚前行的幼儿，4个年级不等的孩子在一张婴儿床上，哭声喊声一片，诺大的房间几十张床。
+久经封控，上海民众情绪已经相当郁闷。3月29日，一个名叫“TudiMusic现场”的微信视频号的“云蹦迪”直播现场突然遭到狂刷，主播万万没有想到，本来只是圈内人自己搞搞，观看人数不到1万，热度不到470的直播间，骤然涌入大量彻夜难眠的上海网民，观看人数破天荒地飙升至60万（绝大多数是年轻人）。因为那天在浦东封控期间，所以被戏称为“浦东春晚”。于是在4月1日，也就是上海浦西封控时间点到来之前，被戏称为“浦西春晚”的该微信号的同主题直播再次遭到狂刷，最终观看人数创纪录地突破500万。
 
-据传，医护人员人手不够，很多孩子屎尿不能及时处理，有的烂屁股……惨状不可想象。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪01.jpg)
 
-今天微信朋友圈传出，一个2岁孩子发烧不治去世，视频里的母亲哭喊：“你们不是救人的吗？随即发出悲怆痛苦的呼叫声，不忍卒耳！她受不了打击自杀身亡！
+直播中上海人把积压多日的焦虑、愤怒、无奈、苦中作乐、抱团取暖等各种情绪以“过年”“抢菜”等自嘲方式发泄出来。弹幕上满是“新年快乐”、“某某小区前来报到”、“一边抢菜一边看”、“萝卜甩起来”、“五花肉甩起来”、“今晚属于闵行七子”（指闵行疫情最严重的七个区域）、“宛平路600号（精神卫生中心）的室友们，大葱甩起来”等上海特色的防疫用语。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪04.jpg)
+在大流行中上演的无数悲喜剧中，上海民众集体上演的这次疯狂的“行为艺术”也算独树一帜。它再一次说明，中共不灭，这样的悲喜剧（确切说都是悲剧）将永远在中华大地上演下去，无论你身处边远山村，还是繁华的大上海！
 
-这是幼儿隔离后的第一起命案，如果政策继续，相信不是最后一起。
 
-哪怕孩子没治了，最后一刻有母亲守护也是临终前的一点关爱。
 
-把毫无自理能力的孩子单独隔离，不知道是哪个领导拍脑瓜的阴招？这也是“相信共产党走进火葬场”最真实的写照，希望越来越多的中国人能从这些血的代价里醒悟！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+编辑：霍比特人
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
