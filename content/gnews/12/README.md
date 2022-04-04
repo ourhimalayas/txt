@@ -2,62 +2,76 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.4）&#8211;辉瑞第二针直接进了急诊
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2286699/)
+## 泽希望俄罗斯士兵的母亲能看到他们的儿子在乌的暴行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2286855/)
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8722-5.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-370.png)图片来源：https://nypost.com/
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+“俄罗斯的母亲! 即使你养育了劫掠者，他们怎么也成了屠夫？”乌克兰总统沃洛季米尔-泽伦斯基周日晚间说。
 
-帖子原文：
+*由乌克兰总统提供*
 
-辉瑞第二针直接进了急诊
+乌克兰总统沃洛基米尔-泽伦斯基在周日晚间的一次激动人心的演讲中向俄罗斯士兵的母亲发表了讲话–他说，在基辅郊区的一个万人坑中发现了数百名被处决的平民后，他希望她们看到自己儿子造成的大屠杀。
 
-下午打完第二针疫苗
+“我希望每一位俄罗斯士兵的母亲都能看到在布卡、在伊尔平、在霍斯托梅尔被杀害的人的尸体。他们做了什么？他们为什么被杀？”泽伦斯基在周日的夜间讲话中问道。
 
-晚上开始心脏痛
+“那个在街上骑着自行车的人做了什么？为什么在一个普通的和平城市的普通平民被折磨致死？为什么妇女在耳朵上的耳环被扯下来后被勒死？……这一切是如何发生的？”愤怒的泽伦斯基说。
 
-腹部两侧痛
+周日，在基辅西北部约30英里的小城市布卡的街道上出现了尸体的图片。一个埋有近300具尸体的万人坑也被发现，这让泽伦斯基声称，这一暴行相当于“种族灭绝”。
 
-浑身肌肉痛
+这些尸体是在俄罗斯军队撤出该市后发现的。乌克兰官员说，被杀害的人中有儿童和妇女，据说他们被强奸并被活活烧死。
 
-第二天疼痛没减轻在床上躺了一天
+官员们说，男子也被折磨致死，双手被绑在背后，头部中弹。
 
-第三天肌肉痛减轻但是心脏依旧痛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-371.png)图片来源：https://nypost.com/
 
-直接去了急诊做了心电图和一系列检查
+在基辅附近发现乱葬岗和“被处决”的平民后，乌克兰和西方国家指责俄罗斯军队犯有战争罪。
 
-医生说检查不出问题让我回家观察
+*AFP via Getty Images / Sergei Supinsky*
 
-看了小红书好多人打完心脏问题很害怕
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-372.png)图片来源：https://nypost.com/
 
-在观察两天看看情况
+2022年4月2日，至少有20名身着便衣的男子的尸体被发现躺在一条街道上。
 
-希望一切ok
+*法新社通过Getty Images / Ronaldo Schemidt*
 
-评论选集：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-373.png)图片来源：https://nypost.com/
 
-[Richard](https://www.xiaohongshu.com/user/profile/605a99280000000001000b15) 回复：
+近300名平民在E40公路的姆里亚和米拉之间的公路上被杀，他们试图到达乌克兰控制区。
 
-保重啊，我看到有人发是心跳巨快，医生说疫苗过敏
+*SOPA Images/LightRocket via Getty Images / Mykhaylo Palinchak*
 
-[Vińce](https://www.xiaohongshu.com/user/profile/59b141536a6a692e79147e1b) 回复：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-374.png)图片来源：https://nypost.com/
 
-一直听说辉瑞对心脏有副作用，一直没敢打，你会没事的
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-361.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-362.png)图片来源：小红书
-参考链接:
+2022年4月3日，社区工作人员在布查镇收集两名男子的尸体。
 
-[接种辉瑞第二针后直接进急症](http://xhslink.com/pWuOzg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+*AFP via Getty Images / Sergei Suspinsky*
 
-*发布：tianzhihuan*
+“俄罗斯的母亲! 即使你养育了劫掠者，他们怎么也成了屠夫？”泽伦斯基在周日晚上的讲话中问道。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+“你们不可能不知道你们的孩子体内有什么。你们不可能忽视他们被剥夺了人类的一切。没有灵魂。没有心。他们故意杀人，而且很高兴”。
+
+总统说，他将在国际援助下建立一个“特别司法机制”，以调查俄罗斯占领军犯下的战争罪行。
+
+“世界已经看到了许多战争罪行。在不同的时期。在不同的大陆上。但现在是时候尽一切可能使俄罗斯军队的战争罪行成为这种邪恶在地球上的最后表现。”
+
+来源：[Zelensky wants mothers of Russian soldiers to see their sons’ atrocities in Ukraine](https://nypost.com/2022/04/03/zelensky-wants-mothers-of-russian-soldiers-to-see-their-sons-atrocities-in-ukraine/)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-2.jpeg)
 
  
 

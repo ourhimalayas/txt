@@ -2,32 +2,29 @@
 ---
 
 
-## 砸“郭”是一门生意
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2286230/)
+## 22岁乌克兰女孩击毁一架俄罗斯SU-35S战斗机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2286507/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/FDKWjsQVUAQEKhA.jpg)
-4月3日大直播中，郭先生告诉战友，从开始爆料革命以来，砸“郭”就成为了一门生意。
+**撰稿：日本东京方舟农场 北极**
 
-确切地说是从2015年开始，每隔两三个月，共产党就会有关于污蔑郭先生的一些假料放出，同时有一个所谓有影响力的人站台，把这些假新闻放在大媒体上。这些年来，一路上经过了无数个假民运，假灭共的人，如周孝正、龚小夏、吴征、杨澜等等。共产党的国安和情报系统为了骗钱，把砸郭变成了一项生意，甚至形成了完整的产业链。产业链的运作模式如下：用假情报骗取习近平的亲笔批示，安全部政法委继而拿预算出来，然后会有具体的人来抢夺任务。任务一到手，预算也就到手，接着开始吃喝嫖赌免费旅游，完成任务以后还会论功行赏。如此往复。
+据每日星报（Dailystar）4月3日报道，一名22岁乌克兰女孩成功击毁一架价值3500万英镑的先进俄罗斯SU-35S喷气式战斗机。
 
-在郭先生爆料之前，党内都用法轮功的事情来骗预算。郭先生出来以后，全部矛头都对准爆料革命，也算是间接救了法轮功。体制内告诉郭先生，这笔预算是无法审计的费用。共产党都想着怎么骗钱，当然一年的维稳费用高达几千亿就不足为奇了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-3.jpeg)被击毁的俄罗斯SU-35S战斗机。（图片来自每日星报）
 
+据报道，在乌克兰东部的伊久姆（Izium）市附近，一名22岁的乌克兰女孩使用肩抗式Igla红外地对空导弹击毁了SU-35S。Su-35S战机是SU-35的升级版，是俄罗斯最先进的战机之一，Su-35S战机作战半径达3400公里，可以挂载多达12枚导弹或炸弹。而Igla红对地对空导弹则是俄罗斯制造的，自20世纪80年代以来开发了许多型号的防空导弹。该导弹可以以两倍于声速的速度飞行，飞行高度为11，000英尺。
 
+据乌克兰国会议员安东·格拉申科（Anton Gerashchenko）发布声明称，这架喷气式飞机的飞行员设法成功弹射，但随后在试图逃跑时被乌克兰军队抓住。
 
-撰稿、发布：骄子
+一天前，这名女子还击落了两架俄罗斯喷气式飞机和一架直升机。据报道，这名女子直到几周前还在大学学习，两周前才被教导如何使用Igla。
 
-* * *
+参考链接：
+1. [https://reurl.cc/yQpoWO](https://reurl.cc/yQpoWO)
+2. [https://reurl.cc/dXE9Og](https://reurl.cc/dXE9Og)
+3. [https://reurl.cc/oenpXg](https://reurl.cc/oenpXg)
 
-欢迎订阅我们的GNews账号：
+总编：青城道姑
+发布：文曦
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
