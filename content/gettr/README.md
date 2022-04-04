@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 4:36 AM (UTC)`
+
+4月3号， 大家期待已久的七哥的两首新歌《灭共的雪 The Terminator Snow》和《铁锁梦 Chained Dream》已经正式上线苹果iTunes， 苹果音乐平台了，感谢亲爱的兄弟姐妹们继续打榜支持！👏👏👏👏👏👏👏🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/>灭共的雪 The Terminator Snow by Miles Guo<br/>https://music.apple.com/us/album/%E7%81%AD%E5%85%B1%E7%9A%84%E9%9B%AA-single/1613673794<br/><br/>铁锁梦 Chained Dream by Miles Guo<br/>https://music.apple.com/us/album/%E9%93%81%E9%94%81%E6%A2%A6-single/1615134457
+![img](https://media.gettr.com/group28/getter/2022/04/04/04/ea6beb24-8003-7fa5-d6a6-ac419fadcc2e/da966ffe9d7fe2b28c22fcbb59200b03.jpg)
+
+---
+
 `@miles 4/4/2022 3:39 AM (UTC)`
 
 <br/>【Ukraine Rescue】04/02/2022  Robin, a Belgian veteran, said: You're here to represent the good guys, and only by taking down the bad guys, the world will be happy and we will win!”<br/><br/>【乌克兰救援】04/02/2022 比利时的退伍军人罗宾说 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -150,12 +157,6 @@ Al Jazeera is a Qatari Government-Owned Arabic and English language internationa
 
 俄乌战争战况播报
 ![img](https://media.gettr.com/group43/origin/2022/04/03/17/9459bae5-f159-9471-a6ec-e27171d29231/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 4:50 PM (UTC)`
-
-https://www.bbc.com/news/world-asia-60972186
 
 ---
 

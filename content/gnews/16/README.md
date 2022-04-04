@@ -2,44 +2,52 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2283389/)
+## 穿越时空的枫桥经验
+` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2283488/)
 
-#### **整理：枳实**
-**美工：精灵蓝**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5.png)图片：雅典娜农场设计组 精灵蓝
+作者：香草山写作组—静言
 
 
-雅典娜疫情更新（2022年 4月3日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-23_11.58.11-3.png)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234.png)
+枫桥经验，是指1960年代初，中共为发展社会主义教育的核心价值观，以浙江省宁波专区诸暨县枫桥区（今诸暨市枫桥镇）创造的一种依靠群众而非政府就地监督改造四类分子（地主、富农、反革命、坏分子），发动群众对阶级敌人加强专政的经验。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11170318-11071.jpg.png)图源网络
+
+1962年1月，毛在扩大的中央工作会议上指出： “对于整个反动阶级的专政，必须依靠群众，依靠党。对于反动阶级实行专政，这并不是说把一切反动阶级分子统统消灭掉，而是要改造他们，用适当的方法改造他们，使他们成为新人。“于是神州大地开始轰轰烈烈的“四清运动”，“三反五反”等各种各样的群众运动。
+
+1964年2月，第十三次全国公安会议提出推广六条“枫桥经验”，受到毛的高度赞赏。 1. 党支部加强对治保工作的领导。 
+2. 健全治保组织，保持顽强的战斗力。 
+3. 树立贫下中农的阶级优势，对阶级敌人敢斗敢批。 
+4. 监督改造“四类分子”，对外逃的及时追回，对有破坏活动的就地制服，矛盾不上交。 
+5. 教育改造有违法犯罪行为的人成为新人。 
+6. 巩固集体经济，促进生产。做到发案少，治安好。 
+一句话就是，提倡用所谓“文”的不用用“武”的，以思想教育为主的洗脑方式，监督改造反动分子。但武斗在现实中照样大量发生，文革时期群众被打死的情况天天发生。
+
+十八大以来，习高度重视“枫桥经验”。放弃阶级斗争的提法，强调构建和谐社会，“枫桥经验”也与时俱进，被总结成“党政动手、依靠群众、预防纠纷、化解矛盾、维护稳定、促进发展”的枫桥新经验。
+
+中共运用现代科技将云计算、大数据、人工智能、智能语音等新技术与公安工作深度融合，推出“前哨”“慧眼”“智侦”“神搜”等大量智慧警务手段，应用在基层一线，提升基层社会治理社会化、法治化、智能化、专业化。因地制宜，将地市划分成无数个微网格，构建起“市、乡、村、支、微”五级架构体系。这种体系没有法律功能，仅凭人际关系，贪腐贿赂，其结果会培养出大量村霸，特权阶层，怨民，从而激发社会矛盾，加速动乱。
+
+中共已经更加走向人治，画地为牢，彻底背弃法制，民主，自由。如今遍布全国大小市镇的“朝阳大妈”，及眼下各大城市的疫情防控方式，都是枫桥经验的延续与翻版。
+
+参考来源：
+[枫桥经验](https://zh.m.wikipedia.org/wiki/枫桥经验#%3A~%3Atext%3D枫桥经验，是1960%2C敌人加强专政”的经验%E3%80%82)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-3.jpg)
+
+编辑/校对/发稿：兰兰
+
+更多资讯，更多关注
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
 
 
-[2022年4月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月3日改进.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-23_11.58.11-3.png)
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：wenly
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

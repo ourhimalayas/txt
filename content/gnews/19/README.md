@@ -2,32 +2,34 @@
 ---
 
 
-## 有声|华为无缘先进工艺 去年营收暴跌28%
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2283333/)
+## 樱花时政┃上海幼儿被隔离死 母亲悲痛自杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283368/)
 
-配音：香草山商业部——文锤
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间3月28日，据中共媒体报道，在华为近期举行的“2021年年度报告发布会”上，轮值董事长郭平提到，华为现在面临着“先进工艺不可获得”的困难，即在美国的制裁下，华为无法获取先进的芯片和电子板产品。
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海幼儿被隔离死-母亲悲痛自杀.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fsolacemedia.co.nz%2Fwp-content%2Fuploads%2F2022%2F04%2Fphoto.webp&amp;imgrefurl=https%3A%2F%2Fsolacemedia.co.nz%2F%25E4%25B8%258A%25E6%25B5%25B7%25E5%25A6%2587%25E8%2581%2594%25E5%259B%259E%25E5%25BA%2594%2)
 
-数据显示，华为在2021年的全球营业收入大约为六千三百亿元人民币，这是该公司近十年来首次出现的营收下跌，同比上一年暴跌28%。然而，华为在该年度的净利润却超过了一千一百亿元人民币，同比暴涨了75.9%。对此，孟晚舟只将营收下降归咎于美国的制裁，但对不合理的净利润暴涨语焉不详。
+近日，上海残忍隔离幼儿的视频在各媒体热传，从襁褓之中婴儿到蹒跚前行的幼儿，4个年级不等的孩子在一张婴儿床上，哭声喊声一片，诺大的房间几十张床。
 
-据了解，华为在2021年6月底收到了售卖该公司荣耀部门的近一千亿元人民币，其后，华为还在当年11月商议出售其X86服务器业务。在业务被多番拆卖的情况下，华为先是跌出了中共国手机销售排行榜前五，随后又在2022年中共中国电信服务器招标时落选。
+据传，医护人员人手不够，很多孩子屎尿不能及时处理，有的烂屁股……惨状不可想象。
 
-对此，分析人士指出，手机和服务器等支柱产业的溃败，让本就没有多少研发实力的华为在美国的进一步制裁下举步维艰。至于其净利润的反常暴涨基本上可以被看作是依靠贩卖公司资产而刻意营造出的利好假象。
+今天微信朋友圈传出，一个2岁孩子发烧不治去世，视频里的母亲哭喊：“你们不是救人的吗？随即发出悲怆痛苦的呼叫声，不忍卒耳！她受不了打击自杀身亡！
 
-文字版原文：[华为无缘先进工艺 去年营收暴跌28%](https://gnews.org/zh-hans/2265268/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
+这是幼儿隔离后的第一起命案，如果政策继续，相信不是最后一起。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+哪怕孩子没治了，最后一刻有母亲守护也是临终前的一点关爱。
 
+把毫无自理能力的孩子单独隔离，不知道是哪个领导拍脑瓜的阴招？这也是“相信共产党走进火葬场”最真实的写照，希望越来越多的中国人能从这些血的代价里醒悟！
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
