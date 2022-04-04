@@ -15,29 +15,29 @@
 
 ---
 
-### [斯里兰卡深陷中共债务陷阱 民众示威迫使政府所有部长下台](/content/gnews/1/README.md)
+### [专业学者对加拿大中共化的分析](/content/gnews/1/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [斯里兰卡深陷中共债务陷阱 民众示威迫使政府所有部长下台](/content/gnews/2/README.md)
  ` 日本東京方舟農場`
 
-### [加拿大生活美谈 2022-03-31第四十九期](/content/gnews/2/README.md)
+### [加拿大生活美谈 2022-03-31第四十九期](/content/gnews/3/README.md)
  ` canadalifetalk`
 
-### [泽伦斯基谴责俄军在乌克兰犯下“种族灭绝”罪行](/content/gnews/3/README.md)
+### [如何保障强大的生物计算机运行？](/content/gnews/4/README.md)
+ ` mayflowertranslate`
+
+### [泽伦斯基谴责俄军在乌克兰犯下“种族灭绝”罪行](/content/gnews/5/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [巴基斯坦政局动荡 国民议会获准解散 并提前举行大选](/content/gnews/4/README.md)
- ` 日本東京方舟農場`
-
-### [4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事](/content/gnews/5/README.md)
+### [4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事](/content/gnews/6/README.md)
  ` 秘密翻译组-北美组`
 
-### [上海全面封城 民众怨声载道](/content/gnews/6/README.md)
+### [上海全面封城 民众怨声载道](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【#G时新闻】俄罗斯军队在乌克兰损失惨重](/content/gnews/7/README.md)
+### [【#G时新闻】俄罗斯军队在乌克兰损失惨重](/content/gnews/8/README.md)
  ` G-时新闻`
-
-### [锁链女之歌力量超过导弹（四）](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
 
 ### [樱花时政┃日本人道组织呼吁政府加快接收乌克兰难民](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

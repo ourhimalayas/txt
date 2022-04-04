@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 11:01 PM (UTC)`
+
+2022.04.04 NFSC  Ukraine has regained full control of Kyiv region
+![img](https://media.gettr.com/group35/origin/2022/04/04/22/df1caba5-a246-db9f-5bb2-6743a5962f7b/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/4/2022 10:03 PM (UTC)`
 
 新中国联邦 法治基金 飞飞秀救援快报 2022-04-04<br/>For English: gettr.com/post/p13kkrb6b24
@@ -147,13 +154,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 4月3号， 大家期待已久的七哥的两首新歌《灭共的雪 The Terminator Snow》和《铁锁梦 Chained Dream》已经正式上线苹果iTunes， 苹果音乐平台了，感谢亲爱的兄弟姐妹们继续打榜支持！👏👏👏👏👏👏👏🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/>灭共的雪 The Terminator Snow by Miles Guo<br/>https://music.apple.com/us/album/%E7%81%AD%E5%85%B1%E7%9A%84%E9%9B%AA-single/1613673794<br/><br/>铁锁梦 Chained Dream by Miles Guo<br/>https://music.apple.com/us/album/%E9%93%81%E9%94%81%E6%A2%A6-single/1615134457
 ![img](https://media.gettr.com/group28/getter/2022/04/04/04/ea6beb24-8003-7fa5-d6a6-ac419fadcc2e/da966ffe9d7fe2b28c22fcbb59200b03.jpg)
-
----
-
-`@miles 4/4/2022 3:39 AM (UTC)`
-
-<br/>【Ukraine Rescue】04/02/2022  Robin, a Belgian veteran, said: You're here to represent the good guys, and only by taking down the bad guys, the world will be happy and we will win!”<br/><br/>【乌克兰救援】04/02/2022 比利时的退伍军人罗宾说 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group22/getter/2022/04/04/03/8345f31d-d2ad-f935-08eb-0c65fecc20ce/out.jpg)
 
 ---
 
