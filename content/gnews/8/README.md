@@ -2,22 +2,27 @@
 ---
 
 
-## 郭文贵盖特音频2022.04.02
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2287674/)
+## 日本自媒体人被新中国联邦灭共壮举感动
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287733/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/out-3.jpg)
-### 视频链接：
+作者：纽约香草山农场 文真
 
-[https://gettr.com/post/p1379fx9b8e](https://gettr.com/post/p1379fx9b8e)
+波兰当地时间4月3日，一位来自日本的自媒体人在米蒂卡，法治基金-新中国联邦的帐篷内，接受了救援前线队员妮可的采访。当这位日本人听到妮可介绍，新中国联邦人是灭共的新中国人时，感到非常震惊。
 
-### 音频链接：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-3.jpeg)
 
+他用不熟练的英语试图表达他的感受。他说，日本人通常都觉得中国人的形象就是中共政府。这是他生平第一次听到，新中国联邦要消灭中国共产党。他感到非常的印象深刻。
 
+当他听说，一个名叫Miles Guo的中国人正在带领中国人灭共时，他手捂着胸口，接连说了几遍“感动“。他表示，他会用自媒体的方式力挺新中国联邦，传播灭共的使命。
 
+参考链接：[东京来的自媒体人](https://gettr.com/post/p13c606bc5b)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-编辑发布：闪电训练
+总编：文真
+编辑：Jack Li文阳   
+审核：Ivy001
+校正/发稿：谐趣园
 
  
 

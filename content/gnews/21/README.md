@@ -2,39 +2,32 @@
 ---
 
 
-## 有声|俄罗斯石油海运还在继续，波兰总理喊话制裁必须加码
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2287514/)
+## 樱花时政┃虚假宣传泛滥！中共官媒再次被推特添加警示标签
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2287556/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-根据Ukrinform 报道，乌克兰黑海战略研究所所长 Andriy Klymenko经过研究发现，3月中下旬，俄罗斯依然能在19个国家116艘邮轮的帮助下，通过出售石油获得必要的外汇。这其中希腊以51艘油轮 (44%)位列第一位，俄罗斯以29 艘油轮 (25%)排名第二，土耳其，摩纳哥、新加坡分别位列第三至第五名。
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+继给中共官媒在推特的账号加注国家媒体的标签后，社交媒体推特近日再次加强了对中共官媒的把关，给所有包含中共官媒网页链接的推文加注了新的警示标签。
 
-加之莫斯科政权还能够通过其他渠道获得资金平抑卢布汇率，使得俄罗斯经济依然还能在崩溃边缘维系，普京政权能够继续苟延残喘。为了加速独裁政府的倒闭，帮助乌克兰人民脱离战火，同时也为了帮助俄罗斯人民获得民主与自由，西方文明国家已经开始酝酿新一轮对于俄罗斯的经济制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-38.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F3582%2Fproduction%2F_110289631_chinese_diplomats_twitter_illustration_640-nc.png&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fnews%2Fworld-asia-china-50832915&amp;tbnid=)
 
-这一点从2022年4月2日，波兰总理 Mateusz Morawecki在访问华沙附近 Otwock 的乌克兰难民中心期间与欧洲议会主席 Roberta Mezzola 举行联合新闻发布会时就能凸显端倪。
+据美国之音网站周日报道称，推特在带有橘黄色惊叹号的标签中提示道：“这条推文链接到了中共国附属媒体的网站”。推特发言人称，这样做的目的是为了提供有关他们代表中共政府的背景信息，也同时保护推特上对话的诚信度，并且使被警示的推特内容减少影响力，至少减少百分之三十。
 
-波兰总理 Mateusz Morawecki的发言首先提出，“迄今为止对俄罗斯实施的制裁并不适用，卢布的汇率重返战前水平便是最好的证明。”
+报道还引述相关研究报告称，乌克兰战争爆发后，中共官媒开始帮助宣传俄罗斯的立场和美化其入侵的理由，有时甚至原封不动地发布来自俄罗斯方面的虚假信息甚至阴谋论。
 
-他随后提出重点，“如果乌克兰不捍卫其独立和主权，那么欧洲将表现出软弱，它将被羞辱、无法采取行动保护其基本的、普遍的价值观，例如自由、生命权。这就是为什么今天要说的重要原因：我们需要更多真正的制裁，但也需要更多真正的资金。”
+可见，中共媒体的虚假报道和宣传，已经引起了国际社会的警惕和反感。
 
-波兰作为帮助乌克兰逃离战火的主要国家，波兰总理向欧洲各国领导人喊话，“我每天都会收到有关在乌克兰遇害的儿童和妇女的照片和视频的报告，普京在乌克兰每天都犯下战争罪行。“亲爱的欧洲领导人，如果你不理解这一点，那将是行不通的。在对俄罗斯采取果断行动时，我们必须保持团结。”
+信息来源：[推特给中国官媒加添警示标签](https://www.rfa.org/mandarin/Xinwen/8-04032022162855.html)
 
-欧洲作为资本主义的发源地，讲究效率，追究利润，重视商业是他们保持竞争力的核心。面对俄乌战争，面对俄罗斯的能源威胁，面对人道主义危机，欧盟国家能够排除内部矛盾，协调商业于道德之间的关系，拯救被战火包围的同类，一致制裁邪恶的独裁者的行动，是一次灵魂自我救赎的行为。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-文字版原文：[俄罗斯石油海运还在继续，波兰总理喊话制裁必须加码](https://gnews.org/zh-hans/2281580/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
