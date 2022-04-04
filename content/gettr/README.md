@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 1:08 AM (UTC)`
+
+2022.04.03 晚  新中国联邦 | 新闻访谈   从红旗导弹系统谈全球自动灭共态势的形成； 俄军士兵用乌军子弹自残逃避战争； 继续关注墙内被邪恶中共封锁下的民生
+![img](https://media.gettr.com/group36/origin/2022/04/04/01/b32dc30e-5095-1929-e71a-692c51724582/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/4/2022 1:07 AM (UTC)`
+
+4/3/2022 Miles Guo: What kind of threats will the HQ series anti-missile system deployed by the CCP in Serbia pose to NATO and the US? The CCP will set up the HQ series missiles system in the Balkans, the Middle East, and the small countries near the Middle East. Only the HQ missile system uses the CCP’s BeiDou Navigation Satellite System. The CCP will form a quasi-alliance with North Korea, Russia, and Syria to target the US. Xi Jinping is on a journey of no return.<br/><br/>4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？中共将在巴尔干地区、中东和中东周边小国部署红旗导系统，这是中共唯一使用北斗导航系统的导弹系统；中共将和北朝鲜、俄罗斯和叙利亚形成针对美国的准联盟，习已走上不归路！<br/>
+![img](https://media.gettr.com/group8/getter/2022/04/04/01/88bd324b-695c-0853-66c0-740b33908093/out.jpg)
+
+---
+
 `@miles 4/4/2022 12:33 AM (UTC)`
 
 2022.04.03 晚 新中国联邦 | 新闻   真相和真情 推动钢琴家公开支持新中国联邦；乌克兰海港城市敖德萨遭俄军空袭
@@ -144,20 +158,6 @@ MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group32/origin/2022/04/03/05/3ef503ec-f9fe-c160-a255-39569fb53348/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 3:03 AM (UTC)`
-
-2022-4-2《鸡血王喜币大作战》 第一百五十三集 嘉宾：卡丽熙、Eric
-![img](https://media.gettr.com/group5/origin/2022/04/03/03/6170eab9-1f58-68d5-95ca-f7e31a1f589e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 2:14 AM (UTC)`
-
-2022.04.02 NFSC finance 新中国联邦 | 喜财经  货币的本质是信用，信用的本质是流通；⻩金为什么不适合做货币
-![img](https://media.gettr.com/group28/origin/2022/04/03/01/b7e0c215-7c42-c7fc-cd40-bbc692f49532/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
