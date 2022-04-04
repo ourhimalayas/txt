@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 11:53 PM (UTC)`
+
+4/4/2022 Miles Guo’s GETTR: Zheng Jiefu, a running dog of the CCP, was deported to Communist China by the Australian government. It’s said that Qu Long would be sentenced to death. Almost all family members of Dong Xiansheng, who helped Qu Long to set me up, were arrested. Several judges in Chengde, Hebei, who assisted Dong, were also thrown into jail. All is the retribution for their sins!<br/><br/>4/4/2022 文贵盖特：中共走狗郑介甫被澳洲政府遣返了，曲龙听说要被判死刑，帮曲龙害文贵的董仚生全家也基本被抓了，帮董仚生的几个河北承德法官也被抓了，这都是他们的报应啊！<br/>
+![img](https://media.gettr.com/group12/getter/2022/04/04/23/dd219d4e-c9a4-e0eb-4b39-541f2a6e1db3/out.jpg)
+
+---
+
+`@miles 4/4/2022 11:49 PM (UTC)`
+
+4/3/2022 Miles Guo: The CCP-controlled Al Jazeera's smearing of the Whistleblowers’ Movement and I shows that we have hit the sore spot with the CCP. Going against me is a business, and the whistleblowers’ Movement has become the biggest excuse for the CCP's Grand Overseas Propaganda Campaign and the intelligence system to cheat the CCP out of money!<br/><br/>4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口！<br/>
+![img](https://media.gettr.com/group40/getter/2022/04/04/23/2b81835c-52ac-ae64-fed9-77a6bd08efbd/out.jpg)
+
+---
+
 `@miles 4/4/2022 11:39 PM (UTC)`
 
 2022.04.04《The Fringe》 Episode 161
@@ -140,20 +154,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 《灭共的雪 The Terminator Snow》已经上榜澳大利亚🇦🇺iTunes 摇滚歌曲第一名🥇, 感谢澳大利亚的兄弟姐妹们🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏🙏
 ![img](https://media.gettr.com/group40/getter/2022/04/04/06/6c3a8823-7b88-8098-5db8-f6b4be57edc9/118d7a29a599909b2421869869610c2b.jpg)
-
----
-
-`@miles 4/4/2022 5:48 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group43/origin/2022/04/04/05/a3140fc6-21a2-3c55-8150-cfaaa081c0d7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 5:03 AM (UTC)`
-
-4/3/2022 Miles Guo: The COVID vaccine disaster will bring about the energy revolution and the digital era. Elon Musk will be the game changer of telecommunications and transportation vehicles. The era of stem cells is around the corner, and the era of the mixing of races when people are no longer divided by their races/ethnicities, regions, and religious beliefs is coming, leading to the time of democracy without autocracy. Mankind will also go to outer space. The New Federal State of China will create a new human civilization, and the unvaccinated will have an infinite number of offspring.<br/><br/>4/3/2022 文贵直播：疫苗灾难后，人类将产生能源革命并进入数字化时代，马斯克将改变通信和运载工具；干细胞时代将到来，人类繁殖种族混血的时代将到来，无种族、地域和宗教区分、无皇有主的时代将到来，人类将走向外太空；新中国联邦将创造人类新文明，无苗族后代延绵不绝
-![img](https://media.gettr.com/group26/getter/2022/04/04/05/f31320a9-806b-57bc-826b-c2c2efe957fa/out.jpg)
 
 ---
 
