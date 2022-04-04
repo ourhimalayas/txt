@@ -2,21 +2,18 @@
 ---
 
 
-## 视频|部分中共病毒患者痊愈后心脏功能减退
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2284231/)
+## 中国会在即将到来的战争中毁灭而老百姓能够救自己的就是依靠HPAY (七）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284309/)
 
-制作：香草山视频部
+#### PPT 制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：35-10：40-007.jpeg)
+*发布：陶子*
 
-日本广播协会 (NHK）4月1日报道称，日本循环器学会组织的一项调查发现，部分新冠病毒感染者在康复出院3个月后，出现心脏功能减退等症状。
-调查人员从东京等地的7家医疗机构收治的中共病毒中度及重度患者中，筛选了数百名没有心脏病史的感染者，根据其血液检查结果对存在心脏病风险的31人进行了详细调查。调查结果发现，这些患者出院3个月后，有13人出现心脏功能减退的症状，占总人数的42%，另有8人出现了心肌炎的症状。
-负责调查的佐贺大学医学部教授野出孝一表示，即使中共病毒感染已经痊愈也要长期观察身体状况，一旦发现异常要立刻就医。
-专家还表示日本最近的单日确诊数量呈上升趋势，要密切关注疫情发展情况，并切实做好各项防疫措施，严防疫情反弹。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

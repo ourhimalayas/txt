@@ -2,20 +2,18 @@
 ---
 
 
-## 视频|俄罗斯近78万人死于中共病毒
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2284206/)
+## 中国会在即将到来的战争中毁灭而老百姓能够救自己的就是依靠HPAY (六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284306/)
 
-制作：香草山视频部
+#### PPT 制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：35-10：40-006.jpeg)
+*发布：陶子*
 
-据4 月 1 日路透社消息，根据俄罗斯国家统计局（Rosstat）周五的新数据计算得出，自 2020 年 4 月中共病毒大流行开始以来，俄罗斯与其相关的死亡总数已达77万8千人。
-据称，俄罗斯2 月份有43,201人直接或间接死于中共病毒，高于 1 月份的 35,807 人。去年11 月，俄罗斯中共病毒致死人数创下近 9万人的月度新高，仅次于美国。
-路透社的数据还显示，与 2015-2019 年的平均死亡率相比，自 2020 年 4 月大流行开始至2022年2月底，俄罗斯记录的超额死亡人数超过 95万8千人。流行病学家表示，超额死亡人数指的是某地区在一段时间内，由于突发公共卫生事件造成的全因死亡人数高出正常同期全因死亡人数的部分。在中共病毒全球大流行的背景下，超额死亡人数是评估疫情真实影响的最佳方法。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 5:48 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group43/origin/2022/04/04/05/a3140fc6-21a2-3c55-8150-cfaaa081c0d7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/4/2022 5:03 AM (UTC)`
 
 4/3/2022 Miles Guo: The COVID vaccine disaster will bring about the energy revolution and the digital era. Elon Musk will be the game changer of telecommunications and transportation vehicles. The era of stem cells is around the corner, and the era of the mixing of races when people are no longer divided by their races/ethnicities, regions, and religious beliefs is coming, leading to the time of democracy without autocracy. Mankind will also go to outer space. The New Federal State of China will create a new human civilization, and the unvaccinated will have an infinite number of offspring.<br/><br/>4/3/2022 文贵直播：疫苗灾难后，人类将产生能源革命并进入数字化时代，马斯克将改变通信和运载工具；干细胞时代将到来，人类繁殖种族混血的时代将到来，无种族、地域和宗教区分、无皇有主的时代将到来，人类将走向外太空；新中国联邦将创造人类新文明，无苗族后代延绵不绝
@@ -150,13 +157,6 @@ Al Jazeera is a Qatari Government-Owned Arabic and English language internationa
 
 2022.04.03  新中国联邦 | 喜健康   新变种BA.2在前线战友中的感染和治疗
 ![img](https://media.gettr.com/group33/origin/2022/04/03/20/8ee9c9b6-5e04-365b-9532-56a90fff342f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 6:38 PM (UTC)`
-
-2022-4-3 “不完美，又如何？” #小小尼莫音乐会，第五期🎼，#littlenemoconcert，一起成长，破茧成蝶
-![img](https://media.gettr.com/group26/origin/2022/04/03/18/0ffef871-bc0e-85ff-d158-0dd9ec620952/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
