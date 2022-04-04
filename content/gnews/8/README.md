@@ -2,37 +2,44 @@
 ---
 
 
-## 樱花时政┃山东一大学研究生因反对全员核酸被开除学籍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283213/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2283389/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-3月27日，山东省烟台市鲁东大学历史文化学院中国史专业2020级硕士研究生孙健，在校园内举着“鲁东解封”、“坚决反对如此高频率核酸检测”的牌子，高调反对反对校园封闭管理和全员核酸检测。
+#### **整理：枳实**
+**美工：精灵蓝**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/山东一大学研究生因反对全员核酸被开除学籍.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5.png)图片：雅典娜农场设计组 精灵蓝
 
-次日，孙健因”扰乱单位秩序罪“，被警方处以”警告“行政处罚。
 
-在警方向他送达的《行政处罚决定书》上，孙健拒绝签字。
+雅典娜疫情更新（2022年 4月3日）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/山东一大学研究生因反对全员核酸被开除学籍2.png)
+[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-3月31日，孙健迎来了更严厉的处罚，遭校方开除学籍。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
 
-硕士研究生因公开表达对全民核酸的不同意见而被高校开除学籍，此事恐怕开创了中共高校的先河。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-2.png)
 
-看来，中共大学校园里，容不下一张“异见者”的书桌。
 
-孙健这种虽看起来“叛逆”，实则具有独立思想有抗争精神的学生，如果换一方土壤，说不定就是未来的乔布斯川普马斯克，中共国的人才就是这样被扼杀在摇篮里，剩下一堆投机钻营见风使舵的庸才！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+[2022年4月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月3日改进.pdf)
+
+数据来源：
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+[Our world in data](https://ourworldindata.org/coronavirus-data)
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
+[covidlive.com.au](https://covidlive.com.au/)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：wenly
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,26 +2,26 @@
 ---
 
 
-## 中共在俄军入侵乌克兰前发动网络攻击
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2283036/)
+## 李显龙：制裁俄罗斯不是选边站，而是选择捍卫原则
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283198/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+作者： 澳喜—追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+国外媒体4月2日报道，新加坡总理李显龙在结束对美国八天工作访问之际，在纽约对随行媒体总结此行时，称新加坡制裁俄罗斯，不是选边站，而是捍卫基本国际原则和新加坡的长期利益。并向记者进一步解释，在乌克兰问题上，新加坡对俄罗斯采取有针对性的制裁措施，是希望阻止俄罗斯对乌克兰的伤害。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-03-下午10.38.36.png)
+据悉，新加坡外交部在3月5日就通过声明宣布，新加坡针对指定的俄罗斯银行、实体及其在俄罗斯的活动，以及有利于俄罗斯政府的筹款活动等实施金融制裁措施。新加坡政府还对可“直接用作对乌克兰人造成伤害或征服”的物品，以及有助于进攻性网络行动的物品实施出口管制。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490389821.png)图片来源：Theguardian
+参考链接：
+1.[新加坡李显龙：制裁俄罗斯不是选边站，而是选择捍卫原则](https://gnews.org/zh-hans/2272604/)
+2.[李显龙总理：新加坡制裁俄罗斯非选边而是选择捍卫原则](https://www.zaobao.com/realtime/singapore/story20220402-1258598)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-据英国《卫报》4月2日报道，中共在提前知晓俄罗斯入侵乌克兰计划的情况下，于发动战争前夕，对乌克兰主要军事目标及核电厂等关键设施实施了网络攻击。
-
-据悉，包括国防部、金融系统及核基础设施等重要机构在内的600多个乌克兰网站，在俄罗斯入侵前，均遭到中共军方数千次黑客攻击，并在2月23日俄军入侵的前一天达到高峰。
-
-专家指出，情报中所披露的黑客攻击方式符合中共一贯战术，即通过扫描IT基础设施找出漏洞然后发起攻击。牛津大学教授马丁对此表示，中共在俄军发动战争前夕，对乌克兰实行了高强度的网络情报窃取和破坏性攻击，证实了普京当局和习近平政权合谋占领乌克兰的侵略计划。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：[https://www.theguardian.com/technology/2022/apr/01/china-accused-of-launching-cyber-attacks-on-ukraine-before-russian-invasion](https://www.theguardian.com/technology/2022/apr/01/china-accused-of-launching-cyber-attacks-on-ukraine-before-russian-invasion)
-
+编辑：飞虹
+总编：Zion文恩
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
