@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 3:17 PM (UTC)`
+
+4月4号 澳媒报道郑介甫被澳大利亚安全情报局(ASIO)指控在澳展开间谍活动，危害国家安全，近日已被驱逐出境。<br/><br/>早在2015年郑介甫就出现在澳洲媒体上对郭文贵先生进行抹黑报道。郑介甫向媒体诬称，他价值超过20亿澳元的房地产公司被郭文贵先生与安全部副部长马建联手侵占。<br/><br/>2017年4·19美国之音“断播门”发生后的第二天，郑介甫又接受了媒体的“采访”，诬称郭先生的爆料“都是垃圾，他说的话有百分之九十九是不真实的。”<br/><br/>2017年郑介甫曾多次与伪民运西诺，韦石的博讯媒体合作报道，抹黑造谣郭先生。<br/><br/>中共走狗郑介甫被澳洲政府驱逐，证明西方世界已经觉醒，联合灭共已经开始！<br/><br/>https://gnews.org/zh-hans/2286058/<br/><br/>https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html
+
+---
+
 `@miles 4/4/2022 2:34 PM (UTC)`
 
  4月4号：尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！
@@ -147,13 +153,6 @@
 
 2022.04.03 晚  新中国联邦 | 新闻访谈   从红旗导弹系统谈全球自动灭共态势的形成； 俄军士兵用乌军子弹自残逃避战争； 继续关注墙内被邪恶中共封锁下的民生
 ![img](https://media.gettr.com/group36/origin/2022/04/04/01/b32dc30e-5095-1929-e71a-692c51724582/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/4/2022 1:07 AM (UTC)`
-
-4/3/2022 Miles Guo: What kind of threats will the HQ series anti-missile system deployed by the CCP in Serbia pose to NATO and the US? The CCP will set up the HQ series missiles system in the Balkans, the Middle East, and the small countries near the Middle East. Only the HQ missile system uses the CCP’s BeiDou Navigation Satellite System. The CCP will form a quasi-alliance with North Korea, Russia, and Syria to target the US. Xi Jinping is on a journey of no return.<br/><br/>4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？中共将在巴尔干地区、中东和中东周边小国部署红旗导系统，这是中共唯一使用北斗导航系统的导弹系统；中共将和北朝鲜、俄罗斯和叙利亚形成针对美国的准联盟，习已走上不归路！<br/>
-![img](https://media.gettr.com/group8/getter/2022/04/04/01/88bd324b-695c-0853-66c0-740b33908093/out.jpg)
 
 ---
 

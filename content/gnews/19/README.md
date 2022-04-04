@@ -2,38 +2,38 @@
 ---
 
 
-## 微信暂停NFT账户以“避免数字资产投机”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2286814/)
+## 乌克兰首都基辅郊外布查镇（Bucha）曝尸街头餐象横生
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2286939/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
+乌克兰官员4月3日（周六）表示，乌克兰军队已经夺回了基辅周围的 30 多个城镇和村庄，自俄罗斯发动入侵以来首次声称完全控制了首都地区。
 
-翻译：学森永爱7哥
-编辑：Rianna
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-369.png)
-微信已禁止大量与非同质化代币（NFT）相关的公众号。微信澄清说，并非完全禁止 NFT，但微信不允许其二次销售数字产品，因为它们具有投机性质。 腾讯旗下的微信拥有 12 亿用户，是迄今为止中国最大的通信平台，也是全球最大的平台之一。但正如当地一家财经新闻媒体透露的那样，微信并不是 NFT的忠实粉丝，NFT已经风靡全球，这个新兴市场去年达到410 亿美元，几乎与艺术市场相匹配。
+在首都西北 37 公里处邻近 Irpin 的小镇 Bucha，据路透社记者称，看到街道上散落着尸体，多具尸体的手脚从教堂场地的一个仍然敞开的坟墓中探出。
 
-新浪报道称 ，微信已经暂停了数十个广泛推广非同质化代币的公众号。据中国数字货币记者 Colin Wu 称，微信要求此类账户“拥有中国政府提供的区块链公司备案，并且不允许二次交易”。
+Bucha，市长 Anatoliy Fedoruk 表示，已有 300 多名居民被杀。许多居民泪流满面地回忆起与死亡的擦肩而过，并诅咒着逝去的俄罗斯人。
 
-中国目前没有任何关于NFT的规定。但是，它已经全面禁止数字货币以及ICO和区块奖励挖矿，这让中国NFT粉丝只能选择通过人民币购买数字货币。政府对可以挖矿的区块链网络也有一些限制，使得政府能够在发展区块链网络上占得先机。
+抱歉以下图片可能会冒犯或打扰。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image001.jpg)至少20具遗体散落在一条街道上，都穿着平民衣服，其中一人双手被用一条白布绑在背后，他的遗体旁有他的乌克兰护照。据居民说，他被俄罗斯士兵枪杀。（照片：法新社）
+2022 年4 月3 日，乌克兰布查位于基辅西北方37公里处。有报道称，俄军从布查仓促撤退后，留下数百具乌克兰平民遗体。当地官员称，布查几个乱葬岗发现近300具乌克兰平民遗体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image003.jpg)2022年4月3日，在离乌克兰首都基辅不远的布查镇，一名工作人员松开了一名双手被反绑的死者的手腕。(SERGEI SUPINSKY/AFP via Getty Images)![](https://assets.gnews.org/wp-content/uploads/2022/04/image005.jpg)2022年4月3日，在乌克兰首都基辅西北部的布查镇，人们在一座教堂后面看到一个乱葬岗。(SERGEI SUPINSKY/AFP via Getty Images)![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image009-1.jpg)2022年4月3日，（上图）在离乌克兰首都基辅不远的布查镇，一条狗躺在一具男子的尸体旁，可能是它的主人；（下图）当社区服务人员收集该男子的尸体时，狗做出反应。(SERGEI SUPINSKY/AFP via Getty Images)
+路透社就记者目睹的尸体向克里姆林宫和俄罗斯国防部提出问题，但没有立即得到答复。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image011.jpg)周日，布查的道路上到处都是未爆弹药。火箭从停机坪上探出，靠近烧毁的坦克残骸。乌克兰布查的一条街道上到处都是战争的残骸。照片：法新社![](https://assets.gnews.org/wp-content/uploads/2022/04/image013.jpg)在基辅西北部的布查，人们在屋外哭泣。照片：法新社 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image015.jpg)les corps découverts à Boutcha « soulèvent de sérieuses questions quant à d’éventuels crimes de guerre », selon l’ONU © STRINGER / REUTERS![](https://assets.gnews.org/wp-content/uploads/2022/04/image017.jpg)图为解放后的布查镇一座被毁的建筑。照片：法新社或许可人![](https://assets.gnews.org/wp-content/uploads/2022/04/image019.jpg)
+乌克兰检察总长维涅迪克托瓦4月3日表示，当局在不久前从俄罗斯军队手中夺回的首都基辅地区，共找到410具平民尸体。泽连斯基表示：俄罗斯部队对布查镇实施的酷刑和谋杀要担责任。他表示：乌克兰设立的特殊的机制调查俄罗斯在乌克兰犯下的所有的罪行。
 
-在拥有近6亿用户的中国版Twitter微博上，微信澄清了自己的立场，称其最近“对用于投机和二次销售数字货币公众号和小程序进行了规范和整顿”，微信方面补充说，这是“根据国家有关规定进行的，以防止虚拟货币交易中的投机风险”。
+【援引连结】
 
-母公司腾讯拒绝回答媒体关于停牌的问题。这家游戏、娱乐和社交媒体公司与蚂蚁集团一起领导了一项倡议，涉足NFT，成为世界上第一个获得联合国批准的数字货币标准项目。
-
-一些被暂停的公众号，包括一个名为 Spirit Leap的账户告诉《南华早报》，他们在被其他类似公众号举报后被暂停。在微信上，这些帐户不再出现在搜索结果中，访问它们的现有订阅者会收到一条提示，说明“此帐户没有发布、传播或从事相关业务活动的合法许可”。
-
-正如微信进一步声明，公众号只能显示数字货币的初始销售情况。此外，运营商必须提供“与中国网信办认可的区块链公司”的合作证明。
-
-原文链接：[https://coingeek.com/wechat-suspends-NFT-accounts-to-avoid-speculation-in-digital-assets/](https://coingeek.com/wechat-suspends-NFT-accounts-to-avoid-speculation-in-digital-assets/)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

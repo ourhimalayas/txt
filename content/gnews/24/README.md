@@ -2,40 +2,25 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.4）&#8211;打完康诺希，我感觉我快废了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2286762/)
+## 英国称对乌平民的袭击必以战争罪调查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2286852/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+作者：澳喜 追着曙光跑
 
-整理/编辑：gardeniahu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-7.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+外媒4月3日报道，英国外交大臣丽兹·特拉斯表示，在俄罗斯入侵乌克兰期间，对平民的袭击行为，必须作为战争罪进行调查，英国将完全支持国际刑事法院的相关行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-8.jpg)
+俄罗斯此前否认针对平民的袭击，并否认，在其所谓的乌克兰“特别军事行动”中犯有战争罪的指控。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+丽兹在一份声明中指出，随着俄罗斯入侵军队被迫撤退，越来越多的证据表明，入侵部队在基辅郊区的伊尔平和布查等城市，犯下了骇人听闻的罪行。俄军不分青红皂白地攻击无辜平民的行为，必须作为战争罪进行调查。
 
-帖子原文：
+参考链接：[UK says alleged attacks on civilians in Ukraine must be investigated as war crimes](https://www.reuters.com/world/europe/uk-says-alleged-attacks-civilians-ukraine-must-be-investigated-war-crimes-2022-04-03/)
 
-**疫情|新冠疫苗副作用    打完康诺希，我感觉我快废了**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-晚上半夜持续发冷，浑身酸疼！好不容易熬到早上，买了体温计，医生却告诉我，多喝水，熬到10 点，如果体温还不降下来，就去医院看内科！右手臂打针的手，连被子都端不好！起床也不敢碰到那个手。我家狗刚才不小心，踩了一下我的手臂，那个疼！！！我想说，如果在选一次，我可能不会去打了！一整晚，能把我从睡梦中痛醒，这是什么概念！起来倒水喝，身体冻的直发抖！我体质挺好的，一年也没见感冒……现在打了疫苗，反而，躺在床上还不知道后期到底有没有副作用。
-
-发布于2021．05．05
-
-精选评论
-
-小土豆    回复：我是前几天打的，打的时候嘛事没有，上午开始冷，浑身冷的不行，还困和吃了迷魂药一样，下午没啥症状，晚上开始发烧。身上火一样39度，并伴随腰两侧肌肉酸痛和折了一样，一晚上醒了好几次，我也没敢吃药。转天又发烧了一天，到晚上腰还疼的不行，再转天才不发烧，但是胳膊疼了好几天。我是4月26打的，现在针眼是一个硬疙瘩。
-
-走向我    回复：我打完这个一针的晚上头疼起来再一躺下，头嗡嗡的心跳加速，发烧38.6度，太难受了。吃了一片布洛芬好了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-364.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-365.png)图片来源：小红书
-参考链接：[打完康希诺，我感觉我快废了](https://www.xiaohongshu.com/discovery/item/6091e7370000000001026ff8?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649050618)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+总编：文真 
+编辑：静言
+审核：文真
+校正/发稿：Fei797
 
  
 

@@ -2,64 +2,30 @@
 ---
 
 
-## 铁汉柔情的保镖&#8211;小小酥
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2286945/)
+## 马斯克收购Twitter 9.2%股份成Twitter 最大股东
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2287097/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-Medyka(梅迪卡，波兰与乌克兰过境点)当地时间下午2点
+**撰稿：日本东京方舟农场 JIHO**
 
-这是一波
+根据福布斯消息, Twitter周一在美国证券交易委员会提交的文件中披露, 特斯拉首席执行官埃隆·马斯克 (Elon Musk) 已收购社交媒体巨头 Twitter 9.2% 的股份。而此前几周，这位亿万富翁一直在指责 Twitter 未能遵守言论自由原则。
 
-这可能是一个大家庭的人
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-47.png)（图片来自网络）
 
-他们准备整装待发
+Twitter在其监管文件中表示，马斯克在社交媒体平台上购买了约 7340 万股普通股。
 
-去赶公交车了 然后我们的这个保安
+这一披露导致推特股价在美国东部时间周一上午 7 点 15 分的盘前交易中飙升 25%。
 
-帮着去把这位长者
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-34.png)（图片来自TradingView）
 
-推出去然后推上公交车
+Twitter平台不遵守言论自由原则，打压病毒、疫苗真相已成既定事实，马斯克的入股会有怎样的变化，让我们拭目以待。
 
-我们的
+参考链接：
+1.[https://twitter.com/tradingview/status/1510953521285369860](https://twitter.com/tradingview/status/1510953521285369860)
+2.[https://reurl.cc/pWzXEr](https://reurl.cc/pWzXEr)
 
-这次七哥帮我们请的这些保安呢
+总编：青城道姑
+校对发布：爱放飞
 
-真的都是铁汉柔情
-
-非常负责任的保安
-
-然后呢我可以看出来
-
-他们假设你看这个保安比如说
-
-在我们后面这个地方坐着
-
-但其实他的眼睛呢
-
-我知道
-
-我可以看出来他的眼睛其实都是在
-
-时时刻刻注意着
-
-各种各样的安全隐患
-
-素材提供：蓝色天空
-软件听写：小白咖啡馆
-字幕添加：小白咖啡馆
-最终审核：文倩
-发布/上传: hongyeca
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

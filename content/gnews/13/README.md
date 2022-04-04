@@ -2,38 +2,50 @@
 ---
 
 
-## 乌克兰首都基辅郊外布查镇（Bucha）曝尸街头餐象横生
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2286939/)
+## 欧盟将在布查杀人事件后对俄罗斯实施新的制裁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287044/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
-乌克兰官员4月3日（周六）表示，乌克兰军队已经夺回了基辅周围的 30 多个城镇和村庄，自俄罗斯发动入侵以来首次声称完全控制了首都地区。
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-382.png)图片来源：https://www.axios.com/
 
-在首都西北 37 公里处邻近 Irpin 的小镇 Bucha，据路透社记者称，看到街道上散落着尸体，多具尸体的手脚从教堂场地的一个仍然敞开的坟墓中探出。
+周日，在乌克兰首都基辅西北部的布查市，人们聚集在一个乱葬岗附近。照片。Sergei Supinsky/法新社通过盖蒂图片社
 
-Bucha，市长 Anatoliy Fedoruk 表示，已有 300 多名居民被杀。许多居民泪流满面地回忆起与死亡的擦肩而过，并诅咒着逝去的俄罗斯人。
+欧盟周一宣布，在指控俄罗斯军队在布查和乌克兰其他地方犯下战争罪行后，欧盟正在“作为紧急事项”对俄罗斯政府进行进一步制裁。
 
-抱歉以下图片可能会冒犯或打扰。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image001.jpg)至少20具遗体散落在一条街道上，都穿着平民衣服，其中一人双手被用一条白布绑在背后，他的遗体旁有他的乌克兰护照。据居民说，他被俄罗斯士兵枪杀。（照片：法新社）
-2022 年4 月3 日，乌克兰布查位于基辅西北方37公里处。有报道称，俄军从布查仓促撤退后，留下数百具乌克兰平民遗体。当地官员称，布查几个乱葬岗发现近300具乌克兰平民遗体。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003.jpg)2022年4月3日，在离乌克兰首都基辅不远的布查镇，一名工作人员松开了一名双手被反绑的死者的手腕。(SERGEI SUPINSKY/AFP via Getty Images)![](https://assets.gnews.org/wp-content/uploads/2022/04/image005.jpg)2022年4月3日，在乌克兰首都基辅西北部的布查镇，人们在一座教堂后面看到一个乱葬岗。(SERGEI SUPINSKY/AFP via Getty Images)![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image009-1.jpg)2022年4月3日，（上图）在离乌克兰首都基辅不远的布查镇，一条狗躺在一具男子的尸体旁，可能是它的主人；（下图）当社区服务人员收集该男子的尸体时，狗做出反应。(SERGEI SUPINSKY/AFP via Getty Images)
-路透社就记者目睹的尸体向克里姆林宫和俄罗斯国防部提出问题，但没有立即得到答复。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image011.jpg)周日，布查的道路上到处都是未爆弹药。火箭从停机坪上探出，靠近烧毁的坦克残骸。乌克兰布查的一条街道上到处都是战争的残骸。照片：法新社![](https://assets.gnews.org/wp-content/uploads/2022/04/image013.jpg)在基辅西北部的布查，人们在屋外哭泣。照片：法新社 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image015.jpg)les corps découverts à Boutcha « soulèvent de sérieuses questions quant à d’éventuels crimes de guerre », selon l’ONU © STRINGER / REUTERS![](https://assets.gnews.org/wp-content/uploads/2022/04/image017.jpg)图为解放后的布查镇一座被毁的建筑。照片：法新社或许可人![](https://assets.gnews.org/wp-content/uploads/2022/04/image019.jpg)
-乌克兰检察总长维涅迪克托瓦4月3日表示，当局在不久前从俄罗斯军队手中夺回的首都基辅地区，共找到410具平民尸体。泽连斯基表示：俄罗斯部队对布查镇实施的酷刑和谋杀要担责任。他表示：乌克兰设立的特殊的机制调查俄罗斯在乌克兰犯下的所有的罪行。
+**他们在说什么：**欧盟外交政策负责人何塞普-博雷尔在一份声明中说，27国集团“以最强烈的措辞谴责”“报道的暴行”。
 
-【援引连结】
+- 博雷尔说：“大量平民死亡和伤亡以及民用基础设施遭到破坏的令人不安的画面，显示了俄罗斯对乌克兰及其人民发动的残酷侵略战争的真实面目。
+- 美国国务卿托尼-布林肯周日在推特上说，美国“强烈谴责克里姆林宫部队在布查和整个乌克兰的明显暴行”，并补充说。“我们正在利用一切可用的工具追究责任，记录和分享信息，以追究责任人的责任”。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+
+**大势所趋：**乌克兰总统沃洛基米尔-泽伦斯基(Volodymyr Zelensky)在周日晚些时候的电视讲话中说，在布查的街道上发现了一个万人坑，并发现了散落的尸体，有些人的手被反绑在背后，在基辅西北部的这个城市以及乌克兰其他地方发生的事情是战争罪。
+
+- 法国总统埃马纽埃尔-马克龙(Emmanuel Macron)周日在接受法国国际广播电台(France Inter)采访时同意这一评估，并表示需要对最新的战争罪指控进行更多制裁。
+
+
+同时，据法新社报道，波兰和西班牙总理分别重复了泽伦斯基先前的指控，即普京的部队在乌克兰实施“种族灭绝”，并要求进行全球调查。
+
+**为了记录在案：**克里姆林宫否认俄罗斯军队在乌克兰犯下战争罪行。
+
+据路透社报道，俄罗斯首席调查员周一下令对他所描述的乌克兰的“挑衅”进行调查，此前基辅指称俄罗斯军队在布查屠杀平民。
+
+来源：[EU to hit Russia with fresh sanctions after Bucha killings](https://www.axios.com/eu-russia-fresh-sanctions-bucha-killings-77bb1367-fc25-4288-964a-3dfeb5dea9d7.html)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
