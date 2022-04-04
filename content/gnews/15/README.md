@@ -2,59 +2,82 @@
 ---
 
 
-## 克里姆林宫警告西方：卢布换天然气计划是原型
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288056/)
+## 欧洲国家主要港口已拒绝给俄籍油轮提供加油补给
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2288202/)
 
-***评论：**普京把俄罗斯入侵乌克兰称为“特别军事行动”,可惜他妄图快速吞食乌克兰的狼子野心被一个多月的入侵行动的屡次失败而被世人看破了他外强中干的本质,迎接他的不仅仅是下台,还有俄罗斯严重的经济危机……*
+**编译和评论：16626，沉默老歌，88JJ**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/725E53C8-6341-4813-900D-A1C7F95A650E.png)**屏幕截图：**[**https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article**](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+**欧洲国家主要港口拒绝给俄罗斯籍油轮加油**
 
-据《路透社》作者：[Guy Faulconbridge](https://www.reuters.com/authors/guy-faulconbridge/)，2022年4月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-418.png)2022年3月23日拍摄的这幅插图中，天然气管道的模型被放置在俄罗斯卢布纸币和国旗上。REUTERS/Dado Ruvic/Illustration/File Photo/File Photo
-伦敦，4月3日（路透社）–克里姆林宫表示，总统弗拉基米尔-普京的天然气卢布支付计划是世界上最大的国家将扩展到其他主要出口产品的原型，因为西方通过冻结俄罗斯资产来封杀美元的下跌。
+路透4月1日 （[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/) ） 西班牙和马耳他等欧洲国家主要港口已经停止向俄罗斯籍商船（油轮）提供加油补给。
 
-在美国及其盟国因普京2月24日入侵乌克兰而实施破坏性制裁后，俄罗斯的经济正面临自1991年苏联解体以来最严重的危机。
+**对莫斯科****（原油）****出口的又一次打击**
 
-迄今为止，普京的主要经济对策是在3月23日下令俄罗斯天然气出口以卢布支付，然而该计划允许购买者以合同货币支付，然后由Gazprombank兑换成卢布。
+五位知情人士透露：船用燃料销售商，已停止在包括西班牙和马耳他在内的主要欧洲枢纽国家，为悬挂俄罗斯国旗的船只（油轮）提供（加油）补给服务，这是对莫斯科（原油）出口的又一次打击。
 
-克里姆林宫发言人德米特里-佩斯科夫对俄罗斯第一频道国家电视台说，“这是系统的原型，关于天然气支付系统的卢布。”
+**驶往亚洲的俄罗斯油轮**
 
-佩斯科夫说：“我毫不怀疑，它将被扩展到新的商品类别。他没有给出这一举措的时间框架。”
+多位航运界人士指出，由于地中海主要加油站拒绝给俄罗斯商船（油轮）加油，从波罗的海驶往亚洲的俄罗斯油轮，在补给方面遇到了问题，有可能被困在海上。由于俄罗斯油轮装载易燃物质（原油），进而造成安全隐患。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/DB97480A-4D5A-4987-9747-58A35BC4FD6D.png)屏幕截图：[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+**多艘俄罗斯油轮被迫绕道而行**
 
-佩斯科夫说，西方决定冻结3000亿美元的中央银行储备是一个“抢劫”，这将加速摆脱对美元和欧元作为全球储备货币的依赖。
+一位知情人士透露：”由于欧洲港口拒绝加油，多艘俄籍油轮被迫绕道而行，前往其他国家加油。
 
-他说，克里姆林宫希望有一个新的系统来取代西方大国在1944年建立的布雷顿森林金融架构的轮廓。
+**提前执行西方国家的下一步制裁措施**
 
-佩斯科夫说：“很明显–即使这目前是一个遥远的前景–我们将建立一个与布雷顿森林体系不同的新体系。”
+相关人员称，拒绝给俄罗斯油轮加油为”**自愿****（自发的）****制裁**“。拒绝与俄罗斯方面签订（加油补给服务）合同，是提前执行西方国家的下一步制裁措施。
 
-他说，西方对俄罗斯的制裁“加速了对美元和欧元信心的侵蚀”。
+马耳他的一名政府官员表示，该国不允许任何悬挂俄罗斯国旗的船只进入其港口。
 
-普京说，在乌克兰的“特别军事行动”是必要的，因为美国正在利用乌克兰威胁俄罗斯，莫斯科必须抵御乌克兰对讲俄语的人的迫害。
+航运业消息人士称，鉴于世界海运贸易的复杂性，目前尚不清楚俄罗斯公司如何在被撤销多项服务的情况下运营。
 
-乌克兰驳斥了普京关于迫害的说法，并说它正在进行一场无端的侵略战争。
+另外，自俄罗斯入侵开始后的第二天（2月25日）起，丹麦船用燃料供应商，蒙贾萨Monjasa，表示，它已暂停与悬挂俄罗斯国旗的船只、俄罗斯注册公司以及与俄罗斯有联系的公司发生贸易和供给。
 
-俄罗斯官员多次表示，西方试图孤立世界上最大的自然资源生产国之一，这是一种非理性的行为，将导致消费者的价格飙升，使欧洲和美国陷入衰退。
+还有，英国在三月早些时候就已经宣布对俄罗斯最大的航运公司Sovcomflot实施制裁。
 
-俄罗斯长期以来一直在寻求减少对美国货币的依赖，尽管其主要出口产品–石油、天然气和金属–在全球市场上以美元计价。在全球范围内，美元是迄今为止交易量最大的货币，其次是欧元、日元和英镑。
+**评论：**
 
-文章观点仅代表作者个人，与Gnews平台无关。
+**绝大多数人反对俄罗斯入侵乌克兰**
 
-原文连接：[https://www.reuters.com/world/kremlin-warns-west-rouble-for-gas-scheme-is-prototype-2022-04-03/](https://www.reuters.com/world/kremlin-warns-west-rouble-for-gas-scheme-is-prototype-2022-04-03/)
+***格鲁吉亚加油船：你是俄罗斯的船吗？***
 
-翻译：洛杉矶盘古农场 – TrueSky
+***俄罗斯人：是的***
 
-校对：洛杉矶盘古农场 – 轰炸机
+***格鲁吉亚人：我们不给俄罗斯的船加油了***
 
-评论：洛杉矶盘古农场 – 傻小子
+***俄罗斯人：不要这样，让我们把政治放在一边！我们只是需要一些燃料！***
 
-编辑：洛杉矶盘古农场 –傻小子
+***格鲁吉亚人：俄罗斯的船，去吧，荣耀属于乌克兰，你可以随时使用船桨！***
 
-发布：洛杉矶盘古农场 –子萍
+以上是俄罗斯轮船被拒绝加油时的一段对话，它显示了大多数人对俄罗斯入侵乌克兰这场战争的立场与观点。当今国际社会大多数的民主国家是站在正义的一方。联合国大会以141:5的压倒性多数通过了一项决议，要求莫斯科立即停止针对乌克兰的侵略战争，这是当今有普世价值国家的立场。
 
+**唯有中共却首鼠两端投了弃权票**
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+然而作为安理会常任理事国的中共却首鼠两端投了弃权票，没有是非立场。更有甚者，中共暗中大力支持俄罗斯的侵略战争，其为虎作伥、不仁不义的作为，必遭国际社会的孤立与唾弃。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**声明：**
 
+由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
+
+本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
+
+**参考资料：**
+
+1. ロシア商船への給油拒否、地中海の欧州主要港，[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)
+
+1. EXCLUSIVE Ship fuel suppliers stop serving Russian vessels in the Med – sources，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/)
+
+1. Russian oil tankers are now without a destination or hiding their whereabouts，[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+
+**编辑：卢卡斯**
+
+**发布：歪桑**
+
+20220404
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

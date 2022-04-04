@@ -2,29 +2,29 @@
 ---
 
 
-## 乌克兰副防长称已重新掌控整个基辅地区
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287989/)
+## 扒一扒中共国的“动态清零”政策
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2288004/)
 
-作者：纽约香草山教育部 Naughty(文行)/纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月2日外媒报道，乌克兰国防部副部长马里亚尔表示，乌克兰已经重新夺回了整个基辅地区，包括首都附近的几个城镇。
+**作者：意大利罗马达芬奇农场 Vanessa**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C-1.jpg)reddit.com
+4月3日新浪网报道，长春市疫情防控指挥部宣布即日起长春市启动主城区清零攻坚行动。从4月3日-7日，利用5天时间，实现全社会动态清零。
 
-马里亚尔在脸书发文称，继入侵的俄罗斯部队从首都基辅附近若干主要城镇撤退后，乌克兰已重新掌控包括伊尔平、 布查、戈斯托梅利在内的整个基辅地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-2.jpg)
-另外，乌克兰总统泽连斯基当天发表声明，谴责俄军在撤退时留下许多地雷，甚至在遗弃的装备和遗体上竟然还设置了诡雷。乌克兰国家紧急服务部门提醒基辅周边居民，必须要对地雷保持高度警觉。在基辅西部一处村庄里，仅1天内就发现多达1500枚爆炸物。
+自去年8月，中共国的防疫政策从零感染的“清零”演变成了“动态清零”，即全国上下提升疫情防范和早发现能力：高效有序的核酸检测、科学精准的流调溯源、分类分级的进行防控管理，目标用小成本、在短时间内控制住疫情。
 
-泽连斯基表示，目前乌克兰方面正在努力排雷以确保地区安全，并建议外逃的难民暂缓返家，因为目前尚未能恢复正常生活。
+从武汉到西安，从深圳到上海再到长春，从强行封城到强制打疫苗，中共一次次用铁腕和没有人性的防疫政策在中华大地上发动了一场“政治瘟疫”。
 
-参考链接：
-1. [Ukraine has regained control over the ‘whole Kyiv region’ following the Russian assault, the deputy defense minister says](https://www.businessinsider.com/ukraine-has-regained-control-over-the-whole-kyiv-region-officials-2022-4)
-2. [俄軍撤離還四處埋地雷 澤倫斯基痛批：遺體竟被設置詭雷](https://news.ltn.com.tw/news/world/breakingnews/3880986)
+为了实现动态清零，一个楼有一个阳性病例，封闭小区，全员核酸，一个城市有一例阳性，封闭城市，全员每天做核酸，河北省廊坊市已经封闭了24天，核酸做了10多次。人们被困在家里，生病得不到救治，老人无法照顾，在上海3岁的孩子也被强迫和父母分开隔离，经济停摆，工人失业，人们绝望到多地出现自杀事件，如此政策下的次生灾害恐怕要比病毒本身大得多得多，然而中共的所谓“小成本”不过是在指那些领导层的政治成本，不被问责，不被罢免才是他们最小的成本，老百姓的死活在他们眼里怎么会有自己的职位重要？打着上级政策要求的名义，使用无底线无人性的手段只为保住头顶上的乌纱帽。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+即便如此，中共国可怜的老百姓，被封在家里缺医少药，断了粮草，发个微博被删除被警察找上门威胁，宁愿跳楼也不敢反抗。这实际上是一场“政治清零”，把敢说真话的清零了，把懂医学的清零了，把站起来反抗的清零了，剩下的都是听话的奴隶。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+中国共产党到了灭亡的时候了，然而，需要的是我们每一个人的勇气，每一个人发出正义的怒吼，每一个人站起来反抗！
+
+新闻来源：
+[https://news.sina.com.cn/o/2022-04-03/doc-imcwipii2187069.shtml](https://news.sina.com.cn/o/2022-04-03/doc-imcwipii2187069.shtml)
+
+
+
+编辑 发布： 意大利罗马达芬奇农场 Roma
 
  
 

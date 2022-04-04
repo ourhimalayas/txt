@@ -2,43 +2,32 @@
 ---
 
 
-## 波兰希望有更多的美军进驻欧洲
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288036/)
+## 俄罗斯战事不利征兵难，政局动荡谁买单？！
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2288084/)
 
-据《路透社》 作者：Anna Koper and Alan Charlish，2022年4月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-417.png)2022年2月9日，在波兰梅莱茨的一个基地看到美国军车。REUTERS/Kuba Stezycki
-华沙，4月3日（路透社）–波兰执政党领导人在周日发表的评论中说，波兰将欢迎美国在欧洲的军队数量增加50%，因为华沙呼吁在乌克兰冲突中对莫斯科采取更严厉的行动。
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111.jpg)
 
-俄罗斯总统弗拉基米尔-普京(Vladimir Putin)称对乌克兰的入侵是使其邻国非军事化的“特别军事行动”，这加剧了北约东翼国家的安全担忧。
+《美联社》4月3日报道，随着俄军在乌克兰陷入困境，越来越多的俄罗斯青年担心自己会被派上战场。周五开始的春季征兵更是加剧了人们的担忧。
 
-该联盟通过增加其在该地区的存在作出回应，上个月宣布在保加利亚、匈牙利、罗马尼亚和斯洛伐克增加四个多国战斗小组。
+虽然国防部长绍伊古承诺新兵不会被派往前线，却遭到民众的广泛质疑。车臣战争时政府的承诺言犹在耳，但最终还是有几千名训练不足的俄罗斯青年被推上战场并惨遭杀害；普京说刚应征入伍的新兵没有参与此次乌克兰的”军事行动”，但在入侵伊始，一位母亲就在乌克兰发布的俘虏视频中认出了她20岁的儿子！
 
-波兰副总理雅罗斯瓦夫·卡钦斯基告诉德国报纸Welt am Sonntag：“如果美国人在欧洲的存在从目前的10万名士兵增加到未来的15万名，波兰会很高兴。”
+俄罗斯所有18至27岁的男子都必须服兵役一年。俄军现有兵力100万人，如果战事持续，这些兵力不足以维持行动，普京最终会面临选择，是兵力不足停滞不前，还是冒着政局不稳的风险，扩大征兵补充队伍？！外部制裁人人喊打，内部动荡众叛亲离，普京的战争还能维持多久？！
 
-他在采访中说：“其中75,000名士兵应驻扎在东翼，即与俄罗斯的边界；50,000名士兵驻扎在波罗的海国家和波兰，”该采访也发表在波兰执政党法律与正义党（PiS）的网站上。
+[原文链接](https://apnews.com/article/russia-ukraine-war-russian-youth-draft-fears-0553c8ac5981758826f973e2103348e0)
 
-卡钦斯基还说，波兰将对在该国部署核武器持“开放”态度，但这并不是目前正在考虑的事情。
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-在俄罗斯军队进入乌克兰之前，大约有8万名美国军队在欧洲。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-文章观点仅代表作者个人，与Gnews平台无关。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-文章来源: [https://www.reuters.com/world/europe/poland-would-like-more-us-troops-europe-says-ruling-party-boss-2022-04-03/](https://www.reuters.com/world/europe/poland-would-like-more-us-troops-europe-says-ruling-party-boss-2022-04-03/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

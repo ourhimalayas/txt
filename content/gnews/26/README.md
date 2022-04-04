@@ -2,18 +2,22 @@
 ---
 
 
-## 真相和真情 推动钢琴家公开支持新中国联邦
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287987/)
+## 中共通过俄罗斯出口欧洲的计划遭遇重创
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287992/)
 
-作者： 香草山农场 – 飞虹
+作者：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在4月1日的新中国联邦乌克兰救援直播连线中，Nicole战友向观众介绍了已经前往利沃夫的战地钢琴家与战友们相处十几天的过程。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00.jpg)
-钢琴家离开梅迪卡之前，曾听文科战友讲述郭文贵先生和新中国联邦的故事，感觉非常不可思议。而与新中国联邦的新中国人愉快相处的日子，推动他从最初的用音乐支持变成对新中国联邦的公开支持。他在自己的钢琴上贴上了新中国联邦的标志，希望能在更接近前线的地方继续传播新中国联邦和法治基金正义、善良、勇敢的信息。
+据外媒4月2日报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
 
-参考链接：[郭文贵先生和新中国联邦的故事](https://gettr.com/post/p13bc75b3f9)
+尽管欧盟尚未正式禁止通过俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-5.jpg)
+很多大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路上德国内陆港口杜伊斯堡的海运保险公司也宣布，不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周都有来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-16.jpg)
+自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
+
+参考链接：[China’s Bet on Sending Its Exports Through Russia Hits Setback](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
+
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
 总编/编辑/审核：飞虹
 校对/发稿：Hetangyuese

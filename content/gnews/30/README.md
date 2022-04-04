@@ -2,32 +2,25 @@
 ---
 
 
-## 上万名军队医生进入上海对2600万居民进行检测
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287768/)
+## 乌克兰海港城市敖德萨遭俄军空袭
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287988/)
 
-#### 选择/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16490920521.png)
-路透社视频新闻截屏——中国各地的医疗中作者到达上海
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+4月3日国外媒体报道，当天一早，俄罗斯军队空袭了乌克兰的战略性黑海港口城市敖德萨。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-1.jpg)
+敖德萨市议会电报账号的消息称，敖德萨遭到空中袭击，一些导弹被防空部队击落。另有一些媒体报道，该市早上6:00左右发生爆炸，爆炸产生了至少三列黑烟，在一个工业区可以看见明显的火焰。据遇袭地点附近的一名士兵说，这可能是一枚火箭或导弹。
 
-4月4日，在路透社的视频新闻（TopVideoNews）中引用了CCTV13 的一段视频。该视频报道，中共已派出军队和医疗工作者进入上海，这是该国最大的公共卫生行动之一。
+据悉，敖德萨拥有乌克兰最大的港口和海军总部，具有重要的战略地位。
 
-据一家军队报纸消息，周日，陆海两军，和联合后勤部队向上海派遣了2000多名医务人员。另外，来自江苏、浙江和北京等地的1万多名医护人员已抵达上海。
+参考链接：[Air strikes hit Ukraine’s strategic port city of Odessa](https://www.thejournal.ie/latest-ukraine-air-strikes-odesa-5728756-Apr2022/)
 
-尽管以全球标准衡量，上海的疫情规模较小，但该市已成为中国消除疫情战略的一个试点。从3月28日开始，检测已扩大到全体居民。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-据报道，中共有12400家机构每天能够处理多达9亿人的检测。主要使用组合式检测，即，将20个拭子样本混合在一起，以便进行更快速的处理。
-
-集中隔离场所是由医院、体育馆、公寓楼和包括国际博览中心的其他场所改造而成。其容纳量为15000名患者。
-
-在中共政府执行 “清零” 的战略的要求下，居民抱怨检疫中心拥挤、不卫生，并难以获得食物和基本医疗救助。他们质疑将检测阳性的儿童与父母分离，以及大多数轻微或无症状的感染者不能在家中隔离。
-
-在中共社交媒体上，筋疲力尽的工人睡在塑料椅上或草地上，他们遭到斥责的照片和视频在网上传播开来。当地传染病专家对现行的检疫和检测规定表示愤怒。
-
-周六，中共派往上海的副总理孙春兰敦促上海 “采取果断、迅速的行动” 遏制疫情。
-
-责编：白夜
-
-[https://www.reuters.com/](https://www.reuters.com/)
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

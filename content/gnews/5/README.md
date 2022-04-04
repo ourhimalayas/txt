@@ -2,11 +2,26 @@
 ---
 
 
-## 4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2288259/)
+## 有声|法治基金在乌克兰的人道救援行动仍在继续
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2288334/)
 
-秘密翻译组-北美组
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
 
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
+
+文字版原文：[法治基金在乌克兰的人道救援行动仍在继续](https://gnews.org/zh-hans/2275964/)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+音频处理/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

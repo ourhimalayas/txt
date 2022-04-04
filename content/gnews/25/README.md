@@ -2,25 +2,38 @@
 ---
 
 
-## 乌克兰海港城市敖德萨遭俄军空袭
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287988/)
+## 乌克兰部队继续向基辅附近的俄罗斯部队作战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月3日国外媒体报道，当天一早，俄罗斯军队空袭了乌克兰的战略性黑海港口城市敖德萨。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-1.jpg)
-敖德萨市议会电报账号的消息称，敖德萨遭到空中袭击，一些导弹被防空部队击落。另有一些媒体报道，该市早上6:00左右发生爆炸，爆炸产生了至少三列黑烟，在一个工业区可以看见明显的火焰。据遇袭地点附近的一名士兵说，这可能是一枚火箭或导弹。
+***评论：**加油，顽强的乌克兰人，正义终将胜利。*
 
-据悉，敖德萨拥有乌克兰最大的港口和海军总部，具有重要的战略地位。
+据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
+4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
 
-参考链接：[Air strikes hit Ukraine’s strategic port city of Odessa](https://www.thejournal.ie/latest-ukraine-air-strikes-odesa-5728756-Apr2022/)
+英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

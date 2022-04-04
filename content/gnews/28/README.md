@@ -2,28 +2,25 @@
 ---
 
 
-## 【秘翻在线】又被蓝金黄了？英政府允许中资企业收购英国最大的芯片制造商
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287868/)
+## 俄军士兵用乌军子弹自残逃避战争
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287990/)
 
-####    翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-413.png)图片来源：BBC
-据《布雷特巴特新闻网》（Breitbart News）4月2日报道，在经过国家安全顾问斯蒂芬·洛夫格罗夫 (Stephen Lovegrove)的审查后，英国政府将允许中资企业安世半导体 (Nexperia)公司收购威尔士的纽波特晶圆厂（Newport Wafer Fab）。一位不愿透露姓名的官员说，洛夫格罗夫允许这项交易继续进行的原因是，他认为这并不会增加英国的安全风险，因为纽波特晶圆厂使用的是20年前的技术，而中共国早已掌握了这项技术。
+作者：纽约磐石农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+台媒4月3日报道，近日乌克兰安全局公布了一段某俄军士兵与其母亲通话的内容，通话透露出，他们被乌军围困，打算逃跑又怕被军队高层的督战队枪毙，因此厌战的士兵们纷纷用乌克兰制式的子弹自残，假装遭到乌军攻击，借此被送回俄罗斯治疗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-3.jpg)
+该士兵在通话中说，他们不仅被乌军围困，而且装备都被炸毁，如果此时乌军攻击他们就会全军覆灭，因此他们纷纷用自残的方法弄伤自己，以期能被送回国内医院。该士兵的母亲闻讯哀求士兵快点回家，并表示要去俄罗斯国防部求救。但士兵说指挥官不可能同意，并透露目前已有20名拒绝服役者被判刑8年以上。
 
-当这项交易在去年首次对外公布时，鉴于半导体对经济的重要性，以及新冠疫情后的供应链问题，它受到了相当严格的审查。一位吹哨人此前曾告诉CNBC，作为英国最大的芯片制造商，纽波特晶圆厂获得了大概5500万英镑的纳税人资金和国防合同，用于开发下一代技术，包括540万英镑用于开发战斗机的雷达系统。他说：“我认为没有人意识到这家晶圆厂有几个与国防有关的项目。”
+乌克兰安全局表示，仅该士兵的部队就有120名伤兵，以及350名死亡士兵的遗体被运回国内。乌方经审讯俄军战俘得知，俄军高层恢复了过去的“督战队”做法，部队上有所谓的“射击小队”存在，他们会杀死任何打算逃跑的士兵。
 
-中资企业安世半导体公司的总部设在荷兰，在英国设有办事处，它的拥有者是中共国有投资公司极客资本（JIC Capital）的子公司建广资产（JAC Capital）。根据这笔交易，安世半导体只需花费6300万英镑就可获得纽波特晶圆厂的所有权。弗雷斯特研究公司 (Forrester Research) 的分析师格伦·奥唐纳 (Glenn O’Donnell) 认为这个价格便宜得十分离谱，因为即便是旧技术，大多数晶圆厂的成本也远远超过了10亿英镑。
+参考链接：[**不想打仗又怕被射殺！ 俄士兵找「烏克蘭子彈」射自己**](https://news.ltn.com.tw/news/world/breakingnews/3864361)
 
-据报道，中共这些年一直在积极寻求英国的技术，军情六处的安全部门发现英国的知名大学在与中共的武器开发商合作。另外，据说中企至少花费了1350亿英镑购买英国的企业、房地产和基础设施的所有权股份，比如泰晤士水务公司(Thames Water)、希思罗机场(Heathrow Airport)和英国能源网络 (UK Power Networks)。与中共有关联的敬业集团（Jingye Group）收购了英国钢铁公司（British Steel），后者是是英国的第二大钢铁制造商。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-当英国政府准备批准这项交易时，前英保守党党魁伊恩·史密斯爵士(Iain Duncan Smith)抨击了此项决定，他指出半导体行业正是中共政府试图控制的行业。“中共现在正支持俄罗斯，并计划对西方获取芯片和电子设备的其它关键部件构成直接和蓄意的威胁。”
-
-英国下议院外交事务委员会的主席汤姆·图根达特 (Tom Tugendhat)补充说：“不清楚为什么我们没有利用《国家安全与投资法案》（National Security and Investment Act）所赋予的新权力来全面审查这笔收购。中共正在半导体行业投入数十亿美元进行竞争，而我们的政府却没有制定明确的战略来保护我们的产业。”
-
-*责编：白夜*
-
-新闻来源：[UK Govt Allows Sale of Largest Microchip Factory to Communist Chinese-Owned Firm: Report](https://www.breitbart.com/europe/2022/04/02/uk-govt-allows-sale-of-microchip-factory-to-communist-china/)
-
-
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

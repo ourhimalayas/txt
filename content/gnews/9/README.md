@@ -2,82 +2,35 @@
 ---
 
 
-## 欧洲国家主要港口已拒绝给俄籍油轮提供加油补给
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2288202/)
+## 【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2288285/)
 
-**编译和评论：16626，沉默老歌，88JJ**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/725E53C8-6341-4813-900D-A1C7F95A650E.png)**屏幕截图：**[**https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article**](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
-**欧洲国家主要港口拒绝给俄罗斯籍油轮加油**
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是上海居民遇生存危机 呼吁停止静态清零！
 
-路透4月1日 （[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/) ） 西班牙和马耳他等欧洲国家主要港口已经停止向俄罗斯籍商船（油轮）提供加油补给。
+中共病毒疫情在中共国蔓延，日增染疫人数破万。 其中上海最为严重，大多数都是无症状感染者。上海医疗系统如两年前武汉几近崩溃，民众四处求医求紧急救助却告无门。
 
-**对莫斯科****（原油）****出口的又一次打击**
+近日来，社交媒体出现大量市民求助帖，请外界关注。 其中包括刚从ICU出来的高危病人，入住康复中心后无医疗辅助治疗，物资短缺，营养餐仅为白粥。也被封院，患者家人投诉无门，只能任由病者生死由命。前数日也有气喘患者及糖尿病患者因官方激进防疫手法导致延误就医丧命。
 
-五位知情人士透露：船用燃料销售商，已停止在包括西班牙和马耳他在内的主要欧洲枢纽国家，为悬挂俄罗斯国旗的船只（油轮）提供（加油）补给服务，这是对莫斯科（原油）出口的又一次打击。
+网上还流传婴幼儿也被放入隔离点，无父母陪伴。其惨状也是不堪入目。有居民发表为民请命书，要求停止清零政策。
 
-**驶往亚洲的俄罗斯油轮**
+上海原是“抗疫模范生”，又是中共的政治中心，这次在上海突然疫情爆发极为蹊跷，这种“全域静态管理” 就是因政治而起，源头就在中共的极权统治本身。 中共不灭， 这种灾难会随时落到任何中国人的头上。
 
-多位航运界人士指出，由于地中海主要加油站拒绝给俄罗斯商船（油轮）加油，从波罗的海驶往亚洲的俄罗斯油轮，在补给方面遇到了问题，有可能被困在海上。由于俄罗斯油轮装载易燃物质（原油），进而造成安全隐患。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/DB97480A-4D5A-4987-9747-58A35BC4FD6D.png)屏幕截图：[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
-**多艘俄罗斯油轮被迫绕道而行**
+盖特链接：[https://gettr.com/post/p13h9en98fd](https://gettr.com/post/p13h9en98fd)
 
-一位知情人士透露：”由于欧洲港口拒绝加油，多艘俄籍油轮被迫绕道而行，前往其他国家加油。
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-**提前执行西方国家的下一步制裁措施**
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-相关人员称，拒绝给俄罗斯油轮加油为”**自愿****（自发的）****制裁**“。拒绝与俄罗斯方面签订（加油补给服务）合同，是提前执行西方国家的下一步制裁措施。
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-马耳他的一名政府官员表示，该国不允许任何悬挂俄罗斯国旗的船只进入其港口。
-
-航运业消息人士称，鉴于世界海运贸易的复杂性，目前尚不清楚俄罗斯公司如何在被撤销多项服务的情况下运营。
-
-另外，自俄罗斯入侵开始后的第二天（2月25日）起，丹麦船用燃料供应商，蒙贾萨Monjasa，表示，它已暂停与悬挂俄罗斯国旗的船只、俄罗斯注册公司以及与俄罗斯有联系的公司发生贸易和供给。
-
-还有，英国在三月早些时候就已经宣布对俄罗斯最大的航运公司Sovcomflot实施制裁。
-
-**评论：**
-
-**绝大多数人反对俄罗斯入侵乌克兰**
-
-***格鲁吉亚加油船：你是俄罗斯的船吗？***
-
-***俄罗斯人：是的***
-
-***格鲁吉亚人：我们不给俄罗斯的船加油了***
-
-***俄罗斯人：不要这样，让我们把政治放在一边！我们只是需要一些燃料！***
-
-***格鲁吉亚人：俄罗斯的船，去吧，荣耀属于乌克兰，你可以随时使用船桨！***
-
-以上是俄罗斯轮船被拒绝加油时的一段对话，它显示了大多数人对俄罗斯入侵乌克兰这场战争的立场与观点。当今国际社会大多数的民主国家是站在正义的一方。联合国大会以141:5的压倒性多数通过了一项决议，要求莫斯科立即停止针对乌克兰的侵略战争，这是当今有普世价值国家的立场。
-
-**唯有中共却首鼠两端投了弃权票**
-
-然而作为安理会常任理事国的中共却首鼠两端投了弃权票，没有是非立场。更有甚者，中共暗中大力支持俄罗斯的侵略战争，其为虎作伥、不仁不义的作为，必遭国际社会的孤立与唾弃。
-
-**声明：**
-
-由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
-
-本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
-
-**参考资料：**
-
-1. ロシア商船への給油拒否、地中海の欧州主要港，[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)
-
-1. EXCLUSIVE Ship fuel suppliers stop serving Russian vessels in the Med – sources，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/)
-
-1. Russian oil tankers are now without a destination or hiding their whereabouts，[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
-
-**编辑：卢卡斯**
-
-**发布：歪桑**
-
-20220404
-
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
