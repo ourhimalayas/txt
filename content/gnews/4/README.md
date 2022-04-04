@@ -2,11 +2,11 @@
 ---
 
 
-## 音乐人谈锁链女之歌（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285701/)
+## 歌曲的重要性（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285832/)
 
 #### PPT制作：0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：20-11：30-006-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：40-11：50-004.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
