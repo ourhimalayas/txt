@@ -2,46 +2,63 @@
 ---
 
 
-## 拜登承诺在紧急油储释放后降低汽油价格，暗示降低“最多35美分”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2285654/)
+## 澳洲的人性化：残疾人停车许可证、无障碍停车许可证
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2285610/)
 
-***评论：**这次美国的超级抛储行动，是美国在过去6个月里第三次动用战略石油储备，也是历史上规模最大的一次。同时，这也是拜登为应对通胀所做的诸多努力之一。通胀已经对美国消费者造成损害，并威胁到民主党在11月选举中能否维持对国会的控制权。*
+#### 了解澳洲生活点滴， 带您【走进澳洲】
 
-据《每日来电》作者：Nicole Silverio 2022年3月31日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-344-e1649070157952.png)图片来源：《路透社》
-总统乔拜登上周四承诺，从战略石油储备（SPR）中释放数千万桶石油后，汽油价格将下降。
+编辑/整理：小鱼儿
 
-“总统先生，以货币计算，您估计这些公告会降低多少汽油价格？美国人什么时候能看到这些变化？”《每日来电》高级白宫记者问。
-
-“这个非常重要的问题，没有确切的答案，但价格已经下降了，”拜登开始说，“当提前宣布拜登将从这次探寻中释放这么多桶石油时，价格就已经下来了。我的猜测是，我们会看到它下降并持续下降，但我认为没人能预测它会降到多低。”
-
-拜登声称，虽然几天和几周内的汽油价格下降将略有延迟，但下降幅度会是未知数。
-
-“但它会下降，”他继续说，“而且它可能会大幅下降。它可能会降到每加仑从10美分到35美分，目前尚不知晓。”
-
-拜登还指出，政府正在观望欧洲盟国释放多少石油储备，他估计可能在3000万到5000万桶之间。拜登总结，具体下降幅度将很大程度取决于各国释放的石油桶数量。
-
-在俄罗斯全面入侵乌克兰后，应对汽油价格上涨的压力越来越大，政府计划连续180天平均每天释放100万桶石油。3月14日，平均汽油价格持续增长，已经超过了每加仑4美元，达到每加仑4.32美元左右。
-
-总统已从战略石油储备（SPR）订购了8000万美元，11月首次订购了 5000万美元，以减轻不断上升的通货膨胀。随后，他与国际能源署(IEA)的 30个国家一起于3月1日释放了3000万桶美国石油，以应对俄罗斯总统普京的入侵。
-
-文章来源：[https://dailycaller.com/2022/03/31/biden-promises-lower-gas-prices-35-cents/](https://dailycaller.com/2022/03/31/biden-promises-lower-gas-prices-35-cents/)
-
-翻译：洛杉矶盘古农场 – maru
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – maru
-
-编辑：洛杉矶盘古农场 – WenXiong
-
-发布：洛杉矶盘古农场 – 子萍
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-342.png)图片来源：雅典娜设计组
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+对弱势群体的照顾，体现了一个国家的文明程度。为方便残疾人停车，澳洲政府推出了残疾人士停车许可证、无障碍停车许可证，符合条件的人可以申请。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+维多利亚州残疾人停车计划，是为残疾人提供停车许可证。根据许可证持有人的要求，许可证分为第一类和第二类。还有为组织提供的残疾人停车许可证。
+
+- 第一类许可证——医生必须确认该人在残疾人停车位停车的要求
+- 第二类许可证——医生必须确认一个人在连续行走时需要休息
+- 临时残疾人停车许可证
+- 组织接送残疾人停车许可证
+
+
+如果居民符合第一类或第二类或临时残疾申请人的资格，他们可以申请。
+
+符合条件的接送残疾人的组织也可以提出申请。
+
+申请表可从当地议会获得。许可证只会发给居住在议会区域的居民。访问[Viroads 残疾人 停车](https://www.vicroads.vic.gov.au/safety-and-road-rules/road-rules/disability-parking)网页。符合条件的居民可免费获得残疾人停车证。
+
+如果您有严重的残疾或受伤，您可能有资格获得无障碍停车许可证。有不同类型的许可证允许您在无障碍停车位停车和/或在常规停车位停车，时间是平时的两倍。
+
+要申请或更新许可证，请访问[无障碍停车许可证网站（外部链接）](https://www.accessibleparking.vic.gov.au/permits/).
+
+使用无障碍许可证的注意事项：
+
+- 只能在车辆运送获得许可证的个人时显示
+- 必须清楚地显示，以便从车外可以看到许可证号和到期日期
+
+
+一个人只能获得一张许可证。
+
+无障碍停车证不允许您：
+
+- 将车停在受限地点，例如自由通道、禁止停车或禁止停车区、出租车专用区、巴士区和授权居民区
+- 在收取停车费的区域免费停车。
+
+
+（注：以上信息意为参考，请您登陆官网获得更加详细的信息）
+
+参考资料：[Victorian Disabled Persons Parking Scheme](https://www.betterhealth.vic.gov.au/health/serviceprofiles/victorian-disabled-persons-parking-scheme-service)
+
+[Accessible Parking Permits](https://www.vicroads.vic.gov.au/safety-and-road-rules/road-rules/disability-parking)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

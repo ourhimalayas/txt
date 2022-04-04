@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 12:30 PM (UTC)`
+
+2022.04.04 早 新中国联邦 | 新闻  以色列志愿者将在新中国联邦帐篷内庆祝逾越节；日本自媒体人被新中国联邦灭共壮举感动
+![img](https://media.gettr.com/group27/origin/2022/04/04/11/cc0fe60f-3c71-09b0-8986-9633e2c8eb31/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/4/2022 12:25 PM (UTC)`
 
 4/4/2022Thank you very much to all our brothers and sisters in HongKong, New Zealand, Singapore, Macau, Cambodia, Taiwan🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>iTunes Genres Chart records on the 1st day of release:<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #3 🥉in Hong Kong 🇭🇰 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in New Zealand 🇳🇿 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Singapore 🇸🇬 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈in Macau 🇲🇴 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈”Hcoin To The Moon” hit #4 in Cambodia 🇰🇭 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Taiwan 🇹🇼 🎉🎉🎉🎉🎉🎉🎉<br/>
@@ -147,13 +154,6 @@
 
 4/3/2022 Miles Guo: The CCP delivered the HQ series missiles and air defense systems to Serbia five days ago, indicating that it has officially participated in the Russia-Ukraine war. The US dollar and the United States are going to be the big winners in the Russia-Ukraine war. Digital currency will be the strongest money in the world, and the Himalaya Coin will be able to supersede the US dollar to circulate in the world.<br/><br/>4/3/2022 文贵直播：中共在5天前已将红旗导弹和反导系统送往塞尔维亚，这意味着中共正式参与了俄乌战争；美元和美国是俄乌战争的大赢家；未来最牛的是数字货币，喜币能取代美元在全球流通<br/>
 ![img](https://media.gettr.com/group43/getter/2022/04/03/23/4be565b5-0e8b-5871-02c8-6915e36e7d10/out.jpg)
-
----
-
-`@miles 4/3/2022 11:03 PM (UTC)`
-
-4/3/2022 Miles Guo: The current pandemic in mainland China and Hong Kong are indeed caused by the adverse effect of the COVID vaccines; the quarantine measures in Communist China serve as a national rehearsal for the impending COVID vaccine disasters; meanwhile it is also a result of politics within the CCP.<br/><br/>4/3/2022 文贵直播：国内和香港的疫情是由疫苗副作用导致，中共国的隔离措施是为疫苗灾难作准备，同时也是党内政治斗争的结果<br/>
-![img](https://media.gettr.com/group17/getter/2022/04/03/23/b7988529-2431-aff9-c3ae-c5143940eb93/out.jpg)
 
 ---
 

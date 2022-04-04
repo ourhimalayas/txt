@@ -2,12 +2,16 @@
 ---
 
 
-## 国务卿安东尼·布林肯对美国是否保证俄乌谈判回应
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2285966/)
+## 视频｜中共眼中的美国第一
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2286033/)
 
-04/03/2022 国务卿安东尼·布林肯对美国是否保证俄乌谈判回应，说他们尽其所能帮助乌克兰自卫并阻止未来的俄罗斯侵略
+编辑：波士顿五月花—思澈
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+中共国媒体第一喉舌CCTV站在中共超限战的前沿为中共摇旗呐喊
+
+*发布：思澈*
+
+
 
  
 
