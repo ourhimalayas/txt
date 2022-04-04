@@ -2,26 +2,32 @@
 ---
 
 
-## 俄罗斯将被美国踢出联合国人权理事会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287650/)
+## 没人想打第四剂新冠疫苗
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2287654/)
 
-####  撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-394.png)图片来源：路透社
-据《新闻极限》4月4日报道，周一，美国驻联合国大使托马斯-格林菲尔德（Linda Thomas-Greenfield）表示，鉴于俄罗斯军队在乌克兰布卡（Bucha）镇屠杀平民，美国将推动把俄罗斯从联合国人权理事会除名。
+#### 编译 意大利达芬奇农场 小白鸽
 
-发言人奥利维亚·道尔顿（Olivia Dalton）在推特上援引托马斯-格林菲尔德的话说：“在与乌克兰、欧洲国家和联合国其他伙伴的密切协调下，我们将寻求暂停俄罗斯在联合国人权理事会的成员资格”。
+意大利有不到8%的免疫功能低下者打了第四针，以色列第四针面向18岁以上的公民，有稍多于7%的人口注射了第四针。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-04-alle-16.33.41.png)图片来源：eventiavversinews.it
+全意大利都对新冠疫苗感到失望，没人再相信疫苗，所谓的“免疫功能低下者”也正在拒绝第四针。正如4月3日《平常事件》报所报道的：有791376 人该接种第四剂新冠疫苗，但是只有62000多一点的人接种了疫苗，不到8%。
 
-另据《路透社》的报道，周一，托马斯-格林菲尔德在罗马尼亚首都布加勒斯特的讲话中称：俄罗斯参与人权理事会是一场“闹剧”。
+不同的国家对第四剂新冠疫苗的要求也不一样。 意大利是针对免疫功能低下的，法国是针对70岁以上，英国是75岁以上，德国是80岁以上，而美国批准的第四剂新冠疫苗是针对所有50岁以上的公民。
 
-报道指，人权理事会是联合国的一个机构，负责促进和保护全球人权。美国若要推动把俄罗斯从联合国人权理事会除名成功，必须得到联合国193个成员国中的三分之二投票赞成。
+以色列是将第四剂新冠疫苗面向所有18岁以上公民。但是Bar Ilan 大学免疫学主任，以色列政府疫苗顾问Cyrille Cohen 承认针对疫苗的疑问很多， 接受第四剂的人数很低，只占以色列人口的7%多一点。
 
-值得注意的是，就在俄罗斯军队对基辅和乌克兰其他城市发动大规模军事攻击几天后，联合国以压倒性的票数通过了一项谴责俄罗斯的决议。
+Cyrille Cohen 说：“目前是奥米克戎及其变体BA.2流行期，第四剂新冠疫苗比起第三剂并没有显示出特别的中和性抗体，重症患者少于以前（几乎没有年轻人）。第四剂是针对老年人和和有风险群体……确实很难估算第四剂疫苗的保护程度。”
 
-*责编：白夜*
+关于未来的第五剂和第六剂，Cohen补充说：“我无法预测，这要看新疫苗，新变种。可能情况就像是流感，每年都有针对弱势群体的疫苗，但现在说还为时过早。”
 
-**新闻来源**
+简评：许多有良知的科学家和医生都大声疾呼：新冠疫苗解决不了问题， 会促生更多的变异，产生免疫逃逸现象。郭先生也告诉我们现在在上海、长春、深圳和香港的绝大多数就是疫苗的反应。疫苗不但不解决问题，反而会带来更大的灾难。
 
-[US to move to suspend Russia from UN human rights council](https://thehill.com/news/administration/3258090-us-to-move-to-suspend-russia-from-un-human-rights-council/)
+参考链接：
+
+[https://www.eventiavversinews.it/nessuno-vuole-la-quarta-dose-meno-dell8-degli-immunocompromessi-in-italia-ha-ricevuto-la-dose-e-il-poco-piu-del-7-in-israele-dove-e-indicata-per-tutti-gli-over-18/](https://www.eventiavversinews.it/nessuno-vuole-la-quarta-dose-meno-dell8-degli-immunocompromessi-in-italia-ha-ricevuto-la-dose-e-il-poco-piu-del-7-in-israele-dove-e-indicata-per-tutti-gli-over-18/)
+
+
+
+编辑、上传：Xiao baige
 
  
 

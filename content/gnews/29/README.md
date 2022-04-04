@@ -2,34 +2,39 @@
 ---
 
 
-## 中共暴力防疫，棉签捅出人命
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2287509/)
+## 有声|俄罗斯石油海运还在继续，波兰总理喊话制裁必须加码
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2287514/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-27.jpg)
-近日中共暴力防疫手段屡见网路，老百姓苦不堪言。一段流传网路的视频显示，在酒店隔离的未成年儿童先是哇哇大哭，继而鼻腔大量出血。背景声音是心痛的家长，孩子让做核酸的棉签捅到鼻子流血，止不住，打电话求救然后没有人来处理。留下可怜的孩子，鼻子哗哗流血，洗手台上都是被血打湿的卫生纸。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+根据Ukrinform 报道，乌克兰黑海战略研究所所长 Andriy Klymenko经过研究发现，3月中下旬，俄罗斯依然能在19个国家116艘邮轮的帮助下，通过出售石油获得必要的外汇。这其中希腊以51艘油轮 (44%)位列第一位，俄罗斯以29 艘油轮 (25%)排名第二，土耳其，摩纳哥、新加坡分别位列第三至第五名。
 
-视频：[https://gettr.com/post/p13cq8vdb12](https://gettr.com/post/p13cq8vdb12)
+加之莫斯科政权还能够通过其他渠道获得资金平抑卢布汇率，使得俄罗斯经济依然还能在崩溃边缘维系，普京政权能够继续苟延残喘。为了加速独裁政府的倒闭，帮助乌克兰人民脱离战火，同时也为了帮助俄罗斯人民获得民主与自由，西方文明国家已经开始酝酿新一轮对于俄罗斯的经济制裁。
 
-另外还有一段视频，描述里写到这是一个一周半的小婴儿，被家人带着来做核酸，然后被捅死了。视频画面里显示穿防护服的做核酸的工作人员正在给地上的婴儿做着急救CPR的动作，有人给孩子面部扇风，另外一个人给孩子按压胸部。周围的老百姓声音嘈杂，还有人大喊这是一条命啊，在催促尽快叫专业医护来抢救。在长达一分半钟的视频里，小婴儿还是一动不动，一点生命迹象都没有显示。
+这一点从2022年4月2日，波兰总理 Mateusz Morawecki在访问华沙附近 Otwock 的乌克兰难民中心期间与欧洲议会主席 Roberta Mezzola 举行联合新闻发布会时就能凸显端倪。
 
-视频：[https://gettr.com/post/p13atcqddcc](https://gettr.com/post/p13atcqddcc)
+波兰总理 Mateusz Morawecki的发言首先提出，“迄今为止对俄罗斯实施的制裁并不适用，卢布的汇率重返战前水平便是最好的证明。”
 
-在万恶的中共国，一根棉签都可以轻轻松松带走人命。
+他随后提出重点，“如果乌克兰不捍卫其独立和主权，那么欧洲将表现出软弱，它将被羞辱、无法采取行动保护其基本的、普遍的价值观，例如自由、生命权。这就是为什么今天要说的重要原因：我们需要更多真正的制裁，但也需要更多真正的资金。”
 
-撰稿、发布：骄子
+波兰作为帮助乌克兰逃离战火的主要国家，波兰总理向欧洲各国领导人喊话，“我每天都会收到有关在乌克兰遇害的儿童和妇女的照片和视频的报告，普京在乌克兰每天都犯下战争罪行。“亲爱的欧洲领导人，如果你不理解这一点，那将是行不通的。在对俄罗斯采取果断行动时，我们必须保持团结。”
 
-* * *
+欧洲作为资本主义的发源地，讲究效率，追究利润，重视商业是他们保持竞争力的核心。面对俄乌战争，面对俄罗斯的能源威胁，面对人道主义危机，欧盟国家能够排除内部矛盾，协调商业于道德之间的关系，拯救被战火包围的同类，一致制裁邪恶的独裁者的行动，是一次灵魂自我救赎的行为。
 
-欢迎订阅我们的GNews账号：
+文字版原文：[俄罗斯石油海运还在继续，波兰总理喊话制裁必须加码](https://gnews.org/zh-hans/2281580/)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+音频处理：Fei797
+发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
