@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 1:29 AM (UTC)`
+
+4/3/2022 Miles Guo: Xi Jinping and Putin use their personal relationship to kidnap the people of both countries, and Xi will be the biggest loser in the Russia-Ukraine war; Sharif, with the endorsement of the Chinese Communist Party, will overthrow the sitting president and return to power in Pakistan<br/><br/>4/3/2022 文贵直播：习近平和普京的个人关系绑架两国人民利益，习将是俄乌战争的最大输家；谢里夫得到中共的背书，会将现任总统推下台而重掌巴基斯坦政权<br/>
+![img](https://media.gettr.com/group19/getter/2022/04/04/01/e2a86a5d-b6e5-c24d-14bd-0f78da6fc678/out.jpg)
+
+---
+
 `@miles 4/4/2022 1:08 AM (UTC)`
 
 2022.04.03 晚  新中国联邦 | 新闻访谈   从红旗导弹系统谈全球自动灭共态势的形成； 俄军士兵用乌军子弹自残逃避战争； 继续关注墙内被邪恶中共封锁下的民生
@@ -151,13 +158,6 @@ MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 🆘🇺🇦🆘乌克兰人道救援直播经典回放：<br/>战友精糧与叶钊颖女士郝海东先生的连线<br/>❤️”新中国联邦义工发自内心的善良来到梅蒂卡真心帮助难民。这与中共是完全本质上的不同！“<br/>❤️”2019年守护香港反送中事件中，我亲眼目睹了香港学生们的文明有序地，完全不同于中共宣传中称香港学生是暴徒！------ 郝海东先生<br/>❤️ "The volunteers of NFSC came to Medyka out of the goodness of their hearts to genuinely help the refugees. This is completely and essentially different from the CCP! " <br/>❤️ "During the  Anti-ELAB Movementevent in Hong Kong 2019, I witnessed the Hong Kong students in a civilized and orderly manner, completely different from the Chinese Communist propaganda that called the Hong Kong students thugs! ------ Mr. Hao Haidong<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine<br/>Translate post<br/>Posted on 2:16 PM · Apr 2nd, 2022
 ![img](https://media.gettr.com/group32/origin/2022/04/02/16/6850a21a-606c-539f-8a18-527317854e4f/out.jpg)
-
----
-
-`@miles 4/3/2022 5:06 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group32/origin/2022/04/03/05/3ef503ec-f9fe-c160-a255-39569fb53348/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
