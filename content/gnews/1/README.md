@@ -2,8 +2,8 @@
 ---
 
 
-## 国际婚姻战友感谢乌克兰救援前线每个战友
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282611/)
+## 大隔离就是为疫苗大灾难来临做准备，国内疫苗灾难惨状
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282626/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

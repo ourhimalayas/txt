@@ -2,8 +2,8 @@
 ---
 
 
-## 救援前线战友分享：救援工作专业的有条不紊的进行着
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282580/)
+## 救援前线战友深刻改变中国人形象
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282619/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
