@@ -2,30 +2,28 @@
 ---
 
 
-## 马斯克收购Twitter 9.2%股份成Twitter 最大股东
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2287097/)
+## 日本中共疫情出现反弹 恐掀第七波爆发
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287452/)
 
-**撰稿：日本东京方舟农场 JIHO**
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+在日本完全取消准紧急措施后不到两周，政府数据显示，在截至4月1日的一周内，日本 47 个都道府县中，有 44 个县确诊的中共病毒病例数量有所增加。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-04-上午11.25.15.png)
+4月2日，随着奥密克戎变种BA.2的传播，日本全国报告了 48,825 例新的中共病毒病例，比一周前增加了约 1,500 例。其中出现重症的患者人数为 518 人，比周五减少了 15 人。
 
-根据福布斯消息, Twitter周一在美国证券交易委员会提交的文件中披露, 特斯拉首席执行官埃隆·马斯克 (Elon Musk) 已收购社交媒体巨头 Twitter 9.2% 的股份。而此前几周，这位亿万富翁一直在指责 Twitter 未能遵守言论自由原则。
+日本政府于 1 月份开始实施准紧急措施，以遏制第六波感染后一个多月以来，每日新增病例逐渐下降。3 月 21 日，东京和其他一些地区彻底取消了多项限制措施。鉴于目前青少年确诊病例的显著增加，日本专家称，需要对最近的疫情进行仔细监测，并警告，再一次的疫情爆发随时可能卷土重来。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-47.png)（图片来自网络）
+随着奥密克戎变种，在放松防病毒措施时，开始成为主要传播的中共病毒毒株，其他国家的中共病毒病例也有所增加。
 
-Twitter在其监管文件中表示，马斯克在社交媒体平台上购买了约 7340 万股普通股。
+参考链接：[Japan sees rebound in COVID cases, experts caution against new wave](https://english.kyodonews.net/news/2022/04/8c50ed799bdd-japan-sees-rebound-in-covid-cases-experts-caution-against-new-wave.html)
 
-这一披露导致推特股价在美国东部时间周一上午 7 点 15 分的盘前交易中飙升 25%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-34.png)（图片来自TradingView）
-
-Twitter平台不遵守言论自由原则，打压病毒、疫苗真相已成既定事实，马斯克的入股会有怎样的变化，让我们拭目以待。
-
-参考链接：
-1.[https://twitter.com/tradingview/status/1510953521285369860](https://twitter.com/tradingview/status/1510953521285369860)
-2.[https://reurl.cc/pWzXEr](https://reurl.cc/pWzXEr)
-
-总编：青城道姑
-校对发布：爱放飞
-
+编辑：玫瑰圓
+总编：文真
+审核：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

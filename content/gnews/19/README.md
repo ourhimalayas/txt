@@ -2,38 +2,73 @@
 ---
 
 
-## 乌克兰首都基辅郊外布查镇（Bucha）曝尸街头餐象横生
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2286939/)
+## 德国称西方同意在布查屠杀后对俄实施更多制裁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287286/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
-乌克兰官员4月3日（周六）表示，乌克兰军队已经夺回了基辅周围的 30 多个城镇和村庄，自俄罗斯发动入侵以来首次声称完全控制了首都地区。
+翻译: 里奇
 
-在首都西北 37 公里处邻近 Irpin 的小镇 Bucha，据路透社记者称，看到街道上散落着尸体，多具尸体的手脚从教堂场地的一个仍然敞开的坟墓中探出。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
 
-Bucha，市长 Anatoliy Fedoruk 表示，已有 300 多名居民被杀。许多居民泪流满面地回忆起与死亡的擦肩而过，并诅咒着逝去的俄罗斯人。
 
-抱歉以下图片可能会冒犯或打扰。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image001.jpg)至少20具遗体散落在一条街道上，都穿着平民衣服，其中一人双手被用一条白布绑在背后，他的遗体旁有他的乌克兰护照。据居民说，他被俄罗斯士兵枪杀。（照片：法新社）
-2022 年4 月3 日，乌克兰布查位于基辅西北方37公里处。有报道称，俄军从布查仓促撤退后，留下数百具乌克兰平民遗体。当地官员称，布查几个乱葬岗发现近300具乌克兰平民遗体。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003.jpg)2022年4月3日，在离乌克兰首都基辅不远的布查镇，一名工作人员松开了一名双手被反绑的死者的手腕。(SERGEI SUPINSKY/AFP via Getty Images)![](https://assets.gnews.org/wp-content/uploads/2022/04/image005.jpg)2022年4月3日，在乌克兰首都基辅西北部的布查镇，人们在一座教堂后面看到一个乱葬岗。(SERGEI SUPINSKY/AFP via Getty Images)![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image009-1.jpg)2022年4月3日，（上图）在离乌克兰首都基辅不远的布查镇，一条狗躺在一具男子的尸体旁，可能是它的主人；（下图）当社区服务人员收集该男子的尸体时，狗做出反应。(SERGEI SUPINSKY/AFP via Getty Images)
-路透社就记者目睹的尸体向克里姆林宫和俄罗斯国防部提出问题，但没有立即得到答复。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image011.jpg)周日，布查的道路上到处都是未爆弹药。火箭从停机坪上探出，靠近烧毁的坦克残骸。乌克兰布查的一条街道上到处都是战争的残骸。照片：法新社![](https://assets.gnews.org/wp-content/uploads/2022/04/image013.jpg)在基辅西北部的布查，人们在屋外哭泣。照片：法新社 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image015.jpg)les corps découverts à Boutcha « soulèvent de sérieuses questions quant à d’éventuels crimes de guerre », selon l’ONU © STRINGER / REUTERS![](https://assets.gnews.org/wp-content/uploads/2022/04/image017.jpg)图为解放后的布查镇一座被毁的建筑。照片：法新社或许可人![](https://assets.gnews.org/wp-content/uploads/2022/04/image019.jpg)
-乌克兰检察总长维涅迪克托瓦4月3日表示，当局在不久前从俄罗斯军队手中夺回的首都基辅地区，共找到410具平民尸体。泽连斯基表示：俄罗斯部队对布查镇实施的酷刑和谋杀要担责任。他表示：乌克兰设立的特殊的机制调查俄罗斯在乌克兰犯下的所有的罪行。
 
-【援引连结】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2222-edited.jpg)图片来源：reuters.com
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+路透社，乌克兰利沃夫4月3日 – 德国周日表示，在乌克兰指责俄罗斯军队在基辅附近犯下战争罪行后，西方将同意在未来几天内对俄罗斯实施更多制裁，俄罗斯入侵乌克兰后本已遭受的巨大经济压力进一步加剧。
+
+俄罗斯经济正面临自 1991 年苏联解体以来最严重的危机，此前美国及其盟国因普京 2 月 24 日入侵乌克兰而实施了严厉的制裁。
+
+俄罗斯周日拒绝其军队应对布查镇平民死亡负责，并表示乌克兰为西方媒体上演了一场表演。
+
+路透社看到尸体散落在镇上。其中一人双手被白布捆绑，嘴里中弹。乌克兰总统泽连斯基指责俄罗斯实施种族灭绝。
+
+西方警告将实施更多制裁。
+
+德国总理奥拉夫·舒尔茨在给记者的一份声明中说，“普京和他的支持者将感受到他们行为的后果”。
+
+德国国防部长克里斯蒂娜·兰布雷希特表示，欧盟应该讨论结束俄罗斯的天然气进口。
+
+迄今为止，欧洲最大的经济体德国一直拒绝对从俄罗斯进口能源实施禁运的呼吁，称其经济和其他欧洲国家的经济过于依赖俄罗斯。俄罗斯供应了欧洲 40% 的天然气需求。
+
+意大利外交部长路易吉·迪马约 (Luigi Di Maio) 表示，布查事件“引发一波愤慨，将导致新的制裁”，并不排除“在接下来的几个小时内，可能会就从俄罗斯进口碳氢化合物的问题展开辩论”，他在意大利 Rai 3 频道的一个节目中表示，并补充说意大利不会否决第五套制裁措施。
+
+美国表示，必须追究对任何战争罪行负责的人，英国表示正在加强制裁，法国谴责俄罗斯军队在乌克兰的“大规模滥用行为”。
+
+制裁
+
+克里姆林宫表示，西方实施的现代历史上最沉重的的制裁相当于经济宣战，莫斯科现在将寻求东方合作伙伴，比如中国和印度。
+
+俄罗斯在很大程度上与西方经济隔绝，正面临数十年来最严重的经济收缩，而物价却在上涨。普京表示，如果西方认为俄罗斯人会屈服于制裁，那它对俄罗斯一无所知。
+
+尽管如此，切断俄罗斯的天然气——或更多的俄罗斯自然资源——将扼杀欧洲最大经济体的增长，使能源价格创下历史新高，并在全球经济中引发通胀冲击波。
+
+自 1970 年代以来一直向欧洲供应天然气的俄罗斯将被剥夺数千亿美元的外汇收入。这可能会加剧俄对西方“经济战”的强硬反应。
+
+克里姆林宫发言人德米特里佩斯科夫告诉第一频道国家电视台，“世界比欧洲大得多——事实上俄罗斯比欧洲大得多——所以不管大洋彼岸的人们想要什么，我们迟早都会进行对话。”
+
+乌克兰呼吁对石油、天然气和煤炭实行全面禁运，禁止俄罗斯船只和货物运输，并让所有俄罗斯银行与 SWIFT 断开连接。
+
+俄罗斯 2 月 24 日入侵乌克兰已造成数千人死亡，数百万人流离失所。
+
+普京表示，在乌克兰进行“特别军事行动”是必要的，因为美国正在利用乌克兰威胁俄罗斯，而莫斯科必须抵御乌克兰对讲俄语的人的迫害。
+
+乌克兰称莫斯科发动了侵略战争，普京声称的迫害是无稽之谈。
+
+新闻来源: [Germany says West to agree more sanctions on Russia after Bucha killings](https://www.reuters.com/world/europe/ukraine-demands-new-russia-sanctions-over-massacre-2022-04-03/)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

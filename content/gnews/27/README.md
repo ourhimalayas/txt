@@ -2,37 +2,49 @@
 ---
 
 
-## 澳印两国签署自贸协议，促进关键矿业发展
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2286788/)
+## 欧盟将在布查杀人事件后对俄罗斯实施新的制裁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287044/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-382.png)图片来源：https://www.axios.com/
 
-整理/编辑：文泓
+周日，在乌克兰首都基辅西北部的布查市，人们聚集在一个乱葬岗附近。照片。Sergei Supinsky/法新社通过盖蒂图片社
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-366.png)图片来源：The Economic Times & 雅典娜设计组
+欧盟周一宣布，在指控俄罗斯军队在布查和乌克兰其他地方犯下战争罪行后，欧盟正在“作为紧急事项”对俄罗斯政府进行进一步制裁。
+
+**他们在说什么：**欧盟外交政策负责人何塞普-博雷尔在一份声明中说，27国集团“以最强烈的措辞谴责”“报道的暴行”。
+
+- 博雷尔说：“大量平民死亡和伤亡以及民用基础设施遭到破坏的令人不安的画面，显示了俄罗斯对乌克兰及其人民发动的残酷侵略战争的真实面目。
+- 美国国务卿托尼-布林肯周日在推特上说，美国“强烈谴责克里姆林宫部队在布查和整个乌克兰的明显暴行”，并补充说。“我们正在利用一切可用的工具追究责任，记录和分享信息，以追究责任人的责任”。
 
 
-印度商务部长皮尤什·戈亚尔Piyush Goyal将于周二抵达澳大利亚，印度工业联合会将派出一个商业代表团，由其主席和总干事带队。
+**大势所趋：**乌克兰总统沃洛基米尔-泽伦斯基(Volodymyr Zelensky)在周日晚些时候的电视讲话中说，在布查的街道上发现了一个万人坑，并发现了散落的尸体，有些人的手被反绑在背后，在基辅西北部的这个城市以及乌克兰其他地方发生的事情是战争罪。
 
-莫里森政府认为上周六签署的《澳大利亚-印度经济合作与贸易协定》将给关键矿产业带来的益处。
+- 法国总统埃马纽埃尔-马克龙(Emmanuel Macron)周日在接受法国国际广播电台(France Inter)采访时同意这一评估，并表示需要对最新的战争罪指控进行更多制裁。
 
-根据该协议，到2035年，对印度的出口预计将增加至少450亿，澳大利亚将对该国开放工作度假者计划，允许每年约1000名印度人参与。
 
-印度总理纳伦德拉-莫迪在周六的线上签字仪式上将该协议誉为两国关系的转折点，他说双方“在经济上有巨大的潜力来满足彼此的需求”，“我们将能够共同为提高供应链的复原力和太平洋地区的稳定作出贡献”。
+同时，据法新社报道，波兰和西班牙总理分别重复了泽伦斯基先前的指控，即普京的部队在乌克兰实施“种族灭绝”，并要求进行全球调查。
 
-周六，莫里森总理说，该贸易协议将“促进澳大利亚向印度提供更便宜的商品、羊毛、园艺、煤炭和液化天然气”，“它将开启在关键矿物（和）稀土方面更深层次的合作，我知道这对印度不断增长的制造业来说是一个越来越重要的领域。”
+**为了记录在案：**克里姆林宫否认俄罗斯军队在乌克兰犯下战争罪行。
 
-澳洲贸易部长丹·特汉说，与新德里达成的具有里程碑意义的自由贸易协议将促进澳大利亚的采矿业，并为生产手机、电视显示器、风力涡轮机和电动汽车所需的关键矿物开辟新的机会。
+据路透社报道，俄罗斯首席调查员周一下令对他所描述的乌克兰的“挑衅”进行调查，此前基辅指称俄罗斯军队在布查屠杀平民。
 
-参考链接：[澳大利亚与印度签署自贸协议 为矿业带来积极促进](https://cn.theaustralian.com.au/2022/04/04/65319/)
+来源：[EU to hit Russia with fresh sanctions after Bucha killings](https://www.axios.com/eu-russia-fresh-sanctions-bucha-killings-77bb1367-fc25-4288-964a-3dfeb5dea9d7.html)
 
-*发布：tianzhihuan*
+* * *
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+审核：Aries的星
+校对：阿伯塔
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-3.jpeg)
 
  
 

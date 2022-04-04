@@ -2,76 +2,50 @@
 ---
 
 
-## 卫星图像显示俄罗斯军队在布查万人坑的证据
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2287342/)
+## 好莱坞团队的新歌我们很美丽&amp;我们是个大家庭感动了七哥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2287519/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8802.38%EF%BC%89%E5%A5%BD%E8%8E%B1%E5%9D%9E%E5%9B%A2%E9%98%9F%E7%9A%84%E6%96%B0%E6%AD%8C%E6%88%91%E4%BB%AC%E5%BE%88%E7%BE%8E%E4%B8%BD%E3%80%81%E6%88%91%E4%BB%AC%E6%98%AF%E4%B8%AA%E5%A4%A7%E5%AE%B6%E5%BA%AD%E6%84%9F%E5%8A%A8%E4%BA%86%E4%B8%83%E5%93%A5%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:2)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
+**郭文贵先生：**刚刚我们跟唐平还有威廉王我们创造了可以说世纪之歌，这个真的是《铁锁梦》在国内影响太大了。我昨天晚上好多信息，什么样人都有，我发现这个歌真不能乱唱，文艺呀。我有啥感觉，我说过去你们咋听我唱歌的呀？为啥呢？因为最近好多人一给我发信息吧就唱这个《铁锁梦》，唱的是真难听，我这个原唱一听我是真受不了。
 
-美国私营太空技术公司Maxar称，乌克兰小镇布查（Bucha）的卫星图像显示，在一座教堂的地面上挖了一条长约45英尺的壕沟，那里已经发现了一个万人坑（mass grave）。该公司在一份声明中说：“3月31日的最新报道显示，在教堂西南部分附近有一条约45英尺长的沟渠墓地。”
+不管啥人唱——我本花一朵，被拐骗山中，从此亲人永相隔，囚禁二十年，我受尽了折磨，这个世界不要我。这是个歌呀。有人一唱哎呀，——这个世界不要我，哇塞！四川调都出来了！我这一听，真是浑身起鸡皮疙瘩。很多人都乱唱，我这想想过去战友咋听我唱歌的呀？
 
-乌克兰官员说，在最近几天从俄罗斯军队手中夺回的首都基辅周围的城镇发现了410具平民的尸体。
+所以说艺术它必须得让人舒服或者让人感动，如果让别人感觉到听着像那镪夫镪刀、镪锅的感觉实在是痛苦。谢谢你们能听七哥这个砸锅砸铁的这种金属声音。那天Tex说：刚听七哥的时候，就像二个铁相撞一样，砸锅砸铁的声音这Tex就差点没说这是什么怪声，是吧？文化大革命炼钢铁的声音，但是现在这声音已经是震响了世界。
 
-美联社记者在基辅西北部的布查（Bucha）看到了21具尸体，一组九人，都穿着平民的服饰，分散在当地居民称俄罗斯军队用作掩体的地点周围。他们似乎是被近距离射击的，至少有两人的双手被反绑在背后。
+昨天有好莱坞的团队给我创造了一个新的歌曲，今天早上又一个好莱坞的团队给我创造了一个新的歌曲。我昨天我发给了唐平，唐平一句话说：这歌不适合你。这是什么歌呀，破歌，就差说烂歌了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NINTCHDBPICT000723578819-scaled.jpg)A lifeless body of a man with his hands tied behind his back lies on the ground in Bucha, Ukraine, Sunday, April 3, 2022. Associated Press journalists in Bucha, a small city northwest of Kyiv, saw the bodies of at least nine people in civilian clothes who appeared to have been killed at close range. At least two had their hands tied behind their backs. (AP Photo/Vadim Ghirda)
+但是今天早上一个好莱坞发来的歌曲，一句话就把我感动了。其中歌词里有一句话，我们很美丽，这句话是英文唱的，我们很美丽。昨天另外一个歌就是we are family。我们是个大家庭。we are family，we are family，我的生命我开车，它是这样一个外国人，都是外国人。用中文、英文唱的，We are big family。
 
-在基辅以西的莫季任（Motyzhyn），美联社记者看到了四具尸体，四具尸体似乎被近距离射击并扔进了一个坑里。当地居民们说，镇长和她的儿子、丈夫一同被捆绑并被蒙住眼睛也在其中。
+今天是：我们很美丽。但是完全是非裔人做的，声音一开始就是：邦邦邦，很强那种，就是特别适合男女高兴的时候的歌，有助于高潮的这种歌。欸！我说不错。但是我发给他，为什么你这么写呢？他说：世界太黑暗，病毒在肆虐，战争还在开始，然后我看你们新中国联邦很多很多视频，他说新中国联邦带给人们的是希望，我希望你成为世界的歌星给人类带来希望。欸！我说这个是很好的。所以今天我们由文艺带来的帅哥美女还有家庭组，今天给战场上的战友们，我们要献上高歌，给全球的人类和战友们带来希望。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/NINTCHDBPICT000723573046-scaled.jpg)The hand of a corpse buried along with other bodies is seen in a mass grave in Bucha, in the outskirts of Kyiv, Ukraine, Sunday, April 3, 2022. (AP Photo/Rodrigo Abd)
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-逃离哈尔科夫前往波兰的奥莱娜·科莱斯尼克（Olena Kolesnik）说，这是种族灭绝，这是法西斯主义。这是对人民、无辜者、儿童、妇女和老人的灭绝。科莱斯尼克位于乌克兰北部的家乡在经历俄罗斯侵略军数周的炮击后处于废墟之中。
+编辑整理：Jacques；
 
-西方和乌克兰领导人此前曾指控俄罗斯犯有战争罪，数十个成员国要求荷兰海牙国际刑事法院采取行动。3月2日国际刑事法院检察官卡里姆汗宣布，已针对被认为犯下战争罪、危害人类罪或种族灭绝罪的俄罗斯高级官员开展调查。
+字幕档制作：知津；
 
-在乌克兰武装部队重新夺回被俄罗斯侵略军占领的城镇后，更多俄罗斯侵略军在乌克兰蓄意杀害平民的证据展现在西方媒体面前。躺在街上的受虐尸体或仓促挖掘坟墓的图像，以及将平民反绑双手，近距离射杀等蓄意杀害平民的罪行，引发了一波愤怒，俄罗斯面临新一轮的谴责，一些西方领导人呼吁采取进一步制裁作为回应。乌克兰总统泽连斯基和一些西方领导人指责俄罗斯进行种族灭绝。
+视频制作及上传：Cindy；
 
-但面对如此多的证据，一向散布假新闻的俄罗斯官员和媒体极力否认和歪曲事实。
+G-News发布：海贼王M.D.LUFFY；
 
-俄罗斯外交部长谢尔盖·拉夫罗夫否认这些指控，称基辅城外的场景是“舞台策划的反俄挑衅”。克林姆林宫甚至声称，“乌克兰发布的大量照片和视频证明战争罪“是一种“挑衅”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-俄罗斯一家电视台主持人奥尔加·斯卡贝耶娃（Olga Skabeyeva）甚至在节目中疯狂咆哮，声称乌克兰正在杀害他们认为是叛徒的本国平民。英国广播公司弗朗西斯·斯卡尔的一条推文写道，“奥尔加·斯卡贝耶娃：西方正在利用布查（Bucha）使未来在以前被俄罗斯军队占领的地区进行的清洗合法化。人们被乌克兰军队杀害是因为他们没有抵抗俄罗斯人。因此，西方正在批准乌克兰法外杀害他们认为是叛徒的人”（Olga Skabeyeva:”The West is using Bucha to legalise future purges in areas previously occupied by the russia army. The people were killed by Ukraine forces because they didn’t resist the Russians. The West is thus giving Ukraine approval to extrajudicially kill those they deem traitors”）。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-04_22-37-46.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-俄罗斯官员和媒体如此丑陋的行径，更加剧了全世界的愤怒。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-联合国人权事务负责人米歇尔﹒巴切莱特在一份声明中说：“我对乌克兰布哈镇街头和临时坟墓中的平民死亡的画面感到震惊。来自这个和其他领域的报告提出了关于可能的战争罪、严重违反国际人道主义法和严重违反国际人权法的严重和令人不安的问题”。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-欧盟外交政策负责人何塞普·博雷尔（Josep Borrell）表示，“俄罗斯当局应对这些暴行负责，他们是在有效控制该地区时犯下的罪行。战争罪和其他严重违法行为的肇事者以及负责任的政府官员和军方领导人将被追究责任。”
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-法国总统埃马纽埃尔·马克龙在法国国际广播电台说，布查（Bucha）有“明确的战争罪行证据”，我赞成新一轮制裁，尤其是对煤炭和汽油的制裁。我们需要采取行动”。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-波兰总理马特乌什·莫拉维茨基呼吁对俄罗斯军队对乌克兰公民的“种族灭绝”进行调查，将普京领导下的俄罗斯描述为“极权法西斯国家”，他点名抨击德国和法国领导人没有采取更多行动，同时呼吁采取“最终打破普京的战争机器”的行动。莫拉维茨基总理质问马克龙，“马克龙总统，你和普京谈判过多少次？你取得了什么成就？……你会和希特勒、斯大林、波尔布特谈判吗？”，同时也指责德国总理肖尔茨，“肖尔茨总理，奥拉夫，今天不应该在柏林听到德国企业的声音，而应该是这些无辜妇女和儿童的声音。”
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-西班牙首相和波兰总理都将俄罗斯士兵所犯下的血腥屠杀称为“种族灭绝”。
-
-因为战区不断出现暴行的证据，英国将推动对俄罗斯实施更严厉的国际制裁，并增加对乌克兰的武器供应。英国首相鲍里斯·约翰逊（Boris Johnson）表示，“英国在支持我们的朋友方面永远不会动摇，普京永远不能泯灭乌克兰人民的精神或征服他们的家园，乌克兰将再次崛起，再次在自由和主权国家中占据一席之地”。
-
-英国首相发言人马克斯·布莱恩今天说，最近从俄罗斯夺回的地区发现的尸体显示“对无辜平民的卑鄙袭击，这进一步证明了普京和他的军队正在乌克兰犯下战争罪行。乌克兰曾请求英国帮助防御俄罗斯船只，当然，总理热衷于超越我们已经提供的东西，我们知道乌克兰人要求提供设备来防御船只，我们正在研究我们能做些什么。
-
-立陶宛宣布将驱逐俄罗斯大使并召回其驻莫斯科特使。拉脱维亚外交部长埃德加斯·林科维奇表示，里加将缩小与俄罗斯联邦的外交关系。
-
-美国驻联合国大使琳达·托马斯-格林菲尔德(Linda Thomas-Greenfield)表示，在俄罗斯军队可能在乌克兰犯下战争罪行的迹象不断增加后，美国呼吁剥夺俄罗斯在联合国人权理事会的席位。
-
-阿尔巴尼亚和科索沃领导人严厉谴责了俄罗斯军队残杀乌克兰平民的罪行，并敦促全世界追究俄罗斯的责任。
-
-西班牙首相佩德罗·桑切斯表示，俄罗斯军队对乌克兰平民的暴行应该在国际法庭上进行审判，并可能构成种族灭绝。
-
-最后，俄罗斯侵略军在乌克兰杀死的平民，可能远远低于CCP去年在郑州放水淹死的人，在新疆集中营坑杀的少数民族，更不要说，利用CCP病毒在武汉、西安、上海、香港和世界各国杀人的数量。呼吁国际社会在调查普京和俄罗斯侵略军在乌克兰犯下战争罪和种族灭绝灭的同时，也成立专门调查组，追究习猪头和中国共惨党犯下的滔天罪行。
-
-参考数据：
-
-[WAR CRIMES Ukraine – Russia latest: Putin’s Bucha murders slammed as ‘war crime’ as satellite images reveal evidence of mass graves](https://www.thesun.co.uk/news/18097128/ukraine-russia-latest-war-putin-invasion-live/)
-
-[Olga Skabeyeva:”The West is using Bucha to legalise future purges in areas previously occupied by the russia army. The people were killed by Ukraine forces because they didn’t resist the Russians. The West is thus giving Ukraine approval to extrajudicially kill those they deem traitors”](https://twitter.com/francska1/status/1510923387400556547?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1510923387400556547%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thesun.co.uk%2Fnews%2F18097128%2Fukraine-russia-latest-war-putin-invasion-live%2F)
-
-[Russia faces growing outrage amid new evidence of atrocities](https://apnews.com/article/russia-ukraine-zelenskyy-kyiv-business-moscow-3a40c029638ffddb289ceba89462c1aa)
-
-[ICC prosecutor launches Ukraine war crimes investigation](https://apnews.com/article/russia-ukraine-genocides-crime-war-crimes-europe-499d7b6a9e955f659284b2edc6f1c508)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
+G-TV：日本银河系农场。
 
  
 

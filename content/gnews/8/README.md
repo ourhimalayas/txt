@@ -2,10 +2,35 @@
 ---
 
 
-## 4/3/2022 文贵直播：喜币是并且将永远是全球最稳定的数字货币；某能源大国的前国家银行行长在喜联储当高管
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2287206/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月4日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2287478/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-3.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.04早 《NFSC新闻》](https://www.gettr.com/streaming/p13ia6zf266)
+[2022.04.04早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13idij3ef1)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-3.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
 
  
 
