@@ -2,28 +2,18 @@
 ---
 
 
-## 香港人陷入长期抗疫的罗网中
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2285834/)
+## 尊重女性的民族才有未来（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2286009/)
 
-作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/香港人陷入长期抗疫的罗网中.png)[图片来源](https://cdn.hk01.com/di/media/images/dw/20220401/586628680298795008450792.jpeg/JFWuSc3WhYhDGRhYtrzakAKbaqfzBznKE0ThphNE4aY?v=w1920)
-本港确诊数字回落，个别在早期使用的检疫隔离设施或会闭馆。有工程师认为，港府应未雨绸缪，增设更多可转换做防疫用途的设备或场所，随时为下一波疫情、甚至更长远传染病防控做周全的打算，如大型场馆设计或新场馆规划加强抽风换气系统，出入口改成双重门，作为隔离前室，预设医疗及物流通道等。
+#### PPT制作：Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：00-12：10-001.jpeg)
+*发布：陶子*
 
-中共病毒在香港盘踞两年阴魂不散，港府全力推进新冠疫苗的注射，宣传可预防感染及降低死亡率，在各种限制政策的配合下，香港的新冠疫苗注射率已高达九成，在市民满怀期待地等候中港通关、海外通航、经济复苏之际，第五波疫情如期而至。港府推出更严厉的防疫措施，不仅通关无望，而且连饭碗都被砸碎，还出现前所未有的高感染率和高死亡率。近日确证人数有所回落，但专家警告已有新的变种病毒出现，第六波疫情随时会到来。而港府和专家除了继续吹嘘新冠疫苗的保护力，还在各区兴建了多个大型隔离营，虽然总体入住率不足五成，但新的隔离项目仍不断推出。据悉，这些隔离营将悉数交予内地医务管理，而最近建设的隔离营已更改了基本构造，采用闭环结构，内设手术室、化验室等功能。如此足以证明即将到来的新冠疫苗次生灾害只会比现在更严重。
-
-爆料革命郭文贵先生在大直播中揭露香港目前的疫情是新冠疫苗导致的次生灾害。而全球许多有良心的医学专家和科学家一致认同，新冠疫苗将导致人体自身的免疫力丧失，各种已知和未知的病症将接踵而来，中共在内地和香港如此大规模地兴建隔离营，与即将大面积爆发的新冠疫苗次生灾害不无关系。连香港的工程专家也嗅到其中的血腥味，提出利用大型公共设施应付长期抗疫的设想。香港的隔离营项目可提供的床位合计2万个，而分布在香港各区的大型的场馆，如体育馆、中小学校的礼堂可等随时改成社区隔离营，安置本区患者，但即便如此，也无法安置九成注射过新冠疫苗的市民，有理由相信在内地各大城市发生的封楼禁足将会在香港上演，而中共研制的气化尸体的设备也会大派用场，香港殡葬行业的压力将瞬间消失，昨日武汉今日香港的悲惨现实即将重演。
-
-资料来源：
-[**新建場館規劃可考慮加入可轉換式隔離設備  為長遠抗疫戰做足準備**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/753655/%E6%96%B0%E5%BB%BA%E5%A0%B4%E9%A4%A8%E8%A6%8F%E5%8A%83%E5%8F%AF%E8%80%83%E6%85%AE%E5%8A%A0%E5%85%A5%E5%8F%AF%E8%BD%89%E6%8F%9B%E5%BC%8F%E9%9A%94%E9%9B%A2%E8%A8%AD%E5%82%99-%E7%82%BA%E9%95%B7%E9%81%A0%E6%8A%97%E7%96%AB%E6%88%B0%E5%81%9A%E8%B6%B3%E6%BA%96%E5%82%99)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

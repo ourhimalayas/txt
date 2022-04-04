@@ -2,11 +2,11 @@
 ---
 
 
-## 歌曲的重要性（六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285863/)
+## 尊重女性的民族才有未来（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2286041/)
 
-#### PPT制作：Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：40-11：50-006.jpeg)
+#### PPT制作：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：00-12：10-002.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

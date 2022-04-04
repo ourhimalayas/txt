@@ -2,11 +2,11 @@
 ---
 
 
-## 歌曲的重要性（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285832/)
+## 我们都是锁链女，锁链布满全球，不打碎锁链绝不放弃（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285983/)
 
-#### PPT制作：0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：40-11：50-004.jpeg)
+#### PPT制作：Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：55-12：00-005.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
