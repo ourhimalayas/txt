@@ -2,30 +2,42 @@
 ---
 
 
-## 大午集团被拍卖，中共国私人企业家噩梦不断
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2287498/)
+## 共产党支持过的米洛舍维奇&amp;卡扎菲&amp;萨达姆&amp;伊朗&amp;俄罗斯
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2287538/)
 
-作者：波士顿五月花  2020灭共必胜
-![](https://assets.gnews.org/wp-content/uploads/2022/04/E3978493-FB0E-47D5-BBD1-C54932D02B45.jpg)
-继郭文贵先生的盘古大观以厕所价被中共贱卖，随后马云的阿里巴巴也无偿易主中共白手套单伟健，现在轮到了河北的大午集团。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8803.38%EF%BC%89%E5%85%B1%E4%BA%A7%E5%85%9A%E6%94%AF%E6%8C%81%E8%BF%87%E7%9A%84%E7%B1%B3%E6%B4%9B%E8%88%8D%E7%BB%B4%E5%A5%87%E3%80%81%E5%8D%A1%E6%89%8E%E8%8F%B2%E3%80%81%E8%90%A8%E8%BE%BE%E5%A7%86%E3%80%81%E4%BC%8A%E6%9C%97%E3%80%81%E4%BF%84%E7%BD%97%E6%96%AF%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:9)
 
-根据一则司法拍卖公告显示，河北大午农牧集团有限公司账套内和账套外载明的财产及财产性权益将在4月11-12日被拍卖。
+**郭文贵先生：**我先在这块儿给大家提个醒，我们为什么今天要谈这个话题呢？我们现在从正在战场中的乌克兰、俄罗斯、还有过去的伊朗、还有北朝鲜，被经济制裁以后它所有的下场，包括曾经的伊拉克、利比亚。
 
-据了解，大午集团高品质的房屋均价在7000以上，官方评估价仅每平方70元，总计50多亿资产含3.4亿现金评估价仅6.8亿，实际评估价值仅3.4亿。而孙大午集团主要成员均已被关押判刑，此次企业被强行拍卖，未得到任何孙氏亲属的签字认可，属于中共对私人企业家的又一次暴力掠夺，暴露出中共流氓土匪的本性，一家优秀的企业就这么彻底被毁掉。
+大家记住：共产党所有在过去这些年支持谁呀？南斯拉夫米洛舍维奇怎么样？南斯拉夫国破了；支持卡扎菲被枪毙了；支持伊拉克给绞刑了是吧？然后它所有支持的人你看，支持伊朗，伊朗快破产了；支持俄罗斯，俄罗斯现在成这样了；支持北朝鲜，北朝鲜这么多年就在人间的地狱活着，真的北朝鲜还不如死了那些人。你去过北朝鲜你就知道了，它一点儿不强大，没有一个人是舒服的，包括金家它也是一个很痛苦的奴隶主。奴隶有穿着华丽衣裳的奴隶，也有穿着衣衫布缕的这种奴隶，我们中国人更不用提了是共产党的奴隶。
 
-郭文贵先生多次说过，中共内部对私人企业家的共识就是：私人企业家就是猪，是夜总会的小姐，是尿尿的夜壶，养肥了就可以杀，杀完了可以再培养。
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-从中共篡权后的公私合营，消灭了所有的私人企业家。如今阿里巴巴、腾讯、大午集团等，一个又一个私人企业家被剥夺一生的心血，一个又一个私人企业家被关进了监狱，试问这种体制下，谁还能安心创业？
+编辑整理：Jacques；
 
-中共为什么敢肆意蹂躏企业家？因为他们骨子里认为没有中共的市场，哪有你们这些企业家发展的机会。但是大多数企业家与虎谋皮，乐在其中，从没思考过老虎最后要把你吃掉。包括孙大午，通过其早期互联网的视频演讲，发现其内心还是很爱中共国的。认为官二代，富二代等精英不应该去外国端盘子，应该留下来建设祖国。所以中共国那些天真的私人企业家们，快点跑吧，用郭先生的话说：花出去的钱才是你的钱。再不跑全家都是孙大午的下场，绞肉机可不管你的后台是谁，包括和习家有合作的王健林，又能怎样，最终都会灰飞烟灭。
+字幕档制作：知津；
 
-* * *
+视频制作及上传：Cindy；
 
-*编辑：文合*
+G-News发布：海贼王M.D.LUFFY；
 
-*封面：水涨船高*
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-*发布：吐纳*
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

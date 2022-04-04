@@ -2,35 +2,37 @@
 ---
 
 
-## 有声|疫情背后的政治斗争
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2286786/)
+## 微信暂停NFT账户以“避免数字资产投机”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2286814/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-随着共产党执政时间的延长，共产党内部分赃不均导致斗争日益激烈，自2017年七哥爆料开始就挑明了这种关系并加速加强了这种权利之争，从以党为中心到现在掀桌子，斗争的白热化已经无暇顾及党的利益，甚至有故意加速党的灭亡以保自身利益。
+#### 【雅典娜快讯】，紧贴时事脉搏
 
-尤其今年开始的疫情，一方面是疫苗灾难引起病毒扩散，二是借着疫情搞乱经济，以经济倒塌摧垮习近平的执政。之前也是百思不得其解，为什么这么管理疫情？是医疗技术和认识水平不够？还是当地为了发疫情经济财？明知道这样搞会进一步恶化经济导致房产倒塌，难道共产党真的不懂这个道理？答案我觉得都不能很好的解释目前的情况。应该是借机搞乱经济瘫痪社会运转，加速百姓起来反抗，加大所有的压力以快速引爆，给习总施加压力，趁机发动政变军变。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/images.jpg)
+翻译：学森永爱7哥
+编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-369.png)
+微信已禁止大量与非同质化代币（NFT）相关的公众号。微信澄清说，并非完全禁止 NFT，但微信不允许其二次销售数字产品，因为它们具有投机性质。 腾讯旗下的微信拥有 12 亿用户，是迄今为止中国最大的通信平台，也是全球最大的平台之一。但正如当地一家财经新闻媒体透露的那样，微信并不是 NFT的忠实粉丝，NFT已经风靡全球，这个新兴市场去年达到410 亿美元，几乎与艺术市场相匹配。
 
+新浪报道称 ，微信已经暂停了数十个广泛推广非同质化代币的公众号。据中国数字货币记者 Colin Wu 称，微信要求此类账户“拥有中国政府提供的区块链公司备案，并且不允许二次交易”。
 
-文字版原文：[疫情背后的政治斗争](https://gnews.org/zh-hans/2280856/)
+中国目前没有任何关于NFT的规定。但是，它已经全面禁止数字货币以及ICO和区块奖励挖矿，这让中国NFT粉丝只能选择通过人民币购买数字货币。政府对可以挖矿的区块链网络也有一些限制，使得政府能够在发展区块链网络上占得先机。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+在拥有近6亿用户的中国版Twitter微博上，微信澄清了自己的立场，称其最近“对用于投机和二次销售数字货币公众号和小程序进行了规范和整顿”，微信方面补充说，这是“根据国家有关规定进行的，以防止虚拟货币交易中的投机风险”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+母公司腾讯拒绝回答媒体关于停牌的问题。这家游戏、娱乐和社交媒体公司与蚂蚁集团一起领导了一项倡议，涉足NFT，成为世界上第一个获得联合国批准的数字货币标准项目。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+一些被暂停的公众号，包括一个名为 Spirit Leap的账户告诉《南华早报》，他们在被其他类似公众号举报后被暂停。在微信上，这些帐户不再出现在搜索结果中，访问它们的现有订阅者会收到一条提示，说明“此帐户没有发布、传播或从事相关业务活动的合法许可”。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+正如微信进一步声明，公众号只能显示数字货币的初始销售情况。此外，运营商必须提供“与中国网信办认可的区块链公司”的合作证明。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+原文链接：[https://coingeek.com/wechat-suspends-NFT-accounts-to-avoid-speculation-in-digital-assets/](https://coingeek.com/wechat-suspends-NFT-accounts-to-avoid-speculation-in-digital-assets/)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+*发布：tianzhihuan*
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

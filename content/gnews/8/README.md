@@ -2,35 +2,34 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月4日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2287478/)
+## 小马甲引领灭共时尚
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2287520/)
 
-作者：香草山翻译部
+作者：波士顿五月花  2020灭共必胜
+![](https://assets.gnews.org/wp-content/uploads/2022/04/F8B567C1-1168-40F9-9D05-9704A28CDC1C.jpg)
+最近，在梅迪卡救援前线，一件小小的马甲在当地火了。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+许多国际义工们和现场的人纷纷向新中国联邦战友索取印有：Take down the ccp字样的马甲，然后大声高喊：“Take down the ccp”。这已经成了当地的时尚主流！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-3.png)
+这款马甲前面印有“消灭中国共产党”的英文字样，背后印有“我们是打到中国共产党的新中国人”的英文字样。这样好处就是，极易宣传我们的身份和使命，能很好地在镜头前面展示，留下烙印。更能很好地区分新中国联邦和中国共产党。
 
-文章仅代表作者本人观点，与Gnews无关
+为什么要这么做？
 
-视频参看：
-[2022.04.04早 《NFSC新闻》](https://www.gettr.com/streaming/p13ia6zf266)
-[2022.04.04早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13idij3ef1)
+1. 因为共产党派出彭博社采访，试图污蔑我们来救援是为了谋求政治利益，郭文贵先生告诉我们，共产党在背后发动战争。我们为了不让中国人背锅，凭什么不能来做，越是不让我们做的，敌人一定越是害怕，我们不仅要做，而且要做的最好最响亮。
+2. 中共在世界拉的仇恨，导致世界对中国人越来越抱有怀疑和不友好的态度。在梅迪卡现场，一开始当地人不信任我们，怀疑我们是中共政府派来的。当得知我们和中共不一样，并且是消灭中共的时候，大家一下子打开了隔阂，找到了信任和真心。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-3.jpeg)
+在郭文贵先生和战友们的集思广益下，马甲设计的越来越好，并且后面还有更好的马甲在设计中，这离不开战友们的智慧和辛勤努力。
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+绝大部分外国人因为惧怕中共的邪恶和政治正确，不敢公开反对中共的邪恶独裁统治。这一次中国人自己站出来了，也带领外国人勇敢站起来，在全球互联网和梅迪卡上空经久不息飘荡着Take down the ccp的口号，中共你完了，灭共已经成为了世界的主流和时尚！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-1.png)
+* * *
+
+*编辑：文合*
+
+*封面：水涨船高*
+
+*发布：吐纳*
 
  
 
