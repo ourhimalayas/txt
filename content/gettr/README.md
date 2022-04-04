@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 12:33 AM (UTC)`
+
+2022.04.03 晚 新中国联邦 | 新闻   真相和真情 推动钢琴家公开支持新中国联邦；乌克兰海港城市敖德萨遭俄军空袭
+![img](https://media.gettr.com/group22/origin/2022/04/04/00/6220dd9c-d315-9ee5-326d-1071a44d38af/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/3/2022 11:08 PM (UTC)`
 
 4/3/2022 Miles Guo: The CCP delivered the HQ series missiles and air defense systems to Serbia five days ago, indicating that it has officially participated in the Russia-Ukraine war. The US dollar and the United States are going to be the big winners in the Russia-Ukraine war. Digital currency will be the strongest money in the world, and the Himalaya Coin will be able to supersede the US dollar to circulate in the world.<br/><br/>4/3/2022 文贵直播：中共在5天前已将红旗导弹和反导系统送往塞尔维亚，这意味着中共正式参与了俄乌战争；美元和美国是俄乌战争的大赢家；未来最牛的是数字货币，喜币能取代美元在全球流通<br/>
@@ -151,13 +158,6 @@ MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 2022.04.02 NFSC finance 新中国联邦 | 喜财经  货币的本质是信用，信用的本质是流通；⻩金为什么不适合做货币
 ![img](https://media.gettr.com/group28/origin/2022/04/03/01/b7e0c215-7c42-c7fc-cd40-bbc692f49532/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/3/2022 1:48 AM (UTC)`
-
-Medyka Border: A Belgian veteran named Robin saw our yellow vest with “Take Down the CCP” and said :”Glad you are here, you represent the good people”. He agreed that taking down the CCP is to take down the bad people, then everyone in the world can be happy. He liked the NFSC tent very much and took a picture of it.<br/><br/>👆梅蒂卡边境： 来自比利时的退伍军人Robin看到我们穿的灭共黄马甲说 ，很高心看到你们在这里，你们代表着好人，灭共就是要灭掉坏人，灭掉坏人，世界上的人才会幸福，我们才会赢！ 他说新中国联邦的大帐篷太棒了，他有拍照留念。<br/><br/>感谢前线战友报道🙏
-![img](https://media.gettr.com/group40/origin/2022/04/03/01/70559d1c-a0f7-4cbb-b148-0d6c66302628/out.jpg)
 
 ---
 
