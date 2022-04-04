@@ -2,86 +2,39 @@
 ---
 
 
-## 参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2283516/)
+## 喜马拉雅币一周分析与总结（3月28日-4月3日）
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283705/)
 
-**参议员玛莎.布莱克本： **
-在俄罗斯威胁进行核战争之际，拜登总统的预算将迫使削减关键核能力。 俄罗斯、 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、朝鲜和伊朗只通过实力理解和平。 我们必须为我们的军队提供防卫和保护我们的自由所需的资源。
-
-
-
-> President Biden’s budget will force cuts to key nuclear capabilities, at a time when Russia is threatening nuclear war. Russia, China, North Korea & Iran only understand peace through strength. We must provide our military the resources they need to defend & protect our freedom.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510735250376298496?ref_src=twsrc%5Etfw)
+作者：纽约香草山金融部 – ILOVE战神
 
 
 
-**参议员玛莎·布莱克本：** 
-我们不能袖手旁观，任由左派(把他们的思想)灌输给我们的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
-> We can’t sit back and allow the left to indoctrinate our children.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1510777612909613057?ref_src=twsrc%5Etfw)
+过去一周喜马拉雅币价格回落至36美元左右，平均日交易量约26万枚喜币。其中3月30日单日交易量突破74万枚喜币，创下喜币上市3天后的最高单日交易量，交易额突破2500万美元。喜币上市以来总交易量约3330万枚 ，占今年总发行量仅约3.33%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12.jpg)
+最近G-Fashion开通了HPay付款功能，并且交易量增加了10倍，标志着喜币真正进入了G生态的流通领域。喜美元HDO零成本立即到账支付，在实体商店中不断增加流通，并不需要换成美元，这将促进HDO资金池的稳定增长，并最终推动喜币价格不断上涨。
+
+本周郭文贵先生在大直播中透露，最近某亚洲数字货币领袖人物和中东某国都到喜联储考察，考察后均表示喜币和HPay的生态系统将成为数字货币的希望和未来，其中即将上线的HPay 2.0版本拥有全球最先进的技术。另外某世界前五的社交媒体巨头最近希望在其平台上开放喜币打赏功能，但喜联储认为未来喜币价格将超过1000美元，目前并不是最好的时机。喜联储在近期将主要专注于扩展其数字银行和交易所业务。
+
+本周欧洲议会议员以93票对14票通过了加强欧盟反洗钱和恐怖主义融资规则的立法草案。该法案要求追踪所有加密资产的转移情况。该法案将打击各种去中心化的加密货币和交易所，对严格KYC的喜币是利好。据郭先生在大直播中透露，币安由于过去一系列不合规的操作将会被美欧政府全球追杀，而喜币不论现在和未来都是全球最稳定的数字货币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture5.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture11.png)
+参考链接：
+1. [2022年3月30日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2270288/)
+2. [喜交所官网：HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
+3. [Crypto assets: new rules to stop illicit flows in the EU](https://www.europarl.europa.eu/news/en/press-room/20220324IPR26164/crypto-assets-new-rules-to-stop-illicit-flows-in-the-eu)
+4.[2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密](https://gettr.com/post/p13c6fub6b6)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编：飞虹
+校对/发稿：为真不破20
 
 
 
-**参议员玛莎.布莱克本： **
-不要搞错：在美国，我们正目睹一场文化战争。
-
-
-
-> Make no mistake: we’re witnessing a culture war in America.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510672033620889603?ref_src=twsrc%5Etfw)
-
-
-
-**国务院发言人内德·普赖斯:** 
-当被问及来自布哈(Bucha) 的可怕图像时，布林肯国务卿@SecBlinken 今天早上告诉CNN记者@CNNSotu，我们不能对此麻木——我们不能使其正常化。 这就是每天都在发生之事的现实，也是克里姆林宫的战争必须结束的原因。 【转CNN推文及视频： “我们不能对此麻木。” 国务布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上。】
-
-
-
-> Asked about the horrifying images coming out of Bucha, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) told [@CNNSotu](https://twitter.com/CNNSotu?ref_src=twsrc%5Etfw) this morning that we can’t become numb to this—we can’t normalize this. This is the reality of what’s going on every single day and why the Kremlin's war needs to end. [https://t.co/PvRBtLUCGE](https://t.co/PvRBtLUCGE)
-> — Ned Price (@StateDeptSpox) [April 3, 2022](https://twitter.com/StateDeptSpox/status/1510712942072848385?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：** 
-我们强烈谴责克里姆林宫部队在布查(Bucha)和乌克兰各地的明目张胆的暴行。我们正在利用一切可用工具，记录和分享信息，追究责任人的责任。
-
-
-
-> We strongly condemn apparent atrocities by Kremlin forces in Bucha and across Ukraine. We are pursuing accountability using every tool available, documenting and sharing information to hold accountable those responsible.
-> — Secretary Antony Blinken (@SecBlinken) [April 4, 2022](https://twitter.com/SecBlinken/status/1510792047824826372?ref_src=twsrc%5Etfw)
-
-
-
-**众议员兰斯.古登： **
-高油价首先被归咎于大流行病。 
-然后，弗拉基米尔.普京（因此）受到指责。 
-现在，石油公司又遭到指责。 
-
-乔·拜登应该将自己列入被指责的名单。
-
-
-
-> First, the pandemic was blamed for high gas prices.
-> 
-> Then, Vladimir Putin was blamed.
-> 
-> Now, oil companies are being blamed.
-> 
-> Joe Biden should add himself to the list.
-> — Lance Gooden (@Lancegooden) [April 3, 2022](https://twitter.com/Lancegooden/status/1510686257646604289?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院： **
-国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：乌克兰的农民没能照料他们的庄稼，而是被迫要么为国家的未来和独立而战，要么逃离。 运送粮食的船只由于被俄罗斯侵略的封锁而无法从黑海港口驶出。 【图中文字：国际社会必须增加对俄罗斯的施压以结束这场无端又无理的战争 – 布林肯】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): Farmers in Ukraine, instead of tending to their crops, have been forced to either fight for their country’s future and independence, or to flee. Ships with grain are not getting out from Black Sea ports because they’re blocked by Russia’s aggression. [pic.twitter.com/RI47Q1JL7u](https://t.co/RI47Q1JL7u)
-> — Department of State (@StateDept) [April 3, 2022](https://twitter.com/StateDept/status/1510603026301599746?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

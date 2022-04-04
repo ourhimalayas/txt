@@ -2,33 +2,39 @@
 ---
 
 
-## 乌克兰港口城市敖德萨报告又遭导弹袭击
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2284814/)
+## 新冠疫苗副作用亲历者爆料收集专栏（2022.4.4）——打疫苗后血栓
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284873/)
 
-**俄罗斯军队再次袭击了乌克兰南部港口城市敖德萨。乌克兰其他城市也报告了俄罗斯的袭击事件**。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-作者：dpa/sh/原文发布于2022年4月4日8:59 (CET)
-翻译：LK
+整理：gardeniahu
+编辑：Rianna
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image.jpg)图片：来自敖德萨的导弹袭击（2022年4月3日摄：Bulent Kilic/AFP）
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-据敖德萨政府称，该地区在2022年4月3日晚上再次遭到火箭弹袭击。详情将在晚些时候公布。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-约130公里外的米科拉耶夫市的市长也报告了几起导弹袭击。目前尚未得到俄罗斯方面的确认。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22.png)图片来源：雅典娜设计组（614）
 
-这两个地区在周末均受到了导弹的攻击。莫斯科的国防部说，敖德萨附近的一个炼油厂和几个燃料库遭到了来自船只和飞机的射击。
 
-**撤退和进一步攻击**
+我已经更新详细的治愈方法，记得去我的主页。对于血栓虽然我早有准备，积极的治疗还是很必要的。置顶疫苗的sop，详细介绍了，疫苗前后的sop · 我严格遵守，所以发现了血栓，并积极治疗。不是仅仅我打的阿斯利康会血栓，mRNA疫苗也一样，是疫苗刺突蛋白造成的。阿斯利康的血栓有一种很罕见但很危险，叫血小板减少综合症。
 
-据报道，俄罗斯军队已开始从乌克兰东部的苏梅地区撤出。然而，苏梅地区行政当局负责人说，现在谈论该地区的解放还为时过早。
+精选评论
 
-同时，据报道，乌克兰的几个城市遭到了猛烈的攻击。据乌克兰消息人士称，在乌克兰东部大城市哈尔科夫，34人被俄罗斯的击伤。至少有7人被杀。受伤的人中有三名儿童。
+Girl珞 回复：血小板减少综合症，我一个朋友的朋友孩子打了就这样了，但是他是在国内打的科兴。
 
-据报道，乌克兰西部城市特尔诺皮尔遭到了空袭。据乌克兰北部城市切尔尼戈夫的市长称，该市现在有*70%*遭到破坏。同时，俄罗斯证实对基辅和米科拉夫地区的军事设施和燃料库进行了几次空袭。（*dpa/sh*）
+Springiscoming  回复：请教大神，打辉瑞后心跳快，两三个月后渐渐好转，以后还会有隐患吗，比如三五年左右心梗几率比不打疫苗高。
 
-原文链接：[https://brf.be/international/1591195/](https://brf.be/international/1591195/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+参考链接：[https://www.xiaohongshu.com/discovery/item/61bac1ca000000000102a49f?](https://www.xiaohongshu.com/discovery/item/61bac1ca000000000102a49f?)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

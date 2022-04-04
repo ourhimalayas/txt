@@ -2,39 +2,29 @@
 ---
 
 
-## 在澳大利亚的支持下，Iluka为7.5亿美元的稀土精炼厂开绿灯
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2284557/)
+## 乌克兰检察方：基乌附近确认410具平民尸体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284607/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+乌克兰检察方3日宣布，俄军撤离后在乌克兰的首都基乌周边地区，共发现410具平民遗体。也有失踪者，实际上似乎还有更多的死者。俄罗斯军队可能进行了严重侵犯人权的行为，检察院将根据居民的证词等来查明真相。
 
-翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-320.png)图片来源：雅虎新闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2021-10-20-at-09-47-36-Iluka-Website-Balranald.png)图片来源：https://im-mining.com/
+检察院此前在基乌周边的布查、伊尔平、霍斯特梅利等地方政府进行了调查。据悉，410具遗体中，对140人进行了验尸。在乌克兰国防部3日在推特上发布的布查的视频中，道路上躺着许多像是平民的尸体，军队的车一边绕开尸体一边行进着。总检察长本尼迪克托瓦当天在脸书上发文说：“这是地狱。我们需要留下记录来惩罚恶人“，并提出要彻底调查。
 
+乌克兰总统泽连斯基在美国CBS电视台指责称，认为杀害大量平民的行为是“种族灭绝(大屠杀)”。他呼吁与俄方进行对话防止平民伤亡增加，并再次呼吁与俄总统普京展开会议。
 
-根据CNA4月4日报道，Iluka资源公司周一承诺，将建设澳大利亚第一座稀土精炼厂。此前该公司从澳大利亚政府获得了10亿澳元（7.49亿美元）的廉价债务，澳大利亚政府希望将关键矿产供应从中共国转移出去。
+下一篇：[俄罗斯国防部：杀害平民是乌方捏造](https://gnews.org/zh-hans/2284630/)
 
-这家矿砂生产商在西澳大利亚的Eneabba炼油厂预计将耗资10亿至12亿澳元，将于2025年开始生产对从电动汽车到导弹等一系列技术应用至关重要的轻稀土和重稀土。
+参考链接：[キーウ周辺で410人の遺体確認　ウクライナ検察（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5f245b832ae1e4a3a22d8f21ae245f0bcfffd376)
 
-新工厂是美国和包括澳大利亚和日本在内的盟国，推动开发包括稀土在内的一系列关键矿物的新来源。该项目旨在抗衡中共国对这些供应链的主导地位。
+* * *
 
-“如果没有澳大利亚政府的支持，我们就不会做出最终的投资决定。”Iluka周一在一份声明中表示。
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-1.jpeg)
 
-澳大利亚资源部长基思·皮特（Keith Pitt）表示，该工厂在满负荷运转时，可供应全球稀土氧化物市场高达9%的份额。
-
-该工厂将具备年产5500吨稀土氧化物钕和镨(NdPr)以及75万吨镝和铽(Dy+Tb)的产能。
-
-在过去的十年中，全球的稀土项目面临着无数的成本和资金挫折。为确保该项目顺利进行，Iluka将炼油厂作为一个单独的实体，并与政府谈判达成了风险分担协议，以应对成本的不足。
-
-新闻来源：[Backed by Australia, Iluka greenlights $750 million rare earths refinery](https://www.channelnewsasia.com/business/backed-australia-iluka-greenlights-750-million-rare-earths-refinery-2605746)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

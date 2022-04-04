@@ -2,36 +2,35 @@
 ---
 
 
-## 马斯克的新光速引擎挑战物理学
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283692/)
+## 苏州出现首例奥密克戎全新变异毒株
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284377/)
 
-作者：纽约香草山医疗部 – 云豹
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理/编辑：围剿维尼熊
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-4月2日外媒消息，马斯克和美国NASA刚刚发布了新火箭，名为光速引擎。它挑战了物理学，可以将人类在几周而不是几个月内带到火星，大大改变了太空旅行的规则。目前该引擎正在新的宇宙飞船上进行测试。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11.jpg)
-据悉，目前的商用和军用火箭都使用化学燃料，这些燃料必须在地球上预制，耗资巨大，极其复杂，且助推重量受到严重限制。而马斯克的光速引擎使用的燃料为电力。这种引擎被装置在命名为猛禽的革命性火箭上，推力可超过50万镑，因使用甲烷燃料从而降低了30%的二氧化碳排放，清洁环保。进入太空之前，先要在地球进行试验，工作人员称大约明年上半年可进行地球短途上下飞行。
-
-电磁驱动装置是实现光速飞行的核心，它违背了牛顿第三定律，没有相互依存的作用力和反作用力，只有通过磁场加速过热等离子体产生的一个推力。并且因为没有助推剂，将会对太空非常环保。Space X已经成功试验这种装置，马斯克的目标是制造一个轻速发动机，速度可达186000英里每秒，在短短70天内将人们带上火星，太空旅行将成为现实。目前的载人航天宇宙飞船到达火星的时间为0.5年。
-
-参考链接：
-[Elon Musk’s New Light Speed Engine Defies Physics](https://www.sciencenatures.com/2022/04/elon-musks-new-light-speed-engine.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3313.jpg)图片来源：视觉中国
 
 
+根据大纪元4月4日讯，官方通报，中共国江苏省苏州市发现奥密克戎（Omicron）全新变异毒株，该毒株与全球已知毒株均不同源。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+通报称，3月28日苏州下辖的常熟市发现的一例确诊病例，病毒经测序对比为VOC／Omicron变异株BA.1.1进化分支。
 
+在本土病例和输入病例数据库、全球COVID-19的GISAlD数据库中，均未发现与该新毒株基因组高度同源序列。
 
+目前，奥密克戎毒株正在大陆广泛传播。据中共卫健委消息，大陆疫情目前已波及29个省，呈现出点多、面广、频发的特点。
+
+在苏州市通报发现新变异株的当天，苏州下辖的昆山市2日宣布全市升级疫情防控措施，封控区实行区域封闭、足不出户；管控区实行人不出区、严禁聚集。
+
+参考链接：[苏州现全球首例全新变异株 大连亦现不明毒株](https://www.epochtimes.com/gb/22/4/3/n13693136.htm)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

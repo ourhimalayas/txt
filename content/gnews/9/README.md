@@ -2,30 +2,45 @@
 ---
 
 
-## 巴基斯坦现总理解散议会，意欲击败中共颠覆阴谋
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2284733/)
+## 新冠疫苗副作用亲历者爆料收集专栏（2022.4.4）——打疫苗第三针后眩晕恶心反胃
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284840/)
 
-#### 撰稿：彩虹 
+#### 雅典娜情报组《疫苗灾难收集专栏》 
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-2.jpg)图片来源：卫报
-2022年3月份，郭文贵先生在新中国联邦大直播中爆料由于巴基斯坦总理伊姆兰·汗（Imran Khan）不完全服从中共，中共意欲将其赶下台，让前总理谢里夫重新执政。4月4日，《国会山报》发布文章，报道伊姆兰·汗解散了议会，并于周日向全国发表的电视讲话中呼吁提前进行选举。
+整理：gardeniahu
+编辑：Rianna
 
-据《纽约时报》报道，伊姆兰·汗在讲话中说：“为选举做好准备，不能让腐败势力决定国家的未来。”
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-伊姆兰·汗在一条推文中指出：“巴基斯坦民主运动（Pakistan Democratic Movement，PDM）接受选举，而不是成为外国政权更迭阴谋的一部分。”
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-但是，文章说，伊姆兰·汗试图将推翻他的努力说成是美国支持的阴谋的一部分。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-5.png)图片来源：雅典娜设计组（614）
 
-报道指，周日，巴基斯坦反对派领导人夏巴兹·谢里夫（Shehbaz Sharif）表示，该组织已就如何应对最新的事态发展举行了多次会议。
 
-《纽约时报》报道，反对派立法者向该国最高法院提交了一份请愿书，称伊姆兰·汗解散议会此举是“针对国家和宪法的公开政变”。
+前天打了新冠疫苗第三针加强针一直打的都是科兴。前两次一点反应都没有，这次反应太大了。
 
-巴基斯坦最高法院预计将在周一处理并表决此事。
+1. 当天上午就非常困，以为中午睡了一觉就好了，然后下午起来头痛强烈还恶心反胃一直在吐口水。
 
-**新闻来源**
+2. 我以为第二天就好了，果然上午没有任何问题元气满满，精神抖擞，结果睡了个午觉起来开始眩晕恶心也是吐口水，但是不头痛了。
 
-[Pakistani PM Khan calls for early election amid effort to oust him](https://thehill.com/policy/3257827-pakistani-pm-khan-calls-for-early-election-amid-effort-to-oust-him/)
+3. 第二天（也就是昨晚）回来吃了个晚饭、六点多洗漱完开始睡觉一直睡到今天早上，起来仍然非常眩晕恶心，感觉像做了什么极限运动或者什么的，要靠意志才能站稳的那种，而且呼吸也有点困难不太通畅。其实好像也没啥太大不一样手脚都很正常，就是眩晕感非常严重。
+
+兄弟姐妹们，我想去医院看一下咋回事，现在好难受，但是不知道挂什么科？在线求解。
+
+精彩评论：
+
+小红薯62121D1F   回复：什么都不能说～～～很无奈，失落
+
+烟雨凄迷  回复：肠胃科吧，我看可多说打了疫苗以后胃出现毛病的。
+
+参考链接[https://www.xiaohongshu.com/discovery/item/62464230000000002103ea05?](https://www.xiaohongshu.com/discovery/item/62464230000000002103ea05?)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
