@@ -15,91 +15,91 @@
 
 ---
 
-### [强制出示新冠疫苗通行证政策从今天午夜起结束](/content/gnews/1/README.md)
+### [4/3/2022 文贵直播：喜币是并且将永远是全球最稳定的数字货币；某能源大国的前国家银行行长在喜联储当高管](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/3/2022 文贵直播：疫苗灾难后，人类将产生能源革命并进入数字化时代，马斯克将改变通信和运载工具；干细胞时代将到来，人类繁殖种族混血的时代将到来，无种族、地域和宗教区分、无皇有主的时代将到来，人类将走向外太空](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [马斯克收购Twitter 9.2%股份成Twitter 最大股东](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [强制出示新冠疫苗通行证政策从今天午夜起结束](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [俩法学“叫兽”争官位互撕，中共思想毒害可见一斑](/content/gnews/2/README.md)
+### [欧盟将在布查杀人事件后对俄罗斯实施新的制裁](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俩法学“叫兽”争官位互撕，中共思想毒害可见一斑](/content/gnews/6/README.md)
  ` 波士顿五月花农场`
 
-### [【粤语配音】2022年4月3日：中共部署红旗导弹的真正意义](/content/gnews/3/README.md)
+### [【粤语配音】2022年4月3日：中共部署红旗导弹的真正意义](/content/gnews/7/README.md)
  ` MOS香港部`
 
-### [上海疫情部分信息反映出中共自我种族歧视](/content/gnews/4/README.md)
+### [上海疫情部分信息反映出中共自我种族歧视](/content/gnews/8/README.md)
  ` 波士顿五月花农场`
 
-### [立陶宛或完全切断俄罗斯天然气进口](/content/gnews/5/README.md)
- ` 澳喜特战旅Gnews`
-
-### [铁汉柔情的保镖&#8211;小小酥](/content/gnews/6/README.md)
+### [铁汉柔情的保镖&#8211;小小酥](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [乌克兰首都基辅郊外布查镇（Bucha）曝尸街头餐象横生](/content/gnews/7/README.md)
+### [有声|马斯克的新光速引擎挑战物理学](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [乌克兰首都基辅郊外布查镇（Bucha）曝尸街头餐象横生](/content/gnews/11/README.md)
  ` 【🌹玫瑰新闻】`
 
-### [有声｜高盛：美元或失去主要储备货币地位](/content/gnews/8/README.md)
+### [有声｜高盛：美元或失去主要储备货币地位](/content/gnews/12/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声|俄承诺减少军事行动 拜登称拭目以待](/content/gnews/9/README.md)
+### [有声|俄承诺减少军事行动 拜登称拭目以待](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [郭文贵先生灭共歌曲《灭共的雪》和《锁链梦》再次打榜成功！](/content/gnews/10/README.md)
+### [郭文贵先生灭共歌曲《灭共的雪》和《锁链梦》再次打榜成功！](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜警惕：匈牙利、塞尔维亚两“亲中俄”首脑连任](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [泽希望俄罗斯士兵的母亲能看到他们的儿子在乌的暴行](/content/gnews/12/README.md)
+### [泽希望俄罗斯士兵的母亲能看到他们的儿子在乌的暴行](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国称对乌平民的袭击必以战争罪调查](/content/gnews/13/README.md)
+### [英国称对乌平民的袭击必以战争罪调查](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [有声｜无监管的数字货币成为俄罗斯遭制裁后的“摇钱树”](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [微信暂停NFT账户以“避免数字资产投机”](/content/gnews/15/README.md)
+### [微信暂停NFT账户以“避免数字资产投机”](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [立陶宛宣布停止进口俄罗斯天然气](/content/gnews/16/README.md)
+### [立陶宛宣布停止进口俄罗斯天然气](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [澳印两国签署自贸协议，促进关键矿业发展](/content/gnews/17/README.md)
+### [澳印两国签署自贸协议，促进关键矿业发展](/content/gnews/19/README.md)
  ` 走进澳洲`
 
-### [有声|疫情背后的政治斗争](/content/gnews/18/README.md)
- ` MOSREC`
+### [文贵大直播|新中国联邦是唯一的24小时无死角的传递救援信息媒体](/content/gnews/20/README.md)
+ ` KarmaLabs`
 
-### [被控密谋政变 约旦前王储放弃王子头衔](/content/gnews/19/README.md)
+### [被控密谋政变 约旦前王储放弃王子头衔](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;打完康诺希，我感觉我快废了](/content/gnews/20/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;打完康诺希，我感觉我快废了](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文•贵天成——文贵先生谈“H- Pay、喜支付”（十九）](/content/gnews/21/README.md)
+### [文•贵天成——文贵先生谈“H- Pay、喜支付”（十九）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国外科医生被威胁不堪忍受折磨和屈辱自杀身亡](/content/gnews/22/README.md)
+### [中共国外科医生被威胁不堪忍受折磨和屈辱自杀身亡](/content/gnews/24/README.md)
  ` mayflowertranslate`
 
-### [埃隆-马斯克收购Twitter的9.2%股份](/content/gnews/23/README.md)
+### [埃隆-马斯克收购Twitter的9.2%股份](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;辉瑞第二针直接进了急诊](/content/gnews/24/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;辉瑞第二针直接进了急诊](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;接种新冠疫苗后心肌炎](/content/gnews/25/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;接种新冠疫苗后心肌炎](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [4月3日俄乌交战最新进展](/content/gnews/26/README.md)
+### [4月3日俄乌交战最新进展](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [文•贵天成——文贵先生谈“H-pay、喜支付”（十七）](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西班牙警方配合美国特工扣押俄罗斯寡头的游艇](/content/gnews/28/README.md)
- ` 日本东京方舟农场`
-
-### [22岁乌克兰女孩击毁一架俄罗斯SU-35S战斗机](/content/gnews/29/README.md)
+### [西班牙警方配合美国特工扣押俄罗斯寡头的游艇](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
 ### [히연준 의장, 암호화폐의 중요한 역할을 논하는 글을 기고하다](/content/gnews/30/README.md)

@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|疫情背后的政治斗争
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2286786/)
+## 立陶宛宣布停止进口俄罗斯天然气
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2286801/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-随着共产党执政时间的延长，共产党内部分赃不均导致斗争日益激烈，自2017年七哥爆料开始就挑明了这种关系并加速加强了这种权利之争，从以党为中心到现在掀桌子，斗争的白热化已经无暇顾及党的利益，甚至有故意加速党的灭亡以保自身利益。
+作者：纽约香草山农场教育部 Naughty(文行)
 
-尤其今年开始的疫情，一方面是疫苗灾难引起病毒扩散，二是借着疫情搞乱经济，以经济倒塌摧垮习近平的执政。之前也是百思不得其解，为什么这么管理疫情？是医疗技术和认识水平不够？还是当地为了发疫情经济财？明知道这样搞会进一步恶化经济导致房产倒塌，难道共产党真的不懂这个道理？答案我觉得都不能很好的解释目前的情况。应该是借机搞乱经济瘫痪社会运转，加速百姓起来反抗，加大所有的压力以快速引爆，给习总施加压力，趁机发动政变军变。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/images.jpg)
+外媒报道，立陶宛能源部4月2日发表一份声明称，立陶宛将不再进口俄罗斯天然气，成为欧洲第一个脱离俄罗斯天然气供应的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-5.jpg)
+该声明表示，立陶宛国内消费的所有天然气，都将通过克莱佩达港的液化天然气接收站进口。该接收站于 2014 年落成，旨在结束俄罗斯对立陶宛天然气供应的垄断。
 
+普京最近要求外国买家，从4月1日开始，以卢布购买俄罗斯天然气，否则将面临供应削减。此举遭到欧洲各国的反对。立陶宛能源部强调，摆脱俄罗斯的天然气供应，意味着该国不受俄罗斯强制以卢布支付天然气的影响，从而使俄罗斯的无理要求变得毫无意义。
 
-文字版原文：[疫情背后的政治斗争](https://gnews.org/zh-hans/2280856/)
+立陶宛总统瑙塞达4月2日在推特发文称，立陶宛正在打破与侵略者的能源联系。如果立陶宛能做到，欧洲其他国家也一样能做到。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+参考链接：[Lithuania ceasing all Russian gas imports for domestic needs](https://www.reuters.com/business/energy/lithuania-ceasing-all-russian-gas-imports-domestic-needs-2022-04-02/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：文真
+编辑：静言
+审核：飞虹
+校正/发稿：Fei797
 
  
 

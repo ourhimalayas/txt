@@ -2,50 +2,49 @@
 ---
 
 
-## 立陶宛或完全切断俄罗斯天然气进口
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2286965/)
+## 欧盟将在布查杀人事件后对俄罗斯实施新的制裁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287044/)
 
-撰稿：Gradient Boost
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-382.png)图片来源：https://www.axios.com/
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-59.jpg)
-网络图片
+周日，在乌克兰首都基辅西北部的布查市，人们聚集在一个乱葬岗附近。照片。Sergei Supinsky/法新社通过盖蒂图片社
 
-立陶宛表示，它将完全切断从俄罗斯进口的天然气，因此成为欧盟 27 个国家中第一个打破对莫斯科的能源依赖的国家。
+欧盟周一宣布，在指控俄罗斯军队在布查和乌克兰其他地方犯下战争罪行后，欧盟正在“作为紧急事项”对俄罗斯政府进行进一步制裁。
 
-立陶宛能源部在周六晚间的一份声明中表示：“立陶宛寻求完全摆脱俄罗斯天然气的能源独立，以应对俄罗斯在欧洲的能源讹诈和乌克兰的战争，立陶宛完全放弃了俄罗斯的天然气。”同时该国能源部也补充说，该措施四月就开始生效。
+**他们在说什么：**欧盟外交政策负责人何塞普-博雷尔在一份声明中说，27国集团“以最强烈的措辞谴责”“报道的暴行”。
 
-立陶宛周六开始便设法将俄罗斯天然气的进口量减少到零，这一举措被视为前苏联组成国家实现能源独立的里程碑，该国拥有 280 万人口。
-
-能源部长代纽斯·克雷维斯宣称：“我们是俄罗斯天然气工业股份公司供应国中第一个独立于俄罗斯天然气供应的欧盟国家，这一结果来自多年连贯的能源政策和及时的基础设施决策。”
-
-立陶宛总统吉塔纳斯·瑙塞达在他的账户上发布了一条乐观的推文，同时也敦促其他欧洲国家也这样做：“从本月开始——立陶宛不再有俄罗斯天然气。多年前，我国做出的决定使我们今天能够毫不费力地与侵略者断绝能源联系。如果我们能做到，欧洲其他国家也能做到！”
-
-2015 年，立陶宛近 100% 的天然气供应来自俄罗斯天然气的进口，但在该国于 2014 年在港口城市克莱佩达建成海上液化天然气进口终端后，过去几年情况发生了巨大变化。能源部表示，从现在起，立陶宛国内消费的所有天然气都将通过克莱佩达的液化天然气接收站进口。
-
-去年，立陶宛约 26% 的天然气供应来自俄罗斯天然气管道，62% 来自克莱佩达的液化天然气接收站，其余 12% 来自邻国拉脱维亚的储气库。
-
-发稿：疯狂的韭菜
-
-新闻参考链接：
-
-[AP News](https://apnews.com/article/russia-ukraine-business-moscow-europe-european-union-d7bf5ec883d92a5b5b9b131ea7dcb150)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+- 博雷尔说：“大量平民死亡和伤亡以及民用基础设施遭到破坏的令人不安的画面，显示了俄罗斯对乌克兰及其人民发动的残酷侵略战争的真实面目。
+- 美国国务卿托尼-布林肯周日在推特上说，美国“强烈谴责克里姆林宫部队在布查和整个乌克兰的明显暴行”，并补充说。“我们正在利用一切可用的工具追究责任，记录和分享信息，以追究责任人的责任”。
 
 
+**大势所趋：**乌克兰总统沃洛基米尔-泽伦斯基(Volodymyr Zelensky)在周日晚些时候的电视讲话中说，在布查的街道上发现了一个万人坑，并发现了散落的尸体，有些人的手被反绑在背后，在基辅西北部的这个城市以及乌克兰其他地方发生的事情是战争罪。
 
-更多资讯，更多关注
+- 法国总统埃马纽埃尔-马克龙(Emmanuel Macron)周日在接受法国国际广播电台(France Inter)采访时同意这一评估，并表示需要对最新的战争罪指控进行更多制裁。
 
-[乌克兰救援UkraineRescue官方Gettr](https://gnews.org/zh-hans/2285694/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4UkraineRescue%E5%AE%98%E6%96%B9Gettr)
 
-[郭文贵先生Gettr](https://gnews.org/zh-hans/2285694/%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9FGettr)
+同时，据法新社报道，波兰和西班牙总理分别重复了泽伦斯基先前的指控，即普京的部队在乌克兰实施“种族灭绝”，并要求进行全球调查。
 
-[全球喜马拉雅农场联盟委员会Gettr](https://gnews.org/zh-hans/2285694/%E5%85%A8%E7%90%83%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E5%86%9C%E5%9C%BA%E8%81%94%E7%9B%9F%E5%A7%94%E5%91%98%E4%BC%9AGettr)
+**为了记录在案：**克里姆林宫否认俄罗斯军队在乌克兰犯下战争罪行。
 
-[喜马拉雅联盟大使馆全球客服中心Discord](https://gnews.org/zh-hans/2285694/%E5%96%9C%E9%A9%AC%E6%8B%89%E9%9B%85%E8%81%94%E7%9B%9F%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E7%90%83%E5%AE%A2%E6%9C%8D%E4%B8%AD%E5%BF%83Discord)0
+据路透社报道，俄罗斯首席调查员周一下令对他所描述的乌克兰的“挑衅”进行调查，此前基辅指称俄罗斯军队在布查屠杀平民。
 
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+来源：[EU to hit Russia with fresh sanctions after Bucha killings](https://www.axios.com/eu-russia-fresh-sanctions-bucha-killings-77bb1367-fc25-4288-964a-3dfeb5dea9d7.html)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-3.jpeg)
 
  
 

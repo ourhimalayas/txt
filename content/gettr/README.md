@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 2:34 PM (UTC)`
+
+ 4月4号：尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！
+![img](https://media.gettr.com/group21/getter/2022/04/04/14/7462d89c-3d27-773e-1183-4f9ad06c06db/out.jpg)
+
+---
+
 `@miles 4/4/2022 1:06 PM (UTC)`
 
 2022.04.04 早  新中国联邦 | 新闻访谈   苏州惊现新变种病毒；上海“精准抗疫” 让民众深陷苦难；澳洲驱逐中共间谍房地产商
@@ -147,13 +154,6 @@
 
 4/3/2022 Miles Guo: What kind of threats will the HQ series anti-missile system deployed by the CCP in Serbia pose to NATO and the US? The CCP will set up the HQ series missiles system in the Balkans, the Middle East, and the small countries near the Middle East. Only the HQ missile system uses the CCP’s BeiDou Navigation Satellite System. The CCP will form a quasi-alliance with North Korea, Russia, and Syria to target the US. Xi Jinping is on a journey of no return.<br/><br/>4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？中共将在巴尔干地区、中东和中东周边小国部署红旗导系统，这是中共唯一使用北斗导航系统的导弹系统；中共将和北朝鲜、俄罗斯和叙利亚形成针对美国的准联盟，习已走上不归路！<br/>
 ![img](https://media.gettr.com/group8/getter/2022/04/04/01/88bd324b-695c-0853-66c0-740b33908093/out.jpg)
-
----
-
-`@miles 4/4/2022 12:33 AM (UTC)`
-
-2022.04.03 晚 新中国联邦 | 新闻   真相和真情 推动钢琴家公开支持新中国联邦；乌克兰海港城市敖德萨遭俄军空袭
-![img](https://media.gettr.com/group22/origin/2022/04/04/00/6220dd9c-d315-9ee5-326d-1071a44d38af/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

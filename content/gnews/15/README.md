@@ -2,37 +2,76 @@
 ---
 
 
-## 微信暂停NFT账户以“避免数字资产投机”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2286814/)
+## 泽希望俄罗斯士兵的母亲能看到他们的儿子在乌的暴行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2286855/)
 
-#### 【雅典娜快讯】，紧贴时事脉搏
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-370.png)图片来源：https://nypost.com/
 
-翻译：学森永爱7哥
-编辑：Rianna
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-369.png)
-微信已禁止大量与非同质化代币（NFT）相关的公众号。微信澄清说，并非完全禁止 NFT，但微信不允许其二次销售数字产品，因为它们具有投机性质。 腾讯旗下的微信拥有 12 亿用户，是迄今为止中国最大的通信平台，也是全球最大的平台之一。但正如当地一家财经新闻媒体透露的那样，微信并不是 NFT的忠实粉丝，NFT已经风靡全球，这个新兴市场去年达到410 亿美元，几乎与艺术市场相匹配。
+“俄罗斯的母亲! 即使你养育了劫掠者，他们怎么也成了屠夫？”乌克兰总统沃洛季米尔-泽伦斯基周日晚间说。
 
-新浪报道称 ，微信已经暂停了数十个广泛推广非同质化代币的公众号。据中国数字货币记者 Colin Wu 称，微信要求此类账户“拥有中国政府提供的区块链公司备案，并且不允许二次交易”。
+*由乌克兰总统提供*
 
-中国目前没有任何关于NFT的规定。但是，它已经全面禁止数字货币以及ICO和区块奖励挖矿，这让中国NFT粉丝只能选择通过人民币购买数字货币。政府对可以挖矿的区块链网络也有一些限制，使得政府能够在发展区块链网络上占得先机。
+乌克兰总统沃洛基米尔-泽伦斯基在周日晚间的一次激动人心的演讲中向俄罗斯士兵的母亲发表了讲话–他说，在基辅郊区的一个万人坑中发现了数百名被处决的平民后，他希望她们看到自己儿子造成的大屠杀。
 
-在拥有近6亿用户的中国版Twitter微博上，微信澄清了自己的立场，称其最近“对用于投机和二次销售数字货币公众号和小程序进行了规范和整顿”，微信方面补充说，这是“根据国家有关规定进行的，以防止虚拟货币交易中的投机风险”。
+“我希望每一位俄罗斯士兵的母亲都能看到在布卡、在伊尔平、在霍斯托梅尔被杀害的人的尸体。他们做了什么？他们为什么被杀？”泽伦斯基在周日的夜间讲话中问道。
 
-母公司腾讯拒绝回答媒体关于停牌的问题。这家游戏、娱乐和社交媒体公司与蚂蚁集团一起领导了一项倡议，涉足NFT，成为世界上第一个获得联合国批准的数字货币标准项目。
+“那个在街上骑着自行车的人做了什么？为什么在一个普通的和平城市的普通平民被折磨致死？为什么妇女在耳朵上的耳环被扯下来后被勒死？……这一切是如何发生的？”愤怒的泽伦斯基说。
 
-一些被暂停的公众号，包括一个名为 Spirit Leap的账户告诉《南华早报》，他们在被其他类似公众号举报后被暂停。在微信上，这些帐户不再出现在搜索结果中，访问它们的现有订阅者会收到一条提示，说明“此帐户没有发布、传播或从事相关业务活动的合法许可”。
+周日，在基辅西北部约30英里的小城市布卡的街道上出现了尸体的图片。一个埋有近300具尸体的万人坑也被发现，这让泽伦斯基声称，这一暴行相当于“种族灭绝”。
 
-正如微信进一步声明，公众号只能显示数字货币的初始销售情况。此外，运营商必须提供“与中国网信办认可的区块链公司”的合作证明。
+这些尸体是在俄罗斯军队撤出该市后发现的。乌克兰官员说，被杀害的人中有儿童和妇女，据说他们被强奸并被活活烧死。
 
-原文链接：[https://coingeek.com/wechat-suspends-NFT-accounts-to-avoid-speculation-in-digital-assets/](https://coingeek.com/wechat-suspends-NFT-accounts-to-avoid-speculation-in-digital-assets/)
+官员们说，男子也被折磨致死，双手被绑在背后，头部中弹。
 
-*发布：tianzhihuan*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-371.png)图片来源：https://nypost.com/
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+在基辅附近发现乱葬岗和“被处决”的平民后，乌克兰和西方国家指责俄罗斯军队犯有战争罪。
+
+*AFP via Getty Images / Sergei Supinsky*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-372.png)图片来源：https://nypost.com/
+
+2022年4月2日，至少有20名身着便衣的男子的尸体被发现躺在一条街道上。
+
+*法新社通过Getty Images / Ronaldo Schemidt*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-373.png)图片来源：https://nypost.com/
+
+近300名平民在E40公路的姆里亚和米拉之间的公路上被杀，他们试图到达乌克兰控制区。
+
+*SOPA Images/LightRocket via Getty Images / Mykhaylo Palinchak*
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-374.png)图片来源：https://nypost.com/
+
+2022年4月3日，社区工作人员在布查镇收集两名男子的尸体。
+
+*AFP via Getty Images / Sergei Suspinsky*
+
+“俄罗斯的母亲! 即使你养育了劫掠者，他们怎么也成了屠夫？”泽伦斯基在周日晚上的讲话中问道。
+
+“你们不可能不知道你们的孩子体内有什么。你们不可能忽视他们被剥夺了人类的一切。没有灵魂。没有心。他们故意杀人，而且很高兴”。
+
+总统说，他将在国际援助下建立一个“特别司法机制”，以调查俄罗斯占领军犯下的战争罪行。
+
+“世界已经看到了许多战争罪行。在不同的时期。在不同的大陆上。但现在是时候尽一切可能使俄罗斯军队的战争罪行成为这种邪恶在地球上的最后表现。”
+
+来源：[Zelensky wants mothers of Russian soldiers to see their sons’ atrocities in Ukraine](https://nypost.com/2022/04/03/zelensky-wants-mothers-of-russian-soldiers-to-see-their-sons-atrocities-in-ukraine/)
+
+* * *
+
+审核：Aries的星
+校对：阿伯塔
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-2.jpeg)
 
  
 

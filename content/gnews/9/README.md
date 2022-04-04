@@ -2,44 +2,64 @@
 ---
 
 
-## 有声|俄承诺减少军事行动 拜登称拭目以待
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2286895/)
+## 铁汉柔情的保镖&#8211;小小酥
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2286945/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+Medyka(梅迪卡，波兰与乌克兰过境点)当地时间下午2点
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/61293309_303.jpg)
+这是一波
 
+这可能是一个大家庭的人
 
-俄罗斯与乌克兰最新一轮和平谈判出现进展，俄罗斯29日承诺将减少在乌克兰首都基辅和北部切尔尼戈夫周边的敌对行动。美国总统拜登表示将拭目以待，观察俄罗斯方面是否落实承诺。
+他们准备整装待发
 
-俄罗斯国防部副部长佛明在谈判后表示，为提高互信并创造必要条件，促成进一步谈判与最终签署协议，俄方承诺在乌克兰基辅和切尔尼戈夫周边减少战事。
+去赶公交车了 然后我们的这个保安
 
-拜登29日在与新加坡总理李显龙会谈后的联合记者会上表示，俄罗斯是否会遵守承诺，他将拭目以待。他会观察俄罗斯是否会履行承诺。 拜登表示，他不认为俄罗斯承诺削减基辅周边的军事行动会给俄乌冲突带来重大变化。
+帮着去把这位长者
 
-在与李显龙会谈前，拜登也与法国、德国、意大利与英国首脑会谈近1小时，美欧领袖重申持续让俄罗斯为其侵略行为付出高昂代价的决心，并持续向乌克兰提供物资、安全援助，抵御俄罗斯的攻击。
+推出去然后推上公交车
 
+我们的
 
+这次七哥帮我们请的这些保安呢
 
-文字版原文：[俄承诺减少军事行动 拜登称拭目以待](https://gnews.org/zh-hans/2285097/)
+真的都是铁汉柔情
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+非常负责任的保安
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+然后呢我可以看出来
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+他们假设你看这个保安比如说
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+在我们后面这个地方坐着
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+但其实他的眼睛呢
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+我知道
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+我可以看出来他的眼睛其实都是在
 
+时时刻刻注意着
+
+各种各样的安全隐患
+
+素材提供：蓝色天空
+软件听写：小白咖啡馆
+字幕添加：小白咖啡馆
+最终审核：文倩
+发布/上传: hongyeca
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
