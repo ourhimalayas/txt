@@ -2,42 +2,28 @@
 ---
 
 
-## 有声|哭诉
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2286403/)
+## 22岁乌克兰女孩击毁一架俄罗斯SU-35S战斗机
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2286507/)
 
-录音：香草山文艺部 – maggie 喵
-![](https://cdn.discordapp.com/attachments/902205163622776852/923974543167590420/image0.jpg)
-我有车有房没存款
-如今失业很彷徨
-究竟为什么
-突然变了天
-安逸日子
-再也不见
+**撰稿：日本东京方舟农场 北极**
 
-银行上门催还款
-威胁不还法院见
-拿你的房子去法拍
-去法拍呀
-去法拍
+据每日星报（Dailystar）4月3日报道，一名22岁乌克兰女孩成功击毁一架价值3500万英镑的先进俄罗斯SU-35S喷气式战斗机。
 
-曾经的白领
-落魄潦倒
-任职的外资企业
-一夜之间
-宣告关闭
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-3.jpeg)被击毁的俄罗斯SU-35S战斗机。（图片来自每日星报）
 
-原文链接：[哭诉](https://gnews.org/zh-hans/2280569/)
+据报道，在乌克兰东部的伊久姆（Izium）市附近，一名22岁的乌克兰女孩使用肩抗式Igla红外地对空导弹击毁了SU-35S。Su-35S战机是SU-35的升级版，是俄罗斯最先进的战机之一，Su-35S战机作战半径达3400公里，可以挂载多达12枚导弹或炸弹。而Igla红对地对空导弹则是俄罗斯制造的，自20世纪80年代以来开发了许多型号的防空导弹。该导弹可以以两倍于声速的速度飞行，飞行高度为11，000英尺。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+据乌克兰国会议员安东·格拉申科（Anton Gerashchenko）发布声明称，这架喷气式飞机的飞行员设法成功弹射，但随后在试图逃跑时被乌克兰军队抓住。
 
-音频处理/发稿：Daxia
+一天前，这名女子还击落了两架俄罗斯喷气式飞机和一架直升机。据报道，这名女子直到几周前还在大学学习，两周前才被教导如何使用Igla。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+参考链接：
+1. [https://reurl.cc/yQpoWO](https://reurl.cc/yQpoWO)
+2. [https://reurl.cc/dXE9Og](https://reurl.cc/dXE9Og)
+3. [https://reurl.cc/oenpXg](https://reurl.cc/oenpXg)
+
+总编：青城道姑
+发布：文曦
 
  
 

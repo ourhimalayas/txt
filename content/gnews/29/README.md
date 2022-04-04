@@ -2,63 +2,28 @@
 ---
 
 
-## 澳洲的人性化：残疾人停车许可证、无障碍停车许可证
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2285610/)
+## 普京使用替身躲避内部暗杀
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2285875/)
 
-#### 了解澳洲生活点滴， 带您【走进澳洲】
+**撰稿：日本东京方舟农场 北极**
 
-编辑/整理：小鱼儿
+据每日星报（dailystar）4月2日报道，一位消息人士透露，普京经常使用替身出现在公众场合，以避免他因乌克兰战事不利而解雇高级将领后，遭到其他军事首长的暗杀。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-342.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-6.jpeg)据称，普京正在使用替身来避免袭击。（图片来自Dailystar）
 
+该消息人士透露，”普京对他的安全问题非常偏执，此举只能表明他的生命受到严重威胁。””他有近身保卫团队来确保他的食物安全。没有他们的批准，没有人可以接近他，但前参谋长、将军和联邦安全局的工作人员可能会知道这个系统的薄弱环节。“他补充说。
 
-对弱势群体的照顾，体现了一个国家的文明程度。为方便残疾人停车，澳洲政府推出了残疾人士停车许可证、无障碍停车许可证，符合条件的人可以申请。
+该消息人士最后说道，”如果我们在接下来的几个月里听到普京已经去世，而且给出的理由是心脏病发作或长期患病，我一点也不惊讶。我甚至能猜到是一场内部政变。”
 
-维多利亚州残疾人停车计划，是为残疾人提供停车许可证。根据许可证持有人的要求，许可证分为第一类和第二类。还有为组织提供的残疾人停车许可证。
+据报道，俄罗斯军队的高级指挥官们对战争的走向和对经济的影响普遍感到担忧。
 
-- 第一类许可证——医生必须确认该人在残疾人停车位停车的要求
-- 第二类许可证——医生必须确认一个人在连续行走时需要休息
-- 临时残疾人停车许可证
-- 组织接送残疾人停车许可证
+白宫通信主管凯特-贝丁菲尔德称，”我们有可靠情报表明，普京已经察觉到被俄罗斯军方误导，这导致普京和他的军事领导层之间的关系持续紧张”。
 
+参考链接：
+[https://reurl.cc/Zr02O3](https://reurl.cc/Zr02O3)
 
-如果居民符合第一类或第二类或临时残疾申请人的资格，他们可以申请。
-
-符合条件的接送残疾人的组织也可以提出申请。
-
-申请表可从当地议会获得。许可证只会发给居住在议会区域的居民。访问[Viroads 残疾人 停车](https://www.vicroads.vic.gov.au/safety-and-road-rules/road-rules/disability-parking)网页。符合条件的居民可免费获得残疾人停车证。
-
-如果您有严重的残疾或受伤，您可能有资格获得无障碍停车许可证。有不同类型的许可证允许您在无障碍停车位停车和/或在常规停车位停车，时间是平时的两倍。
-
-要申请或更新许可证，请访问[无障碍停车许可证网站（外部链接）](https://www.accessibleparking.vic.gov.au/permits/).
-
-使用无障碍许可证的注意事项：
-
-- 只能在车辆运送获得许可证的个人时显示
-- 必须清楚地显示，以便从车外可以看到许可证号和到期日期
-
-
-一个人只能获得一张许可证。
-
-无障碍停车证不允许您：
-
-- 将车停在受限地点，例如自由通道、禁止停车或禁止停车区、出租车专用区、巴士区和授权居民区
-- 在收取停车费的区域免费停车。
-
-
-（注：以上信息意为参考，请您登陆官网获得更加详细的信息）
-
-参考资料：[Victorian Disabled Persons Parking Scheme](https://www.betterhealth.vic.gov.au/health/serviceprofiles/victorian-disabled-persons-parking-scheme-service)
-
-[Accessible Parking Permits](https://www.vicroads.vic.gov.au/safety-and-road-rules/road-rules/disability-parking)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：青城道姑
+发布：文曦
 
  
 
