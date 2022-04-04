@@ -2,16 +2,18 @@
 ---
 
 
-## 有声|俄乌战争形势明朗，东西联盟格局确立
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2284553/)
+## 有声|喜币是数字货币的希望
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2284555/)
 
 配音：香草山教育部 – Rose
 ![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-针对俄乌第四轮谈判，郭文贵先生在3月30日的大直播中分析道，俄乌战争历时一个多月，世界形成东西两大联盟阵营，即以中共国为首的、由白俄罗斯、伊朗、北朝鲜等独裁国家组成的东方联盟，和美国、欧洲、日本等民主国家联合形成的西方联盟。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-10.png)图片来自：https://bohatala.com/
-郭先生表示，作为俄罗斯的担保国，东方联盟明确表态，如果乌克兰不执行和谈内容，将和俄罗斯一起对抗西方联盟。西方联盟支持乌克兰，并监督俄罗斯执行谈判条款，对抗东方联盟。
+在3月30日的大直播中，郭文贵先生表示，喜币交易量大涨，截至目前，喜币交易总量增加10倍，单日交易量是上线初期的10倍，每日场外交易量超过场内交易的10倍。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-12.png)
+世界级重量人物对喜币青睐有加，其中一位专门飞往伦敦喜联储进行视察，称喜币、HPay是未来数字货币的希望，并对喜币的交易量增长前景充满信心。（请播放视频，视频时长1‘45“）
 
-文字版原文：[俄乌战争形势明朗，东西联盟格局确立](https://gnews.org/zh-hans/2267806/)
+
+
+文字版原文：[喜币是数字货币的希望](https://gnews.org/zh-hans/2267958/)
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
 

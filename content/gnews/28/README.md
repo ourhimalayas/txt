@@ -2,8 +2,8 @@
 ---
 
 
-## 20220403郭文贵大直播 ：共产党的红旗导弹系统和黑客部队正式加入了俄罗斯侵略战争
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2284506/)
+## 20220403郭文贵大直播 ：中共红旗反导弹系统对北约的空中威胁
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2284528/)
 
 作者：东京樱花团小视频组
 

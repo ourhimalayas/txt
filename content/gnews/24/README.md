@@ -2,14 +2,16 @@
 ---
 
 
-## 有声|NFSC新闻、NFSC新闻访谈简报|2022年3月31日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2284552/)
+## 有声|战后，科技中心乌克兰助力欧洲摆脱能源依赖
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2284554/)
 
 配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/03/GTV_-_Google_-1-7.png)
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在当前俄乌战争局势下，鉴于欧洲对俄罗斯的能源依赖，郭文贵先生在3月30日的大直播中表示，欧洲不会在能源问题上向俄罗斯妥协，并称俄乌战争后，欧洲将结束对中东、俄罗斯的能源依赖。
 
+郭先生谈到，德国前总理默克尔表面上推动了欧洲三十年的经济发展，而实际上，欧洲的科技却滞后三百年，欧洲的能源命脉被俄罗斯牢牢掌控。解决能源问题唯有依赖科技的发展。值得庆幸的是，世界各大科技企业已经开启人才计划，并在乌克兰成立基地。乌克兰未来将成为欧洲的科技中心，彻底欧洲摆脱对中东和俄罗斯的能源依赖。
 
-文字版原文：[NFSC新闻、NFSC新闻访谈简报|2022年3月31日早](https://gnews.org/zh-hans/2264651/)
+文字版原文：[战后，科技中心乌克兰助力欧洲摆脱能源依赖](https://gnews.org/zh-hans/2267893/)
 音频处理：呼吸的雾霾（文小呼吸）
 发稿：呼吸的雾霾（文小呼吸）
 
