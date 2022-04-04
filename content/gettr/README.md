@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 6:33 AM (UTC)`
+
+《灭共的雪 The Terminator Snow》已经上榜澳大利亚🇦🇺iTunes 摇滚歌曲第一名🥇, 感谢澳大利亚的兄弟姐妹们🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group40/getter/2022/04/04/06/6c3a8823-7b88-8098-5db8-f6b4be57edc9/118d7a29a599909b2421869869610c2b.jpg)
+
+---
+
 `@miles 4/4/2022 5:48 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -150,13 +157,6 @@
 `@miles 4/3/2022 9:11 PM (UTC)`
 
 Al Jazeera is a Qatari Government-Owned Arabic and English language international media network. It’s based in the capital of Qatar, Doha, and operated by the media conglomerate Al Jazeera Media Network半岛电视台是一家位于卡塔尔首都多哈的国际电视媒体，由卡塔尔王室出资的半岛媒体集团所拥有。卡塔尔莫扎皇太后是一带一路项目中的卡方最大受益人。<br/>https://gnews.org/zh-hans/2278091/
-
----
-
-`@miles 4/3/2022 8:54 PM (UTC)`
-
-2022.04.03  新中国联邦 | 喜健康   新变种BA.2在前线战友中的感染和治疗
-![img](https://media.gettr.com/group33/origin/2022/04/03/20/8ee9c9b6-5e04-365b-9532-56a90fff342f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

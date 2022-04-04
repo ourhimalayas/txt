@@ -2,10 +2,10 @@
 ---
 
 
-## 欧美等国家加强对加密资产的监管
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283300/)
+## 中共病毒重组新变种XE开始引人注意
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283320/)
 
-作者：华盛顿DC农场 – 自由信仰，银河系农场 – 骄子
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,25 +13,23 @@
 
 
 
-3月31日国外媒体报道，出于对比特币及其他加密资产可能破坏金融稳定，并被用于犯罪的担忧，欧盟立法者将支持对比特币和其他加密资产的转移采取更严格的安全保护措施，这是监管机构收紧监管措施的最新迹象。
+当地时间3月29日，世卫组织WHO发布的中共病毒疫情公告显示，新型重组变种病毒XE在英国已经超过600个病例。
 
-据悉，欧洲议会中的两个委员会已经确定了相关方案，供投票表决。根据特别工作组指定的反洗钱标准，加密公司必须收集和共享加密资产的交易数据。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9.jpg)
-同一天，美国众议员特雷·霍林斯沃斯和参议员比尔·哈格蒂提出一项名为“稳定币透明度法”的法案，旨在通过提高稳定币市场的透明度，探索在不扼杀创新的情况下同时保护消费者和经济的解决方案。该法案目前已经获得大量支持。
+中共病毒的重组变种病毒XE，今年1月19日由英国首次提出报告。 该病毒是因为病人同时感染Omicron BA.1及BA.2变异株后，两种毒株在同一个病人体内发生基因重组，产生的新变种病毒株。依目前的数据，XE变种病毒较目前传播最广泛的Omicron BA.2变种，更增强了10%的社区传播优势。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10.jpg)
+这种在不同变种病毒间发生基因重组，产生新变种病毒的现象并非少见。 目前受到关注的还有由Delta病毒株与Omicron BA.1病毒株重组产生的XF及XD两种变种，但是这两种重组变种病毒株目前造成感染的病例数不多。
 
-4月1日，又有媒体报导，日本央行呼吁七国集团适时建立一个共同的加密货币监管框架，以打击俄罗斯等国家利用数字货币来逃避经济制裁。
-
-观察人士称，新兴的、不受监管的加密货币的蓬勃发展，由于可以创建单独的全球结算系统，对传统受监管的法币系统构成了挑战，为洗钱等犯罪行为扰乱传统的金融系统秩序，各国越来越重视对加密货币进行合理的监管。俄罗斯入侵乌克兰的战争，无疑加快了这一进程。
+英国卫生单位UKHSA表示，至目前为止，英国已经确认了 637 例 XE感染病例。 将继续通过基因组监测和测序来定期密切监测所有重组变种病毒。
 
 参考链接：
-1. [EU lawmakers set to tighten up on crypto transfers](https://www.reuters.com/world/europe/eu-lawmakers-set-tighten-up-crypto-transfers-2022-03-31/)
-2. [Newly Introduced Bill Aims to Bring Transparency to the Stablecoin Marketplace](https://www.coindesk.com/policy/2022/03/31/newly-introduced-bill-aims-to-bring-transparency-to-the-stablecoin-marketplace/)
-3. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
-4. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
+1. [New Mutant “XE” Omicron Variant May Be The Most Transmissible Version Of Covid Yet, According To WHO](https://deadline.com/2022/03/new-xe-covid-variant-omicron-most-transmissible-1234992060/)
+2. [Scientists keeping watch on mutant covid strain which has seen hundreds of cases](https://www.walesonline.co.uk/news/uk-news/scientists-keeping-watch-mutant-covid-23527825)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-总编/编辑/审核：飞虹
+编辑：宁文静
+总编：飞虹
+审核：木木
 校对/发稿：为真不破20
 
 
