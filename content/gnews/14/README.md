@@ -2,26 +2,33 @@
 ---
 
 
-## 加拿大议员力推监控中共代理人法案
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282904/)
+## 有声|欧盟警告中共不要干涉西方对俄罗斯的制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2283190/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间4月1日，据相关媒体报道，欧洲理事会主席查尔斯-米歇尔当天与欧盟外交政策负责人何塞普-博雷尔、欧盟委员会主席乌尔苏拉-冯德莱恩和中共党魁习近平进行了视频会议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490378321.png)图片来源：网络
+在其后的新闻发布会上，米歇尔指出，欧盟一致认为俄乌战争正在威胁全球安全和世界经济，因此，如果中共向俄罗斯提供任何方式的军事或经济援助，其必将面临来自欧盟的制裁。
 
+早先，虽然中共官方声称其并未向俄罗斯提供武器，但中共两次在联合国安理会谴责俄罗斯对乌克兰侵略战争的决议中选择弃权。同时，中共官媒屡次鼓吹挺俄言论，并帮助俄罗斯散播攻击西方世界的谎言。
 
-据【多伦多星报】4月1日报道，加拿大议员豪萨科斯此前提出了一项建立专门审查机构的法案，以追踪和监控那些代表外国政权非法影响加拿大政府和各界名人的组织或个人。
+对此，参加会议的欧盟高级官员指出，任何规避制裁或向俄罗斯提供援助的企图都将延长此次战争，而这也将造成更多生命的死亡和更大的经济影响。为此，欧盟将对任何在经济或军事上援助俄罗斯的企图保持警惕。此外，欧盟也非常明确地表明，中共不应该干涉西方对俄罗斯的制裁。
 
-据悉，该法案将要求所有在加拿大为外国政府牟取利益的组织和个人进行登记。对此，该议员指责[麦泰律师事务所]曾试图帮助华为获得在加拿大5G建设权。并表示：该律师事务所因在加拿大为中共政权服务而必须被注册在案，以备随时审查和追踪。
+文字版原文：[欧盟警告中共不要干涉西方对俄罗斯的制裁](https://gnews.org/zh-hans/2276390/)
 
-报道称，近年来中共对加拿大各界的全面渗透和影响日趋严重，并通过其在加拿大的打手，恶意骚扰和恐吓持不同政见者和异议人士。并与加国的政要和官员建立密切利益关系，以培养可能为习近平当局服务的代理人。
+音频处理：Fei797
+发稿：Fei797
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-发稿：文莱
-
-新闻来源：[https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html](https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,37 @@
 ---
 
 
-## 加拿大计划对俄罗斯进行战争罪调查
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282972/)
+## 樱花时政┃山东一大学研究生因反对全员核酸被开除学籍
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283213/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+撰稿：东京樱花团/秋明
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+3月27日，山东省烟台市鲁东大学历史文化学院中国史专业2020级硕士研究生孙健，在校园内举着“鲁东解封”、“坚决反对如此高频率核酸检测”的牌子，高调反对反对校园封闭管理和全员核酸检测。
 
-撰稿：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/山东一大学研究生因反对全员核酸被开除学籍.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490384731.png)图片来源：Deutsche Welle
+次日，孙健因”扰乱单位秩序罪“，被警方处以”警告“行政处罚。
 
+在警方向他送达的《行政处罚决定书》上，孙健拒绝签字。
 
-据【CTV新闻】3月31日报道，加拿大政府日前宣称，要针对俄罗斯攻击和杀戮乌克兰平民以及轰炸该国医疗救援设施的战争罪行进行调查。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/山东一大学研究生因反对全员核酸被开除学籍2.png)
 
-加拿大国际事务部长对此表示，目前已有六名该国专员前往海牙国际法院，协助调查俄罗斯在入侵乌克兰期间所犯下的战争罪和反人类罪。同时，这位了解国际人道法的部长认为，本次俄军对平民的无差别攻击，与当年斯大林残酷屠杀数百万乌克兰人无异，必须得到全面彻底的调查。
+3月31日，孙健迎来了更严厉的处罚，遭校方开除学籍。
 
-此外，加拿大公共安全部长也表示，平民在任何情况下都不应受到伤害，特别是当他们需要医疗救助和食物支持时。
+硕士研究生因公开表达对全民核酸的不同意见而被高校开除学籍，此事恐怕开创了中共高校的先河。
 
-校对编辑：硫酸羟氯喹64
+看来，中共大学校园里，容不下一张“异见者”的书桌。
 
-发稿：文莱
+孙健这种虽看起来“叛逆”，实则具有独立思想有抗争精神的学生，如果换一方土壤，说不定就是未来的乔布斯川普马斯克，中共国的人才就是这样被扼杀在摇篮里，剩下一堆投机钻营见风使舵的庸才！
 
-新闻来源：[https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120](https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

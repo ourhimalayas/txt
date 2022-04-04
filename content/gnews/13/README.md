@@ -2,8 +2,8 @@
 ---
 
 
-## 未来生物科技会因为疫苗灾难极大发展
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282911/)
+## 共产党的红旗导弹将部署在众多独裁国家
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2283191/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

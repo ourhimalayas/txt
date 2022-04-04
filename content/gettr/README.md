@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 3:06 AM (UTC)`
+
+2022-4-3《鸡血王喜币大作战》 第一百五十四集 嘉宾：齐天二圣、文空
+![img](https://media.gettr.com/group35/origin/2022/04/04/03/c25d3cd9-2a69-a99d-9015-89e09d6e2a87/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/4/2022 3:02 AM (UTC)`
+
+4/3/2022 Miles Guo: The lockdown in Shanghai and Changchun has caused countless people to commit suicides by jumping off buildings. The CCP has sent over 5,000 and 1,000 corpse processing facilities to Shanghai and Changchun, respectively. A world-renowned Wall Street big shot, who is the second largest investor to Communist China, is now standing with the Whistleblower’ Movement. His change stemmed from the fact that he almost died of the COVID vaccine.<br/><br/>4/3/2022 文贵直播：上海和长春的封城导致无数人跳楼自杀，中共给上海和长春分别送去了五千和一千多个处理尸体的气化炉；华尔街知名大佬、中共国第二大投资者已跟爆料革命站在一起，他的转向源于他差点因打疫苗而死！<br/>
+![img](https://media.gettr.com/group17/getter/2022/04/04/03/3ce0ea30-9569-e623-6c4e-a86be46b4cc2/out.jpg)
+
+---
+
 `@miles 4/4/2022 2:54 AM (UTC)`
 
 【Ukraine Rescue】04/02/2022  Robin, a Belgian veteran, said: You're here to represent the good guys, and only by taking down the bad guys, the world will be happy and we will win!”<br/><br/>【乌克兰救援】04/02/2022 比利时的退伍军人罗宾说 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -142,20 +156,6 @@ https://www.bbc.com/news/world-asia-60972186
 
 MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Mission
 ![img](https://media.gettr.com/group18/origin/2022/04/03/16/46db0add-5037-b371-e7d5-19556d0bf63e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 12:55 PM (UTC)`
-
-2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密
-![img](https://media.gettr.com/group47/origin/2022/04/03/12/f92a10b1-fc13-822a-905e-e5fc59ecb474/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 12:19 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月2日第29天当日救援统计：<br/>Medyka救援站接待：约273人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8657人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 29 - Date: April 2, 2022 :<br/>Medyka Rescue Station Reception: about 273 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8657 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group19/getter/2022/04/03/12/685ea91c-0be8-0960-00ff-587a6c80f225/fd33292ba6a4257df182cd103b7e3990.jpg)
 
 ---
 

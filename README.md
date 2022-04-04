@@ -15,113 +15,113 @@
 
 ---
 
-### [上海封城悲剧重现, 救护车见死不救](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共称制裁对俄罗斯贸易造成了“不必要的”伤害](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共在俄军入侵乌克兰前发动网络攻击](/content/gnews/3/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [俄罗斯前能源部副部长称普京时日无多](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚](/content/gnews/5/README.md)
- ` 纽约香草山MOS01`
-
-### [有国家计划将HCN作为国家储备货币](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大计划对俄罗斯进行战争罪调查](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [乌克兰救援营地设施和管理越来越完善](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [喜币是未来人类最稳定的数字货币](/content/gnews/9/README.md)
- ` 雅典娜GNotes`
-
-### [拜登关于普京的九个字的即兴言论引发了全球骚动](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [人类最伟大的无皇有主的新时代即将来临](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [大山里那一户牵挂的人家](/content/gnews/12/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [未来生物科技会因为疫苗灾难极大发展](/content/gnews/13/README.md)
- ` 雅典娜GNotes`
-
-### [加拿大议员力推监控中共代理人法案](/content/gnews/14/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [不只美国 随着实验性中共病毒疫苗的推出2021 年全球超额死亡人数飙升](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [醒来吧！拯救被囚禁的上海同胞](/content/gnews/16/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [加拿大或将面临严重的粮食危机](/content/gnews/17/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [数字货币时代到来，喜币就是大佬](/content/gnews/18/README.md)
- ` 雅典娜GNotes`
-
-### [“100%”接种疫苗的游轮因COVID-19爆发而备受打击](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [加拿大未来经济发展前景暗淡](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [4/3/2022 文贵直播：习近平和普京的个人关系绑架两国人民利益，习将是俄乌战争的最大输家；谢里夫得到中共的背书，会将现任总统推下台而重掌巴基斯坦政权](/content/gnews/21/README.md)
- ` 秘密翻译组-北美组`
-
-### [俄乌战争“没想到”系列之四](/content/gnews/22/README.md)
- ` 蓝莲花农场`
-
-### [4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？中共将在巴尔干地区、中东和中东周边小国部署红旗导系统，这是中共唯一使用北斗导航系统的导弹系统](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [2022年4月4日《樱花快报》：布林肯称俄罗斯操纵卢布汇率反弹不可持续](/content/gnews/24/README.md)
+### [樱花时政┃上海医师电话吐槽防疫 录音被全网查删](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [莱顿小区&amp;保利叶小区业主拒唱红歌齐声高喊SB居委会](/content/gnews/25/README.md)
- ` 喜马拉雅日本银河系农场`
+### [4/3/2022 文贵直播：上海和长春的封城导致无数人跳楼自杀，中共给上海和长春分别送去了五千和一千多个处理尸体的气化炉](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
 
-### [这次俄乌战争俄罗斯的局势](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【秘翻在线】上海居民遇生存危机 呼吁停止静态清零](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [乌克兰摄影记者身中俄军两枪殉职](/content/gnews/28/README.md)
- ` 日本東京方舟農場`
-
-### [2022年4月3日大直播速记精萃](/content/gnews/29/README.md)
+### [大直播后记：中国人成了背锅侠 ，粮食灾难将至](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [聚焦：中共的核酸检测岂止是谋财害命！](/content/gnews/30/README.md)
- ` 蓝莲花农场`
+### [有声|NFSC新闻、NFSC新闻访谈简报|2022年4月2日早](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [德表示俄军犯下战争罪 西方将对俄实施更多制裁](/content/gnews/31/README.md)
- ` 蓝莲花农场`
+### [大直播后记：不要场外交易](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [乌克兰指责俄罗斯屠杀平民犯有战争罪](/content/gnews/32/README.md)
- ` 蓝莲花农场`
+### [习二正在用邪恶联盟对抗美国](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
 
-### [被俄中假新闻“赐死”的乌克兰最致命女阻击手](/content/gnews/33/README.md)
+### [樱花时政┃山东一大学研究生因反对全员核酸被开除学籍](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频|揭穿独裁者普京发动战争的本质](/content/gnews/8/README.md)
+ ` 爆料视频`
+
+### [中共采用非人道手段强行隔离阳性婴幼儿](/content/gnews/9/README.md)
+ ` NFSC News`
+
+### [部分中共病毒患者痊愈后心脏功能减退](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [俄罗斯近78万人死于中共病毒](/content/gnews/11/README.md)
+ ` NFSC News`
+
+### [李显龙：制裁俄罗斯不是选边站，而是选择捍卫原则](/content/gnews/12/README.md)
+ ` NFSC News`
+
+### [共产党的红旗导弹将部署在众多独裁国家](/content/gnews/13/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|欧盟警告中共不要干涉西方对俄罗斯的制裁](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [本·哈恩威尔：土耳其总统埃尔多安就俄乌和平峰会与普京和泽连斯基通话](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [塞尔维亚红旗导弹系统对乌克兰战争的影响](/content/gnews/16/README.md)
+ ` 雅典娜GNotes`
+
+### [《共产党统治中国的150个家族》之“宋平”篇](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共在俄军入侵乌克兰前发动网络攻击](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚](/content/gnews/19/README.md)
+ ` 纽约香草山MOS01`
+
+### [封校日志](/content/gnews/20/README.md)
  ` 喜马拉雅德国纽伦堡正义农场`
 
-### [帮助大家了解，谁是CDN？它是如何评价喜币的？](/content/gnews/34/README.md)
- ` KarmaLabs`
+### [加拿大计划对俄罗斯进行战争罪调查](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [世界还没有准备好一个新的世界秩序](/content/gnews/35/README.md)
+### [拜登关于普京的九个字的即兴言论引发了全球骚动](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [加拿大议员力推监控中共代理人法案](/content/gnews/23/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [不只美国 随着实验性中共病毒疫苗的推出2021 年全球超额死亡人数飙升](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [醒来吧！拯救被囚禁的上海同胞](/content/gnews/25/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [加拿大或将面临严重的粮食危机](/content/gnews/26/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [“100%”接种疫苗的游轮因COVID-19爆发而备受打击](/content/gnews/27/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [加拿大未来经济发展前景暗淡](/content/gnews/28/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [基辅发现410具平民尸体 泽伦斯基痛斥俄军种族灭绝](/content/gnews/29/README.md)
+ ` 蓝莲花农场`
+
+### [莱顿小区&amp;保利叶小区业主拒唱红歌齐声高喊SB居委会](/content/gnews/30/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【秘翻在线】上海居民遇生存危机 呼吁停止静态清零](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜联储主席撰文 谈加密货币的重要作用](/content/gnews/36/README.md)
- ` NFSC News`
+### [2022年4月3日大直播速记精萃](/content/gnews/32/README.md)
+ ` 雅典娜GNotes`
+
+### [聚焦：中共的核酸检测岂止是谋财害命！](/content/gnews/33/README.md)
+ ` 蓝莲花农场`
+
+### [被俄中假新闻“赐死”的乌克兰最致命女阻击手](/content/gnews/34/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [帮助大家了解，谁是CDN？它是如何评价喜币的？](/content/gnews/35/README.md)
+ ` KarmaLabs`
+
+### [世界还没有准备好一个新的世界秩序](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [洛克菲勒曾推动FDA批准中国产坠胎药的许可证](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
@@ -132,44 +132,44 @@
 ### [罗伯特·马龙说小罗伯特应获诺贝尔和平奖](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [普京侵略乌克兰的背后支撑：中共](/content/gnews/40/README.md)
- ` NFSC News`
-
-### [五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器](/content/gnews/41/README.md)
+### [五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/3/2022国内经济财经周报：3月PMI降至48.1，经济下行压力加大；百强房企一季度销售大降47%](/content/gnews/42/README.md)
+### [4/3/2022国内经济财经周报：3月PMI降至48.1，经济下行压力加大；百强房企一季度销售大降47%](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升](/content/gnews/43/README.md)
+### [实验性Covid疫苗推出后 2021年全球超额死亡人数急剧上升](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [04/03/22 香港快讯 研究指近两周自杀急升　老年中年重灾　疫下失社交生活、负能量累积](/content/gnews/44/README.md)
+### [04/03/22 香港快讯 研究指近两周自杀急升　老年中年重灾　疫下失社交生活、负能量累积](/content/gnews/43/README.md)
  ` 英喜-粵語組`
 
-### [樱花FM┃反对俄入侵的声音，在中国民间逐渐响亮](/content/gnews/45/README.md)
+### [樱花FM┃反对俄入侵的声音，在中国民间逐渐响亮](/content/gnews/44/README.md)
  ` 樱花FM`
 
-### [关键回顾｜2022年3月27日-4月3日国际大事记](/content/gnews/46/README.md)
+### [关键回顾｜2022年3月27日-4月3日国际大事记](/content/gnews/45/README.md)
  ` 關注組`
 
-### [日本｜日本外岛夜空惊现地鸣闪光 忧与俄实弹演习有关](/content/gnews/47/README.md)
+### [日本｜日本外岛夜空惊现地鸣闪光 忧与俄实弹演习有关](/content/gnews/46/README.md)
  ` 關注組`
 
-### [疫情｜台湾连3日确诊破百例 3月中早发现“XE”病毒株](/content/gnews/48/README.md)
+### [疫情｜台湾连3日确诊破百例 3月中早发现“XE”病毒株](/content/gnews/47/README.md)
  ` 關注組`
 
-### [国际｜无惧普京威胁 波罗的海三国率先放弃俄罗斯天然气](/content/gnews/49/README.md)
+### [国际｜无惧普京威胁 波罗的海三国率先放弃俄罗斯天然气](/content/gnews/48/README.md)
  ` 關注組`
 
-### [樱花头条┃美国宣布史上最大石油储备释放计划](/content/gnews/50/README.md)
+### [樱花头条┃美国宣布史上最大石油储备释放计划](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾｜台美于华府进行实体会谈 为扩大台湾国际参与](/content/gnews/51/README.md)
+### [台湾｜台美于华府进行实体会谈 为扩大台湾国际参与](/content/gnews/50/README.md)
  ` 關注組`
 
-### [到底世界上有多少核武器，谁在控制它们？——核武器统计上承认拥有大约13000枚核弹头，但是实际上可能更高](/content/gnews/52/README.md)
+### [到底世界上有多少核武器，谁在控制它们？——核武器统计上承认拥有大约13000枚核弹头，但是实际上可能更高](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
+
+### [有声|喜联储主席撰文：加密货币 —— 世界上最需帮助者的一条生命线](/content/gnews/52/README.md)
+ ` MOSREC`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
