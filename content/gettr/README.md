@@ -17,10 +17,10 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/4/2022 2:10 AM (UTC)`
+`@miles 4/4/2022 2:29 AM (UTC)`
 
 2022.04.03  新中国联邦 | 喜财经  传统银行与数字银行的对比
-![img](https://media.gettr.com/group32/origin/2022/04/04/02/3a9f90b4-c1ed-91fc-6ff6-f7e21a1d4f87/9548d67018b19975dcafea4c4484666a.png)
+![img](https://media.gettr.com/group23/origin/2022/04/04/02/aaeff2fe-3492-d62f-4a7a-e6eccb03850e/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
