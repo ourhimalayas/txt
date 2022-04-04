@@ -2,11 +2,11 @@
 ---
 
 
-## 威廉王创作歌曲的过程（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285342/)
+## 威廉王创作歌曲的过程（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285578/)
 
 #### PPT制作：WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：15-11：20-004.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11：15-11：20-006.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
