@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 6:16 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group18/origin/2022/04/04/18/d7b21827-087d-7b6c-b8e2-4de329fa0f34/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/4/2022 4:15 PM (UTC)`
 
 MILES GUO 直播 2022-04-04
@@ -145,13 +152,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 4/3/2022 Miles Guo: The lockdown in Shanghai and Changchun has caused countless people to commit suicides by jumping off buildings. The CCP has sent over 5,000 and 1,000 corpse processing facilities to Shanghai and Changchun, respectively. A world-renowned Wall Street big shot, who is the second largest investor to Communist China, is now standing with the Whistleblower’ Movement. His change stemmed from the fact that he almost died of the COVID vaccine.<br/><br/>4/3/2022 文贵直播：上海和长春的封城导致无数人跳楼自杀，中共给上海和长春分别送去了五千和一千多个处理尸体的气化炉；华尔街知名大佬、中共国第二大投资者已跟爆料革命站在一起，他的转向源于他差点因打疫苗而死！<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/04/03/3ce0ea30-9569-e623-6c4e-a86be46b4cc2/out.jpg)
-
----
-
-`@miles 4/4/2022 2:29 AM (UTC)`
-
-2022.04.03  新中国联邦 | 喜财经  传统银行与数字银行的对比
-![img](https://media.gettr.com/group23/origin/2022/04/04/02/aaeff2fe-3492-d62f-4a7a-e6eccb03850e/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

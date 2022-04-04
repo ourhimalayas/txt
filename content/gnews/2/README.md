@@ -2,33 +2,39 @@
 ---
 
 
-## 有声|历史上的今天：马来西亚前首相纳吉贪污罪案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2287881/)
+## 乌克兰部队继续向基辅附近的俄罗斯部队作战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2019年4月3日，马来西亚前首相纳吉贪污罪案开始受审。
+***评论：**加油，顽强的乌克兰人，正义终将胜利。*
 
-纳吉·阿都拉萨，生于1953年7月23日，曾任马拉西亚第六任首相。2018年，纳吉在大选中被爆出与一马发展有限公司(1MDB)牵连有严重的腐败行为,导致选举失败。随后，被马来西亚移民局禁止出境，被控涉嫌SRC国际有限公司多项罪名。2019年4月3日，马来西亚高法开始审理纳吉被控涉及SRC国际公司4200万令吉洗钱案。
+据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
+4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
 
-2011年在马来西亚注册的SRC国际公司，是一马发展公司(1MDB)的前子公司。2012年，时任首相和财政部长就是纳吉。据调查发现，2014年12月-2015年2月间，有4200万令吉从SCR国际公司账户汇入纳吉银行的私人账户。
+英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
 
-2018年，郭文贵先生在美国爆料，一马发展公司(1MDB)实际控制人是刘特佐，此人是中共公安部长、政法委书记孟建柱的私生子。刘特佐用巨额资金买通掌权的纳吉，帮助孟建柱控制马来西亚，把马来西亚国家搞得贪腐横行，乌烟瘴气，经济严重衰退。消息传到马来西亚，举国哗然，马国人民用选票推翻了纳吉连任企图，并依法追究刘特佐、纳吉的罪行。
+英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
 
-文字版原文：[历史上的今天：马来西亚前首相纳吉贪污罪案](https://gnews.org/zh-hans/2280150/)
+文章观点仅代表作者个人，与Gnews平台无关。
 
-音频处理：Fei797
-发稿：Fei797
+文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+翻译：洛杉矶盘古农场 – Mike Li
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
