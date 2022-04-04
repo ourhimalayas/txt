@@ -2,32 +2,31 @@
 ---
 
 
-## 特鲁多称加拿大将在不久的将来遭受食品短缺
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2288166/)
+## 缅军政府倒退到黑暗时代，储户外汇存款必须按指定牌价兑换成缅币
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2288188/)
 
-##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/111-1.jpg)
+翻译撰稿：雨季仰光
 
-据Thepostmillennial网站4月1日报道，特鲁多周四在一场新闻发布会上对记者和其他媒体人士说：“我们看到世界各地的供应链中断，给消费者和像我们这样的民主国家的带来商品价格上涨，并在世界各地造成严重的、可以预计的食品和能源短缺。”特鲁多继续说：“由于中共病毒大流行和俄罗斯在乌克兰的特别军事行动，这将是一段艰难的时期。”
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-15.png)**图片：网络合成**
+综合《缅甸法律观察》及《日经亚洲》（NIKKEI Asia）4月4日消息报道：缅甸4月3日周一在缅甸官方发布的第12号通知中（一下简称《通知》）宣布即日起对自国外取得的外汇收入实施强制结汇。《通知》要求授权从事外汇交易的银行应在一个工作日内，对目前已汇入及未来将要汇入缅甸各类外币账户的外汇收入进行缅币结汇。现有银行外币储户必须在一日之内按规定牌价将外币存款兑换成缅币。
 
-本月早些时候，加拿大国家统计局宣布，该国经济增速远低于预期，不足以扭转2020年中共病毒大流行引发的收缩。2月份加拿大的月度通货膨胀率达到5.7%，是1991年8月以后几十年来的最高值。 加拿大经济尚未从中共病毒大流行期间实施的长期、且往往很严厉的封锁措施所造成的损害中恢复过来，而且没有减弱的迹象。
+上述强制结汇要求可能存在例外或豁免，缅甸央行将另行通知。
 
-尽管美国总统拜登也称食品短缺“将是真实的”，并提到与其他国家举行会谈，以找到增加产量的方法，但特鲁多没有提出任何可能的解决方案。
+《通知》由缅甸中央银行行长丹宁（Than Nyein）签署，据称违反者将根据《外汇管理法》遭到法律起诉。
+![](https://lh6.googleusercontent.com/xW79yK-7Fo27xD_9fUkTfk2-XvAzp4pRblN0guKTxU18jq0p9qkxn-zjatRGpnXWSbsTAr7siKKxiz3IIiZLLBs8MJH6jskoOsJoO_QO4NygslKW9uciJcRifVzAeX7yCIYQtj4UL2c_jcIa9i0)
+《日经亚洲》进一步报道，自2021年2月军政府推翻民选的民盟政府并对抗议民众采取血腥镇压以来，缅甸经济一直在走下坡路，在持续至今的内战及军政府与民族地方武装力量以及流亡政府新成立的人民武装力量的对抗中，缅甸的经济一直在挣扎中维持着难堪的局面。去年，在缅币汇率暴跌后，央行曾短期内尝试以参考汇率与美元挂钩。
 
-[原文链接](https://thepostmillennial.com/difficult-time-food-shortages-trudeau)
+3月，缅甸当局宣布计划开始接受泰铢结算缅泰边境贸易，以减少对美元的依赖，降低通胀压力。 同时，类似计划也在继接受人民币之后纳入了印度卢比进行此类边贸结算。缅甸民众目前担忧这些外币存款是否会兑换成缅币存入特殊账户以及是否能使用这些账户中的资金。
 
-编辑/上传 – 熙攘
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+另外，目前官方的央行指定汇率为1850缅币兑1美元，而黑市或非银行兑换民间兑换实际汇率已经超过2100缅币兑换1美元。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+笔者人在仰光，以上数据都有亲身体验。在通知出台后，也发私信询问本地民间兑换点及当地存款大户，询问《通知》是否属实，并问感受如何，因为经常有各路消息真假莫辨，他们的回答都异常简短和肯定，一个透出的是对军政府当局无耻行径的无奈，一个是透出一丝丝盼望军政府早日被推翻的压抑不住的深深怨恨。有一位回复说，大战（缅甸内战）即将开始，所以能抢就抢了。
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+联想到国内进行时的各大城市包括魔都和深圳的疫情封控，加上房地产引领的即将爆发的金融风暴，人民币的汇率崩盘和民众资产的被洗劫也即将大面积上演，我们拭目以待！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+新闻来源：[Myanmar central bank says FX deposits must be converted into kyat](https://asia.nikkei.com/Business/Markets/Currencies/Myanmar-central-bank-says-FX-deposits-must-be-converted-into-kyat)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

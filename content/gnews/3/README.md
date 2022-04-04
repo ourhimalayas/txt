@@ -2,31 +2,82 @@
 ---
 
 
-## 缅军政府倒退到黑暗时代，储户外汇存款必须按指定牌价兑换成缅币
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2288188/)
+## 欧洲国家主要港口已拒绝给俄籍油轮提供加油补给
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2288202/)
 
-翻译撰稿：雨季仰光
+**编译和评论：16626，沉默老歌，88JJ**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/725E53C8-6341-4813-900D-A1C7F95A650E.png)**屏幕截图：**[**https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article**](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+**欧洲国家主要港口拒绝给俄罗斯籍油轮加油**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-15.png)**图片：网络合成**
-综合《缅甸法律观察》及《日经亚洲》（NIKKEI Asia）4月4日消息报道：缅甸4月3日周一在缅甸官方发布的第12号通知中（一下简称《通知》）宣布即日起对自国外取得的外汇收入实施强制结汇。《通知》要求授权从事外汇交易的银行应在一个工作日内，对目前已汇入及未来将要汇入缅甸各类外币账户的外汇收入进行缅币结汇。现有银行外币储户必须在一日之内按规定牌价将外币存款兑换成缅币。
+路透4月1日 （[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/) ） 西班牙和马耳他等欧洲国家主要港口已经停止向俄罗斯籍商船（油轮）提供加油补给。
 
-上述强制结汇要求可能存在例外或豁免，缅甸央行将另行通知。
+**对莫斯科****（原油）****出口的又一次打击**
 
-《通知》由缅甸中央银行行长丹宁（Than Nyein）签署，据称违反者将根据《外汇管理法》遭到法律起诉。
-![](https://lh6.googleusercontent.com/xW79yK-7Fo27xD_9fUkTfk2-XvAzp4pRblN0guKTxU18jq0p9qkxn-zjatRGpnXWSbsTAr7siKKxiz3IIiZLLBs8MJH6jskoOsJoO_QO4NygslKW9uciJcRifVzAeX7yCIYQtj4UL2c_jcIa9i0)
-《日经亚洲》进一步报道，自2021年2月军政府推翻民选的民盟政府并对抗议民众采取血腥镇压以来，缅甸经济一直在走下坡路，在持续至今的内战及军政府与民族地方武装力量以及流亡政府新成立的人民武装力量的对抗中，缅甸的经济一直在挣扎中维持着难堪的局面。去年，在缅币汇率暴跌后，央行曾短期内尝试以参考汇率与美元挂钩。
+五位知情人士透露：船用燃料销售商，已停止在包括西班牙和马耳他在内的主要欧洲枢纽国家，为悬挂俄罗斯国旗的船只（油轮）提供（加油）补给服务，这是对莫斯科（原油）出口的又一次打击。
 
-3月，缅甸当局宣布计划开始接受泰铢结算缅泰边境贸易，以减少对美元的依赖，降低通胀压力。 同时，类似计划也在继接受人民币之后纳入了印度卢比进行此类边贸结算。缅甸民众目前担忧这些外币存款是否会兑换成缅币存入特殊账户以及是否能使用这些账户中的资金。
+**驶往亚洲的俄罗斯油轮**
 
-另外，目前官方的央行指定汇率为1850缅币兑1美元，而黑市或非银行兑换民间兑换实际汇率已经超过2100缅币兑换1美元。
+多位航运界人士指出，由于地中海主要加油站拒绝给俄罗斯商船（油轮）加油，从波罗的海驶往亚洲的俄罗斯油轮，在补给方面遇到了问题，有可能被困在海上。由于俄罗斯油轮装载易燃物质（原油），进而造成安全隐患。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/DB97480A-4D5A-4987-9747-58A35BC4FD6D.png)屏幕截图：[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+**多艘俄罗斯油轮被迫绕道而行**
 
-笔者人在仰光，以上数据都有亲身体验。在通知出台后，也发私信询问本地民间兑换点及当地存款大户，询问《通知》是否属实，并问感受如何，因为经常有各路消息真假莫辨，他们的回答都异常简短和肯定，一个透出的是对军政府当局无耻行径的无奈，一个是透出一丝丝盼望军政府早日被推翻的压抑不住的深深怨恨。有一位回复说，大战（缅甸内战）即将开始，所以能抢就抢了。
+一位知情人士透露：”由于欧洲港口拒绝加油，多艘俄籍油轮被迫绕道而行，前往其他国家加油。
 
-联想到国内进行时的各大城市包括魔都和深圳的疫情封控，加上房地产引领的即将爆发的金融风暴，人民币的汇率崩盘和民众资产的被洗劫也即将大面积上演，我们拭目以待！
+**提前执行西方国家的下一步制裁措施**
 
-新闻来源：[Myanmar central bank says FX deposits must be converted into kyat](https://asia.nikkei.com/Business/Markets/Currencies/Myanmar-central-bank-says-FX-deposits-must-be-converted-into-kyat)
+相关人员称，拒绝给俄罗斯油轮加油为”**自愿****（自发的）****制裁**“。拒绝与俄罗斯方面签订（加油补给服务）合同，是提前执行西方国家的下一步制裁措施。
 
+马耳他的一名政府官员表示，该国不允许任何悬挂俄罗斯国旗的船只进入其港口。
+
+航运业消息人士称，鉴于世界海运贸易的复杂性，目前尚不清楚俄罗斯公司如何在被撤销多项服务的情况下运营。
+
+另外，自俄罗斯入侵开始后的第二天（2月25日）起，丹麦船用燃料供应商，蒙贾萨Monjasa，表示，它已暂停与悬挂俄罗斯国旗的船只、俄罗斯注册公司以及与俄罗斯有联系的公司发生贸易和供给。
+
+还有，英国在三月早些时候就已经宣布对俄罗斯最大的航运公司Sovcomflot实施制裁。
+
+**评论：**
+
+**绝大多数人反对俄罗斯入侵乌克兰**
+
+***格鲁吉亚加油船：你是俄罗斯的船吗？***
+
+***俄罗斯人：是的***
+
+***格鲁吉亚人：我们不给俄罗斯的船加油了***
+
+***俄罗斯人：不要这样，让我们把政治放在一边！我们只是需要一些燃料！***
+
+***格鲁吉亚人：俄罗斯的船，去吧，荣耀属于乌克兰，你可以随时使用船桨！***
+
+以上是俄罗斯轮船被拒绝加油时的一段对话，它显示了大多数人对俄罗斯入侵乌克兰这场战争的立场与观点。当今国际社会大多数的民主国家是站在正义的一方。联合国大会以141:5的压倒性多数通过了一项决议，要求莫斯科立即停止针对乌克兰的侵略战争，这是当今有普世价值国家的立场。
+
+**唯有中共却首鼠两端投了弃权票**
+
+然而作为安理会常任理事国的中共却首鼠两端投了弃权票，没有是非立场。更有甚者，中共暗中大力支持俄罗斯的侵略战争，其为虎作伥、不仁不义的作为，必遭国际社会的孤立与唾弃。
+
+**声明：**
+
+由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
+
+本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
+
+**参考资料：**
+
+1. ロシア商船への給油拒否、地中海の欧州主要港，[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)
+
+1. EXCLUSIVE Ship fuel suppliers stop serving Russian vessels in the Med – sources，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/)
+
+1. Russian oil tankers are now without a destination or hiding their whereabouts，[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+
+**编辑：卢卡斯**
+
+**发布：歪桑**
+
+20220404
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
