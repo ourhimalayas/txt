@@ -2,45 +2,33 @@
 ---
 
 
-## 麦克萨科技：卫星图像显示乌克兰万人坑
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287778/)
+## 有声|历史上的今天：马来西亚前首相纳吉贪污罪案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2287881/)
 
-翻译: 里奇
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6JISBWIW7ZIMBF5ZLFBZJPG2RU-edited.jpg)图片来源：https://www.reuters.com/
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+2019年4月3日，马来西亚前首相纳吉贪污罪案开始受审。
 
-4 月 3 日（路透社）- 一家美国私营公司周日表示，卫星图像显示，在俄罗斯军队从布查镇撤出后，本周在乌克兰一座教堂的地面上挖了一条 45 英尺长的壕沟，在那里发现了一个万人坑。
+纳吉·阿都拉萨，生于1953年7月23日，曾任马拉西亚第六任首相。2018年，纳吉在大选中被爆出与一马发展有限公司(1MDB)牵连有严重的腐败行为,导致选举失败。随后，被马来西亚移民局禁止出境，被控涉嫌SRC国际有限公司多项罪名。2019年4月3日，马来西亚高法开始审理纳吉被控涉及SRC国际公司4200万令吉洗钱案。
 
-周六访问布查镇的路透社记者在首都基辅西北 37 公里（23 英里）处看到尸体躺在该镇的街道上。一座教堂的万人坑仍然敞开着，有死者的手脚从堆在坑上面的红土里显露出来。
+2011年在马来西亚注册的SRC国际公司，是一马发展公司(1MDB)的前子公司。2012年，时任首相和财政部长就是纳吉。据调查发现，2014年12月-2015年2月间，有4200万令吉从SCR国际公司账户汇入纳吉银行的私人账户。
 
-乌克兰周日指责俄罗斯军队在该镇进行“大屠杀”，这是俄罗斯在乌克兰东部重新集结战斗时被乌克兰军队夺回的众多城镇之一。俄罗斯否认了这些指控，称这是乌克兰的“挑衅”。
+2018年，郭文贵先生在美国爆料，一马发展公司(1MDB)实际控制人是刘特佐，此人是中共公安部长、政法委书记孟建柱的私生子。刘特佐用巨额资金买通掌权的纳吉，帮助孟建柱控制马来西亚，把马来西亚国家搞得贪腐横行，乌烟瘴气，经济严重衰退。消息传到马来西亚，举国哗然，马国人民用选票推翻了纳吉连任企图，并依法追究刘特佐、纳吉的罪行。
 
+文字版原文：[历史上的今天：马来西亚前首相纳吉贪污罪案](https://gnews.org/zh-hans/2280150/)
 
-```
-收集和发布乌克兰卫星图像的麦克萨科技公司表示，3 月 10 日，在圣安德鲁大教堂(St. Andrew and Pyervozvannoho All Saints)发现了一个万人坑的挖掘迹象。
-```
+音频处理：Fei797
+发稿：Fei797
 
-
-“3 月 31 日的最新报道显示，在教堂附近该地区的西南部分，墓地有一条大约 45 英尺长的沟渠” 麦克萨公司说。
-
-路透社无法立即核实这些图像。目前尚不清楚麦克萨传播的图像是否即是路透社记者周六访问的同一教堂。
-
-新闻来源:[Satellite images show long trench at Ukrainian mass grave site, Maxar says](https://www.reuters.com/world/europe/satellite-images-show-45-foot-long-trench-grave-site-bucha-maxar-2022-04-03/)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：夜来香
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

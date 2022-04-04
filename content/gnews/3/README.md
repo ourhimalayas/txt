@@ -2,25 +2,32 @@
 ---
 
 
-## 安卓用户受到威胁：俄罗斯黑客使用新的恶意软件
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2288024/)
+## 俄罗斯战事不利征兵难，政局动荡谁买单？！
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2288084/)
 
-**该恶意软件要求获得18项权限，如访问摄像头和位置。目前尚不清楚它是如何进入智能手机的。**
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111.jpg)
 
-作者：ctu/原文发布于2022年4月4日15:12(CET)
-翻译：LK
+《美联社》4月3日报道，随着俄军在乌克兰陷入困境，越来越多的俄罗斯青年担心自己会被派上战场。周五开始的春季征兵更是加剧了人们的担忧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-3.jpg)图片：黑客们在搞破坏（象征性的图片）/ imago
+虽然国防部长绍伊古承诺新兵不会被派往前线，却遭到民众的广泛质疑。车臣战争时政府的承诺言犹在耳，但最终还是有几千名训练不足的俄罗斯青年被推上战场并惨遭杀害；普京说刚应征入伍的新兵没有参与此次乌克兰的”军事行动”，但在入侵伊始，一位母亲就在乌克兰发布的俘虏视频中认出了她20岁的儿子！
 
-安卓用户正面临一个新的危险。2022年4月4日，据[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)援引Lab52和Bleeping Computer的报道，俄罗斯黑客显然开发了一种新的所谓恶意软件，主要针对配备谷歌操作系统的智能手机。
+俄罗斯所有18至27岁的男子都必须服兵役一年。俄军现有兵力100万人，如果战事持续，这些兵力不足以维持行动，普京最终会面临选择，是兵力不足停滞不前，还是冒着政局不稳的风险，扩大征兵补充队伍？！外部制裁人人喊打，内部动荡众叛亲离，普京的战争还能维持多久？！
 
-具体来说，是进行间谍活动–对用户数据进行梳理。据称，所谓的流程管理器可获得18项授权，包括访问位置、摄像头、音频设置、WLAN或短信读取。
+[原文链接](https://apnews.com/article/russia-ukraine-war-russian-youth-draft-fears-0553c8ac5981758826f973e2103348e0)
 
-根据该报告，目前尚不清楚该应用程序如何进入智能手机。有可能“通过Play Store中的虚假应用程序进行传播”。也可能是通过电子邮件的经典网络钓鱼攻击，或使用手机访问有问题的网站而安装了恶意软件。[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)建议谨慎行事，并警告用户仅下载可信任的应用程序。
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-原文链接: [https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512](https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
