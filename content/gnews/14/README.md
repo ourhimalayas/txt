@@ -2,35 +2,47 @@
 ---
 
 
-## CEO杰森米勒先生向意大利观众讲述Gettr向专制的大科技公司发起挑战
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2288431/)
+## 乌基辅城镇平民被俄军残忍杀害 总统称种族灭绝
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2288836/)
 
-##### 作者：加拿大温哥华扬帆农场 – 视频组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
-女嘉宾：
-我们很高兴获悉GETTR是一个言论自由平台和社交媒体，我们将邀请所有意大利人查阅你的社交媒体并注册。但是，你知道，对我们来说，有一些像 YouTube 这样的社交媒体很奇怪，他们甚至审查并取消了美国总统的账户。他们没有被抓起来，对我们来说，这是一种颠覆政府行为。这种事情即使在非发达民主国家也不可能发生，他们审查自己的总统而没有受到惩罚？该如何解读这个问题呢？（这些社交媒体）不用负责任？不会被起诉？
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.01.32.png)图片来源：互联网
+俄军退去后，乌基辅附近解放的城镇被俄军残忍杀害的平民证据震惊世界，泽连斯基称这是战争罪，将被世界承认为种族灭绝。
 
-杰森米勒先生：
-是的，没有任何影响。我认为这是另一个好问题，因为这些平台声称是言论自由平台。但事实上，他们的所作所为却大相径庭。一旦他们决定关闭特朗普总统的账户，就真的消除了所有障碍，那些行为准则的条条框框也被解除了。现在他们知道他们可以在任何时候以任何理由踢出任何人。而且不会被索赔，不会遇到任何麻烦，他们可能仅仅会得到几天的负面报道。这就是大型科技公司决策的出发点。他们做出了一个商业决定，他们不需要拥有世界各国三分之一到一半的用户。他们只想拥有某些赞同他们的用户。我认为这对信息流通是危险的。我认为这(会导致）政治歧视，是危险的。我认为它确实将造成社会分裂。然而，这就是为什么我认为随着 GETTR 的兴起，我们可以将人们带回（辩论）台。左派、右派，甚至与那些对政治不关心的人都可以发表意见。因此，这就是我们GETTR的目标和我们尝试正在做的事情。我们将在这里并肩战斗，以保护美国的言论自由、意大利的言论自由和其他地方的言论自由。
+乌克兰高级代表何塞普·博雷尔（Josep Borrell）代表欧盟就俄罗斯在布哈和其他乌克兰城镇犯下的暴行在欧盟理事会的网站上，发表[声明](https://www.consilium.europa.eu/en/press/press-releases/2022/04/04/ukraine-declaration-by-the-high-representative-on-behalf-of-the-eu-on-russian-atrocities-committed-in-bucha-and-other-ukrainian-towns/?utm_source=dsms-auto&amp;utm_medium=email&amp;utm_campaign=Ukraine:+Declaration+by+the+High+Representative+on+behalf+of+the+EU+on+Russian+atrocities+committed+in+Bucha+and+other+Ukrainian+towns)说：“俄罗斯当局应对这些暴行负责，这些暴行是在他们有效控制该地区时犯下的。它们受国际占领法的约束。战争罪和其他严重违法行为的肇事者以及负责任的政府官员和军事领导人将被追究责任。”【1】
 
-素材提供：蓝色天空
-软件听写：文倩
-听写校对：文倩 蓝天灵梦
-文稿翻译：Mary Hao
-翻译校对：文倩
-字幕添加：文雅
-最终审核：文倩
-编辑/上传：野草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+声明强烈谴责俄军队在乌克兰犯下的暴行：”欧盟以最强烈的措辞谴责俄罗斯武装部队据报在一些被占领的乌克兰城镇犯下的暴行“，俄军对乌平民犯下大屠杀证据：”将被列入在欧洲土地上犯下的暴行名单。 “
+
+乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskiy）在从俄罗斯军队解放后访问 基辅附近的[Bucha镇说](https://www.theguardian.com/world/live/2022/apr/04/russia-ukraine-war-latest-zelenskiy-calls-russian-forces-butchers-after-civilian-mass-graves-found-around-kyiv-live)：”泽连斯基说：这些都是战争罪，将被世界承认为种族灭绝“，他还说：”我们知道成千上万的人被杀害和折磨，四肢被切断，妇女被强奸和儿童被谋杀。“
+
+乌克兰国家通讯社上周日报道，布查发现了一个埋葬了近 300 人的万人坑。数十具尸体躺在街上，有的双手被绑着。这是在Irpin、Bucha、Hostomel 和整个基辅地区的城镇都从俄罗斯入侵者手中解放出来。俄罗斯人在解放的城镇和村庄大规模杀戮平民的记录。【3】
+
+泽连斯基在[Facebook](https://www.facebook.com/login/?next=https://www.facebook.com/zelenskiy.official/posts/3045749582342064)上称俄军士兵：“杀人犯、抢劫犯、屠夫”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.04.47.png)图片来自乌克兰国家通讯社
+一家收集和发布乌克兰卫星图像的美国私营公司 Maxar Technologies 表示，3 月 10 日，在圣安德鲁和 Pyervozvannoho All Saints 教堂发现了一个万人坑的挖掘迹象。“3 月 31 日的最新报道显示，在教堂附近该地区的西南部分，墓地有一条大约 45 英尺长的沟渠，”Maxar (MAXR.N)说。【2】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.06.13.png)图片来源：互联网
+俄罗斯军队残忍和无纪律，烧、杀、抢、掠、强奸都是历史长期以来许多历史可见到的，比如二战苏军冲入柏林后，对德国人烧、杀、抢及强奸200万妇女的暴行，中国庚子俄难。
+
+1945年8月起前苏联红军占领东北短短半年时间内，所到之处却干尽了坏事，他们不仅对日本人，还对中国人施暴，抢劫、杀人、强奸。据美国驻华武官回忆说：“红军士兵踹开老百姓的家门，除了家俱抢走一切，然后有军用卡车开来，再拉走家俱。前苏联红军军官对他们的部下抢劫和强奸视而不见，有时甚至参与其中。”
+
+前苏联对东北先进工业机器设备和物资的掠夺造成东北的工业一度陷入严重困境。据统计，前苏联在东北地区掠夺造成的损失为1946年币值的53亿4千万日元，折合当时美元13亿6千万。尚不含没有折价的白金32,401.55克、白银 1,866,549.69克和钻石741.0662克。【3】
+
+参考链接：
+
+【1】[欧盟：俄罗斯当局应对乌克兰布查和其他城镇的暴行负责](https://www.ukrinform.net/rubric-ato/3448220-eu-russian-authorities-responsible-for-atrocities-in-bucha-and-other-towns-in-ukraine.html)
+
+【2】[Maxar说，卫星图像显示乌克兰万人坑遗址的长沟](https://www.reuters.com/world/europe/satellite-images-show-45-foot-long-trench-grave-site-bucha-maxar-2022-04-03/)
+
+【3】[共产暴政录：苏联红军在东北强奸及兽行](https://www.epochtimes.com/gb/18/10/3/n10757284.htm)
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*编辑&发布：长岛开心*
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

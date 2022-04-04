@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 11:39 PM (UTC)`
+
+2022.04.04《The Fringe》 Episode 161
+![img](https://media.gettr.com/group19/origin/2022/04/04/23/5c3a5bd4-163f-ae18-52ff-73a05a9f5ea3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/4/2022 11:01 PM (UTC)`
 
 2022.04.04 NFSC  Ukraine has regained full control of Kyiv region
@@ -147,13 +154,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 4/3/2022 Miles Guo: The COVID vaccine disaster will bring about the energy revolution and the digital era. Elon Musk will be the game changer of telecommunications and transportation vehicles. The era of stem cells is around the corner, and the era of the mixing of races when people are no longer divided by their races/ethnicities, regions, and religious beliefs is coming, leading to the time of democracy without autocracy. Mankind will also go to outer space. The New Federal State of China will create a new human civilization, and the unvaccinated will have an infinite number of offspring.<br/><br/>4/3/2022 文贵直播：疫苗灾难后，人类将产生能源革命并进入数字化时代，马斯克将改变通信和运载工具；干细胞时代将到来，人类繁殖种族混血的时代将到来，无种族、地域和宗教区分、无皇有主的时代将到来，人类将走向外太空；新中国联邦将创造人类新文明，无苗族后代延绵不绝
 ![img](https://media.gettr.com/group26/getter/2022/04/04/05/f31320a9-806b-57bc-826b-c2c2efe957fa/out.jpg)
-
----
-
-`@miles 4/4/2022 4:36 AM (UTC)`
-
-4月3号， 大家期待已久的七哥的两首新歌《灭共的雪 The Terminator Snow》和《铁锁梦 Chained Dream》已经正式上线苹果iTunes， 苹果音乐平台了，感谢亲爱的兄弟姐妹们继续打榜支持！👏👏👏👏👏👏👏🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️🎉🎉🎉🎉🎉🎉🎉<br/><br/><br/>灭共的雪 The Terminator Snow by Miles Guo<br/>https://music.apple.com/us/album/%E7%81%AD%E5%85%B1%E7%9A%84%E9%9B%AA-single/1613673794<br/><br/>铁锁梦 Chained Dream by Miles Guo<br/>https://music.apple.com/us/album/%E9%93%81%E9%94%81%E6%A2%A6-single/1615134457
-![img](https://media.gettr.com/group28/getter/2022/04/04/04/ea6beb24-8003-7fa5-d6a6-ac419fadcc2e/da966ffe9d7fe2b28c22fcbb59200b03.jpg)
 
 ---
 
