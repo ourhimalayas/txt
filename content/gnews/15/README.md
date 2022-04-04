@@ -2,30 +2,30 @@
 ---
 
 
-## 有声|喜币是数字货币的希望
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2284555/)
+## 乌克兰检察方：基乌附近确认410具平民尸体
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284607/)
 
-配音：香草山教育部 – Rose
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在3月30日的大直播中，郭文贵先生表示，喜币交易量大涨，截至目前，喜币交易总量增加10倍，单日交易量是上线初期的10倍，每日场外交易量超过场内交易的10倍。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-12.png)
-世界级重量人物对喜币青睐有加，其中一位专门飞往伦敦喜联储进行视察，称喜币、HPay是未来数字货币的希望，并对喜币的交易量增长前景充满信心。（请播放视频，视频时长1‘45“）
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+乌克兰检察方3日宣布，俄军撤离后在乌克兰的首都基乌周边地区，共发现410具平民遗体。也有失踪者，实际上似乎还有更多的死者。俄罗斯军队可能进行了严重侵犯人权的行为，检察院将根据居民的证词等来查明真相。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-320.png)图片来源：雅虎新闻
+
+检察院此前在基乌周边的布查、伊尔平、霍斯特梅利等地方政府进行了调查。据悉，410具遗体中，对140人进行了验尸。在乌克兰国防部3日在推特上发布的布查的视频中，道路上躺着许多像是平民的尸体，军队的车一边绕开尸体一边行进着。总检察长本尼迪克托瓦当天在脸书上发文说：“这是地狱。我们需要留下记录来惩罚恶人“，并提出要彻底调查。
+
+乌克兰总统泽连斯基在美国CBS电视台指责称，认为杀害大量平民的行为是“种族灭绝(大屠杀)”。他呼吁与俄方进行对话防止平民伤亡增加，并再次呼吁与俄总统普京展开会议。
+
+下一篇：[俄罗斯国防部：杀害平民是乌方捏造](https://gnews.org/zh-hans/2284630/)
+
+参考链接：[キーウ周辺で410人の遺体確認　ウクライナ検察（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5f245b832ae1e4a3a22d8f21ae245f0bcfffd376)
+
+* * *
+
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-1.jpeg)
 
 
-
-文字版原文：[喜币是数字货币的希望](https://gnews.org/zh-hans/2267958/)
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

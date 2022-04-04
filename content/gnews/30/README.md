@@ -2,41 +2,39 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（3月28日-4月3日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283705/)
+## 俄军袭击乌克兰最大港口城市敖德萨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284382/)
 
-作者：纽约香草山金融部 – ILOVE战神
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理/编辑：围剿维尼熊
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-过去一周喜马拉雅币价格回落至36美元左右，平均日交易量约26万枚喜币。其中3月30日单日交易量突破74万枚喜币，创下喜币上市3天后的最高单日交易量，交易额突破2500万美元。喜币上市以来总交易量约3330万枚 ，占今年总发行量仅约3.33%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12.jpg)
-最近G-Fashion开通了HPay付款功能，并且交易量增加了10倍，标志着喜币真正进入了G生态的流通领域。喜美元HDO零成本立即到账支付，在实体商店中不断增加流通，并不需要换成美元，这将促进HDO资金池的稳定增长，并最终推动喜币价格不断上涨。
-
-本周郭文贵先生在大直播中透露，最近某亚洲数字货币领袖人物和中东某国都到喜联储考察，考察后均表示喜币和HPay的生态系统将成为数字货币的希望和未来，其中即将上线的HPay 2.0版本拥有全球最先进的技术。另外某世界前五的社交媒体巨头最近希望在其平台上开放喜币打赏功能，但喜联储认为未来喜币价格将超过1000美元，目前并不是最好的时机。喜联储在近期将主要专注于扩展其数字银行和交易所业务。
-
-本周欧洲议会议员以93票对14票通过了加强欧盟反洗钱和恐怖主义融资规则的立法草案。该法案要求追踪所有加密资产的转移情况。该法案将打击各种去中心化的加密货币和交易所，对严格KYC的喜币是利好。据郭先生在大直播中透露，币安由于过去一系列不合规的操作将会被美欧政府全球追杀，而喜币不论现在和未来都是全球最稳定的数字货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture5.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture11.png)
-参考链接：
-1. [2022年3月30日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2270288/)
-2. [喜交所官网：HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
-3. [Crypto assets: new rules to stop illicit flows in the EU](https://www.europarl.europa.eu/news/en/press-room/20220324IPR26164/crypto-assets-new-rules-to-stop-illicit-flows-in-the-eu)
-4.[2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密](https://gettr.com/post/p13c6fub6b6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2BCDBF95-2E75-4782-B69A-ECE7EFD7E0D7.jpg)图片来源：澎湃新闻
 
 
+根据德国之声中文网4月3日报道，乌克兰军队收复基辅周边的北部区域，与此同时，俄军在南部袭击了海港城市敖德萨。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+该市政府在Telegram上发声明称，敖德萨受到导弹袭击，导弹是从空中发射的，部分导弹被截获击毁。
 
+黑海沿岸的敖德萨是乌克兰最大的港口城市，拥有100万人口，是该国外贸航运命脉上的重要关卡。此外，乌克兰海军总部也设在敖德萨。
 
+敖德萨政府发言人布拉丘克（Sergey Bratchuk）对电台表示，该市一处“关键的基础设施”被击中，没有人员伤亡。
+
+英国情报部门在最新的战局更新中认为，黑海中部署的水雷对当地海上活动构成巨大风险。
+
+报告还称，俄罗斯通过封锁海岸，阻止乌克兰从亚速海和黑海获得支援。
+
+据《泰晤士星期日》报道，英国首相约翰逊对其内阁大臣说，他有意向乌克兰提供反舰导弹，以打破俄罗斯在黑海领域保持的绝对优势。
+
+参考链接：[乌克兰收复基辅周边 俄军袭击敖德萨炼油厂](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%94%B6%E5%A4%8D%E5%9F%BA%E8%BE%85%E5%91%A8%E8%BE%B9-%E4%BF%84%E5%86%9B%E8%A2%AD%E5%87%BB%E6%95%96%E5%BE%B7%E8%90%A8%E7%82%BC%E6%B2%B9%E5%8E%82/a-61344659)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

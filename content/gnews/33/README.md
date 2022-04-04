@@ -2,88 +2,38 @@
 ---
 
 
-## 参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2283516/)
+## 欧盟表示要将俄军暴行送上国际法庭
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2283957/)
 
-**参议员玛莎.布莱克本： **
-在俄罗斯威胁进行核战争之际，拜登总统的预算将迫使削减关键核能力。 俄罗斯、 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、朝鲜和伊朗只通过实力理解和平。 我们必须为我们的军队提供防卫和保护我们的自由所需的资源。
+#### 【雅典娜观察】和您一起洞察世界
 
+整理/编辑：文泓
 
-
-> President Biden’s budget will force cuts to key nuclear capabilities, at a time when Russia is threatening nuclear war. Russia, China, North Korea & Iran only understand peace through strength. We must provide our military the resources they need to defend & protect our freedom.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510735250376298496?ref_src=twsrc%5Etfw)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/RK5CIJEXY@7KMAS.png)图片来源：Forbes & 雅典娜设计组
 
 
+近期俄罗斯军队从乌克兰北部撤离后，留下的惨景令人震惊，欧盟理事会主席使用了“屠杀”一词，乌克兰政治家认为俄军犯下战争罪。
 
-**参议员玛莎·布莱克本：** 
-我们不能袖手旁观，任由左派(把他们的思想)灌输给我们的孩子。
+据乌克兰当地官员称，在首都基辅西北约30公裡的布察市（Bucha），已给约280名死者下葬。法新社记者报道称，他们在街道上看到20至30具尸体，他们身穿平民服装。
 
+基辅市长科利钦科谴责俄罗斯犯下战争罪，他接受德国《图片报》采访时，他说，基辅郊区发生的事情是普京必须负责的“民族屠杀”。
 
+欧盟理事会主席米歇尔在推特发文表示，欧盟将就俄罗斯军队在基辅附近的暴行进行调查，他对来自布察等地的图片深感“震惊”，并使用了“屠杀”一词。他写道**，欧盟将协助国际法庭收集罪证材料，同时，米歇尔宣布欧盟将祭出对俄罗斯的进一步制裁，向乌克兰提供更多援助。**
 
-> We can’t sit back and allow the left to indoctrinate our children.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1510777612909613057?ref_src=twsrc%5Etfw)
+欧盟外交与安全政策高级代表博雷利也发帖表达震惊，他写道，**俄罗斯军队的暴行必须在国际法庭得到解释****。**
 
+德国外长贝尔博克谴责“普京肆无忌惮的使用暴力”，“摧毁无辜的家庭”。她也宣布将启动进一步对俄制裁。
 
+乌克兰总统泽连斯基周六（4月2日）也在社交媒体发文，谴责俄罗斯军队留下“全方位的灾难和无数的危险”，他警告人们地上可能埋了地雷，俄军空袭也可能再次来临。
 
-**参议员玛莎.布莱克本： **
-不要搞错：在美国，我们正目睹一场文化战争。
+参考链接：[欧盟表示要将俄军暴行送上国际法庭](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F%E8%A1%A8%E7%A4%BA%E8%A6%81%E5%B0%86%E4%BF%84%E5%86%9B%E6%9A%B4%E8%A1%8C%E9%80%81%E4%B8%8A%E5%9B%BD%E9%99%85%E6%B3%95%E5%BA%AD/a-61346348)
 
+发布：tianzhihuan
 
-
-> Make no mistake: we’re witnessing a culture war in America.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510672033620889603?ref_src=twsrc%5Etfw)
-
-
-
-**国务院发言人内德·普赖斯:** 
-当被问及来自布哈(Bucha) 的可怕图像时，布林肯国务卿@SecBlinken 今天早上告诉CNN记者@CNNSotu，我们不能对此麻木——我们不能使其正常化。 这就是每天都在发生之事的现实，也是克里姆林宫的战争必须结束的原因。 【转CNN推文及视频： “我们不能对此麻木。” 国务布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上。】
-
-
-
-> Asked about the horrifying images coming out of Bucha, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) told [@CNNSotu](https://twitter.com/CNNSotu?ref_src=twsrc%5Etfw) this morning that we can’t become numb to this—we can’t normalize this. This is the reality of what’s going on every single day and why the Kremlin's war needs to end. [https://t.co/PvRBtLUCGE](https://t.co/PvRBtLUCGE)
-> — Ned Price (@StateDeptSpox) [April 3, 2022](https://twitter.com/StateDeptSpox/status/1510712942072848385?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：** 
-我们强烈谴责克里姆林宫部队在布查(Bucha)和乌克兰各地的明目张胆的暴行。我们正在利用一切可用工具，记录和分享信息，追究责任人的责任。
-
-
-
-> We strongly condemn apparent atrocities by Kremlin forces in Bucha and across Ukraine. We are pursuing accountability using every tool available, documenting and sharing information to hold accountable those responsible.
-> — Secretary Antony Blinken (@SecBlinken) [April 4, 2022](https://twitter.com/SecBlinken/status/1510792047824826372?ref_src=twsrc%5Etfw)
-
-
-
-**众议员兰斯.古登： **
-高油价首先被归咎于大流行病。 
-然后，弗拉基米尔.普京（因此）受到指责。 
-现在，石油公司又遭到指责。 
-
-乔·拜登应该将自己列入被指责的名单。
-
-
-
-> First, the pandemic was blamed for high gas prices.
-> 
-> Then, Vladimir Putin was blamed.
-> 
-> Now, oil companies are being blamed.
-> 
-> Joe Biden should add himself to the list.
-> — Lance Gooden (@Lancegooden) [April 3, 2022](https://twitter.com/Lancegooden/status/1510686257646604289?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院： **
-国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：乌克兰的农民没能照料他们的庄稼，而是被迫要么为国家的未来和独立而战，要么逃离。 运送粮食的船只由于被俄罗斯侵略的封锁而无法从黑海港口驶出。 【图中文字：国际社会必须增加对俄罗斯的施压以结束这场无端又无理的战争 – 布林肯】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): Farmers in Ukraine, instead of tending to their crops, have been forced to either fight for their country’s future and independence, or to flee. Ships with grain are not getting out from Black Sea ports because they’re blocked by Russia’s aggression. [pic.twitter.com/RI47Q1JL7u](https://t.co/RI47Q1JL7u)
-> — Department of State (@StateDept) [April 3, 2022](https://twitter.com/StateDept/status/1510603026301599746?ref_src=twsrc%5Etfw)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 

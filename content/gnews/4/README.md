@@ -2,41 +2,33 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.4）&#8211;接种新冠疫苗后心悸
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284632/)
+## 中日财经爆┃东京证交所开启改组后的首日交易
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2284704/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/peterwong
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-3.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+4月4日，东京证交所启动了改组后的首日交易，日经225指数较上周末上涨 70.49点，收盘报27,736.47点，4 个工作日内首次上涨。东京证券交易所股价指数（TOPIX）上涨 9.36点，收盘报1953.63点。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片9-1.jpg)[图片来源](https://www.google.com/search?q=%E4%B8%9C%E4%BA%AC%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E6%89%80&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBuobfrvYe2q8EjM3bX7729GoHpdtg:1649059084127&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;sqi=2&amp;ved=2ahUKEwj78LDn9_n2AhWxl3IEHRJOCGEQ_AUoAnoECAIQBA#imgrc=Goyi4YscYpNQ4M)
 
-帖子原文：
+东京证交所所废除了此前的东证1部、东证2部，以及主要为新兴企业的Mothers等板块，重新改组为Prime（优质），Standard（标准）和Growth（成长型）三大交易板块。
 
-打完疫苗两针，好像心脏有一点不太舒服，常常心悸，可能个体差异吧，上周去北京总部开会，还看了场二队的演出，和分离两地的闺蜜吃了顿饭，反正忙忙碌碌没停下来，今天好歹有点时间，去了趟医院，然后就是要背个24小时的心电图。其实应该也没啥事儿，不过干投资的工作，听过太多年轻轻的同行，工作太拼了猝死，想想还是当心点吧，真要是有个好歹，家里亲人太可怜了。
+本次改组旨在吸引海内外投资。Prime板块瞄准具有国际竞争力、成长有望的企业，上市标准比东证1部更为严格。
 
-很久不在微信朋友圈发自己的事情了，顶多发点工作的内容，成年人就是越来越不需要别人来评论自己的生活，自己知道要的是什么。
+针对此前的东证1部上市企业，东交所设置了相关迁移机制。即使相关企业不具备Prime板块上市标准，只要提交优化计划书，就可进入Prime 板块。其结果，大多数东证1部企业将原样迁入Prime板块。
 
-精选评论：
+全球股市之间的竞争日趋激烈。东交所的总市值与纽约证交所差距扩大，并被中共国上海证交所超越。人们担心，东交所将进一步陷入地位沉降的危机。
 
-[旺仔](https://www.xiaohongshu.com/user/profile/5904a37f50c4b42c3b96ac98)回复：
+东交所全新板块推出后，能否实现从全球吸引投资的改组目标，拉抬日本经济增长，成为今后面临的课题。
 
-我昨天打了第二针，下午开始心慌，现在心脏时不时地觉得想针扎一样。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/https-www-xiaohongshu-com-discovery-item-60ed74a4000000000102b4e3-share_from_user_hidden-true-xhsshare-CopyLink-appuid-593bc86450c4b43662c38691-apptime-1648987145.png)
-参考链接:
+消息来源:
 
-[接种新冠疫苗后心悸](http://xhslink.com/qFBbzg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+1、[东京证交所改组 三大新板块启动交易](https://www3.nhk.or.jp/nhkworld/zh/news/358335/)
+2、[日経平均終値、７０円高の２万７７３６円…４営業日ぶり上昇](https://www.yomiuri.co.jp/economy/20220404-OYT1T50140/)
 
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
