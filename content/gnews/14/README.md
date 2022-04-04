@@ -2,29 +2,32 @@
 ---
 
 
-## 22岁乌克兰女孩击毁一架俄罗斯SU-35S战斗机
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2286507/)
+## 中共網軍們因為餐廳展示台灣國旗給負評
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2286693/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：紐約香草山 醫療部 雲豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+紐西蘭當地時間4月3日，一家在奧克蘭的餐廳老闆表示，有一位顧客在餐廳網路評分上給與一分的負評，理由是該餐廳的菜單，在所推出的台灣風味三明治旁展示代表台灣的國旗。該顧客在評論中提及一個中國政策。
 
-据每日星报（Dailystar）4月3日报道，一名22岁乌克兰女孩成功击毁一架价值3500万英镑的先进俄罗斯SU-35S喷气式战斗机。
+在該負評被刪除後，隨後又接著有8個新帳號給同樣的負評，但是完全未提及對該餐廳所提供的服務或是供餐內容的評論。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-3.jpeg)被击毁的俄罗斯SU-35S战斗机。（图片来自每日星报）
+餐廳老闆表示，他們餐廳的菜單上，同時提供了許多國家在地風味的三明治，也同樣以該國的國旗來展示讓顧客容易辨認。餐廳的目的只是為了滿足在奧克蘭地區的多元文化顧客族群，這不關任何政治議題。對於這些負評的原因感到不可置信。他也不想把國旗拿掉。
 
-据报道，在乌克兰东部的伊久姆（Izium）市附近，一名22岁的乌克兰女孩使用肩抗式Igla红外地对空导弹击毁了SU-35S。Su-35S战机是SU-35的升级版，是俄罗斯最先进的战机之一，Su-35S战机作战半径达3400公里，可以挂载多达12枚导弹或炸弹。而Igla红对地对空导弹则是俄罗斯制造的，自20世纪80年代以来开发了许多型号的防空导弹。该导弹可以以两倍于声速的速度飞行，飞行高度为11，000英尺。
+紐西蘭餐廳協會執行長比杜瓦（Marisa Bidois）對此表示，虛假評論可能對餐飲業者帶來嚴重影響，而且可能具有很大的破壞性。
 
-据乌克兰国会议员安东·格拉申科（Anton Gerashchenko）发布声明称，这架喷气式飞机的飞行员设法成功弹射，但随后在试图逃跑时被乌克兰军队抓住。
+[新聞連接]：
+[https://www.cna.com.tw/news/aipl/202204040012.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aipl/202204040012.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-一天前，这名女子还击落了两架俄罗斯喷气式飞机和一架直升机。据报道，这名女子直到几周前还在大学学习，两周前才被教导如何使用Igla。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
 
-参考链接：
-1. [https://reurl.cc/yQpoWO](https://reurl.cc/yQpoWO)
-2. [https://reurl.cc/dXE9Og](https://reurl.cc/dXE9Og)
-3. [https://reurl.cc/oenpXg](https://reurl.cc/oenpXg)
+- 审核/编辑/发稿:qiutian（邱甜）
 
-总编：青城道姑
-发布：文曦
 
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

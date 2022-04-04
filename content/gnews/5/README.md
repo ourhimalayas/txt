@@ -2,35 +2,37 @@
 ---
 
 
-## 有声|普京侵略乌克兰的背后支撑：中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2286623/)
+## 澳印两国签署自贸协议，促进关键矿业发展
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2286788/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-自俄罗斯入侵乌克兰一个多月以来，国际社会纷纷谴责普京所犯下的战争罪行，而中共却一直在试图两面讨好。一方面，中共在联合国谴责俄罗斯发动侵略行为的关键投票中投了弃权票，避免直接将普京对乌克兰的袭击称为“入侵”，还推波助澜宣传俄罗斯的虚假信息，一再将战争责任推到美国和北约头上；另一方面，中共也遵守国际社会对俄罗斯实施的制裁，还惺惺作态呼吁通过谈判解决问题，并向乌克兰提供人道主义援助。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2.jpeg)
-尽管习近平希望与欧洲保持良好关系，避免美中关系进一步恶化，但普京和俄罗斯国家的命运直接牵涉到中共的核心安全利益。一个被打垮的俄罗斯的前景不仅会触发中共对其2500英里共同边界的不稳定性的担忧，而且会对俄罗斯政府的未来领导力和地缘政治方向产生不确定性。因此，北京对普京的个人权力地位越是焦虑，就越有可能通过提供直接经济援助、减轻制裁影响甚至提供军事装备来加强对其的支持。
+#### 【雅典娜快讯】，紧贴时代脉博
+
+整理/编辑：文泓
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-366.png)图片来源：The Economic Times & 雅典娜设计组
 
 
+印度商务部长皮尤什·戈亚尔Piyush Goyal将于周二抵达澳大利亚，印度工业联合会将派出一个商业代表团，由其主席和总干事带队。
 
-文字版原文：[普京侵略乌克兰的背后支撑：中共](https://gnews.org/zh-hans/2281984/)
+莫里森政府认为上周六签署的《澳大利亚-印度经济合作与贸易协定》将给关键矿产业带来的益处。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+根据该协议，到2035年，对印度的出口预计将增加至少450亿，澳大利亚将对该国开放工作度假者计划，允许每年约1000名印度人参与。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+印度总理纳伦德拉-莫迪在周六的线上签字仪式上将该协议誉为两国关系的转折点，他说双方“在经济上有巨大的潜力来满足彼此的需求”，“我们将能够共同为提高供应链的复原力和太平洋地区的稳定作出贡献”。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+周六，莫里森总理说，该贸易协议将“促进澳大利亚向印度提供更便宜的商品、羊毛、园艺、煤炭和液化天然气”，“它将开启在关键矿物（和）稀土方面更深层次的合作，我知道这对印度不断增长的制造业来说是一个越来越重要的领域。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+澳洲贸易部长丹·特汉说，与新德里达成的具有里程碑意义的自由贸易协议将促进澳大利亚的采矿业，并为生产手机、电视显示器、风力涡轮机和电动汽车所需的关键矿物开辟新的机会。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+参考链接：[澳大利亚与印度签署自贸协议 为矿业带来积极促进](https://cn.theaustralian.com.au/2022/04/04/65319/)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+*发布：tianzhihuan*
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
