@@ -2,8 +2,8 @@
 ---
 
 
-## 根据目前的情况判断俄罗斯侵略乌克兰战争停止大概率不超过2个月
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2283495/)
+## 七哥在准备美国中期选举后的一切准备
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2283553/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

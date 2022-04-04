@@ -2,33 +2,37 @@
 ---
 
 
-## 有声|欧盟警告中共不要干涉西方对俄罗斯的制裁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2283190/)
+## 中共国民间人士 高呼打倒共产党
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283299/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间4月1日，据相关媒体报道，欧洲理事会主席查尔斯-米歇尔当天与欧盟外交政策负责人何塞普-博雷尔、欧盟委员会主席乌尔苏拉-冯德莱恩和中共党魁习近平进行了视频会议。
+作者：纽约香草山农场 – 文鹰
 
-在其后的新闻发布会上，米歇尔指出，欧盟一致认为俄乌战争正在威胁全球安全和世界经济，因此，如果中共向俄罗斯提供任何方式的军事或经济援助，其必将面临来自欧盟的制裁。
 
-早先，虽然中共官方声称其并未向俄罗斯提供武器，但中共两次在联合国安理会谴责俄罗斯对乌克兰侵略战争的决议中选择弃权。同时，中共官媒屡次鼓吹挺俄言论，并帮助俄罗斯散播攻击西方世界的谎言。
 
-对此，参加会议的欧盟高级官员指出，任何规避制裁或向俄罗斯提供援助的企图都将延长此次战争，而这也将造成更多生命的死亡和更大的经济影响。为此，欧盟将对任何在经济或军事上援助俄罗斯的企图保持警惕。此外，欧盟也非常明确地表明，中共不应该干涉西方对俄罗斯的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文字版原文：[欧盟警告中共不要干涉西方对俄罗斯的制裁](https://gnews.org/zh-hans/2276390/)
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+4月2日，一则来自墙内的视频在盖特上被广泛传播。视频显示，一男子想要出行但被阻在小区门口，另一个疑似工作人员的男子阻挡在该男子前面。男子被人劝退，但随即又挣脱出来向前走了几步，情绪有些激动地举起手臂，连呼“打倒共产党，打倒习近平”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8.jpg)
+当前，中共国内疫情在多地爆发，地方政府强制封城封区，人为限制居民出行，不顾民众生死，已经酿成了很多人道悲剧，孩子与父母被迫分离，老人因延误治疗失去生命等，数不胜数。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+分析人士称，邪恶中共的极端防疫政策，不仅给国人带来了无尽的灾难，更进一步激发了越来越多的人反抗暴政、追求自由的勇气。男子的呐喊，可能成为一个标志性的事件，唤醒更多的人站出来，反抗甚至推翻邪恶的中共政权。
+
+参考链接：
+[在邪教CCP变态封锁防控的高压下，终于有人当众高喊:”打倒共产党，打倒习近平”！](https://gettr.com/post/p135ea8ef8e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

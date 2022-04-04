@@ -2,46 +2,33 @@
 ---
 
 
-## 樱花时政┃上海医师电话吐槽防疫 录音被全网查删
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2283328/)
+## 有声|盖特注册用户数在 3 月份经历了 34% 的爆炸性增长
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2283514/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-近日，一段市民打给上海疾控部门某专家的电话录音，火了。但这段录音很快就被中共官方全网删除。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海医师电话吐槽防疫-录音被全网查删.png)[图片来源](https://asia.nikkei.com/Spotlight/Coronavirus/Shanghai-to-lock-down-in-two-stages-for-testing-as-COVID-cases-spike)
-这位市民在电话中主要观点如下：
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据盖特官方账户3月31日报道，3月从月初到月底，以言论自由著称的社交媒体平台——盖特——的注册账户数激增了 34%。为此，盖特首席执行官杰森·米勒先生说：“人们每天都会意识到，硅谷寡头是言论自由的敌人，这对盖特来说每天都是好消息。因为我们是一个致力于言论自由的平台。我们的用户知道他们不会因为他们的政治观点而被审查或取消，这吸引了所有政治派别的人。”
 
-1、疾控、健康云、医疗机构，现在都是各自为政，非常混乱；
+盖特还提供了一些社交媒体平台可用的最佳功能，包扩Vision。这是一个目前处于产品测试阶段的短视频选项，它将整合TikTok和Instagram的功能。盖特还将很快扩大对实时流媒体的访问，并推出加密的直接消息，为内容创作者提供在线观看和小费打赏功能，以及基于双币种数字加密货币的支付系统。
 
-2、家里老人尽量不要去方舱医院，居家隔离观察就好，无症状休息三五天就好了；
+“用户来到 GETTR 是为了体验社交媒体上真正的言论自由是什么样的，他们留下来是因为这里的用户体验更好，”米勒说，“我们的技术更好，参与度更高，人们在盖特上相互交流更有趣。”
 
-3、如果120来拉老人强制隔离，让他们出示“阳性”的证明，他们大概率拿不出来……
+该平台目前在全球拥有500万注册用户，并在2022年实现了50%的惊人增长。
 
-4、关于“有用的知识”，其实就是“无症状和轻症”，居家隔离是更优的选择，因为这个病也不需要特别的治疗，像对付感冒那样就可以扛过去；
+文字版原文：[盖特注册用户数在 3 月份经历了 34% 的爆炸性增长](https://gnews.org/zh-hans/2278396/)
 
-5、如果都弄到方舱医院，条件很差，也不会有什么治疗，反而不利于病人康复；
+音频处理：Fei797
+发稿：Fei797
 
-6、轻症无症的不要转走了，就在家里隔离，我都提了n次了，有人听过啦？没人听的啊；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-7、要被逼疯了知道吧？我们专业机构也要被逼疯了，知道吧？专业人员说的话根本就没人听。现在把这个病变成了政治性的一个疾病。
-
-就在这份电话录音引发热议的第二天，上海官方出台了一份“接听答复口径必须和国家和本市的防控政策一致，不得加以个人主观意见”的文件。
-
-据网名分析，这名医师名叫朱渭萍，49岁，硕士，主任医师，现任新区疾控中心传染病防治与消毒管理科主任，复旦大学公共卫生学院硕士生兼职导师，四川大学兼职教授；中国女医师协会医院感染管理委员会委员；上海市预防医学会消毒专业委员会委员。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海医师电话吐槽防疫-录音被全网查删2.png)
-
-在电话录音被中共官方查删后，有网友表示，为众人抱薪者，不可使其冻毙于风雪。希望从今天起，我们要保护好朱渭萍，我们不能让她成为下一个“艾芬”，更不能让她步李文亮的后尘。
-
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

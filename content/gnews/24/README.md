@@ -2,28 +2,26 @@
 ---
 
 
-## 加拿大计划对俄罗斯进行战争罪调查
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282972/)
+## 俄罗斯近78万人死于中共病毒
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283199/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+作者： 纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据4 月 1 日路透社消息，根据俄罗斯国家统计局（Rosstat）周五的新数据计算得出，自 2020 年 4 月中共病毒大流行开始以来，俄罗斯与其相关的死亡总数已达77万8千人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-03-下午10.38.42.png)
+据称，俄罗斯2 月份有43,201人直接或间接死于中共病毒，高于 1 月份的 35,807 人。去年11 月，俄罗斯中共病毒致死人数创下近 9万人的月度新高，仅次于美国。
 
-撰稿：加拿大温哥华扬帆农场 – 晨熹
+路透社的数据还显示，与 2015-2019 年的平均死亡率相比，自 2020 年 4 月大流行开始至2022年2月底，俄罗斯记录的超额死亡人数超过 95万8千人。流行病学家表示，超额死亡人数指的是某地区在一段时间内，由于突发公共卫生事件造成的全因死亡人数高出正常同期全因死亡人数的部分。在中共病毒全球大流行的背景下，超额死亡人数是评估疫情真实影响的最佳方法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490384731.png)图片来源：Deutsche Welle
+参考链接：[Russia’s total number of COVID-related deaths hits nearly 778,000](https://www.reuters.com/world/europe/russias-total-number-covid-related-deaths-hits-nearly-778000-2022-04-01/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-据【CTV新闻】3月31日报道，加拿大政府日前宣称，要针对俄罗斯攻击和杀戮乌克兰平民以及轰炸该国医疗救援设施的战争罪行进行调查。
-
-加拿大国际事务部长对此表示，目前已有六名该国专员前往海牙国际法院，协助调查俄罗斯在入侵乌克兰期间所犯下的战争罪和反人类罪。同时，这位了解国际人道法的部长认为，本次俄军对平民的无差别攻击，与当年斯大林残酷屠杀数百万乌克兰人无异，必须得到全面彻底的调查。
-
-此外，加拿大公共安全部长也表示，平民在任何情况下都不应受到伤害，特别是当他们需要医疗救助和食物支持时。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：[https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120](https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120)
-
+编辑：静言
+总编：Zion文恩
+审核：飞虹
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

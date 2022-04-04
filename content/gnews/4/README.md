@@ -2,8 +2,8 @@
 ---
 
 
-## 病毒复阴后完全没有任何问题,请不要歧视
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2283480/)
+## 川普社交媒体会出大事，所有跟吴征的没一个好下场
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2283549/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

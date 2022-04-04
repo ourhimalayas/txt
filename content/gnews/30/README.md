@@ -2,36 +2,109 @@
 ---
 
 
-## 基辅发现410具平民尸体 泽伦斯基痛斥俄军种族灭绝
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2282750/)
+## 不只美国 随着实验性中共病毒疫苗的推出2021 年全球超额死亡人数飙升
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2282859/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-俄罗斯入侵乌克兰一月有余，随着俄罗斯在乌克兰的战事不利，俄军开始阶段性退守。乌克兰在俄罗斯军队逐渐撤退后如今已经收复首都基辅地区，战争过后一片狼藉，乌克兰检察总长维涅迪克托瓦4月3日指控，基辅已发现410具平民尸体。乌克兰总统泽伦斯基痛斥，俄军在乌国犯下「种族灭绝」（genocide）罪行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/不只美国-随着实验性中共病毒疫苗的推出2021-年全球超额死亡人数飙升.jpg)
 
-维涅迪克托瓦告诉乌克兰国营电视台，基辅地区已发现410具平民尸体；法医已勘验140具。泽伦斯基透过翻译在美国哥伦比亚广播公司（CBS）面对全国新闻节目中说：的确，这是种族灭绝。对整个国家和人民的灭绝。我们是乌克兰公民，我们不想屈服于俄罗斯的政策。这就是我们被摧毁和消灭的原因。
+**据《门户专家网》作者朱利安·康拉德森（Julian Conradson）2022 年 4 月 1 日报道：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3881711_1_1.jpg)图片来源：法新社
+在过去的几个月里出现了一个令人担忧的趋势——人们以前所未有的速度死亡，而这与中共病毒无关。
 
-就在泽伦斯基发表前述言论的前一天，乌军进入基辅附近的布查镇，发现官员和目击者所说的遭俄军杀害的平民尸体。然而俄罗斯国防部却极力否认这类指控，声称显示布查有尸体的影片和照片都是乌克兰当局「再次挑衅」。
+事实上，这一高峰几乎与实验性 mRNA  中共病毒疫苗的推出完全吻合。
 
-人权观察组织（HRW）3日表示，在切尔尼戈夫（Chernihiv）、哈尔科夫（Kharkiv）和基辅等俄军控制区，发现若干俄罗斯军队违反战争法的案例。
+正如网关专家（Gateway Pundit）上个月报道的那样，美国所有年龄组的超额死亡人数都在飙升，尤其是在 25 至 44 岁之间的年轻人中。据CDC的最新数据，这一特定群体的超额死亡人数创纪录地增长了 84%。
 
-在被问及俄罗斯总统普京是否会被追究责任时，泽伦斯基说，其他人也有责任，我认为，所有的军事指挥官，所有发出指示和命令的人，都应该受到适当的惩罚。至于什么是「适当的惩罚」，泽伦斯基说，当我们发现有人双手被绑在背后并被爆头…我不知道什么样的法律或多久的监禁刑期才算是适当。
+毫无意外，这种令人担忧的趋势影响的不仅仅是美国。
 
-美国国务卿布林肯（Antony Blinken）表示，在布查发现的乌克兰平民尸体照片令人深受重创，但必须追究相关人士的责任。北约秘书长史托腾柏格（Jens Stoltenberg）痛斥，在布查发生的杀戮是欧洲数十年来从未见过的暴行。
+世界各国，特别是那些被认为是西方的一部分的一些国家，都在经历着超高的死亡率，其中大部分死亡率惊人。
 
-当乌克兰平民被俄军屠杀的证据摆在全球面前时，俄罗斯官员们还在死不要脸的否认推脱责任，污蔑是乌克兰的再次挑衅，邪恶政权的无耻嘴脸尽显无遗，并且为下一次的攻击埋下伏笔，独裁者向来毫无廉耻只认拳头，灭亡是注定的，未来的法律罪责一个都跑不了！
+在 2021 年 7 月 31 日至 10 月 2 日期间，我们在加拿大的北部邻居中，最健康的加拿大人（0-44 岁）的死亡人数激增了 24%。
 
-新闻来源：[https://news.ltn.com.tw/news/world/breakingnews/3881711](https://news.ltn.com.tw/news/world/breakingnews/3881711)
+值得指出的是，加拿大总理贾斯汀·“双面”·特鲁（Justin ‘Two-Face” Trudeau）多在 8 月强制要求为工人接种疫苗，这与超额死亡人数的激增完全吻合。
 
-撰稿/发布：一叶知秋
+看一看马克西姆·博伊文（Maxim Boivin）的推特：
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
+
+
+***马克西姆·博伊文@MaximBoivin137***
+
+*2021**年**7**月**31**日至**10**月**2**日期间，加拿大**0**至**44**岁的超额死亡人数上升了**24%**。*
+
+*我想知道是什么导致了**2021**年**8**月**14**日前后的死亡高峰。*
+
+*有谁知道吗？欢迎评论*
+
+*2022**年**1**月**15**日*
+
+
+
+
+
+> Excess deaths in Canada up 24% for ages 0 to 44 between July 31, 2021 and October 2, 2021.
+> 
+> I wonder what could've caused the death spike around August 14, 2021.
+> 
+> Anyone have an idea? Feel free to comment [pic.twitter.com/7IMR1NwPYK](https://t.co/7IMR1NwPYK)
+> — Maxim Boivin ⚜🍁 (@MaximBoivin137) [January 15, 2022](https://twitter.com/MaximBoivin137/status/1482245009856475137?ref_src=twsrc%5Etfw)
+
+
+
+
+
+在整个欧洲都可以看到同样的趋势，绝大多数国家的超额死亡人数激增——除了几个值得注意的例外国家。
+
+如下图所示，冰岛和瑞典等在大流行期间，没有完全实行破坏文明的封锁措施的少数国家，现在的情况明显好于欧洲其他国家。
+
+谁能预料到这样的事情…肯定不是科学。
+
+通过伊莱·大卫（Eli David）博士的推特看看：
+
+
+
+***伊莱大卫博士@DrEliDavid***
+
+*超额死亡是唯一重要的衡量标准。你能找出**2021**年欧洲超额死亡人数最少的国家**🇸🇪**（瑞典）吗？*
+
+*还是同一个国家🇸🇪，既没有实施封锁也没有口罩强制令。*
+
+*2022年1月9日*
+
+
+
+
+
+> Excess death is the only important metric. Can you spot the country 🇸🇪 that had the least excess death in Europe in 2021? 🧐
+> 
+> It is the same country 🇸🇪 that employed neighter lockdowns nor mask mandates. [pic.twitter.com/6MPRg0Yyqh](https://t.co/6MPRg0Yyqh)
+> — Dr. Eli David (@DrEliDavid) [January 9, 2022](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw)
+
+
+
+
+
+根据来自美国的最新数据，到目前为止，千禧一代在超额死亡浪潮中受到的打击最为严重——可能是因为接种疫苗是他们保持就业的唯一途径。
+
+最令人担忧的是，这种“令人不安”的趋势正在持续，即便没有变得更糟。
+
+这场大流行从来不是为了拯救生命。事实可能正相反。
+
+不要听我的，听听比尔·盖茨（Bill Gates）怎么说（4分21秒 开始）：
+
+
+
+*“（影响CO2减为零的）第一个因素是人口。当今世界有 68 亿人。正在奔向大约 90 亿。****现在，如果我们在新疫苗、医疗保健、生殖健康服务方面做得非常好，我们可能会将其降低 10% 或 15%。****但现实是，我们看到的是大约 1.3 的增长。”*
+
+
+
+
+
+
+
+原文链接：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+
+翻译：Nick｜校对：JS709｜编辑&发布：文鸣
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

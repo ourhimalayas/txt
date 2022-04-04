@@ -2,25 +2,30 @@
 ---
 
 
-## 加拿大议员力推监控中共代理人法案
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282904/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2282986/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-3.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490378321.png)图片来源：网络
 
+校对：Stay文苑
 
-据【多伦多星报】4月1日报道，加拿大议员豪萨科斯此前提出了一项建立专门审查机构的法案，以追踪和监控那些代表外国政权非法影响加拿大政府和各界名人的组织或个人。
+编辑：Stay文苑
 
-据悉，该法案将要求所有在加拿大为外国政府牟取利益的组织和个人进行登记。对此，该议员指责[麦泰律师事务所]曾试图帮助华为获得在加拿大5G建设权。并表示：该律师事务所因在加拿大为中共政权服务而必须被注册在案，以备随时审查和追踪。
+发稿：Stay文苑
 
-报道称，近年来中共对加拿大各界的全面渗透和影响日趋严重，并通过其在加拿大的打手，恶意骚扰和恐吓持不同政见者和异议人士。并与加国的政要和官员建立密切利益关系，以培养可能为习近平当局服务的代理人。
+新闻：[https://gettr.com/post/p13fv7le2dd](https://gettr.com/post/p13fv7le2dd)
+访谈：[https://gettr.com/post/p13fkj0bf5e](https://gettr.com/post/p13fkj0bf5e)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-1.jpeg)
 
-发稿：文莱
-
-新闻来源：[https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html](https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
