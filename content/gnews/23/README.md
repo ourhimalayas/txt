@@ -2,100 +2,47 @@
 ---
 
 
-## 郭文贵先生爆料邪恶轴心国时间线（下） Mr. Miles Guo exposed the Timeline of the “axis of evil”（Part 2）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2285580/)
+## 拜登承诺在紧急油储释放后降低汽油价格，暗示降低“最多35美分”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2285654/)
 
-东京樱花团/原创视频组
+***评论：**这次美国的超级抛储行动，是美国在过去6个月里第三次动用战略石油储备，也是历史上规模最大的一次。同时，这也是拜登为应对通胀所做的诸多努力之一。通胀已经对美国消费者造成损害，并威胁到民主党在11月选举中能否维持对国会的控制权。*
 
-2019年9月1日
-第一次爆料中共的双龙计划
-September 1, 2019
-The first time to expose the CCP’s Double Dragon Plan
+据《每日来电》作者：Nicole Silverio 2022年3月31日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-344-e1649070157952.png)图片来源：《路透社》
+总统乔拜登上周四承诺，从战略石油储备（SPR）中释放数千万桶石油后，汽油价格将下降。
 
-2021年1月25日
-双龙计划被迫暂停，攻台是共产党统治全世界计划的一部分。
-January 25, 2021
-Double Dragon Plan is forced to suspend, attack on Taiwan as part of the CCP’s plan for world domination.
+“总统先生，以货币计算，您估计这些公告会降低多少汽油价格？美国人什么时候能看到这些变化？”《每日来电》高级白宫记者问。
 
-2021年2月26日
-共产党攻台会使用各种超限手段阻止美国。
-February 26, 2021
-(If) the CCP attack Taiwan, they will use all unrestricted means to stop the U.S.
+“这个非常重要的问题，没有确切的答案，但价格已经下降了，”拜登开始说，“当提前宣布拜登将从这次探寻中释放这么多桶石油时，价格就已经下来了。我的猜测是，我们会看到它下降并持续下降，但我认为没人能预测它会降到多低。”
 
-2021年3月16日
-台湾就是西方文明最后一道防线共匪一旦攻台就是灭亡之日。
-March 16, 2021
-Taiwan is the last line of defense for Western civilization Once the CCP attack Taiwan, it will be the day of the CCP’s death.
+拜登声称，虽然几天和几周内的汽油价格下降将略有延迟，但下降幅度会是未知数。
 
-2018年4月15日
-双龙计划必将执行，最终目标是领导世界，搞弱搞乱美国。
-April 15, 2018
-The Double Dragon Plan Will Be Executed The ultimate goal is to lead the world and weaken and disrupt America.
+“但它会下降，”他继续说，“而且它可能会大幅下降。它可能会降到每加仑从10美分到35美分，目前尚不知晓。”
 
-郭先生成功预测CCP对台行动。
-Mr. Guo successfully predicted CCP’s action against Taiwan.
+拜登还指出，政府正在观望欧洲盟国释放多少石油储备，他估计可能在3000万到5000万桶之间。拜登总结，具体下降幅度将很大程度取决于各国释放的石油桶数量。
 
-双龙计划虽被暂缓，但CCP控制全世界的脚步并未停止…
-The Double Dragon Plan has been put on hold, but CCP’s drive to control the world has not stopped…
+在俄罗斯全面入侵乌克兰后，应对汽油价格上涨的压力越来越大，政府计划连续180天平均每天释放100万桶石油。3月14日，平均汽油价格持续增长，已经超过了每加仑4美元，达到每加仑4.32美元左右。
 
-2019年9月17日
-预测CCP9月24日对台将有重要行动。
-September 17, 2019
-Forecasted CCP’s important actions to Taiwan on September 24.
+总统已从战略石油储备（SPR）订购了8000万美元，11月首次订购了 5000万美元，以减轻不断上升的通货膨胀。随后，他与国际能源署(IEA)的 30个国家一起于3月1日释放了3000万桶美国石油，以应对俄罗斯总统普京的入侵。
 
-2019年9月24日
-中共第一次以立体全实战模式挂载核弹对台湾实战演习。
-September 24, 2019
-The CCP’s first three-dimensional full-scale warfare mode to mount nuclear bombs on Taiwan in a live exercise.
+文章来源：[https://dailycaller.com/2022/03/31/biden-promises-lower-gas-prices-35-cents/](https://dailycaller.com/2022/03/31/biden-promises-lower-gas-prices-35-cents/)
 
-2021年11月28日
-共产党对台湾和俄罗斯对乌克兰一定同时动作。
-November 28, 2021
-The CCP invasion of Taiwan and the Russian invasion of Ukraine must happen at the same time.
+翻译：洛杉矶盘古农场 – maru
 
-2021年12月03日
-中俄密集交往，加紧筹备拿下台湾和乌克兰。
-December 3, 2021
-Intensive Russian-Chinese Engagement. Intensify Preparations to invasion Taiwan and Ukraine.
+校对：洛杉矶盘古农场 – Mike Li
 
-2021年12月5日
-中俄的命运取决于普和习的健康与安全。
-December 5, 2021
-The Fate of Russia and China Depends on the Health and Security of Putin and Xi Jinping.
+评论：洛杉矶盘古农场 – maru
 
-2021年12月10日
-打台湾后就是地缘政治的重新分配。
-December 10, 2021
-After the invasion of Taiwan was a geopolitical redistribution.
+编辑：洛杉矶盘古农场 – WenXiong
 
-邪恶轴心终于跨出了侵占世界的第一步，中共和俄罗斯将联合行动，分头侵占乌克兰和台湾。
-The “axis of evil” has finally taken the first step to invade the world, and the CCP and Russia will act jointly and split up to invade Ukraine and Taiwan.
+发布：洛杉矶盘古农场 – 子萍
 
-这是一场不同文明、地域、信仰和意识形态之间的对抗，这是一场改变全人类的第三次世界大战。
-This is a confrontation between civilizations, regions, beliefs and ideologies, the World War III that will change all of humanity.
 
-而爆料革命终将获得最终胜利。
-And the Whistleblower Movement will eventually win the ultimate victory.
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-2022年2月9日
-乌克兰将会成为普京的滑铁卢。
-February 9, 2022
-Ukraine will be Putin’s Waterloo.
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-2022年2月9日
-爆料革命第一个将邪恶五国的计划暴露在世人面前。
-February 9, 2022
-Whistleblower Movement first to bring evil five countries plans
-exposed to the world.
-
-2022年2月20日
-中俄联盟的双面出兵计划，是独裁者为了个人安危的战争游戏。
-February 20, 2022
-The Russian-Chinese alliance’s two-sided plan to send troops
-is a war game by dictators for their personal safety.
-
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

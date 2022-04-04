@@ -2,26 +2,39 @@
 ---
 
 
-## 五角大楼: 与美国有关的乌克兰实验室没有“进攻性”生物武器
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2281428/)
+## 罗伯特·马龙说小罗伯特应获诺贝尔和平奖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2281998/)
 
-翻译：Steven Hu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-7.jpg)
-图片来源：谷歌图片
+翻译：JENNY BALL
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-300-edited.png)图片来源 : rumble.com
 
-《零对冲》四月三日报道：五角大楼的一名官员周五告诉国会，在乌克兰的数十个与美国有关的实验室中，没有任何一个具有“攻击性”生物武器。
+在“塔克·卡尔森今日秀”（Tucker Carlson Tonight）罗伯特·马龙（Robert Malone）博士说，小罗伯特·肯尼迪（Robert F. Kennedy, Jr.）应该获得诺贝尔和平奖 。
 
-负责核、化学和生物防御计划的助理国防部长黛博拉·罗森鲍姆 (Deborah Rosenbaum) 对众议院武装部队小组委员会说：“我可以毫不含糊地告诉你，在乌克兰实验室中没有美国参与的进攻性生物武器。” 
+“如果有人值得获得诺贝尔和平奖，那就应该是 [肯尼迪] ，就是他”，罗伯特·马龙在塔克·卡尔森今日秀节目中赞扬小罗伯特·肯尼迪。
 
-五角大楼通过其降低国防威胁署（DTRA) 资助乌克兰的实验室。 根据五角大楼上个月发布的一份情况说明书，自 2005 年以来，美国已“投资”2 亿美元“支持 46 个乌克兰实验室、卫生设施和诊断站点”。
+“作为一名疫苗学家，我现在很尴尬地了解有关疫苗功效的实际数据，以及真正导致儿童传染病下降的原因。数据非常清楚：在为几乎所有这些儿科疾病实施疫苗之前，数据下降基本上与卫生状况的改善相一致。”
 
-莫斯科指责乌克兰在俄罗斯入侵时对五角大楼资助的秘密生物武器计划进行了紧急清理。 世界卫生组织表示，它建议乌克兰在入侵期间销毁“高威胁病原体”。
+“如果我能活着，我怀疑我们会看到给鲍比·肯尼迪完全平反的时刻”。
 
-就美国方面来说，他们坚持认为，在乌克兰和其他前苏联国家的计划是旨在减少前苏联遗留下来的生物武器的威胁。 五角大楼官员在淡化实验室威胁的同时，还警告说，它们仍可能包含苏联时代的生物武器。
+评论：如果您阅读了罗伯特·肯尼迪的2021年11月出版的新书，《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》，他用多年来的证据和实例， 揭露了由制药公司资助的主流媒体如何已经让数百万美国人相信安东尼·福奇博士是英雄。而实质是：这个道貌岸然自称自己就是“科学”的伪君子，实际是前台操纵灭绝人口，以Covid病毒为藉口实施灭绝人类的mRNA人体基因改变，让全世界人民充当试验白老鼠的罪魁祸首。
 
-降低囯防威胁署合作减少威胁项目主任罗伯特·波普 (Robert Pope) 在 2 月份告诉《原子科学家公报》，这些实验室可能包含苏联生物武器，并警告说乌克兰的战斗可能导致危险病原体的释放。
+罗伯特·马龙博士一定能够和我们全世界人民一起看到小罗伯特·肯尼迪平反昭雪的时刻，一定能够看到福奇受到应有的惩罚！
 
-原文链接：[https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons](https://www.zerohedge.com/geopolitical/pentagon-says-pathogens-us-linked-ukraine-labs-not-offensive-bioweapons)
+素材链接：[Robert Malone Says Robert F. Kennedy, Jr. Deserves Nobel Peace Prize – Tucker Carlson Tonight](https://rumble.com/vzc7zb-robert-malone-says-robert-f.-kennedy-jr.-deserves-nobel-peace-prize-tucker-.html?utm_source=salsa&amp;utm_medium=email&amp;utm_campaign=chd_tv&amp;eType=EmailBlastContent&amp;eId=97402d8c-6024-44de-a8ce-d59e25ddbd26)
+
+* * *
+
+审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+
 
  
 

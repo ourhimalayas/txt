@@ -2,134 +2,64 @@
 ---
 
 
-## 郭文贵先生爆料邪恶轴心国时间线（上） Mr. Miles Guo exposed the Timeline of the “axis of evil”（Part 1）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2285579/)
+## 澳洲的人性化：残疾人停车许可证、无障碍停车许可证
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2285610/)
 
-东京樱花团/原创视频组
+#### 了解澳洲生活点滴， 带您【走进澳洲】
 
-早在2017年，郭先生就向美国高层警告中共有一个邪恶轴心联盟。
-Mr. Guo warned high-level government officials of the U.S. that the CCP had an “axis of evil” alliance as early as 2017.
+编辑/整理：小鱼儿
 
-2019年7月，郭先生在直播中首次曝光了五国联盟。
-In July 2019, Mr. Guo firstly exposed the Five-Nation Alliance on live tream.
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-342.png)图片来源：雅典娜设计组
 
-2019年07月21日
-首次提醒大家重点关注被制裁的五个国家。
-July 21, 2019
-The first time to remind us of focusing on five countries under sanctioned.
 
-2019年08月06日
-五国联盟就是中共买单的草台联盟。
-August 6, 2019
-The Five-Nation Alliance is a grass stage alliance subsidized by the CCP.
+对弱势群体的照顾，体现了一个国家的文明程度。为方便残疾人停车，澳洲政府推出了残疾人士停车许可证、无障碍停车许可证，符合条件的人可以申请。
 
-2019年09月11日
-五国联盟是CCP控制全世界计划的重要一环。
-September 11, 2019
-The Five-Nation Alliance is an important part of CCP’s planning to control the world.
+维多利亚州残疾人停车计划，是为残疾人提供停车许可证。根据许可证持有人的要求，许可证分为第一类和第二类。还有为组织提供的残疾人停车许可证。
 
-2019年11月04日
-五国联盟是CCP控制全世界计划的重要一环。
-November 4, 2019
-The Five-Nation Alliance is an important part of CCP’s planning to control the world.
+- 第一类许可证——医生必须确认该人在残疾人停车位停车的要求
+- 第二类许可证——医生必须确认一个人在连续行走时需要休息
+- 临时残疾人停车许可证
+- 组织接送残疾人停车许可证
 
-邪恶五国轴心是CCP控制全世界计划的重要一环，五国联盟在金融、军事、互联网等不同领域都统一步调，积极备战。
-The evil five countries axis is an important part of CCP’s planning to control the world, The Five-Nation Alliance is unified in pace and actively reparing for war in different areas such as finance, military and internet.
 
-2019年12月26日
-美国准备下一场战争，敌人就是五个邪恶轴心国。
-December 26, 2019
-America is preparing for the next war, and the enemy is the five “axis of evil” nations
+如果居民符合第一类或第二类或临时残疾申请人的资格，他们可以申请。
 
-2020年1月15日
-中俄伊三国军演警醒美国，邪恶联盟就是部分3F方案。
-January 15, 2020
-China-Russia-Iran joint military exercise is alert for U.S. The evil alliance is part of the 3F-Scheme.
+符合条件的接送残疾人的组织也可以提出申请。
 
-2020年1月18日
-邪恶国家都建了互联网防火墙。
-January 18, 2020.
-The Evil countries have all built Internet firewalls.
+申请表可从当地议会获得。许可证只会发给居住在议会区域的居民。访问[Viroads 残疾人 停车](https://www.vicroads.vic.gov.au/safety-and-road-rules/road-rules/disability-parking)网页。符合条件的居民可免费获得残疾人停车证。
 
-2020年1月26日
-CCP建立邪恶轴心的过程与二战希特勒的崛起一模一样。
-January 26, 2020.
-The process of the CCP building an evil axis is the same as the rise of Hitler during World War II.
+如果您有严重的残疾或受伤，您可能有资格获得无障碍停车许可证。有不同类型的许可证允许您在无障碍停车位停车和/或在常规停车位停车，时间是平时的两倍。
 
-2020年4月11日
-为什么叫邪恶轴心国。
-April 11, 2020
-Why it’s called the “axis of evil”.
+要申请或更新许可证，请访问[无障碍停车许可证网站（外部链接）](https://www.accessibleparking.vic.gov.au/permits/).
 
-2020年8月26日
-邪恶轴心国的军队都不打疫苗。
-August 26, 2020.
-The army of “axis of evil” are not vaccinated.
+使用无障碍许可证的注意事项：
 
-纵观历史，中共的邪恶轴心同盟与二战时希特勒的轴心国联盟如出一辙，美国再次警醒。
-Throughout history, the CCP’s “axis of evil” alliance is the same as Hitler’s Axis alliance in World War II, and the United States is once again waking up.
+- 只能在车辆运送获得许可证的个人时显示
+- 必须清楚地显示，以便从车外可以看到许可证号和到期日期
 
-而在全球推广疫苗的情势下，邪恶五国却都选择军队不打疫苗，意欲何为？
-When the global are promoting vaccines, the evil five countries have chosen not to vaccinate their troops, what is their intention?
 
-战争的脚步越来越近了….
-The war footing is getting closer ….
+一个人只能获得一张许可证。
 
-2021年8月29日
-邪恶轴心征服世界的进攻计划。
-August 29, 2021
-The axis of evil’s planning to attack and conquer the world.
+无障碍停车证不允许您：
 
-2019年9月10日
-CCP已经被普京绑在一起 ，邪恶轴心的背后是国际邪恶势力。
-September 10, 2019
-The CCP has been tied Putin together The international evil forces are behind the “axis of evil”.
+- 将车停在受限地点，例如自由通道、禁止停车或禁止停车区、出租车专用区、巴士区和授权居民区
+- 在收取停车费的区域免费停车。
 
-2021年10月05日
-五个邪恶轴心国家与二战的法西斯轴心国如出一辙。
-October 5, 2021
-Five “axis of evil” countries the same as the fascist Axis Powers of World War II.
 
-2022年1月05日
-邪恶轴心国灭白和侵占世界的计划。
-January 5, 2022
-The axis of evil’s plan to destroy white race and invade the world.
+（注：以上信息意为参考，请您登陆官网获得更加详细的信息）
 
-2018年开始，郭先生在直播中警告台海必有一战，美国别无选择，必须保卫台湾。
-In the beginning of 2018, Mr. Guo warned on live stream that there would be a war between China and Taiwan, the United States had no choice but to defend Taiwan.
+参考资料：[Victorian Disabled Persons Parking Scheme](https://www.betterhealth.vic.gov.au/health/serviceprofiles/victorian-disabled-persons-parking-scheme-service)
 
-郭先生断言：拿下台湾是CCP控制世界的第一步，也将是CCP灭亡的第二道大门。
-Mr. Guo asserted: Occupying Taiwan is the first step for CCP to control the world, and it will be the second gate for CCP’s demise.
+[Accessible Parking Permits](https://www.vicroads.vic.gov.au/safety-and-road-rules/road-rules/disability-parking)
 
-2018年8月16日
-台湾面对统独问题，应该选择的策略。
-August 16, 2018
-When Taiwan faces the issue of unification and independence, the strategy it should choose.
+发布：tianzhihuan
 
-2018年8月16日
-美国高层不愿出兵保护台湾，但道义上别无选择。
-August 16, 2018
-The Top U.S. official is reluctant to send troops to defend Taiwan.
-But there is no moral choice.
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
-2019年4月20日
-CCP拿下台湾是控制世界的第一步。
-April 20, 2019
-CCP’s occupation of Taiwan is the first step to control world.
-
-2019年6月30日
-台湾是CCP死亡的第二道大门。
-June 30, 2019
-Taiwan is the Second Door to CCP’s Death.
-
-继2019年在香港强推国安法后，CCP又欲将魔爪伸向台湾。
-After enforcing the National Security Law in Hong Kong in 2019, the CCP wants to extend its clutches to Taiwan.
-
-为了遏止CCP武力侵台，郭先生及时爆出惊天阴谋 “双龙行动”。
-In order to curb CCP’s forceful invasion of Taiwan, Mr. Guo promptly exposed the shocking conspiracy “Operation Double Dragon”.
-
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
