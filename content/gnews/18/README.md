@@ -2,44 +2,36 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2283389/)
+## 上海封控期间怪现状之“甩菜云蹦迪”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2283432/)
 
-#### **整理：枳实**
-**美工：精灵蓝**
+作者：纽约香草山佛教部—无尽夏
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪03.jpg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5.png)图片：雅典娜农场设计组 精灵蓝
+久经封控，上海民众情绪已经相当郁闷。3月29日，一个名叫“TudiMusic现场”的微信视频号的“云蹦迪”直播现场突然遭到狂刷，主播万万没有想到，本来只是圈内人自己搞搞，观看人数不到1万，热度不到470的直播间，骤然涌入大量彻夜难眠的上海网民，观看人数破天荒地飙升至60万（绝大多数是年轻人）。因为那天在浦东封控期间，所以被戏称为“浦东春晚”。于是在4月1日，也就是上海浦西封控时间点到来之前，被戏称为“浦西春晚”的该微信号的同主题直播再次遭到狂刷，最终观看人数创纪录地突破500万。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪01.jpg)
 
-雅典娜疫情更新（2022年 4月3日）
-
-[往期《雅典娜疫情更新](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)[》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
-
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-2.png)
+直播中上海人把积压多日的焦虑、愤怒、无奈、苦中作乐、抱团取暖等各种情绪以“过年”“抢菜”等自嘲方式发泄出来。弹幕上满是“新年快乐”、“某某小区前来报到”、“一边抢菜一边看”、“萝卜甩起来”、“五花肉甩起来”、“今晚属于闵行七子”（指闵行疫情最严重的七个区域）、“宛平路600号（精神卫生中心）的室友们，大葱甩起来”等上海特色的防疫用语。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪04.jpg)
+在大流行中上演的无数悲喜剧中，上海民众集体上演的这次疯狂的“行为艺术”也算独树一帜。它再一次说明，中共不灭，这样的悲喜剧（确切说都是悲剧）将永远在中华大地上演下去，无论你身处边远山村，还是繁华的大上海！
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
 
-[2022年4月3日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月3日改进.pdf)
+编辑：霍比特人
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-数据来源：
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-[covidlive.com.au](https://covidlive.com.au/)
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-发布：wenly
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

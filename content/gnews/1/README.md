@@ -2,25 +2,12 @@
 ---
 
 
-## 视频|新中国联邦和法治基金在乌克兰的人道救援行动仍在继续
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2283824/)
+## 4月3日文贵大直播要点（图片1-7）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2283917/)
 
-制作：香草山视频部
-
-鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
-
-目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。
-
-请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
-
-求助方式及详细信息请参考视频。
-
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7BBC93BA-197A-4AB9-93C7-D3009A2819BA.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/63F44B70-D912-436C-9E58-F44BD61858CD.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/F2955C38-2217-45EB-BEDF-9348749E589E.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8D1A1C75-6247-45FB-ADE3-1478A5B2BA16.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/54D13D7A-F106-40F8-9630-AED6A67E1D67.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/B4A27D01-565B-4074-A841-E278976D94F3.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/28005A2D-ECE4-4A00-BFC8-837245502AD3.jpeg)
+发布：水涨船高
 
  
 
