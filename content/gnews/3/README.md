@@ -2,20 +2,18 @@
 ---
 
 
-## 亲共的斯里兰卡正在经历政治动荡
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2284307/)
+## 乌克兰拯救的96个孩子的具体过程（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284332/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-135142.jpg)
-在外汇危机中，斯里兰卡这个小岛国正经历着日益严重的食品、燃料和药品短缺。由于因生活费用飙升而进行的大规模反政府抗议正在进行，36小时的宵禁在本周末生效。
+#### PPT 制作: 0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：40-10：50-003.jpeg)
+*发布：陶子*
 
-一位执政党成员说，斯里兰卡内阁已经提交了辞呈，因为公众对政府的经济政策导致生活成本飙升和外汇危机的愤怒情绪不断上升。
-
-自巴基斯坦总理的不信任动议，斯里兰卡，另一个亲共的国家，也出现了政治的动荡。
-
-不管是天意或人为的，共产党的灭亡越来越快了。
-
-**新闻来源：**[https://www.bloomberg.com/news/articles/2022-04-03/sri-lanka-cabinet-offers-to-resign-as-inflation-unrest-builds](https://www.bloomberg.com/news/articles/2022-04-03/sri-lanka-cabinet-offers-to-resign-as-inflation-unrest-builds)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

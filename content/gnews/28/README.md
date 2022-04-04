@@ -2,30 +2,25 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2282986/)
+## 中共在俄军入侵乌克兰前发动网络攻击
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2283036/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-3.png)
+采编/撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490389821.png)图片来源：Theguardian
 
 
-校对：Stay文苑
+据英国《卫报》4月2日报道，中共在提前知晓俄罗斯入侵乌克兰计划的情况下，于发动战争前夕，对乌克兰主要军事目标及核电厂等关键设施实施了网络攻击。
 
-编辑：Stay文苑
+据悉，包括国防部、金融系统及核基础设施等重要机构在内的600多个乌克兰网站，在俄罗斯入侵前，均遭到中共军方数千次黑客攻击，并在2月23日俄军入侵的前一天达到高峰。
 
-发稿：Stay文苑
+专家指出，情报中所披露的黑客攻击方式符合中共一贯战术，即通过扫描IT基础设施找出漏洞然后发起攻击。牛津大学教授马丁对此表示，中共在俄军发动战争前夕，对乌克兰实行了高强度的网络情报窃取和破坏性攻击，证实了普京当局和习近平政权合谋占领乌克兰的侵略计划。
 
-新闻：[https://gettr.com/post/p13fv7le2dd](https://gettr.com/post/p13fv7le2dd)
-访谈：[https://gettr.com/post/p13fkj0bf5e](https://gettr.com/post/p13fkj0bf5e)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-1.jpeg)
+发稿：文莱
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[https://www.theguardian.com/technology/2022/apr/01/china-accused-of-launching-cyber-attacks-on-ukraine-before-russian-invasion](https://www.theguardian.com/technology/2022/apr/01/china-accused-of-launching-cyber-attacks-on-ukraine-before-russian-invasion)
 
  
 

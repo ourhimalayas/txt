@@ -2,11 +2,11 @@
 ---
 
 
-## 中国会在即将到来的战争中毁灭而老百姓能够救自己的就是依靠HPAY (七）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284309/)
+## 锁链女之歌戳破中共的谎言（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284333/)
 
 #### PPT 制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10：35-10：40-007.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：40-10：50-004.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

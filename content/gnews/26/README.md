@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国民间人士 高呼打倒共产党
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283299/)
+## 欧美等国家加强对加密资产的监管
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283300/)
 
-作者：纽约香草山农场 – 文鹰
+作者：华盛顿DC农场 – 自由信仰，银河系农场 – 骄子
 
 
 
@@ -13,14 +13,21 @@
 
 
 
-4月2日，一则来自墙内的视频在盖特上被广泛传播。视频显示，一男子想要出行但被阻在小区门口，另一个疑似工作人员的男子阻挡在该男子前面。男子被人劝退，但随即又挣脱出来向前走了几步，情绪有些激动地举起手臂，连呼“打倒共产党，打倒习近平”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8.jpg)
-当前，中共国内疫情在多地爆发，地方政府强制封城封区，人为限制居民出行，不顾民众生死，已经酿成了很多人道悲剧，孩子与父母被迫分离，老人因延误治疗失去生命等，数不胜数。
+3月31日国外媒体报道，出于对比特币及其他加密资产可能破坏金融稳定，并被用于犯罪的担忧，欧盟立法者将支持对比特币和其他加密资产的转移采取更严格的安全保护措施，这是监管机构收紧监管措施的最新迹象。
 
-分析人士称，邪恶中共的极端防疫政策，不仅给国人带来了无尽的灾难，更进一步激发了越来越多的人反抗暴政、追求自由的勇气。男子的呐喊，可能成为一个标志性的事件，唤醒更多的人站出来，反抗甚至推翻邪恶的中共政权。
+据悉，欧洲议会中的两个委员会已经确定了相关方案，供投票表决。根据特别工作组指定的反洗钱标准，加密公司必须收集和共享加密资产的交易数据。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9.jpg)
+同一天，美国众议员特雷·霍林斯沃斯和参议员比尔·哈格蒂提出一项名为“稳定币透明度法”的法案，旨在通过提高稳定币市场的透明度，探索在不扼杀创新的情况下同时保护消费者和经济的解决方案。该法案目前已经获得大量支持。
+
+4月1日，又有媒体报导，日本央行呼吁七国集团适时建立一个共同的加密货币监管框架，以打击俄罗斯等国家利用数字货币来逃避经济制裁。
+
+观察人士称，新兴的、不受监管的加密货币的蓬勃发展，由于可以创建单独的全球结算系统，对传统受监管的法币系统构成了挑战，为洗钱等犯罪行为扰乱传统的金融系统秩序，各国越来越重视对加密货币进行合理的监管。俄罗斯入侵乌克兰的战争，无疑加快了这一进程。
 
 参考链接：
-[在邪教CCP变态封锁防控的高压下，终于有人当众高喊:”打倒共产党，打倒习近平”！](https://gettr.com/post/p135ea8ef8e)
+1. [EU lawmakers set to tighten up on crypto transfers](https://www.reuters.com/world/europe/eu-lawmakers-set-tighten-up-crypto-transfers-2022-03-31/)
+2. [Newly Introduced Bill Aims to Bring Transparency to the Stablecoin Marketplace](https://www.coindesk.com/policy/2022/03/31/newly-introduced-bill-aims-to-bring-transparency-to-the-stablecoin-marketplace/)
+3. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
+4. [Proposed Bill Would Require Stablecoins to Be Backed by Dollars, Government Securities](https://decrypt.co/96587/proposed-bill-would-require-stablecoins-backed-dollars-government-securities)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 

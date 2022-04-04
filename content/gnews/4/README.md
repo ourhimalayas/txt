@@ -2,11 +2,11 @@
 ---
 
 
-## 中国会在即将到来的战争中毁灭而老百姓能够救自己的就是依靠HPAY (六）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284306/)
+## 乌克兰拯救的96个孩子的具体过程（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284328/)
 
 #### PPT 制作: 0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10：35-10：40-006.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：40-10：50-002.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
