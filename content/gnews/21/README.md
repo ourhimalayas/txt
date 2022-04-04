@@ -2,25 +2,38 @@
 ---
 
 
-## 俄军士兵用乌军子弹自残逃避战争
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287990/)
+## 乌克兰部队继续向基辅附近的俄罗斯部队作战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
 
-作者：纽约磐石农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-台媒4月3日报道，近日乌克兰安全局公布了一段某俄军士兵与其母亲通话的内容，通话透露出，他们被乌军围困，打算逃跑又怕被军队高层的督战队枪毙，因此厌战的士兵们纷纷用乌克兰制式的子弹自残，假装遭到乌军攻击，借此被送回俄罗斯治疗。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-3.jpg)
-该士兵在通话中说，他们不仅被乌军围困，而且装备都被炸毁，如果此时乌军攻击他们就会全军覆灭，因此他们纷纷用自残的方法弄伤自己，以期能被送回国内医院。该士兵的母亲闻讯哀求士兵快点回家，并表示要去俄罗斯国防部求救。但士兵说指挥官不可能同意，并透露目前已有20名拒绝服役者被判刑8年以上。
+***评论：**加油，顽强的乌克兰人，正义终将胜利。*
 
-乌克兰安全局表示，仅该士兵的部队就有120名伤兵，以及350名死亡士兵的遗体被运回国内。乌方经审讯俄军战俘得知，俄军高层恢复了过去的“督战队”做法，部队上有所谓的“射击小队”存在，他们会杀死任何打算逃跑的士兵。
+据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
+4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
 
-参考链接：[**不想打仗又怕被射殺！ 俄士兵找「烏克蘭子彈」射自己**](https://news.ltn.com.tw/news/world/breakingnews/3864361)
+英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+文章观点仅代表作者个人，与Gnews平台无关。
+
+文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

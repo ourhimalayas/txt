@@ -21,83 +21,83 @@
 ### [DC每日热点0404](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [五月花简报（04/04/2022）](/content/gnews/3/README.md)
- ` mayflowertranslate`
-
-### [4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口](/content/gnews/4/README.md)
- ` 秘密翻译组-北美组`
-
-### [【G时新闻】上海的疫情是否会成为香港的重演？](/content/gnews/5/README.md)
+### [【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零](/content/gnews/3/README.md)
  ` G-时新闻`
 
-### [加拿大经济增长在未来四十年将垫底发达国家](/content/gnews/6/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [续篇二：关于《自由和独裁不共戴天》一文的感想](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [欧洲国家主要港口已拒绝给俄籍油轮提供加油补给](/content/gnews/8/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [视频｜在新中国联邦的救援营地庆祝逾越节(犹太人节日)是非常有象征意义的](/content/gnews/9/README.md)
+### [五月花简报（04/04/2022）](/content/gnews/4/README.md)
  ` mayflowertranslate`
 
-### [缅军政府倒退到黑暗时代，储户外汇存款必须按指定牌价兑换成缅币](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
+### [4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
 
-### [有声新闻-新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/11/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
+### [【G时新闻】上海的疫情是否会成为香港的重演？](/content/gnews/6/README.md)
+ ` G-时新闻`
 
-### [俄罗斯战事不利征兵难，政局动荡谁买单？！](/content/gnews/12/README.md)
+### [加拿大经济增长在未来四十年将垫底发达国家](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/13/README.md)
+### [续篇二：关于《自由和独裁不共戴天》一文的感想](/content/gnews/8/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [欧洲国家主要港口已拒绝给俄籍油轮提供加油补给](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [视频｜在新中国联邦的救援营地庆祝逾越节(犹太人节日)是非常有象征意义的](/content/gnews/10/README.md)
+ ` mayflowertranslate`
+
+### [缅军政府倒退到黑暗时代，储户外汇存款必须按指定牌价兑换成缅币](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声新闻-新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/12/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [克里姆林宫警告西方：卢布换天然气计划是原型](/content/gnews/14/README.md)
+### [俄罗斯战事不利征兵难，政局动荡谁买单？！](/content/gnews/13/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/14/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [克里姆林宫警告西方：卢布换天然气计划是原型](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/15/README.md)
+### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [波兰希望有更多的美军进驻欧洲](/content/gnews/16/README.md)
+### [波兰希望有更多的美军进驻欧洲](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [卡车业中最两极化的术语是 “司机短缺”](/content/gnews/17/README.md)
+### [卡车业中最两极化的术语是 “司机短缺”](/content/gnews/18/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [安卓用户受到威胁：俄罗斯黑客使用新的恶意软件](/content/gnews/18/README.md)
+### [安卓用户受到威胁：俄罗斯黑客使用新的恶意软件](/content/gnews/19/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [扒一扒中共国的“动态清零”政策](/content/gnews/19/README.md)
+### [扒一扒中共国的“动态清零”政策](/content/gnews/20/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [乌克兰部队继续向基辅附近的俄罗斯部队作战](/content/gnews/20/README.md)
+### [乌克兰部队继续向基辅附近的俄罗斯部队作战](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄军士兵用乌军子弹自残逃避战争](/content/gnews/21/README.md)
+### [教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [乌克兰副防长称已重新掌控整个基辅地区](/content/gnews/22/README.md)
+### [俄军士兵用乌军子弹自残逃避战争](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [乌克兰海港城市敖德萨遭俄军空袭](/content/gnews/23/README.md)
+### [乌克兰副防长称已重新掌控整个基辅地区](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [真相和真情 推动钢琴家公开支持新中国联邦](/content/gnews/24/README.md)
+### [乌克兰海港城市敖德萨遭俄军空袭](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [FDA将讨论推动更多的加强针](/content/gnews/25/README.md)
+### [真相和真情 推动钢琴家公开支持新中国联邦](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [FDA将讨论推动更多的加强针](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|历史上的今天：马来西亚前首相纳吉贪污罪案](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [【秘翻在线】又被蓝金黄了？英政府允许中资企业收购英国最大的芯片制造商](/content/gnews/27/README.md)
+### [【秘翻在线】又被蓝金黄了？英政府允许中资企业收购英国最大的芯片制造商](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [中共部署 “红旗” 导弹 威胁北约空中力量](/content/gnews/28/README.md)
- ` NFSC News`
 
 ### [麦克萨科技：卫星图像显示乌克兰万人坑](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`

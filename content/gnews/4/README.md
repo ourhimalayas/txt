@@ -2,10 +2,16 @@
 ---
 
 
-## 4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2288259/)
+## 五月花简报（04/04/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2288283/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—-冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/F18A06BE-E6F1-49A3-9C6F-56040C3B92BC.jpeg)
+
+*发布：思澈*
+
+
 
  
 

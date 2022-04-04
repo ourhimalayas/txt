@@ -2,22 +2,20 @@
 ---
 
 
-## 乌克兰副防长称已重新掌控整个基辅地区
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287989/)
+## 教皇含蓄地批评普京对乌克兰的入侵
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287991/)
 
-作者：纽约香草山教育部 Naughty(文行)/纽约磐石农场—在远方
+作者：银河系农场-骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月2日外媒报道，乌克兰国防部副部长马里亚尔表示，乌克兰已经重新夺回了整个基辅地区，包括首都附近的几个城镇。
+4月2日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，说这是一个大国正在为民族主义利益煽动战争冲突。
 
-马里亚尔在脸书发文称，继入侵的俄罗斯部队从首都基辅附近若干主要城镇撤退后，乌克兰已重新掌控包括伊尔平、 布查、戈斯托梅利在内的整个基辅地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-2.jpg)
-另外，乌克兰总统泽连斯基当天发表声明，谴责俄军在撤退时留下许多地雷，甚至在遗弃的装备和遗体上竟然还设置了诡雷。乌克兰国家紧急服务部门提醒基辅周边居民，必须要对地雷保持高度警觉。在基辅西部一处村庄里，仅1天内就发现多达1500枚爆炸物。
+普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前，方济各曾为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-4.jpg)
+郭文贵先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，还在暗中批评普京，说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力地出现了，毫无疑问普京是无理的侵略，并强烈谴责了其战争暴行。
 
-泽连斯基表示，目前乌克兰方面正在努力排雷以确保地区安全，并建议外逃的难民暂缓返家，因为目前尚未能恢复正常生活。
+方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
 
-参考链接：
-1. [Ukraine has regained control over the ‘whole Kyiv region’ following the Russian assault, the deputy defense minister says](https://www.businessinsider.com/ukraine-has-regained-control-over-the-whole-kyiv-region-officials-2022-4)
-2. [俄軍撤離還四處埋地雷 澤倫斯基痛批：遺體竟被設置詭雷](https://news.ltn.com.tw/news/world/breakingnews/3880986)
+参考链接：[Pope implicitly criticises Putin on invasion, considers Kyiv trip](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

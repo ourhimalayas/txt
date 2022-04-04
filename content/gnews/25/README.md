@@ -2,28 +2,25 @@
 ---
 
 
-## FDA将讨论推动更多的加强针
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287967/)
+## 乌克兰海港城市敖德萨遭俄军空袭
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287988/)
 
-#### 选材/编译 ：Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16490947651.png)Gettr/NBCnews
-据4月4日路透社报道，病毒专家星期一说，美国FDA的专家顾问将讨论推动额外的冠状病毒疫苗加强针的时间。独立顾问们还将在4月6日讨论FDA在未来新冠疫苗研发中的作用，以帮助对抗新的病毒变种。
+作者：纽约香草山教育部 Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+4月3日国外媒体报道，当天一早，俄罗斯军队空袭了乌克兰的战略性黑海港口城市敖德萨。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-1.jpg)
+敖德萨市议会电报账号的消息称，敖德萨遭到空中袭击，一些导弹被防空部队击落。另有一些媒体报道，该市早上6:00左右发生爆炸，爆炸产生了至少三列黑烟，在一个工业区可以看见明显的火焰。据遇袭地点附近的一名士兵说，这可能是一枚火箭或导弹。
 
-FDA在简报文件中说，这可能类似于以往选择季节性流感疫苗的过程，即监管机构选择一种可用的年度疫苗。
+据悉，敖德萨拥有乌克兰最大的港口和海军总部，具有重要的战略地位。
 
-田纳西州的范德比尔特（Vanderbilt）大学医学中心的传染病专家，威廉·沙夫纳（William Schaffner）博士说：“这隐含着一个概念，即我们今后将需要更多的加强针”。
+参考链接：[Air strikes hit Ukraine’s strategic port city of Odessa](https://www.thejournal.ie/latest-ukraine-air-strikes-odesa-5728756-Apr2022/)
 
-3月底，美国卫生官员批准为50岁及以上的人群接种第二剂莫德纳和和辉瑞的加强针。理由是数据显示人们免疫力下降以及奥米克隆变种带来的风险。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-根据联邦数据，大约45%完全接种疫苗的美国人，接受了加强针。沙夫纳说，“许多人最担心的是，持续推动加强针的耐受性”。
-
-FDA周一表示，与早期的病毒株不同，新的变种通常更具传染性。FDA的简报文件中说：“数据表明，疫苗的成分可能需要在某个时候更新，以确保在早期疫苗临床试验中表现出高效力”。
-
-*责编：白夜*
-
-[原文链接](https://www.reuters.com/world/us/us-fda-advisers-discuss-additional-covid-vaccine-boosters-2022-04-04/)
-
-
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

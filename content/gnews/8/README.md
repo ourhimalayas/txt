@@ -2,58 +2,54 @@
 ---
 
 
-## 欧洲国家主要港口已拒绝给俄籍油轮提供加油补给
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2288202/)
+## 续篇二：关于《自由和独裁不共戴天》一文的感想
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2288214/)
 
-**编译和评论：16626，沉默老歌，88JJ**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/725E53C8-6341-4813-900D-A1C7F95A650E.png)**屏幕截图：**[**https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article**](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
-**欧洲国家主要港口拒绝给俄罗斯籍油轮加油**
+**编译和评论：16626，沉默老歌，88JJ **
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C71DE859-387D-4C27-AFBF-3ACC053FEC8D.png)屏幕截图：https://gnews.org/zh-hans/2258183/
+** 自由与独裁是完全对立的 ，自由是独裁的天敌 ，自由与独裁不共戴天**
 
-路透4月1日 （[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/) ） 西班牙和马耳他等欧洲国家主要港口已经停止向俄罗斯籍商船（油轮）提供加油补给。
+**《感想》**
 
-**对莫斯科****（原油）****出口的又一次打击**
+Gnews文章“《自由和独裁不共戴天》一文的感想”（见参考文献2），简称《感想》，就一篇题为《自由和独裁不共戴天》的Gnews文章（见参考文献1）发表了感想。《感想》一文指出，俄罗斯独裁者普京下令发动战争的决策的实质就是统治与控制，统治与控制乌克兰、欧洲乃至全世界；俄罗斯在战场上节节失利， 恰恰是独裁的结果。
 
-五位知情人士透露：船用燃料销售商，已停止在包括西班牙和马耳他在内的主要欧洲枢纽国家，为悬挂俄罗斯国旗的船只（油轮）提供（加油）补给服务，这是对莫斯科（原油）出口的又一次打击。
+**《感想，****续篇****》**
 
-**驶往亚洲的俄罗斯油轮**
+本文是《感想》的续篇，简称《感想，续篇》，针对自由与独裁的谈判——俄乌第四轮和谈，再次发表了简单的评论。
 
-多位航运界人士指出，由于地中海主要加油站拒绝给俄罗斯商船（油轮）加油，从波罗的海驶往亚洲的俄罗斯油轮，在补给方面遇到了问题，有可能被困在海上。由于俄罗斯油轮装载易燃物质（原油），进而造成安全隐患。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/DB97480A-4D5A-4987-9747-58A35BC4FD6D.png)屏幕截图：[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
-**多艘俄罗斯油轮被迫绕道而行**
+**2022****年**** 4****月****3****号**** ****，郭先生又爆了大料**
 
-一位知情人士透露：”由于欧洲港口拒绝加油，多艘俄籍油轮被迫绕道而行，前往其他国家加油。
+这一场俄乌战争，实际上，是一场代理人的战争 ，也是正义与邪恶力量之间的较量。较量是在如何进行的呢？在谈判桌下面有哪些较量呢？怎么理解郭先生说的“那么接下来就可能在核武器上会有动作”？这些问题 ，谁能够找到正确的答案呢？谁最有发言权呢？只有郭先生。今天 ，2022年 4月3号 ，郭先生又爆了大料。请战友们一定要看看下面这几篇文章以及视频：
 
-**提前执行西方国家的下一步制裁措施**
+1. 2022年4月3日大直播，[https://gettr.com/streaming/p13c6fub6b6](https://gettr.com/streaming/p13c6fub6b6)
 
-相关人员称，拒绝给俄罗斯油轮加油为”**自愿****（自发的）****制裁**“。拒绝与俄罗斯方面签订（加油补给服务）合同，是提前执行西方国家的下一步制裁措施。
+2. 2022年4月3日大直播速记精萃，[https://gnews.org/zh-hans/2282328/](https://gnews.org/zh-hans/2282328/)
 
-马耳他的一名政府官员表示，该国不允许任何悬挂俄罗斯国旗的船只进入其港口。
+3. 文贵先生大直播重点大纲2022/04/03，[https://gnews.org/zh-hans/2282483/](https://gnews.org/zh-hans/2282483/)
 
-航运业消息人士称，鉴于世界海运贸易的复杂性，目前尚不清楚俄罗斯公司如何在被撤销多项服务的情况下运营。
+4. 4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？…，[https://gnews.org/zh-hans/2282647/](https://gnews.org/zh-hans/2282647/)
 
-另外，自俄罗斯入侵开始后的第二天（2月25日）起，丹麦船用燃料供应商，蒙贾萨Monjasa，表示，它已暂停与悬挂俄罗斯国旗的船只、俄罗斯注册公司以及与俄罗斯有联系的公司发生贸易和供给。
+5. 七哥爆大料，共产党支持俄罗斯红旗导弹系统，[https://gnews.org/zh-hans/2282772/](https://gnews.org/zh-hans/2282772/)
 
-还有，英国在三月早些时候就已经宣布对俄罗斯最大的航运公司Sovcomflot实施制裁。
+现在已经很清楚了 ，中共和俄罗斯 这个邪恶轴心 ，肯定会被铲除的。中共作为邪恶轴心的总后台 ，只是苟延残喘 ，它已成了秋后的蚂蚱 ，蹦得不了几天了。为什么会有如此这般肯定的结论呢？让我们简单地看看中共是怎么建立它的专制独裁政权的？是怎样维护它的独裁统治的，就明白了。
 
-**评论：**
+**从肉体到思想意识的控制与统治****，****堪称史无前例**
 
-**绝大多数人反对俄罗斯入侵乌克兰**
+中共的极权独裁统治在人类历史上堪称史无前例，从一个人的出生到死亡，从肉体到思想意识的控制与统治无时不在，无处不有，堪称天下一绝。
 
-***格鲁吉亚加油船：你是俄罗斯的船吗？***
+**用****形形色色的奇葩证件****，****控制你的人身自由**
 
-***俄罗斯人：是的***
+从每一个生命的孕育到终结，中共需要结婚证，准生证，出生证、独生证、身份证、暂住证、居住证、未婚证、结婚证、健康证、工作证、保险证、医保证、进城务工证，下岗证、失业证、待岗证、上岗证、职务证、资格证、学员证、荣誉证、通行证、残疾证、退休证、老人证、死亡证、火化证……对老百姓实行区域网格式管理，如圈养的动物。数不胜数的监控摄像头就像是大监狱一样监视你的一言一行，一举一动……对于老百姓人身自由的控制史无前例，林林总总，不胜枚举，外加形形色色的奇葩证件，目的只有一个，控制你的人身自由。
 
-***格鲁吉亚人：我们不给俄罗斯的船加油了***
+**思想意识形态的控制****，****心甘情愿地接受奴役和统治**
 
-***俄罗斯人：不要这样，让我们把政治放在一边！我们只是需要一些燃料！***
+而实行思想意识形态的控制是中共对于老百姓实行统治的另一种更重要的方式。儿童从出生进入幼儿园之后便开始接受“爹亲娘亲不如党亲”，“没有共产党就没有新中国”的洗脑教育，假媒体信息，假新闻报道，假教科书，假历史教材，……中共的整个意识形态领域都是假的，其目的就是控制你的思想意识，让你服服贴贴，心甘情愿地接受奴役和统治，并为统治者唱赞歌。这就是郭先生所讲的“以假治国”。
 
-***格鲁吉亚人：俄罗斯的船，去吧，荣耀属于乌克兰，你可以随时使用船桨！***
+中共的极权统治对于中国人的控制与统治，不论是肉体上还是思想上都是空前绝后的。它让普通老百姓不仅没有自由迁徙的权利，更没有表达独立思想和独立意志的权利。
 
-以上是俄罗斯轮船被拒绝加油时的一段对话，它显示了大多数人对俄罗斯入侵乌克兰这场战争的立场与观点。当今国际社会大多数的民主国家是站在正义的一方。联合国大会以141:5的压倒性多数通过了一项决议，要求莫斯科立即停止针对乌克兰的侵略战争，这是当今有普世价值国家的立场。
-
-**唯有中共却首鼠两端投了弃权票**
-
-然而作为安理会常任理事国的中共却首鼠两端投了弃权票，没有是非立场。更有甚者，中共暗中大力支持俄罗斯的侵略战争，其为虎作伥、不仁不义的作为，必遭国际社会的孤立与唾弃。
+由此可见，自由与独裁是完全对立的，自由是独裁的天敌，自由与独裁不共戴天。中共作为邪恶轴心的总后台 ，肯定会被铲除的，剩下的就是如何铲除的问题了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/DFFEB896-CCBD-4A9F-B491-A29CFF0C0601.png)**屏幕截图：**[**https://gnews.org/zh-hans/2258183/**](https://gnews.org/zh-hans/2258183/)
+《自由和独裁不共戴天》这篇文章（参考文献1）给出了几种铲除中共的可能方式。例如 ，高科技武器直接就把中共震慑倒了。还有，经济制裁，经济封锁 ，现代科技脱钩 ，使中共在政治上经济上完全孤立 ，等等。另外 ，西方自由世界现在正在以极大的耐心等待中共内部斗争灭掉习近平 ，直接建立一个有自由民主的新中国。
 
 **声明：**
 
@@ -61,13 +57,23 @@
 
 本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
 
-**参考资料：**
+**参考资料**：
 
-1. ロシア商船への給油拒否、地中海の欧州主要港，[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)
+1. 自由和独裁不共戴天，[https://gnews.org/zh-hans/2258183/](https://gnews.org/zh-hans/2258183/)
 
-1. EXCLUSIVE Ship fuel suppliers stop serving Russian vessels in the Med – sources，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/)
+2. 《自由和独裁不共戴天》一文的感想，[https://gnews.org/zh-hans/2275392/](https://gnews.org/zh-hans/2275392/)
 
-1. Russian oil tankers are now without a destination or hiding their whereabouts，[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+3. 《自由和独裁不共戴天》一文的感想，续篇，[https://gnews.org/zh-hans/2279774/](https://gnews.org/zh-hans/2279774/)
+
+4. 七哥爆大料，共产党支持俄罗斯红旗导弹系统，[https://gnews.org/zh-hans/2282772/](https://gnews.org/zh-hans/2282772/)
+
+5. 2022年4月3日大直播，[https://gettr.com/streaming/p13c6fub6b6](https://gettr.com/streaming/p13c6fub6b6)
+
+6. 2022年4月3日大直播速记精萃，[https://gnews.org/zh-hans/2282328/](https://gnews.org/zh-hans/2282328/)
+
+7. 文贵先生大直播重点大纲2022/04/03，[https://gnews.org/zh-hans/2282483/](https://gnews.org/zh-hans/2282483/)
+
+8. 4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？…，[https://gnews.org/zh-hans/2282647/](https://gnews.org/zh-hans/2282647/)
 
 **编辑：卢卡斯**
 
