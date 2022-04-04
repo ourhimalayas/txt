@@ -2,25 +2,30 @@
 ---
 
 
-## 安卓用户受到威胁：俄罗斯黑客使用新的恶意软件
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2288024/)
+## 扒一扒中共国的“动态清零”政策
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2288004/)
 
-**该恶意软件要求获得18项权限，如访问摄像头和位置。目前尚不清楚它是如何进入智能手机的。**
+**作者：意大利罗马达芬奇农场 Vanessa**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C-1.jpg)reddit.com
+4月3日新浪网报道，长春市疫情防控指挥部宣布即日起长春市启动主城区清零攻坚行动。从4月3日-7日，利用5天时间，实现全社会动态清零。
 
-作者：ctu/原文发布于2022年4月4日15:12(CET)
-翻译：LK
+自去年8月，中共国的防疫政策从零感染的“清零”演变成了“动态清零”，即全国上下提升疫情防范和早发现能力：高效有序的核酸检测、科学精准的流调溯源、分类分级的进行防控管理，目标用小成本、在短时间内控制住疫情。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-3.jpg)图片：黑客们在搞破坏（象征性的图片）/ imago
+从武汉到西安，从深圳到上海再到长春，从强行封城到强制打疫苗，中共一次次用铁腕和没有人性的防疫政策在中华大地上发动了一场“政治瘟疫”。
 
-安卓用户正面临一个新的危险。2022年4月4日，据[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)援引Lab52和Bleeping Computer的报道，俄罗斯黑客显然开发了一种新的所谓恶意软件，主要针对配备谷歌操作系统的智能手机。
+为了实现动态清零，一个楼有一个阳性病例，封闭小区，全员核酸，一个城市有一例阳性，封闭城市，全员每天做核酸，河北省廊坊市已经封闭了24天，核酸做了10多次。人们被困在家里，生病得不到救治，老人无法照顾，在上海3岁的孩子也被强迫和父母分开隔离，经济停摆，工人失业，人们绝望到多地出现自杀事件，如此政策下的次生灾害恐怕要比病毒本身大得多得多，然而中共的所谓“小成本”不过是在指那些领导层的政治成本，不被问责，不被罢免才是他们最小的成本，老百姓的死活在他们眼里怎么会有自己的职位重要？打着上级政策要求的名义，使用无底线无人性的手段只为保住头顶上的乌纱帽。
 
-具体来说，是进行间谍活动–对用户数据进行梳理。据称，所谓的流程管理器可获得18项授权，包括访问位置、摄像头、音频设置、WLAN或短信读取。
+即便如此，中共国可怜的老百姓，被封在家里缺医少药，断了粮草，发个微博被删除被警察找上门威胁，宁愿跳楼也不敢反抗。这实际上是一场“政治清零”，把敢说真话的清零了，把懂医学的清零了，把站起来反抗的清零了，剩下的都是听话的奴隶。
 
-根据该报告，目前尚不清楚该应用程序如何进入智能手机。有可能“通过Play Store中的虚假应用程序进行传播”。也可能是通过电子邮件的经典网络钓鱼攻击，或使用手机访问有问题的网站而安装了恶意软件。[Chip.de](https://www.chip.de/news/Android-Nutzer-muessen-aufpassen-Fiese-Malware-stiehlt-Ihre-Daten_184196648.html)建议谨慎行事，并警告用户仅下载可信任的应用程序。
+中国共产党到了灭亡的时候了，然而，需要的是我们每一个人的勇气，每一个人发出正义的怒吼，每一个人站起来反抗！
 
-原文链接: [https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512](https://www.berliner-zeitung.de/news/android-nutzer-bedroht-russische-hacker-entwickeln-neue-schadsoftware-li.220512)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01-1.jpg)
+新闻来源：
+[https://news.sina.com.cn/o/2022-04-03/doc-imcwipii2187069.shtml](https://news.sina.com.cn/o/2022-04-03/doc-imcwipii2187069.shtml)
+
+
+
+编辑 发布： 意大利罗马达芬奇农场 Roma
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

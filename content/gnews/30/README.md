@@ -2,20 +2,18 @@
 ---
 
 
-## 乌克兰海港城市敖德萨遭俄军空袭
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287988/)
+## 真相和真情 推动钢琴家公开支持新中国联邦
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287987/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者： 香草山农场 – 飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月3日国外媒体报道，当天一早，俄罗斯军队空袭了乌克兰的战略性黑海港口城市敖德萨。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-1.jpg)
-敖德萨市议会电报账号的消息称，敖德萨遭到空中袭击，一些导弹被防空部队击落。另有一些媒体报道，该市早上6:00左右发生爆炸，爆炸产生了至少三列黑烟，在一个工业区可以看见明显的火焰。据遇袭地点附近的一名士兵说，这可能是一枚火箭或导弹。
+在4月1日的新中国联邦乌克兰救援直播连线中，Nicole战友向观众介绍了已经前往利沃夫的战地钢琴家与战友们相处十几天的过程。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00.jpg)
+钢琴家离开梅迪卡之前，曾听文科战友讲述郭文贵先生和新中国联邦的故事，感觉非常不可思议。而与新中国联邦的新中国人愉快相处的日子，推动他从最初的用音乐支持变成对新中国联邦的公开支持。他在自己的钢琴上贴上了新中国联邦的标志，希望能在更接近前线的地方继续传播新中国联邦和法治基金正义、善良、勇敢的信息。
 
-据悉，敖德萨拥有乌克兰最大的港口和海军总部，具有重要的战略地位。
+参考链接：[郭文贵先生和新中国联邦的故事](https://gettr.com/post/p13bc75b3f9)
 
-参考链接：[Air strikes hit Ukraine’s strategic port city of Odessa](https://www.thejournal.ie/latest-ukraine-air-strikes-odesa-5728756-Apr2022/)
-
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-16.jpg)
 
 总编/编辑/审核：飞虹
 校对/发稿：Hetangyuese

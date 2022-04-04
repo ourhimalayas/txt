@@ -2,38 +2,27 @@
 ---
 
 
-## 乌克兰部队继续向基辅附近的俄罗斯部队作战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
+## 中共通过俄罗斯出口欧洲的计划遭遇重创
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287992/)
 
-***评论：**加油，顽强的乌克兰人，正义终将胜利。*
+作者：银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+据外媒4月2日报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
 
-据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
-4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
+尽管欧盟尚未正式禁止通过俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-5.jpg)
+很多大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路上德国内陆港口杜伊斯堡的海运保险公司也宣布，不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周都有来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
 
-英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
+自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
 
-英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
+参考链接：[China’s Bet on Sending Its Exports Through Russia Hits Setback](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
 
-文章观点仅代表作者个人，与Gnews平台无关。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 轰炸机
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编/编辑/审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

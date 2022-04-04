@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（04/04/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2288283/)
+## 4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2288302/)
 
-编辑：波士顿五月花—-冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/F18A06BE-E6F1-49A3-9C6F-56040C3B92BC.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 

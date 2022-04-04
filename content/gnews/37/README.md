@@ -2,33 +2,28 @@
 ---
 
 
-## 中共防疫“清零”政策就是谎言
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2287642/)
+## 俄罗斯军队在乌克兰损失惨重
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287615/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-中共疫情“清零”，其实从来就没有清零过。共产党总是把感染和死亡的数字缩小化。只有你想不到的数量，没有他们隐瞒不了的数字。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-19.jpg)[图片来源](https://www.wkrn.com/community/health/coronavirus/shanghai-starts-chinas-biggest-covid-19-lockdown-in-2-years/)
-在疫情肆虐全球的时刻，独裁的中国共产党一直对十四亿中国人宣称，只有中国“风景独好”，能把疫情控制住，做到疫情“清零”。
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-393.png)图片来源：Gettotext
+据《华盛顿观察家报》4月4日报道，随着乌克兰军队在周末重新控制基辅（Kyiv）地区，乌克兰武装部队周一更新了对俄罗斯士兵阵亡人数的估计，阵亡人数超过了18000人。
 
-其实从来就没有清零过。共产党总是把感染和死亡的数字缩小化。只有你想不到的数量，没有他们隐瞒不了的数字。
+据乌克兰武装部队称，自2月24日俄罗斯开始入侵乌克兰至4月3日，俄罗斯的战斗损失包括约18300名人员、147架飞机、134架直升机、647辆坦克、330门火炮、1844辆装甲运兵车、147套多管火箭炮系统、7艘船、1273辆汽车、76辆油轮、92架无人机和54套防空系统。目前，这些数字还没有得到独立核实。
 
-中国共产党用的是全面隔离的政策，发生的次生灾难更是数不胜数。需要急救的人入不了医院，得不到食物饿死的，各种灾难叠加放大数倍，由于隔离致死的人数远远超过病毒死亡人数。
+乌克兰议员莉希亚·瓦西连科（Lesia Vasylenko）表示：“18300名俄罗斯军人在乌克兰死亡，但我不为他们中的任何一人感到惋惜”。
 
-这就是共产党一贯政策，劳民伤民，多难兴邦！用百姓的生命来掩盖中共的罪恶！
+据报道，乌克兰官员称，乌克兰军队已经夺回了基辅周围的30多个城镇和村庄，随着城镇的解放，数百名死亡的平民以及俄罗斯士兵的尸体被发现散落在街道上。
 
-对外除了编造数据以外，还宣传集中力量办大事。只有共产党才能做到，才能控制住疫情，说没有就立马清零。
+而周六，在首都基辅西北约23英里处的布卡（Bucha），发现数百名平民被埋在一个万人坑中。由于俄罗斯军队在撤退前与乌克兰军队交战，被摧毁的俄罗斯装甲车和坦克也在该镇的街道上随处可见。
 
-可是事实却是，现在全国到处都是阳性。从南到北，都在全面封闭隔离中。他们引以为傲的“清零”怎么没有声音了呢？ 同胞们何时能明白，中共是人类的灾难制造者，我们要一起消灭中共！
+据联合国人权办公室称，截至周日，自俄罗斯入侵以来，乌克兰至少有1417名平民死亡，包括121名儿童。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+*责编：白夜*
+
+**新闻来源**
+
+[Russian death toll in Ukraine surpasses 18,000: Ukrainian armed forces](https://www.washingtonexaminer.com/news/russian-death-toll-in-ukraine-surpasses-18-000-ukrainian-armed-forces)
 
  
 

@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@himalayadcfarm 4/4/2022 6:36 PM (UTC)`
+
+Himalaya Washington DC's livestream <br/>Report from NFSC‘s Ukraine rescue<br/>法国学生在Medyka 波兰 采访精糧和三人行
+![img](https://media.gettr.com/group49/origin/2022/04/04/17/5de7a8fa-07c8-c700-461e-d97ceb05b659/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/4/2022 8:44 PM (UTC)`
 
 2022.04.04  新中国联邦 | 喜健康   探索美蓝治疗冠状病毒感染，解毒疫苗的可能性
@@ -145,13 +154,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 新平台投资重磅消息！！！2022.04.03 农场联盟工作汇报
 ![img](https://media.gettr.com/group11/origin/2022/04/04/03/b4003fe2-ad71-be1c-29eb-a92e452d41e8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 3:06 AM (UTC)`
-
-2022-4-3《鸡血王喜币大作战》 第一百五十四集 嘉宾：齐天二圣、文空
-![img](https://media.gettr.com/group35/origin/2022/04/04/03/c25d3cd9-2a69-a99d-9015-89e09d6e2a87/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

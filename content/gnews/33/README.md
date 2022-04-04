@@ -2,44 +2,32 @@
 ---
 
 
-## 麦克萨科技：卫星图像显示乌克兰万人坑
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287778/)
+## 上万名军队医生进入上海对2600万居民进行检测
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287768/)
 
-翻译: 里奇
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6JISBWIW7ZIMBF5ZLFBZJPG2RU-edited.jpg)图片来源：https://www.reuters.com/
+#### 选择/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16490920521.png)
+路透社视频新闻截屏——中国各地的医疗中作者到达上海
 
-4 月 3 日（路透社）- 一家美国私营公司周日表示，卫星图像显示，在俄罗斯军队从布查镇撤出后，本周在乌克兰一座教堂的地面上挖了一条 45 英尺长的壕沟，在那里发现了一个万人坑。
+4月4日，在路透社的视频新闻（TopVideoNews）中引用了CCTV13 的一段视频。该视频报道，中共已派出军队和医疗工作者进入上海，这是该国最大的公共卫生行动之一。
 
-周六访问布查镇的路透社记者在首都基辅西北 37 公里（23 英里）处看到尸体躺在该镇的街道上。一座教堂的万人坑仍然敞开着，有死者的手脚从堆在坑上面的红土里显露出来。
+据一家军队报纸消息，周日，陆海两军，和联合后勤部队向上海派遣了2000多名医务人员。另外，来自江苏、浙江和北京等地的1万多名医护人员已抵达上海。
 
-乌克兰周日指责俄罗斯军队在该镇进行“大屠杀”，这是俄罗斯在乌克兰东部重新集结战斗时被乌克兰军队夺回的众多城镇之一。俄罗斯否认了这些指控，称这是乌克兰的“挑衅”。
+尽管以全球标准衡量，上海的疫情规模较小，但该市已成为中国消除疫情战略的一个试点。从3月28日开始，检测已扩大到全体居民。
 
+据报道，中共有12400家机构每天能够处理多达9亿人的检测。主要使用组合式检测，即，将20个拭子样本混合在一起，以便进行更快速的处理。
 
-```
-收集和发布乌克兰卫星图像的麦克萨科技公司表示，3 月 10 日，在圣安德鲁大教堂(St. Andrew and Pyervozvannoho All Saints)发现了一个万人坑的挖掘迹象。
-```
+集中隔离场所是由医院、体育馆、公寓楼和包括国际博览中心的其他场所改造而成。其容纳量为15000名患者。
 
+在中共政府执行 “清零” 的战略的要求下，居民抱怨检疫中心拥挤、不卫生，并难以获得食物和基本医疗救助。他们质疑将检测阳性的儿童与父母分离，以及大多数轻微或无症状的感染者不能在家中隔离。
 
-“3 月 31 日的最新报道显示，在教堂附近该地区的西南部分，墓地有一条大约 45 英尺长的沟渠” 麦克萨公司说。
+在中共社交媒体上，筋疲力尽的工人睡在塑料椅上或草地上，他们遭到斥责的照片和视频在网上传播开来。当地传染病专家对现行的检疫和检测规定表示愤怒。
 
-路透社无法立即核实这些图像。目前尚不清楚麦克萨传播的图像是否即是路透社记者周六访问的同一教堂。
+周六，中共派往上海的副总理孙春兰敦促上海 “采取果断、迅速的行动” 遏制疫情。
 
-新闻来源:[Satellite images show long trench at Ukrainian mass grave site, Maxar says](https://www.reuters.com/world/europe/satellite-images-show-45-foot-long-trench-grave-site-bucha-maxar-2022-04-03/)
+责编：白夜
 
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：夜来香
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+[https://www.reuters.com/](https://www.reuters.com/)
 
  
 

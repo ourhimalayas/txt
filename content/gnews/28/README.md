@@ -2,18 +2,22 @@
 ---
 
 
-## 俄军士兵用乌军子弹自残逃避战争
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287990/)
+## 乌克兰副防长称已重新掌控整个基辅地区
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287989/)
 
-作者：纽约磐石农场 – 在远方
+作者：纽约香草山教育部 Naughty(文行)/纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-台媒4月3日报道，近日乌克兰安全局公布了一段某俄军士兵与其母亲通话的内容，通话透露出，他们被乌军围困，打算逃跑又怕被军队高层的督战队枪毙，因此厌战的士兵们纷纷用乌克兰制式的子弹自残，假装遭到乌军攻击，借此被送回俄罗斯治疗。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-3.jpg)
-该士兵在通话中说，他们不仅被乌军围困，而且装备都被炸毁，如果此时乌军攻击他们就会全军覆灭，因此他们纷纷用自残的方法弄伤自己，以期能被送回国内医院。该士兵的母亲闻讯哀求士兵快点回家，并表示要去俄罗斯国防部求救。但士兵说指挥官不可能同意，并透露目前已有20名拒绝服役者被判刑8年以上。
+4月2日外媒报道，乌克兰国防部副部长马里亚尔表示，乌克兰已经重新夺回了整个基辅地区，包括首都附近的几个城镇。
 
-乌克兰安全局表示，仅该士兵的部队就有120名伤兵，以及350名死亡士兵的遗体被运回国内。乌方经审讯俄军战俘得知，俄军高层恢复了过去的“督战队”做法，部队上有所谓的“射击小队”存在，他们会杀死任何打算逃跑的士兵。
+马里亚尔在脸书发文称，继入侵的俄罗斯部队从首都基辅附近若干主要城镇撤退后，乌克兰已重新掌控包括伊尔平、 布查、戈斯托梅利在内的整个基辅地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-2.jpg)
+另外，乌克兰总统泽连斯基当天发表声明，谴责俄军在撤退时留下许多地雷，甚至在遗弃的装备和遗体上竟然还设置了诡雷。乌克兰国家紧急服务部门提醒基辅周边居民，必须要对地雷保持高度警觉。在基辅西部一处村庄里，仅1天内就发现多达1500枚爆炸物。
 
-参考链接：[**不想打仗又怕被射殺！ 俄士兵找「烏克蘭子彈」射自己**](https://news.ltn.com.tw/news/world/breakingnews/3864361)
+泽连斯基表示，目前乌克兰方面正在努力排雷以确保地区安全，并建议外逃的难民暂缓返家，因为目前尚未能恢复正常生活。
+
+参考链接：
+1. [Ukraine has regained control over the ‘whole Kyiv region’ following the Russian assault, the deputy defense minister says](https://www.businessinsider.com/ukraine-has-regained-control-over-the-whole-kyiv-region-officials-2022-4)
+2. [俄軍撤離還四處埋地雷 澤倫斯基痛批：遺體竟被設置詭雷](https://news.ltn.com.tw/news/world/breakingnews/3880986)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
