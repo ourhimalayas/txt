@@ -2,8 +2,8 @@
 ---
 
 
-## 上海很多聪明女战友听七哥话早做准备，
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282650/)
+## 七哥对世界局势的看法，巴基斯坦为什么完蛋（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282723/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

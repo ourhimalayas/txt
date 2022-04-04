@@ -2,19 +2,25 @@
 ---
 
 
-## 七哥对世界局势的看法，巴基斯坦为什么完蛋（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282723/)
+## 加拿大或将面临严重的粮食危机
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282823/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+采编/撰稿：加拿大温哥华杨帆农场 – 重生之鹰
 
-*发布：陶子*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490370161.png)图片来源：CTV News
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+
+据加拿大[后千禧年]4月1日报道，由于供应链中断以及通货膨胀所导致的全球食品和能源短缺，加之疫情和俄乌战争的影响，加拿大未来或将面临更严重的粮食危机。
+
+据[加拿大国家统计局]近期数据显示，该国经济增速远低于预期，不足以扭转2020年疫情所造成的低靡。 目前，加拿大的实际通胀率已超过6%，是最近几十年来的最高值。 该国经济不仅未从疫情的损害中恢复过来，而且丝毫没有改善的迹象。
+
+尽管美国总统拜登此前也称粮食短缺将是无可避免的，并计划与加拿大合作以共同增加两国农作物产量，但特鲁多至今仍未提出任何可能的危机解决方案。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://thepostmillennial.com/difficult-time-food-shortages-trudeau](https://torontosun.com/opinion/editorials/editorial-canadas-economic-growth-dead-last)
 
  
 
