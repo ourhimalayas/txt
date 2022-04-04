@@ -2,36 +2,39 @@
 ---
 
 
-## 马斯克的新光速引擎挑战物理学
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283692/)
+## 俄军袭击乌克兰最大港口城市敖德萨
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284382/)
 
-作者：纽约香草山医疗部 – 云豹
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+整理/编辑：围剿维尼熊
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-4月2日外媒消息，马斯克和美国NASA刚刚发布了新火箭，名为光速引擎。它挑战了物理学，可以将人类在几周而不是几个月内带到火星，大大改变了太空旅行的规则。目前该引擎正在新的宇宙飞船上进行测试。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11.jpg)
-据悉，目前的商用和军用火箭都使用化学燃料，这些燃料必须在地球上预制，耗资巨大，极其复杂，且助推重量受到严重限制。而马斯克的光速引擎使用的燃料为电力。这种引擎被装置在命名为猛禽的革命性火箭上，推力可超过50万镑，因使用甲烷燃料从而降低了30%的二氧化碳排放，清洁环保。进入太空之前，先要在地球进行试验，工作人员称大约明年上半年可进行地球短途上下飞行。
-
-电磁驱动装置是实现光速飞行的核心，它违背了牛顿第三定律，没有相互依存的作用力和反作用力，只有通过磁场加速过热等离子体产生的一个推力。并且因为没有助推剂，将会对太空非常环保。Space X已经成功试验这种装置，马斯克的目标是制造一个轻速发动机，速度可达186000英里每秒，在短短70天内将人们带上火星，太空旅行将成为现实。目前的载人航天宇宙飞船到达火星的时间为0.5年。
-
-参考链接：
-[Elon Musk’s New Light Speed Engine Defies Physics](https://www.sciencenatures.com/2022/04/elon-musks-new-light-speed-engine.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编/审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2BCDBF95-2E75-4782-B69A-ECE7EFD7E0D7.jpg)图片来源：澎湃新闻
 
 
+根据德国之声中文网4月3日报道，乌克兰军队收复基辅周边的北部区域，与此同时，俄军在南部袭击了海港城市敖德萨。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+该市政府在Telegram上发声明称，敖德萨受到导弹袭击，导弹是从空中发射的，部分导弹被截获击毁。
 
+黑海沿岸的敖德萨是乌克兰最大的港口城市，拥有100万人口，是该国外贸航运命脉上的重要关卡。此外，乌克兰海军总部也设在敖德萨。
 
+敖德萨政府发言人布拉丘克（Sergey Bratchuk）对电台表示，该市一处“关键的基础设施”被击中，没有人员伤亡。
+
+英国情报部门在最新的战局更新中认为，黑海中部署的水雷对当地海上活动构成巨大风险。
+
+报告还称，俄罗斯通过封锁海岸，阻止乌克兰从亚速海和黑海获得支援。
+
+据《泰晤士星期日》报道，英国首相约翰逊对其内阁大臣说，他有意向乌克兰提供反舰导弹，以打破俄罗斯在黑海领域保持的绝对优势。
+
+参考链接：[乌克兰收复基辅周边 俄军袭击敖德萨炼油厂](https://www.dw.com/zh/%E4%B9%8C%E5%85%8B%E5%85%B0%E6%94%B6%E5%A4%8D%E5%9F%BA%E8%BE%85%E5%91%A8%E8%BE%B9-%E4%BF%84%E5%86%9B%E8%A2%AD%E5%87%BB%E6%95%96%E5%BE%B7%E8%90%A8%E7%82%BC%E6%B2%B9%E5%8E%82/a-61344659)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

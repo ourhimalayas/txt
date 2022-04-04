@@ -2,40 +2,38 @@
 ---
 
 
-## 华为首席财务官孟晚舟被任命为轮值董事长
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284824/)
+## 新冠疫苗副作用亲历者爆料收集专栏（2022.4.4）——打疫苗后血栓
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284873/)
 
-素材翻译： Jenny Ball
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+整理：gardeniahu
+编辑：Rianna
 
-上海，4 月 1 日（路透社）- 电信巨头华为技术公司已授予在加拿大被拘留近三年后,于 2021 年返回中国的财务主管孟晚舟，新的轮值董事长职位。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-华为创始人任正非的女儿将担任公司最高领导人，并在轮到她时担任华为董事会主席六个月。该公告没有具体说明她的任期何时开始。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-326-edited.png)图片来源：路透社
-
-轮值董事长是徐直军和胡厚崑。据该公司网站称，孟也是副主席，并将继续担任首席财务官。
-
-华为发言人表示：“公司正在优化和完善其内部治理结构，以确保公司经久不衰。” “监事会对公司的生存、发展和长远前景负责。”
-
-孟的英文名字是 Sabrina，在公司与美国的争执中发挥了核心作用，她于 2018 年因涉嫌与华为有关联的公司，试图违反美国制裁向伊朗出售设备而在加拿大被拘留。
-
-随后，美国以国家安全为由，在 2019 年和 2020 年期间对该公司实施了一系列贸易限制。这阻碍了华为设计自己的芯片和从外部供应商采购组件的能力，从而削弱了其智能手机业务。
-
-在与美国检察官达成协议结束银行欺诈案后，孟于2021年 9月获准返回中国。
-
-素材链接:[https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm\_source=Sailthru&utm\_medium=newsletter&utm\_campaign=technology-roundup&utm\_term=Technology%20Roundup%20-%202021%20-%20Master%20List](https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22.png)图片来源：雅典娜设计组（614）
 
 
+我已经更新详细的治愈方法，记得去我的主页。对于血栓虽然我早有准备，积极的治疗还是很必要的。置顶疫苗的sop，详细介绍了，疫苗前后的sop · 我严格遵守，所以发现了血栓，并积极治疗。不是仅仅我打的阿斯利康会血栓，mRNA疫苗也一样，是疫苗刺突蛋白造成的。阿斯利康的血栓有一种很罕见但很危险，叫血小板减少综合症。
+
+精选评论
+
+Girl珞 回复：血小板减少综合症，我一个朋友的朋友孩子打了就这样了，但是他是在国内打的科兴。
+
+Springiscoming  回复：请教大神，打辉瑞后心跳快，两三个月后渐渐好转，以后还会有隐患吗，比如三五年左右心梗几率比不打疫苗高。
+
+参考链接：[https://www.xiaohongshu.com/discovery/item/61bac1ca000000000102a49f?](https://www.xiaohongshu.com/discovery/item/61bac1ca000000000102a49f?)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

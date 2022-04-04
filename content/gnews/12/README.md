@@ -2,46 +2,52 @@
 ---
 
 
-## 欧盟反垄断监管机构针对微软云业务
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284815/)
+## COVID-19疫苗副作用集萃（2022.4.4）&#8211;第三针疫苗后疲惫身体发冷发烫
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284868/)
 
-翻译：Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-325-edited.png)图片来源: reuters.com
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-布鲁塞尔，4 月 1 日（路透社） – 路透社看到的一份调查问卷显示，欧盟反垄断监管机构正在向微软的竞争对手和客户询问其云业务和许可交易，此举可能导致正式调查和重新审查美国软件公司。
+整理/编辑：BENJ1
 
-在过去十年中，因违反欧盟反垄断规则和不遵守其停止反竞争行为的命令, 欧盟委员会对微软处以总计 16 亿欧元（18 亿美元）的罚款。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-5.png)图片来源：雅典娜设计组(614)
 
-在德国软件提供商 “下一云”(NextCloud)、法国的 “OVH云“（ OVHcloud）和另外两家公司对微软的云服务提出投诉后，该公司再次成为欧盟竞争执法者的关注点。
 
-“委员会掌握的信息表明，微软可能会利用其在某些软件市场的潜在主导地位，来阻止与某些云计算服务相关的竞争，”调查问卷称。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-监管机构询问微软与云服务提供商的许可协议条款，是否允许竞争对手有效竞争。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-他们还想知道公司是否需要微软的操作系统和生产力应用程序，来补充他们自己的云基础设施产品，以进行有效竞争。
+帖子原文：
 
-公司还被问及与云服务提供商的许可协议，与他们将微软的云服务与他们自己的云服务打包，并间接转售的另一个计划之间的许可费用和商业条款的差异。
+第三针疫苗的反应
 
-另一个重点是，公司云基础设施上可用的云存储服务的潜在技术限制。
+想知道大家是不是和我一样的反应。
 
-微软在一份电子邮件声明中表示：“我们正在不断评估我们如何才能最好地支持合作伙伴，并使微软软件在所有环境中都可供客户使用，包括其他云提供商的环境。”
+当天晚上，巨困，巨冷，冷到发寒颤。在二十几度的福州，我拿出来了暖水袋。靠着一点点移动暖水袋，才把身体暖起来。浑身疼，像是被人抡了大几十拳后面身子好不容易暖起来了，到下半夜，浑身发烫，但是不发烧，单纯热，烧、浑身发烫，加口干舌燥，像是一只离开水的鱼。
 
-本周早些时候，欧盟反垄断负责人玛格丽特·维斯塔格（ Margrethe Vestager ）表示，她还没有对云计算感到担忧，并引用了来自欧洲“盖亚-X”（ Gaia-X ）倡议的竞争。
+能不能告诉我，我不是一个人这样#疫苗 #新冠疫苗
 
-素材链接：[Microsoft’s cloud business targeted by EU antitrust regulators](https://www.reuters.com/business/microsofts-cloud-business-targeted-by-eu-antitrust-regulators-2022-04-01/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+评论选集：
 
-* * *
+[海鸥的宝贝](https://www.xiaohongshu.com/user/profile/610ca8e2000000002002bc60) 回复：
 
-审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+你们如果是一过性的症状还好，我妈打完两针九个月症状一直在发展，原来是荨麻疹和心脏痛，现在出现全身肌肉痛和头晕。
+
+[海荔奥德莉](https://www.xiaohongshu.com/user/profile/619bb6e000000000210239fc) 回复：
+
+我和你一样，前两针科兴，最后一针康希诺，我真的人傻了……前天打的，昨下午36.3，昨晚36.7……脑袋一直昏昏的，今早上降下来了不知道待会咋样，多喝水多休息姐妹！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4978331930d1009b.png)
+参考链接:
+
+[第三针疫苗后身体疲惫发热发冷](http://xhslink.com/I9FNzg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

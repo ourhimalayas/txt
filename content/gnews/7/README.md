@@ -2,52 +2,48 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.4）&#8211;第三针疫苗后疲惫身体发冷发烫
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2284868/)
+## 朝鲜谴责韩国关于军事能力的言论 警告采取破坏性行动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284885/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译: 里奇
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/屏幕截图-2022-04-04-105449.jpg)图片来源:路透社
 
-整理/编辑：BENJ1
+路透首尔4月3日 – 朝鲜周日谴责韩国国防部长关于其具备能力打击朝鲜的言论，并警告称，如果韩国采取任何诸如先发制人的“危险的军事行动”，朝鲜将摧毁首尔的主要目标。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-5.png)图片来源：雅典娜设计组(614)
+据朝鲜中央通讯社报道，朝鲜领导人金正恩的妹妹金与正在一份声明中表示，韩国国防部长的言论“进一步恶化了朝韩关系和朝鲜半岛的军事紧张局势”。
 
+此前，韩国外长徐旭周五表示，韩国军队拥有多种导弹，射程、精度和威力都显著提高，“能够准确、快速地击中朝鲜的任何目标”。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+徐旭还表示，该部将积极支持军方，以确保其有能力对朝鲜的导弹威胁做出压倒性反应。他称北方为“敌人”。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+朝鲜劳动党中央委员会副部长金与钟也表示，朝鲜将“重新考虑很多事情”，由于这样的言论，韩国“可能面临严重威胁”。
 
-帖子原文：
+朝鲜劳动党中央书记处书记朴正川周日在另一份声明中表示，如果韩国军队采取先发制人等危险的军事行动，朝鲜“将无情地指挥其所有军事力量摧毁首尔的主要目标和南朝鲜军队”
 
-第三针疫苗的反应
+不过朝鲜没有详细说明它认为首尔境内的主要目标。
 
-想知道大家是不是和我一样的反应。
+在朝鲜于 2 月 26 日和3月4日试射了两枚弹道导弹，涉及该国正在开发的新洲际弹道导弹系统，并在上周进行了全面的洲际弹道导弹测试——这是自 2017 年以来的第一次。之后近几周朝鲜半岛的紧张局势急剧升级。
 
-当天晚上，巨困，巨冷，冷到发寒颤。在二十几度的福州，我拿出来了暖水袋。靠着一点点移动暖水袋，才把身体暖起来。浑身疼，像是被人抡了大几十拳后面身子好不容易暖起来了，到下半夜，浑身发烫，但是不发烧，单纯热，烧、浑身发烫，加口干舌燥，像是一只离开水的鱼。
+测试结束后，美国周五对五家被指控支持朝鲜发展大规模杀伤性武器和弹道导弹项目的实体实施制裁。
 
-能不能告诉我，我不是一个人这样#疫苗 #新冠疫苗
+随着韩国的当选总统尹锡烈将于下个月上任，紧张局势可能进一步加剧。尹曾经表示，如果韩国准备好迎接迫在眉睫的攻击，先发制人的打击可能是对抗朝鲜的新型超音导弹的唯一途径。
 
-评论选集：
+尹呼吁加强军事威慑，包括加强与美国的关系，并誓言寻求在韩国、朝鲜和美国之间建立一个永久性的三方对话渠道。
 
-[海鸥的宝贝](https://www.xiaohongshu.com/user/profile/610ca8e2000000002002bc60) 回复：
+新闻来源: 路透社[North Korea condemns South Korea’s remarks on military ability, warns of destructive action](https://www.reuters.com/world/asia-pacific/nkorea-condemns-skoreas-remarks-preemptive-strike-issues-serious-warning-2022-04-02/)
 
-你们如果是一过性的症状还好，我妈打完两针九个月症状一直在发展，原来是荨麻疹和心脏痛，现在出现全身肌肉痛和头晕。
+* * *
 
-[海荔奥德莉](https://www.xiaohongshu.com/user/profile/619bb6e000000000210239fc) 回复：
-
-我和你一样，前两针科兴，最后一针康希诺，我真的人傻了……前天打的，昨下午36.3，昨晚36.7……脑袋一直昏昏的，今早上降下来了不知道待会咋样，多喝水多休息姐妹！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4978331930d1009b.png)
-参考链接:
-
-[第三针疫苗后身体疲惫发热发冷](http://xhslink.com/I9FNzg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
+审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
