@@ -2,30 +2,27 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2282986/)
+## 加拿大计划对俄罗斯进行战争罪调查
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282972/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-image-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-3.png)
+采编：加拿大温哥华扬帆农场 – 青青
+
+撰稿：加拿大温哥华扬帆农场 – 晨熹
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490384731.png)图片来源：Deutsche Welle
 
 
-校对：Stay文苑
+据【CTV新闻】3月31日报道，加拿大政府日前宣称，要针对俄罗斯攻击和杀戮乌克兰平民以及轰炸该国医疗救援设施的战争罪行进行调查。
 
-编辑：Stay文苑
+加拿大国际事务部长对此表示，目前已有六名该国专员前往海牙国际法院，协助调查俄罗斯在入侵乌克兰期间所犯下的战争罪和反人类罪。同时，这位了解国际人道法的部长认为，本次俄军对平民的无差别攻击，与当年斯大林残酷屠杀数百万乌克兰人无异，必须得到全面彻底的调查。
 
-发稿：Stay文苑
+此外，加拿大公共安全部长也表示，平民在任何情况下都不应受到伤害，特别是当他们需要医疗救助和食物支持时。
 
-新闻：[https://gettr.com/post/p13fv7le2dd](https://gettr.com/post/p13fv7le2dd)
-访谈：[https://gettr.com/post/p13fkj0bf5e](https://gettr.com/post/p13fkj0bf5e)
+校对编辑：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-1.jpeg)
+发稿：文莱
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120](https://www.ctvnews.ca/politics/federal-ministers-cite-need-for-international-war-crimes-probe-of-russia-1.5843120)
 
  
 

@@ -2,35 +2,35 @@
 ---
 
 
-## 上海封控期间怪现状之“甩菜云蹦迪”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2283432/)
+## 马斯克的新光速引擎挑战物理学
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283692/)
 
-作者：纽约香草山佛教部—无尽夏
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪03.jpg)
-
-久经封控，上海民众情绪已经相当郁闷。3月29日，一个名叫“TudiMusic现场”的微信视频号的“云蹦迪”直播现场突然遭到狂刷，主播万万没有想到，本来只是圈内人自己搞搞，观看人数不到1万，热度不到470的直播间，骤然涌入大量彻夜难眠的上海网民，观看人数破天荒地飙升至60万（绝大多数是年轻人）。因为那天在浦东封控期间，所以被戏称为“浦东春晚”。于是在4月1日，也就是上海浦西封控时间点到来之前，被戏称为“浦西春晚”的该微信号的同主题直播再次遭到狂刷，最终观看人数创纪录地突破500万。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪01.jpg)
-
-直播中上海人把积压多日的焦虑、愤怒、无奈、苦中作乐、抱团取暖等各种情绪以“过年”“抢菜”等自嘲方式发泄出来。弹幕上满是“新年快乐”、“某某小区前来报到”、“一边抢菜一边看”、“萝卜甩起来”、“五花肉甩起来”、“今晚属于闵行七子”（指闵行疫情最严重的七个区域）、“宛平路600号（精神卫生中心）的室友们，大葱甩起来”等上海特色的防疫用语。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/甩菜云蹦迪04.jpg)
-在大流行中上演的无数悲喜剧中，上海民众集体上演的这次疯狂的“行为艺术”也算独树一帜。它再一次说明，中共不灭，这样的悲喜剧（确切说都是悲剧）将永远在中华大地上演下去，无论你身处边远山村，还是繁华的大上海！
+作者：纽约香草山医疗部 – 云豹
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-编辑：霍比特人
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+4月2日外媒消息，马斯克和美国NASA刚刚发布了新火箭，名为光速引擎。它挑战了物理学，可以将人类在几周而不是几个月内带到火星，大大改变了太空旅行的规则。目前该引擎正在新的宇宙飞船上进行测试。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11.jpg)
+据悉，目前的商用和军用火箭都使用化学燃料，这些燃料必须在地球上预制，耗资巨大，极其复杂，且助推重量受到严重限制。而马斯克的光速引擎使用的燃料为电力。这种引擎被装置在命名为猛禽的革命性火箭上，推力可超过50万镑，因使用甲烷燃料从而降低了30%的二氧化碳排放，清洁环保。进入太空之前，先要在地球进行试验，工作人员称大约明年上半年可进行地球短途上下飞行。
+
+电磁驱动装置是实现光速飞行的核心，它违背了牛顿第三定律，没有相互依存的作用力和反作用力，只有通过磁场加速过热等离子体产生的一个推力。并且因为没有助推剂，将会对太空非常环保。Space X已经成功试验这种装置，马斯克的目标是制造一个轻速发动机，速度可达186000英里每秒，在短短70天内将人们带上火星，太空旅行将成为现实。目前的载人航天宇宙飞船到达火星的时间为0.5年。
+
+参考链接：
+[Elon Musk’s New Light Speed Engine Defies Physics](https://www.sciencenatures.com/2022/04/elon-musks-new-light-speed-engine.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  
