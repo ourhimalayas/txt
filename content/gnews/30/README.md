@@ -2,26 +2,33 @@
 ---
 
 
-## 俄罗斯国防部：杀害平民是乌方捏造
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284630/)
+## 中日财经爆┃东京证交所开启改组后的首日交易
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2284704/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
-上一篇：[乌克兰检察方：基乌附近确认410具平民尸体](https://gnews.org/zh-hans/2284607/)
+撰稿：东京樱花团/peterwong
 
-乌克兰外长克雷巴强烈谴责俄军的行为是“屠杀”。除了要求包括日本在内的七个主要国家(G7)对俄罗斯实施“破坏性的”制裁外，还要求国际刑事法庭(ICC)收集俄罗斯所犯战争罪行的证据。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-320.png)图片来源：雅虎新闻
-与此同时，俄罗斯国防部3日就基乌近郊布查发现多具遗体的问题发表声明，否认军队参与：“在俄军控制期间，没有一个居民成为暴力活动的牺牲品”。俄罗斯国防部还声称俄军的部队在3月30日已经从布查完全撤离，4天后发出的“既没有僵硬也没有尸斑的遗体”照片是乌克兰方 “一如既往迎合西方媒体的演出”。
+4月4日，东京证交所启动了改组后的首日交易，日经225指数较上周末上涨 70.49点，收盘报27,736.47点，4 个工作日内首次上涨。东京证券交易所股价指数（TOPIX）上涨 9.36点，收盘报1953.63点。
 
-俄军3日晚还在乌克兰东北部和南部地区反复发动袭击。据乌克兰媒体等报道，东北部哈尔科夫市内遭到俄军炮击，造成包括儿童在内的死伤41人。南部米科莱乌发生导弹袭击，包括儿童在内的14人被送往医院。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片9-1.jpg)[图片来源](https://www.google.com/search?q=%E4%B8%9C%E4%BA%AC%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E6%89%80&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBuobfrvYe2q8EjM3bX7729GoHpdtg:1649059084127&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;sqi=2&amp;ved=2ahUKEwj78LDn9_n2AhWxl3IEHRJOCGEQ_AUoAnoECAIQBA#imgrc=Goyi4YscYpNQ4M)
 
-参考链接：[キーウ周辺で410人の遺体確認　ウクライナ検察（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5f245b832ae1e4a3a22d8f21ae245f0bcfffd376)
+东京证交所所废除了此前的东证1部、东证2部，以及主要为新兴企业的Mothers等板块，重新改组为Prime（优质），Standard（标准）和Growth（成长型）三大交易板块。
 
-* * *
+本次改组旨在吸引海内外投资。Prime板块瞄准具有国际竞争力、成长有望的企业，上市标准比东证1部更为严格。
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-1.jpeg)
+针对此前的东证1部上市企业，东交所设置了相关迁移机制。即使相关企业不具备Prime板块上市标准，只要提交优化计划书，就可进入Prime 板块。其结果，大多数东证1部企业将原样迁入Prime板块。
+
+全球股市之间的竞争日趋激烈。东交所的总市值与纽约证交所差距扩大，并被中共国上海证交所超越。人们担心，东交所将进一步陷入地位沉降的危机。
+
+东交所全新板块推出后，能否实现从全球吸引投资的改组目标，拉抬日本经济增长，成为今后面临的课题。
+
+消息来源:
+
+1、[东京证交所改组 三大新板块启动交易](https://www3.nhk.or.jp/nhkworld/zh/news/358335/)
+2、[日経平均終値、７０円高の２万７７３６円…４営業日ぶり上昇](https://www.yomiuri.co.jp/economy/20220404-OYT1T50140/)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

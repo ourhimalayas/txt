@@ -2,40 +2,55 @@
 ---
 
 
-## 华为首席财务官孟晚舟被任命为轮值董事长
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284824/)
+## 乌方称在基辅附近发现410具尸体 目击者受到惊吓
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284942/)
 
-素材翻译： Jenny Ball
+翻译：文乐
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
 
-上海，4 月 1 日（路透社）- 电信巨头华为技术公司已授予在加拿大被拘留近三年后,于 2021 年返回中国的财务主管孟晚舟，新的轮值董事长职位。
 
-华为创始人任正非的女儿将担任公司最高领导人，并在轮到她时担任华为董事会主席六个月。该公告没有具体说明她的任期何时开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-326-edited.png)图片来源：路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12-3-edited.jpg)2022 年 4 月 2 日，在乌克兰基辅地区，随着俄罗斯继续入侵乌克兰，在距离基辅 20 公里的高速公路上看到被毁坏的汽车。路透社/米哈伊尔帕林查克
 
-轮值董事长是徐直军和胡厚崑。据该公司网站称，孟也是副主席，并将继续担任首席财务官。
+乌克兰穆哈切沃，4月3日（路透社）——乌克兰在基辅附近的城镇发现了 410 具尸体，这会是对俄罗斯可能犯下战争罪行的调查的一部分，但一些目击者因遭受的折磨而痛苦得无法言语，该国最高检察官周日说。
 
-华为发言人表示：“公司正在优化和完善其内部治理结构，以确保公司经久不衰。” “监事会对公司的生存、发展和长远前景负责。”
+在俄罗斯从基辅周围的一些地区撤军后，首都西北 37 公里（23 英里）的解放小镇布查（Bucha）的市长说，在车臣武装分子控制该地区时，有 300 名居民被俄罗斯军队杀害。
 
-孟的英文名字是 Sabrina，在公司与美国的争执中发挥了核心作用，她于 2018 年因涉嫌与华为有关联的公司，试图违反美国制裁向伊朗出售设备而在加拿大被拘留。
+俄罗斯否认其军队在布查杀害平民的指控。莫斯科表示，没有居民遭受俄罗斯军队的任何暴力，并指责基辅上演了它所说的为西方媒体炮制的挑衅消息。
 
-随后，美国以国家安全为由，在 2019 年和 2020 年期间对该公司实施了一系列贸易限制。这阻碍了华为设计自己的芯片和从外部供应商采购组件的能力，从而削弱了其智能手机业务。
+乌克兰总检察长伊莉娜·韦涅季克托娃（Iryna Venedyktova）说，乌克兰的检察官们周日才首次进入布查（Bucha）、伊尔平（Irpin）和戈斯托梅利（Hostomel） 镇，他们需要更多时间来确定犯罪的程度。
 
-在与美国检察官达成协议结束银行欺诈案后，孟于2021年 9月获准返回中国。
+“我们需要与证人合作”韦涅季克托娃说。
 
-素材链接:[https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm\_source=Sailthru&utm\_medium=newsletter&utm\_campaign=technology-roundup&utm\_term=Technology%20Roundup%20-%202021%20-%20Master%20List](https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+“今天的人们压力很大，以至于他们无法说话。”
+
+她说，到目前为止，已经检查了 140 具尸体，但她将要求卫生部向基辅地区的一家野战医院提供尽可能多的法医专家。
+
+乌克兰总统泽连斯基说：“数百人被杀。平民遭到酷刑和处决。陈尸街头。地雷遍地。甚至死者的尸体也被埋了雷。”
+
+泽连斯基表示，很明显西方将对俄罗斯实施新的制裁，但他说这还不够。
+
+内政部长丹尼斯·莫纳斯蒂尔斯基（Denys Monastyrskiy）表示，很明显有数百名平民被杀，但他不想透露具体人数，因为该地区仍在努力清除地雷。
+
+“许多当地居民失踪。我们无法给出确切数字，但有很多。”他说。
+
+新闻来源：[Ukraine says 410 bodies found near Kyiv, witnesses traumatised](https://www.reuters.com/world/europe/ukraine-says-410-bodies-found-near-kyiv-witnesses-traumatised-2022-04-03/)
 
 * * *
 
-审核：文乐
-校对：阿伯塔
-发布：小东
+素材：peacelv
+审核：BryanW
+校对：五通庙
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
-
-
 
  
 
