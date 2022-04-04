@@ -15,113 +15,113 @@
 
 ---
 
-### [音乐人谈锁链女之歌（二）](/content/gnews/1/README.md)
+### [音乐人谈锁链女之歌（七）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [音乐人谈锁链女之歌（一）](/content/gnews/2/README.md)
+### [澳大利亚与印度历史性签署贸易协定应对中共国威胁](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [国务卿安东尼·布林肯回应俄军是否在布查犯下战争罪和种族灭绝罪](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [音乐人谈锁链女之歌（六）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [澳洲的人性化：残疾人停车许可证、无障碍停车许可证](/content/gnews/3/README.md)
- ` 走进澳洲`
+### [澳大利亚维州及新州的CCP病毒感染住院人数出现攀升](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [民意调查显示：近半数的美国人财务状况比一年前更糟](/content/gnews/4/README.md)
+### [带血的利益](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [拜登承诺在紧急油储释放后降低汽油价格，暗示降低“最多35美分”](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [乌克兰布查市的平民被俄军随意射杀，横尸街头](/content/gnews/5/README.md)
+### [俄乌战争的第38天，乌克兰军队完全控制了基辅](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [涉嫌协助中共间谍活动，澳洲富商郑介甫被驱逐出境](/content/gnews/6/README.md)
- ` 走进澳洲`
-
-### [威廉王创作歌曲的过程（六）](/content/gnews/7/README.md)
- ` 雅典娜GNotes`
-
-### [樱花时政┃乌克兰：俄军从北方地区仓惶逃离](/content/gnews/8/README.md)
+### [俄罗斯实力不济，在部分占领地撤军](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [比利时退伍军人 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！](/content/gnews/9/README.md)
+### [澳洲的人性化：残疾人停车许可证、无障碍停车许可证](/content/gnews/10/README.md)
+ ` 走进澳洲`
+
+### [乌克兰布查市的平民被俄军随意射杀，横尸街头](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共加强驻港海军力量 国际上越来越孤立](/content/gnews/10/README.md)
+### [涉嫌协助中共间谍活动，澳洲富商郑介甫被驱逐出境](/content/gnews/12/README.md)
+ ` 走进澳洲`
+
+### [比利时退伍军人 ：你们代表着好人，只有消灭坏人，世界上的人才会幸福，我们才会赢！](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共加强驻港海军力量 国际上越来越孤立](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;科兴疫苗副作用](/content/gnews/11/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;科兴疫苗副作用](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前高盛银行家的 1MDB 腐败案最后审判](/content/gnews/12/README.md)
+### [前高盛银行家的 1MDB 腐败案最后审判](/content/gnews/16/README.md)
  ` Shuizhuyu`
 
-### [俄军疑似使用闪光弹驱散乌克兰抗议者](/content/gnews/13/README.md)
+### [俄军疑似使用闪光弹驱散乌克兰抗议者](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;科兴疫苗副作用](/content/gnews/14/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;科兴疫苗副作用](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜泽连斯基：俄军在基辅外广埋地雷 欲制造灾难](/content/gnews/15/README.md)
+### [有声｜泽连斯基：俄军在基辅外广埋地雷 欲制造灾难](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【转载】喜马拉雅硬币：流亡亿万富翁、前川普顾问喜爱的 270 亿美元代币](/content/gnews/16/README.md)
+### [【转载】喜马拉雅硬币：流亡亿万富翁、前川普顾问喜爱的 270 亿美元代币](/content/gnews/20/README.md)
  ` 波士顿五月花农场金融部`
 
-### [泽连斯基发言人描述乌克兰收复地区惨状](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大量平民遇害 乌克兰总统指责“大屠杀” 日本首相亦表态谴责](/content/gnews/18/README.md)
+### [大量平民遇害 乌克兰总统指责“大屠杀” 日本首相亦表态谴责](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海幼儿隔离中心条件恶劣](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [摩根大通的戴蒙警告称，俄罗斯风险敞口可能造成 10 亿美元的损失](/content/gnews/20/README.md)
+### [摩根大通的戴蒙警告称，俄罗斯风险敞口可能造成 10 亿美元的损失](/content/gnews/22/README.md)
  ` Shuizhuyu`
 
-### [塞总统武契奇连任 与中共互称”铁杆“ 不制裁俄罗斯](/content/gnews/21/README.md)
+### [塞总统武契奇连任 与中共互称”铁杆“ 不制裁俄罗斯](/content/gnews/23/README.md)
  ` 波士顿五月花农场金融部`
 
-### [COVID-19疫苗副作用集萃（2022.4.4）&#8211;疫苗副作用综合征](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [自残式经济内循环](/content/gnews/23/README.md)
+### [自残式经济内循环](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [备受争议的香港领导人不愿连任](/content/gnews/24/README.md)
+### [备受争议的香港领导人不愿连任](/content/gnews/25/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [COVID-19疫苗副作用集萃（2022.04.04A）——接种疫苗患上甲亢](/content/gnews/25/README.md)
+### [COVID-19疫苗副作用集萃（2022.04.04A）——接种疫苗患上甲亢](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [财经｜调查：全球近一半投资者去年首次入市持有加密货币](/content/gnews/26/README.md)
+### [财经｜调查：全球近一半投资者去年首次入市持有加密货币](/content/gnews/27/README.md)
  ` 關注組`
 
-### [俄罗斯军队对乌克兰实施了“有计划的种族灭绝”大屠杀](/content/gnews/27/README.md)
+### [俄罗斯军队对乌克兰实施了“有计划的种族灭绝”大屠杀](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：乌克兰大量清理平民尸体，俄罗斯空袭敖德萨](/content/gnews/28/README.md)
+### [秘翻在线：乌克兰大量清理平民尸体，俄罗斯空袭敖德萨](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：新中国联邦救援工作做得比专业组织还要棒](/content/gnews/29/README.md)
+### [大直播后记：新中国联邦救援工作做得比专业组织还要棒](/content/gnews/30/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线：美国考虑对俄罗斯屠杀乌克兰平民追加制裁](/content/gnews/30/README.md)
+### [秘翻在线：美国考虑对俄罗斯屠杀乌克兰平民追加制裁](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大直播后记：马斯克要搞社交媒体你就容不了？社交媒体将迎来巨变](/content/gnews/31/README.md)
+### [大直播后记：马斯克要搞社交媒体你就容不了？社交媒体将迎来巨变](/content/gnews/32/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线：张文宏终于成了江习斗争的牺牲品](/content/gnews/32/README.md)
+### [秘翻在线：张文宏终于成了江习斗争的牺牲品](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜中共国房地产惨淡 百强房企第一季业绩近腰斩](/content/gnews/33/README.md)
+### [有声｜中共国房地产惨淡 百强房企第一季业绩近腰斩](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜苏州现全球首例全新变异株 大连亦现不明毒株](/content/gnews/34/README.md)
+### [有声｜苏州现全球首例全新变异株 大连亦现不明毒株](/content/gnews/35/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻新闻｜中共已秘密正式参战俄乌战争](/content/gnews/35/README.md)
+### [秘翻新闻｜中共已秘密正式参战俄乌战争](/content/gnews/36/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [布查惨剧，欧盟追加制裁 禁止能源运输的呼声](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [中日财经爆┃东京证交所开启改组后的首日交易](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

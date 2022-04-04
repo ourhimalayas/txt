@@ -2,53 +2,40 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.4）&#8211;疫苗副作用综合征
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2285170/)
+## 摩根大通的戴蒙警告称，俄罗斯风险敞口可能造成 10 亿美元的损失
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2285235/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-整理/编辑：gardeniahu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-6.png)图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0148.jpg)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-帖子原文：
+资料来源：路透社
 
-**疫情|新冠疫苗副作用  疫苗副作用综合征**
+摩根大通(JPM.N)总裁杰米戴蒙周一警告称，该行在俄罗斯的风险敞口可能会损失约10亿美元，这是该行首次详细说明乌克兰冲突可能造成的损失程度。
 
-打完第一针康希诺身体感到不适…
+这家美国资产规模最大的银行的董事长兼首席执行官在他备受关注的年度致股东信中，还敦促美国增加其在欧洲的军事存在，并再次呼吁其制定一项确保自身能源安全的计划，以及它的盟友。
 
-昨天刚打的第一针，今早不到七点半手臂疼醒，手心脚心都很烫，浑身发热，脑壳也有疼，眼睛看手机胀胀的。
+戴蒙没有提供摩根大通潜在损失数字或时间框架的细节，但表示该银行担心俄罗斯入侵乌克兰对公司和国家的次要影响。
 
-看网上每个人体质不同可能会出现这种反应。
+最近几周，全球银行详细介绍了它们在俄罗斯的风险敞口，但戴蒙是尚未对冲突的更广泛影响发表评论的最引人注目的世界商业领袖。
 
-这要持续多久啊？？好难受现在。
+他写道：“美国必须为乌克兰可能爆发的、后果不可预测的长期战争做好准备。我们应该为最坏的情况做好准备，并抱有最好的希望。”
 
-#康希诺#新冠疫苗
+戴蒙谈到了美国和中国之间的关系，并表示美国应该改造其供应链，将其范围限制在美国境内的供应商或只包括“完全友好的盟友”。他敦促美国重新加入跨太平洋伙伴关系协定（TPP），这是世界上最大的跨国贸易协定之一。
 
-发布于03．26
+戴蒙在评论宏观经济环境时表示，美联储加息的次数“可能大大高于市场预期”。他还详细介绍了该银行不断增加的开支，部分原因是技术投资和购置成本。
 
-精选评论
+这封信是戴蒙作为 CEO 的第 17 封信。虽然戴蒙并不是唯一一位写过此类信件的美国顶级银行的首席执行官，但由于他们对他的政治和经济理念的看法，他已成为华尔街精英和政策制定者的必读书籍。
 
-我是你姐姐   回复：昨天烧了一天，到晚上好的。
+戴蒙说，今年对技术的投资将增加 20 亿美元的开支。
 
-闹哪样   回复：我打了这个直接进医院了，各种不良反应。
+🔗[https://www.reuters.com/business/finance/jpmorgans-dimon-warns-potential-1-bln-loss-russia-exposure-2022-04-04/](https://www.reuters.com/business/finance/jpmorgans-dimon-warns-potential-1-bln-loss-russia-exposure-2022-04-04/)
 
-Mst   回复：有没有没打第三针的，奉劝各位不要再打了，副作用太大，一个不合适就能要命。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7UG1TTG60O6OY@354OK.png)图片来源：小红书
-参考链接：[疫苗副作用综合征](https://www.xiaohongshu.com/discovery/item/623e5630000000000102fca5?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649049667)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+责任编辑、发布： Shuizhuyu
 
  
 
