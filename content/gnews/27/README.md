@@ -2,55 +2,24 @@
 ---
 
 
-## 乌方称在基辅附近发现410具尸体 目击者受到惊吓
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284942/)
+## 秘翻在线：美国考虑对俄罗斯屠杀乌克兰平民追加制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2284949/)
 
-翻译：文乐
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-55.jpg)图片来源：本文链接
+据悉，就俄罗斯军队在基辅附近大量屠杀平民一事，美国正在考虑对俄罗斯进行追加制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+《华盛顿邮报》(WP)当地时间3日报道称，乌克兰出现了俄军屠杀平民的证据，美国正在讨论加强对俄制裁的方案。制裁方案包括对部分与俄罗斯持续贸易的国家进行第二次制裁和对包括能源在内的矿物、运输、金融等领域进行制裁等。
 
+此前，美国国务卿托尼·布林肯曾出演CNN节目，就基辅附近发现410具疑似集体埋葬的平民尸体一事表示“非常愤慨”，“将把机关和机构的所有信息汇集在一起，准确确认乌克兰到底发生了什么事”。
 
+对于追加制裁，他表示：“我们每天都在强化现有的制裁，追加新的制裁”，“虽然我们正在与同盟持续讨论最有效的制裁强化方案，但同时也要注意确保欧洲需要的能源”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-3-edited.jpg)2022 年 4 月 2 日，在乌克兰基辅地区，随着俄罗斯继续入侵乌克兰，在距离基辅 20 公里的高速公路上看到被毁坏的汽车。路透社/米哈伊尔帕林查克
+国际社会对此次俄罗斯所犯下的罪行，都表示了不同程度的愤怒。不过这些尸体到底是否是俄军所为，还有待更多的证据来证明。
 
-乌克兰穆哈切沃，4月3日（路透社）——乌克兰在基辅附近的城镇发现了 410 具尸体，这会是对俄罗斯可能犯下战争罪行的调查的一部分，但一些目击者因遭受的折磨而痛苦得无法言语，该国最高检察官周日说。
+信息来源：[https://biz.chosun.com/international/international\_general/2022/04/04/MXLBVV66PBHUTHX46ABILEHXBI/?utm\_source=naver&utm\_medium=original&utm\_campaign=biz](https://biz.chosun.com/international/international_general/2022/04/04/MXLBVV66PBHUTHX46ABILEHXBI/?utm_source=naver&amp;utm_medium=original&amp;utm_campaign=biz)
 
-在俄罗斯从基辅周围的一些地区撤军后，首都西北 37 公里（23 英里）的解放小镇布查（Bucha）的市长说，在车臣武装分子控制该地区时，有 300 名居民被俄罗斯军队杀害。
-
-俄罗斯否认其军队在布查杀害平民的指控。莫斯科表示，没有居民遭受俄罗斯军队的任何暴力，并指责基辅上演了它所说的为西方媒体炮制的挑衅消息。
-
-乌克兰总检察长伊莉娜·韦涅季克托娃（Iryna Venedyktova）说，乌克兰的检察官们周日才首次进入布查（Bucha）、伊尔平（Irpin）和戈斯托梅利（Hostomel） 镇，他们需要更多时间来确定犯罪的程度。
-
-“我们需要与证人合作”韦涅季克托娃说。
-
-“今天的人们压力很大，以至于他们无法说话。”
-
-她说，到目前为止，已经检查了 140 具尸体，但她将要求卫生部向基辅地区的一家野战医院提供尽可能多的法医专家。
-
-乌克兰总统泽连斯基说：“数百人被杀。平民遭到酷刑和处决。陈尸街头。地雷遍地。甚至死者的尸体也被埋了雷。”
-
-泽连斯基表示，很明显西方将对俄罗斯实施新的制裁，但他说这还不够。
-
-内政部长丹尼斯·莫纳斯蒂尔斯基（Denys Monastyrskiy）表示，很明显有数百名平民被杀，但他不想透露具体人数，因为该地区仍在努力清除地雷。
-
-“许多当地居民失踪。我们无法给出确切数字，但有很多。”他说。
-
-新闻来源：[Ukraine says 410 bodies found near Kyiv, witnesses traumatised](https://www.reuters.com/world/europe/ukraine-says-410-bodies-found-near-kyiv-witnesses-traumatised-2022-04-03/)
-
-* * *
-
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+责编：Eric Kim
 
  
 

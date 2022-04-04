@@ -2,18 +2,12 @@
 ---
 
 
-## 威廉王创作歌曲的过程（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2285358/)
+## 俄军疑似使用闪光弹驱散乌克兰抗议者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2285406/)
 
-#### PPT制作：WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11：15-11：20-005.jpeg)
-*发布：陶子*
+04/02/2022 在乌克兰南部的扎波罗什地区安赫德镇的一个广场上，当地政府称，当居民聚集在镇中心举行亲乌集会并高唱乌克兰国歌后，俄军疑似动用了闪光弹驱散抗议者。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
