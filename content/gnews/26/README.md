@@ -2,40 +2,24 @@
 ---
 
 
-## 华为首席财务官孟晚舟被任命为轮值董事长
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284824/)
+## 秘翻在线：美国考虑对俄罗斯屠杀乌克兰平民追加制裁
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2284949/)
 
-素材翻译： Jenny Ball
+撰稿：小号手
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-55.jpg)图片来源：本文链接
+据悉，就俄罗斯军队在基辅附近大量屠杀平民一事，美国正在考虑对俄罗斯进行追加制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+《华盛顿邮报》(WP)当地时间3日报道称，乌克兰出现了俄军屠杀平民的证据，美国正在讨论加强对俄制裁的方案。制裁方案包括对部分与俄罗斯持续贸易的国家进行第二次制裁和对包括能源在内的矿物、运输、金融等领域进行制裁等。
 
-上海，4 月 1 日（路透社）- 电信巨头华为技术公司已授予在加拿大被拘留近三年后,于 2021 年返回中国的财务主管孟晚舟，新的轮值董事长职位。
+此前，美国国务卿托尼·布林肯曾出演CNN节目，就基辅附近发现410具疑似集体埋葬的平民尸体一事表示“非常愤慨”，“将把机关和机构的所有信息汇集在一起，准确确认乌克兰到底发生了什么事”。
 
-华为创始人任正非的女儿将担任公司最高领导人，并在轮到她时担任华为董事会主席六个月。该公告没有具体说明她的任期何时开始。
+对于追加制裁，他表示：“我们每天都在强化现有的制裁，追加新的制裁”，“虽然我们正在与同盟持续讨论最有效的制裁强化方案，但同时也要注意确保欧洲需要的能源”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-326-edited.png)图片来源：路透社
+国际社会对此次俄罗斯所犯下的罪行，都表示了不同程度的愤怒。不过这些尸体到底是否是俄军所为，还有待更多的证据来证明。
 
-轮值董事长是徐直军和胡厚崑。据该公司网站称，孟也是副主席，并将继续担任首席财务官。
+信息来源：[https://biz.chosun.com/international/international\_general/2022/04/04/MXLBVV66PBHUTHX46ABILEHXBI/?utm\_source=naver&utm\_medium=original&utm\_campaign=biz](https://biz.chosun.com/international/international_general/2022/04/04/MXLBVV66PBHUTHX46ABILEHXBI/?utm_source=naver&amp;utm_medium=original&amp;utm_campaign=biz)
 
-华为发言人表示：“公司正在优化和完善其内部治理结构，以确保公司经久不衰。” “监事会对公司的生存、发展和长远前景负责。”
-
-孟的英文名字是 Sabrina，在公司与美国的争执中发挥了核心作用，她于 2018 年因涉嫌与华为有关联的公司，试图违反美国制裁向伊朗出售设备而在加拿大被拘留。
-
-随后，美国以国家安全为由，在 2019 年和 2020 年期间对该公司实施了一系列贸易限制。这阻碍了华为设计自己的芯片和从外部供应商采购组件的能力，从而削弱了其智能手机业务。
-
-在与美国检察官达成协议结束银行欺诈案后，孟于2021年 9月获准返回中国。
-
-素材链接:[https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm\_source=Sailthru&utm\_medium=newsletter&utm\_campaign=technology-roundup&utm\_term=Technology%20Roundup%20-%202021%20-%20Master%20List](https://www.reuters.com/business/media-telecom/huawei-cfo-meng-wanzhou-named-deputy-chairwoman-2022-04-01/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
-
-
+责编：Eric Kim
 
  
 

@@ -2,55 +2,62 @@
 ---
 
 
-## 乌方称在基辅附近发现410具尸体 目击者受到惊吓
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2284942/)
+## COVID-19疫苗副作用集萃（2022.04.04A）——接种疫苗患上甲亢
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2285059/)
 
-翻译：文乐
+整理/编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-6.png)图片来源：雅典娜设计组
 
 
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-3-edited.jpg)2022 年 4 月 2 日，在乌克兰基辅地区，随着俄罗斯继续入侵乌克兰，在距离基辅 20 公里的高速公路上看到被毁坏的汽车。路透社/米哈伊尔帕林查克
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-乌克兰穆哈切沃，4月3日（路透社）——乌克兰在基辅附近的城镇发现了 410 具尸体，这会是对俄罗斯可能犯下战争罪行的调查的一部分，但一些目击者因遭受的折磨而痛苦得无法言语，该国最高检察官周日说。
+**博主泥家兔小姐：****是病不是命，27岁得甲亢**
 
-在俄罗斯从基辅周围的一些地区撤军后，首都西北 37 公里（23 英里）的解放小镇布查（Bucha）的市长说，在车臣武装分子控制该地区时，有 300 名居民被俄罗斯军队杀害。
+新冠疫苗两针后，都觉得心跳很快，平常基本90-110之间，怕心跳过快会猝死，也不敢跑步了。后来想想还是应该体检一下，结果（查）出来是甲亢。
 
-俄罗斯否认其军队在布查杀害平民的指控。莫斯科表示，没有居民遭受俄罗斯军队的任何暴力，并指责基辅上演了它所说的为西方媒体炮制的挑衅消息。
+医生让我吃半个月的药后再去复查，他说一个疗程是2年，真叫人惆怅。
 
-乌克兰总检察长伊莉娜·韦涅季克托娃（Iryna Venedyktova）说，乌克兰的检察官们周日才首次进入布查（Bucha）、伊尔平（Irpin）和戈斯托梅利（Hostomel） 镇，他们需要更多时间来确定犯罪的程度。
+**笔记评论****：**
 
-“我们需要与证人合作”韦涅季克托娃说。
+[**CL****凤**](https://www.xiaohongshu.com/user/profile/5c768365000000001001b380)**：**我也是打了疫苗后，一个多月暴瘦，体检甲亢。
 
-“今天的人们压力很大，以至于他们无法说话。”
+博主回复：药吃起来吧……
 
-她说，到目前为止，已经检查了 140 具尸体，但她将要求卫生部向基辅地区的一家野战医院提供尽可能多的法医专家。
+**冰美式少女****：**我也是疫苗之后的甲亢，也不敢说疫苗不好。
 
-乌克兰总统泽连斯基说：“数百人被杀。平民遭到酷刑和处决。陈尸街头。地雷遍地。甚至死者的尸体也被埋了雷。”
+**独语****：**天啊！我也是，5月份刚体检，没见有问题，打完疫苗后几个月就甲亢了。
 
-泽连斯基表示，很明显西方将对俄罗斯实施新的制裁，但他说这还不够。
+[**躺够三天三夜**](https://www.xiaohongshu.com/user/profile/5c6435480000000011015492)**：**打了那个喵，不到一个月，浑身累、心跳超级快，手抖出汗，坚持了两周，到医院查出是甲亢。
 
-内政部长丹尼斯·莫纳斯蒂尔斯基（Denys Monastyrskiy）表示，很明显有数百名平民被杀，但他不想透露具体人数，因为该地区仍在努力清除地雷。
+**博主回复：**好多人这样啊……
 
-“许多当地居民失踪。我们无法给出确切数字，但有很多。”他说。
+[**躺够三天三夜**](https://www.xiaohongshu.com/user/profile/5c6435480000000011015492)**：**四月刚体检过。
 
-新闻来源：[Ukraine says 410 bodies found near Kyiv, witnesses traumatised](https://www.reuters.com/world/europe/ukraine-says-410-bodies-found-near-kyiv-witnesses-traumatised-2022-04-03/)
+[**黄黄**](https://www.xiaohongshu.com/user/profile/60fc4dca000000000100ba2d)**：**我也是打了新冠疫苗之后，然后心慌，就查出甲亢。
 
-* * *
+**博主回复：**好好吃药吧，我已经好了。
 
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
+[**微微辣的那种感觉**](https://www.xiaohongshu.com/user/profile/5d940acc0000000001000bb1)**：**16岁得甲亢的路过。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+博主回复：现在好了吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-2.jpeg)
+[**微微辣的那种感觉**](https://www.xiaohongshu.com/user/profile/5d940acc0000000001000bb1)**：**甲减，终身吃药。
+
+抱抱，我昨天住院还在感慨自己三十岁就得甲亢，车房没有还得病，今天就想开了。死不了就好好治
+
+微微辣的那种感觉：甲减，终身吃药。
+
+参考链接：[是病不是命，27岁得甲亢](https://www.xiaohongshu.com/discovery/item/613f43870000000001024691?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648987090)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
