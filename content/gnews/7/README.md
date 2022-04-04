@@ -2,8 +2,8 @@
 ---
 
 
-## 乌克兰救援营地设施和管理越来越完善
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282610/)
+## 法治基金捐款者是我们新中国联邦的基础，我们永远不能忘记
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282661/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

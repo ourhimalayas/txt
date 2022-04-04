@@ -2,8 +2,8 @@
 ---
 
 
-## 国内很多染病就是疫苗反应
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282587/)
+## 上海很多聪明女战友听七哥话早做准备，
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282650/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI

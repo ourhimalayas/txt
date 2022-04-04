@@ -2,8 +2,8 @@
 ---
 
 
-## 时刻关注救援前线，救援前线战友就是黑暗中的一盏灯
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282620/)
+## 爆料革命青蒿素是解药救了很多香港打疫苗的大佬
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282713/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
