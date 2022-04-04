@@ -2,29 +2,10 @@
 ---
 
 
-## 加拿大国际留学生市场逐渐复苏
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282579/)
+## 4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？中共将在巴尔干地区、中东和中东周边小国部署红旗导系统，这是中共唯一使用北斗导航系统的导弹系统
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2282647/)
 
-采编/撰稿: 加拿大温哥华杨帆农场 – 活力人生
-
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-302.png)图片来源：Wikipedia
-
-
-
-
-据媒体【教育信息】3月29日报道，2021 年前往加拿大留学的国际学生人数显著回升，相比 2020 年增长 17%，几乎与新冠病毒疫情之前的 2019 年持平。
-
-[加拿大移民部]最新数据显示，中共国目前仍然是加拿大第二大留学生来源国，但其人数相比去年减少了 10%，这也是自 2019 年以来该国留学生人数连续第三年显著下降。
-
-据悉，不仅在加拿大，世界其他主要留学目的地国家的中共国留学生人数也在下降。例如，去年赴英国的中共国留学生人数减少了 5%，而去美国的人数则下降了 15%。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：[https://monitor.icef.com/2022/03/international-student-numbers-in-canada-rebounded-close-to-pre-pandemic-levels-in-2021/](https://monitor.icef.com/2022/03/international-student-numbers-in-canada-rebounded-close-to-pre-pandemic-levels-in-2021/)
+秘密翻译组-北美组
 
  
 

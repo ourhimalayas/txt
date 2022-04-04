@@ -2,10 +2,19 @@
 ---
 
 
-## 4/3/2022 文贵直播：中共在塞尔维亚部署红旗反导系统会对北约和美国造成何种威胁？中共将在巴尔干地区、中东和中东周边小国部署红旗导系统，这是中共唯一使用北斗导航系统的导弹系统
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2282647/)
+## 七哥爆大料，共产党支持俄罗斯红旗导弹系统
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282772/)
 
-秘密翻译组-北美组
+#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
+视频定位：BENJ1；WEI
+
+*发布：陶子*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

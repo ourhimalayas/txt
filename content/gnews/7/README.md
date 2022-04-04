@@ -2,19 +2,25 @@
 ---
 
 
-## 七哥对世界局势的看法，巴基斯坦为什么完蛋（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282737/)
+## 加拿大议员力推监控中共代理人法案
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2282904/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-*发布：陶子*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490378321.png)图片来源：网络
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+
+据【多伦多星报】4月1日报道，加拿大议员豪萨科斯此前提出了一项建立专门审查机构的法案，以追踪和监控那些代表外国政权非法影响加拿大政府和各界名人的组织或个人。
+
+据悉，该法案将要求所有在加拿大为外国政府牟取利益的组织和个人进行登记。对此，该议员指责[麦泰律师事务所]曾试图帮助华为获得在加拿大5G建设权。并表示：该律师事务所因在加拿大为中共政权服务而必须被注册在案，以备随时审查和追踪。
+
+报道称，近年来中共对加拿大各界的全面渗透和影响日趋严重，并通过其在加拿大的打手，恶意骚扰和恐吓持不同政见者和异议人士。并与加国的政要和官员建立密切利益关系，以培养可能为习近平当局服务的代理人。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html](https://www.thestar.com/news/canada/2022/04/01/canadian-lawmaker-launches-second-try-for-a-foreign-influence-registry.html)
 
  
 

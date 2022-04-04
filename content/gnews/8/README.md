@@ -2,19 +2,108 @@
 ---
 
 
-## 七哥对世界局势的看法，巴基斯坦为什么完蛋（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282723/)
+## 不只美国 随着实验性中共病毒疫苗的推出2021 年全球超额死亡人数飙升
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2282859/)
 
-#### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
-视频定位：BENJ1；WEI
+![](https://assets.gnews.org/wp-content/uploads/2022/04/不只美国-随着实验性中共病毒疫苗的推出2021-年全球超额死亡人数飙升.jpg)
 
-*发布：陶子*
+**据《门户专家网》作者朱利安·康拉德森（Julian Conradson）2022 年 4 月 1 日报道：**
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
+在过去的几个月里出现了一个令人担忧的趋势——人们以前所未有的速度死亡，而这与中共病毒无关。
+
+事实上，这一高峰几乎与实验性 mRNA  中共病毒疫苗的推出完全吻合。
+
+正如网关专家（Gateway Pundit）上个月报道的那样，美国所有年龄组的超额死亡人数都在飙升，尤其是在 25 至 44 岁之间的年轻人中。据CDC的最新数据，这一特定群体的超额死亡人数创纪录地增长了 84%。
+
+毫无意外，这种令人担忧的趋势影响的不仅仅是美国。
+
+世界各国，特别是那些被认为是西方的一部分的一些国家，都在经历着超高的死亡率，其中大部分死亡率惊人。
+
+在 2021 年 7 月 31 日至 10 月 2 日期间，我们在加拿大的北部邻居中，最健康的加拿大人（0-44 岁）的死亡人数激增了 24%。
+
+值得指出的是，加拿大总理贾斯汀·“双面”·特鲁（Justin ‘Two-Face” Trudeau）多在 8 月强制要求为工人接种疫苗，这与超额死亡人数的激增完全吻合。
+
+看一看马克西姆·博伊文（Maxim Boivin）的推特：
+
+
+
+***马克西姆·博伊文@MaximBoivin137***
+
+*2021**年**7**月**31**日至**10**月**2**日期间，加拿大**0**至**44**岁的超额死亡人数上升了**24%**。*
+
+*我想知道是什么导致了**2021**年**8**月**14**日前后的死亡高峰。*
+
+*有谁知道吗？欢迎评论*
+
+*2022**年**1**月**15**日*
+
+
+
+
+
+> Excess deaths in Canada up 24% for ages 0 to 44 between July 31, 2021 and October 2, 2021.
+> 
+> I wonder what could've caused the death spike around August 14, 2021.
+> 
+> Anyone have an idea? Feel free to comment [pic.twitter.com/7IMR1NwPYK](https://t.co/7IMR1NwPYK)
+> — Maxim Boivin ⚜🍁 (@MaximBoivin137) [January 15, 2022](https://twitter.com/MaximBoivin137/status/1482245009856475137?ref_src=twsrc%5Etfw)
+
+
+
+
+
+在整个欧洲都可以看到同样的趋势，绝大多数国家的超额死亡人数激增——除了几个值得注意的例外国家。
+
+如下图所示，冰岛和瑞典等在大流行期间，没有完全实行破坏文明的封锁措施的少数国家，现在的情况明显好于欧洲其他国家。
+
+谁能预料到这样的事情…肯定不是科学。
+
+通过伊莱·大卫（Eli David）博士的推特看看：
+
+
+
+***伊莱大卫博士@DrEliDavid***
+
+*超额死亡是唯一重要的衡量标准。你能找出**2021**年欧洲超额死亡人数最少的国家**🇸🇪**（瑞典）吗？*
+
+*还是同一个国家🇸🇪，既没有实施封锁也没有口罩强制令。*
+
+*2022年1月9日*
+
+
+
+
+
+> Excess death is the only important metric. Can you spot the country 🇸🇪 that had the least excess death in Europe in 2021? 🧐
+> 
+> It is the same country 🇸🇪 that employed neighter lockdowns nor mask mandates. [pic.twitter.com/6MPRg0Yyqh](https://t.co/6MPRg0Yyqh)
+> — Dr. Eli David (@DrEliDavid) [January 9, 2022](https://twitter.com/DrEliDavid/status/1480265875580231687?ref_src=twsrc%5Etfw)
+
+
+
+
+
+根据来自美国的最新数据，到目前为止，千禧一代在超额死亡浪潮中受到的打击最为严重——可能是因为接种疫苗是他们保持就业的唯一途径。
+
+最令人担忧的是，这种“令人不安”的趋势正在持续，即便没有变得更糟。
+
+这场大流行从来不是为了拯救生命。事实可能正相反。
+
+不要听我的，听听比尔·盖茨（Bill Gates）怎么说（4分21秒 开始）：
+
+
+
+*“（影响CO2减为零的）第一个因素是人口。当今世界有 68 亿人。正在奔向大约 90 亿。****现在，如果我们在新疫苗、医疗保健、生殖健康服务方面做得非常好，我们可能会将其降低 10% 或 15%。****但现实是，我们看到的是大约 1.3 的增长。”*
+
+
+
+
+
+
+
+原文链接：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+
+翻译：Nick｜校对：JS709｜编辑&发布：文鸣
 
  
 

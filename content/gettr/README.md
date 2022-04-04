@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 2:10 AM (UTC)`
+
+2022.04.03  新中国联邦 | 喜财经  传统银行与数字银行的对比
+![img](https://media.gettr.com/group32/origin/2022/04/04/02/3a9f90b4-c1ed-91fc-6ff6-f7e21a1d4f87/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/4/2022 1:29 AM (UTC)`
 
 4/3/2022 Miles Guo: Xi Jinping and Putin use their personal relationship to kidnap the people of both countries, and Xi will be the biggest loser in the Russia-Ukraine war; Sharif, with the endorsement of the Chinese Communist Party, will overthrow the sitting president and return to power in Pakistan<br/><br/>4/3/2022 文贵直播：习近平和普京的个人关系绑架两国人民利益，习将是俄乌战争的最大输家；谢里夫得到中共的背书，会将现任总统推下台而重掌巴基斯坦政权<br/>
@@ -149,15 +156,6 @@ MILES GUO's livestream 2022-04-03 NFSC and ROLF Ukraine Humanitarian Rescue Miss
 
 <br/>【Ukraine Rescue】04/01/2022 Fellow Fighter Nicole: Before the pianist left for Lviv, he got to know the story of  Miles Guo and the New Federal State of China (NFSC) through conversations with fellow fighter Wen ke. He was deeply touched by the stories and found them incredible. The days he spent with the new Chinese from the NFSC have changed his opinion on the NFSC. He now openly supports the NFSC. Hopefully, the little pinkies inside the great fire wall that have been brainwashed by the CCP will also be woken by our story and can stand up against the dictatorial tyranny of the CCP.<br/><br/>【乌克兰救援】04/01/2022 战友妮可：钢琴家上更前线的利沃夫之前，听文科讲述了郭文贵先生和新中国联邦的故事后感觉不可思议。与新中国联邦的新中国人愉快相处的日子，从用音乐支持变成对新中国联邦的公开支持。希望墙内被中共洗脑的小粉红了解我们的故事也能醒过来，站起来反抗中共独裁暴政。
 ![img](https://media.gettr.com/group44/getter/2022/04/03/09/87a3c29e-2d11-ef13-c4be-14226b2bcd03/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/2/2022 4:48 PM (UTC)`
-
-🆘🇺🇦🆘乌克兰人道救援直播经典回放：<br/>战友精糧与叶钊颖女士郝海东先生的连线<br/>❤️”新中国联邦义工发自内心的善良来到梅蒂卡真心帮助难民。这与中共是完全本质上的不同！“<br/>❤️”2019年守护香港反送中事件中，我亲眼目睹了香港学生们的文明有序地，完全不同于中共宣传中称香港学生是暴徒！------ 郝海东先生<br/>❤️ "The volunteers of NFSC came to Medyka out of the goodness of their hearts to genuinely help the refugees. This is completely and essentially different from the CCP! " <br/>❤️ "During the  Anti-ELAB Movementevent in Hong Kong 2019, I witnessed the Hong Kong students in a civilized and orderly manner, completely different from the Chinese Communist propaganda that called the Hong Kong students thugs! ------ Mr. Hao Haidong<br/><br/>#新中国联邦 <br/>#法治基金和法治社会 <br/>#乌克兰救援 <br/>#华盛顿dc农场<br/> #NFSCRescue <br/>#rolfoundation <br/>#ukrainerefugees <br/>#humanitarianservices <br/>#humanitariansupport<br/>#standwithukraine<br/>Translate post<br/>Posted on 2:16 PM · Apr 2nd, 2022
-![img](https://media.gettr.com/group32/origin/2022/04/02/16/6850a21a-606c-539f-8a18-527317854e4f/out.jpg)
 
 ---
 

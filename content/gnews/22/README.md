@@ -2,45 +2,51 @@
 ---
 
 
-## 小小尼莫成长记（五）-如何看待不完美
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2282510/)
+## 莱顿小区&amp;保利叶小区业主拒唱红歌齐声高喊SB居委会
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2282529/)
 
-#littlenemoconcert#
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_1445.jpg)
-一个身心健康的大人或孩子去换位思考一位身患残疾的人的感受，同理心带来的痛楚远不及当事人的万分之一。如果不幸，身心残缺了，是「这个世界不要我了吗」还是「破茧成蝶」活出精彩？
-Finding Nemo 电影片段 不完美又如何 
-**「这个世界不要我了吗」**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/捕获_副本-1.png)
+据🇺🇦W. Bruce🕊️🇺🇦🌻🌻@[szs191110](https://twitter.com/szs191110)**于**[上午1:30 · 2022年4月4日](https://twitter.com/szs191110/status/1510671042288631810)发布的推特
 
-在宇宙浩瀚的夜晚观看天象的时候，你有没有启发？有没有寻找到与今天的答案关联的地方？满天繁星，每一颗都有它的名字。并不是闪亮耀眼的才被记得，而是每一颗，哪怕闪着极其微弱星光的，都是被纪念的。**无论是日，还是夜，苍穹在述说它的故事。自然界也给了我们很多启示：无论完整的还是残缺的都是生命，都是珍贵的被爱的，更不会被遗忘。**
+上海萊頓小區跟保利葉小區居委會讓業主唱紅歌作秀“感恩政府”，沒想到小區業主不配合，到了約定唱歌的時間業主一起高喊：傻逼居委會。😂😂
 
-**「破茧成蝶」**
 
-面对自己，可以作茧自缚，也可破茧成蝶。当一只蝴蝶破蛹而出的时候，必须要靠自己。**当蝴蝶长出翅膀，生命就发生了质的变化。**翅膀要非常用力地去撑开那个蛹，然后才可以飞出来，是靠着自己飞出来。在蛹内不断重复用力，撑开这个动作，就是在造就张开翅膀的力量，直到破蛹而出成蝶。
 
-**新中国联邦儿童在面对「不完美，又如何」问题上该怎么做呢？「接受不完美」，勇敢自信地「破茧成蝶」**。真正克服「不完美」最后还是要靠自己的毅力，勇气和乐观积极向上的精神。踏出这一步，就会有奇迹出现。
+> 上海萊頓小區跟保利葉小區居委會讓業主唱紅歌作秀“感恩政府”，沒想到小區業主不配合，到了約定唱歌的時間業主一起高喊：傻逼居委會。😂😂😂 [pic.twitter.com/s1McAhsK8t](https://t.co/s1McAhsK8t)
+> — 🇺🇦W. Bruce🕊️🇺🇦🌻🌻 (@szs191110) [April 3, 2022](https://twitter.com/szs191110/status/1510671042288631810?ref_src=twsrc%5Etfw)
 
-**即便身心不残缺，我们也不可能是完美的。因为不完美，我们需要被爱，被接纳，被鼓励……也因为这样，我们学会了去关爱，尊重，包容别人。**
 
-新中国联邦的小朋友们，你们非常重要，你们是新中国联邦的未来。品格，待人接物，对待生活的态度，「Finding Nemo」这部电影给了我们很多启示，「小小尼莫音乐会」给了我们这个平台互相交流和思想撞击。好好磨练，愿我们都成为新中国联邦的「七芒星」。
 
-**后记：**
+根据推特视频所附图片——
 
-“小小尼莫音乐会”第五期播出的时候正逢4/2日，每年的“世界自闭症日”（2007年联合国大会通过决议，2008年发起）。很巧合，尼莫节目今天谈论的话题是“不完美，怎么办”。对于身心有残缺的，如果我们大家能给予爱与正确的帮助（right support), 他/她们依然如夜空星星般闪烁。
+今晚我们全小区唱红歌：20:15准时开始，连唱三首1、五星红旗；2、我和我的祖国；3、歌唱祖国；所有人到窗台把手机的灯光打开，所有人都可以拍摄，所有人都可以一起唱，20:15
 
-[“小小尼莫音乐会”第五期 如何看待不完美](https://www.gettr.com/streaming/p13e04129cc)
+大家好，今晚能不能配合下，让我们保利叶的声音及呼吁全上海都看到，希望二组团17、18、19、20楼的居民们拿起手中的手机，打开闪光灯，摇起来，我们16号楼为我们拍摄、一起祈福，一起祝福早点平安，一起正能量传播起来，请大家支持一下。
 
-[小小尼莫成长记（四）-如何面对恐惧](https://gnews.org/zh-hans/2241592/)
+综述：在2020武汉封城期间，孙春兰到小区视察时没有听到提前编排好的感谢政府，反而听到群情激愤的喊出——假的！假的！假的！而今在2022年的上海封城期间上海莱顿小区和保利叶小区不按居委会剧本齐唱红歌，反而异口同声高喊——傻逼居委会，在中共以病毒控制民众的当下，当每个居民都切身感受到以假治国、以骗治国、以警治国，从发自内心齐唱红歌到众志成城嘘声一片其实只是一瞬间。
 
-[“小小尼莫音乐会” 首集感悟 –梦想和勇气](https://gnews.org/wp-admin/post.php?post=2102597&amp;action=edit&amp;lang=zh-hans)
+撰稿：喜马拉雅的肉夹馍；
 
-视频剪辑： 小灯战友
+审核：喜马拉雅的馍夹肉；
 
-撰稿编辑发布：简单生活
+校对：Maarago；
 
-审核：kardia
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-欢迎加入“小小尼莫音乐会”， 欢迎加入纽约磐石农场！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1cc16db2-b89e-4dd1-b991-5a6c5792138f-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3856.jpg)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

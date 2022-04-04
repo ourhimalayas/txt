@@ -2,8 +2,8 @@
 ---
 
 
-## 战友们吃青蒿素一定要注意的事项
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282698/)
+## 数字货币时代到来，喜币就是大佬
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2282792/)
 
 #### 视频剪辑: WinterGuo ；开智则立 ；0-0 ；rmrf ；Qingjing ；玉米地的小蜗牛 ；牛魔王
 视频定位：BENJ1；WEI
