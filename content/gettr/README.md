@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 1:06 PM (UTC)`
+
+2022.04.04 早  新中国联邦 | 新闻访谈   苏州惊现新变种病毒；上海“精准抗疫” 让民众深陷苦难；澳洲驱逐中共间谍房地产商
+![img](https://media.gettr.com/group8/origin/2022/04/04/13/a104f907-69b3-5d6f-d964-f5c4c78acd5d/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/4/2022 12:30 PM (UTC)`
 
 2022.04.04 早 新中国联邦 | 新闻  以色列志愿者将在新中国联邦帐篷内庆祝逾越节；日本自媒体人被新中国联邦灭共壮举感动
@@ -147,13 +154,6 @@
 
 2022.04.03 晚 新中国联邦 | 新闻   真相和真情 推动钢琴家公开支持新中国联邦；乌克兰海港城市敖德萨遭俄军空袭
 ![img](https://media.gettr.com/group22/origin/2022/04/04/00/6220dd9c-d315-9ee5-326d-1071a44d38af/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/3/2022 11:08 PM (UTC)`
-
-4/3/2022 Miles Guo: The CCP delivered the HQ series missiles and air defense systems to Serbia five days ago, indicating that it has officially participated in the Russia-Ukraine war. The US dollar and the United States are going to be the big winners in the Russia-Ukraine war. Digital currency will be the strongest money in the world, and the Himalaya Coin will be able to supersede the US dollar to circulate in the world.<br/><br/>4/3/2022 文贵直播：中共在5天前已将红旗导弹和反导系统送往塞尔维亚，这意味着中共正式参与了俄乌战争；美元和美国是俄乌战争的大赢家；未来最牛的是数字货币，喜币能取代美元在全球流通<br/>
-![img](https://media.gettr.com/group43/getter/2022/04/03/23/4be565b5-0e8b-5871-02c8-6915e36e7d10/out.jpg)
 
 ---
 
