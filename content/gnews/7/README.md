@@ -2,13 +2,16 @@
 ---
 
 
-## 美国希望乌克兰的所有主权和边界被尊重
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2286379/)
+## 20220403郭文贵大直播 ：新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2286480/)
 
-04/03/2022 美国国防部发言人约翰·柯比：美国希望乌克兰的所有主权和边界被尊重，包括顿涅斯克、卢甘斯克以及克里米亚，我们从未承认俄罗斯对这些地区的非法占领。
+作者：东京樱花团小视频组
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+校对：东京樱花团小视频组
+编辑发布：东京樱花团小视频组
 
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

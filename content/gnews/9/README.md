@@ -2,12 +2,29 @@
 ---
 
 
-## 俄罗斯导弹袭击乌克兰油库
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2286360/)
+## 中日财经爆┃瑞典发展氢突破炼铁技术
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2286436/)
 
-04/03/2022 乌克兰敖德萨市的一个油库遭到多枚俄罗斯导弹的袭击，这些导弹导致的震颤持续了数分钟之久
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+HYBRIT，或称氢突破炼铁技术，是SSAB、矿业公司LKAB和瑞典国有电力公司Vattenfall于2016年成立的合资企业。HYBRIT工艺旨在用氢和可再生电力取代传统上用于矿石炼钢的炼焦煤。它从与氢气反应并还原为球形“海绵铁”的棕色铁矿石颗粒开始，由于去除氧气后留下的孔隙而得名。然后将其在电炉中熔化。如果氢气也是使用可再生能源制造的，则该过程不会产生二氧化碳。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-25.jpg)[图片来源](https://storage.googleapis.com/afs-prod/media/37e1b6d89fb540f3a3d94a5e0d22a9b9/3000.jpeg)
+“我们得到铁，然后得到水蒸气，”SSAB的首席技术官MartinPei说。“水蒸气可以在该过程中冷凝、再循环、再利用。钢是一种极好的建筑材料。也可以一次又一次地回收钢材，你可以尽可能多次地重复使用钢材。我们真正解决了炼钢过程中二氧化碳排放的根本原因，”他说。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+钢铁是一种可回收材料，但在推动社会转型和建造风力涡轮机、太阳能发电厂、输电线路和新型电动汽车的推动下，预计未来几年对合金的需求将会增长。小型Lulea试验工厂仍然是一个研究设施，到目前为止只生产了几百吨。计划在2026年之前建造一个更大的示范工厂并开始商业交付。
+
+可替代能源不断取得突破，得益于民主社会对人权的尊重。哈耶克说:“解放个人能力之最大的结果，也许就是产生了科学。科学之产生，乃近代西方历史上的奇葩。从意大利到英国以及别的地方，个人自由逐步扩张。由于个人自由逐步扩张，才产生了科学。”在中共国的体制里是永远不会有科学产生，因为他们不会尊重人，他们把人民踩在脚下。
+
+消息来源：[Greensteel’heatingupinSweden’sfrozennorth](https://apnews.com/article/climate-technology-science-business-environment-be7af54650dccb3e80419d8e54767e33)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
