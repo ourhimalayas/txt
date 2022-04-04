@@ -2,22 +2,22 @@
 ---
 
 
-## 樱花时政┃虚假宣传泛滥！中共官媒再次被推特添加警示标签
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2287556/)
+## 樱花时政┃中共间谍参与“猎狐行动”被美国政府起诉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2287581/)
 
 撰稿：东京樱花团/法治小哥
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-继给中共官媒在推特的账号加注国家媒体的标签后，社交媒体推特近日再次加强了对中共官媒的把关，给所有包含中共官媒网页链接的推文加注了新的警示标签。
+一位名叫孙海鹰的中共间谍，在美国协助中共执行“猎狐行动”，近日遭到纽约联邦检察官刑事起诉。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-35.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Flive-production.wcms.abc-cdn.net.au%2Fbe800ee9732fdd8d6f91228af45e42b0%3Fimpolicy%3Dwcms_crop_resize%26cropH%3D1080%26cropW%3D1920%26xPos%3D0%26yPos%3D0%26width%3D862%26height%3D485&amp;imgrefurl=https%3A%252)
+近日，据美联社报道称，一位名叫孙海鹰（Sun Hai Ying，音译）的华人男子涉嫌隐瞒中共代理人身份，在美国协助中共执行“猎狐行动”，近日遭到纽约联邦检察官刑事起诉，据起诉书透露，孙海鹰收买了包括一名美国警察在内的对象，练手追捕被中共通缉的35名人士。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-38.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F3582%2Fproduction%2F_110289631_chinese_diplomats_twitter_illustration_640-nc.png&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fnews%2Fworld-asia-china-50832915&amp;tbnid=)
+此外，孙海鹰在美国聘请私人调查员，收集目标对象的信息，提供给中共政府，时间跨度从2017年2月到2022年2月。
 
-据美国之音网站周日报道称，推特在带有橘黄色惊叹号的标签中提示道：“这条推文链接到了中共国附属媒体的网站”。推特发言人称，这样做的目的是为了提供有关他们代表中共政府的背景信息，也同时保护推特上对话的诚信度，并且使被警示的推特内容减少影响力，至少减少百分之三十。
+报道还称，联邦调查局（FBI）调查中发现，孙海鹰接受中共官员的命令办事。目前孙海鹰在逃，躲在中共国。
 
-报道还引述相关研究报告称，乌克兰战争爆发后，中共官媒开始帮助宣传俄罗斯的立场和美化其入侵的理由，有时甚至原封不动地发布来自俄罗斯方面的虚假信息甚至阴谋论。
+中共在2014年7月宣布执行海外“猎狐行动”。猎狐行动由中纪委与公安部、检察院、中国银行、中组部和外交部协同行动，追捕逃离中共国的被通缉人士。是中共全球范围法外非法遣返行动的一部分。
 
-可见，中共媒体的虚假报道和宣传，已经引起了国际社会的警惕和反感。
-
-信息来源：[推特给中国官媒加添警示标签](https://www.rfa.org/mandarin/Xinwen/8-04032022162855.html)
+信息来源：[在美华人参与中国海外猎狐遭起诉](https://www.rfa.org/mandarin/Xinwen/9-04032022163051.html)
 
 编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01

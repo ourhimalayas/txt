@@ -2,29 +2,24 @@
 ---
 
 
-## 中共部署 “红旗” 导弹 威胁北约空中力量
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287788/)
+## 2022年4月4日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2287814/)
 
-作者：纽约香草山 侠肝义胆
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-4月3日，郭文贵先生在大直播中爆料，中共为支持俄罗斯继续侵略乌克兰，做出了疯狂行动。五天前，中共已将 “红旗” 导弹系列部署到巴尔干地区的塞尔维亚，该地区被称为 “欧洲火药库” ，直接威胁到美国和北约对乌克兰的空中支援。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0834.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-2.jpeg)
+发稿：信心的选择
 
-郭先生透露，“红旗” 导弹系统是中共偷窃美国“毒刺导弹”技术，而研发的便携式防空导弹，也是中共唯一使用“北斗”定位系统的导弹系列，具有联排、群发和精准度高等特点。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-另外，中共还准备将“红旗”系列导弹部署到中东伊朗、也门以及突尼斯、吉布提等战略咽喉位置，直接威胁美国和北约空中军事力量。
-
-郭先生认为，中共在巴尔干和中东等战略要塞部署“红旗”导弹，就是直接威胁和挑战美国、北约的空中力量。而美国和北约将别无选择，必须坚决摧毁中共的“北斗”卫星系统。
-
-参考链接：[2022年4月3日 文贵大直播](https://gettr.com/post/p13c6fub6b6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
-
-总编：文真
-编辑：Jack Li文阳   
-审核：Ivy001
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-3.jpeg)
 
  
 

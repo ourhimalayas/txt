@@ -2,33 +2,29 @@
 ---
 
 
-## 有声|历史上的今天：马来西亚前首相纳吉贪污罪案
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2287881/)
+## FDA将讨论推动更多的加强针
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287967/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-2019年4月3日，马来西亚前首相纳吉贪污罪案开始受审。
+#### 选材/编译 ：Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16490947651.png)Gettr/NBCnews
+据4月4日路透社报道，病毒专家星期一说，美国FDA的专家顾问将讨论推动额外的冠状病毒疫苗加强针的时间。独立顾问们还将在4月6日讨论FDA在未来新冠疫苗研发中的作用，以帮助对抗新的病毒变种。
 
-纳吉·阿都拉萨，生于1953年7月23日，曾任马拉西亚第六任首相。2018年，纳吉在大选中被爆出与一马发展有限公司(1MDB)牵连有严重的腐败行为,导致选举失败。随后，被马来西亚移民局禁止出境，被控涉嫌SRC国际有限公司多项罪名。2019年4月3日，马来西亚高法开始审理纳吉被控涉及SRC国际公司4200万令吉洗钱案。
+FDA在简报文件中说，这可能类似于以往选择季节性流感疫苗的过程，即监管机构选择一种可用的年度疫苗。
 
-2011年在马来西亚注册的SRC国际公司，是一马发展公司(1MDB)的前子公司。2012年，时任首相和财政部长就是纳吉。据调查发现，2014年12月-2015年2月间，有4200万令吉从SCR国际公司账户汇入纳吉银行的私人账户。
+田纳西州的范德比尔特（Vanderbilt）大学医学中心的传染病专家，威廉·沙夫纳（William Schaffner）博士说：“这隐含着一个概念，即我们今后将需要更多的加强针”。
 
-2018年，郭文贵先生在美国爆料，一马发展公司(1MDB)实际控制人是刘特佐，此人是中共公安部长、政法委书记孟建柱的私生子。刘特佐用巨额资金买通掌权的纳吉，帮助孟建柱控制马来西亚，把马来西亚国家搞得贪腐横行，乌烟瘴气，经济严重衰退。消息传到马来西亚，举国哗然，马国人民用选票推翻了纳吉连任企图，并依法追究刘特佐、纳吉的罪行。
+3月底，美国卫生官员批准为50岁及以上的人群接种第二剂莫德纳和和辉瑞的加强针。理由是数据显示人们免疫力下降以及奥米克隆变种带来的风险。
 
-文字版原文：[历史上的今天：马来西亚前首相纳吉贪污罪案](https://gnews.org/zh-hans/2280150/)
+根据联邦数据，大约45%完全接种疫苗的美国人，接受了加强针。沙夫纳说，“许多人最担心的是，持续推动加强针的耐受性”。
 
-音频处理：Fei797
-发稿：Fei797
+FDA周一表示，与早期的病毒株不同，新的变种通常更具传染性。FDA的简报文件中说：“数据表明，疫苗的成分可能需要在某个时候更新，以确保在早期疫苗临床试验中表现出高效力”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+*责编：白夜*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接](https://www.reuters.com/world/us/us-fda-advisers-discuss-additional-covid-vaccine-boosters-2022-04-04/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
