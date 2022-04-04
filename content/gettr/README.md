@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 4:15 PM (UTC)`
+
+MILES GUO 直播 2022-04-04
+![img](https://media.gettr.com/group1/liveorigin/2022/04/04/16/c555e779-3f47-de1f-5eee-ac373ce30487/db77deaeeaadf94601c75dae84bb7948.jpg)
+
+---
+
 `@miles 4/4/2022 3:49 PM (UTC)`
 
 On April 4, Australian media reports that Zheng Jiefu has been expelled from the country due to alleged espionage activities and harming national security. These allegations are part of an investigation by the Australian Security Intelligence Service (ASIO) .<br/><br/>In 2015,  he falsely claimed that his company had been misappropriated by Mr. Miles Guo.<br/><br/>After 2017 VOA "broadcast cutoff," Zheng gave yet another "interview" to the media, claiming that 99% of Mr. Guo's revelations were misinformed and untrue.<br/><br/>Zheng had repeatedly cooperated with pseudo-democracy activists Boxun Media to discredit and smear Mr. Guo. <br/><br/>https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html<br/><br/>
@@ -145,13 +152,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 2022.04.03  新中国联邦 | 喜财经  传统银行与数字银行的对比
 ![img](https://media.gettr.com/group23/origin/2022/04/04/02/aaeff2fe-3492-d62f-4a7a-e6eccb03850e/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/4/2022 1:29 AM (UTC)`
-
-4/3/2022 Miles Guo: Xi Jinping and Putin use their personal relationship to kidnap the people of both countries, and Xi will be the biggest loser in the Russia-Ukraine war; Sharif, with the endorsement of the Chinese Communist Party, will overthrow the sitting president and return to power in Pakistan<br/><br/>4/3/2022 文贵直播：习近平和普京的个人关系绑架两国人民利益，习将是俄乌战争的最大输家；谢里夫得到中共的背书，会将现任总统推下台而重掌巴基斯坦政权<br/>
-![img](https://media.gettr.com/group19/getter/2022/04/04/01/e2a86a5d-b6e5-c24d-14bd-0f78da6fc678/out.jpg)
 
 ---
 
