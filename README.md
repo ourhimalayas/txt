@@ -135,38 +135,38 @@
 ### [中共用商鞅之策奴役老百姓､ 新中国联邦助人开智、灭愚](/content/gnews/40/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [大连港到欧洲铁路出口骤降](/content/gnews/41/README.md)
+### [砸“郭”是一门生意](/content/gnews/41/README.md)
+ ` 银河歌舞厅`
+
+### [大连港到欧洲铁路出口骤降](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频｜中共眼中的美国第一](/content/gnews/42/README.md)
+### [7·24系列——造谣郭文贵先生的郑介甫被遣返](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频｜中共眼中的美国第一](/content/gnews/44/README.md)
  ` mayflowertranslate`
 
-### [财经｜调查：全球近一半投资者去年首次入市持有加密货币](/content/gnews/43/README.md)
+### [财经｜调查：全球近一半投资者去年首次入市持有加密货币](/content/gnews/45/README.md)
  ` 關注組`
 
-### [秘翻新闻｜中共已秘密正式参战俄乌战争](/content/gnews/44/README.md)
+### [秘翻新闻｜中共已秘密正式参战俄乌战争](/content/gnews/46/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中日财经爆┃东京证交所开启改组后的首日交易](/content/gnews/45/README.md)
+### [中日财经爆┃东京证交所开启改组后的首日交易](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰总统泽连斯基在格莱美奖发表视频演说（附全文）](/content/gnews/46/README.md)
+### [乌克兰总统泽连斯基在格莱美奖发表视频演说（附全文）](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田首相称俄军杀害乌克兰平民违反国际法](/content/gnews/47/README.md)
+### [岸田首相称俄军杀害乌克兰平民违反国际法](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [让音乐唤醒良知 阻止残酷的战争](/content/gnews/48/README.md)
+### [让音乐唤醒良知 阻止残酷的战争](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平](/content/gnews/49/README.md)
+### [参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平](/content/gnews/51/README.md)
  ` 美国政要直译推`
-
-### [2022年4月3日大直播速记精萃](/content/gnews/50/README.md)
- ` 雅典娜GNotes`
-
-### [被俄中假新闻“赐死”的乌克兰最致命女阻击手](/content/gnews/51/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
 
 ### [世界还没有准备好一个新的世界秩序](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
