@@ -2,11 +2,11 @@
 ---
 
 
-## 中共的疯狂和疫苗灾难的可怕（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284178/)
+## 中共的疯狂和疫苗灾难的可怕（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2284216/)
 
 #### PPT 制作: WinterGuo ；开智则立 ；
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10：30-10：35-002.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10：30-10：35-005.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

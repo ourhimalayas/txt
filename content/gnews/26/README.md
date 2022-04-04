@@ -2,25 +2,36 @@
 ---
 
 
-## 中共在俄军入侵乌克兰前发动网络攻击
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2283036/)
+## 中共国民间人士 高呼打倒共产党
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283299/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 自由法兰西
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16490389821.png)图片来源：Theguardian
+作者：纽约香草山农场 – 文鹰
 
 
-据英国《卫报》4月2日报道，中共在提前知晓俄罗斯入侵乌克兰计划的情况下，于发动战争前夕，对乌克兰主要军事目标及核电厂等关键设施实施了网络攻击。
 
-据悉，包括国防部、金融系统及核基础设施等重要机构在内的600多个乌克兰网站，在俄罗斯入侵前，均遭到中共军方数千次黑客攻击，并在2月23日俄军入侵的前一天达到高峰。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-专家指出，情报中所披露的黑客攻击方式符合中共一贯战术，即通过扫描IT基础设施找出漏洞然后发起攻击。牛津大学教授马丁对此表示，中共在俄军发动战争前夕，对乌克兰实行了高强度的网络情报窃取和破坏性攻击，证实了普京当局和习近平政权合谋占领乌克兰的侵略计划。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：文莱
+4月2日，一则来自墙内的视频在盖特上被广泛传播。视频显示，一男子想要出行但被阻在小区门口，另一个疑似工作人员的男子阻挡在该男子前面。男子被人劝退，但随即又挣脱出来向前走了几步，情绪有些激动地举起手臂，连呼“打倒共产党，打倒习近平”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8.jpg)
+当前，中共国内疫情在多地爆发，地方政府强制封城封区，人为限制居民出行，不顾民众生死，已经酿成了很多人道悲剧，孩子与父母被迫分离，老人因延误治疗失去生命等，数不胜数。
 
-新闻来源：[https://www.theguardian.com/technology/2022/apr/01/china-accused-of-launching-cyber-attacks-on-ukraine-before-russian-invasion](https://www.theguardian.com/technology/2022/apr/01/china-accused-of-launching-cyber-attacks-on-ukraine-before-russian-invasion)
+分析人士称，邪恶中共的极端防疫政策，不仅给国人带来了无尽的灾难，更进一步激发了越来越多的人反抗暴政、追求自由的勇气。男子的呐喊，可能成为一个标志性的事件，唤醒更多的人站出来，反抗甚至推翻邪恶的中共政权。
+
+参考链接：
+[在邪教CCP变态封锁防控的高压下，终于有人当众高喊:”打倒共产党，打倒习近平”！](https://gettr.com/post/p135ea8ef8e)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+总编/编辑/审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

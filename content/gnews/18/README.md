@@ -2,41 +2,24 @@
 ---
 
 
-## 喜马拉雅币一周分析与总结（3月28日-4月3日）
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2283705/)
+## 视频|俄乌战局最新信息汇总
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2283916/)
 
-作者：纽约香草山金融部 – ILOVE战神
+制作：香草山视频部
 
+截至4月2日，在基辅西线，俄罗斯正撤出兵力，以便重新部署到乌克兰东部地区。目前已经将多达五个营级战术小组从基辅周围撤到白俄罗斯。俄军在撤退的路上布雷，并借助炮火掩护，但是这些撤出的部队战损严重。在哈尔科夫，俄军已经放弃了夺取该城的努力，继续进行炮击，以防止此地的乌军加强顿巴斯的防御设施或增援其他地方。
 
+当前俄军的主要目标是与哈尔科夫撤退下来的部队会合，占领整个顿涅茨克州和卢甘斯克州。在南线，俄军意图守住赫尔松，抵御乌军的反击，优先确保乌克兰南部的安全。据敖德萨州政府当局称，俄军向该地区发射了3枚伊斯坎德尔弹道导弹，具体人员伤亡数目不详。同时，俄军空袭了Kremenchuk（克雷门丘格）的炼油厂、第聂伯罗和波尔塔瓦市的机场，以及其他公共设施和民用住宅楼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+乌克兰方面的消息，乌军收复了大片先前被占领的土地，包括伊万科夫和几个较小的城镇，包围了部分没来得及撤退的俄军。在基辅东线，乌军进行了成功反击，很可能解除了俄军对切尔尼戈夫的包围，并将俄军赶到苏皮伊河，离基辅市中心足有100 多公里。据乌克兰总参谋部报告说，乌军在过去24小时内击退了俄罗斯的7次进攻，摧毁了3辆坦克、2辆装甲运兵车和2辆非装甲车；还击落了一架Orlan-10无人机。
 
+而在马里乌波尔，乌克兰第36海军陆战旅和其他部队还在坚守自己的环形防御，战斗会越来越惨烈。赫尔松州北部，乌军成功夺取了几个城镇。乌克兰游击队的不断行动可能会在未来几周内继续牵制俄罗斯格鲁乌特种部队，因此俄军在未来几天极不可能恢复对米科拉耶夫的进攻。
 
+发稿：林礼
 
-过去一周喜马拉雅币价格回落至36美元左右，平均日交易量约26万枚喜币。其中3月30日单日交易量突破74万枚喜币，创下喜币上市3天后的最高单日交易量，交易额突破2500万美元。喜币上市以来总交易量约3330万枚 ，占今年总发行量仅约3.33%。目前喜币交易在全球尚未完全开放，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide12.jpg)
-最近G-Fashion开通了HPay付款功能，并且交易量增加了10倍，标志着喜币真正进入了G生态的流通领域。喜美元HDO零成本立即到账支付，在实体商店中不断增加流通，并不需要换成美元，这将促进HDO资金池的稳定增长，并最终推动喜币价格不断上涨。
-
-本周郭文贵先生在大直播中透露，最近某亚洲数字货币领袖人物和中东某国都到喜联储考察，考察后均表示喜币和HPay的生态系统将成为数字货币的希望和未来，其中即将上线的HPay 2.0版本拥有全球最先进的技术。另外某世界前五的社交媒体巨头最近希望在其平台上开放喜币打赏功能，但喜联储认为未来喜币价格将超过1000美元，目前并不是最好的时机。喜联储在近期将主要专注于扩展其数字银行和交易所业务。
-
-本周欧洲议会议员以93票对14票通过了加强欧盟反洗钱和恐怖主义融资规则的立法草案。该法案要求追踪所有加密资产的转移情况。该法案将打击各种去中心化的加密货币和交易所，对严格KYC的喜币是利好。据郭先生在大直播中透露，币安由于过去一系列不合规的操作将会被美欧政府全球追杀，而喜币不论现在和未来都是全球最稳定的数字货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-12.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture4-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture5.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture6.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture8.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture11.png)
-参考链接：
-1. [2022年3月30日 《文贵大直播》全文字版](https://gnews.org/zh-hans/2270288/)
-2. [喜交所官网：HIMALAYA PAY – Your key to the Himalaya Ecosystem](https://himalaya.exchange/himalaya-pay)
-3. [Crypto assets: new rules to stop illicit flows in the EU](https://www.europarl.europa.eu/news/en/press-room/20220324IPR26164/crypto-assets-new-rules-to-stop-illicit-flows-in-the-eu)
-4.[2022年4月3日 文贵大直播：世界新能源的发展现状和展望； 国内疫情封城最新信息汇总及WHO最新发布的病毒变种分析；俄乌战争最新战况及全球最新政治外交；《商君书》与中共极权极权统治之二：连坐与告密](https://gettr.com/post/p13c6fub6b6)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

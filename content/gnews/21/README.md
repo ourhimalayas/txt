@@ -2,88 +2,52 @@
 ---
 
 
-## 参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2283516/)
+## 英国政府允许将最大的微芯片工厂出售给中共拥有的公司
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2283583/)
 
-**参议员玛莎.布莱克本： **
-在俄罗斯威胁进行核战争之际，拜登总统的预算将迫使削减关键核能力。 俄罗斯、 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、朝鲜和伊朗只通过实力理解和平。 我们必须为我们的军队提供防卫和保护我们的自由所需的资源。
+![IBARAKI, JAPAN - JUNE 17: Technicians at work in the clean room of the Fab Equipment at a semiconductor company, Renesas Technology Corp. on June 17, 2004 in Ibaraki, Japan. Renesas is the first company to produce semiconductor products from 300mm wafer in the world. (Photo by Koichi Kamoshida/Getty Images)](https://media.breitbart.com/media/2022/04/GettyImages-72340449-640x480.png)资料图
+来自布赖特巴特新闻网2022年4月2日的消息，据报道，尽管人们对国家安全有担忧，但英国政府还是批准了将英国最大的微芯片工厂出售给中共拥有的一家公司。
 
+威尔士的纽波特晶圆厂(Newport Wafer Fab，NWF)去年因无力偿还债务而被迫将工厂出售，显然政府将允许将其出售给中共拥有的公司“安世半导体”(Nexperia)。
 
+根据《政客》(POLITICO)的报道，政府的国家安全顾问斯蒂芬·洛夫格罗夫(Stephen Lovegrove)的审查发现，将该半导体生产商出售给中共国并没有上升到构成国家安全风险的程度。根据《国家安全和投资法》，如果该出售被确定存在这种风险，政府本可以阻止该出售。
 
-> President Biden’s budget will force cuts to key nuclear capabilities, at a time when Russia is threatening nuclear war. Russia, China, North Korea & Iran only understand peace through strength. We must provide our military the resources they need to defend & protect our freedom.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510735250376298496?ref_src=twsrc%5Etfw)
+一位不愿意透露姓名的官员告诉新闻媒体，洛夫格罗夫决定允许这项交易继续进行，因为纽波特晶圆厂使用的是20年前的技术，而中共国人已经掌握了这项技术。
 
+一位举报人此前还告诉美国消费者新闻与商业频道(CNBC)，纽波特晶圆厂收到了大约5500万英镑(7500万美元)的纳税人资金和用于开发下一代技术的国防合同，其中包括540万英镑用于开发战斗机的雷达系统。这位举报人当时说：“我认为没有人意识到其中有几个与国防有关的项目。”
 
+安世半导体公司总部设在荷兰，并在英国设有办事处，由中共国国有投资公司“中建投资本”(JIC Capital)的子公司“江淮资本”(JAC Capital)拥有。安世半导体声称自己是独立运营的。
 
-**参议员玛莎·布莱克本：** 
-我们不能袖手旁观，任由左派(把他们的思想)灌输给我们的孩子。
+中共国一直在积极寻求英国的技术，据说军情六处的安全部门去年对英国主要大学与中共国武器开发商的合作展开了调查。
 
+据报道，在回应政府批准出售半导体工厂的消息时，保守党前领导人、对华政策跨国议会联盟创始人伊恩·邓肯·史密斯爵士(Sir Iain Duncan Smith)说，此举是“荒谬的”，他指出，半导体是中共国政府正在寻求“控制”的行业。
 
+伊恩爵士说：“如果政府走这条路，它将成为讨好中共的可悲过程中的又一步，而中共现在正在支持俄罗斯，并计划对西方获得微芯片和其他电子设备的关键部件构成直接和蓄意的威胁。
 
-> We can’t sit back and allow the left to indoctrinate our children.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1510777612909613057?ref_src=twsrc%5Etfw)
+下议院外交事务委员会主席汤姆·图根哈特(Tom Tugendhat)补充说：“不清楚为什么我们没有利用《国家安全和投资法》赋予的新权力来全面审查对我们一个领先的综合半导体公司的收购。这是一个中共国正投入数十亿美元进行竞争的领域。政府没有明确的战略来保护我们剩余的半导体产业。”
 
+简评：
 
+中共收购英国二十年前的半导体技术，可见中共宣传的芯片技术自主研发根本就是笑话。中共最擅长的就是宣传，每当技术开发取得一点点进展时，全国的各大媒体就会疯狂吹捧。一方面满足的统治集团好面子的虚荣心，另一方面这成为下层机构向上层申请经费的一种手段。下属为了使领导高兴弄虚作假进行糊弄，领导听到好消息也没有能力核实，如果出了纰漏就可以甩锅。这一切的根源就是共产党以假治国、以骗治国的体制造成的，这种体制扼杀了所有的创造力，所以，举国上下就只会假、骗、偷。
 
-**参议员玛莎.布莱克本： **
-不要搞错：在美国，我们正目睹一场文化战争。
+中共利用自身的独裁统治优势全面控制国内的经济、金融，形成了典型的国家资本主义经济模式。相比西方国家保护私有经济的市场化经济模式，中共就有条件集中更多的金钱对全世界的企业进行收购，通过资本运作控制全球关键产品生产。在这种情况下，也侧面促成了当下的局面，那就是中共没有耐心，也不屑于投入巨大的人力、物力和时间来完成关键技术的研发。中共对清朝晚期“洋务运动”的评价中，认为其失败原因是“洋务运动根本无意于学习资本主义的政治经济制度，只主张学习西方技术，极力反对对封建思想和封建制度进行任何形式的变革”。这句话也同样适用于中共的改革开放，他们的结局都是注定要失败的。
 
+新闻链接: [https://www.breitbart.com/europe/2022/04/02/uk-govt-allows-sale-of-microchip-factory-to-communist-china/](https://www.breitbart.com/europe/2022/04/02/uk-govt-allows-sale-of-microchip-factory-to-communist-china/)
 
+翻译/简评: kkoto(芬兰大灰狼)
 
-> Make no mistake: we’re witnessing a culture war in America.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510672033620889603?ref_src=twsrc%5Etfw)
+PR: Harvey（叶知秋）
 
+* * *
 
-
-**国务院发言人内德·普赖斯:** 
-当被问及来自布哈(Bucha) 的可怕图像时，布林肯国务卿@SecBlinken 今天早上告诉CNN记者@CNNSotu，我们不能对此麻木——我们不能使其正常化。 这就是每天都在发生之事的现实，也是克里姆林宫的战争必须结束的原因。 【转CNN推文及视频： “我们不能对此麻木。” 国务布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上。】
-
-
-
-> Asked about the horrifying images coming out of Bucha, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) told [@CNNSotu](https://twitter.com/CNNSotu?ref_src=twsrc%5Etfw) this morning that we can’t become numb to this—we can’t normalize this. This is the reality of what’s going on every single day and why the Kremlin's war needs to end. [https://t.co/PvRBtLUCGE](https://t.co/PvRBtLUCGE)
-> — Ned Price (@StateDeptSpox) [April 3, 2022](https://twitter.com/StateDeptSpox/status/1510712942072848385?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯：** 
-我们强烈谴责克里姆林宫部队在布查(Bucha)和乌克兰各地的明目张胆的暴行。我们正在利用一切可用工具，记录和分享信息，追究责任人的责任。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> We strongly condemn apparent atrocities by Kremlin forces in Bucha and across Ukraine. We are pursuing accountability using every tool available, documenting and sharing information to hold accountable those responsible.
-> — Secretary Antony Blinken (@SecBlinken) [April 4, 2022](https://twitter.com/SecBlinken/status/1510792047824826372?ref_src=twsrc%5Etfw)
-
-
-
-**众议员兰斯.古登： **
-高油价首先被归咎于大流行病。 
-然后，弗拉基米尔.普京（因此）受到指责。 
-现在，石油公司又遭到指责。 
-
-乔·拜登应该将自己列入被指责的名单。
-
-
-
-> First, the pandemic was blamed for high gas prices.
-> 
-> Then, Vladimir Putin was blamed.
-> 
-> Now, oil companies are being blamed.
-> 
-> Joe Biden should add himself to the list.
-> — Lance Gooden (@Lancegooden) [April 3, 2022](https://twitter.com/Lancegooden/status/1510686257646604289?ref_src=twsrc%5Etfw)
-
-
-
-**美国国务院： **
-国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：乌克兰的农民没能照料他们的庄稼，而是被迫要么为国家的未来和独立而战，要么逃离。 运送粮食的船只由于被俄罗斯侵略的封锁而无法从黑海港口驶出。 【图中文字：国际社会必须增加对俄罗斯的施压以结束这场无端又无理的战争 – 布林肯】
-
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): Farmers in Ukraine, instead of tending to their crops, have been forced to either fight for their country’s future and independence, or to flee. Ships with grain are not getting out from Black Sea ports because they’re blocked by Russia’s aggression. [pic.twitter.com/RI47Q1JL7u](https://t.co/RI47Q1JL7u)
-> — Department of State (@StateDept) [April 3, 2022](https://twitter.com/StateDept/status/1510603026301599746?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
