@@ -2,33 +2,26 @@
 ---
 
 
-## 中共防疫“清零”政策就是谎言
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2287642/)
+## 俄罗斯将被美国踢出联合国人权理事会
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287650/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-中共疫情“清零”，其实从来就没有清零过。共产党总是把感染和死亡的数字缩小化。只有你想不到的数量，没有他们隐瞒不了的数字。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-19.jpg)[图片来源](https://www.wkrn.com/community/health/coronavirus/shanghai-starts-chinas-biggest-covid-19-lockdown-in-2-years/)
-在疫情肆虐全球的时刻，独裁的中国共产党一直对十四亿中国人宣称，只有中国“风景独好”，能把疫情控制住，做到疫情“清零”。
+####  撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-394.png)图片来源：路透社
+据《新闻极限》4月4日报道，周一，美国驻联合国大使托马斯-格林菲尔德（Linda Thomas-Greenfield）表示，鉴于俄罗斯军队在乌克兰布卡（Bucha）镇屠杀平民，美国将推动把俄罗斯从联合国人权理事会除名。
 
-其实从来就没有清零过。共产党总是把感染和死亡的数字缩小化。只有你想不到的数量，没有他们隐瞒不了的数字。
+发言人奥利维亚·道尔顿（Olivia Dalton）在推特上援引托马斯-格林菲尔德的话说：“在与乌克兰、欧洲国家和联合国其他伙伴的密切协调下，我们将寻求暂停俄罗斯在联合国人权理事会的成员资格”。
 
-中国共产党用的是全面隔离的政策，发生的次生灾难更是数不胜数。需要急救的人入不了医院，得不到食物饿死的，各种灾难叠加放大数倍，由于隔离致死的人数远远超过病毒死亡人数。
+另据《路透社》的报道，周一，托马斯-格林菲尔德在罗马尼亚首都布加勒斯特的讲话中称：俄罗斯参与人权理事会是一场“闹剧”。
 
-这就是共产党一贯政策，劳民伤民，多难兴邦！用百姓的生命来掩盖中共的罪恶！
+报道指，人权理事会是联合国的一个机构，负责促进和保护全球人权。美国若要推动把俄罗斯从联合国人权理事会除名成功，必须得到联合国193个成员国中的三分之二投票赞成。
 
-对外除了编造数据以外，还宣传集中力量办大事。只有共产党才能做到，才能控制住疫情，说没有就立马清零。
+值得注意的是，就在俄罗斯军队对基辅和乌克兰其他城市发动大规模军事攻击几天后，联合国以压倒性的票数通过了一项谴责俄罗斯的决议。
 
-可是事实却是，现在全国到处都是阳性。从南到北，都在全面封闭隔离中。他们引以为傲的“清零”怎么没有声音了呢？ 同胞们何时能明白，中共是人类的灾难制造者，我们要一起消灭中共！
+*责编：白夜*
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**新闻来源**
+
+[US to move to suspend Russia from UN human rights council](https://thehill.com/news/administration/3258090-us-to-move-to-suspend-russia-from-un-human-rights-council/)
 
  
 

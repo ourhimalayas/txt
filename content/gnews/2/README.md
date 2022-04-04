@@ -2,12 +2,18 @@
 ---
 
 
-## 4月4日乌克兰救援前线新闻（图片1-6）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2288134/)
+## 视频｜在新中国联邦的救援营地庆祝逾越节(犹太人节日)是非常有象征意义的
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2288196/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1EDA80AB-BB9E-4EA5-8D4F-61A2AC572094.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A83309EA-D9EB-4699-8DA9-4C2AA79F2AE8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/36D54B9D-8ADB-41A7-B54F-2B86E8A0A14D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/C079A4E3-F0FD-4462-8D2C-83BC12E4A6E0.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A04AB86A-E5B3-4381-A028-C3B09121D284.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/4D592A93-63CD-4DA5-8AAD-6DF28684E8AD.png)
-发布：水涨船高
+编译：波士顿五月花—-冲天一怒
+
+以色列的救援志愿者在新中国联邦的救援营地庆祝逾越节
+
+来自以色列的犹太人志愿者说在新中国联邦的救援营地庆祝逾越节(犹太人节日)是非常有象征意义的，救援营地是一个解放营地，对于那些逃离奴隶制和乌托邦的自由人来说。妮可说新中国联邦将把14亿中国人从中共奴役中解放。
+
+*发布：思澈*
+
+
 
  
 

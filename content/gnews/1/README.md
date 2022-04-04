@@ -2,63 +2,82 @@
 ---
 
 
-## 有声新闻-新西兰财经G乐部2022年4月4日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2288169/)
+## 欧洲国家主要港口已拒绝给俄籍油轮提供加油补给
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2288202/)
 
-采集整理：蚂蚁的城堡
+**编译和评论：16626，沉默老歌，88JJ**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/725E53C8-6341-4813-900D-A1C7F95A650E.png)**屏幕截图：**[**https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article**](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+**欧洲国家主要港口拒绝给俄罗斯籍油轮加油**
 
-听众观众朋友们大家好，今天是2022年4月4日星期一，农历三月初四。欢迎收听收看新西兰财经G乐部每日财经新闻节目。首先为您介绍新闻节目的主要内容：
+路透4月1日 （[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/) ） 西班牙和马耳他等欧洲国家主要港口已经停止向俄罗斯籍商船（油轮）提供加油补给。
 
-1、中共证监会发布20起证券业违法案例
+**对莫斯科****（原油）****出口的又一次打击**
 
-2、中共证监会等修订企业境外发行上市规则
+五位知情人士透露：船用燃料销售商，已停止在包括西班牙和马耳他在内的主要欧洲枢纽国家，为悬挂俄罗斯国旗的船只（油轮）提供（加油）补给服务，这是对莫斯科（原油）出口的又一次打击。
 
-3、美国调查人员发现俄罗斯寡头试图规避制裁的证据
+**驶往亚洲的俄罗斯油轮**
 
-4、美国称尽管卢布回升，俄罗斯仍将走向衰退和经济封闭
+多位航运界人士指出，由于地中海主要加油站拒绝给俄罗斯商船（油轮）加油，从波罗的海驶往亚洲的俄罗斯油轮，在补给方面遇到了问题，有可能被困在海上。由于俄罗斯油轮装载易燃物质（原油），进而造成安全隐患。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/DB97480A-4D5A-4987-9747-58A35BC4FD6D.png)屏幕截图：[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
+**多艘俄罗斯油轮被迫绕道而行**
 
-5、网飞的加密诈骗纪录片引起社区强烈反响
+一位知情人士透露：”由于欧洲港口拒绝加油，多艘俄籍油轮被迫绕道而行，前往其他国家加油。
 
-正文
+**提前执行西方国家的下一步制裁措施**
 
-1、中共证监会发布20起证券业违法案例
+相关人员称，拒绝给俄罗斯油轮加油为”**自愿****（自发的）****制裁**“。拒绝与俄罗斯方面签订（加油补给服务）合同，是提前执行西方国家的下一步制裁措施。
 
-中共证监会4月1日发布了2021年证监稽查20起典型违法案例，中共证监会执法更加聚焦，重点打击财务造假、资金占用、中介机构未勤勉尽责及操纵市场、内幕交易等典型违法行为。执法覆盖股票、债券、新三板、期货市场；主体既有上市公司、挂牌企业以及相关中介机构，也有上市公司内部人员、操纵团伙、配资中介等个人。
+马耳他的一名政府官员表示，该国不允许任何悬挂俄罗斯国旗的船只进入其港口。
 
-财经G评：中共证监会跟中国男足很像，无论换谁来管理都没用！系统性腐败、系统性造假、系统性失败、这片土壤上只生产虚假！金融虚假的本质是政治制度虚假！所以中共股市就是嗜血的黑洞，中国老百姓的财富被吞噬了30多年！
+航运业消息人士称，鉴于世界海运贸易的复杂性，目前尚不清楚俄罗斯公司如何在被撤销多项服务的情况下运营。
 
+另外，自俄罗斯入侵开始后的第二天（2月25日）起，丹麦船用燃料供应商，蒙贾萨Monjasa，表示，它已暂停与悬挂俄罗斯国旗的船只、俄罗斯注册公司以及与俄罗斯有联系的公司发生贸易和供给。
 
+还有，英国在三月早些时候就已经宣布对俄罗斯最大的航运公司Sovcomflot实施制裁。
 
-2、中共证监会等修订企业境外发行上市规则
+**评论：**
 
-证监会等四部门发文，明确境内企业境外上市信息安全责任，删除了原《规定》关于“现场检查应以我国监管机构为主进行，或者依赖我国监管机构的检查结果”的表述。证监会表示，国家继续支持各类符合条件的企业赴境外上市，不断深化跨境监管合作，相信规定修订将进一步提升境外上市企业的合规水平，促进境外上市活动健康有序发展。
+**绝大多数人反对俄罗斯入侵乌克兰**
 
-财经G评：美国针对中概股行动和负面清单企业让中共恐惧，马上表态修改规则，中共不就是担心从海外融不到资、骗不到钱了！
+***格鲁吉亚加油船：你是俄罗斯的船吗？***
 
+***俄罗斯人：是的***
 
+***格鲁吉亚人：我们不给俄罗斯的船加油了***
 
-3、美国调查人员发现俄罗斯寡头试图规避制裁的证据
+***俄罗斯人：不要这样，让我们把政治放在一边！我们只是需要一些燃料！***
 
-4月1日 – 美国司法部一个新的特别工作组的负责人周五说，美国检察官已经发现证据表明，俄罗斯寡头正试图规避为迫使莫斯科停止入侵乌克兰而实施的制裁。上个月成立的“KleptoCapture”特别工作组的负责人、资深检察官Andrew Adams在接受路透采访时说，在某些情况下，即使是尚未受到制裁的寡头也在试图转移资产，以防未来可能遭制裁。即使他们试图将游艇、飞机或其他移动财产藏在他们认为是保密的国家。
+***格鲁吉亚人：俄罗斯的船，去吧，荣耀属于乌克兰，你可以随时使用船桨！***
 
+以上是俄罗斯轮船被拒绝加油时的一段对话，它显示了大多数人对俄罗斯入侵乌克兰这场战争的立场与观点。当今国际社会大多数的民主国家是站在正义的一方。联合国大会以141:5的压倒性多数通过了一项决议，要求莫斯科立即停止针对乌克兰的侵略战争，这是当今有普世价值国家的立场。
 
+**唯有中共却首鼠两端投了弃权票**
 
-4、美国称尽管卢布回升，俄罗斯仍将走向衰退和经济封闭
+然而作为安理会常任理事国的中共却首鼠两端投了弃权票，没有是非立场。更有甚者，中共暗中大力支持俄罗斯的侵略战争，其为虎作伥、不仁不义的作为，必遭国际社会的孤立与唾弃。
 
-4月1日 – 美国财政部一名高官周五表示，美国及其盟国针对俄罗斯入侵乌克兰实施的惩罚性制裁正在将俄罗斯推向经济衰退，并使其重新走向经济封闭。这位官员说，尽管俄罗斯卢布/美元汇率回升，但美国财政部认为俄罗斯正面临严重通胀、出口减少和短缺问题。这位官员认为，卢布反弹是由严格的资本管制和外汇管制推动的，并非出于市场力量。过去三周高达6%的通胀率更好地说明制裁对俄罗斯内部的影响，揭示了卢布购买力下降，并补充称黑市的卢布汇率远低于国际汇率。
+**声明：**
 
+由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
 
+本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
 
-5、网飞的加密诈骗纪录片引起社区强烈反响
+**参考资料：**
 
-3月30日，网飞（Netflix）新的加密纪录片《不要相信任何人：寻找加密之王》(Trust No One: The Hunt for the Crypto King)在大肆宣传中发布。这部纪录片是基于已倒闭加密货币交易所QuadrigaCX的创始人的神秘死亡制作的。据称，这家加密货币交易所的创始人在前往印度的途中去世。随之而来的是，他带走了持有价值2.5亿美元加密货币的加密钱包的密钥下落。
+1. ロシア商船への給油拒否、地中海の欧州主要港，[https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH](https://jp.reuters.com/article/ukraine-crisis-russia-shipping-idJPKCN2LU0MH)
 
-财经G评：这个更加印证了“喜币交易去中心化和责任中心化”安全设计！知识点—Himalaya的生态系统采用Ethereum（以太坊）和Quorum区块链的混合链。HCN交易肯定也是去中心化。 ——也就是“喜币交易去中心化”。
+1. EXCLUSIVE Ship fuel suppliers stop serving Russian vessels in the Med – sources，[https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/](https://www.reuters.com/world/europe/exclusive-ship-fuel-suppliers-stop-serving-russian-vessels-med-sources-2022-04-01/)
 
-HDO是属中心化稳定币（美元稳定币），客户可以自由的使用HDO购买HCN、也可以把HDO提现转入自己银行账户中，喜交所要为客户提供服务，保障客户法定的市场权利就是——“责任中心化。”
+1. Russian oil tankers are now without a destination or hiding their whereabouts，[https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article](https://www.digitaljournal.com/business/russian-oil-tankers-are-now-without-a-destination-or-hiding-their-whereabouts/article)
 
-今天的新西兰财经G乐部每日财经新闻节目播送完了，感谢您的收听收看。获取新闻资讯，您还可以下载盖特和G news客户端关注财经G乐部。听众观众朋友们，再见！
+**编辑：卢卡斯**
 
+**发布：歪桑**
+
+20220404
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
