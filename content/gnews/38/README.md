@@ -2,50 +2,88 @@
 ---
 
 
-## 莱顿小区&amp;保利叶小区业主拒唱红歌齐声高喊SB居委会
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2282529/)
+## 参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2283516/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/捕获_副本-1.png)
-据🇺🇦W. Bruce🕊️🇺🇦🌻🌻@[szs191110](https://twitter.com/szs191110)**于**[上午1:30 · 2022年4月4日](https://twitter.com/szs191110/status/1510671042288631810)发布的推特
-
-上海萊頓小區跟保利葉小區居委會讓業主唱紅歌作秀“感恩政府”，沒想到小區業主不配合，到了約定唱歌的時間業主一起高喊：傻逼居委會。😂😂
+**参议员玛莎.布莱克本： **
+在俄罗斯威胁进行核战争之际，拜登总统的预算将迫使削减关键核能力。 俄罗斯、 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、朝鲜和伊朗只通过实力理解和平。 我们必须为我们的军队提供防卫和保护我们的自由所需的资源。
 
 
 
-> 上海萊頓小區跟保利葉小區居委會讓業主唱紅歌作秀“感恩政府”，沒想到小區業主不配合，到了約定唱歌的時間業主一起高喊：傻逼居委會。😂😂😂 [pic.twitter.com/s1McAhsK8t](https://t.co/s1McAhsK8t)
-> — 🇺🇦W. Bruce🕊️🇺🇦🌻🌻 (@szs191110) [April 3, 2022](https://twitter.com/szs191110/status/1510671042288631810?ref_src=twsrc%5Etfw)
+> President Biden’s budget will force cuts to key nuclear capabilities, at a time when Russia is threatening nuclear war. Russia, China, North Korea & Iran only understand peace through strength. We must provide our military the resources they need to defend & protect our freedom.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510735250376298496?ref_src=twsrc%5Etfw)
 
 
 
-根据推特视频所附图片——
+**参议员玛莎·布莱克本：** 
+我们不能袖手旁观，任由左派(把他们的思想)灌输给我们的孩子。
 
-今晚我们全小区唱红歌：20:15准时开始，连唱三首1、五星红旗；2、我和我的祖国；3、歌唱祖国；所有人到窗台把手机的灯光打开，所有人都可以拍摄，所有人都可以一起唱，20:15
 
-大家好，今晚能不能配合下，让我们保利叶的声音及呼吁全上海都看到，希望二组团17、18、19、20楼的居民们拿起手中的手机，打开闪光灯，摇起来，我们16号楼为我们拍摄、一起祈福，一起祝福早点平安，一起正能量传播起来，请大家支持一下。
 
-综述：在2020武汉封城期间，孙春兰到小区视察时没有听到提前编排好的感谢政府，反而听到群情激愤的喊出——假的！假的！假的！而今在2022年的上海封城期间上海莱顿小区和保利叶小区不按居委会剧本齐唱红歌，反而异口同声高喊——傻逼居委会，在中共以病毒控制民众的当下，当每个居民都切身感受到以假治国、以骗治国、以警治国，从发自内心齐唱红歌到众志成城嘘声一片其实只是一瞬间。
+> We can’t sit back and allow the left to indoctrinate our children.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1510777612909613057?ref_src=twsrc%5Etfw)
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
 
-校对：Maarago；
+**参议员玛莎.布莱克本： **
+不要搞错：在美国，我们正目睹一场文化战争。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+> Make no mistake: we’re witnessing a culture war in America.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510672033620889603?ref_src=twsrc%5Etfw)
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**国务院发言人内德·普赖斯:** 
+当被问及来自布哈(Bucha) 的可怕图像时，布林肯国务卿@SecBlinken 今天早上告诉CNN记者@CNNSotu，我们不能对此麻木——我们不能使其正常化。 这就是每天都在发生之事的现实，也是克里姆林宫的战争必须结束的原因。 【转CNN推文及视频： “我们不能对此麻木。” 国务布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上。】
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+> Asked about the horrifying images coming out of Bucha, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) told [@CNNSotu](https://twitter.com/CNNSotu?ref_src=twsrc%5Etfw) this morning that we can’t become numb to this—we can’t normalize this. This is the reality of what’s going on every single day and why the Kremlin's war needs to end. [https://t.co/PvRBtLUCGE](https://t.co/PvRBtLUCGE)
+> — Ned Price (@StateDeptSpox) [April 3, 2022](https://twitter.com/StateDeptSpox/status/1510712942072848385?ref_src=twsrc%5Etfw)
+
+
+
+**国务卿安东尼·布林肯：** 
+我们强烈谴责克里姆林宫部队在布查(Bucha)和乌克兰各地的明目张胆的暴行。我们正在利用一切可用工具，记录和分享信息，追究责任人的责任。
+
+
+
+> We strongly condemn apparent atrocities by Kremlin forces in Bucha and across Ukraine. We are pursuing accountability using every tool available, documenting and sharing information to hold accountable those responsible.
+> — Secretary Antony Blinken (@SecBlinken) [April 4, 2022](https://twitter.com/SecBlinken/status/1510792047824826372?ref_src=twsrc%5Etfw)
+
+
+
+**众议员兰斯.古登： **
+高油价首先被归咎于大流行病。 
+然后，弗拉基米尔.普京（因此）受到指责。 
+现在，石油公司又遭到指责。 
+
+乔·拜登应该将自己列入被指责的名单。
+
+
+
+> First, the pandemic was blamed for high gas prices.
+> 
+> Then, Vladimir Putin was blamed.
+> 
+> Now, oil companies are being blamed.
+> 
+> Joe Biden should add himself to the list.
+> — Lance Gooden (@Lancegooden) [April 3, 2022](https://twitter.com/Lancegooden/status/1510686257646604289?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院： **
+国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：乌克兰的农民没能照料他们的庄稼，而是被迫要么为国家的未来和独立而战，要么逃离。 运送粮食的船只由于被俄罗斯侵略的封锁而无法从黑海港口驶出。 【图中文字：国际社会必须增加对俄罗斯的施压以结束这场无端又无理的战争 – 布林肯】
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): Farmers in Ukraine, instead of tending to their crops, have been forced to either fight for their country’s future and independence, or to flee. Ships with grain are not getting out from Black Sea ports because they’re blocked by Russia’s aggression. [pic.twitter.com/RI47Q1JL7u](https://t.co/RI47Q1JL7u)
+> — Department of State (@StateDept) [April 3, 2022](https://twitter.com/StateDept/status/1510603026301599746?ref_src=twsrc%5Etfw)
+
+
 
  
 
