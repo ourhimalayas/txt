@@ -2,22 +2,18 @@
 ---
 
 
-## 视频|日媒揭露上海封城后的食物短缺等问题
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2285871/)
+## 尊重女性的民族才有未来（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2286047/)
 
-制作：香草山视频部
+#### PPT制作：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/04/12：00-12：10-003.jpeg)
+*发布：陶子*
 
-上海自3月下旬疫情爆发以来，实施了严格的封锁管控措施，同时官方媒体严格封锁消息，外界很难得知封控下上海居民的真实生活状况。4月1日，一家日本媒体连线了正在上海作为特别报道员的记者，并询问了目前上海的真实情况。
-
-记者表示，上海名义上实施了东西交叉封锁，但因为每日新增病例居高不下，事实上已经开始全面封锁。人们无法出入小区，甚至医疗系统也出现了拒绝救治除感染外其他患者，造成患者死亡的事件。
-
-随后记者展示了前一天中共政府分配的食物。里面除了青菜、水以外没有看到肉制品。居民自己囤积的食物也快要见底，恐怕难以支撑接下来的生活。虽然上海开放了网上订菜的平台，但因为疫情，平台也一直显示“运力不足”，根本无法保证送达时间。
-
-发稿：Daxia
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

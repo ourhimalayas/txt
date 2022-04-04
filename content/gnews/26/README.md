@@ -2,62 +2,42 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.04.04A）——接种疫苗患上甲亢
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2285059/)
+## 前高盛银行家的 1MDB 腐败案最后审判
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2285441/)
 
-整理/编辑：文泓
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-6.png)图片来源：雅典娜设计组
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/YSR5IC5VSFMLPHZEM7O5USYIOU.jpg)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**博主泥家兔小姐：****是病不是命，27岁得甲亢**
+资料来源：路透社
 
-新冠疫苗两针后，都觉得心跳很快，平常基本90-110之间，怕心跳过快会猝死，也不敢跑步了。后来想想还是应该体检一下，结果（查）出来是甲亢。
+结束辩论定于周一在美国对一名前高盛（GS.N）银行家进行审判，该银行家被指控帮助从马来西亚 1MDB 发展基金中掠夺数亿美元。
 
-医生让我吃半个月的药后再去复查，他说一个疗程是2年，真叫人惆怅。
+检方表示，高盛前马来西亚首席投资银行家罗杰·吴（ Ng）帮助他当时的老板蒂姆·莱斯纳从基金中挪用资金，洗钱并贿赂官员，为高盛赢得业务。
 
-**笔记评论****：**
+49 岁的 Ng 对合谋洗钱和违反反腐败法的指控表示不认罪。他的律师 Marc Agnifilo 承认他将 Leissner 介绍给了 Jho Low（刘特佐）， 一名被指控为该计划策划者的马来西亚金融家 – 但表示 Ng 没有参与抢劫 1MDB。
 
-[**CL****凤**](https://www.xiaohongshu.com/user/profile/5c768365000000001001b380)**：**我也是打了疫苗后，一个多月暴瘦，体检甲亢。
+这些指控源于历史上最大的金融丑闻之一。美国检察官说，高盛通过三笔债券销售帮助 1MDB 筹集了 65 亿美元，但其中 45 亿美元通过贿赂和回扣转移给了政府官员、银行家及其同伙。
 
-博主回复：药吃起来吧……
+Ng 是第一个 ，也可能是唯一一个 在美国因该计划面临审判的人。
 
-**冰美式少女****：**我也是疫苗之后的甲亢，也不敢说疫苗不好。
+现年 52 岁的莱斯纳在 2018 年对类似指控认罪，并同意与检察官合作。高盛在 2020 年支付了近 30 亿美元的罚款，并安排其马来西亚子公司在美国法院认罪。
 
-**独语****：**天啊！我也是，5月份刚体检，没见有问题，打完疫苗后几个月就甲亢了。
+在布鲁克林联邦法院近两个月的审判中，陪审员听取了超过两打证人的意见。政府的明星证人莱斯纳在 2 月份作证说，他从该计划中向 Ng 支付了 3500 万美元的回扣。
 
-[**躺够三天三夜**](https://www.xiaohongshu.com/user/profile/5c6435480000000011015492)**：**打了那个喵，不到一个月，浑身累、心跳超级快，手抖出汗，坚持了两周，到医院查出是甲亢。
+他说，两人同意向处理转账的银行提供一个“掩饰故事”，即这笔钱来自两人妻子之间的合法商业活动。
 
-**博主回复：**好多人这样啊……
+Ng 的妻子 Hwee Bin Lim 上周作证说，她在 2000 年代中期向莱斯纳当时的妻子 Judy Chan 家族拥有的一家中共国公司投资了 600 万美元。她说，检方认为 Ng 的回扣 3500 万美元实际上是她的投资回报。
 
-[**躺够三天三夜**](https://www.xiaohongshu.com/user/profile/5c6435480000000011015492)**：**四月刚体检过。
+2018 年与 Ng 一起被起诉的刘特佐仍然逍遥法外。马来西亚当局称刘特佐在中共国，北京对此予以否认。
 
-[**黄黄**](https://www.xiaohongshu.com/user/profile/60fc4dca000000000100ba2d)**：**我也是打了新冠疫苗之后，然后心慌，就查出甲亢。
+🔗[https://www.reuters.com/business/finance/closing-arguments-begin-ex-goldman-bankers-1mdb-corruption-trial-2022-04-04/](https://www.reuters.com/business/finance/closing-arguments-begin-ex-goldman-bankers-1mdb-corruption-trial-2022-04-04/)
 
-**博主回复：**好好吃药吧，我已经好了。
-
-[**微微辣的那种感觉**](https://www.xiaohongshu.com/user/profile/5d940acc0000000001000bb1)**：**16岁得甲亢的路过。
-
-博主回复：现在好了吗？
-
-[**微微辣的那种感觉**](https://www.xiaohongshu.com/user/profile/5d940acc0000000001000bb1)**：**甲减，终身吃药。
-
-抱抱，我昨天住院还在感慨自己三十岁就得甲亢，车房没有还得病，今天就想开了。死不了就好好治
-
-微微辣的那种感觉：甲减，终身吃药。
-
-参考链接：[是病不是命，27岁得甲亢](https://www.xiaohongshu.com/discovery/item/613f43870000000001024691?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1648987090)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+责任编辑、发布： Shuizhuyu
 
  
 

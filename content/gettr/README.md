@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 12:25 PM (UTC)`
+
+4/4/2022Thank you very much to all our brothers and sisters in HongKong, New Zealand, Singapore, Macau, Cambodia, Taiwan🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>iTunes Genres Chart records on the 1st day of release:<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #3 🥉in Hong Kong 🇭🇰 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in New Zealand 🇳🇿 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Singapore 🇸🇬 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈in Macau 🇲🇴 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈”Hcoin To The Moon” hit #4 in Cambodia 🇰🇭 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Taiwan 🇹🇼 🎉🎉🎉🎉🎉🎉🎉<br/>
+![img](https://media.gettr.com/group48/getter/2022/04/04/12/878ad7e1-3e5c-d1e7-35af-3da05e230ac2/0c4c4723ecec05aaeff49bff4c0069e3.jpg)
+
+---
+
+`@miles 4/4/2022 12:22 PM (UTC)`
+
+4月4号衷心的感谢香港，新西兰，新加坡，澳门，柬埔寨，台湾的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>打榜第一天iTunes总榜成绩：<br/><br/>香港🇭🇰《灭共的雪》第一名🥇，《铁锁梦》第三名🥉🎉🎉🎉🎉🎉🎉🎉<br/><br/>新西兰🇳🇿灭共的雪第一名🥇，铁锁梦第二名🥈🎉🎉🎉🎉🎉🎉🎉<br/><br/>新加坡🇸🇬灭共的雪第一名🥇，铁锁梦第二名🥈🎉🎉🎉🎉🎉🎉🎉<br/><br/>澳门🇲🇴铁锁梦第一名🥇，灭共的雪第二名🥈🎉🎉🎉🎉🎉🎉🎉<br/><br/>柬埔寨🇰🇭铁锁梦第一名🥇，灭共的雪第二名🥈Hcoin to the moon第四名🎉🎉🎉🎉🎉🎉🎉<br/><br/>台湾🇹🇼灭共的雪第一名🥇，铁锁梦第二名🥈🎉🎉🎉🎉🎉🎉🎉
+![img](https://media.gettr.com/group20/getter/2022/04/04/12/27ac125b-9fbc-91f0-6733-78abec6a3461/3f23021c746e7c08a00a2bf9af067a09.jpg)
+
+---
+
 `@miles 4/4/2022 9:48 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月3日第30天当日救援统计：<br/>Medyka救援站接待：约336人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8993人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 30 - Date: April 3, 2022 :<br/>Medyka Rescue Station Reception: about 336 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8993 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -140,22 +154,6 @@
 
 4/3/2022 Miles Guo: The current pandemic in mainland China and Hong Kong are indeed caused by the adverse effect of the COVID vaccines; the quarantine measures in Communist China serve as a national rehearsal for the impending COVID vaccine disasters; meanwhile it is also a result of politics within the CCP.<br/><br/>4/3/2022 文贵直播：国内和香港的疫情是由疫苗副作用导致，中共国的隔离措施是为疫苗灾难作准备，同时也是党内政治斗争的结果<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/03/23/b7988529-2431-aff9-c3ae-c5143940eb93/out.jpg)
-
----
-
-`@miles 4/3/2022 11:00 PM (UTC)`
-
-2022.04.03 NFSC News   NFSC’s Live-Casts in Medyka Creates New Media Framework
-![img](https://media.gettr.com/group43/origin/2022/04/03/22/c877f9f0-c3fd-34a3-ac84-e6637268aa8d/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@20minfocus 4/3/2022 6:30 PM (UTC)`
-
-昨日，在英国圣约翰贝德沃丁教堂有一场为乌克兰祈祷和平的演奏会。K.H小战友向英国当地观众介绍了新中国联邦和法治基金的乌克兰救援行动，获得了当地民众的鼓励和掌声。<br/><br/>On April 2nd， a Concert for Peace in Ukraine was organized by local British young musicians at St John in Bedwardine Church. K.H proudly introduced the rescue operation in Ukraine carried out by NFSC and ROLF to the audience and won the encouragement and applause of the local people.
-![img](https://media.gettr.com/group37/origin/2022/04/03/18/e5829ec7-2254-b7c2-2daf-8e4a93884630/out.jpg)
 
 ---
 

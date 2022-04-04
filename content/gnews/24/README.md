@@ -2,50 +2,134 @@
 ---
 
 
-## 塞总统武契奇连任 与中共互称”铁杆“ 不制裁俄罗斯
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2285186/)
+## 郭文贵先生爆料邪恶轴心国时间线（上） Mr. Miles Guo exposed the Timeline of the “axis of evil”（Part 1）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2285579/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-04-下午5.59.28.png)
-图片来自互联网*2020*年*3*月*21*日武契奇迎接中共国医疗队当场亲王中共国五星*”*血旗*“*
-塞尔维亚总统亚历山大·武契奇在周日选举中赢得第二个任期，中塞互称”铁杆“友谊，正如中共一样，塞总统也表示不支持制裁俄罗斯。
+东京樱花团/原创视频组
 
-据贝塔通讯社（Beta）周一（4月4日）报道塞尔维亚进步党总统候选人亚历山大·武契奇（ Aleksandar Vučić） 在选举中赢得 59.26% 的选票，而支持塞尔维亚获胜的联合候选人（ Zdravko Ponos）以 17.76% 排名第二，共和国选举委员会 (REC)今天宣布在 89.12% 的基础上处理投票。
+早在2017年，郭先生就向美国高层警告中共有一个邪恶轴心联盟。
+Mr. Guo warned high-level government officials of the U.S. that the CCP had an “axis of evil” alliance as early as 2017.
 
-据RIK在其网站上报道，NADA联盟候选人Milos Jovanovic以 5.87% 的得票率位居第三，紧随其后的是爱国阵营候选人Bosko Obradovic的 4.42% 和 Zavetnici党候选人 Milica Djurdjevic Stamenkovski 的 4.29% 的得票率。【1】
+2019年7月，郭先生在直播中首次曝光了五国联盟。
+In July 2019, Mr. Guo firstly exposed the Five-Nation Alliance on live tream.
 
-塞尔维亚议会选举得票方面，根据REC网站信息，塞尔维亚进步党（SNS 即武契奇总统所在党）的联盟赢得了最多的选票，43.45% 的选票（122 个席位），塞尔维亚胜利联合联盟获得 13.07% 的选票（36 个席位），塞尔维亚社会党周围的联盟获得 11.68% 的选票（32 个席位），NADA 联盟获得 5.27% 的选票（14 个席位），赢得 4.34%（12 个席位）的莫拉莫联盟、3.85%（10 个席位）的爱国阵营和 3.76%（10 个席位）的捍卫者联盟。
+2019年07月21日
+首次提醒大家重点关注被制裁的五个国家。
+July 21, 2019
+The first time to remind us of focusing on five countries under sanctioned.
 
-**武契奇的塞尔维亚与中共互称****”****铁杆朋友****“****，关系堪称****”****国际关系典范****“**
+2019年08月06日
+五国联盟就是中共买单的草台联盟。
+August 6, 2019
+The Five-Nation Alliance is a grass stage alliance subsidized by the CCP.
 
-2022年2月5日，中共党魁习近平会见塞尔维亚总统武契奇时，指出中塞是“铁杆朋友”，两国有着高度政治互信，双边关系经受风云变幻考验历久弥坚，堪称国际关系典范。
+2019年09月11日
+五国联盟是CCP控制全世界计划的重要一环。
+September 11, 2019
+The Five-Nation Alliance is an important part of CCP’s planning to control the world.
 
-武契奇说：“在中国（中共国），不仅是我，所有塞尔维亚的来客都感觉像在家一样。您可以将塞尔维亚视作真正的朋友，不论有怎样的压力和影响，没有什么能改变我们的铁杆友谊以及我们对中国和中国人民的友好立场。”
+2019年11月04日
+五国联盟是CCP控制全世界计划的重要一环。
+November 4, 2019
+The Five-Nation Alliance is an important part of CCP’s planning to control the world.
 
-中共经常称中共国与巴基斯坦-中巴-”铁杆“兄弟，中共外交部长3月7日北京新闻发布会上也称中共国与俄罗斯”铁杆“友谊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-04-下午5.59.28.png)图片来自互联网*2020*年*3*月*21*日武契奇迎接中共国医疗队当场亲王中共国五星*”*血旗*“*
-**塞尔维亚也是中共”一带一路“-插在欧洲肝脏上吸血管-战略参与国。**据中国商务部统计，2021年塞中双边贸易额达32亿美元，比上年增长54.3%。其中，中国对塞尔维亚出口22.4亿美元，比上年增长37.9%；自塞尔维亚进口9.95亿美元，比2020年增长99.7%。【2】中共国在塞尔维亚的基础设施贷款超过80亿欧元。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-04-下午6.05.13.png)图片来源：互联网
-在联合国大会上，尽管塞尔维亚投票赞成谴责俄罗斯入侵乌克兰和支持乌克兰领土完整的决议，但实际上贝尔格莱德避免对俄罗斯实施经济制裁。
+邪恶五国轴心是CCP控制全世界计划的重要一环，五国联盟在金融、军事、互联网等不同领域都统一步调，积极备战。
+The evil five countries axis is an important part of CCP’s planning to control the world, The Five-Nation Alliance is unified in pace and actively reparing for war in different areas such as finance, military and internet.
 
-据路透社2月25日报道，武契奇周五表示，塞尔维亚尊重乌克兰的领土完整，并认为俄罗斯对乌克兰的军事行动是“错误的”，但不会对莫斯科实施制裁。
+2019年12月26日
+美国准备下一场战争，敌人就是五个邪恶轴心国。
+December 26, 2019
+America is preparing for the next war, and the enemy is the five “axis of evil” nations
 
-武契奇说，国家安全委员会决定塞尔维亚将停止所有与外国军队的军事演习，以保持军事中立。将对在国外作战的公民采取法律行动。【3】
+2020年1月15日
+中俄伊三国军演警醒美国，邪恶联盟就是部分3F方案。
+January 15, 2020
+China-Russia-Iran joint military exercise is alert for U.S. The evil alliance is part of the 3F-Scheme.
 
-郭先生4月4日在大直播爆料：中共正式参与乌战争，将在塞尔维亚部署红旗导弹，红旗反导弹系统。
+2020年1月18日
+邪恶国家都建了互联网防火墙。
+January 18, 2020.
+The Evil countries have all built Internet firewalls.
 
-参考消息：
+2020年1月26日
+CCP建立邪恶轴心的过程与二战希特勒的崛起一模一样。
+January 26, 2020.
+The process of the CCP building an evil axis is the same as the rise of Hitler during World War II.
 
-【1】[RIK：武契奇 59.26% 的选票，波诺斯 17.76](https://beta.rs/izbori2020/izbori2020/161775-rik-vucic-59-26-odsto-glasova-ponos-17-76)
+2020年4月11日
+为什么叫邪恶轴心国。
+April 11, 2020
+Why it’s called the “axis of evil”.
 
-【2】[塞尔维亚和中国将在2022年底前签署自由贸易协定？](https://www.china-briefing.com/news/serbia-and-china-to-sign-free-trade-agreement-by-end-2022/)
+2020年8月26日
+邪恶轴心国的军队都不打疫苗。
+August 26, 2020.
+The army of “axis of evil” are not vaccinated.
 
-【3】[总统称塞尔维亚不会对莫斯科实施制裁](https://www.reuters.com/world/europe/serbia-will-not-impose-sanctions-against-moscow-president-says-2022-02-25/)
+纵观历史，中共的邪恶轴心同盟与二战时希特勒的轴心国联盟如出一辙，美国再次警醒。
+Throughout history, the CCP’s “axis of evil” alliance is the same as Hitler’s Axis alliance in World War II, and the United States is once again waking up.
 
-* * *
+而在全球推广疫苗的情势下，邪恶五国却都选择军队不打疫苗，意欲何为？
+When the global are promoting vaccines, the evil five countries have chosen not to vaccinate their troops, what is their intention?
 
-*编辑&发布：长岛开心*
+战争的脚步越来越近了….
+The war footing is getting closer ….
 
+2021年8月29日
+邪恶轴心征服世界的进攻计划。
+August 29, 2021
+The axis of evil’s planning to attack and conquer the world.
+
+2019年9月10日
+CCP已经被普京绑在一起 ，邪恶轴心的背后是国际邪恶势力。
+September 10, 2019
+The CCP has been tied Putin together The international evil forces are behind the “axis of evil”.
+
+2021年10月05日
+五个邪恶轴心国家与二战的法西斯轴心国如出一辙。
+October 5, 2021
+Five “axis of evil” countries the same as the fascist Axis Powers of World War II.
+
+2022年1月05日
+邪恶轴心国灭白和侵占世界的计划。
+January 5, 2022
+The axis of evil’s plan to destroy white race and invade the world.
+
+2018年开始，郭先生在直播中警告台海必有一战，美国别无选择，必须保卫台湾。
+In the beginning of 2018, Mr. Guo warned on live stream that there would be a war between China and Taiwan, the United States had no choice but to defend Taiwan.
+
+郭先生断言：拿下台湾是CCP控制世界的第一步，也将是CCP灭亡的第二道大门。
+Mr. Guo asserted: Occupying Taiwan is the first step for CCP to control the world, and it will be the second gate for CCP’s demise.
+
+2018年8月16日
+台湾面对统独问题，应该选择的策略。
+August 16, 2018
+When Taiwan faces the issue of unification and independence, the strategy it should choose.
+
+2018年8月16日
+美国高层不愿出兵保护台湾，但道义上别无选择。
+August 16, 2018
+The Top U.S. official is reluctant to send troops to defend Taiwan.
+But there is no moral choice.
+
+2019年4月20日
+CCP拿下台湾是控制世界的第一步。
+April 20, 2019
+CCP’s occupation of Taiwan is the first step to control world.
+
+2019年6月30日
+台湾是CCP死亡的第二道大门。
+June 30, 2019
+Taiwan is the Second Door to CCP’s Death.
+
+继2019年在香港强推国安法后，CCP又欲将魔爪伸向台湾。
+After enforcing the National Security Law in Hong Kong in 2019, the CCP wants to extend its clutches to Taiwan.
+
+为了遏止CCP武力侵台，郭先生及时爆出惊天阴谋 “双龙行动”。
+In order to curb CCP’s forceful invasion of Taiwan, Mr. Guo promptly exposed the shocking conspiracy “Operation Double Dragon”.
+
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
