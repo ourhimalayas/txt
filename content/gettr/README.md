@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/4/2022 3:49 PM (UTC)`
+
+On April 4, Australian media reports that Zheng Jiefu has been expelled from the country due to alleged espionage activities and harming national security. These allegations are part of an investigation by the Australian Security Intelligence Service (ASIO) .<br/><br/>In 2015,  he falsely claimed that his company had been misappropriated by Mr. Miles Guo.<br/><br/>After 2017 VOA "broadcast cutoff," Zheng gave yet another "interview" to the media, claiming that 99% of Mr. Guo's revelations were misinformed and untrue.<br/><br/>Zheng had repeatedly cooperated with pseudo-democracy activists Boxun Media to discredit and smear Mr. Guo. <br/><br/>https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html<br/><br/>
+
+---
+
 `@miles 4/4/2022 3:17 PM (UTC)`
 
 4月4号 澳媒报道郑介甫被澳大利亚安全情报局(ASIO)指控在澳展开间谍活动，危害国家安全，近日已被驱逐出境。<br/><br/>早在2015年郑介甫就出现在澳洲媒体上对郭文贵先生进行抹黑报道。郑介甫向媒体诬称，他价值超过20亿澳元的房地产公司被郭文贵先生与安全部副部长马建联手侵占。<br/><br/>2017年4·19美国之音“断播门”发生后的第二天，郑介甫又接受了媒体的“采访”，诬称郭先生的爆料“都是垃圾，他说的话有百分之九十九是不真实的。”<br/><br/>2017年郑介甫曾多次与伪民运西诺，韦石的博讯媒体合作报道，抹黑造谣郭先生。<br/><br/>中共走狗郑介甫被澳洲政府驱逐，证明西方世界已经觉醒，联合灭共已经开始！<br/><br/>https://gnews.org/zh-hans/2286058/<br/><br/>https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html
@@ -146,13 +152,6 @@
 
 4/3/2022 Miles Guo: Xi Jinping and Putin use their personal relationship to kidnap the people of both countries, and Xi will be the biggest loser in the Russia-Ukraine war; Sharif, with the endorsement of the Chinese Communist Party, will overthrow the sitting president and return to power in Pakistan<br/><br/>4/3/2022 文贵直播：习近平和普京的个人关系绑架两国人民利益，习将是俄乌战争的最大输家；谢里夫得到中共的背书，会将现任总统推下台而重掌巴基斯坦政权<br/>
 ![img](https://media.gettr.com/group19/getter/2022/04/04/01/e2a86a5d-b6e5-c24d-14bd-0f78da6fc678/out.jpg)
-
----
-
-`@miles 4/4/2022 1:08 AM (UTC)`
-
-2022.04.03 晚  新中国联邦 | 新闻访谈   从红旗导弹系统谈全球自动灭共态势的形成； 俄军士兵用乌军子弹自残逃避战争； 继续关注墙内被邪恶中共封锁下的民生
-![img](https://media.gettr.com/group36/origin/2022/04/04/01/b32dc30e-5095-1929-e71a-692c51724582/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
