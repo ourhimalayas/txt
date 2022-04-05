@@ -2,35 +2,31 @@
 ---
 
 
-## 美太平洋舰队司令：履行防卫台湾承诺不能松懈
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2292741/)
+## 樱花时政┃众多国家驱逐俄罗斯外交官
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2292943/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月5日中国日报网报道，纽约时间4月4日，德国和法国外交部4日分别决定驱逐俄罗斯外交人员。德国外长贝尔伯克4日发表声明说，德方当天宣布俄驻德使馆“大量”外交人员为“不受欢迎的人”，并已通报俄驻德大使。
 
-整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/众多国家驱逐俄罗斯外交官.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Frs1.huanqiucdn.cn%2Fdp%2Fapi%2Ffiles%2FimageDir%2F0ee181c3ccb88d98bfea9c19214dfa3d.png&amp;imgrefurl=https%3A%2F%2Fworld.huanqiu.com%2Farticle%2F47CIZH1mwK3&amp;tbnid=cFbnpf_QxzquGM&amp;vet=12ahUKEwj4u56h_vz2AhXpg_0HHU46DLYQMygLegUIARDCAQ..i&amp;docid=K2LDkK42fiI55M&amp;w=722&amp;h=406&amp;q=%E4%BF%84%E5%A4%96%E4%BA%A4%E4%BA%BA%E5%91%98&amp;ved=2ahUKEwj4u56h_vz2AhXpg_0HHU46DLYQMygLegUIARDCAQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-503.png)
+贝尔伯克说，德国将进一步收紧现有对俄制裁措施，加大对乌克兰武装部队的支持力度。据德国媒体报道，德方宣布40名俄外交人员为“不受欢迎的人”，并要求他们5天内离境。
 
+据法国媒体报道，法国外交部也在当日发表声明说，法方决定驱逐35名俄外交人员。这些人员的活动“违反了法国安全利益”。据法国媒体报道，法方决定驱逐35名俄外交人员。
 
-4月5日，美国太平洋舰队司令塞缪尔·帕帕罗表示，“中共政府势必从俄乌冲突中学习借鉴，但外界对收复台湾时间点还是难以预测，美国履行防卫台湾、支持台湾强化自卫能力的承诺不能松懈”。他是在与多位来自印太地区国家的驻美记者进行圆桌座谈时说出此番话的。
+在德国和法国宣布将驱逐俄外交官与此同时，比利时驱逐21名俄外交官，荷兰驱逐17名俄外交官，爱尔兰驱逐4名俄外交官，捷克驱逐1名俄外交官，波罗的海三国驱逐了10名俄外交官，波兰驱逐45名俄外交官，拉脱维亚驱逐俄大使、外交降级，立宛驱逐俄大使、外交降级，此时的俄罗斯已被全世界孤立，2022年初始的春天，却是俄罗斯外交的冬天。
 
-当时，台媒记者提问称，“俄罗斯进攻乌克兰遭遇激烈抵抗，美欧与印太多国也联合发动抵制，这会如何影响中共攻占台湾的战略盘算，是可能让北京不敢轻举妄动，还是会让攻台时间表提早？”
+[【德国和法国决定驱逐俄外交人员 俄方表示将做出回应】](https://ml.mbd.baidu.com/r/DZkES7J3ji?f=cp&amp;rs=1953408491&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=424b155e9290de56&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-对此，帕帕罗表示，“毫无疑问，中共会密切关注俄乌情势，试图从中借鉴学习”。他说，但要看中共政府能够从中学到多少，而北京将依此进行调整，积极提升军力。所以，美国不能放松一下，不能在维持印太区域的自由与开放，抑或是“对台湾关系法”、“六项保证”与“美中三个联合公报”的承诺上有所让步。中共攻占台湾的时间点非常难预测，其中牵涉太多复杂因素，需要永远保持警觉。包括捍卫以规则为基础的国际秩序，以及通过支持台湾强化自卫能力，履行美国在中共武力收复台湾对防卫台湾的承诺。
-
-2021年7月8日，美国太平洋司令部召开了高级军事研讨会，当时有多位美军高级将领参加。会上，帕帕罗表示，美军在亚太地区的主要任务就是“保卫台湾”，防止“中共通过武力夺取台湾”。
-
-2021年5月6日，帕帕罗接任太平洋舰队司令，并从中将晋升为上将。
-
-参考链接：[美太平洋舰队司令：履行防卫台湾承诺不能松懈](https://www.163.com/dy/article/H47567PK0515CCSC.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

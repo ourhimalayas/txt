@@ -2,39 +2,34 @@
 ---
 
 
-## 有声|中共部署 “红旗” 导弹 威胁北约空中力量
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292699/)
+## 拜登：“残暴的”普京应该面临战争罪审判
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2292911/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月3日，郭文贵先生在大直播中爆料，中共为支持俄罗斯继续侵略乌克兰，做出了疯狂行动。五天前，中共已将 “红旗” 导弹系列部署到巴尔干地区的塞尔维亚，该地区被称为 “欧洲火药库” ，直接威胁到美国和北约对乌克兰的空中支援。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-2.jpeg)
-郭先生透露，“红旗” 导弹系统是中共偷窃美国“毒刺导弹”技术，而研发的便携式防空导弹，也是中共唯一使用“北斗”定位系统的导弹系列，具有联排、群发和精准度高等特点。
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-14.jpg)
+合众国际社4月4日报道。美国总统拜登周一表示，他希望俄罗斯总统弗拉基米尔-普京最终将因其在乌克兰的战争而面临战争罪审判；鉴于不断升级的暴行，拜登誓言对莫斯科进行更多的经济惩罚。
 
-另外，中共还准备将“红旗”系列导弹部署到中东伊朗、也门以及突尼斯、吉布提等战略咽喉位置，直接威胁美国和北约空中军事力量。
+在乌克兰发生血腥的周末之后，拜登总统周一发表了上述讲话。乌克兰官员称，俄罗斯军队在首都基辅附近的布查（ Bucha）杀害了一些平民。
 
-郭先生认为，中共在巴尔干和中东等战略要塞部署“红旗”导弹，就是直接威胁和挑战美国、北约的空中力量。而美国和北约将别无选择，必须坚决摧毁中共的“北斗”卫星系统。
+拜登呼吁收集显示普京策划了这些暴行的证据，以便将他作为战犯接受审判。
 
+“这个人很残暴，在布查发生的事情令人发指，每个人都看到了。我认为这是一种战争罪。”拜登在华盛顿特区告诉记者。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/7-13.jpg)
+拜登是在周日发现似乎显示乌克兰平民在布卡被草率处决的照片后发表上述评论的。一些照片显示了一个看起来像乱葬岗的地方，以及躺在街上的尸体。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-8.jpg)
+拜登在讲话中呼吁对俄罗斯进行更多制裁，但没有具体说明。自2月24日战争开始以来，美国和其他一些国家已经对俄罗斯和有影响力的俄罗斯官员和寡头进行了严厉制裁。
 
+拜登上个月因为当时谴责普京是战争罪犯而受到一些批评–拜登在周一指出了这一事实。
 
-文字版原文：[中共部署 “红旗” 导弹 威胁北约空中力量](https://gnews.org/zh-hans/2287788/)
+“你可能记得我因为称普京为战犯而受到批评。那么，事情的真相是——你看到了在布查加发生的事情。这证明了他——他是一个战犯，”他说。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+“但我们必须收集信息，我们必须继续向乌克兰提供他们继续战斗所需的武器，我们必须掌握所有细节，以便这成为现实——进行战时审判。”
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“他应该被追究责任。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+周一早些时候，美国驻联合国大使琳达-托马斯-格林菲尔德（s Linda Thomas-Greenfield）在一条推文中说，她将呼吁把俄罗斯从联合国人权理事会除名。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+新闻来源：[https://www.upi.com/Top\_News/US/2022/04/04/joe-biden-vladimir-putin-war-criminal-trial/2221649089293/](https://www.upi.com/Top_News/US/2022/04/04/joe-biden-vladimir-putin-war-criminal-trial/2221649089293/)
 
  
 

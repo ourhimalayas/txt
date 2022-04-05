@@ -2,37 +2,33 @@
 ---
 
 
-## 有声|日本自媒体人被新中国联邦灭共壮举感动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292735/)
+## 乌克兰国防部情报局的现代化作战能力太强了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2292937/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-波兰当地时间4月3日，一位来自日本的自媒体人在米蒂卡，法治基金-新中国联邦的帐篷内，接受了救援前线队员妮可的采访。当这位日本人听到妮可介绍，新中国联邦人是灭共的新中国人时，感到非常震惊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-3.jpeg)
-他用不熟练的英语试图表达他的感受。他说，日本人通常都觉得中国人的形象就是中共政府。这是他生平第一次听到，新中国联邦要消灭中国共产党。他感到非常的印象深刻。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+乌克兰国防部情报局在其网站上公布了列出了1600多个俄罗斯士兵的姓名、出生日期、军衔和护照号码。
 
-当他听说，一个名叫Miles Guo的中国人正在带领中国人灭共时，他手捂着胸口，接连说了几遍“感动“。他表示，他会用自媒体的方式力挺新中国联邦，传播灭共的使命。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-63.png)（图片源自本文链接）
 
+4月5日FNN综合在线消息：乌克兰国防部公布了一份在首都基辅附近的布查直接参与战争罪行的俄罗斯士兵名单。
 
+4月4日，乌克兰国防部情报局在其网站上公布了驻扎在布查的俄罗斯部队（第64自动狙击旅）的名称和该部队所属士兵名单，因为该部队在布查“直接参与了战争罪行”。
 
-文字版原文：[日本自媒体人被新中国联邦灭共壮举感动](https://gnews.org/zh-hans/2287733/)
+共列出了1600多个士兵的姓名、出生日期、军衔和护照号码。乌克兰国防部谴责说：所有对乌克兰公民犯下罪行的战犯都要接受审判。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+在布查，街道上发现了许多平民的尸体，泽伦斯基总统谴责这是种族灭绝行为，这种侵略行径也遭到了国际社会的批评。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+信息来源： [【速報】ロシア軍兵士1600人以上のリスト公表　ウクライナ国防省「戦争犯罪に直接関与」（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/77d1c16ce1e8827f0b87bbf95b2cb19b89746c02)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
