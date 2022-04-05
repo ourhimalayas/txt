@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 11:07 PM (UTC)`
+
+04/05/2022 on the 2nd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on Australia 🇦🇺 Top Song Charts<br/>#1 🥇 on 19 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月4号, 郭文贵先生两首新歌上线第一天， 《灭共的雪》登榜iTunes<br/>澳大利亚🇦🇺热门歌曲榜首🥇<br/>19国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿热门歌曲榜首🥇<br/>新西兰🇳🇿流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2293435/
+
+---
+
+`@miles 4/5/2022 11:07 PM (UTC)`
+
+2022.04.05 NFSC News  Miles Guo’s New Songs Debuted on iTunes Music Charts
+![img](https://media.gettr.com/group28/origin/2022/04/05/22/a2114106-5079-82ff-8ce0-65ae0100de20/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/5/2022 10:01 PM (UTC)`
 
 新中国联邦 法治基金 飞飞秀救援快报 2022-04-05<br/>For English：gettr.com/post/p13qskw7d05
@@ -140,20 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 4/4/2022 Miles Guo’s GETTR: The COVID vaccine disaster has made Communist China a living hell, and the collapse of Communist China’s real estate market and banks are imminent<br/><br/>4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来<br/>
 ![img](https://media.gettr.com/group44/getter/2022/04/05/03/3e848e59-0a4a-873d-4fee-d9fac6abfe4c/out.jpg)
-
----
-
-`@miles 4/5/2022 3:26 AM (UTC)`
-
-Nicole interviewed volunteer Andrew, who is a veterinarian from southern California. Andrew helped look after a rabbit in the New Federal State of China (NFSC) tent. After Nicole’s introduction to the NFSC and its mission, Andrew said he would tell all his friends at home about it.  He said that if the CCP attacked Taiwan by force, he would join the NFSC’s humanitarian rescue operation.<br/>妮可采访了这位来自美国南加州的兽医义工Andrew。他曾在新中国联邦的帐篷里帮助照料一只兔子。在妮可向他介绍了新中国联邦以及其使命之后，Andrew说他要告诉所有他的朋友。他说，如果一旦中共武力攻打台湾，他会报名参加新中国联邦对台湾人民的人道救援行动。
-![img](https://media.gettr.com/group39/origin/2022/04/05/03/50ba4e18-9b58-6653-4702-d0bc786c87a5/out.jpg)
-
----
-
-`@miles 4/5/2022 3:14 AM (UTC)`
-
-The Story of the New China】A Japanese volunteer came to the tent sponsored by the New Federal State of China & Rule of law Foundation and sent flowers, saying that it was the first time he had seen Chinese people like us.<br/>【新中国联邦人的故事】一位日本志愿者来到新中国联邦和法治基金赞助设立的帐篷内，特意送来鲜花，他说这是他第一次见到像我们这样的中国人
-![img](https://media.gettr.com/group7/origin/2022/04/05/03/cb135848-b10e-8381-a5e7-24b2fa55d17a/out.jpg)
 
 ---
 

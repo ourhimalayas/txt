@@ -2,48 +2,29 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2294005/)
+## 上海宝山区封城居民食物短缺，政府毫无作为
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2294078/)
 
-翻译：土饭团
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/usa-1177272_640-edited-1.png)图片来自网络
+作者：日本方舟农场 Andy5
 
-您若想了解全文报导内容，请点击标题链接
+墙内网友4月4日爆料称，在当下疫情管控期间，上海政府以55-100元的价格，向居家隔离的市民出售蔬菜盲盒。然而很多人拿到手之后发现都是一些已经坏掉的蔬菜。而上海宝山区大场镇并没有发放食物，在很多老年人只能选择一边接受强制隔离，一边挨饿的状况。
 
-**1.[随着乌克兰危机的升级，分析人士警告中共国可能入侵台湾](https://www.foxnews.com/media/red-alert-china-vs-taiwan-fox-nation-martha-maccallum)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11.jpeg)
 
-福克斯新闻4月4日电，随着乌克兰的危机继续升级，分析人士将其与台湾相提并论，并警告中共国入侵这个主权岛屿的可怕可能性。与普京一样，习近平认为台湾已经是中共国的一部分—如果习近平成功拿下台湾，全球影响将是毁灭性的。前中央情报局官员Dan Hoffman强调说：“对我们来说，保持台湾独立是至关重要的战略利益，我们必须向中共国表明，他们入侵台湾将在经济和军事上付出高昂代价。”
+网友在这通投诉电话中指出，工作人员之前给的物资保障热线，一直处于占线状态，无法接通。截止投诉当日，大场镇也没有发放任何物资，且被告知大场镇没有发放物资的计划。此前一日，同在大场镇的保利、顾春小区居民，因不满隔离配给政策自发举行抗议活动。
 
-**2.[众议院军事委员会共和党人敦促Biden在“前所未有的威胁”下增加2023年国防预算](https://www.foxnews.com/politics/house-republicans-biden-increase-2023-defense-budget)**
+经网友爆料，有远在浦东的居民，竟然收到了理应配送宝山区的物资“大礼包”，“宝山区政府“几个大字显得格外刺眼。由于中共当局停止了美团、叮咚等食物代购平台，很多家庭都面临粮食短缺。
 
-福克斯新闻4月4日电，众议院军事委员会的共和党人正在敦促Biden总统增加2023年的国防预算，并警告说，在美国面临“前所未有的威胁”的情况下，国家“无法承受”国家安全的损失。众议院军事委员会所有28名共和党人的领导，阿拉巴马州众议员Mike Rogers周一告诉福克斯新闻：“由于没有考虑到通货膨胀，Biden总统的预算要求将使美国变得虚弱和脆弱。”
+面对这些尖锐的民生矛盾，当地信访工作人员并无有效的解决方案，并拒绝将这些民生问题向上级汇报。
 
-**3.[美国推动暂停俄罗斯在联合国人权机构的资格](https://www.reuters.com/world/urgent-us-pushes-suspend-russia-human-rights-council-2022-04-04/)**
+参考链接：
+1. [牆內上海寶山區大場鎮沒有發放食物！ 寶山區的食物還被送往其他地方](https://www.gettr.com/post/p13hoyj2778)
+2. [https://weibo.com/6738102990/LmSD264HD](https://weibo.com/6738102990/LmSD264HD)
 
-路透社4月4日电，美国驻联合国大使周一表示，美国将要求联合国大会暂停俄罗斯在人权理事会的资格，此前乌克兰指责俄罗斯军队在布查镇杀害了数十名平民。美国称在乌克兰发生了战争罪，美国专家正在收集证据以证明这一点。大会此前已暂停一个国家的安理会成员资格。2011年3月，由于忠于当时的领导人Muammar Gaddafi的部队对抗议者实施暴力，大会一致暂停了利比亚的资格。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-**4.[共和党法案将使国务院披露中共国与普京的合作情况](https://nypost.com/2022/04/01/gop-bill-would-force-disclosure-of-chinas-putin-collaboration/)**
-
-纽约邮报4月1日电，众议院共和党人呼吁国务院向国会提交一份报告，详细说明中共国在俄罗斯入侵乌克兰之前和期间对俄罗斯的支持程度。领导这项工作的共和党众议员Andy Barr在一份声明中说：“中共和克里姆林宫之间的邪恶联盟是对美国和我们盟友的严重威胁。有证据表明，习总书记在入侵前和入侵期间加大了对克里姆林宫的支持。”
-
-**5.[20国集团因俄罗斯问题出现分歧而放弃发表联合声明](https://english.kyodonews.net/news/2022/04/57a5d23a7561-g-20-finance-chiefs-will-not-issue-statement-after-april-20-meeting.html)**
-
-共同社4月4日电，知情人士周一表示，由于在俄罗斯入侵乌克兰后参与该组织的问题上存在冲突，20国集团的财长们决定在4月20日的会议后不发表联合声明。针对莫斯科的侵略行为，美国总统Joe Biden表示，他认为应将俄罗斯从20国集团中剔除，其他一些成员也表达了对该国参与该组织的担忧。
-
-* * *
-
-审核：阿伯塔
-校对：小东
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+总编/编辑/审核：Zion文恩
+校正/发稿：谐趣园
 
  
 
