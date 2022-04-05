@@ -2,38 +2,35 @@
 ---
 
 
-## 国际｜拜登再吁“战争罪审判普京” 将俄从人权理事会除名
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290856/)
+## 中日财经爆┃入股推特 马斯克迷一样的操作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2290915/)
 
-**港台前线 zhong｜2022-4-5**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌战争持续，郭文贵曾于直播中透漏俄乌有和解可能性，且战争可能以其他形式延续一段时间。4日，美国总统拜登再次直呼俄罗斯总统普京为“战犯”（war criminal），呼吁以战争罪审判普京，并表示将提供乌克兰更多武器，对俄国采取更多制裁行动。
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+新中国联邦的 GETTR以其对言论自由的尊重和创新能力，已经为用户提供了颇具影响力的平台。加上Elon Musk提出了建立一个新的社交媒体平台的想法为该领域注入了活力。
 
-欧盟执委会主席冯德莱恩推文表示，欧盟将派遣调查人员前往乌克兰，协助“记录战争罪行”。德国外交部长贝尔伯克则宣布，驱逐40驻德俄国外交官。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-41.png)
 
+近日，马斯克（Elon Musk）提出了建立一个新的社交媒体平台的想法。然后在周一，他收购了 Twitter 本身超过 9% 的股份，令市场大吃一惊。
 
+一直以来Twitter言论自由方面颇受诟病，尤其对前任总统特朗普的关闭账号行为，引起大多民众的反感。去年Twitter的股价从最高80美元爆跌至现在的50美元左右，几乎腰斩，平台用户量雪崩式下滑。在中共病毒流行开始Twitter加大了言论审查的力度，几乎和中共步调一致。
 
-> I spoke with President [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) about the atrocious murder of civilians in Bucha and elsewhere in Ukraine.
->  
-> The EU is ready to send Joint Investigation Teams to document war crimes in coordination with the Ukrainian Prosecutor General.[@Europol](https://twitter.com/Europol?ref_src=twsrc%5Etfw) and [@Eurojust](https://twitter.com/Eurojust?ref_src=twsrc%5Etfw) will support.
-> — Ursula von der Leyen (@vonderleyen) [April 4, 2022](https://twitter.com/vonderleyen/status/1510964491378384898?ref_src=twsrc%5Etfw)
+大多平台用户认为：“我们需要的是言论自由，一个宽容的平台，允许所有言论，只要它不以特定的方式、时间和地点传达针对个人的可操作的、特定的威胁。”
 
+而此次Elon Musk的收购行为引起人们普遍猜测。据分析Elon Musk并不是在寻求获得对Twitter公司的控制权或影响谁控制公司。尽管如此Elon Musk还是在这次的操作中实实在在的赚了11亿美元。
 
+众所周知，健康的市场需要存在合理的竞争，Twitter的做法使市场的竞争环境呈现单一性，亟需有创新的媒体参与进来。新中国联邦的 GETTR以其对言论自由的尊重和创新能力，已经为用户提供了颇具影响力的平台。加上Elon Musk提出了建立一个新的社交媒体平台的想法为该领域注入了活力。
 
-联合国人权理事会2022年3月4日第49/1号决议，成立国际调查委员会，将对“俄罗斯侵略乌克兰涉嫌侵犯和践踏人权及违反国际人道主义法和相关罪行”进行调查。决议做成后，美国和其他40多个国家正在合作调查俄军的可能侵犯、虐待行为。
+一直以来天才马斯克都是传奇一样存在。他具有多数富豪所不具备的，对人类良知的认知能力。其天马行空的创意和雷厉风行的执行力，令世人刮目相看。Elon Musk这次操作的结果我们拭目以待。
 
-## 美呼吁将俄从人权理事会中除名
-
-美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会暂停俄国在人权理事会的席位。他于记者会上明确表示，俄罗斯参与人权理事会是一场闹剧，且俄罗斯不应在人权理事会占据权威地位。
-
-美国驻联合国大使汤玛斯．葛林斐德，将在周三返回纽约后立刻将此事提交安全理事会。
-
-來源｜[UN HUMAN RIGHT](https://www.ohchr.org/en/press-releases/2022/03/president-human-rights-council-appoints-members-investigative-body-ukraine)、[npr](https://www.npr.org/2022/04/04/1090919925/u-s-ambassador-to-the-un-seeks-to-remove-russia-from-the-un-human-rights-council)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

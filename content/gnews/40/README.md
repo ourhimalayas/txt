@@ -2,40 +2,36 @@
 ---
 
 
-## 五角大楼：乌克兰实验室没有进攻性的生物武器
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2290643/)
+## 印澳临时贸易协定将为开放更多行业创造信心
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2290654/)
 
-**撰稿：日本东京方舟农场  子辰**
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-近期，五角大楼一位官员向国会作证说，在美国资助的乌克兰生物实验室里“没有进攻性生物武器”。
+整理/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/india-agencies.jpg)图片来源：The Economic Times
+根据HindustanTimes4月5日报道，澳大利亚高级专员里奥法雷尔（Barry O’Farrell）周一表示，印度和澳大利亚4月2日签署的临时自由贸易协定只是一个“第一阶段的协议”，它将为开放更多的机会创造信心，印度方面将获得澳大利亚大量稀有资源的“前排通道”。
 
-国防部长黛博拉·罗森鲍姆（Deborah Rosenbaum）是负责核、化学和生物防御项目的助理。她在4月1日对众议院情报和特种作战小组委员会（House Subcommittee on Intelligence and Special Operations）表示：“毫无疑问在美国参与的乌克兰实验室里，没有进攻性生物武器。”
+虽然承认农业仍然是两国的一个敏感问题，但奥法雷尔说，加强不同领域的经济合作将有助于建立开放更多行业所需的理解。他说，印度、澳大利亚、日本和美国因新冠大流行病而走到一起，突显了世界上存在的一些负面趋势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-1.jpg)（图片来自大纪元）
+印度-澳大利亚经济合作与贸易协定为印度向澳大利亚市场提供了100%关税项目的零关税出口，使劳动密集型行业受益，并提供更多进入服务空间的机会。其中包括对学生和专业人士的宽松签证规范及印度厨师，瑜伽教师的配额。
 
-据悉，美国国防威胁降低局（Defense Threat Reduction Agency，简称DTRA）资助了乌克兰的实验室。DTRA是美国国防部对付大规模杀伤性武器的一个支持机构。美乌官员都表示，实验室进行研究的目的是防止生物及细菌武器。
+印度消费者和企业将受益于立即取消85%的澳大利亚对印度出口的关税，而澳大利亚消费者将受益于几乎96%的印度出口产品进入免税区。
 
-俄罗斯入侵乌克兰之前，俄罗斯官方媒体就开始指责称，美国资助的乌克兰实验室正在发展生物战武器。
+与此同时，澳大利亚总理斯科特·莫里森 (Scott Morrison)公布的新举措包括为印度对澳大利亚锂和钴储备的投资提供“前排通道”的措施，并为整个印度太平洋地区的安全供应链提供支持。
 
-3月6日，俄罗斯国防部（Russian Ministry of Defense）在Telegram上发表声明，指责乌克兰方面已经销毁了一个正在研究的致病病原体。并声称，这个实验室是由美国国防部资助的。与此同时，中共方面也重复了莫斯科对于乌克兰实验室的指控。
+清洁技术和电动汽车所需的稀土矿物已成为双方合作的一个关键领域。澳大利亚占全球锂产量的55%以上。
 
-随后，世卫组织也在3月份表示，它建议乌克兰卫生部（Ministry of Health in Ukraine）销毁“高威胁性病原体，以防止任何潜在的溢漏发生”。
+在回答有关中共国在澳大利亚拥有重要矿产储量的问题时，奥法雷尔指出，中共国企业“并不拥有澳大利亚大多数重要矿产和稀土矿，因为这些矿产中的大部分还没有开发”。负责监督印度对关键矿产投资的印度部长和来自 Khanij Bidesh India Ltd (KABIL) 的代表团将很快访问澳大利亚进行讨论。
 
-罗森鲍姆告诉美国官员，国防部力求向美国公众及我们的盟友和世界其它地区，及时公布准确和透明的信息。
+新闻来源：[Interim trade pact will create confidence to open up more sectors: Australia](https://www.hindustantimes.com/india-news/interim-trade-pact-will-create-confidence-to-open-up-more-sectors-australian-envoy-101649095943253.html)
 
-她说，俄罗斯人正在利用这些实验室进行“假旗行动”。俄罗斯的目的就是试图为自己在乌克兰使用化学武器的行动进行辩护。
+发布：tianzhihuan
 
-另据，国防威胁降低局的“合作减少威胁项目”（Cooperative Threat Reduction Program）的主任罗伯特·波普（Robert Pope）在今年2月对《原子科学家公报》（Bulletin of the Atomic Scientists）表示，在乌克兰实验室里，可能还储存着前苏联时代的生物武器。他同时警告称，乌克兰的冲突可能会导致危险的致病病原体被意外释放。
-
-波普说，鉴于俄罗斯人对乌克兰生物研究实验室中存储的病原体足够的了解。俄罗斯不会故意把实验室作为直接攻击目标。但确实担心这些病毒可能在俄罗斯入侵期间被意外损坏。
-
-罗森鲍姆作出上述表态后，白宫新闻秘书珍·普萨基（Jen Psaki）警告美国官员，要警惕“俄罗斯可能在乌克兰使用化学或生物武器，或利用这些武器制造‘假旗行动’。”随后，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）和英国国防部也重申了白宫的担忧。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/4/n13695848.htm](https://www.epochtimes.com/gb/22/4/4/n13695848.htm)
-
-总编：老孙
-校对发布：文曦
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

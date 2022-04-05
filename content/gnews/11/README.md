@@ -2,29 +2,40 @@
 ---
 
 
-## 有声｜上海防疫“一团乱” 居委会女官崩溃痛哭录音热传
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2291939/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2291974/)
 
-By:**秘翻新闻**
+整理：枳实
+美工：精灵蓝
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-1.png)图片：雅典娜农场设计组 精灵蓝
+雅典娜疫情更新（2022年 4月4日）
 
-**2022-04-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-19.png)
-[新唐人](https://www.ntdtv.com/gb/2022/04/04/a103391874.html)4月05日报道，中共国上海疫情大爆发，当局的政治防疫和官员无能令局面混乱不堪。网传电话录音显示，一名居委会女官面对居民质问，崩溃大哭。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-497.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-498.png)
+[2022年4月4日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月4日改进.pdf)
 
-通话内容显示，该社区居委会电话根本打不进去，该女住户拨打的是女书记的个人手机。女书记开始还用我们会及时上报等官话推诿。在女住户一再质问之下，女书记也开始诉苦，称居委会每天也在上报，但上海所有的方舱医院，包括还没造好的都已经爆满，阳性者根本送不出去。她给上级打电话，对方根本都不接。
+数据来源：
 
-该女书记最后开始哭诉，说自己与普通住户相比，只多了一套防护服，却要接触大量人员，也在担心感染。她也是把孩子扔在家里出来上班，对这个工作真的无能为力了，还称现在工作已经不是工作了，是在送命。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-通话中，女书记提及上海市防疫政策的错误，并称再这样下去是要大乱了。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-上述视频在网络热传，引发网民热议。有人对基层官员的无奈表示同情，称自己这边的文汇小区也一塌糊涂。北蔡所有的书记都已经崩溃了，因为平时没有这种极端情况的，渐渐的你就会发现在基层谁都很苦，除了等待外部救援别无它法。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-秘翻新闻 二丫编辑报道
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-发布 : 恩典
+[covidlive.com.au](https://covidlive.com.au/)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

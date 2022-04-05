@@ -2,42 +2,28 @@
 ---
 
 
-## 美国停止俄罗斯支付债券以增加对莫斯科的压力
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2291637/)
+## 意大利驱逐30名俄外交官
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2291751/)
 
 翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
 - ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ACX3G62RC5HSLEOVLR2BB2AXNU.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/I7ZZLXQCB5M5RNUBW6CHEQTDSI.jpg)
 
 
 资料来源：路透社
 
-周一，美国阻止俄罗斯政府从美国银行持有的储备中向其主权债务持有人支付超过 6 亿美元的款项，此举意在加大对莫斯科的压力并削弱其持有的美元。
+据塔斯社报道，意大利外交部长路易吉·迪马约周二表示，出于安全考虑，意大利已驱逐了 30 名俄罗斯外交官，俄罗斯将进行报复。
 
-根据俄罗斯 2 月 24 日入侵乌克兰后实施的制裁，俄罗斯央行在美国金融机构持有的外汇储备被冻结。
+在俄罗斯入侵乌克兰之后，其他一些西方政府也采取了类似的措施。
 
-但财政部一直允许俄罗斯政府根据具体情况使用这些资金支付以美元计价的主权债务的息票。
+意大利周二召见了俄罗斯驻外交部大使，告诉他这些外交官正在被驱逐。
 
-据美国财政部发言人称，周一，随着最大一笔款项到期，包括到期债券的 5.524 亿美元本金支付，美国政府决定切断莫斯科获得冻结资金的渠道。
+“该措施与其他欧洲和大西洋伙伴达成一致，出于与我们国家安全相关的原因以及在当前俄罗斯对乌克兰的无理侵略造成的危机的背景下，该措施是必要的，”迪马约在 一份声明。
 
-2042 年主权美元债券的 8400 万美元息票支付也将于周一到期。
-
-这位发言人说，此举意在迫使莫斯科做出艰难的决定，即是否将其能够获得的美元用于偿还债务或用于其他目的，包括支持其战争努力。
-
-如果俄罗斯选择不这样做，它将面临历史性的违约。
-
-这位发言人说：“俄罗斯必须在耗尽剩余的宝贵美元储备或新收入或违约之间做出选择。”
-
-一位知情人士称，迄今为止一直作为代理银行处理付款的摩根大通公司（JPM.N）被财政部阻止。
-
-代理银行处理来自俄罗斯的息票支付，将其发送给支付代理以分发给海外债券持有人。
-
-消息人士称，该国有 30 天的宽限期来支付款项。
-
-🔗 [https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/](https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/)
+🔗[https://www.reuters.com/world/europe/italy-expels-30-russian-diplomats-over-security-fears-2022-04-05/](https://www.reuters.com/world/europe/italy-expels-30-russian-diplomats-over-security-fears-2022-04-05/)
 
 责任编辑、发布： Shuizhuyu
 
