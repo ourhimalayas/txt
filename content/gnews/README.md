@@ -15,46 +15,46 @@
 
 ---
 
-### [“魔都”已成魔](/content/gnews/1/README.md)
- ` 纽约香草山MOS03`
-
-### [强国奇闻(14)](/content/gnews/2/README.md)
- ` 纽约香草山MOS03`
-
-### [灭共者之郭氏情报站（46）2022/04/03 文贵大直播](/content/gnews/3/README.md)
- ` MOS Designer香草山设计部`
-
-### [五月花简报（04/05/2022）](/content/gnews/4/README.md)
- ` mayflowertranslate`
-
-### [我来自香港](/content/gnews/5/README.md)
- ` 纽约香草山MOS03`
-
-### [对话](/content/gnews/6/README.md)
- ` 纽约香草山MOS03`
-
-### [4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去](/content/gnews/7/README.md)
+### [4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生](/content/gnews/8/README.md)
+### [“魔都”已成魔](/content/gnews/2/README.md)
+ ` 纽约香草山MOS03`
+
+### [强国奇闻(14)](/content/gnews/3/README.md)
+ ` 纽约香草山MOS03`
+
+### [郭文贵先生眼中俄乌战争的最大输家和赢家](/content/gnews/4/README.md)
+ ` 纽约香草山MOS02`
+
+### [灭共者之郭氏情报站（46）2022/04/03 文贵大直播](/content/gnews/5/README.md)
+ ` MOS Designer香草山设计部`
+
+### [五月花简报（04/05/2022）](/content/gnews/6/README.md)
+ ` mayflowertranslate`
+
+### [我来自香港](/content/gnews/7/README.md)
+ ` 纽约香草山MOS03`
+
+### [4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英国外相利兹·特拉斯表示，“普京不败阵我们决不罢休”](/content/gnews/9/README.md)
+### [英国外相利兹·特拉斯表示，“普京不败阵我们决不罢休”](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵先生盖特精要2022/04/05](/content/gnews/10/README.md)
+### [文贵先生盖特精要2022/04/05](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/11/README.md)
+### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月5日早](/content/gnews/12/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月5日早](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [有声|中共国疫情的爆发是疫苗所致](/content/gnews/14/README.md)
+### [有声|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/14/README.md)
  ` MOSREC`
 
 ### [印度为俄罗斯外长铺设红地毯](/content/gnews/15/README.md)
