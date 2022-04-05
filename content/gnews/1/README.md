@@ -2,11 +2,25 @@
 ---
 
 
-## 4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2294815/)
+## 视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2294826/)
 
-秘密翻译组-北美组
+视频制作： Dawns 
 
+制作团队：大直播短视频组
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
+【视频链接】[https://mega.nz/file/nI53QJib#okILswKbDyLeupK\_jpHUnnF32GS18O2pLTmzmuucVeU](https://mega.nz/file/nI53QJib#okILswKbDyLeupK_jpHUnnF32GS18O2pLTmzmuucVeU)
+
+发稿：Daxia
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
