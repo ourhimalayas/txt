@@ -2,24 +2,37 @@
 ---
 
 
-## 俄罗斯人用封闭胶带，铁丝网和口香糖修补租赁客机
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2291838/)
+## 疫苗灾难爆发 上海港集装箱货物运转受冲击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2291839/)
 
-编译：波士顿五月花—-思澈
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯反航空制裁不归还租赁客机，维修飞机无法获得备件。
+整理/编辑：BENJ1
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/057A8A2B-77C8-4321-8EC4-0BD01D9E31E7.jpeg)
-
-自从俄罗斯入侵乌克兰开始欧盟在2月底对俄罗斯航空实施严厉制裁。租赁公司必须在3月31日前终止与俄罗斯客户的合同，为了避免失去资产，租赁公司必须收回租给俄罗斯客户的飞机，但是普京不归还重新注册占为己有。日常维修飞机需要的备件无法获得，俄罗斯人就地取材用一切可以利用的材料修补飞机为保障飞机继续安全飞行。
-
-素材来源：1）[https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181](https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181)
-
-2）[https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html](https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html)
-
-*发布：思澈*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-349.png)图片来源：雅典娜设计组
 
 
+上海疫苗灾难爆发。作为全球第一大货柜港口，上海港的集装箱货物运转受到直接影响。有从业人员表示，在上海封控期内，集装箱卡车货运基本处于“半瘫痪状态”。
+
+上海道路运输管理局发布通知称，3月29日起，涉及上海港进港运输的集装箱车辆需持有上港集团发放的电子防疫通行证；集装箱卡车司机（下称集卡司机）需同时持有48小时内核酸检测阴性证明和24小时内抗原检测阴性证明。
+
+据《中国新闻周刊》报导，虽然此次封控不关闭港口，但货运效率仍受到较大影响。多名航运从业人员反映，疫情原因使港口工人、集卡司机出入不如以往顺畅，导致货运时效延迟。同时，集装箱卡车的跨省货运受到了直接影响。
+
+多名货运物流公司从业人员表示，在上海封控期内，集装箱卡车货运基本处于“半瘫痪”，车辆很难进入上海，即使进去了，也很难出来。
+
+上海浦东一名货运公司工作人员表示，事实上，并不是集卡司机有核酸阴性证明就可以了，有很多小区现在被封控，居民无法出行，其中也包括集卡司机。另一名居住在浦西的海运货代企业人士3月28日后就一直居家隔离，无法接货。
+
+参考链接：
+
+[疫苗灾难爆发 上海集装箱货物运转受冲击](https://www.epochtimes.com/gb/22/4/4/n13694625.htm)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

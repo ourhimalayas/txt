@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 12:29 PM (UTC)`
+
+2022.04.05 早 新中国联邦 | 新闻   俄乌战争消息更新; 新中国联邦正与国际社会合作灭共
+![img](https://media.gettr.com/group24/origin/2022/04/05/12/ce7f5f95-5795-552c-4cd8-4b850983fcc8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 10:52 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -146,13 +153,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 2022.04.04《The Fringe》 Episode 161
 ![img](https://media.gettr.com/group19/origin/2022/04/04/23/5c3a5bd4-163f-ae18-52ff-73a05a9f5ea3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 11:01 PM (UTC)`
-
-2022.04.04 NFSC  Ukraine has regained full control of Kyiv region
-![img](https://media.gettr.com/group35/origin/2022/04/04/22/df1caba5-a246-db9f-5bb2-6743a5962f7b/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

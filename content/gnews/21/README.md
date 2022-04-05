@@ -2,39 +2,29 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2291974/)
+## 视频|4月3日俄乌交战最新进展
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2291981/)
 
-整理：枳实
-美工：精灵蓝
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-1.png)图片：雅典娜农场设计组 精灵蓝
-雅典娜疫情更新（2022年 4月4日）
+制作：香草山视频部
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/) 全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-497.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-498.png)
-[2022年4月4日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月4日改进.pdf)
+一、在基辅西线，4月2日，虽然从基辅撤退时，俄军遗弃了大量的军事装备，但他们还是成功地撤回了相当一部分兵力。
+乌克兰总参谋部在当地时间4月1日午夜报告说，俄第5、第29和第35集团军以及第155海军陆战旅所部，已经从基辅西北战场撤回到白俄罗斯，第35集团军的第39摩步旅和第36集团军的第5坦克旅负责掩护撤退行动。
+乌军收复大量领土，并开展清理行动。乌克兰国防部副部长汉娜表示，乌克兰公民暂时还不能返回自己的家园，因为乌克兰部队需要甄别和剿灭可能残余的俄军。乌克兰空中突击部队已经控制了普里皮亚季镇和基辅西北与白俄罗斯与之间的部分国境线。
+二、在基辅东线，在切尔尼戈夫市周围的俄军，在4月2日，全部撤入白俄罗斯和俄罗斯的库尔斯克州。俄第41集团军负责掩护撤退的俄军。乌克兰部队则继续追击，在过去24小时内解放了切尔尼戈夫周围几个城镇。
+三、在哈尔科夫和伊久姆，俄军继续炮击哈尔科夫，但没有进行任何地面攻击。俄军在4月1日成功夺取伊久姆后，于4月2日暂停了行动。
+乌克兰总参谋部报告说，俄军在过去24小时内进行集结和休整并建立了一个浮桥，为进一步的进攻行动做准备。报告还说，俄军可能会用第4坦克师和第106近卫空降师在未来几天从伊久姆向东南方向开展进攻行动，与顿巴斯的俄罗斯部队会合。
+四、在顿涅茨克州和卢甘斯克州，乌克兰部队在过去24小时内，击退了俄罗斯的几次大规模进攻，并对俄军造成了重大伤亡，据称摧毁了近70辆俄军车辆。
+这里已经成为俄乌交战的主战场，该地区的乌克兰主力部队后翼和侧翼有一定风险。
+五、在马里乌波尔，4月2日，俄军继续攻占马里乌波尔市中心，并可能在几天内占领该市。
+六、在南部战线，乌克兰总参谋部在当地时间4月2日中午报告说，俄军进行了有限的攻击，以期推进到赫尔松州边界地带。赫尔松东北部的俄军继续炮击克里维里赫（Kryvyi Rih），但没有向该市进攻。俄军在恩纳霍达尔（Enerhodar）强行驱散了一场抗议活动。
+乌克兰总参谋部4月2日另一份报告说，在外涅斯特里亚的俄军开始进入战备状态，有可能进攻乌克兰。虽然，该地俄军不太可能对敖德萨发起没有其他俄军配合的行动，但是可能会通过威胁，从这个方向发起进攻，寻求牵制住敖德萨的乌克兰部队。
+七、乌克兰总参谋部4月2日发布报告评估，参与入侵乌克兰的75个俄罗斯营级战术群中有16个已被完全摧毁，还有34个目前已失去战斗力，并或正在设法恢复战力。外界尚无法确认这些数字。但如果迄今为止投入战斗的三分之二的营级战术群，已暂时或永久失去战斗力，俄军将不太可能在短期内恢复大规模作战行动。
 
-数据来源：
+发稿：qiutian（邱甜）
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
-
-[Our world in data](https://ourworldindata.org/coronavirus-data)
-
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
-
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：tianzhihuan
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
