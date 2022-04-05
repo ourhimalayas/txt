@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：只有竞争下的领域和环境，才是对百姓有利的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294909/)
+## 七哥金句：中共军援俄56个导弹系统的威胁
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294927/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句-20220403-13.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句20220403_9.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

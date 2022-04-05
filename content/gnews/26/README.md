@@ -2,22 +2,18 @@
 ---
 
 
-## 联合国难民署称乌克兰难民已突破420万
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2293923/)
+## 立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2293924/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：纽约香草山 医疗部 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-联合国难民事务高级专员公署（UNHCR）的最新数据显示，自2月24日俄乌战争爆发以来，已有约420万乌克兰人逃离该国，近40,000名难民在邻国登记。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-下午12.43.59-1.png)
-这些数据显示，由于18至60岁有资格服兵役的男性无法离开乌克兰，因此离开乌克兰的难民中有90%是妇女和儿童。
+当地时间4月4日，立陶宛政府宣布，由于俄罗斯军队侵略乌克兰，以及在乌克兰布查镇屠杀平民，犯下战争罪行。 立陶宛将驱逐俄国大使，同时召回立陶宛驻俄大使，降低立俄两国外交关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-下午12.44.05-1.png)
+立陶宛外交部长蓝斯柏吉斯表示，随着俄军局部撤出占领的乌克兰城市，可能将暴露出更多俄军在占领期间迫害乌克兰平民的暴行。
 
-根据联合国国际移民组织（IOM）的数据，除了乌克兰难民外，还有大约 20万名非乌克兰人离开乌克兰，他们在战争开始前就在这个国家生活、工作或学习。
+俄罗斯官方自始就全然否定各国对俄军杀戮戕害乌克兰平民的指控，说是各国在造谣污蔑。 但是陆续从现场所传出各种平民被枪决、性侵、迫害的记录，铁证如山。 俄军所犯下的战争罪行，已开始面临世界各国的声讨及究责，最终将面临国际法庭的审判定罪，为乌克兰无辜受害的平民申张迟来的正义。
 
-国际移民组织宣布，截至 3 月中旬，估计有 648 万人在乌克兰境内流离失所。同时，它使因冲突而流离失所的总人数超过一千万，约占乌克兰总人口的四分之一。
-
-3月底，联合国儿童基金会表示，该国750万儿童中有一半以上流离失所，其中250万在国内，200万在国外。
-
-参考链接：[Nearly 4.2 Million Ukrainian Refugees Have Fled the War So Far, UNHCR Reveals](https://www.schengenvisainfo.com/news/nearly-4-2-million-ukrainian-refugees-have-fled-the-war-so-far-unhcr-reveals/)
+参考链接：[不滿俄羅斯侵烏暴行 立陶宛逐俄大使降外交關係](https://www.cna.com.tw/news/aopl/202204040246.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 

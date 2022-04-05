@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：红旗导弹和反导系统的出现
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294916/)
+## 七哥金句：红旗导弹就是美国的毒刺导弹
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294943/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句20220403_8.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句20220403_10.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

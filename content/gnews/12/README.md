@@ -2,16 +2,10 @@
 ---
 
 
-## 五月花简报（04/05/2022）
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2294592/)
+## 4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2294815/)
 
-编辑：波士顿五月花—冲天一怒
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1AAD804E-9B3B-4FB2-8B1E-BE73A2B63C81.jpeg)
-
-*发布：思澈*
-
-
+秘密翻译组-北美组
 
  
 
