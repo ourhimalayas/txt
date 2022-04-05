@@ -2,30 +2,93 @@
 ---
 
 
-## 白宫：美国及其盟国将对俄罗斯实施新的制裁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2289702/)
+## 众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2290067/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16491242111.png)美国国家安全顾问沙利文（路透社）
-据法国国际广播电台4月4日报道，美国白宫国家安全顾问沙利文宣布，美国及其盟国将对俄罗斯实施新的经济制裁。在俄罗斯入侵乌克兰的战争背景下，美国国务院批准以16.7亿美元的价格向保加利亚出售八架F-16战斗机和弹药，以加强北约成员国的安全。
-
-自俄罗斯2月24日入侵乌克兰迄今，联合国大会已通过2项谴责俄罗斯的决议案，至少140个国家投下赞成票。乌克兰指控俄罗斯军队在布查镇屠杀数百平民，美国驻联合国大使格林菲尔德表示，美国将要求联合国大会将俄罗斯踢出人权理事会。联合国大会193个会员国只要有2/3的票数通过，即可将在理事任期内持续犯下严重系统性侵害人权行径的国家逐出。
-
-普京无端对乌克兰发动战争，造成乌克兰几千人伤亡，几百万人无家可归。俄罗斯军队屠杀手无寸铁的乌克兰布查镇平民坐实了普京本人才是他所指控的“新纳粹”。俄罗斯没有资格继续留任联合国人权理事会成员。普京必将作为战争罪犯接受乌克兰人民和国际法庭的审判。俄罗斯民众也因为普京一个人的决定而不得不承受国际制裁。俄罗斯和中共国邪恶独裁政权不会给人民带来任何和平和利益，也不会促进国家发展，必将被消灭。
-
-新闻参考链接：[白宫：美国及其盟国将在本周宣布对俄罗斯实施新的制裁](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220404-%E7%99%BD%E5%AE%AB-%E7%BE%8E%E5%9B%BD%E5%8F%8A%E5%85%B6%E7%9B%9F%E5%9B%BD%E5%B0%86%E5%9C%A8%E6%9C%AC%E5%91%A8%E5%AE%A3%E5%B8%83%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E5%AE%9E%E6%96%BD%E6%96%B0%E7%9A%84%E5%88%B6%E8%A3%81)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**众议员吉姆·班克斯： **
+我们在新闻中谈论的国家——中（共）国、俄罗斯、乌克兰——正是为亨特·拜登提供了数百万美元资金的国家，这并非巧合。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> It’s not a coincidence that the countries we’re talking about in the news – China, Russia, Ukraine – are the same ones that funneled millions of dollars to Hunter Biden.
+>  [@ffweekend](https://twitter.com/ffweekend?ref_src=twsrc%5Etfw) [pic.twitter.com/RSfb38r5z1](https://t.co/RSfb38r5z1)
+> — Jim Banks (@RepJimBanks) [April 4, 2022](https://twitter.com/RepJimBanks/status/1510997913933168647?ref_src=twsrc%5Etfw)
+
+
+
+**参议员汤姆·科顿： **
+迪士尼赞美中国共产党，并痴迷于在幼儿园教授不合适的内容。 没有人应该听从这样一个道德沦丧的公司的建议。
+
+
+
+> Disney praised the CCP and is obsessed with teaching inappropriate material to kindergarteners. 
+> 
+> No one should take advice from such a morally bankrupt company.
+> — Tom Cotton (@TomCottonAR) [April 4, 2022](https://twitter.com/TomCottonAR/status/1511010432231817216?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克·蓬佩奥：** 
+拜登总统现在才意识到特朗普政府在欧洲的政策是明智的:一场战争才把他从沉睡中唤醒。我们必须释放美国能源的力量。 （转蓬佩奥在美国法律于司法中心网站署名文章：现在是释放美国能源的时候了）
+
+
+
+> President Biden is only now waking up to the wisdom of the Trump Administration’s policies in Europe: It took a war to shake him from his slumber. We must unleash the power of American energy. My latest in ACLJ: [https://t.co/vT0SZh2D2O](https://t.co/vT0SZh2D2O)
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511030852888707085?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥： **
+拜登政府将气候变化置于保护主权和自由之上； 看看乌克兰就知道了。 它必须结束。 让我们再次将美国的安全和经济作为我们的首要任务。 这对美国家庭和全球安全来说是最好的。
+
+
+
+> The Biden Administration has put climate change ahead of protecting sovereignty and freedom; look no further than Ukraine. It must end. Let’s make America's security and economy our priority once again. That is what’s best for American families and global security.
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511071148880056329?ref_src=twsrc%5Etfw)
+
+
+
+**比尔.格茨：** 
+北约/欧盟司令部指挥官托德.沃尔特斯将军呼吁审查导致俄罗斯入侵乌克兰和美国情报误判的美国情报“漏洞” 【转比尔.格茨在华盛顿时报报道：情报失败：战前美国误判俄罗斯弱点、及乌克兰强项 随着冲突发生意想不到的转变，美国北约指挥官称应该缩小情报“差距”】
+
+
+
+> NATO/Eucom commander Gen. Tod Wolters calls for review of ‘gaps’ in US intelligence leading up to the Russian invasion of Ukraine and U.S. intel misjudgments [https://t.co/XcXdEhSZlV](https://t.co/XcXdEhSZlV)
+> — Bill Gertz (@BillGertz) [April 4, 2022](https://twitter.com/BillGertz/status/1511007998755295232?ref_src=twsrc%5Etfw)
+
+
+
+**参议员瑞克.斯科特： **
+我对普京在 布查和基辅周边社区屠杀无辜儿童和家庭感到恶心。总统[@POTUS](https://twitter.com/POTUS) 必须帮助乌克兰赢得这场战争、并今天就解除他对将飞机转移到乌克兰空军的毫无意义的控制。 【附媒体发布链接：参议员瑞克.斯科特抨击联合国人权理事会的虚伪和反以色列行动】
+
+
+
+> I'm disgusted by Putin's massacre of innocent children & families in Bucha & communities around Kyiv. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) must help Ukraine win this war & lift his senseless hold on the transfer of planes to the Ukrainian Air Force TODAY. [https://t.co/N3H1oaozz8](https://t.co/N3H1oaozz8)
+> — Rick Scott (@SenRickScott) [April 4, 2022](https://twitter.com/SenRickScott/status/1511107258347925509?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本： **
+乔·拜登的幕僚长认为亨特利用他父亲的关系从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 拿钱要好处是可以的。
+
+
+
+> Joe Biden’s chief of staff thinks it’s okay for Hunter to take money from Communist China while exploiting his father’s office. [pic.twitter.com/soP5UbZi5N](https://t.co/soP5UbZi5N)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1511106620033486852?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本：** 
+拜登政府的虚伪并没有结束。 他们的最新特技？结束第42条(大流行期间的边境限制)，因为 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 已经结束，同时却继续迫使美国人在飞机上戴口罩。
+
+
+
+> The hypocrisy coming out of the Biden Administration just doesn’t end. 
+> 
+> Their latest stunt? Ending Title 42 because COVID is over while continuing to force Americans to wear masks on airplanes.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 5, 2022](https://twitter.com/MarshaBlackburn/status/1511153376511373314?ref_src=twsrc%5Etfw)
+
+
 
  
 

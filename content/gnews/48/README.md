@@ -2,28 +2,38 @@
 ---
 
 
-## 俄罗斯军队在乌克兰损失惨重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287615/)
+## 乌克兰部队继续向基辅附近的俄罗斯部队作战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-393.png)图片来源：Gettotext
-据《华盛顿观察家报》4月4日报道，随着乌克兰军队在周末重新控制基辅（Kyiv）地区，乌克兰武装部队周一更新了对俄罗斯士兵阵亡人数的估计，阵亡人数超过了18000人。
+***评论：**加油，顽强的乌克兰人，正义终将胜利。*
 
-据乌克兰武装部队称，自2月24日俄罗斯开始入侵乌克兰至4月3日，俄罗斯的战斗损失包括约18300名人员、147架飞机、134架直升机、647辆坦克、330门火炮、1844辆装甲运兵车、147套多管火箭炮系统、7艘船、1273辆汽车、76辆油轮、92架无人机和54套防空系统。目前，这些数字还没有得到独立核实。
+据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
+4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
 
-乌克兰议员莉希亚·瓦西连科（Lesia Vasylenko）表示：“18300名俄罗斯军人在乌克兰死亡，但我不为他们中的任何一人感到惋惜”。
+英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
 
-据报道，乌克兰官员称，乌克兰军队已经夺回了基辅周围的30多个城镇和村庄，随着城镇的解放，数百名死亡的平民以及俄罗斯士兵的尸体被发现散落在街道上。
+英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
 
-而周六，在首都基辅西北约23英里处的布卡（Bucha），发现数百名平民被埋在一个万人坑中。由于俄罗斯军队在撤退前与乌克兰军队交战，被摧毁的俄罗斯装甲车和坦克也在该镇的街道上随处可见。
+文章观点仅代表作者个人，与Gnews平台无关。
 
-据联合国人权办公室称，截至周日，自俄罗斯入侵以来，乌克兰至少有1417名平民死亡，包括121名儿童。
+文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
 
-*责编：白夜*
+翻译：洛杉矶盘古农场 – Mike Li
 
-**新闻来源**
+校对：洛杉矶盘古农场 – 轰炸机
 
-[Russian death toll in Ukraine surpasses 18,000: Ukrainian armed forces](https://www.washingtonexaminer.com/news/russian-death-toll-in-ukraine-surpasses-18-000-ukrainian-armed-forces)
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

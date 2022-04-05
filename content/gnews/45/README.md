@@ -2,38 +2,27 @@
 ---
 
 
-## 乌克兰部队继续向基辅附近的俄罗斯部队作战
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
+## 喜币永远是全球最稳定数字货币 将被三国纳入国家储备
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288445/)
 
-***评论：**加油，顽强的乌克兰人，正义终将胜利。*
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+在4月3日的大直播中，文贵先生表示，喜币是未来全球最稳定和升值最快的数字货币，目前已有三个国家要将喜币纳入国家储备货币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-11.jpg)
+郭先生说，某超级能源大国拥有1500亿美元数字货币，其中包括800亿比特币，他们表示即使比特币消失都不会卖出，但做出了三个金融安排。而他们购买喜币的原因，是因为在喜交所发现竟然有六名高管曾在该国任过职，其中包括前国家银行行长在喜联储只当了一个普通高管。更令他们惊讶的是，喜联储用20%黄金作为储备支付，而且还有稳定币。同时，即将上线的H-Pay技术更是全球第一，安全、稳定和隐私是全世界追求的目标。
 
-据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
-4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
+此外，欧洲即将推出数字货币法，而赵长鹏的币安将会遭到全球围剿而消失。郭先生还透露，该能源大国的数字货币将在2028年推出，并把数字货币储备列入了国家主权安全范围，该国和另外两国也将喜币纳入了本国货币储备名单中。
 
-英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
+参考链接：[喜币是并且将永远是全球最稳定的数字货币](https://www.gettr.com/post/p13hcxj36ea)
 
-英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-文章观点仅代表作者个人，与Gnews平台无关。
-
-文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
-
-翻译：洛杉矶盘古农场 – Mike Li
-
-校对：洛杉矶盘古农场 – 轰炸机
-
-评论：洛杉矶盘古农场 – 轰炸机
-
-编辑：洛杉矶盘古农场 – 傻小子
-
-发布：洛杉矶盘古农场 – 子萍
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
