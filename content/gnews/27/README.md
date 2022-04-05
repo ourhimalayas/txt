@@ -2,16 +2,31 @@
 ---
 
 
-## 20220403郭文贵大直播 ：川普2024当选对灭共未必是好事 七哥正在准备明后年爆料革命的大计划
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2290300/)
+## 【秘翻北美时评】上海世博会方仓医院发生火灾
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2290319/)
 
-作者：东京樱花团小视频组
+**By:[秘翻北美时评](https://gettr.com/post/p13ljupc23a)**
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+***[2022-04-05](https://gettr.com/post/p13ljupc23a)***
+
+**今日主题：**
+
+**1.上海世博会方仓医院发生火灾 **
+
+**2.俄推报复性签证措施 **
+
+**3.基辅市长指控俄军在布查镇进行种族灭绝 **
+
+**4.俄乌战争加剧材料短缺导致汽车价格飙升 **
+
+**5.马斯克购买Twitter9%的股份 **
+
+🔗**链接：**[https://gettr.com/post/p13ljupc23a](https://gettr.com/post/p13ljupc23a)
+
+发布：陸柒陸捌
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/zm.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

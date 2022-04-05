@@ -2,32 +2,23 @@
 ---
 
 
-## 樱花时政┃美国将在国际刑事法庭追究普京“战争罪”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2290663/)
+## 疫情｜瑞典扩大第四剂新冠疫苗接种范围
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290728/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美国将在国际刑事法庭追究普京战争罪.png)[图片来源](https://gnews.org/wp-admin/post-new.php?lang=zh-hans#:~:text=Ukraine%20round%2Dup,1%20day%20ago)
+**疫情关注组 zhong｜2022-4-5**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-2.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+2月中旬，瑞典政府仅批准并建议80岁以上族群接种第四剂新冠疫苗。日前，瑞典政府宣布，将批准对65岁以上等特定族群接种第四剂新冠疫苗，其中建议18-64岁患有中度或重度免疫缺陷者接种第四剂疫苗，该国公卫负责人卡琳·泰格马克·威塞尔（ Karin Tegmark Wisell ）表示“第四剂接种一样是防止新冠重症、死亡”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-05-下午2.00.17.png)2022/2 瑞典推行80岁以上族群第四剂后，确诊数量仍急剧上升，故选择开放第四剂接种范围
+此外，她补充说到“瑞典和其他国家感染数显著增加、疫苗对65岁以上老年族群的保护力开始下降”等，因此认为批准更多人接种第四剂疫苗是合理的。据了解，瑞典政府批准65岁以上族群接种第三剂加强剂约四个月前，该国相关单位认为疫苗保护力已随时间推延而减弱。
 
-美国总统国家安全事务助理沙利文4日宣布，将在国际刑事法庭（ICC）和其它领
+公卫负责人卡琳．威塞尔强调，瑞典社会仍存在大量感染传播情形。
 
-域，追究俄罗斯总统普京在乌克兰首都基辅附近的布查杀害众多无辜平民的”战争罪行”。至于具体方法，他表示将与同盟国和友好国进行协商。
+来源｜[nytimes](https://www.nytimes.com/2022/02/14/world/europe/sweden-fourth-covid-vaccine-older-people.html)、[abc](https://abcnews.go.com/Health/wireStory/sweden-give-4th-covid-19-shot-people-65-83858471)
 
-沙利文在新闻发布会上称，国际刑事法庭过去一直是追究战争罪的地方，针对其它冲突也有不同的机制。
+* * *
 
-乌克兰方面要求国际刑事法院对俄罗斯入侵乌克兰的行为进行调查。
-
-信息来源：
-[戦犯追及、ICCなど念頭　米高官、各国と協議へ](text=%E6%88%A6%E7%8)
-
-*编辑：东京樱花团/逢⑦必变
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

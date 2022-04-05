@@ -2,172 +2,50 @@
 ---
 
 
-## “我们不能对此麻木” 国务卿安东尼·布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2290582/)
+## 美国国家卫生研究院删除与中共病毒起源相关信息数据库
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2290615/)
 
-Dana Bash (CNN anchor)
-达纳·巴什（CNN 主播）
+#### 撰稿：彩虹
 
-Worsen new images out of Ukraine this morning
-今天早上乌克兰的景像更糟了
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-3.jpg)图片来源：Miami Standard
+4月4日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）和拉希姆·卡萨姆（Raheem J. Kassam）发布文章，引用《名利场》（Vanity Fair）杂志的调查内容，指克里斯蒂安·安德森（Kristian Andersen），这位从美国国家过敏和传染病研究所所长那里获得价值数百万研究资金的人，同时也是安东尼·福奇（Anthony Fauci）的知己，提出建议秘密删除一篇研究论文，而该研究论文暴露的是NIH（美国国家卫生研究院）删除与中共病毒（COVID-19）起源相关信息的数据库。
 
-as Russian troops pull back from the areas around Kyiv
-随着俄罗斯军队从基辅周围地区撤退
+安德森是斯克里普斯研究所（Scripps Research Institute）的病毒学家，报道说，他在与福奇本人、前NIH院长弗朗西斯·柯林斯（Francis Collins）以及该论文作者杰西·布鲁姆（Jesse D. Bloom）的一次电话会议上提出了这个建议。
 
-and reveal horrors that are shocking to the world
-并揭露震惊世界的恐怖
+布鲁姆是一位进化生物学家，他恢复了一些早期的SARS-CoV-2基因组序列，这些序列在武汉病毒研究所（Wuhan Institute of Virology）的中共研究人员的要求下被NIH删除。在布鲁姆将报告的预印本发给福奇和柯林斯两天后，就安排了这一次Zoom电话会议，而会议的相关细节被《名利场》披露。
 
-warning these images are disturbing
-警告这些图像令人不安
+据报道，柯林斯随后邀请了两位外部科学家参加会议，分别是安德森和病毒学家罗伯特·盖里（Robert Garry）。这两个人都从福奇的机构获过数百万的资金。作为他的客人，布鲁姆也邀请了进化生物学家谢尔盖·庞德（Sergei Pond）和遗传生物学家拉斯姆斯`尼尔森（Rasmus Nielsen）参加该电话会议。
 
-The bodies of at least 20 civilian men shot execution style
-至少20名被枪杀的平民男子的尸体
+《名利场》杂志说，“这就像一场老式的决斗，有几秒钟的时间，布鲁姆当时并没有想太多。但在那次会议的六个月后，他仍然对所发生的事情感到非常困扰，以至于他写了一份详细的报告，对此进行了解释。”
 
-and left line amid rubble in the streets of Bucha outside of Kyiv
-并留在了基辅郊外布哈街道的瓦砾中
+根据布鲁姆对这次被描述为“极具争议性”的电话会议的叙述，安德森提出了要秘密删除该研究论文预印本文件
 
-where a local official told the AFP
-当地官员告诉法新社
+报道说，该研究论文为披露中国共产党试图掩盖该病毒扩散的早期信息提供了证据。但是，就在安德森提出反对这项报告论文的几个月前，他还私下给福奇发邮件，说COVID-19的一些特征“（可能）看起来是被（人工）设计的”。
 
-they’ve already buried nearly 300 people in a mass grave
-他们已经在一个大坑中埋葬了近300人
+而安德森这份邮件是在通过《信息自由法案》（FOIA）的请求下公布的，该邮件是2021年1月31日发出，距离布鲁姆恢复被NIH删除的数据库的五个月前。
 
-A Ukrainian presidential adviser says reports from nearby towns painted a similar quote
-一位乌克兰总统顾问说，来自附近城镇的报道也有类似的引述
+根据《名利场》的报道内容：
 
-“post apocalyptic picture of life under Russian occupation”
-“俄罗斯占领下的世界末日生活图景”
+这时安德森提出了一个令布鲁姆吃惊的建议。他说他是预印本服务器的一名筛选员，他能够接触到尚未公开的论文。然后，他提出要么完全删除预印本，要么以“不留下任何记录的方式”对其进行修改。布鲁姆拒绝了，他说，“鉴于会议的争议性”，他怀疑这两种选择都是不合适的。
 
-US intelligence sources tell CNN
-美国情报来源告诉CNN
+布鲁姆的笔记还描述了安德森在电话中发现预印本“非常令人不安”，使得他和另一位电话参与者开始“互相谩骂”。
 
-the pullback from Kyiv is part of a Russian shift to a narrower goal in Ukraine
-从基辅撤军是俄罗斯转向在乌克兰缩小目标的一部分
+《名利场》为此解释道：“他（安德森）说，如果中共科学家想从数据库中删除他们的序列，而美国国立卫生研究院的政策允许他们这样做，那么布鲁姆进一步分析这些序列就是不道德的”。
 
-that Russia is now aiming to take control of the Donbas regions in eastern Ukraine by early May
-俄罗斯现在的目标是在5月初之前控制乌克兰东部的顿巴斯地区
+而根据布鲁姆提供给《名利场》的电子邮件显示，两名电话参与者也描述了安德森在电话会议中的行为。
 
-The potential shift brings new warnings from a Ukrainian official
-潜在的转变乌克兰官员带来了新的警告
+谢尔盖·庞德在邮件中写道：“尽管克里斯蒂安·安德森试图让你承担罪责（不是100%确定为什么），我认为你所做的是正确的科学方法。”
 
-that their military will face a difficult period of fighting in Ukraine’s eastern regions
-他们的军队将在乌克兰东部地区面临艰难的战斗时期
+而另一位参与Zoom会议的成员在电子邮件中写道：“那是一个非常困难的情况，但我认为你处理得非常好”。
 
-And this morning, Russia struck an oil depot in the Black Sea Port of Odessa
-今天早上，俄罗斯袭击了敖德萨黑海港口的一个油库
+根据布鲁姆的回忆，当时，福奇和柯林斯极力与对同事指令删除该研究论文预印本保持距离，福奇当时说：“仅仅是为了（会议）记录，我想清楚说明，我从未建议你删除或修改预印本”。
 
-which General David Petraeus called the country’s lifeline
-大卫·彼得雷乌斯将军称之为国家的生命线
+报道指出，当安德森努力阻止这篇深入了解中共病毒（COVID-19）起源的论文的发表时，正值主流媒体和公共卫生官员（通常是那些与中国共产党有关系的官员）在开展大规模的运动，以诋毁“实验室泄露”理论。
 
-It’s a reminder that even if troops move east
-这是一个提醒，即使俄罗斯军队向东移动
+**新闻来源**
 
-the deadly Russian missile strikes will likely continue elsewhere
-致命的俄罗斯导弹袭击可能会在其他地方继续攻击
-
-Joining me now is the US Secretary of State Antony Blinken
-现在加入我的是美国国务卿安东尼·布林肯
-
-thank you so much for joining me this morning
-非常感谢你今天早上加入我
-
-So I want to start with those horrific images and reports from Boucher
-所以我想从布哈的那些可怕的图片和报告开始
-
-What is your reaction? And do you see evidence here of crimes against humanity?
-你的反应是什么？ 你在这里看到反人类罪的证据吗？
-
-Antony Blinken (Secretary of State)
-安东尼·布林肯（国务卿）
-
-Dana, you can’t help but see these images as a punch to the gut
-达纳，你很难想象看到这些图像，就如同被挨了一记重拳
-
-And look we’ve said before Russia’s aggression
-看看我们在俄罗斯的侵略之前所说过
-
-that we thought it was likely that they would commit atrocities
-我们认为他们很可能会犯下暴行
-
-since the aggression we’ve come out and said
-自侵略以来，我们已经站出来说
-
-that we believe that Russian forces have committed war crimes
-我们认为俄罗斯军队犯下了战争罪行
-
-and we’ve been working to document that to provide the information
-我们一直在努力记录，以向有关机构和组织
-
-that we have to the relevant institutions and organizations
-提供我们所拥有的信息
-
-that will put all of this together and there needs to be accountability for it
-这将把所有这些放在一起，并且需要对此负责
-
-But I think the most important thing is we can’t become numb to this
-但我认为最重要的是我们不能对此麻木
-
-We can’t normalize this
-我们无法正常化这个态势
-
-This is the reality of what’s going on every single day
-这就是每天发生的事情的现实
-
-as long as Russia’s brutality against Ukraine continues
-只要俄罗斯对乌克兰的暴行继续
-
-That’s why it needs to come to an end
-这就是为什么侵略需要结束
-Dana Bash
-达纳·巴什
-
-And Ukrainian foreign minister said Russia aims to eliminate as many Ukrainians as they can
-乌克兰外长表示，俄罗斯的目标是消灭尽可能多的乌克兰人
-
-Beyond war crimes. Do you see this as genocide?
-超越战争罪, 你认为这是种族灭绝吗？
-
-Antony Blinken
-安东尼·布林肯
-
-Look, we will we will look hard and document everything that we see
-嗯，我们会仔细查看并记录我们所看到的一切
-
-Put it all together
-把它们放在一起
-
-Make sure that the relevant institutions and organizations
-确保相关机构和组织
-
-that are looking at this, including the State Department
-正在研究这个问题的人，包括国务院
-
-have everything they need to assess exactly
-拥有他们需要准确评估的一切
-
-what took place in Ukraine, who is responsible and what it amounts to
-乌克兰发生了什么，谁该负责，这意味着什么
-
-* * *
-
-Date:04/03/2022
-原视频标题: “We can’t become numb to this.” Secretary of State Antony Blinken responds to images of horror in Bucha outside Kyiv, Ukraine, where bodies of Ukrainian civilians littered the streets amid the destruction left by Russian forces
-“我们不能对此麻木” 国务卿安东尼·布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上
-原视频日期：2022/04/03
-原视频链接：[https://twitter.com/cnn/status/1510610029547819008?s=24](https://twitter.com/cnn/status/1510610029547819008?s=24)
-任务编号：KE469（4160）
-视频时间段 : 0:00-2:46
-
-英听校： 洛杉矶盘古农场 — Layka
-翻译： 洛杉矶盘古农场 — Layka
-翻译终校：洛杉矶盘古农场 — Mike Li
-字幕+视频制作：洛杉矶盘古农场 — 天涯行
-审片：洛杉矶盘古农场 — 银龙
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Fauci’s Colleague Offered to Secretly Erase a COVID-19 Paper Containing Data Hidden By China. It Happened During an ‘Extremely Contentious’ Zoom Call Which Saw Scientists ‘Yelling at Each Other’](https://thenationalpulse.com/2022/04/04/fauci-funded-researchers-tried-erasing-covid-paper/)
 
  
 

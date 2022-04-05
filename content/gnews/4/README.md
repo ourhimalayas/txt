@@ -2,40 +2,23 @@
 ---
 
 
-## 五角大楼：乌克兰实验室没有进攻性的生物武器
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2290643/)
+## 疫情｜CIA局长与拜登会面后确诊 经判断拜登非属密切接触者
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290685/)
 
-**撰稿：日本东京方舟农场  子辰**
+**疫情关注组 zhong｜2022-4-5**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-1-1.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+外媒报导，美国中情局（CIA）局长威廉伯恩斯于接种三剂新冠疫苗后，官方确认于上周四确诊新冠病毒，并出现轻微症状。确诊前一天，他曾出席与拜登总统的会议，官方声明中强调“会议上有保持社交距离，并佩戴N95口罩”，依照CDC标准拜登总统非属密切接触者。
 
-近期，五角大楼一位官员向国会作证说，在美国资助的乌克兰生物实验室里“没有进攻性生物武器”。
+确诊后，伯恩斯将在家继续旅行中央情报局局长的职责，经检测阴性五日后将返回办公室。
 
-国防部长黛博拉·罗森鲍姆（Deborah Rosenbaum）是负责核、化学和生物防御项目的助理。她在4月1日对众议院情报和特种作战小组委员会（House Subcommittee on Intelligence and Special Operations）表示：“毫无疑问在美国参与的乌克兰实验室里，没有进攻性生物武器。”
+除中央情报局长外，白宫新闻秘书詹·普萨基、副秘书卡琳·皮埃尔接连被检测出确诊新冠病毒，确诊前与拜登总统的会议有保持社交距离，故拜登总统非属密切接触者范畴。外媒报导称，白宫新闻副秘书卡琳·皮埃尔原计划与拜登总统出访比利时、波兰，经确诊后无法一同出行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-1.jpg)（图片来自大纪元）
+来源｜[CNBC](https://www.cnbc.com/2022/03/31/cia-director-william-burns-test-positive-for-covid-after-biden-meeting.html)
 
-据悉，美国国防威胁降低局（Defense Threat Reduction Agency，简称DTRA）资助了乌克兰的实验室。DTRA是美国国防部对付大规模杀伤性武器的一个支持机构。美乌官员都表示，实验室进行研究的目的是防止生物及细菌武器。
+* * *
 
-俄罗斯入侵乌克兰之前，俄罗斯官方媒体就开始指责称，美国资助的乌克兰实验室正在发展生物战武器。
-
-3月6日，俄罗斯国防部（Russian Ministry of Defense）在Telegram上发表声明，指责乌克兰方面已经销毁了一个正在研究的致病病原体。并声称，这个实验室是由美国国防部资助的。与此同时，中共方面也重复了莫斯科对于乌克兰实验室的指控。
-
-随后，世卫组织也在3月份表示，它建议乌克兰卫生部（Ministry of Health in Ukraine）销毁“高威胁性病原体，以防止任何潜在的溢漏发生”。
-
-罗森鲍姆告诉美国官员，国防部力求向美国公众及我们的盟友和世界其它地区，及时公布准确和透明的信息。
-
-她说，俄罗斯人正在利用这些实验室进行“假旗行动”。俄罗斯的目的就是试图为自己在乌克兰使用化学武器的行动进行辩护。
-
-另据，国防威胁降低局的“合作减少威胁项目”（Cooperative Threat Reduction Program）的主任罗伯特·波普（Robert Pope）在今年2月对《原子科学家公报》（Bulletin of the Atomic Scientists）表示，在乌克兰实验室里，可能还储存着前苏联时代的生物武器。他同时警告称，乌克兰的冲突可能会导致危险的致病病原体被意外释放。
-
-波普说，鉴于俄罗斯人对乌克兰生物研究实验室中存储的病原体足够的了解。俄罗斯不会故意把实验室作为直接攻击目标。但确实担心这些病毒可能在俄罗斯入侵期间被意外损坏。
-
-罗森鲍姆作出上述表态后，白宫新闻秘书珍·普萨基（Jen Psaki）警告美国官员，要警惕“俄罗斯可能在乌克兰使用化学或生物武器，或利用这些武器制造‘假旗行动’。”随后，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）和英国国防部也重申了白宫的担忧。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/4/n13695848.htm](https://www.epochtimes.com/gb/22/4/4/n13695848.htm)
-
-总编：老孙
-校对发布：文曦
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
