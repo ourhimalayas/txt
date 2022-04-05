@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 2:04 AM (UTC)`
+
+2022.04.04  新中国联邦 | 喜财经  美国国债2年期和10年期收益率倒挂；上海疫情失控，上海港大拥堵
+![img](https://media.gettr.com/group7/origin/2022/04/05/02/e96a36b4-b59a-8a85-1188-6f6e9ad9309b/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/5/2022 1:15 AM (UTC)`
 
 2022.04.04 晚  新中国联邦 | 新闻访谈   俄乌战争最新动态； 造谣郭文贵先生的伪类被澳政府遣返
@@ -146,13 +153,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 2022.04.04 早  新中国联邦 | 新闻访谈   苏州惊现新变种病毒；上海“精准抗疫” 让民众深陷苦难；澳洲驱逐中共间谍房地产商
 ![img](https://media.gettr.com/group8/origin/2022/04/04/13/a104f907-69b3-5d6f-d964-f5c4c78acd5d/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/4/2022 12:30 PM (UTC)`
-
-2022.04.04 早 新中国联邦 | 新闻  以色列志愿者将在新中国联邦帐篷内庆祝逾越节；日本自媒体人被新中国联邦灭共壮举感动
-![img](https://media.gettr.com/group27/origin/2022/04/04/11/cc0fe60f-3c71-09b0-8986-9633e2c8eb31/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

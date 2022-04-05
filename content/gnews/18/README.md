@@ -2,20 +2,20 @@
 ---
 
 
-## 2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2289185/)
+## 中共在俄军入侵乌克兰前发动网络攻击
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2289244/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220405快报.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据英国《卫报》4月2日报道，中共在提前知晓俄罗斯入侵乌克兰计划的情况下，于发动战争前夕，对乌克兰主要军事目标及核电厂等关键设施实施了网络攻击。
+
+据悉，包括国防部、金融系统及核基础设施等重要机构在内的600多个乌克兰网站，在俄罗斯入侵前，均遭到中共军方数千次黑客攻击，并在2月23日俄军入侵的前一天达到高峰。
+
+专家指出，情报中所披露的黑客攻击方式符合中共一贯战术，即通过扫描IT基础设施找出漏洞然后发起攻击。牛津大学教授马丁对此表示，中共在俄军发动战争前夕，对乌克兰实行了高强度的网络情报窃取和破坏性攻击，证实了普京当局和习近平政权合谋占领乌克兰的侵略计划。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

@@ -2,11 +2,11 @@
 ---
 
 
-## 文科、大卫、正义小sara在救援现场的实况（五）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289630/)
+## 新中国联邦前线的第一次实战（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289751/)
 
-#### PPT制作：WinterGuo ；开智则立
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-940-950-3_5.jpeg)
+#### PPT制作：0-0 ；rmrf
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-1010-1020-2_1.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

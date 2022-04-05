@@ -2,25 +2,25 @@
 ---
 
 
-## 特鲁多政府治国方针日渐中共化
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289241/)
+## 加拿大社会的两极分化因疫情政策而加重
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289389/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-据加拿大【真北方】4月1日报道，特鲁多的自由党政府在过去两年中，以防控疫情为由违宪扩大了权力，而且至今都未能被该国议会立法加以阻止。
+据【CTV新闻】4月4日报道，萨斯喀彻温大学社会研究中心的最新调查表明，加拿大人对于时事政治问题的观点变得愈加分裂。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-423.png)图片来源：tnc.news
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-426.png)图片来源：CTV.NEWS
 
 
-报道称，尽管特鲁多此前在毫无任何依据的情况下强施《紧急状态法》，以镇压公众的和平抗议运动，限制言论自由并冻结抗议者的银行账户，但到目前为止，最高法院仍未对当局的违宪行为进行调查和制裁。
+报道称，大约四分之三的受访者表示：加拿大社会意识形态的两极分化已越来越明显，其中，超过70%的人认为疫情以及2021 年联邦选举是导致目前社会分裂的最主要因素。而大约 40% 的加拿大人表示，他们因有关疫苗政策或防疫措施的争论而减少了与朋友或家人的联系。
 
-对此，加拿大宪法律师帕迪和经济学家亚当斯表示，由于目前的自由党政府和中共政权在社会信用、新闻自由和治国策略等方面日趋相似，因此，立即制定新的宪法以制约当局权力的无底线扩张已迫在眉睫。
+对此，研究中心的主管杰森表示：尽管在过去两年里，很多不同的观点造成了人们的分歧，但国家领导人和政客们却违背了团结社会的宗旨，并利用这种分裂来谋取各自的政治利益。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [The Chinafication of Canada | True North (tnc.news)](https://tnc.news/2022/04/01/the-chinafication-of-canada/)
+原文链接： [https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868](https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868)
 
  
 
