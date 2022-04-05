@@ -2,57 +2,46 @@
 ---
 
 
-## 突发：乌外长致电王毅商讨粮食安全并质疑中共军援俄罗斯
-` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2290283/)
+## 樱花深度报道┃中共的粮食丝绸之路：谁控制了作物，谁就控制了未来（上）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2290390/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)![](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-04/20220405_news_china-ukraine.jpg?VersionId=msXdLux3ohG1sBmB4OK5GwnrPMq5pCOU&amp;itok=sOntjwip)
-**王毅再次和乌克兰外长德米特罗·库莱巴通话，库莱巴表示，王毅希望结束俄乌战争符合中乌双方利益，并讨论了粮食安全。谈话间，库莱巴援引美国拜登总统的话警告中共对俄军事援助的后果。**
+编译：东京樱花团/Hopkins
 
-据[中共国新华社4日晚](http://www.news.cn/2022-04/04/c_1128532253.htm)间消息，中共外长“王毅应约同乌克兰外长库莱巴通电话。双方重点就乌克兰局势交换了意见。”这是库莱巴一个月前“[呼吁中国外长说服俄罗斯结束战争](https://espreso.tv/kuleba-zvernuvsya-do-ochilnika-mzs-kitayu-iz-prokhannyam-perekonati-rosiyu-pripiniti-viynu-ministr-poobitsyav-doklasti-vsikh-zusil)”后的最新电话会谈。
+【摘要】著名的科学作家朱利安·克里布（Julian Cribb）在他的书籍《即将到来的饥荒》（The Coming Famine）里就警告说，全球粮食短缺指日可待。由于“水资源、土地和能源的短缺，再加上人口和经济发展所造成的需求增长”，这个世界对即将到来的恐怖欠缺准备。北京政府倡导的“粮食丝绸之路”（Food Silk Road）, 是中共采取的旨在重塑全球食品供应链的发展战略。这条路无疑是险恶的，是由严重负债国的悔恨和泪水铺成的。“粮食丝绸之路”是否足以避免一场历史性的危机呢？也只有时间能证明一切吧。
 
-该消息称，王毅表达了中共国在乌克兰问题上的基本态度——劝和促谈。维护和平、反对战争。“在乌克兰问题上，中国不谋求地缘政治私利，没有隔岸观火心态，更不会做火上浇油的事情。”王毅补充说，“战争总会过去，如何痛定思痛，”中共“相信乌方有足够智慧自主作出符合本国人民根本利益的选择。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-450.png)（图片说明）2008年4月16日，中国农民正在北京郊外的田里劳作。（Guang Niu/Getty Images）
 
-- 延*展阅读：*[*乌克兰农业部长奥尔加·特罗菲姆切娃：乌克兰是中国粮食安全的主要来源之一*](https://minagro.gov.ua/news/ukrayina-mozhe-stati-odnim-z-golovnih-dzherel-zabezpechennya-prodovolchoyi-bezpeki-knr-olga-trofimceva)*。*
+在世界上的所有事物中，食物是少数能够让众人团结的一种力量。可一旦食物匮乏，所带来的效应却是截然相反的，它能将人推向疯狂的边缘。
 
+著名的科学作家朱利安·克里布（Julian Cribb）在他的书籍《即将到来的饥荒》（The Coming Famine）里就警告说，全球粮食短缺指日可待。由于“水资源、土地和能源的短缺，再加上人口和经济发展所造成的需求增长”，这个世界对即将到来的恐怖欠缺准备。
 
-另据[乌克兰真理报消息](https://www.pravda.com.ua/news/2022/04/4/7337065/)，“乌克兰外长据[中共国新华社4日晚](http://www.news.cn/2022-04/04/c_1128532253.htm)间消息，中共外长“王毅应约同乌克兰外长库莱巴通电话。双方重点就乌克兰局势交换了意见。”这是库莱巴一个月前“[呼吁中国外长说服俄罗斯结束战争](https://espreso.tv/kuleba-zvernuvsya-do-ochilnika-mzs-kitayu-iz-prokhannyam-perekonati-rosiyu-pripiniti-viynu-ministr-poobitsyav-doklasti-vsikh-zusil)”后的最新电话会谈。
+根据学者莫妮卡·卡帕拉斯（Monica Caparas）的估计，“到2030年，全球粮食作物减产的概率将比现在高出4.5倍，到2050年时将最多高出25倍。”其中风险最大的作物是水稻、玉米、大豆和小麦。
 
-该消息称，王毅表达了中共国在乌克兰问题上的基本态度——劝和促谈。维护和平、反对战争。“在乌克兰问题上，中国不谋求地缘政治私利，没有隔岸观火心态，更不会做火上浇油的事情。”王毅补充说，“战争总会过去，如何痛定思痛，”中共“相信乌方有足够智慧自主作出符合本国人民根本利益的选择。”
+世界上有几个国家，面临作物减产的重大风险。而中国就是其中之一。
 
-- 延*展阅读：*[*乌克兰农业部长奥尔加·特罗菲姆切娃：乌克兰是中国粮食安全的主要来源之一*](https://minagro.gov.ua/news/ukrayina-mozhe-stati-odnim-z-golovnih-dzherel-zabezpechennya-prodovolchoyi-bezpeki-knr-olga-trofimceva)*。*
+眼下，从桂林到广州，由于粮食短缺，老百姓生活艰难。饥民也是危险的人。1906年时，阿尔弗雷德·亨利·刘易斯 （Alfred Henry Lewis）曾说：“人类社会与无政府状态之间，只差了九顿饭。”[中共](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%85%B1.html)深知这一点，因此它拚命尝试建立某种粮食安全机制。
 
+去年，就在秋收季节开始之前，彭博社（Bloomberg）发表了一篇文章，记录了吉林、辽宁和黑龙江三省的情况，提到“中国大约一半的玉米和大豆在这里出产”。
 
-另据[乌克兰真理报消息](https://www.pravda.com.ua/news/2022/04/4/7337065/)，“乌克兰外长德米特罗·库莱巴在与中国外长王毅交谈后指出，北京有兴趣结束乌克兰战争。”他在他的推特上宣布了这一点，并[写道](https://twitter.com/DmytroKuleba/status/1510940800510828550?s=20&amp;t=4H9g39csVhqNXmOEVWP6Ng)：“我感谢我的中国同行对平民伤亡的声援。**我们都坚信结束乌克兰战争符合和平、全球粮食安全和国际贸易的共同利益**”。
+作者警告说，中国长期的能源危机正在制造另一场危机——粮食危机。将这个国家的能源问题与其严重的空气污染问题结合起来，就产生了粮食灾难的诱因。这也就是为什么，[中共](https://www.epochtimes.com/gb/tag/%E4%B8%AD%E5%85%B1.html)长久以来都忙着在世界范围内结盟，好依靠外国土地来提供一些急需的食物。
 
-一位推特账号[@SoKiell](https://twitter.com/SoKiell/status/1510970073531437059?s=20&amp;t=EBWf7BK_7Yei3yJ8Hy6RnQ)先生质询外长库莱巴，“德米特罗先生，您对乌克兰与希特勒之间正在进行的“谈判”以及我们方面接受希特勒作为乌克兰安全保证人的意图有何立场？”显然，这位先生明白那个被称为复活了的希特勒就是习近平。
+你肯定听过中国（中共）的一带一路倡议（One Belt, One Road）。这是中共采取的全球基础设施发展战略。这条路无疑是险恶的，是由严重负债国的悔恨和泪水铺成的。
 
-- *延展阅读：*[*中国允许俄罗斯使用偷来的波音 757-200 (F) 飞机从中国进行定期运输货物*](https://www.pravda.com.ua/news/2022/04/3/7336878/)*。*
+但是，由北京政府倡导的、旨在重塑全球食品供应链的“粮食丝绸之路”（Food Silk Road）又如何呢？
 
+这个项目的资金，来自世界各地的农业投资，以及对新农业技术的收购。这条路从中国出发，进入欧洲，然后穿过[非洲](https://www.epochtimes.com/gb/tag/%E9%9D%9E%E6%B4%B2.html)大陆，途径基加利（Kigali）、拉各斯（Lagos）、洛美（Lomé）、马普托（Maputo）等城市。
 
-- *延展阅读：*[*俄乌战争-习近平终将红旗导弹部署在塞尔维亚等同参战*](https://gnews.org/2285115/)*。*
+（未完待续）
 
+作者简介：
 
-对此事件进一步反应是，[库莱巴在电话中警告了王毅](https://www.eurointegration.com.ua/news/2022/04/4/7137192/)，如你所知，3月份有非官方“谣言”称中国向俄罗斯提供一些与乌克兰战争和制裁有关的军事援助。
+约翰‧麦克‧格里昂（John Mac Ghlionn）是一名研究员和散文作家，其作品发表在《纽约邮报》（New York Post）、《悉尼先驱晨报》（Sydney Morning Herald）、《新闻周刊》（Newsweek）、《国家评论》（National Review）和《美国观察家》（The Spectator US）等国际知名媒体。他还是一位社会心理学专家，对社会功能障碍和媒体操纵等领域有着浓厚的研究兴趣。他的推特是：@ghlionn
 
-欧洲真理报说。并进一步表示，“美国和英国在与北京的会谈中提出了这个问题。” 特别是 3 月 18 日，美国总统乔·拜登在与中国领导人习近平近两个小时的电话交谈中所称，“如果北京在对乌克兰的战争中向俄罗斯提供物质支持将面临的后果。”
+信息来源：[China’s Food Silk Road: Who Controls the Crops Controls the Future](https://www.theepochtimes.com/chinas-food-silk-road-who-controls-the-crops-controls-the-future_4364769.html)
 
-2022年4月5日
-
-校对/发布：东京樱花团/捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)
-**更多资讯，更多关注**：
-
-[俄乌战争：中俄外长分别会见阿富汗塔利班并承认其政权。](https://gnews.org/zh-hans/2270646/)
-
-[NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
-
-[疫苗经济：辉瑞口服 Paxlovid 药首次高价进入中共国医保名录](https://gnews.org/zh-hans/2272625/)
-
-[普京的命根：俄罗斯没了SWIFT系统后石油交易将违约](https://gnews.org/zh-hans/2250301/)
-
-[新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

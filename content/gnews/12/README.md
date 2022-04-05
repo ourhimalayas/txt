@@ -2,16 +2,13 @@
 ---
 
 
-## 20220403郭文贵大直播 ：法治基金捐款者是新中国联邦的根基基础
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2290258/)
+## 中共派军队进驻上海进行疫情维稳
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2290376/)
 
-作者：东京樱花团小视频组
+04/04/2022 印度媒体Wion: 中共派军队进驻上海进行疫情维稳。中共只知道使用武力解决问题。
 
-校对：东京樱花团小视频组
-编辑发布：东京樱花团小视频组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWS.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

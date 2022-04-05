@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group47/origin/2022/04/05/04/ec2d3670-8a91-838b-7763-b48a4901a137/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/5/2022 4:56 AM (UTC)`
+
+4/4/2022 Miles Guo’s GETTR: After going through so much hardship, my two songs finally got launched and immediately topped the iTunes charts in countries such as the US, Canada, Australia, New Zealand, and Taiwan. A certain organization of the United Nations contacted the New Federal State of China to establish the human rights foundations for Ukraine and Communist China. More good news is on the way, and I will do two grand live broadcasts after next Wednesday. The people of Hong Kong have awakened. The fellow fighters on the front line of the Ukraine rescue operation are establishing the image of the New Chinese at every moment.<br/><br/>4/4/2022 文贵盖特：文贵的两首歌历尽千辛万苦终于上线，随即登上美加澳新台等国iTunes榜首；联合国某组织联系新中国联邦建立乌克兰和中共国的人权组织；还有诸多好消息在路上，下周三后有两次文贵大直播；香港人已经觉醒，乌克兰救援前线战友时刻在树立新中国人形象！<br/>
+![img](https://media.gettr.com/group13/getter/2022/04/05/04/8ec3cc1a-8778-97de-56ee-6f24edcc80ca/out.jpg)
+
+---
+
 `@miles 4/5/2022 3:45 AM (UTC)`
 
 4/4/2022 Miles Guo’s GETTR: The COVID vaccine disaster has made Communist China a living hell, and the collapse of Communist China’s real estate market and banks are imminent<br/><br/>4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来<br/>
@@ -141,20 +155,6 @@ Himalaya Washington DC's livestream <br/>Report from NFSC‘s Ukraine rescue<br/
 
 2022.04.04  新中国联邦 | 喜健康   探索美蓝治疗冠状病毒感染，解毒疫苗的可能性
 ![img](https://media.gettr.com/group48/origin/2022/04/04/20/dad20c86-9f12-f49c-c0fe-cfbcf2dcc0cb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 6:16 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group18/origin/2022/04/04/18/d7b21827-087d-7b6c-b8e2-4de329fa0f34/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 4:15 PM (UTC)`
-
-MILES GUO 直播 2022-04-04
-![img](https://media.gettr.com/group1/liveorigin/2022/04/04/16/c555e779-3f47-de1f-5eee-ac373ce30487/db77deaeeaadf94601c75dae84bb7948.jpg)
 
 ---
 
