@@ -2,12 +2,13 @@
 ---
 
 
-## 欧盟谴责俄罗斯，并表示正在研究对俄罗斯的新制裁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2290413/)
+## 采访一名来自美国的兽医志愿者
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2290510/)
 
-04/04/2022 欧盟谴责在俄罗斯军队在乌克兰杀害平民的行为，并表示正在研究对俄罗斯的新制裁
+* * *
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+*翻译/字幕：Rock小哥
+编辑/发布：霹雳鼠年*
 
  
 

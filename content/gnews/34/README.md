@@ -2,25 +2,49 @@
 ---
 
 
-## 喜币永远是全球最稳定数字货币 将被三国纳入国家储备
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288445/)
+## 教宗含蓄批评普京 准备访问基辅
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289614/)
 
-作者：纽约磐石农场—在远方
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在4月3日的大直播中，文贵先生表示，喜币是未来全球最稳定和升值最快的数字货币，目前已有三个国家要将喜币纳入国家储备货币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-11.jpg)
-郭先生说，某超级能源大国拥有1500亿美元数字货币，其中包括800亿比特币，他们表示即使比特币消失都不会卖出，但做出了三个金融安排。而他们购买喜币的原因，是因为在喜交所发现竟然有六名高管曾在该国任过职，其中包括前国家银行行长在喜联储只当了一个普通高管。更令他们惊讶的是，喜联储用20%黄金作为储备支付，而且还有稳定币。同时，即将上线的H-Pay技术更是全球第一，安全、稳定和隐私是全世界追求的目标。
+作者：纽约香草山教育部-Naughty(文行)
 
-此外，欧洲即将推出数字货币法，而赵长鹏的币安将会遭到全球围剿而消失。郭先生还透露，该能源大国的数字货币将在2028年推出，并把数字货币储备列入了国家主权安全范围，该国和另外两国也将喜币纳入了本国货币储备名单中。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-参考链接：[喜币是并且将永远是全球最稳定的数字货币](https://www.gettr.com/post/p13hcxj36ea)
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+教皇方济各4月2日表示，他正在考虑前往基辅，并含蓄地批评俄罗斯总统普京入侵乌克兰。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-429.png)
+
+在飞往马耳他进行为期两天访问的途中，当被问及是否准备访问基辅时，教宗表示正在计划中，但并未提及更多细节。
+
+据报道，教宗已经接收到乌克兰总统泽伦斯基（Volodymyr Zelenskiy）、基辅市长克里契科（Vitali Klitschko）、乌克兰拜占庭礼天主教会（Byzantine-rite Catholic Church）大总主教舍夫丘克（Sviatoslav Shevchuk）以及乌克兰驻教廷大使尤拉什（Andrii Yurash）的访问邀请。他还与乌克兰总统泽连斯基和大总主教舍夫丘克通了电话。
+
+教宗称俄罗斯发起的所谓“特殊军事行动”是一场战争，并不点名的批评了普京，称“一些陷入不合时宜的民族主义利益主张的权贵正再次挑起和煽动冲突”。教宗呼吁人们“在降临人类的战争之夜，不要让和平的梦想褪色。”
+
+参阅链接：
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
 
 
 

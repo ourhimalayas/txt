@@ -2,42 +2,86 @@
 ---
 
 
-## 世界还没有准备好一个新的世界秩序
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2282092/)
+## 参议员玛莎.布莱克本：只能用实力让俄罗斯、中共国、朝鲜和伊朗理解什么是和平
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2283516/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16490132601.png)foreignpolicy.com
-4月3日，CNBC发布了一篇由大西洋理事会主席兼首席执行官，迈克尔·舒曼（Michael Schuman）的评论文章。文章阐述乌克兰战争后，世界将如何重塑新秩序。以及美欧将如何恢复势头，来对抗崛起的中俄邪恶势力。
+**参议员玛莎.布莱克本： **
+在俄罗斯威胁进行核战争之际，拜登总统的预算将迫使削减关键核能力。 俄罗斯、 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、朝鲜和伊朗只通过实力理解和平。 我们必须为我们的军队提供防卫和保护我们的自由所需的资源。
 
-舒曼在大西洋杂志上写道，俄罗斯入侵与中共的疫情封锁，表面来看似乎没有太多共同之处，然而，这两个国家正将世界分成分别以华盛顿和北京为中心的两个领域。
 
-在中东，中共是沙特阿拉伯和阿拉伯联合酋长国的主要贸易伙伴。它们既无意放弃与中共的关系，也无意与俄罗斯决裂。俄罗斯通过预叙利亚战争，拯救了总统巴沙尔·阿萨德（Bashar al-Assad），使其成为坚定盟友。
 
-而自从美国从阿富汗撤军的愚蠢行为之后，其中东伙伴已对美的全球领导地位失去了信心。他们对历任总统在伊朗核协议的摇摆政策感到不满。 中东政府官员从未对美国的决策如此失望过。
+> President Biden’s budget will force cuts to key nuclear capabilities, at a time when Russia is threatening nuclear war. Russia, China, North Korea & Iran only understand peace through strength. We must provide our military the resources they need to defend & protect our freedom.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510735250376298496?ref_src=twsrc%5Etfw)
 
-尽管如此，西方还在尽力援助乌克兰。因为乌克兰的胜利，将会空前地团结起一个强大的西方。人们将重新审视美国的能力，并改善其在大西洋日趋衰微的影响力。相反，如果普京胜利，将加速西方的衰落。
 
-前美国国家安全顾问斯蒂芬·哈德利（Stephen Hadley）认为，这次战争是上个世纪以来第四次尝试建立国际秩序。
 
-一战后，国际联盟通过《凡尔赛条约》进行的第一次努力失败。相反，世界出现了欧洲法西斯主义、美国孤立主义、和全球经济危机。
+**参议员玛莎·布莱克本：** 
+我们不能袖手旁观，任由左派(把他们的思想)灌输给我们的孩子。
 
-二战后，美国及其伙伴通过马歇尔计划和新的多边机构，建立了 “自由国际秩序”。
 
-第三次，在西方取得冷战胜利之后，欧盟和北约扩大。国际秩序更加完善。中国接受了这一秩序，并从中受益。
 
-基辛格在《世界秩序》一书中写道：“所谓的世界秩序是大约四个世纪前，在德国的西欧会议上设计的。它的影响在接下来的几个世纪里得到推广”。世界秩序是，“遵守共同规则和规范、拥抱自由经济制度、放弃领土征服、尊重国家主权以及采用参与式民主政府制度的国家的一个不断扩大的合作秩序”。但该秩序在衰落。
+> We can’t sit back and allow the left to indoctrinate our children.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1510777612909613057?ref_src=twsrc%5Etfw)
 
-反观历史，建立第一个全球的 “真正世界秩序” 的第一步，是美国及其盟友能否通过乌克兰战争来扭转过去一个世纪的衰落趋势。值得反思的是，美国的外交政策很少始终如一。前总统巴拉克·奥巴马的 “幕后领导” ，和前总统唐纳德·川普的 “美国优先” 都突显了这一点。两种方式都是从前总统的 “打造美国全球领导地位” 的理念倒退。
 
-因为前总统川普的选举失败，曾经是亲密盟友的中东国家对美国政治制度的持久性和外交政策产生了怀疑。并对拜登政府将新兴的全球竞争描述为民主与威权的较量感到不满。
 
-总统拜登周四决定，从美国战略石油储备中释放1.8亿桶原油，这被认为是美国对中东伙伴的翻脸。欧佩克组织无视西方 “加快石油开采” 的呼吁，并拒绝将俄罗斯剔除该组织的建议。与此同时，印度，巴西、墨西哥、以色列和阿联酋拒绝了对俄罗斯的制裁。
+**参议员玛莎.布莱克本： **
+不要搞错：在美国，我们正目睹一场文化战争。
 
-为了塑造未来的世界秩序，美国和欧洲首先需要扭转西方国家民主衰落的现象。其余的方面都需要改善。
 
-*责编：白夜*
 
-[原文链接](https://www.cnbc.com/2022/04/03/a-new-world-order-is-emerging-and-the-world-is-not-ready-for-it.html)
+> Make no mistake: we’re witnessing a culture war in America.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 3, 2022](https://twitter.com/MarshaBlackburn/status/1510672033620889603?ref_src=twsrc%5Etfw)
+
+
+
+**国务院发言人内德·普赖斯:** 
+当被问及来自布哈(Bucha) 的可怕图像时，布林肯国务卿@SecBlinken 今天早上告诉CNN记者@CNNSotu，我们不能对此麻木——我们不能使其正常化。 这就是每天都在发生之事的现实，也是克里姆林宫的战争必须结束的原因。 【转CNN推文及视频： “我们不能对此麻木。” 国务布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上。】
+
+
+
+> Asked about the horrifying images coming out of Bucha, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) told [@CNNSotu](https://twitter.com/CNNSotu?ref_src=twsrc%5Etfw) this morning that we can’t become numb to this—we can’t normalize this. This is the reality of what’s going on every single day and why the Kremlin's war needs to end. [https://t.co/PvRBtLUCGE](https://t.co/PvRBtLUCGE)
+> — Ned Price (@StateDeptSpox) [April 3, 2022](https://twitter.com/StateDeptSpox/status/1510712942072848385?ref_src=twsrc%5Etfw)
+
+
+
+**国务卿安东尼·布林肯：** 
+我们强烈谴责克里姆林宫部队在布查(Bucha)和乌克兰各地的明目张胆的暴行。我们正在利用一切可用工具，记录和分享信息，追究责任人的责任。
+
+
+
+> We strongly condemn apparent atrocities by Kremlin forces in Bucha and across Ukraine. We are pursuing accountability using every tool available, documenting and sharing information to hold accountable those responsible.
+> — Secretary Antony Blinken (@SecBlinken) [April 4, 2022](https://twitter.com/SecBlinken/status/1510792047824826372?ref_src=twsrc%5Etfw)
+
+
+
+**众议员兰斯.古登： **
+高油价首先被归咎于大流行病。 
+然后，弗拉基米尔.普京（因此）受到指责。 
+现在，石油公司又遭到指责。 
+
+乔·拜登应该将自己列入被指责的名单。
+
+
+
+> First, the pandemic was blamed for high gas prices.
+> 
+> Then, Vladimir Putin was blamed.
+> 
+> Now, oil companies are being blamed.
+> 
+> Joe Biden should add himself to the list.
+> — Lance Gooden (@Lancegooden) [April 3, 2022](https://twitter.com/Lancegooden/status/1510686257646604289?ref_src=twsrc%5Etfw)
+
+
+
+**美国国务院： **
+国务卿布林肯[@SecBlinken](https://twitter.com/SecBlinken)：乌克兰的农民没能照料他们的庄稼，而是被迫要么为国家的未来和独立而战，要么逃离。 运送粮食的船只由于被俄罗斯侵略的封锁而无法从黑海港口驶出。 【图中文字：国际社会必须增加对俄罗斯的施压以结束这场无端又无理的战争 – 布林肯】
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): Farmers in Ukraine, instead of tending to their crops, have been forced to either fight for their country’s future and independence, or to flee. Ships with grain are not getting out from Black Sea ports because they’re blocked by Russia’s aggression. [pic.twitter.com/RI47Q1JL7u](https://t.co/RI47Q1JL7u)
+> — Department of State (@StateDept) [April 3, 2022](https://twitter.com/StateDept/status/1510603026301599746?ref_src=twsrc%5Etfw)
 
 
 

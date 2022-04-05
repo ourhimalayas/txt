@@ -2,27 +2,53 @@
 ---
 
 
-## 停止喜币场外交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288444/)
+## 欧盟在欧中锋会中表达多项立场及关切台海情势
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289551/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在4月3日的大直播中，文贵先生提醒战友，基于各国相关法律，停止喜币的场外交易。并对此解释，即那些不通过喜交所挂牌，私下跟其他人达成喜币买卖协议的都属于场外交易。
+作者：纽约香草山医疗部-云豹
 
-目前，场外交易面临两个巨大的问题。首先场外交易中出现因锁币无法立即交付，或者是其他原因无法立即将喜币过户的情况。而这样现金只能买到一纸协议，是无法立即交换喜币的非真实交易行为，无论是所在国还是喜交所都有权利没收交易中的资金和喜币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-10.jpg)
-另外，通过借条的形式实行场外交易，却因为借款期间的时长、利息、纳税等问题，触犯当地国家的法律，因此将会终身被所在国的税务机关锁定追踪。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-郭先生强调，在钱的问题上不要投机、不要搞小聪明，每一个拥有喜币的人都需要了解所在国的法律，不要让财富给自己带来不必要的灾难。
 
-参考链接：[2022年4月3日 文贵大直播](https://gettr.com/post/p13c6fub6b6)
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220401185743157-2048x1365-1.jpg)
+
+欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
+
+此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
+
+欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
+
+欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
+
+参阅链接：
+[https://www.cna.com.tw/news/aopl/202204020271.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202204020271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

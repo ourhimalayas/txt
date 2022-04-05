@@ -2,52 +2,163 @@
 ---
 
 
-## 近一半加密货币所有者在 2021 年首次购买数字资产
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2290391/)
+## 乌克兰议会议员克拉夫楚科夫在周六的“唤醒美国”节目中就俄罗斯军队“性侵犯”乌克兰公民发表讲话
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2290507/)
 
-翻译： Jenny Ball
+**Carl Higbie (Newsmax host)
+卡尔·希比 (Newsmax 主持人)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+The fact is that like these cities that are being bombed out right now
+事实是，就像这些现在正在被轰炸的城市
 
+where it’s being fought, you know, person to person combat
+在那里的战斗，你知道，人对人的战斗
 
+It’s like, oh, it’s Cincinnati, it’s Chicago, it’s New York City
+就像, 这是辛辛那提，这是芝加哥，这是纽约市
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-51-edited.png)一家加密货币矿工银行于 2022 年 3 月 8 日在美国宾夕法尼亚州肯纳代尔的 Scrubgrass 工厂运营。照片拍摄于 2022 年 3 月 8 日。REUTERS/Alan Freed/
+They were your cities, these are your lands
+他们是你们的城市，这些是你们的土地
 
-4 月 4 日（路透社） – 根据美国加密货币交易所“双子座”（ Gemini ）的一项新调查，美国、拉丁美洲和亚太地区，几乎一半的加密货币所有者在 2021 年首次购买了数字资产。
+Talk to us about how personal this is
+和我们谈谈这是多么个人感情的事情
 
-报告发现，在 2021 年 11 月至 2022 年 2 月期间对 20 个国家的近 30,000 人进行的调查显示，2021 年是加密货币的重磅一年，尤其是通货膨胀推动了货币贬值国家的采用。
+and and why the American people shouldn’t kind of let this one go by the wayside
+以及为什么美国人民不应该让这一事件被遗忘
 
-“双子座”发现，巴西和印度尼西亚在采用加密货币方面处于世界领先地位，在这些国家中，有 41% 的受访者表示拥有加密货币，而美国和英国的这一比例分别为 20% 和 18%。
+Yevheniya Kravchuk (Ukraine Parliament member)
+叶夫涅尼亚·克拉夫丘克（乌克兰议会议员）
 
-“双子座”发现，去年报告拥有加密货币的人中，有 79% 表示他们选择购买数字资产是出于长期投资潜力。
+Well, it is very personal because my husband
+嗯，这是非常个人感情的事情，因为我已经
 
-目前不拥有加密货币并且生活在货币对美元贬值国家的人表示，他们计划购买加密货币以对冲通胀的可能性是其之前的五倍以上。
+who I haven’t seen for 28 days now is in the region
+28 天没见我的丈夫了，他现在在该地区
 
-只有 16% 的美国受访者和 15% 的欧洲受访者同意加密货币可以对冲通胀，而印度尼西亚和印度的这一比例为 64%。
+He’s had a police departments in one of the cities close to Khekiv
+他在赫基夫附近的其中的一个城市设有一个警察局
 
-在过去五年中，印度卢比兑美元汇率下跌了 17.5%，而印尼卢比兑美元汇率在 2011 年至 2020 年期间贬值了 50%。
+It wasn’t taken by Russians, but they are free in the villages
+它没有被俄罗斯人占领，但俄罗斯人在村庄里是无阻碍的
 
-只有 17% 的欧洲人报告说他们在 2021 年拥有数字资产，而目前不拥有加密货币的人中，只有 7% 表示他们打算在某个时候购买数字资产。
+village by village and in different villages
+一个村一个村，在不同的村子里
 
-今年的采用势头能否跟上步伐还有待观察。
+we are afraid, we’re seeing you know
+我们害怕，我们看到俄罗斯部队
 
-根据 “币虎”（CoinGecko） 的数据，虽然最受欢迎的加密货币比特币在 11 月创下超过 68,000 美元的历史新高，帮助将加密货币市场的价值推高至 3 万亿美元，但到目前为止的2022 年的大部分时间，它的交易价格在 34,000 美元至 44,000 美元之间。
+the horrible atrocities just piles of dead bodies, just on the side of the street
+可怕的暴行，成堆的尸体，就放在街边
 
-新闻来源：[Nearly half of crypto owners first bought digital assets in 2021, survey shows](https://www.reuters.com/technology/nearly-half-crypto-owners-first-bought-digital-assets-2021-survey-2022-04-04/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+Russian soldiers would just tie these people
+俄罗斯士兵会把这些人绑起来
+
+rape them and then shoot and kill
+强奸他们然后开枪杀人
+
+and this is you know, 21st century
+这就是21世纪正在发生的事情
+
+we’re talking about and then you have this story about someone’s smacking someone’s else’s face
+我们正在谈论的，并且你有这个关于某人打别人脸的故事
+
+And you know, I’m sorry to say but for us
+你知道，我很抱歉，但为了我们
+
+it’s like what our country’s on stage right now
+这就像我们国家现在所处的情况一样
+
+Carl Higbie
+卡尔·希比
+
+But I want to be clear about something you just said
+但我想澄清一下你刚才说的话
+
+I’m sorry to interrupt
+很抱歉打断了你
+
+You said there’s sexual assault going on by the Russian troops
+你说俄罗斯军队正在进行性侵犯
+
+Yevheniya Kravchuk
+叶夫涅尼亚·克拉夫丘克
+
+Yes, I mean, they rape even kids
+是的，我的意思是，他们甚至强奸孩子
+
+I mean, we have the information that’s even rape a two years old girl
+我的意思是，我们掌握的信息是他们甚至强奸了一个两岁的女孩
+
+They kept a 15 years old girl for 10 days
+他们把一个15岁的女孩关了10天
+
+and then she’d sort of fleet away and found the volunteers to take her out
+然后她逃跑了，找到志愿者带她逃走
+
+I mean, this is horrible. You can’t really imagine what is going on
+我的意思是，这太可怕了，你真的无法想象发生了什么
+
+Imagine a mom in Mariupol that has to dig out a dead body over two years old daughter
+想象一下，马里乌波尔的一位妈妈不得不将两岁多的女儿的尸体挖出
+
+that shoot was killed by a missile in the theater
+她是在被一枚导弹击中剧院那次袭击杀死的
+
+I’m sorry to say I mean, it’s seven in the morning
+对不起，我的意思是，现在是早上七点
+
+you probably drinking your coffee, but like, it’s horrible what they do
+你可能正在喝咖啡，但是俄罗斯部队的所作所为太可怕了
+
+And the only thing to stop these atrocities is to kick them out
+唯一能阻止这些暴行的就是把他们踢出去
+
+Just give us a tool
+只要给我们一个工具
+
+That’s our message to the administration to the country
+这是我们向美国政府传达的信息
+
+Our counterparts in Congress were met
+在国会会见了我们的同行
+
+give us the tools give us heavy weapons
+给我们工具，给我们重型武器
+
+We need to keep them out of our country
+我们需要让他们离开我们的国家
+
+And that’s how to stop the humanitarian catastrophe
+这就是阻止人道主义灾难的方法
+
+these rapings, these killings, because Putin will not stop in Ukraine
+停止这些强奸，停止这些杀戮，因为普京不会在乌克兰停下来
+
+He’s not stopped
+他没有停止
 
 * * *
 
-审核：文乐
-校对：小东
-发布：五通庙
+Date:04/02/2022
+原视频标题: Ukrainian Parliament member kravchukev speaks on Russian troops ‘sexually assaulting’ Ukrainian citizens, on Saturday’s “Wake Up America”
+乌克兰议会议员克拉夫楚科夫在周六的“唤醒美国”节目中就俄罗斯军队“性侵犯”乌克兰公民发表讲话
+原视频日期：2022/04/02
+原视频链接：[https://twitter.com/newsmax/status](https://twitter.com/newsmax/status)/1510250704169934853?s=24
+任务编号：KE468（4156）
+视频时间段 : 0:00-2:17
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+英听校： 洛杉矶盘古农场 — Layka
+翻译： 洛杉矶盘古农场 — Layka
+翻译终校：洛杉矶盘古农场 — Mike Li
+字幕+视频制作：洛杉矶盘古农 — 文新
+审片：洛杉矶盘古农场 — 银龙
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 

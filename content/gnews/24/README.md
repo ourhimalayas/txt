@@ -2,45 +2,45 @@
 ---
 
 
-## 美国将寻求暂停俄罗斯在联合国人权理事会的资格
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2290238/)
+## COVID-19疫苗副作用集萃（2022.4.5）&#8211;加强针后剧痛
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2290271/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-美国驻联合国大使琳达-托马斯-格林菲尔德周一表示，针对俄罗斯军队在布加和乌克兰其他地方犯下战争罪的指控，美国将寻求暂停俄罗斯在联合国人权理事会的资格。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-444.png)3月31日拍摄的乌克兰布卡的圣安德鲁和皮尔沃兹万诺霍教堂附近的一个可能的乱葬岗的卫星图像。卫星照片。Maxar Technologies
+整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%96%AB%E8%8B%97%E5%89%AF%E4%BD%9C%E7%94%A8.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-大势所趋：乌克兰军队在周末重新占领了基辅地区和该国北部地区。官员和独立摄影师报告说，平民的尸体–有些人的手被绑在背后–散落在布加市的街道上。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-- 卫星图像显示，在布卡的一座教堂内有一条45英尺长的壕沟，那里发现了一个万人坑。
-- 乌克兰总统沃洛基米尔-泽伦斯基将在布查发生的事情称为“种族灭绝”，“现在是尽一切可能使俄罗斯军队的战争罪行成为这种邪恶在地球上的最后表现的时候了。”
-- 法国总统埃马纽埃尔-马克龙、美国国务卿托尼-布林肯等人也谴责了报道的暴行。
-- 俄罗斯国防部拒绝了这些报道。
+帖子原文：
 
+打完加强针第二天
 
-他们在说什么：托马斯-格林菲尔德大使在罗马尼亚说：“在与乌克兰、欧洲国家和联合国其他伙伴的密切协调下，我们将寻求暂停俄罗斯在联合国人权理事会的资格。”她正在罗马尼亚观察帮助来自乌克兰的难民的努力。
+真的有想死的心，胳膊那种酸痛的感觉已经从打针点蔓延到整个上臂，我现在右侧睡都不行！什么时候才能好啊
 
-- 她说：“我向那些勇敢地站在一起的140个国家发出的信息是：从布卡传出的图像和整个乌克兰的破坏要求我们现在用行动来配合我们的言论。”她指的是在3月初投票谴责俄罗斯入侵乌克兰的140多个国家。
-- 她在周日的一条推特上说：“将对这种暴行进行问责和正义。”
+#西安 #疫苗加强针
 
+评论选集：
 
-国际刑事法院上个月对在乌克兰犯下的战争罪、反人类罪和种族灭绝罪的指控进行了调查。
+[小琼困了](https://www.xiaohongshu.com/user/profile/5d157ebf000000001101445b) 回复：
 
-来源：[U.S. to seek Russia’s suspension from UN Human Rights Council](https://www.axios.com/us-russia-suspension-human-rights-council-war-crimes-67062a77-2ccf-4a26-bf17-2245de1db786.html)
+我打的智飞， 现在第四天，针眼那一块肿了一个大硬包，又痒又疼
 
-* * *
+乔英子呼呼啦(作者) 回复 :
 
-审核：Aries的星
-校对：小东
-发布：花羽
+我打的好像是科兴，胳膊真的酸的难受的很
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-443.png)图片来源：小红书
+参考链接:
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+[接种新冠疫苗加强针后剧痛](http://xhslink.com/9JjbAg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+发布：tianzhihuan
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
