@@ -2,27 +2,23 @@
 ---
 
 
-## 【G时新闻】总统拜登称普京为战犯 要求针对布查杀戮事件对普京进行战争罪审判
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2292495/)
+## 有声｜曾支持俄德建天然气管道 德总统首次认错
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292642/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文雅】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-美国总统拜登周一（4月4日）称俄罗斯总统普京为战犯，并表示他将针对布查杀戮事件要求对普京进行战争罪审判。 综合路透社和法新社报道，拜登呼吁对乌克兰首都基辅附近布查镇（Bucha）发生针对平民的暴行进行战争罪审判，并表示他希望对俄罗斯实施更多制裁。拜登称普京总统为“战犯”，还称杀戮为“战争罪”，并告诉媒体应该进行“战争罪审判”。 拜登还说，他将寻求对俄罗斯实施更多制裁。 乌克兰星期天说，在俄罗斯从该地区撤军后，他们在基辅附近城镇发现了数百具散落各处的尸体，并正在调查俄军队可能犯下的罪行。 位于基辅西北部的布查原本是平静的郊区小镇，俄罗斯入侵乌克兰后，这里与邻近城镇成为俄军进攻基辅的障碍，战况甚为激烈。地方当局说，他们被迫挖掘公共坟墓来埋葬街上的死难者，其中一些死者被发现时双手反绑在背。
+By:**秘翻新闻**
 
-盖特链接：[https://gettr.com/post/p13mss9f308](https://gettr.com/post/p13mss9f308)
+**2022-04-05**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/405-8-scaled.jpg)
+[综合外媒](https://todaynationnews.com/for-the-first-time-the-president-of-russia-and-germany-who-supported-the-construction-of-a-natural-gas-pipeline-bridge-admits-his-mistake/)4月5日消息，德国总统史坦麦尔，曾任默克尔执政时期的外交部长，主导对俄政策时间长达15年。史坦麦尔今天特地邀请记者到总统府，坦承自己误判俄罗斯情势。支持兴建天然气管线连结俄国。这是长年主导对俄政策的他首度认错。
 
-编辑/发文 -【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+他表示，兴建北溪天然气2号管线连结俄罗斯，原本是想为两国搭桥。虽然受到警告，德国仍然坚持，现在看来这明显是个错误。他还强调，只要俄罗斯继续由普京统治，双方就不可能回到乌克兰战争以前的关系。
+
+（秘翻新闻 明澈编辑报道）
+
+发布:文橙
+
 * * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
