@@ -2,20 +2,20 @@
 ---
 
 
-## 2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2289185/)
+## 加拿大议员力推监控中共代理人法案
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2289221/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220405快报.jpg)
+加拿大温哥华扬帆农场    平民正道
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据【多伦多星报】4月1日报道，加拿大议员豪萨科斯此前提出了一项建立专门审查机构的法案，以追踪和监控那些代表外国政权非法影响加拿大政府和各界名人的组织或个人。
+
+据悉，该法案将要求所有在加拿大为外国政府牟取利益的组织和个人进行登记。对此，该议员指责[麦泰律师事务所]曾试图帮助华为获得在加拿大5G建设权。并表示：该律师事务所因在加拿大为中共政权服务而必须被注册在案，以备随时审查和追踪。
+
+报道称，近年来中共对加拿大各界的全面渗透和影响日趋严重，并通过其在加拿大的打手，恶意骚扰和恐吓持不同政见者和异议人士。并与加国的政要和官员建立密切利益关系，以培养可能为习近平当局服务的代理人。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

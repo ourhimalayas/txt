@@ -2,11 +2,11 @@
 ---
 
 
-## 爆料革命的一路的艰难和付出（四）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289385/)
+## 共产党和伪类们阻碍救人，那不是谋杀是屠杀！（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289440/)
 
-#### PPT制作：Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-930-940-1_4.jpeg)
+#### PPT制作：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-930-940-2_6.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

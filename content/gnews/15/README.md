@@ -2,20 +2,20 @@
 ---
 
 
-## 加拿大纳税人在疫情中的负担日渐沉重
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2289141/)
+## 2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2289185/)
 
-加拿大温哥华扬帆农场    平民正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220405快报.jpg)
 
-据自媒体【真北方】3月31日报道，加拿大政府在忙于提高各项税赋的同时，还不忘为总理和自由党政府内阁成员以及所有议会政客们大幅加薪。
-
-报道指出，尽管燃油价格持续暴涨，但当局仍分别将每升汽油，柴油和天然气的碳税提高了0.11，0.13和0.10加元。此外，当每年4月1日酒类产品消费税自动提升时，国民还将为啤酒、葡萄酒等酒精类饮品支付更多费用。
-
-据悉，特鲁多在提高税负的同时，不仅为其本人额外增加了7,400 加元年薪，还将所有议会议员的年薪也增加了 3,700 加元。目前，总理的基本工资约为 38万加元，每位内阁部长约为 28万加元，其中并未包括其他额外福利。
-
-* * *
-
-编辑： 平民正道    发布：平民正道
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

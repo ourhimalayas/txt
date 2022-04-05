@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 1:07 AM (UTC)`
+
+2022.04.04 晚  新中国联邦 | 新闻访谈   俄乌战争最新动态； 造谣郭文贵先生的伪类被澳政府遣返
+![img](https://media.gettr.com/group25/origin/2022/04/05/01/e7d09f4d-a89f-1212-990b-5fd7999f149a/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/5/2022 12:29 AM (UTC)`
 
 2022.04.04 晚 新中国联邦 | 新闻   吓尿中共的灭共新歌，第一天iTunes总榜成绩； 墙内疫苗灾难自杀者众 中共第二大投资者转向
@@ -146,13 +153,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 2022.04.04 早 新中国联邦 | 新闻  以色列志愿者将在新中国联邦帐篷内庆祝逾越节；日本自媒体人被新中国联邦灭共壮举感动
 ![img](https://media.gettr.com/group27/origin/2022/04/04/11/cc0fe60f-3c71-09b0-8986-9633e2c8eb31/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 12:25 PM (UTC)`
-
-4/4/2022Thank you very much to all our brothers and sisters in HongKong, New Zealand, Singapore, Macau, Cambodia, Taiwan🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>iTunes Genres Chart records on the 1st day of release:<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #3 🥉in Hong Kong 🇭🇰 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in New Zealand 🇳🇿 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Singapore 🇸🇬 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈in Macau 🇲🇴 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈”Hcoin To The Moon” hit #4 in Cambodia 🇰🇭 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Taiwan 🇹🇼 🎉🎉🎉🎉🎉🎉🎉<br/>
-![img](https://media.gettr.com/group48/getter/2022/04/04/12/878ad7e1-3e5c-d1e7-35af-3da05e230ac2/0c4c4723ecec05aaeff49bff4c0069e3.jpg)
 
 ---
 
