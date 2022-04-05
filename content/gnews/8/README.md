@@ -2,38 +2,25 @@
 ---
 
 
-## 郭文贵先生眼中俄乌战争的最大输家和赢家
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2294745/)
+## 视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2294826/)
 
-作者：纽约香草山媒体部 文扬四海
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-529.png)
+视频制作： Dawns 
 
+制作团队：大直播短视频组
 
-郭文贵先生近日在大直播和盖特透露的重要信息表明中共将是俄乌战争的最大输家，新中国联邦则是最大赢家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/E6393CB3-649A-4FBD-B13A-DBC34391983D.jpeg)
-俄乌战争局势将在接下来的一两周逐步明朗。基本上就是两个结果，一是以中共为首的几个独裁国家担保俄罗斯，美欧等国担保乌克兰，俄乌双方达成和解停战；二是谈判失败，双方持续“尿不停”式战争，即小规模的打打停停，类似巴勒斯坦和以色列的情况。第二个可能性很大，因为普京和习近平可借此大搞内部政治斗争，同时威慑讹诈西方国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
 
-一位世界前十的政治家认为习普二人将是俄乌战争的大赢家，但郭先生根据情报判断习普将是最大输家，因为中共国内各项危机已接近临界爆发点。目前国内多地严重的病毒感染实际就是疫苗反应,真实数据被隐瞒，上海、长春等地甚至用汽化炉就地焚烧尸体；由此导致的大规模封城引发了大量次生灾难，惨剧频发，民众恐慌和愤怒情绪普遍蔓延；围绕各地是否参与救援上海，中共高层内斗加剧；今年将发生比去年更大规模的水灾，国内粮食短缺问题已非常严峻，据未完全确认消息，中共高层已做好饿死五千万到一亿人的准备；国内经济已到崩盘边缘，很多人股市血本无归，楼市断供。一些地方出现了不少盗墓贼, 竟然连现代的坟墓都要偷盗。在这样的情况下，习近平依然与世界为敌，继续为普京的侵略战争输血，导致党内越来越多的人对习不满。
-国际上习总加速师油门不减，末路狂奔。在塞尔维亚及中东一些地区部署了红旗导弹和北斗卫星系统。这已对欧美等国的安全造成了严重威胁和挑战。在中东挑起事端后，中共一定打台湾，而且是快打疯打。郭先生正在极力推动西方能在第一时间出手阻止中共攻台。
+【视频链接】[https://mega.nz/file/nI53QJib#okILswKbDyLeupK\_jpHUnnF32GS18O2pLTmzmuucVeU](https://mega.nz/file/nI53QJib#okILswKbDyLeupK_jpHUnnF32GS18O2pLTmzmuucVeU)
 
-中共在世界的形象和信誉已经一落千丈, 而新中国联邦通过乌克兰人道主义救援等行动在世界舞台展示出超强的实力，已得到越来越多的信任。多个国际组织正在和新中国联邦探讨进一步合作；多位国家政要向郭先生咨询对世界局势的看法; 已有至少三个国家将把喜币纳入国家储备货币；多个国家正在讨论将承认新中国联邦。
-这让中共非常恐惧，所以最近又出巨资雇佣黑手疯狂攻击郭先生和新中国联邦，仅半岛电视台一集节目就花了5000万美元。然而这些下流招数非但不能损伤我们一根毫毛，还间接帮助我们宣传，逆增上缘，我们不必在乎那些诽谤。凡是砸锅和攻击新中国联邦的都不会有好下场，远的不说，近日国内就有傅政华、曲龙等人已完蛋，在国外的郑介甫已被澳大利亚遣返，其他砸郭伪类很快也将是入狱或被遣返的命运。
-
-参考資料：
-
-1. [https://www.gettr.com/post/p13o3f02b76](https://www.gettr.com/post/p13o3f02b76)
-2. [https://www.gettr.com/post/p13l2lsc3b7](https://www.gettr.com/post/p13l2lsc3b7)
-3. [https://www.gettr.com/post/p13c6fub6b6](https://www.gettr.com/post/p13c6fub6b6)
-
+发稿：Daxia
 
 **更多资讯，更多关注**
-[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生**Gettr](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
-
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-530.png)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥金句：人类先知也没有100%准确的
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294858/)
+## 七哥金句：灾难的科技叫墓碑文明
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294892/)
 
 整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句-2022.4.3上半场-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句20220403_5-1.jpg)
 发布：枫叶红了
 **更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)

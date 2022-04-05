@@ -2,49 +2,203 @@
 ---
 
 
-## “魔都”已成魔
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2294766/)
+## 每日快报：泽伦斯基警告说，在乌克兰其他城市发生的暴行还要严重
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2294872/)
 
-作者：紐約香草山农场- 杰西卡爱月亮
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+*作者：*冰川
 
-> 曾经的上海
-> 现在的回忆
-> 熙熙攘攘的弄堂里
-> 历史光影的外滩区
-> 东方明珠塔的耸立
-> 每个上海人和“新”上海人
-> 骄傲都写在他们的笑容里
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
+# ***今日摘要***
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/aa.png)
+1. 泽伦斯基将在联合国安理会发言时呼吁西方提供更多帮助
+2. 五角大楼将向乌克兰派遣10架Switchblade无人机和其他设备
+3. 泽伦斯基警告说，在乌克兰的Borodyanka镇和其他城市发生的暴行比Bucha还要严重
+4. 通货膨胀肆虐，美国人缩减开支
 
 
-> 我们
-> 但是
-> 不幸
-> 万万想不到
-> 这一次突如其来的病毒大规模降临
-> 一个愚昧至极的“精准防疫”
-> 魔都已成“魔”
-> 上海每个人
-> 仿佛被打进“地狱”
+# 重要事件
+
+- ** 04.05. The Hill：**[泽伦斯基将在联合国安理会发言时呼吁西方提供更多帮助 Zelensky to call for more help from West in address to UN Security Council](https://thehill.com/policy/international/3259194-zelesnky-to-call-for-more-help-from-west-in-address-to-un-security-council/)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/bb.png)
+乌克兰总统沃洛基米尔-泽伦斯基周二在联合国安理会的讲话中，将要求西方盟友在该国与俄罗斯的斗争中提供更多帮助。据多方报道，在战争持续到第二个月时，乌克兰总统将在安理会上发言。
+
+泽伦斯基在周一的一段视频中说，随着乌克兰军队瞄准俄罗斯占领的地区，以及俄罗斯军队的撤离，死亡人数可能上升。俄罗斯此前曾表示，其军队将减少在基辅和切尔诺贝利等地区的兵力，以示在和平谈判中的诚意，但乌克兰和美国官员表示，克里姆林宫此举是为了将战斗集中在乌克兰更东部的地区。
+
+泽伦斯基发表讲话时，基辅郊区布查的平民死亡图片引发了国际社会的愤怒，一些官员指责俄罗斯的战争罪行，包括对妇女实施性暴力和处决公民。美国总统拜登周一表示，俄罗斯总统弗拉基米尔-普京应该为他所说的在乌克兰犯下的战争罪行接受审判。五角大楼称这些图像 “令人深感不安”，尽管它说它不能证实在布查发生的暴行。
+
+泽伦斯基称这些行动是种族灭绝。”这些是战争罪，将被世界承认为种族灭绝，”泽伦斯基说。”我们知道有成千上万的人被杀害和折磨，有断肢，有被强奸的妇女和被谋杀的儿童。”海牙的国际刑事法院（ICC）将是可以对普京进行审判的系统，但对其裁决几乎没有执行力。
+
+- ** 04.05.The Hill：**[报道称五角大楼将向乌克兰派遣10架Switchblade无人机和其他设备 Pentagon to send 10 Switchblade drones, other equipment to Ukraine: report](https://thehill.com/policy/international/3259192-pentagon-to-send-10-switchblade-drones-other-equipment-to-ukraine-report/)
+
+
+在乌克兰进入俄罗斯入侵的第二个月之际，五角大楼将向该国发送第二批武器。据多份报告称，美国将发送各种设备以协助乌克兰的防御，包括10架Switchblade无人机，这些无人机配备有坦克破坏性弹头。五角大楼新闻秘书约翰-F-柯比（John F. Kirby）在周一的新闻发布会上说：”我们将继续支持乌克兰的自卫能力。我们将尽我们所能，以最快的速度做到这一点。“
+
+据《福布斯》报道，Switchblade是一种小型无人机，重量不到5磅，安装有一个小型爆炸性弹头。它们被设计用来攻击人员和轻型车辆，可以飞行约6英里，在目标上空盘旋约15分钟。然而，它们一旦被发射出去，就不能被召回。这些装备是五角大楼上周五宣布的3亿美元致命军事援助的一部分，其中还包括战术安全通信系统、非标准机枪和其他防御系统。这项援助是在拜登政府上个月宣布将为乌克兰提供8亿美元的新援助后进行的。该援助提供了800个防空系统，9000个反装甲系统，7000个机枪和霰弹枪等小型武器，以及包括火炮和迫击炮在内的共计2000万发子弹。
+
+- ** 04.05. Washington Examiner：**[Zelensky warns of atrocities worse than Bucha in Ukrainian town of Borodyanka, other cities 泽伦斯基警告说，在乌克兰的Borodyanka镇和其他城市发生的暴行比Bucha还要严重](https://www.washingtonexaminer.com/news/zelensky-warns-of-atrocities-worse-than-bucha-in-ukrainian-town-of-borodyanka-other-cities)
+
+
+乌克兰总统沃洛基米尔-泽伦斯基周一告诫世界，在布查（Bucha）发生的数百名平民的明显屠杀可能不是俄罗斯军队在乌克兰犯下的最严重的暴行。泽伦斯基在周一的晚间讲话中说，随着乌克兰官员对最近解放的城镇的损失进行评估并统计死亡人数，有报告称在其他前俄罗斯占领的城市中，平民伤亡人数比布查更多。泽伦斯基说：”已经有信息表明，在博罗迪扬卡（Borodyanka）和其他一些被解放的城市，占领者的受害者人数可能更多。”乌克兰最高检察官周一还指出，位于基辅西北部30英里、拥有12000名居民的博罗迪扬卡镇，其平民死亡人数可能高于布查。”就人员伤亡而言，最严重的情况是在博罗迪扬卡。有很多事情需要处理，”乌克兰总检察长Iryna Venediktova周一告诉乌克兰媒体。
+
+泽伦斯基发表讲话的几个小时前，他访问了布查镇，在那里发现了几十具尸体，是俄罗斯士兵从该地区撤退后留下的。据乌克兰官员称，有300多名平民在布查被俄罗斯军队杀害，并被扔进万人坑，其中一些人有被近距离枪杀的痕迹，双手被绑在背后。乌克兰总统在周一的讲话中说，对俄罗斯军队可能犯下的战争罪行的调查在基辅地区刚刚开始，布查的伤亡数字可能会上升。”我们刚刚开始对占领者所做的一切进行调查。目前，仅在布查就有三百多人被杀和遭受酷刑的信息。如果对整个城市进行检查，受害者的名单可能会更大。而这只是一个城市。”泽伦斯基说。在他的演讲中，泽伦斯基将现在曝光的乌克兰部分地区的暴行与纳粹在占领乌克兰期间的所作所为进行了比较，但他警告说，未来在该国犯下的战争罪行可能会被掩盖。泽伦斯基说：”在基辅、切尔尼戈夫和苏梅地区解放区的许多村庄，占领者所做的事情是当地人在80年前的纳粹占领期间也没有看到的。“”很可能，现在占领者会试图隐藏他们犯罪的痕迹。他们在布查撤退的时候没有这样做。但在另一个地区，这是有可能的，”泽伦斯基补充说。
+
+- ** 04.04. Daily Caller：**[通货膨胀肆虐，美国人缩减开支 As Inflation Rages, Americans Cut Back](https://dailycaller.com/2022/04/04/customers-switch-store-brands-inflation-wsj/)
+
+
+据《华尔街日报》周一报道，随着通货膨胀率的上升，客户一直在想办法削减主食的开支，选择更便宜的选择。通货膨胀在过去几个月里一直在上升，而且报告显示它不会再低了。根据消费者价格指数的报告，2022年2月的价格已经上涨了7.9%。据《华尔街日报》报道，尿布、洗涤剂、零食和苏打水等物品都已上涨，因此美国消费者购买的数量减少。
+
+尽管价格被提高了，但是像Clorox这样的商店品牌已经看到了市场份额增长的利润。该媒体报道说，消费者正在转向商店品牌购买产品，而主食产品的利润并不高。据《纽约时报》报道，这并不是商店品牌第一次在通货膨胀期间上涨。据该媒体报道，早在2008年经济衰退的时候，商店品牌是那段时间表现良好的少数公司之一。Profitero公司副总裁Keith Anderson认为，自有品牌有在经济不稳定中增长的历史。Anderson认为，在高通胀时期，消费者更愿意用新品牌换取商店品牌，因为这在经济上更有意义。
+
+# 每日文贵说
+![](http://himalayawashingtondc.org/wp-content/uploads/2022/04/1-1024x576.png)
+# 每日推特文摘
 
 
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-编辑/校对/发稿：Daxia
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+
+
+
+乌克兰邀请世界大量记者： 纪录俄国在乌克兰的大屠杀……
+
+
+
+
+
+> 乌克兰邀请世界大量记者：
+> 纪录俄国在乌克兰的大屠杀…… 
+> 
+>  [pic.twitter.com/8h6vw1V44S](https://t.co/8h6vw1V44S)
+> — 三文鱼Salmon (@Salmon\_Ten) [April 5, 2022](https://twitter.com/Salmon_Ten/status/1511295335343484929?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共往上海运了数千个气化炉子! 武汉再现！
+
+
+
+
+
+> 中共往上海运了数千个气化炉子! 武汉再现！ [pic.twitter.com/u3jpmCGjOU](https://t.co/u3jpmCGjOU)
+> — 三文鱼Salmon (@Salmon\_Ten) [April 5, 2022](https://twitter.com/Salmon_Ten/status/1511297150680190978?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+上海现在居民对【银行】的负债已经是2.8万亿（截至2022年2月份数据）。网络借贷平台的数据（支付宝借呗、花呗等等）还没有算进来 这波疫情会让很多人现金流遭到重挫，直接面临断供风险。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1511263660169400320%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhimalayawashingtondc.org%2Fwp-admin%2Fpost.php%3Fpost%3D12251action%3Dedit&amp;src=hashtag_click) 房地产很快就完犊子了！
+
+
+
+
+
+> 上海现在居民对【银行】的负债已经是2.8万亿（截至2022年2月份数据）。网络借贷平台的数据（支付宝借呗、花呗等等）还没有算进来 
+> 
+> 这波疫情会让很多人现金流遭到重挫，直接面临断供风险。[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 房地产很快就完犊子了！ [pic.twitter.com/3wBPJqeMjC](https://t.co/3wBPJqeMjC)
+> — 500 𝕸𝖎𝖑𝖊𝖘 (@SafeGuard009) [April 5, 2022](https://twitter.com/SafeGuard009/status/1511263660169400320?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+无症状感染者一天比一天多！
+
+
+
+
+
+> 无症状感染者一天比一天多！😳 [pic.twitter.com/CmkaBN3lvA](https://t.co/CmkaBN3lvA)
+> — 文俊（日本银河系） (@wenjun7011) [April 5, 2022](https://twitter.com/wenjun7011/status/1511185998897889281?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+这样的隔离？没病都染上
+
+
+
+
+
+> 這樣的隔離？沒病都染上😰 [pic.twitter.com/3Qlmbq5Gth](https://t.co/3Qlmbq5Gth)
+> — 婦女之友-電9 (@O1xNs) [April 5, 2022](https://twitter.com/O1xNs/status/1511270724173848578?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+可怜的萌娃不幸感染了，被硬生生和父母分离，独自一人去面对这一切。他还这么小，穿着不合体的防护服，连路都走不稳，一步3回头，茫然不知所措。不知这一去何时是归期？
+
+
+
+
+
+> 可怜的萌娃不幸感染了，被硬生生和父母分离，独自一人去面对这一切。他还这么小，穿着不合体的防护服，连路都走不稳，一步3⃣️回头，茫然不知所措。不知这一去何时是归期？ [pic.twitter.com/agZdouHKs9](https://t.co/agZdouHKs9)
+> — 婦女之友-電9 (@O1xNs) [April 5, 2022](https://twitter.com/O1xNs/status/1511271365873078273?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+墙内需要这种有心人，把中共媒体的屁话都记录下来，让世人看到他们的前后矛盾，无耻双标，无知无畏
+
+
+
+
+
+> 墙内需要这种有心人，把中共媒体的屁话都记录下来，让世人看到他们的前后矛盾，无耻双标，无知无畏 [pic.twitter.com/N1AVPqSwqn](https://t.co/N1AVPqSwqn)
+> — 文俊（日本银河系） (@wenjun7011) [April 5, 2022](https://twitter.com/wenjun7011/status/1511182530892152833?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+以前他们叫“义和团”， 后来他们叫“红卫兵”， 现在他们叫“大白”！
+
+
+
+
+
+> 以前他们叫“义和团”， 后来他们叫“红卫兵”， 现在他们叫“大白”！[#盘古时讯](https://twitter.com/hashtag/%E7%9B%98%E5%8F%A4%E6%97%B6%E8%AE%AF?src=hash&amp;ref_src=twsrc%5Etfw) [#封城](https://twitter.com/hashtag/%E5%B0%81%E5%9F%8E?src=hash&amp;ref_src=twsrc%5Etfw) [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) [#上海](https://twitter.com/hashtag/%E4%B8%8A%E6%B5%B7?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/mMnrpdOR5r](https://t.co/mMnrpdOR5r)
+> — 三文鱼Salmon (@Salmon\_Ten) [April 5, 2022](https://twitter.com/Salmon_Ten/status/1511264168221241344?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+*编辑：冰川
+审核发布：文顾*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

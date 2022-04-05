@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 10:01 PM (UTC)`
+
+新中国联邦 法治基金 飞飞秀救援快报 2022-04-05<br/>For English：gettr.com/post/p13qskw7d05
+![img](https://media.gettr.com/group25/origin/2022/04/05/21/f93400d1-1fe7-0e11-8c17-51de83428da7/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/5/2022 8:45 PM (UTC)`
 
 2022.04.05  新中国联邦 | 喜健康   中共病毒治疗方案的探讨
@@ -147,13 +154,6 @@ Nicole interviewed volunteer Andrew, who is a veterinarian from southern Califor
 
 The Story of the New China】A Japanese volunteer came to the tent sponsored by the New Federal State of China & Rule of law Foundation and sent flowers, saying that it was the first time he had seen Chinese people like us.<br/>【新中国联邦人的故事】一位日本志愿者来到新中国联邦和法治基金赞助设立的帐篷内，特意送来鲜花，他说这是他第一次见到像我们这样的中国人
 ![img](https://media.gettr.com/group7/origin/2022/04/05/03/cb135848-b10e-8381-a5e7-24b2fa55d17a/out.jpg)
-
----
-
-`@miles 4/5/2022 3:12 AM (UTC)`
-
-A volunteer from Israel said it’s very symbolic to celebrate the Passover at the New Federal State of China (NFSC) rescue camp (base), and the rescue camp is a liberation camp for those who escape from slavery and from Utopian states. Nicole said that the NFSC will liberate 1.4 billion people from the slavery of the Chinese Communist Party (CCP).<br/><br/>来自以色列的犹太人志愿者说在新中国联邦的救援营地庆祝逾越节(犹太人节日)是非常有象征意义的，救援营地是一个解放营地，对于那些逃离奴隶制和乌托邦的自由人来说。妮可说新中国联邦将把14亿中国人从中共奴役中解放。 <br/>#ukrainerescue #nfscrescue #nfsc新中国联邦 #法治基金乌克兰救援
-![img](https://media.gettr.com/group16/origin/2022/04/05/03/54a2d95f-eb2d-9f56-e7e7-21f9b71084d7/out.jpg)
 
 ---
 
