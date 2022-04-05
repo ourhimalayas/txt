@@ -2,8 +2,8 @@
 ---
 
 
-## 20220403文贵大直播：马斯克做媒体商业上会很成功 但做不到gettr有信仰的唯真不破
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2289631/)
+## 20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2289703/)
 
 作者：东京樱花团小视频组
 

@@ -2,27 +2,27 @@
 ---
 
 
-## 新冠病毒疫苗灾难正在全球爆发
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289651/)
+## 上海疫情因疫苗灾难而继续恶化
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289852/)
 
-采编： 加拿大温哥华扬帆农场 – 坐看云起时
+采编：加拿大温哥华扬帆农场 – 文莱
 
-编译：加拿大温哥华扬帆农场 – 晨熹
+翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
 
-据自媒体【网关专家】近日报道，面对全球近期出现的超高死亡率，其主要原因并非新冠病毒感染，而事实上，该峰值几乎与实验性疫苗所推出的时期完全吻合。
+据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “疫情零容忍”方针下，该国最大城市上海有近千万人在全面封锁下被隔离在家中。由于因此而造成的食物供应短缺和医疗服务中断，已导致民不聊生，怨声载道。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-430.png)图片来源：dfxw
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-433.png)图片来源：forbes
 
 
-美国疾控中心的最新数据显示：不仅该国所有年龄段的死亡人数都在飙升，尤其是25至44岁年轻人群体的死亡人数创纪录的增长了84%。而且在世界各地，特别是西方国家都在经历超高的死亡率。
+尽管官方称上海日前仅有438个确诊病例，这对于2600万人口的城市来说感染比例并不大，但当局仍要求封锁并强制隔离所有疑似病例并进行大规模病毒检测。
 
-据悉，去年8至9月间，加拿大0至44岁死亡人数激增了24%，这与特鲁多政府在8月份推行的疫苗强制接种政策时间完全吻合，而且这种灾难的趋势正在持续并日渐恶化。
+中共党媒报道则显示，习近平正通过采取残酷的隔离措施，以确保其政权的稳定和对内部政敌在上海势力的控制。文贵先生指出，国内最近疫情的恶化实际上是疫苗伤害所导致的结果，更严重的疫苗灾难即将开始。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-新闻来源： [https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+新闻来源： [https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237](https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237)
 
  
 

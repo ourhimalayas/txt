@@ -2,11 +2,11 @@
 ---
 
 
-## 新中国联邦前线的第一次实战（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289772/)
+## 中国会形成联邦制 中共即将发起更凶险的战争（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289909/)
 
-#### PPT制作：Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-1010-1020-2_3.jpeg)
+#### PPT制作：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-1020-1030-1_6.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
