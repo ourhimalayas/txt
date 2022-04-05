@@ -15,32 +15,32 @@
 
 ---
 
-### [朝鲜警告韩国防长发言加剧军事紧张 如韩动手将用核武器](/content/gnews/1/README.md)
+### [4/4/2022 文贵盖特：文贵的两首歌历尽千辛万苦终于上线，随即登上美加澳新台等国iTunes榜首；联合国某组织联系新中国联邦建立乌克兰和中共国的人权组织](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [朝鲜警告韩国防长发言加剧军事紧张 如韩动手将用核武器](/content/gnews/2/README.md)
  ` 波士顿五月花农场金融部`
 
-### [郭文贵盖特音频2022.04.05](/content/gnews/2/README.md)
+### [郭文贵盖特音频2022.04.05](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰大救援现场的花架子&amp;主题不分明所暴露出的问题](/content/gnews/3/README.md)
+### [乌克兰大救援现场的花架子&amp;主题不分明所暴露出的问题](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [上海等地核检阳性人数爆发，真相是疫苗灾难](/content/gnews/4/README.md)
+### [上海等地核检阳性人数爆发，真相是疫苗灾难](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [中东点燃战火阻击美国西方金融制裁普京习近平蓄谋已久](/content/gnews/5/README.md)
+### [中东点燃战火阻击美国西方金融制裁普京习近平蓄谋已久](/content/gnews/6/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [没任何机会放出核武器的普京已结束,俄罗斯人在付出代价](/content/gnews/6/README.md)
+### [没任何机会放出核武器的普京已结束,俄罗斯人在付出代价](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花时政┃布查平民屠杀事件震惊世界 美欲将俄踢出联合国人权理事会](/content/gnews/7/README.md)
+### [樱花时政┃布查平民屠杀事件震惊世界 美欲将俄踢出联合国人权理事会](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [对于从乌克兰撤离的中国人来说，安全的价格是昂贵的](/content/gnews/8/README.md)
+### [对于从乌克兰撤离的中国人来说，安全的价格是昂贵的](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花时政┃日英就继续对俄罗斯施压达成一致](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [踢出SWIFT:疫苗灾难+战争混乱+中共残虐+齐奥塞斯库事件](/content/gnews/10/README.md)
  ` 喜马拉雅日本银河系农场`
@@ -81,17 +81,17 @@
 ### [有声|乌克兰海港城市敖德萨遭俄军空袭](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [上海取消当日核酸检测，日本人被允许回国](/content/gnews/23/README.md)
+### [中共完成对美国玉米的最大采购](/content/gnews/23/README.md)
+ ` 银河歌舞厅`
+
+### [上海取消当日核酸检测，日本人被允许回国](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [有声|立陶宛宣布停止进口俄罗斯天然气](/content/gnews/24/README.md)
+### [有声|立陶宛宣布停止进口俄罗斯天然气](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [疫苗灾难爆发：上海人在天堂与地狱之间挣扎](/content/gnews/25/README.md)
+### [疫苗灾难爆发：上海人在天堂与地狱之间挣扎](/content/gnews/26/README.md)
  ` 战云长天时评`
-
-### [有声|日本自媒体人被新中国联邦灭共壮举感动](/content/gnews/26/README.md)
- ` MOSREC`
 
 ### [丹麦宣布驱逐15名俄外交官, 莫斯科将进行报复](/content/gnews/27/README.md)
  ` thedawn`

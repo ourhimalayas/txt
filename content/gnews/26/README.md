@@ -2,38 +2,53 @@
 ---
 
 
-## 有声|日本自媒体人被新中国联邦灭共壮举感动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292735/)
+## 疫苗灾难爆发：上海人在天堂与地狱之间挣扎
+` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2292762/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-波兰当地时间4月3日，一位来自日本的自媒体人在米蒂卡，法治基金-新中国联邦的帐篷内，接受了救援前线队员妮可的采访。当这位日本人听到妮可介绍，新中国联邦人是灭共的新中国人时，感到非常震惊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-3.jpeg)
-他用不熟练的英语试图表达他的感受。他说，日本人通常都觉得中国人的形象就是中共政府。这是他生平第一次听到，新中国联邦要消灭中国共产党。他感到非常的印象深刻。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)![](https://www.rfa.org/mandarin/yataibaodao/huanjing/gf-04042022073647.html/@@images/b134ff18-9316-4618-8016-44316dbcb006.jpeg)
+**上海因疫苗灾难进入军政府状态，被封锁的人们陷入人间地狱，没有政府，没有警察，没有公平，小孩无法得到救助。共产党正在以全国各地隔离措施作为演习，迎接疫苗灾难的全面爆发。**
 
-当他听说，一个名叫Miles Guo的中国人正在带领中国人灭共时，他手捂着胸口，接连说了几遍“感动“。他表示，他会用自媒体的方式力挺新中国联邦，传播灭共的使命。
+据[上海市卫健委5日消息](https://wsjkw.sh.gov.cn/xwfb/20220405/40729ff54aad4261a694a5a786994bf9.html)，上海连日来连续新增阳性感染者数量首次突破一万例。全市继续开展大规模的核酸检测， “对排除风险点、切断传播链，尽快遏制疫情扩散蔓延非常重要。”
+
+该消息认为，“奥密克戎变异毒株传播速度很快、隐匿性很强，目前上海疫情还在高位运行。对发现新的阳性感染者“必须即刻转运、日清日结，应收尽收、应隔尽隔。”并“开展中医药干预治疗，储备和使用新型治疗药物，全力降低重症率、死亡率。”
+
+- 延展阅读：[*上海疫情失控外地武警进城* *防控手段已把专家“逼疯”*](https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1-04042022025035.html)
 
 
+对此，郭文贵（MILES GUO）先生透露，中共国上海、长春、山东等地此轮疫情是“疫苗反应综合征”。即“疫苗反应就是病毒反应。共产党完全明白，这就是疫苗反应。国内隔离措施是为了疫苗灾难带来的总预演。（见[1:13.20时段](https://gettr.com/post/p13c6fub6b6)）
 
-文字版原文：[日本自媒体人被新中国联邦灭共壮举感动](https://gnews.org/zh-hans/2287733/)
+上海疫苗灾出现失控局面，据日本银河系[@勇气之星](https://gettr.com/post/p13m6jde744%0a%0a)盖特透露，上海市民与社区书记通话显示：
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+> *“没有政府，没有警察，没有公平，如果再没有好的措施，我这里真的是要乱了，我虽然是居民区书记，我也就是句话。（哭泣）大人就算了，还有小孩，我一栋楼里10户人家，有7户人家有问题，我该怎么办？我也是扔掉了家庭来这里工作，我也是需要上面好的政策来给我。可以对居民有好的交待，现在是没有。（哭泣）我真的是做不下去。现在居民们买这菜都是我个人垫资，我现在就是贴钱还在卖命。”*
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+一个社区女性服务者发自内心的哭诉，相信已经是普遍存在的人道灾难。正如她所面对的压力，她最不能忍受的是她的管辖下的楼内染病的小孩子无法得到救治。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+- *延展阅读*：[*随着上海延长封锁，**COVID**爆发“极其严峻”*](https://abcnews.go.com/Health/wireStory/covid-outbreak-extremely-grim-shanghai-extends-lockdown-83879233)*。*
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+这就是郭先生所言，共产党员绝大多数都是好人，主要是中共这个邪恶的体制，它让好人变成了坏人。这不，一群乳臭未干的所谓人民解放军已经接管上海。正如那位女士哭诉的那样，无政府，无公平，上海现在进入无政府状态。
 
+一位[@Jam79922967](https://twitter.com/Jam79922967/status/1510788145339641859?s=20&amp;t=lUqfDXYdYRVIiPoEDvzkIA)推特网友称，“解放军出动，进驻上海，代表着所谓是否清零的路线之争已经尘埃落定，习总又赢了一局。”此言表示习近平彻底拿下上海。
+
+这位网友接着说：“接下来就是彻底封死，考验上海人的时候到了。”
+
+2022年4月5日晚
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)
+**更多资讯，更多关注**：
+
+- [美总统助理沙利文称将启动国际刑事法院追讨俄罗斯总统普京 “战争罪”。](https://gnews.org/zh-hans/2290690/)
+- [日本政府宣布向乌克兰提供包括排雷在内的追加援助](https://gnews.org/zh-hans/2290998/)
+- [日本专家反对全员接种新冠疫苗第4针](https://gnews.org/zh-hans/2290949/)
+- [俄乌战争：中俄外长分别会见阿富汗塔利班并承认其政权。](https://gnews.org/zh-hans/2270646/)
+- [NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
+- [疫苗经济：辉瑞口服 Paxlovid 药首次高价进入中共国医保名录](https://gnews.org/zh-hans/2272625/)
+- [普京的命根：俄罗斯没了SWIFT系统后石油交易将违约](https://gnews.org/zh-hans/2250301/)
+- [新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
+
+![]()
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

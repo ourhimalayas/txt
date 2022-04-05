@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 3:28 PM (UTC)`
+
+NFSC and ROLF Ukraine Humanitarian Rescue Mission
+![img](https://media.gettr.com/group49/origin/2022/04/05/15/c9472645-a084-c5b4-a57c-f8f184580194/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 2:09 PM (UTC)`
 
 <br/>4月5号：尊敬的战友们好！共产党为什么在内部开会发动．要准备好，2022年再饿死一亿人，这是真的吗？为什么中共国内部，现在又开始大流行盗墓了呢？
@@ -147,12 +154,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 2022.04.04 晚 新中国联邦 | 新闻   吓尿中共的灭共新歌，第一天iTunes总榜成绩； 墙内疫苗灾难自杀者众 中共第二大投资者转向
 ![img](https://media.gettr.com/group5/origin/2022/04/05/00/d32dd3dd-9a3d-c04a-e157-0e53345fa6ee/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 12:26 AM (UTC)`
-
-04/04/2021  on the 1st day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on 5 Countries Top Song Charts<br/>#1 🥇 on 23 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on 6 Countries Top Song Charts<br/>#1 🥇 on 5 Countries Pop Song Charts<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Denmark, Latvia, Sweden, Saudi Arabia, Fiji, Philippines, Cambodia, Vietnam🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月4号, 郭文贵先生两首新歌上线第一天， 《灭共的雪》登榜iTunes<br/>5国热门歌曲榜首🥇<br/>23国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>6国热门歌曲榜首🥇<br/>5国流行歌曲榜首🥇<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、丹麦、拉脱维亚、瑞典、沙特阿拉伯、斐济、菲律宾、柬埔寨、越南的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2288880/
 
 ---
 
