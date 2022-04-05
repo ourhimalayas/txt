@@ -2,12 +2,16 @@
 ---
 
 
-## 乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2294276/)
+## 五月花简报（04/05/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2294592/)
 
-04/03/2022 乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生；她同时呼吁美国政客向乌克兰提供重型武器以保护平民
+编辑：波士顿五月花—冲天一怒
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1AAD804E-9B3B-4FB2-8B1E-BE73A2B63C81.jpeg)
+
+*发布：思澈*
+
+
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 8:45 PM (UTC)`
+
+2022.04.05  新中国联邦 | 喜健康   中共病毒治疗方案的探讨
+![img](https://media.gettr.com/group14/origin/2022/04/05/20/a74dde8d-7373-a84f-01f9-eb4277d2d650/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 8:20 PM (UTC)`
 
 2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
@@ -147,13 +154,6 @@ The Story of the New China】A Japanese volunteer came to the tent sponsored by 
 
 A volunteer from Israel said it’s very symbolic to celebrate the Passover at the New Federal State of China (NFSC) rescue camp (base), and the rescue camp is a liberation camp for those who escape from slavery and from Utopian states. Nicole said that the NFSC will liberate 1.4 billion people from the slavery of the Chinese Communist Party (CCP).<br/><br/>来自以色列的犹太人志愿者说在新中国联邦的救援营地庆祝逾越节(犹太人节日)是非常有象征意义的，救援营地是一个解放营地，对于那些逃离奴隶制和乌托邦的自由人来说。妮可说新中国联邦将把14亿中国人从中共奴役中解放。 <br/>#ukrainerescue #nfscrescue #nfsc新中国联邦 #法治基金乌克兰救援
 ![img](https://media.gettr.com/group16/origin/2022/04/05/03/54a2d95f-eb2d-9f56-e7e7-21f9b71084d7/out.jpg)
-
----
-
-`@miles 4/5/2022 2:58 AM (UTC)`
-
-2022-4-4《鸡血王喜币大作战》 第一百五十五集 嘉宾：Nick、青藤
-![img](https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

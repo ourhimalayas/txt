@@ -2,29 +2,36 @@
 ---
 
 
-## 有声|英国称对乌平民的袭击必以战争罪调查
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2294131/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月5日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2294218/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+作者：香草山翻译部
 
-外媒4月3日报道，英国外交大臣丽兹·特拉斯表示，在俄罗斯入侵乌克兰期间，对平民的袭击行为，必须作为战争罪进行调查，英国将完全支持国际刑事法院的相关行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-9.png)
 
-俄罗斯此前否认针对平民的袭击，并否认，在其所谓的乌克兰“特别军事行动”中犯有战争罪的指控。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-4.png)
 
-丽兹在一份声明中指出，随着俄罗斯入侵军队被迫撤退，越来越多的证据表明，入侵部队在基辅郊区的伊尔平和布查等城市，犯下了骇人听闻的罪行。俄军不分青红皂白地攻击无辜平民的行为，必须作为战争罪进行调查。
+文章仅代表作者本人观点，与Gnews无关
 
-文字版原文：[英国称对乌平民的袭击必以战争罪调查](https://gnews.org/zh-hans/2286852/)
+视频参看：
+[2022.04.05早 《NFSC新闻》](https://gettr.com/streaming/p13no93b3b9)
+[2022.04.05早《NFSC新闻访谈》](https://gettr.com/streaming/p13o17vdab9)
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-音频处理/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6.jpeg)
 
 **更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-9.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

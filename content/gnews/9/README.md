@@ -2,42 +2,12 @@
 ---
 
 
-## 装置作品《受伤的和平鸽》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2294161/)
+## 英国外相利兹·特拉斯表示，“普京不败阵我们决不罢休”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2294270/)
 
-整理：vale
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+0404/2022 英国外相利兹·特拉斯表示：“普京不败阵我们决不罢休”，并且需要宣布对俄罗斯进行“新一轮严厉制裁”
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-522.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-524.png)
-
-作品名称：受伤的和平鸽
-
-作者：龚凡
-
-材质：装置作品
-
-- 当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
-
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：Nuevo唐人
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
-
-
-
-
-
+By:【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
