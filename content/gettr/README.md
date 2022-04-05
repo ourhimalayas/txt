@@ -17,6 +17,19 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 12:29 AM (UTC)`
+
+2022.04.04 晚 新中国联邦 | 新闻   吓尿中共的灭共新歌，第一天iTunes总榜成绩； 墙内疫苗灾难自杀者众 中共第二大投资者转向
+![img](https://media.gettr.com/group5/origin/2022/04/05/00/d32dd3dd-9a3d-c04a-e157-0e53345fa6ee/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/5/2022 12:26 AM (UTC)`
+
+04/04/2021  on the 1st day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on 5 Countries Top Song Charts<br/>#1 🥇 on 23 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on 6 Countries Top Song Charts<br/>#1 🥇 on 5 Countries Pop Song Charts<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Denmark, Latvia, Sweden, Saudi Arabia, Fiji, Philippines, Cambodia, Vietnam🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月4号, 郭文贵先生两首新歌上线第一天， 《灭共的雪》登榜iTunes<br/>5国热门歌曲榜首🥇<br/>23国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>6国热门歌曲榜首🥇<br/>5国流行歌曲榜首🥇<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、丹麦、拉脱维亚、瑞典、沙特阿拉伯、斐济、菲律宾、柬埔寨、越南的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2288880/
+
+---
+
 `@miles 4/5/2022 12:16 AM (UTC)`
 
 【Ukraine Rescue】04/03/2022 A Japanese blogger from Tokyo said that he had never seen such Chinese people. Nicole told him that there are real Chinese people, citizens of the New Federal State of China in many cities and regions in Japan, who want to take down the CCP. He was so moved and will spread the message to their followers.<br/><br/>【乌克兰救援】04/03/2022 一位来自日本东京的自媒体人说，他从来没有看到过这样的中国人，妮可告诉他，在日本的很多城市和地区都有新中国联邦想要消灭中共的真正中国人，他深为感动，并将向其关注者传播这一信息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -140,20 +153,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 4/4/2022Thank you very much to all our brothers and sisters in HongKong, New Zealand, Singapore, Macau, Cambodia, Taiwan🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>iTunes Genres Chart records on the 1st day of release:<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #3 🥉in Hong Kong 🇭🇰 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in New Zealand 🇳🇿 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Singapore 🇸🇬 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈in Macau 🇲🇴 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ Chained Dream “ hit #1 🥇 and “ The Terminator Snow” hit #2 🥈”Hcoin To The Moon” hit #4 in Cambodia 🇰🇭 🎉🎉🎉🎉🎉🎉🎉<br/><br/> “ The Terminator Snow” hit #1 🥇 and “ Chained Dream” hit #2 🥈in Taiwan 🇹🇼 🎉🎉🎉🎉🎉🎉🎉<br/>
 ![img](https://media.gettr.com/group48/getter/2022/04/04/12/878ad7e1-3e5c-d1e7-35af-3da05e230ac2/0c4c4723ecec05aaeff49bff4c0069e3.jpg)
-
----
-
-`@miles 4/4/2022 12:22 PM (UTC)`
-
-4月4号衷心的感谢香港，新西兰，新加坡，澳门，柬埔寨，台湾的兄弟姐妹们🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️❤️❤️❤️❤️<br/><br/>打榜第一天iTunes总榜成绩：<br/><br/>香港🇭🇰《灭共的雪》第一名🥇，《铁锁梦》第三名🥉🎉🎉🎉🎉🎉🎉🎉<br/><br/>新西兰🇳🇿灭共的雪第一名🥇，铁锁梦第二名🥈🎉🎉🎉🎉🎉🎉🎉<br/><br/>新加坡🇸🇬灭共的雪第一名🥇，铁锁梦第二名🥈🎉🎉🎉🎉🎉🎉🎉<br/><br/>澳门🇲🇴铁锁梦第一名🥇，灭共的雪第二名🥈🎉🎉🎉🎉🎉🎉🎉<br/><br/>柬埔寨🇰🇭铁锁梦第一名🥇，灭共的雪第二名🥈Hcoin to the moon第四名🎉🎉🎉🎉🎉🎉🎉<br/><br/>台湾🇹🇼灭共的雪第一名🥇，铁锁梦第二名🥈🎉🎉🎉🎉🎉🎉🎉
-![img](https://media.gettr.com/group20/getter/2022/04/04/12/27ac125b-9fbc-91f0-6733-78abec6a3461/3f23021c746e7c08a00a2bf9af067a09.jpg)
-
----
-
-`@miles 4/4/2022 9:48 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月3日第30天当日救援统计：<br/>Medyka救援站接待：约336人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8993人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 30 - Date: April 3, 2022 :<br/>Medyka Rescue Station Reception: about 336 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8993 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group49/getter/2022/04/04/09/a6bd719f-9fe2-c0de-cb15-8bff7193cba7/697cd9f659ed0568bdd0c3686fe3a4dc.jpg)
 
 ---
 

@@ -2,11 +2,11 @@
 ---
 
 
-## 新中国联邦为救援而逆行，世界将迎来无皇有主的时代（十）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289263/)
+## 新世界-乌克兰为中心的欧洲（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289332/)
 
 #### PPT制作：0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-902-910-1_10.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-3-9-910-920-2_3.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
