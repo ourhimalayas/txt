@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 6:03 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group33/origin/2022/04/05/17/ce27aceb-a360-5d80-9596-df3e8dc6e913/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 3:28 PM (UTC)`
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission
@@ -147,13 +154,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 2022.04.04 晚  新中国联邦 | 新闻访谈   俄乌战争最新动态； 造谣郭文贵先生的伪类被澳政府遣返
 ![img](https://media.gettr.com/group25/origin/2022/04/05/01/e7d09f4d-a89f-1212-990b-5fd7999f149a/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/5/2022 12:29 AM (UTC)`
-
-2022.04.04 晚 新中国联邦 | 新闻   吓尿中共的灭共新歌，第一天iTunes总榜成绩； 墙内疫苗灾难自杀者众 中共第二大投资者转向
-![img](https://media.gettr.com/group5/origin/2022/04/05/00/d32dd3dd-9a3d-c04a-e157-0e53345fa6ee/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
