@@ -2,69 +2,36 @@
 ---
 
 
-## 有声|捡破烂的老人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293116/)
+## 乌克兰总统将在安全理事发表讲话诉说当地惨状
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2293341/)
 
-粵語配音：香草山香港部 – 格格樹
+**编译：文舞两道**
 
-她每天拉着架子车
-车上装满瓶子和纸壳
-每天弯腰无数次
-一个个瓶子
-一片片纸壳
-装满了她的架子车
+在乌克兰首都基乌附近发现许多平民死亡后，国际社会对俄罗斯的谴责日益强烈。联合国安理会将于4月5日晚（日本时间）举行会议，乌克兰总统泽伦斯基将发表讲话，向国际社会诉说该地区的悲惨状况。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/C4DDFE0F-972C-42D1-B440-3316452D3132.jpeg)照片来源：https://www3.nhk.or.jp/
+俄罗斯军队撤离首都基乌后，在基乌西北部的布查发现许多平民死于街头，世界各国越来越强烈地要求俄罗斯承担责任。
 
-架子车啊
-是她生命的活
-没有它
-生活就会没有着落
-风里来，雨里去
-天天捡点破烂
-存在破屋
+在此背景下，联合国安理会将于4月5日23:00（日本时间）举行会议，讨论乌克兰的人道灾难状况，乌克兰总统泽连斯基将在会议上发表在线讲话。
 
-七十二岁的她
-遇到了人道救助的他
-送来大米白面
-这些久违的它
-谢谢你，好心人
-我给你跪下
+这是自俄罗斯军事入侵以来，泽伦斯基总统首次在联合国发表讲话，预计他将向国际社会介绍他亲自访问布查的情况以及布查的惨状。
 
-救助的车徐徐离开
-老人跟着后面
-不舍的说再见
-她心里是这么的酸
-想哭想笑
-也想喊一喊
-遥遥的
-又跪下了膝盖
-衰老的头啊
-深深的贴在地面
+与此相反，俄罗斯方面否认参与了布查的平民伤亡事件，预计在会上将遭到其他国家的强烈谴责。
 
-每天的日子重复着
-怀念曾经送米面的人啊
-你们何时再来
-这年老人孤独日子里
-唯一温暖
-总也念念不忘
-深深怀念
-这是她
-凄苦日子里
-唯一温暖
+联合国秘书长古特雷斯也将出席会议，尽管俄罗斯和乌克兰之间的停火谈判缺乏进展，古特雷斯将呼吁实行人道主义停火，以制止人道主义灾难的发生。
 
-文字版原文：[捡破烂的老人](https://gnews.org/zh-hans/2292245/)
+**信息来源：**
 
-音频处理：Fei797
-发稿：Fei797
+[ウクライナ大統領 国連安保理会合で演説 惨状訴えへ](https://www3.nhk.or.jp/news/html/20220405/k10013568091000.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+**编辑：LILY**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**发布：歪桑**
+
+20220404
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

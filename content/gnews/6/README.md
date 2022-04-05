@@ -2,60 +2,50 @@
 ---
 
 
-## 中东点燃战火阻击美国西方金融制裁普京习近平蓄谋已久
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2293239/)
+## 战争期间，乌克兰IT部队成功攻击了660多个俄罗斯资源
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2293388/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8814.38%EF%BC%89%E4%B8%AD%E4%B8%9C%E7%82%B9%E7%87%83%E6%88%98%E7%81%AB%E9%98%BB%E5%87%BB%E7%BE%8E%E5%9B%BD%E8%A5%BF%E6%96%B9%E9%87%91%E8%9E%8D%E5%88%B6%E8%A3%81%E6%99%AE%E4%BA%AC%E4%B9%A0%E8%BF%91%E5%B9%B3%E8%93%84%E8%B0%8B%E5%B7%B2%E4%B9%85%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:1)
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-**郭文贵先生：**我告诉你，围魏救赵这个词你们都知道吧？这是他和普京玩的围魏救赵！我打你伊拉克大使馆，我弄你叙利亚，我弄你卡塔尔基地，我让伊朗出手为苏莱曼尼报仇，结果是什么？
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-吉布提和安哥拉之间的石油供应线，叫东非，伊朗的气、中东的气一旦把霍斯姆海峡给封了，欧洲世界经济，石油不是150块钱一桶，500块钱一桶，没有了！
+据乌克兰数字化转型部消息，自从俄罗斯入侵乌克兰开始，乌克兰数字化转型部就组建了一支IT军队，在网络战线上与敌人作战，成功攻击了660多个俄罗斯资源，白俄罗斯国家银行网站与其他数十个战略网站被破解。
 
-你知道美元是什么？美元是叫石油美元呐，Mamoru桑，Mamoru桑你懂了吗？你不是封我SWIFT系统吗？SWIFT系统不是基于美元吗？我把美元给你干掉！普京等待着这一刻呢，知道吗？
+乌克兰的IT军队不仅是乌克兰人组成，而是汇集了来自乌克兰和世界各地数字领域才华横溢的专业人员，包括：开发人员、网络专家、设计师、撰稿人、营销人员和目标专家。
 
-我还有黄金，我还有人民币能用的情况下，我让伊朗，我让叙利亚，我让胡塞武装，我让沙特，我让整个伊拉克，我点燃战火切断你的石油链、天然气链。
+这支IT军队每天都在攻击俄罗斯的各个领域，多次组织对俄罗斯政府资源、银行网站和商业公司的空前DDoS攻击。俄罗斯从来没有承受过这样的压力，也没有遭受过这样的损失。
 
-我再告诉大家，共产党玩的这一招，在中东点燃的战火，包括昨天伊拉克的所有的炮击，都是共产党和普京、习太阳一早的计划。就是发动乌克兰战争，同时共产党要配合普京，为了截击美国和西方的金融制裁。
+乌克兰IT军队所向披靡，专家们在1分钟内入侵了俄罗斯国家服务局（Russian State Services）的网站，莫斯科证券交易所（Moscow Stock Exchange）在5分钟内被破解。与俄罗斯银行相关的加密货币也受到攻击。专家们甚至在俄罗斯的数字电视上植入了乌克兰战争的真相。
 
-这邪恶的五国就是：中共国、俄罗斯国、伊朗国、北朝鲜国，然后现在还要加入的中东这些邪恶的小国家，包括沙特这个家伙本·萨勒曼，原来是巴基斯坦。
+俄罗斯联邦储蓄银行（Sberbank）和 BestChange股票市场也在很短时间内被破解，俄罗斯联邦安全局（FSB）、俄罗斯联邦通信、信息技术和大众传媒监督局（Roskomnadzor），俄罗斯联邦总统网站（the President of the Russian Federation），俄罗斯联邦政府网站（the Government of the Russian Federation），俄罗斯国家杜马网站（the State Duma），俄罗斯联邦委员会网站（the Federation Council）和其他一些机构的网站被黑客入侵。俄罗斯最大媒体TASS、Kommersant和Fontanka的网站被黑。带有宣传俄罗斯侵略军的商品网站被封锁。
 
-这几国要在中东开展的叫做围魏救赵，就是把中东的整个世界的能源供给的所有地方给它砸烂它，点燃战火，达到你制裁俄罗斯SWIFT甚至下一步制裁共产党的SWIFT，中国和香港港币脱钩，然后影响我攻击台湾，我让你西方的整个石油崩溃。
+白俄罗斯国家银行网站与其他数十个战略网站一样被破解。
 
-特别是美国，虽然是石油净出口国，但石油价格影响着美国的经济和就业。然后欧洲是完全石油和能源的依赖，整个欧洲一旦没有了油没有了气，欧洲就会在俄罗斯事儿上妥协，就会要继续买俄罗斯石油和在金融上妥协，停止SWIFT制裁，中共就可以打台湾，这叫围魏救赵。
+与此同时，许多科技公司停止在俄罗斯的活动，实施了俄罗斯历史上最严厉的制裁。
 
-我可以告诉大家马上你看到的，在叙利亚、在沙特、在伊拉克，美军基地美军被打击会超出你想象，甚至放毒。这是今天直播的另外一个重点。
+俄罗斯人不再可以使用Apple Pay和Google Pay，以及PayPal服务。YouTube封锁了俄罗斯的宣传频道。Netflix已暂停在俄罗斯的运营。苹果已经停止在俄罗斯的线上和线下商店销售其设备，以及俄罗斯在App Store中投放广告。三星已暂停了对俄罗斯的供应。微软已停止在俄罗斯销售产品。即使是抖音都暂停俄罗斯的运营。Airbnb和Booking也停止了俄罗斯的服务。IBM完全退出俄罗斯市场。Payoneer已停止在俄罗斯的服务，俄罗斯自由职业者将无法与外国客户合作。最大的自由职业者平台之一Upwork停止在俄罗斯和白俄罗斯工作。Netscout停止在俄罗斯销售和支持其产品。俄罗斯最大的英特尔PC微处理器和处理器制造商以及 Figma的在线开发服务界面已停止在俄罗斯的运营。
 
-我跟你讲今天的直播，记住今天这段直播，七哥这段讲话将成为世界上未来军事战略所有人研究的话题，你们都在这个其中。伟大是在不经意间发生的，经意的都不叫伟大，那叫做制造的虚伪的伟大。我们刚才这段讲话绝对会成为人类上未来战争历史当中，唯一一个人能讲出这些话的人就是咱新中国联邦你七哥。
+防御DDoS攻击的解决方案提供商Arbor服务也在俄罗斯停止运营。
 
-所以回答你最后一个问题，香港的港币和中国人民币的SWIFT只能成为俄罗斯和他们走向疯狂的一个幻想，最终全部被归零和消灭！谢谢！
+在整个战争期间，乌克兰IT军队成功地攻击了660个俄罗斯资源。大多数支持俄罗斯侵略的政府网站、俄罗斯媒体和在线商业服务已被封锁。
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+乌克兰IT军队还通过各种数字渠道向俄罗斯的民众传播了他们在乌克兰所犯下的不人道暴行的残酷真相。
 
-编辑整理：Jacques；
+乌克兰数字化转型部呼吁，任何人都可以对抗俄罗斯的宣传和网络空间的敌人。
 
-字幕档制作：知津；
+乌克兰的IT军队的联系方式：[https://t.me/itarmyofukraine2022](https://t.me/itarmyofukraine2022)和[https://t.me/ivukr](https://t.me/ivukr)
 
-视频制作及上传：Cindy；
+从入侵乌克兰开始，俄罗斯人的生活发生了巨大变化。只要他们的坦克在摧毁乌克兰人的生活，他们就无法像以前那样生活。
 
-G-News发布：海贼王M.D.LUFFY；
+参考数据：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+[Ministry of Digiral Transformation: IT army blocks Russian sites in a few minutes – the main victories of Ukraine on the cyber front](https://www.kmu.gov.ua/en/news/mincifri-it-armiya-blokuye-rosijski-sajti-za-dekilka-hvilin-golovni-peremogi-ukrayini-na-kiberfronti)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[Ministry of Digital Transformation fights the enemy on the digital front](https://www.kmu.gov.ua/en/news/mincifri-boretsya-z-vorogom-na-cifrovomu-fronti)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[During the war, the IT army attacked more than 600 russian online resources](https://www.kmu.gov.ua/en/news/it-armiya-za-period-vijni-atakuvala-ponad-600-rosijskih-onlajn-resursiv)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

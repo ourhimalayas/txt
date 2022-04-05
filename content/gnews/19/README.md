@@ -2,23 +2,35 @@
 ---
 
 
-## 《灭共的雪》和《锁链梦》上线苹果音乐
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2292906/)
+## 有声|习近平将是俄乌战争的最大输家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293183/)
 
-作者：银河系农场 骄子
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在4月3日的大直播中，郭文贵先生表示，他在与一个全世界排名前十位的大佬讨论乌克兰形势时，对方认为美国只关心国内通货膨胀、美元、油价和中共病毒疫情，习近平、普京和土耳其总统埃尔多安，会分别成为第一、第二和第三位赢家，甚至还认为乌克兰总统泽连斯基是俄国间谍。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-8.jpg)
+郭先生告诉该大佬，他基于国内的民生、粮食危机、政治危机、香港现状，习近平必须要打台湾的政治决定和个人爱好，习近平与普金因个人关系绑架两国人民利益，已经引起了两国的巨大反感，以及中共在中东和东南亚的布局等情报综合判断，习近平将会是俄乌战争的最大输家。
 
-当地时间4月3日，郭先生2022年的两首歌《灭共的雪》和《锁链梦》，经历了诸多阻碍后，在苹果音乐商店正式上线。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-32.jpg)
-《灭共的雪》在农历新年大直播中首播，《锁链梦》于3月8日国际妇女节首播。两首歌作为音乐灭共的利器，在苹果音乐上线的第一天，就已经创造了不俗的下载量。截止4月4日，《灭共的雪》已经在香港、新西兰、新加坡、台湾取得第一名，在澳门和柬埔寨取得第二名的成绩，《锁链梦》在澳门和柬埔寨第一名，香港、新西兰、新加坡、台湾取得第二名。
 
-《灭共的雪》改编自中共宣传歌曲《塞北的雪》。据爆料革命的情报信息，《塞北的雪》原定于在北京冬奥会开幕式演唱，中共独裁核心习近平试图通过这首歌展现共产主义的浪漫，进行文化输出。郭先生在冬奥会前一天，推出这首歌的灭共新词版本，致使原定的开幕式相应节目流产。《锁链梦》曲调改编自香港的女儿——梅艳芳小姐演唱的《女人花》，配以描写徐州“锁链女”悲惨遭遇的歌词，将中国女性被中共体制蹂躏的现实展现得淋漓尽致。郭先生也在大直播中透露这首歌的力量，不仅仅是灭共，更是要唤醒中共国的老百姓，砸碎铁锁，站起来活。
 
-参考链接：[4月4号衷心的感谢香港，新西兰，新加坡，澳门，柬埔寨，台湾的兄弟姐妹们](https://gettr.com/post/p13ifi5787b)
+文字版原文：[习近平将是俄乌战争的最大输家](https://gnews.org/zh-hans/2288442/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-总编/编辑/审核：Zion文恩
-校正/发稿：Fei797
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
