@@ -2,54 +2,37 @@
 ---
 
 
-## 接受中共军事部署的赛尔维亚总统设计连任
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2290557/)
+## 澳洲参加北约外长会议以共同商讨对俄的新制裁
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2290570/)
 
-作者：波士顿五月花 – 文雀
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+整理/编辑：小红帽
 
-
-据4 月 3 日&lt;路透社&gt;报导，民意调查机构益普索和 CeSID 根据部分投票站计数样本的预测，塞尔维亚现任总统亚历山大·武契奇（Aleksandar Vucic）将于周日以 59.8% 的选票赢得连任。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-234044.jpg)图片来源：路透社
-武契奇表示，将坚持军事中立。尽管塞尔维亚支持两项谴责俄罗斯入侵乌克兰的联合国决议，但拒绝对莫斯科实施制裁。
-
-塞尔维亚几乎完全依赖俄罗斯的天然气，而其军队也与俄罗斯军方保持联系。
-
-武契奇已将自己从一个民族主义煽动者，转变为欧盟成员国、军事中立以及与俄罗斯和中共国关系的支持者。
-
-排名第二的亲欧洲派和中间派的胜利联盟的退役陆军将军波诺斯（Ponos）得票率为17.1％。他指责武契奇在竞选活动中利用乌克兰战争给人们带来的恐惧，来操控选情。
-
-反对派和权利监督机构还指责武契奇及其盟友的专制统治风格、腐败、裙带关系、控制媒体、攻击政治对手以及与有组织犯罪的关系。武契奇和他的盟友则否认所有这些指控。
-
-据文贵先生4月3日直播中的爆料，在5天之前，该国已接受中共红旗导弹与反导弹系统的部署，这将是北约对乌克兰未来的空中支援的绝对威胁。
-
-参阅链接：
-[https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/](https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/)
-
-[https://youtu.be/NWaBeFIf53Q](https://youtu.be/NWaBeFIf53Q)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿：H.B
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/45678303065_a23b316862_3k.jpg)图片来源：www.internationalaffairs.org.au
 
 
+根据大纪元4月5日报道，澳洲外交部长佩恩（Marise Payne）于周二前往欧洲，参加在布鲁塞尔举行的北约外长会议。会议将涉及对俄罗斯非法入侵乌克兰所采取的新制裁。
 
+佩恩在一份声明中表示：“俄罗斯对乌克兰的非法入侵表明，全球的和平与安全不应被视为是理所当然的。我期待着与北约成员会面，以加强国际团结，并对俄罗斯的非法和不公正行为做出回应。”
 
+佩恩认为，澳洲和北约有着“深厚而持久的伙伴关系，在自由、民主、人权和以规则为基础的秩序等共同价值观方面有着一致的观点”。
+
+同时，澳洲被认为是北约“增强机会的合作伙伴”之一。
+
+截止至今，澳洲已经对大约五百个与俄罗斯总统普京政权有关的个人和实体实施了制裁。
+
+此外，澳洲还提供了6500万澳元的人道主义资金，旨在帮助解决乌克兰民众最迫切的需求，并提供了1.16亿澳元的防御性军事援助。
+
+新闻来源：[澳洲参加北约外长会议 讨论对俄新制裁](https://www.epochtimes.com/gb/22/4/5/n13695996.htm)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,13 +2,12 @@
 ---
 
 
-## 采访一名来自美国的兽医志愿者
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2290510/)
+## 泽连斯基说俄罗斯人犯了战争罪，他们将被世界认定为种族灭绝
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2290545/)
 
-* * *
+04/04/2022 乌克兰总统泽连斯基说俄罗斯人犯了战争罪，他们将被世界认定为种族灭绝
 
-*翻译/字幕：Rock小哥
-编辑/发布：霹雳鼠年*
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

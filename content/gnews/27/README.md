@@ -2,56 +2,54 @@
 ---
 
 
-## 中共国是刚刚开掉了一名NBA球员吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2290522/)
+## 接受中共军事部署的赛尔维亚总统设计连任
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2290557/)
 
-翻译：JennyBall
+作者：波士顿五月花 – 文雀
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
 
 
+据4 月 3 日&lt;路透社&gt;报导，民意调查机构益普索和 CeSID 根据部分投票站计数样本的预测，塞尔维亚现任总统亚历山大·武契奇（Aleksandar Vucic）将于周日以 59.8% 的选票赢得连任。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-234044.jpg)图片来源：路透社
+武契奇表示，将坚持军事中立。尽管塞尔维亚支持两项谴责俄罗斯入侵乌克兰的联合国决议，但拒绝对莫斯科实施制裁。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-53-edited.png)埃内斯·坎特·自由(Enes Kanter Freedom )案例值得像对科林·卡佩尼克（ Colin Kaepernick）一样受到关注。
+塞尔维亚几乎完全依赖俄罗斯的天然气，而其军队也与俄罗斯军方保持联系。
 
-看起来篮球运动员坎特已经被 NBA 列入黑名单，因为他对联盟与中共的友好关系坦诚态度——为新疆集中营里到处都是维吾尔族人发声。
+武契奇已将自己从一个民族主义煽动者，转变为欧盟成员国、军事中立以及与俄罗斯和中共国关系的支持者。
 
-（点评：NBA的黑名单和独裁中共政权痛恨的是同一个人！）
+排名第二的亲欧洲派和中间派的胜利联盟的退役陆军将军波诺斯（Ponos）得票率为17.1％。他指责武契奇在竞选活动中利用乌克兰战争给人们带来的恐惧，来操控选情。
 
-今年早些时候，坎特开始在他的球鞋上印上由中共国持不同政见者艺术家巴丢草绘制的人权信息，他成为 NBA 挑战人权问题的直言不讳的批评者。 这包括直接瞄准联盟最知名的运动员勒布朗·詹姆斯。
+反对派和权利监督机构还指责武契奇及其盟友的专制统治风格、腐败、裙带关系、控制媒体、攻击政治对手以及与有组织犯罪的关系。武契奇和他的盟友则否认所有这些指控。
 
-2019 年，在休斯顿火箭队总经理达里尔·莫雷在一系列现已删除的推文中，公开反对中共国，并支持香港的民主运动后，中共暂停了其境内所有 NBA 转播。 当时的联盟专员亚当·萧华为莫雷辩护，而像詹姆斯这样的球员则称莫雷这些评论是没有受过教育。
+据文贵先生4月3日直播中的爆料，在5天之前，该国已接受中共红旗导弹与反导弹系统的部署，这将是北约对乌克兰未来的空中支援的绝对威胁。
 
-（点评：詹姆斯评论的是中共的语气：莫雷这些评论证明没有受过“中共”的教育。）
+参阅链接：
+[https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/](https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/)
 
-中央电视台（CCTV）和中国官方数字媒体公司腾讯传媒在一份声明中表示，“我们强烈不满，我们反对萧华声称支持莫雷的言论自由权。 我们认为，任何挑战国家主权和社会稳定的言论都不属于言论自由的范围。” 自 2009 年以来，腾讯传媒一直是 NBA 与中国的数字合作伙伴，交易价值约 10 亿美元，签约至 2025 年。
+[https://youtu.be/NWaBeFIf53Q](https://youtu.be/NWaBeFIf53Q)
 
-去年 10 月，坎特·敦促他的球员们抵制北京奥运会，并将中共国家主席习近平称为残暴的独裁者。坎特当时是波士顿凯尔特人队的中锋。他继续大声抗议，直到今年 2 月，他被毫不留情地裁掉，讽刺的是，他声称在被交易到休斯顿火箭队后就预测到了这一举动。看到他的上场时间急剧减少，因为他的抗议声越来越大，并在国家媒体上获得了关注。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
-简单来说：坎特于去年 10 月开始公开反对联盟与中共国的持续关系。今年**2**月，他被休斯顿火箭队裁掉，并没有被另一支球队接收。今年** 3 **月，**NBA**就恢复了与中共国似乎有条件的关系，以转播其比赛，并继续让其球星通过像勒布朗·詹姆斯那样经营篮球训练营来参与中国市场，同时，拒绝任何对维吾尔族的人权侵犯行为和反对支持香港。
-
-“真让人难过！当我离开联盟的那一刻，NBA 就爬回了中共国，”坎特自由告诉观众。 “
-
-然而，勒布朗**·**詹姆斯直言不讳地批评美国土地上的警察暴行，因为他知道自己的底线和品牌不会受到影响。这纯粹是道德上的怯懦。
-
-一些人将坎特与替补四分卫科林·卡佩尼克相比，卡佩尼克在奏国歌时会跪下，将警察比作猪，将 NFL 比作一群拍卖奴隶。虽然可以提出这样的论点，即：卡佩尼克和坎特为任何愿意签下他们的球队提供的天赋递减，收益递减，而且，他们的激进主义会让人头疼和分心，但这就是比较的结果。 卡佩尼克获得了主流媒体的大力支持，并与 Netflix 和耐克公司签署了数百万美元的开发合同，耐克公司公开游说，反对拟议的反奴隶劳工立法。
-
-当我们的媒体以卡佩尼克所获得的那种认可的关注来倾诉坎特时，当他尽管明显黑名单上榜而获得数百万美元的代言时，那么，也许可以进行这种比较。就目前而言，这一切的时机对 NBA 来说都很糟糕。
-
-新闻来源：[did china just take out an nba player](https://spectatorworld.com/topic/did-china-just-take-out-an-nba-player/)
-
-* * *
-
-审核：文乐
-校对：小东
-发布：五通庙
+编辑/校对/发稿：H.B
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

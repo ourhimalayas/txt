@@ -2,72 +2,35 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.5）&#8211;新冠辉瑞疫苗第二针副作用（二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2290833/)
+## 中日财经爆┃入股推特 马斯克迷一样的操作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2290915/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+新中国联邦的 GETTR以其对言论自由的尊重和创新能力，已经为用户提供了颇具影响力的平台。加上Elon Musk提出了建立一个新的社交媒体平台的想法为该领域注入了活力。
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%96%AB%E8%8B%97%E5%89%AF%E4%BD%9C%E7%94%A8.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-41.png)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+近日，马斯克（Elon Musk）提出了建立一个新的社交媒体平台的想法。然后在周一，他收购了 Twitter 本身超过 9% 的股份，令市场大吃一惊。
 
-帖子原文：
+一直以来Twitter言论自由方面颇受诟病，尤其对前任总统特朗普的关闭账号行为，引起大多民众的反感。去年Twitter的股价从最高80美元爆跌至现在的50美元左右，几乎腰斩，平台用户量雪崩式下滑。在中共病毒流行开始Twitter加大了言论审查的力度，几乎和中共步调一致。
 
-辉瑞疫苗（二）
+大多平台用户认为：“我们需要的是言论自由，一个宽容的平台，允许所有言论，只要它不以特定的方式、时间和地点传达针对个人的可操作的、特定的威胁。”
 
-接上篇，昨天打字到手痉挛，一瞬间就手脚抽搐
+而此次Elon Musk的收购行为引起人们普遍猜测。据分析Elon Musk并不是在寻求获得对Twitter公司的控制权或影响谁控制公司。尽管如此Elon Musk还是在这次的操作中实实在在的赚了11亿美元。
 
-呼吸困难，大口喘气，眼泪止不住的流
+众所周知，健康的市场需要存在合理的竞争，Twitter的做法使市场的竞争环境呈现单一性，亟需有创新的媒体参与进来。新中国联邦的 GETTR以其对言论自由的尊重和创新能力，已经为用户提供了颇具影响力的平台。加上Elon Musk提出了建立一个新的社交媒体平台的想法为该领域注入了活力。
 
-脚一直麻木到膝盖，我在心里想如果再继续往上麻木到骨盆，就要打急救电话
+一直以来天才马斯克都是传奇一样存在。他具有多数富豪所不具备的，对人类良知的认知能力。其天马行空的创意和雷厉风行的执行力，令世人刮目相看。Elon Musk这次操作的结果我们拭目以待。
 
-那一瞬间我感觉自己要挂了，就差一点把两个娃叫上楼交代后事了
-
-我以开玩笑的语气跟我先生说：如果我死了你要好好照顾孩子
-
-先生吓到脸惨白，但是还是故作镇定的说：不会的，不要瞎说！
-
-我先生和我表姐两个人不停的给我搓手脚，我的手就是脑血栓后遗症的照型
-
-体温瞬间达到38.5度
-
-大概半个小时后才开始一点点恢复
-
-睡了一觉之后烧还没退，感觉很饿很饿，吃了一大碗皮蛋瘦肉粥，出了一点汗，退烧了
-
-看电视到快十二点，没有再次发烧我就安心的去睡了
-
-今天早上起来感觉好多了
-
-虽然腰一直疼，手臂肿得像馒头，拿冰袋冷敷消肿
-
-这次也算是经历过生死了，都说大难不死 必有后福
-
-我就等着福气赶紧来吧
-
-评论选集：
-
-[银河雪金](https://www.xiaohongshu.com/user/profile/5b85cb0ae2cb0b0001bd2891) 回复：
-
-辉瑞也有血栓的案例，关键是媒体不报道
-
-[Jooooon](https://www.xiaohongshu.com/user/profile/5a7f98bfe8ac2b12a7f94da1) 回复：
-
-我第一针和你反应差不多，第二针至今没敢打。你现在第二针以后下腹还痛不吗？
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-468.png)图片来源：小红书
-参考链接:
-
-[接种辉瑞新冠疫苗严重副作用](http://xhslink.com/NFSbAg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
