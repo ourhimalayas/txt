@@ -2,11 +2,11 @@
 ---
 
 
-## 大卫带来最前线的消息（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289749/)
+## 新中国联邦前线的第一次实战（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289820/)
 
-#### PPT制作：0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-1000-1010-1_3.jpeg)
+#### PPT制作：Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-1010-1020-2_5.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

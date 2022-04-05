@@ -2,35 +2,51 @@
 ---
 
 
-## 【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2288285/)
+## GETTR3月份注册用户持续增加
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2288658/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是上海居民遇生存危机 呼吁停止静态清零！
+作者：日本东京方舟农场-Miyali7768(文玉
 
-中共病毒疫情在中共国蔓延，日增染疫人数破万。 其中上海最为严重，大多数都是无症状感染者。上海医疗系统如两年前武汉几近崩溃，民众四处求医求紧急救助却告无门。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-近日来，社交媒体出现大量市民求助帖，请外界关注。 其中包括刚从ICU出来的高危病人，入住康复中心后无医疗辅助治疗，物资短缺，营养餐仅为白粥。也被封院，患者家人投诉无门，只能任由病者生死由命。前数日也有气喘患者及糖尿病患者因官方激进防疫手法导致延误就医丧命。
 
-网上还流传婴幼儿也被放入隔离点，无父母陪伴。其惨状也是不堪入目。有居民发表为民请命书，要求停止清零政策。
 
-上海原是“抗疫模范生”，又是中共的政治中心，这次在上海突然疫情爆发极为蹊跷，这种“全域静态管理” 就是因政治而起，源头就在中共的极权统治本身。 中共不灭， 这种灾难会随时落到任何中国人的头上。
 
-盖特链接：[https://gettr.com/post/p13h9en98fd](https://gettr.com/post/p13h9en98fd)
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+据《RSBN》4月2日消息，自由言论社交媒体平台GETTR，在3月份经历了爆发式的用户增长，该平台的注册人数飙升了34%，令人意外。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2020-11-20T115737.539.jpg)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+自2021年初以来，随着Twitter、Facebook和Instagram等平台的审查制度收紧，使得GETTR这样的言论自由平台注册用户持续增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+GETTR营销和全球合作高级副总裁凯兰-道尔（Kaelan Dorr）向《RSBN》的记者表示，垄断社交平台的言论审查行为，迫使他们的用户纷纷选择言论自由的社交媒体平台。GETTR始终坚持不因政见分歧而审核言论的平台宗旨。
+
+首席执行官杰森·米勒（Jason Miller）在GETTR新闻稿中表示，硅谷科技寡头是言论自由的敌人，但对GETTR来说是个好消息，因为我们是一个致力于言论自由的平台。
+
+迄今，GETTR已在全球范围拥有了500万正式注册用户。2022年第一季度末，用户注册率超过了50%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

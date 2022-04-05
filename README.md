@@ -15,88 +15,88 @@
 
 ---
 
-### [新中国联邦前线的第一次实战（一）](/content/gnews/1/README.md)
+### [中国会形成联邦制 中共即将发起更凶险的战争（一）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [大卫带来最前线的消息（三）](/content/gnews/2/README.md)
+### [新中国联邦前线的第一次实战（五）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [大卫带来最前线的消息（二）](/content/gnews/3/README.md)
+### [新中国联邦前线的第一次实战（四）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [大卫带来最前线的消息（一）](/content/gnews/4/README.md)
+### [新中国联邦前线的第一次实战（三）](/content/gnews/4/README.md)
  ` 雅典娜GNotes`
 
-### [20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋](/content/gnews/5/README.md)
+### [新中国联邦前线的第一次实战（二）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋](/content/gnews/6/README.md)
  ` Tokyo Sakura Video Group`
-
-### [新中国联邦前线战友最帅（三）](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
 
 ### [20220403文贵大直播：马斯克改变人类科技但是怕共产党，疫苗灾难后生物科技大发展](/content/gnews/7/README.md)
  ` Tokyo Sakura Video Group`
 
-### [乌克兰救援前线报道4.05.2022：战地版的真人真事 台湾小哥Naïve](/content/gnews/8/README.md)
+### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [乌克兰救援前线报道4.05.2022：战地版的真人真事 台湾小哥Naïve](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [20220403文贵大直播：马斯克做媒体商业上会很成功 但做不到gettr有信仰的唯真不破](/content/gnews/9/README.md)
+### [20220403文贵大直播：马斯克做媒体商业上会很成功 但做不到gettr有信仰的唯真不破](/content/gnews/10/README.md)
  ` Tokyo Sakura Video Group`
 
-### [新州直升机坠毁两人丧生，今年第六起致命航空事故](/content/gnews/10/README.md)
+### [新州直升机坠毁两人丧生，今年第六起致命航空事故](/content/gnews/11/README.md)
  ` 走进澳洲`
 
-### [短视频：福奇的末世性的声明失去了影响力](/content/gnews/11/README.md)
+### [短视频：福奇的末世性的声明失去了影响力](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [安大略省立法消减汽油燃料税](/content/gnews/12/README.md)
+### [安大略省立法消减汽油燃料税](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [郭文贵先生2022年4月4日盖特视频（9分36秒）全文字版](/content/gnews/13/README.md)
+### [郭文贵先生2022年4月4日盖特视频（9分36秒）全文字版](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/14/README.md)
+### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄罗斯在布查市实施大屠杀 西方发誓要严惩](/content/gnews/15/README.md)
+### [俄罗斯在布查市实施大屠杀 西方发誓要严惩](/content/gnews/16/README.md)
  ` 蓝莲花农场`
 
-### [被乔治•奥威尔式的媒体包围，俄罗斯人民不知战争真相](/content/gnews/16/README.md)
+### [被乔治•奥威尔式的媒体包围，俄罗斯人民不知战争真相](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/17/README.md)
+### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共在俄军入侵乌克兰前发动网络攻击](/content/gnews/18/README.md)
+### [中共在俄军入侵乌克兰前发动网络攻击](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多政府治国方针日渐中共化](/content/gnews/19/README.md)
+### [特鲁多政府治国方针日渐中共化](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [加拿大计划对俄罗斯进行战争罪调查](/content/gnews/20/README.md)
+### [加拿大计划对俄罗斯进行战争罪调查](/content/gnews/21/README.md)
  ` 扬帆枫叶快讯`
 
-### [2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行](/content/gnews/21/README.md)
+### [2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220403郭文贵大直播 ：中共粮食危机和将对台湾毁灭性的打击](/content/gnews/22/README.md)
+### [20220403郭文贵大直播 ：中共粮食危机和将对台湾毁灭性的打击](/content/gnews/23/README.md)
  ` Tokyo Sakura Video Group`
 
-### [日本外务大臣结束波兰访问回国](/content/gnews/23/README.md)
+### [日本外务大臣结束波兰访问回国](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京设立热线电话和网站，举报任何反对乌克兰战争的人](/content/gnews/24/README.md)
+### [普京设立热线电话和网站，举报任何反对乌克兰战争的人](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [上海全面封城 民众怨声载道](/content/gnews/25/README.md)
+### [上海全面封城 民众怨声载道](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [GETTR3月份注册用户持续增加](/content/gnews/26/README.md)
+### [GETTR3月份注册用户持续增加](/content/gnews/27/README.md)
  ` GTV News Talk`
 
-### [【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零](/content/gnews/27/README.md)
- ` G-时新闻`
-
-### [【G时新闻】上海的疫情是否会成为香港的重演？](/content/gnews/28/README.md)
+### [【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零](/content/gnews/28/README.md)
  ` G-时新闻`
 
 ### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/29/README.md)
