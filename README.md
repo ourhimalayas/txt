@@ -15,88 +15,88 @@
 
 ---
 
-### [樱花时政┃众多国家驱逐俄罗斯外交官](/content/gnews/1/README.md)
+### [中共党媒瞪眼替俄罗斯撒弥天大谎](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰国防部情报局的现代化作战能力太强了](/content/gnews/2/README.md)
+### [中共独裁者的个人崇拜](/content/gnews/2/README.md)
+ ` NFSC News`
+
+### [樱花时政┃众多国家驱逐俄罗斯外交官](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登：“残暴的”普京应该面临战争罪审判](/content/gnews/3/README.md)
+### [乌克兰国防部情报局的现代化作战能力太强了](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登：“残暴的”普京应该面临战争罪审判](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共房地产危机 深圳二手房成交创15年最低](/content/gnews/4/README.md)
+### [中共房地产危机 深圳二手房成交创15年最低](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《灭共的雪》和《锁链梦》上线苹果音乐](/content/gnews/5/README.md)
+### [《灭共的雪》和《锁链梦》上线苹果音乐](/content/gnews/7/README.md)
  ` NFSC News`
 
-### [2022/04/05英喜时事速递](/content/gnews/6/README.md)
+### [2022/04/05英喜时事速递](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [野蛮清零引发更多骚乱 北京向上海派遣军队](/content/gnews/7/README.md)
+### [野蛮清零引发更多骚乱 北京向上海派遣军队](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共武统派人渣“学者”党校讲课竟呼吁打台湾照搬俄乌战](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [新中国联邦正与国际社会合作灭共](/content/gnews/9/README.md)
+### [新中国联邦正与国际社会合作灭共](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [有声|乌克兰海港城市敖德萨遭俄军空袭](/content/gnews/10/README.md)
+### [有声|乌克兰海港城市敖德萨遭俄军空袭](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [俄乌战争消息更新](/content/gnews/11/README.md)
+### [上海取消当日核酸检测，日本人被允许回国](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [有声|立陶宛宣布停止进口俄罗斯天然气](/content/gnews/12/README.md)
+### [俄乌战争消息更新](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [有声|立陶宛宣布停止进口俄罗斯天然气](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [疫苗灾难爆发：上海人在天堂与地狱之间挣扎](/content/gnews/13/README.md)
+### [疫苗灾难爆发：上海人在天堂与地狱之间挣扎](/content/gnews/15/README.md)
  ` 战云长天时评`
 
-### [美太平洋舰队司令：履行防卫台湾承诺不能松懈](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|日本自媒体人被新中国联邦灭共壮举感动](/content/gnews/15/README.md)
+### [有声|日本自媒体人被新中国联邦灭共壮举感动](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [2022/04/04文贵先生盖特精要](/content/gnews/16/README.md)
+### [2022/04/04文贵先生盖特精要](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [丹麦宣布驱逐15名俄外交官, 莫斯科将进行报复](/content/gnews/17/README.md)
+### [丹麦宣布驱逐15名俄外交官, 莫斯科将进行报复](/content/gnews/18/README.md)
  ` thedawn`
 
-### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/18/README.md)
+### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频|人道救援行动仍在继续](/content/gnews/19/README.md)
+### [视频|人道救援行动仍在继续](/content/gnews/20/README.md)
  ` MOSVIDEO`
 
-### [视频|警惕：匈牙利、塞尔维亚“两亲中俄”首脑连任](/content/gnews/20/README.md)
+### [视频|警惕：匈牙利、塞尔维亚“两亲中俄”首脑连任](/content/gnews/21/README.md)
  ` MOSVIDEO`
 
-### [视频|日媒分析中共在俄罗斯侵略中得到的启示](/content/gnews/21/README.md)
+### [视频|日媒分析中共在俄罗斯侵略中得到的启示](/content/gnews/22/README.md)
  ` MOSVIDEO`
 
-### [如果中共入侵台湾，台湾的芯片优势将增加全球经济风险](/content/gnews/22/README.md)
+### [如果中共入侵台湾，台湾的芯片优势将增加全球经济风险](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/23/README.md)
+### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/24/README.md)
  ` 關注組`
 
-### [신 중국 연방 최초 국제인도구호활동 참가 대사기](/content/gnews/24/README.md)
+### [신 중국 연방 최초 국제인도구호활동 참가 대사기](/content/gnews/25/README.md)
  ` 祁明`
 
-### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/25/README.md)
+### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [西媒头条 — 第201期](/content/gnews/26/README.md)
+### [西媒头条 — 第201期](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：韩国防疫当局，探讨缩短中共病毒（COVID-19）自我隔离时间&#8230;&#8221;还讨论撤除生活治疗中心&#8221;](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：俄罗斯3月份石油生产减少，&#8221;预计将进一步减产&#8221;](/content/gnews/28/README.md)
+### [秘翻在线：韩国防疫当局，探讨缩短中共病毒（COVID-19）自我隔离时间&#8230;&#8221;还讨论撤除生活治疗中心&#8221;](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [秘翻在线：婴幼儿因中共病毒与父母分离，人间悲剧何时止！](/content/gnews/29/README.md)

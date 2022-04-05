@@ -2,53 +2,37 @@
 ---
 
 
-## 2022/04/04文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2292673/)
+## 有声|日本自媒体人被新中国联邦灭共壮举感动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292735/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-502.png)[GETTR链接](https://gettr.com/post/p13im5827c4)
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+波兰当地时间4月3日，一位来自日本的自媒体人在米蒂卡，法治基金-新中国联邦的帐篷内，接受了救援前线队员妮可的采访。当这位日本人听到妮可介绍，新中国联邦人是灭共的新中国人时，感到非常震惊。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-3.jpeg)
+他用不熟练的英语试图表达他的感受。他说，日本人通常都觉得中国人的形象就是中共政府。这是他生平第一次听到，新中国联邦要消灭中国共产党。他感到非常的印象深刻。
 
-• 曾经参与陷害七哥的人都不会善终。梁冠军、董克文、曲龙（前妻和儿子自杀，最终会被重判）、郑介甫（被澳大利亚遣返）、河北政法委书记董仙生（身边人被抓完）。
-
-• 上海、长春已经是人间地狱，深圳死亡人数不报道。疫情再次爆发全是疫苗反应，并非新病毒。
-
-• 所谓中共国十大房企（融创、恒大、合生创展、碧桂园、保利、富力等）均借钱不还，下游建筑公司和装修公司抓狂。
-
-• 中共国内房地产和银行倒塌还未到来。
-
-• 中共国几个大银行限制大额转款，严格监督款的使用。
-
-• 七哥两首歌《灭共的雪》和《锁链梦》经历千辛万苦成功上线，并在加拿大、美国、台湾等地迅速登榜。
-
-• 新平台投资截止日延期至2022-11-30，喜币随即大涨。新平台投资可能接受HDO或HCN。
-
-• 联合国某组织想和新中国联邦建立关于乌克兰和中国的人权基金会。更多大好消息七哥择机宣布，
-
-• 香港人正逐渐醒来，“四大不要脸”家族病的病、死的死。
-
-• 七哥每天都是十几个小时的会议，下周三以后会有两次大直播。
-
-• 中共国医院已“疯”。中共国还在政治斗争，中央批评各地向上海“送菜送米”等援助行动。
-
-• 四个前线救援战友染上病毒，新中国联邦救援行动影响重大，为新中国联邦人挣面子，保海外华人安全防止海外排华。
-
-• 中共国情况堪忧，战友们“有币无苗”形成鲜明对比，七哥继续为大家“赚钱”。
-
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*听写：call me uncle|PR: 乐禧禧| Page：小六月*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+当他听说，一个名叫Miles Guo的中国人正在带领中国人灭共时，他手捂着胸口，接连说了几遍“感动“。他表示，他会用自媒体的方式力挺新中国联邦，传播灭共的使命。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+文字版原文：[日本自媒体人被新中国联邦灭共壮举感动](https://gnews.org/zh-hans/2287733/)
 
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

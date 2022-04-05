@@ -2,37 +2,33 @@
 ---
 
 
-## 中共房地产危机 深圳二手房成交创15年最低
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2292909/)
+## 乌克兰国防部情报局的现代化作战能力太强了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2292937/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+乌克兰国防部情报局在其网站上公布了列出了1600多个俄罗斯士兵的姓名、出生日期、军衔和护照号码。
 
-整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-63.png)（图片源自本文链接）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-349.png)图片来源：雅典娜设计组
+4月5日FNN综合在线消息：乌克兰国防部公布了一份在首都基辅附近的布查直接参与战争罪行的俄罗斯士兵名单。
 
+4月4日，乌克兰国防部情报局在其网站上公布了驻扎在布查的俄罗斯部队（第64自动狙击旅）的名称和该部队所属士兵名单，因为该部队在布查“直接参与了战争罪行”。
 
-今年3月份，深圳市二手房成交量创下了15年来最低，面对没有起色的市场，有开了几十年的老牌中介公司被迫关门，有房产中介兼职送外卖以维持生计。
+共列出了1600多个士兵的姓名、出生日期、军衔和护照号码。乌克兰国防部谴责说：所有对乌克兰公民犯下罪行的战犯都要接受审判。
 
-据《每日经济新闻》4月4日报导，该媒体统计了近15年来3月份深圳楼市成交情况发现，2022年3月深圳住宅二手房成交量是近15年最低，仅成交1117套，同比下跌84%。
+在布查，街道上发现了许多平民的尸体，泽伦斯基总统谴责这是种族灭绝行为，这种侵略行径也遭到了国际社会的批评。
 
-同时，二手房价格也在下降，据乐有家研究中心对日常门店数据的监测，3月，深圳二手房价格环比下跌3%，同比下跌2%，进入了低价区间。
+信息来源： [【速報】ロシア軍兵士1600人以上のリスト公表　ウクライナ国防省「戦争犯罪に直接関与」（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/77d1c16ce1e8827f0b87bbf95b2cb19b89746c02)
 
-深圳市是中国第一个推出二手房指导价格的城市，并最早将当局的参考价格与购房者的贷款额度直接挂钩的城市。
-
-市场不佳，受到影响较大的是房地产中介，深圳宝安区一家中介门店的向经理表示他们店两个多月没卖出二手房了，主要卖周边新房，惠州、中山和东莞等临深城市的以及一些出险房企在深圳打折的公寓。
-
-参考链接：
-
-[深圳二手房成交创15年最低中介兼职送外卖](https://www.epochtimes.com/b5/22/4/5/n13696064.htm)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

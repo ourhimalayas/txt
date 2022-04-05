@@ -2,34 +2,31 @@
 ---
 
 
-## 拜登：“残暴的”普京应该面临战争罪审判
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2292911/)
+## 樱花时政┃众多国家驱逐俄罗斯外交官
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2292943/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-14.jpg)
-合众国际社4月4日报道。美国总统拜登周一表示，他希望俄罗斯总统弗拉基米尔-普京最终将因其在乌克兰的战争而面临战争罪审判；鉴于不断升级的暴行，拜登誓言对莫斯科进行更多的经济惩罚。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月5日中国日报网报道，纽约时间4月4日，德国和法国外交部4日分别决定驱逐俄罗斯外交人员。德国外长贝尔伯克4日发表声明说，德方当天宣布俄驻德使馆“大量”外交人员为“不受欢迎的人”，并已通报俄驻德大使。
 
-在乌克兰发生血腥的周末之后，拜登总统周一发表了上述讲话。乌克兰官员称，俄罗斯军队在首都基辅附近的布查（ Bucha）杀害了一些平民。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/众多国家驱逐俄罗斯外交官.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Frs1.huanqiucdn.cn%2Fdp%2Fapi%2Ffiles%2FimageDir%2F0ee181c3ccb88d98bfea9c19214dfa3d.png&amp;imgrefurl=https%3A%2F%2Fworld.huanqiu.com%2Farticle%2F47CIZH1mwK3&amp;tbnid=cFbnpf_QxzquGM&amp;vet=12ahUKEwj4u56h_vz2AhXpg_0HHU46DLYQMygLegUIARDCAQ..i&amp;docid=K2LDkK42fiI55M&amp;w=722&amp;h=406&amp;q=%E4%BF%84%E5%A4%96%E4%BA%A4%E4%BA%BA%E5%91%98&amp;ved=2ahUKEwj4u56h_vz2AhXpg_0HHU46DLYQMygLegUIARDCAQ)
 
-拜登呼吁收集显示普京策划了这些暴行的证据，以便将他作为战犯接受审判。
+贝尔伯克说，德国将进一步收紧现有对俄制裁措施，加大对乌克兰武装部队的支持力度。据德国媒体报道，德方宣布40名俄外交人员为“不受欢迎的人”，并要求他们5天内离境。
 
-“这个人很残暴，在布查发生的事情令人发指，每个人都看到了。我认为这是一种战争罪。”拜登在华盛顿特区告诉记者。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-13.jpg)
-拜登是在周日发现似乎显示乌克兰平民在布卡被草率处决的照片后发表上述评论的。一些照片显示了一个看起来像乱葬岗的地方，以及躺在街上的尸体。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-8.jpg)
-拜登在讲话中呼吁对俄罗斯进行更多制裁，但没有具体说明。自2月24日战争开始以来，美国和其他一些国家已经对俄罗斯和有影响力的俄罗斯官员和寡头进行了严厉制裁。
+据法国媒体报道，法国外交部也在当日发表声明说，法方决定驱逐35名俄外交人员。这些人员的活动“违反了法国安全利益”。据法国媒体报道，法方决定驱逐35名俄外交人员。
 
-拜登上个月因为当时谴责普京是战争罪犯而受到一些批评–拜登在周一指出了这一事实。
+在德国和法国宣布将驱逐俄外交官与此同时，比利时驱逐21名俄外交官，荷兰驱逐17名俄外交官，爱尔兰驱逐4名俄外交官，捷克驱逐1名俄外交官，波罗的海三国驱逐了10名俄外交官，波兰驱逐45名俄外交官，拉脱维亚驱逐俄大使、外交降级，立宛驱逐俄大使、外交降级，此时的俄罗斯已被全世界孤立，2022年初始的春天，却是俄罗斯外交的冬天。
 
-“你可能记得我因为称普京为战犯而受到批评。那么，事情的真相是——你看到了在布查加发生的事情。这证明了他——他是一个战犯，”他说。
+[【德国和法国决定驱逐俄外交人员 俄方表示将做出回应】](https://ml.mbd.baidu.com/r/DZkES7J3ji?f=cp&amp;rs=1953408491&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=424b155e9290de56&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
 
-“但我们必须收集信息，我们必须继续向乌克兰提供他们继续战斗所需的武器，我们必须掌握所有细节，以便这成为现实——进行战时审判。”
-
-“他应该被追究责任。”
-
-周一早些时候，美国驻联合国大使琳达-托马斯-格林菲尔德（s Linda Thomas-Greenfield）在一条推文中说，她将呼吁把俄罗斯从联合国人权理事会除名。
-
-新闻来源：[https://www.upi.com/Top\_News/US/2022/04/04/joe-biden-vladimir-putin-war-criminal-trial/2221649089293/](https://www.upi.com/Top_News/US/2022/04/04/joe-biden-vladimir-putin-war-criminal-trial/2221649089293/)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

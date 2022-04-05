@@ -2,41 +2,39 @@
 ---
 
 
-## 有声|立陶宛宣布停止进口俄罗斯天然气
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292774/)
+## 上海取消当日核酸检测，日本人被允许回国
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2292817/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-外媒报道，立陶宛能源部4月2日发表一份声明称，立陶宛将不再进口俄罗斯天然气，成为欧洲第一个脱离俄罗斯天然气供应的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-5.jpg)
-该声明表示，立陶宛国内消费的所有天然气，都将通过克莱佩达港的液化天然气接收站进口。该接收站于 2014 年落成，旨在结束俄罗斯对立陶宛天然气供应的垄断。
-
-普京最近要求外国买家，从4月1日开始，以卢布购买俄罗斯天然气，否则将面临供应削减。此举遭到欧洲各国的反对。立陶宛能源部强调，摆脱俄罗斯的天然气供应，意味着该国不受俄罗斯强制以卢布支付天然气的影响，从而使俄罗斯的无理要求变得毫无意义。
-
-立陶宛总统瑙塞达4月2日在推特发文称，立陶宛正在打破与侵略者的能源联系。如果立陶宛能做到，欧洲其他国家也一样能做到。
+作者：日本方舟农场 – Andy5
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-文字版原文：[立陶宛宣布停止进口俄罗斯天然气](https://gnews.org/zh-hans/2286801/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+当地时间4月3日，日媒报道中共所公布当日新增病例数据，自2020年2月的武汉以来，首次突破1万例，而其中上海和吉林两地占到总数居的96%。因上海进入完全封城的状态，所以中共要求包括日本人在内的所有居民足不出户。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-2.jpg)
+据日媒记者实地发所发信息表明，因中共防控App出现将阳性病例判定为阴性的事情，因此上海突然取消了3日的核酸检测。另一方面，在日本驻上海总领事馆的不断交涉下，中共允许上海部分地区的日本人立即回国。在已经完全封锁的上海市内，中共派出专车接送这些日本人抵达机场，乘坐当日最早的航班返回日本。而中共所有的媒体都对该新闻保持了沉默。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+观察人士指出，中共在上海疫苗灾难爆发后的表现，和2年前对武汉的高压政策毫无二致。日本总领馆在中共实施封控后，立即实施撤侨则表明，国际社会很清楚中共抗疫手段有多么的残酷、违反人权以及无效。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+参考链接：
+1. [上海浦西多个小区暂停4月3日核酸筛查](https://www.yicai.com/news/101369273.html)
+2. [上海ロックダウン、日本に帰国したくてもできない…駐在員「６月頃まで予約取れない」](https://www.yomiuri.co.jp/world/20220402-OYT1T50188/)
+3. [20220403日媒再揭露上海封城](https://www.gettr.com/post/p13hdv95425)
+4. [市民录音投诉“健康云阴性、疾控通知阳性”，浦东回应](https://news.sina.com.cn/c/2022-04-02/doc-imcwipii2077159.shtml)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+编辑/总编/审核：DM
+校对/发稿：为真不破20
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

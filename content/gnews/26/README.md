@@ -2,27 +2,31 @@
 ---
 
 
-## 西媒头条 — 第201期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2292404/)
+## 秘翻新闻｜中共国进行近一年以来最大玉米采购
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292415/)
 
-**制作：蚂蚁兄弟**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+**By:[秘翻新闻](https://gettr.com/post/p13mv2jd97b)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xm220405.001.jpeg)
+**[2022-04-05](https://gettr.com/post/p13mv2jd97b)**
 
-***发稿：信心满满***
+**新闻内容:**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**1.黑龙江抗疫医生时军自杀消息疯传 传生前受辱**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+**2.上海防疫一团乱 居委会女官崩溃痛哭录音热传**
 
+**3.卫星图像证实俄军屠杀布查平民**
 
+**4.中共对布查平民被杀事件保持沉默**
 
+**5.因俄杀戮平民 美欧计划新一轮制裁**
+
+**Gettr链接：[https://gettr.com/post/p13mv2jd97b](https://gettr.com/post/p13mv2jd97b)**
+
+发布:星星
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
