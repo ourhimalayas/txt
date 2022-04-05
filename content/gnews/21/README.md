@@ -2,28 +2,22 @@
 ---
 
 
-## 欧盟的冯德莱恩和博雷尔将在基辅会见泽连斯基
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2291810/)
+## 俄罗斯人用封闭胶带，铁丝网和口香糖修补租赁客机
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2291838/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+编译：波士顿五月花—-思澈
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+俄罗斯反航空制裁不归还租赁客机，维修飞机无法获得备件。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/057A8A2B-77C8-4321-8EC4-0BD01D9E31E7.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WU7LU3YJWBIIRLGQR4HW2EEU6M.jpg)
+自从俄罗斯入侵乌克兰开始欧盟在2月底对俄罗斯航空实施严厉制裁。租赁公司必须在3月31日前终止与俄罗斯客户的合同，为了避免失去资产，租赁公司必须收回租给俄罗斯客户的飞机，但是普京不归还重新注册占为己有。日常维修飞机需要的备件无法获得，俄罗斯人就地取材用一切可以利用的材料修补飞机为保障飞机继续安全飞行。
 
+素材来源：1）[https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181](https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181)
 
-资料来源：路透社
+2）[https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html](https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html)
 
-欧盟发言人周二表示，欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟最高外交官何塞普·博雷尔本周将前往基辅与乌克兰总统泽连斯基会面。
-
-欧盟发言人埃里克·马默在推特上写道，会议将在“周六在华沙举行的#StandUpForUkraine 认捐活动之前”举行。
-
-简评：为了表示欧盟对乌克兰抵抗俄罗斯侵略的巨大支持， 欧盟主席和最高外交官将前往战争中的乌克兰首都基辅，与乌克兰总统会面。 这已经表明了欧盟的立场， 以及对俄罗斯的进一步孤立。
-
-🔗 [https://www.reuters.com/world/europe/eus-von-der-leyen-borrell-meet-zelenskiy-kyiv-spokesman-2022-04-05/](https://www.reuters.com/world/europe/eus-von-der-leyen-borrell-meet-zelenskiy-kyiv-spokesman-2022-04-05/)
-
-责任编辑、发布： Shuizhuyu
+*发布：思澈*
 
 
 
