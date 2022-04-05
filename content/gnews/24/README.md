@@ -2,20 +2,24 @@
 ---
 
 
-## 有声|日本自媒体人被新中国联邦灭共壮举感动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292735/)
+## 有声|立陶宛宣布停止进口俄罗斯天然气
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292774/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-波兰当地时间4月3日，一位来自日本的自媒体人在米蒂卡，法治基金-新中国联邦的帐篷内，接受了救援前线队员妮可的采访。当这位日本人听到妮可介绍，新中国联邦人是灭共的新中国人时，感到非常震惊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-3.jpeg)
-他用不熟练的英语试图表达他的感受。他说，日本人通常都觉得中国人的形象就是中共政府。这是他生平第一次听到，新中国联邦要消灭中国共产党。他感到非常的印象深刻。
+配音：香草山农场 – 信念7
+![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
+外媒报道，立陶宛能源部4月2日发表一份声明称，立陶宛将不再进口俄罗斯天然气，成为欧洲第一个脱离俄罗斯天然气供应的国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-5.jpg)
+该声明表示，立陶宛国内消费的所有天然气，都将通过克莱佩达港的液化天然气接收站进口。该接收站于 2014 年落成，旨在结束俄罗斯对立陶宛天然气供应的垄断。
 
-当他听说，一个名叫Miles Guo的中国人正在带领中国人灭共时，他手捂着胸口，接连说了几遍“感动“。他表示，他会用自媒体的方式力挺新中国联邦，传播灭共的使命。
+普京最近要求外国买家，从4月1日开始，以卢布购买俄罗斯天然气，否则将面临供应削减。此举遭到欧洲各国的反对。立陶宛能源部强调，摆脱俄罗斯的天然气供应，意味着该国不受俄罗斯强制以卢布支付天然气的影响，从而使俄罗斯的无理要求变得毫无意义。
+
+立陶宛总统瑙塞达4月2日在推特发文称，立陶宛正在打破与侵略者的能源联系。如果立陶宛能做到，欧洲其他国家也一样能做到。
 
 
 
-文字版原文：[日本自媒体人被新中国联邦灭共壮举感动](https://gnews.org/zh-hans/2287733/)
+
+
+文字版原文：[立陶宛宣布停止进口俄罗斯天然气](https://gnews.org/zh-hans/2286801/)
 
 音频处理：Tom Li
 发稿：Tom Li
@@ -32,7 +36,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

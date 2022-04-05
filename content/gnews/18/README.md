@@ -2,215 +2,44 @@
 ---
 
 
-## 2022/04/05英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2292879/)
+## 4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/2292907/)
 
-### 央视新闻：儿童感染者如何救治？上海市卫健委回应
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/E051EE32-DD2E-403B-A701-02E28F711262.png?asset_id=B4509F6C-44BB-4B72-9821-61E0828557BC&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/E051EE32-DD2E-403B-A701-02E28F711262.png?asset_id=B4509F6C-44BB-4B72-9821-61E0828557BC&amp;size=690)
-*（图片来源：网络）*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-18.png)[图片来源](https://www.reuters.com)
+**1.****美国停止支付俄罗斯债券，以提高对莫斯科的压力**
 
-**评论：**无论你们这帮屁民说我不通情理也好、违反人伦也好， 我要怎么干还怎么干，如果因为你们屁民有意见我就改了，那以后你们会提更多要求，所以坚决不能开这个头。
+[纽约/华盛顿，4月5日（路透社）–美国周一阻止俄罗斯政府从其在美国银行持有的储备中向其主权债务持有人支付6亿多美元，此举旨在加大对莫斯科的压力，并蚕食其持有的美元。根据俄罗斯在2月24日入侵乌克兰后实施的制裁，俄罗斯中央银行在美国金融机构持有的外汇储备被冻结。但财政部一直允许俄罗斯政府根据具体情况使用这些资金来支付以美元计价的主权债务的票据。据美国财政部发言人称，周一，随着最大一笔付款的到期，包括一笔到期债券的5.524亿美元本金支付，美国政府决定切断莫斯科对被冻结资金的使用。](https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/)
 
-### 观察者网：乌方称俄军撤退后发现410具平民遗体 俄方否认：挑衅
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/98F50BBB-F99D-4F54-9E95-3E44410EFDCC.png?asset_id=18401E5E-1F7C-4490-8020-F2DC536C2DAC&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/98F50BBB-F99D-4F54-9E95-3E44410EFDCC.png?asset_id=18401E5E-1F7C-4490-8020-F2DC536C2DAC&amp;size=640)
-*4月3日，乌克兰布查镇（图片来源：乌克兰国防部）*
+**2.****意大利电信与****KKR****就收购方式陷入僵局**
 
-**评论：**中共在这件事上试图为俄罗斯洗白的努力几乎毫无成效，大部分评论者相信这次大规模屠杀是俄军所为，评论“这是又一个卡廷惨案”获得了最多的认同。
+[路透米兰4月5日电–美国基金KKR（KKR.N）周二推动对意大利电信（TIM）的坚定收购的机会似乎进一步减弱，双方在获取该公司账目方面陷入僵局。据两位了解KKR致TIM董事会信函的消息人士称，KKR已告知TIM（TLIT.MI），除非意大利最大的电信集团在尽职调查过程中提供其账目，否则无法确认收购。TIM公司正在推进自己的独立计划，它希望只有在正式出价后才允许该基金进入。Banca Akros的分析师在一份说明中说：”现在看来，这笔交易的几率非常低”。在米兰的早盘交易中，TIM股价进一步下滑1.8%至0.31欧元，与去年11月KKR最初提出的108亿欧元（119亿美元）的价格相差甚远。](https://www.reuters.com/business/media-telecom/telecom-italia-shares-fall-kkrs-takeover-approach-falters-2022-04-04/)
 
-### 人民网：数字人民币研发试点扩容：新增天津、重庆、浙江、广州等地区
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/C0A0A27B-982E-4954-8EDF-2F25280D4A8A.jpg?asset_id=133B122B-3751-4B60-9FD9-DBADCB0C74E5&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/C0A0A27B-982E-4954-8EDF-2F25280D4A8A.jpg?asset_id=133B122B-3751-4B60-9FD9-DBADCB0C74E5&amp;size=1024)
-*2022年4月3日，福州，在手机上使用数字人民币app。4月开始，数字人民币新增试点扩围：天津重庆广州福州厦门和浙江6个城市入围（图片来源：IC）*
+**3.****俄罗斯大亨称对出口收取卢布会适得其反**
 
-**评论：**真的很着急加速数字网格化管理的进度，说白了就是要管，要控，以后只要按个键，你的就都不是你的了。
+[4月5日（路透社）–被《福布斯》杂志列为俄罗斯第三大富豪的钢铁大亨弗拉基米尔-利辛周二告诉《生意人报》，莫斯科对其出口产品收取卢布的计划将损害该国在全球市场的地位。他还批评了将俄罗斯公司的存托凭证从外国交易所除名的提议，称这将增加风险并损害股东的权利。在西方对乌克兰实施全面制裁后，俄罗斯总统普京下令以卢布而非外汇支付主要出口到欧洲的天然气。欧洲各国首都拒绝了这一要求，德国说这相当于 “敲诈”。包括议会下院议长维亚切斯拉夫-沃洛金在内的一些政治家建议，俄罗斯应在全球市场上以卢布出售石油、粮食、金属、化肥、煤炭和木材，因为这样做有利可图。](https://www.reuters.com/world/russian-magnate-says-charging-roubles-exports-would-backfire-newspaper-2022-04-05/)
 
-### 环球网：国家卫健委：全国15省份38000多名医务人员驰援上海
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/54865AFE-580A-4093-B488-6A454308E4CA.jpg?asset_id=CC173D58-693C-4F3D-905D-4596578ECC1C&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/54865AFE-580A-4093-B488-6A454308E4CA.jpg?asset_id=CC173D58-693C-4F3D-905D-4596578ECC1C&amp;size=750)
-*（图片来源：相关视频截图）*
+**4.****日本央行黑田东彦调高了对日元疲软的警告**
 
-**评论：**这个人数听着就可怕，难道不是大规模人口流动吗？不会造成传染吗？来了就不走了吗？还是说上海的“疫情”就是疫苗灾难？
+[东京，4月5日（路透社）–日本央行（BOJ）行长黑田东彦周二表示，日元最近的走势 “有点快”，加入了决策者的大合唱，他们警告说货币的大幅下跌可能会伤害该国依赖进口的经济。这番话是黑田东彦自上周日元跌至六年低点以来对日元走势发出的最强烈警告，也表明日本央行与政府一样，担心日元大幅下跌对企业情绪的潜在损害。”最近的（日元）走势有些迅速，”黑田东彦告诉议会，并补充说日本央行正在仔细观察货币走势，因为它们对经济和价格有 “巨大 “影响。黑田说：“货币汇率稳定地反映经济和金融的基本面，这一点极为重要。”](https://www.reuters.com/world/asia-pacific/bojs-kuroda-expected-acceleration-inflation-could-hurt-economy-2022-04-05/)
 
-### 环球网：巴媒：巴基斯坦总理在该国议会解散后被解除总理职务
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/3B4D8B8C-F1FE-40A4-8CCD-7A9D6AE55CBA.png?asset_id=97EF3A2B-FCBF-4D54-BED9-ECD30FA49D21&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/3B4D8B8C-F1FE-40A4-8CCD-7A9D6AE55CBA.png?asset_id=97EF3A2B-FCBF-4D54-BED9-ECD30FA49D21&amp;size=627)
-*（图片来源：微博截图）*
+**5.****俄罗斯可能****被****实施新制裁，石油延续涨势**
 
-**评论：**咋弄哩，又让教练说对了。
+[伦敦，4月5日（路透社）–油价周二上涨，因为美国和欧洲计划实施新的制裁，以惩罚俄罗斯在乌克兰被指控的战争罪行，引发了对全球供应收紧的担忧，同时伊朗与世界大国的核谈判陷入僵局。0801GMT时，布伦特原油上涨90美分，或0.8%，至每桶108.43美元；美国西德克萨斯中级原油上涨78美分，或0.8%，至每桶104.06美元。FXTM分析师Lukman Otunuga说：“随着欧盟正在制定可能针对俄罗斯石油行业的新制裁措施，原油价格在短期内可能会上升。”西方正在计划新的制裁措施，以惩罚俄罗斯在乌克兰发生的平民被杀事件。美国总统拜登的国家安全顾问说，美国对莫斯科的新制裁将在本周宣布。](https://www.reuters.com/business/energy/oil-rises-uncertainty-around-supply-persists-2022-04-05/)
 
-### 环球网：煽动战争伤人终伤己（观象台）
+**6.****埃隆****–****马斯克在推特上挖苦****Twitter****、****Web3****和****NFTs**
 
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/53A9E268-198D-4375-8A2D-58341FF3314D.jpg?asset_id=A33BA137-373D-4F1B-B68B-4D7A13919578&amp;size=2560)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/53A9E268-198D-4375-8A2D-58341FF3314D.jpg?asset_id=A33BA137-373D-4F1B-B68B-4D7A13919578&amp;size=280)
+[4月5日（路透社）–在特斯拉公司（TSLA.O）首席执行官埃隆-马斯克公开披露30亿美元的Twitter（TWTR.N）股份之前，这位亿万富翁曾批评该网站未能遵守言论自由原则，并表示他正在考虑建立一个新的社交媒体平台。这位世界首富在过去几个月中表示，他是一个言论自由的绝对主义者，同时对Web3持反对意见，Web3是一个乌托邦式的互联网版本的术语，是去中心化的，其商业支柱是不可伪造的代币（NFT）。推特联合创始人杰克-多尔西和马斯克虽然是加密货币的积极支持者，但对元空间、NFT和Web3（一些人认为是互联网的进化）都持怀疑态度。从嘲笑Twitter的新CEO到称NFT的资料图片 “令人讨厌”，这里列出了马斯克关于Twitter、Web3、NFT和言论自由的推文和评论。](https://www.reuters.com/business/elon-musk-takes-dig-twitter-web3-nfts-twitter-2022-04-04/)
 
-*（图片来源：知乎专栏）*
+**7.****2022****年全球债券销售将超过****10****万亿美元**
 
-**评论：**话说的没错，可角色全弄反了，这就叫恶人先告状吧。明明发动战争的是俄罗斯，煽动战争给钱给物的恰恰是纳粹中共自己。
+[4月5日（路透社）–NFT泡沫并没有破裂，但它可能已经出现了泄漏。在佳士得拍卖行，一个不可伪造的代币卖出了6930万美元的加密货币，买家花钱在区块链上被记录为任何人都可以在网上免费看到的数字文件的所有者，一年之后，这个奇怪而疯狂的市场正在显示出一些放缓的迹象。最大的NFT市场OpenSea上的销售额在1月份曾达到近50亿美元，比一年前的800万美元有了巨大的飞跃，但上个月下降到约25亿美元。根据市场跟踪器CryptoSlam的数据，上个月约有63.5万人购买了NFT，平均价格为427美元，比1月份的约94.8万人购买659美元有所下降。](https://www.reuters.com/business/global-bond-sales-cross-10-trillion-2022-sp-2022-04-05/)
 
-### 早报：中国九省出生率出现自然负增长
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/4F120C90-0E1E-456E-8A70-EDB9C7D76D00.jpg?asset_id=9C0754E4-668C-43FC-8C60-E1B6B9ADEC99&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/4F120C90-0E1E-456E-8A70-EDB9C7D76D00.jpg?asset_id=9C0754E4-668C-43FC-8C60-E1B6B9ADEC99&amp;size=1024)
-*（图片来源：澎湃新闻）*
+**8.****摩根大通的戴蒙警告说可能有****10****亿美元的俄罗斯损失**
 
-**评论：**纳粹党执政，民不聊生，人能越来越多就怪了。再加上毒疫苗，中国人就快绝种了。
+[纽约，4月4日（路透社）–摩根大通(JPM.N)首席执行官杰米-戴蒙(Jamie Dimon)周一表示，该行可能因俄罗斯的风险而损失约10亿美元，并首次详细说明了乌克兰冲突给该行带来的潜在损失程度。这家美国最大银行的董事长兼首席执行官在其备受关注的年度致股东信中，还敦促美国增加其在欧洲的军事存在，并再次呼吁美国制定一项计划，确保其自身及其盟友的能源安全。戴蒙没有提供摩根大通潜在的俄罗斯损失的时间框架，但表示该银行关注俄罗斯入侵乌克兰对公司和国家的二次影响。俄罗斯称其行动为 “特别行动”。全球银行在最近几周详细介绍了它们在俄罗斯的风险敞口，但戴蒙是尚未对冲突的更广泛影响发表评论的最引人注目的世界商业领袖。](https://www.reuters.com/business/finance/jpmorgans-dimon-warns-potential-1-bln-loss-russia-exposure-2022-04-04/)
 
-### 早报：上海卫健委：家长同染疫才可陪同婴幼儿感染者
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/29379D64-A0E7-4316-9E71-3103EB68F1A2.jpg?asset_id=9C9A278E-D7EE-4BF8-BA70-849C7ED0AB62&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/29379D64-A0E7-4316-9E71-3103EB68F1A2.jpg?asset_id=9C9A278E-D7EE-4BF8-BA70-849C7ED0AB62&amp;size=873)
-*（图片来源：相关视频截图）*
-
-**评论：**腾挪理由不好使，因为把孩子都腾挪弄哭了，现在换个说法叫感染才可陪同，还有希望小孩大人都感染的，多么的丧心病狂，下这个命令的卫健委，你家孩子应该也先感染个试试，看看你什么心情，是不是也需要陪孩子一起感染！
-
-### 新民周刊：王毅点金南亚新大陆
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/95D2804E-DE17-4A62-A4DA-88977E1DC5B4.png?asset_id=24C2ECB6-713E-445B-BA0C-5A8E4AE759FB&amp;size=2560)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/95D2804E-DE17-4A62-A4DA-88977E1DC5B4.png?asset_id=24C2ECB6-713E-445B-BA0C-5A8E4AE759FB&amp;size=600)
-*3月30日，王毅在安徽屯溪主持中巴三方外长会晤（图片来源：新民周刊）*
-
-**评论：**南亚诸国在中共长期渗透和利诱之下，大部分已逐渐沦为中共国经济附庸，未来中共国经济崩塌的时候它们必将为之付出惨重的代价。
-
-### 网易新闻：法驻沪总领事馆代表欧盟致函上海市政府：提出六条建议
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/250DA229-464D-4496-9FA5-13153FAC17FC.png?asset_id=20E2A6BC-D5ED-46A7-85D5-218F0357F10A&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/250DA229-464D-4496-9FA5-13153FAC17FC.png?asset_id=20E2A6BC-D5ED-46A7-85D5-218F0357F10A&amp;size=781)
-*（图片来源：网易新闻）*
-
-**评论：**其中第一条就是：无论任何情况，父母和孩子都不能被分开。在这一条上，对待本国百姓中共上海卫健委已经很明确表态了我以前怎么干的，以后还会继续这么干，现在面对洋大人提出的要求中共又会如何回应呢？
-
-### 搜狐：北京新发生三个疫情传播链 京外、境外输入是最大防控风险
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/EE1E2E35-B31E-4324-8804-F2939F9C318C.jpg?asset_id=C11FA1B6-B537-45BE-951B-EA8D321B7B14&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/EE1E2E35-B31E-4324-8804-F2939F9C318C.jpg?asset_id=C11FA1B6-B537-45BE-951B-EA8D321B7B14&amp;size=750)
-*（图片来源：微博截图）*
-
-**评论：**这是一个官官自危的时期，生怕丢了官帽，先宣布不是自己的问题，都是别人的错。晚了就和吉林一样一撸到底。
-
-### 搜狐：8省市已用上辉瑞新冠口服药，患者病毒载量明显下降
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/D1EFD1B4-1218-456D-8E22-8BEEB5D7B518.png?asset_id=4F672770-31E5-45B5-BB83-03E923F65600&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/D1EFD1B4-1218-456D-8E22-8BEEB5D7B518.png?asset_id=4F672770-31E5-45B5-BB83-03E923F65600&amp;size=705)
-*（图片来源：通用技术中国医药）*
-
-**评论：**是那种换了洋外衣的解药？一盒2300元谁来买单！青蒿素，伊维菌素很贵吗？看到了个网友的精彩回复：”不要再用中药坑大家了，行吗“？请钟南山你出来谈谈你的莲花感想！
-
-### 搜狐：关键时刻，美国总统视察新型核潜艇
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/A9F9FF70-06D1-4FE5-8209-EFDAE3487027.png?asset_id=662834CA-409A-487A-B6D7-EDD5822E5A90&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/A9F9FF70-06D1-4FE5-8209-EFDAE3487027.png?asset_id=662834CA-409A-487A-B6D7-EDD5822E5A90&amp;size=750)
-*（图片来源：网络）*
-
-**评论：**就是看看而已，没做亏心事的心里害怕个啥！
-
-### 新民网：上海警方：违反防疫规定将处罚，转发信息不要成为谣言传播推手 | 疫情防控发布会
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/9BFEB3ED-6AF7-40E7-B9F5-5723620354F1.png?asset_id=EFB7F900-130A-474D-98F1-C6ACCE53737C&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/9BFEB3ED-6AF7-40E7-B9F5-5723620354F1.png?asset_id=EFB7F900-130A-474D-98F1-C6ACCE53737C&amp;size=1024)
-*（图片来源：视频截图）*
-
-**评论：**中共将对上海实施更严格的管控，对不参与核酸的要处罚，对转发关于疫情的各种消息也加大了惩处力度，总之，听话，“不信谣，不传谣”，安静做个“顺民”就好。
-
-### 日本经济新闻：日本拒绝用卢布支付俄罗斯天然气费用的要求
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/D91115E0-6E9C-4B63-BE40-41D2CD7F2C4E.png?asset_id=AD4AA23D-082B-41ED-9F57-93E1E17AF267&amp;size=2560)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/D91115E0-6E9C-4B63-BE40-41D2CD7F2C4E.png?asset_id=AD4AA23D-082B-41ED-9F57-93E1E17AF267&amp;size=600)
-*卢布纸币（图片来源：路透社）*
-
-**评论：**4月1日，日本首相岸田文雄在参议院全体会议上，针对以卢布支付俄罗斯天然气的费用，表明了拒绝的方针。日本没有因为能源而向普京低头，与G7集团同步制裁普京政权。
-
-### 纽约时报：央视恢复转播NBA比赛，中国发出何种信号？
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/271F7F09-21A0-4101-BA0E-4DFF142FA461.jpg?asset_id=DDD906E3-38AD-4B06-B19A-899B8604E4F0&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/271F7F09-21A0-4101-BA0E-4DFF142FA461.jpg?asset_id=DDD906E3-38AD-4B06-B19A-899B8604E4F0&amp;size=1024)
-*2019年，NBA北京旗舰店开业。长期以来，该联盟一直在寻求增加在中国的观众数量和收入（图片来源：KEVIN FRAYER/GETTY IMAGES）*
-
-**评论：**为了眼前的利益，NBA向中共下跪了。
-
-### 纽约时报：上海官员罕见认错，承认对疫情“准备不够充分”
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/150C182E-5CCB-414B-9E96-D5F8177F2F9C.jpg?asset_id=B6B8C93E-EDB7-49ED-B320-659E0BB230F2&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/150C182E-5CCB-414B-9E96-D5F8177F2F9C.jpg?asset_id=B6B8C93E-EDB7-49ED-B320-659E0BB230F2&amp;size=1024)
-*周一，上海一个被封锁的地区。中国正在实施世界上最严格的防疫措施（图片来源：路透社）*
-
-**评论：**这场疫情政治斗争中，不知道会有多少上海官员的头颅会落地，为中共卖力的人都没有什么善终。
-
-### 纽约时报：为何许多香港居民不欢迎内地医疗援助
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/E90CAB3B-1FFB-4AC6-98C4-C7F864EC7144.jpg?asset_id=E1414C5A-53AA-4E50-8092-6B625444D603&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/E90CAB3B-1FFB-4AC6-98C4-C7F864EC7144.jpg?asset_id=E1414C5A-53AA-4E50-8092-6B625444D603&amp;size=1024)
-*在已废弃的一条香港机场跑道上为新冠患者建设的隔离设施（图片来源：JEROME FAVRE/EPA, VIA SHUTTERSTOCK）*
-
-**评论：**中共释放了病毒，并推动了疫苗灾难，香港已被中共糟蹋地遍体鳞伤。中共的所谓医疗援助就是黄鼠狼给鸡拜年。
-
-### 纽约时报：新冠疫情、俄罗斯与经济考验中国模式
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/732C8CD7-B6C3-4298-AB6A-7F739B14627E.jpg?asset_id=8903768E-E24A-4FAF-BEE0-740E264934E0&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/732C8CD7-B6C3-4298-AB6A-7F739B14627E.jpg?asset_id=8903768E-E24A-4FAF-BEE0-740E264934E0&amp;size=1024)
-*（图片来源：XINMEI LIU）*
-
-**评论：**不管中共的哪一代领导人党政都是通过奴役剥削中国人来达到其经济增长和政权稳定的目的的。这次的中共国的疫情又被政治斗争所利用，中共制裁普京必然会遭到制裁而产生经济雪崩效应，中共真是完了。
-
-### BBC：印度的“东顾西盼”：乌克兰战争“考验印度的中立立场”
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/D72ECB0B-0F27-4805-9CDD-1F959705D117.jpg?asset_id=41680AC9-EDED-4AF6-A093-FC77E45EA74C&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/D72ECB0B-0F27-4805-9CDD-1F959705D117.jpg?asset_id=41680AC9-EDED-4AF6-A093-FC77E45EA74C&amp;size=640)
-*印度外长苏杰生：印度需要通过识别和利用全球矛盾所创造的机会来增进国家利益（图片来源：EPA）*
-
-**评论：**印度与俄罗斯的历史渊源世人皆知。这次乌克兰战争拉开了正义与黑暗势力的大决战，印度表面中立，实则站在了邪恶的中共和普京的一边。
-
-### 联合新闻网：OMICRON大流行 北京江苏辽宁或与南韩进口服装有关
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/3FBDE9B2-0EE8-447B-B0CD-13ECEA0CC395.png?asset_id=3CDEC6F9-099B-4849-8B97-D3DB40A25DEC&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/3FBDE9B2-0EE8-447B-B0CD-13ECEA0CC395.png?asset_id=3CDEC6F9-099B-4849-8B97-D3DB40A25DEC&amp;size=798)
-*北京的南韩服装城（图片来源：每日头条资料照）*
-
-**评论：**真是看到韩国换了个不亲共的总统了，这锅丢的会不会太明显，这民族矛盾挑的会不会太不要脸。
-
-### 联合新闻网：不用拆了 恒大海花岛39栋违建楼 官方将没收
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/FD22247E-D0E1-44AD-90E7-D3EF1FDF509F.png?asset_id=F29CB3DE-C6A5-41F0-9043-EFB766FED9A0&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/FD22247E-D0E1-44AD-90E7-D3EF1FDF509F.png?asset_id=F29CB3DE-C6A5-41F0-9043-EFB766FED9A0&amp;size=798)
-*海花岛违规建设与蔚蓝的海洋形成鲜明对比（图片来源：中央纪委国家监委网站／视觉中国）*
-
-**评论：**没收之后怎么处理？处理不好就是土匪的强取豪夺了。
-
-### 联合新闻网：上海无症者11天破4万 184小时盖出1.5万床最大方舱医院
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/A0417A95-B7DB-466A-9D68-1D4A0DA18B73.jpg?asset_id=B5787008-2AB1-4D5B-87BC-D84D7DFE0B47&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/A0417A95-B7DB-466A-9D68-1D4A0DA18B73.jpg?asset_id=B5787008-2AB1-4D5B-87BC-D84D7DFE0B47&amp;size=800)
-*上海疫情严重，上海正在浦东建设临时集中隔离收治点方舱医院（图片来源：中新社）*
-
-**评论：**短时间内的工程，建材和物资上早有准备先不说，参加建设的农民工最后还被强制在旅馆隔离，拉屎撒尿没人管，垃圾堆积如山的求救视频已经有放出来了，名副其实的卸磨杀驴。
-
-### 联合新闻网：斯里兰卡封社群媒体阻挡示威 民众仍上街抗议缺油电、物价飙
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/AFADE33B-8A9D-4AB2-84DB-72D761086316.jpg?asset_id=DE385CA5-D6DC-406D-AABF-2418254C7A30&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/AFADE33B-8A9D-4AB2-84DB-72D761086316.jpg?asset_id=DE385CA5-D6DC-406D-AABF-2418254C7A30&amp;size=1024)
-*斯里兰卡示威者3日首都可伦坡敲打锅子抗议物价飙涨（图片来源：Getty Images）*
-
-**评论：**缅甸，哈萨克斯坦，这种局面多么似曾相识，王毅就像瘟神的代表，所到之处并定动乱四起。
-
-### 联合新闻网：乌克兰布查镇屠杀案画面骇人 俄罗斯称美国抹黑
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/CA75F299-DC57-4ABF-96A2-C212C994D991.jpg?asset_id=EBD18B09-5951-43B6-B739-C27196E6D67E&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/CA75F299-DC57-4ABF-96A2-C212C994D991.jpg?asset_id=EBD18B09-5951-43B6-B739-C27196E6D67E&amp;size=799)
-*俄罗斯外交部表示，乌克兰首都基辅市郊布查镇（Bucha）平民死亡画面，是受美国「指使」而产生，为抹黑俄罗斯的阴谋一环（图片来源：AFP）*
-
-**评论：**证据都在，可恶人都会先告状，杀了人还不让人说。美国可没有发动战争，没有入侵别国领土。而发动战争入侵别国领土的恰恰是俄罗斯，杀人的也恰恰是俄罗斯，到底谁才是恶人先告状呢？
-
-### 联合新闻网：基辅发现410具平民尸体 英德誓再惩罚俄罗斯
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/0D6EC7EC-87B0-4854-A4B0-B96B8B5589B5.jpg?asset_id=D3BF4835-2999-4DCC-B993-5E5316ED7B70&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/0D6EC7EC-87B0-4854-A4B0-B96B8B5589B5.jpg?asset_id=D3BF4835-2999-4DCC-B993-5E5316ED7B70&amp;size=799)
-*（图片来源：德国之声）*
-
-**评论：**俄罗斯发动战争并留下了平民的斑斑血迹，反人类屠杀的罪名是不可否认的。
-
-### 联合新闻网：俄乌战争进入新型态情报战 西方即时公开情资 目标是他（普京）
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/A0B0958D-5F75-4F7B-82AA-073D795601AC.jpg?asset_id=3B2662FF-FE6C-44C4-8B38-BF503AFC83B7&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/A0B0958D-5F75-4F7B-82AA-073D795601AC.jpg?asset_id=3B2662FF-FE6C-44C4-8B38-BF503AFC83B7&amp;size=800)
-*美国拜登总统（左图）与俄罗斯总统普亭（图片来源：AP）*
-
-**评论：**这种草木皆兵的境地，恐怕不单单是普京独享，远离战场的习太阳也同样是身处四面楚歌无人可用的地步。教练强调，2022之后将没有普京，习太阳！
-
-### 大纪元：清明节来临 大陆代客扫墓「业务繁忙」
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/02E5C10F-F8BF-4D7A-B102-BF67A81C3DA6.jpg?asset_id=F83BE6DB-B89D-4916-8302-507DE415A0C0&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/02E5C10F-F8BF-4D7A-B102-BF67A81C3DA6.jpg?asset_id=F83BE6DB-B89D-4916-8302-507DE415A0C0&amp;size=750)
-*（图片来源：上游新闻）*
-
-**评论：**只有在中共如此“杰出”的领导下，才会出现如此崭新的业务，清明作为中国传统节日，自有他传承的意义，他是发自内心对前人，对历史的认可，如果是代扫，那就不是心意，而是买卖了。
-
-### 大纪元：中共依赖非洲 防食物危机
-
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/DF875FC4-F3DB-430E-9940-B8D0F86A94E8.jpg?asset_id=C2C1AFF1-C881-4A3A-BD02-7CD22F7AFFDF&amp;size=2560)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/DF875FC4-F3DB-430E-9940-B8D0F86A94E8.jpg?asset_id=C2C1AFF1-C881-4A3A-BD02-7CD22F7AFFDF&amp;size=450)
-
-*2008年4月16日，中国农民正在北京郊外的田里劳作（图片来源：Guang Niu/Getty Images）*
-
-**评论：**中共援助非洲等国，固然有为“名”的目的。但现在看来，另一方面也在为国内粮食危机做准备。可见中共也不是纯粹的散财童子，当然他更不是为民众考虑，只是担心因粮食问题使自己的政权过早结束。
-
-### 路透社：中俄困境恐引发金融危机以来最严重的新兴市场企业违约潮–摩根大通
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/E3BB4CDA-F022-461E-8F00-068CE8399E36.jpg?asset_id=E6902C40-5BB5-4558-AF8E-85AA98349A5A&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/E3BB4CDA-F022-461E-8F00-068CE8399E36.jpg?asset_id=E6902C40-5BB5-4558-AF8E-85AA98349A5A&amp;size=1024)
-*（图片来源：网络）*
-
-**评论：**俄乌战争爆发，中国房地产不断爆雷，世界经济危机愈演愈烈，世界格局的变革已拉开序幕。
-
-### YUTUBE：【上海疫情】 宝山大场镇政府，疫情民生保障不作为，让老百姓自生自灭
-[![](https://express.adobe.com/page/SVJZDb9XYqqEp/images/77EBF14D-4A07-4948-8EAE-CB56F4360077.png?asset_id=477AD9FA-44C9-4E4F-83A8-60BE89F725E4&amp;size=1024)](https://express.adobe.com/page/SVJZDb9XYqqEp/images/77EBF14D-4A07-4948-8EAE-CB56F4360077.png?asset_id=477AD9FA-44C9-4E4F-83A8-60BE89F725E4&amp;size=1024)
-*（图片来源：视频截图）*
-
-**评论：**上海愈来愈严重的不是疫情，是民生疾苦啊，这样下去将不断会有民众困于饥饿，其他疾病，而基层干部的无奈与不作为，与上层的脱节已经越来越明显，中共“为人民服务的本质”，终于暴露了。
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-*收集：加油干吧总加速师，redsparrow，yueshangliushao，Kangen | 校对：文风-NFSC | PAGE：彼岸花*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+By 【秘密翻译组-金融组】
+作者：千年等一回
 
  
 

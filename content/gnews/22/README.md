@@ -2,24 +2,24 @@
 ---
 
 
-## 有声|立陶宛宣布停止进口俄罗斯天然气
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292774/)
+## 有声|乌克兰海港城市敖德萨遭俄军空袭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292831/)
 
 配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-外媒报道，立陶宛能源部4月2日发表一份声明称，立陶宛将不再进口俄罗斯天然气，成为欧洲第一个脱离俄罗斯天然气供应的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-5.jpg)
-该声明表示，立陶宛国内消费的所有天然气，都将通过克莱佩达港的液化天然气接收站进口。该接收站于 2014 年落成，旨在结束俄罗斯对立陶宛天然气供应的垄断。
-
-普京最近要求外国买家，从4月1日开始，以卢布购买俄罗斯天然气，否则将面临供应削减。此举遭到欧洲各国的反对。立陶宛能源部强调，摆脱俄罗斯的天然气供应，意味着该国不受俄罗斯强制以卢布支付天然气的影响，从而使俄罗斯的无理要求变得毫无意义。
-
-立陶宛总统瑙塞达4月2日在推特发文称，立陶宛正在打破与侵略者的能源联系。如果立陶宛能做到，欧洲其他国家也一样能做到。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
+4月3日国外媒体报道，当天一早，俄罗斯军队空袭了乌克兰的战略性黑海港口城市敖德萨。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-1.jpg)
+敖德萨市议会电报账号的消息称，敖德萨遭到空中袭击，一些导弹被防空部队击落。另有一些媒体报道，该市早上6:00左右发生爆炸，爆炸产生了至少三列黑烟，在一个工业区可以看见明显的火焰。据遇袭地点附近的一名士兵说，这可能是一枚火箭或导弹。
+
+据悉，敖德萨拥有乌克兰最大的港口和海军总部，具有重要的战略地位。
 
 
 
-文字版原文：[立陶宛宣布停止进口俄罗斯天然气](https://gnews.org/zh-hans/2286801/)
+
+
+文字版原文：[乌克兰海港城市敖德萨遭俄军空袭](https://gnews.org/zh-hans/2287988/)
 
 音频处理：Tom Li
 发稿：Tom Li
@@ -36,7 +36,7 @@
 
 [**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
