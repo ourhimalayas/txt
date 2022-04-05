@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 12:16 AM (UTC)`
+
+【Ukraine Rescue】04/03/2022 A Japanese blogger from Tokyo said that he had never seen such Chinese people. Nicole told him that there are real Chinese people, citizens of the New Federal State of China in many cities and regions in Japan, who want to take down the CCP. He was so moved and will spread the message to their followers.<br/><br/>【乌克兰救援】04/03/2022 一位来自日本东京的自媒体人说，他从来没有看到过这样的中国人，妮可告诉他，在日本的很多城市和地区都有新中国联邦想要消灭中共的真正中国人，他深为感动，并将向其关注者传播这一信息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group4/getter/2022/04/05/00/9d3ab650-fa86-79d1-dbfd-32c0310bb114/out.jpg)
+
+---
+
 `@miles 4/5/2022 12:04 AM (UTC)`
 
 4/4/2022 Miles Guo: Elon Musk acquired 9.2% of the stock of Twitter. This is not only good for Twitter, but also the whole social media sector, investors, and even GETTR.<br/><br/>4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事！<br/>
@@ -147,13 +154,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月3日第30天当日救援统计：<br/>Medyka救援站接待：约336人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8993人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 30 - Date: April 3, 2022 :<br/>Medyka Rescue Station Reception: about 336 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8993 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group49/getter/2022/04/04/09/a6bd719f-9fe2-c0de-cb15-8bff7193cba7/697cd9f659ed0568bdd0c3686fe3a4dc.jpg)
-
----
-
-`@miles 4/4/2022 8:53 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group4/origin/2022/04/04/08/f7d52f9c-5e13-9f09-702e-f6aa35ef3420/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
