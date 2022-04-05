@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 1:05 PM (UTC)`
+
+2022.04.05 早  新中国联邦 | 新闻访谈  俄军撤出基辅地区犯下战争罪和反人类罪；西方制裁俄罗斯引发全球粮食危机；上海等地封城 中共用集中营方式应对疫苗灾难
+![img](https://media.gettr.com/group17/origin/2022/04/05/13/f193d179-a4d9-ceab-a781-68749e48cf1f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/5/2022 12:53 PM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月4日第31天当日救援统计：<br/>Medyka救援站接待：约162人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9109人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 31 - Date: April 4, 2022 :<br/>Medyka Rescue Station Reception: about 162 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9109 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -146,13 +153,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 4/4/2022 Miles Guo: Elon Musk acquired 9.2% of the stock of Twitter. This is not only good for Twitter, but also the whole social media sector, investors, and even GETTR.<br/><br/>4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事！<br/>
 ![img](https://media.gettr.com/group28/getter/2022/04/05/00/9fafc31d-2d75-8e13-0df7-6be203f987b9/out.jpg)
-
----
-
-`@miles 4/4/2022 11:53 PM (UTC)`
-
-4/4/2022 Miles Guo’s GETTR: Zheng Jiefu, a running dog of the CCP, was deported to Communist China by the Australian government. It’s said that Qu Long would be sentenced to death. Almost all family members of Dong Xiansheng, who helped Qu Long to set me up, were arrested. Several judges in Chengde, Hebei, who assisted Dong, were also thrown into jail. All is the retribution for their sins!<br/><br/>4/4/2022 文贵盖特：中共走狗郑介甫被澳洲政府遣返了，曲龙听说要被判死刑，帮曲龙害文贵的董仚生全家也基本被抓了，帮董仚生的几个河北承德法官也被抓了，这都是他们的报应啊！<br/>
-![img](https://media.gettr.com/group12/getter/2022/04/04/23/dd219d4e-c9a4-e0eb-4b39-541f2a6e1db3/out.jpg)
 
 ---
 

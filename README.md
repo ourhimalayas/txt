@@ -15,35 +15,35 @@
 
 ---
 
-### [【秘翻新视野】俄乌战争终结了全球化曾经给世界带来的和平](/content/gnews/1/README.md)
+### [【G时新闻】总统拜登称普京为战犯 要求针对布查杀戮事件对普京进行战争罪审判](/content/gnews/1/README.md)
+ ` G-时新闻`
+
+### [澳保持16万永居移民配额 提高技术移民比例](/content/gnews/2/README.md)
+ ` 走进澳洲`
+
+### [중국 공산당, 푸틴의 우크라이나 침공 배후 지원국](/content/gnews/3/README.md)
+ ` 祁明`
+
+### [【秘翻新视野】俄乌战争终结了全球化曾经给世界带来的和平](/content/gnews/4/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/2/README.md)
+### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/5/README.md)
  ` 關注組`
 
-### [신 중국 연방 최초 국제인도구호활동 참가 대사기](/content/gnews/3/README.md)
+### [신 중국 연방 최초 국제인도구호활동 참가 대사기](/content/gnews/6/README.md)
  ` 祁明`
 
-### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/4/README.md)
+### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [毫无人性的魔鬼中共及其走狗](/content/gnews/5/README.md)
+### [毫无人性的魔鬼中共及其走狗](/content/gnews/8/README.md)
  ` 祁明`
 
-### [西媒头条 — 第201期](/content/gnews/6/README.md)
+### [西媒头条 — 第201期](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [乌克兰人的国际提高地雷意识和协助地雷行动日](/content/gnews/7/README.md)
- ` 温哥华扬帆农场`
-
-### [战友安全对策](/content/gnews/8/README.md)
- ` 祁明`
-
-### [秘翻在线：韩国防疫当局，探讨缩短中共病毒（COVID-19）自我隔离时间&#8230;&#8221;还讨论撤除生活治疗中心&#8221;](/content/gnews/9/README.md)
+### [秘翻在线：韩国防疫当局，探讨缩短中共病毒（COVID-19）自我隔离时间&#8230;&#8221;还讨论撤除生活治疗中心&#8221;](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [繁殖的平衡](/content/gnews/10/README.md)
- ` 银河勇气之星`
 
 ### [英国正式列出了中共病毒的九种新症状](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`

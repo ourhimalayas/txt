@@ -2,26 +2,20 @@
 ---
 
 
-## 秘翻新闻｜中共国进行近一年以来最大玉米采购
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292415/)
+## 【秘翻新视野】俄乌战争终结了全球化曾经给世界带来的和平
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292445/)
 
-**By:[秘翻新闻](https://gettr.com/post/p13mv2jd97b)**
+**By:[秘翻新视野](https://gettr.com/post/p13lydi68a4)**
 
-**[2022-04-05](https://gettr.com/post/p13mv2jd97b)**
+**[2022-04-05](https://gettr.com/post/p13lydi68a4)**
 
-**新闻内容:**
+**📝今日内容：**
 
-**1.黑龙江抗疫医生时军自杀消息疯传 传生前受辱**
+1.制裁俄罗斯带给全球的经济代价 中共国也躲不掉
 
-**2.上海防疫一团乱 居委会女官崩溃痛哭录音热传**
+2.俄乌战争终结了全球化曾经给世界带来的和平
 
-**3.卫星图像证实俄军屠杀布查平民**
-
-**4.中共对布查平民被杀事件保持沉默**
-
-**5.因俄杀戮平民 美欧计划新一轮制裁**
-
-**Gettr链接：[https://gettr.com/post/p13mv2jd97b](https://gettr.com/post/p13mv2jd97b)**
+🔗Gettr链接：**[https://gettr.com/post/p13lydi68a4](https://gettr.com/post/p13lydi68a4)**
 
 发布:星星
 
