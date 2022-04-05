@@ -15,125 +15,125 @@
 
 ---
 
-### [特鲁多政府治国方针日渐中共化](/content/gnews/1/README.md)
+### [郭文贵先生两首新歌正式上线](/content/gnews/1/README.md)
  ` 扬帆枫叶快讯`
 
-### [4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [被误导的大流行—— 中共宣传及中共病毒的效应 -3](/content/gnews/3/README.md)
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -5](/content/gnews/2/README.md)
  ` topnews`
 
-### [澳洲国防部长宣布35亿制导武器采购计划](/content/gnews/4/README.md)
+### [上海疫情因疫苗灾难而继续恶化](/content/gnews/3/README.md)
+ ` 扬帆枫叶快讯`
+
+### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/4/README.md)
+ ` 扬帆枫叶快讯`
+
+### [安大略省立法消减汽油燃料税](/content/gnews/5/README.md)
+ ` 扬帆枫叶快讯`
+
+### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/6/README.md)
+ ` 扬帆枫叶快讯`
+
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -4](/content/gnews/7/README.md)
+ ` topnews`
+
+### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/8/README.md)
+ ` 扬帆枫叶快讯`
+
+### [特鲁多政府治国方针日渐中共化](/content/gnews/9/README.md)
+ ` 扬帆枫叶快讯`
+
+### [4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -3](/content/gnews/11/README.md)
+ ` topnews`
+
+### [澳洲国防部长宣布35亿制导武器采购计划](/content/gnews/12/README.md)
  ` 走进澳洲`
 
-### [被误导的大流行—— 中共宣传及中共病毒的效应 -2](/content/gnews/5/README.md)
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -2](/content/gnews/13/README.md)
  ` topnews`
 
-### [被误导的大流行-中共宣传及中共病毒的效应 -1](/content/gnews/6/README.md)
+### [被误导的大流行-中共宣传及中共病毒的效应 -1](/content/gnews/14/README.md)
  ` topnews`
 
-### [七哥金句：习大帝的布局对世界是一场挑战](/content/gnews/7/README.md)
+### [七哥金句：习大帝的布局对世界是一场挑战](/content/gnews/15/README.md)
  ` 雅典娜GNotes`
 
-### [七哥金句：针对美国，习太阳将会跟几个国家形成联盟](/content/gnews/8/README.md)
+### [七哥金句：针对美国，习太阳将会跟几个国家形成联盟](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [4/05/2022 文贵盖特：中共内部的战友说，共产党已准备好今年饿死5000万到一亿人；中共判断今年中共国各地会发生比去年更大的水灾，中共国、亚洲、欧洲和北美都将出现粮食问题](/content/gnews/9/README.md)
- ` 秘密翻译组-北美组`
-
-### [七哥金句：红旗导弹就是美国的毒刺导弹](/content/gnews/10/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：中共军援俄56个导弹系统的威胁](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：红旗导弹和反导系统的出现](/content/gnews/12/README.md)
- ` 雅典娜GNotes`
-
-### [郭文贵先生2022年4月5日盖特视频（9分58秒）全文字版](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [随着乌克兰危机升级，分析人士警告中共可能入侵台湾](/content/gnews/14/README.md)
+### [随着乌克兰危机升级，分析人士警告中共可能入侵台湾](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」](/content/gnews/15/README.md)
- ` 纽约香草山MOS03`
-
-### [美俄中在巴基斯坦动荡中的微妙关系](/content/gnews/16/README.md)
+### [美俄中在巴基斯坦动荡中的微妙关系](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [五月花简报（04/05/2022）](/content/gnews/18/README.md)
+### [五月花简报（04/05/2022）](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/19/README.md)
+### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/20/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月5日早](/content/gnews/20/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月5日早](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [印度为俄罗斯外长铺设红地毯](/content/gnews/21/README.md)
+### [印度为俄罗斯外长铺设红地毯](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [老虎：我感觉我要去打美国大师赛了](/content/gnews/22/README.md)
+### [老虎：我感觉我要去打美国大师赛了](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/23/README.md)
+### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/24/README.md)
+### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/25/README.md)
+### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/26/README.md)
+### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/27/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/28/README.md)
+### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/29/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [联合国难民署称乌克兰难民已突破420万](/content/gnews/29/README.md)
+### [联合国难民署称乌克兰难民已突破420万](/content/gnews/30/README.md)
  ` NFSC News`
 
-### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/30/README.md)
+### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [死灰复燃的“枫桥经验”](/content/gnews/31/README.md)
+### [死灰复燃的“枫桥经验”](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/32/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/33/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/33/README.md)
+### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/34/README.md)
+### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/35/README.md)
+### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/36/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/36/README.md)
+### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播|疫苗的反应就是病毒的反应](/content/gnews/37/README.md)
+### [文贵大直播|疫苗的反应就是病毒的反应](/content/gnews/38/README.md)
  ` KarmaLabs`
 
-### [文贵大直播|世界不和中共脱钩 就是奔向火葬场](/content/gnews/38/README.md)
+### [文贵大直播|世界不和中共脱钩 就是奔向火葬场](/content/gnews/39/README.md)
  ` KarmaLabs`
 
-### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/39/README.md)
+### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/40/README.md)
  ` 秘密翻译组金融团队`
-
-### [文贵大直播|俄罗斯虚假宣传以及后勤保障落后，军事思维还在二战模式](/content/gnews/40/README.md)
- ` KarmaLabs`
 
 ### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/41/README.md)
  ` 關注組`

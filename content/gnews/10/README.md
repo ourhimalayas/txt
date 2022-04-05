@@ -2,18 +2,10 @@
 ---
 
 
-## 七哥金句：红旗导弹就是美国的毒刺导弹
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294943/)
+## 4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2295020/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句20220403_10.jpg)
-发布：枫叶红了
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+秘密翻译组-北美组
 
  
 

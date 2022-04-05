@@ -17,9 +17,23 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/5/2022 11:07 PM (UTC)`
+`@miles 4/5/2022 11:22 PM (UTC)`
 
-04/05/2022 on the 2nd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on Australia 🇦🇺 Top Song Charts<br/>#1 🥇 on 19 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月4号, 郭文贵先生两首新歌上线第一天， 《灭共的雪》登榜iTunes<br/>澳大利亚🇦🇺热门歌曲榜首🥇<br/>19国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿热门歌曲榜首🥇<br/>新西兰🇳🇿流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2293435/
+04/05/2022 on the 2nd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on Australia 🇦🇺 Top Song Charts<br/>#1 🥇 on 19 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月5号, 郭文贵先生两首新歌上线第二天<br/>《灭共的雪》登榜iTunes<br/>澳大利亚🇦🇺热门歌曲榜首🥇<br/>19国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿热门歌曲榜首🥇<br/>新西兰🇳🇿流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2293435/
+
+---
+
+`@miles 4/5/2022 11:21 PM (UTC)`
+
+4/05/2022 Miles Guo’s GETTR: Fellow fighters in Shanxi and Shaanxi revealed that tomb robbing had become popular again in Communist China. Not only were the ancient tombs robbed, but the modern tombs were also dug. It is said that the antiques that were excavated from the tombs had been shipped abroad. The local rich people speculating in stocks and properties lost a great deal of money. So many families broke up and ended up miserable.<br/><br/>4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外；当地有钱人炒股炒房的赔得一塌糊涂，多少人家破人亡啊！<br/>
+![img](https://media.gettr.com/group35/getter/2022/04/05/23/d25a74a2-6d40-5532-122f-94239e031308/out.jpg)
+
+---
+
+`@miles 4/5/2022 11:16 PM (UTC)`
+
+4/3/2022 Miles Guo: I think there are two possible outcomes of the Russia-Ukraine war. One possibility is it will go on and off and reach an intermittent state; a second possibility is a settlement is reached, with Communist China, Russia and North Korea forming an evil alliance confronting the West. The New Federal State of China will make a call on when to withdraw our rescue operations for Ukraine based on which direction the war goes.<br/><br/>4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去。新中国联邦乌克兰救援行动会根据战争走向决定何时撤离。<br/>
+![img](https://media.gettr.com/group47/getter/2022/04/05/23/82040830-bd3e-817a-17d0-8f3d5839a03f/out.jpg)
 
 ---
 
@@ -139,20 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group47/origin/2022/04/05/04/ec2d3670-8a91-838b-7763-b48a4901a137/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 4:56 AM (UTC)`
-
-4/4/2022 Miles Guo’s GETTR: After going through so much hardship, my two songs finally got launched and immediately topped the iTunes charts in countries such as the US, Canada, Australia, New Zealand, and Taiwan. A certain organization of the United Nations contacted the New Federal State of China to establish the human rights foundations for Ukraine and Communist China. More good news is on the way, and I will do two grand live broadcasts after next Wednesday. The people of Hong Kong have awakened. The fellow fighters on the front line of the Ukraine rescue operation are establishing the image of the New Chinese at every moment.<br/><br/>4/4/2022 文贵盖特：文贵的两首歌历尽千辛万苦终于上线，随即登上美加澳新台等国iTunes榜首；联合国某组织联系新中国联邦建立乌克兰和中共国的人权组织；还有诸多好消息在路上，下周三后有两次文贵大直播；香港人已经觉醒，乌克兰救援前线战友时刻在树立新中国人形象！<br/>
-![img](https://media.gettr.com/group13/getter/2022/04/05/04/8ec3cc1a-8778-97de-56ee-6f24edcc80ca/out.jpg)
-
----
-
-`@miles 4/5/2022 3:45 AM (UTC)`
-
-4/4/2022 Miles Guo’s GETTR: The COVID vaccine disaster has made Communist China a living hell, and the collapse of Communist China’s real estate market and banks are imminent<br/><br/>4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来<br/>
-![img](https://media.gettr.com/group44/getter/2022/04/05/03/3e848e59-0a4a-873d-4fee-d9fac6abfe4c/out.jpg)
 
 ---
 

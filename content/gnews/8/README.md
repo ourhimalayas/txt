@@ -2,18 +2,20 @@
 ---
 
 
-## 七哥金句：针对美国，习太阳将会跟几个国家形成联盟
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2294963/)
+## 加拿大试图加强战略能源和矿产品的开发
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2295032/)
 
-整理：雅典娜农场
-![](https://assets.gnews.org/wp-content/uploads/2022/04/七哥金句20220403_11.jpg)
-发布：枫叶红了
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+加拿大温哥华扬帆农场    平民正道
+
+据自媒体【真北方】4月3日报道，由于受政府严格法规影响，加拿大目前很难吸引到对该国关键矿业的投资，但目前在西北地区实施的稀土矿产开采项目正在进行之中。
+
+据悉，这是加拿大首个与原住民机构合作的项目，去年已开采了约5,000 吨稀土。同时，【因纽特天然气项目】也正在实施当中。对此，【工业投资部】表示：以上项目证明，加拿大是可以成为独立于中俄之外的国际稀有资源的主要开采者。
+
+但加拿大关键矿产行业领导人则抨击了特鲁多政府，称当局现行的碳排放标准阻碍了加拿大绿色能源发展，破坏了包括锂，镍等重要矿产资源的开发，而且其2030年碳减排计划目标更是无法实现的幻想。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 
