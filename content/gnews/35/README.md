@@ -2,20 +2,22 @@
 ---
 
 
-## 中共国正在寻求被制裁的俄罗斯低价天然气
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293587/)
+## 20余国敦促中共勿将孩童与染疫父母分开
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293641/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151024.jpeg)
-近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-00.06.04-1.png)
+近日中共上海中共病毒肆虐，政府的一些抗疫做法如强行将6岁以下孩童与父母分开隔离，此举引发了国际社会的广泛愤怒。社交媒体广泛流传的一则视频中显示被隔离的孩童没有任何成年人照顾，孩童持续大哭，有些是尚在襁褓之中的婴儿，孩童无人照顾，随时有窒息和其他危险。
 
-交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
-
-中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
+近20多个国家的外交官写信给中共外交部，要求中共停止此举。法国驻上海领事馆的一封信中说，无论任何情况都请不要把父母和孩子分开。目前领事馆表示，正在代表德国、意大利、瑞士和挪威在内的23个其他欧洲国家写信，信中要求允许中共病毒密接人群在家中自我隔离，而不是被送往中共隔离集中营，并应定期喂养被隔离主人的宠物。英国大使馆致函中共外交部表达了对此的担忧，该信件的共同签署人包括欧盟、澳大利亚和新西兰等30多个国家。外交官称目前在上海和其他被封锁城市的线上医疗援助请求激增，但这无法实现。
 
 reference：
 
-[https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/](https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/)
+
+
+
+> [Twenty-four countries urge China not to separate children from parents via COVID](https://securykid.com/twenty-four-countries-urge-china-not-to-separate-children-from-parents-via-covid/)
+
 
 撰稿、发布：骄子
 
