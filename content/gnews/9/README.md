@@ -2,27 +2,36 @@
 ---
 
 
-## 西方考虑向乌克兰提供反舰导弹
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2293421/)
+## 20余国敦促中共勿将孩童与染疫父母分开
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293641/)
 
-**撰稿：日本东京方舟农场  北极**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-00.06.04-1.png)
+近日中共上海中共病毒肆虐，政府的一些抗疫做法如强行将6岁以下孩童与父母分开隔离，此举引发了国际社会的广泛愤怒。社交媒体广泛流传的一则视频中显示被隔离的孩童没有任何成年人照顾，孩童持续大哭，有些是尚在襁褓之中的婴儿，孩童无人照顾，随时有窒息和其他危险。
 
-据inews网站4月4日报道，西方正在考虑向乌克兰提供反舰导弹，以阻止俄罗斯夺取该国整个海岸线的企图。
+近20多个国家的外交官写信给中共外交部，要求中共停止此举。法国驻上海领事馆的一封信中说，无论任何情况都请不要把父母和孩子分开。目前领事馆表示，正在代表德国、意大利、瑞士和挪威在内的23个其他欧洲国家写信，信中要求允许中共病毒密接人群在家中自我隔离，而不是被送往中共隔离集中营，并应定期喂养被隔离主人的宠物。英国大使馆致函中共外交部表达了对此的担忧，该信件的共同签署人包括欧盟、澳大利亚和新西兰等30多个国家。外交官称目前在上海和其他被封锁城市的线上医疗援助请求激增，但这无法实现。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-64.png)乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）发表视频讲话。（图片来自乌克兰信息报）
+reference：
 
-据悉，为了回应乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）的要求，西方正在考虑提供反舰导弹帮助乌克兰军队保卫其仍然控制的黑海沿岸地区。
 
-一名西方官员透露，乌克兰提出了一个相当全面的需求清单，涵盖了从导弹到装甲车的很多东西，美国和北约目前正在关注这个问题。
 
-这位官员补充说，虽然五角大楼对提供更多军事装备持谨慎态度，但也有分析人士指出，早就应该向乌克兰提供强大的武器装备以奠定局势。
 
-参考链接：
-[https://reurl.cc/KpmYjj](https://reurl.cc/KpmYjj)
+> [Twenty-four countries urge China not to separate children from parents via COVID](https://securykid.com/twenty-four-countries-urge-china-not-to-separate-children-from-parents-via-covid/)
 
-总编：青城道姑
-校对发布：爱放飞
 
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,101 +15,101 @@
 
 ---
 
-### [埃隆·马斯克成为推特最大的股东](/content/gnews/1/README.md)
+### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [安省敦促联邦政府降低汽油燃料价格](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/2/README.md)
- ` 银河歌舞厅`
-
-### [新冠疫苗推出后去年全球死亡人数猛增](/content/gnews/3/README.md)
+### [加拿大人对当下问题的观点分歧加大](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共国正在寻求被制裁的俄罗斯低价天然气](/content/gnews/4/README.md)
- ` 银河歌舞厅`
-
-### [数据显示千禧一代正经历史上超高死亡率](/content/gnews/5/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [沙利文称俄军部署乌东南部重点顿巴斯地区下一阶段战争旷日持久](/content/gnews/6/README.md)
- ` 波士顿五月花农场金融部`
-
-### [【G叻睇真D】特鲁多政府“在线安全小组”中包括仇恨谎言散播者](/content/gnews/7/README.md)
- ` G-时新闻`
-
-### [日本罕见欢迎乌克兰疏散人员](/content/gnews/8/README.md)
+### [日本央行行长称日元贬值 “有点快”](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [西方考虑向乌克兰提供反舰导弹](/content/gnews/9/README.md)
- ` 日本東京方舟農場`
-
-### [4/3/2022 文贵直播：青蒿素救人无数，不仅治好了无数癌症患者，而且还对治疗疫苗副作用很有效；术后人士吃青蒿素要小心并遵医嘱](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
-
-### [加拿大试图加强关键矿产业本地化](/content/gnews/11/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [接种新冠病毒疫苗后 患“带状疱疹”的人激增](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [据悉美国财政部禁止从俄政府在美金融机构的账户兑付美元债务](/content/gnews/13/README.md)
- ` 波士顿五月花农场金融部`
-
-### [如果受到韩国攻击，北朝鲜将以核力量应对&#8211;金与正(2/2)](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国及世界疫情简报（04-05-2022）](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
-
-### [文贵先生两首新歌正式上线 再创辉煌](/content/gnews/16/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [4/3/2022 文贵直播: 女战友在上海周边地区打井种菜无苗有币有大院，东北女战友温室栽培蔬菜多到吃不完；有战友送出了200万盒伊维菌素，还买了很多青蒿素送人](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [如果受到韩国攻击，北朝鲜将以核力量应对&#8211;金与正(1/2)](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共特务郑介甫被遣返，下一个是鸡腿潘](/content/gnews/19/README.md)
+### [英美呼吁暂停俄罗斯人权理事国地位](/content/gnews/6/README.md)
  ` 银河歌舞厅`
 
-### [乌克兰总统将在安全理事发表讲话诉说当地惨状](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [埃隆·马斯克成为推特最大的股东](/content/gnews/7/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/4/2022 文贵盖特：文贵的两首歌历尽千辛万苦终于上线，随即登上美加澳新台等国iTunes榜首；联合国某组织联系新中国联邦建立乌克兰和中共国的人权组织](/content/gnews/21/README.md)
+### [【G时新闻】拜登政府启动新的网络安全机构 针对来自中共和俄罗斯国家机构的网络威胁](/content/gnews/8/README.md)
+ ` G-时新闻`
+
+### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/9/README.md)
+ ` 银河歌舞厅`
+
+### [新冠疫苗推出后去年全球死亡人数猛增](/content/gnews/10/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [中共国正在寻求被制裁的俄罗斯低价天然气](/content/gnews/11/README.md)
+ ` 银河歌舞厅`
+
+### [数据显示千禧一代正经历史上超高死亡率](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [沙利文称俄军部署乌东南部重点顿巴斯地区下一阶段战争旷日持久](/content/gnews/13/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [【G叻睇真D】特鲁多政府“在线安全小组”中包括仇恨谎言散播者](/content/gnews/14/README.md)
+ ` G-时新闻`
+
+### [日本罕见欢迎乌克兰疏散人员](/content/gnews/15/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [西方考虑向乌克兰提供反舰导弹](/content/gnews/16/README.md)
+ ` 日本東京方舟農場`
+
+### [4/3/2022 文贵直播：青蒿素救人无数，不仅治好了无数癌症患者，而且还对治疗疫苗副作用很有效；术后人士吃青蒿素要小心并遵医嘱](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [所罗门群岛不允许中共军事入驻](/content/gnews/22/README.md)
- ` GTV News Talk`
+### [加拿大试图加强关键矿产业本地化](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [郭文贵盖特音频2022.04.05](/content/gnews/23/README.md)
+### [据悉美国财政部禁止从俄政府在美金融机构的账户兑付美元债务](/content/gnews/19/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [美国及世界疫情简报（04-05-2022）](/content/gnews/20/README.md)
+ ` 波士顿五月花农场`
+
+### [文贵先生两首新歌正式上线 再创辉煌](/content/gnews/21/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [4/3/2022 文贵直播: 女战友在上海周边地区打井种菜无苗有币有大院，东北女战友温室栽培蔬菜多到吃不完；有战友送出了200万盒伊维菌素，还买了很多青蒿素送人](/content/gnews/22/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共特务郑介甫被遣返，下一个是鸡腿潘](/content/gnews/23/README.md)
+ ` 银河歌舞厅`
+
+### [4/4/2022 文贵盖特：文贵的两首歌历尽千辛万苦终于上线，随即登上美加澳新台等国iTunes榜首；联合国某组织联系新中国联邦建立乌克兰和中共国的人权组织](/content/gnews/24/README.md)
+ ` 秘密翻译组-北美组`
+
+### [郭文贵盖特音频2022.04.05](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰大救援现场的花架子&amp;主题不分明所暴露出的问题](/content/gnews/24/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [有声|习近平将是俄乌战争的最大输家](/content/gnews/25/README.md)
+### [有声|习近平将是俄乌战争的最大输家](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|喜币永远是全球最稳定数字货币 将被三国纳入国家储备](/content/gnews/26/README.md)
- ` MOSREC`
+### [欧盟国家两天内驱逐俄外交官约150名](/content/gnews/27/README.md)
+ ` thedawn`
 
-### [中共独裁者的个人崇拜](/content/gnews/27/README.md)
+### [中共独裁者的个人崇拜](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [四大会计师事务所退出中共国地产商审计](/content/gnews/28/README.md)
+### [四大会计师事务所退出中共国地产商审计](/content/gnews/29/README.md)
  ` NFSC News`
 
-### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/29/README.md)
+### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/30/README.md)
  ` 秘密翻译组金融团队`
 
-### [《灭共的雪》和《锁链梦》上线苹果音乐](/content/gnews/30/README.md)
+### [《灭共的雪》和《锁链梦》上线苹果音乐](/content/gnews/31/README.md)
  ` NFSC News`
 
-### [上海取消当日核酸检测，日本人被允许回国](/content/gnews/31/README.md)
+### [上海取消当日核酸检测，日本人被允许回国](/content/gnews/32/README.md)
  ` NFSC News`
-
-### [丹麦宣布驱逐15名俄外交官, 莫斯科将进行报复](/content/gnews/32/README.md)
- ` thedawn`
 
 ### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,42 +2,27 @@
 ---
 
 
-## 中共特务郑介甫被遣返，下一个是鸡腿潘
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293350/)
+## 据悉美国财政部禁止从俄政府在美金融机构的账户兑付美元债务
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2293391/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11111.jpg)
-近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
+素材/选题：波士顿五月花 长岛开心
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-04-下午6.19.34.png)图片来源：互联网
+【彭博】– 美国财政部已经叫停从俄罗斯政府在美国金融机构的账户兑付美元债务，因为俄罗斯军队被指控在乌克兰犯下战争罪行。
 
-早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。后中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
+不愿具名的知情人士称，财政部下属的外国资产控制办公室将禁止从俄罗斯政府在美国金融机构的账户兑付任何美元债券。该知情人士称，此举旨在迫使俄罗斯在消耗国内现有美元储备、动用新的美元收入或违约之间作出选择。
 
-郭先生在2017年直播中对此事进行了阐述，郭先生根本不认识郑介甫，郑因利益纠纷让天津经侦把赵云安抓了。赵找郭先生帮忙，郭先生为了救赵出来，就有条件收购了郑的公司，因郑的公司都是骗取的国有资产，债权非常复杂。收购经手人是曲龙，曲龙把这个公司的资产全部自我侵吞，并且要把郭先生灭口。郑欠谢建升钱，谢找了中共经侦来抓郭先生。从整件事来看，郭先生和这个郑介甫根本不存在任何法律关系，收购经手人是曲龙，这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
+这一政策变化正值俄罗斯一笔主权债兑付周一到期，旨在进一步加大对俄罗斯总统普丁的压力。周末有指控称俄军在乌克兰的Bucha等城镇屠杀平民。
 
-2017年郭先生美国之音断播门事件第二天，郑又在媒体大肆诬告郭先生所言都不真实，爆料只是为引起媒体关注。
+美国财政部3月2日发布了一项一般许可，允许美国民众在5月25日前从俄罗斯央行接收债券兑付资金。俄罗斯仍然可以收到石油和天然气贸易的付款，因为美国及其盟国对俄制裁不包括能源贸易。如果俄罗斯的能源贸易得以延续，这一制裁例外可以让俄罗斯政府今年进账3210亿美元。
 
-时隔五年，郑介甫被遣返。郭先生在2022年4月4号直播中说，时间会给人一切答案，跟着共产党，走进火葬场。目前澳大利亚政府名单上面有40多个为中共卖命的人要被遣返，下一个就是鸡腿潘。
+俄罗斯央行上周表示，截至3月25日，其外汇和黄金储备规模骤降至6044亿美元，是去年8月以来的最低水平。这意味着自2月份的峰值大降了388亿美元。
 
-reference：
-
-[https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html](https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html)
-
-[https://gnews.org/zh-hans/2286058/](https://gnews.org/zh-hans/2286058/)
-
-[https://youtu.be/qUNteNSEwmA](https://youtu.be/qUNteNSEwmA)
-
-撰稿、发布：骄子
+原文链接：[**据悉美国财政部禁止从俄政府在美金融机构的账户兑付美元债务**](https://hk.news.yahoo.com/%E6%93%9A%E6%82%89%E7%BE%8E%E5%9C%8B%E8%B2%A1%E6%94%BF%E9%83%A8%E7%A6%81%E6%AD%A2%E5%BE%9E%E4%BF%84%E6%94%BF%E5%BA%9C%E5%9C%A8%E7%BE%8E%E9%87%91%E8%9E%8D%E6%A9%9F%E6%A7%8B%E7%9A%84%E8%B3%AC%E6%88%B6%E5%85%8C%E4%BB%98%E7%BE%8E%E5%85%83%E5%82%B5%E5%8B%99-024508983.html)
 
 * * *
 
-欢迎订阅我们的GNews账号：
+*编辑&发布：长岛开心*
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
