@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 12:53 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月4日第31天当日救援统计：<br/>Medyka救援站接待：约162人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9109人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 31 - Date: April 4, 2022 :<br/>Medyka Rescue Station Reception: about 162 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9109 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group45/getter/2022/04/05/12/4a537362-d8c6-e8f0-5f0c-f6581221f51b/2f0683db883c63574480e59284b12037.jpg)
+
+---
+
+`@miles 4/5/2022 12:51 PM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月3日第30天当日救援统计：<br/>Medyka救援站接待：约290人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8947人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 30 - Date: April 3, 2022 :<br/>Medyka Rescue Station Reception: about 290 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8947 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group5/getter/2022/04/05/12/8768c35b-d22c-637a-04c6-9f671d682645/ce3d7a5e486a92c3549fbb522da8733d.jpg)
+
+---
+
 `@miles 4/5/2022 12:29 PM (UTC)`
 
 2022.04.05 早 新中国联邦 | 新闻   俄乌战争消息更新; 新中国联邦正与国际社会合作灭共
@@ -139,20 +153,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 4/4/2022 Miles Guo’s GETTR: Zheng Jiefu, a running dog of the CCP, was deported to Communist China by the Australian government. It’s said that Qu Long would be sentenced to death. Almost all family members of Dong Xiansheng, who helped Qu Long to set me up, were arrested. Several judges in Chengde, Hebei, who assisted Dong, were also thrown into jail. All is the retribution for their sins!<br/><br/>4/4/2022 文贵盖特：中共走狗郑介甫被澳洲政府遣返了，曲龙听说要被判死刑，帮曲龙害文贵的董仚生全家也基本被抓了，帮董仚生的几个河北承德法官也被抓了，这都是他们的报应啊！<br/>
 ![img](https://media.gettr.com/group12/getter/2022/04/04/23/dd219d4e-c9a4-e0eb-4b39-541f2a6e1db3/out.jpg)
-
----
-
-`@miles 4/4/2022 11:49 PM (UTC)`
-
-4/3/2022 Miles Guo: The CCP-controlled Al Jazeera's smearing of the Whistleblowers’ Movement and I shows that we have hit the sore spot with the CCP. Going against me is a business, and the whistleblowers’ Movement has become the biggest excuse for the CCP's Grand Overseas Propaganda Campaign and the intelligence system to cheat the CCP out of money!<br/><br/>4/3/2022 文贵直播: 共产党控制的半岛电视台黑文贵和爆料革命说明我们击中了中共的痛处；砸郭是一门生意，爆料革命已成为中共大外宣和情报系统向中共骗取经费的最大借口！<br/>
-![img](https://media.gettr.com/group40/getter/2022/04/04/23/2b81835c-52ac-ae64-fed9-77a6bd08efbd/out.jpg)
-
----
-
-`@miles 4/4/2022 11:39 PM (UTC)`
-
-2022.04.04《The Fringe》 Episode 161
-![img](https://media.gettr.com/group19/origin/2022/04/04/23/5c3a5bd4-163f-ae18-52ff-73a05a9f5ea3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

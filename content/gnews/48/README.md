@@ -2,10 +2,10 @@
 ---
 
 
-## 欧盟在欧中锋会中表达多项立场及关切台海情势
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289551/)
+## 教宗含蓄批评普京 准备访问基辅
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289614/)
 
-作者：纽约香草山医疗部-云豹
+作者：纽约香草山教育部-Naughty(文行)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
@@ -13,20 +13,18 @@
 
 
 
-当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
+教皇方济各4月2日表示，他正在考虑前往基辅，并含蓄地批评俄罗斯总统普京入侵乌克兰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220401185743157-2048x1365-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-429.png)
 
-欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
+在飞往马耳他进行为期两天访问的途中，当被问及是否准备访问基辅时，教宗表示正在计划中，但并未提及更多细节。
 
-此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
+据报道，教宗已经接收到乌克兰总统泽伦斯基（Volodymyr Zelenskiy）、基辅市长克里契科（Vitali Klitschko）、乌克兰拜占庭礼天主教会（Byzantine-rite Catholic Church）大总主教舍夫丘克（Sviatoslav Shevchuk）以及乌克兰驻教廷大使尤拉什（Andrii Yurash）的访问邀请。他还与乌克兰总统泽连斯基和大总主教舍夫丘克通了电话。
 
-欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
-
-欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
+教宗称俄罗斯发起的所谓“特殊军事行动”是一场战争，并不点名的批评了普京，称“一些陷入不合时宜的民族主义利益主张的权贵正再次挑起和煽动冲突”。教宗呼吁人们“在降临人类的战争之夜，不要让和平的梦想褪色。”
 
 参阅链接：
-[https://www.cna.com.tw/news/aopl/202204020271.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202204020271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
