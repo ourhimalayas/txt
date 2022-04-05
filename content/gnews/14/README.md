@@ -2,10 +2,10 @@
 ---
 
 
-## 美国两党政客都认为中共政权是对全世界自由的威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2291387/)
+## 未来三个月，食品价格会继续上涨
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2291506/)
 
-04/04/2022 前小布什总统的演讲撰稿人马克·蒂森同意美国民主党参议员蒂姆·瑞恩的观点，即中共政权是对全世界自由的威胁
+04/04/2022 纽约市连锁超市Gristedes的老板约翰·卡兹曼迪斯说，在目前的通胀环境下，在接下来的30天到45天里，食品价格将再上涨10%。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
