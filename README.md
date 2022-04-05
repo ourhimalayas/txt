@@ -15,88 +15,88 @@
 
 ---
 
-### [文贵先生盖特精要2022/04/05](/content/gnews/1/README.md)
+### [乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [英国外相利兹·特拉斯表示，“普京不败阵我们决不罢休”](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文贵先生盖特精要2022/04/05](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/2/README.md)
+### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月5日早](/content/gnews/3/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月5日早](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [装置作品《受伤的和平鸽》](/content/gnews/4/README.md)
+### [装置作品《受伤的和平鸽》](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/5/README.md)
+### [有声|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声|中共国疫情的爆发是疫苗所致](/content/gnews/6/README.md)
+### [有声|中共国疫情的爆发是疫苗所致](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|英国称对乌平民的袭击必以战争罪调查](/content/gnews/7/README.md)
+### [有声|英国称对乌平民的袭击必以战争罪调查](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [印度为俄罗斯外长铺设红地毯](/content/gnews/8/README.md)
+### [印度为俄罗斯外长铺设红地毯](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/9/README.md)
+### [有声|教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [老虎：我感觉我要去打美国大师赛了](/content/gnews/10/README.md)
+### [老虎：我感觉我要去打美国大师赛了](/content/gnews/12/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/11/README.md)
+### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/12/README.md)
+### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [台湾，乌克兰危机期间被中共国的野心围困的创新堡垒](/content/gnews/13/README.md)
+### [台湾，乌克兰危机期间被中共国的野心围困的创新堡垒](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/14/README.md)
+### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/16/README.md)
  ` NFSC News`
 
-### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/15/README.md)
+### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊隆-马斯克成为推特最大股东，利好全球灭共局势](/content/gnews/16/README.md)
+### [伊隆-马斯克成为推特最大股东，利好全球灭共局势](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/17/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【转】截至4.5 俄乌战事汇总](/content/gnews/18/README.md)
+### [【转】截至4.5 俄乌战事汇总](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/19/README.md)
+### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/20/README.md)
+### [立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [联合国难民署称乌克兰难民已突破420万](/content/gnews/21/README.md)
+### [联合国难民署称乌克兰难民已突破420万](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/22/README.md)
+### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [死灰复燃的“枫桥经验”](/content/gnews/23/README.md)
+### [死灰复燃的“枫桥经验”](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/24/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/26/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/25/README.md)
+### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共網軍們因為餐廳展示台灣國旗給負評](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [有声|俄军士兵用乌军子弹自残逃避战争](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [有声|4月3日俄乌交战最新进展](/content/gnews/28/README.md)
+### [有声|俄军士兵用乌军子弹自残逃避战争](/content/gnews/28/README.md)
  ` MOSREC`
 
 ### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/29/README.md)
