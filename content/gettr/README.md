@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 7:10 PM (UTC)`
+
+2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
+![img](https://media.gettr.com/group14/origin/2022/04/05/18/f3ee3015-3dd1-024d-98d8-26dbbb648be7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 6:03 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -147,13 +154,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 2022.04.04  新中国联邦 | 喜财经  美国国债2年期和10年期收益率倒挂；上海疫情失控，上海港大拥堵
 ![img](https://media.gettr.com/group7/origin/2022/04/05/02/e96a36b4-b59a-8a85-1188-6f6e9ad9309b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/5/2022 1:15 AM (UTC)`
-
-2022.04.04 晚  新中国联邦 | 新闻访谈   俄乌战争最新动态； 造谣郭文贵先生的伪类被澳政府遣返
-![img](https://media.gettr.com/group25/origin/2022/04/05/01/e7d09f4d-a89f-1212-990b-5fd7999f149a/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
