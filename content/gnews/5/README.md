@@ -2,54 +2,44 @@
 ---
 
 
-## 闻所未闻的副作用：WHO隐瞒新冠疫苗致听力损失
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2291439/)
+## 美国停止俄罗斯支付债券以增加对莫斯科的压力
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2291637/)
 
-编译：Jenny Ball
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ACX3G62RC5HSLEOVLR2BB2AXNU.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/13-2-edited.png)图片来源：newstarget.com
 
-世界卫生组织(WHO)一直在推动第四剂中共冠状病毒 (COVID-19) 疫苗的接种，但其报告并未完全明确地说明可能长期影响人们的副作用。世卫组织在其最新文件中表示，它现在正在调查有关听力问题的报告，认为这是疫苗注射的不利影响。
+资料来源：路透社
 
-该组织报告了 367 例耳鸣病例，这些病例至少接种过一次 COVID-19 疫苗，其特征是耳鸣，通常是在给患者接种疫苗后的几天内出现。
+周一，美国阻止俄罗斯政府从美国银行持有的储备中向其主权债务持有人支付超过 6 亿美元的款项，此举意在加大对莫斯科的压力并削弱其持有的美元。
 
-经历过这种副作用人的年龄从 19 岁到 91 岁不等，来自 27 个不同的国家，包括意大利、美国和英国。这些报告中几乎 75% 来自女性。
+根据俄罗斯 2 月 24 日入侵乌克兰后实施的制裁，俄罗斯央行在美国金融机构持有的外汇储备被冻结。
 
-除耳鸣病例外，截至 2 月 22 日，WHO还报告了 164 名在接种疫苗后出现新的听力损失的人。
+但财政部一直允许俄罗斯政府根据具体情况使用这些资金支付以美元计价的主权债务的息票。
 
-世卫组织在一份简报中说：“乌普萨拉监测中心最近的一项信号检测活动，将 COVID-19 疫苗接种后的听力损失（包括突发病例）和耳鸣确定为需要进一步评估的初步信号。”患者经历的其他症状包括头痛、头晕和恶心。
+据美国财政部发言人称，周一，随着最大一笔款项到期，包括到期债券的 5.524 亿美元本金支付，美国政府决定切断莫斯科获得冻结资金的渠道。
 
-一些患者能够迅速康复，但也有一些患者不得不接受“类固醇治疗”以解决副作用。此外，多名患者将接种疫苗后的耳鸣描述为“无情和摧毁生活”，也可能持续数月。
+2042 年主权美元债券的 8400 万美元息票支付也将于周一到期。
 
-**FDA ****批准第四剂疫苗**
+这位发言人说，此举意在迫使莫斯科做出艰难的决定，即是否将其能够获得的美元用于偿还债务或用于其他目的，包括支持其战争努力。
 
-FDA 已经授权为 50 岁以上的个人提供辉瑞(Pfizer)和莫德纳(Moderna)疫苗的第二次加强注射，此授权绕过了FDA自己的咨询委员会——疫苗和相关生物制品咨询委员会。据 CNBC 报道，这一举措是在辉瑞和莫德纳最初请求第四次注射授权两周后进行的。
+如果俄罗斯选择不这样做，它将面临历史性的违约。
 
-这些疫苗旨在与最初的两剂和第一次加强注射一起使用，这意味着接种过辉瑞和莫德纳疫苗的人将不得不第四次接种。
+这位发言人说：“俄罗斯必须在耗尽剩余的宝贵美元储备或新收入或违约之间做出选择。”
 
-此外，FDA 还授权辉瑞为 12 岁及以上且免疫系统受损的人使用加强针。18 岁及以上免疫系统受损的人还需要第二次莫德纳加强针。
+一位知情人士称，迄今为止一直作为代理银行处理付款的摩根大通公司（JPM.N）被财政部阻止。
 
-委员会成员保罗·奥菲特（Paul Offit）博士批评药物监管机构，在没有与美国公众举行公开会议的情况下继续推进，美国公众应该听取专家如何权衡数据，并向 FDA 提出建议。虽然疫苗咨询委员会的建议不具约束力，但它们确实有助于为公众提供透明度。
+代理银行处理来自俄罗斯的息票支付，将其发送给支付代理以分发给海外债券持有人。
 
-新闻来源：[Unheard of side effect: WHO hides hearing loss as an adverse effect of COVID-19 vaccines](https://www.newstarget.com/2022-04-01-who-hides-hearing-loss-covid-vaccine-effect.html)
+消息人士称，该国有 30 天的宽限期来支付款项。
 
-* * *
+🔗 [https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/](https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/)
 
-审核：文乐
-校对：花羽
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+责任编辑、发布： Shuizhuyu
 
  
 

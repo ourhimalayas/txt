@@ -2,35 +2,54 @@
 ---
 
 
-## 布查惨案，击穿了人类所有善良和理性的底线！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2291366/)
+## 闻所未闻的副作用：WHO隐瞒新冠疫苗致听力损失
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2291439/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-据纽约时报报道：卫星照片显示尸体在乌克兰城市Bucha中躺了数周，这反驳了俄罗斯声称该场景是在他们离开后上演的。由于俄军在乌克兰涉嫌滥杀平民的暴行罪证确凿，莫斯科星期一（4月4日）面临全球新一波的声讨和谴责，但北京对此却仍保持沉默。
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-74.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-4.jpg)
 
-布查惨案震动了世界，欧美和北约领导人纷纷发出强烈的谴责，要求以战争罪调查，同时表示将立即增加对俄罗斯的制裁、加大对乌克兰的援助。拜登总统周一表示，他认为俄罗斯在乌克兰城市布查犯下了战争罪行，并承诺对莫斯科实施进一步制裁。拜登在抵达华盛顿特区麦克奈尔堡时对记者说：“这个人很残暴，布查发生的事情令人发指，每个人都看到了，我认为这是战争罪。我正在寻求更多的制裁。”简短的讲话代表了拜登对乌克兰首都西北部城镇布查的破坏的首次评论。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-36.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-491.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-490.png)
 
-乌克兰泽连斯基总统在布查视察了对乌克兰国家犯下战争罪行的现场后，他强烈指责俄罗斯的种族灭绝！呼吁国际社会就俄军涉嫌滥杀平民的暴行对莫斯科实施进一步的制裁！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/13-2-edited.png)图片来源：newstarget.com
 
-独裁者的无耻是没有底线的，普京竟然还说到乌克兰去抓新纳粹，简直是胡说八道、无耻至极！看看布查惨案，独裁者普京根本不是到乌克兰抓新纳粹，而是到乌克兰去当新纳粹！普京不等于俄罗斯人，普京不能继续执政，世界正义的力量正在进行强力反击，独裁者普京和邪恶的习近平终将被历史的车轮碾得粉碎！！
+世界卫生组织(WHO)一直在推动第四剂中共冠状病毒 (COVID-19) 疫苗的接种，但其报告并未完全明确地说明可能长期影响人们的副作用。世卫组织在其最新文件中表示，它现在正在调查有关听力问题的报告，认为这是疫苗注射的不利影响。
 
-消息来源：[Biden says Bucha killings are a war crime’ | The Hill](https://thehill.com/policy/international/3258232-biden-vows-more-sanctions-on-russia-over-bucha-killings/)
+该组织报告了 367 例耳鸣病例，这些病例至少接种过一次 COVID-19 疫苗，其特征是耳鸣，通常是在给患者接种疫苗后的几天内出现。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+经历过这种副作用人的年龄从 19 岁到 91 岁不等，来自 27 个不同的国家，包括意大利、美国和英国。这些报告中几乎 75% 来自女性。
+
+除耳鸣病例外，截至 2 月 22 日，WHO还报告了 164 名在接种疫苗后出现新的听力损失的人。
+
+世卫组织在一份简报中说：“乌普萨拉监测中心最近的一项信号检测活动，将 COVID-19 疫苗接种后的听力损失（包括突发病例）和耳鸣确定为需要进一步评估的初步信号。”患者经历的其他症状包括头痛、头晕和恶心。
+
+一些患者能够迅速康复，但也有一些患者不得不接受“类固醇治疗”以解决副作用。此外，多名患者将接种疫苗后的耳鸣描述为“无情和摧毁生活”，也可能持续数月。
+
+**FDA ****批准第四剂疫苗**
+
+FDA 已经授权为 50 岁以上的个人提供辉瑞(Pfizer)和莫德纳(Moderna)疫苗的第二次加强注射，此授权绕过了FDA自己的咨询委员会——疫苗和相关生物制品咨询委员会。据 CNBC 报道，这一举措是在辉瑞和莫德纳最初请求第四次注射授权两周后进行的。
+
+这些疫苗旨在与最初的两剂和第一次加强注射一起使用，这意味着接种过辉瑞和莫德纳疫苗的人将不得不第四次接种。
+
+此外，FDA 还授权辉瑞为 12 岁及以上且免疫系统受损的人使用加强针。18 岁及以上免疫系统受损的人还需要第二次莫德纳加强针。
+
+委员会成员保罗·奥菲特（Paul Offit）博士批评药物监管机构，在没有与美国公众举行公开会议的情况下继续推进，美国公众应该听取专家如何权衡数据，并向 FDA 提出建议。虽然疫苗咨询委员会的建议不具约束力，但它们确实有助于为公众提供透明度。
+
+新闻来源：[Unheard of side effect: WHO hides hearing loss as an adverse effect of COVID-19 vaccines](https://www.newstarget.com/2022-04-01-who-hides-hearing-loss-covid-vaccine-effect.html)
+
+* * *
+
+审核：文乐
+校对：花羽
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
 
  
 

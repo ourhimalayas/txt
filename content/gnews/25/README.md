@@ -2,66 +2,67 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.5）&#8211;辉瑞第一针后腰疼关节疼及尾椎骨肿痛
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2290999/)
+## 马斯克入股推特 成为第一大股东
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2291269/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译：Jenny Ball
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%96%AB%E8%8B%97%E5%89%AF%E4%BD%9C%E7%94%A8.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-帖子原文：
 
-辉瑞第一针后腰疼关节疼及尾椎骨肿痛
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-56-edited.png)特斯拉首席执行官埃隆·马斯克， 2019 年 6 月 13 日在美国加州洛杉矶举行的 E3 游戏大会上，与传奇游戏设计师托德·霍华德（未图示）交谈时发表讲话。路透社/迈克布莱克
 
-6.10下午打了辉瑞第一针后，没什么事。晚上十点多洗了个澡就睡了，到凌晨12点半左右被手臂疼醒，出一身的汗。关节处也跟着疼，比如胯骨，膝盖，肩膀等。之后就睡不好，感觉一直处于迷迷糊糊也没睡着的状态。
+4 月 4 日（路透社）- 特斯拉公司最大老板埃隆·马斯克（Elon Mask）透露持有 Twitter 9.2% 的股份，价值近 30 亿美元，使他成为该公司的最大股东，并引发公司股价上涨超过25%。
 
-6.11白天胳膊抬不起来，左胳膊连着左肩加左半边脖子都酸痛，浑身无力加没有食欲。到了晚上手臂没那么酸痛了，可以微微抬起来了。但是开始整个腰疼加尾椎骨疼，疼到坐立不安。晚上贴了膏药还敷了一下热水袋睡了。
+在马斯克推文说他正在“认真考虑”建立一个新的社交媒体平台之后很快发生此举，时置外界质疑 Twitter 对言论自由的承诺。
 
-6.12早上八点头疼醒，之前怎么疼我都没有吃止痛药，唯独头疼不能忍，吃了两颗止痛药继续睡了。起来后感觉好多了，手臂可以活动自如，肩膀跟脖子也不疼了。但感觉腰部跟尾椎骨附近隐隐作痛。
+作为一名多产的 Twitter 用户，马斯克自 2009 年加入该网站以来，至今拥有超过 8000 万粉丝，并利用该平台发布了多项公告，包括戏弄特斯拉的私有化交易，这使他成为监管机构的焦点。
 
-6.13依然是感觉腰部跟尾椎骨隐隐作痛。
+然而，最近，世界首富对社交媒体平台及其政策持批评态度，最近在 Twitter 上进行了一项民意调查，询问用户是否认为该平台遵守言论自由原则，超过 70% 的人投票选“没有” 。
 
-6.14发现尾椎骨位置肿了一块，之前没注意不知道是不是其实早就肿了…
+Twitter最近的季度业绩和低于预期的用户增加引发了对其增长前景的质疑，尽管它正在寻求音频聊天室和新闻通讯等大型项目以结束长期停滞。
 
-6.15出去办事在外忙了一天，晚上回来洗完澡后直接无法动弹，腰疼到行动困难，再次裹上膏药。晚上睡觉翻身也很困难。
+“这确实向 Twitter 传达了一个信息……拥有该公司的有意义的股份，将使他们保持警惕，因为这种被动股份很快就会变成主动股份，” 大山资本有限责任公司（Great Hill Capital LLC ）的管理成员托马斯·海耶斯说。
 
-6.16-6.18依然明显感觉到腰疼，尾椎骨依然肿痛。
+据福布斯报道，马斯克拥有约 3000 亿美元的净资产，自去年 11 月以来一直在出售其在特斯拉的股份，当时他表示将出售其在这家电动汽车制造商中 10% 的股份。从那时起，他已经出售了价值 164 亿美元的股票。
 
-这可如何是好啊？有没有人打完第一针跟我一样腰疼或关节疼的？打完第一针都这样了，我都不敢打第二针了，不会留下后遗症吧… 什么时候能好啊
+周一提交的一份监管文件显示，马斯克拥有 7350 万股 Twitter 股票，这些股票由” 埃隆·马斯克可撤销信托”( Elon Musk Revocable Trust )持有，他是该信托的唯一受托人。根据路孚特(Refinitiv )的数据，**先锋（Vanguard） 是 Twitter 的第二大股东**，持有 8.79% 的股份。
 
-评论选集：
+CFRA 研究公司分析师 安杰洛·齐诺（Angelo Zino）在客户报告中写道：“马斯克的实际投资只占其财富的很小一部分，不应排除全面收购。”
 
-[栗子酱](https://www.xiaohongshu.com/user/profile/56460d38c2bdeb165ea63add) 回复：
+马斯克此前曾对在线支付处理器“条纹公司”（Stripe Inc）和人工智能公司“替身” （Vicarious）等公司进行过早期投资，但他的最新投资将是此类投资中的首创。
 
-打完第四天，腰疼的第三天，每天疼到站着坐着都难受
+他还是“太空探索技术公司”（SpaceX）的创始人兼首席执行官，并领导着脑芯片初创公司“神经链接”（Neuralink）和“宝润基础设施公司（The Boring Company）。
 
-[小红薯\_8683](https://www.xiaohongshu.com/user/profile/5b572d9711be101528f4b8e4) 回复：
+Twitter 是 2020 年激进投资者“艾略特管理公司”（Elliott Management Corp）的目标，当时这家对冲基金辩称，其当时的老板兼联合创始人杰克·多尔西 (Jack Dorsey) 在运营“正方形”（Square）公司的同时对 Twitter 的关注太少。
 
-我也是第二针打完3个星期一直腰疼多好不了，怎么回事有没有什么药推荐的
+拥有 Twitter 超过 2% 股份的多尔西于去年 11 月卸任 CEO 兼董事长一职，将大权交给了公司资深人士 帕拉格·阿格拉瓦尔（Parag Agrawal）。
 
-[W。不爱吃肉](https://www.xiaohongshu.com/user/profile/61c5aac1000000001000486c) 回复：
+据报道，阿格拉瓦尔在二月份休了几个星期的产假。
 
-今天刚打的，开始没事。过了几个小时。疼的我呼吸都腰疼。求助
+与此同时，马斯克和多尔西在驳斥所谓的 Web3 方面找到了一些共同点，这是一个模糊的术语，指的是去中心化的乌托邦版互联网。
 
-[unicorn](https://www.xiaohongshu.com/user/profile/56c88bc14775a724fc0309c4) 回复：
+截至周五收盘，Twitter 股价在过去 12 个月中下跌了 38%，目前交易价格为 47.19 美元。该公司的市值增加了 83.8 亿美元，目前为 393 亿美元。
 
-我第二针后，已经一个多月了，腰还疼，有几天直不起来感觉
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-472.png)图片来源：小红书
-参考链接:
+推特公司没有回应路透社的置评请求。
 
-[辉瑞第一针后腰关节痛及尾椎骨肿痛](https://www.xiaohongshu.com/discovery/item/60ca51b50000000001028712)
+新闻来源：[Musk takes 9% stake in Twitter to become top shareholder, starts poll on edit button](https://www.reuters.com/technology/musk-discloses-92-stake-twitter-2022-04-04/)
 
-*发布：tianzhihuan*
+* * *
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+素材：peacelv
+审核：文乐
+校对：花羽
+发布：五通庙
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-3.jpeg)
 
  
 
