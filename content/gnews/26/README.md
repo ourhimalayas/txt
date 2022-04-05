@@ -2,25 +2,43 @@
 ---
 
 
-## 特鲁多政府治国方针日渐中共化
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289241/)
+## 新州直升机坠毁两人丧生，今年第六起致命航空事故
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2289599/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 文莱
+#### 【雅典娜快讯】，紧贴时代脉博
 
-据加拿大【真北方】4月1日报道，特鲁多的自由党政府在过去两年中，以防控疫情为由违宪扩大了权力，而且至今都未能被该国议会立法加以阻止。
+整理/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-428.png)
+4月5日，据ABCNews报道，昨夜在新南威尔士州雪山发生一起直升机坠毁事故夺走了两人的生命，这是近几周发生的一系列直升机事故中的最新一起。今年同类型事故已经发生了五起：[澳大利亚发生今年第五起致命航空事故 GNEWS](https://gnews.org/zh-hans/2268374/)。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-423.png)图片来源：tnc.news
+周一晚上11点55分左右，紧急服务部门在Kiandra Flats的雪山高速公路以东约200米处发现了一架直升机的残骸。该处海拔1400米，距离悉尼500公里。
 
+莫纳罗警区负责人说，现场发现两人已死亡，受到地形和夜间条件的局限，现场调查工作无法展开，他们的身份尚未得到证实。
 
-报道称，尽管特鲁多此前在毫无任何依据的情况下强施《紧急状态法》，以镇压公众的和平抗议运动，限制言论自由并冻结抗议者的银行账户，但到目前为止，最高法院仍未对当局的违宪行为进行调查和制裁。
+负责人Klepczarek表示，正在对坠机情况进行调查，“现场有莫纳罗和里弗利纳警区的警察守护。我们正在等待澳大利亚运输安全局到达现场接管调查”。
 
-对此，加拿大宪法律师帕迪和经济学家亚当斯表示，由于目前的自由党政府和中共政权在社会信用、新闻自由和治国策略等方面日趋相似，因此，立即制定新的宪法以制约当局权力的无底线扩张已迫在眉睫。
+澳大利亚运输安全局预计将于今天上午晚些时候到达现场，并将完成后续调查报告。
 
-校对编辑：硫酸羟氯喹64
+昨天这起事件发生在新南威尔士州雪山直升机坠毁仅几周，当时那架直升机被迫在Guthega发电站附近的河流中紧急迫降。
 
-发稿：青青
+机上所有五人，包括四名国家公园和野生动物管理局工作人员以及一名商业飞行员，都在事故中幸存下来。
 
-原文链接： [The Chinafication of Canada | True North (tnc.news)](https://tnc.news/2022/04/01/the-chinafication-of-canada/)
+上周，在维多利亚州失望山的直升机事故已夺走了五人的生命。
+
+上周四，两架属于同一私人包机的直升机从墨尔本的中央商务区向北飞行，前往乌鲁普纳岛进行商务旅行，其中一架失踪了。
+
+警方表示，当两架飞机在墨尔本以北约60公里处的一座位于大分水岭南端的失望山上空时，其中一架飞机发生了致命的航空事故。
+
+目前Guthega坠机事故仍在调查中。
+
+参考链接：[Two found dead in Snowy Mountains helicopter crash wreckage – ABC News](https://amp.abc.net.au/article/100965862)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,26 +2,48 @@
 ---
 
 
-## 【秘翻在线】又被蓝金黄了？英政府允许中资企业收购英国最大的芯片制造商
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287868/)
+## GETTR3月份注册用户持续增加
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2288658/)
 
-####    翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-413.png)图片来源：BBC
-据《布雷特巴特新闻网》（Breitbart News）4月2日报道，在经过国家安全顾问斯蒂芬·洛夫格罗夫 (Stephen Lovegrove)的审查后，英国政府将允许中资企业安世半导体 (Nexperia)公司收购威尔士的纽波特晶圆厂（Newport Wafer Fab）。一位不愿透露姓名的官员说，洛夫格罗夫允许这项交易继续进行的原因是，他认为这并不会增加英国的安全风险，因为纽波特晶圆厂使用的是20年前的技术，而中共国早已掌握了这项技术。
+作者：日本东京方舟农场-Miyali7768(文玉
 
-当这项交易在去年首次对外公布时，鉴于半导体对经济的重要性，以及新冠疫情后的供应链问题，它受到了相当严格的审查。一位吹哨人此前曾告诉CNBC，作为英国最大的芯片制造商，纽波特晶圆厂获得了大概5500万英镑的纳税人资金和国防合同，用于开发下一代技术，包括540万英镑用于开发战斗机的雷达系统。他说：“我认为没有人意识到这家晶圆厂有几个与国防有关的项目。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-中资企业安世半导体公司的总部设在荷兰，在英国设有办事处，它的拥有者是中共国有投资公司极客资本（JIC Capital）的子公司建广资产（JAC Capital）。根据这笔交易，安世半导体只需花费6300万英镑就可获得纽波特晶圆厂的所有权。弗雷斯特研究公司 (Forrester Research) 的分析师格伦·奥唐纳 (Glenn O’Donnell) 认为这个价格便宜得十分离谱，因为即便是旧技术，大多数晶圆厂的成本也远远超过了10亿英镑。
 
-据报道，中共这些年一直在积极寻求英国的技术，军情六处的安全部门发现英国的知名大学在与中共的武器开发商合作。另外，据说中企至少花费了1350亿英镑购买英国的企业、房地产和基础设施的所有权股份，比如泰晤士水务公司(Thames Water)、希思罗机场(Heathrow Airport)和英国能源网络 (UK Power Networks)。与中共有关联的敬业集团（Jingye Group）收购了英国钢铁公司（British Steel），后者是是英国的第二大钢铁制造商。
 
-当英国政府准备批准这项交易时，前英保守党党魁伊恩·史密斯爵士(Iain Duncan Smith)抨击了此项决定，他指出半导体行业正是中共政府试图控制的行业。“中共现在正支持俄罗斯，并计划对西方获取芯片和电子设备的其它关键部件构成直接和蓄意的威胁。”
 
-英国下议院外交事务委员会的主席汤姆·图根达特 (Tom Tugendhat)补充说：“不清楚为什么我们没有利用《国家安全与投资法案》（National Security and Investment Act）所赋予的新权力来全面审查这笔收购。中共正在半导体行业投入数十亿美元进行竞争，而我们的政府却没有制定明确的战略来保护我们的产业。”
 
-*责编：白夜*
+据《RSBN》4月2日消息，自由言论社交媒体平台GETTR，在3月份经历了爆发式的用户增长，该平台的注册人数飙升了34%，令人意外。
 
-新闻来源：[UK Govt Allows Sale of Largest Microchip Factory to Communist Chinese-Owned Firm: Report](https://www.breitbart.com/europe/2022/04/02/uk-govt-allows-sale-of-microchip-factory-to-communist-china/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2020-11-20T115737.539.jpg)
+
+自2021年初以来，随着Twitter、Facebook和Instagram等平台的审查制度收紧，使得GETTR这样的言论自由平台注册用户持续增加。
+
+GETTR营销和全球合作高级副总裁凯兰-道尔（Kaelan Dorr）向《RSBN》的记者表示，垄断社交平台的言论审查行为，迫使他们的用户纷纷选择言论自由的社交媒体平台。GETTR始终坚持不因政见分歧而审核言论的平台宗旨。
+
+首席执行官杰森·米勒（Jason Miller）在GETTR新闻稿中表示，硅谷科技寡头是言论自由的敌人，但对GETTR来说是个好消息，因为我们是一个致力于言论自由的平台。
+
+迄今，GETTR已在全球范围拥有了500万正式注册用户。2022年第一季度末，用户注册率超过了50%。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
 
 
 

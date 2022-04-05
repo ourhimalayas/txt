@@ -2,27 +2,18 @@
 ---
 
 
-## 上海疫情因疫苗灾难而继续恶化
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289852/)
+## 中国会形成联邦制 中共即将发起更凶险的战争（六）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289909/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+#### PPT制作：小蜗牛 ；牛魔王
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-1020-1030-1_6.jpeg)
+*发布：陶子*
 
-翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
-
-据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “疫情零容忍”方针下，该国最大城市上海有近千万人在全面封锁下被隔离在家中。由于因此而造成的食物供应短缺和医疗服务中断，已导致民不聊生，怨声载道。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-433.png)图片来源：forbes
-
-
-尽管官方称上海日前仅有438个确诊病例，这对于2600万人口的城市来说感染比例并不大，但当局仍要求封锁并强制隔离所有疑似病例并进行大规模病毒检测。
-
-中共党媒报道则显示，习近平正通过采取残酷的隔离措施，以确保其政权的稳定和对内部政敌在上海势力的控制。文贵先生指出，国内最近疫情的恶化实际上是疫苗伤害所导致的结果，更严重的疫苗灾难即将开始。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237](https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter：HimalayaAthena](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本农场Gettr：himalayaathena](http://gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](http://xn--discord-cu4k86skkas5c126a4lez1be9fmukp34csc6a3e9m/)
 
  
 

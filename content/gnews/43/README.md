@@ -2,29 +2,28 @@
 ---
 
 
-## 马斯克收购Twitter 9.2%股份成Twitter 最大股东
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2287097/)
+## 俄罗斯军队在乌克兰损失惨重
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2287615/)
 
-**撰稿：日本东京方舟农场 JIHO**
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-393.png)图片来源：Gettotext
+据《华盛顿观察家报》4月4日报道，随着乌克兰军队在周末重新控制基辅（Kyiv）地区，乌克兰武装部队周一更新了对俄罗斯士兵阵亡人数的估计，阵亡人数超过了18000人。
 
-根据福布斯消息, Twitter周一在美国证券交易委员会提交的文件中披露, 特斯拉首席执行官埃隆·马斯克 (Elon Musk) 已收购社交媒体巨头 Twitter 9.2% 的股份。而此前几周，这位亿万富翁一直在指责 Twitter 未能遵守言论自由原则。
+据乌克兰武装部队称，自2月24日俄罗斯开始入侵乌克兰至4月3日，俄罗斯的战斗损失包括约18300名人员、147架飞机、134架直升机、647辆坦克、330门火炮、1844辆装甲运兵车、147套多管火箭炮系统、7艘船、1273辆汽车、76辆油轮、92架无人机和54套防空系统。目前，这些数字还没有得到独立核实。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-47.png)（图片来自网络）
+乌克兰议员莉希亚·瓦西连科（Lesia Vasylenko）表示：“18300名俄罗斯军人在乌克兰死亡，但我不为他们中的任何一人感到惋惜”。
 
-Twitter在其监管文件中表示，马斯克在社交媒体平台上购买了约 7340 万股普通股。
+据报道，乌克兰官员称，乌克兰军队已经夺回了基辅周围的30多个城镇和村庄，随着城镇的解放，数百名死亡的平民以及俄罗斯士兵的尸体被发现散落在街道上。
 
-这一披露导致推特股价在美国东部时间周一上午 7 点 15 分的盘前交易中飙升 25%。
+而周六，在首都基辅西北约23英里处的布卡（Bucha），发现数百名平民被埋在一个万人坑中。由于俄罗斯军队在撤退前与乌克兰军队交战，被摧毁的俄罗斯装甲车和坦克也在该镇的街道上随处可见。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-34.png)（图片来自TradingView）
+据联合国人权办公室称，截至周日，自俄罗斯入侵以来，乌克兰至少有1417名平民死亡，包括121名儿童。
 
-Twitter平台不遵守言论自由原则，打压病毒、疫苗真相已成既定事实，马斯克的入股会有怎样的变化，让我们拭目以待。
+*责编：白夜*
 
-参考链接：
-1.[https://twitter.com/tradingview/status/1510953521285369860](https://twitter.com/tradingview/status/1510953521285369860)
-2.[https://reurl.cc/pWzXEr](https://reurl.cc/pWzXEr)
+**新闻来源**
 
-总编：青城道姑
-校对发布：爱放飞
+[Russian death toll in Ukraine surpasses 18,000: Ukrainian armed forces](https://www.washingtonexaminer.com/news/russian-death-toll-in-ukraine-surpasses-18-000-ukrainian-armed-forces)
 
  
 

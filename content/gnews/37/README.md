@@ -2,33 +2,41 @@
 ---
 
 
-## 在进行大规模测试后上海继续处于封锁状态
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2287702/)
+## 吓尿中共的灭共新歌，第一天iTunes总榜成绩
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288440/)
 
-共同社4月4日从上海报道，当地政府表示，由于需要分析周一进行的冠状病毒大规模检测的结果，上海将继续处于封锁状态，因为感染的速度在迅速加快。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S.jpg)koreatimes.co.kr
-官媒称，中（共）国已向上海派出约2000名军事医务人员和数千名额外的卫生保健人员，因为在中（共）国最重要的金融中心确认的COVID-19新病例数量连续第三天创下了历史新高。
+作者：纽约香草山  – Jane往后余生
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+4月3号， 大家期待已久的郭文贵先生的两首灭共新歌《灭共的雪 The Terminator Snow》和《铁锁梦 Chained Dream》正式上线苹果iTunes和苹果音乐平台。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-6.jpg)
+世界打榜第一天iTunes总榜成绩：
 
-中共卫生部门周一表示，在过去24小时内，全国共报告了13137个新病例，其中9006个病例（大部分为无症状病例）是在这个拥有2,600万人口的大城市确诊的，该城市于3月28日开始了两个阶段的封锁，首先在其东部地区封锁。
+澳大利亚iTunes 摇滚歌曲《灭共的雪 》第一名；
 
-后来对上海西部地区实施的封锁措施最初应在周二（4月5日）凌晨3点取消，但市政府表示，要求人们待在家里的限制将继续 “严格 ”执行，“除了医疗”，直到所有必要的测试工作完成。
+香港《灭共的雪》第一名，《铁锁梦》第三名；
 
-即使在周五初步结束后，上海东部的主要地区仍然处于封锁状态。
+新西兰《灭共的雪》第一名，铁锁梦第二名；
 
-来自中共解放军下属各单位的医务人员周日被派往该市，因为这场由高度传播的BA.2 Omicron亚型病毒驱动的疫情正在挑战中（共）国严格的清零政策。
+新加坡《灭共的雪》第一名，《铁锁梦》第二名；
 
-从全球标准来看，疫情规模仍然很小，许多官员似乎认为，由于这个人口众多的城市的感染率不断上升，没有必要感到乐观，而许多居民则准备让封锁状态持续一段时间。
+澳门《铁锁梦》第一名，《灭共的雪》第二名；
 
-据官方的《中国日报》网站报道，除了来自解放军陆军、海军和联合后勤部队的人员外，上海周一还接收了来自全国各地的2万多名医务人员，以进行自两年多前武汉首次爆发病毒以来最艰难的抗击。
+柬埔寨《铁锁梦》第一名，《灭共的雪》第二名；
 
-**快评：**日本媒体这篇报道，述说了表面的情况，实际上郭先生告诉我们上海、长春、香港等地的疫情很严重，都是疫苗造成的，而中共这种毫无人性的封锁做法更加重了次生灾难的发生。
+台湾《灭共的雪》第一名，《铁锁梦》第二名；
 
-中共各级政府和机构欺上瞒下，完全不顾人民的死活，这次在最现代又富裕的上海演绎得淋漓尽致，各种封口让5000个气化炉都不为人知，真正死了多少人外媒不可能得到相关数据的。军管更黑。
+美国区iTunes 摇滚歌曲《灭共的雪》第六名。
 
 参考链接：
-[https://english.kyodonews.net/news/2022/04/b7704fc5cf8c-2000-military-medical-staff-sent-to-shanghai-over-covid-surge.html](https://english.kyodonews.net/news/2022/04/b7704fc5cf8c-2000-military-medical-staff-sent-to-shanghai-over-covid-surge.html)
+1. [We Are the Citizens of the New Federal State of China](https://gettr.com/user/miles)
+2. [《灭共的雪 The Terminator Snow》已经上榜澳大利亚**🇦🇺**iTunes 摇滚歌曲第一名](https://gettr.com/post/p13hajn259b)
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+
+总编/编辑/审核：DM
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

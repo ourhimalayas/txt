@@ -2,25 +2,27 @@
 ---
 
 
-## 加拿大社会的两极分化因疫情政策而加重
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289389/)
+## 新冠病毒疫苗灾难正在全球爆发
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289651/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+采编： 加拿大温哥华扬帆农场 – 坐看云起时
 
-据【CTV新闻】4月4日报道，萨斯喀彻温大学社会研究中心的最新调查表明，加拿大人对于时事政治问题的观点变得愈加分裂。
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-426.png)图片来源：CTV.NEWS
+据自媒体【网关专家】近日报道，面对全球近期出现的超高死亡率，其主要原因并非新冠病毒感染，而事实上，该峰值几乎与实验性疫苗所推出的时期完全吻合。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-430.png)图片来源：dfxw
 
 
-报道称，大约四分之三的受访者表示：加拿大社会意识形态的两极分化已越来越明显，其中，超过70%的人认为疫情以及2021 年联邦选举是导致目前社会分裂的最主要因素。而大约 40% 的加拿大人表示，他们因有关疫苗政策或防疫措施的争论而减少了与朋友或家人的联系。
+美国疾控中心的最新数据显示：不仅该国所有年龄段的死亡人数都在飙升，尤其是25至44岁年轻人群体的死亡人数创纪录的增长了84%。而且在世界各地，特别是西方国家都在经历超高的死亡率。
 
-对此，研究中心的主管杰森表示：尽管在过去两年里，很多不同的观点造成了人们的分歧，但国家领导人和政客们却违背了团结社会的宗旨，并利用这种分裂来谋取各自的政治利益。
+据悉，去年8至9月间，加拿大0至44岁死亡人数激增了24%，这与特鲁多政府在8月份推行的疫苗强制接种政策时间完全吻合，而且这种灾难的趋势正在持续并日渐恶化。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868](https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868)
+新闻来源： [https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
 
  
 

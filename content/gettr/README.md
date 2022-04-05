@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 3:26 AM (UTC)`
+
+Nicole interviewed volunteer Andrew, who is a veterinarian from southern California. Andrew helped look after a rabbit in the New Federal State of China (NFSC) tent. After Nicole’s introduction to the NFSC and its mission, Andrew said he would tell all his friends at home about it.  He said that if the CCP attacked Taiwan by force, he would join the NFSC’s humanitarian rescue operation.<br/>妮可采访了这位来自美国南加州的兽医义工Andrew。他曾在新中国联邦的帐篷里帮助照料一只兔子。在妮可向他介绍了新中国联邦以及其使命之后，Andrew说他要告诉所有他的朋友。他说，如果一旦中共武力攻打台湾，他会报名参加新中国联邦对台湾人民的人道救援行动。
+![img](https://media.gettr.com/group39/origin/2022/04/05/03/50ba4e18-9b58-6653-4702-d0bc786c87a5/out.jpg)
+
+---
+
 `@miles 4/5/2022 3:14 AM (UTC)`
 
 The Story of the New China】A Japanese volunteer came to the tent sponsored by the New Federal State of China & Rule of law Foundation and sent flowers, saying that it was the first time he had seen Chinese people like us.<br/>【新中国联邦人的故事】一位日本志愿者来到新中国联邦和法治基金赞助设立的帐篷内，特意送来鲜花，他说这是他第一次见到像我们这样的中国人
@@ -76,13 +83,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 4/4/2022 Miles Guo: Elon Musk acquired 9.2% of the stock of Twitter. This is not only good for Twitter, but also the whole social media sector, investors, and even GETTR.<br/><br/>4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事！<br/>
 ![img](https://media.gettr.com/group28/getter/2022/04/05/00/9fafc31d-2d75-8e13-0df7-6be203f987b9/out.jpg)
-
----
-
-`@miles 4/5/2022 12:00 AM (UTC)`
-
-4/4/2022 Miles Guo’s GETTR: The COVID vaccine disaster has made Communist China a living hell, and the collapse of Communist China’s real estate market and banks are imminent<br/><br/>4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来<br/>
-![img](https://media.gettr.com/group40/getter/2022/04/05/00/cd9fdbb0-3db6-4f9c-fc92-2a6825d055c8/out.jpg)
 
 ---
 

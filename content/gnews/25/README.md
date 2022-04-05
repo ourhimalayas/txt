@@ -2,27 +2,51 @@
 ---
 
 
-## 加拿大试图加强战略能源和矿产品的开发
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289311/)
+## 教宗含蓄批评普京 准备访问基辅
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289614/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
+作者：纽约香草山教育部-Naughty(文行)
 
-编译： 加拿大温哥华扬帆农场 – 晨熹
-
-据自媒体【真北方】4月3日报道，由于受政府严格法规影响，加拿大目前很难吸引到对该国关键矿业的投资，但目前在西北地区实施的稀土矿产开采项目正在进行之中。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-424.png)图片来源：NAI
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-据悉，这是加拿大首个与原住民机构合作的项目，去年已开采了约5,000 吨稀土。同时，【因纽特天然气项目】也正在实施当中。对此，【工业投资部】表示：以上项目证明，加拿大是可以成为独立于中俄之外的国际稀有资源的主要开采者。
 
-但加拿大关键矿产行业领导人则抨击了特鲁多政府，称当局现行的碳排放标准阻碍了加拿大绿色能源发展，破坏了包括锂，镍等重要矿产资源的开发，而且其2030年碳减排计划目标更是无法实现的幻想。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+教皇方济各4月2日表示，他正在考虑前往基辅，并含蓄地批评俄罗斯总统普京入侵乌克兰。
 
-原文链接： [https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/](https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-429.png)
+
+在飞往马耳他进行为期两天访问的途中，当被问及是否准备访问基辅时，教宗表示正在计划中，但并未提及更多细节。
+
+据报道，教宗已经接收到乌克兰总统泽伦斯基（Volodymyr Zelenskiy）、基辅市长克里契科（Vitali Klitschko）、乌克兰拜占庭礼天主教会（Byzantine-rite Catholic Church）大总主教舍夫丘克（Sviatoslav Shevchuk）以及乌克兰驻教廷大使尤拉什（Andrii Yurash）的访问邀请。他还与乌克兰总统泽连斯基和大总主教舍夫丘克通了电话。
+
+教宗称俄罗斯发起的所谓“特殊军事行动”是一场战争，并不点名的批评了普京，称“一些陷入不合时宜的民族主义利益主张的权贵正再次挑起和煽动冲突”。教宗呼吁人们“在降临人类的战争之夜，不要让和平的梦想褪色。”
+
+参阅链接：
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 
