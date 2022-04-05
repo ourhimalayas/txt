@@ -2,42 +2,35 @@
 ---
 
 
-## 装置作品《受伤的和平鸽》
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2294161/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月5日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2294218/)
 
-整理：vale
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+作者：香草山翻译部
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-9.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-522.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-524.png)
+文章仅代表作者本人观点，与Gnews无关
 
-作品名称：受伤的和平鸽
+视频参看：
+[2022.04.05早 《NFSC新闻》](https://gettr.com/streaming/p13no93b3b9)
+[2022.04.05早《NFSC新闻访谈》](https://gettr.com/streaming/p13o17vdab9)
 
-作者：龚凡
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-材质：装置作品
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6.jpeg)
 
-- 当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
-
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：Nuevo唐人
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-9.png)
 
  
 

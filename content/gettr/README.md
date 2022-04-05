@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 8:20 PM (UTC)`
+
+2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
+![img](https://media.gettr.com/group3/origin/2022/04/05/20/74c9bdfb-dd47-9202-2544-00c2a988a9ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 7:10 PM (UTC)`
 
 2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
@@ -147,13 +154,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 2022-4-4《鸡血王喜币大作战》 第一百五十五集 嘉宾：Nick、青藤
 ![img](https://media.gettr.com/group6/origin/2022/04/05/02/0ebbc740-9c41-1d07-722d-4cceb60a1bbf/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 2:04 AM (UTC)`
-
-2022.04.04  新中国联邦 | 喜财经  美国国债2年期和10年期收益率倒挂；上海疫情失控，上海港大拥堵
-![img](https://media.gettr.com/group7/origin/2022/04/05/02/e96a36b4-b59a-8a85-1188-6f6e9ad9309b/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
