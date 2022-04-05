@@ -2,11 +2,11 @@
 ---
 
 
-## 共产党和伪类们阻碍救人，那不是谋杀是屠杀！（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289412/)
+## 共产党和伪类们阻碍救人，那不是谋杀是屠杀！（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289421/)
 
 #### PPT制作：Qingjing ；玉米地的
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-930-940-2_3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-930-940-2_4.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
