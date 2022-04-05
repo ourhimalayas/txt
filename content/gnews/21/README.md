@@ -2,41 +2,93 @@
 ---
 
 
-## 大直播后记：七哥爆料国内疫情和前线战友染病是疫苗反应
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2290066/)
+## 众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2290067/)
 
-整理：奮鬥、请你喝可乐
-编辑：李易通
-![](https://assets.gnews.org/wp-content/uploads/2022/04/大直播后记1.png)图片来源：雅典娜设计组（614）
-七哥：先进入话题都可以，我不能长时间在这，你让我讲完我马上就走，还有另外一个会呢。你让我参与什么啊，我就参与一下就要走了，我给你们露露脸啊。你今天讲的大概都什么话题？说啥都行。
+**众议员吉姆·班克斯： **
+我们在新闻中谈论的国家——中（共）国、俄罗斯、乌克兰——正是为亨特·拜登提供了数百万美元资金的国家，这并非巧合。
 
-Eric：我们今天的话题：第一是俄乌战争，第二新能源，第三国内的疫情，第四商鞅之术。
 
-七哥：我觉得今天首先要感谢医疗组的文紫医生对前线战友的照顾。这个真的是，我就不想说多了，我听说前线又有人染上了，我就特别担心。咱们文紫妹妹真的是太棒了，特别特别感谢医疗组！第二个从前线归来的小李，这个家里边儿各种情况，他是一个代表性的战友。他刚一入境还被抓了——小李还被美国国土安全局扣在那儿了，翻箱倒柜，让小李要配合告九指妖。所以你看看，咱们战友都面临着各种各样的考验。今天小李回到了他的家，穿上这个马甲，今天看着我们的火来，我们的平风教授、文紫，我们跟前线的战友相比，事实上我们大家一定要认识到这个病毒和疫情，以及我们爆料革命和俄乌战争最核心的本质。我觉得班农先生这话说得对，“中国共产党是一切问题的根源。”
 
-文科：七哥好，全球的战友们，大家好，我是文科。
+> It’s not a coincidence that the countries we’re talking about in the news – China, Russia, Ukraine – are the same ones that funneled millions of dollars to Hunter Biden.
+>  [@ffweekend](https://twitter.com/ffweekend?ref_src=twsrc%5Etfw) [pic.twitter.com/RSfb38r5z1](https://t.co/RSfb38r5z1)
+> — Jim Banks (@RepJimBanks) [April 4, 2022](https://twitter.com/RepJimBanks/status/1510997913933168647?ref_src=twsrc%5Etfw)
 
-路人（音）：七哥好，很高兴跟七哥再一次同心同框。我是温哥华扬帆农场的路人。
 
-吴嘉（音）：郭先生好，全球的战友们好，我是意大利农场的吴嘉。
 
-七哥：吴嘉、文科，还有扬帆农场的路人，哇塞，这太好了，感谢你们，大家辛苦了。文科又上前线了，你看小李都跑了，你还在那干啥呀，也跟咱小李一样跑了呗，找个理由回去。
+**参议员汤姆·科顿： **
+迪士尼赞美中国共产党，并痴迷于在幼儿园教授不合适的内容。 没有人应该听从这样一个道德沦丧的公司的建议。
 
-文科：我们必须在前线，我们欧洲的战友必须在这里一直守着，因为整个这边的难民还需要我们的帮助。我们新中国联邦的整个救援行动也需要我们在这里坚守。目前所有在这里的染病战友都已经康复，都已经回到前线工作了。很多战友都非常希望能够继续留在这里，对这次营救活动给予力所能及的帮助。
 
-七哥：谢谢。文科有点像中国外交部的人员，人家小李不是逃跑，这是开玩笑，这事绝对很清楚。由于各种咱们爆料革命的需要，小李回到了家里边，而且都是非常重要的事情。但是听说前线又有人得上病了，这真是够吓人的。文科真是最早到前线参与救援行动的，和大卫你们是干的最多的。文科是这次救援行动中最有效力的，执行力最强的。咱们扬帆农场这次也顶上去了，做得非常非常的棒，特别特别的感谢。前线非常非常的冷，你们真的要注意，那不是一般的冷。我去过东欧这些国家，它那个冷跟中国的冷还不一样，跟加拿大的冷也不一样，东欧国家那种就是干冷，所以你们一定要注意。
 
-我告诉大家为什么你们染病了而很多当地人没染病，人家开Party爱干啥干啥。首先一点就是你们长期疲劳，挨冻、吃不好、睡不好，它就肯定是容易染上毒。另外一个现在染上毒的原因，一会儿给你们爆大料。你们染的绝对不是病毒，几乎99%不是病毒。现在已经有绝对准确的消息可以告诉大家，在上海、长春、深圳和香港的绝大多数病毒感染者就是疫苗反应，这事已经非常确定了。昨天的下午和晚上，还有前天的晚上，我获得了更多的准确的情报，中共跟这世界之间的所谓的专家沟通，基本可以确定啊，所有香港和上海的疫情就是疫苗反应。所以说做什么核糖核酸检测都是胡扯的事儿。
+> Disney praised the CCP and is obsessed with teaching inappropriate material to kindergarteners. 
+> 
+> No one should take advice from such a morally bankrupt company.
+> — Tom Cotton (@TomCottonAR) [April 4, 2022](https://twitter.com/TomCottonAR/status/1511010432231817216?ref_src=twsrc%5Etfw)
 
-那么你们前线战友接触的人当中很多都是打了疫苗的，所以你们要注意啊。你身体弱的，疫苗反应就把你给染上了，就这么简单。
 
-资料来源：[2022年4月3日 文贵大直播](https://gnews.org/zh-hans/2282328/)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+**前国务卿迈克·蓬佩奥：** 
+拜登总统现在才意识到特朗普政府在欧洲的政策是明智的:一场战争才把他从沉睡中唤醒。我们必须释放美国能源的力量。 （转蓬佩奥在美国法律于司法中心网站署名文章：现在是释放美国能源的时候了）
+
+
+
+> President Biden is only now waking up to the wisdom of the Trump Administration’s policies in Europe: It took a war to shake him from his slumber. We must unleash the power of American energy. My latest in ACLJ: [https://t.co/vT0SZh2D2O](https://t.co/vT0SZh2D2O)
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511030852888707085?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥： **
+拜登政府将气候变化置于保护主权和自由之上； 看看乌克兰就知道了。 它必须结束。 让我们再次将美国的安全和经济作为我们的首要任务。 这对美国家庭和全球安全来说是最好的。
+
+
+
+> The Biden Administration has put climate change ahead of protecting sovereignty and freedom; look no further than Ukraine. It must end. Let’s make America's security and economy our priority once again. That is what’s best for American families and global security.
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511071148880056329?ref_src=twsrc%5Etfw)
+
+
+
+**比尔.格茨：** 
+北约/欧盟司令部指挥官托德.沃尔特斯将军呼吁审查导致俄罗斯入侵乌克兰和美国情报误判的美国情报“漏洞” 【转比尔.格茨在华盛顿时报报道：情报失败：战前美国误判俄罗斯弱点、及乌克兰强项 随着冲突发生意想不到的转变，美国北约指挥官称应该缩小情报“差距”】
+
+
+
+> NATO/Eucom commander Gen. Tod Wolters calls for review of ‘gaps’ in US intelligence leading up to the Russian invasion of Ukraine and U.S. intel misjudgments [https://t.co/XcXdEhSZlV](https://t.co/XcXdEhSZlV)
+> — Bill Gertz (@BillGertz) [April 4, 2022](https://twitter.com/BillGertz/status/1511007998755295232?ref_src=twsrc%5Etfw)
+
+
+
+**参议员瑞克.斯科特： **
+我对普京在 布查和基辅周边社区屠杀无辜儿童和家庭感到恶心。总统[@POTUS](https://twitter.com/POTUS) 必须帮助乌克兰赢得这场战争、并今天就解除他对将飞机转移到乌克兰空军的毫无意义的控制。 【附媒体发布链接：参议员瑞克.斯科特抨击联合国人权理事会的虚伪和反以色列行动】
+
+
+
+> I'm disgusted by Putin's massacre of innocent children & families in Bucha & communities around Kyiv. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) must help Ukraine win this war & lift his senseless hold on the transfer of planes to the Ukrainian Air Force TODAY. [https://t.co/N3H1oaozz8](https://t.co/N3H1oaozz8)
+> — Rick Scott (@SenRickScott) [April 4, 2022](https://twitter.com/SenRickScott/status/1511107258347925509?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本： **
+乔·拜登的幕僚长认为亨特利用他父亲的关系从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 拿钱要好处是可以的。
+
+
+
+> Joe Biden’s chief of staff thinks it’s okay for Hunter to take money from Communist China while exploiting his father’s office. [pic.twitter.com/soP5UbZi5N](https://t.co/soP5UbZi5N)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1511106620033486852?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本：** 
+拜登政府的虚伪并没有结束。 他们的最新特技？结束第42条(大流行期间的边境限制)，因为 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 已经结束，同时却继续迫使美国人在飞机上戴口罩。
+
+
+
+> The hypocrisy coming out of the Biden Administration just doesn’t end. 
+> 
+> Their latest stunt? Ending Title 42 because COVID is over while continuing to force Americans to wear masks on airplanes.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 5, 2022](https://twitter.com/MarshaBlackburn/status/1511153376511373314?ref_src=twsrc%5Etfw)
+
+
 
  
 

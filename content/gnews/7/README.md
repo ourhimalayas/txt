@@ -2,8 +2,8 @@
 ---
 
 
-## 20220403郭文贵大直播 ：认知能力的基本面是面对世界认知的基本逻辑能力
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2290275/)
+## 20220403郭文贵大直播 ：川普2024当选对灭共未必是好事 七哥正在准备明后年爆料革命的大计划
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2290300/)
 
 作者：东京樱花团小视频组
 

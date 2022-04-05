@@ -15,80 +15,80 @@
 
 ---
 
-### [视频|日本自媒体人被新中国联邦灭共壮举感动](/content/gnews/1/README.md)
- ` MOSVIDEO`
-
-### [【乌克兰救援】一位来自日本东京的自媒体人被真正的新中国联邦的中国人感动](/content/gnews/2/README.md)
+### [分析人士警告中共有很大的可能性会入侵台湾](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;打完新冠疫苗，你们有什么副作用吗](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/4/README.md)
+### [视频|日本自媒体人被新中国联邦灭共壮举感动](/content/gnews/2/README.md)
  ` MOSVIDEO`
 
-### [澳洲国防部长暗示：中共和俄罗斯独裁者威胁澳洲的和平](/content/gnews/5/README.md)
+### [【乌克兰救援】一位来自日本东京的自媒体人被真正的新中国联邦的中国人感动](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;打完新冠疫苗，你们有什么副作用吗](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/5/README.md)
+ ` MOSVIDEO`
+
+### [澳洲国防部长暗示：中共和俄罗斯独裁者威胁澳洲的和平](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [20220403郭文贵大直播 ：川普2024当选对灭共未必是好事 七哥正在准备明后年爆料革命的大计划](/content/gnews/6/README.md)
+### [20220403郭文贵大直播 ：川普2024当选对灭共未必是好事 七哥正在准备明后年爆料革命的大计划](/content/gnews/7/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220403郭文贵大直播 ：认知能力的基本面是面对世界认知的基本逻辑能力](/content/gnews/7/README.md)
- ` Tokyo Sakura Video Group`
-
-### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;加强针后剧痛](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [20220403郭文贵大直播 ：法治基金捐款者是新中国联邦的根基基础](/content/gnews/9/README.md)
- ` Tokyo Sakura Video Group`
-
-### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;打完第三针全身过敏起红疹](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
-
-### [布林肯称俄罗斯在乌克兰已经“战略失败”](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2022年4月4日郭先生盖特 — 视频1「9分36秒」](/content/gnews/12/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [特斯拉老板马斯克突然成了推特最大的股东](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国将寻求暂停俄罗斯在联合国人权理事会的资格](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;第三针新冠后严重疫苗过敏](/content/gnews/15/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌克兰总统泽连斯基将在联合国安理会发表讲话](/content/gnews/16/README.md)
+### [总统拜登称普京为战犯 要求针对布查杀戮事件要求对普京进行战争罪审判](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [视频|停止喜币场外交易](/content/gnews/17/README.md)
+### [突发：乌外长致电王毅商讨粮食安全并质疑中共军援俄罗斯](/content/gnews/9/README.md)
+ ` 战云长天时评`
+
+### [20220403郭文贵大直播 ：认知能力的基本面是面对世界认知的基本逻辑能力](/content/gnews/10/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;加强针后剧痛](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20220403郭文贵大直播 ：法治基金捐款者是新中国联邦的根基基础](/content/gnews/12/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;打完第三针全身过敏起红疹](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [布林肯称俄罗斯在乌克兰已经“战略失败”](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2022年4月4日郭先生盖特 — 视频1「9分36秒」](/content/gnews/15/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [特斯拉老板马斯克突然成了推特最大的股东](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国将寻求暂停俄罗斯在联合国人权理事会的资格](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [乌克兰总统泽连斯基将在联合国安理会发表讲话](/content/gnews/18/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [视频|喜币永远是全球最稳定数字货币 将被三国纳入国家储备](/content/gnews/19/README.md)
  ` MOSVIDEO`
 
-### [视频|喜币永远是全球最稳定数字货币 将被三国纳入国家储备](/content/gnews/18/README.md)
- ` MOSVIDEO`
-
-### [泽连斯基发誓要追究俄罗斯的 &#8220;种族灭绝 &#8220;责任](/content/gnews/19/README.md)
+### [泽连斯基发誓要追究俄罗斯的 &#8220;种族灭绝 &#8220;责任](/content/gnews/20/README.md)
  ` 纽约香草山MOS02`
 
-### [众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家](/content/gnews/20/README.md)
+### [众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家](/content/gnews/21/README.md)
  ` 美国政要直译推`
 
-### [大直播后记：七哥爆料国内疫情和前线战友染病是疫苗反应](/content/gnews/21/README.md)
+### [大直播后记：七哥爆料国内疫情和前线战友染病是疫苗反应](/content/gnews/22/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵先生两首新歌正式上线](/content/gnews/22/README.md)
+### [郭文贵先生两首新歌正式上线](/content/gnews/23/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [币圈新闻动态：喜币24H成交量约为618680.810 HCN](/content/gnews/23/README.md)
+### [币圈新闻动态：喜币24H成交量约为618680.810 HCN](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：港报社评上海疫情管理遇上挑战](/content/gnews/24/README.md)
+### [DC大中华时事：港报社评上海疫情管理遇上挑战](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [文贵先生谈第三次世界大战的局势演绎及战后世界新格局 (2)](/content/gnews/25/README.md)
- ` 秘密翻译组-原创组`
 
 ### [上海疫情因疫苗灾难而继续恶化](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
@@ -99,14 +99,14 @@
 ### [白宫：美国及其盟国将对俄罗斯实施新的制裁](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月4日晚](/content/gnews/29/README.md)
+### [苹果音乐（Apple Music）打榜教程](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月4日晚](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`
 
-### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/30/README.md)
+### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [乌克兰救援前线报道4.05.2022：战地版的真人真事 台湾小哥Naïve](/content/gnews/31/README.md)
- ` 秘密翻译组-原创组`
 
 ### [教宗含蓄批评普京 准备访问基辅](/content/gnews/32/README.md)
  ` GTV News Talk`
