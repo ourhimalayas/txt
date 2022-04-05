@@ -2,24 +2,37 @@
 ---
 
 
-## 俄罗斯人用封闭胶带，铁丝网和口香糖修补租赁客机
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2291838/)
+## 金融制裁 欧洲复兴开发银行暂停对俄罗斯和白俄罗斯的融资
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2291993/)
 
-编译：波士顿五月花—-思澈
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯反航空制裁不归还租赁客机，维修飞机无法获得备件。
+整理/编辑：BENJ1
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/057A8A2B-77C8-4321-8EC4-0BD01D9E31E7.jpeg)
-
-自从俄罗斯入侵乌克兰开始欧盟在2月底对俄罗斯航空实施严厉制裁。租赁公司必须在3月31日前终止与俄罗斯客户的合同，为了避免失去资产，租赁公司必须收回租给俄罗斯客户的飞机，但是普京不归还重新注册占为己有。日常维修飞机需要的备件无法获得，俄罗斯人就地取材用一切可以利用的材料修补飞机为保障飞机继续安全飞行。
-
-素材来源：1）[https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181](https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181)
-
-2）[https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html](https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html)
-
-*发布：思澈*
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-349.png)图片来源：雅典娜设计组
 
 
+路透伦敦4月4日 – 欧洲复兴开发银行(EBRD)周一表示，其理事会已投票决定暂停俄罗斯和白俄罗斯获得其融资和其他资源，并立即生效。
+
+欧洲复兴开发银行总裁Odile Renaud-Basso在一份声明中说：“在这两个国家进行了这么多年的合作和活动之后，我们走到了这一步，这令人感到难过。”
+
+“然而，俄罗斯领导的对乌克兰的战争让我们别无选择，不能只是用语言来表达我们的谴责。”
+
+该银行还表示，它可能暂停或取消对现有项目的进一步拨款。
+
+该银行表示，它现在正专注于为乌克兰和该地区其他受难民危机影响的国家提供20亿欧元的支持计划。它补充说，它还将参与乌克兰的重建计划。
+
+参考链接：
+
+[欧洲复兴开发银行理事投票决定暂停对俄罗斯和白俄罗斯的融资](https://cn.reuters.com/article/ebrd-russia-belarus-financing-0404-idCNKCS2LW11G)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 2:09 PM (UTC)`
+
+<br/>4月5号：尊敬的战友们好！共产党为什么在内部开会发动．要准备好，2022年再饿死一亿人，这是真的吗？为什么中共国内部，现在又开始大流行盗墓了呢？
+![img](https://media.gettr.com/group18/getter/2022/04/05/14/0607a3f3-71e8-1535-3df2-619b4d22adfc/out.jpg)
+
+---
+
 `@miles 4/5/2022 1:22 PM (UTC)`
 
  4月5号：尊敬的战友们好，这在中共国．连草都不让老百姓吃了……太可怕了，这是哪国的王法呢？这是外交部长王娘娘讲的．最民主．最安全．最幸福的．中国人民的生活方式吗？
@@ -146,13 +153,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 `@miles 4/5/2022 12:26 AM (UTC)`
 
 04/04/2021  on the 1st day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on 5 Countries Top Song Charts<br/>#1 🥇 on 23 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on 6 Countries Top Song Charts<br/>#1 🥇 on 5 Countries Pop Song Charts<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Denmark, Latvia, Sweden, Saudi Arabia, Fiji, Philippines, Cambodia, Vietnam🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月4号, 郭文贵先生两首新歌上线第一天， 《灭共的雪》登榜iTunes<br/>5国热门歌曲榜首🥇<br/>23国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>6国热门歌曲榜首🥇<br/>5国流行歌曲榜首🥇<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、丹麦、拉脱维亚、瑞典、沙特阿拉伯、斐济、菲律宾、柬埔寨、越南的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2288880/
-
----
-
-`@miles 4/5/2022 12:16 AM (UTC)`
-
-【Ukraine Rescue】04/03/2022 A Japanese blogger from Tokyo said that he had never seen such Chinese people. Nicole told him that there are real Chinese people, citizens of the New Federal State of China in many cities and regions in Japan, who want to take down the CCP. He was so moved and will spread the message to their followers.<br/><br/>【乌克兰救援】04/03/2022 一位来自日本东京的自媒体人说，他从来没有看到过这样的中国人，妮可告诉他，在日本的很多城市和地区都有新中国联邦想要消灭中共的真正中国人，他深为感动，并将向其关注者传播这一信息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group4/getter/2022/04/05/00/9d3ab650-fa86-79d1-dbfd-32c0310bb114/out.jpg)
 
 ---
 

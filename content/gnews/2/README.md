@@ -2,27 +2,38 @@
 ---
 
 
-## 有声｜泽连斯基：其他城市的平民伤亡或比布查更高
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292666/)
+## 有声|日本自媒体人被新中国联邦灭共壮举感动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292735/)
 
-By:**秘翻新闻**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+波兰当地时间4月3日，一位来自日本的自媒体人在米蒂卡，法治基金-新中国联邦的帐篷内，接受了救援前线队员妮可的采访。当这位日本人听到妮可介绍，新中国联邦人是灭共的新中国人时，感到非常震惊。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide2-3.jpeg)
+他用不熟练的英语试图表达他的感受。他说，日本人通常都觉得中国人的形象就是中共政府。这是他生平第一次听到，新中国联邦要消灭中国共产党。他感到非常的印象深刻。
 
-**2022-04-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/405-9-scaled.jpg)
-据[CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-04-22/h_cc64e656c56111e6a6a6c650d012a29d)4月5日报导，乌克兰总统泽连斯基周一在视频讲话中表示， 博罗江卡和其他乌克兰解放城市的平民伤亡人数可能比布查高得多。
+当他听说，一个名叫Miles Guo的中国人正在带领中国人灭共时，他手捂着胸口，接连说了几遍“感动“。他表示，他会用自媒体的方式力挺新中国联邦，传播灭共的使命。
 
-在布查，至少300 多平民丧生，但随着对整个城市的检查，伤亡总数会继续增加。
 
-泽连斯基强调了记者报导乌克兰被解放城市的重要性。他表示：会为记者提供最大程度访问布查和乌克兰其他解放城市的机会。我们希望那里有成千上万的记者，越多越好！让世界看到俄罗斯做了什么。
 
-泽连斯基警告说，俄罗斯将试图掩盖在布查和其他城市犯下的暴力痕迹，但无法欺骗整个世界。
+文字版原文：[日本自媒体人被新中国联邦灭共壮举感动](https://gnews.org/zh-hans/2287733/)
 
-（秘翻新闻 文洋编译报导）
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-发布:文橙
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

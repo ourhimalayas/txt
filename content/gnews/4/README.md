@@ -2,40 +2,35 @@
 ---
 
 
-## 有声|乌克兰副防长称已重新掌控整个基辅地区
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292655/)
+## 有声｜中共国进行自5月以来最大的玉米采购
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292685/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月2日外媒报道，乌克兰国防部副部长马里亚尔表示，乌克兰已经重新夺回了整个基辅地区，包括首都附近的几个城镇。
+By:**秘翻新闻**
 
-马里亚尔在脸书发文称，继入侵的俄罗斯部队从首都基辅附近若干主要城镇撤退后，乌克兰已重新掌控包括伊尔平、 布查、戈斯托梅利在内的整个基辅地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-2.jpg)
-另外，乌克兰总统泽连斯基当天发表声明，谴责俄军在撤退时留下许多地雷，甚至在遗弃的装备和遗体上竟然还设置了诡雷。乌克兰国家紧急服务部门提醒基辅周边居民，必须要对地雷保持高度警觉。在基辅西部一处村庄里，仅1天内就发现多达1500枚爆炸物。
+**2022-04-05**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/405-11-scaled.jpg)
+据[美国农业网](https://www.agweb.com/news/crops/corn/china-made-its-largest-corn-buy-may-and-it-may-be-just-start)4月4日报导，周一，中共国大举买入农产品。美国农业部在每日出口销售报告中证实，中共购买了 108.4 万吨美国玉米，这是自 2021 年 5 月以来的最大采购量。
 
-泽连斯基表示，目前乌克兰方面正在努力排雷以确保地区安全，并建议外逃的难民暂缓返家，因为目前尚未能恢复正常生活。
+中共国采购的108.4万吨中，67.6万吨为旧作物。另外超过40万吨为新作物。CornBelt Marketing 的塞缪尔·哈德森表示，我认为中共试图填补由于俄乌战争导致的农作物问题。
 
+俄乌战争爆发后，乌克兰的出口能力存在问题。因为新报告显示其港口受损，这将阻碍乌克兰出口玉米等关键商品的能力。
 
+在美国农业部 3 月 31 日发布令人震惊的预期种植报告的几天后，这种大量买入的订单就出现了。哈德森说：这次中共国的大量订单也是在该报告之后发生的。该报告显示 2022 年农作物种植面积的减少：
 
-文字版原文：[乌克兰副防长称已重新掌控整个基辅地区](https://gnews.org/zh-hans/2287989/)
+•    玉米种植面积为 8950 万英亩，比 2021 年下降 4%
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+•    大豆种植面积为 9100 万英亩，比 2021 年增长 4%
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+•    所有小麦种植面积达到 4740 万英亩，比 2021 年增长 1%
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+•    棉花增幅最大，为 1220 万英亩，比 2021 年增长 9%
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+（秘翻新闻 文洋 编译报导）
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+发布:文橙
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTu**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
