@@ -2,45 +2,57 @@
 ---
 
 
-## 美国将寻求暂停俄罗斯在联合国人权理事会的资格
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2290238/)
+## 突发：乌外长致电王毅商讨粮食安全并质疑中共军援俄罗斯
+` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2290283/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-美国驻联合国大使琳达-托马斯-格林菲尔德周一表示，针对俄罗斯军队在布加和乌克兰其他地方犯下战争罪的指控，美国将寻求暂停俄罗斯在联合国人权理事会的资格。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)![](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-04/20220405_news_china-ukraine.jpg?VersionId=msXdLux3ohG1sBmB4OK5GwnrPMq5pCOU&amp;itok=sOntjwip)
+**王毅再次和乌克兰外长德米特罗·库莱巴通话，库莱巴表示，王毅希望结束俄乌战争符合中乌双方利益，并讨论了粮食安全。谈话间，库莱巴援引美国拜登总统的话警告中共对俄军事援助的后果。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-444.png)3月31日拍摄的乌克兰布卡的圣安德鲁和皮尔沃兹万诺霍教堂附近的一个可能的乱葬岗的卫星图像。卫星照片。Maxar Technologies
+据[中共国新华社4日晚](http://www.news.cn/2022-04/04/c_1128532253.htm)间消息，中共外长“王毅应约同乌克兰外长库莱巴通电话。双方重点就乌克兰局势交换了意见。”这是库莱巴一个月前“[呼吁中国外长说服俄罗斯结束战争](https://espreso.tv/kuleba-zvernuvsya-do-ochilnika-mzs-kitayu-iz-prokhannyam-perekonati-rosiyu-pripiniti-viynu-ministr-poobitsyav-doklasti-vsikh-zusil)”后的最新电话会谈。
 
-大势所趋：乌克兰军队在周末重新占领了基辅地区和该国北部地区。官员和独立摄影师报告说，平民的尸体–有些人的手被绑在背后–散落在布加市的街道上。
+该消息称，王毅表达了中共国在乌克兰问题上的基本态度——劝和促谈。维护和平、反对战争。“在乌克兰问题上，中国不谋求地缘政治私利，没有隔岸观火心态，更不会做火上浇油的事情。”王毅补充说，“战争总会过去，如何痛定思痛，”中共“相信乌方有足够智慧自主作出符合本国人民根本利益的选择。”
 
-- 卫星图像显示，在布卡的一座教堂内有一条45英尺长的壕沟，那里发现了一个万人坑。
-- 乌克兰总统沃洛基米尔-泽伦斯基将在布查发生的事情称为“种族灭绝”，“现在是尽一切可能使俄罗斯军队的战争罪行成为这种邪恶在地球上的最后表现的时候了。”
-- 法国总统埃马纽埃尔-马克龙、美国国务卿托尼-布林肯等人也谴责了报道的暴行。
-- 俄罗斯国防部拒绝了这些报道。
+- 延*展阅读：*[*乌克兰农业部长奥尔加·特罗菲姆切娃：乌克兰是中国粮食安全的主要来源之一*](https://minagro.gov.ua/news/ukrayina-mozhe-stati-odnim-z-golovnih-dzherel-zabezpechennya-prodovolchoyi-bezpeki-knr-olga-trofimceva)*。*
 
 
-他们在说什么：托马斯-格林菲尔德大使在罗马尼亚说：“在与乌克兰、欧洲国家和联合国其他伙伴的密切协调下，我们将寻求暂停俄罗斯在联合国人权理事会的资格。”她正在罗马尼亚观察帮助来自乌克兰的难民的努力。
+另据[乌克兰真理报消息](https://www.pravda.com.ua/news/2022/04/4/7337065/)，“乌克兰外长据[中共国新华社4日晚](http://www.news.cn/2022-04/04/c_1128532253.htm)间消息，中共外长“王毅应约同乌克兰外长库莱巴通电话。双方重点就乌克兰局势交换了意见。”这是库莱巴一个月前“[呼吁中国外长说服俄罗斯结束战争](https://espreso.tv/kuleba-zvernuvsya-do-ochilnika-mzs-kitayu-iz-prokhannyam-perekonati-rosiyu-pripiniti-viynu-ministr-poobitsyav-doklasti-vsikh-zusil)”后的最新电话会谈。
 
-- 她说：“我向那些勇敢地站在一起的140个国家发出的信息是：从布卡传出的图像和整个乌克兰的破坏要求我们现在用行动来配合我们的言论。”她指的是在3月初投票谴责俄罗斯入侵乌克兰的140多个国家。
-- 她在周日的一条推特上说：“将对这种暴行进行问责和正义。”
+该消息称，王毅表达了中共国在乌克兰问题上的基本态度——劝和促谈。维护和平、反对战争。“在乌克兰问题上，中国不谋求地缘政治私利，没有隔岸观火心态，更不会做火上浇油的事情。”王毅补充说，“战争总会过去，如何痛定思痛，”中共“相信乌方有足够智慧自主作出符合本国人民根本利益的选择。”
+
+- 延*展阅读：*[*乌克兰农业部长奥尔加·特罗菲姆切娃：乌克兰是中国粮食安全的主要来源之一*](https://minagro.gov.ua/news/ukrayina-mozhe-stati-odnim-z-golovnih-dzherel-zabezpechennya-prodovolchoyi-bezpeki-knr-olga-trofimceva)*。*
 
 
-国际刑事法院上个月对在乌克兰犯下的战争罪、反人类罪和种族灭绝罪的指控进行了调查。
+另据[乌克兰真理报消息](https://www.pravda.com.ua/news/2022/04/4/7337065/)，“乌克兰外长德米特罗·库莱巴在与中国外长王毅交谈后指出，北京有兴趣结束乌克兰战争。”他在他的推特上宣布了这一点，并[写道](https://twitter.com/DmytroKuleba/status/1510940800510828550?s=20&amp;t=4H9g39csVhqNXmOEVWP6Ng)：“我感谢我的中国同行对平民伤亡的声援。**我们都坚信结束乌克兰战争符合和平、全球粮食安全和国际贸易的共同利益**”。
 
-来源：[U.S. to seek Russia’s suspension from UN Human Rights Council](https://www.axios.com/us-russia-suspension-human-rights-council-war-crimes-67062a77-2ccf-4a26-bf17-2245de1db786.html)
+一位推特账号[@SoKiell](https://twitter.com/SoKiell/status/1510970073531437059?s=20&amp;t=EBWf7BK_7Yei3yJ8Hy6RnQ)先生质询外长库莱巴，“德米特罗先生，您对乌克兰与希特勒之间正在进行的“谈判”以及我们方面接受希特勒作为乌克兰安全保证人的意图有何立场？”显然，这位先生明白那个被称为复活了的希特勒就是习近平。
 
-* * *
+- *延展阅读：*[*中国允许俄罗斯使用偷来的波音 757-200 (F) 飞机从中国进行定期运输货物*](https://www.pravda.com.ua/news/2022/04/3/7336878/)*。*
 
-审核：Aries的星
-校对：小东
-发布：花羽
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+- *延展阅读：*[*俄乌战争-习近平终将红旗导弹部署在塞尔维亚等同参战*](https://gnews.org/2285115/)*。*
+
+
+对此事件进一步反应是，[库莱巴在电话中警告了王毅](https://www.eurointegration.com.ua/news/2022/04/4/7137192/)，如你所知，3月份有非官方“谣言”称中国向俄罗斯提供一些与乌克兰战争和制裁有关的军事援助。
+
+欧洲真理报说。并进一步表示，“美国和英国在与北京的会谈中提出了这个问题。” 特别是 3 月 18 日，美国总统乔·拜登在与中国领导人习近平近两个小时的电话交谈中所称，“如果北京在对乌克兰的战争中向俄罗斯提供物质支持将面临的后果。”
+
+2022年4月5日
+
+校对/发布：东京樱花团/捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)
+**更多资讯，更多关注**：
+
+[俄乌战争：中俄外长分别会见阿富汗塔利班并承认其政权。](https://gnews.org/zh-hans/2270646/)
+
+[NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
+
+[疫苗经济：辉瑞口服 Paxlovid 药首次高价进入中共国医保名录](https://gnews.org/zh-hans/2272625/)
+
+[普京的命根：俄罗斯没了SWIFT系统后石油交易将违约](https://gnews.org/zh-hans/2250301/)
+
+[新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,53 @@
 ---
 
 
-## 砸“郭”是一门生意
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288443/)
+## 欧盟在欧中锋会中表达多项立场及关切台海情势
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289551/)
 
-作者：银河系农场—骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月3日大直播中，郭先生表示，从2017年开始爆料革命以来，砸“郭”就成了中共伪类们的一门生意。
+作者：纽约香草山医疗部-云豹
 
-确切地说是从2015年开始，每隔两三个月，共产党就会放出污蔑郭先生的一些假料，同时还有一个所谓有影响力的人站台，把这些假新闻放在大媒体上“砸”郭。这些年来，一路上经过了无数个假民运，假灭共的人，如周孝正、龚小夏、吴征、杨澜等等。共产党的国安和情报系统为了骗钱，把砸郭变成了一项生意，甚至形成了完整的产业链。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-9.jpg)
-其产业链的运作模式如下：用假情报骗取习近平的亲笔批示，安全部政法委继而拿预算出来，然后会有具体的人来抢夺任务。任务一到手，预算也就到手，接着开始吃喝嫖赌免费旅游，完成任务以后还会论功行赏。如此往复。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-早前，中共内部都用法轮功的事情来骗预算。而自郭先生爆料之后，全部矛头都对准爆料革命，这也算是间接救了法轮功。体制内人士告诉郭先生，这些预算是无法核查的费用。据悉，仅半岛电视台节目一项就拿了5000万美元的该类预算。当然，一年的维稳费用高达几千亿也实不足为奇。
 
-参考链接：[2022年4月3日 文贵大直播](https://gettr.com/post/p13c6fub6b6)
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-总编/编辑/审核：DM
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220401185743157-2048x1365-1.jpg)
+
+欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
+
+此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
+
+欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
+
+欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
+
+参阅链接：
+[https://www.cna.com.tw/news/aopl/202204020271.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202204020271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

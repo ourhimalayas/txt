@@ -2,28 +2,45 @@
 ---
 
 
-## 上海疫情因疫苗灾难而继续恶化
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289852/)
+## 美国将寻求暂停俄罗斯在联合国人权理事会的资格
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2290238/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+美国驻联合国大使琳达-托马斯-格林菲尔德周一表示，针对俄罗斯军队在布加和乌克兰其他地方犯下战争罪的指控，美国将寻求暂停俄罗斯在联合国人权理事会的资格。
 
-翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-444.png)3月31日拍摄的乌克兰布卡的圣安德鲁和皮尔沃兹万诺霍教堂附近的一个可能的乱葬岗的卫星图像。卫星照片。Maxar Technologies
 
-据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “疫情零容忍”方针下，该国最大城市上海有近千万人在全面封锁下被隔离在家中。由于因此而造成的食物供应短缺和医疗服务中断，已导致民不聊生，怨声载道。
+大势所趋：乌克兰军队在周末重新占领了基辅地区和该国北部地区。官员和独立摄影师报告说，平民的尸体–有些人的手被绑在背后–散落在布加市的街道上。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-433.png)图片来源：forbes
+- 卫星图像显示，在布卡的一座教堂内有一条45英尺长的壕沟，那里发现了一个万人坑。
+- 乌克兰总统沃洛基米尔-泽伦斯基将在布查发生的事情称为“种族灭绝”，“现在是尽一切可能使俄罗斯军队的战争罪行成为这种邪恶在地球上的最后表现的时候了。”
+- 法国总统埃马纽埃尔-马克龙、美国国务卿托尼-布林肯等人也谴责了报道的暴行。
+- 俄罗斯国防部拒绝了这些报道。
 
 
-尽管官方称上海日前仅有438个确诊病例，这对于2600万人口的城市来说感染比例并不大，但当局仍要求封锁并强制隔离所有疑似病例并进行大规模病毒检测。
+他们在说什么：托马斯-格林菲尔德大使在罗马尼亚说：“在与乌克兰、欧洲国家和联合国其他伙伴的密切协调下，我们将寻求暂停俄罗斯在联合国人权理事会的资格。”她正在罗马尼亚观察帮助来自乌克兰的难民的努力。
 
-中共党媒报道则显示，习近平正通过采取残酷的隔离措施，以确保其政权的稳定和对内部政敌在上海势力的控制。文贵先生指出，国内最近疫情的恶化实际上是疫苗伤害所导致的结果，更严重的疫苗灾难即将开始。
+- 她说：“我向那些勇敢地站在一起的140个国家发出的信息是：从布卡传出的图像和整个乌克兰的破坏要求我们现在用行动来配合我们的言论。”她指的是在3月初投票谴责俄罗斯入侵乌克兰的140多个国家。
+- 她在周日的一条推特上说：“将对这种暴行进行问责和正义。”
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+国际刑事法院上个月对在乌克兰犯下的战争罪、反人类罪和种族灭绝罪的指控进行了调查。
 
-新闻来源： [https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237](https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237)
+来源：[U.S. to seek Russia’s suspension from UN Human Rights Council](https://www.axios.com/us-russia-suspension-human-rights-council-war-crimes-67062a77-2ccf-4a26-bf17-2245de1db786.html)
 
+* * *
+
+审核：Aries的星
+校对：小东
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
