@@ -2,25 +2,27 @@
 ---
 
 
-## 有声｜美国推动暂停俄罗斯在联合国人权理事会资格
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292320/)
+## 西媒头条 — 第201期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2292404/)
 
-By:**秘翻新闻**
+**制作：蚂蚁兄弟**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
 
-**2022-04-05**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-05-200337.jpg)
-综合外媒4月5日消息，乌克兰指控俄罗斯军队在布查镇屠杀平民数百人后，美国驻联合国大使汤玛斯·葛林斐德今天表示，美国将要求联合国大会将俄罗斯踢出人权理事会。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xm220405.001.jpeg)
 
-据了解，俄罗斯目前正处于联合国人权理事会三年任期的第二年。联合国大会193个会员国只要有2/3的票数通过，即可将在理事任期内持续犯下严重系统性侵害人权行径的国家逐出。而此前，联合国大会只有一次将会员国踢出人权理事会，即2011年3月一致通过将利比亚逐出人权理事会。
+***发稿：信心满满***
 
-葛林斐德示：俄罗斯参与人权理事会是个笑话，而且是错的。这正是为什么我们认为现在是联合国大会投票表决将他们踢出的时候。我要对这140个勇敢团结的国家说：从布查流出的影像，以及俄军在乌克兰境内的破坏，都迫使我们尽快采取行动。
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-（秘翻新闻 明澈 编辑报道）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
 
-发布:星星
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

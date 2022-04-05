@@ -15,113 +15,113 @@
 
 ---
 
-### [【G时新闻】总统拜登称普京为战犯 要求针对布查杀戮事件对普京进行战争罪审判](/content/gnews/1/README.md)
+### [有声｜德法驱逐多名俄罗斯外交官](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022.4.3 乌克兰总统泽连斯基电视讲话](/content/gnews/3/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [【G时新闻】接受中共军事部署的赛尔维亚总统设计连任](/content/gnews/4/README.md)
  ` G-时新闻`
 
-### [澳保持16万永居移民配额 提高技术移民比例](/content/gnews/2/README.md)
- ` 走进澳洲`
+### [【G时新闻】总统拜登称普京为战犯 要求针对布查杀戮事件对普京进行战争罪审判](/content/gnews/5/README.md)
+ ` G-时新闻`
 
-### [중국 공산당, 푸틴의 우크라이나 침공 배후 지원국](/content/gnews/3/README.md)
- ` 祁明`
-
-### [【秘翻新视野】俄乌战争终结了全球化曾经给世界带来的和平](/content/gnews/4/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/5/README.md)
- ` 關注組`
-
-### [신 중국 연방 최초 국제인도구호활동 참가 대사기](/content/gnews/6/README.md)
- ` 祁明`
-
-### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [毫无人性的魔鬼中共及其走狗](/content/gnews/8/README.md)
- ` 祁明`
-
-### [西媒头条 — 第201期](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：韩国防疫当局，探讨缩短中共病毒（COVID-19）自我隔离时间&#8230;&#8221;还讨论撤除生活治疗中心&#8221;](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英国正式列出了中共病毒的九种新症状](/content/gnews/11/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [日本东京樱花团 中文新闻播报第43期](/content/gnews/12/README.md)
- ` Tokyo Sakura Video Group`
-
-### [秘翻在线：俄罗斯3月份石油生产减少，&#8221;预计将进一步减产&#8221;](/content/gnews/13/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声｜美国推动暂停俄罗斯在联合国人权理事会资格](/content/gnews/14/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [秘翻在线：婴幼儿因中共病毒与父母分离，人间悲剧何时止！](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [VAERS数据：接种新冠疫苗后的许多健康问题均与疫苗有关](/content/gnews/16/README.md)
+### [如果中共入侵台湾，台湾的芯片优势将增加全球经济风险](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共乌克兰撤侨生意，费用“贵得离谱”](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
+### [澳保持16万永居移民配额 提高技术移民比例](/content/gnews/7/README.md)
+ ` 走进澳洲`
 
-### [中共房地产危机 多家中共房企港股遭停牌](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
+### [중국 공산당, 푸틴의 우크라이나 침공 배후 지원국](/content/gnews/8/README.md)
+ ` 祁明`
 
-### [摩根大通&#8211;中俄困境恐引发金融危机以来最严重的新兴市场企业违约潮](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频|新中国联邦和法治基金在乌克兰的国际人道救援行动仍在继续](/content/gnews/20/README.md)
- ` MOSVIDEO`
-
-### [有声｜黑龙江抗疫医生自杀消息疯传 传生前受辱](/content/gnews/21/README.md)
+### [【秘翻新视野】俄乌战争终结了全球化曾经给世界带来的和平](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [视频|英国称对乌平民的袭击必以战争罪调查](/content/gnews/22/README.md)
- ` MOSVIDEO`
-
-### [视频|立陶宛宣布停止进口俄罗斯天然气](/content/gnews/23/README.md)
- ` MOSVIDEO`
-
-### [金融制裁 欧洲复兴开发银行暂停对俄罗斯和白俄罗斯的融资](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频|4月3日俄乌交战最新进展](/content/gnews/25/README.md)
- ` MOSVIDEO`
-
-### [有声｜上海防疫“一团乱” 居委会女官崩溃痛哭录音热传](/content/gnews/26/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [俄罗斯人用封闭胶带，铁丝网和口香糖修补租赁客机](/content/gnews/27/README.md)
- ` mayflowertranslate`
-
-### [丹麦驱逐15名俄外交官](/content/gnews/28/README.md)
- ` Shuizhuyu`
-
-### [乌克兰布查镇的几百名平民被俄罗斯军队虐杀](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [是否从新疆购买医疗用品？英国议会的斗争仍在继续](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [7•24系列—— 新型能源之西屋eVinci微反应器](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [爆料革命——历史的今天1月24日](/content/gnews/32/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [闲聊郭先生4月4日小直播和盖特视频的内容](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Airbnb禁止俄罗斯人在世界各地租房](/content/gnews/34/README.md)
- ` 日本東京方舟農場`
-
-### [国际｜马斯克成为推特最大股东 批：不遵守言论自由是破坏民主](/content/gnews/35/README.md)
+### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/10/README.md)
  ` 關注組`
 
-### [中日财经爆┃入股推特 马斯克迷一样的操作](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [신 중국 연방 최초 국제인도구호활동 참가 대사기](/content/gnews/11/README.md)
+ ` 祁明`
+
+### [家庭反洗脑序列第54篇 思考](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/13/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [西媒头条 — 第201期](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：韩国防疫当局，探讨缩短中共病毒（COVID-19）自我隔离时间&#8230;&#8221;还讨论撤除生活治疗中心&#8221;](/content/gnews/15/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英国正式列出了中共病毒的九种新症状](/content/gnews/16/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [日本东京樱花团 中文新闻播报第43期](/content/gnews/17/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [秘翻在线：俄罗斯3月份石油生产减少，&#8221;预计将进一步减产&#8221;](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声｜美国推动暂停俄罗斯在联合国人权理事会资格](/content/gnews/19/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [秘翻在线：婴幼儿因中共病毒与父母分离，人间悲剧何时止！](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [VAERS数据：接种新冠疫苗后的许多健康问题均与疫苗有关](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共乌克兰撤侨生意，费用“贵得离谱”](/content/gnews/22/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共房地产危机 多家中共房企港股遭停牌](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [摩根大通&#8211;中俄困境恐引发金融危机以来最严重的新兴市场企业违约潮](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频|新中国联邦和法治基金在乌克兰的国际人道救援行动仍在继续](/content/gnews/25/README.md)
+ ` MOSVIDEO`
+
+### [有声｜黑龙江抗疫医生自杀消息疯传 传生前受辱](/content/gnews/26/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [金融制裁 欧洲复兴开发银行暂停对俄罗斯和白俄罗斯的融资](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声｜上海防疫“一团乱” 居委会女官崩溃痛哭录音热传](/content/gnews/28/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [俄罗斯人用封闭胶带，铁丝网和口香糖修补租赁客机](/content/gnews/29/README.md)
+ ` mayflowertranslate`
+
+### [丹麦驱逐15名俄外交官](/content/gnews/30/README.md)
+ ` Shuizhuyu`
+
+### [乌克兰布查镇的几百名平民被俄罗斯军队虐杀](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [7•24系列—— 新型能源之西屋eVinci微反应器](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [爆料革命——历史的今天1月24日](/content/gnews/33/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [闲聊郭先生4月4日小直播和盖特视频的内容](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [Airbnb禁止俄罗斯人在世界各地租房](/content/gnews/35/README.md)
+ ` 日本東京方舟農場`
+
+### [国际｜马斯克成为推特最大股东 批：不遵守言论自由是破坏民主](/content/gnews/36/README.md)
+ ` 關注組`
 
 ### [国际｜拜登再吁“战争罪审判普京” 将俄从人权理事会除名](/content/gnews/37/README.md)
  ` 關注組`

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 1:22 PM (UTC)`
+
+ 4月5号：尊敬的战友们好，这在中共国．连草都不让老百姓吃了……太可怕了，这是哪国的王法呢？这是外交部长王娘娘讲的．最民主．最安全．最幸福的．中国人民的生活方式吗？
+![img](https://media.gettr.com/group22/getter/2022/04/05/13/49797d28-8601-6fa9-9d16-3e3ef2122110/c7751b235a878987753689a75d15c8cb.jpg)
+
+---
+
 `@miles 4/5/2022 1:05 PM (UTC)`
 
 2022.04.05 早  新中国联邦 | 新闻访谈  俄军撤出基辅地区犯下战争罪和反人类罪；西方制裁俄罗斯引发全球粮食危机；上海等地封城 中共用集中营方式应对疫苗灾难
@@ -146,13 +153,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 【Ukraine Rescue】04/03/2022 A Japanese blogger from Tokyo said that he had never seen such Chinese people. Nicole told him that there are real Chinese people, citizens of the New Federal State of China in many cities and regions in Japan, who want to take down the CCP. He was so moved and will spread the message to their followers.<br/><br/>【乌克兰救援】04/03/2022 一位来自日本东京的自媒体人说，他从来没有看到过这样的中国人，妮可告诉他，在日本的很多城市和地区都有新中国联邦想要消灭中共的真正中国人，他深为感动，并将向其关注者传播这一信息。<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group4/getter/2022/04/05/00/9d3ab650-fa86-79d1-dbfd-32c0310bb114/out.jpg)
-
----
-
-`@miles 4/5/2022 12:04 AM (UTC)`
-
-4/4/2022 Miles Guo: Elon Musk acquired 9.2% of the stock of Twitter. This is not only good for Twitter, but also the whole social media sector, investors, and even GETTR.<br/><br/>4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事！<br/>
-![img](https://media.gettr.com/group28/getter/2022/04/05/00/9fafc31d-2d75-8e13-0df7-6be203f987b9/out.jpg)
 
 ---
 
