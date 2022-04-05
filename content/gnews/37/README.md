@@ -2,34 +2,18 @@
 ---
 
 
-## 吓尿中共的灭共新歌，第一天iTunes总榜成绩
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288440/)
+## 墙内疫苗灾难自杀者众 中共第二大投资者转向
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288441/)
 
-作者：纽约香草山  – Jane往后余生
+作者：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月3号， 大家期待已久的郭文贵先生的两首灭共新歌《灭共的雪 The Terminator Snow》和《铁锁梦 Chained Dream》正式上线苹果iTunes和苹果音乐平台。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-6.jpg)
-世界打榜第一天iTunes总榜成绩：
+在4月3日的直播中，郭文贵先生表示，上海、长春封城导致无数人自杀，中共国第二大投资者已经完全与爆料革命站在了一起。
 
-澳大利亚iTunes 摇滚歌曲《灭共的雪 》第一名；
+郭先生表示，长春、上海因隔离导致很多全家人自杀，而死者是就地掩埋或是直接被冰化和气化掉。目前，在上海有5000多个气化炉，长春则有上千个。而早在2018年，郭先生就曾爆料中共将全力发展火葬事业。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-7.jpg)
+另外，华尔街一位世界级投资牛人，因为去英国探望儿子，不得不注射了一剂中共病毒疫苗，从而导致半瘫。在得知是疫苗综合症并通过全身血液清毒后，才捡回一条命。而在知道我们在乌克兰前线的救援行动可以有效防止海外排华时，该人士十分感动，向郭先生索要了非常棒的救援马甲作为纪念，并坚定的与爆料革命站在了一起。
 
-香港《灭共的雪》第一名，《铁锁梦》第三名；
-
-新西兰《灭共的雪》第一名，铁锁梦第二名；
-
-新加坡《灭共的雪》第一名，《铁锁梦》第二名；
-
-澳门《铁锁梦》第一名，《灭共的雪》第二名；
-
-柬埔寨《铁锁梦》第一名，《灭共的雪》第二名；
-
-台湾《灭共的雪》第一名，《铁锁梦》第二名；
-
-美国区iTunes 摇滚歌曲《灭共的雪》第六名。
-
-参考链接：
-1. [We Are the Citizens of the New Federal State of China](https://gettr.com/user/miles)
-2. [《灭共的雪 The Terminator Snow》已经上榜澳大利亚**🇦🇺**iTunes 摇滚歌曲第一名](https://gettr.com/post/p13hajn259b)
+参考链接：[上海和长春的封城导致无数人跳楼自杀，中共给上海和长春分别送去了五千和一千多个处理尸体的气化炉](https://www.gettr.com/post/p13ge4a5f52)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

@@ -2,27 +2,53 @@
 ---
 
 
-## 加拿大试图加强战略能源和矿产品的开发
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289311/)
+## 欧盟在欧中锋会中表达多项立场及关切台海情势
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289551/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
+作者：纽约香草山医疗部-云豹
 
-编译： 加拿大温哥华扬帆农场 – 晨熹
-
-据自媒体【真北方】4月3日报道，由于受政府严格法规影响，加拿大目前很难吸引到对该国关键矿业的投资，但目前在西北地区实施的稀土矿产开采项目正在进行之中。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-424.png)图片来源：NAI
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-据悉，这是加拿大首个与原住民机构合作的项目，去年已开采了约5,000 吨稀土。同时，【因纽特天然气项目】也正在实施当中。对此，【工业投资部】表示：以上项目证明，加拿大是可以成为独立于中俄之外的国际稀有资源的主要开采者。
 
-但加拿大关键矿产行业领导人则抨击了特鲁多政府，称当局现行的碳排放标准阻碍了加拿大绿色能源发展，破坏了包括锂，镍等重要矿产资源的开发，而且其2030年碳减排计划目标更是无法实现的幻想。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
 
-原文链接： [https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/](https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220401185743157-2048x1365-1.jpg)
+
+欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
+
+此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
+
+欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
+
+欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
+
+参阅链接：
+[https://www.cna.com.tw/news/aopl/202204020271.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202204020271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

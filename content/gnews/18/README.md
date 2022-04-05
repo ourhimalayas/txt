@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|日媒揭露上海封城后的食物短缺等问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2289822/)
+## 郭文贵先生两首新歌正式上线
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289969/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-上海自3月下旬疫情爆发以来，实施了严格的封锁管控措施，同时官方媒体严格封锁消息，外界很难得知封控下上海居民的真实生活状况。4月1日，一家日本媒体连线了正在上海作为特别报道员的记者，并询问了目前上海的真实情况。
+采编撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-记者表示，上海名义上实施了东西交叉封锁，但因为每日新增病例居高不下，事实上已经开始全面封锁。人们无法出入小区，甚至医疗系统也出现了拒绝救治除感染外其他患者，造成患者死亡的事件。
+据盖特4月4日消息，文贵先生当天宣布，《灭共的雪》和《铁锁梦》这两首歌曲已正式在苹果iTunes和苹果音乐平台上线，并号召全球的灭共粉丝打榜支持。
 
-随后记者展示了前一天中共政府分配的食物。里面除了青菜、水以外没有看到肉制品。居民自己囤积的食物也快要见底，恐怕难以支撑接下来的生活。虽然上海开放了网上订菜的平台，但因为疫情，平台也一直显示“运力不足”，根本无法保证送达时间。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-434.png)图片来源：gettr
 
-文字版原文：[日媒揭露上海封城后的食物短缺等问题](https://gnews.org/zh-hans/2283315/)
 
-音频处理：Fei797
-发稿：Fei797
+据悉，当初《灭共的雪》被推出不仅是为了打破中共利用冬奥会进行的无耻宣传，同时也表达了歌者灭共的坚定决心。而《铁锁梦》则是以震惊世界的被绑架女事件为背景，控诉了中共套在老百姓脖子上的枷锁，听之催人泪下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+文贵先生此前的歌唱曾多次创造佳绩。单曲《马背英雄》上线仅仅数小时，就迅速登上iTunes 包括加拿大在内的多国排行榜冠军，并持续在榜多周。更是夺下了华人乐坛首个Billboard公告牌摇滚歌曲销售榜冠军。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： https://gettr.com/post/p13gzsh8306
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

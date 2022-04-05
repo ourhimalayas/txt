@@ -15,115 +15,115 @@
 
 ---
 
-### [视频|中共疫情防控下的荒唐层出不穷！](/content/gnews/1/README.md)
- ` MOSVIDEO`
+### [特斯拉老板马斯克突然成了推特最大的股东](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [视频|中共疫情“动态清零”政策下人不如狗！](/content/gnews/2/README.md)
- ` MOSVIDEO`
-
-### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;加强针后第6天不断咳嗽](/content/gnews/3/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;第三针新冠后严重疫苗过敏](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃乌克兰总统将于5日在联合国安全理事会发言](/content/gnews/4/README.md)
+### [乌克兰总统泽连斯基将在联合国安理会发表讲话](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [视频|停止喜币场外交易](/content/gnews/4/README.md)
+ ` MOSVIDEO`
+
+### [视频|砸“郭”是一门生意](/content/gnews/5/README.md)
+ ` MOSVIDEO`
+
+### [视频|吓尿中共的灭共新歌，第一天iTunes总榜成绩](/content/gnews/6/README.md)
+ ` MOSVIDEO`
+
+### [视频|喜币永远是全球最稳定数字货币 将被三国纳入国家储备](/content/gnews/7/README.md)
+ ` MOSVIDEO`
+
+### [视频|习近平将是俄乌战争的最大输家](/content/gnews/8/README.md)
+ ` MOSVIDEO`
+
+### [视频|墙内疫苗灾难自杀者众 多中共第二大投资者转向](/content/gnews/9/README.md)
+ ` MOSVIDEO`
+
+### [视频|中共疫情防控下的荒唐层出不穷！](/content/gnews/10/README.md)
+ ` MOSVIDEO`
+
+### [视频|中共疫情“动态清零”政策下人不如狗！](/content/gnews/11/README.md)
+ ` MOSVIDEO`
+
+### [泽连斯基发誓要追究俄罗斯的 &#8220;种族灭绝 &#8220;责任](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
+
+### [COVID-19疫苗副作用集萃（2022.4.5）&#8211;加强针后第6天不断咳嗽](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花时政┃乌克兰总统将于5日在联合国安全理事会发言](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【两岸三地谈中国】“顾全大局”反映的就是人心之恶](/content/gnews/5/README.md)
+### [【两岸三地谈中国】“顾全大局”反映的就是人心之恶](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [视频|郭先生一直在为灭共后的中华土地治理寻找方案！](/content/gnews/6/README.md)
- ` MOSVIDEO`
-
-### [日本志愿者给梅迪卡营地践行灭共使命的战友们送来鲜花](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家](/content/gnews/8/README.md)
+### [众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家](/content/gnews/16/README.md)
  ` 美国政要直译推`
 
-### [大直播后记：七哥爆料国内疫情和前线战友染病是疫苗反应](/content/gnews/9/README.md)
+### [大直播后记：七哥爆料国内疫情和前线战友染病是疫苗反应](/content/gnews/17/README.md)
  ` 雅典娜GNotes`
 
-### [莫斯科侵乌行径残暴 德法驱逐多名俄外交官](/content/gnews/10/README.md)
- ` 蓝莲花农场`
-
-### [郭文贵先生两首新歌正式上线](/content/gnews/11/README.md)
+### [郭文贵先生两首新歌正式上线](/content/gnews/18/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [币圈新闻动态：喜币24H成交量约为618680.810 HCN](/content/gnews/12/README.md)
+### [币圈新闻动态：喜币24H成交量约为618680.810 HCN](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [DC大中华时事：港报社评上海疫情管理遇上挑战](/content/gnews/13/README.md)
+### [DC大中华时事：港报社评上海疫情管理遇上挑战](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [俄罗斯军队在切尔诺贝利遭受&#8221;急性辐射病](/content/gnews/15/README.md)
- ` GTV News Talk`
-
-### [文贵先生谈第三次世界大战的局势演绎及战后世界新格局 (2)](/content/gnews/16/README.md)
+### [文贵先生谈第三次世界大战的局势演绎及战后世界新格局 (2)](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [上海疫情因疫苗灾难而继续恶化](/content/gnews/17/README.md)
+### [上海疫情因疫苗灾难而继续恶化](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|日媒揭露上海封城后的食物短缺等问题](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [7News《全球视点》邪恶中共防疫无能 大上海变人间炼狱](/content/gnews/19/README.md)
+### [7News《全球视点》邪恶中共防疫无能 大上海变人间炼狱](/content/gnews/23/README.md)
  ` 宁南`
 
-### [20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋](/content/gnews/20/README.md)
+### [20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋](/content/gnews/24/README.md)
  ` Tokyo Sakura Video Group`
 
-### [白宫：美国及其盟国将对俄罗斯实施新的制裁](/content/gnews/21/README.md)
+### [白宫：美国及其盟国将对俄罗斯实施新的制裁](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月4日晚](/content/gnews/22/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月4日晚](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/23/README.md)
+### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [乌克兰救援前线报道4.05.2022：战地版的真人真事 台湾小哥Naïve](/content/gnews/24/README.md)
+### [乌克兰救援前线报道4.05.2022：战地版的真人真事 台湾小哥Naïve](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [教宗含蓄批评普京 准备访问基辅](/content/gnews/25/README.md)
+### [教宗含蓄批评普京 准备访问基辅](/content/gnews/29/README.md)
  ` GTV News Talk`
 
-### [短视频：福奇的末世性的声明失去了影响力](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [安大略省立法消减汽油燃料税](/content/gnews/27/README.md)
+### [安大略省立法消减汽油燃料税](/content/gnews/30/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [欧盟在欧中锋会中表达多项立场及关切台海情势](/content/gnews/28/README.md)
+### [欧盟在欧中锋会中表达多项立场及关切台海情势](/content/gnews/31/README.md)
  ` GTV News Talk`
 
-### [郭文贵先生2022年4月4日盖特视频（9分36秒）全文字版](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/30/README.md)
+### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/32/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/31/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [喜币永远是全球最稳定数字货币 将被三国纳入国家储备](/content/gnews/32/README.md)
+### [喜币永远是全球最稳定数字货币 将被三国纳入国家储备](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [停止喜币场外交易](/content/gnews/33/README.md)
+### [停止喜币场外交易](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [砸“郭”是一门生意](/content/gnews/34/README.md)
+### [砸“郭”是一门生意](/content/gnews/35/README.md)
  ` NFSC News`
 
-### [习近平将是俄乌战争的最大输家](/content/gnews/35/README.md)
+### [习近平将是俄乌战争的最大输家](/content/gnews/36/README.md)
  ` NFSC News`
 
-### [墙内疫苗灾难自杀者众 中共第二大投资者转向](/content/gnews/36/README.md)
- ` NFSC News`
-
-### [吓尿中共的灭共新歌，第一天iTunes总榜成绩](/content/gnews/37/README.md)
+### [墙内疫苗灾难自杀者众 中共第二大投资者转向](/content/gnews/37/README.md)
  ` NFSC News`
 
 ### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/38/README.md)
