@@ -2,173 +2,53 @@
 ---
 
 
-## “我们不能对此麻木” 国务卿安东尼·布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2290582/)
+## 调查显示COVID-19和政治加剧了加拿大人的分裂
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2290628/)
 
-Dana Bash (CNN anchor)
-达纳·巴什（CNN 主播）
+2022-04-05
 
-Worsen new images out of Ukraine this morning
-今天早上乌克兰的景像更糟了
+翻译：卢卡斯 作者：Mickey Djuric
+![](https://assets.gnews.org/wp-content/uploads/2022/04/M6NZNS@@IY_8W7BR2.png)图片出处：[Survey suggests Canadians becoming more divided over COVID-19, politics](https://halifax.citynews.ca/coronavirus-covid-19-national-news/survey-suggests-canadians-becoming-more-divided-over-covid-19-politics-5228932)
+萨斯喀彻温大学加拿大应用与社会研究中心于3月7日至3月24日进行了全国电话调查。该调查询问了1,011 人关于最分裂他们的问题。
 
-as Russian troops pull back from the areas around Kyiv
-随着俄罗斯军队从基辅周围地区撤退
+大约四分之三的受访者表示，他们认为社会已经变得更加两极分化。
 
-and reveal horrors that are shocking to the world
-并揭露震惊世界的恐怖
+大多数人表示，COVID-19大流行（72%）和2021年联邦选举（73%）是过去一年中最分裂他们的两个问题。
 
-warning these images are disturbing
-警告这些图像令人不安
+大约40%的受访者表示，他们因有关大流行或政治的争论而减少了与朋友或家人的联系。
 
-The bodies of at least 20 civilian men shot execution style
-至少20名被枪杀的平民男子的尸体
+研究主任杰森·迪萨诺（Jason Disano）在萨斯卡通接受电话采访时告诉《加拿大通讯社》：“自大流行开始以来的过去两年里，有很多夸大的言论，很多言论确实造成了人们的分裂——无论这种分歧是真实存在的，还是只是被感知到的。”
 
-and left line amid rubble in the streets of Bucha outside of Kyiv
-并留在了基辅郊外布哈街道的瓦砾中
+迪萨诺说，受访者的回答似乎受到他们政治倾向的影响。
 
-where a local official told the AFP
-当地官员告诉法新社
+例如，在草原省份，受访者的回答方式与保守政策一致，迪萨诺说。
 
-they’ve already buried nearly 300 people in a mass grave
-他们已经在一个大坑中埋葬了近300人
+调查显示，大草原地区的人们比其他任何地区都更有可能相信应对气候变化和禁止攻击性武器的问题正在分裂加拿大人。然而，在加拿大中部，受访者并不认为禁止武器是一个引起分歧的话题。
 
-A Ukrainian presidential adviser says reports from nearby towns painted a similar quote
-一位乌克兰总统顾问说，来自附近城镇的报道也有类似的引述
+迪萨诺说：“我们看到很多身份政治在加拿大站稳脚跟，在美国也一直在站稳脚跟，尤其是在过去的五到六年里。”“而且我们看到了这种政治对加拿大的影响。这是一个问题。”
 
-“post apocalyptic picture of life under Russian occupation”
-“俄罗斯占领下的世界末日生活图景”
+魁北克的受访者比其他地区的受访者更有可能相信社会已经变得不那么两极分化了。 迪萨诺将这一结果归因于更为温和或自由的观点。
 
-US intelligence sources tell CNN
-美国情报来源告诉CNN
+参与调查的魁北克居民还表示，与包括不列颠哥伦比亚省在内的加拿大西部地区的人相比，他们因观点不同而减少与朋友或家人的联系的可能性较小。
 
-the pullback from Kyiv is part of a Russian shift to a narrower goal in Ukraine
-从基辅撤军是俄罗斯转向在乌克兰缩小目标的一部分
+“我们确实看到了这些地区差异，这在很大程度上取决于这些不同地区居民的政治倾向，”迪萨诺说。
 
-that Russia is now aiming to take control of the Donbas regions in eastern Ukraine by early May
-俄罗斯现在的目标是在5月初之前控制乌克兰东部的顿巴斯地区
+“不幸的是，我们看到的是政客们利用这种分裂来谋取政治利益，而这些领导人本应该寻求团结我们而不是分裂我们。”
 
-The potential shift brings new warnings from a Ukrainian official
-潜在的转变乌克兰官员带来了新的警告
+谈到团结加拿大人时，受访者表示，国际援助的规定（55%）和增加种族多样性（53%）是将他们聚集在一起的问题。
 
-that their military will face a difficult period of fighting in Ukraine’s eastern regions
-他们的军队将在乌克兰东部地区面临艰难的战斗时期
+该调查的可信度在正负 3% 以内，置信度为95%。
 
-And this morning, Russia struck an oil depot in the Black Sea Port of Odessa
-今天早上，俄罗斯袭击了敖德萨黑海港口的一个油库
+评：加拿大是一个被中共深度蓝金黄，堪称是中共国的一个省的西方民主国家，其现任总理杜鲁多本质上就是一个信仰共产主义的政客。2020年自中共病毒全球大流行以来，加拿大各级政府自杜鲁多以下的众多政客对民众隐瞒中共病毒真相，继而全力强制推行疫苗接种运动和疫苗护照，限制国民的人身自由和言论自由，这些丑恶的行径完全违反加拿大国家宪法，加拿大成为一个事实上的专制独裁、实行医疗暴政的国家。同时，政客们为了获取自己的政治经济利益，对民众极力掩盖中共病毒及其疫苗真相，或强制或欺骗民众去接种比中共病毒本身还毒的中共疫苗，这是赤裸裸的人类大屠杀的行径；此外他们还利用大多数国民对政府的信任，戮力愚昧洗脑民众，制造民众之间的分裂等卑劣行径来操纵民意、分化加拿大国民，试图逃脱惩罚。然而，随着疫苗灾难的到来和疫苗真相的曝光，这些政客都将受到加拿大法庭正义的审判。
 
-which General David Petraeus called the country’s lifeline
-大卫·彼得雷乌斯将军称之为国家的生命线
+原文链接：[Survey suggests Canadians becoming more divided over COVID-19, politics](https://halifax.citynews.ca/coronavirus-covid-19-national-news/survey-suggests-canadians-becoming-more-divided-over-covid-19-politics-5228932)
 
-It’s a reminder that even if troops move east
-这是一个提醒，即使俄罗斯军队向东移动
+编辑：涅
+发布：肥鯮
 
-the deadly Russian missile strikes will likely continue elsewhere
-致命的俄罗斯导弹袭击可能会在其他地方继续攻击
-
-Joining me now is the US Secretary of State Antony Blinken
-现在加入我的是美国国务卿安东尼·布林肯
-
-thank you so much for joining me this morning
-非常感谢你今天早上加入我
-
-So I want to start with those horrific images and reports from Boucher
-所以我想从布哈的那些可怕的图片和报告开始
-
-What is your reaction? And do you see evidence here of crimes against humanity?
-你的反应是什么？ 你在这里看到反人类罪的证据吗？
-
-Antony Blinken (Secretary of State)
-安东尼·布林肯（国务卿）
-
-Dana, you can’t help but see these images as a punch to the gut
-达纳，你很难想象看到这些图像，就如同被挨了一记重拳
-
-And look we’ve said before Russia’s aggression
-看看我们在俄罗斯的侵略之前所说过
-
-that we thought it was likely that they would commit atrocities
-我们认为他们很可能会犯下暴行
-
-since the aggression we’ve come out and said
-自侵略以来，我们已经站出来说
-
-that we believe that Russian forces have committed war crimes
-我们认为俄罗斯军队犯下了战争罪行
-
-and we’ve been working to document that to provide the information
-我们一直在努力记录，以向有关机构和组织
-
-that we have to the relevant institutions and organizations
-提供我们所拥有的信息
-
-that will put all of this together and there needs to be accountability for it
-这将把所有这些放在一起，并且需要对此负责
-
-But I think the most important thing is we can’t become numb to this
-但我认为最重要的是我们不能对此麻木
-
-We can’t normalize this
-我们无法正常化这个态势
-
-This is the reality of what’s going on every single day
-这就是每天发生的事情的现实
-
-as long as Russia’s brutality against Ukraine continues
-只要俄罗斯对乌克兰的暴行继续
-
-That’s why it needs to come to an end
-这就是为什么侵略需要结束
-Dana Bash
-达纳·巴什
-
-And Ukrainian foreign minister said Russia aims to eliminate as many Ukrainians as they can
-乌克兰外长表示，俄罗斯的目标是消灭尽可能多的乌克兰人
-
-Beyond war crimes. Do you see this as genocide?
-超越战争罪, 你认为这是种族灭绝吗？
-
-Antony Blinken
-安东尼·布林肯
-
-Look, we will we will look hard and document everything that we see
-嗯，我们会仔细查看并记录我们所看到的一切
-
-Put it all together
-把它们放在一起
-
-Make sure that the relevant institutions and organizations
-确保相关机构和组织
-
-that are looking at this, including the State Department
-正在研究这个问题的人，包括国务院
-
-have everything they need to assess exactly
-拥有他们需要准确评估的一切
-
-what took place in Ukraine, who is responsible and what it amounts to
-乌克兰发生了什么，谁该负责，这意味着什么
-
-* * *
-
-Date:04/03/2022
-原视频标题: “We can’t become numb to this.” Secretary of State Antony Blinken responds to images of horror in Bucha outside Kyiv, Ukraine, where bodies of Ukrainian civilians littered the streets amid the destruction left by Russian forces
-“我们不能对此麻木” 国务卿安东尼·布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上
-原视频日期：2022/04/03
-原视频链接：[https://twitter.com/cnn/status/1510610029547819008?s=24](https://twitter.com/cnn/status/1510610029547819008?s=24)
-任务编号：KE469（4160）
-视频时间段 : 0:00-2:46
-
-英听校： 洛杉矶盘古农场 — Layka
-翻译： 洛杉矶盘古农场 — Layka
-翻译终校：洛杉矶盘古农场 — Mike Li
-字幕+视频制作：洛杉矶盘古农场 — 天涯行
-审片：洛杉矶盘古农场 — 银龙
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

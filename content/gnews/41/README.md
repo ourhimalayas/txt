@@ -2,20 +2,18 @@
 ---
 
 
-## 停止喜币场外交易
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288444/)
+## 喜币永远是全球最稳定数字货币 将被三国纳入国家储备
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2288445/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约磐石农场—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-在4月3日的大直播中，文贵先生提醒战友，基于各国相关法律，停止喜币的场外交易。并对此解释，即那些不通过喜交所挂牌，私下跟其他人达成喜币买卖协议的都属于场外交易。
+在4月3日的大直播中，文贵先生表示，喜币是未来全球最稳定和升值最快的数字货币，目前已有三个国家要将喜币纳入国家储备货币。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-11.jpg)
+郭先生说，某超级能源大国拥有1500亿美元数字货币，其中包括800亿比特币，他们表示即使比特币消失都不会卖出，但做出了三个金融安排。而他们购买喜币的原因，是因为在喜交所发现竟然有六名高管曾在该国任过职，其中包括前国家银行行长在喜联储只当了一个普通高管。更令他们惊讶的是，喜联储用20%黄金作为储备支付，而且还有稳定币。同时，即将上线的H-Pay技术更是全球第一，安全、稳定和隐私是全世界追求的目标。
 
-目前，场外交易面临两个巨大的问题。首先场外交易中出现因锁币无法立即交付，或者是其他原因无法立即将喜币过户的情况。而这样现金只能买到一纸协议，是无法立即交换喜币的非真实交易行为，无论是所在国还是喜交所都有权利没收交易中的资金和喜币。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-10.jpg)
-另外，通过借条的形式实行场外交易，却因为借款期间的时长、利息、纳税等问题，触犯当地国家的法律，因此将会终身被所在国的税务机关锁定追踪。
+此外，欧洲即将推出数字货币法，而赵长鹏的币安将会遭到全球围剿而消失。郭先生还透露，该能源大国的数字货币将在2028年推出，并把数字货币储备列入了国家主权安全范围，该国和另外两国也将喜币纳入了本国货币储备名单中。
 
-郭先生强调，在钱的问题上不要投机、不要搞小聪明，每一个拥有喜币的人都需要了解所在国的法律，不要让财富给自己带来不必要的灾难。
-
-参考链接：[2022年4月3日 文贵大直播](https://gettr.com/post/p13c6fub6b6)
+参考链接：[喜币是并且将永远是全球最稳定的数字货币](https://www.gettr.com/post/p13hcxj36ea)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
@@ -23,6 +21,8 @@
 校对/发稿：Hetangyuese
 ![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
 ![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
