@@ -17,7 +17,7 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
-`@miles 4/5/2022 1:07 AM (UTC)`
+`@miles 4/5/2022 1:15 AM (UTC)`
 
 2022.04.04 晚  新中国联邦 | 新闻访谈   俄乌战争最新动态； 造谣郭文贵先生的伪类被澳政府遣返
 ![img](https://media.gettr.com/group25/origin/2022/04/05/01/e7d09f4d-a89f-1212-990b-5fd7999f149a/9548d67018b19975dcafea4c4484666a.png)
