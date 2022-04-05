@@ -2,33 +2,34 @@
 ---
 
 
-## 乌克兰国防部情报局的现代化作战能力太强了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2292937/)
+## 樱花时政┃日英就继续对俄罗斯施压达成一致
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2293170/)
 
-撰稿：东京樱花团/待命（文晓）
+撰稿：东京樱花团/文小白
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-乌克兰国防部情报局在其网站上公布了列出了1600多个俄罗斯士兵的姓名、出生日期、军衔和护照号码。
+据4月5日NHK消息，日本外务大臣林芳正和英国外交大臣特拉斯举行电话会谈，一致认为杀害首都基乌附近平民的行为是不可接受的。国际社会应团结一致，继续保持对俄罗斯的施压。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-63.png)（图片源自本文链接）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/日英就继续对俄罗斯施压达成一致.png)照片来源于本文链接
 
-4月5日FNN综合在线消息：乌克兰国防部公布了一份在首都基辅附近的布查直接参与战争罪行的俄罗斯士兵名单。
+电话会谈是应英国邀请，于4月5日下午4时30分举行的，会谈进行了大约20分钟左右。
 
-4月4日，乌克兰国防部情报局在其网站上公布了驻扎在布查的俄罗斯部队（第64自动狙击旅）的名称和该部队所属士兵名单，因为该部队在布查“直接参与了战争罪行”。
+林外长向英方说明了，20名靠自身力量无法逃难到国外的乌克兰难民，被政府用专机从波兰接到了日本。特拉斯外长表示高度赞赏。
 
-共列出了1600多个士兵的姓名、出生日期、军衔和护照号码。乌克兰国防部谴责说：所有对乌克兰公民犯下罪行的战犯都要接受审判。
+两国位外长随后就乌克兰首都基乌附近发现许多平民死亡的事件，严厉谴责俄罗斯这种杀害平民的行为是绝对不可接受的。两国外长呼吁七国集团为首的国际社会应团结一致，继续对俄罗斯进行包括制裁在内的施压措施，保护国际秩序的根基。
 
-在布查，街道上发现了许多平民的尸体，泽伦斯基总统谴责这是种族灭绝行为，这种侵略行径也遭到了国际社会的批评。
+两国外长还讨论了为实现“自由和开放的印度-太平洋”，以及7日在比利时举行的七国集团外长会议等继续合作的问题。
 
-信息来源： [【速報】ロシア軍兵士1600人以上のリスト公表　ウクライナ国防省「戦争犯罪に直接関与」（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/77d1c16ce1e8827f0b87bbf95b2cb19b89746c02)
+信息来源：
+[https://www3.nhk.or.jp/news/html/20220405/k10013568771000.html](https://www3.nhk.or.jp/news/html/20220405/k10013568771000.html)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

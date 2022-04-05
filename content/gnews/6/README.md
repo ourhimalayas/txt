@@ -2,37 +2,39 @@
 ---
 
 
-## 中共房地产危机 深圳二手房成交创15年最低
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2292909/)
+## 有声|砸“郭”是一门生意
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293132/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+4月3日大直播中，郭先生表示，从2017年开始爆料革命以来，砸“郭”就成了中共伪类们的一门生意。
 
-整理/编辑：BENJ1
+确切地说是从2015年开始，每隔两三个月，共产党就会放出污蔑郭先生的一些假料，同时还有一个所谓有影响力的人站台，把这些假新闻放在大媒体上“砸”郭。这些年来，一路上经过了无数个假民运，假灭共的人，如周孝正、龚小夏、吴征、杨澜等等。共产党的国安和情报系统为了骗钱，把砸郭变成了一项生意，甚至形成了完整的产业链。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-9.jpg)
+其产业链的运作模式如下：用假情报骗取习近平的亲笔批示，安全部政法委继而拿预算出来，然后会有具体的人来抢夺任务。任务一到手，预算也就到手，接着开始吃喝嫖赌免费旅游，完成任务以后还会论功行赏。如此往复。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-349.png)图片来源：雅典娜设计组
+早前，中共内部都用法轮功的事情来骗预算。而自郭先生爆料之后，全部矛头都对准爆料革命，这也算是间接救了法轮功。体制内人士告诉郭先生，这些预算是无法核查的费用。据悉，仅半岛电视台节目一项就拿了5000万美元的该类预算。当然，一年的维稳费用高达几千亿也实不足为奇。
 
 
-今年3月份，深圳市二手房成交量创下了15年来最低，面对没有起色的市场，有开了几十年的老牌中介公司被迫关门，有房产中介兼职送外卖以维持生计。
 
-据《每日经济新闻》4月4日报导，该媒体统计了近15年来3月份深圳楼市成交情况发现，2022年3月深圳住宅二手房成交量是近15年最低，仅成交1117套，同比下跌84%。
+文字版原文：[砸“郭”是一门生意](https://gnews.org/zh-hans/2288443/)
 
-同时，二手房价格也在下降，据乐有家研究中心对日常门店数据的监测，3月，深圳二手房价格环比下跌3%，同比下跌2%，进入了低价区间。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-深圳市是中国第一个推出二手房指导价格的城市，并最早将当局的参考价格与购房者的贷款额度直接挂钩的城市。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-市场不佳，受到影响较大的是房地产中介，深圳宝安区一家中介门店的向经理表示他们店两个多月没卖出二手房了，主要卖周边新房，惠州、中山和东莞等临深城市的以及一些出险房企在深圳打折的公寓。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考链接：
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[深圳二手房成交创15年最低中介兼职送外卖](https://www.epochtimes.com/b5/22/4/5/n13696064.htm)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-发布：tianzhihuan
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

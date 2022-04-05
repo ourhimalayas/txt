@@ -2,41 +2,44 @@
 ---
 
 
-## 有声|立陶宛宣布停止进口俄罗斯天然气
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2292774/)
+## 四大会计师事务所退出中共国地产商审计
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2292927/)
 
-配音：香草山农场 – 信念7
-![](https://assets.gnews.org/wp-content/uploads/2022/02/image-40-1-11.png)
-外媒报道，立陶宛能源部4月2日发表一份声明称，立陶宛将不再进口俄罗斯天然气，成为欧洲第一个脱离俄罗斯天然气供应的国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-5.jpg)
-该声明表示，立陶宛国内消费的所有天然气，都将通过克莱佩达港的液化天然气接收站进口。该接收站于 2014 年落成，旨在结束俄罗斯对立陶宛天然气供应的垄断。
-
-普京最近要求外国买家，从4月1日开始，以卢布购买俄罗斯天然气，否则将面临供应削减。此举遭到欧洲各国的反对。立陶宛能源部强调，摆脱俄罗斯的天然气供应，意味着该国不受俄罗斯强制以卢布支付天然气的影响，从而使俄罗斯的无理要求变得毫无意义。
-
-立陶宛总统瑙塞达4月2日在推特发文称，立陶宛正在打破与侵略者的能源联系。如果立陶宛能做到，欧洲其他国家也一样能做到。
+作者：纽约香草山 – MOS柳士多水土透
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-71.png)
 
 
-文字版原文：[立陶宛宣布停止进口俄罗斯天然气](https://gnews.org/zh-hans/2286801/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+据外媒4月2日报道，多家中共国地产上市公司推迟发布2021财务报表，跨国会计师事务所正陆续从行业审计工作中退出。此举令正面临史上最大债务危机的中资房地产企业，雪上加霜。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在一系列债务违约事件发生后，共有10家地产上市公司在3月31日前宣布延迟发布财务年报。据悉，四大会计师事务所之一的普华永道，因恒大审计业务正在香港受到调查。普华永道和德勤在三个月内已辞去了世茂集团、合生创展、融创中国和宝龙地产的审计工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-3.jpg)
+公开信息显示，德勤、普华永道、毕马威和安永曾经花了三年时间在中共国和香港发展了大规模的业务，在会计审计领域占有主导地位。在270家美国上市的中概股公司中，这四家事务所的业务占了一半以上。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+四大事务所多年来一直在审计文件上签字，为这些中企背书。然而，更多证据显示，这些房地产企业将无法偿付巨额债务，四大所如果继续提供审计业务，也将面临连带的法律风险，已有债券持有人考虑对审计行发起渎职诉讼。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+在此背景下，四大会计师事务所选择退出这些高风险的中资房地产公司审计业务。所有业务均转入香港本地的审计公司。信用分析机构据此评论称，审计事务所的变动是一个 “潜在的会计违规行为的迹象”。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+参考链接：
+1. [Big Four under growing pressure as Chinese developers delay audits](https://www.universalpersonality.com/big-four-under-growing-pressure-as-chinese-developers-delay-audits/)
+2. [Financial times](https://www.ft.com/content/1114aeee-4a8a-479a-815f-1828aa6b12e6)
+3. [四大会计师事务所退出中国地产商审计](https://docs.google.com/document/d/1vhEjwHiYF29YAd4OkOOigqPCAyBheTJyBpZGe2ul0Vo/edit)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：宁文静
+总编：DM
+审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-68.png)
+
+
 
  
 

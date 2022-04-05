@@ -2,31 +2,33 @@
 ---
 
 
-## 樱花时政┃众多国家驱逐俄罗斯外交官
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2292943/)
+## 樱花时政┃布查平民屠杀事件震惊世界 美欲将俄踢出联合国人权理事会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2293180/)
 
-撰稿：东京樱花团/盐和光
+撰稿：东京樱花团/法治小哥
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日中国日报网报道，纽约时间4月4日，德国和法国外交部4日分别决定驱逐俄罗斯外交人员。德国外长贝尔伯克4日发表声明说，德方当天宣布俄驻德使馆“大量”外交人员为“不受欢迎的人”，并已通报俄驻德大使。
+由于俄军在乌克兰布查镇制造的平民屠杀事件震惊世界，美国驻联合国大使格林菲尔德周一（4月4日）表示，美国将要求联合国大会将俄罗斯踢出人权理事会。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/众多国家驱逐俄罗斯外交官.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Frs1.huanqiucdn.cn%2Fdp%2Fapi%2Ffiles%2FimageDir%2F0ee181c3ccb88d98bfea9c19214dfa3d.png&amp;imgrefurl=https%3A%2F%2Fworld.huanqiu.com%2Farticle%2F47CIZH1mwK3&amp;tbnid=cFbnpf_QxzquGM&amp;vet=12ahUKEwj4u56h_vz2AhXpg_0HHU46DLYQMygLegUIARDCAQ..i&amp;docid=K2LDkK42fiI55M&amp;w=722&amp;h=406&amp;q=%E4%BF%84%E5%A4%96%E4%BA%A4%E4%BA%BA%E5%91%98&amp;ved=2ahUKEwj4u56h_vz2AhXpg_0HHU46DLYQMygLegUIARDCAQ)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/171-1.jpg)[图片来源](https://news.ltn.com.tw/news/world/paper/1509883)
 
-贝尔伯克说，德国将进一步收紧现有对俄制裁措施，加大对乌克兰武装部队的支持力度。据德国媒体报道，德方宣布40名俄外交人员为“不受欢迎的人”，并要求他们5天内离境。
+据法新社报道，美国驻联合国大使格林菲尔德周一（4月4日）表示，美国将要求联合国大会将俄罗斯踢出人权理事会。
 
-据法国媒体报道，法国外交部也在当日发表声明说，法方决定驱逐35名俄外交人员。这些人员的活动“违反了法国安全利益”。据法国媒体报道，法方决定驱逐35名俄外交人员。
+他说到，“俄罗斯参与人权理事会是个笑话，这是个错误，这正是为什么我们认为是联合国大会投票表决将他们踢出的时候了”。
 
-在德国和法国宣布将驱逐俄外交官与此同时，比利时驱逐21名俄外交官，荷兰驱逐17名俄外交官，爱尔兰驱逐4名俄外交官，捷克驱逐1名俄外交官，波罗的海三国驱逐了10名俄外交官，波兰驱逐45名俄外交官，拉脱维亚驱逐俄大使、外交降级，立宛驱逐俄大使、外交降级，此时的俄罗斯已被全世界孤立，2022年初始的春天，却是俄罗斯外交的冬天。
+联合国人权事务高级专员巴舍莱表示：“乌克兰布查镇街头尸体横陈和草草埋葬在乱葬坑的影响令人触目惊心。”她说，这个地区还有其它引发严重且令人不安的问题，涉及可能的战争罪，以及严重违反国际人权法的行为。
 
-[【德国和法国决定驱逐俄外交人员 俄方表示将做出回应】](https://ml.mbd.baidu.com/r/DZkES7J3ji?f=cp&amp;rs=1953408491&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=424b155e9290de56&amp;urlext=%7B%22cuid%22%3A%22_aHyi_8nHa_28v8e0u2Mug8tS80v8v8-0iH1uli6H8lliBtolavRijf51OpWiSa1YDUmA%22%7D)
+在联合国大会的历史上只有一次将会员国踢出人权理事会，2011年2月一致通过将利比亚逐出人权理事会。当时效忠利比亚领导人卡扎菲的军队暴力镇压抗议者。俄罗斯目前正处于联合国人权理事会三年任期的第二年。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
+信息来源：[白宫：即将宣布对俄新制裁 吁将俄踢出人权理事会](https://ausnznet.com/new/?p=22274)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

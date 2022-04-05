@@ -2,25 +2,29 @@
 ---
 
 
-## 俄罗斯人用封闭胶带，铁丝网和口香糖修补租赁客机
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2291838/)
+## 有声｜上海防疫“一团乱” 居委会女官崩溃痛哭录音热传
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2291939/)
 
-编译：波士顿五月花—-思澈
+By:**秘翻新闻**
 
-俄罗斯反航空制裁不归还租赁客机，维修飞机无法获得备件。
+**2022-04-05**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-19.png)
+[新唐人](https://www.ntdtv.com/gb/2022/04/04/a103391874.html)4月05日报道，中共国上海疫情大爆发，当局的政治防疫和官员无能令局面混乱不堪。网传电话录音显示，一名居委会女官面对居民质问，崩溃大哭。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/057A8A2B-77C8-4321-8EC4-0BD01D9E31E7.jpeg)
+通话内容显示，该社区居委会电话根本打不进去，该女住户拨打的是女书记的个人手机。女书记开始还用我们会及时上报等官话推诿。在女住户一再质问之下，女书记也开始诉苦，称居委会每天也在上报，但上海所有的方舱医院，包括还没造好的都已经爆满，阳性者根本送不出去。她给上级打电话，对方根本都不接。
 
-自从俄罗斯入侵乌克兰开始欧盟在2月底对俄罗斯航空实施严厉制裁。租赁公司必须在3月31日前终止与俄罗斯客户的合同，为了避免失去资产，租赁公司必须收回租给俄罗斯客户的飞机，但是普京不归还重新注册占为己有。日常维修飞机需要的备件无法获得，俄罗斯人就地取材用一切可以利用的材料修补飞机为保障飞机继续安全飞行。
+该女书记最后开始哭诉，说自己与普通住户相比，只多了一套防护服，却要接触大量人员，也在担心感染。她也是把孩子扔在家里出来上班，对这个工作真的无能为力了，还称现在工作已经不是工作了，是在送命。
 
-素材来源：1）[https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181](https://www.airliners.de/dwdwdw-67-kreppband-huehnerdraht-kaugummi-luftfahrtversicherer/64181)
+通话中，女书记提及上海市防疫政策的错误，并称再这样下去是要大乱了。
 
-2）[https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html](https://www.handelsblatt.com/unternehmen/fluggesellschaften-wie-leasingfirmen-versuchen-ihre-jets-in-russland-zurueckzubekommen/28220604.html)
+上述视频在网络热传，引发网民热议。有人对基层官员的无奈表示同情，称自己这边的文汇小区也一塌糊涂。北蔡所有的书记都已经崩溃了，因为平时没有这种极端情况的，渐渐的你就会发现在基层谁都很苦，除了等待外部救援别无它法。
 
-*发布：思澈*
+秘翻新闻 二丫编辑报道
 
+发布 : 恩典
 
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
