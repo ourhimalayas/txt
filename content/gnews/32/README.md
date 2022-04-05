@@ -2,33 +2,54 @@
 ---
 
 
-## 今日盖特大V推荐 — 国家脉博（The National Pulse）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2290407/)
+## 接受中共军事部署的赛尔维亚总统设计连任
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2290557/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-448.png)图片来源：网络
-盖特链接： [https://gettr.com/user/nationalpulse](https://gettr.com/user/nationalpulse)
+作者：波士顿五月花 – 文雀
 
-国际脉博自述：
+- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
 
-真实新闻和调查
 
-国际脉搏简介：
+据4 月 3 日&lt;路透社&gt;报导，民意调查机构益普索和 CeSID 根据部分投票站计数样本的预测，塞尔维亚现任总统亚历山大·武契奇（Aleksandar Vucic）将于周日以 59.8% 的选票赢得连任。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-234044.jpg)图片来源：路透社
+武契奇表示，将坚持军事中立。尽管塞尔维亚支持两项谴责俄罗斯入侵乌克兰的联合国决议，但拒绝对莫斯科实施制裁。
 
-国际脉博（The National Pulse）是一个新闻和调查网站，最初于2016年作为政治竞选博客成立，2020年初转变为新闻网站和播客。
+塞尔维亚几乎完全依赖俄罗斯的天然气，而其军队也与俄罗斯军方保持联系。
 
-国际脉博由政治传播和新闻资深人士拉希姆·卡萨姆（Raheem Kassam）编辑，国家脉博始终以其它媒体引用我们的消息、文件和证据为自豪，并且从不像许多新闻媒体一样依赖“匿名”的流言蜚语。
+武契奇已将自己从一个民族主义煽动者，转变为欧盟成员国、军事中立以及与俄罗斯和中共国关系的支持者。
 
-如果您有兴趣资助真实新闻并帮助纠正西方新闻媒体的弊病，您可以访问 [www.FundRealNews.com](http://www.FundRealNews.com) 并选择只需 5.00 美元来帮助我们。
+排名第二的亲欧洲派和中间派的胜利联盟的退役陆军将军波诺斯（Ponos）得票率为17.1％。他指责武契奇在竞选活动中利用乌克兰战争给人们带来的恐惧，来操控选情。
 
-* * *
+反对派和权利监督机构还指责武契奇及其盟友的专制统治风格、腐败、裙带关系、控制媒体、攻击政治对手以及与有组织犯罪的关系。武契奇和他的盟友则否认所有这些指控。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — Kevin37L
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+据文贵先生4月3日直播中的爆料，在5天之前，该国已接受中共红旗导弹与反导弹系统的部署，这将是北约对乌克兰未来的空中支援的绝对威胁。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参阅链接：
+[https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/](https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/)
+
+[https://youtu.be/NWaBeFIf53Q](https://youtu.be/NWaBeFIf53Q)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：H.B
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

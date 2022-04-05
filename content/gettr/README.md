@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 9:08 AM (UTC)`
+
+4/4/2022 Miles Guo: Zheng Jiefu was deported, the son of Qu Long committed suicide, Dong Xiansheng was arrested. These incidents all forebode the ending of the CCP’s overseas pawns who have been defaming the Whistleblowers’ Movement. They will either be deported back to China, or spend the rest of their lives in the US jails.<br/><br/>4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生！<br/>
+![img](https://media.gettr.com/group17/getter/2022/04/05/09/c13f0ec2-77ee-1a97-5abb-ffdec9757284/out.jpg)
+
+---
+
+`@miles 4/5/2022 8:58 AM (UTC)`
+
+4/3/2022 Miles Guo: Artemisinin has saved countless lives. It not only has cured countless cancer patients, but also is very effective in treating the adverse effects of the COVID vaccine. Post-operative people should be careful and follow medical advice when taking artemisinin. Many Hong Kong bigwigs regret after getting the COVID jabs and are now taking artemisinin and ivermectin. They fear that they will die and hope the Himalaya Coin will not depreciate.<br/><br/>4/3/2022 文贵直播：青蒿素救人无数，不仅治好了无数癌症患者，而且还对治疗疫苗副作用很有效；术后人士吃青蒿素要小心并遵医嘱；很多香港大佬打了疫苗很后悔，都在吃青蒿素和伊维菌素，他们怕死而且希望喜币不跌<br/>
+![img](https://media.gettr.com/group27/getter/2022/04/05/06/345810e7-1079-607c-865b-1de607091497/out.jpg)
+
+---
+
 `@miles 4/5/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -139,22 +153,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 新中国联邦 法治基金 飞飞秀救援快报 2022-04-04<br/>For English: gettr.com/post/p13kkrb6b24
 ![img](https://media.gettr.com/group5/origin/2022/04/04/22/ebe8ea4f-09a8-85b1-9e9b-3a61b03d25da/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayadcfarm 4/4/2022 6:36 PM (UTC)`
-
-Himalaya Washington DC's livestream <br/>Report from NFSC‘s Ukraine rescue<br/>法国学生在Medyka 波兰 采访精糧和三人行
-![img](https://media.gettr.com/group49/origin/2022/04/04/17/5de7a8fa-07c8-c700-461e-d97ceb05b659/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 8:44 PM (UTC)`
-
-2022.04.04  新中国联邦 | 喜健康   探索美蓝治疗冠状病毒感染，解毒疫苗的可能性
-![img](https://media.gettr.com/group48/origin/2022/04/04/20/dad20c86-9f12-f49c-c0fe-cfbcf2dcc0cb/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

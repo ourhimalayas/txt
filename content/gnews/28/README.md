@@ -2,54 +2,34 @@
 ---
 
 
-## 接受中共军事部署的赛尔维亚总统设计连任
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2290557/)
+## 拜登政府启动新的网络安全机构
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2290614/)
 
-作者：波士顿五月花 – 文雀
+**撰稿：日本东京方舟农场  子辰**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+4月4日，美国国务院宣布新成立的网络空间和数字政策局正式启动。该机构将用来应对新出现的网络安全问题。
 
+美国国务院（U.S. State Department）表示，新成立的网络空间和数字政策局（Bureau of Cyberspace and Digital Policy，简称CDP）将寻求“应对国家安全挑战、经济机遇，以及在网络空间、数字技术和数字政策领域对美国价值观的影响”。
 
-据4 月 3 日&lt;路透社&gt;报导，民意调查机构益普索和 CeSID 根据部分投票站计数样本的预测，塞尔维亚现任总统亚历山大·武契奇（Aleksandar Vucic）将于周日以 59.8% 的选票赢得连任。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-234044.jpg)图片来源：路透社
-武契奇表示，将坚持军事中立。尽管塞尔维亚支持两项谴责俄罗斯入侵乌克兰的联合国决议，但拒绝对莫斯科实施制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-5.jpg)（图片来自大纪元）
 
-塞尔维亚几乎完全依赖俄罗斯的天然气，而其军队也与俄罗斯军方保持联系。
+据悉，新成立的这个CDP分为三个政策单位，每个单位都有自己的主管。这三个部门分别是：国际网络空间安全部门、国际信息和通信政策部门，以及数字自由部门。
 
-武契奇已将自己从一个民族主义煽动者，转变为欧盟成员国、军事中立以及与俄罗斯和中共国关系的支持者。
+实际上，这个机构就是2018年特朗普政府为了精简国家安全委员会（National Security Council，简称NSC），将网络事务协调员办公室与另一个部门合并的前身。
 
-排名第二的亲欧洲派和中间派的胜利联盟的退役陆军将军波诺斯（Ponos）得票率为17.1％。他指责武契奇在竞选活动中利用乌克兰战争给人们带来的恐惧，来操控选情。
+此前，特朗普政府国家安全委员会发言人罗伯特‧帕拉迪诺（Robert Palladino）曾表示，是为了“精简管理、提高效率，减少官僚主义，并增加责任感。”
 
-反对派和权利监督机构还指责武契奇及其盟友的专制统治风格、腐败、裙带关系、控制媒体、攻击政治对手以及与有组织犯罪的关系。武契奇和他的盟友则否认所有这些指控。
+新成立的网络空间和数字政策局在其网站上宣布，它将“鼓励网络空间中负责任的国家行为，推进保护互联网基础设施的完整性和安全性的政策，服务于美国的利益，提高竞争力，并维护民主价值观”。同时，它将“反对在网络空间采取压制性和威权主义的做法，以及试图使之合法化的努力”。
 
-据文贵先生4月3日直播中的爆料，在5天之前，该国已接受中共红旗导弹与反导弹系统的部署，这将是北约对乌克兰未来的空中支援的绝对威胁。
+鉴于全球的威权主义正在复苏。尤其是来自中共和俄罗斯国家机构的网络威胁。新成立的网络空间和数字政策局将对拜登政府的国家安全战略带来帮助。而该战略预计将延续特朗普时代的战略，即把中共视为最紧迫的国家安全威胁。
 
-参阅链接：
-[https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/](https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/)
+此外，有专家警告说，中共和俄罗斯的互联网架构，正在与世界其它地区脱钩。它会有效地削弱全球互联网走向自由和开放，并将全球的大部分区域打造成分隔和受控制的区域。
 
-[https://youtu.be/NWaBeFIf53Q](https://youtu.be/NWaBeFIf53Q)
+参考链接： 
+[https://www.epochtimes.com/gb/22/4/4/n13695835.htm](https://www.epochtimes.com/gb/22/4/4/n13695835.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿：H.B
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
+总编：老孙
+校对发布：文曦
 
  
 
