@@ -2,18 +2,18 @@
 ---
 
 
-## 疫情｜CIA局长与拜登会面后确诊 经判断拜登非属密切接触者
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290685/)
+## 疫情｜瑞典扩大第四剂新冠疫苗接种范围
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290728/)
 
 **疫情关注组 zhong｜2022-4-5**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-1-1.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-外媒报导，美国中情局（CIA）局长威廉伯恩斯于接种三剂新冠疫苗后，官方确认于上周四确诊新冠病毒，并出现轻微症状。确诊前一天，他曾出席与拜登总统的会议，官方声明中强调“会议上有保持社交距离，并佩戴N95口罩”，依照CDC标准拜登总统非属密切接触者。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-2.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+2月中旬，瑞典政府仅批准并建议80岁以上族群接种第四剂新冠疫苗。日前，瑞典政府宣布，将批准对65岁以上等特定族群接种第四剂新冠疫苗，其中建议18-64岁患有中度或重度免疫缺陷者接种第四剂疫苗，该国公卫负责人卡琳·泰格马克·威塞尔（ Karin Tegmark Wisell ）表示“第四剂接种一样是防止新冠重症、死亡”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-05-下午2.00.17.png)2022/2 瑞典推行80岁以上族群第四剂后，确诊数量仍急剧上升，故选择开放第四剂接种范围
+此外，她补充说到“瑞典和其他国家感染数显著增加、疫苗对65岁以上老年族群的保护力开始下降”等，因此认为批准更多人接种第四剂疫苗是合理的。据了解，瑞典政府批准65岁以上族群接种第三剂加强剂约四个月前，该国相关单位认为疫苗保护力已随时间推延而减弱。
 
-确诊后，伯恩斯将在家继续旅行中央情报局局长的职责，经检测阴性五日后将返回办公室。
+公卫负责人卡琳．威塞尔强调，瑞典社会仍存在大量感染传播情形。
 
-除中央情报局长外，白宫新闻秘书詹·普萨基、副秘书卡琳·皮埃尔接连被检测出确诊新冠病毒，确诊前与拜登总统的会议有保持社交距离，故拜登总统非属密切接触者范畴。外媒报导称，白宫新闻副秘书卡琳·皮埃尔原计划与拜登总统出访比利时、波兰，经确诊后无法一同出行。
-
-来源｜[CNBC](https://www.cnbc.com/2022/03/31/cia-director-william-burns-test-positive-for-covid-after-biden-meeting.html)
+来源｜[nytimes](https://www.nytimes.com/2022/02/14/world/europe/sweden-fourth-covid-vaccine-older-people.html)、[abc](https://abcnews.go.com/Health/wireStory/sweden-give-4th-covid-19-shot-people-65-83858471)
 
 * * *
 

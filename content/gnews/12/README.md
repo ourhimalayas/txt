@@ -2,23 +2,34 @@
 ---
 
 
-## 疫情｜瑞典扩大第四剂新冠疫苗接种范围
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290728/)
+## COVID-19疫苗副作用集萃（2022.4.5）&#8211;新冠疫苗副作用心脏疼
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2290788/)
 
-**疫情关注组 zhong｜2022-4-5**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-2.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-2月中旬，瑞典政府仅批准并建议80岁以上族群接种第四剂新冠疫苗。日前，瑞典政府宣布，将批准对65岁以上等特定族群接种第四剂新冠疫苗，其中建议18-64岁患有中度或重度免疫缺陷者接种第四剂疫苗，该国公卫负责人卡琳·泰格马克·威塞尔（ Karin Tegmark Wisell ）表示“第四剂接种一样是防止新冠重症、死亡”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截圖-2022-04-05-下午2.00.17.png)2022/2 瑞典推行80岁以上族群第四剂后，确诊数量仍急剧上升，故选择开放第四剂接种范围
-此外，她补充说到“瑞典和其他国家感染数显著增加、疫苗对65岁以上老年族群的保护力开始下降”等，因此认为批准更多人接种第四剂疫苗是合理的。据了解，瑞典政府批准65岁以上族群接种第三剂加强剂约四个月前，该国相关单位认为疫苗保护力已随时间推延而减弱。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-公卫负责人卡琳．威塞尔强调，瑞典社会仍存在大量感染传播情形。
+整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%96%AB%E8%8B%97%E5%89%AF%E4%BD%9C%E7%94%A8.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-来源｜[nytimes](https://www.nytimes.com/2022/02/14/world/europe/sweden-fourth-covid-vaccine-older-people.html)、[abc](https://abcnews.go.com/Health/wireStory/sweden-give-4th-covid-19-shot-people-65-83858471)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-* * *
+帖子原文：
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+**耳鸣，突发性耳聋**
+
+6月28号打的新冠疫苗第二针，7月份开始有些耳鸣，一开始没引起重视，以为是办公室空调开大了冷到了。8月份加重了，做了听力测试，有些许下降，医生开了药，吃了没效果，后来又吃了灯盏生脉胶囊血栓通胶囊。10月8日觉得加重了，来医院住院了，今天第一天，输液+吃药，明天开始高压氧。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-466.png)图片来源：小红书
+参考链接:
+
+[接种新冠疫苗后突发性耳聋](http://xhslink.com/wBNbAg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
