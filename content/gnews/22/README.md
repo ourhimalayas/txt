@@ -2,31 +2,24 @@
 ---
 
 
-## 有声|中共国32家企业未公布年报在港交所停牌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293877/)
+## 2022年4月5日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293890/)
 
-录音：香草山文艺部 – maggie 喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-大纪元4月4日报道，中共国有32家上市公司在港交所发布停牌公告。其中房地产及关联公司数量最多，有13家，另外还有消费、工业、医疗保健等多个行业公司。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-据了解，在13家未披露年报的房地产及关联公司中，合富辉煌是因为重大交易事项有待披露而延迟发布年报而停牌，其它停牌的房企则都因为2021年度业绩延期发布，包括花样年控股、中国奥园、奥园健康、佳兆业集团、融创中国、世茂集团、恒大汽车、南海控股、彩生活、阳光100中国、荣万家、当代置业、天山发展控股。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0855.jpg)
 
-原文链接：[中共国32家企业未公布年报在港交所停牌](https://gnews.org/zh-hans/2286574/)
-
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-音频处理/发稿：Daxia
+发稿：信心的选择
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
 
  
 

@@ -2,30 +2,28 @@
 ---
 
 
-## 联合国难民署称乌克兰难民已突破420万
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2293923/)
+## 伊隆-马斯克成为推特最大股东，利好全球灭共局势
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2294017/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-联合国难民事务高级专员公署（UNHCR）的最新数据显示，自2月24日俄乌战争爆发以来，已有约420万乌克兰人逃离该国，近40,000名难民在邻国登记。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-下午12.43.59-1.png)
-这些数据显示，由于18至60岁有资格服兵役的男性无法离开乌克兰，因此离开乌克兰的难民中有90%是妇女和儿童。
+作者：日本东京方舟农场 Miyali7768(文玉）
 
-根据联合国国际移民组织（IOM）的数据，除了乌克兰难民外，还有大约 20万名非乌克兰人离开乌克兰，他们在战争开始前就在这个国家生活、工作或学习。
+资讯新闻网4月4日消息，周一披露的文件显示，特斯拉首席执行官伊隆-马斯克收购了 Twitter 9.2% 的股份。 此举将使他成为推特这一社交媒体平台的最大股东，目前公司第一大股东“先锋集团”持有公司8.4%的股份。
 
-国际移民组织宣布，截至 3 月中旬，估计有 648 万人在乌克兰境内流离失所。同时，它使因冲突而流离失所的总人数超过一千万，约占乌克兰总人口的四分之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9.jpeg)
 
-3月底，联合国儿童基金会表示，该国750万儿童中有一半以上流离失所，其中250万在国内，200万在国外。
+据文件显示，马斯克购入了推特公司约 7300 万股， 根据上周五的最新股价，马斯克的股票价值约为 29 亿美元。
 
-参考链接：[Nearly 4.2 Million Ukrainian Refugees Have Fled the War So Far, UNHCR Reveals](https://www.schengenvisainfo.com/news/nearly-4-2-million-ukrainian-refugees-have-fled-the-war-so-far-unhcr-reveals/)
+文贵先生在今日盖特视频中肯定了马斯克先生这一收购推特举措，认为推特今后的平台技术将会迎来飞跃，不会再像过去那样和共产党合作，更不会成为共产党的走狗。郭先生坚信马斯克先生会和其他社交媒体平台彼此精诚合作，传播中共在全球的恶行，这对灭共事业是天大的好事。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+参考链接：
+1. [伊隆马斯克成为推特最大股东](https://0xzx.com/2022040504182207993.html)
+2. [MILES GUO 直播 2022-04-04](https://gettr.com/post/p13j3d06e18)
 
-编辑：Zion文恩
-总编：Zion文恩
-审核：Zion文恩
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编/编辑/审核：Zion文恩
+校正/发稿：谐趣园
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
