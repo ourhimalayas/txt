@@ -2,37 +2,34 @@
 ---
 
 
-## 日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293419/)
+## 中共国正在寻求被制裁的俄罗斯低价天然气
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293587/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
-围绕乌克兰局势，政府从5日起禁止出口价格较高的日本车等高价产品，继续对俄罗斯实行制裁措施。
-视频来源：NHK新闻
-目的之一是对被拉近普京总统身边被称为“商业寡头”的富豪加大施压。 从5日开始，新增加的禁止向俄罗斯出口的对象是：
-►超过600万日元的轿车；
-►超过60万日元的摩托车；
-►超过20万日元的三角钢琴；
-超过四万日元的有
-►天然珍珠等珠宝首饰；
-►高级威士忌之类的酒类；
-►含有贵金属的手表等共19个品种。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151024.jpeg)
+近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
 
-停止这些高额产品的出口，目的之一是对被拉近普京总统的“商业寡头”富豪们的加强施压。
+交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
 
-日本政府到现在为止，作为对俄罗斯的制裁，可能被用于军事的商品和一般的半导体等合计约300种商品为人道主义目的的情况除外原则禁止出口，这次是追加的措施。
+中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
 
-在俄罗斯对乌克兰的军事入侵中，我们发现俄罗斯军队撤离的首都基乌附近有大量公民死亡。
+reference：
 
-岸田总理大臣4日在总理大臣官邸对记者团表示，“严厉批评危害平民这一违反国际法的行为”，并表示“希望看到关于进一步制裁的整体状况，与国际社会密切合作，做好我国应该做的事”。
+[https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/](https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/)
 
-参考链接：[対ロシア追加制裁 きょうから高額の日本車や時計など輸出禁止 | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220405/k10013567541000.html)
+撰稿、发布：骄子
 
 * * *
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

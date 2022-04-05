@@ -2,20 +2,31 @@
 ---
 
 
-## 安省敦促联邦政府降低汽油燃料价格
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293700/)
+## 有声|中共国32家企业未公布年报在港交所停牌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293877/)
 
-原文采编：青青      翻译编辑：文所未闻
+录音：香草山文艺部 – maggie 喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+大纪元4月4日报道，中共国有32家上市公司在港交所发布停牌公告。其中房地产及关联公司数量最多，有13家，另外还有消费、工业、医疗保健等多个行业公司。
 
-据加拿大《CTV新闻》4月4日报道，在加拿大各地汽油价格飙升之际，保守党政府当天提出立法，计划将汽油税每升降低5.7分，燃料税每升降低5.3分。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-20.png)图片来源：Global News
-据悉，该计划只有在6月份省级选举之后才会生效，为期六个月。目前。加拿大是油价之高，前所未有，整体通货膨胀也为几十年最高。
+据了解，在13家未披露年报的房地产及关联公司中，合富辉煌是因为重大交易事项有待披露而延迟发布年报而停牌，其它停牌的房企则都因为2021年度业绩延期发布，包括花样年控股、中国奥园、奥园健康、佳兆业集团、融创中国、世茂集团、恒大汽车、南海控股、彩生活、阳光100中国、荣万家、当代置业、天山发展控股。
 
-安大略省长福特也同时敦促加拿大联邦政府采取措施来进一步降低油价。
+原文链接：[中共国32家企业未公布年报在港交所停牌](https://gnews.org/zh-hans/2286574/)
 
-原文链接：https://toronto.ctvnews.ca/ontario-to-introduce-legislation-to-cut-gas-and-fuel-taxes-for-six-months-starting-july-1-1.5846934
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-编辑/上传：文所未闻
+音频处理/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+
 
  
 

@@ -2,36 +2,37 @@
 ---
 
 
-## 有声|习近平将是俄乌战争的最大输家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293183/)
+## 日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293419/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在4月3日的大直播中，郭文贵先生表示，他在与一个全世界排名前十位的大佬讨论乌克兰形势时，对方认为美国只关心国内通货膨胀、美元、油价和中共病毒疫情，习近平、普京和土耳其总统埃尔多安，会分别成为第一、第二和第三位赢家，甚至还认为乌克兰总统泽连斯基是俄国间谍。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-8.jpg)
-郭先生告诉该大佬，他基于国内的民生、粮食危机、政治危机、香港现状，习近平必须要打台湾的政治决定和个人爱好，习近平与普金因个人关系绑架两国人民利益，已经引起了两国的巨大反感，以及中共在中东和东南亚的布局等情报综合判断，习近平将会是俄乌战争的最大输家。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+围绕乌克兰局势，政府从5日起禁止出口价格较高的日本车等高价产品，继续对俄罗斯实行制裁措施。
+视频来源：NHK新闻
+目的之一是对被拉近普京总统身边被称为“商业寡头”的富豪加大施压。 从5日开始，新增加的禁止向俄罗斯出口的对象是：
+►超过600万日元的轿车；
+►超过60万日元的摩托车；
+►超过20万日元的三角钢琴；
+超过四万日元的有
+►天然珍珠等珠宝首饰；
+►高级威士忌之类的酒类；
+►含有贵金属的手表等共19个品种。
 
+停止这些高额产品的出口，目的之一是对被拉近普京总统的“商业寡头”富豪们的加强施压。
 
+日本政府到现在为止，作为对俄罗斯的制裁，可能被用于军事的商品和一般的半导体等合计约300种商品为人道主义目的的情况除外原则禁止出口，这次是追加的措施。
 
-文字版原文：[习近平将是俄乌战争的最大输家](https://gnews.org/zh-hans/2288442/)
+在俄罗斯对乌克兰的军事入侵中，我们发现俄罗斯军队撤离的首都基乌附近有大量公民死亡。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+岸田总理大臣4日在总理大臣官邸对记者团表示，“严厉批评危害平民这一违反国际法的行为”，并表示“希望看到关于进一步制裁的整体状况，与国际社会密切合作，做好我国应该做的事”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参考链接：[対ロシア追加制裁 きょうから高額の日本車や時計など輸出禁止 | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220405/k10013567541000.html)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+* * *
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

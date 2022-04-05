@@ -2,95 +2,32 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线次日登榜19国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2293434/)
+## 英美呼吁暂停俄罗斯人权理事国地位
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293679/)
 
-4/5/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第2天iTunes打榜记录：
-**《灭共的雪》**
-澳大利亚热门歌曲榜第1名
-19国摇滚歌曲榜第1名
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/US-UN-Human-Rights-GettyImages-1152045840.jpg)
+当地时间4月4日周一，美国驻联合国大使琳达·托马斯·格林菲尔德表示，因俄罗斯对乌克兰的入侵，俄参加联合国人权理事国简直是一场闹剧，目前美国正在推动将俄罗斯从人权理事国成员地位驱逐。据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经对人权和生命造成了巨大损失。目前需要联合国大会193个成员国三分之二的支持才能将俄罗斯剔出该组织。自2月24日俄入侵以来，已经有140票通过了两项谴责俄罗斯的决议。
 
-**《铁锁梦》**
-新西兰热门歌曲榜第1名
-新西兰流行歌曲榜第1名
+在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事国的成员，应该被剔除。
+
+reference：
+
+[https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html](https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html)
+
+撰稿、发布：骄子
 
 * * *
 
-[【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
+欢迎订阅我们的GNews账号：
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14-1.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_45.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50-1.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_53.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_54.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_55.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_63.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_64.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_67.jpg)
-
-
-[【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

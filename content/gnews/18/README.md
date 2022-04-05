@@ -2,34 +2,21 @@
 ---
 
 
-## 中共国正在寻求被制裁的俄罗斯低价天然气
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293587/)
+## 加拿大人对当下问题的观点分歧加大
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293685/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151024.jpeg)
-近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
+编译撰稿：活力人生
 
-交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
+据【CTV新闻】4月4日报道，一项由萨斯喀彻温大学加拿大应用与社会研究中心进行的最新调查表明，加拿大人对于时事政治问题的观点变得愈加分裂。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-05-at-12.11.36-PM.png)
+该调查中大约四分之三的受访者表示，他们认为社会已经变得更加极端化。超过七成的人认为新冠病毒大流行和 2021 年联邦选举是过去一年中导致社会分裂最大的两个问题。大约 40% 的受访者表示，他们因有关病毒大流行或政治问题的争论而减少了与朋友或家人的联系。
 
-中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
+对此，研究主管杰森·迪萨诺表示，过去两年里，很多言论确实造成了人们的分裂。不幸的是，政客们利用这种分裂来谋取政治利益，这些领导人应该寻求的是社会的团结而不是分裂。
 
-reference：
+新闻链接：[https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868](https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868)
 
-[https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/](https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/)
+编辑/上传：文所未闻
 
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
