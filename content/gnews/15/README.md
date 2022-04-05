@@ -2,53 +2,54 @@
 ---
 
 
-## 近一半加密货币所有者在 2021 年首次购买数字资产
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2290391/)
+## 樱花深度报道┃中共的粮食丝绸之路：谁控制了作物，谁就控制了未来（下）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2290456/)
 
-翻译： Jenny Ball
+编译：东京樱花团/Hopkins
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+【摘要】著名的科学作家朱利安·克里布（Julian Cribb）在他的书籍《即将到来的饥荒》（The Coming Famine）里就警告说，全球粮食短缺指日可待。由于“水资源、土地和能源的短缺，再加上人口和经济发展所造成的需求增长”，这个世界对即将到来的恐怖欠缺准备。北京政府倡导的“粮食丝绸之路”（Food Silk Road）, 是中共采取的旨在重塑全球食品供应链的发展战略。这条路无疑是险恶的，是由严重负债国的悔恨和泪水铺成的。“粮食丝绸之路”是否足以避免一场历史性的危机呢？也只有时间能证明一切吧。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-452.png)（图片说明）2018年9月3日，中非合作北京峰会（Forum on China-Africa Cooperation 2018 Beijing Summit）期间，中共党主席习近平与[非洲](https://www.epochtimes.com/gb/tag/%E9%9D%9E%E6%B4%B2.html)多国主席与领袖合影。（How Hwee Young/Pool/Getty Images）
 
+**中非联盟**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-51-edited.png)一家加密货币矿工银行于 2022 年 3 月 8 日在美国宾夕法尼亚州肯纳代尔的 Scrubgrass 工厂运营。照片拍摄于 2022 年 3 月 8 日。REUTERS/Alan Freed/
+根据非洲绿色革命联盟（Alliance for a Green Revolution in Africa）的网站信息，中非农业合作战略于2017年启动，旨在“利用中国的公共和私人资源（资金、产品、技术和知识），来促进、扩大和维持包容性农业转型”。
 
-4 月 4 日（路透社） – 根据美国加密货币交易所“双子座”（ Gemini ）的一项新调查，美国、拉丁美洲和亚太地区，几乎一半的加密货币所有者在 2021 年首次购买了数字资产。
+考虑到世界上60%的可耕地在非洲，这个联盟对北京政府来说是件大好事。毕竟，中国拥有世界19%的人口，却只有全世界10%的耕地。
 
-报告发现，在 2021 年 11 月至 2022 年 2 月期间对 20 个国家的近 30,000 人进行的调查显示，2021 年是加密货币的重磅一年，尤其是通货膨胀推动了货币贬值国家的采用。
+可耕地面积最多的三个非洲国家——毛里求斯（Mauritius）、卢旺达（Rwanda）和多哥（Togo）——得到了来自北京政府的大量投资。
 
-“双子座”发现，巴西和印度尼西亚在采用加密货币方面处于世界领先地位，在这些国家中，有 41% 的受访者表示拥有加密货币，而美国和英国的这一比例分别为 20% 和 18%。
+2021年1月，中国-毛里求斯双边自贸协议（也是首个中国与非洲国家间的自贸协议）正式签署生效。我们被告知，协议双方“都意识到农业是双方的核心活动，加强农业发展能够提高生活质量，促进经济发展”。
 
-“双子座”发现，去年报告拥有加密货币的人中，有 79% 表示他们选择购买数字资产是出于长期投资潜力。
+与此同时，在卢旺达，中国（中共）已经并且将持续大力地投资农业相关产品和服务。仅在2020年，中国企业就对这个内陆国家投资了超过3亿美元，其中农业领域更是备受关注。
 
-目前不拥有加密货币并且生活在货币对美元贬值国家的人表示，他们计划购买加密货币以对冲通胀的可能性是其之前的五倍以上。
+（中共）在多哥也有类似的交易。2021年上半年，多哥与中国的贸易额达到3.8亿美元。
 
-只有 16% 的美国受访者和 15% 的欧洲受访者同意加密货币可以对冲通胀，而印度尼西亚和印度的这一比例为 64%。
+据《南华早报》报导，中国依赖上述非洲国家（和其它国家）进口大量食品，从牛油果到芝麻，从辣椒到腰果。《南华早报》称，去年12月，中共承诺“为非洲农产品进入该国开辟数条‘绿色通道’，以实现3000亿美元的进口目标。”
 
-在过去五年中，印度卢比兑美元汇率下跌了 17.5%，而印尼卢比兑美元汇率在 2011 年至 2020 年期间贬值了 50%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-458.png)（图片说明）2020年2月7日，一名戴着口罩的男子在南非西里尔登市（Cyrildene）的一个蔬菜市场工作。该市场也被称为约翰内斯堡（Johannesburg）的唐人街。（Luca Sola/AFP via Getty Images）
 
-只有 17% 的欧洲人报告说他们在 2021 年拥有数字资产，而目前不拥有加密货币的人中，只有 7% 表示他们打算在某个时候购买数字资产。
+去年1月至7月间，中非贸易额达到1391亿美元。中国严重依赖非洲的各种水果、蔬菜、坚果和种子，更不用说其农业技术了。这种依赖关系，怎么强调都不为过。
 
-今年的采用势头能否跟上步伐还有待观察。
+据国际粮食政策研究所（International Food Policy Research Institute）的研究人员称，尼日利亚是非洲发展最快的国家，也是世界上增长最快的经济体之一，并且已经成为“中国制造业对外直接投资的重要目的地”。中国人似乎对“技术转让”和“企业间技术合作”特别感兴趣。
 
-根据 “币虎”（CoinGecko） 的数据，虽然最受欢迎的加密货币比特币在 11 月创下超过 68,000 美元的历史新高，帮助将加密货币市场的价值推高至 3 万亿美元，但到目前为止的2022 年的大部分时间，它的交易价格在 34,000 美元至 44,000 美元之间。
+去年，中共驻尼日利亚大使崔建春说，中共已将农业确立为第一产业，并进行了大量投资。崔建春表示：“我们已经确定了进行大量投资的四个领域，也即渔业、水稻、木薯和芭蕉种植。”
 
-新闻来源：[Nearly half of crypto owners first bought digital assets in 2021, survey shows](https://www.reuters.com/technology/nearly-half-crypto-owners-first-bought-digital-assets-2021-survey-2022-04-04/?utm_source=Sailthru&amp;utm_medium=newsletter&amp;utm_campaign=technology-roundup&amp;utm_term=Technology%20Roundup%20-%202021%20-%20Master%20List)
+德博克·苏皮尔（De Boeck Supérieur ）发表的研究，就概述了中共在30年间如何积极投资非洲农业，为将来其本国农民无法再生产足够农作物、来养活人民的那一天，做足准备。而这一天很快就要来临了。
 
-* * *
+“粮食丝绸之路”是否足以避免一场历史性的危机呢？也只有时间能证明一切吧。
 
-审核：文乐
-校对：小东
-发布：五通庙
+（全文完）
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+作者简介：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+约翰‧麦克‧格里昂（John Mac Ghlionn）是一名研究员和散文作家，其作品发表在《纽约邮报》（New York Post）、《悉尼先驱晨报》（Sydney Morning Herald）、《新闻周刊》（Newsweek）、《国家评论》（National Review）和《美国观察家》（The Spectator US）等国际知名媒体。他还是一位社会心理学专家，对社会功能障碍和媒体操纵等领域有着浓厚的研究兴趣。他的推特是：@ghlionn
 
+信息来源：[China’s Food Silk Road: Who Controls the Crops Controls the Future](https://www.theepochtimes.com/chinas-food-silk-road-who-controls-the-crops-controls-the-future_4364769.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

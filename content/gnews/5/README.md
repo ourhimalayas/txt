@@ -2,56 +2,172 @@
 ---
 
 
-## 中共国是刚刚开掉了一名NBA球员吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2290522/)
+## “我们不能对此麻木” 国务卿安东尼·布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2290582/)
 
-翻译：JennyBall
+Dana Bash (CNN anchor)
+达纳·巴什（CNN 主播）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+Worsen new images out of Ukraine this morning
+今天早上乌克兰的景像更糟了
 
+as Russian troops pull back from the areas around Kyiv
+随着俄罗斯军队从基辅周围地区撤退
 
+and reveal horrors that are shocking to the world
+并揭露震惊世界的恐怖
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-53-edited.png)埃内斯·坎特·自由(Enes Kanter Freedom )案例值得像对科林·卡佩尼克（ Colin Kaepernick）一样受到关注。
+warning these images are disturbing
+警告这些图像令人不安
 
-看起来篮球运动员坎特已经被 NBA 列入黑名单，因为他对联盟与中共的友好关系坦诚态度——为新疆集中营里到处都是维吾尔族人发声。
+The bodies of at least 20 civilian men shot execution style
+至少20名被枪杀的平民男子的尸体
 
-（点评：NBA的黑名单和独裁中共政权痛恨的是同一个人！）
+and left line amid rubble in the streets of Bucha outside of Kyiv
+并留在了基辅郊外布哈街道的瓦砾中
 
-今年早些时候，坎特开始在他的球鞋上印上由中共国持不同政见者艺术家巴丢草绘制的人权信息，他成为 NBA 挑战人权问题的直言不讳的批评者。 这包括直接瞄准联盟最知名的运动员勒布朗·詹姆斯。
+where a local official told the AFP
+当地官员告诉法新社
 
-2019 年，在休斯顿火箭队总经理达里尔·莫雷在一系列现已删除的推文中，公开反对中共国，并支持香港的民主运动后，中共暂停了其境内所有 NBA 转播。 当时的联盟专员亚当·萧华为莫雷辩护，而像詹姆斯这样的球员则称莫雷这些评论是没有受过教育。
+they’ve already buried nearly 300 people in a mass grave
+他们已经在一个大坑中埋葬了近300人
 
-（点评：詹姆斯评论的是中共的语气：莫雷这些评论证明没有受过“中共”的教育。）
+A Ukrainian presidential adviser says reports from nearby towns painted a similar quote
+一位乌克兰总统顾问说，来自附近城镇的报道也有类似的引述
 
-中央电视台（CCTV）和中国官方数字媒体公司腾讯传媒在一份声明中表示，“我们强烈不满，我们反对萧华声称支持莫雷的言论自由权。 我们认为，任何挑战国家主权和社会稳定的言论都不属于言论自由的范围。” 自 2009 年以来，腾讯传媒一直是 NBA 与中国的数字合作伙伴，交易价值约 10 亿美元，签约至 2025 年。
+“post apocalyptic picture of life under Russian occupation”
+“俄罗斯占领下的世界末日生活图景”
 
-去年 10 月，坎特·敦促他的球员们抵制北京奥运会，并将中共国家主席习近平称为残暴的独裁者。坎特当时是波士顿凯尔特人队的中锋。他继续大声抗议，直到今年 2 月，他被毫不留情地裁掉，讽刺的是，他声称在被交易到休斯顿火箭队后就预测到了这一举动。看到他的上场时间急剧减少，因为他的抗议声越来越大，并在国家媒体上获得了关注。
+US intelligence sources tell CNN
+美国情报来源告诉CNN
 
-简单来说：坎特于去年 10 月开始公开反对联盟与中共国的持续关系。今年**2**月，他被休斯顿火箭队裁掉，并没有被另一支球队接收。今年** 3 **月，**NBA**就恢复了与中共国似乎有条件的关系，以转播其比赛，并继续让其球星通过像勒布朗·詹姆斯那样经营篮球训练营来参与中国市场，同时，拒绝任何对维吾尔族的人权侵犯行为和反对支持香港。
+the pullback from Kyiv is part of a Russian shift to a narrower goal in Ukraine
+从基辅撤军是俄罗斯转向在乌克兰缩小目标的一部分
 
-“真让人难过！当我离开联盟的那一刻，NBA 就爬回了中共国，”坎特自由告诉观众。 “
+that Russia is now aiming to take control of the Donbas regions in eastern Ukraine by early May
+俄罗斯现在的目标是在5月初之前控制乌克兰东部的顿巴斯地区
 
-然而，勒布朗**·**詹姆斯直言不讳地批评美国土地上的警察暴行，因为他知道自己的底线和品牌不会受到影响。这纯粹是道德上的怯懦。
+The potential shift brings new warnings from a Ukrainian official
+潜在的转变乌克兰官员带来了新的警告
 
-一些人将坎特与替补四分卫科林·卡佩尼克相比，卡佩尼克在奏国歌时会跪下，将警察比作猪，将 NFL 比作一群拍卖奴隶。虽然可以提出这样的论点，即：卡佩尼克和坎特为任何愿意签下他们的球队提供的天赋递减，收益递减，而且，他们的激进主义会让人头疼和分心，但这就是比较的结果。 卡佩尼克获得了主流媒体的大力支持，并与 Netflix 和耐克公司签署了数百万美元的开发合同，耐克公司公开游说，反对拟议的反奴隶劳工立法。
+that their military will face a difficult period of fighting in Ukraine’s eastern regions
+他们的军队将在乌克兰东部地区面临艰难的战斗时期
 
-当我们的媒体以卡佩尼克所获得的那种认可的关注来倾诉坎特时，当他尽管明显黑名单上榜而获得数百万美元的代言时，那么，也许可以进行这种比较。就目前而言，这一切的时机对 NBA 来说都很糟糕。
+And this morning, Russia struck an oil depot in the Black Sea Port of Odessa
+今天早上，俄罗斯袭击了敖德萨黑海港口的一个油库
 
-新闻来源：[did china just take out an nba player](https://spectatorworld.com/topic/did-china-just-take-out-an-nba-player/)
+which General David Petraeus called the country’s lifeline
+大卫·彼得雷乌斯将军称之为国家的生命线
+
+It’s a reminder that even if troops move east
+这是一个提醒，即使俄罗斯军队向东移动
+
+the deadly Russian missile strikes will likely continue elsewhere
+致命的俄罗斯导弹袭击可能会在其他地方继续攻击
+
+Joining me now is the US Secretary of State Antony Blinken
+现在加入我的是美国国务卿安东尼·布林肯
+
+thank you so much for joining me this morning
+非常感谢你今天早上加入我
+
+So I want to start with those horrific images and reports from Boucher
+所以我想从布哈的那些可怕的图片和报告开始
+
+What is your reaction? And do you see evidence here of crimes against humanity?
+你的反应是什么？ 你在这里看到反人类罪的证据吗？
+
+Antony Blinken (Secretary of State)
+安东尼·布林肯（国务卿）
+
+Dana, you can’t help but see these images as a punch to the gut
+达纳，你很难想象看到这些图像，就如同被挨了一记重拳
+
+And look we’ve said before Russia’s aggression
+看看我们在俄罗斯的侵略之前所说过
+
+that we thought it was likely that they would commit atrocities
+我们认为他们很可能会犯下暴行
+
+since the aggression we’ve come out and said
+自侵略以来，我们已经站出来说
+
+that we believe that Russian forces have committed war crimes
+我们认为俄罗斯军队犯下了战争罪行
+
+and we’ve been working to document that to provide the information
+我们一直在努力记录，以向有关机构和组织
+
+that we have to the relevant institutions and organizations
+提供我们所拥有的信息
+
+that will put all of this together and there needs to be accountability for it
+这将把所有这些放在一起，并且需要对此负责
+
+But I think the most important thing is we can’t become numb to this
+但我认为最重要的是我们不能对此麻木
+
+We can’t normalize this
+我们无法正常化这个态势
+
+This is the reality of what’s going on every single day
+这就是每天发生的事情的现实
+
+as long as Russia’s brutality against Ukraine continues
+只要俄罗斯对乌克兰的暴行继续
+
+That’s why it needs to come to an end
+这就是为什么侵略需要结束
+Dana Bash
+达纳·巴什
+
+And Ukrainian foreign minister said Russia aims to eliminate as many Ukrainians as they can
+乌克兰外长表示，俄罗斯的目标是消灭尽可能多的乌克兰人
+
+Beyond war crimes. Do you see this as genocide?
+超越战争罪, 你认为这是种族灭绝吗？
+
+Antony Blinken
+安东尼·布林肯
+
+Look, we will we will look hard and document everything that we see
+嗯，我们会仔细查看并记录我们所看到的一切
+
+Put it all together
+把它们放在一起
+
+Make sure that the relevant institutions and organizations
+确保相关机构和组织
+
+that are looking at this, including the State Department
+正在研究这个问题的人，包括国务院
+
+have everything they need to assess exactly
+拥有他们需要准确评估的一切
+
+what took place in Ukraine, who is responsible and what it amounts to
+乌克兰发生了什么，谁该负责，这意味着什么
 
 * * *
 
-审核：文乐
-校对：小东
-发布：五通庙
+Date:04/03/2022
+原视频标题: “We can’t become numb to this.” Secretary of State Antony Blinken responds to images of horror in Bucha outside Kyiv, Ukraine, where bodies of Ukrainian civilians littered the streets amid the destruction left by Russian forces
+“我们不能对此麻木” 国务卿安东尼·布林肯回应乌克兰基辅郊外布哈的恐怖画面，在俄罗斯军队留下的破坏中，乌克兰平民的尸体散落在街道上
+原视频日期：2022/04/03
+原视频链接：[https://twitter.com/cnn/status/1510610029547819008?s=24](https://twitter.com/cnn/status/1510610029547819008?s=24)
+任务编号：KE469（4160）
+视频时间段 : 0:00-2:46
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+英听校： 洛杉矶盘古农场 — Layka
+翻译： 洛杉矶盘古农场 — Layka
+翻译终校：洛杉矶盘古农场 — Mike Li
+字幕+视频制作：洛杉矶盘古农场 — 天涯行
+审片：洛杉矶盘古农场 — 银龙
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

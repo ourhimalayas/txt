@@ -2,46 +2,163 @@
 ---
 
 
-## 4/05/2022 银河快讯:基辅市郊区出现大量平民尸体；外交部部长林毅夫会见波兰外长
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/2290464/)
+## 乌克兰议会议员克拉夫楚科夫在周六的“唤醒美国”节目中就俄罗斯军队“性侵犯”乌克兰公民发表讲话
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2290507/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/download.jpeg)
-[图片来源](https://news.tbs.co.jp/newseye/tbs_newseye6011265.html)
+**Carl Higbie (Newsmax host)
+卡尔·希比 (Newsmax 主持人)**
 
-1. **基辅市郊区出现大量平民尸体**
+The fact is that like these cities that are being bombed out right now
+事实是，就像这些现在正在被轰炸的城市
+
+where it’s being fought, you know, person to person combat
+在那里的战斗，你知道，人对人的战斗
+
+It’s like, oh, it’s Cincinnati, it’s Chicago, it’s New York City
+就像, 这是辛辛那提，这是芝加哥，这是纽约市
+
+They were your cities, these are your lands
+他们是你们的城市，这些是你们的土地
+
+Talk to us about how personal this is
+和我们谈谈这是多么个人感情的事情
+
+and and why the American people shouldn’t kind of let this one go by the wayside
+以及为什么美国人民不应该让这一事件被遗忘
+
+Yevheniya Kravchuk (Ukraine Parliament member)
+叶夫涅尼亚·克拉夫丘克（乌克兰议会议员）
+
+Well, it is very personal because my husband
+嗯，这是非常个人感情的事情，因为我已经
+
+who I haven’t seen for 28 days now is in the region
+28 天没见我的丈夫了，他现在在该地区
+
+He’s had a police departments in one of the cities close to Khekiv
+他在赫基夫附近的其中的一个城市设有一个警察局
+
+It wasn’t taken by Russians, but they are free in the villages
+它没有被俄罗斯人占领，但俄罗斯人在村庄里是无阻碍的
+
+village by village and in different villages
+一个村一个村，在不同的村子里
+
+we are afraid, we’re seeing you know
+我们害怕，我们看到俄罗斯部队
+
+the horrible atrocities just piles of dead bodies, just on the side of the street
+可怕的暴行，成堆的尸体，就放在街边
+
+Russian soldiers would just tie these people
+俄罗斯士兵会把这些人绑起来
+
+rape them and then shoot and kill
+强奸他们然后开枪杀人
+
+and this is you know, 21st century
+这就是21世纪正在发生的事情
+
+we’re talking about and then you have this story about someone’s smacking someone’s else’s face
+我们正在谈论的，并且你有这个关于某人打别人脸的故事
+
+And you know, I’m sorry to say but for us
+你知道，我很抱歉，但为了我们
+
+it’s like what our country’s on stage right now
+这就像我们国家现在所处的情况一样
+
+Carl Higbie
+卡尔·希比
+
+But I want to be clear about something you just said
+但我想澄清一下你刚才说的话
+
+I’m sorry to interrupt
+很抱歉打断了你
+
+You said there’s sexual assault going on by the Russian troops
+你说俄罗斯军队正在进行性侵犯
+
+Yevheniya Kravchuk
+叶夫涅尼亚·克拉夫丘克
+
+Yes, I mean, they rape even kids
+是的，我的意思是，他们甚至强奸孩子
+
+I mean, we have the information that’s even rape a two years old girl
+我的意思是，我们掌握的信息是他们甚至强奸了一个两岁的女孩
+
+They kept a 15 years old girl for 10 days
+他们把一个15岁的女孩关了10天
+
+and then she’d sort of fleet away and found the volunteers to take her out
+然后她逃跑了，找到志愿者带她逃走
+
+I mean, this is horrible. You can’t really imagine what is going on
+我的意思是，这太可怕了，你真的无法想象发生了什么
+
+Imagine a mom in Mariupol that has to dig out a dead body over two years old daughter
+想象一下，马里乌波尔的一位妈妈不得不将两岁多的女儿的尸体挖出
+
+that shoot was killed by a missile in the theater
+她是在被一枚导弹击中剧院那次袭击杀死的
+
+I’m sorry to say I mean, it’s seven in the morning
+对不起，我的意思是，现在是早上七点
+
+you probably drinking your coffee, but like, it’s horrible what they do
+你可能正在喝咖啡，但是俄罗斯部队的所作所为太可怕了
+
+And the only thing to stop these atrocities is to kick them out
+唯一能阻止这些暴行的就是把他们踢出去
+
+Just give us a tool
+只要给我们一个工具
+
+That’s our message to the administration to the country
+这是我们向美国政府传达的信息
+
+Our counterparts in Congress were met
+在国会会见了我们的同行
+
+give us the tools give us heavy weapons
+给我们工具，给我们重型武器
+
+We need to keep them out of our country
+我们需要让他们离开我们的国家
+
+And that’s how to stop the humanitarian catastrophe
+这就是阻止人道主义灾难的方法
+
+these rapings, these killings, because Putin will not stop in Ukraine
+停止这些强奸，停止这些杀戮，因为普京不会在乌克兰停下来
+
+He’s not stopped
+他没有停止
+
+* * *
+
+Date:04/02/2022
+原视频标题: Ukrainian Parliament member kravchukev speaks on Russian troops ‘sexually assaulting’ Ukrainian citizens, on Saturday’s “Wake Up America”
+乌克兰议会议员克拉夫楚科夫在周六的“唤醒美国”节目中就俄罗斯军队“性侵犯”乌克兰公民发表讲话
+原视频日期：2022/04/02
+原视频链接：[https://twitter.com/newsmax/status](https://twitter.com/newsmax/status)/1510250704169934853?s=24
+任务编号：KE468（4156）
+视频时间段 : 0:00-2:17
+
+英听校： 洛杉矶盘古农场 — Layka
+翻译： 洛杉矶盘古农场 — Layka
+翻译终校：洛杉矶盘古农场 — Mike Li
+字幕+视频制作：洛杉矶盘古农 — 文新
+审片：洛杉矶盘古农场 — 银龙
+发布：洛杉矶盘古农场 — Kevin37L
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-[据FNN 4月4号报道， 岸田首相告诉记者，”这违反了国际法，我们知道，国际社会的谴责声越来越大。日本也必须严厉批评和谴责这种违反国际法的行为，这是一个人道主义问题”。在这方面，乌克兰总统泽伦斯基指控俄罗斯进行种族灭绝。至于对俄罗斯的额外制裁，他说，他将审视整个局势，并与国际社会合作实施这些制裁。](https://news.yahoo.co.jp/articles/0222beb0a6346a501f4e9107d9cfbb01fa1319ac)
-
-**2. 外相林毅夫会见波兰外长**
-
-[据日本电视NEWS 4月4号报道，在访问波兰以协助来自乌克兰的流离失所者期间，林外相会见了波兰外长。外相对（在邱庄附近）发生的恐怖行为感到强烈震惊。”杀害平民的行为违反了国际人道主义法，是绝对不可接受的，我们对此予以严厉谴责。”会议还讨论了对流离失所者的援助，林外相表示，日本将尽可能地接受流离失所者。目前正在做最后的安排，以便与希望撤离的人员一起登上政府的飞机。](https://news.yahoo.co.jp/articles/8b2987aa2b14f48c772181db3f584972579e82cd)
-
-**3. 20名乌克兰难民乘坐日本政府飞机前往日本**
-
-[据NHK 4月5号报道，正在波兰访问以协助来自乌克兰的流离失所者的林外相向记者宣布，他将在回国时承载20名乌克兰难民一同回国。在访问的最后一天，他会见了杜达总统、莫拉维茨基总理和刘外长，分享关于乌克兰局势的最新信息，并合作为流离失所者提供支持。他们确认，他们将继续合作。](https://www3.nhk.or.jp/news/html/20220404/k10013567341000.html)
-
-[他补充说：”我们将尽最大努力支持他们，使他们能够在远离祖国的日本感到安心。不仅是政府，而且许多公司和地方当局也提供了支持。我们将与人民一起努力，促进我们的工作”。](https://www3.nhk.or.jp/news/html/20220404/k10013567341000.html)
-
-**4. 经济通商产业大臣萩生田表示对生物技术研究将采取优先投资政策**
-
-[据NHK 4月4号报道，随着全球在生物技术领域的发展竞争加剧，经济产业大臣萩生田参观了兵库县的一个最先进的生物技术研究基地，并表示他打算在这一领域进行大量投资，以实现经济增长和脱碳社会等目标。该公司还在研究和开发吸收二氧化碳以生产塑料的微生物，这作为一项可以大大减少二氧化碳排放以实现脱碳社会的技术而备受关注。](https://www3.nhk.or.jp/news/html/20220404/k10013566861000.html)
-
-**5. 去年接受癌症筛查的人数只有疫情前的90%。**
-
-[据NHK 4月4号报道，日本癌症协会的一项调查发现，去年接受地方当局进行的癌症筛查的人数只有2019年的90%，该协会呼吁进行早期筛查，因为有可能更多的癌症病例是在晚期发现的。该协会呼吁尽早就诊，因为有可能出现病人长期未就诊而被发现处于晚期状态的病例数量增加的情况。从去年秋天到冬天，接受检查的人数恢复到了通常的水平，但是日本癌症协会主任说“我们担心，如果中共病毒（新冠状病毒COVID-19）再次蔓延，它将产生更大影响。筛查机构正在采取良好的措施来预防感染，因此我们希望人们在今年接受筛查。”](https://www3.nhk.or.jp/news/html/20220404/k10013566701000.html)
-
-**6. 岸田政府成立6个月后 内阁支持率59.1% **
-
-[据TBS (JNN) 4月4号报道，最新的日本新闻网民调显示，内阁的支持率与政府成立时的水平相同。经济措施方面，当被问及在油价飙升的情况下，如何取消减少部分汽油税的触发条款的冻结时，59%的人表示应该取消，20%的人表示不应该取消。关于物价上涨对他们生活的影响，67%的受访者表示有影响，把 “非常有影响 “和 “有一点影响 “放在一起。4月，政府开始实施所谓的 “区域块状折扣”，将全国划分为六个区域，包括关东和近畿地区，并对这些区域内的旅客进行补贴。](https://news.yahoo.co.jp/articles/ed72dc13170652b7ecf0e4ecf44f12c89735969b)
-
-**【日本银河系农场-阿尔法星球】**
-
-素材：文德
-
-中文文案：返朴归真
-
-校对：Totoro
 
  
 

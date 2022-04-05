@@ -2,35 +2,22 @@
 ---
 
 
-## 反人类组织中国共产党是不会给14亿中国人真相的！
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2290365/)
+## 【速报】20名乌克兰难民乘坐日本政府专机刚刚抵达羽田机场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2290389/)
 
-作者：jake心鎖
+撰稿：东京樱花团/待命（文晓）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-447.png)（图片源自本文链接）
 
+4月5日FNN综合在线消息：一架载有乌克兰难民的政府专机刚刚抵达日本羽田机场。
 
+抵达羽田机场的是于日本时间昨晚离开波兰机场的20名来自乌克兰的难民。这些人中约有5人在日本没有亲戚或熟人，据信这是日本第一次接受没有在日亲属的人。
 
+信息来源： [【速報】ウクライナからの避難民20人　日本に到着（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/f6574565a16ba4014b03621aa8ca80a20c4dc801)
 
-
-
-
-![](https://singularityhub.com/wp-content/uploads/2016/12/post-truth-technology-corruption-concept-spreading-lies-symbol-528138850-900x506.jpg)
-
-中共带给中国人的是永远是谎言、暴力、奴役、屠杀，新中国联邦人不仅要把乌克兰战争的真相传达给14亿防火牆内的中国人，更要把中共企图让世界笼罩在共产主义红色恐怖之下的野心公之于众，没有中国共产党就不会有现在乌克兰人民遭受的伤害和死亡，中共为什么不让中国人知道俄乌战争的真相，因为幕后操纵的金主和即将来到台前与俄罗斯沆瀣一气的中共就是那个罪魁祸首，中共还会打台湾，开启另一场战争，给世界带来更沉重的伤害，知道真相的新中国人和乌克兰人民站在一起，灭共的一定是中国人！
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4057.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4058.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4059.jpg)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/40591.jpg)
-
-
-
-**上传排版：V在途中**
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

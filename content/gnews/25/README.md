@@ -2,48 +2,56 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.5）&#8211;打完第三针全身过敏起红疹
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2290255/)
+## 突发：乌外长致电王毅商讨粮食安全并质疑中共军援俄罗斯
+` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2290283/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)![](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/2022-04/20220405_news_china-ukraine.jpg?VersionId=msXdLux3ohG1sBmB4OK5GwnrPMq5pCOU&amp;itok=sOntjwip)
+**王毅再次和乌克兰外长德米特罗·库莱巴通话，库莱巴表示，王毅希望结束俄乌战争符合中乌双方利益，并讨论了粮食安全。谈话间，库莱巴援引美国拜登总统的话警告中共对俄军事援助的后果。**
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%96%AB%E8%8B%97%E5%89%AF%E4%BD%9C%E7%94%A8.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+据[中共国新华社4日晚](http://www.news.cn/2022-04/04/c_1128532253.htm)间消息，中共外长“王毅应约同乌克兰外长库莱巴通电话。双方重点就乌克兰局势交换了意见。”这是库莱巴一个月前“[呼吁中国外长说服俄罗斯结束战争](https://espreso.tv/kuleba-zvernuvsya-do-ochilnika-mzs-kitayu-iz-prokhannyam-perekonati-rosiyu-pripiniti-viynu-ministr-poobitsyav-doklasti-vsikh-zusil)”后的最新电话会谈。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+该消息称，王毅表达了中共国在乌克兰问题上的基本态度——劝和促谈。维护和平、反对战争。“在乌克兰问题上，中国不谋求地缘政治私利，没有隔岸观火心态，更不会做火上浇油的事情。”王毅补充说，“战争总会过去，如何痛定思痛，”中共“相信乌方有足够智慧自主作出符合本国人民根本利益的选择。”
 
-帖子原文：
+- 延*展阅读：*[*乌克兰农业部长奥尔加·特罗菲姆切娃：乌克兰是中国粮食安全的主要来源之一*](https://minagro.gov.ua/news/ukrayina-mozhe-stati-odnim-z-golovnih-dzherel-zabezpechennya-prodovolchoyi-bezpeki-knr-olga-trofimceva)*。*
 
-打完第三针全身过敏起红疹
 
-一天一夜了，上午去打了点滴，还有一针屁股针还吃了一颗氯雷他定，医生就是说过敏了，相对严重一些的过敏，到下午面部眼周围好脸颊的红疹逐渐减轻，下颌骨两侧和脖子还在长，超级痒，手上也长了，比白天长得大颗粒一些，明天继续打针，还没打第三针的姐妹也不要怕吧，毕竟奥密克戎更恐怖啊，打的时候可以先问医生了解一下，反正我是从来没有过敏过的，前面两针也没有任何反应，这次是完全没有预料到
+另据[乌克兰真理报消息](https://www.pravda.com.ua/news/2022/04/4/7337065/)，“乌克兰外长据[中共国新华社4日晚](http://www.news.cn/2022-04/04/c_1128532253.htm)间消息，中共外长“王毅应约同乌克兰外长库莱巴通电话。双方重点就乌克兰局势交换了意见。”这是库莱巴一个月前“[呼吁中国外长说服俄罗斯结束战争](https://espreso.tv/kuleba-zvernuvsya-do-ochilnika-mzs-kitayu-iz-prokhannyam-perekonati-rosiyu-pripiniti-viynu-ministr-poobitsyav-doklasti-vsikh-zusil)”后的最新电话会谈。
 
-#新冠疫苗 #过敏 #第三针过敏 #疫苗
+该消息称，王毅表达了中共国在乌克兰问题上的基本态度——劝和促谈。维护和平、反对战争。“在乌克兰问题上，中国不谋求地缘政治私利，没有隔岸观火心态，更不会做火上浇油的事情。”王毅补充说，“战争总会过去，如何痛定思痛，”中共“相信乌方有足够智慧自主作出符合本国人民根本利益的选择。”
 
-评论选集：
+- 延*展阅读：*[*乌克兰农业部长奥尔加·特罗菲姆切娃：乌克兰是中国粮食安全的主要来源之一*](https://minagro.gov.ua/news/ukrayina-mozhe-stati-odnim-z-golovnih-dzherel-zabezpechennya-prodovolchoyi-bezpeki-knr-olga-trofimceva)*。*
 
-[阿辉突袭](https://www.xiaohongshu.com/user/profile/5d4cae33000000001202d749) 回复：
 
-我也是现在痒得我想死
+另据[乌克兰真理报消息](https://www.pravda.com.ua/news/2022/04/4/7337065/)，“乌克兰外长德米特罗·库莱巴在与中国外长王毅交谈后指出，北京有兴趣结束乌克兰战争。”他在他的推特上宣布了这一点，并[写道](https://twitter.com/DmytroKuleba/status/1510940800510828550?s=20&amp;t=4H9g39csVhqNXmOEVWP6Ng)：“我感谢我的中国同行对平民伤亡的声援。**我们都坚信结束乌克兰战争符合和平、全球粮食安全和国际贸易的共同利益**”。
 
-[兔兔暖心窝](https://www.xiaohongshu.com/user/profile/5dccb73d0000000001003601) 回复：
+一位推特账号[@SoKiell](https://twitter.com/SoKiell/status/1510970073531437059?s=20&amp;t=EBWf7BK_7Yei3yJ8Hy6RnQ)先生质询外长库莱巴，“德米特罗先生，您对乌克兰与希特勒之间正在进行的“谈判”以及我们方面接受希特勒作为乌克兰安全保证人的意图有何立场？”显然，这位先生明白那个被称为复活了的希特勒就是习近平。
 
-挂完水好了吗？我打完第二天开始脸过敏有红块发烫，持续了三天，吃了氯雷他定就不烫了，但隔天晚上又开始发烫，崩溃
+- *延展阅读：*[*中国允许俄罗斯使用偷来的波音 757-200 (F) 飞机从中国进行定期运输货物*](https://www.pravda.com.ua/news/2022/04/3/7336878/)*。*
 
-纳兰桑 回复 :
 
-我已经持续两个月了，药没断过，五年没犯过了，那时候吃两顿药就好了，好惨我现在痒的受不了
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-441.png)图片来源：小红书
-参考链接:
+- *延展阅读：*[*俄乌战争-习近平终将红旗导弹部署在塞尔维亚等同参战*](https://gnews.org/2285115/)*。*
 
-[三针新冠疫苗后全身起红疹过敏](http://xhslink.com/ltgbAg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
 
-发布：tianzhihuan
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+对此事件进一步反应是，[库莱巴在电话中警告了王毅](https://www.eurointegration.com.ua/news/2022/04/4/7137192/)，如你所知，3月份有非官方“谣言”称中国向俄罗斯提供一些与乌克兰战争和制裁有关的军事援助。
+
+欧洲真理报说。并进一步表示，“美国和英国在与北京的会谈中提出了这个问题。” 特别是 3 月 18 日，美国总统乔·拜登在与中国领导人习近平近两个小时的电话交谈中所称，“如果北京在对乌克兰的战争中向俄罗斯提供物质支持将面临的后果。”
+
+2022年4月5日
+
+校对/发布：东京樱花团/捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)
+**更多资讯，更多关注**：
+
+[俄乌战争：中俄外长分别会见阿富汗塔利班并承认其政权。](https://gnews.org/zh-hans/2270646/)
+
+[NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
+
+[疫苗经济：辉瑞口服 Paxlovid 药首次高价进入中共国医保名录](https://gnews.org/zh-hans/2272625/)
+
+[普京的命根：俄罗斯没了SWIFT系统后石油交易将违约](https://gnews.org/zh-hans/2250301/)
+
+[新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
 
  
 
