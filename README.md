@@ -15,107 +15,107 @@
 
 ---
 
-### [币圈新闻动态：喜币24H成交量约为618680.810 HCN](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中国会形成联邦制 中共即将发起更凶险的战争（八）](/content/gnews/2/README.md)
- ` 雅典娜GNotes`
-
-### [中国会形成联邦制 中共即将发起更凶险的战争（七）](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [中国会形成联邦制 中共即将发起更凶险的战争（六）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [俄罗斯军队在切尔诺贝利遭受&#8221;急性辐射病](/content/gnews/6/README.md)
- ` GTV News Talk`
-
-### [文贵先生谈第三次世界大战的局势演绎及战后世界新格局 (2)](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
-
-### [上海疫情因疫苗灾难而继续恶化](/content/gnews/8/README.md)
+### [郭文贵先生两首新歌正式上线](/content/gnews/1/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [有声|日媒揭露上海封城后的食物短缺等问题](/content/gnews/9/README.md)
+### [币圈新闻动态：喜币24H成交量约为618680.810 HCN](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中国会形成联邦制 中共即将发起更凶险的战争（八）](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [中国会形成联邦制 中共即将发起更凶险的战争（七）](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [中国会形成联邦制 中共即将发起更凶险的战争（六）](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [有声|新中国联邦新闻、GTV新闻访谈简报|2022年4月3日晚](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋](/content/gnews/10/README.md)
+### [俄罗斯军队在切尔诺贝利遭受&#8221;急性辐射病](/content/gnews/7/README.md)
+ ` GTV News Talk`
+
+### [文贵先生谈第三次世界大战的局势演绎及战后世界新格局 (2)](/content/gnews/8/README.md)
+ ` 秘密翻译组-原创组`
+
+### [上海疫情因疫苗灾难而继续恶化](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [有声|日媒揭露上海封城后的食物短缺等问题](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [白宫：美国及其盟国将对俄罗斯实施新的制裁](/content/gnews/11/README.md)
+### [白宫：美国及其盟国将对俄罗斯实施新的制裁](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [20220403文贵大直播：马斯克改变人类科技但是怕共产党，疫苗灾难后生物科技大发展](/content/gnews/12/README.md)
+### [20220403文贵大直播：马斯克改变人类科技但是怕共产党，疫苗灾难后生物科技大发展](/content/gnews/13/README.md)
  ` Tokyo Sakura Video Group`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月4日晚](/content/gnews/13/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月4日晚](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/14/README.md)
+### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/15/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [乌克兰救援前线报道4.05.2022：战地版的真人真事 台湾小哥Naïve](/content/gnews/15/README.md)
+### [乌克兰救援前线报道4.05.2022：战地版的真人真事 台湾小哥Naïve](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [20220403文贵大直播：马斯克做媒体商业上会很成功 但做不到gettr有信仰的唯真不破](/content/gnews/16/README.md)
+### [20220403文贵大直播：马斯克做媒体商业上会很成功 但做不到gettr有信仰的唯真不破](/content/gnews/17/README.md)
  ` Tokyo Sakura Video Group`
 
-### [新州直升机坠毁两人丧生，今年第六起致命航空事故](/content/gnews/17/README.md)
+### [新州直升机坠毁两人丧生，今年第六起致命航空事故](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [短视频：福奇的末世性的声明失去了影响力](/content/gnews/18/README.md)
+### [短视频：福奇的末世性的声明失去了影响力](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [安大略省立法消减汽油燃料税](/content/gnews/19/README.md)
+### [安大略省立法消减汽油燃料税](/content/gnews/20/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [郭文贵先生2022年4月4日盖特视频（9分36秒）全文字版](/content/gnews/20/README.md)
+### [郭文贵先生2022年4月4日盖特视频（9分36秒）全文字版](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/21/README.md)
+### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [俄罗斯在布查市实施大屠杀 西方发誓要严惩](/content/gnews/22/README.md)
+### [俄罗斯在布查市实施大屠杀 西方发誓要严惩](/content/gnews/23/README.md)
  ` 蓝莲花农场`
 
-### [被乔治•奥威尔式的媒体包围，俄罗斯人民不知战争真相](/content/gnews/23/README.md)
+### [被乔治•奥威尔式的媒体包围，俄罗斯人民不知战争真相](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/24/README.md)
+### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/25/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [特鲁多政府治国方针日渐中共化](/content/gnews/25/README.md)
+### [特鲁多政府治国方针日渐中共化](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行](/content/gnews/26/README.md)
+### [2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220403郭文贵大直播 ：中共粮食危机和将对台湾毁灭性的打击](/content/gnews/27/README.md)
+### [20220403郭文贵大直播 ：中共粮食危机和将对台湾毁灭性的打击](/content/gnews/28/README.md)
  ` Tokyo Sakura Video Group`
 
-### [上海全面封城 民众怨声载道](/content/gnews/28/README.md)
+### [上海全面封城 民众怨声载道](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [GETTR3月份注册用户持续增加](/content/gnews/29/README.md)
+### [GETTR3月份注册用户持续增加](/content/gnews/30/README.md)
  ` GTV News Talk`
 
-### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/30/README.md)
+### [吓尿中共的灭共新歌，第一天iTunes总榜成绩](/content/gnews/31/README.md)
+ ` NFSC News`
+
+### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/32/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/31/README.md)
+### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰部队继续向基辅附近的俄罗斯部队作战](/content/gnews/32/README.md)
+### [乌克兰部队继续向基辅附近的俄罗斯部队作战](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共通过俄罗斯出口欧洲的计划遭遇重创](/content/gnews/33/README.md)
- ` NFSC News`
-
-### [教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/34/README.md)
- ` NFSC News`
 
 ### [【秘翻在线】又被蓝金黄了？英政府允许中资企业收购英国最大的芯片制造商](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`

@@ -2,31 +2,28 @@
 ---
 
 
-## 有声|日媒揭露上海封城后的食物短缺等问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2289822/)
+## 上海疫情因疫苗灾难而继续恶化
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289852/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-上海自3月下旬疫情爆发以来，实施了严格的封锁管控措施，同时官方媒体严格封锁消息，外界很难得知封控下上海居民的真实生活状况。4月1日，一家日本媒体连线了正在上海作为特别报道员的记者，并询问了目前上海的真实情况。
+采编：加拿大温哥华扬帆农场 – 文莱
 
-记者表示，上海名义上实施了东西交叉封锁，但因为每日新增病例居高不下，事实上已经开始全面封锁。人们无法出入小区，甚至医疗系统也出现了拒绝救治除感染外其他患者，造成患者死亡的事件。
+翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
 
-随后记者展示了前一天中共政府分配的食物。里面除了青菜、水以外没有看到肉制品。居民自己囤积的食物也快要见底，恐怕难以支撑接下来的生活。虽然上海开放了网上订菜的平台，但因为疫情，平台也一直显示“运力不足”，根本无法保证送达时间。
+据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “疫情零容忍”方针下，该国最大城市上海有近千万人在全面封锁下被隔离在家中。由于因此而造成的食物供应短缺和医疗服务中断，已导致民不聊生，怨声载道。
 
-文字版原文：[日媒揭露上海封城后的食物短缺等问题](https://gnews.org/zh-hans/2283315/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-433.png)图片来源：forbes
 
-音频处理：Fei797
-发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+尽管官方称上海日前仅有438个确诊病例，这对于2600万人口的城市来说感染比例并不大，但当局仍要求封锁并强制隔离所有疑似病例并进行大规模病毒检测。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共党媒报道则显示，习近平正通过采取残酷的隔离措施，以确保其政权的稳定和对内部政敌在上海势力的控制。文贵先生指出，国内最近疫情的恶化实际上是疫苗伤害所导致的结果，更严重的疫苗灾难即将开始。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237](https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

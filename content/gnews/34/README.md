@@ -2,27 +2,38 @@
 ---
 
 
-## 教皇含蓄地批评普京对乌克兰的入侵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287991/)
+## 乌克兰部队继续向基辅附近的俄罗斯部队作战
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2288003/)
 
-作者：银河系农场-骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月2日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，说这是一个大国正在为民族主义利益煽动战争冲突。
+***评论：**加油，顽强的乌克兰人，正义终将胜利。*
 
-普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前，方济各曾为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-4.jpg)
-郭文贵先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，还在暗中批评普京，说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力地出现了，毫无疑问普京是无理的侵略，并强烈谴责了其战争暴行。
+据《路透社》 作者：Ann Maria Shibu，2022年4月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-416-e1649095637726.png)2022年4月1日，基辅郊外的伊尔平镇，俄罗斯对乌克兰的入侵仍在继续，乌克兰军人站在一座被摧毁的桥梁旁。REUTERS/Gleb Garanich
+4月2日（路透社）–英国军事情报周六表示，乌克兰部队继续在基辅附近对撤退的俄罗斯部队进行作战。
 
-方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
+英国国防部在一份定期公报中说，据报道，俄罗斯部队也已从首都附近的霍斯托梅尔机场撤出，该机场自冲突第一天起就一直在发生战斗。
 
-参考链接：[Pope implicitly criticises Putin on invasion, considers Kyiv trip](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+英国国防部补充说：“在乌克兰东部，乌克兰部队在经过激烈的战斗后，已经确保了哈尔科夫东部的一条关键路线。”
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+文章观点仅代表作者个人，与Gnews平台无关。
 
-总编/编辑/审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+文章来源: [https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/](https://www.reuters.com/world/europe/ukraine-continue-advance-against-russian-forces-near-kyiv-uk-says-2022-04-02/)
+
+翻译：洛杉矶盘古农场 – Mike Li
+
+校对：洛杉矶盘古农场 – 轰炸机
+
+评论：洛杉矶盘古农场 – 轰炸机
+
+编辑：洛杉矶盘古农场 – 傻小子
+
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
