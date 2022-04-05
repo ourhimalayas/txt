@@ -2,22 +2,20 @@
 ---
 
 
-## 新冠疫苗推出后去年全球死亡人数猛增
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293631/)
+## 文贵大直播|谈PAG背后的盗国贼团伙
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2293307/)
 
-采编： 坐看云起时             编译： 晨熹
+撰稿：东京樱花团/菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06_001314.png)
+王岐山作为隐藏在幕后的大魔头，用心险恶，布局之深令人后怕，从PAG这一点上可见一斑。他在全世界拉帮结派，壮大势力，呼风唤雨，为所欲为，其马仔单伟建级别之下的有吴征、华斌（杀害王健之人），更低级别的有韦石、要饭党、假民运、政庇律师。如果文贵先生不提单伟建，我们根本不知道全世界的钱都被他们骗走，他们既骗中国人，也骗美国人，翻手为云，覆手为雨，两边骗。这群人的相互吸引和交集乃是因利而聚，利尽则散。他们一定会被抓，消灭他们是正义的必须，等待他们的一定是法律的制裁。
 
-据自媒体【网关专家】4月1日报道，在过去几个月里，全球出现前所未有的超高死亡率，而这一切表面看似乎与新冠病毒无关，事实上这一峰值几乎与实验性新冠疫苗的推出完全吻合。
+消息来源：
+[2022年4月1日《文贵大直播》](https://www.gettr.com/streaming/p1307228ccd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-17.png)图片来源：Gateway Pundit
+编辑：东京樱花团/曲别针
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
 
-美国所有年龄组的死亡人数都在飙升，尤其是25至44岁的年轻人。这一群体死亡人数创纪录的增长了84%。 CDC的最新数据显示这种趋势不仅仅是在美国。世界各国，特别是西方国家，都在经历超高的死亡率。
-
-去年8至9月间，加拿大0至44岁死亡人数激增了24%，这与特鲁多在8月强制要求为工人接种疫苗的时间完全吻合。这种“令人不安”的趋势正在持续，甚至会变得更糟。这场大流行病疫苗接种从来无关拯救生命，正好相反，是想夺走生命。
-
-新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
-
-编辑/上传：文所未闻
 
  
 

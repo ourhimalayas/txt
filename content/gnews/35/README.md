@@ -2,36 +2,37 @@
 ---
 
 
-## 20余国敦促中共勿将孩童与染疫父母分开
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293641/)
+## 日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293419/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-00.06.04-1.png)
-近日中共上海中共病毒肆虐，政府的一些抗疫做法如强行将6岁以下孩童与父母分开隔离，此举引发了国际社会的广泛愤怒。社交媒体广泛流传的一则视频中显示被隔离的孩童没有任何成年人照顾，孩童持续大哭，有些是尚在襁褓之中的婴儿，孩童无人照顾，随时有窒息和其他危险。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+围绕乌克兰局势，政府从5日起禁止出口价格较高的日本车等高价产品，继续对俄罗斯实行制裁措施。
+视频来源：NHK新闻
+目的之一是对被拉近普京总统身边被称为“商业寡头”的富豪加大施压。 从5日开始，新增加的禁止向俄罗斯出口的对象是：
+►超过600万日元的轿车；
+►超过60万日元的摩托车；
+►超过20万日元的三角钢琴；
+超过四万日元的有
+►天然珍珠等珠宝首饰；
+►高级威士忌之类的酒类；
+►含有贵金属的手表等共19个品种。
 
-近20多个国家的外交官写信给中共外交部，要求中共停止此举。法国驻上海领事馆的一封信中说，无论任何情况都请不要把父母和孩子分开。目前领事馆表示，正在代表德国、意大利、瑞士和挪威在内的23个其他欧洲国家写信，信中要求允许中共病毒密接人群在家中自我隔离，而不是被送往中共隔离集中营，并应定期喂养被隔离主人的宠物。英国大使馆致函中共外交部表达了对此的担忧，该信件的共同签署人包括欧盟、澳大利亚和新西兰等30多个国家。外交官称目前在上海和其他被封锁城市的线上医疗援助请求激增，但这无法实现。
+停止这些高额产品的出口，目的之一是对被拉近普京总统的“商业寡头”富豪们的加强施压。
 
-reference：
+日本政府到现在为止，作为对俄罗斯的制裁，可能被用于军事的商品和一般的半导体等合计约300种商品为人道主义目的的情况除外原则禁止出口，这次是追加的措施。
 
+在俄罗斯对乌克兰的军事入侵中，我们发现俄罗斯军队撤离的首都基乌附近有大量公民死亡。
 
+岸田总理大臣4日在总理大臣官邸对记者团表示，“严厉批评危害平民这一违反国际法的行为”，并表示“希望看到关于进一步制裁的整体状况，与国际社会密切合作，做好我国应该做的事”。
 
-
-> [Twenty-four countries urge China not to separate children from parents via COVID](https://securykid.com/twenty-four-countries-urge-china-not-to-separate-children-from-parents-via-covid/)
-
-
-撰稿、发布：骄子
+参考链接：[対ロシア追加制裁 きょうから高額の日本車や時計など輸出禁止 | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220405/k10013567541000.html)
 
 * * *
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+审核：Bryan
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

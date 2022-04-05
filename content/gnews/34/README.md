@@ -2,32 +2,23 @@
 ---
 
 
-## 英美呼吁暂停俄罗斯人权理事国地位
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293679/)
+## 新冠疫苗推出后去年全球死亡人数猛增
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293631/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/US-UN-Human-Rights-GettyImages-1152045840.jpg)
-当地时间4月4日周一，美国驻联合国大使琳达·托马斯·格林菲尔德表示，因俄罗斯对乌克兰的入侵，俄参加联合国人权理事国简直是一场闹剧，目前美国正在推动将俄罗斯从人权理事国成员地位驱逐。据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经对人权和生命造成了巨大损失。目前需要联合国大会193个成员国三分之二的支持才能将俄罗斯剔出该组织。自2月24日俄入侵以来，已经有140票通过了两项谴责俄罗斯的决议。
+采编： 坐看云起时             编译： 晨熹
 
-在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事国的成员，应该被剔除。
+据自媒体【网关专家】4月1日报道，在过去几个月里，全球出现前所未有的超高死亡率，而这一切表面看似乎与新冠病毒无关，事实上这一峰值几乎与实验性新冠疫苗的推出完全吻合。
 
-reference：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-17.png)图片来源：Gateway Pundit
 
-[https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html](https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html)
+美国所有年龄组的死亡人数都在飙升，尤其是25至44岁的年轻人。这一群体死亡人数创纪录的增长了84%。 CDC的最新数据显示这种趋势不仅仅是在美国。世界各国，特别是西方国家，都在经历超高的死亡率。
 
-撰稿、发布：骄子
+去年8至9月间，加拿大0至44岁死亡人数激增了24%，这与特鲁多在8月强制要求为工人接种疫苗的时间完全吻合。这种“令人不安”的趋势正在持续，甚至会变得更糟。这场大流行病疫苗接种从来无关拯救生命，正好相反，是想夺走生命。
 
-* * *
+新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
 
-欢迎订阅我们的GNews账号：
+编辑/上传：文所未闻
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,16 @@
 ---
 
 
-## 4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2294312/)
+## 五月花简报（04/05/2022）
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2294592/)
 
-秘密翻译组-北美组
+编辑：波士顿五月花—冲天一怒
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1AAD804E-9B3B-4FB2-8B1E-BE73A2B63C81.jpeg)
+
+*发布：思澈*
+
+
 
  
 

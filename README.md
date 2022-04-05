@@ -15,41 +15,41 @@
 
 ---
 
-### [视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」](/content/gnews/1/README.md)
+### [七哥金句：人类先知也没有100%准确的](/content/gnews/1/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：共产党媒体黑七哥](/content/gnews/2/README.md)
+ ` 雅典娜GNotes`
+
+### [视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外](/content/gnews/2/README.md)
+### [美俄中在巴基斯坦动荡中的微妙关系](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [“魔都”已成魔](/content/gnews/3/README.md)
+### [“魔都”已成魔](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [强国奇闻(14)](/content/gnews/4/README.md)
+### [强国奇闻(14)](/content/gnews/7/README.md)
  ` 纽约香草山MOS03`
 
-### [郭文贵先生眼中俄乌战争的最大输家和赢家](/content/gnews/5/README.md)
+### [郭文贵先生眼中俄乌战争的最大输家和赢家](/content/gnews/8/README.md)
  ` 纽约香草山MOS02`
 
-### [灭共者之郭氏情报站（46）2022/04/03 文贵大直播](/content/gnews/6/README.md)
- ` MOS Designer香草山设计部`
-
-### [五月花简报（04/05/2022）](/content/gnews/7/README.md)
+### [五月花简报（04/05/2022）](/content/gnews/9/README.md)
  ` mayflowertranslate`
 
-### [我来自香港](/content/gnews/8/README.md)
- ` 纽约香草山MOS03`
-
-### [4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去](/content/gnews/9/README.md)
+### [4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生](/content/gnews/10/README.md)
+### [乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [英国外相利兹·特拉斯表示，“普京不败阵我们决不罢休”](/content/gnews/11/README.md)
+### [英国外相利兹·特拉斯表示，“普京不败阵我们决不罢休”](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [文贵先生盖特精要2022/04/05](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
@@ -78,59 +78,59 @@
 ### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊隆-马斯克成为推特最大股东，利好全球灭共局势](/content/gnews/22/README.md)
- ` NFSC News`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/23/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/24/README.md)
+### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/23/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/25/README.md)
+### [立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/24/README.md)
  ` NFSC News`
 
-### [联合国难民署称乌克兰难民已突破420万](/content/gnews/26/README.md)
+### [联合国难民署称乌克兰难民已突破420万](/content/gnews/25/README.md)
  ` NFSC News`
 
-### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/27/README.md)
+### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/26/README.md)
  ` NFSC News`
 
-### [死灰复燃的“枫桥经验”](/content/gnews/28/README.md)
+### [死灰复燃的“枫桥经验”](/content/gnews/27/README.md)
  ` NFSC News`
 
-### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/29/README.md)
+### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/30/README.md)
+### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/31/README.md)
+### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/32/README.md)
+### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
-
-### [英美呼吁暂停俄罗斯人权理事国地位](/content/gnews/34/README.md)
+### [英美呼吁暂停俄罗斯人权理事国地位](/content/gnews/32/README.md)
  ` 银河歌舞厅`
 
-### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/35/README.md)
+### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/33/README.md)
  ` 银河歌舞厅`
 
-### [新冠疫苗推出后去年全球死亡人数猛增](/content/gnews/36/README.md)
+### [新冠疫苗推出后去年全球死亡人数猛增](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/37/README.md)
+### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播|谈PAG背后的盗国贼团伙](/content/gnews/38/README.md)
+### [文贵大直播|谈PAG背后的盗国贼团伙](/content/gnews/36/README.md)
  ` KarmaLabs`
 
-### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/39/README.md)
+### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/37/README.md)
  ` 秘密翻译组金融团队`
+
+### [文贵大直播|风雨之中战友对职业特务单伟建的精彩解读(下）](/content/gnews/38/README.md)
+ ` KarmaLabs`
+
+### [文贵大直播|风雨之中战友对职业特务单伟建的精彩解读(上）](/content/gnews/39/README.md)
+ ` KarmaLabs`
 
 ### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
