@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 3:14 AM (UTC)`
+
+The Story of the New China】A Japanese volunteer came to the tent sponsored by the New Federal State of China & Rule of law Foundation and sent flowers, saying that it was the first time he had seen Chinese people like us.<br/>【新中国联邦人的故事】一位日本志愿者来到新中国联邦和法治基金赞助设立的帐篷内，特意送来鲜花，他说这是他第一次见到像我们这样的中国人
+![img](https://media.gettr.com/group7/origin/2022/04/05/03/cb135848-b10e-8381-a5e7-24b2fa55d17a/out.jpg)
+
+---
+
+`@miles 4/5/2022 3:12 AM (UTC)`
+
+A volunteer from Israel said it’s very symbolic to celebrate the Passover at the New Federal State of China (NFSC) rescue camp (base), and the rescue camp is a liberation camp for those who escape from slavery and from Utopian states. Nicole said that the NFSC will liberate 1.4 billion people from the slavery of the Chinese Communist Party (CCP).<br/><br/>来自以色列的犹太人志愿者说在新中国联邦的救援营地庆祝逾越节(犹太人节日)是非常有象征意义的，救援营地是一个解放营地，对于那些逃离奴隶制和乌托邦的自由人来说。妮可说新中国联邦将把14亿中国人从中共奴役中解放。 <br/>#ukrainerescue #nfscrescue #nfsc新中国联邦 #法治基金乌克兰救援
+![img](https://media.gettr.com/group16/origin/2022/04/05/03/54a2d95f-eb2d-9f56-e7e7-21f9b71084d7/out.jpg)
+
+---
+
 `@miles 4/5/2022 2:58 AM (UTC)`
 
 2022-4-4《鸡血王喜币大作战》 第一百五十五集 嘉宾：Nick、青藤
@@ -140,19 +154,6 @@ MILES GUO 直播 2022-04-04
 `@miles 4/4/2022 3:49 PM (UTC)`
 
 On April 4, Australian media reports that Zheng Jiefu has been expelled from the country due to alleged espionage activities and harming national security. These allegations are part of an investigation by the Australian Security Intelligence Service (ASIO) .<br/><br/>In 2015,  he falsely claimed that his company had been misappropriated by Mr. Miles Guo.<br/><br/>After 2017 VOA "broadcast cutoff," Zheng gave yet another "interview" to the media, claiming that 99% of Mr. Guo's revelations were misinformed and untrue.<br/><br/>Zheng had repeatedly cooperated with pseudo-democracy activists Boxun Media to discredit and smear Mr. Guo. <br/><br/>https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html<br/><br/>
-
----
-
-`@miles 4/4/2022 3:17 PM (UTC)`
-
-4月4号 澳媒报道郑介甫被澳大利亚安全情报局(ASIO)指控在澳展开间谍活动，危害国家安全，近日已被驱逐出境。<br/><br/>早在2015年郑介甫就出现在澳洲媒体上对郭文贵先生进行抹黑报道。郑介甫向媒体诬称，他价值超过20亿澳元的房地产公司被郭文贵先生与安全部副部长马建联手侵占。<br/><br/>2017年4·19美国之音“断播门”发生后的第二天，郑介甫又接受了媒体的“采访”，诬称郭先生的爆料“都是垃圾，他说的话有百分之九十九是不真实的。”<br/><br/>2017年郑介甫曾多次与伪民运西诺，韦石的博讯媒体合作报道，抹黑造谣郭先生。<br/><br/>中共走狗郑介甫被澳洲政府驱逐，证明西方世界已经觉醒，联合灭共已经开始！<br/><br/>https://gnews.org/zh-hans/2286058/<br/><br/>https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html
-
----
-
-`@miles 4/4/2022 2:34 PM (UTC)`
-
- 4月4号：尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！
-![img](https://media.gettr.com/group21/getter/2022/04/04/14/7462d89c-3d27-773e-1183-4f9ad06c06db/out.jpg)
 
 ---
 
