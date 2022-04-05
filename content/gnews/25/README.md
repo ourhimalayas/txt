@@ -2,44 +2,48 @@
 ---
 
 
-## 美国停止俄罗斯支付债券以增加对莫斯科的压力
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2291637/)
+## 是否从新疆购买医疗用品？英国议会的斗争仍在继续
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2291693/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ACX3G62RC5HSLEOVLR2BB2AXNU.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
 
 
-资料来源：路透社
 
-周一，美国阻止俄罗斯政府从美国银行持有的储备中向其主权债务持有人支付超过 6 亿美元的款项，此举意在加大对莫斯科的压力并削弱其持有的美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-60-edited.png)与种族灭绝作斗争：伊恩·邓肯·史密斯爵士（Sir Iain Duncan Smith）
 
-根据俄罗斯 2 月 24 日入侵乌克兰后实施的制裁，俄罗斯央行在美国金融机构持有的外汇储备被冻结。
+国会议员已承诺继续战斗，上周英国下议院发起了新一轮的政治乒乓球运动。
 
-但财政部一直允许俄罗斯政府根据具体情况使用这些资金支付以美元计价的主权债务的息票。
+最近，上议院的胜利投票禁止从世界上有“严重种族灭绝风险”的地区采购医疗设备。之后，本周英国政府部长在下议院面临尴尬的失败，重复他们一贯的口号，即种族灭绝罪只能由“主管法院”做出，而不是审查与强迫劳动和现代奴隶制有关的英国国家医疗服务系统(NHS) 供应链。
 
-据美国财政部发言人称，周一，随着最大一笔款项到期，包括到期债券的 5.524 亿美元本金支付，美国政府决定切断莫斯科获得冻结资金的渠道。
+对健康法案进行“种族灭绝”修正案的活动人士对 NHS 的记录感到震惊，因为他们是政府部门，拥有“受维吾尔奴隶制污染的最肮脏的供应链”。他们列举了在大流行期间，为采购来自新疆的强迫劳动制造的个人防护装备投入北京金库的数百万英镑，并希望英国可能成为欧洲采购标准的灯塔。
 
-2042 年主权美元债券的 8400 万美元息票支付也将于周一到期。
+在欢迎政府在其反修正案中从 NHS 供应链中“根除现代奴隶制”的承诺的同时，停止种族灭绝运动的成员批评了审查的提议“远远不够”。“我们迫切需要萨吉德·贾维德（Sajid Javid）和普里蒂·帕特尔（Priti Patel）采取有意义的行动，以确保维吾尔奴工制造的产品不再进入我们的健保系统，”他们在辩论后说。
 
-这位发言人说，此举意在迫使莫斯科做出艰难的决定，即是否将其能够获得的美元用于偿还债务或用于其他目的，包括支持其战争努力。
+伊恩·邓肯·史密斯爵士（Sir Iain Duncan Smith）反对当前中共政权对中国西北新疆地区维吾尔人的种族灭绝意图，他急切地希望看到 NHS 与这些暴行共谋的结束。“这很紧急，”他警告说。“现在 NHS 正在使用新疆生产的产品，”引用了最近在伦敦国王学院医院使用的维吾尔人强迫劳动制造的口罩的调查结果。
 
-如果俄罗斯选择不这样做，它将面临历史性的违约。
+他强调，对英国病人的照顾责任，不应与海外现代奴隶制受害者的责任分离开来，他们受到残酷对待，被殴打并失去生命。“我们不应在这些群体之间做出选择。”
 
-这位发言人说：“俄罗斯必须在耗尽剩余的宝贵美元储备或新收入或违约之间做出选择。”
+在其他 19 名议员的支持下，伊恩爵士提出了他自己的修正案，其中包括对种族灭绝的提及。他强调说：“新疆发生种族灭绝令人憎恶，我们应该对此采取更多行动。”但至少，他说，**如果政府不承认种族灭绝，那么奴隶制问题就很明确了**。“你要么支持，要么不支持。”伊恩爵士说，延误会造成人命损失。“现在正是时候，让我们继续吧。”
 
-一位知情人士称，迄今为止一直作为代理银行处理付款的摩根大通公司（JPM.N）被财政部阻止。
+在返回上议院插入新修正案后，此事将在复活节后提交下议院进行投票。
 
-代理银行处理来自俄罗斯的息票支付，将其发送给支付代理以分发给海外债券持有人。
+新闻来源：[uk genocide health purchases from xinjiang](https://bitterwinter.org/uk-genocide-health-purchases-from-xinjiang/)
 
-消息人士称，该国有 30 天的宽限期来支付款项。
+* * *
 
-🔗 [https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/](https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/)
+审核：文乐
+校对：花羽
+发布：五通庙
 
-责任编辑、发布： Shuizhuyu
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
 
  
 
