@@ -2,36 +2,32 @@
 ---
 
 
-## 20余国敦促中共勿将孩童与染疫父母分开
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293641/)
+## 有声|中共国32家企业未公布年报在港交所停牌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293877/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-00.06.04-1.png)
-近日中共上海中共病毒肆虐，政府的一些抗疫做法如强行将6岁以下孩童与父母分开隔离，此举引发了国际社会的广泛愤怒。社交媒体广泛流传的一则视频中显示被隔离的孩童没有任何成年人照顾，孩童持续大哭，有些是尚在襁褓之中的婴儿，孩童无人照顾，随时有窒息和其他危险。
+录音：香草山文艺部 – maggie 喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+大纪元4月4日报道，中共国有32家上市公司在港交所发布停牌公告。其中房地产及关联公司数量最多，有13家，另外还有消费、工业、医疗保健等多个行业公司。
 
-近20多个国家的外交官写信给中共外交部，要求中共停止此举。法国驻上海领事馆的一封信中说，无论任何情况都请不要把父母和孩子分开。目前领事馆表示，正在代表德国、意大利、瑞士和挪威在内的23个其他欧洲国家写信，信中要求允许中共病毒密接人群在家中自我隔离，而不是被送往中共隔离集中营，并应定期喂养被隔离主人的宠物。英国大使馆致函中共外交部表达了对此的担忧，该信件的共同签署人包括欧盟、澳大利亚和新西兰等30多个国家。外交官称目前在上海和其他被封锁城市的线上医疗援助请求激增，但这无法实现。
+据了解，在13家未披露年报的房地产及关联公司中，合富辉煌是因为重大交易事项有待披露而延迟发布年报而停牌，其它停牌的房企则都因为2021年度业绩延期发布，包括花样年控股、中国奥园、奥园健康、佳兆业集团、融创中国、世茂集团、恒大汽车、南海控股、彩生活、阳光100中国、荣万家、当代置业、天山发展控股。
 
-reference：
+原文链接：[中共国32家企业未公布年报在港交所停牌](https://gnews.org/zh-hans/2286574/)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+音频处理/发稿：Daxia
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
 
 
 
-> [Twenty-four countries urge China not to separate children from parents via COVID](https://securykid.com/twenty-four-countries-urge-china-not-to-separate-children-from-parents-via-covid/)
 
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

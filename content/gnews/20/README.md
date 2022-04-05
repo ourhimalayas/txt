@@ -2,32 +2,28 @@
 ---
 
 
-## 英美呼吁暂停俄罗斯人权理事国地位
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293679/)
+## 有声|俄军士兵用乌军子弹自残逃避战争
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293885/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/US-UN-Human-Rights-GettyImages-1152045840.jpg)
-当地时间4月4日周一，美国驻联合国大使琳达·托马斯·格林菲尔德表示，因俄罗斯对乌克兰的入侵，俄参加联合国人权理事国简直是一场闹剧，目前美国正在推动将俄罗斯从人权理事国成员地位驱逐。据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经对人权和生命造成了巨大损失。目前需要联合国大会193个成员国三分之二的支持才能将俄罗斯剔出该组织。自2月24日俄入侵以来，已经有140票通过了两项谴责俄罗斯的决议。
+录音：香草山文艺部 – maggie 喵
+![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
+台媒4月3日报道，近日乌克兰安全局公布了一段某俄军士兵与其母亲通话的内容，通话透露出，他们被乌军围困，打算逃跑又怕被军队高层的督战队枪毙，因此厌战的士兵们纷纷用乌克兰制式的子弹自残，假装遭到乌军攻击，借此被送回俄罗斯治疗。
 
-在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事国的成员，应该被剔除。
+该士兵在通话中说，他们不仅被乌军围困，而且装备都被炸毁，如果此时乌军攻击他们就会全军覆灭，因此他们纷纷用自残的方法弄伤自己，以期能被送回国内医院。该士兵的母亲闻讯哀求士兵快点回家，并表示要去俄罗斯国防部求救。但士兵说指挥官不可能同意，并透露目前已有20名拒绝服役者被判刑8年以上。
 
-reference：
+原文链接：[俄军士兵用乌军子弹自残逃避战争](https://gnews.org/zh-hans/2287990/)
 
-[https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html](https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html)
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-撰稿、发布：骄子
+音频处理/发稿：Daxia
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

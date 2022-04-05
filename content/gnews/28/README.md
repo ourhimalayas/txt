@@ -2,37 +2,32 @@
 ---
 
 
-## 日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293419/)
+## 英美呼吁暂停俄罗斯人权理事国地位
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293679/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
-围绕乌克兰局势，政府从5日起禁止出口价格较高的日本车等高价产品，继续对俄罗斯实行制裁措施。
-视频来源：NHK新闻
-目的之一是对被拉近普京总统身边被称为“商业寡头”的富豪加大施压。 从5日开始，新增加的禁止向俄罗斯出口的对象是：
-►超过600万日元的轿车；
-►超过60万日元的摩托车；
-►超过20万日元的三角钢琴；
-超过四万日元的有
-►天然珍珠等珠宝首饰；
-►高级威士忌之类的酒类；
-►含有贵金属的手表等共19个品种。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/US-UN-Human-Rights-GettyImages-1152045840.jpg)
+当地时间4月4日周一，美国驻联合国大使琳达·托马斯·格林菲尔德表示，因俄罗斯对乌克兰的入侵，俄参加联合国人权理事国简直是一场闹剧，目前美国正在推动将俄罗斯从人权理事国成员地位驱逐。据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经对人权和生命造成了巨大损失。目前需要联合国大会193个成员国三分之二的支持才能将俄罗斯剔出该组织。自2月24日俄入侵以来，已经有140票通过了两项谴责俄罗斯的决议。
 
-停止这些高额产品的出口，目的之一是对被拉近普京总统的“商业寡头”富豪们的加强施压。
+在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事国的成员，应该被剔除。
 
-日本政府到现在为止，作为对俄罗斯的制裁，可能被用于军事的商品和一般的半导体等合计约300种商品为人道主义目的的情况除外原则禁止出口，这次是追加的措施。
+reference：
 
-在俄罗斯对乌克兰的军事入侵中，我们发现俄罗斯军队撤离的首都基乌附近有大量公民死亡。
+[https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html](https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html)
 
-岸田总理大臣4日在总理大臣官邸对记者团表示，“严厉批评危害平民这一违反国际法的行为”，并表示“希望看到关于进一步制裁的整体状况，与国际社会密切合作，做好我国应该做的事”。
-
-参考链接：[対ロシア追加制裁 きょうから高額の日本車や時計など輸出禁止 | NHK | ウクライナ情勢](https://www3.nhk.or.jp/news/html/20220405/k10013567541000.html)
+撰稿、发布：骄子
 
 * * *
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

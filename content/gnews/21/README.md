@@ -2,39 +2,28 @@
 ---
 
 
-## 【G时新闻】拜登政府启动新的网络安全机构 针对来自中共和俄罗斯国家机构的网络威胁
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2293654/)
+## 有声|4月3日俄乌交战最新进展
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293881/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是拜登政府启动新的网络安全机构！
+录音：香草山文艺部 – maggie 喵
 
-4月4日，美国国务院宣布新成立的网络空间和数字政策局正式启动。该机构将用来应对新出现的网络安全问题。
+一、在基辅西线，4月2日，虽然从基辅撤退时，俄军遗弃了大量的军事装备，但他们还是成功地撤回了相当一部分兵力。
 
-美国国务院（U.S. State Department）表示，新成立的网络空间和数字政策局（Bureau of Cyberspace and Digital Policy，简称CDP）将寻求“应对国家安全挑战、经济机遇，以及在网络空间、数字技术和数字政策领域对美国价值观的影响”。
+乌克兰总参谋部在当地时间4月1日午夜报告说，俄第5、第29和第35集团军以及第155海军陆战旅所部，已经从基辅西北战场撤回到白俄罗斯，第35集团军的第39摩步旅和第36集团军的第5坦克旅负责掩护撤退行动。
 
-据悉，新成立的这个CDP分为三个政策单位，每个单位都有自己的主管。实际上，这个机构就是2018年特朗普政府为了精简国家安全委员会（National Security Council，简称NSC），将网络事务协调员办公室与另一个部门合并的前身。为了精简管理、提高效率，减少官僚主义而做的革新机构。
+原文链接：[4月3日俄乌交战最新进展](https://gnews.org/zh-hans/2286637/)
 
-新成立的网络空间和数字政策局在其网站上宣布，它将“鼓励网络空间中负责任的国家行为，推进保护互联网基础设施的完整性和安全性的政策，服务于美国的利益，提高竞争力，并维护民主价值观”。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-同时，它将“反对在网络空间采取压制性和威权主义的做法，尤其是来自中共和俄罗斯国家机构的网络威胁。新成立的网络空间和数字政策局将对拜登政府的国家安全战略带来帮助。而该战略预计将延续特朗普时代的战略，即把中共视为最紧迫的国家安全威胁。
+音频处理/发稿：Daxia
 
-此外，有专家警告说，中共和俄罗斯的互联网架构，正在与世界其它地区脱钩。它会有效地削弱全球互联网走向自由和开放，并将全球的大部分区域打造成分隔和受控制的区域。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-盖特链接：[https://gettr.com/post/p13nauif01c](https://gettr.com/post/p13nauif01c)
-
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
-
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

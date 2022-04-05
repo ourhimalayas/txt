@@ -2,24 +2,33 @@
 ---
 
 
-## 2022年4月5日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293890/)
+## 假借疫情，大批武装部队进驻上海维稳
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2294035/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+作者：纽约香草山教育部 Naughty(文行)， 日本东京方舟农场 Miyali7768(文玉）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0855.jpg)
+据外媒消息，4月3日至4日，中共当局派遣数千名拥有解放军身份的人员，前往上海，协助医护人员对上海辖区内2600万居民进行”中共病毒“检测。
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10.jpeg)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据报道，江苏、浙江和北京等多个省份也都向上海派遣医护人员，总计超过一万人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+自上周开始，上海市采取两阶段封锁措施。居民被迫在家中隔离，每日进行抗原自测。另据上海市民透露，大批武装警察已抵达上海，以参与“维稳“，防控社会事件为旗号，在社区门口持枪封控。上海浦西一名学者表示，他所居住的社区门口就有武警岗哨，防止居民翻墙或随意外出；一个小区门口派驻一个持枪特警，怕上海出事，现在就像一个破灯笼，顾此失彼。
+
+中共国家卫生健康委员会官网4日通报，上海地区的新增病例仍然居高不下，应继续进行所谓“动态清零“的抗疫策略。然而，“动态清零”的疫情管控已暴露出诸多人道主义弊端，民众普遍质疑这些政策，谴责将儿童与父母分离的非人道隔离措施。
+
+郭文贵先生在4月3日的大直播中，揭露了中共墙内这次爆发的疫情，本质是疫苗副作用的集中爆发。中共借此机会，为数月后广泛爆发的疫苗灾难进行实时管控演练。
+
+参考链接：
+1. [Shanghai to extend lockdown of 26 million people as it reviews COVID test results](https://www.reuters.com/world/china/china-sends-military-doctors-shanghai-test-26-mln-residents-covid-2022-04-04/)
+2. [中國疫情加劇維穩！不只解放軍 大批武警進駐上海](https://news.ltn.com.tw/news/world/breakingnews/3882544)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编/编辑/审核：Zion文恩
+校正/发稿：谐趣园
+
+
 
  
 
