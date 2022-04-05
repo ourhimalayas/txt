@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 11:37 PM (UTC)`
+
+4/05/2022 Miles Guo’s GETTR: Citizens of the New Federal State of China should be grateful for and cherish what we have. The New Federal State of China has had a huge impact in the world, and many countries are considering working with us. When the CCP attacks Taiwan, when food shortages and floods happen in Communist China, and when those inside the CCP are trying to assassinate the top cadres, multiple countries will acknowledge that the New Federal State of China is the legitimate representative of the Chinese.<br/><br/>4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作；当中共打台湾、粮灾水灾爆发和内部斩首的时候，多国将承认新中国联邦为中国人的合法代表<br/>
+![img](https://media.gettr.com/group41/getter/2022/04/05/23/143b4336-1480-6ba2-14f9-aabf4d94867c/out.jpg)
+
+---
+
+`@miles 4/5/2022 11:31 PM (UTC)`
+
+4/05/2022 Miles Guo’s GETTR: According to a fellow fighter inside the CCP, the CCP is ready for the death of 50 million to 100 million people from starvation this year. The CCP believes that there will be flood disasters this year that will be more devastating than last year. There will be food shortages in Communist China, Asia, Europe, and North America, followed by employment and energy issues. However, all of these are no match for the COVID vaccine disasters. It’s the adverse effects of the COVID vaccines that caused our fellow fighters to test positive for the virus.<br/><br/>4/05/2022 文贵盖特：中共内部的战友说，共产党已准备好今年饿死5000万到一亿人；中共判断今年中共国各地会发生比去年更大的水灾，中共国、亚洲、欧洲和北美都将出现粮食问题，随之而来的是就业和能源问题，但这些都跟疫苗灾难没得比；疫苗副作用导致战友自检病毒呈阳性<br/>
+![img](https://media.gettr.com/group33/getter/2022/04/05/23/944671e2-9a96-9848-1919-98c8795e799c/out.jpg)
+
+---
+
 `@miles 4/5/2022 11:22 PM (UTC)`
 
 04/05/2022 on the 2nd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on Australia 🇦🇺 Top Song Charts<br/>#1 🥇 on 19 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月5号, 郭文贵先生两首新歌上线第二天<br/>《灭共的雪》登榜iTunes<br/>澳大利亚🇦🇺热门歌曲榜首🥇<br/>19国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿热门歌曲榜首🥇<br/>新西兰🇳🇿流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2293435/
@@ -139,20 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 4/4/2022 Miles Guo: Zheng Jiefu was deported, the son of Qu Long committed suicide, Dong Xiansheng was arrested. These incidents all forebode the ending of the CCP’s overseas pawns who have been defaming the Whistleblowers’ Movement. They will either be deported back to China, or spend the rest of their lives in the US jails.<br/><br/>4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生！<br/>
 ![img](https://media.gettr.com/group17/getter/2022/04/05/09/c13f0ec2-77ee-1a97-5abb-ffdec9757284/out.jpg)
-
----
-
-`@miles 4/5/2022 8:58 AM (UTC)`
-
-4/3/2022 Miles Guo: Artemisinin has saved countless lives. It not only has cured countless cancer patients, but also is very effective in treating the adverse effects of the COVID vaccine. Post-operative people should be careful and follow medical advice when taking artemisinin. Many Hong Kong bigwigs regret after getting the COVID jabs and are now taking artemisinin and ivermectin. They fear that they will die and hope the Himalaya Coin will not depreciate.<br/><br/>4/3/2022 文贵直播：青蒿素救人无数，不仅治好了无数癌症患者，而且还对治疗疫苗副作用很有效；术后人士吃青蒿素要小心并遵医嘱；很多香港大佬打了疫苗很后悔，都在吃青蒿素和伊维菌素，他们怕死而且希望喜币不跌<br/>
-![img](https://media.gettr.com/group27/getter/2022/04/05/06/345810e7-1079-607c-865b-1de607091497/out.jpg)
-
----
-
-`@miles 4/5/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group47/origin/2022/04/05/04/ec2d3670-8a91-838b-7763-b48a4901a137/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
