@@ -2,20 +2,20 @@
 ---
 
 
-## 教皇含蓄地批评普京对乌克兰的入侵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287991/)
+## 中共通过俄罗斯出口欧洲的计划遭遇重创
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2287992/)
 
-作者：银河系农场-骄子
+作者：银河系农场—骄子
 ![](https://assets.gnews.org/wp-content/uploads/2022/01/1-GTV-Gnews-HEADER-8.png)
-4月2日，教皇方济各罕见地表达了对普京入侵乌克兰的批评，说这是一个大国正在为民族主义利益煽动战争冲突。
+据外媒4月2日报道，欧美国家对俄罗斯的制裁正在破坏中共对欧洲的出口贸易计划。
 
-普京表示对乌克兰的入侵仅仅是一次特别军事行动，方济各直接拒绝了这种说法，称其就是战争。早前，方济各曾为乌克兰受苦受难的百姓呼吁以上帝的名义停止战争。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-4.jpg)
-郭文贵先生在直播中提到，教皇不可以发表对战争双方的看法，但乌克兰的妇女儿童的战争遭遇让人泪下。俄乌战争使教皇和普通人罕见地拥有了共识，普京作为侵略方是邪恶的，人类的和平梦想不会因为战争而褪色。教皇不仅对战争受难方祈祷呼吁，还在暗中批评普京，说利益和意识形态的冲突，在专制诱惑和帝国主义的侵略中再次有力地出现了，毫无疑问普京是无理的侵略，并强烈谴责了其战争暴行。
+尽管欧盟尚未正式禁止通过俄罗斯的进口贸易，但入境铁路几乎已经全部停运。中共一带一路的重要组成部分严重依赖这些已经停运的铁路运输。自俄罗斯入侵乌克兰后，中共运往欧洲的货物大部分改道哈萨克斯坦和格鲁吉亚的铁路运输，或者干脆转向船舶运输。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-5.jpg)
+很多大运输和物流公司目前已暂停往返俄罗斯的业务。丝绸之路上德国内陆港口杜伊斯堡的海运保险公司也宣布，不再赔付来自俄罗斯和白俄罗斯的货物。杜伊斯堡港口是中共出口欧洲的第一站，每周都有来自中共的衣物、运动器材和电子产品抵达，返回的时候运走欧洲酒品和高端服装配饰。
 
-方济各已经与乌克兰总统泽连斯基通过电话，近期教皇可能会访问基辅。
+自俄乌战争以来，随着航运和铁路运输的需求和意愿的下降，中共对欧洲的出口量也急剧下降。
 
-参考链接：[Pope implicitly criticises Putin on invasion, considers Kyiv trip](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+参考链接：[China’s Bet on Sending Its Exports Through Russia Hits Setback](https://www.wsj.com/articles/chinas-bet-on-sending-its-exports-through-russia-hits-setback-11648908000)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

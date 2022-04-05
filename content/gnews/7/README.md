@@ -2,25 +2,53 @@
 ---
 
 
-## 加拿大社会的两极分化因疫情政策而加重
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289389/)
+## 丑恶邪共
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2289444/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+**作者：**敢想敢做
+**编辑：**翼族
 
-据【CTV新闻】4月4日报道，萨斯喀彻温大学社会研究中心的最新调查表明，加拿大人对于时事政治问题的观点变得愈加分裂。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-426.png)图片来源：CTV.NEWS
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2022040103.jpg)雅典娜设计组（Mr.Robot）
 
 
-报道称，大约四分之三的受访者表示：加拿大社会意识形态的两极分化已越来越明显，其中，超过70%的人认为疫情以及2021 年联邦选举是导致目前社会分裂的最主要因素。而大约 40% 的加拿大人表示，他们因有关疫苗政策或防疫措施的争论而减少了与朋友或家人的联系。
+我们在死亡痛苦中挣扎，
+你却还在疯狂将我们推向死亡！
+我们无处可逃，
+我们也无从躲藏！
 
-对此，研究中心的主管杰森表示：尽管在过去两年里，很多不同的观点造成了人们的分歧，但国家领导人和政客们却违背了团结社会的宗旨，并利用这种分裂来谋取各自的政治利益。
+你只为了自私自利而活，
+你知道 你必将走向灭亡！
+你已身陷危机 身边空无一人，
+却还在 骗我长辈！
+屠我同胞！
+洗脑孩子！
+断我救助！
 
-校对编辑：硫酸羟氯喹64
+中共 我们必将你视为敌人！
 
-发稿：青青
+现在 我们即将反抗黑暗！
+我们必将奋战到底！
+现在 我们已看清你的虚伪面孔！
+我们必将成为上天的使者！
+我们将照亮整个世界！
 
-原文链接： [https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868](https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868)
+你可能以为 你已经摸清我们的底细，
+这次我们必将团结一心！
+别天真地以为你 懂得我们，
+你知道你 必会走向灭亡！
+此刻你痴心妄想 我们会让着你，
+我们必将你推向消亡！
+我们将奋斗到光明回归！
+世界终将回归光明！
+光明终会审判邪恶！
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

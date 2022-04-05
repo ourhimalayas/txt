@@ -2,11 +2,11 @@
 ---
 
 
-## 共产党和伪类们阻碍救人，那不是谋杀是屠杀！（七）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289446/)
+## 文科、大卫、正义小sara在救援现场的实况（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289626/)
 
-#### PPT制作：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-930-940-2_7.jpeg)
+#### PPT制作：WinterGuo ；开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-940-950-3_4.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

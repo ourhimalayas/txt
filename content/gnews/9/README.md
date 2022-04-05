@@ -2,27 +2,25 @@
 ---
 
 
-## 加拿大试图加强战略能源和矿产品的开发
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289311/)
+## 加拿大社会的两极分化因疫情政策而加重
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289389/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
+采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-编译： 加拿大温哥华扬帆农场 – 晨熹
+据【CTV新闻】4月4日报道，萨斯喀彻温大学社会研究中心的最新调查表明，加拿大人对于时事政治问题的观点变得愈加分裂。
 
-据自媒体【真北方】4月3日报道，由于受政府严格法规影响，加拿大目前很难吸引到对该国关键矿业的投资，但目前在西北地区实施的稀土矿产开采项目正在进行之中。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-424.png)图片来源：NAI
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-426.png)图片来源：CTV.NEWS
 
 
-据悉，这是加拿大首个与原住民机构合作的项目，去年已开采了约5,000 吨稀土。同时，【因纽特天然气项目】也正在实施当中。对此，【工业投资部】表示：以上项目证明，加拿大是可以成为独立于中俄之外的国际稀有资源的主要开采者。
+报道称，大约四分之三的受访者表示：加拿大社会意识形态的两极分化已越来越明显，其中，超过70%的人认为疫情以及2021 年联邦选举是导致目前社会分裂的最主要因素。而大约 40% 的加拿大人表示，他们因有关疫苗政策或防疫措施的争论而减少了与朋友或家人的联系。
 
-但加拿大关键矿产行业领导人则抨击了特鲁多政府，称当局现行的碳排放标准阻碍了加拿大绿色能源发展，破坏了包括锂，镍等重要矿产资源的开发，而且其2030年碳减排计划目标更是无法实现的幻想。
+对此，研究中心的主管杰森表示：尽管在过去两年里，很多不同的观点造成了人们的分歧，但国家领导人和政客们却违背了团结社会的宗旨，并利用这种分裂来谋取各自的政治利益。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/](https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/)
+原文链接： [https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868](https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868)
 
  
 

@@ -15,131 +15,131 @@
 
 ---
 
-### [社交媒体的黑（一）](/content/gnews/1/README.md)
+### [文科、大卫、正义小sara在救援现场的实况（五）](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [共产党和伪类们阻碍救人，那不是谋杀是屠杀！（七）](/content/gnews/2/README.md)
+### [文科、大卫、正义小sara在救援现场的实况（四）](/content/gnews/2/README.md)
  ` 雅典娜GNotes`
 
-### [共产党和伪类们阻碍救人，那不是谋杀是屠杀！（六）](/content/gnews/3/README.md)
+### [文科、大卫、正义小sara在救援现场的实况（三）](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [共产党和伪类们阻碍救人，那不是谋杀是屠杀！（五）](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
+### [新州直升机坠毁两人丧生，今年第六起致命航空事故](/content/gnews/4/README.md)
+ ` 走进澳洲`
 
-### [共产党和伪类们阻碍救人，那不是谋杀是屠杀！（四）](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [超级能源皇权国家总结投资喜币理由，喜币进入三国储备名单](/content/gnews/6/README.md)
- ` YALUN 亚伦`
-
-### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/7/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [被乔治•奥威尔式的媒体包围，俄罗斯人民不知战争真相](/content/gnews/8/README.md)
+### [短视频：福奇的末世性的声明失去了影响力](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/9/README.md)
+### [安大略省立法消减汽油燃料税](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共在俄军入侵乌克兰前发动网络攻击](/content/gnews/10/README.md)
- ` 扬帆枫叶快讯`
+### [丑恶邪共](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [特鲁多政府治国方针日渐中共化](/content/gnews/11/README.md)
+### [拜登痛批普京是战争犯 呼吁就俄侵乌罪行举行审判](/content/gnews/8/README.md)
+ ` 蓝莲花农场`
+
+### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [加拿大计划对俄罗斯进行战争罪调查](/content/gnews/12/README.md)
+### [俄罗斯在布查市实施大屠杀 西方发誓要严惩](/content/gnews/10/README.md)
+ ` 蓝莲花农场`
+
+### [被乔治•奥威尔式的媒体包围，俄罗斯人民不知战争真相](/content/gnews/11/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/12/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [中共在俄军入侵乌克兰前发动网络攻击](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大议员力推监控中共代理人法案](/content/gnews/13/README.md)
+### [特鲁多政府治国方针日渐中共化](/content/gnews/14/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [加拿大计划对俄罗斯进行战争罪调查](/content/gnews/15/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大或将面临严重的粮食危机](/content/gnews/14/README.md)
+### [加拿大议员力推监控中共代理人法案](/content/gnews/16/README.md)
  ` 扬帆枫叶快讯`
 
-### [2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行](/content/gnews/15/README.md)
+### [加拿大或将面临严重的粮食危机](/content/gnews/17/README.md)
+ ` 扬帆枫叶快讯`
+
+### [2022年4月5日《樱花快报》：西方强烈谴责俄罗斯在乌克兰布查犯下的种族灭绝战争罪行](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大未来经济发展前景暗淡](/content/gnews/16/README.md)
+### [加拿大未来经济发展前景暗淡](/content/gnews/19/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大纳税人在疫情中的负担日渐沉重](/content/gnews/17/README.md)
- ` 扬帆枫叶快讯`
-
-### [20220403郭文贵大直播 ：中共粮食危机和将对台湾毁灭性的打击](/content/gnews/18/README.md)
+### [20220403郭文贵大直播 ：中共粮食危机和将对台湾毁灭性的打击](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [20220403郭文贵大直播 ：俄乌达成和解可能性很大](/content/gnews/19/README.md)
+### [20220403郭文贵大直播 ：俄乌达成和解可能性很大](/content/gnews/21/README.md)
  ` Tokyo Sakura Video Group`
 
-### [4/4/2022 文贵盖特：中共走狗郑介甫被澳洲政府遣返了，曲龙听说要被判死刑，帮曲龙害文贵的董仚生全家也基本被抓了，帮董仚生的几个河北承德法官也被抓了，这都是他们的报应啊](/content/gnews/20/README.md)
+### [4/4/2022 文贵盖特：中共走狗郑介甫被澳洲政府遣返了，曲龙听说要被判死刑，帮曲龙害文贵的董仚生全家也基本被抓了，帮董仚生的几个河北承德法官也被抓了，这都是他们的报应啊](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [日本外务大臣结束波兰访问回国](/content/gnews/21/README.md)
+### [日本外务大臣结束波兰访问回国](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京设立热线电话和网站，举报任何反对乌克兰战争的人](/content/gnews/22/README.md)
+### [普京设立热线电话和网站，举报任何反对乌克兰战争的人](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌基辅城镇平民被俄军残忍杀害 总统称种族灭绝](/content/gnews/23/README.md)
- ` 波士顿五月花农场金融部`
-
-### [比尔·盖茨投巨资研发能被手机扫描植于皮下的微芯片技术](/content/gnews/24/README.md)
+### [比尔·盖茨投巨资研发能被手机扫描植于皮下的微芯片技术](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [上海全面封城 民众怨声载道](/content/gnews/25/README.md)
+### [上海全面封城 民众怨声载道](/content/gnews/26/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零](/content/gnews/26/README.md)
+### [【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零](/content/gnews/27/README.md)
  ` G-时新闻`
 
-### [【G时新闻】上海的疫情是否会成为香港的重演？](/content/gnews/27/README.md)
+### [【G时新闻】上海的疫情是否会成为香港的重演？](/content/gnews/28/README.md)
  ` G-时新闻`
 
-### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/28/README.md)
+### [新西兰财经G乐部2022年4月4日:财经新闻整理](/content/gnews/29/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/29/README.md)
+### [DC大中华时事：孙春兰在沪察看疫情防控和核酸检测工作](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [乌克兰部队继续向基辅附近的俄罗斯部队作战](/content/gnews/30/README.md)
+### [乌克兰部队继续向基辅附近的俄罗斯部队作战](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共通过俄罗斯出口欧洲的计划遭遇重创](/content/gnews/31/README.md)
+### [中共通过俄罗斯出口欧洲的计划遭遇重创](/content/gnews/32/README.md)
  ` NFSC News`
 
-### [教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/32/README.md)
+### [教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/33/README.md)
  ` NFSC News`
 
-### [俄军士兵用乌军子弹自残逃避战争](/content/gnews/33/README.md)
+### [俄军士兵用乌军子弹自残逃避战争](/content/gnews/34/README.md)
  ` NFSC News`
 
-### [乌克兰副防长称已重新掌控整个基辅地区](/content/gnews/34/README.md)
- ` NFSC News`
-
-### [乌克兰海港城市敖德萨遭俄军空袭](/content/gnews/35/README.md)
- ` NFSC News`
-
-### [【秘翻在线】又被蓝金黄了？英政府允许中资企业收购英国最大的芯片制造商](/content/gnews/36/README.md)
+### [【秘翻在线】又被蓝金黄了？英政府允许中资企业收购英国最大的芯片制造商](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [上万名军队医生进入上海对2600万居民进行检测](/content/gnews/37/README.md)
+### [上万名军队医生进入上海对2600万居民进行检测](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [在进行大规模测试后上海继续处于封锁状态](/content/gnews/38/README.md)
+### [在进行大规模测试后上海继续处于封锁状态](/content/gnews/37/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共防疫“清零”政策就是谎言](/content/gnews/39/README.md)
+### [中共防疫“清零”政策就是谎言](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯军队在乌克兰损失惨重](/content/gnews/40/README.md)
+### [俄罗斯军队在乌克兰损失惨重](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [塞尔维亚大选结束 亲中共现任总统武契奇称胜选连任](/content/gnews/41/README.md)
+### [塞尔维亚大选结束 亲中共现任总统武契奇称胜选连任](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联盟工作汇报文字版2022.4.3](/content/gnews/42/README.md)
+### [联盟工作汇报文字版2022.4.3](/content/gnews/41/README.md)
  ` 纽约香草山MOS02`
+
+### [4/4/2022国际财经快讯：马斯克入股推特9%成为第一大股东；摩根大通：俄乌战争和中共的房地产暴雷将导致大量债券违约](/content/gnews/42/README.md)
+ ` 秘密翻译组金融团队`
 
 ### [马斯克收购Twitter 9.2%股份成Twitter 最大股东](/content/gnews/43/README.md)
  ` 日本东京方舟农场`

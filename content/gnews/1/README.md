@@ -2,11 +2,11 @@
 ---
 
 
-## 社交媒体的黑（一）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289457/)
+## 文科、大卫、正义小sara在救援现场的实况（五）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289630/)
 
-#### PPT制作：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-940-950-1_1.jpeg)
+#### PPT制作：WinterGuo ；开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-940-950-3_5.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
