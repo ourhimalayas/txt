@@ -2,20 +2,18 @@
 ---
 
 
-## 新冠疫苗推出后去年全球死亡人数猛增
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293631/)
+## 安省敦促联邦政府降低汽油燃料价格
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293700/)
 
-采编： 坐看云起时             编译： 晨熹
+原文采编：青青      翻译编辑：文所未闻
 
-据自媒体【网关专家】4月1日报道，在过去几个月里，全球出现前所未有的超高死亡率，而这一切表面看似乎与新冠病毒无关，事实上这一峰值几乎与实验性新冠疫苗的推出完全吻合。
+据加拿大《CTV新闻》4月4日报道，在加拿大各地汽油价格飙升之际，保守党政府当天提出立法，计划将汽油税每升降低5.7分，燃料税每升降低5.3分。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-20.png)图片来源：Global News
+据悉，该计划只有在6月份省级选举之后才会生效，为期六个月。目前。加拿大是油价之高，前所未有，整体通货膨胀也为几十年最高。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-17.png)图片来源：Gateway Pundit
+安大略省长福特也同时敦促加拿大联邦政府采取措施来进一步降低油价。
 
-美国所有年龄组的死亡人数都在飙升，尤其是25至44岁的年轻人。这一群体死亡人数创纪录的增长了84%。 CDC的最新数据显示这种趋势不仅仅是在美国。世界各国，特别是西方国家，都在经历超高的死亡率。
-
-去年8至9月间，加拿大0至44岁死亡人数激增了24%，这与特鲁多在8月强制要求为工人接种疫苗的时间完全吻合。这种“令人不安”的趋势正在持续，甚至会变得更糟。这场大流行病疫苗接种从来无关拯救生命，正好相反，是想夺走生命。
-
-新闻来源：[https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+原文链接：https://toronto.ctvnews.ca/ontario-to-introduce-legislation-to-cut-gas-and-fuel-taxes-for-six-months-starting-july-1-1.5846934
 
 编辑/上传：文所未闻
 

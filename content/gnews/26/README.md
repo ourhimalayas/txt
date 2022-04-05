@@ -2,35 +2,20 @@
 ---
 
 
-## 有声|习近平将是俄乌战争的最大输家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293183/)
+## 文贵先生两首新歌正式上线 再创辉煌
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293376/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在4月3日的大直播中，郭文贵先生表示，他在与一个全世界排名前十位的大佬讨论乌克兰形势时，对方认为美国只关心国内通货膨胀、美元、油价和中共病毒疫情，习近平、普京和土耳其总统埃尔多安，会分别成为第一、第二和第三位赢家，甚至还认为乌克兰总统泽连斯基是俄国间谍。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-8.jpg)
-郭先生告诉该大佬，他基于国内的民生、粮食危机、政治危机、香港现状，习近平必须要打台湾的政治决定和个人爱好，习近平与普金因个人关系绑架两国人民利益，已经引起了两国的巨大反感，以及中共在中东和东南亚的布局等情报综合判断，习近平将会是俄乌战争的最大输家。
+撰稿：活力人生
 
+美东时间4月4日凌晨，郭文贵先生在社交媒体盖特上宣布，他的两首新歌《灭共的雪》和《铁锁梦》已经正式在苹果iTunes和苹果音乐平台上线，同时号召全球的音乐粉丝们打榜支持。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-05-at-11.25.29-AM.png)
+《灭共的雪》的推出最初是为了破解中共利用北京冬奥会进行的无耻宣传，同时也表达了灭共的坚定决心。《铁锁梦》则是以震惊世界的锁链女事件为背景，控诉了中共套在中国人脖子上的枷锁，听之催人泪下。
 
+郭文贵先生此前的作品曾多次创造佳绩。单曲《马背英雄》上线仅仅数小时，就迅速登上iTunes 包括加拿大在内的多国排行榜冠军，并持续在榜多周。更是夺下了华人乐坛首个Billboard公告牌硬摇滚数码歌销售榜冠军。
 
-文字版原文：[习近平将是俄乌战争的最大输家](https://gnews.org/zh-hans/2288442/)
+郭文贵先生盖文链接：[https://gettr.com/post/p13gzsh8306](https://gettr.com/post/p13gzsh8306)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑/上传：文所未闻
 
  
 

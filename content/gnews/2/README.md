@@ -2,10 +2,24 @@
 ---
 
 
-## 4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2293726/)
+## 2022年4月5日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293890/)
 
-郭文贵
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0855.jpg)
+
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
 
  
 

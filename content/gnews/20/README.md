@@ -2,54 +2,94 @@
 ---
 
 
-## 美国及世界疫情简报（04-05-2022）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2293377/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线次日登榜19国iTunes音乐榜首
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2293434/)
 
-整理：波士顿五月花 老枪6
-![](https://assets.gnews.org/wp-content/uploads/2022/04/202204.jpg)
-今天是2022年4月5号，星期二。
-以下是美国及世界昨日的疫情简报。
+4/5/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第2天iTunes打榜记录：
+**《灭共的雪》**
+澳大利亚热门歌曲榜第1名
+19国摇滚歌曲榜第1名
 
-**1．美国疫情**
-
-美国新增新冠患者4,586人，总确诊80,155,397人。新增死亡32人，总死亡 982,565人。
-
-纽约州新增新冠确诊2,964人，新增死亡7人。
-
-**2．世界疫情**
-
-1）亚洲疫情
-
-印度新增新冠患者913人；日本新增47,216人；菲律宾新增661人；孟加拉新增56人；土耳其新增9021人；台湾新增280人；韩国新增127,190人；中国新增15,107人。
-
-2）非洲疫情
-
-南非新增新冠患者4,001人；埃塞俄比亚新增13人；摩洛哥新增54人。
-
-3）拉美疫情
-
-巴西新增新冠患者7,210人；哥伦比亚新增308人；阿根廷新增484人；智利新增4,478人；墨西哥新增839人。
-
-4）欧洲疫情
-
-俄罗斯新增新冠患者16,498人；德国新增115,182人；法国新增102,266人；意大利新增55,009人。
-
-**5）全球新冠总感染人数为493,563,211人，总死亡人数为6,169,551人。**
-
-**3．新闻简报**
-
-1、4 月 4 日（路透社），美国国家公共卫生机构周一表示，据估计，Omicron 的 BA.2 子变体已占美国四分之三的冠状病毒变体。
-2、上海，4 月 4 日（路透社）：上海市政府周一在其官方微信账号上表示，4 月 3 日，中国金融中心上海报告了 8,581 例无症状 COVID-19 病例和 425 例有症状 COVID 病例。
-3、近日英国等国家COVID-19 病例增加，英国平均每天新增 76,000 例新感染，其次是意大利（平均每天约70,000 例）、中国（超过10,000例）、泰国（平均每天超过 25,000 人）、以色列（超过 14,000 人）、塞浦路斯（平均每天大约 4,908 人）、法国（每天超过20,000 人）、希腊（超过 20,000 人）和新西兰（每周平均 13,543 人）。
-4、据悉，4月4日，香港新增新冠病例为3,138宗，七天平均值为5,481宗。香港确诊新冠患者总数为1,173,138人，死亡总数为8,352人。
-
-
+**《铁锁梦》**
+新西兰热门歌曲榜第1名
+新西兰流行歌曲榜第1名
 
 * * *
 
-*封面：霹雳鼠年*
+[【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
 
-*编辑 /发布：郭郊玉米地*
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14-1.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_55.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_63.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_64.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_67.jpg)
+
+
+[【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Tuesday-5-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record-1.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

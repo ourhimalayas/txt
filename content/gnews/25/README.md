@@ -2,22 +2,10 @@
 ---
 
 
-## 郭文贵盖特音频2022.04.05
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2293278/)
+## 4/3/2022 文贵直播：青蒿素救人无数，不仅治好了无数癌症患者，而且还对治疗疫苗副作用很有效；术后人士吃青蒿素要小心并遵医嘱
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2293418/)
 
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2022/04/out-5.jpg)
-### 视频链接：
-
-[https://gettr.com/post/p13o3f02b76](https://gettr.com/post/p13o3f02b76)
-
-### 音频链接：
-
-
-
-
-
-编辑发布：闪电训练
+秘密翻译组-北美组
 
  
 
