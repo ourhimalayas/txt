@@ -2,8 +2,8 @@
 ---
 
 
-## 20220403文贵大直播：马斯克改变人类科技但是怕共产党，疫苗灾难后生物科技大发展
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2289660/)
+## 20220403文贵大直播：某国已将喜币列为国家储备，币安绝对完蛋
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2289703/)
 
 作者：东京樱花团小视频组
 

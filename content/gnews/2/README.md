@@ -2,43 +2,80 @@
 ---
 
 
-## 日本志愿者给梅迪卡营地践行灭共使命的战友们送来鲜花
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2290080/)
+## 视频|中共疫情“动态清零”政策下人不如狗！
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2290148/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/封面-1.png)
-据全球喜马拉雅农场联盟委员会@GlobalAlliance发布的盖特
+2022年3月26日早上，在长春市兴隆岭援建方舱医院完工的一众民工成为中共当局的“弃婴”，
 
-[https://gettr.com/post/p13jxl59f61](https://gettr.com/post/p13jxl59f61)
+不但家回不去，原工地也回不去，必须集中隔离且费用自己承担，
 
-【The Story of the New China】A Japanese volunteer came to the tent sponsored by the New Federal State of China & Rule of law Foundation and sent flowers, saying that it was the first time he had seen Chinese people like us.
+在这干活挣的钱还不够隔离费用，自己建的方舱医院都不收留他们，
 
-【新中国联邦人的故事】一位日本志愿者来到 #新中国联邦 和 #法治基金 赞助设立的帐篷内，特意送来鲜花，他说这是他第一次见到像我们这样的中国人。
+既没地方住也没东西吃。
 
-在俄乌战端开启之后首批奔赴波兰梅迪卡建立难民救助帐蓬的爆料革命已经和正在改变世界，这位给新中国联邦梅地卡营地送来鲜花的日本男士是第一次听到新中国联邦，是第一次碰到践行灭共使命的爆料革命战友。
+在上海一处集中处理感染中共病毒患者的集中营，
 
-正像乌克兰大救援行动是有史以来由华人发起的国际大救援一样，正是一个个的第一次正在改变世界，乌克兰大救援前线每位战友的辛勤付出，不仅仅是一杯杯飘香的咖啡和一次次的暖心救助，乌克兰大救援前线战友们的付出也是对我们每个华人和亚裔的救赎，在灭共已无悬念的当下，如何让世界分清中国人和中国共产党更加日益紧迫，因为这关乎每个华人的安全。
+数百患者被整整齐齐地摆放在一个毫无隔离与治疗措施的公共空间，
 
-撰稿：喜马拉雅的肉夹馍；
+场面十分恐怖，形同停尸间。
 
-审核：喜马拉雅的馍夹肉；
+中国当局将他们集中隔离于社会，
 
-校对：Maarago；
+已放弃对他们的治疗，让他们自生自灭！
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+上海某出租屋一租客因前一天晚上六点前没做核酸检测导致健康码变黄码，
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+防疫人员上门准备将其带走隔离。健康码变黄码在中共国寸步难行，
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+黄码不一定是潜在的感染者或密接者，来不及检测核酸者也成了人身自由限制工具黄码的牺牲者。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)；
+上海封城全员核酸检测期间，当局认定为高风险的市民被送到方舱医院，
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+一个集装箱方舱挤满了十多人且不分男女，等候分流或进一步检测。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+【盖文】共产党对老百姓如抹布一样即用即弃，对没有利用价值尤其是成为当局负担的老百姓，
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+中共当局几乎是准备当成垃圾一样找个合适的地方活埋掉，其对人权与生命的践踏连法西斯也自愧不如！
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+
+【撰稿】6zero4
+
+【审稿】呼吸的雾霾（文小呼吸）
+
+【剪辑】windlady
+
+【发布】奇门遁甲
+
+【链接】https://twitter.com/RFA\_Chinese/status/1508713142661967872?s=20&t=NPYh-KNv74WsJ7G8Sq\_nuA
+
+
+
+> 由于中国强制使用国产无效疫苗，造成疫情失控，行政强制隔离是不能清零的，只会越来越重。哪怕习总开了抗疫胜利庆功大会，给弄虚作假的钟南山院士、陈将军戴上链子。武汉病毒最终害了世界，也害了中国。武汉病毒所需要关门，石正丽等需要逮捕罚办了。
+> 
+> 视频为上海感染病毒患者的集中营。 [pic.twitter.com/7Uui4A8Nly](https://t.co/7Uui4A8Nly)
+> — Jam (@Jam79922967) [March 30, 2022](https://twitter.com/Jam79922967/status/1509184548889841667?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 原來，黃碼紅碼不一定是你的體內感染病毒，而是你的人生正在遭受權力的任意蹂躪！
+> ——惡魔不除，鍋難不止 ！ [pic.twitter.com/7u2qbpwvZK](https://t.co/7u2qbpwvZK)
+> — 全智胜 (@MgOqkzLBRPLCHyN) [March 27, 2022](https://twitter.com/MgOqkzLBRPLCHyN/status/1508032802586988546?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 【上海封城】
+> 【一个货柜临时隔离十多人】
+> 
+> 半个上海封城检测，部分被认定为高风险市民，被送到方舱医院。有上海网民上载视频，看到在一个货柜大小的小房间内，挤满了十多人，而且不分男女。他们都在等候分流或进一步检测。
+> 有女士情绪激动，向房间外的工作人员喊话。 [pic.twitter.com/KBsMU44BIJ](https://t.co/KBsMU44BIJ)
+> — 自由亚洲电台 (@RFA\_Chinese) [March 28, 2022](https://twitter.com/RFA_Chinese/status/1508417150192549898?ref_src=twsrc%5Etfw)
+
+
 
  
 

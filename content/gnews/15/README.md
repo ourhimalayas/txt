@@ -2,27 +2,51 @@
 ---
 
 
-## 上海疫情因疫苗灾难而继续恶化
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289852/)
+## 俄罗斯军队在切尔诺贝利遭受&#8221;急性辐射病
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289873/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+作者：日本东京方舟农场-Miyali7768(文玉）
 
-翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
-
-据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “疫情零容忍”方针下，该国最大城市上海有近千万人在全面封锁下被隔离在家中。由于因此而造成的食物供应短缺和医疗服务中断，已导致民不聊生，怨声载道。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-433.png)图片来源：forbes
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-尽管官方称上海日前仅有438个确诊病例，这对于2600万人口的城市来说感染比例并不大，但当局仍要求封锁并强制隔离所有疑似病例并进行大规模病毒检测。
 
-中共党媒报道则显示，习近平正通过采取残酷的隔离措施，以确保其政权的稳定和对内部政敌在上海势力的控制。文贵先生指出，国内最近疫情的恶化实际上是疫苗伤害所导致的结果，更严重的疫苗灾难即将开始。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+据乌克兰官员称，数百名俄罗斯士兵在因受核污染的土壤而遭受”急性辐射病”后，被迫匆忙撤出乌克兰的切尔诺贝利核电站。
 
-新闻来源： [https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237](https://www.ctvnews.ca/health/coronavirus/shanghai-lockdown-triggers-complaints-as-covid-19-cases-rise-1.5846237)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/未命名的设计-2022-04-04T221052.694-2.png)
+
+在1986年的核灾难中，成千上万的松树因遭受切尔诺贝利核电站核泄漏的强烈辐射变成了红色，该地区被认定为毒性很大，甚至不允许高度专业化的切尔诺贝利工人进入该地区。而这些无知的，没有一点核常识的俄罗斯部队，3月31日在这一受污染的红森林中挖掘战壕。负责该国核电站的乌克兰机构Energoatom证实了有关俄罗斯军队在红森林挖掘”整个禁区内污染最严重的战壕“的报道，该机构还表明占领者接受了大量辐射，并在第一个疾病迹象时，俄罗斯士兵惊慌失措并逃离，现在正在白俄罗斯戈梅利的一个特殊医院接受治疗。
+
+白俄罗斯当地报道显示，七辆载有被核辐射击溃部队的公共汽车，于周四早些时候抵达戈梅利，在黑暗的掩护下将死去的士兵从白俄罗斯运往俄罗斯的”幽灵巴士”。
+
+乌克兰总统泽连斯基指责俄罗斯利用切尔诺贝利附近的禁区准备发动新的袭击。
+
+参阅链接：
+[https://news.yahoo.com/russian-troops-suffer-acute-radiation-083839177.html](https://news.yahoo.com/russian-troops-suffer-acute-radiation-083839177.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

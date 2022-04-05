@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 3:45 AM (UTC)`
+
+4/4/2022 Miles Guo’s GETTR: The COVID vaccine disaster has made Communist China a living hell, and the collapse of Communist China’s real estate market and banks are imminent<br/><br/>4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来<br/>
+![img](https://media.gettr.com/group44/getter/2022/04/05/03/3e848e59-0a4a-873d-4fee-d9fac6abfe4c/out.jpg)
+
+---
+
 `@miles 4/5/2022 3:26 AM (UTC)`
 
 Nicole interviewed volunteer Andrew, who is a veterinarian from southern California. Andrew helped look after a rabbit in the New Federal State of China (NFSC) tent. After Nicole’s introduction to the NFSC and its mission, Andrew said he would tell all his friends at home about it.  He said that if the CCP attacked Taiwan by force, he would join the NFSC’s humanitarian rescue operation.<br/>妮可采访了这位来自美国南加州的兽医义工Andrew。他曾在新中国联邦的帐篷里帮助照料一只兔子。在妮可向他介绍了新中国联邦以及其使命之后，Andrew说他要告诉所有他的朋友。他说，如果一旦中共武力攻打台湾，他会报名参加新中国联邦对台湾人民的人道救援行动。
@@ -148,12 +155,6 @@ Himalaya Washington DC's livestream <br/>Report from NFSC‘s Ukraine rescue<br/
 
 MILES GUO 直播 2022-04-04
 ![img](https://media.gettr.com/group1/liveorigin/2022/04/04/16/c555e779-3f47-de1f-5eee-ac373ce30487/db77deaeeaadf94601c75dae84bb7948.jpg)
-
----
-
-`@miles 4/4/2022 3:49 PM (UTC)`
-
-On April 4, Australian media reports that Zheng Jiefu has been expelled from the country due to alleged espionage activities and harming national security. These allegations are part of an investigation by the Australian Security Intelligence Service (ASIO) .<br/><br/>In 2015,  he falsely claimed that his company had been misappropriated by Mr. Miles Guo.<br/><br/>After 2017 VOA "broadcast cutoff," Zheng gave yet another "interview" to the media, claiming that 99% of Mr. Guo's revelations were misinformed and untrue.<br/><br/>Zheng had repeatedly cooperated with pseudo-democracy activists Boxun Media to discredit and smear Mr. Guo. <br/><br/>https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html<br/><br/>
 
 ---
 

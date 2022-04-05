@@ -2,27 +2,53 @@
 ---
 
 
-## 安大略省立法消减汽油燃料税
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289568/)
+## 欧盟在欧中锋会中表达多项立场及关切台海情势
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289551/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+作者：纽约香草山医疗部-云豹
 
-翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
-
-据《CTV新闻》4月4日报道，在加拿大各地汽油价格飙升之际，安省保守党政府于当天提出立法，计划将汽油税每升降低5.7分，燃料税每升降低5.3分。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-427.png)图片来源：Global.News
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-据悉，该为期六个月的降税计划只有在6月份省级选举之后才能生效。目前，加拿大燃油价格之高前所未有。而且整体通胀率已超过6%，并达到近几十年来的最高水平。
 
-此外，安大略省长福特也敦促加联邦政府采取必要措施来有效控制全国不断飞涨的汽油价格。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
 
-新闻来源：[https://toronto.ctvnews.ca/ontario-to-introduce-legislation-to-cut-gas-and-fuel-taxes-for-six-months-starting-july-1-1.5846934](https://toronto.ctvnews.ca/ontario-to-introduce-legislation-to-cut-gas-and-fuel-taxes-for-six-months-starting-july-1-1.5846934)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220401185743157-2048x1365-1.jpg)
+
+欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
+
+此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
+
+欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
+
+欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
+
+参阅链接：
+[https://www.cna.com.tw/news/aopl/202204020271.aspx?utm\_source=cna.app&utm\_medium=app&utm\_campaign=inapp\_share](https://www.cna.com.tw/news/aopl/202204020271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

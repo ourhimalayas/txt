@@ -2,51 +2,42 @@
 ---
 
 
-## 俄罗斯军队在切尔诺贝利遭受&#8221;急性辐射病
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289873/)
+## DC大中华时事：港报社评上海疫情管理遇上挑战
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2289905/)
 
-作者：日本东京方舟农场-Miyali7768(文玉）
+*编辑：西北风 / 作图：*信正
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
+#   墙国妄语每日驳
 
+### [**0**4.03.2022澳大利亚和印度签署自由贸易协定](//world.huanqiu.com/article/47RRws0KJYv)
 
+[h](https://world.huanqiu.com/article/47RRws0KJYv)ttps://world.huanqiu.com/article/47RRws0KJYv
 
+***简评：***得海洋者，得天下，辉煌千年的地中海文明不同时期各帝国的兴衰见证了海洋如何影响帝国的命运与世界格局。随着地理大发现，世界的中心转移到大西洋，20世纪随着经济全球化发展，经济中心扩展到太平洋直至今天，中国和亚洲四小龙经济发展就是见证。今天澳大利亚和印度签署自由贸易协定意味着下一个经济中心将会是印度洋，印度的人口规模和遍布全球的印度侨民还有广阔的东盟市场毫无疑问.全球一体化时代真正的到来了。
 
-据乌克兰官员称，数百名俄罗斯士兵在因受核污染的土壤而遭受”急性辐射病”后，被迫匆忙撤出乌克兰的切尔诺贝利核电站。
+### 04.03.2022[港报社评：上海疫情管理遇上挑战](https://www.reuters.com/article/%E6%B8%AF%E6%8A%A5%E7%A4%BE%E8%AF%84%EF%BC%9A%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%E7%AE%A1%E7%90%86%E9%81%87%E4%B8%8A%E6%8C%91%E6%88%98%EF%BC%8C%E9%97%AF%E5%85%B3%E5%8F%AF%E8%AF%81%E5%8A%A8%E6%80%81%E6%B8%85%E9%9B%B6%E5%8F%AF%E8%A1%8C-%E6%98%8E%E6%8A%A54%E6%9C%884%E6%97%A5-idCNL3S2W202U)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/未命名的设计-2022-04-04T221052.694-2.png)
+[https://www.reuters.com/article/港报社评：上海疫情管理遇上挑战，闯关可证动态清零可行-明报4月4日-idCNL3S2W202U](https://www.reuters.com/article/港报社评：上海疫情管理遇上挑战，闯关可证动态清零可行-明报4月4日-idCNL3S2W202U)
 
-在1986年的核灾难中，成千上万的松树因遭受切尔诺贝利核电站核泄漏的强烈辐射变成了红色，该地区被认定为毒性很大，甚至不允许高度专业化的切尔诺贝利工人进入该地区。而这些无知的，没有一点核常识的俄罗斯部队，3月31日在这一受污染的红森林中挖掘战壕。负责该国核电站的乌克兰机构Energoatom证实了有关俄罗斯军队在红森林挖掘”整个禁区内污染最严重的战壕“的报道，该机构还表明占领者接受了大量辐射，并在第一个疾病迹象时，俄罗斯士兵惊慌失措并逃离，现在正在白俄罗斯戈梅利的一个特殊医院接受治疗。
+***简评：***上海是全国经济中心，根据七哥爆料我们知道中国实事是二个政治中心，法定的北京和实事上的上海。上海对中共发展举足轻重，从中共闹革命开始中共一大召开基本起点江浙一带，中心就是上海。中共执政大陆开始，公私合营直到文化大革运动中心都离不开上海。上海是中共权力斗争风向标，拿下上海等于拿下全中国这次中共上海疫情动态清零运动也毫无例外，世人看到的是疫情管控，通过这几年爆料革命我们疫情是中共人为制造，其在上海疫情管控还是中共政治权力争斗的延续，习太阳要做真皇帝要名垂千史更要比肩毛贼东当然要控制江派。中共一切为了权力。
 
-白俄罗斯当地报道显示，七辆载有被核辐射击溃部队的公共汽车，于周四早些时候抵达戈梅利，在黑暗的掩护下将死去的士兵从白俄罗斯运往俄罗斯的”幽灵巴士”。
+### 04.03.2022[外媒关注：中国统筹做好疫情防控和清明祭扫工作](http://m.cankaoxiaoxi.com/china/20220404/2474923.shtml)
 
-乌克兰总统泽连斯基指责俄罗斯利用切尔诺贝利附近的禁区准备发动新的袭击。
+http://m.cankaoxiaoxi.com/china/20220404/2474923.shtml
 
-参阅链接：
-[https://news.yahoo.com/russian-troops-suffer-acute-radiation-083839177.html](https://news.yahoo.com/russian-troops-suffer-acute-radiation-083839177.html)
+***简评：***爹亲娘亲不如党亲，今天我们听起来实在觉得荒唐可笑，但对于中共党内来说尤其是党内受益人来讲这是真理，中共多年对党内的洗脑比如清廉，焦裕禄式的好干部是卓有成效的，但现今随着中共腐败和腐烂，更是在习太阳这几年折腾加速了中共败亡，这些中共体制内传统的“好干部”也越来越看清中共本来邪恶面目，中共给他们构建的理想大厦也瘫塌不复存在，最终还是爹亲娘亲比党亲，清明祭祖兴盛也是人性回归的见证吧。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿：遍地开花
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/960033200736989204/DC4.2.2022-1.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/960033201307414568/DC4.2.2022-3.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/960033201999474728/DC4.2.2022-2.jpg?width=1040&amp;height=586)
 
 
 
 
+*编辑：*西北风
+*作图：信正
+发布：文顾*
 
  
 
