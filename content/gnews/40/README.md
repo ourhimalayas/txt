@@ -2,32 +2,32 @@
 ---
 
 
-## 国际｜马斯克成为推特最大股东 批：不遵守言论自由是破坏民主
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290950/)
+## 中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2292606/)
 
-**
-港台前线 zhong｜2022-4-5**
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 Best-Smartphone-This-Year-3.png](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-Twitter 股价盘前交易中大涨25%，先前美国证券交易委员会(SEC)的一份监管公告显示，特斯拉首席执行官马斯克(Elon Musk)持有该社交媒体平台9.2%的股份。Wedbush证券交割结算公司的分析师表示，他们认为马斯克收购普通股仅是为了与推特董事会和管理层展开更广泛的对话。
+撰稿：东京樱花团/加一颗稻草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+美国商务部3月28日宣布，将对总部位于加州的太阳能电池板制造商奥克辛太阳能公司(Auxin Solar)提出的一项指证进行调查。该公司指称，柬埔寨、马来西亚、泰国和越南的太阳能设备制造商与中国生产太阳能电池板组件原材料和部分组件的公司有密切的商业联系。
 
-马斯克曾批评推特未严格遵守言论自由原则，是破坏民主的行为，甚至考虑自己建立一个新的社交媒体平台后，便收购了推特7,750万股股票（9.2%普通股）成为推特最大股东，价值约29亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美将对进口太阳能电池板使用中国材料展开调查.png)图片来源于本文链接
 
-郭文贵于Gettr表示，马斯克收购推特股权对整个社交媒体以及推特投资者是好事，Gettr也可能一并受益。郭认为推特过去中共的走狗，马斯克成为最大股东一定会改变现状。马斯克于推特发起民意调查，称言论自由对民主运作至关重要，问道“您相信推特严格遵守言论自由此一原则吗？”
+2011年，美国商务部裁定中国在美国市场“倾销”太阳能电池板，也就是说将电池板定价低于制造成本。作为回应，美国商务部对中国太阳能电池板征收了高达其销售价格250%的关税。其结果是，美国从中国进口的太阳能设备迅速下降，从2011年的28亿美元降至2020年的不到4亿美元。
 
-马斯克于推特发起民意调查，共200多万人参与，结果显示逾7成用户不相信推特有严格遵守言论自由。
+然而，奥克辛太阳能公司在其诉状中提到，在此期间，从中国进口的太阳能电池板下降了86%，而从柬埔寨、马来西亚、泰国和越南的进口则激增了868%。该公司还拿出证据表明，在此期间，中国向上述四个国家出口的原材料和太阳能电池板零部件也大幅增加。美国商务部表示，它将在150天内完成初步调查，并在300天内做出最终决定。
 
-## 马斯克怒控SEC“骚扰”
+中共集国家之力垄断太阳能市场，中共的企业都是类似军民融合的资本操作。这种倾销做法迫使美国公司退出该行业，因为他们无法在提供与中国的产品同样价格的情况下还保持盈利。对美国私人企业的打击是巨大的，私人企业没有能力与一个国家机器抗衡。中共在化工、纺织、医药等其他领域也广泛使用这种做法。市场上只要有中共涉足的领域就不会有人投资，他们惧怕这个国家资本。这对世界经济是重要的威胁。这一切的根本原因就是中共这个流氓体制，用假、骗、偷等恶劣手段，毫无诚信造成的伤害。
 
-美国SEC于2018年9月指控马斯克8月在推特上宣布他已获得足够的资金，以每股420美元的价格将特斯拉私有化。经调查，SEC认定马斯克此举已该当诈欺，双方最终以4000万美元和解，且同意辞去特斯拉董事会主席职务3年。
+消息来源：
+[美国将对进口太阳能电池板使用中国材料的指称展开调查](https://www.voachinese.com/a/us-china-solar-panel-trade-20220404/6515505.html)
 
-马斯克认为，这是SEC报复他曾公开批评联邦金融监管机构，并指责SEC用“无止尽”和“毫无根据”调查，来骚扰他和特斯拉公司，试图侵害言论自由。
-
-来源｜[ALJ](https://www-aljazeera-com.translate.goog/economy/2022/2/22/musks-attorney-accuses-sec-of-leaking-details-of-investigation?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=op,sc)、[SBS](https://www.sbs.com.au/news/article/elon-musk-becomes-twitters-largest-shareholder-after-purchasing-3-8-billion-stake/7oisbwque)
-
-* * *
-
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

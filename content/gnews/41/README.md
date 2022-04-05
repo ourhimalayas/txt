@@ -2,33 +2,30 @@
 ---
 
 
-## 国际｜拜登再吁“战争罪审判普京” 将俄从人权理事会除名
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290856/)
+## 疫情｜台湾单日确诊创新高 清明连假近700例
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2292441/)
 
-**港台前线 zhong｜2022-4-5**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌战争持续，郭文贵曾于直播中透漏俄乌有和解可能性，且战争可能以其他形式延续一段时间。4日，美国总统拜登再次直呼俄罗斯总统普京为“战犯”（war criminal），呼吁以战争罪审判普京，并表示将提供乌克兰更多武器，对俄国采取更多制裁行动。
+**疫情关注组 zhong｜2022-4-5**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-1-2.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+台湾疫情爆发，今（5）中央流行疫情指挥中心公布单日确诊216例（本土病例），创下今年以来单日个案数新高，防疫指挥中心称“尚未达到疫情高峰”。4月1日至4日本土个案数分别为：104、160、183、133例。
 
-欧盟执委会主席冯德莱恩推文表示，欧盟将派遣调查人员前往乌克兰，协助“记录战争罪行”。德国外交部长贝尔伯克则宣布，驱逐40驻德俄国外交官。
+中央流行疫情指揮中心指揮官陳時中表示，未來若接種三劑新冠疫苗，考慮放寬自主健康管理數，甚至在疫調時可以不匡列。有反對意見者認為，接種三劑可免匡列，將導致社區再現突破性感染。
+
+据台湾媒体报导，台湾目前重症比例很低，占床率不足四成，台湾仍保留6成的医疗量能。医疗应变组副组长罗一钧说，目前全国专责病房、负压隔离病房使用率37.1%，全国2596床目前使用了964床，其中台北区（双北、基隆等）使用56%、北区（桃竹苗）占40%，医疗量能仍有余裕，也会持续做轻症分流。
+
+台湾疫情若失控，防疫指挥官陈时中表示，中（共）国的封控达不到效果，因此台湾整体战略就是趋近正常生活，在不限制和妨碍过大的情况下，积极抗疫，包括医疗资源分配、集中检疫所整备等，战略战术都很清楚。
+
+新冠口服药部分，有专家主张至少要准备百万份，惟陈时中认为新药有时效约拜年，口服药存量须经过计算，将浪费减到最低。台湾防疫政策，未考虑使用羟氯喹、青蒿素、伊维菌素等复方，仍以医药大厂开发的新冠口服药为主。
+
+台湾疫苗接种现况：
+
+- 第一剂83.4％
+- 第二剂78.28％
+- 基础加强剂0.81％：免疫不全或免疫低下的病人
+- 追加剂（第三剂）49.69％
 
 
-
-> I spoke with President [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) about the atrocious murder of civilians in Bucha and elsewhere in Ukraine.
->  
-> The EU is ready to send Joint Investigation Teams to document war crimes in coordination with the Ukrainian Prosecutor General.[@Europol](https://twitter.com/Europol?ref_src=twsrc%5Etfw) and [@Eurojust](https://twitter.com/Eurojust?ref_src=twsrc%5Etfw) will support.
-> — Ursula von der Leyen (@vonderleyen) [April 4, 2022](https://twitter.com/vonderleyen/status/1510964491378384898?ref_src=twsrc%5Etfw)
-
-
-
-联合国人权理事会2022年3月4日第49/1号决议，成立国际调查委员会，将对“俄罗斯侵略乌克兰涉嫌侵犯和践踏人权及违反国际人道主义法和相关罪行”进行调查。决议做成后，美国和其他40多个国家正在合作调查俄军的可能侵犯、虐待行为。
-
-## 美呼吁将俄从人权理事会中除名
-
-美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会暂停俄国在人权理事会的席位。他于记者会上明确表示，俄罗斯参与人权理事会是一场闹剧，且俄罗斯不应在人权理事会占据权威地位。
-
-美国驻联合国大使汤玛斯．葛林斐德，将在周三返回纽约后立刻将此事提交安全理事会。
-
-來源｜[UN HUMAN RIGHT](https://www.ohchr.org/en/press-releases/2022/03/president-human-rights-council-appoints-members-investigative-body-ukraine)、[npr](https://www.npr.org/2022/04/04/1090919925/u-s-ambassador-to-the-un-seeks-to-remove-russia-from-the-un-human-rights-council)
+来源｜[HEHO](https://heho.com.tw/archives/212968)、[聯合](https://health.udn.com/health/story/120950/6203198)、[三立](https://www.setn.com/News.aspx?NewsID=1095646)
 
 * * *
 

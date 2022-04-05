@@ -2,51 +2,36 @@
 ---
 
 
-## 教宗含蓄批评普京 准备访问基辅
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289614/)
+## 黑客组织“匿名者”：为对抗侵乌暴行公开了12万俄士兵个人数据
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2290662/)
 
-作者：纽约香草山教育部-Naughty(文行)
+**撰稿：日本东京方舟农场  子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+近期，黑客组织“匿名者”在推特上宣布，它成功入侵并泄露了12万名俄罗斯士兵的个人数据。同时声明说，“所有参与入侵乌克兰的士兵，都应该接受战争法庭的审判。”
 
+俄乌战争爆发后，匿名者集体宣布“针对俄罗斯政府的网络战争”已开始。且仅在战争的第一周，该组织就宣布，已成功入侵了三百多个俄罗斯网站。据悉，匿名者最近的其它行动，还包括入侵俄罗斯境内的打印机，将印刷反入侵的宣传品。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4.jpg)（图片来自大纪元）
 
+此次被公开的俄士兵个人数据，包括出生日期、地址、护照号码和所属单位等个人信息。该组织称他们的黑客攻击将直到俄罗斯停止他们的侵略为止。
 
+另据该组织的一名成员说，他们正指导俄罗斯民众如何安装开源软件，使人们能绕过国家的审查制度，访问外界的媒体资讯。
 
-教皇方济各4月2日表示，他正在考虑前往基辅，并含蓄地批评俄罗斯总统普京入侵乌克兰。
+越来越多的人开始密切关注俄军的暴行指控，如今有大量平民被虐待和杀害的证据，有人在院子、街道和汽车里发现了尸体。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-429.png)
+有信息表明，仅在布恰镇就有超过300人被杀害和遭受酷刑。乌克兰外长库列巴（Dmytro Kuleba）说，布恰平民被杀的证据只是“冰山一角”。
 
-在飞往马耳他进行为期两天访问的途中，当被问及是否准备访问基辅时，教宗表示正在计划中，但并未提及更多细节。
+乌克兰总统泽连斯基说，乌克兰正为俄军在乌克兰东部和南部“更加残酷的行动”做准备。
 
-据报道，教宗已经接收到乌克兰总统泽伦斯基（Volodymyr Zelenskiy）、基辅市长克里契科（Vitali Klitschko）、乌克兰拜占庭礼天主教会（Byzantine-rite Catholic Church）大总主教舍夫丘克（Sviatoslav Shevchuk）以及乌克兰驻教廷大使尤拉什（Andrii Yurash）的访问邀请。他还与乌克兰总统泽连斯基和大总主教舍夫丘克通了电话。
+此外，乌克兰国防部发言人莫图兹雅尼克（Oleksandr Motuzyanyk）表示，俄罗斯目前正在袭击卢甘斯克东部地区，同时准备袭击北顿涅茨克市，并试图占领马里乌波尔。
 
-教宗称俄罗斯发起的所谓“特殊军事行动”是一场战争，并不点名的批评了普京，称“一些陷入不合时宜的民族主义利益主张的权贵正再次挑起和煽动冲突”。教宗呼吁人们“在降临人类的战争之夜，不要让和平的梦想褪色。”
+这一消息随后得到美国国安顾问沙利文的证实，他表示，华盛顿正努力制定更多经济制裁，关于俄罗斯能源行业相关的“选项”已摆在桌面上。
 
-参阅链接：
-[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+参考链接：
+[https://www.epochtimes.com/gb/22/4/5/n13696353.htm](https://www.epochtimes.com/gb/22/4/5/n13696353.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿：遍地开花
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
+总编：青城道姑
+校对发布：文曦
 
  
 

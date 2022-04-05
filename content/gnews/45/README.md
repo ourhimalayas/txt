@@ -2,34 +2,32 @@
 ---
 
 
-## 拜登政府启动新的网络安全机构
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2290614/)
+## 国际｜马斯克成为推特最大股东 批：不遵守言论自由是破坏民主
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290950/)
 
-**撰稿：日本东京方舟农场  子辰**
+**
+港台前线 zhong｜2022-4-5**
+![這張圖片的 alt 屬性值為空，它的檔案名稱為 Best-Smartphone-This-Year-3.png](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+Twitter 股价盘前交易中大涨25%，先前美国证券交易委员会(SEC)的一份监管公告显示，特斯拉首席执行官马斯克(Elon Musk)持有该社交媒体平台9.2%的股份。Wedbush证券交割结算公司的分析师表示，他们认为马斯克收购普通股仅是为了与推特董事会和管理层展开更广泛的对话。
 
-4月4日，美国国务院宣布新成立的网络空间和数字政策局正式启动。该机构将用来应对新出现的网络安全问题。
+马斯克曾批评推特未严格遵守言论自由原则，是破坏民主的行为，甚至考虑自己建立一个新的社交媒体平台后，便收购了推特7,750万股股票（9.2%普通股）成为推特最大股东，价值约29亿美元。
 
-美国国务院（U.S. State Department）表示，新成立的网络空间和数字政策局（Bureau of Cyberspace and Digital Policy，简称CDP）将寻求“应对国家安全挑战、经济机遇，以及在网络空间、数字技术和数字政策领域对美国价值观的影响”。
+郭文贵于Gettr表示，马斯克收购推特股权对整个社交媒体以及推特投资者是好事，Gettr也可能一并受益。郭认为推特过去中共的走狗，马斯克成为最大股东一定会改变现状。马斯克于推特发起民意调查，称言论自由对民主运作至关重要，问道“您相信推特严格遵守言论自由此一原则吗？”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-5.jpg)（图片来自大纪元）
+马斯克于推特发起民意调查，共200多万人参与，结果显示逾7成用户不相信推特有严格遵守言论自由。
 
-据悉，新成立的这个CDP分为三个政策单位，每个单位都有自己的主管。这三个部门分别是：国际网络空间安全部门、国际信息和通信政策部门，以及数字自由部门。
+## 马斯克怒控SEC“骚扰”
 
-实际上，这个机构就是2018年特朗普政府为了精简国家安全委员会（National Security Council，简称NSC），将网络事务协调员办公室与另一个部门合并的前身。
+美国SEC于2018年9月指控马斯克8月在推特上宣布他已获得足够的资金，以每股420美元的价格将特斯拉私有化。经调查，SEC认定马斯克此举已该当诈欺，双方最终以4000万美元和解，且同意辞去特斯拉董事会主席职务3年。
 
-此前，特朗普政府国家安全委员会发言人罗伯特‧帕拉迪诺（Robert Palladino）曾表示，是为了“精简管理、提高效率，减少官僚主义，并增加责任感。”
+马斯克认为，这是SEC报复他曾公开批评联邦金融监管机构，并指责SEC用“无止尽”和“毫无根据”调查，来骚扰他和特斯拉公司，试图侵害言论自由。
 
-新成立的网络空间和数字政策局在其网站上宣布，它将“鼓励网络空间中负责任的国家行为，推进保护互联网基础设施的完整性和安全性的政策，服务于美国的利益，提高竞争力，并维护民主价值观”。同时，它将“反对在网络空间采取压制性和威权主义的做法，以及试图使之合法化的努力”。
+来源｜[ALJ](https://www-aljazeera-com.translate.goog/economy/2022/2/22/musks-attorney-accuses-sec-of-leaking-details-of-investigation?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=op,sc)、[SBS](https://www.sbs.com.au/news/article/elon-musk-becomes-twitters-largest-shareholder-after-purchasing-3-8-billion-stake/7oisbwque)
 
-鉴于全球的威权主义正在复苏。尤其是来自中共和俄罗斯国家机构的网络威胁。新成立的网络空间和数字政策局将对拜登政府的国家安全战略带来帮助。而该战略预计将延续特朗普时代的战略，即把中共视为最紧迫的国家安全威胁。
+* * *
 
-此外，有专家警告说，中共和俄罗斯的互联网架构，正在与世界其它地区脱钩。它会有效地削弱全球互联网走向自由和开放，并将全球的大部分区域打造成分隔和受控制的区域。
-
-参考链接： 
-[https://www.epochtimes.com/gb/22/4/4/n13695835.htm](https://www.epochtimes.com/gb/22/4/4/n13695835.htm)
-
-总编：老孙
-校对发布：文曦
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

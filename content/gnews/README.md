@@ -15,161 +15,161 @@
 
 ---
 
-### [装置作品《受伤的和平鸽》](/content/gnews/1/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月5日早](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [装置作品《受伤的和平鸽》](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/2/README.md)
+### [有声|以色列志愿者将在新中国联邦帐篷内庆祝逾越节](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|中共国疫情的爆发是疫苗所致](/content/gnews/3/README.md)
+### [有声|中共国疫情的爆发是疫苗所致](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声|英国称对乌平民的袭击必以战争罪调查](/content/gnews/4/README.md)
+### [有声|英国称对乌平民的袭击必以战争罪调查](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [印度为俄罗斯外长铺设红地毯](/content/gnews/5/README.md)
+### [印度为俄罗斯外长铺设红地毯](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/6/README.md)
+### [有声|教皇含蓄地批评普京对乌克兰的入侵](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [老虎：我感觉我要去打美国大师赛了](/content/gnews/7/README.md)
+### [老虎：我感觉我要去打美国大师赛了](/content/gnews/8/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/8/README.md)
+### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/9/README.md)
+### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/10/README.md)
  ` NFSC News`
 
-### [台湾，乌克兰危机期间被中共国的野心围困的创新堡垒](/content/gnews/10/README.md)
+### [台湾，乌克兰危机期间被中共国的野心围困的创新堡垒](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/11/README.md)
+### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/12/README.md)
+### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊隆-马斯克成为推特最大股东，利好全球灭共局势](/content/gnews/13/README.md)
+### [伊隆-马斯克成为推特最大股东，利好全球灭共局势](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/14/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【转】截至4.5 俄乌战事汇总](/content/gnews/15/README.md)
+### [【转】截至4.5 俄乌战事汇总](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/16/README.md)
+### [泽连斯基怼联合国：立即行动或彻底解散](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/17/README.md)
+### [立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/18/README.md)
  ` NFSC News`
 
-### [联合国难民署称乌克兰难民已突破420万](/content/gnews/18/README.md)
+### [联合国难民署称乌克兰难民已突破420万](/content/gnews/19/README.md)
  ` NFSC News`
 
-### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/19/README.md)
+### [德法两国驱逐数十名俄罗斯外交官](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [死灰复燃的“枫桥经验”](/content/gnews/20/README.md)
+### [死灰复燃的“枫桥经验”](/content/gnews/21/README.md)
  ` NFSC News`
 
-### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/21/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/22/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/22/README.md)
+### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|俄军士兵用乌军子弹自残逃避战争](/content/gnews/23/README.md)
+### [有声|中共網軍們因為餐廳展示台灣國旗給負評](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/24/README.md)
+### [有声|俄军士兵用乌军子弹自残逃避战争](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [有声|4月3日俄乌交战最新进展](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/25/README.md)
+### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/26/README.md)
+### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/29/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生](/content/gnews/27/README.md)
+### [4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [英美呼吁暂停俄罗斯人权理事国地位](/content/gnews/28/README.md)
+### [日本央行行长称日元贬值 “有点快”](/content/gnews/31/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [英美呼吁暂停俄罗斯人权理事国地位](/content/gnews/32/README.md)
  ` 银河歌舞厅`
 
-### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/29/README.md)
+### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/33/README.md)
  ` 银河歌舞厅`
 
-### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [4/3/2022 文贵直播：青蒿素救人无数，不仅治好了无数癌症患者，而且还对治疗疫苗副作用很有效；术后人士吃青蒿素要小心并遵医嘱](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
-
-### [文贵先生两首新歌正式上线 再创辉煌](/content/gnews/32/README.md)
+### [新冠疫苗推出后去年全球死亡人数猛增](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/33/README.md)
+### [中共国正在寻求被制裁的俄罗斯低价天然气](/content/gnews/35/README.md)
+ ` 银河歌舞厅`
+
+### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [4/3/2022 文贵直播：青蒿素救人无数，不仅治好了无数癌症患者，而且还对治疗疫苗副作用很有效；术后人士吃青蒿素要小心并遵医嘱](/content/gnews/37/README.md)
+ ` 秘密翻译组-北美组`
+
+### [文贵先生两首新歌正式上线 再创辉煌](/content/gnews/38/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/34/README.md)
+### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/35/README.md)
+### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/41/README.md)
  ` 關注組`
 
-### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/36/README.md)
+### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/42/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻在线：婴幼儿因中共病毒与父母分离，人间悲剧何时止！](/content/gnews/37/README.md)
+### [秘翻在线：婴幼儿因中共病毒与父母分离，人间悲剧何时止！](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜黑龙江抗疫医生自杀消息疯传 传生前受辱](/content/gnews/38/README.md)
+### [有声｜黑龙江抗疫医生自杀消息疯传 传生前受辱](/content/gnews/44/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜上海防疫“一团乱” 居委会女官崩溃痛哭录音热传](/content/gnews/39/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [国际｜马斯克成为推特最大股东 批：不遵守言论自由是破坏民主](/content/gnews/40/README.md)
+### [国际｜马斯克成为推特最大股东 批：不遵守言论自由是破坏民主](/content/gnews/45/README.md)
  ` 關注組`
 
-### [国际｜拜登再吁“战争罪审判普京” 将俄从人权理事会除名](/content/gnews/41/README.md)
+### [国际｜拜登再吁“战争罪审判普京” 将俄从人权理事会除名](/content/gnews/46/README.md)
  ` 關注組`
 
-### [疫情｜瑞典扩大第四剂新冠疫苗接种范围](/content/gnews/42/README.md)
+### [疫情｜瑞典扩大第四剂新冠疫苗接种范围](/content/gnews/47/README.md)
  ` 關注組`
 
-### [黑客组织“匿名者”：为对抗侵乌暴行公开了12万俄士兵个人数据](/content/gnews/43/README.md)
+### [黑客组织“匿名者”：为对抗侵乌暴行公开了12万俄士兵个人数据](/content/gnews/48/README.md)
  ` 日本東京方舟農場`
 
-### [五角大楼：乌克兰实验室没有进攻性的生物武器](/content/gnews/44/README.md)
+### [五角大楼：乌克兰实验室没有进攻性的生物武器](/content/gnews/49/README.md)
  ` 日本東京方舟農場`
 
-### [拜登政府启动新的网络安全机构](/content/gnews/45/README.md)
+### [拜登政府启动新的网络安全机构](/content/gnews/50/README.md)
  ` 日本東京方舟農場`
 
-### [2022年4月4日郭先生盖特 — 视频1「9分36秒」](/content/gnews/46/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [白宫：美国及其盟国将对俄罗斯实施新的制裁](/content/gnews/47/README.md)
+### [白宫：美国及其盟国将对俄罗斯实施新的制裁](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [教宗含蓄批评普京 准备访问基辅](/content/gnews/48/README.md)
+### [教宗含蓄批评普京 准备访问基辅](/content/gnews/52/README.md)
  ` GTV News Talk`
-
-### [欧盟在欧中锋会中表达多项立场及关切台海情势](/content/gnews/49/README.md)
- ` GTV News Talk`
-
-### [乌克兰部队继续向基辅附近的俄罗斯部队作战](/content/gnews/50/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯军队在乌克兰损失惨重](/content/gnews/51/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [联盟工作汇报文字版2022.4.3](/content/gnews/52/README.md)
- ` 纽约香草山MOS02`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

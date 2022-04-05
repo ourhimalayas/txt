@@ -2,21 +2,32 @@
 ---
 
 
-## 文贵先生两首新歌正式上线 再创辉煌
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293376/)
+## 英美呼吁暂停俄罗斯人权理事国地位
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293679/)
 
-撰稿：活力人生
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/US-UN-Human-Rights-GettyImages-1152045840.jpg)
+当地时间4月4日周一，美国驻联合国大使琳达·托马斯·格林菲尔德表示，因俄罗斯对乌克兰的入侵，俄参加联合国人权理事国简直是一场闹剧，目前美国正在推动将俄罗斯从人权理事国成员地位驱逐。据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经对人权和生命造成了巨大损失。目前需要联合国大会193个成员国三分之二的支持才能将俄罗斯剔出该组织。自2月24日俄入侵以来，已经有140票通过了两项谴责俄罗斯的决议。
 
-美东时间4月4日凌晨，郭文贵先生在社交媒体盖特上宣布，他的两首新歌《灭共的雪》和《铁锁梦》已经正式在苹果iTunes和苹果音乐平台上线，同时号召全球的音乐粉丝们打榜支持。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-05-at-11.25.29-AM.png)
-《灭共的雪》的推出最初是为了破解中共利用北京冬奥会进行的无耻宣传，同时也表达了灭共的坚定决心。《铁锁梦》则是以震惊世界的锁链女事件为背景，控诉了中共套在中国人脖子上的枷锁，听之催人泪下。
+在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事国的成员，应该被剔除。
 
-郭文贵先生此前的作品曾多次创造佳绩。单曲《马背英雄》上线仅仅数小时，就迅速登上iTunes 包括加拿大在内的多国排行榜冠军，并持续在榜多周。更是夺下了华人乐坛首个Billboard公告牌硬摇滚数码歌销售榜冠军。
+reference：
 
-郭文贵先生盖文链接：[https://gettr.com/post/p13gzsh8306](https://gettr.com/post/p13gzsh8306)
+[https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html](https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html)
 
-编辑/上传：文所未闻
+撰稿、发布：骄子
 
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

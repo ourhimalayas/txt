@@ -2,36 +2,34 @@
 ---
 
 
-## 疫情｜台湾单日确诊创新高 清明连假近700例
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2292441/)
+## 中共国正在寻求被制裁的俄罗斯低价天然气
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293587/)
 
-**疫情关注组 zhong｜2022-4-5**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-1-2.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-台湾疫情爆发，今（5）中央流行疫情指挥中心公布单日确诊216例（本土病例），创下今年以来单日个案数新高，防疫指挥中心称“尚未达到疫情高峰”。4月1日至4日本土个案数分别为：104、160、183、133例。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151024.jpeg)
+近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
 
-中央流行疫情指揮中心指揮官陳時中表示，未來若接種三劑新冠疫苗，考慮放寬自主健康管理數，甚至在疫調時可以不匡列。有反對意見者認為，接種三劑可免匡列，將導致社區再現突破性感染。
+交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
 
-据台湾媒体报导，台湾目前重症比例很低，占床率不足四成，台湾仍保留6成的医疗量能。医疗应变组副组长罗一钧说，目前全国专责病房、负压隔离病房使用率37.1%，全国2596床目前使用了964床，其中台北区（双北、基隆等）使用56%、北区（桃竹苗）占40%，医疗量能仍有余裕，也会持续做轻症分流。
+中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
 
-台湾疫情若失控，防疫指挥官陈时中表示，中（共）国的封控达不到效果，因此台湾整体战略就是趋近正常生活，在不限制和妨碍过大的情况下，积极抗疫，包括医疗资源分配、集中检疫所整备等，战略战术都很清楚。
+reference：
 
-新冠口服药部分，有专家主张至少要准备百万份，惟陈时中认为新药有时效约拜年，口服药存量须经过计算，将浪费减到最低。台湾防疫政策，未考虑使用羟氯喹、青蒿素、伊维菌素等复方，仍以医药大厂开发的新冠口服药为主。
+[https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/](https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/)
 
-台湾疫苗接种现况：
-
-- 第一剂83.4％
-- 第二剂78.28％
-- 基础加强剂0.81％：免疫不全或免疫低下的病人
-- 追加剂（第三剂）49.69％
-
-
-来源｜[HEHO](https://heho.com.tw/archives/212968)、[聯合](https://health.udn.com/health/story/120950/6203198)、[三立](https://www.setn.com/News.aspx?NewsID=1095646)
+撰稿、发布：骄子
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
