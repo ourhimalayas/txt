@@ -16,6 +16,8 @@
 ---
 ## 頁面 2/41 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [41](/content/README-41.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)
 
+[2022年02月24日 郭文贵先生紧急直播 全文字版](/content/2022/02/20220224-2062121.md)
+
 [郭文贵先生2022年2月24日盖特视频（10分00秒）全文字版](/content/2022/02/20220224-2061757.md)
 
 [2022年2月23日 《文贵大直播》全文字版](/content/2022/02/20220223-2060335.md)
@@ -63,8 +65,6 @@
 [郭文贵先生2022年1月26日盖特视频第二段（7分29秒）全文字版](/content/2022/01/20220126-1916167.md)
 
 [2022年1月25日郭文贵先生紧急直播全文字版](/content/2022/01/20220125-1912226.md)
-
-[2022年1月24日郭文贵先生直播全文字版](/content/2022/01/20220124-1909538.md)
 
 
 ## 頁面 2/41 [**<**](/content/README.md) [1](/content/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [41](/content/README-41.md) [**>**](/content/README-3.md) [查看全部](/content/README-all.md)

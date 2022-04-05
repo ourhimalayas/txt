@@ -16,6 +16,8 @@
 ---
 ## 頁面 15/41 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [41](/content/README-41.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)
 
+[文字版：6月4日郭先生与班农先生船上直播谈新中国联邦宣言的历史意义](/content/2020/06/20200609-6663996851433423244.md)
+
 [新中国联邦六四建国直播图文版](/content/2020/06/20200606-8976575972430129554.md)
 
 [文字版:郭先生6月2日直播-正式宣布GTV完成私募](/content/2020/06/20200604-1889289193459336361.md)
@@ -63,8 +65,6 @@
 [文字版：5月7日郭先生GTV直播连线面具先生](/content/2020/05/20200510-804572389139208796.md)
 
 [文字版：5月6日郭先生GTV直播连线Twins](/content/2020/05/20200510-2903203991693841280.md)
-
-[文字版：郭先生5月5日GTV直播](/content/2020/05/20200507-1653317726052582270.md)
 
 
 ## 頁面 15/41 [**<**](/content/README-14.md) [1](/content/README.md) ... [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) **15** [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) ... [41](/content/README-41.md) [**>**](/content/README-16.md) [查看全部](/content/README-all.md)

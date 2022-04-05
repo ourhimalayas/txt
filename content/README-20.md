@@ -16,6 +16,8 @@
 ---
 ## 頁面 20/41 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [41](/content/README-41.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月23日文贵在凤凰城提醒香港同胞一定不要被CCP分化](/content/2019/12/20191228-6154119938253081684.md)
+
 [文字版：2019年12月22日文贵在亚利桑那州凤凰城报平安](/content/2019/12/20191224-7733122154135213265.md)
 
 [ 文字版:2019年12月21日文贵报平安谈谈欺诈犯郭宝胜庭审细节和海外华人形象危机](/content/2019/12/20191223-5404079886262729317.md)
@@ -63,8 +65,6 @@
 [文字版：2019年11月26日郭文贵先生与中国威胁论创始人比尔格兹先生直播](/content/2019/11/20191128-7131783827849750716.md)
 
 [文字版：郭文贵先生1120一周年再次联手定点爆破，王健之死浮出水面（精华版）](/content/2019/11/20191126-8526960149542259140.md)
-
-[文字版：2019年11月24日郭文贵先生马装助威香港公投选举议员](/content/2019/11/20191125-2755101729158304751.md)
 
 
 ## 頁面 20/41 [**<**](/content/README-19.md) [1](/content/README.md) ... [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) **20** [21](/content/README-21.md) [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) ... [41](/content/README-41.md) [**>**](/content/README-21.md) [查看全部](/content/README-all.md)

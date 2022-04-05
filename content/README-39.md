@@ -16,6 +16,8 @@
 ---
 ## 頁面 39/41 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)
 
+[文字版 郭先生10月27报平安](/content/2018/04/20180418-1204915936908036259.md)
+
 [2017年10月26日郭文贵直播十九大后爆料计划](/content/2018/04/20180418-5280457825220252571.md)
 
 [翻译：自由灯塔：美国社交媒体堵嘴中国异议人士](/content/2018/04/20180418-8757739535920514791.md)
@@ -63,8 +65,6 @@
 [(三）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-239017834240302827.md)
 
 [（二）2017郭文贵爆料到国贼全球发“不”会第四集 ](/content/2018/04/20180418-144661617364703849.md)
-
-[（一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-7734893512727563056.md)
 
 
 ## 頁面 39/41 [**<**](/content/README-38.md) [1](/content/README.md) ... [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [38](/content/README-38.md) **39** [40](/content/README-40.md) [41](/content/README-41.md) [**>**](/content/README-40.md) [查看全部](/content/README-all.md)
