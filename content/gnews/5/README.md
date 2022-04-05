@@ -2,29 +2,20 @@
 ---
 
 
-## 如果受到韩国攻击，北朝鲜将以核力量应对&#8211;金与正(2/2)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293389/)
+## 数据显示千禧一代正经历史上超高死亡率
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293511/)
 
-翻译：天天
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
-[上一篇：如果受到韩国攻击，北朝鲜将以核力量应对–金与正(1/2)](https://gnews.org/zh-hans/2293374/)
+采编： 坐看云起时             编译： 晨熹
 
-根据美国国务院的一份声明，尹锡悦即将上任的政府团队的代表本周将访问华盛顿，与承诺保卫韩国的政府官员会面。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-509.png)
-在会谈中，金与正指出，北朝鲜不把韩国视为主要敌人，除非韩国发起军事行动，否则不会把韩国作为攻击目标。 然而，如果韩国采取军事行动，如先发制人的打击，”情况将发生变化，韩国本身将成为一个目标”，她继续说。
+据自媒体【网关专家】3月19日报道，金融专家、贝莱德爆料人爱德华·多德在本周班农作战室节目时讨论了他的发现：CDC最新数据显示，2021年最后四个月，美国25至44岁的千禧一代死亡率增加了创纪录的84%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-16.png)图片来源：Gateway Pundit
+这等同于在四个月里经历了一场越南战争，数字让人震惊且难以置信。自疫苗推出以来，千禧一代的死亡人数直线上升，在联邦政府实施相关疫苗政策时达到顶峰。最令人担忧的是，这种“令人不安”的趋势正在持续，甚至会变得更糟。真正的损害程度还需要更长的一段时间来证明。但同时可以看到，每个年龄群体的死亡人数都在急剧上升，只是不像千禧一代那么明显。
 
-她警告说，如果韩国军队对朝鲜领土进行哪怕是最轻微的入侵，都会面临 “无法想象的灾难”。 她还说，朝鲜的核部队将不得已执行其任务。
+多德先生认为，这是杀戮，是政府通过强制（疫苗）政策来杀人！
 
-“这并不单单是一个威胁。 而是对在韩国采取大胆军事行动的情况下我们的反应进行详细的解释”，并认为韩国可以通过放弃对一个有核国家发动先发制人打击的“不切实际的梦想”来避免一场大灾难。
+新闻来源：[https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduce](https://www.thegatewaypundit.com/2022/03/shocking-millennials-experienced-worst-ever-excess-mortality-history-84-increase-deaths-causes-vaccine-mandates-introduce)
 
-参考链接：[北朝鮮、攻撃されれば韓国に核で対応へ─金与正氏＝ＫＣＮＡ（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/53f1e89bc05e94f7950980e306f9966a5d505926)
-
-* * *
-
-审核：Bryan
-校对/发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
-
+编辑/上传：文所未闻
 
  
 

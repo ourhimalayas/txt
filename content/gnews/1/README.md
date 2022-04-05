@@ -2,26 +2,24 @@
 ---
 
 
-## 西方考虑向乌克兰提供反舰导弹
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2293421/)
+## 埃隆·马斯克成为推特最大的股东
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293655/)
 
-**撰稿：日本东京方舟农场  北极**
+采编/编译撰稿：薇文
 
-据inews网站4月4日报道，西方正在考虑向乌克兰提供反舰导弹，以阻止俄罗斯夺取该国整个海岸线的企图。
+据美国【每日电讯】4日新闻，特斯拉首席执行官埃隆·马斯克已收购推特公司9.2%的股份，成为这个左翼社交媒体平台的最大股东。此举发生在马斯克开玩笑要改组推特，建立一个言论自由的新社交媒体平台之后。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-64.png)乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）发表视频讲话。（图片来自乌克兰信息报）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-18.png)图片来源： daily wire
 
-据悉，为了回应乌克兰总统沃洛季米尔·泽伦斯基（Volodymyr Zelensky）的要求，西方正在考虑提供反舰导弹帮助乌克兰军队保卫其仍然控制的黑海沿岸地区。
+马斯克目前拥有9.2%的股份，是推特创始人杰克·多尔西的四倍，后者拥有2.25%的股份。监管机构周一公布该文件后，推特股价在盘前交易中飙升约26%。
 
-一名西方官员透露，乌克兰提出了一个相当全面的需求清单，涵盖了从导弹到装甲车的很多东西，美国和北约目前正在关注这个问题。
+马斯克在2月24~26日，在其推特账号上，对推特“是否应该开放源代码”、“是否严格遵守了言论自由原则” 和 “推特是否需要一个新平台” 进行了三天民意调查。上百万人参与投票，70%以上对推特持否定态度。马斯克表示，建立一个把坚持言论自由放在首位、减少宣传的开源算法的平台是必要的，他正在考虑这个问题。
 
-这位官员补充说，虽然五角大楼对提供更多军事装备持谨慎态度，但也有分析人士指出，早就应该向乌克兰提供强大的武器装备以奠定局势。
+新闻链接：[BREAKING: Elon Musk Becomes Twitter’s Largest Shareholder After Shakeup Tease](https://www.dailywire.com/news/breaking-elon-musk-becomes-twitters-largest-shareholder-after-shakeup-tease)
 
-参考链接：
-[https://reurl.cc/KpmYjj](https://reurl.cc/KpmYjj)
+编辑/上传：文所未闻
 
-总编：青城道姑
-校对发布：爱放飞
+
 
  
 

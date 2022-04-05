@@ -2,42 +2,21 @@
 ---
 
 
-## 中共特务郑介甫被遣返，下一个是鸡腿潘
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2293350/)
+## 加拿大试图加强关键矿产业本地化
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2293417/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11111.jpg)
-近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
+采编： 文莱             编译： 晨熹
 
-早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。后中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
+据自媒体【真北方】4月3日报道，受政府法规影响，加拿大公司很难吸引到对关键矿业的投资，但西北地区通过原住民参与的加拿大第一个稀土矿产开采正取得进展。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-15.png)图片来源：True North
+这是加拿大第一个与原住民团体合作的项目，去年已开采5,000 吨稀土。同时正在实施的还有因纽特天然气项目。加拿大工业、旅游和投资部长卡罗琳·沃佐内克认为，这证明加拿大是可以成为独立于中俄外的国际稀有资源开采的重要参与者。
 
-郭先生在2017年直播中对此事进行了阐述，郭先生根本不认识郑介甫，郑因利益纠纷让天津经侦把赵云安抓了。赵找郭先生帮忙，郭先生为了救赵出来，就有条件收购了郑的公司，因郑的公司都是骗取的国有资产，债权非常复杂。收购经手人是曲龙，曲龙把这个公司的资产全部自我侵吞，并且要把郭先生灭口。郑欠谢建升钱，谢找了中共经侦来抓郭先生。从整件事来看，郭先生和这个郑介甫根本不存在任何法律关系，收购经手人是曲龙，这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
+但加拿大关键矿产行业领导人抨击自由党政府，指责现行排放标准阻碍了加拿大绿色能源发展。同时，政府的2030年减排计划目标更是无法实现的幻想。
 
-2017年郭先生美国之音断播门事件第二天，郑又在媒体大肆诬告郭先生所言都不真实，爆料只是为引起媒体关注。
+新闻来源：[https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/](https://tnc.news/2022/04/03/northwest-territories-touts-indigenous-operated-natural-gas-critical-mineral-projects/)
 
-时隔五年，郑介甫被遣返。郭先生在2022年4月4号直播中说，时间会给人一切答案，跟着共产党，走进火葬场。目前澳大利亚政府名单上面有40多个为中共卖命的人要被遣返，下一个就是鸡腿潘。
+编辑/上传：文所未闻
 
-reference：
-
-[https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html](https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html)
-
-[https://gnews.org/zh-hans/2286058/](https://gnews.org/zh-hans/2286058/)
-
-[https://youtu.be/qUNteNSEwmA](https://youtu.be/qUNteNSEwmA)
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

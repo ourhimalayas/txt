@@ -2,69 +2,45 @@
 ---
 
 
-## 有声|捡破烂的老人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2293116/)
+## 所罗门群岛不允许中共军事入驻
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2293334/)
 
-粵語配音：香草山香港部 – 格格樹
+作者：银河系农场—骄子
 
-她每天拉着架子车
-车上装满瓶子和纸壳
-每天弯腰无数次
-一个个瓶子
-一片片纸壳
-装满了她的架子车
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
-架子车啊
-是她生命的活
-没有它
-生活就会没有着落
-风里来，雨里去
-天天捡点破烂
-存在破屋
 
-七十二岁的她
-遇到了人道救助的他
-送来大米白面
-这些久违的它
-谢谢你，好心人
-我给你跪下
 
-救助的车徐徐离开
-老人跟着后面
-不舍的说再见
-她心里是这么的酸
-想哭想笑
-也想喊一喊
-遥遥的
-又跪下了膝盖
-衰老的头啊
-深深的贴在地面
 
-每天的日子重复着
-怀念曾经送米面的人啊
-你们何时再来
-这年老人孤独日子里
-唯一温暖
-总也念念不忘
-深深怀念
-这是她
-凄苦日子里
-唯一温暖
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AY4OMQVEL5KDZOBQWNR7RKXOWM.jpg)
+近日所罗门总理表示，不允许中共在本国建立军事基地。
 
-文字版原文：[捡破烂的老人](https://gnews.org/zh-hans/2292245/)
+据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
 
-音频处理：Fei797
-发稿：Fei797
+澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+新闻来源：[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
+
+编辑/校对/发:小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

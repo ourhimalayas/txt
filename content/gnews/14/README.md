@@ -2,43 +2,28 @@
 ---
 
 
-## 所罗门群岛不允许中共军事入驻
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2293334/)
+## 如果受到韩国攻击，北朝鲜将以核力量应对&#8211;金与正(2/2)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2293389/)
 
-作者：银河系农场—骄子
+翻译：天天
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
+[上一篇：如果受到韩国攻击，北朝鲜将以核力量应对–金与正(1/2)](https://gnews.org/zh-hans/2293374/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+根据美国国务院的一份声明，尹锡悦即将上任的政府团队的代表本周将访问华盛顿，与承诺保卫韩国的政府官员会面。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-509.png)
+在会谈中，金与正指出，北朝鲜不把韩国视为主要敌人，除非韩国发起军事行动，否则不会把韩国作为攻击目标。 然而，如果韩国采取军事行动，如先发制人的打击，”情况将发生变化，韩国本身将成为一个目标”，她继续说。
 
+她警告说，如果韩国军队对朝鲜领土进行哪怕是最轻微的入侵，都会面临 “无法想象的灾难”。 她还说，朝鲜的核部队将不得已执行其任务。
 
+“这并不单单是一个威胁。 而是对在韩国采取大胆军事行动的情况下我们的反应进行详细的解释”，并认为韩国可以通过放弃对一个有核国家发动先发制人打击的“不切实际的梦想”来避免一场大灾难。
 
+参考链接：[北朝鮮、攻撃されれば韓国に核で対応へ─金与正氏＝ＫＣＮＡ（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/53f1e89bc05e94f7950980e306f9966a5d505926)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/AY4OMQVEL5KDZOBQWNR7RKXOWM.jpg)
-近日所罗门总理表示，不允许中共在本国建立军事基地。
+* * *
 
-据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
-
-澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
-
-新闻来源：[https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/](https://www.reuters.com/world/asia-pacific/solomon-islands-says-wont-allow-chinese-military-base-knows-ramification-2022-04-01/)
-
-编辑/校对/发:小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
+审核：Bryan
+校对/发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
 
 
  
