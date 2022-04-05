@@ -2,11 +2,11 @@
 ---
 
 
-## 新世界-乌克兰为中心的欧洲（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289332/)
+## 七哥、爆料革命的一路的艰难和付出（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289369/)
 
-#### PPT制作：0-0 ；rmrf
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-3-9-910-920-2_3.jpeg)
+#### PPT制作：Qingjing ；玉米地的
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-930-940-1_2.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：
