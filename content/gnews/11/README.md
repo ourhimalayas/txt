@@ -2,30 +2,35 @@
 ---
 
 
-## 中共秘密拘留是如何大行其道的
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2291286/)
+## 布查惨案，击穿了人类所有善良和理性的底线！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2291366/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-05-165142.jpg)
-1月11日前夕，前律师和人权维护者谢阳正在与在英国的中国法律学生林登·李进行视频通话，警察突然出现在他家，通话戛然而止。
+撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+据纽约时报报道：卫星照片显示尸体在乌克兰城市Bucha中躺了数周，这反驳了俄罗斯声称该场景是在他们离开后上演的。由于俄军在乌克兰涉嫌滥杀平民的暴行罪证确凿，莫斯科星期一（4月4日）面临全球新一波的声讨和谴责，但北京对此却仍保持沉默。
 
-几天内就有消息称中共当局带走了谢阳——这并不是第一次了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-74.jpg)
 
-通常被带走的人权律师会在中共的秘密监狱系统或指定地点监视居住系统（RSDL）中呆至少几个月，经历长期的、严重的身体和心理折磨。
+布查惨案震动了世界，欧美和北约领导人纷纷发出强烈的谴责，要求以战争罪调查，同时表示将立即增加对俄罗斯的制裁、加大对乌克兰的援助。拜登总统周一表示，他认为俄罗斯在乌克兰城市布查犯下了战争罪行，并承诺对莫斯科实施进一步制裁。拜登在抵达华盛顿特区麦克奈尔堡时对记者说：“这个人很残暴，布查发生的事情令人发指，每个人都看到了，我认为这是战争罪。我正在寻求更多的制裁。”简短的讲话代表了拜登对乌克兰首都西北部城镇布查的破坏的首次评论。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-491.png)
 
-RSDL系统是在习近平掌权后建立的，随着这位领导人对中共国社会的控制不断加强，它的范围和规模也在不断扩大。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-490.png)
 
-RSDL允许警察将任何目标从街上带走，将他们置于秘密地点的单独监禁中，与外界隔绝，并拒绝让他们的家人或其他人知道他们的下落。这实质上是合法的绑架。
+乌克兰泽连斯基总统在布查视察了对乌克兰国家犯下战争罪行的现场后，他强烈指责俄罗斯的种族灭绝！呼吁国际社会就俄军涉嫌滥杀平民的暴行对莫斯科实施进一步的制裁！
 
-有了RSDL，中共警方大大地扩大了他们的权力，其方式或多或少地破坏了人们所期望的每一项基本权利。被纳入RSDL的人不能被关押在拘留所、警察局或任何被认为是 “办案区 “的地方。相反，警察可以使用定制的设施，例如，秘密监狱和受控设施中的翻新房间，如招待所、培训中心等。
+独裁者的无耻是没有底线的，普京竟然还说到乌克兰去抓新纳粹，简直是胡说八道、无耻至极！看看布查惨案，独裁者普京根本不是到乌克兰抓新纳粹，而是到乌克兰去当新纳粹！普京不等于俄罗斯人，普京不能继续执政，世界正义的力量正在进行强力反击，独裁者普京和邪恶的习近平终将被历史的车轮碾得粉碎！！
 
-中共以黑治国，以警治国的非法与非人道的手段是郭文贵先生一直在直播中告诉我们。
+消息来源：[Biden says Bucha killings are a war crime’ | The Hill](https://thehill.com/policy/international/3258232-biden-vows-more-sanctions-on-russia-over-bucha-killings/)
 
-近期，媒体在广泛的传播中共的秘密监狱系统或指定地点监视居住系统（RSDL）。以下是谷歌搜索的截图：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-05-164641.jpg)
-中共的末日审判加快了。
-
-**新闻来源**： [https://www.theepochtimes.com/chinas-legal-system-steps-up-use-of-secret-detentions\_4347759.html](https://www.theepochtimes.com/chinas-legal-system-steps-up-use-of-secret-detentions_4347759.html)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,54 +2,40 @@
 ---
 
 
-## 接受中共军事部署的赛尔维亚总统设计连任
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2290557/)
+## 五角大楼：乌克兰实验室没有进攻性的生物武器
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2290643/)
 
-作者：波士顿五月花 – 文雀
+**撰稿：日本东京方舟农场  子辰**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/03/good-84.png)
+近期，五角大楼一位官员向国会作证说，在美国资助的乌克兰生物实验室里“没有进攻性生物武器”。
 
+国防部长黛博拉·罗森鲍姆（Deborah Rosenbaum）是负责核、化学和生物防御项目的助理。她在4月1日对众议院情报和特种作战小组委员会（House Subcommittee on Intelligence and Special Operations）表示：“毫无疑问在美国参与的乌克兰实验室里，没有进攻性生物武器。”
 
-据4 月 3 日&lt;路透社&gt;报导，民意调查机构益普索和 CeSID 根据部分投票站计数样本的预测，塞尔维亚现任总统亚历山大·武契奇（Aleksandar Vucic）将于周日以 59.8% 的选票赢得连任。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-04-234044.jpg)图片来源：路透社
-武契奇表示，将坚持军事中立。尽管塞尔维亚支持两项谴责俄罗斯入侵乌克兰的联合国决议，但拒绝对莫斯科实施制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-3-1.jpg)（图片来自大纪元）
 
-塞尔维亚几乎完全依赖俄罗斯的天然气，而其军队也与俄罗斯军方保持联系。
+据悉，美国国防威胁降低局（Defense Threat Reduction Agency，简称DTRA）资助了乌克兰的实验室。DTRA是美国国防部对付大规模杀伤性武器的一个支持机构。美乌官员都表示，实验室进行研究的目的是防止生物及细菌武器。
 
-武契奇已将自己从一个民族主义煽动者，转变为欧盟成员国、军事中立以及与俄罗斯和中共国关系的支持者。
+俄罗斯入侵乌克兰之前，俄罗斯官方媒体就开始指责称，美国资助的乌克兰实验室正在发展生物战武器。
 
-排名第二的亲欧洲派和中间派的胜利联盟的退役陆军将军波诺斯（Ponos）得票率为17.1％。他指责武契奇在竞选活动中利用乌克兰战争给人们带来的恐惧，来操控选情。
+3月6日，俄罗斯国防部（Russian Ministry of Defense）在Telegram上发表声明，指责乌克兰方面已经销毁了一个正在研究的致病病原体。并声称，这个实验室是由美国国防部资助的。与此同时，中共方面也重复了莫斯科对于乌克兰实验室的指控。
 
-反对派和权利监督机构还指责武契奇及其盟友的专制统治风格、腐败、裙带关系、控制媒体、攻击政治对手以及与有组织犯罪的关系。武契奇和他的盟友则否认所有这些指控。
+随后，世卫组织也在3月份表示，它建议乌克兰卫生部（Ministry of Health in Ukraine）销毁“高威胁性病原体，以防止任何潜在的溢漏发生”。
 
-据文贵先生4月3日直播中的爆料，在5天之前，该国已接受中共红旗导弹与反导弹系统的部署，这将是北约对乌克兰未来的空中支援的绝对威胁。
+罗森鲍姆告诉美国官员，国防部力求向美国公众及我们的盟友和世界其它地区，及时公布准确和透明的信息。
 
-参阅链接：
-[https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/](https://www.reuters.com/world/europe/serbians-go-polls-pick-president-parliament-amid-ukraine-war-2022-04-03/)
+她说，俄罗斯人正在利用这些实验室进行“假旗行动”。俄罗斯的目的就是试图为自己在乌克兰使用化学武器的行动进行辩护。
 
-[https://youtu.be/NWaBeFIf53Q](https://youtu.be/NWaBeFIf53Q)
+另据，国防威胁降低局的“合作减少威胁项目”（Cooperative Threat Reduction Program）的主任罗伯特·波普（Robert Pope）在今年2月对《原子科学家公报》（Bulletin of the Atomic Scientists）表示，在乌克兰实验室里，可能还储存着前苏联时代的生物武器。他同时警告称，乌克兰的冲突可能会导致危险的致病病原体被意外释放。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+波普说，鉴于俄罗斯人对乌克兰生物研究实验室中存储的病原体足够的了解。俄罗斯不会故意把实验室作为直接攻击目标。但确实担心这些病毒可能在俄罗斯入侵期间被意外损坏。
 
-编辑/校对/发稿：H.B
+罗森鲍姆作出上述表态后，白宫新闻秘书珍·普萨基（Jen Psaki）警告美国官员，要警惕“俄罗斯可能在乌克兰使用化学或生物武器，或利用这些武器制造‘假旗行动’。”随后，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）和英国国防部也重申了白宫的担忧。
 
-**更多资讯，更多关注**
+参考链接：
+[https://www.epochtimes.com/gb/22/4/4/n13695848.htm](https://www.epochtimes.com/gb/22/4/4/n13695848.htm)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
-
-
+总编：老孙
+校对发布：文曦
 
  
 

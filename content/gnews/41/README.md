@@ -2,84 +2,94 @@
 ---
 
 
-## 币圈新闻动态：喜币24H成交量约为618680.810 HCN
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2289937/)
+## 众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2290067/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
-
-
-
-## 每日一问
+**众议员吉姆·班克斯： **
+我们在新闻中谈论的国家——中（共）国、俄罗斯、乌克兰——正是为亨特·拜登提供了数百万美元资金的国家，这并非巧合。
 
 
 
-
-
-喜币（HCN）直接投资股份，会如何实现？
-
-
-
-
-
-## 喜马拉雅交易所要闻
+> It’s not a coincidence that the countries we’re talking about in the news – China, Russia, Ukraine – are the same ones that funneled millions of dollars to Hunter Biden.
+>  [@ffweekend](https://twitter.com/ffweekend?ref_src=twsrc%5Etfw) [pic.twitter.com/RSfb38r5z1](https://t.co/RSfb38r5z1)
+> — Jim Banks (@RepJimBanks) [April 4, 2022](https://twitter.com/RepJimBanks/status/1510997913933168647?ref_src=twsrc%5Etfw)
 
 
 
-
-
-- 喜交所网站行情显示，喜币（HCN）价格目前在41.720 HDO，24H最高价格为42.220 HDO，24H最低价格为37.100 HDO，24H成交量约为618680.810 HCN。
-
-
+**参议员汤姆·科顿： **
+迪士尼赞美中国共产党，并痴迷于在幼儿园教授不合适的内容。 没有人应该听从这样一个道德沦丧的公司的建议。
 
 
 
-
-## 新闻动态
-
-
-
-
-
-1. CryptoNews报道，根据加密投资公司CoinShares的数据，上周流入数字资产投资产品的资金达到1.8亿美元。该数字较前一周修正后的2.44亿美元有所下降，当时资金流入达到2021年以来的最高水平。具体资产方面，BTC支持的基金上周流入量最大，投资额为1.44亿美元。与此同时，以太坊(ETH)流入2300万美元，而Solana(SOL)以820万美元的一周流入量位居第三。该报告还表示，加密支持基金的投资者之间仍然存在地区差异，高达99%的资金流入来自欧洲。报告称，只有170万美元来自美国投资者。
-2. Coindesk报道，英国政府周一宣布了一系列举措，旨在使该国成为全球加密技术和投资中心。财政大臣Rishi Sunak在新闻稿表示，我们今天概述的措施将有助于确保公司能够在这个国家进行投资、创新和扩大规模。财政大臣约翰•格伦（John Glen），首要步骤将把稳定币带入英国支付框架。这将使消费者能够放心地使用稳定币支付服务。政府将引入这项立法，作为实现世界领先的稳定币监管制度的雄心的一部分。英国金融监管机构金融行为监管局(FCA)在2019年发布了“加密资产指南”。FCA在报告中指出，拥有用于跨境支付的数字资产的加密公司可能会受到支付服务法规的约束，但代币本身不会受到监管。
-3. Cointelegraph报道，根据ArcaneResearch的一份报告，挪威贡献了近1%的全球哈希率，几乎完全由水力发电。挪威对比特币全球总哈希率的贡献率为0.77%。相比之下，挪威的500万人口只占其中的十分之一，即全球人口的0.07%。重要的是，根据挪威水资源和能源局(NVE)的说法，挪威的电力结构是100%可再生能源，其中88%是水电，10%是风电。这意味着挪威的比特币矿工只使用“绿色”能源。
-4. Blockworks报道，GameFi平台和P2E公会Polemos宣布完成1400万美元种子轮融资，该公司和即将推出的DAO的投后估值达到1亿美元。此轮融资由Framework Ventures和Delphi Digital领投，其他参投方包括QCP、GoldenTree、IOSG、LD Capital，以及Sushiswap、COTI、Tokemak和Altered State Machine的创始人。Polemos联合创始人SaschaZehe表示，这笔资金将用于员工招聘、游戏投资和技术开发。Polemos目前有大约25名员工，但预计到今年年底至少会达到50人。据此前报道，去年11月，Polemos以4000万美元估值完成200万美元战略融资，DelphiDigital和Framework Ventures领投。
-5. Coindesk报道，基于Near协议的去中心化交易所Trisolaris宣布了一项由Electric Capital牵头的战略投资，投资总额为450万美元。参与方包括Jump Crypto、Dragonfly Capital、Leminscap和Ethereal Ventures等。Trisolaris将利用这笔资金扩大其团队，继续投资于关键产品领域。还计划改进原生TRI代币背后的代币经济学，并将该代币整合到更多Near生态系统项目中。近期路线图包括改善交易体验和基础设施，推出去中心化金融(DeFi)原语（直接在智能合约中托管或托管资金）以及Near和Aurora之间的跨链互换。上周，Trisolaris推出了一款新的stableswap产品，允许用户通过一个界面在多个自动做市商(AMM)之间交换资金。
-6. CoinDesk报道，质押解决方案ChorusOne推出最高3000万美元的PoS投资基金，未来三年内向PoS网络、协议和相关产品投资2500万至3000万美元。
-7. CoinDesk报道，去中心化交易平台Trisolaris完成450万美元融资，Electric Capital领投，Jump Crypto、Dragonfly Capital、Leminscap和Ethereal Ventures等参投，本轮融资资金将用于扩大团队、继续开发其产品，并改进其原生TokenTRI的Token经济学。
-8. Coindesk报道，收购解决方案Chorus One为超过28个去中心化网络提供权益证明(PoS)质押系统，该公司推出了一项新基金，将在未来三年内从其资产负债表中投资2500万至3000万美元用于PoS网络、协议和相关产品。以太坊区块链计划很快从工作量证明共识机制转变为权益证明机制，从而更加关注资产所有者为获得验证新交易块并将其添加到区块链的权利而质押其代币的过程。领先的PoS区块链包括Avalanche、Cardano、Polkadot和Solana。Chorus One由Brian Crain和Meher Roy于2018年创立，该公司是Cosmos可互操作区块链网络早期激励性测试网的参与者之一。
-9. Cointelegraph报道，加密货币硬件钱包提供商Ledger与区块链游戏The Sandbox合作，在其虚拟世界中推广加密教育。Ledger的首席体验官Ian Rogers周一在Non-Fungible Conference上表示，新的合作伙伴关系旨在为The Sandbox的世界带来安全性，并为Ledger在游戏中提供一席之地，以教育人们了解加密货币。Rogers感谢The Sandbox和公司联合创始人兼首席运营官Sebastien Borget提供的机会，并指出Ledger将作为合作伙伴关系的一部分为SAND所有者提供定制的Ledger Nanos。
-10. VogueBusiness报道，奢侈品牌巨头LVMH老板Bernard Arnault之子、泰格豪雅手表（Tag Heuer）首席执行官弗雷德里克•阿尔诺（Frédéric Arnault）在日内瓦钟表展上表示，与豪雅新款手表相关的NFT将会在下个月（即5月份）推出，具体细节暂未透露。弗雷德里克•阿尔诺表示，“我们相信NFT是一种新技术，一种新的资产类别，而豪雅表在这方面有发言权。”与此同时，弗雷德里克•阿尔诺还透露豪雅表官方网站上所有手表都将支持加密货币支付，而其本人也持有大量NFT，包括Invisible Friends、以及RTFKT与Takashi Murakami合作款CloneX。
-11. CoinDesk报道，从今年第三季度开始，Digihost（DGHI）将成为第一家向股东提供比特币股息支付选项的上市矿业公司。2022年第三季度，该公司首次发放的股息将占其净收益的10%。Digihost在周一的公告中表示，股东将有权选择以BTC或现金的形式获得股息。Digihost的其余净收益将于再投资，为未来的业务需求和机会提供资金。该公司表示，2022年预计平均算力为1.5EH/S，是2021的平均算力的约5.5倍。目前Digihost算力为1EH/s，每日产出4.25枚比特币。2022年第一季度比特币挖矿产出量为186.8枚，比去年同期增长约78%。
-12. Trustnodes报道，以太坊矿池Ethermine宣布推出Ethermine StakingBeta版本。该矿池声称，“Ethermine Staking是奥地利第一个基于以太坊PoS的受监管投资产品。”不过，他们没有详细说明在这种情况下“受监管”的含义。Trustnodes报道称，在欧洲或其他任何地方，质押本身并没有受到监管。如果向Ethermine等第三方质押ETH，则可能存在托管信托关系，这需要对质押者进行KYC。Ethermine表示，EthermineStaking要求KYC符合监管标准，因此在可预见的未来将无法支持来自美国的客户注册。
-13. BitcoinMagazine报道，英特尔宣布全新比特币挖矿芯片Intel Blockscale ASIC将在今年第三季度发货。该芯片将支持达580GH/s的算力和高达26J/TH的功率。据英特尔称，他们已经在比特币挖矿领域研究了数十年时间来提高工作量证明（PoW）的挖矿能耗效率。
-14. U.Today报道，Ripple去年提出XLS-20标准，该标准将允许XRP Ledger提供原生NFT类型和流畅的NFT体验。新的XLS-20标准旨在帮助开发人员在XRPL平台上创建更先进和创新的NFT应用程序。Ripple的创作者基金（Creator Fund）于2021年9月成立，投资2.5亿美元帮助创作者创建NFT。4月4日，Ripple团队声称已经收到大约4000份项目申请，这些项目集中在游戏/元宇宙、音乐/娱乐、艺术/收藏品和其他领域的NFT用例。xPunks、Steven Sebring、Justin Bua等人获得创作者基金的资助。XRP Ledger目前包括XLS-20d内置原生代币功能。NFT创作者基金第一波参与者将使用NFT Devnet，后者是改进XRP Ledger NFT功能的测试环境。虽然大多数早期NFT用例针对头像、艺术品和收藏品，但更多基于效用的应用开始出现，这就需要在XRPL上开发更先进的NFT解决方案。Ripple表示，随着技术及其用例的改进，这些现实世界的应用程序将继续丰富NFT体验并为社区提供价值。Ripple表示，随着项目在NFT-Devnet上的开发、预览和测试，它计划在XRPL上发现更多的代币化可能性。RippleX团队可能会提议将其NFT标准纳入未来的软件版本中，希望新的NFT功能能够激发XRPL社区的革命性项目和应用。
-15. 4月5日消息，据Messari文章披露，Cosmos Hub将在4月12日激活Theta升级后实施跨链账户模块。跨链账户的引入有望提高Cosmos生态系统的互操作性，并使CosmosHub更接近实现其作为“港口城市”的理想地位。
-16. 官方消息，Axie Infinity侧链Ronin表示，已经确认了下一批验证者，本周开始上线，以降低此前漏洞的未来风险。Ronin继续与执法人员进行调查，目前无法透露更多细节。Ronin完全致力于恢复在Ronin跨链桥中损失的资金，在细节敲定之前不能对此发表公开评论。此前消息，Ronin跨链桥被攻击，超6亿美元资产被盗。Axie Infinity联合创始人：将在Ronin添加几个新的验证者，以进一步去中心化网络。
-17. 4月3日消息，Celo开发者Kobi Gurkan宣布该公链已推出基于SNARK的轻客户端Plumo。据了解，在Celo的权益证明协议中，每24小时选举一次新的验证人集。Plumo SNARK证明汇总了143个此类转换，涵盖了大约4.5个月的选举，形成一个单一证明，初始验证者集和最终验证者集作为输出。这使Web和移动客户端能够通过下载最少量的数据快速赶上区块链的最新状态，这些数据比与基于工作量证明的轻客户端协议同步所需的数据少几个数量级。
-18. Decrypt报道，职业篮球联盟BIG3宣布将以NFT收藏品的形式提供其12支球队的所有权股份，以有效地分割球队所有权。每个团队将有1000个NFT，分为两个等级：25个“Fire”NFT，单价25000美元；975个“Gold”NFT，单价5000美元。该联盟目前完全拥有所有球队。BIG3联合创始人Ice Cube在接受采访时表示，尽管BIG3一直计划将团队出售给投资者，但区块链技术和NFT的出现使其有可能将所有权分配给更广泛的群体，而不仅仅是百万富翁。BIG3联合创始人Jeff Kwatinetz透露，这些NFT“最有可能”在以太坊区块链上铸造。BIG3NFT持有者将获得一些福利，比如对球队事务进行投票、获得所有BIG3比赛的门票和额外的VIP体验，以及独家商品，包括每个赛季获胜球队的冠军纪念品。Fire NFT拥有者可以获得额外的福利，比如知识产权和制作商品的许可权。BIG3联盟将从商品销售中提成，以及从所有BIG3NFT二级销售中提成。如果所有的NFT都按计划价格出售，它将为该联盟带来6600万美元的收入，其目标是增加收视率，在未来增加更多的球队，并进行国际扩张。
-19. 4月3日消息，前NBA总冠军拉玛尔•奥多姆（Lamar Odom）在拥有360万粉丝的官方推特表示将支持MILO，据悉奥多姆在效力洛杉矶湖人队期间帮助球队两获NBA总冠军，MILO(Milo Inu)旨在打造基于加密市场而生的虚拟偶像IP，通过动画剧集丰富IP形象，分别延伸出NFT、实体公仔、周边产品、GameFi及电子竞技线下比赛等产业链。
-20. BeinCrypto报道，Tezos生态DEX QuipuSwap宣布推出流动性挖矿计划，LP可获得QUIPU代币奖励。
-21. 官方消息，STEPN宣布市值突破10亿美元，成为独角兽公司。此外，STEPN第一季度利润为2600万美元，所有利润将用于回购GMT并销毁。官方APP总下载量已突破100万，每日NFT交易量超过1000万美元。据百科，独角兽公司，投资界术语，一般指成立不超过10年；估值要超过10亿美元，少部分估值超过100亿美元的企业。
-22. 4月5日消息，加密货币交易所Coinbase首席执行官Brian Armstrong在一篇博客文章中表示，计划到年底将印度的员工人数翻两番，在其去年成立的印度科技中心扩招1000名员工。今年2月，该公司宣布计划今年在产品、工程和设计领域增加2000名员工。Coinbase Ventures已在加密和Web3领域向印度本土科技公司投资了1.5亿美元。
-23. Decrypt报道，根据Etherscan的链上数据，利用Ronin Bridge从Axie Infinity开发商SkyMavis的金库中抽走6.22亿美元的黑客今天转移了数百万被黑资金。交易历史显示，在过去8小时内，向同一个Tornado钱包进行了大约20次转账。以今天的价格，每次转账发送超过100个以太坊（约345,500美元）。转移到Tornado的资金总额为2,000ETH，约合690万美元。Tornado Cash是一种隐私工具，可以混淆加密货币的来源。它充当中介，打破资金来源和目的地之间的链上链接。
-24. Engadget报道，美国司法部已成功从暗网上的一名卖家手中没收了价值约3400万美元的加密货币，并称这是美国历史上最大的加密货币民事没收文件之一。非法加密货币是从一名南佛罗里达州居民手中查获的，该居民使用在线别名在暗网上的市场上销售超过100,000件非法物品。据说大部分销售额是来自包括HBO、Netflix、Uber等在内的一些主要服务的黑客帐户信息。
-25. Law360报道，加密货币持有者起诉电商巨头Shopify和外包公司TaskUS，集体诉讼称，2020年安全漏洞使该公司的硬件钱包Ledger用户遭受黑客攻击和加密盗窃。
-26. TheBlock报道，国会议员Gregory Meeks(纽约州民主党)和Michael McCaul(德克萨斯州共和党)提出了俄罗斯加密货币透明度法案。该法案要求国务院就当前对使用加密货币的俄罗斯人实施制裁的有效性以及区块链技术在满足乌克兰人道主义需求方面的作用提供报告。该法案要求在国务院经济制裁政策和实施办公室任命一名新的数字货币安全主任。
-27. TheBlock报道，政府间气候变化专门委员会（IPCC）周一发布的一份新报告包含对未来气候风险的可怕警告。IPCC是联合国内的一个政府间小组。在2,000多页的报告中，有两处提到加密货币网络存在碳排放风险。报告表示，数据中心和相关的IT系统（包括区块链）是电力密集型的，将增加对能源的需求，如果电力生产没有脱碳，加密货币可能是全球二氧化碳的来源，而且人们还担心信息技术会加剧和加剧当前的不平等。加密货币的能源需求也越来越受到关注，尽管围绕其底层区块链基础设施的能源使用存在相当大的不确定性。
-28. TheBlock报道，美国证券交易委员会主席Gary Gensler表示，与传统交易所不同，目前中心化的加密交易平台通常会保管其客户的资产。去年，超过140亿美元的价值被盗。我已经询问员工如何与平台合作，让他们注册和监管，并最好地确保保护客户的资产，尤其是隔离托管是否合适。Gensler继续将类似的逻辑应用于加密交易所的做市功能，其中许多交易所通过自己的账户在自己的平台上与用户进行交易。Gensler还表达了对稳定币的担忧，美国散户投资者没有直接赎回市值最大的两个稳定币的权利。存在利益冲突和市场诚信问题，这将得益于更多的监管。
+> Disney praised the CCP and is obsessed with teaching inappropriate material to kindergarteners. 
+> 
+> No one should take advice from such a morally bankrupt company.
+> — Tom Cotton (@TomCottonAR) [April 4, 2022](https://twitter.com/TomCottonAR/status/1511010432231817216?ref_src=twsrc%5Etfw)
 
 
 
+**前国务卿迈克·蓬佩奥：** 
+拜登总统现在才意识到特朗普政府在欧洲的政策是明智的:一场战争才把他从沉睡中唤醒。我们必须释放美国能源的力量。 （转蓬佩奥在美国法律于司法中心网站署名文章：现在是释放美国能源的时候了）
 
 
-*编辑：aQ
-发布：文顾*
+
+> President Biden is only now waking up to the wisdom of the Trump Administration’s policies in Europe: It took a war to shake him from his slumber. We must unleash the power of American energy. My latest in ACLJ: [https://t.co/vT0SZh2D2O](https://t.co/vT0SZh2D2O)
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511030852888707085?ref_src=twsrc%5Etfw)
 
 
- 
+
+**前国务卿迈克.蓬佩奥： **
+拜登政府将气候变化置于保护主权和自由之上； 看看乌克兰就知道了。 它必须结束。 让我们再次将美国的安全和经济作为我们的首要任务。 这对美国家庭和全球安全来说是最好的。
+
+
+
+> The Biden Administration has put climate change ahead of protecting sovereignty and freedom; look no further than Ukraine. It must end. Let’s make America's security and economy our priority once again. That is what’s best for American families and global security.
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511071148880056329?ref_src=twsrc%5Etfw)
+
+
+
+**比尔.格茨：** 
+北约/欧盟司令部指挥官托德.沃尔特斯将军呼吁审查导致俄罗斯入侵乌克兰和美国情报误判的美国情报“漏洞” 【转比尔.格茨在华盛顿时报报道：情报失败：战前美国误判俄罗斯弱点、及乌克兰强项 随着冲突发生意想不到的转变，美国北约指挥官称应该缩小情报“差距”】
+
+
+
+> NATO/Eucom commander Gen. Tod Wolters calls for review of ‘gaps’ in US intelligence leading up to the Russian invasion of Ukraine and U.S. intel misjudgments [https://t.co/XcXdEhSZlV](https://t.co/XcXdEhSZlV)
+> — Bill Gertz (@BillGertz) [April 4, 2022](https://twitter.com/BillGertz/status/1511007998755295232?ref_src=twsrc%5Etfw)
+
+
+
+**参议员瑞克.斯科特： **
+我对普京在 布查和基辅周边社区屠杀无辜儿童和家庭感到恶心。总统[@POTUS](https://twitter.com/POTUS) 必须帮助乌克兰赢得这场战争、并今天就解除他对将飞机转移到乌克兰空军的毫无意义的控制。 【附媒体发布链接：参议员瑞克.斯科特抨击联合国人权理事会的虚伪和反以色列行动】
+
+
+
+> I'm disgusted by Putin's massacre of innocent children & families in Bucha & communities around Kyiv. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) must help Ukraine win this war & lift his senseless hold on the transfer of planes to the Ukrainian Air Force TODAY. [https://t.co/N3H1oaozz8](https://t.co/N3H1oaozz8)
+> — Rick Scott (@SenRickScott) [April 4, 2022](https://twitter.com/SenRickScott/status/1511107258347925509?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本： **
+乔·拜登的幕僚长认为亨特利用他父亲的关系从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 拿钱要好处是可以的。
+
+
+
+> Joe Biden’s chief of staff thinks it’s okay for Hunter to take money from Communist China while exploiting his father’s office. [pic.twitter.com/soP5UbZi5N](https://t.co/soP5UbZi5N)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1511106620033486852?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本：** 
+拜登政府的虚伪并没有结束。 他们的最新特技？结束第42条(大流行期间的边境限制)，因为 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 已经结束，同时却继续迫使美国人在飞机上戴口罩。
+
+
+
+> The hypocrisy coming out of the Biden Administration just doesn’t end. 
+> 
+> Their latest stunt? Ending Title 42 because COVID is over while continuing to force Americans to wear masks on airplanes.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 5, 2022](https://twitter.com/MarshaBlackburn/status/1511153376511373314?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

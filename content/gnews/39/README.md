@@ -2,23 +2,33 @@
 ---
 
 
-## 特斯拉老板马斯克突然成了推特最大的股东
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2290239/)
+## 澳洲国防部长暗示：中共和俄罗斯独裁者威胁澳洲的和平
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2290313/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-67.jpg)
-图片来源： www.bannedbook.org
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-特斯拉执行长伊隆·马斯克已经获得9%推特股份，推特正处于人们对其所谓的自由言论和第一修正案的批评中，现在马斯克加入成为了这家社交媒体平台的最大股东。
+整理/编辑：小红帽
 
-马斯克的最终目标是获得7千3百50万股份，价值30亿美元，最近马斯克的推特跟随者有8000万人，他对推特的自由言论问题以及是否损害民主的问题一直提出疑问。
+- ![](https://cdn.discordapp.com/attachments/906139544930361395/960751560319725628/c779-iyywcta1098372.jpg)图片来源：新浪军事
 
-美国证券交易委员会(SEC)周一向公众发布了3月14日的文件，法律专家说马斯克现在只要愿意，就可以开始改变该平台，推特自去年初以来的股票价值一直在下降。
-推特的合作创始人杰克·多西去年11月从执行长位置下来，现在马斯克的股份比多西多了4倍多。目前马斯克对推特的规则改变还没有发布特别讲话，这个平台去年初停止了川普总统的账号。
 
-#### 新闻来源： [Suddenly, Twitter’s biggest stakeholder is Tesla’s Elon Musk](https://apnews.com/article/elon-musk-twitter-6539434c8f583ee432dd22121bcbbd8a)
+根据大纪元4月5日报道，澳大利亚国防部长彼得·达顿（Peter Dutton）宣布，在全球安全形势恶化的大环境下，政府将投入35亿澳元升级国防军的军事设施。
 
-#  
+澳大利亚政府已经与美国大型国防工业承包商雷神公司和航空航天制造厂商洛克希德马丁公司达成协议：截至到2024年，澳大利亚的战斗机（超级大黄蜂）将配备射程为900公里的导弹。这比原计划提前了3年。
+
+达顿在九号台的采访中表示，澳大利亚政府对俄罗斯入侵乌克兰和中共在印度洋的军事集结感到担忧。澳大利亚政府所做的一切都是为了阻止任何侵略行为……澳大利亚希望和平，但是俄罗斯有一个独裁者，中共国也有一个独裁者。
+
+达顿认为，中共海军正在集结“大量”军舰和核武器，因此澳大利亚国防规划人员正在重新评估[的冲突风险，而澳大利亚的战略前景逐渐变得复杂化和具有挑战性。两年后，澳大利亚地区有可能发生冲突。](https://www.epochtimes.com/gb/tag/印太地区.html)
+
+新闻来源：[澳洲提前升级军备 防长警告两年后或爆发地区冲突](https://www.epochtimes.com/gb/22/4/5/n13696175.htm)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

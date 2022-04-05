@@ -2,36 +2,38 @@
 ---
 
 
-## 黑客组织“匿名者”：为对抗侵乌暴行公开了12万俄士兵个人数据
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2290662/)
+## 国际｜拜登再吁“战争罪审判普京” 将俄从人权理事会除名
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290856/)
 
-**撰稿：日本东京方舟农场  子辰**
+**港台前线 zhong｜2022-4-5**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-4.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌战争持续，郭文贵曾于直播中透漏俄乌有和解可能性，且战争可能以其他形式延续一段时间。4日，美国总统拜登再次直呼俄罗斯总统普京为“战犯”（war criminal），呼吁以战争罪审判普京，并表示将提供乌克兰更多武器，对俄国采取更多制裁行动。
 
-近期，黑客组织“匿名者”在推特上宣布，它成功入侵并泄露了12万名俄罗斯士兵的个人数据。同时声明说，“所有参与入侵乌克兰的士兵，都应该接受战争法庭的审判。”
+欧盟执委会主席冯德莱恩推文表示，欧盟将派遣调查人员前往乌克兰，协助“记录战争罪行”。德国外交部长贝尔伯克则宣布，驱逐40驻德俄国外交官。
 
-俄乌战争爆发后，匿名者集体宣布“针对俄罗斯政府的网络战争”已开始。且仅在战争的第一周，该组织就宣布，已成功入侵了三百多个俄罗斯网站。据悉，匿名者最近的其它行动，还包括入侵俄罗斯境内的打印机，将印刷反入侵的宣传品。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4.jpg)（图片来自大纪元）
 
-此次被公开的俄士兵个人数据，包括出生日期、地址、护照号码和所属单位等个人信息。该组织称他们的黑客攻击将直到俄罗斯停止他们的侵略为止。
+> I spoke with President [@ZelenskyyUa](https://twitter.com/ZelenskyyUa?ref_src=twsrc%5Etfw) about the atrocious murder of civilians in Bucha and elsewhere in Ukraine.
+>  
+> The EU is ready to send Joint Investigation Teams to document war crimes in coordination with the Ukrainian Prosecutor General.[@Europol](https://twitter.com/Europol?ref_src=twsrc%5Etfw) and [@Eurojust](https://twitter.com/Eurojust?ref_src=twsrc%5Etfw) will support.
+> — Ursula von der Leyen (@vonderleyen) [April 4, 2022](https://twitter.com/vonderleyen/status/1510964491378384898?ref_src=twsrc%5Etfw)
 
-另据该组织的一名成员说，他们正指导俄罗斯民众如何安装开源软件，使人们能绕过国家的审查制度，访问外界的媒体资讯。
 
-越来越多的人开始密切关注俄军的暴行指控，如今有大量平民被虐待和杀害的证据，有人在院子、街道和汽车里发现了尸体。
 
-有信息表明，仅在布恰镇就有超过300人被杀害和遭受酷刑。乌克兰外长库列巴（Dmytro Kuleba）说，布恰平民被杀的证据只是“冰山一角”。
+联合国人权理事会2022年3月4日第49/1号决议，成立国际调查委员会，将对“俄罗斯侵略乌克兰涉嫌侵犯和践踏人权及违反国际人道主义法和相关罪行”进行调查。决议做成后，美国和其他40多个国家正在合作调查俄军的可能侵犯、虐待行为。
 
-乌克兰总统泽连斯基说，乌克兰正为俄军在乌克兰东部和南部“更加残酷的行动”做准备。
+## 美呼吁将俄从人权理事会中除名
 
-此外，乌克兰国防部发言人莫图兹雅尼克（Oleksandr Motuzyanyk）表示，俄罗斯目前正在袭击卢甘斯克东部地区，同时准备袭击北顿涅茨克市，并试图占领马里乌波尔。
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会暂停俄国在人权理事会的席位。他于记者会上明确表示，俄罗斯参与人权理事会是一场闹剧，且俄罗斯不应在人权理事会占据权威地位。
 
-这一消息随后得到美国国安顾问沙利文的证实，他表示，华盛顿正努力制定更多经济制裁，关于俄罗斯能源行业相关的“选项”已摆在桌面上。
+美国驻联合国大使汤玛斯．葛林斐德，将在周三返回纽约后立刻将此事提交安全理事会。
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/5/n13696353.htm](https://www.epochtimes.com/gb/22/4/5/n13696353.htm)
+來源｜[UN HUMAN RIGHT](https://www.ohchr.org/en/press-releases/2022/03/president-human-rights-council-appoints-members-investigative-body-ukraine)、[npr](https://www.npr.org/2022/04/04/1090919925/u-s-ambassador-to-the-un-seeks-to-remove-russia-from-the-un-human-rights-council)
 
-总编：青城道姑
-校对发布：文曦
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
