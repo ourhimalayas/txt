@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 10:52 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group11/origin/2022/04/05/10/4b267241-beb9-4b2e-94ff-1077a0877973/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 9:08 AM (UTC)`
 
 4/4/2022 Miles Guo: Zheng Jiefu was deported, the son of Qu Long committed suicide, Dong Xiansheng was arrested. These incidents all forebode the ending of the CCP’s overseas pawns who have been defaming the Whistleblowers’ Movement. They will either be deported back to China, or spend the rest of their lives in the US jails.<br/><br/>4/4/2022 文贵直播: 郑介甫被遣返，曲龙儿子自杀，董仚生被抓皆预告了诬陷文贵和爆料革命的海外欺民贼的下场。他们最终要么被遣返要么在美国监狱中可耻地度过余生！<br/>
@@ -146,13 +153,6 @@ A volunteer from Israel said it’s very symbolic to celebrate the Passover at t
 
 2022.04.04 NFSC  Ukraine has regained full control of Kyiv region
 ![img](https://media.gettr.com/group35/origin/2022/04/04/22/df1caba5-a246-db9f-5bb2-6743a5962f7b/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/4/2022 10:03 PM (UTC)`
-
-新中国联邦 法治基金 飞飞秀救援快报 2022-04-04<br/>For English: gettr.com/post/p13kkrb6b24
-![img](https://media.gettr.com/group5/origin/2022/04/04/22/ebe8ea4f-09a8-85b1-9e9b-3a61b03d25da/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

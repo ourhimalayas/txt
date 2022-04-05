@@ -2,28 +2,44 @@
 ---
 
 
-## 樱花时政┃美将向乌提供前所未有的军事援助
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2291611/)
+## 美国停止俄罗斯支付债券以增加对莫斯科的压力
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2291637/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-俄军在布查犯下的罪行令人发指，美欧启东新一轮对俄制裁，其中最重要是强化乌反攻武力，向乌提供远程空中防御系统、炮火系统，以及海岸防御系统等重型武器。西方要给乌强化军援的一个关键原因，与俄在乌西部重新部署军力有重大关系，基辅指俄企图把乌一分为二，切断海岸线，打通克里米亚、顿巴斯以及马里乌波尔连成一片。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美将向乌提供前所未有的军事援助.png)图片来源于本文链接
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
-布查大屠杀人神共愤，拜登将强化对俄的制裁，除了经济制裁外，欧美只剩能源制裁。美国将在未来向乌提供更多军援，军火直接从美运送，或者第三国输入.苏利文说：“给乌克兰提供的武器包括，远程空中防御系统，炮击系统以及海岸防卫系统。”他表示，向乌运送武器以及军备的节奏已经是“前所未有”。
 
-信息来源： 
-[布查屠杀引发重大变化 美国将向乌克兰提供远程防空系统等重武器](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220405-%E5%B8%83%E6%9F%A5%E5%B1%A0%E6%9D%80%E5%BC%95%E5%8F%91%E9%87%8D%E5%A4%A7%E5%8F%98%E5%8C%96-%E7%BE%8E%E5%9B%BD%E5%B0%86%E5%90%91%E4%B9%8C%E5%85%8B%E5%85%B0%E6%8F%90%E4%BE%9B%E8%BF%9C%E7%A8%8B%E9%98%B2%E7%A9%BA%E7%B3%BB%E7%BB%9F%E7%AD%89%E9%87%8D%E6%AD%A6%E5%99%A8)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/ACX3G62RC5HSLEOVLR2BB2AXNU.jpeg)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+资料来源：路透社
+
+周一，美国阻止俄罗斯政府从美国银行持有的储备中向其主权债务持有人支付超过 6 亿美元的款项，此举意在加大对莫斯科的压力并削弱其持有的美元。
+
+根据俄罗斯 2 月 24 日入侵乌克兰后实施的制裁，俄罗斯央行在美国金融机构持有的外汇储备被冻结。
+
+但财政部一直允许俄罗斯政府根据具体情况使用这些资金支付以美元计价的主权债务的息票。
+
+据美国财政部发言人称，周一，随着最大一笔款项到期，包括到期债券的 5.524 亿美元本金支付，美国政府决定切断莫斯科获得冻结资金的渠道。
+
+2042 年主权美元债券的 8400 万美元息票支付也将于周一到期。
+
+这位发言人说，此举意在迫使莫斯科做出艰难的决定，即是否将其能够获得的美元用于偿还债务或用于其他目的，包括支持其战争努力。
+
+如果俄罗斯选择不这样做，它将面临历史性的违约。
+
+这位发言人说：“俄罗斯必须在耗尽剩余的宝贵美元储备或新收入或违约之间做出选择。”
+
+一位知情人士称，迄今为止一直作为代理银行处理付款的摩根大通公司（JPM.N）被财政部阻止。
+
+代理银行处理来自俄罗斯的息票支付，将其发送给支付代理以分发给海外债券持有人。
+
+消息人士称，该国有 30 天的宽限期来支付款项。
+
+🔗 [https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/](https://www.reuters.com/business/us-cracks-down-russian-debt-payments-latest-sovereign-payments-halted-2022-04-05/)
+
+责任编辑、发布： Shuizhuyu
 
  
 
