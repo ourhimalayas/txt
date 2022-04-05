@@ -2,27 +2,27 @@
 ---
 
 
-## 安大略省立法消减汽油燃料税
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289568/)
+## 新冠病毒疫苗灾难正在全球爆发
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289651/)
 
-采编：加拿大温哥华扬帆农场 – 青青
+采编： 加拿大温哥华扬帆农场 – 坐看云起时
 
-翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
+编译：加拿大温哥华扬帆农场 – 晨熹
 
-据《CTV新闻》4月4日报道，在加拿大各地汽油价格飙升之际，安省保守党政府于当天提出立法，计划将汽油税每升降低5.7分，燃料税每升降低5.3分。
+据自媒体【网关专家】近日报道，面对全球近期出现的超高死亡率，其主要原因并非新冠病毒感染，而事实上，该峰值几乎与实验性疫苗所推出的时期完全吻合。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-427.png)图片来源：Global.News
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-430.png)图片来源：dfxw
 
 
-据悉，该为期六个月的降税计划只有在6月份省级选举之后才能生效。目前，加拿大燃油价格之高前所未有。而且整体通胀率已超过6%，并达到近几十年来的最高水平。
+美国疾控中心的最新数据显示：不仅该国所有年龄段的死亡人数都在飙升，尤其是25至44岁年轻人群体的死亡人数创纪录的增长了84%。而且在世界各地，特别是西方国家都在经历超高的死亡率。
 
-此外，安大略省长福特也敦促加联邦政府采取必要措施来有效控制全国不断飞涨的汽油价格。
+据悉，去年8至9月间，加拿大0至44岁死亡人数激增了24%，这与特鲁多政府在8月份推行的疫苗强制接种政策时间完全吻合，而且这种灾难的趋势正在持续并日渐恶化。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-新闻来源：[https://toronto.ctvnews.ca/ontario-to-introduce-legislation-to-cut-gas-and-fuel-taxes-for-six-months-starting-july-1-1.5846934](https://toronto.ctvnews.ca/ontario-to-introduce-legislation-to-cut-gas-and-fuel-taxes-for-six-months-starting-july-1-1.5846934)
+新闻来源： [https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
 
  
 

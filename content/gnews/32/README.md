@@ -2,25 +2,51 @@
 ---
 
 
-## 加拿大社会的两极分化因疫情政策而加重
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2289389/)
+## 教宗含蓄批评普京 准备访问基辅
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2289614/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+作者：纽约香草山教育部-Naughty(文行)
 
-据【CTV新闻】4月4日报道，萨斯喀彻温大学社会研究中心的最新调查表明，加拿大人对于时事政治问题的观点变得愈加分裂。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-426.png)图片来源：CTV.NEWS
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-报道称，大约四分之三的受访者表示：加拿大社会意识形态的两极分化已越来越明显，其中，超过70%的人认为疫情以及2021 年联邦选举是导致目前社会分裂的最主要因素。而大约 40% 的加拿大人表示，他们因有关疫苗政策或防疫措施的争论而减少了与朋友或家人的联系。
 
-对此，研究中心的主管杰森表示：尽管在过去两年里，很多不同的观点造成了人们的分歧，但国家领导人和政客们却违背了团结社会的宗旨，并利用这种分裂来谋取各自的政治利益。
 
-校对编辑：硫酸羟氯喹64
 
-发稿：青青
+教皇方济各4月2日表示，他正在考虑前往基辅，并含蓄地批评俄罗斯总统普京入侵乌克兰。
 
-原文链接： [https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868](https://www.ctvnews.ca/canada/canadians-becoming-more-divided-over-covid-19-and-politics-survey-says-1.5846868)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-429.png)
+
+在飞往马耳他进行为期两天访问的途中，当被问及是否准备访问基辅时，教宗表示正在计划中，但并未提及更多细节。
+
+据报道，教宗已经接收到乌克兰总统泽伦斯基（Volodymyr Zelenskiy）、基辅市长克里契科（Vitali Klitschko）、乌克兰拜占庭礼天主教会（Byzantine-rite Catholic Church）大总主教舍夫丘克（Sviatoslav Shevchuk）以及乌克兰驻教廷大使尤拉什（Andrii Yurash）的访问邀请。他还与乌克兰总统泽连斯基和大总主教舍夫丘克通了电话。
+
+教宗称俄罗斯发起的所谓“特殊军事行动”是一场战争，并不点名的批评了普京，称“一些陷入不合时宜的民族主义利益主张的权贵正再次挑起和煽动冲突”。教宗呼吁人们“在降临人类的战争之夜，不要让和平的梦想褪色。”
+
+参阅链接：
+[https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/](https://www.reuters.com/world/europe/pope-says-he-is-considering-trip-kyiv-2022-04-02/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：遍地开花
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+
+
+
+
 
  
 

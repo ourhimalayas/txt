@@ -2,42 +2,93 @@
 ---
 
 
-## DC大中华时事：港报社评上海疫情管理遇上挑战
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2289905/)
+## 众议员吉姆·班克斯：中共国、俄罗斯正是为亨特·拜登提供了数百万美元资金的国家
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2290067/)
 
-*编辑：西北风 / 作图：*信正
-
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
-
-#   墙国妄语每日驳
-
-### [**0**4.03.2022澳大利亚和印度签署自由贸易协定](//world.huanqiu.com/article/47RRws0KJYv)
-
-[h](https://world.huanqiu.com/article/47RRws0KJYv)ttps://world.huanqiu.com/article/47RRws0KJYv
-
-***简评：***得海洋者，得天下，辉煌千年的地中海文明不同时期各帝国的兴衰见证了海洋如何影响帝国的命运与世界格局。随着地理大发现，世界的中心转移到大西洋，20世纪随着经济全球化发展，经济中心扩展到太平洋直至今天，中国和亚洲四小龙经济发展就是见证。今天澳大利亚和印度签署自由贸易协定意味着下一个经济中心将会是印度洋，印度的人口规模和遍布全球的印度侨民还有广阔的东盟市场毫无疑问.全球一体化时代真正的到来了。
-
-### 04.03.2022[港报社评：上海疫情管理遇上挑战](https://www.reuters.com/article/%E6%B8%AF%E6%8A%A5%E7%A4%BE%E8%AF%84%EF%BC%9A%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%E7%AE%A1%E7%90%86%E9%81%87%E4%B8%8A%E6%8C%91%E6%88%98%EF%BC%8C%E9%97%AF%E5%85%B3%E5%8F%AF%E8%AF%81%E5%8A%A8%E6%80%81%E6%B8%85%E9%9B%B6%E5%8F%AF%E8%A1%8C-%E6%98%8E%E6%8A%A54%E6%9C%884%E6%97%A5-idCNL3S2W202U)
-
-[https://www.reuters.com/article/港报社评：上海疫情管理遇上挑战，闯关可证动态清零可行-明报4月4日-idCNL3S2W202U](https://www.reuters.com/article/港报社评：上海疫情管理遇上挑战，闯关可证动态清零可行-明报4月4日-idCNL3S2W202U)
-
-***简评：***上海是全国经济中心，根据七哥爆料我们知道中国实事是二个政治中心，法定的北京和实事上的上海。上海对中共发展举足轻重，从中共闹革命开始中共一大召开基本起点江浙一带，中心就是上海。中共执政大陆开始，公私合营直到文化大革运动中心都离不开上海。上海是中共权力斗争风向标，拿下上海等于拿下全中国这次中共上海疫情动态清零运动也毫无例外，世人看到的是疫情管控，通过这几年爆料革命我们疫情是中共人为制造，其在上海疫情管控还是中共政治权力争斗的延续，习太阳要做真皇帝要名垂千史更要比肩毛贼东当然要控制江派。中共一切为了权力。
-
-### 04.03.2022[外媒关注：中国统筹做好疫情防控和清明祭扫工作](http://m.cankaoxiaoxi.com/china/20220404/2474923.shtml)
-
-http://m.cankaoxiaoxi.com/china/20220404/2474923.shtml
-
-***简评：***爹亲娘亲不如党亲，今天我们听起来实在觉得荒唐可笑，但对于中共党内来说尤其是党内受益人来讲这是真理，中共多年对党内的洗脑比如清廉，焦裕禄式的好干部是卓有成效的，但现今随着中共腐败和腐烂，更是在习太阳这几年折腾加速了中共败亡，这些中共体制内传统的“好干部”也越来越看清中共本来邪恶面目，中共给他们构建的理想大厦也瘫塌不复存在，最终还是爹亲娘亲比党亲，清明祭祖兴盛也是人性回归的见证吧。
-
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/960033200736989204/DC4.2.2022-1.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/960033201307414568/DC4.2.2022-3.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/960033201999474728/DC4.2.2022-2.jpg?width=1040&amp;height=586)
+**众议员吉姆·班克斯： **
+我们在新闻中谈论的国家——中（共）国、俄罗斯、乌克兰——正是为亨特·拜登提供了数百万美元资金的国家，这并非巧合。
 
 
 
+> It’s not a coincidence that the countries we’re talking about in the news – China, Russia, Ukraine – are the same ones that funneled millions of dollars to Hunter Biden.
+>  [@ffweekend](https://twitter.com/ffweekend?ref_src=twsrc%5Etfw) [pic.twitter.com/RSfb38r5z1](https://t.co/RSfb38r5z1)
+> — Jim Banks (@RepJimBanks) [April 4, 2022](https://twitter.com/RepJimBanks/status/1510997913933168647?ref_src=twsrc%5Etfw)
 
-*编辑：*西北风
-*作图：信正
-发布：文顾*
+
+
+**参议员汤姆·科顿： **
+迪士尼赞美中国共产党，并痴迷于在幼儿园教授不合适的内容。 没有人应该听从这样一个道德沦丧的公司的建议。
+
+
+
+> Disney praised the CCP and is obsessed with teaching inappropriate material to kindergarteners. 
+> 
+> No one should take advice from such a morally bankrupt company.
+> — Tom Cotton (@TomCottonAR) [April 4, 2022](https://twitter.com/TomCottonAR/status/1511010432231817216?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克·蓬佩奥：** 
+拜登总统现在才意识到特朗普政府在欧洲的政策是明智的:一场战争才把他从沉睡中唤醒。我们必须释放美国能源的力量。 （转蓬佩奥在美国法律于司法中心网站署名文章：现在是释放美国能源的时候了）
+
+
+
+> President Biden is only now waking up to the wisdom of the Trump Administration’s policies in Europe: It took a war to shake him from his slumber. We must unleash the power of American energy. My latest in ACLJ: [https://t.co/vT0SZh2D2O](https://t.co/vT0SZh2D2O)
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511030852888707085?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥： **
+拜登政府将气候变化置于保护主权和自由之上； 看看乌克兰就知道了。 它必须结束。 让我们再次将美国的安全和经济作为我们的首要任务。 这对美国家庭和全球安全来说是最好的。
+
+
+
+> The Biden Administration has put climate change ahead of protecting sovereignty and freedom; look no further than Ukraine. It must end. Let’s make America's security and economy our priority once again. That is what’s best for American families and global security.
+> — Mike Pompeo (@mikepompeo) [April 4, 2022](https://twitter.com/mikepompeo/status/1511071148880056329?ref_src=twsrc%5Etfw)
+
+
+
+**比尔.格茨：** 
+北约/欧盟司令部指挥官托德.沃尔特斯将军呼吁审查导致俄罗斯入侵乌克兰和美国情报误判的美国情报“漏洞” 【转比尔.格茨在华盛顿时报报道：情报失败：战前美国误判俄罗斯弱点、及乌克兰强项 随着冲突发生意想不到的转变，美国北约指挥官称应该缩小情报“差距”】
+
+
+
+> NATO/Eucom commander Gen. Tod Wolters calls for review of ‘gaps’ in US intelligence leading up to the Russian invasion of Ukraine and U.S. intel misjudgments [https://t.co/XcXdEhSZlV](https://t.co/XcXdEhSZlV)
+> — Bill Gertz (@BillGertz) [April 4, 2022](https://twitter.com/BillGertz/status/1511007998755295232?ref_src=twsrc%5Etfw)
+
+
+
+**参议员瑞克.斯科特： **
+我对普京在 布查和基辅周边社区屠杀无辜儿童和家庭感到恶心。总统[@POTUS](https://twitter.com/POTUS) 必须帮助乌克兰赢得这场战争、并今天就解除他对将飞机转移到乌克兰空军的毫无意义的控制。 【附媒体发布链接：参议员瑞克.斯科特抨击联合国人权理事会的虚伪和反以色列行动】
+
+
+
+> I'm disgusted by Putin's massacre of innocent children & families in Bucha & communities around Kyiv. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) must help Ukraine win this war & lift his senseless hold on the transfer of planes to the Ukrainian Air Force TODAY. [https://t.co/N3H1oaozz8](https://t.co/N3H1oaozz8)
+> — Rick Scott (@SenRickScott) [April 4, 2022](https://twitter.com/SenRickScott/status/1511107258347925509?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本： **
+乔·拜登的幕僚长认为亨特利用他父亲的关系从 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 拿钱要好处是可以的。
+
+
+
+> Joe Biden’s chief of staff thinks it’s okay for Hunter to take money from Communist China while exploiting his father’s office. [pic.twitter.com/soP5UbZi5N](https://t.co/soP5UbZi5N)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 4, 2022](https://twitter.com/MarshaBlackburn/status/1511106620033486852?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本：** 
+拜登政府的虚伪并没有结束。 他们的最新特技？结束第42条(大流行期间的边境限制)，因为 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 已经结束，同时却继续迫使美国人在飞机上戴口罩。
+
+
+
+> The hypocrisy coming out of the Biden Administration just doesn’t end. 
+> 
+> Their latest stunt? Ending Title 42 because COVID is over while continuing to force Americans to wear masks on airplanes.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 5, 2022](https://twitter.com/MarshaBlackburn/status/1511153376511373314?ref_src=twsrc%5Etfw)
+
+
 
  
 
