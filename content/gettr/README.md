@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/5/2022 12:04 AM (UTC)`
+
+4/4/2022 Miles Guo: Elon Musk acquired 9.2% of the stock of Twitter. This is not only good for Twitter, but also the whole social media sector, investors, and even GETTR.<br/><br/>4/4/2022文贵直播：Elon Musk买了推特9.2%股权，这不仅对推特是好事，对整个社交媒体、投资者、甚至盖特都是天大的好事！<br/>
+![img](https://media.gettr.com/group28/getter/2022/04/05/00/9fafc31d-2d75-8e13-0df7-6be203f987b9/out.jpg)
+
+---
+
+`@miles 4/5/2022 12:00 AM (UTC)`
+
+4/4/2022 Miles Guo’s GETTR: The COVID vaccine disaster has made Communist China a living hell, and the collapse of Communist China’s real estate market and banks are imminent<br/><br/>4/4/2022 文贵盖特：疫苗灾难使国内变成人间地狱，中共国房地产、银行崩塌即将到来<br/>
+![img](https://media.gettr.com/group40/getter/2022/04/05/00/cd9fdbb0-3db6-4f9c-fc92-2a6825d055c8/out.jpg)
+
+---
+
 `@miles 4/4/2022 11:53 PM (UTC)`
 
 4/4/2022 Miles Guo’s GETTR: Zheng Jiefu, a running dog of the CCP, was deported to Communist China by the Australian government. It’s said that Qu Long would be sentenced to death. Almost all family members of Dong Xiansheng, who helped Qu Long to set me up, were arrested. Several judges in Chengde, Hebei, who assisted Dong, were also thrown into jail. All is the retribution for their sins!<br/><br/>4/4/2022 文贵盖特：中共走狗郑介甫被澳洲政府遣返了，曲龙听说要被判死刑，帮曲龙害文贵的董仚生全家也基本被抓了，帮董仚生的几个河北承德法官也被抓了，这都是他们的报应啊！<br/>
@@ -140,20 +154,6 @@ On April 4, Australian media reports that Zheng Jiefu has been expelled from the
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group4/origin/2022/04/04/08/f7d52f9c-5e13-9f09-702e-f6aa35ef3420/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/4/2022 6:48 AM (UTC)`
-
-4/3/2022 Miles Guo: The Himalaya Coin is and will always be the most stable digital currency in the world. The former governor of a certain major energy country's national bank works as a senior executive of the Himalaya Exchange. There are three countries that will add digital currencies to its national reserve currencies, and the Himalaya Coin is on the lists.<br/><br/>4/3/2022 文贵直播：喜币是并且将永远是全球最稳定的数字货币；某能源大国的前国家银行行长在喜联储当高管；有三个国家要将数字货币纳入为其国家储备货币，喜币就在其中之列！<br/>
-![img](https://media.gettr.com/group10/getter/2022/04/04/06/9b146292-1b58-e8dc-1f23-38f7e2cd6fc1/out.jpg)
-
----
-
-`@miles 4/4/2022 6:33 AM (UTC)`
-
-《灭共的雪 The Terminator Snow》已经上榜澳大利亚🇦🇺iTunes 摇滚歌曲第一名🥇, 感谢澳大利亚的兄弟姐妹们🎉🎉🎉🎉🎉🎉🎉🙏🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group40/getter/2022/04/04/06/6c3a8823-7b88-8098-5db8-f6b4be57edc9/118d7a29a599909b2421869869610c2b.jpg)
 
 ---
 

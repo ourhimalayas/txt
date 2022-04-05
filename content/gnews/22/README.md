@@ -2,33 +2,30 @@
 ---
 
 
-## 【G时新闻】上海居民遇生存危机 ，市民呼吁停止静态清零
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2288285/)
+## 加拿大中共病毒疫情正卷土重来
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2288288/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是上海居民遇生存危机 呼吁停止静态清零！
+##### 作者：加拿大温哥华扬帆农场 – 重生之鹰
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/111-2.jpg)
 
-中共病毒疫情在中共国蔓延，日增染疫人数破万。 其中上海最为严重，大多数都是无症状感染者。上海医疗系统如两年前武汉几近崩溃，民众四处求医求紧急救助却告无门。
+来自《CTV新闻》4月1日的报道称，加拿大首席公共卫生官特蕾莎·谭（Theresa Tam）表示，中共病毒正卷土重来。根据加拿大公共卫生局的数据，更容易传播的中共病毒BA.2变体在一些地区已经占主导地位。截至3月31日，全国平均每日病例数增加了28%，表明中共病毒疫情正在复苏。人们免疫力的下降和更多的个人活动的回归，似乎与当前的疫情上升有关，最新病例的增加并不意外。
 
-近日来，社交媒体出现大量市民求助帖，请外界关注。 其中包括刚从ICU出来的高危病人，入住康复中心后无医疗辅助治疗，物资短缺，营养餐仅为白粥。也被封院，患者家人投诉无门，只能任由病者生死由命。前数日也有气喘患者及糖尿病患者因官方激进防疫手法导致延误就医丧命。
+总体而言，这种情况对卫生系统来说是可以控制的，不需要采取限制性的公共卫生措施。尽管如此，谭指出，鉴于目前病例的增加，对于那些还没有开始接种疫苗的人来说，这是一个很好的时机。
 
-网上还流传婴幼儿也被放入隔离点，无父母陪伴。其惨状也是不堪入目。有居民发表为民请命书，要求停止清零政策。
+加拿大公共健康部的最新建模文件显示，在可预见的未来，预计中共病毒将与我们相伴，疫情应该会出现间歇性波动。长期看来，病毒将继续以中低水平传播，未来的变异将出现，并可能影响病例数并带来严重后果。
 
-上海原是“抗疫模范生”，又是中共的政治中心，这次在上海突然疫情爆发极为蹊跷，这种“全域静态管理” 就是因政治而起，源头就在中共的极权统治本身。 中共不灭， 这种灾难会随时落到任何中国人的头上。
+[原文链接](https://www.ctvnews.ca/health/coronavirus/a-covid-19-resurgence-is-underway-in-canada-modelling-indicates-1.5844328)
 
-盖特链接：[https://gettr.com/post/p13h9en98fd](https://gettr.com/post/p13h9en98fd)
-
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+编辑/上传 – 熙攘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
 * * *
 
 更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
 - [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  

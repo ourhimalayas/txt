@@ -2,56 +2,44 @@
 ---
 
 
-## 比尔·盖茨投巨资研发能被手机扫描植于皮下的微芯片技术
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2288716/)
+## 乌基辅城镇平民被俄军残忍杀害 总统称种族灭绝
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2288836/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/vaccine-test-sensor-skin-chip-1.jpg)图片：来自视频截图
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.01.32.png)图片来源：互联网
+俄军退去后，乌基辅附近解放的城镇被俄军残忍杀害的平民证据震惊世界，泽连斯基称这是战争罪，将被世界承认为种族灭绝。
 
-来源于美国《门户专家》（The Gateway Pundit ）网站2022年4月2日的报道，
+乌克兰高级代表何塞普·博雷尔（Josep Borrell）代表欧盟就俄罗斯在布哈和其他乌克兰城镇犯下的暴行在欧盟理事会的网站上，发表[声明](https://www.consilium.europa.eu/en/press/press-releases/2022/04/04/ukraine-declaration-by-the-high-representative-on-behalf-of-the-eu-on-russian-atrocities-committed-in-bucha-and-other-ukrainian-towns/?utm_source=dsms-auto&amp;utm_medium=email&amp;utm_campaign=Ukraine:+Declaration+by+the+High+Representative+on+behalf+of+the+EU+on+Russian+atrocities+committed+in+Bucha+and+other+Ukrainian+towns)说：“俄罗斯当局应对这些暴行负责，这些暴行是在他们有效控制该地区时犯下的。它们受国际占领法的约束。战争罪和其他严重违法行为的肇事者以及负责任的政府官员和军事领导人将被追究责任。”【1】
 
-去年，据透露，五角大楼的科学家们在一个秘密联合机构中工作，创造了一种植入皮肤下的微芯片，可以在身体出现症状之前检测到新冠病毒。
+声明强烈谴责俄军队在乌克兰犯下的暴行：”欧盟以最强烈的措辞谴责俄罗斯武装部队据报在一些被占领的乌克兰城镇犯下的暴行“，俄军对乌平民犯下大屠杀证据：”将被列入在欧洲土地上犯下的暴行名单。 “
 
-电视节目《60分钟》采访了退役上校马特·赫本(Matt Hepburn)，他是一名陆军传染病医生，曾在秘密的国防高级研究计划局(defense advanced research projects agency，即DARPA)工作多年，致力于研究他希望确保新冠病毒成为最后一场大流行的技术。
+乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskiy）在从俄罗斯军队解放后访问 基辅附近的[Bucha镇说](https://www.theguardian.com/world/live/2022/apr/04/russia-ukraine-war-latest-zelenskiy-calls-russian-forces-butchers-after-civilian-mass-graves-found-around-kyiv-live)：”泽连斯基说：这些都是战争罪，将被世界承认为种族灭绝“，他还说：”我们知道成千上万的人被杀害和折磨，四肢被切断，妇女被强奸和儿童被谋杀。“
 
-“赫本博士向我们展示了一些当前的项目，有些听起来像是来自《星际迷航》(Star Trek)中的某一集。想想去年像西奥多·罗斯福号（USS Theodore Roosevelt）这样的航空母舰上有1,271名船员被检测出冠状病毒呈阳性，这一切使其步履蹒跚。如果船上的每个人都采用这种皮下植入物来监测他们的健康状况，会怎样呢？这种植入物现在正处于后期测试阶段。这不是一些可怕的政府微芯片来跟踪你的一举一动，而是一种组织状的凝胶，用于持续测试你的血液，”《60分钟》节目主持人比尔·惠特克(Bill Whitaker)说。
+乌克兰国家通讯社上周日报道，布查发现了一个埋葬了近 300 人的万人坑。数十具尸体躺在街上，有的双手被绑着。这是在Irpin、Bucha、Hostomel 和整个基辅地区的城镇都从俄罗斯入侵者手中解放出来。俄罗斯人在解放的城镇和村庄大规模杀戮平民的记录。【3】
 
-在瑞典，他们的研究更进了一步。在过去的几年里，一些瑞典工人自愿将微芯片植入他们的手中，这样他们就不再需要携带现金、身份证、钥匙、健身卡等。
+泽连斯基在[Facebook](https://www.facebook.com/login/?next=https://www.facebook.com/zelenskiy.official/posts/3045749582342064)上称俄军士兵：“杀人犯、抢劫犯、屠夫”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.04.47.png)图片来自乌克兰国家通讯社
+一家收集和发布乌克兰卫星图像的美国私营公司 Maxar Technologies 表示，3 月 10 日，在圣安德鲁和 Pyervozvannoho All Saints 教堂发现了一个万人坑的挖掘迹象。“3 月 31 日的最新报道显示，在教堂附近该地区的西南部分，墓地有一条大约 45 英尺长的沟渠，”Maxar (MAXR.N)说。【2】
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.06.13.png)图片来源：互联网
+俄罗斯军队残忍和无纪律，烧、杀、抢、掠、强奸都是历史长期以来许多历史可见到的，比如二战苏军冲入柏林后，对德国人烧、杀、抢及强奸200万妇女的暴行，中国庚子俄难。
 
-这项关于量子点纹身的研究（一种皮肤下的纳米粒子二维码，可由智能手机扫描），并没有被忽视。可怕的比尔·盖茨听说了这项新技术，并立即在该项目上投入了数百万美元。这应该不会让任何人感到惊讶。
+1945年8月起前苏联红军占领东北短短半年时间内，所到之处却干尽了坏事，他们不仅对日本人，还对中国人施暴，抢劫、杀人、强奸。据美国驻华武官回忆说：“红军士兵踹开老百姓的家门，除了家俱抢走一切，然后有军用卡车开来，再拉走家俱。前苏联红军军官对他们的部下抢劫和强奸视而不见，有时甚至参与其中。”
 
-乔·艾伦(Joe Allen )在Joebot.xyz的报道：我们生活在一部科幻惊悚片中，其中不负责任的公司公然将先进的技术强行植入我们的身体。莫德纳(Moderna)公司的联合创始人罗伯特·兰格(Robert Langer)博士利用当前的细菌恐惧症，看到他的实验性mRNA疫苗被推向了美国公众。乘着企业和政府强制疫苗接种令的黑暗浪潮，兰格瞬间变成了亿万富翁。但这并不是他的魔法高帽中唯一的有獠牙的兔子。
+前苏联对东北先进工业机器设备和物资的掠夺造成东北的工业一度陷入严重困境。据统计，前苏联在东北地区掠夺造成的损失为1946年币值的53亿4千万日元，折合当时美元13亿6千万。尚不含没有折价的白金32,401.55克、白银 1,866,549.69克和钻石741.0662克。【3】
 
-2018 年，这位麻省理工学院的科学家开发了一种量子点纹身（一种皮下纳米粒子二维码，可由智能手机扫描），以追踪接种疫苗的人群，并确保他们遵守规定。像许多不体面的实验一样，这要从第三世界开始——因为社会正义。
+参考链接：
 
-这种疫苗和追踪技术，引起了比尔·盖茨强烈的个人兴趣。这种兴趣自然会转化为数百万美元的资金(投入)。这是盖茨基金会早在2016年向莫德纳公司提供的2000万美元的补充，用于开发一种新型疫苗——注入的一些遗传密码可以劫持细胞的机制，以产生大量致病蛋白。
+【1】[欧盟：俄罗斯当局应对乌克兰布查和其他城镇的暴行负责](https://www.ukrinform.net/rubric-ato/3448220-eu-russian-authorities-responsible-for-atrocities-in-bucha-and-other-towns-in-ukraine.html)
 
-不久前，媒体曾一度将这些关于比尔·盖茨和数字证书的报道称为阴谋。看来他们又错了。
+【2】[Maxar说，卫星图像显示乌克兰万人坑遗址的长沟](https://www.reuters.com/world/europe/satellite-images-show-45-foot-long-trench-grave-site-bucha-maxar-2022-04-03/)
 
-**简评：**
-正如译文中所述：媒体曾一度称这些关于比尔·盖茨和数字证书的报道是阴谋。那么我们看看现实社会：为防止自己的萌宠走丢，给自己的萌宠植入芯片的技术，从2011年就已经在中共国的北京开始了。美国及欧盟要求对萌宠植入芯片只会更早，现在不过是从猫和狗的皮下换成在人的皮下植入而已。由此可见，在人的皮下植入纳米二维码，从技术上已经不是难事。
-
-作为微软公司创办人，比尔·盖茨以自己和妻子命名的慈善基金会在全球科技界可谓尽人皆知，这个基金会，在推动全球医疗和公共健康事业领域扮演着重要角色。新冠疫情全球蔓延后，比尔·盖茨关于疫苗研发的言论，折射出他在全球医疗和公共健康领域动态中所起的作用，尤其比尔·盖茨为疫苗研发造势资助，招致反疫苗阵营倒彩声一片，为什么？回看全球新冠疫情2年多来，世界各国政府使用媒体误导民众，用政府的权力机器强制民众接种新冠疫苗。而这些疫苗生产商后面都有比尔·盖茨基金会及达沃斯经济论坛、硅谷、中共和其他众多合作伙伴的影子。
-
-疫苗生产商下一步将推进人体植入纳米二维码，这些已经与疫苗强制接种令抗争2年多的民众会接受吗？答案100%是不！但是为什么有那么多人甚至是主动去接种新冠疫苗呢？主流媒体的宣传做了功不可没的“贡献”。因此，通过媒体渠道不停去揭露这个全球性的“阴谋”，并在全球掀起一场取消疫苗强制接种令的运动，民众大规模走上街头抗议，坚持我的身体我做主的人类的自由精神以及天赋人权，才能不被少数邪恶、趋利者控制和裹挟。
-
-随着疫苗伤害确凿证据的积累，我们可以依法让各国政府放弃他们的疫苗强制接种和限制，依法保卫我们的权利、隐私和身体自主权。只有抗争，才能真正遏制住将人变为机器的所谓的技术革新。
-
-新闻链接：[Creepy Bill Gates Threw Millions at New Technology of Under-Skin Nanoparticle QR Code, to be Scanned by Smartphones](https://www.thegatewaypundit.com/2022/04/creepy-bill-gates-threw-millions-new-technology-skin-nanoparticle-qr-code-scanned-smartphones/)
-
-*翻译/简评：Brianchow*
-
-*校对：Julia Win*
+【3】[共产暴政录：苏联红军在东北强奸及兽行](https://www.epochtimes.com/gb/18/10/3/n10757284.htm)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*编辑&发布：长岛开心*
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

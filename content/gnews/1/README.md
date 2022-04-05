@@ -2,11 +2,11 @@
 ---
 
 
-## 三月底到四月份共产党在这个世界上会真正的开始行动（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289142/)
+## 新中国联邦为救援而逆行，世界将迎来无皇有主的时代（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2289203/)
 
-#### PPT制作：小蜗牛 ；牛魔王
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12：10-12：20-003.jpeg)
+#### PPT制作：WinterGuo ；开智则立
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-09-902-910-1_3.jpeg)
 *发布：陶子*
 
 更多资讯，请关注：

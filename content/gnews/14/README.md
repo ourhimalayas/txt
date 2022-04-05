@@ -2,44 +2,55 @@
 ---
 
 
-## 乌基辅城镇平民被俄军残忍杀害 总统称种族灭绝
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2288836/)
+## 普京设立热线电话和网站，举报任何反对乌克兰战争的人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2288922/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.01.32.png)图片来源：互联网
-俄军退去后，乌基辅附近解放的城镇被俄军残忍杀害的平民证据震惊世界，泽连斯基称这是战争罪，将被世界承认为种族灭绝。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/56157895-10681089-image-a-14_1648983179574.jpg)3月，警察在圣彼得堡反对俄罗斯袭击乌克兰的行动中拘留了一名示威者。 （美联社图片）
 
-乌克兰高级代表何塞普·博雷尔（Josep Borrell）代表欧盟就俄罗斯在布哈和其他乌克兰城镇犯下的暴行在欧盟理事会的网站上，发表[声明](https://www.consilium.europa.eu/en/press/press-releases/2022/04/04/ukraine-declaration-by-the-high-representative-on-behalf-of-the-eu-on-russian-atrocities-committed-in-bucha-and-other-ukrainian-towns/?utm_source=dsms-auto&amp;utm_medium=email&amp;utm_campaign=Ukraine:+Declaration+by+the+High+Representative+on+behalf+of+the+EU+on+Russian+atrocities+committed+in+Bucha+and+other+Ukrainian+towns)说：“俄罗斯当局应对这些暴行负责，这些暴行是在他们有效控制该地区时犯下的。它们受国际占领法的约束。战争罪和其他严重违法行为的肇事者以及负责任的政府官员和军事领导人将被追究责任。”【1】
+《每日邮报》2022年4月3日报道：
 
-声明强烈谴责俄军队在乌克兰犯下的暴行：”欧盟以最强烈的措辞谴责俄罗斯武装部队据报在一些被占领的乌克兰城镇犯下的暴行“，俄军对乌平民犯下大屠杀证据：”将被列入在欧洲土地上犯下的暴行名单。 “
+普京被指控将俄罗斯拖回到了1937年，他设立了电话热线和网站，供“好公民”举报国家的“叛徒”。此举让人联想起苏联时代独裁者斯大林采用的类似策略。斯大林利用他的秘密警察部队——内务人民委员部（NKVD），消灭任何公开反对苏联共产党的人。
 
-乌克兰总统弗拉基米尔·泽连斯基（Volodymyr Zelenskiy）在从俄罗斯军队解放后访问 基辅附近的[Bucha镇说](https://www.theguardian.com/world/live/2022/apr/04/russia-ukraine-war-latest-zelenskiy-calls-russian-forces-butchers-after-civilian-mass-graves-found-around-kyiv-live)：”泽连斯基说：这些都是战争罪，将被世界承认为种族灭绝“，他还说：”我们知道成千上万的人被杀害和折磨，四肢被切断，妇女被强奸和儿童被谋杀。“
+1936年至1938年间的“大清洗”，有超过100万人被送往古拉格（Gulag），从农民到党员，任何人都有可能被贴上“破坏者”或“人民公敌”的标签。
 
-乌克兰国家通讯社上周日报道，布查发现了一个埋葬了近 300 人的万人坑。数十具尸体躺在街上，有的双手被绑着。这是在Irpin、Bucha、Hostomel 和整个基辅地区的城镇都从俄罗斯入侵者手中解放出来。俄罗斯人在解放的城镇和村庄大规模杀戮平民的记录。【3】
+据报道，近100年后的今天，克里姆林宫向几个地区的公民发送了如何互相谴责的短信指示，异见者会被扔进监狱。想要告密者也可以使用社交媒体Telegram上的专用频道。
 
-泽连斯基在[Facebook](https://www.facebook.com/login/?next=https://www.facebook.com/zelenskiy.official/posts/3045749582342064)上称俄军士兵：“杀人犯、抢劫犯、屠夫”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.04.47.png)图片来自乌克兰国家通讯社
-一家收集和发布乌克兰卫星图像的美国私营公司 Maxar Technologies 表示，3 月 10 日，在圣安德鲁和 Pyervozvannoho All Saints 教堂发现了一个万人坑的挖掘迹象。“3 月 31 日的最新报道显示，在教堂附近该地区的西南部分，墓地有一条大约 45 英尺长的沟渠，”Maxar (MAXR.N)说。【2】
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-上午7.06.13.png)图片来源：互联网
-俄罗斯军队残忍和无纪律，烧、杀、抢、掠、强奸都是历史长期以来许多历史可见到的，比如二战苏军冲入柏林后，对德国人烧、杀、抢及强奸200万妇女的暴行，中国庚子俄难。
+本周，一名22岁的年轻店员在莫斯科一家酒吧里告诉一个陌生人，她不赞成乌克兰战争，随后被关在牢房里24小时。
 
-1945年8月起前苏联红军占领东北短短半年时间内，所到之处却干尽了坏事，他们不仅对日本人，还对中国人施暴，抢劫、杀人、强奸。据美国驻华武官回忆说：“红军士兵踹开老百姓的家门，除了家俱抢走一切，然后有军用卡车开来，再拉走家俱。前苏联红军军官对他们的部下抢劫和强奸视而不见，有时甚至参与其中。”
+弗拉基米尔•普京被指控设立了“好公民”电话热线和网站，检举国家的“叛徒”，将俄罗斯拖回到1937年。
 
-前苏联对东北先进工业机器设备和物资的掠夺造成东北的工业一度陷入严重困境。据统计，前苏联在东北地区掠夺造成的损失为1946年币值的53亿4千万日元，折合当时美元13亿6千万。尚不含没有折价的白金32,401.55克、白银 1,866,549.69克和钻石741.0662克。【3】
+这些叙述是由俄罗斯人权团体OVD-Info收集的。该组织的法律部门负责人亚历山德拉.巴耶娃（Alexandra Baeva）说：“现在的俄罗斯，就像1937年一样：人们都很害怕，互相告密。”与斯大林时期的内务人民委员部一样，苏联领导人依靠克格勃（后来将普京视为特工）来控制民众和铲除异己。
 
-参考链接：
+周六，在俄罗斯举行的14场反战游行中，有176人被捕。目前，公开反对或表示不赞成入侵乌克兰是违法的，甚至称其为“战争”也是非法的。普京将其称为从纳粹领导人手中拯救国家的“特别行动”。
 
-【1】[欧盟：俄罗斯当局应对乌克兰布查和其他城镇的暴行负责](https://www.ukrinform.net/rubric-ato/3448220-eu-russian-authorities-responsible-for-atrocities-in-bucha-and-other-towns-in-ukraine.html)
+俄罗斯总统普京在克里姆林宫发表了一场夸张的电视讲话，他警告说，西方将利用“那些在这里赚钱，但住在那里的人”作为“分裂我们社会的第五纵队”。斯大林曾用“第五纵队”这个词来形容他认为反对共产党的人。
 
-【2】[Maxar说，卫星图像显示乌克兰万人坑遗址的长沟](https://www.reuters.com/world/europe/satellite-images-show-45-foot-long-trench-grave-site-bucha-maxar-2022-04-03/)
+尽管，普京似乎是在向寡头发表讲话，但俄罗斯专家称，这一信息令人不寒而栗，是对普通公民发出的信息。莫斯科的政治分析家安德烈.科列斯尼科夫（Andrei Kolesnikov）说，普京以奥威尔（Orwellian）式的方式将俄罗斯公民分为干净和不干净两类。
 
-【3】[共产暴政录：苏联红军在东北强奸及兽行](https://www.epochtimes.com/gb/18/10/3/n10757284.htm)
+**简评:**
+
+乔治.奥威尔的《1984》相信很多人不会陌生，“老大哥在看着你”，其实这样的监视方式始终存在。独裁者总会美化暴虐的行径，最担心民众知道真相。总是用最优美的语言，干着最肮脏的勾当。在共产党极权国家，如俄罗斯和中共国，所有的权力都集中在个别人手中，独裁者只会挑起民众之间的矛盾，互相告密揭发，互相伤害，泯灭大众的道德意识，从而消耗民众的精力，以达到控制民众的目的。
+
+这次俄罗斯侵略乌克兰，一部分俄罗斯人民值得敬佩，勇敢地站出来抗议普京侵略主权国家的战争行为，致数千人被捕。这些正义、爱好和平的人们，大声地告诉世界，普京不能代表所有俄罗斯人。
+
+拜登总统在最近的演讲中也重申了这一点，该下台被审判的是普京。同样在世界上也有一批新中国人——新中国联邦人，反对被中共代表，勇敢的致力于消灭中共这个邪恶的独裁体制，也在第一时间冲向战争前线，紧急救援、帮助难民，不能让中共继续绑架世界所有的中国人。中共是此次俄乌战争背后的最大元凶，西方世界应尽早对中共采取最为严厉的政治、经济等领域的制裁措施。消灭中共是正义的需要、是世界和平的需要。
+
+新闻链接：[Putin’s hotline to report ‘traitors’: Russian leader uses Soviet-era tactics by setting up phone lines and websites for ‘good citizens’ to inform on anyone speaking out against war in Ukraine](https://www.dailymail.co.uk/news/article-10681089/Vladimir-Putin-sets-phone-lines-websites-good-citizens-shop-traitors.html)
+
+*翻译/简评:親愛的瑪嘉烈*
+
+*校对: Julia Win*
 
 * * *
 
-*编辑&发布：长岛开心*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
