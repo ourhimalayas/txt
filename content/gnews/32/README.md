@@ -2,35 +2,66 @@
 ---
 
 
-## 中日财经爆┃入股推特 马斯克迷一样的操作
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2290915/)
+## COVID-19疫苗副作用集萃（2022.4.5）&#8211;辉瑞第一针后腰疼关节疼及尾椎骨肿痛
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2290999/)
 
-撰稿：东京樱花团/加一颗稻草
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-新中国联邦的 GETTR以其对言论自由的尊重和创新能力，已经为用户提供了颇具影响力的平台。加上Elon Musk提出了建立一个新的社交媒体平台的想法为该领域注入了活力。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-41.png)
+整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E7%96%AB%E8%8B%97%E5%89%AF%E4%BD%9C%E7%94%A8.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-近日，马斯克（Elon Musk）提出了建立一个新的社交媒体平台的想法。然后在周一，他收购了 Twitter 本身超过 9% 的股份，令市场大吃一惊。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-一直以来Twitter言论自由方面颇受诟病，尤其对前任总统特朗普的关闭账号行为，引起大多民众的反感。去年Twitter的股价从最高80美元爆跌至现在的50美元左右，几乎腰斩，平台用户量雪崩式下滑。在中共病毒流行开始Twitter加大了言论审查的力度，几乎和中共步调一致。
+帖子原文：
 
-大多平台用户认为：“我们需要的是言论自由，一个宽容的平台，允许所有言论，只要它不以特定的方式、时间和地点传达针对个人的可操作的、特定的威胁。”
+辉瑞第一针后腰疼关节疼及尾椎骨肿痛
 
-而此次Elon Musk的收购行为引起人们普遍猜测。据分析Elon Musk并不是在寻求获得对Twitter公司的控制权或影响谁控制公司。尽管如此Elon Musk还是在这次的操作中实实在在的赚了11亿美元。
+6.10下午打了辉瑞第一针后，没什么事。晚上十点多洗了个澡就睡了，到凌晨12点半左右被手臂疼醒，出一身的汗。关节处也跟着疼，比如胯骨，膝盖，肩膀等。之后就睡不好，感觉一直处于迷迷糊糊也没睡着的状态。
 
-众所周知，健康的市场需要存在合理的竞争，Twitter的做法使市场的竞争环境呈现单一性，亟需有创新的媒体参与进来。新中国联邦的 GETTR以其对言论自由的尊重和创新能力，已经为用户提供了颇具影响力的平台。加上Elon Musk提出了建立一个新的社交媒体平台的想法为该领域注入了活力。
+6.11白天胳膊抬不起来，左胳膊连着左肩加左半边脖子都酸痛，浑身无力加没有食欲。到了晚上手臂没那么酸痛了，可以微微抬起来了。但是开始整个腰疼加尾椎骨疼，疼到坐立不安。晚上贴了膏药还敷了一下热水袋睡了。
 
-一直以来天才马斯克都是传奇一样存在。他具有多数富豪所不具备的，对人类良知的认知能力。其天马行空的创意和雷厉风行的执行力，令世人刮目相看。Elon Musk这次操作的结果我们拭目以待。
+6.12早上八点头疼醒，之前怎么疼我都没有吃止痛药，唯独头疼不能忍，吃了两颗止痛药继续睡了。起来后感觉好多了，手臂可以活动自如，肩膀跟脖子也不疼了。但感觉腰部跟尾椎骨附近隐隐作痛。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+6.13依然是感觉腰部跟尾椎骨隐隐作痛。
+
+6.14发现尾椎骨位置肿了一块，之前没注意不知道是不是其实早就肿了…
+
+6.15出去办事在外忙了一天，晚上回来洗完澡后直接无法动弹，腰疼到行动困难，再次裹上膏药。晚上睡觉翻身也很困难。
+
+6.16-6.18依然明显感觉到腰疼，尾椎骨依然肿痛。
+
+这可如何是好啊？有没有人打完第一针跟我一样腰疼或关节疼的？打完第一针都这样了，我都不敢打第二针了，不会留下后遗症吧… 什么时候能好啊
+
+评论选集：
+
+[栗子酱](https://www.xiaohongshu.com/user/profile/56460d38c2bdeb165ea63add) 回复：
+
+打完第四天，腰疼的第三天，每天疼到站着坐着都难受
+
+[小红薯\_8683](https://www.xiaohongshu.com/user/profile/5b572d9711be101528f4b8e4) 回复：
+
+我也是第二针打完3个星期一直腰疼多好不了，怎么回事有没有什么药推荐的
+
+[W。不爱吃肉](https://www.xiaohongshu.com/user/profile/61c5aac1000000001000486c) 回复：
+
+今天刚打的，开始没事。过了几个小时。疼的我呼吸都腰疼。求助
+
+[unicorn](https://www.xiaohongshu.com/user/profile/56c88bc14775a724fc0309c4) 回复：
+
+我第二针后，已经一个多月了，腰还疼，有几天直不起来感觉
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-472.png)图片来源：小红书
+参考链接:
+
+[辉瑞第一针后腰关节痛及尾椎骨肿痛](https://www.xiaohongshu.com/discovery/item/60ca51b50000000001028712)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

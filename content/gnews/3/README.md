@@ -2,30 +2,21 @@
 ---
 
 
-## 欧盟的冯德莱恩和博雷尔将在基辅会见泽连斯基
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2291810/)
+## 视频|新中国联邦和法治基金在乌克兰的国际人道救援行动仍在继续
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2292006/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+鉴于俄乌局势依然处于危机状态，新中国联邦和法治基金救援团队在波兰边境米蒂卡设立了24小时临时救援接待站，用以为乌克兰难民提供落脚之所。救援接待站内可提供免费的食物、热水和保暖用品，并设有儿童专区。
+截至4月2日，新中国联邦和法治基金乌克兰救援行动进入第29天。米蒂卡救援站当天共接待273人，累计救援总计约8657人。救援巴士共发车39次，巴士救援难民达2009人。
+目前，新中国联邦和法治基金将致力于帮助那些受俄罗斯非法入侵影响的人员，并向其提供免费的援助，这也是我们消灭中国共产党，以及在被共产主义和专制政府统治的国家里支持那些争取自由群体的使命的一部分。中国共产党是全世界灾难的根源，我们和乌克兰人站在一起。只有消灭中国共产党才能拯救全人类。
+请有需要的华人同胞、美国及其他国家人士联系24小时紧急救援客服进行登记。
 
+发稿：qiutian（邱甜）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/WU7LU3YJWBIIRLGQR4HW2EEU6M.jpg)
-
-
-资料来源：路透社
-
-欧盟发言人周二表示，欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟最高外交官何塞普·博雷尔本周将前往基辅与乌克兰总统泽连斯基会面。
-
-欧盟发言人埃里克·马默在推特上写道，会议将在“周六在华沙举行的#StandUpForUkraine 认捐活动之前”举行。
-
-简评：为了表示欧盟对乌克兰抵抗俄罗斯侵略的巨大支持， 欧盟主席和最高外交官将前往战争中的乌克兰首都基辅，与乌克兰总统会面。 这已经表明了欧盟的立场， 以及对俄罗斯的进一步孤立。
-
-🔗 [https://www.reuters.com/world/europe/eus-von-der-leyen-borrell-meet-zelenskiy-kyiv-spokesman-2022-04-05/](https://www.reuters.com/world/europe/eus-von-der-leyen-borrell-meet-zelenskiy-kyiv-spokesman-2022-04-05/)
-
-责任编辑、发布： Shuizhuyu
-
-
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
