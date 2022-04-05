@@ -15,46 +15,46 @@
 
 ---
 
-### [七哥金句：灾难的科技叫墓碑文明](/content/gnews/1/README.md)
+### [七哥金句：针对美国，习太阳将会跟几个国家形成联盟](/content/gnews/1/README.md)
  ` 雅典娜GNotes`
 
-### [郭文贵先生2022年4月5日盖特视频（9分58秒）全文字版](/content/gnews/2/README.md)
+### [4/05/2022 文贵盖特：中共内部的战友说，共产党已准备好今年饿死5000万到一亿人；中共判断今年中共国各地会发生比去年更大的水灾，中共国、亚洲、欧洲和北美都将出现粮食问题](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [七哥金句：红旗导弹就是美国的毒刺导弹](/content/gnews/3/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：中共军援俄56个导弹系统的威胁](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：红旗导弹和反导系统的出现](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
+
+### [七哥金句：只有竞争下的领域和环境，才是对百姓有利的](/content/gnews/6/README.md)
+ ` 雅典娜GNotes`
+
+### [郭文贵先生2022年4月5日盖特视频（9分58秒）全文字版](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥金句：生物科技时代即将到来](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：疫苗灾难过后，一切将改变](/content/gnews/4/README.md)
- ` 雅典娜GNotes`
-
-### [七哥金句：如何让直播有价值？](/content/gnews/5/README.md)
- ` 雅典娜GNotes`
-
-### [每日快报：泽伦斯基警告说，在乌克兰其他城市发生的暴行还要严重](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [随着乌克兰危机升级，分析人士警告中共可能入侵台湾](/content/gnews/7/README.md)
+### [随着乌克兰危机升级，分析人士警告中共可能入侵台湾](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」](/content/gnews/8/README.md)
+### [视频|俄罗斯部队对布查镇实施的酷刑和谋杀是“种族灭绝”「非脱敏」](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [美俄中在巴基斯坦动荡中的微妙关系](/content/gnews/9/README.md)
+### [美俄中在巴基斯坦动荡中的微妙关系](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外](/content/gnews/10/README.md)
+### [4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [五月花简报（04/05/2022）](/content/gnews/11/README.md)
+### [五月花简报（04/05/2022）](/content/gnews/12/README.md)
  ` mayflowertranslate`
 
-### [4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去](/content/gnews/12/README.md)
+### [4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去](/content/gnews/13/README.md)
  ` 秘密翻译组-北美组`
 
-### [乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [英国外相利兹·特拉斯表示，“普京不败阵我们决不罢休”](/content/gnews/14/README.md)
+### [乌克兰议员哈莉娜·燕琴科谴责俄军暴行，称俄军不是人而是畜生](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [马斯克大举入驻推特 “一点都不搞笑”](/content/gnews/15/README.md)
@@ -99,41 +99,41 @@
 ### [死灰复燃的“枫桥经验”](/content/gnews/28/README.md)
  ` NFSC News`
 
-### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/32/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/29/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/33/README.md)
- ` 银河歌舞厅`
-
-### [新冠疫苗推出后去年全球死亡人数猛增](/content/gnews/34/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/35/README.md)
+### [2022年4月5日，全球中共病毒疫情情况汇总](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播|“帮助乌克兰最好的方法不一定是去参战”](/content/gnews/36/README.md)
+### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英国食用油厂商表示仅剩下数周的葵花籽油供应库存](/content/gnews/32/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/33/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [20余国敦促中共勿将孩童与染疫父母分开](/content/gnews/34/README.md)
+ ` 银河歌舞厅`
+
+### [新冠疫苗推出后去年全球死亡人数猛增](/content/gnews/35/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [日本加强对俄制裁 自今日起禁止高价的汽车与手表等出口](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵大直播|世界不和中共脱钩 就是奔向火葬场](/content/gnews/37/README.md)
  ` KarmaLabs`
 
-### [文贵大直播|逃难的路和回家的路都很艰辛](/content/gnews/37/README.md)
+### [文贵大直播|GFashion用Hpay支付](/content/gnews/38/README.md)
  ` KarmaLabs`
 
-### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/38/README.md)
+### [4/5/2022国际财经快讯：美国停止支付俄罗斯债券，以提高对莫斯科的压力；俄罗斯可能被实施新制裁，石油延续涨势](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [文贵大直播|风雨之中战友对职业特务单伟建的精彩解读(下）](/content/gnews/39/README.md)
+### [文贵大直播|俄罗斯虚假宣传以及后勤保障落后，军事思维还在二战模式](/content/gnews/40/README.md)
  ` KarmaLabs`
-
-### [中日财经爆┃美将对进口太阳能电池板使用中国材料展开调查](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [疫情｜台湾单日确诊创新高 清明连假近700例](/content/gnews/41/README.md)
  ` 關注組`

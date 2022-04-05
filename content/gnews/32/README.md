@@ -2,40 +2,79 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月5日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2293765/)
+## 英国食用油厂商表示仅剩下数周的葵花籽油供应库存
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2293769/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-05-at-11.04.55-PM.jpeg)
-1、马斯克掷近30亿美元收9%推特股票，成为最大股东
-![img](https://media.gettr.com/group13/origin/2022/04/05/04/22655e83-c8e5-0fe0-6bea-f8fb763c76ee/b264c68f1145531cd32fc05832f1eafa_500x0.png)
-特斯拉老板埃隆马斯克周一披露持有推特公司 9.2%的股份，价值近30亿美元，成为推特最大股东并引发涨势持有该公司27%以上的股份。
+据《BBC》作者：Emma Simpson，2022年4月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-514-e1649176199412.png)Edible Oils公司为英提供75%的零售灌装食用油。图片来源：BBC
+英国零售商店最大的食用油厂商透露它仅剩下数周的葵花籽油供应量。
 
-财经G评：从2018年到马斯克买成为大股东前，推特的三大股东分别是：先锋基金、摩根士丹利、黑石合计持股23%以上，马斯克9%持股能快速给推特带来改变吗？代表中共利益的华尔街们持股合计以及董事会的席位都比马斯克多…拭目以待吧
+Edible Oils公司透露，乌克兰和俄罗斯供应世界上大部分的葵花籽油，战争正在扰乱出口。
 
-链接 [https://www.reuters.com/technology/musk-discloses-92-stake-twitter-2022-04-04/](https://www.reuters.com/technology/musk-discloses-92-stake-twitter-2022-04-04/)
+该公司为英国75%的零售市场提供瓶装油，也正在努力为购物者增加食用油的供应。
 
-2、限售政策该退出就当及时退出，不能不讲科学僵化延续
-![img](https://media.gettr.com/group34/origin/2022/04/05/05/145f9256-7ca1-014c-2c8c-e7ac692b2f7c/54a0a1ee84f15eca18efb73a82f40c1b_500x0.png)
-中房报：房地产投资和住房消费是经济的重要支柱之一，把房地产市场稳定发展搞好，把经济搞上去，一切就好办，所有房地产新发展模式转型的配套措施和工作都要服从这个大局。从房地产整个循环链条的疏通中，除了已经不合时宜的政策措施，土地出让政策也急需调整，主动大力降低拿地门槛，让利润给企业。
+同时，含有葵花籽油的食品，如薯片、烤箱薯条和谷物棒的制造商正在重新制定他们的食谱。
 
-财经G评：还能再不要脸点吗？中共从来没有真正的市场经济，一切都是政府管制下的“阉割”经济，从计划生育到三孩政策、从买房限购到限售退出、每次都以“科学决策”的名头，用中共极权强奸人民！
+食品标准局已经建议有过敏症的人注意从商店和食品制造商那里获得额外的信息。
 
-链接 [https://finance.sina.com.cn/chanjing/cyxw/2022-04-03/doc-imcwipii2140842.shtml](https://finance.sina.com.cn/chanjing/cyxw/2022-04-03/doc-imcwipii2140842.shtml)
+Edible Oils的商业总监Kim Matthews透露，全球80%的葵花籽油供应来自俄罗斯和乌克兰。
 
-3、上市公司遭遇电信诈骗2275万，是真被骗还是“金蝉脱壳”？
-![img](https://media.gettr.com/group20/origin/2022/04/05/06/f43a0df4-b3e6-31db-3c2d-5424f7112e64/eabac4f5c9fcccc99e577d6c35cd4a41_500x0.png)
-大亚圣象公告表示，2021年报告期内，公司全资子公司圣象集团有限公司下属子公司美国HomeLegendLLC公司，成为一起电信欺诈的受害者，肇事者入侵该公司租用的微软公司365邮箱系统，伪造假电子邮件冒充该公司管理层成员，伪造供应商文件及邮件路径，实施诈骗，涉案金额约356.9万美元（折合人民币2275.49万元）。该公司已于美国地方联邦执法当局备案并向中国公安机关报案。大亚圣象表示，截至报告日，被盗资金追回可能性较低。年报显示，目前该笔损失已被列入营业外支出的“其他”项。据了解内地有多家上市公司有类似遭遇。
+他说：“所以很明显，由于那里发生的一切，我们在物理上无法让葵花油走出国门。”
 
-链接 [https://www.stcn.com/xw/sd/202204/t20220405\_4321955.html](https://www.stcn.com/xw/sd/202204/t20220405_4321955.html)
+如果你在超市货架上买到任何食用油，它有可能来自位于伦敦东南郊区埃里斯的食用油厂。它为品牌和零售商自己的标签产品装瓶。
 
-4、2021 年 3 个关键地区的新加密货币持有者几乎翻一番
-![img](https://media.gettr.com/group6/origin/2022/04/05/06/a4e5b78e-aab8-e10e-a319-e41b575306fe/4261336fb32ddb8f3a2cc946bbf587ef_500x0.png)
-根据一份新报告，去年加密货币持有者的数量大幅增加，全球近一半的持有者在 2021 年首次购买加密货币。根据 Gemini 的调查结果，随着超过一半的受访者在 2021 年开始投资加密货币，印度、巴西和香港等国家的加密货币采用率在 2021 年飙升。此类受访者的数量在印度达到 54%，在巴西和香港达到 51%。据报道，阿拉伯联合酋长国、新加坡和以色列等国家的加密货币持有率也非常高，阿联酋 35% 的受访者、新加坡 30% 的受访者和 28% 的以色列受访者表示持有加密货币。
+从英国消费者的角度来看，葵花籽油使用量最大。马修斯先生说：“它比其他任何东西都用得多。”
 
-链接　[https://cointelegraphcn.com/news/new-crypto-owners-nearly-doubled-in-3-key-regions-in-2021-report](https://cointelegraphcn.com/news/new-crypto-owners-nearly-doubled-in-3-key-regions-in-2021-report)
+Edible Oils已经将生产提高到24/7，以试图确保当葵花籽油消失时，它有大量的菜籽和其他油放在货架上。
 
-排版上传：文勇
+但他说，还远不清楚葵花籽油供应何时能恢复正常。
+
+“现在，乌克兰农民应该在播种，以便在10月和11月收获。”
+
+“显然这是不可能的……我们可能会错过这个季节，所以我们可能会受到12-18个月的影响。”
+
+葵花籽油也可以在数百种产品中找到，如即食食品、饼干和蛋黄酱。
+
+食品制造商现在正竞相寻找替代成分。
+
+英国零食公司生产的手撕薯片系列规模不大，但在酒吧销售很受欢迎。在土豆之后，它的另一个关键成分是葵花籽油。
+
+根据全国食用油经销商协会的说法，油菜籽在食品供应链中的使用要多得多。
+
+英国农民也种植油菜籽，但不会有足够的数量。
+
+“自袭击以来，菜籽油的价格已经上涨了50-70%，”NEODA的主席加里-刘易斯说，“但是供应量有限，无法满足所有这些需求，所以预计会出现一些短缺。”
+
+他说：“他将尽可能地吸收成本，但如果这种情况持续下去，他将不得不提高价格。”
+
+他和其他食品制造商不必担心的一个直接头痛问题是标签。他们被允许更换成分，而不必印刷新的包装，这可能需要12周时间。
+
+食品标准局的首席执行官Emily Miles说，对菜籽油的过敏反应“非常罕见，即使发生也很轻微”，并建议任何有过敏症的人都要注意额外的信息。
+
+对于食品杂货专家Ged Futter来说，食品行业现在正在努力解决自第二次世界大战结束以来从未经历过的供应问题。
+
+他说：“零售商和供应商必须比以前更加紧密地合作，并采取更加灵活的方式，以确保产品在货架上销售。”
+
+“当前的重点是葵花籽油和菜籽油，但在未来几个月里，将有更多产品受到影响。这是一些你甚至没有想到的成分，比如淀粉。”
+
+他认为数以千计的产品将不得不重新配制。
+
+福特先生经营一项业务，为供应商提供如何与零售商打交道的建议。他说，战争的连锁反应正在造成“可怕的”价格上涨，使超市货架上已经上涨的价格雪上加霜。
+
+“我认为我们现在看到的食品通胀水平将超过15%。”
+
+文章来源：[https://www.bbc.com/news/business-60941091?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&at\_medium=custom7&at\_campaign=64&at\_custom1=%5Bpost+type%5D&at\_custom3=%40BBCNews&at\_custom4=442FED5E-B2EF-11EC-B5D6-FFCE4744363C&at\_custom2=twitter](https://www.bbc.com/news/business-60941091?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&amp;at_medium=custom7&amp;at_campaign=64&amp;at_custom1=%5Bpost+type%5D&amp;at_custom3=%40BBCNews&amp;at_custom4=442FED5E-B2EF-11EC-B5D6-FFCE4744363C&amp;at_custom2=twitter)
+
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
