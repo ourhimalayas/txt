@@ -2,32 +2,34 @@
 ---
 
 
-## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
+## 卫星技术拍摄的布查大屠杀铁证
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2300231/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
-4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/cWQ89wyt5jZCQWtT2YCJR8-1651-80.jpg)
+据外媒报道，Maxar Technologies公司的WorldView-3卫星拍摄技术清晰拍摄了布查大屠杀的惨烈现场。卫星图像显示平民尸体散落在布查镇的街道上，还有一个乱葬坑。这个乱葬坑是一个长约45英尺的壕沟，而在3月10日的卫星图像上显示了对此的初步挖掘。
 
-该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
+根据时间推移，卫星图像拍摄了俄罗斯在布查的大屠杀铁证。Maxar卫星的清晰度足以分辨人物、汽车和其他的小物体。据悉Maxar目前有四颗卫星都在太阳同步轨道上，这是一种特殊的极地轨道，它能够不断捕获白天的图形，也能在不到一天的时间内恢复同一块地面的图像。在3月18、19、31日的卫星图像中，有四张图像显示尸体躺在街道，这和目击者的地点相吻合。
 
-该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
+乌克兰总统发言人表示，乌克兰平民遭受了极其惨烈的折磨和处死，但俄罗斯即刻否认了这一点。联合国敦促对此事进行独立调查，这些残忍的屠杀、强奸、和处决行为严重违反了国际人道主义法和人权法，必须保存一切证据，并安抚受害者家人。
 
-该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
+reference：
 
-信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
+[https://www.livescience.com/bucha-massacre-captured-satellite](https://www.livescience.com/bucha-massacre-captured-satellite)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+撰稿、发布：骄子
 
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

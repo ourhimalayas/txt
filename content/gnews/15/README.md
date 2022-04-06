@@ -2,35 +2,31 @@
 ---
 
 
-## 封城无用 上海疫情再创新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2300200/)
+## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
+4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
 
-#### 整理/编辑：BENJ1
+该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-14.png)
+该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
 
+该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
 
-中共政治局委员、中共国务院副总理孙春兰日前强调,要用最短时间实现社会面清零目标, 但各地疫情仍然严峻，4月5日官方公布新增20,400多起新冠本土感染个案，重灾区上海的疫情继续扩大，本地病例连续两天单日破万并且再创新高。
+信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
 
-完成全市快速检测及核酸筛查的上海，感染数字屡创新高。上海市卫健委公布，当地4月5日新增311宗新冠本土确诊，本土无症状感染个案则有16,766宗，大部分无症状感染个案是在隔离管控中发现的。这是上海连续第二天单日感染个案突破一万起。
-
-上海市疫情防控小组决定，6日起全市再进行新一轮核酸或抗原检测，目的是把上一次筛查发现的阳性个案收治之后，再做一次筛查；同时，外卖车手等一线工作人员同日起，要每天进行一次核酸检测及一次抗原检测，得出阴性结果才能上班。
-
-上海临港方舱医院5日正式开舱，提供接近14,000张床位，当中一半已经开放。上海的国家会展中心也将改建成方舱医院，可提供超过4万个床位。
-
-上海从3月28日起展开分区封控。4月4日，当局向全市近2,500万名市民进行新一轮核酸检测。连日来，上海全市实施封控管理，除因病就医等外，严格落实“足不出户”。
-
-参考链接：[重灾区上海疫情再创新高 清零渺茫但却不肯掉头](https://www.voachinese.com/a/china-risks-everything-with-impossible-covid-zero-goal-20220406/6517348.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

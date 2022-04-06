@@ -2,45 +2,35 @@
 ---
 
 
-## 中共金援普京，隐秘采购俄天然气
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2300122/)
+## 有声|欧盟在欧中锋会中表达多项立场及关切台海情势
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300146/)
 
-作者: MOS 柳是多水土透
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
 
+欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
-近日, 中国最大的液化天然气进口商被曝正在小心翼翼地寻求以低价采购遭国际市场规避的俄罗斯液化天然气。据知情人士透露，包括中石化和中石油在内的中国国营公司正在与供应商讨论如何以较大折扣来购买俄罗斯现货液化天然气相关事宜。有些中国进口商甚至考虑让俄罗斯公司代他们参与液化天然气的投标，以便对外界隐匿他们的采购计划和行为。
+此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
 
-在俄罗斯入侵乌克兰遭遇美国及其盟友史无前例的严厉制裁后，全球绝大多数液化天然气进口商因为担心制裁效应和名誉受损，都会刻意避免购买俄罗斯现货液化天然气。而中国公司则是为数不多的愿意为此担负恶名和风险的进口商。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-11.41.43-PM.png)图片来源: REUTERS
-根据交易商的透露，中国公司在过去几个星期已经采购了好几船液化天然气。中国液化天然气进口商的这一做法与中国炼油厂的做法很相似，这些炼油厂也在悄悄以低价购买遭世界别国拒购的俄罗斯原油。由于气温转暖和新冠疫情反弹，中国对液化天然气现货的需求其实并不强烈，但是来自俄罗斯的打折天然气仍然可以储存起来，以防今年夏季价格进一步上涨。
+欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
 
-交易商表示，中国的液化天然气买家寻求通过双边交易采购现货液化天然气，以便在现货市场上保持低调；而且这些公司行动小心翼翼，也选择避免大宗的买卖。另外，中国公司通常不直接参与现货市场俄罗斯液化天然气的投标，而是使用所谓“白手套”公司帮它们下单，以便隐匿中国公司的采购行为。此举将为中国公司在现货市场的行动提供掩护，让俄罗斯液化天然气的供货看起来像是长期合同的履约行为。尽管西方在俄军入侵乌克兰之后立即启动对俄罗斯的全面金融和经济制裁，但是这些制裁并不影响俄罗斯此前与各国签署的长期合同。
+欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
 
-交易商表示，中国公司也会刻意避免让它们派驻伦敦或新加坡的办公室参与俄罗斯现货液化天然气的采购，避免这些办公室被驻在国政府找麻烦。
+文字版原文：[欧盟在欧中锋会中表达多项立场及关切台海情势](https://gnews.org/zh-hans/2289551/)
 
-交易商认为这也存在一些问题，例如规模较小的中国液化天然气进口商很难从银行获取信用担保去购买额外的俄罗斯现货液化天然气；就新加坡而言，很少有银行会为此提供信用担保。只有中国最大的进口商可以使用银行提前批准的开放式信用担保去采购俄罗斯现货液化天然气。
+音频处理：Fei797
+发稿：Fei797
 
-俄罗斯入侵乌克兰受到西方严厉制裁后，包括欧洲在内的世界很多国家都试图减少对俄罗斯的能源进口，并有效规划削弱对俄罗斯的能源依赖。但是中国和印度等国，不仅拒绝谴责俄罗斯的侵略行为、拒绝参与制裁行动，而且还趁机大发战争财，以折扣价格购买被别国拒购的俄罗斯能源产品。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-新闻链接: [https://www.bloomberg.com/news/articles/2022-04-04/china-gas-buyers-seek-cheap-russian-fuel-shunned-by-the-world](https://www.bloomberg.com/news/articles/2022-04-04/china-gas-buyers-seek-cheap-russian-fuel-shunned-by-the-world)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿: 卡夫卡的甲壳虫
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
