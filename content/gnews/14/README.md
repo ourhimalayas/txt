@@ -2,31 +2,27 @@
 ---
 
 
-## 【G叻睇真D】《灭共的雪》和《铁锁梦》两首歌曲正式上线
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300346/)
+## 新冠变种XE的威胁性言过其实
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300405/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【gracelchan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据盖特4月4日消息，文贵先生当天宣布，《灭共的雪》和《铁锁梦》这两首歌曲已正式在苹果iTunes和苹果音乐平台上线，并号召全球的灭共粉丝打榜支持。
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16492645781.png)rnz.co.nz
+随着首例新冠变种XE在印度出现，在泰国和新西兰也发现了该变种。世界卫生组织（WHO）表示，需要进一步的数据才能提供更多的信息。
 
-据悉，当初《灭共的雪》被推出不仅是为了打破中共利用冬奥会进行的无耻宣传，同时也表达了歌者灭共的坚定决心。而《铁锁梦》则是以震惊世界的被绑架女事件为背景，控诉了中共套在老百姓脖子上的枷锁，听之催人泪下。
+英国（UKHSA）正在研究XE，该变种来自BA1和BA2。至3月22日，英国已检测到637例XE病例。首席医学顾问苏珊·霍普金斯（Susan Hopkins）教授说，这种变种被称为“重组”，它通常 “相对较快” 死亡。
 
-文贵先生此前的歌唱曾多次创造佳绩。单曲《马背英雄》上线仅仅数小时，就迅速登上iTunes 包括加拿大在内的多国排行榜冠军，并持续在榜多周。更是夺下了华人乐坛首个Billboard公告牌摇滚歌曲销售榜冠军。
+霍普金斯说，目前还没有足够的证据显示其传染性、和疫苗有效性的结论。
 
-盖特链接：[https://gettr.com/post/p13ui52a17a](https://gettr.com/post/p13ui52a17a)
+XE的增长率比隐形BA2高出9.8%。数据表明，奥米克隆变体具有高度传染性。虽然英国出现了XE “社区传播” 的迹象，但在全部冠状病毒测序病例中，XE仍不到1%。
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+在泰国和新西兰发现的XE变种症状中。没有证据表明XE的症状更严重，迄今为止，所有奥米克隆变体病情严重程度都较低。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*责编：白夜*
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+[原文链接](https://www.health.com/condition/infectious-diseases/coronavirus/new-covid-19-xe-variant)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

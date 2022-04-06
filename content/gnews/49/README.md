@@ -2,29 +2,25 @@
 ---
 
 
-## 国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296854/)
+## 台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296984/)
 
-**图/文｜CP**
-**发布时间｜06/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/AUKUS開展超高音速武器合作-中共威脅或引發類似烏克蘭衝突重演.jpg)
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-1.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国国防安全合作局（DSCA）5日宣布，批准售台“爱国者专案人员技术协助案”，总价9500万美元（约新台币27.24亿），行政部门已通知国会，有望在1个月后正式生效。新闻稿表示，台方要求购买技术援助支持，包含爱国者防空系统、设备与后勤的维护、操作和规划等；主要承包商为雷神科技公司。这是美国2022年第二度对台军售。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+这项军售案，有助有助台湾维持飞弹密度，确保台湾空中作战战备能力，且**DSCA强调**本对台军售有助强化台湾安全、区域政治稳定、军事平衡，**符合美国国家、经济和安全利益**。
 
+台湾国防部对美军售表示，感谢美政府持续落实《台湾关系法》及“六项保证”对台湾的安全承诺。
 
-由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
+2021年11月，美国国会美中经济暨安全审查委员会（USCC）最新年度报告指出，中共已具备或即将取得初步犯台能力，其中报告指出解放军已有能力对台发动海空封锁、网攻与导弹攻击。为维持美国履行台湾关系法下义务的能力，建议在印太地区大量部署飞弹系统，并加强台湾向美国军购能力。
 
-根据美国总统拜登（Joe Biden）、英国首相约翰逊（Boris Johnson）及澳洲总理莫里森（Scott Morrison）针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
-
-AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美亦会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
-
-有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
-
-來源｜[彭博社](https://www.bloomberg.com/news/videos/2022-04-05/australia-u-k-u-s-to-develop-hypersonic-missiles-video)
+来源｜[udn](https://udn.com/news/story/10930/6217447)、[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79726&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)、[CNA](https://www.cna.com.tw/news/firstnews/202111180015.aspx)
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

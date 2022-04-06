@@ -2,31 +2,44 @@
 ---
 
 
-## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
+## 美-德严查bitcoin，俄罗斯遭遇严重打击
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2300294/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
-4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
+作者：香草山健身部-正道新闻
+![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
+2022年4月6日，美国司法部宣布，与德国联邦刑事警察局（Bundeskriminalamt）合作，在德国扣押Hydra 服务器和包含价值 2500 万美元比特币的加密货币钱包，约合500+个比特币。
 
-该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
+Hydra是世界上最大、运行时间最长的暗网市场。2021 年，Hydra约占所有暗网市场相关加密货币交易的80%，自2015年以来，该市场已收到约52 亿美元的加密货币。
 
-该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
+据路透社报道，该交易所主要在莫斯科和圣彼得堡开展业务。为俄语国家的用户能够在法律范围之外匿名买卖非法商品和服务，包括非法毒品、被盗财务信息、欺诈性身份证件以及洗钱等提供服务。
 
-该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
+Hydra上的交易以加密货币进行，Hydra 的运营商对在 Hydra 上进行的每笔交易收取佣金。
 
-信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
+在关闭 Hydra 的同时，因操作和管理该市场服务器，该部门还宣布了对30岁的俄罗斯居民 Dmitry Olegovich Pavlov提起刑事指控，罪名是串谋分发毒品和串谋洗钱。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+根据起诉书，Hydra 上的供应商可以在网站上创建账户来宣传他们的非法产品，买家可以创建账户来查看和购买供应商的产品。Hydra 供应商出售各种非法药物，包括可卡因、甲基苯丙胺、LSD、海洛因和其他阿片类药物。供应商在 Hydra 上公开宣传他们的药物，通常包括照片和对受控物质的描述。买家根据五星级评级系统对卖家及其产品进行评级。
+
+Hydra 还展示了许多销售虚假身份证明文件的供应商。用户可以搜索销售他们想要的身份证明文件类型的供应商——例如，美国护照或驾驶执照——并按商品的价格进行筛选或排序。许多虚假身份证明文件的供应商提供定制文件。
+
+Hydra 还出售黑客工具和黑客服务。2019年俄罗斯加密货币交易所直接收到的非法比特币中，约有86%来就自Hydra。据CNN报道，2021年，美国众多企业遭遇黑客勒索事件与Hydra有着密切的关系。不仅如此，Hydra 供应商还提供了洗钱和“兑现”服务。
+
+据称，从 2015 年 11 月开始，Hydra市场作为一个平台运作，被成千上万的毒贩和其他非法供应商用所使用。买卖双方从中获利达数十亿美元。Pavlov从通过该网站进行的非法销售中获得价值数百万美元的佣金。
+
+目前，根据调查进度，警方不仅关掉了Hydra 服务器，查封了2500万美元的bitcoin，而且还宣布了对于主要犯罪嫌疑人提出刑事指控。因此我们有理由相信，早在数月之前，美、德警方、司法机关已经抓获了犯罪嫌疑。并与犯罪嫌疑人达成了某种协议，以换取bitcoin的密钥。
+
+此时，美-德警方宣布合作查处此案意义深远：一方面，打击了通过加密货币违法犯罪的行为，让bitcoin失去了重要的交易场所，减少社会需求量，进而影响bitcoin价格。此消息一出，bitcoin的价格直接下跌1000+美金。
+
+另外一方面，严重的打击了俄罗斯本来已经孱弱的经济。今年2月24日，俄罗斯攻打乌克兰之后，国际社会对于俄罗斯进行了4轮经济制裁。面对这些制裁，俄罗斯因为缺少必要的原材料，很多工厂已经停工，缺乏必要的生活必备的药品、食品、日常用品，使得整个俄罗斯民生陷入低谷。就在不久前，普京宣布可以使用加密货币进行支付购买石油、天然气。Hydra的关闭，不仅使得俄罗斯失去了匿名客户的联系方式，更为重要的是由于缺乏清算方式，使得俄罗斯依靠出售石油获取民生必备品的美梦已经破裂。
+
+[https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-05-22/h\_8862d6eaace42f93019899ffc6243c83 https://finance.sina.com.cn/tech/2021-07-05/doc-ikqcfnca4964164.shtml](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-05-22/h_8862d6eaace42f93019899ffc6243c83%20https://finance.sina.com.cn/tech/2021-07-05/doc-ikqcfnca4964164.shtml)
+
+校对/发稿：菩提树
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+更多资讯，更多关注
+乌克兰救援UkraineRescue官方Gettr
+郭文贵先生Gettr
+全球喜马拉雅农场联盟委员会Gettr
+喜马拉雅联盟大使馆全球客服中心Discord
 
  
 

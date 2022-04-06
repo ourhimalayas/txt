@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 5:55 PM (UTC)`
+
+俄乌战争战况播报
+![img](https://media.gettr.com/group27/origin/2022/04/06/17/eb1566fc-6675-720d-c130-dd7f41e21c24/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@mos_movie 4/6/2022 2:38 PM (UTC)`
@@ -148,12 +155,6 @@
 
 4/05/2022 Miles Guo’s GETTR: According to a fellow fighter inside the CCP, the CCP is ready for the death of 50 million to 100 million people from starvation this year. The CCP believes that there will be flood disasters this year that will be more devastating than last year. There will be food shortages in Communist China, Asia, Europe, and North America, followed by employment and energy issues. However, all of these are no match for the COVID vaccine disasters. It’s the adverse effects of the COVID vaccines that caused our fellow fighters to test positive for the virus.<br/><br/>4/05/2022 文贵盖特：中共内部的战友说，共产党已准备好今年饿死5000万到一亿人；中共判断今年中共国各地会发生比去年更大的水灾，中共国、亚洲、欧洲和北美都将出现粮食问题，随之而来的是就业和能源问题，但这些都跟疫苗灾难没得比；疫苗副作用导致战友自检病毒呈阳性<br/>
 ![img](https://media.gettr.com/group33/getter/2022/04/05/23/944671e2-9a96-9848-1919-98c8795e799c/out.jpg)
-
----
-
-`@miles 4/5/2022 11:22 PM (UTC)`
-
-04/05/2022 on the 2nd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on Australia 🇦🇺 Top Song Charts<br/>#1 🥇 on 19 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月5号, 郭文贵先生两首新歌上线第二天<br/>《灭共的雪》登榜iTunes<br/>澳大利亚🇦🇺热门歌曲榜首🥇<br/>19国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿热门歌曲榜首🥇<br/>新西兰🇳🇿流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2293435/
 
 ---
 
