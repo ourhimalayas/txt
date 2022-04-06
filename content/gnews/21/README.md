@@ -2,34 +2,35 @@
 ---
 
 
-## 樱花时政┃日本民间组织踊跃资助20名在日乌克兰难民
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2299982/)
+## 有声|欧盟在欧中锋会中表达多项立场及关切台海情势
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300146/)
 
-撰稿：东京樱花团/Haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-随着乌克兰难民抵达日本的影响越来越大，大阪民间的支援项目正在进行。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-12.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F04%2Fnp_file_151214.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F04%2F05%2Fnational%2Fjapan-ukraine-evacuees-arrive%2F&amp;tbnid=9vukP)
-随着乌克兰难民抵达日本的影响越来越大，大阪民间的支援项目正在进行。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
 
-4月5日，20名乌克兰难民乘坐政府专机抵达日本。20人中，有5名左右是在日本无所依靠的人。出国费用由日本国家支付，政府委托公益财团法人提供居住等生活支援。在大阪也有接受难民准备支援的团体。
+欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
 
-今年3月，日本乌克兰文化交流协会等组织了”迎接乌克兰难民日本会”。此协会免费租借酒店房间，支援包括用餐在内的工作和语言学习等生活。
+此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
 
-成立该团体的发起人之一沙田直成（Snada建设代表理事），是销售额超过500亿日元的大阪建设集团的创始人，在听到乌克兰遭到军事侵略的消息后，决定立即动用集团的酒店和自身资产支援难民。
+欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
 
-“乌克兰人什么也没做，却突然遭到邻国的蹂躏，真是非常痛苦。当时就想，现在应该想办法解决这个问题。觉得应该做点什么，这种强烈的想法来源于公司创业之前的经验。我出身于自卫队前特种部队‘第一空降团’，去过肯尼亚经历了政变，想做些有脸面的国际贡献。”“迎接乌克兰难民到日本会”今后1至3个月期间将支持在日本的生活重建，并计划与行政部门合作进行支援。
+欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
 
-信息来源：[私財投じて避難民支援する経営者『顔の見える国際貢献を』自衛隊の特殊部隊での経験も](https://video.yahoo.co.jp/c/16778/218e226d33cc16dc162c3161eea09a9535a86467)
+文字版原文：[欧盟在欧中锋会中表达多项立场及关切台海情势](https://gnews.org/zh-hans/2289551/)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+音频处理：Fei797
+发稿：Fei797
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

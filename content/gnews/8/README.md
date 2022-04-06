@@ -2,27 +2,39 @@
 ---
 
 
-## 这也是我们的战争：白俄罗斯志愿者加入乌克兰武装部队
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2300189/)
+## 有声|英美呼吁暂停俄罗斯人权理事国地位
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300246/)
 
-**撰稿：日本东京方舟农场  北极**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会暂停俄国在人权理事会的席位。他于记者会上明确表示，俄罗斯参与人权理事会是一场闹剧，且俄罗斯不应在人权理事会占据权威地位。她将于周三返回纽约后立刻将此事提交安全理事会。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-13.jpg)
+美国国务院发言人内德·普莱斯当天证实了这一消息，宣布美国将在联合国大会上寻求投票，要求将俄罗斯从人权理事会中驱逐出去。
 
-据焦点报4月6日报道，在利沃夫成立的白俄罗斯信息中心负责人阿丽娜·鲁迪娜（Alina Rudina）在新闻发布会上呼吁，白俄罗斯的命运取决于俄乌战争的胜利者，因此这也是我们的战争。
+据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经造成了人权和生命的巨大损失。目前，联合国大会需要193个成员国三分之二的支持才能将俄罗斯剔除出该组织。自2月24日俄入侵乌克兰以来，已经有140票通过了两项谴责俄罗斯的决议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-76.png)乌克兰武装部队中白俄罗斯军团的士兵。（图片来自焦点报）
+在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事会的成员，应该被剔除。
 
-鲁迪娜呼吁说，“我们的国家也被俘虏了，它处于卢卡申科和俄罗斯的领导者之下。我们一直在采用灵活的铁路游击战术来反击这个伪政府。此外，反抗者们还把有关俄罗斯军队的部署情报向外界传递。”
 
-据鲁迪娜称，白俄罗斯信息中心的任务是启动乌克兰公民与白俄罗斯公民之间的信息交流进程，特别是向乌克兰人传达有关白俄罗斯境内发生的反抗活动。
 
-鲁迪纳声称，现在已经有多达1000名白俄罗斯志愿者正在乌克兰一方并肩作战。在波兰华沙还有大约1000人申请加入该军团。一旦通过测试，他们将前往乌克兰。
+文字版原文：[英美呼吁暂停俄罗斯人权理事国地位](https://gnews.org/zh-hans/2295617/)
 
-参考链接：
-1.[https://reurl.cc/AKo0ne](https://reurl.cc/AKo0ne)
-2.[https://reurl.cc/44ZW52](https://reurl.cc/44ZW52)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-总编：老孙
-校对发布：爱放飞
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

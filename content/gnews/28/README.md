@@ -2,46 +2,35 @@
 ---
 
 
-## 俄军屠杀平民 各国反应强烈
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2299725/)
+## 樱花时政┃布查平民屠杀引公愤 罗马尼亚男子开车撞俄大使馆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2299730/)
 
-作者: 纽约香草山教育部 Naughty(文行)
+撰稿：东京樱花团/法治小哥
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+因近日俄罗斯在乌克兰布查镇屠杀平民事件，激起国际社会公愤，俄国驻罗马尼亚大使馆被一男子驾车冲撞，驾驶员当场死亡。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-26.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2022%2F04%2Fh_57599783.jpg%3Fw%3D770%26resize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.com%2Fnews%2F2022%2F4%2F6%2Fman-dies-after-crashing-car-into-)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新图标-1.png)
-4月3日多家媒体报道，乌克兰检察长当天表示，他们在基辅附近的城镇共发现了 410 具被俄罗斯军队杀害的平民尸体，乌克兰检察官正在调查俄罗斯可能犯下的战争罪行。泽连斯基3日在接受采访时称，这是俄罗斯对乌克兰整个国家和民族犯下的种族灭绝罪。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-10.27.07-PM-2.png)图片来源: Getty Images
-针对这一消息，西方各国反应强烈。
+因近日俄罗斯在乌克兰布查镇屠杀平民事件，激起国际社会公愤，因此不少国家将俄外交人员驱逐出境，而各地民众也前往俄国大使馆抗议。
 
-美国国务卿、北约秘书长、欧盟理事会主席分别对此表示了谴责和愤怒。英国首相鲍里斯·约翰逊谴责俄罗斯的“卑鄙袭击”，称俄罗斯的任何虚假信息都无法掩盖普京的绝望和他入侵行动的失败。波兰总理表示，欧盟必须对俄罗斯实施更严厉的制裁，并向乌克兰提供更多武器，同时他呼吁成立一个国际法庭来调查布哈镇的杀戮事件。德国总理、副总理、国防部长分别提出谴责并呼吁采取更有力的制裁措施。日本首相也在4日谴责俄罗斯严重违背国际法。联合国秘书长古特雷斯在一份声明中表示，“有必要”对发生在乌克兰布查市的平民遇害事件进行“独立调查”。
+据《路透社》报道，当地时间4月6日，在俄国驻罗马尼亚大使馆门口发生一起死亡车祸，有人开车冲撞大使馆铁门，驾驶员当场死亡。
 
-莫斯科一再否认乌克兰关于其军队杀害平民的指控，称这些场景是乌克兰当局的表演。
+罗马尼亚首都布加勒斯特的警方表示，暂时无法判定是否蓄意冲撞，也没有公司司机的身份，因为最近几周，欧洲多个国家的俄国使馆都成为反对侵略者的示威目标。
 
-乌克兰总统泽连斯基继续敦促西方向乌克兰提供更重型更快速的装备，例如战机和更多的反导弹系统。他对美国和拜登政府迄今为止提供的支持表示感谢，但他强调乌克兰不仅需要纸面上的安全保证，他还敦促美国继续帮助这个饱受战争蹂躏的国家。
+自俄罗斯入侵乌克兰以来，已有近63万4860名乌克兰人逃往罗马尼亚，其中大部分难民转往其他国家，还有大约8万人仍在罗马尼亚境内。
 
-新闻链接:
+此外，对于俄军在乌克兰布查镇屠杀平民一事，罗马尼亚在5日也宣布，将驱逐10名俄罗斯驻罗马尼亚的外交人员。
 
-- [https://www.cbsnews.com/news/zelenskyy-russia-genocide-ukraine-war-face-the-nation/](https://www.cbsnews.com/news/zelenskyy-russia-genocide-ukraine-war-face-the-nation/)
-- [https://gnews.org/zh-hans/2284606/](https://gnews.org/zh-hans/2284606/)
-- [https://chinese.aljazeera.net/news/war-in-ukraine/2022/4/4/乌克兰将其比作斯雷布雷尼察布查乱葬坑与西方批](https://chinese.aljazeera.net/news/war-in-ukraine/2022/4/4/%E4%B9%8C%E5%85%8B%E5%85%B0%E5%B0%86%E5%85%B6%E6%AF%94%E4%BD%9C%E6%96%AF%E9%9B%B7%E5%B8%83%E9%9B%B7%E5%B0%BC%E5%AF%9F%E5%B8%83%E6%9F%A5%E4%B9%B1%E8%91%AC%E5%9D%91%E4%B8%8E%E8%A5%BF%E6%96%B9%E6%89%B9)
-- [https://www.cbsnews.com/news/zelenskyy-russia-genocide-ukraine-war-face-the-nation/](https://www.cbsnews.com/news/zelenskyy-russia-genocide-ukraine-war-face-the-nation/)
+信息来源：[俄軍屠殺爆抗議！羅馬尼亞男開車「撞俄大使館」　當場身亡](https://www.setn.com/News.aspx?NewsID=1096108)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-校对/发稿: 卡夫卡的甲壳虫
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
