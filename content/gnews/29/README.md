@@ -2,34 +2,27 @@
 ---
 
 
-## 【简讯】美国将制裁俄罗斯暗网和加密货币交易所
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2295610/)
+## 中共国正在寻求被制裁的俄罗斯低价天然气
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2295618/)
 
-翻译：多伦多蓝莲花-冰糖葫芦喵
+银河系农场—骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-20.png)
+近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-14.jpg)
+交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
 
-编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《路透社》华盛顿4月5日报道，**周二，美国财政部对俄罗斯一家著名的暗网市场网站和一家加密货币交易所实施制裁，财政部称该网站主要在莫斯科和圣彼得堡运营。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/比特币-e1649213462716.jpeg)图片来源：网络。
-报道指出，**美国财政部网站上公布了对俄罗斯的Hydra和货币交易所GarantEX实施制裁。**美国财政部长珍妮特·耶伦(Janet Yellen)说，今天向犯罪分子发出了一个信息，你不能躲在暗网或其论坛上。
+中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
 
-根据区块链研究人员的说法，**自2019年俄罗斯加密货币交易所直接收到的非法比特币中约86%来自Hydra，美国财政部称其为世界上“最大和最突出的暗网交易市场”。 **
+参考链接：[China gas buyers seek cheap Russian fuel shunned by the world](https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/)
 
-美国财政部还表示，新的制裁禁止美国人向Hydra或Garantex提供或接受“任何捐款或提供资金、货物和服务”。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/01-1.jpg)图片来源：网络。
-
-美国国务院说，**这些制裁措施禁止美国与俄罗斯Hydra和货币交易所GarantEX的交易，并寻求冻结这两家公司在美国管辖范围内可能拥有的任何资产。**
-
-这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品（包括勒索软件活动）的扩散所做努力的一部分。
-
-据报道，美国财政部、美国司法部(U.S. Department of Justice)、联邦调查局(FBI)和德国联邦刑事警察(German Federal Criminal Police)表示，他们**关闭了Hydra在德国的服务器，并缴获了价值2500万美元的比特币。**
-
-新闻来源链接：
-
-[U.S., allies to ban investments in Russia, sanction banks on Wednesday | Reuters](https://www.reuters.com/world/us-allies-announce-russia-sanctions-wednesday-2022-04-05/)
-
-
+总编：zhong
+编辑：呼吸的雾霾（文小呼吸）
+审核：飞虹
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![此图像的alt属性为空；文件名为Gnews-logo-1-87.png](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
  
 

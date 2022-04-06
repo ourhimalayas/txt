@@ -2,47 +2,37 @@
 ---
 
 
-## 俄罗斯最新苏-35战机被击落
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2296571/)
+## 樱花FM┃2名乌克兰女性难民投亲日本 收到满满感动
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2296589/)
 
-作者：纽约香草山教育部 Naughty(文行)
+音频：东京樱花团/战友520
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/040626.png)
+
+2名乌克兰女性难民辗转到日本滋贺县彦根市投奔女儿夫妇，一路上受到了日本民众的热心帮助，十分感动。
+
+“佐藤桑在机场帮助了我们”，2名乌克兰女性感动得流下了眼泪
+
+3月31日，为躲避俄罗斯的军事侵略，躲到女儿夫妇居住的滋贺县彦根市的2名乌克兰女性拜访了三日月知事。她们目前住在县政府准备的住宿设施里，“感谢大家以日本式款待的精神给予了我们热情的帮助。希望乌克兰和日本的关系更加牢固。”
+
+两人是伊琳娜·雅博尔斯卡（50岁）和他的母亲加里娜·伊万诺娃（80岁）。从遭受战火袭击的东部哈里科夫逃往西部里比乌的难民人数多到3倍的电车上，经过20多小时逃了出来。在波兰难民营和朋友的陪同下度过了10天左右，但是找不到工作等生活基础，因此决定投靠在日本伊琳娜的女儿卡捷琳娜（31岁）。
+
+迎接她们的三日月知事：“真是艰难的旅程啊”，两人合掌道谢。伊琳娜说“好不容易才走到这里”，回想起艰难的旅程，流下了眼泪。伊琳娜说:“我梦想来日本，没想到会以这样的方式”，并说:“在车里看到的近江八幡和大津的街道非常美丽。”
+
+加里纳提到在机场帮助申请资料和搬运行李的名叫“佐藤”的日本人，“很感动。如果没有他（佐藤桑)的帮助，可能无法顺利地来日本。”
+
+伊琳娜的丈夫罗曼（52岁）留在了哈尔科。每天通过因特网保持联系，卡捷琳娜表示:“据我所知，导弹和射击声持续不断，情况非常艰难，因此非常担心。”
+
+文字版原文：
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
-
-
+| [樱花时政┃2名乌克兰女性难民投亲日本 收到满满感动](https://gnews.org/zh-hans/2281158/) |   |
+| --- | --- |
 
 
-
-国外媒体4月3日的消息，乌克兰内政部副部长安东·格拉什琴科当天证实，俄罗斯一架苏-35战机在乌克兰哈尔科夫东南部的伊齐乌姆附近被乌克兰军队击落，一名飞行员被俘。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-43.jpg)图源网络
-
-苏-35是俄罗斯苏霍伊设计局在苏-27战机的基础上研制的深度改进型单座双发、超机动性多用途战斗机，属第四代半战斗机。苏-35 是俄罗斯最昂贵的中队级别战斗机，在入侵乌克兰的战斗中，苏-35执行空对空作战任务和对乌克兰的防空压制。
-
-据报道，自战争爆发以来，已有19架俄罗斯飞机被乌克兰军队击落。
-
-新闻来源：[https://theaviationist.com/2022/04/03/first-russian-su-35s-flanker-e-confirmed-destroyed-in-ukraine/](https://theaviationist.com/2022/04/03/first-russian-su-35s-flanker-e-confirmed-destroyed-in-ukraine/)
-
-[https://www.dailymail.co.uk/news/article-10681647/Ukrainians-post-pictures-burning-Russian-fighter-jet-say-shot-down.html#v-3501776561017341369](https://www.dailymail.co.uk/news/article-10681647/Ukrainians-post-pictures-burning-Russian-fighter-jet-say-shot-down.html#v-3501776561017341369)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

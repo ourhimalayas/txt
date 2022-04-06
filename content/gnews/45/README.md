@@ -2,35 +2,34 @@
 ---
 
 
-## 疫情｜台湾单日确诊创新高 清明连假近700例
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2292441/)
+## 获葛莱美奖的台设计师称 台湾是和平美丽的国家
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2292826/)
 
-**疫情关注组 zhong｜2022-4-5**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Trading-Company-1-2.png)▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-台湾疫情爆发，今（5）中央流行疫情指挥中心公布单日确诊216例（本土病例），创下今年以来单日个案数新高，防疫指挥中心称“尚未达到疫情高峰”。4月1日至4日本土个案数分别为：104、160、183、133例。
-
-中央流行疫情指揮中心指揮官陳時中表示，未來若接種三劑新冠疫苗，考慮放寬自主健康管理數，甚至在疫調時可以不匡列。有反對意見者認為，接種三劑可免匡列，將導致社區再現突破性感染。
-
-据台湾媒体报导，台湾目前重症比例很低，占床率不足四成，台湾仍保留6成的医疗量能。医疗应变组副组长罗一钧说，目前全国专责病房、负压隔离病房使用率37.1%，全国2596床目前使用了964床，其中台北区（双北、基隆等）使用56%、北区（桃竹苗）占40%，医疗量能仍有余裕，也会持续做轻症分流。
-
-台湾疫情若失控，防疫指挥官陈时中表示，中（共）国的封控达不到效果，因此台湾整体战略就是趋近正常生活，在不限制和妨碍过大的情况下，积极抗疫，包括医疗资源分配、集中检疫所整备等，战略战术都很清楚。
-
-新冠口服药部分，有专家主张至少要准备百万份，惟陈时中认为新药有时效约拜年，口服药存量须经过计算，将浪费减到最低。台湾防疫政策，未考虑使用羟氯喹、青蒿素、伊维菌素等复方，仍以医药大厂开发的新冠口服药为主。
-
-台湾疫苗接种现况：
-
-- 第一剂83.4％
-- 第二剂78.28％
-- 基础加强剂0.81％：免疫不全或免疫低下的病人
-- 追加剂（第三剂）49.69％
+作者：纽约香草山医疗部 – 云豹
 
 
-来源｜[HEHO](https://heho.com.tw/archives/212968)、[聯合](https://health.udn.com/health/story/120950/6203198)、[三立](https://www.setn.com/News.aspx?NewsID=1095646)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
+
+当地时间4月3日，来自台湾的两位设计师获得了美国葛莱美奖的最佳唱片包装设计奖。 领奖时他们表示，台湾是一个美丽、爱好和平的国家，并期待欢迎大家来台湾。
+
+该奖项有5组入围作品，其中2组出自台湾。当现场观众通过翻译得知获奖者来自台湾时，给予了热烈的掌声及欢呼。一个不被禁锢思想灵魂的自由之地，才孕育出了充满创造力的新一代设计人。这也是台湾获得的第一座葛莱美奖座。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-3.jpg)
+参考链接：
+[台灣設計師李政瀚、于薇奪葛萊美獎 領獎喊台灣是美麗的國家\[影\]](https://www.cna.com.tw/news/amov/202204040007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

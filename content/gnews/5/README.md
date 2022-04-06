@@ -2,23 +2,23 @@
 ---
 
 
-## 中日财经爆|美国制裁俄罗斯暗网市场和加密货币交易所
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296652/)
+## 中日财经爆┃日本对俄奢侈品出口制裁案开始生效
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296697/)
 
-撰稿：东京樱花团/peterwong
+撰稿：东京樱花团/百花李香
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美国制裁俄罗斯暗网市场和加密货币交易所.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fforkast.news%2Fwp-content%2Fuploads%2F2022%2F04%2Fhack-1260x718.png&amp;imgrefurl=https%3A%2F%2Fforkast.news%2Fheadlines%2Frussian-darknet-hydra-crypto-exchange-garantex-sanctioned%2F&amp;tbnid=v5Wt3cbwyLcdDM&amp;v)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/日本对俄奢侈品出口制裁案开始生效.png)图片来源
 
-美国财政部4月5日对俄罗斯著名的暗网市场网站Hydra和加密货币交易所Garantex实施制裁，该交易所主要在莫斯科和圣彼得堡运营。
+4月5日，日本政府对俄罗斯实施的奢侈品制裁案已开始正式生效。
 
-财政部表示，新的制裁措施禁止美国人向Hydra或Garantex提供或接受“任何捐款或提供资金、货物或服务”。
+制裁案中总共有19种物品被列为制裁对象，其中包括禁止出口600万日元以上的豪华汽车和价格超过60万日元的摩托车及价格超过20万日元的大钢琴。制裁的目的是增加围绕总统普京身边的企业商人和富翁的压力，脱离政府。
 
-财政部还表示，这项制裁措施禁止美国与Hydra和Garantex进行交易，并寻求冻结他们在美国管辖范围内的任何资产，这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品，包括勒索软件活动所做努力的一部分。
+在乌克兰首都基辅附近的布查发现大量平民被俄军屠杀后，美欧对俄罗斯将实施新的制裁。日本政府和美欧保持一致正在加大制裁力度，包括最新的奢侈品禁运，并将考虑进一步强化措施。
 
-根据区块链研究人士，2019年俄罗斯加密货币交易所直接收到的非法比特币中约有86%来自Hydra。美国财政部将Hydra称为世界上“最大和最出名的暗网市场”。
+4月4日岸田文雄曾表示，日本将与国际社会密切合作，做我们必须做的事情，同时关注整个局势。
 
-消息来源:
-[**美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁**](https://cn.reuters.com/article/usa-russia-darknet-market-sanctions-0405-idCNKCS2LY03K?il=0)
+信息源：
+[ロシアへの高級車輸出禁止を発動　日米欧、さらに制裁強化へ](text=%E3%83%AD)
 
 *编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/老黑*

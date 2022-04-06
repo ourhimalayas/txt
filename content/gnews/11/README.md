@@ -2,31 +2,33 @@
 ---
 
 
-## 樱花FM┃中共穷途末路下的数字人民币
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2296587/)
+## 中日财经爆|美国制裁俄罗斯暗网市场和加密货币交易所
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296652/)
 
-音频：东京樱花团/战友520
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美国制裁俄罗斯暗网市场和加密货币交易所.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fforkast.news%2Fwp-content%2Fuploads%2F2022%2F04%2Fhack-1260x718.png&amp;imgrefurl=https%3A%2F%2Fforkast.news%2Fheadlines%2Frussian-darknet-hydra-crypto-exchange-garantex-sanctioned%2F&amp;tbnid=v5Wt3cbwyLcdDM&amp;v)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/040624.png)
+美国财政部4月5日对俄罗斯著名的暗网市场网站Hydra和加密货币交易所Garantex实施制裁，该交易所主要在莫斯科和圣彼得堡运营。
 
-4月3日中新经纬报道，据央行网站消息，增加天津市、重庆市、广东省广州市、福建省福州市和厦门市、浙江省承办亚运会的6个城市作为数字人民币试点地区，北京市和河北省张家口市在2022北京冬奥会、冬残奥会场景试点结束后转为试点地区。这是继中共数字人民币在深圳、苏州、雄安、成都、上海、海南、长沙、西安、大连、青岛10个地区后，中共央行公布在现有试点地区基础上增加天津市、重庆市、广东省广州市、福建省福州市和厦门市、浙江省承办亚运会的6个城市作为数字人民币试点地区，北京市和河北省张家口市在2022北京冬奥会、冬残奥会场景试点结束后转为试点地区。
+财政部表示，新的制裁措施禁止美国人向Hydra或Garantex提供或接受“任何捐款或提供资金、货物或服务”。
 
-中共央行在去年公布数据已开立个人钱包1.23亿个，交易金额约560亿元，中共国在今年的5月19日互联网金融协会、中国银行业协会、中国支付清算协会联合声明中表示，包括银行和在线支付渠道在内的此类机构不得向客户提供任何涉及加密货币的服务，如注册、交易、清算和结算，并警告投资者不要进行加密货币投机交易。
+财政部还表示，这项制裁措施禁止美国与Hydra和Garantex进行交易，并寻求冻结他们在美国管辖范围内的任何资产，这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品，包括勒索软件活动所做努力的一部分。
 
-中共要求运营机构包括中国工商银行、中国农业银行、中国银行、中国建设银行、交通银行、中国邮政储蓄银行、招商银行、网商银行和微众银行等9家银行。要求推动数字人民币场景化生态化创新应用。要求在银行卡业务中“信用卡+数字人民币”融合，数字人民币 e 生活买单、二维码支付交易闭环，数字人民币钱包支持受理 VISA 境外卡等功能。
+根据区块链研究人士，2019年俄罗斯加密货币交易所直接收到的非法比特币中约有86%来自Hydra。美国财政部将Hydra称为世界上“最大和最出名的暗网市场”。
 
-因中共从俄罗斯入侵乌克兰战争中看到了全世界对俄罗斯制裁，遭到世界围堵后卢布的大幅贬值，已是穷途末路的中共加速推进数字人民币，是想要控制市场货币流通，从国人口袋里继续搜刮钱财，为其最后的疯狂买单。
+消息来源:
+[**美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁**](https://cn.reuters.com/article/usa-russia-darknet-market-sanctions-0405-idCNKCS2LY03K?il=0)
 
-文字版原文：
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-
-| [中日财经爆┃中共穷途末路下的数字人民币](https://gnews.org/zh-hans/2280911/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

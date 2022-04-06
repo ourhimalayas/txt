@@ -2,37 +2,45 @@
 ---
 
 
-## 樱花FM┃2名乌克兰女性难民投亲日本 收到满满感动
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2296589/)
+## 我们要在中共围魏救赵四面点火之际树立新中国联邦形象
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2296658/)
 
-音频：东京樱花团/战友520
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8817.38%EF%BC%89%E6%88%91%E4%BB%AC%E8%A6%81%E5%9C%A8%E4%B8%AD%E5%85%B1%E5%9B%B4%E9%AD%8F%E6%95%91%E8%B5%B5%E5%9B%9B%E9%9D%A2%E7%82%B9%E7%81%AB%E4%B9%8B%E9%99%85%E6%A0%91%E7%AB%8B%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%BD%A2%E8%B1%A1%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/040626.png)
+**郭文贵先生：**所以说这次我们要看到美帝国主义，所谓的看美帝国主义和共产党和香港和俄罗斯，它们与世界的正义，挑战世界正义它有多惨，它就是假、骗、偷、自私。人类在走向一个无皇有主的时代、民主的时代、以人民做选票的天下。
 
-2名乌克兰女性难民辗转到日本滋贺县彦根市投奔女儿夫妇，一路上受到了日本民众的热心帮助，十分感动。
+你还要搞独裁、还要统治人类、还要搞14亿奴隶。整个大中东地区将近6亿人口，GDP也十几万亿，世界上80%的能源供给，但是整个中东有埃及，非常贫穷。有富饶的阿联酋、富饶的沙特，还有一个半死不活的、凶险的伊朗，还有一个被打烂了一个能源国伊拉克，还有小国卡塔尔、阿曼。共产党现在要去了围魏救赵，点燃能源火桶，要把世界经济给砸垮。这个时候我们新中国联邦人要做什么？抓住这个历史机会，抓住这个历史机会！我们要在前线救援，树立我们新中国联邦人形象。
 
-“佐藤桑在机场帮助了我们”，2名乌克兰女性感动得流下了眼泪
+这才多大的事儿，七哥说了话都不管用了。喊了十来天，就一个设计sticker , CC嗝儿屁和小王子就成了一个从第一天到现在，长岛哥、小王子和CC嗝儿屁的设计、文房四宝，成了一个搞不清的话题，到底谁设计的？谁改了谁的设计都整不出来，你还搞什么战争去？我们再谈论人类的未来，这不是开玩笑呢吗？
 
-3月31日，为躲避俄罗斯的军事侵略，躲到女儿夫妇居住的滋贺县彦根市的2名乌克兰女性拜访了三日月知事。她们目前住在县政府准备的住宿设施里，“感谢大家以日本式款待的精神给予了我们热情的帮助。希望乌克兰和日本的关系更加牢固。”
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-两人是伊琳娜·雅博尔斯卡（50岁）和他的母亲加里娜·伊万诺娃（80岁）。从遭受战火袭击的东部哈里科夫逃往西部里比乌的难民人数多到3倍的电车上，经过20多小时逃了出来。在波兰难民营和朋友的陪同下度过了10天左右，但是找不到工作等生活基础，因此决定投靠在日本伊琳娜的女儿卡捷琳娜（31岁）。
+编辑整理：Jacques；
 
-迎接她们的三日月知事：“真是艰难的旅程啊”，两人合掌道谢。伊琳娜说“好不容易才走到这里”，回想起艰难的旅程，流下了眼泪。伊琳娜说:“我梦想来日本，没想到会以这样的方式”，并说:“在车里看到的近江八幡和大津的街道非常美丽。”
+字幕档制作：知津；
 
-加里纳提到在机场帮助申请资料和搬运行李的名叫“佐藤”的日本人，“很感动。如果没有他（佐藤桑)的帮助，可能无法顺利地来日本。”
+视频制作及上传：Cindy；
 
-伊琳娜的丈夫罗曼（52岁）留在了哈尔科。每天通过因特网保持联系，卡捷琳娜表示:“据我所知，导弹和射击声持续不断，情况非常艰难，因此非常担心。”
+G-News发布：海贼王M.D.LUFFY；
 
-文字版原文：
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-| [樱花时政┃2名乌克兰女性难民投亲日本 收到满满感动](https://gnews.org/zh-hans/2281158/) |   |
-| --- | --- |
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
