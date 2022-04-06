@@ -2,40 +2,29 @@
 ---
 
 
-## 美国和盟国将对俄罗斯实行新一轮制裁并禁止在俄罗斯投资
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2298179/)
+## 乌克兰布查杀戮事件，美欧准备出台新的制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298213/)
 
-来自新加坡早报 /
-2022年4月6日 7:13 AM 报导
-采集：玫瑰新闻组
+#### 【雅典娜观察】和您一起洞察世界
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+整理/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-586.png)图片来源：Financial Times & 雅典娜设计组
+乌克兰利沃夫消息，美国及其盟国周三（4月6日）准备对莫斯科实施新的制裁，是因为在基辅北部发生的平民杀戮事件，总统泽连斯基将其描述为“战争罪”，要求给予相应的惩罚。
+本周，在乌军夺回的布查镇发现俄军近距离枪杀平民后，乌克兰官员说，在布查一座教堂的万人坑里可能有150至300具尸体。
+俄罗斯一贯地否认其在布查以平民为目标，并污蔑西方伪造证据。
+一家美国公司表示，几周前拍摄的卫星图像显示该镇一条街道上有平民尸体；路透社记者在布查看到至少四名受害者的头部中弹，其中一名双手被绑在背后。
+白宫表示，定于周三公布的新制裁部分是对布查杀戮的回应，制裁对象针对俄罗斯银行和官员，并禁止在俄罗斯进行新投资。
+欧盟27个成员国必须批准的欧盟拟议制裁措施，禁止购买俄罗斯煤炭并阻止俄罗斯船只进入欧盟港口。
+欧盟执行官乌尔苏拉·冯德莱恩表示，欧盟也在努力禁止石油进口。乌克兰表示，禁止俄罗斯天然气对于在和平谈判中达成结束战争的协议至关重要。
+在周二向联合国安理会发表热情洋溢的讲话后，泽连斯基表示，“对俄罗斯的新制裁必须与入侵战争罪行的严重性相匹配”。
+原文链接：[US, allies ready new Russia sanctions after Bucha killings – CNA (channelnewsasia.com)](https://www.channelnewsasia.com/world/us-allies-ready-new-russia-sanctions-after-bucha-killings-2610731)
 
-
-
-
-
-
-
-![一名消息人士称，美国和其盟国将于周三（4月6日）对俄罗斯银行和官员实行新制裁，并禁止在俄罗斯投资。（路透社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202204/20220406/2022-04-05t193914z1389895051rc24ts9tku45489620.jpg?VersionId=uj_tY9P4DQgOWwZHyWye6mjBp0unkJy2&amp;itok=V68kxpfj)一名消息人士称，美国和其盟国将于周三（4月6日）对俄罗斯银行和官员实行新制裁，并禁止在俄罗斯投资。（路透社）
-
-
-以下原文内容：
-（早报讯）一名消息人士称，美国和其盟国将于周三（4月6日）对俄罗斯银行和官员实行新制裁，并禁止在俄罗斯投资。
-
-该名消息人士周二（5日）告诉路透社，新一轮的制裁将强对俄罗斯金融机构和国有企业的限制，并针对俄罗斯政府官员和起家属实行制裁。“明天，美国将与七国集团和欧盟协调，宣布额外的一揽子制裁措施，这将给俄罗斯带来显著的代价，并进一步在经济、金融和科技领域上孤立它。”
-
-消息人士还称，这些措施将是“削弱俄罗斯国家权利的关键工具，对俄罗斯造成严重和直接的经济伤害，并追究资助和支持普京战争的窃盗统治者的责任。”
-
-另外，英国则宣布已冻结俄罗斯总统普京的“战争基金”中约3500亿美元（约4750亿新元）的资产。
-
-英国外长特拉斯说，这意味着俄国政权“6040亿美元外汇储备中的逾60%”，俄罗斯政府都不可动用。
-
-新闻链接：
-[消息：美国和盟国将对俄罗斯实行新一轮制裁](https://www.zaobao.com.sg/realtime/world/story20220406-1259880)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
+发布：tianzhihuan
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

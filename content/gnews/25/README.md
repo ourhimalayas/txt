@@ -2,25 +2,25 @@
 ---
 
 
-## 有声｜ 美国、英国和澳大利亚承诺共同研究高超音速武器
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2298090/)
+## 数字化货币大势所趋花旗银行高管们纷纷离职转行
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2298171/)
 
-By:**秘翻新闻**
+编译：波士顿五月花—-思澈
 
-**2022-04-06**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-33.png)
-[路透社](https://www.reuters.com/world/uk-us-australia-agree-work-hypersonics-under-defence-pact-2022-04-05/)4月5日报道，英国首相约翰逊的办公室表示，美、英、澳新防卫联盟领导人拜登、约翰逊、莫里森周二举行了电话会议，同意在高超音速武器和电子战能力方面进行合作。
+在2021一年的时间里花期银行有超过15名的高管离职转行去了数字资产领域，对于此现象花旗苦涩难言不予评论。
 
-会后，三方发表声明称，“我们今天承诺，在高超音速和反高超音速，以及电子战能力方面，开展新的三边合作。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/A9608331-780D-42FB-BEC9-A38638384A6D.jpeg)
 
-美国和澳大利亚已经有了一个名为 SCIFiRE 的高超音速武器计划，英国官员表示，尽管英国目前不会加入该计划，但三个国家将在该领域的研发开展合作。俄罗斯入侵乌克兰加剧了全世界对欧洲安全的担忧，拜登政府正在全力研发以五倍音速飞行的高超音速导弹。
+花期银行高管们纷纷离职转行去与数字资产有关的公司，这正如著名的新中国联邦创始人HCOIN 设计师郭文贵先生所说过的，世界金融大变革时代已经来临，法币即将退出历史舞台，数字货币代替法币。
 
-秘翻新闻 自由信仰 编译报道
+金融数字化转型大势所趋，加入新中国联邦成为先知先觉者。
 
-发布 : 恩典
+素材来源：[https://www.theblockcrypto.com/news+/140447/mapping-out-the-great-citi-crypto-exodus](https://www.theblockcrypto.com/news+/140447/mapping-out-the-great-citi-crypto-exodus)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+*发布：思澈*
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
