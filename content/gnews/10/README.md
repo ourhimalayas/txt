@@ -2,28 +2,41 @@
 ---
 
 
-## 被误导的大流行—— 中共宣传及中共病毒的效应 -7
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2295155/)
+## 佩戴口罩使得一代幼儿在语言和社交技能方面陷入困境
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295242/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-532.png)
+**据《零对冲》作者：TYLER DURDEN，2022年4月5日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-8.jpg)图片来源：原文
+根据一份官方报告，禁闭限制，包括成人戴口罩，使一代婴儿和幼儿在语言和社交技能方面陷入困境。
 
-（图片来自原文）
+为国家统计局工作的检查员发现，在过去两年中，婴儿被戴着口罩的成年人长时间包围，损害了他们的学习和交流能力。
 
-社交媒体账户类型很重要
+报告发现，那些年满两岁的孩子“一生都被戴着口罩的成年人包围着，因此无法经常看到嘴唇的动作或嘴型”。
 
-政府和外交账户的强化效果可以通过研究这些账户在某些受众中可能具有的权威来解释。
+报告补充说：“一些提供者报告认为，儿童语言发展的延迟导致他们不能像以前预期的那样轻易地与其他儿童交往。”
 
-回顾中国共产党（CCP）政府的推文被贴上 “政府官方 “的标签，我们可以顺理成章地认为这个徽章增强了人们对一个权威人物的看法。然后，受众必须对所提供的信息是否虚假形成自己的看法，因为可信来源（例如，中共国驻美国大使）的存在可能会导致通过“认知捷径“进行外围处理，相信 “可信来源的声明可以被信任 “。
+这些限制也使幼儿在爬行、独立使用厕所和交朋友方面遇到困难。
 
-此外，中共政府和外交账户似乎使用最多的“否认策略“，通常针对美国和其他西方批评中共在病毒传播初期处理不当和不愿意分享信息。中共的叙述从无视策略开始（淡化病毒的危险性），接着是否认策略（暗示病毒源自美国或由美军制造），最后是攻击指控者策略（指责美国将病毒称为中共国病毒或武汉流感）。
+学习方面的延迟也使一些儿童在穿外套和擤鼻涕等基本任务方面需要帮助。
 
-这些积极的声誉修复信息在短期内似乎是成功的，因为2020年3月后，中国流感和中共国病毒的使用频率降低了。巧合的是，在测试数据集中，3月份中，拒绝使用该词汇的次数最多。这一事实强调了中共的软实力战术——社交媒体战中有针对性和同步的有效性。
+首席检查员阿曼达-斯皮尔曼说：“我特别担心年幼儿童的发展，如果不加以解决，可能会给小学带来潜在的问题。”
 
-新闻来源链接：[https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/](https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/)
+我们之前强调德国的另一项研究，该研究发现，由于封锁政策导致学校关闭，儿童的阅读能力与COVID之前的时代相比急剧下降。
 
-本文作者：Rebecca (一切心皆不可得！) 
-上传排版：Hong
+言语治疗师杰克琳-西克（Jaclyn Theek）透露，大流行期间戴口罩导致婴儿和幼儿病人转诊量增加了364%。
+
+她说：“他们不做任何文字尝试，完全不与家人沟通。”她补充说，自闭症的症状也在急剧上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ddde-1.png)图片来源：原文转自推特
+**原文连接**：[https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills](https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills)
+
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

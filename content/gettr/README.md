@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 1:00 AM (UTC)`
+
+2022.04.05 晚  新中国联邦 | 新闻访谈   俄罗斯乌克兰战况最新进展；疫苗灾害要大于全球粮食危机；香港用体育馆改成方舱医院
+![img](https://media.gettr.com/group30/origin/2022/03/30/01/6139f631-3b76-fc45-f1d6-66a77eae8d7f/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/6/2022 12:33 AM (UTC)`
 
 2022.04.05 晚 新中国联邦 | 新闻      拜登再吁“战争罪审判普京”；英美呼吁暂停俄罗斯人权理事国地位
@@ -146,13 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月3日第30天当日救援统计：<br/>Medyka救援站接待：约290人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8947人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 30 - Date: April 3, 2022 :<br/>Medyka Rescue Station Reception: about 290 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8947 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group5/getter/2022/04/05/12/8768c35b-d22c-637a-04c6-9f671d682645/ce3d7a5e486a92c3549fbb522da8733d.jpg)
-
----
-
-`@miles 4/5/2022 12:29 PM (UTC)`
-
-2022.04.05 早 新中国联邦 | 新闻   俄乌战争消息更新; 新中国联邦正与国际社会合作灭共
-![img](https://media.gettr.com/group24/origin/2022/04/05/12/ce7f5f95-5795-552c-4cd8-4b850983fcc8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

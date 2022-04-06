@@ -2,32 +2,49 @@
 ---
 
 
-## 死灰复燃的“枫桥经验”
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2293921/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2294005/)
 
-作者：香草山写作组：静言
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-枫桥经验，是指1960年代初，在中共的政治运动中，浙江省诸暨市枫桥镇创造的一种，利用群众，所谓就地监督“改造”四类分子，即中共所说的“地富反坏”。中共把群众之间的关系，制造成敌我矛盾，利用几个管一个的方式，发动群众斗群众。枫桥经验就是利用群众，帮助中共加强专制统治的一种方式。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-05-下午12.43.45-1.png)
-枫桥经验提倡所谓用“文斗”不用“武斗”，以思想“改造”为主的洗脑方式，监督改造“反动分子”。实际上，就是用精神迫害的方式，让监视对象屈服。另一方面，枫桥经验极大的恶化了中共国的人际关系。
+翻译：土饭团
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/usa-1177272_640-edited-1.png)图片来自网络
 
-十八大以后，习近平重提“枫桥经验”，加强对人民对控制，以配合修改宪法，搞终身制。2020年4月下旬中共疫情期间，习近平赴陕西考察时，再度强调“枫桥经验”在疫情时代的重要性。中共利用疫情，把对中国人民的监视管控提高到前所未有的程度。
+您若想了解全文报导内容，请点击标题链接
 
-中共将监控系统、人类识别、云计算、大数据、人工智能、智能语音等新技术与警察系统深度融合。并将地方划分成无数个网格，构建“市、乡、村、支、微”五级网格架构体系。2019年，中共大力推行“一村一辅警”机制，把警察推进到最基层的单位。
+**1.[随着乌克兰危机的升级，分析人士警告中共国可能入侵台湾](https://www.foxnews.com/media/red-alert-china-vs-taiwan-fox-nation-martha-maccallum)**
 
-习近平上台后，中共更加走向人治，重回文革。在各地画地为牢，彻底背离法制、民主、自由。如今遍布全国大小市镇的“朝阳大妈”，身穿防护服的“大白”，及眼下各大城市的疫情极端防控方式，都是枫桥经验的延续与翻版。
+福克斯新闻4月4日电，随着乌克兰的危机继续升级，分析人士将其与台湾相提并论，并警告中共国入侵这个主权岛屿的可怕可能性。与普京一样，习近平认为台湾已经是中共国的一部分—如果习近平成功拿下台湾，全球影响将是毁灭性的。前中央情报局官员Dan Hoffman强调说：“对我们来说，保持台湾独立是至关重要的战略利益，我们必须向中共国表明，他们入侵台湾将在经济和军事上付出高昂代价。”
 
-参考链接：
-1.[枫桥经验（维基百科）](https://zh.m.wikipedia.org/wiki/%E6%9E%AB%E6%A1%A5%E7%BB%8F%E9%AA%8C#%3A~%3Atext%3D%E6%9E%AB%E6%A1%A5%E7%BB%8F%E9%AA%8C%EF%BC%8C%E6%98%AF1960%2C%E6%95%8C%E4%BA%BA%E5%8A%A0%E5%BC%BA%E4%B8%93%E6%94%BF%E2%80%9D%E7%9A%84%E7%BB%8F%E9%AA%8C%E3%80%82)
-2.[习近平重提毛泽东提倡的“枫桥经验”](https://www.bbc.com/zhongwen/simp/china/2013/10/131011_xi_jinping_fengqiao_mao_zedong)
+**2.[众议院军事委员会共和党人敦促Biden在“前所未有的威胁”下增加2023年国防预算](https://www.foxnews.com/politics/house-republicans-biden-increase-2023-defense-budget)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+福克斯新闻4月4日电，众议院军事委员会的共和党人正在敦促Biden总统增加2023年的国防预算，并警告说，在美国面临“前所未有的威胁”的情况下，国家“无法承受”国家安全的损失。众议院军事委员会所有28名共和党人的领导，阿拉巴马州众议员Mike Rogers周一告诉福克斯新闻：“由于没有考虑到通货膨胀，Biden总统的预算要求将使美国变得虚弱和脆弱。”
 
-编辑：Jack Li文阳
-总编：Zion文恩
-审核：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+**3.[美国推动暂停俄罗斯在联合国人权机构的资格](https://www.reuters.com/world/urgent-us-pushes-suspend-russia-human-rights-council-2022-04-04/)**
+
+路透社4月4日电，美国驻联合国大使周一表示，美国将要求联合国大会暂停俄罗斯在人权理事会的资格，此前乌克兰指责俄罗斯军队在布查镇杀害了数十名平民。美国称在乌克兰发生了战争罪，美国专家正在收集证据以证明这一点。大会此前已暂停一个国家的安理会成员资格。2011年3月，由于忠于当时的领导人Muammar Gaddafi的部队对抗议者实施暴力，大会一致暂停了利比亚的资格。
+
+**4.[共和党法案将使国务院披露中共国与普京的合作情况](https://nypost.com/2022/04/01/gop-bill-would-force-disclosure-of-chinas-putin-collaboration/)**
+
+纽约邮报4月1日电，众议院共和党人呼吁国务院向国会提交一份报告，详细说明中共国在俄罗斯入侵乌克兰之前和期间对俄罗斯的支持程度。领导这项工作的共和党众议员Andy Barr在一份声明中说：“中共和克里姆林宫之间的邪恶联盟是对美国和我们盟友的严重威胁。有证据表明，习总书记在入侵前和入侵期间加大了对克里姆林宫的支持。”
+
+**5.[20国集团因俄罗斯问题出现分歧而放弃发表联合声明](https://english.kyodonews.net/news/2022/04/57a5d23a7561-g-20-finance-chiefs-will-not-issue-statement-after-april-20-meeting.html)**
+
+共同社4月4日电，知情人士周一表示，由于在俄罗斯入侵乌克兰后参与该组织的问题上存在冲突，20国集团的财长们决定在4月20日的会议后不发表联合声明。针对莫斯科的侵略行为，美国总统Joe Biden表示，他认为应将俄罗斯从20国集团中剔除，其他一些成员也表达了对该国参与该组织的担忧。
+
+* * *
+
+审核：阿伯塔
+校对：小东
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
