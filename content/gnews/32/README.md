@@ -2,37 +2,29 @@
 ---
 
 
-## 英特尔暂停在俄罗斯的业务运营
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2296846/)
+## 国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296854/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**图/文｜CP**
+**发布时间｜06/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AUKUS開展超高音速武器合作-中共威脅或引發類似烏克蘭衝突重演.jpg)
 
-#### 翻译/编辑：小红帽
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Intel_Xeon_Roadmap_Ice_Lake_Sapphire_Rapids_Granite_Rapids_5_2060x1159-1.png)
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
-美国芯片制造商英特尔周二（4月5日）表示，公司将暂停在俄罗斯的所有业务运营并立即生效。英特尔已实施业务连续性措施，以尽量减少对其全球业务的干扰。
+由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
 
-英特尔就乌克兰战争发表了以下声明：
+根据美国总统拜登（Joe Biden）、英国首相约翰逊（Boris Johnson）及澳洲总理莫里森（Scott Morrison）针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
 
-“英特尔继续与国际社会一起谴责俄罗斯对乌克兰的战争，并呼吁迅速恢复和平。从即日起，我们暂停在俄罗斯的所有业务运营。此前，我们决定暂停向俄罗斯和白俄罗斯的客户发货。”
+AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美亦会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
 
-“我们与所有受这场战争影响的人同在，特别是乌克兰和周边国家的人民，以及全世界所有在该地区有家人、朋友和亲人的人。”
+有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
 
-“我们正在努力支持我们所有的员工度过这一困难时期，包括我们在俄罗斯的1,200名员工。我们还实施了业务连续性措施，以尽量减少对我们全球业务的干扰。”
+來源｜[彭博社](https://www.bloomberg.com/news/videos/2022-04-05/australia-u-k-u-s-to-develop-hypersonic-missiles-video)
 
-新闻来源：
-1、[Intel suspends business operations in Russia](https://www.channelnewsasia.com/business/intel-suspends-business-operations-russia-2610701)
-2、[Intel Suspends Operations in Russia](https://www.intel.com/content/www/us/en/newsroom/news/russia-business-statement.html)
+* * *
 
-发布：wenly
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

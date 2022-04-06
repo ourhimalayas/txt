@@ -2,34 +2,31 @@
 ---
 
 
-## 中日财经爆┃俄罗斯支付系统与中共合作躲避制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297211/)
+## 美国再对台售9500万爱国者防空系统
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297212/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日，俄罗斯国内支付系统的一名高管表示，俄罗斯正转向中共国的微芯片制造商，以绕过西方制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯支付系统与中共合作躲避制裁.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fafndaily.com%2Fwp-content%2Fuploads%2F2022%2F04%2FUnionPayMir_FU220307.jpg&amp;imgrefurl=https%3A%2F%2Fafndaily.com%2F%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%259B%25BD%25E5%2586%2585%25E9%2593%25B6%25E8%25A1%258C%25E5%258D%25A1%25E9%259C%2580%25E6%25B1%2582%25E6%2580%25A5%25E5%258D%2587-%25E6%25AD%25A3%25E5%259C%25A8%25E8%25BD%25AC%25E5%2590%2591%25E4%25B8%25AD%25E5%259B%25BD%25E7%259A%2584%25E5%25BE%25AE%25E8%258A%25AF%25E7%2589%2587%2F&amp;tbnid=oLCNMDpEBo4QSM&amp;vet=12ahUKEwi3kaj_4_72AhUJaRoKHWzVAV8QMygBegUIARCqAQ..i&amp;docid=Bgil_y7qCgOGHM&amp;w=508&amp;h=248&amp;q=%E5%BE%AE%E8%8A%AF%E7%89%87%20%E9%93%B6%E8%81%94%E7%B3%BB%E7%BB%9F&amp;ved=2ahUKEwi3kaj_4_72AhUJaRoKHWzVAV8QMygBegUIARCqAQ)
-俄罗斯国家支付卡公司(NSPK)董事会成员奥列格·蒂沙科夫表示，俄罗斯正面临微芯片短缺，因亚洲制造商在中共病毒大流行期间暂停生产，且欧洲供应商在制裁后停止与俄罗斯合作。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯一些最大的银行被踢出了环球银行金融电信协会(SWIFT)，国际支付卡Visa和万事达卡已经停止为俄罗斯的海外账户提供服务。上个月，Mir系统与苹果支付(Apple Pay)的联系也被切断。
+#### 整理/编辑：BENJ1
 
-“我们正在寻找新的微芯片供应商，在中国找到了几家，正在进行认证，”蒂沙科夫在周二的一次会议上表示，但并未透露更多细节。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/unknown-4.png)图片来源：https://www.voachinese.com/
 
-根据路透社基于Mir系统数据的计算，NSPK在2021年底至今年3月期间发行了超过200万张Mir卡，目前已累积发卡1.16亿张。
 
-俄罗斯所有主要银行都报告称，对这种国内卡的需求有所增加。一些俄银行现在与中国银联联合发卡。银联是替代Visa和万事达卡的支付系统，为俄罗斯人在海外购物提供支付服务。
+美国国务院宣布批准向台湾出售一项价值9500万美元的爱国者防空系统技术协助方案，并向国会作出报备。台北方面对此表示欢迎和感谢。
 
-消息来源:
-[俄罗斯民众对国内银行卡需求急升 俄转向中国制造商寻求微芯片供应](https://cn.reuters.com/article/russia-china-bank-card-microchips-0405-t-idCNKCS2LY01M?il=0)
+美国国防部国防安全合作局星期二（2022年4月5日）在一份声明中说，这项军售案包括提供爱国者防空系统的训练、策划、部署、操作、维护，并提供相关设备、零部件和后勤支援，称相关军售案将有助于维持接受方的导弹部署密度、确保防空系统的备战状态；接受方将利用这项能力遏阻地区威胁、强化本土防御。声明说，这项军售不会改变地区的基本军事平衡。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+台湾总统府发言人张惇涵星期三在一份声明中称这是拜登政府上任后批准的第三项对台军事案，台湾政府对此表达“诚挚感谢”，称此举再次展现美国政府持续落实台湾关系法和六项保证中对台湾的安全承诺，台湾也会持续展现自我防卫的决心。
+
+参考链接：[美国再批准对台军售确保爱国者防空系统战力](https://www.voachinese.com/a/us-taiwan-arms-sale-air-defense-20220406/6517186.html)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
