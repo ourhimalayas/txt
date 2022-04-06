@@ -2,44 +2,32 @@
 ---
 
 
-## 我们要在中共围魏救赵四面点火之际树立新中国联邦形象
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2296658/)
+## 樱花时政┃国际人权组织收集俄罗斯布查大屠杀战争罪证据
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296765/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8817.38%EF%BC%89%E6%88%91%E4%BB%AC%E8%A6%81%E5%9C%A8%E4%B8%AD%E5%85%B1%E5%9B%B4%E9%AD%8F%E6%95%91%E8%B5%B5%E5%9B%9B%E9%9D%A2%E7%82%B9%E7%81%AB%E4%B9%8B%E9%99%85%E6%A0%91%E7%AB%8B%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E5%BD%A2%E8%B1%A1%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
+撰稿：东京樱花团/文小白
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+据4月6日NHK新闻报道，国际人权组织『人权观察』危机与冲突主管索耶就关于俄罗斯在首都基乌西北部布查发现大量公民遗体的行为受到越来越强烈的谴责时，接受NHK采访时表明，“这清楚地表明，战争犯罪正在乌克兰的许多地方发生着。”
 
-**郭文贵先生：**所以说这次我们要看到美帝国主义，所谓的看美帝国主义和共产党和香港和俄罗斯，它们与世界的正义，挑战世界正义它有多惨，它就是假、骗、偷、自私。人类在走向一个无皇有主的时代、民主的时代、以人民做选票的天下。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/┃国际人权组织收集俄罗斯布查大屠杀战争罪证据.png)图片来源：本文链接
 
-你还要搞独裁、还要统治人类、还要搞14亿奴隶。整个大中东地区将近6亿人口，GDP也十几万亿，世界上80%的能源供给，但是整个中东有埃及，非常贫穷。有富饶的阿联酋、富饶的沙特，还有一个半死不活的、凶险的伊朗，还有一个被打烂了一个能源国伊拉克，还有小国卡塔尔、阿曼。共产党现在要去了围魏救赵，点燃能源火桶，要把世界经济给砸垮。这个时候我们新中国联邦人要做什么？抓住这个历史机会，抓住这个历史机会！我们要在前线救援，树立我们新中国联邦人形象。
+“过去俄罗斯对叙利亚军队犯下的可怕罪行没有被追究，这进一步助长了俄罗斯的暴虐行为，并直接导致了俄罗斯在乌克兰犯下战争罪行。”索耶强调了追究俄罗斯责任的重要性。
 
-这才多大的事儿，七哥说了话都不管用了。喊了十来天，就一个设计sticker , CC嗝儿屁和小王子就成了一个从第一天到现在，长岛哥、小王子和CC嗝儿屁的设计、文房四宝，成了一个搞不清的话题，到底谁设计的？谁改了谁的设计都整不出来，你还搞什么战争去？我们再谈论人类的未来，这不是开玩笑呢吗？
+索耶表示，人权观察员正在调查乌克兰涉嫌犯下的战争罪行，截至4月5日为止的两天中，人权观察官员对公民进行了采访，收集到更多证据。以便在今后审判时提交给国际刑事法院以追究俄罗斯的责任。
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+人权观察4月3日发表了俄罗斯士兵袭击乌克兰妇女和杀害平民等行为的目击者证词报告，索耶在俄罗斯军队撤退的地区表示，“俄罗斯的暴行将被进一步揭露。”
 
-编辑整理：Jacques；
+信息来源：
+[国際的な人権団体 “戦争犯罪行われた”さらに証拠集める方針](https://www3.nhk.or.jp/news/html/20220406/k10013569211000.html)
 
-字幕档制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

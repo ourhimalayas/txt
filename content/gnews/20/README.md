@@ -2,78 +2,79 @@
 ---
 
 
-## COVID疫苗既不能防止传播、也不能预防严重疾病或死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2296415/)
+## 美国务卿安东尼·布林肯：美国正在制裁全球最大的讲俄语的暗网市场
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2296644/)
 
-编译： Jenny Ball
+**美国务卿安东尼·布林肯： **
+美国正在制裁全球最大的讲俄语的暗网市场 Hydra 和虚拟货币交易所 Garantex。 今天的行动，与德国协调作，表明我们致力于继续捣毁勒索软件基础设施及参与者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-7.jpg)
 
-“我们的疫苗效果非常好，”CDC主任罗谢尔·瓦伦斯基（Rochelle Walensky）博士在 2021 年 8 月 5 日接受 CNN 的沃尔夫·布利策 (Wolf Blitzer)采访时说：“在严重疾病和死亡方面，它们对德尔塔继续起着很好的作用–它们防止了它。但他们不能再做的是防止传播。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-570-edited.png)childrenshealthdefense.org
+> The United States is sanctioning the world’s largest darknet market for Russian speakers, Hydra, and the virtual currency exchange Garantex. Today’s action, coordinated with 🇩🇪, demonstrates our commitment to continue disrupting ransomware infrastructure and actors.
+> — Secretary Antony Blinken (@SecBlinken) [April 5, 2022](https://twitter.com/SecBlinken/status/1511433500154478592?ref_src=twsrc%5Etfw)
 
-瓦伦斯基当时可能认为疫苗可以预防严重的疾病和死亡——但她现在也不相信这一点。
 
-那是八个月前的事了。八个月前，这些疫苗才刚刚推出。
 
-现在我们进行了近 16 个月的观察，我们发现了什么？瓦伦斯基的CDC透露了什么？与她油嘴滑舌的说法相矛盾？
+**参议员泰德·克鲁兹转推 伊隆·马斯克的推文：** 
+期待与(推特CEO)帕拉格Parag 和推特董事会合作，以在未来几个月内对推特进行重大改进！
 
-尽管有数千篇文章讨论了 COVID-19 疫苗，但为了了解真相，我们只需要查看高质量的流行病学数据。
 
-换一种说法：
 
-我们要的是原始的、官方的数据，在没有经过调整或算法来 “平滑 “数据之前。
-我们需要大量人口。
-我们想要最可靠的终点，如住院或死亡。
+> Looking forward to working with Parag & Twitter board to make significant improvements to Twitter in coming months!
+> — Elon Musk (@elonmusk) [April 5, 2022](https://twitter.com/elonmusk/status/1511322655609303043?ref_src=twsrc%5Etfw)
 
-在过去的几天里，我在我的博客和子栈（Substack）上识别并分析了此类研究。数据来自美国官方CDC 和英国国家统计局公布的数据。
-这些数据是在 2021 年 6 月至 2021 年 11 月期间收集的，在 Omicron 出现之前。
 
-《捍卫者》在两个月前报道了这些数据：
 
-接种疫苗的加州人和纽约人，患新冠病毒的可能性是先前有免疫力但未接种疫苗的人的三倍。
+**前国务次卿基思·克拉奇： **
+参议员托德·扬@SenToddYoung 早就意识到 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 威胁美国和自由世界的紧迫性。他的两党 [#USICA](https://gettr.com/hashtag/%23USICA) 美国创新与竞争法案可以帮助确保好人赢得未来。我的关于美国科技领导地位为何重要的专栏文章：（附文章链接：参议院刚刚通过了下一个阿波罗计划） 【转参议员托德·扬推文： 打击中共 [#CCP](https://gettr.com/hashtag/%23CCP) 的必要性是显而易见的。 在繁荣美国联盟 [@cpa\_tradereform](https://gettr.com/user/cpa_tradereform) 的会议上加入基思·克拉奇，讨论我的中共国竞争力法案将如何加速我们在技术和制造业方面的增长，从而使美国能够引领 21 世纪。 [#USICA](https://gettr.com/hashtag/%23USICA)】
 
-接种疫苗的加利福尼亚人的住院率（重症）比未接种疫苗但先前具有免疫力的人更高。 （纽约没有提供住院数据。）
 
-英国国家统计局的数据于 3 月 16 日发布，从 2021 年 1 月 1 日到 1 月 31 日，包括 Delta 和 Omicron 波。
 
-数据已按年龄标准化。该数据库包括所描述的 13 个月内英格兰（人口为 5600 万）所有死亡人数的 86%。
+> .[@SenToddYoung](https://twitter.com/SenToddYoung?ref_src=twsrc%5Etfw) has recognized the urgency of the CCP's threats to the US and the free world for a long time. His bipartisan [#USICA](https://twitter.com/hashtag/USICA?src=hash&amp;ref_src=twsrc%5Etfw) bill can help ensure the good guys win the future. My op-ed about why America's tech leadership matters: [https://t.co/0xvSV6KAi3](https://t.co/0xvSV6KAi3) [https://t.co/3PPoLYHXVX](https://t.co/3PPoLYHXVX) [pic.twitter.com/LXCoIXGRvc](https://t.co/LXCoIXGRvc)
+> — Keith J. Krach (@KeithJKrach) [April 5, 2022](https://twitter.com/KeithJKrach/status/1511421749409333253?ref_src=twsrc%5Etfw)
 
-然而，在去年 12 月和 1 月（对应于 Omicron 浪潮），两次接种疫苗的 COVID 死亡率高于从未接种过疫苗的人。这对整个人口来说是正确的。
 
-如果按年龄组细分死亡人数，则绝大多数 COVID 死亡发生在 70 岁以上的人群中。
 
-底线是什么？
+**参议员容·约翰逊：** 
+拜登谎称从未与亨特谈过他的海外业务，也没有从中国赚到钱。串通一气的媒体继续为他们掩盖事实。现在他们在我的事上撒谎。 人们干嘛信他们？没人信。
 
-官方基于超过 3000 万美国成年人和 4800 万英格兰居民身上获得的高质量数据，无可争议地表明：
 
-• 甚至在 Omicron 之前，自然免疫在预防病例方面比单独接种疫苗要好三倍。
-• 甚至在 Omicron 之前，自然免疫在预防严重疾病（以住院率衡量）方面比单独接种疫苗要好一些。
-• 加强针（第三针）降低了英格兰接种 Omicron 疫苗的人的死亡率，但到 2022 年 1 月，益处开始下降。
 
-总体而言，英格兰未接种疫苗的人群在 Omicron 浪潮期间的 COVID 死亡率低于其双重接种人群的 COVID 死亡率。
+> Biden lied about never talking to Hunter about his overseas businesses and that Hunter never made money from China. A complicit media continues to cover up for them. Now they’re lying about me. 
+> 
+> Why does anyone believe them? Don’t. [pic.twitter.com/1PqsDiRYFD](https://t.co/1PqsDiRYFD)
+> — Senator Ron Johnson (@SenRonJohnson) [April 5, 2022](https://twitter.com/SenRonJohnson/status/1511437358616436738?ref_src=twsrc%5Etfw)
 
-瓦伦斯基和其他所谓的专家是错误的。甚至在 Omicron 之前，自然免疫对感染（因此对传播）的保护是双重疫苗接种的三倍。在 Omicron 之后，疫苗效果更差。
 
-虽然疫苗接种在 Delta 浪潮期间提供了一些针对严重疾病（以住院治疗衡量）的保护，但它提供的保护少于自然免疫。
 
-绝大多数 COVID 死亡发生在 70 岁以上的人群中。在这个年龄组中，在 Omicron 期间，双重接种疫苗的人死于 COVID 的比率高于未接种疫苗的人。
+**美国北约使命： **
+当我们说美国对北约盟友的承诺是铁定的时，我们的意思是什么？这意味着我们有美军在地面保护北约的每一寸领土，我们的高级外交官国务卿布林肯将来到布鲁塞尔与我们的盟国进行协调。 【图片新闻：4/6-4/7，布鲁塞尔北约总部 外交大臣会议】
 
-素材链接：[COVID Vaccines Don’t Prevent Transmission, Severe Illness or Deaths, Data Show](https://childrenshealthdefense.org/defender/covid-vaccines-dont-prevent-transmission-severe-illness-deaths-data/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=a849c8be-c54c-4d5f-bd89-cd1027b45caa)
 
-* * *
 
-审核：文乐
-校对：阿伯塔
-发布：花羽
+> What do we mean when we say that the U.S. commitment to [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies is ironclad? It means that we have U.S. troops on the ground protecting every inch of NATO territory & our top diplomat [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) coming to Brussels to coordinate with our Allies. [#ForMin](https://twitter.com/hashtag/ForMin?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lXaQARZSph](https://t.co/lXaQARZSph)
+> — US Mission to NATO (@USNATO) [April 5, 2022](https://twitter.com/USNATO/status/1511364861430837253?ref_src=twsrc%5Etfw)
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+
+
+**国务卿安东尼·布林肯： **
+随着乌克兰军队勇敢地继续抗击俄罗斯的再次入侵，我已授权1亿美元以满足乌克兰军队对额外反装甲系统的迫切需求。
+
+
+
+> As Ukraine’s forces bravely continue to combat Russia’s renewed invasion, I have authorized $100 million to meet an urgent need for additional anti-armor systems for Ukraine’s forces.
+> — Secretary Antony Blinken (@SecBlinken) [April 6, 2022](https://twitter.com/SecBlinken/status/1511520632046903301?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本：** 
+迪士尼及其在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 内部的拥护者们都支持剥夺父母的权利。
+
+
+
+> Both Disney and their supporters in the Chinese Communist Party support taking away rights from parents.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 5, 2022](https://twitter.com/MarshaBlackburn/status/1511477975593754629?ref_src=twsrc%5Etfw)
+
 
 
  

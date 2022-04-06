@@ -2,31 +2,35 @@
 ---
 
 
-## 秘翻新闻｜中共国进行近一年以来最大玉米采购
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2292415/)
+## 获葛莱美奖的台设计师称 台湾是和平美丽的国家
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2292826/)
 
-**By:[秘翻新闻](https://gettr.com/post/p13mv2jd97b)**
+作者：纽约香草山医疗部 – 云豹
 
-**[2022-04-05](https://gettr.com/post/p13mv2jd97b)**
 
-**新闻内容:**
 
-**1.黑龙江抗疫医生时军自杀消息疯传 传生前受辱**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-**2.上海防疫一团乱 居委会女官崩溃痛哭录音热传**
 
-**3.卫星图像证实俄军屠杀布查平民**
 
-**4.中共对布查平民被杀事件保持沉默**
+当地时间4月3日，来自台湾的两位设计师获得了美国葛莱美奖的最佳唱片包装设计奖。 领奖时他们表示，台湾是一个美丽、爱好和平的国家，并期待欢迎大家来台湾。
 
-**5.因俄杀戮平民 美欧计划新一轮制裁**
+该奖项有5组入围作品，其中2组出自台湾。当现场观众通过翻译得知获奖者来自台湾时，给予了热烈的掌声及欢呼。一个不被禁锢思想灵魂的自由之地，才孕育出了充满创造力的新一代设计人。这也是台湾获得的第一座葛莱美奖座。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-3.jpg)
+参考链接：
+[台灣設計師李政瀚、于薇奪葛萊美獎 領獎喊台灣是美麗的國家\[影\]](https://www.cna.com.tw/news/amov/202204040007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-**Gettr链接：[https://gettr.com/post/p13mv2jd97b](https://gettr.com/post/p13mv2jd97b)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-发布:星星
+编辑/总编/审核：DM
+校对/发稿：为真不破20
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

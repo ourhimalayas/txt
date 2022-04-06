@@ -2,32 +2,29 @@
 ---
 
 
-## 樱花时政┃国际人权组织收集俄罗斯布查大屠杀战争罪证据
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296765/)
+## 国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296854/)
 
-撰稿：东京樱花团/文小白
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-据4月6日NHK新闻报道，国际人权组织『人权观察』危机与冲突主管索耶就关于俄罗斯在首都基乌西北部布查发现大量公民遗体的行为受到越来越强烈的谴责时，接受NHK采访时表明，“这清楚地表明，战争犯罪正在乌克兰的许多地方发生着。”
+**图/文｜CP**
+**发布时间｜06/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AUKUS開展超高音速武器合作-中共威脅或引發類似烏克蘭衝突重演.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/┃国际人权组织收集俄罗斯布查大屠杀战争罪证据.png)图片来源：本文链接
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-“过去俄罗斯对叙利亚军队犯下的可怕罪行没有被追究，这进一步助长了俄罗斯的暴虐行为，并直接导致了俄罗斯在乌克兰犯下战争罪行。”索耶强调了追究俄罗斯责任的重要性。
 
-索耶表示，人权观察员正在调查乌克兰涉嫌犯下的战争罪行，截至4月5日为止的两天中，人权观察官员对公民进行了采访，收集到更多证据。以便在今后审判时提交给国际刑事法院以追究俄罗斯的责任。
+由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
 
-人权观察4月3日发表了俄罗斯士兵袭击乌克兰妇女和杀害平民等行为的目击者证词报告，索耶在俄罗斯军队撤退的地区表示，“俄罗斯的暴行将被进一步揭露。”
+根据美国总统拜登（Joe Biden）、英国首相约翰逊（Boris Johnson）及澳洲总理莫里森（Scott Morrison）针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
 
-信息来源：
-[国際的な人権団体 “戦争犯罪行われた”さらに証拠集める方針](https://www3.nhk.or.jp/news/html/20220406/k10013569211000.html)
+AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美亦会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
+
+來源｜[彭博社](https://www.bloomberg.com/news/videos/2022-04-05/australia-u-k-u-s-to-develop-hypersonic-missiles-video)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

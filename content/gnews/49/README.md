@@ -2,32 +2,40 @@
 ---
 
 
-## 国际｜马斯克成为推特最大股东 批：不遵守言论自由是破坏民主
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2290950/)
+## 日媒分析中共在俄罗斯侵略中得到的启示
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2292824/)
 
-**
-港台前线 zhong｜2022-4-5**
-![這張圖片的 alt 屬性值為空，它的檔案名稱為 Best-Smartphone-This-Year-3.png](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-Twitter 股价盘前交易中大涨25%，先前美国证券交易委员会(SEC)的一份监管公告显示，特斯拉首席执行官马斯克(Elon Musk)持有该社交媒体平台9.2%的股份。Wedbush证券交割结算公司的分析师表示，他们认为马斯克收购普通股仅是为了与推特董事会和管理层展开更广泛的对话。
+作者：日本方舟农场 – Andy5
 
-马斯克曾批评推特未严格遵守言论自由原则，是破坏民主的行为，甚至考虑自己建立一个新的社交媒体平台后，便收购了推特7,750万股股票（9.2%普通股）成为推特最大股东，价值约29亿美元。
 
-郭文贵于Gettr表示，马斯克收购推特股权对整个社交媒体以及推特投资者是好事，Gettr也可能一并受益。郭认为推特过去中共的走狗，马斯克成为最大股东一定会改变现状。马斯克于推特发起民意调查，称言论自由对民主运作至关重要，问道“您相信推特严格遵守言论自由此一原则吗？”
 
-马斯克于推特发起民意调查，共200多万人参与，结果显示逾7成用户不相信推特有严格遵守言论自由。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-74.png)
 
-## 马斯克怒控SEC“骚扰”
 
-美国SEC于2018年9月指控马斯克8月在推特上宣布他已获得足够的资金，以每股420美元的价格将特斯拉私有化。经调查，SEC认定马斯克此举已该当诈欺，双方最终以4000万美元和解，且同意辞去特斯拉董事会主席职务3年。
 
-马斯克认为，这是SEC报复他曾公开批评联邦金融监管机构，并指责SEC用“无止尽”和“毫无根据”调查，来骚扰他和特斯拉公司，试图侵害言论自由。
+当地时间4月2日，日媒分析称，中共在俄罗斯侵略中得到了启示。
 
-来源｜[ALJ](https://www-aljazeera-com.translate.goog/economy/2022/2/22/musks-attorney-accuses-sec-of-leaking-details-of-investigation?_x_tr_sl=en&amp;_x_tr_tl=zh-TW&amp;_x_tr_hl=zh-TW&amp;_x_tr_pto=op,sc)、[SBS](https://www.sbs.com.au/news/article/elon-musk-becomes-twitters-largest-shareholder-after-purchasing-3-8-billion-stake/7oisbwque)
+日本自民党外交部会长佐藤正久先生表示，短时间内中共会更加谨慎地制定侵略台湾的计划。但长期来看，中共一定会找到规避所有国际社会谴责的计划拿下台湾。
 
-* * *
+他给出了三个理由，首先习近平在跟拜登的通话中，指责国际社会不应该一起针对俄罗斯，潜台词就是等台海爆发危机的时候，全世界不能针对中共国。并且中共现在正在东南亚和中东极力游说，来规避这样的危险。其次，尽管G7在一开始激烈讨论过，不能让中共国沦为制裁俄罗斯问题上的漏洞，但在最后声明中没有涉及中共国的条款。最后，因为欧洲和东南亚跟中共国的经济往来，这些国家很难在台海危机时真正下定决心制裁中共国。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-3.jpg)
+另外，前驻中共国防卫官员地小原凡司先生也让表达了相近观点，并强调中共国以现在的俄罗斯为预习材料，正在加强其军事实力，试图在侵略台湾时速战速决。他还表示，中共跟俄罗斯普京一样，比起畏惧国际社会的谴责，更害怕的是墙内老百姓的批评。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+观察人士表示，日本高官的上述表述，无一例外都印证着爆料革命近期对台海局势的不容乐观。甚至还更进一步地指出中共独裁体制最害怕的是国内老百姓民心向背，也就是郭先生一直以来强调的，海外国家对灭共只能锦上添花，灭共还得靠中国人自己。
+
+参考链接：
+[20220402日媒分析中共從俄羅斯入侵烏克蘭學到的 （我感覺我看了一遍日語版的半年前七哥說的話）](https://www.gettr.com/post/p13gvzsc3be)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：DM
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

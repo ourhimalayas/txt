@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group12/origin/2022/04/06/04/f0f6ad61-4c86-944c-b853-67a62f5869d9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/6/2022 3:03 AM (UTC)`
 
 2022-4-5《鸡血王喜币大作战》 第一百五十六集 嘉宾：无双柳薇薇、文空
@@ -146,13 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
  4月5号：尊敬的战友们好，这在中共国．连草都不让老百姓吃了……太可怕了，这是哪国的王法呢？这是外交部长王娘娘讲的．最民主．最安全．最幸福的．中国人民的生活方式吗？
 ![img](https://media.gettr.com/group22/getter/2022/04/05/13/49797d28-8601-6fa9-9d16-3e3ef2122110/c7751b235a878987753689a75d15c8cb.jpg)
-
----
-
-`@miles 4/5/2022 1:05 PM (UTC)`
-
-2022.04.05 早  新中国联邦 | 新闻访谈  俄军撤出基辅地区犯下战争罪和反人类罪；西方制裁俄罗斯引发全球粮食危机；上海等地封城 中共用集中营方式应对疫苗灾难
-![img](https://media.gettr.com/group17/origin/2022/04/05/13/f193d179-a4d9-ceab-a781-68749e48cf1f/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
