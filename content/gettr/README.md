@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 8:44 PM (UTC)`
+
+2022.04.06  新中国联邦 | 喜健康   营养师分享的私房经/中共病毒的预防漫谈
+![img](https://media.gettr.com/group13/origin/2022/04/06/20/175cc026-e0ae-f1f1-6028-170c7b8dba04/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/6/2022 8:07 PM (UTC)`
 
 When a volunteer from Tennessee, US heard that the New Federal State of China is helping 1.4 billion people in mainland China to get rid of the Communist cult, he offered to pray for the Chinese people.  In his prayer, he hoped God would help China to get rid of the evil Communist Party, and that those Chinese people who are suffering from the poison of the Communist Party would recognize the evil and break free from its control and gain true freedom.<br/>这是一位来自来美国田纳西义工，当他听说新中国联邦正在帮助中国大陆14亿人摆脱共产党邪教的统治，他提出要为中国人做祈祷， 他在祈祷中说，希望神帮助中国摆脱邪恶的共产党， 希望那些深受共产党毒害的中国人能认清邪恶，挣脱邪恶的控制，获得真正的自由。
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 2022-4-5《鸡血王喜币大作战》 第一百五十六集 嘉宾：无双柳薇薇、文空
 ![img](https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/6/2022 2:00 AM (UTC)`
-
-2022.04.05  新中国联邦 | 喜财经   卢布的过山车表演；美元会失去全球各国储备货币的资格吗？
-![img](https://media.gettr.com/group13/origin/2022/04/06/01/c1a3bb20-89c6-7211-b725-110132269415/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
