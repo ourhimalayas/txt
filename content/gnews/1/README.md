@@ -2,44 +2,31 @@
 ---
 
 
-## 有声|所罗门群岛不允许中共军事入驻
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299179/)
+## 美国推动联合国将俄罗斯赶出人权理事会
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2299682/)
 
-配音：香草山农场 – 信念7
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+##### 作者：加拿大温哥华扬帆农场 – 自由法兰西🇫🇷
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-21.png)
+加拿大网媒《千禧后》(The Post Millennial) 4月4日报道，美国正带头推动暂停俄罗斯在联合国人权理事会资格。据悉，该提案保证会通过，因为只有少数人会投反对票，而弃权票不会算作必要的2/3多数。
 
+联合国监督机构联合国观察组织向联合国大会分发了一份决议草案，要求将俄罗斯除名，不到24小时即获得12万人支持。草案强烈谴责俄罗斯对乌克兰的侵略造成严重侵犯人权行为，包括危害人类罪行为，重申俄罗斯必须全面执行联合国3月2日“要求俄罗斯全民从乌克兰撤军”的ES-11/1号决议和3月24日 “侵略乌克兰造成的人道主义后果“的ES-11/2号决议，要求暂停俄罗斯在人权理事会的资格。
 
+俄罗斯正处于人权理事会三年任期中的第二年，如担任成员期间犯有严重侵犯人权行为，获得193个成员三分之二以上的多数票即可暂停该成员国资格。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/AY4OMQVEL5KDZOBQWNR7RKXOWM-1080x720-1.jpg)
+原文链接：[https://thepostmillennial.com/breaking-us-pushes-for-un-to-boot-russia-from-the-human-rights-council](https://thepostmillennial.com/breaking-us-pushes-for-un-to-boot-russia-from-the-human-rights-council)
 
+编辑/上传 – 大废墙
+素材/采编 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-近日所罗门总理表示，不允许中共在本国建立军事基地。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-据悉此前太平洋岛屿国家所罗门曾与中共签署安全协议，以扩大中共在印太地区的军事控制。所罗门总理尚未透露更多的协议细节。密克罗尼西亚和新西兰等国家都曾警告所罗门，与中共的安全协议将会扰乱长期的区域安全，美国与中共的较量将会体现在此。中共多次违背国际信约，以商业目的入驻军事，中共南海已经建立20个军事据点，在太平洋岛屿也可能重复同样的道路。中共已拥有斯里兰卡的一个港口，对外谎称不用做军事目的。早在2018年中共提出要重新开发巴布亚新几内亚的海军基地，但此举被否决，转给澳大利亚。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-澳大利亚表示所罗门岛屿的安全威胁着澳本土，且不属于太平洋区域的国家如中共，不应该插手本地区的国家安全事业。
-
-
-
-文字版原文：[所罗门群岛不允许中共军事入驻](https://gnews.org/zh-hans/2293334/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,34 @@
 ---
 
 
-## 俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297315/)
+## 7-Eleven将向特许经营者支付9800万美元的集体诉讼和解
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2298304/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌局势致能源价格飙涨，全球通胀持续扩大，欧盟部分成员国高度依赖俄罗斯能源供给，为降低全球对俄罗斯能源的依赖，日前美欧成立新的伙伴关系，美方承诺向欧盟出口150亿立方米的液化天然气，且未来将继续增加出口量。俄罗斯总统普京则要求欧盟不友好名单国家应以卢布购买天然气，否则断供，此举恐加剧影响国际能源及粮食价格。
+翻译/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649243353630.jpg)图片来源：Financial Review
+便利店巨头7-Eleven已同意向特许经营商支付近1亿美元的集体诉讼和解，这些特许经营商表示，他们在商店的盈利能力方面被误导了。
 
-欧洲统计局数据，2020年欧盟自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气，其中以主席国德国最依赖俄罗斯能源。经欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）证实，欧盟委员会提议将俄罗斯煤炭纳入制裁清单中，可能对俄实施“每年高达40亿欧元的煤炭进口禁令”为削减俄罗斯另一重要能源收入。
+该索赔于2018年提出，指控该公司误导了他们提供给潜在特许经营商的文件和记录中劳动力成本的准确性，以及特许经营商必须支付的平均工资。
 
-即便欧盟高度依赖俄罗斯能源，惟各界逐渐掌握俄军在乌克兰犯下的战争罪行，欧盟考虑将煤炭进口禁令添加到第五轮制裁中，是否落实仍应视当地时间周三会议结果。
+在《悉尼先驱晨报》和《时代报》和《四角》的联合调查发现系统性工资盗窃和工资记录篡改后，该连锁店被迫向工人偿还超过1.73亿美元。前澳大利亚竞争和消费者委员会老板Allan Fels曾领导过7-Eleven设立的还款小组，他在2020年底告诉《悉尼先驱晨报》和《时代报》，1.73亿美元并没有反映所有未支付的工资。
 
-德国高度依赖俄罗斯天然气，该国财政部长克里斯蒂安·林德纳表示“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系，但目前不可能切断天然气供应。”
+Fels教授说，当计划向工人付款达到1.65亿美元时，“他们决定这已经足够了，他们有效地关闭了该计划”。
 
-来源｜[cnbc](https://www.cnbc.com/2022/04/05/european-union-could-ban-russian-coal-imports-sources-say.html)、[bloomberg](https://www.bloomberg.com/news/articles/2022-04-05/eu-to-propose-banning-coal-imports-from-russia-after-atrocities)
+公平工作监察员还发起了多项调查，就薪酬问题起诉了11名7-Eleven特许经营商，累计对他们处以180万美元的罚款，相当于全国少付额的1%左右。
 
-* * *
+经营集体诉讼的Levitt Robinson律师事务所的合伙人Stewart Levitt表示，特许经营商认为员工成本约占业务成本的7%，但实际上约为13%。特许经营商还声称，7-Eleven仅允许特许经营商以特定价格从特定供应商购买股票，违反了与某些集体诉讼成员的合同。周三，联邦法院法官David O’Callaghan签署了双方去年8月达成的9800万美元的和解协议，这笔钱将存放在信托中。7-Eleven在一份声明中表示，和解是在承认过失的情况下达成的，这笔款项包括所有法律费用。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+首席执行官Angus McKay表示，该公司很高兴此事达成了“可接受的解决方案”，并补充说，7-Eleven还投资了5000万美元用于防止工资盗窃的系统，并培训特许经营商“与他们在这方面的责任有关”。
+
+新闻来源：[https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis](https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1%20/t%20_blank%20/h)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena%20/t%20_blank%20/h)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ%20/t%20_blank%20/h)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu%20/t%20_blank%20/h)
 
  
 

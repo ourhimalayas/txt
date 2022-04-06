@@ -2,25 +2,39 @@
 ---
 
 
-## 中共国经济将在疫苗灾难中崩溃
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2298803/)
+## 有声|新中国联邦正与国际社会合作灭共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299263/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 晨熹
+配音：香草山农场 – 信念7
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在4月2日的盖特视频中，郭文贵先生表示，新中国联邦正与国际各界展开密切合作，并已获得国际社会的认可与信任。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-37.jpg)
+近一段时间以来，郭先生代表新中国联邦参与了多个国际非政府组织视频会议。通过新中国联邦的战友们所提供的情报，各国政府及国际非政府组织了解到中共所参与的战争阴谋、病毒疫苗阴谋，以及中共在中国大陆所制造的民生惨象。国际社会已充分认知中共对世界的危害，如何消灭中共已成为当下国际组织密切关注的议题。
 
-据4月4日文贵先生盖特消息，目前在深圳，上海和长春等地出现的疫情失控和大量被封锁民众的死亡，已充分反映出大规模的疫苗灾难已开始降临。
+在东欧前线，新中国联邦战友们所参与的国际人道主义救援行动，展现了海外华人脱离中共桎梏下的新形象。战友们焕发出的博爱与献奉精神，让国际社会看见新中国联邦与中共的本质区别，重新审视中国人在国际的影响力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-603.png)图片来源：gettr
+郭先生提醒身处中共国内的战友，警惕由于中共日益疯狂所带来的各种人为灾难。呼吁战友们继续行动，无需在乎外界的评价。爆料革命在过去七年以来所积累的国际信任，皆源于战友们“无我”的灭共初愿和不懈的灭共行动。只有消灭中国共产党，世界一切纷争与人道灾难的根源方能被铲除。
 
 
-在目前疫情灾难之下，尽管以融创、恒大、保利等为首的各大房地产业，以及与之相关的建筑和装修公司，都早已陷入资不抵债，欠贷难还的绝境，但仍未达到中共国经济，特别是房地产和金融业彻底崩塌的极限。
 
-据悉，中共各大银行正疲于应对即将到来的全民挤兑浪潮，并因此要求凡个人一次性提现超5万元人民币，或高于个人工资额度的提现，均需报请上级领导审核。为此，各地公安机关都进驻当地金融系统，以监督所有款项的提取和使用。
+文字版原文：[新中国联邦正与国际社会合作灭共](https://gnews.org/zh-hans/2292856/)
 
-校对编辑：硫酸羟氯喹64
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-发稿：青青
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻来源： [https://gettr.com/post/p13im5827c4](https://gettr.com/post/p13im5827c4)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,53 +2,30 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298229/)
+## 2022/03/31 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2299054/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+1. 3月30日，上海一例哮喘老人因120拒绝出借车载除颤仪救援而病亡。
+2. 3月30日，上海一小区因疫情封控，被困老人隔着围栏求路人帮其买鸡蛋。
+3. 3月31日，安徽淮北。越野车男子与电动三轮车相撞后，用石头猛砸对方司机致其死亡。
+4. 3月30日，上海。因男子做核酸未配合并与其发生争执，防疫人员情绪失控当场发飙。
+5. 3月31日，老人被强制性做核酸检测。中国大陆的百姓，目前每天都活在被中共政权折腾强制核酸检测的炼狱里。
+6. 近日，网曝天津一男子病房内猛推母亲，并口出恶言：你不想活别毁我，快点死去。
+7. 3月29日，湖南益阳南县。老百姓吐槽居民饮用水质量，咒骂中共政权“为人民服务”的虚假。视频中居民饮用水质量问题在中国大陆具有普遍性。
+8. 3月26日，四川达州。 市民嘲讽中共以环境污染为借口禁止老百姓过春节放鞭炮，不知道视频中这样的排放是否会造成环境污染？
+9. 近日，四川广安。驼背老爷爷在地里独自干活被市民拍下。中国农村老人拥有中共政权嘴里幸福的福利体系？不存在的！！！
 
-整理/编辑：gardeniahu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-1.png)图片来源：雅典娜设计组(614)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+编辑：【英国伦敦喜庄园编辑部】
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-帖子原文：
-
-**疫情|新冠疫苗副作用    打完康诺希，我感觉我快废了**
-
-一位pro vaccine的医生注射新冠疫苗后去世
-
-一位妇产科医生在注射疫苗后，血小板诡异的降到0，导致出血性中风死亡。
-
-所以，疫苗会是抗击疫情的良药吗？对于疫苗，大部分美国人持质疑和观望态度。但是在每天确诊几十万的情况下，不注射疫苗，这个疫情几年也过不去啊。
-
-如果部分成人不注射疫苗，加上18岁以下的孩子还没被批准注射疫苗，疫情也不能结束。
-
-要抑郁了啊，药不能停。
-
-#新冠疫苗
-
-发布于2021一01一1 1
-
-精选评论
-
-想要一条狗   回复：吃什么药都有可能死人主要是看死亡率。得covid死亡率那还是高太多了。。。
-
-Emily&Erica   回复：昨天我看见一个小红书也是扎了疫苗发生血小板减少，是个女生，大家有没有知道她小红书叫什么的，我找不到了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-587.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-588.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-589.png)图片来源：小红书
-参考链接：[注射新冠疫苗后去世](http://www.xiaohongshu.com/discovery/item/5ffb2794000000000100b31c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155943)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

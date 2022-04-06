@@ -2,24 +2,24 @@
 ---
 
 
-## 马斯克认购推特将改变社交媒体现状
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2298564/)
+## 波兰采购坦克应对俄罗斯军事侵略威胁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2299116/)
 
-采编撰稿：加拿大温哥华扬帆农场 – 晨熹
+作者：纽约磐石农场—在远方
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+当地时间4月5日，据相关媒体消息显示，波兰当天与美国签订合约，确定购买250辆美国M1艾布拉姆斯主战坦克，用以应对俄罗斯对波兰东部的军事威胁。 此外，鉴于仍在持续的俄罗斯对乌克兰的侵略战争，美国还向波兰增派了五千名美军和多架战机，以便防止俄罗斯借道白俄罗斯进一步侵袭欧盟。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-06-上午9.23.53.png)
+另据波兰国防部长拉查克表示，此次军备采购大约花费47.5亿美元，而美国的首批坦克预计将在年内交付。同时，波兰政府还宣布将军费提高至该国GDP的3%，并将陆军人数从当前的14万大幅提升至30万。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-601.png)图片来源：gettr
+参考链接：[抗俄！波蘭打造北約「最強陸軍」 採購250輛美國M1戰車](https://news.ltn.com.tw/news/world/breakingnews/3883320)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-据4月4日文贵先生盖特消息，SpaceX公司创始人伊隆·马斯克当天购买了推特9.2%的股份，并成为该社交媒体的最大股东。此举将有利于新中国联邦的灭共事业。
-
-据悉，本次认购意味着推特或将逐渐摆脱中共的控制，减少对言论自由的过度审查和干预。同时，也将对该平台进行重大技术升级，通过推动整个社交媒体技术的进步，让投资人获取更大的利益。 文贵先生表示，马斯克成为推特最大股东后，不但不会与盖特产生恶性竞争关系，双方反而会精诚合作，共同创造新社交媒体更美好的未来。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [https://gettr.com/streaming/p13j3d06e18vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
-
+编辑：Jack Li文阳
+总编：Irene木木
+审核：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

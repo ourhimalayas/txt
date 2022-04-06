@@ -2,42 +2,28 @@
 ---
 
 
-## 7·24系列——香港棺木严重短缺
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298780/)
+## 美国务卿布林肯宣布最新对乌不超一亿美元军事援助
+` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2299148/)
 
-**整理：**小红帽
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06t015514z_1_lynxnpei3502o_rtroptp_3_health-coronavirus-hongkong-funerals.jpg)图片来源：Today
-当2017年郭文贵先生开始爆料，并警告“香港即将变成臭港”时，全世界几乎无人相信。但自从“反送中”运动以来，香港的天空就一直笼罩着乌云，而近期中共病毒（COVID-19）疫情的肆虐，更让香港民众觉得雪上加霜。
+作者：波士顿五月花 背靠背（Frankie）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-06-下午9.17.46.png)图片来源：互联网
+美国国务卿布林肯周二宣布一项对乌克兰不超过一亿美元军事援助，以满足乌克兰对额外反装甲系统的迫切需要。
 
-文贵先生在2022年3月16日的大直播提到，香港人正在从泰国、日本和台湾大量购买高级的棺材，一副用上等木材制作的棺材和好的骨灰盒已经涨了五倍到十倍的价格。这说明香港现在死的人，并不都是普通老百姓，也死了很多有钱人，这很可怕。
+美国国务卿安东尼·布林肯（ANTONY·BLINKEN）在国务院网站上发表[声明](https://www.state.gov/100-million-in-additional-u-s-security-assistance-for-ukraine/)：“俄罗斯军队在布哈和乌克兰各地犯下的暴行令世界震惊和震惊。乌克兰军队继续勇敢地捍卫自己的国家和自由，美国与我们的盟国和伙伴一道坚定地支持乌克兰的主权和领土完整。”【1】
 
-路透社3月18日报道，当日香港报告了20,082例新增确诊病例，以及206例的死亡病例。据香港大学的一项研究估计，在香港740万居民中，大约有一半可能已被感染，而实际情况可能更糟糕。到目前为止，香港近两个月来已有100多万例的确诊病例，第五波中共病毒已造成超过8,000人死亡，从而导致香港公众殓房和棺材不足等从未有过的怪象。
+布林肯代表拜登总统授权立即拨款价值高达 1 亿美元的安全援助，以满足乌克兰对额外反装甲系统的迫切需求。这是至2021 年 8 月以来，国防部第六次对乌克兰援助包括武器、设备和用品。拜登政府累计援助超过24亿美元，自俄罗斯于 2 月 24 日开始对乌克兰进行野蛮侵略以来超过17亿美元。
 
-进入四月以来，香港疫情继续发酵，4月6日亚洲新闻台（CNA）一篇题为《堆积如山：香港殡仪服务业因新冠病毒而不堪重负》的文章进一步印证了文贵先生关于香港棺材严重不足的爆料。该报道中提到“在香港与新冠病毒的战斗中，香港的传统木制棺材已经短缺，这个危机正在淹没香港的殡仪馆”。
+昨天美国国家安全顾问沙利文在新闻发布会上表示，美国将马不停蹄的满足乌克兰”主要安全援助请求“，最新的援助武器包括激光制导火箭系统、Puma 无人机系统、装甲高机动多用途轮式车辆等。【2】
 
-“我从来没有见过这么多尸体堆在一起”，37岁的殡仪馆主任Lok Chung称他一直在夜以继日地工作，3月份他组织了大约40场葬礼，而一般情况下每月大约是15场。
+参考链接：
 
-由于太平间的地方已经饱和，尸体被堆放在病人旁边的急诊室里，这种景象震惊了许多香港人。非政府组织Forget Thee Not与环保棺材制造商LifeArt Asia合作，已经向香港六家公立医院捐赠了300具棺材和1,000箱防腐剂。
+【1】 [美国向乌克兰提供 1 亿美元的额外安全援助](https://www.state.gov/100-million-in-additional-u-s-security-assistance-for-ukraine/)
 
-香港食品和卫生官员Irene Young表示，香港每天需要250至300具棺材。现在，Irene Young部门负责的六个火葬场几乎全天候运行，每天进行近300次火葬，这是平时数量的两倍。当局表示，公共太平间已扩大到可容纳4,600具尸体，而此前为1,350具。非政府组织Forget Thee Not与环保棺材制造商LifeArt Asia合作，向六家公立医院捐赠了300具棺材和1,000箱防腐剂。
+【2】[沙利文称俄军部署乌东南部重点顿巴斯地区下一阶段战争旷日持久](https://gnews.org/zh-hans/2293473/)
 
-文贵先生爆料称香港本次病毒危机实际上是由于接种了疫苗而造成的，与大陆政府一样，香港政府也在极力隐瞒真正的死亡人数，但棺材不会撒谎，殡仪馆本身的数据不会造假。香港的严重事态，说明疫苗灾难的脚步离每个人越来越近。
+* * *
 
-**资料来源：**
-
-1. [‘So many bodies piled up’: Hong Kong funeral services overwhelmed by COVID-19](https://www.reuters.com/world/china/so-many-bodies-piled-up-hong-kong-funeral-services-overwhelmed-by-covid-2022-04-06/)
-2. [郭文贵先生2022年3月16日盖特视频（9分20秒）全文字版](https://gnews.org/zh-hans/2203228/)
-3. [Hong Kong reports 20,082 new COVID cases as city promised fewer restrictions](https://www.reuters.com/business/healthcare-pharmaceuticals/hong-kong-reports-20082-new-covid-cases-friday-2022-03-18/)
-
-
-*发布：翼族*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑&发布：长岛开心*
 
  
 

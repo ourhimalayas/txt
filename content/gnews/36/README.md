@@ -2,43 +2,40 @@
 ---
 
 
-## 只有灭共的新中国联邦人和G系列投资者才能免于被制裁
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297997/)
+## 普京直接控制下的一些国家党卫军拒绝进入乌克兰参战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298882/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8837.38%EF%BC%89%E5%8F%AA%E6%9C%89%E7%81%AD%E5%85%B1%E7%9A%84%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%BA%BA%E5%92%8CG%E7%B3%BB%E5%88%97%E6%8A%95%E8%B5%84%E8%80%85%E6%89%8D%E8%83%BD%E5%85%8D%E4%BA%8E%E8%A2%AB%E5%88%B6%E8%A3%81%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
+撰稿：东京樱花团/待命（文晓）
 
-**郭文贵先生：**所以告诉大家不是因为你是中国人，今天我文艺、我双胞胎我就在日本我不受你制裁，你一样被受制裁。唯一让你不受制裁的就一招，你别以为你是混血，你们像这样是灭共的新中国联邦人，唯一一个财富能得到安全的，我是新中国联邦的G系列投资者，我是灭共的，第二我是灭共的新中国联邦人，你不会受制裁。我给你百分之百保证，今天的重点在哪明白了吗？明白了吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-605.png)（图片源自本文链接）
 
-不会因为你是中日混血不制裁你，你有游艇、你有飞机保证给你封了，是因为你是新中国联邦人，你飞机、游艇你可以拥有，Mamoru桑你明白我意思了吗？你那挂的大金哨子是吧？那么有钱，你像金三胖，像金五胖也不行，是不是？你飞机、游艇也得给你封了，是吧，但是你是新中国联邦人，就看着你了，你就是金大胖，那就行了，明白了文艺？这今天的重点是，在西方对共产党在制裁的时候，唯一让你资本安全的，G系列、喜币、喜联储、G-TV，唯一让你安全的就是作为灭共的新中国联邦人。
+4月6日NEWSWEEK消息：据报道，在俄罗斯境内的哈卡西亚共和国，至少有11名属于俄罗斯联邦国家党卫军的士兵拒绝参加弗拉基米尔·普京总统对乌克兰的入侵。
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+国家党卫军是一个由总统直接控制的军事组织，在俄罗斯主要发挥警察作用，属于与俄罗斯联邦武装力量分开的指挥系统。据位于西伯利亚南部的哈卡西亚共和国当地媒体《新焦点》报道，属于国家党卫军特种部队的11名士兵告诉他们的上级，他们无意参加入侵行动。
 
-编辑整理：Jacques；
+然后，这些士兵被从他们在边境附近的营地带走，送回哈卡西亚。军方官员试图以“不适合工作”为由解雇这些士兵。但11名士兵表示，他们准备挑战这一决定。本刊目前正在核实相关信息。
 
-字幕档制作：知津；
+据《新焦点》报道，特种部队成员认为，军事指挥部向莫斯科中央政府隐瞒了俄罗斯军队在乌克兰的实际损失。许多西伯利亚士兵在普京的所谓“特别军事行动”中被杀。
 
-视频制作及上传：Cindy；
+指挥官告诉特种部队，关于伤员情况和他们在乌克兰的日常行动保持沉默。部队还被指示不要与他们的家人分享细节。
 
-G-News发布：海贼王M.D.LUFFY；
+在俄罗斯南部城市克拉斯诺达尔，12名国家党卫军成员也因拒绝前往乌克兰参战的命令而被解雇，他们已提起不当解雇的诉讼。 ≪新焦点≫指出，军官们对他们未来可能面临的情况感到“震惊和恐惧”。代表国家杜马12名党卫军成员的俄罗斯律师米哈伊尔·本亚西（Mikhail Benyasi）说，到目前为止，大约有1000人与辩护团队联系。本亚西在4月1日的《金融时报》上发表评论说：许多士兵不想上战场。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+人权律师帕维尔·奇霍夫（Pavel Chikhov）在Telegram上发帖透露，国家党卫军上尉法里德·奇塔赫和他的11名手下拒绝参加2月25日对乌克兰的入侵，称动员的命令是非法的。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+奇霍夫写道：他们都没有被告知进入乌克兰参加特别军事行动，也没有被告知行动的任务和条件，结果他们没有同意参加。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+据设在拉脱维亚的独立俄语新闻媒体Medusa报道，自普京于2月24日发动对邻国乌克兰的入侵以来，至少有7人在俄罗斯党卫军的战斗中被杀。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+就在最近，一段视频被发布，显示俄罗斯士兵抱怨说，他们在没有装备和没有被中央政府告知明确计划的情况下被命令前往乌克兰的一个地区。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+目前为止，关于俄罗斯军队的损失有各种说法，但乌克兰政府表示，俄军已失去16000人。 还失去了指挥官，有超过六名将军阵亡。
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+信息来源： [プーチン直属の国家親衛隊でウクライナ参戦拒否が続出（ニューズウィーク日本版） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/bbcdd8cccf40fc3c13f16514aba36c149d949971)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

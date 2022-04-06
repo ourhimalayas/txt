@@ -2,26 +2,29 @@
 ---
 
 
-## 澳大利亚加速军购应对中共侵台计划
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2299109/)
+## 抵制强制疫苗政策 慕尼黑数千人冒雪抗议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2299588/)
 
-作者：纽约香草山农场-云豹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
-当地时间4月5日，据相关媒体报道，澳大利亚国防部部长当天表示，由于俄罗斯目前对乌克兰的侵略战争，以及中共可能较预计时间更早的侵略台湾行动，澳大利亚决定将原有的军备采购计划提前，并加速完成该国军队现代化的更新，用以应对中共和俄罗斯对世界的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-06-上午9.11.24.png)
-报道提及，澳大利亚早先认为，中共的侵台行动大约会发生在2040年，但当前的俄乌战争以及中共对其的态度引起了澳洲政府的警惕。加之索罗门群岛近日发出了有意与中共签署安全条约的表态，为此，澳大利亚与包括新西兰和美国在内的区域周边国家纷纷对此作出了高度警戒：整个西太平洋的合作伙伴都担心中共会借机在该区域布署军队，并以此威胁地区的和平与稳定。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-据悉，澳大利亚政府计划将耗资35亿元澳币，用以加速改善其军队的战机和军舰武器。
+整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unknown-6.png)
+2022年4月2日下午2点，大约4000多名来自德国巴伐利亚州的民众聚集在首府慕尼黑国王广场，举行抗议政强制疫苗政策活动，呼吁要民主与自由。之后，民众冒雪在慕尼黑市内进行和平游行。
 
-参考链接：[澳洲防長宣布加速採購飛彈 示警中國可能提前犯台](https://www.cna.com.tw/news/aopl/202204050233.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+游行队伍从国王广场出发，途经慕尼黑工业大学、自由慕尼黑广场、胜利门、慕尼黑大学、奥迪安广场，然后回到国王广场。游行队伍长达数公里，其中有些民众戴着口罩，大部分没有戴口罩。警方虽有部分全副武装的警察跟随，但相对之前数月应对“散步”民众的阵仗，无论从数量还是从装备上，看上去已经缓和了很多。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+参考链接：
 
-编辑：静言
-总编：Irene木木
-审核：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+[慕尼黑数千人冒雪集会游行 抗议强制疫苗政策](https://www.epochtimes.com/gb/22/4/5/n13696864.htm)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

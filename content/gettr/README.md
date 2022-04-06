@@ -142,17 +142,17 @@
 
 ---
 
-`@miles 4/5/2022 11:16 PM (UTC)`
-
-4/3/2022 Miles Guo: I think there are two possible outcomes of the Russia-Ukraine war. One possibility is it will go on and off and reach an intermittent state; a second possibility is a settlement is reached, with Communist China, Russia and North Korea forming an evil alliance confronting the West. The New Federal State of China will make a call on when to withdraw our rescue operations for Ukraine based on which direction the war goes.<br/><br/>4/3/2022 文贵直播: 文贵预计俄乌战争要么最终陷入无休止的打打停停的状态，要么达成和解，中俄北朝鲜形成邪恶联盟，与西方长期对峙下去。新中国联邦乌克兰救援行动会根据战争走向决定何时撤离。<br/>
-![img](https://media.gettr.com/group47/getter/2022/04/05/23/82040830-bd3e-817a-17d0-8f3d5839a03f/out.jpg)
-
----
-
 `@miles 4/5/2022 11:07 PM (UTC)`
 
 2022.04.05 NFSC News  Miles Guo’s New Songs Debuted on iTunes Music Charts
 ![img](https://media.gettr.com/group28/origin/2022/04/05/22/a2114106-5079-82ff-8ce0-65ae0100de20/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
+`@miles 4/5/2022 10:01 PM (UTC)`
+
+新中国联邦 法治基金 飞飞秀救援快报 2022-04-05<br/>For English：gettr.com/post/p13qskw7d05
+![img](https://media.gettr.com/group25/origin/2022/04/05/21/f93400d1-1fe7-0e11-8c17-51de83428da7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

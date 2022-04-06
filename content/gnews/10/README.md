@@ -2,33 +2,41 @@
 ---
 
 
-## COVID-19疫苗副作用集萃——打疫苗后整个人虚弱、干眼症、破坏肠道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2299075/)
+## 有声|上海宝山区封城居民食物短缺，政府毫无作为
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299461/)
 
-整理：禄森
-编辑：李易通
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片13.png)图片来源：雅典娜设计组
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+墙内网友4月4日爆料称，在当下疫情管控期间，上海政府以55-100元的价格，向居家隔离的市民出售蔬菜盲盒。然而很多人拿到手之后发现都是一些已经坏掉的蔬菜。而上海宝山区大场镇并没有发放食物，在很多老年人只能选择一边接受强制隔离，一边挨饿的状况。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11.jpeg)
 
-新冠疫苗后的续命宝+干眼症续命宝
+网友在这通投诉电话中指出，工作人员之前给的物资保障热线，一直处于占线状态，无法接通。截止投诉当日，大场镇也没有发放任何物资，且被告知大场镇没有发放物资的计划。此前一日，同在大场镇的保利、顾春小区居民，因不满隔离配给政策自发举行抗议活动。
 
-自从打完辉瑞疫苗加强针以后整个人迅速虚弱了，体重降了5斤左右，胃口差，饭后经常感到不适。虽然没有科学依据，但怀疑疫苗搞坏了肠道里的菌群。由于每个人的体质不同，对疫苗加强针的反应肯定不同。我绝大部分同事和朋友混打或打同一种加强针都只休息两三天就满血复活，然而我和我的侄子都打了辉瑞加强针后进了A&E。最近工作忙，睡眠也超差，干眼症也再次复发，无奈把平时闲置的续命宝们又拿出来服用。
+经网友爆料，有远在浦东的居民，竟然收到了理应配送宝山区的物资“大礼包”，“宝山区政府“几个大字显得格外刺眼。由于中共当局停止了美团、叮咚等食物代购平台，很多家庭都面临粮食短缺。
 
-保健品续命宝——复合维生素C和D，现在隔天吃一片复合维生素。自己一直膳食平衡，不缺乏微量元素，所以不需要每天补充复合维生素片，千万不要被商家洗脑每天吃，现在很多复合维生素片含量都大过每日所需，脂溶性微量元素长期过量也会中毒的。维生素C和D旨在提高免疫力和防治缺钙，每瓶剂量都比较小，吃复合维生素片的隔天会只吃这两个。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-608.png)
-干眼症续命宝——莓子系列产品在我这都只是心理安慰剂，看不见效果。叶黄素和鱼油会明显让眼睛润泽。眼罩主要是为了提高睡眠质量。三个小真丝眼罩很透气，但是注意尽量买深色，因为遮光效果好。大的眼罩非真丝但是安全感爆棚。推荐大头星人买挂耳或者细小弹力带的，千万不要买绸缎或者真丝包裹的弹力带。因为那种一般是固定的最长拉伸度，很容易勒的头疼。我的头围大于60cm。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-609.png)图片来源：小红书
-参考链接： [打疫苗后整个人虚弱、干眼症、破坏肠道](https://www.xiaohongshu.com/discovery/item/624954980000000001026303?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155151)
+面对这些尖锐的民生矛盾，当地信访工作人员并无有效的解决方案，并拒绝将这些民生问题向上级汇报。
 
-*发布：tianzhihuan*
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+文字版原文：[上海宝山区封城居民食物短缺，政府毫无作为](https://gnews.org/zh-hans/2294078/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
