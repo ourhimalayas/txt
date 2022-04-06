@@ -2,32 +2,35 @@
 ---
 
 
-## 李家超参选香港特首 曾协助中共强推港版国安法
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2300232/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
 
-**撰稿：日本东京方舟农场  胖小哥**
+作者：香草山翻译部
 
-据中央通讯社4月6日报道，李家超今天稍早向林郑月娥请辞，傍晚随即召开记者会，宣布计划参选;中共驻港联络办公室今早也向个别选举委员会委员透露，本届将只有一人参选特首。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-96.jpg)香港政务司司长李家超6日宣布计划参选特首，预料将成为唯一参选人。（中新社）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
 
-李家超生于1957年，祖籍广东番禺，今年65岁。中学就读名校九龙华仁书院，其后获香港大学录取，但因为家庭原因而放弃入读。
+文章仅代表作者本人观点，与Gnews无关
 
-李家超担任公务员超过40年，大部分时间在警队及保安局工作。 近10年来，他先后参与处理泛民主派于2014年发起的「占中」运动，以及2019年的「反送中」运动。
+视频参看：
+[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
+[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
 
-2019年11月，李家超接受中共中央电视台专访时，一再引述习近平的说辞，强调当前香港最紧迫的任务是「止暴制乱」及恢复社会秩序。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在港区国安法实施约一年后，他也曾向媒体扬言，政府会终生追捕在「反送中」运动后而逃往海外的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
 
-在处理这两场民主运动中，李家超的态度和手法十分强硬，有人认为，李家超因此获得中共青睐;在中共眼中，当香港面对暴乱时，在众多港府高层官员中，只有少数几人能够贯彻执行「止暴制乱」方针。
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-另据《美国之音》报道，李家超作为香港保安局局长，曾大力为中共政府强推香港国安法，并获得中央青睐。人们担心，如果他担任下届行政长官，香港人的自由度会进一步收窄。
-
-参考链接：
-[https://www.cna.com.tw/news/acn/202204060358.aspx](https://www.cna.com.tw/news/acn/202204060358.aspx)
-
-总编：老孙
-校对发布：爱放飞
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
 
  
 

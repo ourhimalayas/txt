@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|GETTR3月份注册用户持续增加
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300174/)
+## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据《RSBN》4月2日消息，自由言论社交媒体平台GETTR，在3月份经历了爆发式的用户增长，该平台的注册人数飙升了34%，令人意外。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
+4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
 
-自2021年初以来，随着Twitter、Facebook和Instagram等平台的审查制度收紧，使得GETTR这样的言论自由平台注册用户持续增加。
+该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
 
-GETTR营销和全球合作高级副总裁凯兰-道尔（Kaelan Dorr）向《RSBN》的记者表示，垄断社交平台的言论审查行为，迫使他们的用户纷纷选择言论自由的社交媒体平台。GETTR始终坚持不因政见分歧而审核言论的平台宗旨。
+该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
 
-首席执行官杰森·米勒（Jason Miller）在GETTR新闻稿中表示，硅谷科技寡头是言论自由的敌人，但对GETTR来说是个好消息，因为我们是一个致力于言论自由的平台。
+该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
 
-迄今，GETTR已在全球范围拥有了500万正式注册用户。2022年第一季度末，用户注册率超过了50%。
+信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
 
-文字版原文：[GETTR3月份注册用户持续增加](https://gnews.org/zh-hans/2288658/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

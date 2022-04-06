@@ -2,32 +2,33 @@
 ---
 
 
-## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
+## 【G时新闻】美国海军司令称密切关注中共与所罗门群岛的“秘密安排”
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300236/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
-4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是美国海军司令称密切关注中共与所罗门群岛的秘密安排！
 
-该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
+澳洲广播公司（ABC）4月5日报导，中共与所罗门群岛之间签署的安全合作协议包含着一系列令美国及其合作伙伴担忧的“秘密”安排。 对此，美国太平洋舰队司令帕帕罗（Samuel Paparo）表示支持澳洲方面发出的这一警告，在距离澳洲昆士兰海岸不到2,000公里的太平洋国家建立中共海军基地，将“改变澳洲国防军的计算方式”。
 
-该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
+帕帕罗指出，“这都是一个令人关切的问题，虽然前面仍有路可走，但无论何时，当一项秘密的安全安排被曝光时，这对我们在整个西太平洋地区的所有伙伴，特别是澳洲、新西兰来说，都是值得关注的事”。 帕帕罗还提到，“毫无疑问，中共正在观察在乌克兰发生的事情，并做笔记，从中学习。而且他们将根据学到的东西来提高能力”。暗示中共不希望自己未来对台湾发起入侵战时，犯下同俄罗斯一样的错误。
 
-该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
+此外，帕帕罗认为印度洋——太平洋地区发生武装冲突的可能性愈来愈大，澳洲人需要对此持“现实主义”态度。 他强调，“由于事件的难以置信的不可预测性，我们这个地区在几年内就有可能发生冲突。2021年谁会料到东欧成为现在这个样子。事实上，这就是我们的使命，作为军人，我们必须永远做好准备”。
 
-信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
+盖特链接：[https://gettr.com/post/p13trvf3c16](https://gettr.com/post/p13trvf3c16)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

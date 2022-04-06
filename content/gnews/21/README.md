@@ -2,41 +2,39 @@
 ---
 
 
-## 美推“轴心法”法案 评估中共助俄逃避制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2300229/)
+## 有声|英美呼吁暂停俄罗斯人权理事国地位
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300246/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会暂停俄国在人权理事会的席位。他于记者会上明确表示，俄罗斯参与人权理事会是一场闹剧，且俄罗斯不应在人权理事会占据权威地位。她将于周三返回纽约后立刻将此事提交安全理事会。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-13.jpg)
+美国国务院发言人内德·普莱斯当天证实了这一消息，宣布美国将在联合国大会上寻求投票，要求将俄罗斯从人权理事会中驱逐出去。
 
-#### 整理/编辑：BENJ1
+据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经造成了人权和生命的巨大损失。目前，联合国大会需要193个成员国三分之二的支持才能将俄罗斯剔除出该组织。自2月24日俄入侵乌克兰以来，已经有140票通过了两项谴责俄罗斯的决议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片32.png)
+在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事会的成员，应该被剔除。
 
 
-国会山 — 美国国会众议院外交事务委员会星期二（4月5日）推进数项涉及俄罗斯的法案，其中一项将要求国务院就中国与俄罗斯的合作，以及中国是否提供俄罗斯任何援助提交评估报告。委员会还通过法案，将支持美国政府调查俄罗斯总统普京在对乌克兰的入侵行动中的暴行。
 
-由共和党人提出的关于评估习近平如何干预和妨碍美国对俄罗斯制裁的法案（Assessing Xi’s Interference and Subversion Act），其英文简称为AXIS Act，意即“轴心法”。
+文字版原文：[英美呼吁暂停俄罗斯人权理事国地位](https://gnews.org/zh-hans/2295617/)
 
-法案要求国务院在法案生效后30天内向国会提交报告说明中国是否提供俄罗斯任何援助，或协助俄罗斯逃避国际制裁，并要求国务院之后必须每90天对报告进行更新。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-“中国和俄罗斯两国的战略合作近年来在普京和习近平领导下大大加强。他们在2月份乌克兰遭入侵之前发表的联合声明显示，俄罗斯和中国之间的合作更加密切，”众议院外交事务委员会主席米克斯（Rep. Gregory Meeks, D-NY）星期二在听证会上说，“我们需要确保中国不会为俄罗斯的战争行动提供物质支持，也不会帮助莫斯科逃避出口管制和制裁。如果他们这么做，如同拜登总统告诉习主席的，这将会有严重的后果。”
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-米克斯还说，这项法案将帮助美国政府和人民了解中国在乌克兰危机中所扮演的角色。“如果中国是让乌克兰人民溅血的同谋，那世界应该也需要知道这一点，”米克斯说。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-截止目前为止，中国尚未公开谴责俄罗斯对乌克兰进行的军事入侵行动。国会两党议员纷纷对中国在这场乌克兰危机中所扮演的角色感到担忧。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-白宫发言人莎琪（Jen Psaki）星期二告诉记者，美国将与欧盟和七国集团成员共同协调采取新一波的制裁行动，内容也将锁定俄罗斯国有金融机构和国有企业。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-上星期美国宣布再将俄罗斯科技领域21个实体和13名个人列入制裁名单。战争爆发至今，美国对俄制裁的对象已达600多个。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-参考链接：[重灾区上海疫情再创新高 清零渺茫但却不肯掉头](https://www.voachinese.com/a/china-risks-everything-with-impossible-covid-zero-goal-20220406/6517348.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

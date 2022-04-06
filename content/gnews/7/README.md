@@ -2,31 +2,27 @@
 ---
 
 
-## 【G叻睇真D】上海全面封城 民众怨声载道
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300363/)
+## 新冠变种XE的威胁性言过其实
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300405/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “零容忍”方针下，中共国最大城市上海有数百万人在全面封锁下被隔离在家中，但是由于食物和医疗服务匮乏，民众怨声载道。
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16492645781.png)rnz.co.nz
+随着首例新冠变种XE在印度出现，在泰国和新西兰也发现了该变种。世界卫生组织（WHO）表示，需要进一步的数据才能提供更多的信息。
 
-据悉，卫生官员当天报告说，在过去24小时内上海有438个确诊病例，以及7788个无症状病例。对于拥有2600万人口的上海来说，该报道的数据比例并不大。但是政府要求封锁、强制隔离所有疑似病例并进行大规模检测。
+英国（UKHSA）正在研究XE，该变种来自BA1和BA2。至3月22日，英国已检测到637例XE病例。首席医学顾问苏珊·霍普金斯（Susan Hopkins）教授说，这种变种被称为“重组”，它通常 “相对较快” 死亡。
 
-同时中共党媒报道显示，习近平正在指导继续采取各种强硬做法，达到其政治上的权宜之计，确保党、政的整体稳定。据郭文贵先生最近爆料，国内最近出现的各种中共病毒病例实际上是病毒疫苗导致的结果，人们接种的疫苗就是毒针。疫苗灾难还远远没有开始。
+霍普金斯说，目前还没有足够的证据显示其传染性、和疫苗有效性的结论。
 
-盖特链接：[https://www.gettr.com/post/p13v3mk426e](https://www.gettr.com/post/p13v3mk426e)
+XE的增长率比隐形BA2高出9.8%。数据表明，奥米克隆变体具有高度传染性。虽然英国出现了XE “社区传播” 的迹象，但在全部冠状病毒测序病例中，XE仍不到1%。
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+在泰国和新西兰发现的XE变种症状中。没有证据表明XE的症状更严重，迄今为止，所有奥米克隆变体病情严重程度都较低。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*责编：白夜*
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+[原文链接](https://www.health.com/condition/infectious-diseases/coronavirus/new-covid-19-xe-variant)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
