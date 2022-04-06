@@ -2,27 +2,27 @@
 ---
 
 
-## 查健康码有感
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2295514/)
+## 加拿大萨省面临农业生产危机
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2295572/)
 
-**作者：**无相 
-**编辑：**翼族
+采编：加拿大温哥华扬帆农场 – 文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Your_Title_Here_4.png)雅典娜设计组（614）
+编译： 加拿大温哥华扬帆农场 – 晨熹
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-540.png)图片来源：CBC
 
 
-小小绿码你我他， 
-天天打开必瞅它，
-浑似柳公笔下蛇，
-一不留神咬大家！
+据CBC新闻4月4日报道，疫情引发的通货膨胀以及俄乌战争造成的能源成本飙升，已严重影响了萨省的农业种植户，并使该省粮食生产面临着巨大风险。
 
-*发布：翼族*
+据悉，目前不仅化肥价格上涨了3倍，而且种子、燃料、运输以及碳税的费用也在增加。尽管小麦等农产品的价格也在上涨，但由于未来市场售价的不确定性，萨省农户尽量削减开支并因此降低了产量。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+可以肯定的是，恶化的疫情，持续的战争和即将到来的疫苗灾难，将使加拿大乃至全球都面临着严重的粮食危机。
+
+核对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+原文链接： [https://www.cbc.ca/news/canada/saskatchewan/sask-farmers-stress-rising-costs-1.6406005](https://www.cbc.ca/news/canada/saskatchewan/sask-farmers-stress-rising-costs-1.6406005)
 
  
 
