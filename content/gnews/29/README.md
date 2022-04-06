@@ -2,48 +2,33 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2294005/)
+## 假借疫情，大批武装部队进驻上海维稳
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2294035/)
 
-翻译：土饭团
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-3.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/usa-1177272_640-edited-1.png)图片来自网络
+作者：纽约香草山教育部 Naughty(文行)， 日本东京方舟农场 Miyali7768(文玉）
 
-您若想了解全文报导内容，请点击标题链接
+据外媒消息，4月3日至4日，中共当局派遣数千名拥有解放军身份的人员，前往上海，协助医护人员对上海辖区内2600万居民进行”中共病毒“检测。
 
-**1.[随着乌克兰危机的升级，分析人士警告中共国可能入侵台湾](https://www.foxnews.com/media/red-alert-china-vs-taiwan-fox-nation-martha-maccallum)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10.jpeg)
 
-福克斯新闻4月4日电，随着乌克兰的危机继续升级，分析人士将其与台湾相提并论，并警告中共国入侵这个主权岛屿的可怕可能性。与普京一样，习近平认为台湾已经是中共国的一部分—如果习近平成功拿下台湾，全球影响将是毁灭性的。前中央情报局官员Dan Hoffman强调说：“对我们来说，保持台湾独立是至关重要的战略利益，我们必须向中共国表明，他们入侵台湾将在经济和军事上付出高昂代价。”
+据报道，江苏、浙江和北京等多个省份也都向上海派遣医护人员，总计超过一万人。
 
-**2.[众议院军事委员会共和党人敦促Biden在“前所未有的威胁”下增加2023年国防预算](https://www.foxnews.com/politics/house-republicans-biden-increase-2023-defense-budget)**
+自上周开始，上海市采取两阶段封锁措施。居民被迫在家中隔离，每日进行抗原自测。另据上海市民透露，大批武装警察已抵达上海，以参与“维稳“，防控社会事件为旗号，在社区门口持枪封控。上海浦西一名学者表示，他所居住的社区门口就有武警岗哨，防止居民翻墙或随意外出；一个小区门口派驻一个持枪特警，怕上海出事，现在就像一个破灯笼，顾此失彼。
 
-福克斯新闻4月4日电，众议院军事委员会的共和党人正在敦促Biden总统增加2023年的国防预算，并警告说，在美国面临“前所未有的威胁”的情况下，国家“无法承受”国家安全的损失。众议院军事委员会所有28名共和党人的领导，阿拉巴马州众议员Mike Rogers周一告诉福克斯新闻：“由于没有考虑到通货膨胀，Biden总统的预算要求将使美国变得虚弱和脆弱。”
+中共国家卫生健康委员会官网4日通报，上海地区的新增病例仍然居高不下，应继续进行所谓“动态清零“的抗疫策略。然而，“动态清零”的疫情管控已暴露出诸多人道主义弊端，民众普遍质疑这些政策，谴责将儿童与父母分离的非人道隔离措施。
 
-**3.[美国推动暂停俄罗斯在联合国人权机构的资格](https://www.reuters.com/world/urgent-us-pushes-suspend-russia-human-rights-council-2022-04-04/)**
+郭文贵先生在4月3日的大直播中，揭露了中共墙内这次爆发的疫情，本质是疫苗副作用的集中爆发。中共借此机会，为数月后广泛爆发的疫苗灾难进行实时管控演练。
 
-路透社4月4日电，美国驻联合国大使周一表示，美国将要求联合国大会暂停俄罗斯在人权理事会的资格，此前乌克兰指责俄罗斯军队在布查镇杀害了数十名平民。美国称在乌克兰发生了战争罪，美国专家正在收集证据以证明这一点。大会此前已暂停一个国家的安理会成员资格。2011年3月，由于忠于当时的领导人Muammar Gaddafi的部队对抗议者实施暴力，大会一致暂停了利比亚的资格。
+参考链接：
+1. [Shanghai to extend lockdown of 26 million people as it reviews COVID test results](https://www.reuters.com/world/china/china-sends-military-doctors-shanghai-test-26-mln-residents-covid-2022-04-04/)
+2. [中國疫情加劇維穩！不只解放軍 大批武警進駐上海](https://news.ltn.com.tw/news/world/breakingnews/3882544)
 
-**4.[共和党法案将使国务院披露中共国与普京的合作情况](https://nypost.com/2022/04/01/gop-bill-would-force-disclosure-of-chinas-putin-collaboration/)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-纽约邮报4月1日电，众议院共和党人呼吁国务院向国会提交一份报告，详细说明中共国在俄罗斯入侵乌克兰之前和期间对俄罗斯的支持程度。领导这项工作的共和党众议员Andy Barr在一份声明中说：“中共和克里姆林宫之间的邪恶联盟是对美国和我们盟友的严重威胁。有证据表明，习总书记在入侵前和入侵期间加大了对克里姆林宫的支持。”
+总编/编辑/审核：Zion文恩
+校正/发稿：谐趣园
 
-**5.[20国集团因俄罗斯问题出现分歧而放弃发表联合声明](https://english.kyodonews.net/news/2022/04/57a5d23a7561-g-20-finance-chiefs-will-not-issue-statement-after-april-20-meeting.html)**
 
-共同社4月4日电，知情人士周一表示，由于在俄罗斯入侵乌克兰后参与该组织的问题上存在冲突，20国集团的财长们决定在4月20日的会议后不发表联合声明。针对莫斯科的侵略行为，美国总统Joe Biden表示，他认为应将俄罗斯从20国集团中剔除，其他一些成员也表达了对该国参与该组织的担忧。
-
-* * *
-
-审核：阿伯塔
-校对：小东
-发稿：信心的选择
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
 
  
 

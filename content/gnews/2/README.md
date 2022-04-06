@@ -2,34 +2,39 @@
 ---
 
 
-## 被误导的大流行—— 中共宣传及中共病毒的效应 -9
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2295219/)
+## AUKUS投资人工智能、量子技术，开发超高音速导弹
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2295284/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-532.png)
+整理/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-534.png)图片来源：Physics & 雅典娜设计组
+4月6日华盛顿消息，澳美英三国之间AUKUS合作伙伴关系建立了工作组，以促进量子技术、人工智能和海底能力的发展。
 
-（图片来自原文）
+已经有17个三边工作小组已开始在AUKUS的框架下开展工作，其中9个专注于常规武装的核动力潜艇，8个发展其他先进军事能力。
 
-总而言之，中共病毒大流行让我们发现了中国共产党（CCP）通过利用一种特定的、有意的武器：信息，成功地转移了对其国际声誉的损害。
+在关于AUKUS的最新消息中，白宫提示AUKUS量子装置(AQuA)的创建，该装置注重于“下一代”量子能力的投资。
 
-中共短时间内，在广泛的全球范围内操纵信息的能力，不仅突出了信息战的特征，而且也突出了美国在与有针对性的社交媒体叙事竞争方面是多么的被动。
+白宫声明说：“最初将关注于定位、导航和计时的量子技术，我们将在未来三年内将新兴的量子技术整合到试验和实验中。”
 
-今天，每秒钟有6000条推文在推特上发布，相当于每分钟有35万条推文，每天有5亿条推文，每年有大约2000亿条推文。
+目前仍处于早期阶段，美国国防部在2021财年已申请了6.88亿美元预算，但该技术在加密方面的成果是巨大的。
 
-随着中共及世界各个国家和组织越来越善于利用社交媒体来胁迫受众，并超越其竞争对手，保护公民的文化和思想将变得越来越重要。
+该项新安排出台之际，美国总统乔·拜登、澳大利亚总理斯科特·莫里森和英国首相鲍里斯·约翰逊审查并重申了去年9月启动的AUKUS协议。
 
-中共已展示了在信息战上的优势，其规模和时间安排是美国无法做到的。
+根据最新的协议，澳大利亚、美国和英国还将联合开发高超音速导弹。高超音速导弹能够以五倍音速飞行，大大缩短了预警时间。它们可以携带核弹头。同时还宣布了新的AUKUS海底机器人自主系统(AURAS)项目。
 
-认识到这一点是调整美国如何处理社交媒体武器化的第一步。
+“我们的国家正在就自主水下航行器进行合作，这将成为我们海上力量的重要力量倍增器。计划在2023年对这种能力进行初步试验和试验，”白宫表示。
 
-联合部队必须定制一个强有力的反应：识别中共的虚假信息，压制它，并对其进行反击。在一条推特的生命周期中进行早期识别，将大大减缓用户之间的分散，最终扩大国防和政策制定者的决策空间。正如我们在2014年的克里米亚冲突中看到的那样，俄罗斯的虚假信息的武器化是对民主最隐蔽的威胁之一。
+**声明称，三方在人工智能方面的合作将极大提升未来部队的作战能力，提高决策的速度和精度，同时将加强对人工智能威胁的防御。**
 
-八年后，这种威胁似乎变得更加危险和坚决。中共与真相的功利关系使其能够扭曲真相。
+参考链接：[AUKUS sets up AI, quantum tech working groups (afr.com)](https://www.afr.com/world/north-america/aukus-sets-up-ai-quantum-tech-working-groups-20220405-p5aatf)
+*发布：tianzhihuan*
 
-新闻来源链接：[https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/](https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
+
 
  
 

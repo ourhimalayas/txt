@@ -2,27 +2,30 @@
 ---
 
 
-## 光：从设计美学到正道主义
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2295161/)
+## 被误导的大流行—— 中共宣传及中共病毒的效应 -8
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2295201/)
 
-##### 作者：姐夫说说
-编辑：Mttfly
-![](https://assets.gnews.org/wp-content/uploads/2022/04/光.png)一束正道主义之光芒照亮了喜马拉雅山的一侧，正义化身的女神一手拿着喜币的黄金长矛，另一手持着新中国联邦的金色坚盾。喜币象征注定刺破物质黑暗的长矛，新中国联邦象征着捍卫正道主义的坚盾。
-最近我做的一些图因光的处理不当而成为败笔，这引起了我的重视，因此学习和回顾相关知识。我发现无论是拍电影、油画，还是拍照领域的各个门派对光有着独特的理解。特别ASC美国电影摄影师学会里面获奖无数的成员都有一个共识——成功的作品是用光去描画角色，用光去讲述故事。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-532.png)
 
-可见，光何等重要。而且光的重要性不单单在于美学，圣经上也多次提及光，例如上帝创造世界第一步就是有光！有了光后，一切都在光的孕育下发展，这也是一灯能灭千年暗的原因。
+（图片来自原文）
 
-世界各地的民主运动、中国人的五四运动、六四运动、香港抗战、爆料革命，包括乌克兰救援都像包含民主自由的正道主义之光照进中共黑暗的统治！就连毛泽东、习近平都像往“光”里蹭，自封“太阳”，通过操控宣传，把中国做成黑盒子，指暗为光。可是他们做不出密不透光的墙，当光照进黑暗里时，很多人都会睁开眼睛。
+中国共产党（CCP）恶毒的虚假信息对流行性的引领
 
-人类历史就像一部电影，用光和暗描绘每一个时代，用黑暗与光明的较量讲述每一件历史事件。中共的黑暗政权在新中国联邦的正道主义光辉下必然烟消云散！
+当中国共产党（CCP）使用权威外交账户中带有虚假内容的恶毒叙述时，通常会出现转发量激增的情况–加强了其传播力度。然而，随着时间的推移，这些已经接触到该叙述的大量受众开始点赞和评论它，增加了它的受欢迎程度。这种延迟效应可能是由说服理论效应引起的，即点赞的启发式效应。
 
-*发布：Mttfly*
+人们通常会同意他们点赞的人，而他们点赞的人通常有 “正确 “的观点。
 
-**更****多资讯****，****请关注****：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+在测试数据中观察到的这种点赞效应类似于麻省理工学院研究小组在Facebook上进行的大规模随机实验。
+
+该小组发现，与普通广告相比，向其他Facebook成员提供个性化推荐的效果是产生采用率的三倍。因此，一条在社交媒体上的强关系中被分享和点赞的推文会增加对叙述的采用。
+
+对一条推文的简单喜欢并不意味着完全的信息共识。
+
+例如，一个喜欢中共宣传推文的西方社交媒体用户，并不会成为中共的代理人。但是，如果从多个数据源持续曝光，中共宣传推文可能会开始说服该用户，使其增加中共宣传推文的可信度和对当前话题的立场。更为可怕的是，培养共识的风险。如果其他人相信它，那么它就可能是真的。
+
+新闻来源链接：[https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/](https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/) 本文作者：Rebecca (一切心皆不可得！)  
+上传排版：Hong
 
  
 

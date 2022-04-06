@@ -2,45 +2,37 @@
 ---
 
 
-## 意大利结束COVID-19紧急状态管控
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295212/)
+## 佩戴口罩使得一代幼儿在语言和社交技能方面陷入困境
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295242/)
 
-**据《www.thegatewaypundit.com》作者：Jim Hoft，2022年4月3日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-7.jpg)图片来源：Alberto Pizzoli/AFP/Getty
-去年12月，意大利对未接种疫苗的人实施新的限制，因为人们对Omicron变体感到担忧，该变体似乎大多感染了完全接种疫苗的人。对于没有Covid“超级绿色通行证”的人来说，大多数公共活动被禁止。
+**据《零对冲》作者：TYLER DURDEN，2022年4月5日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-8.jpg)图片来源：原文
+根据一份官方报告，禁闭限制，包括成人戴口罩，使一代婴儿和幼儿在语言和社交技能方面陷入困境。
 
-进入剧院、体育赛事、餐馆和酒吧都需要“绿色通行证”。违规者将被收取400至1000欧元的费用。
+为国家统计局工作的检查员发现，在过去两年中，婴儿被戴着口罩的成年人长时间包围，损害了他们的学习和交流能力。
 
-随着欧洲其他国家奋起反抗Covid-19的暴政，意大利反对疫苗规定的抗议活动已经进行了第18周。
+报告发现，那些年满两岁的孩子“一生都被戴着口罩的成年人包围着，因此无法经常看到嘴唇的动作或嘴型”。
 
-经过两年多的专制政权，意大利在前总理朱塞佩-孔特于2020年1月31日实行紧急状态后结束了紧急状态。
+报告补充说：“一些提供者报告认为，儿童语言发展的延迟导致他们不能像以前预期的那样轻易地与其他儿童交往。”
 
-从今天开始，公民获得公共服务不再需要“绿色通行证”，但一些规则仍将继续存在。
+这些限制也使幼儿在爬行、独立使用厕所和交朋友方面遇到困难。
 
-***希腊Skai报道如下：***
+学习方面的延迟也使一些儿童在穿外套和擤鼻涕等基本任务方面需要帮助。
 
-根据马里奥-德拉吉政府的决定，午夜时分结束了意大利因冠状病毒大流行而于2020年1月31日实施的紧急状态。
+首席检查员阿曼达-斯皮尔曼说：“我特别担心年幼儿童的发展，如果不加以解决，可能会给小学带来潜在的问题。”
 
-今天，星期五，一系列的预防措施和禁令不再适用。公民进入公共服务部门、银行、酒店、邮局和理发店不再需要“绿色通行证”。这同样适用于公民进入商场和商店。
+我们之前强调德国的另一项研究，该研究发现，由于封锁政策导致学校关闭，儿童的阅读能力与COVID之前的时代相比急剧下降。
 
-你不需要任何形式的证明，就可以在开放空间的咖啡馆和餐馆的桌子旁就坐。在城市交通中，不再需要接种疫苗的护照——但是，需要戴口罩。
+言语治疗师杰克琳-西克（Jaclyn Theek）透露，大流行期间戴口罩导致婴儿和幼儿病人转诊量增加了364%。
 
-在4月30日之前，公民需要戴上口罩并持有疫苗接种证书才能在室内观看戏剧表演和电影放映。去参加婚礼、庆祝活动、生日、迪斯科舞厅、俱乐部，仍然必须持有接种证明。
+她说：“他们不做任何文字尝试，完全不与家人沟通。”她补充说，自闭症的症状也在急剧上升。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ddde-1.png)图片来源：原文转自推特
+**原文连接**：[https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills](https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills)
 
-在室内体育设施中，通行证仍然有效，而在体育场和其他开放设施中，只要出示阴性诊断测试就可以进入。
-
-从今天起，雇员可以凭疫苗接种证明简单的测试进入所有工作场所。这一变化也适用于50岁以上的公民，他们的疫苗接种是强制性的。从现在起，在工作场所戴上外科口罩即可。
-
-直到今年年底，医院和疗养院的员工仍然必须接种COVID-19疫苗。
-
-隔离方面的规则也有所改变：只有那些SARS-CoV-2检测呈阳性的人将被隔离。任何与病例接触的人都应该戴上高标准防护口罩十天，并接受症状测试。
-
-**文章来源**：[https://www.thegatewaypundit.com/2022/04/italy-ends-covid-19-state-emergency-two-years-authoritarian-rule/](https://www.thegatewaypundit.com/2022/04/italy-ends-covid-19-state-emergency-two-years-authoritarian-rule/)
-
-翻译：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场- TrueSky
 校对：洛杉矶盘古农场 – 轰炸机
 编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 –彩虹 Rainbow
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

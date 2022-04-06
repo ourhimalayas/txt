@@ -2,36 +2,63 @@
 ---
 
 
-## 佩戴口罩使得一代幼儿在语言和社交技能方面陷入困境
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295242/)
+## 应美国要求，西班牙扣押了价值9000万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295291/)
 
-**据《零对冲》作者：TYLER DURDEN，2022年4月5日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-8.jpg)图片来源：原文
-根据一份官方报告，禁闭限制，包括成人戴口罩，使一代婴儿和幼儿在语言和社交技能方面陷入困境。
+0M.errick Garland (Attorney General)
+梅里克·加兰（司法部长）
 
-为国家统计局工作的检查员发现，在过去两年中，婴儿被戴着口罩的成年人长时间包围，损害了他们的学习和交流能力。
+Today, at the request of the United States Department of Justice
+今天，应美国司法部的要求
 
-报告发现，那些年满两岁的孩子“一生都被戴着口罩的成年人包围着，因此无法经常看到嘴唇的动作或嘴型”。
+Spanish authorities seized a super yacht belonging to a sanctioned Russian oligarch
+西班牙当局扣押了一艘属于受制裁的俄罗斯寡头的超级游艇
 
-报告补充说：“一些提供者报告认为，儿童语言发展的延迟导致他们不能像以前预期的那样轻易地与其他儿童交往。”
+Pursuant to a warrant filed in the US District Court for the District of Columbia
+根据向美国哥伦比亚特区地方法院提交的搜查令
 
-这些限制也使幼儿在爬行、独立使用厕所和交朋友方面遇到困难。
+We will now seek to have the vessel forfeited as the proceeds of a crime
+我们现在将寻求没收船只作为犯罪所得
 
-学习方面的延迟也使一些儿童在穿外套和擤鼻涕等基本任务方面需要帮助。
+Last month, the Justice Department launched Task Force klepto Capture
+上个月，司法部启动了窃贼捕获工作组
 
-首席检查员阿曼达-斯皮尔曼说：“我特别担心年幼儿童的发展，如果不加以解决，可能会给小学带来潜在的问题。”
+to hold accountable Russian oligarchs and others who seek to evade US sanctions
+追究俄罗斯寡头和其他试图逃避美国制裁的人的责任
 
-我们之前强调德国的另一项研究，该研究发现，由于封锁政策导致学校关闭，儿童的阅读能力与COVID之前的时代相比急剧下降。
+Today marks our task force’s first seizure of an asset
+今天是我们的特遣部队第一次没收
 
-言语治疗师杰克琳-西克（Jaclyn Theek）透露，大流行期间戴口罩导致婴儿和幼儿病人转诊量增加了364%。
+belonging to a sanctioned individual with close ties to the Russian regime
+属于与俄罗斯政权关系密切的受制裁个人的资产
 
-她说：“他们不做任何文字尝试，完全不与家人沟通。”她补充说，自闭症的症状也在急剧上升。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ddde-1.png)图片来源：原文转自推特
-**原文连接**：[https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills](https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills)
+It will not be the last
+这不会是最后一次
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
+together, with our international partners
+将与我们的国际合作伙伴一起
+
+we will do everything possible to hold accountable any individual
+我们将尽一切可能追究其犯罪行为
+
+whose criminal acts enable the Russian government to continue its unjust war
+导致俄罗斯政府得以继续其不公正战争的任何个人的责任
+
+**原视频链接**[**:** https://twitter.com/thejusticedept/status/1510988354615193612?s=24](https://twitter.com/thejusticedept/status/1510988354615193612?s=24)
+
+Date:04/04/2022
+原视频标题: $90 Million Yacht of Sanctioned Russian Oligarch Viktor Vekselberg Seized by Spain at Request of United States
+应美国要求，西班牙扣押了价值 9000 万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
+原视频日期：2022/04/04
+原视频链接https://twitter.com/thejusticedept/status/1510988354615193612?s=24
+任务编号：4173
+视频时间段 : 0:00-0:58
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
