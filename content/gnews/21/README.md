@@ -2,25 +2,44 @@
 ---
 
 
-## 台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296984/)
+## 中共疫情清零政策耽误春耕加剧粮食短缺危机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297229/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-1.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国国防安全合作局（DSCA）5日宣布，批准售台“爱国者专案人员技术协助案”，总价9500万美元（约新台币27.24亿），行政部门已通知国会，有望在1个月后正式生效。新闻稿表示，台方要求购买技术援助支持，包含爱国者防空系统、设备与后勤的维护、操作和规划等；主要承包商为雷神科技公司。这是美国2022年第二度对台军售。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-这项军售案，有助有助台湾维持飞弹密度，确保台湾空中作战战备能力，且**DSCA强调**本对台军售有助强化台湾安全、区域政治稳定、军事平衡，**符合美国国家、经济和安全利益**。
+#### 整理：等风来
+编辑：李易通
 
-台湾国防部对美军售表示，感谢美政府持续落实《台湾关系法》及“六项保证”对台湾的安全承诺。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-11.png)图片来源：雅典娜设计组
 
-2021年11月，美国国会美中经济暨安全审查委员会（USCC）最新年度报告指出，中共已具备或即将取得初步犯台能力，其中报告指出解放军已有能力对台发动海空封锁、网攻与导弹攻击。为维持美国履行台湾关系法下义务的能力，建议在印太地区大量部署飞弹系统，并加强台湾向美国军购能力。
 
-来源｜[udn](https://udn.com/news/story/10930/6217447)、[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79726&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)、[CNA](https://www.cna.com.tw/news/firstnews/202111180015.aspx)
+2022年04月06日报道，中共严厉的[疫情](https://www.epochtimes.com/gb/tag/%25E7%2596%25AB%25E6%2583%2585.html)[清零](https://www.epochtimes.com/gb/tag/%25E6%25B8%2585%25E9%259B%25B6.html)政策，不仅对城市经济造成巨大停滞，也耽误了农业[春耕](https://www.epochtimes.com/gb/tag/%25E6%2598%25A5%25E8%2580%2595.html)。在农业大省[吉林](https://www.epochtimes.com/gb/tag/%25E5%2590%2589%25E6%259E%2597.html)，清零政策与粮食生产之间的冲突不断凸显。再加上乌克兰战争导致粮食价格飙升，中国或面临粮食供应方面的严峻挑战。
 
-* * *
+[吉林](https://www.epochtimes.com/gb/tag/%25E5%2590%2589%25E6%259E%2597.html)是中国第二大玉米种植区，种植面积占全国的10%。由于染疫人数激增，东北部省份已被封锁数周，物流、种子、农业物资等运输都受到影响，人员也无法自由流动，这或导致农民今年无法及时在田里种植农作物。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+根据中国大陆媒体财新网报导，正值[春耕](https://www.epochtimes.com/gb/tag/%25E6%2598%25A5%25E8%2580%2595.html)关键时期，吉林省却正在爆发新一轮[疫情](https://www.epochtimes.com/gb/tag/%25E7%2596%25AB%25E6%2583%2585.html)，玉米的核心产区吉林深受影响，预计临时储备的玉米售罄后，今年产需缺口大约在2000万吨以上。
+
+彭博社4月5日报导，目前中国是最大的玉米和大豆进口国，由于国内粮食短缺，近年来的海外采购量不断创历史新高，从而进一步推升了全球价格。
+
+随着俄乌战争加剧，作为世界主要粮仓的俄罗斯和乌克兰出口都受到战争影响，中国买家转向美国等购买谷物。
+
+中国农民因疫情耽误春耕，也让中共感到紧张，中共在北京召开的玉米和水稻生产工作推进会议上，中共国务院副总理胡春华称，近几年玉米播种面积下降较多的地方要加快恢复。
+
+吉林省官员最近几天也强调，如果农民满足某些条件，包括检测呈阴性并且不是密切接触者，可以从4月5日起“申请回家”。
+
+美国总统拜登上月在欧盟峰会上表示，美国政府对俄罗斯实施制裁后，全球粮食短缺“将成为现实”。
+
+联合国世界粮食计划署（WFP）也警告说，战争严重威胁该部门向全球1.25亿民众提供粮食的救援工作，“这对于全球的粮食影响，是自第二次世界大战以来所未见。”
+
+参考链接：[中共疫情清零政策耽误春耕加剧粮食短缺危机](https://www.epochtimes.com/gb/22/4/5/n13697501.htm)
+
+发布：*wenly*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

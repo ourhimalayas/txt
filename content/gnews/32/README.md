@@ -2,47 +2,28 @@
 ---
 
 
-## 中共特务郑介甫遭澳洲政府遣返
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296741/)
+## 俄军撤离基辅 布查镇发现大量尸体
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2296842/)
 
-作者：银河系农场 – 骄子
+**撰稿：日本东京方舟农场  子辰**
 
+4月3日，俄军撤离基辅后，布查镇发现大量被屠杀的尸骸，乌克兰指责俄军杀害平民，俄方断然否认。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-82.jpg)（图片来自大纪元）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+俄罗斯军队从基辅撤退后，大量图片显示，乌克兰政府在基辅附近发现了许多平民的尸体。其中，布查镇的街上和地下室都发现了大量尸骸，当地发现乱葬坑里堆叠了约数十个尸袋，有些遗体并未获得完整掩埋，露出部分手脚。
 
+4月5日，乌克兰总统泽连斯基表示，布查镇有超过300人遭俄军杀害，而且这一数字在经过仔细清点后很可能会增加。
 
+乌克兰指控俄军屠杀平民，但是克里姆林宫的发言人德米特里・佩斯科夫（Dmitry Peskov）断然否认这一指控。
 
-近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
-
-早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-4.jpg)
-郭先生在2017年5月9日直播中对此事进行了阐述，郑介甫因其国内公司与郭先生产生矛盾，但其实根本与郭先生无关，全因经手人是曲龙想侵吞资产，郭先生和这个郑介甫根本不存在任何法律关系。这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
-
-2017年郭先生美国之音断播门事件第二天，郑又在媒体大肆诬告郭先生所言都不真实，爆料只是为引起媒体关注。
-
-时隔五年，郑介甫被遣返。郭先生在2022年4月4号直播中说，时间会给人一切答案，跟着共产党，走进火葬场。目前澳大利亚政府名单上面有40多个为中共卖命的人要被遣返。
+目前，有大量多国记者在布查镇做现场拍照及采访工作，俄罗斯军队屠杀大量平民，这一罪行必将受到严惩。
 
 参考链接：
-1. [Millionaire Chinese property developer quietly expelled for ‘harming security interests’](https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html)
-2. [Chinese President’s war on corruption finds its way to Brighton](https://www.smh.com.au/politics/federal/chinese-presidents-war-on-corruption-finds-its-way-to-brighton-20150405-1merr5.html)
-3. [【特别报道】权力猎手郭文贵](https://weekly.caixin.com/m/2015-03-27/100795235_all.html)
-4. [Australian property developer’s encounter with Interpol most-wanted Guo Wengui](https://www.smh.com.au/world/australian-property-developers-encounter-with-interpol-mostwanted-guo-wengui-20170420-gvol9s.html)
-5. [7·24系列——造谣郭文贵先生的郑介甫被遣返](https://gnews.org/zh-hans/2286058/)
-6. [郭文贵5月9日报平安视频直播](https://www.youtube.com/watch?v=qUNteNSEwmA)
+[https://www.epochtimes.com/gb/22/4/5/n13697086.htm](https://www.epochtimes.com/gb/22/4/5/n13697086.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑：呼吸的雾霾（文小呼吸）
-总编：zhong
-审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+总编：老孙
+校对发布：爱放飞
 
  
 

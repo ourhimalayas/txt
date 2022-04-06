@@ -2,29 +2,47 @@
 ---
 
 
-## 樱花时政｜可怕的文革2.0正在国内上演
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296989/)
+## 马斯克推出民意调查后，推特确认正在测试“编辑”按钮
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297247/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/可怕的文革2.0正在国内上演.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2022年4月4日，郭文贵先生Gettr爆料上海已经是人间地狱，长春已经是人间炼狱，深圳死那么多人，官方不报道！国内房地产，银行倒塌还没到来呢！国内不是什么新病毒，全是疫苗反应！各省给上海送菜是政治斗争，中央问：谁让你们送菜送饭给上海了？
+#### 翻译/编辑：小红帽
 
-无数迹象证明，这场遍布中共国各地的疫情封控、封城、核酸大检测，除了确实已到了中共病毒疫苗毒性发作的开始时间，出现了连绵不断此起彼伏的，各种类似中共病毒感染案例以外，更多的是邪恶的中共习近平借疫情发动的一场作为政治内斗的文革2.0版的政治大运动，目的就是将体制内所有的不归属自己的江曾王孟派系人马全部一次性清除和更换掉，将中共的独裁专制党天下，顺利过渡到习氏家族世袭的家天下！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Musk-Twitter-stake.png)图片来源：[www.foxbusiness.com](https://www.foxbusiness.com/)
 
-和文革前毛泽东使用红卫兵去干掉刘少奇派系的各级党委所不同的是，中共习近平使用的是“大白”，用无声无息无形的疫情防控，以感染病毒为由头，去抓捕和清除政治对手，所以才出现除了使用各级警力，还将军队开往各个重点城市去“抗击疫情”，街头出现“大白”持枪镇吓群众的这种怪事。习近平和毛泽东事实上使用一样手段！
 
-抗疫不是目的，借助抗疫来消灭政治对手，并且通过不断对老百姓折腾、侮辱，让老百姓变的贫穷、变弱、变的疲惫不堪才是中共崇祯帝习近平一石二鸟的计策！通过极其不合理的抗疫政策，大大的降低了绝大部份中国老百姓对生活的期盼！在中共商鞅五术的治理下，老百姓只要能苟且的活着，不封锁，不隔离，不做核酸，能正常工作，自由进出家门，习近平家族世袭在他们眼中那都是小事……
+根据ABC NEWS4月6日报道，推特（Twitter）正在测试一项功能，该功能允许用户在推文发布后编辑推文。该公司周三表示，在其最大股东埃隆·马斯克 (Elon Musk) 对他的追随者进行了一项有争议的民意调查后开始了此项测试。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+这家社交媒体巨头确认它一直在开发一个编辑按钮，此前它似乎在愚人节开玩笑提到了该功能。
+
+推特于4月1日星期五在推特上表示，它正在“开发一个编辑按钮”。
+
+该帖子被许多人视为一个笑话，因为多年来一直在讨论这种按钮的可能性。
+
+推特周三表示，它不是在开玩笑，并补充说，它将在未来几个月内开始与 Twitter Blue付费订阅服务的成员一起测试编辑功能。
+
+尽管最近质疑该平台对言论自由的承诺，但亿万富翁埃隆·马斯克成为该公司最大的股东和最新的董事会成员之后，推特发表了此声明。
+
+周二，马斯克在推特上发布了一项互动民意调查，向他的8000万粉丝提出了一个问题：“你想要一个编辑按钮吗？”
+
+以马斯克先生的典型风格，这项民意调查也像是一个笑话，因为提供的两个回答是“是”和“赞成”，而不是“是”和“否”。
+
+推特首席执行官 Parag Agrawal告诉用户：“这次民意调查的结果很重要。请谨慎投票。”
+
+在超过440万张选票之后，马斯克的民意调查中的大多数受访者（74%）投了“赞成票”。
+
+此前自称“言论自由绝对主义者”的马斯克表示，他期待与推特董事会合作，“在未来几个月内对推特做出重大改进”。
+
+新闻来源：[Twitter confirms it is testing an ‘edit’ button, after Elon Musk polls his followers over the contentious feature](https://www.abc.net.au/news/2022-04-06/twitter-edit-button-elon-musk-poll-followers-feature/100969394)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

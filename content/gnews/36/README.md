@@ -2,32 +2,47 @@
 ---
 
 
-## 香港殡仪馆：大量尸体堆积不堪重负
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2296659/)
+## 中共特务郑介甫遭澳洲政府遣返
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296741/)
 
-**撰稿：日本东京方舟农场  子辰**
+作者：银河系农场 – 骄子
 
-近期，中共病毒疫情不仅在大陆肆虐，香港疫情更是日趋严重。由于死亡人数剧增，导致传统棺材出现短缺，香港的殡仪馆不堪重负。
 
-香港自今年第五波病毒袭击后，已经报告了超过一百万人感染和超过8,000人死亡的数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-6.jpg)（图片来自大纪元）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-援引路透社报导，37岁的殡仪馆主管Lok Chung说，“我从来没有见过这么多尸体堆在一起”。他一直在夜以继日地工作，3月份承办了大约40场葬礼，而一般情况下平均每月大约有15场葬礼。
 
-香港太平间人满为患，急诊室堆放尸体的景象震惊了许多人。办理相关死亡文件，也变成了漫长的等待。
 
-香港葬礼的殡葬用品，一直源于大陆深圳。但是目前深圳由于疫情的肆虐，自顾不暇。导致香港传统的纸质殡葬物品短缺，包括纸质的汽车和房屋，以及其它很多物品。
+近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
 
-另据香港一名殡仪馆主管Hades Chan说，殡仪馆工作人员的染疫也构成重大挑战，近四分之一的人无法工作。
+早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-4.jpg)
+郭先生在2017年5月9日直播中对此事进行了阐述，郑介甫因其国内公司与郭先生产生矛盾，但其实根本与郭先生无关，全因经手人是曲龙想侵吞资产，郭先生和这个郑介甫根本不存在任何法律关系。这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
 
-香港城市食品和卫生官员艾琳·杨（Irene Young）说，香港每天需要的250至300具棺材。她说，她的部门现在几乎全天候运行六个火葬场，每天进行近300次火葬，是通常数字的两倍。公共太平间已扩大到可容纳4,600具尸体，而此前为1,350具。
+2017年郭先生美国之音断播门事件第二天，郑又在媒体大肆诬告郭先生所言都不真实，爆料只是为引起媒体关注。
+
+时隔五年，郑介甫被遣返。郭先生在2022年4月4号直播中说，时间会给人一切答案，跟着共产党，走进火葬场。目前澳大利亚政府名单上面有40多个为中共卖命的人要被遣返。
 
 参考链接：
-[https://www.epochtimes.com/gb/22/4/6/n13698152.htm](https://www.epochtimes.com/gb/22/4/6/n13698152.htm)
+1. [Millionaire Chinese property developer quietly expelled for ‘harming security interests’](https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html)
+2. [Chinese President’s war on corruption finds its way to Brighton](https://www.smh.com.au/politics/federal/chinese-presidents-war-on-corruption-finds-its-way-to-brighton-20150405-1merr5.html)
+3. [【特别报道】权力猎手郭文贵](https://weekly.caixin.com/m/2015-03-27/100795235_all.html)
+4. [Australian property developer’s encounter with Interpol most-wanted Guo Wengui](https://www.smh.com.au/world/australian-property-developers-encounter-with-interpol-mostwanted-guo-wengui-20170420-gvol9s.html)
+5. [7·24系列——造谣郭文贵先生的郑介甫被遣返](https://gnews.org/zh-hans/2286058/)
+6. [郭文贵5月9日报平安视频直播](https://www.youtube.com/watch?v=qUNteNSEwmA)
 
-总编：老孙
-校对发布：文曦
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑：呼吸的雾霾（文小呼吸）
+总编：zhong
+审核：飞虹
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

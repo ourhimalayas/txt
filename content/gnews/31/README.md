@@ -2,39 +2,37 @@
 ---
 
 
-## 巴基斯坦总理被解职 印证郭文贵先生情报
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296742/)
+## 英特尔暂停在俄罗斯的业务运营
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2296846/)
 
-作者：日本方舟农场 – Andy5
+#### 【雅典娜快讯】，紧贴时代脉搏
 
+#### 翻译/编辑：小红帽
 
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-当地时间3月31日，巴基斯坦反对党表示，已经获得足够票数，将在周日启动投票罢免总理。据悉当时反对党已经争取到了196个议员的支持，高于投票中所需的172人。4月4日，巴基斯坦总理不出意料地，在解散议会后被解职，目前的总理权限保留至选出临时总理为止。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-4.jpg)
-早在3月30日的大直播中，郭文贵先生就已经指出，中共要让巴基斯坦动乱，因为现在的领导人不是百分之百对中共言听计从。
-
-观察人士指出，无论是年初的哈萨克斯坦动乱，还是当前的巴基斯坦总理被罢免，都在像郭先生爆料的那样发展。由此足以看出爆料革命情报的准确性。
-
-参考链接：
-1. [巴基斯坦反对党称“获足够票数罢免总理”，伊姆兰·汗：我会奋战到底](https://www.sohu.com/a/534425598_313745)
-2.  [巴基斯坦总理批评“外国势力”密谋推翻其政府，结果“不小心”点了美国](https://world.huanqiu.com/article/47QaKycAu8L)
-3. [巴基斯坦总理伊姆兰·汗被解职，将留任至选出临时总理](https://www.sohu.com/a/535261959_313745)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：zhong
-审核：飞虹
-校对/发稿：为真不破20
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Intel_Xeon_Roadmap_Ice_Lake_Sapphire_Rapids_Granite_Rapids_5_2060x1159-1.png)
 
 
+美国芯片制造商英特尔周二（4月5日）表示，公司将暂停在俄罗斯的所有业务运营并立即生效。英特尔已实施业务连续性措施，以尽量减少对其全球业务的干扰。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+英特尔就乌克兰战争发表了以下声明：
 
+“英特尔继续与国际社会一起谴责俄罗斯对乌克兰的战争，并呼吁迅速恢复和平。从即日起，我们暂停在俄罗斯的所有业务运营。此前，我们决定暂停向俄罗斯和白俄罗斯的客户发货。”
 
+“我们与所有受这场战争影响的人同在，特别是乌克兰和周边国家的人民，以及全世界所有在该地区有家人、朋友和亲人的人。”
+
+“我们正在努力支持我们所有的员工度过这一困难时期，包括我们在俄罗斯的1,200名员工。我们还实施了业务连续性措施，以尽量减少对我们全球业务的干扰。”
+
+新闻来源：
+1、[Intel suspends business operations in Russia](https://www.channelnewsasia.com/business/intel-suspends-business-operations-russia-2610701)
+2、[Intel Suspends Operations in Russia](https://www.intel.com/content/www/us/en/newsroom/news/russia-business-statement.html)
+
+发布：wenly
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

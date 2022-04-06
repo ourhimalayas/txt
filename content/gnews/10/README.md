@@ -2,22 +2,18 @@
 ---
 
 
-## 视频|《灭共的雪》和《锁链梦》上线苹果音乐
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2297208/)
+## 郭先生谈：前线战友染病复阴，俄乌战争结束时间（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297348/)
 
-制作：香草山视频部
+**PPT制作：WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11.10-11.201.jpg)
+*发布：tianzhihuan*
 
-当地时间4月3日，郭先生2022年的两首歌《灭共的雪》和《锁链梦》，经历了诸多阻碍后，在苹果音乐商店正式上线。
-
-《灭共的雪》在农历新年大直播中首播，《锁链梦》于3月8日国际妇女节首播。两首歌作为音乐灭共的利器，在苹果音乐上线的第一天，就已经创造了不俗的下载量。截止4月4日，《灭共的雪》已经在香港、新西兰、新加坡、台湾取得第一名，在澳门和柬埔寨取得第二名的成绩，《锁链梦》在澳门和柬埔寨第一名，香港、新西兰、新加坡、台湾取得第二名。
-
-《灭共的雪》改编自中共宣传歌曲《塞北的雪》。据爆料革命的情报信息，《塞北的雪》原定于在北京冬奥会开幕式演唱，中共独裁核心习近平试图通过这首歌展现共产主义的浪漫，进行文化输出。郭先生在冬奥会前一天，推出这首歌的灭共新词版本，致使原定的开幕式相应节目流产。《锁链梦》曲调改编自香港的女儿——梅艳芳小姐演唱的《女人花》，配以描写徐州“锁链女”悲惨遭遇的歌词，将中国女性被中共体制蹂躏的现实展现得淋漓尽致。郭先生也在大直播中透露这首歌的力量，不仅仅是灭共，更是要唤醒中共国的老百姓，砸碎铁锁，站起来活。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

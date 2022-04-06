@@ -2,52 +2,42 @@
 ---
 
 
-## 疫苗副作用集萃（2022.4.6）&#8211;打了新冠疫苗后整个人不好了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2296904/)
+## 泽连斯基在联合国演讲中抨击俄罗斯暴行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297130/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+#### 【雅典娜快讯】，紧贴时代脉博
 
-#### 整理：BENJ1       
-编辑：BENJ1
+#### 翻译：文扬
+编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13.png)
-
-图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片30.png)图片来源：Malay Mail & 雅典娜设计组
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+美东时间周三，乌克兰总统泽连斯基在联合国安理会的一次现场视频演讲中，对俄罗斯的入侵行为进行了最有力的谴责，称俄罗斯人是战争罪犯，他痛斥俄罗斯人杀害平民，当着孩子的面强奸妇女，让他的国家成为一片废墟，“到处是乱坟岗”。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+这次在他访问基辅郊区布查后的第二天后发表讲话，当时布查街头令人震惊地出现许多平民尸体。泽连斯基称这些人都是被撤退的俄罗斯军队杀死的。乌克兰总统表示，如果安理会不能做到这一点，它的存在就就毫无用处，要想办法追究肇事者的责任。
 
-帖子原文：
+泽连斯基谈到撤离的俄罗斯军队时说：“现在世界可以看到俄军在布查犯下的罪行，而安全理事会需要保证的安全在哪里？”
 
-打了新冠疫苗booster后整个人不好了
-新冠疫苗第三针
-昨天11点去打了新冠疫苗第三针，打完后手臂微酸到晚上睡觉前都没反应，对广大的群众所说的第三针反应大怀着得瑟的态度。还跟我朋友说自己多牛逼哈哈哈哈哈哈哈安稳的睡觉了
+联合国没有执行该组织创始宪章的基本原则，因而未能避免战争的发生。
 
-到了凌晨3点开始我发现我出了好多汗，一起来感觉左臂巨酸疼，胸闷气短感觉自己好累又难受睡不着了，一直折腾到了现在。目前还没发现有发烧现象，可是头晕头疼脖子疼腰疼浑身不得劲，还恶心 。我准备要躺一天的节奏了。人就是不能得瑟。希望这种现象快点消失！
+“请展示我们将如何改革并为和平而努力”，泽连斯基恳请理事会成员：“否则，如果你除了谈话之外没有什么可以做的，那就解散吧。”
 
-评论选集：
+克里姆林宫否认对布卡或乌克兰其他地方的平民暴行负有任何责任，并表示北郊处决式杀戮的照片和视觉证据是捏造的。
 
-[取个名字真的难](https://www.xiaohongshu.com/user/profile/5f85e2980000000001005004) 回复：
-我是怕寒怕冷全身酸痛，还有点发热…重点是这酸痛像是戳中笑穴一样，边笑边难受
+《纽约时报》对卫星图像的分析反驳了俄罗斯的说法，即在其士兵离开该镇后，布查的平民被杀。
 
-[Katy](https://www.xiaohongshu.com/user/profile/5899950650c4b41e12d86cf5) 回复：
-我今天发打完booster，全身烧的慌
+泽连斯基说，“他们杀死了整个家庭，包括成人和儿童，并试图焚烧尸体”。布卡的一些受害者是“从后脑勺被射杀的”，而“一些人是在街上被射杀的，还有一些人被扔进了水井”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/8466f604b242ef40.png)
+泽连斯基还呼吁建立一个类似审判纳粹战犯的纽伦堡法庭，起诉对暴行负有责任的俄罗斯人，包括莫斯科的领导人。
 
-图片来源：小红书
+原文链接：[Volodymyr Zelensky: Ukrainian President details alleged Russian atrocities in hard-hitting UN speech – CNN](https://edition.cnn.com/2022/04/05/world/zelensky-ukraine-united-nations-speech-intl/index.html)
 
-
-参考链接:
-[打了新冠疫苗booster后整个人不好了](http://xhslink.com/XaU0Ag%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-*发布：*wenly
+发布：*wenly*
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 

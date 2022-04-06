@@ -2,44 +2,30 @@
 ---
 
 
-## 泽连斯基在联合国演讲中抨击俄罗斯暴行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297130/)
+## 清明节连休国内旅行者比去年锐减63%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297289/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海6日路透社，经济日报5日报道，据中国运输省估计，3-5天清明节连休期间国内游客人数为5378万人。但是在中共病毒（新冠病毒Covid-19）疫情再次扩大的背景下，比上年同期减少了63%，与20年水平相比也低于约10%。
 
-#### 翻译：文扬
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/清明节连休国内旅行者比去年锐减63.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.qunarzz.com%2Ftravel%2Fpoi%2F1501%2Fa4%2F0d09ad8da823f0.jpg_r_720x400x95_583da103.jpg&amp;imgrefurl=https%3A%2F%2Ftravel.qunar.com%2Fp-gj300667-zhongguo&amp;tbnid=wIVjnuWfCsVNQM&amp;vet=12ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ..i&amp;docid=OUy4YY1Gv9eyvM&amp;w=720&amp;h=400&amp;q=%E5%9B%BD%E5%86%85%E6%97%85%E8%A1%8C%20%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片30.png)图片来源：Malay Mail & 雅典娜设计组
+中国各地，为了降低感染风险，限制交通量，强制旅行者进行病毒检测等活动正在扩散。 航班使用者下降特别明显，连休中的航班数为56万2000次，比上年减少了87%。道路交通量比上年减少了53%，与20年前的水平差距也小幅度下降了。
 
+野村证券在5日的报告中，估计国内23个城市引进的全面或部分封锁(城市封锁)影响的人数约为1亿9300万人。23个城市占国内人口的比例是13.6%，占国内生产总值(GDP)22%。另外，欧亚集团的分析师认为，中共病毒疫情管制对服务业和中小企业来说是最受打击的。
 
-美东时间周三，乌克兰总统泽连斯基在联合国安理会的一次现场视频演讲中，对俄罗斯的入侵行为进行了最有力的谴责，称俄罗斯人是战争罪犯，他痛斥俄罗斯人杀害平民，当着孩子的面强奸妇女，让他的国家成为一片废墟，“到处是乱坟岗”。
+消息来源：
+[中国清明節の3連休、旅行者前年比63％減　コロナ感染拡大で](https://news.yahoo.co.jp/articles/dc3ec57a769d3d7a4458223b1663c2f72e76b72f)
 
-这次在他访问基辅郊区布查后的第二天后发表讲话，当时布查街头令人震惊地出现许多平民尸体。泽连斯基称这些人都是被撤退的俄罗斯军队杀死的。乌克兰总统表示，如果安理会不能做到这一点，它的存在就就毫无用处，要想办法追究肇事者的责任。
-
-泽连斯基谈到撤离的俄罗斯军队时说：“现在世界可以看到俄军在布查犯下的罪行，而安全理事会需要保证的安全在哪里？”
-
-联合国没有执行该组织创始宪章的基本原则，因而未能避免战争的发生。
-
-“请展示我们将如何改革并为和平而努力”，泽连斯基恳请理事会成员：“否则，如果你除了谈话之外没有什么可以做的，那就解散吧。”
-
-克里姆林宫否认对布卡或乌克兰其他地方的平民暴行负有任何责任，并表示北郊处决式杀戮的照片和视觉证据是捏造的。
-
-《纽约时报》对卫星图像的分析反驳了俄罗斯的说法，即在其士兵离开该镇后，布查的平民被杀。
-
-泽连斯基说，“他们杀死了整个家庭，包括成人和儿童，并试图焚烧尸体”。布卡的一些受害者是“从后脑勺被射杀的”，而“一些人是在街上被射杀的，还有一些人被扔进了水井”。
-
-泽连斯基还呼吁建立一个类似审判纳粹战犯的纽伦堡法庭，起诉对暴行负有责任的俄罗斯人，包括莫斯科的领导人。
-
-原文链接：[Volodymyr Zelensky: Ukrainian President details alleged Russian atrocities in hard-hitting UN speech – CNN](https://edition.cnn.com/2022/04/05/world/zelensky-ukraine-united-nations-speech-intl/index.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

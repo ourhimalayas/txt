@@ -2,37 +2,23 @@
 ---
 
 
-## 俄乌战争、疫苗灾难后人类将迎来新纪元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296740/)
+## 俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296818/)
 
-作者：纽约磐石农场-在远方，澳喜农场-Leo M
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+外媒报导，美国阻止俄罗斯政府，以他们在外国银行持有的储备金，向主权债务持有人支付超过6亿美元的本息，此举是为了加大对莫斯科的压力。西方对俄罗斯的制裁已冻结俄国约6,400亿美元的黄金与外汇储备中的大约一半，但是俄国确实仍有足够的资金，可以从其储备金支付上述的主权债券票息。
 
+此外，原先美国财政部允许俄国政府逐案(case-by-case basis)使用在美国银行里遭冻结的资金支付以美元计价的主权债券票息(coupon)。财政部发言人表示，美国政府4日决定切断莫斯科取得被冻结资金的管道，阻止俄国政府支付即将到期的最大一笔款项，以及另一笔8,400万美元的票息。
 
+外界分析美国此举系为了消耗俄国外汇储备，削弱俄国战争的资金。惟俄国也可能要求欧洲客户以卢布购买天然气，作为反制。俄乌战争导致国际能源及粮食价格飙涨，世界面临经济、粮食危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2%E4%BF%84%E7%BE%85%E6%96%AF%E6%94%AF%E4%BB%98%E5%82%B5%E5%88%B8%E6%9C%AC%E6%81%AF-%E5%8D%87%E9%AB%98%E8%8E%AB%E6%96%AF%E7%A7%91%E5%A3%93%E5%8A%9B-093011243.html)、[NIKKEI](https://asia.nikkei.com/Economy/South-Korea-March-inflation-hits-decade-high-on-supply-challenges)
 
+* * *
 
-
-郭文贵先生于4月3日大直播中表示，俄乌战争、疫苗灾难过后，人类将产生能源革命，进入数字化时代、干细胞治疗的时代，新中国联邦将创造人类新文明。
-
-俄乌战争将导致俄罗斯与中共国被解体，新中国联邦人在未来会站在世界上跟任何人对话。而疫苗灾难过后，世界将迎来能源革命、数字化时代、元宇宙、干细胞治疗、数字化货币等革命，世界所有的战略格局全部将被改变。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-5.jpg)
-此外，马斯克的脑神经系统、特斯拉和Space(X)等技术，改变了人类的通信与运载状态。美国、英国、日本和乌克兰的相关公司将导致新能源的诞生。生物科技由于疫苗灾难的到来，将使美国开放干细胞的法律控制。灾难和科技会催生墓碑文明，人类的延续和种族的混血，将开启无种族、无宗教、无地域的时代。随之而来的数据化和生物科技，将把贸易、政治和地域一体化彻底打破，变成人类种族一体化，无皇有主的人类将奔向太空。新中国联邦人，不仅将见证这个伟大壮观的时代，而且无苗族的后代也将生生不息。
-
-参考链接：
-[4/3/2022 Miles Guo: The COVID vaccine disaster will bring about the energy revolution and the digital era.](https://www.gettr.com/post/p13h114bb46)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/审核：飞虹
-总编：zhong
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

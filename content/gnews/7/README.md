@@ -2,11 +2,11 @@
 ---
 
 
-## 七哥谈砸郭反爆料革命是伪类欺民贼的一条骗钱产业链（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297220/)
+## 郭先生谈：前线战友染病复阴，俄乌战争结束时间（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297363/)
 
 **PPT制作：WinterGuo ；开智则立**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/10-10-10-20-02（二）.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11.10-11.203.jpg)
 *发布：tianzhihuan*
 
 **更多资讯，请关注：**

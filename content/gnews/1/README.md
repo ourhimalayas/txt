@@ -2,47 +2,48 @@
 ---
 
 
-## 马斯克推出民意调查后，推特确认正在测试“编辑”按钮
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297247/)
+## 中共从买买买到卖卖卖抢抢抢,蓝金黄&amp;3F&amp;13579&amp;全球放毒
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297402/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8824.38%EF%BC%89%E4%B8%AD%E5%85%B1%E4%BB%8E%E4%B9%B0%E4%B9%B0%E4%B9%B0%E5%88%B0%E5%8D%96%E5%8D%96%E5%8D%96%E6%8A%A2%E6%8A%A2%E6%8A%A2%2C%E8%93%9D%E9%87%91%E9%BB%84%E3%80%813F%E3%80%8113579%E3%80%81%E5%85%A8%E7%90%83%E6%94%BE%E6%AF%92%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:c)
 
-#### 翻译/编辑：小红帽
+**郭文贵先生：**谈到这块，我先给大家说一下，你看一看我们短暂的共产党，就最近的表现，这个世界上荒唐到什么程度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Musk-Twitter-stake.png)图片来源：[www.foxbusiness.com](https://www.foxbusiness.com/)
+外交部——所有中国人、中国同胞都在乌克兰已经撤回了。还有到现在为止，百分之八十的中国人还在战场当中呢。所谓撤回去的，都是他们小姨子、小舅子、私生子女。而且如果说有学生要撤回去的，表演性的，要收你一万八机票费。连那个穷的那些，都是很低的国家，人家都是免费包机送回。
 
+你们看到了大使馆，在他们所谓全部已经是帮助救回之后的大使馆的发言，你看那个恶心样。然后共产党又在全世界说：新中国联邦，爆料革命救乌克兰人，是代表中国政府的。这话它敢说。然后这中国外交部说：活在中国，你偷着乐吧，中国是全世界最安全的地方。然后在香港说没有比中国共产党再希望香港人有民主、法治、自由的，香港的明天会更美好。今天的香港是昨天的明天，你看看香港的今天，踩着尸体找尸体。香港的经济从三万五千点已经到达两万点，快破两万点了。
 
-根据ABC NEWS4月6日报道，推特（Twitter）正在测试一项功能，该功能允许用户在推文发布后编辑推文。该公司周三表示，在其最大股东埃隆·马斯克 (Elon Musk) 对他的追随者进行了一项有争议的民意调查后开始了此项测试。
+中国人在短短的十几年成了全世界最被仇恨的、诅咒的民族。从2017年以前，2012年习、王政府上来和孟建柱上来以后，在全球的买买买到现在的卖卖卖，到现在的是抢抢抢。中国的私人企业家全部死的死、亡的亡，无论王健、马云、什么马化腾、什么许家印，个个生不如死。
 
-这家社交媒体巨头确认它一直在开发一个编辑按钮，此前它似乎在愚人节开玩笑提到了该功能。
+不但如此，大家可以看到今天在中东、在美国、在全世界，我们爆出来的蓝金黄、三F方案、一三五七九，所有的这些机密文件都被一一证实，包括放毒，发起金融超限战、法律超限战。
 
-推特于4月1日星期五在推特上表示，它正在“开发一个编辑按钮”。
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-该帖子被许多人视为一个笑话，因为多年来一直在讨论这种按钮的可能性。
+编辑整理：Jacques；
 
-推特周三表示，它不是在开玩笑，并补充说，它将在未来几个月内开始与 Twitter Blue付费订阅服务的成员一起测试编辑功能。
+字幕档制作：知津；
 
-尽管最近质疑该平台对言论自由的承诺，但亿万富翁埃隆·马斯克成为该公司最大的股东和最新的董事会成员之后，推特发表了此声明。
+视频制作及上传：Cindy；
 
-周二，马斯克在推特上发布了一项互动民意调查，向他的8000万粉丝提出了一个问题：“你想要一个编辑按钮吗？”
+G-News发布：海贼王M.D.LUFFY；
 
-以马斯克先生的典型风格，这项民意调查也像是一个笑话，因为提供的两个回答是“是”和“赞成”，而不是“是”和“否”。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-推特首席执行官 Parag Agrawal告诉用户：“这次民意调查的结果很重要。请谨慎投票。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-在超过440万张选票之后，马斯克的民意调查中的大多数受访者（74%）投了“赞成票”。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-此前自称“言论自由绝对主义者”的马斯克表示，他期待与推特董事会合作，“在未来几个月内对推特做出重大改进”。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-新闻来源：[Twitter confirms it is testing an ‘edit’ button, after Elon Musk polls his followers over the contentious feature](https://www.abc.net.au/news/2022-04-06/twitter-edit-button-elon-musk-poll-followers-feature/100969394)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-发布：*wenly*
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
