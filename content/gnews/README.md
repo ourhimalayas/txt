@@ -15,92 +15,92 @@
 
 ---
 
-### [俄乌战争：中共为军事援助俄罗斯释放更多虚假舆论宣传](/content/gnews/1/README.md)
- ` 战云长天时评`
+### [有声新闻-新西兰财经G乐部2022年4月6日:财经新闻整理](/content/gnews/1/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [视频|巴基斯坦总理被解职 印证郭文贵先生情报](/content/gnews/2/README.md)
- ` MOSVIDEO`
+### [上海持续封控，海归清华才女在医院窒息死亡](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [推特终于走上了光明大道](/content/gnews/3/README.md)
- ` 澳喜特战旅Gnews`
+### [樱花时政┃拜登宣布美英澳将合作发展高超音速武器](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [独家：中共国国有炼油商回避新的与俄罗斯石油交易](/content/gnews/4/README.md)
- ` Shuizhuyu`
-
-### [美敦促取消俄在联合国人权理事会资格](/content/gnews/5/README.md)
+### [中共国经济将在疫苗灾难中崩溃](/content/gnews/4/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [视频|中共特务郑介甫遭澳洲政府遣返](/content/gnews/6/README.md)
+### [视频|梧高凤必至,花香蝶自来。「非脱敏」](/content/gnews/5/README.md)
+ ` 爆料视频`
+
+### [【每日聚焦】俄乌战事4月6日简要](/content/gnews/6/README.md)
+ ` 蓝莲花农场`
+
+### [有声｜山东男违反居家令 遭防疫人员强剃“阴阳头”](/content/gnews/7/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [2022年4月6日国内股市简报](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [马斯克认购推特将改变社交媒体现状](/content/gnews/9/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [郭文贵新曲《灭共的雪》、《铁锁梦》上线第3天登榜17国iTunes音乐榜首](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频|新中国联邦人在世界为国人争面子为华人保安全](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
-### [有声｜欧盟国家直接向乌克兰提供进攻型武器](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [布查杀戮：＂我宁愿我也被他们杀死了＂](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [新西兰宣布对俄罗斯新制裁 对俄进口产品征收关税](/content/gnews/8/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [视频|俄乌战争、疫苗灾难后人类将迎来新纪元](/content/gnews/9/README.md)
- ` MOSVIDEO`
-
-### [有声｜泽连斯基说领土问题不可能达成协议](/content/gnews/10/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [速报┃汽车撞进俄罗斯驻乌克兰邻国罗马尼亚的大使馆](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [7-Eleven将向特许经营者支付9800万美元的集体诉讼和解](/content/gnews/12/README.md)
- ` 走进澳洲`
-
-### [俄罗斯绕过西方制裁转向中共国制造商寻求微芯片供应](/content/gnews/13/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [澳大利亚银行为零排放制定2035年时间表](/content/gnews/14/README.md)
- ` 走进澳洲`
-
-### [秘翻在线：中共病毒（COVID-19）流行后在韩国“想死”、“忧郁感”关键词搜索增加](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声｜美国国务院调查关于乌克兰发生涉及化学品袭击的报告](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [喜币是老虎](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [上海隔离集中营又出惨案 清华才女无人吸痰被憋死](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [乌克兰布查杀戮事件，美欧准备出台新的制裁](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花时政┃G20或拒绝俄罗斯参会](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [刑场还是救死扶伤的圣地? 中共被指在医院活摘心脏](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：欧盟加大对俄罗斯的施压力度，普京的两个女儿也面临制裁](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共放风要清理公务员双重国籍](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [港警入驻口岸隔离营接手管理](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [政要传话 「疫情下1人参选较合适」](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [数字化货币大势所趋花旗银行高管们纷纷离职转行](/content/gnews/27/README.md)
+### [伊隆•马斯克要调教推特❗️](/content/gnews/13/README.md)
  ` mayflowertranslate`
 
-### [在中共国，跟上面反映一下，有用吗？](/content/gnews/28/README.md)
+### [俄乌战争：中共为军事援助俄罗斯释放更多虚假舆论宣传](/content/gnews/14/README.md)
+ ` 战云长天时评`
+
+### [视频|巴基斯坦总理被解职 印证郭文贵先生情报](/content/gnews/15/README.md)
+ ` MOSVIDEO`
+
+### [美敦促取消俄在联合国人权理事会资格](/content/gnews/16/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [视频|中共特务郑介甫遭澳洲政府遣返](/content/gnews/17/README.md)
+ ` MOSVIDEO`
+
+### [04/06每日播报｜社媒消息: 班农先生 郭文贵先生](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [速报┃汽车撞进俄罗斯驻乌克兰邻国罗马尼亚的大使馆](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线： 提醒民众疫情严重也有错？辽宁主持人被认定故意制造恐慌而停职](/content/gnews/29/README.md)
+### [7-Eleven将向特许经营者支付9800万美元的集体诉讼和解](/content/gnews/20/README.md)
+ ` 走进澳洲`
+
+### [澳大利亚银行为零排放制定2035年时间表](/content/gnews/21/README.md)
+ ` 走进澳洲`
+
+### [秘翻在线：中共病毒（COVID-19）流行后在韩国“想死”、“忧郁感”关键词搜索增加](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [上海隔离集中营又出惨案 清华才女无人吸痰被憋死](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃G20或拒绝俄罗斯参会](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [刑场还是救死扶伤的圣地? 中共被指在医院活摘心脏](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：欧盟加大对俄罗斯的施压力度，普京的两个女儿也面临制裁](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共放风要清理公务员双重国籍](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [数字化货币大势所趋花旗银行高管们纷纷离职转行](/content/gnews/29/README.md)
+ ` mayflowertranslate`
 
 ### [郭先生4月5日盖特：形势逼人，“摸金校尉”重出江湖](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`

@@ -2,42 +2,46 @@
 ---
 
 
-## 澳大利亚银行为零排放制定2035年时间表
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2298283/)
+## 俄乌战争：中共为军事援助俄罗斯释放更多虚假舆论宣传
+` 战云长天时评` [轉載自GNews](https://gnews.org/zh-hans/2298434/)
 
-翻译/编辑：Rianna
-![](https://assets.gnews.org/wp-content/uploads/2022/04/zoujinaozhou.png)图片来源：雅典娜设计组（614）
-澳大利亚银行首席执行官达米安·沃尔什表示，这家客户拥有的银行正在响应股东的要求，制定了世界领先的2035年目标，以实现净零排放。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)![](https://www.reuters.com/resizer/D6-KhdqYehGyzhzh33EC6lspO7E=/960x0/filters:quality(80)/cloudfront-us-east-2.images.arcpublishing.com/reuters/NOXIHN2TZRKXPN2S3WKDCJYBAE.jpg)
 
-在政府间气候变化专门委员会的最新报告强调将全球变暖限制在1.5度将有多困难后，Walsh先生表示，未来10年对银行部门不仅关注气候，而且关注生物多样性至关重要。
+**中共急于公开军事援助俄罗斯。开始大量制造虚假消息，认为，乌克兰需要前苏联国坦克，但坦克就是现代战争的移动棺材。几十年来，俄罗斯在武器和技术方面对中共国军事现代化的巨大。现在，随着莫斯科陷入侵乌克兰战争，北京有足够的东西满足莫斯科的需求。**
 
-与自然相关的金融披露工作组原型于上个月发布，将是银行和公司继气候报告后的下一个障碍。Walsh先生说，虽然有很多变化，但变小有优势。
 
-随着国际可持续性标准委员会预计将在今年提供一个报告和衡量气候影响的全球框架，Walsh先生表示，银行和其他公司如何衡量其排放量，特别是其范围3（银行融资的排放）的情况正在迅速发展。
+据[中共国新华社](http://www.news.cn/mil/2022-04/06/c_1211633701.htm)6日援引路透社消息称，“捷克向乌克兰运送了T-72坦克和BVP-1步兵战车，证实了此前捷克媒体的报道。”并引述英国《每日电讯报》消息称，“这是俄乌冲突以来，北约国家首次向乌克兰提供坦克。”并称捷克与北约盟国商定后送出的“礼物”是“上世纪70年代初的苏联的步兵战车，是冷战期间在苏联授权下，由捷克斯洛伐克生产的BMP-1步兵战车的本地型号。”
 
-但他说，澳大利亚银行认为没有必要等待。
+首先该消息是俄罗斯商业媒体释放的虚假消息，该消息反映了一些事实，即俄罗斯大量消耗武器和重型武器，中共急于公开军事援助俄罗斯。因此，中共支持的虚假媒体帮俄罗斯营造一种削弱乌克兰军事装备的谎言，认为，乌克兰需要前苏联国家捷克斯洛伐克的苏式坦克，殊不知，坦克就是现代战争的一个笑话，可以说是移动的棺材，乌克兰一直在致力于消灭俄军坦克就是很好的证明。就在本文消息2小时前，乌克兰武装部队总参谋部公布，近六周以来，[乌克兰军方已经 摧毁了俄军近 700 辆坦克](https://www.mil.gov.ua/news/2022/04/06/za-shist-tizhniv-vijni-vtrati-rosijskih-okupantiv-stanovlyat-150-litakiv-135-vertolotiv-znishheno-majzhe-700-tankiv-%E2%80%93-generalnij-shtab-zs-ukraini/) 。而这也可能是中共释放虚假信息的原因；其次，这是为中共自己军事援助俄罗斯做舆论铺垫，认为“北约国家首次向乌克兰提供坦克”，意在北约向非成员国武器援助是非法的。这种虚假操作的逻辑思维一看就是中国共产党的谎言。
 
-主要银行已经制定了2050年实现净零排放的目标，但迄今为止尚未披露其融资所产生的排放。
+- *延展阅读：*[*实时在线-俄罗斯对乌克兰开战的第 41 天发生了什么*](https://www.rbc.ua/ukr/news/voyna-rossii-protiv-ukrainy-proishodit-seychas-1646947178.html)*？*
 
-澳大利亚国家银行和澳新银行集团都参与了衡量其投资组合范围的计划，重点是核心业务部门，包括其抵押贷款账簿。
 
-澳大利亚银行有一个商业贷款部门，约占其贷款的10%，主要用于商业房地产部门，以及抵押贷款业务。
+就在三周前，金融时报透漏，“[美国官员称俄罗斯已要求中国在乌克兰提供军事帮助](https://www.ft.com/content/30850470-8c8c-4b53-aa39-01497064a7b7)。”据“美国官员表示，随着乌克兰战争持续到第三周，有迹象表明俄罗斯正在耗尽某些武器。”这意味着俄罗斯的坦克数量大量被摧毁。于是，中共个谎言来了，俄军需要更多苏式坦克，他说捷克援助乌克兰苏式坦克。而捷克在台湾问题上又是中共死敌。于是，编造谎言要把捷克扯进去，但这里一个明显的深层问题，中共的苏式坦克是不是都要被俄罗斯拿回去呢？这也算中共军事援助俄罗斯啊。
 
-Walsh先生说，该银行将寻求通过鼓励客户使自己的企业和家庭实现碳中和，包括通过更多地使用可再生能源和电气化，来尽量减少抵消的使用。
+上述几种可绝不是空穴来风，美国的担心是基于情报，就中共军援俄罗斯问题，郭文贵先生已经说过，“就在几天前，共产党正式参与乌克兰战争，送红旗导弹和红旗系统。送到塞尔维亚去了，更夸张的有大量黑客部队。现在开始跟俄罗斯站在一起。”（见 [视频1:43.32时段](https://gettr.com/post/p13c6fub6b6)）。
 
-“我们提供清洁能源房屋贷款，因此我们正在帮助客户建造高能效房屋。在未来十年里，我们如何支持客户为他们的房产电气化，不仅转向可再生能源，更多的电气化将更加重要。”
+- *延展阅读：*[*乌克兰政府规定了领土社区自愿组成的成员在执行领土防御任务时使用小武器和其他武器的程序*](https://www.mil.gov.ua/news/2022/04/06/uryadom-ukraini-unormovano-poryadok-zastosuvannya-chlenami-dobrovolchih-formuvan-teritorialnih-gromad-strileczkoi-zbroi-inshih-vidiv-ozbroennya-pid-chas-vikonannya-zavdan-teritorialnoi-oboroni/)*。*
 
-Walsh先生说，澳大利亚银行过去一年增长了20%，这只是社区支持银行的一个迹象，这些银行表现出对保护环境的承诺。Walsh先生说，该银行正在努力通过能源转型支持维多利亚州拉特罗布谷等煤炭发电区。他说：“在我们64年来合并的72个信用社中，一个是SEC信用社，因此我们在拉特罗布山谷拥有强大的影响力。”
 
-新闻来源：[http://www.afr.com/business/banking-and-finance/bank-australia-sets-2035-timeline-for-net-zero-20220406-p5ab92?btis](http://www.afr.com/business/banking-and-finance/bank-australia-sets-2035-timeline-for-net-zero-20220406-p5ab92?btis)
+不幸的是，路透社的分析文章可以说明中共释放的虚假言论是要为军援俄罗斯做舆论铺垫，因为“几十年来，俄罗斯在武器和技术方面对中国军事现代化的巨大帮助，比任何其他国家都多。现在，随着莫斯科继续入侵乌克兰，北京有足够的东西满足莫斯科的需求。[俄罗斯可能还需要中国储存的更多常见物资，例如反坦克武器、卡车和弹药](https://www.reuters.com/world/chinese-military-aid-russia-would-be-major-role-reversal-analysts-say-2022-03-17/)。”
 
-发布：tianzhihuan
+为何中共仍然在现代化战争语境中重提二战旧思维？这也不是没有源头，毕竟一些现存的苏式坦克正好可以拿到乌克兰战场销毁，而此时此刻，中共不甘心啊，他一定要援助俄罗斯坦克。另据华盛顿一位美国官员1日表示，“拜登政府将与盟国合作，转移苏联制造的坦克，以加强乌克兰在该国东部顿巴斯地区的防御。”美国官员补充说道，“转移将很快开始，但拒绝透露将发送多少辆坦克，或者他们将来自哪些国家。”因为“这位不愿透露姓名的官员说，他们将允许乌克兰对顿巴斯的俄罗斯目标进行远程炮击，因为他没有被授权公开发言。”但透露，西方盟友援助乌克兰“[坦克的到来可能是战争进入新阶段的另一个信号](https://www.nytimes.com/2022/04/01/us/politics/us-tanks-ukraine.html)。”
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1%20/t%20_blank%20/h)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena%20/t%20_blank%20/h)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ%20/t%20_blank%20/h)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu%20/t%20_blank%20/h)
+2022年4月6日
+![](https://assets.gnews.org/wp-content/uploads/2022/04/标志.png)
+**更多资讯，更多关注**：
+
+- [樱花时政 中共助纣为虐，屏蔽联合国网站乌克兰战争报道](https://gnews.org/zh-hans/2298059/)。
+- [美总统助理沙利文称将启动国际刑事法院追讨俄罗斯总统普京 “战争罪”。](https://gnews.org/zh-hans/2290690/)
+- [日本政府宣布向乌克兰提供包括排雷在内的追加援助](https://gnews.org/zh-hans/2290998/)
+- [日本专家反对全员接种新冠疫苗第4针](https://gnews.org/zh-hans/2290949/)
+- [俄乌战争：中俄外长分别会见阿富汗塔利班并承认其政权。](https://gnews.org/zh-hans/2270646/)
+- [NGO行动：从新中国联邦乌克兰国际救援看中共国人权缺失](https://gnews.org/zh-hans/2283816/)
+- [疫苗经济：辉瑞口服 Paxlovid 药首次高价进入中共国医保名录](https://gnews.org/zh-hans/2272625/)
+- [新闻述评：拜登在华沙说，“不要害怕”，独裁者不能](https://gnews.org/zh-hans/2247198/)[掌权](https://gnews.org/zh-hans/2247198/)
+
 
  
 

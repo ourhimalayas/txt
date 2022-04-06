@@ -2,29 +2,34 @@
 ---
 
 
-## 乌克兰布查杀戮事件，美欧准备出台新的制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298213/)
+## 7-Eleven将向特许经营者支付9800万美元的集体诉讼和解
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2298304/)
 
-#### 【雅典娜观察】和您一起洞察世界
+翻译/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649243353630.jpg)图片来源：Financial Review
+便利店巨头7-Eleven已同意向特许经营商支付近1亿美元的集体诉讼和解，这些特许经营商表示，他们在商店的盈利能力方面被误导了。
 
-整理/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-586.png)图片来源：Financial Times & 雅典娜设计组
-乌克兰利沃夫消息，美国及其盟国周三（4月6日）准备对莫斯科实施新的制裁，是因为在基辅北部发生的平民杀戮事件，总统泽连斯基将其描述为“战争罪”，要求给予相应的惩罚。
-本周，在乌军夺回的布查镇发现俄军近距离枪杀平民后，乌克兰官员说，在布查一座教堂的万人坑里可能有150至300具尸体。
-俄罗斯一贯地否认其在布查以平民为目标，并污蔑西方伪造证据。
-一家美国公司表示，几周前拍摄的卫星图像显示该镇一条街道上有平民尸体；路透社记者在布查看到至少四名受害者的头部中弹，其中一名双手被绑在背后。
-白宫表示，定于周三公布的新制裁部分是对布查杀戮的回应，制裁对象针对俄罗斯银行和官员，并禁止在俄罗斯进行新投资。
-欧盟27个成员国必须批准的欧盟拟议制裁措施，禁止购买俄罗斯煤炭并阻止俄罗斯船只进入欧盟港口。
-欧盟执行官乌尔苏拉·冯德莱恩表示，欧盟也在努力禁止石油进口。乌克兰表示，禁止俄罗斯天然气对于在和平谈判中达成结束战争的协议至关重要。
-在周二向联合国安理会发表热情洋溢的讲话后，泽连斯基表示，“对俄罗斯的新制裁必须与入侵战争罪行的严重性相匹配”。
-原文链接：[US, allies ready new Russia sanctions after Bucha killings – CNA (channelnewsasia.com)](https://www.channelnewsasia.com/world/us-allies-ready-new-russia-sanctions-after-bucha-killings-2610731)
+该索赔于2018年提出，指控该公司误导了他们提供给潜在特许经营商的文件和记录中劳动力成本的准确性，以及特许经营商必须支付的平均工资。
+
+在《悉尼先驱晨报》和《时代报》和《四角》的联合调查发现系统性工资盗窃和工资记录篡改后，该连锁店被迫向工人偿还超过1.73亿美元。前澳大利亚竞争和消费者委员会老板Allan Fels曾领导过7-Eleven设立的还款小组，他在2020年底告诉《悉尼先驱晨报》和《时代报》，1.73亿美元并没有反映所有未支付的工资。
+
+Fels教授说，当计划向工人付款达到1.65亿美元时，“他们决定这已经足够了，他们有效地关闭了该计划”。
+
+公平工作监察员还发起了多项调查，就薪酬问题起诉了11名7-Eleven特许经营商，累计对他们处以180万美元的罚款，相当于全国少付额的1%左右。
+
+经营集体诉讼的Levitt Robinson律师事务所的合伙人Stewart Levitt表示，特许经营商认为员工成本约占业务成本的7%，但实际上约为13%。特许经营商还声称，7-Eleven仅允许特许经营商以特定价格从特定供应商购买股票，违反了与某些集体诉讼成员的合同。周三，联邦法院法官David O’Callaghan签署了双方去年8月达成的9800万美元的和解协议，这笔钱将存放在信托中。7-Eleven在一份声明中表示，和解是在承认过失的情况下达成的，这笔款项包括所有法律费用。
+
+首席执行官Angus McKay表示，该公司很高兴此事达成了“可接受的解决方案”，并补充说，7-Eleven还投资了5000万美元用于防止工资盗窃的系统，并培训特许经营商“与他们在这方面的责任有关”。
+
+新闻来源：[https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis](https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis)
 
 发布：tianzhihuan
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1%20/t%20_blank%20/h)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena%20/t%20_blank%20/h)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ%20/t%20_blank%20/h)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu%20/t%20_blank%20/h)
 
  
 

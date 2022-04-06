@@ -2,25 +2,21 @@
 ---
 
 
-## 上海隔离集中营又出惨案 清华才女无人吸痰被憋死
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298220/)
+## 速报┃汽车撞进俄罗斯驻乌克兰邻国罗马尼亚的大使馆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298320/)
 
-撰稿：东京樱花团/秋明
+撰稿：东京樱花团/待命（文晓）
 
-近日一则关于清华才女硅谷海归李昶，在上海某康复医院无人护理而去世的信息在微信群传播。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-596.png)（图片源自本文链接）
 
-李昶夫妇硅谷成功后回国创业，因为意外无行动力，需要有人及时吸痰。丈夫把妻子放上海某高档护理中心。疫情后丈夫不上班护理妻子，护理中心发现了阳性病人，所有人要求离开。丈夫请求和妻子一起隔离不被允许，而后被警察抓走。护理中心许诺安排护理人员，实际上负责的护理人员并不会吸痰，最后，李昶在有意识的状态不，被活活憋死。
+4月6日FNN综合在线消息：据说一辆白色汽车冲进了俄罗斯驻毗邻乌克兰的罗马尼亚大使馆的大门，汽车起火，司机死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs1.gushiju.net%2Fcy_imgs%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593.jpg&amp;imgrefurl=https%3A%2F%2Fwww.gushiju.net%2Fchengyu%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593&amp;tbnid=RRN5ROkpHefJmM&amp;vet=12ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ..i&amp;docid=2R07WkcIo0oHBM&amp;w=500&amp;h=333&amp;q=%E6%83%A8%E6%97%A0%E4%BA%BA%E9%81%93&amp;hl=zh-CN&amp;ved=2ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ)
+当地警方正在进行调查，但目前还不知道冲撞是否是故意行为。俄罗斯大使馆周围现在已设置防线，据说是被警察封锁了。
 
-李昶可谓是站在事业制高点的成功人士，虽然遭遇不测但是有深爱他的丈夫，本来在家人的悉心照料下有望慢慢恢复，岂料在这场没有人性的隔离运动中，痛苦死去！怎么不让人唏嘘惋惜？
-
-在中共的魔爪之下，不管身处哪个层次都可能是他们的祭品，唯有铲除这个恶魔，才能还地球和平！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-3.jpg)
-消息来源：微信群
+信息来源： [【速報】ロシア大使館に車突っ込む　ウクライナの隣国ルーマニアで（フジテレビ系（FNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5239d11ffd86972a1d397f91f6e9423f3e6e0543)
 
 *校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
