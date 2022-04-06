@@ -2,31 +2,69 @@
 ---
 
 
-## 灭共，只剩半年时间
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2300482/)
+## 祈求
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2300512/)
 
-作者：香草山医疗组-击穿ccp——文华
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-640.png)
+作者：香草山信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/7-18.jpg)
+我祈求上天怜悯
+善良的人得以生存
+用智慧唤醒众生
+他为此要付出生命
+邪恶恐怖
+袭击了他一次又一次
+传播真相
+得到的却是无情惩罚
+我祈求上苍啊
+万佛万神
+请用你们无穷力量
+驱赶癌细胞
+离开他瘦弱身体
+它们在蚕食
+他的健康和意识
+战斗到最后
+是他坚定不变信仰
+为什么
+为什么
+必须付出生命
+正义才能来到
+不
+不要
+请赐予怜悯
+让善良的人得以生存
+给他一个
+公平机会看到
+正道主义
+他奋斗一生的目标
+正在归来路上
+春天已经来到
+花儿热情开放
+请让他健康
+在春天里得到滋养
+请让他信仰
+随着春风
+送到四方
+直到 所有人
+都得到真相
+美好的日子刚刚起航
+留下来
+我们一起欣赏
+万佛万神啊
+请你们
+一定
+一定
+留住他的健康
 
-七哥进山，好消息不断，很明显世界已经醒来。
-国内：中共内部决斗定生死结果就在二十大，成王败寇，谁能在二十大露头意味着另一方将走进秦城。
-国际：随着病毒真相浮出水面，加上俄乌战争，中共已经是秃子头上的虱子——明摆着要颠覆世界奴役各国政府。美国等还有一点底线的文明西方随时干掉北斗卫星为世界铲除共匪奠定基础。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-七哥说的三个国家对HCN的认可以及多个国家计划随时否定中共与新中国联邦建立关系，这一切都已经箭在弦上，就看什么时候扣动扳机。
-
-国内二十大大关，俄乌战争，攻打台湾等都是让中共垂涎三尺的鱼饵，一吃必死，天时地利人和一应俱备，时间应该不会超过今年。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
+编辑/校对/发稿：Fei797
 
 **更多资讯，更多关注**
-[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生**Gettr](https://gettr.com/user/miles)
-[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
 
-**编辑**/**校正**/**发稿：玫瑰圓**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-641.png)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,25 @@
 ---
 
 
-## 【G叻睇真D】《灭共的雪》和《铁锁梦》两首歌曲正式上线
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300346/)
+## 守卫美国驻华领事馆的海军陆战队呈粮品短缺
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300379/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【gracelchan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据盖特4月4日消息，文贵先生当天宣布，《灭共的雪》和《铁锁梦》这两首歌曲已正式在苹果iTunes和苹果音乐平台上线，并号召全球的灭共粉丝打榜支持。
+#### 选材/编译：Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16492636001.png)美国驻上海领事馆
+据路透社4月6日从上海报道，因上海的全面病毒封锁，美国驻上海领事馆内的海军陆战队员缺少食品供给。领事馆的工作人员帮助了他们。
 
-据悉，当初《灭共的雪》被推出不仅是为了打破中共利用冬奥会进行的无耻宣传，同时也表达了歌者灭共的坚定决心。而《铁锁梦》则是以震惊世界的被绑架女事件为背景，控诉了中共套在老百姓脖子上的枷锁，听之催人泪下。
+这个信息出自美国领事馆工作人员在微信中的帖子。 美上海领事馆的七名海军陆战队士兵，因为严格封锁而耗尽了食物。在CCP病毒激增的上海，不仅食品短缺，整个城市的运输阻断，使得本就贫乏的食品无法送达目的地。
 
-文贵先生此前的歌唱曾多次创造佳绩。单曲《马背英雄》上线仅仅数小时，就迅速登上iTunes 包括加拿大在内的多国排行榜冠军，并持续在榜多周。更是夺下了华人乐坛首个Billboard公告牌摇滚歌曲销售榜冠军。
+周二，一名美国领事馆员工，以个人名义在微信平台上呼吁工作人员为海军陆战队提供一些食物。他告诉住在上海的同事，“海军陆战队已经耗尽了食物，可能送来的货品也无法得到”。
 
-盖特链接：[https://gettr.com/post/p13ui52a17a](https://gettr.com/post/p13ui52a17a)
+这名领事馆雇员在微信上说，海军陆战队只剩下密封袋包装的食物，他说：“我知道我们都面临食品短缺。如果你能为缺少食物的人省下一两顿饭，他们会非常感激的”。在后来回复的一条信息中说，已经为海军陆战队提供了食物，他们“非常感激”。
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+美国驻上海领事馆在声明中说，“我们正在积极地与我们的公民合作，帮助他们度过在中国爆发疫情中所造成的混乱”。美国海军陆战队守卫着美国在世界各地的外交使团。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+*责编：白夜*
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+[https://www.reuters.com/world/china/us-consulate-staff-china-help-marines-running-low-rations-2022-04-06/](https://www.reuters.com/world/china/us-consulate-staff-china-help-marines-running-low-rations-2022-04-06/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

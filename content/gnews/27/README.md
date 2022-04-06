@@ -2,33 +2,36 @@
 ---
 
 
-## 【G时新闻】美国海军司令称密切关注中共与所罗门群岛的“秘密安排”
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300236/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是美国海军司令称密切关注中共与所罗门群岛的秘密安排！
+作者：香草山翻译部
 
-澳洲广播公司（ABC）4月5日报导，中共与所罗门群岛之间签署的安全合作协议包含着一系列令美国及其合作伙伴担忧的“秘密”安排。 对此，美国太平洋舰队司令帕帕罗（Samuel Paparo）表示支持澳洲方面发出的这一警告，在距离澳洲昆士兰海岸不到2,000公里的太平洋国家建立中共海军基地，将“改变澳洲国防军的计算方式”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
 
-帕帕罗指出，“这都是一个令人关切的问题，虽然前面仍有路可走，但无论何时，当一项秘密的安全安排被曝光时，这对我们在整个西太平洋地区的所有伙伴，特别是澳洲、新西兰来说，都是值得关注的事”。 帕帕罗还提到，“毫无疑问，中共正在观察在乌克兰发生的事情，并做笔记，从中学习。而且他们将根据学到的东西来提高能力”。暗示中共不希望自己未来对台湾发起入侵战时，犯下同俄罗斯一样的错误。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
 
-此外，帕帕罗认为印度洋——太平洋地区发生武装冲突的可能性愈来愈大，澳洲人需要对此持“现实主义”态度。 他强调，“由于事件的难以置信的不可预测性，我们这个地区在几年内就有可能发生冲突。2021年谁会料到东欧成为现在这个样子。事实上，这就是我们的使命，作为军人，我们必须永远做好准备”。
+文章仅代表作者本人观点，与Gnews无关
 
-盖特链接：[https://gettr.com/post/p13trvf3c16](https://gettr.com/post/p13trvf3c16)
+视频参看：
+[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
+[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

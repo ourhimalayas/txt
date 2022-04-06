@@ -2,22 +2,37 @@
 ---
 
 
-## 2022年4月6日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2300406/)
+## 推墙反共是活路
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2300422/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0894.jpg)
-发稿：信心的选择
+作者：香草山健身部 新世界的一员
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-253.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-27.jpg)
+
+乱世风云起
+日月失晨辉
+匪魔台上舞
+​荒缪层层叠
+苍生俱悲惨
+万物皆失色
+​怒问何时休
+​墙到众人推
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+编辑/校对/发稿：Fei797
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-3.jpeg)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+
+
 
  
 
