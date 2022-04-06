@@ -2,29 +2,24 @@
 ---
 
 
-## 中共病毒“无症状”病例激增，上海继续加强封锁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2295619/)
+## 加拿大将对白俄政府和个人实施新制裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2295728/)
 
-作者：纽约香草山教育部 Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-20.png)
-上海市政府4月5日在其官方微信频道上表示，上海在4 月 4 日经过一天的全市密集测试后，无症状中共病毒病例又创新高，达 13,086 例，远高于前一天的 8,581 例。
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-上海当局4月4日晚间宣布，将从5日开始对城市交通网络实施进一步限制，更多地铁线路将暂停。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-15.jpg)
-据中共统计数据显示， 4 月 4 日全国报告了 1,235 例确诊的冠状病毒病例其中包括 1,173 例本地病例。新的无症状病例为15,355例。
+编译： 加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-542.png)
+据加拿大[环球新闻]4月4日报道，在俄乌战争持续期间，加拿大正针对白俄罗斯政府支持和协助俄军入侵乌克兰实施新的制裁。
 
-郭文贵先生在大直播中明确指出，这次墙内上海、深圳、香港发生爆发的疫情，实际上就是疫苗灾难开始显现。中共这次大规模的封控运动就是在提前为疫苗灾难爆发做准备。
+加拿大政府当天表示，由于普京政权的合作伙伴参与并促成了俄乌战争，因此，即将对白俄罗斯政府和个人实施惩罚。并为乌克兰提供更多援助外，并让普京及其支持者们为他们的战争罪行负责。
 
-参考链接：[Whole of Shanghai enters COVID lockdown despite lower symptomatic cases](https://www.reuters.com/world/china/shanghai-lockdown-deepens-after-new-surge-asymptomatic-cases-2022-04-05/)
+为阻止侵略战争的野蛮升级，欧美已对俄罗斯及其盟国实施了多项严厉制裁。总统拜登当天也表示：将推动在布查地区和乌克兰其他城镇，针对俄军战争罪的全面调查，严惩并追究各主要战犯的责任。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+校对编辑：硫酸羟氯喹64
 
-总编：zhong
-编辑：呼吸的雾霾（文小呼吸）
-审核：飞虹
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![此图像的alt属性为空；文件名为Gnews-logo-1-87.png](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+发稿：青青
+
+原文链接： [https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/](https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/)
 
  
 

@@ -2,46 +2,32 @@
 ---
 
 
-## 俄罗斯最新苏-35战机被击落
-` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2296571/)
+## 香港殡仪馆：大量尸体堆积不堪重负
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2296659/)
 
-作者：纽约香草山教育部 Naughty(文行)
+**撰稿：日本东京方舟农场  子辰**
 
+近期，中共病毒疫情不仅在大陆肆虐，香港疫情更是日趋严重。由于死亡人数剧增，导致传统棺材出现短缺，香港的殡仪馆不堪重负。
 
+香港自今年第五波病毒袭击后，已经报告了超过一百万人感染和超过8,000人死亡的数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-6.jpg)（图片来自大纪元）
 
+援引路透社报导，37岁的殡仪馆主管Lok Chung说，“我从来没有见过这么多尸体堆在一起”。他一直在夜以继日地工作，3月份承办了大约40场葬礼，而一般情况下平均每月大约有15场葬礼。
 
+香港太平间人满为患，急诊室堆放尸体的景象震惊了许多人。办理相关死亡文件，也变成了漫长的等待。
 
+香港葬礼的殡葬用品，一直源于大陆深圳。但是目前深圳由于疫情的肆虐，自顾不暇。导致香港传统的纸质殡葬物品短缺，包括纸质的汽车和房屋，以及其它很多物品。
 
+另据香港一名殡仪馆主管Hades Chan说，殡仪馆工作人员的染疫也构成重大挑战，近四分之一的人无法工作。
 
-国外媒体4月3日的消息，乌克兰内政部副部长安东·格拉什琴科当天证实，俄罗斯一架苏-35战机在乌克兰哈尔科夫东南部的伊齐乌姆附近被乌克兰军队击落，一名飞行员被俘。
+香港城市食品和卫生官员艾琳·杨（Irene Young）说，香港每天需要的250至300具棺材。她说，她的部门现在几乎全天候运行六个火葬场，每天进行近300次火葬，是通常数字的两倍。公共太平间已扩大到可容纳4,600具尸体，而此前为1,350具。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-43.jpg)图源网络
+参考链接：
+[https://www.epochtimes.com/gb/22/4/6/n13698152.htm](https://www.epochtimes.com/gb/22/4/6/n13698152.htm)
 
-苏-35是俄罗斯苏霍伊设计局在苏-27战机的基础上研制的深度改进型单座双发、超机动性多用途战斗机，属第四代半战斗机。苏-35 是俄罗斯最昂贵的中队级别战斗机，在入侵乌克兰的战斗中，苏-35执行空对空作战任务和对乌克兰的防空压制。
-
-据报道，自战争爆发以来，已有19架俄罗斯飞机被乌克兰军队击落。
-
-新闻来源：[https://theaviationist.com/2022/04/03/first-russian-su-35s-flanker-e-confirmed-destroyed-in-ukraine/](https://theaviationist.com/2022/04/03/first-russian-su-35s-flanker-e-confirmed-destroyed-in-ukraine/)
-
-[https://www.dailymail.co.uk/news/article-10681647/Ukrainians-post-pictures-burning-Russian-fighter-jet-say-shot-down.html#v-3501776561017341369](https://www.dailymail.co.uk/news/article-10681647/Ukrainians-post-pictures-burning-Russian-fighter-jet-say-shot-down.html#v-3501776561017341369)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+总编：老孙
+校对发布：文曦
 
  
 

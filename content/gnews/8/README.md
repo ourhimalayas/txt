@@ -2,31 +2,49 @@
 ---
 
 
-## 樱花FM┃英国《泰晤士报》： 中共在俄入侵前对乌克兰发动了网络攻击
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2296527/)
+## 游戏公司Epic捐助乌克兰救援
+` GTV News Talk` [轉載自GNews](https://gnews.org/zh-hans/2296611/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-574.png)
-据【伦敦时事】英国《泰晤士报》4月2日报道，中共在俄罗斯入侵乌克兰前对该国发动了一次重大网络攻击。
-
-据称已经从情报机构获得了几份备忘录，如果是真的，这可能再次被证明中共提前知道俄罗斯要入侵乌克兰的事实。
-
-据该报称，来自中共国的网络攻击在2月20日北京冬奥会闭幕前开始，并在2月23日达到顶峰。第二天（24日）俄罗斯入侵了乌克兰。网络攻击影响了涉及安全的边境安全部门以及财政部、中央银行和核相关机构，包括核监管机构。这些组织同时也受到了俄罗斯的网络攻击，但中共国的攻击可以通过特定的工具和方法加以区分。英国和美国的情报机构也掌握这一信息。该报还介绍了一位专家的意见，他说，这些信息 “似乎证实了俄罗斯已将其入侵计划告知了中共国”。
-
-关于中国，《纽约时报》早在2月初的报道中称，中共国要求俄罗斯在北京奥运会闭幕前不要开始入侵，中共国否认了这一说法，称这是“彻头彻尾的谎言”。
-
-美国总统拜登和欧盟主席冯德莱恩也警告习近平不要支持俄罗斯的侵略行为。
-
-文字版原文：
+作者：纽约香草山教育部 Naughty(文行)
 
 
-| [樱花时政┃英国《泰晤士报》： 中共在俄入侵前对乌克兰发动了网络攻击](https://gnews.org/zh-hans/2278128/) |   |
-| --- | --- |
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/logo-5-768x103-1.jpg)
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
+
+
+
+美国电子游戏开发商Epic Games4月4日宣布将热门游戏“堡垒之夜”两周内所有游戏收入1.44 亿美元捐赠给乌克兰的人道救援工作。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-36.jpg)图源网络
+
+据报道，Epic Games 并没有将捐款全部捐赠给一个团体，而是针对一系列不同的乌克兰救援工作进行捐款。其中包括直接救济、联合国难民事务高级专员、联合国儿童基金会、世界粮食计划署。
+
+Epic在推特宣布捐款之后，微软Xbox负责人史宾塞（Phil Spencer）表示：“ 看到游戏界能在电玩之外带来影响，真是太棒了。”
+
+除了Epic Games，微软也承诺将捐出过去两周在微软商店购买的所有《堡垒之夜》的相关产品的净收益。
+
+另据报道，包括Riot Games、Humble Bundle在内的越来越多的公司也都加入到为乌克兰筹集慈善基金的活动中。
+
+新闻来源：[https://mobilesyrup.com/2022/04/04/epic-games-ukraine-fundraising-effort-raised-144-million-across-two-weeks/](https://mobilesyrup.com/2022/04/04/epic-games-ukraine-fundraising-effort-raised-144-million-across-two-weeks/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

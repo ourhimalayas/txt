@@ -2,34 +2,33 @@
 ---
 
 
-## 樱花FM┃前联合国检察官敦促对普京发出全球逮捕令
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2296563/)
+## 中日财经爆|美国制裁俄罗斯暗网市场和加密货币交易所
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296652/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-575.png)
-据美联社报道，近日，联合国前南斯拉夫和卢旺达战争罪法庭的前首席检察官呼吁对俄罗斯总统普京发出国际逮捕令。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美国制裁俄罗斯暗网市场和加密货币交易所.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fforkast.news%2Fwp-content%2Fuploads%2F2022%2F04%2Fhack-1260x718.png&amp;imgrefurl=https%3A%2F%2Fforkast.news%2Fheadlines%2Frussian-darknet-hydra-crypto-exchange-garantex-sanctioned%2F&amp;tbnid=v5Wt3cbwyLcdDM&amp;v)
 
-在为纪念她的新书出版而接受瑞士媒体采访时，负责监督联合国在卢旺达和前南斯拉夫开展调查的瑞士律师表示，俄罗斯在乌克兰正在犯下明显的战争罪行。
+美国财政部4月5日对俄罗斯著名的暗网市场网站Hydra和加密货币交易所Garantex实施制裁，该交易所主要在莫斯科和圣彼得堡运营。
 
-“普京是一名战犯，”卡拉德尔庞特在周六发表的一次采访中告诉瑞士报纸 Le Temps。
+财政部表示，新的制裁措施禁止美国人向Hydra或Garantex提供或接受“任何捐款或提供资金、货物或服务”。
 
-她说她对俄罗斯在乌克兰战争中使用万人坑感到特别震惊，这让人想起前南斯拉夫战争中最糟糕的情况。
+财政部还表示，这项制裁措施禁止美国与Hydra和Garantex进行交易，并寻求冻结他们在美国管辖范围内的任何资产，这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品，包括勒索软件活动所做努力的一部分。
 
-“我希望再也看不到万人坑，”她告诉 Blick 报。“这些死去的人有亲人，他们甚至不知道他们的下落。这是不可接受的。”
+根据区块链研究人士，2019年俄罗斯加密货币交易所直接收到的非法比特币中约有86%来自Hydra。美国财政部将Hydra称为世界上“最大和最出名的暗网市场”。
 
-她在乌克兰发现的其他战争罪行包括袭击平民、破坏民用建筑，甚至拆除整个村庄。
+消息来源:
+[**美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁**](https://cn.reuters.com/article/usa-russia-darknet-market-sanctions-0405-idCNKCS2LY03K?il=0)
 
-她说，在乌克兰进行调查将比在南斯拉夫更容易，因为该国本身已要求进行国际调查。现任国际刑事法院首席检察官卡里姆汗上个月访问了乌克兰。
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-如果国际刑事法院找到战争罪的证据，她说，“你必须沿着指挥链向上走，直到找到做出决定的人。” 德尔庞特补充说，应对双方可能犯下的战争罪进行调查，并指出有关乌克兰军队据称对一些俄罗斯战俘实施酷刑的报道。
-
-没有人应该逃脱法律的审判。人类的只有按照法律做事，才能够获得真正的自由。
-
-文字版原文：[樱花时政┃前联合国检察官敦促对普京发出全球逮捕令](https://gnews.org/zh-hans/2278161/)
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/%E4%BA%8C%E7%BB%B4%E7%A0%81-6.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
