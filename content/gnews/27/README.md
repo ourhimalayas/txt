@@ -2,27 +2,31 @@
 ---
 
 
-## 中共国公司的内部人士神奇避免股票巨额亏损
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2299349/)
+## 俄对乌犯下战争罪将面临全面制裁
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2299465/)
 
-**编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-06-215844.jpg)
-中共国公司的内部人士在出售自己股票方面似乎有不可思议的时机。至少，这是人们在阅读《华尔街日报》的一份新报告后不得不得出的合理结论，该报告显示，内部人士有在急剧下跌前的时期出售 “大量持有股票 “的倾向。
+##### 作者：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-4.jpg)
+加拿大媒体【CTV新闻】4月4日报道，世界政局与格式正在因普京发动的战争而改变，美国总统乔拜登周一表示普京现如今对乌克兰所为与一个月前相比要残忍更多，因此强烈呼吁对俄罗斯总统普京进行战争罪审判。
 
-对证券文件的学术分析显示，中共国公司内部人士 “在2016年至2021年中期的交易中，通过在价格大幅下跌前出售股票，避免了至少100亿美元的损失，”该报告说。
+报道称，白宫官员在看到乌克兰城镇的居民遭受了俄罗斯惨绝人寰的暴行后，针对于加强对俄罗斯的新制裁摆上日程。此外，欧盟委员会主席也在日前表示，将派遣欧盟调查人员前往乌克兰，以帮助当地检察长记录战争罪行。
 
-一个令人震惊的例子是，一个由阿里巴巴内部人士控制的实体在创始人马云批评中共国监管机构的前一天出售了1.5亿美元的阿里巴巴股票。在马云讲话的第二天，阿里巴巴下跌了8%。
+据悉，美国和其他40多个国家正在共同努力调查俄罗斯可能的侵权和虐待行为，与此同时，拜登驻联合国首席特使大使也于周一宣布，如果有更多证据表明俄罗斯对乌克兰犯下战争罪，那么美国将暂停俄罗斯在联合国最高人权机构的席位，但这需要联合国大会共同决定。
 
-此外，报告还研究了爱奇艺的股票销售情况，在2021年接下来的两个月里，爱奇艺的股票被卖出了1.25亿美元，然后股价被减半。它还研究了唯品会控股的高管们如何在公司创纪录的高点附近出售超过2.5亿美元的股票，然后在出售后的六个月内股票下跌70%。
+原文链接：[Putin should face war crimes trial, Biden says | CTV News](https://www.ctvnews.ca/world/putin-should-face-war-crimes-trial-for-bucha-killings-biden-1.5847415)
 
-如果这些是美国公司，这些交易就会被报告给美国证券交易委员会的公司备案网站Edgar，并立即被投资者和密切跟踪内幕交易的服务机构注意到。相反，记录这些交易的PDF文件被电邮到该机构的总部，并张贴在一个不起眼的SEC网站上。
+编辑/上传 – 大废墙
+素材/采编 – 青青
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-美国证券交易委员会总监罗伯特·杰克逊将于周二在国会面前就内幕交易法作证。他的证词包括”豁免外国公司高管遵守关于内幕交易透明度的规则是我们法律中的一种漏洞，我们必须弥补这种漏洞以保护美国人对我们市场公平性的信心”。
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-中共假骗偷的经济花招正在被揭穿，希望美国政府的动作加快，完完全全地把中共的钱袋子进行制裁，冻结账户，如同对待俄罗斯一样。没了钱的中共会在自相残杀的绞肉机里自我瓦解。
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-**新闻来源**：[https://www.wsj.com/articles/chinese-executives-sell-at-the-right-time-avoiding-billions-in-losses-11649164573](https://www.wsj.com/articles/chinese-executives-sell-at-the-right-time-avoiding-billions-in-losses-11649164573)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

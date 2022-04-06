@@ -2,31 +2,95 @@
 ---
 
 
-## 马斯克成为推特股东将对灭共事业重大利好
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2299813/)
+## 有声|对话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299987/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-22.png)
-据文贵先生4月4日盖特直播报道，SpaceX公司创始人伊隆·马斯克近日购买了推特9.2%的股份。这对于新中国联邦的灭共事业将是重大利好。
+粵語配音：香草山香港部 – 格格樹
 
-此举意味着推特公司将不再会与中共合作，一改往日随意审查用户言论，对不利中共的言论一律采取删帖，甚至关闭账号的做法。马斯克未来也将会对媒体平台进行重大技术升级，从而带动整个社交媒体的全面技术进步，对投资人来说也是重大利好。
+献给香港反送中献奉生命的人和他们的母亲
 
-文贵先生在直播中还透露，马斯克成为推特股东后，不但不会与盖特有丝毫竞争关系，反而会精诚合作，共同创造新社交媒体更美好的未来。
+孩子
+你在街上
+请注意安全
+妈妈我担心
+彻夜难眠
+粗暴的警察
+如瘟疫降临
+挥舞警棍
+无情凶猛
+孩子 孩子
+早点回家
+让妈妈心安
 
-[原文链接：https://gettr.com/streaming/p13j3d06e18vaccine/](https://gettr.com/streaming/p13j3d06e18vaccine/)
+妈妈
+别为我担心
+抗议的人们
+在街头汹涌
+我在人群里
+见证正义联盟
+我的未来
+不应该活在专制强权
+自由的灵魂
+不接受统治者独裁
+同伴们流着血受了伤
+我留下来帮忙
+恶警在不远处咆哮
+企图让我们服从
+不，妈妈
+自由的灵魂
+不接受统治独裁
+我留下来
+照顾受伤的同伴
 
-编辑/上传 – 大废墙
-素材/采编 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+孩子
+我的孩子
+请给我回音 电视里看到
+有人被枪弹击中
+你没有回音
+没有回音
+没有
+回音
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+一切又归于平静
+夜如此深 片片的风
+吹着我伤心
+心—碎的如此痛
+我的孩子
+你的灵
+是否在我附近
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+妈妈
+我就在你头顶
+你那么悲伤
+眼泪不停流淌
+我爱你
+妈妈
+来生
+我还要做你的孩子
+我们一起 重新体验人生
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+希望
+独裁被人们推翻
+你能活在自由世界
+我也能
+含笑九泉
+妈妈
+再见
+
+文字版原文：[对话](https://gnews.org/zh-hans/2292245/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

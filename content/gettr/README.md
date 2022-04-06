@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@mos_movie 4/6/2022 2:38 PM (UTC)`
+
+🌶️The Spiced有‘料’🌶️<br/><br/>乌克兰市长被俘 民众示威逼俄军撤退放人<br/>Ukrainian mayor captured, people protested to force Russian troops to retreat and release mayor<br/><br/>#俄罗斯 #乌克兰 #普京 #市长 #福米契夫 #被俘 #市民 #释放<br/><br/>#Russia #Ukraine #Putin #Mayor  #Mayor Fomichev #Release<br/><br/>📍乌克兰🇺🇦-俄罗斯🇷🇺
+![img](https://media.gettr.com/group50/getter/2022/04/06/14/c484106b-a063-cb3b-0f8e-351a4f141050/out.jpg)
+
+---
+
 `@miles 4/6/2022 3:12 PM (UTC)`
 
 04/06/2022 on the 3rd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 and Cambodia 🇰🇭 Top Song Charts<br/><br/>#1 🥇 on 17Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇 on New Zealand🇳🇿 and Hungary 🇭🇺 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Ireland, Hungary, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月6号, 郭文贵先生两首新歌上线第三天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿， 柬埔寨 🇰🇭 热门歌曲榜首🥇<br/>17 国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿， 匈牙利 🇭🇺 流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、爱尔兰、匈牙利、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2298563/
@@ -145,13 +154,6 @@
 `@miles 4/5/2022 11:22 PM (UTC)`
 
 04/05/2022 on the 2nd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on Australia 🇦🇺 Top Song Charts<br/>#1 🥇 on 19 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Portugal, Ireland, Hungary, Canada, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月5号, 郭文贵先生两首新歌上线第二天<br/>《灭共的雪》登榜iTunes<br/>澳大利亚🇦🇺热门歌曲榜首🥇<br/>19国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿热门歌曲榜首🥇<br/>新西兰🇳🇿流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、葡萄牙、爱尔兰、匈牙利、加拿大、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2293435/
-
----
-
-`@miles 4/5/2022 11:21 PM (UTC)`
-
-4/05/2022 Miles Guo’s GETTR: Fellow fighters in Shanxi and Shaanxi revealed that tomb robbing had become popular again in Communist China. Not only were the ancient tombs robbed, but the modern tombs were also dug. It is said that the antiques that were excavated from the tombs had been shipped abroad. The local rich people speculating in stocks and properties lost a great deal of money. So many families broke up and ended up miserable.<br/><br/>4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外；当地有钱人炒股炒房的赔得一塌糊涂，多少人家破人亡啊！<br/>
-![img](https://media.gettr.com/group35/getter/2022/04/05/23/d25a74a2-6d40-5532-122f-94239e031308/out.jpg)
 
 ---
 

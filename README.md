@@ -15,128 +15,128 @@
 
 ---
 
-### [2022年4月6日文贵大直播前线直播摘要](/content/gnews/1/README.md)
+### [4/3/2022 文贵直播: 中共和俄国在世界上人人喊打，为摆脱粮食危机等困境，中共必定孤注一掷攻打台湾；习太阳彻底否定和叫停韬光养晦、亲美远苏的政策揭示了中共党内政治斗争之激烈程度](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [신중국연방은 국제 사회와 협력하여 중국 공산당 통치를 뒤엎고 있다.](/content/gnews/2/README.md)
+ ` 祁明`
+
+### [韩国新总统请求美国在朝鲜半岛重新部署军事战略资产](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [普京应该因谋杀布查而面临战争罪审判](/content/gnews/4/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [被指发表涉疫不当言论 辽宁官媒主播遭停职](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|对话](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [樱花时政┃日本民间组织踊跃资助20名在日乌克兰难民](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [供应短缺以及成本增加将使萨省种植户面临巨大风险](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [2022年4月6日文贵大直播前线直播摘要](/content/gnews/9/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美联盟因布查大屠杀而对俄罗斯发起新一波制裁](/content/gnews/2/README.md)
- ` 银河歌舞厅`
-
-### [花旗银行暂停其SPAC业务](/content/gnews/3/README.md)
- ` 银河歌舞厅`
-
-### [有声|获葛莱美奖的台设计师称 台湾是和平美丽的国家](/content/gnews/4/README.md)
+### [有声|中共病毒“无症状”病例激增，上海继续加强封锁](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [樱花时政┃俄直升机驾驶员驾机投降乌克兰 获50万美元奖金](/content/gnews/5/README.md)
+### [美联盟因布查大屠杀而对俄罗斯发起新一波制裁](/content/gnews/11/README.md)
+ ` 银河歌舞厅`
+
+### [有声|获葛莱美奖的台设计师称 台湾是和平美丽的国家](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [樱花时政┃俄直升机驾驶员驾机投降乌克兰 获50万美元奖金](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [马斯克成为推特股东将对灭共事业重大利好](/content/gnews/6/README.md)
+### [马斯克成为推特股东将对灭共事业重大利好](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [04/06/22 香港快讯 多名选委赴中联办「领旨」 有传李家超今辞职](/content/gnews/7/README.md)
- ` 英喜-粵語組`
-
-### [俄乌战局最近消息汇总](/content/gnews/8/README.md)
+### [俄乌战局最近消息汇总](/content/gnews/15/README.md)
  ` NFSC News`
 
-### [在上海，大白被扔下了二十九楼](/content/gnews/9/README.md)
- ` 银河勇气之星`
-
-### [樱花时政┃中共死挺俄罗斯 中欧峰会如“聋人对话”](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国和盟国将禁止在俄罗斯投资，周三制裁俄罗斯银行](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花时政┃布查平民屠杀引公愤 罗马尼亚男子开车撞俄大使馆](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄军屠杀平民 各国反应强烈](/content/gnews/13/README.md)
+### [哪里有中共王毅哪里就将出现灾难](/content/gnews/16/README.md)
  ` GTV News Talk`
 
-### [爆料革命——历史的今天1月26日](/content/gnews/14/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [在上海，大白被扔下了二十九楼](/content/gnews/17/README.md)
+ ` 银河勇气之星`
 
-### [“上海封城”是中共开启“地狱治理模式”和走向死亡的里程碑!](/content/gnews/15/README.md)
+### [美国和盟国将禁止在俄罗斯投资，周三制裁俄罗斯银行](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花时政┃布查平民屠杀引公愤 罗马尼亚男子开车撞俄大使馆](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【 蓝枫法律 】第四十八期 &#8211; 金融税务专题及区块链简介 &#8211; 全文听写](/content/gnews/16/README.md)
+### [俄军屠杀平民 各国反应强烈](/content/gnews/20/README.md)
+ ` GTV News Talk`
+
+### [“上海封城”是中共开启“地狱治理模式”和走向死亡的里程碑!](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【 蓝枫法律 】第四十八期 &#8211; 金融税务专题及区块链简介 &#8211; 全文听写](/content/gnews/22/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [国际谴责中共强制幼童与父母分离的封控政策](/content/gnews/17/README.md)
+### [国际谴责中共强制幼童与父母分离的封控政策](/content/gnews/23/README.md)
  ` NFSC News`
 
-### [抵制强制疫苗政策 慕尼黑数千人冒雪抗议](/content/gnews/18/README.md)
+### [抵制强制疫苗政策 慕尼黑数千人冒雪抗议](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北约外长会议将中共国对人类安全和民主国家的系统威胁摆上正式议程](/content/gnews/19/README.md)
+### [北约外长会议将中共国对人类安全和民主国家的系统威胁摆上正式议程](/content/gnews/25/README.md)
  ` 温哥华扬帆农场`
 
-### [4/6/2022 国际财经快讯：美国对俄罗斯暗网市场和加密货币交易所实施制裁；美元走高，美股上涨，石油扩大跌幅](/content/gnews/20/README.md)
+### [4/6/2022 国际财经快讯：美国对俄罗斯暗网市场和加密货币交易所实施制裁；美元走高，美股上涨，石油扩大跌幅](/content/gnews/26/README.md)
  ` 秘密翻译组金融团队`
 
-### [20220401郭文贵大直播 ：风雨之中战友总结每个王朝灭亡之前发生的事情都发生在现在中共国(下）](/content/gnews/21/README.md)
- ` Tokyo Sakura Video Group`
-
-### [俄对乌犯下战争罪将面临全面制裁](/content/gnews/22/README.md)
+### [俄对乌犯下战争罪将面临全面制裁](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [有声|上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/23/README.md)
+### [有声|上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [20220401郭文贵大直播 ：风雨之中战友总结每个王朝灭亡之前发生的事情都发生在现在中共国(上）](/content/gnews/24/README.md)
- ` Tokyo Sakura Video Group`
-
-### [20220401郭文贵大直播 ：正义邪恶力量的对比 正义必胜](/content/gnews/25/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声|假借疫情，大批武装部队进驻上海维稳](/content/gnews/26/README.md)
+### [有声|假借疫情，大批武装部队进驻上海维稳](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [中共国公司的内部人士神奇避免股票巨额亏损](/content/gnews/27/README.md)
+### [中共国公司的内部人士神奇避免股票巨额亏损](/content/gnews/30/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [有声|立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/28/README.md)
+### [有声|立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [美国及世界疫情简报（04-06-2022）](/content/gnews/29/README.md)
+### [美国及世界疫情简报（04-06-2022）](/content/gnews/32/README.md)
  ` 波士顿五月花农场`
 
-### [美、英、澳 根据AUKUS条约继续扩大高超音速武器的合作](/content/gnews/30/README.md)
+### [美、英、澳 根据AUKUS条约继续扩大高超音速武器的合作](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [外媒报道：马里乌波尔母子逃难记（2）](/content/gnews/31/README.md)
+### [外媒报道：马里乌波尔母子逃难记（2）](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [澳洲金融监管机构的严苛新规对数字货币从业者打击巨大](/content/gnews/32/README.md)
+### [澳洲金融监管机构的严苛新规对数字货币从业者打击巨大](/content/gnews/35/README.md)
  ` 走进澳洲`
 
-### [香港葬礼服务中心不堪重负](/content/gnews/33/README.md)
+### [香港葬礼服务中心不堪重负](/content/gnews/36/README.md)
  ` 银河歌舞厅`
 
-### [美国务卿布林肯宣布最新对乌不超一亿美元军事援助](/content/gnews/34/README.md)
+### [美国务卿布林肯宣布最新对乌不超一亿美元军事援助](/content/gnews/37/README.md)
  ` 波士顿五月花农场金融部`
 
-### [4/06/2022 银河快讯：自民党对乌克兰平民被害表示难以置信，必须制裁，加强对俄罗斯的谴责；国防部正在考虑在北海道建立一个 &#8220;电子战 &#8220;部队](/content/gnews/35/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [波兰采购坦克应对俄罗斯军事侵略威胁](/content/gnews/36/README.md)
+### [波兰采购坦克应对俄罗斯军事侵略威胁](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [澳大利亚加速军购应对中共侵台计划](/content/gnews/37/README.md)
+### [澳大利亚加速军购应对中共侵台计划](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [加媒：为什么加拿大养老金计划应从中共国撤资](/content/gnews/38/README.md)
+### [加媒：为什么加拿大养老金计划应从中共国撤资](/content/gnews/40/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [媒体与未来世界](/content/gnews/39/README.md)
+### [媒体与未来世界](/content/gnews/41/README.md)
  ` MilesGuoLivePPT`
-
-### [乌克兰：印度强烈谴责杀害布查平民的行为](/content/gnews/40/README.md)
- ` 波士顿五月花农场金融部`
-
-### [2022/04/06 英喜时事速递](/content/gnews/41/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [新西兰财经G乐部2022年4月6日:财经新闻整理](/content/gnews/42/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

@@ -2,34 +2,47 @@
 ---
 
 
-## 香港葬礼服务中心不堪重负
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2299269/)
+## 美、英、澳 根据AUKUS条约继续扩大高超音速武器的合作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2299306/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-21.35.02.png)
-近日，因中共病毒和疫苗导致的死亡正在香港肆虐。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/ed1aef3d1405f9d2bbd2f617c813a0a9.jpg)美国、英国和澳大利亚将扩大在高超音速武器方面的合作，但不能保证AUKUS会专门开发这种技术。 (Supplied: SGT Murray Staff)
+澳大利亚广播公司4月6日报道，随着澳大利亚、美国和英国继续推进为澳大利亚皇家海军开发核动力潜艇的三边计划，三国承诺将根据AUKUS条约扩大高超音速武器的合作。
 
-目前香港的传统木制棺材极度短缺，每天需要的棺材大约为300个。一位37岁的殡仪馆馆长说，从未见过这么多的尸体堆积在一起，他几乎全天都在工作。整个3月份已经组织了大约40场葬礼，往常每月大约15场。停尸房人满为患，有的死者家人一直在等待死亡文件来认领死者的尸体。自3月1日去世的死者直到现在都没拿到死亡文件。
+美国总统拜登、英国首相约翰逊和澳大利亚总理莫里森连夜发表联合声明，更新国防技术条约的进展。时隔六个月的更新也部分是为了平息该地区对澳大利亚政府的核动力潜艇计划的焦虑，其他几个国家也提前获知了该联合声明。
 
-全天持续运行的火葬场多达6个，每天进行300次火化。公共停尸房已经扩建到原来的大概2倍多，可容纳4600具尸体。环保棺材制造商捐赠了棺材和防腐剂，这类物质可以帮忙保存尸体不腐烂长达五天。这样可以为尸满为患的殡葬服务多留出一些时间。
+在声明中，三位领导人谴责俄罗斯对乌克兰的入侵，并重申了他们“对一个尊重人权、法治和不受胁迫地和平解决争端的国际体系的坚定不移的承诺”。他们还阐述了在该伙伴关系下进行国防技术合作的下一步行动。
 
-reference：
+澳大利亚、英国和美国已经开始致力于深化一系列先进军事技术之间的合作，包括网络、人工智能、量子技术和海底机器人技术。这三个国家现在将把这种合作扩大到四个方面，包括高超音速导弹和反高超音速导弹，以及电子战能力和信息共享。
 
-[https://www.reuters.com/world/china/so-many-bodies-piled-up-hong-kong-funeral-services-overwhelmed-by-covid-2022-04-06/](https://www.reuters.com/world/china/so-many-bodies-piled-up-hong-kong-funeral-services-overwhelmed-by-covid-2022-04-06/)
+中共和俄罗斯都在测试先进的高超音速导弹方面取得了长足的进步，这种导弹能够以极高的速度击中远方的目标，从而无法轻易被防御系统拦截。这些导弹可以携带核武器。
 
-撰稿、发布：骄子
+大多分析家说，美国目前在这项技术上落后于中共和俄罗斯，尽管据报道五角大楼上个月进行了成功的测试。
+
+根据联邦政府宣布的几项国防计划，澳大利亚也正在试图开发自己的先进的导弹，包括高超音速导弹。
+
+政府已经表明，澳大利亚将在今年年底前选择美国或英国的潜艇设计，但已明确表示，在联邦选举前不会做出任何决定。政府还宣布希望在2040年前交付第一艘潜艇，但国防部长一再暗示，这个时间表很可能会提前。
+
+简评:
+
+AUKUS是由澳大利亚、英国和美国成立的军事安全合作伙伴关系。该联盟首要目标是由英、美两国协助澳大利亚建造一支核动力潜艇舰队，该联盟是构筑美国新印太战略联盟合作的一部分。澳大利亚希望加快核潜艇的建设，是在应对中共越来越多的威胁。俄罗斯入侵乌克兰，给了世界一个沉重的警告，独裁者不只是虚张声势，他们更会因为一时兴起就发动惨无人道的战争。中共独裁政权也在等待一个机会对台湾发动战争。中共不允许台湾的民主法治自由之风传入大陆，是因为民主和自由是独裁者最害怕的东西，普京如此，习近平同样如此。
+
+中共帮助俄罗斯绕过西方制裁，并且到目前为止并未受到任何实质性的惩罚，这助长了中共的嚣张的气焰和全球扩张的野心。美英澳的进一步合作，是在向中共展现一个西方坚定捍卫民主法治的态度，但需要更多更有效更实际的惩罚措施才能遏制中共的野心。民主国家一个弊病就是行动效率过于缓慢，以至于受到像中共、俄罗斯这样独裁国家沉重的打击并付出惨重的代价后，才能有所回击。但是，正如爆料革命发起人郭文贵先生所说，西方只要开始行动，那么他们灭共的脚步就不会停歇，中共灭亡的日子已为期不远。
+
+新闻链接: [Australia, the United States and the United Kingdom have vowed to expand cooperation on hypersonic weapons under the AUKUS](https://www.abc.net.au/news/2022-04-06/aukus-expand-cooperation-hypersonic-weapons-australia-defence/100965748)
+
+翻译/简评:親愛的瑪嘉烈 / PR: Harvey（叶知秋）
 
 * * *
 
-欢迎订阅我们的GNews账号：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

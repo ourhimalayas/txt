@@ -2,32 +2,29 @@
 ---
 
 
-## 美联盟因布查大屠杀而对俄罗斯发起新一波制裁
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2299873/)
+## 신중국연방은 국제 사회와 협력하여 중국 공산당 통치를 뒤엎고 있다.
+` 祁明` [轉載自GNews](https://gnews.org/zh-hans/2300068/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-22.58.26-1.png)
-当地时间4月6日周三，因俄罗斯对乌克兰布查平民大屠杀事件，乌克兰总统泽连斯基称这是战争罪，要求对俄惩罚。美国及其盟国对俄罗斯发起新的制裁。
+한국정도농장
 
-乌克兰官员表示布查教堂乱葬坑里可能有150-300具尸体。西方国家也发现有被近距离枪击而死亡的平民。布林肯表示这些战争暴行是俄罗斯蓄意的，白宫表示，最新一波制裁是对布查大屠杀的回应。制裁由美国、欧盟、G7集团国等27个联盟国家发起，包括对俄银行和官员以及家人的制裁，禁止在俄投资，以及禁止欧盟购买俄煤，禁止俄船只进入欧盟港口，努力禁止俄石油进口。新西兰表示会对俄进口商品征收35%的关税，美国芯片公司INTEL已经暂停俄公司运营。俄小城卡卢加的汽车制造业因外国制裁数千名汽车工人被解雇，食品价格不断上涨。
+번역자：Cupid
 
-reference：
+편집:QiMing
 
-[https://www.reuters.com/world/europe/us-allies-ready-new-russia-sanctions-after-bucha-killings-2022-04-06/](https://www.reuters.com/world/europe/us-allies-ready-new-russia-sanctions-after-bucha-killings-2022-04-06/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-2-16.jpg)
 
-撰稿、发布：骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2646-1.jpg)
 
-* * *
+4월 2일 Getter 영상에서 궈원구이(郭文贵)선생은 신중국연방이 국제 사회와 긴밀히 협력하고 있으며 국제 사회의 인정과 신뢰를 받고 있다고 말했다.최근 궈원구이선생님은 신중국연방을 대표하여 국제 비정부 기구(NGO)의 여러 화상 회의에 참석했습니다.
 
-欢迎订阅我们的GNews账号：
+신중국연방 전우들이 제공한 정보를 통해 여러 국가의 정부와 국제 NGO는 중국 공산당이 연루된 전쟁 음모와 바이러스 백신 음모, 그리고 중국 공산당이 본토에서 초래한 민생참상에 대해 알게 되었다.
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+국제사회는 중국 공산당이 세계에 끼치는 피해를 충분히 인지하고 있으며, 중공의 퇴치를 어떻게 할 것인가는 이미 현재 국제 기구의 관심 의제가 되었다.
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+동유럽 최전선에서 신중국연방 전우들이 참여한 국제인도적 구조작업은 중국 공산당의 속박에서 해방된 해외 중국인의 새로운 모습을 보여주었다.전우들이 보여준 박애와 헌봉정신은 국제사회에게 신중국연방과 중국공산당의 본질적인 차이를 보여 주었고 세계에서 중국인의 영향력을 재검토하게 했다.
+
+궈원구이 선생님은 중공국내의 전우들에게 중국 공산당의 광기가 커지면서 발생하는 온갖 종류의 인재에 주의하라고 덧붙였다전우들에게 외부의 평가에 신경 쓰지 말고 계속 행동할 것을 촉구했다. 그러면서 폭로혁명이 지난 7년 동안 쌓아온 국제적 신뢰는 중국 공산당을 무너뜨리려는 전우들의 무아의 염원과 끊임없는 행동에서 비롯된 것이며, 중국 공산당을 제거해야만 세계의 모든 분쟁과 인도적 재난의 근본 원인을 제거할 수 있다고 호소 했다.
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

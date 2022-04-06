@@ -2,35 +2,35 @@
 ---
 
 
-## 樱花时政┃布查平民屠杀引公愤 罗马尼亚男子开车撞俄大使馆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2299730/)
+## 有声|获葛莱美奖的台设计师称 台湾是和平美丽的国家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299836/)
 
-撰稿：东京樱花团/法治小哥
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-因近日俄罗斯在乌克兰布查镇屠杀平民事件，激起国际社会公愤，俄国驻罗马尼亚大使馆被一男子驾车冲撞，驾驶员当场死亡。
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月3日，来自台湾的两位设计师获得了美国葛莱美奖的最佳唱片包装设计奖。 领奖时他们表示，台湾是一个美丽、爱好和平的国家，并期待欢迎大家来台湾。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-26.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.aljazeera.com%2Fwp-content%2Fuploads%2F2022%2F04%2Fh_57599783.jpg%3Fw%3D770%26resize%3D770%252C513&amp;imgrefurl=https%3A%2F%2Fwww.aljazeera.com%2Fnews%2F2022%2F4%2F6%2Fman-dies-after-crashing-car-into-)
+该奖项有5组入围作品，其中2组出自台湾。当现场观众通过翻译得知获奖者来自台湾时，给予了热烈的掌声及欢呼。一个不被禁锢思想灵魂的自由之地，才孕育出了充满创造力的新一代设计人。这也是台湾获得的第一座葛莱美奖座。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-3.jpg)
 
-因近日俄罗斯在乌克兰布查镇屠杀平民事件，激起国际社会公愤，因此不少国家将俄外交人员驱逐出境，而各地民众也前往俄国大使馆抗议。
 
-据《路透社》报道，当地时间4月6日，在俄国驻罗马尼亚大使馆门口发生一起死亡车祸，有人开车冲撞大使馆铁门，驾驶员当场死亡。
+文字版原文：[获葛莱美奖的台设计师称 台湾是和平美丽的国家](https://gnews.org/zh-hans/2292826/)
 
-罗马尼亚首都布加勒斯特的警方表示，暂时无法判定是否蓄意冲撞，也没有公司司机的身份，因为最近几周，欧洲多个国家的俄国使馆都成为反对侵略者的示威目标。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-自俄罗斯入侵乌克兰以来，已有近63万4860名乌克兰人逃往罗马尼亚，其中大部分难民转往其他国家，还有大约8万人仍在罗马尼亚境内。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-此外，对于俄军在乌克兰布查镇屠杀平民一事，罗马尼亚在5日也宣布，将驱逐10名俄罗斯驻罗马尼亚的外交人员。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-信息来源：[俄軍屠殺爆抗議！羅馬尼亞男開車「撞俄大使館」　當場身亡](https://www.setn.com/News.aspx?NewsID=1096108)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
