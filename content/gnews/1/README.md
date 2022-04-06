@@ -2,11 +2,11 @@
 ---
 
 
-## 社交媒体的巨变（二）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297090/)
+## 营地工作逐步完善，我们做的比专业组织还要棒（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297163/)
 
 **PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11.40-11.502.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/09-50-10-00-02（一）.jpg)
 *发布：tianzhihuan*
 
 **更多资讯，请关注：**

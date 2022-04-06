@@ -2,27 +2,24 @@
 ---
 
 
-## 普京政权因战争罪面临欧美进一步围剿
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2295946/)
+## 欧盟将停止进口俄煤炭等能源产品
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2296052/)
 
 采编：加拿大温哥华扬帆农场 – 青青
 
 撰稿：加拿大温哥华扬帆农场 – 文莱
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-547.png)
+据加拿大【CTV新闻】4月5日报道，欧盟正计划禁止从俄罗斯进口煤炭，这将是欧盟首次针对该国利润丰厚的能源行业实施的具体制裁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-545.png)图片来源:ctv
+报道称，尽管欧盟已停止进口俄罗斯石油，而且煤炭输入禁令将使俄丧失近40亿欧元的收入，但由于欧盟各国对俄罗斯天然气的严重依赖，而导致无法对天然气进口的制裁达成一致。
 
-
-据加拿大【CTV新闻】4月4日报道，总统拜登当天表示，由于俄军在侵乌战争中愈来愈残忍和暴虐，国际社会必须对俄罗斯独裁者普京进行战争罪审判。
-
-报道称，美国政府在获悉俄军对乌克兰平民惨绝人寰的暴行后，加强对普京政权的新制裁已在实施之中。此外，欧盟对此表示，将派遣调查人员前往乌克兰战区，参与当地政府搜集俄军战争罪行的调查行动。
-
-据悉，欧美及其盟国正在共同调查俄军在乌克兰的各项反人类罪行。美驻联合国特使称，如有确凿证据表明普京对乌克兰犯下战争罪，那么美国将致力于取消俄罗斯在联合国最高人权机构的席位。
+据悉，以上禁令已打破对俄能源禁忌，不仅将造成全球煤炭价格上涨，而且还影响部分欧盟成员国的经济发展。同时，美，英和波兰将切断俄罗斯的石油供应，而立陶宛也将停止从俄进口天然气。
 
 校对编辑：硫酸羟氯喹64
 
 发稿：青青
 
-原文链接： [Putin should face war crimes trial, Biden says | CTV News](https://www.ctvnews.ca/world/putin-should-face-war-crimes-trial-for-bucha-killings-biden-1.5847415)
+新闻来源： [European Union proposes Russian coal ban in new sanctions | CTV News](https://www.ctvnews.ca/business/european-union-proposes-russian-coal-ban-in-new-sanctions-1.5848858)
 
  
 

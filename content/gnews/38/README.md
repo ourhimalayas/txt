@@ -2,18 +2,20 @@
 ---
 
 
-## 中共国正在寻求被制裁的俄罗斯低价天然气
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2295618/)
+## 中共病毒“无症状”病例激增，上海继续加强封锁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2295619/)
 
-银河系农场—骄子
+作者：纽约香草山教育部 Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-20.png)
-近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-14.jpg)
-交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
+上海市政府4月5日在其官方微信频道上表示，上海在4 月 4 日经过一天的全市密集测试后，无症状中共病毒病例又创新高，达 13,086 例，远高于前一天的 8,581 例。
 
-中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
+上海当局4月4日晚间宣布，将从5日开始对城市交通网络实施进一步限制，更多地铁线路将暂停。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-15.jpg)
+据中共统计数据显示， 4 月 4 日全国报告了 1,235 例确诊的冠状病毒病例其中包括 1,173 例本地病例。新的无症状病例为15,355例。
 
-参考链接：[China gas buyers seek cheap Russian fuel shunned by the world](https://www.japantimes.co.jp/news/2022/04/04/business/china-buyers-cheap-russian-fuel-shunned/)
+郭文贵先生在大直播中明确指出，这次墙内上海、深圳、香港发生爆发的疫情，实际上就是疫苗灾难开始显现。中共这次大规模的封控运动就是在提前为疫苗灾难爆发做准备。
+
+参考链接：[Whole of Shanghai enters COVID lockdown despite lower symptomatic cases](https://www.reuters.com/world/china/shanghai-lockdown-deepens-after-new-surge-asymptomatic-cases-2022-04-05/)
 
 ![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 

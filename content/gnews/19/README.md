@@ -2,22 +2,37 @@
 ---
 
 
-## 视频|拜登再吁“战争罪审判普京”
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2296822/)
+## 英特尔暂停在俄罗斯的业务运营
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2296846/)
 
-制作：香草山视频部
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄乌战争持续，郭文贵先生曾于直播中透漏俄乌有和解可能性，且战争可能以其他形式延续一段时间。4日，美国总统拜登再次直呼俄罗斯总统普京为“战犯”（war criminal），呼吁以战争罪审判普京，并表示将提供乌克兰更多武器，对俄国采取更多制裁行动。
+#### 翻译/编辑：小红帽
 
-欧盟执委会主席冯德莱恩推文表示，欧盟将派遣调查人员前往乌克兰，协助“记录战争罪行”。德国外交部长贝尔伯克则宣布，驱逐40驻德俄国外交官。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Intel_Xeon_Roadmap_Ice_Lake_Sapphire_Rapids_Granite_Rapids_5_2060x1159-1.png)
 
-联合国人权理事会于3月4日做成决议，成立国际调查委员会，目前美国和其他40多个国家正在合作调查俄军的可能侵犯、虐待行为。
 
-发稿：Daxia
+美国芯片制造商英特尔周二（4月5日）表示，公司将暂停在俄罗斯的所有业务运营并立即生效。英特尔已实施业务连续性措施，以尽量减少对其全球业务的干扰。
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+英特尔就乌克兰战争发表了以下声明：
+
+“英特尔继续与国际社会一起谴责俄罗斯对乌克兰的战争，并呼吁迅速恢复和平。从即日起，我们暂停在俄罗斯的所有业务运营。此前，我们决定暂停向俄罗斯和白俄罗斯的客户发货。”
+
+“我们与所有受这场战争影响的人同在，特别是乌克兰和周边国家的人民，以及全世界所有在该地区有家人、朋友和亲人的人。”
+
+“我们正在努力支持我们所有的员工度过这一困难时期，包括我们在俄罗斯的1,200名员工。我们还实施了业务连续性措施，以尽量减少对我们全球业务的干扰。”
+
+新闻来源：
+1、[Intel suspends business operations in Russia](https://www.channelnewsasia.com/business/intel-suspends-business-operations-russia-2610701)
+2、[Intel Suspends Operations in Russia](https://www.intel.com/content/www/us/en/newsroom/news/russia-business-statement.html)
+
+发布：wenly
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
