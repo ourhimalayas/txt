@@ -2,40 +2,24 @@
 ---
 
 
-## 有声|乌克兰宣布收复基辅周边，俄军重点转向东部
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2297697/)
+## 美国将宣布新的一揽子制裁措施 可能涉及普京的女儿
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2297817/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
-【路透社**4**月**2**日】乌克兰周六表示，乌克兰部队已经夺回了基辅周围的所有地区，自俄罗斯发动入侵以来首次声称完全控制了首都地区。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image003.png)**2022**年**2**月**28**日，白俄罗斯，俄罗斯和乌克兰官员谈判桌上的两国国旗。
-在被收复的布查（**Bucha**）市，一条道路两旁散落着十几具尸体。一座教堂内的集体墓地仍然敞开着，手脚从堆在上面的红色土壤中探出。**
+**撰稿：日本东京方舟农场 北极**
 
-**英国外交大臣特拉斯表示，她对布查市发生的暴行感到震惊，她表示支持国际刑事法院对乌克兰发生的潜在战争罪行进行调查。**
+据焦点报4月5日报道，一位美国政府官员透露，美国将于4月6日星期三宣布对俄罗斯实施新的一揽子制裁措施，可能涉及普京的女儿。新措施是针对俄罗斯军队在基辅布查地区犯下的战争罪行。
 
-**乌克兰武装部队报告称，从基辅附近撤退的俄罗斯军队正在布雷。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-4.jpeg)美国正准备对俄罗斯实施新的制裁。（图片来自焦点报）
 
-**乌克兰紧急情况部门说，在对基辅以西的村落（**Dmytrivka****）**进行搜查时，一天之内发现了**1,500**多枚爆炸物。**
+该官员透露，新措施旨在削弱俄罗斯国家权力的工具，并对俄罗斯造成严重和直接的经济损失。美国，欧盟和G7国家将加大对俄罗斯联邦金融机构和国有企业的制裁，这些制裁措施还将涉及一些俄罗斯官员和家庭成员。该官员补充道。
 
-**乌克兰及其盟友说，俄罗斯在基辅附近遭受重大损失后，被迫将重点转向乌克兰东部。
+星期二，欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）也宣布，欧盟对俄罗斯联邦实施第五轮一揽子制裁措施。
 
-[【援引连结】](https://cn.reuters.com/article/wrapup-ukraine-russia-situation-0402-sat-idCNKCS2LW01O)
+参考链接：
+[https://reurl.cc/Qjz67O](https://reurl.cc/Qjz67O)
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-
+总编： 老孙
+校对发布：文曦
 
  
 

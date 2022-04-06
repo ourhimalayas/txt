@@ -2,36 +2,42 @@
 ---
 
 
-## 面对俄罗斯与中共国威胁，美军高层怯战思维展现无余
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2297878/)
+## 只有灭共的新中国联邦人和G系列投资者才能免于被制裁
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297997/)
 
-#### 撰稿：彩虹
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8837.38%EF%BC%89%E5%8F%AA%E6%9C%89%E7%81%AD%E5%85%B1%E7%9A%84%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%BA%BA%E5%92%8CG%E7%B3%BB%E5%88%97%E6%8A%95%E8%B5%84%E8%80%85%E6%89%8D%E8%83%BD%E5%85%8D%E4%BA%8E%E8%A2%AB%E5%88%B6%E8%A3%81%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-2-6.jpg)图片来源：国防杂志
-根据《纽约邮报》4月5日的报道，美国军方认为除非美军介入，否则乌克兰战争可能会持续多年；而面对中共国的威胁，避免冲突思维占据了美军方高层。
+**郭文贵先生：**所以告诉大家不是因为你是中国人，今天我文艺、我双胞胎我就在日本我不受你制裁，你一样被受制裁。唯一让你不受制裁的就一招，你别以为你是混血，你们像这样是灭共的新中国联邦人，唯一一个财富能得到安全的，我是新中国联邦的G系列投资者，我是灭共的，第二我是灭共的新中国联邦人，你不会受制裁。我给你百分之百保证，今天的重点在哪明白了吗？明白了吗？
 
-周二，美国参谋长联席会议主席马克·米利（Mark Milley）将军连同国防部长劳埃德·奥斯汀（Lloyd Austin）在众议院军事委员会一起作证时说，除非有美军的介入存在，否则俄罗斯对乌克兰的入侵很可能无法停止，并警告说，欧洲的冲突可能会拖延至未来几年内。
+不会因为你是中日混血不制裁你，你有游艇、你有飞机保证给你封了，是因为你是新中国联邦人，你飞机、游艇你可以拥有，Mamoru桑你明白我意思了吗？你那挂的大金哨子是吧？那么有钱，你像金三胖，像金五胖也不行，是不是？你飞机、游艇也得给你封了，是吧，但是你是新中国联邦人，就看着你了，你就是金大胖，那就行了，明白了文艺？这今天的重点是，在西方对共产党在制裁的时候，唯一让你资本安全的，G系列、喜币、喜联储、G-TV，唯一让你安全的就是作为灭共的新中国联邦人。
 
-米利将军说，征服乌克兰一直是俄罗斯总统普京的一个“长期目标”。“这一直是他（普京）的一个长期目标，可以追溯到多年前。我认为阻止普京（继续）入侵乌克兰的想法，也就是通过美国来阻止他，将需要使用美国的军事力量，并有可能与俄罗斯发生武装冲突，而我不建议这样做。”
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-报道指出，米利的该说法与拜登政府关于在2月24日入侵前对俄罗斯进行制裁的希望效果的言论相矛盾。
+编辑整理：Jacques；
 
-因为，早在2月22日，白宫新闻秘书珍·普萨基（Jen Psaki）就告诉记者：“制裁本身不是目的，而是有一个更高的目标。而这一目标是为了威慑和预防，预防和阻止对乌克兰的大规模入侵，这种入侵可能涉及夺取主要城市，包括基辅”。
+字幕档制作：知津；
 
-当众议员比尔·基廷（Bill Keating）问及他认为战争可能持续多久时，米利回答“很难说。现在下结论还有点早，尽管（俄乌）战争已进行了一个多月，但在乌克兰还有很多地面战争。但我确实认为这是一场非常持久的冲突，我认为它至少是以年来衡量的。不敢说会持续十年，但肯定是至少几年”。
+视频制作及上传：Cindy；
 
-针对美国面临的威胁，米利说，俄罗斯的入侵“创造了一个危险的历史转折点”。随着俄罗斯对乌克兰的攻击，美国正在“面对两个全球大国：中共国和俄罗斯。它们每个国家都（拥有）重要的军事能力，他们都打算从根本上改变基于规则的当前全球秩序”。
+G-News发布：海贼王M.D.LUFFY；
 
-对此，奥斯汀持赞同意见，认为中共国俄罗斯依次是“美国安全最大挑战”。 奥斯汀指出，“中共国以威胁性和日益咄咄逼人的行为来重新塑造印太地区和国际体系，以适应其利益和喜好。”
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-国防部长认为，北京已经对人民解放军的所有方面进行了现代化改造，包括其核能力，目的是为了对抗美国的军事优势。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-但是，即使两位军方最高层人士针对中共国的威胁性有如此清醒的认识，但却表达了畏缩的意见。米利说：“中共国显然是一个战略竞争者，它继续提高其技术和武装部队的现代化程度，当务之急是，我们与中共国的关系要保持竞争关系，不要让它变成冲突。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**新闻来源**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[Milley: Ukraine war likely to last for years, only US troops could have stopped invasion](https://nypost.com/2022/04/05/russian-invasion-of-ukraine-likely-could-not-be-stopped-us-general-says/)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
