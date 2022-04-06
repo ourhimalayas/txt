@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 8:07 PM (UTC)`
+
+When a volunteer from Tennessee, US heard that the New Federal State of China is helping 1.4 billion people in mainland China to get rid of the Communist cult, he offered to pray for the Chinese people.  In his prayer, he hoped God would help China to get rid of the evil Communist Party, and that those Chinese people who are suffering from the poison of the Communist Party would recognize the evil and break free from its control and gain true freedom.<br/>这是一位来自来美国田纳西义工，当他听说新中国联邦正在帮助中国大陆14亿人摆脱共产党邪教的统治，他提出要为中国人做祈祷， 他在祈祷中说，希望神帮助中国摆脱邪恶的共产党， 希望那些深受共产党毒害的中国人能认清邪恶，挣脱邪恶的控制，获得真正的自由。
+![img](https://media.gettr.com/group29/origin/2022/04/06/20/241ac84d-650a-6784-aad6-2143164387c9/out.jpg)
+
+---
+
 `@miles 4/6/2022 7:31 PM (UTC)`
 
 A botanist who works for the US government, took time off and paid himself to participate in the Ukrainian rescue mission at the Medyka border, joining a group of Canadian volunteers to hand out food for refugees. After he learned that we are volunteers on behalf of the Rule of Law Foundation, he is glad for what we are doing. The volunteers strongly agree that the Chinese Communist Party (CCP) doesn’t represent the Chinese people, just like Putin doesn’t represent the Russian people.<br/><br/>来自美国俄勒冈州的美国政府雇员用自己的假期、自掏腰包参加乌克兰人道救援活动，在梅迪卡边境他和一群加拿大来的义工给难民发食品。 他知道我们是法治基金赞助的义工，表示非常赞同法治基金的理念， 他们还表示，他们知道中共不代表中国人，就像普京不代表俄罗斯人一样。
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 2022.04.05  新中国联邦 | 喜财经   卢布的过山车表演；美元会失去全球各国储备货币的资格吗？
 ![img](https://media.gettr.com/group13/origin/2022/04/06/01/c1a3bb20-89c6-7211-b725-110132269415/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/6/2022 1:00 AM (UTC)`
-
-2022.04.05 晚  新中国联邦 | 新闻访谈   俄罗斯乌克兰战况最新进展；疫苗灾害要大于全球粮食危机；香港用体育馆改成方舱医院
-![img](https://media.gettr.com/group30/origin/2022/03/30/01/6139f631-3b76-fc45-f1d6-66a77eae8d7f/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
