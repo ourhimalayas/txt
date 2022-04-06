@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 11:03 PM (UTC)`
+
+2022.04.06 NFSC News  The NFSC cooperates with the international community on eliminating the CCP
+![img](https://media.gettr.com/group34/origin/2022/02/08/23/4612eac5-fc0c-70d9-9fb3-a2845a5ff525/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/6/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-06<br/>For English：gettr.com/post/p13xgtj79b1
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 4/3/2022 Miles Guo: In addition to having the fundamental knowledge and logics to understand the world, the most important thing is for us to have comprehensive cognitive ability. President Trump’s collaboration with Bruno Wu in launching Truth Social will become a major event that will shift the American political landscape. I am preparing the grand plan for the Whistleblowers’ Movement after this year’s midterm elections, with the intention of preventing the collapse of the CCP from harming the innocent Chinese people.<br/><br/>4/3/2022 文贵直播: 我们除了要有认识世界的基础知识和逻辑能力，最重要的是要具备综合认知能力；川普和吴征合作搞Truth Social会成为改变美国政治格局的大事件；文贵在准备今年美国中期大选以后的爆料革命的大计划，意在避免中共倒台连累更多无辜的中国人<br/>
 ![img](https://media.gettr.com/group43/getter/2022/04/06/06/aab1193a-21c9-3e47-f10b-ce21ce518af2/out.jpg)
-
----
-
-`@miles 4/6/2022 6:28 AM (UTC)`
-
-4/3/2022 Miles Guo: The CCP and Russia are targeted by the entire world. To get rid of food shortages and other difficulties, the CCP is bound to invade Taiwan. Xi's complete rejection and cessation of the policies of “keeping a low profile” and “pro-USA and away from Russia” reveal how intense the CCP’s political infighting is. I am calling for the world to stop the CCP from invading Taiwan. Once the CCP wages a war against Taiwan, the world must take action upon the CCP making its moves, not just condemn it.<br/><br/>4/3/2022 文贵直播: 中共和俄国在世界上人人喊打，为摆脱粮食危机等困境，中共必定孤注一掷攻打台湾；习太阳彻底否定和叫停韬光养晦、亲美远苏的政策揭示了中共党内政治斗争之激烈程度；文贵呼吁全世界制止中共犯台，一旦开战不能做口炮党，必须比中共出手还要快！<br/>
-![img](https://media.gettr.com/group29/getter/2022/04/06/06/8b93f855-8f8e-92d2-23b9-91a49bd413e3/out.jpg)
 
 ---
 

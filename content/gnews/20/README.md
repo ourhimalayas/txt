@@ -2,27 +2,95 @@
 ---
 
 
-## 美国政府宣布对俄罗斯实施新的制裁
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2300684/)
+## 有声|对话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300712/)
 
-**这些惩罚性措施主要针对俄罗斯的两家大银行以及普京和拉夫罗夫的成年子女。**
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+献给香港反送中献奉生命的人和他们的母亲
 
-作者：dpa/mh/原文发布于2022年4月6日19:22 (CET)
-翻译：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-5.jpg)图片：美国总统乔·拜登。PAP/Marcin Obara
-鉴于乌克兰的战争和基辅郊区布查的暴行，美国对俄罗斯实施新的制裁。华盛顿白宫周三宣布，这些惩罚性措施主要针对两家俄罗斯大银行以及俄罗斯总统普京和外交部长谢尔盖·拉夫罗夫的成年子女。一位美国政府高级官员说：“在布查令人发指的暴行突显了普京政权的卑劣本质。”
+孩子
+你在街上
+请注意安全
+妈妈我担心
+彻夜难眠
+粗暴的警察
+如瘟疫降临
+挥舞警棍
+无情凶猛
+孩子 孩子
+早点回家
+让妈妈心安
 
-制裁针对的是俄罗斯大储蓄银行和由几个寡头创办的阿尔法银行。据白宫称，储蓄银行持有整个俄罗斯银行业近三分之一的资产，对俄罗斯经济具有系统重要性。阿尔法银行是俄罗斯最大的私营金融机构。美国政府还禁止美国人在俄罗斯进行新的投资，无论他们身处何地。这是为了进一步将俄罗斯孤立于世界经济之外。
+妈妈
+别为我担心
+抗议的人们
+在街头汹涌
+我在人群里
+见证正义联盟
+我的未来
+不应该活在专制强权
+自由的灵魂
+不接受统治者独裁
+同伴们流着血受了伤
+我留下来帮忙
+恶警在不远处咆哮
+企图让我们服从
+不，妈妈
+自由的灵魂
+不接受统治独裁
+我留下来
+照顾受伤的同伴
 
-对俄罗斯精英及其亲属也采取了惩罚性措施。这些人包括普京总统的成年子女，外交部长拉夫罗夫的妻子和女儿，俄罗斯前领导人梅德韦杰夫和总理米修斯丁。白宫说：“这项措施切断他们与美国金融系统的联系，冻结他们在美国的资产。”
+孩子
+我的孩子
+请给我回音 电视里看到
+有人被枪弹击中
+你没有回音
+没有回音
+没有
+回音
 
-重要的俄罗斯国有企业也受到惩罚性措施的影响。这些将禁止所有美国公民与这些公司进行交易。这些公司在美国的资产将被冻结。这将影响克里姆林宫利用这些公司来资助乌克兰战争的能力。美国财政部还禁止俄罗斯用受美国管辖的资金来结算债务。
+一切又归于平静
+夜如此深 片片的风
+吹着我伤心
+心—碎的如此痛
+我的孩子
+你的灵
+是否在我附近
 
-由于俄罗斯在乌克兰的侵略战争，美国、欧盟、英国和其他盟友已经对莫斯科实施了许多制裁。迄今为止，这些措施的目标包括俄罗斯的金融系统、技术部门以及被视为普京心腹的政治家和寡头。
+妈妈
+我就在你头顶
+你那么悲伤
+眼泪不停流淌
+我爱你
+妈妈
+来生
+我还要做你的孩子
+我们一起 重新体验人生
 
-原文链接：[https://www.berliner-zeitung.de/news/us-regierung-kuendigt-neue-sanktionen-gegen-russland-an-li.221069](https://www.berliner-zeitung.de/news/us-regierung-kuendigt-neue-sanktionen-gegen-russland-an-li.221069)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+希望
+独裁被人们推翻
+你能活在自由世界
+我也能
+含笑九泉
+妈妈
+再见
+
+文字版原文：[对话](https://gnews.org/zh-hans/2294500/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
