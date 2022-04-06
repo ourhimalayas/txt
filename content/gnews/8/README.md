@@ -2,36 +2,31 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
+## 【G叻睇真D】《灭共的雪》和《铁锁梦》两首歌曲正式上线
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300346/)
 
-作者：香草山翻译部
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【gracelchan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据盖特4月4日消息，文贵先生当天宣布，《灭共的雪》和《铁锁梦》这两首歌曲已正式在苹果iTunes和苹果音乐平台上线，并号召全球的灭共粉丝打榜支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
+据悉，当初《灭共的雪》被推出不仅是为了打破中共利用冬奥会进行的无耻宣传，同时也表达了歌者灭共的坚定决心。而《铁锁梦》则是以震惊世界的被绑架女事件为背景，控诉了中共套在老百姓脖子上的枷锁，听之催人泪下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
+文贵先生此前的歌唱曾多次创造佳绩。单曲《马背英雄》上线仅仅数小时，就迅速登上iTunes 包括加拿大在内的多国排行榜冠军，并持续在榜多周。更是夺下了华人乐坛首个Billboard公告牌摇滚歌曲销售榜冠军。
 
-文章仅代表作者本人观点，与Gnews无关
+盖特链接：[https://gettr.com/post/p13ui52a17a](https://gettr.com/post/p13ui52a17a)
 
-视频参看：
-[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
-[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

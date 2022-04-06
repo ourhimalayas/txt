@@ -2,35 +2,32 @@
 ---
 
 
-## 有声|欧盟在欧中锋会中表达多项立场及关切台海情势
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300146/)
+## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
+4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
 
-欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
+该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
 
-此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
+该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
 
-欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
+该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
 
-欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
+信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
 
-文字版原文：[欧盟在欧中锋会中表达多项立场及关切台海情势](https://gnews.org/zh-hans/2289551/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,35 +2,39 @@
 ---
 
 
-## 封城无用 上海疫情再创新高
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2300200/)
+## 有声|英美呼吁暂停俄罗斯人权理事国地位
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300246/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会暂停俄国在人权理事会的席位。他于记者会上明确表示，俄罗斯参与人权理事会是一场闹剧，且俄罗斯不应在人权理事会占据权威地位。她将于周三返回纽约后立刻将此事提交安全理事会。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-13.jpg)
+美国国务院发言人内德·普莱斯当天证实了这一消息，宣布美国将在联合国大会上寻求投票，要求将俄罗斯从人权理事会中驱逐出去。
 
-#### 整理/编辑：BENJ1
+据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经造成了人权和生命的巨大损失。目前，联合国大会需要193个成员国三分之二的支持才能将俄罗斯剔除出该组织。自2月24日俄入侵乌克兰以来，已经有140票通过了两项谴责俄罗斯的决议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-14.png)
+在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事会的成员，应该被剔除。
 
 
-中共政治局委员、中共国务院副总理孙春兰日前强调,要用最短时间实现社会面清零目标, 但各地疫情仍然严峻，4月5日官方公布新增20,400多起新冠本土感染个案，重灾区上海的疫情继续扩大，本地病例连续两天单日破万并且再创新高。
 
-完成全市快速检测及核酸筛查的上海，感染数字屡创新高。上海市卫健委公布，当地4月5日新增311宗新冠本土确诊，本土无症状感染个案则有16,766宗，大部分无症状感染个案是在隔离管控中发现的。这是上海连续第二天单日感染个案突破一万起。
+文字版原文：[英美呼吁暂停俄罗斯人权理事国地位](https://gnews.org/zh-hans/2295617/)
 
-上海市疫情防控小组决定，6日起全市再进行新一轮核酸或抗原检测，目的是把上一次筛查发现的阳性个案收治之后，再做一次筛查；同时，外卖车手等一线工作人员同日起，要每天进行一次核酸检测及一次抗原检测，得出阴性结果才能上班。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-上海临港方舱医院5日正式开舱，提供接近14,000张床位，当中一半已经开放。上海的国家会展中心也将改建成方舱医院，可提供超过4万个床位。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-上海从3月28日起展开分区封控。4月4日，当局向全市近2,500万名市民进行新一轮核酸检测。连日来，上海全市实施封控管理，除因病就医等外，严格落实“足不出户”。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考链接：[重灾区上海疫情再创新高 清零渺茫但却不肯掉头](https://www.voachinese.com/a/china-risks-everything-with-impossible-covid-zero-goal-20220406/6517348.html)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-发布：*wenly*
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
