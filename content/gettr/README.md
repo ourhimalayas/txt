@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 12:33 AM (UTC)`
+
+2022.04.05 晚 新中国联邦 | 新闻      拜登再吁“战争罪审判普京”；英美呼吁暂停俄罗斯人权理事国地位
+![img](https://media.gettr.com/group9/origin/2022/04/06/00/98694b3e-40c1-dddc-8f20-6f64c4d8b790/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/5/2022 11:42 PM (UTC)`
 
 2022.04.05《The Fringe》 Episode 162
@@ -146,13 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 2022.04.05 早 新中国联邦 | 新闻   俄乌战争消息更新; 新中国联邦正与国际社会合作灭共
 ![img](https://media.gettr.com/group24/origin/2022/04/05/12/ce7f5f95-5795-552c-4cd8-4b850983fcc8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 10:52 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group11/origin/2022/04/05/10/4b267241-beb9-4b2e-94ff-1077a0877973/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
