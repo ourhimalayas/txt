@@ -2,21 +2,30 @@
 ---
 
 
-## 毒品犯罪网络用中共国的化学品大规模制造芬太尼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300798/)
+## 美英澳宣布联合开发超高音速武器，旨在对抗中俄
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2300815/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-655.png)图片来源：NBC新闻
-据《布雷特巴特新闻网》（Breitbart News）4月6日报道，美国缉毒局局长安妮·米尔格拉姆 (Anne Milgram)本周二（4月5日）在接受美国广播公司（ABC）的《夜线》（Nightline）节目采访时表示，中共国向正在大规模生产假处方药的墨西哥和毒品犯罪网络提供化学品制造芬太尼。然后这些假药被当作处方药出售，但实际上掺有芬太尼。
+**编译：文舞两道**
 
-米尔格拉姆说：“我们确实看到在美国，不仅有大量的年轻人、还有老年人正在购买这些假处方药。这些假药被当作阿普唑仑 (Xanax)、羟考酮（Oxy）和扑热息痛（Percocet）出售，但它们根本就不包含这些药物成分，它们实际上是芬太尼。现在，吸毒过量已成了18至45岁男性死亡的主要原因，死于吸毒过量的人数比车祸和枪支暴力还要多。因此，我们必须真正广泛地认识到，芬太尼不仅仅是危害到了青少年，而是全年龄段的美国人，他们遍及农村、城市和郊区的每一个人口群体。人们正在以创纪录的速度死去。”
+4月5日，美国、英国和澳大利亚的组成的安全架构AUKUS发表首脑声明，宣布将联合开发飞行速度远超音速的最新式武器——超高音速武器以及拦截技术，被看做是为了与已实施先行开发的中国和俄罗斯进行对抗。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/EDBFB487-DA64-441F-839D-E93C1346DE84.png)图片来源：[https://www3.nhk.or.jp](https://www3.nhk.or.jp)
+高超音速武器很难拦截，因为它们是以超过音速5倍的5马赫或更高的速度飞行。3月在俄罗斯入侵乌克兰的战争中已有发表使用了此种武器。此外，北朝鲜也在今年1月进行了此种武器的发射试验。
 
-中共病毒、中共病毒疫苗以及芬太尼，这些大规模杀伤性武器都与中共息息相关，它们正被用来摧残和杀害美国人以及全世界的人民。邪恶的中共政权是全球灾难的根源，中共一日不除，世界一日不得安宁。灭共是正义的需要！
+据说中国和俄罗斯已先行开发并引领着这种武器的发展，为对抗中国和俄罗斯，美、英、澳等三个国家决定在新的框架下，迅速集结技术力量合作开发。 AUKUS成立于去年9月，在中国在不断进军海洋的过程中，为澳大利亚提供核潜艇部署的技术支持，以及在网络和AI（人工智能）领域的军事合作也在不断深入。
 
-*责编：白夜*
+**信息来源：**
 
-新闻来源：[DEA Administrator: ‘China Is Providing Chemicals’ ‘to the Criminal Drug Networks’ That Are ‘Mass-Producing’ Fentanyl Pills](https://www.breitbart.com/clips/2022/04/06/dea-administrator-china-is-providing-chemicals-to-the-criminal-drug-networks-that-are-mass-producing-fentanyl-pills/)
+[米英豪 極超音速兵器の共同開発を発表 中ロ対抗ねらいか](https://www3.nhk.or.jp/news/html/20220406/k10013569181000.html)
 
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220405
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
