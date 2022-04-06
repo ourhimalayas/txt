@@ -2,24 +2,42 @@
 ---
 
 
-## 一名美军军官因指控上级推广的新冠疫苗非法而遭到报复
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2297860/)
+## 只有灭共的新中国联邦人和G系列投资者才能免于被制裁
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297997/)
 
-#### 翻译/撰稿：zzballack
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8837.38%EF%BC%89%E5%8F%AA%E6%9C%89%E7%81%AD%E5%85%B1%E7%9A%84%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%BA%BA%E5%92%8CG%E7%B3%BB%E5%88%97%E6%8A%95%E8%B5%84%E8%80%85%E6%89%8D%E8%83%BD%E5%85%8D%E4%BA%8E%E8%A2%AB%E5%88%B6%E8%A3%81%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-11.jpg)图片来源：Republic World
-据《网关专家》（Gateway Pundit）4月5日报道，一名美国上尉4月4日向美国陆军刑事调查司令部（Criminal Investigation Division，CID）提交了一份刑事诉讼，指控美国陆军军事基地本宁堡（Fort Benning）的指挥官帕特里克·多纳霍 (Patrick Donahoe) 推动人们接种的新冠疫苗是非法的，因为疫苗并未获得官方批准。但是CID的官员们不仅不调查此事，反而向上尉所指控的那些人举报了这名吹哨人。多纳霍随后派人将这名上尉送入本宁堡的医院，理由是他们认为上尉存在“精神健康问题”。
+**郭文贵先生：**所以告诉大家不是因为你是中国人，今天我文艺、我双胞胎我就在日本我不受你制裁，你一样被受制裁。唯一让你不受制裁的就一招，你别以为你是混血，你们像这样是灭共的新中国联邦人，唯一一个财富能得到安全的，我是新中国联邦的G系列投资者，我是灭共的，第二我是灭共的新中国联邦人，你不会受制裁。我给你百分之百保证，今天的重点在哪明白了吗？明白了吗？
 
-这名上尉的朋友和家人担心他是因为反对非法的疫苗强制令而受到惩罚。上尉在刑事诉讼中指出，多纳霍强制要求人们接种被他称为是已获美国食品药品监管局（FDA）批准的新冠疫苗。但实际情况并非如此，获得FDA批准的实际上是Comirnaty疫苗，而非辉瑞的新冠疫苗。现在，这名上尉因为提出申诉而被关押在精神病院。
+不会因为你是中日混血不制裁你，你有游艇、你有飞机保证给你封了，是因为你是新中国联邦人，你飞机、游艇你可以拥有，Mamoru桑你明白我意思了吗？你那挂的大金哨子是吧？那么有钱，你像金三胖，像金五胖也不行，是不是？你飞机、游艇也得给你封了，是吧，但是你是新中国联邦人，就看着你了，你就是金大胖，那就行了，明白了文艺？这今天的重点是，在西方对共产党在制裁的时候，唯一让你资本安全的，G系列、喜币、喜联储、G-TV，唯一让你安全的就是作为灭共的新中国联邦人。
 
-一位在过去数小时与上尉进行了对话的知情人士透露，上尉心智健全，一直遵纪守法，没有任何暴力倾向。他认为以指挥官多纳霍为首的指挥系统，将本宁堡的精神健康系统武器化，对上尉进行报复，让他在追究该指挥官的犯罪行为时保持沉默。
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-这名上尉并非首次就疫苗非法起诉多纳霍，他此前就向总检察官提交了一份诉讼，指控多纳霍的疫苗强制令非法。但多纳霍利用将军训诫备忘录（GOMORS）对其进行报复，并要求调查委员会鉴定上尉是否有资格继续服役。
+编辑整理：Jacques；
 
-这并非多纳霍首次成为新闻焦点。2021年7月，前海军军官、现正在密歇根州的希尔斯达耳学院 (Hillsdale College)就读的约塞亚·里平科特（Josiah Lippincott）就曾公开表示自己不认同多纳霍有关新冠疫苗的叙事。作为报复，多纳霍通过其官方推特账户呼吁大学派人“来抓他”。
+字幕档制作：知津；
 
-新闻来源：[EXCLUSIVE: Army Captain Placed in Mental Hospital for Accusing Commanding General Patrick Donahoe of Pushing Illegal Vaccine](https://www.thegatewaypundit.com/2022/04/breaking-exclusive-army-captain-placed-mental-hospital-accusing-commanding-general-patrick-donahoe-pushing-illegal-vaccine/)
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

@@ -2,35 +2,22 @@
 ---
 
 
-## 荷兰扣留14艘俄罗斯游艇
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2298181/)
+## 樱花时政┃G20或拒绝俄罗斯参会
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298212/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/盖特第一批注册
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-3.png)[图片链接](https://news.yahoo.co.jp/articles/98d01f3baf83c12db1d96589dd5a51a0a65d987a/images/000)
+美国国家安全委员会(NSC)印太地区协调员库尔特·坎贝尔(Kurt Campbell)在4月5日的一次演讲中表示难以像往常一样举行峰会，他说，入侵乌克兰的俄罗斯也参加了G20（20个主要经济体和地区集团）框架，“很难想象我们可以邀请俄罗斯总统普京，并就发展和气候变化措施进行文明的讨论。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+坎贝尔先生说，对俄罗斯的参与“没有做出任何决定”，但他指出，“你可以听到整个国际社会的愤怒”。 美国和欧洲的立场是俄罗斯应该被排除在20国集团之外，但包括中国在内的其他国家反对这样做。
 
+信息源：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/amsterdam-1452027.jpg)
+[米高官「プーチン氏と文明的な議論困難」…通常通りのＧ２０開催に難色](https://www.yomiuri.co.jp/world/20220406-OYT1T50093/)
 
-
-资料来源：freeimage.com
-
-荷兰政府周三表示，由于对俄罗斯的制裁，目前正在阻止 14 艘游艇（包括 12 艘正在建造中的游艇）离开荷兰。
-
-在批评荷兰在执法和扣押方面落后于其他欧洲国家后，外交部在致议会的一封信中发表了这一声明，向立法者通报了制裁的执行情况。
-
-游艇制造是荷兰的一个重要行业，商会记录显示，主要建造商 Heesen、Feadship、Damen Shipyards 和 Oceanco 在 2020 年的总销售额约为 15 亿欧元（16.6 亿美元）。
-
-周三的信中说，虽然没有“超级游艇”停泊在荷兰领土，包括像圣马丁这样的加勒比岛屿，但正在为俄罗斯船东建造的 12 艘游艇“由于目前的出口措施，目前无法交付”，而且它们的所有权结构是被调查。
-
-信中还包括金融资产的更新，称有 5.16 亿欧元的资产和 1.55 亿欧元的交易已被冻结，较上周略有增加。
-
-政府估计 270 亿欧元的俄罗斯资产在荷兰注册公司的资产负债表上，其中约 200 亿欧元由在荷兰几乎没有实体存在的空壳公司持有。
-
-🔗 [https://www.reuters.com/world/europe/dutch-government-preventing-14-russian-yachts-leaving-letter-parliament-2022-04-06/](https://www.reuters.com/world/europe/dutch-government-preventing-14-russian-yachts-leaving-letter-parliament-2022-04-06/)
-
-责任编辑、发布： Shuizhuyu
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

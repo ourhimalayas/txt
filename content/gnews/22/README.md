@@ -2,25 +2,26 @@
 ---
 
 
-## 有声｜ 美国、英国和澳大利亚承诺共同研究高超音速武器
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2298090/)
+## 在中共国，跟上面反映一下，有用吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298161/)
 
-By:**秘翻新闻**
+撰稿：东京樱花团/ tdownc2p
 
-**2022-04-06**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-33.png)
-[路透社](https://www.reuters.com/world/uk-us-australia-agree-work-hypersonics-under-defence-pact-2022-04-05/)4月5日报道，英国首相约翰逊的办公室表示，美、英、澳新防卫联盟领导人拜登、约翰逊、莫里森周二举行了电话会议，同意在高超音速武器和电子战能力方面进行合作。
+最近看了许多疫情期间各地封控后，造成百姓生活困难、甚至生命受到威胁时，有人被逼无奈，有人气愤不过，给有关部门打电话的音视频，最后基本会结束在一句话上：跟上面反映一下。善良的老百姓天真的认为，自己困境，上级领导会帮助，只是不知情，需要电话那头的人给反映一下。打了电话，心里就有了着落，有了希望，又能耐心的等上一阵子，可能时间会有点长，但从心里还是能体谅上级领导日理万机，总会给自己一个交待的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-12.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F1612F%2Fproduction%2F_123951409_2022-03-28t053403z_1958128752_rc2ebt9n7x38_rtrmadp_3_health-coronavirus-china-1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-60930018&amp;tbnid=duKRmNkFvCiDVM&amp;vet=12ahUKEwjO87PZmP_2AhVX7rsIHbg9AokQMygAegUIARCbAQ..i&amp;docid=IEo4zSTKuJuF1M&amp;w=640&amp;h=359&amp;q=%E5%B0%81%E6%8E%A7&amp;hl=zh-CN&amp;ved=2ahUKEwjO87PZmP_2AhVX7rsIHbg9AokQMygAegUIARCbAQ)
+百姓的这种思维继承自千年来的明君、清官崇拜，继而又被中共的谎言所欺骗，相信了电视报纸和墙内网络媒体的宣传，以为上面的领导和政策是好的，是下面的人执行不力。
 
-会后，三方发表声明称，“我们今天承诺，在高超音速和反高超音速，以及电子战能力方面，开展新的三边合作。”
+可怜的百姓请你们好好想一想，疫情之前，你们过的好吗？如果说还算可以的话，那也都是靠你们自己的双手打拼出来的，这个党和政府帮过你们什么？国家帮你养过小孩，还是帮你照顾过老人？上学免费还是住房免费？看病能花的起钱吗？国家给过你们多少福利？官员的任免，百姓有发言权吗？你敢停下来享受一下生活吗？如果答案都是“否”的话，你们还想指望上面的领导在内外交困时会牵挂百姓的安危吗？不知道他们一直都有“领导先走”的传统吗？
 
-美国和澳大利亚已经有了一个名为 SCIFiRE 的高超音速武器计划，英国官员表示，尽管英国目前不会加入该计划，但三个国家将在该领域的研发开展合作。俄罗斯入侵乌克兰加剧了全世界对欧洲安全的担忧，拜登政府正在全力研发以五倍音速飞行的高超音速导弹。
+生死关头，相信共产党，就是奔向火葬场，寄希望于上面、高层、中央的百姓，真的是命悬一线，不断的跟上面的上面去反映，换来的也只是下一个等待，等着等着，一个人甚至一个家庭就毁了。
 
-秘翻新闻 自由信仰 编译报道
+行到水穷处，恰是云起时，大难之中，方显土匪本色，希望百姓灵光乍现，顿悟到中共原来全是谎言欺骗，才有挣脱束缚，找到生路的可能。
 
-发布 : 恩典
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

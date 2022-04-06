@@ -2,26 +2,25 @@
 ---
 
 
-## 俄罗斯寡头阿布拉莫维奇不得不靠借钱度日
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2297288/)
+## 俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297315/)
 
-**撰稿：日本东京方舟农场  北极**
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌局势致能源价格飙涨，全球通胀持续扩大，欧盟部分成员国高度依赖俄罗斯能源供给，为降低全球对俄罗斯能源的依赖，日前美欧成立新的伙伴关系，美方承诺向欧盟出口150亿立方米的液化天然气，且未来将继续增加出口量。俄罗斯总统普京则要求欧盟不友好名单国家应以卢布购买天然气，否则断供，此举恐加剧影响国际能源及粮食价格。
 
-据乌克兰焦点报4月4日报道，俄罗斯寡头罗曼·阿布拉莫维奇（Roman Abramovich）向朋友借款至少一百万美元来维持度日，以缓解资产被冻结的窘境。
+欧洲统计局数据，2020年欧盟自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气，其中以主席国德国最依赖俄罗斯能源。经欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）证实，欧盟委员会提议将俄罗斯煤炭纳入制裁清单中，可能对俄实施“每年高达40亿欧元的煤炭进口禁令”为削减俄罗斯另一重要能源收入。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-72.png)俄罗斯寡头罗曼·阿布拉莫维奇（Roman Abramovich）。（图片来自焦点报）
+即便欧盟高度依赖俄罗斯能源，惟各界逐渐掌握俄军在乌克兰犯下的战争罪行，欧盟考虑将煤炭进口禁令添加到第五轮制裁中，是否落实仍应视当地时间周三会议结果。
 
-俄乌战争爆发后不久，英国和欧盟在3月初对阿布拉莫维奇实施了制裁，阿布拉莫维奇的财富为143亿美元。他曾试图卖掉他在英国的房产和切尔西足球俱乐部，均告失败。其在美国的对冲基金也遭到冻结。
+德国高度依赖俄罗斯天然气，该国财政部长克里斯蒂安·林德纳表示“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系，但目前不可能切断天然气供应。”
 
-消息人士透露，他联系了昔日的好友，包括好莱坞制片人兼导演布雷特·拉特纳（Brett Ratner）和罗斯柴尔德家族（Rothschild family）等，均因顾忌国际法，暂不同意借钱给他。
+来源｜[cnbc](https://www.cnbc.com/2022/04/05/european-union-could-ban-russian-coal-imports-sources-say.html)、[bloomberg](https://www.bloomberg.com/news/articles/2022-04-05/eu-to-propose-banning-coal-imports-from-russia-after-atrocities)
 
-阿布拉莫维奇每周在员工上的支出至少为75万美元，包括他的五艘游艇船员的工资。
+* * *
 
-参考链接：
-[https://reurl.cc/ak2vL9](https://reurl.cc/ak2vL9)
-
-总编：老孙
-校对发布：爱放飞
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

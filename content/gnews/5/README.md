@@ -2,53 +2,42 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298229/)
+## 为什么炙手可热的就业市场意味着更大的退税
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2298285/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649243089093.jpg)图片来源：新浪财经
+澳大利亚经济部门指出，本财政年度下半年工作人数的激增意味着许多新正式就业的人将获得巨额退税。
 
-整理/编辑：gardeniahu
+“当你有更多的人找到工作时，你也会得到更多的退款，就这么简单。获得工作的人比财政部预期的要多得多，因此在本财政年度的部分时间里，你会有更多的人工作，”德勤Access Economics合伙人Chris Richardson说。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-1.png)图片来源：雅典娜设计组(614)
+根据澳大利亚统计局的数据，2月份，澳大利亚就业人数达到创纪录的1340万人，在五个月内增加了55万多人，包括约30万个全职职位。
 
+澳大利亚就业人数的激增帮助推动了2月份失业率下降4%，在1月份的奥密克戎浪潮中，工作时间急剧下降，导致许多人自我隔离。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+根据ATO的年度报告，退还给个人的税款总额从2018-19年的295亿美元增加到2020-21年的363亿美元。另外，德勤Access Economics预测，到2024-25年，这一增长到598亿美元。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+除了兼职工作的额外退款外，由于中低收入税收的抵消，今年还将有1000多万纳税人的退税。临时税收措施将抵消高达1500美元的税收。
 
-帖子原文：
+专业机构税务研究所的税务顾问Julie Abdalla说：“（随用随付）系统意味着你的雇主每次收到工资时都会预扣税款，根据该税率适用于您的工资。”
 
-**疫情|新冠疫苗副作用    打完康诺希，我感觉我快废了**
+“退款只是对住宿的平衡，以确保确实支付了本应支付的适当税款。退款也受到您可能有资格获得的扣除和税收抵免的影响，因此420美元的生活成本抵消（这只是中低收入税收抵消的增加）也可能推动一些退税。”
 
-一位pro vaccine的医生注射新冠疫苗后去世
+中层公司HLB Mann Judd Sydney的税务服务合伙人Peter Bembrick同意，数据显示，某些部分人口全年没有工作，这意味着“更多的人将获得退税，这些人的平均退款往往会更大”。
 
-一位妇产科医生在注射疫苗后，血小板诡异的降到0，导致出血性中风死亡。
+Bembrick先生说：“一名员工在今年前八个月失业，并于2022年3月1日开始了一份新工作，一揽子9万美元，他们将预扣32.5%的税款，在截至2022年6月30日之前的四个月30日，他们只能按19%的边际税率征税，这表明他们在提交2022年纳税申报表时将获得大笔退税。”
 
-所以，疫苗会是抗击疫情的良药吗？对于疫苗，大部分美国人持质疑和观望态度。但是在每天确诊几十万的情况下，不注射疫苗，这个疫情几年也过不去啊。
+财政部预计，2022-23年工资增长将超过通货膨胀0.25个百分点，2023-24年将超过0.5个百分点，2024-25年将超过0.75个百分点。
 
-如果部分成人不注射疫苗，加上18岁以下的孩子还没被批准注射疫苗，疫情也不能结束。
+新闻来源：[http://www.afr.com/business/why-the-hot-job-market-means-many-can-expect-a-bigger-tax-return-20220406-p5abaz?btis](http://www.afr.com/business/why-the-hot-job-market-means-many-can-expect-a-bigger-tax-return-20220406-p5abaz?btis)
 
-要抑郁了啊，药不能停。
+发布：tianzhihuan
 
-#新冠疫苗
-
-发布于2021一01一1 1
-
-精选评论
-
-想要一条狗   回复：吃什么药都有可能死人主要是看死亡率。得covid死亡率那还是高太多了。。。
-
-Emily&Erica   回复：昨天我看见一个小红书也是扎了疫苗发生血小板减少，是个女生，大家有没有知道她小红书叫什么的，我找不到了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-587.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-588.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-589.png)图片来源：小红书
-参考链接：[注射新冠疫苗后去世](http://www.xiaohongshu.com/discovery/item/5ffb2794000000000100b31c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155943)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1%20/t%20_blank%20/h)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena%20/t%20_blank%20/h)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ%20/t%20_blank%20/h)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu%20/t%20_blank%20/h)
 
  
 
