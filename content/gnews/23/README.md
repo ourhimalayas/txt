@@ -2,53 +2,34 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298229/)
+## 7-Eleven将向特许经营者支付9800万美元的集体诉讼和解
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2298304/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+翻译/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649243353630.jpg)图片来源：Financial Review
+便利店巨头7-Eleven已同意向特许经营商支付近1亿美元的集体诉讼和解，这些特许经营商表示，他们在商店的盈利能力方面被误导了。
 
-整理/编辑：gardeniahu
+该索赔于2018年提出，指控该公司误导了他们提供给潜在特许经营商的文件和记录中劳动力成本的准确性，以及特许经营商必须支付的平均工资。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-1.png)图片来源：雅典娜设计组(614)
+在《悉尼先驱晨报》和《时代报》和《四角》的联合调查发现系统性工资盗窃和工资记录篡改后，该连锁店被迫向工人偿还超过1.73亿美元。前澳大利亚竞争和消费者委员会老板Allan Fels曾领导过7-Eleven设立的还款小组，他在2020年底告诉《悉尼先驱晨报》和《时代报》，1.73亿美元并没有反映所有未支付的工资。
 
+Fels教授说，当计划向工人付款达到1.65亿美元时，“他们决定这已经足够了，他们有效地关闭了该计划”。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+公平工作监察员还发起了多项调查，就薪酬问题起诉了11名7-Eleven特许经营商，累计对他们处以180万美元的罚款，相当于全国少付额的1%左右。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+经营集体诉讼的Levitt Robinson律师事务所的合伙人Stewart Levitt表示，特许经营商认为员工成本约占业务成本的7%，但实际上约为13%。特许经营商还声称，7-Eleven仅允许特许经营商以特定价格从特定供应商购买股票，违反了与某些集体诉讼成员的合同。周三，联邦法院法官David O’Callaghan签署了双方去年8月达成的9800万美元的和解协议，这笔钱将存放在信托中。7-Eleven在一份声明中表示，和解是在承认过失的情况下达成的，这笔款项包括所有法律费用。
 
-帖子原文：
+首席执行官Angus McKay表示，该公司很高兴此事达成了“可接受的解决方案”，并补充说，7-Eleven还投资了5000万美元用于防止工资盗窃的系统，并培训特许经营商“与他们在这方面的责任有关”。
 
-**疫情|新冠疫苗副作用    打完康诺希，我感觉我快废了**
+新闻来源：[https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis](https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis)
 
-一位pro vaccine的医生注射新冠疫苗后去世
+发布：tianzhihuan
 
-一位妇产科医生在注射疫苗后，血小板诡异的降到0，导致出血性中风死亡。
-
-所以，疫苗会是抗击疫情的良药吗？对于疫苗，大部分美国人持质疑和观望态度。但是在每天确诊几十万的情况下，不注射疫苗，这个疫情几年也过不去啊。
-
-如果部分成人不注射疫苗，加上18岁以下的孩子还没被批准注射疫苗，疫情也不能结束。
-
-要抑郁了啊，药不能停。
-
-#新冠疫苗
-
-发布于2021一01一1 1
-
-精选评论
-
-想要一条狗   回复：吃什么药都有可能死人主要是看死亡率。得covid死亡率那还是高太多了。。。
-
-Emily&Erica   回复：昨天我看见一个小红书也是扎了疫苗发生血小板减少，是个女生，大家有没有知道她小红书叫什么的，我找不到了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-587.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-588.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-589.png)图片来源：小红书
-参考链接：[注射新冠疫苗后去世](http://www.xiaohongshu.com/discovery/item/5ffb2794000000000100b31c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155943)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1%20/t%20_blank%20/h)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena%20/t%20_blank%20/h)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ%20/t%20_blank%20/h)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu%20/t%20_blank%20/h)
 
  
 

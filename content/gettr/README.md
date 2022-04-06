@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 1:00 PM (UTC)`
+
+2022年4月6日 文贵大直播：上海疫情老百姓遭殃；马斯克入股推特暴涨；新歌打榜及人工智能；《商君书》之 连坐与告密
+![img](https://media.gettr.com/group30/origin/2022/04/06/12/ad70668d-c4a8-45c8-a8a6-978bb6bc07f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/6/2022 12:14 PM (UTC)`
 
  4月6号：跟着共产党走进火葬场……人间的地狱。长春……心痛啊，心痛啊！
@@ -146,13 +153,6 @@
 
 2022.04.05 NFSC News  Miles Guo’s New Songs Debuted on iTunes Music Charts
 ![img](https://media.gettr.com/group28/origin/2022/04/05/22/a2114106-5079-82ff-8ce0-65ae0100de20/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/5/2022 10:01 PM (UTC)`
-
-新中国联邦 法治基金 飞飞秀救援快报 2022-04-05<br/>For English：gettr.com/post/p13qskw7d05
-![img](https://media.gettr.com/group25/origin/2022/04/05/21/f93400d1-1fe7-0e11-8c17-51de83428da7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

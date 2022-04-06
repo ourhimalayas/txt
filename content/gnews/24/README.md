@@ -2,26 +2,43 @@
 ---
 
 
-## 上海隔离集中营又出惨案 清华才女无人吸痰被憋死
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298220/)
+## 澳大利亚银行为零排放制定2035年时间表
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2298283/)
 
-撰稿：东京樱花团/秋明
+翻译/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/zoujinaozhou.png)图片来源：雅典娜设计组（614）
+澳大利亚银行首席执行官达米安·沃尔什表示，这家客户拥有的银行正在响应股东的要求，制定了世界领先的2035年目标，以实现净零排放。
 
-近日一则关于清华才女硅谷海归李昶，在上海某康复医院无人护理而去世的信息在微信群传播。
+在政府间气候变化专门委员会的最新报告强调将全球变暖限制在1.5度将有多困难后，Walsh先生表示，未来10年对银行部门不仅关注气候，而且关注生物多样性至关重要。
 
-李昶夫妇硅谷成功后回国创业，因为意外无行动力，需要有人及时吸痰。丈夫把妻子放上海某高档护理中心。疫情后丈夫不上班护理妻子，护理中心发现了阳性病人，所有人要求离开。丈夫请求和妻子一起隔离不被允许，而后被警察抓走。护理中心许诺安排护理人员，实际上负责的护理人员并不会吸痰，最后，李昶在有意识的状态不，被活活憋死。
+与自然相关的金融披露工作组原型于上个月发布，将是银行和公司继气候报告后的下一个障碍。Walsh先生说，虽然有很多变化，但变小有优势。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs1.gushiju.net%2Fcy_imgs%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593.jpg&amp;imgrefurl=https%3A%2F%2Fwww.gushiju.net%2Fchengyu%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593&amp;tbnid=RRN5ROkpHefJmM&amp;vet=12ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ..i&amp;docid=2R07WkcIo0oHBM&amp;w=500&amp;h=333&amp;q=%E6%83%A8%E6%97%A0%E4%BA%BA%E9%81%93&amp;hl=zh-CN&amp;ved=2ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ)
+随着国际可持续性标准委员会预计将在今年提供一个报告和衡量气候影响的全球框架，Walsh先生表示，银行和其他公司如何衡量其排放量，特别是其范围3（银行融资的排放）的情况正在迅速发展。
 
-李昶可谓是站在事业制高点的成功人士，虽然遭遇不测但是有深爱他的丈夫，本来在家人的悉心照料下有望慢慢恢复，岂料在这场没有人性的隔离运动中，痛苦死去！怎么不让人唏嘘惋惜？
+但他说，澳大利亚银行认为没有必要等待。
 
-在中共的魔爪之下，不管身处哪个层次都可能是他们的祭品，唯有铲除这个恶魔，才能还地球和平！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-3.jpg)
-消息来源：微信群
+主要银行已经制定了2050年实现净零排放的目标，但迄今为止尚未披露其融资所产生的排放。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+澳大利亚国家银行和澳新银行集团都参与了衡量其投资组合范围的计划，重点是核心业务部门，包括其抵押贷款账簿。
+
+澳大利亚银行有一个商业贷款部门，约占其贷款的10%，主要用于商业房地产部门，以及抵押贷款业务。
+
+Walsh先生说，该银行将寻求通过鼓励客户使自己的企业和家庭实现碳中和，包括通过更多地使用可再生能源和电气化，来尽量减少抵消的使用。
+
+“我们提供清洁能源房屋贷款，因此我们正在帮助客户建造高能效房屋。在未来十年里，我们如何支持客户为他们的房产电气化，不仅转向可再生能源，更多的电气化将更加重要。”
+
+Walsh先生说，澳大利亚银行过去一年增长了20%，这只是社区支持银行的一个迹象，这些银行表现出对保护环境的承诺。Walsh先生说，该银行正在努力通过能源转型支持维多利亚州拉特罗布谷等煤炭发电区。他说：“在我们64年来合并的72个信用社中，一个是SEC信用社，因此我们在拉特罗布山谷拥有强大的影响力。”
+
+新闻来源：[http://www.afr.com/business/banking-and-finance/bank-australia-sets-2035-timeline-for-net-zero-20220406-p5ab92?btis](http://www.afr.com/business/banking-and-finance/bank-australia-sets-2035-timeline-for-net-zero-20220406-p5ab92?btis)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1%20/t%20_blank%20/h)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena%20/t%20_blank%20/h)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ%20/t%20_blank%20/h)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu%20/t%20_blank%20/h)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

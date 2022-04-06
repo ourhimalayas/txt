@@ -2,29 +2,39 @@
 ---
 
 
-## 2022年4月6日国内股市简报
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2298568/)
+## 上海持续封控，海归清华才女在医院窒息死亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298808/)
 
-撰稿：两万五，爆大料
-![](https://assets.gnews.org/wp-content/uploads/2022/04/两万五.png)
-（图片来自网络）
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2022年4月6日，在假期修整了3天以后，开盘上证指数权重跌落指数下跌，以贵州茅台、宁德时代明星股超过大盘。上午收盘，上证指数跌0.22%，深证成指跌0.61%，创业板跌1.33%，科创50指数跌大跌2.31%，两市成交额6048亿元，3148只上涨，1430只下跌。
+整理：li yan li
+编辑：伏而起之
 
-房地产、建筑、钢铁、石油等涨幅领先，半导体、航空（军工）、电气设备（锂电）等跌幅靠前。3700亿光伏龙头隆基股份、3200亿免税茅中国中免、2000多亿的中远海控纷纷大跌。银行股中，起到稳定指数作用，整体银行板块上涨2.1%。截至收盘，沪指微涨0.02%报3283.43点，深成指跌0.45%报12172.91点，创业板指跌1.24%报2633.91点；两市合计成交9661元，北向资金净卖出53.21亿元。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-349.png)图片来源：雅典娜设计组
 
-消息面上，日前，中共智慧[教育](http://quote.eastmoney.com/unify/r/90.BK0740)平台正式上线。平台一期项目主要包括国家中小学智慧[教育](http://quote.eastmoney.com/unify/r/90.BK0740)平台、国家职业教育智慧教育平台、国家高等教育智慧教育平台和国家24365大学生就业服务平台等4个子平台。这就造成盘面上[教育](http://quote.eastmoney.com/unify/r/90.BK0740)板块6日盘中走势活跃。[全通教育](http://quote.eastmoney.com/unify/r/0.300359)“20cm”涨停，[传智教育](http://quote.eastmoney.com/unify/r/0.003032)、[学大教育](http://quote.eastmoney.com/unify/r/0.000526)、[昂立教育](http://quote.eastmoney.com/unify/r/1.600661)涨停。
 
-[中药](http://quote.eastmoney.com/unify/r/90.BK1040)板块6日盘中强势拉升，[香雪制药](http://quote.eastmoney.com/unify/r/0.300147)“20cm”涨停。[盘龙药业](http://quote.eastmoney.com/unify/r/0.002864)、[紫鑫药业](http://quote.eastmoney.com/unify/r/0.002118)、[启迪药业](http://quote.eastmoney.com/unify/r/0.000590)、[大理药业](http://quote.eastmoney.com/unify/r/1.603963)、[益盛药业](http://quote.eastmoney.com/unify/r/0.002566)、[以岭药业](http://quote.eastmoney.com/unify/r/0.002603)等涨停。消息面上，3月29日发布的《“十四五”中医药发展规划》提出，在“十三五”中医药发展顶层设计加快完善、政策环境持续优化、支持力度不断加大的基础上，就目前仍然存在的问题提出发展要求，对中医药服务、人才队伍、传承创新、产业高质量发展等方面提出发展目标，促进中医药行业高质量发展。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/两万五2.png)网络截图![](https://assets.gnews.org/wp-content/uploads/2022/04/两万五3.png)网络截图![](https://assets.gnews.org/wp-content/uploads/2022/04/两万五4.png)网络截图![](https://assets.gnews.org/wp-content/uploads/2022/04/两万五5.png)网络截图
-参考资料
+4月6日，据大纪元报导，上海当局近期严厉“封城”，医疗系统不堪负荷。一名毕业于清华大学的海归女子李昶在上海一康复医院住院，因原本负责照护她的医疗人员被强制隔离，导致她在无人协助抽痰情况下，在“清醒状态窒息死亡”，此事件引起强烈震动。
 
-[https://www.eastmoney.com/](https://www.eastmoney.com/)
+据媒体报导，李昶生于1973年，1992年毕业于[清华](https://www.epochtimes.com/gb/tag/%E6%B8%85%E5%8D%8E.html)大学电脑系，毕业后留学美国并在硅谷工作。2018年随丈夫回国创业。
 
-*审核：文筝*
+她去年因突发脑溢血住院治疗，后在上海一家康复中心接受康复疗养。因上海3月底防疫管控措施加强，在李昶所在的康复中心发现有阳性病人，导致“包含护理人员”在内的所有人都被强制隔离。
 
-*发布：MG4*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA-1.jpg)
+李昶的丈夫要求和妻子一起隔离，但不被允许。当局事后虽派人增援，但“一个护士要照顾十几个病人”。李昶术后情况良好，意识也相当清楚，但尚未恢复语言能力，无法向医疗人员表达自身情况，加上护理师不熟悉抽痰，导致李昶在清醒状态下，被堵在气管内的痰活活闷死。
+
+李昶去世后不久，就有人在“上海清华校友群”披露了事情的整个过程，有校友痛批：“是精神病式的防疫，把李昶害死了！”
+
+因为连续多日严厉封控措施，已经引发很多次生灾难，包括医疗系统崩溃，居民基本生活无法保证，民间已经积累大量怒火。
+
+参考链接：[上海持续封控 海归清华才女在医院窒息死亡](https://www.epochtimes.com/gb/22/4/6/n13698320.htm)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
