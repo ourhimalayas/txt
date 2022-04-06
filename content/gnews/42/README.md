@@ -2,10 +2,10 @@
 ---
 
 
-## 俄乌战争、疫苗灾难后人类将迎来新纪元
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296740/)
+## 中共特务郑介甫遭澳洲政府遣返
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296741/)
 
-作者：纽约磐石农场-在远方，澳喜农场-Leo M
+作者：银河系农场 – 骄子
 
 
 
@@ -13,19 +13,29 @@
 
 
 
-郭文贵先生于4月3日大直播中表示，俄乌战争、疫苗灾难过后，人类将产生能源革命，进入数字化时代、干细胞治疗的时代，新中国联邦将创造人类新文明。
+近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
 
-俄乌战争将导致俄罗斯与中共国被解体，新中国联邦人在未来会站在世界上跟任何人对话。而疫苗灾难过后，世界将迎来能源革命、数字化时代、元宇宙、干细胞治疗、数字化货币等革命，世界所有的战略格局全部将被改变。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-5.jpg)
-此外，马斯克的脑神经系统、特斯拉和Space(X)等技术，改变了人类的通信与运载状态。美国、英国、日本和乌克兰的相关公司将导致新能源的诞生。生物科技由于疫苗灾难的到来，将使美国开放干细胞的法律控制。灾难和科技会催生墓碑文明，人类的延续和种族的混血，将开启无种族、无宗教、无地域的时代。随之而来的数据化和生物科技，将把贸易、政治和地域一体化彻底打破，变成人类种族一体化，无皇有主的人类将奔向太空。新中国联邦人，不仅将见证这个伟大壮观的时代，而且无苗族的后代也将生生不息。
+早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-4.jpg)
+郭先生在2017年5月9日直播中对此事进行了阐述，郑介甫因其国内公司与郭先生产生矛盾，但其实根本与郭先生无关，全因经手人是曲龙想侵吞资产，郭先生和这个郑介甫根本不存在任何法律关系。这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
+
+2017年郭先生美国之音断播门事件第二天，郑又在媒体大肆诬告郭先生所言都不真实，爆料只是为引起媒体关注。
+
+时隔五年，郑介甫被遣返。郭先生在2022年4月4号直播中说，时间会给人一切答案，跟着共产党，走进火葬场。目前澳大利亚政府名单上面有40多个为中共卖命的人要被遣返。
 
 参考链接：
-[4/3/2022 Miles Guo: The COVID vaccine disaster will bring about the energy revolution and the digital era.](https://www.gettr.com/post/p13h114bb46)
+1. [Millionaire Chinese property developer quietly expelled for ‘harming security interests’](https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html)
+2. [Chinese President’s war on corruption finds its way to Brighton](https://www.smh.com.au/politics/federal/chinese-presidents-war-on-corruption-finds-its-way-to-brighton-20150405-1merr5.html)
+3. [【特别报道】权力猎手郭文贵](https://weekly.caixin.com/m/2015-03-27/100795235_all.html)
+4. [Australian property developer’s encounter with Interpol most-wanted Guo Wengui](https://www.smh.com.au/world/australian-property-developers-encounter-with-interpol-mostwanted-guo-wengui-20170420-gvol9s.html)
+5. [7·24系列——造谣郭文贵先生的郑介甫被遣返](https://gnews.org/zh-hans/2286058/)
+6. [郭文贵5月9日报平安视频直播](https://www.youtube.com/watch?v=qUNteNSEwmA)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-编辑/审核：飞虹
+编辑：呼吸的雾霾（文小呼吸）
 总编：zhong
+审核：飞虹
 校对/发稿：为真不破20
 
 

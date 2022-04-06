@@ -2,35 +2,20 @@
 ---
 
 
-## 俄罗斯石油公司 Gazprom Neft 的网站在明显遭到黑客攻击后关闭
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2298144/)
+## 港警入驻口岸隔离营接手管理
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298173/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+作者：东京樱花团  阿恩
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+香港警方入驻港珠澳大桥香港口岸人工岛隔离营，声称会以「以人为本」的方式管理，比如检验饭盒的重量及温度，将隔离设施拆分作7个小区，每区有专属的24小时热线电话号码，并由来自旅游业、航空业、教练界别等逾100名非公务员合约雇员接听求助电话。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Snipaste_2022-04-06_18-40-35.png)
+内地各大城市已经进驻大量军备，香港驻港部队的海防早前也换了人，今日有媒体报道，香港警队进驻口岸隔离营接手管理，声称要解决之前抹黑隔离营的假消息，保安局局长邓炳强在媒体上证实此事。林郑月娥不断搪塞中共要求的全民强检，疫情也在近日趋于缓和，放开防疫措施的呼声越来越大，正当港人以为可以见到光明的时候，中共以实际行动向港人秀出了霸权的肌肉，要警队不司其责，调去接送轻症患者入隔离营，现在更直接接管隔离营，隔离营正式成为集中营，里面罪恶的勾当恐与日俱增。
 
+[资料来源](https://today.line.me/hk/v2/article/XYjz8mw)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IDYNDLVQZFJSNCBYH7KAKUPXRY.jpg)
-
-
-资料来源：路透社
-
-俄罗斯国有天然气巨头 Gazprom (GAZP.MM) 的石油部门 Gazprom Neft (SIBN.MM) 的网站在遭到明显的黑客攻击后于周三关闭，这看起来像是在俄罗斯入侵乌克兰后对政府相关网站的最新攻击。
-
-该网站简要展示了一份声称来自俄罗斯天然气工业股份公司首席执行官阿列克谢米勒的声明，他是总统弗拉基米尔普京的亲密盟友。
-
-米勒上个月敦促这家天然气巨头的 500,000 名员工团结在普京周围，以在面对外国敌意时保护俄罗斯作为一个大国。
-
-声明称他为该网站的黑客版本，并称他对俄罗斯决定向邻国乌克兰派遣数万名士兵发表批评评论，那里有数千名士兵和平民丧生。
-
-“4月6日上午在网站上发布的信息不属实，不能被视为公司代表或股东的官方声明，”俄罗斯天然气工业股份公司表示。并关闭了网站。
-
-国家通讯社塔斯社的网站在 2 月遭到黑客攻击，以显示一条信息，要求莫斯科停止其所谓的在乌克兰的“特别行动”。
-
-🔗[https://www.reuters.com/business/energy/russian-oil-company-gazprom-nefts-website-appears-have-been-hacked-2022-04-06/](https://www.reuters.com/business/energy/russian-oil-company-gazprom-nefts-website-appears-have-been-hacked-2022-04-06/)
-
-责任编辑、发布： Shuizhuyu
-
+*校对：东京樱花团/文小白*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
