@@ -2,32 +2,24 @@
 ---
 
 
-## 疫苗后遗症 带状疱疹患者急剧增加
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297639/)
+## 一名美军军官因指控上级推广的新冠疫苗非法而遭到报复
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2297860/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-新冠疫情到现在，对带状疱疹的警惕警钟必须被拉响。近畿大学医学部皮肤科主任教授大塚笃司说：“我在近畿大学附属医院诊治病人，从去年春天到夏天，带状疱疹人数增加了大概1.5倍~2倍左右的患者。”“老年人很容易被感染，一般50多岁的人较多，但是近期的异常现象是20多岁也有人接受诊疗。这也许是新冠疫情期间造成各种压力，使带状疱疹发病增加的原因。”
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/疫苗后遗症-带状疱疹患者急剧增加.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220405-00004997-bss-000-2-view.jpg?exp=10800)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-11.jpg)图片来源：Republic World
+据《网关专家》（Gateway Pundit）4月5日报道，一名美国上尉4月4日向美国陆军刑事调查司令部（Criminal Investigation Division，CID）提交了一份刑事诉讼，指控美国陆军军事基地本宁堡（Fort Benning）的指挥官帕特里克·多纳霍 (Patrick Donahoe) 推动人们接种的新冠疫苗是非法的，因为疫苗并未获得官方批准。但是CID的官员们不仅不调查此事，反而向上尉所指控的那些人举报了这名吹哨人。多纳霍随后派人将这名上尉送入本宁堡的医院，理由是他们认为上尉存在“精神健康问题”。
 
-患带状疱疹的原因之一，小时候的水痘痊愈后还潜伏在体内的病毒因素导致。原因之二由于压力烦恼、疲劳、免疫力下降等原因，会再次活性化，引发带状疱疹。另外，也有新冠疫苗的接种后出现带状疱疹的情况。
+这名上尉的朋友和家人担心他是因为反对非法的疫苗强制令而受到惩罚。上尉在刑事诉讼中指出，多纳霍强制要求人们接种被他称为是已获美国食品药品监管局（FDA）批准的新冠疫苗。但实际情况并非如此，获得FDA批准的实际上是Comirnaty疫苗，而非辉瑞的新冠疫苗。现在，这名上尉因为提出申诉而被关押在精神病院。
 
-以20岁男性出现带状疱疹的诊诉为例 “一开始我后背只是痒，因为后背自己看不到，所以以为是被虫叮了，就放任了。过了3天左右，让熟人看后背，说不像是被虫叮咬，当时出现了水泡之类的东西，而且范围也扩大了。”男性立刻去诊所看病。诊断为带状疱疹，开了抗病毒药，之后除了瘙痒疼痛以外还出现了头痛和发热症状。
+一位在过去数小时与上尉进行了对话的知情人士透露，上尉心智健全，一直遵纪守法，没有任何暴力倾向。他认为以指挥官多纳霍为首的指挥系统，将本宁堡的精神健康系统武器化，对上尉进行报复，让他在追究该指挥官的犯罪行为时保持沉默。
 
-“如果要找诱因的话，就是打了新冠疫苗10天左右后出现，我想就是这个原因了。去了2个诊所，两者都说是‘接种新冠疫苗后出现带状疱疹的人有几个’。” 大冢主任教授表示，新冠疫苗和带状疱疹的直接关系还不清楚，接种后需要注意。 “有论文认为，通过注射新冠疫苗，在脊髓处的免疫力被驱赶到其他免疫处起作用，因此此处的免疫力低下引起疱疹病毒增加。很多论文报告显示，新冠疫苗接种者有10%左右的人激活了疱疹病毒。”
+这名上尉并非首次就疫苗非法起诉多纳霍，他此前就向总检察官提交了一份诉讼，指控多纳霍的疫苗强制令非法。但多纳霍利用将军训诫备忘录（GOMORS）对其进行报复，并要求调查委员会鉴定上尉是否有资格继续服役。
 
-消息来源：
-[2022年4月6日 (水) よりYahoo! JAPANは欧州経済領域（EEA）およびイギリスからご利用いただけなくなりました](https://news.yahoo.co.jp/articles/9628f0c179564c9c75b3f81b988cdc53f4b98ac7)
+这并非多纳霍首次成为新闻焦点。2021年7月，前海军军官、现正在密歇根州的希尔斯达耳学院 (Hillsdale College)就读的约塞亚·里平科特（Josiah Lippincott）就曾公开表示自己不认同多纳霍有关新冠疫苗的叙事。作为报复，多纳霍通过其官方推特账户呼吁大学派人“来抓他”。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+新闻来源：[EXCLUSIVE: Army Captain Placed in Mental Hospital for Accusing Commanding General Patrick Donahoe of Pushing Illegal Vaccine](https://www.thegatewaypundit.com/2022/04/breaking-exclusive-army-captain-placed-mental-hospital-accusing-commanding-general-patrick-donahoe-pushing-illegal-vaccine/)
 
  
 

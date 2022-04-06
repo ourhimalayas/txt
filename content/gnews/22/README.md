@@ -2,22 +2,24 @@
 ---
 
 
-## 速报┃汽车撞进俄罗斯驻乌克兰邻国罗马尼亚的大使馆
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298320/)
+## 马斯克认购推特将改变社交媒体现状
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2298564/)
 
-撰稿：东京樱花团/待命（文晓）
+采编撰稿：加拿大温哥华扬帆农场 – 晨熹
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-596.png)（图片源自本文链接）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-601.png)图片来源：gettr
 
-4月6日FNN综合在线消息：据说一辆白色汽车冲进了俄罗斯驻毗邻乌克兰的罗马尼亚大使馆的大门，汽车起火，司机死亡。
 
-当地警方正在进行调查，但目前还不知道冲撞是否是故意行为。俄罗斯大使馆周围现在已设置防线，据说是被警察封锁了。
+据4月4日文贵先生盖特消息，SpaceX公司创始人伊隆·马斯克当天购买了推特9.2%的股份，并成为该社交媒体的最大股东。此举将有利于新中国联邦的灭共事业。
 
-信息来源： [【速報】ロシア大使館に車突っ込む　ウクライナの隣国ルーマニアで（フジテレビ系（FNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5239d11ffd86972a1d397f91f6e9423f3e6e0543)
+据悉，本次认购意味着推特或将逐渐摆脱中共的控制，减少对言论自由的过度审查和干预。同时，也将对该平台进行重大技术升级，通过推动整个社交媒体技术的进步，让投资人获取更大的利益。 文贵先生表示，马斯克成为推特最大股东后，不但不会与盖特产生恶性竞争关系，双方反而会精诚合作，共同创造新社交媒体更美好的未来。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://gettr.com/streaming/p13j3d06e18vaccine/](https://www.thegatewaypundit.com/2022/04/not-just-us-excess-deaths-skyrocket-worldwide-2021-following-rollout-experimental-covid-vaccine/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

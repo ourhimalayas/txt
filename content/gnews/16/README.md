@@ -2,104 +2,40 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第3天登榜17国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2298558/)
+## 普京直接控制下的一些国家党卫军拒绝进入乌克兰参战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298882/)
 
-4/6/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第3天iTunes打榜记录：
-**《灭共的雪》**
-2国热门歌曲榜第1名
-17国摇滚歌曲榜第1名
+撰稿：东京樱花团/待命（文晓）
 
-**《铁锁梦》**
-10国热门歌曲榜前3名
-2国流行歌曲榜第1名
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-605.png)（图片源自本文链接）
 
-* * *
+4月6日NEWSWEEK消息：据报道，在俄罗斯境内的哈卡西亚共和国，至少有11名属于俄罗斯联邦国家党卫军的士兵拒绝参加弗拉基米尔·普京总统对乌克兰的入侵。
 
-[【New-Songs】Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+国家党卫军是一个由总统直接控制的军事组织，在俄罗斯主要发挥警察作用，属于与俄罗斯联邦武装力量分开的指挥系统。据位于西伯利亚南部的哈卡西亚共和国当地媒体《新焦点》报道，属于国家党卫军特种部队的11名士兵告诉他们的上级，他们无意参加入侵行动。
 
-* * *
+然后，这些士兵被从他们在边境附近的营地带走，送回哈卡西亚。军方官员试图以“不适合工作”为由解雇这些士兵。但11名士兵表示，他们准备挑战这一决定。本刊目前正在核实相关信息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1-1.jpg)
+据《新焦点》报道，特种部队成员认为，军事指挥部向莫斯科中央政府隐瞒了俄罗斯军队在乌克兰的实际损失。许多西伯利亚士兵在普京的所谓“特别军事行动”中被杀。
 
+指挥官告诉特种部队，关于伤员情况和他们在乌克兰的日常行动保持沉默。部队还被指示不要与他们的家人分享细节。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+在俄罗斯南部城市克拉斯诺达尔，12名国家党卫军成员也因拒绝前往乌克兰参战的命令而被解雇，他们已提起不当解雇的诉讼。 ≪新焦点≫指出，军官们对他们未来可能面临的情况感到“震惊和恐惧”。代表国家杜马12名党卫军成员的俄罗斯律师米哈伊尔·本亚西（Mikhail Benyasi）说，到目前为止，大约有1000人与辩护团队联系。本亚西在4月1日的《金融时报》上发表评论说：许多士兵不想上战场。
 
+人权律师帕维尔·奇霍夫（Pavel Chikhov）在Telegram上发帖透露，国家党卫军上尉法里德·奇塔赫和他的11名手下拒绝参加2月25日对乌克兰的入侵，称动员的命令是非法的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+奇霍夫写道：他们都没有被告知进入乌克兰参加特别军事行动，也没有被告知行动的任务和条件，结果他们没有同意参加。
 
+据设在拉脱维亚的独立俄语新闻媒体Medusa报道，自普京于2月24日发动对邻国乌克兰的入侵以来，至少有7人在俄罗斯党卫军的战斗中被杀。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+就在最近，一段视频被发布，显示俄罗斯士兵抱怨说，他们在没有装备和没有被中央政府告知明确计划的情况下被命令前往乌克兰的一个地区。
 
+目前为止，关于俄罗斯军队的损失有各种说法，但乌克兰政府表示，俄军已失去16000人。 还失去了指挥官，有超过六名将军阵亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+信息来源： [プーチン直属の国家親衛隊でウクライナ参戦拒否が続出（ニューズウィーク日本版） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/bbcdd8cccf40fc3c13f16514aba36c149d949971)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_46.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_54.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_55.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_56.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_63.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_65.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_67.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_68.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_69.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_72.jpg)
-
-
-[【New-Songs】Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Wednesday-6-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
