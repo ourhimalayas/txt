@@ -2,68 +2,27 @@
 ---
 
 
-## 应美国要求，西班牙扣押了价值9000万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295291/)
+## 假借疫情 大批武装部队进驻上海维稳
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2295336/)
 
-0M.errick Garland (Attorney General)
-梅里克·加兰（司法部长）
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-Today, at the request of the United States Department of Justice
-今天，应美国司法部的要求
+4月4日，有上海市民透露，大量武警已经抵达上海，以协助对抗疫情为由，持枪进驻社区，参与“维稳”当地因中共封控措施而爆发的民众抗议事件。
 
-Spanish authorities seized a super yacht belonging to a sanctioned Russian oligarch
-西班牙当局扣押了一艘属于受制裁的俄罗斯寡头的超级游艇
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-77.jpg)（图片来源：法新社）
 
-Pursuant to a warrant filed in the US District Court for the District of Columbia
-根据向美国哥伦比亚特区地方法院提交的搜查令
+据《自由时报》报导，住在上海机场附近的市民透露，有大批外地武警已经到达上海，3日晚间不断有大型飞机起降的轰鸣声。她表示，3月28、29日就已有大量武警悄悄进入上海，自从孙春兰来过上海后，这些行动更是正大光明地展开了。
 
-We will now seek to have the vessel forfeited as the proceeds of a crime
-我们现在将寻求没收船只作为犯罪所得
+居住于上海浦西的学者张进则表示，他居住的社区门口已有武警岗哨，防止居民翻墙或随意外出。他指出，一个小区门口派驻一个持枪特警，就是怕上海出事，所以要管起来。现在这个防疫措施就像一个破灯笼，这里糊上，那里破了。
 
-Last month, the Justice Department launched Task Force klepto Capture
-上个月，司法部启动了窃贼捕获工作组
+中共国家卫生健康委员会声称，4月3日上海确诊病例高达9006例，为实施所谓的“动态清零”封控措施，军方抽调卫勤力量2000多人，加上周边各省支援医疗人员约万人进驻上海。然而，据当地网络信息显示，进驻上海的各地人员可能有数万、甚至达到10万人。
 
-to hold accountable Russian oligarchs and others who seek to evade US sanctions
-追究俄罗斯寡头和其他试图逃避美国制裁的人的责任
+参考链接：
+[https://news.ltn.com.tw/news/world/breakingnews/3882544](https://news.ltn.com.tw/news/world/breakingnews/3882544)
 
-Today marks our task force’s first seizure of an asset
-今天是我们的特遣部队第一次没收
-
-belonging to a sanctioned individual with close ties to the Russian regime
-属于与俄罗斯政权关系密切的受制裁个人的资产
-
-It will not be the last
-这不会是最后一次
-
-together, with our international partners
-将与我们的国际合作伙伴一起
-
-we will do everything possible to hold accountable any individual
-我们将尽一切可能追究其犯罪行为
-
-whose criminal acts enable the Russian government to continue its unjust war
-导致俄罗斯政府得以继续其不公正战争的任何个人的责任
-
-**原视频链接**[**:** https://twitter.com/thejusticedept/status/1510988354615193612?s=24](https://twitter.com/thejusticedept/status/1510988354615193612?s=24)
-
-Date:04/04/2022
-原视频标题: $90 Million Yacht of Sanctioned Russian Oligarch Viktor Vekselberg Seized by Spain at Request of United States
-应美国要求，西班牙扣押了价值 9000 万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
-原视频日期：2022/04/04
-原视频链接https://twitter.com/thejusticedept/status/1510988354615193612?s=24
-任务编号：4173
-视频时间段 : 0:00-0:58
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：海星
+总编：青城道姑
+校对发布：爱放飞
 
  
 
