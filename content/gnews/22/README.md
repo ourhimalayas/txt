@@ -2,32 +2,24 @@
 ---
 
 
-## 英美呼吁暂停俄罗斯人权理事国地位
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2295617/)
+## 加拿大将对白俄政府和个人实施新制裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2295728/)
 
-作者：银河系农场—骄子/台灣寶島農場-港台前線
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-20.png)
-美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会暂停俄国在人权理事会的席位。他于记者会上明确表示，俄罗斯参与人权理事会是一场闹剧，且俄罗斯不应在人权理事会占据权威地位。她将于周三返回纽约后立刻将此事提交安全理事会。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-13.jpg)
-美国国务院发言人内德·普莱斯当天证实了这一消息，宣布美国将在联合国大会上寻求投票，要求将俄罗斯从人权理事会中驱逐出去。
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-据此前报道，俄罗斯军队在乌克兰布查屠杀了数十名平民，已经造成了人权和生命的巨大损失。目前，联合国大会需要193个成员国三分之二的支持才能将俄罗斯剔除出该组织。自2月24日俄入侵乌克兰以来，已经有140票通过了两项谴责俄罗斯的决议。
+编译： 加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-542.png)
+据加拿大[环球新闻]4月4日报道，在俄乌战争持续期间，加拿大正针对白俄罗斯政府支持和协助俄军入侵乌克兰实施新的制裁。
 
-在琳达·托马斯·格林菲尔德发表该评论几小时后，英国也表示，鉴于目前俄罗斯已犯有战争罪，且有关于布查屠杀的令人发指的报告，俄罗斯已经不能继续作为联合国人权理事会的成员，应该被剔除。
+加拿大政府当天表示，由于普京政权的合作伙伴参与并促成了俄乌战争，因此，即将对白俄罗斯政府和个人实施惩罚。并为乌克兰提供更多援助外，并让普京及其支持者们为他们的战争罪行负责。
 
-参考链接：
-1. [U.S., Britain Call For Russia’s Suspension From UN Rights Council](https://www.rferl.org/a/russia-removal-un-rights-council/31785242.html)
-2. [US to seek UN vote to kick Russia out of Human Rights Council](https://www.aa.com.tr/en/americas/us-to-seek-un-vote-to-kick-russia-out-of-human-rights-council/2555128)
-3. [拜登再吁“战争罪审判普京” 将俄从人权理事会除名](https://gnews.org/zh-hans/2290856/)
+为阻止侵略战争的野蛮升级，欧美已对俄罗斯及其盟国实施了多项严厉制裁。总统拜登当天也表示：将推动在布查地区和乌克兰其他城镇，针对俄军战争罪的全面调查，严惩并追究各主要战犯的责任。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+校对编辑：硫酸羟氯喹64
 
-总编：zhong
-编辑：飞虹\zhong
-审核：飞虹\zhong
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+发稿：青青
+
+原文链接： [https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/](https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/)
 
  
 
