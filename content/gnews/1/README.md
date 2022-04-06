@@ -2,42 +2,43 @@
 ---
 
 
-## 只有灭共的新中国联邦人和G系列投资者才能免于被制裁
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297997/)
+## 樱花时政┃中共助纣为虐，屏蔽联合国网站乌克兰战争报道
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298059/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8837.38%EF%BC%89%E5%8F%AA%E6%9C%89%E7%81%AD%E5%85%B1%E7%9A%84%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%BA%BA%E5%92%8CG%E7%B3%BB%E5%88%97%E6%8A%95%E8%B5%84%E8%80%85%E6%89%8D%E8%83%BD%E5%85%8D%E4%BA%8E%E8%A2%AB%E5%88%B6%E8%A3%81%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
+撰稿：东京樱花团/Garrettw
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月5日，乌克兰总统泽连斯基在联合国安理会上发表视频讲话，呼吁联合国安理会采取和平的行动，不然就“解散”吧。
 
-**郭文贵先生：**所以告诉大家不是因为你是中国人，今天我文艺、我双胞胎我就在日本我不受你制裁，你一样被受制裁。唯一让你不受制裁的就一招，你别以为你是混血，你们像这样是灭共的新中国联邦人，唯一一个财富能得到安全的，我是新中国联邦的G系列投资者，我是灭共的，第二我是灭共的新中国联邦人，你不会受制裁。我给你百分之百保证，今天的重点在哪明白了吗？明白了吗？
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中共助纣为虐，屏蔽联合国网站乌克兰战争报道.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.un.org%2Fzh%2Faboutun%2Fthisistheun%2Fimages%2Fsc.jpg&amp;imgrefurl=https%3A%2F%2Fwww.un.org%2Fzh%2Faboutun%2Fthisistheun%2Fsc.shtml&amp;tbnid=plI1W4bF54rzRM&amp;vet=12ahUKEwjmx8HQjP_2AhXRRPEDHSzPCsgQMygCegUIARCqAQ..i&amp;docid=fxiP3pDTwyeiMM&amp;w=620&amp;h=454&amp;q=%E8%81%94%E5%90%88%E5%9B%BD%E5%AE%89%E7%90%86%E4%BC%9A&amp;hl=zh-CN&amp;ved=2ahUKEwjmx8HQjP_2AhXRRPEDHSzPCsgQMygCegUIARCqAQ)
 
-不会因为你是中日混血不制裁你，你有游艇、你有飞机保证给你封了，是因为你是新中国联邦人，你飞机、游艇你可以拥有，Mamoru桑你明白我意思了吗？你那挂的大金哨子是吧？那么有钱，你像金三胖，像金五胖也不行，是不是？你飞机、游艇也得给你封了，是吧，但是你是新中国联邦人，就看着你了，你就是金大胖，那就行了，明白了文艺？这今天的重点是，在西方对共产党在制裁的时候，唯一让你资本安全的，G系列、喜币、喜联储、G-TV，唯一让你安全的就是作为灭共的新中国联邦人。
+他叙述到：我们面对的是一个将联合国安全理事会的否决权变成死亡权的国家。如果这种情况继续下去，各国将不依靠国际法或全球机构来确保安全，而是依靠自己武器的力量。
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+他指责俄罗斯想“把乌克兰人变成无声的奴隶”，公开偷窃一切，“从食物开始，到金耳环被掏出来，上面沾满了血”。“安全理事会必须保证的安全在哪里？和平的力量必须成为主宰。”
 
-编辑整理：Jacques；
+他向安理会提出挑战，要么把俄罗斯作为战争的源头取消安理会理事国，这样它就不能再阻挠对自己的侵略作出的决定，要么干脆‘完全解散你们自己’，如果除了进行对话之外没有什么可做的。
 
-字幕档制作：知津；
+“你准备关闭联合国吗？ 你认为国际法的时代已经过去了吗？”他问。“乌克兰需要和平。 欧洲需要和平。世界需要和平。”
 
-视频制作及上传：Cindy；
+他说他今天的发言是为了纪念死者：那些在遭受酷刑后头部中弹、被扔进水井、坐在汽车里被坦克碾压的人，以及那些因为侵略者“没有听到他们想听的话”而被砍掉四肢、拔掉舌头的人。
 
-G-News发布：海贼王M.D.LUFFY；
+原文链接：[https://news.un.org/en/story/2022/04/1115632](https://news.un.org/en/story/2022/04/1115632)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中共助纣为虐，屏蔽联合国网站乌克兰战争报道2.png)[图片来源](https://news.un.org/en/story/2022/04/1115632%20%20%20https://news.un.org/en/focus/ukraine)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+中共自从加入联合国之后，首次屏蔽了联合国网站上《聚焦乌克兰危机的特别报道》界面，中共墙内查看，页面显示是未找到的“404状态”；而在此网站的其他相关乌克兰的信息也未作任何的翻译，基本上是英文原文，在乌克兰新闻的界面最后的文章链接公然更改原文意思，将泽连斯基总统的讲话这篇新闻彻底的更改，编造文章断章取义，可见他们是如此的惧怕墙内的老百姓知道真实的乌克兰战争。更加验证了郭文贵先生多次说道中共的以假治国，驭民五术的壹民中的统一思想。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2022/04/中共助纣为虐，屏蔽联合国网站乌克兰战争报道3.png)[图片来源](https://news.un.org/zh/story/2022/03/1099972%20%20%20https://news.un.org/zh/focus/wu-ke-lan)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,40 +2,24 @@
 ---
 
 
-## 有声|欧盟表示要将俄军暴行送上国际法庭
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2297699/)
+## 一名美军军官因指控上级推广的新冠疫苗非法而遭到报复
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2297860/)
 
-【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
-俄罗斯军队撤离乌克兰北部基辅附近后，当地留下令人窒息的惨景，炸毁的战车，烧焦的土地，人们在多个地方看到尸体。据乌克兰当地官员称，在首都基辅西北约**30**公里的布察市，已给约**280**名死者下葬。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-2.jpg)俄罗斯军队从乌克兰北部撤离后，留下的惨景令人震惊，欧盟理事会主席使用了”屠杀”一词，乌克兰政治家认为俄军犯下战争罪。
-乌克兰总统顾问波多利亚克发布推特写道，**“**他们不是军人，没有佩带武器，不构成危险**”**。他同时发送的一张图上显示双手反绑被击毙的男子。**
+#### 翻译/撰稿：zzballack
 
-**欧盟理事会主席米歇尔在推特发文表示，欧盟将就俄罗斯军队在基辅附近的暴行进行调查，他对来自布察等地的图片深感**“**震惊**”**，并使用了**“**屠杀**”**一词。他写道，欧盟将协助国际法庭收集罪证材料。同时，米歇尔宣布欧盟将祭出对俄罗斯的进一步制裁，向乌克兰提供更多援助。**
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-11.jpg)图片来源：Republic World
+据《网关专家》（Gateway Pundit）4月5日报道，一名美国上尉4月4日向美国陆军刑事调查司令部（Criminal Investigation Division，CID）提交了一份刑事诉讼，指控美国陆军军事基地本宁堡（Fort Benning）的指挥官帕特里克·多纳霍 (Patrick Donahoe) 推动人们接种的新冠疫苗是非法的，因为疫苗并未获得官方批准。但是CID的官员们不仅不调查此事，反而向上尉所指控的那些人举报了这名吹哨人。多纳霍随后派人将这名上尉送入本宁堡的医院，理由是他们认为上尉存在“精神健康问题”。
 
-**欧盟外交与安全政策高级代表博雷利也发帖表达震惊，他写道，俄罗斯军队的暴行必须在国际法庭得到解释。**
+这名上尉的朋友和家人担心他是因为反对非法的疫苗强制令而受到惩罚。上尉在刑事诉讼中指出，多纳霍强制要求人们接种被他称为是已获美国食品药品监管局（FDA）批准的新冠疫苗。但实际情况并非如此，获得FDA批准的实际上是Comirnaty疫苗，而非辉瑞的新冠疫苗。现在，这名上尉因为提出申诉而被关押在精神病院。
 
-**德国外长贝尔博克谴责**“**普京肆无忌惮的使用暴力**”**，**“**摧毁无辜的家庭**”**。她也宣布将进一步启动对俄制裁。**
+一位在过去数小时与上尉进行了对话的知情人士透露，上尉心智健全，一直遵纪守法，没有任何暴力倾向。他认为以指挥官多纳霍为首的指挥系统，将本宁堡的精神健康系统武器化，对上尉进行报复，让他在追究该指挥官的犯罪行为时保持沉默。
 
-**
+这名上尉并非首次就疫苗非法起诉多纳霍，他此前就向总检察官提交了一份诉讼，指控多纳霍的疫苗强制令非法。但多纳霍利用将军训诫备忘录（GOMORS）对其进行报复，并要求调查委员会鉴定上尉是否有资格继续服役。
 
-[【援引连结】](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F%E8%A1%A8%E7%A4%BA%E8%A6%81%E5%B0%86%E4%BF%84%E5%86%9B%E6%9A%B4%E8%A1%8C%E9%80%81%E4%B8%8A%E5%9B%BD%E9%99%85%E6%B3%95%E5%BA%AD/a-61346348)
+这并非多纳霍首次成为新闻焦点。2021年7月，前海军军官、现正在密歇根州的希尔斯达耳学院 (Hillsdale College)就读的约塞亚·里平科特（Josiah Lippincott）就曾公开表示自己不认同多纳霍有关新冠疫苗的叙事。作为报复，多纳霍通过其官方推特账户呼吁大学派人“来抓他”。
 
-**推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
-【Gnews Top News New Zealand】盖特账号：
-**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
-新西兰Gnews】盖特账号：
-**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
-【玫瑰看新闻】盖特：
-**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
-ROSE NEWS推特账号：
-[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)
-**校对：小脑斧
-上传：漂流瓶**
-![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
-
+新闻来源：[EXCLUSIVE: Army Captain Placed in Mental Hospital for Accusing Commanding General Patrick Donahoe of Pushing Illegal Vaccine](https://www.thegatewaypundit.com/2022/04/breaking-exclusive-army-captain-placed-mental-hospital-accusing-commanding-general-patrick-donahoe-pushing-illegal-vaccine/)
 
  
 

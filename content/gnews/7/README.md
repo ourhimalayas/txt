@@ -2,10 +2,10 @@
 ---
 
 
-## 中共各部门不顾百姓死活
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2297871/)
+## 英国政府计划承认稳定币为法币
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2297941/)
 
-04/02/2022 这视频淋漓尽致地展现了，中共各部门在疫情期间是如何不顾百姓死活地互相踢皮球，不作为的。
+04/05/2022 英国政府计划承认稳定币为法币，以使英国发展为全球加密资产中心
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,25 +2,24 @@
 ---
 
 
-## 美国将宣布新的一揽子制裁措施 可能涉及普京的女儿
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2297817/)
+## 樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297902/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-90.jpg)[图片来源](https://www.mofa.go.jp/fp/nsp/page6e_000274.html#:~:text=the%20International%20Community-,The%20Fourth%20Japan%2DAustralia%2DIndia%2DU.S.%20%28Quad%29%20Foreign%20Ministers%E2%80%99%20Meeting,-February%2011%2C%202022)
+原定于4月下旬在日本东京举行的日美澳印四国首脑会议，有可能推迟至5月下旬举行。
 
-据焦点报4月5日报道，一位美国政府官员透露，美国将于4月6日星期三宣布对俄罗斯实施新的一揽子制裁措施，可能涉及普京的女儿。新措施是针对俄罗斯军队在基辅布查地区犯下的战争罪行。
+据日美外交相关人士称，政府已在协调4月下旬在日本举行的面对面四国首脑会议，由于参与国澳大利亚正在准备大选，协调工作遇到了困难，因此，四国会议推迟举行的可能性很大。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-4.jpeg)美国正准备对俄罗斯实施新的制裁。（图片来自焦点报）
+岸田首相在3月时曾呼吁拜登总统在4月下旬访问日本，举行四方会谈，拜登总统对日本的首次访问也将被重新调整。
 
-该官员透露，新措施旨在削弱俄罗斯国家权力的工具，并对俄罗斯造成严重和直接的经济损失。美国，欧盟和G7国家将加大对俄罗斯联邦金融机构和国有企业的制裁，这些制裁措施还将涉及一些俄罗斯官员和家庭成员。该官员补充道。
+信息源：
 
-星期二，欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）也宣布，欧盟对俄罗斯联邦实施第五轮一揽子制裁措施。
+[2022年4月6日 (水) よりYahoo! JAPANは欧州経済領域（EEA）およびイギリスからご利用いただけなくなりました](https://news.yahoo.co.jp/articles/4d0fab372b6d0094cd3811e8b8b71985c1bf7993#:~:text=%E3%80%90%)
 
-参考链接：
-[https://reurl.cc/Qjz67O](https://reurl.cc/Qjz67O)
-
-总编： 老孙
-校对发布：文曦
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
