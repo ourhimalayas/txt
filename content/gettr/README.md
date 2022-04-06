@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 10:00 PM (UTC)`
+
+新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-06<br/>For English：gettr.com/post/p13xgtj79b1
+![img](https://media.gettr.com/group13/origin/2022/04/06/22/9ccd6dbb-15b1-5987-4d52-11d251d392ca/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/6/2022 9:40 PM (UTC)`
 
  4月6号：尊敬的战友们好，刚刚的开完庭．收到了很多战友的问候……七哥在这里衷心地，感谢所有兄弟姐妹们的关心，❤️❤️❤️❤️❤️❤️❤️七哥向你们报平安了！
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 4/3/2022 Miles Guo: The CCP and Russia are targeted by the entire world. To get rid of food shortages and other difficulties, the CCP is bound to invade Taiwan. Xi's complete rejection and cessation of the policies of “keeping a low profile” and “pro-USA and away from Russia” reveal how intense the CCP’s political infighting is. I am calling for the world to stop the CCP from invading Taiwan. Once the CCP wages a war against Taiwan, the world must take action upon the CCP making its moves, not just condemn it.<br/><br/>4/3/2022 文贵直播: 中共和俄国在世界上人人喊打，为摆脱粮食危机等困境，中共必定孤注一掷攻打台湾；习太阳彻底否定和叫停韬光养晦、亲美远苏的政策揭示了中共党内政治斗争之激烈程度；文贵呼吁全世界制止中共犯台，一旦开战不能做口炮党，必须比中共出手还要快！<br/>
 ![img](https://media.gettr.com/group29/getter/2022/04/06/06/8b93f855-8f8e-92d2-23b9-91a49bd413e3/out.jpg)
-
----
-
-`@miles 4/6/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group12/origin/2022/04/06/04/f0f6ad61-4c86-944c-b853-67a62f5869d9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
