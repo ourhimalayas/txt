@@ -2,46 +2,32 @@
 ---
 
 
-## 七哥与刘国强通话要让他因大连房地产葫芦岛买地进监狱
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297535/)
+## 疫苗后遗症 带状疱疹患者急剧增加
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297639/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8829.38%EF%BC%89%E4%B8%83%E5%93%A5%E4%B8%8E%E5%88%98%E5%9B%BD%E5%BC%BA%E9%80%9A%E8%AF%9D%E8%A6%81%E8%AE%A9%E4%BB%96%E5%9B%A0%E5%A4%A7%E8%BF%9E%E6%88%BF%E5%9C%B0%E4%BA%A7%E8%91%AB%E8%8A%A6%E5%B2%9B%E4%B9%B0%E5%9C%B0%E8%BF%9B%E7%9B%91%E7%8B%B1%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:4)
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+新冠疫情到现在，对带状疱疹的警惕警钟必须被拉响。近畿大学医学部皮肤科主任教授大塚笃司说：“我在近畿大学附属医院诊治病人，从去年春天到夏天，带状疱疹人数增加了大概1.5倍~2倍左右的患者。”“老年人很容易被感染，一般50多岁的人较多，但是近期的异常现象是20多岁也有人接受诊疗。这也许是新冠疫情期间造成各种压力，使带状疱疹发病增加的原因。”
 
-**郭文贵先生：**大连这个王八蛋，这几个混蛋是什么人，你看着吧，完全是孟建柱、王岐山的走狗，残害咱们。你刚才你们说错了一个数，什么十几亿罚款，罚600亿好不好！Eric湿男，罚600亿！中国有史以来最大的罚款，罚600亿，加上股份没收是13亿美元哪！然后同时刚才那个大飞机那真的是七哥的飞机，不是基金的，是七哥的飞机。七哥公司叫WHYWIN (音)，跟那个AMAC，这个跟共产党和海航合作的公司把飞机给抢走了。你们想过你们被抢走个飞机，你们得哭成啥样。你们几个被抢了飞机，把你们衣服给你们脱了，你们都恨死七哥了，都不再跟爆料革命了，脱了你们件夹克你们都不再跟我了。你知道七哥有多惨。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/疫苗后遗症-带状疱疹患者急剧增加.png)[图片来源](https://newsatcl-pctr.c.yimg.jp/r/iwiz-amd/20220405-00004997-bss-000-2-view.jpg?exp=10800)
 
-现在刘国强这个王八蛋，当时他到这个欧洲去，咱们战友给我报告以后，我说我什么什么都不要，我说你把你电话打通，我给这个刘国强说个话。哎呀，郭先生那我不敢，我是被接待的呀，我是接待他的呀。我说你怕吗？他不会怎么着，我说你又不回国，把电话打通，就让他接电话。
+患带状疱疹的原因之一，小时候的水痘痊愈后还潜伏在体内的病毒因素导致。原因之二由于压力烦恼、疲劳、免疫力下降等原因，会再次活性化，引发带状疱疹。另外，也有新冠疫苗的接种后出现带状疱疹的情况。
 
-结果他在车上的时候，他就故意打通电话。用外音：郭先生，我车上有位客人，来自辽宁的国强副省长。这哥儿们欸——你说谁你说谁？说郭文贵，我就听见：关了关了关了，欸，我说刘国强，你不要关，我知道你在意大利干什么，你刚玩儿过女人，刚在四季酒店就买过春，但是我不会用这个把你干掉的。
+以20岁男性出现带状疱疹的诊诉为例 “一开始我后背只是痒，因为后背自己看不到，所以以为是被虫叮了，就放任了。过了3天左右，让熟人看后背，说不像是被虫叮咬，当时出现了水泡之类的东西，而且范围也扩大了。”男性立刻去诊所看病。诊断为带状疱疹，开了抗病毒药，之后除了瘙痒疼痛以外还出现了头痛和发热症状。
 
-我说我干掉你的事情就是你在大连，你搞房地产开发，葫芦岛买的地，我一定会把你送进监狱去。你害得我所有的家人和同事罚600亿，我一个不会放过你，我说再见了，这哥儿们傻眼了。这个战友现在就在听我的直播，刚才给我发信息。因为我说他知道我今天会谈到这个事儿，他当然没回国。这个战友得到了十万个币的奖励。当然现在回国也没事了，这小子也被抓了是吧，全部都被抄家了。
+“如果要找诱因的话，就是打了新冠疫苗10天左右后出现，我想就是这个原因了。去了2个诊所，两者都说是‘接种新冠疫苗后出现带状疱疹的人有几个’。” 大冢主任教授表示，新冠疫苗和带状疱疹的直接关系还不清楚，接种后需要注意。 “有论文认为，通过注射新冠疫苗，在脊髓处的免疫力被驱赶到其他免疫处起作用，因此此处的免疫力低下引起疱疹病毒增加。很多论文报告显示，新冠疫苗接种者有10%左右的人激活了疱疹病毒。”
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+消息来源：
+[2022年4月6日 (水) よりYahoo! JAPANは欧州経済領域（EEA）およびイギリスからご利用いただけなくなりました](https://news.yahoo.co.jp/articles/9628f0c179564c9c75b3f81b988cdc53f4b98ac7)
 
-编辑整理：Jacques；
-
-字幕档制作：知津；
-
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

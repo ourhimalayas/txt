@@ -2,47 +2,30 @@
 ---
 
 
-## 马斯克推出民意调查后，推特确认正在测试“编辑”按钮
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297247/)
+## 清明节连休国内旅行者比去年锐减63%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297289/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海6日路透社，经济日报5日报道，据中国运输省估计，3-5天清明节连休期间国内游客人数为5378万人。但是在中共病毒（新冠病毒Covid-19）疫情再次扩大的背景下，比上年同期减少了63%，与20年水平相比也低于约10%。
 
-#### 翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/清明节连休国内旅行者比去年锐减63.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.qunarzz.com%2Ftravel%2Fpoi%2F1501%2Fa4%2F0d09ad8da823f0.jpg_r_720x400x95_583da103.jpg&amp;imgrefurl=https%3A%2F%2Ftravel.qunar.com%2Fp-gj300667-zhongguo&amp;tbnid=wIVjnuWfCsVNQM&amp;vet=12ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ..i&amp;docid=OUy4YY1Gv9eyvM&amp;w=720&amp;h=400&amp;q=%E5%9B%BD%E5%86%85%E6%97%85%E8%A1%8C%20%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Musk-Twitter-stake.png)图片来源：[www.foxbusiness.com](https://www.foxbusiness.com/)
+中国各地，为了降低感染风险，限制交通量，强制旅行者进行病毒检测等活动正在扩散。 航班使用者下降特别明显，连休中的航班数为56万2000次，比上年减少了87%。道路交通量比上年减少了53%，与20年前的水平差距也小幅度下降了。
 
+野村证券在5日的报告中，估计国内23个城市引进的全面或部分封锁(城市封锁)影响的人数约为1亿9300万人。23个城市占国内人口的比例是13.6%，占国内生产总值(GDP)22%。另外，欧亚集团的分析师认为，中共病毒疫情管制对服务业和中小企业来说是最受打击的。
 
-根据ABC NEWS4月6日报道，推特（Twitter）正在测试一项功能，该功能允许用户在推文发布后编辑推文。该公司周三表示，在其最大股东埃隆·马斯克 (Elon Musk) 对他的追随者进行了一项有争议的民意调查后开始了此项测试。
+消息来源：
+[中国清明節の3連休、旅行者前年比63％減　コロナ感染拡大で](https://news.yahoo.co.jp/articles/dc3ec57a769d3d7a4458223b1663c2f72e76b72f)
 
-这家社交媒体巨头确认它一直在开发一个编辑按钮，此前它似乎在愚人节开玩笑提到了该功能。
-
-推特于4月1日星期五在推特上表示，它正在“开发一个编辑按钮”。
-
-该帖子被许多人视为一个笑话，因为多年来一直在讨论这种按钮的可能性。
-
-推特周三表示，它不是在开玩笑，并补充说，它将在未来几个月内开始与 Twitter Blue付费订阅服务的成员一起测试编辑功能。
-
-尽管最近质疑该平台对言论自由的承诺，但亿万富翁埃隆·马斯克成为该公司最大的股东和最新的董事会成员之后，推特发表了此声明。
-
-周二，马斯克在推特上发布了一项互动民意调查，向他的8000万粉丝提出了一个问题：“你想要一个编辑按钮吗？”
-
-以马斯克先生的典型风格，这项民意调查也像是一个笑话，因为提供的两个回答是“是”和“赞成”，而不是“是”和“否”。
-
-推特首席执行官 Parag Agrawal告诉用户：“这次民意调查的结果很重要。请谨慎投票。”
-
-在超过440万张选票之后，马斯克的民意调查中的大多数受访者（74%）投了“赞成票”。
-
-此前自称“言论自由绝对主义者”的马斯克表示，他期待与推特董事会合作，“在未来几个月内对推特做出重大改进”。
-
-新闻来源：[Twitter confirms it is testing an ‘edit’ button, after Elon Musk polls his followers over the contentious feature](https://www.abc.net.au/news/2022-04-06/twitter-edit-button-elon-musk-poll-followers-feature/100969394)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

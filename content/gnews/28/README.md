@@ -2,33 +2,36 @@
 ---
 
 
-## 数字资产交易应受高度监管，币安前途堪忧
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297085/)
+## 泽连斯基在联合国演讲中抨击俄罗斯暴行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297130/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+#### 【雅典娜快讯】，紧贴时代脉博
 
-#### 翻译/编辑：小红帽
+#### 翻译：文扬
+编辑：文泓
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/09bff96a-103b-439c-a7e2-85d640512e42.jpg)图片来源：[www.ft.com](https://www.ft.com/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片30.png)图片来源：Malay Mail & 雅典娜设计组
 
 
-根据COINGEEK4月5日报道，美国证券交易委员会（SEC）主席Gary Gensler周一在宾夕法尼亚大学向宾夕法尼亚州法律资本市场协会发表讲话，重申了SEC对监管数字资产交易平台的承诺。
+美东时间周三，乌克兰总统泽连斯基在联合国安理会的一次现场视频演讲中，对俄罗斯的入侵行为进行了最有力的谴责，称俄罗斯人是战争罪犯，他痛斥俄罗斯人杀害平民，当着孩子的面强奸妇女，让他的国家成为一片废墟，“到处是乱坟岗”。
 
-对于许多人来说，Gensler演讲的主旨已经不言而喻：现行法律已经适用于数字资产，无论技术多么新颖。
+这次在他访问基辅郊区布查后的第二天后发表讲话，当时布查街头令人震惊地出现许多平民尸体。泽连斯基称这些人都是被撤退的俄罗斯军队杀死的。乌克兰总统表示，如果安理会不能做到这一点，它的存在就就毫无用处，要想办法追究肇事者的责任。
 
-“没有理由因为使用了不同的技术就对加密货币市场进行区别对待。我们应该是技术中立。”Gensler说。
+泽连斯基谈到撤离的俄罗斯军队时说：“现在世界可以看到俄军在布查犯下的罪行，而安全理事会需要保证的安全在哪里？”
 
-Gensler详细谈到了他对数字资产交易所的担忧。他表示交易所的市场是 “高度集中的”，前五大平台占了所有数字资产交易的99%，其中两个平台（币安和Coinbase）占了80%的交易。
+联合国没有执行该组织创始宪章的基本原则，因而未能避免战争的发生。
 
-“这些平台很可能在交易证券。虽然每个代币的法律地位取决于其自身的事实和情况，但鉴于委员会对各种证券代币的经验，以及这么多代币的交易，任何特定平台的提供证券交易的数量为零的概率相当小。”
+“请展示我们将如何改革并为和平而努力”，泽连斯基恳请理事会成员：“否则，如果你除了谈话之外没有什么可以做的，那就解散吧。”
 
-任何提供证券交易的平台必须在美国证券交易委员会注册为证券交易所，并遵守其严格的消费者保护要求。因此，任何未能做到这一点的交易所，以及任何数字资产证券的发行人，都是非法行为。
+克里姆林宫否认对布卡或乌克兰其他地方的平民暴行负有任何责任，并表示北郊处决式杀戮的照片和视觉证据是捏造的。
 
-今年初，BlockFi同意向美国证券交易委员会和美国32个州支付1亿美元的罚款，原因是其未能按照美国证券法的要求注册其数字资产借贷产品。
+《纽约时报》对卫星图像的分析反驳了俄罗斯的说法，即在其士兵离开该镇后，布查的平民被杀。
 
-在Gensler的最新演讲中，他概述了SEC正在采取的直接措施，以确保数字资产交易所受到适当监管。其中最主要的是迫使这些平台提交与任何其他交易所相同的监管要求。换句话说，将数字资产交易所完全视为已经受到高度监管的股票交易平台。
+泽连斯基说，“他们杀死了整个家庭，包括成人和儿童，并试图焚烧尸体”。布卡的一些受害者是“从后脑勺被射杀的”，而“一些人是在街上被射杀的，还有一些人被扔进了水井”。
 
-新闻来源：[SEC Chair Gary Gensler: ‘No reason’ to treat digital asset market differently under securities laws](https://coingeek.com/sec-chair-gary-gensler-no-reason-to-treat-digital-asset-market-differently-under-securities-laws/)
+泽连斯基还呼吁建立一个类似审判纳粹战犯的纽伦堡法庭，起诉对暴行负有责任的俄罗斯人，包括莫斯科的领导人。
+
+原文链接：[Volodymyr Zelensky: Ukrainian President details alleged Russian atrocities in hard-hitting UN speech – CNN](https://edition.cnn.com/2022/04/05/world/zelensky-ukraine-united-nations-speech-intl/index.html)
 
 发布：*wenly*
 
@@ -36,7 +39,7 @@ Gensler详细谈到了他对数字资产交易所的担忧。他表示交易所�
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

@@ -2,50 +2,42 @@
 ---
 
 
-## 泽伦斯基呼吁安理会驱逐俄罗斯 否则没有存在意义
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2297633/)
+## 在巨变的世界中我们是主角,接下来要行动！行动！行动！
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297682/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-45.jpg)
-合众国际社4月5日–乌克兰总统沃弗拉基米尔·泽连斯基周二出现在联合国安理会上，语气迫切地敦促安理会采取果断行动，帮助乌克兰人，结束俄罗斯军队占领和对平民的暴力。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8834.38%EF%BC%89%E5%9C%A8%E5%B7%A8%E5%8F%98%E7%9A%84%E4%B8%96%E7%95%8C%E4%B8%AD%E6%88%91%E4%BB%AC%E6%98%AF%E4%B8%BB%E8%A7%92%2C%E6%8E%A5%E4%B8%8B%E6%9D%A5%E8%A6%81%E8%A1%8C%E5%8A%A8%EF%BC%81%E8%A1%8C%E5%8A%A8%EF%BC%81%E8%A1%8C%E5%8A%A8%EF%BC%81%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:9)
 
-泽连斯基告诉安理会，莫斯科的领导人正在扮演殖民主义者的角色，他们想把乌克兰人变成“沉默的奴隶”。
+**郭文贵先生：**兄弟姐妹们，接下来是要行动。世界在巨变，而在巨变当中我们是主角，我们不是配角。不要被那些动物世界里面那些小蚊子、小苍蝇影响狮子、豹子的行动，它永远不会。大象不会在乎这些蚊子的，没有蚊子的森林不是大象生存的地方。我们要接受这些，而且最终蚊子是蚊子，大象是大象，狮子还是狮子。
 
-在慷慨激昂的演讲中，他还说，俄罗斯已经将其在安理会的否决权变成了“死亡权”，**联合国机构必须阻止俄罗斯和其他专制国家对平民发动战争**。
+我们今天能做的事情是他们一生当中永远无法做的。他们就带着一生的耻辱走进他们的地狱，受地狱的审判。我们一定是创造我们的未来，创造我们人间的天堂和我们未来万佛万神庇护的未来的永恒的人生。兄弟姐妹们，行动！行动！行动！
 
-“乌克兰需要和平，”他说。“欧洲需要和平。世界需要和平。”
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-与许多分析家一样，泽伦斯基指出，所有现有的证据，包括卫星图像，都清楚地驳斥了俄罗斯关于针对平民的攻击是乌克兰自己操作的说法。数周来，俄罗斯一直在告诉俄罗斯公民，它正在乌克兰执行“维和”任务，以消除这个前苏联共和国的新纳粹意识形态和行为。官员们说，莫斯科几乎封锁了所有外部新闻资源，以遮掩其行径。
+编辑整理：Jacques；
 
-泽连斯基和联合国秘书长安东尼奥·古特雷斯星期二都呼吁立即对俄罗斯的行动进行调查。
+字幕档制作：知津；
 
-“这是2022年，”泽伦斯基说。“我们可以进行全面和透明的调查，这就是我们所呼吁的。”
+视频制作及上传：Cindy；
 
-几天前，乌克兰开始出现一连串图片，显示俄罗斯占领区的平民死亡，以及其他潜在战争罪行的证据。
+G-News发布：海贼王M.D.LUFFY；
 
-泽伦斯基说：“不幸的是，这只是占领者在过去41天里在我国领土上所做事情的一个例子。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-38.jpg)
-乌克兰官员说，自俄罗斯军队上周从布查（Bucha）撤退以来，迄今已发现300多具尸体。泽连斯基说，他相信随着官员们在该地区清理更多的房屋，总数将不断攀升，更多的暴行将被发现——并要求安理会立即采取果断行动。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-**“****你准备好关闭联合国了吗？”他问安全理事会。“你认为国际法的时代已经过去了吗？如果你的答案是否定的，那么你需要立即采取行动。”**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-“世界可以看到俄罗斯在布查的所作所为，”他说，详细介绍了一些暴行。“但世界还没有看到他们在我国其他被占领城市和地区的所作所为。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**乌克兰总统补充说，安全理事会必须驱逐俄罗斯，否则它对任何国家都没有意义，应该自我解散。**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-包括美国总统拜登在内的世界各国领导人都表示，对平民的袭击构成了战争罪。拜登还说，俄罗斯总统弗拉基米尔·普京应该面临战争罪的审判。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-**几乎可以肯定的是，安理会将对俄罗斯的军事行动无所作为，因为俄罗斯对安理会提出的任何行动都有否决权。**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-43.jpg)
-**古特雷斯周二早些时候在安理会会议上说：“乌克兰的战争是对国际秩序和建立在联合国宪章基础上的全球和平架构的最大挑战之一。因为其性质、强度和后果**。**”**
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-“战争导致了毫无意义的生命损失、城市中心的大规模破坏和民用基础设施的毁坏。”
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**“****我永远不会忘记在布查被杀的平民的画面，我即刻呼吁进行独立调查，以保证有效问责。”**
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-新闻链接：[https://www.upi.com/Top\_News/World-News/2022/04/05/volodymyr-zelensky-russia-war-ukraine/1091649155884/](https://www.upi.com/Top_News/World-News/2022/04/05/volodymyr-zelensky-russia-war-ukraine/1091649155884/)
-
-[https://www.un.org/sg/en/node/262886](https://www.un.org/sg/en/node/262886)
+G-TV：日本银河系农场。
 
  
 

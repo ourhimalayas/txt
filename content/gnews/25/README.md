@@ -2,34 +2,44 @@
 ---
 
 
-## 中日财经爆┃俄罗斯支付系统与中共合作躲避制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297211/)
+## 中共疫情清零政策耽误春耕加剧粮食短缺危机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297229/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日，俄罗斯国内支付系统的一名高管表示，俄罗斯正转向中共国的微芯片制造商，以绕过西方制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯支付系统与中共合作躲避制裁.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fafndaily.com%2Fwp-content%2Fuploads%2F2022%2F04%2FUnionPayMir_FU220307.jpg&amp;imgrefurl=https%3A%2F%2Fafndaily.com%2F%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%259B%25BD%25E5%2586%2585%25E9%2593%25B6%25E8%25A1%258C%25E5%258D%25A1%25E9%259C%2580%25E6%25B1%2582%25E6%2580%25A5%25E5%258D%2587-%25E6%25AD%25A3%25E5%259C%25A8%25E8%25BD%25AC%25E5%2590%2591%25E4%25B8%25AD%25E5%259B%25BD%25E7%259A%2584%25E5%25BE%25AE%25E8%258A%25AF%25E7%2589%2587%2F&amp;tbnid=oLCNMDpEBo4QSM&amp;vet=12ahUKEwi3kaj_4_72AhUJaRoKHWzVAV8QMygBegUIARCqAQ..i&amp;docid=Bgil_y7qCgOGHM&amp;w=508&amp;h=248&amp;q=%E5%BE%AE%E8%8A%AF%E7%89%87%20%E9%93%B6%E8%81%94%E7%B3%BB%E7%BB%9F&amp;ved=2ahUKEwi3kaj_4_72AhUJaRoKHWzVAV8QMygBegUIARCqAQ)
-俄罗斯国家支付卡公司(NSPK)董事会成员奥列格·蒂沙科夫表示，俄罗斯正面临微芯片短缺，因亚洲制造商在中共病毒大流行期间暂停生产，且欧洲供应商在制裁后停止与俄罗斯合作。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-俄罗斯一些最大的银行被踢出了环球银行金融电信协会(SWIFT)，国际支付卡Visa和万事达卡已经停止为俄罗斯的海外账户提供服务。上个月，Mir系统与苹果支付(Apple Pay)的联系也被切断。
+#### 整理：等风来
+编辑：李易通
 
-“我们正在寻找新的微芯片供应商，在中国找到了几家，正在进行认证，”蒂沙科夫在周二的一次会议上表示，但并未透露更多细节。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-11.png)图片来源：雅典娜设计组
 
-根据路透社基于Mir系统数据的计算，NSPK在2021年底至今年3月期间发行了超过200万张Mir卡，目前已累积发卡1.16亿张。
 
-俄罗斯所有主要银行都报告称，对这种国内卡的需求有所增加。一些俄银行现在与中国银联联合发卡。银联是替代Visa和万事达卡的支付系统，为俄罗斯人在海外购物提供支付服务。
+2022年04月06日报道，中共严厉的[疫情](https://www.epochtimes.com/gb/tag/%25E7%2596%25AB%25E6%2583%2585.html)[清零](https://www.epochtimes.com/gb/tag/%25E6%25B8%2585%25E9%259B%25B6.html)政策，不仅对城市经济造成巨大停滞，也耽误了农业[春耕](https://www.epochtimes.com/gb/tag/%25E6%2598%25A5%25E8%2580%2595.html)。在农业大省[吉林](https://www.epochtimes.com/gb/tag/%25E5%2590%2589%25E6%259E%2597.html)，清零政策与粮食生产之间的冲突不断凸显。再加上乌克兰战争导致粮食价格飙升，中国或面临粮食供应方面的严峻挑战。
 
-消息来源:
-[俄罗斯民众对国内银行卡需求急升 俄转向中国制造商寻求微芯片供应](https://cn.reuters.com/article/russia-china-bank-card-microchips-0405-t-idCNKCS2LY01M?il=0)
+[吉林](https://www.epochtimes.com/gb/tag/%25E5%2590%2589%25E6%259E%2597.html)是中国第二大玉米种植区，种植面积占全国的10%。由于染疫人数激增，东北部省份已被封锁数周，物流、种子、农业物资等运输都受到影响，人员也无法自由流动，这或导致农民今年无法及时在田里种植农作物。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+根据中国大陆媒体财新网报导，正值[春耕](https://www.epochtimes.com/gb/tag/%25E6%2598%25A5%25E8%2580%2595.html)关键时期，吉林省却正在爆发新一轮[疫情](https://www.epochtimes.com/gb/tag/%25E7%2596%25AB%25E6%2583%2585.html)，玉米的核心产区吉林深受影响，预计临时储备的玉米售罄后，今年产需缺口大约在2000万吨以上。
+
+彭博社4月5日报导，目前中国是最大的玉米和大豆进口国，由于国内粮食短缺，近年来的海外采购量不断创历史新高，从而进一步推升了全球价格。
+
+随着俄乌战争加剧，作为世界主要粮仓的俄罗斯和乌克兰出口都受到战争影响，中国买家转向美国等购买谷物。
+
+中国农民因疫情耽误春耕，也让中共感到紧张，中共在北京召开的玉米和水稻生产工作推进会议上，中共国务院副总理胡春华称，近几年玉米播种面积下降较多的地方要加快恢复。
+
+吉林省官员最近几天也强调，如果农民满足某些条件，包括检测呈阴性并且不是密切接触者，可以从4月5日起“申请回家”。
+
+美国总统拜登上月在欧盟峰会上表示，美国政府对俄罗斯实施制裁后，全球粮食短缺“将成为现实”。
+
+联合国世界粮食计划署（WFP）也警告说，战争严重威胁该部门向全球1.25亿民众提供粮食的救援工作，“这对于全球的粮食影响，是自第二次世界大战以来所未见。”
+
+参考链接：[中共疫情清零政策耽误春耕加剧粮食短缺危机](https://www.epochtimes.com/gb/22/4/5/n13697501.htm)
+
+发布：*wenly*
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
