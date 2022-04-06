@@ -15,137 +15,137 @@
 
 ---
 
-### [采访一名来自德国的志愿者](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
+### [有声|所罗门群岛不允许中共军事入驻](/content/gnews/1/README.md)
+ ` MOSREC`
 
-### [COVID-19疫苗副作用集萃——打疫苗后整个人虚弱、干眼症、破坏肠道](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乌克兰：印度强烈谴责杀害布查平民的行为](/content/gnews/3/README.md)
+### [美国务卿布林肯宣布最新对乌不超一亿美元军事援助](/content/gnews/2/README.md)
  ` 波士顿五月花农场金融部`
 
-### [欧盟在最新一轮制裁针对普京的女儿和少数寡头](/content/gnews/4/README.md)
- ` Shuizhuyu`
+### [泽连斯基对格莱美奖说： 用你的音乐填补沉默](/content/gnews/3/README.md)
+ ` topnews`
 
-### [2022/03/31 墙内世界](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [4/06/2022 银河快讯：自民党对乌克兰平民被害表示难以置信，必须制裁，加强对俄罗斯的谴责；国防部正在考虑在北海道建立一个 &#8220;电子战 &#8220;部队](/content/gnews/4/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
-### [有声｜美国批准爱国者防空系统援台](/content/gnews/6/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [波兰采购坦克应对俄罗斯军事侵略威胁](/content/gnews/5/README.md)
+ ` NFSC News`
 
-### [有声｜白宫：美国和盟国禁止在俄罗斯进行新投资](/content/gnews/7/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [澳大利亚加速军购应对中共侵台计划](/content/gnews/6/README.md)
+ ` NFSC News`
 
-### [中共国正在与俄罗斯合作来为与美国和亚洲的战争作准备](/content/gnews/8/README.md)
+### [郭先生预警粮食危机已至](/content/gnews/7/README.md)
+ ` NFSC News`
+
+### [中日财经爆┃中共国清明节出行人数远低于三年前](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [采访一名来自德国的志愿者](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [有声｜战火导致乌克兰的农产品难以运输出境](/content/gnews/9/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [COVID-19疫苗副作用集萃——打疫苗后整个人虚弱、干眼症、破坏肠道](/content/gnews/10/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [救援时刻&#8211;黑夜勇士 （2）](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [乌克兰：印度强烈谴责杀害布查平民的行为](/content/gnews/11/README.md)
+ ` 波士顿五月花农场金融部`
 
-### [有声｜上海疫情失控 封城上演“集中营”式悲剧](/content/gnews/11/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [欧盟在最新一轮制裁针对普京的女儿和少数寡头](/content/gnews/12/README.md)
+ ` Shuizhuyu`
 
-### [2022/03/30 墙内世界](/content/gnews/12/README.md)
+### [假“疫情”之名，中共在公开杀人](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [2022/03/31 墙内世界](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G时新闻】由美国、英国、澳洲组成的印太区军事安全同盟将开展超高音速武器合作](/content/gnews/13/README.md)
- ` G-时新闻`
+### [有声｜美国批准爱国者防空系统援台](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [救援时刻&#8211;黑夜勇士 （1）](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [有声｜白宫：美国和盟国禁止在俄罗斯进行新投资](/content/gnews/16/README.md)
+ ` 秘密翻译组-即时新闻播报组`
 
-### [2022/04/06 英喜时事速递](/content/gnews/15/README.md)
+### [中共国正在与俄罗斯合作来为与美国和亚洲的战争作准备](/content/gnews/17/README.md)
+ ` 波士顿五月花农场`
+
+### [有声｜战火导致乌克兰的农产品难以运输出境](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [2022/03/30 墙内世界](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [普京直接控制下的一些国家党卫军拒绝进入乌克兰参战](/content/gnews/16/README.md)
+### [2022/04/06 英喜时事速递](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [普京直接控制下的一些国家党卫军拒绝进入乌克兰参战](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰财经G乐部2022年4月6日:财经新闻整理](/content/gnews/17/README.md)
+### [新西兰财经G乐部2022年4月6日:财经新闻整理](/content/gnews/22/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [上海持续封控，海归清华才女在医院窒息死亡](/content/gnews/18/README.md)
+### [上海持续封控，海归清华才女在医院窒息死亡](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国经济将在疫苗灾难中崩溃](/content/gnews/19/README.md)
+### [中共国经济将在疫苗灾难中崩溃](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [7·24系列——香港棺木严重短缺](/content/gnews/20/README.md)
+### [7·24系列——香港棺木严重短缺](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜山东男违反居家令 遭防疫人员强剃“阴阳头”](/content/gnews/21/README.md)
+### [有声｜山东男违反居家令 遭防疫人员强剃“阴阳头”](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [马斯克认购推特将改变社交媒体现状](/content/gnews/22/README.md)
+### [马斯克认购推特将改变社交媒体现状](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [布查杀戮：＂我宁愿我也被他们杀死了＂](/content/gnews/23/README.md)
+### [布查杀戮：＂我宁愿我也被他们杀死了＂](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊隆•马斯克要调教推特❗️](/content/gnews/24/README.md)
+### [伊隆•马斯克要调教推特❗️](/content/gnews/29/README.md)
  ` mayflowertranslate`
 
-### [美敦促取消俄在联合国人权理事会资格](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场《枫叶快讯》`
-
-### [7-Eleven将向特许经营者支付9800万美元的集体诉讼和解](/content/gnews/26/README.md)
+### [7-Eleven将向特许经营者支付9800万美元的集体诉讼和解](/content/gnews/30/README.md)
  ` 走进澳洲`
 
-### [澳大利亚银行为零排放制定2035年时间表](/content/gnews/27/README.md)
+### [澳大利亚银行为零排放制定2035年时间表](/content/gnews/31/README.md)
  ` 走进澳洲`
 
-### [COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡](/content/gnews/28/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃G20或拒绝俄罗斯参会](/content/gnews/29/README.md)
+### [樱花时政┃G20或拒绝俄罗斯参会](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：欧盟加大对俄罗斯的施压力度，普京的两个女儿也面临制裁](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [数字化货币大势所趋花旗银行高管们纷纷离职转行](/content/gnews/31/README.md)
- ` mayflowertranslate`
-
-### [郭先生4月5日盖特：形势逼人，“摸金校尉”重出江湖](/content/gnews/32/README.md)
+### [郭先生4月5日盖特：形势逼人，“摸金校尉”重出江湖](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [再有两到三周世界会再次震撼,每次大直播都经历大转变](/content/gnews/33/README.md)
+### [再有两到三周世界会再次震撼,每次大直播都经历大转变](/content/gnews/35/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [只有灭共的新中国联邦人和G系列投资者才能免于被制裁](/content/gnews/34/README.md)
+### [只有灭共的新中国联邦人和G系列投资者才能免于被制裁](/content/gnews/36/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬](/content/gnews/35/README.md)
+### [樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一名美军军官因指控上级推广的新冠疫苗非法而遭到报复](/content/gnews/36/README.md)
+### [一名美军军官因指控上级推广的新冠疫苗非法而遭到报复](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [应对中共威胁，澳英美联盟承诺合作开发高超音速导弹](/content/gnews/37/README.md)
+### [应对中共威胁，澳英美联盟承诺合作开发高超音速导弹](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入](/content/gnews/38/README.md)
+### [俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入](/content/gnews/40/README.md)
  ` 關注組`
 
-### [俄罗斯寡头阿布拉莫维奇不得不靠借钱度日](/content/gnews/39/README.md)
- ` 日本东京方舟农场`
-
-### [中日财经爆┃俄罗斯支付系统与中共合作躲避制裁](/content/gnews/40/README.md)
+### [中日财经爆┃俄罗斯支付系统与中共合作躲避制裁](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际｜美国海军司令称密切关注中共与所罗门群岛的秘密安排](/content/gnews/41/README.md)
+### [国际｜美国海军司令称密切关注中共与所罗门群岛的秘密安排](/content/gnews/42/README.md)
  ` 關注組`
 
-### [台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助](/content/gnews/42/README.md)
+### [台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助](/content/gnews/43/README.md)
  ` 關注組`
 
-### [国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演](/content/gnews/43/README.md)
+### [国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演](/content/gnews/44/README.md)
  ` 關注組`
-
-### [新中国联邦人在世界为国人争面子 为华人保安全](/content/gnews/44/README.md)
- ` NFSC News`
 
 ### [精粮采访来自加州圣地亚哥的艺术家奥黛丽·琼斯](/content/gnews/45/README.md)
  ` 喜马拉雅-华盛顿DC农场`

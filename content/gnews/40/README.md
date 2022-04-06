@@ -2,34 +2,25 @@
 ---
 
 
-## 中日财经爆┃俄罗斯支付系统与中共合作躲避制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297211/)
+## 俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297315/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日，俄罗斯国内支付系统的一名高管表示，俄罗斯正转向中共国的微芯片制造商，以绕过西方制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯支付系统与中共合作躲避制裁.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fafndaily.com%2Fwp-content%2Fuploads%2F2022%2F04%2FUnionPayMir_FU220307.jpg&amp;imgrefurl=https%3A%2F%2Fafndaily.com%2F%25E4%25BF%2584%25E7%25BD%2597%25E6%2596%25AF%25E5%259B%25BD%25E5%2586%2585%25E9%2593%25B6%25E8%25A1%258C%25E5%258D%25A1%25E9%259C%2580%25E6%25B1%2582%25E6%2580%25A5%25E5%258D%2587-%25E6%25AD%25A3%25E5%259C%25A8%25E8%25BD%25AC%25E5%2590%2591%25E4%25B8%25AD%25E5%259B%25BD%25E7%259A%2584%25E5%25BE%25AE%25E8%258A%25AF%25E7%2589%2587%2F&amp;tbnid=oLCNMDpEBo4QSM&amp;vet=12ahUKEwi3kaj_4_72AhUJaRoKHWzVAV8QMygBegUIARCqAQ..i&amp;docid=Bgil_y7qCgOGHM&amp;w=508&amp;h=248&amp;q=%E5%BE%AE%E8%8A%AF%E7%89%87%20%E9%93%B6%E8%81%94%E7%B3%BB%E7%BB%9F&amp;ved=2ahUKEwi3kaj_4_72AhUJaRoKHWzVAV8QMygBegUIARCqAQ)
-俄罗斯国家支付卡公司(NSPK)董事会成员奥列格·蒂沙科夫表示，俄罗斯正面临微芯片短缺，因亚洲制造商在中共病毒大流行期间暂停生产，且欧洲供应商在制裁后停止与俄罗斯合作。
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌局势致能源价格飙涨，全球通胀持续扩大，欧盟部分成员国高度依赖俄罗斯能源供给，为降低全球对俄罗斯能源的依赖，日前美欧成立新的伙伴关系，美方承诺向欧盟出口150亿立方米的液化天然气，且未来将继续增加出口量。俄罗斯总统普京则要求欧盟不友好名单国家应以卢布购买天然气，否则断供，此举恐加剧影响国际能源及粮食价格。
 
-俄罗斯一些最大的银行被踢出了环球银行金融电信协会(SWIFT)，国际支付卡Visa和万事达卡已经停止为俄罗斯的海外账户提供服务。上个月，Mir系统与苹果支付(Apple Pay)的联系也被切断。
+欧洲统计局数据，2020年欧盟自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气，其中以主席国德国最依赖俄罗斯能源。经欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）证实，欧盟委员会提议将俄罗斯煤炭纳入制裁清单中，可能对俄实施“每年高达40亿欧元的煤炭进口禁令”为削减俄罗斯另一重要能源收入。
 
-“我们正在寻找新的微芯片供应商，在中国找到了几家，正在进行认证，”蒂沙科夫在周二的一次会议上表示，但并未透露更多细节。
+即便欧盟高度依赖俄罗斯能源，惟各界逐渐掌握俄军在乌克兰犯下的战争罪行，欧盟考虑将煤炭进口禁令添加到第五轮制裁中，是否落实仍应视当地时间周三会议结果。
 
-根据路透社基于Mir系统数据的计算，NSPK在2021年底至今年3月期间发行了超过200万张Mir卡，目前已累积发卡1.16亿张。
+德国高度依赖俄罗斯天然气，该国财政部长克里斯蒂安·林德纳表示“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系，但目前不可能切断天然气供应。”
 
-俄罗斯所有主要银行都报告称，对这种国内卡的需求有所增加。一些俄银行现在与中国银联联合发卡。银联是替代Visa和万事达卡的支付系统，为俄罗斯人在海外购物提供支付服务。
+来源｜[cnbc](https://www.cnbc.com/2022/04/05/european-union-could-ban-russian-coal-imports-sources-say.html)、[bloomberg](https://www.bloomberg.com/news/articles/2022-04-05/eu-to-propose-banning-coal-imports-from-russia-after-atrocities)
 
-消息来源:
-[俄罗斯民众对国内银行卡需求急升 俄转向中国制造商寻求微芯片供应](https://cn.reuters.com/article/russia-china-bank-card-microchips-0405-t-idCNKCS2LY01M?il=0)
+* * *
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

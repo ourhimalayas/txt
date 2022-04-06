@@ -2,25 +2,24 @@
 ---
 
 
-## 俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297315/)
+## 一名美军军官因指控上级推广的新冠疫苗非法而遭到报复
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2297860/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌局势致能源价格飙涨，全球通胀持续扩大，欧盟部分成员国高度依赖俄罗斯能源供给，为降低全球对俄罗斯能源的依赖，日前美欧成立新的伙伴关系，美方承诺向欧盟出口150亿立方米的液化天然气，且未来将继续增加出口量。俄罗斯总统普京则要求欧盟不友好名单国家应以卢布购买天然气，否则断供，此举恐加剧影响国际能源及粮食价格。
+#### 翻译/撰稿：zzballack
 
-欧洲统计局数据，2020年欧盟自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气，其中以主席国德国最依赖俄罗斯能源。经欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）证实，欧盟委员会提议将俄罗斯煤炭纳入制裁清单中，可能对俄实施“每年高达40亿欧元的煤炭进口禁令”为削减俄罗斯另一重要能源收入。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-11.jpg)图片来源：Republic World
+据《网关专家》（Gateway Pundit）4月5日报道，一名美国上尉4月4日向美国陆军刑事调查司令部（Criminal Investigation Division，CID）提交了一份刑事诉讼，指控美国陆军军事基地本宁堡（Fort Benning）的指挥官帕特里克·多纳霍 (Patrick Donahoe) 推动人们接种的新冠疫苗是非法的，因为疫苗并未获得官方批准。但是CID的官员们不仅不调查此事，反而向上尉所指控的那些人举报了这名吹哨人。多纳霍随后派人将这名上尉送入本宁堡的医院，理由是他们认为上尉存在“精神健康问题”。
 
-即便欧盟高度依赖俄罗斯能源，惟各界逐渐掌握俄军在乌克兰犯下的战争罪行，欧盟考虑将煤炭进口禁令添加到第五轮制裁中，是否落实仍应视当地时间周三会议结果。
+这名上尉的朋友和家人担心他是因为反对非法的疫苗强制令而受到惩罚。上尉在刑事诉讼中指出，多纳霍强制要求人们接种被他称为是已获美国食品药品监管局（FDA）批准的新冠疫苗。但实际情况并非如此，获得FDA批准的实际上是Comirnaty疫苗，而非辉瑞的新冠疫苗。现在，这名上尉因为提出申诉而被关押在精神病院。
 
-德国高度依赖俄罗斯天然气，该国财政部长克里斯蒂安·林德纳表示“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系，但目前不可能切断天然气供应。”
+一位在过去数小时与上尉进行了对话的知情人士透露，上尉心智健全，一直遵纪守法，没有任何暴力倾向。他认为以指挥官多纳霍为首的指挥系统，将本宁堡的精神健康系统武器化，对上尉进行报复，让他在追究该指挥官的犯罪行为时保持沉默。
 
-来源｜[cnbc](https://www.cnbc.com/2022/04/05/european-union-could-ban-russian-coal-imports-sources-say.html)、[bloomberg](https://www.bloomberg.com/news/articles/2022-04-05/eu-to-propose-banning-coal-imports-from-russia-after-atrocities)
+这名上尉并非首次就疫苗非法起诉多纳霍，他此前就向总检察官提交了一份诉讼，指控多纳霍的疫苗强制令非法。但多纳霍利用将军训诫备忘录（GOMORS）对其进行报复，并要求调查委员会鉴定上尉是否有资格继续服役。
 
-* * *
+这并非多纳霍首次成为新闻焦点。2021年7月，前海军军官、现正在密歇根州的希尔斯达耳学院 (Hillsdale College)就读的约塞亚·里平科特（Josiah Lippincott）就曾公开表示自己不认同多纳霍有关新冠疫苗的叙事。作为报复，多纳霍通过其官方推特账户呼吁大学派人“来抓他”。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+新闻来源：[EXCLUSIVE: Army Captain Placed in Mental Hospital for Accusing Commanding General Patrick Donahoe of Pushing Illegal Vaccine](https://www.thegatewaypundit.com/2022/04/breaking-exclusive-army-captain-placed-mental-hospital-accusing-commanding-general-patrick-donahoe-pushing-illegal-vaccine/)
 
  
 

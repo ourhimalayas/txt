@@ -2,28 +2,34 @@
 ---
 
 
-## 秘翻在线：欧盟加大对俄罗斯的施压力度，普京的两个女儿也面临制裁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2298200/)
+## 7-Eleven将向特许经营者支付9800万美元的集体诉讼和解
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2298304/)
 
-撰稿：小号手
-![](https://assets.gnews.org/wp-content/uploads/2022/04/그림1-12.jpg)图片来源：本文链接
-据韩国《每日新闻》4月6日的新闻，《华尔街日报》(WSJ)5日(当地时间)援引相关外交官的话报道说，在俄罗斯入侵乌克兰后，出现了对俄罗斯领导层家属进行制裁的呼声，欧盟(EU)提议对俄罗斯总统普京的两个女儿进行制裁。
+翻译/编辑：Rianna
+![](https://assets.gnews.org/wp-content/uploads/2022/04/a1649243353630.jpg)图片来源：Financial Review
+便利店巨头7-Eleven已同意向特许经营商支付近1亿美元的集体诉讼和解，这些特许经营商表示，他们在商店的盈利能力方面被误导了。
 
-欧盟当天除了禁止俄罗斯产煤炭和禁止俄罗斯陆路运输及船舶接近外，还发表了包括扩大普京总统的亲信、企业家、高层官员等制裁对象在内的新制裁案，正在等待欧盟成员国的批准。如果成为制裁对象，资产将被冻结，旅行也将被禁止。
+该索赔于2018年提出，指控该公司误导了他们提供给潜在特许经营商的文件和记录中劳动力成本的准确性，以及特许经营商必须支付的平均工资。
 
-普京总统的个人史鲜为人知，但有关他家人的内容却备受关注。普京总统与前妻鲁德米拉•普蒂纳生下了两个女儿玛丽亚•博龙佐娃和卡特琳娜•蒂科诺娃。2013年，普京与普蒂纳结束了约30年的婚姻生活，离婚了。
+在《悉尼先驱晨报》和《时代报》和《四角》的联合调查发现系统性工资盗窃和工资记录篡改后，该连锁店被迫向工人偿还超过1.73亿美元。前澳大利亚竞争和消费者委员会老板Allan Fels曾领导过7-Eleven设立的还款小组，他在2020年底告诉《悉尼先驱晨报》和《时代报》，1.73亿美元并没有反映所有未支付的工资。
 
-有关两个女儿的信息几乎蒙着一层神秘的面纱。2015年普京总统曾公开过关于两个女儿毕业于俄罗斯大学、会说多种语言的部分内容。据悉，大女儿博龙佐娃是俄罗斯最大民间保健项目相关的诺门科的共同所有者，二女儿蒂科诺娃在莫斯科州立大学运营人工智能研究所。
+Fels教授说，当计划向工人付款达到1.65亿美元时，“他们决定这已经足够了，他们有效地关闭了该计划”。
 
-总统发言人德米特里·佩斯科夫在2020年曾表示，普京总统对有关他的个人史或健康状况的各种出版物并不太在意。但俄罗斯国营通讯社塔斯此前曾解释说，普京总统不公开自己的个人历史是因为“希望安全问题和他所爱的人保持匿名，过上正常的生活”。
+公平工作监察员还发起了多项调查，就薪酬问题起诉了11名7-Eleven特许经营商，累计对他们处以180万美元的罚款，相当于全国少付额的1%左右。
 
-另外，克里姆林宫发言人德米特里·佩斯科夫对彭博社表示：“不知道欧盟制裁相关内容，正在等待正式发表”。
+经营集体诉讼的Levitt Robinson律师事务所的合伙人Stewart Levitt表示，特许经营商认为员工成本约占业务成本的7%，但实际上约为13%。特许经营商还声称，7-Eleven仅允许特许经营商以特定价格从特定供应商购买股票，违反了与某些集体诉讼成员的合同。周三，联邦法院法官David O’Callaghan签署了双方去年8月达成的9800万美元的和解协议，这笔钱将存放在信托中。7-Eleven在一份声明中表示，和解是在承认过失的情况下达成的，这笔款项包括所有法律费用。
 
-由此可见，欧盟对俄罗斯的制裁已上升了一等级，要对普京实行全面的攻击。
+首席执行官Angus McKay表示，该公司很高兴此事达成了“可接受的解决方案”，并补充说，7-Eleven还投资了5000万美元用于防止工资盗窃的系统，并培训特许经营商“与他们在这方面的责任有关”。
 
-信息来源：[https://www.edaily.co.kr/news/read?newsId=02069686632293496&mediaCodeNo=257&OutLnkChk=Y](https://www.edaily.co.kr/news/read?newsId=02069686632293496&amp;mediaCodeNo=257&amp;OutLnkChk=Y)
+新闻来源：[https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis](https://www.theage.com.au/politics/federal/7-eleven-to-pay-franchisees-98-million-in-class-action-settlement-20220406-p5abei.html?btis)
 
-责编：Eric Kim
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1%20/t%20_blank%20/h)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena%20/t%20_blank%20/h)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ%20/t%20_blank%20/h)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu%20/t%20_blank%20/h)
 
  
 

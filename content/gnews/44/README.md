@@ -2,39 +2,29 @@
 ---
 
 
-## 新中国联邦人在世界为国人争面子 为华人保安全
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296743/)
+## 国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296854/)
 
-作者：纽约香草山农场 – 恩永存
+**图/文｜CP**
+**发布时间｜06/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AUKUS開展超高音速武器合作-中共威脅或引發類似烏克蘭衝突重演.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-4月4日，郭文贵先生在盖特视频中郑重宣告：新中国联邦人在世界为中国人争面子，为海外华人保安全。乌克兰前线的战友，为新中国联邦人树立了新形象。几十位战友响应新中国联邦法治基金的救援昭唤，勇跃报名，泪别亲人，冒着生命危险，踏上未知征程，迅速到达了乌克兰的边境。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-4.jpg)
-战友们每天从前线传回消息，现场直播，全方位给新中国联邦和世界传递真实情况，让前后方团队极时做出调整，让救援场所，救援物资，救援方式做到最大化，让乌克兰出关的难民得到最好的接待，让感染中共病毒的战友们得到最专业医生的指导治疗，让战友们更加团结友爱，让救援在大爱中持续进行。
-
-战友们与国际组织的友好合作，与全球记者的互访，与乌克兰难民的一幕幕真情流露，触动了许多人的良知。战友们凭着一腔热血，存着善良之心，湧流出真爱，结交了新朋友，收获了新战友，为中国人争得了面子，为海外华人保安全！
-
-参考链接：
-1. [4月4号：尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！](http://4月4号：尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！)（视频：7:32-9:33）
-2. [4/4/2022 Miles Guo’s GETTR: After going through so much hardship, my two songs finally got launched and immediately topped the iTunes charts in countries such as the US, Canada, Australia, New Zealand, and Taiwan.](https://gettr.com/post/p13mttr20f7)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑：呼吸的雾霾（文小呼吸）
-总编：zhong
-审核：飞虹
-校对/发稿：为真不破20
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+根据美国总统拜登（Joe Biden）、英国首相约翰逊（Boris Johnson）及澳洲总理莫里森（Scott Morrison）针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
 
+AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美亦会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
 
+有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
+
+來源｜[彭博社](https://www.bloomberg.com/news/videos/2022-04-05/australia-u-k-u-s-to-develop-hypersonic-missiles-video)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
