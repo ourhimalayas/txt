@@ -2,25 +2,53 @@
 ---
 
 
-## 在中共国，跟上面反映一下，有用吗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298161/)
+## COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298229/)
 
-撰稿：东京樱花团/ tdownc2p
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-最近看了许多疫情期间各地封控后，造成百姓生活困难、甚至生命受到威胁时，有人被逼无奈，有人气愤不过，给有关部门打电话的音视频，最后基本会结束在一句话上：跟上面反映一下。善良的老百姓天真的认为，自己困境，上级领导会帮助，只是不知情，需要电话那头的人给反映一下。打了电话，心里就有了着落，有了希望，又能耐心的等上一阵子，可能时间会有点长，但从心里还是能体谅上级领导日理万机，总会给自己一个交待的。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-12.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F1612F%2Fproduction%2F_123951409_2022-03-28t053403z_1958128752_rc2ebt9n7x38_rtrmadp_3_health-coronavirus-china-1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-60930018&amp;tbnid=duKRmNkFvCiDVM&amp;vet=12ahUKEwjO87PZmP_2AhVX7rsIHbg9AokQMygAegUIARCbAQ..i&amp;docid=IEo4zSTKuJuF1M&amp;w=640&amp;h=359&amp;q=%E5%B0%81%E6%8E%A7&amp;hl=zh-CN&amp;ved=2ahUKEwjO87PZmP_2AhVX7rsIHbg9AokQMygAegUIARCbAQ)
-百姓的这种思维继承自千年来的明君、清官崇拜，继而又被中共的谎言所欺骗，相信了电视报纸和墙内网络媒体的宣传，以为上面的领导和政策是好的，是下面的人执行不力。
+整理/编辑：gardeniahu
 
-可怜的百姓请你们好好想一想，疫情之前，你们过的好吗？如果说还算可以的话，那也都是靠你们自己的双手打拼出来的，这个党和政府帮过你们什么？国家帮你养过小孩，还是帮你照顾过老人？上学免费还是住房免费？看病能花的起钱吗？国家给过你们多少福利？官员的任免，百姓有发言权吗？你敢停下来享受一下生活吗？如果答案都是“否”的话，你们还想指望上面的领导在内外交困时会牵挂百姓的安危吗？不知道他们一直都有“领导先走”的传统吗？
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-1.png)图片来源：雅典娜设计组(614)
 
-生死关头，相信共产党，就是奔向火葬场，寄希望于上面、高层、中央的百姓，真的是命悬一线，不断的跟上面的上面去反映，换来的也只是下一个等待，等着等着，一个人甚至一个家庭就毁了。
 
-行到水穷处，恰是云起时，大难之中，方显土匪本色，希望百姓灵光乍现，顿悟到中共原来全是谎言欺骗，才有挣脱束缚，找到生路的可能。
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
+帖子原文：
+
+**疫情|新冠疫苗副作用    打完康诺希，我感觉我快废了**
+
+一位pro vaccine的医生注射新冠疫苗后去世
+
+一位妇产科医生在注射疫苗后，血小板诡异的降到0，导致出血性中风死亡。
+
+所以，疫苗会是抗击疫情的良药吗？对于疫苗，大部分美国人持质疑和观望态度。但是在每天确诊几十万的情况下，不注射疫苗，这个疫情几年也过不去啊。
+
+如果部分成人不注射疫苗，加上18岁以下的孩子还没被批准注射疫苗，疫情也不能结束。
+
+要抑郁了啊，药不能停。
+
+#新冠疫苗
+
+发布于2021一01一1 1
+
+精选评论
+
+想要一条狗   回复：吃什么药都有可能死人主要是看死亡率。得covid死亡率那还是高太多了。。。
+
+Emily&Erica   回复：昨天我看见一个小红书也是扎了疫苗发生血小板减少，是个女生，大家有没有知道她小红书叫什么的，我找不到了。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-587.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-588.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-589.png)图片来源：小红书
+参考链接：[注射新冠疫苗后去世](http://www.xiaohongshu.com/discovery/item/5ffb2794000000000100b31c?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649155943)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

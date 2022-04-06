@@ -2,39 +2,25 @@
 ---
 
 
-## 新中国联邦人在世界为国人争面子 为华人保安全
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296743/)
+## 台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296984/)
 
-作者：纽约香草山农场 – 恩永存
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-1.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国国防安全合作局（DSCA）5日宣布，批准售台“爱国者专案人员技术协助案”，总价9500万美元（约新台币27.24亿），行政部门已通知国会，有望在1个月后正式生效。新闻稿表示，台方要求购买技术援助支持，包含爱国者防空系统、设备与后勤的维护、操作和规划等；主要承包商为雷神科技公司。这是美国2022年第二度对台军售。
 
+这项军售案，有助有助台湾维持飞弹密度，确保台湾空中作战战备能力，且**DSCA强调**本对台军售有助强化台湾安全、区域政治稳定、军事平衡，**符合美国国家、经济和安全利益**。
 
+台湾国防部对美军售表示，感谢美政府持续落实《台湾关系法》及“六项保证”对台湾的安全承诺。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+2021年11月，美国国会美中经济暨安全审查委员会（USCC）最新年度报告指出，中共已具备或即将取得初步犯台能力，其中报告指出解放军已有能力对台发动海空封锁、网攻与导弹攻击。为维持美国履行台湾关系法下义务的能力，建议在印太地区大量部署飞弹系统，并加强台湾向美国军购能力。
 
+来源｜[udn](https://udn.com/news/story/10930/6217447)、[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79726&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)、[CNA](https://www.cna.com.tw/news/firstnews/202111180015.aspx)
 
+* * *
 
-4月4日，郭文贵先生在盖特视频中郑重宣告：新中国联邦人在世界为中国人争面子，为海外华人保安全。乌克兰前线的战友，为新中国联邦人树立了新形象。几十位战友响应新中国联邦法治基金的救援昭唤，勇跃报名，泪别亲人，冒着生命危险，踏上未知征程，迅速到达了乌克兰的边境。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11-4.jpg)
-战友们每天从前线传回消息，现场直播，全方位给新中国联邦和世界传递真实情况，让前后方团队极时做出调整，让救援场所，救援物资，救援方式做到最大化，让乌克兰出关的难民得到最好的接待，让感染中共病毒的战友们得到最专业医生的指导治疗，让战友们更加团结友爱，让救援在大爱中持续进行。
-
-战友们与国际组织的友好合作，与全球记者的互访，与乌克兰难民的一幕幕真情流露，触动了许多人的良知。战友们凭着一腔热血，存着善良之心，湧流出真爱，结交了新朋友，收获了新战友，为中国人争得了面子，为海外华人保安全！
-
-参考链接：
-1. [4月4号：尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！](http://4月4号：尊敬的战友们好．衷心的感谢．战友们在过去几个小时，将我们的新的两个在苹果iTunes刚刚发布的《锁链梦》《灭共的雪》歌曲．在全球很多国家打榜第一名和第二名，一切都已经开始！)（视频：7:32-9:33）
-2. [4/4/2022 Miles Guo’s GETTR: After going through so much hardship, my two songs finally got launched and immediately topped the iTunes charts in countries such as the US, Canada, Australia, New Zealand, and Taiwan.](https://gettr.com/post/p13mttr20f7)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑：呼吸的雾霾（文小呼吸）
-总编：zhong
-审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

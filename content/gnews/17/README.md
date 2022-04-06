@@ -2,42 +2,25 @@
 ---
 
 
-## 只有灭共的新中国联邦人和G系列投资者才能免于被制裁
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297997/)
+## 在中共国，跟上面反映一下，有用吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298161/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8837.38%EF%BC%89%E5%8F%AA%E6%9C%89%E7%81%AD%E5%85%B1%E7%9A%84%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%BA%BA%E5%92%8CG%E7%B3%BB%E5%88%97%E6%8A%95%E8%B5%84%E8%80%85%E6%89%8D%E8%83%BD%E5%85%8D%E4%BA%8E%E8%A2%AB%E5%88%B6%E8%A3%81%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
+撰稿：东京樱花团/ tdownc2p
 
-**郭文贵先生：**所以告诉大家不是因为你是中国人，今天我文艺、我双胞胎我就在日本我不受你制裁，你一样被受制裁。唯一让你不受制裁的就一招，你别以为你是混血，你们像这样是灭共的新中国联邦人，唯一一个财富能得到安全的，我是新中国联邦的G系列投资者，我是灭共的，第二我是灭共的新中国联邦人，你不会受制裁。我给你百分之百保证，今天的重点在哪明白了吗？明白了吗？
+最近看了许多疫情期间各地封控后，造成百姓生活困难、甚至生命受到威胁时，有人被逼无奈，有人气愤不过，给有关部门打电话的音视频，最后基本会结束在一句话上：跟上面反映一下。善良的老百姓天真的认为，自己困境，上级领导会帮助，只是不知情，需要电话那头的人给反映一下。打了电话，心里就有了着落，有了希望，又能耐心的等上一阵子，可能时间会有点长，但从心里还是能体谅上级领导日理万机，总会给自己一个交待的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-12.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F1612F%2Fproduction%2F_123951409_2022-03-28t053403z_1958128752_rc2ebt9n7x38_rtrmadp_3_health-coronavirus-china-1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fchinese-news-60930018&amp;tbnid=duKRmNkFvCiDVM&amp;vet=12ahUKEwjO87PZmP_2AhVX7rsIHbg9AokQMygAegUIARCbAQ..i&amp;docid=IEo4zSTKuJuF1M&amp;w=640&amp;h=359&amp;q=%E5%B0%81%E6%8E%A7&amp;hl=zh-CN&amp;ved=2ahUKEwjO87PZmP_2AhVX7rsIHbg9AokQMygAegUIARCbAQ)
+百姓的这种思维继承自千年来的明君、清官崇拜，继而又被中共的谎言所欺骗，相信了电视报纸和墙内网络媒体的宣传，以为上面的领导和政策是好的，是下面的人执行不力。
 
-不会因为你是中日混血不制裁你，你有游艇、你有飞机保证给你封了，是因为你是新中国联邦人，你飞机、游艇你可以拥有，Mamoru桑你明白我意思了吗？你那挂的大金哨子是吧？那么有钱，你像金三胖，像金五胖也不行，是不是？你飞机、游艇也得给你封了，是吧，但是你是新中国联邦人，就看着你了，你就是金大胖，那就行了，明白了文艺？这今天的重点是，在西方对共产党在制裁的时候，唯一让你资本安全的，G系列、喜币、喜联储、G-TV，唯一让你安全的就是作为灭共的新中国联邦人。
+可怜的百姓请你们好好想一想，疫情之前，你们过的好吗？如果说还算可以的话，那也都是靠你们自己的双手打拼出来的，这个党和政府帮过你们什么？国家帮你养过小孩，还是帮你照顾过老人？上学免费还是住房免费？看病能花的起钱吗？国家给过你们多少福利？官员的任免，百姓有发言权吗？你敢停下来享受一下生活吗？如果答案都是“否”的话，你们还想指望上面的领导在内外交困时会牵挂百姓的安危吗？不知道他们一直都有“领导先走”的传统吗？
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+生死关头，相信共产党，就是奔向火葬场，寄希望于上面、高层、中央的百姓，真的是命悬一线，不断的跟上面的上面去反映，换来的也只是下一个等待，等着等着，一个人甚至一个家庭就毁了。
 
-编辑整理：Jacques；
+行到水穷处，恰是云起时，大难之中，方显土匪本色，希望百姓灵光乍现，顿悟到中共原来全是谎言欺骗，才有挣脱束缚，找到生路的可能。
 
-字幕档制作：知津；
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
 
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
 
  
 

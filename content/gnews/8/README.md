@@ -2,40 +2,29 @@
 ---
 
 
-## 捷克共和国向乌克兰派遣坦克、步兵战车
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2298138/)
+## 乌克兰布查杀戮事件，美欧准备出台新的制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2298213/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+#### 【雅典娜观察】和您一起洞察世界
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+整理/编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-586.png)图片来源：Financial Times & 雅典娜设计组
+乌克兰利沃夫消息，美国及其盟国周三（4月6日）准备对莫斯科实施新的制裁，是因为在基辅北部发生的平民杀戮事件，总统泽连斯基将其描述为“战争罪”，要求给予相应的惩罚。
+本周，在乌军夺回的布查镇发现俄军近距离枪杀平民后，乌克兰官员说，在布查一座教堂的万人坑里可能有150至300具尸体。
+俄罗斯一贯地否认其在布查以平民为目标，并污蔑西方伪造证据。
+一家美国公司表示，几周前拍摄的卫星图像显示该镇一条街道上有平民尸体；路透社记者在布查看到至少四名受害者的头部中弹，其中一名双手被绑在背后。
+白宫表示，定于周三公布的新制裁部分是对布查杀戮的回应，制裁对象针对俄罗斯银行和官员，并禁止在俄罗斯进行新投资。
+欧盟27个成员国必须批准的欧盟拟议制裁措施，禁止购买俄罗斯煤炭并阻止俄罗斯船只进入欧盟港口。
+欧盟执行官乌尔苏拉·冯德莱恩表示，欧盟也在努力禁止石油进口。乌克兰表示，禁止俄罗斯天然气对于在和平谈判中达成结束战争的协议至关重要。
+在周二向联合国安理会发表热情洋溢的讲话后，泽连斯基表示，“对俄罗斯的新制裁必须与入侵战争罪行的严重性相匹配”。
+原文链接：[US, allies ready new Russia sanctions after Bucha killings – CNA (channelnewsasia.com)](https://www.channelnewsasia.com/world/us-allies-ready-new-russia-sanctions-after-bucha-killings-2610731)
 
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/T55B2XB6VBOPJNW7MPJZEVZ4UI.jpg)
-
-
-资料来源：路透社
-
-捷克国防消息人士周二告诉路透社，捷克共和国已向乌克兰派遣了 T-72 坦克和 BVP-1 步兵战车，证实了当地媒体的报道。
-
-公共广播公司捷克电视台最初报道了这批货物，在推特上播放了一辆满载五辆坦克和五辆战车的火车的镜头。它说这批货物是与北约盟国商定的礼物。
-
-该广播公司表示，捷克下议院欧洲事务委员会主席翁德雷·贝内西克证实了这一信息，他告诉路透社，他从基督教民主党的国防专家那里收到了这一信息。
-
-来自捷克国防界的消息人士也证实，坦克和战车已被派出，但以安全问题为由拒绝提供任何进一步的细节。
-
-国防部长雅娜切尔诺霍娃告诉议会，她不会确认或否认捷克对乌克兰的援助细节。
-
-“我只会向你保证，捷克共和国正在尽其所能帮助乌克兰，并将继续通过（提供）轻型和重型军事装备来提供帮助，”切尔诺霍娃说。
-
-国防部发言人表示，自 2 月 24 日战争开始以来，捷克共和国已向乌克兰提供了价值近 10 亿克朗（4500 万美元）的军事援助，但拒绝提供任何进一步的细节。
-
-捷克车辆只是来自西方的军事装备的最新例子。由于批评柏林没有向基辅提供足够的军事援助，德国于 4 月 1 日批准向乌克兰交付数十辆步兵战车（IFV）。
-
-北约秘书长延斯·斯托尔滕贝格表示，北约盟国将在周三和周四的外交部长会议上讨论向乌克兰运送更多武器的问题。
-
-🔗 [https://www.reuters.com/world/europe/czech-republic-sends-tanks-ukraine-czech-tv-reports-2022-04-05/](https://www.reuters.com/world/europe/czech-republic-sends-tanks-ukraine-czech-tv-reports-2022-04-05/)
-
-责任编辑、发布： Shuizhuyu
+发布：tianzhihuan
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

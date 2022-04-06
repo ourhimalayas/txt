@@ -2,36 +2,26 @@
 ---
 
 
-## 德国总统承认在俄罗斯政策上犯了错误
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2298142/)
+## 上海隔离集中营又出惨案 清华才女无人吸痰被憋死
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298220/)
 
-By: 喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-584.png)图片来自网络
-德国现任总统弗兰克·瓦尔特·施泰因迈尔周二承认，近年来德国忽视了东欧国家早先对俄罗斯侵略的警告，表示对俄罗斯的政策应该更加谨慎和持怀疑态度。特别是在2014年俄罗斯侵占克里米亚之后。
+撰稿：东京樱花团/秋明
 
-施泰因迈尔曾两次担任德国前总理安格拉·默克尔手下的外交部长。在他任外交部长期间，2014年俄罗斯入侵乌克兰并控制了克里米亚半岛，并挑起东部顿巴斯地区的战争。
+近日一则关于清华才女硅谷海归李昶，在上海某康复医院无人护理而去世的信息在微信群传播。
 
-乌克兰外交部长德米特罗·库莱巴对施泰因迈尔的诚实之言表示欢迎，并呼吁德国和其他欧盟国家迅速纠正这些失误，采取行动帮助乌克兰并加强对俄罗斯的制裁。
+李昶夫妇硅谷成功后回国创业，因为意外无行动力，需要有人及时吸痰。丈夫把妻子放上海某高档护理中心。疫情后丈夫不上班护理妻子，护理中心发现了阳性病人，所有人要求离开。丈夫请求和妻子一起隔离不被允许，而后被警察抓走。护理中心许诺安排护理人员，实际上负责的护理人员并不会吸痰，最后，李昶在有意识的状态不，被活活憋死。
 
-施泰因迈尔先生承认建设北溪2号管道是一个错误。在他担任德国外交部长期间，德国加强了与俄罗斯的能源关系。当时，德国不顾俄罗斯对克里米亚的行动，决定继续建设北溪2号管道。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs1.gushiju.net%2Fcy_imgs%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593.jpg&amp;imgrefurl=https%3A%2F%2Fwww.gushiju.net%2Fchengyu%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593&amp;tbnid=RRN5ROkpHefJmM&amp;vet=12ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ..i&amp;docid=2R07WkcIo0oHBM&amp;w=500&amp;h=333&amp;q=%E6%83%A8%E6%97%A0%E4%BA%BA%E9%81%93&amp;hl=zh-CN&amp;ved=2ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ)
 
-尽管现任德国总理奥拉夫·肖尔茨在今年2月俄罗斯入侵乌克兰的前几天内，取消了北溪2号的能源项目，但这一错误已经使德国失去了很多信用和信誉。
+李昶可谓是站在事业制高点的成功人士，虽然遭遇不测但是有深爱他的丈夫，本来在家人的悉心照料下有望慢慢恢复，岂料在这场没有人性的隔离运动中，痛苦死去！怎么不让人唏嘘惋惜？
 
-这个错误的政策导致德国目前高度依赖俄罗斯的燃料。德国正在寻找新的天然气和石油来源，并承诺在不久的将来完全切断从俄罗斯进口能源。乌克兰呼吁德国立即停止向俄罗斯输送数十亿欧元的天然气款项。
+在中共的魔爪之下，不管身处哪个层次都可能是他们的祭品，唯有铲除这个恶魔，才能还地球和平！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-3.jpg)
+消息来源：微信群
 
-德国对俄罗斯政策上的失误与西方允许中共国加入世界贸易组织犯的是同样的错误。西方曾天真地认为让中共国加入世贸组织可以使中共国变成一个民主国家，成为世界自由贸易体的一部分。
-
-事实证明，中共无法接受一个开放的，以市场为导向的贸易制度。中共国不但不遵守世贸组织的基本原则，而且离成为市场经济国家越来越远。
-
-这些教训开始让西方国家醒悟，只有推翻独裁体制，才能维护好世界秩序，并保持世界和平。
-
-参考消息：
-1. [German President Steinmeier admits ‘mistakes’ over Russia policy](https://www.dw.com/en/german-president-steinmeier-admits-mistakes-over-russia-policy/a-61362153)
-2. [US says China WTO membership was a mistake](https://www.ft.com/content/edb346ec-fd3a-11e7-9b32-d7d59aace167)
-
-*审核：喜国公民*
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

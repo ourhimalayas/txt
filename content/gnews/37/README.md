@@ -2,29 +2,26 @@
 ---
 
 
-## 国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296854/)
+## 俄罗斯寡头阿布拉莫维奇不得不靠借钱度日
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2297288/)
 
-**图/文｜CP**
-**发布时间｜06/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/AUKUS開展超高音速武器合作-中共威脅或引發類似烏克蘭衝突重演.jpg)
+**撰稿：日本东京方舟农场  北极**
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+据乌克兰焦点报4月4日报道，俄罗斯寡头罗曼·阿布拉莫维奇（Roman Abramovich）向朋友借款至少一百万美元来维持度日，以缓解资产被冻结的窘境。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-72.png)俄罗斯寡头罗曼·阿布拉莫维奇（Roman Abramovich）。（图片来自焦点报）
 
-由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
+俄乌战争爆发后不久，英国和欧盟在3月初对阿布拉莫维奇实施了制裁，阿布拉莫维奇的财富为143亿美元。他曾试图卖掉他在英国的房产和切尔西足球俱乐部，均告失败。其在美国的对冲基金也遭到冻结。
 
-根据美国总统拜登（Joe Biden）、英国首相约翰逊（Boris Johnson）及澳洲总理莫里森（Scott Morrison）针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
+消息人士透露，他联系了昔日的好友，包括好莱坞制片人兼导演布雷特·拉特纳（Brett Ratner）和罗斯柴尔德家族（Rothschild family）等，均因顾忌国际法，暂不同意借钱给他。
 
-AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美亦会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
+阿布拉莫维奇每周在员工上的支出至少为75万美元，包括他的五艘游艇船员的工资。
 
-有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
+参考链接：
+[https://reurl.cc/ak2vL9](https://reurl.cc/ak2vL9)
 
-來源｜[彭博社](https://www.bloomberg.com/news/videos/2022-04-05/australia-u-k-u-s-to-develop-hypersonic-missiles-video)
-
-* * *
-
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+总编：老孙
+校对发布：爱放飞
 
  
 

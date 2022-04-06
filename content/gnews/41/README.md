@@ -2,39 +2,29 @@
 ---
 
 
-## 巴基斯坦总理被解职 印证郭文贵先生情报
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296742/)
+## 国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296854/)
 
-作者：日本方舟农场 – Andy5
+**图/文｜CP**
+**发布时间｜06/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AUKUS開展超高音速武器合作-中共威脅或引發類似烏克蘭衝突重演.jpg)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
-
-当地时间3月31日，巴基斯坦反对党表示，已经获得足够票数，将在周日启动投票罢免总理。据悉当时反对党已经争取到了196个议员的支持，高于投票中所需的172人。4月4日，巴基斯坦总理不出意料地，在解散议会后被解职，目前的总理权限保留至选出临时总理为止。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-4.jpg)
-早在3月30日的大直播中，郭文贵先生就已经指出，中共要让巴基斯坦动乱，因为现在的领导人不是百分之百对中共言听计从。
-
-观察人士指出，无论是年初的哈萨克斯坦动乱，还是当前的巴基斯坦总理被罢免，都在像郭先生爆料的那样发展。由此足以看出爆料革命情报的准确性。
-
-参考链接：
-1. [巴基斯坦反对党称“获足够票数罢免总理”，伊姆兰·汗：我会奋战到底](https://www.sohu.com/a/534425598_313745)
-2.  [巴基斯坦总理批评“外国势力”密谋推翻其政府，结果“不小心”点了美国](https://world.huanqiu.com/article/47QaKycAu8L)
-3. [巴基斯坦总理伊姆兰·汗被解职，将留任至选出临时总理](https://www.sohu.com/a/535261959_313745)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：zhong
-审核：飞虹
-校对/发稿：为真不破20
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
 
+由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+根据美国总统拜登（Joe Biden）、英国首相约翰逊（Boris Johnson）及澳洲总理莫里森（Scott Morrison）针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
 
+AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美亦会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
 
+有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
+
+來源｜[彭博社](https://www.bloomberg.com/news/videos/2022-04-05/australia-u-k-u-s-to-develop-hypersonic-missiles-video)
+
+* * *
+
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 
