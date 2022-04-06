@@ -2,28 +2,34 @@
 ---
 
 
-## 这也是我们的战争：白俄罗斯志愿者加入乌克兰武装部队
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2300189/)
+## 卫星技术拍摄的布查大屠杀铁证
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2300231/)
 
-**撰稿：日本东京方舟农场  北极**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/cWQ89wyt5jZCQWtT2YCJR8-1651-80.jpg)
+据外媒报道，Maxar Technologies公司的WorldView-3卫星拍摄技术清晰拍摄了布查大屠杀的惨烈现场。卫星图像显示平民尸体散落在布查镇的街道上，还有一个乱葬坑。这个乱葬坑是一个长约45英尺的壕沟，而在3月10日的卫星图像上显示了对此的初步挖掘。
 
-据焦点报4月6日报道，在利沃夫成立的白俄罗斯信息中心负责人阿丽娜·鲁迪娜（Alina Rudina）在新闻发布会上呼吁，白俄罗斯的命运取决于俄乌战争的胜利者，因此这也是我们的战争。
+根据时间推移，卫星图像拍摄了俄罗斯在布查的大屠杀铁证。Maxar卫星的清晰度足以分辨人物、汽车和其他的小物体。据悉Maxar目前有四颗卫星都在太阳同步轨道上，这是一种特殊的极地轨道，它能够不断捕获白天的图形，也能在不到一天的时间内恢复同一块地面的图像。在3月18、19、31日的卫星图像中，有四张图像显示尸体躺在街道，这和目击者的地点相吻合。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-76.png)乌克兰武装部队中白俄罗斯军团的士兵。（图片来自焦点报）
+乌克兰总统发言人表示，乌克兰平民遭受了极其惨烈的折磨和处死，但俄罗斯即刻否认了这一点。联合国敦促对此事进行独立调查，这些残忍的屠杀、强奸、和处决行为严重违反了国际人道主义法和人权法，必须保存一切证据，并安抚受害者家人。
 
-鲁迪娜呼吁说，“我们的国家也被俘虏了，它处于卢卡申科和俄罗斯的领导者之下。我们一直在采用灵活的铁路游击战术来反击这个伪政府。此外，反抗者们还把有关俄罗斯军队的部署情报向外界传递。”
+reference：
 
-据鲁迪娜称，白俄罗斯信息中心的任务是启动乌克兰公民与白俄罗斯公民之间的信息交流进程，特别是向乌克兰人传达有关白俄罗斯境内发生的反抗活动。
+[https://www.livescience.com/bucha-massacre-captured-satellite](https://www.livescience.com/bucha-massacre-captured-satellite)
 
-鲁迪纳声称，现在已经有多达1000名白俄罗斯志愿者正在乌克兰一方并肩作战。在波兰华沙还有大约1000人申请加入该军团。一旦通过测试，他们将前往乌克兰。
+撰稿、发布：骄子
 
-参考链接：
-1.[https://reurl.cc/AKo0ne](https://reurl.cc/AKo0ne)
-2.[https://reurl.cc/44ZW52](https://reurl.cc/44ZW52)
+* * *
 
-总编：老孙
-校对发布：爱放飞
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

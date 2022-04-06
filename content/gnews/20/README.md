@@ -2,32 +2,95 @@
 ---
 
 
-## 美联盟因布查大屠杀而对俄罗斯发起新一波制裁
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2299873/)
+## 有声|对话
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299987/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-06-at-22.58.26-1.png)
-当地时间4月6日周三，因俄罗斯对乌克兰布查平民大屠杀事件，乌克兰总统泽连斯基称这是战争罪，要求对俄惩罚。美国及其盟国对俄罗斯发起新的制裁。
+粵語配音：香草山香港部 – 格格樹
 
-乌克兰官员表示布查教堂乱葬坑里可能有150-300具尸体。西方国家也发现有被近距离枪击而死亡的平民。布林肯表示这些战争暴行是俄罗斯蓄意的，白宫表示，最新一波制裁是对布查大屠杀的回应。制裁由美国、欧盟、G7集团国等27个联盟国家发起，包括对俄银行和官员以及家人的制裁，禁止在俄投资，以及禁止欧盟购买俄煤，禁止俄船只进入欧盟港口，努力禁止俄石油进口。新西兰表示会对俄进口商品征收35%的关税，美国芯片公司INTEL已经暂停俄公司运营。俄小城卡卢加的汽车制造业因外国制裁数千名汽车工人被解雇，食品价格不断上涨。
+献给香港反送中献奉生命的人和他们的母亲
 
-reference：
+孩子
+你在街上
+请注意安全
+妈妈我担心
+彻夜难眠
+粗暴的警察
+如瘟疫降临
+挥舞警棍
+无情凶猛
+孩子 孩子
+早点回家
+让妈妈心安
 
-[https://www.reuters.com/world/europe/us-allies-ready-new-russia-sanctions-after-bucha-killings-2022-04-06/](https://www.reuters.com/world/europe/us-allies-ready-new-russia-sanctions-after-bucha-killings-2022-04-06/)
+妈妈
+别为我担心
+抗议的人们
+在街头汹涌
+我在人群里
+见证正义联盟
+我的未来
+不应该活在专制强权
+自由的灵魂
+不接受统治者独裁
+同伴们流着血受了伤
+我留下来帮忙
+恶警在不远处咆哮
+企图让我们服从
+不，妈妈
+自由的灵魂
+不接受统治独裁
+我留下来
+照顾受伤的同伴
 
-撰稿、发布：骄子
+孩子
+我的孩子
+请给我回音 电视里看到
+有人被枪弹击中
+你没有回音
+没有回音
+没有
+回音
 
-* * *
+一切又归于平静
+夜如此深 片片的风
+吹着我伤心
+心—碎的如此痛
+我的孩子
+你的灵
+是否在我附近
 
-欢迎订阅我们的GNews账号：
+妈妈
+我就在你头顶
+你那么悲伤
+眼泪不停流淌
+我爱你
+妈妈
+来生
+我还要做你的孩子
+我们一起 重新体验人生
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+希望
+独裁被人们推翻
+你能活在自由世界
+我也能
+含笑九泉
+妈妈
+再见
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+文字版原文：[对话](https://gnews.org/zh-hans/2292245/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

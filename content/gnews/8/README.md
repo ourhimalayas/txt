@@ -2,35 +2,28 @@
 ---
 
 
-## 有声|欧盟在欧中锋会中表达多项立场及关切台海情势
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300146/)
+## 这也是我们的战争：白俄罗斯志愿者加入乌克兰武装部队
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2300189/)
 
-配音：香草山教育部 – 子兵
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
+**撰稿：日本东京方舟农场  北极**
 
-欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
+据焦点报4月6日报道，在利沃夫成立的白俄罗斯信息中心负责人阿丽娜·鲁迪娜（Alina Rudina）在新闻发布会上呼吁，白俄罗斯的命运取决于俄乌战争的胜利者，因此这也是我们的战争。
 
-此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-76.png)乌克兰武装部队中白俄罗斯军团的士兵。（图片来自焦点报）
 
-欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
+鲁迪娜呼吁说，“我们的国家也被俘虏了，它处于卢卡申科和俄罗斯的领导者之下。我们一直在采用灵活的铁路游击战术来反击这个伪政府。此外，反抗者们还把有关俄罗斯军队的部署情报向外界传递。”
 
-欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
+据鲁迪娜称，白俄罗斯信息中心的任务是启动乌克兰公民与白俄罗斯公民之间的信息交流进程，特别是向乌克兰人传达有关白俄罗斯境内发生的反抗活动。
 
-文字版原文：[欧盟在欧中锋会中表达多项立场及关切台海情势](https://gnews.org/zh-hans/2289551/)
+鲁迪纳声称，现在已经有多达1000名白俄罗斯志愿者正在乌克兰一方并肩作战。在波兰华沙还有大约1000人申请加入该军团。一旦通过测试，他们将前往乌克兰。
 
-音频处理：Fei797
-发稿：Fei797
+参考链接：
+1.[https://reurl.cc/AKo0ne](https://reurl.cc/AKo0ne)
+2.[https://reurl.cc/44ZW52](https://reurl.cc/44ZW52)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+总编：老孙
+校对发布：爱放飞
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
