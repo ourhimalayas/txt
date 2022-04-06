@@ -2,45 +2,34 @@
 ---
 
 
-## 美-德严查bitcoin，俄罗斯遭遇严重打击
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2300294/)
+## 卫星技术拍摄的布查大屠杀铁证
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2300231/)
 
-作者：香草山健身部-正道新闻
-![](https://cdn.discordapp.com/attachments/902205163622776852/956563844661121124/image0.png)
-2022年4月6日，美国司法部宣布，与德国联邦刑事警察局（Bundeskriminalamt）合作，在德国扣押Hydra 服务器和包含价值 2500 万美元比特币的加密货币钱包，约合500+个比特币。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/cWQ89wyt5jZCQWtT2YCJR8-1651-80.jpg)
+据外媒报道，Maxar Technologies公司的WorldView-3卫星拍摄技术清晰拍摄了布查大屠杀的惨烈现场。卫星图像显示平民尸体散落在布查镇的街道上，还有一个乱葬坑。这个乱葬坑是一个长约45英尺的壕沟，而在3月10日的卫星图像上显示了对此的初步挖掘。
 
-Hydra是世界上最大、运行时间最长的暗网市场。2021 年，Hydra约占所有暗网市场相关加密货币交易的80%，自2015年以来，该市场已收到约52 亿美元的加密货币。
+根据时间推移，卫星图像拍摄了俄罗斯在布查的大屠杀铁证。Maxar卫星的清晰度足以分辨人物、汽车和其他的小物体。据悉Maxar目前有四颗卫星都在太阳同步轨道上，这是一种特殊的极地轨道，它能够不断捕获白天的图形，也能在不到一天的时间内恢复同一块地面的图像。在3月18、19、31日的卫星图像中，有四张图像显示尸体躺在街道，这和目击者的地点相吻合。
 
-据路透社报道，该交易所主要在莫斯科和圣彼得堡开展业务。为俄语国家的用户能够在法律范围之外匿名买卖非法商品和服务，包括非法毒品、被盗财务信息、欺诈性身份证件以及洗钱等提供服务。
+乌克兰总统发言人表示，乌克兰平民遭受了极其惨烈的折磨和处死，但俄罗斯即刻否认了这一点。联合国敦促对此事进行独立调查，这些残忍的屠杀、强奸、和处决行为严重违反了国际人道主义法和人权法，必须保存一切证据，并安抚受害者家人。
 
-Hydra上的交易以加密货币进行，Hydra 的运营商对在 Hydra 上进行的每笔交易收取佣金。
+reference：
 
-在关闭 Hydra 的同时，因操作和管理该市场服务器，该部门还宣布了对30岁的俄罗斯居民 Dmitry Olegovich Pavlov提起刑事指控，罪名是串谋分发毒品和串谋洗钱。
+[https://www.livescience.com/bucha-massacre-captured-satellite](https://www.livescience.com/bucha-massacre-captured-satellite)
 
-根据起诉书，Hydra 上的供应商可以在网站上创建账户来宣传他们的非法产品，买家可以创建账户来查看和购买供应商的产品。Hydra 供应商出售各种非法药物，包括可卡因、甲基苯丙胺、LSD、海洛因和其他阿片类药物。供应商在 Hydra 上公开宣传他们的药物，通常包括照片和对受控物质的描述。买家根据五星级评级系统对卖家及其产品进行评级。
+撰稿、发布：骄子
 
-Hydra 还展示了许多销售虚假身份证明文件的供应商。用户可以搜索销售他们想要的身份证明文件类型的供应商——例如，美国护照或驾驶执照——并按商品的价格进行筛选或排序。许多虚假身份证明文件的供应商提供定制文件。
+* * *
 
-Hydra 还出售黑客工具和黑客服务。2019年俄罗斯加密货币交易所直接收到的非法比特币中，约有86%来就自Hydra。据CNN报道，2021年，美国众多企业遭遇黑客勒索事件与Hydra有着密切的关系。不仅如此，Hydra 供应商还提供了洗钱和“兑现”服务。
+欢迎订阅我们的GNews账号：
 
-据称，从 2015 年 11 月开始，Hydra市场作为一个平台运作，被成千上万的毒贩和其他非法供应商用所使用。买卖双方从中获利达数十亿美元。Pavlov从通过该网站进行的非法销售中获得价值数百万美元的佣金。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-目前，根据调查进度，警方不仅关掉了Hydra 服务器，查封了2500万美元的bitcoin，而且还宣布了对于主要犯罪嫌疑人提出刑事指控。因此我们有理由相信，早在数月之前，美、德警方、司法机关已经抓获了犯罪嫌疑。并与犯罪嫌疑人达成了某种协议，以换取bitcoin的密钥。
-
-此时，美-德警方宣布合作查处此案意义深远：一方面，打击了通过加密货币违法犯罪的行为，让bitcoin失去了重要的交易场所，减少社会需求量，进而影响bitcoin价格。此消息一出，bitcoin的价格直接下跌1000+美金。
-
-另外一方面，严重的打击了俄罗斯本来已经孱弱的经济。今年2月24日，俄罗斯攻打乌克兰之后，国际社会对于俄罗斯进行了4轮经济制裁。面对这些制裁，俄罗斯因为缺少必要的原材料，很多工厂已经停工，缺乏必要的生活必备的药品、食品、日常用品，使得整个俄罗斯民生陷入低谷。就在不久前，普京宣布可以使用加密货币进行支付购买石油、天然气。Hydra的关闭，不仅使得俄罗斯失去了匿名客户的联系方式，更为重要的是由于缺乏清算方式，使得俄罗斯依靠出售石油获取民生必备品的美梦已经破裂。
-
-[https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-05-22/h\_8862d6eaace42f93019899ffc6243c83 https://finance.sina.com.cn/tech/2021-07-05/doc-ikqcfnca4964164.shtml](https://edition.cnn.com/europe/live-news/ukraine-russia-putin-news-04-05-22/h_8862d6eaace42f93019899ffc6243c83%20https://finance.sina.com.cn/tech/2021-07-05/doc-ikqcfnca4964164.shtml)
-
-校对/发稿：菩提树
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-更多资讯，更多关注
-乌克兰救援UkraineRescue官方Gettr
-郭文贵先生Gettr
-全球喜马拉雅农场联盟委员会Gettr
-喜马拉雅联盟大使馆全球客服中心Discord
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,35 @@
 ---
 
 
-## 【G时新闻】美国海军司令称密切关注中共与所罗门群岛的“秘密安排”
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300236/)
+## 有声|GETTR3月份注册用户持续增加
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300174/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是美国海军司令称密切关注中共与所罗门群岛的秘密安排！
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据《RSBN》4月2日消息，自由言论社交媒体平台GETTR，在3月份经历了爆发式的用户增长，该平台的注册人数飙升了34%，令人意外。
 
-澳洲广播公司（ABC）4月5日报导，中共与所罗门群岛之间签署的安全合作协议包含着一系列令美国及其合作伙伴担忧的“秘密”安排。 对此，美国太平洋舰队司令帕帕罗（Samuel Paparo）表示支持澳洲方面发出的这一警告，在距离澳洲昆士兰海岸不到2,000公里的太平洋国家建立中共海军基地，将“改变澳洲国防军的计算方式”。
+自2021年初以来，随着Twitter、Facebook和Instagram等平台的审查制度收紧，使得GETTR这样的言论自由平台注册用户持续增加。
 
-帕帕罗指出，“这都是一个令人关切的问题，虽然前面仍有路可走，但无论何时，当一项秘密的安全安排被曝光时，这对我们在整个西太平洋地区的所有伙伴，特别是澳洲、新西兰来说，都是值得关注的事”。 帕帕罗还提到，“毫无疑问，中共正在观察在乌克兰发生的事情，并做笔记，从中学习。而且他们将根据学到的东西来提高能力”。暗示中共不希望自己未来对台湾发起入侵战时，犯下同俄罗斯一样的错误。
+GETTR营销和全球合作高级副总裁凯兰-道尔（Kaelan Dorr）向《RSBN》的记者表示，垄断社交平台的言论审查行为，迫使他们的用户纷纷选择言论自由的社交媒体平台。GETTR始终坚持不因政见分歧而审核言论的平台宗旨。
 
-此外，帕帕罗认为印度洋——太平洋地区发生武装冲突的可能性愈来愈大，澳洲人需要对此持“现实主义”态度。 他强调，“由于事件的难以置信的不可预测性，我们这个地区在几年内就有可能发生冲突。2021年谁会料到东欧成为现在这个样子。事实上，这就是我们的使命，作为军人，我们必须永远做好准备”。
+首席执行官杰森·米勒（Jason Miller）在GETTR新闻稿中表示，硅谷科技寡头是言论自由的敌人，但对GETTR来说是个好消息，因为我们是一个致力于言论自由的平台。
 
-盖特链接：[https://gettr.com/post/p13trvf3c16](https://gettr.com/post/p13trvf3c16)
+迄今，GETTR已在全球范围拥有了500万正式注册用户。2022年第一季度末，用户注册率超过了50%。
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+文字版原文：[GETTR3月份注册用户持续增加](https://gnews.org/zh-hans/2288658/)
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+音频处理：Fei797
+发稿：Fei797
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

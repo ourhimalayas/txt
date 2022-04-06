@@ -2,22 +2,26 @@
 ---
 
 
-## 2022年4月6日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2300406/)
+## 新冠变种XE的威胁性言过其实
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300405/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0894.jpg)
-发稿：信心的选择
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16492645781.png)rnz.co.nz
+随着首例新冠变种XE在印度出现，在泰国和新西兰也发现了该变种。世界卫生组织（WHO）表示，需要进一步的数据才能提供更多的信息。
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+英国（UKHSA）正在研究XE，该变种来自BA1和BA2。至3月22日，英国已检测到637例XE病例。首席医学顾问苏珊·霍普金斯（Susan Hopkins）教授说，这种变种被称为“重组”，它通常 “相对较快” 死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-3.jpeg)
+霍普金斯说，目前还没有足够的证据显示其传染性、和疫苗有效性的结论。
+
+XE的增长率比隐形BA2高出9.8%。数据表明，奥米克隆变体具有高度传染性。虽然英国出现了XE “社区传播” 的迹象，但在全部冠状病毒测序病例中，XE仍不到1%。
+
+在泰国和新西兰发现的XE变种症状中。没有证据表明XE的症状更严重，迄今为止，所有奥米克隆变体病情严重程度都较低。
+
+*责编：白夜*
+
+[原文链接](https://www.health.com/condition/infectious-diseases/coronavirus/new-covid-19-xe-variant)
+
+
 
  
 

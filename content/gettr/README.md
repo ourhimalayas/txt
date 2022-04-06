@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 6:47 PM (UTC)`
+
+🔈🔈🔈新中国联邦|军情室 系列节目 周三美东时间下午3点 重磅首播！军情分析，军事理论知识，俄乌战争最新战况分析，干货满满！精彩不容错过，敬请期待 🥳🥳🥳🙏🙏🙏
+![img](https://media.gettr.com/group7/origin/2022/04/06/18/185e46ab-ac19-a19e-b370-755fefffd54a/2a45e088dea4114cc6b4779931c97b76.jpg)
+
+---
+
 `@miles 4/6/2022 5:55 PM (UTC)`
 
 俄乌战争战况播报
@@ -148,13 +155,6 @@
 
 4/05/2022 Miles Guo’s GETTR: Citizens of the New Federal State of China should be grateful for and cherish what we have. The New Federal State of China has had a huge impact in the world, and many countries are considering working with us. When the CCP attacks Taiwan, when food shortages and floods happen in Communist China, and when those inside the CCP are trying to assassinate the top cadres, multiple countries will acknowledge that the New Federal State of China is the legitimate representative of the Chinese.<br/><br/>4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作；当中共打台湾、粮灾水灾爆发和内部斩首的时候，多国将承认新中国联邦为中国人的合法代表<br/>
 ![img](https://media.gettr.com/group41/getter/2022/04/05/23/143b4336-1480-6ba2-14f9-aabf4d94867c/out.jpg)
-
----
-
-`@miles 4/5/2022 11:31 PM (UTC)`
-
-4/05/2022 Miles Guo’s GETTR: According to a fellow fighter inside the CCP, the CCP is ready for the death of 50 million to 100 million people from starvation this year. The CCP believes that there will be flood disasters this year that will be more devastating than last year. There will be food shortages in Communist China, Asia, Europe, and North America, followed by employment and energy issues. However, all of these are no match for the COVID vaccine disasters. It’s the adverse effects of the COVID vaccines that caused our fellow fighters to test positive for the virus.<br/><br/>4/05/2022 文贵盖特：中共内部的战友说，共产党已准备好今年饿死5000万到一亿人；中共判断今年中共国各地会发生比去年更大的水灾，中共国、亚洲、欧洲和北美都将出现粮食问题，随之而来的是就业和能源问题，但这些都跟疫苗灾难没得比；疫苗副作用导致战友自检病毒呈阳性<br/>
-![img](https://media.gettr.com/group33/getter/2022/04/05/23/944671e2-9a96-9848-1919-98c8795e799c/out.jpg)
 
 ---
 
