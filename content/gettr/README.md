@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 8:50 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月5日第32天当日救援统计：<br/>Medyka救援站接待：约159人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9268人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 32 - Date: April 5, 2022 :<br/>Medyka Rescue Station Reception: about 159 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9268 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group22/getter/2022/04/06/08/53e85e16-0d26-40cc-295a-5eabb3aa9732/0173805a8efec9f2fb0c665876b4e944.jpg)
+
+---
+
 `@miles 4/6/2022 7:50 AM (UTC)`
 
 4/3/2022 Miles Guo: After the midterm elections, the entire world’s landscape and social media will undergo enormous changes. Facebook, YouTube, and the traditional MSM like CNN will be gone. Although Elon Musk will be able to create a commercially successful social media platform, he will never be able to launch a platform like those of the New Federal State of China that are dedicated to taking down the CCP, have faith, and can change the world.<br/><br/>4/3/2022 文贵直播: 美国中期选举后，全世界格局和社交媒体都将发生巨变，脸书、油管以及CNN等传统主媒都将消失；马斯克虽能创造出商业上成功的社交媒体，但他永远做不了新中国联邦这样的灭共、有信仰并能改变世界的平台<br/>
@@ -146,13 +153,6 @@
 
 2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
 ![img](https://media.gettr.com/group14/origin/2022/04/05/18/f3ee3015-3dd1-024d-98d8-26dbbb648be7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 6:03 PM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
-![img](https://media.gettr.com/group33/origin/2022/04/05/17/ce27aceb-a360-5d80-9596-df3e8dc6e913/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

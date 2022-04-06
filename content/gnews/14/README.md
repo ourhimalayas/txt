@@ -2,79 +2,45 @@
 ---
 
 
-## 樱花FM┃乌克兰总统泽连斯基在格莱美奖发表视频演说（附全文）
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2297548/)
+## 应对排华让你安全的最好武器是你的生存能力和辨别能力
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297657/)
 
-音频：东京樱花团/战友520
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8832.38%EF%BC%89%E5%BA%94%E5%AF%B9%E6%8E%92%E5%8D%8E%E8%AE%A9%E4%BD%A0%E5%AE%89%E5%85%A8%E7%9A%84%E6%9C%80%E5%A5%BD%E6%AD%A6%E5%99%A8%E6%98%AF%E4%BD%A0%E7%9A%84%E7%94%9F%E5%AD%98%E8%83%BD%E5%8A%9B%E5%92%8C%E8%BE%A8%E5%88%AB%E8%83%BD%E5%8A%9B%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:b)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/040638.png)
+**郭文贵先生：**现在我觉得在亚洲的，还有全世界排华。未来可能最夸张的，应该是在今年年底到明年五月份吧！明年五到七月份，为什么呢？我觉得是明年的一个财务年度的时候，世界经济会崩塌的时候。这种怨恨、失业、中国人的疯狂，包括在俄罗斯、俄乌战争这一切的结果，还有中国经济的崩溃。所有的这一切，都成了中国人来买单。
 
-4月3日，在美国格莱美奖颁奖典礼上播放了一段乌克兰总统泽连斯基的视频演讲，他呼吁人们“以任何方式”支持乌克兰人。
+在东南亚国家，我觉得有些国家还是可以的。你比如说日本就是有右翼，但最起码有法律。然后在柬埔寨、像其他地方，我觉得你们要去的地方，可能土耳其是比较好的。然后像一些欧洲的小国，还是可以的。但是住华人少的地方，是很危险的。
 
-第64届格莱美奖在拉斯维加斯登场。在稍早进行的表演中，乌克兰总统泽连斯基透过预录连线方式惊喜登上舞台、为约翰传奇（John Legend）的表演带来一段简短的演讲。
+最重要的事情，说实在的到哪去，都要有自己的实力。你没有实力，你待在家里卧室里边，都觉得对你不安全。你得有基本的实力和能力，让你安全的最好武器就是你的能力、生存能力，和你对事情的辨别真假善恶的辨别能力，这是最关键的。
 
-泽连斯基穿着标志性军绿色T恤在镜头前亮相，向众多观众诉说乌克兰当下受战事影响的窘境、请求各界关注并且尽自己可能的方式提供支援。
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-在他的引言结束后，约翰传奇则是一边弹琴一边开始演唱〈Free〉，这场表演更是加入了乌克兰歌手米卡纽顿（Mika Newton）的演唱，以及据报数日前才逃出乌东顿巴斯的乌克兰诗人Lyuba Yakimchuk的口白。
+编辑整理：Jacques；
 
-泽连斯基演讲全文：
+字幕档制作：知津；
 
-战争，还有比它更反音乐的吗？
+视频制作及上传：Cindy；
 
-残垣断壁和尸山血海的死寂……
+G-News发布：海贼王M.D.LUFFY；
 
-我们的孩子画的是俯冲的火箭，而不是璀璨的流星，
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-400多名儿童受伤，153名儿童惨死，他们再也不能拿起画笔。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-为人父母者早晨醒来最欣慰的是，在防空洞得以苟活。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-我们不知是否还能和所爱之人团聚，
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-战争不容我们选择谁生，谁堕入永恒的死寂。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-我们音乐家身着防弹衣而非燕尾服，用歌声安慰着医院里的伤者，
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-甚至告慰着亡者，但音乐总能超越生死。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-我们捍卫着自己的自由，自由地生活，热爱和表达。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-我们守卫着国土抵抗着俄罗斯，
+G-TV：日本银河系农场。
 
-而他们只会用炮弹炸出可怕的沉寂，死一般的沉寂。
-
-请你们用音乐填满这死寂，让人世间回荡起我们的故事，
-
-请把这场战争的真相带到社交网络和电视，
-
-用你们力所能及的任何方式支持我们，
-
-但是不要保持沉默，
-
-那样和平就会降临，
-
-降临到那些正被战争摧残的城市，
-
-切尔尼戈夫、哈尔科夫、沃尔诺瓦哈、马里乌波尔……
-
-他们已经彪炳史册，
-
-但我梦想着让他们的余生享受自由，
-
-如同格莱美殿堂上的诸位。
-
-格莱美奖是由美国国家录音艺术科学学院负责颁发的奖项，旨在于奖励过去一年中成就出众的音乐艺术家。格莱美奖是美国及全球四个主要表演艺术奖项之一，相当于电影界的奥斯卡金像奖。
-
-文字版原文：
-
-
-| [乌克兰总统泽连斯基在格莱美奖发表视频演说（附全文）](https://gnews.org/zh-hans/2284631/) |   |
-| --- | --- |
-
-
-*编辑：东京樱花团/asket
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

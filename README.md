@@ -15,89 +15,89 @@
 
 ---
 
-### [在巨变的世界中我们是主角,接下来要行动！行动！行动！](/content/gnews/1/README.md)
+### [七哥的空客319和Alex的波音737和七哥家族的庞巴迪](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [我们希望经历九死一生战场的人能喝上一杯咖啡一杯热水](/content/gnews/2/README.md)
+### [布查大屠杀震惊世界 欧盟48小时共驱逐200多俄外交官](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声|上海疫情数据造假，居民要真相](/content/gnews/3/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|欧盟表示要将俄军暴行送上国际法庭](/content/gnews/4/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|美国称俄罗斯仍将走向衰退和经济封闭](/content/gnews/5/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|乌克兰宣布收复基辅周边，俄军重点转向东部](/content/gnews/6/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [在巨变的世界中我们是主角,接下来要行动！行动！行动！](/content/gnews/7/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [欧盟宣布对俄罗斯联邦实施第五轮制裁](/content/gnews/3/README.md)
+### [从近期中共国野蛮隔离政策及衍生的人道灾难看ccp的邪教属性](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [美众院外委会审议通过遏制及问责俄侵乌战争罪行法](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [我们希望经历九死一生战场的人能喝上一杯咖啡一杯热水](/content/gnews/10/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [欧盟宣布对俄罗斯联邦实施第五轮制裁](/content/gnews/11/README.md)
  ` 日本東京方舟農場`
 
-### [2022/04/02 美国宣布新的燃料经济标准](/content/gnews/4/README.md)
+### [2022/04/02 美国宣布新的燃料经济标准](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [应对排华让你安全的最好武器是你的生存能力和辨别能力](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [七哥过去这些年给共产党挖坑让它在中东、欧洲陷处泥潭](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [欧盟和美国宣布对俄罗斯实施新的制裁](/content/gnews/7/README.md)
- ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
-
-### [美众院推动防中共助俄逃避制裁法案 法案名涉习近平](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫苗后遗症 带状疱疹患者急剧增加](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [泽伦斯基呼吁安理会驱逐俄罗斯 否则没有存在意义](/content/gnews/10/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [北约说俄罗斯重新组合试图占领乌东地区](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声｜俄罗斯寻求向中共国购买银行卡所需的微芯片](/content/gnews/12/README.md)
+### [有声｜乌总统泽连斯基要求联合国必须问责俄罗斯战争罪行](/content/gnews/13/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花FM┃李家超参选香港行政长官](/content/gnews/13/README.md)
- ` 樱花FM`
+### [应对排华让你安全的最好武器是你的生存能力和辨别能力](/content/gnews/14/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [樱花FM┃乌克兰总统泽连斯基在格莱美奖发表视频演说（附全文）](/content/gnews/14/README.md)
- ` 樱花FM`
+### [欧盟和美国宣布对俄罗斯实施新的制裁](/content/gnews/15/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [樱花FM┃俄军布查大屠杀 欧盟将追加制裁](/content/gnews/15/README.md)
- ` 樱花FM`
-
-### [樱花FM┃西藏的火在燃烧](/content/gnews/16/README.md)
- ` 樱花FM`
-
-### [应对中共威胁，澳英美联盟承诺合作开发高超音速导弹](/content/gnews/17/README.md)
+### [美众院推动防中共助俄逃避制裁法案 法案名涉习近平](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰救援前线报道4.06.2022：灭共马甲的威力正蓄势待发](/content/gnews/18/README.md)
+### [疫苗后遗症 带状疱疹患者急剧增加](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声｜俄罗斯寻求向中共国购买银行卡所需的微芯片](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [应对中共威胁，澳英美联盟承诺合作开发高超音速导弹](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [乌克兰救援前线报道4.06.2022：灭共马甲的威力正蓄势待发](/content/gnews/20/README.md)
  ` 秘密翻译组-原创组`
 
-### [樱花FM┃ “有缘人终成眷属”与灵魂的“量子吸引”](/content/gnews/19/README.md)
- ` 樱花FM`
-
-### [俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入](/content/gnews/20/README.md)
+### [俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入](/content/gnews/21/README.md)
  ` 關注組`
 
-### [聚焦：马斯克拉开社交媒体重新洗牌的序幕](/content/gnews/21/README.md)
+### [聚焦：马斯克拉开社交媒体重新洗牌的序幕](/content/gnews/22/README.md)
  ` 蓝莲花农场`
 
-### [清明节连休国内旅行者比去年锐减63%](/content/gnews/22/README.md)
+### [清明节连休国内旅行者比去年锐减63%](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯寡头阿布拉莫维奇不得不靠借钱度日](/content/gnews/23/README.md)
+### [俄罗斯寡头阿布拉莫维奇不得不靠借钱度日](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [平民遭屠杀泽连斯基亲赴布查誓找罪犯](/content/gnews/24/README.md)
+### [平民遭屠杀泽连斯基亲赴布查誓找罪犯](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共疫情清零政策耽误春耕加剧粮食短缺危机](/content/gnews/25/README.md)
+### [中共疫情清零政策耽误春耕加剧粮食短缺危机](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国再对台售9500万爱国者防空系统](/content/gnews/26/README.md)
+### [美国再对台售9500万爱国者防空系统](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中日财经爆┃俄罗斯支付系统与中共合作躲避制裁](/content/gnews/27/README.md)
+### [中日财经爆┃俄罗斯支付系统与中共合作躲避制裁](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [泽连斯基在联合国演讲中抨击俄罗斯暴行](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [国际｜美国海军司令称密切关注中共与所罗门群岛的秘密安排](/content/gnews/29/README.md)
  ` 關注組`
