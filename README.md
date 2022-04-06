@@ -15,107 +15,107 @@
 
 ---
 
-### [推特终于走上了光明大道](/content/gnews/1/README.md)
+### [俄乌战争：中共为军事援助俄罗斯释放更多虚假舆论宣传](/content/gnews/1/README.md)
+ ` 战云长天时评`
+
+### [视频|巴基斯坦总理被解职 印证郭文贵先生情报](/content/gnews/2/README.md)
+ ` MOSVIDEO`
+
+### [推特终于走上了光明大道](/content/gnews/3/README.md)
  ` 澳喜特战旅Gnews`
 
-### [独家：中共国国有炼油商回避新的与俄罗斯石油交易](/content/gnews/2/README.md)
+### [独家：中共国国有炼油商回避新的与俄罗斯石油交易](/content/gnews/4/README.md)
  ` Shuizhuyu`
 
-### [视频|中共特务郑介甫遭澳洲政府遣返](/content/gnews/3/README.md)
+### [美敦促取消俄在联合国人权理事会资格](/content/gnews/5/README.md)
+ ` 加拿大温哥华扬帆农场《枫叶快讯》`
+
+### [视频|中共特务郑介甫遭澳洲政府遣返](/content/gnews/6/README.md)
  ` MOSVIDEO`
 
-### [有声｜欧盟国家直接向乌克兰提供进攻型武器](/content/gnews/4/README.md)
+### [有声｜欧盟国家直接向乌克兰提供进攻型武器](/content/gnews/7/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [新西兰宣布对俄罗斯新制裁 对俄进口产品征收关税](/content/gnews/5/README.md)
+### [新西兰宣布对俄罗斯新制裁 对俄进口产品征收关税](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [视频|俄乌战争、疫苗灾难后人类将迎来新纪元](/content/gnews/6/README.md)
+### [视频|俄乌战争、疫苗灾难后人类将迎来新纪元](/content/gnews/9/README.md)
  ` MOSVIDEO`
 
-### [](/content/gnews/7/README.md)
- ` 银河勇气之星`
-
-### [有声｜泽连斯基说领土问题不可能达成协议](/content/gnews/8/README.md)
+### [有声｜泽连斯基说领土问题不可能达成协议](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [速报┃汽车撞进俄罗斯驻乌克兰邻国罗马尼亚的大使馆](/content/gnews/9/README.md)
+### [速报┃汽车撞进俄罗斯驻乌克兰邻国罗马尼亚的大使馆](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [7-Eleven将向特许经营者支付9800万美元的集体诉讼和解](/content/gnews/10/README.md)
+### [7-Eleven将向特许经营者支付9800万美元的集体诉讼和解](/content/gnews/12/README.md)
  ` 走进澳洲`
 
-### [俄罗斯绕过西方制裁转向中共国制造商寻求微芯片供应](/content/gnews/11/README.md)
+### [俄罗斯绕过西方制裁转向中共国制造商寻求微芯片供应](/content/gnews/13/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [澳大利亚银行为零排放制定2035年时间表](/content/gnews/12/README.md)
+### [澳大利亚银行为零排放制定2035年时间表](/content/gnews/14/README.md)
  ` 走进澳洲`
 
-### [秘翻在线：中共病毒（COVID-19）流行后在韩国“想死”、“忧郁感”关键词搜索增加](/content/gnews/13/README.md)
+### [秘翻在线：中共病毒（COVID-19）流行后在韩国“想死”、“忧郁感”关键词搜索增加](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声｜美国国务院调查关于乌克兰发生涉及化学品袭击的报告](/content/gnews/14/README.md)
+### [有声｜美国国务院调查关于乌克兰发生涉及化学品袭击的报告](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡](/content/gnews/15/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.6）&#8211;注射新冠疫苗后死亡](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜币是老虎](/content/gnews/16/README.md)
+### [喜币是老虎](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海隔离集中营又出惨案 清华才女无人吸痰被憋死](/content/gnews/17/README.md)
+### [上海隔离集中营又出惨案 清华才女无人吸痰被憋死](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [乌克兰布查杀戮事件，美欧准备出台新的制裁](/content/gnews/18/README.md)
+### [乌克兰布查杀戮事件，美欧准备出台新的制裁](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花时政┃G20或拒绝俄罗斯参会](/content/gnews/19/README.md)
+### [樱花时政┃G20或拒绝俄罗斯参会](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [刑场还是救死扶伤的圣地? 中共被指在医院活摘心脏](/content/gnews/20/README.md)
+### [刑场还是救死扶伤的圣地? 中共被指在医院活摘心脏](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：欧盟加大对俄罗斯的施压力度，普京的两个女儿也面临制裁](/content/gnews/21/README.md)
+### [秘翻在线：欧盟加大对俄罗斯的施压力度，普京的两个女儿也面临制裁](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共放风要清理公务员双重国籍](/content/gnews/22/README.md)
+### [中共放风要清理公务员双重国籍](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港警入驻口岸隔离营接手管理](/content/gnews/23/README.md)
+### [港警入驻口岸隔离营接手管理](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [政要传话 「疫情下1人参选较合适」](/content/gnews/24/README.md)
+### [政要传话 「疫情下1人参选较合适」](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数字化货币大势所趋花旗银行高管们纷纷离职转行](/content/gnews/25/README.md)
+### [数字化货币大势所趋花旗银行高管们纷纷离职转行](/content/gnews/27/README.md)
  ` mayflowertranslate`
 
-### [在中共国，跟上面反映一下，有用吗？](/content/gnews/26/README.md)
+### [在中共国，跟上面反映一下，有用吗？](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线： 提醒民众疫情严重也有错？辽宁主持人被认定故意制造恐慌而停职](/content/gnews/27/README.md)
+### [秘翻在线： 提醒民众疫情严重也有错？辽宁主持人被认定故意制造恐慌而停职](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭先生4月5日盖特：形势逼人，“摸金校尉”重出江湖](/content/gnews/28/README.md)
+### [郭先生4月5日盖特：形势逼人，“摸金校尉”重出江湖](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [再有两到三周世界会再次震撼,每次大直播都经历大转变](/content/gnews/29/README.md)
+### [再有两到三周世界会再次震撼,每次大直播都经历大转变](/content/gnews/31/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [只有灭共的新中国联邦人和G系列投资者才能免于被制裁](/content/gnews/30/README.md)
+### [只有灭共的新中国联邦人和G系列投资者才能免于被制裁](/content/gnews/32/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [日本东京樱花团 中文新闻播报第44期](/content/gnews/31/README.md)
- ` Tokyo Sakura Video Group`
-
-### [樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬](/content/gnews/32/README.md)
+### [樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一名美军军官因指控上级推广的新冠疫苗非法而遭到报复](/content/gnews/33/README.md)
+### [一名美军军官因指控上级推广的新冠疫苗非法而遭到报复](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [美国将宣布新的一揽子制裁措施 可能涉及普京的女儿](/content/gnews/34/README.md)
- ` 日本東京方舟農場`
 
 ### [疫苗后遗症 带状疱疹患者急剧增加](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

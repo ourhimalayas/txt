@@ -2,18 +2,22 @@
 ---
 
 
-## 樱花时政┃G20或拒绝俄罗斯参会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298212/)
+## 上海隔离集中营又出惨案 清华才女无人吸痰被憋死
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2298220/)
 
-撰稿：东京樱花团/盖特第一批注册
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-3.png)[图片链接](https://news.yahoo.co.jp/articles/98d01f3baf83c12db1d96589dd5a51a0a65d987a/images/000)
-美国国家安全委员会(NSC)印太地区协调员库尔特·坎贝尔(Kurt Campbell)在4月5日的一次演讲中表示难以像往常一样举行峰会，他说，入侵乌克兰的俄罗斯也参加了G20（20个主要经济体和地区集团）框架，“很难想象我们可以邀请俄罗斯总统普京，并就发展和气候变化措施进行文明的讨论。”
+撰稿：东京樱花团/秋明
 
-坎贝尔先生说，对俄罗斯的参与“没有做出任何决定”，但他指出，“你可以听到整个国际社会的愤怒”。 美国和欧洲的立场是俄罗斯应该被排除在20国集团之外，但包括中国在内的其他国家反对这样做。
+近日一则关于清华才女硅谷海归李昶，在上海某康复医院无人护理而去世的信息在微信群传播。
 
-信息源：
+李昶夫妇硅谷成功后回国创业，因为意外无行动力，需要有人及时吸痰。丈夫把妻子放上海某高档护理中心。疫情后丈夫不上班护理妻子，护理中心发现了阳性病人，所有人要求离开。丈夫请求和妻子一起隔离不被允许，而后被警察抓走。护理中心许诺安排护理人员，实际上负责的护理人员并不会吸痰，最后，李昶在有意识的状态不，被活活憋死。
 
-[米高官「プーチン氏と文明的な議論困難」…通常通りのＧ２０開催に難色](https://www.yomiuri.co.jp/world/20220406-OYT1T50093/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片4-3.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs1.gushiju.net%2Fcy_imgs%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593.jpg&amp;imgrefurl=https%3A%2F%2Fwww.gushiju.net%2Fchengyu%2F%25E6%2583%25A8%25E6%2597%25A0%25E4%25BA%25BA%25E9%2581%2593&amp;tbnid=RRN5ROkpHefJmM&amp;vet=12ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ..i&amp;docid=2R07WkcIo0oHBM&amp;w=500&amp;h=333&amp;q=%E6%83%A8%E6%97%A0%E4%BA%BA%E9%81%93&amp;hl=zh-CN&amp;ved=2ahUKEwj7tqOmoP_2AhVFyCoKHXhDDo8QMygBegUIARCkAQ)
+
+李昶可谓是站在事业制高点的成功人士，虽然遭遇不测但是有深爱他的丈夫，本来在家人的悉心照料下有望慢慢恢复，岂料在这场没有人性的隔离运动中，痛苦死去！怎么不让人唏嘘惋惜？
+
+在中共的魔爪之下，不管身处哪个层次都可能是他们的祭品，唯有铲除这个恶魔，才能还地球和平！
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片5-3.jpg)
+消息来源：微信群
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

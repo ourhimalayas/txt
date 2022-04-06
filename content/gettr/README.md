@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 12:06 PM (UTC)`
+
+ 4月6号：尊敬的战友们好！上海的灾难还远远没有到来……上海还有亲人朋友的……做好最坏的准备吧……
+![img](https://media.gettr.com/group23/getter/2022/04/06/12/bc863d24-f3ad-104d-a7fc-2ed4b1ab8c0d/out.jpg)
+
+---
+
 `@miles 4/6/2022 9:53 AM (UTC)`
 
 【Ukraine Rescue】04/04/2022 A Taiwanese volunteer participating the NFSC and ROLF rescue work warned that Russia and the CCP have the same logic: grab land but get rid of the people <br/><br/>【乌克兰救援】04/04/2022 一名参与新中国联邦和法治基金救援工作的台湾志愿者警告说，俄罗斯和中共的想法是一样的：留地不留人<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
@@ -146,13 +153,6 @@
 
 2022.04.05  新中国联邦 | 喜健康   中共病毒治疗方案的探讨
 ![img](https://media.gettr.com/group14/origin/2022/04/05/20/a74dde8d-7373-a84f-01f9-eb4277d2d650/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 8:20 PM (UTC)`
-
-2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
-![img](https://media.gettr.com/group3/origin/2022/04/05/20/74c9bdfb-dd47-9202-2544-00c2a988a9ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
