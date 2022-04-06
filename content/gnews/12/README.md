@@ -2,44 +2,25 @@
 ---
 
 
-## 泽连斯基在联合国演讲中抨击俄罗斯暴行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297130/)
+## 俄乌战争｜欧盟祭出新制裁 禁俄煤进口 削减俄能源收入
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297179/)
 
-#### 【雅典娜快讯】，紧贴时代脉博
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-6.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌局势致能源价格飙涨，全球通胀持续扩大，欧盟部分成员国高度依赖俄罗斯能源供给，为降低全球对俄罗斯能源的依赖，日前美欧成立新的伙伴关系，美方承诺向欧盟出口150亿立方米的液化天然气，且未来将继续增加出口量。俄罗斯总统普京则要求欧盟不友好名单国家应以卢布购买天然气，否则断供，此举恐加剧影响国际能源及粮食价格。
 
-#### 翻译：文扬
-编辑：文泓
+欧洲统计局数据，2020年欧盟自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气，其中以主席国德国最依赖俄罗斯能源。经欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）证实，欧盟委员会决议对俄发起新一轮制裁，称“将对俄罗斯实施每年高达40亿欧元的煤炭进口禁令”为削减俄罗斯另一重要能源收入。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片30.png)图片来源：Malay Mail & 雅典娜设计组
+即便欧盟高度依赖俄罗斯能源，惟各界逐渐掌握俄军在乌克兰犯下的战争罪行，欧盟决定将煤炭进口禁令添加到第五轮制裁中。
 
+德国高度依赖俄罗斯天然气，此前德国曾阻止对俄罗斯能源禁运，该国财政部长克里斯蒂安·林德纳表示“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系，但目前不可能切断天然气供应。”
 
-美东时间周三，乌克兰总统泽连斯基在联合国安理会的一次现场视频演讲中，对俄罗斯的入侵行为进行了最有力的谴责，称俄罗斯人是战争罪犯，他痛斥俄罗斯人杀害平民，当着孩子的面强奸妇女，让他的国家成为一片废墟，“到处是乱坟岗”。
+来源｜[cnbc](https://www.cnbc.com/2022/04/05/european-union-could-ban-russian-coal-imports-sources-say.html)、[bloomberg](https://www.bloomberg.com/news/articles/2022-04-05/eu-to-propose-banning-coal-imports-from-russia-after-atrocities)
 
-这次在他访问基辅郊区布查后的第二天后发表讲话，当时布查街头令人震惊地出现许多平民尸体。泽连斯基称这些人都是被撤退的俄罗斯军队杀死的。乌克兰总统表示，如果安理会不能做到这一点，它的存在就就毫无用处，要想办法追究肇事者的责任。
+* * *
 
-泽连斯基谈到撤离的俄罗斯军队时说：“现在世界可以看到俄军在布查犯下的罪行，而安全理事会需要保证的安全在哪里？”
-
-联合国没有执行该组织创始宪章的基本原则，因而未能避免战争的发生。
-
-“请展示我们将如何改革并为和平而努力”，泽连斯基恳请理事会成员：“否则，如果你除了谈话之外没有什么可以做的，那就解散吧。”
-
-克里姆林宫否认对布卡或乌克兰其他地方的平民暴行负有任何责任，并表示北郊处决式杀戮的照片和视觉证据是捏造的。
-
-《纽约时报》对卫星图像的分析反驳了俄罗斯的说法，即在其士兵离开该镇后，布查的平民被杀。
-
-泽连斯基说，“他们杀死了整个家庭，包括成人和儿童，并试图焚烧尸体”。布卡的一些受害者是“从后脑勺被射杀的”，而“一些人是在街上被射杀的，还有一些人被扔进了水井”。
-
-泽连斯基还呼吁建立一个类似审判纳粹战犯的纽伦堡法庭，起诉对暴行负有责任的俄罗斯人，包括莫斯科的领导人。
-
-原文链接：[Volodymyr Zelensky: Ukrainian President details alleged Russian atrocities in hard-hitting UN speech – CNN](https://edition.cnn.com/2022/04/05/world/zelensky-ukraine-united-nations-speech-intl/index.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

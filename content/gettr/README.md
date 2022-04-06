@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 6:38 AM (UTC)`
+
+4/3/2022 Miles Guo: In addition to having the fundamental knowledge and logics to understand the world, the most important thing is for us to have comprehensive cognitive ability. President Trump’s collaboration with Bruno Wu in launching Truth Social will become a major event that will shift the American political landscape. I am preparing the grand plan for the Whistleblowers’ Movement after this year’s midterm elections, with the intention of preventing the collapse of the CCP from harming the innocent Chinese people.<br/><br/>4/3/2022 文贵直播: 我们除了要有认识世界的基础知识和逻辑能力，最重要的是要具备综合认知能力；川普和吴征合作搞Truth Social会成为改变美国政治格局的大事件；文贵在准备今年美国中期大选以后的爆料革命的大计划，意在避免中共倒台连累更多无辜的中国人<br/>
+![img](https://media.gettr.com/group43/getter/2022/04/06/06/aab1193a-21c9-3e47-f10b-ce21ce518af2/out.jpg)
+
+---
+
+`@miles 4/6/2022 6:28 AM (UTC)`
+
+4/3/2022 Miles Guo: The CCP and Russia are targeted by the entire world. To get rid of food shortages and other difficulties, the CCP is bound to invade Taiwan. Xi's complete rejection and cessation of the policies of “keeping a low profile” and “pro-USA and away from Russia” reveal how intense the CCP’s political infighting is. I am calling for the world to stop the CCP from invading Taiwan. Once the CCP wages a war against Taiwan, the world must take action upon the CCP making its moves, not just condemn it.<br/><br/>4/3/2022 文贵直播: 中共和俄国在世界上人人喊打，为摆脱粮食危机等困境，中共必定孤注一掷攻打台湾；习太阳彻底否定和叫停韬光养晦、亲美远苏的政策揭示了中共党内政治斗争之激烈程度；文贵呼吁全世界制止中共犯台，一旦开战不能做口炮党，必须比中共出手还要快！<br/>
+![img](https://media.gettr.com/group29/getter/2022/04/06/06/8b93f855-8f8e-92d2-23b9-91a49bd413e3/out.jpg)
+
+---
+
 `@miles 4/6/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -139,20 +153,6 @@
 
 NFSC and ROLF Ukraine Humanitarian Rescue Mission
 ![img](https://media.gettr.com/group49/origin/2022/04/05/15/c9472645-a084-c5b4-a57c-f8f184580194/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 2:09 PM (UTC)`
-
-<br/>4月5号：尊敬的战友们好！共产党为什么在内部开会发动．要准备好，2022年再饿死一亿人，这是真的吗？为什么中共国内部，现在又开始大流行盗墓了呢？
-![img](https://media.gettr.com/group18/getter/2022/04/05/14/0607a3f3-71e8-1535-3df2-619b4d22adfc/out.jpg)
-
----
-
-`@miles 4/5/2022 1:22 PM (UTC)`
-
- 4月5号：尊敬的战友们好，这在中共国．连草都不让老百姓吃了……太可怕了，这是哪国的王法呢？这是外交部长王娘娘讲的．最民主．最安全．最幸福的．中国人民的生活方式吗？
-![img](https://media.gettr.com/group22/getter/2022/04/05/13/49797d28-8601-6fa9-9d16-3e3ef2122110/c7751b235a878987753689a75d15c8cb.jpg)
 
 ---
 

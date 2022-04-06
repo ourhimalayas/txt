@@ -2,25 +2,32 @@
 ---
 
 
-## 俄乌战争｜欧盟祭出新制裁 禁俄煤进口 削减俄能源收入
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297179/)
+## 中日财经爆┃美欧将追加制裁俄银行及官员，并禁止在俄投资
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297221/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-6.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌局势致能源价格飙涨，全球通胀持续扩大，欧盟部分成员国高度依赖俄罗斯能源供给，为降低全球对俄罗斯能源的依赖，日前美欧成立新的伙伴关系，美方承诺向欧盟出口150亿立方米的液化天然气，且未来将继续增加出口量。俄罗斯总统普京则要求欧盟不友好名单国家应以卢布购买天然气，否则断供，此举恐加剧影响国际能源及粮食价格。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+白宫4月5日表示，美国及其盟国将于周三对俄罗斯银行和官员实施新的制裁，并禁止在俄罗斯进行新的投资。此前，美国和乌克兰官员指责俄罗斯在乌克兰城镇布查犯下战争罪。
 
-欧洲统计局数据，2020年欧盟自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气，其中以主席国德国最依赖俄罗斯能源。经欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）证实，欧盟委员会决议对俄发起新一轮制裁，称“将对俄罗斯实施每年高达40亿欧元的煤炭进口禁令”为削减俄罗斯另一重要能源收入。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美欧将追加制裁俄银行及官员，并禁止在俄投资.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimgcdn.yicai.com%2Fuppics%2Fimages%2F2021%2F03%2F0fcad36aba60ebcd132c6887a400ff82.jpg&amp;imgrefurl=https%3A%2F%2Fwww.yicai.com%2Fnews%2F100970660.html&amp;tbnid=IvQnvMW3iMZJOM&amp;vet=12ahUKEwixro3y5f72AhUdEGMBHbXwD_4QMygAegUIARCwAQ..i&amp;docid=d6x0-ezQpuVIYM&amp;w=640&amp;h=360&amp;q=%E7%BE%8E%E6%AC%A7&amp;ved=2ahUKEwixro3y5f72AhUdEGMBHbXwD_4QMygAegUIARCwAQ)
 
-即便欧盟高度依赖俄罗斯能源，惟各界逐渐掌握俄军在乌克兰犯下的战争罪行，欧盟决定将煤炭进口禁令添加到第五轮制裁中。
+白宫新闻秘书普萨基周二告诉记者，这些制裁将加大对俄罗斯金融机构和国有企业的遏制力度，并针对俄罗斯政府官员及其家人。
 
-德国高度依赖俄罗斯天然气，此前德国曾阻止对俄罗斯能源禁运，该国财政部长克里斯蒂安·林德纳表示“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系，但目前不可能切断天然气供应。”
+“明天，我们将宣布…与七国集团(G7)和欧盟协调的更多全面制裁措施，这些措施将使俄罗斯付出代价，使其更进一步在经济、金融和技术的道路上孤立，”普萨基说，并指出G7和欧盟约占全球经济的50%。
 
-来源｜[cnbc](https://www.cnbc.com/2022/04/05/european-union-could-ban-russian-coal-imports-sources-say.html)、[bloomberg](https://www.bloomberg.com/news/articles/2022-04-05/eu-to-propose-banning-coal-imports-from-russia-after-atrocities)
+她说，这些措施将“削弱俄罗斯国家权力的关键工具，对俄罗斯造成严重而直接的经济损害，并追究为普京的战争提供资金和支持的俄罗斯盗贼政体的责任。”
 
-* * *
+消息来源:
+[美国及盟国周三将禁止在俄新投资 并进一步制裁俄银行及官员–白宫](https://cn.reuters.com/article/usa-allies-sanctions-russia-0405-tues-idCNKCS2LY01R?il=0)
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
