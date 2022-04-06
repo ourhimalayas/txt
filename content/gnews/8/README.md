@@ -2,31 +2,35 @@
 ---
 
 
-## 供应短缺以及成本增加将使萨省种植户面临巨大风险
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2299964/)
+## 有声|欧盟在欧中锋会中表达多项立场及关切台海情势
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300146/)
 
-##### 作者：加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-23.png)
-据CBC新闻4月4日报道，中共病毒疫情引发的通货膨胀和供应短缺以及俄乌战争所造成的冲击，导致种植成本飙升，目前已经严重影响萨省农业种植户，将他们置于未来不可预知的巨大风险中。
+配音：香草山教育部 – 子兵
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间4月1日，在欧中锋会中，欧盟主动关切台海紧张情势，此是近年少见的现象。
 
-其中化肥价格上涨了200%到300%。农药草甘膦因关键成分无法获得，目前产品供不应求。另外种子成本、燃料、零部件、运输和碳税以及除草剂的费用也在增加。虽然小麦等农产品的价格也在上涨，但是未来市场售价的不确定性，导致萨省农户尽量削减开支，也在一定程度上降低了产量。
+欧盟理事会主席米歇尔（Charles Michel）及欧盟执行委员会主席范德赖恩（Ursula von der Leyen），在1日举行的视讯欧中锋会中，分别与中共国务院总理李克强及中共国家主席习近平进行会谈。
 
-短时间内看不到任何缓解迹象，且仍在不断上涨的成本压力，加之天气等不确定因素，让萨省农户变得越来越焦虑。
+此次峰会的重点主要是关注俄罗斯侵略乌克兰的议题，欧盟明确向中共表示，欧盟及40余个合作伙伴国对俄罗斯进行的制裁措施，中共不应该干涉。
 
-原文链接：[https://www.cbc.ca/news/canada/saskatchewan/sask-farmers-stress-rising-costs-1.6406005](https://www.cbc.ca/news/canada/saskatchewan/sask-farmers-stress-rising-costs-1.6406005)
+欧盟同时向中共表达，必须停止对立陶宛的不正当贸易干预措施。 欧盟也敦促中共解除对欧洲议会议员的制裁。 在保护人权和劳工权利的议题上，欧盟提及对新疆地区人权问题的关切，以及对中共在香港撤销一国两制的关切。
 
-编辑/上传 – 大废墙
-素材/采编 – 文莱
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
-* * *
+欧盟基于经济利益，过去一直与中共保持良好关系，此次锋会中敢于向中共提出各种敏感议题，实属少见的立场转变。
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+文字版原文：[欧盟在欧中锋会中表达多项立场及关切台海情势](https://gnews.org/zh-hans/2289551/)
 
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
-- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+音频处理：Fei797
+发稿：Fei797
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
