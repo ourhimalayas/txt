@@ -2,23 +2,29 @@
 ---
 
 
-## 俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296818/)
+## 国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296854/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-外媒报导，美国阻止俄罗斯政府，以他们在外国银行持有的储备金，向主权债务持有人支付超过6亿美元的本息，此举是为了加大对莫斯科的压力。西方对俄罗斯的制裁已冻结俄国约6,400亿美元的黄金与外汇储备中的大约一半，但是俄国确实仍有足够的资金，可以从其储备金支付上述的主权债券票息。
+**图/文｜CP**
+**发布时间｜06/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/AUKUS開展超高音速武器合作-中共威脅或引發類似烏克蘭衝突重演.jpg)
 
-此外，原先美国财政部允许俄国政府逐案(case-by-case basis)使用在美国银行里遭冻结的资金支付以美元计价的主权债券票息(coupon)。财政部发言人表示，美国政府4日决定切断莫斯科取得被冻结资金的管道，阻止俄国政府支付即将到期的最大一笔款项，以及另一笔8,400万美元的票息。
+[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
 
-外界分析美国此举系为了消耗俄国外汇储备，削弱俄国战争的资金。惟俄国也可能要求欧洲客户以卢布购买天然气，作为反制。俄乌战争导致国际能源及粮食价格飙涨，世界面临经济、粮食危机。
 
-来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2%E4%BF%84%E7%BE%85%E6%96%AF%E6%94%AF%E4%BB%98%E5%82%B5%E5%88%B8%E6%9C%AC%E6%81%AF-%E5%8D%87%E9%AB%98%E8%8E%AB%E6%96%AF%E7%A7%91%E5%A3%93%E5%8A%9B-093011243.html)、[NIKKEI](https://asia.nikkei.com/Economy/South-Korea-March-inflation-hits-decade-high-on-supply-challenges)
+由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
+
+根据美国总统拜登（Joe Biden）、英国首相约翰逊（Boris Johnson）及澳洲总理莫里森（Scott Morrison）针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
+
+AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美亦会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
+
+有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
+
+來源｜[彭博社](https://www.bloomberg.com/news/videos/2022-04-05/australia-u-k-u-s-to-develop-hypersonic-missiles-video)
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
 
  
 

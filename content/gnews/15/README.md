@@ -2,27 +2,35 @@
 ---
 
 
-## 欧盟和美国宣布对俄罗斯实施新的制裁
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2297641/)
+## 有声|美国称俄罗斯仍将走向衰退和经济封闭
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2297698/)
 
-**由于俄罗斯对乌克兰的侵略战争，目前已有200多名俄罗斯外交官被驱逐出欧洲。**
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
+【路透社**4**月**1**日】 美国财政部一名高官表示，美国及其盟国针对俄罗斯入侵乌克兰实施的惩罚性制裁正在将俄罗斯推向经济衰退，并使其重新走向经济封闭。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image005-1.png)
+尽管俄罗斯卢布**兑**美元汇率回升，但是，美国财政部认为俄罗斯正面临严重通货膨胀、出口减少和短缺的问题。这位官员认为，卢布反弹是由严格的资本管制和外汇管制推动的，并非出于市场力量。他表示，过去三周高达**6%**的通胀率更好地说明制裁对俄罗斯内部的影响，揭示了卢布购买力下降，并补充道黑市的卢布汇率远低于国际汇率。**
 
-作者：dlf/dpa/vrt//jp /原文发布于2022年4月6日06:37(CET)
-翻译：LK
+**这名财政部官员表示，针对银行、与俄总统普京有关联的寡头、以及关键工业部门的制裁，加上不让俄罗斯获得关键技术的美国出口管制，其累积效应将把俄罗斯推向冷战时期的封闭经济状态。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-4.jpg) 图片：莫斯科克里姆林宫塔楼之一（Kirill Kudryavtsev/AFP）。
+[【援引连结】](https://cn.reuters.com/article/rouble-usa-russia-0401-fri-idCNKCS2LW02Q)
 
-其中，意大利、西班牙和斯洛文尼亚要求俄罗斯的代表离开该国。欧盟外交事务代表博雷尔还宣布19名俄罗斯驻欧盟大使馆代表为不受欢迎的人。克里姆林宫批评这些驱逐行为是“短视的”，并宣布采取反制措施。
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
 
-欧盟委员会还提议对俄罗斯实施进一步制裁，包括禁止煤炭进口和禁止俄罗斯船只进入港口。
 
-由于乌克兰战争，美国也计划在周三（2022年4月6日，译者）宣布对俄罗斯实施新的一揽子制裁措施。据媒体报道，将禁止在俄罗斯进行任何新的投资。还计划对金融机构、国有企业和俄罗斯政府官员及其家人实施更严格的制裁。
-
-美国还希望向乌克兰提供1亿美元的军事物资，以及在俄罗斯使用化学或生物武器的情况下可以使用的保护设备。
-
-原文链接:[https://brf.be/international/1591774/](https://brf.be/international/1591774/)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

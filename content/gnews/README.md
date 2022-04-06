@@ -15,161 +15,161 @@
 
 ---
 
-### [七哥的空客319和Alex的波音737和七哥家族的庞巴迪](/content/gnews/1/README.md)
+### [只有灭共的新中国联邦人和G系列投资者才能免于被制裁](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [布查大屠杀震惊世界 欧盟48小时共驱逐200多俄外交官](/content/gnews/2/README.md)
+### [拿英国护照的Alex作为俄罗斯最干净的商人并不能幸免](/content/gnews/2/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [英国政府计划承认稳定币为法币](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [你付出了吗？你坚信了吗](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [泽连斯基在联合国安全理事会发言，要求俄罗斯受到追责](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共各部门不顾百姓死活](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [一名美军军官因指控上级推广的新冠疫苗非法而遭到报复](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|上海疫情数据造假，居民要真相](/content/gnews/3/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声|欧盟表示要将俄军暴行送上国际法庭](/content/gnews/4/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声|美国称俄罗斯仍将走向衰退和经济封闭](/content/gnews/5/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [有声|乌克兰宣布收复基辅周边，俄军重点转向东部](/content/gnews/6/README.md)
- ` 【🌹玫瑰新闻】`
-
-### [在巨变的世界中我们是主角,接下来要行动！行动！行动！](/content/gnews/7/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [从近期中共国野蛮隔离政策及衍生的人道灾难看ccp的邪教属性](/content/gnews/8/README.md)
- ` 澳喜农场`
-
-### [美众院外委会审议通过遏制及问责俄侵乌战争罪行法](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [我们希望经历九死一生战场的人能喝上一杯咖啡一杯热水](/content/gnews/10/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [欧盟宣布对俄罗斯联邦实施第五轮制裁](/content/gnews/11/README.md)
+### [美国将宣布新的一揽子制裁措施 可能涉及普京的女儿](/content/gnews/9/README.md)
  ` 日本東京方舟農場`
 
-### [2022/04/02 美国宣布新的燃料经济标准](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [朋友圈告诉你中共“如何抗疫”](/content/gnews/10/README.md)
+ ` 澳喜农场`
 
-### [有声｜乌总统泽连斯基要求联合国必须问责俄罗斯战争罪行](/content/gnews/13/README.md)
+### [秘翻新闻｜上海现疫情版“集中营”](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [应对排华让你安全的最好武器是你的生存能力和辨别能力](/content/gnews/14/README.md)
+### [七哥的空客319和Alex的波音737和七哥家族的庞巴迪](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [欧盟和美国宣布对俄罗斯实施新的制裁](/content/gnews/15/README.md)
+### [有声|上海疫情数据造假，居民要真相](/content/gnews/13/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|欧盟表示要将俄军暴行送上国际法庭](/content/gnews/14/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|美国称俄罗斯仍将走向衰退和经济封闭](/content/gnews/15/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [有声|乌克兰宣布收复基辅周边，俄军重点转向东部](/content/gnews/16/README.md)
+ ` 【🌹玫瑰新闻】`
+
+### [论天国的仇敌：基督徒得着消灭邪恶的权柄](/content/gnews/17/README.md)
+ ` 纽约香草山MOS03`
+
+### [从近期中共国野蛮隔离政策及衍生的人道灾难看ccp的邪教属性](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [欧盟宣布对俄罗斯联邦实施第五轮制裁](/content/gnews/19/README.md)
+ ` 日本東京方舟農場`
+
+### [欧盟和美国宣布对俄罗斯实施新的制裁](/content/gnews/20/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [美众院推动防中共助俄逃避制裁法案 法案名涉习近平](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疫苗后遗症 带状疱疹患者急剧增加](/content/gnews/17/README.md)
+### [疫苗后遗症 带状疱疹患者急剧增加](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜俄罗斯寻求向中共国购买银行卡所需的微芯片](/content/gnews/18/README.md)
+### [有声｜俄罗斯寻求向中共国购买银行卡所需的微芯片](/content/gnews/22/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [应对中共威胁，澳英美联盟承诺合作开发高超音速导弹](/content/gnews/19/README.md)
+### [应对中共威胁，澳英美联盟承诺合作开发高超音速导弹](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [乌克兰救援前线报道4.06.2022：灭共马甲的威力正蓄势待发](/content/gnews/20/README.md)
+### [乌克兰救援前线报道4.06.2022：灭共马甲的威力正蓄势待发](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入](/content/gnews/21/README.md)
+### [俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入](/content/gnews/25/README.md)
  ` 關注組`
 
-### [聚焦：马斯克拉开社交媒体重新洗牌的序幕](/content/gnews/22/README.md)
+### [聚焦：马斯克拉开社交媒体重新洗牌的序幕](/content/gnews/26/README.md)
  ` 蓝莲花农场`
 
-### [清明节连休国内旅行者比去年锐减63%](/content/gnews/23/README.md)
+### [清明节连休国内旅行者比去年锐减63%](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯寡头阿布拉莫维奇不得不靠借钱度日](/content/gnews/24/README.md)
+### [俄罗斯寡头阿布拉莫维奇不得不靠借钱度日](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [平民遭屠杀泽连斯基亲赴布查誓找罪犯](/content/gnews/25/README.md)
+### [平民遭屠杀泽连斯基亲赴布查誓找罪犯](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共疫情清零政策耽误春耕加剧粮食短缺危机](/content/gnews/26/README.md)
+### [中共疫情清零政策耽误春耕加剧粮食短缺危机](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国再对台售9500万爱国者防空系统](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中日财经爆┃俄罗斯支付系统与中共合作躲避制裁](/content/gnews/28/README.md)
+### [中日财经爆┃俄罗斯支付系统与中共合作躲避制裁](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际｜美国海军司令称密切关注中共与所罗门群岛的秘密安排](/content/gnews/29/README.md)
+### [国际｜美国海军司令称密切关注中共与所罗门群岛的秘密安排](/content/gnews/32/README.md)
  ` 關注組`
 
-### [台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助](/content/gnews/30/README.md)
+### [台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助](/content/gnews/33/README.md)
  ` 關注組`
 
-### [残酷的疫情下——如何预防病毒感染](/content/gnews/31/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演](/content/gnews/32/README.md)
+### [国际｜AUKUS开展超高音速武器合作 中共威胁或引发类似乌克兰冲突重演](/content/gnews/34/README.md)
  ` 關注組`
 
-### [俄军撤离基辅 布查镇发现大量尸体](/content/gnews/33/README.md)
+### [俄军撤离基辅 布查镇发现大量尸体](/content/gnews/35/README.md)
  ` 日本东京方舟农场`
 
-### [俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压](/content/gnews/34/README.md)
+### [俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压](/content/gnews/36/README.md)
  ` 關注組`
 
-### [新中国联邦人在世界为国人争面子 为华人保安全](/content/gnews/35/README.md)
+### [新中国联邦人在世界为国人争面子 为华人保安全](/content/gnews/37/README.md)
  ` NFSC News`
 
-### [巴基斯坦总理被解职 印证郭文贵先生情报](/content/gnews/36/README.md)
+### [巴基斯坦总理被解职 印证郭文贵先生情报](/content/gnews/38/README.md)
  ` NFSC News`
 
-### [中共特务郑介甫遭澳洲政府遣返](/content/gnews/37/README.md)
+### [中共特务郑介甫遭澳洲政府遣返](/content/gnews/39/README.md)
  ` NFSC News`
 
-### [俄乌战争、疫苗灾难后人类将迎来新纪元](/content/gnews/38/README.md)
+### [俄乌战争、疫苗灾难后人类将迎来新纪元](/content/gnews/40/README.md)
  ` NFSC News`
 
-### [精粮采访来自加州圣地亚哥的艺术家奥黛丽·琼斯](/content/gnews/39/README.md)
+### [精粮采访来自加州圣地亚哥的艺术家奥黛丽·琼斯](/content/gnews/41/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国务卿安东尼·布林肯：美国正在制裁全球最大的讲俄语的暗网市场](/content/gnews/40/README.md)
- ` 美国政要直译推`
-
-### [泽连斯基在联合国演讲 指俄犯下二战以来最严重战争罪行](/content/gnews/41/README.md)
+### [泽连斯基在联合国演讲 指俄犯下二战以来最严重战争罪行](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [当前中国多数疫情实则为疫苗反应，科学服用青蒿素等有绝对疗效](/content/gnews/42/README.md)
+### [当前中国多数疫情实则为疫苗反应，科学服用青蒿素等有绝对疗效](/content/gnews/43/README.md)
  ` YALUN 亚伦`
 
-### [7News 《全球视点》21世纪新纳粹 中共与普京的暴行令人发指](/content/gnews/43/README.md)
+### [7News 《全球视点》21世纪新纳粹 中共与普京的暴行令人发指](/content/gnews/44/README.md)
  ` 宁南`
 
-### [印度为俄罗斯外长铺设红地毯](/content/gnews/44/README.md)
+### [印度为俄罗斯外长铺设红地毯](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/45/README.md)
+### [快速传播的Omicron BA.2变体占美国病例的近75%](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/46/README.md)
+### [上海宝山区封城居民食物短缺，政府毫无作为](/content/gnews/47/README.md)
  ` NFSC News`
 
-### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/47/README.md)
+### [假借疫情，大批武装部队进驻上海维稳](/content/gnews/48/README.md)
  ` NFSC News`
 
-### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/48/README.md)
+### [“看看对俄罗斯让步的结果！” 泽连斯基总统对德法表示愤怒](/content/gnews/49/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/49/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月5日:财经新闻整理](/content/gnews/50/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/50/README.md)
+### [研究证明中共国的器官移植手术是在供体脑死亡之前进行](/content/gnews/51/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵大直播|世界不和中共脱钩 就是奔向火葬场](/content/gnews/51/README.md)
+### [文贵大直播|世界不和中共脱钩 就是奔向火葬场](/content/gnews/52/README.md)
  ` KarmaLabs`
-
-### [秘翻新闻｜中共国进行近一年以来最大玉米采购](/content/gnews/52/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [拜登终于承认乌克兰战争将导致全球粮食短缺](/content/gnews/53/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

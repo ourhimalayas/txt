@@ -2,39 +2,23 @@
 ---
 
 
-## 巴基斯坦总理被解职 印证郭文贵先生情报
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296742/)
+## 俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296818/)
 
-作者：日本方舟农场 – Andy5
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+外媒报导，美国阻止俄罗斯政府，以他们在外国银行持有的储备金，向主权债务持有人支付超过6亿美元的本息，此举是为了加大对莫斯科的压力。西方对俄罗斯的制裁已冻结俄国约6,400亿美元的黄金与外汇储备中的大约一半，但是俄国确实仍有足够的资金，可以从其储备金支付上述的主权债券票息。
 
+此外，原先美国财政部允许俄国政府逐案(case-by-case basis)使用在美国银行里遭冻结的资金支付以美元计价的主权债券票息(coupon)。财政部发言人表示，美国政府4日决定切断莫斯科取得被冻结资金的管道，阻止俄国政府支付即将到期的最大一笔款项，以及另一笔8,400万美元的票息。
 
+外界分析美国此举系为了消耗俄国外汇储备，削弱俄国战争的资金。惟俄国也可能要求欧洲客户以卢布购买天然气，作为反制。俄乌战争导致国际能源及粮食价格飙涨，世界面临经济、粮食危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2%E4%BF%84%E7%BE%85%E6%96%AF%E6%94%AF%E4%BB%98%E5%82%B5%E5%88%B8%E6%9C%AC%E6%81%AF-%E5%8D%87%E9%AB%98%E8%8E%AB%E6%96%AF%E7%A7%91%E5%A3%93%E5%8A%9B-093011243.html)、[NIKKEI](https://asia.nikkei.com/Economy/South-Korea-March-inflation-hits-decade-high-on-supply-challenges)
 
+* * *
 
-
-当地时间3月31日，巴基斯坦反对党表示，已经获得足够票数，将在周日启动投票罢免总理。据悉当时反对党已经争取到了196个议员的支持，高于投票中所需的172人。4月4日，巴基斯坦总理不出意料地，在解散议会后被解职，目前的总理权限保留至选出临时总理为止。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-4.jpg)
-早在3月30日的大直播中，郭文贵先生就已经指出，中共要让巴基斯坦动乱，因为现在的领导人不是百分之百对中共言听计从。
-
-观察人士指出，无论是年初的哈萨克斯坦动乱，还是当前的巴基斯坦总理被罢免，都在像郭先生爆料的那样发展。由此足以看出爆料革命情报的准确性。
-
-参考链接：
-1. [巴基斯坦反对党称“获足够票数罢免总理”，伊姆兰·汗：我会奋战到底](https://www.sohu.com/a/534425598_313745)
-2.  [巴基斯坦总理批评“外国势力”密谋推翻其政府，结果“不小心”点了美国](https://world.huanqiu.com/article/47QaKycAu8L)
-3. [巴基斯坦总理伊姆兰·汗被解职，将留任至选出临时总理](https://www.sohu.com/a/535261959_313745)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑/总编：zhong
-审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

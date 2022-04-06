@@ -2,31 +2,30 @@
 ---
 
 
-## 美国再对台售9500万爱国者防空系统
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297212/)
+## 清明节连休国内旅行者比去年锐减63%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297289/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海6日路透社，经济日报5日报道，据中国运输省估计，3-5天清明节连休期间国内游客人数为5378万人。但是在中共病毒（新冠病毒Covid-19）疫情再次扩大的背景下，比上年同期减少了63%，与20年水平相比也低于约10%。
 
-#### 整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/清明节连休国内旅行者比去年锐减63.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.qunarzz.com%2Ftravel%2Fpoi%2F1501%2Fa4%2F0d09ad8da823f0.jpg_r_720x400x95_583da103.jpg&amp;imgrefurl=https%3A%2F%2Ftravel.qunar.com%2Fp-gj300667-zhongguo&amp;tbnid=wIVjnuWfCsVNQM&amp;vet=12ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ..i&amp;docid=OUy4YY1Gv9eyvM&amp;w=720&amp;h=400&amp;q=%E5%9B%BD%E5%86%85%E6%97%85%E8%A1%8C%20%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/unknown-4.png)图片来源：https://www.voachinese.com/
+中国各地，为了降低感染风险，限制交通量，强制旅行者进行病毒检测等活动正在扩散。 航班使用者下降特别明显，连休中的航班数为56万2000次，比上年减少了87%。道路交通量比上年减少了53%，与20年前的水平差距也小幅度下降了。
 
+野村证券在5日的报告中，估计国内23个城市引进的全面或部分封锁(城市封锁)影响的人数约为1亿9300万人。23个城市占国内人口的比例是13.6%，占国内生产总值(GDP)22%。另外，欧亚集团的分析师认为，中共病毒疫情管制对服务业和中小企业来说是最受打击的。
 
-美国国务院宣布批准向台湾出售一项价值9500万美元的爱国者防空系统技术协助方案，并向国会作出报备。台北方面对此表示欢迎和感谢。
+消息来源：
+[中国清明節の3連休、旅行者前年比63％減　コロナ感染拡大で](https://news.yahoo.co.jp/articles/dc3ec57a769d3d7a4458223b1663c2f72e76b72f)
 
-美国国防部国防安全合作局星期二（2022年4月5日）在一份声明中说，这项军售案包括提供爱国者防空系统的训练、策划、部署、操作、维护，并提供相关设备、零部件和后勤支援，称相关军售案将有助于维持接受方的导弹部署密度、确保防空系统的备战状态；接受方将利用这项能力遏阻地区威胁、强化本土防御。声明说，这项军售不会改变地区的基本军事平衡。
-
-台湾总统府发言人张惇涵星期三在一份声明中称这是拜登政府上任后批准的第三项对台军事案，台湾政府对此表达“诚挚感谢”，称此举再次展现美国政府持续落实台湾关系法和六项保证中对台湾的安全承诺，台湾也会持续展现自我防卫的决心。
-
-参考链接：[美国再批准对台军售确保爱国者防空系统战力](https://www.voachinese.com/a/us-taiwan-arms-sale-air-defense-20220406/6517186.html)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

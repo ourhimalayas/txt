@@ -2,44 +2,40 @@
 ---
 
 
-## 应对排华让你安全的最好武器是你的生存能力和辨别能力
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297657/)
+## 有声|欧盟表示要将俄军暴行送上国际法庭
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2297699/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8832.38%EF%BC%89%E5%BA%94%E5%AF%B9%E6%8E%92%E5%8D%8E%E8%AE%A9%E4%BD%A0%E5%AE%89%E5%85%A8%E7%9A%84%E6%9C%80%E5%A5%BD%E6%AD%A6%E5%99%A8%E6%98%AF%E4%BD%A0%E7%9A%84%E7%94%9F%E5%AD%98%E8%83%BD%E5%8A%9B%E5%92%8C%E8%BE%A8%E5%88%AB%E8%83%BD%E5%8A%9B%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:b)
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
+俄罗斯军队撤离乌克兰北部基辅附近后，当地留下令人窒息的惨景，炸毁的战车，烧焦的土地，人们在多个地方看到尸体。据乌克兰当地官员称，在首都基辅西北约**30**公里的布察市，已给约**280**名死者下葬。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-2.jpg)俄罗斯军队从乌克兰北部撤离后，留下的惨景令人震惊，欧盟理事会主席使用了”屠杀”一词，乌克兰政治家认为俄军犯下战争罪。
+乌克兰总统顾问波多利亚克发布推特写道，**“**他们不是军人，没有佩带武器，不构成危险**”**。他同时发送的一张图上显示双手反绑被击毙的男子。**
 
-**郭文贵先生：**现在我觉得在亚洲的，还有全世界排华。未来可能最夸张的，应该是在今年年底到明年五月份吧！明年五到七月份，为什么呢？我觉得是明年的一个财务年度的时候，世界经济会崩塌的时候。这种怨恨、失业、中国人的疯狂，包括在俄罗斯、俄乌战争这一切的结果，还有中国经济的崩溃。所有的这一切，都成了中国人来买单。
+**欧盟理事会主席米歇尔在推特发文表示，欧盟将就俄罗斯军队在基辅附近的暴行进行调查，他对来自布察等地的图片深感**“**震惊**”**，并使用了**“**屠杀**”**一词。他写道，欧盟将协助国际法庭收集罪证材料。同时，米歇尔宣布欧盟将祭出对俄罗斯的进一步制裁，向乌克兰提供更多援助。**
 
-在东南亚国家，我觉得有些国家还是可以的。你比如说日本就是有右翼，但最起码有法律。然后在柬埔寨、像其他地方，我觉得你们要去的地方，可能土耳其是比较好的。然后像一些欧洲的小国，还是可以的。但是住华人少的地方，是很危险的。
+**欧盟外交与安全政策高级代表博雷利也发帖表达震惊，他写道，俄罗斯军队的暴行必须在国际法庭得到解释。**
 
-最重要的事情，说实在的到哪去，都要有自己的实力。你没有实力，你待在家里卧室里边，都觉得对你不安全。你得有基本的实力和能力，让你安全的最好武器就是你的能力、生存能力，和你对事情的辨别真假善恶的辨别能力，这是最关键的。
+**德国外长贝尔博克谴责**“**普京肆无忌惮的使用暴力**”**，**“**摧毁无辜的家庭**”**。她也宣布将进一步启动对俄制裁。**
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+**
 
-编辑整理：Jacques；
+[【援引连结】](https://www.dw.com/zh/%E6%AC%A7%E7%9B%9F%E8%A1%A8%E7%A4%BA%E8%A6%81%E5%B0%86%E4%BF%84%E5%86%9B%E6%9A%B4%E8%A1%8C%E9%80%81%E4%B8%8A%E5%9B%BD%E9%99%85%E6%B3%95%E5%BA%AD/a-61346348)
 
-字幕档制作：知津；
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴-1.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
 
-视频制作及上传：Cindy；
-
-G-News发布：海贼王M.D.LUFFY；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
 
  
 
