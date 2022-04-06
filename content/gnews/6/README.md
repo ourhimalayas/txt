@@ -2,31 +2,49 @@
 ---
 
 
-## 日本已放弃拜登4月来访的计划
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2300593/)
+## 诗歌《永恒的乡愁》
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2300628/)
 
-共同社4月6日报道，日本外交人士周三表示，由于乌克兰危机，日本政府已经放弃了让美国总统拜登本月访问日本的计划，现在的目标推迟到5月底。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/J-1.jpg)strafsasia.com
-岸田文雄首相上个月在比利时出席七国集团峰会和北约组织紧急会议时曾提议拜登4月下旬来访，这将是拜登作为总统首次访问日本，他们在比利时进行了简短的对话。
+整理：vale
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-10.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-650-edited.png)俞风景：宫墙柳（布面亚克力100x80cm）
 
-东京希望在其主办 “四国集团峰会”时举行岸田-拜登会谈，该集团还包括澳大利亚和印度。四国领导人已同意在6月底前在东京举行会议。
+## **永恒的乡愁**
 
-据日本和美国的外交人士称，美方最初就拜登访问日本一事的回应是5月下旬，后来，由于乌克兰战争使拜登的日程安排紧张，他们表现出不愿意接受岸田的提议。
+作者：俞心樵
 
-在澳大利亚，大选将在5月前举行，这给四方峰会的时间安排增加了不确定性。
+长夜，面对你摸黑写出的诗
+星星也只不过是发光的泡沫
 
-观察家们说，拜登访问日本时，还可能前往亚洲的另一个盟友韩国。韩国当选总统尹锡悦将于5月10日宣誓就职。
+把去远方的机票全都退掉了
+自己就是远方，也照退不误
 
-设想中的四方峰会将是四个民主国家在印太地区深化安全和经济领域合作的一个机会，在这个地区，中共国的影响力一直在增加。
+那么，别躲，我早已经不是债主
+我早已经洗干净，我早已经消毒
 
-俄罗斯对乌克兰的入侵也引起了人们对其对该地区影响的关注。由于印度与俄罗斯的关系也很密切，四方的团结可能会成为焦点。
+这季节，写实的人比神话更魔幻
+拐弯处，泡沫泛起了永恒的乡愁
 
-**快评**：没错，俄乌战争打的就是中美代理人战争，最后的落脚是亚洲。郭先生一直在警告2022年5月，这篇新闻提到的也是5月底或者6月底前。看来到时世界的焦点将转向亚洲。
+尸体已经找到，大地上，从来没有本地人
+请仔细听，每一具尸体，都带着外地口音
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/8dc6a87c9eb5-japan-gives-up-plan-for-bidens-visit-in-april-sources.html](https://english.kyodonews.net/news/2022/04/8dc6a87c9eb5-japan-gives-up-plan-for-bidens-visit-in-april-sources.html)
+2020.2.27.简言居
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+* * *
+
+审核：Aries的星
+校对：小东
+发布：夜来香
+
+当代艺术原创系列文章请点击专栏标题链接：[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
+
+更**多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-6.jpeg)
 
  
 
