@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 3:12 PM (UTC)`
+
+04/06/2022 on the 3rd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 and Cambodia 🇰🇭 Top Song Charts<br/><br/>#1 🥇 on 17Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇 on New Zealand🇳🇿 and Hungary 🇭🇺 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Ireland, Hungary, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月6号, 郭文贵先生两首新歌上线第三天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿， 柬埔寨 🇰🇭 热门歌曲榜首🥇<br/>17 国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿， 匈牙利 🇭🇺 流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、爱尔兰、匈牙利、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2298563/
+
+---
+
 `@miles 4/6/2022 3:02 PM (UTC)`
 
 【乌克兰救援】04/04/2022 那伊夫战友用俄文或乌克兰语向难民解释，虽然都带有“中国”二字，但新中国联邦与中国共产党有本质区别。乌克兰人认识到，中共与前苏联一样，其邪恶的本质从来没用改变，是这次战争的背后推手。<br/><br/>【Ukraine Rescue】04/04/2022 Fellow warrior Naïve explains to refugees in Russian and Ukrainian the essential difference between NFSC and CCP even though the word “China” contained in both names. Some Ukrainians have recognized that the CCP remains the same evil up till now as what the former Soviet Union did which is the driving force behind this war.<br/>
@@ -146,13 +152,6 @@
 
 4/05/2022 Miles Guo’s GETTR: Fellow fighters in Shanxi and Shaanxi revealed that tomb robbing had become popular again in Communist China. Not only were the ancient tombs robbed, but the modern tombs were also dug. It is said that the antiques that were excavated from the tombs had been shipped abroad. The local rich people speculating in stocks and properties lost a great deal of money. So many families broke up and ended up miserable.<br/><br/>4/05/2022 文贵盖特：山西、陕西的战友透露现在国内又流行盗墓了，不但盗古墓、现代墓也盗，据说挖出的古董都运往了国外；当地有钱人炒股炒房的赔得一塌糊涂，多少人家破人亡啊！<br/>
 ![img](https://media.gettr.com/group35/getter/2022/04/05/23/d25a74a2-6d40-5532-122f-94239e031308/out.jpg)
-
----
-
-`@miles 4/5/2022 11:07 PM (UTC)`
-
-2022.04.05 NFSC News  Miles Guo’s New Songs Debuted on iTunes Music Charts
-![img](https://media.gettr.com/group28/origin/2022/04/05/22/a2114106-5079-82ff-8ce0-65ae0100de20/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
