@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 7:00 PM (UTC)`
+
+2022.04.06  新中国联邦 | 军情室  首播  俄乌战争最新战况分析：第一架俄军K52直升机战场投诚
+![img](https://media.gettr.com/group39/origin/2022/04/06/18/01af1392-385a-07f0-9f55-acb8e354e371/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/6/2022 6:47 PM (UTC)`
 
 🔈🔈🔈新中国联邦|军情室 系列节目 周三美东时间下午3点 重磅首播！军情分析，军事理论知识，俄乌战争最新战况分析，干货满满！精彩不容错过，敬请期待 🥳🥳🥳🙏🙏🙏
@@ -148,13 +155,6 @@
 
 2022.04.05《The Fringe》 Episode 162
 ![img](https://media.gettr.com/group38/origin/2022/04/05/23/125f8ade-c003-8c32-b36b-798f2777572f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 11:37 PM (UTC)`
-
-4/05/2022 Miles Guo’s GETTR: Citizens of the New Federal State of China should be grateful for and cherish what we have. The New Federal State of China has had a huge impact in the world, and many countries are considering working with us. When the CCP attacks Taiwan, when food shortages and floods happen in Communist China, and when those inside the CCP are trying to assassinate the top cadres, multiple countries will acknowledge that the New Federal State of China is the legitimate representative of the Chinese.<br/><br/>4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作；当中共打台湾、粮灾水灾爆发和内部斩首的时候，多国将承认新中国联邦为中国人的合法代表<br/>
-![img](https://media.gettr.com/group41/getter/2022/04/05/23/143b4336-1480-6ba2-14f9-aabf4d94867c/out.jpg)
 
 ---
 

@@ -2,56 +2,31 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.6)&#8211;注射新冠疫苗副作用综合征
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2300215/)
+## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
+4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
 
-#### 整理：gardeniahu
-编辑：gardeniahu
+该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13-2.png)图片来源：雅典娜设计组(614)
+该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
 
+该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-帖子原文：
-
-**疫情|新冠疫苗副作用    接种新冠疫苗副作用综合征**
-
-我想分享一下自己的反应可以帮助到更多的人，因为我的经历奇葩又漫长……
-
-我是5月16日下午两点接种第一针疫苗，家里一起去的有四个人，我妈任何反应都没有，我哥嫂子反应较快，第一天第二天分别状况为：干咳，流鼻涕打喷嚏的频率是一天用掉两包抽纸的那种，眼睛突显红肿，跟感冒似的。五六天都没事了。
-
-我头三天没反应，第四天有反应喉咙不舒服，然后干咳，我就知道，疫苗反应来了，到第七天的时候也是打喷嚏流鼻涕，眼睛突显红肿，喉咙嘶哑，这是我第一周反应，第二周也还行，它好的很快，感觉没什么毛病，我以为没事了。到第三周，一到下午就困，瞌睡，很累，乏力，持续后来像脖子不舒服，颈椎病一样，后来头疼，像没睡好一样，但这期间我比平时早睡多了，十点四十就睡了，之前是十一二点，但我丝毫没有缓解疲劳，还是很乏力很累。最后发展到右后侧脖子出现了淋巴结节，很大，像鸡蛋一样，它出现了三天后，我才去吃清热散结的药，吃了两天一点用也没有，然后每天下午一天比一天脑神经疼，后脑勺，尤其右边长结节的这边 ， 一抽一抽 ， 都快挂了的感觉， 真的撑不住 ，但它一天一个变化， 每次都感觉不同 ， 后来终于忍不住了，在我第四周的时候，我开始重视，去了医，没有查血也没有拍片，因为医生说犯不着，我就属于那种过敏体质然后反应缓慢的那种，没事，让我放宽心，慢慢就好了，就我的结节消失的很慢。
-
-最后我自己总结了一下，首先这个疫苗是没问题的，反应看个人体质。我的体质属于过敏体质对芒果菠萝过敏，过往长过带状疱疹和寻麻疹，我的自身免疫力肯定不是那么好。我给大家的建议是在自己身体很好的状态下再去打，然后多喝水，多休息，饮食清淡，多吃水果。放松心情。如果过敏体质，还有个人体质虚弱者免疫力低下者慎重。
-
-新冠疫苗
-
-发布于2021一06.1 2
-
-精选评论
-
-lucky   回复：我也是今天刚好一个月。先出现后背痛和双腿无力，第14天出现手关节疼。第30天出现喉咙有异物。到医院各种检查，连风湿都检查。没有什么。每天都无力。哎。真烦。我都不知道怎么了
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/123-10.png)图片来源：小红书
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1234-1.png)图片来源：小红书
-
-
-参考链接：[疫苗副作用综合征](https://www.xiaohongshu.com/discovery/item/60c47f0c0000000021035129?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649156175)
-
-*发布：wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

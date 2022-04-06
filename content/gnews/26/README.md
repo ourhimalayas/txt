@@ -2,34 +2,33 @@
 ---
 
 
-## 卫星技术拍摄的布查大屠杀铁证
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2300231/)
+## 【G时新闻】美国海军司令称密切关注中共与所罗门群岛的“秘密安排”
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300236/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/cWQ89wyt5jZCQWtT2YCJR8-1651-80.jpg)
-据外媒报道，Maxar Technologies公司的WorldView-3卫星拍摄技术清晰拍摄了布查大屠杀的惨烈现场。卫星图像显示平民尸体散落在布查镇的街道上，还有一个乱葬坑。这个乱葬坑是一个长约45英尺的壕沟，而在3月10日的卫星图像上显示了对此的初步挖掘。
+##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
+视频制作：加拿大温哥华扬帆农场 -【文雅】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+大家好！今天的主题是美国海军司令称密切关注中共与所罗门群岛的秘密安排！
 
-根据时间推移，卫星图像拍摄了俄罗斯在布查的大屠杀铁证。Maxar卫星的清晰度足以分辨人物、汽车和其他的小物体。据悉Maxar目前有四颗卫星都在太阳同步轨道上，这是一种特殊的极地轨道，它能够不断捕获白天的图形，也能在不到一天的时间内恢复同一块地面的图像。在3月18、19、31日的卫星图像中，有四张图像显示尸体躺在街道，这和目击者的地点相吻合。
+澳洲广播公司（ABC）4月5日报导，中共与所罗门群岛之间签署的安全合作协议包含着一系列令美国及其合作伙伴担忧的“秘密”安排。 对此，美国太平洋舰队司令帕帕罗（Samuel Paparo）表示支持澳洲方面发出的这一警告，在距离澳洲昆士兰海岸不到2,000公里的太平洋国家建立中共海军基地，将“改变澳洲国防军的计算方式”。
 
-乌克兰总统发言人表示，乌克兰平民遭受了极其惨烈的折磨和处死，但俄罗斯即刻否认了这一点。联合国敦促对此事进行独立调查，这些残忍的屠杀、强奸、和处决行为严重违反了国际人道主义法和人权法，必须保存一切证据，并安抚受害者家人。
+帕帕罗指出，“这都是一个令人关切的问题，虽然前面仍有路可走，但无论何时，当一项秘密的安全安排被曝光时，这对我们在整个西太平洋地区的所有伙伴，特别是澳洲、新西兰来说，都是值得关注的事”。 帕帕罗还提到，“毫无疑问，中共正在观察在乌克兰发生的事情，并做笔记，从中学习。而且他们将根据学到的东西来提高能力”。暗示中共不希望自己未来对台湾发起入侵战时，犯下同俄罗斯一样的错误。
 
-reference：
+此外，帕帕罗认为印度洋——太平洋地区发生武装冲突的可能性愈来愈大，澳洲人需要对此持“现实主义”态度。 他强调，“由于事件的难以置信的不可预测性，我们这个地区在几年内就有可能发生冲突。2021年谁会料到东欧成为现在这个样子。事实上，这就是我们的使命，作为军人，我们必须永远做好准备”。
 
-[https://www.livescience.com/bucha-massacre-captured-satellite](https://www.livescience.com/bucha-massacre-captured-satellite)
+盖特链接：[https://gettr.com/post/p13trvf3c16](https://gettr.com/post/p13trvf3c16)
 
-撰稿、发布：骄子
-
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
 * * *
 
-欢迎订阅我们的GNews账号：
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

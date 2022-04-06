@@ -2,34 +2,97 @@
 ---
 
 
-## 美国与G7保持一致 宣布对俄罗斯新一轮制裁
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2300524/)
+## 有声|我来自香港
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300554/)
 
-共同社华盛顿4月6日报道，拜登总统的美国政府周三宣布对俄罗斯持续入侵乌克兰采取新一轮的惩罚措施，包括禁止新投资以及对俄罗斯总统普京的女儿进行制裁。
+粵語、國語配音：香草山香港部-格格樹
 
-一位高级政府官员说，此举将与包括日本和英国在内的七个工业化国家集团协调进行，他就俄罗斯从乌克兰布查镇撤军后最近曝光的平民被杀事件抨击莫斯科。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S-1.jpg)blog.nomisec.com
-这位官员说：“在布查发生的令人作呕的暴行悲惨地表明了普京政权的卑劣本质。而今天，为了与七国集团的盟友和伙伴保持一致，我们正在加强对一个主要经济体实施的最严厉的制裁。”
+我来自香港
 
-据白宫称，作为最新行动的一部分，拜登将签署一项行政命令，禁止美国人在俄罗斯进行新的投资，无论他们位于何处，此举旨在进一步将俄罗斯从全球经济中孤立出来。
+自由被摧毁地方
 
-俄罗斯最大的金融机构俄罗斯储蓄银行（Sberbank）和该国最大的私人银行阿尔法银行（Alfa Bank）也将面临在美国的资产冻结，美国人将被禁止与他们做生意。
+如果有人问
 
-白宫表示，更多的个人也将受到制裁，包括普京的两个成年女儿和俄罗斯外长拉夫罗夫的妻子和女儿。
+香港现在怎么样
 
-美国一直在与其他七国集团同行合作，通过对普京和促成战争的商业寡头实施制裁，以及限制与俄罗斯中央银行的交易和将某些银行排除在世界主要国际支付网络之外，向俄罗斯施压，要求其停止2月24日发动的入侵。
+我说
 
-**快评：**一轮又一轮制裁，是美国与西方国家对普京及俄罗斯的行动。
+遍体鳞伤
 
-郭先生说，这次将俄罗斯踢出SWIFT系统是用了牛刀，短期而言对美元是伤害，长期还是有利美国和美元的。
+坐在房间窗台上
 
-从这一轮又一轮的制裁中，估计中共看到了它的末日狂奔，盗国贼们的资产和私生子女们是否已经惶惶不可终日？
+眺望远方
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/be022c5f85cb-urgent-us-says-to-ban-new-investment-in-russia-in-alignment-with-g-7.html](https://english.kyodonews.net/news/2022/04/be022c5f85cb-urgent-us-says-to-ban-new-investment-in-russia-in-alignment-with-g-7.html)
+那里是我的家乡
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+曾经充满欢乐的香港
 
+多少次在梦里
+
+把你回望
+
+你还好吗我的故乡
+
+独裁者践踏着你的声望
+
+把美好变成丑陋
+
+他们眼冒凶光
+
+即便你遍体是伤
+
+敲骨吸髓要把你血抽光
+
+我来自香港
+
+自由民主已经死亡
+
+奴才们领着狗粮带着枪
+
+在街上晃荡
+
+善良人们躲在房
+
+眼泪混合着绝望
+
+香港，香港
+
+你的反送中精神
+
+在人世间流淌
+
+从来不曾屈服的香港
+
+伴随着新中国联邦
+
+消灭中国共产党
+
+把荣光归还香港
+
+香港，香港
+
+我的家乡
+
+等我们回来
+
+和你一起
+
+再次荣光
+
+文字版原文：[我来自香港](https://gnews.org/zh-hans/2294551/)
+
+音频处理：Fei797
+发稿：Fei797
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
