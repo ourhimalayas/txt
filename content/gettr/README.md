@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 11:35 PM (UTC)`
+
+2022.04.06《The Fringe》 Episode 163
+![img](https://media.gettr.com/group12/origin/2022/04/06/23/a2c191a6-f70c-9db1-c3e0-d95faa528d58/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/6/2022 11:03 PM (UTC)`
 
 2022.04.06 NFSC News  The NFSC cooperates with the international community on eliminating the CCP
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 4/3/2022 Miles Guo: After the midterm elections, the entire world’s landscape and social media will undergo enormous changes. Facebook, YouTube, and the traditional MSM like CNN will be gone. Although Elon Musk will be able to create a commercially successful social media platform, he will never be able to launch a platform like those of the New Federal State of China that are dedicated to taking down the CCP, have faith, and can change the world.<br/><br/>4/3/2022 文贵直播: 美国中期选举后，全世界格局和社交媒体都将发生巨变，脸书、油管以及CNN等传统主媒都将消失；马斯克虽能创造出商业上成功的社交媒体，但他永远做不了新中国联邦这样的灭共、有信仰并能改变世界的平台<br/>
 ![img](https://media.gettr.com/group14/getter/2022/04/06/07/ec8bcf23-c629-4ade-db5e-67cb3c6a18cf/out.jpg)
-
----
-
-`@miles 4/6/2022 6:38 AM (UTC)`
-
-4/3/2022 Miles Guo: In addition to having the fundamental knowledge and logics to understand the world, the most important thing is for us to have comprehensive cognitive ability. President Trump’s collaboration with Bruno Wu in launching Truth Social will become a major event that will shift the American political landscape. I am preparing the grand plan for the Whistleblowers’ Movement after this year’s midterm elections, with the intention of preventing the collapse of the CCP from harming the innocent Chinese people.<br/><br/>4/3/2022 文贵直播: 我们除了要有认识世界的基础知识和逻辑能力，最重要的是要具备综合认知能力；川普和吴征合作搞Truth Social会成为改变美国政治格局的大事件；文贵在准备今年美国中期大选以后的爆料革命的大计划，意在避免中共倒台连累更多无辜的中国人<br/>
-![img](https://media.gettr.com/group43/getter/2022/04/06/06/aab1193a-21c9-3e47-f10b-ce21ce518af2/out.jpg)
 
 ---
 

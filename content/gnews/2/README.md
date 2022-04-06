@@ -2,104 +2,31 @@
 ---
 
 
-## 消失的花朵—致“八个孩子的妈妈”
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2300927/)
+## 有声|日本前首相呼吁美国改变对台模糊政策吓阻中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2300936/)
 
-作者：紐約香草山农场- 杰西卡爱月亮
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+台媒报道，3月31日，日本前首相安倍晋三在接受美国智库威尔逊研究中心采访时，呼吁美国改变对台湾的战略模糊政策，改为事先表明立场，以发挥吓阻中共的作用。
 
-> 你本是美丽的花朵
-> 应该呼吸自由的空气
-> 
-> 你本是智慧的花朵
-> 应该在校园里快乐的学习
-> 
-> 你本是浪漫的花朵
-> 应该享受爱情且被他珍惜
-> 
-> 但是
-> 世间的禽兽没有标记
-> 他们披着人的外皮
+安倍表示，台湾和日本的与那国岛距离仅110公里，中共如果侵略台湾，将会寻求控制领空和取得制空权，这会导致日本《和平安全法》定义的“重要影响事态”发生，日本就可据此向美军提供后勤支援。由于台湾当前未获国际社会多数国家承认，也不是联合国成员，因此跟乌克兰情况有很大不同。美国目前所采取的战略模糊立场应当取消，事先明确倘若台海爆发战事，美军就会介入干预，则有可能避免发生战争。
 
+安倍认为，虽然中共会考虑到武力犯台将使其经济受到严重损害，但是这并不代表中共未来不决定动武。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2917.jpg)
+文字版原文：[日本前首相呼吁美国改变对台模糊政策吓阻中共](https://gnews.org/zh-hans/2280152/)
 
+音频处理：Fei797
+发稿：Fei797
 
-
-
-
-
-
-
-
-
-> 消失的花朵
-> 你被他们残忍无情的
-> 贩卖到深山里
-> 
-> 你被惨无人寰的践踏
-> 沦为生育的机器
-> 
-> 在中共统治下的华夏大地
-> 重男轻女
-> 计划生育
-> 一朵朵含苞欲放的鲜花
-> 或许见不到阳光
-> 就被流淌入献血里
-> 
-> 妇女能顶半边天
-> 多么唬人的豪言壮语
-> 你认为
-> 被赋予了平等的权利
-> 只不过是权力
-> 让你变成生产的奴隶
-> 
-> 中共的邪恶势力
-> 愚昧无知的观念里
-> 一朵朵花朵被埋
-> 在看不见天日的深山里
-> 消失匿迹
-> 
-> 你不叫锁链女
-> 这不是你的名字
-> 你叫李莹吗
-> 你用自己不堪的身体
-> 孕育八个孩子
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2916.jpg)
-
-
-
-
-
-
-
-
-
-
-> 舆论热点忘记你
-> 我们没有忘记你
-> 万恶的中共对你的信息
-> 全面的封闭
-> 你还好吗
-> 
-> 我相信
-> 很多怨女孤魂
-> 在华夏的土地上
-> 要让中共死无葬身之地
-
-
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-编辑/校对/发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
 **更多资讯，更多关注**
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

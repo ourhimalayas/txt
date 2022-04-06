@@ -2,41 +2,33 @@
 ---
 
 
-## 有声|上海宝山区封城居民食物短缺，政府毫无作为
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299461/)
+## 澳洲金融监管机构的严苛新规对数字货币从业者打击巨大
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2299304/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-墙内网友4月4日爆料称，在当下疫情管控期间，上海政府以55-100元的价格，向居家隔离的市民出售蔬菜盲盒。然而很多人拿到手之后发现都是一些已经坏掉的蔬菜。而上海宝山区大场镇并没有发放食物，在很多老年人只能选择一边接受强制隔离，一边挨饿的状况。
+翻译：文印
+编辑：李易通
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide11.jpeg)
-
-网友在这通投诉电话中指出，工作人员之前给的物资保障热线，一直处于占线状态，无法接通。截止投诉当日，大场镇也没有发放任何物资，且被告知大场镇没有发放物资的计划。此前一日，同在大场镇的保利、顾春小区居民，因不满隔离配给政策自发举行抗议活动。
-
-经网友爆料，有远在浦东的居民，竟然收到了理应配送宝山区的物资“大礼包”，“宝山区政府“几个大字显得格外刺眼。由于中共当局停止了美团、叮咚等食物代购平台，很多家庭都面临粮食短缺。
-
-面对这些尖锐的民生矛盾，当地信访工作人员并无有效的解决方案，并拒绝将这些民生问题向上级汇报。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-611.png)图片来源：雅典娜设计组（Rosie Lee）
 
 
+澳大利亚证券投资委员会（ASIC）最近发布了最新数字货币从业人员行为列表及行为规定。由于新规对数字货币从业人员行为规定过于严苛，可能会招致从业人员的快速消失。尽管金融业对ASIC的新规存在分歧，但这些新规是必要的，因为数字货币投资者知识匮乏，很容易受到从业人员的误导和欺骗。
 
-文字版原文：[上海宝山区封城居民食物短缺，政府毫无作为](https://gnews.org/zh-hans/2294078/)
+ASIC现在已发布了针对数字货币从业人员的最新行为指南，其中包括要求在特定领域的从业人员获得执照。业内知名人士表示：“这会把从业人员变成机器，不利于业内信息的充分交流与分享。”
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+ASIC进一步禁止数字货币从业人员传达 “建议投资者是否投资于某一产品” 的信息描述，并把这视为“提供无牌照金融产品建议”，他们只能提供 “对不同类型的金融产品的描述，而不能暗示一种产品比另一种更好” 。违反该规定可能招致多达数百万罚款或五年监禁。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+澳大利亚的从业者，包括全球的数字货币从业者都对新规感到愤怒。因此ASIC正在提供一个简易解决方案——只需获得执照许可，可以按照从业者的意愿提供相关服务。但业内知名人士表示：“ASIC要求从业人员获得执照许可的规定除了增加从业人员的负担外不切实际，因为统计数据显示数字货币的关注群体主要为年青人，这个群体不太可能寻求有执照的金融顾问服务。”
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+另外，在ASIC打击金融从业者的同时，政府认为消费者必须为自己的决定负责。财政部长Jane Hume最新评论表示: “政府可能不完全支持新的限制措施；少数从业者不良行为的存在并不能成为全盘限制和监管所有从业人员言论自由的理由。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+参考链接：[澳洲金融监管机构的严苛新规对数字货币从业者打击巨大](https://coingeek.com/australian-watchdog-tough-new-rules-could-wipe-out-crypto-influencers/)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+发布：tianzhihuan
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
