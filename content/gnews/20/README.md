@@ -2,40 +2,23 @@
 ---
 
 
-## 加拿大律师接种疫苗，左耳听力严重受损
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2296756/)
+## 俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296818/)
 
-#### 【雅典娜观察】和你一起洞察世界
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+外媒报导，美国阻止俄罗斯政府，以他们在外国银行持有的储备金，向主权债务持有人支付超过6亿美元的本息，此举是为了加大对莫斯科的压力。西方对俄罗斯的制裁已冻结俄国约6,400亿美元的黄金与外汇储备中的大约一半，但是俄国确实仍有足够的资金，可以从其储备金支付上述的主权债券票息。
 
-#### 整理/编辑：文泓
+此外，原先美国财政部允许俄国政府逐案(case-by-case basis)使用在美国银行里遭冻结的资金支付以美元计价的主权债券票息(coupon)。财政部发言人表示，美国政府4日决定切断莫斯科取得被冻结资金的管道，阻止俄国政府支付即将到期的最大一笔款项，以及另一笔8,400万美元的票息。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片26.png)图片来源：Medpage Today & 雅典娜设计组
+外界分析美国此举系为了消耗俄国外汇储备，削弱俄国战争的资金。惟俄国也可能要求欧洲客户以卢布购买天然气，作为反制。俄乌战争导致国际能源及粮食价格飙涨，世界面临经济、粮食危机。
 
+来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2%E4%BF%84%E7%BE%85%E6%96%AF%E6%94%AF%E4%BB%98%E5%82%B5%E5%88%B8%E6%9C%AC%E6%81%AF-%E5%8D%87%E9%AB%98%E8%8E%AB%E6%96%AF%E7%A7%91%E5%A3%93%E5%8A%9B-093011243.html)、[NIKKEI](https://asia.nikkei.com/Economy/South-Korea-March-inflation-hits-decade-high-on-supply-challenges)
 
-近日据大纪元报道，来自加拿大阿尔伯塔省的律师德里克‧弗隆为了遵守公共卫生要求，他接种了新冠疫苗。但没想到，接种疫苗后，让他左耳听力严重受损。
+* * *
 
-在接种疫苗后不久，他的左耳出现问题，他说，在接种辉瑞后约10天内，他的左耳出现了“相当严重的”听力损失。
-
-弗隆说：“我当时在工作室里，突然间我左耳听不见了。”他同时也是一名演奏师和音频工程师。“我坐在显示器前，为客户试着做批判性的聆听，但现在我无法做到，我听力消失了。”
-
-他去看了医生，并告知听力损失可能是由疫苗引起的。这位医生非常紧张。他说：“哦，不，不可能。人们会无缘无故地失去一侧的听力，这很常见。”
-
-弗隆从疫情爆发后就参与了与新冠政策相关的事情，包括代表试图挑战阿省疫苗规定的急救人员和消防员维权，他理解他的医生处在“一个艰难的位置”，可能面临着来自医师学会的压力。
-
-这名医生把弗隆介绍给了一位听力专家。“报告显示，我的左耳有63%的听力丧失，”弗隆说。
-
-在最近的一份简报中，世界卫生组织（WHO）报告了164例听力丧失和367例耳鸣，这可能与COVID-19疫苗有关。
-根据截至2021年2月22日收集的数据，研究结果显示，大多数出现听力损失的人都接种了辉瑞疫苗。
-
-参考链接：[加拿大律师接种疫苗后 左耳听力下降63%](https://www.epochtimes.com/gb/22/4/5/n13695861.htm)
-
-*发布：wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

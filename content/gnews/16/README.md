@@ -2,23 +2,22 @@
 ---
 
 
-## 俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296818/)
+## 视频|CIA局长与拜登總統会面后确诊 经判断拜登非属密切接触者
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2296825/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-外媒报导，美国阻止俄罗斯政府，以他们在外国银行持有的储备金，向主权债务持有人支付超过6亿美元的本息，此举是为了加大对莫斯科的压力。西方对俄罗斯的制裁已冻结俄国约6,400亿美元的黄金与外汇储备中的大约一半，但是俄国确实仍有足够的资金，可以从其储备金支付上述的主权债券票息。
+制作：香草山视频部
 
-此外，原先美国财政部允许俄国政府逐案(case-by-case basis)使用在美国银行里遭冻结的资金支付以美元计价的主权债券票息(coupon)。财政部发言人表示，美国政府4日决定切断莫斯科取得被冻结资金的管道，阻止俄国政府支付即将到期的最大一笔款项，以及另一笔8,400万美元的票息。
+外媒报导，美国中情局（CIA）局长威廉伯恩斯于接种三剂中共病毒疫苗后，官方确认于上周四确诊COVID，并出现轻微症状。。确诊前一天，他曾出席与拜登总统的会议，官方声明中强调“会议上有保持社交距离，并佩戴N95口罩”，依照CDC标准拜登总统非属密切接触者。
 
-外界分析美国此举系为了消耗俄国外汇储备，削弱俄国战争的资金。惟俄国也可能要求欧洲客户以卢布购买天然气，作为反制。俄乌战争导致国际能源及粮食价格飙涨，世界面临经济、粮食危机。
+除中央情报局长外，白宫新闻秘书詹·普萨基、副秘书卡琳·皮埃尔接连被检测出确诊新冠病毒，确诊前与拜登总统的会议有保持社交距离，故拜登总统非属密切接触者范畴。外媒报导称，白宫新闻副秘书卡琳·皮埃尔原计划与拜登总统出访比利时、波兰，经确诊后无法一同出行。
 
-来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2%E4%BF%84%E7%BE%85%E6%96%AF%E6%94%AF%E4%BB%98%E5%82%B5%E5%88%B8%E6%9C%AC%E6%81%AF-%E5%8D%87%E9%AB%98%E8%8E%AB%E6%96%AF%E7%A7%91%E5%A3%93%E5%8A%9B-093011243.html)、[NIKKEI](https://asia.nikkei.com/Economy/South-Korea-March-inflation-hits-decade-high-on-supply-challenges)
+目前，美国批准第四剂疫苗后，拜登总统于上周接种第四剂，并公开呼吁应准被足量的第四剂中共病毒疫苗。
 
-* * *
+发稿：Daxia
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

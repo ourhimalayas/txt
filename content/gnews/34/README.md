@@ -2,30 +2,34 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月5日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2295644/)
+## 当前中国多数疫情实则为疫苗反应，科学服用青蒿素等有绝对疗效
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/2296033/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-1-2.png)
+新西兰伊甸农场Gnews组 财经G乐部-亚伦
+
+4月3日，郭文贵先生于Gettr大直播中透露，目前在上海、长春、深圳、香港等地发生的绝大多数疫情实质为新冠疫苗反应，新冠疫苗就是新冠病毒，并表示，好消息是只要科学的服用青蒿素等对新冠疫苗反应有绝对疗效。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/326936bc070843ad95206e8591141bd0.jpeg)图片来源nbcnews
 
 
-校对：Stay文苑
+新冠疫苗反应与感染新冠病毒症状反应相同，新冠疫苗就是打在身体里的新冠病毒，打了新冠疫苗的人本身就是新冠病毒携带者。现在发生在上海、长春、深圳、香港等地的疫情，中共内部知晓这就是新冠疫苗反应的结果。
 
-编辑：Stay文苑
+与此同时，中共全力发展殡葬事业，早在2018年郭先生就爆料王岐山控制医疗养老产业、殡葬业。目前中共研究出处理尸体的冰化、气化技术，如今运往上海5,000多个气化炉，这些气化炉一天的气化总量可达500万人。
 
-发稿：Stay文苑
+好消息是只要科学的服用青蒿素、维他命、补铁等，将对新冠疫苗反应有绝对疗效。据悉，华人女性在新冠疫苗反应中最多的子宫炎、子宫癌、胸腺炎、胸腺癌，同时，华人男性新冠疫苗反应的主要体现在心梗和脑梗。对于白人来说，新冠疫苗反应最多的是胰腺、前列腺，然后是脑梗、心梗。
 
-新闻：[https://gettr.com/post/p13rmiocc65](https://gettr.com/post/p13rmiocc65)
-访谈：[https://gettr.com/post/p13raa0fc92](https://gettr.com/post/p13raa0fc92)
+**附：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6.jpeg)
+心肌梗死最典型的症状是不同程度的胸痛、虚弱、发汗、晕眩、呕吐、心跳不稳定，有时心肌梗死也会导致昏迷。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+脑梗常见症状以猝然昏倒、半身不遂、言语及智力障碍为主。
+
+疫苗（新冠疫苗）
+
+中共病毒（新冠病毒covid-19）
+
+我们不反疫苗，只针对假疫苗
+
+我们不反科学，只针对反人类
 
  
 
