@@ -2,69 +2,46 @@
 ---
 
 
-## 泽连斯基在联合国演讲 指俄犯下二战以来最严重战争罪行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2296558/)
+## 七哥早晚要拿回来被中共抢走的布满灭共元素的私人飞机
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2296681/)
 
-翻译：文乐
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8818.38%EF%BC%89%E4%B8%83%E5%93%A5%E6%97%A9%E6%99%9A%E8%A6%81%E6%8B%BF%E5%9B%9E%E6%9D%A5%E8%A2%AB%E4%B8%AD%E5%85%B1%E6%8A%A2%E8%B5%B0%E7%9A%84%E5%B8%83%E6%BB%A1%E7%81%AD%E5%85%B1%E5%85%83%E7%B4%A0%E7%9A%84%E7%A7%81%E4%BA%BA%E9%A3%9E%E6%9C%BA%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:5)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-3.jpg)
+**郭文贵先生：**谈谈飞机吧，给你们一个个都……对了，这才是咱七哥的飞机，看到了吗？这是里边，走，照片儿走起来。有外面吗？看看看看。再往下走、往下走、往下走。Chinese Client（中国客户）,看到照片，对了，走、走。这是百分之百七哥设计，百分之百七哥飞机，这全都是七哥的。你看看，金木水火土、宇宙、地毯都是我画的图。你看这里边这个黄色，熟悉吧?七哥的黄，镇住乾坤，七哥的这个床叫镇住乾坤呐。
 
+再往下走，这里边都是灭共的影子都看出来。在飞机上淋浴间，七哥这淋浴间够性感的吧？你想想你在这地方双修一下多好，你看看。再往下爱马仕的皮子，全爱马仕的皮子、爱马仕的毯子，你看看都是碳纤维的。再往下、再往下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-81-edited.jpg)2022年4月5日，在俄罗斯入侵乌克兰期间，在美国纽约市曼哈顿联合国总部举行的一次会议上，乌克兰总统泽连斯基通过视频链接向联合国安理会发表讲话时出现在屏幕上。路透社/安德鲁凯利
-联合国，4 月 5 日（路透社） – 乌克兰总统泽连斯基周二对联合国安理会表示，俄罗斯“必须承担责任”，因为他指责入侵的俄罗斯军队犯下了二战以来“最可怕的战争罪行”。
+看看这是龙，龙，盘古的龙！看看碳纤维的桌子。这个被共产党给抢走了，现在一个以色列人手里边呐，这架飞机早晚我得拿回来。走、走。你看这餐具每样都是……哇噻！来，哇！你看这个，我认为这是世界上最棒的飞机。
 
-泽连斯基在伊尔平、迪梅尔卡、马里乌波尔和布查展示了一段烧伤、流血和肢解尸体的短视频，乌克兰指责俄罗斯军队在这些地方杀害了数百名平民。
+那个天花全是爱马仕的皮子，用手工给勒上去的。走、往下走、再往下走、再往下走，外型呢？外型呢？咋没外型呢？外表呢？这是另外一个卧室，两个卧室，这个是儿子的卧室。
 
-俄罗斯驻联合国大使瓦西里·涅边贾随后告诉安理会，俄罗斯军队没有针对平民，将滥用职权的指控视为谎言。他说，虽然布查在俄罗斯的控制下，“没有一个平民遭受任何形式的暴力”。
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
-泽连斯基质疑由15名成员组成的联合国安理会的价值，该委员会无法对俄罗斯 2月24日入侵乌克兰采取任何行动，因为莫斯科和其他常任理事国美国、法国、英国、中国一样拥有否决权。
+编辑整理：Jacques；
 
-“我们正在与一个将其在联合国安理会的否决权转变为（导致）死亡权利的国家打交道，”泽伦斯基在乌克兰首都基辅的现场视频讲话中说，敦促改革这个世界机构。“俄罗斯想把乌克兰变成沉默的奴隶。”
+字幕档制作：知津；
 
-俄罗斯表示，它正在开展一项“特殊军事行动”，旨在摧毁乌克兰的军事基础设施并将其“去纳粹化”，并否认袭击平民。乌克兰、议会民主制国家和西方国家都说莫斯科是在没有挑衅的情况下入侵的。
+视频制作及上传：Cindy；
 
-中共国驻联合国大使张军表示，自战争开始以来，俄罗斯的合作伙伴中共国对布查平民死亡的画面“深感不安”，要求核实发生的事情。
+G-News发布：海贼王M.D.LUFFY；
 
-印度在军事硬件方面严重依赖俄罗斯，也对联合国的行动投了弃权票，谴责了布查的杀戮事件，并呼吁进行独立调查。
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-俄罗斯的涅边贾(Nebenzia)说：“我们为了拯救尽可能多的平民而未对平民目标开枪。这正是我们没有像许多人预期的那样快速推进的原因。”
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-美国驻联合国大使琳达·托马斯-格林菲尔德（Linda Thomas-Greenfield）表示，负责任的世界大国和全球领导人需要“表现出勇气——并勇敢地面对俄罗斯对乌克兰和世界的危险和无端威胁”。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“没有人可以成为俄罗斯侵略的盾牌，”她在华盛顿推动将俄罗斯从设在日内瓦的联合国人权理事会中踢出时说。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-外交官表示，在纽约举行的由 193 个成员国组成的联合国大会可能会在周四就暂停俄罗斯的行动进行投票。需要出席投票的成员的三分之二多数。
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
-涅边贾回应说：“我希望我们来自联合国的同事不要被操纵，并与华盛顿打交道。”
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-联合国表示，大约1100万乌克兰人——超过人口的四分之一——已经逃离家园。其中超过400万人离开了乌克兰。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-联合国援助负责人马丁·格里菲斯说，至少有1,430名平民丧生，其中包括121多名儿童。“我们知道这可能是一个严重的低估，”他补充说。
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-正在乌克兰寻求人道主义休战的格里菲斯表示，周一在莫斯科与俄罗斯外交部长谢尔盖·拉夫罗夫进行了“坦率”会晤后，“我们还有很长的路要走”。格里菲斯说，他希望周三前往乌克兰与乌官员会面。
-
-联合国政治事务负责人罗斯玛丽·迪卡洛表示，联合国人权监察员正在寻求核实俄罗斯军队对性暴力的指控。
-
-“这些包括轮奸和当着儿童的面强奸，”她说。“也有人声称乌克兰军队和民防民兵实施了性暴力。”
-
-联合国秘书长安东尼奥·古特雷斯警告安理会，俄罗斯入侵乌克兰是国际秩序面临的最大挑战之一，“因为其性质、强度和后果”。
-
-新闻来源：[In U.N. speech, Ukraine’s Zelenskiy accuses Russia of worst war crimes since WW2](https://www.reuters.com/world/un-chief-warns-ukraine-war-one-greatest-challenges-international-order-2022-04-05/)
-
-* * *
-
-素材：peacelv
-审核：BryanW
-校对：五通庙
-发布：五通庙
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-4.jpeg)
+G-TV：日本银河系农场。
 
  
 
