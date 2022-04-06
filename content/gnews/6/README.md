@@ -2,40 +2,20 @@
 ---
 
 
-## 马斯克抨击世界经济论坛的ESG社会评分制是魔鬼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300766/)
+## 毒品犯罪网络用中共国的化学品大规模制造芬太尼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300798/)
 
-#### 选材/编译    Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16492785521.png)WEF.org
-马斯克说，“我越来越相信，ESG是魔鬼的化身”。
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-655.png)图片来源：NBC新闻
+据《布雷特巴特新闻网》（Breitbart News）4月6日报道，美国缉毒局局长安妮·米尔格拉姆 (Anne Milgram)本周二（4月5日）在接受美国广播公司（ABC）的《夜线》（Nightline）节目采访时表示，中共国向正在大规模生产假处方药的墨西哥和毒品犯罪网络提供化学品制造芬太尼。然后这些假药被当作处方药出售，但实际上掺有芬太尼。
 
-据PM新闻网站4月3日报道，上周六，依隆·马斯克（Elon Musk）再次抨击旨在指导道德投资的规则，该规则被称为 ESG（环境、社会和治理）标准。
+米尔格拉姆说：“我们确实看到在美国，不仅有大量的年轻人、还有老年人正在购买这些假处方药。这些假药被当作阿普唑仑 (Xanax)、羟考酮（Oxy）和扑热息痛（Percocet）出售，但它们根本就不包含这些药物成分，它们实际上是芬太尼。现在，吸毒过量已成了18至45岁男性死亡的主要原因，死于吸毒过量的人数比车祸和枪支暴力还要多。因此，我们必须真正广泛地认识到，芬太尼不仅仅是危害到了青少年，而是全年龄段的美国人，他们遍及农村、城市和郊区的每一个人口群体。人们正在以创纪录的速度死去。”
 
-据英国《每日邮报》报道，ESG是由欧盟赞助的。如果公司遵守该规则，他们将获得一枚批准印章，投资者可以用它来衡量自己的投资决定。
-
-根据Investopedia网站的说法，ESG标准，是有社会意识的投资者用来筛选潜在的投资项目。也被称为运营标准。
-
-E（环境标准）公司的能源浪费、产生的污染以及对动物和自然的处理。
-
-S（社会标准）公司支持LGBTQ权利和他们支付公平工资。
-
-G（治理标准）多元化的董事会，以及企业透明度。
-
-路透社在2022年3月2日一篇文章中称，只要国防部的武器是用于对付俄罗斯总统普京，那么以前被排除在ESG之外的国防部门，就有可能过关。
-
-然后马斯克发出了一系列的推来针对ESG。他曾在2022年3月22日写道，“ESG是一种大规模的社会信用制度，其旨在用于企业和机构。它具有渗透性。如果他们能说服你用各种社会和经济杠杆来改变自己的行为，他们就不必实施直接的社会信用制度”。
-
-2022年3月8日，马斯克在推特上称，ESG标准已 “扭曲到疯狂”的程度，该标准 “如果不改，就应该删除”。
-
-世界经济论坛（World Economic Forum）在推动制定标准方面发挥了关键作用。去年10月，WEF发布了一份报告，内容是有60家公司在公开信中，要求欧盟成为设定ESG全球标准的主导力量。
-
-在公开信中，将ESG标准与欧洲绿色协议紧密联系在一起，并指出 “这些努力需要得到全球一致的绩效指标”。“世界应该遵循同样的模式，建立一个能够确保客观性和正当程序的独立机构”。
+中共病毒、中共病毒疫苗以及芬太尼，这些大规模杀伤性武器都与中共息息相关，它们正被用来摧残和杀害美国人以及全世界的人民。邪恶的中共政权是全球灾难的根源，中共一日不除，世界一日不得安宁。灭共是正义的需要！
 
 *责编：白夜*
 
-[原文链接](https://thepostmillennial.com/elon-musk-slams-corporatist-moralism-of-esg-pushed-by-world-economic-forum)
-
-
+新闻来源：[DEA Administrator: ‘China Is Providing Chemicals’ ‘to the Criminal Drug Networks’ That Are ‘Mass-Producing’ Fentanyl Pills](https://www.breitbart.com/clips/2022/04/06/dea-administrator-china-is-providing-chemicals-to-the-criminal-drug-networks-that-are-mass-producing-fentanyl-pills/)
 
  
 

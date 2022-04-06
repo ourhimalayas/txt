@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 9:40 PM (UTC)`
+
+ 4月6号：尊敬的战友们好，刚刚的开完庭．收到了很多战友的问候……七哥在这里衷心地，感谢所有兄弟姐妹们的关心，❤️❤️❤️❤️❤️❤️❤️七哥向你们报平安了！
+![img](https://media.gettr.com/group35/getter/2022/04/06/21/12984f7a-ccb0-6ca8-1e2f-1458015c8c2e/out.jpg)
+
+---
+
 `@miles 4/6/2022 8:44 PM (UTC)`
 
 2022.04.06  新中国联邦 | 喜健康   营养师分享的私房经/中共病毒的预防漫谈
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
 ![img](https://media.gettr.com/group12/origin/2022/04/06/04/f0f6ad61-4c86-944c-b853-67a62f5869d9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/6/2022 3:03 AM (UTC)`
-
-2022-4-5《鸡血王喜币大作战》 第一百五十六集 嘉宾：无双柳薇薇、文空
-![img](https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

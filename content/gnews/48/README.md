@@ -2,31 +2,25 @@
 ---
 
 
-## 国际｜美国海军司令称密切关注中共与所罗门群岛的秘密安排
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297089/)
+## 俄乌战争｜欧盟提议将俄煤纳入制裁清单 削减俄能源收入
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2297315/)
 
-**图/文｜CP**
-**发布时间｜06/04/2022**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美國海軍司令稱密切關注中共與所羅門群島的秘密安排-.jpg)
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-2-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌局势致能源价格飙涨，全球通胀持续扩大，欧盟部分成员国高度依赖俄罗斯能源供给，为降低全球对俄罗斯能源的依赖，日前美欧成立新的伙伴关系，美方承诺向欧盟出口150亿立方米的液化天然气，且未来将继续增加出口量。俄罗斯总统普京则要求欧盟不友好名单国家应以卢布购买天然气，否则断供，此举恐加剧影响国际能源及粮食价格。
 
-[点击关注官方盖特](https://www.gettr.com/user/hktwfrontline)
+欧洲统计局数据，2020年欧盟自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气，其中以主席国德国最依赖俄罗斯能源。经欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）证实，欧盟委员会提议将俄罗斯煤炭纳入制裁清单中，可能对俄实施“每年高达40亿欧元的煤炭进口禁令”为削减俄罗斯另一重要能源收入。
 
+即便欧盟高度依赖俄罗斯能源，惟各界逐渐掌握俄军在乌克兰犯下的战争罪行，欧盟考虑将煤炭进口禁令添加到第五轮制裁中，是否落实仍应视当地时间周三会议结果。
 
-澳洲广播公司（ABC）4月5日报导，中共与所罗门群岛之间签署的安全合作协议包含着一系列令美国及其合作伙伴担忧的“秘密”安排。
+德国高度依赖俄罗斯天然气，该国财政部长克里斯蒂安·林德纳表示“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系，但目前不可能切断天然气供应。”
 
-对此，美国太平洋舰队司令帕帕罗（Samuel Paparo）表示支持澳洲方面发出的这一警告，在距离澳洲昆士兰海岸不到2,000公里的太平洋国家建立中共海军基地，将“改变澳洲国防军的计算方式”。
-
-帕帕罗指出，“这都是一个令人关切的问题，虽然前面仍有路可走，但无论何时，当一项秘密的安全安排被曝光时，这对我们在整个西太平洋地区的所有伙伴，特别是澳洲、新西兰来说，都是值得关注的事”。
-
-帕帕罗还提到，“毫无疑问，中共正在观察在乌克兰发生的事情，并做笔记，从中学习。而且他们将根据学到的东西来提高能力”。暗示中共不希望自己未来对台湾发起入侵战时，犯下同俄罗斯一样的错误。
-
-此外，帕帕罗认为印度洋——太平洋地区发生武装冲突的可能性愈来愈大，澳洲人需要对此持“现实主义”态度。他强调，“由于事件的难以置信的不可预测性，我们这个地区在几年内就有可能发生冲突。2021年谁会料到东欧成为现在这个样子。事实上，这就是我们的使命，作为军人，我们必须永远做好准备”。
-
-來源｜[ABC](https://www.abc.net.au/news/2022-04-05/us-admiral-lashes-solomon-islands-security-pact-china/100967110)
+来源｜[cnbc](https://www.cnbc.com/2022/04/05/european-union-could-ban-russian-coal-imports-sources-say.html)、[bloomberg](https://www.bloomberg.com/news/articles/2022-04-05/eu-to-propose-banning-coal-imports-from-russia-after-atrocities)
 
 * * *
 
-**Subscribe Frontline Gettr****：**[**@HKTWfrontline**](https://www.gettr.com/user/hktwfrontline)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

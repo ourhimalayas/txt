@@ -2,20 +2,20 @@
 ---
 
 
-## 毒品犯罪网络用中共国的化学品大规模制造芬太尼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300798/)
+## 中央刑警怀疑俄罗斯民机侵犯芬兰领空
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2300838/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-655.png)图片来源：NBC新闻
-据《布雷特巴特新闻网》（Breitbart News）4月6日报道，美国缉毒局局长安妮·米尔格拉姆 (Anne Milgram)本周二（4月5日）在接受美国广播公司（ABC）的《夜线》（Nightline）节目采访时表示，中共国向正在大规模生产假处方药的墨西哥和毒品犯罪网络提供化学品制造芬太尼。然后这些假药被当作处方药出售，但实际上掺有芬太尼。
+**撰稿：日本东京方舟农场 JIHO**
 
-米尔格拉姆说：“我们确实看到在美国，不仅有大量的年轻人、还有老年人正在购买这些假处方药。这些假药被当作阿普唑仑 (Xanax)、羟考酮（Oxy）和扑热息痛（Percocet）出售，但它们根本就不包含这些药物成分，它们实际上是芬太尼。现在，吸毒过量已成了18至45岁男性死亡的主要原因，死于吸毒过量的人数比车祸和枪支暴力还要多。因此，我们必须真正广泛地认识到，芬太尼不仅仅是危害到了青少年，而是全年龄段的美国人，他们遍及农村、城市和郊区的每一个人口群体。人们正在以创纪录的速度死去。”
+根据芬兰Ilta-Sanomat消息，三月份的四架俄罗斯民用飞机在芬兰湾的洛维萨附近未经许可跨越了芬兰领空，侵犯领空的行为一起持续了大约两分钟，芬兰中央刑警正在调查这起违规行为。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-5.png)图片来自JOONAS SALO
+在初步调查过程中，中央刑事警察不会提供任何进一步的信息。调查工作正在与国防军和边防军合作进行。
 
-中共病毒、中共病毒疫苗以及芬太尼，这些大规模杀伤性武器都与中共息息相关，它们正被用来摧残和杀害美国人以及全世界的人民。邪恶的中共政权是全球灾难的根源，中共一日不除，世界一日不得安宁。灭共是正义的需要！
+参考链接：**
+[https://www.iltalehti.fi/kotimaa/a/771f4f0e-5271-41a8-ac20-f13f9c79313f](https://www.iltalehti.fi/kotimaa/a/771f4f0e-5271-41a8-ac20-f13f9c79313f)**
 
-*责编：白夜*
-
-新闻来源：[DEA Administrator: ‘China Is Providing Chemicals’ ‘to the Criminal Drug Networks’ That Are ‘Mass-Producing’ Fentanyl Pills](https://www.breitbart.com/clips/2022/04/06/dea-administrator-china-is-providing-chemicals-to-the-criminal-drug-networks-that-are-mass-producing-fentanyl-pills/)
+总编：老孙
+校对发布：Linda
 
  
 

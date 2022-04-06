@@ -2,36 +2,31 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
+## 【G叻睇真D】上海全面封城 民众怨声载道
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300363/)
 
-作者：香草山翻译部
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【GraceIshan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据加拿大《CTV新闻》4月3日报道，在中共国强硬的 “零容忍”方针下，中共国最大城市上海有数百万人在全面封锁下被隔离在家中，但是由于食物和医疗服务匮乏，民众怨声载道。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
+据悉，卫生官员当天报告说，在过去24小时内上海有438个确诊病例，以及7788个无症状病例。对于拥有2600万人口的上海来说，该报道的数据比例并不大。但是政府要求封锁、强制隔离所有疑似病例并进行大规模检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
+同时中共党媒报道显示，习近平正在指导继续采取各种强硬做法，达到其政治上的权宜之计，确保党、政的整体稳定。据郭文贵先生最近爆料，国内最近出现的各种中共病毒病例实际上是病毒疫苗导致的结果，人们接种的疫苗就是毒针。疫苗灾难还远远没有开始。
 
-文章仅代表作者本人观点，与Gnews无关
+盖特链接：[https://www.gettr.com/post/p13v3mk426e](https://www.gettr.com/post/p13v3mk426e)
 
-视频参看：
-[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
-[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
