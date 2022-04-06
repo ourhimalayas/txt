@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 12:14 PM (UTC)`
+
+ 4月6号：跟着共产党走进火葬场……人间的地狱。长春……心痛啊，心痛啊！
+![img](https://media.gettr.com/group42/getter/2022/04/06/12/4bd38e79-0a14-204b-5151-beb19fed5849/out.jpg)
+
+---
+
 `@miles 4/6/2022 12:06 PM (UTC)`
 
  4月6号：尊敬的战友们好！上海的灾难还远远没有到来……上海还有亲人朋友的……做好最坏的准备吧……
@@ -146,13 +153,6 @@
 
 新中国联邦 法治基金 飞飞秀救援快报 2022-04-05<br/>For English：gettr.com/post/p13qskw7d05
 ![img](https://media.gettr.com/group25/origin/2022/04/05/21/f93400d1-1fe7-0e11-8c17-51de83428da7/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/5/2022 8:45 PM (UTC)`
-
-2022.04.05  新中国联邦 | 喜健康   中共病毒治疗方案的探讨
-![img](https://media.gettr.com/group14/origin/2022/04/05/20/a74dde8d-7373-a84f-01f9-eb4277d2d650/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
