@@ -2,37 +2,29 @@
 ---
 
 
-## 有声|立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2299314/)
+## 国际谴责中共强制幼童与父母分离的封控政策
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2299644/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月4日，立陶宛政府宣布，由于俄罗斯军队侵略乌克兰，以及在乌克兰布查镇屠杀平民，犯下战争罪行。 立陶宛将驱逐俄国大使，同时召回立陶宛驻俄大使，降低立俄两国外交关系。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-04-05-%E4%B8%8B%E5%8D%8812.44.05-1.png)
-立陶宛外交部长蓝斯柏吉斯表示，随着俄军局部撤出占领的乌克兰城市，可能将暴露出更多俄军在占领期间迫害乌克兰平民的暴行。
+作者：银河系农场 骄子，日本东京方舟农场 Miyali7768(文玉）
 
-俄罗斯官方自始就全然否定各国对俄军杀戮戕害乌克兰平民的指控，说是各国在造谣污蔑。 但是陆续从现场所传出各种平民被枪决、性侵、迫害的记录，铁证如山。 俄军所犯下的战争罪行，已开始面临世界各国的声讨及究责，最终将面临国际法庭的审判定罪，为乌克兰无辜受害的平民申张迟来的正义。
+当地时间4月5日，据相关媒体报道，中共上海市政府卫生官员近日扬言称，作为病毒“防控工作”不可或缺的一部分，当地所有中共病毒检测结果呈阳性的婴儿或幼儿必须与其父母分开隔离。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-11.jpg)
+报道提及，上海市卫生健康委员会要求，不到七岁的感染儿童需要在该市的公共卫生中心接受隔离，而其他年龄较大的儿童或青少年在确诊后则必须接受政府的统一集中隔离。然而，有视频显示，当地部分被隔离的儿童没有受到任何成年人的照顾，孩子的哭声从未停息。另有消息人士指出，有些尚在襁褓中的婴儿一旦无人照顾，则随时都会面临窒息或其他的危险。
 
+据悉，除了这些孩子的父母和监护人在中共国内的社交媒体上表达了他们对这项政策的愤怒之外，国际社会30多个国家的外交官也针对此事致信中共外交部表达了他们的担忧和愤慨：包括法国、德国、意大利、瑞士和挪威在内的23个欧盟国家和英国、澳大利亚、新西兰等其他西方国家在信件中提出，中共国内的病毒密切接触者应该在家中自我隔离，而非被强制送往隔离集中营。同时，无论在任何情况下，父母和孩子都不应该被分开隔离。
 
+目前，墙内大约有两千五百万人被关押在上海这个中共国最大的金融中心里。
 
-文字版原文：[立陶宛驱逐俄国大使 抗议俄军在乌杀虐平民](https://gnews.org/zh-hans/2293924/)
+参考链接：
+1. [Twenty-four countries urge China not to separate children from parents via COVID](https://securykid.com/twenty-four-countries-urge-china-not-to-separate-children-from-parents-via-covid/)
+2. [Shanghai defends policy of separating Covid-positive kids from parents](https://insiderpaper.com/shanghai-defends-policy-of-separating-covid-positive-kids-from-parents/)
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：Irene木木
+编辑：Irene木木，静言
+审核：Irene木木，飞虹
+校正/发稿：Fei797
 
  
 

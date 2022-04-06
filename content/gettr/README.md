@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 3:02 PM (UTC)`
+
+【乌克兰救援】04/04/2022 那伊夫战友用俄文或乌克兰语向难民解释，虽然都带有“中国”二字，但新中国联邦与中国共产党有本质区别。乌克兰人认识到，中共与前苏联一样，其邪恶的本质从来没用改变，是这次战争的背后推手。<br/><br/>【Ukraine Rescue】04/04/2022 Fellow warrior Naïve explains to refugees in Russian and Ukrainian the essential difference between NFSC and CCP even though the word “China” contained in both names. Some Ukrainians have recognized that the CCP remains the same evil up till now as what the former Soviet Union did which is the driving force behind this war.<br/>
+![img](https://media.gettr.com/group25/getter/2022/04/06/15/815c3e60-9a98-2f39-ccbf-81560457a2e3/out.jpg)
+
+---
+
 `@miles 4/6/2022 1:00 PM (UTC)`
 
 2022年4月6日 文贵大直播：上海疫情老百姓遭殃；马斯克入股推特暴涨；新歌打榜及人工智能；《商君书》之 连坐与告密
@@ -146,13 +153,6 @@
 
 2022.04.05 NFSC News  Miles Guo’s New Songs Debuted on iTunes Music Charts
 ![img](https://media.gettr.com/group28/origin/2022/04/05/22/a2114106-5079-82ff-8ce0-65ae0100de20/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/5/2022 10:01 PM (UTC)`
-
-新中国联邦 法治基金 飞飞秀救援快报 2022-04-05<br/>For English：gettr.com/post/p13qskw7d05
-![img](https://media.gettr.com/group25/origin/2022/04/05/21/f93400d1-1fe7-0e11-8c17-51de83428da7/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

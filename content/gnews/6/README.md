@@ -2,29 +2,31 @@
 ---
 
 
-## 抵制强制疫苗政策 慕尼黑数千人冒雪抗议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2299588/)
+## 马斯克成为推特股东将对灭共事业重大利好
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2299813/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+##### 作者：加拿大温哥华扬帆农场 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Picture1-22.png)
+据文贵先生4月4日盖特直播报道，SpaceX公司创始人伊隆·马斯克近日购买了推特9.2%的股份。这对于新中国联邦的灭共事业将是重大利好。
 
-整理/编辑：BENJ1
-![](https://assets.gnews.org/wp-content/uploads/2022/04/unknown-6.png)
-2022年4月2日下午2点，大约4000多名来自德国巴伐利亚州的民众聚集在首府慕尼黑国王广场，举行抗议政强制疫苗政策活动，呼吁要民主与自由。之后，民众冒雪在慕尼黑市内进行和平游行。
+此举意味着推特公司将不再会与中共合作，一改往日随意审查用户言论，对不利中共的言论一律采取删帖，甚至关闭账号的做法。马斯克未来也将会对媒体平台进行重大技术升级，从而带动整个社交媒体的全面技术进步，对投资人来说也是重大利好。
 
-游行队伍从国王广场出发，途经慕尼黑工业大学、自由慕尼黑广场、胜利门、慕尼黑大学、奥迪安广场，然后回到国王广场。游行队伍长达数公里，其中有些民众戴着口罩，大部分没有戴口罩。警方虽有部分全副武装的警察跟随，但相对之前数月应对“散步”民众的阵仗，无论从数量还是从装备上，看上去已经缓和了很多。
+文贵先生在直播中还透露，马斯克成为推特股东后，不但不会与盖特有丝毫竞争关系，反而会精诚合作，共同创造新社交媒体更美好的未来。
 
-参考链接：
+[原文链接：https://gettr.com/streaming/p13j3d06e18vaccine/](https://gettr.com/streaming/p13j3d06e18vaccine/)
 
-[慕尼黑数千人冒雪集会游行 抗议强制疫苗政策](https://www.epochtimes.com/gb/22/4/5/n13696864.htm)
+编辑/上传 – 大废墙
+素材/采编 – 晨熹
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-3.png)
+* * *
 
-发布：tianzhihuan
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
