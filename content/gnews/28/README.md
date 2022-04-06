@@ -2,39 +2,68 @@
 ---
 
 
-## AUKUS投资人工智能、量子技术，开发超高音速导弹
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2295284/)
+## 应美国要求，西班牙扣押了价值9000万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295291/)
 
-整理/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-534.png)图片来源：Physics & 雅典娜设计组
-4月6日华盛顿消息，澳美英三国之间AUKUS合作伙伴关系建立了工作组，以促进量子技术、人工智能和海底能力的发展。
+0M.errick Garland (Attorney General)
+梅里克·加兰（司法部长）
 
-已经有17个三边工作小组已开始在AUKUS的框架下开展工作，其中9个专注于常规武装的核动力潜艇，8个发展其他先进军事能力。
+Today, at the request of the United States Department of Justice
+今天，应美国司法部的要求
 
-在关于AUKUS的最新消息中，白宫提示AUKUS量子装置(AQuA)的创建，该装置注重于“下一代”量子能力的投资。
+Spanish authorities seized a super yacht belonging to a sanctioned Russian oligarch
+西班牙当局扣押了一艘属于受制裁的俄罗斯寡头的超级游艇
 
-白宫声明说：“最初将关注于定位、导航和计时的量子技术，我们将在未来三年内将新兴的量子技术整合到试验和实验中。”
+Pursuant to a warrant filed in the US District Court for the District of Columbia
+根据向美国哥伦比亚特区地方法院提交的搜查令
 
-目前仍处于早期阶段，美国国防部在2021财年已申请了6.88亿美元预算，但该技术在加密方面的成果是巨大的。
+We will now seek to have the vessel forfeited as the proceeds of a crime
+我们现在将寻求没收船只作为犯罪所得
 
-该项新安排出台之际，美国总统乔·拜登、澳大利亚总理斯科特·莫里森和英国首相鲍里斯·约翰逊审查并重申了去年9月启动的AUKUS协议。
+Last month, the Justice Department launched Task Force klepto Capture
+上个月，司法部启动了窃贼捕获工作组
 
-根据最新的协议，澳大利亚、美国和英国还将联合开发高超音速导弹。高超音速导弹能够以五倍音速飞行，大大缩短了预警时间。它们可以携带核弹头。同时还宣布了新的AUKUS海底机器人自主系统(AURAS)项目。
+to hold accountable Russian oligarchs and others who seek to evade US sanctions
+追究俄罗斯寡头和其他试图逃避美国制裁的人的责任
 
-“我们的国家正在就自主水下航行器进行合作，这将成为我们海上力量的重要力量倍增器。计划在2023年对这种能力进行初步试验和试验，”白宫表示。
+Today marks our task force’s first seizure of an asset
+今天是我们的特遣部队第一次没收
 
-**声明称，三方在人工智能方面的合作将极大提升未来部队的作战能力，提高决策的速度和精度，同时将加强对人工智能威胁的防御。**
+belonging to a sanctioned individual with close ties to the Russian regime
+属于与俄罗斯政权关系密切的受制裁个人的资产
 
-参考链接：[AUKUS sets up AI, quantum tech working groups (afr.com)](https://www.afr.com/world/north-america/aukus-sets-up-ai-quantum-tech-working-groups-20220405-p5aatf)
-*发布：tianzhihuan*
+It will not be the last
+这不会是最后一次
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+together, with our international partners
+将与我们的国际合作伙伴一起
 
+we will do everything possible to hold accountable any individual
+我们将尽一切可能追究其犯罪行为
 
+whose criminal acts enable the Russian government to continue its unjust war
+导致俄罗斯政府得以继续其不公正战争的任何个人的责任
+
+**原视频链接**[**:** https://twitter.com/thejusticedept/status/1510988354615193612?s=24](https://twitter.com/thejusticedept/status/1510988354615193612?s=24)
+
+Date:04/04/2022
+原视频标题: $90 Million Yacht of Sanctioned Russian Oligarch Viktor Vekselberg Seized by Spain at Request of United States
+应美国要求，西班牙扣押了价值 9000 万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
+原视频日期：2022/04/04
+原视频链接https://twitter.com/thejusticedept/status/1510988354615193612?s=24
+任务编号：4173
+视频时间段 : 0:00-0:58
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

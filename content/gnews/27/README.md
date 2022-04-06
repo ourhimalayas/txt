@@ -2,68 +2,22 @@
 ---
 
 
-## 应美国要求，西班牙扣押了价值9000万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295291/)
+## 【粤语配音】2022年4月5日：新中国联邦即将为海外华人保驾护航
+` MOS香港部` [轉載自GNews](https://gnews.org/zh-hans/2295334/)
 
-0M.errick Garland (Attorney General)
-梅里克·加兰（司法部长）
+紐約香草山-香港部
 
-Today, at the request of the United States Department of Justice
-今天，应美国司法部的要求
+昨天晚上跟国内的山西、陕西一些战友简单的聊了聊，他说原来在山西、陕西这些盗墓的，在过去这些年都抓完了，当时的盗墓专家，被傅振华发掘以后，指定的盗了几个墓，盗得了上千件古董，傅政华全都闷得蜜了，肯定是，听说马上将这些东西都运向了国外
 
-Spanish authorities seized a super yacht belonging to a sanctioned Russian oligarch
-西班牙当局扣押了一艘属于受制裁的俄罗斯寡头的超级游艇
+所以说这东西都是好东西，就是过去叫金钵衣就几十套，说这哥儿们，这段时间惨了，家里面的人病死的、跳楼的…都是疫苗反应，这哥儿们又重现江湖，去挖墓去了，他说，中国人现在开始挖墓了，他说不管是挖古人的墓，还挖现代人的墓，听着多吓人啊，兄弟姐妹们，都是什么年代了，还有扒坟墓，还有挖现代人坟墓的
 
-Pursuant to a warrant filed in the US District Court for the District of Columbia
-根据向美国哥伦比亚特区地方法院提交的搜查令
+然后再说上海，上海现在这个粮食贵到啥程度？我是觉得这上海粮食太夸张了，是吃也不行,买也不行，买也买不着，就在这时突然发现美国粮食也大涨，这粮食价格在全世界掀起了巨大的这种人道灾难，所以说这个经济怎么能好呢？
 
-We will now seek to have the vessel forfeited as the proceeds of a crime
-我们现在将寻求没收船只作为犯罪所得
+所以说现在共产党内部已经是高官非常清楚，今年要准备好，中国要饿死个5000万到一亿人哪，已经做好死掉跟一个文化大革命的人数了，5千万到一亿人，除了是断路、高速路，甚至一些不住的房产都要炸掉复耕，然后想尽一切办法，想让老百姓现在少吃饭，饿不死拉球倒，就甭想吃肉了是吧？然后做好饿死5千万到一亿人的准备，为什么知道吗？说内部基本判断今年可能在长江流域、三峡大坝周围各个水库周围会掀起比去年还大的水灾，在河南也会有大量的水灾，东北，黑、吉、辽，也会有大量的水灾，今年说白了就是水灾年、寅虎年，它不知道找那个风水大仙算的，共产党，他们信啊信神啊，他们认为会有大量的水灾，会再有10几亿到20几亿亩的粮食被干掉，完了，那要真这样的话，真完了
 
-Last month, the Justice Department launched Task Force klepto Capture
-上个月，司法部启动了窃贼捕获工作组
+所以这个粮食现在不仅是中国，也不仅是所谓亚洲，美欧，北美都是大问题，粮食出问题，接着而来的就是社会的就业出问题、社会就业出问题，现在的能源也出问题，欧洲的能源，天然气、油，化肥，这可是个不祥的征兆，但是这些事情在疫苗灾难面前，那都是连毛都不是…
 
-to hold accountable Russian oligarchs and others who seek to evade US sanctions
-追究俄罗斯寡头和其他试图逃避美国制裁的人的责任
-
-Today marks our task force’s first seizure of an asset
-今天是我们的特遣部队第一次没收
-
-belonging to a sanctioned individual with close ties to the Russian regime
-属于与俄罗斯政权关系密切的受制裁个人的资产
-
-It will not be the last
-这不会是最后一次
-
-together, with our international partners
-将与我们的国际合作伙伴一起
-
-we will do everything possible to hold accountable any individual
-我们将尽一切可能追究其犯罪行为
-
-whose criminal acts enable the Russian government to continue its unjust war
-导致俄罗斯政府得以继续其不公正战争的任何个人的责任
-
-**原视频链接**[**:** https://twitter.com/thejusticedept/status/1510988354615193612?s=24](https://twitter.com/thejusticedept/status/1510988354615193612?s=24)
-
-Date:04/04/2022
-原视频标题: $90 Million Yacht of Sanctioned Russian Oligarch Viktor Vekselberg Seized by Spain at Request of United States
-应美国要求，西班牙扣押了价值 9000 万美元的受制裁俄罗斯寡头维克托·维克塞尔伯格游艇
-原视频日期：2022/04/04
-原视频链接https://twitter.com/thejusticedept/status/1510988354615193612?s=24
-任务编号：4173
-视频时间段 : 0:00-0:58
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+另外一个就是无苗的人，兄弟姐妹们，你就是拯救人类的，另外一个我觉得这次新中国联邦在前线的救援，真是影响力现在已经感觉到发威了，我昨天晚上到现在，跟其他国家的几个我们的秘密组织进行了联系，他们的感触很深刻，我相信当共产党的这个粮灾、水灾、攻打台湾、内部斩首、政治运动开始的时候，我相信会很多国家突然间就会承认新中国联邦代表中国人的合法地位，在世界上推行消灭中国共产党，为中国人在海外的安全保驾护航
 
  
 

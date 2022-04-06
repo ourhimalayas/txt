@@ -2,30 +2,32 @@
 ---
 
 
-## 樱花FM┃乌军惊人一击：轰炸俄罗斯战备油库
-` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2296208/)
+## 疫情｜新增持续破万 中共出动武警严管 上海市民发起团购自救
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296313/)
 
-音频：东京樱花团/战友520
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/轰炸俄罗斯战备油库.png)
+**图/文｜CP**
+**发布时间｜06/04/2022**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/新增持續破萬-中共出動武警嚴管-上海市民發起團購自救-1.jpg)
 
-邻近乌边境的俄城市贝尔哥罗德一座燃料储存设施今天发生火灾，当地官员称是乌军用直升机越境发动攻击所致。据贝州州长葛拉特卡夫称：“乌两架军用直升机今天低空攻击贝尔哥罗德一座燃料储存设施，引发火灾。”据法新社今天报道称，乌军对俄西部城市贝尔哥罗德的一个“油库”实施了直升机袭击，该城市距离乌边境约40公里。贝尔哥罗德位于哈尔科夫以北约80公里处，是俄军对乌发动战争攻势开始以来第二个被俄城市遭到乌军队还击，2月25日，当地和乌媒体曾提到基辅对罗斯托夫附近的一个俄空军基地进行了打击。
-
-文字版原文：
+[点击关注官方盖特](https://gettr.com/user/mightygroup)
 
 
-| [樱花时政┃乌军惊人一击：轰炸俄罗斯战备油库](https://gnews.org/zh-hans/2268624/) |   |
-| --- | --- |
+上海疫情持续严峻，中共国务院副总理孙春兰周一抵沪指导防控工作，重拳施压，要求“快”字当头，迅速管控、集中隔离，并加速建设方舱医院及拓宽集中隔离区，早日实现全面“清零”。
+
+上海市政府随即展开“决战36小时”的全民强检工作，在全部结果出炉前，民众须继续“足不出户”，导致周二新增感染个案首度破万，达13,354宗，今日确诊数字再创新高，截止4月5日24时，上海新增本土确诊病例17077宗。
+
+另外，孙春兰抵达上海的当日晚上，有居住在虹桥飞机场附近的市民拍摄到多架军机同时进入上海，昨日有普陀区长征镇街道的市民在微信群组中表示，居委会接到上级通知，被勒令即时退出，社区由军队全面接管。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/1-79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/2-42.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/3-35.jpg)
 
 
-*编辑：东京樱花团/asket
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+不仅如此，由于担心当局的管控手段会越来越严厉，不少社区居民开始自发组建团购物资的群组，有人利用职业便利，出门取货，有人负责联系采购，统计数据，亦有人担心独居老人，上门通知，总之在有限的空闲范围内，尽量为所属楼栋居民囤积物资。有人在群组内隐晦的形容这么做的目的“此时此刻，上面已经不值得相信，靠别人不如靠自己，上海人，我们自救吧！”
+
+來源｜[中国新闻网](https://www.chinanews.com.cn/sh/2022/04-06/9720675.shtml)
+
+**Subscribe EpidemicConcernGroup Gettr****：**[**@MightyGroup **](https://www.gettr.com/user/mightygroup)
 
  
 

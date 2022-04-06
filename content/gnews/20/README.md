@@ -2,24 +2,30 @@
 ---
 
 
-## 加拿大将对白俄政府和个人实施新制裁
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2295728/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月5日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2295644/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-17.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-1-2.png)
 
-编译： 加拿大温哥华扬帆农场 – 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-542.png)
-据加拿大[环球新闻]4月4日报道，在俄乌战争持续期间，加拿大正针对白俄罗斯政府支持和协助俄军入侵乌克兰实施新的制裁。
 
-加拿大政府当天表示，由于普京政权的合作伙伴参与并促成了俄乌战争，因此，即将对白俄罗斯政府和个人实施惩罚。并为乌克兰提供更多援助外，并让普京及其支持者们为他们的战争罪行负责。
+校对：Stay文苑
 
-为阻止侵略战争的野蛮升级，欧美已对俄罗斯及其盟国实施了多项严厉制裁。总统拜登当天也表示：将推动在布查地区和乌克兰其他城镇，针对俄军战争罪的全面调查，严惩并追究各主要战犯的责任。
+编辑：Stay文苑
 
-校对编辑：硫酸羟氯喹64
+发稿：Stay文苑
 
-发稿：青青
+新闻：[https://gettr.com/post/p13rmiocc65](https://gettr.com/post/p13rmiocc65)
+访谈：[https://gettr.com/post/p13raa0fc92](https://gettr.com/post/p13raa0fc92)
 
-原文链接： [https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/](https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
