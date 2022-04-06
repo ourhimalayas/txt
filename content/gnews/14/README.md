@@ -2,25 +2,31 @@
 ---
 
 
-## ❗️❗️普京的杀手们用移动焚烧炉掩盖残暴罪行
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2300310/)
+## 【G叻睇真D】《灭共的雪》和《铁锁梦》两首歌曲正式上线
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2300346/)
 
-编译：波士顿五月花—思澈
+##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
+视频制作：加拿大温哥华扬帆农场 -【gracelchan】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+据盖特4月4日消息，文贵先生当天宣布，《灭共的雪》和《铁锁梦》这两首歌曲已正式在苹果iTunes和苹果音乐平台上线，并号召全球的灭共粉丝打榜支持。
 
-国际社会对布查的种族灭绝事件进行追究后，普京已下令销毁其军队在马里乌波尔残暴暴行的任何证据。
+据悉，当初《灭共的雪》被推出不仅是为了打破中共利用冬奥会进行的无耻宣传，同时也表达了歌者灭共的坚定决心。而《铁锁梦》则是以震惊世界的被绑架女事件为背景，控诉了中共套在老百姓脖子上的枷锁，听之催人泪下。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9C59BFB2-FBA0-44E6-B151-40446E792B77.jpeg)
+文贵先生此前的歌唱曾多次创造佳绩。单曲《马背英雄》上线仅仅数小时，就迅速登上iTunes 包括加拿大在内的多国排行榜冠军，并持续在榜多周。更是夺下了华人乐坛首个Billboard公告牌摇滚歌曲销售榜冠军。
 
-据乌克兰记者阿纳斯塔斯娅•拉帕蒂娜（Anastasiia Lapatina)的推特报道来自马里乌波尔市议会的电报群的消息，普京下令在乌克兰马里乌波尔的俄罗斯军队销毁其种族灭绝罪行的证据。据目击者的报告说，俄军让当地亲普京的恐怖分子组织进行销毁焚烧尸体清理现场。
+盖特链接：[https://gettr.com/post/p13ui52a17a](https://gettr.com/post/p13ui52a17a)
 
-简评：普京用移动焚烧炉销毁尸体，习近平更恶用气化炉销毁尸体查无踪迹。
+编辑/发文 -【蔚蓝之境】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+* * *
 
-素材来源：[https://twitter.com/lapatina\_/status/1511660125525848065?s=21&t=-ThJdF\_heDlwbzOgkPGJfg](https://twitter.com/lapatina_/status/1511660125525848065?s=21&amp;t=-ThJdF_heDlwbzOgkPGJfg)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-*发布：思澈*
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
 
-
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

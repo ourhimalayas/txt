@@ -15,65 +15,65 @@
 
 ---
 
-### [【转】截至4.5 俄乌战事汇总](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄军撤退后的布查，集中墓地有“150-300具遗体”&#8230;&#8230; 还有4000发爆炸物及残骸。](/content/gnews/2/README.md)
+### [七哥说—第62期](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [推墙反共是活路](/content/gnews/3/README.md)
+### [灭共，只剩半年时间](/content/gnews/2/README.md)
+ ` 纽约香草山MOS02`
+
+### [普习两魔头结盟及其给世界带来的灾难（一）](/content/gnews/3/README.md)
  ` 纽约香草山MOS03`
 
-### [两个孩子“遭受酷刑死亡”&#8230;追查战争罪行的乌克兰和欧盟调查小组(2/2)](/content/gnews/4/README.md)
+### [【转】截至4.5 俄乌战事汇总](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄军撤退后的布查，集中墓地有“150-300具遗体”&#8230;&#8230; 还有4000发爆炸物及残骸。](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2022年04月06日文贵大直播速记](/content/gnews/5/README.md)
+### [推墙反共是活路](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [两个孩子“遭受酷刑死亡”&#8230;追查战争罪行的乌克兰和欧盟调查小组(2/2)](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2022年04月06日文贵大直播速记](/content/gnews/8/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [2022年4月6日，全球中共病毒疫情情况汇总](/content/gnews/6/README.md)
+### [2022年4月6日，全球中共病毒疫情情况汇总](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新冠变种XE的威胁性言过其实](/content/gnews/7/README.md)
+### [新冠变种XE的威胁性言过其实](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [守卫美国驻华领事馆的海军陆战队呈粮品短缺](/content/gnews/8/README.md)
+### [守卫美国驻华领事馆的海军陆战队呈粮品短缺](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [两个孩子“遭受酷刑死亡”&#8230;追查战争罪行的乌克兰和欧盟调查小组(1/2)](/content/gnews/9/README.md)
+### [两个孩子“遭受酷刑死亡”&#8230;追查战争罪行的乌克兰和欧盟调查小组(1/2)](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【G叻睇真D】上海全面封城 民众怨声载道](/content/gnews/10/README.md)
+### [【G叻睇真D】上海全面封城 民众怨声载道](/content/gnews/13/README.md)
  ` G-时新闻`
 
-### [【G叻睇真D】《灭共的雪》和《铁锁梦》两首歌曲正式上线](/content/gnews/11/README.md)
+### [【G叻睇真D】《灭共的雪》和《铁锁梦》两首歌曲正式上线](/content/gnews/14/README.md)
  ` G-时新闻`
 
-### [文贵大直播要点-主讲：老班长（2022年4月6日）](/content/gnews/12/README.md)
+### [文贵大直播要点-主讲：老班长（2022年4月6日）](/content/gnews/15/README.md)
  ` 波士顿五月花农场`
 
-### [重灾区上海疫情再创新高 清零渺茫](/content/gnews/13/README.md)
+### [重灾区上海疫情再创新高 清零渺茫](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [❗️❗️普京的杀手们用移动焚烧炉掩盖残暴罪行](/content/gnews/14/README.md)
+### [❗️❗️普京的杀手们用移动焚烧炉掩盖残暴罪行](/content/gnews/17/README.md)
  ` mayflowertranslate`
 
-### [马斯克转战多媒体，成为推特最大股东](/content/gnews/15/README.md)
+### [马斯克转战多媒体，成为推特最大股东](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国人为什么到死都永不反抗](/content/gnews/16/README.md)
+### [美-德严查bitcoin，俄罗斯遭遇严重打击](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [美-德严查bitcoin，俄罗斯遭遇严重打击](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [联合国安理会第9011次会议上 只有中共国代表张军坚定站在俄罗斯一边](/content/gnews/18/README.md)
- ` 温哥华扬帆农场`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月6日早](/content/gnews/19/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月6日早](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
-
-### [推特用户敦促马斯克恢复川普的账户](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [有声|英美呼吁暂停俄罗斯人权理事国地位](/content/gnews/21/README.md)
  ` MOSREC`
