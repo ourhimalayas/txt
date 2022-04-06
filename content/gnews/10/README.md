@@ -2,41 +2,27 @@
 ---
 
 
-## 佩戴口罩使得一代幼儿在语言和社交技能方面陷入困境
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2295242/)
+## 假借疫情 大批武装部队进驻上海维稳
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2295336/)
 
-**据《零对冲》作者：TYLER DURDEN，2022年4月5日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/a1hxr-ncynl-8.jpg)图片来源：原文
-根据一份官方报告，禁闭限制，包括成人戴口罩，使一代婴儿和幼儿在语言和社交技能方面陷入困境。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-为国家统计局工作的检查员发现，在过去两年中，婴儿被戴着口罩的成年人长时间包围，损害了他们的学习和交流能力。
+4月4日，有上海市民透露，大量武警已经抵达上海，以协助对抗疫情为由，持枪进驻社区，参与“维稳”当地因中共封控措施而爆发的民众抗议事件。
 
-报告发现，那些年满两岁的孩子“一生都被戴着口罩的成年人包围着，因此无法经常看到嘴唇的动作或嘴型”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-77.jpg)（图片来源：法新社）
 
-报告补充说：“一些提供者报告认为，儿童语言发展的延迟导致他们不能像以前预期的那样轻易地与其他儿童交往。”
+据《自由时报》报导，住在上海机场附近的市民透露，有大批外地武警已经到达上海，3日晚间不断有大型飞机起降的轰鸣声。她表示，3月28、29日就已有大量武警悄悄进入上海，自从孙春兰来过上海后，这些行动更是正大光明地展开了。
 
-这些限制也使幼儿在爬行、独立使用厕所和交朋友方面遇到困难。
+居住于上海浦西的学者张进则表示，他居住的社区门口已有武警岗哨，防止居民翻墙或随意外出。他指出，一个小区门口派驻一个持枪特警，就是怕上海出事，所以要管起来。现在这个防疫措施就像一个破灯笼，这里糊上，那里破了。
 
-学习方面的延迟也使一些儿童在穿外套和擤鼻涕等基本任务方面需要帮助。
+中共国家卫生健康委员会声称，4月3日上海确诊病例高达9006例，为实施所谓的“动态清零”封控措施，军方抽调卫勤力量2000多人，加上周边各省支援医疗人员约万人进驻上海。然而，据当地网络信息显示，进驻上海的各地人员可能有数万、甚至达到10万人。
 
-首席检查员阿曼达-斯皮尔曼说：“我特别担心年幼儿童的发展，如果不加以解决，可能会给小学带来潜在的问题。”
+参考链接：
+[https://news.ltn.com.tw/news/world/breakingnews/3882544](https://news.ltn.com.tw/news/world/breakingnews/3882544)
 
-我们之前强调德国的另一项研究，该研究发现，由于封锁政策导致学校关闭，儿童的阅读能力与COVID之前的时代相比急剧下降。
-
-言语治疗师杰克琳-西克（Jaclyn Theek）透露，大流行期间戴口罩导致婴儿和幼儿病人转诊量增加了364%。
-
-她说：“他们不做任何文字尝试，完全不与家人沟通。”她补充说，自闭症的症状也在急剧上升。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ddde-1.png)图片来源：原文转自推特
-**原文连接**：[https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills](https://www.zerohedge.com/medical/mask-wearing-has-left-generation-toddlers-struggling-speech-and-social-skills)
-
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – WenXiong
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：海星
+总编：青城道姑
+校对发布：爱放飞
 
  
 

@@ -2,35 +2,32 @@
 ---
 
 
-## 被误导的大流行—— 中共宣传及中共病毒的效应 -9
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2295219/)
+## 北约：俄军谋杀平民犯战争罪 支持国际法庭调查
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2295327/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-532.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+俄罗斯入侵乌克兰仍在持续，针对乌克兰指控俄军在布查镇屠杀平民一事，虽然俄方对此极力否认甚至污蔑是乌克兰的挑衅行为，但俄军在布查酿成的屠杀惨案不会被淡化掩埋。北约祕书长史托腾柏格5日在记者会表示，锁定平民当目标并杀害他们是战争罪。北约和盟邦支持，透过联合国和国际刑事法庭等进行调查。
 
-（图片来自原文）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/587580184325001216857094.jpg)图片来源：多维新闻
 
-总而言之，中共病毒大流行让我们发现了中国共产党（CCP）通过利用一种特定的、有意的武器：信息，成功地转移了对其国际声誉的损害。
+北约祕书长史托腾柏格说，「锁定并谋杀平民是战争罪，所有事实都必须查证核实，那些应对暴行负责的人，必须受到法律制裁。」
 
-中共短时间内，在广泛的全球范围内操纵信息的能力，不仅突出了信息战的特征，而且也突出了美国在与有针对性的社交媒体叙事竞争方面是多么的被动。
+北约祕书长史托腾柏格表示，俄军自基辅撤出，是为了在未来几週在乌克兰东部和南部重新集结，拿下整个顿巴斯，打造通往克里米亚的陆桥。面对战事将进入关键阶段，史托腾柏格表示，北约会随时准备协助乌克兰，提供更多武器，包括反坦克武器、防空系统，同时增加人道救援与金援，提供网路安全协助，以及提供装备防御生化攻击威胁。
 
-今天，每秒钟有6000条推文在推特上发布，相当于每分钟有35万条推文，每天有5亿条推文，每年有大约2000亿条推文。
+战争仍在继续，俄罗斯短暂调整后仍会发起下一轮的进攻，未来或有类似布查屠杀的惨案还会发生，此次俄军在布查的屠杀必须提交国际法庭调查审判，最大可能的揭露与阻止俄军的屠杀暴行。
 
-随着中共及世界各个国家和组织越来越善于利用社交媒体来胁迫受众，并超越其竞争对手，保护公民的文化和思想将变得越来越重要。
+作为东西方的代理人战争，俄军的残忍暴行是对整个西方民主世界的挑衅，在乌克兰发生的惨案同样可以发生在别国，必须引起国际社会的重视，绥靖解决不了问题，独裁政权只害怕拳头！
 
-中共已展示了在信息战上的优势，其规模和时间安排是美国无法做到的。
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022405I16M1](https://www.ftvnews.com.tw/news/detail/2022405I16M1)
 
-认识到这一点是调整美国如何处理社交媒体武器化的第一步。
+撰稿/发布：一叶知秋
 
-联合部队必须定制一个强有力的反应：识别中共的虚假信息，压制它，并对其进行反击。在一条推特的生命周期中进行早期识别，将大大减缓用户之间的分散，最终扩大国防和政策制定者的决策空间。正如我们在2014年的克里米亚冲突中看到的那样，俄罗斯的虚假信息的武器化是对民主最隐蔽的威胁之一。
-
-八年后，这种威胁似乎变得更加危险和坚决。中共与真相的功利关系使其能够扭曲真相。
-
-新闻来源链接：[https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/](https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/)
-
-本文作者：Rebecca (一切心皆不可得！)
-上传排版：Hong
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
