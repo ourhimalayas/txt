@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 7:31 PM (UTC)`
+
+A botanist who works for the US government, took time off and paid himself to participate in the Ukrainian rescue mission at the Medyka border, joining a group of Canadian volunteers to hand out food for refugees. After he learned that we are volunteers on behalf of the Rule of Law Foundation, he is glad for what we are doing. The volunteers strongly agree that the Chinese Communist Party (CCP) doesn’t represent the Chinese people, just like Putin doesn’t represent the Russian people.<br/><br/>来自美国俄勒冈州的美国政府雇员用自己的假期、自掏腰包参加乌克兰人道救援活动，在梅迪卡边境他和一群加拿大来的义工给难民发食品。 他知道我们是法治基金赞助的义工，表示非常赞同法治基金的理念， 他们还表示，他们知道中共不代表中国人，就像普京不代表俄罗斯人一样。
+![img](https://media.gettr.com/group48/origin/2022/04/06/19/6e0ea210-8a09-b32b-a9b4-4d5d4ddbc957/out.jpg)
+
+---
+
+`@miles 4/6/2022 7:29 PM (UTC)`
+
+An Italian volunteer told the New Federal State of China (NFSC) reporter that our target to overthrow the Chinese Communist Party (CCP) was noble and he was curious about the story of the founding of the NFSC. Mrs. Nicole told him: Mr. Miles Guo is helping the Chinese to overthrow the CCP in a peaceful way<br/>一位意大利志愿者跟新中国联邦记者说我们推翻中共的目标是高贵的，他很好奇新中国联邦成立的故事。妮可告诉他：郭文贵先生正帮助中国人正在以和平的方式推翻中共
+![img](https://media.gettr.com/group27/origin/2022/04/06/19/488db482-a480-135d-8ab7-3051f466fcb2/out.jpg)
+
+---
+
 `@miles 4/6/2022 7:00 PM (UTC)`
 
 2022.04.06  新中国联邦 | 军情室  首播  俄乌战争最新战况分析：第一架俄军K52直升机战场投诚
@@ -141,20 +155,6 @@
 
 2022.04.05 晚  新中国联邦 | 新闻访谈   俄罗斯乌克兰战况最新进展；疫苗灾害要大于全球粮食危机；香港用体育馆改成方舱医院
 ![img](https://media.gettr.com/group30/origin/2022/03/30/01/6139f631-3b76-fc45-f1d6-66a77eae8d7f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/6/2022 12:33 AM (UTC)`
-
-2022.04.05 晚 新中国联邦 | 新闻      拜登再吁“战争罪审判普京”；英美呼吁暂停俄罗斯人权理事国地位
-![img](https://media.gettr.com/group9/origin/2022/04/06/00/98694b3e-40c1-dddc-8f20-6f64c4d8b790/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 11:42 PM (UTC)`
-
-2022.04.05《The Fringe》 Episode 162
-![img](https://media.gettr.com/group38/origin/2022/04/05/23/125f8ade-c003-8c32-b36b-798f2777572f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
