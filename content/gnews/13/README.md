@@ -2,10 +2,10 @@
 ---
 
 
-## 20名乌克兰难民乘日本政府转机抵达日本
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2295350/)
+## 泽连斯基敦促联合国要么行动要么解散
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2295351/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220406-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220406-1.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)

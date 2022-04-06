@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 2:00 AM (UTC)`
+
+2022.04.05  新中国联邦 | 喜财经   卢布的过山车表演；美元会失去全球各国储备货币的资格吗？
+![img](https://media.gettr.com/group13/origin/2022/04/06/01/c1a3bb20-89c6-7211-b725-110132269415/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/6/2022 1:00 AM (UTC)`
 
 2022.04.05 晚  新中国联邦 | 新闻访谈   俄罗斯乌克兰战况最新进展；疫苗灾害要大于全球粮食危机；香港用体育馆改成方舱医院
@@ -146,13 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月4日第31天当日救援统计：<br/>Medyka救援站接待：约162人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9109人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 31 - Date: April 4, 2022 :<br/>Medyka Rescue Station Reception: about 162 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9109 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group45/getter/2022/04/05/12/4a537362-d8c6-e8f0-5f0c-f6581221f51b/2f0683db883c63574480e59284b12037.jpg)
-
----
-
-`@miles 4/5/2022 12:51 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月3日第30天当日救援统计：<br/>Medyka救援站接待：约290人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约8947人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 30 - Date: April 3, 2022 :<br/>Medyka Rescue Station Reception: about 290 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 8947 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group5/getter/2022/04/05/12/8768c35b-d22c-637a-04c6-9f671d682645/ce3d7a5e486a92c3549fbb522da8733d.jpg)
 
 ---
 

@@ -2,13 +2,22 @@
 ---
 
 
-## 泽连斯基敦促联合国要么行动要么解散
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2295351/)
+## 视频|杀戮和独裁相生相随，只要能维护统治，维护盗国贼们的家族利益，任何杀人借口都可以制造
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2295421/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220406-1.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+制作：大直播短视频组- 隧道尽头的光
+文案：Miyali7768(文玉）
+
+审核/编辑/发稿：谐趣园
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
