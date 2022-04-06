@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 3:03 AM (UTC)`
+
+2022-4-5《鸡血王喜币大作战》 第一百五十六集 嘉宾：无双柳薇薇、文空
+![img](https://media.gettr.com/group23/origin/2022/04/06/02/e711cb0d-f987-8820-e005-ece002bb4cb5/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/6/2022 2:00 AM (UTC)`
 
 2022.04.05  新中国联邦 | 喜财经   卢布的过山车表演；美元会失去全球各国储备货币的资格吗？
@@ -146,13 +153,6 @@ NFSC and ROLF Ukraine Humanitarian Rescue Mission
 
 2022.04.05 早  新中国联邦 | 新闻访谈  俄军撤出基辅地区犯下战争罪和反人类罪；西方制裁俄罗斯引发全球粮食危机；上海等地封城 中共用集中营方式应对疫苗灾难
 ![img](https://media.gettr.com/group17/origin/2022/04/05/13/f193d179-a4d9-ceab-a781-68749e48cf1f/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/5/2022 12:53 PM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月4日第31天当日救援统计：<br/>Medyka救援站接待：约162人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9109人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 31 - Date: April 4, 2022 :<br/>Medyka Rescue Station Reception: about 162 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9109 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group45/getter/2022/04/05/12/4a537362-d8c6-e8f0-5f0c-f6581221f51b/2f0683db883c63574480e59284b12037.jpg)
 
 ---
 

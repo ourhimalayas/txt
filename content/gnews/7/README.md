@@ -2,10 +2,10 @@
 ---
 
 
-## 俄罗斯军队必须被赶出乌克兰领土
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2295933/)
+## 波兰总理谴责俄罗斯的种族灭绝行为
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2295976/)
 
-04/04/2022 杰克·基恩将军接受福克斯新闻采访时表示，乌克兰应该将所有俄罗斯军队赶出乌克兰领土，美国应当支持乌克兰这么做。
+04/05/2022 波兰总理谴责俄罗斯的种族灭绝行为。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

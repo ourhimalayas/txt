@@ -2,10 +2,10 @@
 ---
 
 
-## 我们不会原谅俄罗斯，无论“在地球上或在天堂”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2295658/)
+## 俄罗斯军队必须被赶出乌克兰领土
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2295933/)
 
-04/04/2022 布查市市长：我们不会原谅俄罗斯，无论“在地球上或在天堂”。
+04/04/2022 杰克·基恩将军接受福克斯新闻采访时表示，乌克兰应该将所有俄罗斯军队赶出乌克兰领土，美国应当支持乌克兰这么做。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
