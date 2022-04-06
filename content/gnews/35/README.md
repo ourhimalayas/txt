@@ -2,19 +2,36 @@
 ---
 
 
-## 文贵大直播|俄乌达成和解可能性很大
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2300027/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
 
-撰稿：东京樱花团/叶扑
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-07_001405.png)
-俄乌战争达成和解的可能性比较大，普京释放核武器的可能性几乎不存在。俄乌战争会进入新的阶段，若俄乌协议停战，中共会作为担保人，并与俄罗斯、北朝鲜一起组成邪恶集团，形成东西方对峙局面；或者俄乌双方会保持持续的局部冲突。普京不希望战争停止，他需要利用战争玩弄内部政治与经济，跟欧洲较量。在一个月之后，俄乌局势会明朗，到时新中国联邦会迅速撤离乌克兰救援前线。
+作者：香草山翻译部
 
-消息来源：
-[2022年4月3日《文贵大直播》](https://www.gettr.com/streaming/p13c6fub6b6)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
+[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

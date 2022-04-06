@@ -2,34 +2,31 @@
 ---
 
 
-## 卫星技术拍摄的布查大屠杀铁证
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2300231/)
+## 两个孩子“遭受酷刑死亡”&#8230;追查战争罪行的乌克兰和欧盟调查小组(1/2)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2300376/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/cWQ89wyt5jZCQWtT2YCJR8-1651-80.jpg)
-据外媒报道，Maxar Technologies公司的WorldView-3卫星拍摄技术清晰拍摄了布查大屠杀的惨烈现场。卫星图像显示平民尸体散落在布查镇的街道上，还有一个乱葬坑。这个乱葬坑是一个长约45英尺的壕沟，而在3月10日的卫星图像上显示了对此的初步挖掘。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-3.jpg)
+在俄军刚刚撤离的乌克兰首都基乌近郊布查发现多具平民遗体的问题上，基乌周边和东部斯穆伊州等其他地区也接连传来了平民死伤的消息。为追究“战争罪行”的责任，乌克兰政府和欧盟(EU)4月4日达成协议，组建联合调查团队。
 
-根据时间推移，卫星图像拍摄了俄罗斯在布查的大屠杀铁证。Maxar卫星的清晰度足以分辨人物、汽车和其他的小物体。据悉Maxar目前有四颗卫星都在太阳同步轨道上，这是一种特殊的极地轨道，它能够不断捕获白天的图形，也能在不到一天的时间内恢复同一块地面的图像。在3月18、19、31日的卫星图像中，有四张图像显示尸体躺在街道，这和目击者的地点相吻合。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-635.png)图片来源：雅虎新闻
 
-乌克兰总统发言人表示，乌克兰平民遭受了极其惨烈的折磨和处死，但俄罗斯即刻否认了这一点。联合国敦促对此事进行独立调查，这些残忍的屠杀、强奸、和处决行为严重违反了国际人道主义法和人权法，必须保存一切证据，并安抚受害者家人。
+乌克兰最高会议(国会)人权监察员4月5日表明，基乌近郊伊尔平也于2日确认两名不满10岁的儿童遭受性侵以及酷刑而死亡。
 
-reference：
+除此之外，在曾被俄军当做据点的基乌省营地设施中，有5人的遗体双手被反绑在身后，其中4人后脑勺被枪击，最后一人头盖骨被掀起。东部斯穆伊省也在俄军驻地周围发现了三具在遭受酷刑后遇害的平民遗体。
 
-[https://www.livescience.com/bucha-massacre-captured-satellite](https://www.livescience.com/bucha-massacre-captured-satellite)
+乌克兰总统沃洛迪米尔·泽连斯基在5日的视频讲话中说，仅在布查被俄军杀害和拷问的公民就超过300人，同样在基乌近郊约1万2000人口的博洛迪扬卡“受害者人数可能更多”。
 
-撰稿、发布：骄子
+下一篇：[两个孩子“遭受酷刑死亡”…追查战争罪行的乌克兰和欧盟调查小组(1/2)](https://gnews.org/zh-hans/2300412/)
+
+参考链接：[子ども２人「拷問受けて死亡」…戦争犯罪追及へウクライナとＥＵが捜査チーム（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5176a0937b691064dbf26aa4dbc2ed4f94fb1157)
 
 * * *
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+审核：Bryan
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
