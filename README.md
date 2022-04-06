@@ -15,56 +15,56 @@
 
 ---
 
-### [樱花时政┃中共助纣为虐，屏蔽联合国网站乌克兰战争报道](/content/gnews/1/README.md)
+### [有声｜ 美国、英国和澳大利亚承诺共同研究高超音速武器](/content/gnews/1/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [樱花时政┃中共助纣为虐，屏蔽联合国网站乌克兰战争报道](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生4月5日盖特：形势逼人，“摸金校尉”重出江湖](/content/gnews/2/README.md)
+### [郭先生4月5日盖特：形势逼人，“摸金校尉”重出江湖](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜英军披露“轨道行动”开战前已训练22000乌军士兵](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [再有两到三周世界会再次震撼,每次大直播都经历大转变](/content/gnews/4/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [只有灭共的新中国联邦人和G系列投资者才能免于被制裁](/content/gnews/5/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [拿英国护照的Alex作为俄罗斯最干净的商人并不能幸免](/content/gnews/6/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [英国政府计划承认稳定币为法币](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [你付出了吗？你坚信了吗](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [泽连斯基在联合国安全理事会发言，要求俄罗斯受到追责](/content/gnews/10/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [面对俄罗斯与中共国威胁，美军高层怯战思维展现无余](/content/gnews/11/README.md)
+### [拜登政府第三次批准对台军售以提升台湾爱国者防空系统战力](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共各部门不顾百姓死活](/content/gnews/12/README.md)
+### [有声｜英军披露“轨道行动”开战前已训练22000乌军士兵](/content/gnews/5/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [再有两到三周世界会再次震撼,每次大直播都经历大转变](/content/gnews/6/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [只有灭共的新中国联邦人和G系列投资者才能免于被制裁](/content/gnews/7/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [英国政府计划承认稳定币为法币](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [体坛制裁！俄足协撤回「FIFA禁赛」上诉 无缘2022卡达世界杯](/content/gnews/13/README.md)
+### [社交媒体的数据推算会是新的宗教？——社交媒体的一些统计数据](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [樱花时政┃日美澳印四国首脑会谈将推迟至5月下旬](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [泽连斯基在联合国安全理事会发言，要求俄罗斯受到追责](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [面对俄罗斯与中共国威胁，美军高层怯战思维展现无余](/content/gnews/12/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共各部门不顾百姓死活](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [体坛制裁！俄足协撤回「FIFA禁赛」上诉 无缘2022卡达世界杯](/content/gnews/14/README.md)
  ` 蓝莲花农场`
 
-### [一名美军军官因指控上级推广的新冠疫苗非法而遭到报复](/content/gnews/14/README.md)
+### [一名美军军官因指控上级推广的新冠疫苗非法而遭到报复](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国将宣布新的一揽子制裁措施 可能涉及普京的女儿](/content/gnews/15/README.md)
+### [美国将宣布新的一揽子制裁措施 可能涉及普京的女儿](/content/gnews/16/README.md)
  ` 日本東京方舟農場`
 
-### [秘翻新闻｜上海现疫情版“集中营”](/content/gnews/16/README.md)
+### [秘翻新闻｜上海现疫情版“集中营”](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [有声|美国称俄罗斯仍将走向衰退和经济封闭](/content/gnews/17/README.md)
- ` 【🌹玫瑰新闻】`
 
 ### [有声|乌克兰宣布收复基辅周边，俄军重点转向东部](/content/gnews/18/README.md)
  ` 【🌹玫瑰新闻】`

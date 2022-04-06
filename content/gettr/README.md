@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/6/2022 9:53 AM (UTC)`
+
+【Ukraine Rescue】04/04/2022 A Taiwanese volunteer participating the NFSC and ROLF rescue work warned that Russia and the CCP have the same logic: grab land but get rid of the people <br/><br/>【乌克兰救援】04/04/2022 一名参与新中国联邦和法治基金救援工作的台湾志愿者警告说，俄罗斯和中共的想法是一样的：留地不留人<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
+![img](https://media.gettr.com/group22/getter/2022/04/06/09/08c55daa-b6e2-cf86-9c2f-a747c832d712/out.jpg)
+
+---
+
 `@miles 4/6/2022 8:50 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月5日第32天当日救援统计：<br/>Medyka救援站接待：约159人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9268人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 32 - Date: April 5, 2022 :<br/>Medyka Rescue Station Reception: about 159 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9268 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -146,13 +153,6 @@
 
 2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
 ![img](https://media.gettr.com/group3/origin/2022/04/05/20/74c9bdfb-dd47-9202-2544-00c2a988a9ba/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/5/2022 7:10 PM (UTC)`
-
-2022-4-5《避风港》(32) 主流媒体变相承认疫苗会导致HIV病样
-![img](https://media.gettr.com/group14/origin/2022/04/05/18/f3ee3015-3dd1-024d-98d8-26dbbb648be7/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

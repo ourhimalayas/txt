@@ -2,25 +2,34 @@
 ---
 
 
-## 一名美军军官因指控上级推广的新冠疫苗非法而遭到报复
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2297860/)
+## 体坛制裁！俄足协撤回「FIFA禁赛」上诉 无缘2022卡达世界杯
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2297864/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+俄罗斯入侵乌克兰后，在遭到世界各国经济制裁的同时，同样也遭到国际体坛制裁和禁赛，国际足总（FIFA）和欧洲足总（UEFA）日前发出联合声明表示，俄罗斯国家队与各职业队将不得参加包含今年世界杯在内的各项国际足球赛事。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-11.jpg)图片来源：Republic World
-据《网关专家》（Gateway Pundit）4月5日报道，一名美国上尉4月4日向美国陆军刑事调查司令部（Criminal Investigation Division，CID）提交了一份刑事诉讼，指控美国陆军军事基地本宁堡（Fort Benning）的指挥官帕特里克·多纳霍 (Patrick Donahoe) 推动人们接种的新冠疫苗是非法的，因为疫苗并未获得官方批准。但是CID的官员们不仅不调查此事，反而向上尉所指控的那些人举报了这名吹哨人。多纳霍随后派人将这名上尉送入本宁堡的医院，理由是他们认为上尉存在“精神健康问题”。
+为此俄罗斯足协提出向国际体育仲裁法庭（CAS）提出上诉，不过5日时俄罗斯撤回对禁赛所提出的上诉，宣告彻底无缘2022年卡达世界杯。
 
-这名上尉的朋友和家人担心他是因为反对非法的疫苗强制令而受到惩罚。上尉在刑事诉讼中指出，多纳霍强制要求人们接种被他称为是已获美国食品药品监管局（FDA）批准的新冠疫苗。但实际情况并非如此，获得FDA批准的实际上是Comirnaty疫苗，而非辉瑞的新冠疫苗。现在，这名上尉因为提出申诉而被关押在精神病院。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6abcc7af-f51d-41c7-9efb-8d4d4cce8ace.jpg)图片来源：@TeamRussia
 
-一位在过去数小时与上尉进行了对话的知情人士透露，上尉心智健全，一直遵纪守法，没有任何暴力倾向。他认为以指挥官多纳霍为首的指挥系统，将本宁堡的精神健康系统武器化，对上尉进行报复，让他在追究该指挥官的犯罪行为时保持沉默。
+俄乌战争开打后，面对俄罗斯的侵略之举，体育界也纷纷开始抵制俄罗斯，一些国家的足协都宣布他们不会和俄罗斯比赛，包含波兰、瑞典和捷克等国。而FIFA和UEFA也共同决定俄罗斯足球遭全面禁赛，包括国家队4月的世界杯资格赛附加赛、斯巴达克莫斯科队欧霸杯的16强赛，以及今年夏天女足的欧洲杯，全都无法参加。
 
-这名上尉并非首次就疫苗非法起诉多纳霍，他此前就向总检察官提交了一份诉讼，指控多纳霍的疫苗强制令非法。但多纳霍利用将军训诫备忘录（GOMORS）对其进行报复，并要求调查委员会鉴定上尉是否有资格继续服役。
+俄罗斯足协起先对于制裁并不甘心，在3月初向国际体育仲裁法庭提出上诉，声明中的主要诉求：「要求恢复俄罗斯男足与女足国家队参加所有类型足球赛事（包括卡达世界杯资格赛）的资格。」，并极力争取2022世界杯足球赛参赛资格。
 
-这并非多纳霍首次成为新闻焦点。2021年7月，前海军军官、现正在密歇根州的希尔斯达耳学院 (Hillsdale College)就读的约塞亚·里平科特（Josiah Lippincott）就曾公开表示自己不认同多纳霍有关新冠疫苗的叙事。作为报复，多纳霍通过其官方推特账户呼吁大学派人“来抓他”。
+之后国际体育仲裁法庭受理了这项请求，但3月18日俄罗斯足协诉请的暂停FIFA禁赛处罚请求遭到驳回，俄罗斯国家队仍受限于禁令，到了3月30日，俄罗斯足协主动告知国际体育仲裁法庭，将撤回上诉请求，整个上诉程序也将终止。4月5日国际体育仲裁法庭正式公告俄罗斯足协撤回上诉一事，就也意味着随着原定将和波兰进行资格赛的俄罗斯，彻底无缘本届卡达世界杯足球赛。
 
-新闻来源：[EXCLUSIVE: Army Captain Placed in Mental Hospital for Accusing Commanding General Patrick Donahoe of Pushing Illegal Vaccine](https://www.thegatewaypundit.com/2022/04/breaking-exclusive-army-captain-placed-mental-hospital-accusing-commanding-general-patrick-donahoe-pushing-illegal-vaccine/)
+在俄乌战争下，俄罗斯足协撤回上诉彻底退出世界杯，自绝于世界体育足球的行列也算是有自知之明。上诉纯属无味的挣扎，结果是注定的，没有人欢迎破坏和平屠杀乌克兰人的侵略者。普京的霸权野心梦正在葬送俄罗斯的一切，俄罗斯要想归回国际社会的大家庭，请站起来推翻普京！
 
+新闻来源：[https://www.ftvnews.com.tw/news/detail/2022406W0131](https://www.ftvnews.com.tw/news/detail/2022406W0131)
+
+撰稿/发布：一叶知秋
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/GNEWSLOGO1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
