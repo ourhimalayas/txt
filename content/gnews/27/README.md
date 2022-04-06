@@ -2,29 +2,41 @@
 ---
 
 
-## 樱花时政｜可怕的文革2.0正在国内上演
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2296989/)
+## 数字资产交易应受高度监管，币安前途堪忧
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297085/)
 
-撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/可怕的文革2.0正在国内上演.png)
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-2022年4月4日，郭文贵先生Gettr爆料上海已经是人间地狱，长春已经是人间炼狱，深圳死那么多人，官方不报道！国内房地产，银行倒塌还没到来呢！国内不是什么新病毒，全是疫苗反应！各省给上海送菜是政治斗争，中央问：谁让你们送菜送饭给上海了？
+#### 翻译/编辑：小红帽
 
-无数迹象证明，这场遍布中共国各地的疫情封控、封城、核酸大检测，除了确实已到了中共病毒疫苗毒性发作的开始时间，出现了连绵不断此起彼伏的，各种类似中共病毒感染案例以外，更多的是邪恶的中共习近平借疫情发动的一场作为政治内斗的文革2.0版的政治大运动，目的就是将体制内所有的不归属自己的江曾王孟派系人马全部一次性清除和更换掉，将中共的独裁专制党天下，顺利过渡到习氏家族世袭的家天下！
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/09bff96a-103b-439c-a7e2-85d640512e42.jpg)图片来源：[www.ft.com](https://www.ft.com/)
 
-和文革前毛泽东使用红卫兵去干掉刘少奇派系的各级党委所不同的是，中共习近平使用的是“大白”，用无声无息无形的疫情防控，以感染病毒为由头，去抓捕和清除政治对手，所以才出现除了使用各级警力，还将军队开往各个重点城市去“抗击疫情”，街头出现“大白”持枪镇吓群众的这种怪事。习近平和毛泽东事实上使用一样手段！
 
-抗疫不是目的，借助抗疫来消灭政治对手，并且通过不断对老百姓折腾、侮辱，让老百姓变的贫穷、变弱、变的疲惫不堪才是中共崇祯帝习近平一石二鸟的计策！通过极其不合理的抗疫政策，大大的降低了绝大部份中国老百姓对生活的期盼！在中共商鞅五术的治理下，老百姓只要能苟且的活着，不封锁，不隔离，不做核酸，能正常工作，自由进出家门，习近平家族世袭在他们眼中那都是小事……
+根据COINGEEK4月5日报道，美国证券交易委员会（SEC）主席Gary Gensler周一在宾夕法尼亚大学向宾夕法尼亚州法律资本市场协会发表讲话，重申了SEC对监管数字资产交易平台的承诺。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+对于许多人来说，Gensler演讲的主旨已经不言而喻：现行法律已经适用于数字资产，无论技术多么新颖。
+
+“没有理由因为使用了不同的技术就对加密货币市场进行区别对待。我们应该是技术中立。”Gensler说。
+
+Gensler详细谈到了他对数字资产交易所的担忧。他表示交易所的市场是 “高度集中的”，前五大平台占了所有数字资产交易的99%，其中两个平台（币安和Coinbase）占了80%的交易。
+
+“这些平台很可能在交易证券。虽然每个代币的法律地位取决于其自身的事实和情况，但鉴于委员会对各种证券代币的经验，以及这么多代币的交易，任何特定平台的提供证券交易的数量为零的概率相当小。”
+
+任何提供证券交易的平台必须在美国证券交易委员会注册为证券交易所，并遵守其严格的消费者保护要求。因此，任何未能做到这一点的交易所，以及任何数字资产证券的发行人，都是非法行为。
+
+今年初，BlockFi同意向美国证券交易委员会和美国32个州支付1亿美元的罚款，原因是其未能按照美国证券法的要求注册其数字资产借贷产品。
+
+在Gensler的最新演讲中，他概述了SEC正在采取的直接措施，以确保数字资产交易所受到适当监管。其中最主要的是迫使这些平台提交与任何其他交易所相同的监管要求。换句话说，将数字资产交易所完全视为已经受到高度监管的股票交易平台。
+
+新闻来源：[SEC Chair Gary Gensler: ‘No reason’ to treat digital asset market differently under securities laws](https://coingeek.com/sec-chair-gary-gensler-no-reason-to-treat-digital-asset-market-differently-under-securities-laws/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

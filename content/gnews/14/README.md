@@ -2,45 +2,35 @@
 ---
 
 
-## 被中共和普京支持的中东乱源都不能用SWIFT不能到西方
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2297331/)
+## 樱花FM┃上海幼儿被隔离死 母亲悲痛自杀
+` 樱花FM` [轉載自GNews](https://gnews.org/zh-hans/2297443/)
 
-视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8822.38%EF%BC%89%E8%A2%AB%E4%B8%AD%E5%85%B1%E5%92%8C%E6%99%AE%E4%BA%AC%E6%94%AF%E6%8C%81%E7%9A%84%E4%B8%AD%E4%B8%9C%E4%B9%B1%E6%BA%90%E9%83%BD%E4%B8%8D%E8%83%BD%E7%94%A8SWIFT%E4%B8%8D%E8%83%BD%E5%88%B0%E8%A5%BF%E6%96%B9%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
+音频：东京樱花团/战友520
 
-**郭文贵先生：**另外一个就是看到，兄弟姐妹们一定要看到整个胡塞武装的炸，对沙特的轰炸、对油的轰炸和伊拉克的伊朗的炸领事馆百分之百这是共产党和普京在背后的推动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/040631.png)
 
-这些国家都是一个共同的原则是什么？不能用SWIFT、不能用美元、不能到西方国家旅行，是吧？问题在这儿呢。
+近日，上海残忍隔离幼儿的视频在各媒体热传，从襁褓之中婴儿到蹒跚前行的幼儿，4个年级不等的孩子在一张婴儿床上，哭声喊声一片，诺大的房间几十张床。
 
-兄弟姐妹们，指点乾坤很容易、创造乾坤比登天都难、预知乾坤比登宇宙都难。所以说人类上最高的境界什么？战友们，就是新中国联邦的境界，你服不服？
+据传，医护人员人手不够，很多孩子屎尿不能及时处理，有的烂屁股……惨状不可想象。
 
-字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
+今天微信朋友圈传出，一个2岁孩子发烧不治去世，视频里的母亲哭喊：“你们不是救人的吗？随即发出悲怆痛苦的呼叫声，不忍卒耳！她受不了打击自杀身亡！
 
-编辑整理：Jacques；
+这是幼儿隔离后的第一起命案，如果政策继续，相信不是最后一起。
 
-字幕档制作：知津；
+哪怕孩子没治了，最后一刻有母亲守护也是临终前的一点关爱。
 
-视频制作及上传：Cindy；
+把毫无自理能力的孩子单独隔离，不知道是哪个领导拍脑瓜的阴招？这也是“相信共产党走进火葬场”最真实的写照，希望越来越多的中国人能从这些血的代价里醒悟！
 
-G-News发布：海贼王M.D.LUFFY；
+文字版原文：
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+| [樱花时政┃上海幼儿被隔离死 母亲悲痛自杀](https://gnews.org/zh-hans/2283368/) |   |
+| --- | --- |
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：日本银河系农场。
-
+*编辑：东京樱花团/asket
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_1279-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

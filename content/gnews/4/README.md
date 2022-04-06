@@ -2,20 +2,18 @@
 ---
 
 
-## 视频|德法两国驱逐数十名俄罗斯外交官
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2297369/)
+## 战友问题：不要场外交易（三）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297486/)
 
-制作：香草山视频部
+**PPT制作：WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/11.20-11.303.jpg)
+*发布：tianzhihuan*
 
-据外媒报，俄军在乌克兰基辅郊区布查屠杀平民罪行暴露后，法德两国周一宣布大规模驱逐俄罗斯外交官，立陶宛宣布驱逐俄罗斯大使。西方同时宣布调查俄军在基辅周边地区犯下的“战争罪”。
-
-德国政府周一宣布，将驱逐数量“很大”的一批常驻柏林的俄罗斯外交官，法新社获得的消息是40名俄罗斯外交官被柏林当局驱逐。法国方面也宣布，驱逐35位俄罗斯外交官，理由是他们的活动“违反法国的利益”。波罗的海国家立陶宛同日也宣布，驱逐俄罗斯驻立陶宛大使。
-
-发稿：林礼
-
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

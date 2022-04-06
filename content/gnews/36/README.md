@@ -2,10 +2,10 @@
 ---
 
 
-## 中共特务郑介甫遭澳洲政府遣返
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296741/)
+## 巴基斯坦总理被解职 印证郭文贵先生情报
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296742/)
 
-作者：银河系农场 – 骄子
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,28 +13,20 @@
 
 
 
-近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
+当地时间3月31日，巴基斯坦反对党表示，已经获得足够票数，将在周日启动投票罢免总理。据悉当时反对党已经争取到了196个议员的支持，高于投票中所需的172人。4月4日，巴基斯坦总理不出意料地，在解散议会后被解职，目前的总理权限保留至选出临时总理为止。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide10-4.jpg)
+早在3月30日的大直播中，郭文贵先生就已经指出，中共要让巴基斯坦动乱，因为现在的领导人不是百分之百对中共言听计从。
 
-早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-4.jpg)
-郭先生在2017年5月9日直播中对此事进行了阐述，郑介甫因其国内公司与郭先生产生矛盾，但其实根本与郭先生无关，全因经手人是曲龙想侵吞资产，郭先生和这个郑介甫根本不存在任何法律关系。这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
-
-2017年郭先生美国之音断播门事件第二天，郑又在媒体大肆诬告郭先生所言都不真实，爆料只是为引起媒体关注。
-
-时隔五年，郑介甫被遣返。郭先生在2022年4月4号直播中说，时间会给人一切答案，跟着共产党，走进火葬场。目前澳大利亚政府名单上面有40多个为中共卖命的人要被遣返。
+观察人士指出，无论是年初的哈萨克斯坦动乱，还是当前的巴基斯坦总理被罢免，都在像郭先生爆料的那样发展。由此足以看出爆料革命情报的准确性。
 
 参考链接：
-1. [Millionaire Chinese property developer quietly expelled for ‘harming security interests’](https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html)
-2. [Chinese President’s war on corruption finds its way to Brighton](https://www.smh.com.au/politics/federal/chinese-presidents-war-on-corruption-finds-its-way-to-brighton-20150405-1merr5.html)
-3. [【特别报道】权力猎手郭文贵](https://weekly.caixin.com/m/2015-03-27/100795235_all.html)
-4. [Australian property developer’s encounter with Interpol most-wanted Guo Wengui](https://www.smh.com.au/world/australian-property-developers-encounter-with-interpol-mostwanted-guo-wengui-20170420-gvol9s.html)
-5. [7·24系列——造谣郭文贵先生的郑介甫被遣返](https://gnews.org/zh-hans/2286058/)
-6. [郭文贵5月9日报平安视频直播](https://www.youtube.com/watch?v=qUNteNSEwmA)
+1. [巴基斯坦反对党称“获足够票数罢免总理”，伊姆兰·汗：我会奋战到底](https://www.sohu.com/a/534425598_313745)
+2.  [巴基斯坦总理批评“外国势力”密谋推翻其政府，结果“不小心”点了美国](https://world.huanqiu.com/article/47QaKycAu8L)
+3. [巴基斯坦总理伊姆兰·汗被解职，将留任至选出临时总理](https://www.sohu.com/a/535261959_313745)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-编辑：呼吸的雾霾（文小呼吸）
-总编：zhong
+编辑/总编：zhong
 审核：飞虹
 校对/发稿：为真不破20
 
