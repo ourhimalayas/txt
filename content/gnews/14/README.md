@@ -2,21 +2,12 @@
 ---
 
 
-## 视频|杀戮和独裁相生相随，只要能维护统治，维护盗国贼们的家族利益，任何杀人借口都可以制造
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2295421/)
+## 我们不会原谅俄罗斯，无论“在地球上或在天堂”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2295658/)
 
-制作：大直播短视频组- 隧道尽头的光
-文案：Miyali7768(文玉）
+04/04/2022 布查市市长：我们不会原谅俄罗斯，无论“在地球上或在天堂”。
 
-审核/编辑/发稿：谐趣园
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

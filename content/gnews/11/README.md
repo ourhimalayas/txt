@@ -2,21 +2,12 @@
 ---
 
 
-## 视频|狰狞显露，坑瀣一气，魔鬼从不放过残害世界的机会
-` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2295454/)
+## 泽连斯基在演讲中控诉俄军暴行并反思北约对俄绥靖政策
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2295879/)
 
-制作：大直播短视频组- 隧道尽头的光
-文案：Miyali7768(文玉）
+04/03/2022 泽连斯基总统在演讲中，控诉了俄军的暴行，向俄国军人母亲喊话，质问为什么要如此对待乌克兰人。演讲痛斥默克尔和萨科齐对普丁的绥靖政策造成了今天的灾难，同时赞扬了和乌克兰军队的纪律和战斗意志，堪称全世界的榜样。乌克兰和俄罗斯的战斗就是正邪之战，号召乌克兰人抵抗到底直到彻底赶走侵略者。
 
-审核/编辑/发稿：谐趣园
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/5_.png)
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
