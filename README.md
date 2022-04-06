@@ -15,50 +15,50 @@
 
 ---
 
-### [拜登政府成立新的网络安全机构](/content/gnews/1/README.md)
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -9](/content/gnews/1/README.md)
+ ` topnews`
+
+### [意大利结束COVID-19紧急状态管控](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -8](/content/gnews/3/README.md)
+ ` topnews`
+
+### [拜登政府成立新的网络安全机构](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [逃离战争—雁南飞](/content/gnews/2/README.md)
+### [逃离战争—雁南飞](/content/gnews/5/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [被误导的大流行—— 中共宣传及中共病毒的效应 -7](/content/gnews/3/README.md)
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -7](/content/gnews/6/README.md)
  ` topnews`
 
-### [被误导的大流行—— 中共宣传及中共病毒的效应 -6](/content/gnews/4/README.md)
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -6](/content/gnews/7/README.md)
  ` topnews`
 
-### [郭文贵先生两首新歌正式上线](/content/gnews/5/README.md)
+### [郭文贵先生两首新歌正式上线](/content/gnews/8/README.md)
  ` 扬帆枫叶快讯`
 
-### [被误导的大流行—— 中共宣传及中共病毒的效应 -5](/content/gnews/6/README.md)
+### [被误导的大流行—— 中共宣传及中共病毒的效应 -5](/content/gnews/9/README.md)
  ` topnews`
 
-### [上海疫情因疫苗灾难而继续恶化](/content/gnews/7/README.md)
+### [上海疫情因疫苗灾难而继续恶化](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/8/README.md)
+### [新冠病毒疫苗灾难正在全球爆发](/content/gnews/11/README.md)
  ` 扬帆枫叶快讯`
 
-### [安大略省立法消减汽油燃料税](/content/gnews/9/README.md)
+### [安大略省立法消减汽油燃料税](/content/gnews/12/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/10/README.md)
+### [加拿大社会的两极分化因疫情政策而加重](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [被误导的大流行—— 中共宣传及中共病毒的效应 -4](/content/gnews/11/README.md)
- ` topnews`
-
-### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/12/README.md)
+### [加拿大试图加强战略能源和矿产品的开发](/content/gnews/14/README.md)
  ` 扬帆枫叶快讯`
 
-### [特鲁多政府治国方针日渐中共化](/content/gnews/13/README.md)
- ` 扬帆枫叶快讯`
-
-### [4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作](/content/gnews/14/README.md)
+### [4/05/2022 文贵盖特：新中国联邦人要感恩并珍惜我们拥有的；新中国联邦救援在世界产生了巨大影响，很多国家在考虑跟我们合作](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
-
-### [被误导的大流行—— 中共宣传及中共病毒的效应 -3](/content/gnews/15/README.md)
- ` topnews`
 
 ### [澳洲国防部长宣布35亿制导武器采购计划](/content/gnews/16/README.md)
  ` 走进澳洲`

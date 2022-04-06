@@ -2,27 +2,29 @@
 ---
 
 
-## 被误导的大流行—— 中共宣传及中共病毒的效应 -7
-` topnews` [轉載自GNews](https://gnews.org/zh-hans/2295155/)
+## 被误导的大流行—— 中共宣传及中共病毒的效应 -8
+` topnews` [轉載自GNews](https://gnews.org/zh-hans/2295201/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/新Logo7.jpg)
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-532.png)
 
 （图片来自原文）
 
-社交媒体账户类型很重要
+中国共产党（CCP）恶毒的虚假信息对流行性的引领
 
-政府和外交账户的强化效果可以通过研究这些账户在某些受众中可能具有的权威来解释。
+当中国共产党（CCP）使用权威外交账户中带有虚假内容的恶毒叙述时，通常会出现转发量激增的情况–加强了其传播力度。然而，随着时间的推移，这些已经接触到该叙述的大量受众开始点赞和评论它，增加了它的受欢迎程度。这种延迟效应可能是由说服理论效应引起的，即点赞的启发式效应。
 
-回顾中国共产党（CCP）政府的推文被贴上 “政府官方 “的标签，我们可以顺理成章地认为这个徽章增强了人们对一个权威人物的看法。然后，受众必须对所提供的信息是否虚假形成自己的看法，因为可信来源（例如，中共国驻美国大使）的存在可能会导致通过“认知捷径“进行外围处理，相信 “可信来源的声明可以被信任 “。
+人们通常会同意他们点赞的人，而他们点赞的人通常有 “正确 “的观点。
 
-此外，中共政府和外交账户似乎使用最多的“否认策略“，通常针对美国和其他西方批评中共在病毒传播初期处理不当和不愿意分享信息。中共的叙述从无视策略开始（淡化病毒的危险性），接着是否认策略（暗示病毒源自美国或由美军制造），最后是攻击指控者策略（指责美国将病毒称为中共国病毒或武汉流感）。
+在测试数据中观察到的这种点赞效应类似于麻省理工学院研究小组在Facebook上进行的大规模随机实验。
 
-这些积极的声誉修复信息在短期内似乎是成功的，因为2020年3月后，中国流感和中共国病毒的使用频率降低了。巧合的是，在测试数据集中，3月份中，拒绝使用该词汇的次数最多。这一事实强调了中共的软实力战术——社交媒体战中有针对性和同步的有效性。
+该小组发现，与普通广告相比，向其他Facebook成员提供个性化推荐的效果是产生采用率的三倍。因此，一条在社交媒体上的强关系中被分享和点赞的推文会增加对叙述的采用。
 
-新闻来源链接：[https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/](https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/)
+对一条推文的简单喜欢并不意味着完全的信息共识。
 
-本文作者：Rebecca (一切心皆不可得！) 
+例如，一个喜欢中共宣传推文的西方社交媒体用户，并不会成为中共的代理人。但是，如果从多个数据源持续曝光，中共宣传推文可能会开始说服该用户，使其增加中共宣传推文的可信度和对当前话题的立场。更为可怕的是，培养共识的风险。如果其他人相信它，那么它就可能是真的。
+
+新闻来源链接：[https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/](https://www.eurasiareview.com/04042022-misleading-a-pandemic-the-viral-effects-of-chinese-propaganda-and-the-coronavirus-analysis-2/) 本文作者：Rebecca (一切心皆不可得！)  
 上传排版：Hong
 
  
