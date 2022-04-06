@@ -2,11 +2,11 @@
 ---
 
 
-## 营地工作逐步完善，我们做的比专业组织还要棒（三）
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297155/)
+## 未来是数字时代和生物科技的时代（四）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297202/)
 
-**PPT制作：小蜗牛 ；牛魔王**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/09-50-10-00-02（三）.jpg)
+**PPT制作：WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10.40-10.504.jpg)
 *发布：tianzhihuan*
 
 **更多资讯，请关注：**

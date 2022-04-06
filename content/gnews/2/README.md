@@ -2,17 +2,18 @@
 ---
 
 
-## 视频配乐诗朗诵：虽然 （战友倾情合作）
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2297156/)
+## 某国数字货币储备喜币在可能的名单里（一）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297204/)
 
-作者：流浪的阳光
-视频剪辑：全都是乱码
-统筹：勇往直前
-供稿：桑桠
-片尾特效：蚂蚁仔
-视频剪辑：无远弗届
-发稿：am夏天
-德国纽伦堡正义农场
+**PPT制作：WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10.50-11.001.jpg)
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

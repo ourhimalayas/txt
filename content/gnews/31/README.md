@@ -2,80 +2,44 @@
 ---
 
 
-## 美国务卿安东尼·布林肯：美国正在制裁全球最大的讲俄语的暗网市场
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2296644/)
+## 看不清中共要拿下美国欧洲企图的美欧将要付出巨大代价
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2296706/)
 
-**美国务卿安东尼·布林肯： **
-美国正在制裁全球最大的讲俄语的暗网市场 Hydra 和虚拟货币交易所 Garantex。 今天的行动，与德国协调作，表明我们致力于继续捣毁勒索软件基础设施及参与者。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%8819.38%EF%BC%89%E7%9C%8B%E4%B8%8D%E6%B8%85%E4%B8%AD%E5%85%B1%E8%A6%81%E6%8B%BF%E4%B8%8B%E7%BE%8E%E5%9B%BD%E6%AC%A7%E6%B4%B2%E4%BC%81%E5%9B%BE%E7%9A%84%E7%BE%8E%E6%AC%A7%E5%B0%86%E8%A6%81%E4%BB%98%E5%87%BA%E5%B7%A8%E5%A4%A7%E4%BB%A3%E4%BB%B7%E3%80%902022%E5%B9%B403%E6%9C%8813%E6%97%A5%E6%96%87%E8%B2%B4%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:7)
 
+**郭文贵先生**：好，我现在我告诉大家，七哥在几天前是第一个在全世界告诉共产党会出手的。很多人你看看所有的全世界的人都认为习近平，包括美国CIA的领导、现任领导在国会作证说：吓傻了！习近平，不打台湾了! 共产党就服软了，甚至放弃俄罗斯了! ——这是无知、愚蠢、愚昧的结果。
 
+昨天他已经看到代价了，伊朗在苏莱曼尼的生日的时刻为什么要打你这个伊拉克领事馆？接下来你会看到，我今天在这儿说的，记住，郭文贵在这儿说的：如果美国还没有搞清楚共产党要干掉美国的话，美国付出的代价还早着呢。
 
-> The United States is sanctioning the world’s largest darknet market for Russian speakers, Hydra, and the virtual currency exchange Garantex. Today’s action, coordinated with 🇩🇪, demonstrates our commitment to continue disrupting ransomware infrastructure and actors.
-> — Secretary Antony Blinken (@SecBlinken) [April 5, 2022](https://twitter.com/SecBlinken/status/1511433500154478592?ref_src=twsrc%5Etfw)
+欧洲如果不明白，欧洲——共产党说要彻彻底底要拿下欧洲，如果欧洲人像马克龙、那什么德国肖尔茨、什么意大利呀，是吧？你任何的人天真，你包括英国现在的鲍里斯，他付出的代价还早着呢。
 
+字幕来源：[2022年3月13日《文贵大直播》全文字版](https://gnews.org/zh-hans/2164000/)
 
+编辑整理：Jacques；
 
-**参议员泰德·克鲁兹转推 伊隆·马斯克的推文：** 
-期待与(推特CEO)帕拉格Parag 和推特董事会合作，以在未来几个月内对推特进行重大改进！
+字幕档制作：知津；
 
+视频制作及上传：Cindy；
 
+G-News发布：海贼王M.D.LUFFY；
 
-> Looking forward to working with Parag & Twitter board to make significant improvements to Twitter in coming months!
-> — Elon Musk (@elonmusk) [April 5, 2022](https://twitter.com/elonmusk/status/1511322655609303043?ref_src=twsrc%5Etfw)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**前国务次卿基思·克拉奇： **
-参议员托德·扬@SenToddYoung 早就意识到 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 威胁美国和自由世界的紧迫性。他的两党 [#USICA](https://gettr.com/hashtag/%23USICA) 美国创新与竞争法案可以帮助确保好人赢得未来。我的关于美国科技领导地位为何重要的专栏文章：（附文章链接：参议院刚刚通过了下一个阿波罗计划） 【转参议员托德·扬推文： 打击中共 [#CCP](https://gettr.com/hashtag/%23CCP) 的必要性是显而易见的。 在繁荣美国联盟 [@cpa\_tradereform](https://gettr.com/user/cpa_tradereform) 的会议上加入基思·克拉奇，讨论我的中共国竞争力法案将如何加速我们在技术和制造业方面的增长，从而使美国能够引领 21 世纪。 [#USICA](https://gettr.com/hashtag/%23USICA)】
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
 
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-> .[@SenToddYoung](https://twitter.com/SenToddYoung?ref_src=twsrc%5Etfw) has recognized the urgency of the CCP's threats to the US and the free world for a long time. His bipartisan [#USICA](https://twitter.com/hashtag/USICA?src=hash&amp;ref_src=twsrc%5Etfw) bill can help ensure the good guys win the future. My op-ed about why America's tech leadership matters: [https://t.co/0xvSV6KAi3](https://t.co/0xvSV6KAi3) [https://t.co/3PPoLYHXVX](https://t.co/3PPoLYHXVX) [pic.twitter.com/LXCoIXGRvc](https://t.co/LXCoIXGRvc)
-> — Keith J. Krach (@KeithJKrach) [April 5, 2022](https://twitter.com/KeithJKrach/status/1511421749409333253?ref_src=twsrc%5Etfw)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-
-**参议员容·约翰逊：** 
-拜登谎称从未与亨特谈过他的海外业务，也没有从中国赚到钱。串通一气的媒体继续为他们掩盖事实。现在他们在我的事上撒谎。 人们干嘛信他们？没人信。
-
-
-
-> Biden lied about never talking to Hunter about his overseas businesses and that Hunter never made money from China. A complicit media continues to cover up for them. Now they’re lying about me. 
-> 
-> Why does anyone believe them? Don’t. [pic.twitter.com/1PqsDiRYFD](https://t.co/1PqsDiRYFD)
-> — Senator Ron Johnson (@SenRonJohnson) [April 5, 2022](https://twitter.com/SenRonJohnson/status/1511437358616436738?ref_src=twsrc%5Etfw)
-
-
-
-**美国北约使命： **
-当我们说美国对北约盟友的承诺是铁定的时，我们的意思是什么？这意味着我们有美军在地面保护北约的每一寸领土，我们的高级外交官国务卿布林肯将来到布鲁塞尔与我们的盟国进行协调。 【图片新闻：4/6-4/7，布鲁塞尔北约总部 外交大臣会议】
-
-
-
-> What do we mean when we say that the U.S. commitment to [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies is ironclad? It means that we have U.S. troops on the ground protecting every inch of NATO territory & our top diplomat [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) coming to Brussels to coordinate with our Allies. [#ForMin](https://twitter.com/hashtag/ForMin?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lXaQARZSph](https://t.co/lXaQARZSph)
-> — US Mission to NATO (@USNATO) [April 5, 2022](https://twitter.com/USNATO/status/1511364861430837253?ref_src=twsrc%5Etfw)
-
-
-
-**国务卿安东尼·布林肯： **
-随着乌克兰军队勇敢地继续抗击俄罗斯的再次入侵，我已授权1亿美元以满足乌克兰军队对额外反装甲系统的迫切需求。
-
-
-
-> As Ukraine’s forces bravely continue to combat Russia’s renewed invasion, I have authorized $100 million to meet an urgent need for additional anti-armor systems for Ukraine’s forces.
-> — Secretary Antony Blinken (@SecBlinken) [April 6, 2022](https://twitter.com/SecBlinken/status/1511520632046903301?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎.布莱克本：** 
-迪士尼及其在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 内部的拥护者们都支持剥夺父母的权利。
-
-
-
-> Both Disney and their supporters in the Chinese Communist Party support taking away rights from parents.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 5, 2022](https://twitter.com/MarshaBlackburn/status/1511477975593754629?ref_src=twsrc%5Etfw)
-
-
+G-TV：日本银河系农场。
 
  
 

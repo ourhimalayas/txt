@@ -2,47 +2,23 @@
 ---
 
 
-## 中共特务郑介甫遭澳洲政府遣返
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2296741/)
+## 俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296818/)
 
-作者：银河系农场 – 骄子
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+外媒报导，美国阻止俄罗斯政府，以他们在外国银行持有的储备金，向主权债务持有人支付超过6亿美元的本息，此举是为了加大对莫斯科的压力。西方对俄罗斯的制裁已冻结俄国约6,400亿美元的黄金与外汇储备中的大约一半，但是俄国确实仍有足够的资金，可以从其储备金支付上述的主权债券票息。
 
+此外，原先美国财政部允许俄国政府逐案(case-by-case basis)使用在美国银行里遭冻结的资金支付以美元计价的主权债券票息(coupon)。财政部发言人表示，美国政府4日决定切断莫斯科取得被冻结资金的管道，阻止俄国政府支付即将到期的最大一笔款项，以及另一笔8,400万美元的票息。
 
+外界分析美国此举系为了消耗俄国外汇储备，削弱俄国战争的资金。惟俄国也可能要求欧洲客户以卢布购买天然气，作为反制。俄乌战争导致国际能源及粮食价格飙涨，世界面临经济、粮食危机。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2%E4%BF%84%E7%BE%85%E6%96%AF%E6%94%AF%E4%BB%98%E5%82%B5%E5%88%B8%E6%9C%AC%E6%81%AF-%E5%8D%87%E9%AB%98%E8%8E%AB%E6%96%AF%E7%A7%91%E5%A3%93%E5%8A%9B-093011243.html)、[NIKKEI](https://asia.nikkei.com/Economy/South-Korea-March-inflation-hits-decade-high-on-supply-challenges)
 
+* * *
 
-
-近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
-
-早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide9-4.jpg)
-郭先生在2017年5月9日直播中对此事进行了阐述，郑介甫因其国内公司与郭先生产生矛盾，但其实根本与郭先生无关，全因经手人是曲龙想侵吞资产，郭先生和这个郑介甫根本不存在任何法律关系。这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
-
-2017年郭先生美国之音断播门事件第二天，郑又在媒体大肆诬告郭先生所言都不真实，爆料只是为引起媒体关注。
-
-时隔五年，郑介甫被遣返。郭先生在2022年4月4号直播中说，时间会给人一切答案，跟着共产党，走进火葬场。目前澳大利亚政府名单上面有40多个为中共卖命的人要被遣返。
-
-参考链接：
-1. [Millionaire Chinese property developer quietly expelled for ‘harming security interests’](https://www.smh.com.au/national/millionaire-chinese-property-developer-quietly-expelled-for-harming-security-interests-20220324-p5a7gk.html)
-2. [Chinese President’s war on corruption finds its way to Brighton](https://www.smh.com.au/politics/federal/chinese-presidents-war-on-corruption-finds-its-way-to-brighton-20150405-1merr5.html)
-3. [【特别报道】权力猎手郭文贵](https://weekly.caixin.com/m/2015-03-27/100795235_all.html)
-4. [Australian property developer’s encounter with Interpol most-wanted Guo Wengui](https://www.smh.com.au/world/australian-property-developers-encounter-with-interpol-mostwanted-guo-wengui-20170420-gvol9s.html)
-5. [7·24系列——造谣郭文贵先生的郑介甫被遣返](https://gnews.org/zh-hans/2286058/)
-6. [郭文贵5月9日报平安视频直播](https://www.youtube.com/watch?v=qUNteNSEwmA)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑：呼吸的雾霾（文小呼吸）
-总编：zhong
-审核：飞虹
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

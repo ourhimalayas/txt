@@ -2,36 +2,80 @@
 ---
 
 
-## “大内宣”闭门洗脑 中俄共抗民主世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2296259/)
+## 美国务卿安东尼·布林肯：美国正在制裁全球最大的讲俄语的暗网市场
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2296644/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16492162821.png)资料图
-据法国国际广播电台4月5日报道，北京正在发动一场有关俄罗斯的大内宣洗脑运动，试图通过一部记录片将俄罗斯总统普京颂扬为英雄，博得人们对俄罗斯的同情，以对抗西方民主价值观。俄罗斯侵乌克兰战争似乎变成一场莫斯科和北京共抗民主世界的斗争。中共针对官员和学生想发布的信息是：中共国不会背弃俄罗斯。
-
-俄乌战争已经持续一个月，中共当局一直拒绝谴责普京的侵略战争，虽然这场战争已经导致成千上万的乌克兰平民死亡。世界其他领导人向北京施加压力，要求其利用对莫斯科的影响力帮助结束这场危机，但北京除了呼吁和平之外，几乎没有做什么。拜登政府把这场战争说成是民主与独裁的较量。中共国官员认为美国主导的霸权主义是乌克兰和其他地方冲突的根源。
-
-中共国将自己扮成一个有原则的乌克兰战争的旁观者，不选边站，只寻求和平。但在国内，中国共产党正在掀起一场宣传运动，将俄罗斯描绘成长期受苦的受害者，而不是侵略者，并为北京与莫斯科缔结紧密联系进行辩护。中共国外长王毅在会见俄罗斯外长拉夫罗夫时表示，北京致力于与莫斯科建立强有力的关系。
-
-中共国领导人一直将前苏联的解体作为一个警示，认为斯大林是一个现代化的领导人，只是他的清洗行动走得太远了。习近平给这个故事赋予了更不祥的色彩。他把普京当作反西方专制主义的同路人，要向中共国人民表明，他有一个合作伙伴，那便是普京。这部纪录片认为普京先生恢复了俄罗斯的精神。影片显示，普京曾经参加纪念俄罗斯战胜纳粹德国的游行。
-
-这部名为”历史虚无主义和苏联解体”的纪录片，是自俄罗斯2月24日开始全面进攻乌克兰以来，中共针对党内官员开展的为期一个月运动的核心内容。而监督放映这部记录片的官员被描述为呼吁干部对习近平保持坚定和忠诚，因为在今年年底的中共20大，习近平正在谋求获得第三个任期。
-
-中共非法政权存在70年，最成功的事业就是海外大外宣输出共产主义和国内大内宣严密管控言论。70年的时间成功地把中国人的脑子洗得是非不明、善恶不分。全世界都在谴责俄罗斯对乌克兰国土的侵略和对平民的屠杀，连美国总统拜登都罕见地呼吁普京下台，只有中共国民众欢呼雀跃。中共是全世界所有灾难的源头，各个国家政权非正常变更、新冠病毒、疫苗灾难、俄乌战争、中东剧变，一切都是中共在背后主使。消灭中共，就消灭了战争、消灭了灾难，人类就能步入新纪年。2022年，Take Down the CCP.
-
-新闻参考链接：[“大内宣”闭门洗脑 中俄共抗民主世界](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220405-%E5%A4%A7%E5%86%85%E5%AE%A3-%E9%97%AD%E9%97%A8%E6%B4%97%E8%84%91-%E4%B8%AD%E4%BF%84%E5%85%B1%E6%8A%97%E6%B0%91%E4%B8%BB%E4%B8%96%E7%95%8C)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+**美国务卿安东尼·布林肯： **
+美国正在制裁全球最大的讲俄语的暗网市场 Hydra 和虚拟货币交易所 Garantex。 今天的行动，与德国协调作，表明我们致力于继续捣毁勒索软件基础设施及参与者。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> The United States is sanctioning the world’s largest darknet market for Russian speakers, Hydra, and the virtual currency exchange Garantex. Today’s action, coordinated with 🇩🇪, demonstrates our commitment to continue disrupting ransomware infrastructure and actors.
+> — Secretary Antony Blinken (@SecBlinken) [April 5, 2022](https://twitter.com/SecBlinken/status/1511433500154478592?ref_src=twsrc%5Etfw)
+
+
+
+**参议员泰德·克鲁兹转推 伊隆·马斯克的推文：** 
+期待与(推特CEO)帕拉格Parag 和推特董事会合作，以在未来几个月内对推特进行重大改进！
+
+
+
+> Looking forward to working with Parag & Twitter board to make significant improvements to Twitter in coming months!
+> — Elon Musk (@elonmusk) [April 5, 2022](https://twitter.com/elonmusk/status/1511322655609303043?ref_src=twsrc%5Etfw)
+
+
+
+**前国务次卿基思·克拉奇： **
+参议员托德·扬@SenToddYoung 早就意识到 [#中共](https://gettr.com/hashtag/%23%E4%B8%AD%E5%85%B1) 威胁美国和自由世界的紧迫性。他的两党 [#USICA](https://gettr.com/hashtag/%23USICA) 美国创新与竞争法案可以帮助确保好人赢得未来。我的关于美国科技领导地位为何重要的专栏文章：（附文章链接：参议院刚刚通过了下一个阿波罗计划） 【转参议员托德·扬推文： 打击中共 [#CCP](https://gettr.com/hashtag/%23CCP) 的必要性是显而易见的。 在繁荣美国联盟 [@cpa\_tradereform](https://gettr.com/user/cpa_tradereform) 的会议上加入基思·克拉奇，讨论我的中共国竞争力法案将如何加速我们在技术和制造业方面的增长，从而使美国能够引领 21 世纪。 [#USICA](https://gettr.com/hashtag/%23USICA)】
+
+
+
+> .[@SenToddYoung](https://twitter.com/SenToddYoung?ref_src=twsrc%5Etfw) has recognized the urgency of the CCP's threats to the US and the free world for a long time. His bipartisan [#USICA](https://twitter.com/hashtag/USICA?src=hash&amp;ref_src=twsrc%5Etfw) bill can help ensure the good guys win the future. My op-ed about why America's tech leadership matters: [https://t.co/0xvSV6KAi3](https://t.co/0xvSV6KAi3) [https://t.co/3PPoLYHXVX](https://t.co/3PPoLYHXVX) [pic.twitter.com/LXCoIXGRvc](https://t.co/LXCoIXGRvc)
+> — Keith J. Krach (@KeithJKrach) [April 5, 2022](https://twitter.com/KeithJKrach/status/1511421749409333253?ref_src=twsrc%5Etfw)
+
+
+
+**参议员容·约翰逊：** 
+拜登谎称从未与亨特谈过他的海外业务，也没有从中国赚到钱。串通一气的媒体继续为他们掩盖事实。现在他们在我的事上撒谎。 人们干嘛信他们？没人信。
+
+
+
+> Biden lied about never talking to Hunter about his overseas businesses and that Hunter never made money from China. A complicit media continues to cover up for them. Now they’re lying about me. 
+> 
+> Why does anyone believe them? Don’t. [pic.twitter.com/1PqsDiRYFD](https://t.co/1PqsDiRYFD)
+> — Senator Ron Johnson (@SenRonJohnson) [April 5, 2022](https://twitter.com/SenRonJohnson/status/1511437358616436738?ref_src=twsrc%5Etfw)
+
+
+
+**美国北约使命： **
+当我们说美国对北约盟友的承诺是铁定的时，我们的意思是什么？这意味着我们有美军在地面保护北约的每一寸领土，我们的高级外交官国务卿布林肯将来到布鲁塞尔与我们的盟国进行协调。 【图片新闻：4/6-4/7，布鲁塞尔北约总部 外交大臣会议】
+
+
+
+> What do we mean when we say that the U.S. commitment to [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies is ironclad? It means that we have U.S. troops on the ground protecting every inch of NATO territory & our top diplomat [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) coming to Brussels to coordinate with our Allies. [#ForMin](https://twitter.com/hashtag/ForMin?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lXaQARZSph](https://t.co/lXaQARZSph)
+> — US Mission to NATO (@USNATO) [April 5, 2022](https://twitter.com/USNATO/status/1511364861430837253?ref_src=twsrc%5Etfw)
+
+
+
+**国务卿安东尼·布林肯： **
+随着乌克兰军队勇敢地继续抗击俄罗斯的再次入侵，我已授权1亿美元以满足乌克兰军队对额外反装甲系统的迫切需求。
+
+
+
+> As Ukraine’s forces bravely continue to combat Russia’s renewed invasion, I have authorized $100 million to meet an urgent need for additional anti-armor systems for Ukraine’s forces.
+> — Secretary Antony Blinken (@SecBlinken) [April 6, 2022](https://twitter.com/SecBlinken/status/1511520632046903301?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎.布莱克本：** 
+迪士尼及其在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 内部的拥护者们都支持剥夺父母的权利。
+
+
+
+> Both Disney and their supporters in the Chinese Communist Party support taking away rights from parents.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 5, 2022](https://twitter.com/MarshaBlackburn/status/1511477975593754629?ref_src=twsrc%5Etfw)
+
+
 
  
 

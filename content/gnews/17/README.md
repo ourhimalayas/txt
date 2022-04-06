@@ -2,54 +2,25 @@
 ---
 
 
-## 疫苗副作用集萃（2022.4.6）&#8211;打了新冠疫苗后整个人不好了
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2296904/)
+## 台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296984/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+**港台前线 zhong｜2022-4-6**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-1.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国国防安全合作局（DSCA）5日宣布，批准售台“爱国者专案人员技术协助案”，总价9500万美元（约新台币27.24亿），行政部门已通知国会，有望在1个月后正式生效。新闻稿表示，台方要求购买技术援助支持，包含爱国者防空系统、设备与后勤的维护、操作和规划等；主要承包商为雷神科技公司。这是美国2022年第二度对台军售。
 
-#### 整理：BENJ1       
-编辑：BENJ1
+这项军售案，有助有助台湾维持飞弹密度，确保台湾空中作战战备能力，且**DSCA强调**本对台军售有助强化台湾安全、区域政治稳定、军事平衡，**符合美国国家、经济和安全利益**。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片13.png)
+台湾国防部对美军售表示，感谢美政府持续落实《台湾关系法》及“六项保证”对台湾的安全承诺。
 
-图片来源：雅典娜设计组(614)
+2021年11月，美国国会美中经济暨安全审查委员会（USCC）最新年度报告指出，中共已具备或即将取得初步犯台能力，其中报告指出解放军已有能力对台发动海空封锁、网攻与导弹攻击。为维持美国履行台湾关系法下义务的能力，建议在印太地区大量部署飞弹系统，并加强台湾向美国军购能力。
 
+来源｜[udn](https://udn.com/news/story/10930/6217447)、[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79726&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)、[CNA](https://www.cna.com.tw/news/firstnews/202111180015.aspx)
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+* * *
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
-
-帖子原文：
-
-打了新冠疫苗booster后整个人不好了
-新冠疫苗第三针
-昨天11点去打了新冠疫苗第三针，打完后手臂微酸到晚上睡觉前都没反应，对广大的群众所说的第三针反应大怀着得瑟的态度。还跟我朋友说自己多牛逼哈哈哈哈哈哈哈安稳的睡觉了
-
-到了凌晨3点开始我发现我出了好多汗，一起来感觉左臂巨酸疼，胸闷气短感觉自己好累又难受睡不着了，一直折腾到了现在。目前还没发现有发烧现象，可是头晕头疼脖子疼腰疼浑身不得劲，还恶心 。我准备要躺一天的节奏了。人就是不能得瑟。希望这种现象快点消失！
-
-评论选集：
-
-[取个名字真的难](https://www.xiaohongshu.com/user/profile/5f85e2980000000001005004) 回复：
-我是怕寒怕冷全身酸痛，还有点发热…重点是这酸痛像是戳中笑穴一样，边笑边难受
-
-[Katy](https://www.xiaohongshu.com/user/profile/5899950650c4b41e12d86cf5) 回复：
-我今天发打完booster，全身烧的慌
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/8466f604b242ef40.png)
-
-图片来源：小红书
-
-
-参考链接:
-[打了新冠疫苗booster后整个人不好了](http://xhslink.com/XaU0Ag%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-*发布：*wenly
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

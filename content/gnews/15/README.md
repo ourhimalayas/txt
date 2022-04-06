@@ -2,25 +2,41 @@
 ---
 
 
-## 台湾｜美履行承诺批准对台军售 提供防空飞弹技术协助
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296984/)
+## 数字资产交易应受高度监管，币安前途堪忧
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297085/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-1.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国国防安全合作局（DSCA）5日宣布，批准售台“爱国者专案人员技术协助案”，总价9500万美元（约新台币27.24亿），行政部门已通知国会，有望在1个月后正式生效。新闻稿表示，台方要求购买技术援助支持，包含爱国者防空系统、设备与后勤的维护、操作和规划等；主要承包商为雷神科技公司。这是美国2022年第二度对台军售。
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-这项军售案，有助有助台湾维持飞弹密度，确保台湾空中作战战备能力，且**DSCA强调**本对台军售有助强化台湾安全、区域政治稳定、军事平衡，**符合美国国家、经济和安全利益**。
+#### 翻译/编辑：小红帽
 
-台湾国防部对美军售表示，感谢美政府持续落实《台湾关系法》及“六项保证”对台湾的安全承诺。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/09bff96a-103b-439c-a7e2-85d640512e42.jpg)图片来源：[www.ft.com](https://www.ft.com/)
 
-2021年11月，美国国会美中经济暨安全审查委员会（USCC）最新年度报告指出，中共已具备或即将取得初步犯台能力，其中报告指出解放军已有能力对台发动海空封锁、网攻与导弹攻击。为维持美国履行台湾关系法下义务的能力，建议在印太地区大量部署飞弹系统，并加强台湾向美国军购能力。
 
-来源｜[udn](https://udn.com/news/story/10930/6217447)、[國防部](https://www.mnd.gov.tw/Publish.aspx?p=79726&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e6%96%b0%e8%81%9e%e7%a8%bf)、[CNA](https://www.cna.com.tw/news/firstnews/202111180015.aspx)
+根据COINGEEK4月5日报道，美国证券交易委员会（SEC）主席Gary Gensler周一在宾夕法尼亚大学向宾夕法尼亚州法律资本市场协会发表讲话，重申了SEC对监管数字资产交易平台的承诺。
 
-* * *
+对于许多人来说，Gensler演讲的主旨已经不言而喻：现行法律已经适用于数字资产，无论技术多么新颖。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+“没有理由因为使用了不同的技术就对加密货币市场进行区别对待。我们应该是技术中立。”Gensler说。
+
+Gensler详细谈到了他对数字资产交易所的担忧。他表示交易所的市场是 “高度集中的”，前五大平台占了所有数字资产交易的99%，其中两个平台（币安和Coinbase）占了80%的交易。
+
+“这些平台很可能在交易证券。虽然每个代币的法律地位取决于其自身的事实和情况，但鉴于委员会对各种证券代币的经验，以及这么多代币的交易，任何特定平台的提供证券交易的数量为零的概率相当小。”
+
+任何提供证券交易的平台必须在美国证券交易委员会注册为证券交易所，并遵守其严格的消费者保护要求。因此，任何未能做到这一点的交易所，以及任何数字资产证券的发行人，都是非法行为。
+
+今年初，BlockFi同意向美国证券交易委员会和美国32个州支付1亿美元的罚款，原因是其未能按照美国证券法的要求注册其数字资产借贷产品。
+
+在Gensler的最新演讲中，他概述了SEC正在采取的直接措施，以确保数字资产交易所受到适当监管。其中最主要的是迫使这些平台提交与任何其他交易所相同的监管要求。换句话说，将数字资产交易所完全视为已经受到高度监管的股票交易平台。
+
+新闻来源：[SEC Chair Gary Gensler: ‘No reason’ to treat digital asset market differently under securities laws](https://coingeek.com/sec-chair-gary-gensler-no-reason-to-treat-digital-asset-market-differently-under-securities-laws/)
+
+发布：*wenly*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

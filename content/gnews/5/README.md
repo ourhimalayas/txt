@@ -2,21 +2,18 @@
 ---
 
 
-## 视频|上海宝山区封城居民食物短缺，政府毫无作为
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2297146/)
+## 未来是数字时代和生物科技的时代（二）
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2297200/)
 
-制作：香草山视频部
+**PPT制作：WinterGuo ；开智则立**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/10.40-10.502.jpg)
+*发布：tianzhihuan*
 
-墙内网友4月4日爆料称，在当下疫情管控期间，上海政府以55-100元的价格，向居家隔离的市民出售蔬菜盲盒。然而很多人拿到手之后发现都是一些已经坏掉的蔬菜。而上海宝山区大场镇并没有发放食物，在很多老年人只能选择一边接受强制隔离，一边挨饿的状况。
-网友在这通投诉电话中指出，工作人员之前给的物资保障热线，一直处于占线状态，无法接通。截止投诉当日，大场镇也没有发放任何物资，且被告知大场镇没有发放物资的计划。此前一日，同在大场镇的保利、顾春小区居民，因不满隔离配给政策自发举行抗议活动。
-经网友爆料，有远在浦东的居民，竟然收到了理应配送宝山区的物资“大礼包”，“宝山区政府“几个大字显得格外刺眼。由于中共当局停止了美团、叮咚等食物代购平台，很多家庭都面临粮食短缺。
-面对这些尖锐的民生矛盾，当地信访工作人员并无有效的解决方案，并拒绝将这些民生问题向上级汇报。
-
-发稿：qiutian（邱甜）
-
-**更多资讯，更多关注
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
