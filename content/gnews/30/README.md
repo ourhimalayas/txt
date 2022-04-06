@@ -2,33 +2,30 @@
 ---
 
 
-## 平民遭屠杀泽连斯基亲赴布查誓找罪犯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2297261/)
+## 清明节连休国内旅行者比去年锐减63%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2297289/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海6日路透社，经济日报5日报道，据中国运输省估计，3-5天清明节连休期间国内游客人数为5378万人。但是在中共病毒（新冠病毒Covid-19）疫情再次扩大的背景下，比上年同期减少了63%，与20年水平相比也低于约10%。
 
-#### 整理/编辑：BENJ1
+![](https://assets.gnews.org/wp-content/uploads/2022/04/清明节连休国内旅行者比去年锐减63.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg1.qunarzz.com%2Ftravel%2Fpoi%2F1501%2Fa4%2F0d09ad8da823f0.jpg_r_720x400x95_583da103.jpg&amp;imgrefurl=https%3A%2F%2Ftravel.qunar.com%2Fp-gj300667-zhongguo&amp;tbnid=wIVjnuWfCsVNQM&amp;vet=12ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ..i&amp;docid=OUy4YY1Gv9eyvM&amp;w=720&amp;h=400&amp;q=%E5%9B%BD%E5%86%85%E6%97%85%E8%A1%8C%20%E4%B8%AD%E5%9B%BD&amp;ved=2ahUKEwiL1-u-6f72AhUDR0EAHVC_D28QMygBegUIARC6AQ)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/unknown-1-1.png)图片来源：https://www.dw.com/
+中国各地，为了降低感染风险，限制交通量，强制旅行者进行病毒检测等活动正在扩散。 航班使用者下降特别明显，连休中的航班数为56万2000次，比上年减少了87%。道路交通量比上年减少了53%，与20年前的水平差距也小幅度下降了。
 
+野村证券在5日的报告中，估计国内23个城市引进的全面或部分封锁(城市封锁)影响的人数约为1亿9300万人。23个城市占国内人口的比例是13.6%，占国内生产总值(GDP)22%。另外，欧亚集团的分析师认为，中共病毒疫情管制对服务业和中小企业来说是最受打击的。
 
-在国际社会强烈谴责俄罗斯部队在乌克兰布查镇杀害乌克兰平民行为之际，乌克兰总统泽连斯基（Volodymyr Zelenskyy）周一（4月4日）亲自造访该镇，并向现场媒体喊话：“我们希望你们向世界展示这里发生的一切。俄罗斯军队做了什么、俄罗斯联邦在和平的乌克兰做了什么。我希望让你们看到这些是平民，这很重要。”
+消息来源：
+[中国清明節の3連休、旅行者前年比63％減　コロナ感染拡大で](https://news.yahoo.co.jp/articles/dc3ec57a769d3d7a4458223b1663c2f72e76b72f)
 
-泽连斯基强调，乌克兰将尽一切努力找到所有应对暴行负起责任的人，并警告若乌克兰无法找到一个文明的解决方案，“乌克兰人民将诉诸非文明的解决方案 ”来处理这种情况。他说：“我们将施加最大的压力。为了找到所有罪犯，我们一分钟都不会停顿下来。”
-
-美国总统拜登周一（4月4日）重复之前论述，批评俄罗斯总统普京是一名“战争罪犯”。拜登说：“你们可能还记得我因为称呼普京为战争罪犯而受到批评。事情的真相是，你看到了在布查发生的事——这证明他……就是战犯。他是如此残暴，在布查发生的事情令人愤慨。”
-
-欧盟委员会主席冯德莱恩4日也表示，欧盟已准備好派遣调查人员调查可能的战争罪行。
-
-参考链接：[泽连斯基亲赴布查誓找罪犯](https://www.dw.com/zh/%E6%BE%A4%E9%80%A3%E6%96%AF%E5%9F%BA%E8%A6%AA%E8%B5%B4%E5%B8%83%E6%9F%A5%E8%AA%93%E6%89%BE%E7%BD%AA%E7%8A%AF-%E6%AD%90%E6%B4%B2%E5%A4%9A%E5%9C%8B%E9%A9%85%E9%80%90%E4%BF%84%E5%A4%96%E4%BA%A4%E5%AE%98/a-61360323)
-
-发布：*wenly*
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

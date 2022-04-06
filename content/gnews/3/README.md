@@ -2,35 +2,34 @@
 ---
 
 
-## 2022/04/02 乌克兰恳求更多的武器援助
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2298120/)
+## 俄罗斯石油公司 Gazprom Neft 的网站在明显遭到黑客攻击后关闭
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2298144/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/040406.jpg)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-[**GETTR视频链接**](https://gettr.com/post/p13i0xra90a)
-
-**视频字幕：**
-
-**福克斯新闻主持人**：我们看到五角大楼刚刚批准了另一批价值3亿美元的武器给乌克兰。这是乌克兰议会成员在过去一周访问华盛顿（的视频），其中五位是女性。她们都有一个共同的诉求：“我们需要更多，我们现在需要更多的武器”。他们一直在恳求更多的军事援助，比如波兰的米格29喷气式飞机和更多的防空武器和坦克。
-
-**简评：**
-
-美国五角大楼再次批准了对乌克兰3亿美元的武器援助。俄罗斯发动的战争不仅是针对乌克兰，更是剑指北约。全世界已经意识到俄罗斯和中共的“无上限”合作，包括与亚洲其他邪恶国家的联合对整个世界造成的威胁。帮助乌克兰就是帮助北约，就是帮助西方世界对抗邪恶轴心国。
-
-*字幕：雨中漫步 | 听写：云岭 | 翻译：Blue | PR：Roberts |简评/文字整理/编辑：胖丁 | Page：我是球大哥*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IDYNDLVQZFJSNCBYH7KAKUPXRY.jpg)
 
 
+资料来源：路透社
+
+俄罗斯国有天然气巨头 Gazprom (GAZP.MM) 的石油部门 Gazprom Neft (SIBN.MM) 的网站在遭到明显的黑客攻击后于周三关闭，这看起来像是在俄罗斯入侵乌克兰后对政府相关网站的最新攻击。
+
+该网站简要展示了一份声称来自俄罗斯天然气工业股份公司首席执行官阿列克谢米勒的声明，他是总统弗拉基米尔普京的亲密盟友。
+
+米勒上个月敦促这家天然气巨头的 500,000 名员工团结在普京周围，以在面对外国敌意时保护俄罗斯作为一个大国。
+
+声明称他为该网站的黑客版本，并称他对俄罗斯决定向邻国乌克兰派遣数万名士兵发表批评评论，那里有数千名士兵和平民丧生。
+
+“4月6日上午在网站上发布的信息不属实，不能被视为公司代表或股东的官方声明，”俄罗斯天然气工业股份公司表示。并关闭了网站。
+
+国家通讯社塔斯社的网站在 2 月遭到黑客攻击，以显示一条信息，要求莫斯科停止其所谓的在乌克兰的“特别行动”。
+
+🔗[https://www.reuters.com/business/energy/russian-oil-company-gazprom-nefts-website-appears-have-been-hacked-2022-04-06/](https://www.reuters.com/business/energy/russian-oil-company-gazprom-nefts-website-appears-have-been-hacked-2022-04-06/)
+
+责任编辑、发布： Shuizhuyu
 
  
 

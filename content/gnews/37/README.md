@@ -2,23 +2,28 @@
 ---
 
 
-## 俄乌战争｜美国阻俄支付债券本息 升高对莫斯科施压
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2296818/)
+## 俄军撤离基辅 布查镇发现大量尸体
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2296842/)
 
-**港台前线 zhong｜2022-4-6**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-5.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-外媒报导，美国阻止俄罗斯政府，以他们在外国银行持有的储备金，向主权债务持有人支付超过6亿美元的本息，此举是为了加大对莫斯科的压力。西方对俄罗斯的制裁已冻结俄国约6,400亿美元的黄金与外汇储备中的大约一半，但是俄国确实仍有足够的资金，可以从其储备金支付上述的主权债券票息。
+**撰稿：日本东京方舟农场  子辰**
 
-此外，原先美国财政部允许俄国政府逐案(case-by-case basis)使用在美国银行里遭冻结的资金支付以美元计价的主权债券票息(coupon)。财政部发言人表示，美国政府4日决定切断莫斯科取得被冻结资金的管道，阻止俄国政府支付即将到期的最大一笔款项，以及另一笔8,400万美元的票息。
+4月3日，俄军撤离基辅后，布查镇发现大量被屠杀的尸骸，乌克兰指责俄军杀害平民，俄方断然否认。
 
-外界分析美国此举系为了消耗俄国外汇储备，削弱俄国战争的资金。惟俄国也可能要求欧洲客户以卢布购买天然气，作为反制。俄乌战争导致国际能源及粮食价格飙涨，世界面临经济、粮食危机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-82.jpg)（图片来自大纪元）
 
-来源｜[YAHOO](https://tw.stock.yahoo.com/news/%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2%E4%BF%84%E7%BE%85%E6%96%AF%E6%94%AF%E4%BB%98%E5%82%B5%E5%88%B8%E6%9C%AC%E6%81%AF-%E5%8D%87%E9%AB%98%E8%8E%AB%E6%96%AF%E7%A7%91%E5%A3%93%E5%8A%9B-093011243.html)、[NIKKEI](https://asia.nikkei.com/Economy/South-Korea-March-inflation-hits-decade-high-on-supply-challenges)
+俄罗斯军队从基辅撤退后，大量图片显示，乌克兰政府在基辅附近发现了许多平民的尸体。其中，布查镇的街上和地下室都发现了大量尸骸，当地发现乱葬坑里堆叠了约数十个尸袋，有些遗体并未获得完整掩埋，露出部分手脚。
 
-* * *
+4月5日，乌克兰总统泽连斯基表示，布查镇有超过300人遭俄军杀害，而且这一数字在经过仔细清点后很可能会增加。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+乌克兰指控俄军屠杀平民，但是克里姆林宫的发言人德米特里・佩斯科夫（Dmitry Peskov）断然否认这一指控。
+
+目前，有大量多国记者在布查镇做现场拍照及采访工作，俄罗斯军队屠杀大量平民，这一罪行必将受到严惩。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/5/n13697086.htm](https://www.epochtimes.com/gb/22/4/5/n13697086.htm)
+
+总编：老孙
+校对发布：爱放飞
 
  
 
