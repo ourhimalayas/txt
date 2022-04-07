@@ -2,32 +2,54 @@
 ---
 
 
-## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
+## 超过70名俄士兵在切尔诺贝利核电站受辐射伤害
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2305349/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/photo_l-1.jpg)乌克兰能源部长*German Galushchenko*。 （照片由乌克兰能源部提供）
 
-7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
-值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
+《共同通信社》2022年4月6日报道，
 
-乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
+据乌克兰能源部长加卢申科(German Galushchenko)称，大约75名俄罗斯士兵在临时控制乌克兰切尔诺贝利核电站期间受到辐射，目前正在白俄罗斯接受治疗。
 
+加卢申科在周二接受在线采访中说，为了保护自己免受乌克兰军队的攻击，这些士兵在工厂周围进行挖掘(1986 年发生灾难的地点)，而后显然地受到了辐射。
 
+加卢申科援引现有信息说，这些部队受到“非常严重的影响，处境非常困难，现在正在白俄罗斯的诊所接受治疗”。
 
-> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
-> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
+“我无法想象你可以命令别人去挖掘被高浓度辐射污染的区域，该区域注有标语‘不要进入。不要靠近，’”他用英语说。“他们是士兵，他们只是服从命令。”
 
+加卢申科说，乌克兰已经重新完全控制了该核电站。“我们没有看到任何辐射方面的问题，”他说。“我们没有观察到辐射的任何增加。”
 
+该部长指出，由于俄罗斯破坏了辐射监测器和其他设备，致使该工厂无法向国际原子能机构(International Atomic Energy Agency, IAEA)传送运行数据。
 
-来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
+加卢申科说，他在3月底与IAEA总干事拉斐尔·格罗西(Rafael Grossi)讨论了在不久的将来向切尔诺贝利派遣一个国际原子能机构访问团的计划。
+
+加卢申科谴责3月4日俄罗斯夺取乌克兰南部的扎波罗热核电站的行径，该核电站在袭击中起火。“这真是太疯狂了，”他说，并暗示这可能引发核灾难。部长说，现场仍有很多炮弹，这些武器可能会意外爆炸。
+
+加卢申科说，俄罗斯军方曾计划控制南乌克兰核电站，但乌克兰军队炸毁了通往核电站的桥梁，使俄罗斯人无法这样做。他说，控制乌克兰的电力系统是俄罗斯企图夺取邻国核电站的原因。
+
+**简评：**
+独裁政府统治者的疯狂是没有下限的。为了普京和习近平二人个人利益发动的这场俄罗斯侵略战争，已经造成乌克兰至少1000万人流离失所。其中，估计有600多万人在乌克兰境内无家可归，而另外300多万人被迫逃离他们的家园，成为难民。而伤痛和生离死别不仅降临在了乌克兰人身上，俄罗斯人也被迫承受着战争带来的一切恶果。士兵只是服从命令，受到核辐射影响的这些俄罗斯士兵，很难想象其后半生的生活，然而下达命令的人在这个独裁统治体系下却可以独善其身。
+
+换个场景，试想之后“习皇帝”下令中共军队攻击侵略台湾的时候，为了控制台湾的电力系统和通信系统，中共同样也会下达死令，让士兵去攻击台湾核电站，而那时受到核辐射危害的同样也只会是无名小卒。在独裁制下，草民的生命是不值一文的，看看现在墙内上海、长春等多地惨无人道的中共病毒隔离措施便可略知一二。中国人必须清醒地认识到这一切苦难的根本来源是中国共产党和那些中南坑的老杂毛们，停止互害互怨，才可以真正解决问题拯救自己。
+
+新闻链接：[Over 70 Russian soldiers exposed to radiation at Chernobyl: Ukraine](https://english.kyodonews.net/news/2022/04/33e77e951e22-over-70-russian-soldiers-exposed-to-radiation-at-chernobyl-ukraine.html)
+
+*翻译/简评：milkcat*
+
+*校对：村民彼得潘*
 
 * * *
 
-▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
 
  
 

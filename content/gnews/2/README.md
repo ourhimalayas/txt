@@ -2,26 +2,35 @@
 ---
 
 
-## 中共国内清明假期出行比率暴跌
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305676/)
+## 有声|波兰采购坦克应对俄罗斯军事侵略威胁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305685/)
 
-作者：Naughty(文行)
+配音：香草山农场 – 信念7
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月5日，据相关媒体消息显示，波兰当天与美国签订合约，确定购买250辆美国M1艾布拉姆斯主战坦克，用以应对俄罗斯对波兰东部的军事威胁。 此外，鉴于仍在持续的俄罗斯对乌克兰的侵略战争，美国还向波兰增派了五千名美军和多架战机，以便防止俄罗斯借道白俄罗斯进一步侵袭欧盟。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-04-06-%E4%B8%8A%E5%8D%889.23.53.png)
+另据波兰国防部长拉查克表示，此次军备采购大约花费47.5亿美元，而美国的首批坦克预计将在年内交付。同时，波兰政府还宣布将军费提高至该国GDP的3%，并将陆军人数从当前的14万大幅提升至30万。
 
-当地时间4月6日，据相关媒体报道，鉴于中共以疫情为由对墙内各地区实行的强制封控政策，在2022年为期三天的清明节假期中，中共国内民众的出行比率比去年下降了近三分之二。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.jpeg)
 
-数据显示，4月3日至4月5日，中共国内包括铁路、航空、水路和公路在内的总出行数大约不到五千四百万次，较去年同期下降了63%，甚至低于2020年中共病毒疫情伊始之时。其中，墙内的航空旅行受到的影响最为严重：清明假期内的乘客总数仅有56万人，相比去年暴跌了87%。此外，墙内民众的公路旅行频率也较去年减少了53%。
+文字版原文：[波兰采购坦克应对俄罗斯军事侵略威胁](https://gnews.org/zh-hans/2299116/)
 
-目前，中共当局正在对出行民众执行严格的管控和病毒检测措施，全国大约有23个城市的1.93亿民众均受到了波及。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：[China holiday travel slumps after COVID outbreaks – state media](https://www.reuters.com/world/china/china-holiday-travel-slumps-after-covid-outbreaks-state-media-2022-04-06/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-总编/编辑：Irene木木
-审核：飞虹
-校正/发稿：谐趣园
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

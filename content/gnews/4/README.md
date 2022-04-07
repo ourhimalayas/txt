@@ -2,39 +2,26 @@
 ---
 
 
-## 有声|中共银行周末紧急开会布置防挤兑措施
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305654/)
+## 中共国内清明假期出行比率暴跌
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305676/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+作者：Naughty(文行)
 
+当地时间4月6日，据相关媒体报道，鉴于中共以疫情为由对墙内各地区实行的强制封控政策，在2022年为期三天的清明节假期中，中共国内民众的出行比率比去年下降了近三分之二。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-17-1.jpg)
+数据显示，4月3日至4月5日，中共国内包括铁路、航空、水路和公路在内的总出行数大约不到五千四百万次，较去年同期下降了63%，甚至低于2020年中共病毒疫情伊始之时。其中，墙内的航空旅行受到的影响最为严重：清明假期内的乘客总数仅有56万人，相比去年暴跌了87%。此外，墙内民众的公路旅行频率也较去年减少了53%。
 
+目前，中共当局正在对出行民众执行严格的管控和病毒检测措施，全国大约有23个城市的1.93亿民众均受到了波及。
 
-郭文贵先生在4月4日的盖特直播中透露，中共的几大商业银行在刚刚过去的这个周末，纷纷召开了紧急会议布置措施，防止这星期有可能发生的银行挤兑。   会议要求凡是取款超过5万元人民币的，或是企业取款超过工资发放水平的，银行均需报上一级领导批准；同时，当地公安机关和纪委都将派驻专员进入企业，监督提款和资金的使用情况。   郭先生指出，中共国所谓前十大房地产开发商，包括融创、恒大、保利、富力、合生创展和碧桂园等，都处于欠债不还的状态，而被其拖欠债务的建设施工单位和装修公司都陷入了资金周转不灵的破产边缘。整个中共国经济的崩塌，包括银行、房地产的倒塌即将到来！
+参考链接：[China holiday travel slumps after COVID outbreaks – state media](https://www.reuters.com/world/china/china-holiday-travel-slumps-after-covid-outbreaks-state-media-2022-04-06/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-
-文字版原文：[中共银行周末紧急开会布置防挤兑措施](https://gnews.org/zh-hans/2302147/)
-
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编/编辑：Irene木木
+审核：飞虹
+校正/发稿：谐趣园
 
  
 
