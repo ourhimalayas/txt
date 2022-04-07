@@ -2,36 +2,46 @@
 ---
 
 
-## 组图：乌克兰小镇博罗江卡惨遭俄军战火蹂躏
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2302341/)
+## CCP病毒XE变种是什么
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2302411/)
 
-**撰稿：日本东京方舟农场  子辰**
+撰稿：Gradient Boost
 
-4月6日，俄罗斯军队撤离基辅后，乌克兰小镇博罗江卡（Borodianka或Borodyanka）遭到重创，街上建筑已成残垣断壁，满目疮痍。据代理镇长估计，位于基辅西北约50公里的这个小镇可能超过了200人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-105.jpg)
+图片制作：澳喜农场©森森
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-103.jpg)（图片来自大纪元）
+一种新的CCP病毒子变体，又称XE，近日被英格兰卫生部门所发现，目前总共有超过600名病例被记录在案。与此同时，位于亚洲地区的泰国也报告了该变种的出现，虽然目前仍然只是少量。
 
-乌克兰总统泽连斯基（Volodymyr Zelensky）4月5日在视频演说中表示，博罗江卡和其它已被乌军收复的城镇中，平民遭到俄军杀害的人数恐怕远高于布查镇。
+CCP病毒XE 变体是两种 Omicron 子变体亚型，即 BA.1 与 BA.2 的混合产物。 BA.2 变体也被称为“隐形”变体，相较原始的Omicron版本有着更为强大的传染性。XE变体由BA.1 与 BA.2的重组而成，这意味着它是两种不同变体的混合物，并且具有两者的特征。
 
-博罗江卡代理镇长乔治‧埃尔科（Georgii Yerko）6日表示，这座城镇在遭俄军空袭后，目前有多达200人下落不明。
+由于当前人们所知的数据甚少，医学机构尚不能对其传染性作出准确判定。然而在3月29日 ，世界卫生组织曾经指出，XE 子变体可能比目前占主导地位的 BA.2 Omicron 子变体具有 10% 的成长优势。这或许意味着它的传播速度会更快、传播过程也将更加容易。
 
-多组图片显示，两天间在俄军撤离基辅后，博罗江卡镇街上到处都是断壁残垣，满目疮痍。街上散落着被摧毁的俄军坦克或军车残骸。
+至于其危险性，卡迪夫大学传染病专家安德鲁·弗里德曼曾告诉《新闻周刊》：“现阶段我不会过分担心。”就目前情况来看，人体在感染XE变体之后出现的症状与Omicron类似，例如发烧流涕，咽痛咳嗽，还可能伴随味觉或嗅觉的丧失。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-52.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，一座桥梁严重受损。(Sergei Supinsky/AFP via Getty Images)
+目前还没有迹象表明 XE 子变体已经进入澳洲。它于 1 月 19 日在英国首次被发现， 4 月初泰国也监测到该变体。如果 XE 开始取代Omicron变为更加占主导地位，预计它会在包括澳大利亚在内的世界各地传播流行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-42.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆损坏的俄罗斯坦克。(Sergei Supinsky/AFP via Getty Images)
+*编辑：Gradient Boost*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-48.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑物被炸出一个大洞。(Sergei Supinsky/AFP via Getty Images)
+*发布：疯狂的韭菜*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-28.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑遭到严重破坏，残骸散落一地。(Anastasia Vlasova/Getty Images)
+新闻参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/6-19.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆烧毁的俄罗斯军车。(Anastasia Vlasova/Getty Images)
+[9 News](https://www.9news.com.au/national/new-covid19-variant-xe-symptoms-characteristics-everything-to-know-explainer/5bb34dcc-9e3e-4be1-b864-a9c6f886d18b)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-参考链接：
-[https://www.epochtimes.com/gb/22/4/6/n13699867.htm](https://www.epochtimes.com/gb/22/4/6/n13699867.htm)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
 
-总编：老孙
-校对发布：爱放飞
+0
+
+
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
  
 
