@@ -2,22 +2,31 @@
 ---
 
 
-## 张文宏谈大规模核酸检测和无症状感染者
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300839/)
+## 上海仍然强制实施核酸检测阳性幼儿与父母分开隔离政策
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2300884/)
 
-撰稿：东京樱花团/Ob
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-大规模开展核酸检测呢，我本人认为呢是没有必要的。再比如说在上海，事实上我认为呢现在基本上不存在，基本上不存在无症状。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-13.jpg)[图片来源](https://www.google.com/search?q=%E5%BC%A0%E6%96%87%E5%AE%8F&amp;tbm=isch&amp;ved=2ahUKEwi09Ny6uv_2AhXVVPEDHYBZAhwQ2-cCegQIABAA&amp;oq=%E5%BC%A0%E6%96%87%E5%AE%8F&amp;gs_lcp=CgNpbWcQAzIHCCMQ7wMQJzIFCAAQgAQyBQgAEIAEMgQIABAYMgQIABAYMgQIABAYMgQIABAYMgQIABAYMgQIABAYMgQIABAYOgQIABAeOgoIIxDvAxDqAhAnUNULWKkWYOMXaAFwAHgAgAGmAYgB5QGSAQMxLjGYAQCgAQGqAQtnd3Mtd2l6LWltZ7ABCsABAQ&amp;sclient=img&amp;ei=BopNYrTZFNWpxc8PgLOJ4AE&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901&amp;hl=zh-CN#imgrc=gTih4aOr0KZS1M)
-无症状的一个携带者最主要的原因是什么呢？因为上海如果有无症状的携带者，他一定会造成就是一个比较隐蔽的传播。无症状携带者传播了十个人以后呢，它里面一定是会有六到八个人他会出现有症状。到现在为止，我们没有发现任何一例有症状的病人。所以我认为呢在我们现在这个地区，不存在一个无症状的一个一个病人。所以如果以我们上海为例，我现在进行大规模的一个病人的一个筛查，我认为是毫无意义。
+近期，上海实施的核酸检测阳性幼儿与父母分开隔离政策饱受民众诟病，但当地卫生官员仍然称，阳性婴幼儿必须与非阳性的父母分开隔离。
 
-我有三千万人口，我一天给你这个城市一天的效能可以检测三万次，这个是非常高的一个数据啊。好，一天我检测三万次，那这是什么个概念？我把三千万的人全部筛查完，我要一千天。千天我们都知道接近三年，是不是？所以我大家就排队，什么事都不做，大家拼命的塞塞，要连着塞三年。你前面刚刚塞好，后面真的有人来了，你是不是会感染你也不知道。所以这个筛呢我个人觉得只是认为呢你的短期内呢筛呢可能有点价值。如果对大规模的人群进行普筛，这个在流行病学上是意义不大的。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-9.jpg)（图片来源：网络）
 
-[消息来源](https://gettr.com/post/p13tpop6fb0)
+据《内幕文件》新闻网报道，由于中共国医院病房中婴幼儿在无监护人监管下哭闹不止的视频在网络上广泛传播，许多父母观看后在社交媒体上表达了对中共强制婴幼儿与父母分开隔离政策的强烈不满。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+然而，上海市卫生健康委员会官员吴倩玉却狡辩称，根据中共的防控措施，任何核酸测试呈阳性的人必须与非感染者隔离，即使他们没有症状或有轻微症状，因此，检测结果呈阳性但其家庭成员为阴性的儿童也必须分开隔离。
+
+对此，一位匿名评论员在微博上抨击道，“父母需要满足’条件’才能陪伴他们的孩子？这很荒唐！无条件陪伴孩子是父母最基本的权利！”
+
+据悉，上海疫情已经失控，于是中共当局便借由疫情爆发实施严苛的封城措施，将上海2500万人关押在家，居民们无法在外面锻炼或遛狗，而且难以获得新鲜食物。
+
+参考链接：
+1.[https://reurl.cc/6Erjn6](https://reurl.cc/6Erjn6)
+2.[https://gnews.org/zh-hans/2277829/](https://gnews.org/zh-hans/2277829/)
+
+编辑：海星
+总编：老孙
+校对发布：Linda
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

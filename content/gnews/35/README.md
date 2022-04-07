@@ -2,35 +2,26 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
+## 新冠变种XE的威胁性言过其实
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2300405/)
 
-作者：香草山翻译部
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16492645781.png)rnz.co.nz
+随着首例新冠变种XE在印度出现，在泰国和新西兰也发现了该变种。世界卫生组织（WHO）表示，需要进一步的数据才能提供更多的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
+英国（UKHSA）正在研究XE，该变种来自BA1和BA2。至3月22日，英国已检测到637例XE病例。首席医学顾问苏珊·霍普金斯（Susan Hopkins）教授说，这种变种被称为“重组”，它通常 “相对较快” 死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
+霍普金斯说，目前还没有足够的证据显示其传染性、和疫苗有效性的结论。
 
-文章仅代表作者本人观点，与Gnews无关
+XE的增长率比隐形BA2高出9.8%。数据表明，奥米克隆变体具有高度传染性。虽然英国出现了XE “社区传播” 的迹象，但在全部冠状病毒测序病例中，XE仍不到1%。
 
-视频参看：
-[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
-[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
+在泰国和新西兰发现的XE变种症状中。没有证据表明XE的症状更严重，迄今为止，所有奥米克隆变体病情严重程度都较低。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+*责编：白夜*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
+[原文链接](https://www.health.com/condition/infectious-diseases/coronavirus/new-covid-19-xe-variant)
 
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
 
  
 

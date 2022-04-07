@@ -2,26 +2,41 @@
 ---
 
 
-## 樱花时政┃中共网信办：禁止祭祀活人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301008/)
+## 美国制裁普京的两个女儿和俄罗斯两家最大银行
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2301039/)
 
-撰稿：东京樱花团/加一颗稻草
+翻译：多伦多蓝莲花- 灭共文明、冰糖葫芦喵
 
-中新财经4月2日电，据“网信中国”公众号消息，近日，国家互联网信息办公室相关部门下发通知，部署开展清明期间网络祭扫规范管理工作，强调要严防活人被祭拜，不得随意创建网上烈士纪念馆等。
+编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》华盛顿4月6日报道，**周三，美国针对俄罗斯两家最大的银行和精英阶层实施新一轮制裁，其中包括禁止美国人在俄罗斯投资，以惩罚俄罗斯军队在乌克兰犯下重大战争罪行”。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/制裁-e1649288074160.jpg)（图片来源：www.saltwire.com）
+报道称，**周三受到制裁的人中包括俄罗斯总统普京的两个成年女儿、俄罗斯前总统梅德韦杰夫、俄罗斯总理米哈伊尔·米舒斯汀和司法部长康斯坦丁·楚先科，以及俄罗斯外长拉夫罗夫的妻子和女儿。**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-14.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fimg%2Fd%2Fce7%2FnBnauM3X0QTN5YDNxEDM3UzM1UTM1QDN5MjM5ADMwAjMwUzLxAzL1czLt92YucmbvRWdo5Cd0FmL0E2LvoDc0RHa.jpg&amp;imgrefurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fwiki%2F%25E9%2595%25B7%25E7%2594%259F%25E7%2589%258C&amp;tbnid=amb7h8Fom-bKbM&amp;vet=12ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ..i&amp;docid=8XKs493HYsPjlM&amp;w=268&amp;h=207&amp;q=%E9%95%BF%E7%94%9F%E7%89%8C&amp;ved=2ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ#imgrc=amb7h8Fom-bKbM&amp;imgdii=GTQefx0i6hPxeM)
+美国官员表示，**新的制裁打击了俄罗斯联邦储蓄银行(Sberbank)和俄罗斯第四大金融机构阿尔法银行(Alfabank)。**其中，俄罗斯联邦储蓄银行持有俄罗斯银行总资产的三分之一。
 
-中国民间有蛊术，立一营，营内一台，结一草人，人身上书敌人姓名，头上一盏灯，足下一盏灯，脚步罡斗，书符结印焚化，一日三次拜礼，至二十一日之午时，敌爆毙。
+白宫在一份声明中说，星期三的”全面封锁性制裁”将冻结这两家主要银行”涉及美国金融体系”的资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-format2020.jpg)俄罗斯联邦储蓄银行在莫斯科的标志（图片来源：www.handelsblatt.com）
+报道称，**英国也冻结了俄罗斯联邦储蓄银行的资产**，并表示**，将在今年年底前禁止进口俄罗斯的煤炭。**这是英国与美国和其他西方盟国联手实施的最新一轮制裁，目的是饿死普京的战争机器。
 
-中国道教给生人立牌位叫长生牌或禄位牌，引日月星三光，求吉祥增加福气。佛教立福主牌佛光注照。《礼记．曲礼》记载：“非其所祭而祭之，名曰淫祀。淫祀无福。”《礼记．祭法》载：“夫圣王之制祭祀也，法施于民则祀之，以死勤事则祀之，以劳定国则祀之，能御大菑则祀之，能捍大患则祀之。”所以，历史上通常是给有功绩百姓的人，会由百姓们集中修建生祠，然后里面供上长生牌位。明天启间，宦官魏忠贤擅政，权倾一时，生祠遍于各地，其下场众所周知。以上道理老百姓都懂。
+周三，美国总统拜登在对劳工领袖的讲话中说，没有什么比重大战争罪行更严重的了。他还说，负责任的国家必须团结起来，将这些肇事者绳之以法。”
 
-全国范围内只有你习近平，有文人替你著书立传歌功颂德，已然成为大救星红太阳了，你个全民大大，怎么突然就这么不自信了？
+白宫还表示，**拜登正在签署一项行政命令，禁止美国人在俄罗斯的任何地方进行新的投资，**这将使俄罗斯进一步从全球经济中孤立出来。这将包括禁止风险投资和并购。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220225010232_6c8c5417b8a5d5b40afcfaa21a6c5c9e5421b914c948f3204a35ce545be07211.jpg)美国拜登总统就俄罗斯入侵乌克兰发表声明（图片来源：法新社）
+美国政府的一名高级官员告诉记者，**通过切断俄罗斯最大的几家银行的供应**，美国正在“大幅升级”对俄罗斯的金融冲击。俄罗斯正在陷入经济、金融和技术上的孤立。按照这个速度，**俄罗斯人的生活水平将回到上世纪80年代的苏联模式。**
 
-消息来源：[国家网信办：不得随意创建网上烈士纪念馆](http://m.chinanews.com/wap/detail/zw/sh/2022/04-02/9718389.shtml)
+白宫经济委员会(White House Economic Council)主任迪斯(Brian Deese)说，据估计，俄罗斯经济将在2022年收缩10%至15%，俄罗斯的通货膨胀率为200%。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+新闻来源链接：
+
+[Russia hit with new round of U.S. sanctions as Biden decries ‘major war crimes’ | Reuters](https://www.reuters.com/world/us-allies-ban-investments-russia-sanction-banks-2022-04-06/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

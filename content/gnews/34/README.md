@@ -2,31 +2,23 @@
 ---
 
 
-## 两个孩子“遭受酷刑死亡”&#8230;追查战争罪行的乌克兰和欧盟调查小组(1/2)
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2300376/)
+## 2022年4月6日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2300406/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-3.jpg)
-在俄军刚刚撤离的乌克兰首都基乌近郊布查发现多具平民遗体的问题上，基乌周边和东部斯穆伊州等其他地区也接连传来了平民死伤的消息。为追究“战争罪行”的责任，乌克兰政府和欧盟(EU)4月4日达成协议，组建联合调查团队。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0894.jpg)
+发稿：信心的选择
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-635.png)图片来源：雅虎新闻
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-乌克兰最高会议(国会)人权监察员4月5日表明，基乌近郊伊尔平也于2日确认两名不满10岁的儿童遭受性侵以及酷刑而死亡。
-
-除此之外，在曾被俄军当做据点的基乌省营地设施中，有5人的遗体双手被反绑在身后，其中4人后脑勺被枪击，最后一人头盖骨被掀起。东部斯穆伊省也在俄军驻地周围发现了三具在遭受酷刑后遇害的平民遗体。
-
-乌克兰总统沃洛迪米尔·泽连斯基在5日的视频讲话中说，仅在布查被俄军杀害和拷问的公民就超过300人，同样在基乌近郊约1万2000人口的博洛迪扬卡“受害者人数可能更多”。
-
-下一篇：[两个孩子“遭受酷刑死亡”…追查战争罪行的乌克兰和欧盟调查小组(1/2)](https://gnews.org/zh-hans/2300412/)
-
-参考链接：[子ども２人「拷問受けて死亡」…戦争犯罪追及へウクライナとＥＵが捜査チーム（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5176a0937b691064dbf26aa4dbc2ed4f94fb1157)
-
-* * *
-
-审核：Bryan
-校对：天天
-发稿：宫米叶
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
