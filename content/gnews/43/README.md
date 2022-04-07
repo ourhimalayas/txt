@@ -2,34 +2,19 @@
 ---
 
 
-## 亚马逊签署天空网路Kuiper计划
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304250/)
+## 文贵大直播|剖析PAG 看西方百亿退休金有去无回
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2304738/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/amazon-project-kuiper.jpg)
-当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
+撰稿：东京樱花团/小火苗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-07_233214.png)
+PAG是中共盗国贼的钱袋子，单伟建和黑石都是盗国贼家族的白手套，通过PAG骗取西方上百亿美元退休基金。PAG的上市保荐人高盛、摩根士丹利，财务顾问UBS均为盗国贼的合作伙伴。PAG主要从事私募股权投资和不动产投资，另外投资的国药集团业绩在疫情期间高速增长，推进长效新冠中和抗体商业化，一边放毒，一边贩卖毒疫苗赚黑心钱，谋财害命。中共盗国贼通过白手套的海外基金，在权力的运作下低价投资腾讯音乐和宝钢气体这样的优质资产，用上市套现的方式实现盗国目的。全球金融海啸即将到来，PAG集中在大中华和亚太地区投资的资产必将大幅缩水。PAG主要代表江（泽民）家和王（岐山）家利益，随着中共内斗的加剧，不排除习近平会叫停PAG上市，西方百亿美元退休金将有去无回。
 
-亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网路的卫星系统。目前SpaceX已经有2110颗卫星在轨道上，OneWeb第一批计划的648颗目前已经完成发射428颗。亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。
+消息来源：
+[2022年4月1日《文贵大直播》](https://www.gettr.com/streaming/p1307228ccd)
 
-随着天空互联网公司之间的发展，竞争是存在的，但合作也增多。英国的OneWeb公司因受俄罗斯受制裁的影响，被迫中止了3月本该由俄罗斯航天局承接的发射任务，最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成了深度默契。
-
-reference：
-
-[https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project](https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project)
-
-撰稿、发布：骄子
-
-* * *
-
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+编辑：东京樱花团/曲别针
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

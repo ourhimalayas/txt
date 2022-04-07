@@ -2,41 +2,12 @@
 ---
 
 
-## 有声|消失的花朵—致“八个孩子的妈妈”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305920/)
+## 4月7日乌克兰救援行动（图片1-8）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2305974/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-
-> 你本是美丽的花朵
-> 应该呼吸自由的空气
-> 
-> 你本是智慧的花朵
-> 应该在校园里快乐的学习
-> 
-> 你本是浪漫的花朵
-> 应该享受爱情且被他珍惜
-> 
-> 但是
-> 世间的禽兽没有标记
-> 他们披着人的外皮
-
-
-文字版原文：[消失的花朵—致“八个孩子的妈妈”](https://gnews.org/zh-hans/2300927/)
-
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
-
-音频处理/发稿：Daxia
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
-
-
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5A1C05D7-2A0F-4302-AA6D-26367B96AAF0.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D3E29A82-D9E9-4D1E-BF5E-C325E253F1DE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/17589476-C543-4FF2-8E83-83C5533216D7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DC737DAC-B359-4895-AA3F-EAA48F95E119-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/0AA87D8C-D3CB-41DD-A22B-EC72F8812BB7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5CB3D003-240D-4D1E-8391-EB70E522DEDE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DEF4FCD8-D669-43BB-A00E-793C6A1B6D0A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/58497712-EF93-437B-A34D-0890330ED0CF.png)
+发布： 水涨船高
 
  
 

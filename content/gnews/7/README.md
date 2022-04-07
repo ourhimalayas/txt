@@ -2,12 +2,20 @@
 ---
 
 
-## 4月7日乌克兰救援行动（图片1-8）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2305974/)
+## 疫苗护照导致货运卡车司机严重短缺
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2306185/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5A1C05D7-2A0F-4302-AA6D-26367B96AAF0.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/D3E29A82-D9E9-4D1E-BF5E-C325E253F1DE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/17589476-C543-4FF2-8E83-83C5533216D7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DC737DAC-B359-4895-AA3F-EAA48F95E119-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/0AA87D8C-D3CB-41DD-A22B-EC72F8812BB7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/5CB3D003-240D-4D1E-8391-EB70E522DEDE.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/DEF4FCD8-D669-43BB-A00E-793C6A1B6D0A.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/58497712-EF93-437B-A34D-0890330ED0CF.png)
-发布： 水涨船高
+加拿大温哥华扬帆农场    平民正道
+
+据媒体《真北方》4月4日报道，加拿大畜牧业领导人警告称，因特鲁多政府的跨境疫苗护照要求，明年卡车司机会加倍短缺。而可能即将实施的跨省疫苗政策则更将是灾难性的。
+
+报道指出，加拿大畜牧业供应链正面临着如何确保饲料供应，以及肉类产品在购销环节中的顺利流通。而强制性的跨境和跨省疫苗护照政策，将使卡车司机短缺现象更为严重。
+
+据悉，由于此前劳工部长奥雷根和自由党内阁成员的极力反对，联邦政府未能取消“要求卡车司机跨省运输时必须出示疫苗接种证明”的提案。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

@@ -2,19 +2,28 @@
 ---
 
 
-## 文贵大直播|新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2304763/)
+## 台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305097/)
 
-撰稿：东京樱花团/風鈴
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-07_233716.png)
-用任何语言都无法表达对前线战友的敬佩和感激，新中国联邦的乌克兰前线救援行动刷新了中国人的形象，改变了世界上很多人对中国人的看法，靓丽风景之一的灭共黄马甲吸粉无数。乌克兰救援之举感动了无数人，也让中国人为此自豪，救援中心的大帐篷就像是黑暗中的一盏灯，乌克兰救援前线战友的形象给世界，尤其是海外华人，带来了希望。
+**港台前线 zhong｜2022-4-7**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-9.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+日本政府消息人士透漏，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本，与首相岸田文雄会谈，针对俄侵略乌克兰寻求美日合作。访问日本之后，原计划访问南韩。
 
-消息来源：
-[2022年4月3日《文贵大直播》](https://www.gettr.com/streaming/p13c6fub6b6)
+台湾媒体4月7日报导称，知情人士消息，裴洛西可能取消访问南韩，改访台湾。此消息一出，尚未经过美台官方证实，便受到多国媒体关注。前次美国现任众议院议长访台纪录为1997年。
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+中共外交部发言人赵立坚对此消息表示“如果美方一意孤行，中方将采取强硬措施捍卫国家主权和领土完整。”
+
+然而，本消息尚未得到官方认证，裴洛西便爆出无症状感染新冠病毒，据外媒报导她本人接种了三剂新冠疫苗，感染可能与先前参与的晚宴有关，该晚宴已发现多名记者、参加者确诊新冠。
+
+裴洛西原定出访日本、南韩，可能因确诊而延期。
+
+来源｜[npr](https://www.npr.org/2022/04/07/1066212755/speaker-nancy-pelosi-has-tested-positive-for-covid)、[cnbc](https://www.cnbc.com/2022/04/07/house-speaker-nancy-pelosi-tests-positive-for-covid-is-not-experiencing-symptoms.html)
+
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
