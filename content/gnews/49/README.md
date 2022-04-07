@@ -2,37 +2,28 @@
 ---
 
 
-## 澳大利亚电信公司Telstra推出诈骗短信过滤器
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302440/)
+## 樱花时政┃美英宣布对俄新制裁包括“禁止对俄新投资”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2303280/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+撰稿：东京樱花团/文小白
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/121208537_gettyimages-1233763787.jpg)图片来源：BBC
-根据Northern Beaches Review4月7日报道，Telstra正在推出一种全新的短信诈骗过滤器，因为澳大利亚最大的电信提供商在其网络上遇到大量恶意短信。
+据NHK4月7日消息，美国白宫就乌克兰首都基乌附近许多平民遭到杀害一事，4月6日宣布对俄罗斯实施新的制裁：禁止与俄罗斯最大的金融机构进行交易的同时，还禁止对俄罗斯进行新的投资。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-24.png)
+图片来源：本文链接
 
-Telstra表示，诈骗短信不仅令人讨厌，而且具有恶意，有可能窃取人们的钱财或安装恶意软件来窃取个人信息、入侵他们的网上银行并感染他们的联系人。
+新的制裁措施将禁止俄罗斯最大的金融机构Sberbank和第四大民营金融机构Alphabank与美国公民和企业进行所有的交易。美国此前已对其他主要金融机构实施了制裁，此次的新制裁意味着俄罗斯超过三分之二的银行交易已经被禁止。
 
-“我们网络上的诈骗短信数量正在上升：2021年，我们收到了超过 11,000份针对安卓设备的恶意短信报告，而2020年只有50份。”首席执行官安迪·佩恩 (Andy Penn) 说。
+此外，为了进一步将俄罗斯孤立于世界经济圈以外，美国它还颁布了一项，禁止美国人向俄罗斯进行新投资的总统令。拜登总统6日再次强烈指责普京总统，称“没有比乌克兰发生的事情更加严重。美国将继续让普京付出代价。”拜登政府计划与包括日本在内的七国集团和欧盟合作，进一步加强对俄罗斯的制裁。
 
-澳大利亚竞争和消费者委员会去年指出，电话是诈骗者瞄准受害者的最常见方式，也是在经济损失方面最成功的方式。
+4月6日，英国政府与美国政府步调一致地宣布了对俄罗斯进一步的制裁措施。除了冻结俄罗斯最大金融机构“Sberbank”的资产外，还禁止对俄罗斯进行新的投资。前年，英国对俄罗斯的投资额超过了110亿英镑。英国此次新的措施将对俄罗斯经济造成很大的影响。
 
-ScamWatch估计澳大利亚人去年因电话诈骗损失了6360万美元。
+日本内阁官房长官松野在7日上午的新闻发布会上表示，“日本将与G7和国际社会一道对俄罗斯采取强硬态度，让俄罗斯能够倾听国际社会的声音，尽快停止侵略。我们认为有必要采取各种制裁措施。”
 
-作为其清洁管道计划的一部分，Telstra在过去一年中阻止了超过1亿个诈骗电话。
+信息来源：[アメリカ 新たな制裁発表 “ロシアへの新規投資禁止”](https://www3.nhk.or.jp/news/html/20220407/k10013570601000.html)
 
-这家电信运营商表示，其新的短信诈骗过滤功能将有助于解决这个问题，在诈骗短信到达移动设备之前就在网络层面上进行拦截。
-
-资料来源：[Telstra rolls out scam text message filter](https://www.northernbeachesreview.com.au/story/7690235/telstra-rolls-out-scam-text-message-filter/?cs=9676)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

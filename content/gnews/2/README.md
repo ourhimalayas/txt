@@ -2,44 +2,32 @@
 ---
 
 
-## 俄罗斯财政部宣布将首次用卢布偿还外债
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2305189/)
+## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
 
-编辑：文宝
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
 
+7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
+值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
 
-
-当地时间4月6日，俄罗斯财政部宣布，俄罗斯将首次以卢布结清一笔价值6.492亿美元的欧元债券付款。因为外汇储备被冻结，此前俄方提出的常规付款请求被一家外国代理银行拒绝。
-
-据法新社报道，俄财政部在6日的一份声明中称，“有一家外国代理银行拒绝执行支付指令”，因而无法偿清4月4日到期的两只欧元债券。为“履行俄罗斯联邦的国家偿债义务”，俄财政部“被迫请求一家俄罗斯金融机构来支付必要的款项”。
-![法新社报道截图](https://x0.ifengimg.com/ucms/2022_15/02F98C67BB265549CA4F7987276E94DBBADA9987_size46_w1245_h277.png)
-法新社报道截图
-
-今日俄罗斯（RT）6日报道也证实了这一消息。报道还称，这家外国代理银行是受美国指示，拒绝帮助俄罗斯偿还债务。本周早些时候，美国财政部阻止俄罗斯通过美国银行账户的储备金偿还两笔超6亿美元的债务，称俄罗斯将不得不在耗尽美元储备和违约之间做选择。
-![今日俄罗斯（RT）报道截图](https://x0.ifengimg.com/ucms/2022_15/66700400B42F920097C7B3D1D9481632EB20205F_size30_w1200_h182.png)
-今日俄罗斯（RT）报道截图
-
-美国财政部发言人4日表态称，美国此举意在迫使俄罗斯作出艰难抉择，到底是使用这些可获得的美元来偿还债务，还是用于“支持战争”等其他目的。
-
-这位发言人还警告，俄罗斯必须作出选择，要么耗尽剩余的宝贵的美元储备，要么耗尽新的收入，要么将面临“历史性的违约”。
-
-据俄罗斯财长西卢安诺夫介绍，俄罗斯目前积累的黄金和外汇储备总额约6400亿美元（约合人民币40723亿元），其中约有一半（约3000亿美元）的储备已被西方国家冻结。
-![俄财政部长西卢安诺夫（右） 图自澎湃影像](https://x0.ifengimg.com/ucms/2022_15/B9402C3871F775F8DE6D7AA9ACC5944D64B31444_size3825_w2805_h1875.jpg)
-俄财政部长西卢安诺夫（右） 图自澎湃影像
-
-与此同时，俄罗斯有15只未偿还的国际债券，面值约400亿美元。全球评级机构称，如果俄罗斯未在规定时间内提供以计价货币支付的款项，将被判定违约。
-
-法新社称，俄财政部宣称将用卢布支付，但没有提及这种支付是否已被接受。国际金融协会副首席经济学家埃琳娜·里巴科娃（Elina Ribakova）表示，俄罗斯对无卢布支付条款的债务采取“卢布支付”，将“构成违约”。
-
-报道指出，“违约”可能不会立即让俄罗斯市场和经济崩溃，但会产生毁灭性的长期后果。俄罗斯的投资、经济增长和生活水平将受到影响。
-
-不过，克里姆林宫否认了“俄罗斯违约”的说法。RT称，克里姆林宫发言人佩斯科夫表示，俄罗斯有资金也有意愿偿还债务，但是西方人为干扰了俄罗斯正常还款，因此称其为“真正的违约”是“毫无道理的”。
-
-佩斯科夫还强调：“俄罗斯拥有偿还债务所需的一切资源……如果这种封锁继续下去，偿还债务的付款继续被阻止，那么（未来的款项）将用卢布支付。”
-
-原文链接：[https://news.ifeng.com/c/8F1YWass0e2](https://news.ifeng.com/c/8F1YWass0e2)
+乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
 
 
+
+> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
+> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
+
+
+
+来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
+
+* * *
+
+▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

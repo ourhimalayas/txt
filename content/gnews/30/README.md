@@ -2,29 +2,26 @@
 ---
 
 
-## 有声｜俄罗斯在对乌战争中将粮食作为武器
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2304583/)
+## 俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2304749/)
 
-By:**秘翻新闻**
+**港台前线 zhong｜2022-4-7**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院6日“一致性”通过了“2022年乌克兰民主防卫租借法案”（The Ukraine Democracy Defense Lend-Lease Act of 2022），旨在简化程序、降低官僚主义影响，加快向乌克兰提供关键军援、补给，协助抵御普京无端的袭击。
 
-**2022-04-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/407-12-scaled.jpg)
-[福克斯新闻](https://www.foxnews.com/politics/senators-warn-russia-food-quiet-weapon)4月6日报导，美国共和党参议员警告称， 俄罗斯正在利用粮食供给作为入侵乌克兰的致命武器，进而导致日益恶化的全球粮食安全问题。
+参议院多数党领袖查克．舒默（Chuck Schumer ）于会议称，在布查镇的屠杀是“纯粹的邪恶、俄军在乌克兰进行种族灭绝”。此外，他明确表示普京杀害无辜的平民是种族灭绝罪行。
 
-周三，在美国国会大厦举行的会议上，爱荷华州参议员乔尼·恩斯特和堪萨斯州参议员罗杰·马歇尔讨论了俄乌战争对全球食品供应链的影响。
+美国参议院“一致性”通过租借法案的意义非凡，但仍须经过众议院决议通过后，总统签署、发布后生效。
 
-这两位共和党参议员对最近食品价格和天然气价格的飙升感到担忧，称可能会给美国及世界其他地区带来灾难。
+4月1日外媒采访德克萨斯州参议员约翰·科宁（John Cornyn），他大力推动“2022年乌克兰民主防卫租借法案”。他向媒体表示：“乌克兰军队证明了抗俄的勇气，努力得到国会两党的广泛支持，美国国会已批准大量对乌的军援，配合『租借法案』将减少程序障碍，确保及时向乌克兰运送武器、物资及其他必需品”。
 
-乌克兰被称为世界的面包篮子。恩斯特抨击俄罗斯将粮食供给作为对付乌克兰人的武器，旨在使平民因饥饿而投降。恩斯特表示：解决粮食安全危机的最好和最快方法是乌克兰赢得战争。
-
-前乌克兰议会议员汉娜·霍普科博士表示，乌克兰的农民在生产粮食方面遇到了极大困难，因为他们不得不拿出武器保护自己，而这些武器、地雷很多被扔进了他们的田地。今年春天，农民可能只能种植正常作物数量的 70% 左右。
-
-（编译：Julia）
-
-发布 : 文橙
+来源｜[POLITICO](https://www.politico.com/news/2022/04/06/senate-unanimously-approves-lend-lease-00023668)
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+
+▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,35 @@
 ---
 
 
-## 樱花时政┃乌军人在美受训使用弹簧刀无人攻击机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302082/)
+## 亚马逊新的澳大利亚配送中心可存储2000万件商品
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302461/)
 
-整理编辑：东京樱花团｜上善若水
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-美国五角大楼4月6日表示，一批乌军人正在美国训练如何使用“弹簧刀”无人攻击机，这种无人机外号“神风特攻”，被视为坦克死敌。专家分析，“弹簧刀”是一种介于巡航导弹和无人攻击飞行器之间的智能武器，这种导弹可在目标区游荡一段时间以搜索目标，并在定位目标后收起双翼，变成一枚小型巡航导弹，与袭击目标同归于尽，被形容为“神风特攻”。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/r0_470_5568_3613_w1200_h678_fmax.jpg)图片来源：www.theflindersnews.com.au
+根据Ragtrader4月7日报道，亚马逊澳大利亚公司坚定了其对澳大利亚市场的承诺，在悉尼西部开设了一个新的机器人履行中心 (FC)。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-698.png)[*图片来源*](https://s.rfi.fr/media/display/f6ad203a-b602-11ec-af1a-005056bfb2b6/w:1280/p:16x9/AP3913601466288461.jpg)
+新的FC位于新南威尔士州的肯普斯溪是澳大利亚最大的仓库，可存储 2000万件物品。该基地创造了1,500多个持续的就业机会，包括客户履行角色，IT和工程职位。
 
-一批乌军人早在2021年秋已进入美国，美军对他们进行培训，如何发射弹簧刀无人机。国防部匿名高官表示，这批乌克军人有十二人左右，很快重返乌克兰。美国防长奥斯汀出席国会听证会时表示，美国在乌境外帮助培训乌军人，旨在熟练掌握美国提供的武器。“他们中的一些人正在美国培训，”他证实说。
+在澳大利亚每个州和领地，亚马逊澳大利亚公司拥有超过5,000名员工。
 
-华盛顿还在周二宣布，将以标枪反坦克系统的形式向乌克兰提供多达1亿美元的额外军事援助，这些标枪已成为乌克兰士兵对抗俄罗斯军队的首选武器。
+出席该场地开幕式的总理莫里森表示，4,000名建筑工人使用13,500吨澳大利亚钢材建造了这个大型仓库。
 
-信息来源：[**乌克兰军人在美训练使用弹簧刀无人机**](https://www.bannedbook.org/bnews/headline/20220407/1715793.html)
+新的FC是亚马逊对澳大利亚市场承诺的一部分，自推出以来，它已在澳大利亚的各项业务中投资超过53亿美元。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+这些投资包括在悉尼、墨尔本、珀斯、布里斯班、阿德莱德、黄金海岸 和纽卡斯尔建立其他FC和物流站点，以存储和运输产品，以及建立数据中心和企业办公室，以支持企业的云计算业务。
+
+资料来源：[Amazon’s new Australian fulfilment centre can store 20 million items](https://www.ragtrader.com.au/news/amazon-s-new-australian-fulfilment-centre-can-store-20-million-items)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
