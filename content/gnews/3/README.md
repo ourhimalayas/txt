@@ -2,37 +2,20 @@
 ---
 
 
-## 有声|中共国正在寻求被制裁的俄罗斯低价天然气
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301058/)
+## 马斯克认购推特将改变社交媒体现状
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2301168/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-14.jpg)
-交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
+加拿大温哥华扬帆农场    平民正道
 
-中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
+据4月4日文贵先生盖特消息，SpaceX公司创始人伊隆·马斯克当天购买了推特9.2%的股份，并成为该社交媒体的最大股东。此举将有利于新中国联邦的灭共事业。
 
+据悉，本次认购意味着推特或将逐渐摆脱中共的控制，减少对言论自由的过度审查和干预。同时，也将对该平台进行重大技术升级，通过推动整个社交媒体技术的进步，让投资人获取更大的利益。
 
+文贵先生表示，马斯克成为推特最大股东后，不但不会与盖特产生恶性竞争关系，双方反而会精诚合作，共同创造新社交媒体更美好的未来。
 
-文字版原文：[中共国正在寻求被制裁的俄罗斯低价天然气](https://gnews.org/zh-hans/2295618/)
+* * *
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑： 平民正道    发布：平民正道
 
  
 

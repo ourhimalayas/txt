@@ -2,19 +2,36 @@
 ---
 
 
-## 文贵大直播|共产党的红旗导弹系统和黑客部队正式加入了俄罗斯侵略战争
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2299886/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
 
-撰稿：东京樱花团/瓜子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06_235828.png)
-中共在俄乌战争中正式参与向俄方输送武器，将红旗导弹和反导弹系统运送至塞尔维亚。与此同时，中共的大量黑客部队也已经开始与俄罗斯进行协作。
+作者：香草山翻译部
 
-消息来源：
-[2022年4月3日《文贵大直播》](https://www.gettr.com/streaming/p13c6fub6b6)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
+[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

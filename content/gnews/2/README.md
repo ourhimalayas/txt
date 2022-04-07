@@ -2,51 +2,102 @@
 ---
 
 
-## 泽连斯基敦促联合国驱逐俄罗斯并追究莫“战争罪”责任
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2301069/)
+## 突发：拜登说在布查的杀戮是“令人发指的”，呼吁对普京进行战争罪审判
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2301169/)
 
-编译：圣地香港
+Joe Biden (U.S. President)
+乔·拜登（美国总统）
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-3.jpg)
+One comment to make before I start today
+在今天开始之前我要说一句话
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-658.png)4 月 5 日，乌克兰总统泽连斯基在基辅通过视频向联合国安理会发言
+You may remember I got criticized was calling Putin the war criminal
+你可能还记得我被批评称普京为战犯
 
-乌克兰总统泽连斯基（Volodymyr Zelenskiy）敦促联合国安理会对俄罗斯军队在乌克兰犯下的罪行追究全部责任。
-4 月 5 日，泽连斯基于在安理会发言，提供了在布查（Bucha）镇发生事件的照片，他说很多家庭被灭门，特别是那些曾为乌克兰军队服务的家庭。
-泽连斯基告诉由15人组成的理事会，人们“在他们的公寓、房屋中被杀……“俄罗斯士兵”为了取乐，开坦克压死坐在马路中间汽车里的平民。他们的四肢被砍断……被割喉。”
-泽连斯基说，“妇女在孩子面前被强奸和杀害，她们的舌头被拔掉只是因为侵略者没有听到他们想听的话。”。安理会另一名成员表示：“这些行径与达伊沙（伊斯兰国）等其他恐怖分子并无二致。”
-泽连斯基表示，在布查犯下的罪行是二战以来“最可怕的战争罪行”，而布查 “只是过去 41 天侵略者在我们土地上所做暴行之一”。
-泽连斯基在视察布查一天后发表讲话说，俄罗斯军队无论部署在哪里，都留下了废墟和万人坑。
-泽连斯基补充说，“数以万计”的乌克兰人被驱逐到俄罗斯，称俄罗斯“需要我们的财富，我们的人民”，他指责俄罗斯士兵从食物到金耳环全部抢走，不给乌克兰人留下任何东西。
-在泽连斯基之后向安理会发表讲话的俄罗斯驻联合国大使否认了大规模驱逐的说法，并否认俄罗斯军队以平民为目标。
-瓦西里·涅边贾（Vasily Nebenzya）说，“总体而言，自特别军事行动开始以来，已有超过 60万人被疏散到俄罗斯，其中包括超过 11万9千名儿童。”
-他说，“并且，其中不存在任何形式的胁迫或绑架，就像西方的朋友们喜欢展示的那样，是这些人自愿的，正如社交媒体上许多视频所证明的那样。”
-乌克兰总统呼吁联合国不仅要立即采取行动，还让俄罗斯为布查平民的死亡负责，而且还将俄罗斯驱逐出安理会，该委员会除了通过针对俄罗斯入侵不具约束力的决议外，无法采取任何行动。因为莫斯科拥有一票否决权。
-泽伦斯基说：“我们正在与一个将其在联合国安理会的否决权转变为[致]死权的国家打交道。”
-他说，联合国必须认真审视自己，问问国际法的时代是否已经结束。他呼吁改革《联合国宪章》并设立一个类似于二战后审判纳粹的国际战争罪法庭。
-泽连斯基说，“联合国可以关门大吉了。女士们，先生们，你们准备好关闭联合国了吗？国际法的时代已经过去了吗？如果答案是否定的，那么你们需要立即采取行动。”
-在俄罗斯军队撤离后，泽连斯基在发现布查平民受害者的震怒之下发表了这些讲话。美国总统乔·拜登（Joe Biden）呼吁对战争罪进行审判，美国和英国呼吁将俄罗斯从联合国人权理事会中除名。
-美国国务卿安东尼·布林肯（Antony Blinken）在前往北约会议前表示，“我们在布查看到的不是流氓单位的随机行为，这是一场蓄意的杀害、折磨、强奸、暴行。”
-布查市长阿纳托利·费多鲁克（Anatoly Fedoruk）在接受采访时表示，大屠杀是俄罗斯人对乌克兰人民所表现出的抵抗的报复。
-费多鲁克告诉义大利的 Corriere della Sera 报纸，“俄罗斯人处于玩乐或愤怒便枪杀我们的市民，他们向所有移动的东西开枪，包括路人、骑自行车的人、标有‘儿童’的汽车。”
-华盛顿和欧盟已承诺实施更多经济制裁，旨在迫使俄罗斯总统弗拉基米尔·普京（Vladimir Putin）停止战争。
-欧盟宣布了第五套措施，将针对石油和煤炭出口，并禁止俄罗斯船只进入欧洲港口，而美国财政部表示，俄罗斯将不再能够用美国银行持有的美元支付其外债。
-由美联社和法新社报道
+the truth of the matter
+事实上那很贴切
 
-素材链接：[Zelenskiy Urges UN To Expel Russia From Security Council And Hold Moscow Accountable For ‘War Crimes’](https://www.rferl.org/a/ukraine-russia-zelenskiy-un-security-council/31787238.html)
+So what happened to Bucha
+那么在布查所发生的事情证明
 
-* * *
+He is war criminal
+他就是战犯
 
-审核：文乐
-校对：小东
-发布：花羽
+We have to gather information
+我们必须收集信息
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+We have to continue to provide Ukraine with the weapons they need
+我们必须继续向乌克兰提供他们需要的武器
+
+because they need to continue the fight
+因为他们需要继续战斗
+
+And we have to get all the details
+我们必须得到所有的细节
+
+So this to be an actual have a war crime trial
+所以这是一场真正的战争罪审判
+
+this guys is brutal, what’s happening to Bucha is outrageous
+这家伙太残忍了，在布查所发生的事情太离谱了
+
+and everyone’s seen it
+而且每个人都看到了
+
+No, I think it is a war crime
+不，我认为这是战争罪
+
+Question
+问题
+
+Sir, You want more sanctions on Russia?
+先生，您想对俄罗斯实施更多制裁吗？
+
+Joe Biden
+乔·拜登
+
+I’m thinking more sanctions
+我正在考虑更多的制裁
+
+Yes, I’ll have time I have to
+是的，我有时间我必须
+
+He should be held accountable
+他应该被追究责任
+
+No, the war crime stop
+不，停止战争罪行
+
+yes, I’m going to continue to add sanctions
+是的，我将继续增加制裁
+
+Thank you
+谢谢
+
+I’ll let you know
+我会让大家知道的
+
+原视频链接:[https://twitter.com/bnonews/status/1510992649615990787?s=24](https://twitter.com/bnonews/status/1510992649615990787?s=24)
+
+Date:04/05/2022
+原视频标题: BREAKING: Biden says killings in Bucha are “outrageous,” calls for war crimes trial against Putin
+突发：拜登说在布查的杀戮是“令人发指的”，呼吁对普京进行战争罪审判
+原视频日期：2022/04/04
+原视频链接https://twitter.com/bnonews/status/1510992649615990787?s=24
+任务编号：KE471（4175）
+视频时间段 : 0:00-1:09
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -文新
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

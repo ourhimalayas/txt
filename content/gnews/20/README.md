@@ -2,30 +2,26 @@
 ---
 
 
-## 美英澳宣布联合开发超高音速武器，旨在对抗中俄
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2300815/)
+## 樱花时政┃中共网信办：禁止祭祀活人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301008/)
 
-**编译：文舞两道**
+撰稿：东京樱花团/加一颗稻草
 
-4月5日，美国、英国和澳大利亚的组成的安全架构AUKUS发表首脑声明，宣布将联合开发飞行速度远超音速的最新式武器——超高音速武器以及拦截技术，被看做是为了与已实施先行开发的中国和俄罗斯进行对抗。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/EDBFB487-DA64-441F-839D-E93C1346DE84.png)图片来源：[https://www3.nhk.or.jp](https://www3.nhk.or.jp)
-高超音速武器很难拦截，因为它们是以超过音速5倍的5马赫或更高的速度飞行。3月在俄罗斯入侵乌克兰的战争中已有发表使用了此种武器。此外，北朝鲜也在今年1月进行了此种武器的发射试验。
+中新财经4月2日电，据“网信中国”公众号消息，近日，国家互联网信息办公室相关部门下发通知，部署开展清明期间网络祭扫规范管理工作，强调要严防活人被祭拜，不得随意创建网上烈士纪念馆等。
 
-据说中国和俄罗斯已先行开发并引领着这种武器的发展，为对抗中国和俄罗斯，美、英、澳等三个国家决定在新的框架下，迅速集结技术力量合作开发。 AUKUS成立于去年9月，在中国在不断进军海洋的过程中，为澳大利亚提供核潜艇部署的技术支持，以及在网络和AI（人工智能）领域的军事合作也在不断深入。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-14.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fimg%2Fd%2Fce7%2FnBnauM3X0QTN5YDNxEDM3UzM1UTM1QDN5MjM5ADMwAjMwUzLxAzL1czLt92YucmbvRWdo5Cd0FmL0E2LvoDc0RHa.jpg&amp;imgrefurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fwiki%2F%25E9%2595%25B7%25E7%2594%259F%25E7%2589%258C&amp;tbnid=amb7h8Fom-bKbM&amp;vet=12ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ..i&amp;docid=8XKs493HYsPjlM&amp;w=268&amp;h=207&amp;q=%E9%95%BF%E7%94%9F%E7%89%8C&amp;ved=2ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ#imgrc=amb7h8Fom-bKbM&amp;imgdii=GTQefx0i6hPxeM)
 
-**信息来源：**
+中国民间有蛊术，立一营，营内一台，结一草人，人身上书敌人姓名，头上一盏灯，足下一盏灯，脚步罡斗，书符结印焚化，一日三次拜礼，至二十一日之午时，敌爆毙。
 
-[米英豪 極超音速兵器の共同開発を発表 中ロ対抗ねらいか](https://www3.nhk.or.jp/news/html/20220406/k10013569181000.html)
+中国道教给生人立牌位叫长生牌或禄位牌，引日月星三光，求吉祥增加福气。佛教立福主牌佛光注照。《礼记．曲礼》记载：“非其所祭而祭之，名曰淫祀。淫祀无福。”《礼记．祭法》载：“夫圣王之制祭祀也，法施于民则祀之，以死勤事则祀之，以劳定国则祀之，能御大菑则祀之，能捍大患则祀之。”所以，历史上通常是给有功绩百姓的人，会由百姓们集中修建生祠，然后里面供上长生牌位。明天启间，宦官魏忠贤擅政，权倾一时，生祠遍于各地，其下场众所周知。以上道理老百姓都懂。
 
-**编辑：LILY**
+全国范围内只有你习近平，有文人替你著书立传歌功颂德，已然成为大救星红太阳了，你个全民大大，怎么突然就这么不自信了？
 
-**发布：歪桑**
+消息来源：[国家网信办：不得随意创建网上烈士纪念馆](http://m.chinanews.com/wap/detail/zw/sh/2022/04-02/9718389.shtml)
 
-20220405
-
-更多资讯请关注：
-[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
-![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

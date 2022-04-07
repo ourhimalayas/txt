@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 12:30 AM (UTC)`
+
+2022.04.06 晚 新中国联邦 | 新闻    上海新增病例持续破万，中共出动武警严管，市民发起团购自救
+![img](https://media.gettr.com/group6/origin/2022/04/07/00/8243fea7-db13-3344-f1e8-09792c0def03/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 12:22 AM (UTC)`
 
 4/6/2022 Ukraine Rescue: Numerous young people want to go to Ukraine to fight for righteousness and the innocent lives slaughtered during the war. While the earth is coming back to life in the warm sunshine of the Spring day, flames of war shattered the people' s homes. Fellow fighters, please cherish every moment of the peaceful days!<br/><br/>4/6/2022 乌克兰救援连线：无数年轻人都想去乌克兰为正义和被屠戮的无辜生命而战；大地在春日的暖阳中复苏，而战火却击碎了老百姓的家园，请战友们珍惜和平日子的每分每秒！<br/>
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 【Ukraine Rescue】04/04/2022 A Taiwanese volunteer participating the NFSC and ROLF rescue work warned that Russia and the CCP have the same logic: grab land but get rid of the people <br/><br/>【乌克兰救援】04/04/2022 一名参与新中国联邦和法治基金救援工作的台湾志愿者警告说，俄罗斯和中共的想法是一样的：留地不留人<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
 ![img](https://media.gettr.com/group22/getter/2022/04/06/09/08c55daa-b6e2-cf86-9c2f-a747c832d712/out.jpg)
-
----
-
-`@miles 4/6/2022 8:50 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月5日第32天当日救援统计：<br/>Medyka救援站接待：约159人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9268人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 32 - Date: April 5, 2022 :<br/>Medyka Rescue Station Reception: about 159 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9268 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group22/getter/2022/04/06/08/53e85e16-0d26-40cc-295a-5eabb3aa9732/0173805a8efec9f2fb0c665876b4e944.jpg)
 
 ---
 

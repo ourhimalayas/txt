@@ -2,30 +2,37 @@
 ---
 
 
-## 上海仍然强制实施核酸检测阳性幼儿与父母分开隔离政策
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2300884/)
+## 有声|中共国正在寻求被制裁的俄罗斯低价天然气
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301058/)
 
-**撰稿：日本东京方舟农场  Miyali7768(文玉)**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，中共被爆正在私下寻求购买俄罗斯的低价天然气。因受到制裁，市场正在规避与俄罗斯的能源交易。据知情人士透露，中共中石油和中石化正在讨论以大幅折扣从俄罗斯购买现货，他们的供应进口商考虑利用俄罗斯本土公司采购液化天然气，对国际社会进行隐瞒，此前中共炼油厂已有类似举措，过去几周已经购买了几批液化天然气。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-14.jpg)
+交易员称目前俄罗斯液化天然气的交易价格折扣为10%以上。中共利用“手套”公司来代表他们购买，以此掩盖现货交易。目前可能已经接受俄罗斯天然气的长期交付。
 
-近期，上海实施的核酸检测阳性幼儿与父母分开隔离政策饱受民众诟病，但当地卫生官员仍然称，阳性婴幼儿必须与非阳性的父母分开隔离。
+中共国还刻意规避了从伦敦到新加坡的分公司参与，尽管此前多数交易都位于海外。中共国内较小的液化天然气买家并不能购买，只有顶级进口商才有银行预先批示的贷款去购买。目前中共国并不迫切需要液化天然气，且从购买方来看，大量囤积似乎在为对台军事行动做准备。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-9.jpg)（图片来源：网络）
 
-据《内幕文件》新闻网报道，由于中共国医院病房中婴幼儿在无监护人监管下哭闹不止的视频在网络上广泛传播，许多父母观看后在社交媒体上表达了对中共强制婴幼儿与父母分开隔离政策的强烈不满。
 
-然而，上海市卫生健康委员会官员吴倩玉却狡辩称，根据中共的防控措施，任何核酸测试呈阳性的人必须与非感染者隔离，即使他们没有症状或有轻微症状，因此，检测结果呈阳性但其家庭成员为阴性的儿童也必须分开隔离。
+文字版原文：[中共国正在寻求被制裁的俄罗斯低价天然气](https://gnews.org/zh-hans/2295618/)
 
-对此，一位匿名评论员在微博上抨击道，“父母需要满足’条件’才能陪伴他们的孩子？这很荒唐！无条件陪伴孩子是父母最基本的权利！”
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-据悉，上海疫情已经失控，于是中共当局便借由疫情爆发实施严苛的封城措施，将上海2500万人关押在家，居民们无法在外面锻炼或遛狗，而且难以获得新鲜食物。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-参考链接：
-1.[https://reurl.cc/6Erjn6](https://reurl.cc/6Erjn6)
-2.[https://gnews.org/zh-hans/2277829/](https://gnews.org/zh-hans/2277829/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-编辑：海星
-总编：老孙
-校对发布：Linda
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
