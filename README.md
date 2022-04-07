@@ -15,113 +15,113 @@
 
 ---
 
-### [CDC疾控中心主任宣布对该机构进行全面审查](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
-
-### [俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主](/content/gnews/2/README.md)
- ` 關注組`
-
-### [美国副国务卿警告中共 胆敢实质支持俄罗斯或入侵台湾将受到俄罗斯一样的制裁](/content/gnews/3/README.md)
- ` 温哥华扬帆农场`
-
-### [上海某小区柯基犬遭扑杀惹众怒](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [日本首台国产量子计算机或在今年内面世 定位为“国际霸权之争的核心”（2/2）](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [日本首台国产量子计算机或在今年内面世 定位为“国际霸权之争的核心”（1/2）](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [4/6/2022 乌克兰救援连线: 文耀战友讲述一位台湾战友，因参加乌克兰前线救援而了解到新中国联邦的使命，并火线加入喜马拉雅农场](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/7/2022 国际财经快讯：美国盟友将释放近6,000万桶石油储备; Meta计划为其应用程序推出虚拟货币](/content/gnews/9/README.md)
- ` 秘密翻译组金融团队`
-
-### [山东“咽拭子采样机器人”亮相 42秒采样](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美官员吁北京汲取俄乌战争教训 武力犯台将遭国际严厉制裁](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
-
-### [地主家也没有余粮了](/content/gnews/12/README.md)
- ` 银河勇气之星`
-
-### [樱花时政┃乌克兰的唐凤 情报战完胜俄罗斯](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃俄审查政策威胁在日留学生反战言论](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声｜俄罗斯在对乌战争中将粮食作为武器](/content/gnews/15/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜中共国核武库大幅扩张令美国面临巨大风险](/content/gnews/16/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜2天内200名俄罗斯外交官在欧洲被驱逐](/content/gnews/17/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [德国对俄罗斯的能源禁运是否可行？](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [瑞士大多数住院病例也与疫苗接种数据有关](/content/gnews/19/README.md)
- ` xiaobaige`
-
-### [美国官员：美国及其盟友不会无视中共对台湾动武](/content/gnews/20/README.md)
- ` 波士顿五月花农场金融部`
-
-### [大直播后记：嘉宾分享连线前线战友的感想](/content/gnews/21/README.md)
- ` 雅典娜GNotes`
-
-### [美国乌克兰提供了5000个Starlink终端接收器](/content/gnews/22/README.md)
- ` 日本東京方舟農場`
-
-### [联合国将就乌克兰问题暂停俄罗斯在人权理事会的席位](/content/gnews/23/README.md)
- ` Shuizhuyu`
-
-### [有声|万恶的战争犯](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [【 蓝枫法律 】 区块链思维之&#8211;范式转变及第一性原理](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场蓝枫法律`
-
-### [亚马逊签署天空网路Kuiper计划](/content/gnews/26/README.md)
- ` 银河歌舞厅`
-
-### [4/07/2022 银河快讯：来自日本各地的吉祥物发起反战游行;本周汽油价格略有上涨](/content/gnews/27/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [乌克兰军队中的“俄罗斯自由军团”](/content/gnews/28/README.md)
- ` 日本東京方舟農場`
-
-### [美国国家安全面临严重威胁，因中共战略核武库存扩张](/content/gnews/29/README.md)
- ` 银河歌舞厅`
-
-### [樱花时政┃移动焚尸炉开进乌克兰！俄军要毁尸灭迹](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2022年4月6日文贵大直播全文字版](/content/gnews/31/README.md)
- ` 温哥华扬帆农场《文贵大直播》全文听写组`
-
-### [印度石油公司(BPCL)购买200万桶五月装运的俄罗斯乌拉尔原油](/content/gnews/32/README.md)
- ` 日本東京方舟農場`
-
-### [【G时新闻】乌克兰军人在美受训，使用弹簧刀无人攻击机](/content/gnews/33/README.md)
- ` G-时新闻`
-
-### [秘翻在线： 从建行丑闻看中共内斗](/content/gnews/34/README.md)
+### [普京女儿成为美国及盟国最新对俄制裁对象](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日媒称现任美国众议院议长佩洛西将周日访台](/content/gnews/35/README.md)
+### [墙国疫情大封城，实质是一场政治内斗](/content/gnews/2/README.md)
+ ` 波士顿五月花农场`
+
+### [基乌近郊博罗扬卡的住宅楼倒坍 200人被活埋](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [04/07/22 香港快讯 传李家超竞选办「双谭配」 谭耀宗谭志源任正副主任](/content/gnews/4/README.md)
+ ` 英喜-粵語組`
+
+### [美国及世界疫情简报（04-07-2022）](/content/gnews/5/README.md)
+ ` 波士顿五月花农场`
+
+### [CDC疾控中心主任宣布对该机构进行全面审查](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [上海封城11天 市民抱怨食品短缺](/content/gnews/7/README.md)
+ ` 日本东京方舟农场`
+
+### [俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主](/content/gnews/8/README.md)
+ ` 關注組`
+
+### [美国副国务卿警告中共 胆敢实质支持俄罗斯或入侵台湾将受到俄罗斯一样的制裁](/content/gnews/9/README.md)
+ ` 温哥华扬帆农场`
+
+### [上海某小区柯基犬遭扑杀惹众怒](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
+
+### [日本首台国产量子计算机或在今年内面世 定位为“国际霸权之争的核心”（2/2）](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄乌战争因为北约不遵守“不东扩”的承诺？](/content/gnews/12/README.md)
+ ` DC政经`
+
+### [日本首台国产量子计算机或在今年内面世 定位为“国际霸权之争的核心”（1/2）](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [4/6/2022 乌克兰救援连线: 文耀战友讲述一位台湾战友，因参加乌克兰前线救援而了解到新中国联邦的使命，并火线加入喜马拉雅农场](/content/gnews/15/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/7/2022 国际财经快讯：美国盟友将释放近6,000万桶石油储备; Meta计划为其应用程序推出虚拟货币](/content/gnews/16/README.md)
+ ` 秘密翻译组金融团队`
+
+### [有声｜俄罗斯在对乌战争中将粮食作为武器](/content/gnews/17/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜中共国核武库大幅扩张令美国面临巨大风险](/content/gnews/18/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [有声｜2天内200名俄罗斯外交官在欧洲被驱逐](/content/gnews/19/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [德国对俄罗斯的能源禁运是否可行？](/content/gnews/20/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [瑞士大多数住院病例也与疫苗接种数据有关](/content/gnews/21/README.md)
+ ` xiaobaige`
+
+### [美国官员：美国及其盟友不会无视中共对台湾动武](/content/gnews/22/README.md)
  ` 波士顿五月花农场金融部`
 
-### [《避风港Haven》直播内容精选（第三十一集）](/content/gnews/36/README.md)
- ` 喜马拉雅纽约磐石农场`
+### [大直播后记：嘉宾分享连线前线战友的感想](/content/gnews/23/README.md)
+ ` 雅典娜GNotes`
+
+### [美国乌克兰提供了5000个Starlink终端接收器](/content/gnews/24/README.md)
+ ` 日本東京方舟農場`
+
+### [联合国将就乌克兰问题暂停俄罗斯在人权理事会的席位](/content/gnews/25/README.md)
+ ` Shuizhuyu`
+
+### [有声|万恶的战争犯](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [【 蓝枫法律 】 区块链思维之&#8211;范式转变及第一性原理](/content/gnews/27/README.md)
+ ` 加拿大温哥华扬帆农场蓝枫法律`
+
+### [亚马逊签署天空网路Kuiper计划](/content/gnews/28/README.md)
+ ` 银河歌舞厅`
+
+### [4/07/2022 银河快讯：来自日本各地的吉祥物发起反战游行;本周汽油价格略有上涨](/content/gnews/29/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [乌克兰军队中的“俄罗斯自由军团”](/content/gnews/30/README.md)
+ ` 日本東京方舟農場`
+
+### [樱花时政┃移动焚尸炉开进乌克兰！俄军要毁尸灭迹](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2022年4月6日文贵大直播全文字版](/content/gnews/32/README.md)
+ ` 温哥华扬帆农场《文贵大直播》全文听写组`
+
+### [印度石油公司(BPCL)购买200万桶五月装运的俄罗斯乌拉尔原油](/content/gnews/33/README.md)
+ ` 日本東京方舟農場`
+
+### [【G时新闻】乌克兰军人在美受训，使用弹簧刀无人攻击机](/content/gnews/34/README.md)
+ ` G-时新闻`
+
+### [秘翻在线： 从建行丑闻看中共内斗](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日媒称现任美国众议院议长佩洛西将周日访台](/content/gnews/36/README.md)
+ ` 波士顿五月花农场金融部`
 
 ### [香港气候反常 印证中共管制不顺天意](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

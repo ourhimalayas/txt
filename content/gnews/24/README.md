@@ -2,74 +2,27 @@
 ---
 
 
-## 有声|万恶的战争犯
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2304252/)
+## 美国乌克兰提供了5000个Starlink终端接收器
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2304351/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在乌克兰人民顽强抗敌中，
-基辅地区全境解放，
-俄军已经全面撤出。
-乌军在进入基辅布查时发现，小镇路上横七竖八堆满了平民的尸体，
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0BCAF3AA-FF5C-4844-B102-D74494FE9AA5.jpeg)
-很多都是反手捆绑从后脑被射杀，
-还发现有万人坑，
-这些遇难者包括男人、女人和儿童。
-在一个地下室里发现了被谋杀的男人、女人和儿童的残缺不全尸体。
-尸体显示其生前饱受酷刑的证据；耳朵被剪，牙齿拔掉……
-假如照片、视频不是出自乌克兰，
-没有人相信这真实的残暴的大屠杀，
-竟然发生在现在的二十一世纪。
-可见独裁的残暴和邪恶是没有底线的，
-这令人发指的罪恶，
-一下子又把人们拉回到1940年3月5日的卡廷森林大屠杀，
-为了永久削弱波兰的反抗，
-苏联秘密屠杀2万多名波兰“民族主义者和反革命分子”，
-惊现骇人听闻的万人坑。
-如今的布查就是当年的卡廷森林，
-俄罗斯的暴行让世界震惊，
-这是侵略者无区别丧尽天良的大屠杀，
-这是侵略者对敢于反抗的民众进行的报复。
-布查惨案绝不会无声无息的随着战争的结束而湮没在记忆中。
-对于此类反人类暴行的追责，不管多少年都必须追查到底，
-那些屠戮平民的刽子手，
-迟早会站在世人面前接受审判。
-如果说这场战争之前，
-俄罗斯和乌克兰还是两个同根同源的民族，
-那么从今天开始，
-自布查惨案之后，
-两个国家两个民族之间，
-在这样的血海深仇面前，
-乌克兰必将坚决的去俄化，
-和仇人彻底划清界限。
-俄罗斯普京是这场惨绝人寰大屠杀的指挥者，
-中国共产党是支持这场大屠杀的背后金主，
-世界只有共同歼灭中共，
-消灭独裁，
-无黄有主的世界才是和平的、美好的，
-新中国联邦就是歼灭中共，
-为世界带来和平发展的新生力量！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123C3820-729D-40AF-B487-B42B6B7111F2.jpeg)
+**撰稿：日本东京方舟农场 北极**
 
+据焦点报4月7日报道，美国国际开发署（USAID）在SpaceX的支持下向乌克兰移交了5，000个Starlink卫星互联网终端，可为乌克兰任何地方提供无限制和不受阻碍的数据传输。
 
-文字版原文：[万恶的战争犯](https://gnews.org/zh-hans/2300517/)
+美国国际开发署本周二在官网发布公告称，该部门通过与美国航空航天制造商SpaceX的公私合作伙伴关系，向乌克兰政府交付了5，000个Starlink终端接收器。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-1.jpeg)Starlink卫星互联网终端。（图片来自焦点报）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+Starlink卫星终端将使乌克兰实现在任何地方无限，不受限制的数据连接。这些终端将允许政府官员和关键的公民服务提供商继续在乌克兰境内与外界进行通信，即使普京的野蛮侵略切断了乌克兰的光纤或蜂窝通信基础设施连接。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+俄乌战争爆发后不久，2月27日，太空互联网服务Starlink在乌克兰上市。SpaceX公司创始人埃隆·马斯克（Elon Musk）以此举回应乌克兰数字化转型部长米哈伊尔·费多罗夫（Mikhail Fedorov）的呼吁，并承诺在未来提供更多的通信终端。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+参考链接：
+1. [https://reurl.cc/2Dpq69](https://reurl.cc/2Dpq69)
+2. [https://reurl.cc/jkL0QL](https://reurl.cc/jkL0QL)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编：青城道姑
+校对发布：文曦
 
  
 
