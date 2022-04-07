@@ -2,10 +2,24 @@
 ---
 
 
-## 4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2305087/)
+## 2022年4月7日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305176/)
 
-秘密翻译组-北美组
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0902.jpg)
+
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-6.jpeg)
 
  
 

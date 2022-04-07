@@ -2,10 +2,24 @@
 ---
 
 
-## 4/6/2022 乌克兰救援连线：西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/2305040/)
+## 西媒头条 — 第202期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305141/)
 
-秘密翻译组-北美组
+制作：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xm220407.001.jpeg)
+
+发稿：信心的选择
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
 
  
 

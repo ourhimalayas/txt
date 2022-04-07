@@ -2,25 +2,24 @@
 ---
 
 
-## 美、英、澳承诺共同研究高超音速武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305188/)
+## 德拉吉问意大利人是更希望和平还是开着暖气
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2305236/)
 
-作者：华盛顿DC农场 自由信仰
+#### 编译 意大利达芬奇农场 小白鸽
 
-当地时间4月5日，据英国媒体报道，英国首相约翰逊办公室当天在一份声明中表示，在美国、英国和澳大利亚新防卫联盟的领导人——拜登、约翰逊与莫里森——当天举行的电话会议后，三国确认将在高超音速和反高超音速以及电子战能力方面开展新的三边合作。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-45.jpg)
-据悉，美国和澳大利亚早先已经商定了一份高超音速武器计划，尽管英国目前不会加入该计划，但三国将在该领域的研发方面开展新的合作。
+德拉吉在回答关于对俄罗斯天然气实施制裁的问题时，问了这样一个具有讽刺性的问题：“我们是更希望和平还是开着暖气？或者是整个夏天一直开着空调更好？”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-07-alle-18.29.11.png)图片来源：imolaoggi.it
+一直到10月底我们的天燃气供应没有问题。我们要到秋天才能看到后果“，他是在批准了DEF(意大利经济、金融计划)之后说的这番话。
 
-报道也提到，俄罗斯当前对乌克兰的入侵战争加剧了全世界对欧洲安全的担忧，美国政府正在全力研发以五倍音速飞行的高超音速导弹。此外，约翰逊首相也重申，全球要坚定不移地致力于建立一个尊重人权、法治，以及在不受胁迫的情况下和平解决争端的国际体系。此外，三国领导人也再次强调了对自由和开放的印太地区的承诺。
+意大利40% 左右的天燃气是依赖从俄罗斯进口。对俄罗斯实行经济制裁会迫使能源严重依赖俄罗斯的西方国家寻找其他方式解决能源危机。俄乌战争改变了世界格局，影响深远。
 
-参考链接：[UK, U.S., Australia agree to work on hypersonics under defence pact](https://www.reuters.com/world/uk-us-australia-agree-work-hypersonics-under-defence-pact-2022-04-05/)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+[https://www.tgcom24.mediaset.it/economia/sanzioni-sul-gas-russo-draghi-preferiamo-la-pace-o-l-aria-condizionata-\_48395349-202202k.shtml](https://www.tgcom24.mediaset.it/economia/sanzioni-sul-gas-russo-draghi-preferiamo-la-pace-o-l-aria-condizionata-_48395349-202202k.shtml)
 
-总编：Irene木木
-编辑：飞虹
-审核：Irene木木
-校正/发稿：Fei797
+
+
+编辑、上传：Xiao baige
 
  
 
