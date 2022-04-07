@@ -2,37 +2,13 @@
 ---
 
 
-## 改编歌曲|Only you can take down CCP
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301714/)
+## 上海的灾难还远远没有到来
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301771/)
 
-改编/演唱：香草山商业部——文锤
+04/06/2022 上海被封男子出离愤怒：我被你们逼死啦！ 我父母被你们封了二个月！我的外婆，独居老人没有人照顾！我只备到4月5日的物资，我没钱了！还有二天我还房贷了！不行共产党就把我收掉吧！
 
-Only you 能消灭盗国贼
-Only you 能保护我
-教战友们有币无苗
-你健身每一天
-就是only you
-Oh oh only you
-能看破生和死
-带领爆料革命
-救援在梅迪卡
-战友们上下都在流水
-最爱看你直播
-灭共有我一个
-南无阿弥陀佛
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-音频处理：呼吸的雾霾（文小呼吸）
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

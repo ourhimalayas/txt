@@ -2,25 +2,30 @@
 ---
 
 
-## 阿尔伯塔省首席卫生官被免职
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301597/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
 
-采编/编译撰稿：加拿大温哥华扬帆农场 – 薇文
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-677.png)图片来源：The National Telegraph
 
+校对：Stay文苑
 
-据加拿大[国家电讯报]4月4日报道，因在疫情期间的工作失误和管理不善，阿尔伯塔省首席卫生执行官维尔纳·姚于当天被省政府正式解雇。
+编辑：Stay文苑
 
-报道称，阿省卫生部负责人在疫情期间独断专行，甚至非法篡改所有住院和ICU病床数量等疫情信息，并由于参考了这些错误数据而使该省的医疗系统表现出始终处于崩溃边缘，而实际上政府的医疗资源却未被充分利用。
+发稿：Stay文苑
 
-据悉，姚曾此前还试图解雇该省卫生系统内2.6万多名未接种疫苗的医护人员，以实现高接种率目标。其所作所为导致疫情看起來需要更严格的封锁和限制才能被解决。
+新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
+访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
 
-校对编辑：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
 
-发稿：青青
-
-新闻来源： [Dr. Verna Yiu Has Been Removed As Alberta Health Services CEO](https://thenationaltelegraph.com/regional/breaking-dr-verna-yiu-has-been-removed-as-alberta-health-services-ceo)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

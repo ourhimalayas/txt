@@ -2,18 +2,28 @@
 ---
 
 
-## 俄乌双方都在厉兵秣马、枕戈待旦，大战一触即发！
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2301860/)
+## 樱花时政┃俄罗斯外交部狂言 要对日本进行报复
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301909/)
 
-编辑：文宝
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-10.jpg)
-这是目前乌克兰战场大致的态势图。貌似是双方要在乌东决一雌雄的节奏。首先，乌占据天时地利人和的绝对优势，已有近千辆苏版升级坦克正在源源不断地从波兰运抵乌国不说，更有美英德各种先进的导弹和无人机以及155毫米的大口径榴弹炮也在运抵乌国的路上。而且，澳大利亚也给乌克兰空运了作战性能特先进的战车。关键是，乌军士气高涨，单兵作战能力明显强过鹅匪，而且乌军的指挥系统完全垂直到了基层。所以，他们还会像上个月那样，随时接收北约以及美军德国空军基地发送的信息情报，运用各种先进的肩扛导弹，精准伏击鹅匪的坦克和战车。总之，击毁的坦克和战车越多，也就意味着歼灭敌人的有生力量越多。
-乌现在不急啊，就跟鹅耗上了，看看最终谁把谁给耗死。未来，乌把鹅赶出去或者鹅城由于内变而自己无条件主动撤走，都不会改变鹅城毁灭的命运，因为全球正义的力量，是绝对不会再给其任何咸鱼翻身的机会的。接下来，虽然有冻僵的蛇，但绝不会有东郭先生的，因为，主导对鹅城话语权的是美帝和大英，法德还真不算个什么！
-5月的乌东战场，注定是鹅帝的滑铁卢！
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃俄罗斯外交部狂言-要对日本进行报复.png)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=SECURITY-,Putin%E2%80%99s%20Invasion%20Is%20a%20Turning%20Point%20in%20Japan%E2%80%99s%20Relations%20with%20Russia,-James%20Brown)
 
-原文链接：[https://weibo.com/u/5299926269?layerid=4755415663641022](https://weibo.com/u/5299926269?layerid=4755415663641022)
+俄罗斯外交部发言人批评日本政府以入侵乌克兰为由对俄罗斯实施制裁，并宣布打算采取报复性措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Discord-QR-2.png)DISCORD
+4月6日，俄罗斯外交部发言人扎哈罗娃严厉批评日本政府实施制裁，包括冻结俄罗斯中央银行的资产，称其正在破坏多年来建立的日俄互利关系。还指责岸田政府 “为了自私的政治目的而牺牲了社会和经济利益”。并且宣称将”采取有效的报复措施”来回应日本的制裁。
+
+信息来源：
+[ロシア外務省報道官　日本への報復措置を断言](text=%E3%83%88%E)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

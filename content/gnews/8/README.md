@@ -2,35 +2,60 @@
 ---
 
 
-## 美国对俄罗斯暗网市场和加密货币交易所实施制裁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2301789/)
+## COVID-19疫苗副作用集萃（2022.4.7）&#8211;宝宝快三个月时，老公确诊白血病
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301873/)
 
-![](https://s.yimg.com/ny/api/res/1.2/ljfkntXxoK.eSMgdmkYJHA--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTY0MDtjZj13ZWJw/https://s.yimg.com/uu/api/res/1.2/YgNR2ho40aTQuNqEkTUfiA--~B/aD01MzM7dz04MDA7YXBwaWQ9eXRhY2h5b24-/https://media.zenfs.com/en/reuters.com/4c923856ab3e9c4bf8b109e358ca7884)美国财政部（资料图）
-《路透社》华盛顿4月5日报道，美国财政部周二对一个著名的俄罗斯暗网市场网站和一家加密货币交易所实施制裁。并称该交易所主要在莫斯科和圣彼得堡运营。
-财政部长珍妮特·耶伦(Janet Yellen)称，美国财政部网站上公布的对Hydra和加密货币交易所Garantex的制裁，“今天向犯罪分子发出了一个信息，那就是你不能躲在暗网或其论坛上。”
-根据区块链研究人士称，2019年俄罗斯加密交易所直接收到的非法比特币中约有86%来自Hydra，美国财政部称其为世界上“最大和最出名的暗网市场”。
-财政部表示，新的制裁措施禁止美国人向Hydra或Garantex提供或接受“任何捐款或提供资金、货物或服务”。
-财政部还表示，这项制裁措施禁止美国与Hydra和Garantex进行交易，并寻求冻结它们在美国管辖范围内的任何资产，这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品，包括勒索软件活动所做的国际努力的一部分。
-美国财政部与美国司法部、联邦调查局和德国联邦刑事警察一起表示关闭了Hydra在德国的服务器并没收了价值2500万美元的比特币。
-简评：美国财政部长珍妮特·耶伦(Janet Yellen)表示，源自俄罗斯的网络犯罪和勒索软件的全球威胁，以及犯罪头目在那里逍遥法外的能力，令美国深感担忧。可见并不是战争引发对俄罗斯暗网市场和加密货币交易所实施制裁，而是俄罗斯的网络犯罪通过俄罗斯暗网市场和加密货币交易进行，必须通过打击和制裁来制止犯罪。这一根本原因可能引发所有国家对违法犯罪的暗网市场的打击和对规范加密货币交易相关法律法规的出台。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-美国财政部以俄乌战争做为理由，尝试切断非法数字货币和不受控的暗网交易，是在为美国数字（加密）货币监管法规的出台打基础，杀鸡儆猴的来规范美国司法管辖范围内的加密货币交易所及与美元相关的世界各地交易所。再次印证了诸如“喜马拉雅交易所”(HIMALAYA EXCHANGE)等中心化、有责任主体、合法合规的的交易所的重要性，此举正在为数字货币能被各国政府认可树立国际标准。
+整理/编辑：BENJ1
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8713-2.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-新闻链接：[https://finance.yahoo.com/news/u-imposes-sanctions-russian-darknet-181713719.html](https://finance.yahoo.com/news/u-imposes-sanctions-russian-darknet-181713719.html)
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-翻译/简评：Brianchow
+**帖子原文：**
 
-PR：Harvey（叶知秋）
+宝宝快三个月时，老公确诊白血病
 
-* * *
+之前都没症状，突然嗓子疼一开始以为是感冒发炎了，后面又发烧，出月子不久的我开始带着老公跑医院。抽血➕骨穿确诊急性髓系白血病m2高危…
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+一疗没有缓解，一直没能回家接着在医院二疗。终于，二疗结束后你回家过了个年，初七又回了医院，今天是正式开始治疗的第102天。我送完你回家宝宝有些不开心
 
+我和宝宝说，爸爸去打怪兽了。家里有我，你放心！我和宝宝等你平安归来 #急性髓系白血病 #白血病
 
-编辑：【英国伦敦喜庄园编辑部】
+评论选集：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+[小红薯620A56A9](https://www.xiaohongshu.com/user/profile/61cbc189000000001000c201) 回复：
+
+你们这种情况非常多，不胜枚举。打针打的。
+
+Erqi 回复 :
+
+打针会容易得白血病吗
+
+炸毛宝贝 回复 :
+
+是的…特别是打灭活的，越来越多
+
+[明眸善睐MMSLKNN](https://www.xiaohongshu.com/user/profile/5e0caca7000000000100728d) 回复：
+
+请问，他打过xg疫苗吗？
+
+仙啊(作者) :
+
+打了两针
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-683.png)图片来源：小红书
+参考链接:
+
+[宝宝快三个月时，老公确诊白血病](http://xhslink.com/gTF1Ag%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)0
 
  
 

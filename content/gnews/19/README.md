@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
+## 澳大利亚、美国和英国誓要扩大在高超音速武器方面的合作
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301752/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
+04/06/2022 ABC新闻：澳大利亚、美国和英国誓要在“澳-英-美”安全条约（AUKUS）框架下扩大高超音速武器的合作
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
-访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

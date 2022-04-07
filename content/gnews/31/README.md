@@ -2,41 +2,40 @@
 ---
 
 
-## 美国联邦调查局表示捣毁了俄罗斯黑客行动
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2301086/)
+## 中共祭出60年前的“枫桥经验”，意欲何为？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301382/)
 
-翻译：冰糖葫芦喵
+#### 【雅典娜观察】和你一起洞察世界
 
-编辑：冰糖葫芦喵、灭共文明
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
-《路透社》华盛顿4月6日报道，**周三，美国联邦调查局表示，劫持了俄罗斯间谍用来与路由器和防火墙进行通信的基础设施，从俄罗斯军方黑客手中夺取了数千台路由器和防火墙设备的控制权。**
+整理：Mohegayer K. Simon
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/118954407_putin.png.jpg)图片来源：BBC NEWS。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-666.png)图片来源：新浪网 & 雅典娜设计组
 
-据报道，**一份未公开的、经过修改的宣誓书称，这一不寻常的行动是一种先发制人的行动，目的是阻止俄罗斯黑客将被入侵的设备转移到一个“僵尸网络”中**。“僵尸网络”是一个被黑客入侵的计算机组成的网络，可以用恶意流量攻击其他服务器。
 
-美国司法部长梅里克·加兰德说，很幸运，**我们能够在这个僵尸网络被使用之前摧毁它。**美国联邦调查局局长克里斯·雷对记者说，**联邦调查局在获得法庭批准后，秘密侵入数千个路由器和防火墙设备，删除恶意软件并重新配置设备**。
+枫桥经验，是指20世纪60年代初，浙江省绍兴市诸暨县（现诸暨市）枫桥镇干部群众创造的“**发动和依靠群众，坚持矛盾不上交，就地解决，实现捕人少、治安好**”**的经验**，为此，1963年毛贼东亲笔批示“**要各地仿效，经过试点，推广去做**”。
 
-雷说:“我们从全世界数千家用于网络安全的设备上移除恶意软件，其中大多数是小企业。”“我们关上了俄国人用来进入它们的门。”
+由此“枫桥经验”成为中共国政法系统一个“脍炙人口”的典型。之后，“枫桥经验”得到不断发展，中共创造的一种依靠基层群众就地监督改造四类分子，发动群众对“阶级敌人”加强专政的经验在此后的政治运动中被频繁使用，大批基层官员和所谓地、富、反、坏等四类分子被迫害致死或自杀身亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8b30068ebcf24a2491aa75cc1df26b0a.jpg)图片来源：网络摄图。
+1978年邓小平倡导“改革开放”后，“枫桥经验”一度遭冷遇。上世纪90年代，中共又由“枫桥经验”发展出维稳体制中的“社会治安综合治理系统”，包括朝阳群众、红袖箍大妈、网格治理员、网评员（五毛）等等。2013年，在纪念“枫桥经验”50周年期间，习近平高调批示要坚持和发展“枫桥经验”。
 
-报道称，**被攻击的僵尸网络是通过名为“独眼巨人眨眼”(Cyclops Blink)的恶意软件控制的，**美国和英国的网络防御机构曾在2月下旬公开将这种恶意软件归因于“沙虫”(Sandworm)，据称**是俄罗斯军事情报部门的黑客团队之一**，该团队多次被指控实施网络攻击。
+中共为何突然再捧“枫桥经验”？近年来，中共高层内斗激烈，面对中共国经济下行，民怨增加，**再次推出当年的“枫桥模式”，不讲法律，启动“群众斗群众”，可以达到分化基层民众、强化社会控制的目的。**现在中共没钱了，需要免费打手，便力捧“枫桥经验”，其实质就是“群众专政”，早期是针对“四类分子”，后来就变成了各类“不稳定因素”。
 
-根据私营网络安全公司的研究，“**独眼巨人眨眼”是被用来设计劫持沃奇卫士**（WatchGuard Technologies Inc .）**和华硕电脑公司生产的设备。**它为俄罗斯提供了访问这些受损系统的权限，**提供了远程过滤或删除数据的能力**，或将设备针对第三方。
+中共国目前的基层矛盾冲突，主要表现在地方政府的腐败、拆迁、冤案，以及民间各种债务暴雷造成的民怨民愤，靠所谓的“枫桥经验”，是不可能得到缓解的。
 
-沃奇卫士发布了一份声明，证实它与美国司法部合作破坏了僵尸网络；华硕没有立即回复记者的置评请求。
+参考链接：
 
-新闻来源链接：
+1、[中共吹捧“枫桥经验” 原因何在](https://www.epochtimes.com/gb/18/11/19/n10862101.htm)
+2、[可心：中共为何再捧毛泽东“枫桥经验”？](https://www.epochtimes.com/gb/19/6/1/n11294264.htm)
 
-[Exclusive: China state refiners shun new Russian oil trades | Reuters](https://www.reuters.com/business/energy/exclusive-china-state-refiners-shun-new-russian-oil-trades-teapots-fly-under-2022-04-06/)
+*发布：tianzhihuan*
 
-**更多资讯，更多关注
-[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
-[郭文贵先生Gettr](https://gettr.com/user/miles)
-[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
-[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
