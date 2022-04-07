@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 5:48 PM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
+![img](https://media.gettr.com/group32/origin/2022/04/07/17/e292f91e-c2ae-76cc-2b6b-05841bcd3640/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 2:10 PM (UTC)`
 
 Dictatorship comes from the people, but the people can also overthrow a dictator, that is the law of history. As it was in the former Soviet Union, the Chinese Communist Party will also be overthrown or disintegrated<br/>独裁来自于人民，但人民也可以推翻独裁者，这是历史规律。前苏联如此，中共也会被推翻或者解体
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 2022.04.06 晚 新中国联邦 | 新闻    上海新增病例持续破万，中共出动武警严管，市民发起团购自救
 ![img](https://media.gettr.com/group6/origin/2022/04/07/00/8243fea7-db13-3344-f1e8-09792c0def03/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 12:22 AM (UTC)`
-
-4/6/2022 Ukraine Rescue: Numerous young people want to go to Ukraine to fight for righteousness and the innocent lives slaughtered during the war. While the earth is coming back to life in the warm sunshine of the Spring day, flames of war shattered the people' s homes. Fellow fighters, please cherish every moment of the peaceful days!<br/><br/>4/6/2022 乌克兰救援连线：无数年轻人都想去乌克兰为正义和被屠戮的无辜生命而战；大地在春日的暖阳中复苏，而战火却击碎了老百姓的家园，请战友们珍惜和平日子的每分每秒！<br/>
-![img](https://media.gettr.com/group34/getter/2022/04/07/00/8283be7e-51f1-b3ec-1a26-8c242f7b05d0/out.jpg)
 
 ---
 
