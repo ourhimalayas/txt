@@ -3,10 +3,10 @@
 
 
 ## 有声|香港在流血
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305586/)
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305607/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+粵語配音：香草山香港部-格格樹
+
 谢谢你，陌生人
 给我拥抱和鼓励
 当我讲起家乡的
@@ -76,7 +76,7 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

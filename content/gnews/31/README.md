@@ -2,27 +2,38 @@
 ---
 
 
-## 台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305097/)
+## 北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2305208/)
 
-**港台前线 zhong｜2022-4-7**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-9.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-日本政府消息人士透漏，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本，与首相岸田文雄会谈，针对俄侵略乌克兰寻求美日合作。访问日本之后，原计划访问南韩。
+***评论：**芬兰与瑞典均是1995年才加入欧盟。在2014年，俄罗斯进兵克里米亚后，两国曾考虑放弃中立并加入北约。如今，伴随今年的俄乌危机，两国国民支持加入北约的比例均大幅增加。但是，考虑到对欧洲安全局势产生不利影响，并进一步增加现有紧张局势的风险，芬兰和瑞典均称尚不考虑加入北约。而乌克兰申请加入北约就没有如此顺利了，正如乌克兰总统泽连斯基表示，“因为德国和法国在2008年的布加勒斯特北约峰会上拒绝了乌克兰加入北约，导致该国布查市发生了一系列平民死亡的事件”。*
 
-台湾媒体4月7日报导称，知情人士消息，裴洛西可能取消访问南韩，改访台湾。此消息一出，尚未经过美台官方证实，便受到多国媒体关注。前次美国现任众议院议长访台纪录为1997年。
+据《路透社》记者Robin Emmott， 2022年4月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-756-e1649351348807.png)图片来源：REUTERS/Gonzalo Fuentes/File Photo
+布鲁塞尔，4 月 5 日（路透社）—北约秘书长斯托尔滕贝格周二表示，如果芬兰和瑞典决定加入北约，北约盟国将欢迎它们加入，但任何行动都取决于这两个国家。
 
-中共外交部发言人赵立坚对此消息表示“如果美方一意孤行，中方将采取强硬措施捍卫国家主权和领土完整。”
+斯托尔滕贝格在新闻发布会上表示:“当然，这要由他们来决定，但如果他们提出申请，我预计30个盟国将欢迎他们。”
 
-然而，本消息尚未得到官方认证，裴洛西便爆出无症状感染新冠病毒，据外媒报导她本人接种了三剂新冠疫苗，感染可能与先前参与的晚宴有关，该晚宴已发现多名记者、参加者确诊新冠。
+他表示，北约可能会想方设法“解决他们对过渡时期（从申请到最后一次由盟国批准）可能存在的担忧之间的”，指的是俄罗斯可能在两国完全受到北约保护之前进行报复。
 
-裴洛西原定出访日本、南韩，可能因确诊而延期。
+文章观点仅代表作者个人，与Gnews平台无关
 
-来源｜[npr](https://www.npr.org/2022/04/07/1066212755/speaker-nancy-pelosi-has-tested-positive-for-covid)、[cnbc](https://www.cnbc.com/2022/04/07/house-speaker-nancy-pelosi-tests-positive-for-covid-is-not-experiencing-symptoms.html)
+文章来源: [https://www.reuters.com/world/europe/if-finland-sweden-apply-join-nato-they-would-be-welcomed-stoltenberg-says-2022-04-05/](https://www.reuters.com/world/europe/if-finland-sweden-apply-join-nato-they-would-be-welcomed-stoltenberg-says-2022-04-05/)
 
-* * *
+翻译：洛杉矶盘古农场 –钢蛋儿
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+校对：洛杉矶盘古农场 – HotPixel
+
+评论：洛杉矶盘古农场 –钢蛋儿
+
+编辑：洛杉矶盘古农场 –傻小子
+
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

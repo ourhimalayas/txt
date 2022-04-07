@@ -2,27 +2,25 @@
 ---
 
 
-## 花旗银行暂停其SPAC业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305665/)
+## 中共国内清明假期出行比率暴跌
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305676/)
 
-作者：骄子
+作者：Naughty(文行)
 
-据相关媒体4月5日报道，在美国证券交易委员会SEC提出了新的规定后，花旗银行随即宣布暂停其SPAC业务。
+当地时间4月6日，据相关媒体报道，鉴于中共以疫情为由对墙内各地区实行的强制封控政策，在2022年为期三天的清明节假期中，中共国内民众的出行比率比去年下降了近三分之二。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.jpeg)
 
-资料显示，SPAC公司是美国金融市场特有的一种金融工具，又被称为空壳公司。此类公司可以帮助初创公司在短时间内获得巨量融资并上市，因此，其对真正想要创业的公司来说益处颇丰。然而，SPAC公司的风险也是巨大的：它们很容易被洗钱集团操控。例如，中共特务吴征的壳公司DWAC早先通过与美国前总统川普的“真相社交”媒体平台合并上市，骗取了大量川普支持者的资金。
+数据显示，4月3日至4月5日，中共国内包括铁路、航空、水路和公路在内的总出行数大约不到五千四百万次，较去年同期下降了63%，甚至低于2020年中共病毒疫情伊始之时。其中，墙内的航空旅行受到的影响最为严重：清明假期内的乘客总数仅有56万人，相比去年暴跌了87%。此外，墙内民众的公路旅行频率也较去年减少了53%。
 
-据悉，花旗银行在2021年的SPAC业务额高达220亿美元，占据了市场份额的14%，位列全球首位。其后，花旗与美国某电动汽车制造商的交易引发了美国SEC的调查，这也导致了花旗的SPAC业务在去年年底开始下跌。
+目前，中共当局正在对出行民众执行严格的管控和病毒检测措施，全国大约有23个城市的1.93亿民众均受到了波及。
 
-有分析人士认为，花旗银行此次宣布暂停SPAC业务的做法可能会引起其他银行的效仿。
-
-参考链接：[Citi hands SEC a SPAC victory](https://www.reuters.com/breakingviews/citi-hands-sec-spac-victory-2022-04-05/)
+参考链接：[China holiday travel slumps after COVID outbreaks – state media](https://www.reuters.com/world/china/china-holiday-travel-slumps-after-covid-outbreaks-state-media-2022-04-06/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-总编/审核：Irene木木
-编辑：宁文静
+总编/编辑：Irene木木
+审核：飞虹
 校正/发稿：谐趣园
 
  

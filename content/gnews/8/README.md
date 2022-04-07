@@ -2,35 +2,28 @@
 ---
 
 
-## 有声|中共公安威胁民众噤声，行为遭网友贬斥
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305639/)
+## 花旗银行暂停其SPAC业务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305665/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月4日上午，上海市公安副局长张亚宏，在疫情新闻发布会上警告上海市民，不得自行发布和转发有关疫情信息。任何对未经中共官方核准的疫情信息的传播，均可能触犯有关法律，并受到严惩。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-16.jpg)
-自4月以来，上海疫情蔓延，但中共实行“清零”措施，严加封控，民众缺粮少菜，有病不能医，造成多人自杀或意外死亡，发生了惨不忍睹的人道灾难。 中共向来从不倾听民意，也不关心民众疾苦，其公安部门反而用“网络不是法外之地”等威胁民众，祭出独裁政权的暴力恐吓民众，达到封杀疫情真实惨状的目的。其野蛮行径已激起民愤，引发网络上的一致抗议与驳斥。 有网友说，人民已不相信中共控制的媒体。上海网友直接质疑上海官方曾宣告不封城，或四月五日即解封等官方制造的谣言。甚至有民众直面中共当局的无知，互联网时代的真实信息是无法掩盖的，辟谣的最好方式是向老百姓公布真相。
+作者：骄子
 
+据相关媒体4月5日报道，在美国证券交易委员会SEC提出了新的规定后，花旗银行随即宣布暂停其SPAC业务。
 
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-3.jpeg)
 
-文字版原文：[中共公安威胁民众噤声，行为遭网友贬斥](https://gnews.org/zh-hans/2302146/)
+资料显示，SPAC公司是美国金融市场特有的一种金融工具，又被称为空壳公司。此类公司可以帮助初创公司在短时间内获得巨量融资并上市，因此，其对真正想要创业的公司来说益处颇丰。然而，SPAC公司的风险也是巨大的：它们很容易被洗钱集团操控。例如，中共特务吴征的壳公司DWAC早先通过与美国前总统川普的“真相社交”媒体平台合并上市，骗取了大量川普支持者的资金。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+据悉，花旗银行在2021年的SPAC业务额高达220亿美元，占据了市场份额的14%，位列全球首位。其后，花旗与美国某电动汽车制造商的交易引发了美国SEC的调查，这也导致了花旗的SPAC业务在去年年底开始下跌。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+有分析人士认为，花旗银行此次宣布暂停SPAC业务的做法可能会引起其他银行的效仿。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+参考链接：[Citi hands SEC a SPAC victory](https://www.reuters.com/breakingviews/citi-hands-sec-spac-victory-2022-04-05/)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+总编/审核：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
 
  
 
