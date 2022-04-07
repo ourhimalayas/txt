@@ -2,57 +2,40 @@
 ---
 
 
-## 有声|醒来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305623/)
+## 有声|中共银行周末紧急开会布置防挤兑措施
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305654/)
 
-粵語配音：香草山香港部-格格樹
-
-从黑暗中醒来
-再也无法安睡
-接触到真相
-再不能与虚假为伍
-醒来的人
-悲壮着
-抵抗各类攻击和污蔑
-就算只剩一个人
-也不独孤
-当黑暗笼罩一切
-我燃烧我自己
-为人们照亮
-前行的路
-我的信仰
-支撑我到胜利那一刻
-拯救了一个人
-便是拯救了整个世界
-来吧
-把所有的
-你们可以发明的肮脏
-泼向我
-请不要迫使
-无辜人们
-流离失所
-如果有一天我终将离去
-牺牲证明我没有放弃
-如果那一天
-我已经离去
-天和地之间
-存留着
-关于我的传说
-
-文字版原文：[醒来](https://gnews.org/zh-hans/2302663/)
-
-音频处理：Fei797
-发稿：Fei797
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+配音：香草山佛教部 – 李傻
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-17-1.jpg)
+
+
+郭文贵先生在4月4日的盖特直播中透露，中共的几大商业银行在刚刚过去的这个周末，纷纷召开了紧急会议布置措施，防止这星期有可能发生的银行挤兑。   会议要求凡是取款超过5万元人民币的，或是企业取款超过工资发放水平的，银行均需报上一级领导批准；同时，当地公安机关和纪委都将派驻专员进入企业，监督提款和资金的使用情况。   郭先生指出，中共国所谓前十大房地产开发商，包括融创、恒大、保利、富力、合生创展和碧桂园等，都处于欠债不还的状态，而被其拖欠债务的建设施工单位和装修公司都陷入了资金周转不灵的破产边缘。整个中共国经济的崩塌，包括银行、房地产的倒塌即将到来！
+
+
+
+文字版原文：[中共银行周末紧急开会布置防挤兑措施](https://gnews.org/zh-hans/2302147/)
+
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

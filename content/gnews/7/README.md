@@ -2,81 +2,28 @@
 ---
 
 
-## 有声|香港在流血
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305586/)
+## 美财政部长将就加密市场监管及政策发表演讲
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305631/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-谢谢你，陌生人
-给我拥抱和鼓励
-当我讲起家乡的
-悲惨故事
+作者：Noemi
 
-香港在流血
-年轻的生命
-一个个被消失
-自由行走在权利
-被拉下来强硬帷幕
-香港香港
-它在受着伤
+4月6日，据相关媒体消息显示，美国财政部长珍妮特-耶伦将于本月7日就加密市场的监管及政策发表首次演讲。
 
-自由选举
-被无情剥夺
-虚伪政客
-在台子上义正严辞
-私下里卿卿我我
-交易的勾当
-做的不亦乐乎
-香港
-变成了邪恶乐土
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-2.jpeg)
 
-海风啊
-请阻止那一列列
-开往深圳的列车
-列车里是我们年轻的孩子
-被绳索捆绑的结结实实
-嘴巴里堵着臭袜子
-可是，你们看
-他们坐的
-多么直
+据悉，耶伦将在演讲中概述财政部为调查数字资产的使用和技术可以采取的可能步骤。此外，联邦政府还将为加密货币市场建立一个“全面的政策框架”。早先，美国总统拜登也签署了一项行政命令，当中指示联邦机构加速研究加密货币的风险和收益。
 
-海风啊
-请阻止那一列列
-开往深圳的列车
-列车里是我们年轻的孩子
-被绳索捆绑的结结实实
-嘴巴里堵着臭袜子
-可是，你们看
-他们坐的
-多么直
+对此，郭文贵先生曾在直播中爆料称，美国将会在2022年年底前为加密货币的监管出台一整套完整的法律体系，以此促使加密货币市场完全合法化。而随着该系列法律、法规的出台，喜币则有望成为加密货币市场中最具价值的行业标杆。
 
-我们的孩子
-用生命和勇气
-捍卫香港自由民主
-流着血受着伤
-手里的雨伞
-支撑着坚强
-独裁者的凶狠
-打不折不屈膝盖和脊梁
-香港，香港
-受着伤
-还在刚强
+参考链接：[Treasury Secretary Janet Yellen will deliver her first speech on crypto and call for a ‘comprehensive policy framework’](https://markets.businessinsider.com/news/currencies/janet-yellen-treasury-speech-crypto-regulation-digital-asset-tokens-policy-2022-4)
 
-文字版原文：[香港在流血](https://gnews.org/zh-hans/2302742/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-音频处理：Fei797
-发稿：Fei797
+总编/审核：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

@@ -2,26 +2,19 @@
 ---
 
 
-## 俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2304749/)
+## 文贵大直播|新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2304763/)
 
-**港台前线 zhong｜2022-4-7**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院6日“一致性”通过了“2022年乌克兰民主防卫租借法案”（The Ukraine Democracy Defense Lend-Lease Act of 2022），旨在简化程序、降低官僚主义影响，加快向乌克兰提供关键军援、补给，协助抵御普京无端的袭击。
+撰稿：东京樱花团/風鈴
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-07_233716.png)
+用任何语言都无法表达对前线战友的敬佩和感激，新中国联邦的乌克兰前线救援行动刷新了中国人的形象，改变了世界上很多人对中国人的看法，靓丽风景之一的灭共黄马甲吸粉无数。乌克兰救援之举感动了无数人，也让中国人为此自豪，救援中心的大帐篷就像是黑暗中的一盏灯，乌克兰救援前线战友的形象给世界，尤其是海外华人，带来了希望。
 
-参议院多数党领袖查克．舒默（Chuck Schumer ）于会议称，在布查镇的屠杀是“纯粹的邪恶、俄军在乌克兰进行种族灭绝”。此外，他明确表示普京杀害无辜的平民是种族灭绝罪行。
+消息来源：
+[2022年4月3日《文贵大直播》](https://www.gettr.com/streaming/p13c6fub6b6)
 
-美国参议院“一致性”通过租借法案的意义非凡，但仍须经过众议院决议通过后，总统签署、发布后生效。
-
-4月1日外媒采访德克萨斯州参议员约翰·科宁（John Cornyn），他大力推动“2022年乌克兰民主防卫租借法案”。他向媒体表示：“乌克兰军队证明了抗俄的勇气，努力得到国会两党的广泛支持，美国国会已批准大量对乌的军援，配合『租借法案』将减少程序障碍，确保及时向乌克兰运送武器、物资及其他必需品”。
-
-来源｜[POLITICO](https://www.politico.com/news/2022/04/06/senate-unanimously-approves-lend-lease-00023668)
-
-* * *
-
-▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-
+编辑：东京樱花团/曲别针
+发布：东京樱花团/承宇
+![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

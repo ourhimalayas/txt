@@ -2,25 +2,32 @@
 ---
 
 
-## 国际社会将进一步制裁俄罗斯
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305209/)
+## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
 
-作者：MOS 柳是多水土透，纽约香草山教育部 Naughty(文行)
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
 
-当地时间4月5日，据相关媒体报道，英国外交大臣利兹-特拉斯在当天访问华沙时表示，英国已经冻结了俄罗斯总统普京的“战争基金”中约三千五百亿美元的资产。此外，特拉斯也呼吁国际社会继续加强对莫斯科当局的制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-52.jpg)
-对此，欧盟理事会当天提议追加对俄罗斯的制裁：该新措施将阻止俄罗斯约220亿美元的贸易。其中，欧盟将停止进口俄罗斯的煤炭、木材、水泥、酒精饮料和海产品，甚至包括伏特加、橡胶和化工业共计年销售额约104亿美元的产品。同时，欧盟将不再向俄罗斯出口先进半导体、量子计算机和其它电气及运输设备。另外，俄国的船只和货运卡车将不被允许进入欧盟，且俄罗斯外贸银行和另外三家银行的所有跨境交易将被停止，而所有的俄罗斯企业也不再有机会参与欧盟的公开招标。据悉，还有36个新的俄罗斯寡头和政客已经被列入至欧盟此处的制裁名单中。
+7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
+值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
 
-报道也提到，截止目前，国际社会采取的制裁措施已经对支持普京战争的个人或机构产生了严重影响，尤其是此次英国的制裁将导致普京政府60%以上的外汇储备无法使用。 目前，英国也在敦促北约和七国集团伙伴对那些向普京提供战争资金的行业实施限制。
+乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
 
-参考链接：
-1. [Factbox: EU targets coal, vodka, vessels in new Russian sanctions sweephttps://www.reuters.com/world/europe/eu-targets-coal-vodka-vessels-new-russian-sanctions-sweep-2022-04-05/](//www.reuters.com/world/europe/eu-targets-coal-vodka-vessels-new-russian-sanctions-sweep-2022-04-05/)
-2. [Britain says $350 billion of ‘Putin’s war chest’ frozen](https://english.alarabiya.net/News/world/2022/04/05/Britain-says-350-billion-of-Putin-s-war-chest-frozen)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编/编辑/审核：Irene木木
-校正/发稿：Fei797
+> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
+> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
+
+
+
+来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
+
+* * *
+
+▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

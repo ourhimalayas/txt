@@ -2,20 +2,22 @@
 ---
 
 
-## 美财政部长将就加密市场监管及政策发表演讲
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305631/)
+## 花旗银行暂停其SPAC业务
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305665/)
 
-作者：Noemi
+作者：骄子
 
-4月6日，据相关媒体消息显示，美国财政部长珍妮特-耶伦将于本月7日就加密市场的监管及政策发表首次演讲。
+据相关媒体4月5日报道，在美国证券交易委员会SEC提出了新的规定后，花旗银行随即宣布暂停其SPAC业务。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-3.jpeg)
 
-据悉，耶伦将在演讲中概述财政部为调查数字资产的使用和技术可以采取的可能步骤。此外，联邦政府还将为加密货币市场建立一个“全面的政策框架”。早先，美国总统拜登也签署了一项行政命令，当中指示联邦机构加速研究加密货币的风险和收益。
+资料显示，SPAC公司是美国金融市场特有的一种金融工具，又被称为空壳公司。此类公司可以帮助初创公司在短时间内获得巨量融资并上市，因此，其对真正想要创业的公司来说益处颇丰。然而，SPAC公司的风险也是巨大的：它们很容易被洗钱集团操控。例如，中共特务吴征的壳公司DWAC早先通过与美国前总统川普的“真相社交”媒体平台合并上市，骗取了大量川普支持者的资金。
 
-对此，郭文贵先生曾在直播中爆料称，美国将会在2022年年底前为加密货币的监管出台一整套完整的法律体系，以此促使加密货币市场完全合法化。而随着该系列法律、法规的出台，喜币则有望成为加密货币市场中最具价值的行业标杆。
+据悉，花旗银行在2021年的SPAC业务额高达220亿美元，占据了市场份额的14%，位列全球首位。其后，花旗与美国某电动汽车制造商的交易引发了美国SEC的调查，这也导致了花旗的SPAC业务在去年年底开始下跌。
 
-参考链接：[Treasury Secretary Janet Yellen will deliver her first speech on crypto and call for a ‘comprehensive policy framework’](https://markets.businessinsider.com/news/currencies/janet-yellen-treasury-speech-crypto-regulation-digital-asset-tokens-policy-2022-4)
+有分析人士认为，花旗银行此次宣布暂停SPAC业务的做法可能会引起其他银行的效仿。
+
+参考链接：[Citi hands SEC a SPAC victory](https://www.reuters.com/breakingviews/citi-hands-sec-spac-victory-2022-04-05/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
