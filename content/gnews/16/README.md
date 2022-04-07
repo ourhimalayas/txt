@@ -2,27 +2,24 @@
 ---
 
 
-## 英国敦促七国集团升级对俄制裁
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302148/)
+## 视频|普京和习近平面临的三个不可逆转的问题
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2302280/)
 
-作者：华盛顿DC农场-自由信仰
-![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
-外媒4月5日报道，英国敦促 G7 及北约禁止俄罗斯船只进入其港口，商定逐步停止从俄罗斯进口石油和天然气的时间表，并加强对俄银行和关键行业的制裁。
+制作：香草山视频部
 
-英外交大臣丽兹·特拉斯，在北约和 G7 会议之前发表讲话时强调，将于本周四敦促北约及伙伴国进一步实施制裁俄罗斯，打击更多俄罗斯银行及像黄金一样填补普京战争宝库的行业。呼吁统一明确的时间表，消除对俄罗斯石油、煤炭和天然气的进口。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-18.jpg)
-现有制裁已冻结3500亿美元的俄罗斯资金，导致俄罗斯60%以上的外汇储备无法使用，所有协调制裁正在将俄罗斯经济推回苏联时代。 丽兹·特拉斯在与波兰外交部长兹比格涅夫一起讲话时表示，两国已同意升级对俄制裁，同时增加对乌克兰的武器供应。
+4月3日，郭文贵先生在大直播中指出，俄乌战争持续的这一个多月以来，俄罗斯普京作为入侵乌克兰的侵略者，以及习近平作为支持此次侵略战争的金主，他们都面临着三个不可逆转的问题：
 
-参考链接：[UK urges G7 to ban Russian ships and set timetable for oil and gas exit](https://www.reuters.com/world/uk-urges-g7-ban-russian-ships-set-timetable-oil-gas-exit-2022-04-05/)
+首先，普京和习近平二人的身体健康问题正在恶化；其次，俄罗斯和中共的经济在未来五至十年间必将持续衰退；最后，中俄两国人民的形象在未来几十年，甚至一个世纪里，都很难再次得到国际社会的认可。
 
-![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
+郭先生指出，为了维持各自长期的独裁统治，普京和习近平对乌克兰发动战争，强行将两国人民绑架在这场非法入侵的战车上，让其他国家正义、善良，以及爱好和平的民众痛恨和厌恶。与此同时，除却西方世界对俄罗斯和中共的经济制裁，两国人民对二者邪恶独裁统治的痛恨，已经导致他们对中共国和俄罗斯未来经济的发展失去信心。
 
-总编：天滅中共
-编辑：静言
-审核：Irene木木
-校对/发稿：Hetangyuese
-![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
-![此图像的alt属性为空；文件名为Gnews-logo-1-87.png](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+对此，郭先生强调，鉴于当前战争仍在继续，俄罗斯和中国的民众只有选择站在乌克兰一方，并尽力向全世界传达，发动战争的普京和支持战争的习近平都不能代表两个国家的人民，同时，两国百姓应努力促进战争早日结束，而这些才是救赎两国人民的真正出路。
+
+发稿：林礼
+
+**更多资讯，更多关注**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
 
  
 

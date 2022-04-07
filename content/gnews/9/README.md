@@ -2,24 +2,36 @@
 ---
 
 
-## 视频|越多人参与才会使社交媒体会越来越好
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2302372/)
+## 澳大利亚电信公司Telstra推出诈骗短信过滤器
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302440/)
 
-制作：香草山视频
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-郭文贵先生在4月3日的大直播中解析了诶隆-马斯克的社交媒体与新中国联邦媒体平台的区别。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/121208537_gettyimages-1233763787.jpg)图片来源：BBC
+根据Northern Beaches Review4月7日报道，Telstra正在推出一种全新的短信诈骗过滤器，因为澳大利亚最大的电信提供商在其网络上遇到大量恶意短信。
 
-郭先生指出，仅以社交媒体平台的发展来看，马斯克所做出的成果必然远远超过脸书和推特，领先全球。但倘若以平台的理念为评估，新中国联邦所属媒体的目标是马斯克无法企及的。
+Telstra表示，诈骗短信不仅令人讨厌，而且具有恶意，有可能窃取人们的钱财或安装恶意软件来窃取个人信息、入侵他们的网上银行并感染他们的联系人。
 
-郭先生解释道，新中国联邦目前正在改变共产党、俄罗斯，甚至是世界的政治板块；而我们媒体的宗旨是颠覆共产党流氓集团的政权、铲除人类社会中最大的恶魔，并拯救中国十几亿人口。因此，相较于新中国联邦建立的有情怀、有信仰的媒体，马斯克的平台则将是一个绝对成功的商业社交媒体。
+“我们网络上的诈骗短信数量正在上升：2021年，我们收到了超过 11,000份针对安卓设备的恶意短信报告，而2020年只有50份。”首席执行官安迪·佩恩 (Andy Penn) 说。
 
-为此，郭先生也强调称，相比中共一家独大的流氓心态，马斯克加入社交媒体平台的竞争行列将有利于世界的发展，且任何领域和环境都只有在竞争中才能逐渐趋向平衡，从而最终变得文明而伟大，并真正造福于百姓。
+澳大利亚竞争和消费者委员会去年指出，电话是诈骗者瞄准受害者的最常见方式，也是在经济损失方面最成功的方式。
 
-发稿：林礼
+ScamWatch估计澳大利亚人去年因电话诈骗损失了6360万美元。
 
-**更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+作为其清洁管道计划的一部分，Telstra在过去一年中阻止了超过1亿个诈骗电话。
+
+这家电信运营商表示，其新的短信诈骗过滤功能将有助于解决这个问题，在诈骗短信到达移动设备之前就在网络层面上进行拦截。
+
+资料来源：[Telstra rolls out scam text message filter](https://www.northernbeachesreview.com.au/story/7690235/telstra-rolls-out-scam-text-message-filter/?cs=9676)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
