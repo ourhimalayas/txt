@@ -2,46 +2,56 @@
 ---
 
 
-## 新西兰财经G乐部2022年4月6日:财经新闻整理
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2298846/)
+## 北约外长会议将中共国对人类安全和民主国家的系统威胁摆上正式议程
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2299530/)
 
-采集整理：蚂蚁的城堡
-![](https://assets.gnews.org/wp-content/uploads/2022/04/WhatsApp-Image-2022-04-06-at-3.12.12-PM.jpeg)
-正文
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-**1、不良资产管理公司和头部央企国企助力房企**
-![img](https://media.gettr.com/group5/origin/2022/04/06/05/698a8025-d642-0a82-9b81-cbdcf5f72305/229d8c0fb032c32105b4edec2e5d9c14_500x0.png)
-2022年4与5日，招商蛇口公告称，其与长城资产、佳兆业签署了《战略合作协议》，各方拟建立战略合作关系，在城市更新、房地产开发、商业综合体经营等领域开展合作，实现优势互补、互利共赢、共同发展的战略目标。长城资产成立于 1999 年，是一家致力于收购、受托经营金融机构不良资产，对不良资产进行管理、投资和处置，对股权资产进行管理、投资和处置的企业。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-财经G评：不良资产公司购入的不良资产最后是老百姓买单！
+2022年4月6日至7日，北约外长会议将在布鲁塞尔举行，会议重点讨论普京总统对乌克兰的野蛮无端入侵。北约盟国将加大对乌克兰自卫权的支持，包括反坦克武器、防空系统和其他设备，以及增加人道主义援助和财政援助。乌克兰、芬兰、瑞典、格鲁吉亚和欧盟，以及北约的亚太伙伴——澳大利亚、日本、新西兰和韩国外长也将列席会议。
 
-链接 [https://m.21jingji.com/article/20220405/herald/f8de9db168fe34d4bb3f4decb5aad8fe\_ths.html](https://m.21jingji.com/article/20220405/herald/f8de9db168fe34d4bb3f4decb5aad8fe_ths.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/220405-flags_rdax_775x440p.jpg)WhatsApp
 
-**2、重庆百货两年赚20亿蹊跷分红30亿**
-![img](https://media.gettr.com/group39/origin/2022/04/06/05/1e0de33d-27c0-4691-a35e-766498232185/237e6f5b0431325247ce8229587123a2_500x0.png)
-近日，重庆百货披露2021年度利润分配预案，重庆百货盈利9.80亿元。盈利9.80亿元却要分红15亿元。2021年，公司实现营业收入211.24亿元，归属于上市公司股东的净利润9.80亿元，同比下降6.68%。大规模派发现金红利，重庆百货变相利益输送给大股东——重庆商社持有公司51.41%股权。重庆商社将通过分红获得约7.72亿元！
+北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）在会议前的讲话中说，几天来，我们都在俄罗斯侵略军控制的布查和其它地方看到了被谋杀的平民的可怕画面，这是欧洲数十年来已经没有发生的惨绝人寰的暴行。瞄准和谋杀平民是战争罪。所有的事实都非常清楚，必须将所有应对这些暴行负责的人绳之以法。北约盟国支持包括通过联合国和国际刑事法院的调查。
 
-链接 [https://finance.sina.com.cn/chanjing/gsnews/2022-04-06/doc-imcwipii2566655.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-04-06/doc-imcwipii2566655.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/220405a-006_rdax_775x440s.jpg)Press conference by NATO Secretary General Jens Stoltenberg ahead of the meetings of NATO Ministers of Foreign Affairs on 6 and 7 April 2022
 
-**3、美国SEC拟出台新规，花旗将暂停SPAC发行**
-![img](https://media.gettr.com/group19/origin/2022/04/06/05/1b0585b1-a5a1-1903-936e-6b1a8ccf6d60/92b40b1c4e1996b7c880fad6d5d3ae41_500x0.png)
-花旗集团等一些承销商已经暂停了美国新成立的特殊目的收购公司(SPAC)的IPO，直到对最近出台的新规可能带来的法律风险有更明确的了解。上周，美国证监会（SEC）发布了一项全面的计划，将加强对特殊目的收购公司(SPAC)的监管，此前美国议员和投资者维权人士称，SPAC上市绕过了传统IPO的规定，将散户投资者置于风险之下。花旗集团是美国最多产的SPAC承销商之一，其SPAC发行数量在2020年和2021年分别排名第二和第一。在这两年的时间里，该公司通过146宗IPO筹集了316亿美元。
+乌克兰武装部队进行了英勇的抵抗，从俄罗斯侵略者手中夺回领土，并迫使俄罗斯改变其作战计划。
 
-链接 [https://www.bloomberg.com/news/articles/2022-04-04/citi-said-to-pause-new-spac-issuance-as-sec-signals-crackdown](https://www.bloomberg.com/news/articles/2022-04-04/citi-said-to-pause-new-spac-issuance-as-sec-signals-crackdown)
+但莫斯科并没有放弃在乌克兰的野心，我们看到，大量俄罗斯侵略军撤离基辅，重新集结、补充装备和补给，他们将战略重点转移到乌克兰东部。北约预计，在接下来的几周内，俄罗斯将进一步向乌克兰东部和南部地区推进，试图占领整个顿巴斯（Donbas）地区，并建立与之前被占领的克里米亚（Crimea）之间的陆上通道。所以这是战争的关键阶段。随着乌克兰面临这一新的攻势，这次北约外长会议将讨论重点讨论北约接下来能做些什么。
 
-**4、阿根廷希望中共为83亿美元的核电站提供全额融资**
-![img](https://media.gettr.com/group34/origin/2022/04/06/05/61fb4473-176f-c2e4-0bb5-b73fafb7d0df/46f3dd81fca9b893b64955fffd84d8cd_500x0.png)
-4月5日 – 阿根廷正在推动中共为该国一座总投资额83亿美元的新核电站提供全部融资。因为阿国政府正在努力解决高额债务问题，并寻求降低财政赤字，这是最近与国际货币基金组织(IMF)达成的协议的一部分。阿根廷在2月份与中共核工业集团公司(CNNC)签署了建设阿图查三号核电站项目的协议。中核集团当时表示，它将为该项目提供85%的融资，其余部分由阿根廷承担。
+北约盟国决心向乌克兰提供更多的支持。包括，反坦克武器（anti-tank weapons）、防空系统（air-defence systems）等装备，北约盟国将增加对乌克兰的人道主义援助和财政援助，北约还将向乌克兰提供网络安全援助，以及帮助乌克兰抵御化学和生物威胁的设备。
 
-链接　[https://cn.reuters.com/article/argentina-china-nuclear-plant-funding-04-idCNKCS2LY07N?il=0](https://cn.reuters.com/article/argentina-china-nuclear-plant-funding-04-idCNKCS2LY07N?il=0)
+北约也将加强对易受俄罗斯威胁和干涉的北约其他伙伴提供更多的支持，包括格鲁吉亚（Georgia）、波斯尼亚和黑塞哥维那（简称波黑，Bosnia and Herzegovina）。通过加强政治和实际支持，北约可以帮助其的合作伙伴增强他们的应变能力，并防止任何未来的侵略。
 
-**5、美国制裁俄罗斯最大的暗网市场Hydra和加密货币交易所Garantex**
-![img](https://media.gettr.com/group45/origin/2022/04/06/05/b94d994b-a8b6-edaf-b384-49a4a8cb27bd/e6abae58507915cb719960407070390f_500x0.png)
-美国财政部海外资产控制办公室宣布将对暗网市场Hydra和虚拟货币交易所Garantex实施制裁。美国财政部周二在一份声明中表示，它已与美国司法部、联邦调查局、缉毒局、国税局刑事调查局和国土安全调查局合作，对这个位于俄罗斯的暗网络市场和Garantex进行制裁。就在美国政府机构采取这一举措的同一天，德国联邦刑警局宣布，其已经关闭了Hydra在德国的服务器，并扣押了连接到该市场的价值超过2500万美元的比特币。
+北约秘书长特别提到，北约将第一次将中共国的威胁摆上正式议程。斯托尔滕贝格说，考虑到中共国在全球舞台上日益增长的影响力和强制性政策，这对人类安全和民主国家构成了系统性挑战。中共国一直不愿意谴责俄罗斯的侵略，并与莫斯科独裁者一道质疑各国选择自己道路的权利。
 
-链接 [https://cointelegraphcn.com/news/us-sanctions-russia-s-largest-darknet-market-and-crypto-exchange-garantex](https://cointelegraphcn.com/news/us-sanctions-russia-s-largest-darknet-market-and-crypto-exchange-garantex)
+斯托尔滕贝格说，在威权国家正在推动以规则为基础的国际秩序开倒车的时候，民主国家更需要站在一起，保护共同的价值观。因此，他预计北约将同意深化北约与亚太伙伴的合作。包括军控、网络、军控与网络和技术等领域，更紧密地合作才能使我们所有人更加安全。
 
-排版上传：文勇
+在回答乌克兰国家通讯社（National News Agency of Ukraine）记者德米特罗·什库尔科（Dmytro Shkurko）关于北约盟国是否明白俄罗斯兴起的某种真正的纳粹政权和北约真正能做些什么来防止在第二次世界大战期间看到的大规模悲剧的提问时，北约秘书长说，我们现在看到的这种规模和范围的残暴行为是二战以来我们在欧洲从未见过的，这是非常严重的，太可怕了。当然，它会给乌克兰人民带来痛苦，但这对我们所有人来说也是危险的。
+
+我们看到普京总统战争的性质，他不尊重国际规则的法治，以及他不尊重所有在这场冲突中丧生的人的基本人权，包括生命权。这是我们自二战以来面临的最严峻的安全挑战，并引发了整个北约联盟非常全面和强烈的反应。
+
+多年来，北约一直向乌克兰提供支持。北约盟国已经训练了1000名乌克兰本土士兵中的10名，其中许多人现在在前线与俄罗斯入侵者作战。北约盟国多年来一直装备乌克兰军队，在入侵后，盟国加强并提供了更多支持。我们每天都在战场上看到这种支持的效果，因为这首先是乌克兰士兵的勇敢、勇气，当然，他们从北约盟国那里得到的帮助和装备使他们能够承受很多比俄罗斯人预期的更有效的反击和抵抗，俄罗斯完全低估了乌克兰武装部队的实力，北约盟国已宣布进一步支持乌克兰。
+
+尤其是鉴于在布查和乌克兰其他地方看到的暴行，北约盟国正在提供支持，而也将继续提供支持，因为普京对欧洲一个主权、独立、民主国家的所作所为是绝对不可接受的。
+
+在回答关于俄罗斯发动化学、生物或放射性攻击的可能性时，斯托尔滕贝格说，北约和北约盟国绝不会通过以任何使用化学武器方式支持乌克兰。俄罗斯以前使用过化学武器，他们用它来对付自己的反对者，他们在英国索尔兹伯里（Salisbury）使用了它。我们已经看到俄罗斯以前使用化学武器和药剂支持叙利亚的阿萨德政权（Assad regime）。其次，核武器也是如此，我们已经看到来自俄罗斯的非常危险的核言论，甚至在入侵之前，俄罗斯就威胁在乌克兰及其周边地区使用核武器。但北约秘书长认为，现在就断定俄罗斯一定会使用化学武器和武器，是不对的。
+
+在回答关于具体提供的武器类型时，北约秘书长说，这部分与财政支持有关，部分与人道主义支持有关，但当然也部分与盟友多年来提供的非致命和致命军事支持有关。我对具体系统有点谨慎，因为我认为出于操作原因，盟军实际提供支持比我们宣布盟军转移到乌克兰的每个具体武器系统要好。
+
+但众所周知，我们谈论的是先进的武器系统，例如，我们谈论的是标枪（javelins）和其他反坦克武器（anti-tank weapons），它们在战场上已被证明极为有效，我们看到，我们提供的这些相对较轻的武器产生了巨大的影响。当我们看到被摧毁的俄罗斯装甲车的所有图片时，这首先是这些武器的结果，当然，还有携带它们的士兵的勇气。但是，我认为我们已经证明了北约盟国提供的反坦克武器的有效性。
+
+由于北约盟国提供了先进的防空系统，乌克兰人够击落先进的俄罗斯飞机，还有直升机，和其他无人机。我们正在研究其他系统，盟国不断加强并向乌克兰提供更多支持，部分是武器，除此之外，当然也有燃料、弹药，和很多不同类型的物资，如头盔、防护装备、医疗用品。因此，正如过去几个星期那样，北约盟国的支持有一部分是关于高端武器系统，但也很大程度上是关于进行这种大规模军事行动所需的后勤和物资。
+
+参考数据：
+
+[Press conference：by NATO Secretary General Jens Stoltenberg ahead of the meetings of NATO Ministers of Foreign Affairs on 6 and 7 April 2022](https://www.nato.int/cps/en/natohq/opinions_194325.htm)
+
+[NATO Foreign Ministers to address President Putin’s war against Ukraine](https://www.nato.int/cps/en/natohq/news_194315.htm)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

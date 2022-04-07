@@ -2,34 +2,91 @@
 ---
 
 
-## 樱花时政┃为掩盖俄乌战争实情 中共竟然屏蔽联合国网站链接
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301933/)
+## 拜登明确表示,罗斯将为其在布查的暴行立即付出沉重的代价
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2301992/)
 
-撰稿：东京樱花团/Garrettw
+**拜登总统： **
+我明确表示，俄罗斯将为其在布查的暴行立即付出沉重的代价。 今天，我们将与我们的盟友和合作伙伴一起，宣布新一轮的毁灭性制裁。 【附白宫官网：情况说明书：美国、七国集团和欧盟让俄罗斯立即付出沉重的代价】
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-691.png)[图片来源](https://news.un.org/en/story/2022/04/1115632)
 
-4月5日，乌克兰总统泽连斯基在联合国安理会上发表视频讲话，呼吁联合国安理会采取和平的行动，不然就“解散”吧。
 
-他叙述到：我们面对的是一个将联合国安全理事会的否决权变成死亡权的国家。 如果这种情况继续下去，各国将不依靠国际法或全球机构来确保安全，而是依靠自己武器的力量。
+> I made clear that Russia would pay a severe and immediate price for its atrocities in Bucha. Today, along with our Allies and partners, we’re announcing a new round of devastating sanctions. [https://t.co/LVqTDIOSvz](https://t.co/LVqTDIOSvz)
+> — President Biden (@POTUS) [April 6, 2022](https://twitter.com/POTUS/status/1511715451738464256?ref_src=twsrc%5Etfw)
 
-他指责俄罗斯想 “把乌克兰人变成无声的奴隶”，公开偷窃一切，”从食物开始，到金耳环被掏出来，上面沾满了血”。”安全理事会必须保证的安全在哪里？”和平的力量必须成为主宰”。
 
-他向安理会提出挑战，要么把俄罗斯作为战争的源头取消安理会理事国，这样它就不能再阻挠对自己的侵略作出的决定，要么干脆‘完全解散你们自己’，如果除了进行对话之外没有什么可做的。
 
-“你准备关闭联合国吗？ 你认为国际法的时代已经过去了吗？”他问。”乌克兰需要和平。 欧洲需要和平。 世界需要和平。”
+**美国务卿安东尼·布林肯： **
+与(北约秘书长)斯托尔滕贝格 [@JensStoltenberg](https://twitter.com/jensstoltenberg) 举行了富有成效的会议，讨论了我们对乌克兰及其人民的持续支持。 我们还谈到了北约 [@NATO](https://twitter.com/NATO) 的伙伴关系及其下一个战略理念，该理念评估了当前和未来对基于规则的国际秩序的威胁。
 
-他说他今天的发言是为了纪念死者：那些在遭受酷刑后头部中弹、被扔进水井、坐在汽车里被坦克碾压的人，以及那些因为侵略者 “没有听到他们想听的话 “而被砍掉四肢、拔掉舌头的人。
 
-但是在中共墙内没有翻墙VPN的互联网上去看乌克兰的新闻，《聚焦乌克兰危机的特别报道》是未找到页面的“404状态”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-693.png)
-中共自从加入联合国之后，首次屏蔽了联合国网站有关链接，《聚焦乌克兰危机的特别报道》的相关信息也未作任何翻译，基本都是英文原文，在乌克兰新闻的界面最后的文章链接公然更改原文意思，将泽连斯基总统的讲话这篇新闻彻底的更改，编造文章断章取义，可见他们是如此的惧怕墙内的老百姓知道真实的乌克兰战争。更加验证了郭文贵先生多次说道中共的以假治国，驭民五术中愚民的统一思想。
 
-信息来源：[Ukraine’s President calls on Security Council to act for peace, or ‘dissolve’ itself](https://news.un.org/en/story/2022/04/1115632)
+> Had a productive meeting with [@JensStoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw) as we discussed our continuing support for Ukraine and its people. We also spoke about [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw)’s partnership and its next Strategic Concept, which assesses current and future threats to the international rules-based order. [pic.twitter.com/Jn84PNnPCx](https://t.co/Jn84PNnPCx)
+> — Secretary Antony Blinken (@SecBlinken) [April 6, 2022](https://twitter.com/SecBlinken/status/1511824027207229446?ref_src=twsrc%5Etfw)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+
+**美国务卿安东尼·布林肯：** 
+我和来自法国、德国、意大利、英国的同行们讨论了继续通过安全和经济援助、以及人道主义援助来支持乌克兰的计划。 [#与乌克兰团结一致](https://twitter.com/hashtag/%E4%B8%8E%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%A2%E7%BB%93%E4%B8%80%E8%87%B4?src=hashtag_click) [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
+
+
+
+> My counterparts from France, Germany, Italy, the UK, and I discussed plans to continue to support Ukraine with security and economic assistance as well as humanitarian aid.  [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/nIn8c6w9jJ](https://t.co/nIn8c6w9jJ)
+> — Secretary Antony Blinken (@SecBlinken) [April 6, 2022](https://twitter.com/SecBlinken/status/1511808432948617226?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本： **
+一年多来，主流霉体一直在对亨特·拜登和他的末日笔记本电脑丑闻撒谎。
+
+
+
+> The mainstream media has lied to you for over a year about Hunter Biden and his laptop of doom.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2022](https://twitter.com/MarshaBlackburn/status/1511863576780288005?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥：** 
+看到乌克兰遭受的破坏令人心碎，尤其是知道它不需要发生。 美国的威慑力可以阻止我们现在看到的战争。 我们现在必须采取措施，在世界范围内重建威慑力量。 【转蓬佩奥发文《国家利益》： 核武器、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、和本世纪的战略防御计划】
+
+
+
+> To see the devastation of Ukraine is heartbreaking, especially knowing that it didn’t need to happen. American deterrence can prevent wars like we are seeing now. We must take steps now to reestablish deterrence around the world. [https://t.co/82yZ48WXFT](https://t.co/82yZ48WXFT)
+> — Mike Pompeo (@mikepompeo) [April 6, 2022](https://twitter.com/mikepompeo/status/1511707806180782083?ref_src=twsrc%5Etfw)
+
+
+
+**前国务卿迈克.蓬佩奥：** 
+乔·拜登总统几乎在每个领域都辜负了美国人民。 能源是我们可以快速再次获胜的地方。 乔，打开 基石输油 管道。 允许在（我们的）家园进行强劲的石油和天然气生产。
+
+
+
+> President Joe Biden is failing the American people in almost every area. Energy is where we can quickly win again. Open the keystone XL pipeline, Joe. Allow robust oil and natural gas production at home.
+> — Mike Pompeo (@mikepompeo) [April 6, 2022](https://twitter.com/mikepompeo/status/1511750717995991042?ref_src=twsrc%5Etfw)
+
+
+
+**众议员兰斯·古登：** 
+伊隆·马斯克投入数十亿美元来保护言论自由。 现在国会必须采取行动来收拾其他大型科技公司。
+
+
+
+> Elon Musk put billions on the line to protect free speech.
+> 
+> Now Congress must act to rein in the rest of Big Tech.
+> — Lance Gooden (@Lancegooden) [April 6, 2022](https://twitter.com/Lancegooden/status/1511675336601255943?ref_src=twsrc%5Etfw)
+
+
+
+**比尔·格茨: **
+文件和证词显示，中央情报局总法律顾问提名人为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的关联公司做法律工作。 【附华盛顿时报的文章：该提名人曾为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府相关制药公司做过法律工作】
+
+
+
+> CIA general counsel nominee did legal work for Chinese Communist Party-linked company, documents and testimony reveal [https://t.co/Wy1LWtBqEN](https://t.co/Wy1LWtBqEN)
+> — Bill Gertz (@BillGertz) [April 7, 2022](https://twitter.com/BillGertz/status/1511867409581322242?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

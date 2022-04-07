@@ -2,25 +2,32 @@
 ---
 
 
-## 乌克兰总统通报俄军对平民的大屠杀
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301981/)
+## 前币安首席财务官以2亿美元收购菲律宾交易所Coins.ph
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302021/)
 
-采编撰稿： 加拿大温哥华扬帆农场 – 重生之鹰
+#### 【雅典娜快讯】紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-694.png)图片来源：ctv
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/32JX9ATCTH3S289783ULU7M7NJ9PZVY4SYEJEX65-606b111e.jpg)图片来源：www.kalibrr.com
+根据COINGEEK4月7日报道，一位前币安高管购买了东南亚最大的数字货币钱包和交易所之一。据当地报道，前币安首席财务官周炜以2亿美元收购了Coins.ph。
 
+Coins.ph始于2014年，最初是一个电子钱包，允许用户购买、出售和存储一些数字货币。从那时起，它已经扩展到其他服务，包括预付费移动充值、汇款和账单支付。
 
-据加拿大【CTV新闻】4月5日的报道，乌克兰总统当天在联合国安理会上指控俄军在侵乌战争中对平民所犯下令人发指的暴行，并敦促应立即以战争罪将普京及所有罪犯送上纽伦堡国际法庭。
+这家初创公司于2019年1月被印度尼西亚按需多服务平台Gojek和数字支付decacorn收购，标志着该公司首次进军菲律宾。然而，Gojek此后与当地一家电子商务公司合并，现在专注于其本土印尼市场。
 
-泽伦斯基在视频中声称：平民不仅遭受酷刑，后脑中枪，被扔到井里活埋，在公寓里被手榴弹炸碎，在汽车里被坦克碾死，俄军还砍掉他们的四肢，割断他们的喉咙和舌头。妇女在她们的孩子面前被强暴和杀害。而所有与以上罪行相关的肇事者都必须得到严惩。
+据报道，周炜以2亿美元的价格收购Coins.ph，是Gojek两年前收购该公司的9500万美元的两倍多。
 
-报道指出，俄军在从基辅郊区撤出之前，在布查地区和其他城镇蓄意杀害平民的恐怖画面引起了全球的强烈愤慨和抗议，几乎所有舆论都要求俄军的暴行必须得到审判！
+币安是2021年尝试收购Coins.ph的公司之一，但这笔交易没有成功。赵长鹏领导的交易所已经收购了几个钱包和交易所，包括印度的WazirX。然而，就像其母公司一样，WazirX也面临着监管问题，包括被指控违反了印度的外汇法。
 
-校对编辑：硫酸羟氯喹64
+资料来源：[Ex-Binance CFO snaps up Philippine exchange Coins.ph for $200M: report](https://coingeek.com/ex-binance-cfo-snaps-up-philippine-exchange-coins-ph-for-200m-report/)
 
-发稿：青青
+发布：tianzhihuan
 
-新闻来源：[https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471](https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

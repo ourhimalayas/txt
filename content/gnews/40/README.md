@@ -2,34 +2,41 @@
 ---
 
 
-## 美国与G7保持一致 宣布对俄罗斯新一轮制裁
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2300524/)
+## 美国联邦调查局表示捣毁了俄罗斯黑客行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2301086/)
 
-共同社华盛顿4月6日报道，拜登总统的美国政府周三宣布对俄罗斯持续入侵乌克兰采取新一轮的惩罚措施，包括禁止新投资以及对俄罗斯总统普京的女儿进行制裁。
+翻译：冰糖葫芦喵
 
-一位高级政府官员说，此举将与包括日本和英国在内的七个工业化国家集团协调进行，他就俄罗斯从乌克兰布查镇撤军后最近曝光的平民被杀事件抨击莫斯科。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/S-1.jpg)blog.nomisec.com
-这位官员说：“在布查发生的令人作呕的暴行悲惨地表明了普京政权的卑劣本质。而今天，为了与七国集团的盟友和伙伴保持一致，我们正在加强对一个主要经济体实施的最严厉的制裁。”
+编辑：冰糖葫芦喵、灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》华盛顿4月6日报道，**周三，美国联邦调查局表示，劫持了俄罗斯间谍用来与路由器和防火墙进行通信的基础设施，从俄罗斯军方黑客手中夺取了数千台路由器和防火墙设备的控制权。**
 
-据白宫称，作为最新行动的一部分，拜登将签署一项行政命令，禁止美国人在俄罗斯进行新的投资，无论他们位于何处，此举旨在进一步将俄罗斯从全球经济中孤立出来。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/118954407_putin.png.jpg)图片来源：BBC NEWS。
 
-俄罗斯最大的金融机构俄罗斯储蓄银行（Sberbank）和该国最大的私人银行阿尔法银行（Alfa Bank）也将面临在美国的资产冻结，美国人将被禁止与他们做生意。
+据报道，**一份未公开的、经过修改的宣誓书称，这一不寻常的行动是一种先发制人的行动，目的是阻止俄罗斯黑客将被入侵的设备转移到一个“僵尸网络”中**。“僵尸网络”是一个被黑客入侵的计算机组成的网络，可以用恶意流量攻击其他服务器。
 
-白宫表示，更多的个人也将受到制裁，包括普京的两个成年女儿和俄罗斯外长拉夫罗夫的妻子和女儿。
+美国司法部长梅里克·加兰德说，很幸运，**我们能够在这个僵尸网络被使用之前摧毁它。**美国联邦调查局局长克里斯·雷对记者说，**联邦调查局在获得法庭批准后，秘密侵入数千个路由器和防火墙设备，删除恶意软件并重新配置设备**。
 
-美国一直在与其他七国集团同行合作，通过对普京和促成战争的商业寡头实施制裁，以及限制与俄罗斯中央银行的交易和将某些银行排除在世界主要国际支付网络之外，向俄罗斯施压，要求其停止2月24日发动的入侵。
+雷说:“我们从全世界数千家用于网络安全的设备上移除恶意软件，其中大多数是小企业。”“我们关上了俄国人用来进入它们的门。”
 
-**快评：**一轮又一轮制裁，是美国与西方国家对普京及俄罗斯的行动。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8b30068ebcf24a2491aa75cc1df26b0a.jpg)图片来源：网络摄图。
 
-郭先生说，这次将俄罗斯踢出SWIFT系统是用了牛刀，短期而言对美元是伤害，长期还是有利美国和美元的。
+报道称，**被攻击的僵尸网络是通过名为“独眼巨人眨眼”(Cyclops Blink)的恶意软件控制的，**美国和英国的网络防御机构曾在2月下旬公开将这种恶意软件归因于“沙虫”(Sandworm)，据称**是俄罗斯军事情报部门的黑客团队之一**，该团队多次被指控实施网络攻击。
 
-从这一轮又一轮的制裁中，估计中共看到了它的末日狂奔，盗国贼们的资产和私生子女们是否已经惶惶不可终日？
+根据私营网络安全公司的研究，“**独眼巨人眨眼”是被用来设计劫持沃奇卫士**（WatchGuard Technologies Inc .）**和华硕电脑公司生产的设备。**它为俄罗斯提供了访问这些受损系统的权限，**提供了远程过滤或删除数据的能力**，或将设备针对第三方。
 
-参考链接：
-[https://english.kyodonews.net/news/2022/04/be022c5f85cb-urgent-us-says-to-ban-new-investment-in-russia-in-alignment-with-g-7.html](https://english.kyodonews.net/news/2022/04/be022c5f85cb-urgent-us-says-to-ban-new-investment-in-russia-in-alignment-with-g-7.html)
+沃奇卫士发布了一份声明，证实它与美国司法部合作破坏了僵尸网络；华硕没有立即回复记者的置评请求。
 
-**编译 发布：意大利罗马达芬奇农场 Roma**
+新闻来源链接：
 
+[Exclusive: China state refiners shun new Russian oil trades | Reuters](https://www.reuters.com/business/energy/exclusive-china-state-refiners-shun-new-russian-oil-trades-teapots-fly-under-2022-04-06/)
+
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

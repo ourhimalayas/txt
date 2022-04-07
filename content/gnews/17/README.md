@@ -2,60 +2,46 @@
 ---
 
 
-## 
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301896/)
+## 珠江医院张堂德教授:集中核酸检测的成百上千感染风险
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2301927/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本-1.png)
+据谷风@[645Pr0RoZT8CwA7](https://twitter.com/645Pr0RoZT8CwA7)于[上午2:13 · 2022年4月7日](https://twitter.com/645Pr0RoZT8CwA7/status/1511769117757300737)发布的推特
 
-整理/编辑：BENJ1
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8713-2.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+张教授的意思是共产党的強行检测核酸方式，实际是为了广泛传播病毒。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-**帖子原文：**
 
-想来问问，有打了第三针一直咳嗽的朋友吗？
+> 张教授的意思是共产党的強行检测核酸方式，实际是为了广泛传播病毒。 [pic.twitter.com/9bEDaqzVPL](https://t.co/9bEDaqzVPL)
+> — 谷风 (@645Pr0RoZT8CwA7) [April 6, 2022](https://twitter.com/645Pr0RoZT8CwA7/status/1511769117757300737?ref_src=twsrc%5Etfw)
 
-从打了疫苗第二天开始，咳了半个月了，晚上咳得根本睡不着，不知道是凑巧还是真的因为第三针#新冠疫苗 #疫苗 #怎么办
 
-评论选集：
 
-[默默](https://www.xiaohongshu.com/user/profile/5934c5186a6a69544a9692a8) 回复：
+动辄数万数十万人集体核酸检测的风险，只要稍微具有基本常识的人都可以判断出来，南方医科大学珠江医院张堂德教授以专家的身份发出来的预警，在专业知识之外更加需要勇气，新冠病毒是中共的超限生化武器，新冠病毒疫苗作为与病毒相伴而生的杀人工具，也是中共超限生化武器的一部分，这一点郭文贵先生已经在多次直播中说明。
 
-我从12月中旬咳嗽，咳到现在了，吃一大堆药也没好我要疯了，关键咳大劲儿了，还有点漏尿，听说研究第四针呢，也不知道能不能不打
+既然发现一例阳性要对所有的密接、次密接进行强制隔离，那么在一次次的全员核酸检测并且检测出阳性病毒之后，是不是所有的全员核酸被检测者都是密接、次密接并且都需要强制隔离呢？这个时候中共又只字不提全员核酸造成的密接、次密接了，那么我们就只能得出一个结论——各地中共当局对辖区内居民一次又一次的全员强制核酸检测就是在蓄意制造群体感染，让中共的超限生化武器的效能达到最大化，这样一来可以节省粮食，二来可以减少养老金和社保支出，你看懂了吗？
 
-是是是是(作者) 回复:
+撰稿：喜马拉雅的肉夹馍；
 
-我也是！我都换了三个医生了！还去输了液，只管当天，第二天又不行
+审核：喜马拉雅的馍夹肉；
 
-[supermami](https://www.xiaohongshu.com/user/profile/60a747650000000001007720) 回复：
+校对：Maarago；
 
-把不知道是凑巧去掉。一针科兴差点给我送走了，现在快8个月了还是病秧子
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-Sara 回复 :
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-我是10月打的第三针，三月开始咳嗽的，有关系吗？
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-Alvkt 回复 :
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-我第二针的时候就低烧了五天，去医院抽血检查，结果说我一切正常。第三针的时候扁桃体动不动就发炎，咳嗽感冒
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[每天都吃小面包啊](https://www.xiaohongshu.com/user/profile/5be0dd328395520001cc2b6b) 回复：
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-请问你咳嗽怎么办啊？我也是刚打完第一针，现在第二天就咳嗽，感觉好绝望
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-685.png)图片来源：小红书
-参考链接:
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[想来问问，有打了第三针一直咳嗽的朋友吗](http://xhslink.com/HdosCg%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

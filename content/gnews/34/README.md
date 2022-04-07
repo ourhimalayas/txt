@@ -2,37 +2,30 @@
 ---
 
 
-## 7·24系列——普京的女儿（一）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301501/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
 
-**整理：**雅典娜情报组（翼族、w2）
-**编辑：**翼族
-![](https://assets.gnews.org/wp-content/uploads/2022/04/124065110_putindaughtermaria.jpg)图片来源：BBC
-普京很少公开谈论他的孩子，普京女儿的身份从未得到他或克里姆林宫的证实，俄罗斯民众对普京究竟生了多少孩子有很多猜测，但普京与前妻柳德米拉所生的两个成年女儿均是公众已经知晓的对象。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
 
-2015年，普京在年度新闻发布会上回答子女问题时说，“她们住在俄罗斯。除了俄罗斯，她们从未在任何地方接受过教育。我为她们感到骄傲；她们继续学习和工作，我的女儿们能流利地说三种欧洲语言。我从不和任何人谈论我的家庭。她们从来都不是明星孩子，她们从来没有因为聚光灯照在身上而感到高兴。她们只是过着自己的生活。”
 
-普京称他的女儿们并“没有参与商业或政治”。然而事实并非如此，2022年4月6日美国发起新一轮的对俄制裁，普京两位成年的女儿在美国的资产将被冻结，任何与她们关联的金融单位都会受到制裁。美国高级官员表示：“我们相信，普京的许多资产是通过家庭成员隐藏的，这就是我们针对她们制裁的原因”。
+校对：Stay文苑
 
-普京与前妻柳德米拉的长女全名为玛丽娅·弗拉基米罗夫娜·普京娜（Mariya Vladimirovna Putina），俄罗斯人的姓名很长，一般由三部分组成：名字+父称+姓，另外每个人还有一个昵称。在俄罗斯媒体上普京的长女被称为玛丽娅·沃龙佐娃，昵称玛莎。
+编辑：Stay文苑
 
-玛丽娅·沃龙佐娃1985年4月28日出生于俄罗斯的圣彼得堡。1980年代，她与家人住在东德的德累斯顿，就读当地的学校。1991年苏联解体后，普京全家返回圣彼得堡，她就读于圣彼得堡一家名为Peterschule的德语学校，后来出于安全原因普京将她和她的妹妹卡特琳娜再次送到德国。1995年普京搬到莫斯科后，玛丽娅·沃龙佐娃就读于莫斯科为德国外交官开设的德语学校。
+发稿：Stay文苑
 
-1998年玛丽娅在圣彼得堡国立大学学习生物学，2011年从莫斯科国立大学医学专业毕业，据称两姐妹平时住在莫斯科，所有课程都是单独安排，有教授登门教课。玛丽娅·沃龙佐娃是莫斯科内分泌研究中心（Endocrinology Research Centre）的在列博士生和研究员，并与人合著有关于儿童发育迟缓的书。
+新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
+访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
 
-2014年，玛丽娅·沃龙佐娃与34岁的荷兰商人乔里特·法森（Jorrit Joost Faassen）结婚，法森曾在俄罗斯国家能源巨头Gazprom公司工作，据报道玛丽娅·沃龙佐娃和法森已经分居。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
 
-2019年，玛丽娅·沃龙佐娃罕见地接受了俄罗斯国有电视频道“俄罗斯一台”的电视采访，在采访中她自称是专注于癌症研究的医疗公司Nomeko的共同所有人和高管。该公司是俄罗斯最大的医疗综合体公司，涉及的领域非常广泛，包括多学科诊所、癌症中心和质子治疗中心等。
-
-据称欧盟也对普京的女儿实施了类似的经济制裁。玛丽娅·沃龙佐娃作为普京的女儿，不是她自己的选择，但任何人都有选择正义与邪恶的权利，是与独裁者和战争犯切割，还是选择继续为虎作伥，是摆在玛丽娅·沃龙佐娃面前的选择！
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

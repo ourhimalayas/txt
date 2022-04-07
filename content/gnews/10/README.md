@@ -2,25 +2,29 @@
 ---
 
 
-## 中日财经爆┃美国宣布制裁普京女儿和俄罗斯联邦储蓄银行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301935/)
+## 樱花时政┃俄罗斯巨富 俄乌谈判人 阿布是谁？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302004/)
 
-撰稿：东京樱花团｜peterwong
+撰稿：东京樱花团/上善若水
 
-![](https://lh3.googleusercontent.com/RqocxXRtqK4fBuYgX9gFvxR9m-pvvPU7EFLoqQMVKZoQWkXU0e0CNpFORKCG-MVXujxNVdAsoQoUVEaNCH2mb46K4VsBEKr8XbOoS_89mrhJ075Nxe6vK0QzEk1xwll6iZgdtnKP)[*图片来源*](https://media-proc.singtao.ca/photo.php?sqcrop=true&amp;s=https://media.singtao.ca/wp-content/uploads/master_sandbox/2022/04/2022040623294652377.jpg&amp;f=webp&amp;w=1200&amp;q=75&amp;h=672)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-700.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcontent.api.news%2Fv3%2Fimages%2Fbin%2F377a0d2fc0423992637c9354633e6f15&amp;imgrefurl=https%3A%2F%2Fwww.news.com.au%2Fsport%2Ffootball%2Fshames-russian-oligarch-begging-celeb-friends-for-1m-handout%2Fnews-s)
 
-4月6日，美国宣布对俄总统普京的两个成年女儿实施制裁，以及俄罗斯大银行和金融机构。
+罗曼.阿布拉莫维奇，俄罗斯与乌克兰之间隐藏在暗处的谈判者。谁是阿布？世界报说，他是俄的巨富新贵。
 
-俄罗斯对乌克兰的入侵已持续42天，迫使400多万人逃往海外，造成数千人丧生或受伤，乌四分之一的人口无家可归，很多城市变成一片废墟，几天前，乌克兰在从俄军手中夺回的基辅以北的布查市发现大量平民被近距离枪杀。
+2月23日，乌电影制片人罗德就找上了他。而罗德的儿子在乌总统泽连斯基那里当顾问。电影制片人罗德在1990 年代出品了当时还是演员的泽连斯基的电视节目。其中很多片子就是阿布出资，按照罗德的说法，所有的政治家和普京虚与委蛇，而阿布是可以把真实情报给普京的人，简单直接，至少阿布和普京讲话，可以开诚布公。
 
-美国新的制裁措施包括禁止美国人在俄罗斯投资。制裁将打击俄罗斯联邦储蓄银行（Sberbank），该行坐拥俄罗斯银行总资产的三分之一，俄第四大金融机构Alfaank也是打击目标，但新措施并未包括能源交易。
+乌克兰泽连斯基这边，他重申，和普京谈判，这是乌唯一的选择。在4月4日泽连斯基签署政令，调整了乌俄的谈判团队。在俄方这边，阿布成了谈判团队核心人物。
 
-英国也冻结了俄罗斯联邦储蓄银行的资产，并表示将在年底前禁止进口俄煤炭。
+当乌俄的谈判团队面对面开会时，阿布拉的作用是促进和谈，他要尽量保持不偏不倚，他是一个的调停者，当然也要考虑自己在各方的利益。罗德是在十多年前通过叶利钦一家认识阿布的。象阿布这种在叶利钦时代发财的人，他们的口碑比较普京时代好一些，更自由派一点，与克里姆林宫保持一定距离。
 
-消息来源：[**美国宣布制裁俄罗斯银行和普京女儿 乌克兰敦促西方果断对俄行动**](https://cn.reuters.com/article/usa-sanctions-russia-0406-wedn-wrapu-idCNKCS2LZ021?il=0)
+阿布在叶利钦执政1997曾经以1亿美元购买俄西伯利亚石油公司。8年后在普京掌权的时代，以130亿美金卖给了俄政府，阿布情商极高，和普京关系融洽，政商关系游刃有余，俄政府在哪里有需要，他就出现在哪里。比方说，普京要他在一个偏远的贫困地区楚科奇自治区当区长，阿布当仁不让就当了。他以巨额投资来表达他对普京的忠诚。阿布想要在未来的乌重建中扮演角色。但是在这之前，他要先保住他能保下来的财富。
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
+回到乌克兰和俄罗斯的谈判问题上，虽然说两边都在讲谈判是起作用的，谈得广泛深入，但是暂时谈不出什么结果来。因为当战场上，尤其是顿巴斯战场上的情况不明朗，当有人指控基辅周边布察发生罪恶行径，和平还遥遥不可及，那阿布的人生经验是，所有的谈判，无论是外交谈判还是商业谈判，都要从先发制人的较量开始。
+
+信息来源：[暗中的谈判人罗曼阿布拉莫维奇 ： 对普京很忠诚，为当演员的泽连斯基的影片出钱](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20220406-%E6%9A%97%E4%B8%AD%E7%9A%84%E8%B0%88%E5%88%A4%E4%BA%BA%E7%BD%97%E6%9B%BC%E9%98%BF%E5%B8%83%E6%8B%89%E8%8E%AB%E7%BB%B4%E5%A5%87-%E5%AF%B9%E6%99)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
