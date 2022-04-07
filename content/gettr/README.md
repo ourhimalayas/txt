@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 10:44 AM (UTC)`
+
+新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月6日第33天当日救援统计：<br/>Medyka救援站接待：约312人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9580人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 33 - Date: April 6, 2022 :<br/>Medyka Rescue Station Reception: about 312 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9580 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
+![img](https://media.gettr.com/group10/getter/2022/04/07/10/4182e33b-19c2-b110-e9d6-4afef3222e4f/2e00448869a1ef43658707e027ef64f2.jpg)
+
+---
+
 `@miles 4/7/2022 9:12 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
@@ -147,13 +154,6 @@ When a volunteer from Tennessee, US heard that the New Federal State of China is
 
 A botanist who works for the US government, took time off and paid himself to participate in the Ukrainian rescue mission at the Medyka border, joining a group of Canadian volunteers to hand out food for refugees. After he learned that we are volunteers on behalf of the Rule of Law Foundation, he is glad for what we are doing. The volunteers strongly agree that the Chinese Communist Party (CCP) doesn’t represent the Chinese people, just like Putin doesn’t represent the Russian people.<br/><br/>来自美国俄勒冈州的美国政府雇员用自己的假期、自掏腰包参加乌克兰人道救援活动，在梅迪卡边境他和一群加拿大来的义工给难民发食品。 他知道我们是法治基金赞助的义工，表示非常赞同法治基金的理念， 他们还表示，他们知道中共不代表中国人，就像普京不代表俄罗斯人一样。
 ![img](https://media.gettr.com/group48/origin/2022/04/06/19/6e0ea210-8a09-b32b-a9b4-4d5d4ddbc957/out.jpg)
-
----
-
-`@miles 4/6/2022 7:29 PM (UTC)`
-
-An Italian volunteer told the New Federal State of China (NFSC) reporter that our target to overthrow the Chinese Communist Party (CCP) was noble and he was curious about the story of the founding of the NFSC. Mrs. Nicole told him: Mr. Miles Guo is helping the Chinese to overthrow the CCP in a peaceful way<br/>一位意大利志愿者跟新中国联邦记者说我们推翻中共的目标是高贵的，他很好奇新中国联邦成立的故事。妮可告诉他：郭文贵先生正帮助中国人正在以和平的方式推翻中共
-![img](https://media.gettr.com/group27/origin/2022/04/06/19/488db482-a480-135d-8ab7-3051f466fcb2/out.jpg)
 
 ---
 
