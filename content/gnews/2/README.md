@@ -2,30 +2,24 @@
 ---
 
 
-## 三问丹东卫健委
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302937/)
+## 秘翻在线：中共卸磨杀驴 刘强东卸任京东集团CEO
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2303024/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-近日一段专业人士与丹东卫健委的谈话中丹东市卫健委讲到：不是说打疫苗才是无症状感染，是因为打疫苗它起到了一定保护作用，（说什么呢？）症状不是很明显，（说什么呢？）所以他才是无症状感染。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/三问丹东卫健委.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Ff%2Ff6%2FDandong_and_Yalu_River.jpg&amp;imgrefurl=https%3A%2F%2Fzh.wikipedia.org%2Fwiki%2F%25E4%25B8%25B9%25E4%25B8%259C%25E5%25B8%2582&amp;tbnid=SHPIkv4qFgFpyM&amp;vet=12ahUKEwiZ-M-px4H3AhUR4uAKHcOkDX4QMygAegUIARCgAQ..i&amp;docid=GiIamkLaMW9yDM&amp;w=1600&amp;h=900&amp;q=%E4%B8%B9%E4%B8%9C&amp;ved=2ahUKEwiZ-M-px4H3AhUR4uAKHcOkDX4QMygAegUIARCgAQ)
-一问，什么叫打疫苗起到了一定保护作用？疫苗有效就是有效，无效就是无效，还起一定保护作用 ?如若如此，吃个鸡蛋喝口汤，凡事有利身体健康的东西都有一定保护作用。
+**撰稿：葛大饼**
 
-二问，打疫苗怎么会感染，打了还能感染问什么要打？
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-07-170455.jpg)图片来源：新浪
+根据2022年4月7日多家媒体报道， 京东宣布刘强东将卸任京东集团CEO一职，由京东集团总裁徐雷接任。刘强东仍将继续担任京东董事局主席一职，并且仍会参与京东每月的SEC（战略执行委员会）会议和每季度的经营分析会等，不会彻底远离公司业务。
 
-三问，打了疫苗感染了还没症状，是不是为防疫添乱，添的乱谁来负责?
+新闻称事实上已有多位互联网巨头创始人宣布投身更长期的事业：2013年，马云辞任阿里巴巴集团CEO，6年之后，他进一步卸任集团董事局主席，把公司全权交由张勇管理；字节跳动创始人张一鸣于2021年5月和11月，先后卸任字节跳动CEO和董事会主席职务，由联合创始人梁汝波接任；拼多多创始人黄峥也在去年3月卸任拼多多董事长一职，由现任CEO陈磊接任。
 
-消息来源：
-[https://gettr.com/post/p13yuf3618a](https://gettr.com/post/p13yuf3618a)
+看到这些外表光鲜的中共企业家们的下场，印证了郭文贵先生说的：中共国所有的企业家，任何企业家，不管是国营私营，特别是私人的， 连小姐都不算！ 真的是连尿桶都不算！中共一向卸磨杀驴，只有共产党没了，他们这些白手套才能活下去。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**[新闻来源](https://36kr.com/p/1687165179729033)**
+
+
+
+#  
 
  
 

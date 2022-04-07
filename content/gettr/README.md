@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 9:12 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
+![img](https://media.gettr.com/group24/origin/2022/04/07/08/365a4c04-18b7-32dc-125c-f101c5ad1ec3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 7:12 AM (UTC)`
 
 4/6/2022 Miles Guo’s GETTR: Please rest assured that all is well with me! I am enjoying learning the law of the US in the process of fighting back against the CCP's unrestricted lawfare. China will be a better place in the future with the judicial system and rule of law like the US. All fellow fighters will go through transformations expeditiously and head towards our goal of Himalaya - bringing rule of law, freedom, and faith to everyone in new China.<br/><br/>4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好；战友都在迅速地蜕变并走向我们新中国人的喜马拉雅的目标！<br/>
@@ -147,13 +154,6 @@ A botanist who works for the US government, took time off and paid himself to pa
 
 An Italian volunteer told the New Federal State of China (NFSC) reporter that our target to overthrow the Chinese Communist Party (CCP) was noble and he was curious about the story of the founding of the NFSC. Mrs. Nicole told him: Mr. Miles Guo is helping the Chinese to overthrow the CCP in a peaceful way<br/>一位意大利志愿者跟新中国联邦记者说我们推翻中共的目标是高贵的，他很好奇新中国联邦成立的故事。妮可告诉他：郭文贵先生正帮助中国人正在以和平的方式推翻中共
 ![img](https://media.gettr.com/group27/origin/2022/04/06/19/488db482-a480-135d-8ab7-3051f466fcb2/out.jpg)
-
----
-
-`@miles 4/6/2022 7:00 PM (UTC)`
-
-2022.04.06  新中国联邦 | 军情室  首播  俄乌战争最新战况分析：第一架俄军K52直升机战场投诚
-![img](https://media.gettr.com/group39/origin/2022/04/06/18/01af1392-385a-07f0-9f55-acb8e354e371/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
