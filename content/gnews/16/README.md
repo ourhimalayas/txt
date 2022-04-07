@@ -2,36 +2,27 @@
 ---
 
 
-## 泽连斯基要求联合国对俄罗斯立即采取强硬态度
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2302135/)
+## 英国敦促七国集团升级对俄制裁
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302148/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/泽连斯基要求联合国对俄罗斯立即采取强硬态度.jpg)
+作者：华盛顿DC农场-自由信仰
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)
+外媒4月5日报道，英国敦促 G7 及北约禁止俄罗斯船只进入其港口，商定逐步停止从俄罗斯进口石油和天然气的时间表，并加强对俄银行和关键行业的制裁。
 
-据《政治新闻》作者昆特·福吉（QUINT FORGEY）2022 年 4 月 5 日报道：
+英外交大臣丽兹·特拉斯，在北约和 G7 会议之前发表讲话时强调，将于本周四敦促北约及伙伴国进一步实施制裁俄罗斯，打击更多俄罗斯银行及像黄金一样填补普京战争宝库的行业。呼吁统一明确的时间表，消除对俄罗斯石油、煤炭和天然气的进口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-18.jpg)
+现有制裁已冻结3500亿美元的俄罗斯资金，导致俄罗斯60%以上的外汇储备无法使用，所有协调制裁正在将俄罗斯经济推回苏联时代。 丽兹·特拉斯在与波兰外交部长兹比格涅夫一起讲话时表示，两国已同意升级对俄制裁，同时增加对乌克兰的武器供应。
 
-乌克兰总统沃洛迪米尔·泽连斯基（Volodymyr Zelenskyy）周二要求联合国安理会惩罚俄罗斯入侵乌克兰，并遏制其对联合国这一关键机构的影响——否则应彻底解散，并承认其无力阻止俄罗斯总统弗拉基米尔·普京（Vladimir Putin）的血腥战争。
+参考链接：[UK urges G7 to ban Russian ships and set timetable for oil and gas exit](https://www.reuters.com/world/uk-urges-g7-ban-russian-ships-set-timetable-oil-gas-exit-2022-04-05/)
 
-“安理会需要保证的安全在哪里？它并不存在，”泽连斯基通过翻译说，在安理会的网络演讲中说，俄罗斯是该委员会的永久成员，拥有否决权。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-他说：“和平在哪里？ 联合国需要保证的那些保证在哪里？很明显，世界的关键机构——它必须确保制止任何侵略者并实现和平——根本无法有效运作。”
-
-泽连斯基发表激烈言论之际，国际社会对俄罗斯军队周末从乌克兰北部撤退时，在乌克兰首都基辅（Kyiv）郊外布查（Bucha）犯下的暴行爆发了新的愤怒。乌克兰官员将入侵者在那里的行为描述为种族灭绝。
-
-周二，泽连斯基呼吁安理会 “向世界上所有其他潜在的战犯展示他们将如何受到惩罚”，并补充说：“如果最大的一个都受到了惩罚，那么每一个都会受到惩罚。”
-
-泽连斯基还坚持要求安理会采取措施，限制俄罗斯对安理会事务的否决权。他说，对俄罗斯，“我们正在与一个将联合国安理会否决权转变为死亡权的国家打交道。这破坏了我们全球安全的整体架构。”
-
-泽连斯基说：”如果联合国没有准备好应对俄罗斯的威胁，联合国可以就此关闭，女士们，先生们，你们准备好关闭联合国了吗？你认为国际法的时代已经过去了吗？如果你的答案是否定的，那么你需要立即采取行动。”
-
-泽连斯基说：“《联合国宪章》（The Charter of the United Nations）——1945 年在旧金山签署的政府间组织的创始文件——必须立即恢复，以及更广泛的联合国系统必须立即改革，使否决权不是死亡权。”
-
-泽连斯基接着向安理会提出了，帮助促进乌克兰恢复和平的两个选择。首先，取消俄罗斯的安理会成员资格，“这样它就不能阻止关于自己的侵略、自己的战争的决定。” 第二，“请展示给我们如何改革或改变。”
-
-或者，泽连斯基说，“下一个选择是，彻底解散”，并承认“除了对话，你什么都做不了。”
-
-原文链接：[https://www.politico.com/news/2022/04/05/zelenskyy-united-nations-russia-00023045](https://www.politico.com/news/2022/04/05/zelenskyy-united-nations-russia-00023045)
-
-翻译：Nick｜校对：JS709｜编辑&发布：文鸣
+总编：天滅中共
+编辑：静言
+审核：Irene木木
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![此图像的alt属性为空；文件名为Gnews-logo-1-87.png](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
  
 

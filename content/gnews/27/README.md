@@ -2,29 +2,32 @@
 ---
 
 
-## 大直播后记：上海清零政策
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2301946/)
+## 前币安首席财务官以2亿美元收购菲律宾交易所Coins.ph
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302021/)
 
-整理：馨馨、红红火火
-编辑：Mohegayer K. Simon
+#### 【雅典娜快讯】紧贴时代脉搏
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-692.png)图片来源：墨尔本雅典娜农场设计组
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/32JX9ATCTH3S289783ULU7M7NJ9PZVY4SYEJEX65-606b111e.jpg)图片来源：www.kalibrr.com
+根据COINGEEK4月7日报道，一位前币安高管购买了东南亚最大的数字货币钱包和交易所之一。据当地报道，前币安首席财务官周炜以2亿美元收购了Coins.ph。
 
+Coins.ph始于2014年，最初是一个电子钱包，允许用户购买、出售和存储一些数字货币。从那时起，它已经扩展到其他服务，包括预付费移动充值、汇款和账单支付。
 
-老班长：我的孩子我来照顾他行不行？就这么一点要求。二战结束到现在将近100年了，我们今天还有这样一个所谓的政府，这样对待他自己的人民。大家还要记住，俄罗斯普京在乌克兰犯下的罪，他这是对外国犯下的罪。中国共产党不仅对外国犯罪，他还对中国人民下最恨的手。可以说全中国有人类以来，人类经历的所有瘟疫战争，所有自然灾害加在一起(对老百姓的伤害)都不及共产党统治中国这70年,这笔血帐必须跟中国共产党算清楚。
+这家初创公司于2019年1月被印度尼西亚按需多服务平台Gojek和数字支付decacorn收购，标志着该公司首次进军菲律宾。然而，Gojek此后与当地一家电子商务公司合并，现在专注于其本土印尼市场。
 
-这次我们可以看到，他不是在抗疫，他是在玩政治。清零是习近平一个人的清零，清零是不能错的，你清零错了，就是习一神这个神仙的错。他不能错嘛，他是个神，他不是人呐，神能错吗？所以，为了贯彻神不错，所以你们要死就死要亡就亡，跟他没毛线关系，管你是香港，是上海，你的骄傲在他面前1毛钱都不值。在习一神的脸皮上面，你什么都不值。接下来在台湾、在中东、在欧洲、在全世界，中国共产党都准备(继续使坏)。世界不能麻木，你不要以为在中国犯的罪不会对世界犯。如果世界麻木，世界会带来更大的灾难。中国人的麻木，让中国人民已经并且正在付出了巨大的惨重的史无前例的代价。所以说只有把中国共产党给清零了，我们才有希望，中国才有希望，全世界才有希望。这就是我看了这个PPT以后我的感想，谢谢大家。
+据报道，周炜以2亿美元的价格收购Coins.ph，是Gojek两年前收购该公司的9500万美元的两倍多。
 
-青藤：好的，非常感谢。老班长对我们的分析非常精彩，那么其实就刚才提到的清零政策，这个曾经是中共引以为豪的清零政策，这个前两年能够嘲笑西方国家的所谓的清零，国内的所谓的政策的优越性，能够一次性清零。而现在我们看到的这种清零的政策，其实带来的是更大的人道灾难和对人身的一个侵害。我们看到了比比皆是的这种惨剧在中国发生。而这个过程中受害最大的就是中国的老百姓。除了中国的老百姓之外，上海这次封城还有一个受害者，那就是特斯拉，那我们就要提到这个特斯拉的老板伊隆马斯克。
+币安是2021年尝试收购Coins.ph的公司之一，但这笔交易没有成功。赵长鹏领导的交易所已经收购了几个钱包和交易所，包括印度的WazirX。然而，就像其母公司一样，WazirX也面临着监管问题，包括被指控违反了印度的外汇法。
 
-资料來源：[2022.4.6文贵大直播](https://www.gettr.com/streaming/p13unl27254)
+资料来源：[Ex-Binance CFO snaps up Philippine exchange Coins.ph for $200M: report](https://coingeek.com/ex-binance-cfo-snaps-up-philippine-exchange-coins-ph-for-200m-report/)
 
 发布：tianzhihuan
 
 更多资讯，请关注：
 [澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

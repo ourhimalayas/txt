@@ -2,32 +2,39 @@
 ---
 
 
-## 前币安首席财务官以2亿美元收购菲律宾交易所Coins.ph
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302021/)
+## 泽连斯基痛斥俄罗斯掩盖布查大屠杀真相
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302045/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+作者：纽约磐石农场 – 在远方
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/32JX9ATCTH3S289783ULU7M7NJ9PZVY4SYEJEX65-606b111e.jpg)图片来源：www.kalibrr.com
-根据COINGEEK4月7日报道，一位前币安高管购买了东南亚最大的数字货币钱包和交易所之一。据当地报道，前币安首席财务官周炜以2亿美元收购了Coins.ph。
 
-Coins.ph始于2014年，最初是一个电子钱包，允许用户购买、出售和存储一些数字货币。从那时起，它已经扩展到其他服务，包括预付费移动充值、汇款和账单支付。
 
-这家初创公司于2019年1月被印度尼西亚按需多服务平台Gojek和数字支付decacorn收购，标志着该公司首次进军菲律宾。然而，Gojek此后与当地一家电子商务公司合并，现在专注于其本土印尼市场。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-据报道，周炜以2亿美元的价格收购Coins.ph，是Gojek两年前收购该公司的9500万美元的两倍多。
 
-币安是2021年尝试收购Coins.ph的公司之一，但这笔交易没有成功。赵长鹏领导的交易所已经收购了几个钱包和交易所，包括印度的WazirX。然而，就像其母公司一样，WazirX也面临着监管问题，包括被指控违反了印度的外汇法。
 
-资料来源：[Ex-Binance CFO snaps up Philippine exchange Coins.ph for $200M: report](https://coingeek.com/ex-binance-cfo-snaps-up-philippine-exchange-coins-ph-for-200m-report/)
+外媒报道，乌克兰总统泽连斯基4月4日出发前往俄军屠杀平民事件的发生地，布查镇了解情况，并痛斥俄罗斯使用与马航17号班机空难事件同样的伎俩，掩盖战争罪行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-6.jpg)
+泽连斯基表示，普京政府对俄罗斯侵略军屠杀乌克兰平民事件进行了虚假的宣传行动，他们通过数十次采访并重新剪辑影片，让被俄军屠杀的民众看起来是被别人所杀害。而这种行径，俄罗斯过去曾在乌东顿巴斯地区击落马航班机时使用过，并将责任推给乌克兰。俄罗斯还制造各种阴谋论，竟然诬陷乌克兰方面事先将尸体放在飞机上，然后自导自演让飞机坠毁。
 
-发布：tianzhihuan
+2014年7月17日，马来西亚航空MH17班机从荷兰飞往吉隆坡的途中，在乌克兰领空内被山毛榉导弹击落，造成机上298人全部遇难。空难联合调查组经过4年调查后，认定该导弹是俄军第53防空导弹旅所发射，但俄方百般抵赖。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+参考链接：
+1. [澤倫斯基：俄羅斯使用馬航空難同樣策略 試圖掩蓋戰爭罪](https://news.ltn.com.tw/news/world/breakingnews/3882668)
+2. 【[更新4.4】布恰平民遭大屠杀 全球愤怒](http://【更新4.4】布恰平民遭大屠杀%20全球愤怒)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑：Jack Li文阳
+总编：天滅中共
+审核：Irene木木
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

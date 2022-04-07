@@ -2,24 +2,24 @@
 ---
 
 
-## 樱花时政┃乌军人在美受训使用弹簧刀无人攻击机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302082/)
+## 中共银行周末紧急开会布置防挤兑措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302147/)
 
-整理编辑：东京樱花团｜上善若水
+作者：澳喜农场-Leo M
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-17.jpg)
+郭文贵先生在4月4日的盖特直播中透露，中共的几大商业银行在刚刚过去的这个周末，纷纷召开了紧急会议布置措施，防止这星期有可能发生的银行挤兑。   会议要求凡是取款超过5万元人民币的，或是企业取款超过工资发放水平的，银行均需报上一级领导批准；同时，当地公安机关和纪委都将派驻专员进入企业，监督提款和资金的使用情况。   郭先生指出，中共国所谓前十大房地产开发商，包括融创、恒大、保利、富力、合生创展和碧桂园等，都处于欠债不还的状态，而被其拖欠债务的建设施工单位和装修公司都陷入了资金周转不灵的破产边缘。整个中共国经济的崩塌，包括银行、房地产的倒塌即将到来！
 
-美国五角大楼4月6日表示，一批乌军人正在美国训练如何使用“弹簧刀”无人攻击机，这种无人机外号“神风特攻”，被视为坦克死敌。专家分析，“弹簧刀”是一种介于巡航导弹和无人攻击飞行器之间的智能武器，这种导弹可在目标区游荡一段时间以搜索目标，并在定位目标后收起双翼，变成一枚小型巡航导弹，与袭击目标同归于尽，被形容为“神风特攻”。
+参考链接：[中共银行周末紧急开会布置防挤兑措施](https://gettr.com/post/p13im5827c4)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-698.png)[*图片来源*](https://s.rfi.fr/media/display/f6ad203a-b602-11ec-af1a-005056bfb2b6/w:1280/p:16x9/AP3913601466288461.jpg)
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-一批乌军人早在2021年秋已进入美国，美军对他们进行培训，如何发射弹簧刀无人机。国防部匿名高官表示，这批乌克军人有十二人左右，很快重返乌克兰。美国防长奥斯汀出席国会听证会时表示，美国在乌境外帮助培训乌军人，旨在熟练掌握美国提供的武器。“他们中的一些人正在美国培训，”他证实说。
+总编：天滅中共
+编辑：Delilah小胖
+审核：Ivy001
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![此图像的alt属性为空；文件名为Gnews-logo-1-87.png](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-华盛顿还在周二宣布，将以标枪反坦克系统的形式向乌克兰提供多达1亿美元的额外军事援助，这些标枪已成为乌克兰士兵对抗俄罗斯军队的首选武器。
-
-信息来源：[**乌克兰军人在美训练使用弹簧刀无人机**](https://www.bannedbook.org/bnews/headline/20220407/1715793.html)
-
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
