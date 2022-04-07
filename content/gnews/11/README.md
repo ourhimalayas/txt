@@ -2,28 +2,29 @@
 ---
 
 
-## 疫苗护照导致货运卡车司机严重短缺
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301288/)
+## 有声|德法两国驱逐数十名俄罗斯外交官
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301365/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
-
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
-
-据媒体《真北方》4月4日报道，加拿大畜牧业领导人警告称，因特鲁多政府的跨境疫苗护照要求，明年卡车司机会加倍短缺。而可能即将实施的跨省疫苗政策则更将是灾难性的。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-665.png)图片来源：真北方
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 
 
-报道指出，加拿大畜牧业供应链正面临着如何确保饲料供应，以及肉类产品在购销环节中的顺利流通。而强制性的跨境和跨省疫苗护照政策，将使卡车司机短缺现象更为严重。
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+据外媒报，俄军在乌克兰基辅郊区布查屠杀平民罪行暴露后，法德两国周一宣布大规模驱逐俄罗斯外交官，立陶宛宣布驱逐俄罗斯大使。西方同时宣布调查俄军在基辅周边地区犯下的“战争罪”。
 
-据悉，由于此前劳工部长奥雷根和自由党内阁成员的极力反对，联邦政府未能取消“要求卡车司机跨省运输时必须出示疫苗接种证明”的提案。
+德国政府周一宣布，将驱逐数量“很大”的一批常驻柏林的俄罗斯外交官，法新社获得的消息是40名俄罗斯外交官被柏林当局驱逐。法国方面也宣布，驱逐35位俄罗斯外交官，理由是他们的活动“违反法国的利益”。波罗的海国家立陶宛同日也宣布，驱逐俄罗斯驻立陶宛大使。
 
-校对编辑：硫酸羟氯喹64
+文字版原文：[德法两国驱逐数十名俄罗斯外交官](https://gnews.org/zh-hans/2293922/)
 
-发稿：青青
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-原文链接： [https://tnc.news/2022/04/04/trucker-shortage-to-triple-by-next-year-national-cattle-feeders-association/](https://tnc.news/2022/04/04/trucker-shortage-to-triple-by-next-year-national-cattle-feeders-association/)
+音频处理/发稿：Daxia
 
+**更多资讯，更多关注**
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

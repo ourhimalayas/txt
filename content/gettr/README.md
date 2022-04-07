@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 2:01 AM (UTC)`
+
+2022.04.06  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百五十七集 嘉宾：Nick、风雨之中
+![img](https://media.gettr.com/group31/origin/2022/04/07/01/90b6b5cf-2c7a-008b-3ffe-2fec34aa0818/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/7/2022 1:48 AM (UTC)`
 
 4/6/2022  Ukraine Rescue: Besides rescuing refugees, citizens of the New Federal State of China on the front line of the Ukraine rescue operation are also spreading the truth to the local Chinese. Every fellow fighter on the front is a seeder of our Whistleblowers’ Movement, and is bringing the influence of the New Federal State of China to the Chinese around the world<br/><br/>4/6/2022  乌克兰救援连线: 新中国联邦人在乌克兰救援前线除了救助难民，也将真相传播给当地的华人，每一位战友都是爆料革命的播种机，都在将新中国联邦的影响力扩散到世界各地的华人<br/>
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 2022年4月6日 文贵大直播：上海疫情老百姓遭殃；马斯克入股推特暴涨；新歌打榜及人工智能；《商君书》之 连坐与告密
 ![img](https://media.gettr.com/group30/origin/2022/04/06/12/ad70668d-c4a8-45c8-a8a6-978bb6bc07f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/6/2022 12:14 PM (UTC)`
-
- 4月6号：跟着共产党走进火葬场……人间的地狱。长春……心痛啊，心痛啊！
-![img](https://media.gettr.com/group42/getter/2022/04/06/12/4bd38e79-0a14-204b-5151-beb19fed5849/out.jpg)
 
 ---
 

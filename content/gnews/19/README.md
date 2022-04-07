@@ -2,28 +2,33 @@
 ---
 
 
-## 樱花时政┃日本8日起解除106个国家的入境禁令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301131/)
+## 华盛顿批准新的对台湾军售计划
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2301242/)
 
-撰稿：东京樱花团/立正道
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Unknown-1.jpg)华盛顿批准新的对台湾军售计划 网络图片
+据法国国际广播电台4月6日报道，五角大楼5日宣布向台湾出售价值9500万美元的设备和培训服务，以维护台湾的爱国者“地对空”导弹防空系统。
 
-日本政府于6日晚召开了国家安全保障会议的紧急状况大臣会议，决定解封美国、英国、法国、欧洲、亚洲等106个国家的针对中共病毒（新冠病毒Covid-19）感染而制定的入境措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-99.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpgw.udn.com.tw%2Fgw%2Fphoto.php%3Fu%3Dhttps%3A%2F%2Fuc.udn.com.tw%2Fphoto%2F2022%2F04%2F06%2Frealtime%2F16542178.jpg%26s%3DY%26x%3D0%26y%3D0%26sw%3D1280%26sh%3D853%26exp%3D3600&amp;imgrefurl=https%3A%2F%2Fudn.com%2Fnews%2Fstory%2F121707%2F6219794&amp;tbnid=_RysVVwD6SflbM&amp;vet=12ahUKEwi5sqyd04D3AhUo1eAKHXY_BhAQMygAegUIARCEAQ..i&amp;docid=Xx66QAPe0i41rM&amp;w=1280&amp;h=853&amp;itg=1&amp;q=%E8%A7%A3%E9%99%A4%E5%85%A5%E5%A2%83%E6%8E%AA%E6%96%BD%20%E6%97%A5%E6%9C%AC&amp;ved=2ahUKEwi5sqyd04D3AhUo1eAKHXY_BhAQMygAegUIARCEAQ)
-综合判断对象国家的感染状况和疫苗接种情况等，解除对象是
+这是拜登上任以来批准的第三次对台军售。第一次是去年8月交付的40门M109A6型155毫米自行火炮。另外，华盛顿在2月份批准向台湾提供价值1亿美元的空中和导弹防御系统，以应对中共国战机日益增加的入侵。
 
-▽北美的美国和加拿大,
+台湾外交部对这一宣布表示欢迎，这项交易应在一个月内完成。拥有独立民主政府的台湾，不断受到中共国威胁。中共国声称对台湾拥有主权，必要时可使用武力夺回。据法新社统计，在2021年共有969架中共国战机扰台，是2020年380架的两倍以上。
 
-▽欧洲的英国、法国、德国、意大利。
+随着俄乌战争的开始与进程，中共对台湾的袭扰与日俱增，台海危机日益加深。中共随时可能对台湾发动战争，台湾自我防御尤为重要。台湾也深刻影响到美国在亚洲的战略和利益。保护台湾，对台军售是共同的需要。
 
-另一方面，拒绝入境的措施持续的是俄罗斯、伊拉克、埃塞俄比亚等56个国家和地区。
+新闻参考链接：[https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20220406-%E5%8D%8E%E7%9B%9B%E9%A1%BF%E6%89%B9%E5%87%86%E6%96%B0%E7%9A%84%E5%AF%B9%E5%8F%B0%E6%B9%BE%E5%86%9B%E5%94%AE%E8%AE%A1%E5%88%92](https://www.rfi.fr/cn/%25E5%259B%25BD%25E9%2599%2585/20220406-%25E5%258D%258E%25E7%259B%259B%25E9%25A1%25BF%25E6%2589%25B9%25E5%2587%2586%25E6%2596%25B0%25E7%259A%2584%25E5%25AF%25B9%25E5%258F%25B0%25E6%25B9%25BE%25E5%2586%259B%25E5%2594%25AE%25E8%25AE%25A1%25E5%2588%2592)
 
-消息来源：
+* * *
 
-[米英仏など106か国の入国拒否を解除 8日から（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/fdfe363559d86ecf9f5eded608965f3dc47a1611)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

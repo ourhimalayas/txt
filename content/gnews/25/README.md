@@ -2,56 +2,42 @@
 ---
 
 
-## 欧盟将收紧对加密货币转账的管制
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2301082/)
+## 中共是如何洗脑百姓的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301083/)
 
-作者：纽约香草山农场 – 四季
+整理：Mohegayer K. Simon
+编辑：守望黎明
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-659.png)图片来源：GNEWS
 
 
-3月31日，欧盟立法者宣布支持对比特币和其他加密货币转移采取更严格的保障措施。该规则意味着加密货币公司必须收集和分享交易数据。
+中共的洗脑是一项庞大的系统工程。就是在封闭的环境中采用暴力威胁和高强度的思想灌输。用中共的话说，就是“思想改造”。让人从肉体上的怕，到心理上的依赖，反复灌输、不断重复，直到让人变成只听党的话的驯服工具。屏蔽外国网页只是其中的一部分，这个系统工程包括学校教育、舆论宣传、图书出版和流行文化等各个方面。在学校教育方面，孩子从幼儿园开始就会学唱爱国爱党歌曲，学画天安门和五星红旗，中小学语文课本中为了洗脑而胡编乱造。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-31T080904Z_2_LYNXNPEI2U0DK_RTROPTP_0_FINTECH-CRYPTO-BRITAIN-ADVERTISING_1.jpg)在2020年3月13日拍摄的这张照片插图中可以看到虚拟货币比特币。（REUTERS/Dado Ruvic/Illustration/）
+中共的洗脑方法很多，我们可以从下面几个方面看一下：
 
-欧洲议会的两个委员会已经达成了跨党派的妥协，将进行投票。所有转账都将被纳入监管范围。根据欧盟执行委员会去年首次提出的建议，交易所等加密货币公司必须获取、持有并提交参与转账者的信息。
+1.无神论的党文化。共产党本是黑帮、流氓、邪教的集合体，不相信善恶有报，做起恶来从无底线，沉迷于物质生活的满足。
 
-立法委员会还就关于个人而非交易所持有的加密货币钱包做出新的规定，并就建立欧盟高风险或不合规的加密资产服务提供商名单达成了一致。
+2.混淆中共与中国的区别，让你觉得批评中共就是反华辱华，反党就是不爱国。只要批评中共的人权劣迹、揭露中共的恶行，就会被洗脑的人们认为是反华势力。
 
-这是监管机构正在收紧这个自由流动的行业的最新迹象。加密货币交易所Coinbase Global Inc警告说，这些规则将迎来一个扼杀创新的监控制度。
+3.宣传说如果没有共产党的强权统治，中国就会陷入动乱。事实上共产党是各种动乱的根本因素，没有了共产党，才有新中国。
 
-2.1万亿美元的加密货币行业在世界各地仍受到不完善的监管。对比特币及其同行可能破坏金融稳定并被用于犯罪的担忧，加速了政策制定者对该行业的监管工作。
+4.四十年的经济发展，给了中共用来洗脑的本钱。经济发展是全球化带来的机会，是人民血汗积累的成果，但是共产党悉数拿来为自己贴金。其实儒家文化圈的亚洲“四小龙”，没有共产党，不也是发展得很好吗？
 
-**原文阅读：**
+5. 暴力仍然是中共洗脑的基础。除了从肉体上折磨和消灭反抗者，中共还利用高科技来实施数字暴力，大数据、监控器等高科技都用到控制人民的身上，把中国变成了一个大号的监狱。
 
-**[EU lawmakers set to tighten up on crypto transfers | One America News Network (oann.com)](https://www.oann.com/eu-lawmakers-set-to-tighten-up-on-crypto-transfers/)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
-
-编辑/校对/发稿：小鹿
+- 任何洗脑都离不开封闭性的谎言灌输。建立防火墙、封锁海外信息、大量编造假新闻就是中共的基本手段。以此让民众觉得西方社会都是动荡不安、民不聊生，只有中共统治的地方最安全。不少中国人哪怕到了西方，天天还是在看国内的网站，继续相信国内的欺骗宣传，这也是洗脑的一种境界。
+- 宣扬百年屈辱，宣扬民族主义。灌输只有共产党才能救中国。把勇于反抗中共的人，宣扬成敌对势力、是中国人民的敌人。
 
 
+参考链接：[【百年透视】剖析中共洗脑术](https://www.epochtimes.com/gb/21/7/3/n13064830.htm)
 
-**更多资讯，更多关注**
+发布：tianzhihuan
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 
