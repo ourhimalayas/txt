@@ -2,27 +2,32 @@
 ---
 
 
-## 美国乌克兰提供了5000个Starlink终端接收器
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2304351/)
+## 水仙
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2304558/)
 
-**撰稿：日本东京方舟农场 北极**
+作者：香草山教育部–蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2772.jpg)
 
-据焦点报4月7日报道，美国国际开发署（USAID）在SpaceX的支持下向乌克兰移交了5，000个Starlink卫星互联网终端，可为乌克兰任何地方提供无限制和不受阻碍的数据传输。
+水仙鲜艳黄色，努力点缀，凄婉春天。小小草，冒出细细芽，努力把脚步追随。冰冷的雪融化不见 ，失去家园的人们，匆匆去而转回熟悉的家乡。殷切呼唤，回来吧！回来吧！耕种家乡的田 。
 
-美国国际开发署本周二在官网发布公告称，该部门通过与美国航空航天制造商SpaceX的公私合作伙伴关系，向乌克兰政府交付了5，000个Starlink终端接收器。
+家乡的田啊，被炮弹摧毁。黑色土地上，满目疮痍废炮满园，鲜血染红了战士的脸。 泪水侵袭了人们的眼，英雄拥抱弱弱的谁？孩子叫爸爸那么甜美。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-4-1.jpeg)Starlink卫星互联网终端。（图片来自焦点报）
+春天啊，依然盛装着季节岁辉。侵略者残酷，夺不走水仙盛世美颜。黑土地上英雄们，坚强着不怨不悔，侵略者有来无回，留下来做田里的肥。摘一把水仙，送给最美的谁？我诺你，水仙花儿再开时，欢笑充满园。
 
-Starlink卫星终端将使乌克兰实现在任何地方无限，不受限制的数据连接。这些终端将允许政府官员和关键的公民服务提供商继续在乌克兰境内与外界进行通信，即使普京的野蛮侵略切断了乌克兰的光纤或蜂窝通信基础设施连接。
+编辑/审核/发稿：Bronx Bombers
 
-俄乌战争爆发后不久，2月27日，太空互联网服务Starlink在乌克兰上市。SpaceX公司创始人埃隆·马斯克（Elon Musk）以此举回应乌克兰数字化转型部长米哈伊尔·费多罗夫（Mikhail Fedorov）的呼吁，并承诺在未来提供更多的通信终端。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
 
-参考链接：
-1. [https://reurl.cc/2Dpq69](https://reurl.cc/2Dpq69)
-2. [https://reurl.cc/jkL0QL](https://reurl.cc/jkL0QL)
+**更多资讯，更多关注**
 
-总编：青城道姑
-校对发布：文曦
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

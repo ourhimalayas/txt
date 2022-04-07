@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 2:10 PM (UTC)`
+
+Dictatorship comes from the people, but the people can also overthrow a dictator, that is the law of history. As it was in the former Soviet Union, the Chinese Communist Party will also be overthrown or disintegrated<br/>独裁来自于人民，但人民也可以推翻独裁者，这是历史规律。前苏联如此，中共也会被推翻或者解体
+![img](https://media.gettr.com/group14/origin/2022/04/07/14/45101c14-a0fe-3315-2b7a-db675b914d54/out.jpg)
+
+---
+
+`@miles 4/7/2022 2:02 PM (UTC)`
+
+叶钊颖-郝海东-飞飞 《大实话·第十七场》： “爱“  2022-04-07
+![img](https://media.gettr.com/group12/origin/2022/04/07/14/de7a0f90-4ac7-7457-3ac4-ed3fc9cd33e1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/7/2022 1:58 PM (UTC)`
+
+4月7号：尊敬的战友们好．骄傲的上海人．成功的上海人．确实与众不同的上海人．一夜之间成了被伤害的最严重的人，现在的上海人．人格尊严．连狗不如。这都是为什么呢？
+![img](https://media.gettr.com/group47/getter/2022/04/07/13/3b893131-0485-78c5-8677-769cf4753f1d/out.jpg)
+
+---
+
 `@miles 4/7/2022 12:58 PM (UTC)`
 
 2022.04.07早《新中国联邦新闻访谈》
@@ -131,27 +152,6 @@
 
 4/6/2022 Ukraine Rescue: Numerous young people want to go to Ukraine to fight for righteousness and the innocent lives slaughtered during the war. While the earth is coming back to life in the warm sunshine of the Spring day, flames of war shattered the people' s homes. Fellow fighters, please cherish every moment of the peaceful days!<br/><br/>4/6/2022 乌克兰救援连线：无数年轻人都想去乌克兰为正义和被屠戮的无辜生命而战；大地在春日的暖阳中复苏，而战火却击碎了老百姓的家园，请战友们珍惜和平日子的每分每秒！<br/>
 ![img](https://media.gettr.com/group34/getter/2022/04/07/00/8283be7e-51f1-b3ec-1a26-8c242f7b05d0/out.jpg)
-
----
-
-`@miles 4/6/2022 11:35 PM (UTC)`
-
-2022.04.06《The Fringe》 Episode 163
-![img](https://media.gettr.com/group12/origin/2022/04/06/23/a2c191a6-f70c-9db1-c3e0-d95faa528d58/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/6/2022 11:03 PM (UTC)`
-
-2022.04.06 NFSC News  The NFSC cooperates with the international community on eliminating the CCP
-![img](https://media.gettr.com/group34/origin/2022/02/08/23/4612eac5-fc0c-70d9-9fb3-a2845a5ff525/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/6/2022 10:00 PM (UTC)`
-
-新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-06<br/>For English：gettr.com/post/p13xgtj79b1
-![img](https://media.gettr.com/group13/origin/2022/04/06/22/9ccd6dbb-15b1-5987-4d52-11d251d392ca/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
