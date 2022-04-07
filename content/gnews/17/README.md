@@ -2,25 +2,28 @@
 ---
 
 
-## 阿尔伯塔省首席卫生官被免职
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301597/)
+## 樱花时政┃美欧对俄追加经济制裁 普京女儿资产被冻结
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301700/)
 
-采编/编译撰稿：加拿大温哥华扬帆农场 – 薇文
+撰稿：东京樱花团/向海
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/美欧对俄追加经济制裁-普京女儿资产被冻结.png)[图片来源](https://www.nikkei.com/article/DGXZQOGN06DIL0W2A400C2000000/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-677.png)图片来源：The National Telegraph
+4月6日，美国拜登政府宣布对入侵乌克兰的俄罗斯实施追加经济制裁。 除了冻结最大的俄罗斯联邦储蓄银行和阿尔法银行的资产外，还将禁止对俄罗斯的新投资以及与主要国有企业的交易。 普京的两个女儿，维克洛夫外相的妻子和女儿以及前总统梅德韦杰夫的资产也将被冻结。
 
+由于在乌克兰首都基辅附近发现了多具平民尸体，国际社会的批评进一步加剧，与七国集团（G7）和欧盟（EU）的合作将加大对俄罗斯的压力。 拜登在推特上表示，将使其“立即付出沉重的代价”。
 
-据加拿大[国家电讯报]4月4日报道，因在疫情期间的工作失误和管理不善，阿尔伯塔省首席卫生执行官维尔纳·姚于当天被省政府正式解雇。
+信息来源：
+[米欧、対ロシア追加経済制裁　資産凍結、プーチン氏娘も対象](https://news.yahoo.co.jp/articles/a968581f34cdd63cf3f3bb7f630f816522bf1a3a)
 
-报道称，阿省卫生部负责人在疫情期间独断专行，甚至非法篡改所有住院和ICU病床数量等疫情信息，并由于参考了这些错误数据而使该省的医疗系统表现出始终处于崩溃边缘，而实际上政府的医疗资源却未被充分利用。
-
-据悉，姚曾此前还试图解雇该省卫生系统内2.6万多名未接种疫苗的医护人员，以实现高接种率目标。其所作所为导致疫情看起來需要更严格的封锁和限制才能被解决。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [Dr. Verna Yiu Has Been Removed As Alberta Health Services CEO](https://thenationaltelegraph.com/regional/breaking-dr-verna-yiu-has-been-removed-as-alberta-health-services-ceo)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 医药厂商只在乎通过给儿童接种疫苗而获利
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301698/)
+## 4月6日文贵大直播要点（图片1-10）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2301803/)
 
-04/04/2022 斯蒂芬妮·洛克里奇奥：医药公司通过中共疫苗在儿童身上赚取利润。疫苗的不安全性和无效性被人们忽略了，然而医药机构已经收买了每一家媒体出版物，所以媒体已经成为一种惩罚手段，它们会在疫苗准备就绪的时候提醒家长带他们的孩子打疫苗。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+设计 五月花农场 水涨船高
+![](https://assets.gnews.org/wp-content/uploads/2022/04/BE211D20-B535-4E26-AF3D-54DE85B0151D-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/EABE8A18-CFBC-42A8-A9C9-DB0FCCBCA1C7-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/CD2DF518-2D2B-43A7-BBDE-B754B71EE8A8-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/4043808B-B28D-49C6-BCBD-BED0A26BF152-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/9DD09065-0808-49C4-87DE-F09E91286C8B-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/8301F663-DEB4-498D-B883-3377A8EB9849-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/22205D34-9AEF-4029-9ACE-87A5BDB173F7-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/828EF74B-52A0-42AA-8928-7840A6F57D91-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/6EE92D61-07AE-49CC-9379-FAA7B37276D1-scaled.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/04/22F5F908-2015-45B2-88E1-4BC4127FF3B5-scaled.jpeg)
+发布： 水涨船高
 
  
 

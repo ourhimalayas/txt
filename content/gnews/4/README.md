@@ -2,12 +2,27 @@
 ---
 
 
-## 布查生还者讲述俄军屠杀期间他们及其家人的经历
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301738/)
+## 加拿大将立法要求社交媒体为新闻付费
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301872/)
 
-04/06/2022 布查生还者伊琳娜和她的父亲讲述俄军屠杀期间她和家人的经历。她的丈夫被俄军处决，房子被烧毁。凶手怀疑是车臣卡德罗夫西部队，他们却称自己是“解放者”。
+采编撰稿： 加拿大温哥华扬帆农场 – 活力人生
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-684.png)图片来源：https://www.bnnbloomberg.ca/
+
+
+据【彭博新闻】4月5日报道，加拿大正计划推出一项法案，强制脸书和谷歌等网络社交巨头通过协商交易以补偿本地媒体机构所提供的新闻内容。
+
+加拿大遗产部长对此表示，由于越来越多人将数字社交媒体作为获取新闻资讯的门户，因此对传统新闻业产生了巨大的冲击。因脸书和谷歌等平台持续通过免费共享和分发加拿大新闻媒体的内容获利，而导致了新闻产业市场的失衡和不公。
+
+据悉，随着在线广告收入集中流向网路科技巨头，越来越多的传统媒体公司因此陷入了困境。自 2008 年以来，加拿大有 450 多家新闻机构倒闭。此前澳大利亚和美国都已引入了类似的立法，欧洲的新闻出版商也在努力制定类似法规
+
+校对编辑：硫酸羟氯喹64
+
+发稿：青青
+
+新闻来源： [https://www.bnnbloomberg.ca/canada-to-force-google-facebook-to-pay-news-publishers-1.1748052](https://www.bnnbloomberg.ca/canada-to-force-google-facebook-to-pay-news-publishers-1.1748052)
 
  
 
