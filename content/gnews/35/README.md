@@ -2,88 +2,41 @@
 ---
 
 
-## 拜登明确表示,罗斯将为其在布查的暴行立即付出沉重的代价
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2301992/)
+## 美德合作关闭俄罗斯大型暗网黑市HYDRA，检获2500万比特币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302044/)
 
-**拜登总统： **
-我明确表示，俄罗斯将为其在布查的暴行立即付出沉重的代价。 今天，我们将与我们的盟友和合作伙伴一起，宣布新一轮的毁灭性制裁。 【附白宫官网：情况说明书：美国、七国集团和欧盟让俄罗斯立即付出沉重的代价】
-
-
-
-> I made clear that Russia would pay a severe and immediate price for its atrocities in Bucha. Today, along with our Allies and partners, we’re announcing a new round of devastating sanctions. [https://t.co/LVqTDIOSvz](https://t.co/LVqTDIOSvz)
-> — President Biden (@POTUS) [April 6, 2022](https://twitter.com/POTUS/status/1511715451738464256?ref_src=twsrc%5Etfw)
+作者：香草山教育部 – Noemi
 
 
 
-**美国务卿安东尼·布林肯： **
-与(北约秘书长)斯托尔滕贝格 [@JensStoltenberg](https://twitter.com/jensstoltenberg) 举行了富有成效的会议，讨论了我们对乌克兰及其人民的持续支持。 我们还谈到了北约 [@NATO](https://twitter.com/NATO) 的伙伴关系及其下一个战略理念，该理念评估了当前和未来对基于规则的国际秩序的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
 
 
-> Had a productive meeting with [@JensStoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw) as we discussed our continuing support for Ukraine and its people. We also spoke about [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw)’s partnership and its next Strategic Concept, which assesses current and future threats to the international rules-based order. [pic.twitter.com/Jn84PNnPCx](https://t.co/Jn84PNnPCx)
-> — Secretary Antony Blinken (@SecBlinken) [April 6, 2022](https://twitter.com/SecBlinken/status/1511824027207229446?ref_src=twsrc%5Etfw)
+美国司法部4月5日宣布，成功与德国警方联手捣破并关闭了全球最大的地下暗网市场Hydra Market，德国警方关闭Hydra在德国境内的伺服器，并检获了2,500万美元的比特币。
+
+据美国司法部调查发现，2021年所有透过暗网买卖的加密货币中，80%在Hydra Market交易。2015年起，Hydra Market的加密货币交易额约为52亿美元，从中赚取的佣金更高达数千万美元。有外媒报导指，Hydra Market的用户主要来自俄语国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.jpg)
+司法部同时起诉了一名叫帕夫洛夫的俄罗斯男子，指控其成立并管理Hydra，使Hydra成为成千上万毒贩和非法交易的平台。
+
+与此同时，美国财政部也宣布对Hydra及俄罗斯加密货币交易所Garantex进行制裁，禁止美国人透过Hydra或Garantex交换资金、商品或服务，并冻结有关资产。
+
+据悉，Garantex的主要业务在俄罗斯莫斯科和圣彼得堡，财政部认为Garantex在协助洗黑钱的同时，还利用非法软件，攻击他人电脑。
+
+另外，有区块链研究人士指出，2019年俄罗斯加密货币交易所收取的非法比特币中，86%来自Hydra。美国财政部长耶伦表示，此举不仅可以阻挠来自俄罗斯的网路犯罪、违禁药品及其他非法服务，还向外界传达了一个讯息，那就是犯罪者已无法继续在暗网或其平台藏匿。
+
+参考链接：
+1. [U.S. imposes sanctions on Russian darknet market and crypto exchange](https://www.reuters.com/world/europe/us-hits-major-russian-banks-with-sanctions-over-invasion-ukraine-2022-02-24/)
+2. [Feds slay dark-web souk Hydra: Servers and $25m in crypto-coins seized](https://www.theregister.com/2022/04/05/us_germany_hydra/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：天滅中共
+校对/发稿：为真不破20
 
 
 
-**美国务卿安东尼·布林肯：** 
-我和来自法国、德国、意大利、英国的同行们讨论了继续通过安全和经济援助、以及人道主义援助来支持乌克兰的计划。 [#与乌克兰团结一致](https://twitter.com/hashtag/%E4%B8%8E%E4%B9%8C%E5%85%8B%E5%85%B0%E5%9B%A2%E7%BB%93%E4%B8%80%E8%87%B4?src=hashtag_click) [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hashtag_click)
-
-
-
-> My counterparts from France, Germany, Italy, the UK, and I discussed plans to continue to support Ukraine with security and economic assistance as well as humanitarian aid.  [#UnitedWithUkraine](https://twitter.com/hashtag/UnitedWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/nIn8c6w9jJ](https://t.co/nIn8c6w9jJ)
-> — Secretary Antony Blinken (@SecBlinken) [April 6, 2022](https://twitter.com/SecBlinken/status/1511808432948617226?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本： **
-一年多来，主流霉体一直在对亨特·拜登和他的末日笔记本电脑丑闻撒谎。
-
-
-
-> The mainstream media has lied to you for over a year about Hunter Biden and his laptop of doom.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2022](https://twitter.com/MarshaBlackburn/status/1511863576780288005?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥：** 
-看到乌克兰遭受的破坏令人心碎，尤其是知道它不需要发生。 美国的威慑力可以阻止我们现在看到的战争。 我们现在必须采取措施，在世界范围内重建威慑力量。 【转蓬佩奥发文《国家利益》： 核武器、[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)、和本世纪的战略防御计划】
-
-
-
-> To see the devastation of Ukraine is heartbreaking, especially knowing that it didn’t need to happen. American deterrence can prevent wars like we are seeing now. We must take steps now to reestablish deterrence around the world. [https://t.co/82yZ48WXFT](https://t.co/82yZ48WXFT)
-> — Mike Pompeo (@mikepompeo) [April 6, 2022](https://twitter.com/mikepompeo/status/1511707806180782083?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥：** 
-乔·拜登总统几乎在每个领域都辜负了美国人民。 能源是我们可以快速再次获胜的地方。 乔，打开 基石输油 管道。 允许在（我们的）家园进行强劲的石油和天然气生产。
-
-
-
-> President Joe Biden is failing the American people in almost every area. Energy is where we can quickly win again. Open the keystone XL pipeline, Joe. Allow robust oil and natural gas production at home.
-> — Mike Pompeo (@mikepompeo) [April 6, 2022](https://twitter.com/mikepompeo/status/1511750717995991042?ref_src=twsrc%5Etfw)
-
-
-
-**众议员兰斯·古登：** 
-伊隆·马斯克投入数十亿美元来保护言论自由。 现在国会必须采取行动来收拾其他大型科技公司。
-
-
-
-> Elon Musk put billions on the line to protect free speech.
-> 
-> Now Congress must act to rein in the rest of Big Tech.
-> — Lance Gooden (@Lancegooden) [April 6, 2022](https://twitter.com/Lancegooden/status/1511675336601255943?ref_src=twsrc%5Etfw)
-
-
-
-**比尔·格茨: **
-文件和证词显示，中央情报局总法律顾问提名人为 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的关联公司做法律工作。 【附华盛顿时报的文章：该提名人曾为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府相关制药公司做过法律工作】
-
-
-
-> CIA general counsel nominee did legal work for Chinese Communist Party-linked company, documents and testimony reveal [https://t.co/Wy1LWtBqEN](https://t.co/Wy1LWtBqEN)
-> — Bill Gertz (@BillGertz) [April 7, 2022](https://twitter.com/BillGertz/status/1511867409581322242?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
 
 
