@@ -2,32 +2,31 @@
 ---
 
 
-## 【G时新闻】被指发表涉疫不当言论 辽宁官媒主播遭停职
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2302842/)
+## 三问丹东卫健委
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302937/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【文广】
-视频制作：加拿大温哥华扬帆农场 -【Gracelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
-据明报新闻网4月6日报道，朱霞3月30日在个人网络直播平台直播时，有网民问到沈阳皇姑区的防疫情况时，朱霞说：「皇姑区的朋友最近一定要非常的小心，做好个人防护，因为有些原因不能说。」她又继续呼吁，你们请听我说，听我说，我说不出为何，缘故和原因。你们听我的话就对了」，「这个『皇姑区』，但这个区域的朋友一定要多加小心，明白吗？」
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+近日一段专业人士与丹东卫健委的谈话中丹东市卫健委讲到：不是说打疫苗才是无症状感染，是因为打疫苗它起到了一定保护作用，（说什么呢？）症状不是很明显，（说什么呢？）所以他才是无症状感染。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/三问丹东卫健委.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Ff%2Ff6%2FDandong_and_Yalu_River.jpg&amp;imgrefurl=https%3A%2F%2Fzh.wikipedia.org%2Fwiki%2F%25E4%25B8%25B9%25E4%25B8%259C%25E5%25B8%2582&amp;tbnid=SHPIkv4qFgFpyM&amp;vet=12ahUKEwiZ-M-px4H3AhUR4uAKHcOkDX4QMygAegUIARCgAQ..i&amp;docid=GiIamkLaMW9yDM&amp;w=1600&amp;h=900&amp;q=%E4%B8%B9%E4%B8%9C&amp;ved=2ahUKEwiZ-M-px4H3AhUR4uAKHcOkDX4QMygAegUIARCgAQ)
+一问，什么叫打疫苗起到了一定保护作用？疫苗有效就是有效，无效就是无效，还起一定保护作用 ?如若如此，吃个鸡蛋喝口汤，凡事有利身体健康的东西都有一定保护作用。
 
-在朱霞直播事件发生前的3月27日，沈阳新增70宗阳性感染者，其中最多的皇姑区有29宗。目前沈阳市的疫情仍在持续，就在4月3日，皇姑区还决定要求全区全员核酸检测。至前日沈阳新增46宗本土无症状感染者中，皇姑区亦占2宗。
+二问，打疫苗怎么会感染，打了还能感染问什么要打？
 
-辽宁广播电视集团（台）都市频道上周五（1日）就事件作出调查处理决定，网上流传的处理决定文件显示，暂停朱霞主持、采访各项工作，免去朱霞频道播音管理部负责人职务，并就此事进行通报批评，暂停朱霞新媒体账号更新等。
+三问，打了疫苗感染了还没症状，是不是为防疫添乱，添的乱谁来负责?
 
-辽宁台的另一份通报文件称，辽（宁）台是省委和省政府的喉舌，播音员、主持人的言行不仅代表个人形象，更代表党的媒体形象。集团党委要求播音员、主持人深刻汲取此次宣传事故教训，举一反三，引以为戒，自省自查，谨言慎行。都市频道也要求全体主持人疫情期间，不得进行带货直播、不得发表涉疫言论。有关文件同时显示，都市频道责成朱霞作出深刻检查与反思，频道视反思情况及后续落实情况，保留进一步追究其责任的权利。
+消息来源：
+[https://gettr.com/post/p13yuf3618a](https://gettr.com/post/p13yuf3618a)
 
-编辑/上传：一叶
-盖特链接：[https://gettr.com/post/p13xhn39329](https://gettr.com/post/p13xhn39329)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
-* * *
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-更多加拿大温哥华扬帆农场的频道，请关注：
-
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
-- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
