@@ -15,62 +15,62 @@
 
 ---
 
-### [中共国经济将在疫苗灾难中崩溃](/content/gnews/1/README.md)
+### [4/6/2022 乌克兰救援连线：无数年轻人都想去乌克兰为正义和被屠戮的无辜生命而战；大地在春日的暖阳中复苏，而战火却击碎了老百姓的家园，请战友们珍惜和平日子的每分每秒](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共国经济将在疫苗灾难中崩溃](/content/gnews/2/README.md)
  ` 扬帆枫叶快讯`
 
-### [突发：拜登说在布查的杀戮是“令人发指的”，呼吁对普京进行战争罪审判](/content/gnews/2/README.md)
+### [突发：拜登说在布查的杀戮是“令人发指的”，呼吁对普京进行战争罪审判](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [马斯克认购推特将改变社交媒体现状](/content/gnews/3/README.md)
+### [马斯克认购推特将改变社交媒体现状](/content/gnews/4/README.md)
  ` 扬帆枫叶快讯`
 
-### [美敦促取消俄在联合国人权理事会资格](/content/gnews/4/README.md)
+### [美敦促取消俄在联合国人权理事会资格](/content/gnews/5/README.md)
  ` 扬帆枫叶快讯`
 
-### [欧盟将停止进口俄煤炭等能源产品](/content/gnews/5/README.md)
+### [欧盟将停止进口俄煤炭等能源产品](/content/gnews/6/README.md)
  ` 扬帆枫叶快讯`
 
-### [日本修法加强对俄罗斯加密资产制裁](/content/gnews/6/README.md)
+### [日本修法加强对俄罗斯加密资产制裁](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃日本8日起解除106个国家的入境禁令](/content/gnews/7/README.md)
+### [樱花时政┃日本8日起解除106个国家的入境禁令](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [普京政权因战争罪面临欧美进一步围剿](/content/gnews/8/README.md)
+### [普京政权因战争罪面临欧美进一步围剿](/content/gnews/9/README.md)
  ` 扬帆枫叶快讯`
 
-### [加拿大将对白俄政府和个人实施新制裁](/content/gnews/9/README.md)
+### [加拿大将对白俄政府和个人实施新制裁](/content/gnews/10/README.md)
  ` 扬帆枫叶快讯`
 
-### [伊万卡在众议院1月6日委员会作证](/content/gnews/10/README.md)
+### [“今天，整个乌克兰都是在战斗中铸就的”](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [伊万卡在众议院1月6日委员会作证](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大萨省面临农业生产危机](/content/gnews/11/README.md)
+### [加拿大萨省面临农业生产危机](/content/gnews/13/README.md)
  ` 扬帆枫叶快讯`
 
-### [美国联邦调查局表示捣毁了俄罗斯黑客行动](/content/gnews/12/README.md)
+### [美国联邦调查局表示捣毁了俄罗斯黑客行动](/content/gnews/14/README.md)
  ` 蓝莲花农场`
 
-### [中共是如何洗脑百姓的](/content/gnews/13/README.md)
+### [中共是如何洗脑百姓的](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年4月6日文贵大直播摘要及音频—银河系农场](/content/gnews/14/README.md)
+### [欧盟将收紧对加密货币转账的管制](/content/gnews/16/README.md)
+ ` 纽约香草山MOS02`
+
+### [2022年4月6日文贵大直播摘要及音频—银河系农场](/content/gnews/17/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [泽连斯基敦促联合国驱逐俄罗斯并追究莫“战争罪”责任](/content/gnews/15/README.md)
+### [泽连斯基敦促联合国驱逐俄罗斯并追究莫“战争罪”责任](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|中共国正在寻求被制裁的俄罗斯低价天然气](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [美国制裁普京的两个女儿和俄罗斯两家最大银行](/content/gnews/17/README.md)
+### [美国制裁普京的两个女儿和俄罗斯两家最大银行](/content/gnews/19/README.md)
  ` 蓝莲花农场`
-
-### [有声|祈求](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [有声|四大会计师事务所退出中共国地产商审计](/content/gnews/19/README.md)
- ` MOSREC`
 
 ### [樱花时政┃中共网信办：禁止祭祀活人](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,42 +2,41 @@
 ---
 
 
-## 有声|四大会计师事务所退出中共国地产商审计
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301013/)
+## 美国制裁普京的两个女儿和俄罗斯两家最大银行
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2301039/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据外媒4月2日报道，多家中共国地产上市公司推迟发布2021财务报表，跨国会计师事务所正陆续从行业审计工作中退出。此举令正面临史上最大债务危机的中资房地产企业，雪上加霜。
+翻译：多伦多蓝莲花- 灭共文明、冰糖葫芦喵
 
-在一系列债务违约事件发生后，共有10家地产上市公司在3月31日前宣布延迟发布财务年报。据悉，四大会计师事务所之一的普华永道，因恒大审计业务正在香港受到调查。普华永道和德勤在三个月内已辞去了世茂集团、合生创展、融创中国和宝龙地产的审计工作。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-3.jpg)
-公开信息显示，德勤、普华永道、毕马威和安永曾经花了三年时间在中共国和香港发展了大规模的业务，在会计审计领域占有主导地位。在270家美国上市的中概股公司中，这四家事务所的业务占了一半以上。
+编辑：冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》华盛顿4月6日报道，**周三，美国针对俄罗斯两家最大的银行和精英阶层实施新一轮制裁，其中包括禁止美国人在俄罗斯投资，以惩罚俄罗斯军队在乌克兰犯下重大战争罪行”。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/制裁-e1649288074160.jpg)（图片来源：www.saltwire.com）
+报道称，**周三受到制裁的人中包括俄罗斯总统普京的两个成年女儿、俄罗斯前总统梅德韦杰夫、俄罗斯总理米哈伊尔·米舒斯汀和司法部长康斯坦丁·楚先科，以及俄罗斯外长拉夫罗夫的妻子和女儿。**
 
-四大事务所多年来一直在审计文件上签字，为这些中企背书。然而，更多证据显示，这些房地产企业将无法偿付巨额债务，四大所如果继续提供审计业务，也将面临连带的法律风险，已有债券持有人考虑对审计行发起渎职诉讼。
+美国官员表示，**新的制裁打击了俄罗斯联邦储蓄银行(Sberbank)和俄罗斯第四大金融机构阿尔法银行(Alfabank)。**其中，俄罗斯联邦储蓄银行持有俄罗斯银行总资产的三分之一。
 
-在此背景下，四大会计师事务所选择退出这些高风险的中资房地产公司审计业务。所有业务均转入香港本地的审计公司。信用分析机构据此评论称，审计事务所的变动是一个 “潜在的会计违规行为的迹象”。
+白宫在一份声明中说，星期三的”全面封锁性制裁”将冻结这两家主要银行”涉及美国金融体系”的资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-format2020.jpg)俄罗斯联邦储蓄银行在莫斯科的标志（图片来源：www.handelsblatt.com）
+报道称，**英国也冻结了俄罗斯联邦储蓄银行的资产**，并表示**，将在今年年底前禁止进口俄罗斯的煤炭。**这是英国与美国和其他西方盟国联手实施的最新一轮制裁，目的是饿死普京的战争机器。
 
+周三，美国总统拜登在对劳工领袖的讲话中说，没有什么比重大战争罪行更严重的了。他还说，负责任的国家必须团结起来，将这些肇事者绳之以法。”
 
+白宫还表示，**拜登正在签署一项行政命令，禁止美国人在俄罗斯的任何地方进行新的投资，**这将使俄罗斯进一步从全球经济中孤立出来。这将包括禁止风险投资和并购。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220225010232_6c8c5417b8a5d5b40afcfaa21a6c5c9e5421b914c948f3204a35ce545be07211.jpg)美国拜登总统就俄罗斯入侵乌克兰发表声明（图片来源：法新社）
+美国政府的一名高级官员告诉记者，**通过切断俄罗斯最大的几家银行的供应**，美国正在“大幅升级”对俄罗斯的金融冲击。俄罗斯正在陷入经济、金融和技术上的孤立。按照这个速度，**俄罗斯人的生活水平将回到上世纪80年代的苏联模式。**
 
-文字版原文：[四大会计师事务所退出中共国地产商审计](https://gnews.org/zh-hans/2292927/)
+白宫经济委员会(White House Economic Council)主任迪斯(Brian Deese)说，据估计，俄罗斯经济将在2022年收缩10%至15%，俄罗斯的通货膨胀率为200%。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+新闻来源链接：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[Russia hit with new round of U.S. sanctions as Biden decries ‘major war crimes’ | Reuters](https://www.reuters.com/world/us-allies-ban-investments-russia-sanction-banks-2022-04-06/)
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
