@@ -2,29 +2,57 @@
 ---
 
 
-## 纽约最高院法官因拒绝新冠疫苗可能被免职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2305408/)
+## 有声|醒来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305444/)
 
-#### 选材/编译  ： Cran
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16493558801.png)NYpost.com
-据《赫芬顿邮报》4月6日报道，美国纽约最高院法官珍妮·里维拉（Jenny Rivera）可能因未能提供新冠疫苗接种证明而被免职。
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+从黑暗中醒来
+再也无法安睡
+接触到真相
+再不能与虚假为伍
+醒来的人
+悲壮着
+抵抗各类攻击和污蔑
+就算只剩一个人
+也不独孤
+当黑暗笼罩一切
+我燃烧我自己
+为人们照亮
+前行的路
+我的信仰
+支撑我到胜利那一刻
+拯救了一个人
+便是拯救了整个世界
+来吧
+把所有的
+你们可以发明的肮脏
+泼向我
+请不要迫使
+无辜人们
+流离失所
+如果有一天我终将离去
+牺牲证明我没有放弃
+如果那一天
+我已经离去
+天和地之间
+存留着
+关于我的传说
 
-里维拉于2013年被任命为上诉法院法官。纽约州上诉法院相当于纽约的美国最高法院。里维拉是该州上诉法院七名法学家之一。自去年10月以来，因为被禁止进入法院，她一直在家里远程工作；只通过视频参与听证会。她因不遵守 “疫苗规定” ，其职务被移交给州司法行为委员会四名法官中的其中一位。
+文字版原文：[醒来](https://gnews.org/zh-hans/2302663/)
 
-法院发言人卢西安·查尔芬（Lucian Chalfen）说：“任何不遵守规定的法官都将被提交司法行为委员会裁决”。周二，州长凯西·霍丘尔（Kathy Hochul）任命了一名新的上诉法院法官。
+音频处理：Fei797
+发稿：Fei797
 
-3月21日，州法院系统通知156名法院雇员；如果他们在4月4日之前没有出示疫苗接种证明都将被解雇。在这些雇员中，有103人收到了解雇信，一人辞职，11人将退休，41人选择遵守规定并将返回工作岗位。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-根据委员会裁决数据库，这种限期通知不适用于法官，法官只能由司法行为委员会免职。委员会从未批准或罢免过 “上诉法院” 法官。里维拉目前可以继续担任法官。
-
-司法行为委员会在其网站上表示，所有案件都是保密的，直到公开某位法官的处罚、免职或退休。自1978年成立以来，该委员会已对912起案件作出裁决，罢免了176名法官的职务，并公开谴责了342名法官。另有114名法官因委员会的程序而退休或辞职。
-
-*责编：白夜*
-
-[原文链接](https://www.huffpost.com/entry/jenny-rivera-covid-vaccine-mandate_n_624dda2de4b068157f7f96fa)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

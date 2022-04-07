@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 7:01 PM (UTC)`
+
+2022-4-7《避风港》(33) VAERS证实：疫苗是元凶
+![img](https://media.gettr.com/group37/origin/2022/04/07/18/ff95aca7-e651-98cb-ff9a-183b310012c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 5:48 PM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动-俄乌战争最新战况播报
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 2022.04.06 晚  新中国联邦 | 新闻访谈   从夹边沟到大上海，铁蹄下的蝼蚁从未改变
 ![img](https://media.gettr.com/group46/origin/2022/04/07/00/7bf69cf3-51e6-9424-6599-4c0334664af9/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/7/2022 12:30 AM (UTC)`
-
-2022.04.06 晚 新中国联邦 | 新闻    上海新增病例持续破万，中共出动武警严管，市民发起团购自救
-![img](https://media.gettr.com/group6/origin/2022/04/07/00/8243fea7-db13-3344-f1e8-09792c0def03/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

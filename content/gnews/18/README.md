@@ -2,25 +2,38 @@
 ---
 
 
-## 美、英、澳承诺共同研究高超音速武器
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305188/)
+## 北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2305208/)
 
-作者：华盛顿DC农场 自由信仰
+***评论：**芬兰与瑞典均是1995年才加入欧盟。在2014年，俄罗斯进兵克里米亚后，两国曾考虑放弃中立并加入北约。如今，伴随今年的俄乌危机，两国国民支持加入北约的比例均大幅增加。但是，考虑到对欧洲安全局势产生不利影响，并进一步增加现有紧张局势的风险，芬兰和瑞典均称尚不考虑加入北约。而乌克兰申请加入北约就没有如此顺利了，正如乌克兰总统泽连斯基表示，“因为德国和法国在2008年的布加勒斯特北约峰会上拒绝了乌克兰加入北约，导致该国布查市发生了一系列平民死亡的事件”。*
 
-当地时间4月5日，据英国媒体报道，英国首相约翰逊办公室当天在一份声明中表示，在美国、英国和澳大利亚新防卫联盟的领导人——拜登、约翰逊与莫里森——当天举行的电话会议后，三国确认将在高超音速和反高超音速以及电子战能力方面开展新的三边合作。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-45.jpg)
-据悉，美国和澳大利亚早先已经商定了一份高超音速武器计划，尽管英国目前不会加入该计划，但三国将在该领域的研发方面开展新的合作。
+据《路透社》记者Robin Emmott， 2022年4月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-756-e1649351348807.png)图片来源：REUTERS/Gonzalo Fuentes/File Photo
+布鲁塞尔，4 月 5 日（路透社）—北约秘书长斯托尔滕贝格周二表示，如果芬兰和瑞典决定加入北约，北约盟国将欢迎它们加入，但任何行动都取决于这两个国家。
 
-报道也提到，俄罗斯当前对乌克兰的入侵战争加剧了全世界对欧洲安全的担忧，美国政府正在全力研发以五倍音速飞行的高超音速导弹。此外，约翰逊首相也重申，全球要坚定不移地致力于建立一个尊重人权、法治，以及在不受胁迫的情况下和平解决争端的国际体系。此外，三国领导人也再次强调了对自由和开放的印太地区的承诺。
+斯托尔滕贝格在新闻发布会上表示:“当然，这要由他们来决定，但如果他们提出申请，我预计30个盟国将欢迎他们。”
 
-参考链接：[UK, U.S., Australia agree to work on hypersonics under defence pact](https://www.reuters.com/world/uk-us-australia-agree-work-hypersonics-under-defence-pact-2022-04-05/)
+他表示，北约可能会想方设法“解决他们对过渡时期（从申请到最后一次由盟国批准）可能存在的担忧之间的”，指的是俄罗斯可能在两国完全受到北约保护之前进行报复。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+文章观点仅代表作者个人，与Gnews平台无关
 
-总编：Irene木木
-编辑：飞虹
-审核：Irene木木
-校正/发稿：Fei797
+文章来源: [https://www.reuters.com/world/europe/if-finland-sweden-apply-join-nato-they-would-be-welcomed-stoltenberg-says-2022-04-05/](https://www.reuters.com/world/europe/if-finland-sweden-apply-join-nato-they-would-be-welcomed-stoltenberg-says-2022-04-05/)
+
+翻译：洛杉矶盘古农场 –钢蛋儿
+
+校对：洛杉矶盘古农场 – HotPixel
+
+评论：洛杉矶盘古农场 –钢蛋儿
+
+编辑：洛杉矶盘古农场 –傻小子
+
+发布：洛杉矶盘古农场 –子萍
+
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

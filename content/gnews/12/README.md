@@ -2,27 +2,32 @@
 ---
 
 
-## 乌克兰信息部队成功攻击俄罗斯资源网站
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305247/)
+## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
 
-作者：温哥华扬帆农场 動物農莊裡的小螞蟻Michael.Tonny
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
 
-当地时间4月5日，据乌克兰政府官方透露的消息显示，自俄罗斯入侵乌克兰开始，乌克兰数字化转型部立即组建了一支信息技术部队在网络战线上与俄罗斯作战。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-13.jpg)
-据悉，该部队汇集了来自乌克兰和世界各地数字领域的专业人员。这些专家组织了多起对俄罗斯政府资源、银行网站和商业公司的分布式拒绝服务攻击，目标涉及俄罗斯联邦政府、国家服务局、联邦安全局、联邦通信、信息技术和大众传媒监督局，以及莫斯科证券交易所和一些其他机构的网站。此外，白俄罗斯包括国家银行网站在内的数十个战略网站也在攻击范围内。
+7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
+值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
 
-数据表明，俄乌战争期间，乌克兰信息技术部队已经成功地攻击了660多个俄罗斯资源网站，这当中的绝大多数都是支持莫斯科当局侵略战争的各类机构。同时，该信息技术部队还通过各种数字渠道向俄罗斯民众传播入侵的俄军在乌克兰所犯下的非人道暴行的真相。
-
-参考链接：[MILES GUO on GETTR: 2022.04.07 早 新中国联邦](https://gettr.com/streaming/p1412la2f3b)
+乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
+> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
 
-总编：Irene木木
-编辑：静言
-审核：Irene木木
-校正/发稿：Fei797
+
+
+来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
+
+* * *
+
+▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

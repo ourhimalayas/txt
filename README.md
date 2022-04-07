@@ -15,128 +15,128 @@
 
 ---
 
-### [纽约最高院法官因拒绝新冠疫苗可能被免职](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|推墙反共是活路](/content/gnews/2/README.md)
+### [有声|醒来](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [【转】截至4.7 俄乌战事汇总](/content/gnews/3/README.md)
+### [纽约最高院法官因拒绝新冠疫苗可能被免职](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/4/README.md)
+### [有声|中国人为什么到死都永不反抗](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|推墙反共是活路](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [【转】截至4.7 俄乌战事汇总](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/6/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声新闻-新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/5/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/7/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [乌克兰将效法以色列全民皆兵](/content/gnews/6/README.md)
+### [《避风港Haven》直播内容精选（第三十二集）](/content/gnews/8/README.md)
+ ` 喜马拉雅纽约磐石农场`
+
+### [乌克兰将效法以色列全民皆兵](/content/gnews/9/README.md)
  ` NFSC News`
 
-### [超过70名俄士兵在切尔诺贝利核电站受辐射伤害](/content/gnews/7/README.md)
+### [超过70名俄士兵在切尔诺贝利核电站受辐射伤害](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [揭露战争罪犯普京的虚伪面具，用事实拆穿普京的谎言](/content/gnews/8/README.md)
- ` 喜马拉雅德国纽伦堡正义农场`
-
-### [美司法部长，商务部长和发言人佩洛西检测呈阳性](/content/gnews/9/README.md)
+### [美司法部长，商务部长和发言人佩洛西检测呈阳性](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票](/content/gnews/10/README.md)
+### [俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票](/content/gnews/12/README.md)
  ` 關注組`
 
-### [众议院通过法案为记录俄罗斯在乌克兰犯下的战争罪行](/content/gnews/11/README.md)
+### [众议院通过法案为记录俄罗斯在乌克兰犯下的战争罪行](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/12/README.md)
+### [乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/14/README.md)
  ` NFSC News`
 
-### [德拉吉问意大利人是更希望和平还是开着暖气](/content/gnews/13/README.md)
- ` xiaobaige`
-
-### [耶伦表示俄罗斯应被驱逐出G20](/content/gnews/14/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [国际社会将进一步制裁俄罗斯](/content/gnews/15/README.md)
- ` NFSC News`
-
-### [北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯财政部宣布将首次用卢布偿还外债](/content/gnews/17/README.md)
+### [美联储会议纪要透露加速紧缩信号](/content/gnews/15/README.md)
  ` 加拿大温哥华英里农场`
 
-### [美、英、澳承诺共同研究高超音速武器](/content/gnews/18/README.md)
- ` NFSC News`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月7日早](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
-
-### [2022年4月7日，全球中共病毒疫情情况汇总](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西媒头条 — 第202期](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠](/content/gnews/22/README.md)
- ` 關注組`
-
-### [4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好](/content/gnews/23/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/6/2022 乌克兰救援连线：西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首](/content/gnews/24/README.md)
- ` 秘密翻译组-北美组`
-
-### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【G叻睇真D】马斯克成为推特股东将对灭共事业重大利好](/content/gnews/26/README.md)
- ` G-时新闻`
-
-### [德国截获俄罗斯讨论布查杀人事件的电话](/content/gnews/27/README.md)
+### [耶伦表示俄罗斯应被驱逐出G20](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [6月马德里北约外长会议讨论灭共战略](/content/gnews/28/README.md)
- ` 温哥华扬帆农场`
+### [国际社会将进一步制裁俄罗斯](/content/gnews/17/README.md)
+ ` NFSC News`
 
-### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/29/README.md)
+### [北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎](/content/gnews/18/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美、英、澳承诺共同研究高超音速武器](/content/gnews/19/README.md)
+ ` NFSC News`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月7日早](/content/gnews/20/README.md)
+ ` 纽约香草山MOS01`
+
+### [2022年4月7日，全球中共病毒疫情情况汇总](/content/gnews/21/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西媒头条 — 第202期](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠](/content/gnews/23/README.md)
  ` 關注組`
 
-### [【秘翻时评】 上海人封城快断粮 电视台吁：轻断食](/content/gnews/30/README.md)
+### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [德国截获俄罗斯讨论布查杀人事件的电话](/content/gnews/25/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [6月马德里北约外长会议讨论灭共战略](/content/gnews/26/README.md)
+ ` 温哥华扬帆农场`
+
+### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/27/README.md)
+ ` 關注組`
+
+### [【秘翻时评】 上海人封城快断粮 电视台吁：轻断食](/content/gnews/28/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [停止俄罗斯的联合国人权理事国资格，今晚表决&#8230;&#8230; 投票数三分之二为赞成票](/content/gnews/31/README.md)
+### [停止俄罗斯的联合国人权理事国资格，今晚表决&#8230;&#8230; 投票数三分之二为赞成票](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵大直播|中共粮食危机和将对台湾毁灭性的打击](/content/gnews/30/README.md)
+ ` KarmaLabs`
+
+### [文贵大直播|新中国联邦人在乌克兰的国际救援行动正在改变全世界对中国人的看法](/content/gnews/31/README.md)
+ ` KarmaLabs`
 
 ### [俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主](/content/gnews/32/README.md)
  ` 關注組`
 
-### [樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/33/README.md)
+### [文贵大直播|剖析PAG 看西方百亿退休金有去无回](/content/gnews/33/README.md)
+ ` KarmaLabs`
+
+### [文贵大直播|风雨之中战友总结每个王朝灭亡之前发生的事情都发生在现在中共国(下）](/content/gnews/34/README.md)
+ ` KarmaLabs`
+
+### [樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4/7/2022 国际财经快讯：美国盟友将释放近6,000万桶石油储备; Meta计划为其应用程序推出虚拟货币](/content/gnews/34/README.md)
+### [4/7/2022 国际财经快讯：美国盟友将释放近6,000万桶石油储备; Meta计划为其应用程序推出虚拟货币](/content/gnews/36/README.md)
  ` 秘密翻译组金融团队`
 
-### [文贵大直播|川普2024当选对灭共未必是好事 七哥正在准备明后年爆料革命的大计划](/content/gnews/35/README.md)
+### [文贵大直播|风雨之中战友总结每个王朝灭亡之前发生的事情都发生在现在中共国(上）](/content/gnews/37/README.md)
  ` KarmaLabs`
 
-### [文贵大直播|认知能力的基本面是面对世界认知的基本逻辑能力](/content/gnews/36/README.md)
+### [文贵大直播|川普2024当选对灭共未必是好事 七哥正在准备明后年爆料革命的大计划](/content/gnews/38/README.md)
  ` KarmaLabs`
 
-### [文贵大直播|某国已将喜币列为国家储备，币安绝对完蛋](/content/gnews/37/README.md)
+### [文贵大直播|认知能力的基本面是面对世界认知的基本逻辑能力](/content/gnews/39/README.md)
  ` KarmaLabs`
 
-### [美国官员：美国及其盟友不会无视中共对台湾动武](/content/gnews/38/README.md)
+### [美国官员：美国及其盟友不会无视中共对台湾动武](/content/gnews/40/README.md)
  ` 波士顿五月花农场金融部`
 
-### [文贵大直播|马斯克改变人类科技但是怕共产党，疫苗灾难后生物科技大发展](/content/gnews/39/README.md)
- ` KarmaLabs`
-
-### [联合国将就乌克兰问题暂停俄罗斯在人权理事会的席位](/content/gnews/40/README.md)
+### [联合国将就乌克兰问题暂停俄罗斯在人权理事会的席位](/content/gnews/41/README.md)
  ` Shuizhuyu`
-
-### [文贵大直播|马斯克做媒体商业上会很成功 但做不到gettr有信仰的唯真不破](/content/gnews/41/README.md)
- ` KarmaLabs`
 
 ### [亚马逊签署天空网路Kuiper计划](/content/gnews/42/README.md)
  ` 银河歌舞厅`
