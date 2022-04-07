@@ -2,18 +2,20 @@
 ---
 
 
-## 日本取消对106国的中共病毒入境限制
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303108/)
+## 美财政部：如果中共入侵台湾，美国马上制裁
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303175/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-17.26.35.png)
-日前日本政府表示，从4月8日周五开始，将逐步放宽中共病毒限制，取消包括英美在内的106个国家的非居民入境禁令。106国包括东南亚等国、欧洲国家、非洲国家等。日本政府同时告诫本国国民避免不必要的海外旅行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1x-1-1-scaled.jpg)美财政部长
+4月6日周三，美财政部长耶伦表示，如果中共进军台湾，拜登政府将会使用所有的制裁工具来对付中共。
 
-去年11月下旬开始，由于中共病毒奥密克戎的肆虐，日本对非居民外国人实施入境禁令。最近几周有所缓解，日本一直在放松边境管制，政府还规定从4月10日开始，每日海外入境人数从7000人提高到10000人左右。日本政府表示目前的放宽政策还是极其严格的，它会继续暂停12月2日之前的签证有效期发放，外交官、本国居民的配偶和永久居民除外。另外有特殊情况的也予以批准入境，如探病或参加葬礼，除此之外的外国游客仍被禁止入境。
+俄罗斯对乌克兰的入侵和中共对台湾的进军，都是侵略性国家的作为，人们担忧世界大国是否能够防止台湾发生和乌克兰的类似危机，台湾拥有2300万人口，也是全球芯片的主要来源。周三众议院金融服务委员会上，共和党议员Patrick McHenry提问，财政部是否会像制裁俄罗斯那样制裁中共对台湾入侵？耶伦回答说，目前对俄罗斯的经济制裁表明美国会对侵略性国家带来巨大的痛苦，任何人都无须怀疑美国在其他情况下实行制裁的能力和决心。
+
+耶伦还表示，拜登总统希望将俄罗斯驱逐出G20集团国。若在印尼举办的G20会议上出现俄罗斯，美国将会抵制G20会议的所有议程并拒绝参加会议。
 
 reference：
 
-[https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html](https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html)
+[https://www.scmp.com/news/world/russia-central-asia/article/3173314/us-would-use-sanctions-if-china-invaded-taiwan](https://www.scmp.com/news/world/russia-central-asia/article/3173314/us-would-use-sanctions-if-china-invaded-taiwan)
 
 撰稿、发布：骄子
 
@@ -27,9 +29,7 @@ reference：
 - [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
 - [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
-
- 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

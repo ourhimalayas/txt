@@ -2,27 +2,34 @@
 ---
 
 
-## 秘翻在线：面对疫情灾难中共上海市委“掏心窝子”给党员写了一封信
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2303005/)
+## 日本取消对106国的中共病毒入境限制
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303108/)
 
-**撰稿：葛大饼**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-17.26.35.png)
+日前日本政府表示，从4月8日周五开始，将逐步放宽中共病毒限制，取消包括英美在内的106个国家的非居民入境禁令。106国包括东南亚等国、欧洲国家、非洲国家等。日本政府同时告诫本国国民避免不必要的海外旅行。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/11-7.png)
-根据2022年4月7日人民网报道， 中共上海市委给上海市共产党员写了一封的公开信，内容如下：
+去年11月下旬开始，由于中共病毒奥密克戎的肆虐，日本对非居民外国人实施入境禁令。最近几周有所缓解，日本一直在放松边境管制，政府还规定从4月10日开始，每日海外入境人数从7000人提高到10000人左右。日本政府表示目前的放宽政策还是极其严格的，它会继续暂停12月2日之前的签证有效期发放，外交官、本国居民的配偶和永久居民除外。另外有特殊情况的也予以批准入境，如探病或参加葬礼，除此之外的外国游客仍被禁止入境。
 
-上海疫情防控的形势严峻复杂，关键时刻冲得上去，危难关头豁得出来，才是合格的共产党人！党员同志要冲在抗疫的第一线；面对疫情防控的难点，党员要千方百计拿出解决问题的硬招、实招；党员同志要把把社区最紧缺的资源调配好；党员同志要发出好声音、传播正能量，对干扰和破坏抗疫大局的各种行为要敢于亮剑、敢于斗争。
+reference：
 
-公开信宣称：上海是中国共产党的诞生地，上海的共产党人更要弘扬伟大建党精神，相信在以习近平同志为核心的党中央坚强领导下，胜利一定属于这座光荣的城市。
+[https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html](https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html)
 
-面对没吃没喝，生命受到威胁的老百姓发出的绝望求助信号，共产党不仅无视，还自我陶醉，自我高潮了。基层党员们，共产党准备牺牲你们了！
+撰稿、发布：骄子
 
-相信在在以习近平同志为核心的党中央坚强领导下，共产党一定会加速灭亡！
+* * *
 
-**[新闻来源](http://sh.people.com.cn/n2/2022/0407/c134768-35211465.html)**
+欢迎订阅我们的GNews账号：
 
-#  
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

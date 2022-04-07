@@ -2,27 +2,32 @@
 ---
 
 
-## 樱花时政┃美追加对俄经济制裁 普京女儿在列
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2303055/)
+## 芬兰海关扣押俄罗斯艺术品
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303145/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/美追加对俄经济制裁-普京女儿在列.png)（图片来源于本文链接）
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-17.31.46.png)
+4月1日和2日，芬兰海关在Vaalimaa过境点扣留了三批运往俄罗斯的货物，货物中包含绘画和雕塑等艺术品，价值4200万欧元。
 
-美国4月6日表示，将对俄军在乌克兰实施的布查大屠杀，立即施加严厉的经济制裁，相关的最新措施包含冻结普京两位女儿在美资产，并切断她们与美金融的联系。华盛顿还表示，将对俄储蓄银行和阿尔法银行实施“全面封锁”的制裁。这将阻止银行的资产出现在美金融系统中，并禁止美国人与他们做生意。其他被盯上的俄精英包括俄总理米修斯丁，俄外长拉夫罗夫的妻子和子女，以及俄前总统和总理梅德韦杰夫。白宫表示：“这些人以牺牲俄人民的利益为代价，使自己发财。他们负责提供资金政治支持，以支持普京对乌克兰发动战争。”
+芬兰外交部于4月6日的新闻发布会通报了该批运往俄罗斯的艺术品从发现到执行制裁，以及初步调查的进展情况。据悉该艺术品是俄罗斯冬宫博物馆和沙皇国家博物馆借给日本和意大利博物馆和画廊的，尚未透露艺术家的具体讯息。芬兰海关局长说，欧盟对俄罗斯的制裁中包含对艺术品的制裁，执行制裁是保持正常海关运营的必要工作。该批艺术品的调查以信息收集、国际合作与互助进行，芬兰海关表示会继续和外交部协商，欧盟委员已在参与讨论此事。
 
-信息来源： 
-[美加重对俄经济制裁 普京女儿也在列](https://www.dw.com/zh/%E7%BE%8E%E5%8A%A0%E9%87%8D%E5%B0%8D%E4%BF%84%E7%B6%93%E6%BF%9F%E5%88%B6%E8%A3%81-%E6%99%AE%E4%B8%81%E5%A5%B3%E5%85%92%E4%B9%9F%E5%9C%A8%E5%88%97/a-61386062)
+reference：
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+[https://www.washingtonpost.com/world/2022/04/06/russia-sanctions-finnish-border-art/](https://www.washingtonpost.com/world/2022/04/06/russia-sanctions-finnish-border-art/)
 
+撰稿、发布：骄子
+
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,22 @@
 ---
 
 
-## 20220406郭文贵大直播 ：《230法案》让垄断的媒体公司权力过大 操纵舆论 掩盖真相
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303107/)
+## 20220406郭文贵大直播 ：只有把中国共产党给清零了 世界才有希望
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303174/)
 
 作者：东京樱花团小视频组
+
+
+
+
+
+
+
+
+
+
+
+
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

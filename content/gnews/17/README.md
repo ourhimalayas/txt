@@ -2,30 +2,24 @@
 ---
 
 
-## 三问丹东卫健委
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302937/)
+## 秘翻在线：中共将出台《金融稳定法》 采取地方绝对服从中央的集中管理模式
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2303059/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-近日一段专业人士与丹东卫健委的谈话中丹东市卫健委讲到：不是说打疫苗才是无症状感染，是因为打疫苗它起到了一定保护作用，（说什么呢？）症状不是很明显，（说什么呢？）所以他才是无症状感染。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/三问丹东卫健委.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Ff%2Ff6%2FDandong_and_Yalu_River.jpg&amp;imgrefurl=https%3A%2F%2Fzh.wikipedia.org%2Fwiki%2F%25E4%25B8%25B9%25E4%25B8%259C%25E5%25B8%2582&amp;tbnid=SHPIkv4qFgFpyM&amp;vet=12ahUKEwiZ-M-px4H3AhUR4uAKHcOkDX4QMygAegUIARCgAQ..i&amp;docid=GiIamkLaMW9yDM&amp;w=1600&amp;h=900&amp;q=%E4%B8%B9%E4%B8%9C&amp;ved=2ahUKEwiZ-M-px4H3AhUR4uAKHcOkDX4QMygAegUIARCgAQ)
-一问，什么叫打疫苗起到了一定保护作用？疫苗有效就是有效，无效就是无效，还起一定保护作用 ?如若如此，吃个鸡蛋喝口汤，凡事有利身体健康的东西都有一定保护作用。
+**撰稿：葛大饼**
 
-二问，打疫苗怎么会感染，打了还能感染问什么要打？
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/22-2.jpg)图片来源： 中青在线
+根据2022年4月7日证券时报网报道， 中央人民银行发布《 中华人民共和国金融稳定法（草案征求意见稿）》，该法旨在健全金融风险事前防范、事中化解和事后处置全流程全链条的制度安排。
 
-三问，打了疫苗感染了还没症状，是不是为防疫添乱，添的乱谁来负责?
+据了解，《金融稳定法》不仅规定金融风险处置必要的手段措施， 还将明确金融稳定保障基金有关制度安排，将对中共国的整体金融行业有重大影响。
 
-消息来源：
-[https://gettr.com/post/p13yuf3618a](https://gettr.com/post/p13yuf3618a)
+近年来，主要发达经济体普遍出台专门立法，构建统一协调的金融稳定制度架构。人民银行在起草说明中指出，党的十九大将防范化解重大风险作为三大攻坚战之一，同时，针对金融风险防控工作中仍然存在的短板弱项，通过制定《金融稳定法》，能够进一步压实各方责任，加强风险防范和早期纠正。《金融稳定法》**细化了国务院金融委等主体责任**，国家金融稳定发展统筹协调机制负责认定重大金融风险，统筹指挥开展应急处置，议定处置方案，**地方人民政府不得违反规定干预金融机构的正常经营活动和人事任免等事项**。 银保监会有关部门负责人日前透露， 最受关注的金融稳定保障基金将用于具有系统性隐患的重大风险处置，《金融稳定法》也提出，财政部门会依法参与处置系统性金融风险，并按规定履行相关职责。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+中共的文件犹如老太婆裹脚布——又臭又长，关键还不讲人话！其实这个法案主要就是想说一切靠党抓，靠党管，集中权力，集中处置，枪杆子，刀把子，钱袋子都要一手抓，地方的听中央的，都听习太阳的！作为金融之都却深陷病毒疫苗和次生灾害折磨的大上海，该作何感想？苦日子还早着呢！
+
+**[新闻来源](https://www.stcn.com/xw/sd/202204/t20220407_4327670.html)**
+
+
 
  
 
