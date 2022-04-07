@@ -15,56 +15,56 @@
 
 ---
 
-### [普习两魔头的结盟及其给世界带来的灾难（二）](/content/gnews/1/README.md)
+### [谈古论今 | 佛法的人生观和“躺平”不是一回事](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [荒唐国度：母婴分离，医院拒诊](/content/gnews/2/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [布查不屠杀](/content/gnews/3/README.md)
  ` 纽约香草山MOS02`
 
-### [上海东海养老院：传出逾20位老人去世](/content/gnews/2/README.md)
+### [薄熙来“大秘”徐鸣被公诉](/content/gnews/4/README.md)
  ` 日本東京方舟農場`
 
-### [醒来](/content/gnews/3/README.md)
+### [香港在流血](/content/gnews/5/README.md)
  ` 纽约香草山MOS02`
 
-### [丰田汽车下调2022年在美国新车销售量预期](/content/gnews/4/README.md)
+### [普习两魔头的结盟及其给世界带来的灾难（二）](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [上海东海养老院：传出逾20位老人去世](/content/gnews/7/README.md)
+ ` 日本東京方舟農場`
+
+### [丰田汽车下调2022年在美国新车销售量预期](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [荒谬的母婴隔离](/content/gnews/5/README.md)
- ` 纽约香草山MOS03`
-
-### [大直播后记：营救行动对波兰华人的影响](/content/gnews/6/README.md)
+### [大直播后记：营救行动对波兰华人的影响](/content/gnews/9/README.md)
  ` 雅典娜GNotes`
 
-### [普京盟友在匈牙利和塞尔维亚选举中占主导地位-2](/content/gnews/7/README.md)
- ` topnews`
-
-### [大直播后记：嘉宾谈上海疫情防控](/content/gnews/8/README.md)
- ` 雅典娜GNotes`
-
-### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/9/README.md)
+### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/10/README.md)
  ` MOSVIDEO`
 
-### [中共病毒：上海大爆发以来首创容纳4万人巨型方舱医院](/content/gnews/10/README.md)
+### [中共病毒：上海大爆发以来首创容纳4万人巨型方舱医院](/content/gnews/11/README.md)
  ` 战云长天时评`
 
-### [关闭俄罗斯Hydra暗网市场 扰乱数字犯罪的ATM机](/content/gnews/11/README.md)
+### [关闭俄罗斯Hydra暗网市场 扰乱数字犯罪的ATM机](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频|俄乌战局最近消息汇总](/content/gnews/12/README.md)
+### [视频|俄乌战局最近消息汇总](/content/gnews/13/README.md)
  ` MOSVIDEO`
 
-### [【乌克兰救援】一名逃离乌克兰战争的台湾难民感谢成为法治基金的义工](/content/gnews/13/README.md)
+### [【乌克兰救援】一名逃离乌克兰战争的台湾难民感谢成为法治基金的义工](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频|澳大利亚加速军购应对中共侵台计划](/content/gnews/14/README.md)
+### [视频|澳大利亚加速军购应对中共侵台计划](/content/gnews/15/README.md)
  ` MOSVIDEO`
 
-### [视频|国际谴责中共强制幼童与父母分离的封控政策](/content/gnews/15/README.md)
+### [视频|国际谴责中共强制幼童与父母分离的封控政策](/content/gnews/16/README.md)
  ` MOSVIDEO`
 
-### [中共国正准备与美国开战](/content/gnews/16/README.md)
+### [中共国正准备与美国开战](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [普京盟友在匈牙利和塞尔维亚选举中占主导地位-1](/content/gnews/17/README.md)
- ` topnews`
 
 ### [不为利､虚､福､欲､淫所动 实现正业的手段就是坚持当下既定的灭共目标](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
