@@ -2,27 +2,30 @@
 ---
 
 
-## 因疫情恶化新省医疗系统不堪重负
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301415/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
 
-采编：加拿大温哥华扬帆农场 – 青青
-
-撰稿：加拿大温哥华扬帆农场 – 文莱
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-667.png)图片来源：ctv
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
 
 
-据加拿大【CTV新闻】4月3日报道，目前[新不伦瑞克省]已有多达600名医护人员因感染新冠病毒而无法工作，并因此导致多家医院被迫关闭了其部分医疗服务。
+校对：Stay文苑
 
-报道称，在该省3月14日取消了卫生限制之后，疫情再度恶化，由于医护人员的大量短缺，多家医院都暂时关闭了部分急诊和分娩服务。也有社区卫生中心因工作人员感染而不得不关闭。此外，医院的员工短缺还导致救护车出勤被长时间延误。
+编辑：Stay文苑
 
-尽管该省卫生部要求未接种疫苗的员工必须采取相应措施才可工作，但为避免医疗系统的崩溃，当局已批准那些未接种的医护人员将于4月11日重返工作岗位。
+发稿：Stay文苑
 
-校对编辑：硫酸羟氯喹64
+新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
+访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
 
-原文链接： [N.B. COVID-19 roundup: Hundreds of health-care workers sick | CTV News](https://atlantic.ctvnews.ca/hundreds-of-n-b-health-care-workers-sick-with-covid-19-hospital-services-impacted-1.5846259)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

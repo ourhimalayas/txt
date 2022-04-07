@@ -2,46 +2,32 @@
 ---
 
 
-## 珠江医院张堂德教授:集中核酸检测的成百上千感染风险
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2301927/)
+## 前币安首席财务官以2亿美元收购菲律宾交易所Coins.ph
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302021/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本-1.png)
-据谷风@[645Pr0RoZT8CwA7](https://twitter.com/645Pr0RoZT8CwA7)于[上午2:13 · 2022年4月7日](https://twitter.com/645Pr0RoZT8CwA7/status/1511769117757300737)发布的推特
+#### 【雅典娜快讯】紧贴时代脉搏
 
-张教授的意思是共产党的強行检测核酸方式，实际是为了广泛传播病毒。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/32JX9ATCTH3S289783ULU7M7NJ9PZVY4SYEJEX65-606b111e.jpg)图片来源：www.kalibrr.com
+根据COINGEEK4月7日报道，一位前币安高管购买了东南亚最大的数字货币钱包和交易所之一。据当地报道，前币安首席财务官周炜以2亿美元收购了Coins.ph。
 
+Coins.ph始于2014年，最初是一个电子钱包，允许用户购买、出售和存储一些数字货币。从那时起，它已经扩展到其他服务，包括预付费移动充值、汇款和账单支付。
 
+这家初创公司于2019年1月被印度尼西亚按需多服务平台Gojek和数字支付decacorn收购，标志着该公司首次进军菲律宾。然而，Gojek此后与当地一家电子商务公司合并，现在专注于其本土印尼市场。
 
-> 张教授的意思是共产党的強行检测核酸方式，实际是为了广泛传播病毒。 [pic.twitter.com/9bEDaqzVPL](https://t.co/9bEDaqzVPL)
-> — 谷风 (@645Pr0RoZT8CwA7) [April 6, 2022](https://twitter.com/645Pr0RoZT8CwA7/status/1511769117757300737?ref_src=twsrc%5Etfw)
+据报道，周炜以2亿美元的价格收购Coins.ph，是Gojek两年前收购该公司的9500万美元的两倍多。
 
+币安是2021年尝试收购Coins.ph的公司之一，但这笔交易没有成功。赵长鹏领导的交易所已经收购了几个钱包和交易所，包括印度的WazirX。然而，就像其母公司一样，WazirX也面临着监管问题，包括被指控违反了印度的外汇法。
 
+资料来源：[Ex-Binance CFO snaps up Philippine exchange Coins.ph for $200M: report](https://coingeek.com/ex-binance-cfo-snaps-up-philippine-exchange-coins-ph-for-200m-report/)
 
-动辄数万数十万人集体核酸检测的风险，只要稍微具有基本常识的人都可以判断出来，南方医科大学珠江医院张堂德教授以专家的身份发出来的预警，在专业知识之外更加需要勇气，新冠病毒是中共的超限生化武器，新冠病毒疫苗作为与病毒相伴而生的杀人工具，也是中共超限生化武器的一部分，这一点郭文贵先生已经在多次直播中说明。
+发布：tianzhihuan
 
-既然发现一例阳性要对所有的密接、次密接进行强制隔离，那么在一次次的全员核酸检测并且检测出阳性病毒之后，是不是所有的全员核酸被检测者都是密接、次密接并且都需要强制隔离呢？这个时候中共又只字不提全员核酸造成的密接、次密接了，那么我们就只能得出一个结论——各地中共当局对辖区内居民一次又一次的全员强制核酸检测就是在蓄意制造群体感染，让中共的超限生化武器的效能达到最大化，这样一来可以节省粮食，二来可以减少养老金和社保支出，你看懂了吗？
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

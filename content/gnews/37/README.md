@@ -2,44 +2,41 @@
 ---
 
 
-## 联合国：俄乌战争已造成至少1430名平民死亡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2300762/)
+## 美国联邦调查局表示捣毁了俄罗斯黑客行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2301086/)
 
-***评论：**乌克兰军队在4月1日从俄军手中解放了乌克兰首都基辅附近的布查市，眼前景象是一栋栋建筑物被完全毁坏，街头小巷充满尸体。乌克兰总统泽连斯基表示，俄罗斯军队在首都基辅附近的居民点通过酷刑杀害了许多平民，这是“种族灭绝”。此外，波兰总理明确表态俄罗斯已经在乌克兰犯下了种族灭绝罪行，且必须受到审判；美国国务卿布林肯也对俄军是否在乌克兰犯下战争罪和种族灭绝罪作出回应，称将认真研究并记录所看到的一切，来进行准确地评估。*
+翻译：冰糖葫芦喵
 
-据《福克斯新闻》作者：James Levinson，2022年4月4日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-654-e1649278041332.png)联合国称自俄罗斯入侵以来已造成至少1400名平民死亡，预计数字将“大幅”上升。
-图片来源：foxnews
-乌克兰利沃夫——联合国周一证实，自2月24日俄罗斯开始入侵乌克兰以来，已有超过3500人死亡或受伤。
+编辑：冰糖葫芦喵、灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》华盛顿4月6日报道，**周三，美国联邦调查局表示，劫持了俄罗斯间谍用来与路由器和防火墙进行通信的基础设施，从俄罗斯军方黑客手中夺取了数千台路由器和防火墙设备的控制权。**
 
-这个数字可能只是冰山一角，因为该组织一直无法进入战斗激烈的地区。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/118954407_putin.png.jpg)图片来源：BBC NEWS。
 
-联合国人权事务高级专员办事处（OHCHR）正式确认，自俄罗斯入侵开始以来，已有1430名平民被杀，2097人受伤，死者中有121名儿童。该办公室说，爆炸性武器——重型火炮、导弹和空袭——造成了大部分死亡。
+据报道，**一份未公开的、经过修改的宣誓书称，这一不寻常的行动是一种先发制人的行动，目的是阻止俄罗斯黑客将被入侵的设备转移到一个“僵尸网络”中**。“僵尸网络”是一个被黑客入侵的计算机组成的网络，可以用恶意流量攻击其他服务器。
 
-OHCHR警告说，这可能只是一个开始。全国各地，特别是东部地区的顿涅茨克和卢甘斯克，发生了激烈的敌对行动，阻碍了独立确认。目前正在马里乌波尔（Mariupol）、伊津（Izium）、波普萨纳（Popsana）和伊尔平（Irpin）寻找确凿证据。
+美国司法部长梅里克·加兰德说，很幸运，**我们能够在这个僵尸网络被使用之前摧毁它。**美国联邦调查局局长克里斯·雷对记者说，**联邦调查局在获得法庭批准后，秘密侵入数千个路由器和防火墙设备，删除恶意软件并重新配置设备**。
 
-在基辅西北部郊区的布查，市长说俄罗斯人至少杀害了300名平民，其中大部分人被埋在乱葬岗里。救援人员仍在搜寻更多的平民。
+雷说:“我们从全世界数千家用于网络安全的设备上移除恶意软件，其中大多数是小企业。”“我们关上了俄国人用来进入它们的门。”
 
-联合国人权事务高级专员米歇尔·巴切莱特(Michelle Bachelet)说：“我对乌克兰布查镇平民横尸街头和临时搭建的坟墓的画面感到震惊。必须挖掘出所有尸体并确认其身份，以便告知受害者家属，并确定确切的死亡原因。应该采取一切措施来保存证据。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8b30068ebcf24a2491aa75cc1df26b0a.jpg)图片来源：网络摄图。
 
-文章来源：[https://www.foxnews.com/world/un-1400-civilians-killed-russia-invasion-numbers-rise](https://www.foxnews.com/world/un-1400-civilians-killed-russia-invasion-numbers-rise)
+报道称，**被攻击的僵尸网络是通过名为“独眼巨人眨眼”(Cyclops Blink)的恶意软件控制的，**美国和英国的网络防御机构曾在2月下旬公开将这种恶意软件归因于“沙虫”(Sandworm)，据称**是俄罗斯军事情报部门的黑客团队之一**，该团队多次被指控实施网络攻击。
 
-翻译：洛杉矶盘古农场 – Mike Li
+根据私营网络安全公司的研究，“**独眼巨人眨眼”是被用来设计劫持沃奇卫士**（WatchGuard Technologies Inc .）**和华硕电脑公司生产的设备。**它为俄罗斯提供了访问这些受损系统的权限，**提供了远程过滤或删除数据的能力**，或将设备针对第三方。
 
-校对：洛杉矶盘古农场 – 钢蛋儿
+沃奇卫士发布了一份声明，证实它与美国司法部合作破坏了僵尸网络；华硕没有立即回复记者的置评请求。
 
-评论：洛杉矶盘古农场 – 钢蛋儿
+新闻来源链接：
 
-编辑：洛杉矶盘古农场 – WenXiong
+[Exclusive: China state refiners shun new Russian oil trades | Reuters](https://www.reuters.com/business/energy/exclusive-china-state-refiners-shun-new-russian-oil-trades-teapots-fly-under-2022-04-06/)
 
-发布：洛杉矶盘古农场 – 子萍
-
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

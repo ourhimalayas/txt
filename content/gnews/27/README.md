@@ -2,25 +2,12 @@
 ---
 
 
-## 阿尔伯塔省首席卫生官被免职
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301597/)
+## 澳大利亚、美国和英国誓要扩大在高超音速武器方面的合作
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301752/)
 
-采编/编译撰稿：加拿大温哥华扬帆农场 – 薇文
+04/06/2022 ABC新闻：澳大利亚、美国和英国誓要在“澳-英-美”安全条约（AUKUS）框架下扩大高超音速武器的合作
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-677.png)图片来源：The National Telegraph
-
-
-据加拿大[国家电讯报]4月4日报道，因在疫情期间的工作失误和管理不善，阿尔伯塔省首席卫生执行官维尔纳·姚于当天被省政府正式解雇。
-
-报道称，阿省卫生部负责人在疫情期间独断专行，甚至非法篡改所有住院和ICU病床数量等疫情信息，并由于参考了这些错误数据而使该省的医疗系统表现出始终处于崩溃边缘，而实际上政府的医疗资源却未被充分利用。
-
-据悉，姚曾此前还试图解雇该省卫生系统内2.6万多名未接种疫苗的医护人员，以实现高接种率目标。其所作所为导致疫情看起來需要更严格的封锁和限制才能被解决。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源： [Dr. Verna Yiu Has Been Removed As Alberta Health Services CEO](https://thenationaltelegraph.com/regional/breaking-dr-verna-yiu-has-been-removed-as-alberta-health-services-ceo)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

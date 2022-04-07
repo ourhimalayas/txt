@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
+## 【乌克兰救援】04/05/2022 台湾志愿者谈为什么认同法治基金
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301779/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
+【乌克兰救援】04/05/2022 那伊夫主动找到新中国联邦和法治基金为团队担任俄乌语翻译。他表示，从小就生活在中共武统台湾的阴影之下，中共在香港、新疆所为更看清了中共邪恶本质不会改变，新中国联邦人与台湾人的灭共使命是一样的。他希望通过保护乌克兰让中共对攻台有所忌惮。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
-访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

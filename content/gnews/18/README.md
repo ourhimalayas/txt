@@ -2,33 +2,61 @@
 ---
 
 
-## 美国批准向台湾提供9500万美元的爱国者导弹系统
-` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2301762/)
+## COVID-19疫苗副作用集萃（2022.4.7）&#8211;宝宝快三个月时，老公确诊白血病
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301873/)
 
-翻译：多伦多蓝莲花- 灭共文明
-编辑：冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
-《零对冲》4月6日报道，美军参谋长联席会议主席马克-米利将军周二告诉国会领导人，大国之间的重大国际冲突现在是增加而不是减少，**美国已经宣布批准向台湾出售高达9500万美元的新培训和设备**。
+#### 雅典娜情报组《疫苗灾难收集专栏》
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/af7d5d2098a4bc2d.jpg)美军参谋长联席会议主席马克-米利将军（图片来源：www.npr.org）
+整理/编辑：BENJ1
+![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E7%89%8713-2.png)图片来源：雅典娜设计组(614)
+【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
 
-报道指出，从中共方面的角度来看，至关重要且相当具有挑衅性的是，**新军售的重点是支持台湾的爱国者导弹防御系统，该系统被视为在台湾遭到入侵时保卫台湾的关键**。
+[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
 
-五角大楼国防安全合作局在一份声明中证实，拟议的军售将有助于维持台湾的导弹密度，**并确保为空中行动做好准备**。
+**帖子原文：**
 
-该声明称，这些设备对“威慑地区威胁和加强国土防御”非常重要，根据美国国防合作安全局DSCA的声明，**该计划将包括“爱国者”系统、相关设备、后勤以及地面支持设备和备件的培训、规划、部署、操作和维护**。
+宝宝快三个月时，老公确诊白血病
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/71b063a907b75c49.jpg)美国爱国者导弹系统（图片来源：网络）
+之前都没症状，突然嗓子疼一开始以为是感冒发炎了，后面又发烧，出月子不久的我开始带着老公跑医院。抽血➕骨穿确诊急性髓系白血病m2高危…
 
-台湾外交部感谢拜登政府，并对该协议表示欢迎。这是**拜登政府第三次批准对台军售**。台北强调，有必要防御中共国持续的军事扩张和挑衅。
+一疗没有缓解，一直没能回家接着在医院二疗。终于，二疗结束后你回家过了个年，初七又回了医院，今天是正式开始治疗的第102天。我送完你回家宝宝有些不开心
 
-美国太平洋舰队司令塞缪尔·帕帕罗上将表示，**中共国无疑正在关注乌克兰发生的事情，并从中吸取教训**。中共在学习，也会在一定程度上进行调整，以提高他们的作战能力。
+我和宝宝说，爸爸去打怪兽了。家里有我，你放心！我和宝宝等你平安归来 #急性髓系白血病 #白血病
 
-随着俄乌战争的继续，美国一名高级指挥官表示，**华盛顿必须对台湾问题保持警惕，因为中共国正在提高其能力，并调整其计划，以武力统一这个民主国家**。
+评论选集：
 
-校对与发布：夏至木木
-新闻来源链接：[US Approves $95 Million Patriot Missile Systems Boost For Taiwan](https://www.zerohedge.com/military/us-approves-95-million-patriot-missile-systems-boost-taiwan)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1.jpg)
+[小红薯620A56A9](https://www.xiaohongshu.com/user/profile/61cbc189000000001000c201) 回复：
+
+你们这种情况非常多，不胜枚举。打针打的。
+
+Erqi 回复 :
+
+打针会容易得白血病吗
+
+炸毛宝贝 回复 :
+
+是的…特别是打灭活的，越来越多
+
+[明眸善睐MMSLKNN](https://www.xiaohongshu.com/user/profile/5e0caca7000000000100728d) 回复：
+
+请问，他打过xg疫苗吗？
+
+仙啊(作者) :
+
+打了两针
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-683.png)图片来源：小红书
+参考链接:
+
+[宝宝快三个月时，老公确诊白血病](http://xhslink.com/gTF1Ag%EF%BC%8C%E5%A4%8D%E5%88%B6%E6%9C%AC%E6%9D%A1%E4%BF%A1%E6%81%AF%EF%BC%8C%E6%89%93%E5%BC%80%E3%80%90%E5%B0%8F%E7%BA%A2%E4%B9%A6%E3%80%91App%E6%9F%A5%E7%9C%8B%E7%B2%BE%E5%BD%A9%E5%86%85%E5%AE%B9%EF%BC%81)
+
+*发布：tianzhihuan*
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)0
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
