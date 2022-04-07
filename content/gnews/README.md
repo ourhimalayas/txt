@@ -15,95 +15,95 @@
 
 ---
 
-### [【每日聚焦】俄乌战事4月7日简要](/content/gnews/1/README.md)
- ` 蓝莲花农场`
+### [2022/04/07 英喜时事速递](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中日财经爆┃卸磨杀驴！京东宣布刘强东卸任首席执行官](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [澳大利亚加快了导弹升级的步伐](/content/gnews/2/README.md)
+ ` topnews`
 
-### [新艾滋病毒治疗方案将带给澳大利亚人好处](/content/gnews/3/README.md)
- ` 走进澳洲`
+### [有声|国际谴责中共强制幼童与父母分离的封控政策](/content/gnews/3/README.md)
+ ` MOSREC`
 
-### [樱花时政┃徐鸣被诉，中共疑为缺粮找背锅侠](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [大直播后记：台湾义工在救援前线加入德国农场](/content/gnews/4/README.md)
+ ` 雅典娜GNotes`
 
-### [印媒对中共可能向台湾采取军事行动的分析（2）](/content/gnews/5/README.md)
+### [随着战争的持续，俄罗斯和乌克兰是如何使用社交媒体的-2](/content/gnews/5/README.md)
+ ` topnews`
+
+### [志愿者们说他们不会把中国人和中共联系起来](/content/gnews/6/README.md)
+ ` 波士顿五月花农场`
+
+### [印媒对中共可能向台湾采取军事行动的分析（3）](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [视频|英国敦促七国集团升级对俄制裁](/content/gnews/6/README.md)
+### [大直播后记：真相传播关键时刻能救人](/content/gnews/8/README.md)
+ ` 雅典娜GNotes`
+
+### [乌克兰军队重新获得了对首都基辅周围地区的全面军事控制](/content/gnews/9/README.md)
+ ` 喜马拉雅德国纽伦堡正义农场`
+
+### [春天来了](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [视频|英国敦促七国集团升级对俄制裁](/content/gnews/11/README.md)
  ` MOSVIDEO`
 
-### [视频|中共银行周末紧急开会布置防挤兑措施](/content/gnews/7/README.md)
+### [视频|中共银行周末紧急开会布置防挤兑措施](/content/gnews/12/README.md)
  ` MOSVIDEO`
 
-### [视频|中共公安威胁民众噤声，行为遭网友贬斥](/content/gnews/8/README.md)
+### [视频|中共公安威胁民众噤声，行为遭网友贬斥](/content/gnews/13/README.md)
  ` MOSVIDEO`
 
-### [视频|上海新增病例持续破万，中共出动武警严管，市民发起团购自救](/content/gnews/9/README.md)
+### [视频|上海新增病例持续破万，中共出动武警严管，市民发起团购自救](/content/gnews/14/README.md)
  ` MOSVIDEO`
 
-### [视频|美国升级施压 俄罗斯被禁止动用银行结余款还债](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [2022年4月6日郭先生盖特 — 视频1「4分57秒」](/content/gnews/11/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [美中关系专家警告中共国“准备与美国开战”](/content/gnews/12/README.md)
+### [美中关系专家警告中共国“准备与美国开战”](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年4月6日大直播速记精萃](/content/gnews/13/README.md)
+### [2022年4月6日大直播速记精萃](/content/gnews/16/README.md)
  ` 雅典娜GNotes`
 
-### [大直播后记：灵感是音乐创作的源泉](/content/gnews/14/README.md)
- ` 雅典娜GNotes`
-
-### [香港气候反常 印证中共管制不顺天意](/content/gnews/15/README.md)
+### [香港气候反常 印证中共管制不顺天意](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜乌克兰寻求西方对俄罗斯实施毁灭性制裁](/content/gnews/16/README.md)
+### [有声｜上海志愿者暴毙 市民跳楼 宠物被打死](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜上海志愿者暴毙 市民跳楼 宠物被打死](/content/gnews/17/README.md)
+### [秘翻新闻｜上海乱象:拉一车人隔离结果无处安置](/content/gnews/19/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [秘翻新闻｜上海乱象:拉一车人隔离结果无处安置](/content/gnews/18/README.md)
+### [有声｜上海气氛肃杀 中共抗疫已演变为政治博弈](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜上海气氛肃杀 中共抗疫已演变为政治博弈](/content/gnews/19/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [林郑月娥向新特首暗示中共绞肉机的本质](/content/gnews/20/README.md)
+### [林郑月娥向新特首暗示中共绞肉机的本质](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本呼吁警惕奥密克戎亚型变异株BA.2](/content/gnews/21/README.md)
+### [日本呼吁警惕奥密克戎亚型变异株BA.2](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃罗马教皇首次谴责布查大屠杀 亲吻乌国旗](/content/gnews/22/README.md)
+### [樱花时政┃罗马教皇首次谴责布查大屠杀 亲吻乌国旗](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃美英宣布对俄新制裁包括“禁止对俄新投资”](/content/gnews/23/README.md)
+### [樱花时政┃美英宣布对俄新制裁包括“禁止对俄新投资”](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美财政部：如果中共入侵台湾，美国马上制裁](/content/gnews/24/README.md)
+### [美财政部：如果中共入侵台湾，美国马上制裁](/content/gnews/25/README.md)
  ` 银河歌舞厅`
 
-### [芬兰海关扣押俄罗斯艺术品](/content/gnews/25/README.md)
+### [芬兰海关扣押俄罗斯艺术品](/content/gnews/26/README.md)
  ` 银河歌舞厅`
 
-### [日本取消对106国的中共病毒入境限制](/content/gnews/26/README.md)
+### [日本取消对106国的中共病毒入境限制](/content/gnews/27/README.md)
  ` 银河歌舞厅`
 
-### [乌克兰救援前线报道4.07.2022：新中国联邦黄马甲掀起全球灭共浪潮](/content/gnews/27/README.md)
+### [乌克兰救援前线报道4.07.2022：新中国联邦黄马甲掀起全球灭共浪潮](/content/gnews/28/README.md)
  ` 秘密翻译组-原创组`
 
-### [樱花时政｜明知疫情防控措施极不合理，为何习近平仍要各级官员坚决贯彻执行？](/content/gnews/28/README.md)
+### [樱花时政｜明知疫情防控措施极不合理，为何习近平仍要各级官员坚决贯彻执行？](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄方内部文件显示乌军对俄军信息战卓有成效](/content/gnews/29/README.md)
+### [俄方内部文件显示乌军对俄军信息战卓有成效](/content/gnews/30/README.md)
  ` 波士顿五月花农场金融部`
-
-### [俄罗斯在乌克兰的战争罪 这么多不会再一次](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [丰田汽车下调2022年在美国新车销售量预期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`

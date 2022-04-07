@@ -17,6 +17,18 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 12:06 PM (UTC)`
+
+04/07/2022 on the 4th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on 15 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 , Hungary 🇭🇺 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Macau, Singapore, Malaysia, Germany, New Zealand, Australia, Spain, Netherlands, Sweden, Philippines, Cambodia, Mongolia, Finland, Hungary， Laos🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2303480/
+
+---
+
+`@miles 4/7/2022 12:05 PM (UTC)`
+
+4月7号, 郭文贵先生两首新歌上线第四天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿 热门歌曲榜首🥇<br/>15 国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜首🥇<br/>新西兰🇳🇿， 匈牙利 🇭🇺, 柬埔寨 🇰🇭 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门、新加坡、马来西亚、德国，新西兰、澳大利亚、西班牙、荷兰、匈牙利、瑞典、菲律宾、柬埔寨, 蒙古，芬兰,老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2303480/
+
+---
+
 `@miles 4/7/2022 10:44 AM (UTC)`
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月6日第33天当日救援统计：<br/>Medyka救援站接待：约312人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9580人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 33 - Date: April 6, 2022 :<br/>Medyka Rescue Station Reception: about 312 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9580 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
@@ -140,20 +152,6 @@
 
 2022.04.06  新中国联邦 | 喜健康   营养师分享的私房经/中共病毒的预防漫谈
 ![img](https://media.gettr.com/group13/origin/2022/04/06/20/175cc026-e0ae-f1f1-6028-170c7b8dba04/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/6/2022 8:07 PM (UTC)`
-
-When a volunteer from Tennessee, US heard that the New Federal State of China is helping 1.4 billion people in mainland China to get rid of the Communist cult, he offered to pray for the Chinese people.  In his prayer, he hoped God would help China to get rid of the evil Communist Party, and that those Chinese people who are suffering from the poison of the Communist Party would recognize the evil and break free from its control and gain true freedom.<br/>这是一位来自来美国田纳西义工，当他听说新中国联邦正在帮助中国大陆14亿人摆脱共产党邪教的统治，他提出要为中国人做祈祷， 他在祈祷中说，希望神帮助中国摆脱邪恶的共产党， 希望那些深受共产党毒害的中国人能认清邪恶，挣脱邪恶的控制，获得真正的自由。
-![img](https://media.gettr.com/group29/origin/2022/04/06/20/241ac84d-650a-6784-aad6-2143164387c9/out.jpg)
-
----
-
-`@miles 4/6/2022 7:31 PM (UTC)`
-
-A botanist who works for the US government, took time off and paid himself to participate in the Ukrainian rescue mission at the Medyka border, joining a group of Canadian volunteers to hand out food for refugees. After he learned that we are volunteers on behalf of the Rule of Law Foundation, he is glad for what we are doing. The volunteers strongly agree that the Chinese Communist Party (CCP) doesn’t represent the Chinese people, just like Putin doesn’t represent the Russian people.<br/><br/>来自美国俄勒冈州的美国政府雇员用自己的假期、自掏腰包参加乌克兰人道救援活动，在梅迪卡边境他和一群加拿大来的义工给难民发食品。 他知道我们是法治基金赞助的义工，表示非常赞同法治基金的理念， 他们还表示，他们知道中共不代表中国人，就像普京不代表俄罗斯人一样。
-![img](https://media.gettr.com/group48/origin/2022/04/06/19/6e0ea210-8a09-b32b-a9b4-4d5d4ddbc957/out.jpg)
 
 ---
 
