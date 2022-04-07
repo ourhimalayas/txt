@@ -2,28 +2,28 @@
 ---
 
 
-## 财政部长耶伦：如果俄罗斯加入G20，美国将不参加
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305010/)
+## 台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305097/)
 
-翻译：天天
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-12.jpg)
-美国财政部长珍妮特-耶伦6日表示，对于2022年由印度尼西亚担任议长国的G20多边会谈，如果俄罗斯参加，美国将不参加。 在美国众议院作证时，她说正在考虑拒绝参加一些会议，如部长级会议，而不是完全抵制G20。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-751-edited.png)图片来源：雅虎新闻
-耶伦说，”拜登总统呼吁将俄罗斯排除在G20之外。 我们已经告诉印度尼西亚，如果俄罗斯出席，我们将不参加多边会议”。
+**港台前线 zhong｜2022-4-7**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-9.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+日本政府消息人士透漏，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本，与首相岸田文雄会谈，针对俄侵略乌克兰寻求美日合作。访问日本之后，原计划访问南韩。
 
-与此同时，美国白宫发言人萨基解释说，对于耶伦的发言 “我认为她指的是部长级和个别会议”。 它并不意味着完全抵制或不参与”。
+台湾媒体4月7日报导称，知情人士消息，裴洛西可能取消访问南韩，改访台湾。此消息一出，尚未经过美台官方证实，便受到多国媒体关注。前次美国现任众议院议长访台纪录为1997年。
 
-G20于2月在雅加达举行了第一次财长和央行行长会议，并将于4月下旬在华盛顿举行第二次会议。
+中共外交部发言人赵立坚对此消息表示“如果美方一意孤行，中方将采取强硬措施捍卫国家主权和领土完整。”
 
-3月，美国总统拜登表示，由于俄罗斯继续在乌克兰进行侵略，他认为应将其排除在G20之外。 同时，俄罗斯方面宣布，普京总统打算出席11月的20国集团峰会。
+然而，本消息尚未得到官方认证，裴洛西便爆出无症状感染新冠病毒，据外媒报导她本人接种了三剂新冠疫苗，感染可能与先前参与的晚宴有关，该晚宴已发现多名记者、参加者确诊新冠。
 
-参考链接：[G20、ロシア参加なら米国は参加しない　イエレン財務長官（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b4c48b96568b0cf613b4c252e91951564dce2916)
+裴洛西原定出访日本、南韩，可能因确诊而延期。
+
+来源｜[npr](https://www.npr.org/2022/04/07/1066212755/speaker-nancy-pelosi-has-tested-positive-for-covid)、[cnbc](https://www.cnbc.com/2022/04/07/house-speaker-nancy-pelosi-tests-positive-for-covid-is-not-experiencing-symptoms.html)
 
 * * *
 
-审核：Bryan
-校对/发稿：给我听
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
