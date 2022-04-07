@@ -2,14 +2,14 @@
 ---
 
 
-## 西媒头条 — 第202期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305141/)
+## 2022年4月7日，全球中共病毒疫情情况汇总
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305176/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+制作：DT新闻组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
+**中共的杀戮还在继续……**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xm220407.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0902.jpg)
 
 发稿：信心的选择
 
@@ -19,7 +19,7 @@
 [**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
 **[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-6.jpeg)
 
  
 

@@ -2,42 +2,50 @@
 ---
 
 
-## 德国及乌克兰情报部门分别截获俄军下令屠杀平民的通讯
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2304970/)
+## 6月马德里北约外长会议讨论灭共战略
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2304980/)
 
-####   撰稿：彩虹    
+作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
 
-#### 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-749.png)图片来源：Malay Mail
-根据《纽约邮报》4月7日的报道，乌克兰情报部门称，截获的俄罗斯无线电信息显示，疲惫不堪的部队抱怨人数太多，并被命令杀害平民。
+[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
 
-周三，乌克兰安全局（SSU）发布了一个截获的通讯片段，在对马里乌波尔的残暴攻击中，一名俄罗斯军队指挥官对他的下属吼道：“把他们每个人——平民——都杀了！”
+4月7日下午在布鲁塞尔结束的北约外交部长会议上，北约外长会议同意维持和进一步加强对乌克兰的支持，并加强与合作伙伴的合作。来自乌克兰、格鲁吉亚、芬兰、瑞典和北约的亚太伙伴澳大利亚、日本、新西兰、韩国外长以及欧盟外长也加入了本次会议。
 
-根据情报部门自己的翻译，在此截获的音频开始时，一名士兵提醒他的上司，一辆驶过的汽车上坐满了穿着像平民的人。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/220407a-026_rdax_775x440s.jpg)General view of the meeting
 
-根据情报局的翻译，这位明显是上级军官的人咆哮道，“看在上帝的份上，把他们都杀了吧！”同时，他对下属的明显犹豫不决感到愤怒，吼道：“你们他妈的有什么毛病？混蛋！”
+北约秘书长延斯·斯托尔滕贝格(Jens Stoltenberg)在会后表示，盟国强烈谴责最近从布查和其他俄罗斯侵略军控制下解放出来的地方发生的可怕的谋杀平民事件。所有的事实都非常清晰，必须将所有应对这些暴行负责的人绳之以法，盟国正在支持进行国际调查。
 
-在另一个片段中，第三名男子抱怨说，他们被要求向一个村庄推进，而他们知道在那里的人数远远超过他们，这“太他妈糟糕了”。
+盟国也在支持和加强对乌克兰的人道主义援助和财政支持，包括网络安全援助，提供设备帮助乌克兰抵御化学和生物威胁。
 
-他说：“现在的情况是什么？他们左边也是，右边也是，正在包围我们”。
+北约及其盟友已经做了很多工作，并且决心现在以及未来中、长期做更多的事情，以帮助勇敢的乌克兰人保卫他们的家园和国家，并击退入侵的俄罗斯部队。
 
-根据乌克兰安全局的翻译，这名士兵承认他很“担心”，因为“有这么多”乌克兰人，而他和他的俄罗斯战友“并没有他妈的支持”。
+乌克兰外长德米特罗·库莱巴(Dmytro Kuleba)感谢北约盟国的大力支持。
 
-另据《国会山报》4月7日的文章，引用《华盛顿邮报》的报道说，德国方面也截获了俄罗斯的无线电对话，其中谈到了在乌克兰城市布查（Bucha）的屠杀。
+盟国一致认为，还应该帮助其他伙伴增强他们的应变能力，并增强他们保护自己的能力。包括格鲁吉亚、波斯尼亚和黑塞哥维那（波黑）。
 
-《华盛顿邮报》援引一位熟悉该调查结果的情报官员的话说，德国联邦情报局（BND）表示，他们获得了两份独立的通讯，内容是俄罗斯士兵之间关于他们如何在射杀士兵和平民之前进行审讯的讨论。而德国《明镜》杂志首先报道了截获的情报。
+对于格鲁吉亚，北约可以通过“实质性北约-格鲁吉亚一揽子计划”(NATO-Georgia Package)增加支持。包括态势感知(情报分享)、安全通信和网络等领域。对于波斯尼亚和黑塞哥维那，北约可以制定新的国防能力建设方案。
 
-《华盛顿邮报》援引熟悉这一过程的人士的话说，据报道，至少有两个议会委员会的人员被德国情报官员告知了这些发现。
+斯托尔滕贝格说，任何援助都将是量身定制的、以需求为导向的，并在有关国家完全同意的情况下提供。
 
-德国联邦情报局发言人目前拒绝对此发表评论，而政府发言人斯特芬·赫贝斯特兰特（Steffen Hebestreit）告诉《华盛顿邮报》说，根据“我们所掌握的情况”，有“可信的迹象”表明，在布查的俄罗斯人员当时正在审问“后来要被处决的囚犯”。
+因为俄罗斯入侵的影响是全球性的，而且将是长期的。乌克兰正在发生的事情正受到全世界的密切关注。北约和亚太伙伴现已同意在几个领域加强实质性政治合作，包括网络、新技术和打击虚假信息。
 
-*责编：白夜*
+北约秘书长强调，中共国不愿意谴责俄罗斯的侵略，北京与莫斯科一道质疑各国选择自己道路的权利。这对我们所有人来说都是一个严峻的挑战，这使得我们团结起来保护我们的价值观变得更加重要。
 
-**新闻来源**
+外长们还谈到了未来与俄罗斯的关系，北约盟国和合作伙伴对俄罗斯实施的制裁是前所未有的。他们正在破坏普京总统的战争机器，需要继续协调施压，以帮助结束这场毫无意义的战争。
 
-[Russian troops heard being ordered to ‘slay’ civilians: ‘F–king kill them all!’](https://nypost.com/2022/04/07/russian-troops-heard-being-ordered-to-kill-ukraine-civilians/)
+部长们一致认为，北约的下一个战略构想必须就未来与俄罗斯的关系做出回应，同时，第一次必须考虑到中共国日益增长的影响力和强制性政策如何影响世界的安全。
 
-[Germany intercepts Russian radio conversations discussing Bucha killings](https://thehill.com/policy/international/3261335-germany-intercepts-russian-radio-conversations-discussing-bucha-killings/)
+北约及其盟友如何应对更加激烈和危险的世界格局相关的战略构想将在6月的马德里峰会上最终确定。
+
+最后，盟国批准了我们的北大西洋国防创新加速器章程（Defence Innovation Accelerator for the North Atlantic），即DIANA。开始，它将包括一个由北美和欧洲约 60个创新站点组成的网络，与私营部门和学术界合作，盟国将确保北约能够利用最好的新技术来实现跨大西洋安全。
+
+参考数据：
+
+[Press conference：by NATO Secretary General Jens Stoltenberg following the meetings of NATO Ministers of Foreign Affairs](https://www.nato.int/cps/en/natohq/opinions_194330.htm)
+
+[NATO Allies agree to further strengthen and sustain support for Ukraine](https://www.nato.int/cps/en/natohq/news_194319.htm)
+
+编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
 
  
 

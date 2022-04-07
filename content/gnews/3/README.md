@@ -2,35 +2,25 @@
 ---
 
 
-## NFSC新闻、NFSC新闻访谈简报|2022年4月7日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2305178/)
+## 美、英、澳承诺共同研究高超音速武器
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305188/)
 
-作者：香草山翻译部
+作者：华盛顿DC农场 自由信仰
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-2.png)
+当地时间4月5日，据英国媒体报道，英国首相约翰逊办公室当天在一份声明中表示，在美国、英国和澳大利亚新防卫联盟的领导人——拜登、约翰逊与莫里森——当天举行的电话会议后，三国确认将在高超音速和反高超音速以及电子战能力方面开展新的三边合作。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-45.jpg)
+据悉，美国和澳大利亚早先已经商定了一份高超音速武器计划，尽管英国目前不会加入该计划，但三国将在该领域的研发方面开展新的合作。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-6.png)
+报道也提到，俄罗斯当前对乌克兰的入侵战争加剧了全世界对欧洲安全的担忧，美国政府正在全力研发以五倍音速飞行的高超音速导弹。此外，约翰逊首相也重申，全球要坚定不移地致力于建立一个尊重人权、法治，以及在不受胁迫的情况下和平解决争端的国际体系。此外，三国领导人也再次强调了对自由和开放的印太地区的承诺。
 
-文章仅代表作者本人观点，与Gnews无关
+参考链接：[UK, U.S., Australia agree to work on hypersonics under defence pact](https://www.reuters.com/world/uk-us-australia-agree-work-hypersonics-under-defence-pact-2022-04-05/)
 
-视频参看：
-[2022.04.07早 《NFSC新闻》](https://www.gettr.com/streaming/p1412la2f3b)
-[2022.04.07早《NFSC新闻访谈》](https://www.gettr.com/streaming/p141dn24191)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
-
-**更多资讯，更多关注**
-**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
-**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
-**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
-**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
-[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-2.png)
+总编：Irene木木
+编辑：飞虹
+审核：Irene木木
+校正/发稿：Fei797
 
  
 
