@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 3:21 AM (UTC)`
+
+4/6/2022 Ukraine Rescue: Fellow fighter Wenyao on why the number of refugees served by the big tent of the New Federal State of China is decreasing. The Western democracies are offering long-term relief programs such as immigration for Ukrainian refugees in Poland, while the evil CCP regime is doing nothing. This is because the CCP is the main culprit of this war.<br/><br/>4/6/2022 乌克兰救援连线：文耀战友分享为什么新中国联邦的大帐篷接待的难民人数在减少；西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首<br/>
+![img](https://media.gettr.com/group19/getter/2022/04/07/03/e7111954-df76-d5ee-17bd-a921d1b08888/out.jpg)
+
+---
+
+`@miles 4/7/2022 3:16 AM (UTC)`
+
+4/6/2022 Ukraine Rescue: Fellow fighter Wenyao told a story about a Taiwan compatriot. He got to know about the mission of the New Federal State of China through participating in the rescue operations at the Ukraine front line and decided to join our Himalaya Farm on site.<br/><br/>4/6/2022 乌克兰救援连线: 文耀战友讲述一位台湾战友，因参加乌克兰前线救援而了解到新中国联邦的使命，并火线加入喜马拉雅农场<br/>
+![img](https://media.gettr.com/group24/getter/2022/04/07/03/94c0d0b0-cc70-0a8d-1b32-fbd93c675374/out.jpg)
+
+---
+
 `@miles 4/7/2022 2:12 AM (UTC)`
 
 【Ukraine Rescue】04/05/2022  Naif took the initiative to find the NFSC and the ROLF as a Russian-Ukrainian interpreter for the team. He said that since he was a child, he has lived in the shadow of the CCP's armed reunification of Taiwan, and the CCP's actions in Hong Kong and Xinjiang have made it even clearer that the evil nature of the CPC will not change, and the mission of the NFSC and the Taiwanese to destroy the Communist Party is the same. He hopes to protect Ukraine and make the CCP hold back in attacking Taiwan.<br/><br/>【乌克兰救援】04/05/2022 那伊夫主动找到新中国联邦和法治基金为团队担任俄乌语翻译。他表示，从小就生活在中共武统台湾的阴影之下，中共在香港、新疆所为更看清了中共邪恶本质不会改变，新中国联邦人与台湾人的灭共使命是一样的。他希望通过保护乌克兰让中共对攻台有所忌惮。<br/>
@@ -142,19 +156,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 🌶️The Spiced有‘料’🌶️<br/><br/>乌克兰市长被俘 民众示威逼俄军撤退放人<br/>Ukrainian mayor captured, people protested to force Russian troops to retreat and release mayor<br/><br/>#俄罗斯 #乌克兰 #普京 #市长 #福米契夫 #被俘 #市民 #释放<br/><br/>#Russia #Ukraine #Putin #Mayor  #Mayor Fomichev #Release<br/><br/>📍乌克兰🇺🇦-俄罗斯🇷🇺
 ![img](https://media.gettr.com/group50/getter/2022/04/06/14/c484106b-a063-cb3b-0f8e-351a4f141050/out.jpg)
-
----
-
-`@miles 4/6/2022 3:12 PM (UTC)`
-
-04/06/2022 on the 3rd day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 and Cambodia 🇰🇭 Top Song Charts<br/><br/>#1 🥇 on 17Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇 on New Zealand🇳🇿 and Hungary 🇭🇺 Pop Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, USA, Taiwan, UAE, Macau, Singapore, Malaysia, New Zealand, Australia, Spain, Netherlands, Ireland, Hungary, Sweden, Philippines, Cambodia, Mongolia 🙏🙏🙏🙏🙏🙏🙏<br/><br/>4月6号, 郭文贵先生两首新歌上线第三天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿， 柬埔寨 🇰🇭 热门歌曲榜首🥇<br/>17 国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰🇳🇿， 匈牙利 🇭🇺 流行歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、美国、台湾、阿联酋、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙、荷兰、爱尔兰、匈牙利、瑞典、菲律宾、柬埔寨, 蒙古的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2298563/
-
----
-
-`@miles 4/6/2022 3:02 PM (UTC)`
-
-【乌克兰救援】04/04/2022 那伊夫战友用俄文或乌克兰语向难民解释，虽然都带有“中国”二字，但新中国联邦与中国共产党有本质区别。乌克兰人认识到，中共与前苏联一样，其邪恶的本质从来没用改变，是这次战争的背后推手。<br/><br/>【Ukraine Rescue】04/04/2022 Fellow warrior Naïve explains to refugees in Russian and Ukrainian the essential difference between NFSC and CCP even though the word “China” contained in both names. Some Ukrainians have recognized that the CCP remains the same evil up till now as what the former Soviet Union did which is the driving force behind this war.<br/>
-![img](https://media.gettr.com/group25/getter/2022/04/06/15/815c3e60-9a98-2f39-ccbf-81560457a2e3/out.jpg)
 
 ---
 
