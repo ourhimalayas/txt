@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 7:12 AM (UTC)`
+
+4/6/2022 Miles Guo’s GETTR: Please rest assured that all is well with me! I am enjoying learning the law of the US in the process of fighting back against the CCP's unrestricted lawfare. China will be a better place in the future with the judicial system and rule of law like the US. All fellow fighters will go through transformations expeditiously and head towards our goal of Himalaya - bringing rule of law, freedom, and faith to everyone in new China.<br/><br/>4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好；战友都在迅速地蜕变并走向我们新中国人的喜马拉雅的目标！<br/>
+![img](https://media.gettr.com/group30/getter/2022/04/07/07/0f0cee9b-644d-ccc0-9d61-6584d107f572/out.jpg)
+
+---
+
 `@miles 4/7/2022 7:03 AM (UTC)`
 
 【Ukraine Rescue】04/04/2022 Naive has been working and studying in Ukraine for 7 or 8 years. He originally planned to follow the Taiwan government's evacuation operation to return to Taiwan, but finally stayed in Poland because he was worrying about his friends in Ukraine. He learned about the NFSC’s rescue team through a local Chinese restaurant owner and became one of our volunteers. He took advantage of his language and experience in Ukraine to serve refugees, and worked with the NFSC’s rescue team to help provide refugees with transportation, accommodation and psychological assistance.<br/><br/>【乌克兰救援】04/04/2022 Naive在乌克兰半工半读了7、8年，本来打算跟随台湾政府的撤侨行动回台湾，因为牵挂乌克兰的朋友留在了波兰，通过一名中餐馆老板了解到新中国联邦救援团队，而成为一名志愿者。他利用语言和在乌克兰的经历优势服务难民，与新中国联邦救援团队一起为难民提供交通、食宿以及心理方面的帮助。
@@ -147,13 +154,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 2022.04.06  新中国联邦 | 军情室  首播  俄乌战争最新战况分析：第一架俄军K52直升机战场投诚
 ![img](https://media.gettr.com/group39/origin/2022/04/06/18/01af1392-385a-07f0-9f55-acb8e354e371/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/6/2022 6:47 PM (UTC)`
-
-🔈🔈🔈新中国联邦|军情室 系列节目 周三美东时间下午3点 重磅首播！军情分析，军事理论知识，俄乌战争最新战况分析，干货满满！精彩不容错过，敬请期待 🥳🥳🥳🙏🙏🙏
-![img](https://media.gettr.com/group7/origin/2022/04/06/18/185e46ab-ac19-a19e-b370-755fefffd54a/2a45e088dea4114cc6b4779931c97b76.jpg)
 
 ---
 
