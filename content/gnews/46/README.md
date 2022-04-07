@@ -2,42 +2,31 @@
 ---
 
 
-## 联合国将就乌克兰问题暂停俄罗斯在人权理事会的席位
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2304349/)
+## 樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2304671/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/haruka春香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+岸田内阁4月6日公布了以招牌政策“新资本主义”作为增长战略核心的有关量子技术新国家战略原案。内容包括，今年内出台“国产量子计算机”第一号机组，并在东北大学等国内4所大学认定量子技术研究、支援据点。他还提出了到2030年量子技术使用者达到1000万人的数值目标。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-50.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcn.nikkei.com%2Fimages%2F2021%2F07%2F0727%2F0727-09-1-L.jpg&amp;imgrefurl=https%3A%2F%2Fcn.nikkei.com%2Findustry%2Fitelectric-appliance%2F45529-2021-07-27-13-43-40.html&amp;tbnid=RIWhPmFSSBzN9M&amp;vet=12ahUKEwj3n5DSkIL3AhU9gc4BHYe_AvUQMygBegUIARClAQ..i&amp;docid=1HvDmlusz_2CsM&amp;w=600&amp;h=375&amp;q=%E6%97%A5%E6%9C%AC%E9%87%8F%E5%AD%90%E8%AE%A1%E7%AE%97%E6%9C%BA&amp;ved=2ahUKEwj3n5DSkIL3AhU9gc4BHYe_AvUQMygBegUIARClAQ)
+多名政府相关人士透露了此事。预定于本月内召开“综合创新战略推进会议”（议长松野官房长官）量子技术是利用极其微小的世界物理法则（量子力学）进行通信、计算、测定等的技术，有望应用于与现有超级计算机具有数位差计算能力的“量子计算机”和不会被窃听的密码通信。在新的战略“量子未来社会展望”（暂称）中，将量子技术规定为“未来国家间霸权竞争的核心技术”。他强调了经济安保的重要性，呼吁说：“要在本国拥有先进的量子技术，持续培养和确保稳定的人才。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+具体来讲，除了在东北大学建立培养产业人才的据点外，还将在冲绳科学技术大学院大学、产业技术综合研究所、量子科学技术研究开发机构设立研究及支援据点。利用政府基金，创出新产业和培养新兴企业。到2030年，国内将有1000万人利用量子技术，把量子技术的生产额提高到50万亿日元。未来将在金融、医疗、运输、航空等整个社会经济体系中引进量子技术，以提高生产效率和安全性为目标。
 
+政府还制定了有关人工智能（AI）的国家战略原案。该报告书明确指出，将在虚拟空间构筑再现现实世界、可以进行多种假设实验的“数码双子座”，并利用在假设首都正下方地震、南海特拉夫地震、新型冠状病毒等的受害预测上。其中还包含了期待在武力攻击事态等非常时期用于保护国民的内容。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/KEAKTKLAQBIVBIUA4TSUMXNN2I.jpg)
+信息来源：
 
+[国産量子コンピューター、初号機を今年度中に…「国際覇権争いの中核」と位置づけ（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4cba9c0dc723c0fb2350d87e009e30e2ebaa70ee)
 
-资料来源：路透社
-
-联合国大会将于周四投票决定美国推动暂停俄罗斯在联合国人权理事会的席位，因为有报道称其入侵乌克兰的俄罗斯军队“严重和系统地侵犯和践踏人权”。
-
-成员的三分之二多数投票（弃权不计）可以暂停一个国家的理事会。 利比亚曾于 2011 年被暂停。
-
-西方外交官相信，他们在拥有 193 个成员国的联合国大会中获得了足够的支持，可以通过一项暂停莫斯科的决议。草案文本表达了“对乌克兰持续的人权和人道主义危机的严重关切”，特别是对俄罗斯侵犯人权的报道。
-
-美国驻联合国大使琳达·托马斯-格林菲尔德周一宣布，在解释这一举动时告诉路透社：“重要的是（对俄罗斯）‘我们不会允许你继续逍遥法外并假装你尊重人权”。
-
-根据路透社看到的一份说明，俄罗斯已警告各国，投赞成票或弃权将被视为“不友好的姿态”，会对双边关系产生影响。
-
-在乌克兰指责俄罗斯军队在布查镇杀害数百名平民后，美国宣布将寻求俄罗斯停职。
-
-俄罗斯否认袭击乌克兰平民。联合国大使瓦西里·内本齐亚（Vassily Nebenzia）周二表示，虽然布查受俄罗斯控制，但“没有一个平民遭受任何形式的暴力”。
-
-俄罗斯是位于日内瓦的人权理事会三年任期的第二年，该理事会无法做出具有法律约束力的决定。但是可以授权调查。
-
-上个月，该委员会开始调查自俄罗斯袭击以来乌克兰侵犯人权的指控，包括可能犯下的战争罪。
-
-简评： 俄罗斯入侵乌克兰， 毫无理由。 而在基辅附近小镇布查的非人道的对平民的杀戮根本就无视人权， 让俄罗斯继续呆在人权理事会就是个笑话。 最没有人权的国家，包括中共国，都应该被踢出人权理事会。 而投票的时候，中共国如果再次投弃权票是不计数的。 中共国再次形式摸棱两可的把戏是不能成功的。
-
-🔗[https://www.reuters.com/world/un-vote-suspending-russia-human-rights-council-over-ukraine-2022-04-07/](https://www.reuters.com/world/un-vote-suspending-russia-human-rights-council-over-ukraine-2022-04-07/)
-
-责任编辑、发布： Shuizhuyu
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

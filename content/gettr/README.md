@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 11:47 PM (UTC)`
+
+2022.04.07《The Fringe》 Episode 164
+![img](https://media.gettr.com/group8/origin/2022/04/07/23/4bf052bf-1544-59fb-3980-ffcc9b4f9408/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 11:25 PM (UTC)`
 
 <br/>【Ukraine Rescue】04/06/2022  A Christian shares that in a prophetic picture she received from God, she sees the NFSC volunteers become the first drops of water in a tidal wave that’s to influence the world. The Chinese people are carried by God and will break free sooner than they could imagine.<br/><br/><br/>【乌克兰救援】04/06/2022. 一位基督徒分享她从上帝那里得到的预言启示，她看见使徒般的新中国联邦人成为一股影响世界浪潮的前面几滴水珠。中国人是被上帝举起的人，他们会比想象中更快的获得自由
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 4/6/2022 Ukraine Rescue: Fellow fighter Wenyao on why the number of refugees served by the big tent of the New Federal State of China is decreasing. The Western democracies are offering long-term relief programs such as immigration for Ukrainian refugees in Poland, while the evil CCP regime is doing nothing. This is because the CCP is the main culprit of this war.<br/><br/>4/6/2022 乌克兰救援连线：文耀战友分享为什么新中国联邦的大帐篷接待的难民人数在减少；西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首<br/>
 ![img](https://media.gettr.com/group19/getter/2022/04/07/03/e7111954-df76-d5ee-17bd-a921d1b08888/out.jpg)
-
----
-
-`@miles 4/7/2022 3:16 AM (UTC)`
-
-4/6/2022 Ukraine Rescue: Fellow fighter Wenyao told a story about a Taiwan compatriot. He got to know about the mission of the New Federal State of China through participating in the rescue operations at the Ukraine front line and decided to join our Himalaya Farm on site.<br/><br/>4/6/2022 乌克兰救援连线: 文耀战友讲述一位台湾战友，因参加乌克兰前线救援而了解到新中国联邦的使命，并火线加入喜马拉雅农场<br/>
-![img](https://media.gettr.com/group24/getter/2022/04/07/03/94c0d0b0-cc70-0a8d-1b32-fbd93c675374/out.jpg)
 
 ---
 

@@ -2,21 +2,20 @@
 ---
 
 
-## 救援前线 黑夜勇士加入爆料革命后的人生转变
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2306188/)
+## 安省已接种疫苗者的死亡率不断增高
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2306223/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-发布：信心的选择
+加拿大温哥华扬帆农场    平民正道
 
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据自媒体《反信号》4月5日报道，尽管主流媒体仍在为注射疫苗加强针摇旗呐喊，但官方数据却显示：在安省因感染新冠病毒而死亡的病例中，已接种疫苗者数量要远超未接种者。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-10.jpeg)
+据悉，目前未接种疫苗者的新冠病毒感染死亡率为0.02，而那些已完全接种以及注射了疫苗加强剂的人，感染死亡率则为0.03。同时，根据住院和重症监护室病例情况，已接种病人数量远远超过未接种患者。
 
+报道指出，由于在整个疫情期间，约有10%的加拿大人感染了新冠病毒，总体死亡接近0.01%，并与每年的流感死亡率接近。因此，当局所推行的疫苗接种，其有效性不言而喻。
 
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

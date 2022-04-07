@@ -2,117 +2,116 @@
 ---
 
 
-## 在布查，死亡、破坏和布满地雷的墓地
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305749/)
+## 十五名&#8221;完全接种疫苗&#8221;的网球运动员无法完成迈阿密公开赛
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2305892/)
 
-编译：七叶之芒
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-760-edited.png)图片来源：https://www.npr.org/
-在乌克兰的布查，一名男子骑着自行车穿过到处都是碎玻璃的停车场。
+**撰稿参与人：16626，沉默老歌，88JJ**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/FF7B0095-5318-4429-9093-38DB9D1A84C0.png)**屏幕截图：**[**https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html**](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)
+网球界的反应令人震惊，因为两位最受欢迎的选手宝拉·巴多萨Paula Badosa和扬尼克·辛纳JannikSinner在白天的比赛中从迈阿密公开赛四分之一决赛中退出。
 
-贝基-沙利文/NPR
+**总共有****15****人****次退出****或终身退役**
 
-乌克兰布查–俄罗斯军队进城没多久就来到了乌克兰安静的布查郊区沃克扎尔纳街居民沃洛迪米尔-阿夫拉莫夫的家。
+在迈阿密公开赛期间，总共有15人次退出或终身退役，也就是说，十五名”完全接种疫苗”的网球运动员无法完成迈阿密公开赛。
 
-72岁的阿夫拉莫夫说，三个俄罗斯人踢开了门，并扔进一枚手榴弹。里面有阿夫拉莫夫、他的女儿和他的女婿奥列赫。
+**参赛者必须完全接种疫苗**
 
-他说，他们把奥列赫拖到外面，让他跪下，然后在阿夫拉莫夫和他女儿的注视下向他的头部开枪。随后，由于战斗持续进行，两人不得不在一个地下室里躲避了数周。
+网球公开赛要求参赛者必须完全接种疫苗，消息称，所有退出的参赛者都接受了疫苗注射。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3587DD6A-52C3-4510-A4ED-496B7DFC4C7D.jpeg)**屏幕截图：**[**https://www.thestandardsc.org/michael-reed/fifteen-fully-vaccinated-tennis-players-unable-to-finish-miami-open/**](https://www.thestandardsc.org/michael-reed/fifteen-fully-vaccinated-tennis-players-unable-to-finish-miami-open/)
+据雅虎体育报道称：
 
-奥列赫在大街上躺了一个月。他说：“我无法靠近或埋葬他，什么都不能。”
+网球明星西班牙人宝拉·巴多萨Paula Badosa和意大利人扬尼克·辛纳Jannik Sinner都在迈阿密公开赛的四分之一决赛中以令人惊叹的气氛下退出。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/D7D0B7F1-E121-461C-97EF-7856D66131E2.png)**屏幕截图：**[**https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html**](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)**  ，网球明星西班牙人Paula Badosa（右图）和意大利人Jannik Sinner（左图）都在迈阿密公开赛的四分之一决赛中以令人惊叹的气氛下退役。（盖蒂Getty图片）   **
+**即将成为世界第三的巴多萨Badosa**
 
-最近几天，布查街道上死亡平民的图片震惊了世界，并加剧了人们对俄罗斯士兵在乌克兰犯下战争罪行的担忧。乌克兰0总统沃洛基米尔-泽伦斯基(Volodymyr Zelenskyy)将其称为种族灭绝。
+即将成为世界第三的巴多萨Badosa在与美国选手杰西卡-佩古拉Jessica Pegula的比赛中感觉不适，被迫退出四分之一决赛 ，退出时，她泪流满面。
 
-“这里躺着成堆的死尸，没有胳膊，没有腿，没有头骨”，阿夫拉莫夫说。“你不会在恶梦中看到它。这是恐怖。”
+周一，巴多萨Badosa承认她不确定是否能参加她随后赢得的第四轮比赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/E323D066-7CF9-46AD-ABAD-D30844F032E3.png)**屏幕截图：**[**https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html**](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)** ，即将成为世界第三的巴多萨Badosa在与美国选手杰西卡-佩古拉Jessica Pegula的比赛中感觉不适，被迫退出四分之一决赛。退出时，她泪流满面**
+**意大利名将辛纳Sinner**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-761-edited.png)图片来源：https://www.npr.org/
+在男单方面，意大利名将辛纳Sinner在对阵世界排名第103位的弗朗西斯科-塞伦多罗Francisco Cerundolo.时也被迫退赛。
 
-72岁的布卡居民沃洛迪米尔-阿夫拉莫夫说，他和女儿眼睁睁看着俄罗斯士兵向他女婿的头部开枪。
+在迈阿密公开赛期间，总共有十五人次退出或终身退役。
 
-贝基-沙利文/NPR
+**拉斐尔·纳达尔（****Rafael Nadal****）**
 
-人权观察组织记录了与阿夫拉莫夫讲述的故事相似的故事，该组织发现了在包括布查在内的多个乌克兰城市对平民男子进行处决式杀害的证据。
+另外，据报道拉斐尔·纳达尔（Rafael Nadal）最近在胸痛后在棕榈沙漠输掉了比赛。
 
-现在，乌克兰加紧呼吁西方提供更多的军事援助，并对俄罗斯采取更大的行动，希望在战斗从基辅转移到乌克兰东部的过程中使天平倾斜。
+其他运动员最近也有不寻常的健康问题，包括三名职业自行车手，其中两人因心脏病死亡；一名23岁的罗马尼亚水球运动员在比赛中也因胸痛而死亡。
 
-“如果我们已经得到了我们需要的东西–所有这些飞机、坦克、大炮、反导弹和反舰武器–我们本可以拯救成千上万的人。我不怪你们–我只怪俄罗斯军队。但你们本可以提供帮助”，泽伦斯基在周一的演讲中说。
+**整个网球界感到震惊**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-762-edited.png)图片来源：https://www.npr.org/
+整个网球界对多名”完全接种疫苗”的网球运动员无法完成迈阿密公开赛 而感到震惊。
 
-来源。欧盟/ESA/Copernicus Sentinel数据2020
+球迷们目睹了在硬石体育场（Hard Rock Stadium，是位于美国佛罗里达州迈阿密花园的多用途运动场，[https://zh.wikipedia.org/wiki/%E7%A1%AC%E7%9F%B3%E4%BD%93%E8%82%B2%E5%9C%BA](https://zh.wikipedia.org/wiki/%E7%A1%AC%E7%9F%B3%E4%BD%93%E8%82%B2%E5%9C%BA) ）的比赛中多名”完全接种疫苗”的网球运动员无法完成 比赛。
 
-资料来源：Nick Underwood/NPR
+**最令人震惊的时刻**
 
-**迄今为止，已找到200具平民的尸体**
+意大利选手Jannik Sinner和西班牙人Paula Badosa在同一天从四分之一决赛中退出，成为赛事中最令人震惊的时刻。
 
-作为努力的一部分，乌克兰当局为外国记者组织了参观活动，以了解俄罗斯对布查的破坏程度。被毁坏的房屋、被熏黑的建筑、被炸毁的窗户，以及世界末日般的Vokzal’na街–一个由烧毁的坦克和汽车组成的半英里长的坟场。
+**评论：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-763-edited.png)图片来源：https://www.npr.org/
+**统计学的相关规律**
 
-*3*月31日的卫星图像显示了距基辅市中心14英里的布卡市Vokzal’na街的破坏情况。坦克和汽车的烧焦的残骸以及广泛的建筑破坏都是可见的。
+最近以来 ，由于身体健康的原因 ，心脏的原因等等，运动员（身体健壮的运动员） 接连不断的退出比赛 ，或者无法完成比赛，这是一个非常不正常的现象。  在打疫苗之前 ，在大病毒爆发之前 ，这种状况是很少见的。从统计学的相关规律上看出 ，随着打疫苗人数的增加 ，打疫苗次数的增加，人们的身体健康状况，特别是运动员的身体健康状况却在下降，这里的相关关系和因果关系是不言而喻的。
 
-马克萨
+**主流媒体不敢正视这个因果关系**
 
-在废墟中，一个排雷小组成员向记者展示了从该市的房屋中找到的一些爆炸物。官员们说，仅在周一就发现了约4000枚，其中包括地雷、弹药和未爆炸的导弹。
+然而 ，主流媒体却不敢面对这个事实，不敢正视这个因果关系。一方面报道有运动员因为身体健康状况原因退出比赛，甚至终身不能参加比赛 ，甚至得病死亡，甚至是猝死。另一方面又在报道所有的参加比赛的运动员都接种了疫苗，而且是完全的接种疫苗。意思是说，不可能再次感染病毒，或者是对病毒有了抵抗能力，不会在病毒大流行期间染病造成身体健康状况下降。媒体总是害怕把这两个方面的事情联系在一起报导，至少把这两个方面的事情的关系分析一下。
 
-官员们说，到目前为止，在布查地区已经找到了约200名平民的尸体，而且随着工作人员清除地雷和清理瓦砾，每天都有更多的尸体被发现。
+**媒体遮盖不住疫苗灾难**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-764-edited-1.png)图片来源：https://www.npr.org/
+上面这一篇报道，总算把接种疫苗和运动员退出比赛生硬地扯到了一起，并作为标题报道出去。但在报道的文章中 ，却丝毫没有提出或给出分析，接种疫苗和退出比赛是什么关系？可以看出，这些被邪恶势力控制的媒体已经开始遮盖不住疫苗灾难的发生这个事实了。
 
-乌克兰当局为外国记者组织了参观活动，以查看布查所遭受的破坏。官员们说，该郊区仍然布满了俄国人留下的地雷和其他爆炸物。
+**相信政府，****舆论****导向****的结果**
 
-贝基-沙利文/NPR
+由于参赛运动员完全相信了政府，再加上舆论 的导向和宣传的结果，让这些热爱体育运动的参赛运动员相信打完疫苗之后才能够参加这次运动会。而随着这个疫苗的副 作用增加之后，会有更多的运动员临场退出的现象发生。因为参赛运动员是在赛场上能够受到众人瞩目，所以他们的一举一动，身体状况，都会受到大家的重视 。而伴随着这个疫苗的副 作用产生的病状和病情在他们身体的表现，也能够代表我们很多普通人将会产生同样的副作用。
 
-周二，官员们向记者展示了六具被烧得面目全非的尸体，这些尸体位于镇上一个安静、树木茂盛的角落的后院。据乌克兰国家警察发言人Dymtro Andriv说，他们是在前一天晚上被发现的。
+**疫****苗灾害****，****已经开始的迹象**
 
-“我们知道他们是被枪杀的，因为有许多子弹伤痕。然后有人试图通过焚烧尸体来掩盖这一罪行”，Andriv说，并补充说该地没有炮击或其他爆炸物的迹象。
+在迈阿密公开赛期间，十五人退出或终身退役这个现象已经开始验证了郭文贵先生的预言。随着五月份的临近，所有的疫苗灾难你都会显示出来，而且会越来越重，越来越普遍。在聚光灯下所能看到现象显示了疫苗灾害已经开始的迹象。
 
-随着尸体被发现，当局说他们正在努力核实他们的身份，并调查他们的死亡，以寻找任何战争罪的证据，包括将他们的死亡与特定的俄罗斯士兵联系起来的物证。
+文贵先生和在他领导下的新中国联邦是最早说出疫苗灾害，还有病毒真相的。随着疫苗灾害的逐步显现和发生，一定会让更多的人清醒和觉醒，进而有更多的人会加入新中国联邦。
 
-“我们知道，他们来到这里是为了杀死作为一个民族的乌克兰人，并摧毁作为一个国家的我们的国家。但我们需要向整个世界证明这一点。这就是为什么我们正在一丝不苟地收集证据”，乌克兰总检察长Iryna Venediktova星期二说。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-766-edited.png)图片来源：https://www.npr.org/
-周二，乌克兰军队向布查居民分发食品援助。
+**接种疫苗导致死亡人数，超出我们的想象**
 
-贝基-沙利文/NPR
+讲到运动员因为身体原因而退出比赛的事件屡见不鲜，而因为接种假疫苗导致猝死的知名运动员也数以百计，全世界因为接种疫苗死亡的人数更是难以估量。自从中共武汉冠状病毒爆发以来以及接种疫苗之后而导致的死亡人数，毫不夸张的说完全超出了我们的想象。
 
-**在这一切中，一场错误信息的战争正在进行中**
+**拿到武汉病****毒原始****毒株****，****停止疫苗的接种**
 
-俄罗斯多次试图诋毁布查平民死亡的照片和其他证据。
+如何预防和消除这样人类面临的巨大灾难？答案只有一个，病毒溯源，找到病毒真相，拿到武汉冠状病毒最原始的毒株；停止目前假疫苗的接种，停止接种假疫苗再次对人类造成伤害。
 
-克里姆林宫发言人德米特里-佩斯科夫（Dmitry Peskov）周二说：“这只是一场精心策划的–但却是悲剧性的–表演。这是一个旨在诋毁俄罗斯军队的伪造品，它不会起作用。”
+**中共，****地球上一切灾难的根源**
 
-俄罗斯官员对这些图片的来源提出了几种说法。前总统德米特里-梅德韦杰夫说，西方公共关系公司编造了这些照片。
+而解决这一切问题都必须首先解决中共极权统治的问题。中共极权统治的问题解决了，病毒和假疫苗的灾难才能得到根本性的解决，全世界许多灾难才能得到解决，因为中共是地球上一切灾难的根源。
 
-另一种俄罗斯理论认为，乌克兰人在赢回对该城市的控制权后上演了这些尸体。但Maxar公司的卫星图像显示，自3月中旬俄罗斯军队占领该镇以来，死者一直躺在原地。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-767-edited.png)图片来源：https://www.npr.org/
-布查的街道上到处都是战斗的证据，从微小的灰烬和弹片一直到被烧毁的大型坦克。
+**声明：**
 
-贝基-沙利文/NPR
+由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
 
-2019年至2020年担任乌克兰国防部长的安德烈-扎戈罗德纽克说，这些宣传努力让乌克兰官员感到厌恶。
+本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
 
-“绝对清楚的是，这些人并不只是穿着便服。他们是平民，因为他们中的大多数已经被确认。我们知道他们的地址。他们是当地人。他们是住在这些房子里的当地居民”，他说。“这只是表明莫斯科政府是多么令人恶心。”
+**参考资料**：
 
-在普通的乌克兰人中，来自布查的图像和故事使他们对俄罗斯士兵仅存的一点同情心烟消云散，其中有数百人被俘为战俘。
+1. [FIFTEEN “Fully Vaccinated” Tennis Players Unable to Finish Miami Open](https://www.thestandardsc.org/michael-reed/fifteen-fully-vaccinated-tennis-players-unable-to-finish-miami-open/)
 
-一名因安全原因不能透露姓名的乌克兰士兵警告说，乌克兰部队可能不再试图活捉俄罗斯人。
+2. [Miami Open Carnage: 15 Fully Vaxxed Tennis Players Unable to Finish Contests.](https://needtoknow.news/2022/04/miami-open-carnage-15-fully-vaxxed-tennis-players-unable-to-finish-contests)
 
-“现在，我们的大部分部队都掌握了关于马里乌波尔的信息，以及有多少人死亡，还有那些可怕的布查照片都可以公开，没有人会再抓他们了”，他说。“没有人关心了。他们都会入土为安。”
+3.[硬石体育场](https://zh.wikipedia.org/wiki/%E7%A1%AC%E7%9F%B3%E4%BD%93%E8%82%B2%E5%9C%BA)
 
-来源：[In Bucha, death, devastation and a graveyard of mines](https://www.npr.org/2022/04/06/1091125305/bucha-ukraine-executions-war-crime-allegations?t=1649364438472)
+4. [https://fr.wikipedia.org/wiki/Rafael\_Nadal](https://fr.wikipedia.org/wiki/Rafael_Nadal)
 
-* * *
+5. [‘What’s going on’: Tennis world stunned after Miami Open carnage](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)
 
-审核：Aries的星
-校对：阿伯塔
-发布：夜来香
+**编辑：LILY**
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**发布：歪桑**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-9.jpeg)
+20220407
 
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

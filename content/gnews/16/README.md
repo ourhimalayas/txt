@@ -2,34 +2,18 @@
 ---
 
 
-## 德国联邦议院否决了60岁以上人群的疫苗强制法案
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2305934/)
+## 中共疫情极端管控吓坏上海非裔
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306027/)
 
-**撰稿**:**日本东京方舟农场 JIHO**
+撰稿：东京樱花团/Ob
 
-根据网路综合消息，周四，德国联邦议院以378:296否决了一项要求所有 60 岁以上人群接种COVID-19 疫苗的法案。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-8.png)图片来自GETTY IMAGES
-
-该法案由总理奥拉夫-肖尔茨和他的卫生部长卡尔-劳特巴赫推动通过，被认为是在执政联盟和反对党的立法者对适用于该国所有成年人的疫苗授权的想法感到困惑后的一个妥协解决方案。
-
-如果获得通过，除非他们获得医疗豁免，否则将要求 60 岁以上的人群在 2022 年 10 月 1 日之前出示针对 Covid-19 的三次疫苗接种的证明。
-
-总理奥拉夫-肖尔茨曾在2021年11 月下旬吹捧对所有成年人进行强制疫苗接种是摆脱大流行的最可靠方法，他设定了在“2 月下旬或 3 月初”引入疫苗接种的目标。
-
-然而，该法案未能得到议会多数票的支持，反对党认为，鉴于全国病例数量正在下降，没有必要强制执行疫苗。
-
-在宣布结果时，坐在联邦议院右侧角落的德国选择党政治家们发出了响亮的欢呼声和掌声。
-
-民主在胜利，不管以何种理由，任何违背个人意愿的强制行为都应该被谴责，更何况有害的中共病毒疫苗。
-
-参考链接：
-[https://reurl.cc/EpEEd0](https://reurl.cc/EpEEd0https://reurl.cc/MbqqEp)
-[https://reurl.cc/MbqqEp](https://reurl.cc/EpEEd0https://reurl.cc/MbqqEp)
-
-编辑：青城道姑
-校对发布：Linda
-
+中共的邪恶历来令人心惊胆战，多少人心中埋藏着恐惧的阴影。三反五反，文化大革命，三年自然大灾害，哪一场运动不是别有用心的杀人。而如今，一场靠“疫核团”驱动的社会防疫运动正在上海如火如荼地进行着。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202204%2Fn11951242%2Fweb%2Fimages%2Fid13655080-2203140646161528-594x359.jpg&amp;imgrefurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202204%2Fn11951242%2Fweb%2F&amp;tbnid=D3KpeoKT4B7FhM&amp;vet=12ahUKEwjgg4HJsIL3AhWh34UKHRmJCPcQMygGegUIARClAQ..i&amp;docid=FRa77VeixuQ-vM&amp;w=594&amp;h=359&amp;q=%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%E7%AE%A1%E6%8E%A7%20%E5%86%9B%E7%AE%A1&amp;ved=2ahUKEwjgg4HJsIL3AhWh34UKHRmJCPcQMygGegUIARClAQ)
+三年大自然灾害易子互食的悲剧仍然历历在目。移居上海的非裔，独处异国他乡，听说中国共产党最擅长依靠和发动邪恶的社会运动推动杀人之后，深感忧虑，向社会发出了恐惧的哀求，“我是一个好黑人，请不要吃我，上海。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-20.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
