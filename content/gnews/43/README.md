@@ -2,34 +2,32 @@
 ---
 
 
-## 亚马逊新的澳大利亚配送中心可存储2000万件商品
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302461/)
+## 丰田汽车下调2022年在美国新车销售量预期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302650/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/r0_470_5568_3613_w1200_h678_fmax.jpg)图片来源：www.theflindersnews.com.au
-根据Ragtrader4月7日报道，亚马逊澳大利亚公司坚定了其对澳大利亚市场的承诺，在悉尼西部开设了一个新的机器人履行中心 (FC)。
+整理/编辑：围剿维尼熊
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_3364.jpg)
+根据财联社4月7日讯，因新冠疫情和俄乌冲突导致供应链陷入困境，当地时间周三(4月6日)，丰田汽车公司 (Toyota Motor Corp)下调了对2022年在美国新车销售量的预期。
 
-新的FC位于新南威尔士州的肯普斯溪是澳大利亚最大的仓库，可存储 2000万件物品。该基地创造了1,500多个持续的就业机会，包括客户履行角色，IT和工程职位。
+丰田汽车北美区销售执行副总裁鲍勃·卡特(Bob Carter)在电话会议上表示，预计2022年美国汽车行业总销量为1550万辆，低于此前预计的1650万辆。
 
-在澳大利亚每个州和领地，亚马逊澳大利亚公司拥有超过5,000名员工。
+俄乌冲突之前，全球汽车行业已经遭受到了新冠大流行和半导体芯片短缺的打击，导致部分供应链陷入混乱，并导致铝和镍等原材料价格的飙升。而在俄乌冲突之后，情况变得更加糟糕。
 
-出席该场地开幕式的总理莫里森表示，4,000名建筑工人使用13,500吨澳大利亚钢材建造了这个大型仓库。
+丰田此前在声明中表示，由于半导体短缺，出现了额外的减产，丰田公司再次向客户和供应商致歉。
 
-新的FC是亚马逊对澳大利亚市场承诺的一部分，自推出以来，它已在澳大利亚的各项业务中投资超过53亿美元。
+上周末丰田公布了2022年第一季度的美国销量数据，虽然保持了在美国销量的领先地位，但销量同比下滑近15%。
 
-这些投资包括在悉尼、墨尔本、珀斯、布里斯班、阿德莱德、黄金海岸 和纽卡斯尔建立其他FC和物流站点，以存储和运输产品，以及建立数据中心和企业办公室，以支持企业的云计算业务。
+参考链接：[供应链陷入困境 丰田汽车下调2022年在美销量预期](https://cn.investing.com/news/stock-market-news/article-2094580)
 
-资料来源：[Amazon’s new Australian fulfilment centre can store 20 million items](https://www.ragtrader.com.au/news/amazon-s-new-australian-fulfilment-centre-can-store-20-million-items)
+*发布：tianzhihuan*
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
  
 

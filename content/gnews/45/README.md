@@ -2,40 +2,36 @@
 ---
 
 
-## 欧盟多国驱逐俄罗斯外交官以回应其侵略行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302383/)
+## 澳大利亚电信公司Telstra推出诈骗短信过滤器
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302440/)
 
-作者：澳喜 – 追着曙光跑
+#### 了解澳洲生活点滴， 带您走进澳洲
 
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/121208537_gettyimages-1233763787.jpg)图片来源：BBC
+根据Northern Beaches Review4月7日报道，Telstra正在推出一种全新的短信诈骗过滤器，因为澳大利亚最大的电信提供商在其网络上遇到大量恶意短信。
 
+Telstra表示，诈骗短信不仅令人讨厌，而且具有恶意，有可能窃取人们的钱财或安装恶意软件来窃取个人信息、入侵他们的网上银行并感染他们的联系人。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+“我们网络上的诈骗短信数量正在上升：2021年，我们收到了超过 11,000份针对安卓设备的恶意短信报告，而2020年只有50份。”首席执行官安迪·佩恩 (Andy Penn) 说。
 
+澳大利亚竞争和消费者委员会去年指出，电话是诈骗者瞄准受害者的最常见方式，也是在经济损失方面最成功的方式。
 
+ScamWatch估计澳大利亚人去年因电话诈骗损失了6360万美元。
 
-外媒4月5日报道，由于俄罗斯军队在乌克兰布查大量屠杀平民的战争罪行，引起国际公愤和强烈谴责，欧盟多国在两日内驱逐超过175名俄外交官。
+作为其清洁管道计划的一部分，Telstra在过去一年中阻止了超过1亿个诈骗电话。
 
-4月4日，德国外交部长將40名俄外交官列为不受欢迎的人，并递解出境。同日，法国也宣布将驱逐35名俄外交官。立陶宛驱逐俄罗斯大使，并降低外交等级。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6.jpg)
-4月5日，意大利宣布驱逐30名俄外交官，西班牙宣布驱逐25名俄外交官，丹麦也宣布驱逐15名俄外交官，瑞典宣布驱逐3名俄外交官。拉脱维亚外交部也宣布，将驱逐13名俄外交官，并关闭两个俄罗斯驻拉脱维亚的领事馆。爱沙尼亚宣布驱逐14名俄外交官，并关闭俄驻纳尔瓦领事馆和俄罗斯大使馆驻塔儿图办公室。
+这家电信运营商表示，其新的短信诈骗过滤功能将有助于解决这个问题，在诈骗短信到达移动设备之前就在网络层面上进行拦截。
 
-参考链接：
-1. [歐盟國家不滿布查屠殺暴行 2天驅逐150俄羅斯外交官](https://www.cna.com.tw/news/aopl/202204050271.aspx)
-2. [Denmark expels 15 Russian diplomats; Moscow to retaliate](https://www.reuters.com/world/europe/denmark-expels-15-russian-diplomats-after-bucha-reports-2022-04-05/)
-3. [德国、法国驱逐数十名俄罗斯外交官](http://www.manyushijia.com/news/show-101453.html)
+资料来源：[Telstra rolls out scam text message filter](https://www.northernbeachesreview.com.au/story/7690235/telstra-rolls-out-scam-text-message-filter/?cs=9676)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+发布：tianzhihuan
 
-编辑：Jack Li文阳
-总编：天滅中共
-审核：Ivy001
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

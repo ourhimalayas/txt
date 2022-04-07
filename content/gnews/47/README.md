@@ -2,20 +2,37 @@
 ---
 
 
-## 樱花时政┃默克尔为其拒绝乌加入北约承担责任
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302194/)
+## 组图：乌克兰小镇博罗江卡惨遭俄军战火蹂躏
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2302341/)
 
-整理编辑：东京樱花团｜上善若水
+**撰稿：日本东京方舟农场  子辰**
 
-乌克兰总统泽连斯基在3月17日对德国联邦议会的视频演讲中严厉批评了德国对俄罗斯的政策，痛批北约在2008年“隐蔽地拒绝”了乌克兰加入。他表示，这是西方一些政治家对普京的“荒谬的恐惧”，这些政治家认为通过拒绝乌加入北约可以安抚俄方。他在讲话中说道，“这是基辅西北部最近被乌军夺回的一个城镇，有许多平民被杀，我邀请默克尔夫人和萨科齐先生访问布查镇，请他们看看对俄的让步政策导致了什么。”泽连斯基在周日晚间的信息中补充说：“我们不怪任何人，只怪俄军队和那些给他们下命令的人。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-702.png)
-2021年底离任的德国前总理默克尔在4月4日表示，为自己2008年在布加勒斯特北约峰会上拒绝接纳乌克兰加入北约承担责任。默克尔的女发言人说，“鉴于在布查镇和乌克兰其他地方发现的暴行，德国政府和国际社会为支持乌克兰并结束俄罗斯的野蛮行为和对乌克兰的战争所做的一切努力都得到了前总理的全力支持。”
+4月6日，俄罗斯军队撤离基辅后，乌克兰小镇博罗江卡（Borodianka或Borodyanka）遭到重创，街上建筑已成残垣断壁，满目疮痍。据代理镇长估计，位于基辅西北约50公里的这个小镇可能超过了200人死亡。
 
-信息来源：[**默克尔为其拒绝乌克兰加入北约承责**](https://www.rfi.fr/tw/%E5%9C%8B%E9%9A%9B/20220404-%E9%BB%98%E5%85%8B%E7%88%BE%E7%82%BA%E5%85%B6%E6%8B%92%E7%B5%95%E7%83%8F%E5%85%8B%E8%98%AD%E5%8A%A0%E5%85%A5%E5%8C%97%E7%B4%84%E6%89%BF%E8%B2%AC)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-103.jpg)（图片来自大纪元）
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+乌克兰总统泽连斯基（Volodymyr Zelensky）4月5日在视频演说中表示，博罗江卡和其它已被乌军收复的城镇中，平民遭到俄军杀害的人数恐怕远高于布查镇。
+
+博罗江卡代理镇长乔治‧埃尔科（Georgii Yerko）6日表示，这座城镇在遭俄军空袭后，目前有多达200人下落不明。
+
+多组图片显示，两天间在俄军撤离基辅后，博罗江卡镇街上到处都是断壁残垣，满目疮痍。街上散落着被摧毁的俄军坦克或军车残骸。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-52.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，一座桥梁严重受损。(Sergei Supinsky/AFP via Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-42.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆损坏的俄罗斯坦克。(Sergei Supinsky/AFP via Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-48.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑物被炸出一个大洞。(Sergei Supinsky/AFP via Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-28.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑遭到严重破坏，残骸散落一地。(Anastasia Vlasova/Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-19.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆烧毁的俄罗斯军车。(Anastasia Vlasova/Getty Images)
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/6/n13699867.htm](https://www.epochtimes.com/gb/22/4/6/n13699867.htm)
+
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
