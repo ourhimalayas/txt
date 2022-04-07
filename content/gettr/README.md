@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 2:12 AM (UTC)`
+
+【Ukraine Rescue】04/05/2022  Naif took the initiative to find the NFSC and the ROLF as a Russian-Ukrainian interpreter for the team. He said that since he was a child, he has lived in the shadow of the CCP's armed reunification of Taiwan, and the CCP's actions in Hong Kong and Xinjiang have made it even clearer that the evil nature of the CPC will not change, and the mission of the NFSC and the Taiwanese to destroy the Communist Party is the same. He hopes to protect Ukraine and make the CCP hold back in attacking Taiwan.<br/><br/>【乌克兰救援】04/05/2022 那伊夫主动找到新中国联邦和法治基金为团队担任俄乌语翻译。他表示，从小就生活在中共武统台湾的阴影之下，中共在香港、新疆所为更看清了中共邪恶本质不会改变，新中国联邦人与台湾人的灭共使命是一样的。他希望通过保护乌克兰让中共对攻台有所忌惮。<br/>
+![img](https://media.gettr.com/group36/getter/2022/04/07/02/b794168a-f809-2a66-4900-d59b71362a00/out.jpg)
+
+---
+
 `@miles 4/7/2022 2:01 AM (UTC)`
 
 2022.04.06  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百五十七集 嘉宾：Nick、风雨之中
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 【乌克兰救援】04/04/2022 那伊夫战友用俄文或乌克兰语向难民解释，虽然都带有“中国”二字，但新中国联邦与中国共产党有本质区别。乌克兰人认识到，中共与前苏联一样，其邪恶的本质从来没用改变，是这次战争的背后推手。<br/><br/>【Ukraine Rescue】04/04/2022 Fellow warrior Naïve explains to refugees in Russian and Ukrainian the essential difference between NFSC and CCP even though the word “China” contained in both names. Some Ukrainians have recognized that the CCP remains the same evil up till now as what the former Soviet Union did which is the driving force behind this war.<br/>
 ![img](https://media.gettr.com/group25/getter/2022/04/06/15/815c3e60-9a98-2f39-ccbf-81560457a2e3/out.jpg)
-
----
-
-`@miles 4/6/2022 1:00 PM (UTC)`
-
-2022年4月6日 文贵大直播：上海疫情老百姓遭殃；马斯克入股推特暴涨；新歌打榜及人工智能；《商君书》之 连坐与告密
-![img](https://media.gettr.com/group30/origin/2022/04/06/12/ad70668d-c4a8-45c8-a8a6-978bb6bc07f1/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
