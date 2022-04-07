@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 1:06 AM (UTC)`
+
+2022.04.06 晚  新中国联邦 | 新闻访谈   从夹边沟到大上海，铁蹄下的蝼蚁从未改变
+![img](https://media.gettr.com/group46/origin/2022/04/07/00/7bf69cf3-51e6-9424-6599-4c0334664af9/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/7/2022 12:30 AM (UTC)`
 
 2022.04.06 晚 新中国联邦 | 新闻    上海新增病例持续破万，中共出动武警严管，市民发起团购自救
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
  4月6号：尊敬的战友们好！上海的灾难还远远没有到来……上海还有亲人朋友的……做好最坏的准备吧……
 ![img](https://media.gettr.com/group23/getter/2022/04/06/12/bc863d24-f3ad-104d-a7fc-2ed4b1ab8c0d/out.jpg)
-
----
-
-`@miles 4/6/2022 9:53 AM (UTC)`
-
-【Ukraine Rescue】04/04/2022 A Taiwanese volunteer participating the NFSC and ROLF rescue work warned that Russia and the CCP have the same logic: grab land but get rid of the people <br/><br/>【乌克兰救援】04/04/2022 一名参与新中国联邦和法治基金救援工作的台湾志愿者警告说，俄罗斯和中共的想法是一样的：留地不留人<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue<br/>
-![img](https://media.gettr.com/group22/getter/2022/04/06/09/08c55daa-b6e2-cf86-9c2f-a747c832d712/out.jpg)
 
 ---
 
