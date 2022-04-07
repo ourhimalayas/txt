@@ -2,10 +2,10 @@
 ---
 
 
-## 美德合作关闭俄罗斯大型暗网黑市HYDRA，检获2500万比特币
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302044/)
+## 泽连斯基痛斥俄罗斯掩盖布查大屠杀真相
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302045/)
 
-作者：香草山教育部 – Noemi
+作者：纽约磐石农场 – 在远方
 
 
 
@@ -13,25 +13,21 @@
 
 
 
-美国司法部4月5日宣布，成功与德国警方联手捣破并关闭了全球最大的地下暗网市场Hydra Market，德国警方关闭Hydra在德国境内的伺服器，并检获了2,500万美元的比特币。
+外媒报道，乌克兰总统泽连斯基4月4日出发前往俄军屠杀平民事件的发生地，布查镇了解情况，并痛斥俄罗斯使用与马航17号班机空难事件同样的伎俩，掩盖战争罪行。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide8-6.jpg)
+泽连斯基表示，普京政府对俄罗斯侵略军屠杀乌克兰平民事件进行了虚假的宣传行动，他们通过数十次采访并重新剪辑影片，让被俄军屠杀的民众看起来是被别人所杀害。而这种行径，俄罗斯过去曾在乌东顿巴斯地区击落马航班机时使用过，并将责任推给乌克兰。俄罗斯还制造各种阴谋论，竟然诬陷乌克兰方面事先将尸体放在飞机上，然后自导自演让飞机坠毁。
 
-据美国司法部调查发现，2021年所有透过暗网买卖的加密货币中，80%在Hydra Market交易。2015年起，Hydra Market的加密货币交易额约为52亿美元，从中赚取的佣金更高达数千万美元。有外媒报导指，Hydra Market的用户主要来自俄语国家。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.jpg)
-司法部同时起诉了一名叫帕夫洛夫的俄罗斯男子，指控其成立并管理Hydra，使Hydra成为成千上万毒贩和非法交易的平台。
-
-与此同时，美国财政部也宣布对Hydra及俄罗斯加密货币交易所Garantex进行制裁，禁止美国人透过Hydra或Garantex交换资金、商品或服务，并冻结有关资产。
-
-据悉，Garantex的主要业务在俄罗斯莫斯科和圣彼得堡，财政部认为Garantex在协助洗黑钱的同时，还利用非法软件，攻击他人电脑。
-
-另外，有区块链研究人士指出，2019年俄罗斯加密货币交易所收取的非法比特币中，86%来自Hydra。美国财政部长耶伦表示，此举不仅可以阻挠来自俄罗斯的网路犯罪、违禁药品及其他非法服务，还向外界传达了一个讯息，那就是犯罪者已无法继续在暗网或其平台藏匿。
+2014年7月17日，马来西亚航空MH17班机从荷兰飞往吉隆坡的途中，在乌克兰领空内被山毛榉导弹击落，造成机上298人全部遇难。空难联合调查组经过4年调查后，认定该导弹是俄军第53防空导弹旅所发射，但俄方百般抵赖。
 
 参考链接：
-1. [U.S. imposes sanctions on Russian darknet market and crypto exchange](https://www.reuters.com/world/europe/us-hits-major-russian-banks-with-sanctions-over-invasion-ukraine-2022-02-24/)
-2. [Feds slay dark-web souk Hydra: Servers and $25m in crypto-coins seized](https://www.theregister.com/2022/04/05/us_germany_hydra/)
+1. [澤倫斯基：俄羅斯使用馬航空難同樣策略 試圖掩蓋戰爭罪](https://news.ltn.com.tw/news/world/breakingnews/3882668)
+2. 【[更新4.4】布恰平民遭大屠杀 全球愤怒](http://【更新4.4】布恰平民遭大屠杀%20全球愤怒)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
 
-编辑/总编/审核：天滅中共
+编辑：Jack Li文阳
+总编：天滅中共
+审核：Irene木木
 校对/发稿：为真不破20
 
 
