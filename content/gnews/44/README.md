@@ -2,35 +2,29 @@
 ---
 
 
-## 亚马逊新的澳大利亚配送中心可存储2000万件商品
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302461/)
+## 有声｜上海志愿者暴毙 市民跳楼 宠物被打死
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2303378/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+By:**秘翻新闻**
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/r0_470_5568_3613_w1200_h678_fmax.jpg)图片来源：www.theflindersnews.com.au
-根据Ragtrader4月7日报道，亚马逊澳大利亚公司坚定了其对澳大利亚市场的承诺，在悉尼西部开设了一个新的机器人履行中心 (FC)。
+**2022-04-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-16.png)
+[新唐人](https://www.ntdtv.com/gb/2022/04/06/a103393618.html)4月07日报道，上海封城后乱象不断，4月6日一天网上传出多起意外死亡事件。
 
-新的FC位于新南威尔士州的肯普斯溪是澳大利亚最大的仓库，可存储 2000万件物品。该基地创造了1,500多个持续的就业机会，包括客户履行角色，IT和工程职位。
+网传视频显示在一栋高楼小区的草地上，躺着一名身穿白色睡衣的女子，已经死亡。知情人称，这名女子疑因被封控在家，为有听障问题的父亲叫外卖，给了远距离接单的骑手200元打赏费，被大V发到网上本意为弘扬正能量，但却被网友指责给的数额太少，因受不了网暴跳楼身亡。
 
-在澳大利亚每个州和领地，亚马逊澳大利亚公司拥有超过5,000名员工。
+另一段视频显示，静安阳曲路一小区有人在躺在地上一名男子做急救，其身上一名女子大哭，周围有多位身穿蓝色防护服的人。知情人透露，躺在地上的第一名志愿者，因为同他人发生冲突后突然倒地死亡。
 
-出席该场地开幕式的总理莫里森表示，4,000名建筑工人使用13,500吨澳大利亚钢材建造了这个大型仓库。
+第三段视频内容讲述，在上海浦东曹路，一名感染疫情的阳性居民被“大白”带走时，名叫小柯基的宠物追出，却被“大白”活活打死，只听到狗狗的哀嚎。
 
-新的FC是亚马逊对澳大利亚市场承诺的一部分，自推出以来，它已在澳大利亚的各项业务中投资超过53亿美元。
+有上海的微博网友留言：4月6日，上海全域封控的第6天，发生了很多无法接受的事，让我这个土生土长的上海人感到目瞪口呆。
 
-这些投资包括在悉尼、墨尔本、珀斯、布里斯班、阿德莱德、黄金海岸 和纽卡斯尔建立其他FC和物流站点，以存储和运输产品，以及建立数据中心和企业办公室，以支持企业的云计算业务。
+秘翻新闻 二丫编辑报道
 
-资料来源：[Amazon’s new Australian fulfilment centre can store 20 million items](https://www.ragtrader.com.au/news/amazon-s-new-australian-fulfilment-centre-can-store-20-million-items)
+发布 : 恩典
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

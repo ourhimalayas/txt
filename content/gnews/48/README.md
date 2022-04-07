@@ -2,20 +2,35 @@
 ---
 
 
-## 樱花时政┃默克尔为其拒绝乌加入北约承担责任
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302194/)
+## 亚马逊新的澳大利亚配送中心可存储2000万件商品
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302461/)
 
-整理编辑：东京樱花团｜上善若水
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-乌克兰总统泽连斯基在3月17日对德国联邦议会的视频演讲中严厉批评了德国对俄罗斯的政策，痛批北约在2008年“隐蔽地拒绝”了乌克兰加入。他表示，这是西方一些政治家对普京的“荒谬的恐惧”，这些政治家认为通过拒绝乌加入北约可以安抚俄方。他在讲话中说道，“这是基辅西北部最近被乌军夺回的一个城镇，有许多平民被杀，我邀请默克尔夫人和萨科齐先生访问布查镇，请他们看看对俄的让步政策导致了什么。”泽连斯基在周日晚间的信息中补充说：“我们不怪任何人，只怪俄军队和那些给他们下命令的人。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-702.png)
-2021年底离任的德国前总理默克尔在4月4日表示，为自己2008年在布加勒斯特北约峰会上拒绝接纳乌克兰加入北约承担责任。默克尔的女发言人说，“鉴于在布查镇和乌克兰其他地方发现的暴行，德国政府和国际社会为支持乌克兰并结束俄罗斯的野蛮行为和对乌克兰的战争所做的一切努力都得到了前总理的全力支持。”
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/r0_470_5568_3613_w1200_h678_fmax.jpg)图片来源：www.theflindersnews.com.au
+根据Ragtrader4月7日报道，亚马逊澳大利亚公司坚定了其对澳大利亚市场的承诺，在悉尼西部开设了一个新的机器人履行中心 (FC)。
 
-信息来源：[**默克尔为其拒绝乌克兰加入北约承责**](https://www.rfi.fr/tw/%E5%9C%8B%E9%9A%9B/20220404-%E9%BB%98%E5%85%8B%E7%88%BE%E7%82%BA%E5%85%B6%E6%8B%92%E7%B5%95%E7%83%8F%E5%85%8B%E8%98%AD%E5%8A%A0%E5%85%A5%E5%8C%97%E7%B4%84%E6%89%BF%E8%B2%AC)
+新的FC位于新南威尔士州的肯普斯溪是澳大利亚最大的仓库，可存储 2000万件物品。该基地创造了1,500多个持续的就业机会，包括客户履行角色，IT和工程职位。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+在澳大利亚每个州和领地，亚马逊澳大利亚公司拥有超过5,000名员工。
+
+出席该场地开幕式的总理莫里森表示，4,000名建筑工人使用13,500吨澳大利亚钢材建造了这个大型仓库。
+
+新的FC是亚马逊对澳大利亚市场承诺的一部分，自推出以来，它已在澳大利亚的各项业务中投资超过53亿美元。
+
+这些投资包括在悉尼、墨尔本、珀斯、布里斯班、阿德莱德、黄金海岸 和纽卡斯尔建立其他FC和物流站点，以存储和运输产品，以及建立数据中心和企业办公室，以支持企业的云计算业务。
+
+资料来源：[Amazon’s new Australian fulfilment centre can store 20 million items](https://www.ragtrader.com.au/news/amazon-s-new-australian-fulfilment-centre-can-store-20-million-items)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
