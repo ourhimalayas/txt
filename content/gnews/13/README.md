@@ -2,24 +2,30 @@
 ---
 
 
-## 前币安首席财务官以2亿美元收购菲律宾交易所Coins.ph
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302021/)
+## 美国称中共若支持俄罗斯在乌克兰的战争可能面临制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302170/)
 
 #### 【雅典娜快讯】紧贴时代脉搏
 
 翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/32JX9ATCTH3S289783ULU7M7NJ9PZVY4SYEJEX65-606b111e.jpg)图片来源：www.kalibrr.com
-根据COINGEEK4月7日报道，一位前币安高管购买了东南亚最大的数字货币钱包和交易所之一。据当地报道，前币安首席财务官周炜以2亿美元收购了Coins.ph。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/106848606-1614793668610-gettyimages-1231492611-senate_foreign327_030321.jpeg)图片来源：CNBC
+根据CNA4月7日报道，美国副国务卿温迪·谢尔曼（Wendy Sherman）周三（4月6日）表示，对俄罗斯因乌克兰战争而实施的制裁应该让中共“充分理解”如果向莫斯科提供物质支持可能面临的后果。
 
-Coins.ph始于2014年，最初是一个电子钱包，允许用户购买、出售和存储一些数字货币。从那时起，它已经扩展到其他服务，包括预付费移动充值、汇款和账单支付。
+谢尔曼说，美国盟友和合作伙伴针对俄罗斯总统弗拉基米尔·普京、该国经济和寡头协调的“一系列制裁”和出口管制，应该成为中共领导人习近平的榜样。
 
-这家初创公司于2019年1月被印度尼西亚按需多服务平台Gojek和数字支付decacorn收购，标志着该公司首次进军菲律宾。然而，Gojek此后与当地一家电子商务公司合并，现在专注于其本土印尼市场。
+谢尔曼在众议院外交事务委员会听证会上说：“我认为，这让习主席很好地理解，如果他以任何物质方式支持普京，他可能会遇到什么。”
 
-据报道，周炜以2亿美元的价格收购Coins.ph，是Gojek两年前收购该公司的9500万美元的两倍多。
+北京应该从西方对乌克兰的协调反应中“吸取正确的教训”，即中共采取任何武力夺取民主管理的台湾岛的行动都是不可接受的。
 
-币安是2021年尝试收购Coins.ph的公司之一，但这笔交易没有成功。赵长鹏领导的交易所已经收购了几个钱包和交易所，包括印度的WazirX。然而，就像其母公司一样，WazirX也面临着监管问题，包括被指控违反了印度的外汇法。
+“我们希望中共明白，任何此类行动都会得到国际社会的回应，而不仅仅是美国。”谢尔曼表示。
 
-资料来源：[Ex-Binance CFO snaps up Philippine exchange Coins.ph for $200M: report](https://coingeek.com/ex-binance-cfo-snaps-up-philippine-exchange-coins-ph-for-200m-report/)
+中共拒绝谴责俄罗斯在乌克兰的行动或称其为入侵，并批评西方对莫斯科的制裁，尽管一名中共高级外交官上周表示，北京并没有故意规避这些制裁。
+
+近年来，北京和莫斯科的关系日益密切，包括在2月份宣布建立“无限制”伙伴关系。
+
+美国总统乔拜登在3月份的视频通话中警告习近平，任何物质支持以帮助俄罗斯应对西方制裁或提供军事援助的“后果”。
+
+资料来源：[US says China could face sanctions if it supports Russia’s war in Ukraine](https://www.channelnewsasia.com/world/us-says-china-could-face-sanctions-if-it-supports-russias-war-ukraine-2612801)
 
 发布：tianzhihuan
 

@@ -2,26 +2,18 @@
 ---
 
 
-## 乌克兰总统通报俄军对平民的大屠杀
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301981/)
+## 中日财经爆┃德国物流业面临破产潮
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302073/)
 
-采编撰稿： 加拿大温哥华扬帆农场 – 重生之鹰
+整理编辑：东京樱花团｜上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-697.png)[*图片来源*](https://gba.investhk.gov.hk/sites/default/files/Transportation-and-Logistics_1.jpg)
+俄乌战争继续牵动德国脆弱的神经，据德国广播电台报道，德国经济部长哈贝克继续拒绝立即禁止进口俄罗斯天然气。与此同时，由于能源价格高涨，货车司机严重缺乏，俄国木材进口被禁将导致德国货物运输所需的木制托盘缺乏等多种原因，德国物流业面临破产潮。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-694.png)图片来源：ctv
+信息来源：[**德国物流业面临破产潮**](https://www.bannedbook.org/bnews/headline/20220407/1715813.html)
 
-
-据加拿大【CTV新闻】4月5日的报道，乌克兰总统当天在联合国安理会上指控俄军在侵乌战争中对平民所犯下令人发指的暴行，并敦促应立即以战争罪将普京及所有罪犯送上纽伦堡国际法庭。
-
-泽伦斯基在视频中声称：平民不仅遭受酷刑，后脑中枪，被扔到井里活埋，在公寓里被手榴弹炸碎，在汽车里被坦克碾死，俄军还砍掉他们的四肢，割断他们的喉咙和舌头。妇女在她们的孩子面前被强暴和杀害。而所有与以上罪行相关的肇事者都必须得到严惩。
-
-报道指出，俄军在从基辅郊区撤出之前，在布查地区和其他城镇蓄意杀害平民的恐怖画面引起了全球的强烈愤慨和抗议，几乎所有舆论都要求俄军的暴行必须得到审判！
-
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471](https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471)
-
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

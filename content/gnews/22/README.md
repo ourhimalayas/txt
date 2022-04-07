@@ -2,30 +2,43 @@
 ---
 
 
-## 俄罗斯人可能将回到“苏维埃式生活水平”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2301928/)
+## 美德合作关闭俄罗斯大型暗网黑市HYDRA，检获2500万比特币
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302044/)
 
-####   撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16493024971.png)图片来源：Libcom
-根据《纽约邮报》4月6日报道，周三，美国总统宣布对俄罗斯的银行和普京的两个成年女儿进行新的制裁措施。而一位政府官员则警告说，俄罗斯可能会回到“苏维埃式的生活水平”。
+作者：香草山教育部 – Noemi
 
-拜登在对工会的一次演讲中说：“仅仅在一年内，我们的制裁就可能使俄罗斯过去15年的经济成果化为乌有。我们将扼杀俄罗斯在未来几年的增长能力”。
 
-而白宫表示，美国正在对持有俄罗斯所有银行资产三分之一的储蓄银行（Sberbank）和该国最大的私人银行阿尔法银行（Alfa-Bank）实施全面封锁制裁。
 
-白宫官员指出，“现实是，这个国家正在陷入经济、金融和心理上的孤立，按照这个速度，将回到1980年代的苏联式生活标准。即使像普京这样的独裁者，也与俄罗斯人民有一个社会契约。他拿走了他们的自由，以换取稳定的承诺。因此，他目前没有给他们稳定，普京给了他们不稳定和不安全……在某种意义上来讲，如果只是因为他们关心保持权力，那这对任何领导人来说都应该是重要的。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-该官员说，普京的两个女儿玛丽亚·普京娜（Mariya Putina）和卡捷琳娜·蒂霍诺娃（Katerina Tikhonova）将面临制裁，因为“我们认为普京的许多资产都藏在家庭成员那里，这就是我们针对她们的原因”。
 
-此外，俄罗斯外交部长谢尔盖·拉夫罗夫（Sergei Lavrov）的妻子和女儿也将面临制裁，俄罗斯总理米修斯廷（Mikhail Mishustin）和俄罗斯前总统兼总理德米特里·梅德韦杰夫（Dmitry Medvedev）的亲属也将面临制裁。
 
-但是，根据《纽约邮报》上个月的报道，普京的情妇阿琳娜·卡巴耶娃（Alina Kabaeva）据称带着他们的四个年幼孩子躲在瑞士，并不面临美国的制裁。
+美国司法部4月5日宣布，成功与德国警方联手捣破并关闭了全球最大的地下暗网市场Hydra Market，德国警方关闭Hydra在德国境内的伺服器，并检获了2,500万美元的比特币。
 
-值得注意的是，文章指出，拜登还限制了对俄罗斯的某些技术出口，并对越来越多的俄罗斯精英人士实施制裁。然而，俄罗斯最富有的女性，亿万富翁叶莲娜（Yelena Baturina）还没有面临制裁，据称她在2014年向一家与亨特·拜登（Hunter Biden）有关的公司支付了350万美元。
+据美国司法部调查发现，2021年所有透过暗网买卖的加密货币中，80%在Hydra Market交易。2015年起，Hydra Market的加密货币交易额约为52亿美元，从中赚取的佣金更高达数千万美元。有外媒报导指，Hydra Market的用户主要来自俄语国家。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.jpg)
+司法部同时起诉了一名叫帕夫洛夫的俄罗斯男子，指控其成立并管理Hydra，使Hydra成为成千上万毒贩和非法交易的平台。
 
-**新闻来源**
+与此同时，美国财政部也宣布对Hydra及俄罗斯加密货币交易所Garantex进行制裁，禁止美国人透过Hydra或Garantex交换资金、商品或服务，并冻结有关资产。
 
-[US warns Russia of ‘Soviet living standards’ as sanctions hit Putin’s kids](https://nypost.com/2022/04/06/us-warns-russia-of-soviet-living-standards-sanctions-hit-putin-kids/)
+据悉，Garantex的主要业务在俄罗斯莫斯科和圣彼得堡，财政部认为Garantex在协助洗黑钱的同时，还利用非法软件，攻击他人电脑。
+
+另外，有区块链研究人士指出，2019年俄罗斯加密货币交易所收取的非法比特币中，86%来自Hydra。美国财政部长耶伦表示，此举不仅可以阻挠来自俄罗斯的网路犯罪、违禁药品及其他非法服务，还向外界传达了一个讯息，那就是犯罪者已无法继续在暗网或其平台藏匿。
+
+参考链接：
+1. [U.S. imposes sanctions on Russian darknet market and crypto exchange](https://www.reuters.com/world/europe/us-hits-major-russian-banks-with-sanctions-over-invasion-ukraine-2022-02-24/)
+2. [Feds slay dark-web souk Hydra: Servers and $25m in crypto-coins seized](https://www.theregister.com/2022/04/05/us_germany_hydra/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
+
+编辑/总编/审核：天滅中共
+校对/发稿：为真不破20
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

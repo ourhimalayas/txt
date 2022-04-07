@@ -2,26 +2,46 @@
 ---
 
 
-## 俄乌战争实质是中美之战 世界金融危机一定到来
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2301856/)
+## 珠江医院张堂德教授:集中核酸检测的成百上千感染风险
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2301927/)
 
-实际上乌克兰这个战争灭的就是共产党，严格讲就是美中战争， 不存在任何什么俄乌战争。就是让你欧洲断油、断汽，在你解决油、汽之前，然后让美国经济下滑。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/002_副本-1.png)
+据谷风@[645Pr0RoZT8CwA7](https://twitter.com/645Pr0RoZT8CwA7)于[上午2:13 · 2022年4月7日](https://twitter.com/645Pr0RoZT8CwA7/status/1511769117757300737)发布的推特
 
-**【郭先生直播摘要】2022.3.30 俄乌战争实质是中美之战 世界金融危机一定到来**
+张教授的意思是共产党的強行检测核酸方式，实际是为了广泛传播病毒。
 
-**郭先生：**
 
-实际上乌克兰这个战争灭的就是共产党，严格讲就是美中战争， 不存在任何什么俄乌战争。而且一定会打台湾，那么这种情况下 ，你不用担心，美国不是腾不腾出手，早就准备好了第三只手等着拍老共呢。最终的结局，共产党结束，整个所谓的东方邪恶集团瓦解为止。
 
-今天的上午的时候，就是欧盟啦，他们内部在讨论这个拉夫罗夫中(共)国之行。中(共)国主动把这消息(曝)出来，美国人和欧洲人，你以为他们就像咱们一样，战友有默契，一说都懂。不像你想象得那样，现在俄罗斯正在以撤兵为掩护，实际在发动另外一场攻击。然后，他们认为会攻击，而且是猛烈性地攻击，甚至中共现在大量的导弹给运过去，会用导弹，甚至这个潜水艇，猛烈地攻击。那么，我和欧洲的这位朋友在说的时候，我说你们要注意到一样，所有你们的全世界的武力和精力都聚集在欧洲。
+> 张教授的意思是共产党的強行检测核酸方式，实际是为了广泛传播病毒。 [pic.twitter.com/9bEDaqzVPL](https://t.co/9bEDaqzVPL)
+> — 谷风 (@645Pr0RoZT8CwA7) [April 6, 2022](https://twitter.com/645Pr0RoZT8CwA7/status/1511769117757300737?ref_src=twsrc%5Etfw)
 
-还有俄乌战争的时候，别忘了中东，甚至别忘了南亚，东北亚、南亚这两个地方都别忘了，一定要记住台湾的问题，包括北朝鲜的问题，包括霍兹木海峡，共产党一分钟都不会老实。而且在中东、伊拉克、沙特、也门这个地方，特别像叙利亚，它不会停的。我说就是让你欧洲断油、断汽，在你解决油、汽之前，然后让美国经济下滑。
 
-大家注意到这几天发生什么事？整个纽约的办公室空置率35%到40%，美国最大的那个玩具公司，叫（ Toys ‘R’ Us）。大家知道破产了，160个（Acre），50多万平方尺的楼，超级现代，这么漂亮的楼1900万，包含一切，包含一切。我说你们这个楼能不能给我们，我们想办成G-EDU教育，然后昨天我就在说这个话的路上，就有一个曼哈顿一个人找我，说你们这个基金有没有兴趣买个大楼啊！这是我们大家都耳熟能详的楼，我不能说啊！我说多少钱你这楼，他说原来是13亿美元，现在跟你谈一谈7亿美元。我说，没兴趣买，我本人是买不起，我家族也没兴趣，我给你介绍个人，就在我把这个消息转发出不到30分钟，这哥们说，哎，你误会了，Miles。你给人家说错了，我说的是7亿美元，可以定价，你先把楼你先拿走，先付上2亿，就是现在他急需付的贷款，剩下的钱缓期付。
 
-2亿现金买一个，13亿就在我们旁边一个曼哈顿排前十的楼，经济危机是什么概念？这是共产党最想干的，上下左右它来这一把，胡啦胡啦，但是，兄弟姐妹们，这一天是一定会来的，曼哈顿的，世界的金融危机。你知道卖房子打折的人最恨谁？恨习近平，但愿他不要恨中国人。金融危机不来，共产党灭了，对我们也不是好事，金融危机来了，全球灭共，就彻底干净灭共，关键是灭共得把共产党的钱也得给咱拿回去。那一刻很快会到来的，北边已经开始了，你还担心下面吗？
+动辄数万数十万人集体核酸检测的风险，只要稍微具有基本常识的人都可以判断出来，南方医科大学珠江医院张堂德教授以专家的身份发出来的预警，在专业知识之外更加需要勇气，新冠病毒是中共的超限生化武器，新冠病毒疫苗作为与病毒相伴而生的杀人工具，也是中共超限生化武器的一部分，这一点郭文贵先生已经在多次直播中说明。
 
-视频剪辑：CG. | 听写：小蜜蜂 | 翻译：Arthur|校对：烟波浩淼| 编辑：Quentin| 发布：小蜜蜂
+既然发现一例阳性要对所有的密接、次密接进行强制隔离，那么在一次次的全员核酸检测并且检测出阳性病毒之后，是不是所有的全员核酸被检测者都是密接、次密接并且都需要强制隔离呢？这个时候中共又只字不提全员核酸造成的密接、次密接了，那么我们就只能得出一个结论——各地中共当局对辖区内居民一次又一次的全员强制核酸检测就是在蓄意制造群体感染，让中共的超限生化武器的效能达到最大化，这样一来可以节省粮食，二来可以减少养老金和社保支出，你看懂了吗？
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

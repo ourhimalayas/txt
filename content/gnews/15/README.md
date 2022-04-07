@@ -2,24 +2,23 @@
 ---
 
 
-## 美国同意给台湾9千5百万美元加強爱国者导弹
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2302006/)
+## 中共银行周末紧急开会布置防挤兑措施
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302147/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-102.jpg)
-图片来源：www.sohu.com
+作者：澳喜农场-Leo M
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E5%9B%BE%E6%A0%87-20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-17.jpg)
+郭文贵先生在4月4日的盖特直播中透露，中共的几大商业银行在刚刚过去的这个周末，纷纷召开了紧急会议布置措施，防止这星期有可能发生的银行挤兑。   会议要求凡是取款超过5万元人民币的，或是企业取款超过工资发放水平的，银行均需报上一级领导批准；同时，当地公安机关和纪委都将派驻专员进入企业，监督提款和资金的使用情况。   郭先生指出，中共国所谓前十大房地产开发商，包括融创、恒大、保利、富力、合生创展和碧桂园等，都处于欠债不还的状态，而被其拖欠债务的建设施工单位和装修公司都陷入了资金周转不灵的破产边缘。整个中共国经济的崩塌，包括银行、房地产的倒塌即将到来！
 
-零对冲网4月6日报道，美国参谋长联席会议主席马克·米利周二告诉国会领袖“几个大国之间的国际间冲突的可能性现在明显增加，而不是减少”，美国已经同意向台湾出售9千5百万装备及训练台湾军队。
+参考链接：[中共银行周末紧急开会布置防挤兑措施](https://gettr.com/post/p13im5827c4)
 
-由于来自北京的粗暴挑衅，这项新的出售主要是用以支持台湾爱国者导弹防御系统，该系统被看作是当台湾岛受到入侵时的关键防御系统。
+![此图像的alt属性为空；文件名为4月-16.jpg](https://assets.gnews.org/wp-content/uploads/2022/04/4%E6%9C%88-16.jpg)
 
-五角大楼国防合作安全局（DSCA)证实了这个消息，此次销售的项目对于受威胁地区具有重要的威慑作用并加强本土防御功能，包括爱国者导弹系统的训练，计划，守备，部署，操作和维护以及相关的设备和后勤支持部件，还有地面支持设备和备件。
-
-台湾外交部感谢拜登政府的批准，台北强调这是对抗北京“继续军事扩张和挑衅”所必要的。
-
-美国太平洋舰队司令说：“毫无疑问，中共正在密切关注在乌克兰所发生的事，他们正在从中学习并总结。”
-
-#### 新闻来源： [US Approves $95 Million Patriot Missile Systems Boost For Taiwan](https://www.zerohedge.com/military/us-approves-95-million-patriot-missile-systems-boost-taiwan)
+总编：天滅中共
+编辑：Delilah小胖
+审核：Ivy001
+校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg](https://assets.gnews.org/wp-content/uploads/2022/03/d99aa6cd-f4e5-4db5-a694-f754b976342b-1.jpg)
+![此图像的alt属性为空；文件名为Gnews-logo-1-87.png](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
  
 
