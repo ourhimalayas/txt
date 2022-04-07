@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 12:58 PM (UTC)`
+
+2022.04.07早《新中国联邦新闻访谈》
+![img](https://media.gettr.com/group22/origin/2022/04/07/12/a240e5cf-cebe-6f31-d2be-c7c23020b539/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/7/2022 12:29 PM (UTC)`
 
 2022.04.07 早 新中国联邦 | 新闻 新中国联邦国旗气球深受乌克兰儿童喜爱；郭先生谈综合认知能力的重要性
@@ -145,13 +152,6 @@
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-06<br/>For English：gettr.com/post/p13xgtj79b1
 ![img](https://media.gettr.com/group13/origin/2022/04/06/22/9ccd6dbb-15b1-5987-4d52-11d251d392ca/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/6/2022 9:40 PM (UTC)`
-
- 4月6号：尊敬的战友们好，刚刚的开完庭．收到了很多战友的问候……七哥在这里衷心地，感谢所有兄弟姐妹们的关心，❤️❤️❤️❤️❤️❤️❤️七哥向你们报平安了！
-![img](https://media.gettr.com/group35/getter/2022/04/06/21/12984f7a-ccb0-6ca8-1e2f-1458015c8c2e/out.jpg)
 
 ---
 
