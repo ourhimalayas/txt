@@ -15,85 +15,85 @@
 
 ---
 
-### [4/6/2022 乌克兰救援连线：西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首](/content/gnews/1/README.md)
+### [台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠](/content/gnews/1/README.md)
+ ` 關注組`
+
+### [4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/2/README.md)
+### [4/6/2022 乌克兰救援连线：西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【G叻睇真D】马斯克成为推特股东将对灭共事业重大利好](/content/gnews/3/README.md)
+### [【G叻睇真D】马斯克成为推特股东将对灭共事业重大利好](/content/gnews/5/README.md)
  ` G-时新闻`
 
-### [德国截获俄罗斯讨论布查杀人事件的电话](/content/gnews/4/README.md)
+### [德国截获俄罗斯讨论布查杀人事件的电话](/content/gnews/6/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [俄总理：苹果谷歌可能很快在俄罗斯关闭其应用商店](/content/gnews/5/README.md)
+### [俄总理：苹果谷歌可能很快在俄罗斯关闭其应用商店](/content/gnews/7/README.md)
  ` 加拿大温哥华英里农场`
 
-### [6月马德里北约外长会议讨论灭共战略](/content/gnews/6/README.md)
+### [6月马德里北约外长会议讨论灭共战略](/content/gnews/8/README.md)
  ` 温哥华扬帆农场`
 
-### [美国众议院议长佩洛西新冠检测结果呈阳性，访问亚洲行程推迟](/content/gnews/7/README.md)
+### [美国众议院议长佩洛西新冠检测结果呈阳性，访问亚洲行程推迟](/content/gnews/9/README.md)
  ` 加拿大温哥华英里农场`
 
-### [德国及乌克兰情报部门分别截获俄军下令屠杀平民的通讯](/content/gnews/8/README.md)
+### [德国及乌克兰情报部门分别截获俄军下令屠杀平民的通讯](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G叻睇真D】普京应该因谋杀布查而面临战争罪审判](/content/gnews/9/README.md)
+### [【G叻睇真D】普京应该因谋杀布查而面临战争罪审判](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [巴菲特超260亿投资惠普公司](/content/gnews/10/README.md)
+### [巴菲特超260亿投资惠普公司](/content/gnews/12/README.md)
  ` 加拿大温哥华英里农场`
 
-### [G7谴责俄罗斯在乌克兰的暴行发誓要继续施压](/content/gnews/11/README.md)
+### [G7谴责俄罗斯在乌克兰的暴行发誓要继续施压](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/12/README.md)
+### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/14/README.md)
  ` 關注組`
 
-### [五月花简报（04/06/2022）](/content/gnews/13/README.md)
+### [五月花简报（04/06/2022）](/content/gnews/15/README.md)
  ` mayflowertranslate`
 
-### [停止俄罗斯的联合国人权理事国资格，今晚表决&#8230;&#8230; 投票数三分之二为赞成票](/content/gnews/14/README.md)
+### [停止俄罗斯的联合国人权理事国资格，今晚表决&#8230;&#8230; 投票数三分之二为赞成票](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共用吴征搞掉川普，会培养出真正的灭共总统](/content/gnews/15/README.md)
+### [中共用吴征搞掉川普，会培养出真正的灭共总统](/content/gnews/17/README.md)
  ` 波士顿五月花农场`
 
-### [藐视法庭变煽动 国安警首次拘捕6旁听市民](/content/gnews/16/README.md)
+### [藐视法庭变煽动 国安警首次拘捕6旁听市民](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [德国议会否决中共病毒疫苗强制接种法案](/content/gnews/17/README.md)
+### [德国议会否决中共病毒疫苗强制接种法案](/content/gnews/19/README.md)
  ` 银河歌舞厅`
 
-### [基乌近郊博罗扬卡的住宅楼倒坍 200人被活埋](/content/gnews/18/README.md)
+### [基乌近郊博罗扬卡的住宅楼倒坍 200人被活埋](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [CDC疾控中心主任宣布对该机构进行全面审查](/content/gnews/19/README.md)
- ` 温哥华扬帆农场`
-
-### [上海封城11天 市民抱怨食品短缺](/content/gnews/20/README.md)
+### [上海封城11天 市民抱怨食品短缺](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主](/content/gnews/21/README.md)
+### [俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主](/content/gnews/22/README.md)
  ` 關注組`
 
-### [樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/22/README.md)
+### [樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [4/6/2022 乌克兰救援连线: 文耀战友讲述一位台湾战友，因参加乌克兰前线救援而了解到新中国联邦的使命，并火线加入喜马拉雅农场](/content/gnews/23/README.md)
+### [4/6/2022 乌克兰救援连线: 文耀战友讲述一位台湾战友，因参加乌克兰前线救援而了解到新中国联邦的使命，并火线加入喜马拉雅农场](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [4/7/2022 国际财经快讯：美国盟友将释放近6,000万桶石油储备; Meta计划为其应用程序推出虚拟货币](/content/gnews/24/README.md)
+### [4/7/2022 国际财经快讯：美国盟友将释放近6,000万桶石油储备; Meta计划为其应用程序推出虚拟货币](/content/gnews/25/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声｜俄罗斯在对乌战争中将粮食作为武器](/content/gnews/25/README.md)
+### [有声｜俄罗斯在对乌战争中将粮食作为武器](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜中共国核武库大幅扩张令美国面临巨大风险](/content/gnews/26/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [有声｜2天内200名俄罗斯外交官在欧洲被驱逐](/content/gnews/27/README.md)
+### [有声｜中共国核武库大幅扩张令美国面临巨大风险](/content/gnews/27/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
 ### [德国对俄罗斯的能源禁运是否可行？](/content/gnews/28/README.md)
