@@ -2,101 +2,32 @@
 ---
 
 
-## 突发：拜登说在布查的杀戮是“令人发指的”，呼吁对普京进行战争罪审判
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2301169/)
+## 美副国务卿：警告中共勿向俄罗斯提供支持 不要对台轻举妄动
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2301267/)
 
-Joe Biden (U.S. President)
-乔·拜登（美国总统）
+**撰稿：日本东京方舟农场  子辰**
 
-One comment to make before I start today
-在今天开始之前我要说一句话
+4月6日，美国副国务卿温迪‧舍曼（Wendy Sherman）表示，西方对俄罗斯实施的制裁应该让中共充分理解向莫斯科提供实质性支持，可能面临的后果。同时警告中共不要对台轻举妄动。
 
-You may remember I got criticized was calling Putin the war criminal
-你可能还记得我被批评称普京为战犯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-100.jpg)（图片来自大纪元）
 
-the truth of the matter
-事实上那很贴切
+援引路透社报导，舍曼在众议院外交事务委员会听证会上说，美国盟友和合作伙伴，对俄罗斯总统普京及该国经济和寡头实施的一系列制裁和出口管制，应该给中共习近平提供了一个警告。
 
-So what happened to Bucha
-那么在布查所发生的事情证明
+舍曼说，“我认为，这让习主席充分理解，如果他实际上以任何实质性方式支持普京，他可能会面临什么。”
 
-He is war criminal
-他就是战犯
+俄入侵战以来，中共一直拒绝谴责俄罗斯，并批评西方对莫斯科的制裁。美国和欧盟领导人近日分别在与习近平举行的视频峰会中，警告中方支持俄罗斯会招致后果，尤其是两国宣布合作伙伴关系“无上限”之后。
 
-We have to gather information
-我们必须收集信息
+舍曼同时在台湾问题上提出警告，她说，中共应该从西方对俄入侵战的协调反应中吸取教训，警告中共不要对台轻举妄动，不要对台心存幻想，因为以武力夺取民主治理的台湾，其任何行动都是不可接受的。
 
-We have to continue to provide Ukraine with the weapons they need
-我们必须继续向乌克兰提供他们需要的武器
+此外，美国财政部长珍妮特‧耶伦（Janet Yellen）在出席国会众议院金融服务委员会作证时告诉议员们，如果中共对台湾采取侵略性行动，拜登政府将准备对中共使用所有制裁工具。
 
-because they need to continue the fight
-因为他们需要继续战斗
+她说，“我认为，你们不应该怀疑我们在其它情况下会采取同样做法的能力和决心。”
 
-And we have to get all the details
-我们必须得到所有的细节
+参考链接：
+[https://www.epochtimes.com/gb/22/4/6/n13700434.htm](https://www.epochtimes.com/gb/22/4/6/n13700434.htm)
 
-So this to be an actual have a war crime trial
-所以这是一场真正的战争罪审判
-
-this guys is brutal, what’s happening to Bucha is outrageous
-这家伙太残忍了，在布查所发生的事情太离谱了
-
-and everyone’s seen it
-而且每个人都看到了
-
-No, I think it is a war crime
-不，我认为这是战争罪
-
-Question
-问题
-
-Sir, You want more sanctions on Russia?
-先生，您想对俄罗斯实施更多制裁吗？
-
-Joe Biden
-乔·拜登
-
-I’m thinking more sanctions
-我正在考虑更多的制裁
-
-Yes, I’ll have time I have to
-是的，我有时间我必须
-
-He should be held accountable
-他应该被追究责任
-
-No, the war crime stop
-不，停止战争罪行
-
-yes, I’m going to continue to add sanctions
-是的，我将继续增加制裁
-
-Thank you
-谢谢
-
-I’ll let you know
-我会让大家知道的
-
-原视频链接:[https://twitter.com/bnonews/status/1510992649615990787?s=24](https://twitter.com/bnonews/status/1510992649615990787?s=24)
-
-Date:04/05/2022
-原视频标题: BREAKING: Biden says killings in Bucha are “outrageous,” calls for war crimes trial against Putin
-突发：拜登说在布查的杀戮是“令人发指的”，呼吁对普京进行战争罪审判
-原视频日期：2022/04/04
-原视频链接https://twitter.com/bnonews/status/1510992649615990787?s=24
-任务编号：KE471（4175）
-视频时间段 : 0:00-1:09
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -文新
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+总编：青城道姑
+校对发布：爱放飞
 
  
 

@@ -2,32 +2,31 @@
 ---
 
 
-## 日本多党派议员参加《慎用儿童疫苗接种研讨会》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2300219/)
+## 两个孩子“遭受酷刑死亡”&#8230;追查战争罪行的乌克兰和欧盟调查小组(1/2)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2300376/)
 
-撰稿：东京樱花团/立正道
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月5日,日本民间团体组织多位参众国会议员，举办了“慎重考虑儿童接种疫苗学习会”，旨在多方面多角度探讨有关儿童疫苗接种的利弊。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-13.jpg) [图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcdn-japantimes.com%2Fwp-content%2Fuploads%2F2022%2F02%2Fnp_file_143681.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.japantimes.co.jp%2Fnews%2F2022%2F02%2F26%2Fnational%2Fchildren-vaccinations-begin%2F&amp;tbnid=wwaYti-)
-4月5日,日本民间团体组织多位参众国会议员，举办了以新冠病毒疫苗儿童接种的效果和副作用信息收集分享为目的的“慎重考虑儿童接种疫苗学习会”。
+翻译：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-3.jpg)
+在俄军刚刚撤离的乌克兰首都基乌近郊布查发现多具平民遗体的问题上，基乌周边和东部斯穆伊州等其他地区也接连传来了平民死伤的消息。为追究“战争罪行”的责任，乌克兰政府和欧盟(EU)4月4日达成协议，组建联合调查团队。
 
-该会由松田学元众议院议员和大阪市立大学的井上正康名誉教授(分子病态学、医学博士)共同发起于3月成立。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-635.png)图片来源：雅虎新闻
 
-该会建群设立意向是,关于预防新冠病毒感染所使用的信使RNA(mRNA)疫苗的儿童接种,必须“基于医学、科学知识,简单易懂地传达有关风险和益处的充分说明,让孩子和监护人能够在充分理解后进行接种或不接种”。
+乌克兰最高会议(国会)人权监察员4月5日表明，基乌近郊伊尔平也于2日确认两名不满10岁的儿童遭受性侵以及酷刑而死亡。
 
-该会作为跨党派国会议员联盟,将继续从多方面多角度探讨有关儿童疫苗接种的利弊。
+除此之外，在曾被俄军当做据点的基乌省营地设施中，有5人的遗体双手被反绑在身后，其中4人后脑勺被枪击，最后一人头盖骨被掀起。东部斯穆伊省也在俄军驻地周围发现了三具在遭受酷刑后遇害的平民遗体。
 
-信息来源：[子供へのワクチン接種を考える勉強会　与野党議員が出席](https://www.sankei.com/article/20220405-2QKXXJH6DZKMZOX6GRHHQFXLQE/)
+乌克兰总统沃洛迪米尔·泽连斯基在5日的视频讲话中说，仅在布查被俄军杀害和拷问的公民就超过300人，同样在基乌近郊约1万2000人口的博洛迪扬卡“受害者人数可能更多”。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+下一篇：[两个孩子“遭受酷刑死亡”…追查战争罪行的乌克兰和欧盟调查小组(1/2)](https://gnews.org/zh-hans/2300412/)
 
+参考链接：[子ども２人「拷問受けて死亡」…戦争犯罪追及へウクライナとＥＵが捜査チーム（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/5176a0937b691064dbf26aa4dbc2ed4f94fb1157)
+
+* * *
+
+审核：Bryan
+校对：天天
+发稿：宫米叶
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

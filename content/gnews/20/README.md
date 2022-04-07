@@ -2,76 +2,41 @@
 ---
 
 
-## 2022年4月6日文贵大直播摘要及音频—银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2301073/)
+## 美国联邦调查局表示捣毁了俄罗斯黑客行动
+` 蓝莲花农场` [轉載自GNews](https://gnews.org/zh-hans/2301086/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220406_副本.png)
-视频连接：[2022年4月6日 文贵大直播：上海疫情老百姓遭殃；马斯克入股推特暴涨；新歌打榜及人工智能；《商君书》之 连坐与告密](https://gettr.com/streaming/p13unl27254)
+翻译：冰糖葫芦喵
 
-（一）前线报道：
+编辑：冰糖葫芦喵、灭共文明
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
+《路透社》华盛顿4月6日报道，**周三，美国联邦调查局表示，劫持了俄罗斯间谍用来与路由器和防火墙进行通信的基础设施，从俄罗斯军方黑客手中夺取了数千台路由器和防火墙设备的控制权。**
 
-（1）从乌克兰逃出来台湾同胞，在前线做非战友义工（负责翻译工作），之后慢慢对新中国联邦有一定了解，加入新中国联邦；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/118954407_putin.png.jpg)图片来源：BBC NEWS。
 
-（2）这几天乌克兰逃出来的难民很多，回乌克兰的难民也很多，都在赶路，没有做停留；
+据报道，**一份未公开的、经过修改的宣誓书称，这一不寻常的行动是一种先发制人的行动，目的是阻止俄罗斯黑客将被入侵的设备转移到一个“僵尸网络”中**。“僵尸网络”是一个被黑客入侵的计算机组成的网络，可以用恶意流量攻击其他服务器。
 
-（3）严肃媒体前线报道是有立场的（非中立），自由媒体更真实；
+美国司法部长梅里克·加兰德说，很幸运，**我们能够在这个僵尸网络被使用之前摧毁它。**美国联邦调查局局长克里斯·雷对记者说，**联邦调查局在获得法庭批准后，秘密侵入数千个路由器和防火墙设备，删除恶意软件并重新配置设备**。
 
-（4）前线救援黄马甲表明你是“反对共产党的中国人”，可以预防排华；
+雷说:“我们从全世界数千家用于网络安全的设备上移除恶意软件，其中大多数是小企业。”“我们关上了俄国人用来进入它们的门。”
 
-（5）联盟未来每个农场都会培养救援义工；
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8b30068ebcf24a2491aa75cc1df26b0a.jpg)图片来源：网络摄图。
 
-（二）4月5日中共国新增本土病例1383例，其中吉林973例，上海311例，上海新增无症状感染者16766例；
+报道称，**被攻击的僵尸网络是通过名为“独眼巨人眨眼”(Cyclops Blink)的恶意软件控制的，**美国和英国的网络防御机构曾在2月下旬公开将这种恶意软件归因于“沙虫”(Sandworm)，据称**是俄罗斯军事情报部门的黑客团队之一**，该团队多次被指控实施网络攻击。
 
-（三）4月5日起，来自中共军方及15个省份逾4万名医护人员抵达上海；
+根据私营网络安全公司的研究，“**独眼巨人眨眼”是被用来设计劫持沃奇卫士**（WatchGuard Technologies Inc .）**和华硕电脑公司生产的设备。**它为俄罗斯提供了访问这些受损系统的权限，**提供了远程过滤或删除数据的能力**，或将设备针对第三方。
 
-（四）4月4日上海启动严厉的全员核酸，要求“不漏一户，不落一人”截止4月5日，共采样2566.5万人，数量之大空前绝后；
+沃奇卫士发布了一份声明，证实它与美国司法部合作破坏了僵尸网络；华硕没有立即回复记者的置评请求。
 
-（五）长春进入特级全城管控，每24小时进行一轮全员核酸，阳性即时转运集中隔离，民众求助被禁声；
+新闻来源链接：
 
-（六）马斯克成为推特第一大股东，马斯克将会对推特的言论自由做出重大改进，使用大数据，AI技术，星链扩展商业布局，推特的变革即将到来；
+[Exclusive: China state refiners shun new Russian oil trades | Reuters](https://www.reuters.com/business/energy/exclusive-china-state-refiners-shun-new-russian-oil-trades-teapots-fly-under-2022-04-06/)
 
-（七）G-TV核心：
-
-1）中国人唯一可以真正自由发生平台；
-
-2）将成为世界的信息交易市场；
-
-3）任何有价值的信息可以NFT化；
-
-（八）盖特核心：
-
-1）不通过出卖用户数据获取广告收益的社交媒体平台；
-
-2）与未来金融结合在一起，联通法币和数学货车，构建个体零距离社交的通道；
-
-（九）GNEWS核心：1倚靠强大的搜索功能，AI技术2世界的信息交易市场3全世界精英的智库型大平台；
-
-（十）前线将士若打败仗或者投降，后方的亲属跟着受处罚，这就是连坐；
-
-（十一）中共用连坐迫害郭文贵先生，将其家人，员工拘禁，并酷刑折磨，郭先生的母亲被迫害折磨至死；
-
-**注：大直播音频——**
-
-编辑整理：文俊；
-
-发布：黎明之前；
-
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](https://gettr.com/user/ukrainerescue)
+[郭文贵先生Gettr](https://gettr.com/user/miles)
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWSLOGO1-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

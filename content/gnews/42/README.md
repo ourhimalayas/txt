@@ -2,19 +2,36 @@
 ---
 
 
-## 文贵大直播|中共红旗反导弹系统对北约的空中威胁
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2299924/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月6日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2300279/)
 
-撰稿：东京樱花团/瓜子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-07_000413.png)
-红旗导弹是中共唯一配备北斗导航系统的现役武器，东风15、东风51和东风51DE都未配有该导航系统。红旗导弹是中共出口型武器，首先出口至土耳其试用。出口至巴尔干地区时，开始试用北斗导航系统。这次在塞尔维亚部署红旗导弹后，中共还会在所有中东国家，包括巴尔干地区，以及中东周边小国都会部署红旗系统。目前在沙特已部署56个排组、在伊朗部署50多组，其次会在也门、伊朗、沙特，甚至在突尼斯、吉布提部署，对美国的飞机构成绝对威胁。红旗导弹是肩扛式连发式武器，相当于大号的的美国毒刺导弹，是中共窃取美国技术研发的联排发射、电子琴式、群发式毒刺导弹系统，成本低廉，精确制导。习近平会很快宣布与北朝鲜、俄罗斯、叙利亚结盟，直接针对美国，而伊朗有可能与美国和谈。整个世界在军事通讯、地区战略和军事版局方面均面临中共的挑战。红旗导弹系统的部署对欧美构成巨大威胁，欧美不会等闲视之，必定会将中共的北斗导航系统打掉，习大帝已无回头路可走。
+作者：香草山翻译部
 
-消息来源：
-[2022年4月3日《文贵大直播》](https://www.gettr.com/streaming/p13c6fub6b6)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
 
-编辑：东京樱花团/曲别针
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-5.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.06早 《NFSC新闻》](https://www.gettr.com/streaming/p13v55s0002)
+[2022.04.06早《NFSC新闻访谈》](https://www.gettr.com/streaming/p13uveb7b88)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-6-e1649220774394.jpeg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-8.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
