@@ -2,26 +2,36 @@
 ---
 
 
-## 俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2304749/)
+## 德国议会否决中共病毒疫苗强制接种法案
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304845/)
 
-**港台前线 zhong｜2022-4-7**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院6日“一致性”通过了“2022年乌克兰民主防卫租借法案”（The Ukraine Democracy Defense Lend-Lease Act of 2022），旨在简化程序、降低官僚主义影响，加快向乌克兰提供关键军援、补给，协助抵御普京无端的袭击。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-23.03.59.png)
+4月7日周四，德国柏林议会否决了一项法案的草案，该草案规定自60岁起强制公民接种中共病毒疫苗。
 
-参议院多数党领袖查克．舒默（Chuck Schumer ）于会议称，在布查镇的屠杀是“纯粹的邪恶、俄军在乌克兰进行种族灭绝”。此外，他明确表示普京杀害无辜的平民是种族灭绝罪行。
+德国卫生部长此前还在坚持为18岁以上的成年人推行严格的中共病毒疫苗接种计划，但一直未获得足够的支持。为此在周四议会上他提出了为60岁以上的公民强制接种中共病毒疫苗的草案，尽管它要求60岁以下的成年人在接种疫苗前咨询医生，但该法案仍未通过。据悉共有683人投票，378人否决，296人支持。
 
-美国参议院“一致性”通过租借法案的意义非凡，但仍须经过众议院决议通过后，总统签署、发布后生效。
+德卫生部长为了推行中共病毒疫苗，到处散播谎言和恐慌，如秋季极有可能出现新的感染，可能会导致医疗系统崩溃，德卫生部长的这些作为被反对派指控。但该部长此前还宣布自5月1日起结束隔离政策。
 
-4月1日外媒采访德克萨斯州参议员约翰·科宁（John Cornyn），他大力推动“2022年乌克兰民主防卫租借法案”。他向媒体表示：“乌克兰军队证明了抗俄的勇气，努力得到国会两党的广泛支持，美国国会已批准大量对乌的军援，配合『租借法案』将减少程序障碍，确保及时向乌克兰运送武器、物资及其他必需品”。
+reference：
 
-来源｜[POLITICO](https://www.politico.com/news/2022/04/06/senate-unanimously-approves-lend-lease-00023668)
+[https://www.politico.eu/article/german-parliament-rejects-mandatory-coronavirus-vaccination/](https://www.politico.eu/article/german-parliament-rejects-mandatory-coronavirus-vaccination/)
+
+撰稿、发布：骄子
 
 * * *
 
-▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,40 +2,35 @@
 ---
 
 
-## 俄乌战争因为北约不遵守“不东扩”的承诺？
-` DC政经` [轉載自GNews](https://gnews.org/zh-hans/2304692/)
+## CDC疾控中心主任宣布对该机构进行全面审查
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2304767/)
 
-**撰稿：Chloe蔻依**
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/04/210623003752-us-coronavirus-wednesday-0623-exlarge-169.jpg)图片来源：CNN
+CNN 4月4日报道了美国疾病控制和预防中心主任Rochelle Walensky博士周一宣布对美国主要公共卫生机构进行全面审查。
 
-中共在国内宣传说俄乌战争起因在于北约不遵守“不东扩”的承诺。 事实果真如此吗？
+Walensky通过电子邮件告诉CDC所有工作人员，这次审查将评估CDC的结构、系统和流程。
 
-北约确实承诺过不东扩，目的是换取苏联同意统一后的德国留在北约。 这个承诺是1990年2月2日德国外长根舍尔和美国国务卿贝克会面时做出的。彼时两人都计划一周后访问莫斯科，所以确保美德立场一致非常重要。 当时的会议记录记载：“根舍尔确认一个统一的德国保持中立不可能，新的德国将留在北约，因为北约是一个新欧洲的重要组成部分。谈到这点时，根舍尔重申需要向苏联人保证，北约不会将其领土覆盖范围扩大到东德地区，也不会扩大到东欧其他地方（他在会后向媒体说明了这一点）”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/594512b7758f5cef.jpeg)
-一周后的2月9日上午贝克与俄罗斯外长谢瓦尔德纳泽的会谈中提到了将统一后的德国留在北约中的重要性，否则德国无疑将获得自己独立的核打击能力；如果统一后的德国是北约的一部分，那北约管辖权或部队不会向东移动这个保证将坚如磐石。
+从4月11日开始，美国卫生与公众服务部的一名行政管理人员Jim Macrae将加入CDC，进行为期一个月的询问听取意见和评估。Walensky说，Macrae将向她提供关于在该机构将更多的Covid-19应对活动转移分散到其各个中心、研究所和办公室，并进一步加强该机构的科学和项目交付的见解。
 
-从美德两国外长的会议记录，及美俄两国外长的交谈中可以确认当时北约不东扩的承诺是为了换取戈尔巴乔夫同意将统一后的德国留在北约，因此这个口头协议是苏联与北约之间的合约。
+Walensky还要求三位高级领导人收集对该机构的反馈意见，包括其目前的结构和改革建议。
 
-但不久之后苏联解体。1991年12月8日，在没有通知戈尔巴乔夫总统的情况下，叶利钦（俄罗斯联邦）、克拉夫楚克（乌克兰）和舒什科维奇（白俄罗斯）在白俄罗斯维斯库利政府官邸内签署了《关于建立独立国家联合体的协议》，宣布“苏联作为国际法主体和地缘政治实体已经终止存在”。 1991年12月25日戈尔巴乔夫辞职，次日苏联最高苏维埃通过决议宣佈苏联不复存在。
+Walensky写道：”在这项收集工作得到结论时，我们将制定新的系统和程序，向美国人民提供我们的科学和计划，同时制定CDC应该如何构建的计划，以促进我们的公共卫生工作”。
 
-既然苏联解体了，那俄罗斯能否继承苏联与北约之间的合约？ 答案是否定的。根据关于国际条约的1978年维也纳公约第17条：新独立的国家必须需要所有缔约方的同意后发出承继通知，确立其继承所涉领土有效的任何多边条约缔约国的地位。 这两条俄罗斯都没有做：既没有取得北约所有国家的同意，也没有发出承继通知，因此俄罗斯不能继承苏联与北约之间的合约，包括这个“北约不东扩”的口头协议。
+疾病预防控制中心在一份声明中说，在过去的一年里， “在整个大流行病应对过程中努力加快了数据报告和科学进程，这些工作方法需要制度化和正规化，并找到新的方法使该机构的结构适应环境变化”。
 
-所以俄罗斯以北约违反“不东扩”的承诺为由出兵乌克兰没有法理依据，中共将俄乌战争归咎于北约也毫无道理。
+Walensky在声明中说：”在其75年的历史中，CDC从来没有像这样根据有限的、实时的和不断变化的科学来做出如此迅速的决定。COVID-19大流行为整个HHS提供了审查当前组织结构、系统和流程的机会，CDC正在努力对该机构进行战略定位和现代化改造，以促进和支持公共卫生的未来。当我们向各州和地方合作伙伴提出挑战时，我们知道现在是CDC将学到的教训整合到未来战略的时候了”。
 
-（感谢三票先生的指点，感谢DC战友洋葱头参与资料搜集）
+“这项工作将使CDC能够开发新的系统和流程，向美国人民提供科学和项目活动，并热切关注该机构的核心能力——公共卫生队伍、数据现代化、实验室能力、健康平等、对疾病爆发的快速反应，以及在美国和世界各地的准备工作。”
 
-参考链接：
+评：最重要的数据真实性和透明性应该在审查和改善范围内。
 
-1. [https://weibo.com/ttarticle/p/show?id=2309404753522335023692](https://weibo.com/ttarticle/p/show?id=2309404753522335023692)
-2. [http://www.china.com.cn/opinion/2022-02/23/content\_78065770.html](http://www.china.com.cn/opinion/2022-02/23/content_78065770.html)
-3. [http://www.sscnet.ucla.edu/polisci/faculty/trachtenberg/cv/19900203seitz.pdf](http://www.sscnet.ucla.edu/polisci/faculty/trachtenberg/cv/19900203seitz.pdf)
-4. [https://direct.mit.edu/isec/article-abstract/45/3/162/95270/The-United-States-and-the-NATO-Non-extension?redirectedFrom=PDF](https://direct.mit.edu/isec/article-abstract/45/3/162/95270/The-United-States-and-the-NATO-Non-extension?redirectedFrom=PDF)
-5. [https://nsarchive.gwu.edu/briefing-book/russia-programs/2017-12-12/nato-expansion-what-gorbachev-heard-western-leaders-early](https://nsarchive.gwu.edu/briefing-book/russia-programs/2017-12-12/nato-expansion-what-gorbachev-heard-western-leaders-early)
-6. [https://news.gmw.cn/2022-02/26/content\_35546740.htm](https://news.gmw.cn/2022-02/26/content_35546740.htm)
-7. [https://zh.wikipedia.org/wiki/%E8%8B%8F%E8%81%94%E8%A7%A3%E4%BD%93](https://zh.wikipedia.org/wiki/%E8%8B%8F%E8%81%94%E8%A7%A3%E4%BD%93)
-8. [https://legal.un.org/ilc/texts/instruments/english/conventions/3\_2\_1978.pdf](https://legal.un.org/ilc/texts/instruments/english/conventions/3_2_1978.pdf)
+原文链接：
+[https://www.cnn.com/2022/04/04/health/cdc-review/index.html](https://www.cnn.com/2022/04/04/health/cdc-review/index.html)
+
+编辑，发稿 Spirit
 
 
-发布：小蜜蜂
 
  
 
