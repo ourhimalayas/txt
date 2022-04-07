@@ -2,41 +2,28 @@
 ---
 
 
-## 伊万卡在众议院1月6日委员会作证
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2301102/)
+## 樱花时政┃日本8日起解除106个国家的入境禁令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301131/)
 
-编译：圣地香港
+撰稿：东京樱花团/立正道
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-3.jpg)
+日本政府于6日晚召开了国家安全保障会议的紧急状况大臣会议，决定解封美国、英国、法国、欧洲、亚洲等106个国家的针对中共病毒（新冠病毒Covid-19）感染而制定的入境措施。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-99.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpgw.udn.com.tw%2Fgw%2Fphoto.php%3Fu%3Dhttps%3A%2F%2Fuc.udn.com.tw%2Fphoto%2F2022%2F04%2F06%2Frealtime%2F16542178.jpg%26s%3DY%26x%3D0%26y%3D0%26sw%3D1280%26sh%3D853%26exp%3D3600&amp;imgrefurl=https%3A%2F%2Fudn.com%2Fnews%2Fstory%2F121707%2F6219794&amp;tbnid=_RysVVwD6SflbM&amp;vet=12ahUKEwi5sqyd04D3AhUo1eAKHXY_BhAQMygAegUIARCEAQ..i&amp;docid=Xx66QAPe0i41rM&amp;w=1280&amp;h=853&amp;itg=1&amp;q=%E8%A7%A3%E9%99%A4%E5%85%A5%E5%A2%83%E6%8E%AA%E6%96%BD%20%E6%97%A5%E6%9C%AC&amp;ved=2ahUKEwi5sqyd04D3AhUo1eAKHXY_BhAQMygAegUIARCEAQ)
+综合判断对象国家的感染状况和疫苗接种情况等，解除对象是
 
-美国前总统川普的女儿、前白宫高级顾问伊万卡·川普（Ivanka Trump）周二在众议院特别委员会作证，参议院了 1 月 6 日袭击事件调查。
+▽北美的美国和加拿大,
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-662.png)Jared Kushner 和 Ivanka Trump 于 2021 年 10 月 11 日在耶路撒冷。照片：Getty Images
+▽欧洲的英国、法国、德国、意大利。
 
-重点是，这位前第一女儿是川普核心圈子中为数不多的成员之一，她1月6日也身处椭圆办公室，并且详细了解了川普当天的行为。
+另一方面，拒绝入境的措施持续的是俄罗斯、伊拉克、埃塞俄比亚等56个国家和地区。
 
-● 她的丈夫贾里德·库什纳（Jared Kushner）也是前白宫高级顾问，上周在专家组作证了六个小时。
-● 白宫上周表示，他们不会对库什纳或伊万卡·川普向委员会的证词主张行政特权。
+消息来源：
 
-谈论内容是什么：小组主席众议员本尼·汤普森告诉记者，会议于周二早上开始，截至美国东部时间下午3点“仍在继续”。
+[米英仏など106か国の入国拒否を解除 8日から（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/fdfe363559d86ecf9f5eded608965f3dc47a1611)
 
-● 汤普森说，“她在回答问题，虽然回答并不宽泛、健谈，但她确实正在回答问题。”
-● 汤普森补充说，他不知道有任何情况下她请求第五修正案或声称有权拒绝回答问题。
-
-素材链接：[Ivanka Trump testifies before Jan. 6 committee](https://www.axios.com/ivanka-trump-jan-6-testimony-e22b9c69-acf3-4959-8c65-c9c9114ee5f4.html)
-
-* * *
-
-审核：文乐
-校对：小东
-发布：花羽
-
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

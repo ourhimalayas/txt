@@ -2,28 +2,31 @@
 ---
 
 
-## 疫苗护照导致货运卡车司机严重短缺
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301288/)
+## 有声|中共特务郑介甫遭澳洲政府遣返
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301371/)
 
-采编：加拿大温哥华扬帆农场 – 文莱
+录音： 香草山视频部-Gtv abeilles（蜜蜂）
 
-编译撰稿：加拿大温哥华扬帆农场 – 自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-据媒体《真北方》4月4日报道，加拿大畜牧业领导人警告称，因特鲁多政府的跨境疫苗护照要求，明年卡车司机会加倍短缺。而可能即将实施的跨省疫苗政策则更将是灾难性的。
+近日，澳大利亚政府将澳洲公民郑介甫驱逐出境。据澳媒报道郑介甫在澳大利亚经营房地产开发，实则为中共政府工作，涉嫌干涉澳国内政与国家安全。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-665.png)图片来源：真北方
+早在2015年，郑介甫就在澳洲媒体对郭先生进行抹黑，谎称自己的公司被郭先生和马建副部长侵占，并暗指自己的人身安全受到威胁是郭先生所为。中共喉舌财新也配合发布同样的诬告内容箭指郭先生。
 
+郭先生在2017年5月9日直播中对此事进行了阐述，郑介甫因其国内公司与郭先生产生矛盾，但其实根本与郭先生无关，全因经手人是曲龙想侵吞资产，郭先生和这个郑介甫根本不存在任何法律关系。这是一起诬告案，从他们和中共财新不约而同对郭先生的污蔑，不难看出这一切都是共产党在背后操纵。
 
-报道指出，加拿大畜牧业供应链正面临着如何确保饲料供应，以及肉类产品在购销环节中的顺利流通。而强制性的跨境和跨省疫苗护照政策，将使卡车司机短缺现象更为严重。
+文字版原文：[中共特务郑介甫遭澳洲政府遣返](https://gnews.org/zh-hans/2296741/)
 
-据悉，由于此前劳工部长奥雷根和自由党内阁成员的极力反对，联邦政府未能取消“要求卡车司机跨省运输时必须出示疫苗接种证明”的提案。
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
 
-校对编辑：硫酸羟氯喹64
+音频处理/发稿：Daxia
 
-发稿：青青
+**更多资讯，更多关注**
 
-原文链接： [https://tnc.news/2022/04/04/trucker-shortage-to-triple-by-next-year-national-cattle-feeders-association/](https://tnc.news/2022/04/04/trucker-shortage-to-triple-by-next-year-national-cattle-feeders-association/)
-
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

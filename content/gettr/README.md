@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 1:48 AM (UTC)`
+
+4/6/2022  Ukraine Rescue: Besides rescuing refugees, citizens of the New Federal State of China on the front line of the Ukraine rescue operation are also spreading the truth to the local Chinese. Every fellow fighter on the front is a seeder of our Whistleblowers’ Movement, and is bringing the influence of the New Federal State of China to the Chinese around the world<br/><br/>4/6/2022  乌克兰救援连线: 新中国联邦人在乌克兰救援前线除了救助难民，也将真相传播给当地的华人，每一位战友都是爆料革命的播种机，都在将新中国联邦的影响力扩散到世界各地的华人<br/>
+![img](https://media.gettr.com/group29/getter/2022/04/07/01/cedfeead-bf14-9cf4-1f83-7554324a0661/out.jpg)
+
+---
+
 `@miles 4/7/2022 1:06 AM (UTC)`
 
 2022.04.06 晚  新中国联邦 | 新闻访谈   从夹边沟到大上海，铁蹄下的蝼蚁从未改变
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
  4月6号：跟着共产党走进火葬场……人间的地狱。长春……心痛啊，心痛啊！
 ![img](https://media.gettr.com/group42/getter/2022/04/06/12/4bd38e79-0a14-204b-5151-beb19fed5849/out.jpg)
-
----
-
-`@miles 4/6/2022 12:06 PM (UTC)`
-
- 4月6号：尊敬的战友们好！上海的灾难还远远没有到来……上海还有亲人朋友的……做好最坏的准备吧……
-![img](https://media.gettr.com/group23/getter/2022/04/06/12/bc863d24-f3ad-104d-a7fc-2ed4b1ab8c0d/out.jpg)
 
 ---
 
