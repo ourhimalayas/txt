@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 12:29 PM (UTC)`
+
+2022.04.07 早 新中国联邦 | 新闻 新中国联邦国旗气球深受乌克兰儿童喜爱；郭先生谈综合认知能力的重要性
+![img](https://media.gettr.com/group36/origin/2022/04/07/12/d148a932-0bee-adee-525e-69a1b4dff10c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 12:06 PM (UTC)`
 
 04/07/2022 on the 4th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on 15 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 , Hungary 🇭🇺 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Macau, Singapore, Malaysia, Germany, New Zealand, Australia, Spain, Netherlands, Sweden, Philippines, Cambodia, Mongolia, Finland, Hungary， Laos🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2303480/
@@ -145,13 +152,6 @@
 
  4月6号：尊敬的战友们好，刚刚的开完庭．收到了很多战友的问候……七哥在这里衷心地，感谢所有兄弟姐妹们的关心，❤️❤️❤️❤️❤️❤️❤️七哥向你们报平安了！
 ![img](https://media.gettr.com/group35/getter/2022/04/06/21/12984f7a-ccb0-6ca8-1e2f-1458015c8c2e/out.jpg)
-
----
-
-`@miles 4/6/2022 8:44 PM (UTC)`
-
-2022.04.06  新中国联邦 | 喜健康   营养师分享的私房经/中共病毒的预防漫谈
-![img](https://media.gettr.com/group13/origin/2022/04/06/20/175cc026-e0ae-f1f1-6028-170c7b8dba04/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
