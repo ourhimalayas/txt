@@ -2,29 +2,26 @@
 ---
 
 
-## 大直播后记：新中国联邦黄马甲和战帽可救命
-` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2301923/)
+## 中日财经爆┃美国宣布制裁普京女儿和俄罗斯联邦储蓄银行
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301935/)
 
-整理： Lucy Liu、奮鬥
-编辑：新世纪
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-687.png)图片来源：雅典娜设计组
-「老班长」：我觉得，现在咱们这个团队，真的是渐入佳境，虽不完美但非常了不起。我分享个小故事：我们新西兰有个战友叫木子（音），因为语言原因，他的语言沟通能力不行，英文也不行，但她一直要求到前线工作，被我们拒绝了。所以，他两口子就报名参加了在华沙的难民营做义工。在前两天，我们有个义工在《有啥说啥》节目想跟她做个连线采访。已经向当地的管理组织报备了。由于没有黄马甲，她就穿着一个工作服在那里进行直播，结果马上两个军人进来把她押走。然后对她说：你永远不准进入这里。
+撰稿：东京樱花团｜peterwong
 
-当时，我了解清楚情况之后，发现是什么原因呢？就因为她是中国人，中国人在那个地方出现是很扎眼的。我后来给这个妹子讲,我说：这个情况，你是很危险的！首先，你的沟通能力不行，你没有向他们表明你是谁的时候。他看到中国人，就真的想揍你的！她真的有这个切身的感受。未来在世界各地的中国人，如果被人家误解成和共产党没什么区别的时候，那么，每个人都是很危险的。你只有表明你的黄马甲，那是救命的马甲啊！你知道吗，它不仅仅是赢得尊重，还赢得了你的安全。我们请问文耀谈谈这方面的感受，谢谢！
+![](https://lh3.googleusercontent.com/RqocxXRtqK4fBuYgX9gFvxR9m-pvvPU7EFLoqQMVKZoQWkXU0e0CNpFORKCG-MVXujxNVdAsoQoUVEaNCH2mb46K4VsBEKr8XbOoS_89mrhJ075Nxe6vK0QzEk1xwll6iZgdtnKP)[*图片来源*](https://media-proc.singtao.ca/photo.php?sqcrop=true&amp;s=https://media.singtao.ca/wp-content/uploads/master_sandbox/2022/04/2022040623294652377.jpg&amp;f=webp&amp;w=1200&amp;q=75&amp;h=672)
 
-「文耀」：实际上，我为这些战友都准备了黄马甲的，还准备了战帽！我希望有一天，当这个世界真的反华浪潮起来的时候，这些能够成为救助我们自己同胞的物品。当然，在那个时候，我们新中国联邦一定会再出手的。所以，这一次救援是所有战友参与的，同时也是对我们团队一个历练， 一个学习。世界反华浪潮是会到来的，所以，战友们一定要懂得，这个黄马甲和战帽是救命的东西！
+4月6日，美国宣布对俄总统普京的两个成年女儿实施制裁，以及俄罗斯大银行和金融机构。
 
-「老班长」：其实黄马甲也好，战帽也好，它只是一个象征。真正的，是因为有像你们这样的战友，真心真意，不计成本，不怕辛苦的在前线的奋斗，给大家挣来了这份荣耀和安全感！特别特别感谢你们！再次希望，你们也要保重好自己的身体，每天继续保持同我们沟通。
+俄罗斯对乌克兰的入侵已持续42天，迫使400多万人逃往海外，造成数千人丧生或受伤，乌四分之一的人口无家可归，很多城市变成一片废墟，几天前，乌克兰在从俄军手中夺回的基辅以北的布查市发现大量平民被近距离枪杀。
 
-资料來源：[2022.4.6文贵大直播](https://www.gettr.com/streaming/p13unl27254)
+美国新的制裁措施包括禁止美国人在俄罗斯投资。制裁将打击俄罗斯联邦储蓄银行（Sberbank），该行坐拥俄罗斯银行总资产的三分之一，俄第四大金融机构Alfaank也是打击目标，但新措施并未包括能源交易。
 
-发布：tianzhihuan
+英国也冻结了俄罗斯联邦储蓄银行的资产，并表示将在年底前禁止进口俄煤炭。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+消息来源：[**美国宣布制裁俄罗斯银行和普京女儿 乌克兰敦促西方果断对俄行动**](https://cn.reuters.com/article/usa-sanctions-russia-0406-wedn-wrapu-idCNKCS2LZ021?il=0)
 
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,24 @@
 ---
 
 
-## 乌克兰总统通报俄军对平民的大屠杀
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301981/)
+## 美国同意给台湾9千5百万美元加強爱国者导弹
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2302006/)
 
-采编撰稿： 加拿大温哥华扬帆农场 – 重生之鹰
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-102.jpg)
+图片来源：www.sohu.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-694.png)图片来源：ctv
+零对冲网4月6日报道，美国参谋长联席会议主席马克·米利周二告诉国会领袖“几个大国之间的国际间冲突的可能性现在明显增加，而不是减少”，美国已经同意向台湾出售9千5百万装备及训练台湾军队。
 
+由于来自北京的粗暴挑衅，这项新的出售主要是用以支持台湾爱国者导弹防御系统，该系统被看作是当台湾岛受到入侵时的关键防御系统。
 
-据加拿大【CTV新闻】4月5日的报道，乌克兰总统当天在联合国安理会上指控俄军在侵乌战争中对平民所犯下令人发指的暴行，并敦促应立即以战争罪将普京及所有罪犯送上纽伦堡国际法庭。
+五角大楼国防合作安全局（DSCA)证实了这个消息，此次销售的项目对于受威胁地区具有重要的威慑作用并加强本土防御功能，包括爱国者导弹系统的训练，计划，守备，部署，操作和维护以及相关的设备和后勤支持部件，还有地面支持设备和备件。
 
-泽伦斯基在视频中声称：平民不仅遭受酷刑，后脑中枪，被扔到井里活埋，在公寓里被手榴弹炸碎，在汽车里被坦克碾死，俄军还砍掉他们的四肢，割断他们的喉咙和舌头。妇女在她们的孩子面前被强暴和杀害。而所有与以上罪行相关的肇事者都必须得到严惩。
+台湾外交部感谢拜登政府的批准，台北强调这是对抗北京“继续军事扩张和挑衅”所必要的。
 
-报道指出，俄军在从基辅郊区撤出之前，在布查地区和其他城镇蓄意杀害平民的恐怖画面引起了全球的强烈愤慨和抗议，几乎所有舆论都要求俄军的暴行必须得到审判！
+美国太平洋舰队司令说：“毫无疑问，中共正在密切关注在乌克兰所发生的事，他们正在从中学习并总结。”
 
-校对编辑：硫酸羟氯喹64
-
-发稿：青青
-
-新闻来源：[https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471](https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471)
+#### 新闻来源： [US Approves $95 Million Patriot Missile Systems Boost For Taiwan](https://www.zerohedge.com/military/us-approves-95-million-patriot-missile-systems-boost-taiwan)
 
  
 

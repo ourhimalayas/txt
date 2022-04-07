@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 4:59 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group25/origin/2022/04/07/04/65111f0b-e313-61ef-7782-dad2ef7850e8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 3:21 AM (UTC)`
 
 4/6/2022 Ukraine Rescue: Fellow fighter Wenyao on why the number of refugees served by the big tent of the New Federal State of China is decreasing. The Western democracies are offering long-term relief programs such as immigration for Ukrainian refugees in Poland, while the evil CCP regime is doing nothing. This is because the CCP is the main culprit of this war.<br/><br/>4/6/2022 乌克兰救援连线：文耀战友分享为什么新中国联邦的大帐篷接待的难民人数在减少；西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首<br/>
@@ -147,15 +154,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 俄乌战争战况播报
 ![img](https://media.gettr.com/group27/origin/2022/04/06/17/eb1566fc-6675-720d-c130-dd7f41e21c24/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@mos_movie 4/6/2022 2:38 PM (UTC)`
-
-🌶️The Spiced有‘料’🌶️<br/><br/>乌克兰市长被俘 民众示威逼俄军撤退放人<br/>Ukrainian mayor captured, people protested to force Russian troops to retreat and release mayor<br/><br/>#俄罗斯 #乌克兰 #普京 #市长 #福米契夫 #被俘 #市民 #释放<br/><br/>#Russia #Ukraine #Putin #Mayor  #Mayor Fomichev #Release<br/><br/>📍乌克兰🇺🇦-俄罗斯🇷🇺
-![img](https://media.gettr.com/group50/getter/2022/04/06/14/c484106b-a063-cb3b-0f8e-351a4f141050/out.jpg)
 
 ---
 

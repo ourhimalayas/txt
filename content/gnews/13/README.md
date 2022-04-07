@@ -2,30 +2,33 @@
 ---
 
 
-## 樱花时政┃俄罗斯巨富 俄乌谈判人 阿布是谁？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302004/)
+## 前币安首席财务官以2亿美元收购菲律宾交易所Coins.ph
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302021/)
 
-撰稿：东京樱花团/上善若水
+#### 【雅典娜快讯】紧贴时代脉搏
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-700.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fcontent.api.news%2Fv3%2Fimages%2Fbin%2F377a0d2fc0423992637c9354633e6f15&amp;imgrefurl=https%3A%2F%2Fwww.news.com.au%2Fsport%2Ffootball%2Fshames-russian-oligarch-begging-celeb-friends-for-1m-handout%2Fnews-s)
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/32JX9ATCTH3S289783ULU7M7NJ9PZVY4SYEJEX65-606b111e.jpg)图片来源：www.kalibrr.com
+根据COINGEEK4月7日报道，一位前币安高管购买了东南亚最大的数字货币钱包和交易所之一。据当地报道，前币安首席财务官周炜以2亿美元收购了Coins.ph。
 
-罗曼.阿布拉莫维奇，俄罗斯与乌克兰之间隐藏在暗处的谈判者。谁是阿布？世界报说，他是俄的巨富新贵。
+Coins.ph始于2014年，最初是一个电子钱包，允许用户购买、出售和存储一些数字货币。从那时起，它已经扩展到其他服务，包括预付费移动充值、汇款和账单支付。
 
-2月23日，乌电影制片人罗德就找上了他。而罗德的儿子在乌总统泽连斯基那里当顾问。电影制片人罗德在1990 年代出品了当时还是演员的泽连斯基的电视节目。其中很多片子就是阿布出资，按照罗德的说法，所有的政治家和普京虚与委蛇，而阿布是可以把真实情报给普京的人，简单直接，至少阿布和普京讲话，可以开诚布公。
+这家初创公司于2019年1月被印度尼西亚按需多服务平台Gojek和数字支付decacorn收购，标志着该公司首次进军菲律宾。然而，Gojek此后与当地一家电子商务公司合并，现在专注于其本土印尼市场。
 
-乌克兰泽连斯基这边，他重申，和普京谈判，这是乌唯一的选择。在4月4日泽连斯基签署政令，调整了乌俄的谈判团队。在俄方这边，阿布成了谈判团队核心人物。
+据报道，周炜以2亿美元的价格收购Coins.ph，是Gojek两年前收购该公司的9500万美元的两倍多。
 
-当乌俄的谈判团队面对面开会时，阿布拉的作用是促进和谈，他要尽量保持不偏不倚，他是一个的调停者，当然也要考虑自己在各方的利益。罗德是在十多年前通过叶利钦一家认识阿布的。象阿布这种在叶利钦时代发财的人，他们的口碑比较普京时代好一些，更自由派一点，与克里姆林宫保持一定距离。
+币安是2021年尝试收购Coins.ph的公司之一，但这笔交易没有成功。赵长鹏领导的交易所已经收购了几个钱包和交易所，包括印度的WazirX。然而，就像其母公司一样，WazirX也面临着监管问题，包括被指控违反了印度的外汇法。
 
-阿布在叶利钦执政1997曾经以1亿美元购买俄西伯利亚石油公司。8年后在普京掌权的时代，以130亿美金卖给了俄政府，阿布情商极高，和普京关系融洽，政商关系游刃有余，俄政府在哪里有需要，他就出现在哪里。比方说，普京要他在一个偏远的贫困地区楚科奇自治区当区长，阿布当仁不让就当了。他以巨额投资来表达他对普京的忠诚。阿布想要在未来的乌重建中扮演角色。但是在这之前，他要先保住他能保下来的财富。
+资料来源：[Ex-Binance CFO snaps up Philippine exchange Coins.ph for $200M: report](https://coingeek.com/ex-binance-cfo-snaps-up-philippine-exchange-coins-ph-for-200m-report/)
 
-回到乌克兰和俄罗斯的谈判问题上，虽然说两边都在讲谈判是起作用的，谈得广泛深入，但是暂时谈不出什么结果来。因为当战场上，尤其是顿巴斯战场上的情况不明朗，当有人指控基辅周边布察发生罪恶行径，和平还遥遥不可及，那阿布的人生经验是，所有的谈判，无论是外交谈判还是商业谈判，都要从先发制人的较量开始。
+发布：tianzhihuan
 
-信息来源：[暗中的谈判人罗曼阿布拉莫维奇 ： 对普京很忠诚，为当演员的泽连斯基的影片出钱](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20220406-%E6%9A%97%E4%B8%AD%E7%9A%84%E8%B0%88%E5%88%A4%E4%BA%BA%E7%BD%97%E6%9B%BC%E9%98%BF%E5%B8%83%E6%8B%89%E8%8E%AB%E7%BB%B4%E5%A5%87-%E5%AF%B9%E6%99)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

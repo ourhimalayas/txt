@@ -2,24 +2,39 @@
 ---
 
 
-## 樱花时政┃乌军人在美受训使用弹簧刀无人攻击机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302082/)
+## 美国称中共若支持俄罗斯在乌克兰的战争可能面临制裁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302170/)
 
-整理编辑：东京樱花团｜上善若水
+#### 【雅典娜快讯】紧贴时代脉搏
 
-美国五角大楼4月6日表示，一批乌军人正在美国训练如何使用“弹簧刀”无人攻击机，这种无人机外号“神风特攻”，被视为坦克死敌。专家分析，“弹簧刀”是一种介于巡航导弹和无人攻击飞行器之间的智能武器，这种导弹可在目标区游荡一段时间以搜索目标，并在定位目标后收起双翼，变成一枚小型巡航导弹，与袭击目标同归于尽，被形容为“神风特攻”。
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/106848606-1614793668610-gettyimages-1231492611-senate_foreign327_030321.jpeg)图片来源：CNBC
+根据CNA4月7日报道，美国副国务卿温迪·谢尔曼（Wendy Sherman）周三（4月6日）表示，对俄罗斯因乌克兰战争而实施的制裁应该让中共“充分理解”如果向莫斯科提供物质支持可能面临的后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-698.png)[*图片来源*](https://s.rfi.fr/media/display/f6ad203a-b602-11ec-af1a-005056bfb2b6/w:1280/p:16x9/AP3913601466288461.jpg)
+谢尔曼说，美国盟友和合作伙伴针对俄罗斯总统弗拉基米尔·普京、该国经济和寡头协调的“一系列制裁”和出口管制，应该成为中共领导人习近平的榜样。
 
-一批乌军人早在2021年秋已进入美国，美军对他们进行培训，如何发射弹簧刀无人机。国防部匿名高官表示，这批乌克军人有十二人左右，很快重返乌克兰。美国防长奥斯汀出席国会听证会时表示，美国在乌境外帮助培训乌军人，旨在熟练掌握美国提供的武器。“他们中的一些人正在美国培训，”他证实说。
+谢尔曼在众议院外交事务委员会听证会上说：“我认为，这让习主席很好地理解，如果他以任何物质方式支持普京，他可能会遇到什么。”
 
-华盛顿还在周二宣布，将以标枪反坦克系统的形式向乌克兰提供多达1亿美元的额外军事援助，这些标枪已成为乌克兰士兵对抗俄罗斯军队的首选武器。
+北京应该从西方对乌克兰的协调反应中“吸取正确的教训”，即中共采取任何武力夺取民主管理的台湾岛的行动都是不可接受的。
 
-信息来源：[**乌克兰军人在美训练使用弹簧刀无人机**](https://www.bannedbook.org/bnews/headline/20220407/1715793.html)
+“我们希望中共明白，任何此类行动都会得到国际社会的回应，而不仅仅是美国。”谢尔曼表示。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+中共拒绝谴责俄罗斯在乌克兰的行动或称其为入侵，并批评西方对莫斯科的制裁，尽管一名中共高级外交官上周表示，北京并没有故意规避这些制裁。
+
+近年来，北京和莫斯科的关系日益密切，包括在2月份宣布建立“无限制”伙伴关系。
+
+美国总统乔拜登在3月份的视频通话中警告习近平，任何物质支持以帮助俄罗斯应对西方制裁或提供军事援助的“后果”。
+
+资料来源：[US says China could face sanctions if it supports Russia’s war in Ukraine](https://www.channelnewsasia.com/world/us-says-china-could-face-sanctions-if-it-supports-russias-war-ukraine-2612801)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
