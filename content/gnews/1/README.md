@@ -2,24 +2,13 @@
 ---
 
 
-## 樱花时政┃中共违反国际对俄制裁，用人民币购买俄国能源
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306028/)
+## 4月7日乌克兰救援行动（图片17-24）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2306100/)
 
-撰稿：东京樱花团/加一颗稻草
+设计 五月花农场 科存
+![](https://assets.gnews.org/wp-content/uploads/2022/04/F22C128A-34D0-4EA9-B393-9E1D461FFDCA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/31C4B970-4D75-4590-A058-3A9A664B6E20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E29F9423-48F6-4045-BBA6-1329140DF134.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9BF9BFEE-50D3-4EFA-BA7F-AF43D00CF853.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/25AA54C6-4828-4446-920A-3281C8637ACF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E09E9BD6-B20A-4A97-902A-3DCDBB956620.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E1C9D2E2-44B6-4A46-B44F-DEE9E918293F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6F658B72-F025-4997-9C4D-408A1CBD25A8-scaled.jpeg)
+发布： 水涨船高
 
-在国际社会针对俄罗斯入侵乌克兰展开严厉制裁之际，用人民币支付的俄罗斯的煤炭和石油开始源源不断地运往中共国。
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-3.jpg)图片来源于本文链接
-
-几家中共公司今年3月从俄罗斯购买了一批煤炭，预计第一批煤炭将在本月运抵中共国。这些交易过去一直都是通过美元进行的。美欧把俄罗斯银行剔除出SWIFT银行间信息系统之后，中共同意俄罗斯采用人民币进行采购活动。据消息来源，中共咨询公司汾渭能源信息服务公司说，中共国炼钢企业和发电厂使用的煤炭都是用人民币采购的。
-
-评论：中共唆使俄罗斯入侵乌克兰并提供支持，致使乌克兰饱受战争摧残。这种违反国际社会对俄罗斯制裁的行为应等同于战争罪，必将遭到国际社会的严厉制裁。中共挑战美元主导的全球贸易的地位，是预谋已久的计划。西方国家为惩罚俄罗斯入侵乌克兰而采取的制裁措施，正在加快中共的人民币国际化的进程。与此同时沙特阿拉伯正在与北京磋商是否可以用人民币给部分沙特原油产品定价。 中共在全世界投放病毒及强制疫苗摧毁世界经济，然后利用在自己世界工厂的影响力打败美元，是这个计划的目的，然而这只是中共所有计划中的一部分。中共伺机攻打台湾的邪恶目的已经引起国际社会重视。早在2017年郭文贵先生就警告世界，中共将要把世界拖入黑暗。
-
-消息来源：[中国违反国际对俄制裁，用人民币购买的俄国能源将运往中国](https://www.voachinese.com/a/russian-coal-and-oil-paid-with-renminbi-heading-to-china-20220407/6519086.html)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

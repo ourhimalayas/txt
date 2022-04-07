@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|泽连斯基痛斥俄罗斯掩盖布查大屠杀真相
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305921/)
+## 上海疫情的本质是疫苗灾难和政治斗争
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2305928/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+作者: 纽约香草山媒体部  文扬四海
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-769.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
 
-外媒报道，乌克兰总统泽连斯基4月4日出发前往俄军屠杀平民事件的发生地，布查镇了解情况，并痛斥俄罗斯使用与马航17号班机空难事件同样的伎俩，掩盖战争罪行。
+上海疫情实际就是疫苗灾难!真实情况远比国内网络爆光的更严重。很多人死去，中共使用气化炉就地焚烧尸体，堪比人间地狱。目前的隔离和封城就是为五月份的疫苗灾难大爆发时做全民总动员准备。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6F1F8F57-D5C9-4930-B61C-A7C02156A202.jpeg)
+作为上海帮的大本营，上海此时不可避免地成为了党内斗争的牺牲品。一些地方组织了物资支援上海，却因此惹怒了中央，说谁让给上海送米送菜的。习近平为了打击政治对手已不顾百姓死活。这就能理解为何很多外地援助的菜无法顺利送达到上海市民手中了。目前国内各媒体平台也都能看到曝光上海政府在此次疫情中的各种管理问题的文章和视频，看来也是因内斗需要而有意为之。在上海疫情和管控愈加严峻的形势下，上海帮将会如何反击呢?
 
-泽连斯基表示，普京政府对俄罗斯侵略军屠杀乌克兰平民事件进行了虚假的宣传行动，他们通过数十次采访并重新剪辑影片，让被俄军屠杀的民众看起来是被别人所杀害。而这种行径，俄罗斯过去曾在乌东顿巴斯地区击落马航班机时使用过，并将责任推给乌克兰。俄罗斯还制造各种阴谋论，竟然诬陷乌克兰方面事先将尸体放在飞机上，然后自导自演让飞机坠毁。
+郭先生在4月5日盖特视频最后提到了内部斩首和政治运动，耐人寻味。习敢在全国推行毒疫苗，是因为他迷之自信即使死很多人，也能控制局势。甚至还能借此铲除异己。可是真正生死存亡之际，到底谁是谁的人呢?七哥多次说习身边无人可用，并断言习活不过2022年。习总加速师正在死亡之路狂奔!
 
-文字版原文：[泽连斯基痛斥俄罗斯掩盖布查大屠杀真相](https://gnews.org/zh-hans/2302045/)
+参考資料：
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+1. [https://gettr.com/post/p13im5827c4](https://gettr.com/post/p13im5827c4)
+2. [https://gettr.com/post/p13o3f02b76](https://gettr.com/post/p13o3f02b76)
 
-音频处理/发稿：Daxia
 
 **更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-771.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
