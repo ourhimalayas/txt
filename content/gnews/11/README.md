@@ -2,28 +2,37 @@
 ---
 
 
-## 花旗银行暂停其SPAC业务
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305665/)
+## 有声|澳大利亚加速军购应对中共侵台计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305702/)
 
-作者：骄子
+配音：香草山农场 – 信念7
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间4月5日，据相关媒体报道，澳大利亚国防部部长当天表示，由于俄罗斯目前对乌克兰的侵略战争，以及中共可能较预计时间更早的侵略台湾行动，澳大利亚决定将原有的军备采购计划提前，并加速完成该国军队现代化的更新，用以应对中共和俄罗斯对世界的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%88%AA%E5%B1%8F2022-04-06-%E4%B8%8A%E5%8D%889.11.24.png)
+报道提及，澳大利亚早先认为，中共的侵台行动大约会发生在2040年，但当前的俄乌战争以及中共对其的态度引起了澳洲政府的警惕。加之索罗门群岛近日发出了有意与中共签署安全条约的表态，为此，澳大利亚与包括新西兰和美国在内的区域周边国家纷纷对此作出了高度警戒：整个西太平洋的合作伙伴都担心中共会借机在该区域布署军队，并以此威胁地区的和平与稳定。
 
-据相关媒体4月5日报道，在美国证券交易委员会SEC提出了新的规定后，花旗银行随即宣布暂停其SPAC业务。
+据悉，澳大利亚政府计划将耗资35亿元澳币，用以加速改善其军队的战机和军舰武器。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6-3.jpeg)
 
-资料显示，SPAC公司是美国金融市场特有的一种金融工具，又被称为空壳公司。此类公司可以帮助初创公司在短时间内获得巨量融资并上市，因此，其对真正想要创业的公司来说益处颇丰。然而，SPAC公司的风险也是巨大的：它们很容易被洗钱集团操控。例如，中共特务吴征的壳公司DWAC早先通过与美国前总统川普的“真相社交”媒体平台合并上市，骗取了大量川普支持者的资金。
 
-据悉，花旗银行在2021年的SPAC业务额高达220亿美元，占据了市场份额的14%，位列全球首位。其后，花旗与美国某电动汽车制造商的交易引发了美国SEC的调查，这也导致了花旗的SPAC业务在去年年底开始下跌。
+文字版原文：[澳大利亚加速军购应对中共侵台计划](https://gnews.org/zh-hans/2299109/)
 
-有分析人士认为，花旗银行此次宣布暂停SPAC业务的做法可能会引起其他银行的效仿。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-参考链接：[Citi hands SEC a SPAC victory](https://www.reuters.com/breakingviews/citi-hands-sec-spac-victory-2022-04-05/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-总编/审核：Irene木木
-编辑：宁文静
-校正/发稿：谐趣园
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

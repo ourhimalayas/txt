@@ -2,36 +2,48 @@
 ---
 
 
-## DC每日热点0407
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2305745/)
+## 战友日常系列-最强支付Hpay
+` MOS Designer香草山设计部` [轉載自GNews](https://gnews.org/zh-hans/2305840/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2022/04/04832AF0-71B3-41AB-BB74-BDFD730EB4B5-scaled.jpeg)
-道琼斯指数 34241.89 ▼0.47%
-纳斯达克指数 13877.52 ▼0.08%
-WTI纽约原油CFD 96.609 ▲0.39%
-布伦特原油CFD 101.480▲0.43%
-标普50指数 2,470.29▼51.63%
-美元兑人民币 1USD=6.356 RMB
-美元兑港币 1USD=7.836HKD
-国际黄金 1931.70美元/盎司
-全球CCP病毒感染人数495,528,334例
+作者：纽约香草山设计部 – 蜂鸟
 
-1、所罗门群岛总理会见澳情报高官：堪培拉仍是首选合作伙伴
-2、25年首次：美国国会众议院佩洛西将在本周日（2022年4月10日）访问台湾
-3、五角大楼：乌克兰能打败入侵俄军 美国将确保乌军保持自卫能力
-4、美国财政部长耶伦：如果中共国对台湾动武，财政部准备好对北京施加类似对俄相同制裁
-5、美国贸易代表：美对重新调整对华贸易持战略态度，但对大规模脱钩或贸易离婚没有兴趣
-6、北约外长会议讨论新战略概念，应对俄中带来的挑战，日韩等亚太伙伴国首次与会
-7、中资收购英国芯片厂悬而未决 就业国安短中期考虑成焦点
-8、芬兰和瑞典严肃考虑加入北约，北约东扩或被普京帮助实现
-9、美国和盟国对俄实施新制裁 包括普京女儿
-10、美国星期三宣布，指控俄罗斯寡头马洛费耶夫（Konstantin Malofeyev）违反制裁
-11、人权观察呼吁中国在疫情封控期间尊重民众获取治疗及必需品的基本人权
-12、也门总统哈迪周四宣布将权力移交给新成立的总统委员会
-13、联大今天投票决定是否暂停俄罗斯在人权理事会的成员资格
-14、欧委会再令马耳他停止向境外富商发放“黄金护照”
-15、荷兰响应制裁俄罗斯 冻结属俄船东14艘游艇
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-HPAY-scaled.jpg)
+* * *
+
+
+
+发稿：小鹿
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-42.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/12/logo-s2.png)
+
+
+
+
 
  
 

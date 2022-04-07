@@ -2,26 +2,37 @@
 ---
 
 
-## 美财政部长将就加密市场监管及政策发表演讲
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305631/)
+## 有声|英国敦促七国集团升级对俄制裁
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2305669/)
 
-作者：Noemi
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒4月5日报道，英国敦促 G7 及北约禁止俄罗斯船只进入其港口，商定逐步停止从俄罗斯进口石油和天然气的时间表，并加强对俄银行和关键行业的制裁。
 
-4月6日，据相关媒体消息显示，美国财政部长珍妮特-耶伦将于本月7日就加密市场的监管及政策发表首次演讲。
+英外交大臣丽兹·特拉斯，在北约和 G7 会议之前发表讲话时强调，将于本周四敦促北约及伙伴国进一步实施制裁俄罗斯，打击更多俄罗斯银行及像黄金一样填补普京战争宝库的行业。呼吁统一明确的时间表，消除对俄罗斯石油、煤炭和天然气的进口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Capture00-18.jpg)
+现有制裁已冻结3500亿美元的俄罗斯资金，导致俄罗斯60%以上的外汇储备无法使用，所有协调制裁正在将俄罗斯经济推回苏联时代。 丽兹·特拉斯在与波兰外交部长兹比格涅夫一起讲话时表示，两国已同意升级对俄制裁，同时增加对乌克兰的武器供应。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-2.jpeg)
 
-据悉，耶伦将在演讲中概述财政部为调查数字资产的使用和技术可以采取的可能步骤。此外，联邦政府还将为加密货币市场建立一个“全面的政策框架”。早先，美国总统拜登也签署了一项行政命令，当中指示联邦机构加速研究加密货币的风险和收益。
 
-对此，郭文贵先生曾在直播中爆料称，美国将会在2022年年底前为加密货币的监管出台一整套完整的法律体系，以此促使加密货币市场完全合法化。而随着该系列法律、法规的出台，喜币则有望成为加密货币市场中最具价值的行业标杆。
+文字版原文：[英国敦促七国集团升级对俄制裁](https://gnews.org/zh-hans/2302148/)
 
-参考链接：[Treasury Secretary Janet Yellen will deliver her first speech on crypto and call for a ‘comprehensive policy framework’](https://markets.businessinsider.com/news/currencies/janet-yellen-treasury-speech-crypto-regulation-digital-asset-tokens-policy-2022-4)
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-总编/审核：Irene木木
-编辑：宁文静
-校正/发稿：谐趣园
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
