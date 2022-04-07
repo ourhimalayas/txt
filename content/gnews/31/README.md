@@ -2,34 +2,28 @@
 ---
 
 
-## 日本取消对106国的中共病毒入境限制
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303108/)
+## 樱花时政┃美英宣布对俄新制裁包括“禁止对俄新投资”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2303280/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-17.26.35.png)
-日前日本政府表示，从4月8日周五开始，将逐步放宽中共病毒限制，取消包括英美在内的106个国家的非居民入境禁令。106国包括东南亚等国、欧洲国家、非洲国家等。日本政府同时告诫本国国民避免不必要的海外旅行。
+撰稿：东京樱花团/文小白
 
-去年11月下旬开始，由于中共病毒奥密克戎的肆虐，日本对非居民外国人实施入境禁令。最近几周有所缓解，日本一直在放松边境管制，政府还规定从4月10日开始，每日海外入境人数从7000人提高到10000人左右。日本政府表示目前的放宽政策还是极其严格的，它会继续暂停12月2日之前的签证有效期发放，外交官、本国居民的配偶和永久居民除外。另外有特殊情况的也予以批准入境，如探病或参加葬礼，除此之外的外国游客仍被禁止入境。
+据NHK4月7日消息，美国白宫就乌克兰首都基乌附近许多平民遭到杀害一事，4月6日宣布对俄罗斯实施新的制裁：禁止与俄罗斯最大的金融机构进行交易的同时，还禁止对俄罗斯进行新的投资。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-24.png)
+图片来源：本文链接
 
-reference：
+新的制裁措施将禁止俄罗斯最大的金融机构Sberbank和第四大民营金融机构Alphabank与美国公民和企业进行所有的交易。美国此前已对其他主要金融机构实施了制裁，此次的新制裁意味着俄罗斯超过三分之二的银行交易已经被禁止。
 
-[https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html](https://english.kyodonews.net/news/2022/04/fc4bf7636562-japan-to-lift-covid-nonresident-foreigner-entry-ban-for-106-nations.html)
+此外，为了进一步将俄罗斯孤立于世界经济圈以外，美国它还颁布了一项，禁止美国人向俄罗斯进行新投资的总统令。拜登总统6日再次强烈指责普京总统，称“没有比乌克兰发生的事情更加严重。美国将继续让普京付出代价。”拜登政府计划与包括日本在内的七国集团和欧盟合作，进一步加强对俄罗斯的制裁。
 
-撰稿、发布：骄子
+4月6日，英国政府与美国政府步调一致地宣布了对俄罗斯进一步的制裁措施。除了冻结俄罗斯最大金融机构“Sberbank”的资产外，还禁止对俄罗斯进行新的投资。前年，英国对俄罗斯的投资额超过了110亿英镑。英国此次新的措施将对俄罗斯经济造成很大的影响。
 
-* * *
+日本内阁官房长官松野在7日上午的新闻发布会上表示，“日本将与G7和国际社会一道对俄罗斯采取强硬态度，让俄罗斯能够倾听国际社会的声音，尽快停止侵略。我们认为有必要采取各种制裁措施。”
 
-欢迎订阅我们的GNews账号：
+信息来源：[アメリカ 新たな制裁発表 “ロシアへの新規投資禁止”](https://www3.nhk.or.jp/news/html/20220407/k10013570601000.html)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif)
-
- 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

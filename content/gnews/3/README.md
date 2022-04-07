@@ -2,27 +2,34 @@
 ---
 
 
-## 【G时新闻】警惕中共以屠杀患者来实现“动态清零”
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2304086/)
+## 亚马逊签署天空网路Kuiper计划
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304250/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是警惕中共以屠杀患者来实现“动态清零”！ 中共病毒疫情已迈入第三年，墙内一直采取严格的“动态清零”政策，已给民生经济造成严重影响。随着病毒变异，“动态清零”防疫措施难度越来越大、成本越来越高。现在越来越多的本土新发疫情，证明这种清零政策是完全失败的。善良的中国人应警惕中共以屠杀患者来实现“动态清零”。 西安受双疫情封城至今，不断传出奇葩事。今年一月陕西省领导提出4日“社会面清零”，百姓密切关注是怎么做到“一夜清零”？后来有人拍到在“社会面清零”前一、二天，有大批车把患者转移到外地去，人们隐隐担心，中共会不会以屠杀患者实现人工清零？ 两年前武汉爆发疫情时，就有消息曝光出来，当时的清零官员把患者拉到一处把门封死，死活不管；还有患者直接拉到雷神山火神山火化的；还有封死小区或住宅门任患者饿死病死在家的。 现在上海人都说，感染新冠不可怕，抓进方舱最可怕。“动态清零”就是将疫苗引发的阳性尽快都拉去方舱隔离，死亡的要尽快用移动火化了快速气化处理。上海新一轮的防疫真正做到了极致：文革手段，持枪上岗，隔离到最后让人饿死、气死、病死。现在民众担心中共要将患者强行转移外地进行隔离，生死听天由命，如此可以实现社区面清零。 此次上海封城让中国金融中心及经济中心城市长时间停摆，将对中共国经济造成重创，并将加速中共国假擀面杖经济的崩溃。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/amazon-project-kuiper.jpg)
+当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
 
-盖特链接：[https://gettr.com/post/p141izu020d](https://gettr.com/post/p141izu020d)
+亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网路的卫星系统。目前SpaceX已经有2110颗卫星在轨道上，OneWeb第一批计划的648颗目前已经完成发射428颗。亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。
 
-编辑/发文 -【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+随着天空互联网公司之间的发展，竞争是存在的，但合作也增多。英国的OneWeb公司因受俄罗斯受制裁的影响，被迫中止了3月本该由俄罗斯航天局承接的发射任务，最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成了深度默契。
+
+reference：
+
+[https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project](https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project)
+
+撰稿、发布：骄子
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
