@@ -2,36 +2,19 @@
 ---
 
 
-## 澳大利亚电信公司Telstra推出诈骗短信过滤器
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302440/)
+## 视频|波兰采购坦克应对俄罗斯军事侵略威胁
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2302552/)
 
-#### 了解澳洲生活点滴， 带您走进澳洲
+制作：香草山视频部
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/121208537_gettyimages-1233763787.jpg)图片来源：BBC
-根据Northern Beaches Review4月7日报道，Telstra正在推出一种全新的短信诈骗过滤器，因为澳大利亚最大的电信提供商在其网络上遇到大量恶意短信。
+当地时间4月5日，据相关媒体消息显示，波兰当天与美国签订合约，确定购买250辆美国M1艾布拉姆斯主战坦克，用以应对俄罗斯对波兰东部的军事威胁。 此外，鉴于仍在持续的俄罗斯对乌克兰的侵略战争，美国还向波兰增派了五千名美军和多架战机，以便防止俄罗斯借道白俄罗斯进一步侵袭欧盟。
+另据波兰国防部长拉查克表示，此次军备采购大约花费47.5亿美元，而美国的首批坦克预计将在年内交付。同时，波兰政府还宣布将军费提高至该国GDP的3%，并将陆军人数从当前的14万大幅提升至30万。
 
-Telstra表示，诈骗短信不仅令人讨厌，而且具有恶意，有可能窃取人们的钱财或安装恶意软件来窃取个人信息、入侵他们的网上银行并感染他们的联系人。
+发稿：qiutian（邱甜）
 
-“我们网络上的诈骗短信数量正在上升：2021年，我们收到了超过 11,000份针对安卓设备的恶意短信报告，而2020年只有50份。”首席执行官安迪·佩恩 (Andy Penn) 说。
-
-澳大利亚竞争和消费者委员会去年指出，电话是诈骗者瞄准受害者的最常见方式，也是在经济损失方面最成功的方式。
-
-ScamWatch估计澳大利亚人去年因电话诈骗损失了6360万美元。
-
-作为其清洁管道计划的一部分，Telstra在过去一年中阻止了超过1亿个诈骗电话。
-
-这家电信运营商表示，其新的短信诈骗过滤功能将有助于解决这个问题，在诈骗短信到达移动设备之前就在网络层面上进行拦截。
-
-资料来源：[Telstra rolls out scam text message filter](https://www.northernbeachesreview.com.au/story/7690235/telstra-rolls-out-scam-text-message-filter/?cs=9676)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

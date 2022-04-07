@@ -2,38 +2,36 @@
 ---
 
 
-## 美国称中共若支持俄罗斯在乌克兰的战争可能面临制裁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2302170/)
+## 组图：乌克兰小镇博罗江卡惨遭俄军战火蹂躏
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2302341/)
 
-#### 【雅典娜快讯】紧贴时代脉搏
+**撰稿：日本东京方舟农场  子辰**
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/106848606-1614793668610-gettyimages-1231492611-senate_foreign327_030321.jpeg)图片来源：CNBC
-根据CNA4月7日报道，美国副国务卿温迪·谢尔曼（Wendy Sherman）周三（4月6日）表示，对俄罗斯因乌克兰战争而实施的制裁应该让中共“充分理解”如果向莫斯科提供物质支持可能面临的后果。
+4月6日，俄罗斯军队撤离基辅后，乌克兰小镇博罗江卡（Borodianka或Borodyanka）遭到重创，街上建筑已成残垣断壁，满目疮痍。据代理镇长估计，位于基辅西北约50公里的这个小镇可能超过了200人死亡。
 
-谢尔曼说，美国盟友和合作伙伴针对俄罗斯总统弗拉基米尔·普京、该国经济和寡头协调的“一系列制裁”和出口管制，应该成为中共领导人习近平的榜样。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-103.jpg)（图片来自大纪元）
 
-谢尔曼在众议院外交事务委员会听证会上说：“我认为，这让习主席很好地理解，如果他以任何物质方式支持普京，他可能会遇到什么。”
+乌克兰总统泽连斯基（Volodymyr Zelensky）4月5日在视频演说中表示，博罗江卡和其它已被乌军收复的城镇中，平民遭到俄军杀害的人数恐怕远高于布查镇。
 
-北京应该从西方对乌克兰的协调反应中“吸取正确的教训”，即中共采取任何武力夺取民主管理的台湾岛的行动都是不可接受的。
+博罗江卡代理镇长乔治‧埃尔科（Georgii Yerko）6日表示，这座城镇在遭俄军空袭后，目前有多达200人下落不明。
 
-“我们希望中共明白，任何此类行动都会得到国际社会的回应，而不仅仅是美国。”谢尔曼表示。
+多组图片显示，两天间在俄军撤离基辅后，博罗江卡镇街上到处都是断壁残垣，满目疮痍。街上散落着被摧毁的俄军坦克或军车残骸。
 
-中共拒绝谴责俄罗斯在乌克兰的行动或称其为入侵，并批评西方对莫斯科的制裁，尽管一名中共高级外交官上周表示，北京并没有故意规避这些制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-52.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，一座桥梁严重受损。(Sergei Supinsky/AFP via Getty Images)
 
-近年来，北京和莫斯科的关系日益密切，包括在2月份宣布建立“无限制”伙伴关系。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-42.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆损坏的俄罗斯坦克。(Sergei Supinsky/AFP via Getty Images)
 
-美国总统乔拜登在3月份的视频通话中警告习近平，任何物质支持以帮助俄罗斯应对西方制裁或提供军事援助的“后果”。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-48.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑物被炸出一个大洞。(Sergei Supinsky/AFP via Getty Images)
 
-资料来源：[US says China could face sanctions if it supports Russia’s war in Ukraine](https://www.channelnewsasia.com/world/us-says-china-could-face-sanctions-if-it-supports-russias-war-ukraine-2612801)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-28.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑遭到严重破坏，残骸散落一地。(Anastasia Vlasova/Getty Images)
 
-发布：tianzhihuan
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-19.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆烧毁的俄罗斯军车。(Anastasia Vlasova/Getty Images)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+参考链接：
+[https://www.epochtimes.com/gb/22/4/6/n13699867.htm](https://www.epochtimes.com/gb/22/4/6/n13699867.htm)
+
+总编：老孙
+校对发布：爱放飞
 
  
 

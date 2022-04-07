@@ -2,40 +2,36 @@
 ---
 
 
-## 欧盟多国驱逐俄罗斯外交官以回应其侵略行为
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2302383/)
+## Elon Musk 将加入 Twitter 董事会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2302479/)
 
-作者：澳喜 – 追着曙光跑
+评论：***在Twitter 联合创始人、前CEO Jack Dorsey眼中，引入Musk 是一个正确的决定。他认为Musk“深深关心”着地球和Twitter，相信他能和现任CEO Parag Agrawal 一起“用心领导”Twitter。而成为Twitter 最大个人股东以及董事会成员的Elon Musk，接下来终于有机会对Twitter 的发展提出自己的意见了。但似乎马斯克对平台的审核、哪些言论被禁止或谁的账户得以恢复并没有发言权。***
 
+据《新闻大全》作者， 2022年4月7日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-708.png)埃隆·马斯克 Elon Musk。图片来源：美联社（AP）
+推特公司（Twitter Inc.）周二表示，将任命其最大股东、特斯拉老板埃隆·马斯克(Elon Musk)为其董事会成员。一天前，这位亿万富翁披露了自己持有这家社交媒体公司9.2%的股份。  该公司在一份文件中表示，只要马斯克是 Twitter 的董事，他就不能以个人股东或集团成员的身份拥有该公司超过14.9%的普通股。
 
+推特首席执行官帕拉格·阿格拉瓦尔（Parag Agrawal）在推特上表示：“我很高兴地宣布，我们将任命@elonmusk为董事会成员。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+“他既是这项服务的热情支持者，也是这项服务的强烈批评者，而这正是我们在Twitter和董事会中所需要的，以使我们在长期内变得更强大。欢迎你，埃隆！”
+ 周一，马斯克披露了他拥有7350万Twitter股票的所有权，这些股票由 Elon Musk Revocable Trust 持有，他是该信托的唯一受托人。
+ 该公司表示，马斯克将参与适用于非雇员董事的董事福利安排。它补充说，Twitter 将与马斯克签订标准形式的赔偿协议。
 
+马斯克将担任二级董事，任期将在Twitter 2024年年度股东大会上届满。
 
+Twitter股价在开盘前飙升6%，而周一收盘时涨幅超过27%。
 
-外媒4月5日报道，由于俄罗斯军队在乌克兰布查大量屠杀平民的战争罪行，引起国际公愤和强烈谴责，欧盟多国在两日内驱逐超过175名俄外交官。
+文章来源: [**https://www.newsmax.com/finance/streettalk/elon-musk-twitter-board-of-directors-stake/2022/04/05/id/1064327/**](https://www.newsmax.com/finance/streettalk/elon-musk-twitter-board-of-directors-stake/2022/04/05/id/1064327/)
 
-4月4日，德国外交部长將40名俄外交官列为不受欢迎的人，并递解出境。同日，法国也宣布将驱逐35名俄外交官。立陶宛驱逐俄罗斯大使，并降低外交等级。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide6.jpg)
-4月5日，意大利宣布驱逐30名俄外交官，西班牙宣布驱逐25名俄外交官，丹麦也宣布驱逐15名俄外交官，瑞典宣布驱逐3名俄外交官。拉脱维亚外交部也宣布，将驱逐13名俄外交官，并关闭两个俄罗斯驻拉脱维亚的领事馆。爱沙尼亚宣布驱逐14名俄外交官，并关闭俄驻纳尔瓦领事馆和俄罗斯大使馆驻塔儿图办公室。
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参考链接：
-1. [歐盟國家不滿布查屠殺暴行 2天驅逐150俄羅斯外交官](https://www.cna.com.tw/news/aopl/202204050271.aspx)
-2. [Denmark expels 15 Russian diplomats; Moscow to retaliate](https://www.reuters.com/world/europe/denmark-expels-15-russian-diplomats-after-bucha-reports-2022-04-05/)
-3. [德国、法国驱逐数十名俄罗斯外交官](http://www.manyushijia.com/news/show-101453.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-13.jpg)
-
-编辑：Jack Li文阳
-总编：天滅中共
-审核：Ivy001
-校对/发稿：为真不破20
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

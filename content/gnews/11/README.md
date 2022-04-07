@@ -2,46 +2,45 @@
 ---
 
 
-## CCP病毒XE变种是什么
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2302411/)
+## 介绍“COVID XE”：世卫组织警告它比Omicron更具传染性
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2302492/)
 
-撰稿：Gradient Boost
+据《Zerohedge》记者：TYLER DURDEN，2022年4月05日报道：
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-710.png)图片来源；零对冲
+随着中共国和香港继续与自武汉以来最严重的COVID爆发作斗争，西方已经在精神上摆脱了COVID。话虽这么说，COVID对西方的影响还没有完全结束。或者至少这是“专家”所认为的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-105.jpg)
-图片制作：澳喜农场©森森
+随着美国、欧洲和英国的病例、住院人数甚至死亡人数再次开始攀升（对于美国人来说，这一趋势更加明显，因为一连串的头条新闻警告称，包括比尔和希拉里·克林顿（Hillary Clinton）在内的高级民主党人奇怪地检测出阳性）。 最近在英国确认了一种新变体。
 
-一种新的CCP病毒子变体，又称XE，近日被英格兰卫生部门所发现，目前总共有超过600名病例被记录在案。与此同时，位于亚洲地区的泰国也报告了该变种的出现，虽然目前仍然只是少量。
+据世界卫生组织和英国地方卫生当局称，这种名为XE的新突变体可能比迄今为止的任何 COVID 毒株都更具传染性。
 
-CCP病毒XE 变体是两种 Omicron 子变体亚型，即 BA.1 与 BA.2 的混合产物。 BA.2 变体也被称为“隐形”变体，相较原始的Omicron版本有着更为强大的传染性。XE变体由BA.1 与 BA.2的重组而成，这意味着它是两种不同变体的混合物，并且具有两者的特征。
+XE是一种“重组”毒株——即结合了BA.1和BA.2 Omicron Sub-strans特征的突变。当患者同时感染COVID的多种变体时，就会出现重组突变。这些变体在复制过程中杂交并结合它们的遗传物质，形成一个全新的突变毒株。来自英国的一组研究人员在本周发表的一篇论文中说了同样的话。
 
-由于当前人们所知的数据甚少，医学机构尚不能对其传染性作出准确判定。然而在3月29日 ，世界卫生组织曾经指出，XE 子变体可能比目前占主导地位的 BA.2 Omicron 子变体具有 10% 的成长优势。这或许意味着它的传播速度会更快、传播过程也将更加容易。
+英国卫生机构表示，XE最早于1月19日被发现。从那时起，已报告了637例新变种。
 
-至于其危险性，卡迪夫大学传染病专家安德鲁·弗里德曼曾告诉《新闻周刊》：“现阶段我不会过分担心。”就目前情况来看，人体在感染XE变体之后出现的症状与Omicron类似，例如发烧流涕，咽痛咳嗽，还可能伴随味觉或嗅觉的丧失。
+当局表示，据信在截至3月26日的一周内，英国有490万人感染了新冠病毒，比前一周增加了60万人。
 
-目前还没有迹象表明 XE 子变体已经进入澳洲。它于 1 月 19 日在英国首次被发现， 4 月初泰国也监测到该变体。如果 XE 开始取代Omicron变为更加占主导地位，预计它会在包括澳大利亚在内的世界各地传播流行。
+根据约翰霍普金斯大学的数据，尽管家庭 COVID 测试的使用越来越广泛，这使得当局越来越难以追踪真实的感染人数，但周日全球 COVID 病例超过4.9亿。与此同时，全世界已确认有超过615万例死于该病毒（尽管在许多情况下，即使患者死于无关疾病——仅仅因为他们的病毒检测呈阳性，也被算作“COVID 死亡”）。
 
-*编辑：Gradient Boost*
+世卫组织没有急于将 XE 标记为“关注变体”（这将需要赋予该毒株自己的希腊字母名称），而是表示新菌株将被视为Omicron，直至另行通知。
 
-*发布：疯狂的韭菜*
+在美国，纽约和加利福尼亚等州的新病例有所增加，但XE对此的贡献程度尚不清楚（如果有的话）。泰国已确认至少一例新菌株。但一位亚洲病毒专家告诉彭博社，没有必要对新变种感到恐慌——至少现在还不需要。
 
-新闻参考链接：
+“我们应该密切关注新的重组体，但我们现在不应该恐慌，”病毒学家、香港大学教授Leo Poon说，他跟踪并撰写了有关新毒株出现的报告。
 
-[9 News](https://www.9news.com.au/national/new-covid19-variant-xe-symptoms-characteristics-everything-to-know-explainer/5bb34dcc-9e3e-4be1-b864-a9c6f886d18b)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+他说，看到Covid重组变体或两种先前菌株的混合并不令人意外，特别是因为Delta和Omicron菌株已广泛传播。有些人可能会同时感染这两种菌株。他说，如果要在多个地区检测到变异并在社区中传播，那将是令人担忧的。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
+最后，世界卫生组织3月29日发布的流行病学更新估计，XE的传播率可能比BA.2高10%。然而，这些发现需要进一步证实。
 
-0
+文章来源：[**https://www.zerohedge.com/covid-19/introducing-covid-xe-new-mutant-strain-found-uk-who-warns-its-more-contagious-omicron**](https://www.zerohedge.com/covid-19/introducing-covid-xe-new-mutant-strain-found-uk-who-warns-its-more-contagious-omicron)
 
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – WenXiong
+发布：洛杉矶盘古农场 – 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
