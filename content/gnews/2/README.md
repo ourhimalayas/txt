@@ -2,28 +2,26 @@
 ---
 
 
-## 日本首台国产量子计算机或在今年内面世 定位为“国际霸权之争的核心”（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2304705/)
+## 俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2304749/)
 
-翻译：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-12.jpg)
-上一篇：[日本首台国产量子计算机或在今年内面世 定位为“国际霸权之争的核心”（1/2）](https://gnews.org/zh-hans/2304673/)
+**港台前线 zhong｜2022-4-7**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院6日“一致性”通过了“2022年乌克兰民主防卫租借法案”（The Ukraine Democracy Defense Lend-Lease Act of 2022），旨在简化程序、降低官僚主义影响，加快向乌克兰提供关键军援、补给，协助抵御普京无端的袭击。
 
-具体来说，除了东北大学（日本）的产业人才培养担当据点整备之外，冲绳科学技术大学修士（研究生）院和产业技术综合研究所、量子科学技术研究开发机构等进行研究和后援据点的设置。运用政府基金，创造新的产业，培育新兴企业。
+参议院多数党领袖查克．舒默（Chuck Schumer ）于会议称，在布查镇的屠杀是“纯粹的邪恶、俄军在乌克兰进行种族灭绝”。此外，他明确表示普京杀害无辜的平民是种族灭绝罪行。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-746-edited.png)图片来源：雅虎新闻
+美国参议院“一致性”通过租借法案的意义非凡，但仍须经过众议院决议通过后，总统签署、发布后生效。
 
-该战略提出，30年国内将有1000万人利用量子技术，将量子技术带来的产值达到50万亿日元规模。未来的目标是在金融、医疗、运输、航空等整个社会经济体系中引入量子技术，提高生产率和安全性。
+4月1日外媒采访德克萨斯州参议员约翰·科宁（John Cornyn），他大力推动“2022年乌克兰民主防卫租借法案”。他向媒体表示：“乌克兰军队证明了抗俄的勇气，努力得到国会两党的广泛支持，美国国会已批准大量对乌的军援，配合『租借法案』将减少程序障碍，确保及时向乌克兰运送武器、物资及其他必需品”。
 
-政府还总结了有关AI(人工智能)的国家战略原方案。在虚拟空间中再现现实世界，构筑了能够进行各种设想实验的“双生数字方案”，明确了将其用于首都地下地震、南海海沟地震、新型冠状病毒等设想的灾害预测中。还包括有望在如武力冲突紧急情况下利用于保护国民。
-
-参考链接：[国産量子コンピューター、初号機を今年度中に…「国際覇権争いの中核」と位置づけ（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4cba9c0dc723c0fb2350d87e009e30e2ebaa70ee)
+来源｜[POLITICO](https://www.politico.com/news/2022/04/06/senate-unanimously-approves-lend-lease-00023668)
 
 * * *
 
-审核：Bryan
-发稿：宫米叶
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,23 @@
 ---
 
 
-## 中日财经爆┃美国宣布制裁普京女儿和俄罗斯联邦储蓄银行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301935/)
+## 樱花时政┃乌军人在美受训使用弹簧刀无人攻击机
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302082/)
 
-撰稿：东京樱花团｜peterwong
+整理编辑：东京樱花团｜上善若水
 
-![](https://lh3.googleusercontent.com/RqocxXRtqK4fBuYgX9gFvxR9m-pvvPU7EFLoqQMVKZoQWkXU0e0CNpFORKCG-MVXujxNVdAsoQoUVEaNCH2mb46K4VsBEKr8XbOoS_89mrhJ075Nxe6vK0QzEk1xwll6iZgdtnKP)[*图片来源*](https://media-proc.singtao.ca/photo.php?sqcrop=true&amp;s=https://media.singtao.ca/wp-content/uploads/master_sandbox/2022/04/2022040623294652377.jpg&amp;f=webp&amp;w=1200&amp;q=75&amp;h=672)
+美国五角大楼4月6日表示，一批乌军人正在美国训练如何使用“弹簧刀”无人攻击机，这种无人机外号“神风特攻”，被视为坦克死敌。专家分析，“弹簧刀”是一种介于巡航导弹和无人攻击飞行器之间的智能武器，这种导弹可在目标区游荡一段时间以搜索目标，并在定位目标后收起双翼，变成一枚小型巡航导弹，与袭击目标同归于尽，被形容为“神风特攻”。
 
-4月6日，美国宣布对俄总统普京的两个成年女儿实施制裁，以及俄罗斯大银行和金融机构。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-698.png)[*图片来源*](https://s.rfi.fr/media/display/f6ad203a-b602-11ec-af1a-005056bfb2b6/w:1280/p:16x9/AP3913601466288461.jpg)
 
-俄罗斯对乌克兰的入侵已持续42天，迫使400多万人逃往海外，造成数千人丧生或受伤，乌四分之一的人口无家可归，很多城市变成一片废墟，几天前，乌克兰在从俄军手中夺回的基辅以北的布查市发现大量平民被近距离枪杀。
+一批乌军人早在2021年秋已进入美国，美军对他们进行培训，如何发射弹簧刀无人机。国防部匿名高官表示，这批乌克军人有十二人左右，很快重返乌克兰。美国防长奥斯汀出席国会听证会时表示，美国在乌境外帮助培训乌军人，旨在熟练掌握美国提供的武器。“他们中的一些人正在美国培训，”他证实说。
 
-美国新的制裁措施包括禁止美国人在俄罗斯投资。制裁将打击俄罗斯联邦储蓄银行（Sberbank），该行坐拥俄罗斯银行总资产的三分之一，俄第四大金融机构Alfaank也是打击目标，但新措施并未包括能源交易。
+华盛顿还在周二宣布，将以标枪反坦克系统的形式向乌克兰提供多达1亿美元的额外军事援助，这些标枪已成为乌克兰士兵对抗俄罗斯军队的首选武器。
 
-英国也冻结了俄罗斯联邦储蓄银行的资产，并表示将在年底前禁止进口俄煤炭。
+信息来源：[**乌克兰军人在美训练使用弹簧刀无人机**](https://www.bannedbook.org/bnews/headline/20220407/1715793.html)
 
-消息来源：[**美国宣布制裁俄罗斯银行和普京女儿 乌克兰敦促西方果断对俄行动**](https://cn.reuters.com/article/usa-sanctions-russia-0406-wedn-wrapu-idCNKCS2LZ021?il=0)
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
+*校对：东京樱花团/東洋武士*
+*发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 

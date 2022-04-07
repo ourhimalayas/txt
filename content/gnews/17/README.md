@@ -2,37 +2,27 @@
 ---
 
 
-## 瑞士大多数住院病例也与疫苗接种数据有关
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2304475/)
+## 有声｜2天内200名俄罗斯外交官在欧洲被驱逐
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2304533/)
 
-#### 编译 意大利达芬奇农场 小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-07-alle-15.30.48.png)图片来源：eventiavversinews.it
-所有的国家都保留着详细的记录。接种后的时间越长，在医院里打了疫苗的人所占的百分比就越占主导地位。其中的原因很多，比如先天性和适应性免疫系统减弱，免疫系统通过重复接种疫苗增加对病毒的耐受性。（免疫系统只产生针对接种过的变异体的抗体）。最后是疫苗导致免疫性缺陷，这是一种普遍和严重的免疫缺陷。
+By:**秘翻新闻**
 
-在《2022年4月6日Strong Facts CH 》评估中， 瑞士当局收集的数据非常清晰。例如，这表明在20岁以上的年龄组中，接种疫苗的新感染者比未接种疫苗的感染者更常住院。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/foto1-1.png)
-每十万名居民中，按疫苗接种状态年龄组20-29岁的住院人数（红色表示已完全接种疫苗，绿色表示未接种疫苗，灰色表示疫苗接种状态未知）
+**2022-04-07**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/407-10-scaled.jpg)
+据[《福克斯新闻》](https://www.foxnews.com/world/russians-sent-packing-espionage-accusations)4月6日报道，在短短48小时内，200名俄罗斯外交官在欧洲被驱逐或宣布为 不受欢迎的人。这些外交官被指控参与间谍活动，但人们普遍认为，这些近期的驱逐行动是对俄军在乌克兰布查暴行的反应。
 
-人的年龄越大，情况越清晰，可能是接种疫苗有一定时间了。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/foto2-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/foto3-1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/foto4-1.png)
-每十万居民中，接种疫苗后60至69岁，70至79岁和80岁以上的住院情况。（红色表示已完全接种疫苗， 绿色表示未接种疫苗，灰色表示疫苗接种状况未知）
+与此同时，法国已经对其在乌克兰国民可能犯下的战争罪展开调查。意大利总理马里奥·德拉吉也呼吁对在乌克兰杀害平民的事件进行独立调查.
 
-所以我们看到疫苗是有害的。
+报道还指出，最近几周，世界各地的俄罗斯大使馆都成为抗议者的目标。近日一辆汽车撞上了俄罗斯驻罗马尼亚布加勒斯特大使馆的大门，并燃起了大火。
 
-副作用报告
+而在意大利，有人甚至放火烧了克里姆林宫顶级宣传员和脱口秀主持人弗拉基米尔·索洛维约夫的科莫湖别墅。这别墅是这位俄罗斯演艺界人士在意大利拥有的三处房产之一，但由于索洛维约夫是制裁对象，该别墅此前已经被征用。
 
-疫苗接种活动期间报告的副作用案例也以图形方式显示
-![](https://assets.gnews.org/wp-content/uploads/2022/04/foto5-1.png)
-新冠病毒疑似副作用报告中显示共6105171名接种疫苗的人， 13388名疑似副作用报告。是2011年至2020年的总和（所有疫苗中只有2246人）的4.93倍，是过去10年平均值的49.3倍。
+（秘翻新闻Grace编辑报道）
 
-我们看到有209人死亡，尽管瑞士也有大量报道，报告的副作用是过去十年总和的4.93倍，这些数字和上述住院情况表明，疫苗接种既不安全也没有效。
+发布 : 文橙
 
-参考链接：
-
-[https://www.eventiavversinews.it/anche-in-svizzera-la-maggior-parte-dei-ricoveri-riguarda-i-vaccinati-dati/](https://www.eventiavversinews.it/anche-in-svizzera-la-maggior-parte-dei-ricoveri-riguarda-i-vaccinati-dati/)
-
-编辑、上传：Xiao baige
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
