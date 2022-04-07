@@ -2,46 +2,36 @@
 ---
 
 
-## CCP病毒XE变种是什么
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2302411/)
+## 澳大利亚电信公司Telstra推出诈骗短信过滤器
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302440/)
 
-撰稿：Gradient Boost
+#### 了解澳洲生活点滴， 带您走进澳洲
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-105.jpg)
-图片制作：澳喜农场©森森
+翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/121208537_gettyimages-1233763787.jpg)图片来源：BBC
+根据Northern Beaches Review4月7日报道，Telstra正在推出一种全新的短信诈骗过滤器，因为澳大利亚最大的电信提供商在其网络上遇到大量恶意短信。
 
-一种新的CCP病毒子变体，又称XE，近日被英格兰卫生部门所发现，目前总共有超过600名病例被记录在案。与此同时，位于亚洲地区的泰国也报告了该变种的出现，虽然目前仍然只是少量。
+Telstra表示，诈骗短信不仅令人讨厌，而且具有恶意，有可能窃取人们的钱财或安装恶意软件来窃取个人信息、入侵他们的网上银行并感染他们的联系人。
 
-CCP病毒XE 变体是两种 Omicron 子变体亚型，即 BA.1 与 BA.2 的混合产物。 BA.2 变体也被称为“隐形”变体，相较原始的Omicron版本有着更为强大的传染性。XE变体由BA.1 与 BA.2的重组而成，这意味着它是两种不同变体的混合物，并且具有两者的特征。
+“我们网络上的诈骗短信数量正在上升：2021年，我们收到了超过 11,000份针对安卓设备的恶意短信报告，而2020年只有50份。”首席执行官安迪·佩恩 (Andy Penn) 说。
 
-由于当前人们所知的数据甚少，医学机构尚不能对其传染性作出准确判定。然而在3月29日 ，世界卫生组织曾经指出，XE 子变体可能比目前占主导地位的 BA.2 Omicron 子变体具有 10% 的成长优势。这或许意味着它的传播速度会更快、传播过程也将更加容易。
+澳大利亚竞争和消费者委员会去年指出，电话是诈骗者瞄准受害者的最常见方式，也是在经济损失方面最成功的方式。
 
-至于其危险性，卡迪夫大学传染病专家安德鲁·弗里德曼曾告诉《新闻周刊》：“现阶段我不会过分担心。”就目前情况来看，人体在感染XE变体之后出现的症状与Omicron类似，例如发烧流涕，咽痛咳嗽，还可能伴随味觉或嗅觉的丧失。
+ScamWatch估计澳大利亚人去年因电话诈骗损失了6360万美元。
 
-目前还没有迹象表明 XE 子变体已经进入澳洲。它于 1 月 19 日在英国首次被发现， 4 月初泰国也监测到该变体。如果 XE 开始取代Omicron变为更加占主导地位，预计它会在包括澳大利亚在内的世界各地传播流行。
+作为其清洁管道计划的一部分，Telstra在过去一年中阻止了超过1亿个诈骗电话。
 
-*编辑：Gradient Boost*
+这家电信运营商表示，其新的短信诈骗过滤功能将有助于解决这个问题，在诈骗短信到达移动设备之前就在网络层面上进行拦截。
 
-*发布：疯狂的韭菜*
+资料来源：[Telstra rolls out scam text message filter](https://www.northernbeachesreview.com.au/story/7690235/telstra-rolls-out-scam-text-message-filter/?cs=9676)
 
-新闻参考链接：
+发布：tianzhihuan
 
-[9 News](https://www.9news.com.au/national/new-covid19-variant-xe-symptoms-characteristics-everything-to-know-explainer/5bb34dcc-9e3e-4be1-b864-a9c6f886d18b)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/model.png)
-
-0
-
-
-
-免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

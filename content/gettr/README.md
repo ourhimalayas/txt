@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 7:03 AM (UTC)`
+
+【Ukraine Rescue】04/04/2022 Naive has been working and studying in Ukraine for 7 or 8 years. He originally planned to follow the Taiwan government's evacuation operation to return to Taiwan, but finally stayed in Poland because he was worrying about his friends in Ukraine. He learned about the NFSC’s rescue team through a local Chinese restaurant owner and became one of our volunteers. He took advantage of his language and experience in Ukraine to serve refugees, and worked with the NFSC’s rescue team to help provide refugees with transportation, accommodation and psychological assistance.<br/><br/>【乌克兰救援】04/04/2022 Naive在乌克兰半工半读了7、8年，本来打算跟随台湾政府的撤侨行动回台湾，因为牵挂乌克兰的朋友留在了波兰，通过一名中餐馆老板了解到新中国联邦救援团队，而成为一名志愿者。他利用语言和在乌克兰的经历优势服务难民，与新中国联邦救援团队一起为难民提供交通、食宿以及心理方面的帮助。
+![img](https://media.gettr.com/group5/getter/2022/04/07/07/61e708d3-c424-878f-d402-6ad479b1ecff/out.jpg)
+
+---
+
 `@miles 4/7/2022 4:59 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -147,13 +154,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 🔈🔈🔈新中国联邦|军情室 系列节目 周三美东时间下午3点 重磅首播！军情分析，军事理论知识，俄乌战争最新战况分析，干货满满！精彩不容错过，敬请期待 🥳🥳🥳🙏🙏🙏
 ![img](https://media.gettr.com/group7/origin/2022/04/06/18/185e46ab-ac19-a19e-b370-755fefffd54a/2a45e088dea4114cc6b4779931c97b76.jpg)
-
----
-
-`@miles 4/6/2022 5:55 PM (UTC)`
-
-俄乌战争战况播报
-![img](https://media.gettr.com/group27/origin/2022/04/06/17/eb1566fc-6675-720d-c130-dd7f41e21c24/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
