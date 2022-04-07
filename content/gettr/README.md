@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 11:03 PM (UTC)`
+
+2022.04.07 NFSC News  Shanghai New Cases surging, Armed Police Forces Dispatched for Patrolling
+![img](https://media.gettr.com/group13/origin/2022/03/28/22/a9b7491e-450e-b60b-ada6-c0a7a61e2cae/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/7/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-07<br/>For English：gettr.com/post/p144ax0c526
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 【Ukraine Rescue】04/05/2022  Naif took the initiative to find the NFSC and the ROLF as a Russian-Ukrainian interpreter for the team. He said that since he was a child, he has lived in the shadow of the CCP's armed reunification of Taiwan, and the CCP's actions in Hong Kong and Xinjiang have made it even clearer that the evil nature of the CPC will not change, and the mission of the NFSC and the Taiwanese to destroy the Communist Party is the same. He hopes to protect Ukraine and make the CCP hold back in attacking Taiwan.<br/><br/>【乌克兰救援】04/05/2022 那伊夫主动找到新中国联邦和法治基金为团队担任俄乌语翻译。他表示，从小就生活在中共武统台湾的阴影之下，中共在香港、新疆所为更看清了中共邪恶本质不会改变，新中国联邦人与台湾人的灭共使命是一样的。他希望通过保护乌克兰让中共对攻台有所忌惮。<br/>
 ![img](https://media.gettr.com/group36/getter/2022/04/07/02/b794168a-f809-2a66-4900-d59b71362a00/out.jpg)
-
----
-
-`@miles 4/7/2022 2:01 AM (UTC)`
-
-2022.04.06  NFSC finance 新中国联邦  喜财经 之《喜币大作战》第一百五十七集 嘉宾：Nick、风雨之中
-![img](https://media.gettr.com/group31/origin/2022/04/07/01/90b6b5cf-2c7a-008b-3ffe-2fec34aa0818/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
