@@ -2,28 +2,30 @@
 ---
 
 
-## 北约称俄罗斯正在重新集结试图占领乌克兰的顿巴斯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301915/)
+## 俄罗斯人可能将回到“苏维埃式生活水平”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2301928/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ap22092669346647_custom-d02c34ee5522f96b9a523ee72b8417bda9408de1-s1100-c50.jpg)图片来源：NPR
-根据CNA4月7日报道，北约秘书长延森·斯托尔滕贝格（Jensen Stoltenberg）周二（4月6日）表示，俄罗斯可能会在未来几周内在乌克兰东部顿巴斯地区发动新的攻势，但是盟国有时间帮助乌克兰军队做好准备。
+####   撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16493024971.png)图片来源：Libcom
+根据《纽约邮报》4月6日报道，周三，美国总统宣布对俄罗斯的银行和普京的两个成年女儿进行新的制裁措施。而一位政府官员则警告说，俄罗斯可能会回到“苏维埃式的生活水平”。
 
-在北约外长齐聚布鲁塞尔讨论为乌克兰提供更多财政、军事和人道主义支持的前一天，斯托尔滕贝格表示，俄罗斯正计划进行“非常集中的”攻势。
+拜登在对工会的一次演讲中说：“仅仅在一年内，我们的制裁就可能使俄罗斯过去15年的经济成果化为乌有。我们将扼杀俄罗斯在未来几年的增长能力”。
 
-斯托尔滕贝格在新闻发布会上说：“我们现在看到（俄罗斯）军队大规模撤离基辅，重新集结、重新武装和补给，并将重点转移到东部。”
+而白宫表示，美国正在对持有俄罗斯所有银行资产三分之一的储蓄银行（Sberbank）和该国最大的私人银行阿尔法银行（Alfa-Bank）实施全面封锁制裁。
 
-“在接下来的几周里，我们预计俄罗斯将在乌克兰东部和南部进一步推进，试图占领整个顿巴斯，并在被占领的克里米亚建立一座陆桥。”他在周三的北约外长会议前表示。
+白宫官员指出，“现实是，这个国家正在陷入经济、金融和心理上的孤立，按照这个速度，将回到1980年代的苏联式生活标准。即使像普京这样的独裁者，也与俄罗斯人民有一个社会契约。他拿走了他们的自由，以换取稳定的承诺。因此，他目前没有给他们稳定，普京给了他们不稳定和不安全……在某种意义上来讲，如果只是因为他们关心保持权力，那这对任何领导人来说都应该是重要的。”
 
-斯托尔滕贝格的言论似乎证实了莫斯科在3月下旬宣布将重新关注“彻底解放顿巴斯”。这是一个自2014年以来，部分处于俄罗斯支持且在分离主义控制之下的工业区。                                                                                                                                             资料来源：[NATO says Russia regrouping to try to take Ukraine’s Donbas](https://www.channelnewsasia.com/world/nato-says-russia-regrouping-try-take-ukraines-donbas-2609451)
+该官员说，普京的两个女儿玛丽亚·普京娜（Mariya Putina）和卡捷琳娜·蒂霍诺娃（Katerina Tikhonova）将面临制裁，因为“我们认为普京的许多资产都藏在家庭成员那里，这就是我们针对她们的原因”。
 
-发布：tianzhihuan
+此外，俄罗斯外交部长谢尔盖·拉夫罗夫（Sergei Lavrov）的妻子和女儿也将面临制裁，俄罗斯总理米修斯廷（Mikhail Mishustin）和俄罗斯前总统兼总理德米特里·梅德韦杰夫（Dmitry Medvedev）的亲属也将面临制裁。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+但是，根据《纽约邮报》上个月的报道，普京的情妇阿琳娜·卡巴耶娃（Alina Kabaeva）据称带着他们的四个年幼孩子躲在瑞士，并不面临美国的制裁。
+
+值得注意的是，文章指出，拜登还限制了对俄罗斯的某些技术出口，并对越来越多的俄罗斯精英人士实施制裁。然而，俄罗斯最富有的女性，亿万富翁叶莲娜（Yelena Baturina）还没有面临制裁，据称她在2014年向一家与亨特·拜登（Hunter Biden）有关的公司支付了350万美元。
+
+**新闻来源**
+
+[US warns Russia of ‘Soviet living standards’ as sanctions hit Putin’s kids](https://nypost.com/2022/04/06/us-warns-russia-of-soviet-living-standards-sanctions-hit-putin-kids/)
 
  
 
