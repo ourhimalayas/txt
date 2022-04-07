@@ -2,8 +2,8 @@
 ---
 
 
-## 20220406郭文贵大直播 ： Eglise：中共以防疫政策弱民辱民
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303069/)
+## 20220406郭文贵大直播 ：前线救援现场有战友火速加入德国农场
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303128/)
 
 作者：东京樱花团小视频组
 

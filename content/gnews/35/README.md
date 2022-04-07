@@ -2,24 +2,37 @@
 ---
 
 
-## 樱花时政┃乌军人在美受训使用弹簧刀无人攻击机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2302082/)
+## 组图：乌克兰小镇博罗江卡惨遭俄军战火蹂躏
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/2302341/)
 
-整理编辑：东京樱花团｜上善若水
+**撰稿：日本东京方舟农场  子辰**
 
-美国五角大楼4月6日表示，一批乌军人正在美国训练如何使用“弹簧刀”无人攻击机，这种无人机外号“神风特攻”，被视为坦克死敌。专家分析，“弹簧刀”是一种介于巡航导弹和无人攻击飞行器之间的智能武器，这种导弹可在目标区游荡一段时间以搜索目标，并在定位目标后收起双翼，变成一枚小型巡航导弹，与袭击目标同归于尽，被形容为“神风特攻”。
+4月6日，俄罗斯军队撤离基辅后，乌克兰小镇博罗江卡（Borodianka或Borodyanka）遭到重创，街上建筑已成残垣断壁，满目疮痍。据代理镇长估计，位于基辅西北约50公里的这个小镇可能超过了200人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-698.png)[*图片来源*](https://s.rfi.fr/media/display/f6ad203a-b602-11ec-af1a-005056bfb2b6/w:1280/p:16x9/AP3913601466288461.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-103.jpg)（图片来自大纪元）
 
-一批乌军人早在2021年秋已进入美国，美军对他们进行培训，如何发射弹簧刀无人机。国防部匿名高官表示，这批乌克军人有十二人左右，很快重返乌克兰。美国防长奥斯汀出席国会听证会时表示，美国在乌境外帮助培训乌军人，旨在熟练掌握美国提供的武器。“他们中的一些人正在美国培训，”他证实说。
+乌克兰总统泽连斯基（Volodymyr Zelensky）4月5日在视频演说中表示，博罗江卡和其它已被乌军收复的城镇中，平民遭到俄军杀害的人数恐怕远高于布查镇。
 
-华盛顿还在周二宣布，将以标枪反坦克系统的形式向乌克兰提供多达1亿美元的额外军事援助，这些标枪已成为乌克兰士兵对抗俄罗斯军队的首选武器。
+博罗江卡代理镇长乔治‧埃尔科（Georgii Yerko）6日表示，这座城镇在遭俄军空袭后，目前有多达200人下落不明。
 
-信息来源：[**乌克兰军人在美训练使用弹簧刀无人机**](https://www.bannedbook.org/bnews/headline/20220407/1715793.html)
+多组图片显示，两天间在俄军撤离基辅后，博罗江卡镇街上到处都是断壁残垣，满目疮痍。街上散落着被摧毁的俄军坦克或军车残骸。
 
-*校对：东京樱花团/東洋武士*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-52.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，一座桥梁严重受损。(Sergei Supinsky/AFP via Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-42.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆损坏的俄罗斯坦克。(Sergei Supinsky/AFP via Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-48.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑物被炸出一个大洞。(Sergei Supinsky/AFP via Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-28.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，建筑遭到严重破坏，残骸散落一地。(Anastasia Vlasova/Getty Images)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-19.jpg)乌克兰博罗江卡镇（Borodianka），俄罗斯军队撤离基辅后，街上遗留一辆烧毁的俄罗斯军车。(Anastasia Vlasova/Getty Images)
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/6/n13699867.htm](https://www.epochtimes.com/gb/22/4/6/n13699867.htm)
+
+总编：老孙
+校对发布：爱放飞
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
