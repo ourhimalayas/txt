@@ -2,26 +2,41 @@
 ---
 
 
-## 樱花时政┃中共网信办：禁止祭祀活人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301008/)
+## 伊万卡在众议院1月6日委员会作证
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2301102/)
 
-撰稿：东京樱花团/加一颗稻草
+编译：圣地香港
 
-中新财经4月2日电，据“网信中国”公众号消息，近日，国家互联网信息办公室相关部门下发通知，部署开展清明期间网络祭扫规范管理工作，强调要严防活人被祭拜，不得随意创建网上烈士纪念馆等。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-14.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fimg%2Fd%2Fce7%2FnBnauM3X0QTN5YDNxEDM3UzM1UTM1QDN5MjM5ADMwAjMwUzLxAzL1czLt92YucmbvRWdo5Cd0FmL0E2LvoDc0RHa.jpg&amp;imgrefurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fwiki%2F%25E9%2595%25B7%25E7%2594%259F%25E7%2589%258C&amp;tbnid=amb7h8Fom-bKbM&amp;vet=12ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ..i&amp;docid=8XKs493HYsPjlM&amp;w=268&amp;h=207&amp;q=%E9%95%BF%E7%94%9F%E7%89%8C&amp;ved=2ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ#imgrc=amb7h8Fom-bKbM&amp;imgdii=GTQefx0i6hPxeM)
+美国前总统川普的女儿、前白宫高级顾问伊万卡·川普（Ivanka Trump）周二在众议院特别委员会作证，参议院了 1 月 6 日袭击事件调查。
 
-中国民间有蛊术，立一营，营内一台，结一草人，人身上书敌人姓名，头上一盏灯，足下一盏灯，脚步罡斗，书符结印焚化，一日三次拜礼，至二十一日之午时，敌爆毙。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-662.png)Jared Kushner 和 Ivanka Trump 于 2021 年 10 月 11 日在耶路撒冷。照片：Getty Images
 
-中国道教给生人立牌位叫长生牌或禄位牌，引日月星三光，求吉祥增加福气。佛教立福主牌佛光注照。《礼记．曲礼》记载：“非其所祭而祭之，名曰淫祀。淫祀无福。”《礼记．祭法》载：“夫圣王之制祭祀也，法施于民则祀之，以死勤事则祀之，以劳定国则祀之，能御大菑则祀之，能捍大患则祀之。”所以，历史上通常是给有功绩百姓的人，会由百姓们集中修建生祠，然后里面供上长生牌位。明天启间，宦官魏忠贤擅政，权倾一时，生祠遍于各地，其下场众所周知。以上道理老百姓都懂。
+重点是，这位前第一女儿是川普核心圈子中为数不多的成员之一，她1月6日也身处椭圆办公室，并且详细了解了川普当天的行为。
 
-全国范围内只有你习近平，有文人替你著书立传歌功颂德，已然成为大救星红太阳了，你个全民大大，怎么突然就这么不自信了？
+● 她的丈夫贾里德·库什纳（Jared Kushner）也是前白宫高级顾问，上周在专家组作证了六个小时。
+● 白宫上周表示，他们不会对库什纳或伊万卡·川普向委员会的证词主张行政特权。
 
-消息来源：[国家网信办：不得随意创建网上烈士纪念馆](http://m.chinanews.com/wap/detail/zw/sh/2022/04-02/9718389.shtml)
+谈论内容是什么：小组主席众议员本尼·汤普森告诉记者，会议于周二早上开始，截至美国东部时间下午3点“仍在继续”。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+● 汤普森说，“她在回答问题，虽然回答并不宽泛、健谈，但她确实正在回答问题。”
+● 汤普森补充说，他不知道有任何情况下她请求第五修正案或声称有权拒绝回答问题。
+
+素材链接：[Ivanka Trump testifies before Jan. 6 committee](https://www.axios.com/ivanka-trump-jan-6-testimony-e22b9c69-acf3-4959-8c65-c9c9114ee5f4.html)
+
+* * *
+
+审核：文乐
+校对：小东
+发布：花羽
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

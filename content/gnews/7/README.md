@@ -2,29 +2,28 @@
 ---
 
 
-## 有声|上海取消当日核酸检测，日本人被允许回国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301391/)
+## 安省已接种疫苗者的死亡率不断增高
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301529/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+采编： 加拿大温哥华扬帆农场 – 文莱
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-85.png)
+翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
 
-当地时间4月3日，日媒报道中共所公布当日新增病例数据，自2020年2月的武汉以来，首次突破1万例，而其中上海和吉林两地占到总数居的96%。因上海进入完全封城的状态，所以中共要求包括日本人在内的所有居民足不出户。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-670.png)图片来源：cbc news
 
-据日媒记者实地发所发信息表明，因中共防控App出现将阳性病例判定为阴性的事情，因此上海突然取消了3日的核酸检测。另一方面，在日本驻上海总领事馆的不断交涉下，中共允许上海部分地区的日本人立即回国。在已经完全封锁的上海市内，中共派出专车接送这些日本人抵达机场，乘坐当日最早的航班返回日本。而中共所有的媒体都对该新闻保持了沉默。
 
-文字版原文：[上海取消当日核酸检测，日本人被允许回国](https://gnews.org/zh-hans/2292817/)
+据自媒体《反信号》4月5日报道，尽管主流媒体仍在为注射疫苗加强针摇旗呐喊，但官方数据却显示：在安省因感染新冠病毒而死亡的病例中，已接种疫苗者数量要远超未接种者。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+据悉，目前未接种疫苗者的新冠病毒感染死亡率为0.02，而那些已完全接种以及注射了疫苗加强剂的人，感染死亡率则为0.03。同时，根据住院和重症监护室病例情况，已接种病人数量远远超过未接种患者。
 
-音频处理/发稿：Daxia
+报道指出，由于在整个疫情期间，约有10%的加拿大人感染了新冠病毒，总体死亡接近0.01%，并与每年的流感死亡率接近。因此，当局所推行的疫苗接种，其有效性不言而喻。
 
-**更多资讯，更多关注**
+校对编辑：硫酸羟氯喹64
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+发稿：青青
+
+原文链接： [https://thecountersignal.com/ontario-covid-death-rate-among-vaccinated-surpasses-unvaccinated/](https://thecountersignal.com/ontario-covid-death-rate-among-vaccinated-surpasses-unvaccinated/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
