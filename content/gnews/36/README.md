@@ -2,28 +2,26 @@
 ---
 
 
-## 澳大利亚电信公司Telstra推出诈骗短信过滤器
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302440/)
+## 亚马逊新的澳大利亚配送中心可存储2000万件商品
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2302461/)
 
 #### 了解澳洲生活点滴， 带您走进澳洲
 
 翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/121208537_gettyimages-1233763787.jpg)图片来源：BBC
-根据Northern Beaches Review4月7日报道，Telstra正在推出一种全新的短信诈骗过滤器，因为澳大利亚最大的电信提供商在其网络上遇到大量恶意短信。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/r0_470_5568_3613_w1200_h678_fmax.jpg)图片来源：www.theflindersnews.com.au
+根据Ragtrader4月7日报道，亚马逊澳大利亚公司坚定了其对澳大利亚市场的承诺，在悉尼西部开设了一个新的机器人履行中心 (FC)。
 
-Telstra表示，诈骗短信不仅令人讨厌，而且具有恶意，有可能窃取人们的钱财或安装恶意软件来窃取个人信息、入侵他们的网上银行并感染他们的联系人。
+新的FC位于新南威尔士州的肯普斯溪是澳大利亚最大的仓库，可存储 2000万件物品。该基地创造了1,500多个持续的就业机会，包括客户履行角色，IT和工程职位。
 
-“我们网络上的诈骗短信数量正在上升：2021年，我们收到了超过 11,000份针对安卓设备的恶意短信报告，而2020年只有50份。”首席执行官安迪·佩恩 (Andy Penn) 说。
+在澳大利亚每个州和领地，亚马逊澳大利亚公司拥有超过5,000名员工。
 
-澳大利亚竞争和消费者委员会去年指出，电话是诈骗者瞄准受害者的最常见方式，也是在经济损失方面最成功的方式。
+出席该场地开幕式的总理莫里森表示，4,000名建筑工人使用13,500吨澳大利亚钢材建造了这个大型仓库。
 
-ScamWatch估计澳大利亚人去年因电话诈骗损失了6360万美元。
+新的FC是亚马逊对澳大利亚市场承诺的一部分，自推出以来，它已在澳大利亚的各项业务中投资超过53亿美元。
 
-作为其清洁管道计划的一部分，Telstra在过去一年中阻止了超过1亿个诈骗电话。
+这些投资包括在悉尼、墨尔本、珀斯、布里斯班、阿德莱德、黄金海岸 和纽卡斯尔建立其他FC和物流站点，以存储和运输产品，以及建立数据中心和企业办公室，以支持企业的云计算业务。
 
-这家电信运营商表示，其新的短信诈骗过滤功能将有助于解决这个问题，在诈骗短信到达移动设备之前就在网络层面上进行拦截。
-
-资料来源：[Telstra rolls out scam text message filter](https://www.northernbeachesreview.com.au/story/7690235/telstra-rolls-out-scam-text-message-filter/?cs=9676)
+资料来源：[Amazon’s new Australian fulfilment centre can store 20 million items](https://www.ragtrader.com.au/news/amazon-s-new-australian-fulfilment-centre-can-store-20-million-items)
 
 发布：tianzhihuan
 
