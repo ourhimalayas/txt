@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 12:22 AM (UTC)`
+
+4/6/2022 Ukraine Rescue: Numerous young people want to go to Ukraine to fight for righteousness and the innocent lives slaughtered during the war. While the earth is coming back to life in the warm sunshine of the Spring day, flames of war shattered the people' s homes. Fellow fighters, please cherish every moment of the peaceful days!<br/><br/>4/6/2022 乌克兰救援连线：无数年轻人都想去乌克兰为正义和被屠戮的无辜生命而战；大地在春日的暖阳中复苏，而战火却击碎了老百姓的家园，请战友们珍惜和平日子的每分每秒！<br/>
+![img](https://media.gettr.com/group34/getter/2022/04/07/00/8283be7e-51f1-b3ec-1a26-8c242f7b05d0/out.jpg)
+
+---
+
 `@miles 4/6/2022 11:35 PM (UTC)`
 
 2022.04.06《The Fringe》 Episode 163
@@ -148,13 +155,6 @@ An Italian volunteer told the New Federal State of China (NFSC) reporter that ou
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月5日第32天当日救援统计：<br/>Medyka救援站接待：约159人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9268人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 32 - Date: April 5, 2022 :<br/>Medyka Rescue Station Reception: about 159 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9268 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group22/getter/2022/04/06/08/53e85e16-0d26-40cc-295a-5eabb3aa9732/0173805a8efec9f2fb0c665876b4e944.jpg)
-
----
-
-`@miles 4/6/2022 7:50 AM (UTC)`
-
-4/3/2022 Miles Guo: After the midterm elections, the entire world’s landscape and social media will undergo enormous changes. Facebook, YouTube, and the traditional MSM like CNN will be gone. Although Elon Musk will be able to create a commercially successful social media platform, he will never be able to launch a platform like those of the New Federal State of China that are dedicated to taking down the CCP, have faith, and can change the world.<br/><br/>4/3/2022 文贵直播: 美国中期选举后，全世界格局和社交媒体都将发生巨变，脸书、油管以及CNN等传统主媒都将消失；马斯克虽能创造出商业上成功的社交媒体，但他永远做不了新中国联邦这样的灭共、有信仰并能改变世界的平台<br/>
-![img](https://media.gettr.com/group14/getter/2022/04/06/07/ec8bcf23-c629-4ade-db5e-67cb3c6a18cf/out.jpg)
 
 ---
 
