@@ -15,89 +15,89 @@
 
 ---
 
-### [美司法部长，商务部长和发言人佩洛西检测呈阳性](/content/gnews/1/README.md)
+### [【转】截至4.7 俄乌战事汇总](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票](/content/gnews/2/README.md)
- ` 關注組`
+### [乌克兰将效法以色列全民皆兵](/content/gnews/2/README.md)
+ ` NFSC News`
 
-### [众议院通过法案为记录俄罗斯在乌克兰犯下的战争罪行](/content/gnews/3/README.md)
+### [超过70名俄士兵在切尔诺贝利核电站受辐射伤害](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/4/README.md)
- ` NFSC News`
-
-### [德拉吉问意大利人是更希望和平还是开着暖气](/content/gnews/5/README.md)
- ` xiaobaige`
-
-### [耶伦表示俄罗斯应被驱逐出G20](/content/gnews/6/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [国际社会将进一步制裁俄罗斯](/content/gnews/7/README.md)
- ` NFSC News`
-
-### [北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [俄罗斯财政部宣布将首次用卢布偿还外债](/content/gnews/9/README.md)
- ` 加拿大温哥华英里农场`
-
-### [美、英、澳承诺共同研究高超音速武器](/content/gnews/10/README.md)
- ` NFSC News`
-
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月7日早](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
-
-### [2022年4月7日，全球中共病毒疫情情况汇总](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西媒头条 — 第202期](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [未来俄罗斯在什么情况下会崩溃](/content/gnews/14/README.md)
- ` 纽约香草山MOS02`
-
-### [乌克兰布恰市大屠杀后尸体堆积如山](/content/gnews/15/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠](/content/gnews/16/README.md)
- ` 關注組`
-
-### [4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好](/content/gnews/17/README.md)
- ` 秘密翻译组-北美组`
-
-### [4/6/2022 乌克兰救援连线：西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【G叻睇真D】马斯克成为推特股东将对灭共事业重大利好](/content/gnews/20/README.md)
- ` G-时新闻`
-
-### [德国截获俄罗斯讨论布查杀人事件的电话](/content/gnews/21/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [6月马德里北约外长会议讨论灭共战略](/content/gnews/22/README.md)
- ` 温哥华扬帆农场`
-
-### [德国及乌克兰情报部门分别截获俄军下令屠杀平民的通讯](/content/gnews/23/README.md)
+### [美司法部长，商务部长和发言人佩洛西检测呈阳性](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【G叻睇真D】普京应该因谋杀布查而面临战争罪审判](/content/gnews/24/README.md)
- ` G-时新闻`
-
-### [新中国联邦国旗气球深受乌克兰儿童喜爱](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [G7谴责俄罗斯在乌克兰的暴行发誓要继续施压](/content/gnews/26/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/27/README.md)
+### [俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票](/content/gnews/5/README.md)
  ` 關注組`
 
-### [五月花简报（04/06/2022）](/content/gnews/28/README.md)
- ` mayflowertranslate`
+### [众议院通过法案为记录俄罗斯在乌克兰犯下的战争罪行](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/7/README.md)
+ ` NFSC News`
+
+### [德拉吉问意大利人是更希望和平还是开着暖气](/content/gnews/8/README.md)
+ ` xiaobaige`
+
+### [耶伦表示俄罗斯应被驱逐出G20](/content/gnews/9/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [国际社会将进一步制裁俄罗斯](/content/gnews/10/README.md)
+ ` NFSC News`
+
+### [北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [俄罗斯财政部宣布将首次用卢布偿还外债](/content/gnews/12/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [美、英、澳承诺共同研究高超音速武器](/content/gnews/13/README.md)
+ ` NFSC News`
+
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月7日早](/content/gnews/14/README.md)
+ ` 纽约香草山MOS01`
+
+### [2022年4月7日，全球中共病毒疫情情况汇总](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [西媒头条 — 第202期](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [未来俄罗斯在什么情况下会崩溃](/content/gnews/17/README.md)
+ ` 纽约香草山MOS02`
+
+### [乌克兰布恰市大屠杀后尸体堆积如山](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠](/content/gnews/19/README.md)
+ ` 關注組`
+
+### [4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [4/6/2022 乌克兰救援连线：西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【G叻睇真D】马斯克成为推特股东将对灭共事业重大利好](/content/gnews/23/README.md)
+ ` G-时新闻`
+
+### [德国截获俄罗斯讨论布查杀人事件的电话](/content/gnews/24/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [6月马德里北约外长会议讨论灭共战略](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场`
+
+### [新中国联邦国旗气球深受乌克兰儿童喜爱](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [G7谴责俄罗斯在乌克兰的暴行发誓要继续施压](/content/gnews/27/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/28/README.md)
+ ` 關注組`
 
 ### [【秘翻时评】 上海人封城快断粮 电视台吁：轻断食](/content/gnews/29/README.md)
  ` 秘密翻译组-即时新闻播报组`

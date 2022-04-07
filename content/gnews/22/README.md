@@ -2,51 +2,28 @@
 ---
 
 
-## 6月马德里北约外长会议讨论灭共战略
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2304980/)
+## 财政部长耶伦：如果俄罗斯加入G20，美国将不参加
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305010/)
 
-作者：加拿大温哥华扬帆农场 动物农庄里的小蚂蚁[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)（专栏） Gettr: [@Michael\_tonny89](https://gettr.com/user/michael_tonny89)
+翻译：天天
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-12.jpg)
+美国财政部长珍妮特-耶伦6日表示，对于2022年由印度尼西亚担任议长国的G20多边会谈，如果俄罗斯参加，美国将不参加。 在美国众议院作证时，她说正在考虑拒绝参加一些会议，如部长级会议，而不是完全抵制G20。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-751-edited.png)图片来源：雅虎新闻
+耶伦说，”拜登总统呼吁将俄罗斯排除在G20之外。 我们已经告诉印度尼西亚，如果俄罗斯出席，我们将不参加多边会议”。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/12/michael-4.jpg)](https://gnews.org/zh-hans/author/michaeltonny/)
+与此同时，美国白宫发言人萨基解释说，对于耶伦的发言 “我认为她指的是部长级和个别会议”。 它并不意味着完全抵制或不参与”。
 
-4月7日下午在布鲁塞尔结束的北约外交部长会议上，北约外长会议同意维持和进一步加强对乌克兰的支持，并加强与合作伙伴的合作。来自乌克兰、格鲁吉亚、芬兰、瑞典和北约的亚太伙伴澳大利亚、日本、新西兰、韩国外长以及欧盟外长也加入了本次会议。
+G20于2月在雅加达举行了第一次财长和央行行长会议，并将于4月下旬在华盛顿举行第二次会议。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/220407a-026_rdax_775x440s.jpg)General view of the meeting
+3月，美国总统拜登表示，由于俄罗斯继续在乌克兰进行侵略，他认为应将其排除在G20之外。 同时，俄罗斯方面宣布，普京总统打算出席11月的20国集团峰会。
 
-北约秘书长延斯·斯托尔滕贝格(Jens Stoltenberg)在会后表示，盟国强烈谴责最近从布查和其他俄罗斯侵略军控制下解放出来的地方发生的可怕的谋杀平民事件。所有的事实都非常清晰，必须将所有应对这些暴行负责的人绳之以法，盟国正在支持进行国际调查。
+参考链接：[G20、ロシア参加なら米国は参加しない　イエレン財務長官（毎日新聞） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b4c48b96568b0cf613b4c252e91951564dce2916)
 
-盟国也在支持和加强对乌克兰的人道主义援助和财政支持，包括网络安全援助，提供设备帮助乌克兰抵御化学和生物威胁。
+* * *
 
-北约及其盟友已经做了很多工作，并且决心现在以及未来中、长期做更多的事情，以帮助勇敢的乌克兰人保卫他们的家园和国家，并击退入侵的俄罗斯部队。
-
-乌克兰外长德米特罗·库莱巴(Dmytro Kuleba)感谢北约盟国的大力支持。
-
-盟国一致认为，还应该帮助其他伙伴增强他们的应变能力，并增强他们保护自己的能力。包括格鲁吉亚、波斯尼亚和黑塞哥维那（波黑）。
-
-对于格鲁吉亚，北约可以通过“实质性北约-格鲁吉亚一揽子计划”(NATO-Georgia Package)增加支持。包括态势感知(情报分享)、安全通信和网络等领域。对于波斯尼亚和黑塞哥维那，北约可以制定新的国防能力建设方案。
-
-斯托尔滕贝格说，任何援助都将是量身定制的、以需求为导向的，并在有关国家完全同意的情况下提供。
-
-因为俄罗斯入侵的影响是全球性的，而且将是长期的。乌克兰正在发生的事情正受到全世界的密切关注。北约和亚太伙伴现已同意在几个领域加强实质性政治合作，包括网络、新技术和打击虚假信息。
-
-北约秘书长强调，中共国不愿意谴责俄罗斯的侵略，北京与莫斯科一道质疑各国选择自己道路的权利。这对我们所有人来说都是一个严峻的挑战，这使得我们团结起来保护我们的价值观变得更加重要。
-
-外长们还谈到了未来与俄罗斯的关系，北约盟国和合作伙伴对俄罗斯实施的制裁是前所未有的。他们正在破坏普京总统的战争机器，需要继续协调施压，以帮助结束这场毫无意义的战争。
-
-部长们一致认为，北约的下一个战略构想必须就未来与俄罗斯的关系做出回应，同时，第一次必须考虑到中共国日益增长的影响力和强制性政策如何影响世界的安全。
-
-北约及其盟友如何应对更加激烈和危险的世界格局相关的战略构想将在6月的马德里峰会上最终确定。
-
-最后，盟国批准了我们的北大西洋国防创新加速器章程（Defence Innovation Accelerator for the North Atlantic），即DIANA。开始，它将包括一个由北美和欧洲约 60个创新站点组成的网络，与私营部门和学术界合作，盟国将确保北约能够利用最好的新技术来实现跨大西洋安全。
-
-参考数据：
-
-[Press conference：by NATO Secretary General Jens Stoltenberg following the meetings of NATO Ministers of Foreign Affairs](https://www.nato.int/cps/en/natohq/opinions_194330.htm)
-
-[NATO Allies agree to further strengthen and sustain support for Ukraine](https://www.nato.int/cps/en/natohq/news_194319.htm)
-
-编辑：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)上传：[Michael.Tonny](https://gnews.org/zh-hans/author/michaeltonny/)
-
+审核：Bryan
+校对/发稿：给我听
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

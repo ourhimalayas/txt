@@ -2,32 +2,26 @@
 ---
 
 
-## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
+## 乌克兰将效法以色列全民皆兵
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305354/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
+作者：纽约香草山教育部 Naughty(文行)
 
-7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
-值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
+当地时间4月5日，据以色列媒体报道，乌克兰总统泽连斯基当天指出，在国家安全方面，遭遇了俄罗斯侵略之后的乌克兰将效法以色列，实行全民皆兵政策。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/9-16.jpg)
+泽连斯基表示，安全问题已经成为乌克兰在未来十年中必须面对的首要任务。因此，他已经同西方各国的领导人多次讨论过相关规划，且很多乌克兰的盟友都表达了参与的意愿。这其总，泽连斯基希望多国以小集团的形式分别向乌克兰提供国家安全援助。
 
-乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
+泽连斯基也承认，乌克兰今后肯定不会像预期的那样绝对自由和欧洲化，但其也绝对不会变成一个专制国家。相较而言，乌克兰将更偏向成为一个“大以色列”：在强敌环伺的情况下，乌克兰必须保留规模更大的武装部队，用以对抗两个邻国。为此，乌克兰的各个场所今后都会有荷枪实弹的国家武装部队。
 
+报道还提到，泽连斯基近日在乌克兰犹太人社团举办的年度基辅犹太论坛上发表演说称，乌克兰人和犹太人都珍视自由，且双方都致力于使国家未来成为自己喜爱的样子，而不是别人要求的样子。
 
+参考链接：[排除烏克蘭非軍事化 澤倫斯基：師法以色列全民皆兵](https://www.cna.com.tw/news/aopl/202204060015.aspx)
 
-> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
-> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-
-
-来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
-
-* * *
-
-▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+总编/编辑：Irene木木
+审核：飞虹
+校正/发稿：Fei797
 
  
 
