@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 11:25 PM (UTC)`
+
+<br/>【Ukraine Rescue】04/06/2022  A Christian shares that in a prophetic picture she received from God, she sees the NFSC volunteers become the first drops of water in a tidal wave that’s to influence the world. The Chinese people are carried by God and will break free sooner than they could imagine.<br/><br/><br/>【乌克兰救援】04/06/2022. 一位基督徒分享她从上帝那里得到的预言启示，她看见使徒般的新中国联邦人成为一股影响世界浪潮的前面几滴水珠。中国人是被上帝举起的人，他们会比想象中更快的获得自由
+![img](https://media.gettr.com/group6/getter/2022/04/07/23/72628927-e78d-1174-2950-e3d66d0d28c2/out.jpg)
+
+---
+
 `@miles 4/7/2022 11:03 PM (UTC)`
 
 2022.04.07 NFSC News  Shanghai New Cases surging, Armed Police Forces Dispatched for Patrolling
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 4/6/2022 Ukraine Rescue: Fellow fighter Wenyao told a story about a Taiwan compatriot. He got to know about the mission of the New Federal State of China through participating in the rescue operations at the Ukraine front line and decided to join our Himalaya Farm on site.<br/><br/>4/6/2022 乌克兰救援连线: 文耀战友讲述一位台湾战友，因参加乌克兰前线救援而了解到新中国联邦的使命，并火线加入喜马拉雅农场<br/>
 ![img](https://media.gettr.com/group24/getter/2022/04/07/03/94c0d0b0-cc70-0a8d-1b32-fbd93c675374/out.jpg)
-
----
-
-`@miles 4/7/2022 2:12 AM (UTC)`
-
-【Ukraine Rescue】04/05/2022  Naif took the initiative to find the NFSC and the ROLF as a Russian-Ukrainian interpreter for the team. He said that since he was a child, he has lived in the shadow of the CCP's armed reunification of Taiwan, and the CCP's actions in Hong Kong and Xinjiang have made it even clearer that the evil nature of the CPC will not change, and the mission of the NFSC and the Taiwanese to destroy the Communist Party is the same. He hopes to protect Ukraine and make the CCP hold back in attacking Taiwan.<br/><br/>【乌克兰救援】04/05/2022 那伊夫主动找到新中国联邦和法治基金为团队担任俄乌语翻译。他表示，从小就生活在中共武统台湾的阴影之下，中共在香港、新疆所为更看清了中共邪恶本质不会改变，新中国联邦人与台湾人的灭共使命是一样的。他希望通过保护乌克兰让中共对攻台有所忌惮。<br/>
-![img](https://media.gettr.com/group36/getter/2022/04/07/02/b794168a-f809-2a66-4900-d59b71362a00/out.jpg)
 
 ---
 
