@@ -2,20 +2,20 @@
 ---
 
 
-## 五角大楼表示乌克兰士兵正在受训无人机
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303978/)
+## 美国国家安全面临严重威胁，因中共战略核武库存扩张
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304191/)
 
 撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-116.jpg)
-4月6日周三，一名五角大楼的官员表示，乌克兰士兵正在美国接受训练，这些训练是关于美国提供给基辅的致命Switchblade无人机。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-20.58.44.png)
+日前美国战略司令部长警告美国，中共目前正在进行大规模的战略核武库扩张。
 
-据悉Switchblade无人机以发射时翅膀的展开方式命名，它利用遥控飞行炸弹直接将目标炸毁，又被称为游荡炸弹，并且可以飞到目标区域并呆在原地，待到合适的时机再摧毁目标。最初版本的Switchblade体积非常小，可以直接装在背包里，曾被派驻阿富汗的美军使用。后来开发了一个较大的版本。五角大楼未透露哪个版本被运往乌克兰，也可能两者皆有。
+据五角大楼的报告显示，中共希望在2027年将目前核弹头增加一倍，达到700颗，到2030年希望是1000颗。这比正常预估增多了一倍。中共还在扩大海陆空等运载核弹头的能力，并扩大必要的基础设施。在地广人稀的西部地区加大资金投入用于建立核导弹场，每个已知的核导弹场大约有120个导弹筒仓。中共还有地球卫星和地面大型雷达用来监控导弹和隐形飞机。2021年7月中共首次试验新型洲际导弹，配备有DF-ZF（东风导弹），它可以在世界任何地方进行精确打击，也可以用来运送核武器。该试验是迄今为止地球上的陆地攻击系统中的最远距离和最长飞行时间。
 
-美国防部发言人称大约十几个乌克兰军人正在接受训练，他们学会了可以回到乌克兰继续训练其他人，以对抗俄罗斯的入侵。
+随着中共对其核武器的大规模投资，它可以联合俄罗斯将地区冲突升级为任何级别的暴力，严重威胁到美国乃至整个世界的安全。
 
 reference：
 
-[https://www.ndtv.com/world-news/pentagon-says-ukrainian-soldiers-getting-drone-training-in-us-2867567](https://www.ndtv.com/world-news/pentagon-says-ukrainian-soldiers-getting-drone-training-in-us-2867567)
+[https://newstarget.com/2022-04-06-us-national-security-threatened-china-nuclear-arsenal.html](https://newstarget.com/2022-04-06-us-national-security-threatened-china-nuclear-arsenal.html)
 
 撰稿、发布：骄子
 

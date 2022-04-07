@@ -2,33 +2,34 @@
 ---
 
 
-## 日媒称现任美国众议院议长佩洛西将周日访台
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2303915/)
+## 五角大楼表示乌克兰士兵正在受训无人机
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303978/)
 
-作者：波士顿五月花 背靠背（Frankie）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-07-下午8.10.15.png)图片来源：互联网
-美国第二号人物众议院议长佩洛西将在周日（4月10日）将访台，如果成行此举将美国是25年首次。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-116.jpg)
+4月6日周三，一名五角大楼的官员表示，乌克兰士兵正在美国接受训练，这些训练是关于美国提供给基辅的致命Switchblade无人机。
 
-富士新闻网（FNN）周四（4月7日）援引[消息](https://www.fnn.jp/articles/-/343494)人士的话称，佩洛西将于周五（4月8日）率团访问日本，周日（4月10日）会见日本首相岸田文雄等人，届时两人将讨论协调两国对俄罗斯入侵乌克兰的反应。据 FNN 报道，佩洛西取消原计划访问韩国，转而将前往台湾，因为她担心中国在俄罗斯入侵乌克兰期间“以武力改变现状”。可见事态之紧急。
+据悉Switchblade无人机以发射时翅膀的展开方式命名，它利用遥控飞行炸弹直接将目标炸毁，又被称为游荡炸弹，并且可以飞到目标区域并呆在原地，待到合适的时机再摧毁目标。最初版本的Switchblade体积非常小，可以直接装在背包里，曾被派驻阿富汗的美军使用。后来开发了一个较大的版本。五角大楼未透露哪个版本被运往乌克兰，也可能两者皆有。
 
-据美国之音（VOA）报道，佩洛西的办公室也以安全规则惯例为理由拒绝证实她访问台湾的消息。
+美国防部发言人称大约十几个乌克兰军人正在接受训练，他们学会了可以回到乌克兰继续训练其他人，以对抗俄罗斯的入侵。
 
-美国之音还表示中共国表示称已向美方提出严正交涉。
+reference：
 
-据台湾联合报报道，台湾外交部发言人欧江安表示：”适当时候对外说明“。他今日在例行记者会表示，洽邀美国各层级官员、政要访问台湾，是外交部对美工作重要一环，外交部与驻美各馆处持续推动洽邀美国官员和政要访问台湾，但对于相关人士邀访，若有具体进展，外交部会在适当时候对外说明。
+[https://www.ndtv.com/world-news/pentagon-says-ukrainian-soldiers-getting-drone-training-in-us-2867567](https://www.ndtv.com/world-news/pentagon-says-ukrainian-soldiers-getting-drone-training-in-us-2867567)
 
-现任美国众议院议长访问台湾，这将是自1997年以来25年来的第一次。众议院议长是继总统职位中第二重要的职位。按照美国的法律，当现任总统任内离职启动继任程序时，众议院议长仅排在副总统之后接替总统职务。
-
-参考链接：
-
-【1】 [美众院议长波洛西将访台？外交部：适时说明](https://udn.com/news/story/6656/6221117)
-
-【2】[25年首次：现任美众院议长据信周日访问台湾](https://www.voachinese.com/a/pelosi-taiwan-20220407/6518803.html)
+撰稿、发布：骄子
 
 * * *
 
-*编辑&发布：长岛开心*
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

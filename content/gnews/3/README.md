@@ -2,32 +2,27 @@
 ---
 
 
-## 水仙
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2304558/)
+## 山东“咽拭子采样机器人”亮相 42秒采样
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2304645/)
 
-作者：香草山教育部–蓝之灵（Hortensia)
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-6.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_2772.jpg)
+撰稿/配图：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+看中国2022年4月7日讯，近期中共国疫情多点爆炸后，官方加强管控动作，扩大核酸采样，但感染病例仍直线上升。最新消息显示，中共国开发出的“咽拭子采样机器人”，日前在山东烟台市面世，官方宣称这台“黑科技”将有助于防控工作，只需42秒就能自助完成采样。相关消息引发民间炸锅。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-120.jpg)
+综合大陆媒体报导，山东省首台咽拭子采样机器人日前在烟台市登场。该机器人由烟台清科嘉机器人联合研究院与清华大学现代机构学与机器人化装备实验室联合研发，号称每人仅需42秒就能完成自助核酸采样，同时强调该“产品拥有完全自主知识产权，且100%国产化”。
 
-水仙鲜艳黄色，努力点缀，凄婉春天。小小草，冒出细细芽，努力把脚步追随。冰冷的雪融化不见 ，失去家园的人们，匆匆去而转回熟悉的家乡。殷切呼唤，回来吧！回来吧！耕种家乡的田 。
+人心不正，再好的科技都是做恶，为捧脚而生的技术，再好也带有奴才相。诺大一个中国竟无一人是男儿，十四亿人都只为舔一个人的臭脚，弯足了腰以期获得些许的犒赏。挺不起腰杆的民族看不到希望，没有勇气的民族糟的难还会继续。
 
-家乡的田啊，被炮弹摧毁。黑色土地上，满目疮痍废炮满园，鲜血染红了战士的脸。 泪水侵袭了人们的眼，英雄拥抱弱弱的谁？孩子叫爸爸那么甜美。
+消息来源：[山东“咽拭子采样机器人”亮相 42秒采样 民间炸锅(图)](https://m.secretchina.com/news/gb/2022/04/07/1002803.html)
 
-春天啊，依然盛装着季节岁辉。侵略者残酷，夺不走水仙盛世美颜。黑土地上英雄们，坚强着不怨不悔，侵略者有来无回，留下来做田里的肥。摘一把水仙，送给最美的谁？我诺你，水仙花儿再开时，欢笑充满园。
-
-编辑/审核/发稿：Bronx Bombers
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
