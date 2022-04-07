@@ -2,26 +2,41 @@
 ---
 
 
-## 《避风港Haven》直播内容精选（第三十二集）
-` 喜马拉雅纽约磐石农场` [轉載自GNews](https://gnews.org/zh-hans/2305355/)
+## 新西兰财经G乐部2022年4月7日:财经新闻整理
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/2305361/)
 
-解读新闻：疫苗接种者应该服用艾滋病毒药物来减低新冠病毒的风险（视频：黑嫂子）
-近期由于完全接种新冠疫苗的异性恋人群对HIV测试呈阳性开始逐渐增多，甚至多于以往HIV高发的同性恋群体，主流媒体及其御用科学家开始呼吁完全接种新冠疫苗的人需要服用抗艾滋药物以降低感染新冠病毒的风险。
+采集整理：蚂蚁的城堡
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot-2022-04-08-021243.jpg)
+**1、中共国央行发布金融稳定法草案征求意见稿**
+![img](https://media.gettr.com/group29/origin/2022/04/07/08/7d5cdd2a-f8ab-b8a3-2393-24e913ac088a/354e3fc48887496191e79b236889c7ea_500x0.png)
+中共央行等部门就金融稳定法草案征求意见，文件首次明确由国家金融稳定发展统筹协调机制负责统筹金融稳定和改革发展，研究维护金融稳定重大政策，指挥开展重大金融风险防范、化解和处置工作。压实各方金融风险防范化解和处置责任，提出建立处置资金池，设立金融稳定保障基金。坚持强化金融风险源头管控，将金融活动全面纳入监管，任何单位和个人未经批准不得设立金融机构，不得从事或者变相从事金融业务活动。
 
-近日在路透社的一篇报道中，法国的一项研究表明，使用一些治疗HIV的药物可能可以预防新冠病毒。这个团队在一年中跟踪调查了超过500名HIV患者，其中1/3的人又在长期服用抗艾滋药物，当这些人暴露在感染新冠的高危环境下，长期服用抗艾滋药物的人群比不服药的人群的新冠感染率低近70%。维伦纽夫·圣乔治医疗中心的Dr. Steve Nguala表示，一些新的使用抗艾滋药物治疗新冠病毒的方法正在奏效，其有效阻止了病毒在体内的繁殖，其可以有效预防未来各种变种病毒的传播与感染。
+财经G评：中共的《金融稳定法》说明了中共金融极度不稳定，中共已有的证监会、银监会、保监会现有的法律不足以管控中共系统性的金融风险，历史没有任何的金融风险可以用管控方式解决！
 
-现今主流媒体开始力推抗艾滋病药物预防新冠感染是出于卖药的目的。但另一方面也变相承认病毒，以及由病毒刺突蛋白全基因序列为模版而设计的疫苗，可以造成艾滋病样的症状。媒体正试图将病毒，疫苗，艾滋的密切相关性常态化。
+链接 [http://www.gov.cn/xinwen/2022-04/07/content\_5683802.htm](http://www.gov.cn/xinwen/2022-04/07/content_5683802.htm)
 
-病案分析
-不要相信中共病毒的任何核酸检测结果（视频：黑嫂子）五岁的孩子两针疫苗的排毒，建议家长用药一定要权衡利弊（视频：黑嫂子）
-风平浪静
-因为只敬畏神，一位美国公共医疗卫生部的员工勇敢爆料 （视频：黑嫂子）
-一位美国公共医疗卫生部的员工Jodi非常勇敢，她在工作的联邦医院内秘密记录了医生透露政府不希望美国人知道[COVID-19]疫苗阴谋的视频并举报。她说魔鬼掌控了FDA，CDC这些所谓的权威机构，他们本应都是保护我们的，可是他们却公然欺骗民众。当被问及为什么决定爆料的时候，她说，＂因为她只敬畏神而不是人。＂
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_4463.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_4464.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_4181.jpeg)[《避风港Haven》（32期）视频链接](https://www.gettr.com/streaming/p13q1qe76eb)
-视频剪辑：黑嫂子
+**2、一季度房企发债1733亿，暴降43%！**
+![img](https://media.gettr.com/group17/origin/2022/04/07/08/dff18da8-896d-c32b-3deb-7787730119cc/aedd3b2659fe368a80c1faadc14ad8a2_500x0.png)
+贝壳研究院报告显示，一季度中国房企合计发债1733亿元，同比下降43%，降幅同比扩大。其中，一季度境内发债规模约1378亿元，同比下降28.6%，境外债规模约355亿元，同比下降68%。从一季度发债情况来看，境内债发行占比高达80%，其中，发行人性质为国企央企的占比高达94%。
 
-编辑发布：Gloria
-![](https://assets.gnews.org/wp-content/uploads/2022/03/预防方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/治疗方案.jpeg)![](https://assets.gnews.org/wp-content/uploads/2022/03/IMG_3856.jpg)
+链接 [https://finance.sina.com.cn/chanjing/gsnews/2022-04-07/doc-imcwiwst0333436.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-04-07/doc-imcwiwst0333436.shtml)
+
+**3、中油资本旗下昆仑银行陷瓶颈，净利两年降29%**
+![img](https://media.gettr.com/group44/origin/2022/04/07/09/1319237e-5193-5426-9b6d-f64a9ee7c2ca/8506dabdb8edcc742f85cd02d52a9d65_500x0.png)
+中石油集团旗下金融上市平台中油资本受资产减值损失影响，增收不增利。年报显示，2021年中油资本实现营业总收入309.64亿元，同比增长2.78%；净利润115.89亿元，同比下降23.34%，中油资本旗下商业银行板块二级子公司昆仑银行净利润连续两年下滑，整体降幅达29.2%。
+
+链接 [https://finance.sina.com.cn/chanjing/gsnews/2022-04-07/doc-imcwipii2794892.shtml](https://finance.sina.com.cn/chanjing/gsnews/2022-04-07/doc-imcwipii2794892.shtml)
+
+**4、Meta可能向其应用程序引入代币和数字货币借贷服务**
+![img](https://media.gettr.com/group13/origin/2022/04/07/09/f3ed7b36-33ec-69b1-61e0-82b0b08b5964/d803ce62793eb9ac143d64a21a80592f_500x0.png)
+据报道，社交媒体巨头Facebook的母公司Meta正在计划为其旗下的应用引入虚拟货币和借贷服务，Facebook、WhatsApp、Instagram和Messenger可能成为受影响的对象。据英国《金融时报》周三报道，随着人们对Facebook和Instagram的兴趣下降，这一面向代币和数字货币的举措旨在探索其他收入来源。据报道，Meta员工内部将潜在的数字货币称为“扎克币”（Zuck Bucks），以首席执行官马克·扎克伯格的名字命名，目的是用于元宇宙中。
+
+链接　[https://cointelegraphcn.com/news/meta-may-introduce-tokens-and-digital-currency-lending-services-to-apps-report](https://cointelegraphcn.com/news/meta-may-introduce-tokens-and-digital-currency-lending-services-to-apps-report)
+
+海报：润玉
+
+排版上传：文勇
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

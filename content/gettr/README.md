@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/7/2022 9:01 PM (UTC)`
+
+2022.04.07  新中国联邦 | 喜健康   情绪压力与营养吸收的关系
+![img](https://media.gettr.com/group33/origin/2022/04/07/20/9a3099fa-2439-f4c3-aabd-44ddfab5e763/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/7/2022 7:01 PM (UTC)`
 
 2022-4-7《避风港》(33) VAERS证实：疫苗是元凶
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 4/6/2022  Ukraine Rescue: Besides rescuing refugees, citizens of the New Federal State of China on the front line of the Ukraine rescue operation are also spreading the truth to the local Chinese. Every fellow fighter on the front is a seeder of our Whistleblowers’ Movement, and is bringing the influence of the New Federal State of China to the Chinese around the world<br/><br/>4/6/2022  乌克兰救援连线: 新中国联邦人在乌克兰救援前线除了救助难民，也将真相传播给当地的华人，每一位战友都是爆料革命的播种机，都在将新中国联邦的影响力扩散到世界各地的华人<br/>
 ![img](https://media.gettr.com/group29/getter/2022/04/07/01/cedfeead-bf14-9cf4-1f83-7554324a0661/out.jpg)
-
----
-
-`@miles 4/7/2022 1:06 AM (UTC)`
-
-2022.04.06 晚  新中国联邦 | 新闻访谈   从夹边沟到大上海，铁蹄下的蝼蚁从未改变
-![img](https://media.gettr.com/group46/origin/2022/04/07/00/7bf69cf3-51e6-9424-6599-4c0334664af9/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

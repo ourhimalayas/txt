@@ -2,32 +2,26 @@
 ---
 
 
-## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
+## 美司法部长，商务部长和发言人佩洛西检测呈阳性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2305296/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
+#### 选材/编译    Cran
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16493527031.png)Mercurynews.com 4月6日白宫活动
+美国司法部长，梅里克 · 加兰德（Merrick Garland）和商务部长吉娜·雷蒙多（Gina Raimondo) 都接受过全疫苗接种和加强针。早些时候，商务部长雷蒙多，在“出现轻微症状” 后，检测为阳性。
 
-7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
-值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
+加兰德是拜登总统内阁中第二位冠状病毒检测呈阳性的成员。69岁的加兰德没有出现任何症状，但在得知自己可能感染了冠状病毒后，于周三下午进行了检测，结果为阳性。
 
-乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
+上周六晚上，雷蒙多和加兰出席了在华盛顿特区举行烧烤晚宴。加州民主党人，亚当·希夫（Adam Schiff）和德州民主党人华金·卡斯特罗（Joaquin Castro）都参加了派对。他们的检测结果都呈阳性。
 
+据《华盛顿邮报》报道，自烧烤晚宴以来，约有六名记者、白宫和国家安全委员会工作人员的检测结果呈阳性。
 
+众议院议长南希·佩洛西（Nancy Pelosi）的发言人周四宣布这一消息时，82岁的佩洛西正计划在美国国会大厦举行每周新闻发布会。德鲁·哈米尔（Drew Hammill）说，佩洛西的检测呈阳性但无症状。“她一直推动新冠疫苗接种和加强针”。
 
-> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
-> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
+佩洛西星期三在白宫参加一项活动时，在拜登旁边摘下口罩。周二，佩洛西与拜登和前总统奥巴马一起出席了有关医疗法案的活动。有人看到她在周二的活动中曾亲吻拜登的脸颊。
 
+*责编：白夜*
 
-
-来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
-
-* * *
-
-▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+参考链接：[1](https://www.huffpost.com/entry/merrick-garland-covid-positive_n_624ddb60e4b0d8266ab485bc) [2](https://www.foxnews.com/politics/pelosi-tests-positive-covid-19)
 
  
 
