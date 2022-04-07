@@ -2,24 +2,34 @@
 ---
 
 
-## 樱花时政┃移动焚尸炉开进乌克兰！俄军要毁尸灭迹
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2304184/)
+## 亚马逊签署天空网路Kuiper计划
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304250/)
 
-撰稿：东京樱花团/法治小哥
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/amazon-project-kuiper.jpg)
+当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-742.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fimg.i-scmp.com%2Fcdn-cgi%2Fimage%2Ffit%3Dcontain%2Cwidth%3D1098%2Cformat%3Dauto%2Fsites%2Fdefault%2Ffiles%2Fstyles%2F1200x800%2Fpublic%2Fd8%2Fimages%2Fcanvas%2F2022%2F04%2F06%2Ff89b76c3-4543-4cbe-8ea0-1)
+亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网路的卫星系统。目前SpaceX已经有2110颗卫星在轨道上，OneWeb第一批计划的648颗目前已经完成发射428颗。亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。
 
-近日因乌克兰首都基辅近郊布查镇曝出至少300位平民遭俄军屠杀的惨剧后，引爆国际社会讨伐并加深对俄罗斯的的制裁力度，但这似乎并没有让俄罗斯好好反省，反而更加想要毁尸灭迹。
+随着天空互联网公司之间的发展，竞争是存在的，但合作也增多。英国的OneWeb公司因受俄罗斯受制裁的影响，被迫中止了3月本该由俄罗斯航天局承接的发射任务，最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成了深度默契。
 
-俄军近日为了避免布查镇事件重演，把恶名昭彰的移动焚尸炉开进了马立波，甚至拟定好栽赃计划，将尸体集中堆叠，谎称是乌克兰军方拿平民当人肉盾牌的证据。目前乌克兰东部城市马立波，惨况恐怕比布查镇还要严重，根据市长的说法，保守估计恐会有5000名当地市民死亡。
+reference：
 
-马立波市长瓦迪姆.博伊琴科向媒体表示，俄罗斯列入军事装备的行动焚尸炉已经出现在马立波，且开始运作，就是因为布查镇惨剧太过震撼，俄军高层将领下令，死亡人数是布查镇好几倍的马立波，要立即开始毁灭证据。瓦迪姆表示，自开战至今，保守估计市内已有超过5000人丧命。
+[https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project](https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project)
 
-信息来源：[俄軍「行動火葬場」進駐烏克蘭馬立波　市長：5千死想滅證](https://www.setn.com/News.aspx?NewsID=1096679)
+撰稿、发布：骄子
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

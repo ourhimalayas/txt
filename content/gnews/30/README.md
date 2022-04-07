@@ -2,34 +2,23 @@
 ---
 
 
-## 亚马逊签署天空网路Kuiper计划
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304250/)
+## 【 蓝枫法律 】 区块链思维之&#8211;范式转变及第一性原理
+` 加拿大温哥华扬帆农场蓝枫法律` [轉載自GNews](https://gnews.org/zh-hans/2304251/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/amazon-project-kuiper.jpg)
-当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
+#### **加拿大温哥华扬帆农场 – 蓝枫法律**
 
-亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网路的卫星系统。目前SpaceX已经有2110颗卫星在轨道上，OneWeb第一批计划的648颗目前已经完成发射428颗。亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。
+区块链思维的第一个点，就是范式转变。那什么是范式转变呢？在90年代，有一个做地图的软件，在Google Map之前有个叫Map Quest的电子地图软件。很多人都是在去想去的地方之前，在网上把地图打印出来去用，但现在用谷歌地图或者百度地图没有人再去把它打出来，这个就是一种思维方式的范式转移。
 
-随着天空互联网公司之间的发展，竞争是存在的，但合作也增多。英国的OneWeb公司因受俄罗斯受制裁的影响，被迫中止了3月本该由俄罗斯航天局承接的发射任务，最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成了深度默契。
+什么是范式转移呢?就是一种认知系统。最出名的认知系统可能就是哥白尼的日心说。在当时，他改变了整个世界的认知系统。因为他的理论是牵一发而动全身的。我们人类在很多时间内，在一个不具备完全信息或者是数据非常缺乏的条件下，建立起对自己、对社会和对世界的一个认知的系统。
 
-reference：
+托马斯库恩是一个著名的科学哲学家，他就说范式转移是对认知的一个改变，从地球是平的到地球是圆的，或者地球是宇宙中心到太阳是宇宙中心。范式一旦形成他就会束缚我们对事物的一个想象力，所以我们就不会把地球看作是宇宙的中心，范式转移就是冲出原有的束缚的限制，为人的思想和行动打开一个创新的可能性。举个例子，数字唱片刚刚出来的时候，很多听磁带或者听黑胶的那些老玩家就对这些东西很不屑，认为数字唱片的精度不如模拟唱片。几十年过后，我们发现没有人再听CD了，除了很专业的人，大部分人都是听Spotify 、Ipod music、QQ音乐或者网易云音乐，这其实就是一个转移，帮我们打开了一个新的思维方式，完全崭新的一个方式去思考这些问题。
 
-[https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project](https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project)
+我们讲第二个思维方式，这个涉及到回归第一性原理，埃隆马斯克常说的第一性原理，就是我们解决事情的时候，要回归到事物的本质上面去。我们就用这个第一性原理去看一个问题。比如说，现在的数字货币或者银行，什么是银行？为什么我们需要钱？谁控制金钱？如何使用？在纸上还是手机上的？这些问题都在七哥的直播里面都讲过。这些是第一性原理的一个广泛的使用。
 
-撰稿、发布：骄子
+**直播视频：**[**https://gettr.com/streaming/p139yc3123f**](https://gettr.com/streaming/p139yc3123f)
 
-* * *
+**编辑****/****发文：蓝枫法律栏目**
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

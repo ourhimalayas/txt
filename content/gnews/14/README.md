@@ -2,25 +2,35 @@
 ---
 
 
-## 俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2304749/)
+## CDC疾控中心主任宣布对该机构进行全面审查
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/2304767/)
 
-**港台前线 zhong｜2022-4-7**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院6日“一致性”通过了“2022年乌克兰民主防卫租借法案”（The Ukraine Democracy Defense Lend-Lease Act of 2022），旨在简化程序、降低官僚主义影响，加快向乌克兰提供关键军援、补给，协助抵御普京无端的袭击。
+加拿大温哥华扬帆农场 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2022/04/210623003752-us-coronavirus-wednesday-0623-exlarge-169.jpg)图片来源：CNN
+CNN 4月4日报道了美国疾病控制和预防中心主任Rochelle Walensky博士周一宣布对美国主要公共卫生机构进行全面审查。
 
-参议院多数党领袖查克．舒默（Chuck Schumer ）于会议称，在布查镇的屠杀是“纯粹的邪恶、俄军在乌克兰进行种族灭绝”。此外，他明确表示普京杀害无辜的平民是种族灭绝罪行。
+Walensky通过电子邮件告诉CDC所有工作人员，这次审查将评估CDC的结构、系统和流程。
 
-美国参议院“一致性”通过租借法案的意义非凡，但仍须经过众议院决议通过后，总统签署、发布后生效。
+从4月11日开始，美国卫生与公众服务部的一名行政管理人员Jim Macrae将加入CDC，进行为期一个月的询问听取意见和评估。Walensky说，Macrae将向她提供关于在该机构将更多的Covid-19应对活动转移分散到其各个中心、研究所和办公室，并进一步加强该机构的科学和项目交付的见解。
 
-4月1日外媒采访德克萨斯州参议员约翰·科宁（John Cornyn），他大力推动“2022年乌克兰民主防卫租借法案”。他向媒体表示：“乌克兰军队证明了抗俄的勇气，努力得到国会两党的广泛支持，美国国会已批准大量对乌的军援，配合『租借法案』将减少程序障碍，确保及时向乌克兰运送武器、物资及其他必需品”。
+Walensky还要求三位高级领导人收集对该机构的反馈意见，包括其目前的结构和改革建议。
 
-来源｜[POLITICO](https://www.politico.com/news/2022/04/06/senate-unanimously-approves-lend-lease-00023668)
+Walensky写道：”在这项收集工作得到结论时，我们将制定新的系统和程序，向美国人民提供我们的科学和计划，同时制定CDC应该如何构建的计划，以促进我们的公共卫生工作”。
 
-* * *
+疾病预防控制中心在一份声明中说，在过去的一年里， “在整个大流行病应对过程中努力加快了数据报告和科学进程，这些工作方法需要制度化和正规化，并找到新的方法使该机构的结构适应环境变化”。
 
-▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+Walensky在声明中说：”在其75年的历史中，CDC从来没有像这样根据有限的、实时的和不断变化的科学来做出如此迅速的决定。COVID-19大流行为整个HHS提供了审查当前组织结构、系统和流程的机会，CDC正在努力对该机构进行战略定位和现代化改造，以促进和支持公共卫生的未来。当我们向各州和地方合作伙伴提出挑战时，我们知道现在是CDC将学到的教训整合到未来战略的时候了”。
+
+“这项工作将使CDC能够开发新的系统和流程，向美国人民提供科学和项目活动，并热切关注该机构的核心能力——公共卫生队伍、数据现代化、实验室能力、健康平等、对疾病爆发的快速反应，以及在美国和世界各地的准备工作。”
+
+评：最重要的数据真实性和透明性应该在审查和改善范围内。
+
+原文链接：
+[https://www.cnn.com/2022/04/04/health/cdc-review/index.html](https://www.cnn.com/2022/04/04/health/cdc-review/index.html)
+
+编辑，发稿 Spirit
+
+
 
  
 
