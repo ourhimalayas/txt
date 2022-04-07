@@ -2,30 +2,12 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
+## 医药厂商只在乎通过给儿童接种疫苗而获利
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301698/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
+04/04/2022 斯蒂芬妮·洛克里奇奥：医药公司通过中共疫苗在儿童身上赚取利润。疫苗的不安全性和无效性被人们忽略了，然而医药机构已经收买了每一家媒体出版物，所以媒体已经成为一种惩罚手段，它们会在疫苗准备就绪的时候提醒家长带他们的孩子打疫苗。
 
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
-访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

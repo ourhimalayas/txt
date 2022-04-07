@@ -2,13 +2,37 @@
 ---
 
 
-## 医药厂商只在乎通过给儿童接种疫苗而获利
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301698/)
+## 改编歌曲|Only you can take down CCP
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2301714/)
 
-04/04/2022 斯蒂芬妮·洛克里奇奥：医药公司通过中共疫苗在儿童身上赚取利润。疫苗的不安全性和无效性被人们忽略了，然而医药机构已经收买了每一家媒体出版物，所以媒体已经成为一种惩罚手段，它们会在疫苗准备就绪的时候提醒家长带他们的孩子打疫苗。
+改编/演唱：香草山商业部——文锤
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+Only you 能消灭盗国贼
+Only you 能保护我
+教战友们有币无苗
+你健身每一天
+就是only you
+Oh oh only you
+能看破生和死
+带领爆料革命
+救援在梅迪卡
+战友们上下都在流水
+最爱看你直播
+灭共有我一个
+南无阿弥陀佛
 
+音频处理：呼吸的雾霾（文小呼吸）
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,12 +2,30 @@
 ---
 
 
-## 【乌克兰救援】04/04/2022 灭共是新中国联邦道义上的职责
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301645/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
 
-【乌克兰救援】04/04/2022 那伊夫战友用俄文或乌克兰语向难民解释，虽然都带有“中国”二字，但新中国联邦与中国共产党有本质区别。乌克兰人认识到，中共与前苏联一样，其邪恶的本质从来没用改变，是这次战争的背后推手。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
+访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

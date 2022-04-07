@@ -15,83 +15,83 @@
 
 ---
 
-### [澳大利亚、美国和英国誓要扩大在高超音速武器方面的合作](/content/gnews/1/README.md)
+### [上海的灾难还远远没有到来](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [布查生还者讲述俄军屠杀期间他们及其家人的经历](/content/gnews/2/README.md)
+### [前俄罗斯军人加入“自由俄罗斯军团”为乌克兰而战](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [改编歌曲|Only you can take down CCP](/content/gnews/3/README.md)
+### [澳大利亚、美国和英国誓要扩大在高超音速武器方面的合作](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [布查生还者讲述俄军屠杀期间他们及其家人的经历](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [改编歌曲|Only you can take down CCP](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [樱花时政┃美欧对俄追加经济制裁 普京女儿资产被冻结](/content/gnews/4/README.md)
+### [樱花时政┃美欧对俄追加经济制裁 普京女儿资产被冻结](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [医药厂商只在乎通过给儿童接种疫苗而获利](/content/gnews/5/README.md)
+### [医药厂商只在乎通过给儿童接种疫苗而获利](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [COVID-19疫苗副作用集萃（2022.4.7）&#8211;接种新冠疫苗第二针后副作用](/content/gnews/6/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.7）&#8211;接种新冠疫苗第二针后副作用](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚](/content/gnews/7/README.md)
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [4/6/2022 乌克兰救援连线: 新中国联邦人在乌克兰救援前线除了救助难民，也将真相传播给当地的华人，每一位战友都是爆料革命的播种机，都在将新中国联邦的影响力扩散到世界各地的华人](/content/gnews/8/README.md)
+### [4/6/2022 乌克兰救援连线: 新中国联邦人在乌克兰救援前线除了救助难民，也将真相传播给当地的华人，每一位战友都是爆料革命的播种机，都在将新中国联邦的影响力扩散到世界各地的华人](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [【乌克兰救援】04/04/2022 灭共是新中国联邦道义上的职责](/content/gnews/9/README.md)
+### [【乌克兰救援】04/04/2022 灭共是新中国联邦道义上的职责](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [警惕中共以屠杀患者来实现“动态清零”](/content/gnews/10/README.md)
+### [警惕中共以屠杀患者来实现“动态清零”](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【乌克兰救援】04/04/2022 一位日本自媒体人为难民和爆料革命献上“和平之花”](/content/gnews/11/README.md)
+### [【乌克兰救援】04/04/2022 一位日本自媒体人为难民和爆料革命献上“和平之花”](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [COVID-19疫苗副作用集萃（2022.4.7）&#8211;接种新冠疫苗第二针后副作用](/content/gnews/12/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.7）&#8211;接种新冠疫苗第二针后副作用](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧盟公布对莫斯科的新制裁](/content/gnews/13/README.md)
+### [欧盟公布对莫斯科的新制裁](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [让我们共同寻找这位威胁恐吓并传唤上海居民的中共恶警](/content/gnews/14/README.md)
+### [让我们共同寻找这位威胁恐吓并传唤上海居民的中共恶警](/content/gnews/16/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [阿尔伯塔省首席卫生官被免职](/content/gnews/15/README.md)
+### [阿尔伯塔省首席卫生官被免职](/content/gnews/17/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [法学教授副会长之争靠网络舆论讨公道，法治何在？](/content/gnews/16/README.md)
+### [法学教授副会长之争靠网络舆论讨公道，法治何在？](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [COVID-19疫苗副作用集萃（2022.4.7）&#8211;急性髓系白血病](/content/gnews/17/README.md)
+### [COVID-19疫苗副作用集萃（2022.4.7）&#8211;急性髓系白血病](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [英国首相：乌克兰布查镇事件与种族灭绝无异](/content/gnews/18/README.md)
+### [英国首相：乌克兰布查镇事件与种族灭绝无异](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [安省已接种疫苗者的死亡率不断增高](/content/gnews/19/README.md)
+### [安省已接种疫苗者的死亡率不断增高](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [美国黑人社区开始意识到中共带来的伤害](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭文贵先生2022年4月6日盖特视频（4分57秒）全文字版](/content/gnews/21/README.md)
+### [郭文贵先生2022年4月6日盖特视频（4分57秒）全文字版](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [没有法律的社会太可怕了，没有信仰的社会太危险了-郭文贵先生在4月6日的盖特短视频文字版](/content/gnews/22/README.md)
+### [没有法律的社会太可怕了，没有信仰的社会太危险了-郭文贵先生在4月6日的盖特短视频文字版](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [因疫情恶化新省医疗系统不堪重负](/content/gnews/23/README.md)
+### [因疫情恶化新省医疗系统不堪重负](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
 
-### [中共祭出60年前的“枫桥经验”，意欲何为？](/content/gnews/24/README.md)
+### [中共祭出60年前的“枫桥经验”，意欲何为？](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2022年4月7日《樱花快报》：美国参众两院推出制裁中共法案 以保护台湾免受入侵](/content/gnews/25/README.md)
+### [2022年4月7日《樱花快报》：美国参众两院推出制裁中共法案 以保护台湾免受入侵](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：连线前线Medyka&#8212;-未来全球农场将做两个重要安排](/content/gnews/26/README.md)
- ` 雅典娜GNotes`
 
 ### [疫苗护照导致货运卡车司机严重短缺](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场《枫叶快讯》`
