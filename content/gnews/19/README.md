@@ -2,8 +2,8 @@
 ---
 
 
-## 20220406郭文贵大直播 ：前线救援现场有战友火速加入德国农场
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303128/)
+## 20220406郭文贵大直播 ：全球音乐灭共,射向共产党灵魂的核弹
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303192/)
 
 作者：东京樱花团小视频组
 

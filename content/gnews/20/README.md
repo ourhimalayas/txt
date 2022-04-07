@@ -2,29 +2,34 @@
 ---
 
 
-## 有声｜拖延禁运俄罗斯石油将使更多人失去生命
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2303113/)
+## 美财政部：如果中共入侵台湾，美国马上制裁
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303175/)
 
-**By:秘翻新闻**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1x-1-1-scaled.jpg)美财政部长
+4月6日周三，美财政部长耶伦表示，如果中共进军台湾，拜登政府将会使用所有的制裁工具来对付中共。
 
-**2022-04-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-07-163509.jpg)
-**[路透社](https://www.reuters.com/world/europe/ukraines-zelenskiy-delay-russia-oil-embargo-decision-is-costing-lives-2022-04-06/)**4月7日报道，乌克兰总统泽连斯基周四呼吁，西方应该迅速就禁运俄罗斯石油达成一致，因为拖延禁运正在让乌克兰人付出生命的代价。
+俄罗斯对乌克兰的入侵和中共对台湾的进军，都是侵略性国家的作为，人们担忧世界大国是否能够防止台湾发生和乌克兰的类似危机，台湾拥有2300万人口，也是全球芯片的主要来源。周三众议院金融服务委员会上，共和党议员Patrick McHenry提问，财政部是否会像制裁俄罗斯那样制裁中共对台湾入侵？耶伦回答说，目前对俄罗斯的经济制裁表明美国会对侵略性国家带来巨大的痛苦，任何人都无须怀疑美国在其他情况下实行制裁的能力和决心。
 
-在清晨的视频讲话中，泽连斯基还表示，他将继续坚持把俄罗斯银行从国际金融体系中完全封锁。
+耶伦还表示，拜登总统希望将俄罗斯驱逐出G20集团国。若在印尼举办的G20会议上出现俄罗斯，美国将会抵制G20会议的所有议程并拒绝参加会议。
 
-泽连斯基还指出，由于一些政治家为避免自己国家的经济处于危险，仍无法决定如何限制流向俄罗斯的石油美元和石油欧元。莫斯科从石油出口中赚了很多钱，所以它不需要认真对待和平谈判。
+reference：
 
-美国周三以新一轮制裁为目标，对俄罗斯的银行和精英们进行了制裁。泽连斯基说，这一宣布虽然壮观，但还不够。
+[https://www.scmp.com/news/world/russia-central-asia/article/3173314/us-would-use-sanctions-if-china-invaded-taiwan](https://www.scmp.com/news/world/russia-central-asia/article/3173314/us-would-use-sanctions-if-china-invaded-taiwan)
 
-俄罗斯对乌克兰长达六周的入侵已迫使400多万人逃离家园，成千上万人死亡或受伤，城市和城镇被摧毁。
-
-（秘密新闻  大树  编译报道）
-
-发布:星星
+撰稿、发布：骄子
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
