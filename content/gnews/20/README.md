@@ -2,20 +2,12 @@
 ---
 
 
-## 2022年4月7日《樱花快报》：美国参众两院推出制裁中共法案 以保护台湾免受入侵
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301325/)
+## 美国黑人社区开始意识到中共带来的伤害
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2301518/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/20220407快报.jpg)
+04/04/2022 班农战斗室：美国黑人社区开始意识到美国商会为中共服务，受教育程度低和不熟练的黑人受到了严重伤害。
 
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

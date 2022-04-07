@@ -2,26 +2,43 @@
 ---
 
 
-## 樱花时政┃中共网信办：禁止祭祀活人
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301008/)
+## 中共是如何洗脑百姓的
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2301083/)
 
-撰稿：东京樱花团/加一颗稻草
+整理：Mohegayer K. Simon
+编辑：守望黎明
 
-中新财经4月2日电，据“网信中国”公众号消息，近日，国家互联网信息办公室相关部门下发通知，部署开展清明期间网络祭扫规范管理工作，强调要严防活人被祭拜，不得随意创建网上烈士纪念馆等。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-659.png)图片来源：GNEWS
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-14.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fimg%2Fd%2Fce7%2FnBnauM3X0QTN5YDNxEDM3UzM1UTM1QDN5MjM5ADMwAjMwUzLxAzL1czLt92YucmbvRWdo5Cd0FmL0E2LvoDc0RHa.jpg&amp;imgrefurl=https%3A%2F%2Fwww.easyatm.com.tw%2Fwiki%2F%25E9%2595%25B7%25E7%2594%259F%25E7%2589%258C&amp;tbnid=amb7h8Fom-bKbM&amp;vet=12ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ..i&amp;docid=8XKs493HYsPjlM&amp;w=268&amp;h=207&amp;q=%E9%95%BF%E7%94%9F%E7%89%8C&amp;ved=2ahUKEwjux7HcvID3AhVV44UKHaGHB28QMygAegUIARClAQ#imgrc=amb7h8Fom-bKbM&amp;imgdii=GTQefx0i6hPxeM)
 
-中国民间有蛊术，立一营，营内一台，结一草人，人身上书敌人姓名，头上一盏灯，足下一盏灯，脚步罡斗，书符结印焚化，一日三次拜礼，至二十一日之午时，敌爆毙。
+中共的洗脑是一项庞大的系统工程。就是在封闭的环境中采用暴力威胁和高强度的思想灌输。用中共的话说，就是“思想改造”。让人从肉体上的怕，到心理上的依赖，反复灌输、不断重复，直到让人变成只听党的话的驯服工具。屏蔽外国网页只是其中的一部分，这个系统工程包括学校教育、舆论宣传、图书出版和流行文化等各个方面。在学校教育方面，孩子从幼儿园开始就会学唱爱国爱党歌曲，学画天安门和五星红旗，中小学语文课本中为了洗脑而胡编乱造。
 
-中国道教给生人立牌位叫长生牌或禄位牌，引日月星三光，求吉祥增加福气。佛教立福主牌佛光注照。《礼记．曲礼》记载：“非其所祭而祭之，名曰淫祀。淫祀无福。”《礼记．祭法》载：“夫圣王之制祭祀也，法施于民则祀之，以死勤事则祀之，以劳定国则祀之，能御大菑则祀之，能捍大患则祀之。”所以，历史上通常是给有功绩百姓的人，会由百姓们集中修建生祠，然后里面供上长生牌位。明天启间，宦官魏忠贤擅政，权倾一时，生祠遍于各地，其下场众所周知。以上道理老百姓都懂。
+中共的洗脑方法很多，我们可以从下面几个方面看一下：
 
-全国范围内只有你习近平，有文人替你著书立传歌功颂德，已然成为大救星红太阳了，你个全民大大，怎么突然就这么不自信了？
+1.无神论的党文化。共产党本是黑帮、流氓、邪教的集合体，不相信善恶有报，做起恶来从无底线，沉迷于物质生活的满足。
 
-消息来源：[国家网信办：不得随意创建网上烈士纪念馆](http://m.chinanews.com/wap/detail/zw/sh/2022/04-02/9718389.shtml)
+2.混淆中共与中国的区别，让你觉得批评中共就是反华辱华，反党就是不爱国。只要批评中共的人权劣迹、揭露中共的恶行，就会被洗脑的人们认为是反华势力。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+3.宣传说如果没有共产党的强权统治，中国就会陷入动乱。事实上共产党是各种动乱的根本因素，没有了共产党，才有新中国。
+
+4.四十年的经济发展，给了中共用来洗脑的本钱。经济发展是全球化带来的机会，是人民血汗积累的成果，但是共产党悉数拿来为自己贴金。其实儒家文化圈的亚洲“四小龙”，没有共产党，不也是发展得很好吗？
+
+5. 暴力仍然是中共洗脑的基础。除了从肉体上折磨和消灭反抗者，中共还利用高科技来实施数字暴力，大数据、监控器等高科技都用到控制人民的身上，把中国变成了一个大号的监狱。
+
+- 任何洗脑都离不开封闭性的谎言灌输。建立防火墙、封锁海外信息、大量编造假新闻就是中共的基本手段。以此让民众觉得西方社会都是动荡不安、民不聊生，只有中共统治的地方最安全。不少中国人哪怕到了西方，天天还是在看国内的网站，继续相信国内的欺骗宣传，这也是洗脑的一种境界。
+- 宣扬百年屈辱，宣扬民族主义。灌输只有共产党才能救中国。把勇于反抗中共的人，宣扬成敌对势力、是中国人民的敌人。
+
+
+参考链接：[【百年透视】剖析中共洗脑术](https://www.epochtimes.com/gb/21/7/3/n13064830.htm)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

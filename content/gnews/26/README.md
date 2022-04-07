@@ -2,28 +2,33 @@
 ---
 
 
-## 樱花时政┃日本8日起解除106个国家的入境禁令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2301131/)
+## 大直播后记：连线前线Medyka&#8212;-未来全球农场将做两个重要安排
+` 雅典娜GNotes` [轉載自GNews](https://gnews.org/zh-hans/2301293/)
 
-撰稿：东京樱花团/立正道
+整理：Lucy Liu、奮鬥
+编辑：skyandmoon
 
-日本政府于6日晚召开了国家安全保障会议的紧急状况大臣会议，决定解封美国、英国、法国、欧洲、亚洲等106个国家的针对中共病毒（新冠病毒Covid-19）感染而制定的入境措施。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-99.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpgw.udn.com.tw%2Fgw%2Fphoto.php%3Fu%3Dhttps%3A%2F%2Fuc.udn.com.tw%2Fphoto%2F2022%2F04%2F06%2Frealtime%2F16542178.jpg%26s%3DY%26x%3D0%26y%3D0%26sw%3D1280%26sh%3D853%26exp%3D3600&amp;imgrefurl=https%3A%2F%2Fudn.com%2Fnews%2Fstory%2F121707%2F6219794&amp;tbnid=_RysVVwD6SflbM&amp;vet=12ahUKEwi5sqyd04D3AhUo1eAKHXY_BhAQMygAegUIARCEAQ..i&amp;docid=Xx66QAPe0i41rM&amp;w=1280&amp;h=853&amp;itg=1&amp;q=%E8%A7%A3%E9%99%A4%E5%85%A5%E5%A2%83%E6%8E%AA%E6%96%BD%20%E6%97%A5%E6%9C%AC&amp;ved=2ahUKEwi5sqyd04D3AhUo1eAKHXY_BhAQMygAegUIARCEAQ)
-综合判断对象国家的感染状况和疫苗接种情况等，解除对象是
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片23-3.png)图片来源：雅典娜设计组
 
-▽北美的美国和加拿大,
 
-▽欧洲的英国、法国、德国、意大利。
+老班长：然后，这一次救援活动会给我们未来的全球农场做两个重要的安排。
 
-另一方面，拒绝入境的措施持续的是俄罗斯、伊拉克、埃塞俄比亚等56个国家和地区。
+第一个，我们未来要建救援的机制，即在每一个农场都要有一批正规培训的，符合要求的救援成员、义工。以后有什么事，世界各地我们招之即来，呼之即走，就是有一个过硬的队伍。
 
-消息来源：
+第二个，我们要建立什么呢？前方每个地区的记者站，就是合乎标准的记者。我们开始的时候，确确实实不知道怎么扮演好一个记者的角色。记者，是一个记录者，你是在记录这个时间，这个地点发生了什么事情？或者有采访？或者你看不到的，可以通过亲历者，走过来的难民，知道他们的口述，和当地发生了什么事情？是什么样的生存状态？战争的场面是什么样的？这是全世界都要知道的。而我们拥有这样的第一手资料就应该发送给大家，让全世界都了解到前面的真正战况。我们虽然不能深入到战场的第一线，但是我们已经在救援的第一线了，非常弥足珍贵。你们每一个镜头，每一个视频，每一个文章，都是非常弥足珍贵的。我们现在后面也组织了一个更加有效率的文宣团队，要把你们前线发来的所有信息整编出来后，迅速地在各个媒体上去发表。除了我们盖特，我们的Gnews之外，也会在推特，包括油管等做出各种视频宣传资料，或者文字的宣传资料发送给大家，再次感谢你们，真的非常了不起。
 
-[米英仏など106か国の入国拒否を解除 8日から（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/fdfe363559d86ecf9f5eded608965f3dc47a1611)
+文耀：我再说一句吧，就像刚才老班长说的，我们现在这个任务还没有完成，但是实际上联盟对未来已经有了很好的计划。我觉得这真的是好事。的确，救援工作不是一个简单的工作，它是一个很专业性的，而且要求有很高管理性质的一份工作，要有条不紊的。讲实话，我这次个人也有很多遗憾的地方。我也是想在这个任务完成之后，有一些专业性的知识，我个人也是很有兴趣去把它们补充学习起来的。我认为我们整个联盟，包括我们这个国家（新中国联邦），在将来要为了更多的救助，不光是战争，人道危机，包括自然灾害等等。我们都可以伸出我们的援手，去救助所有需要救助的人们，把这个当作未来展现新中国联邦实力的一个任务。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+资料來源：[2022.4.6文贵大直播](https://www.gettr.com/streaming/p13unl27254)
+
+发布：tianzhihuan
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

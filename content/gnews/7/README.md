@@ -2,27 +2,30 @@
 ---
 
 
-## 安省已接种疫苗者的死亡率不断增高
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2301529/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月6日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2301663/)
 
-采编： 加拿大温哥华扬帆农场 – 文莱
-
-翻译编辑：加拿大温哥华扬帆农场 – 文所未闻
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-670.png)图片来源：cbc news
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-21.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-6.png)
 
 
-据自媒体《反信号》4月5日报道，尽管主流媒体仍在为注射疫苗加强针摇旗呐喊，但官方数据却显示：在安省因感染新冠病毒而死亡的病例中，已接种疫苗者数量要远超未接种者。
+校对：Stay文苑
 
-据悉，目前未接种疫苗者的新冠病毒感染死亡率为0.02，而那些已完全接种以及注射了疫苗加强剂的人，感染死亡率则为0.03。同时，根据住院和重症监护室病例情况，已接种病人数量远远超过未接种患者。
+编辑：Stay文苑
 
-报道指出，由于在整个疫情期间，约有10%的加拿大人感染了新冠病毒，总体死亡接近0.01%，并与每年的流感死亡率接近。因此，当局所推行的疫苗接种，其有效性不言而喻。
+发稿：Stay文苑
 
-校对编辑：硫酸羟氯喹64
+新闻：[https://gettr.com/post/p13y5qge6b6](https://gettr.com/post/p13y5qge6b6)
+访谈：[https://gettr.com/post/p13yv8f829d](https://gettr.com/post/p13yv8f829d)
 
-发稿：青青
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1-1-5.jpeg)
 
-原文链接： [https://thecountersignal.com/ontario-covid-death-rate-among-vaccinated-surpasses-unvaccinated/](https://thecountersignal.com/ontario-covid-death-rate-among-vaccinated-surpasses-unvaccinated/)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
