@@ -2,24 +2,35 @@
 ---
 
 
-## 西媒头条 — 第202期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305141/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月7日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2305178/)
 
-制作：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-5.jpg)
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息**。
+作者：香草山翻译部
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xm220407.001.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-2.png)
 
-发稿：信心的选择
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-6.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.07早 《NFSC新闻》](https://www.gettr.com/streaming/p1412la2f3b)
+[2022.04.07早《NFSC新闻访谈》](https://www.gettr.com/streaming/p141dn24191)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-11-2.png)
 
  
 
