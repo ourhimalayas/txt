@@ -15,92 +15,92 @@
 
 ---
 
-### [有声|醒来](/content/gnews/1/README.md)
+### [有声|香港在流血](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [纽约最高院法官因拒绝新冠疫苗可能被免职](/content/gnews/2/README.md)
+### [五月花简报（04/07/2022）](/content/gnews/2/README.md)
+ ` mayflowertranslate`
+
+### [有声|香港在流血](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [维基百科的肮脏小秘密](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|醒来](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [纽约最高院法官因拒绝新冠疫苗可能被免职](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|中国人为什么到死都永不反抗](/content/gnews/3/README.md)
+### [有声|中国人为什么到死都永不反抗](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声|推墙反共是活路](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [【转】截至4.7 俄乌战事汇总](/content/gnews/5/README.md)
+### [【转】截至4.7 俄乌战事汇总](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/6/README.md)
+### [新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/9/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声新闻-新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/7/README.md)
+### [有声新闻-新西兰财经G乐部2022年4月7日:财经新闻整理](/content/gnews/10/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [《避风港Haven》直播内容精选（第三十二集）](/content/gnews/8/README.md)
+### [《避风港Haven》直播内容精选（第三十二集）](/content/gnews/11/README.md)
  ` 喜马拉雅纽约磐石农场`
 
-### [乌克兰将效法以色列全民皆兵](/content/gnews/9/README.md)
+### [乌克兰将效法以色列全民皆兵](/content/gnews/12/README.md)
  ` NFSC News`
 
-### [超过70名俄士兵在切尔诺贝利核电站受辐射伤害](/content/gnews/10/README.md)
+### [超过70名俄士兵在切尔诺贝利核电站受辐射伤害](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美司法部长，商务部长和发言人佩洛西检测呈阳性](/content/gnews/11/README.md)
+### [美司法部长，商务部长和发言人佩洛西检测呈阳性](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票](/content/gnews/12/README.md)
+### [俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票](/content/gnews/15/README.md)
  ` 關注組`
 
-### [众议院通过法案为记录俄罗斯在乌克兰犯下的战争罪行](/content/gnews/13/README.md)
+### [众议院通过法案为记录俄罗斯在乌克兰犯下的战争罪行](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/14/README.md)
+### [乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/17/README.md)
  ` NFSC News`
 
-### [美联储会议纪要透露加速紧缩信号](/content/gnews/15/README.md)
+### [美联储会议纪要透露加速紧缩信号](/content/gnews/18/README.md)
  ` 加拿大温哥华英里农场`
 
-### [耶伦表示俄罗斯应被驱逐出G20](/content/gnews/16/README.md)
+### [耶伦表示俄罗斯应被驱逐出G20](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [国际社会将进一步制裁俄罗斯](/content/gnews/17/README.md)
+### [国际社会将进一步制裁俄罗斯](/content/gnews/20/README.md)
  ` NFSC News`
 
-### [北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎](/content/gnews/18/README.md)
+### [北约秘书长:若芬兰和瑞典申请加入NATO，他们将受到欢迎](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美、英、澳承诺共同研究高超音速武器](/content/gnews/19/README.md)
+### [美、英、澳承诺共同研究高超音速武器](/content/gnews/22/README.md)
  ` NFSC News`
 
-### [NFSC新闻、NFSC新闻访谈简报|2022年4月7日早](/content/gnews/20/README.md)
+### [NFSC新闻、NFSC新闻访谈简报|2022年4月7日早](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [2022年4月7日，全球中共病毒疫情情况汇总](/content/gnews/21/README.md)
+### [2022年4月7日，全球中共病毒疫情情况汇总](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西媒头条 — 第202期](/content/gnews/22/README.md)
+### [西媒头条 — 第202期](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠](/content/gnews/23/README.md)
+### [台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠](/content/gnews/26/README.md)
  ` 關注組`
 
-### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/24/README.md)
+### [财政部长耶伦：如果俄罗斯加入G20，美国将不参加](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [德国截获俄罗斯讨论布查杀人事件的电话](/content/gnews/25/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [6月马德里北约外长会议讨论灭共战略](/content/gnews/26/README.md)
+### [6月马德里北约外长会议讨论灭共战略](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`
 
-### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/27/README.md)
+### [疫情｜美政府官员爆确诊潮 病毒？苗毒？](/content/gnews/29/README.md)
  ` 關注組`
-
-### [【秘翻时评】 上海人封城快断粮 电视台吁：轻断食](/content/gnews/28/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [停止俄罗斯的联合国人权理事国资格，今晚表决&#8230;&#8230; 投票数三分之二为赞成票](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [文贵大直播|中共粮食危机和将对台湾毁灭性的打击](/content/gnews/30/README.md)
  ` KarmaLabs`
