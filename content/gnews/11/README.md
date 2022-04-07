@@ -2,34 +2,39 @@
 ---
 
 
-## 马尔代夫扣押俄罗斯亿万富翁的游艇
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2304137/)
+## 有声|越多人参与才会使社交媒体会越来越好
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2304215/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在4月3日的大直播中解析了诶隆-马斯克的社交媒体与新中国联邦媒体平台的区别。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide3-3.jpeg)
+郭先生指出，仅以社交媒体平台的发展来看，马斯克所做出的成果必然远远超过脸书和推特，领先全球。但倘若以平台的理念为评估，新中国联邦所属媒体的目标是马斯克无法企及的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+郭先生解释道，新中国联邦目前正在改变共产党、俄罗斯，甚至是世界的政治板块；而我们媒体的宗旨是颠覆共产党流氓集团的政权、铲除人类社会中最大的恶魔，并拯救中国十几亿人口。因此，相较于新中国联邦建立的有情怀、有信仰的媒体，马斯克的平台则将是一个绝对成功的商业社交媒体。
+
+为此，郭先生也强调称，相比中共一家独大的流氓心态，马斯克加入社交媒体平台的竞争行列将有利于世界的发展，且任何领域和环境都只有在竞争中才能逐渐趋向平衡，从而最终变得文明而伟大，并真正造福于百姓。
 
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/BZHEZNC2Y5JZXI7IGRAODKHEW4.jpg)
 
+文字版原文：[越多人参与才会使社交媒体会越来越好](https://gnews.org/zh-hans/2296354/)
 
-资料来源：路透社
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-海事数据显示，在煤炭和化肥亿万富翁安德烈·梅尔尼琴科于 3 月 9 日被列入欧盟制裁名单的第二天，他的超级游艇 Motor Yacht A 在马尔代夫海域停止公示其位置。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-四天后，在意大利，当局扣押了梅尔尼琴科的另一艘船只，世界上最大的帆船，意大利金融警察估计价值 5.78 亿美元。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-关闭允许当局跟踪船舶行踪的设备可以帮助将游艇远离他们的视线。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-但在马尔代夫，对受制裁寡头的财产采取行动的可能性无论如何都微乎其微，据对十几位熟悉内部讨论的人士（包括政府部长、外交官和专家）的采访显示，他们就如何应对美国和欧洲的金融制裁进行了内部讨论。该国的超级游艇产业。
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-马尔代夫当局在执行俄罗斯入侵乌克兰后实施的制裁时采取的谨慎态度意味着这个印度洋岛国已成为拥有游艇的俄罗斯寡头的一个有吸引力的目的地。
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-梅尔尼琴科的船只是在印度西南部马尔代夫环礁之间滑行的六艘与俄罗斯有关的游艇之一，因为西方国家对一些寡头实施制裁以应对 2 月 24 日的入侵。
-
-🔗[https://www.reuters.com/world/maldives-shelters-sanctioned-russian-billionaires-yachts-2022-04-07/](https://www.reuters.com/world/maldives-shelters-sanctioned-russian-billionaires-yachts-2022-04-07/)
-
-责任编辑、发布： Shuizhuyu
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,32 +2,39 @@
 ---
 
 
-## 印度石油公司(BPCL)购买200万桶五月装运的俄罗斯乌拉尔原油
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2304071/)
+## 有声|灭共，只剩半年时间
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2304185/)
 
-**撰稿：日本东京方舟农场  JIHO**
+配音：香草山佛教部 – 李傻
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+七哥进山，好消息不断，很明显世界已经醒来。
+国内：中共内部决斗定生死结果就在二十大，成王败寇，谁能在二十大露头意味着另一方将走进秦城。
+国际：随着病毒真相浮出水面，加上俄乌战争，中共已经是秃子头上的虱子——明摆着要颠覆世界奴役各国政府。美国等还有一点底线的文明西方随时干掉北斗卫星为世界铲除共匪奠定基础。
 
-根据路透社新德里消息，两名熟悉采购情况的消息人士称，印度巴拉特石油公司 (BPCL) 已从贸易商托克公司购买了 200 万桶俄罗斯乌拉尔原油，用于 5 月装货。
+七哥说的三个国家对HCN的认可以及多个国家计划随时否定中共与新中国联邦建立关系，这一切都已经箭在弦上，就看什么时候扣动扳机。
 
-自 2 月 24 日俄罗斯入侵乌克兰以来，世界第三大石油进口国和消费国的印度的炼油商，利用其他买家退缩情况下的大幅折扣，通过现货交易抢购俄罗斯石油。巴拉特石油公司(BPCL) 和Trafigura(托克公司)没有立即回应置评请求。
+国内二十大大关，俄乌战争，攻打台湾等都是让中共垂涎三尺的鱼饵，一吃必死，天时地利人和一应俱备，时间应该不会超过今年。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-5.jpeg)图片来自路透社
 
-据悉，这家国营炼油厂定期为其位于印度南部的每天加工 31万桶石油的高知炼油厂购买俄罗斯乌拉尔原油。
 
-据路透社计算，随着 BPCL 的购买，自 2 月 24 日以来，印度迄今已订购了至少 1600 万桶俄罗斯原油，相当于 2021 年全年的进口量。
+文字版原文：[灭共，只剩半年时间](https://gnews.org/zh-hans/2300482/)
 
-由于一些买家回避俄罗斯原油，乌拉尔原油对布伦特原油的折扣已经创下了后苏联时代的记录，与几个西方国家不同，印度没有禁止进口俄罗斯石油。
+音频处理：Tom Li
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
+**更多资讯，更多关注**
 
-在印度谴责俄罗斯在乌克兰杀害平民并呼吁进行独立调查的第二天，印度外交部长 S. Jaishankar 周三表示，政府正在努力稳定与俄罗斯的经济交易。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Jaishankar 在议会告诉立法者，俄罗斯仍然是一个重要的经济伙伴，并且正在努力“稳定印度和俄罗斯之间的经济交易”印度财政部长Nirmala Sitharaman上周表示，如果能以折扣价购买俄罗斯石油，印度将购买。“印度的整体利益是我们牢记在心的……我会把我国家的国家利益放在首位，我会把我国家的能源安全放在首位，”Nirmala说。
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-参考链接：
-1. [https://reurl.cc/rQMelE](https://reurl.cc/rQMelE)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑：青城道姑
-校对发布：文曦
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

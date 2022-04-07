@@ -2,27 +2,34 @@
 ---
 
 
-## 【G时新闻】警惕中共以屠杀患者来实现“动态清零”
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2304086/)
+## 美国国家安全面临严重威胁，因中共战略核武库存扩张
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304191/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【莉李鲤】
-视频制作：加拿大温哥华扬帆农场 -【文雅】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-大家好！今天的主题是警惕中共以屠杀患者来实现“动态清零”！ 中共病毒疫情已迈入第三年，墙内一直采取严格的“动态清零”政策，已给民生经济造成严重影响。随着病毒变异，“动态清零”防疫措施难度越来越大、成本越来越高。现在越来越多的本土新发疫情，证明这种清零政策是完全失败的。善良的中国人应警惕中共以屠杀患者来实现“动态清零”。 西安受双疫情封城至今，不断传出奇葩事。今年一月陕西省领导提出4日“社会面清零”，百姓密切关注是怎么做到“一夜清零”？后来有人拍到在“社会面清零”前一、二天，有大批车把患者转移到外地去，人们隐隐担心，中共会不会以屠杀患者实现人工清零？ 两年前武汉爆发疫情时，就有消息曝光出来，当时的清零官员把患者拉到一处把门封死，死活不管；还有患者直接拉到雷神山火神山火化的；还有封死小区或住宅门任患者饿死病死在家的。 现在上海人都说，感染新冠不可怕，抓进方舱最可怕。“动态清零”就是将疫苗引发的阳性尽快都拉去方舱隔离，死亡的要尽快用移动火化了快速气化处理。上海新一轮的防疫真正做到了极致：文革手段，持枪上岗，隔离到最后让人饿死、气死、病死。现在民众担心中共要将患者强行转移外地进行隔离，生死听天由命，如此可以实现社区面清零。 此次上海封城让中国金融中心及经济中心城市长时间停摆，将对中共国经济造成重创，并将加速中共国假擀面杖经济的崩溃。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-20.58.44.png)
+日前美国战略司令部长警告美国，中共目前正在进行大规模的战略核武库扩张。
 
-盖特链接：[https://gettr.com/post/p141izu020d](https://gettr.com/post/p141izu020d)
+据五角大楼的报告显示，中共希望在2027年将目前核弹头增加一倍，达到700颗，到2030年希望是1000颗。这比正常预估增多了一倍。中共还在扩大海陆空等运载核弹头的能力，并扩大必要的基础设施。在地广人稀的西部地区加大资金投入用于建立核导弹场，每个已知的核导弹场大约有120个导弹筒仓。中共还有地球卫星和地面大型雷达用来监控导弹和隐形飞机。2021年7月中共首次试验新型洲际导弹，配备有DF-ZF（东风导弹），它可以在世界任何地方进行精确打击，也可以用来运送核武器。该试验是迄今为止地球上的陆地攻击系统中的最远距离和最长飞行时间。
 
-编辑/发文 -【让子弹飞飞飞】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
+随着中共对其核武器的大规模投资，它可以联合俄罗斯将地区冲突升级为任何级别的暴力，严重威胁到美国乃至整个世界的安全。
+
+reference：
+
+[https://newstarget.com/2022-04-06-us-national-security-threatened-china-nuclear-arsenal.html](https://newstarget.com/2022-04-06-us-national-security-threatened-china-nuclear-arsenal.html)
+
+撰稿、发布：骄子
+
 * * *
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+欢迎订阅我们的GNews账号：
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

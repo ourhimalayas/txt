@@ -2,30 +2,34 @@
 ---
 
 
-## 美国参议院一致通过“乌克兰民主防御租借法案”
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2303912/)
+## 五角大楼表示乌克兰士兵正在受训无人机
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303978/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-116.jpg)
+4月6日周三，一名五角大楼的官员表示，乌克兰士兵正在美国接受训练，这些训练是关于美国提供给基辅的致命Switchblade无人机。
 
-据Politico网站4月7日报道，参议院周三晚些时候一致通过了一项重大法案，以恢复二战时期的“租借法案”，该法案允许总统乔·拜登更有效地向乌克兰运送武器和其他物资。
+据悉Switchblade无人机以发射时翅膀的展开方式命名，它利用遥控飞行炸弹直接将目标炸毁，又被称为游荡炸弹，并且可以飞到目标区域并呆在原地，待到合适的时机再摧毁目标。最初版本的Switchblade体积非常小，可以直接装在背包里，曾被派驻阿富汗的美军使用。后来开发了一个较大的版本。五角大楼未透露哪个版本被运往乌克兰，也可能两者皆有。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-8.jpeg)美国参议院批准了乌克兰租借法。（图片来自Politico）
+美国防部发言人称大约十几个乌克兰军人正在接受训练，他们学会了可以回到乌克兰继续训练其他人，以对抗俄罗斯的入侵。
 
-租借法案（Lend-Lease Program）是美国国会在第二次世界大战初期通过的一项法案，目的是在美国不卷入战争的同时，为同盟国提供战争物资，租借法案使得美国成为名副其实的“民主兵工厂”。 在第二次世界大战期间创建的租借法案被认为是大规模冲突的转折点。
+reference：
 
-星期三晚上，美国国会参议院重启了租借法案以快速提供乌克兰军事装备与关键物资的援助。该法案全名为”乌克兰民主防御租借法案”，将通过削减官僚主义的繁文缛节，加快向乌克兰转移关键军事装备和其他关键物资。它允许事实上赠送设备，并规定接受国将在晚些时候偿还美国。
+[https://www.ndtv.com/world-news/pentagon-says-ukrainian-soldiers-getting-drone-training-in-us-2867567](https://www.ndtv.com/world-news/pentagon-says-ukrainian-soldiers-getting-drone-training-in-us-2867567)
 
-“乌克兰民主防御租借法案“标志着美国及其欧洲盟友认为俄罗斯入侵对自由秩序构成生存威胁。同时也表明，西方世界认为乌克兰现在可以赢得与俄罗斯侵略者的斗争。
+撰稿、发布：骄子
 
-该法案尚等待众议院周四表决。
+* * *
 
-参考链接：
-1. [https://reurl.cc/VjkxvQ](https://reurl.cc/VjkxvQ)
-2. [https://reurl.cc/LpROrX](https://reurl.cc/LpROrX)
+欢迎订阅我们的GNews账号：
 
-总编：老孙
-校对发布：文曦
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
