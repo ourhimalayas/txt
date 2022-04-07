@@ -2,18 +2,31 @@
 ---
 
 
-## 视频|中共银行周末紧急开会布置防挤兑措施
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2303742/)
+## 有声|哪里有中共王毅哪里就将出现灾难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2303864/)
 
-制作：香草山视频部
+录音：香草山文艺部 – maggie 喵
+![](https://assets.gnews.org/wp-content/uploads/2022/04/%E6%96%B0%E5%9B%BE%E6%A0%87-1.png)
+只要中共王毅出现的地方，就会很快出现灾难。
 
-郭文贵先生在4月4日的盖特直播中透露，中共的几大商业银行在刚刚过去的这个周末，纷纷召开了紧急会议布置措施，防止这星期有可能发生的银行挤兑。   会议要求凡是取款超过5万元人民币的，或是企业取款超过工资发放水平的，银行均需报上一级领导批准；同时，当地公安机关和纪委都将派驻专员进入企业，监督提款和资金的使用情况。   郭先生指出，中共国所谓前十大房地产开发商，包括融创、恒大、保利、富力、合生创展和碧桂园等，都处于欠债不还的状态，而被其拖欠债务的建设施工单位和装修公司都陷入了资金周转不灵的破产边缘。整个中共国经济的崩塌，包括银行、房地产的倒塌即将到来！
+2017年爆料革命开始以来，每当出现让全世界神经紧绷的大事件之前，中共的外交部长王毅都会出现在与之相关核心国家的新闻中。首先近两年半以来最让人揪心的就是由中共病毒带来的恐慌。而在中共国武汉暴发疫情的半年前，王毅就警告世界不要逼迫我们打开潘多拉的盒子。
 
-发稿：Daxia
+原文链接：[哪里有中共王毅哪里就将出现灾难](https://gnews.org/zh-hans/2299793/)
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+音频处理/发稿：Daxia
 
 **更多资讯，更多关注**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Gnews-logo-1-87.png)
+
+
 
  
 

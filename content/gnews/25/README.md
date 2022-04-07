@@ -2,34 +2,28 @@
 ---
 
 
-## 美财政部：如果中共入侵台湾，美国马上制裁
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303175/)
+## 日本呼吁警惕奥密克戎亚型变异株BA.2
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2303295/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1x-1-1-scaled.jpg)美财政部长
-4月6日周三，美财政部长耶伦表示，如果中共进军台湾，拜登政府将会使用所有的制裁工具来对付中共。
+撰稿：东京樱花团/闻雨
 
-俄罗斯对乌克兰的入侵和中共对台湾的进军，都是侵略性国家的作为，人们担忧世界大国是否能够防止台湾发生和乌克兰的类似危机，台湾拥有2300万人口，也是全球芯片的主要来源。周三众议院金融服务委员会上，共和党议员Patrick McHenry提问，财政部是否会像制裁俄罗斯那样制裁中共对台湾入侵？耶伦回答说，目前对俄罗斯的经济制裁表明美国会对侵略性国家带来巨大的痛苦，任何人都无须怀疑美国在其他情况下实行制裁的能力和决心。
+日本东京都政府于4月7日举行了一次新冠病毒监测会议。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-16.jpg)图片来源于本文链接
+测试结果显示：东京都感染新冠病毒的病例中，有70%疑似奥密克戎（Omicron）亚型变异株BA.2感染。这种新毒株被认为更具传染性。专家说：“今后BA.2是否会迅速蔓延，我们进入了一个关键阶段。”并呼吁大家采取彻底的防御措施，防止“第七波”感染的到来。
 
-耶伦还表示，拜登总统希望将俄罗斯驱逐出G20集团国。若在印尼举办的G20会议上出现俄罗斯，美国将会抵制G20会议的所有议程并拒绝参加会议。
+东京都政府说，3月22日至28日这一周，疑似BA.2感染的病人占67.8%，上一周（3月15日至21日）的感染比例为52.3%，仅一周就增加了15.5%。4月7日 东京都确认有8753人感染，在新感染者中，4338人接种了两剂疫苗，98人接种了一剂，2115人未接种，2202人情况不明。情况不明的患者暂且不计算，只看打了疫苗的4436人，未打疫苗的2115人，也就是说68%的被感染者是打了疫苗的。
 
-reference：
+直到现在，还有人期望着新冠病毒疫苗能阻止病毒的蔓延，事实证明，打再多的疫苗都不可能控制新冠病毒的感染，因为它在不停地变异。相反，从以上数据可以看出，打了疫苗的人更容易感染变异毒株
 
-[https://www.scmp.com/news/world/russia-central-asia/article/3173314/us-would-use-sanctions-if-china-invaded-taiwan](https://www.scmp.com/news/world/russia-central-asia/article/3173314/us-would-use-sanctions-if-china-invaded-taiwan)
+信息来源：
 
-撰稿、发布：骄子
+[「ＢＡ．２」７割に上昇　第７波阻止へ「重要局面」―東京都会議：時事ドットコム](https://www.jiji.com/jc/article?k=2022040700765&amp;g=soc)
 
-* * *
+[東京都で新たに8753人の感染確認 前週同曜日から527人増 重症者29人 重症者用病床使用率8.3％ 死亡6人（ABEMA TIME…](https://news.yahoo.co.jp/articles/64a494ee987bf06de6c23311f554140415a4d6db)
 
-欢迎订阅我们的GNews账号：
-
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
