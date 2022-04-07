@@ -15,80 +15,80 @@
 
 ---
 
-### [日本呼吁警惕奥密克戎亚型变异株BA.2](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [欧盟暗示中共在乌克兰危机问题上充耳不闻](/content/gnews/1/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [樱花时政┃罗马教皇首次谴责布查大屠杀 亲吻乌国旗](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：灾难之年威廉王给墙内战友的建议](/content/gnews/3/README.md)
- ` 雅典娜GNotes`
-
-### [郭氏は食糧危機到来だと警告](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花时政┃美英宣布对俄新制裁包括“禁止对俄新投资”](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播后记：救援活动的多重意义](/content/gnews/6/README.md)
- ` 雅典娜GNotes`
-
-### [有声｜上海乱象：拉一车人隔离结果无处安置](/content/gnews/7/README.md)
+### [有声｜上海志愿者暴毙 市民跳楼 宠物被打死](/content/gnews/2/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [20220406郭文贵大直播 ：全球音乐灭共,射向共产党灵魂的核弹](/content/gnews/8/README.md)
- ` Tokyo Sakura Video Group`
-
-### [美财政部：如果中共入侵台湾，美国马上制裁](/content/gnews/9/README.md)
- ` 银河歌舞厅`
-
-### [20220406郭文贵大直播 ：只有把中国共产党给清零了 世界才有希望](/content/gnews/10/README.md)
- ` Tokyo Sakura Video Group`
-
-### [大直播后记：社交媒体的商业经营模式](/content/gnews/11/README.md)
- ` 雅典娜GNotes`
-
-### [有声｜美国破坏了俄军控制的一个网络攻击系统](/content/gnews/12/README.md)
+### [秘翻新闻｜上海乱象:拉一车人隔离结果无处安置](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [20220406郭文贵大直播 ：战友介绍现场救援的情况](/content/gnews/13/README.md)
- ` Tokyo Sakura Video Group`
-
-### [芬兰海关扣押俄罗斯艺术品](/content/gnews/14/README.md)
- ` 银河歌舞厅`
-
-### [大直播后记：战友谈中共国的连坐与告密文化](/content/gnews/15/README.md)
- ` 雅典娜GNotes`
-
-### [20220406郭文贵大直播 ：前线救援现场有战友火速加入德国农场](/content/gnews/16/README.md)
- ` Tokyo Sakura Video Group`
-
-### [有声｜拖延禁运俄罗斯石油将使更多人失去生命](/content/gnews/17/README.md)
+### [有声｜上海气氛肃杀 中共抗疫已演变为政治博弈](/content/gnews/4/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [大直播后记：GTV的深远意义](/content/gnews/18/README.md)
+### [日本呼吁警惕奥密克戎亚型变异株BA.2](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花时政┃罗马教皇首次谴责布查大屠杀 亲吻乌国旗](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大直播后记：灾难之年威廉王给墙内战友的建议](/content/gnews/7/README.md)
  ` 雅典娜GNotes`
 
-### [日本取消对106国的中共病毒入境限制](/content/gnews/19/README.md)
- ` 银河歌舞厅`
+### [樱花时政┃美英宣布对俄新制裁包括“禁止对俄新投资”](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [20220406郭文贵大直播 ：《230法案》让垄断的媒体公司权力过大 操纵舆论 掩盖真相](/content/gnews/20/README.md)
+### [大直播后记：救援活动的多重意义](/content/gnews/9/README.md)
+ ` 雅典娜GNotes`
+
+### [有声｜上海乱象：拉一车人隔离结果无处安置](/content/gnews/10/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [20220406郭文贵大直播 ：全球音乐灭共,射向共产党灵魂的核弹](/content/gnews/11/README.md)
  ` Tokyo Sakura Video Group`
 
-### [乌克兰救援前线报道4.07.2022：新中国联邦黄马甲掀起全球灭共浪潮](/content/gnews/21/README.md)
+### [美财政部：如果中共入侵台湾，美国马上制裁](/content/gnews/12/README.md)
+ ` 银河歌舞厅`
+
+### [20220406郭文贵大直播 ：只有把中国共产党给清零了 世界才有希望](/content/gnews/13/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [大直播后记：社交媒体的商业经营模式](/content/gnews/14/README.md)
+ ` 雅典娜GNotes`
+
+### [有声｜美国破坏了俄军控制的一个网络攻击系统](/content/gnews/15/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [20220406郭文贵大直播 ：战友介绍现场救援的情况](/content/gnews/16/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [芬兰海关扣押俄罗斯艺术品](/content/gnews/17/README.md)
+ ` 银河歌舞厅`
+
+### [大直播后记：战友谈中共国的连坐与告密文化](/content/gnews/18/README.md)
+ ` 雅典娜GNotes`
+
+### [20220406郭文贵大直播 ：前线救援现场有战友火速加入德国农场](/content/gnews/19/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [有声｜拖延禁运俄罗斯石油将使更多人失去生命](/content/gnews/20/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [大直播后记：GTV的深远意义](/content/gnews/21/README.md)
+ ` 雅典娜GNotes`
+
+### [日本取消对106国的中共病毒入境限制](/content/gnews/22/README.md)
+ ` 银河歌舞厅`
+
+### [20220406郭文贵大直播 ：《230法案》让垄断的媒体公司权力过大 操纵舆论 掩盖真相](/content/gnews/23/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [乌克兰救援前线报道4.07.2022：新中国联邦黄马甲掀起全球灭共浪潮](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线：中共将出台《金融稳定法》 采取地方绝对服从中央的集中管理模式](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：中共卸磨杀驴 刘强东卸任京东集团CEO](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [樱花时政｜明知疫情防控措施极不合理，为何习近平仍要各级官员坚决贯彻执行？](/content/gnews/24/README.md)
+### [樱花时政｜明知疫情防控措施极不合理，为何习近平仍要各级官员坚决贯彻执行？](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：面对疫情灾难中共上海市委“掏心窝子”给党员写了一封信](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [俄方内部文件显示乌军对俄军信息战卓有成效](/content/gnews/26/README.md)
  ` 波士顿五月花农场金融部`

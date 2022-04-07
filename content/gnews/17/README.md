@@ -2,29 +2,32 @@
 ---
 
 
-## 有声｜拖延禁运俄罗斯石油将使更多人失去生命
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2303113/)
+## 芬兰海关扣押俄罗斯艺术品
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2303145/)
 
-**By:秘翻新闻**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screen-Shot-2022-04-07-at-17.31.46.png)
+4月1日和2日，芬兰海关在Vaalimaa过境点扣留了三批运往俄罗斯的货物，货物中包含绘画和雕塑等艺术品，价值4200万欧元。
 
-**2022-04-07**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-07-163509.jpg)
-**[路透社](https://www.reuters.com/world/europe/ukraines-zelenskiy-delay-russia-oil-embargo-decision-is-costing-lives-2022-04-06/)**4月7日报道，乌克兰总统泽连斯基周四呼吁，西方应该迅速就禁运俄罗斯石油达成一致，因为拖延禁运正在让乌克兰人付出生命的代价。
+芬兰外交部于4月6日的新闻发布会通报了该批运往俄罗斯的艺术品从发现到执行制裁，以及初步调查的进展情况。据悉该艺术品是俄罗斯冬宫博物馆和沙皇国家博物馆借给日本和意大利博物馆和画廊的，尚未透露艺术家的具体讯息。芬兰海关局长说，欧盟对俄罗斯的制裁中包含对艺术品的制裁，执行制裁是保持正常海关运营的必要工作。该批艺术品的调查以信息收集、国际合作与互助进行，芬兰海关表示会继续和外交部协商，欧盟委员已在参与讨论此事。
 
-在清晨的视频讲话中，泽连斯基还表示，他将继续坚持把俄罗斯银行从国际金融体系中完全封锁。
+reference：
 
-泽连斯基还指出，由于一些政治家为避免自己国家的经济处于危险，仍无法决定如何限制流向俄罗斯的石油美元和石油欧元。莫斯科从石油出口中赚了很多钱，所以它不需要认真对待和平谈判。
+[https://www.washingtonpost.com/world/2022/04/06/russia-sanctions-finnish-border-art/](https://www.washingtonpost.com/world/2022/04/06/russia-sanctions-finnish-border-art/)
 
-美国周三以新一轮制裁为目标，对俄罗斯的银行和精英们进行了制裁。泽连斯基说，这一宣布虽然壮观，但还不够。
-
-俄罗斯对乌克兰长达六周的入侵已迫使400多万人逃离家园，成千上万人死亡或受伤，城市和城镇被摧毁。
-
-（秘密新闻  大树  编译报道）
-
-发布:星星
+撰稿、发布：骄子
 
 * * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,22 @@
 ---
 
 
-## 20220406郭文贵大直播 ：战友介绍现场救援的情况
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303146/)
+## 20220406郭文贵大直播 ：只有把中国共产党给清零了 世界才有希望
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2303174/)
 
 作者：东京樱花团小视频组
+
+
+
+
+
+
+
+
+
+
+
+
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组
