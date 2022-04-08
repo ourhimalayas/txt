@@ -2,28 +2,35 @@
 ---
 
 
-## 欧盟对俄罗斯新制裁达成一致 煤炭禁运及其他措施
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307596/)
+## 加拿大为应对乌克兰战争增加80亿加元的军费开支
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307693/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-32.jpg)
-合众国际社4月7日报道。欧盟周四批准了对俄罗斯的新制裁措施，包括对煤炭进口的禁运，作为指控莫斯科入侵乌克兰时侵犯人权的回应。
+翻译/编辑：小红帽
 
-欧盟轮值主席国宣布，该禁令每年价值约43.5亿美元，作为自2月底入侵开始以来，欧盟集团采取制裁俄罗斯能源行业的第一个步骤。它提及发生在布查（Buchan）的“可怕的侵犯人权行为”。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/000_9xy42y.jpg)图片来源：AFP/Gints Ivuskans
 
-“一揽子计划非常坚实，并将对俄罗斯的制裁扩展到了新的领域，”主席国法国表示。
 
-欧盟委员会主席乌尔苏拉-冯德莱恩(Ursula von der Leyen)在周二的一系列推文中概述了这些制裁措施，并指出它们还将包括对四家俄罗斯银行的全面交易禁令，包括俄国第二大银行俄罗斯外贸银行（VTB）。
+根据CNA4月8日报道，加拿大周四（4月7日）在其新预算中公布了五年内增加80亿加元（64亿美元）的军费开支，以应对俄罗斯入侵乌克兰的战争，但未能达到北约规定的占国内生产总值2%的开支目标。
 
-此外，制裁将禁止俄罗斯和俄罗斯运营的船只进入欧盟港口，禁止白俄罗斯公路运输运营商，进一步禁止价值近110亿美元的先进半导体、机械和运输设备的出口，以及价值近60亿美元的新进口禁令。
+“俄罗斯总统普京对乌克兰的入侵提醒我们，我们自己的和平民主就像世界上所有的民主国家一样，最终取决于硬实力的防御，”财政部长克里斯蒂娅-弗里兰表示。“我们知道，自由不是白来的，和平只有在我们准备好为它而战时才能得到保证。”
 
-冯德莱恩补充说，欧盟还将实施有针对性的措施，包括禁止俄罗斯公司参与欧盟的公共采购，排除欧盟或其个别国家对俄罗斯公共机构的所有财政支持，以及进一步列出个人名单。
+“这就是为什么这份预算立即对我们的武装部队进行了额外投资，并提议迅速进行国防政策审查，以使加拿大能够应对一个变得更加危险的世界。”弗里兰补充道。
 
-由于欧洲议会以 513 票对 22 票赞成“立即全面禁止俄罗斯进口石油、煤炭、核燃料和天然气”，欧盟正在制定补充的制裁措施，例如石油进口。
+根据北约的数据，加拿大目前的军事开支占国内生产总值的1.36%，比几年前略有下降。
 
-周三，欧盟与美国和七国集团联合实施制裁，对俄罗斯银行、弗拉基米尔-普京总统的两名成年女儿、外交部长谢尔盖-拉夫罗夫的妻子和女儿以及俄罗斯安全委员会成员实施制裁。
+据专家和议会的独立财政监督机构称，要达到北约的目标，渥太华必须为国防拨出更多资金，至少要占GDP的0.5%。
 
-新闻来源：[https://www.upi.com/Top\_News/World-News/2022/04/07/EU-agrees-coal-embargo-new-sanctions-Russia/1811649365146/](https://www.upi.com/Top_News/World-News/2022/04/07/EU-agrees-coal-embargo-new-sanctions-Russia/1811649365146/)
+弗里兰建议，渥太华仍然可以很快缩小这一差距，并提议“迅速进行国防政策审查，使加拿大能够应对一个变得更加危险的世界”。
+
+资料来源：[Canada boosts military spending by C$8 billion in response to Ukraine war](https://www.channelnewsasia.com/world/canada-boosts-military-spending-c8-billion-response-ukraine-war-2615406)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

@@ -2,35 +2,32 @@
 ---
 
 
-## 印尼将从5月起对数字资产收益征收0.1%的所得税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
+## 朝鲜下周可能举行核试验
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2307727/)
 
-翻译/编辑：小红帽
+**撰稿：日本东京方舟农场  子辰**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
+4月6日，美国国务院朝鲜事务特使金星容（Sung Kim）在新闻发布会上对记者表示，平壤可能会利用其4月15日的纪念日，来展示核能力。
 
-A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
-根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
+他说，担心朝鲜平壤在4月15日纪念日即将到来之际，可能会再次采取挑衅行动，即又一次的导弹发射，而且还是一次核试验。虽然不希望发生此事，但明确表示会做好准备。
 
-税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-1.jpg)（图片来自网络）
 
-正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
+自今年年初以来，平壤政权已经进行了13次导弹试验。
 
-“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
+金星容说，面对朝鲜的屡次升级和挑衅行动，联合国安理会做出果断回应，提出了一项新的联合国安理会决议。他希望作为安理会成员国的中共和俄罗斯，能够同意这项决议，并与我们合作，因为这也符合他们自己的利益。
 
-近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
+他透露，已经与中共和俄罗斯就此事进行了讨论。但目前为止，并未有任何有成效的讨论结果产生。
 
-正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+此外，4月5日，朝鲜领导人金正恩的妹妹金与正警告说，尽管平壤反对战争，但如果韩国采取任何“危险的军事行动”，例如发动先发制人的打击，朝鲜将动用其日益增长的核武库进行报复。
 
-资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
+韩国国防部长徐旭（Suh Wook）曾表示，韩国军方有能力准确而迅速地采取行动，打击朝鲜的导弹发射场，这些发射场对韩国构成了迫在眉睫的威胁。
 
-发布：tianzhihuan
+参考链接：
+[https://www.epochtimes.com/gb/22/4/7/n13703086.htm](https://www.epochtimes.com/gb/22/4/7/n13703086.htm)
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编：老孙
+校对发布：文曦
 
  
 

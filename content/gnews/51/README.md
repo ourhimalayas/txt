@@ -2,32 +2,29 @@
 ---
 
 
-## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
+## 德国警方捣毁俄罗斯大型暗网Hydra
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2306010/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
-值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
+据BBC新闻网4月6日报道，德国警方经过几个月的努力，捣毁了世界上最大的暗网市场俄罗斯Hydra网站。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-12.jpg)（图片来源：BKA）
+报导称，德国警方在接到举报暗网Hydra的信息后，经过几个月的调查，找到了该网站在德国托管的公司，并没收了其价值2300 万欧元（约1670 万英镑）的比特币。在调查过程中，警方发现它是一家所谓的“防弹主机（bullet-proof hosting）”公司，这一类型的公司不会审核其托管的网站或内容，并且会很乐意为犯罪网站提供托管并避免警方要求提供有关客户的信息。
 
-乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
+德国警察塞巴斯蒂安·兹维贝尔（Sebastian Zwiebel）表示，当找到暗网Hydra的服务器时，他感到非常震惊。他指出，该网站是网络犯罪的堡垒，竟然靠销售毒品和非法商品交易存活了超过六年。
 
+根据德国警方信息，Hydra暗网成立于 2015 年，以俄语编写，拥有 1700万客户和19,000 多个卖家账户。该网站专门提供即日“空投”服务，即毒贩将毒品藏在公共场所，然后再通知客户提货地点。而且以黑客手段获取文件、伪造文件和进行非法数字货币交易，即网络犯罪分子使用比特币来清洗被盗或勒索所得的数字货币。
 
+目前，用户如果登录该网站，可以在主页上看到“该平台因犯罪行为已被查封”的警方公告。
 
-> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
-> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
+此外，在德国宣布采取行动后不久，美国财政部也对 Hydra 实施制裁，并努力协调国际关系，阻止通过俄罗斯网站提供的恶意网络服务、危险药物和其他非法产品的扩散。
 
+参考链接：
+[https://www.bbc.com/zhongwen/simp/world-609115](https://www.bbc.com/zhongwen/simp/world-609115)
 
-
-来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
-
-* * *
-
-▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+编辑：海星
+总编：青城道姑
+校对发布：Linda
 
  
 

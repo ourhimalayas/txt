@@ -2,54 +2,26 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.8）&#8211;注射新冠疫苗后心肌炎
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2308591/)
+## 樱花时政┃冯德莱恩访问基辅 欧盟禁止俄煤炭进口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2308809/)
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/樱花时政┃冯德莱恩访问基辅-欧盟禁止俄煤炭进口.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F1646%2Fproduction%2F_107720750_055045347-1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fworld-48857070&amp;tbnid=AbZzs7FZTFWOCM&amp;vet=12ahUKEwjOwKCzhYT3AhXS0OAKHSxjBYoQMygDegUIARCvAQ..i&amp;docid=Ei3Owujmm1OuWM&amp;w=640&amp;h=360&amp;q=%E6%AC%A7%E7%9B%9F%E4%B8%BB%E5%B8%AD%E5%86%AF%E5%BE%B7%E8%8E%B1%E6%81%A9&amp;ved=2ahUKEwjOwKCzhYT3AhXS0OAKHSxjBYoQMygDegUIARCvAQ)
 
-整理/编辑：gardeniahu
-![文章配图](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-10.png)图片来源：雅典娜设计组(614)
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+欧盟主席冯德莱恩4月7日表示，她将于8日访问基辅，以表达欧洲“坚定不移地支持”乌抗击俄入侵。欧盟通过全面禁止俄煤炭进口禁令，将于8月中实施。欧洲理事会主席米歇尔周四表示，欧盟准备再释放5亿欧元资助乌购买武器。冯德莱恩说：“我希望传达强有力的讯息，即（我们）坚定不移地支持乌人民，支持他们的英勇奋战。”欧盟高级代表博雷利将随行前往。冯德莱恩与博雷利将在基辅与泽连斯基会面，9日则将前往波兰华沙参加支持乌克兰的活动。欧盟各国通过禁止俄煤炭进口禁令，这项禁令将自8月中全面生效。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%e5%89%af%e4%bd%9c%e7%94%a8%e9%9b%86%e8%90%83/)
+信息来源： 
+[冯德莱恩今天访问基辅 欧盟通过俄罗斯煤炭进口禁令](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20220407-%E5%86%AF%E5%BE%B7%E8%8E%B1%E6%81%A9%E4%BB%8A%E5%A4%A9%E8%AE%BF%E9%97%AE%E5%9F%BA%E8%BE%85-%E6%AC%A7%E7%9B%9F%E9%80%9A%E8%BF%87%E5%85%A8%E9%9D%A2%E7%A6%81%E6%AD%A2%E4%BF%84%E7%BD%97%E6%96%AF%E7%85%A4%E7%82%AD%E8%BF%9B%E5%8F%A3%E7%A6%81%E4%BB%A4)
 
-帖子原文：
-
-**疫情|新冠疫苗副作用    接种新冠疫苗心脏难受**
-
-打完三针疫苗，我的心脏怎么了？
-
-第一针摩德纳
-
-第二针摩德纳
-
-第三针辉瑞
-
-自从6月份打完第一针，我的心脏就开始有点hold不住了，每次睡觉的时候总能感觉到心跳。昨晚更是如此光入睡就花了2个小时，连睡着都不踏实。
-
-总觉得心跳很快，可是用手量脉搏又是正常速度。
-
-已经看了家庭医生，做了14天心脏监控，也做了彩超，说没问题。可是为什么心脏就是感觉难受呢？
-
-也查了心肌炎的症状，好像又没有那么严重。有小伙伴是这样的吗？#新冠疫苗#心脏#辉瑞疫苗#摩德纳#北美生活#新冠疫情
-
-#新冠疫情#北美生活#辉瑞疫苗#摩德纳#新冠疫苗
-
-精彩评论：
-
-不停歇的小白    回复：跟你情况一模一样的在这里，还心跳很快，医生说要观察两周，没有到危险的地方
-
-yan     回复:就是疫苗的副作用，只是政府不承认，疫苗群里都是类似症状的，我也是打完第二针一个月后开始的，只能躺着，动一动心跳就快。是不是飙升，难受死了。看医生所有检查都查遍，什么都没有查出来，就告诉你焦虑。有那么多焦虑的人吗？以前我们都是活蹦乱跳的，咋就打完疫苗焦虑了呢，真是神奇，反正第三针我死也不打，我现在都像废人一样。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-817.png)图片来源：小红书
-参考链接：[打完新冠疫苗后心脏难受](https://www.xiaohongshu.com/discovery/item/61d43e1200000000210384db?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649287556)
-
-*发布：tianzhihuan*
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

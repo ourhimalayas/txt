@@ -2,24 +2,25 @@
 ---
 
 
-## 俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2307483/)
+## 美国封锁俄罗斯最大金融机构，禁止对俄新投资
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307622/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌代表团3月29日在土耳其举行和谈，会后俄方形容谈判具建设性，将向总统普京汇报乌克兰方面的提案，乌方在会谈中提出以中立地位换取安全保障，并提议新的安全保障体系，另又提出就克里米亚地位问题设15年的磋商期。乌方谈判代表称，在新的安全保障体系下，以色列、波兰、加拿大和土耳其都将成为乌克兰的安全保障国。俄罗斯、美国、英国、德国和意大利也可以提供担保。
+撰稿：纽约香草山农场–Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
+4月6日，美国白宫发表声明，鉴于俄罗斯在乌克兰的暴行，美国禁止在俄罗斯的新投资，并对俄罗斯最大的金融机构和重要的国有企业，以及俄罗斯政府官员及其家庭成员实施严厉的金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-791.png)
+该声明称，美国将全面封锁俄罗斯最大的金融机构–储蓄银行，和俄罗斯最大的私人银行–阿尔法银行，冻结其在美资产；并表示对俄罗斯重要的国有企业进行全面制裁，禁止美国人与这些实体进行交易，并冻结资产。此外，在600多家跨国企业决定退出俄罗斯的基础上，拜登总统将签署一项新的行政命令，禁止美国人在俄罗斯进行任何新的投资，进一步孤立俄罗斯，削弱俄罗斯的全球竞争力。
 
-俄罗斯外长谢尔盖．拉夫罗夫周四表示，乌克兰向莫斯科提交了一份新的和平协议草案，其中俄方认为3月29日双方于土耳其和谈中最重要的部分被乌克兰忽略、淡化，致莫斯科“无法接受”，他认为乌克兰破坏了本次和谈。外媒报导，**乌克兰首席谈判代表米哈伊洛·波多利亚克表示“拉夫罗夫与和谈没有直接关系，他的发言是纯粹的宣传意义”。**
+同时，美国还将对包括俄罗斯总统普京的成年子女、外长拉夫罗夫的家人等实施经济制裁。（请播放视频，视频时长0‘58“）
 
-外媒指出，俄外长系针对乌克兰未于协议草案中明确，克里米亚半岛地区（外界认为2014年被俄罗斯并吞的乌克兰领土）不适用乌克兰未来的安全保障体系，意思是俄方认为上次土耳其和谈乌克兰明确未来国际对乌的安全保障不会延伸致该争议地区。
+参考链接：[拜登总统宣布对俄罗斯实施新的经济制裁](https://gettr.com/post/p13zzh72131)
 
-来源｜[BARRON’S](https://www.barrons.com/news/russia-accuses-ukraine-of-changing-demands-since-istanbul-talks-01649332508?refsec=afp-news)、[HK01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/752955/%E4%BF%84%E7%83%8F%E8%AB%87%E5%88%A4-%E7%83%8F%E5%85%8B%E8%98%AD%E6%8F%90%E5%87%BA%E6%96%B0%E5%AE%89%E5%85%A8%E4%BF%9D%E9%9A%9C%E9%AB%94%E7%B3%BB-%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%95%8F%E9%A1%8C%E8%A8%AD15%E5%B9%B4%E7%A3%8B%E5%95%86%E6%9C%9F)、[YAHOO](https://uk.news.yahoo.com/ukraine-dismisses-russian-criticism-kyiv-132841568.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHAaURo7ZE6DvFW8JVoyrg9syTA8Fp6BPfX_3hqmSJgCU3OzYGKtxhKmDDiaXCKXrFEb2P_CjmwmcSyQ7th6TUD2eR3aQQLkYpY0NE2Z3ovw4vlwTN1JLrISQFbw98KVRmRA4TEjAhnRuOhBiepsA5vQwIv5NkZkwPjHdX9LUSua)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-52.jpg)
 
-* * *
+审核/编辑/总编：雪梨
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

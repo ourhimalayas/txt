@@ -2,35 +2,28 @@
 ---
 
 
-## 美国国会法案：取消俄罗斯最惠国待遇及颁布石油禁令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307857/)
+## 获得金球奖的著名足球运动员加入乌克兰军队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307962/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/获得金球奖的著名足球运动员加入乌克兰军队.png)（图片源自本文链接）
 
-整理：li yan li
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-801.png)图片来源：Anadolu Agency & 雅典娜设计组
-4月7日，据路透社报道，美国国会两院周四通过了取消俄罗斯“最惠国待遇”贸易地位，以及批准禁止进口俄罗斯石油的相关法案，以制裁俄罗斯在俄乌冲突中所扮演的角色。
+4月8日东体育消息：据每日邮报报道，曾获得世界上最负盛名的足球运动员奖——金球奖的著名足球运动员，已经加入了遭受俄罗斯入侵的乌克兰军队。
 
-当天上午，**《中止与俄罗斯和白俄罗斯的正常贸易关系法》和《中止从俄罗斯进口能源法》均以100:0的票数在参议院获得通过**；**在众议院，贸易法案以420-3的票数通过，石油禁令以413-9获得通过。**这两项法案将被呈送给总统拜登签署。
+61岁的伊戈尔·贝拉诺夫，乌克兰战士，曾帮助基辅迪纳摩在前苏联赢得优胜者杯，被《法国足球》杂志选中，成为1986年获得金球奖的著名球员。据该报称，他已经开始行动，以挽救他的祖国乌克兰免受俄罗斯的攻击。
 
-白宫发言人普萨基向记者表示，总统拜登支持这些措施并在签署后法案生效。
+信息来源：
+ [バロンドールを受賞した〝英雄〟がウクライナ軍隊に加入！最前線で銃を手にする写真も投稿（東スポWeb） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/67decebc83bf69d7bc72fe1eba4c35e507103511)
 
-贸易法案将使拜登政府能够对俄罗斯和白俄罗斯进口品提高关税；能源法案则使拜登原先的行政命令成为法律，禁止进口俄罗斯的石油、天然气和煤炭。
-
-白宫表示，美国和其他30多个国家推出的制裁措施，已经对俄罗斯经济造成了打击；据专家预测，俄罗斯今年的国内生产总值（GDP）将下滑15%，而通货膨胀率已经飙升至15%以上。目前有600多家私营企业退出俄罗斯市场。
-
-俄罗斯将因为上述制裁失去其作为主要经济体的地位，并将继续长期陷入经济、金融和技术的孤立。
-
-新闻链接：[美国国会通过法案，取消俄罗斯最惠国待遇及禁止进口俄石油](https://cn.reuters.com/article/ukraine-crisis-trade-usa-idCNL6S2W5097)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
