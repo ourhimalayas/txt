@@ -2,35 +2,23 @@
 ---
 
 
-## 联大表决暂停俄罗斯人权理事会成员国资格
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2306836/)
+## 俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2307483/)
 
-#### 【雅典娜观察】和你一起洞察世界
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌代表团3月29日在土耳其举行和谈，会后俄方形容谈判具建设性，将向总统普京汇报乌克兰方面的提案，乌方在会谈中提出以中立地位换取安全保障，并提议新的安全保障体系，另又提出就克里米亚地位问题设15年的磋商期。乌方谈判代表称，在新的安全保障体系下，以色列、波兰、加拿大和土耳其都将成为乌克兰的安全保障国。俄罗斯、美国、英国、德国和意大利也可以提供担保。
 
-整理/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-785.png)图片来源：The Guardian & 雅典娜设计组
-因俄罗斯被控在乌克兰犯下暴行，联合国大会星期四(4月7日)经过表决，暂停俄罗斯在联合国人权理事会的成员国资格。
+俄罗斯外长谢尔盖．拉夫罗夫周四表示，乌克兰向莫斯科提交了一份新的和平协议草案，其中俄方认为3月29日双方于土耳其和谈中最重要的部分被乌克兰忽略、淡化，致莫斯科“无法接受”，他认为乌克兰破坏了本次和谈。外媒报导，**乌克兰首席谈判代表米哈伊洛·波多利亚克表示“拉夫罗夫与和谈没有直接关系，他的发言是纯粹的宣传意义”。**
 
-由于俄罗斯“严重和系统性地侵犯人权”并对乌克兰做出了违反国际法的行为，联大以93票支持、24票反对和58票弃权，暂停其在人权理事会中的席位。决议必须有三分之二的多数才能通过，弃权不算在内。中共国投了反对票。
+外媒指出，俄外长系针对乌克兰未于协议草案中明确，克里米亚半岛地区（外界认为2014年被俄罗斯并吞的乌克兰领土）不适用乌克兰未来的安全保障体系，意思是俄方认为上次土耳其和谈乌克兰明确未来国际对乌的安全保障不会延伸致该争议地区。
 
-乌克兰常驻联合国代表基斯利茨亚在表决前说：“俄罗斯的行动超出了正常——俄罗斯不仅侵犯了人权，还动摇了国际和平与安全的基础。”
+来源｜[BARRON’S](https://www.barrons.com/news/russia-accuses-ukraine-of-changing-demands-since-istanbul-talks-01649332508?refsec=afp-news)、[HK01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/752955/%E4%BF%84%E7%83%8F%E8%AB%87%E5%88%A4-%E7%83%8F%E5%85%8B%E8%98%AD%E6%8F%90%E5%87%BA%E6%96%B0%E5%AE%89%E5%85%A8%E4%BF%9D%E9%9A%9C%E9%AB%94%E7%B3%BB-%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%95%8F%E9%A1%8C%E8%A8%AD15%E5%B9%B4%E7%A3%8B%E5%95%86%E6%9C%9F)、[YAHOO](https://uk.news.yahoo.com/ukraine-dismisses-russian-criticism-kyiv-132841568.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHAaURo7ZE6DvFW8JVoyrg9syTA8Fp6BPfX_3hqmSJgCU3OzYGKtxhKmDDiaXCKXrFEb2P_CjmwmcSyQ7th6TUD2eR3aQQLkYpY0NE2Z3ovw4vlwTN1JLrISQFbw98KVRmRA4TEjAhnRuOhBiepsA5vQwIv5NkZkwPjHdX9LUSua)
 
-基斯利茨亚指出，4月7日是卢旺达种族灭绝的纪念日。乌克兰与卢旺达站在一起，并呼吁重申我们的承诺，永远也不要忘记，永远也不要允许让种族灭绝再度发生。
+* * *
 
-美国领导了暂停俄罗斯人权理事会成员国资格的行动，这项决议得到了60多个国家的联署。
-
-美国国务卿安东尼·布林肯在布鲁塞尔表示：“一个严重和系统性地侵犯人权的国家不应坐在一个职责是保护这些权利的机构中。”
-
-“这是破先例的、历史性的表决”，美国常驻联合国代表琳达·托马斯格林菲尔德在表决后对媒体说：“我们暂停了一个安理会常任理事国在联合国人权理事会的资格，我们发出了一个支持乌克兰人的强烈讯息，发出了一个有关人权的强烈讯息。”
-
-参考链接：[联大经过表决暂停俄罗斯人权理事会成员资格](https://www.voachinese.com/a/russia-suspended-from-un-human-rights-body-20220407/6519702.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

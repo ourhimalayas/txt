@@ -2,104 +2,26 @@
 ---
 
 
-## 拜登:俄罗斯在联合国人权理事会中没有一席之地
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2306800/)
+## 3月全球制造业PMI降至54.1％
+` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2307031/)
 
-**拜登总统： **
-在乌克兰发生暴行之后，俄罗斯在联合国人权理事会中没有一席之地。 今天，我们明确表示了这一点。 我的完整声明： 【附白宫官网：乔·拜登总统关于联合国投票暂停俄罗斯在人权理事会成员资格的声明 我为今天在联合国大会上以压倒性多数投票将俄罗斯赶出联合国人权理事会表示赞赏。 这是国际社会迈出的有意义的一步，进一步展示了普京的战争如何使俄罗斯成为国际卑劣之国。…】
-
-
-
-> After its atrocities in Ukraine, Russia has no place on the UN Human Rights Council.
-> 
-> Today, we made that clear.
-> — President Biden (@POTUS) [April 7, 2022](https://twitter.com/POTUS/status/1512174657213976588?ref_src=twsrc%5Etfw)
+编辑：文宝
 
 
 
-**美国务卿安东尼·布林肯： **
-与我的朋友乌克兰外交部长库勒巴[@DmytroKuleba](https://twitter.com/DmytroKuleba) 会面，讨论美国、盟国和合作伙伴们将如何继续帮助乌克兰抵御俄罗斯的残暴战争，并就克里姆林宫的暴行追究其责任。 我们与乌克兰站在一起 [#StandWithUkraine](https://twitter.com/hashtag/StandWithUkraine?src=hashtag_click)。
+据中国物流与采购联合会发布，2022年3月份全球制造业PMI为54.1%，较上月下降0.8个百分点，较去年同期下降3.7个百分点。分区域看，亚洲、欧洲、美洲和非洲制造业PMI较上月均有不同程度下降，欧洲制造业PMI降幅最为明显。
+![此图像的alt属性为空；文件名为1000](https://inews.gtimg.com/newsapp_bt/0/14715808491/1000)
+指数变化显示，在疫情和地缘政治冲突双重影响下，全球制造业增速有所放缓，短期面临供给冲击、需求收缩和预期转弱的压力。从供给看，地缘政治冲突加剧了原本由疫情导致的供给冲击问题，以能源和粮食为主的大宗原材料价格上涨加大了通胀压力，供给成本压力上升；地缘政治冲突导致国际运输受阻，供给效率有所下降。从需求看，全球制造业PMI下降在一定程度上反映需求收缩问题，特别是亚洲、欧洲、美洲和非洲四个区域的制造业PMI均有下降，意味着需求收缩问题是短期全球面临的共同问题。从预期看，面对疫情和地缘政治冲突的共同影响，国际组织纷纷下调2022年经济增长预期。联合国贸发会议最近发布报告将2022年全球经济增长预测从3.6%下调至2.6%。
 
+2022年3月份，非洲制造业PMI较上月下降2个百分点至50.8%，显示非洲制造业恢复速度较上月有所放缓。新冠疫情对非洲经济发展带来挑战。同时，美联储加息也导致一些资金外流。非洲一些国家努力通过加息和申请国际援助的方式来稳定国内资金。
 
+**亚洲制造业继续放缓，PMI持续小幅下降**
 
-> Met with my friend, Ukrainian Foreign Minister [@DmytroKuleba](https://twitter.com/DmytroKuleba?ref_src=twsrc%5Etfw), to discuss how the United States, Allies, and partners will continue to help Ukraine defend against Russia’s brutal war and hold the Kremlin accountable for atrocities. We [#StandWithUkraine](https://twitter.com/hashtag/StandWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/1fUEnNlqat](https://t.co/1fUEnNlqat)
-> — Secretary Antony Blinken (@SecBlinken) [April 7, 2022](https://twitter.com/SecBlinken/status/1512124293953597442?ref_src=twsrc%5Etfw)
+2022年3月份，亚洲制造业PMI较上月下降0.4个百分点至51.2%，环比连续4个月小幅下降，显示亚洲制造业增速呈现持续放缓趋势。从主要国家看，受多地疫情散发和地缘政治冲突等短期因素影响，中国制造业增速有所回调是亚洲制造业增速放缓的主要因素。展望后市，中国经济稳定复苏的基础并未改变，多个行业逐步进入产销旺季，市场供需有回升空间。多项政策协同发力，对经济的稳定支撑效用将逐步显现。除中国外，疫情对亚洲其他国家的影响也较大，韩国和越南制造业PMI较上月也有明显下降。
 
+除疫情影响外，地缘政治冲突和通胀压力也是困扰亚洲新兴国家发展的重要因素。亚洲大多数经济体能源和粮食的进口占比较大，地缘政治冲突加剧了石油和粮食价格的上涨，推升亚洲主要经济体的运行成本。美联储开启加息周期，资金有从新兴国家流出的风险。通过深化经济合作，扩大共同经济利益，挖掘区域增长最大潜能是亚洲国家抵御外部冲击的努力方向。RCEP也为亚洲经济稳定带来新动力。
 
-
-**美国务卿安东尼·布林肯： **
-联合国[@UN](https://twitter.com/UN) 大会投票决定暂停俄罗斯的人权理事会成员资格。 在其对乌克兰的野蛮战争中公然表现出对人权的不尊重后，俄罗斯将不会被保留联合国人权理事会[@UN\_HRC](https://twitter.com/UN_HRC) 成员的资格。
-
-
-
-> The [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw) General Assembly has voted to suspend Russia from the Human Rights Council. Russia will not retain [@UN\_HRC](https://twitter.com/UN_HRC?ref_src=twsrc%5Etfw) membership after showing blatant disrespect for human rights in its brutal war against Ukraine.
-> — Secretary Antony Blinken (@SecBlinken) [April 7, 2022](https://twitter.com/SecBlinken/status/1512187576286908419?ref_src=twsrc%5Etfw)
-
-
-
-**前国务卿迈克.蓬佩奥：** 
-最高法院的大法官们应该按照法律成文、而不是根据他们的政治意识形态来解释宪法。很明显，这不会是杰克逊法官的做法——她不应该被确认，也不应该被提名。
-
-
-
-> Justices on the Supreme Court should interpret the Constitution as it is written and not according to their political ideology. It is clear that this will not be the approach of Judge Jackson – she should have been neither confirmed nor nominated.
-> — Mike Pompeo (@mikepompeo) [April 7, 2022](https://twitter.com/mikepompeo/status/1512186454964903937?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本： **
-这就是 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 带给你的东西：审查和对真相的压制。 【附华尔街日报的文章：“我们会杀了你”：俄罗斯如何压制其国内的反战运动】
-
-
-
-> This is what socialism gives you: censorship and the suppression of truth. [https://t.co/nAI02o7Rb6](https://t.co/nAI02o7Rb6)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2022](https://twitter.com/MarshaBlackburn/status/1512178359878492169?ref_src=twsrc%5Etfw)
-
-
-
-**共和党领袖迈克尔·麦考尔： **
-[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国和我们在世界各地热爱自由的盟友构成了世代威胁。我期待着成为中共国立法会议的代表，期待着成为一名领导，为美国人民提供他们应得的东西——一项法案认真对待日益增长的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 威胁。
-
-
-
-> The CCP poses a generational threat to the U.S. and our freedom-loving allies around the world. I look forward to serving as a China legislation conferee and leading efforts that give the American people what they deserve – a bill takes the growing CCP threat seriously.
-> — Michael McCaul (@RepMcCaul) [April 7, 2022](https://twitter.com/RepMcCaul/status/1512211890214219776?ref_src=twsrc%5Etfw)
-
-
-
-**参议员玛莎·布莱克本： **
-“对不起”还不够。对于这个灾难性的决定，我们需要答案、解释和辞职。 [@kristina\_wong](https://twitter.com/kristina_wong) 【附[breitbart.com](https://t.co/K1o1oKIZLd)的文章：周四，国防部长劳埃德·奥斯汀无意中承认了美国与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 分享有关俄罗斯的情报是不好的，尽管拜登政府的工作人员正是这样做的。】
-
-
-
-> ‘Sorry’ isn’t good enough. We need answers, explanations, and resignations for this disastrous decision.[@kristina\_wong](https://twitter.com/kristina_wong?ref_src=twsrc%5Etfw) [https://t.co/mRu7SD4n0K](https://t.co/mRu7SD4n0K)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2022](https://twitter.com/MarshaBlackburn/status/1512207952379265027?ref_src=twsrc%5Etfw)
-
-
-
-**参议员瑞克·斯科特：** 
-今天，美国参议院通过了我和马克·华纳[@MarkWarner](https://twitter.com/MarkWarner) 的决议，发出了一个明确的信息：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对彭帅的噤声是不可接受的，国际奥委会与 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 的专制政权合作掩盖这一人身侵犯(张高丽性侵彭帅)是绝对不能容忍的。
-
-
-
-> Today, the U.S. Senate sent a clear message in passing my & [@MarkWarner](https://twitter.com/MarkWarner?ref_src=twsrc%5Etfw)'s resolution: Communist China's silencing of Peng Shuai is unacceptable & the IOC's cooperation with Xi's oppressive regime in covering up this alleged assault will NEVER be tolerated. [https://t.co/QttqDB1RyS](https://t.co/QttqDB1RyS)
-> — Rick Scott (@SenRickScott) [April 8, 2022](https://twitter.com/SenRickScott/status/1512232145086996484?ref_src=twsrc%5Etfw)
-
-
-
-**众议员吉姆·乔丹：** 
-埃里克·川普说：“如果我做了亨特·拜登所做的1/100，我就会进监狱。” 
-他没有错。 
-美国人已经接受了双重标准。
-
-
-
-> Eric Trump: “If I did 1/100 of what Hunter Biden did, I’d be in jail.”
-> 
-> He’s not wrong. 
-> 
-> Americans have had it with the double standard.
-> — Rep. Jim Jordan (@Jim\_Jordan) [April 7, 2022](https://twitter.com/Jim_Jordan/status/1512218507064324096?ref_src=twsrc%5Etfw)
+原文链接：[https://new.qq.com/omn/20220407/20220407A088V700.html](https://new.qq.com/omn/20220407/20220407A088V700.html)
 
 
 

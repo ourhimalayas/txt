@@ -2,35 +2,21 @@
 ---
 
 
-## 印尼将从5月起对数字资产收益征收0.1%的所得税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
+## 视频|俄乌战局最近消息汇总
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2307773/)
 
-翻译/编辑：小红帽
+制作：香草山视频部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
+截止当地时间4月6日，在乌克兰守军有组织的防御下，俄罗斯军队仍然对马里乌波尔市发起了密集的炮击和空袭，其目标在于破坏当地亚速钢铁厂周围的乌克兰阵地。与此同时，哈尔科夫州的定居点也遭到了俄军的连续轰炸。而类似的炮轰和空袭也发生在波帕斯纳亚和鲁别日诺耶，有消息称，俄军还在波帕斯纳亚投放了花瓣地雷。
+另一方面，伊久姆东南方向的斯拉夫扬斯克正在遭受俄罗斯第1近卫坦克军的正面攻击。目前，俄军已经控制了伊久姆西南方25公里处的布拉日基夫卡村，且其第2近卫摩步师第1坦克团的一个营级战术群正在试图夺取邻近的苏利吉夫卡村。然而，俄罗斯部队近期在伊久姆直达斯拉夫扬斯克的公路上遭遇了乌军的迎头阻击，为此，其在该地区的进展始终有限。
+另据乌克兰方的消息显示，乌克兰部队正在基辅东北部采取行动，并重新控制了切尔尼戈夫的部分边界，以及首都基辅和日托米尔州。在此情况下，俄军已经完全从基辅地区撤退。至于苏梅地区，当地的俄军仍在撤离当中，但这部分俄军仍有可能试图守住苏梅附近的一些前沿阵地。此外，俄军还试图再次夺取赫尔松以西约40公里处的奥列克桑德里夫卡，但该行动目前未见任何成效。
+而乌克兰的一份军事情报也指出，莫斯科当局可能很快会将在布查犯下战争罪行的第35集团军第64摩步旅派往乌克兰东部战场。消息人士认为，俄罗斯企图使该旅参与犯罪的成员以及知晓其战争罪行的证人在与乌军的交战中被全数歼灭。
 
-A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
-根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
+发稿：qiutian（邱甜）
 
-税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
-
-正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
-
-“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
-
-近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
-
-正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
-
-资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 

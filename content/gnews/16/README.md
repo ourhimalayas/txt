@@ -2,48 +2,50 @@
 ---
 
 
-## 西方国家加大对中共海外爪牙的清除行动
-` 历史组` [轉載自GNews](https://gnews.org/zh-hans/2307376/)
+## 韩正:俄乌战争中与俄罗斯站在一边是十八大以来的党策
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2307623/)
 
-作者：纽约香草山农场教育部—马克文、朱丽叶
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%882%EF%BC%9A9%EF%BC%89%E9%9F%A9%E6%AD%A3.%E4%BF%84%E4%B9%8C%E6%88%98%E4%BA%89%E4%B8%AD%E4%B8%8E%E4%BF%84%E7%BD%97%E6%96%AF%E7%AB%99%E5%9C%A8%E4%B8%80%E8%BE%B9%E6%98%AF%E5%8D%81%E5%85%AB%E5%A4%A7%E4%BB%A5%E6%9D%A5%E7%9A%84%E5%85%9A%E7%AD%96%E3%80%902022%E5%B9%B403%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:a)
 
+**郭文贵先生：**说这时候我来讲，今天早上特别有意思，有一个咱们的哥们，咱们的哥们，绝对好哥们，说：“七哥我要给你纠正一下，上次说的关于韩正这个事情有一点是错误的。”他说是“我问韩正我该做什么，我为你母亲能做点什么，咱们这是父一代子一代的亲戚，然后呢再一个听说咱们所谓的中央还是决定支持乌克兰，而且可能是要对台湾要有行动……”他说“是这一段我没说”所以说他说“七哥说得有点失误。”实际这不重要的兄弟姐妹们。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-03-23_11.58.11-3.png)
+也是说在乎那些记得干嘛？但是我要重申一遍，这个时候韩正就特别地生气：“是不是那个小子给你说的？是那个人？”他知道我跟他认识是吧，“你不要听他瞎说！不要告诉他我和你见面啦！” “你见了说了都完了！全都完了！” “快走！快走！离开这！……”
 
+这个战友他姐姐还有他姐姐的儿子都是咱战友，都在日本，大家实际上都知道啊！我一说你们都猜得到。东京樱花团在这儿，是吧？银河系、银河系、银河系当然知道他是谁了是吧？银河系当然知道！银河系是牵线人！牵线人啊！魔女啊！魔女啊！
 
-郑介甫，中共国房地产商人，全家移居澳大利亚。郑介甫因涉嫌为中共情报机构执行秘密任务，被澳大利亚政府正式驱逐出境。
-网络资料显示，郑介甫有一个引起大陆公众关注的投资项目，1996年以旅游项目为名，从乌克兰购买“基辅”号航空母舰。随后,中共国政府通过有军方背景的港澳公司购买了乌克兰“瓦良格号”，经过大陆大连造船厂改造，2012年9月，该舰在大连正式交付中国人民解放军海军，命名为“辽宁舰”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/12-4-2.jpg)图源网络
-当新中国创建人郭文贵先生独自一人在美国开启了“爆料革命”时，中共被吓破了胆，不惜动用一切海外潜伏的力量打击郭先生。郑介甫就是其中之一， 郑介甫为配合中共构陷郭文贵先生，专程从澳洲飞到美国纽约，在中共海外大外宣媒体帮助下，搞所谓的抹黑郭先生的新闻发布会。随后，回到澳洲， 又发多个抹黑造谣郭先生的视频。
+所以说这个事这个哥们今天早上跟我说，这个说得有误。我再重申一下，但有一样我告诉你七哥，关于中共是否会站在乌克兰一边，他说韩正很明确地说，这都准备多少年了，那哪能一时就改啊？十八大以来这是一贯的党的政策。就是共产党从2012年到现在都是铁了心了跟“普京大帝”要干、要混在一起了。
 
-郭先生爆料说，实际从六四后，中共向海外派出了数以万计的特务，特别是在美国、加拿大、澳洲、英国、日本等民主国家。很多人以学者、大学教授、 民间企业家、媒体人、工程技术人员等名义潜伏下来。这些中共爪牙，以个人名义收购海外华人网络媒体、报纸、电视台进行渗透，特别对美国等国主流网络社交媒体、电视台以入股或卖断黄金时间方式大额资金投入，为中共代言，导致民主国家社交媒体、新闻电视台出现了亲共局面。同时中共也在全球布局孔子学院建立工作站情报网。
+这就是证明了一点，就是当时韩正、栗战书这些人，还有孟建柱、王岐山包括当时抓的董宏，董宏那属于战略智库是吧很明确的，那就什么——中国共产党坚决消灭美帝国主义，坚决消灭美帝国主义啊！
 
-中共把郭文贵先生当作头号敌人，奖励巨资启动大量潜伏海外几十年老特务、伪民运编造谎言，通过中共在海外掌控的网络社交媒体、电视台等对郭先生进行狂轰乱炸。
+银河系的来了啊！银河系来了！消灭美帝国主义！这个决心是不变的。怎么消灭呢？联俄消美、联俄灭美，所现在你看拜登总统还要跟习太阳还要通话的，一定是让人家屁给嘣回来——因为他们就觉得美国人你就快完蛋了。
 
-郭文贵先生、新中国联邦通过Gettr（盖特）、Gnews等社交媒体视频不断爆料，揭露中共贪污腐败获得巨资存在海外证据，用中共病毒攻击西方民主国家，搞垮西方国家经济的计划，让美国等西方政府看清了中共的本质，灭共已经达成了共识。近日，美国多位参议员共同推出法案，以应对中共对美国的间谍行为。西方国家开始加大对中共海外爪牙采取法律行动力度，将全面开启把列入黑名单的中共海外特务、伪民运、亲中共分子进行抓捕、审判、驱逐出境。
+字幕来源：[2022年3月18日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/2189415/)
 
-如今，全球有正义华人都已经看很清楚了，郭文贵先生、新中国联邦人是全球唯一有实力的中共终结者，是推动灭共历史车轮飞速向前的动力。在关键时刻，除了垂死挣扎的中共海外爪牙，没有任何人、有任何理由来阻挡这灭共滚滚向前的车轮。
+编辑整理：Jacques；
 
-参考来源：
-1.[https://www.gettr.com/post/p13kmye416f](https://www.gettr.com/post/p13kmye416f)
-2.[https://twitter.com/chen88888899/status/1511004072941219845?t=jE2SUu81jgnVQ5-KKeCc3A&s=19](https://twitter.com/chen88888899/status/1511004072941219845?t=jE2SUu81jgnVQ5-KKeCc3A&amp;s=19)
-3.[基辅号航空母舰](https://zh.wikipedia.org/wiki/基輔號航空母艦)
-4.[辽宁号航空母舰](https://zh.wikipedia.org/wiki/辽宁号航空母舰)
+字幕档制作：知津；
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Apr-6.jpg)
+视频制作及上传：Cindy；
 
-编辑/校对/发稿：兰兰
+G-News发布：海贼王M.D.LUFFY；
 
-更多资讯，更多关注
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[欢迎加入纽约香草山农场 Discord](https://discord.gg/ChqXAHd)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/2022-03-23_11.58.11-12.png)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

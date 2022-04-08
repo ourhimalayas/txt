@@ -2,56 +2,48 @@
 ---
 
 
-## 人民日报强调动态清零背后的上海官逼民反逼习灭亡戏码
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2306806/)
+## 樱花深度报道┃台湾如何应对中共渗透
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307251/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/习近平亲自指挥.png)
-据[**环球时报**](https://weibo.com/huanqiushibaoguanwei?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2022年4月8日09:38](https://weibo.com/1974576991/LnsB1iWs8?ref=home&amp;rid=7_0_8_4813954024315693801_0_0_0) 来自 [新版微博 weibo.com](https://app.weibo.com/t/feed/xEsRX)
+编译：东京樱花团/Hopkins
 
-【人民日报头版：“动态清零”是现阶段的最佳选择】推广“抗原筛查、核酸诊断”的监测模式，不断提高“早发现”能力；紧盯传播链条，及时进行流调溯源；精准实施封控区、管控区、防范区分类管理措施……近期，全国本土聚集性疫情呈现点多、面广、频发的特点，各地坚持“动态清零”总方针，抓实抓细疫情防控各项工作，坚决筑牢疫情防控屏障。
+【摘要】鉴于台湾不断受到中共入侵的威胁，间谍活动的威胁，包括中共特工对其政治体系的渗透，这是一个真实而现实的危险。台湾的一群立法者提议修改现行立法，以便通过法院命令解散由敌对外国势力（中共）资助或代理的政党。从而保护台湾的政治和公民机构，包括学校、研究机构、媒体和宗教组织，免受中共渗透行动的腐蚀影响。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-86.png)（图片说明）台湾立法院2019年12月31日通过反渗透法(台湾立法院网络直播截图)
+由台湾民进党立委邱志伟领导的一群立法者提议修改现行立法，以便通过法院命令解散由敌对外国势力资助或代理的政党。
 
-与病毒赛跑，跑得越快，就越能掌握战“疫”主动权。目前主要流行的奥密克戎变异株具有传播速度快、隐性感染和轻症病例比例高等特点，无症状和轻症感染者较多，导致发现和防控疫情工作更加困难。越是这样的时候，越要坚持“动态清零”总方针不犹豫不动摇。“动态清零”的精髓，一是快速，二是精准。立足抓早、抓小、抓基础，发现一起就扑灭一起，既能减少疫情对人民身体健康和生命安全的危害，又能最大限度地平衡社会经济发展和疫情防控之间的关系。可以说，坚持“动态清零”总方针，是“努力用最小的代价实现最大的防控效果”的必然要求，是尊重科学、尊重规律的有力体现。
+两年前通过的《反渗透法》，旨在打击敌对外部势力（即中共）对台湾选举的干预，曾经引起很大的争议。
 
-我国地域广阔，各地医疗卫生条件存在差异，疫苗接种在不同人群之间存在不平衡性，同时老年人口基数大。在这样的背景下，“动态清零”是现阶段基于我国当前疫情形势的最佳选择，力争在短时间内做到“动态清零”是最经济、最有效的疫情防控策略。保持战略定力，不麻痹、不厌战、不松劲，从严从实开展防控工作，我们必能巩固来之不易的成果，有力保障人民群众生命健康和经济社会发展。来源：《人民日报》（2022年04月08日 第01版）林亦辰 原标题：《动态清零体现尊重科学、尊重规律（今日谈）》
+该法案禁止人们向代表外国势力或外部实体竞选公职的候选人提供政治捐款或资助，它还包括公投活动和游说政府官员。被判有罪的人将被处以最高五年的监禁和最高新台币1000万元（348,371美元）的罚款。
 
-人民日报放在头版的这篇文章意味深长，因为只要它说“动态清零”是现阶段的最佳选择，那就说明两个问题，一个是“动态清零”政策面临严重挑战，所以需要人民日报这个皇帝的夜壶出来招摇一下子，不为统一思想，只为昭示天下，这是皇帝尿过的夜壶，尔等不要聒噪。
+现在是否有理由支持邱提出的修正案，如果发现与北京勾结的政党，将赋予行政部门全面关闭政党的权力？
 
-另一个是既然人民日报是皇帝的夜壶，那么展示的必是皇帝的屎尿，那么“动态清零”的政策到底来源于哪里呢？我们一定要记住，虽然中共墙内的互联网已经把习太阳的这段视频删除的干干净净，但是只要有点耐心，我们总还是能找得到的——
+显然，重要的是要不断审查法律法规以弥补任何被利用的漏洞，全世界的许多民主国家都在这样做，或者已经通过了新的立法。
 
-视频来源——[高卢英雄Michel](https://twitter.com/Saint__Michel)[@Saint\_\_Michel](https://twitter.com/Saint__Michel)[下午9:03 · 2022年4月2日](https://twitter.com/Saint__Michel/status/1510241539926245380)推文一切都是中共党魁习近平，亲自指挥，亲自部署。 （这个视频莫名其妙重复了两次，删除了一个，竟然全没了 ）
+澳大利亚的反间谍和执法机构发现了中共试图影响政治体系的一些企图。澳大利亚参议院于 2018 年通过了立法，制定了新的间谍罪，更新了破坏罪，对外国间谍实施了更严厉的处罚，并建立了外国政治代理人登记册。在美国和英国也发现了类似的影响力兜售活动。
 
+鉴于台湾不断受到中共入侵的威胁，间谍活动的威胁，包括中共特工对其政治体系的渗透，这是一个真实而现实的危险。因此，台湾的立法和处罚必须是民主世界中最严厉的，但事实并非如此。
 
+台湾的司法系统以对被判犯有间谍罪的台湾人处以微不足道的罚款和轻缓的监禁而臭名昭著，而大多数政客却没有纠正这种情况的意愿。也许这是国民党白色恐怖时代的后遗症。
 
-> 一切都是中共党魁习近平，亲自指挥，亲自部署。 
-> （这个视频莫名其妙重复了两次，删除了一个，竟然全没了🧐） [pic.twitter.com/EO0qf0WCXg](https://t.co/EO0qf0WCXg)
-> — 高卢英雄Michel🇨🇵 (@Saint\_\_Michel) [April 2, 2022](https://twitter.com/Saint__Michel/status/1510241539926245380?ref_src=twsrc%5Etfw)
+过去四十年来，民主化运动的全部焦点一直是拆除中国国民党（KMT）的党国机器。因此，朝另一个方向推进在心理上是困难的——也被认为是政治上的倒退。许多人对威权时代的暴行记忆犹新。
 
+然而，中共的渗透就像隐藏在旧车漆面下的铁锈：看不见且具有腐蚀性。如果不及时识别和处理，锈迹最终会侵蚀车辆上的每一块金属制品。
 
+必须保护台湾的政治和公民机构，包括学校、研究机构、媒体和宗教组织，免受中共渗透行动的腐蚀影响。
 
-看完人民日报的头版文章再对照习太阳的表态，我们就能对目前发生在全国的动态清零惨剧有一个清醒认识，同时让我们更加看清楚上海的生活物资为什么送不到被封控市民手上了——上海当局用市民的人道灾难倒逼亲自指挥的习太阳的动态清零退场，现在官逼民反的上海态势背后实际上是官逼习亡，病毒早已经不是病毒，它是政治的一部分，“动态清零”也早已不是防疫的一部分，它已经成为反习的一个重要抓手！
+一如既往，魔鬼在细节中。政治家和学者必须仔细审查拟议的立法，记住法律必须始终相称，仓促立法会导致糟糕的法律。
 
-撰稿：喜马拉雅的肉夹馍；
+然而，解决这个问题需要一个整体的政府方法——仅靠立法是不够的。
 
-审核：喜马拉雅的馍夹肉；
+好消息是，随着台湾意识在年轻一代中蓬勃发展，亲共政党正在失去支持。台湾的中国统一促进党创始人张安乐等老龄化的煽动者越来越失去政治的舞台。
 
-校对：Maarago；
+台北时报社论（Taipei Times Editorial）。
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+信息来源：[**Tackling Chinese infiltration**](https://www.taipeitimes.com/News/editorials/archives/2022/04/06/2003776074)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
-
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

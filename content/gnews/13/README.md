@@ -2,25 +2,28 @@
 ---
 
 
-## 新中国联邦乌克兰救援前线报导
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307477/)
+## 克里姆林宫承认部队大量损失的“巨大悲剧”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307698/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
-4月6日，据新中国联邦乌克兰救援前线战友报导，近期，虽然新中国联邦帐营内难民锐减，战友们仍保持帐营的整洁。同时，波兰政府的救援工作更加有序、高效，组织难民上公交车、到达分散点，再由法国、德国等国家负责登记，并为难提供移民等长期救援帮助。而中共政府没有为救助难民做出任何努力，是这场战争的罪魁祸首。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-788.png)
-接下来，我们一起收看来自前线的报导。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2022/04/6-22.jpg)
+图片来源： tw.stock.yahoo.com
 
-参考链接：[4/6/2022 乌克兰救援连线](https://gettr.com/post/p13ytvy11cb)
+零对冲网4月7日报道，克里姆林宫出人意料地于周四对西方媒体承认俄罗斯自入侵乌克兰六周以来经历了“巨大的损失”。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-52.jpg)
+普京的发言人德米特里·佩斯科夫在与英国天空新闻的视频直播连线中说： “我们的部队经历了巨大的损失，这是一个巨大的悲剧。” 当说到具体死亡数字时他说还要进一步证实，但很快直播连线被终止。
 
-编辑/总编：雪梨
+俄罗斯国防部最近一次于3月25更新战况时说部队死亡1351人，3825人受伤，但美国官员说从3月初至3月25日保守估计俄罗斯部队死亡超过7000人。
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
+一些西方媒体报道俄罗斯部队死亡15000-17000人或更多。
 
+当佩斯科夫被问到在布查发生的残酷杀害平民事件时，他说：“ 我们现在处于假新闻和谎言的环境中。”
 
+芬兰说该国准备今年春天寻求成为北约成员国，因为俄罗斯入侵乌克兰已经带来了“新的安全环境问题”。
 
+#### 新闻来源： [Kremlin Spox Admits “Huge Tragedy” Of “Significant” Troop Losses In Live Interview](https://www.zerohedge.com/military/kremlin-spox-admits-significant-troop-losses-ukraine-are-huge-tragedy-live-interview)
+
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
