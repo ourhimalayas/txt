@@ -2,43 +2,30 @@
 ---
 
 
-## 欧盟主席乘火车前往基辅
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2309399/)
+## 内地专家再赴港 香港政商两界恐遭中共动态清零
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309556/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/阿恩
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+中共国卫健委和疾控局组建的专家，昨日下午抵港，卫健委表示，专家将继续指导港府坚持动态清零总方针不动摇，落实“三减三重一优先”策略，促进香港社会凝聚共识。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0153.jpg)
-
-
-资料来源：欧盟主席推特
-
-周五晚上，欧盟委员会主席乌尔苏拉·冯德莱恩前往基辅。 她是自布查战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
-
-欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔正在前往基辅进行会谈的途中。 周五早上，冯德莱恩在推特上发布了一张照片，照片显示她和博雷尔以及斯洛伐克总理爱德华·黑格在火车站出发前不久。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/unnamed-1-2.jpg)图片来源于本文链接
 
 
+香港第五波疫情开始缓和，感染人数和死亡人数均大幅下降，医疗系统的压力缓解，方舱隔离营的入住率不断降低，中共这个时候着急派专家来香港指导抗疫实在是多此一举，而且还强调是指“导港府坚持动态清零总方针不动摇”，中共要在香港动态清零的恐怕不是病毒，而是敌对势力的毒瘤余孽吧！
 
-> Looking forward to Kyiv.[@JosepBorrellF](https://twitter.com/JosepBorrellF?ref_src=twsrc%5Etfw) [@eduardheger](https://twitter.com/eduardheger?ref_src=twsrc%5Etfw) [pic.twitter.com/YFAgGr5Tlc](https://t.co/YFAgGr5Tlc)
-> — Ursula von der Leyen (@vonderleyen) [April 8, 2022](https://twitter.com/vonderleyen/status/1512303926032359428?ref_src=twsrc%5Etfw)
+特首林郑始终没有顺中共的意思，在香港搞全民强检，今日开始一连三日的自愿性全民自行检测，林郑在记者会上警告市民最好配合，否则会付出很大的代价。其言论直指在上海和其他城市正在进行的政治性封城。日前网络上流出大量短片，全球都知道中共国内封城居民惨绝人寰的遭遇。江派势力在中国土地上虽失势，但仍然掌控住全球的主流媒体和社交平台，上海被封城的这段时间，社交平台上出奇地一致行动，将枪口对准中共，平时对揭露中共恶行的消息骂骂咧咧的五毛水军也缺席了，习派在内斗的战场取得胜利后迁怒上海人的罪行，引发了国际怒火，中共国被全球民主国家和发达国家孤立的趋势已不可逆转。而香港方面的江派势力也正面临被动态清零，当外界传出李家超将被钦点成特首，香港的四大不要脸地产商没有人跟随政要立即跳出来支持，直到今日李家超公开宣布成为候选人，四大不要脸才齐声祝贺，这些曾经是江派洗钱工具的财团，将重蹈投靠中共政权的民国商人家破人亡的命运。政界方面，除了中共的走狗建制派系，其他的党派都不纯正，不是与外国势力关系密切，就是与江派有瓜葛，他们自己和家人手中的外国护照就足以证明对中共不忠。还有港府的一众公务员，大部分人都任职了数十年，根系盘根错节，根本没办法缕清其政治立场，索性一刀切大换血。今日有媒体专访夏宝龙，引述其对新特区政府的观点，称要进行脱胎换骨的治理改革。随着中共医学专家的再次进驻，香港的政商两界将会被中共以人民的名义进行腥风血雨的清零，还对中共有幻象的人只能是死路一条。
 
+资料来源：[疫情｜內地再組中央援港防控專家組赴港　指導港府堅持動態清零](https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/756675/%E7%96%AB%E6%83%85-%E5%85%A7%E5%9C%B0%E5%86%8D%E7%B5%84%E4%B8%AD%E5%A4%AE%E6%8F%B4%E6%B8%AF%E9%98%B2%E6%8E%A7%E5%B0%88%E5%AE%B6%E7%B5%84%E8%B5%B4%E6%B8%AF-%E6%8C%87%E5%B0%8E%E6%B8%AF%E5%BA%9C%E5%A0%85%E6%8C%81%E5%8B%95%E6%i85%8B%E6%B8%85%E9%9B%B6)
 
-
-根据冯德莱恩的说法，欧盟政界人士在基辅与乌克兰总统泽连斯基会面，希望表明欧盟“比以往任何时候都更”站在乌克兰一边。
-
-周五晚上，欧盟委员会主席乘坐火车从波兰东南部前往乌克兰首都。 这位前德国国防部长是自基辅郊区布查的战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
-
-欧洲议会主席罗伯塔·梅佐拉上周前往基辅。 作为对布哈平民屠杀事件的回应，欧盟成员国周四决定对俄罗斯实施进一步制裁。 其中包括禁止从俄罗斯进口煤炭、新的贸易限制以及对俄罗斯船只进入欧盟港口的影响深远的禁令。
-
-简评：欧盟主席乘坐火车前往战火张的乌克兰首都基辅， 准备会见乌克兰总统泽连斯基， 这是非常勇敢而且需要勇气的行动， 用行动表示对乌克兰政府和乌克兰人民的最大支持，普京你也睁开眼睛吧。
-
-🔗[https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html](https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html)
-
-责任编辑、发布： Shuizhuyu
-
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

@@ -2,24 +2,28 @@
 ---
 
 
-## 樱花头条┃各省上万名医护人员支援上海 军队卫勤支援上海
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309357/)
+## 樱花时政┃美众议院议长佩洛西确认阳性推迟访日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309541/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-各省上万名医护人员支援上海; 军队卫勤支援上海。
+撰稿：东京樱花团/文小白
 
-信息来源：[https://www.gettr.com/post/p13grv0ce24](https://www.gettr.com/post/p13grv0ce24)
+据HNK4月8日消息，美国众议院议长佩洛西被证实感染了新冠病毒，因而推迟了原本定于本周末对日本的访问。
 
-编辑：东京樱花团/asket、包子/文米（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-31.png)照片来源：本文链接
 
+佩洛西议长与几位国会议员定于本周末访问日本，与岸田首相和众议院议长细田会面。在俄罗斯对乌克兰的持续军事侵略中，就应对俄罗斯以及支持乌克兰等交换意见。
+
+然而，1月7日，佩洛西议长办公室的工作人员在推特上宣布，佩洛西推迟了对包括日本在内的亚洲的访问，原因是她的新冠病毒菌株检测呈阳性。
+
+佩洛西目前没有症状，但根据美国疾病控制和预防中心（CDC）的指导方针，她需要自主隔离。
+
+佩洛西议长原本考虑在访问日本后访问台湾，由于感染访台日程也同时延期。
+
+信息来源：[米下院議長 日本訪問を延期 新型コロナウイルス感染確認](https://www3.nhk.or.jp/news/html/20220408/k10013572491000.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,41 @@
 ---
 
 
-## 速报┃日本再次发力 宣布对俄罗斯实施额外制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309632/)
+## 悉尼降雨超过历史最高同期水平气象局发布警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2309772/)
 
-撰稿：东京樱花团/闻雨
+#### 【雅典娜快讯】，紧贴时代脉搏
 
-4月8日，岸田首相召开了新闻发布会，宣布对俄罗斯实施额外制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-19.jpg)[图片来源](https://www.google.com/search?q=%E6%97%A5%E6%9C%AC%E9%A2%9D%E5%A4%96%E5%88%B6%E8%A3%81&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBtUGwpP6dS0xWgA5INcPm6NZUtj0Q:1649416000638&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwin7re2qYT3AhUjolwKHfz2A7MQ_AUoAnoECAEQBA#imgrc=z1CWfz_Uuxnc4M&amp;imgdii=hahDwL97qb3RrM)
-岸田首相表示：“加大对俄罗斯的外交和经济压力，我们将与国际社会团结起来，实施强有力的制裁，以阻止局势进一步升级，尽快实现停火，结束侵略。”额外的制裁包括以下5项。
+整理：等风来
+编辑：李易通
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-838.png)图片来源：NCA NewsWire / Christian Gilles
+悉尼在短短97天内就超过了其年平均降雨量，此际最新的拉尼娜天气系统在新南威尔士州沿海地区肆虐造成了洪水和新一轮的疏散行动。
 
-(1) 禁止从俄罗斯进口煤炭。
+气象局警告说，新州的强降雨天气将持续整个4月。
 
-(2) 对机械、一部分木材和伏特加酒实行进口禁令。
+根据气象局的数据，在截至4月7日上午9点的24小时内，天文台山（Observatory Hill）录得114.8毫米的降雨量，这是今年该气象站的最高日降雨量，足以使年度总降雨量超过1213.4毫米的年均水平。
 
-(3) 禁止在俄罗斯进行新的投资。
+天文台山的年度总降雨量最高记录是在1950年，为2194毫米。到当年4月7日，其总降雨量只达到535.8毫米，要少于2022年同期的降雨量。
 
-(4) 冻结俄罗斯最大银行俄罗斯联邦储蓄银行 （Sberbank）和阿尔法银行（Alfa Bank）的资产。
+今年的总降雨量在短短三个多月内就达到1226.8毫米，而四月份的七天总降雨量超过了月平均水平。
 
-(5) 冻结个人和公司的资产，包括近400名俄罗斯军事人员和议员以及约20个与军事有关的团体。
+如果悉尼在今年余下的时间里的降雨量达到平均水平，将以2056毫米结束今年全年降雨量。
 
-关于煤炭进口，岸田首相表示：“将通过尽快获得替代品和逐步消减进口来减少我们在能源领域对俄罗斯的依赖。”日本政府不再犹豫，采取了坚定的立场，和美国和欧洲等西方国家坚定地站在了一起。只有全球的民主国家联合在一起，才能彻底摧毁邪恶的独裁政权。
+达到97天的里程碑之际，又一起 “雨弹 “事件袭击了悉尼及其周边地区，导致Upper Hunter, South Coast, Illawarra 和 Sydney basin部分地区发布撤离令。
 
-信息来源：
+紧急服务代理局长Daniel Austin说，在过去24小时内，该局接到了680多个求助电话，发生了25起洪水救援。大多数求助是由于突发洪水以及人们困在巨大的倾盆大雨中，特别是在悉尼盆地和Illawarra地区。
 
-[【速報】岸田首相　対ロシア追加制裁を発表　石炭・ウォッカなど輸入禁止（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/61d269bc82f2846270e2a771e02d54126584d5b9)
+目前，Camden,Liverpool 的Georges River 以及 Milperra都发布了重大洪水警报，Camden的水位预计将在今晚超过上个月的洪水峰值。Macarthur附近的Menangle也发布了重大洪水警报，气象局警告说洪水将超过1988年的记录。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+参考链接：[悉尼降雨超过历史最高同期水平气象局发布警告](https://cn.theaustralian.com.au/2022/04/07/65472/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
