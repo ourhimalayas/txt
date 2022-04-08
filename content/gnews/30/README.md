@@ -2,117 +2,189 @@
 ---
 
 
-## 大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306356/)
+## 喜币让人真正实现劳动获得的财富不受掠夺
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306412/)
 
-这才是真正的中国人的悲哀
-Esto es realmente la tristeza de los verdaderos chinos
+为什么我今天要说喜币
+Por qué hoy voy a hablar sobre la moneda de Himalaya (H-coin)
 
-就是你根本不知道真假善恶之分
-Simplemente no sabes diferenciar entre el verdadero y lo falso, el bien y el mal
+你们记住七哥这句话
+Recuerden esta frase que voy a decir
 
-那么海外欺民贼能到今天
-Entonces, los engañadores en el extranjero pueden sobrevivir hasta el sol de hoy
+我再重申一遍
+Repito nuevamente
 
-就是(因为)没有真假善恶之分
-Es (porque) no hay distinción entre el bien y el mal
+如果有一天你发现七哥
+Si un día te das cuenta que yo
 
-有这么多无知的中国海外同胞
-Existen tantos compatriotas chinos ignorantes en el extranjero
+这事没做到的时候
+Al no lograr hacer esto
 
-和中国同胞真有良知的人
-Y compatriotas chinos con conciencia
+你们永远不要记住
+Nunca recuerden
 
-但是他却没有信仰
-Pero no tiene creencia
+我干过多了不起的事
+Las cosas increíbles que he hecho
 
-真的想灭共的人
-Gente que realmente quieren destruir al PCCh
+你要把我当成狗屎一样唾弃掉
+Debes escupirme como si fuera el excremento de un perro
 
-他却没有任何辨别真假的能力
-Pero no tiene ninguna habilidad para distinguir entre verdadero y falso
+否则你们就是疯子
+Sino ustedes son unos locos
 
-被他们利用几十年
-Fueron utilizados por ellos durante décadas
+我一定会让你们看到
+De seguro los haré ver
 
-我再告诉大家
-Les diré de nuevo
+新中国联邦人和未来的中国人
+Las personas del Nuevo Estado Federal de China y los futuros chinos
 
-你们从来没有想过亨利小哥
-Ustedes nunca pensaron, Hengli Xiaoge
+拥有一个币
+Obtengan una moneda
 
-在过去几十年被这些人害的人
-Personas que fueron asesinadas por estas personas en las últimas décadas
+是任何人不能管的
+Que no será manipulada por ninguna persona
 
-你们知道有多少人吗
-Ustedes saben ¿cuántas personas hay?
+而且是合法的, 中国人只有真正的
+Además, es legal; los chinos con sólo obtener verdaderamente
 
-谁能告诉我一个数字
-Alguien me puede decir una cifra
+拥有了自己的货币
+Su propia moneda
 
-被他们给骗回去的
-Los que fueron engañados por ellos
+和财富的掌握的权力
+Y el poder de tener la riqueza
 
-被他们给抓起来, 被他们给伤害的
-Arrestados, heridos por ellos
+中国人才真的不会再占人家便宜
+De esta forma, los chinos no aprovecharán de los demás
 
-被他们给骗了上床的
-Engañados a la cama por ellos
+去抢那些打折的货
+No pelearán por aquellas mercancías en descuento
 
-骗走钱的有多少个
-Y cuántos fueron estafados
+抢人家要饭人的
+Ni robarán de los mendigos
 
-就像草根小哥
-Así como Caogen Xiaoge
+人家施舍的饭
+De la comida donada por otras personas
 
-给路大脑袋傻捐, 捐了几百次
-Donó estúpidamente a Lude cientos de veces
+不会在中国任何当官的
+No se convertirá en ningún tipo de funcionario en China
 
-最后是路大脑袋说你活该
-Finalmente, Lude dijo que te lo mereces
+任何老百姓
+Cualquier ciudadano
 
-我让你捐了吗
-¿Acaso te dije que donaras?
+任何有钱人都想免费拿点东西
+O cualquier rico que quiera algo gratis
 
-然后你再看这个王书君
-Luego ves a este Wang Shujun
+没有安全感
+No siente seguridad
 
-你们知道这个王书君这个人
-Ustedes saben que este hombre Wang Shujun
+对财富没有真正的理解
+No entienden realmente lo que es la riqueza
 
-害了多少人吗?
-¿Le hizo daño a cuántas personas?
+当你真正有一天财富在你手里边
+El día en que la riqueza está realmente en tus manos
 
-他最起码接触华人几百个人的信息
-Al menos tiene acceso de información de cientos de chinos
+你有安全感的时候
+Cuando te sientas con seguridad
 
-让他给传输给共产党了
-Que lo transmitía al PCCh
+通过劳动
+Mediante una labor
 
-很多华人找他所谓作政庇
-Muchos chinos lo buscaron por un supuesto asilo político
+任何情况都相信财富
+Bajo cualquier situación cree en la riqueza
 
-多少人已经被弄回去了
-Cuantas personas han sido llevadas de regreso
+你私人财富不可掠夺
+Tu riqueza privada no puede ser saqueada
 
-你能查出来吗
-¿Logras averiguarlo?
+从2017年爆料我说过
+Desde el año 2017 en el Movimiento de Denunciantes dije
 
-**原视频网址**：[https://gettr.com/post/p128wet3a28](https://gettr.com/post/p128wet3a28)
+任何一个正常国家
+Cualquier país normal
+
+权力不能私有化
+El poder no se puede privatizar
+
+现在姓习太阳一家了
+Ahora toda la familia del sol Xi
+
+俄罗斯剩普京一个人的了
+Rusia queda solamente Putin
+
+所以说发生灾难
+Por eso ocurre un desastre
+
+财富不能公有化
+La riqueza no puede ser comunalizada
+
+谁的钱就是谁的
+El dinero le pertenece a quien lo tenga
+
+人类在走向一个灾难
+La humanidad se está dirigiendo hacia una catástrofe
+
+挣了钱被剥削
+El dinero que gana es explotado
+
+百分之五十, 七十的税收
+El 50%, 70% de impuestos
+
+二, 花钱的权力也被剥夺
+Segundo, el poder de gastar dinero también es robado
+
+土豆还有全世界
+Tudou y todo el mundo
+
+今天你看到的一样
+Lo mismo que ves hoy
+
+第三, 某种范围内使用
+Tercero, el uso dentro de un cierto ámbito
+
+使用的范围被剥夺
+El ámbito de uso es robado
+
+你就死定了
+Estarás muerto
+
+那么正义属于我们的前提
+Entonces la justicia pertenece a nuestra premisa
+
+是要靠实力
+Debe dependerse de la capacidad
+
+是要靠信仰和行动的
+Creencia y acción
+
+那就是我们一定要拥有铸币权
+Quiere decir que debemos tener el poder de elaborar moneda
+
+喜币还有未来的躺平币
+El H-coin y el futuro Tangping Coin
+
+一定是全世界上最稳定, 最安全
+Seguramente serán los más estables y seguros en todo el mundo
+
+最快捷, 最低成本, 永远不可剥夺
+Los más rápidos, de bajo costo y nunca serán robados
+
+的私人财富的创造者
+Del creador de la riqueza privada
+
+**原视频网址：**[https://gettr.com/post/p12al1w4ebc](https://gettr.com/post/p12al1w4ebc)
 
 日期：04/06/2022
-原视频标题：因为大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
-Debido a que la mayoría de los chinos son ignorantes y no tienen creencias, tampoco la capacidad de discernir lo verdadero y lo falso, el bien y el mal, son engañados por los ladrones de pseudo-democracia en el extranjero
+原视频标题：喜币让人真正实现劳动获得的财富不受掠夺
+El H-coin permite que las personas se den cuenta verdaderamente de la riqueza obtenida por el trabajo sin ser saqueada
 
 原视频日期：03/28/2021
-原视频网址：https://gettr.com/post/p128wet3a28
-任务编号：KC487(4114)
-视频时间段：0:00-1:30
+原视频网址：https://gettr.com/post/p12al1w4ebc
+任务编号：KC486（4113）
+视频时间段：0:00-2:07
 
 西听校：洛杉矶盘古农场- 霙霙（文霙）
 翻译：洛杉矶盘古农场- 小文萱
 翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
+字幕+视频制作：洛杉矶盘古农场-文新
 审片：洛杉矶盘古农场-银龙
 发布：洛杉矶盘古农场 – 彩虹 Rainbow
 [![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
