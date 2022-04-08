@@ -2,18 +2,38 @@
 ---
 
 
-## 俄中联手打造“大欧亚共荣圈”邪恶势力
-` 喜马拉雅德国纽伦堡正义农场` [轉載自GNews](https://gnews.org/zh-hans/2311620/)
+## NFSC新闻、NFSC新闻访谈简报|2022年4月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2311655/)
 
-撰稿：蓝鸟人
-编辑发稿：am夏天
-德国纽伦堡正义农场
+作者：香草山翻译部
 
-前两天美国总统拜登和中国主席习近平通话，让中国不要暗中支持俄罗斯对乌克兰的战争。中俄长期以来具有相互援助的事实，美国总统对习近平的提醒和警告没有任何意义。俄乌战争是邪恶势力发动新冷战的开始.
-2022年普京和习近平发表了一个合作声明，声称中俄合作没有禁区，这个联盟和二战前斯大林和希特勒组建的联盟很相似.这标志着美国用全球化对中国和平演变的失败，美国过去认为只要中国变富了就会停止迫害周围的地区和虐待自己的人民，就会自动变成一个民主自由的国家，到现在这个不切实际的幻想已经完全破产。
-在中俄联盟中俄罗斯是真正的老大，俄罗斯叫嚣着要和中共建立大欧亚的伙伴关系，要在利益的基础上建立全面伙伴关系，建立“大欧亚共荣圈”，以俄罗斯为中心构建独立于美国和欧洲之外的独立体系。俄罗斯构建“大欧亚共荣圈”靠的就是俄罗斯的军事实力和俄罗斯的能源，还有就是中共国提供的大量资金支持，中俄形成了资源和货币的捆绑。
-新的科技革命已经开始，独裁落后的中俄绝对会在新一轮的科技革命中落伍，与西方的差距是一个加速的过程，只会越拉越大。对于中俄来说，现在的每一天都是最强的一天，普京和习近平根本输不起时间，石油绝对会被新能源替代。石油美元现在已经日落西山，美国也已经大力发展数字美元。中俄联盟靠的就是靠暴力战争终结全球化，想拖垮欧美，夺取世界领导权。
-![](https://assets.gnews.org/wp-content/uploads/2022/02/德农二维码-30.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-12.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GTV_-_Google_-7.png)
+
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：
+[2022.04.08早 《NFSC新闻》](https://www.gettr.com/streaming/p147km614d6)
+[2022.04.08早《NFSC新闻访谈》](https://www.gettr.com/streaming/p147opz0196)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+
+**更多资讯，更多关注**
+**[新中国联邦新闻 | 盖特](https://www.gettr.com/user/nfscnews)**
+**[Gnews | 盖特](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)**
+**[纽约香草山农场Himalaya | 盖特](https://www.gettr.com/user/himalaya_mos)**
+**[纽约香草山农场Himalaya ｜YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)**
+[**欢迎加入纽约香草山农场 | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123-12.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,42 @@
 ---
 
 
-## 有声|中共国内清明假期出行比率暴跌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2311602/)
+## 布查的死亡超过300人，当地人被发现受到“残酷的折磨”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311635/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间4月6日，据相关媒体报道，鉴于中共以疫情为由对墙内各地区实行的强制封控政策，在2022年为期三天的清明节假期中，中共国内民众的出行比率比去年下降了近三分之二。
+编译：七叶之芒
 
-数据显示，4月3日至4月5日，中共国内包括铁路、航空、水路和公路在内的总出行数大约不到五千四百万次，较去年同期下降了63%，甚至低于2020年中共病毒疫情伊始之时。其中，墙内的航空旅行受到的影响最为严重：清明假期内的乘客总数仅有56万人，相比去年暴跌了87%。此外，墙内民众的公路旅行频率也较去年减少了53%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-17.jpg)
 
-目前，中共当局正在对出行民众执行严格的管控和病毒检测措施，全国大约有23个城市的1.93亿民众均受到了波及。
+布查市市长说，该市官员已经能够确认据称被俄罗斯军队杀害的163名居民，约占俄罗斯占领乌克兰城镇后发现的死亡总人数的一半。
 
-文字版原文：[中共国内清明假期出行比率暴跌](https://gnews.org/zh-hans/2305676/)
+布查市市长阿纳托利-费多鲁克在接受美国之音采访时说：“到目前为止，我们已经能够确定163名遇害者的身份。”
 
-音频处理：Fei797
-发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-860-edited.png)2022年3月4日，在基辅西部的布查市，这幅总图显示了被摧毁的俄罗斯装甲车。布卡市市长声称，到目前为止，官员已经能够确认163名据称在基辅地区被俄罗斯军队杀害的居民
+图片来源：新闻链接
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+“这些都是我们镇上的居民，他们被俄罗斯人冷酷无情地杀害，受到残忍的折磨。我们知道他们的姓、名、父名[父亲的名字]，他们住在哪里，以及他们是谁–父亲、儿子、妻子，在一个家庭或另一个家庭。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+市长指出，这一数字占据称在靠近乌克兰首都基辅的该镇被俄罗斯军队杀害的人的一半。
+
+当被问及有多少人在布查被杀时，市长回答说，“320人”。
+
+克里姆林宫周一否认了与布查平民被杀有关的任何指控。
+
+费多鲁克还警告说，现在让居民返回布查“还为时过早”。
+
+他说：“相当大比例的领土仍然是危险的。” 《新闻周刊》已与俄罗斯外交部联系，要求其发表评论。
+
+来源：[https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266](https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266)
+
+* * *
+
+审核：Aries的星
+校对：小东
+发布：小东
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

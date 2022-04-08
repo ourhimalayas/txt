@@ -2,27 +2,43 @@
 ---
 
 
-## 加拿大和中共外长通话双方各执一词
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311731/)
+## 战友怎么才能避免被喝茶
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311771/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
+撰稿：东京樱花团/非常喜欢
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+共产党的灭亡已经只是一个时间问题了，在这个黎明前的黑暗时刻，战友们要想方设法隐藏好自己，等待胜利的到来。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-37.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.cyclonis.com%2Fimages%2F2018%2F07%2Fsecure-personal-information-765x383.jpg&amp;imgrefurl=https%3A%2F%2Fwww.cyclonis.com%2Fzh-hans%2Ftop-5-steps-ensure-your-information-secured%2F&amp;tbnid=AqzjI0lkyDth0M&amp;v)
+共产党的灭亡已经只是一个时间问题了，在这个黎明前的黑暗时刻，战友们要想方设法隐藏好自己，等待胜利的到来。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494354951.png)图片来源：网络
+国内的监控无处不在，国安想定位一个人，太容易了，但是对于低价值目标，他们不会调用黑客的力量，所以如何隐藏，非常重要。
 
+第一件事，翻墙的手机必须和日用手机分开，拔卡，放家里，用WiFi。最好是用苹果手机，比较安全。
 
-据加拿大政府4月5日消息，该国外交部长乔利当天与中共国外交部长王毅，通过电话讨论了国际局势和两国外交的重点问题。但随后双方宣布的通话内容却截然不同。
+第二件事，微信全程在国安的监控范围，不要发任何敏感信息。你在微信上发敏感信息，你方便，国安找你更方便。
 
-乔利部长在会晤中提出：中共应谴责普京政权违反了《联合国宪章》血腥入侵乌克兰，并因此密切关注中共国的下一步行动。并表示加拿大将继续捍卫和促进其人权和法治的价值观，并重申了对中共持续侵犯人权的担忧。
+第三件事，翻墙的手机把国产软件都删除。国产软件全部有监控，小心，小心，再小心。
 
-而中方新闻稿关于本次通话的内容却是对于“两国关系的现状不符合双方利益”的抱怨和“如果台湾问题处理不好，中加关系就会遭受根本性损害”等威胁。可以看出，两国未就任何问题达成共识。
+第四件事，翻墙用的梯子，翻墙出来第一件事，查一下梯子是否和国安合作，比如蛙速云，用这个非常危险，他和国安合作。
 
-校对编辑：硫酸羟氯喹64
+第五件事,战友之间在网上购物，留下了地址。群里都有特务，我们谈话对他们透明，所以小心。
 
-发稿：文莱
+第六件事，用国内手机，邮箱注册推特骂共产党，这样等于是向国安发出邀请。推特被中共渗透了，只能用国外的邮箱和手机。
 
-新闻来源：[https://www.canada.ca/en/global-affairs/news/2022/04/minister-joly-speaks-with-chinas-foreign-minister-wang-yi.html](https://www.canada.ca/en/global-affairs/news/2022/04/minister-joly-speaks-with-chinas-foreign-minister-wang-yi.html)
+第七件事，出现信息泄露，把一切资料都删除，国安来了，要机智应对，一般都是写保证书后放人，其他事情见机行事。
 
-[http://ca.china-embassy.org/chn/zjwl/202204/t20220406\_10664861.htm](http://ca.china-embassy.org/chn/zjwl/202204/t20220406_10664861.htm)
+国产软件虽然都有监控，但是其他人用的非常多，只要战友不发敏感信息，和正常人一同操作，不会纳入监控范围，战友们隐蔽得好的也有很多，喝茶之后第一时间，在群内咨询，有经验的战友会给您很多建议。
+
+总之，战友保重，再忍耐一段时间，离天亮不远了。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

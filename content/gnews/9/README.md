@@ -2,24 +2,27 @@
 ---
 
 
-## 2022年4月8日，全球中共病毒疫情情况汇总
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311690/)
+## 加拿大和中共外长通话双方各执一词
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311731/)
 
-制作：DT新闻组
-![](https://assets.gnews.org/wp-content/uploads/2022/03/xin_png.001-2.jpg)
-**中共的杀戮还在继续……**
+采编/撰稿：加拿大温哥华扬帆农场 – 活力人生
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0940-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494354951.png)图片来源：网络
 
-发稿：信心的选择
 
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+据加拿大政府4月5日消息，该国外交部长乔利当天与中共国外交部长王毅，通过电话讨论了国际局势和两国外交的重点问题。但随后双方宣布的通话内容却截然不同。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+乔利部长在会晤中提出：中共应谴责普京政权违反了《联合国宪章》血腥入侵乌克兰，并因此密切关注中共国的下一步行动。并表示加拿大将继续捍卫和促进其人权和法治的价值观，并重申了对中共持续侵犯人权的担忧。
+
+而中方新闻稿关于本次通话的内容却是对于“两国关系的现状不符合双方利益”的抱怨和“如果台湾问题处理不好，中加关系就会遭受根本性损害”等威胁。可以看出，两国未就任何问题达成共识。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://www.canada.ca/en/global-affairs/news/2022/04/minister-joly-speaks-with-chinas-foreign-minister-wang-yi.html](https://www.canada.ca/en/global-affairs/news/2022/04/minister-joly-speaks-with-chinas-foreign-minister-wang-yi.html)
+
+[http://ca.china-embassy.org/chn/zjwl/202204/t20220406\_10664861.htm](http://ca.china-embassy.org/chn/zjwl/202204/t20220406_10664861.htm)
 
  
 

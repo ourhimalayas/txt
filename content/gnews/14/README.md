@@ -2,20 +2,25 @@
 ---
 
 
-## 乌克兰东部城市一火车站遭俄军火箭弹袭击，39人丧生
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2311654/)
+## 加拿大应立即从中共国撤离养老金投资
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311680/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-861.png)图片来源：莫斯科时报
-据《真正美国之声》（Real America’s Voice）4月8日报道，乌克兰官员透露，本周五，乌克兰东部城市克拉马托尔斯克（Kramatorsk）的一个火车站遭到了火箭弹袭击，造成至少30人死亡，100多人受伤。《福克斯新闻》（Fox News）周五上午报道说，该车站被两枚导弹击中，多达39人死亡。
+采编/撰稿：加拿大温哥华扬帆农场 – 自由法兰西
 
-乌克兰总统泽连斯基表示，当火车站遭袭时，有“数千人”正在该车站。他在社交媒体上发布的照片显示，一节火车车厢的窗户被击碎，室外候车区到处都是被遗弃的行李和尸体。泽连斯基称俄罗斯对火车站的血腥袭击是 “无限的邪恶”：“失去人性的俄罗斯人并没有改变他们的行为。由于他们没有力量或勇气在战场上面对我们，所以只能杀戮平民，这是无限的邪恶。如果不对其进行惩罚，那么它将永远不会停止。”
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494350661.png)图片来源：ottawacitizen
 
-俄乌战争期间，俄军发起了多次针对乌克兰平民的袭击，这起事件只是其中之一。就在之前一天（4月7日），联合国大会投票决定暂停俄罗斯在人权理事会的成员国资格。
 
-*责编：白夜*
+据媒体《渥太华公民》4月4日报道，由于中共的种族灭绝罪行，以及支援俄罗斯所发动的侵略乌克兰战争等原因，从中共国全面撤资已成为加拿大政府的当务之急。
 
-新闻来源：[Russia missile attack on eastern Ukraine train station kills 39, injures over 100, authorities say](https://americasvoice.news/justthenews/russia-missile-attack-eastern-ukraine-train-station-kills-30-injures-over-100/)
+报道指出，中共此前就因种族灭绝罪而导致绝大部分加拿大人都希望停止与其贸易往来。如今，中共又因合谋俄罗斯入侵乌克兰而遭到欧美的合力围剿。此外，中共国市场毫无法治保障，投资风险极高，包括美国在内的多数养老金投资都因此蒙受了巨大损失。同时，习近平当局可能对台湾的入侵再次加剧了中共国的地缘政治和经济风险。
+
+据悉，联邦政府在中共国的养老金投资计划总计575亿加元，约占加拿大投资组合资金的12％。但为避免成为中共作恶的同谋和巨大投资风险，以及避免被这些投资所裹挟，与中共国经济彻底脱钩已刻不容缓。
+
+校对编辑：硫酸羟氯喹64
+
+发稿：文莱
+
+新闻来源：[https://ottawacitizen.com/opinion/kretzmar-and-mccuaig-johnston-why-canadian-pension-plans-should-divest-from-china](https://ottawacitizen.com/opinion/kretzmar-and-mccuaig-johnston-why-canadian-pension-plans-should-divest-from-china)
 
  
 
