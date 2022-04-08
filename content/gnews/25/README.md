@@ -2,12 +2,27 @@
 ---
 
 
-## 美国宣布将对俄罗斯进行新一轮的毁灭性制裁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2306717/)
+## 视频|中共疫情下猪狗不如的中国人「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2306736/)
 
-04/06/2022 美国宣布对俄罗斯寡头进行制裁，并对俄罗斯进行新一轮的毁灭性制裁
+视频制作：文果
 
-By:【秘密翻译组-精翻组 G-Translators/Elite Team】
+撰稿人：Miyali7768(文玉）
+
+文案审核：文炬
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+新闻来源：伪装的白衣天使
+副标题：大白衣掩盖不了训练有素的杀手和罪恶
+
+发稿：qiutian（邱甜）
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
 
  
 
