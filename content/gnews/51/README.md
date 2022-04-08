@@ -2,35 +2,28 @@
 ---
 
 
-## 印尼将从5月起对数字资产收益征收0.1%的所得税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
+## 美CDC主任宣布对该机构进行全面审查
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307032/)
 
-翻译/编辑：小红帽
+作者：加拿大温哥华扬帆农场 Spirit
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
+4月4日，据外媒报道，美国疾病控制和预防中心主任瓦伦斯基宣布，将对美国主要公共卫生机构进行全面审查。这次审查将评估CDC的结构、系统和流程。
 
-A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
-根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide4-2.jpeg)
 
-税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
+从4月11日开始，美国卫生与公众服务部HHS将进行为期一个月的询问，听取意见和评估，并提供将更多Covid-19应对措施转移分散到其各中心的过程，以及加强科学和项目的交付建议。
 
-正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
+瓦伦斯基还要求三位高级官员收集对该机构的反馈意见，包括对目前结构改革的提议。她说，在75年的历史中，CDC从未这样仅根据有限的、实时的和不断变化的科学现象来做出迅速的决定。COVID-19大流行为整个HHS提供了审查当前组织结构、系统和流程的机会，CDC正在努力对该机构进行战略定位和现代化改造，以促进和支持公共卫生的未来。美国民众将热切关注CDC的核心能力，包括公共卫生队伍、数据现代化、实验室能力、健康平等、对疾病爆发的快速反应，以及在美国和世界各地的准备工作等。
 
-“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
+评论人士认为，在审查、改革CDC的基础上，注重提高公共卫生事件数据的真实性和透明度，才是当前最重要、最紧急的事项。
 
-近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
+参考链接：[CDC director announces sweeping review of agency](https://www.cnn.com/2022/04/04/health/cdc-review/index.html)
 
-正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+总编/编辑：宁文静
+审核：静言
+校正/发稿：谐趣园
 
  
 

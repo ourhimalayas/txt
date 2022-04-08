@@ -2,27 +2,155 @@
 ---
 
 
-## 俄罗斯被联合国投票“踢出”人权理事会
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2310952/)
+## 郭文贵新曲《灭共的雪》、《铁锁梦》上线5天创造的历史记录
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2311078/)
 
-作者：华盛顿DC农场 自由信仰
+4/4/2022 – 4/8/2022 郭文贵先生新曲《灭共的雪》、《铁锁梦》上线5天iTunes创造的历史记录
 
-4月7日，据路透社报道，因俄军入侵乌克兰已经“严重和系统地侵犯并践踏人权”，联合国大会各成员国今天通过投票，暂停了俄罗斯在联合国人权理事会的席位。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/7-25.jpg)
-美国主导和推动了这项议案，并获得了 93 个赞成票，24 个国家投反对票，58 个国家弃权。根据联合国议事规则，不计弃权票，需要三分之二多数投票同意，就能将俄罗斯从47个成员国组成的日内瓦人权理事会中剔除。
+* * *
 
-美国驻联合国大使格林菲尔德说，联合国发出了一个明确的信息，受害者和幸存者的痛苦不会被忽视。必须确保一个恶劣的人权侵犯者，不会被允许在联合国担任人权方面的领导职务。
+[【New-Songs】4-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
 
-据悉，投票之前，俄罗斯曾警告各国，投赞成票或弃权将被视为“不友好的姿态”，会对双边关系产生影响。但本次决议还是成功地将俄罗斯“踢出”了联合国人权理事会。消息人士称，自俄罗斯2月24日入侵乌克兰以来，由193名成员组成的大会通过了三项决议。之前两项谴责俄罗斯侵略行为的大会决议分别以141票和140票赞成通过。俄罗斯的伙伴中共国在前两次大会表决中选择弃权之后，这一次明确地站在了俄罗斯一边。
+* * *
 
-参考链接：[U.N. suspends Russia from human rights body, Moscow then quits](https://www.reuters.com/world/un-vote-suspending-russia-human-rights-council-over-ukraine-2022-04-07/)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
 
-总编：宁文静
-编辑：谐趣园
-审核：宁文静
-校正/发稿：Fei797
+* * *
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_4.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_6.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_7.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_8.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_9.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_10.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_11.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_13.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_14.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_15.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_20.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_21.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_29.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_30.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_31.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_32-1.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_33.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_34.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_36.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_40.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_42-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_44-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_45.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_46.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_48.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_49.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_50.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_51.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_53.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_54.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_55.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_56.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_59.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_61.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_63.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_64.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_65.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_66.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_67.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_68.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_69.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_70.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_71.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_72.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_73.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_76.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_77.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_78.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_79.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_80-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_81-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_82.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_83.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_84.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_85.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_86.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_87.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_88.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_89.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_90.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_91.jpg)
+
+
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/打榜总结48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_92.jpg)
+
+
+[【New-Songs】4-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】48-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

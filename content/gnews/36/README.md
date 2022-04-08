@@ -2,17 +2,15 @@
 ---
 
 
-## 疫苗灾难蔓延 储粮备药应对
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2310340/)
+## 科普系列：人工智能
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2310559/)
 
 文贵大直播20220408
 
-撰稿：坐看云起时（扬帆）童媚（澳喜）文徐（DC）
+撰稿：磨刀石（DC）dingding（香草山）躺平小哥（新GTV项目组）Timli（盘古）文郁（香草山）
 
-美工：长颈鹿 (雅典娜)
-
-书法：沙漠之花（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022.4.8_疫苗灾难蔓延储粮备药应对_final.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-10.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片9-7.png)
+美工：Bobby（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能00-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能01-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能02-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能03-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能04-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能05-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能06-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能07-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能08-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能09-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能10-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能11-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能12-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能13-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能14-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能15-scaled.jpg)![](https://assets.gnews.org/wp-content/uploads/2022/04/人工智能16-scaled.jpg)
 *发布：Theodosia*
 
  

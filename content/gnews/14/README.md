@@ -2,55 +2,48 @@
 ---
 
 
-## 装置作品赏析
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311062/)
+## 有声|春天来了
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2311347/)
 
-整理：vale
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+春天的花儿开成片
+小蜜蜂忙的转圈圈
+每日七哥发小片段
+传来了共匪要悲催
+战友们听得要流水
+埋葬共匪送土一堆
+Medyka的战友风里吹
+坚守阵地呀不后悔
+传播正义把星旗挥
+有温暖还有咖啡杯
+失家的人们把家回
+你们英雄把敌人毁
+春天呀春天
+如期而至不更改
+邪恶的势力
+也要入轮回
+新中囯联邦人放飞
+传播真相呀勤不缀
+春天里播种秋天收
+有币无苗你冲天吼
+声音冲破那云霄九
+还有谁能比咱们牛
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-17.jpg)
+文字版原文：[春天来了](https://gnews.org/zh-hans/2303776/)
 
+音频处理：Fei797
+发稿：Fei797
 
-
-作者：龚凡
-
-材质：综合材料
-
-别有洞天――武汉红十字会（2020）
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-147.jpg)
-
-局势之 中国印度
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2-64.jpg)
-
-局势之 中美
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-53.jpg)
-
-拆与合  山东新农村，后来被叫停了，祸害老百姓
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-59.jpg)
-
-拆与合  墙缝变成了束缚人的网
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-36.jpg)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：五通庙
-
-当代艺术原创系列文章请点击专栏标题链接–[西班牙巴塞罗那喜悦农场：当代艺术专栏](https://gnews.org/zh-hans/2239865/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,37 @@
 ---
 
 
-## 美议长周日将访问台湾中共扬言美国玩火
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2309976/)
+## 国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309165/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏![图像]()
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-4.png)▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+欧盟执委会6日提议将禁止进口俄罗斯煤炭纳入新一轮制裁清单，会议结果出炉，欧盟成员同意将煤炭进口禁令纳入对俄罗斯的新一轮制裁，制裁决议将经欧盟官方公布后生效。欧盟对俄罗斯实施煤炭进口禁运，同美国禁止进口俄能源，旨在对普京施加经济压力。
 
-整理：等风来
-编辑：李易通
+欧盟执委会宣布自**8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口**；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-16.png)图片来源：雅典娜设计组
+欧洲统计局数据显示欧盟仰赖俄罗斯能源，2020年自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气。本次煤炭进口禁令，是欧盟首次对俄罗斯能源实施制裁，预计价值高达每年40亿欧元（44亿美元）。同时，欧盟已着手制定对石油等其他能源的制裁措施。
+
+欧盟决议将对俄罗斯实施制裁如下：（由欧盟官方公布后生效）
+
+- 对俄罗斯宣传、国安、军事机构人员、侵略乌克兰有关的工业技术部门进行实体制裁
+- 冻结数家俄罗斯银行资产
+- 禁止向俄罗斯出口价值高达100亿欧元的高科技产品
+- 欧盟将对悬挂俄罗斯国籍的船只关闭港口
+- 对俄罗斯实施武器禁运
+- 禁止俄罗斯煤炭进口、禁运
+- 禁止从俄罗斯进口，价值高达55亿欧元的原料和关键原料
+- 对俄罗斯及白俄罗斯公路运输制裁
 
 
-美国国会众议院佩洛西将在本周日（2022年4月10日）访问台湾。如果成行，她将是25年首位任内访问台湾的美国众议院议长。
+欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）推特表示，俄乌战争持续，俄国在金融、经济、科技方面将长期受到孤立。
 
-日本富士新闻网星期四（2022年4月7日）说，佩洛西将在4月8日抵达日本，与日本首相岸田文雄会晤后4月10日前往台湾，因为她对北京在俄罗斯入侵乌克兰的大背景下可能对台湾动武感到忧虑。
+来源｜[euronews](https://www.euronews.com/my-europe/2022/04/07/eu-countries-agree-on-new-russia-sanctions-including-coal-embargo)、[AP](https://apnews.com/article/russia-ukraine-kyiv-business-european-union-europe-9a1062991e5e1f463c31e4cf518b2c3f)、[Présidence française du Conseil de l’UE’s twitter](https://twitter.com/Europe2022FR)
 
-台湾联合报也报道说，佩洛西率领的国会代表团计划4月10日台湾关系法立法43周年的当天抵达台湾，以展现美国国会对台湾的支持和对台湾关系法的重视。
+* * *
 
-报道说，为了避免刺激北京，台湾外交和国安部门的官员都对此表示低调，未对媒体的相关查询作出证实或否认。
-
-佩洛西的办公室也以安全规则惯例为理由拒绝证实她访问台湾的消息。如果成行，佩洛西将成为多年来任内访问台湾的美国最高层官员。
-
-中国当局称已向美方提出严正交涉。中国外交部发言人赵立坚4月7日说，美国国会是美国政府的组成部分，理应严格遵守美国奉行的一个中国政策；如果佩洛西众议长访台，将严重损害中国主权，严重冲击中美关系的政治基础，如美方一意孤行，中方必将采取坚决有力措施回应。
-
-官方的环球日报前总编胡锡进发出推文说，佩洛西在玩火，美国也在玩火，她的访问必定会带来严重后果。
-
-2020年，时任美国国务次卿克拉克(Keith Krach)访问台湾后，中共派战斗机和轰炸机一连两天飞过台湾海峡中线，以表达对美国高级官员访台的不满。
-
-参考链接：[美议长周日将访问台湾中共扬言美国玩火](https://www.voachinese.com/a/pelositaiwan-20220407/6518803.html)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -2,26 +2,37 @@
 ---
 
 
-## 喜悦辣评——第07期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311307/)
+## 波士顿马拉松赛禁止俄罗斯和白俄罗斯运动员参赛
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2311471/)
 
-作者：Byran
-排版：蚂蚁兄弟
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
+作者： 信息组 – Seabird希望
 
-新中国联邦人，不畏艰险，逆行而上，挽救生命，可歌可泣，
-新中国联邦人，不畏阻挠，组织有序，前赴后继，感天动地。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/西悦辣评.jpeg)
+波士顿体育协会在4月6日周三的一份新闻稿中宣布了一项禁令，禁止俄罗斯和白俄罗斯的运动员参加本月18日举行的波士顿马拉松比赛，理由是俄罗斯入侵乌克兰和白俄罗斯政府的援俄。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/123.jpg)图片来源： www.nytimes.com
+波士顿体育协会主席兼首席执行官汤姆-格里尔克说：“与世界上许多人一样，我们对在乌克兰的报道中所看到和了解到的情况感到震惊和愤怒。我们相信，跑步是一项全球性的运动，因此，我们必须尽我们所能，向乌克兰人民表示支持。”
 
-* * *
+官员们说，报名参加这次从马萨诸塞州霍普金顿(Hopkinton)到宾夕法尼亚州博伊尔斯顿街跑步的乌克兰运动员将被允许推迟到明年参赛，或者在无法到达起跑线时获得退款。
 
-发稿: Nuevo唐人
+据组织者称，被接受参加精英赛的俄罗斯和白俄罗斯选手将获得退款。但是，居住在其他地方的极权主义国家的公民将被允许在他们本国的旗帜下参加比赛。
+
+波士顿马拉松赛的冠军可获得150,000美元的奖金。自1897年开始的年度比赛以来，没有任何俄罗斯或白俄罗斯男子获得过冠军。Lidiya Grigoryeva是2007年赢得26.2英里比赛的最后一位俄罗斯女性。
+
+俄罗斯总统普京发动侵略乌克兰的战争，对乌克兰人进行杀戮、强暴，致使乌克兰人死伤惨重，老百姓逃离家园，流离失所。世界的舆论是偏向乌克兰的，因为乌克兰是受害国，乌克兰人是受害者。波士顿体育协会这样的民间组织宣布对俄罗斯和白俄罗斯的运动员的禁令，以声援乌克兰，无可厚非。但是自俄乌战争爆发后，世界各地的反俄的仇恨犯罪直线上升。在加州圣地亚哥，一家以俄罗斯为主题的餐厅收到了威胁和仇恨的信息，在华盛顿特区，另一家餐厅被破坏了。最近在纽约布鲁克林，一名手持支持乌克兰东部分离主义地区的亲俄顿涅茨克旗帜的男子遭到袭击，在加拿大卡尔加里，一座俄罗斯东正教教堂遭到了破坏。而比起这些，在欧洲反俄的仇恨犯罪有过之而无不及。
+
+我们知道俄罗斯的普京政府尽管披着民主的外衣，但其本质仍然是专制的。俄罗斯的人民不等于俄罗斯政府，但对于大多数人来说，很难做到将两者完全区分开来。这就让我联想到由爆料革命的先驱郭文贵先生提出的“中国人不等于中国共产党”是多么的英明。这次新中国联邦人在波兰前线进行的救援乌克兰难民的活动，让全世界人明白，不应该仇华，因为我们新中国联邦人要推翻万恶的中国共产党，我们人民不应该为中共政府的腐败、专制和暴政买单。
+
+（本文仅代表作者个人观点）
+
+参考链接：[Boston Marathon bans athletes from Russia and Belarus over Ukraine war](https://nypost.com/2022/04/06/athletes-from-russia-and-belarus-banned-from-boston-marathon/)
+
+编辑/校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

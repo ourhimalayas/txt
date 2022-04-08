@@ -2,32 +2,31 @@
 ---
 
 
-## 您可以通过检举揭发帮助欧盟制裁中共
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2310226/)
+## 国际｜日本驱逐俄罗斯八名外交人员 配合西方降低俄煤进口
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309788/)
 
-编译：波士顿五月花—-思澈
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-12.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+日本外交部外国新闻秘书小野光子于记者会宣布，日本政府将驱逐俄罗斯驻日本大使馆八名外交官，其中并不包含俄罗斯驻日大使加卢津。随后，森副大臣宣布八名遭驱逐人员，包含俄驻日本大使馆外交官和俄罗斯贸易代表处工作人员。撤出期限日本官方称已通知俄方，并未对外透漏。面对日本决定驱逐俄罗斯驻日人员，俄罗斯宣称将采取适当措施。
 
-中共媒体和公司支持支援俄罗斯的行为属于违反制裁涉及到的个人，公司和第三国
+小野光子表示“俄罗斯否认杀害平民一事，不可被接受。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1752A305-D46D-4F57-8B7C-438D2FC68C54.jpeg)
+欧洲多国已陆续采取驱离俄国外交官，欧盟曾于两天内驱逐超过120名，其中立陶宛、爱沙尼亚、拉脱维亚，波罗的海三国率先宣布“关闭俄罗斯总领事馆”。立陶宛4日宣布驱逐俄罗斯大使并关闭俄国总领事馆，对俄外交降级，其他两国宣布跟进。
 
-分享有关违反欧盟制裁的信息，有助于欧盟成员国正在进行的调查取得成功，并提高欧盟制裁的有效性。
+日本本次并未驱逐俄驻日大使，仅驱逐工作人员及外交官。
 
-如果你知道可能违反了任何欧盟制裁，你可以通过自愿提供信息来提请委员会注意。这些信息可以涉及，例如，**有关违反制裁的事实，其情况和涉及的个人、公司和第三国。这些可以是不为公众所知但为你所知的事实，可以涵盖过去、正在进行或计划进行的违反制裁行为，以及试图规避欧盟制裁的行为。**
+## 配合美、欧制裁 计划逐步减少俄罗斯煤炭进口
 
-你可以通过两种方式报告违反制裁行为。
+美国及欧盟于8日对外公布称，禁止进口、禁运俄罗斯煤炭。日本经济产业大臣萩生田光(Koichi Hagiuda)表示，日本是世界第三大煤炭进口国，计划逐步减少俄罗斯的煤炭进口，同时在对俄罗斯实施制裁下寻找替代供应来源。俄罗斯目前是日本燃料煤第二大供应国，短时间难立即找到替代供应来源，因此日本能源制裁是在不造成产业负担下，配合西方制裁。
 
-💥直接联系我们：如果你站出来，提供你的姓名和联系方式，就能给我们带来最大的帮助，因为这将使你的陈述更加可信，使我们更有可能采取行动。
-要通过这种方式报告违反制裁的行为，你可以简单地发送一封电子邮件到 **[\[email protected\]](/cdn-cgi/l/email-protection#cfbdaaa3aab7e2bcaea1acbba6a0a1bc8faaace1aababda0bfaee1aaba)**
-💥保持匿名：如果你不想透露你的身份，你可以通过欧盟制裁举报工具向我们发送匿名信息，这是一个高度安全的在线平台。管理该工具的欧盟委员会完全致力于保护你的匿名性。
+美国能源情报署(U.S. Energy Information Administration, EIA)数据，中（共）国、印度、日本为燃料煤炭前三大进口国。
 
-要访问该工具，了解你的匿名性如何得到保护，并报告违反制裁的情况，出于安全考虑，请在浏览器中复制粘贴或手动重新输入以下网址：**[https://EUsanctions.integrityline.com](https://eusanctions.integrityline.com/)**
+來源｜[REUTERS](https://jp.reuters.com/article/japan-russia-diplomats-idJPKCN2M00P2)、[NHK](https://www3.nhk.or.jp/news/html/20220408/k10013573221000.html)、[rfi](https://www.rti.org.tw/news/view/id/2129451)
 
-素材来源：[https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions\_en#whistleblower](https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions_en#whistleblower)
+* * *
 
-*发布：思澈*
-
-
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

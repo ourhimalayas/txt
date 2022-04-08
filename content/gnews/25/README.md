@@ -2,21 +2,23 @@
 ---
 
 
-## 有声|拜登再为乌克兰订购价值1 亿美元的标枪反坦克导弹
-` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310786/)
+## 有声|美国对俄罗斯最大暗网市场及一家加密货币交易所实施制裁
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310790/)
 
 【玫瑰看新闻】每日快讯
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
-【CNBC 4月5日报导】 根据美国五角大楼和国务院的声明，美国总统拜登周二授权立即释放价值1 亿美元的标枪反坦克导弹，并为乌克兰提供训练。标枪是一种肩扛式目标锁定导弹系统，可以从一英里多的距离摧毁一辆移动中的坦克。据悉，到目前为止，没有任何武器能像美国制造的标枪那样有效或致命。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image016.jpg)**2022 **年**3 **月**23 **日，乌克兰军队的一名军人在哈尔科夫附近的一个检查站手持**FGM-148 **标枪导弹，这是一种美国制造的便携式反坦克导弹。 谢尔盖*·*博博克*|*法新社*|*盖蒂图片社
-周二晚间这一公告表明美国计划通过增加基辅战斗力的杀伤力来应对俄罗斯在乌克兰犯下的越来越多的战争罪行。
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+【路透社**4**月**5**日报导】 美国财政部周二对一个著名的俄罗斯暗网市场网站（**Hydra）**和一家加密货币交易所（**Garantex）**实施制裁。财政部称该交易所主要在莫斯科和圣彼得堡运营。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image025.jpg)美国财政部大楼
+根据区块链研究人士，**2019**年俄罗斯加密货币交易所直接收到的非法比特币中约有**86%**来自**Hydra**。美国财政部将**Hydra**称为世界上**”**最大和最出名的暗网市场**”**。**
 
-美国国务卿布林肯在声明中说：“世界对俄罗斯军队在布查和乌克兰各地犯下的暴行感到震惊！”
+**美国财政部表示，新的制裁措施禁止美国人向**Hydra**或**Garantex**提供**”**任何捐款或资金、货物或服务**”**。**
 
-【援引连结】
+**美国财政部还表示，这项制裁措施禁止美国与**Hydra**和**Garantex**进行交易，并寻求冻结他们在美国管辖范围内的任何资产，这是国际社会为阻止来自俄罗斯的恶意网络犯罪服务、毒品和其他非法产品，包括勒索软件活动所做努力的一部分。
+
+[【援引连结】](https://cn.reuters.com/article/usa-russia-darknet-market-sanctions-0405-idCNKCS2LY03K)
 
 **推出问题，敲出真相，爆料在路上！
-请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
 【Gnews Top News New Zealand】盖特账号：
 **[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
 新西兰Gnews】盖特账号：
@@ -25,7 +27,7 @@
 **[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
 ROSE NEWS推特账号：
 [https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
-![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
 **校对：小脑斧
 上传：漂流瓶**
 ![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)

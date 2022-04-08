@@ -2,27 +2,35 @@
 ---
 
 
-## 俄乌战争｜美国会投票剥夺俄国最惠国待遇 美、欧制裁趋于同步
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2308735/)
+## 印尼将从5月起对数字资产收益征收0.1%的所得税
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-11.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院周四针对“取消俄罗斯及其亲密盟友白俄罗斯的永久正常贸易关系（PNTR，即永久的最惠国待遇无须年审）”，结果以100赞成：0反对通过。此外，另一项针对禁止进口俄罗斯石油的能源立法，参议院也以100赞成：0反对的结果表示支持。
+翻译/编辑：小红帽
 
-取消俄罗斯及其盟友白俄的永久正常贸易关系一案，参议院决议通过后，提交给众议院以420票赞成：3票反对结果，获取压倒性支持。禁止俄石油的能源立法，也获得413票压倒性支持。两案送交拜登总统经签署后，公布生效。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
 
-该能源立法，系将拜登总统先前发布关于禁止进口俄罗斯石油、天然气、煤炭的行政命令，经立法程序转为法律，旨在对普京施加经济压力；贸易立法，美国会以立法形式，取消对俄国的永久最惠国贸易地位，并允许基于俄侵略乌而对莫斯科征收更高的关税，旨在切断美国与俄罗斯的正常经济往来。
+A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
+根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
 
-欧盟委员会6日曾表示，考虑将俄罗斯煤炭纳入新一轮制裁清单，经会议讨论后欧盟执委会也批准新禁令，从8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
+税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
 
-欧盟成员国以德国最为仰赖俄能源，该国财政部长对此提议表态“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系…。”由此观之，可确定美、欧对俄的制裁及立场趋于同步。
+正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
 
-来源｜[cnbc](https://www.cnbc.com/2022/04/07/senate-votes-to-strip-russia-of-most-favored-nation-trade-status.html)、[yahoo](https://uk.news.yahoo.com/u-senate-backs-removal-most-144649257.html)
+“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
 
-* * *
+近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+
+资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
