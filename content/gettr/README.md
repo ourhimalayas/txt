@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 11:23 PM (UTC)`
+
+4/8/2022 Miles Guo’s GETTR: The fellow fighters on the front line of the Ukraine rescue operation shocked the world with their actions, telling the world in time that the Chinese Communist Party does not represent the Chinese people, and showing that we are the extraordinary ones who are different from what the world imagines the Chinese to be. We are so blessed that we must be grateful to God and all fellow fighters who contributed!<br/><br/>4/8/2022 文贵盖特：救援前线的战友用行动震惊了全世界，及时告诉了世界中共不代表中国人，并展现出了我们和他们想像的中国人完全不一样的素质；我们太幸福了，我们要感恩上天和所有付出的战友们！<br/>
+![img](https://media.gettr.com/group24/getter/2022/04/08/23/78136e8a-168e-b765-1e88-f46c2bc0274b/out.jpg)
+
+---
+
+`@miles 4/8/2022 11:19 PM (UTC)`
+
+ 4月8号：所有的悲剧，都是来自于无知．和没有信仰……
+![img](https://media.gettr.com/group41/getter/2022/04/08/23/cc55db80-28b9-41c0-528a-ef74f4cb86b0/6727d5820b120306cfa36f20ede7e4f8.jpg)
+
+---
+
 `@miles 4/8/2022 11:09 PM (UTC)`
 
 <br/>【Ukraine Rescue】04/05/2022 The Belgium Uighur, Xiao Su and his family fled China, but many of his relatives and friends remain in concentration camps and have lost contact. He says that man would eventually die and should live meaningfully, and that he is about to go up to the Ukrainian front to fight in the foreign legion. He heard about the NFSC from the Internet and is glad that some people finally stand up and fight for justice. He says that there are many smart people within the walls of China, but they are unwilling and afraid to stand up. He calls for standing on the side of justice.<br/><br/>【乌克兰救援】04/05/2022 比利时的维吾尔人小苏，虽然一家人逃离了中国，但很多亲人朋友仍关在集中营失去了联系。他说人终有一死，应该活得有意义，他即将作为外国军团上乌克兰前线作战。他从网络上听说了新中国联邦，感慨终于有人站出来为正义而战。他说墙内很多聪明人，只是不愿、不敢站出来，他呼吁站在正义一边。
@@ -138,20 +152,6 @@ The NFSC (New Federal State of China) and ROL Foundation Rescue team provided hu
 
 Today, a group of volunteers from Israel came to the Medyka rescue camp and came to our tent to meet and rest. The volunteer from Jerusalem told us that they heard that our NFSC&ROLF tent was the best equipped tent here, and it’s a good place to meet, rest and drink coffee. She also heard that the tent was provided by people from the New Federal State of China(NFSC). She wished for the success of the NFSC to free 1.4 billion Chinese people from the slavery of the Chinese Communist Party (CCP).<br/><br/>今天营地里刚来了几十个从以色列来的援救义工，他们刚到营地，就来我们帐篷开会、休息。 在采访中，这个来自耶路撒冷的义工告诉我们，他们一来，就听其他义工介绍说法治基金新中国联邦的大帐篷是设施条件最好的、最舒适的基地，可以休息、开会、喝现磨的咖啡。她还听说，这个帐篷是灭共的新中国联邦人建的。 这个以色列义工祝愿新中国联邦成功，将14亿中国人从中国共产党的奴役中解放。
 ![img](https://media.gettr.com/group47/origin/2022/04/08/12/1c2ffaec-ae02-82f9-fc63-830786b02833/out.jpg)
-
----
-
-`@miles 4/8/2022 12:20 PM (UTC)`
-
-A Danish Christian volunteer: The CCP have been killing His people for years but now it ends. The wave of NFSC is tipping down this giant wall that blocks Chinese people from freedom. You may feel you are tiny sometimes but this is not true. God is helping you and nothing is stronger than Him! You are NOT alone! All freedom-loving people of the world are caring and praying for you.<br/><br/>【乌克兰救援】 04/05/2022 一位丹麦基督徒志愿者：共产党一直在屠杀迫害神的子民，现在要结束了，由新中国联邦人掀起的浪潮正在推翻那堵墙。有时，你们可能感到自己很渺小，其实不是，上帝正在帮助你们，没有比上帝更强大的，你们并不孤独，全世界爱好自由的有爱的人都在祝福你们。<br/>
-![img](https://media.gettr.com/group37/getter/2022/04/08/12/673d3783-bb6c-6148-e164-9f8e5988e4cf/out.jpg)
-
----
-
-`@miles 4/8/2022 10:29 AM (UTC)`
-
-【Ukraine Rescue】 04/05/2022 Nicole introduces to Czech radio reporter Estelle that the Chinese tent in Medyka is not from Communist China, but from the NFSC, which is committed to eradicating the CCP; in addition to this humanitarian rescue operation, we are trying to break the CCP's censorship and provide truthful information to people in China who have been severely brainwashed by the CCP's propaganda, freeing them from the fear of CCP coercion.<br/><br/>【乌克兰救援】 04/05/2022 妮可向捷克电台的记者艾斯黛介绍梅迪卡的中国帐篷并非来自共产主义中国，而是来自于致力于铲除中共的新中国联邦；除了此次人道主义救援行动外，我们还试图打破中共的审查制度，向中国境内被中共宣传严重洗脑的人们提供真实的信息，把人们从中共胁迫的恐惧中解放出来。<br/>
-![img](https://media.gettr.com/group31/getter/2022/04/08/10/e6d069c9-12c2-0d97-7312-59d2d4a1ae17/out.jpg)
 
 ---
 
