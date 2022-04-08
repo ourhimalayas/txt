@@ -2,46 +2,23 @@
 ---
 
 
-## 上海全面封城 繁荣的城市变成鬼城
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2307333/)
+## 俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2307483/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-28.png)图片来自网络
-据《彭博新闻》2022年4月2
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌代表团3月29日在土耳其举行和谈，会后俄方形容谈判具建设性，将向总统普京汇报乌克兰方面的提案，乌方在会谈中提出以中立地位换取安全保障，并提议新的安全保障体系，另又提出就克里米亚地位问题设15年的磋商期。乌方谈判代表称，在新的安全保障体系下，以色列、波兰、加拿大和土耳其都将成为乌克兰的安全保障国。俄罗斯、美国、英国、德国和意大利也可以提供担保。
 
-上海的2500万居民几乎都处于某种形式的封锁之下，金融中心正努力遏制冠状病毒具有高传染性的奥密克戎变种。
+俄罗斯外长谢尔盖．拉夫罗夫周四表示，乌克兰向莫斯科提交了一份新的和平协议草案，其中俄方认为3月29日双方于土耳其和谈中最重要的部分被乌克兰忽略、淡化，致莫斯科“无法接受”，他认为乌克兰破坏了本次和谈。外媒报导，**乌克兰首席谈判代表米哈伊洛·波多利亚克表示“拉夫罗夫与和谈没有直接关系，他的发言是纯粹的宣传意义”。**
 
-根据周六的一份政府声明，尽管周五上午为期四天的全面封锁结束，这座中国特大城市的东半部仍受到严格的行动限制。这意味着随着两部分封锁在周五转移到上海西半部。这座大都市的所有人口目前都处于某种形式的隔离状态。
+外媒指出，俄外长系针对乌克兰未于协议草案中明确，克里米亚半岛地区（外界认为2014年被俄罗斯并吞的乌克兰领土）不适用乌克兰未来的安全保障体系，意思是俄方认为上次土耳其和谈乌克兰明确未来国际对乌的安全保障不会延伸致该争议地区。
 
-随着封锁计划在东部接近尾声，该市约三分之二的人口居住在该市西部的居民于当地时间周五凌晨3点开始为期四天的封锁。在限制期间，除了强制性大规模新冠病毒检测外，居民不得离开家。
+来源｜[BARRON’S](https://www.barrons.com/news/russia-accuses-ukraine-of-changing-demands-since-istanbul-talks-01649332508?refsec=afp-news)、[HK01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/752955/%E4%BF%84%E7%83%8F%E8%AB%87%E5%88%A4-%E7%83%8F%E5%85%8B%E8%98%AD%E6%8F%90%E5%87%BA%E6%96%B0%E5%AE%89%E5%85%A8%E4%BF%9D%E9%9A%9C%E9%AB%94%E7%B3%BB-%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%95%8F%E9%A1%8C%E8%A8%AD15%E5%B9%B4%E7%A3%8B%E5%95%86%E6%9C%9F)、[YAHOO](https://uk.news.yahoo.com/ukraine-dismisses-russian-criticism-kyiv-132841568.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHAaURo7ZE6DvFW8JVoyrg9syTA8Fp6BPfX_3hqmSJgCU3OzYGKtxhKmDDiaXCKXrFEb2P_CjmwmcSyQ7th6TUD2eR3aQQLkYpY0NE2Z3ovw4vlwTN1JLrISQFbw98KVRmRA4TEjAhnRuOhBiepsA5vQwIv5NkZkwPjHdX9LUSua)
 
-上海已成为中共国自大流行初期以来最严重的病毒暴发中心。官方数据显示，该市每日感染人数从3月初的不到5人激增至周五的6300多人。
+* * *
 
-上海市卫健委官员吴千宇在媒体吹风会上说：“目前，疫情严峻复杂，防控任务极其艰巨。”
-
-他说，在本周早些时候短暂下降之后，病例再次激增是新冠病毒筛查范围扩大的结果。作为两轮测试的一部分，当局周五在该市西半部对1400多万人进行了测试。
-
-高度传染性的奥密克戎毒株传播到上海，这个世界上最大的集装箱港口和许多国内外公司的总部所在地，是对习近平主席的减少经济和社会影响，并消灭病毒的双重目标的冠状病毒清零战略的最大考验。不断恶化的疫情，进一步给这个世界第二大经济体带来压力，并危及扰乱全球供应链。
-
-**鬼城**
-
-严格实施封锁措施已将这座曾经繁荣的城市变成了一座鬼城，中共国官方媒体发布的视频片段显示，通常挤满了人的购物街空荡荡。
-
-虽然上海东部的封锁于当地时间周五凌晨5点正式结束，但在当地政府称之为分级隔离制度的情况下，大多数居民无法立即离开家园。
-
-轻度或无症状的人必须在城市周围大型体育馆或展览中心的临时设施中，接受强制集中隔离治疗或监测。 上海市民政局副局长曾群在新闻发布会上说，如果被送往中央隔离区的父母有年幼子女，当局将设法帮助寻找志愿者或工作人员来照顾留守儿童。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-24.png)4月2日，穿着防护服的工人护送上海居民。来源：版权图片平台(Costfoto/Future)通过盖蒂图片社(Getty Images)发布
-该规定还要求，居住在报有新冠肺炎病例的建筑物内的任何人限制在家两周。与报告阳性患者所在街区同一小区内的其他建筑物的居民，将接受为期7天的居家隔离。
-
-居住在封闭建筑附近的居民将被限制在他们的社区居住一周，并限制每个家庭每天派一个人出去，取回送给他们的必需品。
-
-根据官方声明，截至周六，该市东半部近900万居民仍受到某种形式的限制。该市周六最新感染病例报告中的近40%来自浦东东部。
-
-原文链接：
-
-[https://www.bloomberg.com/news/articles/2022-04-02/entire-shanghai-placed-under-lockdown-as-covid-cases-surge?sref=i4qXzk6d](https://www.bloomberg.com/news/articles/2022-04-02/entire-shanghai-placed-under-lockdown-as-covid-cases-surge?sref=i4qXzk6d)
-
-
-翻译：飞利普 |校对：烟波浩淼| 编辑&发布：小蜜蜂
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 4:58 AM (UTC)`
+
+新中国联邦法治基金乌克兰人道救援行动--最新战况播报
+![img](https://media.gettr.com/group41/origin/2022/04/08/04/25c7d660-29b5-03b2-0a15-eadff7f86101/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/8/2022 3:04 AM (UTC)`
 
 2022-4-7《鸡血王喜币大作战》 第一百五十八集 嘉宾：青藤、文空
@@ -148,13 +155,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 2022.04.07早《新中国联邦新闻访谈》
 ![img](https://media.gettr.com/group22/origin/2022/04/07/12/a240e5cf-cebe-6f31-d2be-c7c23020b539/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 4/7/2022 12:29 PM (UTC)`
-
-2022.04.07 早 新中国联邦 | 新闻 新中国联邦国旗气球深受乌克兰儿童喜爱；郭先生谈综合认知能力的重要性
-![img](https://media.gettr.com/group36/origin/2022/04/07/12/d148a932-0bee-adee-525e-69a1b4dff10c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

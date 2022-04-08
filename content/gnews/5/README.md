@@ -2,31 +2,22 @@
 ---
 
 
-## 今日盖特大V推荐 — 大纪元时报（The Epoch Times）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307749/)
+## 安大略省已接种疫苗的死亡率超过未接种疫苗的人
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2307796/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-793.png)
-盖特链接： [**https://gettr.com/user/epochtimes**](https://gettr.com/user/epochtimes)
+加拿大温哥华扬帆农场-文莱, 文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片6.png)图片来源：cbc News
+据加拿大自由媒体《反信号》4月5日报道，当主流媒体继续为注射加强针和恢复口罩措施摇旗呐喊时，就安大略省新冠病毒的人均死亡率来讲，接种疫苗的人比未接种疫苗的人要高。
 
-**大纪元时报自述：**
+据悉，截至当日，没有接种两剂新冠病毒疫苗的人和完全接种的人一样，人均新冠病毒死亡率为0.02。然而，那些已经接受加强针的人，其新冠病毒死亡率为人均0.03。此外，根据住院和重症监护室病例来看，接种过新冠病毒疫苗的病人数量远远超过未接种疫苗的人数量。
 
-基于真相和传统的独立、屡获殊荣的报告。免费时事通讯：[**http://ept.ms/–Newsletters **](https://ept.ms/–Newsletters)电报：[**http://t.me/epochtimes epochtv.com**](https://t.me/epochtimes%20epochtv.com)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-794.png)图片来源：网络
-**大纪元时报简介：**
+值得一提的是，整个大流行期间，不到10%的加拿大人感染了新冠病毒，而那些感染者的总体死亡率，包括所有年龄段，只有0.0993%，跟每年的流感类似。
 
-大纪元时报是一家总部设在美国纽约市的国际多语种报纸和媒体。该报由法轮功学员于2000年在纽约创办。
+原文链接：https://thecountersignal.com/ontario-covid-death-rate-among-vaccinated-surpasses-unvaccinated/
 
-大纪元时报隶属于大纪元传媒集团，该集团还经营新唐人（NTD）电视台。大纪元在35个国家有网站，但在中国大陆被屏蔽。
+* * *
 
-台湾中央社曾引述大纪元时报，称其独立于党派及商业集团之外，宗旨为“维护人权普世价值、揭露中国共产党政权极力隐瞒的新闻真相”。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑、上传：月亮之上
 
  
 

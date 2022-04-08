@@ -2,26 +2,35 @@
 ---
 
 
-## 美国参议院 100：0票通过 撤销俄罗斯正常贸易地位
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307581/)
+## 印尼将从5月起对数字资产收益征收0.1%的所得税
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-55.jpg)
-4月7日（合众国际社）–周四上午，参议院以100比0的票数撤销了俄罗斯的 “最惠国待遇”贸易地位，并暂停了包括石油在内的俄罗斯能源进口。
+翻译/编辑：小红帽
 
-连续的投票巩固了拜登政府已经采取的多方面制裁行动，由于俄罗斯从2月24日开始入侵乌克兰，拜登政府对俄进行制裁。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
 
-“正式取消与俄罗斯的正常贸易关系正是参议院要做的正确之事，因为这将给普京的经济造成又一次巨大打击。”参议院多数党领袖、纽约州民主党参议员查克·舒默（Chuck Schumer）周三表示。
+A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
+根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
 
-这项立法将俄罗斯（包括白俄罗斯)置于与朝鲜和古巴同一类别，这些国家在全面进入全球市场方面面临着美国及其盟国的经济壁垒。
+税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
 
-该法案将允许美国对来自俄罗斯和白俄罗斯的商品大幅提高关税。据报道，一些钢铁产品可能从零跃升至20%，而胶合板可能面临50%的惩罚性（关税）。
+正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
 
-3月11日，拜登呼吁国会采取行动终止俄罗斯的贸易地位。
+“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
 
-拜登表示，他的政府将努力阻止俄罗斯从世界银行和国际货币基金组织借款。
+近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
 
-新闻来源：[https://www.upi.com/Top\_News/US/2022/04/07/Senate-vote-Russia-trade-status/9221649350729/](https://www.upi.com/Top_News/US/2022/04/07/Senate-vote-Russia-trade-status/9221649350729/)
+正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+
+资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 
