@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 5:35 PM (UTC)`
+
+俄乌战争战况播报
+![img](https://media.gettr.com/group50/origin/2022/04/08/17/80e895ba-8d01-5f27-e496-11778e8b004b/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/8/2022 4:08 PM (UTC)`
 
 4月8号, 郭文贵先生两首新歌上线第五天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿 热门歌曲榜首🥇<br/>12国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>新西兰 🇳🇿 ,蒙古🇲🇳热门歌曲第二名🥈<br/>新西兰🇳🇿 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>《Hcoin To The Moon》登榜iTunes <br/>柬埔寨🇰🇭摇滚歌曲榜第二名🥈<br/><br/>https://gnews.org/2310805/<br/><br/>5天全球iTunes打榜记录第一名🥇总计：116次<br/><br/>https://gnews.org/2311079<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门、新加坡、马来西亚、新西兰、澳大利亚、西班牙，菲律宾、柬埔寨, 蒙古，亚美尼亚的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>
@@ -145,13 +152,6 @@ A volunteer from Pennsylvania, US, took photos of the jacket of our fellow fight
 
 The Indian volunteer is very interested in the "extermination of the Communist Party" yellow vest of the New Federal State of China volunteers, and he strongly agrees with Mr. Miles Guo's idea and actions to eliminate the Chinese Communist Party. Neither Russia nor China should allow communism to exist anymore<br/>这位来自印度的志愿者对新中国联邦志愿者的“灭共”马甲非常感兴趣，他非常赞同郭文贵先生的消灭中共的理念和行动。无论是俄罗斯还是中国，都不应该再让共产主义存在
 ![img](https://media.gettr.com/group12/origin/2022/04/08/00/5fffe65c-880e-511c-163f-3cba243dd9d0/out.jpg)
-
----
-
-`@miles 4/7/2022 11:47 PM (UTC)`
-
-2022.04.07《The Fringe》 Episode 164
-![img](https://media.gettr.com/group8/origin/2022/04/07/23/4bf052bf-1544-59fb-3980-ffcc9b4f9408/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
