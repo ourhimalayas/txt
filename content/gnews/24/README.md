@@ -2,54 +2,25 @@
 ---
 
 
-## COVID-19疫苗副作用集萃（2022.4.8） &#8211;注射新冠疫苗副作用综合征
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2310810/)
+## 特鲁多试图以征税来重振加拿大经济
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311516/)
 
-#### 整理/编辑：gardeniahu 
+采编/撰稿：加拿大温哥华扬帆农场 – 薇文
 
-#### 雅典娜情报组《疫苗灾难收集专栏》
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/图片22-9.png)
-
-图片来源：雅典娜设计组(614)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494324831.png)图片来源：Tribune India
 
 
-【前言：接种中共病毒（COVID-19）疫苗后的不良反应和副作用已是公开的秘密，除此以外还有尚不为人知的长期副作用，疫苗灾难就在不远的将来。虽然接种疫苗后的不良反应受到媒体压制，但是致死致残的报道已经屡见不鲜，本专栏将持续收集网络上亲历接种者真实的声音，揭示疫苗给全人类带来的巨大危害。】
+据[多伦多太阳报]4月6日报道，特鲁多当局在即将出台的预算案中，针对加拿大企业包括银行和保险公司而增加的两项新税，足以见证自由党政府在经济方面的短浅无知。
 
-[副作用集萃 – GNEWS](https://gnews.org/zh-hans/tag/%25E5%2589%25AF%25E4%25BD%259C%25E7%2594%25A8%25E9%259B%2586%25E8%2590%2583/)
+报道称，特鲁多历来都将提高税赋作为复苏加拿大经济的绝招，并为确保作为少数派执政到2025年，自由党与新民党结盟并承诺将增加对加拿大企业的税种。此外，当局还试图把国家医保计划中的处方药保险业务交由政府官僚机构运营，以此剥夺私人保险公司的业务。
 
-帖子原文：
+文章指出，尽管特鲁多始终笃信政府权力是建立在对国民的征税基础上，但加拿大却没有足够的财富来实现其乌托邦式的梦想。一个国家想通过征税来实现繁荣，就如同站在水桶里的人，试图抓住把手将自己提起来一样愚不可及。
 
-**疫情|新冠疫苗副作用  新冠疫苗之后副作用综合征**
+校对编辑：硫酸羟氯喹64
 
-新冠第五针反应也太大了。
+发稿：文莱
 
-昨天穿着咱的疫苗专用装去打了意大利第三针，总计第五针疫苗，之前两针是辉瑞第三针打摩德纳，反应强到去世。
-
-打完去168吃寿司吃的好开心，结果从晚上睡觉就开始浑身酸痛忽冷忽热折腾一晚上，早上起来继续发烧，头像被驴反复踢额头后脑勺，然后浑身忽冷忽热，又睡到下午，睡的腰都要散架了，坐起来就头晕恶心，到晚上才好起来。总计副作用十五个小时左右，总之别来第六针了，我真的会谢。
-
-#米兰 #意大利 #新冠 #新冠疫苗 #摩德纳 #新冠疫苗不良反应 #我的日常 #欧洲生活 #欧洲留学
-
-发布于2022.04.03
-
-精选评论
-
-九夜黄昏    回复：两针国药，两针阿斯利康，前几天刚打了第五种莫得纳，烧到39度，浑身酸痛，脑袋炸裂。
-
-Lilian在芬兰   回复：身边很多朋友3针疫苗依旧感染，这疫苗打不打也无所谓了，最好的保护还是得靠自己。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-856.png)图片来源：小红书
-
-
-参考链接：[新冠疫苗副作用综合征](https://www.xiaohongshu.com/discovery/item/6248e7ba0000000001025661?share_from_user_hidden=true&amp;xhsshare=CopyLink&amp;appuid=593bc86450c4b43662c38691&amp;apptime=1649315619)
-
-发布：Frank2021
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+新闻来源：[https://torontosun.com/opinion/columnists/lilley-trudeaus-plan-to-tax-canada-into-prosperity-will-fail](https://torontosun.com/opinion/columnists/lilley-trudeaus-plan-to-tax-canada-into-prosperity-will-fail)
 
  
 

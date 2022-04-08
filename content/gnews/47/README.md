@@ -2,35 +2,37 @@
 ---
 
 
-## 印尼将从5月起对数字资产收益征收0.1%的所得税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
+## 国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309165/)
 
-翻译/编辑：小红帽
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-4.png)▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+欧盟执委会6日提议将禁止进口俄罗斯煤炭纳入新一轮制裁清单，会议结果出炉，欧盟成员同意将煤炭进口禁令纳入对俄罗斯的新一轮制裁，制裁决议将经欧盟官方公布后生效。欧盟对俄罗斯实施煤炭进口禁运，同美国禁止进口俄能源，旨在对普京施加经济压力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
+欧盟执委会宣布自**8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口**；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
 
-A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
-根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
+欧洲统计局数据显示欧盟仰赖俄罗斯能源，2020年自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气。本次煤炭进口禁令，是欧盟首次对俄罗斯能源实施制裁，预计价值高达每年40亿欧元（44亿美元）。同时，欧盟已着手制定对石油等其他能源的制裁措施。
 
-税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
+欧盟决议将对俄罗斯实施制裁如下：（由欧盟官方公布后生效）
 
-正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
+- 对俄罗斯宣传、国安、军事机构人员、侵略乌克兰有关的工业技术部门进行实体制裁
+- 冻结数家俄罗斯银行资产
+- 禁止向俄罗斯出口价值高达100亿欧元的高科技产品
+- 欧盟将对悬挂俄罗斯国籍的船只关闭港口
+- 对俄罗斯实施武器禁运
+- 禁止俄罗斯煤炭进口、禁运
+- 禁止从俄罗斯进口，价值高达55亿欧元的原料和关键原料
+- 对俄罗斯及白俄罗斯公路运输制裁
 
-“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
 
-近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
+欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）推特表示，俄乌战争持续，俄国在金融、经济、科技方面将长期受到孤立。
 
-正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+来源｜[euronews](https://www.euronews.com/my-europe/2022/04/07/eu-countries-agree-on-new-russia-sanctions-including-coal-embargo)、[AP](https://apnews.com/article/russia-ukraine-kyiv-business-european-union-europe-9a1062991e5e1f463c31e4cf518b2c3f)、[Présidence française du Conseil de l’UE’s twitter](https://twitter.com/Europe2022FR)
 
-资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
+* * *
 
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

@@ -2,83 +2,48 @@
 ---
 
 
-## 郭文贵新曲《灭共的雪》、《铁锁梦》上线第5天登榜12国iTunes音乐榜首
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2310766/)
+## 有声|春天来了
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2311347/)
 
-4/8/2022 郭文贵新曲《灭共的雪》、《铁锁梦》上线第5天iTunes打榜记录：
-**《灭共的雪》**
-新西兰热门歌曲榜第1名
-12国摇滚歌曲榜第1名
+配音：香草山健身部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+春天的花儿开成片
+小蜜蜂忙的转圈圈
+每日七哥发小片段
+传来了共匪要悲催
+战友们听得要流水
+埋葬共匪送土一堆
+Medyka的战友风里吹
+坚守阵地呀不后悔
+传播正义把星旗挥
+有温暖还有咖啡杯
+失家的人们把家回
+你们英雄把敌人毁
+春天呀春天
+如期而至不更改
+邪恶的势力
+也要入轮回
+新中囯联邦人放飞
+传播真相呀勤不缀
+春天里播种秋天收
+有币无苗你冲天吼
+声音冲破那云霄九
+还有谁能比咱们牛
 
-**《铁锁梦》**
-4国热门歌曲榜前3名
-5国流行歌曲榜前3名
+文字版原文：[春天来了](https://gnews.org/zh-hans/2303776/)
 
-* * *
+音频处理：Fei797
+发稿：Fei797
 
-[【New-Songs】Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
 
-* * *
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_1.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_3.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_5.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_12.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_16.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_17.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_18.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_19.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_22.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_23.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_24.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_25.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_26.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_27.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_28.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_35.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_37.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_38.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_39.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_41.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_43.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_47.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_52.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_55.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_56.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_57.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_58.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_60.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_62.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_70.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_71.jpg)
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record_75.jpg)
-
-
-[【New-Songs】Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2022/04/【New-Songs】Friday-8-Apr-2022-Songs-by-Miles-Guo-iTunes-Charts-Ranking-Record.pdf)
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

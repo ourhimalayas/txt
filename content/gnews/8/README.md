@@ -2,25 +2,20 @@
 ---
 
 
-## 特鲁多试图以征税来重振加拿大经济
-` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311516/)
+## 乌克兰东部城市一火车站遭俄军火箭弹袭击，39人丧生
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2311654/)
 
-采编/撰稿：加拿大温哥华扬帆农场 – 薇文
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-861.png)图片来源：莫斯科时报
+据《真正美国之声》（Real America’s Voice）4月8日报道，乌克兰官员透露，本周五，乌克兰东部城市克拉马托尔斯克（Kramatorsk）的一个火车站遭到了火箭弹袭击，造成至少30人死亡，100多人受伤。《福克斯新闻》（Fox News）周五上午报道说，该车站被两枚导弹击中，多达39人死亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494324831.png)图片来源：Tribune India
+乌克兰总统泽连斯基表示，当火车站遭袭时，有“数千人”正在该车站。他在社交媒体上发布的照片显示，一节火车车厢的窗户被击碎，室外候车区到处都是被遗弃的行李和尸体。泽连斯基称俄罗斯对火车站的血腥袭击是 “无限的邪恶”：“失去人性的俄罗斯人并没有改变他们的行为。由于他们没有力量或勇气在战场上面对我们，所以只能杀戮平民，这是无限的邪恶。如果不对其进行惩罚，那么它将永远不会停止。”
 
+俄乌战争期间，俄军发起了多次针对乌克兰平民的袭击，这起事件只是其中之一。就在之前一天（4月7日），联合国大会投票决定暂停俄罗斯在人权理事会的成员国资格。
 
-据[多伦多太阳报]4月6日报道，特鲁多当局在即将出台的预算案中，针对加拿大企业包括银行和保险公司而增加的两项新税，足以见证自由党政府在经济方面的短浅无知。
+*责编：白夜*
 
-报道称，特鲁多历来都将提高税赋作为复苏加拿大经济的绝招，并为确保作为少数派执政到2025年，自由党与新民党结盟并承诺将增加对加拿大企业的税种。此外，当局还试图把国家医保计划中的处方药保险业务交由政府官僚机构运营，以此剥夺私人保险公司的业务。
-
-文章指出，尽管特鲁多始终笃信政府权力是建立在对国民的征税基础上，但加拿大却没有足够的财富来实现其乌托邦式的梦想。一个国家想通过征税来实现繁荣，就如同站在水桶里的人，试图抓住把手将自己提起来一样愚不可及。
-
-校对编辑：硫酸羟氯喹64
-
-发稿：文莱
-
-新闻来源：[https://torontosun.com/opinion/columnists/lilley-trudeaus-plan-to-tax-canada-into-prosperity-will-fail](https://torontosun.com/opinion/columnists/lilley-trudeaus-plan-to-tax-canada-into-prosperity-will-fail)
+新闻来源：[Russia missile attack on eastern Ukraine train station kills 39, injures over 100, authorities say](https://americasvoice.news/justthenews/russia-missile-attack-eastern-ukraine-train-station-kills-30-injures-over-100/)
 
  
 

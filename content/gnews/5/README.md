@@ -2,24 +2,41 @@
 ---
 
 
-## 蓬佩奥：除非美国采取强硬的实际行动，否则中共仍会与俄罗斯狼狈为奸
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2311555/)
+## 中日财经爆┃境外投资者继续抛售中国国债, 资金加剧向美国外流
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311667/)
 
-#### 翻译/撰稿：zzballack
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16494330881.png)图片来源：CNN
-据《华盛顿观察家报》（Washington Examiner）4月7日报道，美国前国务卿蓬佩奥本周二（4月5日）在接受《华盛顿观察家报》采访时表示，美国不仅需要要求西方盟国对俄罗斯实施全面的能源禁运，中共国也需要被要求这样做。蓬佩奥建议华府应该准备好用行动来支持这些要求，以阻止中共主席习近平向俄罗斯总统普京抛出一条经济生命线。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+由于中国国债对美国国债的收益率优势不断缩小，以及乌克兰战争带来的地缘政治不确定性，境外投资者上个月减持中国国债的数量创下历史之最。
 
-在俄罗斯入侵乌克兰期间，美国和跨大西洋领导人试图通过制裁在经济上削弱莫斯科，以回应普京的暴行。但俄中关系在战争开始前不久就被巩固为“没有禁区、没有上限”的战略伙伴关系，这有可能会减弱西方政策的效果。去年，来自石油和天然气的收入几乎占到了俄罗斯预算的一半。中共国作为世界上最大的能源消费国，俄罗斯是其最大的原油和天然气供应商之一。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-93.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https://www.ft.com/__origami/service/image/v2/images/raw/https%253A%252F%252Fs3-ap-northeast-1.amazonaws.com%252Fpsh-ex-ftnikkei-3937bb4%252Fimages%252F8%252F3%252F7%252F0%252F29770738-3-eng-GB%252FCropped-1601910778photo.JPG?width=700&amp;fit=cover&amp;gravity=faces&amp;dpr=2&amp;quality=medium&amp;source=nar-cms&amp;imgrefurl=https://asia.nikkei.com/Economy/China-triples-Japan-government-bond-purchases2&amp;tbnid=q_vSn3TRj-CDVM&amp;vet=12ahUKEwiy8J3szoT3AhUNTPUHHfYNC2UQxiAoA3oECAAQIw..i&amp;docid=LAJJOYq4TKGiIM&amp;w=1400&amp;h=787&amp;itg=1&amp;q=Foreign%20investors%20continue%20to%20sell%20Chinese%20government%20bonds&amp;ved=2ahUKEwiy8J3szoT3AhUNTPUHHfYNC2UQxiAoA3oECAAQIw)
 
-蓬佩奥说，仅仅是西方对俄罗斯的禁运不足以惩罚莫斯科对乌克兰的残暴攻击，包括中共国在内的其他国家也必须做出同样的承诺。对于不自愿遵守此承诺的国家，美国必须愿意对它们的经济进行二级制裁（Secondary Sanction），但是拜登政府迄今为止都没有认可这一重要步骤。“我们正在告诉欧洲人和全世界的朋友，不要消费俄罗斯的能源。我们需要确保中共国也被要求做同样的事情，但只有美国采取实质行动，习近平才会尊重这个要求。”虽然拜登政府一再警告北京如果向俄罗斯提供物质支持将面临“后果”，但它并没有说是否打算对继续与俄罗斯做生意的国家实施二级制裁。
+据边际实验室4月8日消息，由于中国国债对美国国债的收益率优势不断缩小，以及乌克兰战争带来的地缘政治不确定性，境外投资者上个月减持中国国债的数量创下历史之最。
 
-蓬佩奥还表示，中共国不应再获得最惠国待遇，并将北京的贸易地位恢复到1980年以前的水平，这意味着将大大增加对中共国每年5万亿美元进口商品所征收的关税。
+根据中国人民银行的数据计算，海外投资者在3月份净卖出了500亿元人民币的中国国债，创下记录，目前这些投资者持有的中国国债规模减少到2.43万亿元。
 
-对于中共没有在布查的平民大屠杀一事上谴责俄罗斯，蓬佩奥表示：“虽然中共国是联合国安理会成员，但习近平从未去安理会要求普京停战并撤出乌克兰，我也不指望这种场面会发生。与中共进行对话永远不会是一个错误，但美国不应只靠口头行动。”
+由于中国国债和美国国债之间的收益率差几乎消失，促使包括PIMCO（品浩）和AllianceBernstein在内的全球基金开始卖出中国债务。
 
-*责编：白夜*
+虽然中国人民银行进一步宽松的希望仍然存在，但由于对美联储积极加息的预期，国债的抛售正在抹去中国的收益率优势，这是十多年来的第一次。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-58.png)
+中国10年期债券相对于类似期限美国国债的溢价目前约为10个基点，低于年初时的100多个基点。根据中国人民银行的数据，在过去两个月里，中国债券总共流出了900亿元人民币。中国债券网3月份的数据还没有公布。
 
-新闻来源：[Pompeo: China won’t ‘do a darn thing’ about Russia without strong US action](https://www.washingtonexaminer.com/politics/pompeo-china-wont-do-a-darn-thing-about-russia-without-strong-us-action)
+根据国际金融研究所上月底的一份报告，高频数据检测到中国股票和债券出现了“前所未有”规模的资金外流。
+
+彭博经济的分析师David Qu表示，目前债券市场的资金外流水平不太可能引发中国人民银行的任何反应，他说：“如果我们看到更大规模的资本外逃，央行可能会关注它，但它不太可能采取任何积极的行动。”
+
+与此同时，高盛集团将其对中国今年的债券流入预测从高达1400亿美元下调至1000亿美元。“我们认为，鉴于地缘政治的不确定性程度，未来几个月的资金流动可能仍然疲软。”该行包括Danny Suwanapruti在内的策略师在4月3日的说明中写道。
+
+信息来源：[境外投资者继续抛售中国国债, 资金加剧向美国外流](https://finance.sunnews.cc/finances/1494790.html)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
