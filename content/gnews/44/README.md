@@ -2,23 +2,28 @@
 ---
 
 
-## 俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2307483/)
+## 欧盟对俄罗斯新制裁达成一致 煤炭禁运及其他措施
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307596/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌代表团3月29日在土耳其举行和谈，会后俄方形容谈判具建设性，将向总统普京汇报乌克兰方面的提案，乌方在会谈中提出以中立地位换取安全保障，并提议新的安全保障体系，另又提出就克里米亚地位问题设15年的磋商期。乌方谈判代表称，在新的安全保障体系下，以色列、波兰、加拿大和土耳其都将成为乌克兰的安全保障国。俄罗斯、美国、英国、德国和意大利也可以提供担保。
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-32.jpg)
+合众国际社4月7日报道。欧盟周四批准了对俄罗斯的新制裁措施，包括对煤炭进口的禁运，作为指控莫斯科入侵乌克兰时侵犯人权的回应。
 
-俄罗斯外长谢尔盖．拉夫罗夫周四表示，乌克兰向莫斯科提交了一份新的和平协议草案，其中俄方认为3月29日双方于土耳其和谈中最重要的部分被乌克兰忽略、淡化，致莫斯科“无法接受”，他认为乌克兰破坏了本次和谈。外媒报导，**乌克兰首席谈判代表米哈伊洛·波多利亚克表示“拉夫罗夫与和谈没有直接关系，他的发言是纯粹的宣传意义”。**
+欧盟轮值主席国宣布，该禁令每年价值约43.5亿美元，作为自2月底入侵开始以来，欧盟集团采取制裁俄罗斯能源行业的第一个步骤。它提及发生在布查（Buchan）的“可怕的侵犯人权行为”。
 
-外媒指出，俄外长系针对乌克兰未于协议草案中明确，克里米亚半岛地区（外界认为2014年被俄罗斯并吞的乌克兰领土）不适用乌克兰未来的安全保障体系，意思是俄方认为上次土耳其和谈乌克兰明确未来国际对乌的安全保障不会延伸致该争议地区。
+“一揽子计划非常坚实，并将对俄罗斯的制裁扩展到了新的领域，”主席国法国表示。
 
-来源｜[BARRON’S](https://www.barrons.com/news/russia-accuses-ukraine-of-changing-demands-since-istanbul-talks-01649332508?refsec=afp-news)、[HK01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/752955/%E4%BF%84%E7%83%8F%E8%AB%87%E5%88%A4-%E7%83%8F%E5%85%8B%E8%98%AD%E6%8F%90%E5%87%BA%E6%96%B0%E5%AE%89%E5%85%A8%E4%BF%9D%E9%9A%9C%E9%AB%94%E7%B3%BB-%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%95%8F%E9%A1%8C%E8%A8%AD15%E5%B9%B4%E7%A3%8B%E5%95%86%E6%9C%9F)、[YAHOO](https://uk.news.yahoo.com/ukraine-dismisses-russian-criticism-kyiv-132841568.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHAaURo7ZE6DvFW8JVoyrg9syTA8Fp6BPfX_3hqmSJgCU3OzYGKtxhKmDDiaXCKXrFEb2P_CjmwmcSyQ7th6TUD2eR3aQQLkYpY0NE2Z3ovw4vlwTN1JLrISQFbw98KVRmRA4TEjAhnRuOhBiepsA5vQwIv5NkZkwPjHdX9LUSua)
+欧盟委员会主席乌尔苏拉-冯德莱恩(Ursula von der Leyen)在周二的一系列推文中概述了这些制裁措施，并指出它们还将包括对四家俄罗斯银行的全面交易禁令，包括俄国第二大银行俄罗斯外贸银行（VTB）。
 
-* * *
+此外，制裁将禁止俄罗斯和俄罗斯运营的船只进入欧盟港口，禁止白俄罗斯公路运输运营商，进一步禁止价值近110亿美元的先进半导体、机械和运输设备的出口，以及价值近60亿美元的新进口禁令。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+冯德莱恩补充说，欧盟还将实施有针对性的措施，包括禁止俄罗斯公司参与欧盟的公共采购，排除欧盟或其个别国家对俄罗斯公共机构的所有财政支持，以及进一步列出个人名单。
+
+由于欧洲议会以 513 票对 22 票赞成“立即全面禁止俄罗斯进口石油、煤炭、核燃料和天然气”，欧盟正在制定补充的制裁措施，例如石油进口。
+
+周三，欧盟与美国和七国集团联合实施制裁，对俄罗斯银行、弗拉基米尔-普京总统的两名成年女儿、外交部长谢尔盖-拉夫罗夫的妻子和女儿以及俄罗斯安全委员会成员实施制裁。
+
+新闻来源：[https://www.upi.com/Top\_News/World-News/2022/04/07/EU-agrees-coal-embargo-new-sanctions-Russia/1811649365146/](https://www.upi.com/Top_News/World-News/2022/04/07/EU-agrees-coal-embargo-new-sanctions-Russia/1811649365146/)
 
  
 

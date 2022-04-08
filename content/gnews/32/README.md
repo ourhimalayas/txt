@@ -2,24 +2,28 @@
 ---
 
 
-## 国会两院通过取消俄罗斯及白俄罗斯最惠国待遇的法案
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307925/)
+## 获得金球奖的著名足球运动员加入乌克兰军队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307962/)
 
-#### 撰稿：彩虹       
-![](https://assets.gnews.org/wp-content/uploads/2022/04/16493975031.png)图片来源：路透社
-据《纽约邮报》4月7日报道，周四，参议院和众议院分别以压倒性票数取消了俄罗斯及其盟友白俄罗斯的“最惠国待遇”的贸易地位。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/获得金球奖的著名足球运动员加入乌克兰军队.png)（图片源自本文链接）
 
-报道说，参议院以100:0的投票结果通过了该措施，而数小时后，众议院以420:3的投票结果也批准了这项措施。
+4月8日东体育消息：据每日邮报报道，曾获得世界上最负盛名的足球运动员奖——金球奖的著名足球运动员，已经加入了遭受俄罗斯入侵的乌克兰军队。
 
-值得注意的是，第二项禁止进口俄罗斯石油的法案也在参议院以100比0通过，在众议院以413比9通过。这两项法案现在都要交给拜登总统签署。
+61岁的伊戈尔·贝拉诺夫，乌克兰战士，曾帮助基辅迪纳摩在前苏联赢得优胜者杯，被《法国足球》杂志选中，成为1986年获得金球奖的著名球员。据该报称，他已经开始行动，以挽救他的祖国乌克兰免受俄罗斯的攻击。
 
-根据暂停正常贸易关系的法案，将允许美国政府对钢铁、铂金、铝、铁和钢进行进口控制，这将会给俄罗斯的经济带来进一步的破坏性打击。
+信息来源：
+ [バロンドールを受賞した〝英雄〟がウクライナ軍隊に加入！最前線で銃を手にする写真も投稿（東スポWeb） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/67decebc83bf69d7bc72fe1eba4c35e507103511)
 
-*责编：白夜*
-
-**新闻来源**
-
-[Congress votes to strip Russia, Belarus of ‘most favored nation’ trade status](https://nypost.com/2022/04/07/congress-votes-to-strip-russias-most-favored-nation-trade-status/)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 
