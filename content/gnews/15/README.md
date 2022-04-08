@@ -2,43 +2,27 @@
 ---
 
 
-## 战友怎么才能避免被喝茶
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2311771/)
+## 美国将对俄罗斯执行新一轮金融制裁
+` 加拿大温哥华扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/2311772/)
 
-撰稿：东京樱花团/非常喜欢
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-共产党的灭亡已经只是一个时间问题了，在这个黎明前的黑暗时刻，战友们要想方设法隐藏好自己，等待胜利的到来。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-37.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.cyclonis.com%2Fimages%2F2018%2F07%2Fsecure-personal-information-765x383.jpg&amp;imgrefurl=https%3A%2F%2Fwww.cyclonis.com%2Fzh-hans%2Ftop-5-steps-ensure-your-information-secured%2F&amp;tbnid=AqzjI0lkyDth0M&amp;v)
-共产党的灭亡已经只是一个时间问题了，在这个黎明前的黑暗时刻，战友们要想方设法隐藏好自己，等待胜利的到来。
+采编：加拿大温哥华扬帆农场 – 文莱
 
-国内的监控无处不在，国安想定位一个人，太容易了，但是对于低价值目标，他们不会调用黑客的力量，所以如何隐藏，非常重要。
+撰稿：加拿大温哥华扬帆农场 – 文所未闻
 
-第一件事，翻墙的手机必须和日用手机分开，拔卡，放家里，用WiFi。最好是用苹果手机，比较安全。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/16494359171.png)图片来源：DW
 
-第二件事，微信全程在国安的监控范围，不要发任何敏感信息。你在微信上发敏感信息，你方便，国安找你更方便。
 
-第三件事，翻墙的手机把国产软件都删除。国产软件全部有监控，小心，小心，再小心。
+据加拿大《CTV新闻》4月6日报道，为持久惩罚俄罗斯经济，美国政府当天公布了针对俄罗斯最大两家银行，普京家人及其两个成年女儿的新一轮金融制裁措施。
 
-第四件事，翻墙用的梯子，翻墙出来第一件事，查一下梯子是否和国安合作，比如蛙速云，用这个非常危险，他和国安合作。
+报道称，新措施将禁止美国的个人和机构与俄最大两家银行的资金往来，切断了普京所有亲属与美国金融系统的联系，并冻结了其在美国持有的任何资产。此外，制裁对象还包括俄总理和外交部长等众多政府高官及其亲属。美国财政部也正计划对俄罗斯国有企业实施更多制裁，并禁止美国人在俄罗斯进行新的投资。
 
-第五件事,战友之间在网上购物，留下了地址。群里都有特务，我们谈话对他们透明，所以小心。
+据悉，为惩罚俄军在乌克兰的暴行，欧盟各国都纷纷宣布了一系列冻结俄罗斯资产和能源进口的禁令。目前，联合制裁已重创俄罗斯经济，该国的通胀率正以每周2%的速度增长，而其年通胀率必将因此超过200%的崩溃极限。
 
-第六件事，用国内手机，邮箱注册推特骂共产党，这样等于是向国安发出邀请。推特被中共渗透了，只能用国外的邮箱和手机。
+校对编辑：硫酸羟氯喹64
 
-第七件事，出现信息泄露，把一切资料都删除，国安来了，要机智应对，一般都是写保证书后放人，其他事情见机行事。
+发稿：文莱
 
-国产软件虽然都有监控，但是其他人用的非常多，只要战友不发敏感信息，和正常人一同操作，不会纳入监控范围，战友们隐蔽得好的也有很多，喝茶之后第一时间，在群内咨询，有经验的战友会给您很多建议。
-
-总之，战友保重，再忍耐一段时间，离天亮不远了。
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+新闻来源：[https://www.ctvnews.ca/world/u-s-targets-putin-s-daughters-russian-banks-in-new-sanctions-1.5850327](https://www.ctvnews.ca/world/u-s-targets-putin-s-daughters-russian-banks-in-new-sanctions-1.5850327)
 
  
 

@@ -2,36 +2,39 @@
 ---
 
 
-## 有声|新中国联邦乌克兰救援前线报导
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2311819/)
+## 布林肯谈布查(Bucha)屠杀：&#8221;证据就在那里，全世界都能看到&#8221;
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/2311830/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-4月6日，据新中国联邦乌克兰救援前线战友报导，近期，虽然新中国联邦帐营内难民锐减，战友们仍保持帐营的整洁。同时，波兰政府的救援工作更加有序、高效，组织难民上公交车、到达分散点，再由法国、德国等国家负责登记，并为难提供移民等长期救援帮助。而中共政府没有为救助难民做出任何努力，是这场战争的罪魁祸首。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-788.png)
-接下来，我们一起收看来自前线的报导。
+##### 作者：加拿大温哥华扬帆农场 – 视频组
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+全世界正在看到它(俄罗斯军队)所留下的死亡和破坏，特别看到了在布查(Bucha)的令人震惊的(事）。一些事情正触动着全世界的人们。我们在布查看到的不是一个流氓部队的随机行为。这是一场蓄意的杀戮、酷刑、强奸和暴行的事件。这些报告是非常可信的，证据就在那里，全世界都可以看到。这加强了我们的决心和世界各国的决心，以确保以某种方式，在某天，对实施这些行为的人，对命令它们(俄罗斯军队)的人进行问责。
 
+我们还有一个强烈的决心，即确保正在尽一切努力继续支持乌克兰，在其勇敢的斗争中，将俄罗斯的侵略赶出乌克兰。当然，也要持续和增加对俄罗斯的压力，以停止这种侵略。我们现在要去布鲁塞尔参加北约外长会议，参加七国集团外长会议，世界上领先的民主经济体，所有这些努力都将用于(对俄罗斯)问责和支持乌克兰，增加对俄罗斯的施压。
 
+1:35
+谈到这是一场蓄意杀害平民的行动，(请问)美国国务卿的证据是否表明莫斯科的俄罗斯高级官员下令或者知晓此行动？
 
-文字版原文：[新中国联邦乌克兰救援前线报导](https://gnews.org/zh-hans/2307477/)
+1:49
+我们正在努力，就像其他人一样，把证据放在一起，支持乌克兰总检察长的努力，支持联合国人权理事会调查委员会的努力，我们帮助建立整合了这些，把所有这些汇总在一起。在(俄罗斯)入侵之前，我们说过，预计侵略如果继续下去，会有暴行发生。在侵略行动中看到的信息表明，这将是俄罗斯行动的一部分。可怕且悲惨的是，在布查和其它地方看到的情况支持此前的观点。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+素材提供：蓝色天空
+软件听写：蓝色天空
+听写校对：小白咖啡馆
+文稿翻译：小白咖啡馆
+翻译校对：文倩
+字幕添加：文雅
+最终审核：CTQ
+发布/上传: 野草
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-4.png)
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+更多加拿大温哥华扬帆农场的频道，请关注：
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+- [Gettr: 加拿大温哥华扬帆农场蓝枫法律](https://gettr.com/user/lanfengfalv)
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 6:54 PM (UTC)`
+
+Ukraine is a respectable nation that has always resisted Russia's brutal invasion with tenacity. All righteous and conscientious people stand with Ukraine. Unfortunately, the evil Chinese Communist Party has been secretly supporting Russia's invasion of Ukraine and is a root cause of disasters for the world.<br/>The NFSC, the Rule of Law Foundation and international rescue organizations have cooperated to launch a rescue operation in Ukraine. The NFSC seeks peace in the world and freedom for all. The NFSC will eliminate the Chinese Communist Party and make the world a better place.<br/>乌克兰是一个值得尊敬的民族，一直都在顽强的抵抗俄罗斯的野蛮入侵，并且所有正义、有良知的人士都跟乌克兰站在一起。可悲的是，邪恶的中共一直在暗中支持俄罗斯侵略乌克兰，是世界灾难的根源。<br/>新中国联邦、法治基金和国际救援组织合作，发起了乌克兰救援行动。新中国联邦要在世界建立和平，让所有人都享有真正的自由。新中国联邦人一定会消灭中共，让世界变得更美好。
+![img](https://media.gettr.com/group28/origin/2022/04/08/18/79eda8a3-a8bb-e3f9-e69e-8b73c332401f/out.jpg)
+
+---
+
+`@miles 4/8/2022 6:42 PM (UTC)`
+
+The NFSC (New Federal State of China) and ROL Foundation Rescue team provided humanitarian relief services for a Ukrainian mother named Olga and her two kids of US-nationality. The services also included the airfare. She bravely spoke against the absurdity of the Putin regime. When she mentioned about her husband who still stayed back in Ukraine, she broke down in tears. Speaking of being able to leave the war-torn homeland for the United States, she expressed her mixed feelings. For the help she received from the NFSC Rescue team, she generously gave it a 5-star rating."新中國聯邦和法治基金為烏克蘭媽媽Olga和她兩名美籍子女提供了人道救援服務，包括機票。她勇敢地說出普京政權的荒謬，一談到丈夫仍然要留在國家，立即淚下。對於終於能出境赴美，她的心情複雜。對於得到的救援支持，她打滿分5星
+![img](https://media.gettr.com/group5/origin/2022/04/08/18/05e31b4e-d745-ae3d-d3fd-1450cecf08ce/out.jpg)
+
+---
+
 `@miles 4/8/2022 5:35 PM (UTC)`
 
 俄乌战争战况播报
@@ -138,20 +152,6 @@ A Danish Christian volunteer: The CCP have been killing His people for years but
 
 In tragedy after tragedy in Ukraine, the ruthlessness of the Russian soldiers, their brutal methods have reached the point of heinousness, can the mothers of the Russian soldiers see this scene? Can they still sleep peacefully and stand here?  The rescue operation carried out by the New Federal State of China in Ukraine is also saving countless mothers, because both Russia and the Chinese Communist Party are hurting them!<br/>在乌克兰发生的一桩桩惨案中，俄罗斯士兵的丧心病狂，其残害手段之恶毒已经到了令人发指的地步，作为俄罗斯士兵的母亲们能看到这一幕吗？还能安心入睡立足于世界吗？一个国家的败亡往往是对女性的不公开始的，而且往往都是一些独裁国家，正如中共国的锁链女、杨改兰，作为俄罗斯的士兵的母亲们，就没想明白这个问题吗？让侵略者回家吧，这样还挽回些什么，不然他们都会死在乌克兰，而且是被唾弃的死去，因为正邪的较量是没有休止符的！新中国联邦在乌克兰开展的援救行动，也拯救着无数的母亲，因为俄罗斯和中共都在伤害她们
 ![img](https://media.gettr.com/group49/origin/2022/04/08/00/1c393958-6b1a-e550-bd8c-b04728c32ec7/out.jpg)
-
----
-
-`@miles 4/8/2022 12:21 AM (UTC)`
-
-A volunteer from Pennsylvania, US, took photos of the jacket of our fellow fighter.  Nicole introduced the difference between the Chinese people and the CCP to him. He was glad to see the new Chinese people are taking down the CCP.<br/>来自美国宾夕法尼亚州的义工看到咱们战友的马甲，就举起手机拍照。妮可向他介绍中国人和中共的区别。他很高兴看到新中国联邦人消灭共产党。
-![img](https://media.gettr.com/group32/origin/2022/04/08/00/dc8b69c4-5b19-beb5-bc05-065af9ef93d2/out.jpg)
-
----
-
-`@miles 4/8/2022 12:18 AM (UTC)`
-
-The Indian volunteer is very interested in the "extermination of the Communist Party" yellow vest of the New Federal State of China volunteers, and he strongly agrees with Mr. Miles Guo's idea and actions to eliminate the Chinese Communist Party. Neither Russia nor China should allow communism to exist anymore<br/>这位来自印度的志愿者对新中国联邦志愿者的“灭共”马甲非常感兴趣，他非常赞同郭文贵先生的消灭中共的理念和行动。无论是俄罗斯还是中国，都不应该再让共产主义存在
-![img](https://media.gettr.com/group12/origin/2022/04/08/00/5fffe65c-880e-511c-163f-3cba243dd9d0/out.jpg)
 
 ---
 
