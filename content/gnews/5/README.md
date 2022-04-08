@@ -2,23 +2,22 @@
 ---
 
 
-## 加拿大将对俄罗斯和白俄罗斯政府实施新制裁
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2307111/)
+## 台湾同胞逃离乌克兰，加入喜马拉雅农场
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307577/)
 
-加拿大温哥华扬帆农场-文莱, 晨熹
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-23.png)图片来源：Global News
-据加拿大全球新闻网4月4日报道，在乌克兰战争持续期间，加拿大正针对俄罗斯和白俄罗斯政府的“亲密伙伴”实施新的制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
+据前线战友4月6日连线报导，逃离乌克兰的台湾同胞王先生，因为参与新中国联邦前线救援工作，了解新中国联邦的信仰和追求，认同新中国联邦的灭共使命，并于近期正式加入喜马拉雅德国农场。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-790.png)
+视频详情，请点击下面链接：
 
-政府周一表示，即将对9名俄罗斯人和9名白俄罗斯人实施惩罚，因为他们“导致了对乌克兰的侵犯”，他们是俄罗斯和白俄罗斯政权的亲密伙伴。加拿大除了为乌克兰提供多项支持外，还要让普京及其支持者为他们的恶劣行径负责。
+参考链接：[4/6/2022 乌克兰救援连线](https://gettr.com/post/p13yuy3636a)
 
-为了阻止俄罗斯的侵略战争进一步升级，加拿大等西方国家已对俄罗斯及其盟国实施了多项严厉制裁，并表示要继续与国际伙伴合作，推动对布查和乌克兰其他地方的战争罪进行全面调查，其中也包括国际法院的调查，追究肇事者责任。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-50.jpg)
 
-新闻来源：[https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/](https://globalnews.ca/news/8734191/canada-russia-belarus-sanctions-ukraine-bucha-war/)
+编辑总编：雪梨
 
-* * *
-
-编辑、上传：月亮之上
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

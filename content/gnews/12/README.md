@@ -2,34 +2,23 @@
 ---
 
 
-## 中共科学院间谍承认窃取商业机密后被判入狱
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2306840/)
+## 俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2307483/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/research_security2-1068x601-1.jpg)图片来源：U.S. Embassy in Georgia
-根据CNA4月8日报道，美国司法部周四（4月7日）表示，一名中共国公民在1月份承认密谋窃取农业公司孟山都的商业机密以使中共国政府受益后，被判处29个月监禁。
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌代表团3月29日在土耳其举行和谈，会后俄方形容谈判具建设性，将向总统普京汇报乌克兰方面的提案，乌方在会谈中提出以中立地位换取安全保障，并提议新的安全保障体系，另又提出就克里米亚地位问题设15年的磋商期。乌方谈判代表称，在新的安全保障体系下，以色列、波兰、加拿大和土耳其都将成为乌克兰的安全保障国。俄罗斯、美国、英国、德国和意大利也可以提供担保。
 
-44岁的向海涛于2008年至2017年受雇于孟山都及其子公司，他在密苏里州联邦法院对一项共谋经济间谍罪认罪。
+俄罗斯外长谢尔盖．拉夫罗夫周四表示，乌克兰向莫斯科提交了一份新的和平协议草案，其中俄方认为3月29日双方于土耳其和谈中最重要的部分被乌克兰忽略、淡化，致莫斯科“无法接受”，他认为乌克兰破坏了本次和谈。外媒报导，**乌克兰首席谈判代表米哈伊洛·波多利亚克表示“拉夫罗夫与和谈没有直接关系，他的发言是纯粹的宣传意义”。**
 
-司法部在一份声明中说，周四，向海涛被判处29个月监禁，随后三年监督释放和15万美元罚款。
+外媒指出，俄外长系针对乌克兰未于协议草案中明确，克里米亚半岛地区（外界认为2014年被俄罗斯并吞的乌克兰领土）不适用乌克兰未来的安全保障体系，意思是俄方认为上次土耳其和谈乌克兰明确未来国际对乌的安全保障不会延伸致该争议地区。
 
-司法部国家安全司助理检察长马修奥尔森说：“向先生密谋窃取重要商业机密，为自己和中共国谋取不公平的优势。”
+来源｜[BARRON’S](https://www.barrons.com/news/russia-accuses-ukraine-of-changing-demands-since-istanbul-talks-01649332508?refsec=afp-news)、[HK01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/752955/%E4%BF%84%E7%83%8F%E8%AB%87%E5%88%A4-%E7%83%8F%E5%85%8B%E8%98%AD%E6%8F%90%E5%87%BA%E6%96%B0%E5%AE%89%E5%85%A8%E4%BF%9D%E9%9A%9C%E9%AB%94%E7%B3%BB-%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%95%8F%E9%A1%8C%E8%A8%AD15%E5%B9%B4%E7%A3%8B%E5%95%86%E6%9C%9F)、[YAHOO](https://uk.news.yahoo.com/ukraine-dismisses-russian-criticism-kyiv-132841568.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHAaURo7ZE6DvFW8JVoyrg9syTA8Fp6BPfX_3hqmSJgCU3OzYGKtxhKmDDiaXCKXrFEb2P_CjmwmcSyQ7th6TUD2eR3aQQLkYpY0NE2Z3ovw4vlwTN1JLrISQFbw98KVRmRA4TEjAhnRuOhBiepsA5vQwIv5NkZkwPjHdX9LUSua)
 
-奥尔森说：“经济间谍活动是一种严重的罪行，可能威胁到美国公司的竞争优势，国家安全部门致力于追究任何窃取商业机密以使外国政府受益的人的责任。”
+* * *
 
-司法部表示，联邦官员在2017年6月等待登上飞往中共国的航班时，发现他持有孟山都公司开发的专有预测算法的副本。
-
-向海涛他被允许飞往中共国，在中共国科学院土壤研究所工作。司法部补充说，他于2019年11月返回美国时被捕。
-
-资料来源：Chinese national sentenced to US prison after pleading guilty to stealing trade secrets
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 
