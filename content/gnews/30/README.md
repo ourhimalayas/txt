@@ -2,12 +2,20 @@
 ---
 
 
-## 4月7日乌克兰救援行动（图片17-24）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2306100/)
+## 加拿大将立法要求社交媒体为新闻付费
+` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2306252/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/F22C128A-34D0-4EA9-B393-9E1D461FFDCA.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/31C4B970-4D75-4590-A058-3A9A664B6E20.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E29F9423-48F6-4045-BBA6-1329140DF134.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/9BF9BFEE-50D3-4EFA-BA7F-AF43D00CF853.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/25AA54C6-4828-4446-920A-3281C8637ACF.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E09E9BD6-B20A-4A97-902A-3DCDBB956620.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E1C9D2E2-44B6-4A46-B44F-DEE9E918293F.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/6F658B72-F025-4997-9C4D-408A1CBD25A8-scaled.jpeg)
-发布： 水涨船高
+加拿大温哥华扬帆农场    平民正道
+
+据【彭博新闻】4月5日报道，加拿大正计划推出一项法案，强制脸书和谷歌等网络社交巨头通过协商交易以补偿本地媒体机构所提供的新闻内容。
+
+加拿大遗产部长对此表示，由于越来越多人将数字社交媒体作为获取新闻资讯的门户，因此对传统新闻业产生了巨大的冲击。因脸书和谷歌等平台持续通过免费共享和分发加拿大新闻媒体的内容获利，而导致了新闻产业市场的失衡和不公。
+
+据悉，随着在线广告收入集中流向网路科技巨头，越来越多的传统媒体公司因此陷入了困境。自 2008 年以来，加拿大有 450 多家新闻机构倒闭。此前澳大利亚和美国都已引入了类似的立法，欧洲的新闻出版商也在努力制定类似法规。
+
+* * *
+
+编辑： 平民正道    发布：平民正道
 
  
 

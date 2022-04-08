@@ -2,20 +2,123 @@
 ---
 
 
-## 加拿大将立法要求社交媒体为新闻付费
-` 扬帆枫叶快讯` [轉載自GNews](https://gnews.org/zh-hans/2306252/)
+## 大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306356/)
 
-加拿大温哥华扬帆农场    平民正道
+这才是真正的中国人的悲哀
+Esto es realmente la tristeza de los verdaderos chinos
 
-据【彭博新闻】4月5日报道，加拿大正计划推出一项法案，强制脸书和谷歌等网络社交巨头通过协商交易以补偿本地媒体机构所提供的新闻内容。
+就是你根本不知道真假善恶之分
+Simplemente no sabes diferenciar entre el verdadero y lo falso, el bien y el mal
 
-加拿大遗产部长对此表示，由于越来越多人将数字社交媒体作为获取新闻资讯的门户，因此对传统新闻业产生了巨大的冲击。因脸书和谷歌等平台持续通过免费共享和分发加拿大新闻媒体的内容获利，而导致了新闻产业市场的失衡和不公。
+那么海外欺民贼能到今天
+Entonces, los engañadores en el extranjero pueden sobrevivir hasta el sol de hoy
 
-据悉，随着在线广告收入集中流向网路科技巨头，越来越多的传统媒体公司因此陷入了困境。自 2008 年以来，加拿大有 450 多家新闻机构倒闭。此前澳大利亚和美国都已引入了类似的立法，欧洲的新闻出版商也在努力制定类似法规。
+就是(因为)没有真假善恶之分
+Es (porque) no hay distinción entre el bien y el mal
 
-* * *
+有这么多无知的中国海外同胞
+Existen tantos compatriotas chinos ignorantes en el extranjero
 
-编辑： 平民正道    发布：平民正道
+和中国同胞真有良知的人
+Y compatriotas chinos con conciencia
+
+但是他却没有信仰
+Pero no tiene creencia
+
+真的想灭共的人
+Gente que realmente quieren destruir al PCCh
+
+他却没有任何辨别真假的能力
+Pero no tiene ninguna habilidad para distinguir entre verdadero y falso
+
+被他们利用几十年
+Fueron utilizados por ellos durante décadas
+
+我再告诉大家
+Les diré de nuevo
+
+你们从来没有想过亨利小哥
+Ustedes nunca pensaron, Hengli Xiaoge
+
+在过去几十年被这些人害的人
+Personas que fueron asesinadas por estas personas en las últimas décadas
+
+你们知道有多少人吗
+Ustedes saben ¿cuántas personas hay?
+
+谁能告诉我一个数字
+Alguien me puede decir una cifra
+
+被他们给骗回去的
+Los que fueron engañados por ellos
+
+被他们给抓起来, 被他们给伤害的
+Arrestados, heridos por ellos
+
+被他们给骗了上床的
+Engañados a la cama por ellos
+
+骗走钱的有多少个
+Y cuántos fueron estafados
+
+就像草根小哥
+Así como Caogen Xiaoge
+
+给路大脑袋傻捐, 捐了几百次
+Donó estúpidamente a Lude cientos de veces
+
+最后是路大脑袋说你活该
+Finalmente, Lude dijo que te lo mereces
+
+我让你捐了吗
+¿Acaso te dije que donaras?
+
+然后你再看这个王书君
+Luego ves a este Wang Shujun
+
+你们知道这个王书君这个人
+Ustedes saben que este hombre Wang Shujun
+
+害了多少人吗?
+¿Le hizo daño a cuántas personas?
+
+他最起码接触华人几百个人的信息
+Al menos tiene acceso de información de cientos de chinos
+
+让他给传输给共产党了
+Que lo transmitía al PCCh
+
+很多华人找他所谓作政庇
+Muchos chinos lo buscaron por un supuesto asilo político
+
+多少人已经被弄回去了
+Cuantas personas han sido llevadas de regreso
+
+你能查出来吗
+¿Logras averiguarlo?
+
+**原视频网址**：[https://gettr.com/post/p128wet3a28](https://gettr.com/post/p128wet3a28)
+
+日期：04/06/2022
+原视频标题：因为大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+Debido a que la mayoría de los chinos son ignorantes y no tienen creencias, tampoco la capacidad de discernir lo verdadero y lo falso, el bien y el mal, son engañados por los ladrones de pseudo-democracia en el extranjero
+
+原视频日期：03/28/2021
+原视频网址：https://gettr.com/post/p128wet3a28
+任务编号：KC487(4114)
+视频时间段：0:00-1:30
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,33 +2,34 @@
 ---
 
 
-## 印度石油公司(BPCL)购买200万桶五月装运的俄罗斯乌拉尔原油
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2304071/)
+## 亚马逊签署天空网路Kuiper计划
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2304250/)
 
-**撰稿：日本东京方舟农场  JIHO**
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/amazon-project-kuiper.jpg)
+当地时间4月5日，亚马逊公司宣布已签署一批最大的商业火箭发射计划，预计在未来五年内发射83枚火箭，3236颗卫星，用于天空WI-FI建设。
 
-根据路透社新德里消息，两名熟悉采购情况的消息人士称，印度巴拉特石油公司 (BPCL) 已从贸易商托克公司购买了 200 万桶俄罗斯乌拉尔原油，用于 5 月装货。
+亚马逊公司表示会直接和美国SpaceX、英国Oneweb公司竞争，建立一个为地面提供网路的卫星系统。目前SpaceX已经有2110颗卫星在轨道上，OneWeb第一批计划的648颗目前已经完成发射428颗。亚马逊公司的此计划被称作Kuiper计划，首次发射预计要到今年的第四季度。亚马逊创始人拥有自己的航空公司，但该公司目前只能承担一部分发射任务。
 
-自 2 月 24 日俄罗斯入侵乌克兰以来，世界第三大石油进口国和消费国的印度的炼油商，利用其他买家退缩情况下的大幅折扣，通过现货交易抢购俄罗斯石油。巴拉特石油公司(BPCL) 和Trafigura(托克公司)没有立即回应置评请求。
+随着天空互联网公司之间的发展，竞争是存在的，但合作也增多。英国的OneWeb公司因受俄罗斯受制裁的影响，被迫中止了3月本该由俄罗斯航天局承接的发射任务，最后OneWeb公司寻求竞争对手SpaceX的援助，双方签署了一项未披露金额的发射协议。Kuiper计划的发射合作方包含法国、美国等国家，负责人表示很高兴与目前的合作伙伴达成了深度默契。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-2-5.jpeg)图片来自路透社
+reference：
 
-据悉，这家国营炼油厂定期为其位于印度南部的每天加工 31万桶石油的高知炼油厂购买俄罗斯乌拉尔原油。
+[https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project](https://www.theguardian.com/technology/2022/apr/05/amazon-books-83-rocket-launches-for-broadband-satellites-project)
 
-据路透社计算，随着 BPCL 的购买，自 2 月 24 日以来，印度迄今已订购了至少 1600 万桶俄罗斯原油，相当于 2021 年全年的进口量。
+撰稿、发布：骄子
 
-由于一些买家回避俄罗斯原油，乌拉尔原油对布伦特原油的折扣已经创下了后苏联时代的记录，与几个西方国家不同，印度没有禁止进口俄罗斯石油。
+* * *
 
-在印度谴责俄罗斯在乌克兰杀害平民并呼吁进行独立调查的第二天，印度外交部长 S. Jaishankar 周三表示，政府正在努力稳定与俄罗斯的经济交易。
+欢迎订阅我们的GNews账号：
 
-Jaishankar 在议会告诉立法者，俄罗斯仍然是一个重要的经济伙伴，并且正在努力“稳定印度和俄罗斯之间的经济交易”印度财政部长Nirmala Sitharaman上周表示，如果能以折扣价购买俄罗斯石油，印度将购买。“印度的整体利益是我们牢记在心的……我会把我国家的国家利益放在首位，我会把我国家的能源安全放在首位，”Nirmala说。
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
 
-参考链接：
-1. [https://reurl.cc/rQMelE](https://reurl.cc/rQMelE)
-
-编辑：青城道姑
-校对发布：文曦
-
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
