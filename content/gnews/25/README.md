@@ -2,19 +2,17 @@
 ---
 
 
-## 战争与和平—俄乌战争局势分析
-` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2310198/)
+## 美台同盟官方明确定性 中共攻台只有死路一条
+` MilesGuoLivePPT` [轉載自GNews](https://gnews.org/zh-hans/2310408/)
 
 文贵大直播20220408
 
-文案指导：顽童（纽伦堡正义）
-
-执笔：文仁（功成）文复（达芬奇）烟火（樱花）
-
-美工：青山（英喜）
+撰稿：Poplar（盘古）
 
 书法：沙漠之花（香草山）
-![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-7.png)
+
+美工：跟着北美教练（英喜）
+![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片1-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片2-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片3-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片4-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片5-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片6-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片7-11.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片8-9.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片9-8.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片10-2.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/幻灯片11-1.png)
 *发布：Theodosia*
 
  

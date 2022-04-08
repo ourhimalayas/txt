@@ -2,24 +2,35 @@
 ---
 
 
-## 马斯克加持后，数百万散户投资者买入推特
-` 加拿大温哥华英里农场` [轉載自GNews](https://gnews.org/zh-hans/2307452/)
+## 印尼将从5月起对数字资产收益征收0.1%的所得税
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
 
-编辑：文宝
+翻译/编辑：小红帽
 
-追踪美国散户交易流量的Vanda Research的数据显示，在“宇宙网红”马斯克披露其持有推特(TWTR.US)9.2%的股份之后，数百万散户投资者争相买入推特的股票，1.52亿美元的流入资金令该股成为周一被散户投资者买入最多的美股。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
 
-在过去10年的大部分时间里，马斯克已经培养出了一批忠实的投资者粉丝。美国银行分析师Justin Post表示：“鉴于马斯克在社交平台和其他媒体上获得的大量关注，我们预计这一消息(买入推特股份)将推动大量散户投资者对该股的兴趣和投资。”不过，该分析师也警告称，这种炒作也可能吸引喜欢做空股票的投资者。
-![](https://inews.gtimg.com/newsapp_bt/0/14715393370/1000)
-此外，马斯克买入推特股份这一举动助长了投资者们对meme股的又一波炒作。除了推特之外，散户投资者还趁机买入了游戏驿站(GME.US)和AMC院线(AMC.US)等meme股。
+A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
+根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
 
-Vanda Research的数据显示，散户投资者占推特投资者的比例为9.9%，明显低于最受欢迎的meme股AMC院线，后者的散户投资者占比为40.9%。
+税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
 
-一些分析师警告称，推特股价因炒作而上涨，未来可能不足以吸引其他的散户投资者。CFRA Research分析师Angelo Zino称，马斯克对推特的长期贡献将取决于他能否帮助该公司提高盈利能力，“我们认为马斯克近期对推特的批评是一个令人耳目一新的迹象，可能会帮助该平台更好地盈利。”
+正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
 
-原文链接：[https://new.qq.com/omn/20220407/20220407A06KNC00.html](https://new.qq.com/omn/20220407/20220407A06KNC00.html)
+“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
 
+近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
 
+正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+
+资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
 
  
 

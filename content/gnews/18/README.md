@@ -2,26 +2,33 @@
 ---
 
 
-## 视频|AUKUS开展超高音速武器合作，中共威胁将引发类似乌克兰冲突重演
-` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2310642/)
+## 有声|拜登再为乌克兰订购价值1 亿美元的标枪反坦克导弹
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310786/)
 
-制作：香草山视频部
+【玫瑰看新闻】每日快讯
+![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-1536x113-6.png)
+【CNBC 4月5日报导】 根据美国五角大楼和国务院的声明，美国总统拜登周二授权立即释放价值1 亿美元的标枪反坦克导弹，并为乌克兰提供训练。标枪是一种肩扛式目标锁定导弹系统，可以从一英里多的距离摧毁一辆移动中的坦克。据悉，到目前为止，没有任何武器能像美国制造的标枪那样有效或致命。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image016.jpg)**2022 **年**3 **月**23 **日，乌克兰军队的一名军人在哈尔科夫附近的一个检查站手持**FGM-148 **标枪导弹，这是一种美国制造的便携式反坦克导弹。 谢尔盖*·*博博克*|*法新社*|*盖蒂图片社
+周二晚间这一公告表明美国计划通过增加基辅战斗力的杀伤力来应对俄罗斯在乌克兰犯下的越来越多的战争罪行。
 
-由美国、英国、澳洲组成的印太区军事安全同盟“AUKUS”4月5日宣布，将开展超高音速武器合作。中共驻联合国代表张军警告，此举或引发类似乌克兰冲突的危机在世界其他地方重演。
+美国国务卿布林肯在声明中说：“世界对俄罗斯军队在布查和乌克兰各地犯下的暴行感到震惊！”
 
-根据美国总统拜登、英国首相约翰逊及澳洲总理莫里森针对本次合作发表的联合声明显示，新合作将覆盖超高音速武器、反制超高音速能力、电子战能力，以及扩大情报分享，加强防卫科技创新等多个领域。
+【援引连结】
 
-AUKUS自去年9月组成，当时已决定在网络军事、人工智能（AI）等多个领域合作，英美也会协助澳洲建造核动力潜舰，本次开展的超高音速导弹的飞行速度是普通音速的5倍，因此难以拦截，同时可加设核弹头，攻击力不容小觑。
-
-有分析认为AUKUS此举旨在针对中共，因中共曾宣传拥有经测试的超高音速导弹。对此，中共代表张军发出威胁式警告，“不希望看到乌克兰危机的人，就应避免做出可能导致世界其他地区爆发此类危机的事情”。
-
-发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**全球农场联盟委员会GTV官方账号**](https://gtv.org/user/5f58c34e245d3c05799fe236)
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/fphuQefJ)
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://GETTR.COM/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/玫瑰看新闻尾巴.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

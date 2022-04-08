@@ -2,35 +2,41 @@
 ---
 
 
-## 印尼将从5月起对数字资产收益征收0.1%的所得税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
+## 美国科技巨头孟山都中共国籍前员工因犯下经济间谍罪被判监29个月
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2307686/)
 
-翻译/编辑：小红帽
+来自新加坡早报 /
+2022年4月8日 9:02 AM 报导
+采集：玫瑰新闻组
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
-根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
 
-税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
 
-正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
 
-“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
 
-近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-112.jpeg)
 
-正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+以下原文内容：
+美国农业生物科技巨头孟山都（Monsanto）的一名中共国籍前员工，因犯下经济间谍罪被判刑29个月。
 
-资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
+据美国司法部官网当地时间周四（4月7日）发布的声明，现年44岁的中共国公民向海涛曾在2008年至2017年间受雇于孟山都公司及旗下的气候公司（Climate Corporation）。
 
-发布：tianzhihuan
+他今年1月在密苏里州东区法庭上承认为中共国政府窃取前雇主的商业秘密（孟山都研发可帮助农夫提高农业产量的农业软件），犯下经济间谍罪。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+声明说，除被判监29个月外，向海涛也将被罚款15万美元（约20万4298新元），以及在获释后面对监督守行三年。
+
+美国司法部国安局助理总检察长奥尔森在声明中说：“向海涛串谋窃取重要商业机密，让自己和中共国取得不公平的优势。经济间谍罪是对美国竞争优势构成威胁的严重罪行，国安局致力对任何窃取商业机密令外国政府受益者究责。”
+
+声明指，美国联邦调查员2017年6月在向海涛准备登机飞往中共国前，从他身上搜出由孟山都及其子公司开发属知识产权的演算法。他获准回国，但在2019年11月返回美国后被捕。
+
+向海涛2016年8月获得中共国科学院职位，从2017年6月起开始在中共国科学院南京土壤研究所担任研究员。据土壤与农业可持续发展国家重点实验室官网，向海涛从南京林业大学获得本科与硕士学位，2008在美国伊利诺伊大学香槟分校获工学博士学位。
+
+新闻链接：
+[美企中共国籍前员工因经济间谍罪判监29个月](https://www.zaobao.com.sg/realtime/china/story20220408-1260624)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 

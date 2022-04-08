@@ -2,34 +2,34 @@
 ---
 
 
-## 蔡英文家人染疫，蔡本人将隔离至4月中旬
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309458/)
+## 速报┃日本再次发力 宣布对俄罗斯实施额外制裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309632/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1649432758_97281.jpg)
-当地时间4月8日，台湾总统府通报有中共病毒阳性确诊者足迹。据总统发言人说明，蔡英文总统曾在清明假期与11名家人共度，其中一名家人在4月8日中午确诊。蔡英文总统目前测试为阴性，她将从接触日4月5日开始计算隔离，为期10天，后续再进行7天自主健康管理，直至4月21日。此段时间内公开行程全部暂停。
+撰稿：东京樱花团/闻雨
 
-台湾总统府医疗团队已经将与总统密切接触的人员进行快速测试，所有人都为阴性。蔡英文总统的相关工作将以线上或者视讯会议的方式进行。
+4月8日，岸田首相召开了新闻发布会，宣布对俄罗斯实施额外制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-19.jpg)[图片来源](https://www.google.com/search?q=%E6%97%A5%E6%9C%AC%E9%A2%9D%E5%A4%96%E5%88%B6%E8%A3%81&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=APq-WBtUGwpP6dS0xWgA5INcPm6NZUtj0Q:1649416000638&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwin7re2qYT3AhUjolwKHfz2A7MQ_AUoAnoECAEQBA#imgrc=z1CWfz_Uuxnc4M&amp;imgdii=hahDwL97qb3RrM)
+岸田首相表示：“加大对俄罗斯的外交和经济压力，我们将与国际社会团结起来，实施强有力的制裁，以阻止局势进一步升级，尽快实现停火，结束侵略。”额外的制裁包括以下5项。
 
-据悉美国众议员长佩洛西因宣布要访问台湾，此后便被确诊中共病毒阳性。而隔天台湾蔡英文总统随之成为中共病毒阳性密接者，不得不进行隔离，停止一切公开行程，改为线上工作。
+(1) 禁止从俄罗斯进口煤炭。
 
-reference：
+(2) 对机械、一部分木材和伏特加酒实行进口禁令。
 
-[https://www.setn.com/News.aspx?NewsID=1097357](https://www.setn.com/News.aspx?NewsID=1097357)
+(3) 禁止在俄罗斯进行新的投资。
 
-撰稿、发布：骄子
+(4) 冻结俄罗斯最大银行俄罗斯联邦储蓄银行 （Sberbank）和阿尔法银行（Alfa Bank）的资产。
 
-* * *
+(5) 冻结个人和公司的资产，包括近400名俄罗斯军事人员和议员以及约20个与军事有关的团体。
 
-欢迎订阅我们的GNews账号：
+关于煤炭进口，岸田首相表示：“将通过尽快获得替代品和逐步消减进口来减少我们在能源领域对俄罗斯的依赖。”日本政府不再犹豫，采取了坚定的立场，和美国和欧洲等西方国家坚定地站在了一起。只有全球的民主国家联合在一起，才能彻底摧毁邪恶的独裁政权。
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+[【速報】岸田首相　対ロシア追加制裁を発表　石炭・ウォッカなど輸入禁止（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/61d269bc82f2846270e2a771e02d54126584d5b9)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

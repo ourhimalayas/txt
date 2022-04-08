@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 3:10 PM (UTC)`
+
+ 4月8号：尊敬的战友们好，中国共产党正在中国内部……和世界．进行的人类大屠杀，必将受到中国人民和全世界维护正义的人的．最终的审判，希望国内的同胞们．能尽快的醒来．规范这个邪恶了魔鬼组织中国共产党……你们现在一定要想办法活下去，活着等到新中国联邦……拯救你们的那一天的到来……
+![img](https://media.gettr.com/group7/getter/2022/04/08/15/3177f5db-dbb5-bbf2-895d-334b9b24ab5d/out.jpg)
+
+---
+
 `@miles 4/8/2022 2:51 PM (UTC)`
 
 【Ukraine Rescue】 2022/3/31 Ukraine lady Olga: It is a mixed feeling that she is able to bring her two kids to the USA with the fight paid by the ROLF and the help from the NFSC, while her husband and all her friends still stay in Ukraine. The NFSC rescue team deserves five stars out of five for all the support provided.  Russian troops killed the Ukrainian and destroyed her homeland. <br/><br/>【乌克兰救援】 2022/3/31 乌克兰女士奥尔加：在法治基金支付机票和新中国联邦的帮助下，她能够将两个孩子带到美国，而她的丈夫和她所有的朋友还都留在乌克兰，这种感觉是复杂的。 新中国联邦救援队提供的帮助应获五星佳评。 俄罗斯军队屠杀乌克兰人民并摧毁了她的家园。<br/>
@@ -147,13 +154,6 @@ The Indian volunteer is very interested in the "extermination of the Communist P
 
 2022.04.07  新中国联邦 | 喜健康   情绪压力与营养吸收的关系
 ![img](https://media.gettr.com/group33/origin/2022/04/07/20/9a3099fa-2439-f4c3-aabd-44ddfab5e763/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 7:01 PM (UTC)`
-
-2022-4-7《避风港》(33) VAERS证实：疫苗是元凶
-![img](https://media.gettr.com/group37/origin/2022/04/07/18/ff95aca7-e651-98cb-ff9a-183b310012c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
