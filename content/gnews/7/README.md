@@ -2,26 +2,32 @@
 ---
 
 
-## 打了新冠疫苗还被感染：医务人员集中爆发新冠感染
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2309058/)
+## 俄罗斯对乌克兰车站的火箭袭击造成 30 多人死亡、100 多人受伤
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2309217/)
 
-#### 编译 意大利达芬奇农场 小白鸽
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-意大利国家紧急状态已结束，但是医疗卫生工作人员的状况并没有太大的好转。相反，对于他们的疫苗强制令延长至2022年12月31日，如不遵守，停职。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-08-alle-10.56.42.png)图片来源：ilparagone.it
-尽管医务人员都接种了疫苗，但是大量医务人员仍然继续感染新冠病毒，不得不在家隔离。最近仅在意大利北方威内托大区被感染的医务人员多达2260人，平均每星期130人；而未感染的医务人员将承受双倍甚至是3倍的工作量直至同事痊愈。
-
-但同时还存在另一个问题：未接种新冠疫苗的同事仍被停职，被迫待在家里。虽然有人为此呼吁，但政府对此并不理会。许多地方医疗机构不得不雇佣经验不足的麻醉师和急救人员。
-
-新冠疫苗不是解决新冠病毒的办法，但意大利政府还在强制医疗卫生工作人员必须接种新冠疫苗——不接种者禁止工作，而接种疫苗后却仍然不断发生感染，甚至爆发集中感染。爆料革命告诉我们新冠疫苗根本不能防止感染，现在的病毒就是疫苗反应。如此高的接种率会使病毒一波接一波，无法根除。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0152.jpg)
 
-参考链接：
 
-[https://www.ilparagone.it/attualita/vaccinati-e-contagiati-emergenza-sanitari-scoppia-il-caso-degli-ospedali/](https://www.ilparagone.it/attualita/vaccinati-e-contagiati-emergenza-sanitari-scoppia-il-caso-degli-ospedali/)
+资料来源：路透社
 
-编辑、上传：Xiao baige
+乌克兰国家铁路公司表示，周五俄罗斯对乌克兰东部的一个火车站发动火箭弹袭击，造成 30 多人死亡，100 多人受伤，当时平民试图撤离到乌克兰更安全的地区。
+
+两枚俄罗斯火箭击中了克拉马托尔斯克市的一个车站，该车站用于将平民从俄罗斯军队轰炸的地区撤离。
+
+乌克兰铁路公司在一份声明中说“两枚火箭击中克拉马托尔斯克火车站，在火箭袭击中，有 30 多人丧生，100 多人受伤。”
+
+路透社无法核实这些信息。俄罗斯没有立即对袭击和伤亡的报道发表评论。自 2 月 24 日入侵乌克兰以来，莫斯科一直否认以平民为目标。
+
+简评：俄罗斯入侵乌克兰以来， 已经数次向平民目标进行了袭击， 这次的袭击又有30多人丧生， 100多人受伤。 对平民袭击是战争犯， 普京和他的同伙必须受到战争罪审判， 这种对平民的袭击发生在当今的社会，也是全人类的灾难和悲哀。
+
+🔗 [https://www.reuters.com/world/europe/two-russian-rockets-hit-railway-station-east-ukraine-used-by-evacuees-rail-2022-04-08/](https://www.reuters.com/world/europe/two-russian-rockets-hit-railway-station-east-ukraine-used-by-evacuees-rail-2022-04-08/)
+
+责任编辑、发布： Shuizhuyu
 
  
 

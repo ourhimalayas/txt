@@ -2,35 +2,26 @@
 ---
 
 
-## 樱花时政┃上海封城：投资女王找面包 中金一哥寻鸡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2308658/)
+## 打了新冠疫苗还被感染：医务人员集中爆发新冠感染
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/2309058/)
 
-撰稿：东京樱花团/秋明
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-上海封城，社会崩溃，灾难遍地，众多上层精英人士也在与广大普通百姓一样苦苦求生。
+#### 编译 意大利达芬奇农场 小白鸽
 
-首先风投女王徐新拉群买面包，徐新是妥妥的官二代富二代，今日资本集团创始人，身价百亿，居住上亿豪宅的女王竟然找渠道买食品，该信息在朋友圈里广传，徐新随后回应此事并解释家里人多才团购。并发了一段视频，朋友送的物品堆积如山，女王一发声，各路来帮忙！
+意大利国家紧急状态已结束，但是医疗卫生工作人员的状况并没有太大的好转。相反，对于他们的疫苗强制令延长至2022年12月31日，如不遵守，停职。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Schermata-2022-04-08-alle-10.56.42.png)图片来源：ilparagone.it
+尽管医务人员都接种了疫苗，但是大量医务人员仍然继续感染新冠病毒，不得不在家隔离。最近仅在意大利北方威内托大区被感染的医务人员多达2260人，平均每星期130人；而未感染的医务人员将承受双倍甚至是3倍的工作量直至同事痊愈。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城：投资女王找面包-中金一哥寻鸡.png)
+但同时还存在另一个问题：未接种新冠疫苗的同事仍被停职，被迫待在家里。虽然有人为此呼吁，但政府对此并不理会。许多地方医疗机构不得不雇佣经验不足的麻醉师和急救人员。
 
-其次有中金首席分析师陈健恒苦寻母鸡，在金融圈成为“美谈”，陈健恒是中金一哥，团购买食品丢了一只老母鸡，于是在群里寻找。
+新冠疫苗不是解决新冠病毒的办法，但意大利政府还在强制医疗卫生工作人员必须接种新冠疫苗——不接种者禁止工作，而接种疫苗后却仍然不断发生感染，甚至爆发集中感染。爆料革命告诉我们新冠疫苗根本不能防止感染，现在的病毒就是疫苗反应。如此高的接种率会使病毒一波接一波，无法根除。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城：投资女王找面包-中金一哥寻鸡2.png)
 
-后有汤臣一品的户主交流抢菜经验，这些大佬们平时不沾一点人间烟火，竟然沦落到蹲点抢菜！
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/上海封城：投资女王找面包-中金一哥寻鸡3.png)
+参考链接：
 
-顶层名流为吃喝犯愁时，底层老百姓不知道怎样？回七哥说上海最困难的时候还没有，难以想象，老百姓苦啊！
+[https://www.ilparagone.it/attualita/vaccinati-e-contagiati-emergenza-sanitari-scoppia-il-caso-degli-ospedali/](https://www.ilparagone.it/attualita/vaccinati-e-contagiati-emergenza-sanitari-scoppia-il-caso-degli-ospedali/)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+编辑、上传：Xiao baige
 
  
 

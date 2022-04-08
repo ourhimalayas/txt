@@ -2,12 +2,23 @@
 ---
 
 
-## 吉林华泰小区居民晚上集体越狱采购
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/2308608/)
+## 樱花头条┃山东人跪着排队等待扫描健康码&#8212;商鞅五术之“辱民”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309018/)
 
-04/06/2022 吉林长春柳影路华泰世纪新城小区居民因居家隔离长期忍饥挨饿，夜晚集体逃离小区购买物资，人数众多截不住。整个柳影路社区沦陷大量阳性，政府放弃病人，无法保证生存物资。
+撰稿：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+山東省濟南市人们“跪著”排隊等待被掃描“健康碼”！商鞅五术之辱民。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+信息来源：[https://www.gettr.com/post/p135p3jcc3c](https://www.gettr.com/post/p135p3jcc3c)
+
+编辑：东京樱花团/asket、深藏不露（素材）
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

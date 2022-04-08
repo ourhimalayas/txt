@@ -2,24 +2,40 @@
 ---
 
 
-## 樱花头条┃山东人跪着排队等待扫描健康码&#8212;商鞅五术之“辱民”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309018/)
+## 【G时新闻】美国副国务卿称中共若支持俄罗斯在乌克兰的战争可能面临制裁
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2309195/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-山東省濟南市人们“跪著”排隊等待被掃描“健康碼”！商鞅五术之辱民。
+##### 播  报：加拿大温哥华扬帆农场 -【文广】
+视频制作：加拿大温哥华扬帆农场 -【文所未闻】
+![](https://assets.gnews.org/wp-content/uploads/2022/03/111111.png)
+根据CNA4月7日报道，美国副国务卿温迪·谢尔曼（Wendy Sherman）周三（4月6日）表示，对俄罗斯因乌克兰战争而实施的制裁应该让中共“充分理解”如果向莫斯科提供物质支持可能面临的后果。
 
-信息来源：[https://www.gettr.com/post/p135p3jcc3c](https://www.gettr.com/post/p135p3jcc3c)
+谢尔曼说，美国盟友和合作伙伴针对俄罗斯总统弗拉基米尔·普京、该国经济和寡头协调的“一系列制裁”和出口管制，应该成为中共领导人习近平的榜样。
 
-编辑：东京樱花团/asket、深藏不露（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+谢尔曼在众议院外交事务委员会听证会上说：“我认为，这让习主席很好地理解，如果他以任何物质方式支持普京，他可能会遇到什么。”
 
+北京应该从西方对乌克兰的协调反应中“吸取正确的教训”，即中共采取任何武力夺取民主管理的台湾岛的行动都是不可接受的。
+
+“我们希望中共明白，任何此类行动都会得到国际社会的回应，而不仅仅是美国。”谢尔曼表示。
+
+中共拒绝谴责俄罗斯在乌克兰的行动或称其为入侵，并批评西方对莫斯科的制裁，尽管一名中共高级外交官上周表示，北京并没有故意规避这些制裁。
+
+近年来，北京和莫斯科的关系日益密切，包括在2月份宣布建立“无限制”伙伴关系。
+
+美国总统乔拜登在3月份的视频通话中警告习近平，任何物质支持以帮助俄罗斯应对西方制裁或提供军事援助的“后果”。
+
+编辑/上传：一叶
+盖特链接：[https://gettr.com/post/p143m345d1c](https://gettr.com/post/p143m345d1c)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2996.png)
+* * *
+
+更多加拿大温哥华扬帆农场的频道，请关注：
+
+- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](加拿大温哥华扬帆农场%20G-时新闻)
+- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](加拿大温哥华扬帆农场%20蓝枫法律)
+- [Gettr: 加拿大温哥华扬帆农场](加拿大温哥华扬帆农场)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/image-2564.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

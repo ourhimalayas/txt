@@ -2,35 +2,28 @@
 ---
 
 
-## 印尼将从5月起对数字资产收益征收0.1%的所得税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
+## 欧盟对俄罗斯新制裁达成一致 煤炭禁运及其他措施
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307596/)
 
-翻译/编辑：小红帽
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5-32.jpg)
+合众国际社4月7日报道。欧盟周四批准了对俄罗斯的新制裁措施，包括对煤炭进口的禁运，作为指控莫斯科入侵乌克兰时侵犯人权的回应。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
+欧盟轮值主席国宣布，该禁令每年价值约43.5亿美元，作为自2月底入侵开始以来，欧盟集团采取制裁俄罗斯能源行业的第一个步骤。它提及发生在布查（Buchan）的“可怕的侵犯人权行为”。
 
-A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
-根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
+“一揽子计划非常坚实，并将对俄罗斯的制裁扩展到了新的领域，”主席国法国表示。
 
-税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
+欧盟委员会主席乌尔苏拉-冯德莱恩(Ursula von der Leyen)在周二的一系列推文中概述了这些制裁措施，并指出它们还将包括对四家俄罗斯银行的全面交易禁令，包括俄国第二大银行俄罗斯外贸银行（VTB）。
 
-正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
+此外，制裁将禁止俄罗斯和俄罗斯运营的船只进入欧盟港口，禁止白俄罗斯公路运输运营商，进一步禁止价值近110亿美元的先进半导体、机械和运输设备的出口，以及价值近60亿美元的新进口禁令。
 
-“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
+冯德莱恩补充说，欧盟还将实施有针对性的措施，包括禁止俄罗斯公司参与欧盟的公共采购，排除欧盟或其个别国家对俄罗斯公共机构的所有财政支持，以及进一步列出个人名单。
 
-近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
+由于欧洲议会以 513 票对 22 票赞成“立即全面禁止俄罗斯进口石油、煤炭、核燃料和天然气”，欧盟正在制定补充的制裁措施，例如石油进口。
 
-正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
+周三，欧盟与美国和七国集团联合实施制裁，对俄罗斯银行、弗拉基米尔-普京总统的两名成年女儿、外交部长谢尔盖-拉夫罗夫的妻子和女儿以及俄罗斯安全委员会成员实施制裁。
 
-资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+新闻来源：[https://www.upi.com/Top\_News/World-News/2022/04/07/EU-agrees-coal-embargo-new-sanctions-Russia/1811649365146/](https://www.upi.com/Top_News/World-News/2022/04/07/EU-agrees-coal-embargo-new-sanctions-Russia/1811649365146/)
 
  
 

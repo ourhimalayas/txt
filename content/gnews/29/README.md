@@ -2,28 +2,41 @@
 ---
 
 
-## 时隔28年平克·弗洛伊德发布新单曲支持乌克兰抵抗战争
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2308043/)
+## 新南威尔士州发现首例“德尔塔克戎”病例
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2308068/)
 
-**撰稿：日本东京方舟农场 北极**
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-135.jpg)图片来自网络
+《9 News》近日报道，在新南威尔士州发现了第一例新的新冠变体“德尔塔克戎”病例。
 
-据基辅邮报4月8日报道，周四，传奇的英国摇滚乐队平克·弗洛伊德（Pink Floyd）时隔28年以来发布的新单曲献给了乌克兰抵抗俄罗斯军队入侵的战争。
+新州卫生厅每周的新冠报告表示该州录得一例德尔塔克戎和一例奥米克戎和多个次变异组合病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-9.jpeg)平克·弗洛伊德（Pink Floyd）新音乐视频的截图，该视频已发布并致力于乌克兰抵抗俄罗斯侵略。（图片来自基辅邮报）
+德尔塔克戎是一种“重组”病毒，这意味着它是两种不同变体的混合体。
 
-这首名为“Hey Hey Rise Up”的歌曲视频在YouTube上首发，由平克·弗洛伊德乐队与乌克兰音乐家安德烈·赫利夫纽克（Andriy Khlyvnyuk）一起录制的。
+卫生当局表示，没有证据表明这些新毒株会导致更多疾病或抵消当前新冠疫苗的影响。
 
-平克·弗洛伊德（Pink Floyd）表示，他们与乌克兰音乐家合作，是为了表达“支持他的抵抗行为”，反对俄罗斯侵略的野蛮行为。
+今天，新的每日新冠数字的趋势也发生了变化，一些州记录的新病例有所下降。
 
-平克·弗洛伊德是一支于伦敦成立的英国摇滚乐队，他们是流行音乐史上最具商业成功与音乐影响力的摇滚乐队之一，平克·弗洛伊德于1996年与2005年分别入主美国摇滚名人堂和英国音乐名人堂。
+与昨天相比，新南威尔士州和维多利亚州都报告了新冠病毒病例数量的减少。
+
+新南威尔士州报告了 20396 例，而昨天记录为 22255 例。
+
+该州与新冠相关的还有八人丧生。
+
+有1435人在医院感染病毒，44人在重症监护室。
+
+维多利亚州记录了 11,192 例新的新冠病例，比昨天的 12314 例减少了 1000 多例。
+
+该州还有四人死于新冠。
 
 参考链接：
-1. [https://reurl.cc/Y9LWlD](https://reurl.cc/Y9LWlD)
-2. [https://reurl.cc/X4oelR](https://reurl.cc/X4oelR)
 
-总编：青城道姑
-发布：文曦
+[https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46](https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46)
 
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

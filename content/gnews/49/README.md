@@ -2,55 +2,106 @@
 ---
 
 
-## 人民日报强调动态清零背后的上海官逼民反逼习灭亡戏码
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2306806/)
+## 拜登:俄罗斯在联合国人权理事会中没有一席之地
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/2306800/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/习近平亲自指挥.png)
-据[**环球时报**](https://weibo.com/huanqiushibaoguanwei?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2022年4月8日09:38](https://weibo.com/1974576991/LnsB1iWs8?ref=home&amp;rid=7_0_8_4813954024315693801_0_0_0) 来自 [新版微博 weibo.com](https://app.weibo.com/t/feed/xEsRX)
-
-【人民日报头版：“动态清零”是现阶段的最佳选择】推广“抗原筛查、核酸诊断”的监测模式，不断提高“早发现”能力；紧盯传播链条，及时进行流调溯源；精准实施封控区、管控区、防范区分类管理措施……近期，全国本土聚集性疫情呈现点多、面广、频发的特点，各地坚持“动态清零”总方针，抓实抓细疫情防控各项工作，坚决筑牢疫情防控屏障。
-
-与病毒赛跑，跑得越快，就越能掌握战“疫”主动权。目前主要流行的奥密克戎变异株具有传播速度快、隐性感染和轻症病例比例高等特点，无症状和轻症感染者较多，导致发现和防控疫情工作更加困难。越是这样的时候，越要坚持“动态清零”总方针不犹豫不动摇。“动态清零”的精髓，一是快速，二是精准。立足抓早、抓小、抓基础，发现一起就扑灭一起，既能减少疫情对人民身体健康和生命安全的危害，又能最大限度地平衡社会经济发展和疫情防控之间的关系。可以说，坚持“动态清零”总方针，是“努力用最小的代价实现最大的防控效果”的必然要求，是尊重科学、尊重规律的有力体现。
-
-我国地域广阔，各地医疗卫生条件存在差异，疫苗接种在不同人群之间存在不平衡性，同时老年人口基数大。在这样的背景下，“动态清零”是现阶段基于我国当前疫情形势的最佳选择，力争在短时间内做到“动态清零”是最经济、最有效的疫情防控策略。保持战略定力，不麻痹、不厌战、不松劲，从严从实开展防控工作，我们必能巩固来之不易的成果，有力保障人民群众生命健康和经济社会发展。来源：《人民日报》（2022年04月08日 第01版）林亦辰 原标题：《动态清零体现尊重科学、尊重规律（今日谈）》
-
-人民日报放在头版的这篇文章意味深长，因为只要它说“动态清零”是现阶段的最佳选择，那就说明两个问题，一个是“动态清零”政策面临严重挑战，所以需要人民日报这个皇帝的夜壶出来招摇一下子，不为统一思想，只为昭示天下，这是皇帝尿过的夜壶，尔等不要聒噪。
-
-另一个是既然人民日报是皇帝的夜壶，那么展示的必是皇帝的屎尿，那么“动态清零”的政策到底来源于哪里呢？我们一定要记住，虽然中共墙内的互联网已经把习太阳的这段视频删除的干干净净，但是只要有点耐心，我们总还是能找得到的——
-
-视频来源——[高卢英雄Michel](https://twitter.com/Saint__Michel)[@Saint\_\_Michel](https://twitter.com/Saint__Michel)[下午9:03 · 2022年4月2日](https://twitter.com/Saint__Michel/status/1510241539926245380)推文一切都是中共党魁习近平，亲自指挥，亲自部署。 （这个视频莫名其妙重复了两次，删除了一个，竟然全没了 ）
+**拜登总统： **
+在乌克兰发生暴行之后，俄罗斯在联合国人权理事会中没有一席之地。 今天，我们明确表示了这一点。 我的完整声明： 【附白宫官网：乔·拜登总统关于联合国投票暂停俄罗斯在人权理事会成员资格的声明 我为今天在联合国大会上以压倒性多数投票将俄罗斯赶出联合国人权理事会表示赞赏。 这是国际社会迈出的有意义的一步，进一步展示了普京的战争如何使俄罗斯成为国际卑劣之国。…】
 
 
 
-> 一切都是中共党魁习近平，亲自指挥，亲自部署。 
-> （这个视频莫名其妙重复了两次，删除了一个，竟然全没了🧐） [pic.twitter.com/EO0qf0WCXg](https://t.co/EO0qf0WCXg)
-> — 高卢英雄Michel🇨🇵 (@Saint\_\_Michel) [April 2, 2022](https://twitter.com/Saint__Michel/status/1510241539926245380?ref_src=twsrc%5Etfw)
+> After its atrocities in Ukraine, Russia has no place on the UN Human Rights Council.
+> 
+> Today, we made that clear.
+> — President Biden (@POTUS) [April 7, 2022](https://twitter.com/POTUS/status/1512174657213976588?ref_src=twsrc%5Etfw)
 
 
 
-看完人民日报的头版文章再对照习太阳的表态，我们就能对目前发生在全国的动态清零惨剧有一个清醒认识，同时让我们更加看清楚上海的生活物资为什么送不到被封控市民手上了——上海当局用市民的人道灾难倒逼亲自指挥的习太阳的动态清零退场，现在官逼民反的上海态势背后实际上是官逼习亡，病毒早已经不是病毒，它是政治的一部分，“动态清零”也早已不是防疫的一部分，它已经成为反习的一个重要抓手！
+**美国务卿安东尼·布林肯： **
+与我的朋友乌克兰外交部长库勒巴[@DmytroKuleba](https://twitter.com/DmytroKuleba) 会面，讨论美国、盟国和合作伙伴们将如何继续帮助乌克兰抵御俄罗斯的残暴战争，并就克里姆林宫的暴行追究其责任。 我们与乌克兰站在一起 [#StandWithUkraine](https://twitter.com/hashtag/StandWithUkraine?src=hashtag_click)。
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
 
-校对：Maarago；
+> Met with my friend, Ukrainian Foreign Minister [@DmytroKuleba](https://twitter.com/DmytroKuleba?ref_src=twsrc%5Etfw), to discuss how the United States, Allies, and partners will continue to help Ukraine defend against Russia’s brutal war and hold the Kremlin accountable for atrocities. We [#StandWithUkraine](https://twitter.com/hashtag/StandWithUkraine?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/1fUEnNlqat](https://t.co/1fUEnNlqat)
+> — Secretary Antony Blinken (@SecBlinken) [April 7, 2022](https://twitter.com/SecBlinken/status/1512124293953597442?ref_src=twsrc%5Etfw)
 
-**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**美国务卿安东尼·布林肯： **
+联合国[@UN](https://twitter.com/UN) 大会投票决定暂停俄罗斯的人权理事会成员资格。 在其对乌克兰的野蛮战争中公然表现出对人权的不尊重后，俄罗斯将不会被保留联合国人权理事会[@UN\_HRC](https://twitter.com/UN_HRC) 成员的资格。
 
-YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+> The [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw) General Assembly has voted to suspend Russia from the Human Rights Council. Russia will not retain [@UN\_HRC](https://twitter.com/UN_HRC?ref_src=twsrc%5Etfw) membership after showing blatant disrespect for human rights in its brutal war against Ukraine.
+> — Secretary Antony Blinken (@SecBlinken) [April 7, 2022](https://twitter.com/SecBlinken/status/1512187576286908419?ref_src=twsrc%5Etfw)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+**前国务卿迈克.蓬佩奥：** 
+最高法院的大法官们应该按照法律成文、而不是根据他们的政治意识形态来解释宪法。很明显，这不会是杰克逊法官的做法——她不应该被确认，也不应该被提名。
+
+
+
+> Justices on the Supreme Court should interpret the Constitution as it is written and not according to their political ideology. It is clear that this will not be the approach of Judge Jackson – she should have been neither confirmed nor nominated.
+> — Mike Pompeo (@mikepompeo) [April 7, 2022](https://twitter.com/mikepompeo/status/1512186454964903937?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本： **
+这就是 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 带给你的东西：审查和对真相的压制。 【附华尔街日报的文章：“我们会杀了你”：俄罗斯如何压制其国内的反战运动】
+
+
+
+> This is what socialism gives you: censorship and the suppression of truth. [https://t.co/nAI02o7Rb6](https://t.co/nAI02o7Rb6)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2022](https://twitter.com/MarshaBlackburn/status/1512178359878492169?ref_src=twsrc%5Etfw)
+
+
+
+**共和党领袖迈克尔·麦考尔： **
+[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 对美国和我们在世界各地热爱自由的盟友构成了世代威胁。我期待着成为中共国立法会议的代表，期待着成为一名领导，为美国人民提供他们应得的东西——一项法案认真对待日益增长的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 威胁。
+
+
+
+> The CCP poses a generational threat to the U.S. and our freedom-loving allies around the world. I look forward to serving as a China legislation conferee and leading efforts that give the American people what they deserve – a bill takes the growing CCP threat seriously.
+> — Michael McCaul (@RepMcCaul) [April 7, 2022](https://twitter.com/RepMcCaul/status/1512211890214219776?ref_src=twsrc%5Etfw)
+
+
+
+**参议员玛莎·布莱克本： **
+“对不起”还不够。对于这个灾难性的决定，我们需要答案、解释和辞职。 [@kristina\_wong](https://twitter.com/kristina_wong) 【附[breitbart.com](https://t.co/K1o1oKIZLd)的文章：周四，国防部长劳埃德·奥斯汀无意中承认了美国与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 分享有关俄罗斯的情报是不好的，尽管拜登政府的工作人员正是这样做的。】
+
+
+
+> ‘Sorry’ isn’t good enough. We need answers, explanations, and resignations for this disastrous decision.[@kristina\_wong](https://twitter.com/kristina_wong?ref_src=twsrc%5Etfw) [https://t.co/mRu7SD4n0K](https://t.co/mRu7SD4n0K)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 7, 2022](https://twitter.com/MarshaBlackburn/status/1512207952379265027?ref_src=twsrc%5Etfw)
+
+
+
+**参议员瑞克·斯科特：** 
+今天，美国参议院通过了我和马克·华纳[@MarkWarner](https://twitter.com/MarkWarner) 的决议，发出了一个明确的信息：[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 对彭帅的噤声是不可接受的，国际奥委会与 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 的专制政权合作掩盖这一人身侵犯(张高丽性侵彭帅)是绝对不能容忍的。
+
+
+
+> Today, the U.S. Senate sent a clear message in passing my & [@MarkWarner](https://twitter.com/MarkWarner?ref_src=twsrc%5Etfw)'s resolution: Communist China's silencing of Peng Shuai is unacceptable & the IOC's cooperation with Xi's oppressive regime in covering up this alleged assault will NEVER be tolerated. [https://t.co/QttqDB1RyS](https://t.co/QttqDB1RyS)
+> — Rick Scott (@SenRickScott) [April 8, 2022](https://twitter.com/SenRickScott/status/1512232145086996484?ref_src=twsrc%5Etfw)
+
+
+
+**众议员吉姆·乔丹：** 
+埃里克·川普说：“如果我做了亨特·拜登所做的1/100，我就会进监狱。” 
+他没有错。 
+美国人已经接受了双重标准。
+
+
+
+> Eric Trump: “If I did 1/100 of what Hunter Biden did, I’d be in jail.”
+> 
+> He’s not wrong. 
+> 
+> Americans have had it with the double standard.
+> — Rep. Jim Jordan (@Jim\_Jordan) [April 7, 2022](https://twitter.com/Jim_Jordan/status/1512218507064324096?ref_src=twsrc%5Etfw)
+
+
 
  
 
