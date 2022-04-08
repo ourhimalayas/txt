@@ -2,36 +2,25 @@
 ---
 
 
-## 印尼将从5月起对数字资产收益征收0.1%的所得税
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307619/)
+## 美国封锁俄罗斯最大金融机构，禁止对俄新投资
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307622/)
 
-翻译/编辑：小红帽
+撰稿：纽约香草山农场–Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
+4月6日，美国白宫发表声明，鉴于俄罗斯在乌克兰的暴行，美国禁止在俄罗斯的新投资，并对俄罗斯最大的金融机构和重要的国有企业，以及俄罗斯政府官员及其家庭成员实施严厉的金融制裁。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-791.png)
+该声明称，美国将全面封锁俄罗斯最大的金融机构–储蓄银行，和俄罗斯最大的私人银行–阿尔法银行，冻结其在美资产；并表示对俄罗斯重要的国有企业进行全面制裁，禁止美国人与这些实体进行交易，并冻结资产。此外，在600多家跨国企业决定退出俄罗斯的基础上，拜登总统将签署一项新的行政命令，禁止美国人在俄罗斯进行任何新的投资，进一步孤立俄罗斯，削弱俄罗斯的全球竞争力。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IW44TE4H3JM6RK25V5VWPQE3PY-scaled.jpg)图片来源：路透社
+同时，美国还将对包括俄罗斯总统普京的成年子女、外长拉夫罗夫的家人等实施经济制裁。（请播放视频，视频时长0‘58“）
 
-A Bitcoin sign is seen in Kuta on the resort island of Bali, Indonesia January 18, 2018. REUTERS/Nyimas Laula
-根据coingeek4月7日报道，一位税务官员透露，从今年5月开始，印度尼西亚的数字资产交易者将不得不为他们的交易支付新的税款，尽管该国的交易量在2021年飙升至600亿美元。
+参考链接：[拜登总统宣布对俄罗斯实施新的经济制裁](https://gettr.com/post/p13zzh72131)
 
-税务总局官员Hestu Yoga Saksama最近在一次媒体发布会上宣布了新的税种。他说，从5月1日起，税务局将对数字资产交易征收增值税，并对此类投资的资本收益征收0.1%的所得税。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-52.jpg)
 
-正如Saksama所阐述的，该国法律承认数字资产像商品而不是货币，因此，它们需要缴纳增值税。
+审核/编辑/总编：雪梨
 
-“加密资产将被征收增值税，因为它们是贸易部定义的一种商品。它们不是一种货币。因此，我们将征收所得税和增值税，”Saksama告诉媒体机构。他进一步声称，政府正在制定支持这些税收的法规。
-
-近年来，印度尼西亚已经成为亚洲最大的数字资产市场之一。根据该国贸易部的数据，2021年数字货币交易额从2020年的60万亿印尼盾（41 亿美元）飙升至859万亿印尼盾（598.3亿美元）。
-
-正如贸易部副部长Jerry Sambuaga所观察到的，数字货币已经变得比传统股票更受欢迎。2021年，拥有中央证券存管账户的印尼人数量为735万，投资者用该账户进行股票交易。相比之下，去年有1100万印尼人拥有数字资产，占总人口的4%。
-
-资料来源：[Indonesia to impose 0.1% income tax on digital asset gains starting May](https://coingeek.com/indonesia-to-impose-0-1-income-tax-on-digital-asset-gains-starting-may/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
-
+校对/发稿：浪迹天涯
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

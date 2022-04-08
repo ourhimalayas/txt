@@ -2,30 +2,32 @@
 ---
 
 
-## 日本考虑限制从俄罗斯进口煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307704/)
+## 朝鲜下周可能举行核试验
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2307727/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151751.jpeg)图片来源：BLOOMBERG
-根据CNA4月8日引述日本媒体报道，日本政府正在考虑限制俄罗斯煤炭的进口，作为对该国能源领域制裁的一部分。
+**撰稿：日本东京方舟农场  子辰**
 
-报道援引消息人士的话说，在七国集团（G7）盟友发表声明，承诺对俄罗斯实施额外制裁，以回应其在乌克兰大规模屠杀平民的指控之后，日本将与美国和欧洲国家协调行动。
+4月6日，美国国务院朝鲜事务特使金星容（Sung Kim）在新闻发布会上对记者表示，平壤可能会利用其4月15日的纪念日，来展示核能力。
 
-日本首相岸田文雄周四表示，在与七国集团盟友就进一步的惩罚措施进行协调后，日本最早将于周五公布对俄罗斯入侵乌克兰的进一步制裁。
+他说，担心朝鲜平壤在4月15日纪念日即将到来之际，可能会再次采取挑衅行动，即又一次的导弹发射，而且还是一次核试验。虽然不希望发生此事，但明确表示会做好准备。
 
-在俄罗斯2月24日入侵乌克兰之后，日本加大了制裁力度–将莫斯科从国际支付网络SWIFT除名和冻结其中央银行资产。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-1.jpg)（图片来自网络）
 
-日本与G7经济体保持一致，冻结了俄罗斯官员、寡头、银行和其他机构的资产，并禁止向俄罗斯出口高科技产品。
+自今年年初以来，平壤政权已经进行了13次导弹试验。
 
-资料来源：[Japan considers restrictions on coal imports from Russia](https://www.channelnewsasia.com/asia/japan-considers-restrictions-coal-imports-russia-2615361)
+金星容说，面对朝鲜的屡次升级和挑衅行动，联合国安理会做出果断回应，提出了一项新的联合国安理会决议。他希望作为安理会成员国的中共和俄罗斯，能够同意这项决议，并与我们合作，因为这也符合他们自己的利益。
 
-发布：tianzhihuan
+他透露，已经与中共和俄罗斯就此事进行了讨论。但目前为止，并未有任何有成效的讨论结果产生。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+此外，4月5日，朝鲜领导人金正恩的妹妹金与正警告说，尽管平壤反对战争，但如果韩国采取任何“危险的军事行动”，例如发动先发制人的打击，朝鲜将动用其日益增长的核武库进行报复。
+
+韩国国防部长徐旭（Suh Wook）曾表示，韩国军方有能力准确而迅速地采取行动，打击朝鲜的导弹发射场，这些发射场对韩国构成了迫在眉睫的威胁。
+
+参考链接：
+[https://www.epochtimes.com/gb/22/4/7/n13703086.htm](https://www.epochtimes.com/gb/22/4/7/n13703086.htm)
+
+总编：老孙
+校对发布：文曦
 
  
 
