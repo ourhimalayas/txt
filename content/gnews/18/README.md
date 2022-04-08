@@ -2,29 +2,34 @@
 ---
 
 
-## 有声｜陕西“铁笼女”调查出炉 疑再现“指莹为梅”戏码
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2309820/)
+## 接种了三针新冠疫苗的澳州记者饱受了新冠的折磨
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2309913/)
 
-By:**秘翻新闻**
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-840.png)图片来自网络
+澳州记者特蕾西·斯派塞(Tracey Spicer)接种了三针新冠疫苗，但这位55岁的记者在一月份感染了新冠病毒。
 
-**2022-04-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-08-200008.jpg)
-[新唐人](https://www.ntdtv.com/gb/2022/04/07/a103394424.html)北京时间4月7日消息。近日，陕西榆林官方推出有关“铁笼女”的所谓“调查结果”，否认虐待指控，其公布的“铁笼女”身份也明显与公开信息不符。其所谓“丈夫”甚至未受刑责。
+在卧床两周后，虽然她从一些症状中恢复了过来，如严重的咳嗽，但她仍然病得很重。三个多月后还无法正常工作。
 
-4月6日，陕西省榆林市官方通报此案的处理结果：两人因涉嫌拐卖妇女遭刑事拘留，当事女“小雨”的丈夫李某民因为“刑事追诉期已过”未被起诉。还有涉及外来人口管理、户籍登记及出生医学证明发放等事务的13名基层官员被处分。
+她感到疲劳和胸痛，担心自己的心脏出了问题。她几乎不能在外面散步，即使是做一顿饭也会感到极度疲乏。
 
-通报称，经过查证核实与DNA比对，认定“铁笼女”并非与其相貌极其相似的女大学生王国红，而是“陕西汉中市佛坪县失踪精神病女子陶某侠”。
+这位记者的经历与一些新冠病毒感染者一样，他们长期被一些疾病或症状困扰，包括疲劳、呼吸困难、咳嗽、关节疼痛、胸痛，以及记忆力减退和失眠。
 
-此案处理结果与徐州“铁链女”案类似，皆避重就轻、疑似替换当事人身份。与“铁链女”的所谓“丈夫”被刑拘相比，“铁笼女”的所谓“丈夫”还逃过了刑责。
+澳洲政府表示，新冠病毒给人体造成的长期副作用仍不清楚。人们开始思考究竟是新冠病毒还是新冠疫苗产生的健康问题。
 
+另有报道，数十名接种了辉瑞疫苗的青少年在两个月内患上了一种罕见的心脏病。与未接种辉瑞疫苗的人相比，已接种疫苗的人患心肌炎的数量高于预期。
 
+心肌炎是一种非常罕见但已知的新冠疫苗副作用。在接种第二针辉瑞疫苗后更有可能出现心肌炎。
 
-（秘翻新闻 二丫编辑）
+尽管如此，澳洲政府还在鼓励民众接种加强针新冠疫苗。只有让更多的接种了新冠疫苗并出现了各种各样的健康问题的民众公开表达自己的感受，才能让人们注意到是注入到体内的新冠疫苗使身体产生了问题。
 
-发布 : 文橙
+参考消息：
+1. [Tracey Spicer: Triple-vaxxed Aussie journalist crushed by long Covid](https://www.news.com.au/lifestyle/health/health-problems/tracey-spicer-triplevaxxed-aussie-journalist-crushed-by-long-covid/news-story/aa2a0e0da77fbd4d128456added5023f)
+2. [Victorian teens’ rare condition after Covid jab](https://www.heraldsun.com.au/coronavirus/victorian-teens-rare-condition-after-covid-jab/news-story/9b01931efd02d96184f4f40771c7ee5b)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+*审核：喜国公民*
+*发布：喜国公民*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

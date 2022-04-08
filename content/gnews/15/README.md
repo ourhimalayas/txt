@@ -2,34 +2,27 @@
 ---
 
 
-## 接种了三针新冠疫苗的澳州记者饱受了新冠的折磨
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2309913/)
+## 有声｜美国计划如何“饿死”俄罗斯的战争机器
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310005/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-840.png)图片来自网络
-澳州记者特蕾西·斯派塞(Tracey Spicer)接种了三针新冠疫苗，但这位55岁的记者在一月份感染了新冠病毒。
+**By:秘翻新闻**
 
-在卧床两周后，虽然她从一些症状中恢复了过来，如严重的咳嗽，但她仍然病得很重。三个多月后还无法正常工作。
+**2022-04-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-04-08-193315.jpg)
+**[《路透社》](https://www.reuters.com/world/europe/us-treasurys-adeyemo-lays-out-plan-starve-russias-war-machine-2022-04-07/)**华盛顿4月7日报道，周四，美国财政部副部长瓦利·阿德耶莫表示，美国正在加大对俄罗斯的制裁，以阻断俄罗斯军队所需的资金、制造军工产品原料和组件的来源。遏制资金的主要手段是限制俄罗斯能源出口，但这需要时间。
 
-她感到疲劳和胸痛，担心自己的心脏出了问题。她几乎不能在外面散步，即使是做一顿饭也会感到极度疲乏。
+阿德耶莫说, 美国及其欧洲盟友将以俄罗斯的军事供应链为目标，不让他们获得用于制造坦克和供应导弹的关键部件，以打击俄罗斯军队对乌克兰未来的投射力量。
 
-这位记者的经历与一些新冠病毒感染者一样，他们长期被一些疾病或症状困扰，包括疲劳、呼吸困难、咳嗽、关节疼痛、胸痛，以及记忆力减退和失眠。
+周三，美国白宫经济委员会主任布莱恩·迪斯表示，拜登政府最新的制裁方案将禁止与俄罗斯国防巨头联合飞机公司和联合造船公司的交易。其中，联合飞机公司是苏霍伊和米格战斗机的制造商。
 
-澳洲政府表示，新冠病毒给人体造成的长期副作用仍不清楚。人们开始思考究竟是新冠病毒还是新冠疫苗产生的健康问题。
+阿德耶莫在接受路透社采访时表示，如果俄罗斯不停止入侵，美国及其盟友将会做出更多制裁来惩罚俄罗斯。
 
-另有报道，数十名接种了辉瑞疫苗的青少年在两个月内患上了一种罕见的心脏病。与未接种辉瑞疫苗的人相比，已接种疫苗的人患心肌炎的数量高于预期。
+（秘翻新闻  冰糖葫芦喵编译报道）
 
-心肌炎是一种非常罕见但已知的新冠疫苗副作用。在接种第二针辉瑞疫苗后更有可能出现心肌炎。
+发布:星星
 
-尽管如此，澳洲政府还在鼓励民众接种加强针新冠疫苗。只有让更多的接种了新冠疫苗并出现了各种各样的健康问题的民众公开表达自己的感受，才能让人们注意到是注入到体内的新冠疫苗使身体产生了问题。
-
-参考消息：
-1. [Tracey Spicer: Triple-vaxxed Aussie journalist crushed by long Covid](https://www.news.com.au/lifestyle/health/health-problems/tracey-spicer-triplevaxxed-aussie-journalist-crushed-by-long-covid/news-story/aa2a0e0da77fbd4d128456added5023f)
-2. [Victorian teens’ rare condition after Covid jab](https://www.heraldsun.com.au/coronavirus/victorian-teens-rare-condition-after-covid-jab/news-story/9b01931efd02d96184f4f40771c7ee5b)
-
-*审核：喜国公民*
-*发布：喜国公民*
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

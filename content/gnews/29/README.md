@@ -2,34 +2,28 @@
 ---
 
 
-## 蔡英文家人染疫，蔡本人将隔离至4月中旬
-` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309458/)
+## 樱花时政┃美众议院议长佩洛西确认阳性推迟访日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309541/)
 
-撰稿：银河系农场｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1649432758_97281.jpg)
-当地时间4月8日，台湾总统府通报有中共病毒阳性确诊者足迹。据总统发言人说明，蔡英文总统曾在清明假期与11名家人共度，其中一名家人在4月8日中午确诊。蔡英文总统目前测试为阴性，她将从接触日4月5日开始计算隔离，为期10天，后续再进行7天自主健康管理，直至4月21日。此段时间内公开行程全部暂停。
+撰稿：东京樱花团/文小白
 
-台湾总统府医疗团队已经将与总统密切接触的人员进行快速测试，所有人都为阴性。蔡英文总统的相关工作将以线上或者视讯会议的方式进行。
+据HNK4月8日消息，美国众议院议长佩洛西被证实感染了新冠病毒，因而推迟了原本定于本周末对日本的访问。
 
-据悉美国众议员长佩洛西因宣布要访问台湾，此后便被确诊中共病毒阳性。而隔天台湾蔡英文总统随之成为中共病毒阳性密接者，不得不进行隔离，停止一切公开行程，改为线上工作。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-31.png)照片来源：本文链接
 
-reference：
+佩洛西议长与几位国会议员定于本周末访问日本，与岸田首相和众议院议长细田会面。在俄罗斯对乌克兰的持续军事侵略中，就应对俄罗斯以及支持乌克兰等交换意见。
 
-[https://www.setn.com/News.aspx?NewsID=1097357](https://www.setn.com/News.aspx?NewsID=1097357)
+然而，1月7日，佩洛西议长办公室的工作人员在推特上宣布，佩洛西推迟了对包括日本在内的亚洲的访问，原因是她的新冠病毒菌株检测呈阳性。
 
-撰稿、发布：骄子
+佩洛西目前没有症状，但根据美国疾病控制和预防中心（CDC）的指导方针，她需要自主隔离。
 
-* * *
+佩洛西议长原本考虑在访问日本后访问台湾，由于感染访台日程也同时延期。
 
-欢迎订阅我们的GNews账号：
+信息来源：[米下院議長 日本訪問を延期 新型コロナウイルス感染確認](https://www3.nhk.or.jp/news/html/20220408/k10013572491000.html)
 
-- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
-- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
-- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
-- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
-- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

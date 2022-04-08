@@ -2,41 +2,37 @@
 ---
 
 
-## 美国新任大使肯尼迪就所罗门群岛问题发出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2308775/)
+## 国际｜欧盟确定实施煤炭进口禁令 首次对俄能源进行制裁
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2309165/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-4.png)▎聚焦國際熱點、傳播關鍵真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+欧盟执委会6日提议将禁止进口俄罗斯煤炭纳入新一轮制裁清单，会议结果出炉，欧盟成员同意将煤炭进口禁令纳入对俄罗斯的新一轮制裁，制裁决议将经欧盟官方公布后生效。欧盟对俄罗斯实施煤炭进口禁运，同美国禁止进口俄能源，旨在对普京施加经济压力。
 
-翻译/编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-820.png)图片来源：ABCNews & 雅典娜设计组
-华盛顿消息，美国下一任驻澳大使卡罗琳·肯尼迪说，今年晚些时候上任后她将致力于对中国在印太地区的胁迫行为采取更有力的立场。
+欧盟执委会宣布自**8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口**；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
 
-2013年，在肯尼迪女士担任驻日大使仅一周，她曾就中国在中国东南海域的军事行动发出了严厉警告。这次她表示，美澳应在太平洋岛屿上进行更多的合作。
+欧洲统计局数据显示欧盟仰赖俄罗斯能源，2020年自俄罗斯进口了19.3%煤炭、36.5%石油、41.1%天然气。本次煤炭进口禁令，是欧盟首次对俄罗斯能源实施制裁，预计价值高达每年40亿欧元（44亿美元）。同时，欧盟已着手制定对石油等其他能源的制裁措施。
 
-在美国东部时间星期五，肯尼迪女士在美国参议院举行的提名听证会上发表了上述言论。
+欧盟决议将对俄罗斯实施制裁如下：（由欧盟官方公布后生效）
 
-肯尼迪女士说，对所罗门群岛事情需要作出更迅捷的反应，该国政府已证实它即将北京签署安全协议。协议的确认证实了澳洲安全机构对中共国在该地区野心的担忧。
+- 对俄罗斯宣传、国安、军事机构人员、侵略乌克兰有关的工业技术部门进行实体制裁
+- 冻结数家俄罗斯银行资产
+- 禁止向俄罗斯出口价值高达100亿欧元的高科技产品
+- 欧盟将对悬挂俄罗斯国籍的船只关闭港口
+- 对俄罗斯实施武器禁运
+- 禁止俄罗斯煤炭进口、禁运
+- 禁止从俄罗斯进口，价值高达55亿欧元的原料和关键原料
+- 对俄罗斯及白俄罗斯公路运输制裁
 
-澳洲最高情报主管本周前往霍尼亚拉与索加瓦雷进行会谈，但未能说服他放弃这项交易，官员们认为这可能为最终建立中国海军基地铺平道路，该基地距离澳大利亚不到2000公里。
 
-共和党参议员克鲁兹和罗姆尼向肯尼迪女士追问，她将对中国采取多么严厉的措施，以及拜登政府对此的应对战略。
+欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）推特表示，俄乌战争持续，俄国在金融、经济、科技方面将长期受到孤立。
 
-肯尼迪说：“我们将通过伙伴关系和联盟，在整个地区进行多边合作，真正建立一个全面的战略，以加强威慑力和提高我们自己的安全，**我期待着与澳大利亚和日本合作，以确保一个自由和开放的印度****–****太平洋**。”
+来源｜[euronews](https://www.euronews.com/my-europe/2022/04/07/eu-countries-agree-on-new-russia-sanctions-including-coal-embargo)、[AP](https://apnews.com/article/russia-ukraine-kyiv-business-european-union-europe-9a1062991e5e1f463c31e4cf518b2c3f)、[Présidence française du Conseil de l’UE’s twitter](https://twitter.com/Europe2022FR)
 
-她说：“**在一个自由主义国际秩序被破坏的世界里，美国的价值观比以往任何时候都更加重要，没有哪个国家比我们的亲密盟友和五眼联盟伙伴澳大利亚更致力于这些价值观**。”
+* * *
 
-新闻链接：
-
-1、[Caroline Kennedy would be ‘right pick’ as US ambassador to Australia (afr.com)](https://www.afr.com/world/north-america/caroline-kennedy-would-be-right-pick-as-us-ambassador-to-australia-20210726-p58cv6)
-
-2、[New US ambassador Kennedy warns on Solomon Islands (afr.com)](https://www.afr.com/world/north-america/new-us-ambassador-kennedy-warns-on-solomon-islands-20220407-p5abhk)
-发布：tianzhihuan
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

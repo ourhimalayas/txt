@@ -2,41 +2,32 @@
 ---
 
 
-## 澳总理将为在阿德莱德建造AUKUS核潜艇敞开大门
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2310151/)
+## 您可以通过检举揭发帮助欧盟制裁中共
+` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2310226/)
 
-#### 【雅典娜快讯】，紧贴时代脉搏
+编译：波士顿五月花—-思澈
 
-整理：li yan li
-编辑：李易通
+中共媒体和公司支持支援俄罗斯的行为属于违反制裁涉及到的个人，公司和第三国
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-841.png)图片来源：雅典娜设计组
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1752A305-D46D-4F57-8B7C-438D2FC68C54.jpeg)
+
+分享有关违反欧盟制裁的信息，有助于欧盟成员国正在进行的调查取得成功，并提高欧盟制裁的有效性。
+
+如果你知道可能违反了任何欧盟制裁，你可以通过自愿提供信息来提请委员会注意。这些信息可以涉及，例如，**有关违反制裁的事实，其情况和涉及的个人、公司和第三国。这些可以是不为公众所知但为你所知的事实，可以涵盖过去、正在进行或计划进行的违反制裁行为，以及试图规避欧盟制裁的行为。**
+
+你可以通过两种方式报告违反制裁行为。
+
+💥直接联系我们：如果你站出来，提供你的姓名和联系方式，就能给我们带来最大的帮助，因为这将使你的陈述更加可信，使我们更有可能采取行动。
+要通过这种方式报告违反制裁的行为，你可以简单地发送一封电子邮件到 **[\[email protected\]](/cdn-cgi/l/email-protection#cfbdaaa3aab7e2bcaea1acbba6a0a1bc8faaace1aababda0bfaee1aaba)**
+💥保持匿名：如果你不想透露你的身份，你可以通过欧盟制裁举报工具向我们发送匿名信息，这是一个高度安全的在线平台。管理该工具的欧盟委员会完全致力于保护你的匿名性。
+
+要访问该工具，了解你的匿名性如何得到保护，并报告违反制裁的情况，出于安全考虑，请在浏览器中复制粘贴或手动重新输入以下网址：**[https://EUsanctions.integrityline.com](https://eusanctions.integrityline.com/)**
+
+素材来源：[https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions\_en#whistleblower](https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions_en#whistleblower)
+
+*发布：思澈*
 
 
-据澳大利亚人报报道，斯科特·莫里森将为澳大利亚价值1000多亿的核潜艇在海外建造敞开大门，他说“最重要的目标”不是在阿德莱德建造它们，而是“确保我们能够尽快获得这种能力”。
-
-在去年9月与美国总统乔·拜登和英国首相鲍里斯·约翰逊联合宣布AUKUS澳英美伙伴关系时，总理宣布“我们打算在阿德莱德建造这些潜艇”。
-
-但他在周二拒绝保证除了核反应堆以外这些潜艇将在阿德莱德建造。根据AUKUS协议，美国和英国已承诺帮助澳大利亚建造8艘设计未定的核动力潜艇。
-
-这些潜艇将在阿德莱德建造的消息受到了南澳的欢迎，认为这是对其国防工业的重要推动。
-
-许多评论家呼吁，最初的潜艇应在海外建造，以快速提高其能力。如果所有的潜艇都在澳大利亚建造，可能无法满足国家的战略需求。
-
-在本周的一份联合声明中，莫里森、拜登和约翰逊说，三边的AUKUS伙伴关系将会扩大，其重点包括“先进的高超音速和反高超音速能力”。
-
-David Johnston海军中将周二告诉参议院的评估委员会，中国有“一系列高超音速武器”。
-
-高超音速武器以五倍于音速的速度飞行，并发射常规或核载荷。中国和俄罗斯都成功展示过高超音速武器。克里姆林宫声称它在入侵乌克兰期间使用了这一种武器。
-
-参考链接：[总理为在海外建造AUKUS核潜艇敞开大门](https://cn.theaustralian.com.au/2022/04/07/65471/)
-
-发布：tianzhihuan
-
-更多资讯，请关注：**
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 
  
 
