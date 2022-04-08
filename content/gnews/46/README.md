@@ -2,31 +2,25 @@
 ---
 
 
-## 樱花时政┃国际霸权竞争核心 日本产量子计算机年内首登场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2304671/)
+## 俄乌战争｜美参议院一致通过援乌“租借法案” 协防同盟民主
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2304749/)
 
-撰稿：东京樱花团/haruka春香
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-岸田内阁4月6日公布了以招牌政策“新资本主义”作为增长战略核心的有关量子技术新国家战略原案。内容包括，今年内出台“国产量子计算机”第一号机组，并在东北大学等国内4所大学认定量子技术研究、支援据点。他还提出了到2030年量子技术使用者达到1000万人的数值目标。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-50.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcn.nikkei.com%2Fimages%2F2021%2F07%2F0727%2F0727-09-1-L.jpg&amp;imgrefurl=https%3A%2F%2Fcn.nikkei.com%2Findustry%2Fitelectric-appliance%2F45529-2021-07-27-13-43-40.html&amp;tbnid=RIWhPmFSSBzN9M&amp;vet=12ahUKEwj3n5DSkIL3AhU9gc4BHYe_AvUQMygBegUIARClAQ..i&amp;docid=1HvDmlusz_2CsM&amp;w=600&amp;h=375&amp;q=%E6%97%A5%E6%9C%AC%E9%87%8F%E5%AD%90%E8%AE%A1%E7%AE%97%E6%9C%BA&amp;ved=2ahUKEwj3n5DSkIL3AhU9gc4BHYe_AvUQMygBegUIARClAQ)
-多名政府相关人士透露了此事。预定于本月内召开“综合创新战略推进会议”（议长松野官房长官）量子技术是利用极其微小的世界物理法则（量子力学）进行通信、计算、测定等的技术，有望应用于与现有超级计算机具有数位差计算能力的“量子计算机”和不会被窃听的密码通信。在新的战略“量子未来社会展望”（暂称）中，将量子技术规定为“未来国家间霸权竞争的核心技术”。他强调了经济安保的重要性，呼吁说：“要在本国拥有先进的量子技术，持续培养和确保稳定的人才。”
+**港台前线 zhong｜2022-4-7**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-7.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国参议院6日“一致性”通过了“2022年乌克兰民主防卫租借法案”（The Ukraine Democracy Defense Lend-Lease Act of 2022），旨在简化程序、降低官僚主义影响，加快向乌克兰提供关键军援、补给，协助抵御普京无端的袭击。
 
-具体来讲，除了在东北大学建立培养产业人才的据点外，还将在冲绳科学技术大学院大学、产业技术综合研究所、量子科学技术研究开发机构设立研究及支援据点。利用政府基金，创出新产业和培养新兴企业。到2030年，国内将有1000万人利用量子技术，把量子技术的生产额提高到50万亿日元。未来将在金融、医疗、运输、航空等整个社会经济体系中引进量子技术，以提高生产效率和安全性为目标。
+参议院多数党领袖查克．舒默（Chuck Schumer ）于会议称，在布查镇的屠杀是“纯粹的邪恶、俄军在乌克兰进行种族灭绝”。此外，他明确表示普京杀害无辜的平民是种族灭绝罪行。
 
-政府还制定了有关人工智能（AI）的国家战略原案。该报告书明确指出，将在虚拟空间构筑再现现实世界、可以进行多种假设实验的“数码双子座”，并利用在假设首都正下方地震、南海特拉夫地震、新型冠状病毒等的受害预测上。其中还包含了期待在武力攻击事态等非常时期用于保护国民的内容。
+美国参议院“一致性”通过租借法案的意义非凡，但仍须经过众议院决议通过后，总统签署、发布后生效。
 
-信息来源：
+4月1日外媒采访德克萨斯州参议员约翰·科宁（John Cornyn），他大力推动“2022年乌克兰民主防卫租借法案”。他向媒体表示：“乌克兰军队证明了抗俄的勇气，努力得到国会两党的广泛支持，美国国会已批准大量对乌的军援，配合『租借法案』将减少程序障碍，确保及时向乌克兰运送武器、物资及其他必需品”。
 
-[国産量子コンピューター、初号機を今年度中に…「国際覇権争いの中核」と位置づけ（読売新聞オンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/4cba9c0dc723c0fb2350d87e009e30e2ebaa70ee)
+来源｜[POLITICO](https://www.politico.com/news/2022/04/06/senate-unanimously-approves-lend-lease-00023668)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+* * *
+
+▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

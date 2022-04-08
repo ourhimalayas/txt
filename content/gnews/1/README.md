@@ -2,123 +2,53 @@
 ---
 
 
-## 大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306356/)
+## 谈古论今 | 上海防疫不是防疫是对内超限战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306465/)
 
-这才是真正的中国人的悲哀
-Esto es realmente la tristeza de los verdaderos chinos
+撰稿：东京樱花团/谈古论今
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+上海正在上演“愚人节的狂欢剧”，一幕幕疯狂的、混乱的统治者没有人性的剧情；一帧帧无奈的、绝望的、发狂的草根市民的特写镜头，让天下人目瞪口呆，让活在温柔乡里无比惬意自豪的上海小资们顿感生无所恋——如此中国特色的封城灭疫，再次刷新了见怪不怪的我们对当今圣上的判断——知道他疯癫，知道他毁了香港有多疯癫，但是他竟然调转枪口要毁掉上海的超级疯癫，恐怕没有人能想到他会如此疯癫，你能有如此无底限的想象力那你也是疯癫！
 
-就是你根本不知道真假善恶之分
-Simplemente no sabes diferenciar entre el verdadero y lo falso, el bien y el mal
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海防疫不是防疫是对内超限战.png)
 
-那么海外欺民贼能到今天
-Entonces, los engañadores en el extranjero pueden sobrevivir hasta el sol de hoy
+不过，有条哲学定律，“存在即合理”，就是说凡是存在的、发生了的事情，绝不是无理由的、偶然的，肯定有它的合理性。佛法讲因果关系，凡事必有因，有因必有果·。天下任何事情，你第一眼看到的都是表面现象，表与里是相辅相成的，只看到表面现象看不到事物的深处、本质，那就是一般人、凡人、俗人。你能透过现象看本质，你就不是一般人，而是二般人三般人。事物看得越深刻、越能看到的本质你的层次就越高。发生在武汉、西安、上海、吉林的“愚人节狂欢剧”，表面上看是愚蠢的统治者在疯狂地灭疫，你要是这样看这样去批评统治者，提出你很聪明的建议如何改善防疫的做法，那你就是个凡夫、愚不可及的凡夫。因为，你根本就不知道统治者为什么要这么愚蠢疯狂，你以为他仅仅是智商不如你，那，你就大错特错了。
 
-就是(因为)没有真假善恶之分
-Es (porque) no hay distinción entre el bien y el mal
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海防疫不是防疫是对内超限战2.png)
 
-有这么多无知的中国海外同胞
-Existen tantos compatriotas chinos ignorantes en el extranjero
+你应该多问几个为什么？只要你能提出问题，再能用合理的逻辑解析问题，你就能透过表面现象接近真相。例如：
 
-和中国同胞真有良知的人
-Y compatriotas chinos con conciencia
+（1）新冠病毒到底是哪里来的？为什么全世界的政府都不敢也不想澄清新冠病毒来源的真相？并且，稍有提及要溯源新冠病毒来源，中共马上就气急败坏？而且，中共一发飙，各国政府就立马噤若寒蝉？
 
-但是他却没有信仰
-Pero no tiene creencia
+（2）退一步讲，若干种廉价有效的老药，都是临床使用了几十年，安全性得到了充分验证了的老药，本来就可以低成本地治愈新冠病毒，能高效治愈当然就会有效地遏制扑灭新冠病毒，可全世界各国的政府出奇地步调一致，坚决不让使用这些老药？
 
-真的想灭共的人
-Gente que realmente quieren destruir al PCCh
+（3）青蒿素衍生物就是新冠病毒的最佳克星，中国对于青蒿素的药理到临床应用诸多病症的研究长达三十多年，全世界有关青蒿素药物研究的论文，数量上70%都是中国人写的（论文质量高低、是否有抄袭的嫌疑，另当别论），为什么在中国不推广使用青蒿素用于各种疾病的治疗（明明廉价又高效）？为什么至今中共死活不用青蒿素抗疫？
 
-他却没有任何辨别真假的能力
-Pero no tiene ninguna habilidad para distinguir entre verdadero y falso
+（4）为什么全世界的政府，尤其是中共，白不提黑不提，一意孤行逼迫全民打疫苗，而中共的统治者和他们的亲属却不打疫苗？
 
-被他们利用几十年
-Fueron utilizados por ellos durante décadas
+（5）核酸检测明明准确率低下，并且，用检测核酸的棉签投毒的犯罪行为已经败露，却压下不提，还是没完没了的史诗级别的做全民核酸？
 
-我再告诉大家
-Les diré de nuevo
+（6）无论方舱还是大规模核酸检测都是违反防疫法的和防疫常识的，结果只有一个：为造成集中感染扩大传播！你以为统治者是脑残低智商所为吗？
 
-你们从来没有想过亨利小哥
-Ustedes nunca pensaron, Hengli Xiaoge
+这一切，你只有起码的智商都能明白：
 
-在过去几十年被这些人害的人
-Personas que fueron asesinadas por estas personas en las últimas décadas
+（1）新冠病毒不是源于自然，是人造的生物武器。
 
-你们知道有多少人吗
-Ustedes saben ¿cuántas personas hay?
+（2）新冠病毒的全球流行，自然传播不是主要途径，必有其他途径。
 
-谁能告诉我一个数字
-Alguien me puede decir una cifra
+（3）强制打疫苗、做核酸不是依据防疫科学常识，而是人为设计的故意。
 
-被他们给骗回去的
-Los que fueron engañados por ellos
+（4）发生在中国各地的疫情全民封控，规模是史诗级别的，手段是极端的——网络舆情监控、天上有智能无人机、地上有脑残大白，无所不用其极，这哪里是常规防疫所应采取的手段？明明是以防止暴民蜂起的控制镇压军事演习。不用军人少用军人也能达到军事目的也是战争，是超限战。战争，不仅仅是对外才叫战争，镇压被自己统治的臣民也是战争，而且是更重要的战争。政权更迭的原因内斗多余外斗，历来如此！多年来，中国的维稳（对内镇压）预算远高于军事预算，不就是证明吗？这种对内的高压统治手段和理念，中共创下了历史新高——古今中外盖莫有能出其右者！无论上海防疫闹剧的政治背景是否传说的习江斗，在防民甚于防敌的理念上是中共统治阶级的共识，无论统治阶级哪一派掌权都要变本加厉地实施对内超限战。智者，切勿天真！
 
-被他们给抓起来, 被他们给伤害的
-Arrestados, heridos por ellos
+![](https://assets.gnews.org/wp-content/uploads/2022/04/上海防疫不是防疫是对内超限战3.png)
 
-被他们给骗了上床的
-Engañados a la cama por ellos
-
-骗走钱的有多少个
-Y cuántos fueron estafados
-
-就像草根小哥
-Así como Caogen Xiaoge
-
-给路大脑袋傻捐, 捐了几百次
-Donó estúpidamente a Lude cientos de veces
-
-最后是路大脑袋说你活该
-Finalmente, Lude dijo que te lo mereces
-
-我让你捐了吗
-¿Acaso te dije que donaras?
-
-然后你再看这个王书君
-Luego ves a este Wang Shujun
-
-你们知道这个王书君这个人
-Ustedes saben que este hombre Wang Shujun
-
-害了多少人吗?
-¿Le hizo daño a cuántas personas?
-
-他最起码接触华人几百个人的信息
-Al menos tiene acceso de información de cientos de chinos
-
-让他给传输给共产党了
-Que lo transmitía al PCCh
-
-很多华人找他所谓作政庇
-Muchos chinos lo buscaron por un supuesto asilo político
-
-多少人已经被弄回去了
-Cuantas personas han sido llevadas de regreso
-
-你能查出来吗
-¿Logras averiguarlo?
-
-**原视频网址**：[https://gettr.com/post/p128wet3a28](https://gettr.com/post/p128wet3a28)
-
-日期：04/06/2022
-原视频标题：因为大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
-Debido a que la mayoría de los chinos son ignorantes y no tienen creencias, tampoco la capacidad de discernir lo verdadero y lo falso, el bien y el mal, son engañados por los ladrones de pseudo-democracia en el extranjero
-
-原视频日期：03/28/2021
-原视频网址：https://gettr.com/post/p128wet3a28
-任务编号：KC487(4114)
-视频时间段：0:00-1:30
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场-天涯行
-审片：洛杉矶盘古农场-银龙
-发布：洛杉矶盘古农场 – 彩虹 Rainbow
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

@@ -2,26 +2,26 @@
 ---
 
 
-## 乌克兰将效法以色列全民皆兵
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305354/)
+## 美财政部长将就加密市场监管及政策发表演讲
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305631/)
 
-作者：纽约香草山教育部 Naughty(文行)
+作者：Noemi
 
-当地时间4月5日，据以色列媒体报道，乌克兰总统泽连斯基当天指出，在国家安全方面，遭遇了俄罗斯侵略之后的乌克兰将效法以色列，实行全民皆兵政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-16.jpg)
-泽连斯基表示，安全问题已经成为乌克兰在未来十年中必须面对的首要任务。因此，他已经同西方各国的领导人多次讨论过相关规划，且很多乌克兰的盟友都表达了参与的意愿。这其总，泽连斯基希望多国以小集团的形式分别向乌克兰提供国家安全援助。
+4月6日，据相关媒体消息显示，美国财政部长珍妮特-耶伦将于本月7日就加密市场的监管及政策发表首次演讲。
 
-泽连斯基也承认，乌克兰今后肯定不会像预期的那样绝对自由和欧洲化，但其也绝对不会变成一个专制国家。相较而言，乌克兰将更偏向成为一个“大以色列”：在强敌环伺的情况下，乌克兰必须保留规模更大的武装部队，用以对抗两个邻国。为此，乌克兰的各个场所今后都会有荷枪实弹的国家武装部队。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-2.jpeg)
 
-报道还提到，泽连斯基近日在乌克兰犹太人社团举办的年度基辅犹太论坛上发表演说称，乌克兰人和犹太人都珍视自由，且双方都致力于使国家未来成为自己喜爱的样子，而不是别人要求的样子。
+据悉，耶伦将在演讲中概述财政部为调查数字资产的使用和技术可以采取的可能步骤。此外，联邦政府还将为加密货币市场建立一个“全面的政策框架”。早先，美国总统拜登也签署了一项行政命令，当中指示联邦机构加速研究加密货币的风险和收益。
 
-参考链接：[排除烏克蘭非軍事化 澤倫斯基：師法以色列全民皆兵](https://www.cna.com.tw/news/aopl/202204060015.aspx)
+对此，郭文贵先生曾在直播中爆料称，美国将会在2022年年底前为加密货币的监管出台一整套完整的法律体系，以此促使加密货币市场完全合法化。而随着该系列法律、法规的出台，喜币则有望成为加密货币市场中最具价值的行业标杆。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-1.jpg)
+参考链接：[Treasury Secretary Janet Yellen will deliver her first speech on crypto and call for a ‘comprehensive policy framework’](https://markets.businessinsider.com/news/currencies/janet-yellen-treasury-speech-crypto-regulation-digital-asset-tokens-policy-2022-4)
 
-总编/编辑：Irene木木
-审核：飞虹
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
+
+总编/审核：Irene木木
+编辑：宁文静
+校正/发稿：谐趣园
 
  
 

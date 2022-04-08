@@ -2,71 +2,116 @@
 ---
 
 
-## 斯里兰卡即财政部长呼吁重组10亿美元债务以维持稳定
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305681/)
+## 十五名&#8221;完全接种疫苗&#8221;的网球运动员无法完成迈阿密公开赛
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/2305892/)
 
-翻译: 里奇
+**撰稿参与人：16626，沉默老歌，88JJ**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/FF7B0095-5318-4429-9093-38DB9D1A84C0.png)**屏幕截图：**[**https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html**](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)
+网球界的反应令人震惊，因为两位最受欢迎的选手宝拉·巴多萨Paula Badosa和扬尼克·辛纳JannikSinner在白天的比赛中从迈阿密公开赛四分之一决赛中退出。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-12.jpg)
+**总共有****15****人****次退出****或终身退役**
 
-路透科伦坡 4 月 7 日 – 即将离任的财政部长周四对议会表示，斯里兰卡必须考虑重组 7 月到期的 10 亿美元主权债务，并敦促在该国遭遇几十年来最严重的经济危机之时停止呼吁更换政府。
+在迈阿密公开赛期间，总共有15人次退出或终身退役，也就是说，十五名”完全接种疫苗”的网球运动员无法完成迈阿密公开赛。
 
-总统戈塔巴亚·拉贾帕克萨在解散内阁后呼吁政府团结，以期平息因燃料、电力、食品和药品短缺而引发的长达数周的街头抗议，而反对派和执政联盟的一些合作伙伴本周拒绝了总统的呼吁。
+**参赛者必须完全接种疫苗**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/65TRIHJHTVKFRI5TV5AGNCWN6M-1.jpg)图片来源：路透社
+网球公开赛要求参赛者必须完全接种疫苗，消息称，所有退出的参赛者都接受了疫苗注射。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3587DD6A-52C3-4510-A4ED-496B7DFC4C7D.jpeg)**屏幕截图：**[**https://www.thestandardsc.org/michael-reed/fifteen-fully-vaccinated-tennis-players-unable-to-finish-miami-open/**](https://www.thestandardsc.org/michael-reed/fifteen-fully-vaccinated-tennis-players-unable-to-finish-miami-open/)
+据雅虎体育报道称：
 
-分析人士称，随着其外汇储备迅速缩减、大量债务到期以及卢比贬值，政府已经别无选择。
+网球明星西班牙人宝拉·巴多萨Paula Badosa和意大利人扬尼克·辛纳Jannik Sinner都在迈阿密公开赛的四分之一决赛中以令人惊叹的气氛下退出。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/D7D0B7F1-E121-461C-97EF-7856D66131E2.png)**屏幕截图：**[**https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html**](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)**  ，网球明星西班牙人Paula Badosa（右图）和意大利人Jannik Sinner（左图）都在迈阿密公开赛的四分之一决赛中以令人惊叹的气氛下退役。（盖蒂Getty图片）   **
+**即将成为世界第三的巴多萨Badosa**
 
-阿里·萨布里周一从司法部调到财政部，第二天他向拉贾帕克萨递交辞呈并表示，“我们必须研究如何安排 7 月到期的 10 亿美元国际主权债券支付。除了只能寻求国际货币基金组织帮助，我看不到其他解决方案。”
+即将成为世界第三的巴多萨Badosa在与美国选手杰西卡-佩古拉Jessica Pegula的比赛中感觉不适，被迫退出四分之一决赛 ，退出时，她泪流满面。
 
-目前尚不清楚总统是否接受了他的辞职，该辞呈是在与国际货币基金组织就紧急贷款进行预定谈判前几天提交的。
+周一，巴多萨Badosa承认她不确定是否能参加她随后赢得的第四轮比赛。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/E323D066-7CF9-46AD-ABAD-D30844F032E3.png)**屏幕截图：**[**https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html**](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)** ，即将成为世界第三的巴多萨Badosa在与美国选手杰西卡-佩古拉Jessica Pegula的比赛中感觉不适，被迫退出四分之一决赛。退出时，她泪流满面**
+**意大利名将辛纳Sinner**
 
-“我们必须有政治稳定才能找到解决金融危机的办法” 萨布里说。
+在男单方面，意大利名将辛纳Sinner在对阵世界排名第103位的弗朗西斯科-塞伦多罗Francisco Cerundolo.时也被迫退赛。
 
-“我们必须与世界银行商讨并与亚行制定过渡性融资计划。如果我们没有稳定政府，谁来进行这些谈判？” 他指的是总部位于菲律宾的亚洲开发银行。
+在迈阿密公开赛期间，总共有十五人次退出或终身退役。
 
-然而，反对党议员继续呼吁总统下台。
+**拉斐尔·纳达尔（****Rafael Nadal****）**
 
-批评者指责政府管理不善，但由于 COVID-19 大流行，经济变得枯竭和旅游业急剧下挫。
+另外，据报道拉斐尔·纳达尔（Rafael Nadal）最近在胸痛后在棕榈沙漠输掉了比赛。
 
-国际货币基金组织的帮助也可能伴随着一些艰难的政治选择——政策改革可能会在短期内增加痛苦，以期让经济在几年内恢复至更稳固的基础。
+其他运动员最近也有不寻常的健康问题，包括三名职业自行车手，其中两人因心脏病死亡；一名23岁的罗马尼亚水球运动员在比赛中也因胸痛而死亡。
 
-摩根大通分析师本周估计，斯里兰卡今年的偿债总额将达到 70 亿美元，经常账户赤字约为 30 亿美元。截至2月，该国只有23.1亿美元的储备。
+**整个网球界感到震惊**
 
-路透社周三报道称，随着市场为潜在的债务重组做准备，资产管理公司贝莱德和安石集团(Ashmore Group Plc) 是斯里兰卡国际债券的最大持有者，这些债券是债权人集团的一部分——这将是这个岛国的第一次。
+整个网球界对多名”完全接种疫苗”的网球运动员无法完成迈阿密公开赛 而感到震惊。
 
-货币政策
+球迷们目睹了在硬石体育场（Hard Rock Stadium，是位于美国佛罗里达州迈阿密花园的多用途运动场，[https://zh.wikipedia.org/wiki/%E7%A1%AC%E7%9F%B3%E4%BD%93%E8%82%B2%E5%9C%BA](https://zh.wikipedia.org/wiki/%E7%A1%AC%E7%9F%B3%E4%BD%93%E8%82%B2%E5%9C%BA) ）的比赛中多名”完全接种疫苗”的网球运动员无法完成 比赛。
 
-寻找萨布里接任者的工作继续进行之时，新的央行行长将于周四接替周一辞职的阿吉斯·尼瓦德·卡布拉尔 (Ajith Nivard Cabraal)。
+**最令人震惊的时刻**
 
-曾与IMF合作的斯里兰卡中央银行前高级副行长南达拉尔·维拉幸哈(P. Nandalal Weerasinghe)将于周五召开货币政策会议。会议原定在星期一举行。
+意大利选手Jannik Sinner和西班牙人Paula Badosa在同一天从四分之一决赛中退出，成为赛事中最令人震惊的时刻。
 
-一位分析师表示，预计央行将在 3 月初上调 100 个基点之后，将主要利率随后上调 300-400 个基点 (bps)，以抑制 3 月份达到 18.7% 的通胀率。
+**评论：**
 
+**统计学的相关规律**
 
-```
-亚洲证券的拉克希尼·费尔南多表示：“我们期望新任命的行长将拟定将纳入国际货币基金组织改革计划的潜在措施、对潜在债务重组和货币管理的看法”。她进一步补充说，她还希望维拉辛哈能够解决银行对“更高稳定性和透明度的需求”。
-```
+最近以来 ，由于身体健康的原因 ，心脏的原因等等，运动员（身体健壮的运动员） 接连不断的退出比赛 ，或者无法完成比赛，这是一个非常不正常的现象。  在打疫苗之前 ，在大病毒爆发之前 ，这种状况是很少见的。从统计学的相关规律上看出 ，随着打疫苗人数的增加 ，打疫苗次数的增加，人们的身体健康状况，特别是运动员的身体健康状况却在下降，这里的相关关系和因果关系是不言而喻的。
 
+**主流媒体不敢正视这个因果关系**
 
+然而 ，主流媒体却不敢面对这个事实，不敢正视这个因果关系。一方面报道有运动员因为身体健康状况原因退出比赛，甚至终身不能参加比赛 ，甚至得病死亡，甚至是猝死。另一方面又在报道所有的参加比赛的运动员都接种了疫苗，而且是完全的接种疫苗。意思是说，不可能再次感染病毒，或者是对病毒有了抵抗能力，不会在病毒大流行期间染病造成身体健康状况下降。媒体总是害怕把这两个方面的事情联系在一起报导，至少把这两个方面的事情的关系分析一下。
 
-```
-在这个拥有 2200 万人口的国家，针对食物、燃料和其他必需品短缺的抗议活动有增无减。用于支付进口物质的费用所剩无几。
-```
+**媒体遮盖不住疫苗灾难**
 
+上面这一篇报道，总算把接种疫苗和运动员退出比赛生硬地扯到了一起，并作为标题报道出去。但在报道的文章中 ，却丝毫没有提出或给出分析，接种疫苗和退出比赛是什么关系？可以看出，这些被邪恶势力控制的媒体已经开始遮盖不住疫苗灾难的发生这个事实了。
 
-斯里兰卡卢比兑美元在一个月内贬值 40%，这使问题更加复杂。
+**相信政府，****舆论****导向****的结果**
 
-今年下跌了三分之一的股市周四大跌了约 4%。
+由于参赛运动员完全相信了政府，再加上舆论 的导向和宣传的结果，让这些热爱体育运动的参赛运动员相信打完疫苗之后才能够参加这次运动会。而随着这个疫苗的副 作用增加之后，会有更多的运动员临场退出的现象发生。因为参赛运动员是在赛场上能够受到众人瞩目，所以他们的一举一动，身体状况，都会受到大家的重视 。而伴随着这个疫苗的副 作用产生的病状和病情在他们身体的表现，也能够代表我们很多普通人将会产生同样的副作用。
 
-新闻来源：[https://www.reuters.com/world/asia-pacific/sri-lanka-cenbank-chief-take-office-no-takers-finmin-job-sources-2022-04-07/](https://www.reuters.com/world/asia-pacific/sri-lanka-cenbank-chief-take-office-no-takers-finmin-job-sources-2022-04-07/)
+**疫****苗灾害****，****已经开始的迹象**
 
-审核：文乐
-校对：阿伯塔
-发布：小东
+在迈阿密公开赛期间，十五人退出或终身退役这个现象已经开始验证了郭文贵先生的预言。随着五月份的临近，所有的疫苗灾难你都会显示出来，而且会越来越重，越来越普遍。在聚光灯下所能看到现象显示了疫苗灾害已经开始的迹象。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+文贵先生和在他领导下的新中国联邦是最早说出疫苗灾害，还有病毒真相的。随着疫苗灾害的逐步显现和发生，一定会让更多的人清醒和觉醒，进而有更多的人会加入新中国联邦。
 
+**接种疫苗导致死亡人数，超出我们的想象**
+
+讲到运动员因为身体原因而退出比赛的事件屡见不鲜，而因为接种假疫苗导致猝死的知名运动员也数以百计，全世界因为接种疫苗死亡的人数更是难以估量。自从中共武汉冠状病毒爆发以来以及接种疫苗之后而导致的死亡人数，毫不夸张的说完全超出了我们的想象。
+
+**拿到武汉病****毒原始****毒株****，****停止疫苗的接种**
+
+如何预防和消除这样人类面临的巨大灾难？答案只有一个，病毒溯源，找到病毒真相，拿到武汉冠状病毒最原始的毒株；停止目前假疫苗的接种，停止接种假疫苗再次对人类造成伤害。
+
+**中共，****地球上一切灾难的根源**
+
+而解决这一切问题都必须首先解决中共极权统治的问题。中共极权统治的问题解决了，病毒和假疫苗的灾难才能得到根本性的解决，全世界许多灾难才能得到解决，因为中共是地球上一切灾难的根源。
+
+**声明：**
+
+由于语言和文化背景的不同，本文（或本视频）中对原文（或原视频）的翻译不能也不可能保证完全表达原文（或原视频）的内容。读者（或观众）要想了解确切的信息请参考下面链接指向的原文（或原视频）。
+
+本文（或本视频）内容仅代表作者的观点，与发布本文（或本视频）任何媒体平台无关。
+
+**参考资料**：
+
+1. [FIFTEEN “Fully Vaccinated” Tennis Players Unable to Finish Miami Open](https://www.thestandardsc.org/michael-reed/fifteen-fully-vaccinated-tennis-players-unable-to-finish-miami-open/)
+
+2. [Miami Open Carnage: 15 Fully Vaxxed Tennis Players Unable to Finish Contests.](https://needtoknow.news/2022/04/miami-open-carnage-15-fully-vaxxed-tennis-players-unable-to-finish-contests)
+
+3.[硬石体育场](https://zh.wikipedia.org/wiki/%E7%A1%AC%E7%9F%B3%E4%BD%93%E8%82%B2%E5%9C%BA)
+
+4. [https://fr.wikipedia.org/wiki/Rafael\_Nadal](https://fr.wikipedia.org/wiki/Rafael_Nadal)
+
+5. [‘What’s going on’: Tennis world stunned after Miami Open carnage](https://au.sports.yahoo.com/tennis-2022-viewers-shocked-bizarre-miami-open-carnage-004007552.html)
+
+**编辑：LILY**
+
+**发布：歪桑**
+
+20220407
+
+更多资讯请关注：
+[温哥华圆成农场官方盖特](https://www.gettr.com/user/himalayavang)｜[温哥华圆成农场Discord服务器](https://discord.gg/8RMGcwT8)
+![](https://assets.gnews.org/wp-content/uploads/2022/02/7BAA90CE-1304-499E-A3D7-9A19DF00079C.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
