@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 10:29 AM (UTC)`
+
+【Ukraine Rescue】 04/05/2022 Nicole introduces to Czech radio reporter Estelle that the Chinese tent in Medyka is not from Communist China, but from the NFSC, which is committed to eradicating the CCP; in addition to this humanitarian rescue operation, we are trying to break the CCP's censorship and provide truthful information to people in China who have been severely brainwashed by the CCP's propaganda, freeing them from the fear of CCP coercion.<br/><br/>【乌克兰救援】 04/05/2022 妮可向捷克电台的记者艾斯黛介绍梅迪卡的中国帐篷并非来自共产主义中国，而是来自于致力于铲除中共的新中国联邦；除了此次人道主义救援行动外，我们还试图打破中共的审查制度，向中国境内被中共宣传严重洗脑的人们提供真实的信息，把人们从中共胁迫的恐惧中解放出来。<br/>
+![img](https://media.gettr.com/group31/getter/2022/04/08/10/e6d069c9-12c2-0d97-7312-59d2d4a1ae17/out.jpg)
+
+---
+
 `@miles 4/8/2022 4:58 AM (UTC)`
 
 新中国联邦法治基金乌克兰人道救援行动--最新战况播报
@@ -148,13 +155,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 4月7号：尊敬的战友们好．骄傲的上海人．成功的上海人．确实与众不同的上海人．一夜之间成了被伤害的最严重的人，现在的上海人．人格尊严．连狗不如。这都是为什么呢？
 ![img](https://media.gettr.com/group47/getter/2022/04/07/13/3b893131-0485-78c5-8677-769cf4753f1d/out.jpg)
-
----
-
-`@miles 4/7/2022 12:58 PM (UTC)`
-
-2022.04.07早《新中国联邦新闻访谈》
-![img](https://media.gettr.com/group22/origin/2022/04/07/12/a240e5cf-cebe-6f31-d2be-c7c23020b539/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

@@ -2,45 +2,43 @@
 ---
 
 
-## 由于俄罗斯调整火力乌克兰东部平民撤离受阻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2309306/)
+## 欧盟主席乘火车前往基辅
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2309399/)
 
-来自新加坡早报 /
-2022年4月8日 1:02 PM 报导
-采集：玫瑰新闻组
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
 
 
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0153.jpg)
+
+
+资料来源：欧盟主席推特
+
+周五晚上，欧盟委员会主席乌尔苏拉·冯德莱恩前往基辅。 她是自布查战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
+
+欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔正在前往基辅进行会谈的途中。 周五早上，冯德莱恩在推特上发布了一张照片，照片显示她和博雷尔以及斯洛伐克总理爱德华·黑格在火车站出发前不久。
 
 
 
+> Looking forward to Kyiv.[@JosepBorrellF](https://twitter.com/JosepBorrellF?ref_src=twsrc%5Etfw) [@eduardheger](https://twitter.com/eduardheger?ref_src=twsrc%5Etfw) [pic.twitter.com/YFAgGr5Tlc](https://t.co/YFAgGr5Tlc)
+> — Ursula von der Leyen (@vonderleyen) [April 8, 2022](https://twitter.com/vonderleyen/status/1512303926032359428?ref_src=twsrc%5Etfw)
 
 
-![随着俄罗斯调整火力，乌克兰东部平民的撤离行动开始受到阻碍。图为4月7日，在顿巴斯地区一个小镇可见滚滚黑烟。（法新社）](https://static.zaobao.com/s3fs-public/styles/article_large_full/public/images/202204/20220408/ukraine-russia-conflict-182110.jpg?VersionId=PKModiPp6yZ8MnLF6F4ZagFQLb4XgreG&amp;itok=2gGdFMF8)随着俄罗斯调整火力，乌克兰东部平民的撤离行动开始受到阻碍。图为4月7日，在顿巴斯地区一个小镇可见滚滚黑烟。（法新社）
+
+根据冯德莱恩的说法，欧盟政界人士在基辅与乌克兰总统泽连斯基会面，希望表明欧盟“比以往任何时候都更”站在乌克兰一边。
+
+周五晚上，欧盟委员会主席乘坐火车从波兰东南部前往乌克兰首都。 这位前德国国防部长是自基辅郊区布查的战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
+
+欧洲议会主席罗伯塔·梅佐拉上周前往基辅。 作为对布哈平民屠杀事件的回应，欧盟成员国周四决定对俄罗斯实施进一步制裁。 其中包括禁止从俄罗斯进口煤炭、新的贸易限制以及对俄罗斯船只进入欧盟港口的影响深远的禁令。
+
+简评：欧盟主席乘坐火车前往战火张的乌克兰首都基辅， 准备会见乌克兰总统泽连斯基， 这是非常勇敢而且需要勇气的行动， 用行动表示对乌克兰政府和乌克兰人民的最大支持，普京你也睁开眼睛吧。
+
+🔗[https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html](https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html)
+
+责任编辑、发布： Shuizhuyu
 
 
-以下原文内容：
-
-（早报讯）随着俄罗斯调整火力，乌克兰东部平民的撤离行动开始出现受阻情况。
-
-法新社报道，乌克兰总统泽连斯基周四（4月7日）表示，在首都基辅周围地区博罗江卡（Borodyanka）发现比布查镇还“更可怕”的惨况。博罗江卡距离布查约25公里远。
-
-俄军正重新部署兵力至乌克兰东部和南部，希望在克里米亚和亲俄的分裂主义分子控制的两个东乌地区顿涅茨克和卢甘斯克之间建立一条长期的陆地通道。
-
-猛烈的炮击已经开始摧毁该地区的城镇，官员们则敦促民众赶紧逃离，不过激烈的战火开始阻碍疏散进展。
-
-卢甘斯克州州长盖代透露，俄军炮击破坏了该州北部沙斯蒂亚镇人员疏散使用的一个铁路路线。“铁路受损。能否通过火车疏散成了问题。数以千计的民众仍然在卢甘斯克州的各个城市。”
-
-顿涅茨克州州长基里连科说，在顿涅茨克，俄罗斯空袭车站的一个立交桥后，三列疏散列车被临时封堵。
-
-当地官员继续敦促民众尽可能离开。盖代警告说：“没有什么秘密，顿巴斯之战将是决定性的。我们经历过的所有恐怖，到时可能倍增……离开！未来几天将是最后的机会。”
-
-新闻链接：
-[乌克兰东部平民撤离受阻](https://www.zaobao.com.sg/realtime/world/story20220408-1260669)
-
-**审核校对：Barry Jack
-上传排版：V在途中**
 
  
 

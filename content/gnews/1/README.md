@@ -2,30 +2,18 @@
 ---
 
 
-## 现在俄罗斯正在慢慢耗尽士兵
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2309374/)
+## 美联储已经准备好制裁中共
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2309478/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+**编译：verifunny**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/33-1.png)
+本周三（4月6日），财政部长珍妮特·耶伦表示，如果北京入侵台湾，美国将准备对中共国使用类似于对俄罗斯实施的制裁。耶伦告诉众议院金融服务委员会，她认为美国已经表明它可以施加巨大的经济痛苦给中共国。”她说：“我认为你们不应该怀疑我们在其他情况下做同样事情的能力和决心。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+美国副国务卿温迪·谢尔曼也在委员会作证，并警告说，如果中共国在乌克兰战争中帮助俄罗斯，美国将对其实施严厉的制裁。”她说：“我认为，这让习主席很好地了解，如果他事实上以任何物质方式支持普京，他可能会遇到什么。”
 
+美国已在准备对付中共的一切措施。美国在俄乌战争并没有大张旗鼓的支援乌克兰，而是悄悄的在技术上和军火上提供援助。最近沙特，阿联酋和也门之间的冲突越来越频繁。或许美国在准备应付中东地区和台湾海峡的战争。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/Local-residents-pass-by-a-damaged-R.jpg)
-
-
-资料来源：美联社
-
-从乌克兰北部撤军，意在为俄罗斯军队在东部的战斗提供新的力量。 但据军事专家称，军队几乎无法弥补高额损失。
-
-俄罗斯将其从乌克兰北部的撤军推销为仅仅是对自己军队的“重组”。 据俄罗斯总参谋部称，他们现在想集中精力扩大俄罗斯在乌克兰东部的领土。 事实上，俄罗斯人似乎正在放弃他们以前在北方的几个前进轴。
-
-现在莫斯科正集中力量在东部发动新的攻势。 但即使在那里，俄罗斯军队数周以来也几乎没有取得任何进展。 尤其是乌克兰方面优于俄罗斯方面。
-
-简评：俄罗斯入侵乌克兰遇到了乌克兰人民和军队的顽强抵抗。 据欧洲军事人员的猜测， 普京这次是彻底的失算， 他没有预料到乌克兰如此的抵抗和西方世界对俄罗斯如此制裁。 现在俄罗斯军队的损失巨大， 士兵确实补给也跟不上， 这才是俄罗斯绝对撤退到东部地区。这些死去的俄罗斯士兵都是老百姓的孩子， 世界上没有正义的战争。 全世界人民都是爱好和平的。
-
-🔗[https://www.welt.de/politik/ausland/plus238033865/Tod-Verwundung-Desertation-Jetzt-gehen-Russland-langsam-die-Soldaten-aus.html](https://www.welt.de/politik/ausland/plus238033865/Tod-Verwundung-Desertation-Jetzt-gehen-Russland-langsam-die-Soldaten-aus.html)
-
-责任编辑、发布： Shuizhuyu
+**新闻来源**：https://news.antiwar.com/2022/04/06/us-warns-china-would-face-sanctions-similar-to-russia-for-invading-taiwan/
 
  
 

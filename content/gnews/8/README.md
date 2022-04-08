@@ -2,23 +2,36 @@
 ---
 
 
-## 樱花头条┃上海要求全民在家自检 苏州出现奥秘克戎新变种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309295/)
+## 由于俄罗斯入侵后播种面积减少乌克兰预计今年粮食收成或减20%
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/2309387/)
 
-撰稿：东京樱花团/樱花传媒
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-上海继续封城，政府要求全民在家自检； 苏州又现奥密克戎新变种。
+来自新加坡早报 /
+2022年4月8日 4:02 PM 报导
+采集：玫瑰新闻组
 
-信息来源：[https://www.gettr.com/post/p13fwvyd8c0](https://www.gettr.com/post/p13fwvyd8c0)
+![](https://assets.gnews.org/wp-content/uploads/2022/03/G%E6%96%B0%E9%97%BB-3.jpg)
 
-编辑：东京樱花团/asket、文米（素材）
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4085.jpg)由于俄罗斯入侵后播种面积减少乌克兰预计今年粮食收成或减20%
+
+以下原文内容：
+
+（早报讯）乌克兰总理什米加尔周五（4月8日）表示，由于俄罗斯入侵后播种面积减少，今年乌克兰的粮食收成可能比去年减少20%。
+
+路透社报道，什米加尔说，农民燃料短缺，但乌克兰知道如何维持供应。他还说，乌克兰拥有大量粮食、谷物和植物油库存，足以养活其人口。
+
+**乌克兰是全球第四大粮食出口国，战争对其农作的影响备受全球关注。**
+
+据日前报道，乌克兰为确保有足够的粮食满足国内人民所需，已禁止或限制出口小麦、白糖、荞麦、大麦、燕麦、牛肉以及家禽。
+
+新闻链接：
+[乌克兰预计今年粮食收成或减20%](https://www.zaobao.com.sg/realtime/world/story20220408-1260794)
+
+**审核校对：Barry Jack
+上传排版：V在途中**
 
  
 
