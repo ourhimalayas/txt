@@ -2,31 +2,55 @@
 ---
 
 
-## 今日盖特大V推荐 — 大纪元时报（The Epoch Times）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307749/)
+## 全球性粮食危机导致薯片等各种糖果制品的供应受到威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2307750/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-793.png)
-盖特链接： [**https://gettr.com/user/epochtimes**](https://gettr.com/user/epochtimes)
+![Watched by Tayto Chairman Stephen Hutchinson (R), Britain's Prime Minister Boris Johnson (L) catches crisps in a bowl during a general election campaign visit to the Tayto Castle crisp factory in County Armagh, Northern Ireland, on November 7, 2019. - Britain's two main parties promised billions of pounds of investment …](https://media.breitbart.com/media/2022/04/GettyImages-1180686537-e1649153936318-640x481.jpg)由于制裁和乌克兰战争导致关键成分的出口中断，薯片和各种糖果的供应现在受到威胁。（GETTY）
+来自布赖特巴特新闻网4月6日的报道，俄罗斯正在进行的乌克兰战争导致全球供应链严重中断，西方国家部分或全部失去了从这两个国家获得一些基础商品和资源的机会。因此，薯片、巧克力、椒盐卷饼棒和其他各种商品等零食的供应看起来将遇到重大困难，行业专家警告说，这场冲突似乎将对他们的业务产生严重影响。
 
-**大纪元时报自述：**
+琼斯威尔士零食公司的杰瑞特·休斯(Geraint Hughes)在接受英国广播公司采访时说：“对于我们这样的公司来说，这有可能是一个巨大的破坏。”
 
-基于真相和传统的独立、屡获殊荣的报告。免费时事通讯：[**http://ept.ms/–Newsletters **](https://ept.ms/–Newsletters)电报：[**http://t.me/epochtimes epochtv.com**](https://t.me/epochtimes%20epochtv.com)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-794.png)图片来源：网络
-**大纪元时报简介：**
+休斯向这家公共广播公司解释说，他们的薯片生意严重依赖葵花籽油，由于各种战时问题，包括俄罗斯最近实施的制裁，葵花籽油的供应已经减少。俄罗斯和乌克兰在葵花籽油行业中占主导地位，创造了全世界约80%的产量，而随着这两个国家处于战争状态，供应量正在减少到零。
 
-大纪元时报是一家总部设在美国纽约市的国际多语种报纸和媒体。该报由法轮功学员于2000年在纽约创办。
+英国的葵花籽油也正在耗尽，负责该国大约75%葵花籽油供应的经销商说，他们根本无法得到这种油。
 
-大纪元时报隶属于大纪元传媒集团，该集团还经营新唐人（NTD）电视台。大纪元在35个国家有网站，但在中国大陆被屏蔽。
+然而，薯片绝不是唯一可能受到供应短缺影响的食品，德联邦德国糖果工业协会(BDSI)警告说，供应问题将可能对其他零食的供应产生广泛影响，如巧克力、饼干和椒盐卷饼零食。
 
-台湾中央社曾引述大纪元时报，称其独立于党派及商业集团之外，宗旨为“维护人权普世价值、揭露中国共产党政权极力隐瞒的新闻真相”。
+围绕着通货膨胀和供应链中断导致的食品价格上涨的困难已经对德国消费者造成了冲击，超市因此而涨价达30%，但这些问题看起来可能很快会让休闲食品的生产变得更加糟糕。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+该组织告诉《明镜周刊》(Der Spiegel)：“在中共病毒大流行的情况下，能源、农业原材料、包装和运输都变得非常昂贵。”但该组织指出，随着乌克兰危机的发生，这个问题现在已经“危及生命”。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+小麦等原材料成本的增加据说已经对该行业产生了重大的负面影响，但BDSI对天然气供应的短缺表示出了特别的关注，因为弗拉基米尔·普京(Vladimir Putin)的俄罗斯不断威胁要切断欧洲国家来自俄罗斯的天然气来源。
+
+据《明镜周刊》报道，对用于加热工业烤箱和炊具的制造商的天然气供应中断将导致该行业完全停滞。
+
+据报道，BDSI主席巴斯蒂安·法辛(Bastian Fassin)说：“德国糖果业的公司生产食品，因此对供应德国人非常重要，特别是在紧急情况和瓶颈情况下。”
+
+据报道，他说：“我们必须把政治家和食品贸易联系在一起，确保超市的货架不会空空如也。政治家们现在必须审查所有帮助食品制造商继续生产的措施。”
+
+欧洲已经感受到了这些供应危机。据布赖特巴特报道，本周德国的几家超市连夜大幅上调价格，反映了供应短缺的情况，一些产品的价格在一天之内上涨了50%。据一家德国媒体报道，受影响的食品包括：“食用油、黄油和人造黄油……还有巧克力、薯片、蜜饯、香肠、调味酱和奶酪。”
+
+简评：
+
+一场全球性的供应链危机正在酝酿当中，人类正在面临有史以来最黑暗的时刻。俄罗斯在中共的支持下入侵乌克兰，战争导致乌克兰今年无法顺利耕种，而俄罗斯与乌克兰的小麦出口合计占到世界的三分之一，由此对全球粮食供应造成巨大影响。不只俄乌战争，中共病毒造成的全球防疫限制措施也对长途海运带来了极大的不确定性，使得货物无法及时运输，货船无法及时靠港，运输成本和时间成本也都大大增加。更恐怖的是，全球有一半的人已经接种了毒疫苗，欧美等发达国家的疫苗接种率更是达到了80%以上，辉瑞疫苗的1291种副作用已经在警示全世界，疫苗有毒，疫苗会对人的身体造成极大的伤害。由疫苗的副作用导致的人道灾难在未来可能对全球的供应链带来进一步打击。这在贸易全球化的今天，对世界人民生活的影响是灾难性的。
+
+面对已经在发生并且未来局面可能会更加恶劣的全球性粮食危机、病毒危机、疫苗危机和非人道区域性战争，我们不禁要问，谁是造成这些危机的根源？谁应对此负责？答案是：全球混乱的根源是中国共产党。是中国共产党制造并释放了新冠病毒，并将病毒传播到世界各地，是中国共产党资助了俄罗斯发动对乌克兰的战争，是中国共产党要利用它制造的世界乱局来实现其极权扩张、统治全球的野心。中共用心险恶，无人能及。中共为达目的不惜牺牲全世界人的利益和安全，彻底印证中共无视人权、视生命为草芥的邪恶本质。中共是地球的万恶之源，只有消灭中共，人类才会有未来。
+
+新闻链接: [https://www.breitbart.com/europe/2022/04/06/global-food-crisis-potato-chips-and-candy-at-risk-over-export-freeze/](https://www.breitbart.com/europe/2022/04/06/global-food-crisis-potato-chips-and-candy-at-risk-over-export-freeze/)
+
+翻译/简评: kkoto(芬兰大灰狼)
+
+PR:Harvey（叶知秋）
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
 
  
 

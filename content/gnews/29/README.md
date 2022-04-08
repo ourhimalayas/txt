@@ -2,23 +2,46 @@
 ---
 
 
-## 俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2307483/)
+## 拜登：制裁意在扼杀俄罗斯经济多年
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307537/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-俄乌代表团3月29日在土耳其举行和谈，会后俄方形容谈判具建设性，将向总统普京汇报乌克兰方面的提案，乌方在会谈中提出以中立地位换取安全保障，并提议新的安全保障体系，另又提出就克里米亚地位问题设15年的磋商期。乌方谈判代表称，在新的安全保障体系下，以色列、波兰、加拿大和土耳其都将成为乌克兰的安全保障国。俄罗斯、美国、英国、德国和意大利也可以提供担保。
+编译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2022/04/2-58.jpg)
+4月6日（合众国际社）–在对俄罗斯实施新的制裁后，美国总统乔-拜登周三表示，制裁的意图是扼杀俄罗斯未来几年的经济增长能力。
 
-俄罗斯外长谢尔盖．拉夫罗夫周四表示，乌克兰向莫斯科提交了一份新的和平协议草案，其中俄方认为3月29日双方于土耳其和谈中最重要的部分被乌克兰忽略、淡化，致莫斯科“无法接受”，他认为乌克兰破坏了本次和谈。外媒报导，**乌克兰首席谈判代表米哈伊洛·波多利亚克表示“拉夫罗夫与和谈没有直接关系，他的发言是纯粹的宣传意义”。**
+拜登在华盛顿特区举行的北美建筑工会立法会议上说，俄罗斯对乌克兰的袭击包括重大的战争罪行。
 
-外媒指出，俄外长系针对乌克兰未于协议草案中明确，克里米亚半岛地区（外界认为2014年被俄罗斯并吞的乌克兰领土）不适用乌克兰未来的安全保障体系，意思是俄方认为上次土耳其和谈乌克兰明确未来国际对乌的安全保障不会延伸致该争议地区。
+“我们已经采取的措施预计仅在今年一年就会使俄罗斯的GDP下降两位数。”拜登在工会活动上说。
 
-来源｜[BARRON’S](https://www.barrons.com/news/russia-accuses-ukraine-of-changing-demands-since-istanbul-talks-01649332508?refsec=afp-news)、[HK01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/752955/%E4%BF%84%E7%83%8F%E8%AB%87%E5%88%A4-%E7%83%8F%E5%85%8B%E8%98%AD%E6%8F%90%E5%87%BA%E6%96%B0%E5%AE%89%E5%85%A8%E4%BF%9D%E9%9A%9C%E9%AB%94%E7%B3%BB-%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%95%8F%E9%A1%8C%E8%A8%AD15%E5%B9%B4%E7%A3%8B%E5%95%86%E6%9C%9F)、[YAHOO](https://uk.news.yahoo.com/ukraine-dismisses-russian-criticism-kyiv-132841568.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHAaURo7ZE6DvFW8JVoyrg9syTA8Fp6BPfX_3hqmSJgCU3OzYGKtxhKmDDiaXCKXrFEb2P_CjmwmcSyQ7th6TUD2eR3aQQLkYpY0NE2Z3ovw4vlwTN1JLrISQFbw98KVRmRA4TEjAhnRuOhBiepsA5vQwIv5NkZkwPjHdX9LUSua)
+“仅仅在一年内，我们的制裁就可能使俄罗斯过去15年的经济成果化为乌有，因为我们切断了俄罗斯与重要技术的联系，如半导体和加密安全以及量子技术的关键组件等，而这些技术是他们在21世纪竞争所需要的，”拜登在该活动上说。
 
-* * *
+拜登在建筑行业立法会议上的讲话包括对在被俄罗斯军队占领的城镇布查（ Bucha）发现的乌克兰平民尸体的严正评论。
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+拜登说：“平民被冷血地处决。”“尸体被扔进了万人坑。”
+
+拜登敦促负责任的国家“团结起来追究这些肇事者的责任”。
+
+美国与七国集团（G7）和欧盟一起，于周三宣布了对莫斯科的新制裁措施——这些措施是因为袭击乌克兰平民而致，并针对俄罗斯总统弗拉基米尔-普京的成年女儿。
+
+制裁的目标是俄罗斯的银行、普京的成年女儿卡捷琳娜-季霍诺娃（Katerina Tikhonova）和玛丽亚-沃龙佐娃（Maria Vorontsova）、外交部长谢尔盖-拉夫罗夫的妻子玛丽亚-拉夫罗娃（Maria Lavrova）和女儿叶卡捷琳娜-维诺库洛娃（ Yekaterina Vinokurova)，以及俄罗斯安全委员会成员。
+
+白宫在一份声明中说：“这些人以牺牲俄罗斯人民的利益来自肥。他们中的一些人负责给普京的乌克兰战争提供必要的支持。”
+
+“这一行动切断了他们与美国金融系统的联系，并冻结了他们在美国持有的任何资产。”
+
+新的制裁措施是继美国本周早些时候采取行动“切断俄罗斯在美国的冻结资金以支付债务”之后采取的，也是受到上周末出现的俄罗斯在布查对乌克兰平民施暴的报道和图像的影响。
+
+这些措施旨在相互加强，以便随着时间的推移产生更强的影响。
+
+周三的制裁措施包括全面封锁俄罗斯最大的金融机构俄罗斯联邦储蓄银行（Sberbank）和俄罗斯最大的私人银行阿尔法银行（Alfa Bank）。
+
+据白宫称，该行动冻结了俄罗斯联邦储蓄银行和阿尔法银行涉及美国金融系统的任何资产。新的制裁措施还禁止美国人与他们做生意。
+
+白宫周三的声明还表示，拜登将签署一项行政命令，禁止美国人在俄罗斯联邦进行新的投资。
+
+白宫表示，美国的新制裁目前并不排除对俄罗斯主权债务的支付，只要俄罗斯使用在美国管辖范围之外资金。但这迫使俄罗斯要么耗尽可用资金来支付债务，要么拖欠债务。
+
+新闻来源：[https://www.upi.com/Top\_News/US/2022/04/06/russia-sanctions-Sberbank-Alfa-bank-Putin-daughters/8601649259129/](https://www.upi.com/Top_News/US/2022/04/06/russia-sanctions-Sberbank-Alfa-bank-Putin-daughters/8601649259129/)
 
  
 
