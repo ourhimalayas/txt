@@ -2,33 +2,39 @@
 ---
 
 
-## 您可以通过检举揭发帮助欧盟制裁中共
-` mayflowertranslate` [轉載自GNews](https://gnews.org/zh-hans/2310226/)
+## 有声|新西兰国家党领袖克里斯托弗•卢克森将普京列为战犯
+` 【🌹玫瑰新闻】` [轉載自GNews](https://gnews.org/zh-hans/2310265/)
 
-编译：波士顿五月花—-思澈
+【玫瑰看新闻】每日快讯
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
+【新西兰RNZ 4月5日报道】 新西兰国家党领导人克里斯托弗·卢克森将俄罗斯总统普京称为战犯。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image007-3.jpg)Christopher Luxon 照片：RNZ / Angus Dreaver
+昨天，总理杰辛达·阿德恩拒绝使用这些话，她称不会称普京为战犯：“这最终由国际刑事法院做出决定，但证据就在那里，新西兰支持检察官并确保俄罗斯被追究责任”。
 
-中共媒体和公司支持支援俄罗斯的行为属于违反制裁涉及到的个人，公司和第三国
+卢克森今天则表示，他很欣赏在正式起诉普京之前有一个过程，“但我认为我们可以看到那里正在发生的事情，这绝对是战争罪”。”在你正式地被贴上罪犯的标签之前，你必须受到起诉和定罪，但我不得不对你说，证据非常有说服力。证据就在那里，我很乐意称他为战犯。”
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1752A305-D46D-4F57-8B7C-438D2FC68C54.jpeg)
+ACT党支持总理谨慎使用语言，领导人大卫西摩表示，阿德恩在国际刑事法院的角色上采取了正确的立场。西摩补充说，在他个人看来，普京正在犯下战争罪。
 
-分享有关违反欧盟制裁的信息，有助于欧盟成员国正在进行的调查取得成功，并提高欧盟制裁的有效性。
+绿党的联合领导人詹姆斯肖谴责普京是一个可怕的人，但是，表示阿德恩不称他为战犯是正确的。
 
-如果你知道可能违反了任何欧盟制裁，你可以通过自愿提供信息来提请委员会注意。这些信息可以涉及，例如，**有关违反制裁的事实，其情况和涉及的个人、公司和第三国。这些可以是不为公众所知但为你所知的事实，可以涵盖过去、正在进行或计划进行的违反制裁行为，以及试图规避欧盟制裁的行为。**
+阿德恩坚持认为，罢免俄罗斯大使将意味着新西兰驻俄罗斯代表也同样会被罢免，并表示所采取的其他措施：制裁、贸易限制、对乌克兰的援助和部署 “要强大得多”。
 
-你可以通过两种方式报告违反制裁行为。
+[【援引连结】](https://www.rnz.co.nz/news/political/464672/national-party-leader-christopher-luxon-labels-putin-a-war-criminal-again-urges-ambassador-s-removal)
 
-💥直接联系我们：如果你站出来，提供你的姓名和联系方式，就能给我们带来最大的帮助，因为这将使你的陈述更加可信，使我们更有可能采取行动。
-要通过这种方式报告违反制裁的行为，你可以简单地发送一封电子邮件到 **[\[email protected\]](/cdn-cgi/l/email-protection#cfbdaaa3aab7e2bcaea1acbba6a0a1bc8faaace1aababda0bfaee1aaba)**
-💥保持匿名：如果你不想透露你的身份，你可以通过欧盟制裁举报工具向我们发送匿名信息，这是一个高度安全的在线平台。管理该工具的欧盟委员会完全致力于保护你的匿名性。
-
-要访问该工具，了解你的匿名性如何得到保护，并报告违反制裁的情况，出于安全考虑，请在浏览器中复制粘贴或手动重新输入以下网址：**[https://EUsanctions.integrityline.com](https://eusanctions.integrityline.com/)**
-
-素材来源：[https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions\_en#whistleblower](https://ec.europa.eu/info/business-economy-euro/banking-and-finance/international-relations/restrictive-measures-sanctions/what-are-restrictive-measures-sanctions_en#whistleblower)
-
-*发布：思澈*
-
-
-
+**推出问题，敲出真相，爆料在路上！
+请关注和订阅我们的以下账号：新西兰伊甸农场盖特：**[HTTPS://GETTR.COM/USER/HIMALAYANZ](https://gettr.com/USER/HIMALAYANZ)**
+【Gnews Top News New Zealand】盖特账号：
+**[https://gettr.com/user/gnewsvideo](https://gettr.com/user/gnewsvideo)**
+新西兰Gnews】盖特账号：
+**[https://gettr.com/user/nznzgnews](https://gettr.com/user/nznzgnews)**
+【玫瑰看新闻】盖特：
+**[https://gettr.com/user/rosenews](https://gettr.com/user/rosenews)**
+ROSE NEWS推特账号：
+[https://twitter.com/rosenews4?s=21](https://twitter.com/rosenews4?s=21)**
+![此图像的alt属性为空；文件名为玫瑰看新闻尾巴.jpeg](https://assets.gnews.org/wp-content/uploads/2022/03/%E7%8E%AB%E7%91%B0%E7%9C%8B%E6%96%B0%E9%97%BB%E5%B0%BE%E5%B7%B4.jpeg)
+**校对：小脑斧
+上传：漂流瓶**
+![此图像的alt属性为空；文件名为截屏2022-03-22-上午10.53.46-1536x113-6.png](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46-1536x113-6.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

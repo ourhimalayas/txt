@@ -2,31 +2,37 @@
 ---
 
 
-## 有声｜乌境现更多俄军涉嫌杀害平民行为 吁即援重型武器
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310321/)
+## 澳洲新南威尔士发现第一例Deltacron变体感染
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/2310566/)
 
-By:**秘翻新闻**
+撰稿：Gradient Boost
 
-**2022-04-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/8-8.png)
-[卫报综合](https://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-newshttps://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-newshttps://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-news)消息，乌克兰总统沃洛季米尔·泽连斯基周四说，博罗迪扬卡镇的情况比附近的布查 “糟糕得多”，在那里，俄罗斯军队涉嫌杀害平民。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/801.jpg)图片来自网络
+当地时间星期五，澳大利亚媒体报道悉尼所在的新南威尔士州发现了第一例CCP病毒 Deltacron 变体感染案例。新南威尔士州卫生局在其COVID-19 每周报告中也确认，该州记录了 1 例 Deltacron 病例和1例 Omicron 及多种子变体组合感染的病例。
 
-泽连斯基在深夜的全国讲话中说，”拆除博罗迪昂卡残骸的工作开始了……那里的情况要糟糕得多。”
+Deltacron 是一种“重组”病毒，这意味着它是两种不同CCP病毒变体（Delta及Omicron）的混合产物，分别继承了Delta和Omicron的一些特性。卫生当局表示，没有证据表明这类新毒株会导致更严重的病状，至于疫苗对该变体的防护作用，现在也没有足够数据做支撑。
 
-官员们认为，在首都基辅西北35公里处的布查，有300多人被俄罗斯军队杀害，其中约50人被处决。
+今天，每日新增CCP病毒感染数字也从趋势上发生了变化，一些州记录的新病例开始有所下降。与昨天相比，悉尼所在的新南威尔士州和墨尔本所在的维多利亚州都出现了新增数量的减少。
 
-周四早些时候，乌克兰总检察长伊丽娜·维内迪克托娃说，在博罗迪扬卡镇的两座废墟建筑下发现了26具尸体，并指责俄罗斯军队对该镇进行了空袭。
+新南威尔士州报告了 20,396 例新增确诊，而昨天记录为 22,255 例。该州又有8人不幸因CCP病毒感染而丧生。目前仍有1435例感染者在住院治疗，44人处于重症监护状态。
 
-此前，基辅呼吁西方盟友提供更多的重型武器。周四，乌克兰外交部长德米特罗·库莱巴在布鲁塞尔举行的联盟同行会议上，呼吁西方盟友在几天内即刻提供帮助，否则许多人会死去。
+维多利亚州记录了 11,192 例新的 COVID-19 病例，比昨天的 12,314 例减少了 1000 多例。该州另有四人不幸死于CCP病毒。目前该州有 335 人因感染CCP病毒住院，12 人必须进入重症监护室治疗。
 
-此外，澳大利亚首批20辆布什马斯特车预计于周五送往乌克兰，这是5000万美元援助的军用车辆的一部分。
+*编辑：Gradient Boost*
 
-秘翻新闻 大树/Julia编辑报道
+*发稿：mgjxs*
 
-发布 : 恩典
+新闻参考链接：[9 News](https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/TA1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/model-1.png)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
+更多资讯，更多关注
+[乌克兰救援UkraineRescue官方Gettr](乌克兰救援UkraineRescue官方Gettr)
+[郭文贵先生Gettr](郭文贵先生Gettr)
+[全球喜马拉雅农场联盟委员会Gettr](全球喜马拉雅农场联盟委员会Gettr)
+[喜马拉雅联盟大使馆全球客服中心Discord](喜马拉雅联盟大使馆全球客服中心Discord)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,34 @@
 ---
 
 
-## 俄乌战争｜美国会投票剥夺俄国最惠国待遇 美、欧制裁趋于同步
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2308735/)
+## 蔡英文家人染疫，蔡本人将隔离至4月中旬
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2309458/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-11.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院周四针对“取消俄罗斯及其亲密盟友白俄罗斯的永久正常贸易关系（PNTR，即永久的最惠国待遇无须年审）”，结果以100赞成：0反对通过。此外，另一项针对禁止进口俄罗斯石油的能源立法，参议院也以100赞成：0反对的结果表示支持。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1649432758_97281.jpg)
+当地时间4月8日，台湾总统府通报有中共病毒阳性确诊者足迹。据总统发言人说明，蔡英文总统曾在清明假期与11名家人共度，其中一名家人在4月8日中午确诊。蔡英文总统目前测试为阴性，她将从接触日4月5日开始计算隔离，为期10天，后续再进行7天自主健康管理，直至4月21日。此段时间内公开行程全部暂停。
 
-取消俄罗斯及其盟友白俄的永久正常贸易关系一案，参议院决议通过后，提交给众议院以420票赞成：3票反对结果，获取压倒性支持。禁止俄石油的能源立法，也获得413票压倒性支持。两案送交拜登总统经签署后，公布生效。
+台湾总统府医疗团队已经将与总统密切接触的人员进行快速测试，所有人都为阴性。蔡英文总统的相关工作将以线上或者视讯会议的方式进行。
 
-该能源立法，系将拜登总统先前发布关于禁止进口俄罗斯石油、天然气、煤炭的行政命令，经立法程序转为法律，旨在对普京施加经济压力；贸易立法，美国会以立法形式，取消对俄国的永久最惠国贸易地位，并允许基于俄侵略乌而对莫斯科征收更高的关税，旨在切断美国与俄罗斯的正常经济往来。
+据悉美国众议员长佩洛西因宣布要访问台湾，此后便被确诊中共病毒阳性。而隔天台湾蔡英文总统随之成为中共病毒阳性密接者，不得不进行隔离，停止一切公开行程，改为线上工作。
 
-欧盟委员会6日曾表示，考虑将俄罗斯煤炭纳入新一轮制裁清单，经会议讨论后欧盟执委会也批准新禁令，从8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
+reference：
 
-欧盟成员国以德国最为仰赖俄能源，该国财政部长对此提议表态“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系…。”由此观之，可确定美、欧对俄的制裁及立场趋于同步。
+[https://www.setn.com/News.aspx?NewsID=1097357](https://www.setn.com/News.aspx?NewsID=1097357)
 
-来源｜[cnbc](https://www.cnbc.com/2022/04/07/senate-votes-to-strip-russia-of-most-favored-nation-trade-status.html)、[yahoo](https://uk.news.yahoo.com/u-senate-backs-removal-most-144649257.html)
+撰稿、发布：骄子
 
 * * *
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+欢迎订阅我们的GNews账号：
 
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
