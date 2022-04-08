@@ -2,25 +2,36 @@
 ---
 
 
-## 美国封锁俄罗斯最大金融机构，禁止对俄新投资
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307622/)
+## 加拿大为应对乌克兰战争增加80亿加元的军费开支
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307693/)
 
-撰稿：纽约香草山农场–Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
-4月6日，美国白宫发表声明，鉴于俄罗斯在乌克兰的暴行，美国禁止在俄罗斯的新投资，并对俄罗斯最大的金融机构和重要的国有企业，以及俄罗斯政府官员及其家庭成员实施严厉的金融制裁。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-791.png)
-该声明称，美国将全面封锁俄罗斯最大的金融机构–储蓄银行，和俄罗斯最大的私人银行–阿尔法银行，冻结其在美资产；并表示对俄罗斯重要的国有企业进行全面制裁，禁止美国人与这些实体进行交易，并冻结资产。此外，在600多家跨国企业决定退出俄罗斯的基础上，拜登总统将签署一项新的行政命令，禁止美国人在俄罗斯进行任何新的投资，进一步孤立俄罗斯，削弱俄罗斯的全球竞争力。
+翻译/编辑：小红帽
 
-同时，美国还将对包括俄罗斯总统普京的成年子女、外长拉夫罗夫的家人等实施经济制裁。（请播放视频，视频时长0‘58“）
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/000_9xy42y.jpg)图片来源：AFP/Gints Ivuskans
 
-参考链接：[拜登总统宣布对俄罗斯实施新的经济制裁](https://gettr.com/post/p13zzh72131)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-52.jpg)
+根据CNA4月8日报道，加拿大周四（4月7日）在其新预算中公布了五年内增加80亿加元（64亿美元）的军费开支，以应对俄罗斯入侵乌克兰的战争，但未能达到北约规定的占国内生产总值2%的开支目标。
 
-审核/编辑/总编：雪梨
+“俄罗斯总统普京对乌克兰的入侵提醒我们，我们自己的和平民主就像世界上所有的民主国家一样，最终取决于硬实力的防御，”财政部长克里斯蒂娅-弗里兰表示。“我们知道，自由不是白来的，和平只有在我们准备好为它而战时才能得到保证。”
 
-校对/发稿：浪迹天涯
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
+“这就是为什么这份预算立即对我们的武装部队进行了额外投资，并提议迅速进行国防政策审查，以使加拿大能够应对一个变得更加危险的世界。”弗里兰补充道。
+
+根据北约的数据，加拿大目前的军事开支占国内生产总值的1.36%，比几年前略有下降。
+
+据专家和议会的独立财政监督机构称，要达到北约的目标，渥太华必须为国防拨出更多资金，至少要占GDP的0.5%。
+
+弗里兰建议，渥太华仍然可以很快缩小这一差距，并提议“迅速进行国防政策审查，使加拿大能够应对一个变得更加危险的世界”。
+
+资料来源：[Canada boosts military spending by C$8 billion in response to Ukraine war](https://www.channelnewsasia.com/world/canada-boosts-military-spending-c8-billion-response-ukraine-war-2615406)
+
+发布：tianzhihuan
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

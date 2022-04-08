@@ -2,28 +2,34 @@
 ---
 
 
-## 德国总理肖尔茨推迟向乌克兰援助坦克
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2308168/)
+## 中日财经爆┃日本政府将削减俄罗斯煤炭进口 以抗议俄军大规模残杀乌克兰平民
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2308485/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/日本政府将削减俄罗斯煤炭进口-以抗议俄军大规模残杀乌克兰平民.png)[图片来源](https://gnews.org/wp-admin/post-new.php#:~:text=Ukraine%20latest%3A%20Japan%20to%20phase%20out%20Russian%20coal%20imports)
 
-据Politico网站4月7日报道，知情人士透露，德国总理奥拉夫·肖尔茨（Olaf Scholz）不顾内阁高级官员的压力，决定推迟向乌克兰援助坦克。
+日本政府已决定对俄罗斯实施新的制裁措施。不但会逐步减少从俄罗斯的进口煤炭，并正在考虑驱逐部分俄罗斯外交官。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-12.jpeg)德国总理奥拉夫·肖尔茨（Olaf Scholz）。（图片来自Politico）
+在七国集团领导人7日发表声明，包括禁止从俄罗斯进口煤炭后，日本政府也决定将分阶段减少从俄罗斯的进口煤炭。
 
-该援助计划由副总理兼经济部长罗伯特·哈贝克（Robert Habeck）和外交部长安娜莱娜·贝尔博克（Annalena Baerbock）推动，涉及大约100辆坦克。最初预计本周将就此事做出决定。但肖尔茨却表示，德国应该首先与西方盟国就此问题达成共识，然后再提供如此重要的军事装备。
+经济产业大臣萩生田表示，“我们希望减少从俄罗斯的进口煤炭，最终的目标是实现不进口。并表示政府打算通过寻找替代俄罗斯的煤炭进口国等来减缓对日常生活和工业带来的影响。除此之外，政府正在考虑驱逐部分俄罗斯外交官。
 
-总理的犹豫引起了执政联盟绿党、自由民主党（FDP）和中右翼基督教民主联盟（CDU）的强烈反对。德国联邦议院欧洲事务委员会主席、绿党主席安东·霍夫赖特（Anton Hofreiter）表示，重要的是德国在欧盟和北约中表现出“领导力”，而不是躲在其他国家后面。
+尽管日本最初对驱逐外交官持谨慎态度，但政府内部越来越多的人认为，大规模屠杀平民的事件，已不能在维持现状。
 
-乌克兰驻德国大使安德烈·梅尔尼克（Andriy Melnyk）周四表示，基辅强烈希望柏林提供Marder和Leopard坦克，以及防空“Gepard”坦克。
+岸田首相将于4月8日晚举行新闻发布会，并亲自解释这些制裁政策。
 
-柏林全球公共政策研究所智库主任托尔斯滕·本纳（Thorsten Benner）认为，德国因过于依赖俄罗斯天然气供应，导致对俄罗斯实施制裁时的软弱立场已经受到盟友的批评，“我认为，对于德国的信誉来说，至关重要的是，我们不会在对俄制裁上到处踩刹车，至少有一方面是表现积极的。“本纳呼吁说。
+信息来源：
+[外交官の“国外追放”も検討　政府 ロシアの石炭輸入削減へ　民間人の大量殺害受け](text=%E3%83%88%)
 
-参考链接：
-[https://reurl.cc/VjKE1Y](https://reurl.cc/VjKE1Y)
-
-总编： 青城道姑
-发布： 文曦
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
 
  
 

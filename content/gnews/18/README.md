@@ -2,32 +2,64 @@
 ---
 
 
-## 中日财经爆┃ING预估若上海封城到4月底 GDP将损失6%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307989/)
+## 美国给共产党准备一堆毒药,共产党毫不犹豫吃最毒的药
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2308142/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-路透社4月8日报导，ING银行预估，假如上海的封城措施持续到4月底，上海的GDP将损失6%，全国GDP将损失2%。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%889%EF%BC%9A9%EF%BC%89%E7%BE%8E%E5%9B%BD%E7%BB%99%E5%85%B1%E4%BA%A7%E5%85%9A%E5%87%86%E5%A4%87%E4%B8%80%E5%A0%86%E6%AF%92%E8%8D%AF%2C%E5%85%B1%E4%BA%A7%E5%85%9A%E6%AF%AB%E4%B8%8D%E7%8A%B9%E8%B1%AB%E5%90%83%E6%9C%80%E6%AF%92%E7%9A%84%E8%8D%AF%E3%80%902022%E5%B9%B403%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:3)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ING预估若上海封城到4月底-GDP将损失6.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnltimes.nl%2Fsites%2Fnltimes.nl%2Ffiles%2Fstyles%2Fnews_article_full%2Fpublic%2F2019%2F08%2Fdepositphotos_227856296_l-2015.jpg%3Fh%3D56d0ca2e%26itok%3DGt9MvEaN&amp;imgrefurl=https%3A%2F%2Fnltimes.nl%2F2020%2F05%2F08%2Fing-profits-drop-40-percent-due-cornavirus-crisis&amp;tbnid=MSBaWSCm4M-qEM&amp;vet=12ahUKEwjVlvv66oP3AhVPwoUKHb8JCygQMygWegUIARDYAQ..i&amp;docid=2zs9-mjXcv396M&amp;w=837&amp;h=462&amp;itg=1&amp;q=ING&amp;ved=2ahUKEwjVlvv66oP3AhVPwoUKHb8JCygQMygWegUIARDYAQ)
+**郭文贵先生：**另外一个我看到这共产党是真是完蛋了，这好消息太多。据我所知，为啥我今天兴奋？从早到晚就知道，美国给共产党那块准备了一堆毒药，而且共产党都毫不犹豫地……
 
-ING银行并将中共国今年第二季的GDP按年增长预测，由原来的5%降至4%，2022年全年预测则由4.8%调低至4.6%。
+(美国)在桌子上摆了一百零八种药，其中可能三分之一是毒药。共产党都是选择最毒的药去吃，你挡都挡不住，所以七哥特别高兴。
 
-ING银行评论指出，假设上海市封城措施在本月大部分时间持续，月内大部分的经济活动将会消失，工厂无法正常运作。此外，因当局的防病毒扩散措施非常严格，一人感染可能会影响整家工厂的人员。码头方面，如发现一人感染，港口亦会暂停运作进行消毒。
+乌克兰这边，最后大家一定记住，乌克兰可能是中国人最需要珍惜的朋友了，乌克兰和台湾。因为乌克兰，共产党真的会决绝地完蛋，会完得非常得狠！！！非常的干净！！！我们会很快地在盘古龙头相聚！
 
-不过，ING银行料地方政府及中央应会出台一些纾缓及刺激措施，应可为GDP带来约1—1.5%的提振。但该行补充，措施出台的时机至关重要，因现时当局会出台什么措施尚不清楚，需要先看到实施情况，然后才能充分评估影响。
+——我本花一朵，被拐骗山中，从此亲人永相隔。
 
-消息来源:
-[倘上海封城措施只在4月持续估计GDP损失6% 全国损失则为2%–ING银行](https://cn.reuters.com/article/ing-shanghai-lockdown-impact-0408-fri-idCNKCS2M00CJ?il=0)
+我这一唱这歌，哎呀！受不了！
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+——囚禁二十年，我受尽了折磨，这个世界不要我。
+
+哇！这歌真的是一唱……
+
+——醒来吧，别再如此冷漠。醒来吧，别再如此懦弱，只为能紧握住亲人手，要埋葬那邪恶的中共；牙齿全拔落，铁锁已斑驳，这就是我的一生。同胞快醒来，从此要站着活，我们砸碎这铁锁！！！
+
+哇！一唱这心里边……唉！献给前线的战友们，七哥为你们唱的。真是啊，一唱这歌劲儿全来了。懦弱的人听了这个歌会痛哭，然后会忘掉；强大的人会唤醒你的力量、良知，会让你觉醒。
+
+耶！！！工作去！灭共去！啥不说了兄弟姐妹们。
+
+前线的战友们防毒、照顾好身体，谢谢所有法治基金的捐款者，兄弟姐妹们，感谢你们。好吧？！共产党你完了！！！
+
+——只为能紧握住亲人手，要埋葬那邪恶的中共。牙齿全拔落，铁锁已斑驳，这就是我的一生。同胞快醒来，从此要站着活，我们砸碎这铁锁！！！
+
+“嘣…..”走了,工作去, 给你们挣钱去!灭共去!!!
+
+字幕来源：[2022年3月18日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/2189415/)
+
+编辑整理：Jacques；
+
+字幕档制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 

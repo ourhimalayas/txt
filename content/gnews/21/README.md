@@ -2,42 +2,41 @@
 ---
 
 
-## 中日财经爆┃G7禁止从俄罗斯进口煤炭 日本计划跟进制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307981/)
+## 新南威尔士州发现首例“德尔塔克戎”病例
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/2308068/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-4月7日，七国集团（G7）发表了一份首脑声明，对俄罗斯进行严厉谴责，并决定着手禁止从俄罗斯进口煤炭等，日本经济产业大臣周五表示将跟进制裁。
+翻译：金生水
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-2608-3.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/1-135.jpg)图片来自网络
+《9 News》近日报道，在新南威尔士州发现了第一例新的新冠变体“德尔塔克戎”病例。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-140.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.ictd.ac%2Fwp-content%2Fuploads%2F2021%2F06%2Fshutterstock_1533765962-838x558.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ictd.ac%2Fblog%2Fg7-tax-deal-historic-global%2F&amp;tbnid=LR-jl3xA1hwl1M&amp;vet=12ahUKEwjLnf_c64P3AhVJ0RoKHUr8Cx8QMygKegUIARCVAQ..i&amp;docid=aepvWaDYCCivQM&amp;w=838&amp;h=558&amp;q=G7&amp;ved=2ahUKEwjLnf_c64P3AhVJ0RoKHUr8Cx8QMygKegUIARCVAQ)
+新州卫生厅每周的新冠报告表示该州录得一例德尔塔克戎和一例奥米克戎和多个次变异组合病例。
 
-日本经济产业大臣萩生田光一8日表示，日本计划逐步减少俄罗斯煤炭进口。
+德尔塔克戎是一种“重组”病毒，这意味着它是两种不同变体的混合体。
 
-“我们将需要找寻替代供应商，否则将面临确保国内煤炭的困难，这可能导致停电等问题。我们要避免这种情况发生，”他表示。
+卫生当局表示，没有证据表明这些新毒株会导致更多疾病或抵消当前新冠疫苗的影响。
 
-G7首脑声明对俄罗斯进行了强烈谴责，指出“采用最严厉的措辞谴责俄罗斯军队在布恰及其他乌克兰境内的恐怖残暴行径”。
+今天，新的每日新冠数字的趋势也发生了变化，一些州记录的新病例有所下降。
 
-在此之上，七国集团还决定采取旨在让俄罗斯总统普京等付出更大代价的新措施。具体包括：禁止对能源等俄罗斯主要经济领域进行新的投资；包括禁止或分阶段减少从俄罗斯进口煤炭在内，推进降低对俄罗斯能源依赖程度的计划。
+与昨天相比，新南威尔士州和维多利亚州都报告了新冠病毒病例数量的减少。
 
-此外，七国集团外长也于4月7日在比利时首都布鲁塞尔举行外长会议后发表了联合声明，谴责俄罗斯在乌克兰布恰等地的行为属于“大屠杀”；为了使乌克兰能够抵御俄罗斯的侵略，守住自己的家园，进行重建，决定从军事和财政方面进一步加强对乌克兰的支援。
+新南威尔士州报告了 20396 例，而昨天记录为 22255 例。
 
-日本首相岸田文雄周四表示，在与七国集团盟友进行协调后，日本最早将于周五公布对俄罗斯入侵乌克兰的进一步制裁举措。
+该州与新冠相关的还有八人丧生。
 
-消息来源:
+有1435人在医院感染病毒，44人在重症监护室。
 
-#### [日本考虑限制从俄罗斯进口煤炭](https://cn.reuters.com/article/japan-russia-coal-ban-0408-idCNKCS2M004L?il=0)
+维多利亚州记录了 11,192 例新的新冠病例，比昨天的 12314 例减少了 1000 多例。
 
-[G7发表首脑声明 禁止从俄罗斯进口煤炭等](https://www3.nhk.or.jp/nhkworld/zh/news/359170/)
+该州还有四人死于新冠。
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注****
-**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
-[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
-**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
+参考链接：
 
+[https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46](https://www.9news.com.au/national/coronavirus-australia-updates-state-by-state-new-case-numbers-deaths/ec5c3db3-6502-48d6-a424-bfef504cec46)
+
+*编辑：金生水*
+
+*发布：金生水*
+![](https://assets.gnews.org/wp-content/uploads/2022/04/HA.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
