@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 12:29 AM (UTC)`
+
+2022.04.07 晚  新中国联邦 | 新闻    郭文贵先生谈法治的重要性；新中国联邦乌克兰救援前线报导
+![img](https://media.gettr.com/group3/origin/2022/04/08/00/e9dd82cf-bd0b-67c2-9f06-c4fa40980cda/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 4/8/2022 12:23 AM (UTC)`
 
 In tragedy after tragedy in Ukraine, the ruthlessness of the Russian soldiers, their brutal methods have reached the point of heinousness, can the mothers of the Russian soldiers see this scene? Can they still sleep peacefully and stand here?  The rescue operation carried out by the New Federal State of China in Ukraine is also saving countless mothers, because both Russia and the Chinese Communist Party are hurting them!<br/>在乌克兰发生的一桩桩惨案中，俄罗斯士兵的丧心病狂，其残害手段之恶毒已经到了令人发指的地步，作为俄罗斯士兵的母亲们能看到这一幕吗？还能安心入睡立足于世界吗？一个国家的败亡往往是对女性的不公开始的，而且往往都是一些独裁国家，正如中共国的锁链女、杨改兰，作为俄罗斯的士兵的母亲们，就没想明白这个问题吗？让侵略者回家吧，这样还挽回些什么，不然他们都会死在乌克兰，而且是被唾弃的死去，因为正邪的较量是没有休止符的！新中国联邦在乌克兰开展的援救行动，也拯救着无数的母亲，因为俄罗斯和中共都在伤害她们
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
 ![img](https://media.gettr.com/group24/origin/2022/04/07/08/365a4c04-18b7-32dc-125c-f101c5ad1ec3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 7:12 AM (UTC)`
-
-4/6/2022 Miles Guo’s GETTR: Please rest assured that all is well with me! I am enjoying learning the law of the US in the process of fighting back against the CCP's unrestricted lawfare. China will be a better place in the future with the judicial system and rule of law like the US. All fellow fighters will go through transformations expeditiously and head towards our goal of Himalaya - bringing rule of law, freedom, and faith to everyone in new China.<br/><br/>4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好；战友都在迅速地蜕变并走向我们新中国人的喜马拉雅的目标！<br/>
-![img](https://media.gettr.com/group30/getter/2022/04/07/07/0f0cee9b-644d-ccc0-9d61-6584d107f572/out.jpg)
 
 ---
 
