@@ -15,68 +15,68 @@
 
 ---
 
-### [DC每日热点0408](/content/gnews/1/README.md)
+### [有声|乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [DC每日热点0408](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [《歷史的今天》2022.04.08](/content/gnews/2/README.md)
+### [《歷史的今天》2022.04.08](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [《历史的今天》2022.04.08](/content/gnews/3/README.md)
+### [《历史的今天》2022.04.08](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【G叻睇真D】加拿大安省已接种疫苗者感染新冠病毒死亡率增高](/content/gnews/4/README.md)
+### [【G叻睇真D】加拿大安省已接种疫苗者感染新冠病毒死亡率增高](/content/gnews/5/README.md)
  ` G-时新闻`
 
-### [黑客显然瘫痪了芬兰政府网站](/content/gnews/5/README.md)
+### [黑客显然瘫痪了芬兰政府网站](/content/gnews/6/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [【G叻睇真D】特鲁多政权因错误疫情政策而造成巨额浪费](/content/gnews/6/README.md)
+### [【G叻睇真D】特鲁多政权因错误疫情政策而造成巨额浪费](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [【粤语配音】2022年4月8日：墙内战友活着，等待新中国联邦拯救的那一天](/content/gnews/7/README.md)
+### [【粤语配音】2022年4月8日：墙内战友活着，等待新中国联邦拯救的那一天](/content/gnews/8/README.md)
  ` MOS香港部`
 
-### [旧媒体的堕落 新媒体的崛起](/content/gnews/8/README.md)
+### [旧媒体的堕落 新媒体的崛起](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [五月花简报（04/08/2022）](/content/gnews/9/README.md)
+### [五月花简报（04/08/2022）](/content/gnews/10/README.md)
  ` mayflowertranslate`
 
-### [证词证实：俄军在乌克兰对平民的蓄意恶行是战争罪](/content/gnews/10/README.md)
+### [证词证实：俄军在乌克兰对平民的蓄意恶行是战争罪](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国利用人工智能软件提高其监控能力（二）](/content/gnews/11/README.md)
+### [中共国利用人工智能软件提高其监控能力（二）](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗损害爆发，主流媒体猛然醒悟](/content/gnews/12/README.md)
+### [疫苗损害爆发，主流媒体猛然醒悟](/content/gnews/13/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [斯洛伐克宣布向乌克兰转让S-300防空系统](/content/gnews/13/README.md)
+### [斯洛伐克宣布向乌克兰转让S-300防空系统](/content/gnews/14/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美参议员要求联邦养老金委员会被提名人不向中共国投资](/content/gnews/14/README.md)
+### [美参议员要求联邦养老金委员会被提名人不向中共国投资](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [一名加拿大妇女在接种CCP病毒疫苗后需要拐杖和轮椅才能四处活动](/content/gnews/15/README.md)
+### [一名加拿大妇女在接种CCP病毒疫苗后需要拐杖和轮椅才能四处活动](/content/gnews/16/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/16/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|新中国联邦前线救援团队传递灭共力量](/content/gnews/17/README.md)
+### [有声|新中国联邦前线救援团队传递灭共力量](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [岸田否认日本将很快恢复外国游客入境](/content/gnews/18/README.md)
+### [岸田否认日本将很快恢复外国游客入境](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/19/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [布林肯谈布查(Bucha)屠杀：&#8221;证据就在那里，全世界都能看到&#8221;](/content/gnews/20/README.md)
+### [布林肯谈布查(Bucha)屠杀：&#8221;证据就在那里，全世界都能看到&#8221;](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场视频组`
-
-### [有声|新中国联邦乌克兰救援前线报导](/content/gnews/21/README.md)
- ` MOSREC`
 
 ### [日本宣布对俄罗斯实施额外制裁](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`

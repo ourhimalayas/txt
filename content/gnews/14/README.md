@@ -2,55 +2,39 @@
 ---
 
 
-## 美参议员要求联邦养老金委员会被提名人不向中共国投资
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/2312057/)
+## 斯洛伐克宣布向乌克兰转让S-300防空系统
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2312062/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Rubio-700x420-1.jpg)参议员马可·卢比奥（佛罗里达州共和党）于 2021 年 12 月 7 日在华盛顿举行的参议院外交关系委员会听证会上发表讲话，以审查美国国会大厦的美俄政策。 （Alex Brandon-Pool摄/盖蒂图片社）
-《大纪元时报》2022年4月7日报道，
+根据总理爱德华·赫格（Eduard Heger）的声明，斯洛伐克周五（4月8日）宣布，这个北约成员国已经向乌克兰捐赠了S-300防空系统，以 “帮助其抵御俄罗斯的侵略”，这是一个极具挑衅性的声明。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-55.jpg)newsnpr.org
+斯洛伐克在北约的官方推特账户也证实，它正在 “加强对乌克兰的支持”，将 “S-300防空系统送到乌克兰，使其能够抵御俄罗斯的持续侵略。
 
-三名共和党参议员4月6日在给被提名人的信中说，总统乔·拜登 (Joe Biden)提名的联邦退休储蓄投资委员会(Federal Retirement Thrift Investment Board, FRTIB)，即联邦政府雇员的主要养老基金，应承诺不会将资金投向破坏美国国家安全的中共国公司。
+斯洛伐克国防部甚至公布了似乎是一个移动的S-300装置正在准备并从一个军事基地撤出的视频。到目前为止，似乎只有一个单位将被交给乌克兰部队。
 
-“我们对联邦退休储蓄投资委员会投票将联邦雇员的退休储蓄投资到中共国公司的过往历史深表关切，这些公司中的一些涉及到了参与中共国政府军事、间谍活动、侵犯人权和旨在破坏美国工业的侵略性工业政策等行为。”佛罗里达州参议员马尔科·卢比奥(Marco Rubio)，阿肯色州参议员汤姆·科顿(Tom Cotton)，和亚拉巴马州参议员汤米·图伯维尔(Tommy Tuberville)的联名信中写到。
+总理赫格曾表示，他的国家将前苏联时期的防御系统 “捐赠 ”给乌克兰。这一消息是在他与欧盟高级官员访问乌克兰首都时宣布的，当时正值与泽连斯基总统会面。
 
-这封信写给即将到委员会就任的由拜登提名的四个人：迈克尔·格伯(Michael Gerber)，FS投资公司高级董事；斯塔西·奥利瓦雷斯(Stacie Olivares)，Core Scientific公司董事会成员；达纳·K·比约(Dana K. Bilyeu)，全国州退休管理人员协会执行董事；以及利昂娜·M·布里奇斯(Leona M. Bridges)，旧金山雇员退休系统专员。
+因此，鉴于S-300正是所需的主要设备类型，北约似乎正一点一点地朝着在乌克兰上空建立潜在的 “禁飞区 ”迈进。考虑到这一最初有点象征性的第一步，俄罗斯的反应无疑将是激烈的。
 
-根据参议员办公室的一份声明，卢比奥还搁置了对这四名提名人的确认，直到他确信这种投资不会在他们的监督下发生。
+美联社注意到，这是对泽连斯基敦促西方对乌克兰上空的俄罗斯飞机设立禁飞区的直接回应。
 
-“FRTIB之前的行动表明，他们愿意将美国人的退休储蓄投资于致力于破坏美国利益和国家安全的中共国公司，并使联邦雇员的退休储蓄面临相当大的风险。这在未来是不被允许的。”信中说。
+泽连斯基在上个月通过视频与美国立法者谈话时提到了S-300的名字，呼吁建立防御系统，让乌克兰对俄罗斯战机和导弹 “关闭天空”。
 
-参议员们指的是该机构2017年的一项决定，即其将用于国际股票投资基金的指数转移到更广泛的MSCI美国以外所有国家可投资市场指数(MSCI All Country World ex-U.S. Investable Market Index)，该指数代表了99%的国际股票市场，其中中共国公司占7.5%的权重。此举原定于2020年夏天生效，但在川普政府和国会议员的巨大压力下，FRTIB于当年宣布“推迟”这一过渡。
+这一行动也是在北约外交部长周四在布鲁塞尔举行会议之后发生的，据报道，他们同意向乌克兰提供 “新的和更重的武器”，尽管还没有界定考虑哪些确切的武器系统。
 
-该基金目前依赖另一个MSCI指数，该指数仅代表国际市场的58%，并且不包括中共国。
+俄罗斯发誓，它已经准备好将任何从外部截获的外国武器运输作为 “合法目标 ”进行攻击。S-300的转让无疑将北约和俄罗斯带到了一个更直接的碰撞轨道上，目前还不清楚其他北约盟国在多大程度上同意了这种挑衅性的交付。
 
-参议员们写道：“如果计划中的转变发生了，中共国将在该基金中获得所有国家中第三多的投资，这可能会使数十亿美元的联邦雇员退休资产面临与该指数中的许多中共国公司相关的风险。”
+**快评**：这是零对冲4月8日早间的一篇报道【1】，让我们看到“北约与俄罗斯被带到了一个更直接的碰撞轨道上”。
 
-在信中，立法者要求被提名人承诺保证该基金不会效仿所有国家世界指数(All Country World Index)；确保节余储蓄基金(Thrift Savings Fund)的资金不会被投资于在交易所上市的部分证券，如果这些证券无法被上市公司会计监督委员会(Public Company Accounting Oversight Board)，审计行业监督机构，按照美国法律要求进行适当审计；并投票确保联邦雇员的退休基金不会流向对美国国家安全不利的中共国公司。
+与此同时，零对冲还发表了另外两篇文章【2】、【3】，关注的是芬兰和瑞典这两个长期对北约保持中立的国家，最近因为俄乌战争的影响而迫切要加入北约，北约也表示可以通过快速通道让它们达成。
 
-**简评：**
-自从中共被允许加入WTO，其邪恶的触手便借助“蓝、金、黄”的手段无孔不入地渗透进入西方民主国家。被中共滋养壮大的吸血鬼们变得越来越贪婪，同时也逐渐沦为中共的帮凶，其中以华尔街的金融巨鳄们为最甚。
+显而易见，俄乌之战正在彻底改变欧洲的政治形势。加上法国、匈牙利等都面临着大选，尘埃落定后，郭先生说，一个以乌克兰为中心的欧洲将崛起，俄罗斯将被解体。那北约呢，北约如何发展呢？我们拭目以待。
 
-拿太盟投资集团PAG为例，在其与黑石合作后，许多美国的养老基金，甚至教育基金，逐渐被投入其中。从2018年11月开始，美国加州公共雇员退休系统投资PAG 3.8个亿，加州教师退休系统投资2.5亿，马里兰州退休和养老基金投资7500万美元，还有旧金山雇员退休系统，德州雇员退休系统，佛罗里达州行政管理委员会养老金，德州教师退休系统公共养老等等。这些美国资本的最终去向与对应的风险不为人知，但可以确信的是，他们已经受制于中共的魔爪之下。这不由得让人猜想，这些养老基金的管理人也许对投资，尤其是对与中共相关的投资了解甚少，并没有引起足够的警觉，又或者他们也是共犯之一，钻了法规的空子。值得庆幸的是，美国有如卢比奥之流的有志之士，抓住机会，从源头遏制了这一投资的继续进行，为这些基金保驾护航。
+参考链接：
+【1】[https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine](https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine)
+【2】[https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament](https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament)
+【3】[https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast](https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast)
 
-如今中美冲突越发明显，中共毫不掩饰其想要称霸的野心。在“和平时期”，这些养老金的投资和华尔街的操作可能只是挣钱的工具；而当真的对立开战，流氓如中共必定以这些投入的养老金为要挟，直接对抗西方。而美国人辛苦攒下的养老金，不仅会被中共用来对付中国人，同样也会被用来对付美国人自己。爆料革命、新中国联邦在文贵先生的带领下，一直警示世界，和中共合作，迟早会进火葬场。现在摇摇欲坠的金融泡沫，飞涨的物价以及通货膨胀，告诉所有人灾难即将来临。很幸运的是，已经有许多人醒来意识到这个问题，全面脱钩已经开始了；不幸的是，这场金融灾难注定以雪崩的形式到来，会导致很多人无家可归，而这是全世界包括中国人放纵共产主义的代价。
-
-新闻链接：[GOP Senators Demand Biden’s Federal Pension Board Nominees Pledge Not to Invest in Chinese Firms](https://www.theepochtimes.com/gop-senators-demand-bidens-federal-pension-board-nominees-pledge-not-to-invest-in-chinese-firms_4390197.html?slsuccess=1)
-
-*翻译/简评：milkcat*
-
-*校对：村民彼得潘*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/HHS_QRCode_up_220405.jpg)
-
-
+**编译 发布：意大利罗马达芬奇农场Roma**
 
  
 
