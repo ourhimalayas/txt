@@ -2,10 +2,12 @@
 ---
 
 
-## 20220406文贵大直播：上海实行军管与假抗疫
-` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2306540/)
+## ​​世界看到了在乌克兰发生的事情,司法部看到了在乌克兰发生的事情。
+` Tokyo Sakura Video Group` [轉載自GNews](https://gnews.org/zh-hans/2306663/)
 
 作者：东京樱花团小视频组
+
+司法部长梅里克-加兰宣布，司法部将支持国际社会努力调查乌克兰的潜在战争罪行
 
 校对：东京樱花团小视频组
 编辑发布：东京樱花团小视频组

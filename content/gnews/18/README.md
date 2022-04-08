@@ -2,31 +2,30 @@
 ---
 
 
-## 芬兰扣押了运往俄罗斯的价值4600万美元的艺术品
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2306573/)
+## 新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2306672/)
 
-**撰稿****:****日本东京方舟农场**** JIHO**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-7.png)
 
-根据路透社四月六日信息，芬兰海关周三表示，由于欧盟对俄罗斯的制裁，他们已于上周末扣押了价值约 4600 万美元的运往俄罗斯艺术品，并将就其奢侈品的地位与布鲁塞尔进行磋商。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/芬兰扣押了运往俄罗斯的价值4600万美元的艺术品（JIHO）.png)图片来自Pyry Sarkiola/YLE, 图中为俄罗斯艺术品被扣地点
+校对：Stay文苑
 
-芬兰海关执法部门主任萨米-拉克希特(Sami Rakshit)说，海关在从意大利和日本经芬兰返回俄罗斯的途中查获了三批绘画、雕像和古董，这些东西是从俄罗斯的博物馆和艺术画廊临时借来的。
+编辑：Stay文苑
 
-拉克希特说，艺术品被认为是属于欧盟对俄罗斯实施制裁的奢侈品，因为俄罗斯入侵乌克兰。 尽管俄罗斯称其为旨在对其邻国进行非军事化和“去纳粹化” 的“一项特殊行动”。
+发稿：Stay文苑
 
-海关表示，没收的物品仍然是俄罗斯的财产，将在芬兰遗产局的监督下存放，同时，海关怀疑十几名参与运输的人试图违反制裁规定。
+新闻：[https://gettr.com/post/p144lucc8a9](https://gettr.com/post/p144lucc8a9)
+访谈：[https://gettr.com/post/p144i2se9a5](https://gettr.com/post/p144i2se9a5)
 
-而俄罗斯新闻社Moskva援引俄罗斯文化部的话说，被芬兰拦截的艺术品是从俄罗斯主要的艺术馆，如圣彼得堡的冬宫博物馆和皇村国家博物馆，以及莫斯科的国立特列季亚科夫画廊的收藏中借给意大利的。并补充道，其中来自日本的其他艺术品起源于普希金国家美术馆。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
 
-据悉，上个月，米兰的两家博物馆表示，在俄罗斯博物馆要求提前归还几件借出的艺术品后，他们将归还这些艺术品。
-
-参考链接：
-
-[https://www.reuters.com/world/europe/finnish-customs-impound-art-works-worth-42-mln-euros-way-back-russia-2022-04-06/](https://www.reuters.com/world/europe/finnish-customs-impound-art-works-worth-42-mln-euros-way-back-russia-2022-04-06/)
-
-编辑：青城道姑
-校对发布：wenxia16
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

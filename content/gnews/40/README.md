@@ -2,33 +2,46 @@
 ---
 
 
-## 德国联邦议院否决了60岁以上人群的疫苗强制法案
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2305934/)
+## 来自俄、伊和委内瑞拉的数百万桶原油在中共国近海堆积
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305948/)
 
-**撰稿**:**日本东京方舟农场 JIHO**
+编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-16.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-454.png)
 
-根据网路综合消息，周四，德国联邦议院以378:296否决了一项要求所有 60 岁以上人群接种COVID-19 疫苗的法案。
+据Kpler报道，载有2200万桶俄罗斯、伊朗和委内瑞拉石油的油轮在中国沿海堆积如山，因为中共国正在与爆发的病毒作斗争，该病毒正在削弱需求并导致物流问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-8.png)图片来自GETTY IMAGES
+在过去几年中，中共国一直是被制裁的伊朗和委内瑞拉石油的唯一买家之一。这个世界上最大的原油进口国还在接受俄罗斯的供应，这些供应在乌克兰被入侵后基本上被回避了。
 
-该法案由总理奥拉夫-肖尔茨和他的卫生部长卡尔-劳特巴赫推动通过，被认为是在执政联盟和反对党的立法者对适用于该国所有成年人的疫苗授权的想法感到困惑后的一个妥协解决方案。
+折价石油的交易现在正被该国不断恶化的病毒爆发所扰乱，等待卸货的时间也在增加。新加坡数据和分析公司的高级石油分析师Jane Xie表示，Kpler估计4月份的石油日需求量将下降至少45万桶，主要原因是汽油和航空燃料的消费下降。
 
-如果获得通过，除非他们获得医疗豁免，否则将要求 60 岁以上的人群在 2022 年 10 月 1 日之前出示针对 Covid-19 的三次疫苗接种的证明。
+她说：“中国正在进行的封锁肯定对中国的流动性和随之而来的石油需求产生了巨大影响。还存在物流瓶颈。”
 
-总理奥拉夫-肖尔茨曾在2021年11 月下旬吹捧对所有成年人进行强制疫苗接种是摆脱大流行的最可靠方法，他设定了在“2 月下旬或 3 月初”引入疫苗接种的目标。
+中共国的独立炼油商通常是这些等级原油的主要买家，部分原因是价格便宜，而且靠近俄罗斯东部港口，但他们在Covid复苏后的巨大市场波动中受到重创。炼油利润的缩减迫使他们削减操作费，甚至重新出售一些货物的原油。
 
-然而，该法案未能得到议会多数票的支持，反对党认为，鉴于全国病例数量正在下降，没有必要强制执行疫苗。
+据Kpler称，目前的僵局与年初时来自俄罗斯、伊朗和委内瑞拉的约1000万桶石油相比，在中国沿海停放。彭博社根据官方数据的计算结果显示，在目前的病毒爆发之前的1月和2月，中国的表面石油需求平均每天约1370万桶。
 
-在宣布结果时，坐在联邦议院右侧角落的德国选择党政治家们发出了响亮的欢呼声和掌声。
+它说，中国港口的船舶平均等待时间已经从3月28日开始的一周的4.46天上升到现在的5.85天。对于可容纳100万桶原油的苏伊士型船来说，等待时间从上周的4.46天飙升至15天。
 
-民主在胜利，不管以何种理由，任何违背个人意愿的强制行为都应该被谴责，更何况有害的中共病毒疫苗。
+另一家分析公司Vortexa Ltd.说，有大约1600万桶伊朗和委内瑞拉的原油在油轮上等待中国。据Vortexa公司的分析师Emma Li称，3月份，每天有大约100万桶石油从俄罗斯远东地区运往亚洲，其中中共国占了大约70%。
 
-参考链接：
-[https://reurl.cc/EpEEd0](https://reurl.cc/EpEEd0https://reurl.cc/MbqqEp)
-[https://reurl.cc/MbqqEp](https://reurl.cc/EpEEd0https://reurl.cc/MbqqEp)
+Li说，本月上半月，有10艘来自俄罗斯远东地区的framax大小的船只–每艘可装载约10万吨石油–显示中共国为其目的地。她说，这些货物可能是在入侵乌克兰之前购买的。
 
-编辑：青城道姑
-校对发布：Linda
+来源：[Oil tankers with millions of barrels of crude from Russia, Iran and Venezuela are piling up off China—but sanctions aren’t the problem](https://fortune.com/2022/04/07/oil-tankers-millions-barrels-crude-russia-iran-venezuela-piling-up-off-china-sanctions-not-problem/)
+
+* * *
+
+审核：Aries星
+校对：阿伯塔
+发布：夜来香
+
+**更多资讯，更多关注**
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-11.jpeg)
 
  
 

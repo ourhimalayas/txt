@@ -15,131 +15,131 @@
 
 ---
 
-### [人民日报强调动态清零背后的上海官逼民反逼习灭亡戏码](/content/gnews/1/README.md)
- ` 喜马拉雅日本银河系农场`
+### [闲聊澳洲-综合消息](/content/gnews/1/README.md)
+ ` 走进澳洲`
 
-### [大直播后记：封城之下，下跪文化几时休？](/content/gnews/2/README.md)
+### [中共正在想尽办法应对即将到来的银行挤兑](/content/gnews/2/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [大直播后记：文耀与老班长连线](/content/gnews/3/README.md)
  ` 雅典娜GNotes`
 
-### [秘翻在线：互联网令中共越来越难以欺骗国人去为俄唱赞歌](/content/gnews/3/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国会法案通过取消俄罗斯和白俄罗斯最惠国待遇](/content/gnews/4/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [研究发现第四针疫苗第二针加强剂仅有几周保护作用](/content/gnews/5/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [拜登总统宣布对俄罗斯实施新的经济制裁](/content/gnews/6/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乌克兰再次呼吁东部民众撤离 俄军可能发动攻势](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [视频|中共疫情下猪狗不如的中国人「非脱敏」](/content/gnews/8/README.md)
- ` 爆料视频`
-
-### [美国宣布将对俄罗斯进行新一轮的毁灭性制裁](/content/gnews/9/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国司法部：与俄罗斯有联系的世界上最大的暗网市场被查封和关闭](/content/gnews/10/README.md)
- ` 波士顿五月花农场金融部`
-
-### [樱花时政┃联合国大会将俄罗斯逐出人权理事会，93个国家同意，中共等24国反对！](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国计划断绝俄罗斯军队的资金和物资来源](/content/gnews/12/README.md)
- ` 蓝莲花农场`
-
-### [新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚](/content/gnews/13/README.md)
- ` 纽约香草山MOS01`
-
-### [视频|俄乌战争救援呼吁（非脱敏）](/content/gnews/14/README.md)
- ` 爆料视频`
-
-### [​​世界看到了在乌克兰发生的事情,司法部看到了在乌克兰发生的事情。](/content/gnews/15/README.md)
- ` Tokyo Sakura Video Group`
-
-### [上海港口：封城检测致港口集装箱大量堆积](/content/gnews/16/README.md)
- ` 日本東京方舟農場`
-
-### [俄罗斯退出人权理事会的模式开启中共等极权国家的先河](/content/gnews/17/README.md)
+### [人民日报强调动态清零背后的上海官逼民反逼习灭亡戏码](/content/gnews/4/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [芬兰扣押了运往俄罗斯的价值4600万美元的艺术品](/content/gnews/18/README.md)
- ` 日本東京方舟農場`
+### [大直播后记：封城之下，下跪文化几时休？](/content/gnews/5/README.md)
+ ` 雅典娜GNotes`
 
-### [遏制高企油价，IEA计划再释放近6000万桶石油](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
+### [拜登:俄罗斯在联合国人权理事会中没有一席之地](/content/gnews/6/README.md)
+ ` 美国政要直译推`
 
-### [20220406文贵大直播：上海实行军管与假抗疫](/content/gnews/20/README.md)
+### [视频|乌鸦不识猪黑，都是被独裁铁拳挥揍的对象「非脱敏」](/content/gnews/7/README.md)
+ ` 爆料视频`
+
+### [秘翻在线：互联网令中共越来越难以欺骗国人去为俄唱赞歌](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国会法案通过取消俄罗斯和白俄罗斯最惠国待遇](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [研究发现第四针疫苗第二针加强剂仅有几周保护作用](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [拜登总统宣布对俄罗斯实施新的经济制裁](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乌克兰再次呼吁东部民众撤离 俄军可能发动攻势](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [视频|中共疫情下猪狗不如的中国人「非脱敏」](/content/gnews/13/README.md)
+ ` 爆料视频`
+
+### [美国宣布将对俄罗斯进行新一轮的毁灭性制裁](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国司法部：与俄罗斯有联系的世界上最大的暗网市场被查封和关闭](/content/gnews/15/README.md)
+ ` 波士顿五月花农场金融部`
+
+### [樱花时政┃联合国大会将俄罗斯逐出人权理事会，93个国家同意，中共等24国反对！](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国计划断绝俄罗斯军队的资金和物资来源](/content/gnews/17/README.md)
+ ` 蓝莲花农场`
+
+### [新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚](/content/gnews/18/README.md)
+ ` 纽约香草山MOS01`
+
+### [视频|俄乌战争救援呼吁（非脱敏）](/content/gnews/19/README.md)
+ ` 爆料视频`
+
+### [​​世界看到了在乌克兰发生的事情,司法部看到了在乌克兰发生的事情。](/content/gnews/20/README.md)
  ` Tokyo Sakura Video Group`
 
-### [樱花时政┃中共上海市委致信党员：对破坏抗疫大局行为要敢于亮剑](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳洲情报官员拜访所罗门群岛，索加瓦雷总理依旧骑墙](/content/gnews/22/README.md)
- ` 走进澳洲`
-
-### [樱花时政┃联大表决暂停俄人权理事会资格，中共投反对票](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国疫情封控乱象](/content/gnews/24/README.md)
- ` 走进澳洲`
-
-### [秘翻在线：韩国新冠（中共病毒）新增确诊数、危重症数、死亡人数统计](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [谈古论今 | 上海防疫不是防疫是对内超限战](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [联合国大会投票表决暂停俄罗斯人权理事会资格](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本主管部门已制定援助乌避难民众草案](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：北约秘书长表示乌克兰战争有可能持续数年](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [喜币让人真正实现劳动获得的财富不受掠夺](/content/gnews/30/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美军参谋首长：美国会助台湾自卫](/content/gnews/31/README.md)
- ` 蓝莲花农场`
-
-### [国企文件揭露中共早就想在所罗门群岛建立军事基地](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗](/content/gnews/33/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【G时新闻】美国参议院一致通过“乌克兰民主防御租借法案”](/content/gnews/34/README.md)
- ` G-时新闻`
-
-### [联合国投票暂停了俄罗斯的人权理事会成员资格](/content/gnews/35/README.md)
- ` 蓝莲花农场`
-
-### [樱花时政┃中共违反国际对俄制裁，用人民币购买俄国能源](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [德国警方捣毁俄罗斯大型暗网Hydra](/content/gnews/37/README.md)
+### [上海港口：封城检测致港口集装箱大量堆积](/content/gnews/21/README.md)
  ` 日本東京方舟農場`
 
-### [4月7日乌克兰救援行动（图片1-8）](/content/gnews/38/README.md)
+### [俄罗斯退出人权理事会的模式开启中共等极权国家的先河](/content/gnews/22/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [芬兰扣押了运往俄罗斯的价值4600万美元的艺术品](/content/gnews/23/README.md)
+ ` 日本東京方舟農場`
+
+### [遏制高企油价，IEA计划再释放近6000万桶石油](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20220406文贵大直播：上海实行军管与假抗疫](/content/gnews/25/README.md)
+ ` Tokyo Sakura Video Group`
+
+### [樱花时政┃中共上海市委致信党员：对破坏抗疫大局行为要敢于亮剑](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳洲情报官员拜访所罗门群岛，索加瓦雷总理依旧骑墙](/content/gnews/27/README.md)
+ ` 走进澳洲`
+
+### [樱花时政┃联大表决暂停俄人权理事会资格，中共投反对票](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国疫情封控乱象](/content/gnews/29/README.md)
+ ` 走进澳洲`
+
+### [秘翻在线：韩国新冠（中共病毒）新增确诊数、危重症数、死亡人数统计](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [谈古论今 | 上海防疫不是防疫是对内超限战](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [联合国大会投票表决暂停俄罗斯人权理事会资格](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本主管部门已制定援助乌避难民众草案](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：北约秘书长表示乌克兰战争有可能持续数年](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国企文件揭露中共早就想在所罗门群岛建立军事基地](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [联合国投票暂停了俄罗斯的人权理事会成员资格](/content/gnews/36/README.md)
+ ` 蓝莲花农场`
+
+### [樱花时政┃中共违反国际对俄制裁，用人民币购买俄国能源](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国警方捣毁俄罗斯大型暗网Hydra](/content/gnews/38/README.md)
+ ` 日本東京方舟農場`
+
+### [4月7日乌克兰救援行动（图片1-8）](/content/gnews/39/README.md)
  ` 波士顿五月花农场`
 
-### [来自俄、伊和委内瑞拉的数百万桶原油在中共国近海堆积](/content/gnews/39/README.md)
+### [来自俄、伊和委内瑞拉的数百万桶原油在中共国近海堆积](/content/gnews/40/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [德国联邦议院否决了60岁以上人群的疫苗强制法案](/content/gnews/40/README.md)
+### [德国联邦议院否决了60岁以上人群的疫苗强制法案](/content/gnews/41/README.md)
  ` 日本東京方舟農場`
 
-### [白宫对普京的两个（公认的）女儿的新制裁](/content/gnews/41/README.md)
+### [白宫对普京的两个（公认的）女儿的新制裁](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [俄乌战局最近消息汇总](/content/gnews/42/README.md)
- ` NFSC News`
 
 ### [维基百科的肮脏小秘密](/content/gnews/43/README.md)
  ` 西班牙巴塞罗那喜悦农场`

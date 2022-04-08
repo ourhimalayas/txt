@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 3:04 AM (UTC)`
+
+2022-4-7《鸡血王喜币大作战》 第一百五十八集 嘉宾：青藤、文空
+![img](https://media.gettr.com/group32/origin/2022/04/08/02/f3e8a65e-b2bf-453d-3b30-8471ea63b82d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@ridgway 4/7/2022 5:09 PM (UTC)`
@@ -148,12 +155,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 2022.04.07 早 新中国联邦 | 新闻 新中国联邦国旗气球深受乌克兰儿童喜爱；郭先生谈综合认知能力的重要性
 ![img](https://media.gettr.com/group36/origin/2022/04/07/12/d148a932-0bee-adee-525e-69a1b4dff10c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 12:06 PM (UTC)`
-
-04/07/2022 on the 4th day of release of Miles Guo’s 2 new songs<br/><br/>“The Terminator Snow” Hits iTunes <br/>#1 🥇on New Zealand 🇳🇿 Top Song Charts<br/>#1 🥇 on 15 Countries Rock Song Charts<br/><br/>“Chained Dream” Hits iTunes<br/>#1 🥇on Cambodia 🇰🇭 Top Song Charts<br/>#1 🥇 on New Zealand🇳🇿 , Hungary 🇭🇺 and Cambodia 🇰🇭 Pop Song Charts<br/><br/>“Fight for Hong Kong” Hit iTunes<br/>#1 🥇on Laos 🇱🇦 Rock Song Charts<br/><br/>Miracle continues……🎉🎉🎉🎉🎉🎉🎉<br/><br/>Thank you very much to all our brothers and sisters in HongKong, Taiwan, Macau, Singapore, Malaysia, Germany, New Zealand, Australia, Spain, Netherlands, Sweden, Philippines, Cambodia, Mongolia, Finland, Hungary， Laos🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2303480/
 
 ---
 

@@ -2,30 +2,27 @@
 ---
 
 
-## 新中国联邦新闻、GTV新闻访谈简报|2022年4月7日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/2306672/)
+## 视频|中共疫情下猪狗不如的中国人「非脱敏」
+` 爆料视频` [轉載自GNews](https://gnews.org/zh-hans/2306736/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-40-1-6-33.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/text-SC-7.png)
+视频制作：文果
 
+撰稿人：Miyali7768(文玉）
 
-校对：Stay文苑
+文案审核：文炬
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+新闻来源：伪装的白衣天使
+副标题：大白衣掩盖不了训练有素的杀手和罪恶
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-新闻：[https://gettr.com/post/p144lucc8a9](https://gettr.com/post/p144lucc8a9)
-访谈：[https://gettr.com/post/p144i2se9a5](https://gettr.com/post/p144i2se9a5)
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/April-calendar.jpg)
+发稿：qiutian（邱甜）
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
+**[郭文贵先生Gettr](https://gettr.com/user/miles)**
+[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+![](https://assets.gnews.org/wp-content/uploads/2022/03/%E6%88%AA%E5%B1%8F2022-03-22-%E4%B8%8A%E5%8D%8810.53.46.png)
+
 
  
 
