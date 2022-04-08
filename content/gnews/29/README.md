@@ -2,19 +2,49 @@
 ---
 
 
-## 文贵大直播|《230法案》让垄断的媒体公司权力过大 操纵舆论 掩盖真相
-` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2311782/)
+## 美国法院恢复拜登政府对所有联邦雇员的疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2312066/)
 
-撰稿：东京樱花团/瓜子
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-09_014108.png)
-去年7月盖特上线后，Joe Rogan给盖特带来了上百万的用户。而推特由于封川普总统账户致使用户大量流失，股价缩水一半，这是目前现状的根本原因，《230法案》规定互联网的ISP有权合法地进行内容审查，而且对用户的不当内容可以不负责，实际上就是在法律上给了互联网公司一个免死金牌。虽然当时对谷歌、推特、雅虎等互联网公司起到了正向作用，但经过大浪淘沙后，高科技公司形成了垄断，加上中共的蓝金黄，使推特形成了主观的内容审查方式，大量的推特号被封杀，爆料革命的战友也都深受其害。马斯克想让推特起死回生，必须要有些不同做法，比如放宽审查内容，避免独断地把真相信息过滤掉，否则决不会成功。Elon Musk如果能在真相传播上进行改革，对灭共事业也会起到正向作用。
+作者：纽约香草山农场 – 四季
 
-消息来源：
-[2022年4月6日《文贵大直播》](https://gettr.com/streaming/p13unl27254)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-编辑：东京樱花团/荆轲
-发布：东京樱花团/承宇
-![](https://assets.gnews.org/wp-content/uploads/2022/03/997-1.png)
+
+
+
+
+据[网关专家](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)4月7日的报道，美国拜登总统要求所有联邦雇员接种COVID-19疫苗的规定当日得到了联邦上诉法院的支持。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/blob-1.jpeg)[图片来源](https://www.thegatewaypundit.com/2022/04/just-u-s-court-reinstates-bidens-covid-19-vaccine-mandate-federal-employees/)
+
+在一项2-1的裁决中，第五巡回上诉法院的一个小组推翻了下级法院的裁决，并下令驳回了一项挑战该强制令的诉讼。这是政府在新奥尔良上诉法院的一次罕见胜利。裁决称联邦法官对该案件没有管辖权，那些挑战该要求的人可以根据公务员法寻求行政补救措施。
+
+早在去年1月，布朗法官阻止了拜登政府对联邦雇员的最后一次疫苗强制令。政府认为，宪法赋予总统作为联邦工作人员的最高领导，与私营企业的首席执行官一样，有权力要求员工接种疫苗。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220402四月月历-2.png)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

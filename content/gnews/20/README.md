@@ -2,31 +2,24 @@
 ---
 
 
-## 【G叻睇真D】特鲁多政权因错误疫情政策而造成巨额浪费
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/2312484/)
+## 乌总统向联合国通报俄军对平民的大屠杀
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312618/)
 
-##### 播  报：加拿大温哥华扬帆农场 -【yuyu】
-视频制作：加拿大温哥华扬帆农场 -【geacelshan】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-据【真北方】4月4日报道， 因加拿大公共卫生署在疫情期间对个人卫生防护用品处置不当，而致使该国纳税人损失逾1.06亿加元。
+作者：加拿大温哥华扬帆农场-重生之鹰
 
-报道称，由于当局此前向无法履行订单的供应商预付了1.05亿加元以及价值数百万加元的防疫物资被盗等原因，而造成了以上的巨额损失。此外，加拿大在疫情初期向中共运送了16吨个人防护品，随后再被迫高价购买并依赖中共国劣质捐赠品。在疫情前一年，公共卫生署还随意丢弃了数百万个N95口罩等防疫用品。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-874.png)图片来源：CTV
 
-据悉，以上只是当局因政策失误所造成损失中的一部分。尽管目前特鲁多政府已支付了数亿加元给加拿大本地防护用品供应商，但该国议会仍在发放和使用中共国制造的不合规口罩。
 
-盖特链接：[https://gettr.com/post/p147bcu94ce](https://gettr.com/post/p147bcu94ce)
+来自CTV NEWS 4月5日的报道称，乌克兰总统弗拉基米尔·泽伦斯基(Volodymyr zelensky)指责俄罗斯人在乌克兰犯下了令人发指的暴行，并于周二告诉联合国安理会(UN Security Council)，应立即以战争罪的罪名将肇事者送上二战后在纽伦堡设立的法庭。
 
-编辑/发文 -【蔚蓝之境】
-![](https://assets.gnews.org/wp-content/uploads/2022/03/截屏2022-03-22-上午10.53.46-2.png)
-* * *
+泽伦斯基在乌克兰通过视频向联合国外交官发表讲话，他说，“平民遭受酷刑，后脑中枪，被扔到井里，在公寓里被手榴弹炸飞，在汽车里被坦克碾死。他们砍掉他们的四肢，割断他们的喉咙。妇女在她们的孩子面前被强奸和杀害，有的人们的舌头被拔掉，“泽伦斯基说，”无论是那些实施杀戮的人，还是那些下达命令的人，都必须立即以战争罪被绳之以法”，接受类似于战后德国所使用的法庭审判。“
 
-更多加拿大温哥华扬帆农场的频道，请关注：
+俄罗斯军队在从基辅郊区撤出之前，在布查和其他城镇蓄意杀害平民的恐怖画面引起了全球的强烈抗议，他们的暴行必须得到审判！
 
-- [Gettr: 加拿大温哥华扬帆农场 G-时新闻](https://gettr.com/user/torontofarmnews)
-- [Gettr: 加拿大温哥华扬帆农场 蓝枫法律](https://gettr.com/user/lanfengfalv)
-- [Gettr: 加拿大温哥华扬帆农场](https://gettr.com/user/torontofarmcn)
+链接：[https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471](https://www.ctvnews.ca/world/zelenskyy-at-the-un-accuses-russian-military-of-war-crimes-1.5848471)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/03/Canada_YF_banner_CN.png)
+编辑发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

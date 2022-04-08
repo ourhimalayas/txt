@@ -2,25 +2,24 @@
 ---
 
 
-## 黑客显然瘫痪了芬兰政府网站
-` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/2312485/)
+## 马斯克被任命为 Twitter 董事会成员
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312625/)
 
-**乌克兰总统泽连斯基向芬兰议会发表视频讲话时，多个政府网站出现故障。**
+作者：加拿大温哥华扬帆农场-重生之鹰
 
-作者：str/原文发布于2022年4月8日19:20 (CET)
-翻译：LK
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-875.png)图片来源：TPM
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/pasted-image-2-1.jpg)图片：芬兰政府显然成了网络攻击的受害者（象征性的图片）。DPA/Sebastian Gollnow
 
-芬兰议会的会议上，在接通乌克兰总统沃洛迪米尔·泽连斯基期间，明显发生了几起与安全有关的事件。
+执行官帕拉格·阿格拉沃尔在4月5日的一则推特上宣布，“我们将任命特斯拉和SpaceX的创始人兼首席执行官埃隆•马斯克为董事会成员。通过最近几周与埃隆的对话，我们清楚地认识到，他将为我们的董事会带来巨大的价值。”
 
-芬兰外交部和国防部宣布，芬兰政府和几个部​​委的网站暂时无法对用户开放。 据政府称，该事件是由黑客攻击造成的。
+马斯克在回应阿格拉沃尔时表示，他“期待与帕拉格公司合作”。Twitter董事会将在未来几个月对Twitter做出重大改进。马斯克强调言论自由对一个运转正常的民主制度至关重要。
 
-国防部还报告说，周五上午，一架俄罗斯政府飞机侵入了芬兰领空。据报道，该飞机侵入领空达三分钟的之久。
+此前，一份提交给美国证券交易委员会(sec)的文件显示，马斯克现在持有该公司9.2%的股份，随后他成为了Twitter的最大股东之一。据《市场观察》报道，马斯克的董事会任期将于2024年到期。
 
-原文链接：[https://www.berliner-zeitung.de/news/hacker-legen-offenbar-finnische-regierungswebsites-lahm-li.221462](https://www.berliner-zeitung.de/news/hacker-legen-offenbar-finnische-regierungswebsites-lahm-li.221462)
-发布：LK
-![](https://assets.gnews.org/wp-content/uploads/2022/04/2022-04-06-10.11.01.jpg)
+链接：[https://thepostmillennial.com/breaking-elon-musk-twitter-board](https://thepostmillennial.com/breaking-elon-musk-twitter-board)
+
+编辑发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

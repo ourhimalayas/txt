@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 11:37 PM (UTC)`
+
+2022.04.08《The Fringe》 Episode 165  Sweeping New Sanctions against Russia
+![img](https://media.gettr.com/group36/origin/2022/04/08/23/32f44c48-9d1b-dc3c-c6ba-bd475ae34b2a/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
+`@miles 4/8/2022 11:30 PM (UTC)`
+
+4/8/2022 Ukraine Rescue: Fellow fighters at the front line of the Ukraine rescue operation have received extensive attention from various world media. Many journalists are very interested in our cause to take down the Chinese Communist Party. Fellow fighters have shown the world that we are the new Chinese dedicated to taking down the CCP. We are the extraordinary ones who are different from the CCP!<br/><br/>4/8/2022 乌克兰救援连线: 救援前线的战友受到了世界各个媒体的广泛关注，很多记者对我们灭共的事业饶有兴致；战友们向世界展示出我们是灭共的新中国人，我们和中共不一样！<br/>
+![img](https://media.gettr.com/group23/getter/2022/04/08/23/87957525-b6ec-e799-14fb-17471adb1830/out.jpg)
+
+---
+
 `@miles 4/8/2022 11:23 PM (UTC)`
 
 4/8/2022 Miles Guo’s GETTR: The fellow fighters on the front line of the Ukraine rescue operation shocked the world with their actions, telling the world in time that the Chinese Communist Party does not represent the Chinese people, and showing that we are the extraordinary ones who are different from what the world imagines the Chinese to be. We are so blessed that we must be grateful to God and all fellow fighters who contributed!<br/><br/>4/8/2022 文贵盖特：救援前线的战友用行动震惊了全世界，及时告诉了世界中共不代表中国人，并展现出了我们和他们想像的中国人完全不一样的素质；我们太幸福了，我们要感恩上天和所有付出的战友们！<br/>
@@ -138,20 +152,6 @@ The NFSC (New Federal State of China) and ROL Foundation Rescue team provided hu
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月7日第34天当日救援统计：<br/>Medyka救援站接待：约251人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9831人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 34 - Date: April 7, 2022 :<br/>Medyka Rescue Station Reception: about 251 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9831 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group24/getter/2022/04/08/13/f23f96a9-97e9-6ff6-dad1-dc7a7d7b8fa1/7ca0655c6ce6392704aa7883e36ec64f.jpg)
-
----
-
-`@miles 4/8/2022 12:54 PM (UTC)`
-
-2022年4月8日 文贵大直播：俄乌战争最新信息及分析；国内疫苗灾难更新及警告；佩罗西访台在即台海局势；大直播科普系列人工智能
-![img](https://media.gettr.com/group13/origin/2022/04/08/12/0d1f3cda-e021-6148-1a44-ff92c5e7f826/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 12:44 PM (UTC)`
-
-Today, a group of volunteers from Israel came to the Medyka rescue camp and came to our tent to meet and rest. The volunteer from Jerusalem told us that they heard that our NFSC&ROLF tent was the best equipped tent here, and it’s a good place to meet, rest and drink coffee. She also heard that the tent was provided by people from the New Federal State of China(NFSC). She wished for the success of the NFSC to free 1.4 billion Chinese people from the slavery of the Chinese Communist Party (CCP).<br/><br/>今天营地里刚来了几十个从以色列来的援救义工，他们刚到营地，就来我们帐篷开会、休息。 在采访中，这个来自耶路撒冷的义工告诉我们，他们一来，就听其他义工介绍说法治基金新中国联邦的大帐篷是设施条件最好的、最舒适的基地，可以休息、开会、喝现磨的咖啡。她还听说，这个帐篷是灭共的新中国联邦人建的。 这个以色列义工祝愿新中国联邦成功，将14亿中国人从中国共产党的奴役中解放。
-![img](https://media.gettr.com/group47/origin/2022/04/08/12/1c2ffaec-ae02-82f9-fc63-830786b02833/out.jpg)
 
 ---
 

@@ -2,40 +2,33 @@
 ---
 
 
-## 斯洛伐克宣布向乌克兰转让S-300防空系统
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/2312062/)
+## 病毒大流行和乌克兰战争致使中国农民在播种季节面临肥料短缺问题
+` KarmaLabs` [轉載自GNews](https://gnews.org/zh-hans/2312564/)
 
-根据总理爱德华·赫格（Eduard Heger）的声明，斯洛伐克周五（4月8日）宣布，这个北约成员国已经向乌克兰捐赠了S-300防空系统，以 “帮助其抵御俄罗斯的侵略”，这是一个极具挑衅性的声明。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/3-55.jpg)newsnpr.org
-斯洛伐克在北约的官方推特账户也证实，它正在 “加强对乌克兰的支持”，将 “S-300防空系统送到乌克兰，使其能够抵御俄罗斯的持续侵略。
+撰稿：东京樱花团/calvin
 
-斯洛伐克国防部甚至公布了似乎是一个移动的S-300装置正在准备并从一个军事基地撤出的视频。到目前为止，似乎只有一个单位将被交给乌克兰部队。
+中国氮肥工业协会周五警告说，冠状病毒封锁可能会破坏中国东北地区农场的化肥供应，从而危及春季玉米和大豆种植季节。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20220409-farmer-spreads-fertilizer-farm-food-china.jpg)（图片来自文内链接）
+路透社解释说，中国农民通常在4月初囤积化肥，但是在过去几个月冠状病毒爆发后对全国货物和人员流动实施的控制使工厂关闭并干扰了运输。
 
-总理赫格曾表示，他的国家将前苏联时期的防御系统 “捐赠 ”给乌克兰。这一消息是在他与欧盟高级官员访问乌克兰首都时宣布的，当时正值与泽连斯基总统会面。
+此外，由于对世界上最大的出口国俄罗斯实施制裁，全球化肥的供应已经中断。从美国到中国，全世界的化肥化学品价格正在飙升30%至40%。
 
-因此，鉴于S-300正是所需的主要设备类型，北约似乎正一点一点地朝着在乌克兰上空建立潜在的 “禁飞区 ”迈进。考虑到这一最初有点象征性的第一步，俄罗斯的反应无疑将是激烈的。
+这些高价格使中国的经销商不愿意增加他们的库存，使库存短缺数千吨。准备发货的化肥产品的生产商说，中国的冠状病毒限制使他们无法将货物送往中国东北的农场。即使获签必要的运输通行证，这些公司也可能会缺少卡车司机，因为许多人因为冠状病毒而退出了这个行业。
 
-美联社注意到，这是对泽连斯基敦促西方对乌克兰上空的俄罗斯飞机设立禁飞区的直接回应。
+虽然中国官方媒体坚称，局势已经得到控制，将以某种方式及时供应充足的化肥，以保证4月底的播种，但中国周一从美国购买大量玉米，以对冲赌注。
 
-泽连斯基在上个月通过视频与美国立法者谈话时提到了S-300的名字，呼吁建立防御系统，让乌克兰对俄罗斯战机和导弹 “关闭天空”。
+不幸的是，美国农业部上周表示，尽管需求量很大，由于燃料和化肥的价格已经飙升，美国农民也计划减少今年春季的玉米种植。
 
-这一行动也是在北约外交部长周四在布鲁塞尔举行会议之后发生的，据报道，他们同意向乌克兰提供 “新的和更重的武器”，尽管还没有界定考虑哪些确切的武器系统。
+独裁者习近平一直在推动中国尽可能地自给自足，但是包括习近平在内的中国官员在2月份勉强承认，粮食安全可能是来年的一个问题。
 
-俄罗斯发誓，它已经准备好将任何从外部截获的外国武器运输作为 “合法目标 ”进行攻击。S-300的转让无疑将北约和俄罗斯带到了一个更直接的碰撞轨道上，目前还不清楚其他北约盟国在多大程度上同意了这种挑衅性的交付。
+习近平在一次政治局常委会议上说：”中国人民的粮食必须由中国人自己生产，并掌握在中国人手中。”他所设定的目标，如果没有充足的化肥供应，将很难实现。
 
-**快评**：这是零对冲4月8日早间的一篇报道【1】，让我们看到“北约与俄罗斯被带到了一个更直接的碰撞轨道上”。
+信息来源：
+[Pandemic, Ukraine War Leave Chinese Farmers with Fertilizer Shortage During Planting Season](https://www.breitbart.com/asia/2022/04/04/pandemic-ukraine-war-leave-chinese-farmers-fertilizer-shortage-planting-season/)
 
-与此同时，零对冲还发表了另外两篇文章【2】、【3】，关注的是芬兰和瑞典这两个长期对北约保持中立的国家，最近因为俄乌战争的影响而迫切要加入北约，北约也表示可以通过快速通道让它们达成。
-
-显而易见，俄乌之战正在彻底改变欧洲的政治形势。加上法国、匈牙利等都面临着大选，尘埃落定后，郭先生说，一个以乌克兰为中心的欧洲将崛起，俄罗斯将被解体。那北约呢，北约如何发展呢？我们拭目以待。
-
-参考链接：
-【1】[https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine](https://www.zerohedge.com/geopolitical/nato-member-slovakia-announces-transfer-s-300-anti-air-system-ukraine)
-【2】[https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament](https://www.zerohedge.com/geopolitical/finland-hit-cyberattacks-airspace-breach-moment-zelensky-addressed-parliament)
-【3】[https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast](https://www.zerohedge.com/geopolitical/finland-sweden-nato-applications-could-be-imminent-after-stoltenberg-suggests-fast)
-
-**编译 发布：意大利罗马达芬奇农场Roma**
-
+编辑：东京樱花团/曲别针
+发布：东京樱花团/曲别针
+![](https://assets.gnews.org/wp-content/uploads/2022/03/二维码-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
