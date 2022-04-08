@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 2:03 AM (UTC)`
+
+2022.04.07  新中国联邦 | 喜财经      中共国地方债危机
+![img](https://media.gettr.com/group44/origin/2022/04/08/01/19c9e54b-208a-e16c-6c44-d1e124b7e3ff/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/8/2022 1:04 AM (UTC)`
 
 2022.04.07 晚  新中国联邦 | 新闻访谈   枫桥经验下的灾难逻辑；盖特推特的变化；联合国的现状
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 `@miles 4/7/2022 12:05 PM (UTC)`
 
 4月7号, 郭文贵先生两首新歌上线第四天<br/>《灭共的雪》登榜iTunes<br/>新西兰 🇳🇿 热门歌曲榜首🥇<br/>15 国摇滚歌曲榜首🥇<br/><br/>《铁锁梦》登榜iTunes<br/>柬埔寨 🇰🇭热门歌曲榜首🥇<br/>新西兰🇳🇿， 匈牙利 🇭🇺, 柬埔寨 🇰🇭 流行歌曲榜首🥇<br/><br/>《Fight for Hong Kong》登榜iTunes<br/>老挝🇱🇦摇滚歌曲榜首🥇<br/><br/>继续创造奇迹🎉🎉🎉🎉🎉🎉🎉<br/><br/>万分感谢香港、台湾、澳门、新加坡、马来西亚、德国，新西兰、澳大利亚、西班牙、荷兰、匈牙利、瑞典、菲律宾、柬埔寨, 蒙古，芬兰,老挝的兄弟姐妹们！🙏🙏🙏🙏🙏🙏🙏<br/><br/>https://gnews.org/2303480/
-
----
-
-`@miles 4/7/2022 10:44 AM (UTC)`
-
-新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月6日第33天当日救援统计：<br/>Medyka救援站接待：约312人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9580人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 33 - Date: April 6, 2022 :<br/>Medyka Rescue Station Reception: about 312 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9580 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
-![img](https://media.gettr.com/group10/getter/2022/04/07/10/4182e33b-19c2-b110-e9d6-4afef3222e4f/2e00448869a1ef43658707e027ef64f2.jpg)
 
 ---
 
