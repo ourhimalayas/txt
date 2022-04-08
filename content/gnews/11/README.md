@@ -2,32 +2,48 @@
 ---
 
 
-## 中日财经爆┃ING预估若上海封城到4月底 GDP将损失6%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307989/)
+## 强烈呼吁制定从乌克兰救援开始的法治基金捐款特别名单
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2308046/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-路透社4月8日报导，ING银行预估，假如上海的封城措施持续到4月底，上海的GDP将损失6%，全国GDP将损失2%。
+视频链接：[odysee.com/@郭文贵先生大直播精选](https://odysee.com/@%E9%83%AD%E6%96%87%E8%B4%B5%E5%85%88%E7%94%9F%E5%A4%A7%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89:e/%EF%BC%885%EF%BC%9A9%EF%BC%89%E5%BC%BA%E7%83%88%E5%91%BC%E5%90%81%E5%88%B6%E5%AE%9A%E4%BB%8E%E4%B9%8C%E5%85%8B%E5%85%B0%E6%95%91%E6%8F%B4%E5%BC%80%E5%A7%8B%E7%9A%84%E6%B3%95%E6%B2%BB%E5%9F%BA%E9%87%91%E6%8D%90%E6%AC%BE%E7%89%B9%E5%88%AB%E5%90%8D%E5%8D%95%E3%80%902022%E5%B9%B403%E6%9C%8818%E6%97%A5%E6%96%87%E8%B2%B4%E7%9B%B4%E6%92%AD%E7%B2%BE%E9%80%89%E3%80%91:8)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/ING预估若上海封城到4月底-GDP将损失6.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnltimes.nl%2Fsites%2Fnltimes.nl%2Ffiles%2Fstyles%2Fnews_article_full%2Fpublic%2F2019%2F08%2Fdepositphotos_227856296_l-2015.jpg%3Fh%3D56d0ca2e%26itok%3DGt9MvEaN&amp;imgrefurl=https%3A%2F%2Fnltimes.nl%2F2020%2F05%2F08%2Fing-profits-drop-40-percent-due-cornavirus-crisis&amp;tbnid=MSBaWSCm4M-qEM&amp;vet=12ahUKEwjVlvv66oP3AhVPwoUKHb8JCygQMygWegUIARDYAQ..i&amp;docid=2zs9-mjXcv396M&amp;w=837&amp;h=462&amp;itg=1&amp;q=ING&amp;ved=2ahUKEwjVlvv66oP3AhVPwoUKHb8JCygQMygWegUIARDYAQ)
+**郭文贵先生：**所以说兄弟姐妹们，看到咱们前线的救援，然后咱法治基金的捐款的战友。我在此强烈地呼吁，法治基金还有所有联盟委员会，从开始救援到现在的法治基金捐款，我们一定要列为一个特别时期的特别捐款名单。我们要大概一两周内要专搞一场法治基金在前线支持前线的期间，救助乌克兰的妇女儿童期间，捐款的这些兄弟姐妹们。
 
-ING银行并将中共国今年第二季的GDP按年增长预测，由原来的5%降至4%，2022年全年预测则由4.8%调低至4.6%。
+所以这些战友们的捐款最近好多好多大额捐款，我们现在捐的钱超过了在前线花掉的钱。你说兄弟姐妹们，你想想有没有正义人士？
 
-ING银行评论指出，假设上海市封城措施在本月大部分时间持续，月内大部分的经济活动将会消失，工厂无法正常运作。此外，因当局的防病毒扩散措施非常严格，一人感染可能会影响整家工厂的人员。码头方面，如发现一人感染，港口亦会暂停运作进行消毒。
+你不能看到高冰尘那个“黄河边”你就觉得中国男人都长那样，是不是？你真的是你拿九鞭合一都造不出那个主出来是吧？你不能这么想。你不能因为有“路大脑袋”是吧？你就觉得全中国男人都那样。他不是，有明道呢，有文科、有文戈、有长岛哥和老班长、大卫，还有我们草根兄弟，无数个男男女女，我们的晋东南，是吧？哪个不是啊？昨天前线的，你看春花，是不是？一口大锅，对吧？默默无闻、扬帆农场这些人，哪个不都是一个个漂亮又帅的？
 
-不过，ING银行料地方政府及中央应会出台一些纾缓及刺激措施，应可为GDP带来约1—1.5%的提振。但该行补充，措施出台的时机至关重要，因现时当局会出台什么措施尚不清楚，需要先看到实施情况，然后才能充分评估影响。
+你不能看到这几个垃圾就以为这个世界都这样，你不能看到“蛇妖闫”这个骡子，是吧？这个垃圾、骗子、精神病，你以为天下女人都给你炒黄鸡蛋，是吧？都不会编这故事。不是的，我们有无数个，你看Nicole、文耀、阿丙、正义小Sarah，我们前边的所有的。我们现在在后台的直播现场，我们后台的直播做得一般，直播这小福利、微蓝、Rachel都做得一般，确实做得一般。
 
-消息来源:
-[倘上海封城措施只在4月持续估计GDP损失6% 全国损失则为2%–ING银行](https://cn.reuters.com/article/ing-shanghai-lockdown-impact-0408-fri-idCNKCS2M00CJ?il=0)
+你想想，你不能说看到有一个坏人天下都是坏人。所以你看到我们战友当中多少美女帅哥？你看到有多少有正义的人，你看到借共产党洗脑这种严重情况下，有多少有良知的中华儿女站在前方救助乌克兰。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-**更多资讯，更多关注**
-[**乌克兰救援UkraineRescue官方Gettr**](https://gettr.com/user/ukrainerescue)
-**[郭文贵先生Gettr](https://gettr.com/user/miles)**
-[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
-**[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/zv8j42srdN)**
+字幕来源：[2022年3月18日 郭文贵先生直播 全文字版](https://gnews.org/zh-hans/2189415/)
+
+编辑整理：Jacques；
+
+字幕档制作：知津；
+
+视频制作及上传：Cindy；
+
+G-News发布：海贼王M.D.LUFFY；
+
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)；
+
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：日本银河系农场。
 
  
 
