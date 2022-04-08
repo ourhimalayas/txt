@@ -2,25 +2,29 @@
 ---
 
 
-## 美国对俄罗斯最大的钻石公司和造船公司实施制裁
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2309513/)
+## 中日财经爆| 日本NTT考虑暂停与俄罗斯“卡巴斯基”的业务
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309571/)
 
-**撰稿：日本东京方舟农场 北极**
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本NTT 集团正在考虑暂停与俄罗斯信息安全公司卡巴斯基的业务，该公司是一家处理杀毒软件的信息安全公司。随着俄罗斯入侵乌克兰，西方对卡巴斯基的警惕性越来越高，似乎已经考虑到了安全和供应链风险。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/3-52.jpg)[图片来源](https://www.japantimes.co.jp/news/2022/04/08/business/corporate-business/ntt-kaspersky-software/)
+读卖新闻4月8日报导，日本NTT 集团正在考虑暂停与俄罗斯信息安全公司卡巴斯基的业务，该公司是一家处理杀毒软件的信息安全公司。随着俄罗斯入侵乌克兰，西方对卡巴斯基的警惕性越来越高，似乎已经考虑到了安全和供应链风险。
 
-据乌克兰信息报4月8日报道，美国政府周四宣布对俄罗斯拥有的全球最大钻石开采公司阿萝沙（Alrosa）实施制裁，并收紧对联合造船公司（USC）的限制。
+日本电报电话公司（NTT）是全世界最大的电信公司之一，据NTT称，卡巴斯基实验室的安全相关软件部分用于集团内部系统，也用于企业业务。未来，集团公司正在考虑暂停与卡巴斯基实验室的新业务，并将其正在使用的产品转向其他公司。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/0-9.png)美国对俄罗斯最大的钻石公司和造船公司实施制裁。（图片来自乌克兰信息报）
+关于卡巴斯基，美国联邦通信委员会 (FCC) 上个月将其指定为一家存在安全威胁的公司。
 
-美国财政部（OFAC）外国资产控制办公室在官方网站上发布了该公告。阿萝沙是俄罗斯国有企业，为目前世界上最大的钻石开采公司，该公司还覆盖了俄罗斯90%的钻石开采能力。
+消息来源:**[ＮＴＴ、露「カスペルスキー」との取引停止検討…安全保障上のリスク考慮か](https://www.yomiuri.co.jp/economy/20220408-OYT1T50175/)**
 
-联合造船公司是俄罗斯主要的国有企业，负责开发和建造俄罗斯海军的军舰。联合造船公司负责建造所有俄罗斯军舰，还为外国客户建造军舰。
-
-参考链接：
-1.[https://reurl.cc/akQkr9](https://reurl.cc/akQkr9)
-2.[https://reurl.cc/e6q6xK](https://reurl.cc/e6q6xK)
-
-总编： 老孙
-校对发布：Linda
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
