@@ -2,27 +2,29 @@
 ---
 
 
-## 台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305097/)
+## 德国警方捣毁俄罗斯大型暗网Hydra
+` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2306010/)
 
-**港台前线 zhong｜2022-4-7**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-9.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-日本政府消息人士透漏，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本，与首相岸田文雄会谈，针对俄侵略乌克兰寻求美日合作。访问日本之后，原计划访问南韩。
+**撰稿：日本东京方舟农场  Miyali7768(文玉)**
 
-台湾媒体4月7日报导称，知情人士消息，裴洛西可能取消访问南韩，改访台湾。此消息一出，尚未经过美台官方证实，便受到多国媒体关注。前次美国现任众议院议长访台纪录为1997年。
+据BBC新闻网4月6日报道，德国警方经过几个月的努力，捣毁了世界上最大的暗网市场俄罗斯Hydra网站。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/0-12.jpg)（图片来源：BKA）
+报导称，德国警方在接到举报暗网Hydra的信息后，经过几个月的调查，找到了该网站在德国托管的公司，并没收了其价值2300 万欧元（约1670 万英镑）的比特币。在调查过程中，警方发现它是一家所谓的“防弹主机（bullet-proof hosting）”公司，这一类型的公司不会审核其托管的网站或内容，并且会很乐意为犯罪网站提供托管并避免警方要求提供有关客户的信息。
 
-中共外交部发言人赵立坚对此消息表示“如果美方一意孤行，中方将采取强硬措施捍卫国家主权和领土完整。”
+德国警察塞巴斯蒂安·兹维贝尔（Sebastian Zwiebel）表示，当找到暗网Hydra的服务器时，他感到非常震惊。他指出，该网站是网络犯罪的堡垒，竟然靠销售毒品和非法商品交易存活了超过六年。
 
-然而，本消息尚未得到官方认证，裴洛西便爆出无症状感染新冠病毒，据外媒报导她本人接种了三剂新冠疫苗，感染可能与先前参与的晚宴有关，该晚宴已发现多名记者、参加者确诊新冠。
+根据德国警方信息，Hydra暗网成立于 2015 年，以俄语编写，拥有 1700万客户和19,000 多个卖家账户。该网站专门提供即日“空投”服务，即毒贩将毒品藏在公共场所，然后再通知客户提货地点。而且以黑客手段获取文件、伪造文件和进行非法数字货币交易，即网络犯罪分子使用比特币来清洗被盗或勒索所得的数字货币。
 
-裴洛西原定出访日本、南韩，可能因确诊而延期。
+目前，用户如果登录该网站，可以在主页上看到“该平台因犯罪行为已被查封”的警方公告。
 
-来源｜[npr](https://www.npr.org/2022/04/07/1066212755/speaker-nancy-pelosi-has-tested-positive-for-covid)、[cnbc](https://www.cnbc.com/2022/04/07/house-speaker-nancy-pelosi-tests-positive-for-covid-is-not-experiencing-symptoms.html)
+此外，在德国宣布采取行动后不久，美国财政部也对 Hydra 实施制裁，并努力协调国际关系，阻止通过俄罗斯网站提供的恶意网络服务、危险药物和其他非法产品的扩散。
 
-* * *
+参考链接：
+[https://www.bbc.com/zhongwen/simp/world-609115](https://www.bbc.com/zhongwen/simp/world-609115)
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+编辑：海星
+总编：青城道姑
+校对发布：Linda
 
  
 

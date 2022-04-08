@@ -2,31 +2,33 @@
 ---
 
 
-## 今日盖特大V推荐 — 约翰·施耐德（johnschneider）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307795/)
+## 经济产业大臣萩生田：最终目的是不进口俄罗斯煤炭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307958/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-795.png)
-盖特链接：[** https://gettr.com/user/johnschneider**](https://gettr.com/user/johnschneider)
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本经济产业大臣萩生田宣布了一项减少进口俄罗斯煤炭的政策，同时寻找替代国家，最终目标是实现零进口.
 
-**约翰·施耐德自述：**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-88.png)（图片源自本文链接）
 
-我的新专辑《Southern Ways》已发行。现在到处播放！
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-796.png)图片来源：网络
-**约翰·施耐德简介：**
+4月8日FNN综合在线消息：经济产业大臣萩生田宣布了一项减少进口俄罗斯煤炭的政策，同时寻找替代国家，最终目标是实现零进口。
 
-约翰·施耐德全名约翰·理查德·施耐德（John Richard Schneider，生于1960年4月8日）是美国演员、乡村音乐歌手、编剧、电影制片人和导演。
+G7（七国集团）领导人关于包括禁止进口俄罗斯煤炭的声明于7日发布，日本政府已明确表示将分阶段减少进口。
 
-约翰·施耐德曾出演《哈扎德公爵》、《正义前锋》 、《超人前传》、《富人与穷人》等多部电视剧；出演《诅咒》、《龙卷风之夜》、《魔术师》、《窒息》（兼导演、编辑）、《超级鲨鱼》、《外星人入侵》、《站在他上面》（兼导演、编辑）等多部电影。
+经济产业大臣萩生田表示：我们希望减少从俄罗斯进口煤炭，我们会朝着这个方向，最终实现完全取消从俄罗斯进口煤炭。
 
-除了他的演艺生涯，施耐德自1980年代初以来一直是一名歌手，发行了九张录音室专辑和一个最热门专辑，以及十八首单曲。
+俄罗斯的煤炭占日本去年煤炭进口的10.8%。萩生田表示：希望避免任何可能导致停电的情况，确保替代资源。
 
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+信息来源： [萩生田経産相　ロシア産石炭「最終的に輸入しない方向目指す」（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c1ae897a2889d3a6ff32970ed5b7c93929e7ee54)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

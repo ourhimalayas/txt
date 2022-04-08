@@ -2,42 +2,27 @@
 ---
 
 
-## 联合国将就乌克兰问题暂停俄罗斯在人权理事会的席位
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2304349/)
+## 台湾｜传“美众院议长裴洛西拟访台” 尚未官方证实便爆出确诊新冠
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305097/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+**港台前线 zhong｜2022-4-7**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-9.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+日本政府消息人士透漏，美国众议院议长裴洛西（Nancy Pelosi）预计访问日本，与首相岸田文雄会谈，针对俄侵略乌克兰寻求美日合作。访问日本之后，原计划访问南韩。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+台湾媒体4月7日报导称，知情人士消息，裴洛西可能取消访问南韩，改访台湾。此消息一出，尚未经过美台官方证实，便受到多国媒体关注。前次美国现任众议院议长访台纪录为1997年。
 
+中共外交部发言人赵立坚对此消息表示“如果美方一意孤行，中方将采取强硬措施捍卫国家主权和领土完整。”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/KEAKTKLAQBIVBIUA4TSUMXNN2I.jpg)
+然而，本消息尚未得到官方认证，裴洛西便爆出无症状感染新冠病毒，据外媒报导她本人接种了三剂新冠疫苗，感染可能与先前参与的晚宴有关，该晚宴已发现多名记者、参加者确诊新冠。
 
+裴洛西原定出访日本、南韩，可能因确诊而延期。
 
-资料来源：路透社
+来源｜[npr](https://www.npr.org/2022/04/07/1066212755/speaker-nancy-pelosi-has-tested-positive-for-covid)、[cnbc](https://www.cnbc.com/2022/04/07/house-speaker-nancy-pelosi-tests-positive-for-covid-is-not-experiencing-symptoms.html)
 
-联合国大会将于周四投票决定美国推动暂停俄罗斯在联合国人权理事会的席位，因为有报道称其入侵乌克兰的俄罗斯军队“严重和系统地侵犯和践踏人权”。
+* * *
 
-成员的三分之二多数投票（弃权不计）可以暂停一个国家的理事会。 利比亚曾于 2011 年被暂停。
-
-西方外交官相信，他们在拥有 193 个成员国的联合国大会中获得了足够的支持，可以通过一项暂停莫斯科的决议。草案文本表达了“对乌克兰持续的人权和人道主义危机的严重关切”，特别是对俄罗斯侵犯人权的报道。
-
-美国驻联合国大使琳达·托马斯-格林菲尔德周一宣布，在解释这一举动时告诉路透社：“重要的是（对俄罗斯）‘我们不会允许你继续逍遥法外并假装你尊重人权”。
-
-根据路透社看到的一份说明，俄罗斯已警告各国，投赞成票或弃权将被视为“不友好的姿态”，会对双边关系产生影响。
-
-在乌克兰指责俄罗斯军队在布查镇杀害数百名平民后，美国宣布将寻求俄罗斯停职。
-
-俄罗斯否认袭击乌克兰平民。联合国大使瓦西里·内本齐亚（Vassily Nebenzia）周二表示，虽然布查受俄罗斯控制，但“没有一个平民遭受任何形式的暴力”。
-
-俄罗斯是位于日内瓦的人权理事会三年任期的第二年，该理事会无法做出具有法律约束力的决定。但是可以授权调查。
-
-上个月，该委员会开始调查自俄罗斯袭击以来乌克兰侵犯人权的指控，包括可能犯下的战争罪。
-
-简评： 俄罗斯入侵乌克兰， 毫无理由。 而在基辅附近小镇布查的非人道的对平民的杀戮根本就无视人权， 让俄罗斯继续呆在人权理事会就是个笑话。 最没有人权的国家，包括中共国，都应该被踢出人权理事会。 而投票的时候，中共国如果再次投弃权票是不计数的。 中共国再次形式摸棱两可的把戏是不能成功的。
-
-🔗[https://www.reuters.com/world/un-vote-suspending-russia-human-rights-council-over-ukraine-2022-04-07/](https://www.reuters.com/world/un-vote-suspending-russia-human-rights-council-over-ukraine-2022-04-07/)
-
-责任编辑、发布： Shuizhuyu
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

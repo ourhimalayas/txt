@@ -2,68 +2,50 @@
 ---
 
 
-## 维基百科的肮脏小秘密
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2305518/)
+## 俄罗斯退出人权理事会的模式开启中共等极权国家的先河
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/2306620/)
 
-素材翻译：噜噜咪
+![](https://assets.gnews.org/wp-content/uploads/2022/04/俄罗斯.jpg)
+据[**环球时报**](https://weibo.com/1974576991?refer_flag=1001030103_) [2022年4月8日9:10](https://weibo.com/1974576991/LnspArYyO?ref=home&amp;rid=6_0_8_6667913207805115671_6_0_0) 来自 [新版微博 weibo.com](https://app.weibo.com/t/feed/xEsRX)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-12.jpg)
+[#俄罗斯称决定自行退出联合国人权理事会#](https://s.weibo.com/weibo?q=%23%E4%BF%84%E7%BD%97%E6%96%AF%E7%A7%B0%E5%86%B3%E5%AE%9A%E8%87%AA%E8%A1%8C%E9%80%80%E5%87%BA%E8%81%94%E5%90%88%E5%9B%BD%E4%BA%BA%E6%9D%83%E7%90%86%E4%BA%8B%E4%BC%9A%23)【被联合国人权理事会暂停会员资格，俄罗斯：已决定自行退出】据CNN等多家西方媒体报道，在美国的带领下，93个国家在联合国大会上通过投票决定暂停俄罗斯在联合国人权理事会的会员资格，理由是俄罗斯在乌克兰有“严重和系统地侵犯人权的行为”。具体的投票结果为93票支持，24票反对，58票弃权。其中中国、古巴、越南、俄罗斯等国投了反对票，印度、巴西、南非、墨西哥、新加坡等国投了弃权票。
 
-几年前，一位保守派朋友告诉我，他每个月都会寄一张支票来支持维基百科。我问他，你为什么会支持一个左翼偏见，从事抹黑保守派并压制保守派观点的网站？
+不过，就在投票结果宣布后，俄罗斯驻联合国副大使库兹敏突然表示俄罗斯当天已经决定自行退出人权理事会，因为该理事会已经被一群滥用该组织实现自己目的的国家所垄断了，而且这些国家自己就在大规模地侵犯人权。
 
-他这是一个常见的错误。维基百科成立时，是以开源原则为基础的（尽管从技术上讲它从来不是一个开源项目）。基本上，任何能够访问互联网的人都可以进入并添加或编辑文章。该网站的想法是，通过汇集全宇宙的巨量知识，得出准确的文章，供任何人在任何地方免费使用。从理论上讲，这是一个伟大的想法，但它并没有造成这样的结果。近年来，它已经演变成了由有议程的版主实施的左翼暴政，他们中的许多人显然是有仇必报。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-758.png)图片来源：素材链接
-维基百科声称它以中立的观点来写文章：
+值得一提的是，就在4年前，美国前总统特朗普也曾令美国退出联合国人权理事会，理由是该组织充满了对美国的“偏见”，是“政治偏见的污水坑”。
 
-维基百科是以中立的观点来写的
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/001-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/002-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/003.jpg)
 
-我们努力以公正的语气撰写文章，记录和解释主要的观点，并对其突出性给予适当的比重。我们避免宣传，我们对信息和问题进行定性而不是辩论。在某些领域，可能只有一种公认的观点；在其他领域，我们描述多种观点，准确地介绍每一种观点的背景，而不是作为“真理”或“最佳观点”。所有的文章都必须努力做到可核实的准确性，引用可靠的、权威的来源，特别是当主题有争议或者是关于一个活人的时候。编辑的个人经验、解释或意见不属于维基百科。
 
-那些乱七八糟的后现代杂烩式的文字沙拉没有任何实质意义。在这些准则下，任何文章都可以被操纵或扭曲，说什么都可以，也可以什么都不说。
+这起事件给我们三点启示，第一点是俄罗斯退出联合国人权理事会是在联合国大会的投票结果已经形成将俄罗斯踢出人权理事会的事实面前，俄罗斯为保住颜面不得不自宫身退，从这一点来看阿Q同志的精神胜利法绝非我大中华所独有，中共的俄爹也乐此不疲。
 
-事实是，保守派的观点在维基百科上受到的待遇与自由派的观点不同。例如，维基百科对堕胎的意见：
+第二点是俄国斯退出人权理事会的模式开启中共等极权国家的先河，在此后只要美国等民主国家发起这样的逐出动议，每个被逐的极权国家都会先衡量一下可能的投票结果，要么在投票后自宫，要么在投票前先撒丫子自宫，别无他路，而且这样的驱逐引起的多米诺骨牌效应将日益明显，因为随着独裁极权国家的被驱逐而形成的压倒性的优势会越来越明显，最终会导致没有被驱逐的国家也望风而逃；
 
-如果操作得当，堕胎是医学上最安全的程序之一，但不安全的堕胎是产妇死亡的主要原因，特别是在发展中国家，而使安全的堕胎合法化和容易获得，可以减少产妇死亡。它比分娩更安全，在美国分娩的死亡风险是堕胎的14倍。
+第三点是拜登总统就是比川普总统会玩，川普总统玩的戏码是老子不跟你玩了，拜登总统玩的戏码是老子不让你玩了，两相对比，高下立判，老子不跟你玩的结果是美国的老大地位会逐渐的边缘化，而老子不让你玩任的就是老子是老大的底气，由此观之，拜登总统此举实在是高！
 
-堕胎的反对者绝不会同意这样的描述。堕胎是对人类生命的蓄意剥夺，是对无辜儿童的谋杀。但在控制辩论的维基百科编辑看来，它是“医学上最安全的程序之一……比分娩更安全。”对谁来说更安全？当然不是那些最后死在医疗废物袋中的婴儿。这篇文章对“反堕胎暴力”的论述比对合法反对堕胎的论述要多得多，而且在很大程度上重复了计划生育协会的谈话要点。中立性就这样了。
+撰稿：喜马拉雅的肉夹馍；
 
-除了对有争议的话题进行有偏见的报道外，关于保守派媒体来源的文章被挑出来进行事实核查，而左翼网站则没有。例如，PJ媒体的维基百科页面主要由一个所谓的“错误声明”清单组成，该清单是由左翼活动家根据“事实”检查得出的，他们不同意我们对气候变化、选举诚信和激进伊斯兰教等问题的看法。列表中最愚蠢的一项是我几年前写的一篇文章，描述了我在谷歌上搜索关于川普总统的故事的经历，发现它偏向于左翼新闻网站。我在文章中非常清楚地表示，我的报告是传闻而不是科学，这是维基百科活动家甚至事实核查人员承认的事实，但它却出现在“虚假声明”名单中，因为“PolitiFact的事实核查人员将它评为虚假”。[题外话：如果你是一个精明的维基百科用户，知道如何绕过有偏见的修改，而且你有一些空闲时间，也许你可以帮我们一个忙，让我们的页面得到纠正？］
+审核：喜马拉雅的馍夹肉；
 
-左翼网站是否得到同样的待遇？你知道这个问题的答案。这里有一些网站没有列出事实核查或虚假声明，尽管我们都知道他们是假新闻的传播者：
+校对：Maarago；
 
-[HuffPost](https://en.wikipedia.org/wiki/HuffPost) (ROFL)
+**广而告之：尊敬的战友，你的每一篇文字、每一段视频、每一段社交媒体发文都是压垮骆驼的一根稻草，欢迎加入我们——**[**日本银河系农场Discord群**](https://discord.com/channels/805765245758472202/851632878567948351)**，欢迎订阅我们的油管频道：**[**郭文贵先生直播精选**](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)**；欢迎关注盖特独家文贵先生大直播精选发布账号：**[**@MilesGuolive1**](https://gettr.com/user/MilesGuolive1)
 
-[Vice](https://en.wikipedia.org/wiki/Vice_Media) (两次采访并歪曲报道文贵先生，第一次18楼，第二次杨贝贝)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-[The New York Times](https://en.wikipedia.org/wiki/The_New_York_Times) (不，我是认真的)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[Daily Kos](https://en.wikipedia.org/wiki/Daily_Kos) (你知道这是怎么回事了)
+YouTube：[日本银河系农场](https://www.youtube.com/channel/UCYfGHsj66eHQFqAt8pYsXHA)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/videos)、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) 、[郭文贵先生直播精选](https://www.youtube.com/channel/UCgvFZMztYVyUVRQgf5rHe0w/videos)、[不给国家·添麻烦](https://www.youtube.com/channel/UCYzuTclk5XFBVC6lBqiIOeQ)、[Galaxy NFSC](https://www.youtube.com/channel/UCuoWQD3AbdCLi4VkSlYjyRQ/featured)、[银河漫谈](https://www.youtube.com/channel/UCXLLNC6houh1-NyUB7QaPcA)、[拔劍滅紅蟲](https://www.youtube.com/channel/UCoSBgMn3J_WMeyWtk1Yb0Ug)；
 
-[CNN](https://en.wikipedia.org/wiki/CNN) (除了被川普说是“假新闻”外没什么可看的)
+G-News：[jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)、 [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-维基百科还淡化了对左派有不良影响的重大争议。以下是维基百科关于迪斯尼在学校用性话题促进对幼儿的培养的唯一一句话，以及关于佛罗里达州家长教育权利法案被称为“不要说同性恋”法案的谎言：
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-在2022年2月和3月，迪士尼对佛罗里达州禁止在学校讨论性别和性身份的法案（HB1557，被称为“不要说同性恋”法案）的回应，导致了对该公司缺乏谴责和以前对LGBT内容的限制的争议，最终导致了罕见的员工罢工。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-根据维基百科，这场“争议”与愤怒的父母想要保护他们的孩子没有关系。相反，这是由于爱哭的迪斯尼员工要求允许教师对幼儿园学生谈论性方面的话题。
-
-维基百科的联合创始人之一拉里··卡尔森，该网站绝对不是中立的。“现在已经没有一个开放的系统了，因此，允许对维基百科有任何影响的人的种类已经大大缩小，基本上是同意建制派左派的人。”
-
-然而，每个月都有数以百万计的人去维基百科，认为它是一个没有偏见的，没有经过人工过滤的信息来源。没有什么比这更离谱了。
-
-“坦率地说，左派在陈述他们的观点和利用大众媒体的机关时是无情的–维基百科是他们来塑造世界的大众媒体的一部分，我认为”桑格补充说。“因此桑格告诉福克斯新闻的塔克，它成为他们必须抓住的另一个机构。”
-
-如果你一直在给维基百科送钱，现在是时候重新评估一下支持一个压制真相和诽谤保守媒体的系统了。
-
-素材链接：https://pjmedia.com/columns/paula-bolyard/2022/04/06/beware-wikipedia-is-not-the-neutral-source-it-pretends-to-be-heres-how-we-know-n1587285
-
-* * *
-
-审核：文乐
-校对：阿伯塔
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-7.jpeg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

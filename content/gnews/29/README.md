@@ -2,26 +2,31 @@
 ---
 
 
-## 美国参议院 100：0票通过 撤销俄罗斯正常贸易地位
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307581/)
+## 今日盖特大V推荐 — 大纪元时报（The Epoch Times）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307749/)
 
-编译：文斗
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-55.jpg)
-4月7日（合众国际社）–周四上午，参议院以100比0的票数撤销了俄罗斯的 “最惠国待遇”贸易地位，并暂停了包括石油在内的俄罗斯能源进口。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-793.png)
+盖特链接： [**https://gettr.com/user/epochtimes**](https://gettr.com/user/epochtimes)
 
-连续的投票巩固了拜登政府已经采取的多方面制裁行动，由于俄罗斯从2月24日开始入侵乌克兰，拜登政府对俄进行制裁。
+**大纪元时报自述：**
 
-“正式取消与俄罗斯的正常贸易关系正是参议院要做的正确之事，因为这将给普京的经济造成又一次巨大打击。”参议院多数党领袖、纽约州民主党参议员查克·舒默（Chuck Schumer）周三表示。
+基于真相和传统的独立、屡获殊荣的报告。免费时事通讯：[**http://ept.ms/–Newsletters **](https://ept.ms/–Newsletters)电报：[**http://t.me/epochtimes epochtv.com**](https://t.me/epochtimes%20epochtv.com)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-794.png)图片来源：网络
+**大纪元时报简介：**
 
-这项立法将俄罗斯（包括白俄罗斯)置于与朝鲜和古巴同一类别，这些国家在全面进入全球市场方面面临着美国及其盟国的经济壁垒。
+大纪元时报是一家总部设在美国纽约市的国际多语种报纸和媒体。该报由法轮功学员于2000年在纽约创办。
 
-该法案将允许美国对来自俄罗斯和白俄罗斯的商品大幅提高关税。据报道，一些钢铁产品可能从零跃升至20%，而胶合板可能面临50%的惩罚性（关税）。
+大纪元时报隶属于大纪元传媒集团，该集团还经营新唐人（NTD）电视台。大纪元在35个国家有网站，但在中国大陆被屏蔽。
 
-3月11日，拜登呼吁国会采取行动终止俄罗斯的贸易地位。
+台湾中央社曾引述大纪元时报，称其独立于党派及商业集团之外，宗旨为“维护人权普世价值、揭露中国共产党政权极力隐瞒的新闻真相”。
 
-拜登表示，他的政府将努力阻止俄罗斯从世界银行和国际货币基金组织借款。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-新闻来源：[https://www.upi.com/Top\_News/US/2022/04/07/Senate-vote-Russia-trade-status/9221649350729/](https://www.upi.com/Top_News/US/2022/04/07/Senate-vote-Russia-trade-status/9221649350729/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

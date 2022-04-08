@@ -2,36 +2,32 @@
 ---
 
 
-## 美国官员：美国及其盟友不会无视中共对台湾动武
-` 波士顿五月花农场金融部` [轉載自GNews](https://gnews.org/zh-hans/2304408/)
+## 俄乌战争｜联合国暂停俄罗斯在人权理事会的职权 中共挺俄投下反对票
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2305283/)
 
-翻译 / 整理：波士顿五月花 Vicky
-![](https://assets.gnews.org/wp-content/uploads/2022/04/截屏2022-04-07-下午9.22.15.png)图片来源：互联网
-美国官员周三表示，任何中共对台湾采取的军事行动，都将得到美国和国际社会的回应，就像俄罗斯入侵乌克兰那样。美国希望中华人民共和国（PRC）从目前的乌克兰局势中吸取 “正确的教训”。
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-10.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+美国驻联合国大使汤玛斯．葛林斐德（Linda Thomas-Greenfield）4日宣布，美国将寻求联合国大会将俄国从人权理事会除名的方法，预计在她返回纽约（周三）后立即将此事提交给安全理事会。
 
-美国副国务卿温迪-谢尔曼周三在众议院举行的听证会上说，自从俄罗斯于2月24日入侵乌克兰以来，在华盛顿和北京之间的会谈当中，包括美国总统拜登和中共国家主席习近平之间的会谈，美国均传递出明确信号：“我们希望确保中华人民共和国能得到正确的教训”。
+7日，联合国大会（UNGA）决议暂停俄罗斯在人权理事会的成员职权， 其中“93 票赞成、 24票反对、58票弃权”。弃权票数不计入最终票数，投票结果通过了三分之二多数的门槛。莫斯科成为联合国安全理事会常任理事国中，第一个被暂停人权理事会成员职权的国家政权。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_A994C5E6AA2A-1.jpeg)
+值得关注的是，中共在本案中投下“反对票”，即反对将俄罗斯暂停其在人权理事会的职权。3月末，俄罗斯外交部长拉夫罗夫（Sergei Lavrov）曾公开表示“中、俄双方处在史上最坚固关系”，而中俄关系在本次联合国大会中得到确认。
 
-在众议院外交事务委员会关于拜登政府恢复美国在印太地区领导地位的战略听证会上，弗吉尼亚州众议员格里-康诺利问谢尔曼，在担心北京可能效仿俄罗斯并攻击台湾的情况下，政府是否已向中国传达了 “警告”。
+乌克兰外长德米特罗·库莱巴（Dmytro Kuleba）推特表示“俄罗斯在人权理事会的职权遭暂停，战犯在保护人权的联合国机构中没有容身之地。”此外，他还对投下赞成票的国家表达感谢。
 
-谢尔曼说：“在我们的一个中国政策中，我们不认为大陆用武力夺取台湾是可以接受的。”
 
-如果中共选择对台湾使用武力，”任何这样的行动都会看到国际社会的反应，而且不仅仅是美国会做出反应，”谢尔曼说。
 
-台湾问题是听证会上讨论的问题之一，几位众议院代表对延迟向台湾交付关键武器系统表示关切，其中包括美国在2019年批准的一项交易中的250枚 “毒刺 “地对空导弹，等等。
+> Russia’s rights of membership in the UN Human Rights Council has just been suspended. War criminals have no place in UN bodies aimed at protecting human rights. Grateful to all member states which supported the relevant UNGA resolution and chose the right side of history.
+> — Dmytro Kuleba (@DmytroKuleba) [April 7, 2022](https://twitter.com/DmytroKuleba/status/1512095879037169665?ref_src=twsrc%5Etfw)
 
-德克萨斯州议员迈克尔-麦考尔说，他周三上午与台湾驻美代表萧美琴共进早餐，”她对我们最大的抱怨是，虽然我们已经通知并签署了这些系统。它们还没有交付给台湾”。
 
-谢尔曼在回应中说，国务院和国防部正在审视整个国防贸易企业，看看哪里可以提高效率，让这些物品更快到达台湾。”我们今天已经谈到了确保这些时间表的速度。”
 
-另外，财政部长耶伦周三在众议院金融服务委员会的听证会上说，各机构之间一直在密切协调，以确保 “我们将能够作出适当的反应”，阻止中国对台湾的军事行动。
-
-参考链接：[Chinese military force against Taiwan will see response: U.S. officials](https://focustaiwan.tw/politics/202204070015)
+来源｜[ALJ](https://www.aljazeera.com/news/2022/4/7/un-to-vote-on-suspending-russia-from-rights-council)
 
 * * *
 
-*编辑&发布：长岛开心*
-
-
+▎聚焦国际热点、传播关键真相&gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
  
 

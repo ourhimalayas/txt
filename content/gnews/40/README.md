@@ -2,22 +2,24 @@
 ---
 
 
-## 樱花时政┃中共上海市委致信党员：对破坏抗疫大局行为要敢于亮剑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306538/)
+## 俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣
+` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2307483/)
 
-撰稿：东京樱花团/加一颗稻草
+**港台前线 zhong｜2022-4-8**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-1-3.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+俄乌代表团3月29日在土耳其举行和谈，会后俄方形容谈判具建设性，将向总统普京汇报乌克兰方面的提案，乌方在会谈中提出以中立地位换取安全保障，并提议新的安全保障体系，另又提出就克里米亚地位问题设15年的磋商期。乌方谈判代表称，在新的安全保障体系下，以色列、波兰、加拿大和土耳其都将成为乌克兰的安全保障国。俄罗斯、美国、英国、德国和意大利也可以提供担保。
 
-中共上海市委4月6日向全市共产党员致公开信，鼓励党员对干扰和破坏抗疫大局的各种行为“敢于亮剑、敢于斗争”,“关键时刻冲得上去，危难关头豁得出来，才是真正的共产党人”。号召上海全市共产党员紧急行动起来，尽锐出战、持续奋战，全力投身到严肃的抗疫斗争中去。要求共产党员亮身份、见行动，冲在抗疫的第一线，“把社区最紧缺的资源调配好。”共产党员要“对干扰和破坏抗疫大局的各种行为要敢于亮剑、敢于斗争，对各种噪音、杂音特别是谣言要主动发声、澄清是非”。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/1-129.jpg)[图片来源](https://zh.wikipedia.org/wiki/%E5%A4%A7%E5%AD%97%E6%8A%A5#/media/File:1966-10_1966%E5%B9%B4%E5%A4%A7%E5%AD%97%E6%8A%A5.jpg)
-众所周知，共产党是好话说尽，坏事做绝的流氓土匪。所谓“抗疫”就是抗人，对手无寸铁的老百姓“亮剑”，他们“斗争”的目标就是老百姓。而参与对老百姓实施这些手段的人没有想到，他们也是“斗争”的对象。这是邪恶的共产党利用人性的阴暗面挑唆老百姓们互相斗争，从而实现统治和羞辱老百姓，搜刮民脂民膏的目的。他们把所有想维护老百姓利益的声音定义成“干扰和破坏”，实际上他们才是破坏者，他们抢走了我们的财产，剥夺了我们的自由，迫使我们的子子孙孙为他们卖命。他们控制媒体，不让我们说实话，甚至老百姓们互相谈论都会被抓。中国1958年至1961年的大饥荒，和今天抗疫的手段一模一样，让老百姓活活饿死也不让出去找食物。在他们眼里，所有饿死的老百姓是用他们的贱命抹黑共产党，抹黑社会主义。中共统治是把所有人性罪恶的一面利用起来，把人类文明一步步拖向深渊。
+俄罗斯外长谢尔盖．拉夫罗夫周四表示，乌克兰向莫斯科提交了一份新的和平协议草案，其中俄方认为3月29日双方于土耳其和谈中最重要的部分被乌克兰忽略、淡化，致莫斯科“无法接受”，他认为乌克兰破坏了本次和谈。外媒报导，**乌克兰首席谈判代表米哈伊洛·波多利亚克表示“拉夫罗夫与和谈没有直接关系，他的发言是纯粹的宣传意义”。**
 
-所以我们应知道，任何人从出生开始，不用接受任何理论教育，都会妄想知晓或掌控一切事物。人类社会之所以出现文明是学会了，对世界保持谦卑、审慎，对人性保持警惕、悲悯。
+外媒指出，俄外长系针对乌克兰未于协议草案中明确，克里米亚半岛地区（外界认为2014年被俄罗斯并吞的乌克兰领土）不适用乌克兰未来的安全保障体系，意思是俄方认为上次土耳其和谈乌克兰明确未来国际对乌的安全保障不会延伸致该争议地区。
 
-消息来源：[中共上海市委致信党员：对破坏抗疫大局行为要敢于亮剑](https://www.zaobao.com.sg/realtime/china/story20220407-1260301)
+来源｜[BARRON’S](https://www.barrons.com/news/russia-accuses-ukraine-of-changing-demands-since-istanbul-talks-01649332508?refsec=afp-news)、[HK01](https://www.hk01.com/%E5%8D%B3%E6%99%82%E5%9C%8B%E9%9A%9B/752955/%E4%BF%84%E7%83%8F%E8%AB%87%E5%88%A4-%E7%83%8F%E5%85%8B%E8%98%AD%E6%8F%90%E5%87%BA%E6%96%B0%E5%AE%89%E5%85%A8%E4%BF%9D%E9%9A%9C%E9%AB%94%E7%B3%BB-%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9E%E5%95%8F%E9%A1%8C%E8%A8%AD15%E5%B9%B4%E7%A3%8B%E5%95%86%E6%9C%9F)、[YAHOO](https://uk.news.yahoo.com/ukraine-dismisses-russian-criticism-kyiv-132841568.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHAaURo7ZE6DvFW8JVoyrg9syTA8Fp6BPfX_3hqmSJgCU3OzYGKtxhKmDDiaXCKXrFEb2P_CjmwmcSyQ7th6TUD2eR3aQQLkYpY0NE2Z3ovw4vlwTN1JLrISQFbw98KVRmRA4TEjAhnRuOhBiepsA5vQwIv5NkZkwPjHdX9LUSua)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
+* * *
+
+▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
+▎关注疫情真相、光亮黑暗时刻&gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,28 @@
 ---
 
 
-## 日本考虑限制从俄罗斯进口煤炭
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307704/)
+## 联合国大会紧急特别会议通过了决议暂停俄罗斯联邦在人权理事会的成员权利
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/2307814/)
 
-翻译/编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151751.jpeg)图片来源：BLOOMBERG
-根据CNA4月8日引述日本媒体报道，日本政府正在考虑限制俄罗斯煤炭的进口，作为对该国能源领域制裁的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/联合国大会紧急特别会议通过了决议暂停俄罗斯联邦在人权理事会的成员权利.png)联合国大会投票决定暂停俄罗斯在人权理事会的职务 联合国图片/曼努埃尔·埃利亚斯（Manuel Elías）
 
-报道援引消息人士的话说，在七国集团（G7）盟友发表声明，承诺对俄罗斯实施额外制裁，以回应其在乌克兰大规模屠杀平民的指控之后，日本将与美国和欧洲国家协调行动。
+据《联合国事务》2022年4月7 新闻报道：
 
-日本首相岸田文雄周四表示，在与七国集团盟友就进一步的惩罚措施进行协调后，日本最早将于周五公布对俄罗斯入侵乌克兰的进一步制裁。
+联合国大会周四通过了一项决议，要求暂停俄罗斯在人权理事会的成员资格。
 
-在俄罗斯2月24日入侵乌克兰之后，日本加大了制裁力度–将莫斯科从国际支付网络SWIFT除名和冻结其中央银行资产。
+该决议在193个成员出席的大会上获得了三分之二的多数票。93个国家投赞成票，24个国家投反对票。58个国家投了弃权票。
 
-日本与G7经济体保持一致，冻结了俄罗斯官员、寡头、银行和其他机构的资产，并禁止向俄罗斯出口高科技产品。
+这次会议标志着关于乌克兰战争的特别紧急会议的恢复，此前有报道称俄罗斯军队犯下的违法行为。
 
-资料来源：[Japan considers restrictions on coal imports from Russia](https://www.channelnewsasia.com/asia/japan-considers-restrictions-coal-imports-russia-2615361)
+上周末，首都基辅郊区的布查市出现了令人不安的照片。在俄罗斯军队撤出该地区后，在街头和乱坟坑中发现了数百具平民尸体。
 
-发布：tianzhihuan
+在投票前，乌克兰大使谢尔盖·基斯利齐亚（Sergiy Kyslytsya）敦促各国支持该决议。
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/dKQ6vFY9Fu)
+布查和其他几十个乌克兰城市和村庄，成千上万的和平居民被俄罗斯军队杀害、折磨、强奸、绑架和抢劫。作为一个例子，说明俄罗斯在人权领域与它最初的声明有多大的差距。他说：“这就是为什么这个案件是独特的，今天的回应是显而易见和不言而喻的。”
+
+文章链接：[https://news.un.org/en/story/2022/04/1115782](https://news.un.org/en/story/2022/04/1115782)
+
+翻译：烟波浩淼| 校对：雨山西桥客 | 编辑&发布：文鸣
 
  
 
