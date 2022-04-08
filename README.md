@@ -15,62 +15,62 @@
 
 ---
 
-### [有声｜乌境现更多俄军涉嫌杀害平民行为 吁即援重型武器](/content/gnews/1/README.md)
- ` 秘密翻译组-即时新闻播报组`
+### [2022 年法国总统候选人关于加密货币的提案](/content/gnews/1/README.md)
+ ` 纽约香草山MOS02`
 
-### [樱花时政┃ 黑警李家超被中共“钦定”为香港特首](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|乌克兰将效法以色列全民皆兵](/content/gnews/3/README.md)
+### [有声|中共国内清明假期出行比率暴跌](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [4/08/2022 银河快讯：日本第一台量子计算机将于年底完成; 81.2%的日本人认为物价比一年前 &#8220;上涨 &#8220;了](/content/gnews/4/README.md)
+### [有声｜乌境现更多俄军涉嫌杀害平民行为 吁即援重型武器](/content/gnews/3/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [樱花时政┃ 黑警李家超被中共“钦定”为香港特首](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|乌克兰将效法以色列全民皆兵](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [4/08/2022 银河快讯：日本第一台量子计算机将于年底完成; 81.2%的日本人认为物价比一年前 &#8220;上涨 &#8220;了](/content/gnews/6/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [速报┃俄向乌克兰火车站发射导弹，致30人死亡](/content/gnews/5/README.md)
+### [21世纪中国的新五四运动与新文化思潮&#8211;论新中国联邦乌克兰救援行动（一）](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [速报┃俄向乌克兰火车站发射导弹，致30人死亡](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声｜江浙紧急为上海筹措6万间隔离房](/content/gnews/6/README.md)
+### [有声｜江浙紧急为上海筹措6万间隔离房](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [您可以通过检举揭发帮助欧盟制裁中共](/content/gnews/7/README.md)
+### [您可以通过检举揭发帮助欧盟制裁中共](/content/gnews/10/README.md)
  ` mayflowertranslate`
 
-### [有声｜北约首次考虑将中共国纳入其防御战略中](/content/gnews/8/README.md)
+### [有声｜北约首次考虑将中共国纳入其防御战略中](/content/gnews/11/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [樱花时政┃日本返俄美术品被芬兰海关扣押](/content/gnews/9/README.md)
+### [樱花时政┃日本返俄美术品被芬兰海关扣押](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [樱花时政┃日本首个智能城市！清洁能源 AI覆盖](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共的警察为什么这么强硬](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳总理将为在阿德莱德建造AUKUS核潜艇敞开大门](/content/gnews/12/README.md)
+### [澳总理将为在阿德莱德建造AUKUS核潜艇敞开大门](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（一）](/content/gnews/13/README.md)
+### [文•贵天成（精选篇）——文贵先生谈“疫苗灾难”（一）](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [机车——追逐风的自由](/content/gnews/14/README.md)
+### [机车——追逐风的自由](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声｜美国计划如何“饿死”俄罗斯的战争机器](/content/gnews/15/README.md)
+### [有声｜美国计划如何“饿死”俄罗斯的战争机器](/content/gnews/16/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [有声｜在美中共国教授因隐瞒与中共国的关系而被定罪](/content/gnews/16/README.md)
+### [有声｜在美中共国教授因隐瞒与中共国的关系而被定罪](/content/gnews/17/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美议长周日将访问台湾中共扬言美国玩火](/content/gnews/17/README.md)
+### [美议长周日将访问台湾中共扬言美国玩火](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [接种了三针新冠疫苗的澳州记者饱受了新冠的折磨](/content/gnews/18/README.md)
+### [接种了三针新冠疫苗的澳州记者饱受了新冠的折磨](/content/gnews/19/README.md)
  ` 澳喜农场`
-
-### [视频|郭文贵先生谈法治的重要性](/content/gnews/19/README.md)
- ` MOSVIDEO`
 
 ### [乌克兰东部火车站遇袭，至少39人死亡](/content/gnews/20/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`

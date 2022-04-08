@@ -2,40 +2,31 @@
 ---
 
 
-## 有声|乌克兰将效法以色列全民皆兵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2310306/)
+## 有声｜乌境现更多俄军涉嫌杀害平民行为 吁即援重型武器
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2310321/)
 
-配音：香草山佛教部 – 李傻
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间4月5日，据以色列媒体报道，乌克兰总统泽连斯基当天指出，在国家安全方面，遭遇了俄罗斯侵略之后的乌克兰将效法以色列，实行全民皆兵政策。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/9-16.jpg)
-泽连斯基表示，安全问题已经成为乌克兰在未来十年中必须面对的首要任务。因此，他已经同西方各国的领导人多次讨论过相关规划，且很多乌克兰的盟友都表达了参与的意愿。这其总，泽连斯基希望多国以小集团的形式分别向乌克兰提供国家安全援助。
+By:**秘翻新闻**
 
-泽连斯基也承认，乌克兰今后肯定不会像预期的那样绝对自由和欧洲化，但其也绝对不会变成一个专制国家。相较而言，乌克兰将更偏向成为一个“大以色列”：在强敌环伺的情况下，乌克兰必须保留规模更大的武装部队，用以对抗两个邻国。为此，乌克兰的各个场所今后都会有荷枪实弹的国家武装部队。
+**2022-04-08**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/8-8.png)
+[卫报综合](https://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-newshttps://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-newshttps://www.theguardian.com/world/live/2022/apr/07/russia-ukraine-war-nato-foreign-ministers-to-meet-as-zelenskiy-dismisses-fresh-sanctions-live-news)消息，乌克兰总统沃洛季米尔·泽连斯基周四说，博罗迪扬卡镇的情况比附近的布查 “糟糕得多”，在那里，俄罗斯军队涉嫌杀害平民。
 
-报道还提到，泽连斯基近日在乌克兰犹太人社团举办的年度基辅犹太论坛上发表演说称，乌克兰人和犹太人都珍视自由，且双方都致力于使国家未来成为自己喜爱的样子，而不是别人要求的样子。
+泽连斯基在深夜的全国讲话中说，”拆除博罗迪昂卡残骸的工作开始了……那里的情况要糟糕得多。”
 
+官员们认为，在首都基辅西北35公里处的布查，有300多人被俄罗斯军队杀害，其中约50人被处决。
 
+周四早些时候，乌克兰总检察长伊丽娜·维内迪克托娃说，在博罗迪扬卡镇的两座废墟建筑下发现了26具尸体，并指责俄罗斯军队对该镇进行了空袭。
 
-文字版原文：[乌克兰将效法以色列全民皆兵](https://gnews.org/zh-hans/2305354/)
+此前，基辅呼吁西方盟友提供更多的重型武器。周四，乌克兰外交部长德米特罗·库莱巴在布鲁塞尔举行的联盟同行会议上，呼吁西方盟友在几天内即刻提供帮助，否则许多人会死去。
 
-音频处理：Tom Li
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-1-524x720-1.jpg)
-**更多资讯，更多关注**
+此外，澳大利亚首批20辆布什马斯特车预计于周五送往乌克兰，这是5000万美元援助的军用车辆的一部分。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+秘翻新闻 大树/Julia编辑报道
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+发布 : 恩典
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTub**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2022/04/IMAGE-2022-03-27-143746.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
