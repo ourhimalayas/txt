@@ -2,41 +2,20 @@
 ---
 
 
-## 布查的死亡超过300人，当地人被发现受到“残酷的折磨”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311635/)
+## 乌克兰东部城市一火车站遭俄军火箭弹袭击，39人丧生
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2311654/)
 
-编译：七叶之芒
+#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-861.png)图片来源：莫斯科时报
+据《真正美国之声》（Real America’s Voice）4月8日报道，乌克兰官员透露，本周五，乌克兰东部城市克拉马托尔斯克（Kramatorsk）的一个火车站遭到了火箭弹袭击，造成至少30人死亡，100多人受伤。《福克斯新闻》（Fox News）周五上午报道说，该车站被两枚导弹击中，多达39人死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-17.jpg)
+乌克兰总统泽连斯基表示，当火车站遭袭时，有“数千人”正在该车站。他在社交媒体上发布的照片显示，一节火车车厢的窗户被击碎，室外候车区到处都是被遗弃的行李和尸体。泽连斯基称俄罗斯对火车站的血腥袭击是 “无限的邪恶”：“失去人性的俄罗斯人并没有改变他们的行为。由于他们没有力量或勇气在战场上面对我们，所以只能杀戮平民，这是无限的邪恶。如果不对其进行惩罚，那么它将永远不会停止。”
 
-布查市市长说，该市官员已经能够确认据称被俄罗斯军队杀害的163名居民，约占俄罗斯占领乌克兰城镇后发现的死亡总人数的一半。
+俄乌战争期间，俄军发起了多次针对乌克兰平民的袭击，这起事件只是其中之一。就在之前一天（4月7日），联合国大会投票决定暂停俄罗斯在人权理事会的成员国资格。
 
-布查市市长阿纳托利-费多鲁克在接受美国之音采访时说：“到目前为止，我们已经能够确定163名遇害者的身份。”
+*责编：白夜*
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-860-edited.png)2022年3月4日，在基辅西部的布查市，这幅总图显示了被摧毁的俄罗斯装甲车。布卡市市长声称，到目前为止，官员已经能够确认163名据称在基辅地区被俄罗斯军队杀害的居民
-图片来源：新闻链接
-
-“这些都是我们镇上的居民，他们被俄罗斯人冷酷无情地杀害，受到残忍的折磨。我们知道他们的姓、名、父名[父亲的名字]，他们住在哪里，以及他们是谁–父亲、儿子、妻子，在一个家庭或另一个家庭。”
-
-市长指出，这一数字占据称在靠近乌克兰首都基辅的该镇被俄罗斯军队杀害的人的一半。
-
-当被问及有多少人在布查被杀时，市长回答说，“320人”。
-
-克里姆林宫周一否认了与布查平民被杀有关的任何指控。
-
-费多鲁克还警告说，现在让居民返回布查“还为时过早”。
-
-他说：“相当大比例的领土仍然是危险的。” 《新闻周刊》已与俄罗斯外交部联系，要求其发表评论。
-
-来源：[https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266](https://www.newsweek.com/bucha-body-count-civilians-residents-tops-320-brutally-tortured-mayor-1696266)
-
-* * *
-
-审核：Aries的星
-校对：小东
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+新闻来源：[Russia missile attack on eastern Ukraine train station kills 39, injures over 100, authorities say](https://americasvoice.news/justthenews/russia-missile-attack-eastern-ukraine-train-station-kills-30-injures-over-100/)
 
  
 

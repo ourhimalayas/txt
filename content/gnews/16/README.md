@@ -2,90 +2,77 @@
 ---
 
 
-## 上海的封锁使世界上最繁忙的港口和中国的供应链陷入困境
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/2311751/)
+## 老药新用：探索溴已新（Bromhexine）治疗冠状病毒感染
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2311758/)
 
-编译：七叶之芒
+作者：波士顿五月花 北美教练陪练
+![](https://assets.gnews.org/wp-content/uploads/2022/04/5FAA7EF8-21F3-4FE6-BAE1-3CB7DEEE0EB7.jpg)
+溴已新 (Bromhexine), 别名，溴己铵，溴苄环己铵，必嗽平、必消痰、必漱平、溴苄环已胺，是一种化痰祛痰老药，已经在临床应用了60 多年（1）。临床主要应用于急性及慢性支气管炎、哮喘、支气管扩张、肺气肿，尤其适用于白色粘痰咳出困难者及因痰液广泛阻塞小支气管引起的危重急症等。它的祛痰机理：使痰中的粘多糖纤维分化裂解；还可抑制粘液腺和杯状细胞中酸性糖蛋白的合成，使之分泌粘滞性较低的小分子糖蛋白，从而降低痰液的粘度，使其易于咳出。溴己新通过肝脏代谢为活性产物氨溴索而发挥作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/xin_png.001-1-1280x140-18.jpg)
+在美国， 溴已新是非处方药。现将溴已新治疗冠状病毒的可能性与读者们分享。
 
-北京（法新社，路透社）–上海的冠状病毒封锁正在慢慢地堵塞中共国的供应链，因为延误了世界上最繁忙的集装箱港口，那里的工作人员被卷入了Covid-19控制的泥潭。
+**冠状病毒棘突蛋白的两个区域
+**
+棘突蛋白（S蛋白）的形状与螺钉相似，头部大，柄部细长，柄部嵌入病毒膜，使头部朝外。较大的头部区域和部分柄部被称为棘突蛋白的 S1 区。柄部靠近病毒膜的其余部分被称为 S2 区 （图 1）。一旦它进入人体并与呼吸系统、胃肠道、血管或其他在细胞表面表达 ACE2 （血管紧张素转换酶2受体）的细胞接触，S1 区就会与细胞表面的 ACE2 结合，并将病毒拴在人体细胞的外部。这是病毒入侵宿主细胞过程中的第一步 （2）。
 
-北京拒绝放弃其严格的零Covid战略，该战略在大流行期间保护了其公共卫生系统，但经济成本却在不断增加。
+**抑制TMPRSS2的活性可以阻止病毒进入宿主细胞
+**
+最新的研究表明（3），TMPRSS2（Transmembrane protease, serine 2，跨膜丝氨酸蛋白酶2）也与冠状病毒入侵人体细胞有关，甚至其到起到更关键作用 。TMPRSS2是细胞膜上的的一种丝氨酸蛋白酶（由493个氨基酸组成），它参与细胞的许多生理和病理过程。丝氨酸蛋白酶是一个蛋白酶家族，它们的作用是断裂大分子蛋白质中的肽键，使之成为小分子蛋白质。其激活是通过活性中心一组氨基酸残基变化实现的，它们之中一定有一个是丝氨酸，故此命名为丝氨酸蛋白酶。Iwata-Yoshikawa（4）报道敲除TMPRSS2基因 的小鼠对非典冠状病毒和中东呼吸综合征冠状病毒感染不敏感。Hoffmann等德国科学家发现（5），要侵入宿主细胞，病毒的Ｓ蛋白必须裂开，才能启动病毒进入到宿主细胞内。TMPRSS2会切断或“修剪”棘突蛋白，移除棘突蛋白外层节 S1区，并露出棘突蛋白内层 S2区，特别是融合肽区。这个融合肽区由更具疏水性或类脂的氨基酸构成，它会嵌入含脂细胞膜，诱导病毒膜与细胞膜融合，随后病毒基因组就会入侵细胞。TMPRSS2是棘突蛋白裂开的关键蛋白酶。故此，抑制TMPRSS2的活性可以阻止病毒进入宿主细胞。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-862-edited.png)图片来源：路透社
+**溴已新是TMPRSS2的抑制剂
+**
+2012年Ｋawas（6）报道过TMPRSS2的抑制剂卡莫司他 (camostat) 治疗和预防非典冠状病毒。为寻找ＴＭＰＲＳＳ２抑制剂治疗肿瘤，Lucas (7) 搜索了ＦＤＡ、Ｃｈｅｍ-ｂｒｉｄｇｅ ｌｉｂｒａｒｙ和Ｃｈｅｍ-Ｄｉｖ ｌｉｂｒａｒｙ，他们发现盐酸溴己新是有效的ＴＭＰＲＳＳ２抑制剂，其半数抑制浓度（ＩＣ５０）仅仅为0.75 μM。
 
-中共国的金融中心上海–跨国公司和最繁忙的港口的所在地–在Omicron病毒变体助长的疫情爆发后，几乎完全被封锁了一个星期。
+**溴己新还可能作用于其他冠状病毒的感染环节
+**
+冠状病毒另一个侵入宿主细胞的途径是内吞。在内吞过程中，细胞外部 ACE2 蛋白结合的冠状病毒会被细胞膜小范围内的凹陷区吞没，形成一个内吞核内体（endosome），内吞核内体的酸性环境使得病毒释放到细胞浆，然后复制。 溴己新对冠状病毒内吞途径感染宿主细胞也有抑制作用。溴己新及其代谢产物氨溴索还有竞争性结合ACE2作用，对冠状病毒M蛋白酶也有很强结合抑制作用。鉴于，氯喹类药物可以提高内吞膜泡的pH从而抑制病毒释放到细胞浆（8），Depfenhart （9）等呼吁立刻展开溴己新治疗和预防冠状病毒的临床研究，尤其与羟氯喹等药物联合应用，理论上可以阻止病毒两个主要入侵途径 （图2）。
 
-工厂告诉法新社，这迫使许多公司停止生产并放缓新项目，而那些仍在运营的公司正努力应对卡车司机的短缺，以及繁重的许可证和Covid-19测试要求。
+**溴已新治疗冠状病毒感染临床研究
+**
+2020年，Li （10）等进行了一项开放标签的随机对照试验研究（18例轻度/中度冠状病毒感染住院病人），12例给与溴已新32mg, 每日3次，共14天，6例不给溴已新治疗作为对照。结果显示，溴已新治疗组胸部ct显著/完全改善的比例和20天内出院率均比对照组高2倍。
 
-在上海的港口，缺乏司机和其他工人意味着货物的进出越来越困难。
+伊朗的一项对冠状病毒感染的住院患者研究（8mg, 每日4次，共治疗28天），溴已新与对照组无显著差异（11）。
 
-上海国际港务集团本周表示，码头工作正常，等待停泊的船只数量为“个位数”。
+伊朗的另一项研究，报道了溴已新（8mg 每日3次）与羟氯喹(200 mg，每日1次) 联合用药（共14天）的临床结果。联合用药组：病情恶化率（需要进ICU病房）为2/39, 气管插管率为1/39，死亡率为0/39；单纯羟氯喹组: 病情恶化率为11/39, 气管插管率为9/39，死亡率为5/39（12）。
 
-欧盟商会上海分会副主席Bettina Schoen-Behanzin女士告诉法新社：“但事实是……由于对卡车司机造成的限制，它并没有真正运作。”
+Mikhaylov（13）报道了溴已新的预防效果(8mg, 每日3次，共8周)。25例溴已新预防组，无人发展为有症状的冠状病毒感染患者（0/25），25例对照组，有5人发展为有症状的冠状病毒感染患者（5/25）
 
-“我听到的数字是……上海港的周交易量下降了40%。所以这真的很巨大。”
+墨西哥Granados-Montiel（13）发起了由一群医务人员为研究对象的临床实验，观察羟氯喹(200 mg，每日1次) 和加用比较溴已新（8mg 每日3次）联合用药，预防冠状病毒感染的效果，目前尚无结果。
 
-在中国庞大的消费经济中，短缺问题开始被咬住，淘宝网等网上购物平台面临交货延迟，尤其是进口商品。
+溴已新效果如何，还有待更多临床实验证实，这需要时间和科研的大量投入。在毒疫苗即将引发大规模人道灾难的当下， 认识到溴已新的潜在价值显得十分有意义。
 
-在一些城市的“一刀切”限制，迫使工厂寻找新的供应商。
+**在此特别声明：治疗疾病应找医生咨询，读者自行治疗产生的任何事故，笔者概不负责。**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-22.jpg)
+图1：刺突蛋白S1区 和S2 区
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-9.jpg)
+图2. 冠状病毒两个主要入侵途径
+https://www.cas.org/zh-hans/resource/blog/covid-19-spike-protein
 
-但如果封锁持续下去，中国以外的地区也可能很快感受到这种影响。
 
-上海是世界第一大集装箱港口，是全球供应链的脊柱，也是对外贸易的关键门户。
 
-它的吞吐量占中国港口总量的17%，2021年运送了4700万个TEU–货物的标准计量，意思是二十英尺当量单位。
+**参考文献：**
 
-工厂不能在家工作
+1. Zanasi A et al. A reappraisal of the mucoactive activity and clinical efficacy of bromhexine. Multidisciplinary Respiratory Medicine volume 12, Article number: 7 (2017)
+2. Scialo F. et al. ACE2: The Major Cell Entry Receptor for SARS-CoV-2. Lung 2020 198:867-877. doi: 10.1007/s00408-020-00408-4
+3. Sarker J et al. A Review on Expression, Pathological Roles, and Inhibition of TMPRSS2, the Serine Protease Responsible for SARS-CoV-2 Spike Protein Activation. Scientifica (Cairo). 2021; 2021: 2706789.
+4. Iwata-Yoshikawa N et al. TMPRSS2 Contributes to Virus Spread and Immunopathology in the Airways of Murine Models after Coronavirus Infection. J Virol. 2019 Mar 5;93(6):e01815-18. doi: 10.1128/JVI.01815-18
+5. Hoffmannm M et al. SARS-CoV-2 Cell Entry Depends on ACE2 and TMPRSS2 and Is Blocked by a Clinically Proven Protease Inhibitor. Cell 2020 Apr 16;181(2):271-280
+6. Kawase M et al. Simultaneous treatment of human bronchial epithelial cells with serine and cysteine protease inhibitors prevents severe acute respiratory syndrome coronavirus entry。 J Virol. 2012 Jun;86(12):6537-45. doi: 10.1128/JVI.00094-12
+7. Lucas JM et al. The androgen-regulated protease TMPRSS2 activates a proteolytic cascade involving components of the tumor microenvironment and promotes prostate cancer metastasis. Cancer Discov 2014 Nov;4(11):1310-25. doi: 10.1158/2159-8290.CD-13-1010
+8. Vincent MJ et al. Chloroquine is a potent inhibitor of SARS coronavirus infection and spread. Virol J. 2005 Aug 22;2:69. doi: 10.1186/1743-422X-2-69.
+9. Depfenhart M et al. A SARS-CoV-2 Prophylactic and Treatment; A Counter Argument Against The Sole Use of Chloroquine. American Journal of Biomedical science and research. https://doi.org/10.34297/AJBSR.2020.08.001283
+10. Li T et al. Bromhexine Hydrochloride Tablets for the Treatment of Moderate COVID-19: An Open-Label Randomized Controlled Pilot Study. Clinical and translational science. 2020 13, 1096-1102
+11. Tolouian R. et al. Effect of bromhexine in hospitalized patients with COVID-19. J Investig Med 2021;0:1–6. doi:10.1136/jim-2020-001747.
+12. Ansarin K et al. Effect of bromhexine on clinical outcomes and mortality in COVID-19 patients: A randomized clinical trial. Bioimpacts. 2020; 10(4): 209–215.
+13. Mikhaylov EN et al. Bromhexine Hydrochloride Prophylaxis of COVID-19 for Medical Personnel: A Randomized Open-Label Study. Interdiscip Perspect Infect Dis. 2022; 2022: 4693121.
+14. Granados-Montiel J et al. New prophylaxis regimen for SARSCoV-2 infection in health professionals with low doses of hydroxychloroquine and bromhexine: a randomised, doubleblind placebo clinical trial (ELEVATE Trial). BMJ Open 2021;11:e045190. doi:10.1136/ bmjopen-2020-045190
 
-中国的制造商说，无论多么灵活或有针对性的封锁，都给他们的业务带来了压力。
-
-轮椅生产商Megalicht Tech的创始人Jason Lee先生说：“没有多少角色允许在家工作，他在上海浦西地区的工厂已经暂停生产。”
-
-他说：“人们无法进入工厂……由于我们的原材料来自其他省份或城市，这些原材料也无法进入上海。”
-
-一位上海的郑姓服装出口商说，他最大的问题是无法向客户发送样品。
-
-他说：“货物既不能离开也不能进入。”
-
-专家们说，疫情目前正在蚕食经济增长，但很快就会大吃一惊。
-
-野村经济学家估计，占中共国国内生产总值22%的23个城市已经推出了全面或部分禁售措施。
-
-野村首席中国经济学家陆挺告诉法新社：“随着零关税战略的效益下降，其成本将大幅上升，特别是随着出口受到持续封锁的打击。”
-
-他补充说，这将挑战中共国政府2022年约5.5%的GDP增长目标。
-
-适应生存
-
-目前，各公司正在进行调整，试图处理这些限制。
-
-中国东部泉州市奇峰科技公司总经理高永康先生说：“我们的主要业务活动减少了50%以上。”
-
-由于Covid-19的限制，该公司无法将纺织材料运送给普通客户，而是转向供应蓬勃发展的防护装备市场。
-
-同时，那些无法联系到原有供应商的人正在寻找新的供应商。
-
-纸尿裤生产商新益发集团的副总经理沈胜元说：“成本稍高，效率稍低，但我们可以满足我们的常规需求。”
-
-为了向陷入困境的行业点头，李克强总理本周宣布暂时延缓缴纳餐饮、零售和民航等行业的养老保险费。
-
-但行业团体表示，对上海等主要城市的硬性封锁是不可持续的，尤其是许多Omicron的病例表现出轻度或无症状。
-
-上海美国商会会长Eric Zheng先生说：“在目前的环境下，零科维德战略是否仍然有效。”
-
-上海周五宣布了创纪录的21000个新病例和连续第三天的Covid-19测试，因为对其2600万人口的封锁没有缓解的迹象。
-
-新闻来源：[https://www.straitstimes.com/asia/east-asia/containers-pile-up-at-shanghai-port-as-covid-19-lockdown-blocks-trucks](https://www.straitstimes.com/asia/east-asia/containers-pile-up-at-shanghai-port-as-covid-19-lockdown-blocks-trucks)
 
 * * *
 
-审核：Aries的星
-校对：小东
-发布：小东
-
-![](https://assets.gnews.org/wp-content/uploads/2022/04/GNEWS_CH.-1-3-1-12.jpeg)
+*编辑：文合*
+*封面：水涨船高
+发布：吐纳*
 
  
 

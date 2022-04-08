@@ -2,31 +2,34 @@
 ---
 
 
-## 有声|中共国内清明假期出行比率暴跌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2311602/)
+## 台湾当局追捕中共芯片人才掠夺公司
+` 银河歌舞厅` [轉載自GNews](https://gnews.org/zh-hans/2311621/)
 
-配音：香草山健身部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间4月6日，据相关媒体报道，鉴于中共以疫情为由对墙内各地区实行的强制封控政策，在2022年为期三天的清明节假期中，中共国内民众的出行比率比去年下降了近三分之二。
+撰稿：银河系农场｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2022/04/20201120122933_50234.jpg)
+近日台湾当局一名调查官员表示，台湾已经对大约100家涉嫌非法挖走芯片工程师和其他技术人才的中共公司展开调查。
 
-数据显示，4月3日至4月5日，中共国内包括铁路、航空、水路和公路在内的总出行数大约不到五千四百万次，较去年同期下降了63%，甚至低于2020年中共病毒疫情伊始之时。其中，墙内的航空旅行受到的影响最为严重：清明假期内的乘客总数仅有56万人，相比去年暴跌了87%。此外，墙内民众的公路旅行频率也较去年减少了53%。
+中共虎视眈眈拿下台湾，台湾的法律禁止中共在芯片行业的某些投资，中共通过在开曼群岛等避税地注册公司来规避资金来源，进行偷盗技术或者人才。台积电芯片广泛供应全球，在全球芯片短缺和被川普政府制裁的前提下，中共更加快了非法掠夺的计划。
 
-目前，中共当局正在对出行民众执行严格的管控和病毒检测措施，全国大约有23个城市的1.93亿民众均受到了波及。
+为抵制中共的作为，台湾在2020年12月在司法部调查局内部设了一个工作组专门来应对此问题。该官员称自去年年初以来已经有7家公司被起诉，其中包括27家已经被突击检查或者其所有者已被传唤质询。上个月开展了迄今为止最大的行动，突击检查了8家公司。据悉其中一家自称是台湾数据分析的公司，其总公司是位于中共上海的一家芯片公司的分部，这家公司偷盗台湾芯片设计蓝图发送给中共。涉及到的公司还有北京IC设计公司，通富微电等。
 
-文字版原文：[中共国内清明假期出行比率暴跌](https://gnews.org/zh-hans/2305676/)
+reference：
 
-音频处理：Fei797
-发稿：Fei797
+[https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/](https://www.reuters.com/world/asia-pacific/tip-iceberg-taiwans-spy-catchers-hunt-chinese-poachers-chip-talent-2022-04-08/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4-2-2.jpg)
+撰稿、发布：骄子
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+欢迎订阅我们的GNews账号：
+
+- [jgalaxy2021foreign laguages](https://gnews.org/author/jgalaxy2021/)
+- [喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)
+- [日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/)
+- [银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)
+- [NewFOC](https://gnews.org/zh-hans/author/newfoc/)
+
+![](https://assets.gnews.org/wp-content/uploads/2022/03/Untitled-Project3.gif) 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
