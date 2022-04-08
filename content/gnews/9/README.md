@@ -2,44 +2,42 @@
 ---
 
 
-## 乌克兰官员称俄罗斯将移动火葬场带到马里乌波尔
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307828/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307897/)
 
-评论：***面对铁证如山的事实，俄罗斯方面还多次否认其军队对平民实施了任何暴行，并在早些时候表示将向联合国安理会提供所谓“实证根据”，证明俄军没有参与其中，真是滑天下之大稽。正如一位92岁经历过三次战争的乌克兰老奶奶所说‘普京是一个天生的法西斯主义者，比法西斯还狠’；也正如布林肯国务卿所说“这是一起蓄意杀戮、酷刑、强奸和实施暴行的事件，相关报告充分可信，相关证据昭然若揭，我们决心不论以何种方式，不论何时都必须对实施这些行为的人以及向他们发出指令的人追究责任”。***
+**整理：枳实**
+**美工：精灵蓝**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组（精灵蓝）
+雅典娜疫情更新（2022年 4月7日）
 
-据《新闻大全》记者Mykhailo Bondarenko， 2022年4月6日报道：
-![](https://assets.gnews.org/wp-content/uploads/2022/04/4193.png)在乌克兰的布查，乌克兰军队的成员走过废墟和被摧毁的俄罗斯军车。图片来源：Chris McGrath/Getty Images
-乌克兰南部港口城市马里乌波尔的政府和军方官员表示，俄罗斯军队已经带来了移动火葬场，以抹去战争罪行的证据，与首都基辅附近被解放的北部地区所报道的暴行相比，这里的罪行要“严重得多”。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-俄罗斯国家新闻频道(RIA News)宣布，土耳其总统埃尔多安(Recep tayyip Erdogan)和俄罗斯总统普京(Vladimir Putin)原定于上周日开始从马里乌波尔(Mariupol)撤离外国公民，该计划在宣布几个小时后突然停止。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-805.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-806.png)
+[2022年4月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月7日改进.pdf)
 
-据悉，在基辅郊区的布查“Bucha”，许多无辜平民被撤退的俄罗斯军队杀害，相关照片开始在社交媒体上流行，因此导致了上述计划的中止。马里乌波尔市议会声称，在土耳其代表团抵达该市之前，俄罗斯正在拖延时间以便处理尸体。
+数据来源：
 
-该委员会表示:“此外，所有可能目击暴行的人都将通过专门过滤营进行识别，并下令毁尸灭迹。”
-由于最近有大规模平民被屠杀的证据，美国和欧盟国家正计划迅速加强对俄罗斯的制裁，俄罗斯已接近债务违约。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-但与基辅附近的布查不同的是（那里的平民死亡人数可能有数百人），马里乌波尔的死亡人数估计至少为 5,000 人。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-市议会写道：“如果考虑城市的规模、灾难性的破坏、城市封锁的时间（一个多月）和激烈的抵抗，可能会有数万平民死亡。”
-此前，马里乌波尔官员曾在3月24日报告称，在这座被封锁的城市里，无数人饿死，无处安葬。
-“越来越多的人死于饥饿，”他们说。 “越来越多的人在没有任何食物供应的情况下撒手人寰。任何向该市平民提供人道主义援助的尝试都遭到俄罗斯军队的阻挠。”
-自3月24日的报告以来，当地居民只看到少数人道主义救援车队抵达这个城市，远远没有足够的物资来支持剩下的13万名幸存者。据报道，所有能让人们离开这座城市的公共汽车都被毁了，只有私人车辆偶尔被允许离开。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-马里乌波尔市长瓦迪姆·博伊琴科(Vadym Boichenko)说，“马里乌波尔的悲剧规模是自从集中营存在以来所未见过的。俄罗斯人将我们的城市变成了死亡集中营。这不是新的车臣或阿勒颇（Aleppo），这是新的奥斯威辛集中营。”
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-文章观点仅代表作者个人，与Gnews平台无关
+[covidlive.com.au](https://covidlive.com.au/)
 
-文章来源:**[https://www.newsmax.com/newsfront/russia-ukraine-mariupol/2022/04/06/id/1064629/](https://www.newsmax.com/newsfront/russia-ukraine-mariupol/2022/04/06/id/1064629/)**
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-翻译：洛杉矶盘古农场 –钢蛋儿
-校对：洛杉矶盘古农场 – HotPixel
-评论：洛杉矶盘古农场 –钢蛋儿
-编辑：洛杉矶盘古农场 –傻小子
-发布：洛杉矶盘古农场 –恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+发布：Lish
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 
  
 

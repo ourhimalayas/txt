@@ -2,32 +2,31 @@
 ---
 
 
-## 朝鲜下周可能举行核试验
-` 日本東京方舟農場` [轉載自GNews](https://gnews.org/zh-hans/2307727/)
+## 今日盖特大V推荐 — 大纪元时报（The Epoch Times）
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307749/)
 
-**撰稿：日本东京方舟农场  子辰**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-793.png)
+盖特链接： [**https://gettr.com/user/epochtimes**](https://gettr.com/user/epochtimes)
 
-4月6日，美国国务院朝鲜事务特使金星容（Sung Kim）在新闻发布会上对记者表示，平壤可能会利用其4月15日的纪念日，来展示核能力。
+**大纪元时报自述：**
 
-他说，担心朝鲜平壤在4月15日纪念日即将到来之际，可能会再次采取挑衅行动，即又一次的导弹发射，而且还是一次核试验。虽然不希望发生此事，但明确表示会做好准备。
+基于真相和传统的独立、屡获殊荣的报告。免费时事通讯：[**http://ept.ms/–Newsletters **](https://ept.ms/–Newsletters)电报：[**http://t.me/epochtimes epochtv.com**](https://t.me/epochtimes%20epochtv.com)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-794.png)图片来源：网络
+**大纪元时报简介：**
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片-1-1.jpg)（图片来自网络）
+大纪元时报是一家总部设在美国纽约市的国际多语种报纸和媒体。该报由法轮功学员于2000年在纽约创办。
 
-自今年年初以来，平壤政权已经进行了13次导弹试验。
+大纪元时报隶属于大纪元传媒集团，该集团还经营新唐人（NTD）电视台。大纪元在35个国家有网站，但在中国大陆被屏蔽。
 
-金星容说，面对朝鲜的屡次升级和挑衅行动，联合国安理会做出果断回应，提出了一项新的联合国安理会决议。他希望作为安理会成员国的中共和俄罗斯，能够同意这项决议，并与我们合作，因为这也符合他们自己的利益。
+台湾中央社曾引述大纪元时报，称其独立于党派及商业集团之外，宗旨为“维护人权普世价值、揭露中国共产党政权极力隐瞒的新闻真相”。
 
-他透露，已经与中共和俄罗斯就此事进行了讨论。但目前为止，并未有任何有成效的讨论结果产生。
+编撰：洛杉矶盘古农场 — 心照
+校审：洛杉矶盘古农场 — 郭友(文苏)
+发布：洛杉矶盘古农场 — 恩典
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-此外，4月5日，朝鲜领导人金正恩的妹妹金与正警告说，尽管平壤反对战争，但如果韩国采取任何“危险的军事行动”，例如发动先发制人的打击，朝鲜将动用其日益增长的核武库进行报复。
-
-韩国国防部长徐旭（Suh Wook）曾表示，韩国军方有能力准确而迅速地采取行动，打击朝鲜的导弹发射场，这些发射场对韩国构成了迫在眉睫的威胁。
-
-参考链接：
-[https://www.epochtimes.com/gb/22/4/7/n13703086.htm](https://www.epochtimes.com/gb/22/4/7/n13703086.htm)
-
-总编：老孙
-校对发布：文曦
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,22 +2,24 @@
 ---
 
 
-## 加拿大将立法要求脸书、谷歌为新闻付费
-` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2307842/)
+## 国会两院通过取消俄罗斯及白俄罗斯最惠国待遇的法案
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/2307925/)
 
-加拿大温哥华扬帆农场-活力人生
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片7-2.jpg)图源：internet
-据【彭博新闻】4月5日报道，加拿大正在计划一项法案，强制脸书和谷歌等网络巨头通过协商交易补偿本地新闻机构提供的内容。
+#### 撰稿：彩虹       
+![](https://assets.gnews.org/wp-content/uploads/2022/04/16493975031.png)图片来源：路透社
+据《纽约邮报》4月7日报道，周四，参议院和众议院分别以压倒性票数取消了俄罗斯及其盟友白俄罗斯的“最惠国待遇”的贸易地位。
 
-加拿大遗产部长巴勃罗·罗德里格斯表示，越来越多的加拿大人将数字平台作为获取新闻资讯的门户，这对新闻业产生了巨大的影响。这些平台持续通过共享和分发加拿大新闻媒体的内容获利，而无需为此付费。我们希望通过这项法案解决这种市场失衡问题。
+报道说，参议院以100:0的投票结果通过了该措施，而数小时后，众议院以420:3的投票结果也批准了这项措施。
 
-随着在线广告收入集中流向硅谷的数字巨头，越来越多的媒体公司却陷入了困境。自 2008 年以来，加拿大有 450 多家新闻机构倒闭。这种现象发生在全世界。此前澳大利亚，美国都已引入了类似的立法，欧洲的新闻出版商也在为订立类似法规游说。
+值得注意的是，第二项禁止进口俄罗斯石油的法案也在参议院以100比0通过，在众议院以413比9通过。这两项法案现在都要交给拜登总统签署。
 
-新闻链接：[https://www.bnnbloomberg.ca/canada-to-force-google-facebook-to-pay-news-publishers-1.1748052](https://www.bnnbloomberg.ca/canada-to-force-google-facebook-to-pay-news-publishers-1.1748052)
+根据暂停正常贸易关系的法案，将允许美国政府对钢铁、铂金、铝、铁和钢进行进口控制，这将会给俄罗斯的经济带来进一步的破坏性打击。
 
-* * *
+*责编：白夜*
 
-编辑、上传：月亮之上
+**新闻来源**
+
+[Congress votes to strip Russia, Belarus of ‘most favored nation’ trade status](https://nypost.com/2022/04/07/congress-votes-to-strip-russias-most-favored-nation-trade-status/)
 
  
 

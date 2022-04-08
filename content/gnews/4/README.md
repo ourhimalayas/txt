@@ -2,42 +2,33 @@
 ---
 
 
-## 全球疫情疫苗数据更新
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307897/)
+## 经济产业大臣萩生田：最终目的是不进口俄罗斯煤炭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2307958/)
 
-**整理：枳实**
-**美工：精灵蓝**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组（精灵蓝）
-雅典娜疫情更新（2022年 4月7日）
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+日本经济产业大臣萩生田宣布了一项减少进口俄罗斯煤炭的政策，同时寻找替代国家，最终目标是实现零进口.
 
-[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-88.png)（图片源自本文链接）
 
-全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-805.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-806.png)
-[2022年4月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月7日改进.pdf)
+4月8日FNN综合在线消息：经济产业大臣萩生田宣布了一项减少进口俄罗斯煤炭的政策，同时寻找替代国家，最终目标是实现零进口。
 
-数据来源：
+G7（七国集团）领导人关于包括禁止进口俄罗斯煤炭的声明于7日发布，日本政府已明确表示将分阶段减少进口。
 
-[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
+经济产业大臣萩生田表示：我们希望减少从俄罗斯进口煤炭，我们会朝着这个方向，最终实现完全取消从俄罗斯进口煤炭。
 
-[Our world in data](https://ourworldindata.org/coronavirus-data)
+俄罗斯的煤炭占日本去年煤炭进口的10.8%。萩生田表示：希望避免任何可能导致停电的情况，确保替代资源。
 
-[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
+信息来源： [萩生田経産相　ロシア産石炭「最終的に輸入しない方向目指す」（FNNプライムオンライン） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c1ae897a2889d3a6ff32970ed5b7c93929e7ee54)
 
-[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
-
-[covidlive.com.au](https://covidlive.com.au/)
-
-[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
-
-发布：Lish
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 
