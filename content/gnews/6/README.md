@@ -2,28 +2,31 @@
 ---
 
 
-## 俄乌战争｜美国会投票剥夺俄国最惠国待遇 美、欧制裁趋于同步
-` 關注組` [轉載自GNews](https://gnews.org/zh-hans/2308735/)
+## 普京病重迷信医学偏方 洗鹿茸浴希求长生不老
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2308789/)
 
-**港台前线 zhong｜2022-4-8**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Best-Smartphone-This-Year-11.png)▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-美国参议院周四针对“取消俄罗斯及其亲密盟友白俄罗斯的永久正常贸易关系（PNTR，即永久的最惠国待遇无须年审）”，结果以100赞成：0反对通过。此外，另一项针对禁止进口俄罗斯石油的能源立法，参议院也以100赞成：0反对的结果表示支持。
+作者：香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-728.png)
+福克斯新闻4月7日报道，《Proekt》杂志的最新调查发现，俄罗斯总统普京近期可能病得很重——至少他非常担心自己的健康，也许还忙于延缓衰老。该报告称，在最近的四年里，一名甲状腺癌专家与俄罗斯总统普京进行了35次会面，与他共度了166天。据了解，在普京神秘地离开公众视野的较长时间里，这位医生并非是唯一一位前往过普京远离克里姆林宫的静修所的人。
 
-取消俄罗斯及其盟友白俄的永久正常贸易关系一案，参议院决议通过后，提交给众议院以420票赞成：3票反对结果，获取压倒性支持。禁止俄石油的能源立法，也获得413票压倒性支持。两案送交拜登总统经签署后，公布生效。
+《Proekt》杂志编辑罗曼·巴达宁告诉福克斯新闻称，一直以来，俄罗斯的宣传创造了一个100%健康、体育成瘾的总统形象。突然间，我们却发现真实的普京已经被医生包围了，“我们总共有60名医生，他们每次都同普京一起出行，例如，当他前往黑海度假时。
 
-该能源立法，系将拜登总统先前发布关于禁止进口俄罗斯石油、天然气、煤炭的行政命令，经立法程序转为法律，旨在对普京施加经济压力；贸易立法，美国会以立法形式，取消对俄国的永久最惠国贸易地位，并允许基于俄侵略乌而对莫斯科征收更高的关税，旨在切断美国与俄罗斯的正常经济往来。
+与此同时，《Proekt》杂志还反映出年老的普京对医学偏方的迷恋。据其称，普京曾对在阿尔泰地区的鹿角血浴很感兴趣。他本人至少已尝试过一次这样血腥的沐浴。
 
-欧盟委员会6日曾表示，考虑将俄罗斯煤炭纳入新一轮制裁清单，经会议讨论后欧盟执委会也批准新禁令，从8月中旬开始，全面禁止俄罗斯煤矿进口，也不许俄罗斯货轮停泊欧盟区域港口；同时也对总额高达100亿欧元的高科技产品发布禁令，不允许欧盟企业向莫斯科出口。
+《Proekt》杂志称，自普京第二任期以来，他就试图永远活下去，永远维持独裁统治。目前，年逾70岁的他，虽比他的任何一位前任都显得年轻，却在身体和心理上都已经出现了很多严重的问题。
 
-欧盟成员国以德国最为仰赖俄能源，该国财政部长对此提议表态“德国支持对俄罗斯进一步制裁…必须加大施压普京..必须孤立俄罗斯…必须与俄罗斯切断所有经济关系…。”由此观之，可确定美、欧对俄的制裁及立场趋于同步。
+参考链接：[https://www.foxnews.com/world/different-kind-of-bloodbath](https://www.foxnews.com/world/different-kind-of-bloodbath)
 
-来源｜[cnbc](https://www.cnbc.com/2022/04/07/senate-votes-to-strip-russia-of-most-favored-nation-trade-status.html)、[yahoo](https://uk.news.yahoo.com/u-senate-backs-removal-most-144649257.html)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
 
-* * *
+- 审核/编辑/发稿:qiutian（邱甜）
 
-▎聚焦国际热点、传播关键真相 &gt;&gt; [**港台前線 Frontline｜HK&TW**](https://gettr.com/user/hktwfrontline)
-▎关注疫情真相、光亮黑暗时刻 &gt;&gt; [**疫情關注組 EpidemicConcernGroup**](https://gettr.com/user/mightygroup)
 
+**更多资讯，更多关注**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-732.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
