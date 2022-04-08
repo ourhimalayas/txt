@@ -2,13 +2,63 @@
 ---
 
 
-## 4月8日乌克兰救援行动（图片1-6）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/2312316/)
+## 旧媒体的堕落 新媒体的崛起
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/2312472/)
 
-设计 五月花农场 科存
-![](https://assets.gnews.org/wp-content/uploads/2022/04/32030527-8273-4698-94BD-00FB5422E4C1.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/BCED700E-06CA-4BD6-8146-4604FBA0DD40.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/26807DA8-9573-4F76-8D70-6D4EB8D04AF7.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/A9D29F2D-7377-4E20-975A-48E2F450835D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/885D85F4-DC9F-41F6-82B8-FEEDF750FD5D.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/E56A8AC3-72A5-44EC-849C-33CB3DFBF6A9.png)
-发布：水涨船高
+作者：紐約香草山农场- 杰西卡爱月亮
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/c-2.jpg)
 
+
+> 媒体
+> 你是现代人们
+> 接受信息的唯一
+>  媒体
+> 你是为人们
+> 呐喊不公平的利器
+>  媒体
+> 你是为人们
+> 揭露社会虚伪肮脏的武器
+>  当媒体
+> 成为邪恶势力宣传的机器
+>  谎言铺天盖地
+> 真相没有一丝痕迹
+>  人们也被慢慢
+> 腐化成空壳躯体
+>  一条条推文被删去
+> 一个个账号被封闭
+>  事情的真相
+> 永远被抹去
+>  社交媒体
+> 新闻记者
+> 社会名流
+> 知识分子
+>  你们不知廉耻帮邪恶势力
+> 宣传虚假的信息
+> 封锁真实的信息
+> 为金钱名利跪地
+>  旧媒体的堕落
+> 是这个世界
+> 悲哀的交响曲
+> 奏响了媒体需要变革
+> 呐喊的声音
+>  人们需要发声
+> 需要真相
+> 新媒体的崛起
+> 带着良知和正义
+>  致GETTR GNews G-TV
+
+
+![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+
+编辑/校对/发稿：Daxia
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
