@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 1:04 AM (UTC)`
+
+2022.04.07 晚  新中国联邦 | 新闻访谈   枫桥经验下的灾难逻辑；盖特推特的变化；联合国的现状
+![img](https://media.gettr.com/group22/origin/2022/04/08/00/f331a841-6dc1-abd7-e893-bcd93cb1bef5/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 4/8/2022 12:29 AM (UTC)`
 
 2022.04.07 晚  新中国联邦 | 新闻    郭文贵先生谈法治的重要性；新中国联邦乌克兰救援前线报导
@@ -145,13 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 新中国联邦·法治基金——乌克兰救援行动报告<br/><br/>2022年4月6日第33天当日救援统计：<br/>Medyka救援站接待：约312人<br/><br/>累计救援总计：<br/>Medyka救援站接待：约9580人<br/>巴士救援难民：2009人<br/>巴士发车：39次<br/><br/>New Federal State of China & Rule of Law Foundation - Ukraine Rescue Operation Report <br/><br/>Day 33 - Date: April 6, 2022 :<br/>Medyka Rescue Station Reception: about 312 people<br/><br/>Total：<br/>Medyka Rescue Station Reception: about 9580 people<br/>Refugees Rescued by Bus: 2009 people<br/>Bus Departures: 39 times<br/><br/>#UkraineHelp #UkraineHotline #UkraineEvac #NFSCRescue #UkraineRescue #ROLFRescue
 ![img](https://media.gettr.com/group10/getter/2022/04/07/10/4182e33b-19c2-b110-e9d6-4afef3222e4f/2e00448869a1ef43658707e027ef64f2.jpg)
-
----
-
-`@miles 4/7/2022 9:12 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--波兰救援基地前线报导
-![img](https://media.gettr.com/group24/origin/2022/04/07/08/365a4c04-18b7-32dc-125c-f101c5ad1ec3/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
