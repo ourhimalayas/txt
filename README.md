@@ -15,109 +15,109 @@
 
 ---
 
-### [乌克兰官员称俄罗斯将移动火葬场带到马里乌波尔](/content/gnews/1/README.md)
+### [美国国会法案：取消俄罗斯最惠国待遇及颁布石油禁令](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [乌克兰布查大屠杀使俄罗斯军队陷入邋遢和腐败的新低点](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧盟已批准8月起禁运俄罗斯煤炭进口并将对俄罗斯船只关闭欧盟港口](/content/gnews/2/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [联合国大会紧急特别会议通过了决议暂停俄罗斯联邦在人权理事会的成员权利](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/4/README.md)
- ` MOSVIDEO`
-
-### [安大略省已接种疫苗的死亡率超过未接种疫苗的人](/content/gnews/5/README.md)
+### [加拿大将立法要求脸书、谷歌为新闻付费](/content/gnews/3/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [今日盖特大V推荐 — 约翰·施耐德（johnschneider）](/content/gnews/6/README.md)
+### [乌克兰官员称俄罗斯将移动火葬场带到马里乌波尔](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [侵吞台湾对于习近平掌握权力非常重要](/content/gnews/7/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [泽连斯基谴责俄军正试图掩盖屠杀乌克兰平民的证据](/content/gnews/8/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视频|俄乌战局最近消息汇总](/content/gnews/9/README.md)
- ` MOSVIDEO`
-
-### [视频|乌克兰将效法以色列全民皆兵](/content/gnews/10/README.md)
- ` MOSVIDEO`
-
-### [全球性粮食危机导致薯片等各种糖果制品的供应受到威胁](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [今日盖特大V推荐 — 大纪元时报（The Epoch Times）](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共国的许多反封锁抗议视频遭到了中共当局的审查](/content/gnews/13/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [COVID-19疫苗副作用集萃（2022.4.8）新冠疫苗第三针后，新冠确诊](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [朝鲜下周可能举行核试验](/content/gnews/15/README.md)
- ` 日本東京方舟農場`
-
-### [视频|乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/16/README.md)
- ` MOSVIDEO`
-
-### [日本考虑限制从俄罗斯进口煤炭](/content/gnews/17/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加拿大为应对乌克兰战争增加80亿加元的军费开支](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国科技巨头孟山都中共国籍前员工因犯下经济间谍罪被判监29个月](/content/gnews/19/README.md)
+### [欧盟已批准8月起禁运俄罗斯煤炭进口并将对俄罗斯船只关闭欧盟港口](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [韩正:俄乌战争中与俄罗斯站在一边是十八大以来的党策](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [美国封锁俄罗斯最大金融机构，禁止对俄新投资](/content/gnews/21/README.md)
- ` NFSC News`
-
-### [印尼将从5月起对数字资产收益征收0.1%的所得税](/content/gnews/22/README.md)
- ` 墨尔本雅典娜农场`
-
-### [欧盟对俄罗斯新制裁达成一致 煤炭禁运及其他措施](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国参议院 100：0票通过 撤销俄罗斯正常贸易地位](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [台湾同胞逃离乌克兰，加入喜马拉雅农场](/content/gnews/25/README.md)
- ` NFSC News`
-
-### [新中国联邦前线救援团队传递灭共力量](/content/gnews/26/README.md)
- ` NFSC News`
-
-### [拜登：制裁意在扼杀俄罗斯经济多年](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣](/content/gnews/28/README.md)
- ` 關注組`
-
-### [马斯克加持后，数百万散户投资者买入推特](/content/gnews/29/README.md)
- ` 加拿大温哥华英里农场`
-
-### [上海全面封城 繁荣的城市变成鬼城](/content/gnews/30/README.md)
+### [联合国大会紧急特别会议通过了决议暂停俄罗斯联邦在人权理事会的成员权利](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [上海新增本土确诊824例无症状20398例](/content/gnews/31/README.md)
- ` 加拿大温哥华英里农场`
+### [视频|法治基金在乌克兰的人道救援行动仍在继续](/content/gnews/7/README.md)
+ ` MOSVIDEO`
 
-### [樱花深度报道┃台湾如何应对中共渗透](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [安大略省已接种疫苗的死亡率超过未接种疫苗的人](/content/gnews/8/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [3月全球制造业PMI降至54.1％](/content/gnews/33/README.md)
- ` 加拿大温哥华英里农场`
+### [今日盖特大V推荐 — 约翰·施耐德（johnschneider）](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共科学院间谍承认窃取商业机密后被判入狱](/content/gnews/34/README.md)
+### [侵吞台湾对于习近平掌握权力非常重要](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [泽连斯基谴责俄军正试图掩盖屠杀乌克兰平民的证据](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频|俄乌战局最近消息汇总](/content/gnews/12/README.md)
+ ` MOSVIDEO`
+
+### [视频|乌克兰将效法以色列全民皆兵](/content/gnews/13/README.md)
+ ` MOSVIDEO`
+
+### [全球性粮食危机导致薯片等各种糖果制品的供应受到威胁](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [今日盖特大V推荐 — 大纪元时报（The Epoch Times）](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共国的许多反封锁抗议视频遭到了中共当局的审查](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [COVID-19疫苗副作用集萃（2022.4.8）新冠疫苗第三针后，新冠确诊](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [联大表决暂停俄罗斯人权理事会成员国资格](/content/gnews/35/README.md)
+### [朝鲜下周可能举行核试验](/content/gnews/18/README.md)
+ ` 日本東京方舟農場`
+
+### [日本考虑限制从俄罗斯进口煤炭](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大为应对乌克兰战争增加80亿加元的军费开支](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [韩正:俄乌战争中与俄罗斯站在一边是十八大以来的党策](/content/gnews/21/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [美国封锁俄罗斯最大金融机构，禁止对俄新投资](/content/gnews/22/README.md)
+ ` NFSC News`
+
+### [印尼将从5月起对数字资产收益征收0.1%的所得税](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [欧盟对俄罗斯新制裁达成一致 煤炭禁运及其他措施](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国参议院 100：0票通过 撤销俄罗斯正常贸易地位](/content/gnews/25/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾同胞逃离乌克兰，加入喜马拉雅农场](/content/gnews/26/README.md)
+ ` NFSC News`
+
+### [新中国联邦前线救援团队传递灭共力量](/content/gnews/27/README.md)
+ ` NFSC News`
+
+### [拜登：制裁意在扼杀俄罗斯经济多年](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [俄乌战争｜俄外长批 无法接受乌的和平协议内容 乌谈判人员回击：外宣](/content/gnews/29/README.md)
+ ` 關注組`
+
+### [马斯克加持后，数百万散户投资者买入推特](/content/gnews/30/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [上海全面封城 繁荣的城市变成鬼城](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [上海新增本土确诊824例无症状20398例](/content/gnews/32/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [樱花深度报道┃台湾如何应对中共渗透](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [3月全球制造业PMI降至54.1％](/content/gnews/34/README.md)
+ ` 加拿大温哥华英里农场`
+
+### [中共科学院间谍承认窃取商业机密后被判入狱](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [上海强迫儿童与父母分开的隔离政策在质疑声中出现调整](/content/gnews/36/README.md)

@@ -2,19 +2,21 @@
 ---
 
 
-## 新中国联邦前线救援团队传递灭共力量
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307551/)
+## 台湾同胞逃离乌克兰，加入喜马拉雅农场
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2307577/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
-在4月6日的连线直播中，新中国联邦乌克兰救援前线的战友，深感本次救援对当地华人的巨大影响力。从不知道爆料革命的使命，到亲眼见证来自世界各地的新中国联邦人真诚、无私地救援乌克兰，这些华人意识到新中国联邦灭共的实力和决心，以中共领导中国为耻。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-789.png)
-在前线的每一位战友都是爆料革命的播种机，将新中国联邦的灭共使命传播到世界各地。
+据前线战友4月6日连线报导，逃离乌克兰的台湾同胞王先生，因为参与新中国联邦前线救援工作，了解新中国联邦的信仰和追求，认同新中国联邦的灭共使命，并于近期正式加入喜马拉雅德国农场。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-790.png)
+视频详情，请点击下面链接：
 
-我们一起来看前方战友发回的报导。
+参考链接：[4/6/2022 乌克兰救援连线](https://gettr.com/post/p13yuy3636a)
 
-视频链接：[4/6/2022 乌克兰救援连线](https://gettr.com/post/p13yl5rfa7f)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/4月-50.jpg)
 
-编辑/总编：雪梨
+编辑总编：雪梨
+
+校对/发稿：浪迹天涯
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/图标-25.png)
  
 
