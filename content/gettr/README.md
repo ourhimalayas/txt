@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 10:51 PM (UTC)`
+
+4/8/2022 Ukraine Rescue: Fellow fighters who contracted the virus have all turned negative in tests, and we are all grateful to our medical team for meticulously caring for the sick ones. Every aspect of the rescue camp has been significantly improved compared to what we had at the beginning. Fellow fighters are taking good care of the refugees at every moment, making everyone very grateful for the Rule of Law Foundation and the New Federal State of China. Although it is our first time to participate in the rescue operation, we keep growing and improving!<br/><br/>4/8/2022 乌克兰救援连线: 染病的战友们都已转阴，大家对医疗团队无微不至的关照充满感激！救援营地各方面都比最初有了很大改善，战友们时刻都在细心照顾难民，这让大家非常感恩法治基金和新中国联邦！我们虽是第一次参加救援，但都在不断成长和进步！<br/>
+![img](https://media.gettr.com/group41/getter/2022/04/08/22/1de0259d-8c24-cecd-499e-62fd36b514e7/out.jpg)
+
+---
+
 `@miles 4/8/2022 10:00 PM (UTC)`
 
 新中国联邦 法治基金 乌克兰救援快报 飞飞秀特辑 2022-04-08<br/>For English：gettr.com/post/p14a1ob032b
@@ -145,13 +152,6 @@ A Danish Christian volunteer: The CCP have been killing His people for years but
 
 2022-4-7《鸡血王喜币大作战》 第一百五十八集 嘉宾：青藤、文空
 ![img](https://media.gettr.com/group32/origin/2022/04/08/02/f3e8a65e-b2bf-453d-3b30-8471ea63b82d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/8/2022 2:03 AM (UTC)`
-
-2022.04.07  新中国联邦 | 喜财经      中共国地方债危机
-![img](https://media.gettr.com/group44/origin/2022/04/08/01/19c9e54b-208a-e16c-6c44-d1e124b7e3ff/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
