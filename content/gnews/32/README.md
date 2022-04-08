@@ -2,25 +2,25 @@
 ---
 
 
-## 美财政部长将就加密市场监管及政策发表演讲
-` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305631/)
+## 中共国内清明假期出行比率暴跌
+` NFSC News` [轉載自GNews](https://gnews.org/zh-hans/2305676/)
 
-作者：Noemi
+作者：Naughty(文行)
 
-4月6日，据相关媒体消息显示，美国财政部长珍妮特-耶伦将于本月7日就加密市场的监管及政策发表首次演讲。
+当地时间4月6日，据相关媒体报道，鉴于中共以疫情为由对墙内各地区实行的强制封控政策，在2022年为期三天的清明节假期中，中共国内民众的出行比率比去年下降了近三分之二。
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide5-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Slide7-4.jpeg)
 
-据悉，耶伦将在演讲中概述财政部为调查数字资产的使用和技术可以采取的可能步骤。此外，联邦政府还将为加密货币市场建立一个“全面的政策框架”。早先，美国总统拜登也签署了一项行政命令，当中指示联邦机构加速研究加密货币的风险和收益。
+数据显示，4月3日至4月5日，中共国内包括铁路、航空、水路和公路在内的总出行数大约不到五千四百万次，较去年同期下降了63%，甚至低于2020年中共病毒疫情伊始之时。其中，墙内的航空旅行受到的影响最为严重：清明假期内的乘客总数仅有56万人，相比去年暴跌了87%。此外，墙内民众的公路旅行频率也较去年减少了53%。
 
-对此，郭文贵先生曾在直播中爆料称，美国将会在2022年年底前为加密货币的监管出台一整套完整的法律体系，以此促使加密货币市场完全合法化。而随着该系列法律、法规的出台，喜币则有望成为加密货币市场中最具价值的行业标杆。
+目前，中共当局正在对出行民众执行严格的管控和病毒检测措施，全国大约有23个城市的1.93亿民众均受到了波及。
 
-参考链接：[Treasury Secretary Janet Yellen will deliver her first speech on crypto and call for a ‘comprehensive policy framework’](https://markets.businessinsider.com/news/currencies/janet-yellen-treasury-speech-crypto-regulation-digital-asset-tokens-policy-2022-4)
+参考链接：[China holiday travel slumps after COVID outbreaks – state media](https://www.reuters.com/world/china/china-holiday-travel-slumps-after-covid-outbreaks-state-media-2022-04-06/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2022/04/月曆-4.jpeg)
 
-总编/审核：Irene木木
-编辑：宁文静
+总编/编辑：Irene木木
+审核：飞虹
 校正/发稿：谐趣园
 
  

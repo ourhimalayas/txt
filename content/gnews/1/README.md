@@ -2,34 +2,123 @@
 ---
 
 
-## 墨尔本博物馆移除部分创伤作品
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/2306335/)
+## 大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2306356/)
 
-翻译/编辑：Rianna
-![](https://assets.gnews.org/wp-content/uploads/2022/04/zoujinaozhou.png)图片来源：雅典娜设计组
-墨尔本博物馆移除了一件承认近 1000 名在澳大利亚被男性杀害的妇女和儿童的艺术品，部分原因是它可能会给一些游客带来创伤。
+这才是真正的中国人的悲哀
+Esto es realmente la tristeza de los verdaderos chinos
 
-周三，墨尔本艺术家丹斯·贝恩 (Dans Bain) 被要求从 Her Place 女性博物馆移除她的 30 米作品《失落的请愿书》，该展览由澳大利亚工党附属网络 Emily’s List 策划，庆祝女性从政 25 年的展览于周五开幕。
+就是你根本不知道真假善恶之分
+Simplemente no sabes diferenciar entre el verdadero y lo falso, el bien y el mal
 
-根据 Her Place 女性博物馆董事会主席 Mary Delahunty 发表的一份声明，《失落的请愿书》被撤下是因为该作品的规模，以及墨尔本东部博物馆缺乏安装它的替代空间。
+那么海外欺民贼能到今天
+Entonces, los engañadores en el extranjero pueden sobrevivir hasta el sol de hoy
 
-但Emily’s List 全国联合召集人Leigh Svendsen 向卫报证实，该组织已要求博物馆董事会将艺术品移走，部分原因是担心没有足够的措施来应对可能因作品的对抗性质而引发的人们。
+就是(因为)没有真假善恶之分
+Es (porque) no hay distinción entre el bien y el mal
 
-“这是一个很棒的展览，但我们只有志愿者来为她的故事展览工作，如果人们对丹斯的工作感到不安，我们当然没有任何能力来支持他们，”Svendsen说。
+有这么多无知的中国海外同胞
+Existen tantos compatriotas chinos ignorantes en el extranjero
 
-《失落的请愿书》织物艺术品由 12 张缝合在一起的白色床单组成，上面刻有自 2008 年以来因家庭暴力而被谋杀的 986 名妇女和儿童的名字。随着死亡人数的增加，他们的名字被添加到作品中。
+和中国同胞真有良知的人
+Y compatriotas chinos con conciencia
 
-刻在艺术品上的遇难者姓名由反性别暴力组织“红心运动”的创始人 Sherele Moody 提供，他说移除这幅作品是对每个被提及遇难者家属的“无情的一记耳光” 。
+但是他却没有信仰
+Pero no tiene creencia
 
-新闻来源：[墨尔本博物馆决定移除反性别暴力艺术作品](https://www.theguardian.com/australia-news/2022/apr/07/doubly-erased-artwork-recording-names-of-domestic-violence-victims-removed-from-melbourne-museum)
+真的想灭共的人
+Gente que realmente quieren destruir al PCCh
 
-*发布：tianzhihuan*
+他却没有任何辨别真假的能力
+Pero no tiene ninguna habilidad para distinguir entre verdadero y falso
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：Himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+被他们利用几十年
+Fueron utilizados por ellos durante décadas
+
+我再告诉大家
+Les diré de nuevo
+
+你们从来没有想过亨利小哥
+Ustedes nunca pensaron, Hengli Xiaoge
+
+在过去几十年被这些人害的人
+Personas que fueron asesinadas por estas personas en las últimas décadas
+
+你们知道有多少人吗
+Ustedes saben ¿cuántas personas hay?
+
+谁能告诉我一个数字
+Alguien me puede decir una cifra
+
+被他们给骗回去的
+Los que fueron engañados por ellos
+
+被他们给抓起来, 被他们给伤害的
+Arrestados, heridos por ellos
+
+被他们给骗了上床的
+Engañados a la cama por ellos
+
+骗走钱的有多少个
+Y cuántos fueron estafados
+
+就像草根小哥
+Así como Caogen Xiaoge
+
+给路大脑袋傻捐, 捐了几百次
+Donó estúpidamente a Lude cientos de veces
+
+最后是路大脑袋说你活该
+Finalmente, Lude dijo que te lo mereces
+
+我让你捐了吗
+¿Acaso te dije que donaras?
+
+然后你再看这个王书君
+Luego ves a este Wang Shujun
+
+你们知道这个王书君这个人
+Ustedes saben que este hombre Wang Shujun
+
+害了多少人吗?
+¿Le hizo daño a cuántas personas?
+
+他最起码接触华人几百个人的信息
+Al menos tiene acceso de información de cientos de chinos
+
+让他给传输给共产党了
+Que lo transmitía al PCCh
+
+很多华人找他所谓作政庇
+Muchos chinos lo buscaron por un supuesto asilo político
+
+多少人已经被弄回去了
+Cuantas personas han sido llevadas de regreso
+
+你能查出来吗
+¿Logras averiguarlo?
+
+**原视频网址**：[https://gettr.com/post/p128wet3a28](https://gettr.com/post/p128wet3a28)
+
+日期：04/06/2022
+原视频标题：因为大部份中国人, 无知无信仰且没有分辨真假善恶的能力, 才被海外伪民运欺民贼欺骗
+Debido a que la mayoría de los chinos son ignorantes y no tienen creencias, tampoco la capacidad de discernir lo verdadero y lo falso, el bien y el mal, son engañados por los ladrones de pseudo-democracia en el extranjero
+
+原视频日期：03/28/2021
+原视频网址：https://gettr.com/post/p128wet3a28
+任务编号：KC487(4114)
+视频时间段：0:00-1:30
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场-天涯行
+审片：洛杉矶盘古农场-银龙
+发布：洛杉矶盘古农场 – 彩虹 Rainbow
+[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 12:23 AM (UTC)`
+
+In tragedy after tragedy in Ukraine, the ruthlessness of the Russian soldiers, their brutal methods have reached the point of heinousness, can the mothers of the Russian soldiers see this scene? Can they still sleep peacefully and stand here?  The rescue operation carried out by the New Federal State of China in Ukraine is also saving countless mothers, because both Russia and the Chinese Communist Party are hurting them!<br/>在乌克兰发生的一桩桩惨案中，俄罗斯士兵的丧心病狂，其残害手段之恶毒已经到了令人发指的地步，作为俄罗斯士兵的母亲们能看到这一幕吗？还能安心入睡立足于世界吗？一个国家的败亡往往是对女性的不公开始的，而且往往都是一些独裁国家，正如中共国的锁链女、杨改兰，作为俄罗斯的士兵的母亲们，就没想明白这个问题吗？让侵略者回家吧，这样还挽回些什么，不然他们都会死在乌克兰，而且是被唾弃的死去，因为正邪的较量是没有休止符的！新中国联邦在乌克兰开展的援救行动，也拯救着无数的母亲，因为俄罗斯和中共都在伤害她们
+![img](https://media.gettr.com/group49/origin/2022/04/08/00/1c393958-6b1a-e550-bd8c-b04728c32ec7/out.jpg)
+
+---
+
+`@miles 4/8/2022 12:21 AM (UTC)`
+
+A volunteer from Pennsylvania, US, took photos of the jacket of our fellow fighter.  Nicole introduced the difference between the Chinese people and the CCP to him. He was glad to see the new Chinese people are taking down the CCP.<br/>来自美国宾夕法尼亚州的义工看到咱们战友的马甲，就举起手机拍照。妮可向他介绍中国人和中共的区别。他很高兴看到新中国联邦人消灭共产党。
+![img](https://media.gettr.com/group32/origin/2022/04/08/00/dc8b69c4-5b19-beb5-bc05-065af9ef93d2/out.jpg)
+
+---
+
+`@miles 4/8/2022 12:18 AM (UTC)`
+
+The Indian volunteer is very interested in the "extermination of the Communist Party" yellow vest of the New Federal State of China volunteers, and he strongly agrees with Mr. Miles Guo's idea and actions to eliminate the Chinese Communist Party. Neither Russia nor China should allow communism to exist anymore<br/>这位来自印度的志愿者对新中国联邦志愿者的“灭共”马甲非常感兴趣，他非常赞同郭文贵先生的消灭中共的理念和行动。无论是俄罗斯还是中国，都不应该再让共产主义存在
+![img](https://media.gettr.com/group12/origin/2022/04/08/00/5fffe65c-880e-511c-163f-3cba243dd9d0/out.jpg)
+
+---
+
 `@miles 4/7/2022 11:47 PM (UTC)`
 
 2022.04.07《The Fringe》 Episode 164
@@ -131,27 +152,6 @@ Dictatorship comes from the people, but the people can also overthrow a dictator
 
 4/6/2022 Miles Guo’s GETTR: Please rest assured that all is well with me! I am enjoying learning the law of the US in the process of fighting back against the CCP's unrestricted lawfare. China will be a better place in the future with the judicial system and rule of law like the US. All fellow fighters will go through transformations expeditiously and head towards our goal of Himalaya - bringing rule of law, freedom, and faith to everyone in new China.<br/><br/>4/6/2022 文贵盖特：请大家放心，文贵一切都好！文贵很享受在回击中共法律超限战的过程中学习美国法律，未来有了美国这样的司法体系和法治，中国会变得更好；战友都在迅速地蜕变并走向我们新中国人的喜马拉雅的目标！<br/>
 ![img](https://media.gettr.com/group30/getter/2022/04/07/07/0f0cee9b-644d-ccc0-9d61-6584d107f572/out.jpg)
-
----
-
-`@miles 4/7/2022 7:03 AM (UTC)`
-
-【Ukraine Rescue】04/04/2022 Naive has been working and studying in Ukraine for 7 or 8 years. He originally planned to follow the Taiwan government's evacuation operation to return to Taiwan, but finally stayed in Poland because he was worrying about his friends in Ukraine. He learned about the NFSC’s rescue team through a local Chinese restaurant owner and became one of our volunteers. He took advantage of his language and experience in Ukraine to serve refugees, and worked with the NFSC’s rescue team to help provide refugees with transportation, accommodation and psychological assistance.<br/><br/>【乌克兰救援】04/04/2022 Naive在乌克兰半工半读了7、8年，本来打算跟随台湾政府的撤侨行动回台湾，因为牵挂乌克兰的朋友留在了波兰，通过一名中餐馆老板了解到新中国联邦救援团队，而成为一名志愿者。他利用语言和在乌克兰的经历优势服务难民，与新中国联邦救援团队一起为难民提供交通、食宿以及心理方面的帮助。
-![img](https://media.gettr.com/group5/getter/2022/04/07/07/61e708d3-c424-878f-d402-6ad479b1ecff/out.jpg)
-
----
-
-`@miles 4/7/2022 4:59 AM (UTC)`
-
-新中国联邦法治基金乌克兰人道救援行动--最新战况播报
-![img](https://media.gettr.com/group25/origin/2022/04/07/04/65111f0b-e313-61ef-7782-dad2ef7850e8/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 4/7/2022 3:21 AM (UTC)`
-
-4/6/2022 Ukraine Rescue: Fellow fighter Wenyao on why the number of refugees served by the big tent of the New Federal State of China is decreasing. The Western democracies are offering long-term relief programs such as immigration for Ukrainian refugees in Poland, while the evil CCP regime is doing nothing. This is because the CCP is the main culprit of this war.<br/><br/>4/6/2022 乌克兰救援连线：文耀战友分享为什么新中国联邦的大帐篷接待的难民人数在减少；西方民主国家在波兰为乌克兰难民提供移民等长期救助计划，但邪恶的中共却什么也没做，因为它是这场战争的罪魁祸首<br/>
-![img](https://media.gettr.com/group19/getter/2022/04/07/03/e7111954-df76-d5ee-17bd-a921d1b08888/out.jpg)
 
 ---
 
