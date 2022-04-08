@@ -2,16 +2,16 @@
 ---
 
 
-## 樱花头条┃山东人跪着排队等待扫描健康码&#8212;商鞅五术之“辱民”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309018/)
+## 樱花头条┃上海市民智斗武警 阻止其进入小区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309140/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-山東省濟南市人们“跪著”排隊等待被掃描“健康碼”！商鞅五术之辱民。
+上海市民智斗武警，阻止武警进小区。
 
-信息来源：[https://www.gettr.com/post/p135p3jcc3c](https://www.gettr.com/post/p135p3jcc3c)
+信息来源：[https://www.gettr.com/post/p135pqi32c5](https://www.gettr.com/post/p135pqi32c5)
 
-编辑：东京樱花团/asket、深藏不露（素材）
+编辑：东京樱花团/asket、太白（素材）
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****

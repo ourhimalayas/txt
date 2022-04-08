@@ -2,24 +2,18 @@
 ---
 
 
-## 中共利用美国社交媒体影响者为 冬奥会做宣传
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2309415/)
+## 美联储已经准备好制裁中共
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/2309478/)
 
 **编译：verifunny**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/22-2.png)
-由于中共国在新疆对待其维吾尔族穆斯林少数民族的做法在国际上引起了强烈反响，威胁到北京冬奥会的举办，中国共产党加强了其影响活动，而事实证明，美国的社交媒体影响者和一家关系良好的管理公司渴望为中共提供帮助（有代价）。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/33-1.png)
+本周三（4月6日），财政部长珍妮特·耶伦表示，如果北京入侵台湾，美国将准备对中共国使用类似于对俄罗斯实施的制裁。耶伦告诉众议院金融服务委员会，她认为美国已经表明它可以施加巨大的经济痛苦给中共国。”她说：“我认为你们不应该怀疑我们在其他情况下做同样事情的能力和决心。”
 
-乔布斯共同拥有的纪念体育和娱乐公司被中共国中央电视台聘用，在一场华盛顿首都曲棍球比赛中为2022年冬季奥运会进行 “宣传突击”。作为另一项宣传工作的一部分，中共国驻纽约领事馆雇用了11名社交媒体影响者，在TikTok和Instagram上宣传奥运会（以及中国友好的商业环境）。
+美国副国务卿温迪·谢尔曼也在委员会作证，并警告说，如果中共国在乌克兰战争中帮助俄罗斯，美国将对其实施严厉的制裁。”她说：“我认为，这让习主席很好地了解，如果他事实上以任何物质方式支持普京，他可能会遇到什么。”
 
-披露为外国实体工作的文件显示，驻纽约领事馆向公共关系公司Vippi Media支付了30万美元，让TikTok和Instagram用户宣传北京奥运会，而此时西方国家要求企业赞助商加入抵制中共国侵犯人权行为的压力正在增加。
+美国已在准备对付中共的一切措施。美国在俄乌战争并没有大张旗鼓的支援乌克兰，而是悄悄的在技术上和军火上提供援助。最近沙特，阿联酋和也门之间的冲突越来越频繁。或许美国在准备应付中东地区和台湾海峡的战争。
 
-在报告最后提到，在TikTok和Instagram上分享中共国宣传品的影响者都没有注册为外国代理人（根据法律规定，所有代表外国政府从事任何类型的政治敏感工作的美国人都必须这样做）。
-
-这当然引出了一个问题：目前还有多少 “影响者 “在从事类似工作？
-
-中共到底砸了多少钱来帮不能滑雪的北京做宣传？
-
-**新闻来源： **[https://freebeacon.com/national-security/how-china-used-american-influencers-to-shill-for-the-genocide-games/](https://freebeacon.com/national-security/how-china-used-american-influencers-to-shill-for-the-genocide-games/)
+**新闻来源**：https://news.antiwar.com/2022/04/06/us-warns-china-would-face-sanctions-similar-to-russia-for-invading-taiwan/
 
  
 

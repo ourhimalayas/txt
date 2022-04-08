@@ -2,43 +2,29 @@
 ---
 
 
-## 欧盟主席乘火车前往基辅
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/2309399/)
+## 速报┃大快人心 日本也加入了驱逐俄罗斯外交官的行列
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309462/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/闻雨
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+由于俄罗斯对乌克兰的军事入侵，4月8日，日本政府宣布驱逐俄罗斯外交官及其他驻日人员，共8名。这8名是俄罗斯驻东京大使馆的外交官和俄罗斯贸易代表办公室的官员。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/1-143.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.sputniknews.cn%2Fimg%2F07e5%2F05%2F18%2F1033755605_0%3A160%3A3077%3A1890_1920x0_80_0_0_9dd0cb00b5f637efcbdf1e26be207c6b.jpg&amp;imgrefurl=https%3A%2F%2Fsputniknews.cn%2F20211110%2F1034775475.html&amp;tbnid=S_H2PzLLALqOvM&amp;vet=12ahUKEwjq8dPDkoT3AhUx-YUKHZyRD58QMygBegUIARCdAQ..i&amp;docid=jth86Jcyr9DL0M&amp;w=1920&amp;h=1080&amp;q=%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C&amp;ved=2ahUKEwjq8dPDkoT3AhUx-YUKHZyRD58QMygBegUIARCdAQ)
 
+外务省森外交事务次官通知俄罗斯驻日本大使加卢津先生，并转达了包括离开期限在内的信息。据说俄罗斯方面已经陈述了自己的论点，但日本方面表示，这些论点是“完全不可接受的”。今后，俄罗斯方面可能会驱逐驻俄的日本外交官作为反制措施，但外交部表示，它将采取一切可能的措施保护日本国民和在俄罗斯的商业活动。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/IMG_0153.jpg)
+据报道，针对这一宣布，俄罗斯外交部发言人扎哈罗娃表示，“将采取适当的应对措施”。塔斯社刚刚获悉，有可能对驻俄罗斯的日本外交官采取相同措施。
 
+信息来源：[【速報】政府ロシア外交官ら8人の国外追放を発表　外務省報道官が発表（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/931524d5dd6fb3d5b6d379e7dfee90a17463503c)
 
-资料来源：欧盟主席推特
-
-周五晚上，欧盟委员会主席乌尔苏拉·冯德莱恩前往基辅。 她是自布查战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
-
-欧盟委员会主席乌尔苏拉·冯德莱恩和欧盟外交政策负责人何塞普·博雷尔正在前往基辅进行会谈的途中。 周五早上，冯德莱恩在推特上发布了一张照片，照片显示她和博雷尔以及斯洛伐克总理爱德华·黑格在火车站出发前不久。
-
-
-
-> Looking forward to Kyiv.[@JosepBorrellF](https://twitter.com/JosepBorrellF?ref_src=twsrc%5Etfw) [@eduardheger](https://twitter.com/eduardheger?ref_src=twsrc%5Etfw) [pic.twitter.com/YFAgGr5Tlc](https://t.co/YFAgGr5Tlc)
-> — Ursula von der Leyen (@vonderleyen) [April 8, 2022](https://twitter.com/vonderleyen/status/1512303926032359428?ref_src=twsrc%5Etfw)
-
-
-
-根据冯德莱恩的说法，欧盟政界人士在基辅与乌克兰总统泽连斯基会面，希望表明欧盟“比以往任何时候都更”站在乌克兰一边。
-
-周五晚上，欧盟委员会主席乘坐火车从波兰东南部前往乌克兰首都。 这位前德国国防部长是自基辅郊区布查的战争暴行曝光以来第一位访问乌克兰的西方高级政治家。
-
-欧洲议会主席罗伯塔·梅佐拉上周前往基辅。 作为对布哈平民屠杀事件的回应，欧盟成员国周四决定对俄罗斯实施进一步制裁。 其中包括禁止从俄罗斯进口煤炭、新的贸易限制以及对俄罗斯船只进入欧盟港口的影响深远的禁令。
-
-简评：欧盟主席乘坐火车前往战火张的乌克兰首都基辅， 准备会见乌克兰总统泽连斯基， 这是非常勇敢而且需要勇气的行动， 用行动表示对乌克兰政府和乌克兰人民的最大支持，普京你也睁开眼睛吧。
-
-🔗[https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html](https://www.welt.de/politik/ausland/article238058811/Ukraine-Treffen-mit-Selenskyj-von-der-Leyen-unterwegs-nach-Kiew.html)
-
-责任编辑、发布： Shuizhuyu
-
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
+**更多资讯，更多关注****
+**[**乌克兰救援UkraineRescue****官方Gettr**](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生Gettr**](https://gettr.com/user/miles)**
+**[**全球喜马拉雅农场联盟委员会Gettr**](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心Discord**](https://discord.gg/zv8j42srdN)
 
  
 

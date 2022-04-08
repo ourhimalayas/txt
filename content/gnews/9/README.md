@@ -2,16 +2,20 @@
 ---
 
 
-## 樱花头条┃德、法两国同日分别宣布驱逐40名和35名俄外交人员；立陶宛驱逐俄大使、降低外交级别
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309380/)
+## 樱花头条┃上海疫情管理混乱 居民和领导电话里一起哭诉：“我现在贴钱，还在卖命！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2309437/)
 
 撰稿：东京樱花团/樱花传媒
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
-德、法两国同日分别宣布驱逐40名和35名俄外交人员；立陶宛驱逐俄大使、降低外交级别。
+上海疫情管理混乱
 
-信息来源：[https://www.gettr.com/post/p13n8hc84ca](https://www.gettr.com/post/p13n8hc84ca)
+上海居民和领导，电话里一起哭诉！
 
-编辑：东京樱花团/asket、包子（素材）
+“我现在贴钱，还在卖命！”
+
+信息来源：[https://www.gettr.com/post/p13nf4s742b](https://www.gettr.com/post/p13nf4s742b)
+
+编辑：东京樱花团/asket、asket（素材）
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/LOGO-1-14.png)
 **更多资讯，更多关注****
