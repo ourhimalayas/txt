@@ -2,81 +2,42 @@
 ---
 
 
-## 乌克兰布查大屠杀使俄罗斯军队陷入邋遢和腐败的新低点
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307843/)
+## 全球疫情疫苗数据更新
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307897/)
 
-据《abc News》记者Mick Ryan 2022年4月4日报道
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-797.png)一名乌克兰士兵站在基辅郊区布查的一个检查站，据信在那里发生了平民大屠杀。（美联社：罗德里戈·阿卜杜）
-随着俄罗斯人本周从乌克兰北部撤退，乌克兰军队紧随其后。
+**整理：枳实**
+**美工：精灵蓝**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-804.png)图片：雅典娜农场设计组（精灵蓝）
+雅典娜疫情更新（2022年 4月7日）
 
-警告：本文包含可能会打扰某些读者的图形图像。
+[往期《雅典娜疫情更新》](https://gnews.org/zh-hans/tag/%E9%9B%85%E5%85%B8%E5%A8%9C%E6%AF%8F%E6%97%A5%E7%96%AB%E6%83%85%E6%9B%B4%E6%96%B0/)
 
-尽管这些士兵在从俄罗斯入侵者手中夺回家园时会感到高兴，但这种幸福很快就变成了混乱，然后是恐惧。他们发现了撤退的俄罗斯军队的彻底堕落，并且在周末，世界其他地方开始看到这些乌克兰士兵发现了什么。
+全球和澳洲疫情疫苗关键数据和疫情新闻今日更新！图表总结了澳洲的第三针和5-11岁儿童注射数量的关键数字，对预测未来疫苗灾难的规模有现实意义。文末附有PDF文件下载链接。
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-805.png)![](https://assets.gnews.org/wp-content/uploads/2022/04/image-806.png)
+[2022年4月7日全球和澳洲疫情更新PDF文件下载](https://assets.gnews.org/wp-content/uploads/2022/04/全球疫情更新模板-new4月7日改进.pdf)
 
-在乌克兰首都基辅西北部的小镇布查，平民尸体躺在他们倒在街上的地方。
+数据来源：
 
-据多个消息来源称，数十名平民在该镇的街道上被俄罗斯士兵处决。据镇长说，更多死去的当地人被埋在万人坑里。
+[谷歌](https://www.google.com/search?q=covid+case&amp;rlz=1C1ONGR_en-GBAU960AU960&amp;oq=covid+case&amp;aqs=chrome..69i57j69i59j0i402l2j0i131i433i512j0i20i131i263i433i512j0i131i433i512j69i60.1435j0j4&amp;sourceid=chrome&amp;ie=UTF-8)
 
-这无疑会引起国际刑事法院的注意，该法院已经开始对乌克兰的战争罪指控进行调查。这应该被调查。
+[Our world in data](https://ourworldindata.org/coronavirus-data)
 
-虽然这些调查需要时间，但我们已经可以对这个直到几天前还处于俄罗斯入侵者控制之下的小镇发生的事情进行一些观察。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-798.png)图片源自ABC
-邋遢、腐败的军事文化
-指挥布哈及其周边地区军​​队的俄罗斯军官疏忽大意，道德败坏和犯罪。
+[澳大利亚卫生部网站中共病毒疫苗统计](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/numbers-statistics)
 
-军事领导人，特别是那些在俄罗斯人负责布查的情况下发现自己的人，有保护平民和战俘的法律义务。在乌克兰这一特殊地区的俄罗斯指挥官在这方面一直是失败的。
+[澳洲TGA每周疫苗不良反应报告](https://www.tga.gov.au/covid-19-vaccine-safety-monitoring-and-reporting)
 
-同样清楚的是，自2008年以来俄罗斯的军事转型计划并没有在人的层面上改变任何东西。在华丽的装备和巧妙的口号（如“积极防御”）的光芒下，隐藏着邋遢和腐败的俄罗斯军事文化的腐烂核心。
+[covidlive.com.au](https://covidlive.com.au/)
 
-过去一个月，乌克兰各地城市的平民被蓄意攻击，表明整个俄罗斯指挥系统对人类生命的冷酷无情。但由于处决手无寸铁的平民，这种冷酷无情已经达到了一个全新的水平（非常低的水平）。
+[Coronavirus World Map](https://www.nytimes.com/interactive/2021/world/covid-cases.html)
 
-但是，俗话说，鱼头烂尾。如果一个军事机构为自私的腐败专制阶级服务，为什么有人会期望既定的军事文化和高级军事领导人的行为有什么不同呢？
+发布：Lish
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 
-我希望这个问题将在未来几年内得到审查。虽然这种指挥责任的严重失败有很多方面，但布查大屠杀突出了两个与西方军事机构相关的关键问题。这包括澳大利亚国防军。
 
-ADF 可以学到什么
-首先是对军民关系的研究很重要。
-
-重要的是，民主国家有一个关于军事组织如何与民选政府以及他们所捍卫的人民互动的理论。在某些方面，它是俄罗斯军队及其布哈指挥官行为的核心。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-799.png)在布哈的街道上发现了屠杀平民的证据。（美联社：罗德里戈·阿卜杜）
-因此，民主国家必须拥有宪法规定的军队公民至上的地位。大多数西方民主国家，包括我们自己的国家，都有这一点。它是有效的军事机构的良好基础。
-
-这些军民关系理论因国家而异。澳大利亚和美国等国家在民主治理方式上的差异意味着每个国家因此需要对国家安全的这一要素有自己的解释。每个国家都需要自己的法律和理论，可以用来教育军队、政治家、公共服务部门的官员，最重要的是公民。
-
-衡量这是否已实现的最佳衡量标准是军队的表现和行为。
-
-如果军队是其招募所在社会的代表，那么它就按照人民的价值观和期望行事。近年来，艾略特·科恩（Eliot Cohen）和丽莎·布鲁克斯（Risa Brooks）等学者主张有必要审查当代军民关系，以及一方面军队与另一方面社会之间存在的契约。现在是重新激发此类工作的好时机，并且可能会成为 AUKUS 合作的重要补充。
-
-布查杀戮引发的第二个问题是军队是而且必须是一种职业。
-
-军事机构的成员必须将自己视为武器职业的一部分。只有这种心态才能让这些大型组织中的人们做好准备，这些人是社会中唯一能够合法地大规模杀戮、致残和摧毁的人，以负责任地使用这些权力。
-
-在我最近几次军事任命中，我曾多次让高级军官贬低“武器专业”一词的使用，如“过时”、“来自第一次世界大战的东西”或“只是军队的东西”。
-
-以专业和道德的方式行事并不过时。它从来没有。这正是我们的公民对一支从他们身上汲取的力量以他们的名义为他们的利益服务的期望。
-
-就像我在三十多年里并肩作战的绝大多数士兵一样，我喜欢成为军火行业的一员，因为它强加了一种专业纪律，使我们成为更好的士兵、更好的公民和更好的国家公仆。
-
-鉴于过去六周的表现，目前的俄罗斯军队不具备所有这些特征。他们在整个灾难性的竞选活动中表现出缺乏专业人士的重要心态。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-800.png)俄罗斯军队在乌克兰的行动为澳大利亚国防军提供了军事道德方面的教训。（图片源自ABC）
-因此，俄乌战争为我们提供了令人信服的动力，让我们再次审视西方军事组织，以确保他们拥有最好的职业军事道德，作为战术、作战和战略层面军事效力的基础。
-
-对于大多数人来说，军民关系和武器专业的话题是晦涩难懂的。这是一个遗憾。因为，从本质上讲，最优秀、最成功的军队是建立在聪明、有联系、有道德和领导良好的人类之上的。这是本世纪军事优势的核心。每隔一个时代。
-
-Mick Ryan是一名战略家，最近退休的澳大利亚陆军少将。他曾在东帝汶、伊拉克和阿富汗服役，并担任美国参谋长联席会议的战略家。他的第一本书《War Transformed》是关于 21 世纪的战争。
-
-文章观点仅代表作者个人，与Gnews平台无关
-
-文章来源：[**https://www.abc.net.au/news/2022-04-05/bucha-massacre-russia-ukraine-war-crime-lesson-for-adf/100963418**](https://www.abc.net.au/news/2022-04-05/bucha-massacre-russia-ukraine-war-crime-lesson-for-adf/100963418)
-
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 傻小子
-发布：洛杉矶盘古农场 – 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

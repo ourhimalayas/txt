@@ -2,27 +2,22 @@
 ---
 
 
-## 加拿大为应对乌克兰战争增加80亿加元的军费开支
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307693/)
+## 日本考虑限制从俄罗斯进口煤炭
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/2307704/)
 
 翻译/编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2022/04/np_file_151751.jpeg)图片来源：BLOOMBERG
+根据CNA4月8日引述日本媒体报道，日本政府正在考虑限制俄罗斯煤炭的进口，作为对该国能源领域制裁的一部分。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2022/04/000_9xy42y.jpg)图片来源：AFP/Gints Ivuskans
+报道援引消息人士的话说，在七国集团（G7）盟友发表声明，承诺对俄罗斯实施额外制裁，以回应其在乌克兰大规模屠杀平民的指控之后，日本将与美国和欧洲国家协调行动。
 
+日本首相岸田文雄周四表示，在与七国集团盟友就进一步的惩罚措施进行协调后，日本最早将于周五公布对俄罗斯入侵乌克兰的进一步制裁。
 
-根据CNA4月8日报道，加拿大周四（4月7日）在其新预算中公布了五年内增加80亿加元（64亿美元）的军费开支，以应对俄罗斯入侵乌克兰的战争，但未能达到北约规定的占国内生产总值2%的开支目标。
+在俄罗斯2月24日入侵乌克兰之后，日本加大了制裁力度–将莫斯科从国际支付网络SWIFT除名和冻结其中央银行资产。
 
-“俄罗斯总统普京对乌克兰的入侵提醒我们，我们自己的和平民主就像世界上所有的民主国家一样，最终取决于硬实力的防御，”财政部长克里斯蒂娅-弗里兰表示。“我们知道，自由不是白来的，和平只有在我们准备好为它而战时才能得到保证。”
+日本与G7经济体保持一致，冻结了俄罗斯官员、寡头、银行和其他机构的资产，并禁止向俄罗斯出口高科技产品。
 
-“这就是为什么这份预算立即对我们的武装部队进行了额外投资，并提议迅速进行国防政策审查，以使加拿大能够应对一个变得更加危险的世界。”弗里兰补充道。
-
-根据北约的数据，加拿大目前的军事开支占国内生产总值的1.36%，比几年前略有下降。
-
-据专家和议会的独立财政监督机构称，要达到北约的目标，渥太华必须为国防拨出更多资金，至少要占GDP的0.5%。
-
-弗里兰建议，渥太华仍然可以很快缩小这一差距，并提议“迅速进行国防政策审查，使加拿大能够应对一个变得更加危险的世界”。
-
-资料来源：[Canada boosts military spending by C$8 billion in response to Ukraine war](https://www.channelnewsasia.com/world/canada-boosts-military-spending-c8-billion-response-ukraine-war-2615406)
+资料来源：[Japan considers restrictions on coal imports from Russia](https://www.channelnewsasia.com/asia/japan-considers-restrictions-coal-imports-russia-2615361)
 
 发布：tianzhihuan
 

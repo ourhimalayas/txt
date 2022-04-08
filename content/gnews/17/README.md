@@ -2,31 +2,21 @@
 ---
 
 
-## 今日盖特大V推荐 — 大纪元时报（The Epoch Times）
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/2307749/)
+## 视频|乌克兰将效法以色列全民皆兵
+` MOSVIDEO` [轉載自GNews](https://gnews.org/zh-hans/2307757/)
 
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-793.png)
-盖特链接： [**https://gettr.com/user/epochtimes**](https://gettr.com/user/epochtimes)
+制作：香草山视频部
 
-**大纪元时报自述：**
+当地时间4月5日，据以色列媒体报道，乌克兰总统泽连斯基当天指出，在国家安全方面，遭遇了俄罗斯侵略之后的乌克兰将效法以色列，实行全民皆兵政策。
+泽连斯基表示，安全问题已经成为乌克兰在未来十年中必须面对的首要任务。因此，他已经同西方各国的领导人多次讨论过相关规划，且很多乌克兰的盟友都表达了参与的意愿。这其总，泽连斯基希望多国以小集团的形式分别向乌克兰提供国家安全援助。
+泽连斯基也承认，乌克兰今后肯定不会像预期的那样绝对自由和欧洲化，但其也绝对不会变成一个专制国家。相较而言，乌克兰将更偏向成为一个“大以色列”：在强敌环伺的情况下，乌克兰必须保留规模更大的武装部队，用以对抗两个邻国。为此，乌克兰的各个场所今后都会有荷枪实弹的国家武装部队。
+报道还提到，泽连斯基近日在乌克兰犹太人社团举办的年度基辅犹太论坛上发表演说称，乌克兰人和犹太人都珍视自由，且双方都致力于使国家未来成为自己喜爱的样子，而不是别人要求的样子。
 
-基于真相和传统的独立、屡获殊荣的报告。免费时事通讯：[**http://ept.ms/–Newsletters **](https://ept.ms/–Newsletters)电报：[**http://t.me/epochtimes epochtv.com**](https://t.me/epochtimes%20epochtv.com)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-794.png)图片来源：网络
-**大纪元时报简介：**
+发稿：qiutian（邱甜）
 
-大纪元时报是一家总部设在美国纽约市的国际多语种报纸和媒体。该报由法轮功学员于2000年在纽约创办。
-
-大纪元时报隶属于大纪元传媒集团，该集团还经营新唐人（NTD）电视台。大纪元在35个国家有网站，但在中国大陆被屏蔽。
-
-台湾中央社曾引述大纪元时报，称其独立于党派及商业集团之外，宗旨为“维护人权普世价值、揭露中国共产党政权极力隐瞒的新闻真相”。
-
-编撰：洛杉矶盘古农场 — 心照
-校审：洛杉矶盘古农场 — 郭友(文苏)
-发布：洛杉矶盘古农场 — 恩典
-[![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)](https://discord.gg/2vuvRm7z6U)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注
+[全球喜马拉雅农场联盟委员会Gettr](https://gettr.com/user/GlobalAlliance)
+[喜马拉雅联盟大使馆全球客服中心Discord](https://discord.gg/fphuQefJ)**
 
  
 
