@@ -15,85 +15,85 @@
 
 ---
 
-### [乌总统向联合国通报俄军对平民的大屠杀](/content/gnews/1/README.md)
- ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
-
-### [江苏省镇江市润州区检察院以GTV信息对两位战友定罪](/content/gnews/2/README.md)
+### [2022年4月8日文贵大直播摘要及音频—银河系农场](/content/gnews/1/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [DC大中华时事：吉林市已经实现社会面清零目标](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [加拿大阿省首席卫生执行官被免职](/content/gnews/4/README.md)
+### [马斯克被任命为 Twitter 董事会成员](/content/gnews/2/README.md)
  ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [樱花时政┃中共正在进行第二次文化大革命](/content/gnews/5/README.md)
+### [乌总统向联合国通报俄军对平民的大屠杀](/content/gnews/3/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [江苏省镇江市润州区检察院以GTV信息对两位战友定罪](/content/gnews/4/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [DC大中华时事：吉林市已经实现社会面清零目标](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [加拿大阿省首席卫生执行官被免职](/content/gnews/6/README.md)
+ ` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)`
+
+### [樱花时政┃中共正在进行第二次文化大革命](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/6/README.md)
+### [有声|乌克兰信息部队成功攻击俄罗斯资源网站](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦国旗气球深受乌克兰儿童喜爱](/content/gnews/7/README.md)
+### [有声|新中国联邦国旗气球深受乌克兰儿童喜爱](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [病毒大流行和乌克兰战争致使中国农民在播种季节面临肥料短缺问题](/content/gnews/8/README.md)
+### [病毒大流行和乌克兰战争致使中国农民在播种季节面临肥料短缺问题](/content/gnews/10/README.md)
  ` KarmaLabs`
 
-### [【G时新闻】美联储已经准备好制裁中共](/content/gnews/9/README.md)
+### [【G时新闻】美联储已经准备好制裁中共](/content/gnews/11/README.md)
  ` G-时新闻`
 
-### [DC每日热点0408](/content/gnews/10/README.md)
+### [DC每日热点0408](/content/gnews/12/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [《歷史的今天》2022.04.08](/content/gnews/11/README.md)
+### [《歷史的今天》2022.04.08](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [《历史的今天》2022.04.08](/content/gnews/12/README.md)
+### [《历史的今天》2022.04.08](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【G叻睇真D】加拿大安省已接种疫苗者感染新冠病毒死亡率增高](/content/gnews/13/README.md)
+### [【G叻睇真D】加拿大安省已接种疫苗者感染新冠病毒死亡率增高](/content/gnews/15/README.md)
  ` G-时新闻`
 
-### [黑客显然瘫痪了芬兰政府网站](/content/gnews/14/README.md)
+### [黑客显然瘫痪了芬兰政府网站](/content/gnews/16/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [【G叻睇真D】特鲁多政权因错误疫情政策而造成巨额浪费](/content/gnews/15/README.md)
+### [【G叻睇真D】特鲁多政权因错误疫情政策而造成巨额浪费](/content/gnews/17/README.md)
  ` G-时新闻`
 
-### [【粤语配音】2022年4月8日：墙内战友活着，等待新中国联邦拯救的那一天](/content/gnews/16/README.md)
+### [【粤语配音】2022年4月8日：墙内战友活着，等待新中国联邦拯救的那一天](/content/gnews/18/README.md)
  ` MOS香港部`
 
-### [五月花简报（04/08/2022）](/content/gnews/17/README.md)
+### [五月花简报（04/08/2022）](/content/gnews/19/README.md)
  ` mayflowertranslate`
 
-### [中共国利用人工智能软件提高其监控能力（二）](/content/gnews/18/README.md)
+### [中共国利用人工智能软件提高其监控能力（二）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗损害爆发，主流媒体猛然醒悟](/content/gnews/19/README.md)
+### [疫苗损害爆发，主流媒体猛然醒悟](/content/gnews/21/README.md)
  ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
 
-### [斯洛伐克宣布向乌克兰转让S-300防空系统](/content/gnews/20/README.md)
+### [斯洛伐克宣布向乌克兰转让S-300防空系统](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美参议员要求联邦养老金委员会被提名人不向中共国投资](/content/gnews/21/README.md)
+### [美参议员要求联邦养老金委员会被提名人不向中共国投资](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [一名加拿大妇女在接种CCP病毒疫苗后需要拐杖和轮椅才能四处活动](/content/gnews/22/README.md)
+### [一名加拿大妇女在接种CCP病毒疫苗后需要拐杖和轮椅才能四处活动](/content/gnews/24/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/23/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （二）](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [岸田否认日本将很快恢复外国游客入境](/content/gnews/24/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/25/README.md)
+### [中共国面临最严重的经济瘫痪和最高的投资风险 （一）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵大直播|《230法案》让垄断的媒体公司权力过大 操纵舆论 掩盖真相](/content/gnews/26/README.md)
- ` KarmaLabs`
-
-### [文贵大直播|全球音乐灭共，射向共产党灵魂的核弹](/content/gnews/27/README.md)
+### [文贵大直播|《230法案》让垄断的媒体公司权力过大 操纵舆论 掩盖真相](/content/gnews/27/README.md)
  ` KarmaLabs`
 
 ### [文贵大直播|新中国联邦未来将组建专业的救援团队和遍布全球的新闻记者站](/content/gnews/28/README.md)

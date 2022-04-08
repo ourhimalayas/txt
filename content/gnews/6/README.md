@@ -2,29 +2,26 @@
 ---
 
 
-## 有声|乌克兰信息部队成功攻击俄罗斯资源网站
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/2312572/)
+## 加拿大阿省首席卫生执行官被免职
+` 加拿大温哥华扬帆农场 Himalaya Sailing Farm (CA)` [轉載自GNews](https://gnews.org/zh-hans/2312600/)
 
-录音： 香草山视频部-Gtv abeilles（蜜蜂）
+作者：加拿大温哥华扬帆农场-薇文
 
-当地时间4月5日，据乌克兰政府官方透露的消息显示，自俄罗斯入侵乌克兰开始，乌克兰数字化转型部立即组建了一支信息技术部队在网络战线上与俄罗斯作战。
+- ![](https://assets.gnews.org/wp-content/uploads/2022/04/image-873.png)图片来源：TNT
 
-据悉，该部队汇集了来自乌克兰和世界各地数字领域的专业人员。这些专家组织了多起对俄罗斯政府资源、银行网站和商业公司的分布式拒绝服务攻击，目标涉及俄罗斯联邦政府、国家服务局、联邦安全局、联邦通信、信息技术和大众传媒监督局，以及莫斯科证券交易所和一些其他机构的网站。此外，白俄罗斯包括国家银行网站在内的数十个战略网站也在攻击范围内。
 
-数据表明，俄乌战争期间，乌克兰信息技术部队已经成功地攻击
+加拿大[国家电讯报]网络媒体4日报道，阿尔伯塔省医疗卫生服务系统(AHS)的首席执行官维尔纳·姚4日被解雇，原因是疫情期间对该系统管理不善。
 
-文字版原文：[乌克兰信息部队成功攻击俄罗斯资源网站](https://gnews.org/zh-hans/2305247/)
+阿省政府在应对大疫情期所表现的专横霸道，其中一个方面就体现在住院和ICU病床数量的种种劣迹。系统的病床数据不断被篡改，错误的数据使阿省的医疗系统显得始终处于不堪重负的崩溃边缘，而实际上政府的医疗资源却未充分利用。
 
-![图片](https://media.discordapp.net/attachments/908033143146172416/959144054250151966/4.jpg?width=268&amp;height=368)
+维尔纳·姚的另一件丑闻是，她试图暂停和解雇系统内2.6万多名未接种疫苗的 “临时工”，以实现疫苗高接种率目标。媒体曝光后才有所收敛。她似乎只服务于阿省的新民主党和护士工会，使疫情看起來像是一个需要更严格封锁和限制才能解决的问题。
 
-音频处理/发稿：Daxia
+阿省医疗保健系统需深入改革，用更少的管理人员和更多的独立医生来改善医疗服务。
 
-**更多资讯，更多关注**
+新闻链接：[Dr. Verna Yiu Has Been Removed As Alberta Health Services CEO](https://thenationaltelegraph.com/regional/breaking-dr-verna-yiu-has-been-removed-as-alberta-health-services-ceo)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2022/04/image-358.png)
+编辑发稿：硫酸羟氯喹64
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
