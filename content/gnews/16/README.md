@@ -2,15 +2,21 @@
 ---
 
 
-## 中共疫情极端管控吓坏上海非裔
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306027/)
+## 樱花时政┃中共违反国际对俄制裁，用人民币购买俄国能源
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/2306028/)
 
-撰稿：东京樱花团/Ob
+撰稿：东京樱花团/加一颗稻草
 
-中共的邪恶历来令人心惊胆战，多少人心中埋藏着恐惧的阴影。三反五反，文化大革命，三年自然大灾害，哪一场运动不是别有用心的杀人。而如今，一场靠“疫核团”驱动的社会防疫运动正在上海如火如荼地进行着。
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片1-17.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202204%2Fn11951242%2Fweb%2Fimages%2Fid13655080-2203140646161528-594x359.jpg&amp;imgrefurl=https%3A%2F%2Ftest.qycz.org%2Fa%2F202204%2Fn11951242%2Fweb%2F&amp;tbnid=D3KpeoKT4B7FhM&amp;vet=12ahUKEwjgg4HJsIL3AhWh34UKHRmJCPcQMygGegUIARClAQ..i&amp;docid=FRa77VeixuQ-vM&amp;w=594&amp;h=359&amp;q=%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%E7%AE%A1%E6%8E%A7%20%E5%86%9B%E7%AE%A1&amp;ved=2ahUKEwjgg4HJsIL3AhWh34UKHRmJCPcQMygGegUIARClAQ)
-三年大自然灾害易子互食的悲剧仍然历历在目。移居上海的非裔，独处异国他乡，听说中国共产党最擅长依靠和发动邪恶的社会运动推动杀人之后，深感忧虑，向社会发出了恐惧的哀求，“我是一个好黑人，请不要吃我，上海。”
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-20.png)
+在国际社会针对俄罗斯入侵乌克兰展开严厉制裁之际，用人民币支付的俄罗斯的煤炭和石油开始源源不断地运往中共国。
+
+![](https://assets.gnews.org/wp-content/uploads/2022/04/图片3-3.jpg)图片来源于本文链接
+
+几家中共公司今年3月从俄罗斯购买了一批煤炭，预计第一批煤炭将在本月运抵中共国。这些交易过去一直都是通过美元进行的。美欧把俄罗斯银行剔除出SWIFT银行间信息系统之后，中共同意俄罗斯采用人民币进行采购活动。据消息来源，中共咨询公司汾渭能源信息服务公司说，中共国炼钢企业和发电厂使用的煤炭都是用人民币采购的。
+
+评论：中共唆使俄罗斯入侵乌克兰并提供支持，致使乌克兰饱受战争摧残。这种违反国际社会对俄罗斯制裁的行为应等同于战争罪，必将遭到国际社会的严厉制裁。中共挑战美元主导的全球贸易的地位，是预谋已久的计划。西方国家为惩罚俄罗斯入侵乌克兰而采取的制裁措施，正在加快中共的人民币国际化的进程。与此同时沙特阿拉伯正在与北京磋商是否可以用人民币给部分沙特原油产品定价。 中共在全世界投放病毒及强制疫苗摧毁世界经济，然后利用在自己世界工厂的影响力打败美元，是这个计划的目的，然而这只是中共所有计划中的一部分。中共伺机攻打台湾的邪恶目的已经引起国际社会重视。早在2017年郭文贵先生就警告世界，中共将要把世界拖入黑暗。
+
+消息来源：[中国违反国际对俄制裁，用人民币购买的俄国能源将运往中国](https://www.voachinese.com/a/russian-coal-and-oil-paid-with-renminbi-heading-to-china-20220407/6519086.html)
+
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2022/03/yht.jpg)
