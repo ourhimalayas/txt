@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 4/8/2022 12:20 PM (UTC)`
+
+A Danish Christian volunteer: The CCP have been killing His people for years but now it ends. The wave of NFSC is tipping down this giant wall that blocks Chinese people from freedom. You may feel you are tiny sometimes but this is not true. God is helping you and nothing is stronger than Him! You are NOT alone! All freedom-loving people of the world are caring and praying for you.<br/><br/>【乌克兰救援】 04/05/2022 一位丹麦基督徒志愿者：共产党一直在屠杀迫害神的子民，现在要结束了，由新中国联邦人掀起的浪潮正在推翻那堵墙。有时，你们可能感到自己很渺小，其实不是，上帝正在帮助你们，没有比上帝更强大的，你们并不孤独，全世界爱好自由的有爱的人都在祝福你们。<br/>
+![img](https://media.gettr.com/group37/getter/2022/04/08/12/673d3783-bb6c-6148-e164-9f8e5988e4cf/out.jpg)
+
+---
+
 `@miles 4/8/2022 10:29 AM (UTC)`
 
 【Ukraine Rescue】 04/05/2022 Nicole introduces to Czech radio reporter Estelle that the Chinese tent in Medyka is not from Communist China, but from the NFSC, which is committed to eradicating the CCP; in addition to this humanitarian rescue operation, we are trying to break the CCP's censorship and provide truthful information to people in China who have been severely brainwashed by the CCP's propaganda, freeing them from the fear of CCP coercion.<br/><br/>【乌克兰救援】 04/05/2022 妮可向捷克电台的记者艾斯黛介绍梅迪卡的中国帐篷并非来自共产主义中国，而是来自于致力于铲除中共的新中国联邦；除了此次人道主义救援行动外，我们还试图打破中共的审查制度，向中国境内被中共宣传严重洗脑的人们提供真实的信息，把人们从中共胁迫的恐惧中解放出来。<br/>
@@ -35,14 +42,6 @@
 
 2022-4-7《鸡血王喜币大作战》 第一百五十八集 嘉宾：青藤、文空
 ![img](https://media.gettr.com/group32/origin/2022/04/08/02/f3e8a65e-b2bf-453d-3b30-8471ea63b82d/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@ridgway 4/7/2022 5:09 PM (UTC)`
-
-原创 — 这段话发生的时期是在十八大之后，习近平访美遭到了冷遇和挫折，在内心愤愤不平之余也意识到了他的“中美新型大国关系”战略或许将无法达到他的预期，为此他调整了策略，前往莫斯科同普京讲出了上述的谈话。 - 從 GNews APP 分享 (https://gnews.org/zh-hans/2304557/) <br/><br/>https://gnews.org/zh-hans/2304557/
 
 ---
 

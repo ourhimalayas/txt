@@ -2,27 +2,50 @@
 ---
 
 
-## 有声｜美众议院要求国务院提交中共助俄逃避制裁评估报告
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/2309681/)
+## 老爷和韭菜
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/2309693/)
 
-By:**秘翻新闻**
+作者：紐約香草山教育部-蓝之灵（Hortensia)
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-837.png)
 
-**2022-04-08**
-![](https://assets.gnews.org/wp-content/uploads/2022/04/5-24.png)
-据《[希望之声](https://www.soundofhope.org/post/609815)》4月7日报道，4月5日，美国国会众议院外交事务委员会推进数项涉及俄罗斯的法案，其中一项法案要求国务院就中共与俄罗斯的合作，以及中共是否向俄罗斯提供任何援助作出评估。
 
-这项法案名为《评估习的干预和颠覆法案》。法案要求评估中俄合作、以及中共如何干预和妨碍美国制裁俄罗斯。国务院在法案生效后的30天内向国会提交报告，说明中共是否提供俄罗斯任何援助，或协助俄罗斯逃避国际制裁。报告每90天进行更新。
 
-法案发起人、众议员安迪·巴尔指出，美国有合理依据相信中共正在对俄罗斯提供某种形式的支持。
+老爷是官，韭菜被管
+检测核酸，全民皆关
+指鹿为马，老爷发话
+你想干啥，出门就杀
+军管军管，实枪荷弹
+不听管制，小命要完
+没吃没喝，倒霉是你
+上吊跳楼，自由选择
+啥
 
-众议院外交事务委员会主席格里高利·米克斯在听证会上表示，中俄两国在今年2月份乌克兰遭入侵之前发表的联合声明显示，两国之间的合作更加密切。他强调说：“如果中共是让乌克兰人民溅血的同谋，那世界应该也需要知道这一点。”
+![](https://assets.gnews.org/wp-content/uploads/2022/04/49C2C0FF-4BE8-4183-A73E-2A5B0F8AD26D.jpeg)
 
-秘翻新闻 巴拉克编辑报道
+还有自由
+老爷发话, 字正腔圆
+对对对
+我们民主，自由国家
+霹雳扒喳，人落楼下
+老爷发话，人雨是花
+可怜韭菜，哭天喊地
+失去我家，失去我爸
+失去我妈，失去我娃
+老爷发话，塞他嘴巴
+高高铸墙，圈禁你丫
 
-发布 : 恩典
+![](https://assets.gnews.org/wp-content/uploads/2022/04/Screenshot_3-2.png)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2022/04/图片2-7.png)
+**更多资讯，更多关注**
+[**乌克兰救援**UkraineRescue**官方**Gettr](https://gettr.com/user/ukrainerescue)
+[**郭文贵先生**Gettr](https://gettr.com/user/miles)
+[**全球喜马拉雅农场联盟委员会**Gettr](https://gettr.com/user/GlobalAlliance)
+[**喜马拉雅联盟大使馆全球客服中心**Discord](https://discord.gg/zv8j42srdN)
+
+**编辑**/**校正**/**发稿：玫瑰圓**
+![](https://assets.gnews.org/wp-content/uploads/2022/04/image-839.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
